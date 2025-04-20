@@ -377,5 +377,7 @@ description: 本项目为中文用户推荐稳定高速的机场服务，支持 
 
 ---
 
-📬 本项目由 [chatgpt-helper-tech](https://github.com/chatgpt-helper-tech) 维护。  
-请仅将机场用于个人访问学习用途，合理合规使用，避免滥用。
+📬 本项目由 [chatgpt-helper-tech](https://github.com/chatgpt-helper-tech) 维护，面向中文用户持续更新  
+📂 GitHub Pages 主站地址：[https://chatgpt-helper-tech.github.io](https://chatgpt-helper-tech.github.io)  
+⭐ 如果你觉得本站有帮助，请点击 Star 或分享给有需要的朋友  
+---
