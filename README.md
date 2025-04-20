@@ -39,8 +39,8 @@
 
 如果你当前完全无法访问外网（比如连 ChatGPT 和 VPN 官网都打不开），可以先注册一个免费机场作为临时通道：
 
-👉 [点击注册 V2Free（每日限流）](https://w1.v2free.cc/auth/register?code=i0A3)
-
+👉 [点击注册 V2Free（每日领取免费流量）](https://w1.v2free.cc/auth/register?code=i0A3)
+- 此机场作者已使用了2年,可免费可购买套餐,便宜稳定
 - 支持 Clash、V2rayN 导入
 - 每日免费流量
 - 可用于访问 ChatGPT、YouTube、GitHub、VPN 官网等
@@ -111,6 +111,8 @@
 **推荐受众**  
 运营团队 / 视频剪辑工作室 / 重度 AI 调用者，需要“全年无故障、高速低抖动”体验的人；预算充足。
 
+👉 [点击前往 WgetCloud 官网](https://invite.wgetcloud.ltd/auth/register?code=xEgJKS)
+
 ---
 
 ### 2 . BoostNet — 三网 IEPL，带宽拉满
@@ -140,6 +142,8 @@
 
 **推荐受众**  
 想要“大水管 + 月付可大可小”且重度流媒体的用户；移动宽带党福音。
+
+👉 [点击前往 BoostNet 官网](https://boostnet1.com/register?code=kKMFirlm)
 
 ---
 
@@ -172,6 +176,8 @@
 **推荐受众**  
 流媒体爱好者 / 需要注册各国账号的数字玩家 / 需要冷门国家 IP 做 SEO、投放 A/B 测试的跨境从业者。
 
+👉 [点击前往 TAG 官网](https://honven.dedicated-afflink.com/#/auth/lN2XqdIt)
+
 ---
 
 ### 4 . Kycloud — 不限设备，自带海外直连
@@ -198,6 +204,8 @@
 **使用心得**  
 - 不限客户端+海外直连功能，非常适合同时在国内与海外工作的多终端用户。  
 - 面板提供速率排行榜，智能选路；支持自定义订阅托管。
+
+👉 [点击前往 Kycloud 官网](https://my.cloudn.cc/clientarea.php)
 
 ---
 
@@ -226,6 +234,8 @@
 - 入口多且分区独立，单一入口被阻断时其余正常。  
 - 后台支持“付费流量重置”无需重新购买套餐。
 
+👉 [点击前往 悠兔 官网](https://youtu1.xyz/register?aff=erkQTmbM)
+
 ---
 
 ### 6 . 贝贝云 — 95 折高性价比，江苏隧道入口
@@ -251,6 +261,8 @@
 **实测**  
 - 电信 1000 M 晚高峰 HK 节点 340 Mbps，下行稳定；YouTube 4K 平均 22 Mbps 一致流。  
 - Telegram 官方群 7 × 24 测速贴，方便新手参考。
+
+👉 [点击前往 贝贝云 官网](https://beibeilink.top/register?code=Oa86Fbs3)
 
 ---
 
@@ -278,6 +290,8 @@
 - Trojan 协议天然抗审计，配合自签 TLS 证书，HTTP3 握手更稳。  
 - 未限制路由器使用，适合家里多台设备共同走流量。
 
+👉 [点击前往 海獭 官网](https://aff.joinhaita.com/register?aff=Jqfg23Tx)
+
 ---
 
 ### 8 . 龙猫云 — Hytron 入口，无限设备
@@ -303,6 +317,8 @@
 **特色**  
 - 官方明确支持境外登陆；适合作为“海内外双居”用户的移动热点方案。  
 - 定期更新落地列表，方便做 IP 库白名单。
+
+👉 [点击前往 龙猫云 官网](https://inv03.lmaff01.cc/register?aff=Y6CVzzEF)
 
 ---
 
