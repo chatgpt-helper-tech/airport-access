@@ -1,5 +1,4 @@
 ---
-layout: default
 title: 2025科学上网机场推荐榜单 | 中文用户实测稳定高速节点
 description: 精选适合中文用户的科学上网机场推荐，全面支持Clash、V2ray等协议，2025年最新稳定高速机场评测，助你轻松访问YouTube、ChatGPT、Google、Netflix。
 ---
