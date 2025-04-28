@@ -80,12 +80,12 @@
 ## ✨ 如果你不想看完整评测，直接根据我的个人推荐选择：
 根据长期实际体验和稳定性测试，以下是我为不同需求用户精选的快速推荐：
 ---
-🥇 高端机场推荐：WgetCloud
+🥇 高端机场推荐：[WgetCloud](https://invite.wgetcloud.ltd/auth/register?code=xEgJKS)
 - 推荐理由： WgetCloud 是业界少有的顶级机场，节点遍布全球，速度极快且稳定性极高。专线带宽，无惧晚高峰，流媒体（Netflix、YouTube 4K、Disney+ 等）全解锁。适合高强度科学上网、远程办公、游戏加速、高清视频流用户。对速度和体验要求极高的重度用户首选。
 - 👉 [点击前往 WgetCloud 官网,新用户享85折优惠](https://invite.wgetcloud.ltd/auth/register?code=xEgJKS)
 
 ---
-🥈 中端机场推荐：BoostNet、悠兔机场
+🥈 中端机场推荐：[BoostNet](https://boostnet1.com/register?code=kKMFirlm)、[悠兔机场](https://youtu1.xyz/register?aff=erkQTmbM)
 - BoostNet 推荐理由： BoostNet 线路优化优秀，拥有优质节点，速度快、延迟低，流媒体解锁能力强大，适合追求稳定和体验同时又希望控制预算的用户。性价比非常高，日常使用体验媲美高端机场。
 - 👉 [点击前往 BoostNet 官网,享8折优惠](https://boostnet1.com/register?code=kKMFirlm)
 - 新人8折优惠券：boost
@@ -97,7 +97,7 @@
 - 新人 8 折优惠码：888
 
 ---
-🥉 低端机场推荐：贝贝云
+🥉 低端机场推荐：[贝贝云](https://beibeilink.top/register?code=Oa86Fbs3)
 - 推荐理由： 贝贝云属于入门级机场，价格非常亲民，适合轻度科学上网使用，如日常网页浏览、访问海外资料、简单使用 ChatGPT 等,对流媒体晚高峰要求不高。对于不需要高强度大流量应用的用户来说，是最具性价比的起步选择。
 - 👉 [点击前往 贝贝云 官网](https://beibeilink.top/register?code=Oa86Fbs3)
 
@@ -112,7 +112,7 @@
 
 > 以下七家从 40+ 热门机场中精挑细选，覆盖高端旗舰、平价主力、入门备胎三大梯度，确保不同预算、不同场景都能找到契合方案。
 
-### 1 . WgetCloud — 高端旗舰，企业级稳定
+### 1 . [WgetCloud — 高端旗舰，企业级稳定](https://invite.wgetcloud.ltd/auth/register?code=xEgJKS)
 **综合评分：9.6 / 10**  
 **关键词**：广州 IEPL｜自研面板｜多线路分组｜邮件通知
 
@@ -147,7 +147,7 @@
 
 ---
 
-### 2 . BoostNet — 三网 IEPL，带宽拉满
+### 2 . [BoostNet — 三网 IEPL，带宽拉满](https://boostnet1.com/register?code=kKMFirlm)
 **综合评分：9.2 / 10**  
 **关键词**：深港专线｜移动友好｜新人 8 折｜一年 118 备用流量包
 
@@ -180,7 +180,7 @@
 
 ---
 
-### 3 . TAG — 全球 90+ 国家宽原生 IP
+### 3 . [TAG — 全球 90+ 国家宽原生 IP](https://honven.dedicated-afflink.com/#/auth/lN2XqdIt)
 **综合评分：9.0 / 10**  
 **关键词**：冷门地区｜家宽 IP｜影片解锁狂魔｜年付 154 超值
 
@@ -215,7 +215,7 @@
 
 ---
 
-### 4 . 悠兔 — 电信入口，专线 + 隧道混合
+### 4 . [悠兔 — 电信入口，专线 + 隧道混合](https://youtu1.xyz/register?aff=erkQTmbM)
 **综合评分：8.6 / 10**  
 **关键词**：多入口负载均衡｜120 ¥/年 200 GB 流量包｜8 折代码“888”
 
@@ -248,7 +248,7 @@
 
 ---
 
-### 5 . 贝贝云 — 95 折高性价比，江苏隧道入口
+### 5 . [贝贝云 — 95 折高性价比，江苏隧道入口](https://beibeilink.top/register?code=Oa86Fbs3)
 **综合评分：8.4 / 10**  
 **关键词**：14.9 /月 100 GB｜95 折码“beibei.cloud”｜TG 社群活跃
 
@@ -275,7 +275,7 @@
 
 ---
 
-### 6 . 海獭 — Trojan 入门价，季度 ¥25 = 50 GB/月
+### 6 . [海獭 — Trojan 入门价，季度 ¥25 = 50 GB/月](https://aff.joinhaita.com/register?aff=Jqfg23Tx)
 **综合评分：8.0 / 10**  
 **关键词**：中部入口｜不限设备｜Trojan 全节点
 
@@ -307,7 +307,7 @@
 
 ---
 
-### 7 . 龙猫云 — Hytron 入口，无限设备
+### 7 . [龙猫云 — Hytron 入口，无限设备](https://inv03.lmaff01.cc/register?aff=Y6CVzzEF)
 **综合评分：7.9 / 10**  
 **关键词**：67 节点｜Hytron 香港｜全节点 ChatGPT
 
