@@ -1,4 +1,8 @@
 theme: jekyll-theme-cayman
-title: 科学上网机场推荐 | 2025
-description: 2025 年最新机场推荐，适合 ChatGPT / Midjourney / 油管用户使用
+title: 科学上网 | 机场推荐 | 机场评测 |2025 
+description: 2025 年最新机场推荐，适合 ChatGPT / Netfilx / Yotube用户使用
 google_analytics: G-LC9J5G7XX4
+url: "https://chatgpt-helper-tech.github.io"
+baseurl: "/airport-access"
+plugins:
+  - jekyll-seo-tag
