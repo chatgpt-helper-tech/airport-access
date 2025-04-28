@@ -35,7 +35,7 @@
 ---
 
 
-## 🆓 免费机场推荐：V2Free
+## [🆓 免费机场推荐：V2Free](https://w1.v2free.cc/auth/register?code=i0A3)
 
 如果你当前完全无法访问外网（比如连 ChatGPT 和 VPN 官网都打不开），可以先注册一个免费机场作为临时通道：
 
