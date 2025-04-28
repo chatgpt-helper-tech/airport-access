@@ -4,5 +4,3 @@ description: 2025 年最新机场推荐，适合 ChatGPT / Netfilx / Yotube用�
 google_analytics: G-LC9J5G7XX4
 url: "https://chatgpt-helper-tech.github.io"
 baseurl: "/airport-access"
-plugins:
-  - jekyll-seo-tag
