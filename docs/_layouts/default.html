@@ -1,0 +1,30 @@
+<!DOCTYPE html>
+<html lang="zh-CN">
+<head>
+  <meta charset="UTF-8">
+  <meta name="viewport" content="width=device-width, initial-scale=1.0">
+  <title>{{ page.title }}</title>
+  <meta name="description" content="{{ page.description }}">
+  {% seo %}
+  <link rel="stylesheet" href="{{ '/assets/css/style.css' | relative_url }}">
+</head>
+
+<body>
+  <header>
+    <nav>
+      <ul class="nav">
+        <li><a href="{{ '/' | relative_url }}">机场推荐首页</a></li>
+      </ul>
+    </nav>
+  </header>
+
+  <main>
+    {{ content }}
+  </main>
+
+  <footer>
+  <p>Copyright © 2025 <a href="https://chatgpt-helper-tech.github.io/">ChatGPT Helper Tech</a>. 
+  所有机场推荐内容仅供学习参考，科学上网指南持续更新中。</p>
+  </footer>
+</body>
+</html>
