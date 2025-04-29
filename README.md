@@ -389,10 +389,10 @@
 
 ## 📚 推荐配套教程
 
-- [🔐 VPN 推荐榜单](https://chatgpt-helper-tech.github.io/network-access/)
-- [📝 ChatGPT 注册教程](https://chatgpt-helper-tech.github.io/chatgpt-register-guide/)
-- [💳 ChatGPT Plus 升级指南](https://chatgpt-helper-tech.github.io/chatgpt-plus-guide/)
-- [📘 ChatGPT 中文教程主站](https://chatgpt-helper-tech.github.io)
+- [🔐 VPN 推荐榜单](https://gptvpnhelper.com/network-access/)
+- [📝 ChatGPT 注册教程](https://gptvpnhelper.com/chatgpt-register-guide/)
+- [💳 ChatGPT Plus 升级指南](https://gptvpnhelper.com/chatgpt-plus-guide/)
+- [📘 ChatGPT 中文教程主站](https://gptvpnhelper.com)
 
 ---
 
