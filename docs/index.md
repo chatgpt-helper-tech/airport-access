@@ -393,13 +393,13 @@ description: 精选适合中文用户的科学上网机场推荐，全面支持C
 
 ## 📚 推荐配套教程
 
-- [🔐 VPN 推荐榜单](https://chatgpt-helper-tech.github.io/network-access/)
-- [📝 ChatGPT 注册教程](https://chatgpt-helper-tech.github.io/chatgpt-register-guide/)
-- [💳 ChatGPT Plus 升级指南](https://chatgpt-helper-tech.github.io/chatgpt-plus-guide/)
-- [📘 ChatGPT 中文教程主站](https://chatgpt-helper-tech.github.io)
+- [🔐 VPN 推荐榜单](https://gptvpnhelper.com/network-access/)
+- [📝 ChatGPT 注册教程](https://gptvpnhelper.com/chatgpt-register-guide/)
+- [💳 ChatGPT Plus 升级指南](https://gptvpnhelper.com/chatgpt-plus-guide/)
+- [📘 ChatGPT 中文教程主站](https://gptvpnhelper.com)
 
 ---
 
-📂 GitHub Pages 主站地址：[https://chatgpt-helper-tech.github.io](https://chatgpt-helper-tech.github.io)  
+📂 GitHub Pages 主站地址：[https://gptvpnhelper.com](https://gptvpnhelper.com)  
 ⭐ 如果你觉得本站有帮助，请点击 Star 或分享给有需要的朋友  
 ---
