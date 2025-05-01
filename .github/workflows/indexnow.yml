@@ -1,0 +1,29 @@
+name: IndexNow Auto Submit
+
+on:
+  push:
+    branches:
+      - main
+
+jobs:
+  indexnow:
+    runs-on: ubuntu-latest
+    steps:
+      - name: Checkout repo
+        uses: actions/checkout@v3
+
+      - name: Submit URLs to IndexNow
+        run: |
+          echo "Start submitting to IndexNow..."
+
+          URLs=(
+            "https://gptvpnhelper.com/airport-access"
+          )
+
+          KEY="7fcb984b977c41acbe5d4ffe78ed0308"
+
+          for URL in "${URLs[@]}"; do
+            curl -i "https://api.indexnow.org/indexnow?url=$URL&key=$KEY" \
+              && echo "Submitted $URL" \
+              || echo "Failed to submit $URL"
+          done
