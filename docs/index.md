@@ -1,6 +1,6 @@
 ---
 title: 2025 机场推荐榜单 | 机场评测 | 科学上网 | 免费机场
-description: 精选适合中文用户的科学上网机场推荐，全面支持Clash、V2ray等协议，2025年最新稳定高速机场评测，助你轻松访问YouTube、ChatGPT、Google、Netflix。
+description: 不知道选哪个机场？2025 年最新中文指南带你挑选最稳定、最快速、最安全的科学上网机场，全面支持 Clash、V2ray，轻松畅游 YouTube、ChatGPT、Netflix、Google，告别断线烦恼！
 ---
 
 在全球互联网内容日益丰富的今天，科学上网已成为中文用户获取知识、拓展视野、连接世界的重要工具。  
