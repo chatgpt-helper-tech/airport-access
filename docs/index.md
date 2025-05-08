@@ -1,5 +1,5 @@
 ---
-title: 2025 机场推荐 | 机场评测 | 科学上网 | 免费机场
+title: 2025机场推荐 | 机场评测 | 科学上网 | 免费机场 | 翻墙 | 梯子
 description: 不知道选哪个机场？2025 年最新中文指南带你挑选最稳定、最快速、最安全的科学上网机场，全面支持 Clash、V2ray，轻松畅游 YouTube、ChatGPT、Netflix、Google，告别断线烦恼！
 ---
 
@@ -57,6 +57,7 @@ description: 不知道选哪个机场？2025 年最新中文指南带你挑选�
 - 支持 Clash、V2rayN 导入
 - 每日免费流量
 - 可用于访问 ChatGPT、YouTube、GitHub、VPN 官网等
+- 日常使用够用,性能肯定比不上顶级机场
 
 ---
 
@@ -156,7 +157,7 @@ description: 不知道选哪个机场？2025 年最新中文指南带你挑选�
 
 **实测体验**
 
-![WgetCloud测试结果](./assets/WgetCloud-Test.jpg)
+![WgetCloud测试结果](./assets/WgetCloud-Test.webp)
 
 ---
 
@@ -189,7 +190,7 @@ description: 不知道选哪个机场？2025 年最新中文指南带你挑选�
 
 **实测体验**
 
-![BoostNet测试结果](./assets/BoostNet-Test.jpg)
+![BoostNet测试结果](./assets/BoostNet-Test.webp)
 
 ---
 
@@ -221,7 +222,7 @@ description: 不知道选哪个机场？2025 年最新中文指南带你挑选�
 👉 [点击前往 TAG 官网注册](https://honven.dedicated-afflink.com/#/auth/lN2XqdIt)
 
 **实测体验**
-![TAG测试结果](./assets/TAG-Test.jpg)
+![TAG测试结果](./assets/TAG-Test.webp)
 
 ---
 
@@ -257,7 +258,7 @@ description: 不知道选哪个机场？2025 年最新中文指南带你挑选�
 - 新人 8 折优惠码：888
 
 **实测体验**
-![悠兔测试结果](./assets/YouTu-Test.jpg)
+![悠兔测试结果](./assets/YouTu-Test.webp)
 
 ---
 
@@ -284,7 +285,7 @@ description: 不知道选哪个机场？2025 年最新中文指南带你挑选�
 👉 [点击前往 贝贝云 官网](https://beibeilink.top/register?code=Oa86Fbs3)
 
 **实测体验**
-![贝贝云测试结果](./assets/BeiBei-Test.jpg)
+![贝贝云测试结果](./assets/BeiBei-Test.webp)
 
 ---
 
@@ -315,7 +316,7 @@ description: 不知道选哪个机场？2025 年最新中文指南带你挑选�
 👉 [点击前往 海獭 官网](https://aff.joinhaita.com/register?aff=Jqfg23Tx)
 
 **实测体验**
-![海獭测试结果](./assets/HaiTa-Test.jpg)
+![海獭测试结果](./assets/HaiTa-Test.webp)
 
 
 ---
@@ -347,7 +348,7 @@ description: 不知道选哪个机场？2025 年最新中文指南带你挑选�
 👉 [点击前往 龙猫云 官网](https://inv03.lmaff01.cc/register?aff=Y6CVzzEF)
 
 **实测体验**
-![龙猫云测试结果](./assets/LongLong-Test.jpg)
+![龙猫云测试结果](./assets/LongLong-Test.webp)
 
 ---
 
@@ -393,7 +394,7 @@ description: 不知道选哪个机场？2025 年最新中文指南带你挑选�
 
 ## 📚 推荐配套教程
 
-- [🔐 VPN 推荐榜单](https://gptvpnhelper.com/network-access/)
+- [🔐 VPN 推荐榜单 实测可用](https://gptvpnhelper.com/network-access/)
 - [📝 ChatGPT 注册教程](https://gptvpnhelper.com/chatgpt-register-guide/)
 - [💳 ChatGPT Plus 升级指南](https://gptvpnhelper.com/chatgpt-plus-guide/)
 - [📘 ChatGPT 中文教程主站](https://gptvpnhelper.com)
