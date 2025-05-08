@@ -152,7 +152,7 @@
 
 **实测体验**
 
-![WgetCloud测试结果](./assets/WgetCloud-Test.jpg)
+![WgetCloud测试结果](./assets/WgetCloud-Test.webp)
 
 ---
 
@@ -185,7 +185,7 @@
 
 **实测体验**
 
-![BoostNet测试结果](./assets/BoostNet-Test.jpg)
+![BoostNet测试结果](./assets/BoostNet-Test.webp)
 
 ---
 
@@ -217,7 +217,7 @@
 👉 [点击前往 TAG 官网注册](https://honven.dedicated-afflink.com/#/auth/lN2XqdIt)
 
 **实测体验**
-![TAG测试结果](./assets/TAG-Test.jpg)
+![TAG测试结果](./assets/TAG-Test.webp)
 
 ---
 
@@ -253,7 +253,7 @@
 - 新人 8 折优惠码：888
 
 **实测体验**
-![悠兔测试结果](./assets/YouTu-Test.jpg)
+![悠兔测试结果](./assets/YouTu-Test.webp)
 
 ---
 
@@ -280,7 +280,7 @@
 👉 [点击前往 贝贝云 官网](https://beibeilink.top/register?code=Oa86Fbs3)
 
 **实测体验**
-![贝贝云测试结果](./assets/BeiBei-Test.jpg)
+![贝贝云测试结果](./assets/BeiBei-Test.webp)
 
 ---
 
@@ -311,7 +311,7 @@
 👉 [点击前往 海獭 官网](https://aff.joinhaita.com/register?aff=Jqfg23Tx)
 
 **实测体验**
-![海獭测试结果](./assets/HaiTa-Test.jpg)
+![海獭测试结果](./assets/HaiTa-Test.webp)
 
 
 ---
@@ -343,7 +343,7 @@
 👉 [点击前往 龙猫云 官网](https://inv03.lmaff01.cc/register?aff=Y6CVzzEF)
 
 **实测体验**
-![龙猫云测试结果](./assets/LongLong-Test.jpg)
+![龙猫云测试结果](./assets/LongLong-Test.webp)
 
 ---
 
