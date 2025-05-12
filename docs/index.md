@@ -1,5 +1,5 @@
 ---
-title: 2025机场推荐 | 机场评测 | 科学上网 | 免费机场 | 翻墙 | 梯子
+title: 2025 年机场推荐指南｜高速稳定厂家测评｜适配 Clash/V2ray 科学上网
 description: 不知道选哪个机场？2025 年最新中文指南带你挑选最稳定、最快速、最安全的科学上网机场，全面支持 Clash、V2ray，轻松畅游 YouTube、ChatGPT、Netflix、Google，告别断线烦恼！
 ---
 
