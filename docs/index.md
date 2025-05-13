@@ -101,7 +101,7 @@ description: 本页专为中文用户提供科学上网机场推荐，评测多�
 - 👉 [点击前往 WgetCloud 官网,新用户享85折优惠](https://invite.wgetcloud.ltd/auth/register?code=xEgJKS)
 
 ---
-🥈 中端机场推荐：[BoostNet](https://boostnet1.com/register?code=kKMFirlm)、[悠兔机场](https://youtu1.xyz/register?aff=erkQTmbM)
+🥈 中端机场推荐：[BoostNet](https://boostnet1.com/register?code=kKMFirlm)、[悠兔机场](https://youtu6.shop/register?code=erkQTmbM)
 - BoostNet 推荐理由： BoostNet 线路优化优秀，拥有优质节点，速度快、延迟低，流媒体解锁能力强大，适合追求稳定和体验同时又希望控制预算的用户。性价比非常高，日常使用体验媲美高端机场。
 - 👉 [点击前往 BoostNet 官网,享8折优惠](https://boostnet1.com/register?code=kKMFirlm)
 - 新人8折优惠券：boost
@@ -109,7 +109,7 @@ description: 本页专为中文用户提供科学上网机场推荐，评测多�
 ---
 
 - 悠兔机场 推荐理由： 悠兔机场价格实惠，线路稳定，适合日常使用，包括访问谷歌、ChatGPT、海外流媒体。对于预算有限又希望获得流畅体验的用户，悠兔是非常值得选择的中端梯队代表。
-- 👉 [点击前往 悠兔官网享8折优惠](https://youtu1.xyz/register?aff=erkQTmbM)
+- 👉 [点击前往 悠兔官网享8折优惠](https://youtu6.shop/register?code=erkQTmbM)
 - 新人 8 折优惠码：888
 
 ---
@@ -117,7 +117,7 @@ description: 本页专为中文用户提供科学上网机场推荐，评测多�
 - 推荐理由： 贝贝云属于入门级机场，价格非常亲民，适合轻度科学上网使用，如日常网页浏览、访问海外资料、简单使用 ChatGPT 等,对流媒体晚高峰要求不高。对于不需要高强度大流量应用的用户来说，是最具性价比的起步选择。
 - 👉 [点击前往 贝贝云 官网](https://beibeilink.top/register?code=Oa86Fbs3)
 
-✅ 小提醒：上面是快速推荐，适合不同预算和使用需求直接参考。
+✅ 小提醒：上面是本人推荐，适合不同预算和使用需求直接参考。
 如果你希望深入了解各大机场的详细测速、节点分布、流媒体解锁能力等信息，请继续阅读下面的「七大精选机场深度评测」。
 
 
@@ -146,7 +146,7 @@ description: 本页专为中文用户提供科学上网机场推荐，评测多�
 | 售后 | 工单 + 邮件，平均响应 1‑3 h |
 
 **套餐速览**
-- **基础组 B**：按月 140 GB/月 → ¥59；按季 200 GB/月 → ¥177；按年 240 GB/月 → ¥588
+- **基础组 B**：按月 140 GB/月 → ¥59；按季 200 GB/月 → ¥162；按年 240 GB/月 → ¥588
 - **优质组 C**：按月 160 GB/月 → ¥69；按季 220 GB/月 → ¥195；按年 280 GB/月 → ¥708
 - **精品组 H**：1按月 180 GB/月 → ¥79；按季 240 GB/月 → ¥228；按年 320 GB/月 → ¥828
 
@@ -231,7 +231,7 @@ description: 本页专为中文用户提供科学上网机场推荐，评测多�
 
 ---
 
-### 4 . [悠兔 — 电信入口，专线 + 隧道混合](https://youtu1.xyz/register?aff=erkQTmbM)
+### 4 . [悠兔 — 电信入口，专线 + 隧道混合](https://youtu6.shop/register?code=erkQTmbM)
 **综合评分：8.6 / 10**  
 **关键词**：多入口负载均衡｜120 ¥/年 200 GB 流量包｜8 折代码“888”
 
@@ -256,7 +256,7 @@ description: 本页专为中文用户提供科学上网机场推荐，评测多�
 - 入口多且分区独立，单一入口被阻断时其余正常。
 - 后台支持“付费流量重置”无需重新购买套餐。
 
-👉 [点击前往 悠兔官网享8折优惠](https://youtu1.xyz/register?aff=erkQTmbM)
+👉 [点击前往 悠兔官网享8折优惠](https://youtu6.shop/register?code=erkQTmbM)
 - 新人 8 折优惠码：888
 
 **实测体验**
