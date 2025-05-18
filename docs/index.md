@@ -580,7 +580,6 @@ description: 本页专为中文用户提供科学上网机场推荐，评测多�
 - 科学上网新手 & 小白友好入门方案
 - 日常 ChatGPT / Netflix / 邮箱收发等轻度应用者
 
-<!-- ✅ 高点击率官网按钮 -->
 <div align="left" style="margin: 10px 0 20px 0;">
   <a href="https://beibeilink.top/register?code=Oa86Fbs3" target="_blank" style="
     display:inline-block;
@@ -667,7 +666,7 @@ description: 本页专为中文用户提供科学上网机场推荐，评测多�
     text-decoration:none;
     box-shadow:0 4px 14px rgba(0,0,0,0.25);
     transition:all 0.3s ease;
-  " onmouseover="this.style.transform='scale(1.05)'\" onmouseout=\"this.style.transform='scale(1)'">
+  " onmouseover="this.style.transform='scale(1.05)'" onmouseout="this.style.transform='scale(1)'">
     <strong>🦦 立即访问海獭官网，查看套餐详情</strong>
   </a>
 </div>
