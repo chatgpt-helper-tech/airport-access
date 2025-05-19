@@ -304,6 +304,7 @@ description: 本页专为中文用户提供科学上网机场推荐，评测多�
 - 团队远程协作/运营办公
 - 重度 AI 模型调用者（如 GPT、Midjourney 用户）
 - 对全年 24x7 无故障运行有严苛要求的用户
+- 晚高峰4K高清流媒体用户（如 Netflix、Disney+）
 
 📌 **一句话总结**：贵是真贵，但性能和体验真的顶。属于“买了不后悔”类型。
 
@@ -402,80 +403,9 @@ description: 本页专为中文用户提供科学上网机场推荐，评测多�
 
 ---
 
-### 3. <a href="https://honven.dedicated-afflink.com/#/auth/lN2XqdIt" target="_blank" style="color:#1a73e8;text-decoration:underline;">TAG — 全球 90+ 国家原生家宽 IP，冷门流媒体解锁专家</a>
+### 3. <a href="https://youtu6.shop/register?code=erkQTmbM" target="_blank" style="color:#1a73e8;text-decoration:underline;">悠兔 — 电信接入，IEPL + 隧道双通道智能分流</a>
 
-**综合评分：9.0 / 10**  
-**关键词标签**：冷门地区 IP｜原生家宽｜流媒体解锁全绿｜年包超值高性价比
-
-> TAG 是少数真正支持全球冷门地区 IP 的优质机场之一，适合流媒体多区玩家、国际账号注册需求者，以及跨境从业者。超 90 国原生家宽节点，全解锁 ChatGPT 与 Netflix，支持高并发设备，极具自由度。
-
----
-
-| **评测指标**     | **详情**                                                                 |
-|------------------|-------------------------------------------------------------------------|
-| **开业时间**     | 2018 年                                                                 |
-| **入口 / 出海**  | 深圳接入 → 深港 IEPL 专线                                                 |
-| **节点覆盖**     | 超 220 节点，92 个国家，含 AT&T US 家宽、KDDI JP、CTM MO 等稀有落地        |
-| **协议支持**     | Shadowsocks                                                              |
-| **UDP 支持**     | 大多数节点开启 Full‑Cone UDP                                              |
-| **ChatGPT 支持** | 全节点解锁，响应稳定                                                      |
-| **流媒体解锁**   | 支持 Netflix 全球 90+ 区、Disney+、Hulu、HBO Max 等主流平台               |
-| **设备限制**     | 最多支持 10 台设备同时在线                                                 |
-| **支付方式**     | 支持支付宝 + USDT，灵活结算                                               |
-
----
-
-**📦 套餐价格速览**
-
-| 套餐名称       | 内容                        | 价格      |
-|----------------|-----------------------------|-----------|
-| 个人 Bronze    | 250 GB/月，季度结算         | ¥176 / 季 |
-| 年度流量包     | 200 GB / 年，备用推荐       | ¥154 / 年 |
-| 团队套餐       | 3 TB / 月，适合多用户场景    | ¥627 / 月 |
-
----
-
-**🎯 推荐人群**
-
-- 各平台流媒体内容的狂热用户
-- 注册各国账号 / 浏览冷门站点的数字玩家
-- 做 SEO、广告投放 A/B 测试的跨境电商或技术团队
-
-📌 **一句话总结**：全球节点最多、自由度极高的流媒体“解锁神器”，堪称冷门 IP 收藏家的乐园。
-
-<!-- 优化版注册按钮 -->
-<div align="left" style="margin: 10px 0 20px 0;">
-  <a href="https://honven.dedicated-afflink.com/#/auth/lN2XqdIt" target="_blank" style="
-    display:inline-block;
-    background:linear-gradient(90deg,#00c9ff,#92fe9d);
-    color:#000;
-    font-weight:600;
-    font-size:16px;
-    padding:12px 24px;
-    border-radius:8px;
-    text-decoration:none;
-    box-shadow:0 4px 14px rgba(0,0,0,0.2);
-    transition:all 0.3s ease;
-  " onmouseover="this.style.transform='scale(1.05)'" onmouseout="this.style.transform='scale(1)'">
-    <strong>🌍 点击前往 TAG 官网注册</strong>
-  </a>
-</div>
-
----
-
-**📊 实测连接质量截图**
-
-![TAG测试结果](./assets/TAG-Test.webp)
-
-
----
-
-
----
-
-### 4. <a href="https://youtu6.shop/register?code=erkQTmbM" target="_blank" style="color:#1a73e8;text-decoration:underline;">悠兔 — 电信接入，IEPL + 隧道双通道智能分流</a>
-
-**综合评分：8.6 / 10**  
+**综合评分：9 / 10**  
 **关键词标签**：多入口负载均衡｜灵活流量调度｜年付低门槛｜中端首选机场
 
 > 悠兔是一款集灵活性、稳定性于一体的平价型机场，主打“隧道与专线混合接入”。多入口配置支持分区独立运行，动态倍率机制满足从日常到高强度场景的切换。小白易上手，老用户有深度配置空间。
@@ -548,6 +478,74 @@ description: 本页专为中文用户提供科学上网机场推荐，评测多�
 **📊 实测连接质量截图**
 
 ![悠兔测试结果](./assets/YouTu-Test.webp)
+
+---
+
+### 4. <a href="https://honven.dedicated-afflink.com/#/auth/lN2XqdIt" target="_blank" style="color:#1a73e8;text-decoration:underline;">TAG — 全球 90+ 国家原生家宽 IP，冷门流媒体解锁专家</a>
+
+**综合评分：8.9 / 10**  
+**关键词标签**：冷门地区 IP｜原生家宽｜流媒体解锁全绿｜年包超值高性价比
+
+> TAG 是少数真正支持全球冷门地区 IP 的优质机场之一，适合流媒体多区玩家、国际账号注册需求者，以及跨境从业者。超 90 国原生家宽节点，全解锁 ChatGPT 与 Netflix，支持高并发设备，极具自由度。
+
+---
+
+| **评测指标**     | **详情**                                                                 |
+|------------------|-------------------------------------------------------------------------|
+| **开业时间**     | 2018 年                                                                 |
+| **入口 / 出海**  | 深圳接入 → 深港 IEPL 专线                                                 |
+| **节点覆盖**     | 超 220 节点，92 个国家，含 AT&T US 家宽、KDDI JP、CTM MO 等稀有落地        |
+| **协议支持**     | Shadowsocks                                                              |
+| **UDP 支持**     | 大多数节点开启 Full‑Cone UDP                                              |
+| **ChatGPT 支持** | 全节点解锁，响应稳定                                                      |
+| **流媒体解锁**   | 支持 Netflix 全球 90+ 区、Disney+、Hulu、HBO Max 等主流平台               |
+| **设备限制**     | 最多支持 10 台设备同时在线                                                 |
+| **支付方式**     | 支持支付宝 + USDT，灵活结算                                               |
+
+---
+
+**📦 套餐价格速览**
+
+| 套餐名称       | 内容                        | 价格      |
+|----------------|-----------------------------|-----------|
+| 个人 Bronze    | 250 GB/月，季度结算         | ¥176 / 季 |
+| 年度流量包     | 200 GB / 年，备用推荐       | ¥154 / 年 |
+| 团队套餐       | 3 TB / 月，适合多用户场景    | ¥627 / 月 |
+
+---
+
+**🎯 推荐人群**
+
+- 各平台流媒体内容的狂热用户
+- 注册各国账号 / 浏览冷门站点的数字玩家
+- 做 SEO、广告投放 A/B 测试的跨境电商或技术团队
+
+📌 **一句话总结**：全球节点最多、自由度极高的流媒体“解锁神器”，堪称冷门 IP 收藏家的乐园。
+
+<!-- 优化版注册按钮 -->
+<div align="left" style="margin: 10px 0 20px 0;">
+  <a href="https://honven.dedicated-afflink.com/#/auth/lN2XqdIt" target="_blank" style="
+    display:inline-block;
+    background:linear-gradient(90deg,#00c9ff,#92fe9d);
+    color:#000;
+    font-weight:600;
+    font-size:16px;
+    padding:12px 24px;
+    border-radius:8px;
+    text-decoration:none;
+    box-shadow:0 4px 14px rgba(0,0,0,0.2);
+    transition:all 0.3s ease;
+  " onmouseover="this.style.transform='scale(1.05)'" onmouseout="this.style.transform='scale(1)'">
+    <strong>🌍 点击前往 TAG 官网注册</strong>
+  </a>
+</div>
+
+---
+
+**📊 实测连接质量截图**
+
+![TAG测试结果](./assets/TAG-Test.webp)
+
 
 
 ---
@@ -773,7 +771,7 @@ description: 本页专为中文用户提供科学上网机场推荐，评测多�
 
 | 机场 | 定位 | 协议 | 参考月付 | 月流量 | 入口 / 过境 | 流媒体 | ChatGPT | 登录数 |
 | :-- | :-- | :-- | :--: | :--: | :-- | :-- | :-- | :--: |
-| WgetCloud | 高端旗舰 | Trojan/SS | ¥59 | 140 GB | 广州 → IEPL | 4K 全绿 | 台湾 IP | 3 |
+| WgetCloud | 高端旗舰 | Trojan/SS | ¥59 | 140 GB | 广州 → IEPL | 4K 全绿 | 全解锁 | 3 |
 | BoostNet | 高速主力 | SS | ¥39 | 200 GB | 深港 IEPL | 4K 全绿 | 全解锁 | 5 |
 | TAG | 多国家宽 | SS | ¥176/季 | 250 GB | 深港 IEPL | 92 国解锁 | 全解锁 | 10 |
 | 悠兔 | 稳稳性价 | SS | ¥29 | 150 GB | 电信 IEPL+隧道 | JP/US/HK | 全解锁 | 5 |
