@@ -18,7 +18,7 @@
 > 当前页面为 GitHub Markdown 精简版，受限于渲染限制，部分功能如测速图、跳转按钮和设备适配效果无法完整呈现。  
 > 若想获得最佳浏览体验（含高清测速图、节点推荐榜、全平台安装教程等），请访问我们的完整版页面：
 >
-> 👉 **[🔗 gptvpnhelper.com/airport-access](https://gptvpnhelper.com/airport-access/)**
+**👉 [前往官网查看完整教程：2025 机场推荐榜单](https://gptvpnhelper.com/airport-access/)**
 
 
 
