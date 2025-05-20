@@ -12,6 +12,14 @@
 希望通过本榜单，帮助你轻松找到适合自己的科学上网解决方案，  
 无论是访问 YouTube、ChatGPT、Netflix、Google，还是进行跨境工作与留学科研，都能顺畅无忧！
 
+> 📘 **建议前往官网查看完整内容：**  
+> 当前页面为 GitHub Markdown 精简版，受限于渲染限制，部分功能如测速图、跳转按钮和设备适配效果无法完整呈现。  
+> 若想获得最佳浏览体验（含高清测速图、节点推荐榜、全平台安装教程等），请访问我们的完整版页面：
+>
+> 👉 [🔗 gptvpnhelper.com/airport-access](https://gptvpnhelper.com/airport-access/)
+
+
+
 ---
 
 ## 📚 目录
