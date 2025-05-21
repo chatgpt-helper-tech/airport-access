@@ -8,10 +8,11 @@
 ✅ 免费机场推荐（如 V2Free）+ 小白教程  
 ✅ 套餐价格解析 & 安全避坑指南  
 ✅ 机场 vs VPN 对比分析 + 使用场景建议
+✅ Windows、macOS、iOS、Android 订阅机场教程
 
 不管你是刚入门，还是追求高性价比的重度用户、追求低延迟的游戏玩家、做跨境、远程办公的专业选手，这里都能帮你找到合适的上网方案。
 
-> ⭐ **觉得有帮助？点个 Star 鼓励我继续更新！**  
+> ⭐ **觉得有帮助？点个 Star ⭐ 鼓励我继续更新！**  
 
 ---
 
@@ -20,13 +21,14 @@
 ### 📖 基础知识：认识“机场”与 VPN 的区别
 1. [什么是机场？科学上网的原理与作用](#ssssr)
 2. [机场 vs VPN：哪个好用？适合谁？](#vs)
+3. [免费机场推荐(V2Free)](#free)
 
 ### 🎯 选购指南：如何挑选适合你的机场服务
-3. [如何挑选靠谱机场？五大关键维度全面解析](#choose)
-4. [快速挑选适合自己的机场](#person)
-5. [2025 年七大顶级机场深度评测（真实实测）](#top7)
-6. [主流机场参数横向对比表（价格/流量/解锁能力）](#关键参数横向对比表)
-7. [免费机场推荐(可以临时使用)](#free)
+4. [如何挑选靠谱机场？五大关键维度全面解析](#choose)
+5. [快速挑选适合自己的机场](#person)
+6. [2025 年七大顶级机场深度评测（真实实测）](#top7)
+7. [主流机场参数横向对比表（价格/流量/解锁能力）](#关键参数横向对比表)
+
 
 ### 🚀 使用教程：快速上手科学上网
 8. [一分钟快速上手教程｜配置机场科学上网全流程](#study)
@@ -78,8 +80,39 @@
 
 📌 **延伸推荐**  
 如需了解更多国际大厂 VPN 的实测体验、详细评测与使用教程（均为大陆可用）：
-[👉点击跳转GitHub仓库 VPN 使用教程与推荐](https://github.com/chatgpt-helper-tech/network-access)
+[👉点击跳转 **ChatGPT 中文助手导航站** VPN 推荐](https://gptvpnhelper.com/network-access)
 
+---
+
+<a id="free"></a>
+## 🆓 免费机场推荐：<a href="https://w1.v2free.cc/auth/register?code=i0A3" target="_blank" style="color:#1a73e8;text-decoration:underline;">V2Free</a> —— 稳定实用的临时科学上网方案
+
+如果你目前**完全无法访问外网**（比如打不开 ChatGPT、YouTube、GitHub 或任何 VPN 官网），那么强烈建议你先注册一个**免费机场**作为临时通道，优先恢复基本的联网能力。
+
+<div align="left" style="margin: 10px 0 20px 0;">
+  <a href="https://w1.v2free.cc/auth/register?code=i0A3" target="_blank" style="
+    display:inline-block;
+    background:linear-gradient(90deg,#00c9ff,#92fe9d);
+    color:#000;
+    font-weight:600;
+    font-size:16px;
+    padding:12px 24px;
+    border-radius:8px;
+    text-decoration:none;
+    box-shadow:0 4px 14px rgba(0,0,0,0.15);
+    transition:all 0.3s ease;
+  " onmouseover="this.style.transform='scale(1.05)'" onmouseout="this.style.transform='scale(1)'"><strong>👉 点击注册 V2Free（每天可领取免费流量）</strong></a>
+</div>
+
+### ✅ 为什么选择 V2Free？
+
+- **使用稳定**：作者亲测使用已超 2 年，稳定性良好
+- **免费套餐+付费升级**：初期免费使用即可满足需求，后期可选择便宜的付费方案
+- **支持多平台导入**：兼容 Clash、V2rayN 等主流工具，一键导入更方便
+- **每天自动赠送流量**：日常使用无压力
+- **解锁常用网站**：可正常访问 ChatGPT、YouTube、GitHub、VPN 官网等国外资源
+
+> ⚠️ 温馨提示：虽然 V2Free 的性能无法媲美顶级机场,但作为**临时应急通道**，它已经非常实用。
 
 
 ---
@@ -804,37 +837,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 
 ---
 
-<a id="free"></a>
-## 🆓 免费机场推荐：<a href="https://w1.v2free.cc/auth/register?code=i0A3" target="_blank" style="color:#1a73e8;text-decoration:underline;">V2Free</a> —— 稳定实用的临时科学上网方案
 
-如果你目前**完全无法访问外网**（比如打不开 ChatGPT、YouTube、GitHub 或任何 VPN 官网），那么强烈建议你先注册一个**免费机场**作为临时通道，优先恢复基本的联网能力。
-
-<div align="left" style="margin: 10px 0 20px 0;">
-  <a href="https://w1.v2free.cc/auth/register?code=i0A3" target="_blank" style="
-    display:inline-block;
-    background:linear-gradient(90deg,#00c9ff,#92fe9d);
-    color:#000;
-    font-weight:600;
-    font-size:16px;
-    padding:12px 24px;
-    border-radius:8px;
-    text-decoration:none;
-    box-shadow:0 4px 14px rgba(0,0,0,0.15);
-    transition:all 0.3s ease;
-  " onmouseover="this.style.transform='scale(1.05)'" onmouseout="this.style.transform='scale(1)'"><strong>👉 点击注册 V2Free（每天可领取免费流量）</strong></a>
-</div>
-
-### ✅ 为什么选择 V2Free？
-
-- **使用稳定**：作者亲测使用已超 2 年，稳定性良好
-- **免费套餐+付费升级**：初期免费使用即可满足需求，后期可选择便宜的付费方案
-- **支持多平台导入**：兼容 Clash、V2rayN 等主流工具，一键导入更方便
-- **每天自动赠送流量**：日常使用无压力
-- **解锁常用网站**：可正常访问 ChatGPT、YouTube、GitHub、VPN 官网等国外资源
-
-> ⚠️ 温馨提示：虽然 V2Free 的性能无法媲美顶级付费机场,晚高峰跟其他机场有差距，但作为**临时应急通道**，它已经非常实用。
-
----
 
 ## 免责声明与结语
 本文所有数据基于公开测速、实际体验与用户反馈，仅作学习交流，不构成任何法律或投资建议。在任何情况下，作者不对因使用本仓库信息而导致的直接或间接损失承担责任。请各位务必遵守当地法律法规，合理合规使用科学上网服务。  
