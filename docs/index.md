@@ -165,7 +165,7 @@ description: 实测推荐2025年最稳定科学上网机场，评测 Clash/V2Ray
     box-shadow:0 4px 12px rgba(0,0,0,0.15);
     transition:all 0.3s ease;
   " onmouseover="this.style.transform='scale(1.03)'" onmouseout="this.style.transform='scale(1)'">
-    🚀 点击前往 WgetCloud 官网｜限时 85 折优惠
+    🚀 点击前往 WgetCloud 官网｜新用户限时 85 折优惠
   </a>
 </div>
 
@@ -195,6 +195,8 @@ description: 实测推荐2025年最稳定科学上网机场，评测 Clash/V2Ray
   </a>
 </div>
 
+🎁 专属 8 折优惠码：888
+
 
 #### 🔹 <a href="https://boostnet1.com/register?code=kKMFirlm" target="_blank" style="color:#1a73e8;font-weight:bold;text-decoration:underline;">BoostNet</a>
 
@@ -218,6 +220,7 @@ description: 实测推荐2025年最稳定科学上网机场，评测 Clash/V2Ray
   </a>
 </div>
 
+🎁 专属 8 折优惠码：boost
 
 ---
 
@@ -243,6 +246,7 @@ description: 实测推荐2025年最稳定科学上网机场，评测 Clash/V2Ray
   </a>
 </div>
 
+🎁 专属 95 折优惠码：beibei.cloud
 
 ---
 
