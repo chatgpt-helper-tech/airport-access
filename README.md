@@ -854,8 +854,10 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 
 > 科学上网，先科学，后上网；愿你我都能自由、安全、快速地拥抱世界知识。
 
-> 📘 **完整版测速图 + 推荐榜请看官网：**  
-👉 [gptvpnhelper.com/airport-access](https://gptvpnhelper.com/airport-access)
+---
+
+> 📌 本页为markdown简版导航，如需在体验更好的阅读效果,请访问官网GithubPages页面：  
+> 👉 [https://gptvpnhelper.com/airport-access](https://gptvpnhelper.com/airport-access)
 
 ---
 
