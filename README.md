@@ -108,22 +108,7 @@
 
 📌 **延伸推荐**  
 如需了解更多国际大厂 VPN 的实测体验、详细评测与使用教程（均为大陆可用）：
-<div align="left" style="margin-top:10px; margin-bottom:20px;">
-  <a href="https://gptvpnhelper.com/network-access/" target="_blank" style="
-    display:inline-block;
-    background:linear-gradient(90deg,#4facfe,#00f2fe);
-    color:#fff;
-    font-weight:600;
-    font-size:16px;
-    padding:12px 24px;
-    border-radius:8px;
-    text-decoration:none;
-    box-shadow:0 4px 14px rgba(0,0,0,0.2);
-    transition:all 0.3s ease;
-  " onmouseover="this.style.transform='scale(1.05)'" onmouseout="this.style.transform='scale(1)'">
-    <strong>👉 点击查看 2025 高质量 VPN 推荐与使用指南</strong>
-  </a>
-</div>
+[👉点击跳转GitHub仓库 VPN 使用教程与推荐](https://github.com/chatgpt-helper-tech/network-access)
 
 
 
