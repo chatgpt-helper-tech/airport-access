@@ -1,8 +1,8 @@
-name: 📰 Auto Update News Feed
+name: 📰 Auto Update News Feed (Submodule)
 
 on:
   schedule:
-    - cron: '*/20 * * * *'  # 每 20 分钟执行一次
+    - cron: '*/20 * * * *'  # Every 20 minutes
   workflow_dispatch:
 
 jobs:
@@ -12,27 +12,29 @@ jobs:
       contents: write
 
     steps:
-      - name: Checkout Repository
+      - name: ✅ Checkout Repository (with Submodules)
         uses: actions/checkout@v3
+        with:
+          submodules: true  # Initialize and pull submodules
 
-      - name: Setup Python
+      - name: 🔧 Set up Python
         uses: actions/setup-python@v4
         with:
           python-version: '3.11'
 
-      - name: Install feedparser
+      - name: ⭐ Install feedparser
         run: pip install feedparser
 
-      - name: Run news fetch script
-        run: python fetch_news.py
+      - name: 🔹 Run News Fetch Script
+        run: python fetch_wrapper.py
 
-      - name: Commit changes
+      - name: 📂 Commit and Push Changes
         run: |
           git config user.name "github-actions[bot]"
           git config user.email "41898282+github-actions[bot]@users.noreply.github.com"
           git add latest-news.md
           if git diff --cached --quiet; then
-            echo "❗ No changes to commit."
+            echo "No changes to commit."
           else
             git commit -m "📰 auto: update news at $(date -u '+%Y-%m-%d %H:%M') UTC"
             git push
