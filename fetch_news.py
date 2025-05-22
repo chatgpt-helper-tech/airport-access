@@ -11,10 +11,11 @@ def run_fetch_news(output_file):
     now = datetime.now(zoneinfo.ZoneInfo("Asia/Shanghai")).strftime("%Y年%m月%d日 %H:%M:%S（北京时间）")
 
     md_lines = [
-        "# 📰 最新新闻速递（自动更新）",
-        f"\n⏰ 更新时间：**{now}**\n",
+        "# 📰 新闻自动更新",
+        f"**🕒 更新时间：{now}**  \n",
         "---"
     ]
+
 
     for name, url in sources.items():
         md_lines.append(f"\n## {name}\n")
