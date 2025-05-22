@@ -10,12 +10,14 @@ jobs:
     runs-on: ubuntu-latest
     permissions:
       contents: write
+      packages: read
 
     steps:
       - name: ✅ Checkout Repository (with Submodules)
         uses: actions/checkout@v3
         with:
-          submodules: true  # Initialize and pull submodules
+          submodules: recursive
+          token: ${{ secrets.GITHUB_TOKEN }}
 
       - name: 🔧 Set up Python
         uses: actions/setup-python@v4
