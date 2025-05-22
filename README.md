@@ -178,7 +178,7 @@ IEPL 提供低延迟、低抖动的稳定连接，特别适合高频率、大流
     box-shadow:0 4px 12px rgba(0,0,0,0.15);
     transition:all 0.3s ease;
   " onmouseover="this.style.transform='scale(1.03)'" onmouseout="this.style.transform='scale(1)'">
-    🚀 点击前往 WgetCloud 官网｜新用户限时 85 折优惠
+    🚀 点击前往 WgetCloud 官网｜新用户注册享 85 折优惠
   </a>
 </div>
 
