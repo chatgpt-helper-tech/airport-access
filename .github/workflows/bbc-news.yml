@@ -1,0 +1,42 @@
+name: 📰 Auto Update BBC News
+
+on:
+  schedule:
+    - cron: '*/30 * * * *'  # 每 30 分钟执行
+  workflow_dispatch:
+
+jobs:
+  update-news:
+    runs-on: ubuntu-latest
+    permissions:
+      contents: write
+
+    steps:
+      - name: Checkout Repo
+        uses: actions/checkout@v3
+
+      - name: Set up Python
+        uses: actions/setup-python@v4
+        with:
+          python-version: '3.11'
+
+      - name: Install dependencies
+        run: pip install feedparser
+
+      - name: Run news fetch script
+        run: python fetch_news.py
+
+      - name: Commit changes
+        run: |
+          git config user.name "github-actions[bot]"
+          git config user.email "41898282+github-actions[bot]@users.noreply.github.com"
+
+          git add latest-news.md
+
+          if git diff --cached --quiet; then
+            echo "❗ No changes detected. Skipping commit."
+          else
+            git commit -m "📰 auto: update BBC News"
+            git push
+          fi
+
