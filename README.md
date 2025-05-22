@@ -883,5 +883,11 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 
 ---
 
+## 🏆 GitHub 成就墙
+
+[![Trophy](https://github-profile-trophy.vercel.app/?username=chatgpt-helper-tech&theme=gruvbox&row=1&column=7&no-bg=true)](https://github.com/ryo-ma/github-profile-trophy)
+
+---
+
 📬 本项目由 [chatgpt-helper-tech](https://github.com/chatgpt-helper-tech) 维护。  
 欢迎 Star 项目，转发给有需要的朋友 🙌
