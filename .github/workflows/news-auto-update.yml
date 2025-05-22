@@ -34,5 +34,6 @@ jobs:
           if git diff --cached --quiet; then
             echo "❗ No changes to commit."
           else
-            git commit -m "📰 auto: update BBC + Google News"
+            git commit -m '📰 auto: update BBC + Google News'
             git push
+          fi
