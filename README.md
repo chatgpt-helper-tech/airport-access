@@ -1,5 +1,5 @@
 # ✈️ 2025 机场推荐榜单｜Clash / V2Ray / Trojan 实测教程｜免费机场推荐｜科学上网指南
-
+![logo](./assets/logo.webp)
 本项目由 **ChatGPT 中文助手导航站** 出品，专为中文用户整理 2025 年最全、最实用的**科学上网 & 机场推荐指南**。  
 我们亲自测评了多家优质机场服务商，全面支持 Clash、V2Ray、Trojan 协议，适配 Windows、macOS、iOS、Android 多平台。
 
