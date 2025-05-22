@@ -887,7 +887,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 查看最新 BBC & Google News 国际头条，了解全球动态，获取墙外第一手热点资讯。  
 👉 [点击查看最新 BBC + Google News 头条](https://github.com/chatgpt-helper-tech/airport-access/blob/main/latest-news.md)
 
-> 所有新闻内容来自 BBC 官方 RSS 和 Google News，每 20 分钟自动同步一次，保持最新。
+> 所有新闻内容来自 BBC 官方 RSS 和 Google News，每 20 分钟自动同步一次，保持 最新。
 ---
 
 ## 🏆 GitHub 成就墙
