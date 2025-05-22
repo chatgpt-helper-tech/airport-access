@@ -4,8 +4,8 @@ import zoneinfo  # Python 3.9+
 
 def run_fetch_news(output_file="latest-news.md"):
     sources = {
-        "🌍 BBC News（英文）": "https://feeds.bbci.co.uk/news/rss.xml",
-        "📰 Google News（英文）": "https://news.google.com/rss?hl=en-US&gl=US&ceid=US:en"
+        "🌍 BBC News": "https://feeds.bbci.co.uk/news/rss.xml",
+        "📰 Google News": "https://news.google.com/rss?hl=en-US&gl=US&ceid=US:en"
     }
 
     now = datetime.now(zoneinfo.ZoneInfo("Asia/Shanghai")).strftime("%Y年%m月%d日 %H:%M:%S（北京时间）")
