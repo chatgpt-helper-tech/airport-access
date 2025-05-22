@@ -1,4 +1,0 @@
-[submodule "news-fetch-core"]
-  path = news-fetch-core
-  url = git@github.com:chatgpt-helper-tech/news-fetch-core.git
-
