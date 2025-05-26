@@ -28,8 +28,8 @@ jobs:
 
       - name: 📂 Commit & Push Changes
         run: |
-          git config --global user.name "github-actions[bot]"
-          git config --global user.email "41898282+github-actions[bot]@users.noreply.github.com"
+          git config --global user.name "bossvpn"
+          git config --global user.email "206999043+chatgpt-helper-tech@users.noreply.github.com"
 
           git add latest-news.md
           if git diff --cached --quiet; then
