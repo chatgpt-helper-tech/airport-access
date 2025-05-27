@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年05月27日 10:29:46（北京时间）**
+🕒 更新时间：**2025年05月27日 10:38:17（北京时间）**
 
 ---
 
@@ -26,8 +26,8 @@
 | Trump calls Putin 'absolutely crazy' following Russia's latest barrage on Ukraine - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9PNzlKb3NxMUxBdjVhSE9jYWg5bkdsSHZyNHkxOEs2UEpkbVlNQkN6OVhvM3FrU3d3amZmc0djaE5sLTRRLWxrOVBPSWFRWDRrM1B4Zzd3RUs2d0JHUTk5bFg5azY5VGJTa0Z5OHFhWGM4Y1lCNnBtRUZSZmFwUQ?oc=5) |
 | Trump Wants $3 Billion in Harvard Grants Redirected to Trade Schools - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE16dGxBZjJEWHZGd3FhX0tIWjYyQ2NRUlFSWW93N2RkWWhSdWNFN2hHb29hMWNKaDdsR2Q5MHdTSHRyX2ZBT0w1YXNSMnM4djgwZWp0cDdJU0FldmQ3aVdCR3BKdHdaUVRjWFhTZE9wZWNvYWZKYnFGcEtR?oc=5) |
 | Emmanuel Macron says video of wife pushing him shows them ‘joking around’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxNbjI1eUJ2STNxWjhnaTJaYkowcHVOeUdMSVhGRzVtdEhhT0hxTDFWODlvYkJfUjRxV3VIUDl2c0Nkamo1MFJxZnp1OUREMGdGUi12ckY4VmZncWJTZEVUajF4cDJ5RXRGV0VHNlhMc0FWUmpfRjF0MHJVWG13WFVLajVtazVmQnRnUjhmeld4eHpaUndVSXJjcXUtWWV1QzcyVG43LTRJWXQ2eTk3YXpvWmFfWGdjS1V3TFBMTFhEM1ZZck5wS0p6bWYxUQ?oc=5) |
-| Family of Derrick Groves hope he will turn himself in; he and one other remain on loose - WDSU | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQVGpySWU0SndXYzhNMk1PamJWZVU2MmtOeFN4M0FUUy1KOE5SNWMxSUFsVlNKSFNiOHl6em90MDdjWS1nQlpzdzlJcjl3QXVMVDBlR2x6RGtSLVZlUVhFX3p5TTJuekljY3pEZ1JpN1ZhampPcDNrVlFpcTRrOVo2RHBJclJndkJZTVcyRGVNWG9Sak9pQmxYQWR6UGhRQnFTV2QwSlNJTFJnQkdKa2luSjk5dEpIU0pIQVAxRGNJbkFZUQ?oc=5) |
 | Deadly strikes hit Gaza as new aid group says it has begun distributing food - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNMXdTNldqal9YN21HeWw4eU1vX18tZ0duYkJIUGJCbU91aU4xd3ViS0xzbDZ2Ni1LbnFTWGVPX3JHQUh6ZVY5U0E5LUE5OFAwTm1nalk4aG8wcHJfSmFWYTBfZEVvbWJGZWlzSWJXby01NE85UWZiZ2JJall4WFQ5UDNDLVNINnhKOE5ieEQxZlRGVlhGb2c?oc=5) |
+| Family of Derrick Groves hope he will turn himself in; he and one other remain on loose - WDSU | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQVGpySWU0SndXYzhNMk1PamJWZVU2MmtOeFN4M0FUUy1KOE5SNWMxSUFsVlNKSFNiOHl6em90MDdjWS1nQlpzdzlJcjl3QXVMVDBlR2x6RGtSLVZlUVhFX3p5TTJuekljY3pEZ1JpN1ZhampPcDNrVlFpcTRrOVo2RHBJclJndkJZTVcyRGVNWG9Sak9pQmxYQWR6UGhRQnFTV2QwSlNJTFJnQkdKa2luSjk5dEpIU0pIQVAxRGNJbkFZUQ?oc=5) |
 | President Trump Honors America’s Heroes on Memorial Day - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNNDFmNEpWVE9lNFhNYm9qSjRZdlp5SmlsQ0lDZ2JpMFNvM3RiZC11azZTM1p0aTluaWpwQ25Cd2RIN20xZDk5cnJrTHhmUEVmVkJCM0hCY2N5MnRRQU10TmtJUmZyalV5WmVuQnNxT3djTUttMzhGTlQ0djdrWEFISE45YTc2OFFOeTNSZlNqeUozMmh0NjgzN2JoZ1IzcFVo?oc=5) |
 | Charles B. Rangel, Longtime Harlem Congressman, Dies at 94 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE1LVkY5OVRLMERoLUZHTzlXVGVtcElxRW5Ma0k3OHdpOV9Xb2pLdW9PMkdEeVNCemdBc0pGMzVCR00yaWRORDkwcUNMUUtZVnM4UEdibTRNSmVVVlNGdjBNQ3IxSlBwZDZESmJxWnNiQmlMTUxBcFhJ?oc=5) |
 | Top US, EU trade chiefs ‘in constant contact’ after Trump tariff reprieve - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPV192Tm1LLWVsU3YzN1NNemJ4azBneThZcjZCTHdZUlBEV0NPQmtsSmxXN1l1LVQzWnUyeW03SEV6SGR1M2J6d3BmeWlkOXFacURMdTk3dDJwV0ZiLXI5MXFzelZZR1JmTy1ZaDI1dllMRENsRlA4b3Jfa3A3V0Zabk1OcFFBb1k0RFFfOA?oc=5) |
