@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年05月27日 12:45:54（北京时间）**
+🕒 更新时间：**2025年05月27日 13:14:27（北京时间）**
 
 ---
 
@@ -12,12 +12,12 @@
 | Moment car drives into crowd at Liverpool trophy parade | [阅读全文](https://www.bbc.com/news/videos/c4grq15y6yeo) |
 | Liverpool FC parade: What we know so far | [阅读全文](https://www.bbc.com/news/articles/ce8209lzzp4o) |
 | Greek coastguards charged over 2023 migrant shipwreck | [阅读全文](https://www.bbc.com/news/articles/cp8yjlzd3pvo) |
+| Abortion arrest: Recording reveals police concern | [阅读全文](https://www.bbc.com/news/articles/cp852g0l6j6o) |
 | Apprenticeship shake-up to shift focus to under-21s | [阅读全文](https://www.bbc.com/news/articles/c9vgd8zmpe3o) |
 | King prepares to give key speech backing Canada | [阅读全文](https://www.bbc.com/news/articles/c9wgd98yr89o) |
 | Churchill photo thief sentenced to two years in jail | [阅读全文](https://www.bbc.com/news/articles/cvgdk4j1pg5o) |
 | Kremlin calls Trump 'emotional' after US president says Putin is 'crazy' | [阅读全文](https://www.bbc.com/news/articles/c4g2wz74jdzo) |
 | Moment truck explodes while driving through Chicago suburb | [阅读全文](https://www.bbc.com/news/videos/c4grjnd1dveo) |
-| Iran's Palme d'Or-winning director cheered as he arrives home | [阅读全文](https://www.bbc.com/news/articles/cdd2r4y6nv8o) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | Charles Rangel, powerful voice for Harlem in Congress, dies at 94 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPWFR2ZDFFeVZzMU9mNGk1aUNGZU8wRkFZNlhJdTRRME1jNV9CWDNqbXlEVDFqaDMzdm92ZE1jNFh0QlVBNDBVek9ad1Y3cUliQ3NFMGl3R01FUEhVT0Q2bWxKYWVDMHBfdXRFaHBob25ac3VCaEZGMnFQVTlqVkVremdCSXFrRWhkM2kzSUtXTWxaZkk?oc=5) |
 | Republican Vote Against E.V. Mandate Felt Like an Attack on California, Democrats Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQZTVMbUtfMVIwVE5OUXF6LS1ieW9TWEtsYm5mUlJlTzlwdThiYTctaEd4djNaV3pQcFZrT1YwYmtJN1lOZkd2TnAxcFFocjZUdGtENnBqTjkxUmk5TEJ0SUh6a0U2NnRSallTQWF3bW1Gak9ZZV9keDFBT0F4M2hqUTg1cEJVWms?oc=5) |
 | Ex-police chief in prison for murder escapes using disguise, authorities say - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQY0szU2w1Uk9mMmJqNlp4MmRFcU9sampsdWFBbktvY2JTYjVkSTRVeGxOSVkyVXo2WkhXT0ZEbkY2Unc5bmNhOUVrbkVGcWdiM1VTeld3QWk4UGM0aTNhMlRybUFnZWpRVDFoUDVqTnNDLWNlRkI3TktZT09fWURqNzFHRFIzTENfcDRjX0RpVVBENUxScktkQmNFcw?oc=5) |
-| Police say driver who plowed into Liverpool soccer fans acted alone, not believed to be terrorism - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQM1N2SUJJZnF6cnExcS1YRTdBNVBtVFlCb3BQTHpHejNRTjYxeEJSNXFOcFIyemQwelpHdmxiUjFSUU5BZXF2NDdEYU43SzhjUGIyRlFUeVV1TGprUGd4OWJxZlhBTV8yeW1LeUZsWWs4blRmZzVKZ2lZZDBDQ0dqS0E3NFpWRDZVZFd2bEZJTHNQWWl1N0JOZlFITzNRdTdaUjhxMnM1VU5QRnFfQmZhbHR3?oc=5) |
+| Car ploughs into football fans at Liverpool parade, 27 in hospital - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOVm40OEhUa0c5RU5xVWg0S05ZMjFaY0x5bVVYWTVSVzJnRzkxMDhDZndhYmJXbk1MTG9IektYbzk1Rlc2LXJmYUZ0dUVyN3Z4Z0pxRldZMWtCb1kyT2tMN0JYQ2pGQ25fVEpDVDlvdzd5T2k2US02cl9qWHN3LXN4MnI1am82NngyM3V4WGIxVDg0LUdFVlNLVFVFV0E2WmVSTmUzdVJ5X0x6MUxrdzg40gG0AUFVX3lxTFBncUlKbkVuVDRISHI2SGZnYmdET2Y3Z1c2TVp3dlRFRUNLbW96UVc0d2ttQVhaWjZWaGFLa19fLUx0UHVBVnZnQXhnZ3ZmbUNFb0hUZlk5c2JFUGk1MmxaUzBVZjF0dU5lclp0REZSZV8wMGFVZ0VDdkxhem9hZW5DdUpaSVR2WjF4dUlrbk51aTJQbDVVRmJBZk5lcTRSanB4dUw0MFBzX2R5U1dTek15Vktxeg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
