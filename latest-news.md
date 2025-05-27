@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年05月28日 02:48:02（北京时间）**
+🕒 更新时间：**2025年05月28日 03:11:04（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump administration moves to cancel remaining federal funds to Harvard - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9ZTmkwcmx6VjNCaEtMbkFzeWFRNkVMeWpBZG01VXg3OXBJNEl5RlFSOUJyNEVqS191YzVrVHJLOUZKMG1jVjdwMkNiMkpvY3RyaElhX3duYl9tUl9NTWxHWFdRV1gzRXlTclZHN2t2djR4Q18wZlNsZExMOFY?oc=5) |
 | Trump says Putin is ‘playing with fire’ as Kremlin continues assault on Ukraine - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPcGpPc1c3d3UyenktMDJvSGVXMURVc3pxbGYwVVBuZTE1UGtzVmZjQm5hSGIzYUg5VU9RRWtIajdHTGVxYV9INnZZeUU0VWQ1emc2bWJHM001Y1BWamNDNVBlZGRDVnd3akUwc3B4ZEFPLVd4emVDMVdHQm9KU1V2MHNR?oc=5) |
-| King Charles hails ‘strong and free’ Canada in speech to open parliament - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPQ3RVOUQwcVk5MDhwX2VKMVY4cXJFNjc3R3RsS1hjZnZIaDVlSFFYbUcxZVBsOHZoZ1NaYWhjVGVxTnlLazRLVnlISzRiT2xZUUlPX0ZBb19YZFpFaEcxaFFNNm93aGh5c09sNGRyMWQ5cUdid1JvaEhRTDU3MW5aamFjUllSV2JFcTU1cl9JSlZhZk0?oc=5) |
+| What to know about King Charles' Canada speech and how it relates to Trump - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE93dkJxMFVEdkNRMUM1N29icm9zak1kMGZrYmRMZGpVYzA5LTY5dHhCZ0pEandEd3c1MUNVRWRBbmRoRG95R1RmTFlaNXVoZjVuUFoxN3kxd2ItMmEwUWg3al9MaEVFcGxScEtfOGZlaVRPcXVwTW81cDNR?oc=5) |
+| Trump Intends to Cancel All Federal Funds Directed at Harvard - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1hVXZaM2FndmFXOU9aNmNSeVZLNHZ2d2lvX0h0dE9Iem0yM1FmaGI4TzB6UVB0bE1zVmlKRWllLTF0NVp3OXJUNGNwekZ5ZFpWMW1PejdOT0xRZzhFZ0Y0VkM5NXkzNF9mdWF0d1pLUHlhVGFaVVlhNDFn?oc=5) |
 | US Supreme Court rejects case about student's 'There are only two genders' T-shirt - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxNTnJiaXNKWFZncEZxMmFzeXZvaVVQRmZmUFNUUVZ5b1p2MTNqcEJlcHhTZEMwN2pRWkEwV3d3ZUt1YnhEeXVoWkUxWjJpYzVYYmVGRzBBZ2NEdGZYT0doaklMdFI4V25xU2hTeWtJRFFKNjdJSUgyUnI3Y0hFNzU5REVldU9tMUNZWG9sWXlxcnRiMUY3TjlFaHB6RXh2cWNXeHozdVUtc2VsaHJEYWhhNFVUOEtVbmFPaDRIbkNUUXY5UQ?oc=5) |
-| Trump team pauses new student visa interviews as it weighs expanding social media vetting - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi4AFBVV95cUxOQ083bHhjV2RpTVBwUDBrMER0bTJ4OUhvNFpWQWxhZmR1U2twOFpxNjRoeFNZaXZZRGcwU0lfNjQzOE5xa2VOdzlFbGlscFpvZTVYOGlXZkNxNS1MWXF5NmpEOGV0LTFBWFRBNmVCMUNhZG5UMmRYcmZEb29TdHctZ0VKOGlWcFVGVmVibHl6ZW52M1pnbU85eU90UjA1VEtNeHdiMVRRbTZsX1JDZU9Cek9mRUVYemdBcmNGWnNMUkY0dnV5ZTFhYUdENkd3aFlEOWstckh3aWxEb0JCTTFOdA?oc=5) |
-| Germany threatens steps against Israel as tone shifts over Gaza - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNcHV1VFN2VDVmX2VRUGhibjhFcW00TEJ0STdHcFN2N0h0MnJvX0x1ME9RWHhXMW5JdWxWMHl6OTZzTE9EMDEtZXg2a05PUXlSeXNUNG9xbEJBU3V3bmxIWEVJWmZyUW1SU1lEckRrTG5nRkoyNy13bUZUdVhwVURObGlPR1BiaUtGeVVSaDhCVm4xVkFPNDVIRUJYR3B2NnRGVXozT2FKaFo2UVgzdUphb0lUdHozdw?oc=5) |
+| Trump administration orders US embassies to stop student visa interviews - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPUGNDZHdEd3Y5cnlrWllvc1NRRnpES3NaanhLb0cxY0h5dFBmTEdXV2tQb2VzYXNPcUxxelVfOGJYTmtFVVVBckZEM2ZpVVYwWGtHYV84LVpoTFhKdnR6aVBwNS1Zb0FZVUFXVHFWWEQ2dkQ3WS1uZG9kdXZ3Q3JmRjM4YTBTYU0?oc=5) |
+| NPR sues Trump administration over executive order to cut federal funding to public media - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQRXVDUnZWTUdXVFVnZkwxQWVzWVVoT0wwMVg3QWthRHgxbFZsRkRaUzRQR291S0diTFhnYVlUQ0FLQWdaX1pVMzJrNnd1WXlGT3JmWHg3X2xCYVZYa2Z0UWZoa3BSR1dNN1RaS2xOd1dIWEJYV21JVkl1Q2JDSE1DUFdQeEVTTkFxMU9nTmZuWWh5MjlB?oc=5) |
 | Congestion pricing stays alive in New York City - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPVlpDQXkxNVBPLThfX3pURjhWSmlISUdwY1FfelZCZWRIblVtYlJicVBqRS1XMDJkdzNoQjRYVy1mN2NPaVBuVnU4X2xzZjIwV0NULXExYVRzaVkxX1F6ajJVZnVLU3ZmS2tFNG9PSlhZbzk2WWhYMUo1UFF1cHdmREx6SmNMX3JYOTVmVC1NYVFlNXNUdjh1NnRmYw?oc=5) |
-| NPR sues Trump over executive order targeting funding - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPYVR0Ui1pNmlzZDNXb19pMkJYY3dfLWxadGJvSEVzdVdqMk9pa0M1MFA1b25vMWpjVm9fd2Jad0tjX1dRbUFKU0ZXM1JhNG1KN0c2RDIzbXJ2QmNjOGRMcVdXeG9CdnQySnRiWmdLZEplLXFINzNXUHgwTThvM1NSbmV4Y01PdXJoQXlQUFJLeHJxRHJFWE40SXgwcnZ3SkRNVVVn?oc=5) |
 | Ed Martin personally reviewed pardon application for Jan. 6 ringleader Stewart Rhodes - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPeHlvdWFQaEVramJxWGRENEtTOWdxLWdVTjBzY05BNGx3azJxSEdBLVBwSWxjaWU4eUFjaVM3cFZsSnlTNUxja195Zk80S090VnQ5bU9ITmtHVURqcV9fSzNLeXJOZ29jUlpGaXZaYTNYT2R5ZzRRc0hTcGhLRTQwamNraGlBU1BmcTU1YVplbkw?oc=5) |
-| Black bear found sitting on stove inside home after crashing through ceiling - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOaUhUVE9mYnI0Ym9rSTFzNkZsMlJWXzNJVm9TYmdNTXQxYU1fTmZqV0FEaDRvT19VczE0c0tpcFMyd1NReHVkVE1kay02WmZLdGpYWGEzQVRuMGVKU0NIUUVwMWFuVXU3Q0Z0ODNLSGZzRjQ4RC13dmx2ZFJmS1dKbmhuTGhtSC0xNEswcWVOazZpY3lzOG13WtIBngFBVV95cUxORlAtbk8xME1KMWJ4bnRpRmVZZEVGNjJFbUttWUlWWV8tWnhxWGRpVklYckdWQnoyakdjMEcwbGNvdVkwNW5xd2IwTmlaVjJVUkNhZlBKM3ljNGlJa0xscGN1TVg0dXl5VlNNMUc3czBQRGdmclBraTJxaDJTRlVUQnVTSlRBU0ltZTBfeUxIdi1CYmZiLW1fOExKOGVTUQ?oc=5) |
+| Another Suspect Is Arrested in Bitcoin Kidnapping and Torture Case - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNR25HcDJUbW9ibWh5WnJNNlRNTWZ5WWNxRnJBOUY0dmExamRXMUdYemhuUUZ0N0JCWUE4NU1XRUhpcF8yQ1VRR3B3YW5aYXBoYWFlXzdKLWpCbjFnSDV0bGhHclMwUnZieHB3LWN1dWhaZVg4M0Q0R20ycGpzRWtNNWFYZjIyUQ?oc=5) |
+| What to Know About the Liverpool FC Parade Car Crash - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE0zQ01XLUU2SldpWmVGV2FCTGdsbEVlcXh2cUJ1cllfME5DX3BJYS1raGZnSGJVOTNDUFY5cWxobDZRS1JGbGFyck41RXhQTFpCYUNtVzVwRUktU1hGaWpsV0Z1YTZfMnFEclVraUxMQXRrcGZi?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
