@@ -880,6 +880,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 - [📝 ChatGPT 注册教程](https://gptvpnhelper.com/chatgpt-register-guide/)
 - [💳 ChatGPT Plus 升级指南](https://gptvpnhelper.com/chatgpt-plus-guide/)
 - [📘 ChatGPT 中文教程主站](https://gptvpnhelper.com)
+- [📘 ChatGPT最佳实践以及使用技巧](https://gptvpnhelper.com/guide/)
 
 ---
 
