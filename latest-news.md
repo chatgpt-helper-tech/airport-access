@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年05月27日 02:31:36（北京时间）**
+🕒 更新时间：**2025年05月27日 10:29:46（北京时间）**
 
 ---
 
@@ -8,31 +8,31 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| 'It missed us by inches': Witnesses describe car driving into crowd at Liverpool FC parade | [阅读全文](https://www.bbc.com/news/articles/cy0jvepd1p2o) |
+| Moment car drives into crowd at Liverpool trophy parade | [阅读全文](https://www.bbc.com/news/videos/c4grq15y6yeo) |
+| Liverpool FC parade: What we know so far | [阅读全文](https://www.bbc.com/news/articles/ce8209lzzp4o) |
 | Kremlin calls Trump 'emotional' after US president says Putin is 'crazy' | [阅读全文](https://www.bbc.com/news/articles/c4g2wz74jdzo) |
+| Apprenticeship shake-up to shift focus to under-21s | [阅读全文](https://www.bbc.com/news/articles/c9vgd8zmpe3o) |
 | Israeli strike kills dozens sheltering in Gaza school, officials say | [阅读全文](https://www.bbc.com/news/articles/cz9yjj54v3xo) |
-| Watch: Push in the face by wife was joke not domestic dispute, says Macron | [阅读全文](https://www.bbc.com/news/videos/c201e8g0yg3o) |
-| King and Queen arrive in Canada for historic visit | [阅读全文](https://www.bbc.com/news/articles/cgkdnmm8k2no) |
-| Rushdie 'pleased' with attacker's maximum sentence | [阅读全文](https://www.bbc.com/news/articles/c5y2kg77drzo) |
-| The people who think AI might become conscious | [阅读全文](https://www.bbc.com/news/articles/c0k3700zljjo) |
+| King prepares to give key speech backing Canada | [阅读全文](https://www.bbc.com/news/articles/c9wgd98yr89o) |
+| Greek coastguards charged over 2023 migrant shipwreck | [阅读全文](https://www.bbc.com/news/articles/cp8yjlzd3pvo) |
+| Churchill photo thief sentenced to two years in jail | [阅读全文](https://www.bbc.com/news/articles/cvgdk4j1pg5o) |
 | YouTuber 'risks his life' for cheese-rolling win | [阅读全文](https://www.bbc.com/news/articles/czj4vw0m3lzo) |
-| Fake discounts on Shein 'breach law', EU says | [阅读全文](https://www.bbc.com/news/articles/c62vq1mnndno) |
-| Sick Raducanu 'really proud' of battling Paris win | [阅读全文](https://www.bbc.com/sport/tennis/articles/c4g2vxyx2edo) |
-| Russia denies involvement in fires at homes linked to Starmer | [阅读全文](https://www.bbc.com/news/articles/c79evj9ed9lo) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump Rebukes Putin, Calling Escalation of Attacks ‘Absolutely Crazy’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxObXZXak5KNnpxODJES0VJWS1xY3RsMVNZSTlKUFN0ZmZfYkFOdXFEMC12MDQ4UjJnVFZOYXJLVXRXb2hfVVFSOGFqYmZ3S0Nyd0JubzJYaUdpRXNIR0RmSnByblhYY2U1RmViQjlUa3B4ekJoaDh0RklwdUNpMi1haHhveXZiZw?oc=5) |
-| Trump visits Arlington National Cemetery after lashing out at political opponents in Memorial Day post - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQcnpWWTFiSmtTSUhwRFVCUGpjbXhiUGl0ZVFwTUNNdmViTk9Gd0NJSDJDSG9pekJKSzJ0NUJ4RlZfcy1jLWhfWVlHNUV6N1dSWlg1R2taV2xKOU1MOU50Rmt2WVZfeXdwQjdJUTlibGxDQW5NQ2x2VXA0OWFRcC1DV2N1U3rSAYoBQVVfeXFMTlRmdzYwazFBMmVKNmtJdS1GZjZaMEZSWkVIYk5VOWpWSml0Y3d2aEJoVkRQbmRCWlM1ajJOTUFtRVBLM1Q1X1R3U2E2X0hkdWROQTZ3aDBrRWE4S29YN1daRUtCTENZVmMzS1FPcXR1QzlKb2lHNzFPcjhUXzEtOGxZVU5yelJHNVdR?oc=5) |
-| Donald Trump lashes out at Harvard and says he could cut $3bn in funds - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBacDRmcUw4dFhOemRsaE5iQzNJdS13N3h1N2xPeGlLaUR5aU0xa0ZXWUhOQnhQNjBQOTdCN2NaOFVqaGNRY3JDN1RKMy1yM0lvNS1JNnE0SlVzU0tBWkI2YnhpV0hsNWRrTGRmWHhuVjI?oc=5) |
-| White House envoy says Hamas' response to ceasefire proposal "unacceptable" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTFA1ZkZndnUwR0ZSMFZiRkV2RW1pMDl4OTBlOWs0VEw0TXdiRDJrVU4xSTdlUm13NFBfdkhab1poTjdqX3NGZDhjeXE1NzFxZzBLYWcycjBROUJBTkVBTHNFM3I4eGZJS0lVUkdCbQ?oc=5) |
-| Ukraine says Russia launched its biggest drone attack yet, part of an escalating campaign - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNdE53aUxHRXIwZ21uSEI2TmFjYlhnMDZ4elhIblNaVFVtS0gtQlRMemxOVmJzWU9oXy1RMmtPS2tHOWJvV1lObi1vX2RhOXQ1OXBEcWsxUXo4blk5bDNHQjhhRWFsejNKU0hXSG5lMUtVelhEbnNyamh5Y3NjSV9BQkJPTGNvQk5xdm50Zk9DckNoODBYXzR3RjJR?oc=5) |
-| Germany's Merz Gives Ukraine the Green Light to Strike Deep Inside Russia - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxONUYxV2s4ZjRVd2wyT0ltNFlTaExhc1NBR2NHNVhua016QUVLS3RUUTFKQXZ0bnAyWmpvQ01MLXhveVZSRmVYM05RVFdCanlQd2RLMmEtTzBmQk1uMWhIeDdWUFFja0phWG1LajRGdHBJYkFjbDZaV1dTS3Z0NDhQYnNSTE9WdGhjdzdfQW1EUjJMU20ycDJVZk9hc3IxWE14VTZtalhoVHhYTm1NLW1oWXhSYUM?oc=5) |
-| Former New York Rep. Charles Rangel, who spent 4 decades in Congress, dies at 94 - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxONHNEaGR1SmE5ek5MV09uOTV6TTRzMWNMcUhnQ3VPMmlKLVpVR2dwemJEeGJYdjIzUG40SzZHdWZuSmxucERWTDFnQ2dXUnhIdXRmY0o0bF9qYTI2eUgxQW9HQk9IelRQYkpxYW5jQkdWMHhZcUJsdkZyRTFXckRkTmNsYUFhNFVORy1zaDVsZUttZmg0MDhVSdIBngFBVV95cUxPRzRkd1BxWFdxQ2NCb3VORnFCN0hjTXB3bGhmek9ZYWVsQ1h3bXk0c2ZGb0FhZ1dEblZERThESk1GY0VZQVJMbl9QRzdkVTRueGlGRHpkOHRsQ3dyaWVzdkw1UFJDeU1HWjY0SXZZcjdQSm1JOFgwQ2NOWFNhbmFaUWh3OU5KWWJYNU1jT2FGYnZQanBZMVFKQm1vdWpVdw?oc=5) |
-| How has Minneapolis changed since the murder of George Floyd 5 years ago? - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQTUZMSlQyaGJHemJNdUdZbERmRnV3alQ1ZU43U1N1OXdhMUlRRFJWRndoNllaMmppLU5nOXJMNGxxM2drZ2FKc2dkUVQtYlFnS2FRQnByRVN5T2k5MGJ6Qmp1akJwOGVYSWV1Y0kyN0RHNXhLcUhWQlVMNXNfUTd0andUdW9fUzM2SjJzOTB3NG5GalZSU0FUTFdmR1hwNG9heUs5Tl9B?oc=5) |
-| Trump’s revenge spree on Harvard echoes well beyond education ｜ Jan-Werner Müller - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQZElpSkFmdlpVZkZBbGZseFRFVG9ZNmg3bFZHeUdBYVI5Xzg5d1BOeS1zSFZ3Qzhhb2hqN1k3VTdxSmpYUEdsRzQ3X1ZFZjBhTkFDekN2ZXdXdDQ4VkNneHd0NkQxSWFic1REaXBHM1BweGVieldBSlNPc1dBbVNPNnV2U2VtenNOVzNOMl8zYnV6MWhNVHE2UXhlNXN4OHVuUUVPaEhqRzBFYjZaTTNkSmhPYVg?oc=5) |
-| WWII bomber crash left 11 dead and ‘non-recoverable.’ 4 are finally coming home - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOYWFYMnZxU2RJTTN0dEhVQ1hGS2lLRERDUGM5cUY1dllPV3ZWdEg3TUhVVThlckdiR0tacFQxY18tLUhTRTBrUzc4ZUlpZHVHdWlKTlhsTGZhR1g2NkdsWERmdkRuRzhSa3NOVkRteXBGSFI1dldZMlZnNi1teUVaNFJKTjRSVlg4WnR2ZkVORFdXemE2ckNnVnhWbw?oc=5) |
+| Trump calls Putin 'absolutely crazy' following Russia's latest barrage on Ukraine - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9PNzlKb3NxMUxBdjVhSE9jYWg5bkdsSHZyNHkxOEs2UEpkbVlNQkN6OVhvM3FrU3d3amZmc0djaE5sLTRRLWxrOVBPSWFRWDRrM1B4Zzd3RUs2d0JHUTk5bFg5azY5VGJTa0Z5OHFhWGM4Y1lCNnBtRUZSZmFwUQ?oc=5) |
+| Trump Wants $3 Billion in Harvard Grants Redirected to Trade Schools - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE16dGxBZjJEWHZGd3FhX0tIWjYyQ2NRUlFSWW93N2RkWWhSdWNFN2hHb29hMWNKaDdsR2Q5MHdTSHRyX2ZBT0w1YXNSMnM4djgwZWp0cDdJU0FldmQ3aVdCR3BKdHdaUVRjWFhTZE9wZWNvYWZKYnFGcEtR?oc=5) |
+| Emmanuel Macron says video of wife pushing him shows them ‘joking around’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxNbjI1eUJ2STNxWjhnaTJaYkowcHVOeUdMSVhGRzVtdEhhT0hxTDFWODlvYkJfUjRxV3VIUDl2c0Nkamo1MFJxZnp1OUREMGdGUi12ckY4VmZncWJTZEVUajF4cDJ5RXRGV0VHNlhMc0FWUmpfRjF0MHJVWG13WFVLajVtazVmQnRnUjhmeld4eHpaUndVSXJjcXUtWWV1QzcyVG43LTRJWXQ2eTk3YXpvWmFfWGdjS1V3TFBMTFhEM1ZZck5wS0p6bWYxUQ?oc=5) |
+| Family of Derrick Groves hope he will turn himself in; he and one other remain on loose - WDSU | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQVGpySWU0SndXYzhNMk1PamJWZVU2MmtOeFN4M0FUUy1KOE5SNWMxSUFsVlNKSFNiOHl6em90MDdjWS1nQlpzdzlJcjl3QXVMVDBlR2x6RGtSLVZlUVhFX3p5TTJuekljY3pEZ1JpN1ZhampPcDNrVlFpcTRrOVo2RHBJclJndkJZTVcyRGVNWG9Sak9pQmxYQWR6UGhRQnFTV2QwSlNJTFJnQkdKa2luSjk5dEpIU0pIQVAxRGNJbkFZUQ?oc=5) |
+| Deadly strikes hit Gaza as new aid group says it has begun distributing food - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNMXdTNldqal9YN21HeWw4eU1vX18tZ0duYkJIUGJCbU91aU4xd3ViS0xzbDZ2Ni1LbnFTWGVPX3JHQUh6ZVY5U0E5LUE5OFAwTm1nalk4aG8wcHJfSmFWYTBfZEVvbWJGZWlzSWJXby01NE85UWZiZ2JJall4WFQ5UDNDLVNINnhKOE5ieEQxZlRGVlhGb2c?oc=5) |
+| President Trump Honors America’s Heroes on Memorial Day - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNNDFmNEpWVE9lNFhNYm9qSjRZdlp5SmlsQ0lDZ2JpMFNvM3RiZC11azZTM1p0aTluaWpwQ25Cd2RIN20xZDk5cnJrTHhmUEVmVkJCM0hCY2N5MnRRQU10TmtJUmZyalV5WmVuQnNxT3djTUttMzhGTlQ0djdrWEFISE45YTc2OFFOeTNSZlNqeUozMmh0NjgzN2JoZ1IzcFVo?oc=5) |
+| Charles B. Rangel, Longtime Harlem Congressman, Dies at 94 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE1LVkY5OVRLMERoLUZHTzlXVGVtcElxRW5Ma0k3OHdpOV9Xb2pLdW9PMkdEeVNCemdBc0pGMzVCR00yaWRORDkwcUNMUUtZVnM4UEdibTRNSmVVVlNGdjBNQ3IxSlBwZDZESmJxWnNiQmlMTUxBcFhJ?oc=5) |
+| Top US, EU trade chiefs ‘in constant contact’ after Trump tariff reprieve - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPV192Tm1LLWVsU3YzN1NNemJ4azBneThZcjZCTHdZUlBEV0NPQmtsSmxXN1l1LVQzWnUyeW03SEV6SGR1M2J6d3BmeWlkOXFacURMdTk3dDJwV0ZiLXI5MXFzelZZR1JmTy1ZaDI1dllMRENsRlA4b3Jfa3A3V0Zabk1OcFFBb1k0RFFfOA?oc=5) |
+| Darnella Frazier, who recorded George Floyd’s murder by police, speaks out on fifth anniversary - Star Tribune | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxNYTJ1dVVkWkh2OG9leGcybHI1dmY0WjBGZXJFUFY5aDAxazRoYU5EalhMRDFZR2FKdmptYWRTdlF3UDZxLTlNUUZQRmdMWG05RGF0NGFXRnhIZGxnM0hwekR2LVN6dnVKM1JOWVhrakt5X0RvdFRKNjdqaXBmMHpHUUFodktDNlpielpFYkIxTE1HY292RDRlSTJJMVlTZjNNZDU3Zk1Ma1YwUVZ5aExoMExjS2lrdjZBQk1Kd3ZjajBDRkxQQnc?oc=5) |
+| Man shot and killed by Florida sheriff's deputies in confrontation after apparent alligator attack - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQQWNTQVVTVzNfQXlHa3hEUFl3RE83bGlpaFZxTFA4dG1UYzdtd0Mxb21YM0s5Vmc0aUs3ZWpMYWMzV0swaWlkVC02TWtfSTQxbGItVEJvc05JRVB2SXFJTThzY2lvSHcyZjhtSi1tTVFWYUEzVFhDbkdGZVZ0czIzS2VGaGtOUXQxSXhr0gGQAUFVX3lxTE1WODJhSktfRTdQc1NyUklOYUhQOERmWktNaEJhMnR5bmFSbU1razhRbUF3T2NKd01wT3lRUnA2TzlaS0RUalpSUDdKN0VXa1k4LWpPR0pxT2xSblJwQnI1MTdSeTlrQUlKQ0Q0TFUtWHd6cXFrWTNLSXNOaVNrMGFHa1Fld0wxdHgxaXUyRUxGUg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
