@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年05月28日 18:16:20（北京时间）**
+🕒 更新时间：**2025年05月28日 18:44:07（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Private memorial held for Israeli Embassy staffer killed in DC ambush - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOTUx5VkVzQVpYNzFNdkZtV2taWUxMSzBvTEtvOEc3WUUyMlNBTTBneVV4b2MwdWJjN0FsdkE0WS1fZ2kyWnd0WVNCNnVCNTdUQnNwSFdaZ1B5ZWdpT0p2T3p1S1R4dXlNU2RxSFRkVnpfUC1mU1M1bFhzNmVqZHFVNHR3d3l1WEVqMm1rMGRoSWdaSjB5YVEwRlozZVFXb2tOeURhQlhHc0JqMU8taGQ4b3NFUXNzc01GeWk4?oc=5) |
 | Ex-police chief sentenced for rape and murder escaped prison disguised as prison guard - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQRUhYWWR2MjZGQ2hNY2tpMjdyTE5IY3pSSHItQ2RBamFTdmMyS1I0Z0tiYTR4SS1DVmJaTWxSR0c4dFQxVmZuM0Z6NXNMZGVUVFZ6UVJPejZUSzZERHkzR3JVaktjbDNGdVVBc21WLWZkTWZFdFJ0LUVfNU9ueUYyTkhBUzV2S1otb1pOd0FyZnY3QnhW?oc=5) |
 | Capitol Police Chief Thomas Manger retires Friday, after rebuilding department in wake of Capitol riot - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNZFpkZkVXaTR1ekZ2Y1FsS1FwRlVnYXRrRTZlMU9JNjNlTWVtT3hlODFNMnRXOVZFZEx4RjZFSEF4WmktT2VDd3BVa19lZkt2S1ZlWW5sYS1RamlIVzBobzltbTdvd3hIWWpuYnptVkt3d3J1WExPbzZWNnFNZGhpbWV1enFBb1VNN25KRDdR0gGTAUFVX3lxTE42QlJtaGVwTy1idTdfNEYxcjFvTFo3VG43T0ZFbEZCUUI3OWpiM1BONXJBb2xMcnNWUmRZbDVzRkpvajBsTzlia1JKLU5RMi1rYlNBSnhXRlY2dUNxcnNPNjJ0RUs1OXVZdmpnamxFZzdYMVJWQ0FCUS1TanllRVpNWGtVeHJYeHlySTBRSDdyUEdlcw?oc=5) |
-| Trump’s Attacks Have Helped Heal a Deeply Divided Harvard - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNN2VuVVQxQnlXdzhRNHpOSjJYMFhfQklTTTduYW5iNjdwMkZRYUUwZ0wxN2tOYlF0TmJ6RThzRmI0V1hfOE4wRFc1LUJMX1VTbHp2ZjEtdWIwS25WazZKNV9KXzQ0dUd6cXZRY05OMUZJS3Rob24yX1ZQNHhhdW01V3pudUE?oc=5) |
+| Trump administration moves to cut $100 million in federal contracts for Harvard - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOYklMMFFQdjlic3czcVIwYjRUMTlOTklVcFlYc1NMTUxNTWY2TzJhOV9JYU9pUmY2a0ZPR29jRFp5VW5NRXNkSUlPQ3pacnhpS2tISGVZQ1pJY1VBQmQxdHUwdjVBNEx5MElOVXl1dnNrcU1ZOHNDYllnWG5BblpnVXg3VEZ0RjFHXzBQdEJqaXVrNUVDLXc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
