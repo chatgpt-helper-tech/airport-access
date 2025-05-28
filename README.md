@@ -1,4 +1,4 @@
-# 2025 机场推荐榜单，Clash / V2Ray / Trojan 实测教程，免费机场推荐，科学上网指南
+# 2025 机场推荐榜单，实测教程，免费梯子机场推荐，科学上网指南
 2025科学上网机场推荐和评测，对比Clash/V2Ray 节点速度、解锁能力与性价比，含免费梯子、全平台配置教程，助力翻墙顺利访问 YouTube、Netflix、ChatGPT 等服务。
 本项目由 **[ChatGPT 中文助手导航站](https://gptvpnhelper.com)** 出品，我们亲自测评了多家优质机场服务商，全面适配 Windows、macOS、iOS、Android 等多平台。
 
