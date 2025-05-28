@@ -27,7 +27,7 @@
 
 | 分类 | 推荐机场 | 优势亮点 | 月费 | 优惠链接 |
 |------|----------|----------|------|-----------|
-| 高端旗舰 | **WgetCloud** | IEPL 专线、Netflix 全解、晚高峰不卡顿 | ¥59 | [🔗 点击注册（85 折）](https://invite.wgetcloud.ltd/auth/register?code=xEgJKS) |
+| 高端旗舰 | **WgetCloud** | IEPL 专线、Netflix 全解、晚高峰不卡顿,全年无故障 | ¥59 | [🔗 点击注册（85 折）](https://invite.wgetcloud.ltd/auth/register?code=xEgJKS) |
 | 中端性价比 | **BoostNet** | 三网入口、4K流媒体畅通、移动优化 | ¥39 | [🔗 快速注册（8 折码：boost）](https://boostnet1.com/register?code=kKMFirlm) |
 | 中端主力 | **悠兔机场** | 隧道 + 专线智能分流、适配游戏 / ChatGPT / 流媒体 | ¥29 | [🔗 注册享 8 折优惠（优惠码：888）](https://youtu6.shop/register?code=erkQTmbM) |
 | 低端入门 | **贝贝云** | 月付低至 ¥14.9，适合轻度科学上网 / 学术用途 | ¥14.9 | [🔗 注册享 95 折优惠（优惠码：beibei.cloud）](https://beibeilink.top/register?code=Oa86Fbs3) |
