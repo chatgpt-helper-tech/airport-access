@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年05月29日 22:42:02（北京时间）**
+🕒 更新时间：**2025年05月29日 23:14:55（北京时间）**
 
 ---
 
@@ -14,25 +14,25 @@
 | England could run out of drinking water in decade without new reservoirs, minister says | [阅读全文](https://www.bbc.com/news/articles/cy8dv6l2jlzo) |
 | 'I'm being forced to choose between Olympics and OnlyFans' | [阅读全文](https://www.bbc.com/sport/rowing/articles/c0715154kmeo) |
 | Farage would crash economy like Truss, says Starmer | [阅读全文](https://www.bbc.com/news/articles/cp3n4zwq6v9o) |
-| Elon Musk leaves White House but says Doge will continue | [阅读全文](https://www.bbc.com/news/articles/cz9y4exj822o) |
 | Mother who sold six-year-old daughter given life term in South Africa | [阅读全文](https://www.bbc.com/news/articles/cj93yvr3n1xo) |
-| Chinese paraglider survives accidental 8,000m-high flight | [阅读全文](https://www.bbc.com/news/articles/cm238175gzyo) |
+| Turkey to fine airline passengers who stand up before plane stops | [阅读全文](https://www.bbc.com/news/articles/cgle6gg9z6yo) |
 | 'Simmering anger' over asbestos and mould in social housing, watchdog warns | [阅读全文](https://www.bbc.com/news/articles/cvg5q583glqo) |
+| Chinese paraglider survives accidental 8,000m-high flight | [阅读全文](https://www.bbc.com/news/articles/cm238175gzyo) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Wall St opens higher after court blocks most Trump tariffs - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNY1FSSEJ4SndBMkdBZnl3U3p0NXBDWXg3RGhBZGk0SXRHZTA0MkdsZ3pjZUJkcGwxYVBCVVNpdUFnRmdycE5fWGRnU3dpajRydFFESldJUDI3UkJzdWh4UFlKWHFlSGFmRkZkblRSa0xGb3gtNjFaUXZESWt2Mm9seEp6VTN0VWRzNWU5ME9jMzFNczZtTUtNcWRZQ1NOM3ZrejhIb2ZYYzR6dnNZeGEw?oc=5) |
-| U.S. Will ‘Aggressively’ Revoke Visas of Chinese Students, Rubio Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNTEdJdnZndnd5TC1QTGttbHFWRzloQVBQRFlhZjBmYUtYNW03RmxZX3Bsb1drSTJSSEZoaGhpaHJMdlY2Y2k4NE9fc0tmaXBEN3h6eWN1Y2tiVkFZeWxqNVA2b25sbFlhWDNpSGtjY2pkYmR4R0pkdURTQmtFd3RjV053eDA?oc=5) |
-| Elon Musk Bids Farewell As Official Trump Administration Role Comes To An End - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPNmV0TEF6eEFNV0J3cGsycXlrNWNhb0RkSG1pd0QybnBMOEFLZE5Dc0RyRmk4YjN0RWlPQ1VIVDZmeHhGZnZMTjBWVFFMUHRDbWp0VXU2VnFtdWdKYUJTaTY0ZnBqc2N3anlvam9pNmgzUEpzcUV3YzFYV3dlaDI0YlNBaGw?oc=5) |
+| European stocks dip into the red as enthusiasm fades after judges halt Trump tariffs - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOSndlSnB6djhkek9rV1RHNnp5ekt1YVdReEx1ZnhzV1BRS0JLbFV6Q1JvTmJlazQ3cURsaWxJN1VhS0RpckRnSG1iZ2dvdFlLM0VPZDNwQmVwZUZleGkycEYzTjZac084RUhlaEtlU0xNb05nRklZMklKeHpKUzNnZWN3enJCNURCYTVvaHVwd3ZRLXkwV2tNTGltTkEwSWJWa0HSAacBQVVfeXFMUHJQcGZub3RWNW44Szh3ZmZ5X0sxeFpIcmozbHVrY3FXeVBwNUR5REFMUXZqUEdFMkJ2dzM4aGRZeDJoaWlrYklZX29YVmFyR0ZRRU55aEZsUXpmQ3FLeER4QU9iWml2NUtKVm5GdmJYZTd3YjJIem5zSllfaWJjeGU2NXpncmJCbFVmY09xcWtGZDFRekNPZnV6dGZ0SS0zOUNndVd5OVE?oc=5) |
+| Trump administration to crack down on Chinese visas, Rubio says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNUVR1bmZOZmV1Wm53Mmpvd1BybXlPeUtCVUJkc1RkUlJDUmFTLXJGSXl2TktscW95OF9jR0tLUE5JWGJxakxBbGgwWlFnV2gxdGpsaENocjlsQzdCS3RpdWQ5cERTZWtNNHVJaEQ1MDc0c2sxT2hick0ycHYybFR5UFJoU0puVFQxeE9tLXpwUHVyQ1lEa1E?oc=5) |
 | US signals it may use administrative process against Harvard - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOT2lPRnp3YU1sZWJjSmwtX2RrdG5EVWhnVEoyMmhkX3NaTzJwQ1FVNE1IMEVsalBuVDZ1RmtwX1N2R1RLMnppUm8tTnFNd3NRUzA3Z2hYbHpVNzRDR3ppQ1NManZZNUNKeEI4b1JTdmFoQlNuMjdKZktBUFVLQUhlUW1QODJwRXU2SkhZTWxXczdrSDhDeUVMYkVGUHlsbXBCdmtpVWdQYV8?oc=5) |
+| Elon Musk steps down from Trump administration - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9HTWR4WE5oWkl4Q0NYU3IxTHJ1R21xMW5vUHVDQVpwUVZacnVCU2M4bUtxOTdCWHV0MDJ5LUw0QnlxZjVWUkcwcERGQXd3Vjhudm84a3k4Y2lQN3NBbDRwcTFyU2dobkRXMU1SZ3MwNlY?oc=5) |
 | Commentary: Explaining the newest Wall Street craze — the 'TACO' trade - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQalNiZXJ1YlBONThEdWhfSzdOOUFqOXNpcVA2VEFkNVBzdzJLYjd6dFZEamdTbGE5U0l6SmpuS3ExVl9PdS1BZVJTcDVYMllmVEtvVHNVQ1BXaXM0WGNNTjFCaHdhOHdUdWduaEJCVlcxS0czU0JielJ6dkRuTnZ4YVN1ekRXME5aM2xCbFRxZkwyYXY0QXRjTTZXcnRna25jZHN0NG9DRQ?oc=5) |
-| South African woman gets life sentence for selling her 6-year-old daughter - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPN3BsdG5nVXk5Y0V2dDJkMWZXNDYyY0xlN0JrMnBrYTZqNHNORlpMc01FLVFnVUhSbHQwd1VKZFFWQXR2aV9WWFZKVEZRRC1TS3hFSzBLTFh2M0Jhd0VxV2NzY1ptN1diN3dSUWIwLXVoZjc5dVdZLVEtMGlkZHFMZHo2RGl3YmE2SkNVNVo3STlfLWcxWkc1VzBJUTPSAaIBQVVfeXFMUGhmUThoa2paQzRqbDc5S25heHlEUEE5aEtjeF9TZTlJT0hVeXJZUmVPUmhQWW1yOUJCajZqWGN0QWFPekdmaVZ4Y2x0QnV3Z2hINmdvXzJLbEJ4TF9meFFDVnh5MmltUk03TTdoZXB4cGJZdDhSdC1sd3p6NDlNaUNtNkhOZlFZR3dtVlRVYk1FcmFzSE91UlBGd0ppZTFjWkl3?oc=5) |
+| Man remains missing after a Swiss glacier collapsed and destroyed 90% of an Alpine village - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQQ2ZEUUZMd1NKQ2E0bFp4MlFXWTVUaUdjdV9BYy1GQnpqLWdFUDlabjExSW5IbFFlVEdhZ3RaUElxWGkxb245QVZlQktVal9MSHF5WGlfSUVGdFFGTDZNcjBjVW9KcW5qVl9PLWZidVBINk5ZZlRjaGpEUlYwN0YxNkw2Zl8tMGdQa3dzN3o3RDRJZzhqWGVhY0ZSZmZsdnZvMnlNRmxIRHQ?oc=5) |
 | Trump’s clemency spree extends to ex-gangster, artist, former congressmen - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNajZXTXhlcXZKeGloM0JYTGV3UkdnZUt2TGZqa085dklIODVTSnJlcDl0WUhEeUZRZFowT1NjZTlCbmZwSE1wSlJpaDBDM0RhZUMyR3E0NnZoX1RkdU5TZTRQNHREY0JRaWZGdGZyMGs1d1pSZVlFNngyLW00MjFMcnVsM3NMYXpqN1VFbVdPcV95UDJTRlQw?oc=5) |
-| Harvard agrees to relinquish early photos of enslaved people, ending a long legal battle - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNVHBCNENGYTIyZWJtQU5yblZObEpjcjhHUC1lenhSUGpVZEJTVEpqT3NSNHpVZFpMNTIwOEgzeUlpTTJkZGV1dVpaSjh0b0lJYnZwTzF5SURsVlRNTXZMYmlPOENfVzY3UXBlbXMxcUJRMm1LMFpDTzNXamR1VkxXa2R3QdIBiAFBVV95cUxNRnpsZF81WFU0T3hIeGNqRk1BLWUxWUhrRmZHYy1jQ2pySFI2OGdYcmJrcTdjQ3JISktFUmFGU2lyQXdaMExlRUlpV0wwRnl4aEVTUW9Fa2tza2FIVGVQanJUZkxWZjhkaTBlTFlGeGNmdWw1UHJ1bm5vYTQ3RGpXb1o5R0NRQXBW?oc=5) |
-| Will you be able to get a COVID-19 shot? Here’s what we know so far - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOTV9lMDhCQUNSZGJqaWJLRWZrcWlPOVFTVzJ1VzBjN2N5WThtcEtPcmJoeWx0Vm4xUlJuMHljdE9ZSG91UDNCTF9UOFhaY2Zsa0JjVEZ6MVJ5cFJKSmtQUmV6NmluN2FaVWc3S0Zlb1VqTUxBTXU5NkxuYnJaSXZFTnQ4WUdvek9nTkJROEFLTWhKR2pFbTEwbkhyR01rcHR6dERwdTZWWmo?oc=5) |
-| Jimmy Kimmel Insists Trump's Pardons Are Compassionate: 'He Has a Soft Spot in His Heart for Fraud' ｜ Video - TheWrap | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE83czQ0ZHVYQllVcDhPN0dFa0xuWmozdVBMOFdMNXBUeUVLVVJaa3c3OFBDS0FZLWlvWlRrZkxCNkF6LThmV3ZZM3BxQXdGd2xaYmJ3alhMazFqUjhwckhaaXVJRW16MlBHamdFV2JtNXIzMGFDaUhqa1Rvdw?oc=5) |
+| Savannah Chrisley shares her first moments with her dad after his release from prison - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNaDg2bTJLTXJjYlZTc0xuRzFEaVNkOVoteUp6YTN4bmwyT2lLSWdRTmpyZGNSZVhDM3YzaHg4S1dxbkFFNWhQdVUySVRnb2RqeUY2N0EwZ0FkZnYtTzB3ZGVlUlQtb2dkZDNTWVdjZkJNRUEzaGRoTzR6QWZPSVRNWV9tcHFST0Vvak91Rkw0eHU0TzVPclNaaEpZZ29fbUhJWWNSQUdKYk_SAVZBVV95cUxNbDRnODVWUXdyZFBfS2R0VGxaaU8zRlVKZFNMQWd4LTNhalM0dVdoREhMb25uNUg1YzE1ZFlNZ194SE0zYy16b3VqYUd0bnZzLUxKbjZYZw?oc=5) |
+| Gov. Abbott's post about suspects tied to deadly Texas watercraft hit-and-run met with criticism from FIEL Houston - KHOU | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxOVGYxUGRUcnVBelVkZlV6Zm9rR1NNcXRQTU9ONW1ndkhYQnBPczB5UXpHX29WWkN1eWJjeXhORS1tejAxeldkTzRJRXp0ZE9jSjNoSF9nOFR3RWl2cmlaSERjbEFYeVZ5aDRyeVJxNTZvMVdvcmdDcS11YklLb3BGcGNGSXROZGtNVElVcmJMQWhnWk9OXzd4TFpDMk85ZS1kb0VQVTVqaUhnRnhPaS1PSEh3bHZ3UXFpeVM5d2JZVkFoUVd3?oc=5) |
+| Supreme Court Curbs Scope of Environmental Reviews - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOWFI2aU1OaFdIc0l1czVZc25rRDQzSXVzTGY3RFNyNGRuSTNjUXZWZUZYR21fVnlvek1qRE9JS0hvMDIwN19pbEhpRU42WldNWXJxbGtKZGZkTHdUTHJuRS1CbFhNc3d2RWd5dGxvX3pxb1BWcnozZkpnSThnWG9ZLS16LUNuY256N0hhRUhPa3M?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
