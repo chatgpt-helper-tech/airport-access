@@ -82,7 +82,7 @@ WgetCloud（原名 GaCloud）是一家成立于 2021 年的高端全球加速服
 适合以下高强度用户群体：
 - 视频剪辑/后期制作工作室
 - 团队远程协作/运营办公
-- 重度 AI 模型调用者（如 GPT、Midjourney 用户）
+- 重度 AI 模型调用者（如 ChatGPT、Midjourney 用户）
 - 对全年 24x7 无故障运行有严苛要求的用户
 - 晚高峰4K高清流媒体用户（如 Netflix、Disney+）
 
@@ -115,7 +115,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 
 **📊 实测连接质量截图**
 
-![WgetCloud测试结果](./assets/WgetCloud-Test.webp)
+![WgetCloud测试结果](./assets/wegetnew.webp)
 
 
 ---
