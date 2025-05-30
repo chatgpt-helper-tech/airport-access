@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年05月30日 14:20:29（北京时间）**
+🕒 更新时间：**2025年05月30日 14:48:28（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | Where does court ruling leave Trump's tariff agenda? | [阅读全文](https://www.bbc.com/news/articles/c89p8d574d4o) |
 | How the West is helping Russia to fund its war on Ukraine | [阅读全文](https://www.bbc.com/news/articles/cdxk454kxz8o) |
 | Banksy reveals lighthouse artwork - but keeps fans in dark about location | [阅读全文](https://www.bbc.com/news/articles/c331m8prmd1o) |
+| UK's muddy saltmarshes vital to tackle climate change, report finds | [阅读全文](https://www.bbc.com/news/articles/c9dq9xwd97no) |
 | Andrew and Tristan Tate will return to UK to face charges, lawyers say | [阅读全文](https://www.bbc.com/news/articles/c780ve2vg17o) |
 | France to ban smoking on beaches, parks and near schools | [阅读全文](https://www.bbc.com/news/articles/c7873veygv2o) |
 | Jack Draper edges past home favourite Monfils in late-night French Open thriller | [阅读全文](https://www.bbc.com/sport/tennis/articles/c87jl5y1qydo) |
 | Why Succession creator Jesse Armstrong is writing about rich people again | [阅读全文](https://www.bbc.com/news/articles/c1w3pd100q7o) |
-| Badenoch accuses Starmer and Farage of 'fantasy economics' | [阅读全文](https://www.bbc.com/news/articles/cdd25lnd9jno) |
 
 ## 📰 Google News
 
@@ -28,11 +28,11 @@
 | Hamas debating U.S. proposal for Gaza ceasefire, officials say - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPbVczRlM5UGdFN3pNcGtFUUZZN1A4TEdUckVIVVR2MC1fUGp3Vi1zS1ljNXNrNWZnN1dTTzdBOW16cGR6UVJOSlZBc1IteGpTU29wU1h6ZWZIcmltaFFuazN2SDR6WlpNajdJbHE2NUdSN1oteHB5RThkaVlGQlBaSXZ3OA?oc=5) |
 | Inside the scramble to keep FEMA alive ahead of hurricane season - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNSnJzd3FHbGM4OUg4LU1HY2RuZ2MwVV9KTm9kQ0F3WHREeEI5dUE0VV8tOFdpcmNZQS15UHFyZkxhd3NQUFFwTUdtYkZzQTBIMDAza09LSFZEWjRrbWNKQjFJQTl6bDVwZ2hZZzJpb2syWkk1NkcweHprNTZCYkdFbTFPS3BhREJWN0RPcmNEMzh0aUhaWS1YcTZlLXBsVk8tTHZTeW93RVdrUHBscWfSAVZBVV95cUxOakNTRE1pb3d6bklkcXZlY20wV0IxMGNDUnNONUxEN2tvNkNIcTdPZHc4M0d1NjUyeE1BZkJoSV9YTXZfOVZjaDFUOVN6dS16X0FyWHB1Zw?oc=5) |
 | In addition to Musk, multiple top DOGE officials leaving Trump administration: Sources - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxORFpkTXBrRDRHTU1XQTlRTGFlZTc2RmYxR1RLWVlnLXhsaEMtbTVjUUdJMnlJTlEwdVVkMjhJQnRmQ0c5MGEzejA2WkJTb3h1aVF6T0FJeUJWVHI3QXJIZ0EtZjhNNENaVFA5V0t6REtPRDFDQmdQMFFmZEVUZVlJQ3VZUFhYVUZCaHNCSjN1M2xyUEFMQXAxLXVKdFlkRmhDWlHSAacBQVVfeXFMUGI5dmxNQ3p5T3lnNG5jX3hNem1kRS1tcndtYjNVVnUtbk80RTF6QlRBVG5FMUkzYUdXV2cxYzQxUjBmTDY1U0R3d1NNSDlneFhpOEUyWnBxakdqXzJndDZzRy1heVZ6X0F0S1BNNFNJRXo3VVVfaFlFS09SZmtQMkc4ME1zSzhqQUVVSk9IemdsUjBsTmd3NGRXWTBUbEZORDhHTnNnUHc?oc=5) |
-| Supreme Court narrows scope of environmental reviews - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQSUV1LUM5X2RMRXFMVzRzbnNodVhEVnlNbzhVR01mRDg3ZGUyZzJ6alM0RmMwcVMtbVZuQjVTWW1EdDlNUExCenM5Q3BGbXJGYkdpMGlUc3lEOHVjbmFMOHhMVVJ6ci16a1R2MWpSUTV1ZzJESGJaajhVTTRlcjE1cHZibFpZRlMteml1Qjg0bV9KTXozV0dfYkE1VXI?oc=5) |
+| Exclusive: Kristi Noem said a migrant threatened to kill Trump. Investigators think he was set up - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOTlprRUFfaWwxVjRUSDdmVU5yaTNPeno1MmlsNDNXUERuOTlzRTNZY2xKRk4yeGdJR05PQXhJenF3RWFpbkktWEtlbkJPdjJyRlFTX2dtdkpxcHJzenNuSVJXeTMzdUJCU2l0VnRFaGpzd01DTmw3SE9OR0Vzc2xnN3VpR1JEaVM1UTd6ODc5UQ?oc=5) |
 | Bernard Kerik, New York’s Police Commissioner on 9/11, Dies at 69 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBtUXcyTS1RU0ZRR3ZPWkRXRzR1bmFPTG41UGVHRHR4NDgxM0NEb0xSZEZsczJQVUZxWXFkUmFNMDJSTGs3ZEh0WVBUUnR5UDBtNE9FRDNVZnpITkVVN2FiWmZzdi1HVEJvaHk0SHVRZHJZQVNrSlRwTg?oc=5) |
-| Trump admin. deems 8 Maryland counties 'Sanctuary jurisdictions' - WBAL-TV | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOZzFOYUZQdEJNalQ1ZU9YN1JzeTZQTmx3cFRObFlvR2ZnakRMTHZZdHdTX0xBVkEtRWI2c1lER241TGduNWlUNXk1YmFVR0I0WjVLQ3VqT2FBZVhKaVVpWGxBUUNfNl9qZFB4a0lyRkhwcnZCOHRPdmticjRxV0lVMkgxVExXOTU2ekh5ZGxLYklVdTR5SlRkMWdRVldSc1dI?oc=5) |
-| Exclusive ｜ Federal Authorities Probe Effort to Impersonate White House Chief of Staff Susie Wiles - WSJ | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPeUhBcVRPZEpKTDQwNTE2eE8yM1QyTDR0UlJRelltaTdEVTh5ZWdnQnN0aWJ3NnNxM1VTWVpySXdHOEVwRzg3TU1nSnQwMzdaODJBekdLQnlhZU9uUDJWNlRjRXQ3clFNWmRyNS16b0gzbWxmbkpTY2liRTNFQTRsajc2YlV5aTk0UC1zaS1maEh5cUJRbmJENXB6c3VnLWU5Vnhra0hLUGR3SHY1bElBd2NkMndIMjJfUVpr?oc=5) |
-| Judge blocks Trump administration effort to ban foreign students at Harvard - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOaTdGVVVIRnZDQmZkdGFpSW5EbkdRQTg0eVg2di0wQlJfWjNodnBJdWgxcXRCQjY3R1dZQ2E0UlUzdVAwNmlZcklSbzIzZlhXV0pRQm0wQTB0blF2VmxpdWRLVTBMdm4zSm5iU1pSUlhZZ21tRUZyQkpmUG1TUktIY3VYdEU2WEV0aGhuTzVrTlB0TVJROWc?oc=5) |
+| Detective assigned to NYC Mayor Eric Adams’ security detail allegedly dropped off victim in crypto kidnapping case, sources say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE82WXd1WGZXNEFES1plNjJrYWtxb0p6OE93TUllWmN2cnNfUUZoUVRPTV9fYi1JM09vNVhQUVdyLUI2U3JYZE40RE5LSUZXM0hya0lFN3NDVkVZbXdIbkRucUgwZFFpalNpbG1ET0JqZFFLNnlm0gF6QVVfeXFMTzFWSzg2TVRnemhReElKWEF2LVVYaUhGRDlHWHZ2Um9DekVLcDVSMmZIY2tsaURZSDBHcEpiV2lrdnA0RjIyaXBIWWFrWTJkb001NklOUkNQMWN3a2pCaGNzUFEtcFBVbFVaMlpuM01FbDhvQzNwMGdpYWc?oc=5) |
+| Elections Dept. certifies Joel Engardio recall: 95.8% of signatures deemed valid - Mission Local | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOWlFadlhaVnMwOW55RklUVDl6YnNRaEttVWt4cndWMm1MV2VzeW00eDJFdjZpRU50cXdQYlJyMENnR2EzRUJPMXhUb3R3VGhmX3lScl9ydWQ3YXlETGZ3UTh2X2hybEVHQmNGTWYzY1FkbERhSDBhVXlaTWJPaXNOQm5Bc0hJWXVnZHhKSA?oc=5) |
+| FBI to probe effort to impersonate top Trump advisor - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBmdVNIVUVCUnV1OGF0aGh5eUxCNktldlc3SF95b3lRN0hkaW45SGoxNU5wT05CSXlwM0RRWS1yWEpyajVkOG9rY3c5dTcxc1k5Wkpsd1czQklfZ9IBX0FVX3lxTE90QzdycmJaaExkMmZ3bjF4MXhvcFc4WnR1VXZMZTlVc0JiaGJtV1Q3OGg4cWpmZVlwdjdHX1U2ME5Va0ZZc2dMdWI4MHRjUk1jV3FOWGdlQnEyNldCWC1z?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
