@@ -108,34 +108,45 @@ description: 实测推荐2025年最稳定科学上网机场，评测 Clash/V2Ray
 ---
 
 <a id="free"></a>
-## 🆓 免费机场推荐：<a href="https://w1.v2free.cc/auth/register?code=i0A3" target="_blank" style="color:#1a73e8;text-decoration:underline;">V2Free</a> —— 稳定实用的临时科学上网方案
+## 🆓 限时免费高端机场推荐：<a href="https://bbxy.xn--cesw6hd3s99f.com/auth/register?code=FFHk" target="_blank" style="color:#1a73e8;text-decoration:underline;">百变小樱</a> —— 稳定实用科学上网方案
 
-如果你目前**完全无法访问外网**（比如打不开 ChatGPT、YouTube、GitHub 或任何 VPN 官网），那么强烈建议你先注册一个**免费机场**作为临时通道，优先恢复基本的联网能力。
+### 🚀 无法访问 ChatGPT、YouTube、GitHub？先用这个免费机场恢复联网！
 
-<div align="left" style="margin: 10px 0 20px 0;">
-  <a href="https://w1.v2free.cc/auth/register?code=i0A3" target="_blank" style="
-    display:inline-block;
-    background:linear-gradient(90deg,#00c9ff,#92fe9d);
-    color:#000;
-    font-weight:600;
-    font-size:16px;
-    padding:12px 24px;
-    border-radius:8px;
-    text-decoration:none;
-    box-shadow:0 4px 14px rgba(0,0,0,0.15);
-    transition:all 0.3s ease;
-  " onmouseover="this.style.transform='scale(1.05)'" onmouseout="this.style.transform='scale(1)'"><strong>👉 点击注册 V2Free（每天可领取免费流量）</strong></a>
-</div>
+如果你当前处于**完全无法翻墙**的状态 —— 无法打开 ChatGPT、YouTube、Google、GitHub 或 VPN 官网，那么这款 **限时免费高端机场「百变小樱」** 是你最佳的起点选择。
 
-### ✅ 为什么选择 V2Free？
+📌 **强烈建议立即注册，恢复基础联网能力，体验顶级加速 IEPL 专线！**
 
-- **使用稳定**：作者亲测使用已超 2 年，稳定性良好
-- **免费套餐+付费升级**：初期免费使用即可满足需求，后期可选择便宜的付费方案
-- **支持多平台导入**：兼容 Clash、V2rayN 等主流工具，一键导入更方便
-- **每天自动赠送流量**：日常使用无压力
-- **解锁常用网站**：可正常访问 ChatGPT、YouTube、GitHub、VPN 官网等国外资源
+---
 
-> ⚠️ 温馨提示：虽然 V2Free 的性能无法媲美顶级机场,但作为**临时应急通道**，它已经非常实用。
+### ✨ 为什么推荐「百变小樱」机场？
+
+- ✅ **稳定可靠**：运营超5年，团队位于海外，服务成熟稳定
+- ✅ **高速专线**：接入顶级公网 IEPL 专线，低延迟、高速大带宽，游戏、下载、视频通通流畅无卡顿
+- ✅ **免费套餐 + 灵活升级**：支持免费试用，高中低档付费套餐灵活选择，按需升级更划算
+- ✅ **兼容主流工具**：全面支持 Clash、Shadowrocket、SSR 等翻墙主流客户端一键导入，导入简单便捷
+- ✅ **流媒体解锁能力强**：ChatGPT、YouTube、TikTok、Netflix、Disney+、HBO Max 等全解锁，支持 4K 串流
+- ✅ **专属会员福利**：LV3 以上用户可获免费 Netflix、Disney+、Prime Video 等会员账号，4K 秒播！
+
+---
+
+> 🧠 **作者实测使用超过3年，稳定性极高**。日常办公、AI 使用、高清观影、海外游戏、跨境电商访问，**全场景表现优秀，值得长期使用**！
+
+### 百变小樱2025年5月24日实测
+![百变小樱2025年5月24日实测](./assets/baibianxiaoying.webp)
+
+---
+
+### 🔗 立即开启你的科学上网之路：
+
+<p style="margin-top: 12px;">
+  <a href="https://bbxy.xn--cesw6hd3s99f.com/auth/register?code=FFHk" target="_blank" style="display: inline-block; padding: 12px 20px; background-color: #1E88E5; color: white; font-size: 16px; font-weight: bold; border-radius: 8px; text-decoration: none;">
+    👉 免费注册百变小樱机场（限时开放中）
+  </a>
+</p>
+
+---
+
+> 💡 提示：科学上网的第一步是选择靠谱稳定的机场节点。**百变小樱作为新手推荐第一站，解决你“打不开 ChatGPT”的痛点**，是你通往自由互联网世界的起点。
 
 ---
 
