@@ -1,6 +1,6 @@
 ---
-title: 2025年科学上网机场推荐榜单 | 免费梯子推荐 | Clash/V2Ray 节点测速教程
-description: 实测推荐2025年最稳定科学上网机场，评测 Clash/V2Ray 节点速度、解锁能力与套餐性价比，含免费梯子、全平台配置教程，助你顺利访问 YouTube、Netflix、ChatGPT 等服务。
+title: 机场推荐 | 2025 科学上网教程 | Clash/V2Ray 节点测速
+description: 机场推荐,实测2025年最稳定科学上网工具，评测 Clash/V2Ray 节点速度、解锁能力与套餐性价比，含免费梯子、全平台配置教程,助力顺利访问 YouTube、Netflix、ChatGPT 等服务。
 ---
 
 🚀 本页面为 2025 年最新实测中文科学上网机场推荐榜单，由 **[ChatGPT 中文助手导航站](https://gptvpnhelper.com)** 出品，  
