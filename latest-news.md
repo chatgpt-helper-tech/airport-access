@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月02日 06:39:20（北京时间）**
+🕒 更新时间：**2025年06月02日 07:09:30（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | Polish presidential election too close to call, exit polls suggest | [阅读全文](https://www.bbc.com/news/articles/cx27897vedno) |
 | PSG hold parade to mark Champions League victory | [阅读全文](https://www.bbc.com/sport/football/articles/c8e6g6kge4do) |
 | Katie Piper: 'Ageing can be compared to a bereavement' | [阅读全文](https://www.bbc.com/news/articles/cx2j0jy7lreo) |
-| Root's sparkling 166* steers England to series win | [阅读全文](https://www.bbc.com/sport/cricket/articles/cvgvjr088v0o) |
+| Root 'getting better with age' - the numbers behind his ODI brilliance | [阅读全文](https://www.bbc.com/sport/cricket/articles/c3wdl4z6pv1o) |
 | 'Our love is frowned upon, but we push through': Navigating religion and relationships | [阅读全文](https://www.bbc.com/news/articles/c8xg5ypwdpyo) |
 | Former Race Across the World contestant dies in crash | [阅读全文](https://www.bbc.com/news/articles/cje7nx5l832o) |
 
@@ -28,11 +28,11 @@
 | Trump Aides Insist That Tariffs Will Remain, Even After Court Ruling - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPOURqYndkZkVGUUZTR2prbzUtQW0xeTQwakV3aVVBZ3htU1daczh3RWZEU0xLRU9rT3ZXTl81REFiUkZydGtnakFZSURnWm1Tb3pDRnI0d3lWcjdHSWNNRTV1bnp4UTFZVjlUc1lLQW9PblpzM25YUjdIdnd3b1ppbjdxS3NPZ3Z5eEg2SXRlU3k?oc=5) |
 | Red Cross says at least 21 killed and dozens shot in Gaza aid incident - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE40RmtFTFBWSndMeUNwbUNOeTN2emowakt6RktUSGRLU3BOUEp1MjVUbEpzd2R1TXZrekNVZXdWcHJqLWNYM0xBRVo0cGh1SUF5a2VtM2ltYXpHZ9IBX0FVX3lxTE9YWVE4bEJTTVVyLUtPM3dBNWY2UHprREdURXBuOFFoQ08ycDkxQ19zSnNyWUdDV2hZczMxeXpNcXFqS2tSZlFFSmVNd3pQakVCckdWU3loRmNfR0F3N2dj?oc=5) |
 | Trump says he's withdrawing the nomination of Musk associate Jared Isaacman to lead NASA - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPSzhaUUt0djdsR2tVb3Roem1rX3lESDVRUUxtUnlVMDE0Y3J5QWIwVEFDOGtOYl9INHJCSWF6a0x6V1ZVcGhSdWt4azZOTHdTbHF3T3k4Tm5JeTZvTjZ3em5xY2x4WlFOZldlcGFKZU5fU21MM05DcWFjVGlpSWh1bjRCNjNtMUJVQm1DV1hqTUZPZFJpamRoR0NJdmFNNU9I?oc=5) |
-| Johnson says 4.8 million Americans won’t lose Medicaid access ‘unless they choose to do so’ - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNYmRvRjc3YTc2cXBkam5ONEs0UERfVnhYaWNEUS1ockEzeGRweXpSQ0drLUJGZ0pyak9kclZ5Zks4a1NFaXg4YThmUUFYcnNaeE5aSE5JMXdwWjBtcGZhR2kwLU8ycjVGZVk5cDA5ZnotcHVhT0U5YmFXX0FaZGFNbWxHVk1uQnB0QWZHWjJ2cXU3YXVJM0HSAZsBQVVfeXFMT0YtRU1IYldIVU1nOXJyaXdIWGNFTlV0UVAzZTVadTM0SlJaaGNkbWRqZUFNY2M0YWszZGhmbmJqZElBSld2QlAtZTJiT1F1VUlkUGxuLU5XS3ZRakpSalE0S3hxdVJHLWxNdGw3Z1NNNVRiY05xbW1QUHpDalFkQXpfVFdRUDZrVHNIYWhUS0Q3djFDOUMzVVl2dm8?oc=5) |
-| US homeland security removes list of ‘sanctuary’ cities after sheriffs’ criticism - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQVTNmZEs1UnBvckFoMDc2ZG1PaGszN2hXQjNaSmVyUThDa054azVhbnB2V1VEbG5ITXp2WTdVM3Z5NlhkYW45aVVrUU5VNDAwMWlia3UxaDFQNlVza1BxRnE2dHhyRmNBeEV0Sk43WGRVREc5NDJBY1Rnb243VUVXRXhvSkdHQ0dqQmFvZ002Yl8?oc=5) |
+| Poland: Vote too close to call, Trzaskowski claims victory - DW | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPTzhxQkFabTFkSFVyVlY2TmVYR2c3Z2lMcm1ZUkJRcm5RN3JoV01aNmJSWjVqNHExb3E0WXZRZ3ZTNkVqVjlzd1BUUXNJMFBpRnJ5T2pLOWpkb3ZZZXdXTnhpWHlPaU05LVozTHNJR3RNU0JIYU5MUEJ1Y2JIYkFNMTBGTWM1QUt1Sm9WcjFGYU1pdFd5VTJF?oc=5) |
+| List of ‘sanctuary jurisdictions’ removed from US government website - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNR0RWY1dOVVBWQ0VKNFpKTXRmMjg4M3ZqQmV0ZXR0OThuVUFYd3FNZmxzZ1VqdFA5amZraGk0NFNSVVlJZWF0c0ZGTFBhV1dGeUdBLWVXWmRia3BmUGZEbGZRTnBHVm5FZGIxZ1BfZXRoeGJMMHdIdTQyVU9yMXZrMF9IZG91RDZRLTJMZGlXVHRWM3JfS3B2a1pIZ2xDMXFXT0E?oc=5) |
 | Bessent says China already violating its latest trade deal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQMGx6TmZHNmN4UHJUVkpDUXdKRVpYbG1MQktkUkYzZlBHOTRLZXlNMDV5WGh4RzQ4VXk3NXk2ZlRlWUNYb19OWDhmcmxiTGlzZ0E3WDNvcFIxc25NUXdZbHBoN2lzcHB0aFpVQnJBY2E3S0EzbFUyQVVHWWFoSFRldGRyeVZ3QXFnRFdKZQ?oc=5) |
 | ‘That person will absolutely become the most powerful person': LA looks for a new king - Politico | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFA3anpRZk1weW05ZWV2MmRhRUxSUHRMdnVTV2JCTk93OHloMkZXdEhwalp5UXhybVRmQ1JaUE96RW10SjdsdmJ0X1QyaHJfbVJZYlNHTlV5LUNCSFVfSnhmWnNOTXVkWHJUbmNfWTZ5SzVPbjQ?oc=5) |
-| Trump's "big, beautiful bill" has Republicans squabbling over math - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOTnpFSXZHa0hIVGpvZWdZOFFrdVlEYU5keG84Y3hvZ3pFaUxjRVJBMUxIdmlPSFhoWm52NGxfN2JJYjFLM1JyZUdVdENWX2ZZaEo2WGlTNjBxb05MN3oxeUJZenRReUhtSjh1YjFxWFFmb3hnZTRha0Z4ZThDdEhBZnZqamVmS1VnUm5fdUc4U0I?oc=5) |
+| Northern Lights May Be Visible as Far South as Alabama - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPVnc0cUg5cmpFTWpnMUpIUkFoWkpobDNpMGgzbzNReVVvR2xhXzNpZVAzdmF2ZGR1SEM2MEFCcVhYTWtjRzNFMzUwdmdxdng0TTlOTnRYY2ZOaTFFTzR6dFZQS2VPRUxPZm5lYkRLQUlDcUlnMlNWOXk1QU5lbWJQaGJIOGM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
