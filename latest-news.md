@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月02日 03:07:39（北京时间）**
+🕒 更新时间：**2025年06月02日 03:32:12（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Watch: Video appears to show Russian planes bursting into flames | [阅读全文](https://www.bbc.com/news/videos/cvg53nyg72vo) |
-| 31 killed in Israeli gunfire near Gaza aid centre, Hamas-run health authorities say | [阅读全文](https://www.bbc.com/news/articles/c991j01lym3o) |
+| Red Cross says at least 21 killed and dozens shot in Gaza aid incident | [阅读全文](https://www.bbc.com/news/articles/c991j01lym3o) |
 | Two dead and hundreds arrested in France after PSG Champions League win | [阅读全文](https://www.bbc.com/news/articles/ckgqyg325gno) |
 | Russia may attack Nato in next four years, German defence chief warns | [阅读全文](https://www.bbc.com/news/articles/c62v63gl8rvo) |
 | 'Our love is frowned upon, but we push through': Navigating religion and relationships | [阅读全文](https://www.bbc.com/news/articles/c8xg5ypwdpyo) |
@@ -29,10 +29,10 @@
 | 31 killed after Israeli forces attack near Gaza aid centre, Hamas-run health authorities say - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE40RmtFTFBWSndMeUNwbUNOeTN2emowakt6RktUSGRLU3BOUEp1MjVUbEpzd2R1TXZrekNVZXdWcHJqLWNYM0xBRVo0cGh1SUF5a2VtM2ltYXpHZ9IBX0FVX3lxTE9YWVE4bEJTTVVyLUtPM3dBNWY2UHprREdURXBuOFFoQ08ycDkxQ19zSnNyWUdDV2hZczMxeXpNcXFqS2tSZlFFSmVNd3pQakVCckdWU3loRmNfR0F3N2dj?oc=5) |
 | At least seven dead after two Russian bridges collapse - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNelY2ODFpM2J6c2c1R19CalpQdzk2QlVHVURCbVZ0Z1c0bm1mYzVSdF9rd3ZfbDhlX3FxM3B6U3RzbjcxWTBYcjVlOXVyVmZEMW1peEVpMGVIc2pKMnU5TmpoenJQaW12OUlWM1NuelMzdzBzT3A5R3pmeWRwWFR3Vk4tajFteHhMREkwcHQ3clVjTDNNOXcxMUl3?oc=5) |
 | Illinois lawmakers pass budget with tax hikes on tobacco, gambling — but adjourn without transit, Bears stadium - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNZm54UFpWUmw1bV9qSGl0eXUwTXhsNWUtYThLd2k5bUZjMlhYbVl1bFZGTFVCa05tS0VFejdvLTR5ck5zRDV6Q05QTUpuS2V3WWlHQXFPUXh4ZHNxekpjZTBuYnRPb0RuSHpRVzhLSnhmODk4b1Z4Vk51TWlkQjd1cjVvSm1qY0hKMXVPNkozekt4dDVRNnZfd3NucUNHQVZoa0hCTDAtekF1UUZMcnhocVlKcG81RThycmdRUlFTbk9XbWxn?oc=5) |
-| Musk talks about Trump administration in CBS interview — despite asking to avoid the subject - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOV1ZRUWQ1b2NXQkxwak91WVVmOUl5TndRdXp4MDhZTExzVTMyNDFmbzBVY3JoMW5KdUlPakloX254MFpmNVNGbXk2bnU2X2lfSURLSHU5N0dtRGc3cVplSHlnNVJ5U1lPR1pZT004b0Q1S2RaeWswUFFXenFQVTJtSWVoVk1EWFpjRTVpWXBaVWRvcGJEN3pHRQ?oc=5) |
 | Trump, Xi to talk this week about trade, key advisor says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE1QTklDbnNJdUN2cDhvRC1JbXI0TVA3OU9HMDdRaGxXdnhIbDZOM2Faa3RoLTJPOWRKRm1QYWtGM1B6cHJQekhHMFlISFpSRnNzNDB6bmhaaVkzSkNickh3MmJmNXN1ZEg0MGRMRjVR?oc=5) |
-| Trump Administration: Latest News and Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE4zOHhrUDR0cGRKYlllTk0wZzZrbjhrV2Q3Z2R5d1JnSUkyb3F0UFdOdkRYXzZiTHRpZXhCQWo5WnA3cWtxQ0xuWE90LXd3MTlyRjROUlRLZmlLYzdWaFZmUEt4MA?oc=5) |
 | Trump's "big, beautiful bill" has Republicans squabbling over math - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOTnpFSXZHa0hIVGpvZWdZOFFrdVlEYU5keG84Y3hvZ3pFaUxjRVJBMUxIdmlPSFhoWm52NGxfN2JJYjFLM1JyZUdVdENWX2ZZaEo2WGlTNjBxb05MN3oxeUJZenRReUhtSjh1YjFxWFFmb3hnZTRha0Z4ZThDdEhBZnZqamVmS1VnUm5fdUc4U0I?oc=5) |
+| Musk talks about Trump administration in CBS interview — despite asking to avoid the subject - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOV1ZRUWQ1b2NXQkxwak91WVVmOUl5TndRdXp4MDhZTExzVTMyNDFmbzBVY3JoMW5KdUlPakloX254MFpmNVNGbXk2bnU2X2lfSURLSHU5N0dtRGc3cVplSHlnNVJ5U1lPR1pZT004b0Q1S2RaeWswUFFXenFQVTJtSWVoVk1EWFpjRTVpWXBaVWRvcGJEN3pHRQ?oc=5) |
+| Chris Christie says Trump is giving free rein to white-collar criminals - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNOVJNRnhDTlc2b1QwWElkWl96YlFiQndFNUFGSHYzNDROOEVRallNc2Z6eVhObUMwbTdQQ1VLbUdQZGRyQVFOQkVVTk1abUVYM3hzUVQ4NHE3MFotTTRmOFUycTVMWG1pdzBxNGhTSFV2RkxTU19NMFFjc2pBcVlRc3JsY0c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
