@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月02日 02:43:32（北京时间）**
+🕒 更新时间：**2025年06月02日 03:07:39（北京时间）**
 
 ---
 
@@ -25,14 +25,14 @@
 |--------|-------------|
 | Ukraine launches massive drone strike on air bases deep inside Russia - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE1aU2h5ZV9aZFRsU3VxT0lLTXdFVk9xb09mRFZNVDkyanMtVnNGczBWRDltSVFzMVRsekw1djM1WEhtOFJhak82eXdNY2VNV1p3ZjBLNi1GbGhDREd5YmlycnBGcHU4VU9zWDQ5Z1Bn?oc=5) |
 | China accuses Pete Hegseth of sowing division in Asia in speech ‘filled with provocations’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxNQ0I4aFQyU3RwRk05X2I2WWZ6QXBEUHR0WUIycExhN2R1QTNyUFJLT0VUanNEbmZBTUtoM2s5a0E1RVVTVWVWSkhqZzhWY211MVZhUmNxVmZ2VVQtdVk5YktES053d2RobU5wdTYtelZsVk9RN1VPSTZ3VkhDTVlfMzFGOTVwRGUxODQzVDNGZFVpZGFFWWpNLXVWRHlnTzItaE1iMmxYVFdfblQ5MkNyWFBhUUhiYUlkWlZubE9Ibm9IeDF1bmtrTUJpRzRVOXc?oc=5) |
-| At least seven dead after two Russian bridges collapse - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNelY2ODFpM2J6c2c1R19CalpQdzk2QlVHVURCbVZ0Z1c0bm1mYzVSdF9rd3ZfbDhlX3FxM3B6U3RzbjcxWTBYcjVlOXVyVmZEMW1peEVpMGVIc2pKMnU5TmpoenJQaW12OUlWM1NuelMzdzBzT3A5R3pmeWRwWFR3Vk4tajFteHhMREkwcHQ3clVjTDNNOXcxMUl3?oc=5) |
 | Trump says he's withdrawing the nomination of Musk associate Jared Isaacman to lead NASA - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPSzhaUUt0djdsR2tVb3Roem1rX3lESDVRUUxtUnlVMDE0Y3J5QWIwVEFDOGtOYl9INHJCSWF6a0x6V1ZVcGhSdWt4azZOTHdTbHF3T3k4Tm5JeTZvTjZ3em5xY2x4WlFOZldlcGFKZU5fU21MM05DcWFjVGlpSWh1bjRCNjNtMUJVQm1DV1hqTUZPZFJpamRoR0NJdmFNNU9I?oc=5) |
 | 31 killed after Israeli forces attack near Gaza aid centre, Hamas-run health authorities say - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE40RmtFTFBWSndMeUNwbUNOeTN2emowakt6RktUSGRLU3BOUEp1MjVUbEpzd2R1TXZrekNVZXdWcHJqLWNYM0xBRVo0cGh1SUF5a2VtM2ltYXpHZ9IBX0FVX3lxTE9YWVE4bEJTTVVyLUtPM3dBNWY2UHprREdURXBuOFFoQ08ycDkxQ19zSnNyWUdDV2hZczMxeXpNcXFqS2tSZlFFSmVNd3pQakVCckdWU3loRmNfR0F3N2dj?oc=5) |
-| CNN Poll: A record share of Americans want the government to get more done. Few trust either party to do it - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1YRnROUmZDUVRrMG5ZcHpzcjNlOUpVRlRlR0JNd19tSmFweTk1SXFwM0hSZjhySFBGTGNzTEpQRk9OYzRRMFZ2ZGkyNHBDVVN5UGszb2JUUEh3RmJTZmhqR1JlRXNBYWRkV045aWtKSnQyajBfTzVhY3F30gF_QVVfeXFMUDd1eFMxVXBnc1AyMHd5RnRBSC1Hak5zVzFVUGN6Y1I2NzE2UVlfcFVDQjZxUkx0dHgzZXJUVjl4aFBEWlJEaEJEa3JxNFpGZWZKWERqUGo0bVZWUEhTeWZuUzdab3NPVFFhZ0c3Mm05YVVtX2tIZ2FEakoyRG16MA?oc=5) |
+| At least seven dead after two Russian bridges collapse - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNelY2ODFpM2J6c2c1R19CalpQdzk2QlVHVURCbVZ0Z1c0bm1mYzVSdF9rd3ZfbDhlX3FxM3B6U3RzbjcxWTBYcjVlOXVyVmZEMW1peEVpMGVIc2pKMnU5TmpoenJQaW12OUlWM1NuelMzdzBzT3A5R3pmeWRwWFR3Vk4tajFteHhMREkwcHQ3clVjTDNNOXcxMUl3?oc=5) |
+| Illinois lawmakers pass budget with tax hikes on tobacco, gambling — but adjourn without transit, Bears stadium - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNZm54UFpWUmw1bV9qSGl0eXUwTXhsNWUtYThLd2k5bUZjMlhYbVl1bFZGTFVCa05tS0VFejdvLTR5ck5zRDV6Q05QTUpuS2V3WWlHQXFPUXh4ZHNxekpjZTBuYnRPb0RuSHpRVzhLSnhmODk4b1Z4Vk51TWlkQjd1cjVvSm1qY0hKMXVPNkozekt4dDVRNnZfd3NucUNHQVZoa0hCTDAtekF1UUZMcnhocVlKcG81RThycmdRUlFTbk9XbWxn?oc=5) |
 | Musk talks about Trump administration in CBS interview — despite asking to avoid the subject - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOV1ZRUWQ1b2NXQkxwak91WVVmOUl5TndRdXp4MDhZTExzVTMyNDFmbzBVY3JoMW5KdUlPakloX254MFpmNVNGbXk2bnU2X2lfSURLSHU5N0dtRGc3cVplSHlnNVJ5U1lPR1pZT004b0Q1S2RaeWswUFFXenFQVTJtSWVoVk1EWFpjRTVpWXBaVWRvcGJEN3pHRQ?oc=5) |
-| Trump, Xi likely to speak soon on minerals trade dispute, aides say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQRFpidko0VGw0ZUtQaFZra2h3Z0FsMlkyVnM4ZzhKbDkxSDZxTWFCVHNTMWYzREFUQ0NSZkhibGQ4Zk93a3lSSTMxS0JnRHVUT0VwaWF6UHAtQnVoSFZQd25kRjNBdE5GSUcwQkU4Ykk2Z2VrbDhTXzZGckJjVDFiS2huU3VFRTBmZXJibWJ4MGVDckVWTEE?oc=5) |
+| Trump, Xi to talk this week about trade, key advisor says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE1QTklDbnNJdUN2cDhvRC1JbXI0TVA3OU9HMDdRaGxXdnhIbDZOM2Faa3RoLTJPOWRKRm1QYWtGM1B6cHJQekhHMFlISFpSRnNzNDB6bmhaaVkzSkNickh3MmJmNXN1ZEg0MGRMRjVR?oc=5) |
 | Trump Administration: Latest News and Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE4zOHhrUDR0cGRKYlllTk0wZzZrbjhrV2Q3Z2R5d1JnSUkyb3F0UFdOdkRYXzZiTHRpZXhCQWo5WnA3cWtxQ0xuWE90LXd3MTlyRjROUlRLZmlLYzdWaFZmUEt4MA?oc=5) |
-| Harvard Has Trained So Many Chinese Communist Officials, They Call It Their ‘Party School’ - WSJ | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFB3N0VIdktjeTFNalhEMDhvdVc4eWpZNzc4blFuNm5rbTBKeGF1Rkd2dElmRldjSHRnVEIwd1F5Q01yd3R0bFE1WmZtTzNPNEFTU1Z0cjBObTAycjF3Z01ES1pQR0x3ZmpsUWprcHZyRXJrMThjdWppRjVn?oc=5) |
+| Trump's "big, beautiful bill" has Republicans squabbling over math - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOTnpFSXZHa0hIVGpvZWdZOFFrdVlEYU5keG84Y3hvZ3pFaUxjRVJBMUxIdmlPSFhoWm52NGxfN2JJYjFLM1JyZUdVdENWX2ZZaEo2WGlTNjBxb05MN3oxeUJZenRReUhtSjh1YjFxWFFmb3hnZTRha0Z4ZThDdEhBZnZqamVmS1VnUm5fdUc4U0I?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
