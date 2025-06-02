@@ -2,7 +2,8 @@ name: 📰 Auto Update International News
 
 on:
   schedule:
-    - cron: '*/30 * * * *'  # 每 30 分钟执行一次
+#    - cron: '*/30 * * * *'  # 每 30 分钟执行一次
+    - cron: '0 */2 * * *'  # 每 2 小时的整点执行一次
   workflow_dispatch:
 
 jobs:
