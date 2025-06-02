@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月02日 10:32:55（北京时间）**
+🕒 更新时间：**2025年06月02日 10:59:41（北京时间）**
 
 ---
 
@@ -24,14 +24,14 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Boulder attack updates: Multiple people injured in 'act of terror,' FBI says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQM2JBUFk3QnU2QnNjNFpNV3N2NWZHRjlLUExSQ2hDb0cwWWVNM1JsLV9TU3NPOWt5aE5tVGlycC1sbkJNZE1vTjRCeGNiaEloTE1uXzU0N2VJZy1YdXI0b3Q1NDJRRTVBT05fVHZpc21WS3hOOGFvNGNGSG45SkNCT0pVZDB1V3JLaTZpY24yai1CWlB6bXlpcFR5OHdzVjAtR1HSAacBQVVfeXFMT2dTWUhXLUxuNVRTb2huRmdaMDktT2didGY2RGdVdlpiTVNmeEZpXzRyTTFtMXRfaUJNSG52cVRBRHE0Z0twX1VUbFFqZ2JUX2tWOFFKUjB4aWpjMm5tUkRnUGJkUXB6Vkh0UXlPcUc2YzRuOVp4TDlxbHNMU25yYTcyVUpIWlZqbWhIUHVnZHZycWdyOWdnYXg4SDM0bDk0Q0tCUE1SdVE?oc=5) |
-| Ukraine attacks Russian air bases in far-reaching drone strikes - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNV2c4cGtWY3pJSDd4NjhyWmoycW8wa1lvUDF1SE1uREFmSmRIQlNXMllISEpCbVlVWWFaTF9tcUpyRFFNNGFJNjkwMmdsZGIzVjVUVFJqa1pjM3h1R3RHazZUZjBOczBob0hkS0dvSmFfZ1gyZzB6Q25vZVZPMFNseUZZQWRWOVdQa2NUSGNEdEJTZw?oc=5) |
+| Ukraine launches massive drone strike on air bases deep inside Russia - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE1aU2h5ZV9aZFRsU3VxT0lLTXdFVk9xb09mRFZNVDkyanMtVnNGczBWRDltSVFzMVRsekw1djM1WEhtOFJhak82eXdNY2VNV1p3ZjBLNi1GbGhDREd5YmlycnBGcHU4VU9zWDQ5Z1Bn?oc=5) |
 | Trump Aides Insist That Tariffs Will Remain, Even After Court Ruling - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPOURqYndkZkVGUUZTR2prbzUtQW0xeTQwakV3aVVBZ3htU1daczh3RWZEU0xLRU9rT3ZXTl81REFiUkZydGtnakFZSURnWm1Tb3pDRnI0d3lWcjdHSWNNRTV1bnp4UTFZVjlUc1lLQW9PblpzM25YUjdIdnd3b1ppbjdxS3NPZ3Z5eEg2SXRlU3k?oc=5) |
 | Ernst posts snarky reply after telling town hall ‘we all are going to die’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQWDI1bWZGblV0NjdhcTdRdDlwZW1fY0w5Wk9wTi12M3ZBNnZQWi1rcmkyWW1wUVhZZWpCZ1I0N0N2R3k2eE9mNG1oc2I0dEZvYWd1YnBFY3lBbmU3X0tlcWtJZEVndFdicUR6OG1sV0FaczJHS2NfZTJWSXduNGhxX3JXZHdvVnM?oc=5) |
 | Some of the U.S. could see the northern lights due to a geomagnetic storm - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQZ2FYQVJ4bXc2Z2ZIOHl2NW9KLWJUbFAzSEVPNnVzdjh1cWQ3NnlFaktvR2wtSEJrWjQtVGVMM3RLNVdpQjdrbG05Wk9Vbl94M3RySEo4R3A3NGszVXFhMWNhUlJUU2pMTE5Vd1BqSzdhbXFlZDRTaWVlT0hiMnRhMElRWnBlX2FDUGVnd0tONA?oc=5) |
 | 1 officer killed, 1 wounded and another man dead in Los Angeles County shooting - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQYzA4dmpfWjNDbzh4VHpIRURTcTlrTm81WV9uaXJoSmstN1A0R2x6cnZNN252SE9PUzNKdzZrdnJEb3pVMXF4LVJsSlRtdDVnZjFKVGVUUEYxYl96MGktMThJV0lYeHE5bTV4ZU5la29oOVF2SHUwX2lfRm1UbjMtdmFUSVBEWFdqYVN3SnJBM0RzNkpyM0RLSVBabHFSRHR3ZkQ4UnRBdDhHcGZE?oc=5) |
 | After talks with Zelenskyy and Macron, US senators warn: Putin ‘is preparing for more war’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQVEI3cTlwNHQ5SUFIbVAydF9mWEEzaVlad3lDclcyanVjZXc4ZmZHcWtTMVJTdGxTUC1YeGNxUnNhb2Q1UXNWbG90TDBoQlBfc2Mtems3bmNaSUxKeDBBLTM4cW95MUNFOVlMQUMzNzhiaHV6dmVuMEJ2MExxcVpmeUhrMUZJUXFHNWh1SnhkZGwtWThMbUZMcExyRGhGTDlDUjNlTHF5MTNTdzlHdXBqZ3dpNnhQU0liQVNoLUlsQUNyWjVCcVgxVDRqLS1EaVNpcmc?oc=5) |
-| List of ‘sanctuary jurisdictions’ removed from US government website following criticism - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNR0RWY1dOVVBWQ0VKNFpKTXRmMjg4M3ZqQmV0ZXR0OThuVUFYd3FNZmxzZ1VqdFA5amZraGk0NFNSVVlJZWF0c0ZGTFBhV1dGeUdBLWVXWmRia3BmUGZEbGZRTnBHVm5FZGIxZ1BfZXRoeGJMMHdIdTQyVU9yMXZrMF9IZG91RDZRLTJMZGlXVHRWM3JfS3B2a1pIZ2xDMXFXT0E?oc=5) |
-| Party Activists in California Aren’t Sold on a Harris Run for Governor - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPRlcycUZWTzBSdEJ1Y2dMcUVQOF9WU0NUZHdJeXZPUWNWdVFiWFBfTWJGTkRWTzJHR1BzTVYzOXVqbERuZktiaTJILVd5MVZ3alRad2xwY1RHS1dJVGVJY3R6Z2ExYVlyWHFsU2M4UWUwR1FkRl9HQ3VqaEE2X1hvUzZMQ2lMc3BVNFBZMVY3Zw?oc=5) |
+| $105 Million Reparations Package for Tulsa Race Massacre Unveiled by Mayor - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9QejlCalBKb2pqYkwyQVhhd05lM0JvV1d3R0dpRVFHQzBROGRZRDBJMmJwTkxiT0xCNU1uR3lrYXFITjk5bzQ2M3ZyTWxER1RVb0ZmMzQxVjdEMlRHd3JPeVZJclNjejNxWU5LY3FlQ2dMbGM4ajVpNVdnb2tzMzA?oc=5) |
+| 2 states, 1 tepid view of Kamala Harris and her political future - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPaEwyTS1lR0hkX09wYmRuWkxXMlJFc2tDU1EwTllGZU1aR3B2NlkwbHVIa1d1WER5YmJuQ1R4SDVnRzlDNXRxaFNvZGpWNG1VRm5OV09QWE1IeXNjUGdWUFBMWkpLb01lRzk1YjZTZEVPSGRHcFlNanMyTzIxUWk1aExoR09DLXhEM010SHNiNmFCaEY0am1OZ015WEtyR3dS?oc=5) |
 | Trump administration claims Chinese students ‘exploit’ U.S. universities - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOVWpteEo0MlBDNnpSeUJHS0ZXOE5ENTZqMUhYeDRjREhMd0huWUZ3UHBVT1pUMWduUjFqcnM3dDMyVDdFdHNsazJGNTc3MnBJa09NRklMUGxqSWtjc09EQ0ZVOUlIQTdPMURxdzZvUWpUX0t0NzdaZEtMSGhMSXQ2X3M4dzhBZXNobE5UbElVM2tVQXM1ZG1abE0ycUxsRGstSmpTaEpR?oc=5) |
 
 ---
