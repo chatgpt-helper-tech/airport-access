@@ -24,11 +24,13 @@ jobs:
         run: pip install feedparser
 
       - name: 🎲 Randomized Trigger & Delay
+        id: randomize
         run: |
           # 1/6 概率继续执行
           r=$(( RANDOM % 6 ))
           if [ $r -ne 0 ]; then
             echo "🛑 Skipped this run to simulate ~30min interval"
+            echo "RUN_NEWS_UPDATE=false" >> $GITHUB_ENV
             exit 0
           fi
 
@@ -37,10 +39,14 @@ jobs:
           echo "⏳ Sleeping for $delay seconds before execution..."
           sleep $delay
 
+          echo "RUN_NEWS_UPDATE=true" >> $GITHUB_ENV
+
       - name: 📰 Run News Fetcher
+        if: env.RUN_NEWS_UPDATE == 'true'
         run: python fetch_news.py
 
       - name: 📂 Commit & Push Changes
+        if: env.RUN_NEWS_UPDATE == 'true'
         run: |
           git config --global user.name "bossvpn"
           git config --global user.email "206999043+chatgpt-helper-tech@users.noreply.github.com"
@@ -54,4 +60,3 @@ jobs:
             git pull --rebase --autostash
             git push origin HEAD:${{ github.ref_name }}
           fi
-
