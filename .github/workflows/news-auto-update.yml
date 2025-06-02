@@ -2,8 +2,7 @@ name: 📰 Auto Update International News
 
 on:
   schedule:
-#    - cron: '*/30 * * * *'  # 每 30 分钟执行一次
-    - cron: '0 */6 * * *'
+    - cron: '*/5 * * * *'  # 每 5 分钟触发一次
   workflow_dispatch:
 
 jobs:
@@ -24,6 +23,20 @@ jobs:
       - name: 📦 Install Dependencies
         run: pip install feedparser
 
+      - name: 🎲 Randomized Trigger & Delay
+        run: |
+          # 1/6 概率继续执行
+          r=$(( RANDOM % 6 ))
+          if [ $r -ne 0 ]; then
+            echo "🛑 Skipped this run to simulate ~30min interval"
+            exit 0
+          fi
+
+          # 延迟 5～15 分钟之间
+          delay=$(( 300 + RANDOM % 600 ))
+          echo "⏳ Sleeping for $delay seconds before execution..."
+          sleep $delay
+
       - name: 📰 Run News Fetcher
         run: python fetch_news.py
 
@@ -32,11 +45,13 @@ jobs:
           git config --global user.name "bossvpn"
           git config --global user.email "206999043+chatgpt-helper-tech@users.noreply.github.com"
 
-          git add latest-news.md
+          git add .
           if git diff --cached --quiet; then
             echo "✅ No changes to commit."
           else
-            git commit -m "📰 auto: update news at $(date -u '+%Y-%m-%d %H:%M:%S') UTC"
-            git pull --rebase
+            RAND=$(head /dev/urandom | tr -dc A-Za-z0-9 | head -c 6)
+            git commit -m "📰 auto: update news at $(date -u '+%Y-%m-%d %H:%M:%S') UTC | $RAND"
+            git pull --rebase --autostash
             git push origin HEAD:${{ github.ref_name }}
           fi
+
