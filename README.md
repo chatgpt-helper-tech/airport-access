@@ -904,7 +904,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 
 ---
 
-> 📌 本页为markdown简版导航，如需在体验更好的阅读效果,请访问官网GithubPages页面：  
+> 📌 本页为Markdown简版导航，如需在体验更好的阅读效果,请访问官网GithubPages页面：  
 > 👉 [https://gptvpnhelper.com/airport-access](https://gptvpnhelper.com/airport-access)
 
 ---
