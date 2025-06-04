@@ -2,7 +2,7 @@ name: 📰 Auto Update International News
 
 on:
   schedule:
-    - cron: '*/20 * * * *'  # 每 30 分钟执行一次
+    - cron: '*/22 * * * *'  # 每 22 分钟执行一次
 #    - cron: '0 */2 * * *'  # 每 2 小时的整点执行一次
   workflow_dispatch:
 
@@ -26,7 +26,7 @@ jobs:
 
       - name: ⏱️ Random Delay (0~2 min)
         run: |
-          delay=$(( RANDOM % 121 ))
+          delay=$(( RANDOM % 50 ))
           echo "⏳ Random delay: $delay seconds..."
           sleep $delay
 
