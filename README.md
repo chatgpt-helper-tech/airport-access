@@ -20,20 +20,18 @@
 4. [如何挑选靠谱机场？](#choose)
 5. [快速挑选适合自己的机场](#person)
 6. [2025 年七大顶级机场深度评测（真实实测）](#top7)
-7. [主流机场参数横向对比表（价格/流量/解锁能力）](#关键参数横向对比表)
-
 
 ### 🚀 使用教程：快速上手科学上网
-8. [一分钟快速上手教程｜配置机场科学上网全流程](#study)
+7. [一分钟快速上手教程｜配置机场科学上网全流程](#study)
 
 ### ⚠️ 风险意识与责任说明
-9. [购买建议与风险提醒（如何防跑路/规避封锁）](#risk)
-10. [免责声明与结语](#免责声明与结语)
+8. [购买建议与风险提醒（如何防跑路/规避封锁）](#risk)
+9. [免责声明与结语](#免责声明与结语)
 
 ### 📖 更多阅读
-11. [❓ 常见问题 FAQ（AEO优化）](#faq)
-12. [🌐 翻墙后推荐必看网站](#listweb)
-13. [📎 更多配套教程阅读](#resources)
+10. [❓ 常见问题 FAQ（AEO优化）](#faq)
+11. [🌐 翻墙后推荐必看网站](#listweb)
+12. [📎 更多配套教程阅读](#resources)
 ---
 
 <a id="ssssr"></a>
@@ -220,9 +218,37 @@ IEPL 提供低延迟、低抖动的稳定连接，特别适合高频率、大流
 
 ---
 
-### 🥈 中端机场推荐：
+### 🥈 中端性价比机场推荐：
 
-#### 🔹 <a href="https://youtu6.shop/register?code=erkQTmbM" target="_blank" style="color:#1a73e8;font-weight:bold;text-decoration:underline;">悠兔机场</a>
+---
+### 🔹 <a href="https://inva.xmfaff.cc/register?aff=oClLBb5A" target="_blank" style="color:#1a73e8;font-weight:bold;text-decoration:underline;">🐝小蜜蜂机场 618特惠</a>
+
+**推荐理由**：全IEPL节点专线机场，不限设备数，海外团队,特色年付小包低至8元每月,解锁能力极强,提供美区id下载小火箭Shadowrocket(苹果用户福音)
+
+
+<div align="left" style="margin-top:10px; margin-bottom:20px;">
+  <a href="https://inva.xmfaff.cc/register?aff=oClLBb5A" target="_blank" style="
+    display:inline-block;
+    background:linear-gradient(90deg,#1a73e8,#4285f4);
+    color:#fff;
+    font-weight:600;
+    font-size:16px;
+    padding:10px 20px;
+    border-radius:8px;
+    text-decoration:none;
+    box-shadow:0 4px 12px rgba(0,0,0,0.15);
+    transition:all 0.3s ease;
+  " onmouseover="this.style.transform='scale(1.03)'" onmouseout="this.style.transform='scale(1)'">
+    🐝 小蜜蜂机场 官网直达
+  </a>
+</div>
+
+🎁 支付时填写618活动专属 **7折 优惠码：xmfxmf7** ,大黄蜂特惠年付版价为:8元/月,不享受优惠码
+- **特别提示**：年付以上商店里显示的已经是折扣后的价格了，配合优惠码购买3年付即可享受42折优惠，非常划算哦,
+
+---
+
+### 🔹 <a href="https://youtu6.shop/register?code=erkQTmbM" target="_blank" style="color:#1a73e8;font-weight:bold;text-decoration:underline;">悠兔机场</a>
 
 **推荐理由**：价格实惠，线路稳定，适合日常使用，包括访问谷歌、ChatGPT、海外流媒体。非常适合预算有限、但仍追求流畅体验的用户。
 
@@ -246,30 +272,6 @@ IEPL 提供低延迟、低抖动的稳定连接，特别适合高频率、大流
 
 🎁 支付时填写专属 8 折优惠码：888
 
-
-#### 🔹 <a href="https://boostnet1.com/register?code=kKMFirlm" target="_blank" style="color:#1a73e8;font-weight:bold;text-decoration:underline;">BoostNet</a>
-
-**推荐理由**：线路优化优秀，拥有优质节点，速度快、延迟低，流媒体解锁能力强大。适合追求稳定体验又希望控制预算的用户。性价比高，日常体验媲美高端机场。
-
-<!-- ⚡ BoostNet 推荐按钮 -->
-<div align="left" style="margin-top:10px; margin-bottom:20px;">
-  <a href="https://boostnet1.com/register?code=kKMFirlm" target="_blank" style="
-    display:inline-block;
-    background:linear-gradient(90deg,#1a73e8,#4285f4);
-    color:#fff;
-    font-weight:600;
-    font-size:16px;
-    padding:10px 20px;
-    border-radius:8px;
-    text-decoration:none;
-    box-shadow:0 4px 12px rgba(0,0,0,0.15);
-    transition:all 0.3s ease;
-  " onmouseover="this.style.transform='scale(1.03)'" onmouseout="this.style.transform='scale(1)'">
-    ⚡ BoostNet 官网直达｜专属 8 折优惠码：boost
-  </a>
-</div>
-
-🎁 支付时填写专属 8 折优惠码：boost
 
 ---
 
@@ -391,7 +393,79 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 
 ---
 
-### 2. <a href="https://boostnet1.com/register?code=kKMFirlm" target="_blank" style="color:#1a73e8;text-decoration:underline;">BoostNet — 三网 IEPL 稳定直连，带宽表现优异</a>
+### 2. <a href="https://inva.xmfaff.cc/register?aff=oClLBb5A" target="_blank" style="color:#1a73e8;text-decoration:underline;">🐝小蜜蜂 — 618限时享7折优惠</a>
+
+**综合评分：9.3 / 10**  
+**关键词标签**：全IEPL专线 | 不限速 | 特色年付小包低至8元每月
+
+> IEPL全专线节点，所有套餐不限速无倍率，所有套餐只有流量区别，
+原生IP解锁流媒体，包括Netflix、Disney+、HBO、HUGO等等，
+解锁Tiktok，解锁ChatGPT、Copilot、Gemini等工具，
+晚高峰不限速、不限制客户端，提供美区id下载小火箭Shadowrocket
+---
+
+| **评测指标**     | **详情**                                                 |
+|------------------|--------------------------------------------------------|
+| **开业时间**     | 2022 年                                                 |
+| **入口 / 出海**  | 深圳 → 深港 IEPL 专线                                        |
+| **节点覆盖**     | 香港x10、台湾x5、日本x5、新加坡x5、美国x5、马来西亚x2、英国x2、阿根廷x2、泰国x2、巴西x2 |
+| **协议支持**     | Trojan                                                 |
+| **UDP 支持**     | 全节点开启 Full‑Cone UDP                                    |
+| **ChatGPT 支持** | 全节点解锁，响应稳定                                             |
+| **流媒体解锁**   | 支持 Netflix 全球 90+ 区、Disney+、Hulu、HBO Max 等主流平台         |
+| **设备限制**     | 不限设备数                                                  |
+| **支付方式**     | 支持支付宝 + 微信 + USDT                                      |
+
+---
+
+**📦 套餐价格速览**
+
+| 套餐名称     | 内容            | 价格      |
+|----------|---------------|---------|
+| 小蜜蜂畅游版   | 120GB/月       | ¥20 / 月 |
+| 工蜂极速版    | 240GB / 年 | ¥40 / 月 |
+| 大黄蜂特惠年度版 | 60GB / 月，适合轻量使用 | ¥96 / 年 |
+
+---
+
+**🎯 推荐人群**
+
+- 各平台流媒体内容的狂热用户
+- 注册各国账号 / 浏览冷门站点的数字玩家
+- 做 SEO、广告投放 A/B 测试的跨境电商或技术团队
+
+📌 **一句话总结**：618折扣最多的全节点 IEPL 专线机场，性价比高，解锁能力极强,流媒体、AI、Tiktok全解锁
+
+<div align="left" style="margin: 10px 0 20px 0;">
+  <a href="https://inva.xmfaff.cc/register?aff=oClLBb5A" target="_blank" style="
+    display:inline-block;
+    background:linear-gradient(90deg,#00c9ff,#92fe9d);
+    color:#000;
+    font-weight:600;
+    font-size:16px;
+    padding:12px 24px;
+    border-radius:8px;
+    text-decoration:none;
+    box-shadow:0 4px 14px rgba(0,0,0,0.2);
+    transition:all 0.3s ease;
+  " onmouseover="this.style.transform='scale(1.05)'" onmouseout="this.style.transform='scale(1)'">
+    <strong>🐝 点击前往 小蜜蜂 官网注册</strong>
+  </a>
+</div>
+
+🎁 **支付时填写618七折专属优惠码：xmfxmf7**,大黄蜂特惠年付版价为:8元/月,不享受优惠码
+- **特别提示**：年付以上商店里显示的已经是折扣后的价格了，配合优惠码购买3年付即可享受42折优惠，非常划算哦
+
+
+---
+
+**📊 2025年6月4日实测连接质量和解锁截图**
+
+![小蜜蜂测试结果](./assets/xiaomifeng.webp)
+
+---
+
+### 3. <a href="https://boostnet1.com/register?code=kKMFirlm" target="_blank" style="color:#1a73e8;text-decoration:underline;">BoostNet — 三网 IEPL 稳定直连，带宽表现优异</a>
 
 **综合评分：9.2 / 10**  
 **标签关键词**：深港直连专线｜移动端友好｜新人专享 8 折｜年度备用流量包爆款
@@ -459,7 +533,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 
 ---
 
-### 3. <a href="https://youtu6.shop/register?code=erkQTmbM" target="_blank" style="color:#1a73e8;text-decoration:underline;">悠兔 — 电信接入，IEPL + 隧道双通道智能分流</a>
+### 4. <a href="https://youtu6.shop/register?code=erkQTmbM" target="_blank" style="color:#1a73e8;text-decoration:underline;">悠兔 — 电信接入，IEPL + 隧道双通道智能分流</a>
 
 **综合评分：9 / 10**  
 **关键词标签**：多入口负载均衡｜灵活流量调度｜年付低门槛｜中端首选机场
@@ -537,74 +611,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 
 ---
 
-### 4. <a href="https://honven.dedicated-afflink.com/#/auth/lN2XqdIt" target="_blank" style="color:#1a73e8;text-decoration:underline;">TAG — 全球 90+ 国家原生家宽 IP，冷门流媒体解锁专家</a>
 
-**综合评分：8.9 / 10**  
-**关键词标签**：冷门地区 IP｜原生家宽｜流媒体解锁全绿｜年包超值高性价比
-
-> TAG 是少数真正支持全球冷门地区 IP 的优质机场之一，适合流媒体多区玩家、国际账号注册需求者，以及跨境从业者。超 90 国原生家宽节点，全解锁 ChatGPT 与 Netflix，支持高并发设备，极具自由度。
-
----
-
-| **评测指标**     | **详情**                                                                 |
-|------------------|-------------------------------------------------------------------------|
-| **开业时间**     | 2018 年                                                                 |
-| **入口 / 出海**  | 深圳接入 → 深港 IEPL 专线                                                 |
-| **节点覆盖**     | 超 220 节点，92 个国家，含 AT&T US 家宽、KDDI JP、CTM MO 等稀有落地        |
-| **协议支持**     | Shadowsocks                                                              |
-| **UDP 支持**     | 大多数节点开启 Full‑Cone UDP                                              |
-| **ChatGPT 支持** | 全节点解锁，响应稳定                                                      |
-| **流媒体解锁**   | 支持 Netflix 全球 90+ 区、Disney+、Hulu、HBO Max 等主流平台               |
-| **设备限制**     | 最多支持 10 台设备同时在线                                                 |
-| **支付方式**     | 支持支付宝 + USDT，灵活结算                                               |
-
----
-
-**📦 套餐价格速览**
-
-| 套餐名称       | 内容                        | 价格      |
-|----------------|-----------------------------|-----------|
-| 个人 Bronze    | 250 GB/月，季度结算         | ¥176 / 季 |
-| 年度流量包     | 200 GB / 年，备用推荐       | ¥154 / 年 |
-| 团队套餐       | 3 TB / 月，适合多用户场景    | ¥627 / 月 |
-
----
-
-**🎯 推荐人群**
-
-- 各平台流媒体内容的狂热用户
-- 注册各国账号 / 浏览冷门站点的数字玩家
-- 做 SEO、广告投放 A/B 测试的跨境电商或技术团队
-
-📌 **一句话总结**：全球节点最多、自由度极高的流媒体“解锁神器”，堪称冷门 IP 收藏家的乐园。
-
-<!-- 优化版注册按钮 -->
-<div align="left" style="margin: 10px 0 20px 0;">
-  <a href="https://honven.dedicated-afflink.com/#/auth/lN2XqdIt" target="_blank" style="
-    display:inline-block;
-    background:linear-gradient(90deg,#00c9ff,#92fe9d);
-    color:#000;
-    font-weight:600;
-    font-size:16px;
-    padding:12px 24px;
-    border-radius:8px;
-    text-decoration:none;
-    box-shadow:0 4px 14px rgba(0,0,0,0.2);
-    transition:all 0.3s ease;
-  " onmouseover="this.style.transform='scale(1.05)'" onmouseout="this.style.transform='scale(1)'">
-    <strong>🌍 点击前往 TAG 官网注册</strong>
-  </a>
-</div>
-
----
-
-**📊 实测连接质量截图**
-
-![TAG测试结果](./assets/TAG-Test.webp)
-
-
-
----
 
 ### 5. <a href="https://beibeilink.top/register?code=Oa86Fbs3" target="_blank" style="color:#1a73e8;text-decoration:underline;">贝贝云 — 高性价比之选，江苏入口+活跃社群</a>
 
@@ -675,7 +682,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 
 ### 6. <a href="https://aff.joinhaita.com/register?aff=Jqfg23Tx" target="_blank" style="color:#1a73e8;text-decoration:underline;">海獭 — Trojan 协议入门优选，稳定抗审计</a>
 
-**综合评分：8.0 / 10**  
+**综合评分：7.9 / 10**  
 **关键词标签**：Trojan 全节点｜中部入口｜不限设备｜抗审计协议
 
 > 海獭是一款主打 Trojan 协议的实用型机场，适合入门用户或家庭多设备场景使用。价格亲民，不限设备数，支持 Netflix / Disney+ 流媒体解锁，是小体量用户的高性价比选择。
@@ -748,7 +755,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 
 ### 7. <a href="https://inv03.lmaff01.cc/register?aff=Y6CVzzEF" target="_blank" style="color:#1a73e8;text-decoration:underline;">龙猫云 — Hytron 接入，无限设备，移动热点优选,最低可享受48折优惠</a>
 
-**综合评分：7.9 / 10**  
+**综合评分：8.1 / 10**  
 **关键词标签**：Hytron 香港接入｜无限设备｜IP 白名单可控｜全节点解锁 ChatGPT
 
 > 龙猫云主打“设备无限制 + Hytron 稳定接入”，适合海内外双居或多设备共用网络的用户。节点数量丰富，流媒体解锁全面，适合作为中轻度需求用户的主力或备用方案。
@@ -819,21 +826,6 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 **📊 实测连接质量截图**
 
 ![龙猫云测试结果](./assets/LongLong-Test.webp)
-
-
----
-
-## 关键参数横向对比表
-
-| 机场 | 定位 | 协议 | 参考月付 | 月流量 | 入口 / 过境 | 流媒体 | ChatGPT | 登录数 |
-| :-- | :-- | :-- | :--: | :--: | :-- | :-- | :-- | :--: |
-| WgetCloud | 高端旗舰 | Trojan/SS | ¥59 | 140 GB | 广州 → IEPL | 4K 全绿 | 全解锁 | 3 |
-| BoostNet | 高速主力 | SS | ¥39 | 200 GB | 深港 IEPL | 4K 全绿 | 全解锁 | 5 |
-| TAG | 多国家宽 | SS | ¥176/季 | 250 GB | 深港 IEPL | 92 国解锁 | 全解锁 | 10 |
-| 悠兔 | 稳稳性价 | SS | ¥29 | 150 GB | 电信 IEPL+隧道 | JP/US/HK | 全解锁 | 5 |
-| 贝贝云 | 低价主力 | SS | ¥14.9 | 100 GB | 江苏隧道 | 港/美 4K | 全解锁 | 5 |
-| 海獭 | 入门 Trojan | Trojan | ¥15.99 | 100 GB | 中转公网 | 部分 | 部分 | ∞ |
-| 龙猫云 | 无限设备 | Trojan | ¥15 | 100 GB | Hytron 直连+隧道 | 多区 4K | 全解锁 | ∞ |
 
 
 ---
