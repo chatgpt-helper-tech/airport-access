@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月04日 17:49:36（北京时间）**
+🕒 更新时间：**2025年06月04日 18:14:32（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Family of Boulder suspect taken into ICE custody for expedited removal, U.S. says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQRG13ZUlJUmo5eXV6WjY3T1VtempSYUNNVUl5b1E4V1pPVS1zZl9ON0JUbnFZN2FURFJ3THRqRk4zYnZYMGo3UkI4SlhFRDdsVTRaUVR3bXVoUjBTTU5hV1dQdEtqREVaSzB2ZEczdlJXOVhXS3hub0ZJRjdRcVJWa0NCVFNDeTZtSWh5WnlBVnlKa1hVOUxuejZIVQ?oc=5) |
-| Elon Musk gives Dems new anti-Trump ammo - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPbjZubmJKSU5UUUdyTFdVOTdfc0QzbUt4bzJVQy1EeWdvTUlGUG13X083U0lGM2JOb0FiXzBEUTBweWtIMmhFZkFYMnlmcjVhNkJjM2dsbUE2cFU1eXpySXd3VGh3QUU3bHp2RW9rZ0pJUzhHbi0zTFp5MHk3cC1IT1lVLUJFQQ?oc=5) |
+| Elon Musk gives Dems new ammo against Trump's big bill - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPbjZubmJKSU5UUUdyTFdVOTdfc0QzbUt4bzJVQy1EeWdvTUlGUG13X083U0lGM2JOb0FiXzBEUTBweWtIMmhFZkFYMnlmcjVhNkJjM2dsbUE2cFU1eXpySXd3VGh3QUU3bHp2RW9rZ0pJUzhHbi0zTFp5MHk3cC1IT1lVLUJFQQ?oc=5) |
 | UK temporarily spared from Donald Trump's 50% steel tariffs - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBwOGc3cXVCNzhrV1RFcWkyV2J5d2t1ZHBqVU9tR3hzRnhFUDBhdnVaUVAtM1MtQktzQVRrdVBwdk9PdnU3bnNieXV5Tmh0TjVacFREYmJreDJfZ9IBX0FVX3lxTE5LT3hOU3k2T21qakQzRkxyYm5PMk9IOVE2Vmt2WVJ6S1lxVmFadzdyQmlKd1F3TWxiMnRkVkRUSWk0VnphdER1Nkd6NndvbHJVLVVZeUxCelFpcW9wajYw?oc=5) |
-| U.S. May Strip Harvey Milk’s Name From Navy Vessel - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOcXo3SjlxNldCX2tVbXlSZ2pfMkMyMzJCdmN2bVhRVXNBSDgzcGZvUDllbXB3UGJDQjZZcFlDbHJiNDNWRHZfTW1OM1dnQVVRMks0VnhRamFrbDNFUHgyUEtRbC16ZF9wUTVfNHZfTEFxUDhtYVV5Z0F0UGFaeHVzaTdBeUtZdEliWEE?oc=5) |
-| Trump asks Congress to wipe out funding for public broadcasting - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPUVA5QzV0X3prNmJEaVozdXAtbVViRzd5Vl85Tld2S3J3eTFudllPUTF1OVAtbUZNUmI0dUR3dWRnOU1nREppN2dkekdzQUduMjVxc2ZweEFva0s2T2U0d3oxTlBDX0o1LW5henUyZWt1bWRvTEo1ZDBVa3NxNDhjRXhoZmNGWHFKUW5tejlSQkl3V2M?oc=5) |
+| Trump Asks Congress to Claw Back $9 Billion for Foreign Aid, NPR and PBS - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1lU2J1cjVTZzl3bUswUzFvYkpYb1l3d1ZJUG5uSkIzNkJlNHo3dUFHTjJELWtzNnBPZUxEeWFzcTZST2ptUlhOS0VyR0FiSDRwc2tNaWxBM29RZkc1bzRPV1ZycWVkSDNfYTYtVW01SHNOczVOOUo3dm1FLVp4UQ?oc=5) |
 | Satellite imagery shows Ukraine attack destroyed and damaged Russian bombers - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxOREZENXJVYW9UTlJmcDhmYnlZOXZieTJialJfdDZUdDZrZWNJM0xJaENzN2s5LVFWNXhPSlZCcVJ2aE4tZ3RxZ0RIcHNuSkYyUFNOcUF3Q3owTGtCRU1BQ1FPR3VnLVQycVgyS0RYdmRBZ2c1V1VtUjZFbHdhMU9pblNzMS1sOWdRN1U0ZFo5dUlaNExrSjBiYTlCemhMd2ZpajIzNU1tYWIxUHZyNUJWczNxdXZ4V2d3RVA3Q1U3S21kOHdZdjYwOFdVaUh6QU12?oc=5) |
+| Hegseth orders US navy to strip Harvey Milk name from ship amid Pride month - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOVFNXTHdHYjJtbkcxYjUyYldlSWw3UWRieDlYQUxBWF9xRWRucXItci1XQmVFQWdhUjBaNExGU1E3Rll6X0lLMGJzR3lPVHVpVzZ5OFZod2l0R3NjTGxvU1VzNFFMVk9uMWM1cDlxblJoRkFxY2tIaU4wcU5HVy1yalVCZw?oc=5) |
+| Trump urges senators to get his big tax bill done by July 4th - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQSGFkWWtLT2s4NWZQZElSMEdRSWl2bzhBNXA5cVNMMFdoN3Q2WVgtZ1pRNEVtUTdiUTRCSU9TNy1UZ2N1UURSZk5kT3NRM1pTQVFHNUNucU9DSGdwYUNPa1JrMDF1MmNnenpZYWxseFAzOEZyMzRiN0NDR3A1OW4zVWtzN2QwNnRoZmpvSEdyU05rZ25X?oc=5) |
 | Police Hunt for Father Who They Say Killed 3 Daughters in Washington State - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxONjdzRUg2eHJZODBZZzBpa2NaaTJaYmZnNE1yUXZ5MzJIYVJiU0l4SlhiU1FlaDhoWVpVdTh0OHBkOWl6YU9VSHJ5a1RvZEtRYW80RF9ZU1BFVV9FUmZBMFRjYW9CY1BVNktZUVZodlFtbHY5LWdPTmQwSXhRQTBya3pvc1ZDY3BVdnZxUkVRYw?oc=5) |
-| Florida higher ed board stuns UF, blocks Santa Ono from becoming president - Gainesville Sun | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxOOXJEcXphN2pfZ0hTbzhpUTVqd21YUXpxUWZPTmpxcXBTclhMMHNSeWJNVUlGWFMzWUhabklGVndTTlMwMUpOTjhJV1F6eDJUeFdUNElwRTB1TDdqejlWUXVHT0R6YjAzaFFkVzFBek9RSWRZMUhVenBFcXhValZuRl9HdGVKcnpOV1N0QzBBdmQydVVWaXNDWWxMTVBNZy1RT0xaSHdncUVkbE9NWUEtZ2JCdnFiNWdnNlU5bDQyVThSanNJWDBmZmJ1eTB0ZXNENmRHaXdzNlhyUHI5?oc=5) |
-| ‘Dead man walking’: SoCal man charged with threatening to assassinate Trump - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxQY04ybHpTSzFXM0ZYZFc1WXd3S01oVmVXbzhJRnBxWXd4aGJURmNpa2F0SW1yOUJFNXM1cW5jWDhMWXppc09uY0oyazA3Sm9RRlBZWjRQaHhDVmQ1em9qUjlRRkRWd2hnWU5BYzNiVmdCcjN3ZG9JNUJGdEZLOXdDOWstcmJVNm1oU2VXUjUwSnZ0eUpRdWRMbVZLcl93ajFjSnBEbFVqR3NCMEFZbDl0QVl6UnRfTVA4S3lHb3ZXU043M0N5bC1TLWNnYnNzTGZtZW1YX0lQYw?oc=5) |
 | These regions have poor air quality from Canadian wildfire smoke - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQdlJJTWJNNFRLYmhkWEJvQnZJTmtjWEkzWFJyV0puTXVHWlNOT0lmSmJ1YS1Vc3lJMlNUZGNUb1RXeFlHc0dPdk0tMUxRUFQ3c2VybmsxT29CUkkzc3ZTdkVDTkVTUm1LNGRhQlF0QUdmUWl5d3VBVi02ZDBWWDFNWnZWbjUwVnV4SV9yckI0cHN3VEZIV2c?oc=5) |
+| ‘Dead man walking’: SoCal man charged with threatening to assassinate Trump - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxQY04ybHpTSzFXM0ZYZFc1WXd3S01oVmVXbzhJRnBxWXd4aGJURmNpa2F0SW1yOUJFNXM1cW5jWDhMWXppc09uY0oyazA3Sm9RRlBZWjRQaHhDVmQ1em9qUjlRRkRWd2hnWU5BYzNiVmdCcjN3ZG9JNUJGdEZLOXdDOWstcmJVNm1oU2VXUjUwSnZ0eUpRdWRMbVZLcl93ajFjSnBEbFVqR3NCMEFZbDl0QVl6UnRfTVA4S3lHb3ZXU043M0N5bC1TLWNnYnNzTGZtZW1YX0lQYw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
