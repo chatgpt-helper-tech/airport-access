@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月05日 00:00:14（北京时间）**
+🕒 更新时间：**2025年06月05日 00:05:25（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | Gaza worse than hell on Earth, Red Cross chief tells BBC as aid centres close for day - live updates - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5Nc0NDRlJiMnV3YmFpT0FkNWF6dGlJOERGVjNYRHViWE5GQjMxblZMbHVOd2tldDlUYUZzaE11M3hxQ0pULWZFdjdNTGFvaHA5anpyeQ?oc=5) |
 | Family of Boulder suspect taken into ICE custody for expedited removal, U.S. says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQRG13ZUlJUmo5eXV6WjY3T1VtempSYUNNVUl5b1E4V1pPVS1zZl9ON0JUbnFZN2FURFJ3THRqRk4zYnZYMGo3UkI4SlhFRDdsVTRaUVR3bXVoUjBTTU5hV1dQdEtqREVaSzB2ZEczdlJXOVhXS3hub0ZJRjdRcVJWa0NCVFNDeTZtSWh5WnlBVnlKa1hVOUxuejZIVQ?oc=5) |
 | How DOGE's push to amass data could hurt the reliability of future U.S. statistics - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPbG5pa2FJWGpCbEhMZGNldENBN2hLZ0xodTRuczF1S0dfU0EwZjhjUndDRDFGX2tuNk5KU3FPZExwa2wxSDJ3MjZHZkEzSzA2aUh0SkhZalpfRjhCN1JFM3E1YWV0VTE1QXBPYTl0b3Zob0dwelNsZXBNeWpLSzc4NXk1ajdpanV6WTRVajU0SzdVQQ?oc=5) |
+| Elon Musk privately expresses frustration on a range of recent moves by Trump administration: Sources - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPNG84WklLSjFPcHRzcDI4RXZjUTJXbUkzNER0Ti03OHRtWnp1Z0M3MlMxcXdmRkRzQUloTGJ6Y2d5cUVCWHdlV29Nd1Vkd0hYRTB2SkZ5UnBDSkd2bGl4cVdpWUF3Y2hXT1d4djhya0F3S0x3VDdNekdiYWpHbU5lcU1uYnkxUllwZFdDbHlNWW4ydmhRYnhEeFdUa1BicmVrRFJ5SDhya2gzVlY5R2RwY9IBtgFBVV95cUxOd0NvS1dHb0VKU09saGVhV0h1ZF9ITW5qaVlrTmJZM1ZUS2dBRjdacm1wZDRvZ1ZrQ3pWWHFkeVdNU3FkMGhnOU9hNjJiTWZyQ1ZLR1ZSN0dqaUtWOEI5bTdRMWdyRlk4R1JFMkY5MjBBTE9VT3hFTkNBR3hnZjNTNnU3anVGYm1ocXJ2WC1iaGo3RWZ0VE1RSm16UkdXMnJoclN2SUg1b2t0OENZc0ZwMHBLNjRGUQ?oc=5) |
 | Disbarred lawyer Tom Girardi sentenced to seven years for embezzlement - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE40eHh2ZjQ4bkZjMXZTdjVfRklxUmE4dVdmMjlRUEIyMWhTVU5nZ2x5OTExd3FMakUyNWZ2VDkyaXdITk9Qelo3QXlEeDFCMDVDSHpFMkc5U3gxTUJmTXVIcEF1eTdmN0RuMmdQMlNnWlJGSkhhSVBmZ1Z3?oc=5) |
 | Santa Ono falls at final hurdle to become UF President - Florida Politics | [阅读全文](https://news.google.com/rss/articles/CBMiaEFVX3lxTE9rWGJLbUZxOV92SFdRcHpSdmtFQXRLUVI1UFAzeDFnUVlvQVAzMHRUOC1iRWJjU0I0bm1kNl9JdVBrMlp4ZVlWRHNkaTVJcGZDSzgya1BlN0hlQ3FXdXlhbGw2WHcyQ2Ey?oc=5) |
-| ‘A ton of tradeoffs’: Thune acts fast to cut deals and move Trump’s megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPbDRHS2pMUXJSSUpZeEllNUs1bmdNMHJheUZ3cElPU2U1cFVZRjRiLTY3SWRua1pSZ3luX3A1czZqcnl0czZGV1dtUXdHbVY2M1o3ZzdWQU9ENHI3S2UxWTlHVk5VU3FyYTdSUE1rUXRNRG5uVk5qMVlaSDZjVU9xa3V2M3Y3aXNMdXJxMks3TkhkM1k?oc=5) |
 | 4-year-old from Mexico receiving 'lifesaving medical treatment' can remain in US: Lawyer - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQWE9rejdCaGNUZUFZYUxIbW0xTXBodEotVlVISE5xY0RLbGZac1I0SlQyLTVVWWlIdjRTNW5KTnlCVmNSWnJLcGR6ZlZnY3VQM2RDZVY3R3lBa2w1VTJfN2tPTWU5Y0M3ZVZyNk1zaFlZZjV3Tlc4RXNpLTZFMkFCdEUzZm9PSkJhakZtRkZfN1JZUjdGVjY4N3NkblRiSHNocjVPM0h3UdIBrAFBVV95cUxPRnNJUmdrbjNacC1LRUljd1k0aXdGNF9Ub1k2VUtZMlVkSzlPOWtRckNxMEN3UkFJZjJVLWVoamt6SFZFdnZxNTJudkZSVGJsSWNYWGFtZFVqc001WEZQV1BJSXk2azI5ZElaWHBmaWtqMXBESUpzSW1SV01DTk5pcmdybWgyVHZaclNqU3JUQ3l1ZWpFS1VIMFNzMUg0OVBuWnRvQnl3Tm9VV0d5?oc=5) |
 
 ---
