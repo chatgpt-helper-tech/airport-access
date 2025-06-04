@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月05日 00:53:27（北京时间）**
+🕒 更新时间：**2025年06月05日 01:00:25（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Elon Musk is on a national debt crusade after slamming Trump's spending bill - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOLU1HUGNLdFBWTDl2Sm1HVzI2R0VGd2dOS2RBSTBsakVuUVMtYWRYUUdoYUgwNVFoZEVCc3dXMjdlRWxGMFpZcEJkMlg2WHNkM09KOXlWaWRLajZMMnBsZ3g1dVFvMU5ycDRLNVpPYkQ2NlRaalNienM0cGRySmJoLUlVNVJ4c3h2Uy1z?oc=5) |
-| UK temporarily spared from Donald Trump's 50% steel tariffs - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBwOGc3cXVCNzhrV1RFcWkyV2J5d2t1ZHBqVU9tR3hzRnhFUDBhdnVaUVAtM1MtQktzQVRrdVBwdk9PdnU3bnNieXV5Tmh0TjVacFREYmJreDJfZ9IBX0FVX3lxTE5LT3hOU3k2T21qakQzRkxyYm5PMk9IOVE2Vmt2WVJ6S1lxVmFadzdyQmlKd1F3TWxiMnRkVkRUSWk0VnphdER1Nkd6NndvbHJVLVVZeUxCelFpcW9wajYw?oc=5) |
-| Trump envoy says risk levels 'going way up' after Ukraine struck Russian bombers - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi2AFBVV95cUxNdUNicUxvRWhqTnZXSlVqaDRmQjc4ME1IRkk5djN6TkF2LUZpZU84a2hfVXlUTkRzU19tWjdwQW9rUU1wTGZFTDh3R0JsdHNVQ1lyRmpLQWpxVTBWRjNySWpFMVJCVVpWNXktZmxZV1VEbFJpcWtHcDhLWjJSQzNMNVU3RzZJZ0JZX1RPdC1rc24zcEl6RnRpRjUtTGR0X2ZLTVFxbTQwczBmT2ltV2MtMzRJc2tFQk5aOUI1NzNIRmlid0hsdkVfWmhxTDZnX2M2RVVxd3VHVWE?oc=5) |
+| Congress budget office says Trump tax bill could cost $2.4 trillion, less than earlier forecast - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPaEptU1ZLQ3NFN0xFUExlcmROcUdXQ3A4QVhvZVVqZjFOR016ZlZBVnd6QVZIX3FCRFNPWS0tSkxHWUplOHBHZXNhOGU2TE1HaUlPWU0xb2tlQTBVT1ZPRkhBVXF6VHkyZm9xS2lJUDRCTllnMnh5VlBUeG1aTmN4VzNrU1N6U01zNFVOUWI2VnZzWmpKRGdMaWdYVnlYdmpqMUl3WG12Q1lEc2hMRm9Rajc3YnZRYkJIT3c?oc=5) |
+| Ukraine's "Spiderweb" drone assault is a wake-up call for all - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE14aTRRSG0tdlBpb0s0VmJvVHU4MnFjZFVYd2pnVUVUb1lrVGxlU2RzOHpUSkFNbmhSdUIzRTNweENGZGRJaVlhajZKc1lEVTQ2bk5KU3h1T0p0Tl9WSFVFMWNXRTdXcjEtTVA0YkFrUlNwdzBlS2t3UERGVTc?oc=5) |
 | Boulder attack renews safety concerns for US Jewish communities - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE81aEVrRE56eFl4azczTnI3d3ROTnltYWtPa0gxT3gxS1JFci1fMEFrQ0lXMkgxdjc3aTJ4aWVIZ0ZNMkRlNlRFVEJTSlVIY0ZpOGRaUkNHbUdnQdIBX0FVX3lxTE13LUwxb2JKWDZzdFBuT2xTUlZPdGhQel8zLW1faFlHSGhIa2s4SURDeEZRY3pSd2VsUHRJYnNQWXJUYWFCY3M0TzFlN1AweWhDb2FZOEVGd2xCYUUzSnFF?oc=5) |
-| How DOGE's push to amass data could hurt the reliability of future U.S. statistics - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPbG5pa2FJWGpCbEhMZGNldENBN2hLZ0xodTRuczF1S0dfU0EwZjhjUndDRDFGX2tuNk5KU3FPZExwa2wxSDJ3MjZHZkEzSzA2aUh0SkhZalpfRjhCN1JFM3E1YWV0VTE1QXBPYTl0b3Zob0dwelNsZXBNeWpLSzc4NXk1ajdpanV6WTRVajU0SzdVQQ?oc=5) |
+| Elon Musk derides Donald Trump’s tax bill as ‘a disgusting abomination’ - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5fTDFsc0w3N0RlX0NMWmtfa256OXpIdGxaaHVkbHdVSVdEX0pTX1luZWxmQ01HaWxvTER1ZEVIMW9WRlZuTkpZY19pNzRYVWRmcXRDRVoyM2lRTHJjWUF3OWhHMnloQVFHdDJJQ0Z2Tmk?oc=5) |
+| Trump’s 50% tariffs on foreign steel and aluminum come into effect - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNSGd5LTV6OTVhOV9RUUFSTW5yQk1Sa0p0YUpmYWFueEgzNUhndGg0aW52N0VxaXhud2taa3pmR0ozaEE0WUl5UFI0R0FneUN2NDVwdjdpS3A0QWc3bElEY19hZmFzazlZZGt3aXM3OEJleGh2ejZ5cFZHQnJ2aEJiaVdn?oc=5) |
 | Manhunt underway for father after 3 girls found dead in Washington state - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOemtPeXBld2NrcGI2Mk5GZjR6cnBaR2ktTndNTGJxRXBoZkFyZmhvQ0o0MUZUNGhkMlloRFdMYXJZSnRkSGgxR2F4dGZqaEdEQVNBN1RDenlxcmdHU29RR1oyNmZmMVVoNVdOdzc4MWhKNUJ1N2JVZ0h6dmlmM2s0eDVlSEdWTTlxOEV0dG4yZEVZWHZzdEVUMWRBN01jUQ?oc=5) |
 | Man allegedly linked to Palm Springs bombing arrested at JFK airport - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQdlpfWENUdnd1WFlTZ3h3Snd6Q3Ywc1JSR3pSZkR5UTlQRjdmdXZ0a21CSElxNjNlZ0M2V1hJWUhwT056N0dOeHQxODIwVjh6ZXB3TjgzRnN4R2FIWURIb3NwTGllWGNIUGhSUUhDc3p4MnRSS1d5YlBJeUQ5dUJvTVg5cVFiMWxnbTMw?oc=5) |
 | College board reverses decision on hiring University of Florida president over DEI concerns - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPS000YV9jSEZsWjg5YjlIWE9zN2VpSW9RdVFPWmI1TEJ1TjY1YVFEWER2WHNCQ1VUMXV0dVhFQ2UxelhkTXhickFQOGxrT3VHR3lIVTkwYmROXzFzTk1fYWVMdGwzSVhYZzZDVm16OHM5bkxVNDktU1BPbWx2YWFSWnU0YXc3VkU?oc=5) |
-| ‘A ton of tradeoffs’: Thune acts fast to cut deals and move Trump’s megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPbDRHS2pMUXJSSUpZeEllNUs1bmdNMHJheUZ3cElPU2U1cFVZRjRiLTY3SWRua1pSZ3luX3A1czZqcnl0czZGV1dtUXdHbVY2M1o3ZzdWQU9ENHI3S2UxWTlHVk5VU3FyYTdSUE1rUXRNRG5uVk5qMVlaSDZjVU9xa3V2M3Y3aXNMdXJxMks3TkhkM1k?oc=5) |
-| Tom Girardi, former high-profile lawyer, sentenced to 7 years for fraud - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxONVJWek4wTGVuaWR5d28tYlNxX2hnWW4wbklGa2JyMVBYZGlRNUtvVmJFX3dDcGdERXB6SDhrRG15NW9zOC1JWDdXbUk3S3lFMWxTMnBjbDhDLWc1ODg5T0s4Ml9xUmwzcXBULVR5NzlQVm4xUjBuR0lKLUF2cVdMTUlENXVlSVVKeVVFbGhvMnY?oc=5) |
+| Trump administration strips federal protections for emergency abortion providers - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9wRGdwRjhsQ0tJc204a2hETkxoaERQLV9tXzRfbDhHa3lURVU2QmlQMXRUVVBiUGNlUmlvRjFtOHlsZXlhSWRrMEh6WXBFR3JPeHVvZU9BbmU0ZlFlbGIxWTVYcHJ5VTJzRkNNNGtsVFNxaW5qLUZueEtkWWVwZE0?oc=5) |
+| Hiker found dead, his daughter still missing on Maine's highest mountain - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOeWl3X2Iza2NzMTBuV19wUVRtdDV3Zzh5WGo1M0tKQzE2eDRQaGU5LVBHaVoyYm8xTF8xQkhsdHZ1anFVcnBvdkdZbzJkendxOEFCbEpJR1loQUNNVlQtWndTYU1ZNjBRQ2VaZTdMVC11MFJ3RGNMU0ZiQXNPcDk3eGhGYm_SAYoBQVVfeXFMT1NjRDY0UDFhV0pEZzdPZjB0Wkc3U2ZycHg1Yy05WlU1M1ZTenBxNTd1c0FhMEo4MkZSZkVmZktXQ0dPVS1oZDkxZzkyTkc0X0hLYTBlOUUtUzVzeWdTSTlzR1ZsUjd2Q2JHQ3VwVHktM3NWcWdqSkxPUXFTUzBIbHl1MnFZMlNqek13?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
