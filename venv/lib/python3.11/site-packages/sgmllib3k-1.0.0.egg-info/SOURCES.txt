@@ -1,8 +1,0 @@
-README
-setup.cfg
-setup.py
-sgmllib.py
-sgmllib3k.egg-info/PKG-INFO
-sgmllib3k.egg-info/SOURCES.txt
-sgmllib3k.egg-info/dependency_links.txt
-sgmllib3k.egg-info/top_level.txt
