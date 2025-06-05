@@ -6,6 +6,8 @@
 
 > ⭐ **觉得内容有用？欢迎 Star 收藏 + 分享给身边人，让更多人安全、稳定、自由地连接全球网络。**
 
+> 📌 墙内访问Github太慢了,如果加载不出测速解锁的图片请访问GithubPages页面：  
+> 👉 [https://gptvpnhelper.com/airport-access/](https://gptvpnhelper.com/airport-access/)
 
 ---
 
