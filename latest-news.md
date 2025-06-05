@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月05日 10:41:55（北京时间）**
+🕒 更新时间：**2025年06月05日 10:55:15（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | Are the surprise airfield attacks a turning point for Ukraine? | [阅读全文](https://www.bbc.com/news/articles/cn4gp2g7g47o) |
 | Pregnant women warned against using weight-loss jabs | [阅读全文](https://www.bbc.com/news/articles/cn0gp2pl7zwo) |
 | Ros Atkins on... The White House claims on BBC Gaza coverage | [阅读全文](https://www.bbc.com/news/videos/c9wgq9vv51do) |
-| Gaza now worse than hell on earth, humanitarian chief tells BBC | [阅读全文](https://www.bbc.com/news/articles/cvgq0gy82wjo) |
 | The country where the left (not the far right) made hardline immigration laws | [阅读全文](https://www.bbc.com/news/articles/c1mgkd93r4yo) |
 | Badenoch launches review into possible ECHR exit | [阅读全文](https://www.bbc.com/news/articles/cgj8p2pv117o) |
 | Musk turns on Republicans - and gives Trump's big bill a harder path | [阅读全文](https://www.bbc.com/news/articles/cvg5zpn9vkwo) |
 | Stores open at midnight as fans rush to buy Nintendo Switch 2 | [阅读全文](https://www.bbc.com/news/articles/ckgxwe774zwo) |
+| First trailer for Wicked sequel released | [阅读全文](https://www.bbc.com/news/articles/cx2e187e1njo) |
 
 ## 📰 Google News
 
@@ -29,10 +29,10 @@
 | Hundreds of Venezuelans deported to El Salvador have right to challenge detention, US judge rules - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxOUHd0dll3UW42Q0FJQUpqSWJ3UzF3R3Q1LTFya2tGN0EtQ3IxQ0lKQVc5Y3VHX1R3M045QlA4M05RbXlUWXV1V2piMVJ3R1EzRnQtZklPVFdMTUpRVzBSdDlxemk5V0gzMlhHOE1UOGswcmNkXzNQdFZIVVVIYm1UaXJkMl9VRi0zZVFtUDlha1RqRmhmUXFJQzExOVVlZmlGajFzTVhtS0hESkN4Vnhpa01wYTAwV3RxakxBbVlXS0lmbTU1MGdNdg?oc=5) |
 | Man Charged With Providing Material Used in Fertility Clinic Bombing - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQU0NKZ3MzRTlHamRXS3NNVUlTdk4zN0dKQ0FHeGJsMnR0eHlKUkFsUW0tVGFLeGJ3TEpCZ0pabUJObUVKdmRwNTVHZ25xbWVoZHJGbUh3aTAtdWh0b04tUG1Ud1p3RHFkRTc4ZkpDVE4zV1lzTFpRY1FPU1ZhSzNOTjVrZi1VS2FTRTVfS1lqWQ?oc=5) |
 | Trump says Putin told him that Russia will respond to Ukrainian attack on airfields - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPdDEwZzk4UXR5NmliOUtEbk5lMEwzV2wwbDlsSTFkRDFLVnRtTUZKVHFDbUswaG1EYmdVWHZyclRSRk5nZVdid3hJT0dfUFJoTXNkR2xLLUtGalBSeDZCLWlQUnpTZjRnd3V3VmpaT3c4QVVpNGNuZTRKY3dQOFJ0N3hpcnZGVXBYSEUyVXZSSHFTZE5aYWhHakxMRUs1dG9sQ1E?oc=5) |
-| Trump orders investigation into Biden - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPRUxUWjJfWDI2amhuVHlrZmctaDd2a3hwZDRHYjlHRldDZW9yN0hCQjdWc3NPRURxejhXdWcwakUzTzN6dHZRaDFncDhIWDRiUS1veHUzNEZXTHVFRGFqVjdXazRZSVc0LUFSMDVReW9PT093Z3NTU3pwSWFSVVQtUHFEeldKcFg1N0hkZzJWQnhZdw?oc=5) |
+| Judge blocks deportation of Boulder attack suspect's family - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNemdFNnZVWDBpcXFKb1EzRFo0Z092bFVRQlhqZ1pwSDlQRldLR08yQzNSc0dPQUw4RkV6Rm1JSFNmdWpGTjdDVG9OaHluZ2dxUVdTMk14SmcyVHpUVVdGbTA4RmR2Zm1VdVJGWWszVk5BeW8xX0MxYTJjLUtxRWgwQXpSenEzNFE?oc=5) |
+| Trump orders investigation into Biden's actions as president, ratcheting up targeting of predecessor - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQZG5aOGE0Mm9iZkZVSzVnX1ZGRS1zdHU4S2RtUGJzdExNZzI1emxUcWs0NjNlRFREWktIVlNMSURuNFNDUUxqVVhURHFHVDFpWVJfdHpRRlNKM3U2SUdjNDh2YmdIVnBsaDg0M2NMUXk4XzA1bVJJUUNwTFFCbnRwRzBLMkhQbk5wLUFXS24tRE1aYkhUbEIwa2tBVVZHajkxaXJvRkl3?oc=5) |
+| Trump administration returns migrant hastily deported to Mexico back to the US - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNZk96ZFY1UlV5c1B6ZjBRN05lM3VGd2dFS2JzUEk5bmh6d3VFYnJ0eDllRG9GV0VyZ01HcUFCQU1iYnRsaklweHlGcHhJZG5CRHREbjd4YzdpbVV2UElUbmFvZmZ1VGNBTXQ0SDhKWTNXTmgybWsyQXk3dURvUnhGWFlQUmY4SE9OVFpOTlhGLTYxSWNKdWxHR9IBngFBVV95cUxQUlhTR0xKSVJObGJKRjhCT1dzZXNKQS1tdFBnQnZVamZ0UkdySXNpVlBzUkJMdzFISmlOYVZDa3lPdGJPXzBFd1V5YTl1Ym1TemQwMjVJZTc0VXcwem1GUTRuYkVWXzB3S0Z5NGZZaG5YcTRjVmRIQlhQd2ZrNmgtWS1qSHU0ZVhobnNDSnYwNTlVbk9fdWNhN0drbnJyUQ?oc=5) |
 | Cuomo took heat for a ‘shuck and jive’ comment during the Obama era - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxNN1Vza1ZMV1g1cVNiWndmWHBxcWQwZWVKd2ctQVRJbExTc09fRGxiVXdkRWIzNHpJV3VxaDRLMFloSkVVdTF0TVVPdDczMmdUWUxjVk95NGFjdzJ2eUlYckJ5NXVkYXZTMERBb3VwMkJhZWxhWVFOYTN3dUotTzVlMTNQNnd0bHk0RlBCMGR2VGlCeXNSLXFvMm9aaE4wR3lLRE5Pb0hvQWU4NmdmYi1oWmtKYzJMVFBkcl9XTkY1MW83d00?oc=5) |
-| Guatemalan man deported to Mexico returns to US after court orders Trump administration to do so - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQT2stRGRRR1FLaWJCUlB3MGRiLXlZYnBLUHQzcTJSLWpiMTdnWGlqRzJNTzF3MTdQWngtUWo5VjhUMXo1TktmNFFVc3J4SFdXVktKNUtnTkhpOEQ2XzI2ZUJqNVBySlFEMWN6VjEyLURCbVNhZEdMSUQ4NWlhVmpYYTVyZlFyUUZobG9XSC1yb05KZ3NTVEoxUGU2VnpUbjlPTEFHQnpCWEVSdw?oc=5) |
-| Trump administration eyes stripping Columbia's accreditation - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9WeVNUQ2ZCbERmOEFvb1JWTkd6SnhRNmF4VmZ0ejByUEZ4MXQtLUpwNXU1WTNvbTAwdU9XWFF4QnRrd1BkLVhoaWZYTE9LenYxRjEzTkxqV0lkd9IBX0FVX3lxTE5SX1lTdXczd1I2V0stenlKUG5VNDVmRTMzN0RURHF2aTFXSG1QYzNOMWhVdDZUNFl5M0l1cFloUHpwRkxIVGhFLWVUYWpHdHhOS1p5NlNXTEZoZ0t3RkN3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
