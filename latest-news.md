@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月05日 12:01:35（北京时间）**
+🕒 更新时间：**2025年06月05日 12:04:43（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump administration returns migrant hastily deported to Mexico back to the US - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNZk96ZFY1UlV5c1B6ZjBRN05lM3VGd2dFS2JzUEk5bmh6d3VFYnJ0eDllRG9GV0VyZ01HcUFCQU1iYnRsaklweHlGcHhJZG5CRHREbjd4YzdpbVV2UElUbmFvZmZ1VGNBTXQ0SDhKWTNXTmgybWsyQXk3dURvUnhGWFlQUmY4SE9OVFpOTlhGLTYxSWNKdWxHR9IBngFBVV95cUxQUlhTR0xKSVJObGJKRjhCT1dzZXNKQS1tdFBnQnZVamZ0UkdySXNpVlBzUkJMdzFISmlOYVZDa3lPdGJPXzBFd1V5YTl1Ym1TemQwMjVJZTc0VXcwem1GUTRuYkVWXzB3S0Z5NGZZaG5YcTRjVmRIQlhQd2ZrNmgtWS1qSHU0ZVhobnNDSnYwNTlVbk9fdWNhN0drbnJyUQ?oc=5) |
 | After Ono’s rejection, what’s next for the University of Florida? - Tampa Bay Times | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOdzB1QUtnWmdfTDNWNXU2VFg0bkUyRzRILUdJTVZoZW8yV0FzaGtsZElUZXZ2YXBEY01QMkpac1g0R3FfTXhGekE0UTJsaVFaamRCSGlrNDdJNjg1UTZ1OTJjWkFodFNCcFFVN05FUkdmTG56b05UMVc2UTlwbER6ZEU0bVk5bEhUWUU0NEIzNEJvOXNuMmVuS1VvZVFyTGNOSGFlaQ?oc=5) |
 | Trump orders investigation into Biden's actions as president, ratcheting up targeting of predecessor - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQZG5aOGE0Mm9iZkZVSzVnX1ZGRS1zdHU4S2RtUGJzdExNZzI1emxUcWs0NjNlRFREWktIVlNMSURuNFNDUUxqVVhURHFHVDFpWVJfdHpRRlNKM3U2SUdjNDh2YmdIVnBsaDg0M2NMUXk4XzA1bVJJUUNwTFFCbnRwRzBLMkhQbk5wLUFXS24tRE1aYkhUbEIwa2tBVVZHajkxaXJvRkl3?oc=5) |
-| Trump Administration to Pull $4 Billion in California High-Speed Rail Funding - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNTVJfZVJ6a0ZjME1kWXNfYjIwQTZvQWoxUVBHUEI2Y2xITXoxb1lkUWxoR2JGSTZHbmExcXU0VEZaVUhFUnF1S0xVNGdKZ2M3Nlp2QTFRYnUzeWhjQ2prNER4blY1eFllencySzJsTUhmWHVJRGZOTG9LUU5yNmVZbVY2TnluUHdwRjhhUzhscw?oc=5) |
+| 5 Takeaways From the First N.Y.C. Mayoral Debate - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQYkRMdkE5VU9STUVfSzFRME9ZY1ZGTXdleVhQWHc3VkRfU0JWSE43OTNMSXVEWk1HVlR2Wks2dDdTWkRMV3Fld1JJaTl2YkQ0MFNlLXR1NU1xRFd2VVJuanUwbG1WLXNlSWZOZzZfRDZYUG83TFRwZjU5NGRQUXVjU1huTQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
