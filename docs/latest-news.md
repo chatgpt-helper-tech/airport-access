@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月07日 02:21:10（北京时间）**
+🕒 更新时间：**2025年06月07日 02:40:55（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | Labour celebrates close win over SNP as Reform surges in Hamilton by-election | [阅读全文](https://www.bbc.com/news/articles/cpw7ppj2wyxo) |
 | Why Reform was the other big winner in the Hamilton by-election | [阅读全文](https://www.bbc.com/news/articles/cj42gver2glo) |
 | Bargain Hunt expert jailed for selling art to suspected Hezbollah financier | [阅读全文](https://www.bbc.com/news/articles/c7539vd0wepo) |
-| UK arrests made in international crackdown on financial influencers | [阅读全文](https://www.bbc.com/news/articles/crljw8n78l1o) |
+| Ros Atkins on... Ukraine's Operation 'Spider Web' | [阅读全文](https://www.bbc.com/news/videos/clyge373l56o) |
 | Beckham's already in with the royals - and now he's scored a winner with a knighthood | [阅读全文](https://www.bbc.com/news/articles/c5yezxvjy25o) |
 | Fraud culture was 'pervasive' at union, auditors say | [阅读全文](https://www.bbc.com/news/articles/c1w3ye4p8l3o) |
-| Spurs sack manager Postecoglou after Europa League win | [阅读全文](https://www.bbc.com/sport/football/articles/c391v08kp9ro) |
+| UK arrests made in international crackdown on financial influencers | [阅读全文](https://www.bbc.com/news/articles/crljw8n78l1o) |
 | Thunderstorm warning issued for large parts of England and Wales | [阅读全文](https://www.bbc.com/news/articles/cq851x1y9eqo) |
+| Spurs sack manager Postecoglou after Europa League win | [阅读全文](https://www.bbc.com/sport/football/articles/c391v08kp9ro) |
 | Norwegian doctor jailed for raping patients | [阅读全文](https://www.bbc.com/news/articles/cgj8x7dz435o) |
-| Defending champion Alcaraz into French Open final after Musetti quits | [阅读全文](https://www.bbc.com/sport/tennis/articles/cnv193eey78o) |
 
 ## 📰 Google News
 
@@ -25,14 +25,14 @@
 |--------|-------------|
 | Donald Trump and Elon Musk’s allies urge reconciliation after damaging split - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFAyRVkyUTBKWk03WnRlNXljdzVEWVhHSTN1M2kyOWJMMGNpZXRJbGt3RmFVb2JWLUNPR1hIQWpOS3NqNDhXcEw3eGNJZkNjOWVyN2NCa0xtam92MVM5V1Fpc1lIYnUxbGNtTTFFQTA5S3Q?oc=5) |
 | What unites countries under Trump’s travel ban is American imperialism - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNVU5aVU9fT1VwcVFLTXZZSnVxOTVubFVSdUpHeWlZeU1ESk5VeWNnLTZHd1h4UTBWbWdiaUxwNnAtLW43U1NENnRSNU5nR01WdDVSUE9haDROd19IOEZEZU1zZ2x3dE55S0tYaHFBQmRSbXYxY3E2X0ZFVWxNZ3JvSGJ3?oc=5) |
-| A Russian missile and drone attack across Ukraine kills 3 in the capital Kyiv - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNMHVtSkpRWmJEbkt5UE9xUVBkbkpOblZBT3Y0UDJGS3pNZE1UX0pwb3BwSWYyR2h2bXpGbElBdXVJRXFDZERBWDJoa0F0OW51QXJPWDJob2wtV2ZidHlmenR2eEJ2VEZxVnBGblRWVTNiX3I2LWpPbVNrUTNTODI5aEZ4SXhGeWlfdWFXR0tXcHJVejVrWmlRdkppVFdWYjZZSWc?oc=5) |
+| Russian missile and drone attacks on Ukraine kill 4, injure around 50 - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNMHVtSkpRWmJEbkt5UE9xUVBkbkpOblZBT3Y0UDJGS3pNZE1UX0pwb3BwSWYyR2h2bXpGbElBdXVJRXFDZERBWDJoa0F0OW51QXJPWDJob2wtV2ZidHlmenR2eEJ2VEZxVnBGblRWVTNiX3I2LWpPbVNrUTNTODI5aEZ4SXhGeWlfdWFXR0tXcHJVejVrWmlRdkppVFdWYjZZSWc?oc=5) |
+| DHS memo details how National Guard troops will be used for immigration enforcement - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQQzZSRi03OUVoQVZ5dXE1VnY0OEE0Vm1UUG84NmcwUXVBOGRUcFR2VnA3ekZxMUZhekJRbzRLMjFBQ3ZYM3BPcld1ZWlEQk1wN2s0bnYzdTd1OTBDUzhtenloMlhpVUdNajg0dmZjbUFKcnNGQmFMU3ZfcFZ4bjU5d3hNcURIVlVPWklDYmc1b3M?oc=5) |
 | No 'going back' for Elon Musk after calling for Trump impeachment, says Steve Bannon - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE4xVUdQNU9fdVhjalNzSXpfdTlWMEd0LTFna25zNjVJc3hXLXU2eGUyaV9tYVhzSGkxXzVhYjJSMkw5aHdLRlBYblgxblhHT3BNckN1d2JfaUV1TjdfMkZmNkd2VzR4MXVnY2RrOGdLX3JveExhOGcyOTVORTNZdw?oc=5) |
 | Xi’s Message to Trump: Rein In the Hawks Trying to Derail the Truce - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5JeTVuS3c3NWlXa1pyTFZkc2NkMFg1d1BhMURiM3ktTk0tdHpobklsNmNmaXc1MTZETkRJNFNBVjhNZURMQmlOZzdIaW9JRkZJWV82eFBoNVRwOW5JOHZmNTI4M0M5WXlnMU55NVBUMllha1BQc1A3Q016YlMwdw?oc=5) |
-| DHS memo details how National Guard troops will be used for immigration enforcement - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQQzZSRi03OUVoQVZ5dXE1VnY0OEE0Vm1UUG84NmcwUXVBOGRUcFR2VnA3ekZxMUZhekJRbzRLMjFBQ3ZYM3BPcld1ZWlEQk1wN2s0bnYzdTd1OTBDUzhtenloMlhpVUdNajg0dmZjbUFKcnNGQmFMU3ZfcFZ4bjU5d3hNcURIVlVPWklDYmc1b3M?oc=5) |
-| Paul Weiss Loses Another Prominent Lawyer in Wake of Trump Deal - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQTGNoX25ybzN6QzlnRmd2bTJUYWxFTTI2TnhQazY3Vy1KSXZybHAzbFFySHZyQ2dZd3huZEJDRTJKMk5MNklRejN3XzFWVl9ILXJmNmNWalJVSmFBcXVCWjlwYkFBS1Vyc2Vmb2Q0dEY4d3RLUjhrX2NMQUVaZnVfeTgtQ2RyaXMxNW1oVy1oZDl1bkFWUXc?oc=5) |
-| Live updates: Transgender troops face deadline to voluntarily leave the military - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE81WlB2d1lFN245MkNWN0FvSjZrazNGUzZobURSWXRGQXlsd1VLeVBXY1hDRzExRFd4bEpkQXZnZElEMlZ2cjY1SUNTMUQyQThIdFlSZU8yNFN5RjRfVFY4aWtMSlk3S3A4T1E?oc=5) |
-| GirlsDoPorn boss, once one of FBI’s 10 most wanted, pleads guilty to sex trafficking - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPX1FoeHNMSlpSV3Y0NEY1RzZWVGNVTTNzdnJCVExjZ1l4QUdOT2tQTExocmp5X2xqUF9JVklLVUcxTUVNbmZ0eWRDYjl5SVNHWVVLRmxwa0pJZVJjVVBWdlJ0RDBselRObFhOeWh2TFFCNmE1S0oweFd5dzAtTlhSMFNnZDZ2Szh6NXRNM1NPMzdGaDhWaUVUbU42VkNVS1NGNy1YbVI4NzR2T1hsYnFJaGtWVDRWeC0w?oc=5) |
 | Judge puts temporary hold on Trump's latest ban on Harvard's foreign students - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQOXJ4ak9INzJzZUF5OGhObmNaSFRBZW9EbEVuZkV5YVVoMkFrdzlLTEZHaU1Ic1NhMmxSWGJUUWZTblhZUGJRV2lzenZoaUZpQ1ljU1JfeG5VNHlkZG1wOExuZ1N4bGMwSEgxeEhWN2tuVnlpUENFNmhJTEhldktyVmZMWUViLVFpMlZPc0laekx4YkZOelFPc0pNVQ?oc=5) |
+| Transgender troops face a deadline and a difficult decision: Stay or go? - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNUU10MU50ZlVpYjM1TXBZY3lXaEJ3WW1NUlMtR3hvYXFqY0RNdzBxTVp1eGtjakt6Y3d0R1FlSGJTQkZLWlBROGJYa3dlZ2l3OVBfNkhsS3c4NURMQ0NBRXhxenpPcTdUc0laN1FmVWZNcElRUy0zaE5WNlc4cl80cEc3Q0p4M29KVm5VQkpDM29ncTNQSi1fc1B1eV9Dd0U?oc=5) |
+| Top Paul Weiss lawyer defects from firm after its capitulation to Donald Trump - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1iNjJDUjc5anQ4WUZ4QTMwRTdRU09RbmZTLXAzZkJxTUF5OGRnODRBWGYwX2xTeTFKOGtEMmt1eUJYWHhLaXpCT0wwQXdKSGhYUUxRZl8ydF9mLW44b1pRUEN2NTFhZjNaVWdwRjk0UXY?oc=5) |
+| GirlsDoPorn boss, once one of FBI’s 10 most wanted, pleads guilty to sex trafficking - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPX1FoeHNMSlpSV3Y0NEY1RzZWVGNVTTNzdnJCVExjZ1l4QUdOT2tQTExocmp5X2xqUF9JVklLVUcxTUVNbmZ0eWRDYjl5SVNHWVVLRmxwa0pJZVJjVVBWdlJ0RDBselRObFhOeWh2TFFCNmE1S0oweFd5dzAtTlhSMFNnZDZ2Szh6NXRNM1NPMzdGaDhWaUVUbU42VkNVS1NGNy1YbVI4NzR2T1hsYnFJaGtWVDRWeC0w?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
