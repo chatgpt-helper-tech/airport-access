@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月07日 01:20:30（北京时间）**
+🕒 更新时间：**2025年06月07日 01:41:27（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | 'No more floppy disks': Air traffic control overhaul faces some daunting obstacles - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBRUEdER0gxOW9IQVNIaU5vaTdhYXlWaEVzS01HQTZLSlZNNVZ6MlhvNDhkUTZqUXJTeHo0eHlsN01Hc2F6cjRFTENMOThoVFFSc2RiOURxSk0yYkU4M20xVE14WWd2dEZpMUNHQmZRS0JpVkVRUWNMMi1faEVoUQ?oc=5) |
 | How North Korea Salvaged a Capsized Warship - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNVUZqc05aUkJOdkd5QTVpaHlkTnVTY1JocFZhSnlxcWh4YTE4QVhSSm51YlNaQTJTODRSUk15YW5FV1d4Z2lpX3l6MVl5STVwZ1RYOUVWQ1dTc01xMVNiSHB1XzF0bnl0YnhVWW4wWlRPM2xwRTRfTFQ2Y3dWb2NjWFBLRVV3TWdSUmszc0hOSQ?oc=5) |
 | Judge Temporarily Blocks Trump’s Order Curtailing Foreign Students at Harvard - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNMnFzdl94UWkycWJMY2NieHBwUlZRdFdjMjlBNW8wc3dxaXhNSkFsNTlSZzcxWWtRS1kzU1VhaVdRMlBNaUZQZVVTZEwxeWRiXzE2dnN3Xy1GYXQtYXBFMnNPYlN4X0NSclJ4Z2hpUVNaalFSOUxPNXQ4TmU4LVRMMlhual9YaHpMZTh6bklqcDQ2dw?oc=5) |
-| GirlsDoPorn boss, once one of FBI’s 10 most wanted, pleads guilty to sex trafficking - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPX1FoeHNMSlpSV3Y0NEY1RzZWVGNVTTNzdnJCVExjZ1l4QUdOT2tQTExocmp5X2xqUF9JVklLVUcxTUVNbmZ0eWRDYjl5SVNHWVVLRmxwa0pJZVJjVVBWdlJ0RDBselRObFhOeWh2TFFCNmE1S0oweFd5dzAtTlhSMFNnZDZ2Szh6NXRNM1NPMzdGaDhWaUVUbU42VkNVS1NGNy1YbVI4NzR2T1hsYnFJaGtWVDRWeC0w?oc=5) |
+| Paul Weiss Loses Another Prominent Lawyer in Wake of Trump Deal - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQTGNoX25ybzN6QzlnRmd2bTJUYWxFTTI2TnhQazY3Vy1KSXZybHAzbFFySHZyQ2dZd3huZEJDRTJKMk5MNklRejN3XzFWVl9ILXJmNmNWalJVSmFBcXVCWjlwYkFBS1Vyc2Vmb2Q0dEY4d3RLUjhrX2NMQUVaZnVfeTgtQ2RyaXMxNW1oVy1oZDl1bkFWUXc?oc=5) |
 | Xi’s Message to Trump: Rein In the Hawks Trying to Derail the Truce - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5JeTVuS3c3NWlXa1pyTFZkc2NkMFg1d1BhMURiM3ktTk0tdHpobklsNmNmaXc1MTZETkRJNFNBVjhNZURMQmlOZzdIaW9JRkZJWV82eFBoNVRwOW5JOHZmNTI4M0M5WXlnMU55NVBUMllha1BQc1A3Q016YlMwdw?oc=5) |
-| Army preparing for largest military parade on the capital’s streets in decades, featuring 7 million pounds of hardware - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNcU5UOXlfZE9nNHpwWmVUUHEzbEVBQ3RJVEk5QmZQdy1KY29WOTY3clk1TjhJUHhsakd4UjRyU1NvVVhOSWFHVXF5OGdFYWlLUHlWaXJsNTVXNXZvTll5VmQ3NUcyQVgyWV93cHlfQjZjenVWbGEtYWROLWdZRVNfXzg3cHdQdkUydFVn0gGQAUFVX3lxTE51OXVmRmFxckd2RWtZUmliRV9peEdNS1dvdHJUY1JBanZFVjJZbTJWdjBaN2VzbUIxQnViSGlaYmNHNlV5TnlFQVl2dU9IaEotdjRnNGFkdkRfWWR1b2U0dDVYRy1UeFN0OXBJWXlwdzQ5eVFxRWhpdkkyak56aWpkUnpSSkVLYUZvRTRqLWpyNA?oc=5) |
+| GirlsDoPorn boss, once one of FBI’s 10 most wanted, pleads guilty to sex trafficking - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPX1FoeHNMSlpSV3Y0NEY1RzZWVGNVTTNzdnJCVExjZ1l4QUdOT2tQTExocmp5X2xqUF9JVklLVUcxTUVNbmZ0eWRDYjl5SVNHWVVLRmxwa0pJZVJjVVBWdlJ0RDBselRObFhOeWh2TFFCNmE1S0oweFd5dzAtTlhSMFNnZDZ2Szh6NXRNM1NPMzdGaDhWaUVUbU42VkNVS1NGNy1YbVI4NzR2T1hsYnFJaGtWVDRWeC0w?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
