@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月05日 14:00:19（北京时间）**
+🕒 更新时间：**2025年06月06日 16:20:20（北京时间）**
 
 ---
 
@@ -8,31 +8,31 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What we know about Trump's latest travel ban | [阅读全文](https://www.bbc.com/news/articles/cx271g270v7o) |
-| Free school meals to be extended to 500,000 more children | [阅读全文](https://www.bbc.com/news/articles/cdr5mr5l2d1o) |
-| Are the surprise airfield attacks a turning point for Ukraine? | [阅读全文](https://www.bbc.com/news/articles/cn4gp2g7g47o) |
-| Pregnant women warned against using weight-loss jabs | [阅读全文](https://www.bbc.com/news/articles/cn0gp2pl7zwo) |
-| Badenoch launches review into possible ECHR exit | [阅读全文](https://www.bbc.com/news/articles/cgj8p2pv117o) |
-| The country where the left (not the far right) made hardline immigration laws | [阅读全文](https://www.bbc.com/news/articles/c1mgkd93r4yo) |
-| Ros Atkins on... The White House claims on BBC Gaza coverage | [阅读全文](https://www.bbc.com/news/videos/c9wgq9vv51do) |
-| Musk turns on Republicans - and gives Trump's big bill a harder path | [阅读全文](https://www.bbc.com/news/articles/cvg5zpn9vkwo) |
-| Stores open at midnight as fans rush to buy Nintendo Switch 2 | [阅读全文](https://www.bbc.com/news/articles/ckgxwe774zwo) |
-| How airline fees have turned baggage into billions | [阅读全文](https://www.bbc.com/news/articles/c0qg3ylx2g9o) |
+| A good result for Labour - but the party squeaked through on a thin margin | [阅读全文](https://www.bbc.com/news/articles/cvgqzdl8lxyo) |
+| Trump and Musk trade insults as row erupts in public view | [阅读全文](https://www.bbc.com/news/articles/c5yg98rl717o) |
+| How 'big, beautiful' bill led to big ugly breakup for Trump and Musk | [阅读全文](https://www.bbc.com/news/articles/c3wd2215q08o) |
+| M&S hackers sent abuse and ransom demand directly to CEO | [阅读全文](https://www.bbc.com/news/articles/cr58pqjlnjlo) |
+| Why Zia Yusuf's resignation matters for Reform UK | [阅读全文](https://www.bbc.com/news/articles/ce80px2gwjzo) |
+| Cowboy Beyoncé dazzles on first night of London residency after slow ticket sales | [阅读全文](https://www.bbc.com/news/articles/cvgvlxk01gvo) |
+| Thousands of criminal cases collapsing due to missing or lost police evidence | [阅读全文](https://www.bbc.com/news/articles/c3e5289d3njo) |
+| Growing number of MPs changing their mind on assisted dying | [阅读全文](https://www.bbc.com/news/articles/c2lk21x800yo) |
+| Bosses' bonuses banned at six water companies | [阅读全文](https://www.bbc.com/news/articles/cdxvpr4qkyxo) |
+| Handwritten notes reveal Churchill's penicillin concern ahead of D-Day | [阅读全文](https://www.bbc.com/news/articles/cj09v52l8v4o) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump reinstates US travel ban, bars citizens of 12 countries - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxPY2dxcHpiM1NBVVY1MDVEclVUQnVsaHBoYjgtajFOdDVQZWY1bkJpYVFtSVo0YzJ2VkxJQ0owVzZfN0xPS0MxRGlRNzFPUmVmZmVrcUJxZUZ1b2EwaWxpOGxtVmZrVk5VRGFrdDBaVUwxRWI3WVA3OUs2cmVTUE1EekhzQmd6VkJWcFlHdlFpc1VpWHJ1c0R1YzhiMk9UVnZUNVVwWWdRbW5wcGVwQzNlVi1UcnRPY1FTUUozUw?oc=5) |
-| Trump Restricts Harvard’s International Students From Entering U.S. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQakljUDB5Vkl3c0VXWmd2NzNfbmVmV0lEUWplUzJ4WEJtZkN5UjFzdGRFTnlZYl9OcWJxQTZjTzhaU3JCcTY5WE51VVA3UUI0aDg1ZjdwYmNjUTlGeU1aYjFzSUczVVdjaHhsN3VzNUtIaUhMbENXYjJIMkN2NTI0WG1FNklNWEtHb0hsSm5ndHd4U3MzN1NPUQ?oc=5) |
-| 'KILL the BILL': Elon Musk continues to blast Trump's bill in barrage of social media posts - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPNG84WklLSjFPcHRzcDI4RXZjUTJXbUkzNER0Ti03OHRtWnp1Z0M3MlMxcXdmRkRzQUloTGJ6Y2d5cUVCWHdlV29Nd1Vkd0hYRTB2SkZ5UnBDSkd2bGl4cVdpWUF3Y2hXT1d4djhya0F3S0x3VDdNekdiYWpHbU5lcU1uYnkxUllwZFdDbHlNWW4ydmhRYnhEeFdUa1BicmVrRFJ5SDhya2gzVlY5R2RwY9IBtgFBVV95cUxOd0NvS1dHb0VKU09saGVhV0h1ZF9ITW5qaVlrTmJZM1ZUS2dBRjdacm1wZDRvZ1ZrQ3pWWHFkeVdNU3FkMGhnOU9hNjJiTWZyQ1ZLR1ZSN0dqaUtWOEI5bTdRMWdyRlk4R1JFMkY5MjBBTE9VT3hFTkNBR3hnZjNTNnU3anVGYm1ocXJ2WC1iaGo3RWZ0VE1RSm16UkdXMnJoclN2SUg1b2t0OENZc0ZwMHBLNjRGUQ?oc=5) |
-| Trump orders investigation of Biden actions and autopen use, citing former president’s ‘cognitive decline’ - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9uWk1QbmhyYjBLVkZJS3hkVVpDdDktTmtZT0VxaXdfMEhVcG9GVGJVR0duS2pJeVVZWmxQQ3NiQVBlODFGNkJOSmJMRld4YXh3UjdNaEFDcGoxcFhqSXBfakFESk5ab3NIUDQ0TkFLOE9RdHJXYkVkQlR2ak3SAYIBQVVfeXFMTlAtRGxNT281R3F6ckpreDEyN29tWGlxMHR3cm5Ob05IVDlULVNPQU9NWnFMVkRKR0xrTEJGVW1PQ2dhTkU0aFQyLTdIVGRnaVdzXzVUR1M5cEV1TGZURUhBTURReW1UZGNKY1cxNVlQLW80bFpacHU0bjVPTjRsSTB5Zw?oc=5) |
-| Trump administration eyes stripping Columbia's accreditation - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9WeVNUQ2ZCbERmOEFvb1JWTkd6SnhRNmF4VmZ0ejByUEZ4MXQtLUpwNXU1WTNvbTAwdU9XWFF4QnRrd1BkLVhoaWZYTE9LenYxRjEzTkxqV0lkd9IBX0FVX3lxTE5SX1lTdXczd1I2V0stenlKUG5VNDVmRTMzN0RURHF2aTFXSG1QYzNOMWhVdDZUNFl5M0l1cFloUHpwRkxIVGhFLWVUYWpHdHhOS1p5NlNXTEZoZ0t3RkN3?oc=5) |
-| What is the CBO? A look at the small office inflaming debate over Trump’s tax bill - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNRkZFR2lyM2d4RWZXOHlrTWtZVDlWWnBpUDF2WkZRbHl6Q3EwVkNhWjBxd2lieXRHXzRSSlpFbnpZZjlDNmlPN3ZZLTRLNHJqN1AyOGJUSm5EdWZFUnpWbk04ZG9wZnJmTHdPLWpUS2dKTXNDd3drUmUtZ05iR0xCQWdKZ3JONEFjQ0lQM19uN3JzUUxzOWtvSy13MzZMelFRWWFqaXc3bDZnZkdtTVhXN1dn?oc=5) |
-| Judge blocks deportation of Boulder attack suspect's family - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNemdFNnZVWDBpcXFKb1EzRFo0Z092bFVRQlhqZ1pwSDlQRldLR08yQzNSc0dPQUw4RkV6Rm1JSFNmdWpGTjdDVG9OaHluZ2dxUVdTMk14SmcyVHpUVVdGbTA4RmR2Zm1VdVJGWWszVk5BeW8xX0MxYTJjLUtxRWgwQXpSenEzNFE?oc=5) |
-| Trump administration returns migrant hastily deported to Mexico back to the US - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNZk96ZFY1UlV5c1B6ZjBRN05lM3VGd2dFS2JzUEk5bmh6d3VFYnJ0eDllRG9GV0VyZ01HcUFCQU1iYnRsaklweHlGcHhJZG5CRHREbjd4YzdpbVV2UElUbmFvZmZ1VGNBTXQ0SDhKWTNXTmgybWsyQXk3dURvUnhGWFlQUmY4SE9OVFpOTlhGLTYxSWNKdWxHR9IBngFBVV95cUxQUlhTR0xKSVJObGJKRjhCT1dzZXNKQS1tdFBnQnZVamZ0UkdySXNpVlBzUkJMdzFISmlOYVZDa3lPdGJPXzBFd1V5YTl1Ym1TemQwMjVJZTc0VXcwem1GUTRuYkVWXzB3S0Z5NGZZaG5YcTRjVmRIQlhQd2ZrNmgtWS1qSHU0ZVhobnNDSnYwNTlVbk9fdWNhN0drbnJyUQ?oc=5) |
-| Texas’ Migrant Tuition Break Blocked After Texas Joins D.O.J. to Kill It - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOTTROekNleC1vbTdZV05OWTRKTWtWbXhFelRhdnZFcldNRWswYndwV052cjFBT1NSMmdZWkdvU05ZTFJ4Rm9FcVBiQS1YWl9HZE1aY3p1YWJKTTJzLWprb2g4TGU5TmxzT0hFRm5tMDF0X0hRZi1GR2s0TFBSeXJ0TzRfQlh1TG1rSFFlVnlB?oc=5) |
-| Judge blocks Trump administration's effort to eliminate Job Corps - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPZEtxY1FzaFp1bVNBeGM0T3ZEZnM0NHNldWdrWHlMTEpycHlBdnZkcnp5c0FUOEZYV2tqSkg4Mk9ORVpUdUh0UlllQTFFajZuemw4Y1UwZUR5QjBxUDhUcUtXQXNGQkZPR3VJMG5aNk91TnBRTW53ODZweVpScE1IWGFXRW0zVjhBMjJreXY5bFBiOUhVcDhBSndUSG9TSVdIRENBR05JX2lHdw?oc=5) |
+| From bros to foes: how the unlikely Trump-Musk relationship imploded - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQcUkyS1Vrb05PR19zZXRXaEtCNzZydGxvaUZYcUhBQk9UM29jcDdVVWNTcmR6T1dQRXhoUk9sTmFSZmxYXzdiTDlTc3hnTDJkU1FDZk9taHV6STVySXNWS1BNcXZrM19rcTJhM0wtTVlCM1YwV2gybE83NU5wMERoN1M2cktKN0ExVUttVXlnX3ptVGthb0duT2c1WlpMZmstY1E?oc=5) |
+| Judge Temporarily Blocks Trump’s Order Curtailing Foreign Students at Harvard - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNMnFzdl94UWkycWJMY2NieHBwUlZRdFdjMjlBNW8wc3dxaXhNSkFsNTlSZzcxWWtRS1kzU1VhaVdRMlBNaUZQZVVTZEwxeWRiXzE2dnN3Xy1GYXQtYXBFMnNPYlN4X0NSclJ4Z2hpUVNaalFSOUxPNXQ4TmU4LVRMMlhual9YaHpMZTh6bklqcDQ2dw?oc=5) |
+| Russian missile and drone attack across Ukraine wounds at least 3 and causes damage - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNMHVtSkpRWmJEbkt5UE9xUVBkbkpOblZBT3Y0UDJGS3pNZE1UX0pwb3BwSWYyR2h2bXpGbElBdXVJRXFDZERBWDJoa0F0OW51QXJPWDJob2wtV2ZidHlmenR2eEJ2VEZxVnBGblRWVTNiX3I2LWpPbVNrUTNTODI5aEZ4SXhGeWlfdWFXR0tXcHJVejVrWmlRdkppVFdWYjZZSWc?oc=5) |
+| Musk calls for Trump's impeachment - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiZkFVX3lxTE80eWJkZmJFbFl5N3ZnMjQycTlUcE9NUGZsYzZ1N2E2Rkt6elBVcmNncUNDRFZHMDh5QVJ1dnZLV3JGazlSdVdEVWJCQWhUSzdOVFB0cGJqOExvRmExak1UeXlGelN5QQ?oc=5) |
+| Marco Rubio sanctions ICC for targeting US and Israel - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBCbjZ2OVZscFVPbmI4RE05WGhja1Rsal9UeVJZRmswM3BpWWg2WVFUQWVMZTV4TkJNZjJVTkFWTmRxZGdmcUN6R0Q5bS1fMkpqWWdKMTh1NGFBd9IBX0FVX3lxTFBrRU5URV9mNHpGbWQ2MFVNeFZwNnRUOHJGaE8tT19lU3JCQzVFaXFxcFRGV3EtY0U0d1hoMm04VTZXbVFkLUx2ZlNqalpMX1p6bnBwX3BJQm9iY2k0MlRj?oc=5) |
+| President Xi Jinping Speaks with U.S. President Donald J. Trump on the Phone - fmprc.gov.cn | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBhZmxTX3p4X0JVVFJaNUJEUEdDWGtCNEdsQ0ptWi1VcWd6VHdRYWZ5WHdIRzFubURWcXB6OEtrbllscWc4dDBzOWtXYTlmaFJkSnJsdzdlWUtMTm1ucGM2U0JnSzdVcWlITEdPMDhBbWdYNjlaTkE?oc=5) |
+| Father who killed 3 daughters was 'active dad' but the 'system failed' him, ex-wife's attorney says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQOUtneTdzN1V4NzRCWlU0U2lHdTNLb2FTWmdLY0dJd0VzaC1LR0c5bTJXcGZ5Ti10by1VNmFIbFNhNlpEVWZGaG1XSHJGbFNqb3Zmd1d4cVk2Sm5WbFFJMDdhWUpGUkcxNUtNT2dmZkxLZS12RllLU1pXZjM2TFRUMzRSUEpUMFZRSU9BSXdXdGdBWmdPdEt1amJjQdIBoAFBVV95cUxOd01PdEJwcjRvWG5pcWtXYTl3azFqaTZmbHNqX2k0S0hlUGhRcWluSHRvcjQtcXZMbmIyaWVVMzZfV1B4QjBQV2R5WURxS042eE9NOEgxNGVOb2tSODd5UERiZHgxUUxEemk2ZVJ6LWNMLTExdHR4eXJPUzBKazF4MzFfalRLUE1FZXZ3Z3E0RFBxczlSdGdLcmpMTlJrSzda?oc=5) |
+| Biden’s White House physician subpoenaed for deposition by House Oversight Chair - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFB4bzFiN19oNnp0XzZVRERzYzVKeVZMLURWb3E3RTRJeGhJSzE2M3RHUWN5WUV6cnNXNVZzOVJmYUZRdVNvX3k0eVRZMTBlMGM2bll0OFpQaGNxWGRKUGZBVS1QbWV3Skc4ejNVTjNkaTBCUjVrREVnQlpBb2t3SDTSAYQBQVVfeXFMTUpWZnZDbDA5UjZpMklZdHNkVGRWbnlNOEcxRDE0M21rWTVqX09yMHZhQ2NvbUZBSi1OTUplekpiU2hJSWtna2VkSi1oQ3dhNTlvejNFUEZGaTgwNmRoZVM2U1g4RGVQYWxxWGpSenJ1ajhUQ0trVTUwQ3VvNmcycVJncEd0?oc=5) |
+| Milford teen released from ICE detention, says 'All glory goes to God' - GBH | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOQzcySnA5dGE3SlN6dTZXMkQ2czlTMmlEZFhxVW9OWE9hY2d2dGkwYzJaUV83NDhZRmMzT3N3Nmthc3lQUkh0ZUhwQnhMalZpdlNfM2podEZmZnU2UU5WWGItSlJIXzhwbGRqS0dLZi1NUVpFWmdiQTN0MHpvekhEYlVRU0g4WkwzeGZF?oc=5) |
+| MYTHBUSTER: One Big Beautiful Bill Cuts Spending — and More Cuts Are on the Way - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQcWxnRjE2aTRWWXBTZWlwaERlUDBjRVBzY1RuUGJtNnozcXVid3J3SEc5WGdPNEVvWGdlSVlWeXB3Z1ZPMU1YNnBqeVJZX2tnakVteXJWRzU5eVpqTzFkbjVIZVFNOTdtSHh2S0haczRqRXF3S0VpbkVDa29qb3JoN2NqVkJ2cGFaUEgtZUNCUVNhd2JMUTFzRjQxd2s4ay1uTnJFYWozRUNZTko1X1BPTHoyTFdmTl9NazlzVU1R?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。

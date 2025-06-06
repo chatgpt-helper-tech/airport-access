@@ -120,7 +120,7 @@ description: 机场推荐,实测2025年最稳定科学上网工具，评测 Clas
 
 ### ✨ 为什么推荐「百变小樱」机场？
 
-- ✅ **提供免费试用期**：注册3天内免费使用,可自行体验稳定性与速度,试错成本为0
+- ✅ **提供免费试用期**：注册1天内免费使用,可自行体验稳定性与速度,试错成本为0
 - ✅ **稳定可靠**：运营超5年，团队位于海外，服务成熟稳定
 - ✅ **高速专线**：接入顶级公网 IEPL 专线，低延迟、高速大带宽，游戏、下载、视频通通流畅无卡顿
 - ✅ **灵活套餐**：支持免费试用，高中低档付费套餐灵活选择，按需升级更划算
@@ -146,7 +146,7 @@ description: 机场推荐,实测2025年最稳定科学上网工具，评测 Clas
   </a>
 </p>
 
-🎁 3天试用期到期之后,若想购买付费套餐,购买套餐时可使用我们申请到的**专属95折优惠码: bbxy-5th**
+🎁 1天试用期到期之后,若想购买付费套餐,购买套餐时可使用我们申请到的**专属95折优惠码: bbxy-5th**
 
 ---
 
@@ -195,39 +195,12 @@ IEPL 提供低延迟、低抖动的稳定连接，特别适合高频率、大流
 
 ---
 
-### 🥇 高端机场推荐：<a href="https://invite.wgetcloud.ltd/auth/register?code=xEgJKS" target="_blank" style="color:#1a73e8;font-weight:bold;text-decoration:underline;">WgetCloud</a>
-
-**推荐理由**：WgetCloud 是业界公认的顶级老牌机场，口碑极好,拥有全球高速专线节点，稳定性与速度俱佳。即使在晚高峰也能保持 4K 流畅播放，全面支持 Netflix、YouTube、Disney+ 等主流流媒体平台解锁。
-特别适合对网速和连接质量要求极高的用户，如远程办公、高强度科学上网、跨境视频会议、Steam 游戏加速等。
-贵是真贵，但性能、兼容性与体验拉满，是“高预算重度用户”的不二之选 —— 买贵但买对，真正做到稳定即正义。
-
-<!-- 🚀 WgetCloud 推荐按钮 -->
-<div align="left" style="margin-top:10px; margin-bottom:20px;">
-  <a href="https://invite.wgetcloud.ltd/auth/register?code=xEgJKS" target="_blank" style="
-    display:inline-block;
-    background:linear-gradient(90deg,#ff416c,#ff4b2b);
-    color:#fff;
-    font-weight:600;
-    font-size:16px;
-    padding:10px 20px;
-    border-radius:8px;
-    text-decoration:none;
-    box-shadow:0 4px 12px rgba(0,0,0,0.15);
-    transition:all 0.3s ease;
-  " onmouseover="this.style.transform='scale(1.03)'" onmouseout="this.style.transform='scale(1)'">
-    🚀 点击前往 WgetCloud 官网｜新用户注册享 85 折优惠
-  </a>
-</div>
+### 🥈 主力中端性价比机场推荐：
 
 ---
-
-### 🥈 中端机场推荐：
-
---- 
-
 ### 🔹 <a href="https://inva.xmfaff.cc/register?aff=oClLBb5A" target="_blank" style="color:#1a73e8;font-weight:bold;text-decoration:underline;">🐝小蜜蜂机场 618特惠</a>
 
-**推荐理由**：全IEPL节点专线机场，不限设备数，海外团队,特色年付小包低至8元每月,解锁能力极强,提供美区id下载小火箭Shadowrocket(苹果用户福音),性价比极高
+**推荐理由**：全IEPL节点专线机场，不限设备数，海外团队,特色年付小包低至8元每月,解锁能力极强,提供美区id下载小火箭Shadowrocket(苹果用户福音),特点是稳稳稳, 618活动7折优惠,特别划算
 
 
 <div align="left" style="margin-top:10px; margin-bottom:20px;">
@@ -252,15 +225,43 @@ IEPL 提供低延迟、低抖动的稳定连接，特别适合高频率、大流
 
 ---
 
-### 🔹 <a href="https://youtu6.shop/register?code=erkQTmbM" target="_blank" style="color:#1a73e8;font-weight:bold;text-decoration:underline;">悠兔机场</a>
+###  <a href="https://www.tntyun.cc/#/register?code=7MPbfr89" target="_blank" style="color:#1a73e8;font-weight:bold;text-decoration:underline;">🚀 TNTCloud IPLC专线机场 618特惠</a>
 
-**推荐理由**：价格实惠，线路稳定，适合日常使用，包括访问谷歌、ChatGPT、海外流媒体。非常适合预算有限、但仍追求流畅体验的用户。
+**推荐理由**：IPLC 专线、原生 IP、高速稳定，海外团队运营,适合 ChatGPT、TikTok、Netflix、海外开发者和重度流媒体用户。不限设备、不限速，性价比极高,618优惠力度大,月底就结束优惠
 
-<!-- 🐰 悠兔机场 推荐按钮 -->
-<div align="left" style="margin-top:10px; margin-bottom:20px;">
-  <a href="https://youtu6.shop/register?code=erkQTmbM" target="_blank" style="
+<div align="left" style="margin: 10px 0 20px 0;">
+  <a href="https://www.tntyun.cc/#/register?code=7MPbfr89" target="_blank" style="
     display:inline-block;
-    background:linear-gradient(90deg,#8e2de2,#4a00e0);
+    background:linear-gradient(90deg,#ff6a00,#ee0979);
+    color:#fff;
+    font-weight:600;
+    font-size:16px;
+    padding:12px 24px;
+    border-radius:8px;
+    text-decoration:none;
+    box-shadow:0 4px 14px rgba(0,0,0,0.25);
+    transition:all 0.3s ease;
+  " onmouseover="this.style.transform='scale(1.05)'" onmouseout="this.style.transform='scale(1)'">
+    <strong> 立即访问TNT Cloud官网,享限时 8折 优惠</strong>
+  </a>
+</div>
+
+> 🎁 付款时使用限时专属优惠码 `Crazy618` 可享受 **8 折优惠**！季付限量包,不享受优惠码,老板说这个套餐已经不赚钱了
+
+
+
+---
+
+### 🥇 高端旗舰机场推荐：<a href="https://invite.wgetcloud.ltd/auth/register?code=xEgJKS" target="_blank" style="color:#1a73e8;font-weight:bold;text-decoration:underline;">WgetCloud</a>
+
+**推荐理由**：WgetCloud 是公认的顶级老牌机场，口碑极好,拥有全球高速专线节点，稳定性与速度俱佳。即使在晚高峰也能保持 4K 流畅播放，全面支持 Netflix、YouTube、Disney+ 等主流流媒体平台解锁。
+特别适合对网速和连接质量要求极高的用户，如远程办公、高强度科学上网、跨境视频会议、Steam 游戏加速等。
+贵是真贵，但性能、兼容性与体验拉满，是“高预算重度用户”的不二之选 —— 确实不便宜,但是稳是真稳,全年365天不拉胯。
+
+<div align="left" style="margin-top:10px; margin-bottom:20px;">
+  <a href="https://invite.wgetcloud.ltd/auth/register?code=xEgJKS" target="_blank" style="
+    display:inline-block;
+    background:linear-gradient(90deg,#ff416c,#ff4b2b);
     color:#fff;
     font-weight:600;
     font-size:16px;
@@ -270,12 +271,9 @@ IEPL 提供低延迟、低抖动的稳定连接，特别适合高频率、大流
     box-shadow:0 4px 12px rgba(0,0,0,0.15);
     transition:all 0.3s ease;
   " onmouseover="this.style.transform='scale(1.03)'" onmouseout="this.style.transform='scale(1)'">
-    🐰 悠兔机场快速注册｜专属8折优惠码：888
+    🚀 点击前往 WgetCloud 官网｜新用户注册享 85 折优惠
   </a>
 </div>
-
-🎁 支付时填写专属 8 折优惠码：888
-
 
 ---
 
@@ -683,54 +681,61 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 
 ---
 
-### 6. <a href="https://aff.joinhaita.com/register?aff=Jqfg23Tx" target="_blank" style="color:#1a73e8;text-decoration:underline;">海獭 — Trojan 协议入门优选，稳定抗审计</a>
+### 6.<a href="https://www.tntyun.cc/#/register?code=7MPbfr89" target="_blank" style="color:#1a73e8;text-decoration:underline;">TNTCloud — 专线级 Trojan 协议机场，高速稳定，流媒体 & AI 全解锁</a>
 
-**综合评分：8.0 / 10**  
-**关键词标签**：Trojan 全节点｜中部入口｜不限设备｜抗审计协议
+**综合评分：9.2 / 10**  
+**关键词标签**：Trojan 全节点｜IPLC 内网专线｜原生 IP｜不限速｜不限设备｜全流媒体解锁｜AI 工具支持
 
-> 海獭是一款主打 Trojan 协议的实用型机场，适合入门用户或家庭多设备场景使用。价格亲民，不限设备数，支持 Netflix / Disney+ 流媒体解锁，是小体量用户的高性价比选择。
-
----
-
-| **评测维度**     | **详情说明**                                                            |
-|------------------|-------------------------------------------------------------------------|
-| **上线时间**     | 2020 年 Q4                                                               |
-| **协议支持**     | Trojan（支持自签 TLS 证书 + HTTP3 握手）                                 |
-| **接入方式**     | 中部地区接入 → 公网中转出口                                               |
-| **节点数量**     | 23+（香港、日本、新加坡、美国、加拿大、台湾、韩国等）                    |
-| **流媒体解锁**   | 支持 Netflix JP / HK，Disney+ 部分节点支持                               |
-| **ChatGPT 支持** | 约 20% 节点可解锁，入口更新频繁，部分节点需手动选择                     |
-| **设备限制**     | 不限设备数量，适合多终端同时使用                                          |
-| **支付方式**     | 支持支付宝                                                                |
+> **TNTCloud** 是一家成立于 2024 年的专线级机场服务商，采用 Trojan 协议和全线 IPLC 专线通道，节点速度极快、晚高峰稳定性极高，尤其适合高频使用者和 AI 工具/流媒体需求用户。
 
 ---
 
-**📦 套餐价格一览**
+#### ✅ 核心信息一览
 
-| 套餐方案         | 内容说明                   | 价格        |
-|------------------|----------------------------|-------------|
-| 入门季度套餐     | 50 GB / 月 × 3 月           | ¥25 / 季     |
-| 月度标准套餐     | 100 GB / 月                 | ¥15.99 / 月  |
-| 月度大流量套餐   | 700 GB / 月                 | ¥54.99 / 月  |
+| **评测维度**     | **详情说明**                                                                 |
+  |------------------|------------------------------------------------------------------------------|
+| **上线时间**     | 2024 年                                                                       |
+| **协议支持**     | Trojan（支持 Clash、Clash Meta、Singbox、Shadowrocket 等客户端）            |
+| **接入方式**     | IPLC 全专线传输，不限速、不限倍率                                             |
+| **节点数量**     | 香港×10、台湾×10、新加坡×10、日本×10、美国×10、德国×1                      |
+| **流媒体解锁**   | 支持 Netflix、Disney+、HBO、HUGO 等主流流媒体平台                             |
+| **ChatGPT 支持** | 全节点均支持 ChatGPT、Gemini、Copilot、Claude 等 AI 工具                     |
+| **设备限制**     | 不限设备数量，支持多端同时在线和路由器部署                                   |
+| **支付方式**     | 支持支付宝、微信、U 转账                                                     |
 
----
-
-**🛠 使用体验亮点**
-
-- Trojan 协议抗审计能力强，自签 TLS 更稳健
-- 支持 HTTP3 握手，连接速度更流畅
-- 允许路由器使用，适合全家共享流量或部署智能设备
 
 ---
 
-**🎯 推荐人群**
+#### 💰 套餐价格一览
 
-- 想尝试 Trojan 协议的新用户
-- 家庭设备多、需同时联网的小型团队
-- 寻求稳定抗封锁基础节点用户
+| 套餐名称       | 流量 / 月     | 价格        | 说明                     |
+|----------------|----------------|-------------|--------------------------|
+| 季付限量包     | 60GB × 3 月    | ¥30 / 季     | 超低月均价，轻量用户首选 |
+| VIP1（轻量）    | 110GB          | ¥20 / 月     | 日常上网 + 流媒体         |
+| VIP2（中量）    | 220GB          | ¥40 / 月     | 主力推荐，性价比高         |
+| VIP3（高量）    | 440GB          | ¥80 / 月     | 多设备 + 高画质视频适配     |
+| VIP4（巨量）    | 1100GB         | ¥160 / 月    | 重度使用者或多人共享       |
+| 定制套餐       | 独享 / 定制    | ¥680 / 月    | 专线独享，支持定向功能     |
+
+
+---
+#### ⭐️ 使用亮点
+- 多节点 TLS RTT < 50ms，适合游戏、AI 工具调用
+- 支持全球六大地区，晚高峰不降速
+- 解锁能力强，TikTok / Netflix / ChatGPT 全部直连成功
+
+---
+
+#### 🎯 推荐人群
+
+- 🤖 AI 工具深度用户（如 ChatGPT / Copilot / Claude 等）
+- 🎥 视频平台和流媒体高频访问者
+- 📱 TikTok 本地号运营、自媒体出海创作者
+- 👨‍💻 稳定高速连接需求的外贸 / 技术开发 / 远程办公人群
+
 
 <div align="left" style="margin: 10px 0 20px 0;">
-  <a href="https://aff.joinhaita.com/register?aff=Jqfg23Tx" target="_blank" style="
+  <a href="https://www.tntyun.cc/#/register?code=7MPbfr89" target="_blank" style="
     display:inline-block;
     background:linear-gradient(90deg,#ff6a00,#ee0979);
     color:#fff;
@@ -742,15 +747,18 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
     box-shadow:0 4px 14px rgba(0,0,0,0.25);
     transition:all 0.3s ease;
   " onmouseover="this.style.transform='scale(1.05)'" onmouseout="this.style.transform='scale(1)'">
-    <strong>🦦 立即访问海獭官网，查看套餐详情</strong>
+    <strong>🦦 立即访问TNT Cloud官网,享限时 8折 优惠</strong>
   </a>
 </div>
 
+> 🎁 付款时使用专属优惠码 `Crazy618` 可享受 **8 折优惠**！季付限量包,不享受优惠码,老板说这个套餐已经不赚钱了
+
 ---
 
-**📊 实测连接质量截图**
 
-![海獭测试结果](./assets/HaiTa-Test.webp)
+#### 📊 实测连接质量解锁能力（2025年6月6日）
+
+![TNTCloud测速图](./assets/tntspeed.webp)
 
 
 
