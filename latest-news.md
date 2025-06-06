@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月07日 01:41:26（北京时间）**
+🕒 更新时间：**2025年06月07日 02:00:21（北京时间）**
 
 ---
 
@@ -23,15 +23,15 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| From bros to foes: how the unlikely Trump-Musk relationship imploded - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQcUkyS1Vrb05PR19zZXRXaEtCNzZydGxvaUZYcUhBQk9UM29jcDdVVWNTcmR6T1dQRXhoUk9sTmFSZmxYXzdiTDlTc3hnTDJkU1FDZk9taHV6STVySXNWS1BNcXZrM19rcTJhM0wtTVlCM1YwV2gybE83NU5wMERoN1M2cktKN0ExVUttVXlnX3ptVGthb0duT2c1WlpMZmstY1E?oc=5) |
+| Donald Trump and Elon Musk’s allies urge reconciliation after damaging split - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFAyRVkyUTBKWk03WnRlNXljdzVEWVhHSTN1M2kyOWJMMGNpZXRJbGt3RmFVb2JWLUNPR1hIQWpOS3NqNDhXcEw3eGNJZkNjOWVyN2NCa0xtam92MVM5V1Fpc1lIYnUxbGNtTTFFQTA5S3Q?oc=5) |
 | What unites countries under Trump’s travel ban is American imperialism - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNVU5aVU9fT1VwcVFLTXZZSnVxOTVubFVSdUpHeWlZeU1ESk5VeWNnLTZHd1h4UTBWbWdiaUxwNnAtLW43U1NENnRSNU5nR01WdDVSUE9haDROd19IOEZEZU1zZ2x3dE55S0tYaHFBQmRSbXYxY3E2X0ZFVWxNZ3JvSGJ3?oc=5) |
 | A Russian missile and drone attack across Ukraine kills 3 in the capital Kyiv - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNMHVtSkpRWmJEbkt5UE9xUVBkbkpOblZBT3Y0UDJGS3pNZE1UX0pwb3BwSWYyR2h2bXpGbElBdXVJRXFDZERBWDJoa0F0OW51QXJPWDJob2wtV2ZidHlmenR2eEJ2VEZxVnBGblRWVTNiX3I2LWpPbVNrUTNTODI5aEZ4SXhGeWlfdWFXR0tXcHJVejVrWmlRdkppVFdWYjZZSWc?oc=5) |
 | UN human rights chief calls for US to withdraw sanctions on ICC judges - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBCbjZ2OVZscFVPbmI4RE05WGhja1Rsal9UeVJZRmswM3BpWWg2WVFUQWVMZTV4TkJNZjJVTkFWTmRxZGdmcUN6R0Q5bS1fMkpqWWdKMTh1NGFBd9IBX0FVX3lxTFBrRU5URV9mNHpGbWQ2MFVNeFZwNnRUOHJGaE8tT19lU3JCQzVFaXFxcFRGV3EtY0U0d1hoMm04VTZXbVFkLUx2ZlNqalpMX1p6bnBwX3BJQm9iY2k0MlRj?oc=5) |
-| 'No more floppy disks': Air traffic control overhaul faces some daunting obstacles - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBRUEdER0gxOW9IQVNIaU5vaTdhYXlWaEVzS01HQTZLSlZNNVZ6MlhvNDhkUTZqUXJTeHo0eHlsN01Hc2F6cjRFTENMOThoVFFSc2RiOURxSk0yYkU4M20xVE14WWd2dEZpMUNHQmZRS0JpVkVRUWNMMi1faEVoUQ?oc=5) |
+| DHS memo details how National Guard troops will be used for immigration enforcement - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQQzZSRi03OUVoQVZ5dXE1VnY0OEE0Vm1UUG84NmcwUXVBOGRUcFR2VnA3ekZxMUZhekJRbzRLMjFBQ3ZYM3BPcld1ZWlEQk1wN2s0bnYzdTd1OTBDUzhtenloMlhpVUdNajg0dmZjbUFKcnNGQmFMU3ZfcFZ4bjU5d3hNcURIVlVPWklDYmc1b3M?oc=5) |
 | How North Korea Salvaged a Capsized Warship - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNVUZqc05aUkJOdkd5QTVpaHlkTnVTY1JocFZhSnlxcWh4YTE4QVhSSm51YlNaQTJTODRSUk15YW5FV1d4Z2lpX3l6MVl5STVwZ1RYOUVWQ1dTc01xMVNiSHB1XzF0bnl0YnhVWW4wWlRPM2xwRTRfTFQ2Y3dWb2NjWFBLRVV3TWdSUmszc0hOSQ?oc=5) |
 | Judge Temporarily Blocks Trump’s Order Curtailing Foreign Students at Harvard - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNMnFzdl94UWkycWJMY2NieHBwUlZRdFdjMjlBNW8wc3dxaXhNSkFsNTlSZzcxWWtRS1kzU1VhaVdRMlBNaUZQZVVTZEwxeWRiXzE2dnN3Xy1GYXQtYXBFMnNPYlN4X0NSclJ4Z2hpUVNaalFSOUxPNXQ4TmU4LVRMMlhual9YaHpMZTh6bklqcDQ2dw?oc=5) |
 | Paul Weiss Loses Another Prominent Lawyer in Wake of Trump Deal - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQTGNoX25ybzN6QzlnRmd2bTJUYWxFTTI2TnhQazY3Vy1KSXZybHAzbFFySHZyQ2dZd3huZEJDRTJKMk5MNklRejN3XzFWVl9ILXJmNmNWalJVSmFBcXVCWjlwYkFBS1Vyc2Vmb2Q0dEY4d3RLUjhrX2NMQUVaZnVfeTgtQ2RyaXMxNW1oVy1oZDl1bkFWUXc?oc=5) |
-| Xi’s Message to Trump: Rein In the Hawks Trying to Derail the Truce - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5JeTVuS3c3NWlXa1pyTFZkc2NkMFg1d1BhMURiM3ktTk0tdHpobklsNmNmaXc1MTZETkRJNFNBVjhNZURMQmlOZzdIaW9JRkZJWV82eFBoNVRwOW5JOHZmNTI4M0M5WXlnMU55NVBUMllha1BQc1A3Q016YlMwdw?oc=5) |
+| Live updates: Transgender troops face deadline to voluntarily leave the military - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE81WlB2d1lFN245MkNWN0FvSjZrazNGUzZobURSWXRGQXlsd1VLeVBXY1hDRzExRFd4bEpkQXZnZElEMlZ2cjY1SUNTMUQyQThIdFlSZU8yNFN5RjRfVFY4aWtMSlk3S3A4T1E?oc=5) |
 | GirlsDoPorn boss, once one of FBI’s 10 most wanted, pleads guilty to sex trafficking - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPX1FoeHNMSlpSV3Y0NEY1RzZWVGNVTTNzdnJCVExjZ1l4QUdOT2tQTExocmp5X2xqUF9JVklLVUcxTUVNbmZ0eWRDYjl5SVNHWVVLRmxwa0pJZVJjVVBWdlJ0RDBselRObFhOeWh2TFFCNmE1S0oweFd5dzAtTlhSMFNnZDZ2Szh6NXRNM1NPMzdGaDhWaUVUbU42VkNVS1NGNy1YbVI4NzR2T1hsYnFJaGtWVDRWeC0w?oc=5) |
 
 ---
