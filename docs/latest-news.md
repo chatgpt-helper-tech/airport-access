@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月06日 15:40:02（北京时间）**
+🕒 更新时间：**2025年06月06日 16:00:02（北京时间）**
 
 ---
 
@@ -8,9 +8,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| A good result - but Labour squeaked through on a thin margin | [阅读全文](https://www.bbc.com/news/articles/cvgqzdl8lxyo) |
+| A good result for Labour - but the party squeaked through on a thin margin | [阅读全文](https://www.bbc.com/news/articles/cvgqzdl8lxyo) |
 | Trump and Musk trade insults as row erupts in public view | [阅读全文](https://www.bbc.com/news/articles/c5yg98rl717o) |
-| Washington buckles up as president and world’s richest man fight | [阅读全文](https://www.bbc.com/news/articles/c3wd2215q08o) |
+| How 'big, beautiful' bill led to big ugly breakup for Trump and Musk | [阅读全文](https://www.bbc.com/news/articles/c3wd2215q08o) |
 | Why Zia Yusuf's resignation matters for Reform UK | [阅读全文](https://www.bbc.com/news/articles/ce80px2gwjzo) |
 | Thousands of criminal cases collapsing due to missing or lost police evidence | [阅读全文](https://www.bbc.com/news/articles/c3e5289d3njo) |
 | Cowboy Beyoncé dazzles nearly sold-out stadium | [阅读全文](https://www.bbc.com/news/articles/cvgvlxk01gvo) |
@@ -29,8 +29,8 @@
 | Musk calls for Trump's impeachment - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiZkFVX3lxTE80eWJkZmJFbFl5N3ZnMjQycTlUcE9NUGZsYzZ1N2E2Rkt6elBVcmNncUNDRFZHMDh5QVJ1dnZLV3JGazlSdVdEVWJCQWhUSzdOVFB0cGJqOExvRmExak1UeXlGelN5QQ?oc=5) |
 | Marco Rubio sanctions ICC for targeting US and Israel - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBCbjZ2OVZscFVPbmI4RE05WGhja1Rsal9UeVJZRmswM3BpWWg2WVFUQWVMZTV4TkJNZjJVTkFWTmRxZGdmcUN6R0Q5bS1fMkpqWWdKMTh1NGFBd9IBX0FVX3lxTFBrRU5URV9mNHpGbWQ2MFVNeFZwNnRUOHJGaE8tT19lU3JCQzVFaXFxcFRGV3EtY0U0d1hoMm04VTZXbVFkLUx2ZlNqalpMX1p6bnBwX3BJQm9iY2k0MlRj?oc=5) |
 | Trump and Xi agree to more talks as trade disputes brew - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQRmRBRGdzWEY2MC1HZnVJaGExLWgzSWNCT1FBeENZUnRxbkxYTTVUR1M4S2dxWEVoOURQX1FHbTluc3gyV3ZLZ3o2cHpLb203OUZUbDJrdG1FdzRrOFdDR2haU2d1enkzVDVnMFVNc05ZS2h0XzFxRTlIS0NwMXkxWG1xQ1lmUQ?oc=5) |
-| Father who killed 3 daughters was 'active dad' but the 'system failed' him, ex-wife's attorney says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQOUtneTdzN1V4NzRCWlU0U2lHdTNLb2FTWmdLY0dJd0VzaC1LR0c5bTJXcGZ5Ti10by1VNmFIbFNhNlpEVWZGaG1XSHJGbFNqb3Zmd1d4cVk2Sm5WbFFJMDdhWUpGUkcxNUtNT2dmZkxLZS12RllLU1pXZjM2TFRUMzRSUEpUMFZRSU9BSXdXdGdBWmdPdEt1amJjQdIBoAFBVV95cUxOd01PdEJwcjRvWG5pcWtXYTl3azFqaTZmbHNqX2k0S0hlUGhRcWluSHRvcjQtcXZMbmIyaWVVMzZfV1B4QjBQV2R5WURxS042eE9NOEgxNGVOb2tSODd5UERiZHgxUUxEemk2ZVJ6LWNMLTExdHR4eXJPUzBKazF4MzFfalRLUE1FZXZ3Z3E0RFBxczlSdGdLcmpMTlJrSzda?oc=5) |
-| House GOP subpoenas Biden's personal physician - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9YWUNJMGZnSjdUUkF6QThTM2F3SENYZDYyZXAxT1FORFFvUV8yUHg3NXlBMDdFaE5jZ2ZJWHQyT3NSS1o0aklCcWlsOFB2RUQ0ZEthR1hGQjNfNjJ0Q1dSZ2UxR2FhVkdvOEtJd2tMaEtJVGdvQkFlLWRsU044Zw?oc=5) |
+| Manhunt for Decker intensifies around Pacific Crest Trail as authorities expand closures - KING5.com | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxQNFhfVzNzXzBPUi1FVDBBQlA2cEYzNE9yWU9oeXdUSWlMcXp2ZFZDaXlQdnhwaGhlWEhfV3RXWE5NNzRic0ZaZ04wUmJPQVpmS1pIdjFGRy01MTNjb2Z6dllUOHBfQmg5clo0bnZpOUtNNmt1eG43SHZ3TzVXdjZXSFBhRXowQlU1dVVieTBNZWxSSV9LM2VVU09LOFZBNVNzUHRyTVRnQ2hzLS0ydk4wV0Vib3p5SUdVc282VWh5T3d5NTlfZ3g4aUhIOA?oc=5) |
+| Biden’s White House physician subpoenaed for deposition by House Oversight Chair - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFB4bzFiN19oNnp0XzZVRERzYzVKeVZMLURWb3E3RTRJeGhJSzE2M3RHUWN5WUV6cnNXNVZzOVJmYUZRdVNvX3k0eVRZMTBlMGM2bll0OFpQaGNxWGRKUGZBVS1QbWV3Skc4ejNVTjNkaTBCUjVrREVnQlpBb2t3SDTSAYQBQVVfeXFMTUpWZnZDbDA5UjZpMklZdHNkVGRWbnlNOEcxRDE0M21rWTVqX09yMHZhQ2NvbUZBSi1OTUplekpiU2hJSWtna2VkSi1oQ3dhNTlvejNFUEZGaTgwNmRoZVM2U1g4RGVQYWxxWGpSenJ1ajhUQ0trVTUwQ3VvNmcycVJncEd0?oc=5) |
 | Milford teen released from ICE detention, says 'All glory goes to God' - GBH | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOQzcySnA5dGE3SlN6dTZXMkQ2czlTMmlEZFhxVW9OWE9hY2d2dGkwYzJaUV83NDhZRmMzT3N3Nmthc3lQUkh0ZUhwQnhMalZpdlNfM2podEZmZnU2UU5WWGItSlJIXzhwbGRqS0dLZi1NUVpFWmdiQTN0MHpvekhEYlVRU0g4WkwzeGZF?oc=5) |
 | MYTHBUSTER: One Big Beautiful Bill Cuts Spending — and More Cuts Are on the Way - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQcWxnRjE2aTRWWXBTZWlwaERlUDBjRVBzY1RuUGJtNnozcXVid3J3SEc5WGdPNEVvWGdlSVlWeXB3Z1ZPMU1YNnBqeVJZX2tnakVteXJWRzU5eVpqTzFkbjVIZVFNOTdtSHh2S0haczRqRXF3S0VpbkVDa29qb3JoN2NqVkJ2cGFaUEgtZUNCUVNhd2JMUTFzRjQxd2s4ay1uTnJFYWozRUNZTko1X1BPTHoyTFdmTl9NazlzVU1R?oc=5) |
 
