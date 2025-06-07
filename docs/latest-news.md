@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月07日 12:40:55（北京时间）**
+🕒 更新时间：**2025年06月07日 13:01:58（北京时间）**
 
 ---
 
@@ -12,20 +12,20 @@
 | Government struggles to cut foreign aid spent on asylum hotels | [阅读全文](https://www.bbc.com/news/articles/cgmjd8evd0go) |
 | Will Musk's explosive row with Trump help or harm his businesses? | [阅读全文](https://www.bbc.com/news/articles/ceqgdnd2g9xo) |
 | Bargain Hunt expert jailed for selling art to suspected Hezbollah financier | [阅读全文](https://www.bbc.com/news/articles/c7539vd0wepo) |
-| Far-right group Proud Boys sues US for $100m over Jan 6 prosecutions | [阅读全文](https://www.bbc.com/news/articles/cr4z7zyl0gwo) |
+| Biggest drone strike hits Ukraine's second city | [阅读全文](https://www.bbc.com/news/articles/cwyjd1z8yg5o) |
+| Schwarzenegger: Hey, stop whining, do something on climate change | [阅读全文](https://www.bbc.com/news/videos/ce80kyxd05wo) |
 | Secret Glastonbury: The mystery of the festival's surprise stars | [阅读全文](https://www.bbc.com/news/articles/cvg5zd3nkkwo) |
-| Biggest drone strike yet on Ukraine's second city | [阅读全文](https://www.bbc.com/news/articles/cwyjd1z8yg5o) |
+| We always joked dad looked nothing like his parents - then we found out why | [阅读全文](https://www.bbc.com/news/articles/c4gexw7l7rwo) |
+| Far-right group Proud Boys sues US for $100m over Jan 6 prosecutions | [阅读全文](https://www.bbc.com/news/articles/cr4z7zyl0gwo) |
 | Hopes of closure fade as police wrap up Madeleine McCann search | [阅读全文](https://www.bbc.com/news/articles/cy8ndx4v8lro) |
-| Beckham's already in with the royals - and now he's scored a winner with a knighthood | [阅读全文](https://www.bbc.com/news/articles/c5yezxvjy25o) |
-| Thunderstorm warning issued for large parts of England and Wales | [阅读全文](https://www.bbc.com/news/articles/cq851x1y9eqo) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump Administration: Latest News and Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTFBzSW9wNUxPcmtLc2pYalBtLWZuaFhKRHVIai1TbmRiVlR5Y2I0eFlxRTFMLTFDVDJRaHBDSlA4Wmw4eXB0TzAtWjhyWS1uNE12T2VkendSTmNSaWp3dWFza0d3TQ?oc=5) |
+| Buildup to a Meltdown: How the Trump-Musk Alliance Collapsed - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE00MTRBNk53V0ZuakQ1RVJQN1l1dEkzYzVBR3NBWW5oUW9fRENoWC1MOWczY1NZLVc2bDNHeVJEck1jclNSQVpSRWZiRnQ1MGFDUEI1TjdGYkhvYmtvQ2hhTG5NSWo2U1c0SzVRNlI0V0RKU0t4UDYwTXBqQ1Z6Zw?oc=5) |
 | Los Angeles ICE raids spark protests, fear, outrage. ‘Our community is under attack’ - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPWk9pNWJFUXl5UVhqNkthd055eFdWRGdvWDZoRDhKV0ZLM2p3MjNiZTFzaFhlYW1VWWwydkhmREpsSF9BdkxtUmxUa3R3LTlXUUl4eEFEWEs2LUpUNHhXT2Z6MG9SZ015WkFrVTlMQVhrWHBVV3N4aUpTM0poYUUtZld3UEVHbVFRdWowNU40dnFfQQ?oc=5) |
-| How the feud between Elon Musk and Donald Trump exploded over 72 hours - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE9CYWRNMEppTEZzYnBnZTFkeDRTSWJIdERGNXhTQnN4T2FFMlRwRGl5SThrN3pKLWVGck45MV94UnFKcGQyMmpTTTJBa011S1FNamUtbUptY0JNRy1HSEZWdkJ6dkNGLTRvcFHSAW9BVV95cUxOcThLZHVMLXdmeWpPbFpjSldDZnFsNG1rMW1DVDZSc0ZmVDJoR0xOV2RjaFZITHFodlM5bTNtMDdSVUVXTmRZQjhOQ0V4M0lUb184enBQQmo5NFRwekJWOUM1dTVGQW9rX25MeEhFeFU?oc=5) |
+| Kilmar Abrego Garcia is back in US custody after being illegally deported and will now face criminal charges - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5Xak1lVWdDVm1kcF90ejZJd0NKVGlrNVc2SkJUZ3FYdjNXdF93RE10M05KZU8tRkplZnExT0pibEU0QlExSmZ6cXBELVpmSHg0Q3dDSzZFRmhMNXU1OGdpUkhmV3JVSUY3eVlWNWsyS2w0MXRVbUhMQm5B?oc=5) |
 | Zelenskyy says Russian drivers 'didn't know anything' about role in audacious drone attack - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOMXZfOE41UmN5cHdCZG9ZZHlCNVYtR2MtZ3dkajF4dE5zdm9FT09QSV9aZVl0ZDNtQkFTUUpMNGJSRF9LVERTeUpXTEVnTTF6OVFmSHl4MkhnUHFJdXc4MkVkWUFTeEFVZl9OdWt5Vkw4UHRBeDZBbFBJOUhPbFdMeVVXZ3VGOUpjZ1U5VWVramwxY3Q5c1o3T1lEMkFENG50NGthSU1nS3V1elNSZXpZ0gG0AUFVX3lxTE9zaGFDSlNCaV9YYTM5Qjd4Q05ES1pJeHRVc1NjR2tZT0dXWTJjUTZfY3B1OFlXZWY3YzdYR3FrZVlkSDYwcUE3YVlwYnE5bm15V1Zicl9oeTMteHhXdHA4VERxMzR6T1BHUWh4SDJESTg3ZVJnMFotcUo4OW5QWEJGNDFvMTE4SnQtVXAtTUh1ZG54VnBfUlpuWmlEOGRMN2dsM3RUeVpjWGZiYnNrUlpWNXQ1aQ?oc=5) |
 | Supreme Court lets DOGE access Social Security data of millions of Americans - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPZTVFVmlSRmUzcW0wUXd4YWFNa21SRnZuQ2dfNUZZN2Y0anozZFVXeEUtd2ZxSEV3TG9OTFhha1gyUWVzNjRiUW9GZ0RMTEY1bDExY1RaeEFySUUxN2FIbDBsc3FjalJ2eFNESVBQcmNrcU5zNkZTdkMxNWRDNXBWX1lrRkZwZEpyS05iZUNJOWZFVjNjc1U0WW5wVjZiY1V6?oc=5) |
 | Deportees are being held in a converted shipping container in Djibouti, ICE says - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxORU9jbTA5T2RnaW1HSWQtWlZKX1lLamlTcHRQZW1WOUNBVUtaN3ozV1BoZktwSFBvaEF3LU5iOFcwTmxzeDZaMjRmakdQWjdUSk5QSlB2ODllSHBUdTBKVURubjB1NWUwVW1MenF0andoSFBDeXlQdzhEczkwbExMei1DbGg4NERCUlE?oc=5) |
