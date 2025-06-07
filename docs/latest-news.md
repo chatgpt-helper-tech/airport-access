@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月07日 17:01:30（北京时间）**
+🕒 更新时间：**2025年06月07日 17:21:04（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Man wrongly deported to El Salvador returns to US to face human ‘smuggling’ charges - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9hcHd5T0tnUXIxUlEwR3huQ0p2eGloUVFrdTlSUC1meHdHTTJsQmFVNWE2YmRmRXFKcDAyYTFNUEZrZ0c2aW9TdkhzYW10MlRVY1Q5SEpDZ2VhYmNtSHFTNG01cFNzdjFPX3BOWEZJNnA?oc=5) |
+| Wrongly deported Kilmar Abrego Garcia returning to U.S. to face criminal charges - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNWVVxX2pZSzk2VlM5c1d4dEtLeFFZSFZ2T08zREdUaUk1NlZqT1A3LVdsaHdDUUxwbWpNMWRhTmpUNE1YYUU1SUhnRTJZalFMTzRGODdrOExkRVVjX1Y2WXBQQzBmWTNrck5aN2F6UmlhSUlQQTBfTjNTTGFrRUdNTThOS1JwYjJEX0E?oc=5) |
 | Los Angeles ICE raids spark protests, fear, outrage. ‘Our community is under attack’ - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPWk9pNWJFUXl5UVhqNkthd055eFdWRGdvWDZoRDhKV0ZLM2p3MjNiZTFzaFhlYW1VWWwydkhmREpsSF9BdkxtUmxUa3R3LTlXUUl4eEFEWEs2LUpUNHhXT2Z6MG9SZ015WkFrVTlMQVhrWHBVV3N4aUpTM0poYUUtZld3UEVHbVFRdWowNU40dnFfQQ?oc=5) |
 | Supreme Court lets DOGE access Social Security data of millions of Americans - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPZTVFVmlSRmUzcW0wUXd4YWFNa21SRnZuQ2dfNUZZN2Y0anozZFVXeEUtd2ZxSEV3TG9OTFhha1gyUWVzNjRiUW9GZ0RMTEY1bDExY1RaeEFySUUxN2FIbDBsc3FjalJ2eFNESVBQcmNrcU5zNkZTdkMxNWRDNXBWX1lrRkZwZEpyS05iZUNJOWZFVjNjc1U0WW5wVjZiY1V6?oc=5) |
 | Buildup to a Meltdown: How the Trump-Musk Alliance Collapsed - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE00MTRBNk53V0ZuakQ1RVJQN1l1dEkzYzVBR3NBWW5oUW9fRENoWC1MOWczY1NZLVc2bDNHeVJEck1jclNSQVpSRWZiRnQ1MGFDUEI1TjdGYkhvYmtvQ2hhTG5NSWo2U1c0SzVRNlI0V0RKU0t4UDYwTXBqQ1Z6Zw?oc=5) |
