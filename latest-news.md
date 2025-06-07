@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月07日 11:41:59（北京时间）**
+🕒 更新时间：**2025年06月07日 12:01:18（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Supreme Court lets DOGE access Social Security data of millions of Americans - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPZTVFVmlSRmUzcW0wUXd4YWFNa21SRnZuQ2dfNUZZN2Y0anozZFVXeEUtd2ZxSEV3TG9OTFhha1gyUWVzNjRiUW9GZ0RMTEY1bDExY1RaeEFySUUxN2FIbDBsc3FjalJ2eFNESVBQcmNrcU5zNkZTdkMxNWRDNXBWX1lrRkZwZEpyS05iZUNJOWZFVjNjc1U0WW5wVjZiY1V6?oc=5) |
 | Deportees are being held in a converted shipping container in Djibouti, ICE says - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxORU9jbTA5T2RnaW1HSWQtWlZKX1lLamlTcHRQZW1WOUNBVUtaN3ozV1BoZktwSFBvaEF3LU5iOFcwTmxzeDZaMjRmakdQWjdUSk5QSlB2ODllSHBUdTBKVURubjB1NWUwVW1MenF0andoSFBDeXlQdzhEczkwbExMei1DbGg4NERCUlE?oc=5) |
 | Arkansas killer and rapist caught after 13-day manhunt in mountains - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPZlI4VDU2Rnc3V3hRbXpjelhZcmxiU0NOR2QxZWxZYTA2UFdwWHJ0OHI4dHA2S1lzOGY1b0hxX2dxcGtPZ3lBMGh4RXQ2WllGUkhxS2c5dGNIdmtsQk95MGliSUplclFsM1NnZ3RsX19BTjFlcU9lNGlZaFFSX3E2RkVTR0JLdzRHRmFn?oc=5) |
-| Transgender troops face a deadline and a difficult decision: Stay or go? - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNVzJ1S3Z4VkhDNjBjMVZCVWZMY0MyNW5uMWpLWUxGY0RMZTY2M0ZCb05yQ1JDbGxFeU16VFd2dkF4MzZkS3Qtc3VadFUxQWNHSjd5OEREbUgteFZqTUtYVktDc1kxbmFZWm03bVdFbGp6NmxKN05tUkkzZDgxd3FxNVZISkpDaV9RMHI2RU1yNk9PbGlDMDBGZG5Tb2gwZ0hhalFNeU5xSTVhdkdYTVc5OFFydUlKNGxrNjJBNjEwcElvbGdy0gFWQVVfeXFMUEVVaHpsVnlzMUdmNThmUTc5TWJIbFdxUGRMSEVVTzRnU3NaOWxHX0dENFZvM3JuYU9BNm43YnUxQ0ZNdWFTVjd3MktqeE9RWjgwSzB0WVE?oc=5) |
+| Father searched online for jobs in Canada, how to relocate before 3 Decker sisters were killed - KING5.com | [阅读全文](https://news.google.com/rss/articles/CBMi2wFBVV95cUxNMXcxTlMwTXVjbnRBMmg0a3loRVpLRDJxZHVaTHc4a2pMelFhckhwb0QxZWRUUlBCRFdob0pkbXNjZFk0UXA4MnZVUmEtYXF3VjRzZWp1Z0hOS2pLaVNDRTF6cjBlcDdySGE5TWRCUmdNZ05ZQ2JibnpBdlBCMzZKLThFb2ZFMWVWdTlWSXdpbnVtRUw1RTlRcnZpZHQzQllNcHZOV1Q1YkNBTTNJQmRqVGpDV0xDNTVvN3Y3NFVKTWptbXF5bXNrVWZqeXJYcmx2OTJ2WFg5S0FGcFU?oc=5) |
+| Some Trans Troops, Facing Trump’s Deadline, Opt to Stay and Fight - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPTTB0Q3dtSlF5dC1qeWJWdzQtcnU4WVdIU3VfeHlBM1NERV9TZFlicUpwMzAxM1RZSUxVc2xWRlVCcVBqWHR4eVd6VTQzSzZycno2c1Bfa0cwU2w4WUZOZ3JSY0FNejhOcDFCNXZySzZKU3NxRC1zaDNhaW1rdnp3ZEZDQXh6ZFpKNzhIOA?oc=5) |
 | Derrick Thompson found guilty of murder in vicious car crash that killed 5 young Somali women - Star Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxQSjlTQWpBYTF2Wi1KdTNSOGxYSjBHOUdxb1otWVVKbUlqSTh3aHJnS1owWWlWeGhCbEEzREliQ21xdGNRWVlUSnZDMXlLaDZNdXk4Tm9KcmpJb1Y0ZmYxLTBLVmo3QnI5X1lhYklweEEtak4xTm5iZW5CbVNQZkIxbDV3dElSbmJNQjZPVmtzX2dpaERnLVVYY1c2NDhoQTk1R1djMFYxdVoyZ1lWR1drMjBmQlYtWUpQcmd2QmUxd2hleFFJaTdHaG14QQ?oc=5) |
-| Elon Musk threatened to decommission Dragon spacecraft. Here's what that would mean for NASA - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQQnJ3YkdiUmhpbFdJNzA1X0tBRnlsc2drb0NHVHFkNzFTdERFWTlyR0EwaEFudkI4bDhPZjVZdS1IU1BaSlpZdjY2SktRTXV5RXM5dlp1WEpCTXNXemFMTi1EOVpMSlcyVFhPdm9iOWVMbHlxY0I2VVN4b0tzbU5zMUl5S1BCOExhUTBFMnhtT09XMGtMUW1VakVRVWxKNV95LWZXN0lwX1FKUkRmVVHSAbMBQVVfeXFMTUNsYzZKSkpoRWFxZUNSQlFGdDJ3Z0VIVGl1akd0YTdyeWFmOXBEcUNzdUVLaENtSG1lMG1qSDVuQ1lfampqS2tReUt0R1FTTXhINDEybFBkNkVMYko0SkNVMkpacDdBUXc4ekFlN1lrVUxZYXNuTlV6TjBPZWNGYnltM3cyb0YyWHFVSHZha2F0QnZRSkU4WVp4TzJZMTdBMWxsT09oT0NCTHpzNUZmX1hvX00?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
