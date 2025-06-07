@@ -92,7 +92,7 @@ description: 机场推荐,实测2025年最稳定科学上网工具，评测 Clas
 - ✅ **灵活套餐**：支持免费试用，高中低档付费套餐灵活选择，按需升级更划算
 - ✅ **兼容主流工具**：全面支持 Clash、Shadowrocket、SSR 等翻墙主流客户端一键导入，导入简单便捷
 - ✅ **流媒体解锁能力强**：ChatGPT、YouTube、TikTok、Netflix、Disney+、HBO Max 等全解锁，支持 4K 串流
-- ✅ **专属会员福利**：LV3 以上用户可获免费 Netflix、Disney+、Prime Video 等会员账号，4K 秒播！
+- ✅ **专属会员福利**：LV3 以上用户可获 **免费 Netflix、Disney+、Prime Video 等会员账号** ，海外影视党的福音
 
 ---
 
