@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月07日 09:41:15（北京时间）**
+🕒 更新时间：**2025年06月07日 10:00:54（北京时间）**
 
 ---
 
@@ -26,7 +26,7 @@
 | How the feud between Elon Musk and Donald Trump exploded over 72 hours - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE9CYWRNMEppTEZzYnBnZTFkeDRTSWJIdERGNXhTQnN4T2FFMlRwRGl5SThrN3pKLWVGck45MV94UnFKcGQyMmpTTTJBa011S1FNamUtbUptY0JNRy1HSEZWdkJ6dkNGLTRvcFHSAW9BVV95cUxOcThLZHVMLXdmeWpPbFpjSldDZnFsNG1rMW1DVDZSc0ZmVDJoR0xOV2RjaFZITHFodlM5bTNtMDdSVUVXTmRZQjhOQ0V4M0lUb184enBQQmo5NFRwekJWOUM1dTVGQW9rX25MeEhFeFU?oc=5) |
 | Trump Administration: Latest News and Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTFBzSW9wNUxPcmtLc2pYalBtLWZuaFhKRHVIai1TbmRiVlR5Y2I0eFlxRTFMLTFDVDJRaHBDSlA4Wmw4eXB0TzAtWjhyWS1uNE12T2VkendSTmNSaWp3dWFza0d3TQ?oc=5) |
 | Supreme Court allows DOGE team to access Social Security systems with data on millions of Americans - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOV1AxVW1jWWhkQ203ZmRJUHFnMVEyZzZEUlNSelFXc0RWNzRTUFA4ckRxaXlwQkt3M3E2azlvemJmdnplaklkSmFLTDM3NjRLeGJSZ3cwQm9oSW1NMGM3SF90dndaUTdUTlNoVjE4WnpoaWlpbnEzd01MZTFleWF3SlMycHRGdGl6R0hyd29MT1NfOEtsUDZqUWdiVzc?oc=5) |
-| Ex-police chief who escaped Arkansas prison while serving time for murder recaptured: Authorities - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNM3d3SWR0QUZ0a1FpUVJmX0REYVRvNTZqcWoxME5tYnh5akNFcWp5TWVrandqQWtBUFZEcm15ekxtc25XT0VVY2Fja2dQOGdPUi1zV0xQUEg2aUw5V1NoLU4zNmdvMHBqaVZ4X0F4YlZ2WUJBTC1YazlROFhXWThzU05XVE5SNGo0RnB4UVR2LUJ5aGFNSl9N0gGcAUFVX3lxTE9VWGZMY1AtUnVDZUdYajZpRzU1aVpWMnlwd3NWUVNzeXlaS2gzbzRFZ25IQkxITFpjeEo3TlFDX01CeGsxZlRfdnZNLWlQOVJMVWRRVlM3RVhsS0tFLTFBbGVrWloteGZrdC1tU3JrS1JHOFJCdVY0eGExUXY5bEw2RndMcE9Hc3F0LXd1RjBhUHFZdEtGbDRwTHkzRA?oc=5) |
+| Police chief Grant Hardin caught after escaping Arkansas prison - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1nU0RWUVpEaEZCOG1KUW5xZERfczNMWXdON3Jhc3lDclRqN3k0LWxiMTVOejlGdlU5TS1vUTdfVlQ4S2VmNVlidnZCaGVCaWtVR1VxNnBBbTRlQdIBX0FVX3lxTE10NGRIbmFVSVNsX2h0TVh4eWxxRXljOVZ2M3B3dzdJbE41R2RHQlN1aTFPMEx5REdUalJnUUtIcG5GbE4xUHZmaUFsV0o1OE1jeGdMaFVUdVVZdk91YTk4?oc=5) |
 | Multiple immigration sweeps reported across L.A., sparking tense standoff in downtown - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPdkhJZEtHQ2FlOEFOMW90Z2xXSi1WUTFKZldUcU94WW1sLWo2YWR2RzdYejJSaVBCemVlNXNnQUlud1lOOFFNdGEzMlVsUmhtWEpNN25MVDFnUktDSExYUDZ4RFFpVFNObjFaeXdMR1VTb3NWWERpNzB3NTN1TDNyaWU4dEstRTVVUWpzS2UzVzUycVk?oc=5) |
 | ‘He’s a bulldog’: the man behind the success of Ukraine’s Operation Spiderweb - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQamoyanU5Um5vM0preWpnY2lzTGxFSHJnMDBoY3pCRDdYQ3Ruc0FGaGNoakxmTnNPNWIyZVNTMEJLYWtnNVQ5LVhIMUFDbUtmSTRnNEhNVVRxQ0FWb3RzYVpGVVBfV1Z6eUgyME5zMWd2M1FOcFBFT1RObnZNYVUwUk4zMEw1OHdiWURKaTlJYl9ackdtUTNPNnVEejh2VWFqYW1CMGtFRVlaYzdZOFh3?oc=5) |
 | As World Pride flows straight into the military parade, DC officials say they're ready for anything - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQc2ZyYWVZT1VkMWFoUHlocDZSR2liWlp4TnJZNkl6ZnlaQTBTU1J3cnBtSkNndEk3RVdZQzRvMGJsVENaVmFfRURyZ3l4c1lWNzJLOTc2R0pGQlJqM2hsZkRZVUtrMENpOWRhUHVIbVluejQ5N0szUF9fSk95ZTBHb0xQeWszZnhlbHZKUWNOemlLeEprYVJzdDBmM2lwYjJEb1E?oc=5) |
