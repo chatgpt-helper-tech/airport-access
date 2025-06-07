@@ -190,9 +190,12 @@ IEPL 提供低延迟、低抖动的稳定连接，特别适合高频率、大流
 ### 🥈 主力中端性价比机场推荐：
 
 ---
-### 🔹 <a href="https://inva.xmfaff.cc/register?aff=oClLBb5A" target="_blank" style="color:#1a73e8;font-weight:bold;text-decoration:underline;">🐝小蜜蜂机场 618特惠</a>
+### 🥈 主力中端性价比机场推荐：
 
-**推荐理由**：全IEPL节点专线机场，不限设备数，海外团队,特色年付小包低至8元每月,解锁能力极强,**提供美区id下载小火箭Shadowrocket(苹果用户福音)**,特点是稳稳稳, 618活动7折优惠,特别划算
+---
+### 🔹 <a href="https://inva.xmfaff.cc/register?aff=oClLBb5A" target="_blank" style="color:#1a73e8;font-weight:bold;text-decoration:underline;">🐝 小蜜蜂机场 全IEPL节点 618特惠</a>
+
+**推荐理由**：全IEPL节点专线机场，不限设备数，海外团队,特色年付小包低至8元每月,解锁能力极强,**提供美区id下载小火箭Shadowrocket(苹果用户福音)**,特点是稳稳稳, **618活动7折优惠**,特别划算
 
 
 <div align="left" style="margin-top:10px; margin-bottom:20px;">
@@ -208,7 +211,7 @@ IEPL 提供低延迟、低抖动的稳定连接，特别适合高频率、大流
     box-shadow:0 4px 12px rgba(0,0,0,0.15);
     transition:all 0.3s ease;
   " onmouseover="this.style.transform='scale(1.03)'" onmouseout="this.style.transform='scale(1)'">
-    🐝 小蜜蜂机场 官网直达
+    <strong> 🐝 小蜜蜂机场 注册立享限时 7折 优惠</strong>
   </a>
 </div>
 
