@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月08日 06:01:09（北京时间）**
+🕒 更新时间：**2025年06月08日 06:20:29（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Kharkiv hit by ‘most powerful attack’ of entire war, mayor says, as Russia pounds Ukraine again - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOOFdYQkpWa2xwc3RiV3VTYjYwbjlBZFl5SkdlYzdydXZrc2FBcmx0OFNUM25QakZUSF9kVGhUOWJ0UWpDZHBHbWh1ek1yYnNpWUNranlqX1hnYlFZSHlESlpoalYwUWlYZF9XQkV4MEZWSG1YOHFDWHBPOU5IcUdtQW43WdIBiAFBVV95cUxPbjVUZzBxRlNlSndSMkdRWnJEZmcxMGRqbTJ5WXFJWmdnTS1zNmNUZWthOXV6OTdVVjNoQnJqUVhKRml0YzVaaG90TTNvbWwxRjYzbWVnV0pKcGVrRmdtRHNiYUwxSERvVTI0ZXJLMTNNMFducWZwUGk0V0EtR2V2RWdiZmdCQ0Ff?oc=5) |
 | As World Pride starts in Washington, some foreigners stay away - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5XOUkybERwUGp0LVphSjF5ZVZteUMyMEJVOGVtMUszREN3aDNKV1ZRaTREY0xFWmxKb3R3NW9SMGpUb1NSNmJlRHFjQVdRSVE1a2pqamIwV2xPUdIBX0FVX3lxTE9ubHJ4SFNlVzFKam0yQXhFdi1TQjFoRktQWEVCcWVjV3BkdE9HUGZUcjBPZ2VTZ0FBVW1sdGVCSHdLeV9qZFNCN1pPY3BYSXV1RUhBcFNJTHhsVDFuLW9J?oc=5) |
 | A former police chief who escaped from an Arkansas prison is captured - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPNUFreFczWmh1TmNsblp4ZTZFSHQzV3loN29IaDdCNnZncm10d2dRb3NVNnhaTkxQV0Z6WDJob3ZZN3NlZmpqb3RmWWR5Vk1jSXJsOFpFR291YmdlU3JVSURUdFQwcy1YWjFIWU9YQzhkeEVYMlRuT3EwLWp6ZHB4dVJPR2gxaHA1STJ2ZkxwYWwzU1JhUTY0dw?oc=5) |
-| Vance says Musk making a ‘huge mistake’ for attacking Trump on social media - PBS | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPbjZwY29weldXWjhfUUowT0VEdmxYNldXaGxNZEN0dERySGd0M2p3enh4bktSQ3p4YTVpSVpSdVZlb0I1S1l2Qlprc2FsRVBkcUpTMG9xVVhLMjViRkg2VmhTZGw2YWpMTk5feXRNTHlFZWtGTlZ3U3VNclVrQUh6TUxraERuZkEzRmFCN25LVTRDc20za3lpZXM5Z25uVkxHVE15Z1FBNFBFMU55R3QxaNIBtgFBVV95cUxOSkdZMHZUdUZIblZZS2ZyVG1xSWdhbzRDX19uODJva0Q3alhzbWE3dWhzYTM0b1I5b0FMdlRLbUN4MjczQjZJREFHdENEanBaXy16V0FoMzhfTExCOElfT3hIb3hnR3d0dXFtUGx2dmJOUVA3d3FERk1NMTl1VmpGWEhSUEJjV3VCMFF1eDdTRDZlZ3ZmVk5iRWU5TDFzOWttLTA0aXZTdFVWeTVlbnNUZ2l6NU5VUQ?oc=5) |
 | Trump’s International Student Ban Sparks Fear Among Harvard Attendees - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQTFVhREg5bVhzRjF4cTJaS2t0X0RCRy1IdUJodVNWZFFwTGVlUFYwWXZnelJVcVJxNlZqMTAxcXRiSVFzTW9fcU9zaDdzNDFlbm5CcTBTcDJSU1Jld3RUeUpFNEJXb2dYUlRVNVlWaXIxWUxrWmFRQkZuVE4zRGR6ODBPaGNmTzRmWUE?oc=5) |
+| NASA, Pentagon push for SpaceX alternatives amid Trump’s feud with Musk - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQS0dCa3ZfWkdHeHoyT1pzSnhycnUxYm5BODJhY21pSHJNamY5YlhuZ2tZdndLSEhUYXJZQ3l2QWJ5aml5OVc2eTZoRmJfYUJFRlR4QUhMYmpreVFXYmFGc0ROdUhSR0hiZ2libEx5Skp6TXM3UHp4UTVKMjhTT2xpRXBxU0ttcE95TWdRdnBOVFU1SnRmd25DYWtn?oc=5) |
 | Trump’s Proposed Cut Would Deal Serious Setback to California High-Speed Rail - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOakRHSlVzZFR1TUZsZXd3UG9qSF9rbmJTUVR4YWdUanRfbHR6NnBBVi04ODNma1RPZXlQU0d5Q1Y5Z0xHZWhCZnE0VlByWjB0NFBHTXVlamc5NzJZMlJIaGxyYW4tWE9QWWZTbFhDRFRCWU1BTHZUQi1HTUFxSnVHRkdIODZsZ050NXM5X3B3?oc=5) |
 | Search expands for former Army soldier accused of killing his 3 young daughters in Washington state - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxONDBDamFnOU14MUxMYkhvcm9tYXVZYmN2SnlxS3R0bGxrZi1ZZEkzcVlPanBXdHc0elNJMF9KTVdXVjRTUmhpUWJkWWF2OTNuOW1hdmN1LTRyM3RWZktIbmF1MGFMUk1uRnkxTGtkaWlQTlVDMWw4TDY4YUphb3dlMjdHOUpVWW5KeHVYTlF1Vk1DdUxZOHBJ0gFWQVVfeXFMTXJ4YktvdDZlam0wOER0UTZhZ0QzQUlVYTVjWXdVT3FlR1N2T1BPYUQ1QU9CbWF5Zmo2ZlpjSEZBSlZIeWZud3lGZzFwWUE2NWFxdEd1YVE?oc=5) |
 
