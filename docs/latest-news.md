@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月06日 16:20:20（北京时间）**
+🕒 更新时间：**2025年06月07日 11:41:59（北京时间）**
 
 ---
 
@@ -8,31 +8,31 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| A good result for Labour - but the party squeaked through on a thin margin | [阅读全文](https://www.bbc.com/news/articles/cvgqzdl8lxyo) |
-| Trump and Musk trade insults as row erupts in public view | [阅读全文](https://www.bbc.com/news/articles/c5yg98rl717o) |
-| How 'big, beautiful' bill led to big ugly breakup for Trump and Musk | [阅读全文](https://www.bbc.com/news/articles/c3wd2215q08o) |
-| M&S hackers sent abuse and ransom demand directly to CEO | [阅读全文](https://www.bbc.com/news/articles/cr58pqjlnjlo) |
-| Why Zia Yusuf's resignation matters for Reform UK | [阅读全文](https://www.bbc.com/news/articles/ce80px2gwjzo) |
-| Cowboy Beyoncé dazzles on first night of London residency after slow ticket sales | [阅读全文](https://www.bbc.com/news/articles/cvgvlxk01gvo) |
-| Thousands of criminal cases collapsing due to missing or lost police evidence | [阅读全文](https://www.bbc.com/news/articles/c3e5289d3njo) |
-| Growing number of MPs changing their mind on assisted dying | [阅读全文](https://www.bbc.com/news/articles/c2lk21x800yo) |
-| Bosses' bonuses banned at six water companies | [阅读全文](https://www.bbc.com/news/articles/cdxvpr4qkyxo) |
-| Handwritten notes reveal Churchill's penicillin concern ahead of D-Day | [阅读全文](https://www.bbc.com/news/articles/cj09v52l8v4o) |
+| US brings man wrongly deported to El Salvador back to face charges | [阅读全文](https://www.bbc.com/news/articles/c7v7ynv98r8o) |
+| Government struggles to cut foreign aid spent on asylum hotels | [阅读全文](https://www.bbc.com/news/articles/cgmjd8evd0go) |
+| Will Musk's explosive row with Trump help or harm his businesses? | [阅读全文](https://www.bbc.com/news/articles/ceqgdnd2g9xo) |
+| Bargain Hunt expert jailed for selling art to suspected Hezbollah financier | [阅读全文](https://www.bbc.com/news/articles/c7539vd0wepo) |
+| Far-right group Proud Boys sues US for $100m over Jan 6 prosecutions | [阅读全文](https://www.bbc.com/news/articles/cr4z7zyl0gwo) |
+| Secret Glastonbury: The mystery of the festival's surprise stars | [阅读全文](https://www.bbc.com/news/articles/cvg5zd3nkkwo) |
+| 'Massive' Russian strike days after air base attacks | [阅读全文](https://www.bbc.com/news/articles/cvg7zy1jq7no) |
+| Hopes of closure fade as police wrap up Madeleine McCann search | [阅读全文](https://www.bbc.com/news/articles/cy8ndx4v8lro) |
+| Beckham's already in with the royals - and now he's scored a winner with a knighthood | [阅读全文](https://www.bbc.com/news/articles/c5yezxvjy25o) |
+| Thunderstorm warning issued for large parts of England and Wales | [阅读全文](https://www.bbc.com/news/articles/cq851x1y9eqo) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| From bros to foes: how the unlikely Trump-Musk relationship imploded - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQcUkyS1Vrb05PR19zZXRXaEtCNzZydGxvaUZYcUhBQk9UM29jcDdVVWNTcmR6T1dQRXhoUk9sTmFSZmxYXzdiTDlTc3hnTDJkU1FDZk9taHV6STVySXNWS1BNcXZrM19rcTJhM0wtTVlCM1YwV2gybE83NU5wMERoN1M2cktKN0ExVUttVXlnX3ptVGthb0duT2c1WlpMZmstY1E?oc=5) |
-| Judge Temporarily Blocks Trump’s Order Curtailing Foreign Students at Harvard - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNMnFzdl94UWkycWJMY2NieHBwUlZRdFdjMjlBNW8wc3dxaXhNSkFsNTlSZzcxWWtRS1kzU1VhaVdRMlBNaUZQZVVTZEwxeWRiXzE2dnN3Xy1GYXQtYXBFMnNPYlN4X0NSclJ4Z2hpUVNaalFSOUxPNXQ4TmU4LVRMMlhual9YaHpMZTh6bklqcDQ2dw?oc=5) |
-| Russian missile and drone attack across Ukraine wounds at least 3 and causes damage - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNMHVtSkpRWmJEbkt5UE9xUVBkbkpOblZBT3Y0UDJGS3pNZE1UX0pwb3BwSWYyR2h2bXpGbElBdXVJRXFDZERBWDJoa0F0OW51QXJPWDJob2wtV2ZidHlmenR2eEJ2VEZxVnBGblRWVTNiX3I2LWpPbVNrUTNTODI5aEZ4SXhGeWlfdWFXR0tXcHJVejVrWmlRdkppVFdWYjZZSWc?oc=5) |
-| Musk calls for Trump's impeachment - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiZkFVX3lxTE80eWJkZmJFbFl5N3ZnMjQycTlUcE9NUGZsYzZ1N2E2Rkt6elBVcmNncUNDRFZHMDh5QVJ1dnZLV3JGazlSdVdEVWJCQWhUSzdOVFB0cGJqOExvRmExak1UeXlGelN5QQ?oc=5) |
-| Marco Rubio sanctions ICC for targeting US and Israel - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBCbjZ2OVZscFVPbmI4RE05WGhja1Rsal9UeVJZRmswM3BpWWg2WVFUQWVMZTV4TkJNZjJVTkFWTmRxZGdmcUN6R0Q5bS1fMkpqWWdKMTh1NGFBd9IBX0FVX3lxTFBrRU5URV9mNHpGbWQ2MFVNeFZwNnRUOHJGaE8tT19lU3JCQzVFaXFxcFRGV3EtY0U0d1hoMm04VTZXbVFkLUx2ZlNqalpMX1p6bnBwX3BJQm9iY2k0MlRj?oc=5) |
-| President Xi Jinping Speaks with U.S. President Donald J. Trump on the Phone - fmprc.gov.cn | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBhZmxTX3p4X0JVVFJaNUJEUEdDWGtCNEdsQ0ptWi1VcWd6VHdRYWZ5WHdIRzFubURWcXB6OEtrbllscWc4dDBzOWtXYTlmaFJkSnJsdzdlWUtMTm1ucGM2U0JnSzdVcWlITEdPMDhBbWdYNjlaTkE?oc=5) |
-| Father who killed 3 daughters was 'active dad' but the 'system failed' him, ex-wife's attorney says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQOUtneTdzN1V4NzRCWlU0U2lHdTNLb2FTWmdLY0dJd0VzaC1LR0c5bTJXcGZ5Ti10by1VNmFIbFNhNlpEVWZGaG1XSHJGbFNqb3Zmd1d4cVk2Sm5WbFFJMDdhWUpGUkcxNUtNT2dmZkxLZS12RllLU1pXZjM2TFRUMzRSUEpUMFZRSU9BSXdXdGdBWmdPdEt1amJjQdIBoAFBVV95cUxOd01PdEJwcjRvWG5pcWtXYTl3azFqaTZmbHNqX2k0S0hlUGhRcWluSHRvcjQtcXZMbmIyaWVVMzZfV1B4QjBQV2R5WURxS042eE9NOEgxNGVOb2tSODd5UERiZHgxUUxEemk2ZVJ6LWNMLTExdHR4eXJPUzBKazF4MzFfalRLUE1FZXZ3Z3E0RFBxczlSdGdLcmpMTlJrSzda?oc=5) |
-| Biden’s White House physician subpoenaed for deposition by House Oversight Chair - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFB4bzFiN19oNnp0XzZVRERzYzVKeVZMLURWb3E3RTRJeGhJSzE2M3RHUWN5WUV6cnNXNVZzOVJmYUZRdVNvX3k0eVRZMTBlMGM2bll0OFpQaGNxWGRKUGZBVS1QbWV3Skc4ejNVTjNkaTBCUjVrREVnQlpBb2t3SDTSAYQBQVVfeXFMTUpWZnZDbDA5UjZpMklZdHNkVGRWbnlNOEcxRDE0M21rWTVqX09yMHZhQ2NvbUZBSi1OTUplekpiU2hJSWtna2VkSi1oQ3dhNTlvejNFUEZGaTgwNmRoZVM2U1g4RGVQYWxxWGpSenJ1ajhUQ0trVTUwQ3VvNmcycVJncEd0?oc=5) |
-| Milford teen released from ICE detention, says 'All glory goes to God' - GBH | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOQzcySnA5dGE3SlN6dTZXMkQ2czlTMmlEZFhxVW9OWE9hY2d2dGkwYzJaUV83NDhZRmMzT3N3Nmthc3lQUkh0ZUhwQnhMalZpdlNfM2podEZmZnU2UU5WWGItSlJIXzhwbGRqS0dLZi1NUVpFWmdiQTN0MHpvekhEYlVRU0g4WkwzeGZF?oc=5) |
-| MYTHBUSTER: One Big Beautiful Bill Cuts Spending — and More Cuts Are on the Way - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQcWxnRjE2aTRWWXBTZWlwaERlUDBjRVBzY1RuUGJtNnozcXVid3J3SEc5WGdPNEVvWGdlSVlWeXB3Z1ZPMU1YNnBqeVJZX2tnakVteXJWRzU5eVpqTzFkbjVIZVFNOTdtSHh2S0haczRqRXF3S0VpbkVDa29qb3JoN2NqVkJ2cGFaUEgtZUNCUVNhd2JMUTFzRjQxd2s4ay1uTnJFYWozRUNZTko1X1BPTHoyTFdmTl9NazlzVU1R?oc=5) |
+| Buildup to a Meltdown: How the Trump-Musk Alliance Collapsed - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE00MTRBNk53V0ZuakQ1RVJQN1l1dEkzYzVBR3NBWW5oUW9fRENoWC1MOWczY1NZLVc2bDNHeVJEck1jclNSQVpSRWZiRnQ1MGFDUEI1TjdGYkhvYmtvQ2hhTG5NSWo2U1c0SzVRNlI0V0RKU0t4UDYwTXBqQ1Z6Zw?oc=5) |
+| Kilmar Abrego Garcia is back in US custody after being illegally deported and will now face criminal charges - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5Xak1lVWdDVm1kcF90ejZJd0NKVGlrNVc2SkJUZ3FYdjNXdF93RE10M05KZU8tRkplZnExT0pibEU0QlExSmZ6cXBELVpmSHg0Q3dDSzZFRmhMNXU1OGdpUkhmV3JVSUY3eVlWNWsyS2w0MXRVbUhMQm5B?oc=5) |
+| Multiple immigration sweeps reported across L.A., with a tense standoff downtown - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPdkhJZEtHQ2FlOEFOMW90Z2xXSi1WUTFKZldUcU94WW1sLWo2YWR2RzdYejJSaVBCemVlNXNnQUlud1lOOFFNdGEzMlVsUmhtWEpNN25MVDFnUktDSExYUDZ4RFFpVFNObjFaeXdMR1VTb3NWWERpNzB3NTN1TDNyaWU4dEstRTVVUWpzS2UzVzUycVk?oc=5) |
+| ‘He’s a bulldog’: the man behind the success of Ukraine’s Operation Spiderweb - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQamoyanU5Um5vM0preWpnY2lzTGxFSHJnMDBoY3pCRDdYQ3Ruc0FGaGNoakxmTnNPNWIyZVNTMEJLYWtnNVQ5LVhIMUFDbUtmSTRnNEhNVVRxQ0FWb3RzYVpGVVBfV1Z6eUgyME5zMWd2M1FOcFBFT1RObnZNYVUwUk4zMEw1OHdiWURKaTlJYl9ackdtUTNPNnVEejh2VWFqYW1CMGtFRVlaYzdZOFh3?oc=5) |
+| Supreme Court lets DOGE access Social Security data of millions of Americans - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPZTVFVmlSRmUzcW0wUXd4YWFNa21SRnZuQ2dfNUZZN2Y0anozZFVXeEUtd2ZxSEV3TG9OTFhha1gyUWVzNjRiUW9GZ0RMTEY1bDExY1RaeEFySUUxN2FIbDBsc3FjalJ2eFNESVBQcmNrcU5zNkZTdkMxNWRDNXBWX1lrRkZwZEpyS05iZUNJOWZFVjNjc1U0WW5wVjZiY1V6?oc=5) |
+| Deportees are being held in a converted shipping container in Djibouti, ICE says - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxORU9jbTA5T2RnaW1HSWQtWlZKX1lLamlTcHRQZW1WOUNBVUtaN3ozV1BoZktwSFBvaEF3LU5iOFcwTmxzeDZaMjRmakdQWjdUSk5QSlB2ODllSHBUdTBKVURubjB1NWUwVW1MenF0andoSFBDeXlQdzhEczkwbExMei1DbGg4NERCUlE?oc=5) |
+| Arkansas killer and rapist caught after 13-day manhunt in mountains - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPZlI4VDU2Rnc3V3hRbXpjelhZcmxiU0NOR2QxZWxZYTA2UFdwWHJ0OHI4dHA2S1lzOGY1b0hxX2dxcGtPZ3lBMGh4RXQ2WllGUkhxS2c5dGNIdmtsQk95MGliSUplclFsM1NnZ3RsX19BTjFlcU9lNGlZaFFSX3E2RkVTR0JLdzRHRmFn?oc=5) |
+| Transgender troops face a deadline and a difficult decision: Stay or go? - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNVzJ1S3Z4VkhDNjBjMVZCVWZMY0MyNW5uMWpLWUxGY0RMZTY2M0ZCb05yQ1JDbGxFeU16VFd2dkF4MzZkS3Qtc3VadFUxQWNHSjd5OEREbUgteFZqTUtYVktDc1kxbmFZWm03bVdFbGp6NmxKN05tUkkzZDgxd3FxNVZISkpDaV9RMHI2RU1yNk9PbGlDMDBGZG5Tb2gwZ0hhalFNeU5xSTVhdkdYTVc5OFFydUlKNGxrNjJBNjEwcElvbGdy0gFWQVVfeXFMUEVVaHpsVnlzMUdmNThmUTc5TWJIbFdxUGRMSEVVTzRnU3NaOWxHX0dENFZvM3JuYU9BNm43YnUxQ0ZNdWFTVjd3MktqeE9RWjgwSzB0WVE?oc=5) |
+| Derrick Thompson found guilty of murder in vicious car crash that killed 5 young Somali women - Star Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxQSjlTQWpBYTF2Wi1KdTNSOGxYSjBHOUdxb1otWVVKbUlqSTh3aHJnS1owWWlWeGhCbEEzREliQ21xdGNRWVlUSnZDMXlLaDZNdXk4Tm9KcmpJb1Y0ZmYxLTBLVmo3QnI5X1lhYklweEEtak4xTm5iZW5CbVNQZkIxbDV3dElSbmJNQjZPVmtzX2dpaERnLVVYY1c2NDhoQTk1R1djMFYxdVoyZ1lWR1drMjBmQlYtWUpQcmd2QmUxd2hleFFJaTdHaG14QQ?oc=5) |
+| Elon Musk threatened to decommission Dragon spacecraft. Here's what that would mean for NASA - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQQnJ3YkdiUmhpbFdJNzA1X0tBRnlsc2drb0NHVHFkNzFTdERFWTlyR0EwaEFudkI4bDhPZjVZdS1IU1BaSlpZdjY2SktRTXV5RXM5dlp1WEpCTXNXemFMTi1EOVpMSlcyVFhPdm9iOWVMbHlxY0I2VVN4b0tzbU5zMUl5S1BCOExhUTBFMnhtT09XMGtMUW1VakVRVWxKNV95LWZXN0lwX1FKUkRmVVHSAbMBQVVfeXFMTUNsYzZKSkpoRWFxZUNSQlFGdDJ3Z0VIVGl1akd0YTdyeWFmOXBEcUNzdUVLaENtSG1lMG1qSDVuQ1lfampqS2tReUt0R1FTTXhINDEybFBkNkVMYko0SkNVMkpacDdBUXc4ekFlN1lrVUxZYXNuTlV6TjBPZWNGYnltM3cyb0YyWHFVSHZha2F0QnZRSkU4WVp4TzJZMTdBMWxsT09oT0NCTHpzNUZmX1hvX00?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
