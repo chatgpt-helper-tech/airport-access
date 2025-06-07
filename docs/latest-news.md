@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月07日 23:41:45（北京时间）**
+🕒 更新时间：**2025年06月08日 00:01:52（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump-Musk Spat Creates More Problems for Tesla - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE56WHlCNEZ2UEw0R0RyZndjcEVyVUhEcGtuZVNURWpYMU1ILURYWXVqSU1Ud1RNVWd5NVZuQXBQdTRTdW5qd1ZVUFdfSzE0cXRiT0JBOFlwcmViWEZacUpSRGVlclVfWWVIZkFtY2V4UVBGd21OZjRCR0xR?oc=5) |
-| Man wrongly deported to El Salvador returns to US to face human ‘smuggling’ charges - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9hcHd5T0tnUXIxUlEwR3huQ0p2eGloUVFrdTlSUC1meHdHTTJsQmFVNWE2YmRmRXFKcDAyYTFNUEZrZ0c2aW9TdkhzYW10MlRVY1Q5SEpDZ2VhYmNtSHFTNG01cFNzdjFPX3BOWEZJNnA?oc=5) |
-| David Huerta, president of SEIU California, detained during L.A. ICE raids - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQeXh1N0dSMVI2NnluWmNuWEg1UmppbUpIdlFfeXZoeGtGR25OM0JVSi1RSndibjRnM1FENmtvV2xYRHBsbWYxdmdaa2trRXYzckJkNlktUUlBMnI0TGxFdGg2SUh5TDkzdndHYWNKQm9zT1R5WnktRU1XU3pNOXpubUJ4NklWaW5rdS13Ym9ua0U5VnBYRm9xRUhxREdtNVJoampGMDVUeWhhNlplWThVa1NRUW0ydGRY?oc=5) |
+| Kilmar Abrego Garcia Returned to U.S. From El Salvador to Face Criminal Charges - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNMEgxUHhqZHBfOThZV1dleG1iZ2syanVMZ3NVVHZaUWgwR0J3cFFMcEZxNDdmamI5UE5NZldEUzhwN1FOSTQ4MUl4STB4V1pjTDRoUjV6SzV1TFFFeGUyUDlfY2FublZHQkgtaG5GbXIycFVLdE5UWk9vOEQxZmZQejRrc25teWNvZmJ3MUNGanFweDhMREtv?oc=5) |
+| Trump-Musk political relationship: A summary and timeline - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOb1NJMzkyZU9IRF9yUWRFUHVITTQ5RVctSmx0cFFRak5VSDY2Tjkzam5UeG9uQ2o4cG5yT2ZuWTNOcjE0UFBCUU1YalFIQzdQNTZibWh3ZEVyQ2ROd2NlNEY3ekJacFpKMU9JakExYVJKeGJrSXZHcUdmZ09DemhTVzdKN2xQWmM0NXpBWnpGMlRwemdjX3FMUy0tTnVYdkl5Z2ZodTdicG84RTDSAVZBVV95cUxOY0NaemFYcmFQNmgxaGNqWFFQbGtYM2ppZU9MME11eWpCOHV4ejhBSDd0dENNemVybXh3dzVLVE51N3o3SEIzRUFrMFNUM014djNhendtQQ?oc=5) |
 | Kharkiv hit by ‘most powerful attack’ of entire war, mayor says, as Russia pounds Ukraine again - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOOFdYQkpWa2xwc3RiV3VTYjYwbjlBZFl5SkdlYzdydXZrc2FBcmx0OFNUM25QakZUSF9kVGhUOWJ0UWpDZHBHbWh1ek1yYnNpWUNranlqX1hnYlFZSHlESlpoalYwUWlYZF9XQkV4MEZWSG1YOHFDWHBPOU5IcUdtQW43WdIBiAFBVV95cUxPbjVUZzBxRlNlSndSMkdRWnJEZmcxMGRqbTJ5WXFJWmdnTS1zNmNUZWthOXV6OTdVVjNoQnJqUVhKRml0YzVaaG90TTNvbWwxRjYzbWVnV0pKcGVrRmdtRHNiYUwxSERvVTI0ZXJLMTNNMFducWZwUGk0V0EtR2V2RWdiZmdCQ0Ff?oc=5) |
+| David Huerta, president of SEIU California, detained during L.A. ICE raids - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQeXh1N0dSMVI2NnluWmNuWEg1UmppbUpIdlFfeXZoeGtGR25OM0JVSi1RSndibjRnM1FENmtvV2xYRHBsbWYxdmdaa2trRXYzckJkNlktUUlBMnI0TGxFdGg2SUh5TDkzdndHYWNKQm9zT1R5WnktRU1XU3pNOXpubUJ4NklWaW5rdS13Ym9ua0U5VnBYRm9xRUhxREdtNVJoampGMDVUeWhhNlplWThVa1NRUW0ydGRY?oc=5) |
 | DOGE caucus leader says Elon Musk made a 'massive exaggeration' about spending cuts - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxONWJPcmgxcy01Zy1kWGg2QjlQWnExdjc5NFRsc1ljSDJkV3B0a3lwcmxLejNqSXdLS3FNZGdZNy1tR2ZqeURBZmdvcWtFbjdFSHp1VUJUbV9JMThMMlRrcVZEaW9IRXNYZDRYTEc5d2x6MW82RGVBOFgxSkpTeUZhem04WlB1amdNNFRsNHZHdzRzSlBGVDZz?oc=5) |
 | A former police chief who escaped from an Arkansas prison is captured - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPNUFreFczWmh1TmNsblp4ZTZFSHQzV3loN29IaDdCNnZncm10d2dRb3NVNnhaTkxQV0Z6WDJob3ZZN3NlZmpqb3RmWWR5Vk1jSXJsOFpFR291YmdlU3JVSURUdFQwcy1YWjFIWU9YQzhkeEVYMlRuT3EwLWp6ZHB4dVJPR2gxaHA1STJ2ZkxwYWwzU1JhUTY0dw?oc=5) |
 | Trump’s International Student Ban Sparks Fear Among Harvard Attendees - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQTFVhREg5bVhzRjF4cTJaS2t0X0RCRy1IdUJodVNWZFFwTGVlUFYwWXZnelJVcVJxNlZqMTAxcXRiSVFzTW9fcU9zaDdzNDFlbm5CcTBTcDJSU1Jld3RUeUpFNEJXb2dYUlRVNVlWaXIxWUxrWmFRQkZuVE4zRGR6ODBPaGNmTzRmWUE?oc=5) |
