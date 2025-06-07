@@ -156,6 +156,32 @@ IEPL 提供低延迟、低抖动的稳定连接，特别适合高频率、大流
 
 根据长期实际体验和稳定性测试，以下是我为不同需求用户精选的快速推荐：
 
+
+---
+
+### 🥇 高端旗舰机场推荐：<a href="https://invite.wgetcloud.ltd/auth/register?code=xEgJKS" target="_blank" style="color:#1a73e8;font-weight:bold;text-decoration:underline;">WgetCloud</a>
+
+**推荐理由**：WgetCloud 是公认的顶级老牌机场，口碑极好,拥有全球高速专线节点，稳定性与速度俱佳。即使在晚高峰也能保持 4K 流畅播放，全面支持 Netflix、YouTube、Disney+ 等主流流媒体平台解锁。
+特别适合对网速和连接质量要求极高的用户，如远程办公、高强度科学上网、跨境视频会议、Steam 游戏加速等。
+贵是真贵，但性能、兼容性与体验拉满，是“高预算重度用户”的不二之选 —— 确实不便宜,但是稳是真稳,全年365天不拉胯。
+
+<div align="left" style="margin-top:10px; margin-bottom:20px;">
+  <a href="https://invite.wgetcloud.ltd/auth/register?code=xEgJKS" target="_blank" style="
+    display:inline-block;
+    background:linear-gradient(90deg,#ff416c,#ff4b2b);
+    color:#fff;
+    font-weight:600;
+    font-size:16px;
+    padding:10px 20px;
+    border-radius:8px;
+    text-decoration:none;
+    box-shadow:0 4px 12px rgba(0,0,0,0.15);
+    transition:all 0.3s ease;
+  " onmouseover="this.style.transform='scale(1.03)'" onmouseout="this.style.transform='scale(1)'">
+    🚀 点击前往 WgetCloud 官网｜新用户注册享 85 折优惠
+  </a>
+</div>
+
 ---
 
 ### 🥈 主力中端性价比机场推荐：
@@ -211,32 +237,6 @@ IEPL 提供低延迟、低抖动的稳定连接，特别适合高频率、大流
 
 > 🎁 付款时使用限时专属优惠码 `Crazy618` 可享受 **8 折优惠**！季付限量包,不享受优惠码,老板说这个套餐已经不赚钱了
 
-
-
----
-
-### 🥇 高端旗舰机场推荐：<a href="https://invite.wgetcloud.ltd/auth/register?code=xEgJKS" target="_blank" style="color:#1a73e8;font-weight:bold;text-decoration:underline;">WgetCloud</a>
-
-**推荐理由**：WgetCloud 是公认的顶级老牌机场，口碑极好,拥有全球高速专线节点，稳定性与速度俱佳。即使在晚高峰也能保持 4K 流畅播放，全面支持 Netflix、YouTube、Disney+ 等主流流媒体平台解锁。
-特别适合对网速和连接质量要求极高的用户，如远程办公、高强度科学上网、跨境视频会议、Steam 游戏加速等。
-贵是真贵，但性能、兼容性与体验拉满，是“高预算重度用户”的不二之选 —— 确实不便宜,但是稳是真稳,全年365天不拉胯。
-
-<div align="left" style="margin-top:10px; margin-bottom:20px;">
-  <a href="https://invite.wgetcloud.ltd/auth/register?code=xEgJKS" target="_blank" style="
-    display:inline-block;
-    background:linear-gradient(90deg,#ff416c,#ff4b2b);
-    color:#fff;
-    font-weight:600;
-    font-size:16px;
-    padding:10px 20px;
-    border-radius:8px;
-    text-decoration:none;
-    box-shadow:0 4px 12px rgba(0,0,0,0.15);
-    transition:all 0.3s ease;
-  " onmouseover="this.style.transform='scale(1.03)'" onmouseout="this.style.transform='scale(1)'">
-    🚀 点击前往 WgetCloud 官网｜新用户注册享 85 折优惠
-  </a>
-</div>
 
 ---
 
