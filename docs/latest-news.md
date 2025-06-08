@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月08日 21:41:23（北京时间）**
+🕒 更新时间：**2025年06月08日 22:01:22（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | Gaza health workers say four killed by Israeli gunfire near aid centre | [阅读全文](https://www.bbc.com/news/articles/c5y5wpz49xlo) |
 | Police must 'do their bit' on funding, minister warns | [阅读全文](https://www.bbc.com/news/articles/cx2edggr805o) |
 | William warns ocean life 'diminishing before our eyes' | [阅读全文](https://www.bbc.com/news/articles/c3d4387x1d0o) |
-| British soldier arrested in Kenya over rape allegation | [阅读全文](https://www.bbc.com/news/articles/cx27vqvkn9vo) |
+| Government considers social media time limits for children | [阅读全文](https://www.bbc.com/news/articles/c3d4349gdx4o) |
 | 'I moved to Italy as a baby - now in my 20s I feel invisible' | [阅读全文](https://www.bbc.com/news/articles/c780yk3z2lyo) |
 | 'I burst into tears': How airline carry-on confusion triggered legal row | [阅读全文](https://www.bbc.com/news/articles/cz70ny09x07o) |
 | Chappell Roan's Apple dance, Charli XCX's brat curtain and other Primavera moments | [阅读全文](https://www.bbc.com/news/articles/cn4qn8l0pd3o) |
