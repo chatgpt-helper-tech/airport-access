@@ -92,7 +92,7 @@ IEPL 专线机场，支持移动、电信、联通三网高速回程，小众稳
 
 进入会员商店,按自己的需求购买套餐
 
-![会员商店](./assets/bbxy/member.webp)
+![会员商店](./assets/bbxy/memberstore.webp)
 
 ---
 

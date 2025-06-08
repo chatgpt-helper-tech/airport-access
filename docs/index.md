@@ -98,6 +98,9 @@ description: 机场推荐,实测2025年最稳定科学上网工具，评测 Clas
 
 > 🧠 **作者实测使用超过3年，稳定性极高**。日常办公、AI 使用、高清观影、海外游戏、跨境电商访问，**全场景表现优秀，值得长期使用**！
 
+>  👉 百变小樱机场详细测评请前往: [gptvpnhelper.com/airport-access/bbxy/](https://gptvpnhelper.com/airport-access/bbxy/)
+
+
 ### 百变小樱2025年5月24日实测
 ![百变小樱2025年5月24日实测](./assets/bbxyspeed.webp)
 ![百变小樱2025年5月24日解锁实测](./assets/bbxyunlock.webp)
