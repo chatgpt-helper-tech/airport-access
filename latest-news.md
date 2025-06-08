@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月08日 20:20:06（北京时间）**
+🕒 更新时间：**2025年06月08日 20:40:04（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump to Send National Guard to LA to Quell Immigration Protests: Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE96RGl6VEhVV3M4cUtqVlpNczVfU0dDMEV6TVZVNzBreXpSYU1xQ0tMZkZiVmVSZmZRb3RLeVFpQkFHNGl4eF9DeGhYakNuUDAyMmE0alo1bUhRM2RxX2UzRzdwbVk5Q3ZUbjFkVUVncDhhNGE5eHpHcHMwdw?oc=5) |
-| Trump threatens ‘very serious consequences’ if Musk backs Democrats - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQTk9XSWVkT2pVY0k2SS1acWdETTF6YnV0ckpDT1IyWXNOUWE5N0JQeWhvb3pfT191UFdIcHFMcTZaanZTUElaaV9Jby1QNW5EZFdJaDFkUG84TFUyZ3lCYVJ6SFJuMVB1VGZvUUozeHN0ZUVLeXFsM1dhLXdkMnlwQTdkOA?oc=5) |
+| Trump says Musk relationship over, warns of 'serious consequences' if he funds Democrats - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxQZS1WWFVBVzdzS09MV1B2SGpNRklZckpXRDM2blptdElaaWpLSHZZN045R1RjRUxHWVpMSEx5TUg2MkJZSHlPeXN1czJVWW9lWjBvUl9kc2VZLV93T2ZpdjdRLTN1akNKOXFIWFV5blE2eE9tbFhtUGJUa1FwaTlxcVRkOXpCMUszUkFYTDZRbTBPUGlCMFFnRjNMQjd4bHpNN2lYdWpmVERkOFQtZ0xkeXlqc1B4TWNKY2tLN3JMa0VscWw0OG14OEEwaXdDMTYyajJ4VU5zVQ?oc=5) |
 | Ukraine drone barrage targets Moscow as Zelenskyy demands accountability for Putin - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOMHo3WXRjOWE3Z3NxVDJxNGI2QkxtVWZlcmhycWItUFJMZFVtcXk4TzZjcGxUaWtXYzBRVmJneHVqNW9VRmFRb0RraHBhXzEtQkpqU2FTbmN1eXVlX094UVFVWWNrMlNZeGM4blQzdWUtUDY5RUNiSHdSSC1nT2pmcFBuZ3VhWG9NdGpkTWRzUzNXOU8zSU91enRLVVNfZERQLXhTSFF4RERZZkc0MzVrc19zLUQwaGVwUnd4OGVMRk5zMVHSAcgBQVVfeXFMTm1maDVETUJtbjB0Y3V0cy1faE1ZbzRJMm11NEJ5RVIwLUVkbmQyUzRzMmpkcmVGNmF2akNxUUpZelg0OWRTZDBTQ0dwQ0lTSExoTEFXeGJySHJwNlFZUTc3OWhYQWczaGFPblpfblRFYUhEbEM0UG1Fekswd0RXUEpHSVJHT0xpVFBuUWFtMXJIZGRROWdVQnlZeXB4NG1WS01IMW4yNWpxOUYwZHZydjByV0tqR1FhcnA4M2pMS1dyd0JtWWp3WGU?oc=5) |
 | Miguel Uribe Turbay: Colombia presidential candidate shot in head - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE54ekx0S3R4bW9uVzJVRkNmVktkNnRrQ0lXQS15SXdfY2MxY2FFS212UFNqelBwcG9sQjRzNmhRZ2RXTUJSdUdSVi1CRVRjTjFTUEhKcXBXZDZ4UdIBX0FVX3lxTFBuZE1qVkx2cUZBRFp4MngyMTdxSEl1SUMxMjNLSTZ4SHRWTUUzTWRlaFQtcWkxTG5zVW9MUTFhMkUtaE1QSnFXRGx4Nm5MSjczYTFoUDBsNUliSmdNNlNV?oc=5) |
 | New questions emerge from the new charges in Kilmar Abrego Garcia case - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNazBZbjJZQmthTVFJRlJyTnFiaU5ObmRoUEhmY2Z5M2U4R1JKVTJSMkRoaE5TOWhkU1c2MWVCbk9fM2pMdnVPQl9XbHJIeEtmclgyXzl3T2stZy16eDVydmloNHF6R2Z0N2UweEhYNVFaOE5rTTA5eDRPLXhoV2xRem1HV3XSAVZBVV95cUxPTHA0T3dtNEliLTlSemx1ZW52S3JZT1dBUTFwX0VCckpSaDZHY19uUGdkV1o0aVF1Y1ZfdHpxZGZHblAxWXJPS1dYU1M3YUNydWNvYlBzUQ?oc=5) |
