@@ -795,7 +795,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 
 **📊 实测连接质量截图**
 
-![龙猫云测试结果](./assets/LongLong-Test.webp)
+![龙猫云测试结果](./assets/longmaoyun.webp)
 
 
 ---
