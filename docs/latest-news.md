@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月08日 14:41:33（北京时间）**
+🕒 更新时间：**2025年06月08日 15:00:31（北京时间）**
 
 ---
 
@@ -23,14 +23,14 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Live Updates: Trump to Send National Guard to L.A. to Quell Immigration Protests - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE96RGl6VEhVV3M4cUtqVlpNczVfU0dDMEV6TVZVNzBreXpSYU1xQ0tMZkZiVmVSZmZRb3RLeVFpQkFHNGl4eF9DeGhYakNuUDAyMmE0alo1bUhRM2RxX2UzRzdwbVk5Q3ZUbjFkVUVncDhhNGE5eHpHcHMwdw?oc=5) |
+| Trump deploys California National Guard to LA to quell protests despite the governor's objections - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNMjBudGdpMk9Ud2Z2dFQ5ZVVFTU01bDg4cDBGb2hJTXBSV1pVUG9VTWlKNy1EOVVtaTB5cV85ek1pQTVVR081OUpCYWE3NnRkSGVUR04wV3Z4TjFOaUF4N3QyYU15RkUxV1I0VjBpelotOGJtelllZklOcGtiZEtJamk0c08wYjNMMDRka1JhU3loc1E?oc=5) |
 | Trump threatens ‘very serious consequences’ if Musk backs Democrats - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQTk9XSWVkT2pVY0k2SS1acWdETTF6YnV0ckpDT1IyWXNOUWE5N0JQeWhvb3pfT191UFdIcHFMcTZaanZTUElaaV9Jby1QNW5EZFdJaDFkUG84TFUyZ3lCYVJ6SFJuMVB1VGZvUUozeHN0ZUVLeXFsM1dhLXdkMnlwQTdkOA?oc=5) |
-| Colombia's potential presidential contender Miguel Uribe shot, suspect arrested - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPTzVqeXBNQlZuYzRuRlF5U1Qtb0dScXJPdmgzVWpwTmw5eUNlWmM5Y3JNNXpSa0JPaTdMbjlQeGFmeS1ES2dNaUJBZW9VV0x0WU84Sk5LYTdncHNxQm56ZFI5WVBIZ25oeC1EV2tXSGhta0U0TEZWWU5aZXIweF8wM2t2S2Z1U24tSThyUU1veEJKVU9RTGtYMw?oc=5) |
 | New questions emerge from the new charges in Kilmar Abrego Garcia case - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNazBZbjJZQmthTVFJRlJyTnFiaU5ObmRoUEhmY2Z5M2U4R1JKVTJSMkRoaE5TOWhkU1c2MWVCbk9fM2pMdnVPQl9XbHJIeEtmclgyXzl3T2stZy16eDVydmloNHF6R2Z0N2UweEhYNVFaOE5rTTA5eDRPLXhoV2xRem1HV3XSAVZBVV95cUxPTHA0T3dtNEliLTlSemx1ZW52S3JZT1dBUTFwX0VCckpSaDZHY19uUGdkV1o0aVF1Y1ZfdHpxZGZHblAxWXJPS1dYU1M3YUNydWNvYlBzUQ?oc=5) |
-| As World Pride starts in Washington, some foreigners stay away - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5XOUkybERwUGp0LVphSjF5ZVZteUMyMEJVOGVtMUszREN3aDNKV1ZRaTREY0xFWmxKb3R3NW9SMGpUb1NSNmJlRHFjQVdRSVE1a2pqamIwV2xPUdIBX0FVX3lxTE9ubHJ4SFNlVzFKam0yQXhFdi1TQjFoRktQWEVCcWVjV3BkdE9HUGZUcjBPZ2VTZ0FBVW1sdGVCSHdLeV9qZFNCN1pPY3BYSXV1RUhBcFNJTHhsVDFuLW9J?oc=5) |
+| Colombia's potential presidential contender Miguel Uribe shot, suspect arrested - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPTzVqeXBNQlZuYzRuRlF5U1Qtb0dScXJPdmgzVWpwTmw5eUNlWmM5Y3JNNXpSa0JPaTdMbjlQeGFmeS1ES2dNaUJBZW9VV0x0WU84Sk5LYTdncHNxQm56ZFI5WVBIZ25oeC1EV2tXSGhta0U0TEZWWU5aZXIweF8wM2t2S2Z1U24tSThyUU1veEJKVU9RTGtYMw?oc=5) |
+| WorldPride Parade Attendees Celebrate in D.C. With Both Joy and Resolve - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1vVDR1Sl91dzY5SEgwcG12aHE4U0VyOUtrd0FYTEtTdFZyWlF1WFBldzBQQUZWVjJldzk4ZjF3SWRUbVpyNFFLWXQtT2ZJM0xOaFRuV1laWnpvZ2x3eEpkakFCUDltT1ZpUWhaYTAyUnZWYnhrMmZRQzNxSFFsNE0?oc=5) |
 | Israel is accused of the gravest war crimes in Gaza - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE85MzdCa09pY1gxWm1Da19PeElEWVQ1Q0VyQ1E2NGpZVTBOdHpMU0ZxMWVnZDFtZFA0cThkRktGUEJiTm50YTdCWm1qMlBuVmFjYjgzOHBEQlNsQdIBX0FVX3lxTFAyeER5NWMwWVBCUHc2YWJSdzUzYVFxSEt3aDZEb194ODZGeEtoWnQ5eXJmbTR6c3VWVWMyY1lQc3VUR3pLeDFCanZlaXRydnpqcnBVY1ZReC1TRENFV1gw?oc=5) |
 | Decker manhunt: Officials reopen Icicle River area - KING5.com | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxOZU5rSkNhN3RyVGZlbFpKb0J2cS1IbjItS21vVUJlaE82NHo5Znl1cFQ3RGgzcUV1V3BqVTFNU3RfZG01VURHeGpkZHhCVkRXam9GZHpvUFNiR0lXVXFZMHhra2hNSmZlM0tnc0FUa1ZuYzlXeUVEejdaUHhMa2FWbmFFbHZoNDhXOUhvX2dtYzBHeF9rRmhLMEU2YlBWQXNEblNDV1ZXbHprQnoyN0VsY2xrUVVxUU9lc3NvNUJkaGdjMnVwYlNsWTNvdw?oc=5) |
-| 2025 mayor, City Council runoff election results - San Antonio Report | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPTFp4Um5va0RYSktNOGs1U1FqLXliRk9uNEdZaS1HX1RLc0VCZmpuM200TmNBYVJobmREQ01taFRwdGZxQldDZEJXOTJuOTBXREpQd1VjRUliZ3cwQkRONTc1Z1l5RXcwTkpOelZsVTQtU3prTS1JQTZTd3NMRm5YSlJ2c0VzQkJ1UGEtN1RjMnNaVERIaTBhSzVUel92SXlYQ09UaVdDbFZuVkRBdFhv?oc=5) |
+| Democrats fend off GOP in San Antonio mayor runoff election - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPcHVUT1duWDJCcWhGSkZ5TU9MU2hCZS1tTWpoblJHeTJWcFRuWkdSOE9GQ2JVeFBGeVd0MEJYRjdhV25uQUp5QTFQX0JGcnd5V1VCMFlnYTE0djktbVEzUjJocThDNFdCdVpPVEd5b0s4N0xVN3NUc2JpVnpoSDZBNkNMb0dmc3fSAYwBQVVfeXFMUDNvaERITWtzYVpKaVYtY25pVmFyaG8xa21sRV9zZjVZOE0yelducld3d1h4NUMwSjNGRWxEaEN4Q0xRUWNINk9COTB5N05LV3QwMlVjU2RqOVA1SWI0R2Q1WmdMOWN5NnVXWDlWY0pkMmZuVEEwNWl5Ty1CLVNlTkw3aXdTbV9Ra1E0M2Y?oc=5) |
 | Man shot, 2 teens stabbed in Dupont Circle - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1DdENnOVJIZFoxLXlxcnAxQXlHa0NZN0ZYTy10enRjV0JwNEtBZjdFQ0JqNFhSVE9ZdXRlRnpXaGMzUkRCckh5U1dqbENzVzBoWEwzbWZGR04tcXdDSGVKQ3pSVHlDV0Z4RHZuYl9WVjhETlM2V2d1X1hsUQ?oc=5) |
 | A former police chief who escaped from an Arkansas prison is captured - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPNUFreFczWmh1TmNsblp4ZTZFSHQzV3loN29IaDdCNnZncm10d2dRb3NVNnhaTkxQV0Z6WDJob3ZZN3NlZmpqb3RmWWR5Vk1jSXJsOFpFR291YmdlU3JVSURUdFQwcy1YWjFIWU9YQzhkeEVYMlRuT3EwLWp6ZHB4dVJPR2gxaHA1STJ2ZkxwYWwzU1JhUTY0dw?oc=5) |
 
