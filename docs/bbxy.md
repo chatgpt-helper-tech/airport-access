@@ -48,7 +48,7 @@ IEPL 专线机场，支持移动、电信、联通三网高速回程，小众稳
 
 > 以下为百变小樱节点解锁能力实测截图：
 
-![解锁截图](./assets/bbxy/bbxyspeed250524.webp)
+![解锁截图](./assets/bbxy/bbxyunlock250524.webp)
 
 ✅ 全节点支持访问 ChatGPT / Google / YouTube  
 ✅ 多节点支持 Netflix 港区 / 美区 / 新加坡区  
@@ -60,7 +60,7 @@ IEPL 专线机场，支持移动、电信、联通三网高速回程，小众稳
 ## 🚀 速度测试截图
 
 
-![速度截图](./assets/bbxy/bbxyunlock250524.webp)
+![速度截图](./assets/bbxy/bbxyspeed250524.webp)
 
 - 峰值速度达 120MB/s+，平均带宽 50~90MB/s
 - 延迟最低 14ms（IEPL），多数节点 < 100ms
