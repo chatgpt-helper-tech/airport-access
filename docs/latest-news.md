@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月08日 21:20:07（北京时间）**
+🕒 更新时间：**2025年06月08日 21:41:23（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | Bowen: Israel is accused of the gravest war crimes - how governments respond could haunt them for years | [阅读全文](https://www.bbc.com/news/articles/c0r1xl5wgnko) |
 | Gaza health workers say four killed by Israeli gunfire near aid centre | [阅读全文](https://www.bbc.com/news/articles/c5y5wpz49xlo) |
 | Police must 'do their bit' on funding, minister warns | [阅读全文](https://www.bbc.com/news/articles/cx2edggr805o) |
-| British soldier arrested in Kenya over rape allegation | [阅读全文](https://www.bbc.com/news/articles/cx27vqvkn9vo) |
 | William warns ocean life 'diminishing before our eyes' | [阅读全文](https://www.bbc.com/news/articles/c3d4387x1d0o) |
+| British soldier arrested in Kenya over rape allegation | [阅读全文](https://www.bbc.com/news/articles/cx27vqvkn9vo) |
 | 'I moved to Italy as a baby - now in my 20s I feel invisible' | [阅读全文](https://www.bbc.com/news/articles/c780yk3z2lyo) |
 | 'I burst into tears': How airline carry-on confusion triggered legal row | [阅读全文](https://www.bbc.com/news/articles/cz70ny09x07o) |
 | Chappell Roan's Apple dance, Charli XCX's brat curtain and other Primavera moments | [阅读全文](https://www.bbc.com/news/articles/cn4qn8l0pd3o) |
 | Labour tiptoed cautiously through its first year - will it now decide to escape its own shadow? | [阅读全文](https://www.bbc.com/news/articles/czdye1963jmo) |
-| Tinder's height filter divides daters - 'My boyfriend is 5ft 6in but it doesn't matter' | [阅读全文](https://www.bbc.com/news/articles/c98prk6ljdyo) |
+| 'My boyfriend is 5ft 6in but it doesn't matter' - Tinder's height filter divides daters | [阅读全文](https://www.bbc.com/news/articles/c98prk6ljdyo) |
 
 ## 📰 Google News
 
