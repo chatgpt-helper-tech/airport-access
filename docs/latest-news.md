@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月09日 17:40:59（北京时间）**
+🕒 更新时间：**2025年06月09日 18:00:17（北京时间）**
 
 ---
 
@@ -13,10 +13,10 @@
 | Britain's energy bills problem - and why firms are paid huge sums for unwanted power | [阅读全文](https://www.bbc.com/news/articles/cdedjnw8e85o) |
 | Brit Awards to leave London for Manchester after 48 years | [阅读全文](https://www.bbc.com/news/articles/cdxk7l58xjzo) |
 | US and China set to meet for trade talks in London | [阅读全文](https://www.bbc.com/news/articles/cql2x6d2zkgo) |
+| Reform UK row 'storm in a teacup', says Zia Yusuf | [阅读全文](https://www.bbc.com/news/articles/ce81kj65x40o) |
 | Nurses to vote on pay deal as potential strike looms | [阅读全文](https://www.bbc.com/news/articles/c2e3lp9dl7xo) |
 | Sarah Snook and Nicole Scherzinger win top prizes at Tony Awards | [阅读全文](https://www.bbc.com/news/articles/cx2ql1jl74no) |
 | Trump travel ban barring citizens from 12 countries takes effect | [阅读全文](https://www.bbc.com/news/articles/cz9y72v5yv5o) |
-| First black Premier League referee Rennie dies aged 65 | [阅读全文](https://www.bbc.com/sport/football/articles/c0mr7xlmkxyo) |
 | How LA erupted over rumours of immigration raid at a hardware store | [阅读全文](https://www.bbc.com/news/articles/c1kv1lgdpkjo) |
 
 ## 📰 Google News
@@ -29,10 +29,10 @@
 | Trump shrugs off possible reconciliation with Musk - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1xX0NSNmtlNFlyZHFCXzFKUjh4eVRpVGo3aHJmNnpTTTNJQUwySTlJdjVKd091NjVtdjFCQWNQODVvak1Td1lMR3NFRm10TG5EdU5HYW1TZjB6RnV0UU5fTUtMY0FfdU5WU0ltb0hwMTUxcExqM1Qxa1NhOE4?oc=5) |
 | Johnson was "disappointed" by Musk's big, beautiful bill blowup - Axios | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE9iVWNTLW5KRmtfZE5zeTlTOWMxdi1zSTVlSUlxbTZwQ2R3VnpheTBSYUVIb0hUVzdNRUhVQy1UdVlBUlR5TVhJYnBkOFExMHFCcDJLOG1CdlVEMTdEajM0d0xGdkctdUMzS2E3Q0gxM3Vadw?oc=5) |
 | Polish and allied planes briefly scramble amid Russian targeting of Ukraine, Poland says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNckI2aHM0ZXlJaVJpZHZiVXlzd3pjMzJRLWlzT0ludmhhM0dnRF9udi11Rk9XUmlCTHI1WEVTdV9hNk5GbEdEdWZ2c25QWno1RERXaVdVdURZeWw0Sm9RR2NBOFE2b1RPRkNBdHJ4RTNtVy1LVlpuekhDTW1yalk0enZnay1qMkh0a1V0OW5fM2w1c2hwV09SSGtLMkVfMUZZeWprU0JoRXhFSzZfTlJObmNjcG0wNmc?oc=5) |
+| A skydiving plane crash reported in Tullahoma near the airport - News Channel 5 Nashville | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5XVGpVWjhqZ2QtVGVqbWVVQ2NaZWpqQXhIendXT2s1VUhmRnJ1R09oOXJMemNUTHlsNDBVdV9WNEJDcDZ4QnpVZ19jZUJrY1l3NUxNRXVMN0tCeGItWVZLUVBxdms0ZUZINmdObHNmaEFmTm9HUjJmc1dBQ2o?oc=5) |
 | Runaway Zebra Recaptured in a Tennessee County - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5DVGtwRU1WY2dDT0pTR29LWDZJOVdxcVlxdGNyMk0takxiMnp2V21iVzREdktrTzEtNDAxUU1FZ1dIWng2MXVJRWltTnVwZzBUenE3VVlHaHJqeS1tdThBUjRiRmxWaGkzMDJyUExVbExrS0dYV2tkZmpB?oc=5) |
 | Gov. Abbott activates state emergency resources ahead of anticipated severe weather - Click2Houston | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxPc09VTjV3eG1vY2FwVnplYkp1eFdOenZFNDhrUk9YMEVuaDk1T3QwWmdwYWNyb3hfdEpuM3dMdEl0YUMySmVqcnlNelV0cFpiU1ItTjFDak83UzRwQ2V2QTFSOGFNTFVZT3lpUDhhVUJJNzg4N0ZBb2c4TjZTbmdDMWJENFZlSWRCYnJBdWhWRDFpSlFrZ2V6YWZZSnEyTGEyWGdNQnBqSklsZ0V0ZlhWYlhybkRyR3hYeE10V0h5dUpkU0EwTFJUSjNtMnVtWWlq?oc=5) |
 | Deportee’s Lawyers Push for Contempt Proceedings Despite His Return - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQWnVrdGdKc250RHMzR0k1NHlDbGlVWngzN0RERWF6ZGV5WGpYa051ZHdLUzFtNzNZajBDNldkaldvT21LRjJUMlVHbVZoNktnSGhMdExoY1R4SmxhYzh1R3BxaUlWOFZobXdES3M1V0dPb2pvVGNLWEp3UUVuR0QwU2F1cHlOUWljMW5VZjZlRS1VSGVSQV9DSmZPYTd0WHFzY2p6UzhBS1E?oc=5) |
-| The Biggest Boondoggles in Trump’s Big Beautiful Bill - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOYjhCSnhWM3dic1pQb1ZFUkZUaEloU0paYXdrZF9YUU50YUVRRUxGNWVFTkRaVWw2VEZiVG5paHZKbm1PNmthdDdzLUdXVGFSSVd2OFFtckQtRHBEWXd0S3k5M2xWUFRzSVVSRmVBTklialRUclpnOW9zQnJKYTVGaExwSVFnbk1lOEpOX2pVSjk3UG5NSEZkTWItS2VUT3ZmdUhqMnpmTkN0UHJWak1vT0RGeTJXU1JV?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
