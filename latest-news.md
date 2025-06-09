@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月09日 10:00:18（北京时间）**
+🕒 更新时间：**2025年06月09日 10:21:12（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| LA immigration protests live updates: Protesters walk on 101 freeway, blocking traffic - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQTndrZzFvS3lmeG81UzBSR3lMd0UwV3QzXzhYbDdiMG5FeUZJRml5QmVxWWxnQ21KNmpqVV9aYmJMZTcxUkY1TDJGa0k2UzJkcklJeEVLR3BJQnNjWi1uU0FtUFFPc2M0Ymp2SFZSbTdaUGpTcjJ2X1J0cnhGWjY1QmI2dGkxSWJfRXdHc19fdmlENEdsTDF3X0JXQnpGdFlxOTJ6cEpzd3E3a3ZT?oc=5) |
+| Trump charts new territory in bypassing Newsom to deploy National Guard - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOSVZKRzl0MHM4anJteldzSzMtN3A0TVdzdWx6QlJ4UEVYRXZqUDQ2cEtDUy12NkVYMndTNUh6dFFodS1tTTRubWtQWWJsamhDaFR5em41ZDd3ak9MQ0paT3p2WEJVcTd4MWtPYXB6a1hJMUtRbVFUb1VFT0xXcW81NzVNM294NHlYdlhWOHlyS2hIcXdHMkxaWU1oWUdSZw?oc=5) |
+| Tariffs: US and China set to meet for trade talks in London - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9OWXFOQ2k5WFVEUlhJVlJKSzhCVnV5MnQ4WTFvOVRPX0FrNVlqclhRWTVsaUw0NE9Qb3BtMk1iNTJJekE2NlFEMTVKNjlIaUhLeTRDNzhRTGpGUdIBX0FVX3lxTE5FZE0xSU9CMkh4OGpNeWpNTmpkWnN3MWtCb29CN1NPbUU4WmZISjc4LTIxbW41bXVrZklJaVR5RnN2Z0FkTzFXZDFnbjRrNHdyUGxwanNWN3RGVGVjWC04?oc=5) |
 | Israel has boarded Gaza-bound aid ship carrying Greta Thunberg, the Freedom Flotilla Coalition says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOZ25jd0V2SWt2Yzl1S2VqU2M2QU1tX3R4NVdqaGNyYkxUWGktYUJWS2xBZm1QS0tOb3BuS2JoUkFrMTZHMW4wX2RpMEdreUI4STd0Y1VNeEhxTGlRMjhsc3IyRGNKNXpCRmJsS3BMMEYxRkFkOF9US1M5ZXpGQ0thTzNqMjVHR1JKaVpnSjlkN2F6R1BE0gGaAUFVX3lxTE9ZTW1Da2UwZXVXVHltbE5FTEpFQ3M3R3YtVXJZRUdIaW9SUWJEUGx3bkxpVk83T19wN2RFMk9iRmwxSDdBSzVnZzY3TnFCRTdXUWF1cnE1dldhN2VsOEYtN3dUMzNRRXdyZDVhcEp6RWZLX1lzMzN6aHZJZVpDTUtSdUl2ajBwb3lvaWcyZzJsaEpZYlFHdTkzckE?oc=5) |
-| Multiple people injured after small plane crash in Tennessee - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNMzdFMTQ4TVE4NnJCVWlCMC1YWXJJM1lYSmFuZXJKeUpBd1JmNzQtLUtYU2RUQk9waDBKMkx0VG5XamxrSnUtM0EyZW9fc1A4a2N4eEhia3g1S0dxMVhWbmhacVVjSGg3WnVKZHdNVUhYQTc1TExnZEtNaGNnTnJzdm4xYVZDRF9QMXFuTGlCb1Z4UGRRakZYMkdtWWJqbnNl0gFWQVVfeXFMUGYtM0xOcUVNMjYyMk8tcU5QcVNNOER2ZnBJY1d6RXAtN21YV2hhNXByX2l3SnRhdjVRd2U4TlBQRkRlWTA1alRKMkRhcVlFcGpoZG9nanc?oc=5) |
 | As DC welcomes the world for Pride, marchers spotlight rollbacks of LGBTQ rights in US - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1JWHlVX3Z1dXhZZDJwRFlmU2NJQk9wNlYzZW0xclpiam9lZGJReFZIZlBDN0JrdGVOeW00TkJHLXdoTXZSeUtBZFNIYXc3V0dRUXVmMXEyaTFvS19EV1MzOEc4V2tFdl9VUE5ZX3lxRUFfZlg00gF6QVVfeXFMTjNyVFhqOEZ2Y2d3ZUpReEl3RUwycExnUzJ1emVWMHhZeDBqTDB1MUVTdTNGVGx6TmxzcHJENU96Nl9wXy1uTjdua1JhWDNLdmNVWU9kUmp3NEJnMDBSNWN4YlVNZDN6U1cxOUxOS3F5UzN4T2tMSEItY1E?oc=5) |
 | ABC Suspends Terry Moran for Calling Stephen Miller a ‘World-Class Hater’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQcUZPbVVyWDhGUElIaXUwdE12ODgyYVpKeEhiQjI2LTVPRzJUZ2U5bUMya3N4WXIxWWZMcTRReEhfQVFHSkdtVkdKVnJsNGZrdHdBRkZnZER6V2lVZEp4R3o5OHJsb19OT3JRMXJSS3J0WmgxQnRBQkNfekZtQkVtSy00QXdvb1plUk41dHB3?oc=5) |
 | Ed the zebra captured after running loose for more than a week in Tennessee - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNWkFZVGVhbF8xVk1mRkFzdGZ3a1hIZXZaaVJ1d1RzWE8wWjgtM0J4dnNMbU8wRWt1bUhQc28yU0RBWWVIN2o1Wm5XREF5RUdRTXRzd1NrcTVOUTJ4dzluLWFDUGRHY1FLTHgyUkt3WDhoenJMZ3EwWlFsSlpSSk5udnJjaHduRFk?oc=5) |
