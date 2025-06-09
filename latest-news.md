@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月09日 09:21:52（北京时间）**
+🕒 更新时间：**2025年06月09日 09:41:49（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | LA immigration protests live updates: Trump doesn't rule out sending active-duty Marines to California - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQTndrZzFvS3lmeG81UzBSR3lMd0UwV3QzXzhYbDdiMG5FeUZJRml5QmVxWWxnQ21KNmpqVV9aYmJMZTcxUkY1TDJGa0k2UzJkcklJeEVLR3BJQnNjWi1uU0FtUFFPc2M0Ymp2SFZSbTdaUGpTcjJ2X1J0cnhGWjY1QmI2dGkxSWJfRXdHc19fdmlENEdsTDF3X0JXQnpGdFlxOTJ6cEpzd3E3a3ZT?oc=5) |
-| Activists say Israeli troops have boarded aid ship - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5oRG5JbDF0bmx0MGt0a0xzdElxMnJRZU9JYi16dDBXVk9IVjRSUFpZV0VaVGwxTnVoU3J2SE9wWGd5S0RWeERMY3dma2dhSGhfclM2WkgxeHhWZ9IBX0FVX3lxTFBqUzZOTFF1U201UnFoLWc4MVVibUpCRTIwMVJRWUItY3BsMllUUmt5ekZrVlZjOTVsNzBNd003Q012S1hfbm9SdUdSM19ObWpuYjljODVIT19XX1ROcnVJ?oc=5) |
+| Israel has boarded Gaza-bound aid ship carrying Greta Thunberg, the Freedom Flotilla Coalition says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOZ25jd0V2SWt2Yzl1S2VqU2M2QU1tX3R4NVdqaGNyYkxUWGktYUJWS2xBZm1QS0tOb3BuS2JoUkFrMTZHMW4wX2RpMEdreUI4STd0Y1VNeEhxTGlRMjhsc3IyRGNKNXpCRmJsS3BMMEYxRkFkOF9US1M5ZXpGQ0thTzNqMjVHR1JKaVpnSjlkN2F6R1BE0gGaAUFVX3lxTE9ZTW1Da2UwZXVXVHltbE5FTEpFQ3M3R3YtVXJZRUdIaW9SUWJEUGx3bkxpVk83T19wN2RFMk9iRmwxSDdBSzVnZzY3TnFCRTdXUWF1cnE1dldhN2VsOEYtN3dUMzNRRXdyZDVhcEp6RWZLX1lzMzN6aHZJZVpDTUtSdUl2ajBwb3lvaWcyZzJsaEpZYlFHdTkzckE?oc=5) |
 | Multiple people injured after small plane crash in Tennessee - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNMzdFMTQ4TVE4NnJCVWlCMC1YWXJJM1lYSmFuZXJKeUpBd1JmNzQtLUtYU2RUQk9waDBKMkx0VG5XamxrSnUtM0EyZW9fc1A4a2N4eEhia3g1S0dxMVhWbmhacVVjSGg3WnVKZHdNVUhYQTc1TExnZEtNaGNnTnJzdm4xYVZDRF9QMXFuTGlCb1Z4UGRRakZYMkdtWWJqbnNl0gFWQVVfeXFMUGYtM0xOcUVNMjYyMk8tcU5QcVNNOER2ZnBJY1d6RXAtN21YV2hhNXByX2l3SnRhdjVRd2U4TlBQRkRlWTA1alRKMkRhcVlFcGpoZG9nanc?oc=5) |
 | New disputes emerge ahead of US-China trade talks in London - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNazE0d0hPMnVqLW1MNTRRaHduODJEVGtVczFvbTJjM0VRZE1tSmhLMjVuOUxJZ251YVpmcm9ZemlzRHJwWTVMMlRiVWNIMVpsb1BtODZROGVVbDJLbWtfMWhsTXpEMWkyY1U3V2gydzh3dTVwWnZZbGRhbDV2VTZLTnNlSmZKNFA0QUluSEQ5cFlpZDlQNF94MElocmxLNndicTJ3akRn?oc=5) |
 | ABC Suspends Terry Moran for Calling Stephen Miller a ‘World-Class Hater’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQcUZPbVVyWDhGUElIaXUwdE12ODgyYVpKeEhiQjI2LTVPRzJUZ2U5bUMya3N4WXIxWWZMcTRReEhfQVFHSkdtVkdKVnJsNGZrdHdBRkZnZER6V2lVZEp4R3o5OHJsb19OT3JRMXJSS3J0WmgxQnRBQkNfekZtQkVtSy00QXdvb1plUk41dHB3?oc=5) |
