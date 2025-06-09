@@ -720,7 +720,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 
 ### 7. <a href="https://inv03.lmaff01.cc/register?aff=Y6CVzzEF" target="_blank" style="color:#1a73e8;text-decoration:underline;">龙猫云 — Hytron 接入，无限设备，移动热点优选,最低可享受48折优惠</a>
 
-**综合评分：8.1 / 10**  
+**综合评分：8.5 / 10**  
 **关键词标签**：Hytron 香港接入｜无限设备｜IP 白名单可控｜全节点解锁 ChatGPT
 
 > 龙猫云主打“设备无限制 + Hytron 稳定接入”，适合海内外双居或多设备共用网络的用户。节点数量丰富，流媒体解锁全面，适合作为中轻度需求用户的主力或备用方案。
