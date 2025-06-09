@@ -181,12 +181,12 @@
 
 ---
 
-###  <a href="https://www.tntyun.cc/#/register?code=7MPbfr89" target="_blank" style="color:#1a73e8;font-weight:bold;text-decoration:underline;">🚀 TNTCloud IPLC专线机场 618特惠</a>
+###  <a href="tanu095.tntvipaff.cc/#/register?code=7MPbfr89" target="_blank" style="color:#1a73e8;font-weight:bold;text-decoration:underline;">🚀 TNTCloud IPLC专线机场 618特惠</a>
 
 **推荐理由**：IPLC 专线、原生 IP、高速稳定，海外团队运营,适合 ChatGPT、TikTok、Netflix、海外开发者和重度流媒体用户。不限设备、不限速，性价比极高,618优惠力度大,月底就结束优惠
 
 <div align="left" style="margin: 10px 0 20px 0;">
-  <a href="https://www.tntyun.cc/#/register?code=7MPbfr89" target="_blank" style="
+  <a href="tanu095.tntvipaff.cc/#/register?code=7MPbfr89" target="_blank" style="
     display:inline-block;
     background:linear-gradient(90deg,#ff6a00,#ee0979);
     color:#fff;
@@ -635,7 +635,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 
 ---
 
-### 6.<a href="https://www.tntyun.cc/#/register?code=7MPbfr89" target="_blank" style="color:#1a73e8;text-decoration:underline;">TNTCloud — 专线级 Trojan 协议机场，高速稳定，流媒体 & AI 全解锁</a>
+### 6.<a href="tanu095.tntvipaff.cc/#/register?code=7MPbfr89" target="_blank" style="color:#1a73e8;text-decoration:underline;">TNTCloud — 专线级 Trojan 协议机场，高速稳定，流媒体 & AI 全解锁</a>
 
 **综合评分：9.2 / 10**  
 **关键词标签**：Trojan 全节点｜IPLC 内网专线｜原生 IP｜不限速｜不限设备｜全流媒体解锁｜AI 工具支持
@@ -689,7 +689,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 
 
 <div align="left" style="margin: 10px 0 20px 0;">
-  <a href="https://www.tntyun.cc/#/register?code=7MPbfr89" target="_blank" style="
+  <a href="tanu095.tntvipaff.cc/#/register?code=7MPbfr89" target="_blank" style="
     display:inline-block;
     background:linear-gradient(90deg,#ff6a00,#ee0979);
     color:#fff;
@@ -1041,4 +1041,4 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 
 📬 本项目由 [chatgpt-helper-tech](https://github.com/chatgpt-helper-tech) 维护。  
 欢迎 Star 项目，转发给有需要的朋友 🙌
-最近更新: 2025年6月7日
+最近更新: 2025年6月9日
