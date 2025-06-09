@@ -159,13 +159,13 @@ description: 机场推荐,实测2025年最稳定科学上网工具，评测 Clas
 ### 🥈 主力推荐,中端性价比机场(适合大部分场景)：
 
 ---
-### 🔹 <a href="https://inva.xmfaff.cc/register?aff=oClLBb5A" target="_blank" style="color:#1a73e8;font-weight:bold;text-decoration:underline;">🐝 小蜜蜂机场 全IEPL节点 618特惠</a>
+### 🔹 <a href="https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A" target="_blank" style="color:#1a73e8;font-weight:bold;text-decoration:underline;">🐝 小蜜蜂机场 全IEPL节点 618特惠</a>
 
 **推荐理由**：全IEPL节点专线机场，不限设备数，海外团队,特色年付小包低至8元每月,解锁能力极强,**提供美区id下载小火箭Shadowrocket(苹果用户福音)**,特点是稳稳稳, **618活动7折优惠**,特别划算
 
 
 <div align="left" style="margin-top:10px; margin-bottom:20px;">
-  <a href="https://inva.xmfaff.cc/register?aff=oClLBb5A" target="_blank" style="
+  <a href="https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A" target="_blank" style="
     display:inline-block;
     background:linear-gradient(90deg,#1a73e8,#4285f4);
     color:#fff;
@@ -354,7 +354,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 
 ---
 
-### 2. <a href="https://inva.xmfaff.cc/register?aff=oClLBb5A" target="_blank" style="color:#1a73e8;text-decoration:underline;">🐝小蜜蜂 — 618限时享7折优惠</a>
+### 2. <a href="https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A" target="_blank" style="color:#1a73e8;text-decoration:underline;">🐝小蜜蜂 — 618限时享7折优惠</a>
 
 **综合评分：9.3 / 10**  
 **关键词标签**：全IEPL专线 | 不限速 | 特色年付小包低至8元每月 | 性价比高
@@ -398,7 +398,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 📌 **一句话总结**：618折扣最多的全节点 IEPL 专线机场，性价比高，解锁能力极强,流媒体、AI、Tiktok全解锁
 
 <div align="left" style="margin: 10px 0 20px 0;">
-  <a href="https://inva.xmfaff.cc/register?aff=oClLBb5A" target="_blank" style="
+  <a href="https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A" target="_blank" style="
     display:inline-block;
     background:linear-gradient(90deg,#00c9ff,#92fe9d);
     color:#000;
