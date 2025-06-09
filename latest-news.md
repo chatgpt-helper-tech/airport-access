@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月09日 09:00:54（北京时间）**
+🕒 更新时间：**2025年06月09日 09:21:52（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Multiple people injured after small plane crash in Tennessee - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNMzdFMTQ4TVE4NnJCVWlCMC1YWXJJM1lYSmFuZXJKeUpBd1JmNzQtLUtYU2RUQk9waDBKMkx0VG5XamxrSnUtM0EyZW9fc1A4a2N4eEhia3g1S0dxMVhWbmhacVVjSGg3WnVKZHdNVUhYQTc1TExnZEtNaGNnTnJzdm4xYVZDRF9QMXFuTGlCb1Z4UGRRakZYMkdtWWJqbnNl0gFWQVVfeXFMUGYtM0xOcUVNMjYyMk8tcU5QcVNNOER2ZnBJY1d6RXAtN21YV2hhNXByX2l3SnRhdjVRd2U4TlBQRkRlWTA1alRKMkRhcVlFcGpoZG9nanc?oc=5) |
 | New disputes emerge ahead of US-China trade talks in London - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNazE0d0hPMnVqLW1MNTRRaHduODJEVGtVczFvbTJjM0VRZE1tSmhLMjVuOUxJZ251YVpmcm9ZemlzRHJwWTVMMlRiVWNIMVpsb1BtODZROGVVbDJLbWtfMWhsTXpEMWkyY1U3V2gydzh3dTVwWnZZbGRhbDV2VTZLTnNlSmZKNFA0QUluSEQ5cFlpZDlQNF94MElocmxLNndicTJ3akRn?oc=5) |
 | ABC Suspends Terry Moran for Calling Stephen Miller a ‘World-Class Hater’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQcUZPbVVyWDhGUElIaXUwdE12ODgyYVpKeEhiQjI2LTVPRzJUZ2U5bUMya3N4WXIxWWZMcTRReEhfQVFHSkdtVkdKVnJsNGZrdHdBRkZnZER6V2lVZEp4R3o5OHJsb19OT3JRMXJSS3J0WmgxQnRBQkNfekZtQkVtSy00QXdvb1plUk41dHB3?oc=5) |
-| Ed the zebra captured after running loose for more than a week in Tennessee - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNWkFZVGVhbF8xVk1mRkFzdGZ3a1hIZXZaaVJ1d1RzWE8wWjgtM0J4dnNMbU8wRWt1bUhQc28yU0RBWWVIN2o1Wm5XREF5RUdRTXRzd1NrcTVOUTJ4dzluLWFDUGRHY1FLTHgyUkt3WDhoenJMZ3EwWlFsSlpSSk5udnJjaHduRFk?oc=5) |
+| As DC welcomes the world for Pride, marchers spotlight rollbacks of LGBTQ rights in US - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1JWHlVX3Z1dXhZZDJwRFlmU2NJQk9wNlYzZW0xclpiam9lZGJReFZIZlBDN0JrdGVOeW00TkJHLXdoTXZSeUtBZFNIYXc3V0dRUXVmMXEyaTFvS19EV1MzOEc4V2tFdl9VUE5ZX3lxRUFfZlg00gF6QVVfeXFMTjNyVFhqOEZ2Y2d3ZUpReEl3RUwycExnUzJ1emVWMHhZeDBqTDB1MUVTdTNGVGx6TmxzcHJENU96Nl9wXy1uTjdua1JhWDNLdmNVWU9kUmp3NEJnMDBSNWN4YlVNZDN6U1cxOUxOS3F5UzN4T2tMSEItY1E?oc=5) |
 | Trump’s Battle With Harvard Is Familiar to a University the Right Forced into Exile - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOcTA0ZDF4TEJvUk1idUJwWkZ3UmhseXJyZXVLeEkxN1FXclVjdGVGbUh4MHIzV2JBSUZEZlZULTdlRzdVWTMyTW15NDQ1ZXo1M3hiVnh1bUdVUW0yVDBCcGhHU09SZDZuYzc2dmV1Zjk5N3E4Q3h5M1J2alpfdXYyNEpkUVV0QWYzam9N?oc=5) |
-| Trump shrugs off possible reconciliation with Musk - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1xX0NSNmtlNFlyZHFCXzFKUjh4eVRpVGo3aHJmNnpTTTNJQUwySTlJdjVKd091NjVtdjFCQWNQODVvak1Td1lMR3NFRm10TG5EdU5HYW1TZjB6RnV0UU5fTUtMY0FfdU5WU0ltb0hwMTUxcExqM1Qxa1NhOE4?oc=5) |
+| Musk and Trump are over. Silicon Valley is just getting started. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOd1VCS1FmMFJIOVZBS09Pcml2VnpTVkF1QnAxbjlTSzBfNDloWUg0YjRWaGVSU1BMTGdBeHhXeUhVek9taGNEZGhTemQwMk5rNDFKaFRQYUdhTHFYczA4RkJyeDk0NUppdFg4RDJYQjVEQW9TUkhPTExzSUtXM0hsNTI2MVczV3dkUkhmUmdSM3l4bUU?oc=5) |
+| Ed the zebra captured after running loose for more than a week in Tennessee - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNWkFZVGVhbF8xVk1mRkFzdGZ3a1hIZXZaaVJ1d1RzWE8wWjgtM0J4dnNMbU8wRWt1bUhQc28yU0RBWWVIN2o1Wm5XREF5RUdRTXRzd1NrcTVOUTJ4dzluLWFDUGRHY1FLTHgyUkt3WDhoenJMZ3EwWlFsSlpSSk5udnJjaHduRFk?oc=5) |
 | Gov. Abbott activates state emergency resources ahead of anticipated severe weather - Click2Houston | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxPc09VTjV3eG1vY2FwVnplYkp1eFdOenZFNDhrUk9YMEVuaDk1T3QwWmdwYWNyb3hfdEpuM3dMdEl0YUMySmVqcnlNelV0cFpiU1ItTjFDak83UzRwQ2V2QTFSOGFNTFVZT3lpUDhhVUJJNzg4N0ZBb2c4TjZTbmdDMWJENFZlSWRCYnJBdWhWRDFpSlFrZ2V6YWZZSnEyTGEyWGdNQnBqSklsZ0V0ZlhWYlhybkRyR3hYeE10V0h5dUpkU0EwTFJUSjNtMnVtWWlq?oc=5) |
-| WorldPride Parade Attendees Celebrate in D.C. With Both Joy and Resolve - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1vVDR1Sl91dzY5SEgwcG12aHE4U0VyOUtrd0FYTEtTdFZyWlF1WFBldzBQQUZWVjJldzk4ZjF3SWRUbVpyNFFLWXQtT2ZJM0xOaFRuV1laWnpvZ2x3eEpkakFCUDltT1ZpUWhaYTAyUnZWYnhrMmZRQzNxSFFsNE0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
