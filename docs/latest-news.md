@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月09日 10:40:31（北京时间）**
+🕒 更新时间：**2025年06月09日 11:01:47（北京时间）**
 
 ---
 
@@ -15,8 +15,8 @@
 | Britain's energy bill problem - and why firms are paid to not provide power | [阅读全文](https://www.bbc.com/news/articles/cdedjnw8e85o) |
 | First black Premier League referee Rennie dies aged 65 | [阅读全文](https://www.bbc.com/sport/football/articles/c0mr7xlmkxyo) |
 | Brit Awards to leave London for Manchester after 48 years | [阅读全文](https://www.bbc.com/news/articles/cdxk7l58xjzo) |
-| Government considers social media time limits for children | [阅读全文](https://www.bbc.com/news/articles/c3d4349gdx4o) |
 | Walking your dog, the latest act of rebellion in Iran | [阅读全文](https://www.bbc.com/news/articles/cn0gngq4wjqo) |
+| UK proposes wider ban on destructive bottom trawling | [阅读全文](https://www.bbc.com/news/articles/c3v507lx0e3o) |
 | It's the Race Across The World finale, and Love Island is back: What's coming up this week | [阅读全文](https://www.bbc.com/news/articles/c93yx110neyo) |
 
 ## 📰 Google News
@@ -27,12 +27,12 @@
 | Israel has boarded Gaza-bound aid ship carrying Greta Thunberg, the Freedom Flotilla Coalition says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOZ25jd0V2SWt2Yzl1S2VqU2M2QU1tX3R4NVdqaGNyYkxUWGktYUJWS2xBZm1QS0tOb3BuS2JoUkFrMTZHMW4wX2RpMEdreUI4STd0Y1VNeEhxTGlRMjhsc3IyRGNKNXpCRmJsS3BMMEYxRkFkOF9US1M5ZXpGQ0thTzNqMjVHR1JKaVpnSjlkN2F6R1BE0gGaAUFVX3lxTE9ZTW1Da2UwZXVXVHltbE5FTEpFQ3M3R3YtVXJZRUdIaW9SUWJEUGx3bkxpVk83T19wN2RFMk9iRmwxSDdBSzVnZzY3TnFCRTdXUWF1cnE1dldhN2VsOEYtN3dUMzNRRXdyZDVhcEp6RWZLX1lzMzN6aHZJZVpDTUtSdUl2ajBwb3lvaWcyZzJsaEpZYlFHdTkzckE?oc=5) |
 | Tariffs: US and China set to meet for trade talks in London - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9OWXFOQ2k5WFVEUlhJVlJKSzhCVnV5MnQ4WTFvOVRPX0FrNVlqclhRWTVsaUw0NE9Qb3BtMk1iNTJJekE2NlFEMTVKNjlIaUhLeTRDNzhRTGpGUdIBX0FVX3lxTE5FZE0xSU9CMkh4OGpNeWpNTmpkWnN3MWtCb29CN1NPbUU4WmZISjc4LTIxbW41bXVrZklJaVR5RnN2Z0FkTzFXZDFnbjRrNHdyUGxwanNWN3RGVGVjWC04?oc=5) |
 | As DC welcomes the world for Pride, marchers spotlight rollbacks of LGBTQ rights in US - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1JWHlVX3Z1dXhZZDJwRFlmU2NJQk9wNlYzZW0xclpiam9lZGJReFZIZlBDN0JrdGVOeW00TkJHLXdoTXZSeUtBZFNIYXc3V0dRUXVmMXEyaTFvS19EV1MzOEc4V2tFdl9VUE5ZX3lxRUFfZlg00gF6QVVfeXFMTjNyVFhqOEZ2Y2d3ZUpReEl3RUwycExnUzJ1emVWMHhZeDBqTDB1MUVTdTNGVGx6TmxzcHJENU96Nl9wXy1uTjdua1JhWDNLdmNVWU9kUmp3NEJnMDBSNWN4YlVNZDN6U1cxOUxOS3F5UzN4T2tMSEItY1E?oc=5) |
-| ABC News suspends Terry Moran over post calling Trump a ‘world-class hater’ - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPazYtdDZ0bnRBLVJ5Z2xUUmxRTGVXbWRoRTBibHQza0d4R1J1NnBReVBVdXN6eW1KZHpCYUhXbGYzNzlwWVc3ZDBhTmdxSzY5WUkyUHVrRFFFOHMxaFR1MkN2U1JkTWxkQUl2Yk1BLU9hbFpkMUpJNWMzQm1CUkR2LS04SldTeEhyVmo4QmROZEVqUHp1SDZZckJNajJvbWZnYUhFbUdNdjZGR043b0luQV9ZOXZ6eFNx?oc=5) |
+| ABC Suspends Terry Moran for Calling Stephen Miller a ‘World-Class Hater’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQcUZPbVVyWDhGUElIaXUwdE12ODgyYVpKeEhiQjI2LTVPRzJUZ2U5bUMya3N4WXIxWWZMcTRReEhfQVFHSkdtVkdKVnJsNGZrdHdBRkZnZER6V2lVZEp4R3o5OHJsb19OT3JRMXJSS3J0WmgxQnRBQkNfekZtQkVtSy00QXdvb1plUk41dHB3?oc=5) |
 | Ed the zebra captured after running loose for more than a week in Tennessee - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNWkFZVGVhbF8xVk1mRkFzdGZ3a1hIZXZaaVJ1d1RzWE8wWjgtM0J4dnNMbU8wRWt1bUhQc28yU0RBWWVIN2o1Wm5XREF5RUdRTXRzd1NrcTVOUTJ4dzluLWFDUGRHY1FLTHgyUkt3WDhoenJMZ3EwWlFsSlpSSk5udnJjaHduRFk?oc=5) |
 | Trump shrugs off possible reconciliation with Musk - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1xX0NSNmtlNFlyZHFCXzFKUjh4eVRpVGo3aHJmNnpTTTNJQUwySTlJdjVKd091NjVtdjFCQWNQODVvak1Td1lMR3NFRm10TG5EdU5HYW1TZjB6RnV0UU5fTUtMY0FfdU5WU0ltb0hwMTUxcExqM1Qxa1NhOE4?oc=5) |
 | Gov. Abbott activates state emergency resources ahead of anticipated severe weather - Click2Houston | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxPc09VTjV3eG1vY2FwVnplYkp1eFdOenZFNDhrUk9YMEVuaDk1T3QwWmdwYWNyb3hfdEpuM3dMdEl0YUMySmVqcnlNelV0cFpiU1ItTjFDak83UzRwQ2V2QTFSOGFNTFVZT3lpUDhhVUJJNzg4N0ZBb2c4TjZTbmdDMWJENFZlSWRCYnJBdWhWRDFpSlFrZ2V6YWZZSnEyTGEyWGdNQnBqSklsZ0V0ZlhWYlhybkRyR3hYeE10V0h5dUpkU0EwTFJUSjNtMnVtWWlq?oc=5) |
 | Deportee’s Lawyers Push for Contempt Proceedings Despite His Return - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQWnVrdGdKc250RHMzR0k1NHlDbGlVWngzN0RERWF6ZGV5WGpYa051ZHdLUzFtNzNZajBDNldkaldvT21LRjJUMlVHbVZoNktnSGhMdExoY1R4SmxhYzh1R3BxaUlWOFZobXdES3M1V0dPb2pvVGNLWEp3UUVuR0QwU2F1cHlOUWljMW5VZjZlRS1VSGVSQV9DSmZPYTd0WHFzY2p6UzhBS1E?oc=5) |
-| Mike Johnson downplays Musk's influence and says Republicans will pass Trump's tax and budget bill - Yahoo | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQQ18zbENreDBxWldEai0xYUZ5R0lUU29NQkFEWlY2N01ZTk9ZMS04THlaQkpwTFpXc1pVMHVhSjZwbDNWZEV2eGlGRWhKZnlkUlJHX04tdzE2N09ZT0h0anJQRlVqdElrcjhFeXZxZ0NoMHhBaGEtbFVjQTRyRWJZVk9YU19aNDQ?oc=5) |
+| Skydiving plane crashed in Tullahoma near the airport - News Channel 5 Nashville | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5XVGpVWjhqZ2QtVGVqbWVVQ2NaZWpqQXhIendXT2s1VUhmRnJ1R09oOXJMemNUTHlsNDBVdV9WNEJDcDZ4QnpVZ19jZUJrY1l3NUxNRXVMN0tCeGItWVZLUVBxdms0ZUZINmdObHNmaEFmTm9HUjJmc1dBQ2o?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
