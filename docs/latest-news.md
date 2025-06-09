@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月09日 15:01:11（北京时间）**
+🕒 更新时间：**2025年06月09日 15:21:14（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump charts new territory in bypassing Newsom to deploy National Guard - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOSVZKRzl0MHM4anJteldzSzMtN3A0TVdzdWx6QlJ4UEVYRXZqUDQ2cEtDUy12NkVYMndTNUh6dFFodS1tTTRubWtQWWJsamhDaFR5em41ZDd3ak9MQ0paT3p2WEJVcTd4MWtPYXB6a1hJMUtRbVFUb1VFT0xXcW81NzVNM294NHlYdlhWOHlyS2hIcXdHMkxaWU1oWUdSZw?oc=5) |
-| Israel vows to stop aid boat with Greta Thunberg and other activists on board from reaching Gaza - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQVzJuZUxPdXJmVGxBeHdROUZMSGZBSDVDcEx5QkJPX2JjclJTQkVDTzdvNWdnSS15aGpfSGZoZzFaTzRBaF9yS1N6VUZ1VkEzeDZ6RjljUzJHSVRJMnZHTEgxUm5jZnluYWxaN1V3VWJJR3ZUVV9jWUMzOFJZQTBhOUg2X2RVWk9ocEE5NHJUWllFWDFwOTMtUkNUWdIBoAFBVV95cUxQeVJZeDRscjVTcGtrVm1RbWcxOWxOYnRaaUpRcHlZRnVaVGdRRlExQlZVX0VFUGthM2d5MFVxR2h5UE1RYU9pY1hUTFBwTV9TdXFWR0dSZmNjRzZFcm4waWxHSzBZMEt3QUE0TDZnLWdOY2h5NW4xNk5OZG5VaUlBbENMdDNETlM0LUhMYjRJeE1XOFJrV29TWmVUS1kzLS1E?oc=5) |
+| Israel intercepts Gaza-bound aid ship, detaining Greta Thunberg and other prominent activists - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOZ25jd0V2SWt2Yzl1S2VqU2M2QU1tX3R4NVdqaGNyYkxUWGktYUJWS2xBZm1QS0tOb3BuS2JoUkFrMTZHMW4wX2RpMEdreUI4STd0Y1VNeEhxTGlRMjhsc3IyRGNKNXpCRmJsS3BMMEYxRkFkOF9US1M5ZXpGQ0thTzNqMjVHR1JKaVpnSjlkN2F6R1BE0gGaAUFVX3lxTE9ZTW1Da2UwZXVXVHltbE5FTEpFQ3M3R3YtVXJZRUdIaW9SUWJEUGx3bkxpVk83T19wN2RFMk9iRmwxSDdBSzVnZzY3TnFCRTdXUWF1cnE1dldhN2VsOEYtN3dUMzNRRXdyZDVhcEp6RWZLX1lzMzN6aHZJZVpDTUtSdUl2ajBwb3lvaWcyZzJsaEpZYlFHdTkzckE?oc=5) |
 | U.S. and China to Meet at Precarious Moment in Trade War - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPbm1BMTVjOVpqd1pGSmphTVgxdzJzbUNNTHB3T0gzNldMQVN1eXp6UXRxMzZNM1lzdVJLaDhYMjlkeFZOaS1nTVAwTGU3cGVXSWtxQ3VuTWc4QlpjckdwNlQ1WlBhZFc2UF9xb0lORkJ4XzJYTGZhcXJmaVZ3UlRsN2l5OEgyQQ?oc=5) |
 | What to know about Trump’s travel ban taking effect Monday - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPVjJCaWU1WV9kTHdmVS1RNi1sVGxFVXlKOW1yODNsUURnUEc0S0ZGWDNfSExCXzlrTWlFZVFuc0dSaF83d2pENE45MzQ4eE1hdlVyZHJOQlhLQnRVdzY3amVqaWRwOFM2MlZZT1Z2azRxNVpwNFFkdmgtLUt5bWNVcTRzM0psLU5hclRtNENnNFZfcXZSdkZka2xyc0N0QnE1WUtzSUM2NXRzZFk?oc=5) |
 | Colombian opposition senator shot in Bogotá - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9kLVFaMlRaY1RyZGVnc0pjbDFuLURQczYwei0xRHNNdWlnV0djc3NPbGxlcVlIMUwtOEtsLWprSHNxNEpsS1JBb0FPRjlzYmJLbDc2SUk2eXBXR08yTUlhNkFyYmxvbVdlcFpFcncwVFc?oc=5) |
