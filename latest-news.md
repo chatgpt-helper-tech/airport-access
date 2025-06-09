@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月09日 12:01:39（北京时间）**
+🕒 更新时间：**2025年06月09日 12:20:58（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Walking your dog, the latest act of rebellion in Iran | [阅读全文](https://www.bbc.com/news/articles/cn0gngq4wjqo) |
 | UK proposes wider ban on destructive bottom trawling | [阅读全文](https://www.bbc.com/news/articles/c3v507lx0e3o) |
 | It's the Race Across The World finale, and Love Island is back: What's coming up this week | [阅读全文](https://www.bbc.com/news/articles/c93yx110neyo) |
-| Rumours and a city on edge: How the LA protests erupted | [阅读全文](https://www.bbc.com/news/articles/c1kv1lgdpkjo) |
+| All it took was a rumour, and Los Angeles erupted in protest | [阅读全文](https://www.bbc.com/news/articles/c1kv1lgdpkjo) |
 
 ## 📰 Google News
 
