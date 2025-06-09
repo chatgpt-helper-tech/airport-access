@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月09日 12:20:58（北京时间）**
+🕒 更新时间：**2025年06月09日 12:40:36（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| LA immigration protests live updates: Cars in flames as National Guard, police work to disperse protests - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQTndrZzFvS3lmeG81UzBSR3lMd0UwV3QzXzhYbDdiMG5FeUZJRml5QmVxWWxnQ21KNmpqVV9aYmJMZTcxUkY1TDJGa0k2UzJkcklJeEVLR3BJQnNjWi1uU0FtUFFPc2M0Ymp2SFZSbTdaUGpTcjJ2X1J0cnhGWjY1QmI2dGkxSWJfRXdHc19fdmlENEdsTDF3X0JXQnpGdFlxOTJ6cEpzd3E3a3ZT?oc=5) |
+| Trump charts new territory in bypassing Newsom to deploy National Guard - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOSVZKRzl0MHM4anJteldzSzMtN3A0TVdzdWx6QlJ4UEVYRXZqUDQ2cEtDUy12NkVYMndTNUh6dFFodS1tTTRubWtQWWJsamhDaFR5em41ZDd3ak9MQ0paT3p2WEJVcTd4MWtPYXB6a1hJMUtRbVFUb1VFT0xXcW81NzVNM294NHlYdlhWOHlyS2hIcXdHMkxaWU1oWUdSZw?oc=5) |
 | Israel intercepts Gaza-bound aid ship, detaining Greta Thunberg and other prominent activists - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOZ25jd0V2SWt2Yzl1S2VqU2M2QU1tX3R4NVdqaGNyYkxUWGktYUJWS2xBZm1QS0tOb3BuS2JoUkFrMTZHMW4wX2RpMEdreUI4STd0Y1VNeEhxTGlRMjhsc3IyRGNKNXpCRmJsS3BMMEYxRkFkOF9US1M5ZXpGQ0thTzNqMjVHR1JKaVpnSjlkN2F6R1BE0gGaAUFVX3lxTE9ZTW1Da2UwZXVXVHltbE5FTEpFQ3M3R3YtVXJZRUdIaW9SUWJEUGx3bkxpVk83T19wN2RFMk9iRmwxSDdBSzVnZzY3TnFCRTdXUWF1cnE1dldhN2VsOEYtN3dUMzNRRXdyZDVhcEp6RWZLX1lzMzN6aHZJZVpDTUtSdUl2ajBwb3lvaWcyZzJsaEpZYlFHdTkzckE?oc=5) |
 | Tariffs: US and China set to meet for trade talks in London - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9OWXFOQ2k5WFVEUlhJVlJKSzhCVnV5MnQ4WTFvOVRPX0FrNVlqclhRWTVsaUw0NE9Qb3BtMk1iNTJJekE2NlFEMTVKNjlIaUhLeTRDNzhRTGpGUdIBX0FVX3lxTE5FZE0xSU9CMkh4OGpNeWpNTmpkWnN3MWtCb29CN1NPbUU4WmZISjc4LTIxbW41bXVrZklJaVR5RnN2Z0FkTzFXZDFnbjRrNHdyUGxwanNWN3RGVGVjWC04?oc=5) |
 | As DC welcomes the world for Pride, marchers spotlight rollbacks of LGBTQ rights in US - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1JWHlVX3Z1dXhZZDJwRFlmU2NJQk9wNlYzZW0xclpiam9lZGJReFZIZlBDN0JrdGVOeW00TkJHLXdoTXZSeUtBZFNIYXc3V0dRUXVmMXEyaTFvS19EV1MzOEc4V2tFdl9VUE5ZX3lxRUFfZlg00gF6QVVfeXFMTjNyVFhqOEZ2Y2d3ZUpReEl3RUwycExnUzJ1emVWMHhZeDBqTDB1MUVTdTNGVGx6TmxzcHJENU96Nl9wXy1uTjdua1JhWDNLdmNVWU9kUmp3NEJnMDBSNWN4YlVNZDN6U1cxOUxOS3F5UzN4T2tMSEItY1E?oc=5) |
