@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月09日 20:01:12（北京时间）**
+🕒 更新时间：**2025年06月09日 20:20:21（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Trump travel ban barring citizens from 12 countries takes effect - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE03YUh2b1FZSVhxWHZOQkRlRGpNRG5sMy1BUDJLdnhGWWVLY1ZxQ25KUHdvZjFoU1VfbVB1c0Q3cl9qM2x4aloxMzZpanB2dTduNEdMbG1zWXNOUdIBX0FVX3lxTFBUaER6S1lTMEY2Z2pVWTlZaWg1VGtiWlU2azJ3Q0R5TkN4OHdmdUJrbWk0VFdtY0Z6N1BJbFdnZ0FibEYtbjlhQktJUE55ZWxKV25SNldzVndfVFE0MmNj?oc=5) |
 | U.S. and China to Meet at Precarious Moment in Trade War - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPbm1BMTVjOVpqd1pGSmphTVgxdzJzbUNNTHB3T0gzNldMQVN1eXp6UXRxMzZNM1lzdVJLaDhYMjlkeFZOaS1nTVAwTGU3cGVXSWtxQ3VuTWc4QlpjckdwNlQ1WlBhZFc2UF9xb0lORkJ4XzJYTGZhcXJmaVZ3UlRsN2l5OEgyQQ?oc=5) |
 | Silicon Valley's not crying for Musk - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9xU0V0S0dfTjVFUHBMblhaR3FMMDZ5WF9hR3hFOXdiUmdPMEw2ZDV2Tlo5Q2ltbUEwTUFwRXJUcFdPZzJVTFpmME5pV0Fia0p0Mkk0VUhaMnFNc0RBWnBiOVYzRDA5Mkg4cF83Mg?oc=5) |
-| Russia fires record 479 drones at Ukraine overnight, Kyiv says - France 24 | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNZEwyUFkyUGNTTVAtTFgtQUliWWZTZzlnajlzcmNraTZIVFVXRmVvX2Jnc3VpYy1IOG5CbUZLbG14dVBWTmZPazJZSjd2M09MZ3gxQl90a2w3T2drcjhuUHZPS0ZWU2RPQWRocHFneGtDcWluV2VDbDdvWVRpVjl1dFVTTDNjZTViR0EwNGFrUEl6cVdMcWJpZnBlN2hHMkxBU1VENUJuQno?oc=5) |
+| Trump has long speculated about using force against his own people. Now he has the pretext to do so - The Conversation | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPdThURVljUTBlRnVwejdwY0xXd3hTZldIRVFpZU14Wm5JVk5hdW5ndUdIUi1SXzVDZHRtRm9oVkRKZ3daQVh6X3RRVzFvdl84OGJ0SVJQTTFfODVWbHlnLXJXd2ZTLTl5SjloSlI2YWI4TW9MSEgtckZQb1doYVVleUNCX2NyVFVWNkRPd3JkSHAzTjBpeHhHc2pBWjBZQ0U0ajNGb05BUXg4d1FYeFdmUFZvdXpUMVdubnZmb2FWd21fZ0QxdHJJZFpiZm84QQ?oc=5) |
 | 2 dead in Las Vegas Strip shooting, with suspect known but not yet arrested, police say - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQWTdvQjQ0ZXVGWl9IUUt4X2MzWWtKMW85UDlXTEE3M2FQTWdBd3p5bXlzcEZLaDg3T1dRY0otcDRhZmJfVm9GQmpmVU5GU1RVZVUzNVRFMWZnYkhWVkFmTmx0cDlma29BbHpNU3VHcERVWWhTNE00NGthTU9RdlFUbmNuZlpaNFEyY2cyRtIBkgFBVV95cUxQaWsyanU2ek9kWEtfQUxQOUJGd0RnY0JqYUtJdWhHeDlNZ2h2RHVIZUEyalY2Ti1waHBwbFhfMWhtT0NEZkZyNlF3UWJJTXlnbGFwVm9LSW9Bczd6VWJBY01CTlBqbHBKSUhtMlRibG9KRWdFMGc2bkJUSDhRS1F5Qm53TlMzTjVOYXVxcDROUjdPdw?oc=5) |
+| The stealth Senate dealmaker who could deliver Trump’s tax cuts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNcmVrZTI5bDZwVnRTUk5tOFdzTlRTeUdfd0JHQU5SMURpYVpxM1BLQlM5bXhBRS1raEt0UHYyMGs1aW1YTGpCVnNhVWhOY1I3Y19RZDJvRFB6Tk1URDQzOU5oOFFBWGprdEZrSXBCSUttN0tCN0FZN2tlMW1vdXJsbmFsU3lKNEMwOU1qUnBMQ3B2dWxPMk10NEJpaVZwSExRSDFiUWJQdkFWak4xdm1zM3Fn?oc=5) |
 | Democrats’ big bet on the Big Beautiful Bill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOQjlndzVZVUFySkxYVi05Rlg4YUhvOXVEaDJsMkkyQlVyZG9vemJQSktmTjU1eTEtZnQ0aVhOUEVraktsNFlkd1c5ZDF4ZV9Hdi0tekZWYlhfV3B1elFHNzUzQ3dVS0MtUFp2UXdGeGVGc0NPY3ZZaFVTUm1DUkhMMk1nRll4YjNlYndsYWZlbjRNSTRfYy1r?oc=5) |
 | Ruby-red Florida is still preparing for a financial storm from DC - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPWTJwQlM2bTBLSU0tTUdNdEtsUmhRTFBfOWEyem1CZkVZSXg3a0hTdjR0LU9tWXdBXzE3YVo4Y2NjTlIxcUJpTml2enBEQ0tIclExbGJfcy1QZWt2MHUtS0Z5Y082UjNNODRYYnExeVV6OTFxVkpfS2ZsTm9vLXRQQXcyQ3FqYTRXbnhNTUxCYlFLVFE5R2JNaVpDMA?oc=5) |
-| Thousands attend Boulder Jewish Festival a week after attack - kunc.org | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQSS1JT29RS0xUeDdnVUFKLTU5ZGxMbXhnME9yLVN1VUJRM0NzX0o0RngtU3FJNzhYX1lQVlRWanc1WTBfZFRVYllJODBpVGc4ckpBcG9WZ2dudU1vWHB1Y1FEcU9FYWNwb0xyZTIzeDQ0b2xwVlRKSWF4Q3luVUcxVWlFazA2MHhaR3JFbVNMWFFQREE1bkxKR3h3d3JjQVlsV3RxVUFDZ3JDUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
