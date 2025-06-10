@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月10日 19:21:32（北京时间）**
+🕒 更新时间：**2025年06月10日 19:41:53（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| About 700 Marines being mobilized in response to LA protests - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPMlNfNkVQU0U0SDIycV9uNF9DdzdBYmhZME1wb01STUlaZ3p1ZWU1MEdBWFFJS3dDclUwVzI4N1NFOEVnRU1oT1NGc0ZjN3VtUE1KcjJpOTJVWGJxS3FVR2p6V09nd1dwZWZyN2F3U0xHRGE3SkxDMUl1bUFCWDJJUHlncy3SAYoBQVVfeXFMTlNZbWwxWndjN1Izd1RZeGRvZlZkX2xScUFTUG5ZOTZxdGl1b04tak43dDVtLU5nbzJITDhWbG9PLTI5R01NNW9VYTQ0U0tsNnJOa0RDWU9pdGR1bEJ5NTJSd1p4Q1NNeFpzVHJaaWlka3F4MmUybGVIM2pXVjlYdTFWWEJmMWdTS1h3?oc=5) |
+| Unrestrained Trump flirts with Insurrection Act as Marines deploy to L.A. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQMWJJTmJJN3UtVEFuUEhod3Y0WExUWTVjXzRaZ29kOGkydHhpQTlHRnV5QjJ3N1NEMloxc01hSkE5enVUaXIyN2N6ZjlvMG9rcEpFM1c3NmVZNFJQUlhSR0t0TDY2NkFLbmJvQ3hSVEd0MTJaU29YN1lnNUp2bjVucWlB?oc=5) |
+| 'Do YOUR job': Gavin Newsom clashes with JD Vance, other GOP officials over LA protests - USA Today | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQSExXckVFTjU2cTFKNjc2VlhnNWZhRjRsaW9KR24yMlJUMmswYjdrUS04YU5VdkFOVzh6em1EWWozeDRZS2NVMEFJbzVFb3FnYTBKV1lHdkplTXo3bzZkOUYySUgyRTVJeWdSVVhHM0k5blJRbU9iUncyVjJMOHpKZ2VtZGtjQmdkbTNpZnVqdXdOdlBvWnQwcUY3Si1xWXlFc3RzN3RRX3NCa0U?oc=5) |
 | Israel Says Gaza Aid Boat Passengers Are Being Deported - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQalFBOEVXMlNQMlJ4Rm9sQUgwemRNVUxvcHZUX2hEWmQtS3JCY1JXei1JVDZobnNyc0xQdzNYZUl5LTc1a2haMHJBa1VJcU9NMy1pY2tpX1pCN214dXpWalR4dDBRWlIxcUE5Qkdwd3dLTXFfQUdmSmlHanlKSzlQNUpGUzI0V21MMGpWc0VzYWdxOGo4RzY5eGJncXRPa2Vm?oc=5) |
 | RFK Jr. purges every vaccine adviser on CDC panel; will pick replacements - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPd2tOSUIxeV85djg5YURaeFNRdXBZQjYtc2NMeWpaQmpwcE11Rk9MNktqbGszanRya1Q5TXBPX0lvUVBjV28taWNuVE92UmM2OW5iWnlhZ3RidWlmbnp6bnJoa0Vhb0Q1eWNhSkN1ZHlpdHNVVmJkZVp5VHR6UFYtbkZISTNNWlp4Q29mYU9ybUhyLWZYR0E?oc=5) |
-| Breakdown between Trump and Newsom deepens as L.A. crisis intensifies - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPTWYteHF2SG1nRU83T3VIYzI2cDJneVh2RlN0RlFXNGxaNVhtUHF0X1RnUE9aV0JyTHRvY05sc0ZsdUsteEVVWW95dWI3NXo1aEVUSGdIbDR0WTE2MldNN0ZUQjZONkZUMkxMTkdod0MteHVJYzV0YldfNTA3eU41a0V6b2VqTFhGQVpXSHVEOExyUWJFal9RS1JPZkVRY1BKZG05aUhDNlBLdTZwNmQ1XzlYVQ?oc=5) |
 | Several people killed in school shooting in Austria's second biggest city, police say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOY0VfbHowNWtOdmRBZXROZ2t4czlETmNMTTJaalRYTXFVZ2V3WU9TRURoQ2FicUtRMXNIX1pyWE9fVVNVbkJZUllpMUVzWHB1dndUZEVfVVMzRUtMSl9uSmNHb1U4ZjkxcWFJNEVGMTQ3WFIzd3dLRnJMQm9pQmdtS2RWSmJKWUlYRGVvU3dONm52c2Y4dHY0V1ViTHFIZHBVSW5qbw?oc=5) |
 | Waymo halts service in downtown Los Angeles amid ICE protests - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPdnFuMjRUMGtRMC0wUnRISGpvRi1COWw0OUIwM0FSWWltbWpDZ0h1WFZLMk9sclpwQXp2WVNYNXo4UVB4UFVVM0Y3UHFCMzVvSUZKWG5LWVVzVks5YVh1ei1CR295UDN3Ujd5RERBd2hfcWlEZVA0THBIakNQNkVkeTdoajlxOVljNlZqWk1wd3Y0dERqa0lOWGFWZllsT2t1ZS1iRXpoNDkzZVlwM3FQNg?oc=5) |
 | Inside the MAGA vs. hawk battle to sway Trump on bombing Iran - Politico | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1hMEhLZDZpM2RkRERmT2thZGRRZzVCaS1rM1Ixc1FvbWhuZVU2b1hCOXkwOG16ZzI4SU91LTE3czExdF91ekRMTnlLQVFYNXBMdzZ0MEtCbzlfcGNSSmI1N21MU2MtT3ZWNGo2SVRvd192SXlsNnN1VUUwQQ?oc=5) |
