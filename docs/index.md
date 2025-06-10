@@ -778,12 +778,12 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 
 ---
 
-### 7.<a href="https://inv02.galaxyaff.cc/register?aff=tcOd0ob7" target="_blank" style="color:#1a73e8;text-decoration:underline;">银河云 GalaxyVPN — 高性价比 Trojan 专线机场，节点丰富，AI 与流媒体完美解锁</a>
+### 7.<a href="https://inv02.galaxyaff.cc/register?aff=tcOd0ob7" target="_blank" style="color:#1a73e8;text-decoration:underline;">银河云 Galaxy — 高性价比 Trojan 专线机场，节点丰富，AI 与流媒体完美解锁</a>
 
 **综合评分：9.4 / 10**  
 **关键词标签**：Trojan 协议｜IEPL 内网专线｜多地区节点｜不限速｜支持退款｜YouTube 4K｜全天候稳定
 
-> **银河云 GalaxyVPN** 成立于 2024 年 6 月，由五年老机场青云梯新开的机场,稳定性和速度都有所提升,由新加坡团队运营，采用 Trojan 协议 + IEPL 专线传输，拥有超强稳定性和全球节点覆盖，支持全平台客户端。无论你是 AI 深度用户、流媒体重度观看者，还是跨境远程办公，都能找到合适的套餐，性价比在专线机场中极具竞争力。
+> **银河云 Galaxy** 成立于 2024 年 6 月，由五年老机场青云梯新开的机场,稳定性和速度都有所提升,由新加坡团队运营，采用 Trojan 协议 + IEPL 专线传输，拥有超强稳定性和全球节点覆盖，支持全平台客户端。无论你是 AI 深度用户、流媒体重度观看者，还是跨境远程办公，都能找到合适的套餐，性价比在专线机场中极具竞争力。
 
 ---
 
