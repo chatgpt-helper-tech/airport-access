@@ -164,6 +164,8 @@ description: 机场推荐,实测2025年最稳定科学上网工具，评测 Clas
 🎁 支付时填写618活动专属 **7折 优惠码：xmfxmf7** ,大黄蜂特惠年付版价为:8元/月,不享受优惠码
 - **特别提示**：年付以上商店里显示的已经是折扣后的价格了，配合优惠码购买3年付即可享受42折优惠，非常划算哦,
 
+>  👉 [小蜜蜂机场详细测评,如需了解更多测速、解锁、套餐信息、使用教程请前往](https://gptvpnhelper.com/airport-access/xmf/)
+
 ---
 
 ###  <a href="https://tanu095.tntvipaff.cc/#/register?code=7MPbfr89" target="_blank" style="color:#1a73e8;font-weight:bold;text-decoration:underline;">🚀 TNTCloud IPLC专线机场 618特惠</a>
