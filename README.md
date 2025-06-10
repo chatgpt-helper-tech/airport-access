@@ -1150,6 +1150,17 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 - [Facebook](https://www.facebook.com) – 老牌社交网站，在东南亚等地区依然活跃
 - [Threads](https://www.threads.net) – Meta 推出的新社交平台
 
+---
+
+✅ 小贴士：保持隐私、安全上网始终是首要任务，选择稳定的科学上网方式和合规使用，才能真正自由访问世界。
+
+---
+
+## 📰 国际新闻追踪（每 30 分钟更新一次）
+查看最新 BBC & Google News 国际头条，了解全球动态，获取墙外第一手热点资讯。  
+👉 [点击查看最新 BBC + Google News 头条](https://github.com/chatgpt-helper-tech/airport-access/blob/main/latest-news.md)
+
+> 所有新闻内容来自 BBC 官方 RSS 和 Google News，每 30 分钟自动同步一次，保持 最新。
 
 ---
 
@@ -1163,22 +1174,12 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 - [📘 ChatGPT最佳实践以及使用技巧](https://gptvpnhelper.com/guide/)
 ---
 
-✅ 小贴士：保持隐私、安全上网始终是首要任务，选择稳定的科学上网方式和合规使用，才能真正自由访问世界。
+📬 本项目由 [chatgpt-helper-tech](https://github.com/chatgpt-helper-tech) 维护。  
+欢迎 Star 项目，转发给有需要的朋友 🙌
 
----
-
-## 📰 国际新闻追踪（每 30 分钟更新一次）
-查看最新 BBC & Google News 国际头条，了解全球动态，获取墙外第一手热点资讯。  
-👉 [点击查看最新 BBC + Google News 头条](https://github.com/chatgpt-helper-tech/airport-access/blob/main/latest-news.md)
-
-> 所有新闻内容来自 BBC 官方 RSS 和 Google News，每 30 分钟自动同步一次，保持 最新。
 ---
 ## 🏆 GitHub 成就墙
 
 [![Trophy](https://github-profile-trophy.vercel.app/?username=chatgpt-helper-tech&theme=gruvbox&row=1&column=7&no-bg=true)](https://github.com/ryo-ma/github-profile-trophy)
 
----
 
-📬 本项目由 [chatgpt-helper-tech](https://github.com/chatgpt-helper-tech) 维护。  
-欢迎 Star 项目，转发给有需要的朋友 🙌
-最近更新: 2025年6月9日

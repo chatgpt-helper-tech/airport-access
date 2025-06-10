@@ -1045,16 +1045,6 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 
 ---
 
-## 📚 推荐配套教程
-
-- [🔐 VPN 推荐榜单 实测可用](https://gptvpnhelper.com/network-access/)
-- [📝 ChatGPT 注册教程](https://gptvpnhelper.com/chatgpt-register-guide/)
-- [💳 ChatGPT Plus 升级指南](https://gptvpnhelper.com/chatgpt-plus-guide/)
-- [📘 ChatGPT 中文教程主站](https://gptvpnhelper.com)
-- [📘 ChatGPT最佳实践以及使用技巧](https://gptvpnhelper.com/guide/)
-
----
-
 ## 🌐 常用网站推荐
 
 一旦成功科学上网，你就能畅游全球网络。下面是一些值得访问的热门网站，涵盖搜索、学习、娱乐、工具、社交，以及仅限成年人的平台。
@@ -1098,6 +1088,17 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 - [Threads](https://www.threads.net) – Meta 推出的新社交平台
 
 ---
+<a id="resources"></a>
+## 📚 推荐配套教程
+
+- [🔐 VPN 推荐榜单 实测可用](https://gptvpnhelper.com/network-access/)
+- [📝 ChatGPT 注册教程](https://gptvpnhelper.com/chatgpt-register-guide/)
+- [💳 ChatGPT Plus 升级指南](https://gptvpnhelper.com/chatgpt-plus-guide/)
+- [📘 ChatGPT 中文教程主站](https://gptvpnhelper.com)
+- [📘 ChatGPT最佳实践以及使用技巧](https://gptvpnhelper.com/guide/)
+- 
+---
+
 
 📂 GitHub Pages 主站地址：[https://gptvpnhelper.com](https://gptvpnhelper.com)  
 📂 GitHub 仓库 地址：[https://github.com/chatgpt-helper-tech/airport-access](https://github.com/chatgpt-helper-tech/airport-access)  
