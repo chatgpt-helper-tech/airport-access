@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月10日 19:00:23（北京时间）**
+🕒 更新时间：**2025年06月10日 19:21:32（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | RFK Jr. purges every vaccine adviser on CDC panel; will pick replacements - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPd2tOSUIxeV85djg5YURaeFNRdXBZQjYtc2NMeWpaQmpwcE11Rk9MNktqbGszanRya1Q5TXBPX0lvUVBjV28taWNuVE92UmM2OW5iWnlhZ3RidWlmbnp6bnJoa0Vhb0Q1eWNhSkN1ZHlpdHNVVmJkZVp5VHR6UFYtbkZISTNNWlp4Q29mYU9ybUhyLWZYR0E?oc=5) |
 | Breakdown between Trump and Newsom deepens as L.A. crisis intensifies - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPTWYteHF2SG1nRU83T3VIYzI2cDJneVh2RlN0RlFXNGxaNVhtUHF0X1RnUE9aV0JyTHRvY05sc0ZsdUsteEVVWW95dWI3NXo1aEVUSGdIbDR0WTE2MldNN0ZUQjZONkZUMkxMTkdod0MteHVJYzV0YldfNTA3eU41a0V6b2VqTFhGQVpXSHVEOExyUWJFal9RS1JPZkVRY1BKZG05aUhDNlBLdTZwNmQ1XzlYVQ?oc=5) |
 | Several people killed in school shooting in Austria's second biggest city, police say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOY0VfbHowNWtOdmRBZXROZ2t4czlETmNMTTJaalRYTXFVZ2V3WU9TRURoQ2FicUtRMXNIX1pyWE9fVVNVbkJZUllpMUVzWHB1dndUZEVfVVMzRUtMSl9uSmNHb1U4ZjkxcWFJNEVGMTQ3WFIzd3dLRnJMQm9pQmdtS2RWSmJKWUlYRGVvU3dONm52c2Y4dHY0V1ViTHFIZHBVSW5qbw?oc=5) |
-| World fertility rates in 'unprecedented decline', UN says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9LYUNjU1RGRVhQRERIeHNHb2lWY0pMREU1YmYyVWxLZUlsYi1HYUtwY3dRaDQ0MGR6WlZKRWNVY3J6WGMzUFF1QmZYUEI1VzFpVFpSZFNRZURld9IBX0FVX3lxTE9wVmtRekZLTkZxR3dOdzBSSmE3ZXo5bFlZSEtRMEhiQzJFaUpwZGk0RjlLRUgwcFJnOUhOX2lGQjZ2ZTZqMXhHXzRPTGtNNVh1cVprOFlvcXB2Tk1ObUR3?oc=5) |
+| Waymo halts service in downtown Los Angeles amid ICE protests - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPdnFuMjRUMGtRMC0wUnRISGpvRi1COWw0OUIwM0FSWWltbWpDZ0h1WFZLMk9sclpwQXp2WVNYNXo4UVB4UFVVM0Y3UHFCMzVvSUZKWG5LWVVzVks5YVh1ei1CR295UDN3Ujd5RERBd2hfcWlEZVA0THBIakNQNkVkeTdoajlxOVljNlZqWk1wd3Y0dERqa0lOWGFWZllsT2t1ZS1iRXpoNDkzZVlwM3FQNg?oc=5) |
+| Inside the MAGA vs. hawk battle to sway Trump on bombing Iran - Politico | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1hMEhLZDZpM2RkRERmT2thZGRRZzVCaS1rM1Ixc1FvbWhuZVU2b1hCOXkwOG16ZzI4SU91LTE3czExdF91ekRMTnlLQVFYNXBMdzZ0MEtCbzlfcGNSSmI1N21MU2MtT3ZWNGo2SVRvd192SXlsNnN1VUUwQQ?oc=5) |
 | Texas’ GOP congressional delegation meets to discuss redrawing districts ahead of midterms - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOTzhYWUJoZHBOeVFPeThsZE1FS2JLZDlvX1dVZ0VEVEdRdUk2elZhZUpEUFdWTjZwQ0g3TF9reXhrMnliczJXaW1PeEI4czVVaEp0d1Npa2pwVXVuU2JzQzZkeFlIMWdBTlEzWDY0aWZwVW04NDMxR01vNFFxczBLaGVVNXQtbWxJWVRHYS1ZUUxadW9ESkZ2RnA5WDk?oc=5) |
 | US and China Talk Trade as Fight Over Rare Earths Escalates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNaXpFX2FwNm9SczZrQnRmNkYwSHRPaElyYWtUclZHeHdzb3BfU1VIb1YzbEljdm42QmgyVUE5VXBMQTdQbXdwX3VDY21jaGZ2UnRaMGl4NDc3UzRoeEhyaXpVa2I0U2VmclBoWVVEMzZUN0drcTg1enpndjNmVTVUNTdtYw?oc=5) |
 | The global impact of Trump vs. Musk - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNMGpULXlKRHBRV3NtRGJzdjlHU2R2SmJ1LXVKUDhCMFd2RzJFREduQ1ZIWFRyR052WU93QmhSSlluZUVrZ2FlTUpCRXpkSG93RFlPY3lMRjJhS3Q5TFg4MDczM2VrOHJ1YU1FdFduMzFYbXJ2VE5YNHB4cXZwS0xrbTdLcXZUeTZQTUxvdA?oc=5) |
-| SFPD arresting dozens in 2nd night of mass protests against ICE - Mission Local | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQUjU1b3FaRndNaGotLTY0eVNEMC00amVwSDBGTVE1cjdkaWhiNi0zaDEwTmhxTGItaWtEajkxZnljTEwzd0FrUC16aWEtRDdjdEw0LTdwTWdHTlU2RVpjZDRvX09BN21Fai1DRjBscHZvYlBGTkRFN0dQODdwNmxsNVNNSzZuQUpkelE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
