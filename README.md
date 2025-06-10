@@ -135,7 +135,7 @@
 ---
 ### 🔹 <a href="https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A" target="_blank" style="color:#1a73e8;font-weight:bold;text-decoration:underline;">🐝 小蜜蜂机场 全IEPL节点 618特惠</a>
 
-**推荐理由**：全IEPL节点专线机场，不限设备数，海外团队,特色年付小包低至8元每月,解锁能力极强,**提供美区id下载小火箭Shadowrocket(苹果用户福音)**,特点是稳稳稳, **618活动7折优惠**,特别划算
+**推荐理由**：全IEPL节点专线机场，晚高峰看了几天Netflix 4k,不卡顿,不模糊,不限设备数，海外团队,特色年付小包低至8元每月,解锁能力极强,**提供美区id下载小火箭Shadowrocket(苹果用户福音)**,特点是稳稳稳, **618活动7折优惠**,特别划算
 
 
 <div align="left" style="margin-top:10px; margin-bottom:20px;">
@@ -182,6 +182,37 @@
 </div>
 
 > 🎁 付款时使用限时专属优惠码 `Crazy618` 可享受 **8 折优惠**！季付限量包,不享受优惠码,老板说这个套餐已经不赚钱了
+
+---
+
+###  <a href="https://inv02.galaxyaff.cc/register?aff=tcOd0ob7" target="_blank" style="color:#1a73e8;font-weight:bold;text-decoration:underline;">Galaxy 银河云 IEPL 专线机场 6月特惠</a>
+
+**推荐理由**：原老牌机场青云梯2024年新开的机场,稳定性和速度更优秀,trojan 协议 IEPL 专线机场，新加坡海外团队大机房产品，性价比专线，支持退款,有不限时流量套餐(限流量),24h在线客服，专业且靠谱稳定，任何线路问题都是1h内修复处理。全天候任何时期都稳定不掉线
+,测试油管4k高峰期无压力，下载视频可以跑满带宽,超优质的流媒体和 ChatGPT 解锁能力。最近优惠较大,6月30日结束
+
+<div align="left" style="margin: 10px 0 20px 0;">
+  <a href="https://inv02.galaxyaff.cc/register?aff=tcOd0ob7" target="_blank" style="
+    display:inline-block;
+    background:linear-gradient(90deg,#ff6a00,#ee0979);
+    color:#fff;
+    font-weight:600;
+    font-size:16px;
+    padding:12px 24px;
+    border-radius:8px;
+    text-decoration:none;
+    box-shadow:0 4px 14px rgba(0,0,0,0.25);
+    transition:all 0.3s ease;
+  " onmouseover="this.style.transform='scale(1.05)'" onmouseout="this.style.transform='scale(1)'">
+    <strong> 立刻前往银河云官网,享限时 8折 优惠</strong>
+  </a>
+</div>
+
+
+> 🎁付款时填写专属优惠码1： 月付/季度/半年：享受 **85折** 优惠，活动优惠码：wuyi85
+
+> 🎁专付款时填写属优惠码2：年付以及年付以上：享受 **8折** 优惠，活动优惠码：wuyi80
+
+> 特别说明，年付小包与不限时包不参与，商店里显示的3年价格已经有6折了，再用年付优惠码购买3年套餐相当于48折了
 
 ---
 
@@ -742,7 +773,92 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 
 ---
 
-### 7. <a href="https://inv03.lmaff01.cc/register?aff=Y6CVzzEF" target="_blank" style="color:#1a73e8;text-decoration:underline;">龙猫云 — Hytron 接入，无限设备，移动热点优选,最低可享受48折优惠</a>
+### 7.<a href="https://inv02.galaxyaff.cc/register?aff=tcOd0ob7" target="_blank" style="color:#1a73e8;text-decoration:underline;">银河云 GalaxyVPN — 高性价比 Trojan 专线机场，节点丰富，AI 与流媒体完美解锁</a>
+
+**综合评分：9.4 / 10**  
+**关键词标签**：Trojan 协议｜IEPL 内网专线｜多地区节点｜不限速｜支持退款｜YouTube 4K｜全天候稳定
+
+> **银河云 GalaxyVPN** 成立于 2024 年 6 月，由五年老机场青云梯新开的机场,稳定性和速度都有所提升,由新加坡团队运营，采用 Trojan 协议 + IEPL 专线传输，拥有超强稳定性和全球节点覆盖，支持全平台客户端。无论你是 AI 深度用户、流媒体重度观看者，还是跨境远程办公，都能找到合适的套餐，性价比在专线机场中极具竞争力。
+
+---
+
+#### ✅ 核心信息一览
+
+| **评测维度**     | **详情说明**                                                                 |
+|------------------|------------------------------------------------------------------------------|
+| **上线时间**     | 2024 年 6 月                                                                  |
+| **协议支持**     | Trojan（兼容 Clash / Meta / Singbox / Shadowrocket）                        |
+| **接入方式**     | 全线路 IEPL 专线，低延迟高稳定                                                 |
+| **节点分布**     | 香港×10、台湾×5、新加坡×5、日本×5、美国×5、马来西亚×2、越南×2、菲律宾×2、泰国×2、英国×2、阿根廷×2、土耳其×2 |
+| **流媒体解锁**   | 支持 Netflix、Disney+、YouTube 4K、TikTok 等全平台                          |
+| **ChatGPT 支持** | 所有节点均可直连使用 ChatGPT / Copilot / Gemini / Claude                    |
+| **设备限制**     | 不限设备数量，支持路由器配置及家庭共享                                        |
+| **支付方式**     | 支持支付宝、微信、USDT（USDT / VX 请联系官网客服）                           |
+
+---
+
+#### 💰 套餐价格一览
+
+| 套餐名称       | 流量 / 月    | 月付    | 季付    | 半年付  | 年付    | 两年付  | 三年付  |
+|----------------|--------------|---------|---------|---------|---------|---------|---------|
+| 年付轻量包     | 50GB         | -       | -       | -       | ¥98     | -       | -       |
+| 星尘套餐       | 100GB        | ¥18     | ¥49     | ¥92     | ¥173    | ¥302    | ¥389    |
+| 行星套餐       | 200GB        | ¥35     | ¥95     | ¥179    | ¥336    | ¥588    | ¥756    |
+| 恒星套餐       | 400GB        | ¥70     | ¥189    | ¥357    | ¥672    | ¥1176   | ¥1512   |
+| 星系套餐       | 800GB        | ¥140    | ¥378    | ¥714    | ¥1344   | ¥2352   | ¥3024   |
+| 永久不限时套餐 | 1000GB       | -       | -       | -       | -       | -       | ¥680（一次性） |
+
+> 🎁 **活动期间（2025/6/1～6/30）优惠码：**
+> - 月付 / 季付 / 半年付：使用 `wuyi85` 享 85 折优惠
+> - 年付及以上：使用 `wuyi80` 享 8 折优惠
+> - 注：年付小包和不限时套餐不参与活动，三年付已含 6 折，叠加码最高达 4.8 折！
+
+---
+
+#### ⭐️ 使用亮点
+
+- 所有节点皆采用 Trojan 专线，晚高峰也能流畅观看 YouTube 4K
+- 超快带宽，多端同时在线依然稳定
+- 流媒体 / AI 工具 / TikTok 解锁率极高
+- 支持退款，客服响应迅速（1 小时内修复节点问题）
+- 年付套餐极致性价比，适合长期主力使用
+
+---
+
+#### 🎯 推荐人群
+
+- 🤖 ChatGPT、Claude、Gemini 等 AI 工具深度用户
+- 🎥 油管 4K、Netflix、Disney+ 等流媒体重度观众
+- 🌎 TikTok 本地号运营、自媒体视频创作者
+- 🧳 跨境电商、远程办公、技术开发、科学上网刚需人群
+
+<div align="left" style="margin: 10px 0 20px 0;">
+  <a href="https://inv02.galaxyaff.cc/register?aff=tcOd0ob7" target="_blank" style="
+    display:inline-block;
+    background:linear-gradient(90deg,#0f2027,#2c5364);
+    color:#fff;
+    font-weight:600;
+    font-size:16px;
+    padding:12px 24px;
+    border-radius:8px;
+    text-decoration:none;
+    box-shadow:0 4px 14px rgba(0,0,0,0.25);
+    transition:all 0.3s ease;
+  " onmouseover="this.style.transform='scale(1.05)'" onmouseout="this.style.transform='scale(1)'">
+    <strong>🚀 立即前往银河云官网，享 618 限时优惠</strong>
+  </a>
+</div>
+
+---
+
+
+#### 📊 实测速度（2025年6月4日）
+
+![银河云测速图](./assets/yinheyunspeed.webp)
+
+---
+
+### 8. <a href="https://inv03.lmaff01.cc/register?aff=Y6CVzzEF" target="_blank" style="color:#1a73e8;text-decoration:underline;">龙猫云 — Hytron 接入，无限设备，移动热点优选,最低可享受48折优惠</a>
 
 **综合评分：8.5 / 10**  
 **关键词标签**：Hytron 香港接入｜无限设备｜IP 白名单可控｜全节点解锁 ChatGPT
