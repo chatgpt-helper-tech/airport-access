@@ -187,3 +187,11 @@ Speedtest 使用香港节点测速实录：
 
 - [📖 科学上网机场推荐榜单（实时更新）](https://gptvpnhelper.com/airport-access/)
 
+---
+
+## 历史测速结果
+
+### 2025-06-06
+
+![20250606测速结果](./assets/tntcloud/tntspeed.webp)
+
