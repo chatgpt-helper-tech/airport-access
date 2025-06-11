@@ -179,11 +179,13 @@
     box-shadow:0 4px 14px rgba(0,0,0,0.25);
     transition:all 0.3s ease;
   " onmouseover="this.style.transform='scale(1.05)'" onmouseout="this.style.transform='scale(1)'">
-    <strong> 立即访问TNT Cloud官网,享限时 8折 优惠</strong>
+    <strong> 前往TNT Cloud官网注册</strong>
   </a>
 </div>
 
 > 🎁 付款时使用限时专属优惠码 `Crazy618` 可享受 **8 折优惠**！季付限量包,不享受优惠码,老板说这个套餐已经不赚钱了
+
+>  👉 [TNTCloud 机场详细测评,如需了解更多测速、解锁、套餐信息、使用教程请前往](https://gptvpnhelper.com/airport-access/tntcloud/)
 
 ---
 
