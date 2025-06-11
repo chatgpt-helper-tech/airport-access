@@ -21,11 +21,11 @@ description: 机场推荐,实测2025年最稳定科学上网工具，评测 Clas
 
 ### 📖 基础知识
 1. [什么是机场？科学上网的原理与作用](#ssssr)
+2. [免费机场推荐](#free)
 
 ### 🎯 选购指南：如何挑选适合你的机场服务
-2. [如何挑选靠谱机场？](#choose)
-3. [快速挑选适合自己的机场](#person)
-4. [限时免费机场推荐](#free)
+3. [如何挑选靠谱机场？](#choose)
+4. [快速挑选适合自己的机场](#person)
 5. [2025 年七大顶级机场深度评测（真实实测）](#top7)
 
 ### 🚀 使用教程：快速上手科学上网
@@ -73,6 +73,50 @@ description: 机场推荐,实测2025年最稳定科学上网工具，评测 Clas
 > 💡 **简而言之：**  
 > “机场” 是一种融合**多节点调度、智能流量分流与全球加速**的科学上网解决方案，灵活性胜过 VPN，稳定性优于传统代理，堪称 2025 年访问 **ChatGPT、YouTube、Netflix** 等平台的优选工具。
 
+---
+
+<a id="free"></a>
+## 🆓 限时免费高端机场推荐：<a href="https://bbxy.xn--cesw6hd3s99f.com/auth/register?code=FFHk" target="_blank" style="color:#1a73e8;text-decoration:underline;">百变小樱</a> —— 稳定实用科学上网方案
+
+### 🚀 无法访问 ChatGPT、YouTube、GitHub？先用这个免费机场恢复联网！
+
+如果你当前处于**完全无法科学上网**的状态 —— 无法打开 ChatGPT、YouTube、Google、GitHub 或 VPN 官网，那么这款 **限时免费高端IEPL专线机场「百变小樱」** 是你最佳的起点选择。
+
+📌 **强烈建议立即注册，恢复基础联网能力，体验顶级加速 IEPL 专线！**
+
+---
+
+### ✨ 为什么推荐「百变小樱」机场？
+
+- ✅ **提供免费试用期**：注册1天内免费使用,可自行体验稳定性与速度,试错成本为0
+- ✅ **稳定可靠**：运营超5年，团队位于海外，服务成熟稳定
+- ✅ **高速专线**：接入顶级公网 IEPL 专线，低延迟、高速大带宽，游戏、下载、视频通通流畅无卡顿
+- ✅ **灵活套餐**：支持免费试用，高中低档付费套餐灵活选择，按需升级更划算
+- ✅ **兼容主流工具**：全面支持 Clash、Shadowrocket、SSR 等科学上网主流客户端一键导入，导入简单便捷
+- ✅ **流媒体解锁能力强**：ChatGPT、YouTube、TikTok、Netflix、Disney+、HBO Max 等全解锁，支持 4K 串流
+- ✅ **专属会员福利**：LV3 以上用户可获 **免费 Netflix、Disney+、Prime Video 等会员账号** ，海外影视党的福音
+
+---
+
+> 🧠 **作者实测使用超过3年，稳定性极高**。日常办公、AI 使用、高清观影、海外游戏、跨境电商访问，**全场景表现优秀，值得长期使用**！
+
+>  👉 [百变小樱机场详细测评,如需了解更多测速、解锁、套餐信息、使用教程请前往](https://gptvpnhelper.com/airport-access/bbxy/)
+
+---
+
+### 🔗 立即开启你的科学上网之路：
+
+<p style="margin-top: 12px;">
+  <a href="https://bbxy.xn--cesw6hd3s99f.com/auth/register?code=FFHk" target="_blank" style="display: inline-block; padding: 12px 20px; background-color: #1E88E5; color: white; font-size: 16px; font-weight: bold; border-radius: 8px; text-decoration: none;">
+    👉 免费注册百变小樱机场（限时开放中）
+  </a>
+</p>
+
+🎁 1天试用期到期之后,若想购买付费套餐,购买套餐时可使用我们申请到的**专属95折优惠码: bbxy-5th**
+
+---
+
+> 💡 提示：科学上网的第一步是选择靠谱稳定的机场节点。**百变小樱作为新手推荐第一站，解决你“打不开 ChatGPT”的痛点**，是你通往自由互联网世界的起点。
 
 ---
 
@@ -281,52 +325,6 @@ description: 机场推荐,实测2025年最稳定科学上网工具，评测 Clas
 ✅ **小提醒**  
 以上推荐适合不同预算和使用需求的用户参考。如果你想深入了解各大机场的测速表现、节点分布、流媒体解锁等细节，请继续阅读下方的「七大精选机场深度评测」。
 
-
----
-
-<a id="free"></a>
-## 🆓 限时免费高端机场推荐：<a href="https://bbxy.xn--cesw6hd3s99f.com/auth/register?code=FFHk" target="_blank" style="color:#1a73e8;text-decoration:underline;">百变小樱</a> —— 稳定实用科学上网方案
-
-### 🚀 无法访问 ChatGPT、YouTube、GitHub？先用这个免费机场恢复联网！
-
-如果你当前处于**完全无法科学上网**的状态 —— 无法打开 ChatGPT、YouTube、Google、GitHub 或 VPN 官网，那么这款 **限时免费高端机场「百变小樱」** 是你最佳的起点选择。
-
-📌 **强烈建议立即注册，恢复基础联网能力，体验顶级加速 IEPL 专线！**
-
----
-
-### ✨ 为什么推荐「百变小樱」机场？
-
-- ✅ **提供免费试用期**：注册1天内免费使用,可自行体验稳定性与速度,试错成本为0
-- ✅ **稳定可靠**：运营超5年，团队位于海外，服务成熟稳定
-- ✅ **高速专线**：接入顶级公网 IEPL 专线，低延迟、高速大带宽，游戏、下载、视频通通流畅无卡顿
-- ✅ **灵活套餐**：支持免费试用，高中低档付费套餐灵活选择，按需升级更划算
-- ✅ **兼容主流工具**：全面支持 Clash、Shadowrocket、SSR 等科学上网主流客户端一键导入，导入简单便捷
-- ✅ **流媒体解锁能力强**：ChatGPT、YouTube、TikTok、Netflix、Disney+、HBO Max 等全解锁，支持 4K 串流
-- ✅ **专属会员福利**：LV3 以上用户可获 **免费 Netflix、Disney+、Prime Video 等会员账号** ，海外影视党的福音
-
----
-
-> 🧠 **作者实测使用超过3年，稳定性极高**。日常办公、AI 使用、高清观影、海外游戏、跨境电商访问，**全场景表现优秀，值得长期使用**！
-
->  👉 [百变小樱机场详细测评,如需了解更多测速、解锁、套餐信息、使用教程请前往](https://gptvpnhelper.com/airport-access/bbxy/)
-
-
----
-
-### 🔗 立即开启你的科学上网之路：
-
-<p style="margin-top: 12px;">
-  <a href="https://bbxy.xn--cesw6hd3s99f.com/auth/register?code=FFHk" target="_blank" style="display: inline-block; padding: 12px 20px; background-color: #1E88E5; color: white; font-size: 16px; font-weight: bold; border-radius: 8px; text-decoration: none;">
-    👉 免费注册百变小樱机场（限时开放中）
-  </a>
-</p>
-
-🎁 1天试用期到期之后,若想购买付费套餐,购买套餐时可使用我们申请到的**专属95折优惠码: bbxy-5th**
-
----
-
-> 💡 提示：科学上网的第一步是选择靠谱稳定的机场节点。**百变小樱作为新手推荐第一站，解决你“打不开 ChatGPT”的痛点**，是你通往自由互联网世界的起点。
 
 ---
 <a id="top7"></a>
