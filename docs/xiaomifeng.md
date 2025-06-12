@@ -121,6 +121,10 @@ permalink: /xmf/
 - 优惠码：`xmfxmf7`（三年付最优性价比，低至42折）
 - 特别提示：**大黄蜂特惠年付版 ¥96 不叠加优惠码，已是极限价**
 
+<a href="https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A" target="_blank" style="color:#fff;background:linear-gradient(90deg,#ff416c,#ff4b2b);font-weight:600;font-size:16px;padding:12px 24px;border-radius:8px;text-decoration:none;box-shadow:0 4px 14px rgba(0,0,0,0.25);transition:all 0.3s ease;display:inline-block;margin-top:16px;">
+🚀 点击前往 小蜜蜂 官网，享限时 7 折优惠
+</a>
+
 ---
 
 ## ✅ 推荐人群

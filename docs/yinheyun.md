@@ -106,10 +106,13 @@ Speedtest 使用 Galaxy 银河云香港节点实测结果如下：
 **Galaxy 银河云** 通过这次全面测试，无论是解锁能力、并发互联、进出网络速度都符合专线级标准。相比原青云梯机场，在稳定性和性价比方面更有优势。如果你正在找一个长期稳定、解锁力强、性价比双高的机场，GalaxyVPN 会是一个极佳选择！
 
 > 📅 **限时派送：2025年6月1日 - 2025年6月30日**  
-> 🎁 使用优惠码 `gptvpnhelper85` （月付 / 季付 / 半年付）  
-> 🎁 使用优惠码 `gptvpnhelper80` （年付及以上，最高可折合 4.8 折）
+> 🎁 使用85优惠码 `gptvpnhelper85` （月付 / 季付 / 半年付）  
+> 🎁 使用8优惠码 `gptvpnhelper80` （年付及以上，最高可折合 4.8 折）
 > ⚠️特别提醒：**年付小包和不限时套餐不参与活动**，三年付已含 6 折，叠加码最高达 4.8 折！
 
+<a href="https://inv02.galaxyaff.cc/register?aff=tcOd0ob7" target="_blank" style="color:#fff;background:linear-gradient(90deg,#ff416c,#ff4b2b);font-weight:600;font-size:16px;padding:12px 24px;border-radius:8px;text-decoration:none;box-shadow:0 4px 14px rgba(0,0,0,0.25);transition:all 0.3s ease;display:inline-block;margin-top:16px;">
+🚀 点击前往 银河云 官网，限时优惠
+</a>
 
 ---
 
