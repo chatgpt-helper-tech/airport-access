@@ -13,7 +13,7 @@ permalink: /yinheyun/
 节点丰富。
 
 🔗 新用户快速入门：  
-[🔗 点击注册 Galaxy 银河云](https://inv02.galaxyaff.cc/register?aff=tcOd0ob7)
+[🔗 点击注册 Galaxy 银河云](https://realvpntest.galaxyvipaff01.cc/register?aff=tcOd0ob7)
 
 
 ---
@@ -110,7 +110,7 @@ Speedtest 使用 Galaxy 银河云香港节点实测结果如下：
 > 🎁 使用8优惠码 `gptvpnhelper80` （年付及以上，最高可折合 4.8 折）
 > ⚠️特别提醒：**年付小包和不限时套餐不参与活动**，三年付已含 6 折，叠加码最高达 4.8 折！
 
-<a href="https://inv02.galaxyaff.cc/register?aff=tcOd0ob7" target="_blank" style="color:#fff;background:linear-gradient(90deg,#ff416c,#ff4b2b);font-weight:600;font-size:16px;padding:12px 24px;border-radius:8px;text-decoration:none;box-shadow:0 4px 14px rgba(0,0,0,0.25);transition:all 0.3s ease;display:inline-block;margin-top:16px;">
+<a href="https://realvpntest.galaxyvipaff01.cc/register?aff=tcOd0ob7" target="_blank" style="color:#fff;background:linear-gradient(90deg,#ff416c,#ff4b2b);font-weight:600;font-size:16px;padding:12px 24px;border-radius:8px;text-decoration:none;box-shadow:0 4px 14px rgba(0,0,0,0.25);transition:all 0.3s ease;display:inline-block;margin-top:16px;">
 🚀 点击前往 银河云 官网，限时优惠
 </a>
 
@@ -118,7 +118,7 @@ Speedtest 使用 Galaxy 银河云香港节点实测结果如下：
 
 ## 🧭 使用流程指南
 
-1. 🔗 **注册账号**：[点击前往 Galaxy 官网](https://inv02.galaxyaff.cc/register?aff=tcOd0ob7)
+1. 🔗 **注册账号**：[点击前往 Galaxy 官网](https://realvpntest.galaxyvipaff01.cc/register?aff=tcOd0ob7)
 2. 💰 **选择套餐**：轻量用户选“星尘”，中重度推荐“行星套餐”以上
 3. 🔐 **复制订阅链接**：兼容 Clash、Shadowrocket、Singbox 等主流客户端
 4. ⚙️ **导入客户端**，一键使用
