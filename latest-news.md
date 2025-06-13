@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月13日 12:52:29（北京时间）**
+🕒 更新时间：**2025年06月13日 13:01:35（北京时间）**
 
 ---
 
@@ -8,10 +8,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Israel chose to act now, whether Trump likes it or not | [阅读全文](https://www.bbc.com/news/articles/cwyw04x1kqpo) |
 | Watch: Footage shows explosions and buildings ablaze in Tehran | [阅读全文](https://www.bbc.com/news/videos/c20qw0xjp10o) |
 | Operation Rising Lion: What we know about Israel's attacks on Iran | [阅读全文](https://www.bbc.com/news/articles/cdj9vj8glg2o) |
 | US says it was not involved in Israel's military strikes | [阅读全文](https://www.bbc.com/news/articles/cm2kd2k3mv7o) |
-| Watch: Netanyahu says Israel targeted Iran's nuclear and military sites | [阅读全文](https://www.bbc.com/news/videos/cz70x722zvyo) |
 | What could have caused Air India plane to crash in 30 seconds? | [阅读全文](https://www.bbc.com/news/articles/c626y121rxxo) |
 | Masonry thrown at police in Portadown in fourth night of NI disorder | [阅读全文](https://www.bbc.com/news/articles/c20xrq9vzz7o) |
 | Misled and intimidated: Caravan owners say they felt 'bullied' by holiday parks | [阅读全文](https://www.bbc.com/news/articles/c2016lxnepno) |
