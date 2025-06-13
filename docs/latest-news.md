@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月13日 11:39:32（北京时间）**
+🕒 更新时间：**2025年06月13日 11:52:17（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump, Who Has Likened Himself to a King, Bristles at ‘No Kings’ Protests - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPc2lBRmxIektyRnoybGcwbGE5TllfanhleGNBT2RrclViZnIybEU4U3V2Y2VsQ2lsWDdVY2xkczV5bkFsX3FYMFctdC1XWUc4NE1rUlZaOGdlb0hVVmtEeGVUQTJoeGlJU1lFYU84aTR4RVU4dWQxeVFkTG5uTjFjaA?oc=5) |
 | San Antonio flooding leaves five dead; dozens rescued from high water - Texas Public Radio ｜ TPR | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQcUpKN1M1ZDE5V3QxV0J6ZVdVclpzdzc4QmZCYkQ1V2lpR19aXzliMmJoZVZuOF83WGlCWHJWUXlmUVRzX0psdi1qWHFNeTU5WVNEdkdNaEVEN2phTmZGY0JDUVptNVJXMjdMc2hqeHh1RlU1c0RxYXMwbV8td3lTaHF6N2ppSHIyNUNuTGdVMnMtSFVGVjg1WnpzTkNlSDNJZWpQTGEzcWRFWDh1dEFrdQ?oc=5) |
 | House Republicans spar with Democratic governors in tense immigration hearing - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQSGhkTGg0aEhfaXJTTF81Sk9RU0tuRDBneDYzb1VhZFFJRGJuNkZnVE1PUXhyQkRPdm84UkM4eUwxNXB4bnhNMm45R0V3bDRtSUhNWS10X1NNOHVqNDVxQUc4NFZ4ZFlSaE5nc2d0Qzdza1RzTHpCeVJsamhlVUs4T19rMEY5ODNNdDJWM2ZKZGlOT3NYZzVia0w1QXc4NUM2TXhza3JCNzBwa05MaHFNclRPTWExZzRwWE41dUk3a9IBVkFVX3lxTE5kMVlERHptc0s4bl9TOVVfM0VOQ1VnWE0ycG5Xek14Qml2V0NyUXpzNERwaENTenk3U21DdGl5V3NLTnZkLUZucUdHeXJsd3JDOWp5RDd3?oc=5) |
-| Tensions rising in GOP over Trump border plan as Rand Paul squares off with Stephen Miller - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9mb2tTRl9uN0o5Q1ZNdDFNT3JEUWZLU01FbU5tNDh2NmFxNXF6b0NjdzBnTFFsT2dxOHp4WEF0dS1TRWNGWDRFcmdTcm9KcXNuZkQ5V05naHlORnhPSkFzUHhkN2l0TEF2WW9qTFI5NXlIV2hQeDJJY2ZsMNIBgAFBVV95cUxOU2pONGVrQ2VNVVB1cWp0N3VnLW9QUzU2VFNMNjI5QVJ2UHJJTi13alQxb0ZKSmZ4M181RUpUNHllcVZYUVNwY3c0UXdwUjZSUEdqLXBxOUtteHJsVmtiOWt4c0txYTNrOVA3QUJObEZPZ01TNUtUdzRWMjN2UEdmWQ?oc=5) |
+| Cuomo and Mamdani tear into each other in final New York City mayoral debate - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPNjJIYVFWeUhSd0pQRm4zY0dJd0Z5REpoanIwOENhZVE2YUdwYjFET1phMmxjdVQ1VzRtdklQTUd5VXRCZU1NMTRqUzIzdU56MnFjN0tNMVRaRHdQLXBocVV6Sk1QUVdxTXZFR1ZoQjNHdTRyUWYzdEJQWEpuSENfNW9QWjVaWEpoWGl2Ml8waU7SAZYBQVVfeXFMTWt0ai04bjVFeV9XQ1hyLWVSYzgySlg4NEl3MW8yWm1yaUdrc0MtSThnSkNCVzREZGJxV0JlaGllVmpRUVZBb3FhNERpZGZmRDRnaG8yYTJWVFlHbmYzUmZEZTB1c1NKdkZ2ZFg3UFdYYVQxVXlRVFhMQWJIeXZoUFBtaEd2NVZBdnNrcjY3cllueDAzeF93?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
