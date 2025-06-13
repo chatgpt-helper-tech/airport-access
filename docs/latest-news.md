@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月14日 02:53:26（北京时间）**
+🕒 更新时间：**2025年06月14日 03:01:34（北京时间）**
 
 ---
 
@@ -23,12 +23,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| After years of waiting, Israel's Netanyahu finally makes his move on Iran - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOWno5TG1HUzQzTGVOYW0ySUN1UnI4SFp5WWVPSkhQZmJPNVNDZjZUaTlkeWhrRWFkX3B5WHEyaWl3R2dkcEhwYTBiTlU0dmdRcVZmdU9UMUE0aG1UNnNNWDNXSUMzWUxTdUM0SVFLYTE1bE5ONjVBUVpqZXlqV1kzaUFNV25nZ2tGRFVvTHAyaVJuVHZLcHd6UlJTMkl4TEROTmZ4LXZ4R09NQnBfOHYwVUoyNjh4VW9XMFlF?oc=5) |
+| Iran launches ballistic missiles at Israel, as Supreme Leader vows to 'inflict heavy blows' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1xbmJ5T3Zrd2pOLTFQRkRoQWRuMzFwRV9peE90bGZQX3ZDd25oa3U4UEYxX3hucWRCYjctMmRVSnpJNlBXVEZhc3lRd0laMFpXOGNCeA?oc=5) |
 | What to know about the Air India plane crash that killed more than 240 people - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPTTROQklUcFZpdHJuVThCUURaVXI3N1pFeC00d3JPSXB0bnZVMl84THh2NUNyMEE3eDM1ejdOWlo5Vms0U21sanVDTlFHN0Vzcml1MHJ5UXFFOTItY2t3S1BxMnFGeDZidmtYakNCdmFPNUNOdlY5bUtKUnAxM2dGVkZnYXFTTjM4dDVoczNVTkNFQWRX?oc=5) |
 | Millions in US expected to join ‘No Kings’ protests against Trump - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1DLTJZQVRtZjZFQU5GZGhPX1hGd2laVVFVQWFwNWNXU3JIVGRqNGVYbW9zR056ZXBMWkhKaDJaSmNSeFhPNlhia1NVelFmcTUzNUxib0k2ckJoXzJlclR3aDhKUUF6YXhxLTNRaTVjaTBXV28?oc=5) |
-| Appeals court temporarily allows Trump to keep National Guard in LA - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFA3QkRZTHJ1UVdieFFqX2g3VDhRUU10X3ZrQXdXMC1QR0hrcHBiMm1UVkFFaG1yMm55dnItZTlzSmhzNU9KWFlSM3JUUU43ZmNDSnhCcnRLNXVTQdIBX0FVX3lxTE9SLTdSVGpyNVprZTZQVHpUVVBoUWxhTHVhYU8taS1BcnI1ZmJFZlNqdHRYZjVkOXJmdS00eldQMlBnZ1ZCRE80VUo0dHJYX1pYVk1DRnBqQWVJSlNSbnFz?oc=5) |
-| Forecasters Warn It May Rain on Trump’s Military Parade - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPYmc2N0RPYjhGSDJwSng5RnpqV0NLcVY4VDhnc0UySWdtOElENHZXSUwwM0RCOVljTzJSTWJFZWNtd0c5RDBpTVl3YklhSVVHN0dFQVdNVWdSZ2t6NU04NmpXS1JqZUxHLURhUmxfZHZlZXhxbFZyRHVkNFlOelNpTW14aw?oc=5) |
+| Trump can keep National Guard deployed to Los Angeles for now, appeals court rules - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNaGFFZEl4Nko5cTNpd2x6SC1saXNkT1ByWTNYYmYtbk5TbzRmMXFKSmxlU3BzbG11bnd5UGotQ1g0WFlWeTJoZ0xjcW9WU2NfcFgxR2h1NkpaSW1SMm52U1FHaTFxS1BRU1BCcFNHUjRnZmw2VHZvd1o3NjN5OWxzQTJRemxRcmZZdXdnM2RxRzBuNS1OQllMS1AyMVZVZnhfN0pHMlF4WU1ZbXhkZHlTUlVEZXFkSzlKUWhB?oc=5) |
 | A 2nd judge halts more of Trump’s voting executive order - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNNm9vSE85R3BRRDdkaVFGQmtfbkRHdTd1djY3UnFoeE9ncjBib3JCWmE1SkJGOXUtRzZ6eVR1NmowVHNDVEFHcTZhRnhqUHUzTUZkTWVUdkNZLUZFc0lERkkwcmJvNzVPbTlpS3daZzRCcl9Tekxyb0ZEd054T2VycGdMYnZpWENXWVE?oc=5) |
+| RFK Jr. blows up America's vaccine policy - Axios | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE0yOXU2X0h0d3pRTnNCQXJCN1JITHFsanNIREdRS056SU1UaHUzT0VSNlZoX3lwOURyU2xBako5UG1lbkhJckNJVnR3b1lmQW1oV3lKMGVqZERkOUpKZjI5SHlReTlMUTJua0c0Tk1TdGZaUQ?oc=5) |
 | Four detainees at Newark ICE facility are missing, senior officials say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOZmYydGxMZmpEaFFkdm1FZWQxNnowWC16bENYUjVoUHp6MUVMSEx1MmIta0ZJcW9tcVVja3V1Q04yRXZsc2E4TWdGWDRZMlB1TGlLMTVvT2N3aHpoc0FfT05pbVNyc0w3LTRuTXdGaGp6SVBCRWVhdWtNNEk3VDI5RThHSXFhQ2dEVEFwdjViM3dyc3VXV2R4YXFDRk9ZLUF0NWtuQ0lBOFpldm9pSHIzSHRKUWZNUdIBVkFVX3lxTFB6SWVmTTUyVWNfZXV3OWwyN3o2dmRCamdjYnF3VWNObUw4MXZVRFZiUlZtTzQxRG5XT2NyazNpSzB5Y05mbVI1Z2V2ZGxCMDhZd0c2UmVR?oc=5) |
 | Mamdani and Lander Cross-Endorse Each Other in N.Y.C. Mayor’s Race - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNZFR2N2pleHlTMzlNc0hMMHk0dGU5UlR4MlA5NmktX25sVUNDZzdESDFhY0N2aGs0dzA2V2FmMVZBQmtJZklYQk43V1dQYWJteVVPNzBhd2RJR3hjS1hkU0p0eDNQMV93RmJHMU5ZeUdSWkNOTmQ1alQtRF9JeEVxbUdkTXhKVS1IM0thN1FR?oc=5) |
 | Photos of immigration protests spreading across US as Trump mobilizes National Guard - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQZ2dEd1FzRFp1cXhFdl9DbHIzQm1qY2VzRmIzLXFiZEdwM2dNVHNfbURoMWNkUURkMTZISElwRnJXT2dLTEstQ2dHNmtRckkxamlwd1U4YncxclJHSWR1T0xfX1NvWXNQSnkwN3kyTVFyb3VlNFl4YjdyNlZzc3hZQWN4d212dVR4WkZBajQ5OWt3M1NYa0lGeVdfQ0EwOFJMeFE?oc=5) |
