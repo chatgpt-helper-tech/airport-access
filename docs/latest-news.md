@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月13日 13:01:36（北京时间）**
+🕒 更新时间：**2025年06月13日 13:13:37（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | 13 ‘No Kings’ protests planned in Alabama as Trump hosts military parade - AL.com | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNMUJIVm9BclJrWWtlVkEzN2dZdG41SUs4LUt0SUt1SzVSSEhRMTNHcDB6RVlKeU5RbV9qeUEwS3RsdlQwWnE2YkJaU2Z5ekxaVHFaZFFyckpoU3BmWnh0VC1lS0VHaEtiNWw0T0tQTXF5LWJ5TExCWkc4dHBhbDF3aUt1ZWJFSkVLMGpmc2lpOFFCXzJKemZFc21fMEVVZ3RDaXpTdFVPWjNuLXPSAb8BQVVfeXFMT1kyM21mUTdnamZMMGhncHZBc3p2SjVxUEhjUWktOUpWbk85bXdsd1hNYjh3ZERkOV9TQzFDQmIwMGF1NnpUYkM5azVhM0I3M3M5Vng2enpuR2JVWEZ6VUJQdVhxUWl4cV9KVXdkNXIyN2c3cXl5ZWdYUFpsTF9YM0JVMmxZVkJwYURITnlXck41TVF1eS1jVEJmZmtzWTNldUhIVnAxb0FGSHkzZHVzbnpHVUwxbm1NZXZrY2FDVW8?oc=5) |
 | Democratic governors face Republican oversight on immigration - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQS0RydUhiZVF4cllUaVE1RmhJS2lFcEljZW5JOHlFbW54WXQ5Y09vS1duRjNrTi1wVWhtUkFON2wxMWtRdzYzTm52RlBjRVVkN1J6U2JCZkhITUNhZW1zZzY0ZWxVWDJhU0NwXzBKUURFUExWZHVxeTR6YmQxc2lpTHVmNkF2aUlDZDBRYkhMWGYtWHRBcHVTNU0zeUxsUkk2RDZOaHNrTi1vTkxOdXdsUTl3?oc=5) |
 | Cuomo and Mamdani tear into each other in final New York City mayoral debate - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPNjJIYVFWeUhSd0pQRm4zY0dJd0Z5REpoanIwOENhZVE2YUdwYjFET1phMmxjdVQ1VzRtdklQTUd5VXRCZU1NMTRqUzIzdU56MnFjN0tNMVRaRHdQLXBocVV6Sk1QUVdxTXZFR1ZoQjNHdTRyUWYzdEJQWEpuSENfNW9QWjVaWEpoWGl2Ml8waU7SAZYBQVVfeXFMTWt0ai04bjVFeV9XQ1hyLWVSYzgySlg4NEl3MW8yWm1yaUdrc0MtSThnSkNCVzREZGJxV0JlaGllVmpRUVZBb3FhNERpZGZmRDRnaG8yYTJWVFlHbmYzUmZEZTB1c1NKdkZ2ZFg3UFdYYVQxVXlRVFhMQWJIeXZoUFBtaEd2NVZBdnNrcjY3cllueDAzeF93?oc=5) |
-| Trump signs bill blocking California gas car ban plan - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBLdlowbGZZM3Njbk5GaWlGczlvd3ZqczJ0TDdieW9VNzQtZUJGNkhxRHhnMmNFdnpraTh3dWl3MVpJTVYybVhkMDZxNjJXbkRrd3RuTVcweS1vQjhST1lVYlJyOGN6T0dBdV9sV01menpqVzFmbVE?oc=5) |
+| Trump signs measure blocking California’s ban on new sales of gas-powered cars - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPcFdQdkpRY0NPMFNMSVkyR0JScUR2WjRiNjNUbmxPeDRuaU1BMzgycW90bmQyMXI3Z19UNUQ2Sjk3SDdpQUhMaW95VXVBa3JHYUsyRlZMVkZRX0VySlFIcXkyYjJ1Z1IwdzItLUxmOG9wc2lVZlZjc2FOVW1uOXNqVnNiV1NuaF9lRW92b1hxb1dsc0VQYzJFR0tJQ2QxbUVrTjdzbQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
