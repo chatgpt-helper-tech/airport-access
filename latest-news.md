@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月13日 21:14:51（北京时间）**
+🕒 更新时间：**2025年06月13日 21:26:32（北京时间）**
 
 ---
 
@@ -29,7 +29,7 @@
 | Padilla episode triggers five-alarm fire for Democrats - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE1WeXZPTzZHMjk4Z1NYS2VoWlN5YzhmaEpDbTJUN1pPWHJrYTdDUnExZkZrWEFWdER4MjIxTVZZYVBYMXYwMGlLdzRiUGJ0cFdCMjNDTVlPVThzZE1OMm14YXlkTUxCQ2RuWTNQTUp3?oc=5) |
 | Appeals court pauses ruling requiring Trump to return control of California National Guard to state - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNbkNNSWgyTmttZFRFc2p2SlZvSUU4SWxYdHZIcnZnYWxPWU0xVzlQNG1QYWRZLURockE0S05udVNFUDFzbzF6dURKNmVaX1l3NG5xcl9LdDgxenJ3eU5DUzhtU0s3Y3Q5RWsxbTU5ZUFyN093YTM3MDF5YTJpNFZ6ZUc2T2HSAYoBQVVfeXFMTXBUMzU3eFZHQjFJbEFKZ2F2eDMzaEJwbVVQaWh1b1AycEtuWW5fVmhsWmNkSGFFOFNJdVI0bWNMdkVMN3BNOWxKRXV2dV8wTVc0UWlkUUowMTE1VURueWpQZDF6c2dIX2pvMy1NV3d1T01oeHRMRFh5cEdKSUNwSTF0ZjFnT1c3c19B?oc=5) |
 | ‘No Kings’ protests nationwide to push back on Trump’s ‘overreach’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNYjNucG9GVEg1UjNkbHJYaURSaE4xUjFJd2pVX2J2Uk9xdHNSU3NQb09GTHdHSDh4di1NZXpxalgxcGc0ZVRaeXFLYmkzbEFwLVdqM0c1aHI3SUZMcTgyYVBvLUZTcjdnTUQxVTdjd0E5a1BXQnVMMWZrTGt4bzhwODhDVGZFV2NOeEtoOGRRY18xOVk?oc=5) |
-| It might rain on President Trump's parade - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9aRzZWQ2VLbndVblVJQ2FQR2FNUXh2WmhuWEJreFItZzE4MENhS0xZb1JCQ2s3N0s2aFZncTdaY0xEY2o4TFZweVpmSHRZd0w3TlVXWHk5Yjcxc2tPa0ZPQWtTQVVZbXJDMmxXMWMyem5NZmRObmJyVlhpS2M?oc=5) |
+| Tanks, flypasts, missiles: what to expect at Trump’s ‘dictator chic’ military parade - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOS0JxdUEyaGMwWWN3M1lhMEZERkgwbFFLbEFEWUVVRmcwV3Jxa29XcE1rSDhDbXNDS1pwQ0RZQ1FxXzNPWlNXSGZ0NlZxTVowNDZ4YUd3YmVscW1zZHRTTHpTWkgtRC1qaU93cVpOenlNdHdvOUlrZXAzbHI4YTNoVkNEVjFSYlE?oc=5) |
 | After Abrego Garcia’s Deportation, a Maryland Pastor Regrets Supporting Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE0yaHhaekY1eGc0TmJXQi16V1VGaEVYQVJyMEFYTmcxcFQ3V2ZJUkxvNmJ5MTNXTXctWWZoNzZmRVUzbHI5WUttM2JfUm5NLUttZUZaWU5nT2NiVE11RzJrbmJPRnJxcFY4OWt4SXlFVlVKV0sybDlkT3FzQzY?oc=5) |
 | Cuomo and Mamdani trade fire in the final New York City mayoral debate - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNYzdkaU9jNkx0azlSb2xzZWJjalpBSUYtWWZuS055YW0zNkppNzVZcGRySVNYckZMOVBQbmFkSnV6bXpfOHZHdjJJaXZveXJuWllWQlVob25YOXlxb185T3ByUDd1UThTaTVKQmVBWlhjR1FjcDhCcEUtWUx2bm9lWnM1SmtpOGROZUVBdjVCQjYyTmM1Um1RSHZKZWUtc1R5SXJHd0VXZUd4VDh0OG85UHZGWlcwUQ?oc=5) |
 | Late Night Reviews Trump’s Night at the Theater - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQR0dxbFViYWtNU2Fya1hQQmM4Q2V0dEx0MWtkYzBUZGZhY25LY2NYZngyTl9SeWtPTHJlOFF3MTdVeFFSVTNhdExsNUdrOXJQeWVGU09yUXlzeTVQRWdmNlQzNHBqZHpLeFJfb0lDU2I5a25MSFpsU01iT2lkUndLWGFzYWdrN2xkV1pPTzNIb08?oc=5) |
