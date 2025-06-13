@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月13日 11:13:40（北京时间）**
+🕒 更新时间：**2025年06月13日 11:27:36（北京时间）**
 
 ---
 
@@ -8,6 +8,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Watch: Footage shows explosions and buildings ablaze in Tehran, Iran | [阅读全文](https://www.bbc.com/news/videos/c20qw0xjp10o) |
+| US says it was not involved in Israel's military strikes in Iran | [阅读全文](https://www.bbc.com/news/articles/cm2kd2k3mv7o) |
+| Watch: Netanyahu says Israel targeted Iran's nuclear and military sites | [阅读全文](https://www.bbc.com/news/videos/cz70x722zvyo) |
 | What could have caused Air India plane to crash in 30 seconds? | [阅读全文](https://www.bbc.com/news/articles/c626y121rxxo) |
 | Masonry thrown at police in Portadown in fourth night of NI disorder | [阅读全文](https://www.bbc.com/news/articles/c20xrq9vzz7o) |
 | Misled and intimidated: Caravan owners say they felt 'bullied' by holiday parks | [阅读全文](https://www.bbc.com/news/articles/c2016lxnepno) |
@@ -15,23 +18,20 @@
 | Trump administration blocked from  deploying National Guard to LA | [阅读全文](https://www.bbc.com/news/articles/cd62d8jp046o) |
 | Reeves refuses to rule out tax rises after economy shrinks | [阅读全文](https://www.bbc.com/news/articles/cy5e6ly9qq3o) |
 | Thunderstorm warnings in place as drought declared for millions | [阅读全文](https://www.bbc.com/news/articles/c14k6vp62zxo) |
-| World-first blood cancer therapy to be given on NHS | [阅读全文](https://www.bbc.com/news/articles/ckg4kj2nxjgo) |
-| US senator dragged out of LA immigration news conference | [阅读全文](https://www.bbc.com/news/articles/c5ygn48djrko) |
-| Frank replaces Postecoglou as Tottenham head coach | [阅读全文](https://www.bbc.com/sport/football/articles/c15n8wv2yq8o) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Dow futures fall 600 points after Iran is targeted: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5RTE1IcmJfQjF1VkFwSk9jNkEyZWpkQW1qNUswTVZBclR0VjNnVXd1ZnNOcW9NVVZRSnQ5ZnRGTjBuOExJRWhEaXZWZ3dRSkpoaVFxZldpdVh4aWtRUG1DMm4ybXRyUEtJdWlZdmpjUnk2eWFhRXFr0gF8QVVfeXFMT3RkRDhFRzRudi1TcmpjdWwzc3J5bklGWGhnS29uTDdJc0pOZXVNVkxUd0xfX2xwMEFIU3dIWDFab1pvZ3pUNTFldDJfTTlaRzNrZWl1ZFVSNDAyZVloTVB1eTVCY2g3QUdoeVRZZktjcHJqSGo3MzBjMExXWA?oc=5) |
+| Israel conducts airstrike in Iran - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBsbHF3WlF6V1pYd29GYXdNLUVQcHYxRzMtQUJlZzNyMzFaVC1hMl9VUDhjWHZfM3k2QmptSVZzQ0tRZHltQXNVa0FPRUN3d1NOZEFsMWthb19yRDRfTFJMeGlwMEtMb1Fmd055VGdNTXp0Q0xfM1ZqRkdOdw?oc=5) |
 | Trump administration blocked from deploying National Guard to LA - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFA3QkRZTHJ1UVdieFFqX2g3VDhRUU10X3ZrQXdXMC1QR0hrcHBiMm1UVkFFaG1yMm55dnItZTlzSmhzNU9KWFlSM3JUUU43ZmNDSnhCcnRLNXVTQdIBX0FVX3lxTE9SLTdSVGpyNVprZTZQVHpUVVBoUWxhTHVhYU8taS1BcnI1ZmJFZlNqdHRYZjVkOXJmdS00eldQMlBnZ1ZCRE80VUo0dHJYX1pYVk1DRnBqQWVJSlNSbnFz?oc=5) |
 | Calif. Senator Forcibly Removed and Handcuffed After Interrupting Noem - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQaGxqQVlfQnc5c2ZPQzEyUkFWcWloMlZqZFdkeXNHZTFnZ3ZqTzBjYm5QS1JPcDlQQ09od294UnJ0ZkZJUWpuTTY5cFlFc19rLVQxTXRTeG1VcnRLdXdQVFBYTktKWDFfYUlpTWE0R0Y2OUgzQUpYYlo2Y1hkVW1OSFZrTGpQVU11Wmpn?oc=5) |
-| More than 240 dead in India’s deadliest plane crash in decades - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPQVo3Q1lSc0Nja1RxM1JYbWxwMHZ4bEtZeHNKMFp1c2FJY1hSa0xfeXdXVnpIZF9tZUJzUUdpNUVobXBhRlF5MEZ3dVdmY1J0Sm9FamhXZndlS1h3eWlTMVNkdlVMM2FNUW9lVkZ3UFBkZFNpVWY4VU9ZdjhIM2pUZTNrT2gwR1FfOE9xYnpOaXAxdw?oc=5) |
+| Air India crash: What to know about the first fatal Boeing Dreamliner tragedy - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPRVp2akZpT1daRHBqNGd1UUlVOXRWTXU3ZGliR3JwM0NUakdwdWpFT0FEc0h3c3pJb0VzWnpCQUdKM1V1bmFNYno4aE9GNmpsVzAza0lCWjJuUmg5WDBkdi04ZUVpUFF0Z3ppYktWdktvTzRHazhGYk50a24tWm1PUzc2al91U0x5QXp30gGQAUFVX3lxTFBmTnk4SXhnYXM5VUdBOG45eV8yOU9VMGVQZFJ3Vng1U0NVOFNaQ19lY0tJN0lzR3RQU05uZzhNVDNPUHZGRFZ0ZFlTVTV2ZUd3QmM2WHktOXdZbUYyUmJWdjN3NTM3Wlo1MTJSNmNPakhIazZlZFdycldNQWZGM0xqQm5xMjZvV2tPTU5oQVB2bw?oc=5) |
 | Six in 10 of U.S. adults say Trump’s military parade is not good use of money, new AP-NORC poll finds - PBS | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxPUXhNMGhXZm9aV2lDa1o2TF9oaDBLLWNualhQcEZJb09tSnl1R3JvZXBvOFIwYWd5V0ZNTEdUOVZpSmpoWEdzUVVza1p5eUJUb2NnLWFOSlRGb3lHNnZjdzZoRVRhU19PSDhZakN3bzRtYUw1V2dOck1QR3ota3VYTlJMVUs4ZXlySkh2UEJSVWdLajNWcUVpMmZWMWVUMnlTdVQ5MHhLYnljYWRxcU9hdmZmUzFwcng1NHVEUVpfT0lPTnBhNlptTEFIUE04bFc4Y2fSAdcBQVVfeXFMUFhzMGYxemtfb3UxeEdraHlEWGZBbFQ4Ty16WXNrbS1OMElBcFBlejctQzE3M3JVc3o3NGdFdlhXVTk2ckZscV90Z2pQWUdyOFFRdW01S1BLdWFMWGJZRzVwci1zdERHUmhCZHJuVXRvdDRsSGxkZ0RMVWhEN05MT2JYV1Mtc0NnVVlnM05iZ3VCTDkyaWdTTW1QQXJUcmE4TEVhSWVKYnJJRUFPRGtjcTdJNFl6WHRHTWJIbHBjRHI1Q1pIT1RLcEFsakI4UXpCTGdaQ19YaEU?oc=5) |
-| Denounced by GOP lawmakers, blue state governors defend immigration policies - NPR | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxQajlMalVwZk9abE5pcklQajZTN1BVY0RmOXhOOEJMVGpsMXE1LVZad1hMVUd1eWs2X3NyYmlwczJRZFdoUVk2aUhoR0M0dlVfVXhLZ01NMjVFQUdob1dWZ3VVbFBRUnAyTVNHQ0lmZGI1VTFnRFFhNWdsaTUxeWNua3RuQk1iRDIxQUNHOGU5b2pjYm5yeHRYaU1jRDhLRTlHZEw1YlBPRXlHSVhOZldYOFF6UkQyQ2hxdU16Uw?oc=5) |
+| California, 10 other states sue to block Trump from killing 2035 EV rules - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxOMENxZGlGTDdjeElGRUhsU2toQ0ZPSHRROU1MU090dktGTDl2a3Q0N0NETzVrS0hfMWFpcVgxdG12cUIyMFB4YkJJSElyNWl1T1NmbmRZeFdzV1N5cEpVeTBSOTVCdTJmMmExTnllVVFycXNBYWE5N2s1ak0zR1dYRDRrVzRtZ19hSFBBSE9NZWVUc3FpZHhxVUlKOVM3WEJvN25WenpVTmFfeGxTYmYxZGFUN3d3ZTdrazFqTFk3TkpVWDFZM3hfSTZn?oc=5) |
 | San Antonio flooding leaves five dead; dozens rescued from high water - Texas Public Radio ｜ TPR | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQcUpKN1M1ZDE5V3QxV0J6ZVdVclpzdzc4QmZCYkQ1V2lpR19aXzliMmJoZVZuOF83WGlCWHJWUXlmUVRzX0psdi1qWHFNeTU5WVNEdkdNaEVEN2phTmZGY0JDUVptNVJXMjdMc2hqeHh1RlU1c0RxYXMwbV8td3lTaHF6N2ppSHIyNUNuTGdVMnMtSFVGVjg1WnpzTkNlSDNJZWpQTGEzcWRFWDh1dEFrdQ?oc=5) |
 | Trump, Who Has Likened Himself to a King, Bristles at ‘No Kings’ Protests - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPc2lBRmxIektyRnoybGcwbGE5TllfanhleGNBT2RrclViZnIybEU4U3V2Y2VsQ2lsWDdVY2xkczV5bkFsX3FYMFctdC1XWUc4NE1rUlZaOGdlb0hVVmtEeGVUQTJoeGlJU1lFYU84aTR4RVU4dWQxeVFkTG5uTjFjaA?oc=5) |
-| Russian Scientist Released After Four Months in Federal Custody - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOdHZSczF6dHdwRVJLME5UeEwtMUY2VjhwMWFTWjZQcGEwVFQ0UlRfX2hGMWFRZXFLNC0xNHJmcFVOLV8yOG45dGJfNFBoRi0tMmlDYk9LSGJTMDQyNGtjWFhRVXV2TFZTSlJ0YU9Pa1lBVng2RUpZMG9uWW9PM0RuOGxtaG1vNkNn?oc=5) |
+| Denounced by GOP lawmakers, blue state governors defend immigration policies - NPR | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxQajlMalVwZk9abE5pcklQajZTN1BVY0RmOXhOOEJMVGpsMXE1LVZad1hMVUd1eWs2X3NyYmlwczJRZFdoUVk2aUhoR0M0dlVfVXhLZ01NMjVFQUdob1dWZ3VVbFBRUnAyTVNHQ0lmZGI1VTFnRFFhNWdsaTUxeWNua3RuQk1iRDIxQUNHOGU5b2pjYm5yeHRYaU1jRDhLRTlHZEw1YlBPRXlHSVhOZldYOFF6UkQyQ2hxdU16Uw?oc=5) |
 | House Republicans vote to claw back $9.4 billion in funding for foreign aid, NPR and PBS - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxNSzNHQTNXUEZKVm50V0t6OVo4ZGFreDBqc2xnTmR5STJaNzVBUHhHRjc1dzVNbUhVY1U3MF96aGtPLS1ZUkwtWDdySjVxVmdjWGFXMkxDQUg5QVVnUGRONWZhNmo2NDMwWWtPbG9oam5qOC13T0RmVjE4YnM3Tkg0UHFnVE1lRzNRcUVZODJnRy1jUFFmYWZzbnhSRlFZOE5hTjFla2ZsNGpaekR4Y0YtSmR6MnBNc1N3YUpTZTY2blLSAVZBVV95cUxQVkxMZzF1TVpmYUtPdDZZQzFrZWtQZTlHMlBuZFgwVEtsSjZwdEhOaDJ3OHpxMkdlVW01UDk1YjhsdHlFRnVfRnBqOTE2WnhXUTcxTGZGUQ?oc=5) |
 
 ---
