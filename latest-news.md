@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月13日 15:13:25（北京时间）**
+🕒 更新时间：**2025年06月13日 15:27:57（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | House votes to claw back $1.1 billion from public media - NPR | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNenNMWU5GN3c2QURSV21OdExXeWtlNE9kSlBkeHBPOE91dTlqQU1MTjNhOERoVGVhcVlpUGFTOGlsbHF0TjhvNTIzeDNLdkU4WS1kZkRza0VpVVVESUFqaExCN0Nxb01zcWRkbklkZTZFS3czZWtfQm1ydHVzaVd4NVNTdWo5QjN1dmxtRkJ0UHZKam1iR2c3SWM2Z0Z1bWJHWW90VUdkSDZuSGFySVE5YWJhVnp6S00?oc=5) |
 | House Republicans spar with Democratic governors in tense immigration hearing - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQSGhkTGg0aEhfaXJTTF81Sk9RU0tuRDBneDYzb1VhZFFJRGJuNkZnVE1PUXhyQkRPdm84UkM4eUwxNXB4bnhNMm45R0V3bDRtSUhNWS10X1NNOHVqNDVxQUc4NFZ4ZFlSaE5nc2d0Qzdza1RzTHpCeVJsamhlVUs4T19rMEY5ODNNdDJWM2ZKZGlOT3NYZzVia0w1QXc4NUM2TXhza3JCNzBwa05MaHFNclRPTWExZzRwWE41dUk3a9IBVkFVX3lxTE5kMVlERHptc0s4bl9TOVVfM0VOQ1VnWE0ycG5Xek14Qml2V0NyUXpzNERwaENTenk3U21DdGl5V3NLTnZkLUZucUdHeXJsd3JDOWp5RDd3?oc=5) |
 | Trump, Who Has Likened Himself to a King, Bristles at ‘No Kings’ Protests - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPc2lBRmxIektyRnoybGcwbGE5TllfanhleGNBT2RrclViZnIybEU4U3V2Y2VsQ2lsWDdVY2xkczV5bkFsX3FYMFctdC1XWUc4NE1rUlZaOGdlb0hVVmtEeGVUQTJoeGlJU1lFYU84aTR4RVU4dWQxeVFkTG5uTjFjaA?oc=5) |
+| San Antonio flooding leaves five dead; dozens rescued from high water - Texas Public Radio ｜ TPR | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQcUpKN1M1ZDE5V3QxV0J6ZVdVclpzdzc4QmZCYkQ1V2lpR19aXzliMmJoZVZuOF83WGlCWHJWUXlmUVRzX0psdi1qWHFNeTU5WVNEdkdNaEVEN2phTmZGY0JDUVptNVJXMjdMc2hqeHh1RlU1c0RxYXMwbV8td3lTaHF6N2ppSHIyNUNuTGdVMnMtSFVGVjg1WnpzTkNlSDNJZWpQTGEzcWRFWDh1dEFrdQ?oc=5) |
 | Harvard, Trump admin clash over court protection for foreign students - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOWlRSQjVWWTc0dlZrQWJoZWZYVlJ2VTJhQWxGcWpLd1VUZGw4aDlDd3EwaDI2ZDFoeDg0UGlmb2s3Q0NNaWwtQTJyV1NDZDItZnRxeHVyN2V1ZlJQcElDWU8yNnl3R0F0UGczLS1GRzlwQjUyQlRfQWRRMlhyZncwVzZ3eTVGZW5ONktDZDEyQktyR3VYQ241dzNTNA?oc=5) |
 | Cuomo and Mamdani tear into each other in final New York City mayoral debate - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPNjJIYVFWeUhSd0pQRm4zY0dJd0Z5REpoanIwOENhZVE2YUdwYjFET1phMmxjdVQ1VzRtdklQTUd5VXRCZU1NMTRqUzIzdU56MnFjN0tNMVRaRHdQLXBocVV6Sk1QUVdxTXZFR1ZoQjNHdTRyUWYzdEJQWEpuSENfNW9QWjVaWEpoWGl2Ml8waU7SAZYBQVVfeXFMTWt0ai04bjVFeV9XQ1hyLWVSYzgySlg4NEl3MW8yWm1yaUdrc0MtSThnSkNCVzREZGJxV0JlaGllVmpRUVZBb3FhNERpZGZmRDRnaG8yYTJWVFlHbmYzUmZEZTB1c1NKdkZ2ZFg3UFdYYVQxVXlRVFhMQWJIeXZoUFBtaEd2NVZBdnNrcjY3cllueDAzeF93?oc=5) |
-| Trump signs bill blocking California gas car ban plan - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBLdlowbGZZM3Njbk5GaWlGczlvd3ZqczJ0TDdieW9VNzQtZUJGNkhxRHhnMmNFdnpraTh3dWl3MVpJTVYybVhkMDZxNjJXbkRrd3RuTVcweS1vQjhST1lVYlJyOGN6T0dBdV9sV01menpqVzFmbVE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
