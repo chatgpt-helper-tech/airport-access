@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月13日 16:14:59（北京时间）**
+🕒 更新时间：**2025年06月13日 16:26:35（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| World reacts to Israeli strike on Iran over nuclear activity - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNVk1rTS1pdW52cTFKTVpTcFJmWm1WYjlWNUY3czUtbmhGTjBkdmt1WmRJYlQwRHdKYWN4WDNXbTJQWEg2Q1ROMUhLU0lPOWt6RFVqWlhwUXVZMUVoT05OSzh4LXhRTWxxQi1tclFXWmlhazFWOU5VX1pjeXFTbXVIYm11VGp4eDZsNkpyamhNVHlpa2ZLSWNlMlhfZ19uQjVPR0xIS0ZQZUJHZmxmc3c?oc=5) |
+| Dow futures fall 500 points after Iran is targeted: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5RTE1IcmJfQjF1VkFwSk9jNkEyZWpkQW1qNUswTVZBclR0VjNnVXd1ZnNOcW9NVVZRSnQ5ZnRGTjBuOExJRWhEaXZWZ3dRSkpoaVFxZldpdVh4aWtRUG1DMm4ybXRyUEtJdWlZdmpjUnk2eWFhRXFr0gF8QVVfeXFMT3RkRDhFRzRudi1TcmpjdWwzc3J5bklGWGhnS29uTDdJc0pOZXVNVkxUd0xfX2xwMEFIU3dIWDFab1pvZ3pUNTFldDJfTTlaRzNrZWl1ZFVSNDAyZVloTVB1eTVCY2g3QUdoeVRZZktjcHJqSGo3MzBjMExXWA?oc=5) |
 | Appeals court delays order that would have blocked Trump from continuing to deploy National Guard in California - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOZy11dmdqV1daTVpnZUczVDBKSFRJaEJveE1yc3pDQW5VZWtzQ1RDcnFKNnZKQi0wQi1RVGhlVW83M3lOblVHYWt3Z2RlTkYwNVg5cU9rb3BabXdyVU5ENWl1MVByck12MHc1T19OQUdKWDlrS2oxcWtzTEdJZlFUR2szeWVIcU45Y3EtVGM3emUyN3A1M2lBMDJ6VFJ6ckRrcU55aDZSSdIBrAFBVV95cUxNYk1Rb2NJb3puWkJIYlFYT0NJVFROZmpLMWljTkxkdkdSdENfcjRJaFpHaDlRYVI5M1RnakE3ZlFSN1RSZEM1TzF0NGwwbVZoZVhfU0lubUVjdjNpSmdicHAwTkkzdFVQNEdnZ1FGU19aaUgydndiT19pYTdSdnRITXEzN3pGZ2FFdWxtbG90V2ZMUHRPSEh4Qk9GemtFOHp3WVE4S2lnSk5iWkps?oc=5) |
 | Calif. Senator Forcibly Removed and Handcuffed After Interrupting Noem - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQaGxqQVlfQnc5c2ZPQzEyUkFWcWloMlZqZFdkeXNHZTFnZ3ZqTzBjYm5QS1JPcDlQQ09od294UnJ0ZkZJUWpuTTY5cFlFc19rLVQxTXRTeG1VcnRLdXdQVFBYTktKWDFfYUlpTWE0R0Y2OUgzQUpYYlo2Y1hkVW1OSFZrTGpQVU11Wmpn?oc=5) |
-| Boeing: What does the Air India crash mean for the plane maker? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBxaUJNRElfd0hYYk5iRVg2ZlpRT1hlVnZ3V1RpT0NuQzdyR0FId0NuM0NlNmxFaklWMFQ4QU9jUXpFc0NuLWtWRC1sT3BVb0ozeFVhb0lKWTZud9IBX0FVX3lxTE9jVGl5R0N2QzVDdDhkXzZndjVZQWRPVVVxYU9tNl9CSDgxUTIxYmNscVpXRWpyQVlxb0QzTnlYLWNCYy1BR3h0SWVBall0UHdubklyOE1iRFFwVlh5Y0Qw?oc=5) |
+| Rescuers scour buildings after Air India plane crash kills over 240 - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi2AFBVV95cUxOelpVaDdLbzB1cE1nNkpJeEJ6MnYwOWtZZ0YzOE5ZNzk3SDIzci1GS3hxcVl3ZXRNTFE1bEl6NHJSUmViaEQ4S3FhRThpX29GQWhFbUZ4Z204S0NUM2taWExNa2EwV1NoYXJhWnNWdXpjdld6ZWdFMjljc0twRE9uazJ6VDJ0NmlMbUowZ1VvQy1GWklnc0FsWVVQc2NRNGt0MkVuRF9udGZZSmREZ21TaURFaGREUWJsbVNFdmRtVjNmNkdPOTd0elhEa3N2RDJEdk5iQXM4ZEE?oc=5) |
 | Oregon’s Bentz joins House Republicans to approve Trump request to cut funding for NPR, PBS and foreign aid - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE11X3kyMERUZWF5Q1NhaU5RNm56ZGsxM2VheFJJVGp4TDcwOVN6WnBkeWhNaHJtTHJCLXEtc0p1ZFBUaW53Z3dCS25GX0tVd1Y1QjViOGY1TFoxbXp3NXhIaGNWTUlfZy1lT0YzUzREMzlaR0xFWHV1OGRR?oc=5) |
 | House Republicans spar with Democratic governors in tense immigration hearing - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQSGhkTGg0aEhfaXJTTF81Sk9RU0tuRDBneDYzb1VhZFFJRGJuNkZnVE1PUXhyQkRPdm84UkM4eUwxNXB4bnhNMm45R0V3bDRtSUhNWS10X1NNOHVqNDVxQUc4NFZ4ZFlSaE5nc2d0Qzdza1RzTHpCeVJsamhlVUs4T19rMEY5ODNNdDJWM2ZKZGlOT3NYZzVia0w1QXc4NUM2TXhza3JCNzBwa05MaHFNclRPTWExZzRwWE41dUk3a9IBVkFVX3lxTE5kMVlERHptc0s4bl9TOVVfM0VOQ1VnWE0ycG5Xek14Qml2V0NyUXpzNERwaENTenk3U21DdGl5V3NLTnZkLUZucUdHeXJsd3JDOWp5RDd3?oc=5) |
 | Trump, Who Has Likened Himself to a King, Bristles at ‘No Kings’ Protests - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPc2lBRmxIektyRnoybGcwbGE5TllfanhleGNBT2RrclViZnIybEU4U3V2Y2VsQ2lsWDdVY2xkczV5bkFsX3FYMFctdC1XWUc4NE1rUlZaOGdlb0hVVmtEeGVUQTJoeGlJU1lFYU84aTR4RVU4dWQxeVFkTG5uTjFjaA?oc=5) |
