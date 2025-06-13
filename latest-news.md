@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月14日 06:28:00（北京时间）**
+🕒 更新时间：**2025年06月14日 06:40:54（北京时间）**
 
 ---
 
@@ -27,11 +27,11 @@
 | Indian authorities begin investigating Air India crash in which 1 passenger survived - NPR | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE8wYkUtUnBqYmdhOVpTVGtQeGNmbEo2Rm1MVW91eTI1SkpnSDBSUVhJNHlpV3M4enBCSEZPV01zWFVYbXZQbC1OX3ZvMWpZWWxEcmRwNUtOSDJjWmFFak51ZHVTdld0RWVRalRZSllrdFhhYzV3Y1VzYVFxQQ?oc=5) |
 | Millions in US expected to join ‘No Kings’ protests against Trump - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1DLTJZQVRtZjZFQU5GZGhPX1hGd2laVVFVQWFwNWNXU3JIVGRqNGVYbW9zR056ZXBMWkhKaDJaSmNSeFhPNlhia1NVelFmcTUzNUxib0k2ckJoXzJlclR3aDhKUUF6YXhxLTNRaTVjaTBXV28?oc=5) |
 | Is Trump’s Troop Deployment to Los Angeles Illegal? - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPVVRIVUJzV1NIZ0wydWVPVXdNeS11SDMxTlhSLXctTk4wLS1ETjEtMVJiN2xRalNoU2phUHBrc2JIc3pwNFZTN2xId0J5UGl4YnNrOUV3ZzhOVW9EdUs1RTctQ1hySm81RUdBcUZsLU52bmkxeVRQUFdDR0xLd2xVdU5oZjVJUXZpMHhyWEpfTkxzSnRCQnJWNlRqbmgycnJhUDFmak1WWEk2UWY3TGFiYVFXd2g?oc=5) |
-| Forecasters Warn It May Rain on Trump’s Military Parade - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPYmc2N0RPYjhGSDJwSng5RnpqV0NLcVY4VDhnc0UySWdtOElENHZXSUwwM0RCOVljTzJSTWJFZWNtd0c5RDBpTVl3YklhSVVHN0dFQVdNVWdSZ2t6NU04NmpXS1JqZUxHLURhUmxfZHZlZXhxbFZyRHVkNFlOelNpTW14aw?oc=5) |
+| 9 questions about Trump’s military parade - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOMjZnT0JZLUUtZG5NUXJUNndKX204VER4VThFR0JLczlhS013UElzME9SZzktVjZPbVBtYlRKYXlXdEFqLU51RDR6Y0t3eEw1VXRMai1iUzh1MWFsWW1NOXY0SnZPR2h3OHM5SDQ2NWpiUUpGVWdKOXh3RDFLQml2NDJ30gGHAUFVX3lxTE9sNkNqQ1RSMkJLMDV3a0ZlQkNUUFhSekcwNGtDejZhZ1NrRjVpU3pmRlhIS042WkllaDJMZkVtNjlYODUtQTJZUkpyd0pTZUNwcUpDQXZoOXJ0NFFabjBxVms0b3FTSl9nTE9EMWRkR3hVM2ZyNVVDSXlYU2stREZzak1MRGxicw?oc=5) |
 | Americans will feel impact of immigration enforcement on farms, union president warns - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPMkdWX25yNTZOdjcwUG53MU5OZHExcXdHMVFHMDRkZk04VXY3cUhoZ3J0MUFfOWlGdllSeWZEcUdxSG4xU3RkOEZPZ3Vqb1hVaEM1ZkxydWxnTk1kV3Rvejg1UWxYVmpaZkU1clVick5RdG43eE9sbmJSSnVRbnFzX25keEtoRXozTEtvNGhqdUtLWUs3V0E?oc=5) |
-| Jury in Karen Read Retrial Begins Deliberations - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNQ3RpWVBzb2pTdXFuM1pLbmtRby1HTG1UanVpNkRFU2x4emNLQUNkQmRTR1R2R2VaSGIyOGJtU2hhZ1gwLXgxcTZVdHo0a1ZEM0pXRDhUV1JtbDAwem5iNU84NnNCa0R0M1VlYzBUMFNEM0NKS2w1MGNxbzdjRzMtWDJRMVA?oc=5) |
-| Judge allows Trump administration to continue to detain Mahmoud Khalil - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNVWR2NjVDNFdVOFE2M3ZRUnFra2ZiUWZRTHdONUxsMFlmU0x6YjlVYWRSRDNyLWFrMnBpalVUSDhLNjMycFJRMUJrNFdHM0t4Z1ZGRkdVNUhUZkxSYUFnT21iLWl3QW4wcGtzVHVmQUJQRXM3XzZfWlh1NzRxN2RXazZJZk5nYzhCZUd3cFdkRdIBVkFVX3lxTE5RN1dJb3g1bVQ0Y01ELVI2dFRKMlh6VWlqWk1GTUVvVl9RZlByZmY3RFU5WnNCOUNvT0wyVnNyZWJMT291SFdqaHFhZ2xiMzZrREY4Y2ZR?oc=5) |
-| Kilmar Abrego Garcia pleads not guilty to immigrant-smuggling charges - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOdVF5Q0sxT0l2dDhOdG5wa01BUFZxTVhQRFhKM1hQT1Z4eTFTV0hvWnlOOVJJY1c0bFV5WEp5TTFaajZuRHRka2JiRWRzak9wUFl4aDFUNnU0VGNia0k4LW9nZU1vOUJnMGhRS2RqWVJHQ3Y0aHZLVnk4OTBLRGV1Q1FXc08zSXkzQVJxdVJVRQ?oc=5) |
+| Four escape migrant detention center in Newark, N.J., authorities say - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPdkxBMGY3RFJoNTloVnlyVmFvbGdKb2ZMWFFHaHVxb2dLVFp2ejloN3g0T191OG9ST19RdlhHLUd0bHQ2RzlIZGJKaHFKbTVhOEZPUkRWSmplNC1XTVh2bjNWOC04SEV3aU5DeFcteTdLM0cwM0hkSGxvTHR5ckMtLU82TkxHSU42dUVIYURvUG40dkFYU3NoOQ?oc=5) |
+| Karen Read Trial: Jury Begins Deliberations - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNQ3RpWVBzb2pTdXFuM1pLbmtRby1HTG1UanVpNkRFU2x4emNLQUNkQmRTR1R2R2VaSGIyOGJtU2hhZ1gwLXgxcTZVdHo0a1ZEM0pXRDhUV1JtbDAwem5iNU84NnNCa0R0M1VlYzBUMFNEM0NKS2w1MGNxbzdjRzMtWDJRMVA?oc=5) |
+| Judge denies Mahmoud Khalil's release after Trump admin submits new filing - Axios | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQb3J2dVJxNVRqcnUwNW9sQi1aSVRDZGM3SXFWZENQMHBnWGdpdTF5WXAwMEZkOThYcjdxVGh3LUotS3hoTXczU3FjUnhzcVZyYnY2Q3RyUGZiMkdkSEtoTWNWcVVlblY3M19UM3JaMWZSSnVIUWlvbjVPemtON3RGaWJKVUJnaXdPQU1TNy1saFN4TTRKVVhldHpBYnk3Vm00?oc=5) |
 | How Florida protest organizers are preparing as LA unrest unfolds - Tampa Bay Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQYzYwV1REdFlnRUFaZ1FGT1J1Z3l4X3ZKcFB0RnRCbzExcjg2czNZTjFFa24yejlqUUszMERpaDJibVV0ZzJIVWl2a3hEMkFOU1hucmJJcEJCNzVRNTI1YkpkSVVaZzF1bEVyMDFrd3BHQU4xYk9UOEI0dTNMZmFSMjdWd0RFRDh1Q19lYVlwbjFCcVc3MkE?oc=5) |
 
 ---
