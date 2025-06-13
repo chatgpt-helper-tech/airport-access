@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月14日 03:14:04（北京时间）**
+🕒 更新时间：**2025年06月14日 03:26:41（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Appeals court temporarily allows Trump to keep National Guard in LA - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFA3QkRZTHJ1UVdieFFqX2g3VDhRUU10X3ZrQXdXMC1QR0hrcHBiMm1UVkFFaG1yMm55dnItZTlzSmhzNU9KWFlSM3JUUU43ZmNDSnhCcnRLNXVTQdIBX0FVX3lxTE9SLTdSVGpyNVprZTZQVHpUVVBoUWxhTHVhYU8taS1BcnI1ZmJFZlNqdHRYZjVkOXJmdS00eldQMlBnZ1ZCRE80VUo0dHJYX1pYVk1DRnBqQWVJSlNSbnFz?oc=5) |
 | Forecasters Warn It May Rain on Trump’s Military Parade - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPYmc2N0RPYjhGSDJwSng5RnpqV0NLcVY4VDhnc0UySWdtOElENHZXSUwwM0RCOVljTzJSTWJFZWNtd0c5RDBpTVl3YklhSVVHN0dFQVdNVWdSZ2t6NU04NmpXS1JqZUxHLURhUmxfZHZlZXhxbFZyRHVkNFlOelNpTW14aw?oc=5) |
 | A 2nd judge halts more of Trump’s voting executive order - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNNm9vSE85R3BRRDdkaVFGQmtfbkRHdTd1djY3UnFoeE9ncjBib3JCWmE1SkJGOXUtRzZ6eVR1NmowVHNDVEFHcTZhRnhqUHUzTUZkTWVUdkNZLUZFc0lERkkwcmJvNzVPbTlpS3daZzRCcl9Tekxyb0ZEd054T2VycGdMYnZpWENXWVE?oc=5) |
-| Four detainees at Newark ICE facility are missing, senior officials say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOZmYydGxMZmpEaFFkdm1FZWQxNnowWC16bENYUjVoUHp6MUVMSEx1MmIta0ZJcW9tcVVja3V1Q04yRXZsc2E4TWdGWDRZMlB1TGlLMTVvT2N3aHpoc0FfT05pbVNyc0w3LTRuTXdGaGp6SVBCRWVhdWtNNEk3VDI5RThHSXFhQ2dEVEFwdjViM3dyc3VXV2R4YXFDRk9ZLUF0NWtuQ0lBOFpldm9pSHIzSHRKUWZNUdIBVkFVX3lxTFB6SWVmTTUyVWNfZXV3OWwyN3o2dmRCamdjYnF3VWNObUw4MXZVRFZiUlZtTzQxRG5XT2NyazNpSzB5Y05mbVI1Z2V2ZGxCMDhZd0c2UmVR?oc=5) |
+| 4 detainees remain unaccounted for following unrest at New Jersey ICE facility: Officials - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPXzZiaDhvYWxqZEkwTW81Rk9VVkE1dWEyQVhLTnhZdjEySWZKOWJWNE5tYlk1QWI2b3hCU3hFSlVYbUhKdjRBakp5by1DME5UbGJla1dfUDZqWkxHN3ExNXdaWUJrVTFWeEdncEtnRkVXb0ZxVE0yYWxqenpmbkVzUm1GVXlUd0xjWnJRbDRyTDlZTU3SAZgBQVVfeXFMTXd3T0xtTno1T0FjVElEdm4xQ2I3R3RMQ3dDSFFPR1lvZnFTYnJES2hpdC1HZXZPcWpha3dDRkpTd2Vub19ZZHlvQmxwNEFqdncydnFBYlFzOGItV282Q1pZdkZmbG1yWWttR1ppczFfbFpfQy1NQVZ2Wk50MjdCQmJJTGdKbVdPRHVMZjRBWGJSQWRDZGJ5c1E?oc=5) |
 | Mamdani and Lander Cross-Endorse Each Other in N.Y.C. Mayor’s Race - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNZFR2N2pleHlTMzlNc0hMMHk0dGU5UlR4MlA5NmktX25sVUNDZzdESDFhY0N2aGs0dzA2V2FmMVZBQmtJZklYQk43V1dQYWJteVVPNzBhd2RJR3hjS1hkU0p0eDNQMV93RmJHMU5ZeUdSWkNOTmQ1alQtRF9JeEVxbUdkTXhKVS1IM0thN1FR?oc=5) |
 | Photos of immigration protests spreading across US as Trump mobilizes National Guard - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQZ2dEd1FzRFp1cXhFdl9DbHIzQm1qY2VzRmIzLXFiZEdwM2dNVHNfbURoMWNkUURkMTZISElwRnJXT2dLTEstQ2dHNmtRckkxamlwd1U4YncxclJHSWR1T0xfX1NvWXNQSnkwN3kyTVFyb3VlNFl4YjdyNlZzc3hZQWN4d212dVR4WkZBajQ5OWt3M1NYa0lGeVdfQ0EwOFJMeFE?oc=5) |
-| Commentary: Sen. Alex Padilla’s crime? Being Mexican in MAGA America - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQeXpJN3F1bEhVYS1WS1k3NU9jV2dMSG5jYkFOZGNBT1F3QURmbDNyNXNNTGtTcm9KTWxQU3VOa2txbXNuWlJXcGhob1h1UHRmdDNJMi0wWHNESmNOdGRTOEtCZnRPbGlmOWgtZGFPQUlTUFdfcWFJWmxmN3ZXMkM3ak9JOHU0TzFwSzh4Y2RnYkliUDZ2R3pkb2hEQ0VlWUswX19ISXJtY2w?oc=5) |
+| Kilmar Abrego Garcia pleads not guilty to human smuggling charges - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOOG1NOUpVUWVUak5hYkFIemxLa2hZb2NwdlR4eWZvRUF2YW5hRjJIWTJZU3JaWmJZYlFMVkhwSXNkQy05Wm1PX0VobjkwdXBrZU5VaWNYb0ZZX1JiZ0RJVk9ialBsWFBWQVRNeml0MDI5QXE1V0s2bUExWHRFNjRsTlpYdW51UVN3SHRUbXMzRTMzeGNTS0NWYW5ab29rY28xZVpTQmdpeTIyT0ZjYmZj0gFWQVVfeXFMTTRwbjJTWlFUdjZHM2UtY0tlNGszdEFySnM4ZTloS3FEUVliWi1zOHA4WnZVeFM4blZRTjc1M1NxbEtuMXJ6Mmsyb3RFanFvZ1pzODAwNFE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
