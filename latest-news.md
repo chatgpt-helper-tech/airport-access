@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月13日 11:27:35（北京时间）**
+🕒 更新时间：**2025年06月13日 11:39:32（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Air India crash: What to know about the first fatal Boeing Dreamliner tragedy - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPRVp2akZpT1daRHBqNGd1UUlVOXRWTXU3ZGliR3JwM0NUakdwdWpFT0FEc0h3c3pJb0VzWnpCQUdKM1V1bmFNYno4aE9GNmpsVzAza0lCWjJuUmg5WDBkdi04ZUVpUFF0Z3ppYktWdktvTzRHazhGYk50a24tWm1PUzc2al91U0x5QXp30gGQAUFVX3lxTFBmTnk4SXhnYXM5VUdBOG45eV8yOU9VMGVQZFJ3Vng1U0NVOFNaQ19lY0tJN0lzR3RQU05uZzhNVDNPUHZGRFZ0ZFlTVTV2ZUd3QmM2WHktOXdZbUYyUmJWdjN3NTM3Wlo1MTJSNmNPakhIazZlZFdycldNQWZGM0xqQm5xMjZvV2tPTU5oQVB2bw?oc=5) |
 | Six in 10 of U.S. adults say Trump’s military parade is not good use of money, new AP-NORC poll finds - PBS | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxPUXhNMGhXZm9aV2lDa1o2TF9oaDBLLWNualhQcEZJb09tSnl1R3JvZXBvOFIwYWd5V0ZNTEdUOVZpSmpoWEdzUVVza1p5eUJUb2NnLWFOSlRGb3lHNnZjdzZoRVRhU19PSDhZakN3bzRtYUw1V2dOck1QR3ota3VYTlJMVUs4ZXlySkh2UEJSVWdLajNWcUVpMmZWMWVUMnlTdVQ5MHhLYnljYWRxcU9hdmZmUzFwcng1NHVEUVpfT0lPTnBhNlptTEFIUE04bFc4Y2fSAdcBQVVfeXFMUFhzMGYxemtfb3UxeEdraHlEWGZBbFQ4Ty16WXNrbS1OMElBcFBlejctQzE3M3JVc3o3NGdFdlhXVTk2ckZscV90Z2pQWUdyOFFRdW01S1BLdWFMWGJZRzVwci1zdERHUmhCZHJuVXRvdDRsSGxkZ0RMVWhEN05MT2JYV1Mtc0NnVVlnM05iZ3VCTDkyaWdTTW1QQXJUcmE4TEVhSWVKYnJJRUFPRGtjcTdJNFl6WHRHTWJIbHBjRHI1Q1pIT1RLcEFsakI4UXpCTGdaQ19YaEU?oc=5) |
 | House votes to claw back $1.1 billion from public media - NPR | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNenNMWU5GN3c2QURSV21OdExXeWtlNE9kSlBkeHBPOE91dTlqQU1MTjNhOERoVGVhcVlpUGFTOGlsbHF0TjhvNTIzeDNLdkU4WS1kZkRza0VpVVVESUFqaExCN0Nxb01zcWRkbklkZTZFS3czZWtfQm1ydHVzaVd4NVNTdWo5QjN1dmxtRkJ0UHZKam1iR2c3SWM2Z0Z1bWJHWW90VUdkSDZuSGFySVE5YWJhVnp6S00?oc=5) |
+| "No Kings" protests target Trump in Columbus, nationwide - Axios | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOb2lDZnBYb3UyMm9iVXpKUEc1elk5UjFFSFBTM0h1aTBvMkFzRVp3UmJ2NEMxd25WM0JHSHZoX0l5TFN4cWtyZXpFNHFJVl9NU2xScE8xRW40RWE4NTFoM0F4anY1ZlQ3Q1JxbzhtY1RYVksxRmxCMUQxcW1tQXFReDNTYVN0QlVYNGdzQ3l3b0tpVTBCV2tz?oc=5) |
 | San Antonio flooding leaves five dead; dozens rescued from high water - Texas Public Radio ｜ TPR | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQcUpKN1M1ZDE5V3QxV0J6ZVdVclpzdzc4QmZCYkQ1V2lpR19aXzliMmJoZVZuOF83WGlCWHJWUXlmUVRzX0psdi1qWHFNeTU5WVNEdkdNaEVEN2phTmZGY0JDUVptNVJXMjdMc2hqeHh1RlU1c0RxYXMwbV8td3lTaHF6N2ppSHIyNUNuTGdVMnMtSFVGVjg1WnpzTkNlSDNJZWpQTGEzcWRFWDh1dEFrdQ?oc=5) |
-| Trump, Who Has Likened Himself to a King, Bristles at ‘No Kings’ Protests - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPc2lBRmxIektyRnoybGcwbGE5TllfanhleGNBT2RrclViZnIybEU4U3V2Y2VsQ2lsWDdVY2xkczV5bkFsX3FYMFctdC1XWUc4NE1rUlZaOGdlb0hVVmtEeGVUQTJoeGlJU1lFYU84aTR4RVU4dWQxeVFkTG5uTjFjaA?oc=5) |
 | Denounced by GOP lawmakers, blue state governors defend immigration policies - NPR | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxQajlMalVwZk9abE5pcklQajZTN1BVY0RmOXhOOEJMVGpsMXE1LVZad1hMVUd1eWs2X3NyYmlwczJRZFdoUVk2aUhoR0M0dlVfVXhLZ01NMjVFQUdob1dWZ3VVbFBRUnAyTVNHQ0lmZGI1VTFnRFFhNWdsaTUxeWNua3RuQk1iRDIxQUNHOGU5b2pjYm5yeHRYaU1jRDhLRTlHZEw1YlBPRXlHSVhOZldYOFF6UkQyQ2hxdU16Uw?oc=5) |
-| Russian Scientist Released After Four Months in Federal Custody - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOdHZSczF6dHdwRVJLME5UeEwtMUY2VjhwMWFTWjZQcGEwVFQ0UlRfX2hGMWFRZXFLNC0xNHJmcFVOLV8yOG45dGJfNFBoRi0tMmlDYk9LSGJTMDQyNGtjWFhRVXV2TFZTSlJ0YU9Pa1lBVng2RUpZMG9uWW9PM0RuOGxtaG1vNkNn?oc=5) |
+| Tensions rising in GOP over Trump border plan as Rand Paul squares off with Stephen Miller - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9mb2tTRl9uN0o5Q1ZNdDFNT3JEUWZLU01FbU5tNDh2NmFxNXF6b0NjdzBnTFFsT2dxOHp4WEF0dS1TRWNGWDRFcmdTcm9KcXNuZkQ5V05naHlORnhPSkFzUHhkN2l0TEF2WW9qTFI5NXlIV2hQeDJJY2ZsMNIBgAFBVV95cUxOU2pONGVrQ2VNVVB1cWp0N3VnLW9QUzU2VFNMNjI5QVJ2UHJJTi13alQxb0ZKSmZ4M181RUpUNHllcVZYUVNwY3c0UXdwUjZSUEdqLXBxOUtteHJsVmtiOWt4c0txYTNrOVA3QUJObEZPZ01TNUtUdzRWMjN2UEdmWQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
