@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月13日 19:39:29（北京时间）**
+🕒 更新时间：**2025年06月13日 19:53:25（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | Watch: Footage shows explosions and buildings ablaze in Tehran | [阅读全文](https://www.bbc.com/news/videos/c20qw0xjp10o) |
 | What we know about Israel's attacks on Iran | [阅读全文](https://www.bbc.com/news/articles/cdj9vj8glg2o) |
 | Grooming gang guilty of raping and abusing girls | [阅读全文](https://www.bbc.com/news/articles/cdd2rld9mj2o) |
+| 'Traffic saved me': Student missed Air India flight by just 10 minutes | [阅读全文](https://www.bbc.com/news/articles/cvgv26zz5wzo) |
 | 'I walked out of rubble': British survivor on how he escaped wreckage | [阅读全文](https://www.bbc.com/news/articles/cd901xn4001o) |
 | Misled and intimidated: Caravan owners say they felt 'bullied' by holiday parks | [阅读全文](https://www.bbc.com/news/articles/c2016lxnepno) |
 | 'My kids are the reason I'm alive': Backstage with Shakira | [阅读全文](https://www.bbc.com/news/articles/cn056ky4d00o) |
 | World-first blood cancer therapy to be given on NHS | [阅读全文](https://www.bbc.com/news/articles/ckg4kj2nxjgo) |
-| Private schools lose High Court challenge over VAT changes | [阅读全文](https://www.bbc.com/news/articles/cy0knd76zrzo) |
 
 ## 📰 Google News
 
