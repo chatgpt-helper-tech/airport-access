@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月13日 11:52:16（北京时间）**
+🕒 更新时间：**2025年06月13日 12:01:32（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Israel conducts airstrike in Iran - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBsbHF3WlF6V1pYd29GYXdNLUVQcHYxRzMtQUJlZzNyMzFaVC1hMl9VUDhjWHZfM3k2QmptSVZzQ0tRZHltQXNVa0FPRUN3d1NOZEFsMWthb19yRDRfTFJMeGlwMEtMb1Fmd055VGdNTXp0Q0xfM1ZqRkdOdw?oc=5) |
+| Israel strikes Iran nuclear facilities, missile factories - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOLTlzeFR3MGZ6Q3I0bU5iSXdpTmM1ZkIyVHI1R3BxekdkTlVNNmFpRTR1aXVsdW5tektyVXE4Q3NkNmQxVWs2MDFIOVJYRDA3QktqNkR2NzRNQTZaU0pTX3ZjaGFldXVhZW1PbGNPck1IS0duVXcxaHd4MzRXYnVfQVZUR2I2U0c5UmtNd2lQWmxDOENvZ3BVMDk0VzZsaUl3MGFreHZ3?oc=5) |
+| Calif. Senator Forcibly Removed and Handcuffed After Interrupting Noem - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQaGxqQVlfQnc5c2ZPQzEyUkFWcWloMlZqZFdkeXNHZTFnZ3ZqTzBjYm5QS1JPcDlQQ09od294UnJ0ZkZJUWpuTTY5cFlFc19rLVQxTXRTeG1VcnRLdXdQVFBYTktKWDFfYUlpTWE0R0Y2OUgzQUpYYlo2Y1hkVW1OSFZrTGpQVU11Wmpn?oc=5) |
 | Trump administration blocked from deploying National Guard to LA - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFA3QkRZTHJ1UVdieFFqX2g3VDhRUU10X3ZrQXdXMC1QR0hrcHBiMm1UVkFFaG1yMm55dnItZTlzSmhzNU9KWFlSM3JUUU43ZmNDSnhCcnRLNXVTQdIBX0FVX3lxTE9SLTdSVGpyNVprZTZQVHpUVVBoUWxhTHVhYU8taS1BcnI1ZmJFZlNqdHRYZjVkOXJmdS00eldQMlBnZ1ZCRE80VUo0dHJYX1pYVk1DRnBqQWVJSlNSbnFz?oc=5) |
-| Senator Alex Padilla forcibly removed from Kristi Noem’s LA press conference - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQcGd5akVhcGxqNlAtQWtGVEZrTnhjZ1pSelc4OTVRRUZ5eGdHUzJuZ0tvZGxWclRVZFMxT3dtUmZhYU14aFppd1diWmZJbmI1VE80UGU1R0ItSmp1NnM4RGNpc3JLcXpLQlBnMzlvdTNORlV4MkNYemdqXzBhOG93dGQyeWM1amViNEx0dC1URG0tVVFjam9zeQ?oc=5) |
-| ‘I Don’t Know How I Am Alive,’ Air India Crash Survivor Tells Family - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPMDBJaWVQZlpIZjVGaUpDbVc3RlNkSWRZWUM4YXJVckVMQTNlakI3dlBXc3BBX2pIYS1oQWR6b25LNFFXMXU3cnE2VzQ4OGRXemExcHl5RGdfR0dRN0o2dmx5cXRzTUhmZ1F3SUcyY2RJQTNQSm9ybFhaZ0R3bGtIaEVyaGRDd095Y3BRbXB5MktmNTRO?oc=5) |
+| Air India crash: What to know about the first fatal Boeing Dreamliner tragedy - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPRVp2akZpT1daRHBqNGd1UUlVOXRWTXU3ZGliR3JwM0NUakdwdWpFT0FEc0h3c3pJb0VzWnpCQUdKM1V1bmFNYno4aE9GNmpsVzAza0lCWjJuUmg5WDBkdi04ZUVpUFF0Z3ppYktWdktvTzRHazhGYk50a24tWm1PUzc2al91U0x5QXp30gGQAUFVX3lxTFBmTnk4SXhnYXM5VUdBOG45eV8yOU9VMGVQZFJ3Vng1U0NVOFNaQ19lY0tJN0lzR3RQU05uZzhNVDNPUHZGRFZ0ZFlTVTV2ZUd3QmM2WHktOXdZbUYyUmJWdjN3NTM3Wlo1MTJSNmNPakhIazZlZFdycldNQWZGM0xqQm5xMjZvV2tPTU5oQVB2bw?oc=5) |
 | Six in 10 of U.S. adults say Trump’s military parade is not good use of money, new AP-NORC poll finds - PBS | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxPUXhNMGhXZm9aV2lDa1o2TF9oaDBLLWNualhQcEZJb09tSnl1R3JvZXBvOFIwYWd5V0ZNTEdUOVZpSmpoWEdzUVVza1p5eUJUb2NnLWFOSlRGb3lHNnZjdzZoRVRhU19PSDhZakN3bzRtYUw1V2dOck1QR3ota3VYTlJMVUs4ZXlySkh2UEJSVWdLajNWcUVpMmZWMWVUMnlTdVQ5MHhLYnljYWRxcU9hdmZmUzFwcng1NHVEUVpfT0lPTnBhNlptTEFIUE04bFc4Y2fSAdcBQVVfeXFMUFhzMGYxemtfb3UxeEdraHlEWGZBbFQ4Ty16WXNrbS1OMElBcFBlejctQzE3M3JVc3o3NGdFdlhXVTk2ckZscV90Z2pQWUdyOFFRdW01S1BLdWFMWGJZRzVwci1zdERHUmhCZHJuVXRvdDRsSGxkZ0RMVWhEN05MT2JYV1Mtc0NnVVlnM05iZ3VCTDkyaWdTTW1QQXJUcmE4TEVhSWVKYnJJRUFPRGtjcTdJNFl6WHRHTWJIbHBjRHI1Q1pIT1RLcEFsakI4UXpCTGdaQ19YaEU?oc=5) |
 | House votes to claw back $1.1 billion from public media - NPR | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNenNMWU5GN3c2QURSV21OdExXeWtlNE9kSlBkeHBPOE91dTlqQU1MTjNhOERoVGVhcVlpUGFTOGlsbHF0TjhvNTIzeDNLdkU4WS1kZkRza0VpVVVESUFqaExCN0Nxb01zcWRkbklkZTZFS3czZWtfQm1ydHVzaVd4NVNTdWo5QjN1dmxtRkJ0UHZKam1iR2c3SWM2Z0Z1bWJHWW90VUdkSDZuSGFySVE5YWJhVnp6S00?oc=5) |
 | Trump, Who Has Likened Himself to a King, Bristles at ‘No Kings’ Protests - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPc2lBRmxIektyRnoybGcwbGE5TllfanhleGNBT2RrclViZnIybEU4U3V2Y2VsQ2lsWDdVY2xkczV5bkFsX3FYMFctdC1XWUc4NE1rUlZaOGdlb0hVVmtEeGVUQTJoeGlJU1lFYU84aTR4RVU4dWQxeVFkTG5uTjFjaA?oc=5) |
