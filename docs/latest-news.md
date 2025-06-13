@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月13日 08:40:58（北京时间）**
+🕒 更新时间：**2025年06月13日 08:53:42（北京时间）**
 
 ---
 
@@ -8,16 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What could have caused Air India plane to crash in 30 seconds? | [阅读全文](https://www.bbc.com/news/articles/c626y121rxxo) |
-| British man in seat 11A is only passenger to survive India plane crash | [阅读全文](https://www.bbc.com/news/articles/ce3v6drp96zo) |
-| Who are the victims of the Air India plane crash? | [阅读全文](https://www.bbc.com/news/articles/cdd28legnzvo) |
-| Air India plane crash - how the day unfolded | [阅读全文](https://www.bbc.com/news/videos/cx2q3z716v9o) |
-| What we know so far about Air India flight AI171 | [阅读全文](https://www.bbc.com/news/articles/c5y5nq170z4o) |
 | Masonry thrown at police in Portadown in fourth night of NI disorder | [阅读全文](https://www.bbc.com/news/articles/c20xrq9vzz7o) |
 | Legal win for son tricked into moving to Africa by parents | [阅读全文](https://www.bbc.com/news/articles/clyg0p88z83o) |
 | Misled and intimidated: Caravan owners say they felt 'bullied' by holiday parks | [阅读全文](https://www.bbc.com/news/articles/c2016lxnepno) |
 | Thunderstorm warnings in place as drought declared for millions | [阅读全文](https://www.bbc.com/news/articles/c14k6vp62zxo) |
 | US senator dragged out of LA immigration news conference | [阅读全文](https://www.bbc.com/news/articles/c5ygn48djrko) |
+| Reeves refuses to rule out tax rises after economy shrinks | [阅读全文](https://www.bbc.com/news/articles/cy5e6ly9qq3o) |
+| World-first blood cancer therapy to be given on NHS | [阅读全文](https://www.bbc.com/news/articles/ckg4kj2nxjgo) |
+| Dua Lipa confirms engagement to Callum Turner | [阅读全文](https://www.bbc.com/news/articles/c3d4jlgpg30o) |
+| Frank replaces Postecoglou as Tottenham head coach | [阅读全文](https://www.bbc.com/sport/football/articles/c15n8wv2yq8o) |
+| 'Masterful' romance novel wins Women's Prize for Fiction | [阅读全文](https://www.bbc.com/news/articles/c93yz7glw4vo) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | Russian Scientist Released After Four Months in Federal Custody - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOdHZSczF6dHdwRVJLME5UeEwtMUY2VjhwMWFTWjZQcGEwVFQ0UlRfX2hGMWFRZXFLNC0xNHJmcFVOLV8yOG45dGJfNFBoRi0tMmlDYk9LSGJTMDQyNGtjWFhRVXV2TFZTSlJ0YU9Pa1lBVng2RUpZMG9uWW9PM0RuOGxtaG1vNkNn?oc=5) |
 | House Votes To Rescind PBS, NPR And Public Broadcasting Station Funding - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE96UVJEN3REZ09kaDhiMTdtZVBPWVVJN245Vk9uNEVrcDZnaUw3Vk1zcHFRMTNRZGtnU2dMLXdCS3cxYlY5dUdreUlMMmFmMWhrZHZ1UldwWVhTQk5HQUdEME5ud0hfTDRGYkJV?oc=5) |
 | Here's where "No Kings" protests in Central Ohio are happening on June 14 - Axios | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOb2lDZnBYb3UyMm9iVXpKUEc1elk5UjFFSFBTM0h1aTBvMkFzRVp3UmJ2NEMxd25WM0JHSHZoX0l5TFN4cWtyZXpFNHFJVl9NU2xScE8xRW40RWE4NTFoM0F4anY1ZlQ3Q1JxbzhtY1RYVksxRmxCMUQxcW1tQXFReDNTYVN0QlVYNGdzQ3l3b0tpVTBCV2tz?oc=5) |
-| A Night Out for Trump at the Theater, With a Pocket of Dissent - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBSTlJZTEdDX1hxWVBsTzNkQkRCVlFpYjBHRmI4RTFVNzFKODF2SHJPT2ZrWHk5YjEyM2hhRFlKeVExaFpXZlFpMW9UXzlGaDRoWlMwSlMxQVlQWDBiaGp1U3RTVDlURXcxbnYyOWEyUWlUSXRMVXRfLVpndmc?oc=5) |
+| 'We live in response to a monarchy': Judge appears critical of deployment of National Guard in L.A. - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQeDQ4WTRiMWh5MlFWMHZVSEhldzNkMWdLQW5sNHBOb3BLOWJ4a3ZiX0EySGlTdWRPczVpZDRYVnZKQS1SYmstTGZsRzZCY2xLbWhjaDNoSFM2NkZ3U29VOE1zR25qaGpucDVXTWdWY1J4OW42VXUyeWk3MXU0MGtlOVdjMkJJdjdIMFlfRWMxSEl4UE1qVG9YWE9nekRWY3hSSENVbktEZk1fUEZmamttaklObmRhV3JsV0s4U3NYZUx3dw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
