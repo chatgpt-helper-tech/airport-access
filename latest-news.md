@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月13日 16:52:03（北京时间）**
+🕒 更新时间：**2025年06月13日 17:00:17（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | House Republicans spar with Democratic governors in tense immigration hearing - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQSGhkTGg0aEhfaXJTTF81Sk9RU0tuRDBneDYzb1VhZFFJRGJuNkZnVE1PUXhyQkRPdm84UkM4eUwxNXB4bnhNMm45R0V3bDRtSUhNWS10X1NNOHVqNDVxQUc4NFZ4ZFlSaE5nc2d0Qzdza1RzTHpCeVJsamhlVUs4T19rMEY5ODNNdDJWM2ZKZGlOT3NYZzVia0w1QXc4NUM2TXhza3JCNzBwa05MaHFNclRPTWExZzRwWE41dUk3a9IBVkFVX3lxTE5kMVlERHptc0s4bl9TOVVfM0VOQ1VnWE0ycG5Xek14Qml2V0NyUXpzNERwaENTenk3U21DdGl5V3NLTnZkLUZucUdHeXJsd3JDOWp5RDd3?oc=5) |
 | Oregon’s Bentz joins House Republicans to approve Trump request to cut funding for NPR, PBS and foreign aid - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE11X3kyMERUZWF5Q1NhaU5RNm56ZGsxM2VheFJJVGp4TDcwOVN6WnBkeWhNaHJtTHJCLXEtc0p1ZFBUaW53Z3dCS25GX0tVd1Y1QjViOGY1TFoxbXp3NXhIaGNWTUlfZy1lT0YzUzREMzlaR0xFWHV1OGRR?oc=5) |
 | 13 ‘No Kings’ protests planned in Alabama as Trump hosts military parade - AL.com | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNMUJIVm9BclJrWWtlVkEzN2dZdG41SUs4LUt0SUt1SzVSSEhRMTNHcDB6RVlKeU5RbV9qeUEwS3RsdlQwWnE2YkJaU2Z5ekxaVHFaZFFyckpoU3BmWnh0VC1lS0VHaEtiNWw0T0tQTXF5LWJ5TExCWkc4dHBhbDF3aUt1ZWJFSkVLMGpmc2lpOFFCXzJKemZFc21fMEVVZ3RDaXpTdFVPWjNuLXPSAb8BQVVfeXFMT1kyM21mUTdnamZMMGhncHZBc3p2SjVxUEhjUWktOUpWbk85bXdsd1hNYjh3ZERkOV9TQzFDQmIwMGF1NnpUYkM5azVhM0I3M3M5Vng2enpuR2JVWEZ6VUJQdVhxUWl4cV9KVXdkNXIyN2c3cXl5ZWdYUFpsTF9YM0JVMmxZVkJwYURITnlXck41TVF1eS1jVEJmZmtzWTNldUhIVnAxb0FGSHkzZHVzbnpHVUwxbm1NZXZrY2FDVW8?oc=5) |
-| San Antonio flooding leaves five dead; dozens rescued from high water - Texas Public Radio ｜ TPR | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQcUpKN1M1ZDE5V3QxV0J6ZVdVclpzdzc4QmZCYkQ1V2lpR19aXzliMmJoZVZuOF83WGlCWHJWUXlmUVRzX0psdi1qWHFNeTU5WVNEdkdNaEVEN2phTmZGY0JDUVptNVJXMjdMc2hqeHh1RlU1c0RxYXMwbV8td3lTaHF6N2ppSHIyNUNuTGdVMnMtSFVGVjg1WnpzTkNlSDNJZWpQTGEzcWRFWDh1dEFrdQ?oc=5) |
 | Harvard, Trump admin clash over court protection for foreign students - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOWlRSQjVWWTc0dlZrQWJoZWZYVlJ2VTJhQWxGcWpLd1VUZGw4aDlDd3EwaDI2ZDFoeDg0UGlmb2s3Q0NNaWwtQTJyV1NDZDItZnRxeHVyN2V1ZlJQcElDWU8yNnl3R0F0UGczLS1GRzlwQjUyQlRfQWRRMlhyZncwVzZ3eTVGZW5ONktDZDEyQktyR3VYQ241dzNTNA?oc=5) |
-| ‘I Have Never Had to Resign in Disgrace,’ Mamdani Tells Cuomo - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNQURnSFFTVUJKRzVNZjFPdWV4eGxHU0NKYmx4ZmFnc285YUFaejAyLVZaUjJvZVJuZmpoU0luMU9nVzZvS1FpT2M1Qk84SEF0cFVzRGVmSXRKMEwwdUpySmtkbnRYalA0emdDYVdmSTRwTS04SG9JT2R3TnZpRkhtV1RlMGI5Zw?oc=5) |
+| 5 Takeaways From the Debate for N.Y.C. Mayor - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPcXlsQjZ5SzBNN0MybmR4THZZN3BJRjU0S09ORVlnY3plbmR5bWs5UFA1dlZfYlpLc1U3WVVNZG84aG9Oa3JKbkZ4ZUctSXRoc3ZXNmNlcndWajVHbGFJR2ktZVRoSkh6aWdWbllNaUdFbjQxM3dxbUdYX0xxcXhrYg?oc=5) |
+| Trump signs bill blocking California gas car ban plan - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBLdlowbGZZM3Njbk5GaWlGczlvd3ZqczJ0TDdieW9VNzQtZUJGNkhxRHhnMmNFdnpraTh3dWl3MVpJTVYybVhkMDZxNjJXbkRrd3RuTVcweS1vQjhST1lVYlJyOGN6T0dBdV9sV01menpqVzFmbVE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
