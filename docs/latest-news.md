@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月13日 14:14:39（北京时间）**
+🕒 更新时间：**2025年06月13日 14:27:48（北京时间）**
 
 ---
 
@@ -8,10 +8,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Hossein Salami, Iran's Revolutionary Guards chief, killed by Israel | [阅读全文](https://www.bbc.com/news/articles/clyg0yywr4no) |
 | Watch: Footage shows explosions and buildings ablaze in Tehran | [阅读全文](https://www.bbc.com/news/videos/c20qw0xjp10o) |
 | What we know about Israel's attacks on Iran | [阅读全文](https://www.bbc.com/news/articles/cdj9vj8glg2o) |
 | Analysis: Israel chose to act now, whether Trump likes it or not | [阅读全文](https://www.bbc.com/news/articles/cwyw04x1kqpo) |
-| US says it was not involved in Israel's military strikes | [阅读全文](https://www.bbc.com/news/articles/cm2kd2k3mv7o) |
 | What could have caused Air India plane to crash in 30 seconds? | [阅读全文](https://www.bbc.com/news/articles/c626y121rxxo) |
 | Who are the victims of the crash? | [阅读全文](https://www.bbc.com/news/articles/cdd28legnzvo) |
 | World-first blood cancer therapy to be given on NHS | [阅读全文](https://www.bbc.com/news/articles/ckg4kj2nxjgo) |
@@ -32,7 +32,7 @@
 | Harvard, Trump admin clash over court protection for foreign students - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOWlRSQjVWWTc0dlZrQWJoZWZYVlJ2VTJhQWxGcWpLd1VUZGw4aDlDd3EwaDI2ZDFoeDg0UGlmb2s3Q0NNaWwtQTJyV1NDZDItZnRxeHVyN2V1ZlJQcElDWU8yNnl3R0F0UGczLS1GRzlwQjUyQlRfQWRRMlhyZncwVzZ3eTVGZW5ONktDZDEyQktyR3VYQ241dzNTNA?oc=5) |
 | Cuomo and Mamdani tear into each other in final New York City mayoral debate - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPNjJIYVFWeUhSd0pQRm4zY0dJd0Z5REpoanIwOENhZVE2YUdwYjFET1phMmxjdVQ1VzRtdklQTUd5VXRCZU1NMTRqUzIzdU56MnFjN0tNMVRaRHdQLXBocVV6Sk1QUVdxTXZFR1ZoQjNHdTRyUWYzdEJQWEpuSENfNW9QWjVaWEpoWGl2Ml8waU7SAZYBQVVfeXFMTWt0ai04bjVFeV9XQ1hyLWVSYzgySlg4NEl3MW8yWm1yaUdrc0MtSThnSkNCVzREZGJxV0JlaGllVmpRUVZBb3FhNERpZGZmRDRnaG8yYTJWVFlHbmYzUmZEZTB1c1NKdkZ2ZFg3UFdYYVQxVXlRVFhMQWJIeXZoUFBtaEd2NVZBdnNrcjY3cllueDAzeF93?oc=5) |
 | House Republicans spar with Democratic governors in tense immigration hearing - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQSGhkTGg0aEhfaXJTTF81Sk9RU0tuRDBneDYzb1VhZFFJRGJuNkZnVE1PUXhyQkRPdm84UkM4eUwxNXB4bnhNMm45R0V3bDRtSUhNWS10X1NNOHVqNDVxQUc4NFZ4ZFlSaE5nc2d0Qzdza1RzTHpCeVJsamhlVUs4T19rMEY5ODNNdDJWM2ZKZGlOT3NYZzVia0w1QXc4NUM2TXhza3JCNzBwa05MaHFNclRPTWExZzRwWE41dUk3a9IBVkFVX3lxTE5kMVlERHptc0s4bl9TOVVfM0VOQ1VnWE0ycG5Xek14Qml2V0NyUXpzNERwaENTenk3U21DdGl5V3NLTnZkLUZucUdHeXJsd3JDOWp5RDd3?oc=5) |
-| California, 10 other states sue to block Trump from killing 2035 EV rules - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxOMENxZGlGTDdjeElGRUhsU2toQ0ZPSHRROU1MU090dktGTDl2a3Q0N0NETzVrS0hfMWFpcVgxdG12cUIyMFB4YkJJSElyNWl1T1NmbmRZeFdzV1N5cEpVeTBSOTVCdTJmMmExTnllVVFycXNBYWE5N2s1ak0zR1dYRDRrVzRtZ19hSFBBSE9NZWVUc3FpZHhxVUlKOVM3WEJvN25WenpVTmFfeGxTYmYxZGFUN3d3ZTdrazFqTFk3TkpVWDFZM3hfSTZn?oc=5) |
+| How thunderstorms could disrupt the massive Army parade in D.C. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNZmN3enRFNUZoNG1oUTV1cmIwZFVvVnZpbE11R281a0xjamFzeTdiZmJ4a2U2WGJ4YWdqcmxPejZuOXRNNEtWc3d6R2lhQzlma3VjQVM4RlVhZ0FtOVpBeEg5RzNpZFZlNHpVYmlocU5JUWlpUlJfYTlWSkY1a0pId3B5TE9RLWdKbVZXSUpGd1hDQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
