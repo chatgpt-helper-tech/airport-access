@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月15日 02:52:59（北京时间）**
+🕒 更新时间：**2025年06月15日 03:01:15（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump’s case for sending troops to help ICE involves precedent from Fugitive Slave Act - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQQ043QkdteGg0ZWdDblMwVzMtN2FYSVpvQ3F0bjJsQlQ5M19KNWk1MmNHc09TcTRRdU1FMTJOd1JuWGdJVmZ5Ri03NWhCQ21YN1ROZFJrbTEySnQ0WlYzSmpfNDhQMjA5Y1BNNDVYQy1XQ0FTT3JvQkN1WVRXa011RTJVV0dfN2NDQWhhallNS2EzX0t0RUhFQUUyMWtURlZlSjJIWDFMbng?oc=5) |
 | ICE ordered to pause most raids on farms, hotels and restaurants - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOT3BZTEdxMVpva3FuX3h1VC1TWTQxdXdvZ3JWY3p5am5ianlRLWRSZGE1U21GOHg3TXZlRlNBRklQaklFWHl2RU9vWmN5bk5BNDhYcVRFMnFOT1FtTEtUNkVac3FxdVRvdmpmYjNUQ0ZMeEIzUlB6SmxMRVh2N2p1TlFoYVlBTC1TQm9TYkkxWnFJU29zUmlzcmdUb1VCZnBacTFUU3lXcld5WGpJU2ZmUUJHMS1IZW8zazB3?oc=5) |
 | An old Capitol Hill troublemaker is trying to clinch a megabill deal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNUEZlRk1ZMDhaM21nZ3ZiMkRqamEwN3NXdmU3eGVGNUlSd3pVUk1EUG1lQVE5UE1KUXhzV010Rk9BT3g1cUM5dl9oR0wwZldBY1Rwbkt2dGVvVTlkX2hpci1BSF9WWUpPb3ZiVVlwOTFKQ0hhbWotXzIxUlhOOHoxaA?oc=5) |
-| Will the US get drawn into the Israel-Iran war? - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1nYjd1cjJPMGFxc3Q0SFpTMkRLRjdLWGNHcUhDckpONWZzd3RiZ2xXd0xPZURTMWZzMHY5UnA0a3UzWkxTd3JnYUF2VnRnMDlZenZtTDRtSlJUcExDbFlaZnk1T1RjZnREY25RdmlQOTJzWlEyb3c?oc=5) |
 | Michael Madigan sentenced to 7.5 years in prison for corruption convictions - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPVS1ZNXpwNm1PeWtHdnFhYlgyaUMtVU1aeGNIcTdBa29JMTZLT3Q2amlyN05TcmtJTkZVeHpFS2V5TUh5dlpGQ3o3Snd5bXpXMmd0VWl2WEFkcUlWQUxlbEFxQmFzV2VVbDY4SldGOHdXdXNkYUQ0X2xyUnk2VVRfMzJGODNIMHc?oc=5) |
+| India launches inspection of Boeing 787s after Air India crash - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5yZXJwOWVxMHlnTWkySEpMM1R6SlFZX3VlRGltWkxhbGdRV2pRTkFYN3l6MkhMTmhGaGIyRVBzTVQ3OHFzdmhxNXpULU91NnZoMktQM0I1bVl4WGNodEhzS0hhcWlpdVRGUVloaVNyUGxvNzBfc1FnWGVkUDVXaHfSAYQBQVVfeXFMTVZNS280MjRiTDFHOTBkTjFiMW9zNlZjTFFNa2h0Z21RZnhZZERSVURQeVBQbHJMM3Z0OVR3eFdaMy15bTdJMTNFX0lvRG1uUENCWExBT1BtcjhoRmtzU2Nfd3VqRWlTWjJvdENEeHBrYXJaTkJ1OGtFUkxubk91Q0hVMEt2?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
