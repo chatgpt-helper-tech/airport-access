@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月14日 08:14:31（北京时间）**
+🕒 更新时间：**2025年06月14日 08:26:04（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Tel Aviv Hit by Iranian Missile Strikes in Retaliation for Israel's Attacks on Nuclear Sites - Live Updates - WSJ | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9mcXRITk41WGZWTEdiQ2xlV1czVDV1LVd0a1dyNVFySnc1NU1NeTA3Zk9wUnU3NkV0SHZSb2FwdGpvbkhTZU5veVI0VzNQQWplek5UWHZyUW8td2xXRThSanVDR0dBQm5fYXp3Yg?oc=5) |
+| Israeli strikes back Iran's leadership into a corner - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNUVBaTkhvc3NVeVlOUDE2Qzg4VllDREQzUmNndEszbWFZXy1qSU1SY2hObExxRkJ0dDBLdk1oNW00M1k2MUE2OXRSUm1lNnNBZ1E5clRFU19uREZqcWdza091Q25VMlpZR3pyeVJOYlZENk1ocGhxRkVqZ0NORXl4UDZsaWZFTkFkMHNzckRFMTlGZEtLM1NJR1hYQ2p4bHFhV29EVlNn?oc=5) |
 | Indian authorities begin investigating Air India crash in which 1 passenger survived - NPR | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE8wYkUtUnBqYmdhOVpTVGtQeGNmbEo2Rm1MVW91eTI1SkpnSDBSUVhJNHlpV3M4enBCSEZPV01zWFVYbXZQbC1OX3ZvMWpZWWxEcmRwNUtOSDJjWmFFak51ZHVTdld0RWVRalRZSllrdFhhYzV3Y1VzYVFxQQ?oc=5) |
 | Is Trump’s Troop Deployment to Los Angeles Illegal? - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPVVRIVUJzV1NIZ0wydWVPVXdNeS11SDMxTlhSLXctTk4wLS1ETjEtMVJiN2xRalNoU2phUHBrc2JIc3pwNFZTN2xId0J5UGl4YnNrOUV3ZzhOVW9EdUs1RTctQ1hySm81RUdBcUZsLU52bmkxeVRQUFdDR0xLd2xVdU5oZjVJUXZpMHhyWEpfTkxzSnRCQnJWNlRqbmgycnJhUDFmak1WWEk2UWY3TGFiYVFXd2g?oc=5) |
 | Millions in US expected to join ‘No Kings’ protests against Trump - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1DLTJZQVRtZjZFQU5GZGhPX1hGd2laVVFVQWFwNWNXU3JIVGRqNGVYbW9zR056ZXBMWkhKaDJaSmNSeFhPNlhia1NVelFmcTUzNUxib0k2ckJoXzJlclR3aDhKUUF6YXhxLTNRaTVjaTBXV28?oc=5) |
