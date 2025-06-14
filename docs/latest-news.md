@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月15日 04:00:57（北京时间）**
+🕒 更新时间：**2025年06月15日 04:14:54（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Scoop: Every Senate Dem demands Trump withdraw military from Los Angeles - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPbC1XZUxKSHNxTjZ4UGJzbW5uQ3JhazBOUjNTdW9LVk1kOF9XOWFFNUJOVDk4S2wxWVdUUlRWbjZDa3pPdUJxTWZJaWFhekdUYl9JUDNLeUh5aEpUbkQ2eXR4QlFqeHN3YU15cFZCcGRBaVFYUy1FYTNnX1ItdEVmendTanRTYW9nLWFBZDJFbWk?oc=5) |
 | Data Recorder Is Found for Air India Plane That Crashed - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOUlcxQnExbWJyOEFQOTFxeG1POGxoekl4bnQ2Y1hsZW1XSkpTSDNiQlI4LVVudXdxVDh0Y2hZSkpRbkNwNnc0cmxoMVhxUVVpNk9iWFNSWGZYYS1BRHc0UWNfN3F2ejZPcDM0ZzZvTHRfTjVPRlBRV3dyS0tBdVgtcFE0b2VMS2M?oc=5) |
 | Trump Shifts Deportation Focus, Pausing Most Raids on Farms, Hotels and Eateries - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQX0JrdHFWY2ZuR2dHOGZwV1MxcVVxVzRjSm0wblVfT1NmaVBLODRBSXJLRTMzRHl5aGRSUDIzWmxja053YU5JTGE2T2dPQlh0N09GVlo5aXY2ZnZOMnEtZms5RmV2RG9nVWZNSUgtSTBpNHF5OHE5d2N1SHpRS1pFeXJ1RTdRWnM?oc=5) |
-| He chose to serve longer in the Army. Now he's saddled with $40,000 in moving costs. - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOZ2FadUt1NVVVSG5WdGlKQnhOWVlkQ1hUYUJSTkl5U2hBcFBhMWlLSjNGeUFXNFZYMzJNTExwQllOOHRCUWk3ZkcxZE0zSy12dlNQM1RDM3I2S2w2VEJUYUJTX09LSVVfSEZWMnB2QVhWdGRWTkpGall0M2ZYWktESG9n0gFWQVVfeXFMTU1tWDRLMWZiX0dFYXpSamlubGNZTEg0OGJFMVJYbDdZb1JKTHFVTmdRdFpPRjBSNHNySmVXQ2JDNVlxMXAyRTloQWNjeUhSQkNFeloyOHc?oc=5) |
+| Crowds gather on the National Mall ahead of Trump military parade - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQckFqWGJRWUdENG11Y2hZVHFmQV9oUHJXcHhkTml3VjYyajJTbmdZSEhtLXNySEEyTjlaYzlaRWFPV2VISGJoVm9RS2NWMkJ3LWNzR2lhWG9XN3lBUWxSaTdjRHczWm1Md0o4YjNtWElGbEprQ3hIa0VkYW90dUF1VUpDUXpub1R0WXc?oc=5) |
 | An old Capitol Hill troublemaker is trying to clinch a megabill deal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNUEZlRk1ZMDhaM21nZ3ZiMkRqamEwN3NXdmU3eGVGNUlSd3pVUk1EUG1lQVE5UE1KUXhzV010Rk9BT3g1cUM5dl9oR0wwZldBY1Rwbkt2dGVvVTlkX2hpci1BSF9WWUpPb3ZiVVlwOTFKQ0hhbWotXzIxUlhOOHoxaA?oc=5) |
-| Protesters flood downtown L.A. amid nationwide demonstrations against Trump’s policies - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNdjk3clhueVF4bmRwMGplaHdoRGdfQTRaaUdRNlR4bWpGdkZEZURwcUVuREh1Z0VYR1llc0ZsejJoSWhsbE1RUkRENm5mY2VFZ1dObHlMd2NUaEplNWI1UThNalkwZkFPM2YtbWNxTFpwV2tNVHhBd2RaaXZtT3dsRmZ4RnJ3QVMzdWlMMGt0ZlIxbmlQMTdLRm9MUkpXMzFUcFMzZkhkQV9qQQ?oc=5) |
+| Putin, Trump Discuss Middle East Tensions in 50-Minute Call - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNM0tFckk0d3ItM0lyNmxyQU1TbzF6RWFhQVJwam52Y0lYNzFKZnJXTHlzcWg4VVp2MmFYUjFMMk9Xdnp5Tm5vQzA5dVFFcThRTXBIbE9hU21CUHI5Q1FpTUZ3SGRvTkRfeVBQQW1KLWFnREhkaFoxWHRLVThhZ3VZdjdfdHFTX0pzaVgzYTdoTkFfRXJIdFpqcU1fbkdCelB4VXpDTGZrS1dER2s0Q3c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
