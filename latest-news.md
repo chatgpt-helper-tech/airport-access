@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月14日 11:27:05（北京时间）**
+🕒 更新时间：**2025年06月14日 11:40:13（北京时间）**
 
 ---
 
@@ -24,10 +24,10 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Tel Aviv Hit by Iranian Missile Strikes in Retaliation for Israel's Attacks on Nuclear Sites - Live Updates - WSJ | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9mcXRITk41WGZWTEdiQ2xlV1czVDV1LVd0a1dyNVFySnc1NU1NeTA3Zk9wUnU3NkV0SHZSb2FwdGpvbkhTZU5veVI0VzNQQWplek5UWHZyUW8td2xXRThSanVDR0dBQm5fYXp3Yg?oc=5) |
-| News that 1 man survived the Air India plane crash weighs on some other sole survivors - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNbWhLZ0xNUGpTaWFtcE5EWFhrNlFXOWFjOUVmN1N3U3Z3djk3RHlmTUZtay1BZUc4RWg0UDNONE0zVUlaNm9zUi1fa1ZuTGMtVVJJYXpCNXFjeDI5T1VFSzhLcjJaa081dG1vSG9OUmtMQUxTQ2NERG00NzhWNHpWNnhzY3U5LWMtWVdpZWNzeTlXTWIySkllS3VuVm54dFhRbW9vWm9pdw?oc=5) |
-| 'We knew everything,' Trump tells Reuters about Israel's strikes on Iran - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOcG95UVA2ODRhRUNLQ25SaFZEVDJfS1UwekU1c3VxWWhsWXNFYThDeDllT2JoM0ZUeGZRcS1yc3ctR1AxRjhjWHB5bElDa3FlaEdPXzdRaWFhS0hFV2h2Yk9OTVd1eXdzZTVPWDNCYnlCNk9fTzVMb2pqb2swMlQ2VVhwVGFBYVNKTDI1SGxkdElQX05xV0I0Z293dUpLWTh6dERpNm9LQlNud0V0aXF3RVNIbjRwclZBMDVJ?oc=5) |
+| News that one man survived the Air India plane crash weighs on some other sole survivors - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNbWhLZ0xNUGpTaWFtcE5EWFhrNlFXOWFjOUVmN1N3U3Z3djk3RHlmTUZtay1BZUc4RWg0UDNONE0zVUlaNm9zUi1fa1ZuTGMtVVJJYXpCNXFjeDI5T1VFSzhLcjJaa081dG1vSG9OUmtMQUxTQ2NERG00NzhWNHpWNnhzY3U5LWMtWVdpZWNzeTlXTWIySkllS3VuVm54dFhRbW9vWm9pdw?oc=5) |
 | Judge won’t order release of pro-Palestinian activist Mahmoud Khalil - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPY3BCeTdYc29nWnU2b2FHSkp2ekc1elFVdXpadTVaTEQ1MG01cU1rTkFxOGxTVmhhdG5fWExqSnE2VlVLdG8xM25MWm8wTWhEUFA4LWh6bHVTRE0yb0FqRElNY0ZMczk1QVpLdHROVFNQem9XaUkzc2FoRVZrR2xQT0hNRWFESHFI?oc=5) |
 | US marines detain civilian in first known instance since Trump deployed troops to LA - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxONE80UWVDT3BpQk5uQzltLWpaSTRpMUVzcnExa1oyVkNFb3l5Q19iU3pRU1FoRDZPVnlrQU1BUzFhbDRFQmQ4Ulk2ei1tblBaWVVVVHptajVKcE5HU3VpM25xdFMxWkVSOUo1eVN0Vy1Lakw0YlZCalY0OEp1UW0ya01WQnQyWkg5S0E?oc=5) |
+| 'We knew everything,' Trump tells Reuters about Israel's strikes on Iran - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOcG95UVA2ODRhRUNLQ25SaFZEVDJfS1UwekU1c3VxWWhsWXNFYThDeDllT2JoM0ZUeGZRcS1yc3ctR1AxRjhjWHB5bElDa3FlaEdPXzdRaWFhS0hFV2h2Yk9OTVd1eXdzZTVPWDNCYnlCNk9fTzVMb2pqb2swMlQ2VVhwVGFBYVNKTDI1SGxkdElQX05xV0I0Z293dUpLWTh6dERpNm9LQlNud0V0aXF3RVNIbjRwclZBMDVJ?oc=5) |
 | Protests expected this weekend, as well as an Army parade in D.C. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNY0tkSU1PTDBwbWFPWGpCNDYtekJfYk9LZmxpSmFsTS1yMHpuUWFkYkdBdmFQa1lIenhXMmladU5DLTh2OXhiaTVNXzNxRGJWd1NjeHdSTXVuNm1TR3Zjc211NkNFakNkS2gzMnNxNHJwcDFlaUctNnNqa3NyWkZEUjljYUtIc0swTWV6WHhMTlpDeHJRUkpualhVVllJZEJDR2F4NmZnODk5eHF5?oc=5) |
 | Karen Read Trial: Jury Begins Deliberations - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNQ3RpWVBzb2pTdXFuM1pLbmtRby1HTG1UanVpNkRFU2x4emNLQUNkQmRTR1R2R2VaSGIyOGJtU2hhZ1gwLXgxcTZVdHo0a1ZEM0pXRDhUV1JtbDAwem5iNU84NnNCa0R0M1VlYzBUMFNEM0NKS2w1MGNxbzdjRzMtWDJRMVA?oc=5) |
 | San Antonio floods: At least 11 dead, several missing - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9CMFczanVzMTNsazBWMWdnZVd5Wnk2WDZfbzdDY0N0My00MjU3dzBnbktra3VQa1l1R2VpQzA1ZnZ4X0tVb3ZIS2NsdmdsR3A2MnVFMVBldEdDUdIBX0FVX3lxTE1YcVVWX2p2WFI4XzhBcjh6azRRVmk2bWFWYl82OEpLTVFGakYtclQxN1pVUEY4ZlhBZmxFaUNnYlhCczQ0UTFqN054Z2ZfVDhqVzVlclN2TndmN1NRM1pJ?oc=5) |
