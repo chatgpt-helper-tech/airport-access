@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月14日 11:14:18（北京时间）**
+🕒 更新时间：**2025年06月14日 11:27:05（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| US helps Israel shoot down barrage of Iranian missiles - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQeWJCQm9MbVMyTXRvV2dKN0w4amVrMjE4eTdYU0lOMVVwRWhTZC13V3pZQmpnVWhsU2FjQW9KYjZsR2dXX0l2YlltTDBkOVZSYnJXV1FwSlVXczdCNWpwdEt5WlI5dWpvRFk4NDZTYUpqTmRZaFhUTTF0NE1XTWFWcFh6c3FlVmVrdGhWZWU3QTBQWE0?oc=5) |
-| Air India plane crash: Investigation underway, black boxes found - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQcWV0bUpxVFJ6Ujg5cHVvWTFLTmVpenBaUW9LVXhXcU9QcllBc2U0YkdXMlJXdU96SzBnOHk2WHMzbVpKWmR4bGk1Rjc5c2V3amNQT2V3enFra21TTGVxejF5SVBCRW11YVZpLUtoXzA5bFRVdTY3bkJzVFZvOFBMbHcwejN6LTJxZWpaakdwNEh1SUJzVDJhbVNxSV9kRUdWTWNkZjNHTHQ3Rm5ZZkdPRXFR0gG3AUFVX3lxTE51YkdHTEJ1QjlBZGxreHZhOENFcTFOemxFdkJQV2ZuSVh3bXctV1R1emNfQy1iMml3d3V3MXUtQll6eW1sT0ZjRk1ZTTFPa2hlUzFSaEpkVU9mQWlWbUFHSW5HdGFHY3laU3djZUpzTTd1YkxwNzJzeW9NUUwyVFoyRHh4TEFDdGk1Wlh4NEVncmllaWROeWVuZkhNeDdtS2d5REZ6akxSejRZRUFUNEJ1SUpQbjU4QQ?oc=5) |
+| Tel Aviv Hit by Iranian Missile Strikes in Retaliation for Israel's Attacks on Nuclear Sites - Live Updates - WSJ | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9mcXRITk41WGZWTEdiQ2xlV1czVDV1LVd0a1dyNVFySnc1NU1NeTA3Zk9wUnU3NkV0SHZSb2FwdGpvbkhTZU5veVI0VzNQQWplek5UWHZyUW8td2xXRThSanVDR0dBQm5fYXp3Yg?oc=5) |
+| News that 1 man survived the Air India plane crash weighs on some other sole survivors - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNbWhLZ0xNUGpTaWFtcE5EWFhrNlFXOWFjOUVmN1N3U3Z3djk3RHlmTUZtay1BZUc4RWg0UDNONE0zVUlaNm9zUi1fa1ZuTGMtVVJJYXpCNXFjeDI5T1VFSzhLcjJaa081dG1vSG9OUmtMQUxTQ2NERG00NzhWNHpWNnhzY3U5LWMtWVdpZWNzeTlXTWIySkllS3VuVm54dFhRbW9vWm9pdw?oc=5) |
+| 'We knew everything,' Trump tells Reuters about Israel's strikes on Iran - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOcG95UVA2ODRhRUNLQ25SaFZEVDJfS1UwekU1c3VxWWhsWXNFYThDeDllT2JoM0ZUeGZRcS1yc3ctR1AxRjhjWHB5bElDa3FlaEdPXzdRaWFhS0hFV2h2Yk9OTVd1eXdzZTVPWDNCYnlCNk9fTzVMb2pqb2swMlQ2VVhwVGFBYVNKTDI1SGxkdElQX05xV0I0Z293dUpLWTh6dERpNm9LQlNud0V0aXF3RVNIbjRwclZBMDVJ?oc=5) |
+| Judge won’t order release of pro-Palestinian activist Mahmoud Khalil - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPY3BCeTdYc29nWnU2b2FHSkp2ekc1elFVdXpadTVaTEQ1MG01cU1rTkFxOGxTVmhhdG5fWExqSnE2VlVLdG8xM25MWm8wTWhEUFA4LWh6bHVTRE0yb0FqRElNY0ZMczk1QVpLdHROVFNQem9XaUkzc2FoRVZrR2xQT0hNRWFESHFI?oc=5) |
 | US marines detain civilian in first known instance since Trump deployed troops to LA - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxONE80UWVDT3BpQk5uQzltLWpaSTRpMUVzcnExa1oyVkNFb3l5Q19iU3pRU1FoRDZPVnlrQU1BUzFhbDRFQmQ4Ulk2ei1tblBaWVVVVHptajVKcE5HU3VpM25xdFMxWkVSOUo1eVN0Vy1Lakw0YlZCalY0OEp1UW0ya01WQnQyWkg5S0E?oc=5) |
-| Judge denies Mahmoud Khalil's release after Trump admin submits new filing - Axios | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQb3J2dVJxNVRqcnUwNW9sQi1aSVRDZGM3SXFWZENQMHBnWGdpdTF5WXAwMEZkOThYcjdxVGh3LUotS3hoTXczU3FjUnhzcVZyYnY2Q3RyUGZiMkdkSEtoTWNWcVVlblY3M19UM3JaMWZSSnVIUWlvbjVPemtON3RGaWJKVUJnaXdPQU1TNy1saFN4TTRKVVhldHpBYnk3Vm00?oc=5) |
 | Protests expected this weekend, as well as an Army parade in D.C. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNY0tkSU1PTDBwbWFPWGpCNDYtekJfYk9LZmxpSmFsTS1yMHpuUWFkYkdBdmFQa1lIenhXMmladU5DLTh2OXhiaTVNXzNxRGJWd1NjeHdSTXVuNm1TR3Zjc211NkNFakNkS2gzMnNxNHJwcDFlaUctNnNqa3NyWkZEUjljYUtIc0swTWV6WHhMTlpDeHJRUkpualhVVllJZEJDR2F4NmZnODk5eHF5?oc=5) |
-| Forecasters Warn It May Rain on Trump’s Military Parade - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPYmc2N0RPYjhGSDJwSng5RnpqV0NLcVY4VDhnc0UySWdtOElENHZXSUwwM0RCOVljTzJSTWJFZWNtd0c5RDBpTVl3YklhSVVHN0dFQVdNVWdSZ2t6NU04NmpXS1JqZUxHLURhUmxfZHZlZXhxbFZyRHVkNFlOelNpTW14aw?oc=5) |
-| Trump pledged peace but is now embroiled in new Israel-Iran conflict - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNZ2s2cHZTYTRWYUlYbnFTVTljQnBSMHU3aV9oZVBMUEMydlhTWVFMeU53SnluUDJnbmQwMFBXbC16RXBodDcwMWNWQUJGemREZThBc0poTEt3QlR2X0l0X0pTdUktU0swY0IzRHVadkE0dWpzbTNxemdWMEgyYW9PRg?oc=5) |
+| Karen Read Trial: Jury Begins Deliberations - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNQ3RpWVBzb2pTdXFuM1pLbmtRby1HTG1UanVpNkRFU2x4emNLQUNkQmRTR1R2R2VaSGIyOGJtU2hhZ1gwLXgxcTZVdHo0a1ZEM0pXRDhUV1JtbDAwem5iNU84NnNCa0R0M1VlYzBUMFNEM0NKS2w1MGNxbzdjRzMtWDJRMVA?oc=5) |
 | San Antonio floods: At least 11 dead, several missing - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9CMFczanVzMTNsazBWMWdnZVd5Wnk2WDZfbzdDY0N0My00MjU3dzBnbktra3VQa1l1R2VpQzA1ZnZ4X0tVb3ZIS2NsdmdsR3A2MnVFMVBldEdDUdIBX0FVX3lxTE1YcVVWX2p2WFI4XzhBcjh6azRRVmk2bWFWYl82OEpLTVFGakYtclQxN1pVUEY4ZlhBZmxFaUNnYlhCczQ0UTFqN054Z2ZfVDhqVzVlclN2TndmN1NRM1pJ?oc=5) |
 | Kilmar Abrego Garcia pleads not guilty to human smuggling charges - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOOG1NOUpVUWVUak5hYkFIemxLa2hZb2NwdlR4eWZvRUF2YW5hRjJIWTJZU3JaWmJZYlFMVkhwSXNkQy05Wm1PX0VobjkwdXBrZU5VaWNYb0ZZX1JiZ0RJVk9ialBsWFBWQVRNeml0MDI5QXE1V0s2bUExWHRFNjRsTlpYdW51UVN3SHRUbXMzRTMzeGNTS0NWYW5ab29rY28xZVpTQmdpeTIyT0ZjYmZj0gFWQVVfeXFMTTRwbjJTWlFUdjZHM2UtY0tlNGszdEFySnM4ZTloS3FEUVliWi1zOHA4WnZVeFM4blZRTjc1M1NxbEtuMXJ6Mmsyb3RFanFvZ1pzODAwNFE?oc=5) |
-| Michael Madigan sentenced to 7.5 years in prison for corruption: Live updates - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPZktNUlNTdlBTa3F2M2pZQmt1SXFGLUcxWGpGT1VsNzJZNVR3SXRjdkphbV9LOWQ2dV9xa01aOENSZTBVNDRWRW1NaWYtVVl1Z0V5bGJxYnRBRUlvNHRnQVJBN3poQWlXREZYTW9iVURHZ1psamVoLXByazVoTDFkWTJR?oc=5) |
+| Michael Madigan sentenced to 7.5 years in prison for corruption convictions - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPVS1ZNXpwNm1PeWtHdnFhYlgyaUMtVU1aeGNIcTdBa29JMTZLT3Q2amlyN05TcmtJTkZVeHpFS2V5TUh5dlpGQ3o3Snd5bXpXMmd0VWl2WEFkcUlWQUxlbEFxQmFzV2VVbDY4SldGOHdXdXNkYUQ0X2xyUnk2VVRfMzJGODNIMHc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
