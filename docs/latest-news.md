@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月15日 07:39:54（北京时间）**
+🕒 更新时间：**2025年06月15日 07:53:10（北京时间）**
 
 ---
 
@@ -14,16 +14,16 @@
 | Was Iran months away from producing a nuclear bomb? | [阅读全文](https://www.bbc.com/news/articles/cn840275p5yo) |
 | PM announces national inquiry into grooming gangs | [阅读全文](https://www.bbc.com/news/articles/c7872pngj2qo) |
 | Watch: Trooping the Colour highlights on King Charles' official birthday | [阅读全文](https://www.bbc.com/news/videos/c3rpgej0jw4o) |
-| Crisis - which crisis? Israel-Iran another huge challenge for government | [阅读全文](https://www.bbc.com/news/articles/c5yxn52dz5ro) |
 | Museum's plea after couple break crystal-covered chair | [阅读全文](https://www.bbc.com/news/articles/cn05dd4pz0jo) |
 | UK's careful diplomacy faces test ahead of G7 meeting | [阅读全文](https://www.bbc.com/news/articles/c0ln32252reo) |
+| Sainsburys and Morrisons told to stop tobacco ads | [阅读全文](https://www.bbc.com/news/articles/c93lze0le29o) |
 | The families paying £1,500 for 'private bobbies' to police their homes | [阅读全文](https://www.bbc.com/news/articles/c4gr103y3leo) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What to know about Melissa Hortman and John Hoffman, the lawmakers shot in Minnesota - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE84d2tUQUVyd3lLS0tUb09jWFJHYjNnUnJuWkF3S0tvUVNQSlRQajB1SFJ5aTZPeWFjdDI1UkJOemFlMXNLamc0V0VENk9kN3B1eU1GcFBwWnZaeW43QUJ3d0JwOFdiUWpTam1pUmwzSndpNFpDUEFmdXUtS0hhUdIBgwFBVV95cUxQUjJXZzYtRERLZVY4ZEMweFVjbEZyUnotWFlxYUR5V1VLajViSVdOcHZHT0tMX1NVQjQyNDdwUjJlX0VTWTBSRGhkcGxLU25nQ3NzeXQzTlpWNGxwNWJTODZ1MGU5b1Vrc2htRWozU3Z0a29wV2JYOFlkcC1QZ0VhNkZaYw?oc=5) |
+| Minnesota assassination suspect Vance Boelter on the run; had dozens of Democrats on list, sources say - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQZUtUdEE3c2RPU3dObzlxWUNteUEyNk9tNlBNejFjWnhtTkN0WXdlZXhKWXhOeWJwUDE0cHl4RjVwOVZoZmtCQW82cEpHdlNtdmxXMkg1WU1JMUJfWUxtSjM3X1JNODZYRXlfeGlLay12RXF0a001bjllekEtbmpwc3dtUHAtZHhUa01kLWlvNW81Si1tOUMxdWhsZklRZ9IBowFBVV95cUxORTBMRjlCUzEwQ2NsZXFtRW41WjBfcGYxR2FmYlBCMWIwaVZ5MFVvREhpcG1xSnIwR1JSOVdhVEhyZUJ5YlhHMXZQRXh0TmlPZUM2cjRCSjFpQzFHZGh5MFRtR3VxTWMzbFdsclJLU0k3Q1RUbnRWODktOVZ5SFprOS1vdzJIUmtaaXlnSGIwdnladzFXMk02d3NzRVh0c2hiS2pn?oc=5) |
 | Watch Live: Trump military parade marking Army's 250th birthday in Washington, D.C. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNdGNGN2dqUmk2OTF2T1psVl9ZZ1AxSS1xdUh3STRjVzVSVWdadzlpbU5wWmhWR001YWpYSUU2UnhleFQycFdZWHhFeUNRbm1rLU44dXZseHV0dTNjY2JtQi1xMWN1eDE4blVNODBUNHdNa2M1N0ptS2JYdEZ3TFBOM2hpdTYxcVBLMnRoekFENjZla2xMZkE?oc=5) |
 | Israel says it killed 9 Iranian nuclear scientists, and braces for attacks from Iran - NPR | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE5ESTlpQWZiMVhQc1RSdTVBUnUwRzgzNjNQVmRiNWFpcWlBdVpLQndETUxWLTNodk93aG5WVk43N0pQbllHMC1PUUEzQjdLWkc1c1VaXzJOeVE1ZFBlTkdPRE5zcFdBUmx1LUlELWV2enc4QQ?oc=5) |
 | 'No Kings' anti-Trump protests across US ahead of his military parade - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1fMVR0NVdSV0tiXzB6eTZiM2dVcDhpckl6M0N3STlGUjQtVVBpMHhNaE5hRmJtY0xlM255Q0dKYzBWdXNkUFROcWdsRVZyb2R6Vnh5S29zdDVWZ9IBX0FVX3lxTE5pY0xZU1Zma3ZEeE1hSm1EQ0dnOUFpNWhPNk4yOHJ1ME9BZXZ6Q3ZCR0pKSlVxb0FBck10akFEOG9KZmE1S3BTa0t0cXhkYjFuTUFvbEZhUmx4c3NOUmdn?oc=5) |
