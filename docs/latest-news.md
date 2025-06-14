@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月15日 03:13:08（北京时间）**
+🕒 更新时间：**2025年06月15日 03:27:43（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | ICE ordered to pause most raids on farms, hotels and restaurants - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOT3BZTEdxMVpva3FuX3h1VC1TWTQxdXdvZ3JWY3p5am5ianlRLWRSZGE1U21GOHg3TXZlRlNBRklQaklFWHl2RU9vWmN5bk5BNDhYcVRFMnFOT1FtTEtUNkVac3FxdVRvdmpmYjNUQ0ZMeEIzUlB6SmxMRVh2N2p1TlFoYVlBTC1TQm9TYkkxWnFJU29zUmlzcmdUb1VCZnBacTFUU3lXcld5WGpJU2ZmUUJHMS1IZW8zazB3?oc=5) |
 | An old Capitol Hill troublemaker is trying to clinch a megabill deal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNUEZlRk1ZMDhaM21nZ3ZiMkRqamEwN3NXdmU3eGVGNUlSd3pVUk1EUG1lQVE5UE1KUXhzV010Rk9BT3g1cUM5dl9oR0wwZldBY1Rwbkt2dGVvVTlkX2hpci1BSF9WWUpPb3ZiVVlwOTFKQ0hhbWotXzIxUlhOOHoxaA?oc=5) |
 | Cities Nationwide Brace for Day of Protests: Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiZ0FVX3lxTFBNVk5mcDZmR3lwbGxBNU04MjBVeUNRajFyRldMdWh5XzFGSXM1QU1waHdWRDl5NFkyUmJHNXNKVk51dkhtbl9udkxIQ2cxTEJhYXN4aUFmUzl5bUVGNHRIakhmVFRCNjA?oc=5) |
-| Michael Madigan sentenced to 7.5 years in prison for corruption convictions - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPVS1ZNXpwNm1PeWtHdnFhYlgyaUMtVU1aeGNIcTdBa29JMTZLT3Q2amlyN05TcmtJTkZVeHpFS2V5TUh5dlpGQ3o3Snd5bXpXMmd0VWl2WEFkcUlWQUxlbEFxQmFzV2VVbDY4SldGOHdXdXNkYUQ0X2xyUnk2VVRfMzJGODNIMHc?oc=5) |
+| ‘No Kings’ protests planned across L.A. amid changes in ICE raid tactics - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNdjk3clhueVF4bmRwMGplaHdoRGdfQTRaaUdRNlR4bWpGdkZEZURwcUVuREh1Z0VYR1llc0ZsejJoSWhsbE1RUkRENm5mY2VFZ1dObHlMd2NUaEplNWI1UThNalkwZkFPM2YtbWNxTFpwV2tNVHhBd2RaaXZtT3dsRmZ4RnJ3QVMzdWlMMGt0ZlIxbmlQMTdLRm9MUkpXMzFUcFMzZkhkQV9qQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
