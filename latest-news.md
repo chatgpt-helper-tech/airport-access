@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月14日 16:01:21（北京时间）**
+🕒 更新时间：**2025年06月14日 16:13:14（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | Love Island’s Georgia Harrison: 'I re-read my MBE letter three times' | [阅读全文](https://www.bbc.com/news/articles/ce80rk0yw7jo) |
 | Mood swings fuelled Heston Blumenthal's genius. But the highs got higher and the lows got darker | [阅读全文](https://www.bbc.com/news/articles/cy5e6l06rlvo) |
 | More than 30,000 lightning strikes overnight as yellow storm warnings remain in place | [阅读全文](https://www.bbc.com/news/articles/c93lrqk60geo) |
-| Royals to honour air crash victims at Trooping the Colour | [阅读全文](https://www.bbc.com/news/articles/c3d4g5eeemro) |
 | Black box found at Air India crash site as families wait for answers | [阅读全文](https://www.bbc.com/news/articles/cjwqjv09q7xo) |
+| 'I walked out of rubble': British survivor on how he escaped wreckage | [阅读全文](https://www.bbc.com/news/articles/cd901xn4001o) |
 
 ## 📰 Google News
 
