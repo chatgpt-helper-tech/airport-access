@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月15日 01:40:21（北京时间）**
+🕒 更新时间：**2025年06月15日 01:53:37（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Speaker Emerita Melissa Hortman, husband shot and killed; Sen. John Hoffman and wife also shot - 5 EYEWITNESS NEWS | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNV3RhRm1INEdLb2s4MHJQbl81S1BGeDBTTDhTaFBYQ3FSenktWFJaS0tUU0hhd0RMYzlxVFVXRk5yeDF6OGNPT04yMEFYRlNzVUtPRlZEcXFaZkpVUWxVRW9XenZtcmZWNXRGeFJxTXQyTkU4YVRQYXhyMU45a2hxMGlYQVpDcmUxd1pJOS1hbHJYb0NMa3VudURBSmdRcm9zcDBGY2pmVUpHU1ZiSldKa21FS0xCUQ?oc=5) |
-| 'No Kings' protests against Trump planned nationwide to coincide with military parade - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPNGlUQWlFX1JwVDZLWXFTYTd2YkJZZEdMWEFfU1F2bTVqV3ZvWnR3aDRfZDJVN3V0ZzdKaTIwaDk1ZGZxaUx1Qk1vdldlb21JOGhuek9RLUFoTU14UkhMcjZLMmhxdjJTUmE0T21RN042X2w3RXB2amdLaDdtekZpbWx3dHI?oc=5) |
 | Israel warns ‘Tehran will burn’ as Iran fires drones and missiles in response to Israeli strikes - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNejdDR0doR2sxVWpXb2QtZy1hMXJDZEp1azI0Q0kxOW5MM2hXUWFXQ25kWFNEOGw4dmFxdXo1MnI0ZkhHSzBWcTc0dzBHYkphN1p4VnJNYzlVYTdocml5Q3BmVUZoY1loa2pDckFDdlhnMW1QRDVsVUxQOGZ2ZEdNejlWWUtGanZaRHVn?oc=5) |
-| Scoop: Every Senate Dem demands Trump withdraw military from Los Angeles - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPbC1XZUxKSHNxTjZ4UGJzbW5uQ3JhazBOUjNTdW9LVk1kOF9XOWFFNUJOVDk4S2wxWVdUUlRWbjZDa3pPdUJxTWZJaWFhekdUYl9JUDNLeUh5aEpUbkQ2eXR4QlFqeHN3YU15cFZCcGRBaVFYUy1FYTNnX1ItdEVmendTanRTYW9nLWFBZDJFbWk?oc=5) |
+| 'No Kings' protests against Trump planned nationwide to coincide with military parade - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPNGlUQWlFX1JwVDZLWXFTYTd2YkJZZEdMWEFfU1F2bTVqV3ZvWnR3aDRfZDJVN3V0ZzdKaTIwaDk1ZGZxaUx1Qk1vdldlb21JOGhuek9RLUFoTU14UkhMcjZLMmhxdjJTUmE0T21RN042X2w3RXB2amdLaDdtekZpbWx3dHI?oc=5) |
+| Trump’s case for sending troops to help ICE involves precedent from Fugitive Slave Act - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQQ043QkdteGg0ZWdDblMwVzMtN2FYSVpvQ3F0bjJsQlQ5M19KNWk1MmNHc09TcTRRdU1FMTJOd1JuWGdJVmZ5Ri03NWhCQ21YN1ROZFJrbTEySnQ0WlYzSmpfNDhQMjA5Y1BNNDVYQy1XQ0FTT3JvQkN1WVRXa011RTJVV0dfN2NDQWhhallNS2EzX0t0RUhFQUUyMWtURlZlSjJIWDFMbng?oc=5) |
 | Live updates: Military parade in DC closes streets amid chance of storms - NBC4 Washington | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNbGVIdjFGZUxTbVZUOXREY0U1dkpqN0ZSMzJ4MDBRa0o3OGJvbmxRMWx4Uk9ZRWdFc21qTmwtNGg0SkxLVXpBRkdoWWhDTTBydHJmbEVpS2hXQ0lJbU8taXhFVDdnTXhxcVc1NjlOUzEwLXNjVmtWRHFJLUVralJ5dWQtazQ3YlZ2WEF5cllOVFk1Z1V6bHFjMGhTUXNuTjNGM2taSFVORi1udUtoeEE?oc=5) |
 | India launches inspection of Boeing 787s after Air India crash - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5yZXJwOWVxMHlnTWkySEpMM1R6SlFZX3VlRGltWkxhbGdRV2pRTkFYN3l6MkhMTmhGaGIyRVBzTVQ3OHFzdmhxNXpULU91NnZoMktQM0I1bVl4WGNodEhzS0hhcWlpdVRGUVloaVNyUGxvNzBfc1FnWGVkUDVXaHfSAYQBQVVfeXFMTVZNS280MjRiTDFHOTBkTjFiMW9zNlZjTFFNa2h0Z21RZnhZZERSVURQeVBQbHJMM3Z0OVR3eFdaMy15bTdJMTNFX0lvRG1uUENCWExBT1BtcjhoRmtzU2Nfd3VqRWlTWjJvdENEeHBrYXJaTkJ1OGtFUkxubk91Q0hVMEt2?oc=5) |
 | ICE ordered to pause most raids on farms, hotels and restaurants - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOT3BZTEdxMVpva3FuX3h1VC1TWTQxdXdvZ3JWY3p5am5ianlRLWRSZGE1U21GOHg3TXZlRlNBRklQaklFWHl2RU9vWmN5bk5BNDhYcVRFMnFOT1FtTEtUNkVac3FxdVRvdmpmYjNUQ0ZMeEIzUlB6SmxMRVh2N2p1TlFoYVlBTC1TQm9TYkkxWnFJU29zUmlzcmdUb1VCZnBacTFUU3lXcld5WGpJU2ZmUUJHMS1IZW8zazB3?oc=5) |
 | An old Capitol Hill troublemaker is trying to clinch a megabill deal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNUEZlRk1ZMDhaM21nZ3ZiMkRqamEwN3NXdmU3eGVGNUlSd3pVUk1EUG1lQVE5UE1KUXhzV010Rk9BT3g1cUM5dl9oR0wwZldBY1Rwbkt2dGVvVTlkX2hpci1BSF9WWUpPb3ZiVVlwOTFKQ0hhbWotXzIxUlhOOHoxaA?oc=5) |
 | Michael Madigan sentenced to 7.5 years in prison for corruption convictions - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPVS1ZNXpwNm1PeWtHdnFhYlgyaUMtVU1aeGNIcTdBa29JMTZLT3Q2amlyN05TcmtJTkZVeHpFS2V5TUh5dlpGQ3o3Snd5bXpXMmd0VWl2WEFkcUlWQUxlbEFxQmFzV2VVbDY4SldGOHdXdXNkYUQ0X2xyUnk2VVRfMzJGODNIMHc?oc=5) |
-| Trump embraces Israeli strike after arguing against it - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOd1lIR1ZjS0FPT01xdGFyMFFCZ0o4QUg0dVVsWGVDYXdWNWcxVTRiYlQ4QlJqejJqWXRfdmJ4bi1BT09lZHJ4c203Sk5ZYVp6QjBoTkhZWURoSlI3empxRGJFNzBCa2FHSVpQS21HcU54R0p2Tl90b3A3UWpRVXdRY0xOaGtGcEtxbzc2dW95NUpIbWFRRTJpeW9KWWpXYnJrNlAtWVZSWkl3UDlnWkZV?oc=5) |
+| Padilla pushes back against Noem's claim he barged into news conference - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOUHRQNWVfYmxMdXRWSUxpbm43V2cxNnBubi05X2V6OEN2bDJVRDVYVVBzbXBSUkR0OVpudjRxYVpSTVVNUG83dEhvZFlPY2Mtblk0bWtWMUcyd0hHbGgtcHE5NFVacVdXX2dzamcyV3FZX0hNend4Q2tlM3lqWWVONE9lME9CalNpV0piZzJtNVNSQ3cyOThGb2xsdzE2amxTd1RCcXplYTTSAa4BQVVfeXFMUGx6SG1IcWEwNVRkYUdQWG9qWF85Q2p4c2h3Z2Z1MERMUGNCaU52bHVTZTltZEowMm8xakRmLTcxamxrZGdoUEthVWRvWlYzUGZTeldpa0NNZEVza3RCSzhZa0laaVBLa2hnNlU5XzBfSlJ6RWluTEFXWEwtR0xCalF5M3NJOW5FeS05YkRSUmp0ZUMtb3UyMFluM0x4dEFySjc5ZENZbjI3MGRCODRn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
