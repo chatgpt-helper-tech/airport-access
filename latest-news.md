@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月14日 11:40:13（北京时间）**
+🕒 更新时间：**2025年06月14日 11:53:37（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Tel Aviv Hit by Iranian Missile Strikes in Retaliation for Israel's Attacks on Nuclear Sites - Live Updates - WSJ | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9mcXRITk41WGZWTEdiQ2xlV1czVDV1LVd0a1dyNVFySnc1NU1NeTA3Zk9wUnU3NkV0SHZSb2FwdGpvbkhTZU5veVI0VzNQQWplek5UWHZyUW8td2xXRThSanVDR0dBQm5fYXp3Yg?oc=5) |
+| Israel's endgame may be regime change in Iran - but it's a gamble - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE43WTBHd1JFWHE1V0dOZUlKMnRLZWtZWDNfcDI2aDB6MEstQU5yNS1HLWdDVk5mOEtEZUE5WU9uMDFleFJRUkNvUlVERjBpS1BDamdVelhacXpFUdIBX0FVX3lxTE9TNWU2WUUwdldQN3RXSTlXU3dONFF5RHd3OU1EbF9sY0k0bVNqX1IxbFdSU1RDdG5oV0hMWUNyVlpvd3FvUlRNTFkwRkdoZ3BsTmE2cm51VzRnems1dE9J?oc=5) |
 | News that one man survived the Air India plane crash weighs on some other sole survivors - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNbWhLZ0xNUGpTaWFtcE5EWFhrNlFXOWFjOUVmN1N3U3Z3djk3RHlmTUZtay1BZUc4RWg0UDNONE0zVUlaNm9zUi1fa1ZuTGMtVVJJYXpCNXFjeDI5T1VFSzhLcjJaa081dG1vSG9OUmtMQUxTQ2NERG00NzhWNHpWNnhzY3U5LWMtWVdpZWNzeTlXTWIySkllS3VuVm54dFhRbW9vWm9pdw?oc=5) |
 | Judge won’t order release of pro-Palestinian activist Mahmoud Khalil - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPY3BCeTdYc29nWnU2b2FHSkp2ekc1elFVdXpadTVaTEQ1MG01cU1rTkFxOGxTVmhhdG5fWExqSnE2VlVLdG8xM25MWm8wTWhEUFA4LWh6bHVTRE0yb0FqRElNY0ZMczk1QVpLdHROVFNQem9XaUkzc2FoRVZrR2xQT0hNRWFESHFI?oc=5) |
 | US marines detain civilian in first known instance since Trump deployed troops to LA - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxONE80UWVDT3BpQk5uQzltLWpaSTRpMUVzcnExa1oyVkNFb3l5Q19iU3pRU1FoRDZPVnlrQU1BUzFhbDRFQmQ4Ulk2ei1tblBaWVVVVHptajVKcE5HU3VpM25xdFMxWkVSOUo1eVN0Vy1Lakw0YlZCalY0OEp1UW0ya01WQnQyWkg5S0E?oc=5) |
