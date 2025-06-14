@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月15日 03:27:43（北京时间）**
+🕒 更新时间：**2025年06月15日 03:39:53（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump's long-sought military parade becomes reality - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9vNjY3RV9TQ0JlN043Qnkxdm5scHh2S0lQMHFxcy0zYWFjNk04aW9QbWZGOEZuSWdmRlZZeDJpZmN1cVlJQmdjQVJvLTcyeEE1a2c3S0tWZkRucGVfUm9LNVBZWS1aZVpSei00NNIBckFVX3lxTE1GbVoyNHA3bmc0MXczWFFtQlZULWpXNUtQdVBxTFJneVRaYlJsa3NBYTFjSEtPZmVxYmhKWm55VVRXY21hUUdOdG13cU1aRkZaVlFGYXhOVHJfdC04d21RNjAyb2k3Z2lCRE1oWk1veVNBUQ?oc=5) |
 | Iran says talks with US 'meaningless' after Israel attack, but yet to decide on attending - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOckFKb09VRFVMdlVvUGFUWmJybFk0LXFkbExxZ0d1dnhzWHUwTTJWQVNUSVR2bTRoa2wzSVFPeElLLU00ZnFIcHUyTjVyQ0dSRy1pVFY0NC0wT3pZb3phY3hKeXE0cThyc2EyY3A4WVduSXNzUFZ1MHYtZkRTalpZcnNjRDcxdXlrQVdTX09WYWFybUhWTUREME9Mb0F4UGVsRnVtWE5JVnVMVzhQOGpFamxHODhrQTEx?oc=5) |
 | Scoop: Every Senate Dem demands Trump withdraw military from Los Angeles - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPbC1XZUxKSHNxTjZ4UGJzbW5uQ3JhazBOUjNTdW9LVk1kOF9XOWFFNUJOVDk4S2wxWVdUUlRWbjZDa3pPdUJxTWZJaWFhekdUYl9JUDNLeUh5aEpUbkQ2eXR4QlFqeHN3YU15cFZCcGRBaVFYUy1FYTNnX1ItdEVmendTanRTYW9nLWFBZDJFbWk?oc=5) |
-| ICE ordered to pause most raids on farms, hotels and restaurants - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOT3BZTEdxMVpva3FuX3h1VC1TWTQxdXdvZ3JWY3p5am5ianlRLWRSZGE1U21GOHg3TXZlRlNBRklQaklFWHl2RU9vWmN5bk5BNDhYcVRFMnFOT1FtTEtUNkVac3FxdVRvdmpmYjNUQ0ZMeEIzUlB6SmxMRVh2N2p1TlFoYVlBTC1TQm9TYkkxWnFJU29zUmlzcmdUb1VCZnBacTFUU3lXcld5WGpJU2ZmUUJHMS1IZW8zazB3?oc=5) |
+| Trump Shifts Deportation Focus, Pausing Most Raids on Farms, Hotels and Eateries - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQX0JrdHFWY2ZuR2dHOGZwV1MxcVVxVzRjSm0wblVfT1NmaVBLODRBSXJLRTMzRHl5aGRSUDIzWmxja053YU5JTGE2T2dPQlh0N09GVlo5aXY2ZnZOMnEtZms5RmV2RG9nVWZNSUgtSTBpNHF5OHE5d2N1SHpRS1pFeXJ1RTdRWnM?oc=5) |
+| No Kings Protesters Fill Streets Across the U.S.: Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiZ0FVX3lxTFBNVk5mcDZmR3lwbGxBNU04MjBVeUNRajFyRldMdWh5XzFGSXM1QU1waHdWRDl5NFkyUmJHNXNKVk51dkhtbl9udkxIQ2cxTEJhYXN4aUFmUzl5bUVGNHRIakhmVFRCNjA?oc=5) |
 | An old Capitol Hill troublemaker is trying to clinch a megabill deal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNUEZlRk1ZMDhaM21nZ3ZiMkRqamEwN3NXdmU3eGVGNUlSd3pVUk1EUG1lQVE5UE1KUXhzV010Rk9BT3g1cUM5dl9oR0wwZldBY1Rwbkt2dGVvVTlkX2hpci1BSF9WWUpPb3ZiVVlwOTFKQ0hhbWotXzIxUlhOOHoxaA?oc=5) |
-| Cities Nationwide Brace for Day of Protests: Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiZ0FVX3lxTFBNVk5mcDZmR3lwbGxBNU04MjBVeUNRajFyRldMdWh5XzFGSXM1QU1waHdWRDl5NFkyUmJHNXNKVk51dkhtbl9udkxIQ2cxTEJhYXN4aUFmUzl5bUVGNHRIakhmVFRCNjA?oc=5) |
-| ‘No Kings’ protests planned across L.A. amid changes in ICE raid tactics - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNdjk3clhueVF4bmRwMGplaHdoRGdfQTRaaUdRNlR4bWpGdkZEZURwcUVuREh1Z0VYR1llc0ZsejJoSWhsbE1RUkRENm5mY2VFZ1dObHlMd2NUaEplNWI1UThNalkwZkFPM2YtbWNxTFpwV2tNVHhBd2RaaXZtT3dsRmZ4RnJ3QVMzdWlMMGt0ZlIxbmlQMTdLRm9MUkpXMzFUcFMzZkhkQV9qQQ?oc=5) |
+| Protesters flood downtown L.A. amid nationwide demonstrations against Trump’s policies - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNdjk3clhueVF4bmRwMGplaHdoRGdfQTRaaUdRNlR4bWpGdkZEZURwcUVuREh1Z0VYR1llc0ZsejJoSWhsbE1RUkRENm5mY2VFZ1dObHlMd2NUaEplNWI1UThNalkwZkFPM2YtbWNxTFpwV2tNVHhBd2RaaXZtT3dsRmZ4RnJ3QVMzdWlMMGt0ZlIxbmlQMTdLRm9MUkpXMzFUcFMzZkhkQV9qQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
