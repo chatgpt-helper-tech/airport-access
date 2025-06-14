@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月15日 04:52:51（北京时间）**
+🕒 更新时间：**2025年06月15日 05:01:45（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | Israel-Iran strikes: A look at the worst-case scenarios | [阅读全文](https://www.bbc.com/news/articles/c74n23y1x48o) |
 | UK sending more RAF jets to Middle East | [阅读全文](https://www.bbc.com/news/articles/ceqg440v0gxo) |
-| 'Destruction all around': BBC reports from Israeli city targeted by Iran | [阅读全文](https://www.bbc.com/news/videos/cvg92jnylzxo) |
+| 'It's heavy on the heart': Israelis survey damage in city hit by Iranian missile | [阅读全文](https://www.bbc.com/news/articles/cx270vklvv7o) |
 | Was Iran months away from producing a nuclear bomb? | [阅读全文](https://www.bbc.com/news/articles/cn840275p5yo) |
 | PM announces national inquiry into grooming gangs | [阅读全文](https://www.bbc.com/news/articles/c7872pngj2qo) |
 | Watch: Trooping the Colour highlights on King Charles' official birthday | [阅读全文](https://www.bbc.com/news/videos/c3rpgej0jw4o) |
@@ -30,9 +30,9 @@
 | Iran says talks with US 'meaningless' after Israel attack, but yet to decide on attending - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOckFKb09VRFVMdlVvUGFUWmJybFk0LXFkbExxZ0d1dnhzWHUwTTJWQVNUSVR2bTRoa2wzSVFPeElLLU00ZnFIcHUyTjVyQ0dSRy1pVFY0NC0wT3pZb3phY3hKeXE0cThyc2EyY3A4WVduSXNzUFZ1MHYtZkRTalpZcnNjRDcxdXlrQVdTX09WYWFybUhWTUREME9Mb0F4UGVsRnVtWE5JVnVMVzhQOGpFamxHODhrQTEx?oc=5) |
 | Scoop: Every Senate Dem demands Trump withdraw military from Los Angeles - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPbC1XZUxKSHNxTjZ4UGJzbW5uQ3JhazBOUjNTdW9LVk1kOF9XOWFFNUJOVDk4S2wxWVdUUlRWbjZDa3pPdUJxTWZJaWFhekdUYl9JUDNLeUh5aEpUbkQ2eXR4QlFqeHN3YU15cFZCcGRBaVFYUy1FYTNnX1ItdEVmendTanRTYW9nLWFBZDJFbWk?oc=5) |
 | ICE ordered to pause most raids on farms, hotels and restaurants - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOT3BZTEdxMVpva3FuX3h1VC1TWTQxdXdvZ3JWY3p5am5ianlRLWRSZGE1U21GOHg3TXZlRlNBRklQaklFWHl2RU9vWmN5bk5BNDhYcVRFMnFOT1FtTEtUNkVac3FxdVRvdmpmYjNUQ0ZMeEIzUlB6SmxMRVh2N2p1TlFoYVlBTC1TQm9TYkkxWnFJU29zUmlzcmdUb1VCZnBacTFUU3lXcld5WGpJU2ZmUUJHMS1IZW8zazB3?oc=5) |
-| Texas DPS warns state lawmakers of “credible threats” after two Minnesota legislators shot - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1LY0xET21sVExqeUhOU1BRdXVnUDV6Vnh0bVRYcG04clNZMXNHd0I4WHY3bkI5TUNiSnVRbGVHV1o2eTg0OW9VMlVCMjlzdVdDV2l5M1N6SG15RUFhWWhGbV94ckxzSVJsT2N0V2RsUGhzUWVHdXNzZHdUTG8tUQ?oc=5) |
 | Trump: The war between Israel and Iran should end - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1qeDZ2ZHZ6R2VXMWZnSGJuWFY4Q3Fwc2hRT1QtaG9uZmRPNXQ0Q1l3aGx2aDRXekhiWDd1STRQVS1rcS1IMWljMjFUMENUMnpVN3Vacl8zZ1pleGF0MER0MEZJYUVXWlp0MDVRc0JsNHkwQlV4NnpVX2dwOA?oc=5) |
 | India launches inspection of Boeing 787s after Air India crash - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5yZXJwOWVxMHlnTWkySEpMM1R6SlFZX3VlRGltWkxhbGdRV2pRTkFYN3l6MkhMTmhGaGIyRVBzTVQ3OHFzdmhxNXpULU91NnZoMktQM0I1bVl4WGNodEhzS0hhcWlpdVRGUVloaVNyUGxvNzBfc1FnWGVkUDVXaHfSAYQBQVVfeXFMTVZNS280MjRiTDFHOTBkTjFiMW9zNlZjTFFNa2h0Z21RZnhZZERSVURQeVBQbHJMM3Z0OVR3eFdaMy15bTdJMTNFX0lvRG1uUENCWExBT1BtcjhoRmtzU2Nfd3VqRWlTWjJvdENEeHBrYXJaTkJ1OGtFUkxubk91Q0hVMEt2?oc=5) |
+| Sir Keir Starmer announces national inquiry into grooming gangs - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBFdkNoNmlGSkE2amwwa2poeDA2ci1mUWpEc1Voa2VWQ2J3cTZZRm1WeTYxOXVkaWo4SEljVlRGTnhaOGpUOTdPdk8zMFFlS01PSHJmZXhxdGViQdIBX0FVX3lxTE9VdjZza0VsUTZsMmtna0Z6Y0gwM3lKTjYyWVlvMjM1UHJ2QjRtSmpVLTlobUh1Vk9oRzY1X2NQX1c1a3RKR3YzZEZIRVdFSnB6Qk9VWllqT0FpVHBhTmxv?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
