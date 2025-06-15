@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月15日 18:14:06（北京时间）**
+🕒 更新时间：**2025年06月15日 18:26:39（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Who Is Vance Boelter? The Minnesota Lawmaker Shooting Suspect - WSJ | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPTVh2N0w1THp1ZEN3TkJrRFA1eml3UUQ4SFFvV0sxR2NXTDZDUldyZmNKcTlQOVpUSHEzLUxzenpLTUhJWUN2aXJqdV82VUpHSjkxT1FDQ1REMTVfM1dJZm9VcDlLWGJHb3lteDlVenpiMENESlRwbjlHQlljMEpvQmo0cTE?oc=5) |
 | Tanks, troops and flyovers in D.C. as Trump gets his military parade - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOMDJmZnl4OGU1SWFWRDdReVNNcEUzTnFGc3ZZbXVvZTlBTnBwNHQzaVhpVll0NDVYd24weFY0UWVmWVlhVXRULXpiQjVYcnZ6YVhQQUEwN1I3bHFuNnhXcmdnaWZGbzNqdm9qZmR6dzhKdWNFZzc5aEE0NzZYaTlWNXdZV0tsb1hyVmRKZGFMWnctcFFzRFF6R1lOZw?oc=5) |
-| Israel and Iran strike at each other as Trump says conflict can be easily ended - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOLTAwNDNoY0tsWUdrZ0tGY3pFelJiN2haSTd3a29iWE82cTJrbEtWOXZMTmIwNzVJek5fUjVNQjg1R3JmVFVJNFdOMkdDdDhLMmMzXzIzYVdhV24wcGNoRU1pSG1HRno3eGd1WWRGNEttZy1uekZRNEVhSEg1SGpSLWlKNzEtaWtGN1piVWlZUEc1dFg4Sk9mWnB5LTZqOTVnYkE?oc=5) |
+| Iraq urges US to prevent Israeli aircraft from using Iraqi airspace to strike Iran - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOdks3aktNVUtEc014T2ZJV3c2VzJYalQtc1R3cTZwbkhtRXdiV1pvWnM0QXdNRnRSdzZDZXZkZkxVanRMVGVhMEtUalFJbGlRT2FBX2xVNmVtMHYzZUd6Sm5NNEZyX25fbkVfREJRNldfNEc2SmpOY3c3aThlc2hMdnN5UTlsWjc3UjYtVFdyODF1bWVqbWVjYnFpRGFqTjVsb3FwYVlaQmhodDZaV1phdzhzRnR5MGpJMld0bW5ic1BDcGs?oc=5) |
 | "No Kings" anti-Trump protests attract millions, organizers say - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPbGRxVFJINlI0X0V6Qkl5TnBaeDh4dWxlZnF2bkZ4dUpNcl80V0FZR2NmSDNvTFNxZmstdWh1djdQUVl0VWplRXNWRXloUFo2dU9Dekd0TFA1MTlOQVJIRHppN0x4bGRKWDZfR1BIQjBzUWVtTEMycjFpdWtaOGZDcmROQ0dKLTg4TDhFQg?oc=5) |
 | Police declare riot at Portland ICE facility - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5leHFNM241dTFHYmtwbWJQaTJDTHY1eU5DUlZqY3c5cURGNVZsUlpkdWpEbW5XS0JCS3IxOExTQURBSS1rZXMtZDZjWUpzQW9KLW9rREM5RG1UaEd6X3JMeWZWaFh5OUROcGlDNlFtdi1wSkp1XzllWjRUa0Z4Zw?oc=5) |
 | One person ‘critically injured,’ three in custody after shooting as 10,000 march in Salt Lake City during ‘No Kings’ protest - The Salt Lake Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPWHNxOW94UkRVcG1ZT243S0taN3p4Q0RnTnBqalZKRXh4VlhaWVJoMS0zQ0FtdzZ4YV9DUjNYd2V4YnE1OTQySlAxRmxtQXBhN3BUSDVySUQ2YzVTOGd2TDk1UVBhczEwV0p1akgwenpoaUN3VGhIY00yMGZNZ3BfQzB0LS1ISG5SNmc0?oc=5) |
