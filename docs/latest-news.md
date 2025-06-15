@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月15日 11:26:57（北京时间）**
+🕒 更新时间：**2025年06月15日 11:39:58（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Minnesota state Rep. Melissa Hortman remembered as a trailblazing public servant after fatal shooting - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPR1QwSV9XX19lZWN3Vy1aZUpubFZHd0NZTnYxT1U2ZW1sWmV2LUJHSkkwZkJOY1UtVUZVMjY0YUdKOEx4TEstdGZxZ2Y0MGhNU1VRemxkLVd4Q3hfM3FpelNzVnRtLUFrLU94N0pCTDV6Mzhma2FzVW8wQ1dXLTRTcFR30gFWQVVfeXFMUF9UTk8yRGtxenBRcGRiaG0wWnZHVTZHa1dHV0ZtZzNEcXFuUFdRbFhxNEZseFd0aVVIdUZ2N203dnIyUXpaWlI2dUNwY1ZHbTdXSUpwYXc?oc=5) |
 | Tens of thousands of people gather for ‘No Kings’ protests in Portland - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxOb1ZZbWtEcHZaTXlhZVlINFVWN3l0MzBvNVg2MWFQUDM2MU1kZ1VDcGFqREYzMXIwMnN4NmYzU2Nlb2NqdkxGRzBxY2M0RGlpWjlvbkRMTmwxV21FN1BXS2FDU2JUSEFES0hJVHVqUG1sYVNucUpfSUFzVGFJd0RSWjlaNkcwNUFzNmxfbFA5MUZMZGxmbmFKcFFfc2dHM09aYjk0U2JXSlpVdDUxRUNlUWJnc0hDM1B6ODJYS25OV3I3ZEN6MENqWDBB0gHeAUFVX3lxTE1OTm5iTTdHeWdPdWNPeTVwSEJiQ0V1NXRmbUZyZ2c3NW81WVlNYjFJQWNCRGYtQi1XWU9lZTAyOFVONVFfbm5hU1FhbjM5M19saWQwLU0xYjFDakl5bW5Db2dndS1EV1R3cG9qWWxTN3dkLWpacEVlYWhPSlNHYkZwYTZVa2ZzMzBLV2hVZ1RFMXhTbDNSR04ybnV6eHJEekpJVnNUcDNZWGdlQnpCS2VCd3gyenMtZmxkUE0wWmp1RmNMc1RRZFZFNnduWlR6ZlBUdGNKamE3ZmVLOEpydw?oc=5) |
+| Minnesota state Rep. Melissa Hortman remembered as a trailblazing public servant after fatal shooting - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPR1QwSV9XX19lZWN3Vy1aZUpubFZHd0NZTnYxT1U2ZW1sWmV2LUJHSkkwZkJOY1UtVUZVMjY0YUdKOEx4TEstdGZxZ2Y0MGhNU1VRemxkLVd4Q3hfM3FpelNzVnRtLUFrLU94N0pCTDV6Mzhma2FzVW8wQ1dXLTRTcFR30gFWQVVfeXFMUF9UTk8yRGtxenBRcGRiaG0wWnZHVTZHa1dHV0ZtZzNEcXFuUFdRbFhxNEZseFd0aVVIdUZ2N203dnIyUXpaWlI2dUNwY1ZHbTdXSUpwYXc?oc=5) |
 | Trump addresses huge military parade as protesters rally across US against his presidency - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE9qRGo2bWRWRnlzYUhkNjlOMVpYTnc0NUdJM3cyMGdLTEM0ektHSnJDZnBxeDNkYzhsVHh2RTZVNFNpeTZILWJYdjR1RVR0OUFrN01jRg?oc=5) |
 | Israel-Iran latest: Iran and Israel exchange fresh strikes as conflict escalates - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE05cHJubV8tSE41NEZuc0lXdVozdnJlc1dNM0M0Rlo3M0ljYWJ2cFdoZHhPa1BOMDdnRGx0bTFreVBrWHRUR1l4bU54eDRCREJlMmw4M0J3VW9aNW83LWpsYk4xNWRFQXRUbFJ4anNJTU8?oc=5) |
 | Wait for bodies deepens pain of families after Air India crash - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9SX0JfNGlUcTFNUzROSFcyM3YtS0pleTZDNUJDLU9qbzR4LXlRX0FncTNXVDJ2TUFqcjNyZGxsVFl4NlJOVEotX0IyZHFZVndVellTa3AwbVdSd9IBX0FVX3lxTE9DVlZYN1RsYXp3Nzh4TVlveHFmVk5DQ2E1Vy1HQ3lwekVYNWtBQUVmUU5sbUk4SHRDMlRiZlo2d0J0cVcwcDVwUlZPRGd3a2pXSm5mcS0tTWVReFp4NFBF?oc=5) |
