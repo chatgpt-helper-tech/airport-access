@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月16日 06:14:19（北京时间）**
+🕒 更新时间：**2025年06月16日 06:26:34（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | Footage shows burning cars after missile strike in Israel | [阅读全文](https://www.bbc.com/news/videos/c8rermxkx75o) |
 | Satellite imagery reveals damage to key Iran nuclear sites | [阅读全文](https://www.bbc.com/news/articles/c7808xvv737o) |
 | Reeves vows to shield UK from Israel-Iran price shock | [阅读全文](https://www.bbc.com/news/articles/c3080q893z3o) |
-| Grooming gangs concern not dismissed, says Rachel Reeves | [阅读全文](https://www.bbc.com/news/articles/cz0d09zkyy7o) |
+| G7 is a big moment for Carney. Here are five things to watch | [阅读全文](https://www.bbc.com/news/articles/clyg07jj17eo) |
 | MI6 appoints first female chief in 116-year history | [阅读全文](https://www.bbc.com/news/articles/czxyx04dv1wo) |
 | Vigils held as Air India plane crash death toll rises to 270 | [阅读全文](https://www.bbc.com/news/articles/c0575me7j82o) |
+| NCA to target grooming gangs nationwide | [阅读全文](https://www.bbc.com/news/articles/c70601550rro) |
 | HS2 reports subcontractor over alleged fraud | [阅读全文](https://www.bbc.com/news/articles/cje7edx5wzwo) |
-| G7 is a big moment for Carney. Here are five things to watch | [阅读全文](https://www.bbc.com/news/articles/clyg07jj17eo) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | Padilla says FBI agent, Guard member escorted him to Noem's briefing before removal - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE05RzZnOVRJY2JrekFWUW4wOU9WSmhaaHY4Z251ZkctRlJUZTM2TXNOZjZvWXAzeVREUllLbFcyX1dtQWJnS25zREdON3VaZUx0elNCQjUtUmRFV2NRTFhnVXhSejE0ZkxoaDVtRFZYWW41dUF5M0RnSA?oc=5) |
 | After Omaha, Nebraska largest worksite immigration raid, a community works to recover - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQQkZWemFWRWxiZHBPRElPNDlXTUgxXzJQSXlicTZIOWVqbnNfZWZtYWdZZnEzaThtd2NrMWR2eXM1QldoZ243SFVNWEJsVl9zZ0JVSWt0ZGN5R19ZTW5rTFZtOVRLZUhaX2JONmRrWVNRM1Rld3pLQnk0MFo0SEpsXzBRQlN2R2JMVXVRU29MOXpMYUhI0gFWQVVfeXFMT0dhY1R3ZjE4UjFLRDhOamNhSXRNSFFnbUQ5eXE1QVVyREZtUFcyaklrX0pGTEp2YUZ1cFllZ0d4SFE5TFhGWWN5OV94ZDhuQlg1ZGxSRmc?oc=5) |
 | Flash floods kill 4 in West Virginia, 4 people missing after inches of rain fell in 30 minutes - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1ZYWNHUWVFYVZMUjZkWDFpLWc3c3hTQUN0c1I1VEFreEhvYlZSVVp4N1lyN0JSaGpLSmV4dXRhN0pRVF9jSmR1WWtCeVl3d19XRjM5QU85dTNJUm1WQkRORVhoZldPWkJnXzFtTURvNkRnemPSAXhBVV95cUxQeElzelBzalg2V1VTQTdFTmhXRkU0STlVa0ZNRTB1dW9idHA1SW5OMVRqZkFUam9YMGRrVFZRdzE4c0wzQXE5LXJiWWpaQWUxTy1WVFpqd0UxLTNESW51Sm4zQXU4ZDFxSGRQdEhndjd4VkViTHdic18?oc=5) |
-| 1 man dead after being shot during 'No Kings' protest in SLC - KSL.com | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPd3JRMDBNQW9tUWtxcVNRakl6RzdGNjdrdW1WclJpZDNteUM4Q0hwb05IdV9Pcng0bzVoRVdyQjFRMTlIUE5JZTl1U205U2xDc3FJUXA5OHdjamRRa0dwTnZJellLRXEzYjRDejY5cy1DM3U2OEhMRDRsdzlJRUtMbFlBUlUwR05PcWpUei1xQ21IakZ4WWJ4cFJQSQ?oc=5) |
+| Protester shot and killed at ‘No Kings’ rally in Utah, police say - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPcEp1ZWc5d1ZpdzNiZC15Y01YNGlqeTJERGN6c1A3eUJHMnZvOXN5dTlVaUpHeFkyT3JROHRiWkhqZHA2U1FYcTVoN0xtalhONHU2VmQ1Qmo0LW81TnpWOWRoOUJsM2JZVnVkZGFJQVlQUGZ6aEdUaDVxY3gyTGFaOHR2bHJtZjVOalNabHlRMmlzZzBCS1Jucg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
