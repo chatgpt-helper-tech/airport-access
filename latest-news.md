@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月15日 08:13:14（北京时间）**
+🕒 更新时间：**2025年06月15日 08:27:36（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Minnesota assassination suspect Vance Boelter on the run; wore realistic latex mask - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQZUtUdEE3c2RPU3dObzlxWUNteUEyNk9tNlBNejFjWnhtTkN0WXdlZXhKWXhOeWJwUDE0cHl4RjVwOVZoZmtCQW82cEpHdlNtdmxXMkg1WU1JMUJfWUxtSjM3X1JNODZYRXlfeGlLay12RXF0a001bjllekEtbmpwc3dtUHAtZHhUa01kLWlvNW81Si1tOUMxdWhsZklRZ9IBowFBVV95cUxORTBMRjlCUzEwQ2NsZXFtRW41WjBfcGYxR2FmYlBCMWIwaVZ5MFVvREhpcG1xSnIwR1JSOVdhVEhyZUJ5YlhHMXZQRXh0TmlPZUM2cjRCSjFpQzFHZGh5MFRtR3VxTWMzbFdsclJLU0k3Q1RUbnRWODktOVZ5SFprOS1vdzJIUmtaaXlnSGIwdnladzFXMk02d3NzRVh0c2hiS2pn?oc=5) |
-| Watch Live: Trump military parade marking Army's 250th birthday in Washington, D.C. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNdGNGN2dqUmk2OTF2T1psVl9ZZ1AxSS1xdUh3STRjVzVSVWdadzlpbU5wWmhWR001YWpYSUU2UnhleFQycFdZWHhFeUNRbm1rLU44dXZseHV0dTNjY2JtQi1xMWN1eDE4blVNODBUNHdNa2M1N0ptS2JYdEZ3TFBOM2hpdTYxcVBLMnRoekFENjZla2xMZkE?oc=5) |
+| What to know about Melissa Hortman and John Hoffman, the lawmakers shot in Minnesota - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE84d2tUQUVyd3lLS0tUb09jWFJHYjNnUnJuWkF3S0tvUVNQSlRQajB1SFJ5aTZPeWFjdDI1UkJOemFlMXNLamc0V0VENk9kN3B1eU1GcFBwWnZaeW43QUJ3d0JwOFdiUWpTam1pUmwzSndpNFpDUEFmdXUtS0hhUdIBgwFBVV95cUxQUjJXZzYtRERLZVY4ZEMweFVjbEZyUnotWFlxYUR5V1VLajViSVdOcHZHT0tMX1NVQjQyNDdwUjJlX0VTWTBSRGhkcGxLU25nQ3NzeXQzTlpWNGxwNWJTODZ1MGU5b1Vrc2htRWozU3Z0a29wV2JYOFlkcC1QZ0VhNkZaYw?oc=5) |
+| ‘No Kings’ demonstration in Philadelphia attracts thousands to protest Trump administration - WHYY | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTFBsRUE4Q3g5T1ZMSnZ1SzUyX3Npd1NBTVVxS3ZIODJIU0p0QnU5TjNYYmU2bUNPS0RuSElvVXVrS2daNTFvem9lNzBFUGF2Y0tqN2lSNHc1MlplYmM0V0xjZ1VvZHVmUXJlOXUtVGVYaGtaakFv?oc=5) |
+| Photos capture Trump’s military parade and nationwide ‘No Kings’ protests in action - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPNmpHSndqellXSTNmUEZMWWw0RDVaM01FVm56RGxNOEpkd1c5Qk81Mmk2ckRfZjBieEF0T1kwaHduWW1ENm13RVVCZklTdmZhMHM5bWZtSmplS25LV1dIUEU1NFRBSG04TG9YRDVKbm9nZmFHOFo0NzV5b2FFZkRiX0xYVG00MWVHQkVWdV9FaFFtR1pUaGoxRUhObzJ1aG12ZFcxOTJrX2pvN1EwcDIwSnlvWkN3Z9IBVkFVX3lxTE01S3RfV2ZQOGRBSzVmYXUxZ0pDUGV3bnNBb043NXVMd2IxX1hqVzNHd08zTlkwdThLTEt6UHVTZ19vTFJnZ1Vkam9xbXJlM3kwaURlWmJR?oc=5) |
 | Israel says it killed 9 Iranian nuclear scientists, and braces for attacks from Iran - NPR | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE5ESTlpQWZiMVhQc1RSdTVBUnUwRzgzNjNQVmRiNWFpcWlBdVpLQndETUxWLTNodk93aG5WVk43N0pQbllHMC1PUUEzQjdLWkc1c1VaXzJOeVE1ZFBlTkdPRE5zcFdBUmx1LUlELWV2enc4QQ?oc=5) |
-| 'No Kings' anti-Trump protests across US ahead of his military parade - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1fMVR0NVdSV0tiXzB6eTZiM2dVcDhpckl6M0N3STlGUjQtVVBpMHhNaE5hRmJtY0xlM255Q0dKYzBWdXNkUFROcWdsRVZyb2R6Vnh5S29zdDVWZ9IBX0FVX3lxTE5pY0xZU1Zma3ZEeE1hSm1EQ0dnOUFpNWhPNk4yOHJ1ME9BZXZ6Q3ZCR0pKSlVxb0FBck10akFEOG9KZmE1S3BTa0t0cXhkYjFuTUFvbEZhUmx4c3NOUmdn?oc=5) |
 | ‘No Kings’ protesters in Virginia and San Francisco struck by motorists - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNV3JBUm5wWlo1azVoNHMyOVdIYjI0Q0dJQjdLOUhUTVlTMkFaOGJWcm5MbWpiajNOQ09fUXRJWEptZnZxNE9mVG54dzdCMzg1Q0NiQklIeDFiS1FtZm1ISVZUMFJVeEVWbjNxdm1DSGsxaHMyWVc4cDFkQTZVZmRPRWgxYk9jMXltTG9CXzRZeGpoNWVl?oc=5) |
 | Data Recorder Is Found for Air India Plane That Crashed - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOUlcxQnExbWJyOEFQOTFxeG1POGxoekl4bnQ2Y1hsZW1XSkpTSDNiQlI4LVVudXdxVDh0Y2hZSkpRbkNwNnc0cmxoMVhxUVVpNk9iWFNSWGZYYS1BRHc0UWNfN3F2ejZPcDM0ZzZvTHRfTjVPRlBRV3dyS0tBdVgtcFE0b2VMS2M?oc=5) |
 | Scoop: Every Senate Dem demands Trump withdraw military from Los Angeles - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPbC1XZUxKSHNxTjZ4UGJzbW5uQ3JhazBOUjNTdW9LVk1kOF9XOWFFNUJOVDk4S2wxWVdUUlRWbjZDa3pPdUJxTWZJaWFhekdUYl9JUDNLeUh5aEpUbkQ2eXR4QlFqeHN3YU15cFZCcGRBaVFYUy1FYTNnX1ItdEVmendTanRTYW9nLWFBZDJFbWk?oc=5) |
