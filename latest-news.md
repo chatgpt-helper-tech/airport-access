@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月16日 03:26:02（北京时间）**
+🕒 更新时间：**2025年06月16日 03:39:39（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | ‘No Kings’ protests from Chicago to Naperville to Orland Park - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOV3M5dzhOVHk2QmhXYVhSZzQyMmxYQ1ZtMWRHdHRiRGRqUmtrNnJlb210YldaUXBUdkdyd3A4NEhDRXFYQlU3UDA4S0JXZmFYb1UtckdDNzgxZF9fU1Btd0htVjVXc3pyaXBkM3F3Y1g4ZVJBM2p4Nm5YeDlld1pfSVl3SnRKM2tGeDNNXzdhQQ?oc=5) |
 | Trump administration weighs adding 36 countries to travel ban, memo says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNS0hfZkpQNUtKYnJNcEN3SkdrUUgxTmJiLWFfT1Rsekx3MjVHRHdlMHB6MFRUN1RJVEpzYlpsNkZsZi0wb0E1QUpxeWt3NTh6aTI5NzRDTExjbGZvZDlOME5zT00wTDNuMkxnVnA5anlRVm1iX1l1Q21uTmFzU1N3OUMySnlveHBuVE5DR1RDdVY2bkRac3pLVDRtMGhYdDJQV0tkalJZTWRYZjZsQXdKUlUtUQ?oc=5) |
 | Could this city be the model for how to tackle the housing crisis and climate change? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQLWxKcHJENjJ5bmE3c19mc1NiUUJuM21DMUpZZWtzZVF1Q0lhR3FUOHYtWWhjd1dJcmowcGp3VkhmTndfNzI3OFM3dkFYQ0FfenFqX1FBdWNMMDNjeV9VeUZPbUJyV09FSXRwbF9XTU5fM0RGOVV1TlNNRHNpRXFmSGV3N0RvQzBHd1RDc2VBN25DTGtOQWdSa3pjdUM0QQ?oc=5) |
-| After Omaha, Nebraska largest worksite immigration raid, a community works to recover - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQQkZWemFWRWxiZHBPRElPNDlXTUgxXzJQSXlicTZIOWVqbnNfZWZtYWdZZnEzaThtd2NrMWR2eXM1QldoZ243SFVNWEJsVl9zZ0JVSWt0ZGN5R19ZTW5rTFZtOVRLZUhaX2JONmRrWVNRM1Rld3pLQnk0MFo0SEpsXzBRQlN2R2JMVXVRU29MOXpMYUhI0gFWQVVfeXFMT0dhY1R3ZjE4UjFLRDhOamNhSXRNSFFnbUQ5eXE1QVVyREZtUFcyaklrX0pGTEp2YUZ1cFllZ0d4SFE5TFhGWWN5OV94ZDhuQlg1ZGxSRmc?oc=5) |
 | Padilla says FBI agent, Guard member escorted him to Noem's briefing before removal - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE05RzZnOVRJY2JrekFWUW4wOU9WSmhaaHY4Z251ZkctRlJUZTM2TXNOZjZvWXAzeVREUllLbFcyX1dtQWJnS25zREdON3VaZUx0elNCQjUtUmRFV2NRTFhnVXhSejE0ZkxoaDVtRFZYWW41dUF5M0RnSA?oc=5) |
+| After Omaha, Nebraska largest worksite immigration raid, a community works to recover - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQQkZWemFWRWxiZHBPRElPNDlXTUgxXzJQSXlicTZIOWVqbnNfZWZtYWdZZnEzaThtd2NrMWR2eXM1QldoZ243SFVNWEJsVl9zZ0JVSWt0ZGN5R19ZTW5rTFZtOVRLZUhaX2JONmRrWVNRM1Rld3pLQnk0MFo0SEpsXzBRQlN2R2JMVXVRU29MOXpMYUhI0gFWQVVfeXFMT0dhY1R3ZjE4UjFLRDhOamNhSXRNSFFnbUQ5eXE1QVVyREZtUFcyaklrX0pGTEp2YUZ1cFllZ0d4SFE5TFhGWWN5OV94ZDhuQlg1ZGxSRmc?oc=5) |
 | Trump’s FAA pick has claimed ‘commercial’ pilot license he doesn’t have - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPSUEzUDhMTEJnVUV0MC1tUGtaYzlCUE1aVmN1OGVvak5TbzFkSElwQ2cwaV9NMkNVWnFZZ28wX2l4QjVNVGJrOVo4OFZqamhZelZFb1BOWWFreWcxYXVNLW0zQV9sSzlZMmVoQzlHNTcyTUJRcEk3VC0xSm8zMjNtNUFZU2tCTU5Hejh2ak1PNXN1MzA1YWNZSnYtaDR0UVFsNjkzMzVvNGRCTnc4T1JvZW5SN0tFMFZ1?oc=5) |
 | Peaceful protester killed by gunfire during 'No Kings Day' demonstration in Salt Lake City - KUTV | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPR0xuYkQyWmpWT3NzdzcyNk5TczJUZWU0Z2YtSldNbmN0MVV4TEhHcC1WODJmcS1PMVFReUExR0hDU0RDWWxKaElYcFRiSVNyNktGS0JTZnRnQXB4d3JrT2JFaFU0aXhxYmY4dkRtMGdmUm1iQVNDeTM0MTd2WE9ieHozME93dGlNd2tzT1J3WXdGN1dsWWRPRHc1OGdtVjVVZEVMMk5UelNqR2lvTkU5ZHhOSzJZcEE?oc=5) |
 
