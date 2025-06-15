@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月15日 22:53:33（北京时间）**
+🕒 更新时间：**2025年06月15日 23:01:46（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | 3 takeaways from the military parade and No Kings protests on Trump's birthday - NPR | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNci1CR2VmckY3VXJScU9aSEN6ZGsxMEJNQ1p5amxfYzFjNnJWdVlUTFJWQjR4MjR5OFdoU0xGTDV2Zi1maWVScWNiXzQtdGczMW9pWEZxRkkwU1h6SVNfajcwMnNOQ0c4dGVPVHFrZUdnRkotSm43MHhQY1F3enRTUWlBZzBTei15X0RPVkhQUHlQc01PcUtHT3hOaTZZczZFUVVWSWg5RmhHcDgzTFp5X1pMQjROX0NHMkNObUtwTQ?oc=5) |
 | Photos of anti-Trump ‘No Kings’ demonstrations across the US - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxONXVPS25IR0RydFZIUW9DaS1icktDaXRIWUIxb1hFdjVUWFRpS3IxTVVhX09KYjU4TDNNa3RyMktvQXctU2RsLVJLajBrQ0xXUEFXNmIwMFVFTWhDVENRZExSUUoyOFhDTGc0aWdGcXJ1aFR4N2dNMnpqOFJxcFhOUHZjcTEzcjBPX1d3TTVQMlJHU0Q4SFE?oc=5) |
 | Police declare riot at Portland ICE facility - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5leHFNM241dTFHYmtwbWJQaTJDTHY1eU5DUlZqY3c5cURGNVZsUlpkdWpEbW5XS0JCS3IxOExTQURBSS1rZXMtZDZjWUpzQW9KLW9rREM5RG1UaEd6X3JMeWZWaFh5OUROcGlDNlFtdi1wSkp1XzllWjRUa0Z4Zw?oc=5) |
-| Air India plane crash death toll rises to 270 - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1FdEluMUxWbzNpcDBEZGJpU2VXSGtYaURDOVcxYVZyUVRuR202LUVwZVhKa2k0bVUtbXJnUHduMVdTUWNfU1FKTVNkNFM3VzdlaUpSYzNud3Z6Z9IBX0FVX3lxTFB5WUFsS3Uxc1k5OFJNTDBuVWJoVnVKYXZuc1RYVjU1cnpSMmxiLVJBVGJyb2hteGp4RU92QXpOY2Y4bE5qTVlIOGFrckVXUlNNOFZUNVJTQXk3WnpRMFFn?oc=5) |
+| Trump wants to score trade deals in Canada. He’s unlikely to get them. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQbHJJRFk2SC1KdHo0RHY3LVVsUm44c2M3bnhrV2dkRks5dlNSeVdvaUd3MlpiTTN6eFlXZWVpQWRhakQ3anl6ZEVjUnBYY1FhSUViTy1VZm51MHRQTU5uX1duTmlJLWhFa3FoYTN5R09udkkwb2poWlRXR29lM0xzbnhVZFY1UTdqVnhB?oc=5) |
 | After Omaha, Nebraska largest worksite immigration raid, a community works to recover - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQQkZWemFWRWxiZHBPRElPNDlXTUgxXzJQSXlicTZIOWVqbnNfZWZtYWdZZnEzaThtd2NrMWR2eXM1QldoZ243SFVNWEJsVl9zZ0JVSWt0ZGN5R19ZTW5rTFZtOVRLZUhaX2JONmRrWVNRM1Rld3pLQnk0MFo0SEpsXzBRQlN2R2JMVXVRU29MOXpMYUhI0gFWQVVfeXFMT0dhY1R3ZjE4UjFLRDhOamNhSXRNSFFnbUQ5eXE1QVVyREZtUFcyaklrX0pGTEp2YUZ1cFllZ0d4SFE5TFhGWWN5OV94ZDhuQlg1ZGxSRmc?oc=5) |
 | How a Tiny Community Got Caught Up in Trump’s Attacks on Canada - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNTUVLQWNCOWJiRmJreWdMZ1U0R1MtVmprNFB1VjBxTGEtTXVwUm5yTGZlQnhkZTlhaXM5UlpkblpXMGd0UHluUm02bWd4THdfc1hKaV80ZExUOWtURUlVQjVSX1VoOXQ1bGhJM25QUS1ubXlEOEFQT3ozUUJFbF9XT0M5UEl5UQ?oc=5) |
 | One person ‘critically injured,’ three in custody after shooting as 10,000 march in Salt Lake City during ‘No Kings’ protest - The Salt Lake Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPWHNxOW94UkRVcG1ZT243S0taN3p4Q0RnTnBqalZKRXh4VlhaWVJoMS0zQ0FtdzZ4YV9DUjNYd2V4YnE1OTQySlAxRmxtQXBhN3BUSDVySUQ2YzVTOGd2TDk1UVBhczEwV0p1akgwenpoaUN3VGhIY00yMGZNZ3BfQzB0LS1ISG5SNmc0?oc=5) |
