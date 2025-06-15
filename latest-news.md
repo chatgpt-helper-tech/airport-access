@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月15日 23:01:45（北京时间）**
+🕒 更新时间：**2025年06月15日 23:13:21（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Manhunt continues for Minnesota shooting suspect Vance Boelter - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOUjlaTURLVWgyRE5PSnYzWTRMVlljNGhIbzM1VGZjUzhJSGZQYTZDMDZ2cUs3M1BLb1IybFhwRXhrUEFPVEM3ZzhHdVA1dko2ZC1IandOd3NfSndkQTJ4WkZ5QWdLaGxmTG1zS3ZVT0VRYklNSVVEZEQ1YXJMU0hVbVV6TG9OcVhHRS1PR2dSSExQWGV5WlBwVXJXUDE3TDhsUGZON1hn0gGrAUFVX3lxTE5Bdkh3bW5xM1A3cjBOb1VDNEVLUGJhdGdxb2llUFhaT0FyNUhYTXNJMUJaaTN1VGJmNjFvNlo4OTVTc2drbTlVN2VkNU5XanZucUpWaGJxaUJ3SW16VkZnQWpOd1Z1YmZOa2JueE5PaU5GVkh4YnR3WEdYVFNPT3FDdkV1THFLMDg1NWtVVUxNamUya0h0bXVualZEczQxY2lpVTBWSTZIZWowRQ?oc=5) |
+| Congress' fight over security erupts after Minnesota shootings - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNV3FCbTltcXRkZjVlamFKdHcxOHU1VUlXU1YxSXF3a1FEOWg0ZHJBMjNjX2FWUEJXa3gxQ0NuNk5HSzVVTG5DTEszbnl6czdUcVFIeWJubV9INDBEUGVqcXdlbDIxZVd1cHZlV2x4TC03MmxOQUFIdWROamhwLURlMDhn?oc=5) |
 | Which Iranian oil and gas facilities has Israel hit? Why do they matter? - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQZm5NRGZRRnNuM2RXVDl5djNNY1R4c3piM2pQVWxrU2VGVXhKMU80QldfNXNmZE0wN3hxa3laMnVNSGZpMXlHMzEta0FLQ1MzdUwtRkZ5SDNjVDJoTE9paUp3NXIxUmxsM2hjeFMwdEhBR1RIZ3JobHE2MDlCMGpFUEtMTEZJUkxRRWZJYzktUEZGUGY0QlpMZVhlOE5sZ1ZObmszUnlNYV9FZDhTU3d5TdIBtgFBVV95cUxQS2pYZWRvXzRzODR2Mk1LaU5FamwzM2JKR1BzWUdnY2ViQ0pLTm94R1V6U1U5SmVNTjNLQU4xYm05Q3hoZEwtYkpfbENlMVc3UjdVaGpiY2REeFhFZG5Sajl3ZEZDcWxkS19HU3VDVVZ5ZWRrOWhPMjBRc2ltSExJVE5FMm1pdTJpelg5VDdxTUtycmhLUkRyemRpV1ZNQ1JTY24yUGVkM19ibkpwYWIwdzNFemZmQQ?oc=5) |
 | 3 takeaways from the military parade and No Kings protests on Trump's birthday - NPR | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNci1CR2VmckY3VXJScU9aSEN6ZGsxMEJNQ1p5amxfYzFjNnJWdVlUTFJWQjR4MjR5OFdoU0xGTDV2Zi1maWVScWNiXzQtdGczMW9pWEZxRkkwU1h6SVNfajcwMnNOQ0c4dGVPVHFrZUdnRkotSm43MHhQY1F3enRTUWlBZzBTei15X0RPVkhQUHlQc01PcUtHT3hOaTZZczZFUVVWSWg5RmhHcDgzTFp5X1pMQjROX0NHMkNObUtwTQ?oc=5) |
 | Photos of anti-Trump ‘No Kings’ demonstrations across the US - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxONXVPS25IR0RydFZIUW9DaS1icktDaXRIWUIxb1hFdjVUWFRpS3IxTVVhX09KYjU4TDNNa3RyMktvQXctU2RsLVJLajBrQ0xXUEFXNmIwMFVFTWhDVENRZExSUUoyOFhDTGc0aWdGcXJ1aFR4N2dNMnpqOFJxcFhOUHZjcTEzcjBPX1d3TTVQMlJHU0Q4SFE?oc=5) |
 | Police declare riot at Portland ICE facility - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5leHFNM241dTFHYmtwbWJQaTJDTHY1eU5DUlZqY3c5cURGNVZsUlpkdWpEbW5XS0JCS3IxOExTQURBSS1rZXMtZDZjWUpzQW9KLW9rREM5RG1UaEd6X3JMeWZWaFh5OUROcGlDNlFtdi1wSkp1XzllWjRUa0Z4Zw?oc=5) |
 | Trump wants to score trade deals in Canada. He’s unlikely to get them. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQbHJJRFk2SC1KdHo0RHY3LVVsUm44c2M3bnhrV2dkRks5dlNSeVdvaUd3MlpiTTN6eFlXZWVpQWRhakQ3anl6ZEVjUnBYY1FhSUViTy1VZm51MHRQTU5uX1duTmlJLWhFa3FoYTN5R09udkkwb2poWlRXR29lM0xzbnhVZFY1UTdqVnhB?oc=5) |
+| Iran does not want conflict with Israel to expand but will defend itself, foreign minister says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxQdlVoQmhyU3dUZFJuT0ZUc3hXRmhEODhGbkhQU2oway1mNUpfRjhMQlYybWptd0dGcFZjaW5FcG5ZdVVlZkFVTUxZMTNTRVphRk4yZzJpemdNNktKbVJlcW8ybUF4YnVBRXIzY2V3SDkzaUliYjdmRXhNS2ZoTTkyZmk1ZTJBanFCNF9NVUs5Q2hyZFAxMmM2SnJnNEVqM041R3NuYnYwQ0RuOTA3V0xDcWVhZURyRmswMHlQNXUxQ3otRmtuWnc?oc=5) |
 | After Omaha, Nebraska largest worksite immigration raid, a community works to recover - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQQkZWemFWRWxiZHBPRElPNDlXTUgxXzJQSXlicTZIOWVqbnNfZWZtYWdZZnEzaThtd2NrMWR2eXM1QldoZ243SFVNWEJsVl9zZ0JVSWt0ZGN5R19ZTW5rTFZtOVRLZUhaX2JONmRrWVNRM1Rld3pLQnk0MFo0SEpsXzBRQlN2R2JMVXVRU29MOXpMYUhI0gFWQVVfeXFMT0dhY1R3ZjE4UjFLRDhOamNhSXRNSFFnbUQ5eXE1QVVyREZtUFcyaklrX0pGTEp2YUZ1cFllZ0d4SFE5TFhGWWN5OV94ZDhuQlg1ZGxSRmc?oc=5) |
 | How a Tiny Community Got Caught Up in Trump’s Attacks on Canada - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNTUVLQWNCOWJiRmJreWdMZ1U0R1MtVmprNFB1VjBxTGEtTXVwUm5yTGZlQnhkZTlhaXM5UlpkblpXMGd0UHluUm02bWd4THdfc1hKaV80ZExUOWtURUlVQjVSX1VoOXQ1bGhJM25QUS1ubXlEOEFQT3ozUUJFbF9XT0M5UEl5UQ?oc=5) |
 | One person ‘critically injured,’ three in custody after shooting as 10,000 march in Salt Lake City during ‘No Kings’ protest - The Salt Lake Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPWHNxOW94UkRVcG1ZT243S0taN3p4Q0RnTnBqalZKRXh4VlhaWVJoMS0zQ0FtdzZ4YV9DUjNYd2V4YnE1OTQySlAxRmxtQXBhN3BUSDVySUQ2YzVTOGd2TDk1UVBhczEwV0p1akgwenpoaUN3VGhIY00yMGZNZ3BfQzB0LS1ISG5SNmc0?oc=5) |
-| She married a U.S. citizen for love. After she alleged abuse, he threatened deportation. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5FTHc3djE4MjlfeUI2aThtMW1hN1QxUTBVb3h4U29iSlZCSkozOWFBWTFraHdsT3h2Q2dJTDAxTlRJcGYwR2RoTmN3QU5zSlZNcE4zTjUzY2JQaWkzMU1KRWZwRFVCZWViZVAxYUdhS1REVGoxZTRQUFVRONIBgAFBVV95cUxQNmEyczY5ckw4SEZPZHRjMjVTWmZEZkhzdUY1ODRfcy1kWjhhVU5JME5kX3FIR1hacWNLZUtudDJmMHRzV2h6MXBzOXZZOWgwdW1GS2VRWHZxUkJMc095SHc5S0Q5YXdxSHl0cUtaMEhMUmRFOTFtNlc3QjdpUzVNTw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
