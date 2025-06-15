@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月15日 09:39:42（北京时间）**
+🕒 更新时间：**2025年06月15日 09:53:06（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| ‘No Kings’ rally sees thousands come to downtown Philadelphia to protest Trump - WHYY | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTFBsRUE4Q3g5T1ZMSnZ1SzUyX3Npd1NBTVVxS3ZIODJIU0p0QnU5TjNYYmU2bUNPS0RuSElvVXVrS2daNTFvem9lNzBFUGF2Y0tqN2lSNHc1MlplYmM0V0xjZ1VvZHVmUXJlOXUtVGVYaGtaakFv?oc=5) |
 | Minnesota State Rep. Melissa Hortman remembered as a trailblazing public servant after fatal shooting - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPR1QwSV9XX19lZWN3Vy1aZUpubFZHd0NZTnYxT1U2ZW1sWmV2LUJHSkkwZkJOY1UtVUZVMjY0YUdKOEx4TEstdGZxZ2Y0MGhNU1VRemxkLVd4Q3hfM3FpelNzVnRtLUFrLU94N0pCTDV6Mzhma2FzVW8wQ1dXLTRTcFR30gFWQVVfeXFMUF9UTk8yRGtxenBRcGRiaG0wWnZHVTZHa1dHV0ZtZzNEcXFuUFdRbFhxNEZseFd0aVVIdUZ2N203dnIyUXpaWlI2dUNwY1ZHbTdXSUpwYXc?oc=5) |
-| Israel says it killed 9 Iranian nuclear scientists, and braces for attacks from Iran - NPR | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE5ESTlpQWZiMVhQc1RSdTVBUnUwRzgzNjNQVmRiNWFpcWlBdVpLQndETUxWLTNodk93aG5WVk43N0pQbllHMC1PUUEzQjdLWkc1c1VaXzJOeVE1ZFBlTkdPRE5zcFdBUmx1LUlELWV2enc4QQ?oc=5) |
 | Trump addresses huge military parade as protesters rally across US against his presidency - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE9qRGo2bWRWRnlzYUhkNjlOMVpYTnc0NUdJM3cyMGdLTEM0ektHSnJDZnBxeDNkYzhsVHh2RTZVNFNpeTZILWJYdjR1RVR0OUFrN01jRg?oc=5) |
+| Israel says it killed 9 Iranian nuclear scientists, and braces for attacks from Iran - NPR | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE5ESTlpQWZiMVhQc1RSdTVBUnUwRzgzNjNQVmRiNWFpcWlBdVpLQndETUxWLTNodk93aG5WVk43N0pQbllHMC1PUUEzQjdLWkc1c1VaXzJOeVE1ZFBlTkdPRE5zcFdBUmx1LUlELWV2enc4QQ?oc=5) |
+| ‘No Kings’ rally sees thousands come to downtown Philadelphia to protest Trump - WHYY | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTFBsRUE4Q3g5T1ZMSnZ1SzUyX3Npd1NBTVVxS3ZIODJIU0p0QnU5TjNYYmU2bUNPS0RuSElvVXVrS2daNTFvem9lNzBFUGF2Y0tqN2lSNHc1MlplYmM0V0xjZ1VvZHVmUXJlOXUtVGVYaGtaakFv?oc=5) |
+| Wait for bodies deepens pain of families after Air India crash - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9SX0JfNGlUcTFNUzROSFcyM3YtS0pleTZDNUJDLU9qbzR4LXlRX0FncTNXVDJ2TUFqcjNyZGxsVFl4NlJOVEotX0IyZHFZVndVellTa3AwbVdSd9IBX0FVX3lxTE9DVlZYN1RsYXp3Nzh4TVlveHFmVk5DQ2E1Vy1HQ3lwekVYNWtBQUVmUU5sbUk4SHRDMlRiZlo2d0J0cVcwcDVwUlZPRGd3a2pXSm5mcS0tTWVReFp4NFBF?oc=5) |
 | Gov. signs stadium aid package for Chiefs, Royals - ESPN | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPR0ctcGQ4MFVrZGhZTVl4bGNrdFpIWHFQdElFVVJaZkJ0QndZck9WWDlkUS1OQ0lBNGt0T29sSGp6c3ExSXdqWkFPV2V4SjR1V0lBeC1tNHBnTjlvOFRMdDI4UkRjR01xdUdLZFVLVURTMk9uY1lLREpnaVJyaG9SUzR2dGxaVHU4QURTRHVVX193dHFHNE1vY0lzV3c2WHZjeXhLRg?oc=5) |
-| Texas capitol evacuated after officials warn lawmakers of ‘credible threats’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9UVV92RG8xLWpJSlZlQkZRSmJjNUYtM2dIMWo2S1IxYWxNQXh5QlRVaU9mS3RSTFpzV2s0RTdwTUp6Qi0tT1RKQTl3TUp6MjRyNTdXU1pBbVlCd2I1SnFsUm9pRlppYVdjdzZoS2ZWdlhhcG1SUGRzcA?oc=5) |
-| Scoop: Every Senate Dem demands Trump withdraw military from Los Angeles - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPbC1XZUxKSHNxTjZ4UGJzbW5uQ3JhazBOUjNTdW9LVk1kOF9XOWFFNUJOVDk4S2wxWVdUUlRWbjZDa3pPdUJxTWZJaWFhekdUYl9JUDNLeUh5aEpUbkQ2eXR4QlFqeHN3YU15cFZCcGRBaVFYUy1FYTNnX1ItdEVmendTanRTYW9nLWFBZDJFbWk?oc=5) |
+| Arrest Made After ‘Credible Threat’ to Texas Lawmakers, Official Said - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOZHZqVnNXYzRzS1M3WEpkOFM2UHA3d3pCUl9Ra01WZy1YVHIzTmNEWWl3LXpxZi1ubVI5S2RpYl8wLVNtRWxnZTRIMy1RMWdqN29WcTZkYmNfeTdZWHdfRFpma0tLUkdhM00xMWdOSnhsRVo0MjlMS01VTDg1M3F5Sw?oc=5) |
 | Trump curbs immigration enforcement at farms, meatpacking plants, hotels and restaurants - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNQTJWWUVFcUliSTZreWVlTGFGRXJhalVyQ3gtZUlKRUhsdW9oMEV1ZWhFVDZPcTNhOTdBbWptMWx4dzFFWkNiX09nOUtfSzc1a2phNnMzcVMxR3kxY1Q1d2ZvTkQ1SEpROWt0RTg2NGVaenpzYWFjRmFrYUk5SUxnYnM2OE03NWtwWDhIUFB1eXg4TXNoS2l2N2V5MXU1aXI0cldCQVcwQ2ZfRVpnZ0FnS0dydlFzRUU?oc=5) |
+| Trump’s case for sending troops to help ICE involves precedent from Fugitive Slave Act - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQQ043QkdteGg0ZWdDblMwVzMtN2FYSVpvQ3F0bjJsQlQ5M19KNWk1MmNHc09TcTRRdU1FMTJOd1JuWGdJVmZ5Ri03NWhCQ21YN1ROZFJrbTEySnQ0WlYzSmpfNDhQMjA5Y1BNNDVYQy1XQ0FTT3JvQkN1WVRXa011RTJVV0dfN2NDQWhhallNS2EzX0t0RUhFQUUyMWtURlZlSjJIWDFMbng?oc=5) |
 | Putin and Trump discussed Middle East tensions, Ukraine war in phone call - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPdldrYUdtZ0JZek1YRHptR2NiS1ptUjVnQ0ZQNnZLaG1Sb3lvWUx6Sk5TT0ZEMmJDVUNqV0pScXR5WUNITHhTemQwaFV2dmJMa3dXajlOT0Zjcm9pVUhqbGVkMnVVN1BoQzJ4VnE5czBTYTByVEM5MmpBZV8yaFNRcGxadUQtQWdF?oc=5) |
-| Air India captain sent mayday less than minute before crash, say authorities - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOeUtGSmNMWlJ5bjRnbUJXd25oVU9wdjA0NXJrTjZHSm00c1NNNDZLbGdjS1d3XzUzY0hIeEs3dDAwd291MUVpcW5nZWRMbXZpX0I5RjlpZmZEeXVGNk0zSzJqbzNqQmNUVG5MU244SVdqQjhzTi1ROU5reHh2Vm9jcW54djRuVDdxNWhRWUxMMVp2QXhhMEJVMUlfWXltbEVtNENWUncwQ2c5bm9aUFhybkJzYi0wbWl3WDRZUHZB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
