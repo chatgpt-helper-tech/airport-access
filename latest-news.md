@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月16日 02:53:02（北京时间）**
+🕒 更新时间：**2025年06月16日 03:00:25（北京时间）**
 
 ---
 
@@ -14,17 +14,17 @@
 | Satellite imagery reveals damage to key Iran nuclear sites | [阅读全文](https://www.bbc.com/news/articles/c7808xvv737o) |
 | Reeves vows to shield UK from Israel-Iran price shock | [阅读全文](https://www.bbc.com/news/articles/c3080q893z3o) |
 | Grooming gangs concern not dismissed, says Rachel Reeves | [阅读全文](https://www.bbc.com/news/articles/cz0d09zkyy7o) |
-| Mass protests against Trump across US as president holds military parade | [阅读全文](https://www.bbc.com/news/articles/c70622038yxo) |
 | Vigils held as Air India plane crash death toll rises to 270 | [阅读全文](https://www.bbc.com/news/articles/c0575me7j82o) |
 | HS2 reports subcontractor over alleged fraud | [阅读全文](https://www.bbc.com/news/articles/cje7edx5wzwo) |
 | Can the Beckham brand survive reports of family feud? | [阅读全文](https://www.bbc.com/news/articles/cd62dq8gevpo) |
+| Your next Traitors fix, and Yungblud's new album: What's coming up this week | [阅读全文](https://www.bbc.com/news/articles/cwy7q4005v2o) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | What to know about Minnesota lawmakers' shootings that killed Melissa Hortman - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQQmtPMkFOOXBKOVFXUzIxRHlKTjBXSktVcURRSUFVWXBGSERxS29saV9iOVQ4Yk1JTzhNcWxvNXVmTW1GNThHTTBjNml2Y2xpSTNYeDNmeG5wa2o0bndMNm0wUVVjVDNiX283ck1VZ19FakpfTkZ3X1JDZWV0YzJLYg?oc=5) |
-| Trump's military parade in DC overshadowed by his giant toilet statue, netizens quip ‘The only throne fit for this King’ - Hindustan Times - Hindustan Times | [阅读全文](https://news.google.com/rss/articles/CBMilgJBVV95cUxQb1N1WnJmTy1JZnVhQlBCZVRFS3B4Qk1NeTU4MWtVckJxZWtpVzNzeGh6c3hYWkM0cWk4XzBBSEUtU3RjdDBYdFdWci1hN0dHZHJ4TGJteFFTNXVkS2w5UFBQa1Zub29NMjY4NTJSV3pGU3d6WlhGa1BLbl9mM0hwOHNNbVp0bkVhbVFydG94VHU5dVJDaWZRTlNwQVJBNmJZSTlaRWcyWXhhdzd0eU5PTk1MeC1mMU5mdVdzRmk0ck9xYTV4U2ZzclFfcnJPekxETktBN2ZqQ1YxYVY4WUVEaHZURWlrODFsOUY1Q1ZNa1k0RThGdzU1b0c1SmR4Si1seWxycFBtUHZtWk9mTTFtX25ZeFVQUdIBmwJBVV95cUxNbEo2ZnlwdUZuRDlpYlp6T0c0QWhQSlBFeWw2c0pldktXLTI5TlF5UVYxdlhEdGFGMXlkdURrYWMweFJLNlhuYnMtZUs0SUlvWE1FdmRlaTZmVGNsMHZsczFnYzVGd05KcDZqVEZWOEUtVzI3YU5qbUNsTDR1Q1JFVTVGbTAyWllhLVNXaVZtV0RZVnNISktpdUlpOWxLRlkzMER1ejJSMlRTb1ZlWkw5MFRueXNvSlhZR2ptXzFFeTlUMHN5WHIyUFpndm5jajJEalM4ektJVWVIYTBqSno3a05Zb3VLcTdlTU1yaXV5X3hTZFBSWWRLd2ZEVTlRby1JRGFfUFBuYTFkV0lPSnhzemdYME9iZ0lWenY4?oc=5) |
+| Trump’s Parade Drafted the Army Into a War of Images - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5SOVRWVzlWR0Vhb3dXVHVlYUxmbGlFNnhkSVVHc0V5Nm96UGY5ZEVUY0lCaV9jcjN3N0x3cG1mZklzQUFMZG1NdEllMTR2SWx6QnV5YllVRUtMVDRhQmZVUnVIa3pUTzNuTjc3Q0hVemRwZ1djOTV3?oc=5) |
 | Israel and Iran trade more deadly strikes in third day of escalating conflict - NPR | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE91dmZQdDVOdi1kaTFnblNSdHNwUGR0UUF4X1RWVkpuSmR1bkszQTUyVUp0b0YyXzl5U3h1UWpIOWd3TmRaY1MyNUVWM24xZVdPT19GUGhvbVpHanhmaXZJa20zT080UmNHMFNha2Z3TjJOZw?oc=5) |
 | Trump vetoed Israeli plan to kill Iran's supreme leader, US officials say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPUkdfc1M4cUJTc0V1a2o3NVlpOHhYS2dBQmdISm9aZnYxZmtXaHFlaWNEakxUN25iSy1rUk5mczRCOFNvWlprckU0dnhCdzBkbmtEOXcycTF3Ung4Ml8taTVuMGFVVnhpSEI3Qml0UlcwVW5RcDNONVFsdVNPLTNwRm5pWkVUU1VXUklZUFlMMnp3bjF3RXlVci1UcjFIWjFGUWZIU09tX2ZoQ2hBVXpEZ21QOEw3aEhWWVYwcGFvZWpNZGs?oc=5) |
 | ‘No Kings’ protests from Chicago to Naperville to Orland Park - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOV3M5dzhOVHk2QmhXYVhSZzQyMmxYQ1ZtMWRHdHRiRGRqUmtrNnJlb210YldaUXBUdkdyd3A4NEhDRXFYQlU3UDA4S0JXZmFYb1UtckdDNzgxZF9fU1Btd0htVjVXc3pyaXBkM3F3Y1g4ZVJBM2p4Nm5YeDlld1pfSVl3SnRKM2tGeDNNXzdhQQ?oc=5) |

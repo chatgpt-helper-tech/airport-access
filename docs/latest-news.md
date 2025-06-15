@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月16日 02:53:02（北京时间）**
+🕒 更新时间：**2025年06月16日 03:00:26（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | Satellite imagery reveals damage to key Iran nuclear sites | [阅读全文](https://www.bbc.com/news/articles/c7808xvv737o) |
 | Reeves vows to shield UK from Israel-Iran price shock | [阅读全文](https://www.bbc.com/news/articles/c3080q893z3o) |
 | Grooming gangs concern not dismissed, says Rachel Reeves | [阅读全文](https://www.bbc.com/news/articles/cz0d09zkyy7o) |
-| Mass protests against Trump across US as president holds military parade | [阅读全文](https://www.bbc.com/news/articles/c70622038yxo) |
 | Vigils held as Air India plane crash death toll rises to 270 | [阅读全文](https://www.bbc.com/news/articles/c0575me7j82o) |
 | HS2 reports subcontractor over alleged fraud | [阅读全文](https://www.bbc.com/news/articles/cje7edx5wzwo) |
 | Can the Beckham brand survive reports of family feud? | [阅读全文](https://www.bbc.com/news/articles/cd62dq8gevpo) |
+| Your next Traitors fix, and Yungblud's new album: What's coming up this week | [阅读全文](https://www.bbc.com/news/articles/cwy7q4005v2o) |
 
 ## 📰 Google News
 
