@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月17日 03:14:55（北京时间）**
+🕒 更新时间：**2025年06月17日 03:27:24（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | First heatwave of 2025 likely as temperatures to surge above 30C | [阅读全文](https://www.bbc.com/weather/articles/c4grg1w2xr7o) |
 | Family of Air India crash victims feel 'abandoned' | [阅读全文](https://www.bbc.com/news/articles/c5y0lwreg9qo) |
 | Juror dismissed in Diddy trial over 'inconsistencies' | [阅读全文](https://www.bbc.com/news/articles/ckg4gg626p2o) |
-| More than 20 Palestinians killed by Israeli fire near Gaza aid sites, Hamas-run ministry says | [阅读全文](https://www.bbc.com/news/articles/cg7177gpr17o) |
+| Dozens killed by Israeli fire near Gaza aid sites, Hamas-run ministry says | [阅读全文](https://www.bbc.com/news/articles/cg7177gpr17o) |
 | Nursery worker convicted of abusing 21 babies | [阅读全文](https://www.bbc.com/news/articles/clylww5ykkvo) |
 | WhatsApp to start showing more adverts in messaging app | [阅读全文](https://www.bbc.com/news/articles/cn5y07yqg5do) |
 | Russia and Ukraine fulfil deal to repatriate dead soldiers | [阅读全文](https://www.bbc.com/news/articles/cgeqddw1v1do) |
