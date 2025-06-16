@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月16日 15:27:54（北京时间）**
+🕒 更新时间：**2025年06月16日 15:39:48（北京时间）**
 
 ---
 
@@ -16,23 +16,23 @@
 | ‘I broke my jaw in half’: Accidents raise questions about funfair safety | [阅读全文](https://www.bbc.com/news/articles/cg5vjn604qqo) |
 | 'Forever chemical' scientists fear may affect reproduction found in 31 UK rivers | [阅读全文](https://www.bbc.com/news/articles/cm2yjxxvx08o) |
 | MI6 appoints first female chief in 116-year history | [阅读全文](https://www.bbc.com/news/articles/czxyx04dv1wo) |
-| G7 summit is a big moment for Canada's PM Carney. Here are five things to watch | [阅读全文](https://www.bbc.com/news/articles/clyg07jj17eo) |
+| Truckloads of Scotland's rubbish will be sent to England, experts say | [阅读全文](https://www.bbc.com/news/articles/c0r1de24pdgo) |
 | Chris Brown returns to Manchester for first show in city since arrest | [阅读全文](https://www.bbc.com/news/articles/czdydj938mvo) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Live updates: Suspect in Minnesota lawmaker shootings captured after manhunt - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPNjViM0o0a2V3NEtNRmdWUDFrZjBLNlJ0N1ltZFdmWmJCeGtkQTFqbnhPOWMyUHlHLThiWVpxQW1fc3FIUzdFQm9ibTM0S1ZoZW5DWU1SNTdHV1pwNlZoZnlJa1RtRk0tNl82bm1GWjJxOGlmUF9xUGo5U3BuMzVPSC12Vlc3dGs0RzRCOUlMT1BXYUNPMmZHcHBVaFVmUDhUb1E?oc=5) |
-| Israel-Iran latest: Israeli air force attacks missile sites as Iran launches new barrage - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBqN2dXcEhVM2g4M2UyTnFndXd1WnJqVUNkRG1PSlA1UW03X1VaVmdyS05wZmRFalZqWTJmSTluZlNIZ2paTmxaN2V1MWQzYUl2eV9BQTRMWnRWcDZ0MjJ1cTRYYXd3SDJPOGh0ckQ1Y3Y?oc=5) |
+| Vance Boelter, accused of assassination of DFL House leader Melissa Hortman, apprehended - Minnesota Reformer | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxONW84cFZNLVNXQmVlaVFGRlo5Vi1aRFdtaU9Da09ZdEVSZm9jQmVDR2ZqbUt0b2hoTFVYNjJITkNCS3Y1OE85bjl5cnpXYm14UVV0Q3l6TS1zQVMzYlF0b2pIS0c3MmhiNVkySDU1ZjdEd3h2NWxhNjBIM196Z01heTlCOUp1TnNscUVMWU5nYk4zZW8zZW5ERjVkQUlNYXlBX011ZVdhbUNiZFBuT0lITE4wZHNGal9mLXdnbWN1b0lXVnR5d3Iw?oc=5) |
+| Explainer: what we know so far in the Israel-Iran conflict - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQZ2dMdExva2cxb05OZGtqY2dmVkFFUzhLUmtXYWk5Rnp0ck5FQVBGVkdXYnVPTTY5ZnZ1M0Q0Qld3dnM0bDYtODE5RW50Q1dybEtvWEZ1WEJEUWRYaXpadjBsYVZPY21VUVFPUzZHVURXRHRYdXlmd0dWTWpWZEpCV3ZxdEUtVEYzM0RTcDVQQ25ZT3dEZkRWcjF6MC0?oc=5) |
 | Trump orders ICE to step up deportation efforts in Democrat-run cities - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQNHhjNllOQk1abG4wRWhzcnNpUWoyVm9wTTR2cGV5bWdYbFJEeUp1cEp6aWZjVnRLNHJlallUaDhTZC1ZZHZWWUkwY2gwNDJKMnFjd1UxQ0ZLRG9DVWZCMlBsU3pyNV81dHJ5Rl93T201TEY3eXpyZ0taci1pNE5wZ0NXUQ?oc=5) |
-| G7 is a big moment for Carney. Here are five things to watch - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1NWDJ6dW1iQkRkVEs4WUlhdnZUVUV0R1gzRGpmNTV2WVNVMC1FZVlUaTBLaWZoNi1rUmRqV0ZpVzZPZ3k4NmFGQXpVRTlmQmc0UjJJdC1Hd2xyUdIBX0FVX3lxTE9NTHBvMVpJQWszMEdqbVYwd2pJNno2bEpjZUo3amtEdy1qWEdaVWFpc1Z4RnpMdzJ1WE1PQ3F6LUNwTDZsMWFmajJRMVVVd0dhbS0wYVg1ZXRHTTlaRm8w?oc=5) |
 | Military parade and No Kings protests: a split-screen of a divided America - NPR | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNUkJMcWUxOXN4WkQ1azVRQ3B0dHo4LU5VN3NBRE5HQUl2blZncUM5emQ0Z0YtQ2xJdHgzaHhMZDFPMXJ6ZUlxNG9naWpuSUt5UWVsM0UwWm1OajdxbVZ1LTVFMTNjZzB4NHdRMHBXY2pqdlVvb0FoY3NfWTNVNVhiMnpDTGQ3ZWluRzlzZnREVWhRVjk0dnFkc0pqVi1OcmlRcHVwVmwyUmtIUVRwQXVJSTNqeWtXZw?oc=5) |
-| 'Innocent bystander' shot, killed by member of 'peacekeeping' group at Salt Lake rally - KSL News | [阅读全文](https://news.google.com/rss/articles/CBMiTEFVX3lxTE1KRDBGdjkxRE1FLW1TRDlGbWFWQ1NOZkxWbWpwQmlwQ1l6eVd3Q3dENzUtMFVnVklJOFc5OXdyN0Fudlo3V0RybUNDQ0s?oc=5) |
-| Trump news at a glance: President says of Israel-Iran conflict ‘sometimes they have to fight it out’ as G7 leaders gather - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxONTk0emR3X21Ec0U3M3h4cFZpZ3RiQWpPN1I4TFVkU2dnUGw4ZjNELWQ1U2hqcGN1TGdOU2dpdXhVZURxbU9PTjAyc2RoUmFpUmd4SEJ6NkQyckd6MWk4aWFpaHUwNWpDSEtjZGY1cTJIVVZpamwxVEkzRXVJM3R3WUxHbDl1NHBqbVBIWVJVT3lIRDdyUTRiUDZCbTQ1dw?oc=5) |
-| A veteran, a mom, and a construction worker walk into an anti-Trump rally - Nevada Current | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNRFhKQ1Z4Sjc4U0tRT21wVVllTXJ2b1hoUm95ZkRGam9GV0d5XzhPbGlQQzBGbFBKZTh5MFE5VmlyMXFXcjNkME5aX2JlYkd0TVhOa2MyUEtWUk1ERHJSc0Z1VF9CenprSUVicldXSkpjdEFkaUcyT3BIdm43XzZWeEtXdU9WMVBVN2piWEM5Z3hFc2VNNW41aVRzTDdqNjRzVW5fd09zdThWY3dJWFE?oc=5) |
+| The Group of Seven summit is opening in Canada with a focus on trade, wars -- and not riling Trump - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNYzNleTVHQk9YSGItZXNSSUlXa09TUERvNWZBcUFRZW1CVzVOcU55YWdSaGdYY0hBMDljQzhFN3A4Y2lUWlFPcnozY3c2dWtPbnlaTVM4ODFwcUhCWjBDZmsxSmVtdXpyMERyT09lNW5zcS00eXRvS3JaMjROM3VQWVVIeW5jUE11eUhqTUMyU01qcWQtLWJPag?oc=5) |
+| Protester shot and killed at ‘No Kings’ rally in Utah, police say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9jRS1MaExvdlFWenRFdGpON1ZZdk90MXM2WWxvWlZuZjV0TFdWZDFpRUZsUVhQTndpTjg5eEVSQ3NINmlJWlZDdGlfZ0NvOEdyQkl3dVRNaUo1MXZ4YkoxRGJJRlk1QVJFYjJmLTR2WEN0OEszS1F3WmZIWFJzbzDSAYQBQVVfeXFMT3NmaDFyc0tXX1J2Zndjb1V1MjhvMllwR2hYZGt0bWhZdWwwZHlyNnNraWdhWlFNNEE5UkhHVFpqYlBYZU9zVGY2Zlh6SEJ3SmdwTUtWd2MzSmppNWlmWEVSalYzUm9PbDBVLUtPdERWZEViencwWTg4eTE2XzRTTXBTX29W?oc=5) |
+| Trump says 'it's possible' US gets involved in Israel-Iran conflict - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOQWd5SU5DVzRNVFQ0cWxfWU1PVzJtN0xoc1AtdmFfajRtc1Rja3RmbElEWFVKdk1nQm9zVklac285dUZxVFYyMWRsR3locWVZOUhyeTBaNUtpV0R0ZHJvcjB6WVhrbGcxNTNfbFlrMU5maU40UHBaM3lERVZhRW45UGhNbUcxaG1OZllVdDBETC1fY1NkN2FKX21B0gGfAUFVX3lxTE5QLThDUGxXUzJHZGNkZ00wWU5PQnB5RU1GYWFfOWZ2TGtfWFRFZnBWV1FoUzQtVmNWblB6TjVaWGgzUGYzY0R6Z1dJUmtvWmk0ZzFWRG5KRnBzOVoySkcyTUxFSlR2VkFxeGkxcGRmTkdibUdTVWJsZHBkejNfTU42OGlndnFLc3QyUHk5XzJZU05yUnhOWU1JR2tveHNsWQ?oc=5) |
 | After Omaha, Nebraska largest worksite immigration raid, a community works to recover - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQQkZWemFWRWxiZHBPRElPNDlXTUgxXzJQSXlicTZIOWVqbnNfZWZtYWdZZnEzaThtd2NrMWR2eXM1QldoZ243SFVNWEJsVl9zZ0JVSWt0ZGN5R19ZTW5rTFZtOVRLZUhaX2JONmRrWVNRM1Rld3pLQnk0MFo0SEpsXzBRQlN2R2JMVXVRU29MOXpMYUhI0gFWQVVfeXFMT0dhY1R3ZjE4UjFLRDhOamNhSXRNSFFnbUQ5eXE1QVVyREZtUFcyaklrX0pGTEp2YUZ1cFllZ0d4SFE5TFhGWWN5OV94ZDhuQlg1ZGxSRmc?oc=5) |
 | Flash floods kill 5 in West Virginia, 3 people missing after inches of rain fell in 30 minutes - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1ZYWNHUWVFYVZMUjZkWDFpLWc3c3hTQUN0c1I1VEFreEhvYlZSVVp4N1lyN0JSaGpLSmV4dXRhN0pRVF9jSmR1WWtCeVl3d19XRjM5QU85dTNJUm1WQkRORVhoZldPWkJnXzFtTURvNkRnemPSAXhBVV95cUxQeElzelBzalg2V1VTQTdFTmhXRkU0STlVa0ZNRTB1dW9idHA1SW5OMVRqZkFUam9YMGRrVFZRdzE4c0wzQXE5LXJiWWpaQWUxTy1WVFpqd0UxLTNESW51Sm4zQXU4ZDFxSGRQdEhndjd4VkViTHdic18?oc=5) |
+| Riot on South Waterfront Draws Attention of Homeland Security Secretary - Willamette Week | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPSi1lc19Oa1VWVnM3Q2NWSnBkb3pQVjJmYk1vUUdRcWNweDZkeTJYai1CRWNTNjQyMWpRODM1a0llZDJxS3NLZWNOaU11M0lPRnpxaTVvWmpLM2RpVTN1ekVrM3hjTFJhN0hvUHpGY3QteFZ3X01uVlVSVHFFclAzSUl4bElJSk11MWR4V1Z1dFBIX1NlM2tzbGIwRC1ZMmozRWtHbjZ2SG1sdmFBcy1tQUl4anVCRHBq?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
