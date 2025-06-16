@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月17日 06:40:35（北京时间）**
+🕒 更新时间：**2025年06月17日 06:53:04（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Trump does not intend to sign joint G7 statement on Iran - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE9YalY4OXVXNXkzNThCcm9SbTlyQ1Zrcl9XNHJPWFlnSlVoOFYycFZoS0w5VlZ0Q3d3aFR2ZEZXckNLZEd0QTVPYjJQWWNGcjJyV1BqeHNPODRkb3UwbTMwTHdlOUdHN1Rxc0p6LXQtSXF2WGJoUVJUN09B0gF_QVVfeXFMUG16YWZVZ0pMNnJIbXlLamFiZEszQ2JKeVE0S1VyUUFTQWtibWZuRXV3aUtnZ0NURmlMdUpWRmwzVDZKSGNSVEoySWxOa1BsNm5RakY1M2ZoRFV0UWp5YVEtbG9RRVNTSEJlYkNGZVNBWUI3X2JObTlfRDlNN3VjSQ?oc=5) |
 | Trump Administration could impose a travel ban on dozens more countries - NPR | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPcEdLS0NGN3NVdUNsTjdaaTc0S0plUVZFeXJMSGZVelZLcHNyRFFHYkVIRUNhbHpnOXdSMFR6V014V2IxcGVjaUF1eXlELVlTa0xpeTYza0hBS0IxTC1aRTJMaGJ2VnlGVzhZX3ptWDVJX0pNRkduaHl4V3lRdF9mT3hwTThjR0YzaFl0ZmFManRTYlg2U3V3aERvTmktTVJCd1J2bkhKZlF6dFp2VEFkMXg1alNOU1k?oc=5) |
 | Trump’s focus on blue state deportation belies a red state problem - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPbzZjUnNENmkzUk9fUUU2dWFJaTZpUHVWZ3dJS0RIbV9sczNSTmNRNmV1S3k4SUhpd09jUlBTVzJVd0VjRXBtbUhWX1lhWXhxWHhtT1ZlTDFFSFAwZEFZRVJCMURqcWFTT0VKWTF3M3Z6U3NHR21KcE5fODIyczNSb3NXWHNEdVBUTURsQw?oc=5) |
-| Judge Delays Ruling on Trump Efforts to Bar Foreign Students at Harvard - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNaHVOTnp3dU84bml5S252ekRPLU5VRDlPTWpKMEE3blJ0Zm5qWDV1b1NyNjN3aEY1VFJrRjlzemhYSlptdUNDWXRyUW5HN3c2LUFkc2Y4SUdSdUtSUHYwakdNSndKMHFtZ3lfR3JubnB4Q0dfUFkxRmVPMHJhR1QyTm1sMnJqcEc4QVdkNktnT1RiQ3NGTlNZ?oc=5) |
-| CDC vaccine advisers who were removed from committee by RFK Jr. speak out - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNbjFvb2NnOGdoSlN6SzdlZ1RiWERaSVQtV3FEbi1ldW40QUQ5QzFlRzNZamgxWnlJLXJIeWlDOFBzWHdfeXJ1X296ckRGX0FKR3FvajVKeXJTMmdxNVI2TVp4QzFiUi1EcVdsWGpRWXFLU1A1SGF5cVF2VklRSWU1eUFjb0l3OU1JQXpGZ1VibFVIel9zRFpBejNvUHNvYi1zZVHSAacBQVVfeXFMUFVyVGZBcWZFMjMtbkFOZGtOTnBKbUdjRVA4UFIwQ29zQTlGUE9GZUR6eUlBc2FJQThwMzQtdWUzNGZmWUk4WjJlWllKMFEza2M1M1JwUzIyaHFBZlo5UjNaRG5KMkR0WWNVX2dOQU9RTWMxZmNqU21fWWdxUHlkbzhIVUdJNWtfNWItZkQ5NnRJZFJ1VjgtTnRpLXdhVHNXN2txd3JmVnc?oc=5) |
+| American Bar Association Sues Trump Administration - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOWmVISEgxNkRlM0tRY1FzU0pTQ2h4N1Vza0szbVpjMS04T2FHSmJoNVFUcEJJQ2g5TXF1SzNzZVI4V09hRm00SlZwNmpkM2I4Q2RuTXZSUGNpbk9oSG5tbkRib3RxRDh1MlNMSzNwUUJKU2kxZFJTWTd5aWJGaENMSUtYM1VQbDd3TWZBYkNKLUpyUkRmQ1ZUTw?oc=5) |
+| Judge extends order suspending Trump’s block on Harvard’s incoming foreign students - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQc2ZmcmJuLVBMR01WY0MtNC10WGRDYVJlZTF0VGhXMjJXbUNjTWZaWEtHTVFETE4tSXVyQU9qQU9BbjJDeWJxTmRKb2NiNllUd2RKZlY1bTgzWFdjX0x5U3dsMHRqaVZsYXF6aDd5QS1zUGYwVF9oUlI4YTBlTDg4NElpVG0xX3hzMmlFdkFsS21qU1RNLVlnd3dzLU4?oc=5) |
 | Senate version of Trump agenda bill cuts more from Medicaid: GOP aides - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9XODhNS2hvZWdYaXZrMTJTQUxoVXlKVUdmTmJqS1hWUGl3aHNCTjR6QUQ0My1QVXd2d1N1VWpLNXc1VXpocFlBb3EwTUI2eDlJeDM2eHgtMFNkZlJ6VmNfWl9YYmdnVlUxNTduWjM0S3ZWVXhfSjdhTzlHMA?oc=5) |
 
 ---
