@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月16日 14:14:40（北京时间）**
+🕒 更新时间：**2025年06月16日 14:27:19（北京时间）**
 
 ---
 
@@ -9,8 +9,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump told Israel not to kill Iran's supreme leader, says report | [阅读全文](https://www.bbc.com/news/articles/ckg7gl4zegyo) |
+| Watch: Explosions and damage across Israel as Iran launches fresh air strikes | [阅读全文](https://www.bbc.com/news/videos/cre9e4y2n17o) |
 | 'Nowhere feels safe': Iranians on life under Israeli attacks | [阅读全文](https://www.bbc.com/news/articles/c8xgxdr01wro) |
-| Footage shows burning cars after missile strike in Israel | [阅读全文](https://www.bbc.com/news/videos/c8rermxkx75o) |
 | Satellite imagery reveals damage to key Iran nuclear sites | [阅读全文](https://www.bbc.com/news/articles/c7808xvv737o) |
 | Police operation to target grooming gangs nationwide | [阅读全文](https://www.bbc.com/news/articles/c70601550rro) |
 | ‘I broke my jaw in half’: Accidents raise questions about funfair safety | [阅读全文](https://www.bbc.com/news/articles/cg5vjn604qqo) |
@@ -32,7 +32,7 @@
 | A veteran, a mom, and a construction worker walk into an anti-Trump rally - Nevada Current | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNRFhKQ1Z4Sjc4U0tRT21wVVllTXJ2b1hoUm95ZkRGam9GV0d5XzhPbGlQQzBGbFBKZTh5MFE5VmlyMXFXcjNkME5aX2JlYkd0TVhOa2MyUEtWUk1ERHJSc0Z1VF9CenprSUVicldXSkpjdEFkaUcyT3BIdm43XzZWeEtXdU9WMVBVN2piWEM5Z3hFc2VNNW41aVRzTDdqNjRzVW5fd09zdThWY3dJWFE?oc=5) |
 | After Omaha, Nebraska largest worksite immigration raid, a community works to recover - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQQkZWemFWRWxiZHBPRElPNDlXTUgxXzJQSXlicTZIOWVqbnNfZWZtYWdZZnEzaThtd2NrMWR2eXM1QldoZ243SFVNWEJsVl9zZ0JVSWt0ZGN5R19ZTW5rTFZtOVRLZUhaX2JONmRrWVNRM1Rld3pLQnk0MFo0SEpsXzBRQlN2R2JMVXVRU29MOXpMYUhI0gFWQVVfeXFMT0dhY1R3ZjE4UjFLRDhOamNhSXRNSFFnbUQ5eXE1QVVyREZtUFcyaklrX0pGTEp2YUZ1cFllZ0d4SFE5TFhGWWN5OV94ZDhuQlg1ZGxSRmc?oc=5) |
 | Flash floods kill 5 in West Virginia, 3 people missing after inches of rain fell in 30 minutes - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1ZYWNHUWVFYVZMUjZkWDFpLWc3c3hTQUN0c1I1VEFreEhvYlZSVVp4N1lyN0JSaGpLSmV4dXRhN0pRVF9jSmR1WWtCeVl3d19XRjM5QU85dTNJUm1WQkRORVhoZldPWkJnXzFtTURvNkRnemPSAXhBVV95cUxQeElzelBzalg2V1VTQTdFTmhXRkU0STlVa0ZNRTB1dW9idHA1SW5OMVRqZkFUam9YMGRrVFZRdzE4c0wzQXE5LXJiWWpaQWUxTy1WVFpqd0UxLTNESW51Sm4zQXU4ZDFxSGRQdEhndjd4VkViTHdic18?oc=5) |
-| Trump says 'it's possible' US gets involved in Israel-Iran conflict - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOQWd5SU5DVzRNVFQ0cWxfWU1PVzJtN0xoc1AtdmFfajRtc1Rja3RmbElEWFVKdk1nQm9zVklac285dUZxVFYyMWRsR3locWVZOUhyeTBaNUtpV0R0ZHJvcjB6WVhrbGcxNTNfbFlrMU5maU40UHBaM3lERVZhRW45UGhNbUcxaG1OZllVdDBETC1fY1NkN2FKX21B0gGfAUFVX3lxTE5QLThDUGxXUzJHZGNkZ00wWU5PQnB5RU1GYWFfOWZ2TGtfWFRFZnBWV1FoUzQtVmNWblB6TjVaWGgzUGYzY0R6Z1dJUmtvWmk0ZzFWRG5KRnBzOVoySkcyTUxFSlR2VkFxeGkxcGRmTkdibUdTVWJsZHBkejNfTU42OGlndnFLc3QyUHk5XzJZU05yUnhOWU1JR2tveHNsWQ?oc=5) |
+| Riot on South Waterfront Draws Attention of Homeland Security Secretary - Willamette Week | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPSi1lc19Oa1VWVnM3Q2NWSnBkb3pQVjJmYk1vUUdRcWNweDZkeTJYai1CRWNTNjQyMWpRODM1a0llZDJxS3NLZWNOaU11M0lPRnpxaTVvWmpLM2RpVTN1ekVrM3hjTFJhN0hvUHpGY3QteFZ3X01uVlVSVHFFclAzSUl4bElJSk11MWR4V1Z1dFBIX1NlM2tzbGIwRC1ZMmozRWtHbjZ2SG1sdmFBcy1tQUl4anVCRHBq?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
