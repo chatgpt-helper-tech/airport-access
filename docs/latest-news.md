@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月16日 20:13:26（北京时间）**
+🕒 更新时间：**2025年06月16日 20:27:58（北京时间）**
 
 ---
 
@@ -14,9 +14,9 @@
 | 'Nowhere feels safe': Iranians on life under Israeli attacks | [阅读全文](https://www.bbc.com/news/articles/c8xgxdr01wro) |
 | Man and woman who died while skydiving in Devon named | [阅读全文](https://www.bbc.com/news/articles/cy4e4jmzep4o) |
 | MI6 appoints first female chief in 116-year history | [阅读全文](https://www.bbc.com/news/articles/czxyx04dv1wo) |
-| Man suspected of shooting Minnesota lawmakers arrested after huge manhunt | [阅读全文](https://www.bbc.com/news/articles/cg5v5l4eylyo) |
 | Tory MP Patrick Spencer pleads not guilty to sexual assault charges | [阅读全文](https://www.bbc.com/news/articles/c4g7g1858rpo) |
 | Investigators find cockpit voice recorder from crashed Air India flight | [阅读全文](https://www.bbc.com/news/articles/ce818jlz5mlo) |
+| First heatwave of 2025 likely as temperatures to surge above 30C | [阅读全文](https://www.bbc.com/weather/articles/c4grg1w2xr7o) |
 | 'Shared ownership is a con and we felt trapped' | [阅读全文](https://www.bbc.com/news/articles/clyz8m8jj4mo) |
 
 ## 📰 Google News
@@ -31,8 +31,8 @@
 | Military parade and No Kings protests: a split-screen of a divided America - NPR | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNUkJMcWUxOXN4WkQ1azVRQ3B0dHo4LU5VN3NBRE5HQUl2blZncUM5emQ0Z0YtQ2xJdHgzaHhMZDFPMXJ6ZUlxNG9naWpuSUt5UWVsM0UwWm1OajdxbVZ1LTVFMTNjZzB4NHdRMHBXY2pqdlVvb0FoY3NfWTNVNVhiMnpDTGQ3ZWluRzlzZnREVWhRVjk0dnFkc0pqVi1OcmlRcHVwVmwyUmtIUVRwQXVJSTNqeWtXZw?oc=5) |
 | Three people, including infant, killed in carnival shooting near Salt Lake City - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOWVE2by1NNWdubEdpaG9QcEEzUmZocnhVc1hlRnRJM3NXN213ek9FWC1KSHJCSXJVSUZRY05TYkgzeTRRd2lvR3V6RHZlZ1JVRVFMeXVHcWVNRkhFT2xyRUlKbDJfQ21WV0J2N2Z3amlCV2k3cFE1MHNsU3E5Z2E0bjhROFpRR09VUjdmRlYyWEIzNWQ3X1c2dFlDeHpIM0REM1NyWkt2Y014ak90Zk1JOTRraTZMbXVFaXBj?oc=5) |
 | Protester shot and killed at ‘No Kings’ rally in Utah, police say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9jRS1MaExvdlFWenRFdGpON1ZZdk90MXM2WWxvWlZuZjV0TFdWZDFpRUZsUVhQTndpTjg5eEVSQ3NINmlJWlZDdGlfZ0NvOEdyQkl3dVRNaUo1MXZ4YkoxRGJJRlk1QVJFYjJmLTR2WEN0OEszS1F3WmZIWFJzbzDSAYQBQVVfeXFMT3NmaDFyc0tXX1J2Zndjb1V1MjhvMllwR2hYZGt0bWhZdWwwZHlyNnNraWdhWlFNNEE5UkhHVFpqYlBYZU9zVGY2Zlh6SEJ3SmdwTUtWd2MzSmppNWlmWEVSalYzUm9PbDBVLUtPdERWZEViencwWTg4eTE2XzRTTXBTX29W?oc=5) |
+| Former surgeon general fears precedent from vaccine board purge - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5yejdRM1lvalRKS2l5Wkd4cEV5M0x4alNYbkFKVEEwdkVEYmZIZDgzeTA5dGNGd0poMVg2RWdNbjFGb2MzMUpEQVQzSWF3U0xSTVhxd2FHcmlaZ1RtbmN6NDFiR0ZFZ05aSThwV01TMXRYaU9kVkE2QktfcHU3XzA?oc=5) |
 | West Virginia in state of emergency amid deadly flash flooding, building collapse - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOUW5reXV2MENvSzNFeElMMU05NkRxbkFlejhHWmQ1RzVfRXgzV3U1Y1ZqeWp0RHNuYlk5cWFqOXJmZzMyMS1YTUkzWHF3RnpEOG8tMklkMGYxU0RxMFd3OUtHeXVDSVZnZWRpUzlTSjVvSzh4Ynk4R1UxZmQ4T05qZXByMjJmbk9FeTVHTHBqeV96dm1FZHVJS2tYUzRSTjdKeEt30gGoAUFVX3lxTE5HUmJBR05JeGhaaHkyU2haVVBiRFptcWdnY2U1eGh5UGlpYV80bnRZdzRjNTdCN1pyRWpWdGFtdHUzVVNPb0JaMHRfOE5ubGRFdm5Vd21kMGYzam9fMjBTYjl6QUtVNUNfWDJnU0tWSmJjcnFrdzFINGdheFUzS2xQMnVoVndUd204WGZfeW1SMl9zemZudkdvU3JpMUlmM2FWRG9NbklZYw?oc=5) |
-| Trump: ‘It’s possible’ US becomes involved in Israel-Iran conflict - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQS3V1UkxpS0llWUxIWkxYMjBEZEpvNUEyYlJhYjZWeGtXVWxlZHBTZldUTVQ2Qy1QTDBJQlQ2Rk9pa0xtRTYxZE1LcWhfWW9EM2JQTlBtTzltcTZPa2hhVnNMTklzaVdQVV9aaDRsZnN1NjlKemFUNG5jODBJMFJSTkJ4cHVSc254ZzFDVy14Szc1bDRQd2VHZzN5c0VJaWw4azNRYl9MSEJGdzBE0gGyAUFVX3lxTE93eWNNS0Z4Ty0wbGVVUnVLQVZ6OHQ0aTR1YkhKTjlNVUtDNWE5WUo0eXdKb0Z5ME16Q09VTVZjWUtaRllxUl9Od2NFSnlhUWt4WXhQd1dHNmphb1FSVm9fd19FMDZpOTRsYmVYb2E5NnhSaVdxdUd1SWdBT1E5bjcxY1JiY0hXTVRmT1VDSklHV2JJeU9kc3pqbDlHQWRPcW1xSmRQVUd6ZjNlemJmV2NaMkE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
