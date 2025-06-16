@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月17日 02:53:28（北京时间）**
+🕒 更新时间：**2025年06月17日 03:00:13（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Senate GOP tax bill would hit politically explosive Medicaid provision - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxPbG50S2ZPXzI1UkFTR2RsemE0UmxSX29kRlJyeUpEN0Z5cUEzaGpZS3M2bHVUdkxPN0VONU1Xc3BEemtuM2NWdUk5SDdOdk9STTBqbnBUcC0yRU1DenRTMV9ya2Nnajl1QlVtV1lON1ZLam1nV0EtbW5YSkc2Y0hQVDY3dzRfcWd0MHFlSDE0MU1rQmFHZ3VXNFhRVlFVMzZ3STd3c3ByMkIwTGtFcV9QSm82UFg2Tm10ZnR1dXVUQ1ptbDBfaVVYUUtxVXlXY0czS0xB?oc=5) |
 | Exclusive: US bolsters Trump's Middle East military options by moving refueling aircraft, officials say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQUWFuM281eUxPempXZ054Y21xX1E2d2E1YW9fS1FVQkV4bm9tTHpCelpGeS1lUlI2RnBaTkEyZHdzeWJfMzQ3Wmp6bjJ5M05oNFhRcnRWblpVWXF4bkN3WGZ4aVBvNFU1Tl9ydmk0V1cteVZyNVRrbi1TWDNlVnZSN05LSnBPUUhiY05OdUN5dGxkUHhFOGZEb0lDM01pRzItN2F2VEt1QVRMeXpkdGd4UUxyMGlzY3Z1?oc=5) |
 | ‘Project Runway’ Contestant Killed In Utah As Lone Fatality In ‘No Kings’ Protests - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxPUEl2Wk45MGZyZW9Ybnp2blEtblo2NjZCZi1tUUZqVkVpNlJlRUMyTlo1SlFsS0VOejdBLXE3YU45YVBCb05hbDUtVDd3SUV3MkZxZGt4MjNLUEFMUUVlSVdQd2pzelBUZlV3bHhNQmpWUUN4eVkwa1Itc19ZV24zT2JaU1NESTJfeVo5WFVtenc3YUxJVDh0VnFhSnY4UGZDb2U2Sm13Y2k0aWViRnhvSndYTDNZSVZSOXEwWlo5N1JMYy1MSWVTU3NB?oc=5) |
-| US notified Turkey before Israel began attacking Iran, sources say - Middle East Eye | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNRFdJMENoZ1VLdUpTeEFTSkl4UTNEa1lyTWU4dHhwQkJwNU9rMmRUR2xFSU9RMjdrdDhZMjFwaF9XYmxzQ0tmY2EyYU1oVk5ITWpDOS1lcE9ieVBvUDkzZzdLelJZbXBEX0thZEJteGw5ak9ieF92RVQ2WnFQMnBQSkNOTUZKa0lhMFJJR3J4aEM3VW43dW1WNERCOExfUQ?oc=5) |
+| President Trump fires a member of the Nuclear Regulatory Commission - NPR | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNRXNyOXZTUmxGN2tUVzBkUndyNm51OGg0RjlNSG1CN3c2cnl3TFRwYTM2UHZaaTFDelNmN0xncmk1Q1BJSmYxWVpoYVNVd3FndVJ3WXJiX3pJRnllT1pFbHdGSXhuZFRPRE16Q1pETTM3MDB6Y1hzSlViS0VHNUlxME9BTlNyY01rNGV1di1iYnl6d3dSa19xMkl3NmxmQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
