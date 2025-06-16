@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月16日 08:27:32（北京时间）**
+🕒 更新时间：**2025年06月16日 08:40:22（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | President Trump Celebrates U.S. Army’s 250th Birthday with Iconic Grand Parade - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQMmRDczNqMGRBQkU2Z0lEZmhVWlVKcmhWMDZPem1RVGpNeEJOOHNSeHV0eVlpTzVrU3RQSnJJSEFzZ2V0ekM5LWdLcXNzaC1xb3U3SEZIREQ1WXNaRkZCS2pvWmtHNFl2NE9zcXZuYmJGT2kxeWtRcXNJWEt5ZzVpVFNKdTMyaWdIVWlvMGw1emx6dExqeGpsUEt4dmNuTTl3ZFhzVVNFMVlkTi1icTl6OW1aYkQ4R2d5RE12V1ZB?oc=5) |
 | Padilla says FBI agent, Guard member escorted him to Noem's briefing before removal - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE05RzZnOVRJY2JrekFWUW4wOU9WSmhaaHY4Z251ZkctRlJUZTM2TXNOZjZvWXAzeVREUllLbFcyX1dtQWJnS25zREdON3VaZUx0elNCQjUtUmRFV2NRTFhnVXhSejE0ZkxoaDVtRFZYWW41dUF5M0RnSA?oc=5) |
 | At Least 4 Dead and 4 Missing in West Virginia Flash Flooding - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9ZWFJoRnhRYXBMemZGb1RqM0Zid3l5d01hNm9vXzlkUl9PZHo1VTlMd1p4dnRPcFZ1b1Y3NEpReWFJX1l0VHoxMzkxQnVSakw5LXM5cnd1OEJaamQ4bVhVdkc3WHdDa2FuMF9USjVQREpqQjItZTBiY3g2bzQ?oc=5) |
+| ‘No Kings’ demonstrator dies after being shot at Utah protest, police say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQSmt0cFpXYVdsNHRDVGdvYVlWV1NiUFNpRVljdnotQUlZZ2FiYmxaNk82ZjdRX2Q2eXAycGI1dDMzc0JSQUFKTjAwYzRRY0tzOVZMYW02MEJDZUpPbExXT2UyOUZlNUV1YjlETXh1VWNZbzFVNzQ0RFd3WEpRNy16SnctaHE4VmNqSVIySUFOZ3djWnBHTXhHRDFRQ2h5ekxS?oc=5) |
 | After Omaha, Nebraska largest worksite immigration raid, a community works to recover - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQQkZWemFWRWxiZHBPRElPNDlXTUgxXzJQSXlicTZIOWVqbnNfZWZtYWdZZnEzaThtd2NrMWR2eXM1QldoZ243SFVNWEJsVl9zZ0JVSWt0ZGN5R19ZTW5rTFZtOVRLZUhaX2JONmRrWVNRM1Rld3pLQnk0MFo0SEpsXzBRQlN2R2JMVXVRU29MOXpMYUhI0gFWQVVfeXFMT0dhY1R3ZjE4UjFLRDhOamNhSXRNSFFnbUQ5eXE1QVVyREZtUFcyaklrX0pGTEp2YUZ1cFllZ0d4SFE5TFhGWWN5OV94ZDhuQlg1ZGxSRmc?oc=5) |
-| Trump says 'it's possible' US gets involved in Israel-Iran conflict - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOQWd5SU5DVzRNVFQ0cWxfWU1PVzJtN0xoc1AtdmFfajRtc1Rja3RmbElEWFVKdk1nQm9zVklac285dUZxVFYyMWRsR3locWVZOUhyeTBaNUtpV0R0ZHJvcjB6WVhrbGcxNTNfbFlrMU5maU40UHBaM3lERVZhRW45UGhNbUcxaG1OZllVdDBETC1fY1NkN2FKX21B0gGfAUFVX3lxTE5QLThDUGxXUzJHZGNkZ00wWU5PQnB5RU1GYWFfOWZ2TGtfWFRFZnBWV1FoUzQtVmNWblB6TjVaWGgzUGYzY0R6Z1dJUmtvWmk0ZzFWRG5KRnBzOVoySkcyTUxFSlR2VkFxeGkxcGRmTkdibUdTVWJsZHBkejNfTU42OGlndnFLc3QyUHk5XzJZU05yUnhOWU1JR2tveHNsWQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
