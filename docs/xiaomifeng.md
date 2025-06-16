@@ -1,6 +1,6 @@
 ---
 layout: default
-title: 小蜜蜂机场测评｜618限时特惠｜全IEPL专线｜不限设备
+title: 小蜜蜂机场测评｜性价比机场｜全IEPL专线｜不限设备
 description: 小蜜蜂机场是一款全IEPL专线的高性价比翻墙工具，稳定解锁ChatGPT、Netflix、TikTok、Disney+等流媒体平台，支持不限设备、Shadowrocket、Trojan协议，适合重度用户和跨境电商团队使用。
 permalink: /xmf/
 ---
@@ -145,11 +145,22 @@ permalink: /xmf/
 1. **点击注册链接：**  
    [👉 注册小蜜蜂机场](https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A)
 
+![注册](./assets/xiaomifeng/register.webp)
+
+
 2. **左侧菜单->购买订阅>选择套餐,大部分套餐能使用推荐码 `xmfxmf7` 享618七折优惠**（支持三年付）
+
+![套餐购买](./assets/xiaomifeng/purchase.webp)
+
 
 3. **左侧菜单->教程->下载客户端（看自己的操作系统下载）并导入订阅链接**
 
+![下载](./assets/xiaomifeng/app.webp)
+
 4. **左侧菜单->首页->快捷导入订阅并导入订阅链接**
+
+![导入订阅链接](./assets/xiaomifeng/sub.webp)
+
 
 5. **尝试能否打开[https://www.youtube.com](https://www.youtube.com) – YouTube 视频**
 
