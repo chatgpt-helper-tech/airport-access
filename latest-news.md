@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月17日 03:52:51（北京时间）**
+🕒 更新时间：**2025年06月17日 04:01:04（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump promises expanded immigration crackdown after ‘No Kings’ protests - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQbmJjTTUwNUJFb2FaZTdpS3g5QjdESldGY3gyRTdrNzZQbnNZZEI1MXFONmE0YXFhcTlMNl9xWjdma2dNY24xa3A0MnpOQ0VBVGhQbW9yOWd1MHVjanVPVTBlN0dYVTVwVnVySDY3b0pQX2FVaEJJbHZlVjZBczc5NmVFTUYzU0VkV042UWtn?oc=5) |
 | Netanyahu tells ABC he's not ruling out taking out Iran's Supreme Leader Ali Khamenei - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOSEhRT2FDRWhrTHd1bWJza2JPVU44ZXlXUmRaMjVTckVpQmM2TjJaZUF6eXVhMFJTVktnajdiQ2JydHVfRVFFSEpkT0NocktZTTNVdHNBaXQ1RkMwNXZVNmFaWTZrWDdlNlFWeHRyOUpOeGY3U0wyTk01bS0zZTNWSm1BVnBnRnpTdFhPZzhnUmdHeFFuV3Ria2VHREUtSGd5NWpHU2U0ZmTSAa4BQVVfeXFMTUVlSlY5c01sS0dOci1WMENtMlh5YnhvTy1zemxCUlNPOVlCUVJKMUZ1TDNDbTkxZzF3QWY0am1kbjU4M1F1TVBHcHI4OVhMTFZUWmQ0SFRNVWpEU3U1cUQ2WEs4NjRMWEtJT3FRdmR0SUxWVmg3VGtTb0tzTC1ONGFZd2FvNTUta2pGNVVfeUxfQVdlblpkZ1I5bk1rY3dYTG5Nbkt5YmJwZFFOTWpR?oc=5) |
 | G7 is a big moment for Carney. Here are five things to watch - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1NWDJ6dW1iQkRkVEs4WUlhdnZUVUV0R1gzRGpmNTV2WVNVMC1FZVlUaTBLaWZoNi1rUmRqV0ZpVzZPZ3k4NmFGQXpVRTlmQmc0UjJJdC1Hd2xyUdIBX0FVX3lxTE9NTHBvMVpJQWszMEdqbVYwd2pJNno2bEpjZUo3amtEdy1qWEdaVWFpc1Z4RnpMdzJ1WE1PQ3F6LUNwTDZsMWFmajJRMVVVd0dhbS0wYVg1ZXRHTTlaRm8w?oc=5) |
+| Harvard secures extension of court order blocking Trump's international student ban - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQV2RjLVVpanZ2T3o1VEJLaThfQ0EzNTN1cFF6bkt6RkZSbmtJTmtnT3lxeFZRTGhGMDZiOXNFS01XNFl3MDhXaG1xLWFNXzNQX3o2b2xlN05yNzc1NE5FeTkxMnNNMU5ESDcxcEFmNW9CekpmR0ZJc1hRdXlnUE54SEpnbUM4YUZYVTlOWlFfT01jV1ZNcU9jcVVxLTI0dmZKcWlLR0VDRVM1YzVqWVVv?oc=5) |
 | Senate GOP tax bill would hit politically explosive Medicaid provision - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxPbG50S2ZPXzI1UkFTR2RsemE0UmxSX29kRlJyeUpEN0Z5cUEzaGpZS3M2bHVUdkxPN0VONU1Xc3BEemtuM2NWdUk5SDdOdk9STTBqbnBUcC0yRU1DenRTMV9ya2Nnajl1QlVtV1lON1ZLam1nV0EtbW5YSkc2Y0hQVDY3dzRfcWd0MHFlSDE0MU1rQmFHZ3VXNFhRVlFVMzZ3STd3c3ByMkIwTGtFcV9QSm82UFg2Tm10ZnR1dXVUQ1ptbDBfaVVYUUtxVXlXY0czS0xB?oc=5) |
+| After early reprieve from immigration enforcement, farming industry reckons with raids - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNOTl5RXRIdmktODc5VXRGSlRCZHNIN2Yxam5IM2NXM3AzWDFkVThMV2lvdlFyb0RYaTBEY1FmeVROcUlNZjF0d3R4bG5Yb3VwY0FKVzdpMXFuNHRjMnZMdDUtTUdIenl6MFJ0YzBsZ0dXUktLZjM3Vk40SG1kaG41aG45S3R6QzM0T1J2N1NXLS05S0piNkZNSldzM09MT29hNVRLbkJLVQ?oc=5) |
 | ‘Project Runway’ Contestant Killed In Utah As Lone Fatality In ‘No Kings’ Protests - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxPUEl2Wk45MGZyZW9Ybnp2blEtblo2NjZCZi1tUUZqVkVpNlJlRUMyTlo1SlFsS0VOejdBLXE3YU45YVBCb05hbDUtVDd3SUV3MkZxZGt4MjNLUEFMUUVlSVdQd2pzelBUZlV3bHhNQmpWUUN4eVkwa1Itc19ZV24zT2JaU1NESTJfeVo5WFVtenc3YUxJVDh0VnFhSnY4UGZDb2U2Sm13Y2k0aWViRnhvSndYTDNZSVZSOXEwWlo5N1JMYy1MSWVTU3NB?oc=5) |
-| Senate Finance to huddle with big tax groups ahead of text release - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOMFo0dGZHSmQ0WUc4V0dncXBVRktadFcwMXBmNDRFY1BkRHg3OVdrVTNaNm1Mc2xBYUR2aGRtd2dDck9qa2Y1eUlUNzBGZzBDdGVidmMzaGNKRFNuWV9JZXRscEhKUVpjc1FkWkt0dnd6cjYtUk5ycWlmbXMtM2ZCVTRXMk9sMUJKQ0F0aEVRcjE5TzNFNnFPTDJ6ZWpKSjBaNVhoeW8tSm9EaUFwWUVKS2xxSXRNb1dTaTlPeVRSNS1fbEk?oc=5) |
-| Trump gets his D.C. military parade, but "No Kings" protests cast shadow - Axios | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNdjJ1RmVkMWFUU2w4d04wQmZydmxuMnphUnlsOVFVVzlnRU1DWHlId1BJX1Y3ZVRBWDkxVmQ2UmFMdGY4WFJ5TGVuaUtQd2s5YXlZWU1rYmxkeXFVZ3FhX25ZQ0pySVktZ19GOUM4ZWNFNVVtOTZVcF9wRzZZTVhUY29qVWZQaHFVcGFHSDRWYllRYjNqdnRzYlJqcUNWSzdYN1J4MQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
