@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月16日 14:52:16（北京时间）**
+🕒 更新时间：**2025年06月16日 15:00:57（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Live updates: Suspect in Minnesota lawmaker shootings captured after manhunt - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPNjViM0o0a2V3NEtNRmdWUDFrZjBLNlJ0N1ltZFdmWmJCeGtkQTFqbnhPOWMyUHlHLThiWVpxQW1fc3FIUzdFQm9ibTM0S1ZoZW5DWU1SNTdHV1pwNlZoZnlJa1RtRk0tNl82bm1GWjJxOGlmUF9xUGo5U3BuMzVPSC12Vlc3dGs0RzRCOUlMT1BXYUNPMmZHcHBVaFVmUDhUb1E?oc=5) |
-| Israel-Iran latest: Israeli air force attacks missile sites as Iran launches new barrage - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBqN2dXcEhVM2g4M2UyTnFndXd1WnJqVUNkRG1PSlA1UW03X1VaVmdyS05wZmRFalZqWTJmSTluZlNIZ2paTmxaN2V1MWQzYUl2eV9BQTRMWnRWcDZ0MjJ1cTRYYXd3SDJPOGh0ckQ1Y3Y?oc=5) |
-| G7 is a big moment for Carney. Here are five things to watch - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1NWDJ6dW1iQkRkVEs4WUlhdnZUVUV0R1gzRGpmNTV2WVNVMC1FZVlUaTBLaWZoNi1rUmRqV0ZpVzZPZ3k4NmFGQXpVRTlmQmc0UjJJdC1Hd2xyUdIBX0FVX3lxTE9NTHBvMVpJQWszMEdqbVYwd2pJNno2bEpjZUo3amtEdy1qWEdaVWFpc1Z4RnpMdzJ1WE1PQ3F6LUNwTDZsMWFmajJRMVVVd0dhbS0wYVg1ZXRHTTlaRm8w?oc=5) |
+| Live Updates: Israel and Iran Launch New Attacks; Trump Nixed Israeli Plan to Kill Iran’s Khamenei - WSJ | [阅读全文](https://news.google.com/rss/articles/CBMiZ0FVX3lxTE1ncGRNQlB3YVlYMUl5MFhWVncyeVpmS1dSYVNqcUNoUHNtSkhDWF9oWTBFaDBqMlJSQjUyTms4MGlKQnpnYXVlazFTeFpveVZDX2JDTEd4RXRBMzVyOVBTM1p2dXRSOWc?oc=5) |
 | Trump orders ICE to step up deportation efforts in Democrat-run cities - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQNHhjNllOQk1abG4wRWhzcnNpUWoyVm9wTTR2cGV5bWdYbFJEeUp1cEp6aWZjVnRLNHJlallUaDhTZC1ZZHZWWUkwY2gwNDJKMnFjd1UxQ0ZLRG9DVWZCMlBsU3pyNV81dHJ5Rl93T201TEY3eXpyZ0taci1pNE5wZ0NXUQ?oc=5) |
+| G7 is a big moment for Carney. Here are five things to watch - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1NWDJ6dW1iQkRkVEs4WUlhdnZUVUV0R1gzRGpmNTV2WVNVMC1FZVlUaTBLaWZoNi1rUmRqV0ZpVzZPZ3k4NmFGQXpVRTlmQmc0UjJJdC1Hd2xyUdIBX0FVX3lxTE9NTHBvMVpJQWszMEdqbVYwd2pJNno2bEpjZUo3amtEdy1qWEdaVWFpc1Z4RnpMdzJ1WE1PQ3F6LUNwTDZsMWFmajJRMVVVd0dhbS0wYVg1ZXRHTTlaRm8w?oc=5) |
 | Three killed, at least 74 wounded from Iranian missile barrage on central Israel - The Jerusalem Post | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTFAwYk8yYUFMeXlvRUktNnRMay02OVUzZ1doclQ5YkJIS2tCdTVPcS11R3JsNUhmbEx4SFNZbERxTzFDOWtvdVBBZHBxS1E4b19PeVdCTWNBRVBEbGU3ZzYtWFRvWVBnX3JzTmdYMzln?oc=5) |
 | Military parade and No Kings protests: a split-screen of a divided America - NPR | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNUkJMcWUxOXN4WkQ1azVRQ3B0dHo4LU5VN3NBRE5HQUl2blZncUM5emQ0Z0YtQ2xJdHgzaHhMZDFPMXJ6ZUlxNG9naWpuSUt5UWVsM0UwWm1OajdxbVZ1LTVFMTNjZzB4NHdRMHBXY2pqdlVvb0FoY3NfWTNVNVhiMnpDTGQ3ZWluRzlzZnREVWhRVjk0dnFkc0pqVi1OcmlRcHVwVmwyUmtIUVRwQXVJSTNqeWtXZw?oc=5) |
 | 'Innocent bystander' shot, killed by member of 'peacekeeping' group at Salt Lake rally - KSL News | [阅读全文](https://news.google.com/rss/articles/CBMiTEFVX3lxTE1KRDBGdjkxRE1FLW1TRDlGbWFWQ1NOZkxWbWpwQmlwQ1l6eVd3Q3dENzUtMFVnVklJOFc5OXdyN0Fudlo3V0RybUNDQ0s?oc=5) |
