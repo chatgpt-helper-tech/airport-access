@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月16日 09:26:25（北京时间）**
+🕒 更新时间：**2025年06月16日 09:39:33（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Deadly flash floods kill 13 in San Antonio and at least 3 in West Virginia - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOYUdHeVBjaDgxU25HTXhZNmFQamJhYURJT1dLbE02UWFkYVAtbG5xYnF2Q2NIazNmcWJ4elVlVlB4Z2g3Tm1GSlA3Rm9COExHMmNTUVYydWwwcXRjOEFWWGt2clNjWW1wdW5NVnQwakcyU21rWmwyUWd4cjhEU0lrcjJoM25FbkNKMkl0TUlzNkpPRE9x?oc=5) |
 | ‘No Kings’ demonstrator dies after being shot at Utah protest, police say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQSmt0cFpXYVdsNHRDVGdvYVlWV1NiUFNpRVljdnotQUlZZ2FiYmxaNk82ZjdRX2Q2eXAycGI1dDMzc0JSQUFKTjAwYzRRY0tzOVZMYW02MEJDZUpPbExXT2UyOUZlNUV1YjlETXh1VWNZbzFVNzQ0RFd3WEpRNy16SnctaHE4VmNqSVIySUFOZ3djWnBHTXhHRDFRQ2h5ekxS?oc=5) |
 | Padilla says FBI agent, Guard member escorted him to Noem's briefing before removal - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE05RzZnOVRJY2JrekFWUW4wOU9WSmhaaHY4Z251ZkctRlJUZTM2TXNOZjZvWXAzeVREUllLbFcyX1dtQWJnS25zREdON3VaZUx0elNCQjUtUmRFV2NRTFhnVXhSejE0ZkxoaDVtRFZYWW41dUF5M0RnSA?oc=5) |
-| Trump Military Parade: Darcy cartoon - Cleveland.com | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPSXlfN0JQUDktSkRfb0dGa05nZGNYVDlSMmFOZ1lKWkpad0hveldsdmszWmhhOThPSGJUT2w2R0lGUXZPUVNJSGRsMlhnQ0djX3ZsS1lVU1hQZG5yOG5QcnpGcmRyTEQ5TGNMMTRha2p2MnZHbERONW12YWVxWTJRNE52cFQ5cDjSAZsBQVVfeXFMTjhrZEFpWUZzRjQ4Umx4Zms3R2FVZU9oTW1jRjZkNVBxQWJRQnMwQ2IxUlJvRnVHSkVQeGxLSU5oNVZONlZveFJoU0dtem96b1ZwalNfMUo3SHdzWDZIaFIxTVlsWUtGRXU1bnhJdEFFY2Fvb2VDZktyeXI4UjgyckxaUTNmOTdJS0sxVktFaVpHRU5oVG42ZkxPVU0?oc=5) |
+| Takeaways From Trump’s Military Parade in Washington - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOVG82dHZHZU1zYzZReV9fTHcycGVDVGJmcF96TlVKem9mWEd2SV8za3ZraFlkcjVSNVpkV3VxQ0p5dmVtR1dGVGRiTjcxUEtlcGZYdHk3RzlocnF2RG5LNU50OFZvSlpIVXJwOW5rU0FHVEhPU0JXajF4X1N2WHdrVXhhWk9DYWFFRU5n?oc=5) |
 | Woman with gun among 2 arrested at Pueblo 'No Kings' protest, police say - 9News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNVnRCVFRKWm50OGRaZjh3UnNINi1YMVVDQUR3bFFvTnFyU2YzUUVHWVgweXNvU0tEc3pRU0xBaWZLRF9wLWxQeTg5b0pKMjBhR015Y2EyR0M2c045TTBGRHdTZXI0eV9SbEFzMV9kRU43SFZWTUhuaThhdVZVZnBtZGxIaUVkbk1pUFJXRXFsVTF5T1FKdTBwQjVMb0JfbVFEczg3MGp0bnI1dUpfVGdWN3lOeU1jUQ?oc=5) |
 
 ---
