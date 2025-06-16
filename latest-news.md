@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月16日 15:53:20（北京时间）**
+🕒 更新时间：**2025年06月16日 16:00:26（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | Man suspected of shooting Minnesota lawmakers arrested after huge manhunt | [阅读全文](https://www.bbc.com/news/articles/cg5v5l4eylyo) |
 | ‘I broke my jaw in half’: Accidents raise questions about funfair safety | [阅读全文](https://www.bbc.com/news/articles/cg5vjn604qqo) |
 | 'Forever chemical' scientists fear may affect reproduction found in 31 UK rivers | [阅读全文](https://www.bbc.com/news/articles/cm2yjxxvx08o) |
+| Investigators find cockpit voice recorder from crashed Air India flight | [阅读全文](https://www.bbc.com/news/articles/ce818jlz5mlo) |
 | MI6 appoints first female chief in 116-year history | [阅读全文](https://www.bbc.com/news/articles/czxyx04dv1wo) |
 | Truckloads of Scotland's rubbish will be sent to England, experts say | [阅读全文](https://www.bbc.com/news/articles/c0r1de24pdgo) |
-| Chris Brown returns to Manchester for first show in city since arrest | [阅读全文](https://www.bbc.com/news/articles/czdydj938mvo) |
 
 ## 📰 Google News
 
