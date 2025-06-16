@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月16日 20:52:28（北京时间）**
+🕒 更新时间：**2025年06月16日 21:01:57（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | 'Nowhere feels safe': Iranians on life under Israeli attacks | [阅读全文](https://www.bbc.com/news/articles/c8xgxdr01wro) |
 | Man and woman who died while skydiving in Devon named | [阅读全文](https://www.bbc.com/news/articles/cy4e4jmzep4o) |
 | MI6 appoints first female chief in 116-year history | [阅读全文](https://www.bbc.com/news/articles/czxyx04dv1wo) |
-| Tory MP Patrick Spencer pleads not guilty to sexual assault charges | [阅读全文](https://www.bbc.com/news/articles/c4g7g1858rpo) |
+| MP Patrick Spencer pleads not guilty to sexual assault charges | [阅读全文](https://www.bbc.com/news/articles/c4g7g1858rpo) |
 | Investigators find cockpit voice recorder from crashed Air India flight | [阅读全文](https://www.bbc.com/news/articles/ce818jlz5mlo) |
 | First heatwave of 2025 likely as temperatures to surge above 30C | [阅读全文](https://www.bbc.com/weather/articles/c4grg1w2xr7o) |
 | 'Shared ownership is a con and we felt trapped' | [阅读全文](https://www.bbc.com/news/articles/clyz8m8jj4mo) |
