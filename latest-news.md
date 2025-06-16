@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月17日 04:27:49（北京时间）**
+🕒 更新时间：**2025年06月17日 04:40:57（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Netanyahu tells ABC he's not ruling out taking out Iran's Supreme Leader Ali Khamenei - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOSEhRT2FDRWhrTHd1bWJza2JPVU44ZXlXUmRaMjVTckVpQmM2TjJaZUF6eXVhMFJTVktnajdiQ2JydHVfRVFFSEpkT0NocktZTTNVdHNBaXQ1RkMwNXZVNmFaWTZrWDdlNlFWeHRyOUpOeGY3U0wyTk01bS0zZTNWSm1BVnBnRnpTdFhPZzhnUmdHeFFuV3Ria2VHREUtSGd5NWpHU2U0ZmTSAa4BQVVfeXFMTUVlSlY5c01sS0dOci1WMENtMlh5YnhvTy1zemxCUlNPOVlCUVJKMUZ1TDNDbTkxZzF3QWY0am1kbjU4M1F1TVBHcHI4OVhMTFZUWmQ0SFRNVWpEU3U1cUQ2WEs4NjRMWEtJT3FRdmR0SUxWVmg3VGtTb0tzTC1ONGFZd2FvNTUta2pGNVVfeUxfQVdlblpkZ1I5bk1rY3dYTG5Nbkt5YmJwZFFOTWpR?oc=5) |
 | As G7 leaders meet, allies ask: Is Trump with us or against us? - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQaEkydEZoYmFuUVVzbXBocGVCaXdOMnVuZ2xJdVVkSnFjTWlENXp4M1MtcVk3bWtVRzkwZUh4WHlmOGc3MmgybV9KbTF4R3BFS1Q5SDhCZHdXaU9aNU5yYXI4bkZkazVrUXlKNjl0ak9YUWdMdEtpaFJzUm5ubC1ndW5SaWFXZmRHNnJNb3piVUQyTTZnSG1pYS1FTFp2V2ZNeUJiRXBpVdIBrAFBVV95cUxNUzhkeW01ZXJOZDJsVWs4STBya2V1SFYxaEVkX012dE5jRXVrRVFINTVPQk9yZUV6aVFYdEVrQzVzeGRMUWtjbW9KT19XNldVckpDOGJLc2ZMaVBCbFFxSURnZ3hGREVJTV9RMlI5a042ME94SGVCOC1TTWZhZlBlWjRSQnppVzh5UGFvUGFRSC1HWlpXNThsamp2LUktbHF1U2RnemxYYmd4OWw2?oc=5) |
 | Harvard secures extension of court order blocking Trump's international student ban - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQV2RjLVVpanZ2T3o1VEJLaThfQ0EzNTN1cFF6bkt6RkZSbmtJTmtnT3lxeFZRTGhGMDZiOXNFS01XNFl3MDhXaG1xLWFNXzNQX3o2b2xlN05yNzc1NE5FeTkxMnNNMU5ESDcxcEFmNW9CekpmR0ZJc1hRdXlnUE54SEpnbUM4YUZYVTlOWlFfT01jV1ZNcU9jcVVxLTI0dmZKcWlLR0VDRVM1YzVqWVVv?oc=5) |
-| Senate GOP tax bill would hit politically explosive Medicaid provision - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxPbG50S2ZPXzI1UkFTR2RsemE0UmxSX29kRlJyeUpEN0Z5cUEzaGpZS3M2bHVUdkxPN0VONU1Xc3BEemtuM2NWdUk5SDdOdk9STTBqbnBUcC0yRU1DenRTMV9ya2Nnajl1QlVtV1lON1ZLam1nV0EtbW5YSkc2Y0hQVDY3dzRfcWd0MHFlSDE0MU1rQmFHZ3VXNFhRVlFVMzZ3STd3c3ByMkIwTGtFcV9QSm82UFg2Tm10ZnR1dXVUQ1ptbDBfaVVYUUtxVXlXY0czS0xB?oc=5) |
-| President Trump fires a member of the Nuclear Regulatory Commission - NPR | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNRXNyOXZTUmxGN2tUVzBkUndyNm51OGg0RjlNSG1CN3c2cnl3TFRwYTM2UHZaaTFDelNmN0xncmk1Q1BJSmYxWVpoYVNVd3FndVJ3WXJiX3pJRnllT1pFbHdGSXhuZFRPRE16Q1pETTM3MDB6Y1hzSlViS0VHNUlxME9BTlNyY01rNGV1di1iYnl6d3dSa19xMkl3NmxmQQ?oc=5) |
-| Senate Finance to huddle with big tax groups ahead of text release - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOMFo0dGZHSmQ0WUc4V0dncXBVRktadFcwMXBmNDRFY1BkRHg3OVdrVTNaNm1Mc2xBYUR2aGRtd2dDck9qa2Y1eUlUNzBGZzBDdGVidmMzaGNKRFNuWV9JZXRscEhKUVpjc1FkWkt0dnd6cjYtUk5ycWlmbXMtM2ZCVTRXMk9sMUJKQ0F0aEVRcjE5TzNFNnFPTDJ6ZWpKSjBaNVhoeW8tSm9EaUFwWUVKS2xxSXRNb1dTaTlPeVRSNS1fbEk?oc=5) |
+| Senate version of Trump agenda bill cuts more from Medicaid: GOP aides - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9XODhNS2hvZWdYaXZrMTJTQUxoVXlKVUdmTmJqS1hWUGl3aHNCTjR6QUQ0My1QVXd2d1N1VWpLNXc1VXpocFlBb3EwTUI2eDlJeDM2eHgtMFNkZlJ6VmNfWl9YYmdnVlUxNTduWjM0S3ZWVXhfSjdhTzlHMA?oc=5) |
+| ‘Project Runway’ Contestant Killed In Utah As Lone Fatality In ‘No Kings’ Protests - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxPUEl2Wk45MGZyZW9Ybnp2blEtblo2NjZCZi1tUUZqVkVpNlJlRUMyTlo1SlFsS0VOejdBLXE3YU45YVBCb05hbDUtVDd3SUV3MkZxZGt4MjNLUEFMUUVlSVdQd2pzelBUZlV3bHhNQmpWUUN4eVkwa1Itc19ZV24zT2JaU1NESTJfeVo5WFVtenc3YUxJVDh0VnFhSnY4UGZDb2U2Sm13Y2k0aWViRnhvSndYTDNZSVZSOXEwWlo5N1JMYy1MSWVTU3NB?oc=5) |
+| Trump fires former Biden chair from Nuclear Regulatory Commission - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNd1otdDN4bzlKVzl2OFpUZmJ4cWdneUFtVzNXbW9PVkppQndJU0ZGNlZ4bkQwNE1sTDBXOEFhZFlmRDVEV2U4UjF0dTFROHhmbU51UzNPMjFsMGtURWtIOE1DLTdkMEMzcVZkajZuZTlWeE1kMUNHZExHUE85eHY4alhtbVpOZkNsZmxmcVprUGRXdUVlS3hYTg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
