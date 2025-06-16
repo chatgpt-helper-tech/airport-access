@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月16日 12:00:44（北京时间）**
+🕒 更新时间：**2025年06月16日 12:13:05（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Suspect Vance Boelter in Minnesota lawmakers shooting arrested by police: Sources - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPdFF4QVJJWjRnNmFpWWZrajlvdENsckIzSS1SUEp1Q0ptMXJIV1dyMEdwNkFaNzJJSnBuYm1mdVhUM01oR1cwWE44Nk1Bb3V0STA2bHZMNlZldmUwNFRhaW9aMmxiWnpxOFVaQUpwMUd1Q1JzLTBOcUVULUdtT2JlUnNiS2hoTDNoU1NHeGVXal93dmV5WnJBX3F30gGfAUFVX3lxTE5LWnBWXy1jQmVobUxHaGRhVEtzd2JCcTZZanB0b0NaWkdfdTBnSThGNTlCZ1FOdXlVRkEtMmRlLXYyempEeTFiUGh1bjg0eDR5QS1waGt4Mm5nT09uem9WNjVBQTAteWd5OU1CR180S3JMeFdnYTAwUUZObzhkVC1rLUU4RV9kckhTZE5nLWQxaFNVOWlCZjRLTmVIVnpVbw?oc=5) |
+| A Timeline of the Minnesota Shootings - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE90WmxXbHY1TVFRbTJEejUyY3h1X1FoOXhxTUtsUWdGTGtpOExDVEhJUUQ0ODJ6TE8zTnp4ME8yRVlXb0R1UjZpV1JheXg3R2N0MDBFc0JYRVB2cjRpRTZSOUJKMjROMWx4TFU3aHc2UGVyZ2wtU3IySG1B?oc=5) |
 | Explainer: what we know so far in the Israel-Iran conflict - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQZ2dMdExva2cxb05OZGtqY2dmVkFFUzhLUmtXYWk5Rnp0ck5FQVBGVkdXYnVPTTY5ZnZ1M0Q0Qld3dnM0bDYtODE5RW50Q1dybEtvWEZ1WEJEUWRYaXpadjBsYVZPY21VUVFPUzZHVURXRHRYdXlmd0dWTWpWZEpCV3ZxdEUtVEYzM0RTcDVQQ25ZT3dEZkRWcjF6MC0?oc=5) |
-| As Trump Returns to G7, Rift With Allies Is Even Deeper - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNMTA2djVhRXdQaGNPZlB4cjlPZ0FEVUZrVHgtcE13NnlCNU9vNzk4WlpBZkNhWEs2MVNuaEdhSDA4U1FoZ0EyODVBYWtRRTdTNmtGUHNhaGU3SWlOeENfMnVyRjdoR3ZMX05wbHJnenY3Y2dCRmNiakJkWUI2VjVPS1lIYUVETVN3YU4zSVdzTGxmSlE?oc=5) |
+| G7 is a big moment for Carney. Here are five things to watch - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1NWDJ6dW1iQkRkVEs4WUlhdnZUVUV0R1gzRGpmNTV2WVNVMC1FZVlUaTBLaWZoNi1rUmRqV0ZpVzZPZ3k4NmFGQXpVRTlmQmc0UjJJdC1Hd2xyUdIBX0FVX3lxTE9NTHBvMVpJQWszMEdqbVYwd2pJNno2bEpjZUo3amtEdy1qWEdaVWFpc1Z4RnpMdzJ1WE1PQ3F6LUNwTDZsMWFmajJRMVVVd0dhbS0wYVg1ZXRHTTlaRm8w?oc=5) |
 | Trump orders ICE to hit Democrat-run cities in expanded deportation blitz - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQNHhjNllOQk1abG4wRWhzcnNpUWoyVm9wTTR2cGV5bWdYbFJEeUp1cEp6aWZjVnRLNHJlallUaDhTZC1ZZHZWWUkwY2gwNDJKMnFjd1UxQ0ZLRG9DVWZCMlBsU3pyNV81dHJ5Rl93T201TEY3eXpyZ0taci1pNE5wZ0NXUQ?oc=5) |
 | Deadly flash floods kill 13 in San Antonio and at least 3 in West Virginia - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOYUdHeVBjaDgxU25HTXhZNmFQamJhYURJT1dLbE02UWFkYVAtbG5xYnF2Q2NIazNmcWJ4elVlVlB4Z2g3Tm1GSlA3Rm9COExHMmNTUVYydWwwcXRjOEFWWGt2clNjWW1wdW5NVnQwakcyU21rWmwyUWd4cjhEU0lrcjJoM25FbkNKMkl0TUlzNkpPRE9x?oc=5) |
 | President Trump Celebrates U.S. Army’s 250th Birthday with Iconic Grand Parade - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQMmRDczNqMGRBQkU2Z0lEZmhVWlVKcmhWMDZPem1RVGpNeEJOOHNSeHV0eVlpTzVrU3RQSnJJSEFzZ2V0ekM5LWdLcXNzaC1xb3U3SEZIREQ1WXNaRkZCS2pvWmtHNFl2NE9zcXZuYmJGT2kxeWtRcXNJWEt5ZzVpVFNKdTMyaWdIVWlvMGw1emx6dExqeGpsUEt4dmNuTTl3ZFhzVVNFMVlkTi1icTl6OW1aYkQ4R2d5RE12V1ZB?oc=5) |
