@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月16日 17:52:42（北京时间）**
+🕒 更新时间：**2025年06月16日 18:00:57（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | G7 leaders gather in Canada for a summit overshadowed by Israel-Iran crisis and trade wars - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxObUZVaml4VEs1LWhVOFBoQmViV2o4U3MwcWFyWmlSM3BGMWNqcGZxS3pZX1hjaDRpdG9mdnJXaDY2ZWNnbUVyUkRRVkRZWGlVZkhSMlY0VHU2MlMxTl9JN0h6M01sNVVWaXJnUGlxUkliV0NJQkZ3V1Vack9iQzJOTkJJRkttTDNBNHc3R2F5Zms?oc=5) |
 | Trump says US ‘could get involved’ in Iran-Israel conflict - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNZV9vT24tNERrd2NhamdDalZFc0dob0p2dE9xeVpwZFVHT3M1SG5qdXJPME9FcjlZRG5vLVNfMmQ3dWtIdUJsSmI3UmM4VHFhQUduZGJnaHA5b1gxN1pzZVNpY01SeE9rQWRxMzRaT0VuV1BWdTdTN1lFSHNhMDdpNkhZVzhxb3NYLVZrLWdjdmJzcmc?oc=5) |
 | After Omaha, Nebraska largest worksite immigration raid, a community works to recover - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQQkZWemFWRWxiZHBPRElPNDlXTUgxXzJQSXlicTZIOWVqbnNfZWZtYWdZZnEzaThtd2NrMWR2eXM1QldoZ243SFVNWEJsVl9zZ0JVSWt0ZGN5R19ZTW5rTFZtOVRLZUhaX2JONmRrWVNRM1Rld3pLQnk0MFo0SEpsXzBRQlN2R2JMVXVRU29MOXpMYUhI0gFWQVVfeXFMT0dhY1R3ZjE4UjFLRDhOamNhSXRNSFFnbUQ5eXE1QVVyREZtUFcyaklrX0pGTEp2YUZ1cFllZ0d4SFE5TFhGWWN5OV94ZDhuQlg1ZGxSRmc?oc=5) |
-| West Virginia in state of emergency amid deadly flash flooding, building collapse - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOUW5reXV2MENvSzNFeElMMU05NkRxbkFlejhHWmQ1RzVfRXgzV3U1Y1ZqeWp0RHNuYlk5cWFqOXJmZzMyMS1YTUkzWHF3RnpEOG8tMklkMGYxU0RxMFd3OUtHeXVDSVZnZWRpUzlTSjVvSzh4Ynk4R1UxZmQ4T05qZXByMjJmbk9FeTVHTHBqeV96dm1FZHVJS2tYUzRSTjdKeEt30gGoAUFVX3lxTE5HUmJBR05JeGhaaHkyU2haVVBiRFptcWdnY2U1eGh5UGlpYV80bnRZdzRjNTdCN1pyRWpWdGFtdHUzVVNPb0JaMHRfOE5ubGRFdm5Vd21kMGYzam9fMjBTYjl6QUtVNUNfWDJnU0tWSmJjcnFrdzFINGdheFUzS2xQMnVoVndUd204WGZfeW1SMl9zemZudkdvU3JpMUlmM2FWRG9NbklZYw?oc=5) |
+| Flash floods kill 5 in West Virginia, 3 people missing after inches of rain fell in 30 minutes - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1ZYWNHUWVFYVZMUjZkWDFpLWc3c3hTQUN0c1I1VEFreEhvYlZSVVp4N1lyN0JSaGpLSmV4dXRhN0pRVF9jSmR1WWtCeVl3d19XRjM5QU85dTNJUm1WQkRORVhoZldPWkJnXzFtTURvNkRnemPSAXhBVV95cUxQeElzelBzalg2V1VTQTdFTmhXRkU0STlVa0ZNRTB1dW9idHA1SW5OMVRqZkFUam9YMGRrVFZRdzE4c0wzQXE5LXJiWWpaQWUxTy1WVFpqd0UxLTNESW51Sm4zQXU4ZDFxSGRQdEhndjd4VkViTHdic18?oc=5) |
 | Riot on South Waterfront Draws Attention of Homeland Security Secretary - Willamette Week | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPSi1lc19Oa1VWVnM3Q2NWSnBkb3pQVjJmYk1vUUdRcWNweDZkeTJYai1CRWNTNjQyMWpRODM1a0llZDJxS3NLZWNOaU11M0lPRnpxaTVvWmpLM2RpVTN1ekVrM3hjTFJhN0hvUHpGY3QteFZ3X01uVlVSVHFFclAzSUl4bElJSk11MWR4V1Z1dFBIX1NlM2tzbGIwRC1ZMmozRWtHbjZ2SG1sdmFBcy1tQUl4anVCRHBq?oc=5) |
 
 ---
