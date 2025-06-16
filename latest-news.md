@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月17日 04:13:43（北京时间）**
+🕒 更新时间：**2025年06月17日 04:27:49（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Chilling details emerge in Minnesota shootings as Vance Boelter faces federal charges: 'Stuff of nightmares' - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPb2FPNnVzSVd1ZDBRNURTcGVGYkVaZ3FGd1lGcWJPbnBXZGdjbmIwNVNGNUh3ZjItNjR5ekZmWF9vMG1DaDd1dlFhaFhSaENwbmRpNEFabW1TbWx5ZVlDTzFnYnE2SWhVbWhRZmgwNm5VLVJEcjZiWnFzQjZnbTN3ZWwzbER2SjFDUG1Kd2pGaVJtWGgzOEVJYUh6YVFsemhnRGNnQ3hFXy3SAa4BQVVfeXFMTlJCZUNYY1VoNG1YcnVYa05vZjlYQ1I3a2ctZmJHbjdpc2d0MUlqNlcxSWFLMThoMlZFY2E5aWxBYmNOUUh3TTFISExYWklvNVBKVVB4S19XYVlOeVFxQkFTS1BiMWItZDRuMnF1TUcxMjctSmhVU25rQVZIMXMtMTE2MFdvR2JWUFNnVjZPRWFWUXFScjdvUGFOX1dYYmVWY2pZaGZJY3FNcVpEMkNn?oc=5) |
+| The suspect in the shooting of 2 Minnesota lawmakers had a 'hit list' of 45 officials - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPaTRoR0oyaXUwbE12dUY2ekhHN082dGVCZTJySzZKcnlNSGVydHZURnBRd0JmeGlYSHVXT1lqeUJmNGc3Q1FXRmpMWnRCTXl3RzV1WmFZTFpzTnlGa0xXVVU0d1R5a0R0YXhGQTNaa3hBOU13QkRkX1VBRm5JNXcta1lLRUNnQXhjMmZFV0ZIRllNN1NhZVBHRFZ0NFJORFl3VWk3VEpKNHpCYkxwbEpqWkV5Q0ppdlk5WTZMNmRqa1A?oc=5) |
 | What latest satellite images reveal about strikes on Iran - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1NYnpraUE5XzkwbnlHQy1Od3FJVVMxV3dOejR5d1RXT3lEdkt0Mmw3c2VObEdNa2UxT2hEVE9hQzhIdExzdDVZVW43czhFQV9lcWVkVlRGU3Y0d9IBX0FVX3lxTFBqb0dfMmN2Zy16dnYxNGhOWFRxOTVWZEVHRUFxVExiR29iei1EZnJhanpJa0x3OC16dnp0eV9TWFB6UDJsTDFHSFQzdDJYLUxxYmQyTlZKNHFtSkxaZHI0?oc=5) |
 | Iran sought US pressure on Israel for ceasefire via Gulf states, sources say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxOc08ycXRITDdKdlRISkJPLW9nUkEtYUxscGdSUnBrdUdWV09xNDlibG9nN2oxdFJRdGpKazZZWnhvRkNxYlp5VjFKcnZ2VHdqMmxTZXNhT3RvTzlHd1V5aHZsNGZFQUQxZlpVZ2NFZVpNWE1jRi1lRXZwaFNkZC1tNldlNElYQlRHSVVHUjJTakVaV2dvcjNucHNibDlOZjM5NFdHcElXekdsUUJnUlQwckpXTHVnblhvMnRKZGxQMGdTeWJSdFFBd3dPd1Y?oc=5) |
 | Trump promises expanded immigration crackdown after ‘No Kings’ protests - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQbmJjTTUwNUJFb2FaZTdpS3g5QjdESldGY3gyRTdrNzZQbnNZZEI1MXFONmE0YXFhcTlMNl9xWjdma2dNY24xa3A0MnpOQ0VBVGhQbW9yOWd1MHVjanVPVTBlN0dYVTVwVnVySDY3b0pQX2FVaEJJbHZlVjZBczc5NmVFTUYzU0VkV042UWtn?oc=5) |
@@ -31,7 +31,7 @@
 | As G7 leaders meet, allies ask: Is Trump with us or against us? - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQaEkydEZoYmFuUVVzbXBocGVCaXdOMnVuZ2xJdVVkSnFjTWlENXp4M1MtcVk3bWtVRzkwZUh4WHlmOGc3MmgybV9KbTF4R3BFS1Q5SDhCZHdXaU9aNU5yYXI4bkZkazVrUXlKNjl0ak9YUWdMdEtpaFJzUm5ubC1ndW5SaWFXZmRHNnJNb3piVUQyTTZnSG1pYS1FTFp2V2ZNeUJiRXBpVdIBrAFBVV95cUxNUzhkeW01ZXJOZDJsVWs4STBya2V1SFYxaEVkX012dE5jRXVrRVFINTVPQk9yZUV6aVFYdEVrQzVzeGRMUWtjbW9KT19XNldVckpDOGJLc2ZMaVBCbFFxSURnZ3hGREVJTV9RMlI5a042ME94SGVCOC1TTWZhZlBlWjRSQnppVzh5UGFvUGFRSC1HWlpXNThsamp2LUktbHF1U2RnemxYYmd4OWw2?oc=5) |
 | Harvard secures extension of court order blocking Trump's international student ban - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQV2RjLVVpanZ2T3o1VEJLaThfQ0EzNTN1cFF6bkt6RkZSbmtJTmtnT3lxeFZRTGhGMDZiOXNFS01XNFl3MDhXaG1xLWFNXzNQX3o2b2xlN05yNzc1NE5FeTkxMnNNMU5ESDcxcEFmNW9CekpmR0ZJc1hRdXlnUE54SEpnbUM4YUZYVTlOWlFfT01jV1ZNcU9jcVVxLTI0dmZKcWlLR0VDRVM1YzVqWVVv?oc=5) |
 | Senate GOP tax bill would hit politically explosive Medicaid provision - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxPbG50S2ZPXzI1UkFTR2RsemE0UmxSX29kRlJyeUpEN0Z5cUEzaGpZS3M2bHVUdkxPN0VONU1Xc3BEemtuM2NWdUk5SDdOdk9STTBqbnBUcC0yRU1DenRTMV9ya2Nnajl1QlVtV1lON1ZLam1nV0EtbW5YSkc2Y0hQVDY3dzRfcWd0MHFlSDE0MU1rQmFHZ3VXNFhRVlFVMzZ3STd3c3ByMkIwTGtFcV9QSm82UFg2Tm10ZnR1dXVUQ1ptbDBfaVVYUUtxVXlXY0czS0xB?oc=5) |
-| ‘Project Runway’ Contestant Killed In Utah As Lone Fatality In ‘No Kings’ Protests - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxPUEl2Wk45MGZyZW9Ybnp2blEtblo2NjZCZi1tUUZqVkVpNlJlRUMyTlo1SlFsS0VOejdBLXE3YU45YVBCb05hbDUtVDd3SUV3MkZxZGt4MjNLUEFMUUVlSVdQd2pzelBUZlV3bHhNQmpWUUN4eVkwa1Itc19ZV24zT2JaU1NESTJfeVo5WFVtenc3YUxJVDh0VnFhSnY4UGZDb2U2Sm13Y2k0aWViRnhvSndYTDNZSVZSOXEwWlo5N1JMYy1MSWVTU3NB?oc=5) |
+| President Trump fires a member of the Nuclear Regulatory Commission - NPR | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNRXNyOXZTUmxGN2tUVzBkUndyNm51OGg0RjlNSG1CN3c2cnl3TFRwYTM2UHZaaTFDelNmN0xncmk1Q1BJSmYxWVpoYVNVd3FndVJ3WXJiX3pJRnllT1pFbHdGSXhuZFRPRE16Q1pETTM3MDB6Y1hzSlViS0VHNUlxME9BTlNyY01rNGV1di1iYnl6d3dSa19xMkl3NmxmQQ?oc=5) |
 | Senate Finance to huddle with big tax groups ahead of text release - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOMFo0dGZHSmQ0WUc4V0dncXBVRktadFcwMXBmNDRFY1BkRHg3OVdrVTNaNm1Mc2xBYUR2aGRtd2dDck9qa2Y1eUlUNzBGZzBDdGVidmMzaGNKRFNuWV9JZXRscEhKUVpjc1FkWkt0dnd6cjYtUk5ycWlmbXMtM2ZCVTRXMk9sMUJKQ0F0aEVRcjE5TzNFNnFPTDJ6ZWpKSjBaNVhoeW8tSm9EaUFwWUVKS2xxSXRNb1dTaTlPeVRSNS1fbEk?oc=5) |
 
 ---
