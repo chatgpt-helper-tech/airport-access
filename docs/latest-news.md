@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月16日 13:00:23（北京时间）**
+🕒 更新时间：**2025年06月16日 13:14:50（北京时间）**
 
 ---
 
@@ -14,18 +14,18 @@
 | Footage shows burning cars after missile strike in Israel | [阅读全文](https://www.bbc.com/news/videos/c8rermxkx75o) |
 | Satellite imagery reveals damage to key Iran nuclear sites | [阅读全文](https://www.bbc.com/news/articles/c7808xvv737o) |
 | NCA to target gangs as report on grooming is expected | [阅读全文](https://www.bbc.com/news/articles/c70601550rro) |
+| ‘I broke my jaw in half’: Accidents raise questions about funfair safety | [阅读全文](https://www.bbc.com/news/articles/cg5vjn604qqo) |
 | MI6 appoints first female chief in 116-year history | [阅读全文](https://www.bbc.com/news/articles/czxyx04dv1wo) |
 | G7 is a big moment for Carney. Here are five things to watch | [阅读全文](https://www.bbc.com/news/articles/clyg07jj17eo) |
 | Chris Brown jokes about 'nice' jail as he starts UK tour | [阅读全文](https://www.bbc.com/news/articles/czdydj938mvo) |
-| Truckloads of Scotland's rubbish will be sent to England, experts say | [阅读全文](https://www.bbc.com/news/articles/c0r1de24pdgo) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What We Know About the Suspect in the Minnesota Lawmakers Shootings - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOVy0tOG01ZzhaOHRPOXdHVnc1aVUySm93SUNPdTE0Zmx5Ym9BX2I2bUJtTk5iOFNsRVB3VEhrM0FrRnBfN3FORDhsOXhpYUk0WWZfeGpjeFYzNHJNbnBYUFFzaGdaRnNLZTdrUFFlTHhsWlZfUzFyUnFSNTUzbklnTWl2dU1HdXB5N0Y1TWNXZw?oc=5) |
-| Israel-Iran latest: Israeli air force attacks missile sites as Iran launches new barrage - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBqN2dXcEhVM2g4M2UyTnFndXd1WnJqVUNkRG1PSlA1UW03X1VaVmdyS05wZmRFalZqWTJmSTluZlNIZ2paTmxaN2V1MWQzYUl2eV9BQTRMWnRWcDZ0MjJ1cTRYYXd3SDJPOGh0ckQ1Y3Y?oc=5) |
-| Trump says must expand efforts to deport people illegally in US - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNMlhNR1pyT3NyTjBjRV9JUS1wclBmeFZHWXZVZG5uYUh1a0pKR091RWFUbHFjOUtqa0tOV1dpclRldlAzMnhweUZqRDFPVVU5djBXOE1Vb19hZDJXQ0hMOUxMYy1LLVhmODY3NTBSakFMakRNN3NFQXJDcUNBLUhuMlpNYnN4OUpWb3ZGUzVJZEltcmMtUmxyNWU1dE9QY1V0Y01CRU8zSXRhNkJjeWc?oc=5) |
+| Police arrest Vance Luther Boelter for allegedly shooting Minnesota lawmakers while posing as officer - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxQMnprNHBpUlZhQ3JtX09HRnczeGpFSGNGT3pvYzRyWEIteHJMY19VdzNzQnlLSlY2U2RBLWVGcnJYd0pDenEybnJHSXZMUmtNSnJzdkRVRWpCcmxpSmxKd0Q5ZmRxVWlfdkNuaTVhQkNoMEc0ancwOU1wQjNkSmlJZElIWEdOa1JsVFFvYnM1bmRzWHI1dDA3WUN5djlCZlF3bzNrdlljXzJDLVNkalhkYXlFQVJ1em1EbjJLWnVpRGJzaXE0R243V2RrT3ppXzlYZU5peA?oc=5) |
+| Israel-Iran latest: Four die in missile strikes on Israel as conflict enters fourth day - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBqN2dXcEhVM2g4M2UyTnFndXd1WnJqVUNkRG1PSlA1UW03X1VaVmdyS05wZmRFalZqWTJmSTluZlNIZ2paTmxaN2V1MWQzYUl2eV9BQTRMWnRWcDZ0MjJ1cTRYYXd3SDJPOGh0ckQ1Y3Y?oc=5) |
+| Trump orders ICE to step up deportation efforts in Democrat-run cities - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQNHhjNllOQk1abG4wRWhzcnNpUWoyVm9wTTR2cGV5bWdYbFJEeUp1cEp6aWZjVnRLNHJlallUaDhTZC1ZZHZWWUkwY2gwNDJKMnFjd1UxQ0ZLRG9DVWZCMlBsU3pyNV81dHJ5Rl93T201TEY3eXpyZ0taci1pNE5wZ0NXUQ?oc=5) |
 | President Trump Celebrates U.S. Army’s 250th Birthday with Iconic Grand Parade - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQMmRDczNqMGRBQkU2Z0lEZmhVWlVKcmhWMDZPem1RVGpNeEJOOHNSeHV0eVlpTzVrU3RQSnJJSEFzZ2V0ekM5LWdLcXNzaC1xb3U3SEZIREQ1WXNaRkZCS2pvWmtHNFl2NE9zcXZuYmJGT2kxeWtRcXNJWEt5ZzVpVFNKdTMyaWdIVWlvMGw1emx6dExqeGpsUEt4dmNuTTl3ZFhzVVNFMVlkTi1icTl6OW1aYkQ4R2d5RE12V1ZB?oc=5) |
 | Trump told Israel not to kill Iran's supreme leader - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE82bWhwalpILWtlMHIweWtYN2REX1o5S191VUVIUzYwTkY0alRCVDZDdnk4VnFvWlFYSGR2T0hrN2prV09hRGVzMW1nTDRWYWRLS0NqSG8wbjJqUdIBX0FVX3lxTE1iZnZqZDA3RXZFTmpIYjhTaDBIcmtjbDRBaVNJZWYxM2NMR29Nam5pWjFmU0w5WDFVNG9qWjBjMEUxcFNyby1rd0FHQVppbkJ5MW9XcXRhUXJUbnQzellZ?oc=5) |
 | 'Innocent bystander' shot, killed by member of 'peacekeeping' group at Salt Lake rally - KSL News | [阅读全文](https://news.google.com/rss/articles/CBMiTEFVX3lxTE1KRDBGdjkxRE1FLW1TRDlGbWFWQ1NOZkxWbWpwQmlwQ1l6eVd3Q3dENzUtMFVnVklJOFc5OXdyN0Fudlo3V0RybUNDQ0s?oc=5) |
