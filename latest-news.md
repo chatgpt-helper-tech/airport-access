@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月17日 09:27:35（北京时间）**
+🕒 更新时间：**2025年06月17日 09:39:33（北京时间）**
 
 ---
 
@@ -14,25 +14,25 @@
 | Family of Air India crash victims feel 'abandoned' | [阅读全文](https://www.bbc.com/news/articles/c5y0lwreg9qo) |
 | First heatwave of 2025 likely as temperatures to surge above 30C | [阅读全文](https://www.bbc.com/weather/articles/c4grg1w2xr7o) |
 | Church admits failure over sisters' 'sadistic' abuse | [阅读全文](https://www.bbc.com/news/articles/c2d5w0x6g7zo) |
+| Warning over TikTok filming by hospital patients | [阅读全文](https://www.bbc.com/news/articles/crk6mml5pemo) |
 | Social media now main source of news in US, research suggests | [阅读全文](https://www.bbc.com/news/articles/c93lzyxkklpo) |
 | Woman who died in skydive was 'caring and giving' | [阅读全文](https://www.bbc.com/news/articles/cy4e4jmzep4o) |
 | Juror dismissed in Diddy trial over 'inconsistencies' | [阅读全文](https://www.bbc.com/news/articles/ckg4gg626p2o) |
-| Dozens killed by Israeli fire near Gaza aid sites, Hamas-run ministry says | [阅读全文](https://www.bbc.com/news/articles/cg7177gpr17o) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump to cut short G7 visit, citing Middle East, after signing deal with Starmer - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE90YnNIcVBlSldtX2dRM0l5eFR1Q09hZ2dBTE52bzllUWRkNWlLNl9NRGhMVnN0X1VBcm14UlF6VzZMRGV1LUgwQnk2eXpwaEc0WjFJNQ?oc=5) |
+| Trump is leaving the G7 early to focus on the Middle East - NPR | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9Qc0pUTlZoTTBvamZnSkxldUFPUVNtcnBrdjhtWEJBNFE0WVNxWlNuTThJcDhLUWZ1UE0zVUs4S1Z4dGVuZmhSS3k3RGUxNHp4VDdIcnoyRTBQSDFLLVZpUmdHbVZPYXo1U2lBXzhPMjJrdHVtRFdBOHpidw?oc=5) |
 | The Israel-Iran war in maps, videos and satellite images - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNcDFyOGNvM2w0UzNlQ05iRGJrSjVsRjVULWJUdFlobkh6d1VFckZMUGRxRjdXWk44c3Bmamt3aThJb2s1UGZ4ZHBDNTZxSkh0SmJzVmQ5UGZjbWJOOHh3NzdySzcyVW1OQmxfZ0JYNHN5Zl9wNExGMlhrdnZtVjEtVnRUY1pBNWhrM3B3ODJySVJxUFdseU9lQWw3UDBBcHdkOFhv?oc=5) |
-| Read the full text of the Minnesota shooting suspect’s criminal complaint - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNdDdyVXg4TGFnRzJMTThaYU1hZzZxU19rSjFraHFCVVNzZ21UR3g1VGUwMGZsRS0wSDNvVGV5NDdwM0FFdzBQY0h6QTVLTHpIYnpiaFVmd2lsQllxVEg1YmNtNTJTaUZOSWNhX3dTbmVsazhzV19NQW5sY2xIUmlWZmw0dXBRaXctTEMzUENmV05uT0V6X3QxYTBFcmF3Zw?oc=5) |
-| Trump: "Everyone should immediately evacuate Tehran" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE85VzV1UmJtc1hfdDZWWUl0LUJrYmtLeHVmeHRRZGlmTk11dUpHaVZhSFhlbExmY0ZNMVNYY21wUHNIRFNDYTM0Wm1JVXI5ZUV3STQ0TFBOS2taY1RNR3ZBd1Mtd1JQaE9iQXJyUFdYc0hkUE11V0l0MA?oc=5) |
+| What to know about the shootings of 2 Minnesota lawmakers and the arrest of Vance Boelter - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOMzhUQ1BKSTFxTmw2SkNOUVg0MjdlN2xBcFlfYWM5VGE1RlFSX2dkZkVNYkI4RUJrTlh3WDdDX0tZTGQybk1NN2RpVXJCUFBVVFAzclpuNDY3N21QQ0xiVmRzSnFXX3ZKVllDNFpDd1E4WXBVaXVNZVNjd1U3RGVTVVRMMk9WMjBLUWZaNXhVWXhnM0RfVTdWcjM1T3hnQUE?oc=5) |
+| Police question 2 armed 'peacekeepers' in Salt Lake City's 'No Kings' protest death - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOX3UtTlNhTjJrNHZkWjN6S0Izak4zbGdYNlhZejE2cVNyUWF5bmt5eHBlTE5mc19xU3JzRXJ6SU9ORDFiZkRrQzRqdnZrSWVBWW9yTU52RFphR1lWVEZZbG5RcUE5ZFBNeUJKM3dONEVJdWtYR3ZzcTZxZ1RLbDVNbFV3YnhTaURqLWx2Z182U01UN212ZU9fcHZ6UjRXUdIBowFBVV95cUxPRm8yeW9vNW5Gd0FVNWtRRjNlZnZFUGFSd1VJbmZNaWV2aW9CeVZtY3g1ZVhpLTdYRWRIU2VlUFZNYTV2T2lZQjlrd2FyQWR6UjkzbHd1RzMzY20yZXVPdzVHNXBuaGxYS0ZoUTk5SUtwMDhBeGt2YVc0TXI0Ukt5bmV2V1lmMlRaV0VMZXpJRmJmczJhMDBNQ2I1dnlxS21Bc0U4?oc=5) |
 | Netanyahu tells ABC he's not ruling out taking out Iran's Supreme Leader Ali Khamenei - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOSEhRT2FDRWhrTHd1bWJza2JPVU44ZXlXUmRaMjVTckVpQmM2TjJaZUF6eXVhMFJTVktnajdiQ2JydHVfRVFFSEpkT0NocktZTTNVdHNBaXQ1RkMwNXZVNmFaWTZrWDdlNlFWeHRyOUpOeGY3U0wyTk01bS0zZTNWSm1BVnBnRnpTdFhPZzhnUmdHeFFuV3Ria2VHREUtSGd5NWpHU2U0ZmTSAa4BQVVfeXFMTUVlSlY5c01sS0dOci1WMENtMlh5YnhvTy1zemxCUlNPOVlCUVJKMUZ1TDNDbTkxZzF3QWY0am1kbjU4M1F1TVBHcHI4OVhMTFZUWmQ0SFRNVWpEU3U1cUQ2WEs4NjRMWEtJT3FRdmR0SUxWVmg3VGtTb0tzTC1ONGFZd2FvNTUta2pGNVVfeUxfQVdlblpkZ1I5bk1rY3dYTG5Nbkt5YmJwZFFOTWpR?oc=5) |
-| Man killed at 'No Kings' protest in Salt Lake City remembered as acclaimed Polynesian designer Arthur Folasa Ah Loo. - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPb3dQYkdGZ2RWbGhONzhrNmF6dG1nMXFFZm9OV21oa0lRQUpiQkl1clhnU0RQUmNkb3NibEdpOU9ab25SY0FseFl6bFA0QjZvaGRZVFdmbzEtVnp5WEptS0E0SWFFbllIVnlPYVhqUWN2X2FJUlpfOXdfQUJqQUotaW5DQnlIYVp4T21RTGVkdDZuSjVDa1ZobWFuUVhEREI0akpMZGtwaDN5UHhuNDQ1Wmp30gFWQVVfeXFMTzVXVU1rS3BXcmJhWDlycm5BMXhxZWx5NV9adERuYTI1a2JHZldLNU02b3pGWGMwcGpCWVhfdGF0VUZwNXJZTmZRanVOaV8xenFYZ0JIV2c?oc=5) |
+| UK automakers to secure US tariff relief by end of June - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOZGhiN2pLc0hRZ3dxT1ZLd3o0cmEtZzhuTF9KclJCWXNKb3d4S0xZTEI4YzJPSTlGb3d4T19jQm1GNlRNLUlSVGtCZm1LR1dYYW9XRzdmcjBSbXFtbm9XR21zTVcwM292bm1zVGFPdVV0M1FmVlBNMW1sYUhaaUdTbkE5bmM1aXNYc05HdjFKYkVDZw?oc=5) |
 | Judge extends order suspending Trump’s block on Harvard’s incoming foreign students - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQc2ZmcmJuLVBMR01WY0MtNC10WGRDYVJlZTF0VGhXMjJXbUNjTWZaWEtHTVFETE4tSXVyQU9qQU9BbjJDeWJxTmRKb2NiNllUd2RKZlY1bTgzWFdjX0x5U3dsMHRqaVZsYXF6aDd5QS1zUGYwVF9oUlI4YTBlTDg4NElpVG0xX3hzMmlFdkFsS21qU1RNLVlnd3dzLU4?oc=5) |
-| Trump’s focus on blue state deportation belies a red state problem - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPbzZjUnNENmkzUk9fUUU2dWFJaTZpUHVWZ3dJS0RIbV9sczNSTmNRNmV1S3k4SUhpd09jUlBTVzJVd0VjRXBtbUhWX1lhWXhxWHhtT1ZlTDFFSFAwZEFZRVJCMURqcWFTT0VKWTF3M3Z6U3NHR21KcE5fODIyczNSb3NXWHNEdVBUTURsQw?oc=5) |
-| Mike Lee Draws Outrage for Posts Blaming Minnesota Assassination on Far Left - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNM3lpdF9qM01waVNkU2xCdVBwbzFneFR1LXY4bnNEVVBEd3RTMzR0Q3Jrb21Ebm5iSURMM3pPUWctRVF1Mk5DTUNWSEdSMVBMUXlYZjBZWW5fWEdkanpMQVlRMFgwaldwYnoxWlAyR2l1emdfa2xYRG1fR0EwR3RlM19FWXBNNXptNVJPeTRuMW8wVFRON2VPYkZ3?oc=5) |
 | American Bar Association sues Trump administration over law firm sanctions - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPaHlYUjFIaG9oc2RCbXhGTy1JNWxJc3ZxRTBUNWp6bVNhbGZfWGNyT1dUMEtUQXJ1QkZITDlRNFR6OUgzVkdNeVUwanQtbjBGVFFsaWcwZXU5eURSc21mTTB4bHBEZ19VNFRvUF9xaGVpWDk4dGJOUzdxZlNwa3hRSnZLTDFBUVBVTVZoZHdGQUE?oc=5) |
+| Mike Lee confronted by Minnesota colleague over shooting comments - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOaWZnM1ltc1RDNUtQQTJaS3czejdtclp5ZndxYTRGRWcwT3RPUkhxaVJReVAyYWhnc2UzT1M1dVYtUkI1VVpVUHRLTXVpb3QtNVVGVGVMa1hIRTVKbnJfTlFrUUJUM1o0OXhqekVndTRxb1I4d1gyMHB2UW5KaXBfbjZEN3ZOd3h1STlwT2tJd19sQmxXYkV6NzU1OFI?oc=5) |
+| MyPillow boss Mike Lindell loses $2.3m defamation case - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFAxQ1FaaDUxcDhhTmFVQjVwWkNDOW9XTTRnNkl3ZW5KLXJKT0VuWU5YQlU0Z3ZyaThuNVFYNWRmc2pkTUtiYjZRNzJoa3Rpa2ZKc0FHck5pR3BaQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
