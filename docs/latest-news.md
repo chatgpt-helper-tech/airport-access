@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月18日 04:39:25（北京时间）**
+🕒 更新时间：**2025年06月18日 04:52:16（北京时间）**
 
 ---
 
@@ -8,31 +8,21 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| MPs vote to decriminalise abortion for women in England and Wales | [阅读全文](https://www.bbc.com/news/articles/c2le12114j9o) |
-| Starmer defends U-turn on grooming gangs inquiry | [阅读全文](https://www.bbc.com/news/articles/cvg1xje9wzlo) |
-| Emma Raducanu stalker caught trying to apply for Wimbledon tickets | [阅读全文](https://www.bbc.com/sport/tennis/articles/c74zjj14xvyo) |
-| 'I saw the plane go down': Teen traumatised after filming Air India crash video | [阅读全文](https://www.bbc.com/news/articles/c0l484l40gyo) |
-| Israeli forces kill 51 Palestinians waiting for aid in Gaza, rescuers say | [阅读全文](https://www.bbc.com/news/articles/c74zj9kv2xjo) |
-| Heatwave likely as yellow heat health alerts issued in England | [阅读全文](https://www.bbc.com/news/articles/ce3n8kgdj50o) |
-| UK watchdog fines DNA testing firm £2.3m over 'damaging' data breach | [阅读全文](https://www.bbc.com/news/articles/c4grggw4n56o) |
-| Spain blames huge blackout on grid regulator and private firms | [阅读全文](https://www.bbc.com/news/articles/c62d8k8edgxo) |
-| Papers by WW2 codebreaker Alan Turing sell at auction for £465k | [阅读全文](https://www.bbc.com/news/articles/cew0lzgxd0xo) |
-| Small boats situation getting worse, says No 10 | [阅读全文](https://www.bbc.com/news/articles/c39zk7pp29ko) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump threatens Iran’s leader, demands ‘unconditional surrender’ - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFAxMC1TbVJEeE1sMXV2LTdoZWtacHFGdzg1SDlYclhqNTV1eS1UQ3lqRUUxOEc2OE1UTkdMWUZhTE92UFBLUjFtNENZakVLVy1Db01Ib05MMi1tenU0ekZuZDRHYkgxMGtuR1Y2a0NTb07SAXZBVV95cUxNTHpUTTdpZWtLT29qWFZxc2tCS3pDVzlaQ2FLYncyVF8yQ3RXX09PYkNHZFM2MWdFSHdhM1dWOTlkXzJac0xlUDRxVXpidHdDYnd5SlRCcDN5RVpabXRWUFAzbjloWVVhVG9zZHVKMVBiRGEwdU93?oc=5) |
-| Israel kills Iran’s new war chief days after taking out predecessor, as strikes continue - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQUXMxcS10WktjQmJvWG9TYUo5eWlSaHFPaVpYQUg0Nk11R3l1bEFSSkFuSkpNV3RCams5MW81Q1k5Mlk2cEdQbjgzbFp1dWNoT2oydGFVV256bFR2US1hc2NzTlhsT2xqSi1uVXNHQ0VsM3FnZTFlTzFVdnVaT1pJcmwyQnkxdk1kdk4wMkc2SmtienR4Z19ZMGNZcXU1Y0JRS0UwVG53WnZwY1FlV1Mtcl9FNmszN09O0gG-AUFVX3lxTE9DLXJMV3dYRDhOV2g2S2RYc29ZT1E0QnpVN1NtM1hULTAwVmQ2bUIybkR1WWVzSF9obnlWZ2hUM1RLN21vVV80dEpIQVZmbFA5d3JEXzBnY2JKZ1J2VWtCSGJfQWhGQ2RlcXk3aWUzLUFVc2l4VUxKbG9VdGJZa1NqYUs2a0t2Nk51d0J1RE16Y2UxbjJxUzduR05ITTc1OTVPZHAyeHpYbDNRNGdReDBsVHdkTmgtaERUZnM2ZVE?oc=5) |
-| Brad Lander, NYC comptroller and mayoral candidate, is arrested outside immigration court - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNMGdpc2o2a25KWlR2YlE1bnM4TnEycldRMmVDdURiVWtsV1JEMmFkN19lblRoQTMtaTQybGNGaHhjR05uY1gxdFRhUVBPbnhiTkJVY2FOZmZMc2ZyLVhxeV94ckVFazhhMC1BQzJEekFOMERtQWk0bVQ3RXRTV3pfMGh4NDBncE1Ib0tDdEVIeU9zWExwNnNPeGpKd3FJRTl5Ync?oc=5) |
-| Israel Iran conflict live: Trump leaves G7 early and calls for Tehran evacuation - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPajFWNXkzdDVsamdVcDhucmZFOG93ekdVSzYzdDB1TUh4Q0I2a3JfRGJQd0V3ODR2WXFnRnY2RkxlNDFCOFZramxqZ2g5d0tlM0lzRk10M0ZwYTBLX0V4eEJGRTQwMnl6X25vUmlkcXBoTmVrV3lUU1hkNWNqMnJaclF2RFQzaU5UenVwSnZWOXIxNE9rZFIyd01TQUZvY3QySHM2Ym5ZU1RrRy05bmpFRmVLMWtWS0FF?oc=5) |
-| Minnesota shootings latest: Witness recalls moment she spotted suspect - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQcGRRN0JYLU9BMG1LZ2NFRl9EMU5OdnJnV1d5eDhlZjVNcWN3TXhwbjNET0JOcnNzNUVfVW1mNEg2ejNhc0ZPa3JCc0pLZG84dUhYZHNCWTk3c3pna0k0RktvVlRmdEZXRWtpOXhCREpiZW43SUh1aU8waTBBbE5pQ1YxeFAwRjNUdlNxM1ltd0PSAZYBQVVfeXFMTlpZU2JOMkRLdVVHS2FrMTVkQ3liZ3FyZzJKQ2VGYkJoTFRsMzVkcHJsNjE5bGt6eGFJTkpGc3cyb3RUd3NqT1FGY29DMjQ5bEQtRTlvd2ZfelBpdDREQXRiZW5GUHdRSktGNnJxNjVQUzJmcHI2WEhVSjh2MlFmVC0wcFR2eml6U1laYVQwYzBMN1ctQWN3?oc=5) |
+| Trump demands Iran’s ‘unconditional surrender’ and says US won’t kill supreme leader ‘for now’ – latest updates - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxQcHhuYVJCTEJOVXdod3ZnYUVKV3p3QXBzUUJFdW80U0lLWFRmUUFFczFTUmliTlhDRFZMcl83ZUtXQTgwVjJ6SFE1eDhHZnprN0kyT2FPN0ZCSG4yWF9mX3BGbGFPNXd5cHp5OUpZZFVWdDhuRldUMGR3SUNYNktfQTREQU1QNnVSSUNoangxMHBfUVlMa1hNWmxGd3l6Mlg0ejMzSnp5WUs5RV9zbHdFUS0yMUVweHJRVjU4aQ?oc=5) |
+| Brad Lander, New York City comptroller and mayoral candidate, arrested for alleged assault at immigration court - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPTTNYNy1FelBBSDBLTGc4LUh0enVyalA3UXBLR2VTUm1OVkdTX0ZNQmJhWUNtQkNSdFNPT2lNUWZBZ3A5cVZHNDdZQmNKWkFxRmdYeWVNYWx3cUNzcXFKYUppMTdUQV8zS29kNERIUnNIQlJFbDVZS1EyYXVtZnppR2hrUnBsWXRfNmZzZtIBkgFBVV95cUxPbVNRZkc5ZWdRWmI2Q01nV2kwRWJ2VEdrSEdBY2ZLQkFnX3lXUjRQaFVyRV9fTEdkQkNEeFEtNXMwd0JHUlRiRHl5TjB4ZTBjemR0dTdMY054dEdVTTI1OW1KN2ttZ1QtdXJjY3VjM1RaWVNzQlRWem9aZmVzWkkxTHJiY08wTjA3bFFFcVpCYncxQQ?oc=5) |
+| Trump contradicts his spy chief on Iran's nuclear program - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOQlJHSEZ5WUJSODVDakpoLVJwOE5jLUNnczVQM1J3bmFuWERWcXpkMHFNRU5kMm1IQXFVeHVXWWt4SWxST1JQTkRSRl9uNUQ4d1FHVjR4TGpMbHA4R3hpZFRjYTJHb3RWVWJqZWFyNS0tUWFNMnJjXzRxOUhaS1ZNZmt0Tm55Yzl4UFJ5TkdJaXV2Q2lpaGdmUllzNGl2WU5qeVlWZXJKcWJxT2FJQkpIVTBKQVJOZkk?oc=5) |
 | Israeli forces kill 51 Palestinians waiting for flour at Gaza aid site, witnesses and rescuers say - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFB0ajBFcGJESGZmYmUtZERCcTdxTmZuS3l0RENOTDRZWjdrVm1DZ2lUVm9DRjBoQ0tLbk54MEF6UlhkYlBUWUFPVmxNa1lPcW1rZXh5cWhXME1qd9IBX0FVX3lxTE1tTWhOc2dHalJudW9yOUhuZWgweGkwalJIRkVHU0pUV0hPaEhvU2VaZkZxX1FDS1IxdDQ2X0hzcUtCNDh2Q3E2SkVvZ0dScHh5M3d0clhNVHdoS0xodWZz?oc=5) |
-| The use of federal troops to quell Los Angeles protests recalls militarized law enforcement during the Civil Rights Movement - The Conversation | [阅读全文](https://news.google.com/rss/articles/CBMi8AFBVV95cUxNSHI5NVA3ZVQ1RWdyN3dBVm13MmVnSVZxNXlSaEl6Y0hLalpKa3VmS2w0azBpdUhMVkc1RS16bjl6U2JSakJMQ3VVVkZkQkl0NDAzdmtZVkRaNGdHanBZdXRHcHp5MTVsSTVGdVhHd2lEbHZyLTNHTnFHLVc3R1dJTHdyazctZ2hCZFFVcnZBRmVpM3VSc3FBaGV5anNNNkRpZ19DeTdLa0NCRjFaNWZHbVlLMzFSeEgxT3BFY19rbDhQM3RicjhYRUJMZnBUeW51OXFmUGtUTTl6aDIwUWtzNXFiU1VaWmFzQVVNYmlHWUo?oc=5) |
+| Trump Frantically Tries To Stop MAGA Civil War Over Iran - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQS1BOclZWZW5vOGh6amItd2s4MnZzSmtfRGh4bkNSWXdCbjVOLXFNZVRkRFhzNVFGSThzSmpGSWdiMnh2bmpoVGhlUHo5TjUtSlBEb2R0elRlWDFyY0l4ZW5vUXY3c0hoZF9aSlAyWFB1MzF1dHVHLTRycm1HNmpsLVVYb3FnRUpySnZwMVE5SVM?oc=5) |
+| GOP budget bill faces nearly 2-to-1 opposition, with many unaware: Poll - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE8xVjRFaVAzbUdlM2JiSklPVktQNEJXY2toRU1Sdi1BaVo1LVZsS2xJcFphUWwxMUU4Ny1pclFLV2dld0EzaGs0OFRVMmNLYWVFZXMzLVN0Y01OVXhxMGRNUFVXandEdm02YW9TN2JUSFZQaW84RkZR?oc=5) |
+| Senators get security briefing following Minnesota shootings - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQZEc2T1otdWk3cDE2SXRUdkhNRUk5Vm1rOVRPdnlpRnFSbGdJSmozMW0zT3RRa0VBdEhCNnpnZFg4T01GMFJkTC1ES282d1NZTkF4ZFNmUzNhMGdWNDZtc2IyZDJqU0NfVk5UMlo1NkpWUU9jYlVOSzh3U3pGeVBoc0hRWUQ3am9ROHRMNGZBbll6elVhUUVEYzEzclp3UQ?oc=5) |
+| US Senate Republicans change Trump tax-cut bill, setting conflict with House - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQQzN2OWh3M2htR2dubjBFRmJvbHVDRUlFcE45VTRjVXN3UmtRSzFSWF9lMkhuYmVRd3lvb2d4Q1BCek1UZzVOQWJjWlZzN19tSklBS3pPSS1hbV9nbEprSWpsUUFvTlJtUEoxWFBqS2RYSzRKTXozbGkwMkpyRTZ6OXFpMEZDbzVkTE14blFRM2F6TGZqS1ZXbjFPR053ZGo1ZWlnb3RoNDVrY3B6OWdvcmp5OGlQekNR?oc=5) |
+| Federal appeals court set to hold hearing over Trump National Guard deployment in California - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQczU0TGhULTQwb1RmSkpEaG9jUjRKSFBXYXhWLXlucUlsazFBbVJXMEppU1U3NDJnZXd0STNsNkhHS2NzanU4OWRjeWN1RXh3RUJEWWxXNTVjTUxiT2VuTHRMenNGTTF6TklJaVRSWFprWmIyLXR6QWhRcjZ0MHpvZ0gwOEJtQnZOdWNBejFFUGlMcGgyenYwUWlCa1BEeURyc0NhaEdpTWE2eWxROUVnd29tWdIBuAFBVV95cUxNVDFDeUI0Nm1LRnpabTdneFRWUGM5U0QwTWc2RXhmeW5XVXU5R2p5TUJnRFpkcFlQSVFxVm96Yml6VElSX1RxbUFJS05DVW9jSGtZVmxtX3Vub3F5REJORGx2MnNVaEVFSXlCTUlfdXFTd3JxdTJGY1o3UWhqdkI3TlBFUGxyblFXN0gyemtsekJERmZYc0lCWVU0MHZKaC1NRC1BRkZiMEo3UUVwY05yMUU1MWpmT3hD?oc=5) |
 | Sen. Mike Lee deletes posts about shootings after Minnesota lawmakers in both parties push back - Star Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFB6TlRuOW9ER3lsRDEzaXEyeWkyWThRTFFYTHY2aS1QOHFBNXhHTFZuOWV5ZkI4Ty16aUJ4ZUFPazNiWFFSREJwSEFJRUVfOWNpczNob1pSMkRVa1Npd2pGT0pXSGlTQWJDc2VzcVhvWVRoV3ZDOEcxRGl3?oc=5) |
-| Senate Republicans Propose Key Tax Tweaks to House Bill - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOaW1SVUQ3V0lfOHRkaFNhWERkVHB2TGVWTXhSUFFWQUh6cHNYRlpEUVMzN2lUSVItT2JadWJuQjhKTzJ2NHIyVDlhSlBydHJCWk5YUl9pRGJ0eHQxd2FlS2F3MWF6Q1oyd2VKVnA3U19jMnk2ZWlGNHFfQk1pT2diMktpZjA?oc=5) |
-| Trump orders Ice raids on farms and hotels after pausing them days earlier - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQVFFPVVhzbW91UXNNZC1BUTNCQzNwX0tkcm1JSGZMRUtXWHhraVlrN1RTWkVlUG5MWWdaV0JlZnh4ZUdRTVRHVndyaVlrbU1aTVd0TzBZUFhYaVJNVjFjbGY2d0V5RTVXWmlaWXk0bjVRMXJXRmZNZGFPNnpyZXZ1NkZB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
