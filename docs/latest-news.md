@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月17日 08:52:41（北京时间）**
+🕒 更新时间：**2025年06月17日 09:01:29（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | Woman who died in skydive was 'caring and giving' | [阅读全文](https://www.bbc.com/news/articles/cy4e4jmzep4o) |
 | First heatwave of 2025 likely as temperatures to surge above 30C | [阅读全文](https://www.bbc.com/weather/articles/c4grg1w2xr7o) |
 | Family of Air India crash victims feel 'abandoned' | [阅读全文](https://www.bbc.com/news/articles/c5y0lwreg9qo) |
+| Social media now main source of news in US, research suggests | [阅读全文](https://www.bbc.com/news/articles/c93lzyxkklpo) |
 | Juror dismissed in Diddy trial over 'inconsistencies' | [阅读全文](https://www.bbc.com/news/articles/ckg4gg626p2o) |
 | Dozens killed by Israeli fire near Gaza aid sites, Hamas-run ministry says | [阅读全文](https://www.bbc.com/news/articles/cg7177gpr17o) |
 | Nursery worker convicted of abusing 21 babies | [阅读全文](https://www.bbc.com/news/articles/clylww5ykkvo) |
 | WhatsApp to start showing more adverts in messaging app | [阅读全文](https://www.bbc.com/news/articles/cn5y07yqg5do) |
-| Russia and Ukraine fulfil deal to repatriate dead soldiers | [阅读全文](https://www.bbc.com/news/articles/cgeqddw1v1do) |
 
 ## 📰 Google News
 
