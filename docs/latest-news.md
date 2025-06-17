@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月17日 08:26:51（北京时间）**
+🕒 更新时间：**2025年06月17日 08:39:37（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Iran will only agree to talks to end Middle East crisis if Israel stops bombing - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9BR3d0YVBlWDk1NTE1NERvZ2VXZTJoVEhRSGg3Z3FoZmdTYUNwemE4a05SSVBXNEJYUEZPcHAydmlhVVpPdVdublNOU1ZBTTJBdHNOOW04eFlrXzlvdzN0VEVtOWhpSGVsS1poTW1nWXI?oc=5) |
 | Man killed at 'No Kings' protest in Salt Lake City remembered as acclaimed Polynesian designer Arthur Folasa Ah Loo. - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPb3dQYkdGZ2RWbGhONzhrNmF6dG1nMXFFZm9OV21oa0lRQUpiQkl1clhnU0RQUmNkb3NibEdpOU9ab25SY0FseFl6bFA0QjZvaGRZVFdmbzEtVnp5WEptS0E0SWFFbllIVnlPYVhqUWN2X2FJUlpfOXdfQUJqQUotaW5DQnlIYVp4T21RTGVkdDZuSjVDa1ZobWFuUVhEREI0akpMZGtwaDN5UHhuNDQ1Wmp30gFWQVVfeXFMTzVXVU1rS3BXcmJhWDlycm5BMXhxZWx5NV9adERuYTI1a2JHZldLNU02b3pGWGMwcGpCWVhfdGF0VUZwNXJZTmZRanVOaV8xenFYZ0JIV2c?oc=5) |
 | Trump Administration could impose a travel ban on dozens more countries - NPR | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPcEdLS0NGN3NVdUNsTjdaaTc0S0plUVZFeXJMSGZVelZLcHNyRFFHYkVIRUNhbHpnOXdSMFR6V014V2IxcGVjaUF1eXlELVlTa0xpeTYza0hBS0IxTC1aRTJMaGJ2VnlGVzhZX3ptWDVJX0pNRkduaHl4V3lRdF9mT3hwTThjR0YzaFl0ZmFManRTYlg2U3V3aERvTmktTVJCd1J2bkhKZlF6dFp2VEFkMXg1alNOU1k?oc=5) |
-| Judge Delays Ruling on Trump Efforts to Bar Foreign Students at Harvard - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNaHVOTnp3dU84bml5S252ekRPLU5VRDlPTWpKMEE3blJ0Zm5qWDV1b1NyNjN3aEY1VFJrRjlzemhYSlptdUNDWXRyUW5HN3c2LUFkc2Y4SUdSdUtSUHYwakdNSndKMHFtZ3lfR3JubnB4Q0dfUFkxRmVPMHJhR1QyTm1sMnJqcEc4QVdkNktnT1RiQ3NGTlNZ?oc=5) |
+| Trump Live Updates: At G7 Summit in Canada, President Laments Russia’s Absence - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE5pOTZMN0dzMjNjbWdEeDNOeHNiSVliT3h4QzJGYjlJdGpfRE41aWpCc1pOaGxtbkg5cGJGTWdpT2JSSVUzS3FFVlFiN0ZlTGJ1emFRX3NiN3ZzS0pnNS1KUUxJbw?oc=5) |
+| Judge extends order suspending Trump’s block on Harvard’s incoming foreign students - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQc2ZmcmJuLVBMR01WY0MtNC10WGRDYVJlZTF0VGhXMjJXbUNjTWZaWEtHTVFETE4tSXVyQU9qQU9BbjJDeWJxTmRKb2NiNllUd2RKZlY1bTgzWFdjX0x5U3dsMHRqaVZsYXF6aDd5QS1zUGYwVF9oUlI4YTBlTDg4NElpVG0xX3hzMmlFdkFsS21qU1RNLVlnd3dzLU4?oc=5) |
 | American Bar Association sues Trump administration over executive orders targeting law firms - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQT1Brc2I4RzFMRkxvWWFyM1M2d21McXg5LWk2MXR0RFU4SGd6dC1MbDVjVlI0dklSWTlaYXhJVVBoNkFqUUlhRXBHYkp3NDZwbHc2UEpDRVBJaDJQekhGalNTZFlzWEdFQkhyZDhKUExmRjAyQTY4UldSNUZVa3p3QW1HNFZTQklyZC1JWXdB?oc=5) |
-| After early reprieve from immigration enforcement, farming industry reckons with raids - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNOTl5RXRIdmktODc5VXRGSlRCZHNIN2Yxam5IM2NXM3AzWDFkVThMV2lvdlFyb0RYaTBEY1FmeVROcUlNZjF0d3R4bG5Yb3VwY0FKVzdpMXFuNHRjMnZMdDUtTUdIenl6MFJ0YzBsZ0dXUktLZjM3Vk40SG1kaG41aG45S3R6QzM0T1J2N1NXLS05S0piNkZNSldzM09MT29hNVRLbkJLVQ?oc=5) |
-| CDC vaccine advisers who were removed from committee by RFK Jr. speak out - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNbjFvb2NnOGdoSlN6SzdlZ1RiWERaSVQtV3FEbi1ldW40QUQ5QzFlRzNZamgxWnlJLXJIeWlDOFBzWHdfeXJ1X296ckRGX0FKR3FvajVKeXJTMmdxNVI2TVp4QzFiUi1EcVdsWGpRWXFLU1A1SGF5cVF2VklRSWU1eUFjb0l3OU1JQXpGZ1VibFVIel9zRFpBejNvUHNvYi1zZVHSAacBQVVfeXFMUFVyVGZBcWZFMjMtbkFOZGtOTnBKbUdjRVA4UFIwQ29zQTlGUE9GZUR6eUlBc2FJQThwMzQtdWUzNGZmWUk4WjJlWllKMFEza2M1M1JwUzIyaHFBZlo5UjNaRG5KMkR0WWNVX2dOQU9RTWMxZmNqU21fWWdxUHlkbzhIVUdJNWtfNWItZkQ5NnRJZFJ1VjgtTnRpLXdhVHNXN2txd3JmVnc?oc=5) |
+| Jury finds MyPillow CEO Mike Lindell defamed former executive at Denver-based Dominion Voting Systems - Colorado Public Radio | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQQzAzQmxxWElGRjFTd19ZRFNsUWNEYnNSRjBpcWJnMGE1MXhmQXV1SnJlVlVWLWQwdWJ2S1RxYzVKczk2SEh3R0tQSTF5RE03Sk42S3lEX3JqNjh1N2lqR3A4SzV5STNpUEFUbi0tdVNqd0JWcEhZTFRPcFhTNEtqd1lYck53UXgtaF9J?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
