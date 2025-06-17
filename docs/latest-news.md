@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月17日 10:53:30（北京时间）**
+🕒 更新时间：**2025年06月17日 11:01:16（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Read the full text of the Minnesota shooting suspect’s criminal complaint - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNdDdyVXg4TGFnRzJMTThaYU1hZzZxU19rSjFraHFCVVNzZ21UR3g1VGUwMGZsRS0wSDNvVGV5NDdwM0FFdzBQY0h6QTVLTHpIYnpiaFVmd2lsQllxVEg1YmNtNTJTaUZOSWNhX3dTbmVsazhzV19NQW5sY2xIUmlWZmw0dXBRaXctTEMzUENmV05uT0V6X3QxYTBFcmF3Zw?oc=5) |
 | Police question 2 armed 'peacekeepers' in Salt Lake City's 'No Kings' protest death - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOX3UtTlNhTjJrNHZkWjN6S0Izak4zbGdYNlhZejE2cVNyUWF5bmt5eHBlTE5mc19xU3JzRXJ6SU9ORDFiZkRrQzRqdnZrSWVBWW9yTU52RFphR1lWVEZZbG5RcUE5ZFBNeUJKM3dONEVJdWtYR3ZzcTZxZ1RLbDVNbFV3YnhTaURqLWx2Z182U01UN212ZU9fcHZ6UjRXUdIBowFBVV95cUxPRm8yeW9vNW5Gd0FVNWtRRjNlZnZFUGFSd1VJbmZNaWV2aW9CeVZtY3g1ZVhpLTdYRWRIU2VlUFZNYTV2T2lZQjlrd2FyQWR6UjkzbHd1RzMzY20yZXVPdzVHNXBuaGxYS0ZoUTk5SUtwMDhBeGt2YVc0TXI0Ukt5bmV2V1lmMlRaV0VMZXpJRmJmczJhMDBNQ2I1dnlxS21Bc0U4?oc=5) |
 | Trump’s focus on blue state deportation belies a red state problem - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPbzZjUnNENmkzUk9fUUU2dWFJaTZpUHVWZ3dJS0RIbV9sczNSTmNRNmV1S3k4SUhpd09jUlBTVzJVd0VjRXBtbUhWX1lhWXhxWHhtT1ZlTDFFSFAwZEFZRVJCMURqcWFTT0VKWTF3M3Z6U3NHR21KcE5fODIyczNSb3NXWHNEdVBUTURsQw?oc=5) |
-| Iran will only agree to talks to end Middle East crisis if Israel stops bombing - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9BR3d0YVBlWDk1NTE1NERvZ2VXZTJoVEhRSGg3Z3FoZmdTYUNwemE4a05SSVBXNEJYUEZPcHAydmlhVVpPdVdublNOU1ZBTTJBdHNOOW04eFlrXzlvdzN0VEVtOWhpSGVsS1poTW1nWXI?oc=5) |
+| Trump: "Everyone should immediately evacuate Tehran" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE85VzV1UmJtc1hfdDZWWUl0LUJrYmtLeHVmeHRRZGlmTk11dUpHaVZhSFhlbExmY0ZNMVNYY21wUHNIRFNDYTM0Wm1JVXI5ZUV3STQ0TFBOS2taY1RNR3ZBd1Mtd1JQaE9iQXJyUFdYc0hkUE11V0l0MA?oc=5) |
 | Judge extends order suspending Trump’s block on Harvard’s incoming foreign students - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQc2ZmcmJuLVBMR01WY0MtNC10WGRDYVJlZTF0VGhXMjJXbUNjTWZaWEtHTVFETE4tSXVyQU9qQU9BbjJDeWJxTmRKb2NiNllUd2RKZlY1bTgzWFdjX0x5U3dsMHRqaVZsYXF6aDd5QS1zUGYwVF9oUlI4YTBlTDg4NElpVG0xX3hzMmlFdkFsS21qU1RNLVlnd3dzLU4?oc=5) |
 | American Bar Association sues Trump administration over law firm sanctions - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPaHlYUjFIaG9oc2RCbXhGTy1JNWxJc3ZxRTBUNWp6bVNhbGZfWGNyT1dUMEtUQXJ1QkZITDlRNFR6OUgzVkdNeVUwanQtbjBGVFFsaWcwZXU5eURSc21mTTB4bHBEZ19VNFRvUF9xaGVpWDk4dGJOUzdxZlNwa3hRSnZLTDFBUVBVTVZoZHdGQUE?oc=5) |
 | Mike Lindell: MyPillow boss loses $2.3m defamation case - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFAxQ1FaaDUxcDhhTmFVQjVwWkNDOW9XTTRnNkl3ZW5KLXJKT0VuWU5YQlU0Z3ZyaThuNVFYNWRmc2pkTUtiYjZRNzJoa3Rpa2ZKc0FHck5pR3BaQdIBX0FVX3lxTFBRQ3g4bkYtNXdGTTJqWFpPbXYzVnkyUmtlUWJwa1hIUWczXy1LbWJIb3dxNWtnV0ZpTkRENnVMbGppQ3RXZWZEZUo2M0prVVZGamUySWhRTDg5NzZ5MlQ0?oc=5) |
