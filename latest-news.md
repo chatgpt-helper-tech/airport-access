@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月17日 19:40:09（北京时间）**
+🕒 更新时间：**2025年06月17日 19:53:59（北京时间）**
 
 ---
 
@@ -10,9 +10,9 @@
 |--------|-------------|
 | What are Trump's options as tensions escalate? | [阅读全文](https://www.bbc.com/news/articles/cx23e4pzjg3o) |
 | Israeli forces kill 51 Palestinians waiting for aid in Gaza, rescuers say | [阅读全文](https://www.bbc.com/news/articles/c74zj9kv2xjo) |
+| 'I saw the plane go down': Teen traumatised after filming Air India crash video | [阅读全文](https://www.bbc.com/news/articles/c0l484l40gyo) |
 | Yellow heat health alerts issued for most of England as temperatures set to soar | [阅读全文](https://www.bbc.com/news/articles/ce3n8kgdj50o) |
 | 'I hope you get cancer' - Katie Boulter reveals scale of online abuse | [阅读全文](https://www.bbc.com/sport/tennis/articles/cj42rvdk2k4o) |
-| 'I saw the plane go down': Teen who filmed Air India crash video the world saw | [阅读全文](https://www.bbc.com/news/articles/c0l484l40gyo) |
 | Reality TV star Kim Woodburn, known for How Clean Is Your House, dies aged 83 | [阅读全文](https://www.bbc.com/news/articles/cd783228vvro) |
 | Starmer and Trump agree parts of UK-US tariff deal | [阅读全文](https://www.bbc.com/news/articles/cy8gxp7dvepo) |
 | Murder arrest as woman found stabbed in house after 'gas explosion' | [阅读全文](https://www.bbc.com/news/articles/c873ge528eno) |
