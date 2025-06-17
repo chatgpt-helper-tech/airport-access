@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月17日 23:53:30（北京时间）**
+🕒 更新时间：**2025年06月18日 00:01:34（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Breaking news. Tehran's fate up in air as Trump vows 'a real end' to Israel-Iran conflict - Euronews | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPUGp0ZDMzYTRTYkRUbXZQdlhwdkswQ2ktSXpRTmlNT3hUMENtYzdGc0I5Yi1XVGdlUDhYc0c1WkxkUjdiNXh6M3J3b1JtVzZKcHB6SEFsX2Q3WlpiSllaR25CZDFQSkN0XzhWcUlCaWZYWVMxQUVzWkhMaERkRzZ4Y3RheVdHRy1LVDdRMDl0Z1Y4QUt3Y1hvR3I0UmcyOW1Lc3N4MktMRm9tdWc?oc=5) |
-| Congress is holding emergency briefings on security after Minnesota shootings - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOMG5SbFZmZm1MQkxmanZ0ZURQb05HQlg0b2NkSFRvVFpDZ1FJclZJakRFNzJnMGtUQmRNbFVtNVlRbGI2MGlINm1FSEcxU3VTc2xnempRWTRoSEoxamNlX0FWSXl6cTBSaG1IQnZ1ckp3YzUtN25seW1BemlIUFVjekRRS0p5UXItcDg3ZDBtb0VrZDRMSjVCc3VNMk95cUd3dWMwV201NA?oc=5) |
+| Minnesota shooting suspect went from youthful evangelizer to far-right zealot - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQOXc1NnlEbjNnejNEZ3prWWJmV0o3SmRKVU5JUjBGOVFZYkxHRWdIbW50djR1Vm1xeXFhbnRyaTZuZ0dyUVg3dG5KdFFPMWFDODdDcmxldzZBSk1sREZyZmh3Z3ZGOERTLXdqY0xQOHN2VVpvZ0NuNk9BTnVSbzNsRGFtSVl0ZHNwQkI4Y1l3RHdoQmdGUkdvZUUwMA?oc=5) |
 | Virginia’s governor’s race could be a barometer for how voters feel about Trump - NPR | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQejFwT0duN0FOYlpxTkswNjRMck9PUHlvNWFWdkFpRGFKVzdHcVpfX3NDbzNFM09sMlliQWxjUHVBWHh6THZrOWdrVUQtMDhWNDRQOXhUQTVLM3prc3paLW13NWYwLWFEV3VyRUNsVUo3eHc1VlFtdHZsVjJtN0hCOEVFanNuYVhGUUpXMi1ENjlXNmNxd01yY21IYnZpU2pRZ3h6UE1WQUJzaWEteVBWN3ZCM3VIbzRBdkVOVkhUYw?oc=5) |
 | Iran leader Khamenei sees his inner circle hollowed out by Israel - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPNDFYazhGZHF2VHc5RUNtTklnSGdzcldDZ0JSU00zeHlDVEV4RmFaVERUbjEtSUJxdmF4MEU1SXNpSDdVWkJDQ2xWZFc4RzlobmluWHpDSUp5ZWo4Z1VTNzU2Q1prckIxZ1FYY055NWVGeFg3UzhBb04xWnMwUVpiQ3N0WW5IX2d2YzQ5UUpLX0ZrdEpwNWFjTUUwR3ZlV0ZiMUtJNExfdFlmbUUyMmY1Yk93XzVOV2ladUF3?oc=5) |
 | Israeli forces kill 51 Palestinians waiting for flour at Gaza aid site, witnesses and rescuers say - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFB0ajBFcGJESGZmYmUtZERCcTdxTmZuS3l0RENOTDRZWjdrVm1DZ2lUVm9DRjBoQ0tLbk54MEF6UlhkYlBUWUFPVmxNa1lPcW1rZXh5cWhXME1qd9IBX0FVX3lxTE1tTWhOc2dHalJudW9yOUhuZWgweGkwalJIRkVHU0pUV0hPaEhvU2VaZkZxX1FDS1IxdDQ2X0hzcUtCNDh2Q3E2SkVvZ0dScHh5M3d0clhNVHdoS0xodWZz?oc=5) |
