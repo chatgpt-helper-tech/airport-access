@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月18日 05:52:31（北京时间）**
+🕒 更新时间：**2025年06月18日 06:00:57（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Senators get security briefing following Minnesota shootings - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQZEc2T1otdWk3cDE2SXRUdkhNRUk5Vm1rOVRPdnlpRnFSbGdJSmozMW0zT3RRa0VBdEhCNnpnZFg4T01GMFJkTC1ES282d1NZTkF4ZFNmUzNhMGdWNDZtc2IyZDJqU0NfVk5UMlo1NkpWUU9jYlVOSzh3U3pGeVBoc0hRWUQ3am9ROHRMNGZBbll6elVhUUVEYzEzclp3UQ?oc=5) |
 | Hospitals, used to getting their way in Washington, stunned by Senate Medicaid plan - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPUUd2XzVpaFNyLTNXcjZPWU5VZkgwT1NWZzYzMjlNaXlsUUZLNXJ0NkZWR3dyUTU0dEI3VFZhek9EZWVxT3JpcmdJZlFRNHFVSGJkeGRpTUdSNG13bjdPUjBuLUxENjcyV1lwMnJ2ZHBieVJyZkFkeF9aY0F3ZmRHQWZwX1ljWFlKS2VZTmVVVWJBMGx5?oc=5) |
 | Mayor Bass Lifts Curfew Within Downtown L.A. - City of Los Angeles (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFA4dDVmanlFbVM4WHNOUDJJVlRGZWRiM0V6dEJMUHp3UWo5V1lMWVZyUlBrVVlXZm50aTlhbGtkU0NRdDc3QW5MaVVmcXY4dzNSbFRLbmpzY3RrbVE4U0p6YXJHaE11ajRQZG1tX1lzNmJBSDlQRVh0MERaRW0?oc=5) |
-| Trump met with national security team in Situation Room amid Israel-Iran strikes - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPbmUtR1l5SmJNcmhMZF9rUkNuTWxTemdMRlpvcDFMdUNmYWMxQ3ZlOEtSYkJKdVExYjJQXzltaDJqWl8taGZPUk1Pc2p4bDFwZXNzOTFEZEhVZUlyUnhPcUxlV2w0UkRnLThmUzFfaVZlUmlaOGtLLTlFR3E1STI2YXpaTVdmWVh2MEdwdzRzanBDS1A5dDFMdTlWTGVpbVFoMGozMVBSXzZoUkHSAbABQVVfeXFMT1h1LXZqZE5GNF9jYk1NVG9yRnF1andQblljQ3Fja0llX29tdjZyR0pTdU9JWUFnZFdJZHZZT2J1TWszUWNGbEFuMmtXVnQtUmhJN2dhYktLWXVwS3NQanVoMXRjei0weFJudXlnRmw1blRwTk9VaWkzRGU4MWhhbk1QX2R0akIzeUdsYVVoYmxVWHBSMU9oYUJPMWVoUHU2VXh0YU5BWVdNcmJmbmRtVDQ?oc=5) |
+| Sen. Mike Lee deletes controversial Minnesota shootings posts amid backlash - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPVE9Zc0dRSTVYRkU1Y1ZEd2tHaVIyUmg1MVNXOFg1cUNiYmphVC1WbkFxTndWWFN2S3Q5Q3hQNGQyeWNLZDJocjc5dFc3UWl6RDcwcGxYelROa29hZjg5dDBmdTdCOTdxcXk0eExlb2tqZXZNYkdWek0xWkxpZmE3bG5fSWV0cklIaEFrM1JUdkY5SGVQXzdaVWNLa0NCdzVPWGFDZmEzVdIBrAFBVV95cUxQMTFpWGZWVmlpckdweHBscEYzanhoNlk0VUhZT2NPZk05dlhXX0pYOGM2RzJzRW9yQXU1WFpYQXFZLXNxRi1aMlZTTUNrUkFvUHBVWm9yLXpqcGU5MWo1RlpDend3Q04zTGpMYlgyaFFkSnpiZUxSYjU5dzYtRkYybGtSbU9Tczl4TkVraEVoT2FYSHRfdkpFQWhjM3pPazNfTU1iNFN0Mk1FSmVO?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
