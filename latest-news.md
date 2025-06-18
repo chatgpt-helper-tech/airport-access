@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月19日 07:39:02（北京时间）**
+🕒 更新时间：**2025年06月19日 07:52:48（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Supreme Court upholds a state law banning some gender-affirming care for transgenders kids - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPZVlObDRDLXloaXhGdVlCMkxjd1AxOFk3cTVxRExZaGNfS0JSXy1vaDFaU3NqandsR1NCMndxMG9ISkdiSWk1SWhPeW9JbnRyRGdIUzBQSGdCR2d6MFJWc24zRktqVThTYTdrZS14dDZNcDBHOGh3R2RtNzg0SHkzTnBrakszMU9ScnBOdC1OLWwxcEROVEZCbWNpamU0a0FvVktCRTdFOWJ1Z0HSAbABQVVfeXFMUEdubTlNUmtBcVZrVzl2YXBYV3JhZGdaSFlaOWRwdDVjQnAtNmNDWUpWb1pIa3kxT1EyNmhraGxIXzhXZlpySjh1VERjdmVQN3ItVjFwUzB0VzFnMk9wQjlMRHR4UzBVaVB1NjQ5LW45VFFKck50bTE3N3psZmpqeGV3T2FIVlMtYnQ5NWwyT09lT1RkY0tzZ1UwQU1iNzhRRzRfVUhWNWZGSzRLeTJFRGk?oc=5) |
 | Break-in reported at home of slain Minnesota state Rep. Melissa Hortman - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNUFQtU0F4eTJaV1NfVV95WUJZMTNRMWZ4d0duX1RUUVlCTzczR0wxeVBxU19UYldwT3IzTVgzNElhbkJDakdzd3RmMjBIU2FvanB2UXJrV0VLZmtWOU53SThVUXpUM0N1NGdGbHl2RDE4akhVT3o3LUJRdmxIckxpM3ZwcGlUU0VCQ3FHVThxT3o3R0FZeWpLZVRVWW80dzZ1QnN6em9JVGNFX3o0TXfSAVZBVV95cUxNakpnbXJ5b2tEeDU5OUF6ME5PbmR4d3FwaV9XenhSaFhQNTBGLWhCcVhWNlU0a2hfeUQ0RTdta0NMSmhUWUZjQUpReDVuNW5oMkhvTnhvUQ?oc=5) |
 | U.S. Reportedly Evacuating Some Diplomats From Israel Amid Iran Conflict (Live Updates) - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOa0xHR2ZyYmtuQmpaOTdSako1cVZpa3B1RUFPWDFHM21qUTdNbmliUFNTbmN6eG5IOFBrUFJpd0pvWkNEbFI4d29ZaDhqaUN1ajJVQXpUVHN5bERSeUhyZDBKenJMRG8xQXcwZlR2M1FRTi14SndRZzRQaHViMUtJQXlLZjJURjZ0ek9ZS0l0bEF3bml4bGhoRUp2NWFuMFo1Y2ZmSk1JVkNlSzNFSktfVzRJVHFLSVhU?oc=5) |
+| US to end LGBT suicide prevention service, says general hotline sufficient - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxOWldydlgwbW1rWnJnX1VXMEJkbGZjYkN6X0ZqaXllZVp3RUYyZ0NQcXhqZHhKNHEybkt6UGRKMnVyOHBTTHBBM0QyTzRtVlZ2bmtfNGpTTF9zclk3MGVBdzdZQ3lueUpVcFFUYnVDUUdOdXRGWFdGYWdtSmpVc2hJT1RUcGNWMEhmX0xHcEtnVEx5UDYxNFV1ZmJUN1hoMTBIa0xTcmZEeVpzTjZlVmh1ekN2TlU4dkxNR0thNmNmWVlMa18xbmZnYzRLQzZoQjM0R2xTMDVBUkhrUQ?oc=5) |
 | Maps show heat wave forecast across U.S. Here's what to know. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE84MzRIcmFRLTJ5SE1ZWXFoVV9Nc0t3QXBxcWZ1QS1ObERBVXBOdHBuY2ZHQTI4ci12VF9Zb0Y4SHZxU1BMZFgxWk1mMDJZR0dEbWY5d3RsamZEQ3BzRGI4a0RLSzRXVEdOdEpqUmtFUW11RFlw0gF6QVVfeXFMTWpfa3JVcWZSLXRsNFdOQ1d1RmtscGEyeHlxSG4wVzJMVndTLURGU0ZDcF83VDhoTFJMdF9sb05wbnplXzdkeW9hS1VndlFGdG9XU25tVTdRTUotWFdhSHF3VENOcFNQVlhTSHhZTkxMQm5lTnlWTGxxVkE?oc=5) |
-| Trump administration cuts specialized suicide prevention service for LGBTQ+ youth - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPNWN0UldMMnBOYU1BbGt4UmNEZEJuZUFOaDJDMmpldkdjS0tiU2ZjUTJydTIwRmlONWdGTkZ2bmx2VTR5VGdDU0RYZmZuVEd6SU1jQnBVVjZiY0ctT0c4RmdmNXZqNnQxREw1cEtuWG8tTWVrTUFPeTZrbWREM2NXMlFqM2V1ZDZPZm41LWphSkhLaktnQkw2MWRWMXE5RV84aGFj?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
