@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月18日 13:53:27（北京时间）**
+🕒 更新时间：**2025年06月18日 14:01:01（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Steve Rosenberg: Russia fears another loss in Middle East from Iran's conflict with Israel | [阅读全文](https://www.bbc.com/news/articles/c3w463pyj90o) |
-| Dozens more parents demand maternity care inquiry | [阅读全文](https://www.bbc.com/news/articles/cp861jezrj1o) |
+| 'My baby died after I was ignored': More families call for NHS maternity inquiry | [阅读全文](https://www.bbc.com/news/articles/cp861jezrj1o) |
 | Police 'could and should have arrested' US diplomat responsible for Harry Dunn's death | [阅读全文](https://www.bbc.com/news/articles/cj0m8erl3rdo) |
 | 'Taxi boats' pick up migrants in waist-deep water as Channel smugglers switch tactics | [阅读全文](https://www.bbc.com/news/articles/cpd1l6p8vw9o) |
 | Extreme heat is starting to change the way we holiday | [阅读全文](https://www.bbc.com/news/articles/czxw6331grxo) |
