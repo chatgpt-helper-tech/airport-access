@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月19日 02:53:16（北京时间）**
+🕒 更新时间：**2025年06月19日 03:01:08（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | War on Iran is splitting Trump’s Maga movement - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBCSjJfbFJnaDdDUy0za1M4R3h1a1ZMU3VFcUxfaG5KYVRpWEhSMmNZX0JNN042YktacjdNUFVjQzhDQTY2S1VrdVQ3S3ZXbW9HanJ6LWozcWpOb3lkcTJsVnhKLThhRnk0ZURwc1BIdVQ?oc=5) |
 | Iran Near-Bomb-Grade Uranium’s Location Uncertain, UN Watchdog Says - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQSThVcEVTN0lwN2NsZGMxOElTZ1RFd1plMm5WQ3RxZzA5Tkl4Z280enBMUkZ6ZURKNmRTQ1o3NHdXaDNxNF9tUFRBSnQxWHYxQUQyYm11amp6SmZHVnVPQjlWbFVJQVlWMkJLZktFb2d2TjJnbmp5bVZHRFQ0TmU1U3FkdGJTZ0ZGejhRZFpUZk1ZeDF3NEZ5OW9WTzZ0cGdqRDg5b0RNSmRXSWNuX1lwUjRobW9ZVjFVTENfbDhqemQ1dw?oc=5) |
 | Why a Vaccine Expert Left the C.D.C.: ‘Americans Are Going to Die’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE82NS11LXNXbTZsMVVfRmpZaXc2Um5MQk1aY2JnRDdnZ3FSbHJjUmJoRmlwQUhTSm41SlBFRkFqcjdHRk5ieGVlVy1pZjJmX29UTUliU3hqY05RZVEweFdoNE1wVjBQR3JpTTEzZVB0NEw3RHV1V3BhczE0cWE1VDg?oc=5) |
-| Break-in reported at home of slain Minnesota state Rep. Melissa Hortman - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNUFQtU0F4eTJaV1NfVV95WUJZMTNRMWZ4d0duX1RUUVlCTzczR0wxeVBxU19UYldwT3IzTVgzNElhbkJDakdzd3RmMjBIU2FvanB2UXJrV0VLZmtWOU53SThVUXpUM0N1NGdGbHl2RDE4akhVT3o3LUJRdmxIckxpM3ZwcGlUU0VCQ3FHVThxT3o3R0FZeWpLZVRVWW80dzZ1QnN6em9JVGNFX3o0TXfSAVZBVV95cUxNakpnbXJ5b2tEeDU5OUF6ME5PbmR4d3FwaV9XenhSaFhQNTBGLWhCcVhWNlU0a2hfeUQ0RTdta0NMSmhUWUZjQUpReDVuNW5oMkhvTnhvUQ?oc=5) |
 | Life-threatening heat wave in the Midwest and Northeast to kick off official start of summer - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOSEhGVkFlOTVVWjRvLXliVEwxNF84dEJNeEM1dkpScFdub3R2aXdfeUNLVlRwc0pVSm15a2NObHJJV290eTFBeGhzUF9FanF0NndVVlFtSkNxbWxBUml3WElpX1VEZ3diYnFxYmUzQjY3dGl2VkY3SHo5d1hZTHBYUjhOZDNvbDVZbk1URUljTjRvWVg5anRkSWJuS2lXNm_SAaQBQVVfeXFMT2N3UGpxemFBRmdybThRQmNTZzhrVEI2b0RDVzZHako4cUhqNGdnYmJMbGJPc2YzTzcxOWFZallTU3AyNGFIR0JjNDctT0VpbmVJdVNjQ3lidklnQ1p0aURsMzB5UGhFaGpzaGNDTGN3X1hSVXJKOTdWYjBYMFQtQ1BLM01LcU9FbWtKQUtOU0RGX2pZeFpOUWtiYUpJTndhd0F1eVo?oc=5) |
+| Break-in reported at home of slain Minnesota state Rep. Melissa Hortman - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNUFQtU0F4eTJaV1NfVV95WUJZMTNRMWZ4d0duX1RUUVlCTzczR0wxeVBxU19UYldwT3IzTVgzNElhbkJDakdzd3RmMjBIU2FvanB2UXJrV0VLZmtWOU53SThVUXpUM0N1NGdGbHl2RDE4akhVT3o3LUJRdmxIckxpM3ZwcGlUU0VCQ3FHVThxT3o3R0FZeWpLZVRVWW80dzZ1QnN6em9JVGNFX3o0TXfSAVZBVV95cUxNakpnbXJ5b2tEeDU5OUF6ME5PbmR4d3FwaV9XenhSaFhQNTBGLWhCcVhWNlU0a2hfeUQ0RTdta0NMSmhUWUZjQUpReDVuNW5oMkhvTnhvUQ?oc=5) |
 | Florida attorney general held in contempt after enforcing blocked immigration law - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPZXdvV1BoSnMzVlA4d19RblFmWTZiNUFyRXhrcE5tdE5ZTncxMWtPQlU1TlpEekh0WjRkc2tSSFpJaUhqWjF6YWRCNlVkcjZwZnQxUVV0R0l2ejlwbVRTaTBZNi1SUWhOR1oyeENtQlF4RDNfVFVVMVE2OGR6eEJVS2Eya2dIYWNoa25OaEZLX2RGWVVHS09pNS1Ka3NyVWY1dXVr?oc=5) |
 | GOP hawks appear to be winning over Trump on Iran - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFBpVXdWOXp6a3ZJWTVaaGZLTm1DdTQtdlF0RnVTeGRDT1hFV2lLZXVidmFMSTV2R0hrYVpibHBjbldDaDh2bmJ2S0c2TFpVS3Q3eFVHZnRPamFjYWdBb2hDaUpBczBwSW9tTWFKUS1EbVlyMFVNVlBocUlB?oc=5) |
 
