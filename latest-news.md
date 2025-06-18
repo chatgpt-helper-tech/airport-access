@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月19日 07:01:21（北京时间）**
+🕒 更新时间：**2025年06月19日 07:13:26（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Trump’s Base in Uproar Over His Openness to Joining Iran Fight - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQX1hWT1JIM1dDblpNNkMwR2t2Z2pXTV9kR05uS1FRSWhlY3NDN3F6Q1FYQmNoalZoa2pEd1BXY0ZNbjhZbDY2SXVSd2lhQlpUeWtiUzV3c1ZrLWRUWW5xeXFvSV8tMm1MWW51TGJOalBXSVQ0YlFSaEVVV1pORm5KQXp3ZTZtdw?oc=5) |
 | 'Senseless violence came to my door': Rep. Kristin Bahner reflects on surviving accused killer - kare11.com | [阅读全文](https://news.google.com/rss/articles/CBMiggJBVV95cUxOdXNnNE5OU0d3ODFRYmVBNXVtYmNpRENiaU9qeWV2aUptZ0tOdnNlVzRyWGhBSGdlNG9CdHZmNnpScE03RDB6Rnhkcm5tNmVYeEloLXh6a1hJdGdlWkw3TEREVmdFTXkyVmtzV1VwNE9MLWFSempETm5OVGVEZnVYM01pdFlWMDZhLXFTbkY1dFNaOHp0V2Q2cnVvbGNTdUJRZTF0OS1sWi00UkRhVzF3dy1RaDNtMXpFS0RlcTdpaDdOWks4ekctS0N3Vklyd05UbE5EY0FlbXJKeExRem4wSkh0Tmw1OTNqc0pDZkpxbjF0OHBjSXd2anpJcnB3T3ZsYVE?oc=5) |
 | Florida attorney general held in contempt after enforcing blocked immigration law - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPZXdvV1BoSnMzVlA4d19RblFmWTZiNUFyRXhrcE5tdE5ZTncxMWtPQlU1TlpEekh0WjRkc2tSSFpJaUhqWjF6YWRCNlVkcjZwZnQxUVV0R0l2ejlwbVRTaTBZNi1SUWhOR1oyeENtQlF4RDNfVFVVMVE2OGR6eEJVS2Eya2dIYWNoa25OaEZLX2RGWVVHS09pNS1Ka3NyVWY1dXVr?oc=5) |
-| Republicans uncover no new intel on Biden during hearing on his cognitive abilities in office - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNRmF3ZmxabGZsZXl6N0lLTEY3OFFfVzZoTkktU1ZCSTVXLW5QekJ4UmlQRzkzTmd2WFE4MlptRU1jaEZTZ1lNenpKNWhuQVEtQ0NKNmg0S2V3ZHNzWmxkbHRFdUlxQVRqZ2pRc3BFSWJLRm1yVGxXZm1PM1JiVUNjdTdnb05ZXzJpYU5HRy1oSV9NbGVHY2diMmN6RG1YWW11MVl1OUlabEd1TGRRNkw3UmNfMEPSAboBQVVfeXFMTWt2am1YdnE4aTlUT2I3R3dlenl0eWFhdWszVy1qbTh2bXJpY3RVREdhUGdKMG1oZjVRRm1sM3IwQjI5czR5U3JVaHZCOVJGY0xsVnRVSHdqY3RtWmg1ay1NWDMtWEN3TERkVHAxWGdKckFDaUgtQXFjbkk3eVMwNFYxOHlrbWhPRGJ5WXdMbWRNblA0OGh5M3pJOEpEakdiMXNCNlR5SXZzUi0tTjVWc3l2YWhzNVA4X2NR?oc=5) |
+| Iran’s Supreme Leader Warns Of ‘Serious Irreparable Harm’ If U.S. Enters Conflict With Israel (Live Updates) - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi6wFBVV95cUxQZlhKWS1jTjQzdGN4YUk4WF9FNGQ5WHdqeVZzRnNXVnpYV1pHZ1pSYXpydER4XzJkbzFTS0NaVGtoQjJOeTV6WjIydENZYk5fSTNqWnJQcTBIN2F0QTY3NFdob1JDZWU1YXU0Sm9XX2pWS0JGNXZIaWdzOVJkVWh5TWY0NDBGeWF3bEZLR2VsWDJkWE5YckVOOW5xNVZLSmNXS1pTNUUzVnljN2tqMUozbVJMU1daSktWc2RjQkx6TlV5cWwwTDRVdUF3NTdnYkt0U1hSb1lmOS15Q3pEZ2NOOWZVd2c2MXRaT2x3?oc=5) |
 | Angst over Gaza set aside as Netanyahu's critics back him over Iran - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxORjZkU0p4X3BleVZneFdrclVVZHJwNmN1SEVrZEhIdDkxNTA4M2d5TUlEbjgwelRER3o2LUVadEZrVWpQU216QXRTU3NuQUVOX0hNUlJjeXVXbWNwYmx5OERrbHl2cGJBRnh4S2pTOHhkSmdUZm9aTm50NkJVNnQ5aWtKaUhNbzNzQ3FtSDFmQ1ZNVlVxOUh1YmRpOWRZUXlDVWEzbWpMbmdBbG45RmJzdnY5cEcwOTVO?oc=5) |
 
 ---
