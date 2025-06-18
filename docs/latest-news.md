@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月18日 22:13:42（北京时间）**
+🕒 更新时间：**2025年06月18日 22:26:35（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | Kneecap rapper bailed over terror charge as protesters gather outside court | [阅读全文](https://www.bbc.com/news/articles/cy4k4xnlj8qo) |
 | UK braces for heatwave as temperatures near 30C | [阅读全文](https://www.bbc.com/news/articles/c8d6jmmdq5go) |
 | Briton dies from rabies after stray dog contact in Morocco | [阅读全文](https://www.bbc.com/news/articles/c98wyllp170o) |
-| 'My baby died after I was ignored': More families call for NHS maternity inquiry | [阅读全文](https://www.bbc.com/news/articles/cp861jezrj1o) |
+| '17 hours birthing my dead baby': More families call for NHS inquiry | [阅读全文](https://www.bbc.com/news/articles/cp861jezrj1o) |
 | Record rise in chocolate prices as inflation remains highest for more than a year | [阅读全文](https://www.bbc.com/news/articles/c5ygdqp922vo) |
 | OpenAI boss says rivals Meta offering $100m for staff to jump ship | [阅读全文](https://www.bbc.com/news/articles/c8730088e5do) |
 
@@ -30,8 +30,8 @@
 | Industry leaders plead with White House on relief from raids after setback - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOLVJicXlITnUzdk5hc0lqMGJNbmttOUxJU3BJU0FFZG5rbXY1bGQ0YUpQdWtySGhRZ1BQR2laQ0hLNUxJNXhJdUF1dUZLOWJZQnlwaUlrOElQNWk2RTM0d21zQ0tLMzRKQlFrVGVmTkZldm9CZ2IzcV9uTGtiVzNSNVJuU21FbEdOcjVv?oc=5) |
 | What is the Massive Ordnance Penetrator, the U.S. bunker-busting bomb? - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQMDczUFlNN0EydERRcnl1cG15NzBIV1Z4SHdBWm5aVTQ1OENZZTcxV3FwanhNRENnbERXeVpnYVltdW5jTWpyZ3d4T3pUdUU0RVZQRk5hZVFmVW1FNXE0Snl6bzRoWWRFLW1KUXhyNmhsZHFhXzJYdGRVcVBocnpvWlBkbkprOURRT3ZFSG40Wm90SWpsZlJVOWFPUWE2TFlEdWk4dHZjbVNsRGs?oc=5) |
 | Florida attorney general held in contempt for immigration arrests - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPZXdvV1BoSnMzVlA4d19RblFmWTZiNUFyRXhrcE5tdE5ZTncxMWtPQlU1TlpEekh0WjRkc2tSSFpJaUhqWjF6YWRCNlVkcjZwZnQxUVV0R0l2ejlwbVRTaTBZNi1SUWhOR1oyeENtQlF4RDNfVFVVMVE2OGR6eEJVS2Eya2dIYWNoa25OaEZLX2RGWVVHS09pNS1Ka3NyVWY1dXVr?oc=5) |
-| At least 5 elected officials have been arrested or confronted by police while protesting Trump’s immigration policies - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQM3JsVUlDLXBCUlAydkhQdlVyaFBxNFozd3hvcV9VRlhYb2hsT0VqOHRGN1NfeVJfcFZiVjJpOHdCdllDNkxjUFVQenRlZ1RRYkZYckFnN2NBSUJDMzRUeUtjdlppdGFjY3dfbWVObHNYS0NCVVJkWTg3NXg2dXQzeGNXN0lmT3dwRFVHMUtWTnVtY1ZZ0gGaAUFVX3lxTE9DcVRNWnFwSDhMa05NUk4xUFh3N0JHTFJ6Unh1bFlQcUxUZFRVVmZQX1BOSTFRQkZjaXFBeTFxa0ZKNW9IWnl5blR3TFdGYld3eGpPbnM4MHBiampjTmctNGRSVTdtazVsOTBjTGxudWM1eG9DbE1vci1KYlpteElOc1R1UTB0bjF5czZHNXMxYjE3MldUZjJPQ0E?oc=5) |
 | Inside the clashes between Trump and Gabbard - Politico | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1RUHdKbjg3OTZhZWVNSmJuQXh3aDhkX0dFQ1NreXgxZ2NvTEhZTUxNcy0xTEoxdHYtY3I3eWhkc2doSFMwTDF6WS1CVXcxcnZpTTY2NHNGTkVZU2lCbWxab01xelJSVDJrMWg5bEhwc1Y?oc=5) |
+| At least 5 elected officials have been arrested or confronted by police while protesting Trump’s immigration policies - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQM3JsVUlDLXBCUlAydkhQdlVyaFBxNFozd3hvcV9VRlhYb2hsT0VqOHRGN1NfeVJfcFZiVjJpOHdCdllDNkxjUFVQenRlZ1RRYkZYckFnN2NBSUJDMzRUeUtjdlppdGFjY3dfbWVObHNYS0NCVVJkWTg3NXg2dXQzeGNXN0lmT3dwRFVHMUtWTnVtY1ZZ0gGaAUFVX3lxTE9DcVRNWnFwSDhMa05NUk4xUFh3N0JHTFJ6Unh1bFlQcUxUZFRVVmZQX1BOSTFRQkZjaXFBeTFxa0ZKNW9IWnl5blR3TFdGYld3eGpPbnM4MHBiampjTmctNGRSVTdtazVsOTBjTGxudWM1eG9DbE1vci1KYlpteElOc1R1UTB0bjF5czZHNXMxYjE3MldUZjJPQ0E?oc=5) |
 | Hegseth defers to general on Pentagon’s plans for Iran - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQTjVBUTMxZEF0cnN2MHk2VURKZVdOS2NadVZYdHpzbkpSWWxVMl9fbHNYWFdsbWZhd1NhM3NFU1ZYS2pDU19fQWl5VTFTOWkxamMxYk9lQS02bHJTeVNodEhneTZoY3JwdFNMc3JRa0ktVVVjNG01a05pMFJGZlUzX3pweFk4c2g0Z2d6RGV4anNYd0J1b2VHRg?oc=5) |
 
 ---
