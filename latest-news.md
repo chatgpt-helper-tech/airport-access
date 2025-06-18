@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月18日 15:01:08（北京时间）**
+🕒 更新时间：**2025年06月18日 15:14:28（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Brad Lander, NYC Mayoral Candidate, Arrested by ICE Agents at Immigration Courthouse - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNbzZuR2NjVE93eHI5bEhsOE4zYzFBaFAxckVpOTBoZVBETC1GZWZkMmt6RFNxaG1pczEteEs0SU5wOGdYZ3ZSd3g0WmdEYllWVGdDX2Z6MlV6SldiX29YN0VMS2ZTd0RkNWZFUHdpY2lTbDRKYWViSVJZdHFwS0lKQUVB?oc=5) |
 | America’s spies say Iran wasn’t building a nuclear weapon. Trump dismisses that assessment - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQWnBhRExOVDUyMWI2TnBBcGdCa0xBNTZ6bmp2UWFjSUdoUDJ2QlNCSWJnMk1Jd3luMFl2MWFhaWhWbVVDZERYcGZJbkhnakJISkhVMVJ0REgzSUYtZWQ0TXZFMGxUcFFpQUFQNTJHZ0M1eF9xa1lmNnM3dHNncDdXV0tSdDRqNElXWEFNbXVGRXRXRDBQVk5ubXFHTHRRUnFMaHU2LWF5dm44cVVIOThTSFA3ZVpaOFVKYXo4YXJRTm1kbU3SAcgBQVVfeXFMTVY3NHVQRHYzY0M3WGZ6amEwbHhkWTNYVFNLQ253ZUZTa2hmZEZ5a1BwWE03UUhjX2ZEUU5kUm96Yy1ZMzZidzZDZUtqdzVhNG9hZ2lhZ05tNXY4UGZKNXI1UzlKMWl4aGFranVkYjNnTUtGX2FlLTJsQ2k5T2pTNUJ6ekdiM0t5b2ZBVUhpYVA1eWJwMFhncGFha25TXzVSeWxVcXotUHk5bGtzRzlhbjcwaFlSRnZJbVRPaFQwRUNaNjRqWklYZUU?oc=5) |
 | New Mexico wildfires force evacuations for about 2,000 homes, prompt state of emergency order - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQby1EaW4xZGdVTm8wanVDOXllQzVQQnlrb1I2cDk3cGVEUl9GZ18tckZXTW5hNlp5RTc2aExCckxDMHd6UmctRUlvVlB0S0xqbVI1R0JrQWtlTWtSS1RtZ0N5V2JLejlTUDJXSFc4d25JWXZhZnFGQmxOQVJNeFZUTHBvY1RVd2JWS2tTdzlMU1NWSjNHbmZZR0JOcGPSAaIBQVVfeXFMUGx3cHF0YndsVlIyVlRQV0VrU2ZuZWxQRFEwR2RoVzl3ZF9GbVA5clpqRTVIcEprX3YzUFNNaVRJNEo2QUJJYVVJSUhzT2ItNENyNHE4WXlncEVkeEIybUZHVldVdm1BOXVJdElqWW54bzUyeXktSlZ5SjJBSVpCdGdCMnd0OWR1c3hnWTQ1NTRjVDE0N0FVMUxuT3I1UUZsQXJR?oc=5) |
-| Sen. Padilla gets emotional on Senate floor recounting being handcuffed at Noem news conference - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNc0FfOVRXdUc3TGUzQm5xTUVuUHdaNmEwOUVkS3VhMWFGT0xrb3VNX2VrdWxOZ184N1pDZnE3WDU5Mklibno3X1hyQi14WEljSnNhbU5wdGVPMDUzZEdNMkc5Vmozd0Y3dWloa28zUG8yX1d1MzVkWG5xT1JUVnpSbkdSOVlNUG9QZmk2cDFXSWJzMlJjZmw2cmlFN3FsckhMTUtxWGp4dU4xd9IBrwFBVV95cUxNUko1NEZFS2g2bmFZUlpRZndYMjc0cFk4bTBvc1BjLW8xQUwyVHppSXlaaURIWnpQWTFCNjV2aXBWa0VHS0tzenZXZGhVQUNQcDFITE5SeGZyRHdURGZDMU5KMTdPVzEzaWFmSGtXNklNbV9Ub0JUN2hYVmJhLXY5Ukw4YlpxeS1jZ011ZGVTdEsyM0pSQXFzdU1ZMlRiTUlTcmx5YVlVUjBEX0NoaTFr?oc=5) |
+| Florida’s GOP skirmish has been dominated by lawmakers. It’s DeSantis’ turn now. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPZW5MZFB2THM5Y3VBWHNVY254U3lVN3A0RFJHMnBWQ1EtMVRDSzdORWdLbzNsWENOdF9wQ3VFRUJabVdFM1FkT2FYU1gxZk5kcWtHblluODY3SEdrZkdSMFBLREFUaHQ3V1FzM3kyZkg4UEZiRWlySEp2dFgzMUwxLWNHZU5ZYzQ0WmR6X0xuZ1RJNEtrNkV0VFRKcGg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
