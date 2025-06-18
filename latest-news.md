@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月19日 03:52:45（北京时间）**
+🕒 更新时间：**2025年06月19日 04:00:29（北京时间）**
 
 ---
 
@@ -8,6 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| British woman dies from rabies after stray dog contact in Morocco | [阅读全文](https://www.bbc.com/news/articles/c98wyllp170o) |
+| Future of Notting Hill Carnival in jeopardy without urgent funding, organisers say | [阅读全文](https://www.bbc.com/news/articles/cq8zxk083qko) |
+| Eleven killed by Israeli fire while seeking aid in Gaza, rescuers say | [阅读全文](https://www.bbc.com/news/articles/c7841705x18o) |
+| Under-fire NHS trust said patient had eaten breakfast - three days after he died | [阅读全文](https://www.bbc.com/news/articles/cly2r0x9xwlo) |
+| 'Everything was destroyed': Kyiv residents in despair after deadly Russian attack | [阅读全文](https://www.bbc.com/news/articles/c98j1y70e95o) |
+| Kate pulls out of Royal Ascot as she looks for right balance of return to public duties | [阅读全文](https://www.bbc.com/news/articles/cjrl34rvdxdo) |
+| Lone Air India survivor carries coffin of brother killed in crash | [阅读全文](https://www.bbc.com/news/articles/cvg8591rpjyo) |
+| Temperatures surpass 29C as UK heads for heatwave | [阅读全文](https://www.bbc.com/news/articles/c8d6jmmdq5go) |
+| Cats rejected as Westminster pest controllers | [阅读全文](https://www.bbc.com/news/articles/cqjqrddnldgo) |
+| How did latest conflict start and where could it lead? | [阅读全文](https://www.bbc.com/news/articles/cdj9vj8glg2o) |
 
 ## 📰 Google News
 
