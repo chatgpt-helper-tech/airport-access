@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月19日 07:13:26（北京时间）**
+🕒 更新时间：**2025年06月19日 07:26:40（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | US resumes visas for foreign students but demands access to social media accounts - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOYjR5OHYzeGk5Q3pBNXFFVTh0V090a1JvN1QwekFNWGhhaVNFcDNfenM1dzJrQ3hqZ2FWMkRlWkQxa3oyaGExV29ib2hTM0NUS0ZTdUpHOVJEZWptcEVSM1lYRDh0OXVxVDhvcWNJR2h2ZFFoamtuUFV2ejVTajlzT2dxamdJbVpwVUZXY1ZMb2c3NEJlQXdj?oc=5) |
 | Trump’s Base in Uproar Over His Openness to Joining Iran Fight - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQX1hWT1JIM1dDblpNNkMwR2t2Z2pXTV9kR05uS1FRSWhlY3NDN3F6Q1FYQmNoalZoa2pEd1BXY0ZNbjhZbDY2SXVSd2lhQlpUeWtiUzV3c1ZrLWRUWW5xeXFvSV8tMm1MWW51TGJOalBXSVQ0YlFSaEVVV1pORm5KQXp3ZTZtdw?oc=5) |
 | 'Senseless violence came to my door': Rep. Kristin Bahner reflects on surviving accused killer - kare11.com | [阅读全文](https://news.google.com/rss/articles/CBMiggJBVV95cUxOdXNnNE5OU0d3ODFRYmVBNXVtYmNpRENiaU9qeWV2aUptZ0tOdnNlVzRyWGhBSGdlNG9CdHZmNnpScE03RDB6Rnhkcm5tNmVYeEloLXh6a1hJdGdlWkw3TEREVmdFTXkyVmtzV1VwNE9MLWFSempETm5OVGVEZnVYM01pdFlWMDZhLXFTbkY1dFNaOHp0V2Q2cnVvbGNTdUJRZTF0OS1sWi00UkRhVzF3dy1RaDNtMXpFS0RlcTdpaDdOWks4ekctS0N3Vklyd05UbE5EY0FlbXJKeExRem4wSkh0Tmw1OTNqc0pDZkpxbjF0OHBjSXd2anpJcnB3T3ZsYVE?oc=5) |
+| Maps show heat wave forecast across U.S. Here's what to know. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE84MzRIcmFRLTJ5SE1ZWXFoVV9Nc0t3QXBxcWZ1QS1ObERBVXBOdHBuY2ZHQTI4ci12VF9Zb0Y4SHZxU1BMZFgxWk1mMDJZR0dEbWY5d3RsamZEQ3BzRGI4a0RLSzRXVEdOdEpqUmtFUW11RFlw0gF6QVVfeXFMTWpfa3JVcWZSLXRsNFdOQ1d1RmtscGEyeHlxSG4wVzJMVndTLURGU0ZDcF83VDhoTFJMdF9sb05wbnplXzdkeW9hS1VndlFGdG9XU25tVTdRTUotWFdhSHF3VENOcFNQVlhTSHhZTkxMQm5lTnlWTGxxVkE?oc=5) |
+| Trump administration cuts specialized suicide prevention service for LGBTQ+ youth - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPNWN0UldMMnBOYU1BbGt4UmNEZEJuZUFOaDJDMmpldkdjS0tiU2ZjUTJydTIwRmlONWdGTkZ2bmx2VTR5VGdDU0RYZmZuVEd6SU1jQnBVVjZiY0ctT0c4RmdmNXZqNnQxREw1cEtuWG8tTWVrTUFPeTZrbWREM2NXMlFqM2V1ZDZPZm41LWphSkhLaktnQkw2MWRWMXE5RV84aGFj?oc=5) |
 | Florida attorney general held in contempt after enforcing blocked immigration law - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPZXdvV1BoSnMzVlA4d19RblFmWTZiNUFyRXhrcE5tdE5ZTncxMWtPQlU1TlpEekh0WjRkc2tSSFpJaUhqWjF6YWRCNlVkcjZwZnQxUVV0R0l2ejlwbVRTaTBZNi1SUWhOR1oyeENtQlF4RDNfVFVVMVE2OGR6eEJVS2Eya2dIYWNoa25OaEZLX2RGWVVHS09pNS1Ka3NyVWY1dXVr?oc=5) |
-| Iran’s Supreme Leader Warns Of ‘Serious Irreparable Harm’ If U.S. Enters Conflict With Israel (Live Updates) - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi6wFBVV95cUxQZlhKWS1jTjQzdGN4YUk4WF9FNGQ5WHdqeVZzRnNXVnpYV1pHZ1pSYXpydER4XzJkbzFTS0NaVGtoQjJOeTV6WjIydENZYk5fSTNqWnJQcTBIN2F0QTY3NFdob1JDZWU1YXU0Sm9XX2pWS0JGNXZIaWdzOVJkVWh5TWY0NDBGeWF3bEZLR2VsWDJkWE5YckVOOW5xNVZLSmNXS1pTNUUzVnljN2tqMUozbVJMU1daSktWc2RjQkx6TlV5cWwwTDRVdUF3NTdnYkt0U1hSb1lmOS15Q3pEZ2NOOWZVd2c2MXRaT2x3?oc=5) |
-| Angst over Gaza set aside as Netanyahu's critics back him over Iran - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxORjZkU0p4X3BleVZneFdrclVVZHJwNmN1SEVrZEhIdDkxNTA4M2d5TUlEbjgwelRER3o2LUVadEZrVWpQU216QXRTU3NuQUVOX0hNUlJjeXVXbWNwYmx5OERrbHl2cGJBRnh4S2pTOHhkSmdUZm9aTm50NkJVNnQ5aWtKaUhNbzNzQ3FtSDFmQ1ZNVlVxOUh1YmRpOWRZUXlDVWEzbWpMbmdBbG45RmJzdnY5cEcwOTVO?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
