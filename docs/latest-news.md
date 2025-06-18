@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月19日 05:14:18（北京时间）**
+🕒 更新时间：**2025年06月19日 05:27:28（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Karen Read found not guilty of murder in retrial on police officer boyfriend's death - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1henI4akEzZFZleWljbWo5ZnR4N0JuRVZGRTF5dlF2V2Jvd3p6MHN0UVlVQy1FNXdvVWJmSzQ4Rl9mSjY3OUJOUmRlS0VEMXdwaFVBc0dYNkVmT0EwenlwTDBYNVdfS2MwM2JfeUJrQ1RkUDdpaXBYakgzc9IBgAFBVV95cUxOUTM3RU44WVJVdDV0TUFYVjFBQWJxbFVMN1JVd1BjTGdSSWNYOS1IUWFKTkx1T3ZwdTA3N3JkV0NUdHl3RDFiVnlNNnVMblNNU0pmMURnRHRzV2dNS2YxMnNCZE5aU09zeHdiMk55TUxoaWFWRUNwcjh1ekp6SlN3Yw?oc=5) |
 | Donald Trump says he ‘may or may not’ strike Iran - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFA5eHFKLXFDd3hpRk9ZWkg5dzdWTHBmOGNLeDl5NGRwOUdINlNBcDZlSGZiNG85UG4zYlQwZGZta1lpUG8wYVRpQnFUOUN4V0NHV2sySVVSaDVRYThSNU53QjdRUFhXMzVYd202VnZlZlo?oc=5) |
+| Karen Read found not guilty of murder in retrial on police officer boyfriend's death - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1henI4akEzZFZleWljbWo5ZnR4N0JuRVZGRTF5dlF2V2Jvd3p6MHN0UVlVQy1FNXdvVWJmSzQ4Rl9mSjY3OUJOUmRlS0VEMXdwaFVBc0dYNkVmT0EwenlwTDBYNVdfS2MwM2JfeUJrQ1RkUDdpaXBYakgzc9IBgAFBVV95cUxOUTM3RU44WVJVdDV0TUFYVjFBQWJxbFVMN1JVd1BjTGdSSWNYOS1IUWFKTkx1T3ZwdTA3N3JkV0NUdHl3RDFiVnlNNnVMblNNU0pmMURnRHRzV2dNS2YxMnNCZE5aU09zeHdiMk55TUxoaWFWRUNwcjh1ekp6SlN3Yw?oc=5) |
 | Highlights of the Supreme Court Ruling on Transgender Care for Minors - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5kYUxFalF5eWJGZTAwVy1HeXkyMmxiMTZIRkpEOVNndnRkZTlxWmJfeXczbi10TzNkdUVmOFkzc1N3RnFUalBJZzdQNTFqQW53dVoyRkRmd21RelZ0ZGF3ZWdwQXU0UENDS3Rrcml3NTV3NHZBM3JpNnU4OFFmZw?oc=5) |
 | Israel hammers Iranian centrifuge production site, says regime 'crossed every red line' - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFB1U0lxbkhNZGJRRnhfS01nNmJXbnpTakxBdkNDQ29OU2h4QXo1SzU0Z3pWTjJvQTZId01UdDFBcF81ZTF1TVNob1BRRFNhYWJWU3kyd2lBazFxX2NMYXlpWVNpcHNyNElEUHVON2xjclJnNGRxckHSAXtBVV95cUxNZ1lWanZsLWFJWXlYbkp5T29LaXhIZTYtWGtNWnllOHY1b1dsbVhSYUs4RUdDNnVYVnZ1bzRJc1RRX0YxWkNjYlBUSjNuVUVXZlRGNXJlWGN0ZVhLa0pwcXRhdDR3QzRJRFNJR3E3d3h1VnFxalRrcTc0dVE?oc=5) |
 | RFK Jr.’s Vaccine Panel to Vote on Flu Shots With Mercury - Bloomberg | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxONmQzVlE5RUE4VVo2RFB5aFZHLWN5all3WExvdWEzR1ZlUjhXMnpvQlBOc09Tcllrem1qRmQtaFJJVnYyeXFfX2pieUZ4VVBEVlVZeFZqWFhxSlAyU2UzdEJQei1LY1RWLU5SWGtjZW54aFpLMmFvMTkwVkVFSGZxVWRqOWZjZ0l2dVZ3Nlp4VEhfeFZRNGFUc0pMYXdWbVJsbUdtZmtWc1hMUnM?oc=5) |
