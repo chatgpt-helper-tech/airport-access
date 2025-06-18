@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月19日 01:53:21（北京时间）**
+🕒 更新时间：**2025年06月19日 02:01:45（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | US Supreme Court upholds Tennessee ban on gender transition care for minors - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5kTlQ2MmNhLXF6NndWZ2JPUWRDUlUtSGtZTHBqaHBXYTJ0Z3lvVUZZTS1MVkFDblQyOVNrWm93THFSMlRkNDl0UGRxZWpNU2xGZEpqUHhaRTVKd9IBX0FVX3lxTE92bHREX29RT0t0OWtpbS04eTB5ME1kZnEzdFcwWEsteHlVRkFyOEVYOWVZUmVoSVloS21WbWRRdzNIZzdoVlowM082VDk2UlIzYzVOcEN2UEVZR0hURTRV?oc=5) |
 | 'What should we do?' Seeking clarity in Tehran as Israeli jets fly overhead - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9pS0VhZ2tLend5NW45Wm9nZDV3RjFpLV8tUnNyYU1PTUVJYWVrUU5BaXBtblphczBSc2ZuQXpCMnpHQzNja1ZHMUl4VXRZR21pV2tjcXRTWTA4QdIBX0FVX3lxTE5fZVBzMHNWQnNGbWtJT1NJWGJpeHBneExiUG01bnAxcEpJbmFwWEFtaWxqQ3VNcVRHajJMNW9VWllqdjZrT3NFN2RGR2Q4THhCWnF4Qi11enNYVEk4NzBR?oc=5) |
 | War on Iran is splitting Trump’s Maga movement - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBCSjJfbFJnaDdDUy0za1M4R3h1a1ZMU3VFcUxfaG5KYVRpWEhSMmNZX0JNN042YktacjdNUFVjQzhDQTY2S1VrdVQ3S3ZXbW9HanJ6LWozcWpOb3lkcTJsVnhKLThhRnk0ZURwc1BIdVQ?oc=5) |
-| Regime change won’t stop Iran from pursuing nuclear ambitions - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE4ydGFHSmQ2Vi1OeWFUUUl4dkY4OHlBNXI1dzZaQjJ2SG9fTXpfS2J3YklwcUdvRDdIRVhib2UtOG9rcExLMzFCbEpVdkVOdDIyLUhfYWR6NTctYUtwRzFtVTJXUEVWeWM5YnFuRGd0bGw?oc=5) |
 | Why a Vaccine Expert Left the C.D.C.: ‘Americans Are Going to Die’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE82NS11LXNXbTZsMVVfRmpZaXc2Um5MQk1aY2JnRDdnZ3FSbHJjUmJoRmlwQUhTSm41SlBFRkFqcjdHRk5ieGVlVy1pZjJmX29UTUliU3hqY05RZVEweFdoNE1wVjBQR3JpTTEzZVB0NEw3RHV1V3BhczE0cWE1VDg?oc=5) |
+| Social Security benefits face big cuts in 2033, unless Congress acts - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOdXg1NmZIZGJHZk1RbWYyQnhxVGVQV0puTllxLXp6RTNweGVCTlNPdjRydXlCTThPTDZVUm14WE9iaVNwM29PS3RrQTNUSFZleUx4OEpJcjJ4bTBRaTAtUzV1QmowaXp0N2xCMU9uQTFrS1dZMC1nYzZ6UnFlTHZUZHV2MUIxWk03Snc?oc=5) |
 | Break-in reported at home of slain Minnesota state Rep. Melissa Hortman: Police - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNSlNtMmpDUC1RUndBcUNUc3hBQVlIdjlVWUpZV3Z3RjRaZzh6aHFkVXdUeW5XUHczY1NGaXB2VHdRMUNfT3dSQTAydGdkQ3ZRSnRVMUQzSllmaGpBTFRybDVwRjY3NjgySWp2ZW1yMnhzd24zbHJjMU92T1Nrd1k5MkRRaUh6X25Xc3UxTVZmUENVNFhqbFRLcnRqc2ZURFXSAaQBQVVfeXFMTS1VVlVzRGNQZC1NVHQ0RVBKZDRVYXNPS2kwbF9mSjM4NHlBSUlwZHJ2V0NMUUZQN2hfdm12QU1felVpWGNhUW94RVdrb0NLb2dkeVUyblZHdVVXMHUxT0lsbUczQklSVkVsNHloMmw0RmhLcllNU0FTUWdEcTNiaWVOWHVvVHAxbm1uNXd1cm9uQ2NjbWhhMThWZGgtcFFZcGVHRE8?oc=5) |
-| Florida attorney general held in civil contempt over immigration law - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxObEx5QktCaGJKOWlHMEJxX2w1ZEpSMkFuYUJPcE1zTG9ic2JlMTJsTHcyNUNzUmJZTHNKZTQycXdrWmVlbXIzVDB3ZTNadWNDeUZ0SG11Tk1CYjl2aEIxYXJObEFsZU1pY3VYc0h6bkc1dTBQWUpkZTB6SE1IdXNoU1ozR0M2THBBTjdqS3d6TDNqc0pEaXBiSUNhMlJLZDJXRHFnSng5YmxZZw?oc=5) |
+| Thune eyes mid-week start for megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOU0hoNnJRZDBSV2lDajhILURwbnhDQmxzeWpkRkVfc2xJRHNYem5GY0pXMHdRdndSdEdnZmNjT1h5M21SbVZkV2xLZzZKZVNPenpJNl93VzVRQUc3WmwyOGt0cHB4eThaMWd0RmxFQjV5QmdrQWVVNmpWX0wtTHFFOWZyczJUYVFtT1lFR3hSM3pxbEpr?oc=5) |
+| Florida attorney general held in contempt after enforcing blocked immigration law - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPZXdvV1BoSnMzVlA4d19RblFmWTZiNUFyRXhrcE5tdE5ZTncxMWtPQlU1TlpEekh0WjRkc2tSSFpJaUhqWjF6YWRCNlVkcjZwZnQxUVV0R0l2ejlwbVRTaTBZNi1SUWhOR1oyeENtQlF4RDNfVFVVMVE2OGR6eEJVS2Eya2dIYWNoa25OaEZLX2RGWVVHS09pNS1Ka3NyVWY1dXVr?oc=5) |
 | Ghazala Hashmi wins Democratic nomination for Virginia lieutenant governor - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQU0NOYmI1MndwbTQ0Q3M1QlNLcUFValBCd2hmb01jZVV0b0dRcWF4UkU2aTNXdW1hc3ZOOHBCRTRGc3FMYnpfOU4tdHFfaC1RcE00MEZqWjhRR2FHeWtpRUs3LXE2YUdnNF9Gd1IweUtKVlYtcmJteGkwVzJMZlZqZGlIMWhYcXVURHBpQk5FamdzOWNwTWJwWGtQSURER1dSajJfVEthV0hKQ2FqVS0xaG5n?oc=5) |
-| North Dakota man charged with threatening officials in emails that cited MN lawmaker shootings - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPUW5hRk9FaU55SmJQVmMxVmpnSXJnbjVZUEFwZ0xrdEE3NFBHSW5RS3BDLUpUZFdiaDhfTlNPS3g1Sk1pNWJzbUQzU0tZdE9sU2ZNWmg3MDk3UExkR0x1bTF2NlVTLW1TZVVVTVlOMFRWNXNXY0JhOWVqREI0cEM0MzJfdGpjRWtYX3lyLXNaZWNMV0cxVHZaOTBhSFE2dVJGUXVyWG5MaGZZTHYzQW5LelBsQVcyaVVqc2fSAVZBVV95cUxQVk5GSVdURG9VaE9NOHUwV3NzSHNlaWFvSi0tOXdSZmpMLXZISlkwaE1DYUZLVE9EajExM25PNVp0QkRUejFFR3RUMWw3dFdkZ3prQngtUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
