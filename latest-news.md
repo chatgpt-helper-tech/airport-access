@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月19日 06:01:36（北京时间）**
+🕒 更新时间：**2025年06月19日 06:13:24（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | War on Iran is splitting Trump’s Maga movement - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBCSjJfbFJnaDdDUy0za1M4R3h1a1ZMU3VFcUxfaG5KYVRpWEhSMmNZX0JNN042YktacjdNUFVjQzhDQTY2S1VrdVQ3S3ZXbW9HanJ6LWozcWpOb3lkcTJsVnhKLThhRnk0ZURwc1BIdVQ?oc=5) |
 | Break-in reported at home of slain Minnesota state Rep. Melissa Hortman - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNUFQtU0F4eTJaV1NfVV95WUJZMTNRMWZ4d0duX1RUUVlCTzczR0wxeVBxU19UYldwT3IzTVgzNElhbkJDakdzd3RmMjBIU2FvanB2UXJrV0VLZmtWOU53SThVUXpUM0N1NGdGbHl2RDE4akhVT3o3LUJRdmxIckxpM3ZwcGlUU0VCQ3FHVThxT3o3R0FZeWpLZVRVWW80dzZ1QnN6em9JVGNFX3o0TXfSAVZBVV95cUxNakpnbXJ5b2tEeDU5OUF6ME5PbmR4d3FwaV9XenhSaFhQNTBGLWhCcVhWNlU0a2hfeUQ0RTdta0NMSmhUWUZjQUpReDVuNW5oMkhvTnhvUQ?oc=5) |
 | US resumes visas for foreign students but demands access to social media accounts - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOYjR5OHYzeGk5Q3pBNXFFVTh0V090a1JvN1QwekFNWGhhaVNFcDNfenM1dzJrQ3hqZ2FWMkRlWkQxa3oyaGExV29ib2hTM0NUS0ZTdUpHOVJEZWptcEVSM1lYRDh0OXVxVDhvcWNJR2h2ZFFoamtuUFV2ejVTajlzT2dxamdJbVpwVUZXY1ZMb2c3NEJlQXdj?oc=5) |
-| Trump undecided on joining war on Iran as Khamenei warns him not to attack - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNNk1LOGZ0YkZNY284eDBwOEV1d3p3bTQ2bHZoTmREUXJFd1R5aWRROENZOUhidXlKWkVtMkctTHk2UE04bWFBQU9pVnVMSUY5TTU3NDFOVF9vM3c4Y2JtOHltcDg0bnVGWGl2Nm0zRGlHejhzeFhUVDhFeVFPNER2YjdBUUx0M3ZMMWRTLXN5U0EyZDdoMEN4QjBVN3JPSkU0OThVWmRWUnVlZw?oc=5) |
 | Florida attorney general held in contempt after enforcing blocked immigration law - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPZXdvV1BoSnMzVlA4d19RblFmWTZiNUFyRXhrcE5tdE5ZTncxMWtPQlU1TlpEekh0WjRkc2tSSFpJaUhqWjF6YWRCNlVkcjZwZnQxUVV0R0l2ejlwbVRTaTBZNi1SUWhOR1oyeENtQlF4RDNfVFVVMVE2OGR6eEJVS2Eya2dIYWNoa25OaEZLX2RGWVVHS09pNS1Ka3NyVWY1dXVr?oc=5) |
+| Iran’s Supreme Leader Warns Of ‘Serious Irreparable Harm’ If U.S. Enters Conflict With Israel (Live Updates) - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi6wFBVV95cUxQZlhKWS1jTjQzdGN4YUk4WF9FNGQ5WHdqeVZzRnNXVnpYV1pHZ1pSYXpydER4XzJkbzFTS0NaVGtoQjJOeTV6WjIydENZYk5fSTNqWnJQcTBIN2F0QTY3NFdob1JDZWU1YXU0Sm9XX2pWS0JGNXZIaWdzOVJkVWh5TWY0NDBGeWF3bEZLR2VsWDJkWE5YckVOOW5xNVZLSmNXS1pTNUUzVnljN2tqMUozbVJMU1daSktWc2RjQkx6TlV5cWwwTDRVdUF3NTdnYkt0U1hSb1lmOS15Q3pEZ2NOOWZVd2c2MXRaT2x3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
