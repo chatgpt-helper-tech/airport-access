@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月18日 17:40:34（北京时间）**
+🕒 更新时间：**2025年06月18日 17:53:50（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | 'Taxi boats' pick up migrants in waist-deep water as Channel smugglers switch tactics | [阅读全文](https://www.bbc.com/news/articles/cpd1l6p8vw9o) |
 | Record rise in chocolate prices as inflation remains highest for more than a year | [阅读全文](https://www.bbc.com/news/articles/c5ygdqp922vo) |
 | How investigators are uncovering what caused 'rarest of the rare' Air India crash | [阅读全文](https://www.bbc.com/news/articles/c4gkd555jlko) |
-| Co-op offers members £10 discount on shopping after cyber attack | [阅读全文](https://www.bbc.com/news/articles/cvg85r4yr5jo) |
+| Fillers, Botox and BBLs being carried out in public toilets, officials warn | [阅读全文](https://www.bbc.com/news/articles/c17wgz78pp2o) |
 | Liverpool host Bournemouth to open Premier League season | [阅读全文](https://www.bbc.com/sport/football/articles/cpd1ldzy6peo) |
 
 ## 📰 Google News
@@ -30,9 +30,9 @@
 | GOP hawks clash with MAGA isolationists as Trump contemplates next steps in Iran - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE84YU5aYW5KRXI0RmJmYWRSYTgxLUc2NDUxb1VOUXM5am9ETEVLTDhIR1lldFdTbEFHYXdGWTJoSTBQQVYwMFROUUVBZWJ5el9fUGItX3BmRy11VmE4MHhZZmhTd3EtUEVveXVZbmNNVDVoaHI5T1BFdTZR0gF_QVVfeXFMTmRtWDVfWDktUTM2VjdZS2RyQk50c1Itc2ZYQThPbXBVWXV2SVN5WVduN2h6WGFwWXRGbkdTTGRGV0tVX0k5SDFuR0pqZWdON2ZreVNtLXI5QzE3SFpqTklma2sxeTNVOHJnRmxkUkEzOHdHVktETkhhWXBYbXd6WQ?oc=5) |
 | Senators get security briefing following Minnesota shootings - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQZEc2T1otdWk3cDE2SXRUdkhNRUk5Vm1rOVRPdnlpRnFSbGdJSmozMW0zT3RRa0VBdEhCNnpnZFg4T01GMFJkTC1ES282d1NZTkF4ZFNmUzNhMGdWNDZtc2IyZDJqU0NfVk5UMlo1NkpWUU9jYlVOSzh3U3pGeVBoc0hRWUQ3am9ROHRMNGZBbll6elVhUUVEYzEzclp3UQ?oc=5) |
 | New Mexico wildfires force evacuations for about 2,000 homes, prompt state of emergency order - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQby1EaW4xZGdVTm8wanVDOXllQzVQQnlrb1I2cDk3cGVEUl9GZ18tckZXTW5hNlp5RTc2aExCckxDMHd6UmctRUlvVlB0S0xqbVI1R0JrQWtlTWtSS1RtZ0N5V2JLejlTUDJXSFc4d25JWXZhZnFGQmxOQVJNeFZUTHBvY1RVd2JWS2tTdzlMU1NWSjNHbmZZR0JOcGPSAaIBQVVfeXFMUGx3cHF0YndsVlIyVlRQV0VrU2ZuZWxQRFEwR2RoVzl3ZF9GbVA5clpqRTVIcEprX3YzUFNNaVRJNEo2QUJJYVVJSUhzT2ItNENyNHE4WXlncEVkeEIybUZHVldVdm1BOXVJdElqWW54bzUyeXktSlZ5SjJBSVpCdGdCMnd0OWR1c3hnWTQ1NTRjVDE0N0FVMUxuT3I1UUZsQXJR?oc=5) |
+| Inside the clashes between Trump and Gabbard - Politico | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1RUHdKbjg3OTZhZWVNSmJuQXh3aDhkX0dFQ1NreXgxZ2NvTEhZTUxNcy0xTEoxdHYtY3I3eWhkc2doSFMwTDF6WS1CVXcxcnZpTTY2NHNGTkVZU2lCbWxab01xelJSVDJrMWg5bEhwc1Y?oc=5) |
 | ‘Occupation’ or fighting ‘rebellion’? 9th Circuit weighs Trump’s case for troops in L.A. - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQZS1jbHBScXpxSVNxRFF6VVQ5Uy1zU0U3cm5fU0NfUk96ckFEQjZtSDRROUVUYThxQ1ZpckFFVW5nZTJoNmF1bFFyeVVndjV1YUF1NExZOF8yU1B2YzVGajRoNGdxanBXMjhpUGZ4UkpZY3FOX1B3ZGxkMEpMLURYakRmNlZlZVpkemEwWVpoc20tSWxkeGFSeThiaw?oc=5) |
-| Florida’s GOP skirmish has been dominated by lawmakers. It’s DeSantis’ turn now. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPZW5MZFB2THM5Y3VBWHNVY254U3lVN3A0RFJHMnBWQ1EtMVRDSzdORWdLbzNsWENOdF9wQ3VFRUJabVdFM1FkT2FYU1gxZk5kcWtHblluODY3SEdrZkdSMFBLREFUaHQ3V1FzM3kyZkg4UEZiRWlySEp2dFgzMUwxLWNHZU5ZYzQ0WmR6X0xuZ1RJNEtrNkV0VFRKcGg?oc=5) |
-| America’s spies say Iran wasn’t building a nuclear weapon. Trump dismisses that assessment - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQWnBhRExOVDUyMWI2TnBBcGdCa0xBNTZ6bmp2UWFjSUdoUDJ2QlNCSWJnMk1Jd3luMFl2MWFhaWhWbVVDZERYcGZJbkhnakJISkhVMVJ0REgzSUYtZWQ0TXZFMGxUcFFpQUFQNTJHZ0M1eF9xa1lmNnM3dHNncDdXV0tSdDRqNElXWEFNbXVGRXRXRDBQVk5ubXFHTHRRUnFMaHU2LWF5dm44cVVIOThTSFA3ZVpaOFVKYXo4YXJRTm1kbU3SAcgBQVVfeXFMTVY3NHVQRHYzY0M3WGZ6amEwbHhkWTNYVFNLQ253ZUZTa2hmZEZ5a1BwWE03UUhjX2ZEUU5kUm96Yy1ZMzZidzZDZUtqdzVhNG9hZ2lhZ05tNXY4UGZKNXI1UzlKMWl4aGFranVkYjNnTUtGX2FlLTJsQ2k5T2pTNUJ6ekdiM0t5b2ZBVUhpYVA1eWJwMFhncGFha25TXzVSeWxVcXotUHk5bGtzRzlhbjcwaFlSRnZJbVRPaFQwRUNaNjRqWklYZUU?oc=5) |
+| Florida’s House Speaker Stood Up to DeSantis, and Shifted the Power Dynamics - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQTTBlQmt5eTU5ZkhiZEtfYkc3NUU0MWFsVjNVMThOZVpQMFRJYWhFUTBNZGlsSXVyaDhXbElQSzdNclY3U19VbnFUZ0FCa1hYRmdPOGNoMjBJakZadnRCRUhVMW1nd0tsdVY1aTJSLU1tSGZSdDJ4OGlyMXZaaV85dVlNa3lidw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
