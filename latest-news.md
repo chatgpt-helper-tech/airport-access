@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月18日 18:13:45（北京时间）**
+🕒 更新时间：**2025年06月18日 18:26:06（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Brad Lander, NYC Mayoral Candidate, Arrested by ICE Agents at Immigration Courthouse - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNbzZuR2NjVE93eHI5bEhsOE4zYzFBaFAxckVpOTBoZVBETC1GZWZkMmt6RFNxaG1pczEteEs0SU5wOGdYZ3ZSd3g0WmdEYllWVGdDX2Z6MlV6SldiX29YN0VMS2ZTd0RkNWZFUHdpY2lTbDRKYWViSVJZdHFwS0lKQUVB?oc=5) |
 | GOP hawks clash with MAGA isolationists as Trump contemplates next steps in Iran - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE84YU5aYW5KRXI0RmJmYWRSYTgxLUc2NDUxb1VOUXM5am9ETEVLTDhIR1lldFdTbEFHYXdGWTJoSTBQQVYwMFROUUVBZWJ5el9fUGItX3BmRy11VmE4MHhZZmhTd3EtUEVveXVZbmNNVDVoaHI5T1BFdTZR0gF_QVVfeXFMTmRtWDVfWDktUTM2VjdZS2RyQk50c1Itc2ZYQThPbXBVWXV2SVN5WVduN2h6WGFwWXRGbkdTTGRGV0tVX0k5SDFuR0pqZWdON2ZreVNtLXI5QzE3SFpqTklma2sxeTNVOHJnRmxkUkEzOHdHVktETkhhWXBYbXd6WQ?oc=5) |
 | Trump to sign order extending TikTok deadline another 90 days, White House says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFAxMUJwUmh0M0xPYTdFLVpvRDBZUF9kSkZ5eWk0UDF2NUVVR0MtNmNMdVM1VEtrcC1PLUJNZkFhQXpPSjltamt4REdWeGxyMERfRzV1cWctSVR0U3JaSWdOU0VnUnN4YWRsOU10Q1owUENkb3pEbHJjNXRB0gF_QVVfeXFMUGNyWGxMeGstZ09jYktlY2VNZUJ5R0hLRk5JVmd4UnNfOEVDMVdrdTJRcXJwSDNsQnNjdG9NUzJKRm5RMWFkYlA1WjZWZUVwQVRRd1JCWGFiN3pOMzlYbGNwb0xYd0tVbWJMbFpQZmlNVXhUeXZaV0pBMUtPcVlBcw?oc=5) |
-| $100M in diamonds, Rolex watches, emeralds stolen in 'largest jewelry heist in US history' - USA Today | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOSkc4dTVfd0pTN0U0amNQdHdLTEk3UUw5ZDZTODZfU0pSc3VJM2sxRzVMdEROVUE1WF9oQkcybWN3Rl9TbEN3SkF5Q3lBSmVaaUVtR0hKdXdOUjFYTzVuV0lsQm9tenZud2VqVjlHVXFNYkRHSkNZT2lYNTljWklldTZBT3hydk9kZFFMRlA3aGxtenVJX25BR1NRU000UQ?oc=5) |
 | Violent extremists like the Minnesota shooter are not lone wolves - The Conversation | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOa2VOWEpIQXBELWtGQTl5OUFtQWlwMThQaUtlajh0VXNqUm1NSjRPVkhZUW05UmFJcU8tVm12U2I0aVJjZjBOQzNuSG52c2p6RVJCaVV6RWEzZTdHTVdiaHN2RllKbm5sdUFSQW9vUVlSdjVvZzUtV19xLTRNc20xWk94SnZURG45LUZ2ZS03SlItZjh3RnEtc0pUTjhEMDZ4bGc?oc=5) |
 | New Mexico wildfires force evacuations for about 2,000 homes, prompt state of emergency order - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQby1EaW4xZGdVTm8wanVDOXllQzVQQnlrb1I2cDk3cGVEUl9GZ18tckZXTW5hNlp5RTc2aExCckxDMHd6UmctRUlvVlB0S0xqbVI1R0JrQWtlTWtSS1RtZ0N5V2JLejlTUDJXSFc4d25JWXZhZnFGQmxOQVJNeFZUTHBvY1RVd2JWS2tTdzlMU1NWSjNHbmZZR0JOcGPSAaIBQVVfeXFMUGx3cHF0YndsVlIyVlRQV0VrU2ZuZWxQRFEwR2RoVzl3ZF9GbVA5clpqRTVIcEprX3YzUFNNaVRJNEo2QUJJYVVJSUhzT2ItNENyNHE4WXlncEVkeEIybUZHVldVdm1BOXVJdElqWW54bzUyeXktSlZ5SjJBSVpCdGdCMnd0OWR1c3hnWTQ1NTRjVDE0N0FVMUxuT3I1UUZsQXJR?oc=5) |
 | Florida’s GOP skirmish has been dominated by lawmakers. It’s DeSantis’ turn now. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPZW5MZFB2THM5Y3VBWHNVY254U3lVN3A0RFJHMnBWQ1EtMVRDSzdORWdLbzNsWENOdF9wQ3VFRUJabVdFM1FkT2FYU1gxZk5kcWtHblluODY3SEdrZkdSMFBLREFUaHQ3V1FzM3kyZkg4UEZiRWlySEp2dFgzMUwxLWNHZU5ZYzQ0WmR6X0xuZ1RJNEtrNkV0VFRKcGg?oc=5) |
 | How the Senate’s proposed Medicaid cuts could deepen the rural hospital crisis - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNdXh2SlF2VVJjcEtDMU8tVDFpUVJIbXlRU19DYnFQX1lvX25YLXZwVF9KU19Od1ktNlotd1dUeHlJUUN6SFJpdE1uYThtTkxFTURnZGFBa1NvUW45Z0RQbV9fYnh6M0xBckxCYkQ1UTlxa0hhREM5ZHF2VEFHTTc4Z255dFZ6dG16Z21QT0VGYnhndVBYZXQ2RTJ5NktLaGtpUmZyU2FYRTlNcWhrNzZVN21sUdIBVkFVX3lxTE5BMWxVSkNBU2c5R1pxbU55TEhCcktSVVQxNzVNOWJncmpjTU02b0FRbml2d2cta0c2OVA5S3h6YjFFT3Q1WllDQkl3bFhXbmNlNFNsTzlB?oc=5) |
+| Virginians pick their Democratic ticket, setting up consequential November election - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxPcjFleUdJTHBtajNnZDVQa0E3OHhVOWRRWFBHeF91S1ZNN0lnR2VPUGhmQWJ3cWx4a2d4alR1QXlDTXlQNmVseFNfd0MyYkxvM3ppemRIZzRhcHdVZFdNMXNfdzc0RTZuNjdqVmZlNU84VUNVMWdOUk5uU0FvLXpydmlNUFZyb0JIZGVrQmdwdWluNEhwRGRZOW1GcGlkMGhSMWNockxIRDRFNUE0TnhCVzVUam84LW1fUm9oMTd5SENUb18y?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
