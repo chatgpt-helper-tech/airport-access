@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月19日 10:27:37（北京时间）**
+🕒 更新时间：**2025年06月19日 10:40:10（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Fox News Is Demanding War With Iran. Donald Trump Is Listening - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQMWhiYjQwNV9XLTlKblZwVGZaanV4ZlhJMlFKSjVBd0ZVTUtlazFhVV9WbXFkUDZVVW5xZnJwNWlEQjBscklfb3MzellocXhKazJrTE1uZjJnQTNfZGdDMUN1emtLanFwR2VXYjQ5VFUwMjVkTkZrZkdLOFdUYlNrRG1GOENKUndRczIxczdlQVZLM0U4Qi1vMTN1aTRheFkxeDZPTzNIY2JPV0hVR1E?oc=5) |
 | Maps show heat wave forecast across U.S. Here's what to know. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE84MzRIcmFRLTJ5SE1ZWXFoVV9Nc0t3QXBxcWZ1QS1ObERBVXBOdHBuY2ZHQTI4ci12VF9Zb0Y4SHZxU1BMZFgxWk1mMDJZR0dEbWY5d3RsamZEQ3BzRGI4a0RLSzRXVEdOdEpqUmtFUW11RFlw0gF6QVVfeXFMTWpfa3JVcWZSLXRsNFdOQ1d1RmtscGEyeHlxSG4wVzJMVndTLURGU0ZDcF83VDhoTFJMdF9sb05wbnplXzdkeW9hS1VndlFGdG9XU25tVTdRTUotWFdhSHF3VENOcFNQVlhTSHhZTkxMQm5lTnlWTGxxVkE?oc=5) |
 | Israel-Iran Live Updates: Trump Meets With Advisors in Situation Room to Weigh Options - WSJ | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTFBCcDlkWDhoY0pyQW9OSzNVamI5eDVsRjBQeDBhX2piNzA5VkVQbzcwcU43V0lHLTBWeDZpeThYck54eXVWdi11a0dPanFQc21TQ1dheGVtajNDWFRlZTU5NVRLQVc1MDNwTlE?oc=5) |
-| Trump administration to close LGBTQ+ suicide hotline program next month - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOQUpiVWIteUtyRFFtWlBPWl9BcWN4SDhEMWZmQ0kxVmpBSklJSFBtdzE2YWVUeTRoU0N2bDZ5WmE4UlNxM2pKYXQ4bm1TbDlsWmluM1FFWHJLVVpOTHBtU0wzUlJCOVFkeDQxXzc4YkptcWM5RmpOaEdnMktKTXQ4dHZwdzh3YjRsUjBiMU1LODBCczNCQkZIRmFfcm9zYng3VjBKbjFQd2VpR3M1U0RHONIBtgFBVV95cUxQUzBLd19VSDQ1NjdQeDJxa0dCaUVsLVR6UW1EcHZrNmVQSzJUX3dWbzI3cTREOXNQZkhCSklGbk5QTm9laG85Vy1iRUxUU0ZqOGRMNFFoQ0FDTnZnZS1HYlF2RXI0NHBHcGFYV2YyLUNHQ2NWTWVTbXNoenpSNXJUcUJXVmY1MUtBa2ZRWjAwTk5ONU5lLVhzdDI5c3lYQ1lkU1N3enAteE9hd2hsNEhBWnlwSHlBUQ?oc=5) |
+| Iran Rejects Trump’s Call for ‘Surrender’ in War With Israel - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNOWhXVklTLWlrRXhPM3EzSFh4QnJMNl9nNktUVi1WZ2FmWUhDMTU4RVBqWUFaNmdpLUNYeFBMQVpUaC0zRmo5akItQ00xeUQ5d0dYdy1VeG1qMFR4aExPNlNaV3NIRzJTd2REalVGcFAwSUt6cy1PVThMaXEzcXRXNw?oc=5) |
 | Search warrant reveals shooting spree inside state Sen. John Hoffman’s home - 5 EYEWITNESS NEWS | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxORmxvY0FhSGpxRmFwVGZRN2tsZW5HcHNTVFFJcXpFQlo0NldiVnh6ZzlDMmw3RmxXTkZTYzQzVXc5cEVIcGZoNm5hQmt1S1VYMWVvOEVEemNueTVtM0RuNDNKakstaS1XOFI3OGt2TlIzMTZDRzdpb09BaWZwbE5mUGZIbTJMTUxBSGpPVFdXb0Iwd3V5bFFtQjJCOW9wTXBOOEQwZ0ZqUE9lNk5reHVF?oc=5) |
 
 ---
