@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月19日 20:14:55（北京时间）**
+🕒 更新时间：**2025年06月19日 20:26:37（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | Amber heat health alerts in place as temperatures above 30C likely | [阅读全文](https://www.bbc.com/news/articles/cm2z4rmyl0yo) |
 | Millions more to get £150 off energy bills | [阅读全文](https://www.bbc.com/news/articles/cx2kym1pvn4o) |
 | Blake Lively and Taylor Swift messages can be included in legal case, judge rules | [阅读全文](https://www.bbc.com/news/articles/c20n6jl83v8o) |
-| Two breakthrough Alzheimer's drugs won't be offered on NHS due to cost | [阅读全文](https://www.bbc.com/news/articles/cq8zxx9kk0ko) |
 | Moment SpaceX rocket explodes into massive fireball | [阅读全文](https://www.bbc.com/news/videos/c1k87l7nre4o) |
 | Three years left to limit global warming to 1.5C, leading scientists warn | [阅读全文](https://www.bbc.com/news/articles/cn4l927dj5zo) |
 | 'I don't care what she said' - Trump's split with his intelligence adviser over Iran | [阅读全文](https://www.bbc.com/news/articles/c4g8d88y17jo) |
+| What are the risks of bombing Iran's nuclear sites? | [阅读全文](https://www.bbc.com/news/articles/c5ykjvl1y9jo) |
 
 ## 📰 Google News
 
