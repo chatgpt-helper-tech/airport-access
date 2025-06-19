@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月20日 02:53:42（北京时间）**
+🕒 更新时间：**2025年06月20日 03:01:37（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Key takeaways from the acquittal of Karen Read in her Boston police officer boyfriend's death ｜ What's next - 6abc Philadelphia | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPcmVFc1dlUUh1ODBUaWhlNDJDM3VwdHp2X2RXemo2MkVIQVI1Z0s5WW16cTZFZjdLRE9pUktKUUs5YkQ0SFQ4bGUwUjhIeUgyT2wtMWh5Wi03bjFoOHEwM0x2RDNyNnVWNjM4YjdRb2tSSWtIamtxTGVmLXlQd0F5MlI2Y00wQmRWbFBweHpvMTFPVTgtWk9vcHhydWtEQTZSM3BLVEZHZ1l4ckU1S0dpctIBtgFBVV95cUxPSWp0UlZ1LVY0RTBYVDhnRFlvMFAyRDZISDB3dWM5NXhFUmt0VnU4N2c1VW8zRlZJbklzQkE4Ynkxcmx4VGZ3bVBXNzlWc2Jpa3RONHVMd3prTjZIak9ma3IwY0RhMTF0dGhCZ3ozWWhOLXFZQllPM2k1OXBzcm1PRHJvRzVTT0NreTNfR1FtSVRHd0w0ZjJYZ3JHd25DMm1yalZvelozSWstSUlkQnlpaVFXWXVVZw?oc=5) |
 | Supreme Court upholds a state law banning some gender-affirming care for transgenders kids - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPZVlObDRDLXloaXhGdVlCMkxjd1AxOFk3cTVxRExZaGNfS0JSXy1vaDFaU3NqandsR1NCMndxMG9ISkdiSWk1SWhPeW9JbnRyRGdIUzBQSGdCR2d6MFJWc24zRktqVThTYTdrZS14dDZNcDBHOGh3R2RtNzg0SHkzTnBrakszMU9ScnBOdC1OLWwxcEROVEZCbWNpamU0a0FvVktCRTdFOWJ1Z0HSAbABQVVfeXFMUEdubTlNUmtBcVZrVzl2YXBYV3JhZGdaSFlaOWRwdDVjQnAtNmNDWUpWb1pIa3kxT1EyNmhraGxIXzhXZlpySjh1VERjdmVQN3ItVjFwUzB0VzFnMk9wQjlMRHR4UzBVaVB1NjQ5LW45VFFKck50bTE3N3psZmpqeGV3T2FIVlMtYnQ5NWwyT09lT1RkY0tzZ1UwQU1iNzhRRzRfVUhWNWZGSzRLeTJFRGk?oc=5) |
 | Trump extends TikTok ban deadline by another 90 days - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNcC1TQXZzaG1kMVd6TWNDdXplMWk3bmlsdENvLVVoV2c2NFJkNG83NTZOTHdydURQYllYSlBQV1FxaU9KYWVBVHgxSndGM21sZ3ppa1hpUTZnY2VNSEVUYms0cE8yTnhuZjVyem9uZ0x6Q29CaDN2YmNpc3pfc3BEQjlXdm5JbXJBQTVpMGdWVVBuNnJaQmZVNnBhbVhFeFZwTGQ3LdIBVkFVX3lxTE9XZkpJdmF6RDNkR25LdVBXZENGdU9iX2FjTkZlQ1NCU0lqVnRjTXhPVVhlSTFaRVoxN3lRN0dsWnpvV3h2M1BXVXRYRHNJaWxEU05rRlBn?oc=5) |
-| Behind the Curtain: Trump's gut-check - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5kX3VIVW9UaXFrMXRSU2lkeXItOTdnTlVOZ00wcGd2ZEw1azd0VnprYzNndVJDZFBtWXA3NHNFbG5vUk8tUy0ySmd4VmVYMkdUN0RsOHJ5b1hIM25Cd0d0bEJreWZzcTJsNGxqaE1qb0l4ODg5NThiSA?oc=5) |
+| Dig Uncovers Foundation of Schoolhouse for Enslaved - Newser | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPal9Sclp4dDlycnZaWUhHWF9fd3p1dU00SmltMURKWEF1TjE0b04yX0tkY1huU1RKbFZaVFBNeUNjRThiNkVkcmhDenlsNHhCYVhYektYYVhuTjVaMEYzNDctZ3NkWV93YmktdmMySndUb2M0WUd2RHdPWW1jNklsRGt6RlZVTVVtTC1seE9pY2ZQc2E0bGY0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
