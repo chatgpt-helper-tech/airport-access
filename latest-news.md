@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月19日 11:52:42（北京时间）**
+🕒 更新时间：**2025年06月19日 12:01:57（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | US resumes visas for foreign students but demands access to social media accounts - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOYjR5OHYzeGk5Q3pBNXFFVTh0V090a1JvN1QwekFNWGhhaVNFcDNfenM1dzJrQ3hqZ2FWMkRlWkQxa3oyaGExV29ib2hTM0NUS0ZTdUpHOVJEZWptcEVSM1lYRDh0OXVxVDhvcWNJR2h2ZFFoamtuUFV2ejVTajlzT2dxamdJbVpwVUZXY1ZMb2c3NEJlQXdj?oc=5) |
 | After a night of terror in Kyiv, the search for dead goes on - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5EbWlZWWQyTHVMNGdKYlFCZTFwTjIxNkdLclJvMU12Z1BXQXJsUGFKYktpd2RFZHRBbzNjY0lpbmIzUnNVZEUwc0ZRd3dISXg1VnpsN1BmaW9FQdIBX0FVX3lxTFAyTFRxczRUM3pOTlNfWkp3Tk9qTHZKdlJZb0xjY0pNUGRFZU9mVFdIZjV6RmtGTlBkYU9USDYtYzJBeWR5SUFqbk5nRHhwOUpObHNRcW1ldXZ6MjRBc3ow?oc=5) |
 | Democrats’ Wary Response to Transgender Ruling Shows the Party’s Retreat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOdjRvMVgxRVo2VkgweWFVLTl0SXZoUGVjRG04dkU3RHdBcWJzZ2cydlR5VXR5MzAwbXJZNkhKci1BRGpzd1hOVHF1SWdJOHZyVms5anhyU2hiRk95Zkg3XzJUNnlQdTU5UjlXQ0VOZDQtd0lXT3o3cXdCSFhUS2VwMjNIQUw2R0JKTWVWblZDVXUyOW9zSk1HNWhn?oc=5) |
-| Heat dome will blanket much of the US, with worrisome temperatures in Midwest - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNc1NFdlE1V1NKc2lhaVFWUG04SW9UME1mSXp3ZWFORnhNNmRLSzhyMjlKMmJXQ3ladjcxZ3R4RGhzZ29zTG1YMlNuclo0UjVGeDdkdXBoQUdEejlobzBTNUxTOEpyQ1lWQm0tTjZ0cmNOUUNfcldGQ1o5NE9oTkFSbVJONG04OWZvY0F5LUp5QTlyY3A3ZHlfQzhFRDFvaURPVDdHSFZLVU8?oc=5) |
-| Search warrant reveals shooting spree inside state Sen. John Hoffman’s home - 5 EYEWITNESS NEWS | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxORmxvY0FhSGpxRmFwVGZRN2tsZW5HcHNTVFFJcXpFQlo0NldiVnh6ZzlDMmw3RmxXTkZTYzQzVXc5cEVIcGZoNm5hQmt1S1VYMWVvOEVEemNueTVtM0RuNDNKakstaS1XOFI3OGt2TlIzMTZDRzdpb09BaWZwbE5mUGZIbTJMTUxBSGpPVFdXb0Iwd3V5bFFtQjJCOW9wTXBOOEQwZ0ZqUE9lNk5reHVF?oc=5) |
+| 'Senseless violence came to my door': Rep. Kristin Bahner reflects on surviving accused killer - kare11.com | [阅读全文](https://news.google.com/rss/articles/CBMiggJBVV95cUxOdXNnNE5OU0d3ODFRYmVBNXVtYmNpRENiaU9qeWV2aUptZ0tOdnNlVzRyWGhBSGdlNG9CdHZmNnpScE03RDB6Rnhkcm5tNmVYeEloLXh6a1hJdGdlWkw3TEREVmdFTXkyVmtzV1VwNE9MLWFSempETm5OVGVEZnVYM01pdFlWMDZhLXFTbkY1dFNaOHp0V2Q2cnVvbGNTdUJRZTF0OS1sWi00UkRhVzF3dy1RaDNtMXpFS0RlcTdpaDdOWks4ekctS0N3Vklyd05UbE5EY0FlbXJKeExRem4wSkh0Tmw1OTNqc0pDZkpxbjF0OHBjSXd2anpJcnB3T3ZsYVE?oc=5) |
 | Iran’s supreme leader warns U.S. military intervention would cause ‘irreparable damage’ - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOZUIzSmJPbzJfOS1ORmVtNzduU0t1ZTNqQ3V1TnVCTFFLZDdYM2Y2U1l3TUJ4Ym5pYzVXdl9XVGdrYUFtdDk1NWp2X0hDc2U2R1oxeUJYNFJaRm5vV29kclBKVl9QTFBHd2pTaEd1LUdhWW81bUR0OVJrdFZDQ2staWNteXdOanJQeDBNekxsei1sQ3lLdnlZaE10RTMyTUZmODN0ZG44V042eHZKR1pvbTF0R3dlREpKWHfSAb8BQVVfeXFMTmxvclVUeFJpNktLV2dhTVBPaERCelFCem5INW9lYzY1SktfU1FHU2hRWUtzZkw5RmZjMURPQ3pOS000SzhQa1VmTmxrLWhhSWNJdkNJaXdBZ2xodDF5Tm5sX1lPS1d4VnZmY2ZaUXNEbUFsZExMaTk3YzN0Q2wxRlNMZzB2elNyaWw1WTBGaVoxMFIyNUN5cVZtSXFvZW9FZWNpZzgzT3o0UVFic200ajhnaU9rMkZzbDZ2bHd3bEU?oc=5) |
+| Heat dome will blanket much of the US, with worrisome temperatures in Midwest - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNc1NFdlE1V1NKc2lhaVFWUG04SW9UME1mSXp3ZWFORnhNNmRLSzhyMjlKMmJXQ3ladjcxZ3R4RGhzZ29zTG1YMlNuclo0UjVGeDdkdXBoQUdEejlobzBTNUxTOEpyQ1lWQm0tTjZ0cmNOUUNfcldGQ1o5NE9oTkFSbVJONG04OWZvY0F5LUp5QTlyY3A3ZHlfQzhFRDFvaURPVDdHSFZLVU8?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
