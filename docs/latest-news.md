@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月19日 17:01:12（北京时间）**
+🕒 更新时间：**2025年06月19日 17:14:46（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Moment SpaceX rocket explodes into massive fireball | [阅读全文](https://www.bbc.com/news/videos/c1k87l7nre4o) |
 | Under-fire NHS trust said patient had eaten breakfast - three days after he died | [阅读全文](https://www.bbc.com/news/articles/cly2r0x9xwlo) |
 | Three years left to limit global warming to 1.5C, leading scientists warn | [阅读全文](https://www.bbc.com/news/articles/cn4l927dj5zo) |
-| Ros Atkins on... How close is Iran to having a nuclear weapon? | [阅读全文](https://www.bbc.com/news/videos/cvg6lpm2464o) |
+| What caused the latest conflict and where could it lead? | [阅读全文](https://www.bbc.com/news/articles/cdj9vj8glg2o) |
 
 ## 📰 Google News
 
