@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月20日 14:13:11（北京时间）**
+🕒 更新时间：**2025年06月20日 14:26:11（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | How Belarus dissidents in exile abroad are pursued and threatened | [阅读全文](https://www.bbc.com/news/articles/czxeg9ql5gvo) |
 | BBC Breakfast boss takes extended leave after bullying allegations | [阅读全文](https://www.bbc.com/news/articles/c2d0p6z8910o) |
 | Telegram boss says he has fathered more than 100 children | [阅读全文](https://www.bbc.com/news/articles/c77v4x8g7pro) |
-| Public don't back aid spending any more, says minister | [阅读全文](https://www.bbc.com/news/articles/cn4lygdx95vo) |
+| Public doesn't back aid spending any more, says minister | [阅读全文](https://www.bbc.com/news/articles/cn4lygdx95vo) |
 | China criticises UK warship's patrol in Taiwan Strait | [阅读全文](https://www.bbc.com/news/articles/ckg3rrz94nzo) |
 
 ## 📰 Google News
