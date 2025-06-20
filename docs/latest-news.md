@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月20日 18:53:58（北京时间）**
+🕒 更新时间：**2025年06月20日 19:00:44（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | More than 60 Israeli Air Force aircraft struck dozens of targets in Tehran ｜ Live updates - Ynetnews | [阅读全文](https://news.google.com/rss/articles/CBMiVkFVX3lxTFA2YVVaVktERUdwU0JFRDd6VWJYUWMwV0c3YUNqcFJJTTVVeFRsSmFSVm1lS2VxR2JfQjVqZ05MNGE5dW9iRGNBMGtZcUNHbUlKMWdhdUFB?oc=5) |
 | Europe strains to give Trump an off-ramp on bombing Iran - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxORTRtOU41Y3JTUjdBNVlXU1RaMHd5NjFEeHpvamZUdnozUERYSGI2a29qd1Q4MUh6cmp6MTVtVllmVlQzams1YlhZQUMwRjhUM3l6U29FNDlYNXUxalpsRFFuR0I1SE9VTF95RGdzMV9ub0pURFdJaHNnY280RVZKMExZMXJkd2tZbzJrbndsak1ITWJFZ1FVZHNKUVliNUx5ci1qS2x4S0JXUEk2?oc=5) |
 | How Rand Paul got sidelined by fellow Republicans - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPR1NLVEJWYlk5M1J2b0N2THNYYVdJQW8tWnZKYVVzMy1ySWxiY1d2MHgtMUZiWlVMVGdWUzJtUXZqR1VZRzRLN3ZKd2tYSGFvZ3Nyc2E4S3JEZHpIcWJlRjRWcEVlSlFiYk5Ta2c2aV9UbFFHQXhrVzdlS0V1ZDhnUlNjamJLbC1wMkkw?oc=5) |
+| What’s Inside a 10th Floor ICE Office? New York Democrats Want to Know. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOc1hKamxSN1dLZnBzVDFNb05UaHk1VkMya1duQXZfUDRCNmpVelprdmxpN2c4TTdQU00tbTV3TU9pYlh2WlZ1STlGa0lMM1ZlSkxXS1FSSXpWa0hsNUF2ZDdVZUE3UExsbXBlT0preWw5d3pYSWFBZzhRZWNLWjRjeTBLeFh1cGlqOEh5X3dHVDNNZncz?oc=5) |
+| Hoffman family shares more details about targeted shooting - 5 EYEWITNESS NEWS | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQY3BwaUZqMVp2Wm5hV2l2TXNTVExMU3J5RzhXVExzQkhnQXB2RmRGSHh0TkdOdEthUDFSdWMtcW43SW9xQ2JOT29UZVp6eFVSZi1feVJsall0c1h5b3o0R2FKWjktTWM1NVNJeG55OV9Od01kYVdNXzhMTklJQmNGd0FDNjdRLUx1ZEpaTEtOOWloTUE4dUI0NXNCNA?oc=5) |
 | Trump criticizes ‘non-working holidays’ on Juneteenth - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPcUpZYUF0RzdIWnlQNEQwSnhsN3dLUHp6U2ZuOEY3TmRJU1MxckNoU3dNSXlfUjJkblluWl9mS1dWWnIzTGxQazNxQW9Na1BPZUQ4Mmc5dHZ1TnVZUHpFVTVERU40X2Q0b0g5TW1HLUpKUjNTMjhhZmNYOF9vQ0Qtei1IZ9IBiAFBVV95cUxOdkNnSVdMdlE2MWhoazBJdEhyTXBsRUlJdUFwT3E5cmJPWXc3dVV3d1dnMjlqYkJRY0oyTnpwTlhjNjRtbU4xeEpOeFNVSlloNmV3VGZsZzVuUmVKNnFiOGxnLW1XVjQzQkhPMnFFa2dJaDI5U1FfODhiQmUwSDR1YWNBZkNJcGx0?oc=5) |
-| Heat wave coming; How hot, how long - MLive.com | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOYTR0UURWVkNHdG9WdTZxYzVyVUYwbXpsSjJ0U3piLTd2VF9SQ1p0STVmV0pwSVc2TnhQc0Q4RjNfaVZiUlVmNWtWWDJTS29MM0xnQUlEWFM2bzk4dmNpTndTQWZNXzhsekFuTl9EXzdoUHRVRmprMlppVUFMR29kYmh30gGWAUFVX3lxTE4ycTRHTHFnZ25xdzdfSGRRa18yNU5xQ2t4VjlIaVBOelhiM3lkZ3NkQUt1cVFyUnA2dWR2UkZmRF83Q21DTnh6RGlUcVBIWm5RQkZrYWc4czJFT28xRGtkblJ1RjB3aERSUnY4bFFaOFlBdnY3MTJHblU2YjIyMnRHUU5PNmZMT0JfazRRVXVYdU5nM2p1Zw?oc=5) |
-| Walz says Minnesota should consider banning guns at State Capitol after shooting - Star Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPT2hhTjJKcTZMY2tNZ2h3V3hDZ3AtLUVISXo1U3BDV1NRUUEzc0Z4U2VNNXZHb25FT3hwUmxwMjFkbzB1eVQ0ZnVGX3BpUldVOUxybDZhQ0Rla1RkUE13RTZDV0ZCbG9oTXVYMHlWTlJmVDlBVC1NbWhrSFE1UlVYeHQyUDNRSm9YcmY1bmdpaTN4TGdlV3ZRX2lkQS1JclNWQWdZOFFSaUVwRzd1T3doSW1MNmliZ2ZuaTBLYkRBX0hkOEk?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
