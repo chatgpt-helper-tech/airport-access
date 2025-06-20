@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月20日 09:13:41（北京时间）**
+🕒 更新时间：**2025年06月20日 09:26:05（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Watch out for flight tracking images showing Chinese cargo planes landing in Iran - France 24 | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPTlFVRnR3UmJwQ2dmUHhTYldRTVZzcXI2djNrQlVFOU1aY1RibkRudGN3TVRJYmdrRUlfSHBCNnhzSjZIX1lYbFlsd1FLTmxNcl9NS1pSSWV0c2RpVnNMZFl3VExEcmUtVDd2ZnZpTGFoNEVsUmRlNWJ0R0RIdEs3bDlMbk9DOE9HSDVhVVdWZG5XemNSdnctb2JuTEoydw?oc=5) |
 | Trump administration puts new limits on Congress visits to immigration centers - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPQ3A3bllYN1ZWNENXdkZZYkptR0FvLTBUVy1tUEFGT2FORU54bV9jd2xmYW9KYVBaN29vYXI3bGRLc0tuZWxiTTA3dWtONVUxaTRQcEtnUWxSa3JPSjRRQU9zcklBc0N4ZEZIemFneGxRMm16VkFyMHNXVkJtTGVFS0FkZjhHbmR2Mktld082X3lVQzhZRjN4RC1rUTJDN2t5VWNtWjlSdWdCWXdHclJBT005TG9pd9IBuwFBVV95cUxNb1p6S0hWc042dS01RTF5c0JOVXRod1kxaC1XcXhRVFFDem1jbkFabkl0VV9Rem1kVVdhX0d5X2FQU1pENHRxdzdfNE1XOWFQUnVOOVRQcUNEaVViX0NZX3ltZWZMZ0wzSHB6N1JpM21ScXNFZUF3NTVSUmQtQkNHX2dEZU1NZmVpdEJyX1lyc1phMHlzZDRaV2pLazZibVVjTmRCc1QwSXk2V0t2V252cHlaQTFXdzdkYXNr?oc=5) |
 | Gulf monarchies hold rival Iran close as Israel conflict rages - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1PQjRqcm03OHdLeUx0NGFPemIxWUpRQkRndFp5RzlvYU5DRXAyXzNjQ2tUQk4wNXlIZ25oMUFvcXVXRkk3Zno5RVoyc2lXQnJPbDBQUllVNWFGNTJ1VmtiV19HYTBqZFJVSW1SS2RlNE8?oc=5) |
+| Intoxicating Hemp Is Everywhere. Texas Just Might Ban It. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiaEFVX3lxTE0tVGZiU0xUYUpyN1FsYmRVZEtLSjFxMnM2QmIwVW02MG1PT3N2QzVZd2piRXRac01iTE1keVZ6c3dUWldCZnNHc2JiRmtEdkVadFNjUmpnbW5BZjIyYlNXLVE1MzdzQklK?oc=5) |
+| GOP Rep. Max Miller alleges he was "run off the road" by man with Palestinian flag - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOQ0ZnTXdkMEVOWU1kQldLRDJmUmx2cWdnMFBLZXNNZVNiUENtUWhLU0laTlpIazBmd3lOcTFMelVSSG85dzBTOEtaamNhYzExcWU1bXJNYm1nbDVldkcyRVVtdGNqeHU2eVZ6LTdrM3FFdXNSUWQzMUJZV3NPb2ZqbURn?oc=5) |
 | US judge blocks Trump plan to tie states' transportation funds to immigration enforcement - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPSWZnNDNjdm9kQ3pVSkhybXo4YUh5bE9qMUJCd1JwTGo3bVZlMExPNGNZNFJHM0kwRldtNWltWEk0WHFmWlh3U0VnR3pGVVJtOXZYQm1uY0I1ZHlFdTVBcU9ad015ZDYyUFAtbVlDc1QyalZiOTRsRmk4QTJaM2ZrSlVnTmJveTdhU1lCYUYwSkdQTlZhUFJSemx3ay1xY1VaM0xTa0lVYUJteWNCTFdhT1J3NkpIRjRjMzhPdFZpdmxBZGvSAcgBQVVfeXFMT3ZKeVRBaXRjOTlIMXhrT3AxRnQ2XzFSUndGb25NTWFlNHR4U1k3RmIyRHBvdi1vdUdRMWVRTTNSZksxZTlfbkFQWnNkYVdsc2NVNkFjOEVlbHB1LWp0bDdPdlMtbVNWYUZJWHVONGNjc2lUSzE5b29WdGdBdTBRUUFJZWlsdnBYbWMyLVBNYmF6Z1owQWlNdHJQVHBKRmxGT25QdHJyRnA1VHcydFdONlp4dUFwbEFVWnNxR1h3dnZmeHhibElvVmo?oc=5) |
-| GOP lawmaker says he was ‘run off the road’ by man with Palestinian flag - Politico | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1UX0xGTldjSV9wSEhMM2VwQ0xTTXk0QUl1Q1doZnY5UDExQk5WeGRMOFhrN0thSnNFbDlHaWRsdGljSUp2eVBJWE5MQWk3WlRLeEZOdGRjQ3JSVGlZSV9zWkJmMWUyUTlLRFdyTFA2UE5iY1d5VXUwU3VfQTJlYUU?oc=5) |
 | Banning Plastic Bags Works to Limit Shoreline Litter, Study Finds - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFByVjZ5bTJpRF80eTNmR0pQVnJ3bkhCeXpwS3RmNzdxWTZvR1dvWDVMcGNfbnVKUURhakFtdHBUdWVXZlAtM2N3VWFDZVFkNTNrSUllUFdpYVZHUEV0VXpMRm1HNjAzczBvVTJFX0V1bGdxQjhyc1BBdkxfbw?oc=5) |
-| Trump caution on Iran strike linked to doubts over ‘bunker buster’ bomb, officials say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPVHUwYTM1blhSZUtsSWdoclVDUElDaGF0VFZvSzBBNnNXNnNZVlg5Wm1PZG16T2w2ZzBiYkR0WVZITWRYY3JQbVhRTExMQU1VR0NBRVZFWU1OZUlCVGkwWDF1YWx2em9tM2pGS2lmdU53UUp0V214aHNTVzlJTlhVb0J3VXEtZXNkRFQ3cWdENmI4akdCTHozOHpiV2NjSGIySHpOZGEwSzNSeWR0aGtDb3dVYmdESHJWdk1aaGx2cGc1NGVNbVVvNA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
