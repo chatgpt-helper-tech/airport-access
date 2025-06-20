@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月20日 08:27:39（北京时间）**
+🕒 更新时间：**2025年06月20日 08:39:21（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | US joining Israeli strikes would cause hell, Iranian minister tells BBC - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5HMEt3ODdEUlRib3lSWmdJZnZ4UEpaM2Z6UGpITXVSZEttZURHRDU0cWY5Y25KdGJOZEtZMmxwRTNuQXhtZnY2alk5T3dKZUM2R09PejNOSXpid9IBX0FVX3lxTE9SSWl6WTZSRUNuU1AtVUx0aUJEOXlDd3U4Wm1SZnBJTU1Tb25FM2tRUUxtZElTbzBDSWs1WEloQVVETW9ldmdtOEVjZzcteGRWMURWbU9kcUIwanV0N3VF?oc=5) |
 | SpaceX rocket being tested in Texas explodes after ‘major anomaly’ but no injuries reported, company says - PBS | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxQNVJncmFOSDBSVlJ3ODBtS1h4QUd3MEhONHdhbHZKam53TjluS25GSEhjUEFVTFdoVXNiQjdwTkJLczBPcGdTZlBZYW9FaFlfOUlHWHlRZjRpUFdtVzB2RUZoeGpqZGZEaFhqX0NpYVNSdTJDQnZaWkpId2hDbW9mVUtNd2M2YV9sYjcySktKczlmOExpSFJ5QWdZVmhURk1OaVh2RzNXQ1A4WTI2a2tUdXk1MDBoUzZtdUdCSGZEMV9wYUx5WnJ5TnVMV1VoMTNnSjd6b2x30gHbAUFVX3lxTE14ZndaX3dBZ21HNXRjZUJzbEJuZllET19ER1FrWjVaOXVBdDJzd2RMY0RsMnhLNFlwaDVIRlRKWlo1OWJta2d3M0p5NFhXRmFGWFhVRTQ1ZU5CZ2VieGhjUjFMUVIwMHBxYkJGU2hjbFU2RFF3WGdVNnJqQ1BZbHJyTUNvXzhvUDZtbHlZTWxFU3d3WGRhanFLX0U1RzZoMG1DRGI0V1BGMWRLMVNqOEVjSjg3U2k2S2pUSERnU1M3clNUdTVQSVpXaV9WNWpLandYdU45MUF4VjNSVQ?oc=5) |
 | Trump caution on Iran strike linked to doubts over ‘bunker buster’ bomb, officials say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPVHUwYTM1blhSZUtsSWdoclVDUElDaGF0VFZvSzBBNnNXNnNZVlg5Wm1PZG16T2w2ZzBiYkR0WVZITWRYY3JQbVhRTExMQU1VR0NBRVZFWU1OZUlCVGkwWDF1YWx2em9tM2pGS2lmdU53UUp0V214aHNTVzlJTlhVb0J3VXEtZXNkRFQ3cWdENmI4akdCTHozOHpiV2NjSGIySHpOZGEwSzNSeWR0aGtDb3dVYmdESHJWdk1aaGx2cGc1NGVNbVVvNA?oc=5) |
-| GOP lawmaker says he was ‘run off the road’ by man with Palestinian flag - Politico | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1UX0xGTldjSV9wSEhMM2VwQ0xTTXk0QUl1Q1doZnY5UDExQk5WeGRMOFhrN0thSnNFbDlHaWRsdGljSUp2eVBJWE5MQWk3WlRLeEZOdGRjQ3JSVGlZSV9zWkJmMWUyUTlLRFdyTFA2UE5iY1d5VXUwU3VfQTJlYUU?oc=5) |
 | Banning Plastic Bags Works to Limit Shoreline Litter, Study Finds - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFByVjZ5bTJpRF80eTNmR0pQVnJ3bkhCeXpwS3RmNzdxWTZvR1dvWDVMcGNfbnVKUURhakFtdHBUdWVXZlAtM2N3VWFDZVFkNTNrSUllUFdpYVZHUEV0VXpMRm1HNjAzczBvVTJFX0V1bGdxQjhyc1BBdkxfbw?oc=5) |
+| GOP lawmaker says he was ‘run off the road’ by man with Palestinian flag - Politico | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1UX0xGTldjSV9wSEhMM2VwQ0xTTXk0QUl1Q1doZnY5UDExQk5WeGRMOFhrN0thSnNFbDlHaWRsdGljSUp2eVBJWE5MQWk3WlRLeEZOdGRjQ3JSVGlZSV9zWkJmMWUyUTlLRFdyTFA2UE5iY1d5VXUwU3VfQTJlYUU?oc=5) |
 | Washington has had it with Andriy Yermak - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPZGZkbm05Y1I4LUdPajEzMXVMdGp6NGNKUEpMOHU3ek1mZjFDNXhWWGc1NWtEMVlPakZfMmI1bWdZWlNqRnFtdExERk9uNnVGZUM0N3JnQjdVdUZNYnloWFJ1UUNkUDlqaUNndklvc2J4UzJtQW52N0kyTnNzRlBobklGOHh1UC1xV0c3MWRUNHlkRTBlMzMtTVJZbmN1WC1ZcERVZHRB?oc=5) |
 
 ---
