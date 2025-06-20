@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月20日 19:13:31（北京时间）**
+🕒 更新时间：**2025年06月20日 19:26:30（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | Pro-Palestinian activists break into RAF Brize Norton | [阅读全文](https://www.bbc.com/news/articles/cx24nppdx0lo) |
 | 'Dismal' month for supermarkets pushes down retail sales | [阅读全文](https://www.bbc.com/news/articles/cz094j3nl1ro) |
-| 'Fake Botox jab left me in A&E with botulism poisoning' | [阅读全文](https://www.bbc.com/news/articles/cn0q2z725llo) |
+| I was poisoned by a fake Botox injection - and ended up in A&E | [阅读全文](https://www.bbc.com/news/articles/cn0q2z725llo) |
 | Chris Brown pleads not guilty over alleged bottle attack in London nightclub | [阅读全文](https://www.bbc.com/news/articles/cwyr9wy7gp9o) |
 | Temperatures to reach 32C for second day running as heatwave grips UK | [阅读全文](https://www.bbc.com/news/articles/cg5z78nyglpo) |
 | BBC threatens AI firm with legal action over unauthorised content use | [阅读全文](https://www.bbc.com/news/articles/cy7ndgylzzmo) |
@@ -28,7 +28,7 @@
 | More than 60 Israeli Air Force aircraft struck dozens of targets in Tehran ｜ Live updates - Ynetnews | [阅读全文](https://news.google.com/rss/articles/CBMiVkFVX3lxTFA2YVVaVktERUdwU0JFRDd6VWJYUWMwV0c3YUNqcFJJTTVVeFRsSmFSVm1lS2VxR2JfQjVqZ05MNGE5dW9iRGNBMGtZcUNHbUlKMWdhdUFB?oc=5) |
 | Federal judge says Trump administration can't block state funding over immigration - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOeG5zYWIyZXNDSTN0OHJGMlFtY1NvLXQ1SWdJYXNFbGxKcDRrWmxNN01KcVlYa3ppTVB5bnRCdThzQS1hdFQ5T2J5ZkF2YXBkX1lncXgzR2ViQkpqZHJrNlRXX1d3eGxwRTZtcFNlVHp3NDR0QVB4My1GWDlJU1JVTm1KOEdtcnpuWUFWYnF1Qk5jcU1aejF3RGcyZF90RmRhZ0ZJNUQ0bGlnWHdfWGlhS1drWmN4Z1h1?oc=5) |
 | CNN Dunks on TACO Trump With Supercut of His Failed Two-Week Deadlines - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNVWxUN1RHa2IxR29ETVgyZTU5WFZ4bG9NcnVMRGNIek1jMlNjNnN4NVJKRlBacjNLT0V6cmFUZlkwV3N2amZuQTVCRUZlNFNYYjg1cll2MVNCVVRGRjhzeWdpQWZlV0RYcWVHdzNMU2lVYUszTDZmMFJtV3RPZldRcG1pZ1htMFBYUExocmd1MEtDZHREZnlUSXhfWU9yazNtY05V?oc=5) |
-| Europe strains to give Trump an off-ramp on bombing Iran - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxORTRtOU41Y3JTUjdBNVlXU1RaMHd5NjFEeHpvamZUdnozUERYSGI2a29qd1Q4MUh6cmp6MTVtVllmVlQzams1YlhZQUMwRjhUM3l6U29FNDlYNXUxalpsRFFuR0I1SE9VTF95RGdzMV9ub0pURFdJaHNnY280RVZKMExZMXJkd2tZbzJrbndsak1ITWJFZ1FVZHNKUVliNUx5ci1qS2x4S0JXUEk2?oc=5) |
+| Netanyahu says fall of Iran's leadership not a goal but could be a result - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQYzgweTNaRGx2MUZjQVRGSEpUV0JYTGVETjAxdk43ZEVGY3RvN2NvR1FueTFfWlJNcVI4blJHVDY2WXRvVzJfUlVEZERGbkNpYy1sNVpuWTYydkNHRll6QzR2TTA4WXVFYlZMZVNzbzhMa1VlbmFvWi1WZ1BpSDhNaG9aTGc2Q0ZyellLdFN3MU9jMkF3NlBZVVllbS1DZDh0dzVYcWJmbm44SDd1djY5RXB4WWhYdw?oc=5) |
 | How Rand Paul got sidelined by fellow Republicans - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPR1NLVEJWYlk5M1J2b0N2THNYYVdJQW8tWnZKYVVzMy1ySWxiY1d2MHgtMUZiWlVMVGdWUzJtUXZqR1VZRzRLN3ZKd2tYSGFvZ3Nyc2E4S3JEZHpIcWJlRjRWcEVlSlFiYk5Ta2c2aV9UbFFHQXhrVzdlS0V1ZDhnUlNjamJLbC1wMkkw?oc=5) |
 | Hoffman family shares more details about targeted shooting - 5 EYEWITNESS NEWS | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQY3BwaUZqMVp2Wm5hV2l2TXNTVExMU3J5RzhXVExzQkhnQXB2RmRGSHh0TkdOdEthUDFSdWMtcW43SW9xQ2JOT29UZVp6eFVSZi1feVJsall0c1h5b3o0R2FKWjktTWM1NVNJeG55OV9Od01kYVdNXzhMTklJQmNGd0FDNjdRLUx1ZEpaTEtOOWloTUE4dUI0NXNCNA?oc=5) |
 | Trump criticizes ‘non-working holidays’ on Juneteenth - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPcUpZYUF0RzdIWnlQNEQwSnhsN3dLUHp6U2ZuOEY3TmRJU1MxckNoU3dNSXlfUjJkblluWl9mS1dWWnIzTGxQazNxQW9Na1BPZUQ4Mmc5dHZ1TnVZUHpFVTVERU40X2Q0b0g5TW1HLUpKUjNTMjhhZmNYOF9vQ0Qtei1IZ9IBiAFBVV95cUxOdkNnSVdMdlE2MWhoazBJdEhyTXBsRUlJdUFwT3E5cmJPWXc3dVV3d1dnMjlqYkJRY0oyTnpwTlhjNjRtbU4xeEpOeFNVSlloNmV3VGZsZzVuUmVKNnFiOGxnLW1XVjQzQkhPMnFFa2dJaDI5U1FfODhiQmUwSDR1YWNBZkNJcGx0?oc=5) |
