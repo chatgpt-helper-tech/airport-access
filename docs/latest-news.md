@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月20日 13:26:53（北京时间）**
+🕒 更新时间：**2025年06月20日 13:39:21（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Is the UK about to get dragged into Iran-Israel conflict? | [阅读全文](https://www.bbc.com/news/articles/c36x1d071k8o) |
-| Leeds maternity services now 'inadequate' after inspectors act on parents' concerns | [阅读全文](https://www.bbc.com/news/articles/cdx5rp4y42yo) |
 | MP behind assisted dying bill confident it will pass Commons vote | [阅读全文](https://www.bbc.com/news/articles/cvg4xln7gego) |
+| Leeds maternity services now 'inadequate' after inspectors act on parents' concerns | [阅读全文](https://www.bbc.com/news/articles/cdx5rp4y42yo) |
 | UK may see record for this year's hottest day broken | [阅读全文](https://www.bbc.com/news/articles/cg5z78nyglpo) |
-| How Belarus dissidents in exile abroad are pursued and threatened | [阅读全文](https://www.bbc.com/news/articles/czxeg9ql5gvo) |
-| Watch: Man gets stuck driving car down Rome's Spanish Steps | [阅读全文](https://www.bbc.com/news/videos/c70rw09z6z2o) |
-| BBC Breakfast boss takes extended leave after bullying allegations | [阅读全文](https://www.bbc.com/news/articles/c2d0p6z8910o) |
 | Government whip quits over disability benefit cuts | [阅读全文](https://www.bbc.com/news/articles/cpd1qgpw08do) |
+| How Belarus dissidents in exile abroad are pursued and threatened | [阅读全文](https://www.bbc.com/news/articles/czxeg9ql5gvo) |
+| BBC Breakfast boss takes extended leave after bullying allegations | [阅读全文](https://www.bbc.com/news/articles/c2d0p6z8910o) |
 | Telegram boss says he has fathered more than 100 children | [阅读全文](https://www.bbc.com/news/articles/c77v4x8g7pro) |
 | Public don't back aid spending any more, says minister | [阅读全文](https://www.bbc.com/news/articles/cn4lygdx95vo) |
+| China criticises UK warship's patrol in Taiwan Strait | [阅读全文](https://www.bbc.com/news/articles/ckg3rrz94nzo) |
 
 ## 📰 Google News
 
@@ -28,11 +28,11 @@
 | Americans largely disapprove of U.S. involvement in Israel and Iran war: Poll - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBYLWtEdkIyVmhKenFLclRxbHpkNjFpaEdGRUtJZWIzUkh2Y0ZaS2h0cm9zUHNTeVZ5Y2ZFekJkSmthYzVYeFpDRUZhZmFhcEVqLXBHbUY5SkxaN2c0R19McjAzY1A4Zy1iRlNDbkxwOEI?oc=5) |
 | Karen Read Acquittal Exposes Flaws in Police Practices, Supporters and Critics Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPWXhvR2xXNVRpZnRiMFRUdDFpZWFCaTRWLW5hM1l6REk2MXdBbEh0ekl6T0t2cVZLME9qdlY5NWFCMzVfLVVpV1UxMXhZbUpIaTFFY3ZBcGFnRlN1MXNvT2paNXgxNURXc2FDMHc2WkpHN3VIcDRXUjhGU1RoblRWVnFWb1drVkk?oc=5) |
 | Federal judge says Trump administration can't block state funding over immigration - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOeG5zYWIyZXNDSTN0OHJGMlFtY1NvLXQ1SWdJYXNFbGxKcDRrWmxNN01KcVlYa3ppTVB5bnRCdThzQS1hdFQ5T2J5ZkF2YXBkX1lncXgzR2ViQkpqZHJrNlRXX1d3eGxwRTZtcFNlVHp3NDR0QVB4My1GWDlJU1JVTm1KOEdtcnpuWUFWYnF1Qk5jcU1aejF3RGcyZF90RmRhZ0ZJNUQ0bGlnWHdfWGlhS1drWmN4Z1h1?oc=5) |
-| Trump says number of 'non-working holidays' in America 'must change' in Juneteenth social media post - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNZlZlMWtzR2pXS1piSWZCRlNqck1KTVNmQzlmS2VNM3FxbWY3S0NjN29ralVPSGlCamZNcG9Jd19yUEh3c2ZHWllDXzZUOGJHM2RnUjFKbjMxMFoyNHc3c0twZjg5WlkzYVZiak81SlJrTDRPUEZ3eGI0RThOSGRLQW94YmNsQzhFc3lKYkVNMHRDVGdBRFE?oc=5) |
+| Trump is silent about Juneteenth on a day he previously honored as president - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPRXNTSFl3akl4blZtck5BRU9tWHZITHpQOVFrUVpPVmtBb0pGUDhJTE9pdWRQU2hmcVYyTTVDcldpRDZYRERzT2VsekhocmUtQzQxVGEwNms4Y2RrdFdXdHMxZFZETlNEU2RGcVhRYTVReHFGc0RVSF82X3FYQkVqeTFOUWtIRmo5emRRVjdCQ05DYk1CLVMtbDE1RXNRNkdjVW95aw?oc=5) |
 | ICE issued new rules for Congress members visiting detention centers. Experts say they’re illegal - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxOYlNPS2V6bGpsQzdZNDdiWjdIS2hRV19PQkNiLXRWcS0yVkp6ZGpGRjlVVWJrc2E4Mkl3bWRady0xZzllOXJ0S2dUSmZtN3NXSDFaQTR2WXpzUy0xY1R4OWN2UlV6bXlycnNydXQxWVM3eEVRNllZcDhtWUZkdU9yejZRc0I4WFhDZFNaTHg3RndkU1NEWlhWc2xsbkVWejhLVDVYRlpSWjdiME1YNEo1WjNSRXM1amMwZW4zRXN5b1JYNUQ4UlNIdmhHcjM1NkdaOGdsVUxPVEtJdw?oc=5) |
-| GOP lawmaker says he was ‘run off the road’ by man with Palestinian flag - Politico | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1UX0xGTldjSV9wSEhMM2VwQ0xTTXk0QUl1Q1doZnY5UDExQk5WeGRMOFhrN0thSnNFbDlHaWRsdGljSUp2eVBJWE5MQWk3WlRLeEZOdGRjQ3JSVGlZSV9zWkJmMWUyUTlLRFdyTFA2UE5iY1d5VXUwU3VfQTJlYUU?oc=5) |
-| Intoxicating Hemp Is Everywhere. Texas Just Might Ban It. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiaEFVX3lxTE0tVGZiU0xUYUpyN1FsYmRVZEtLSjFxMnM2QmIwVW02MG1PT3N2QzVZd2piRXRac01iTE1keVZ6c3dUWldCZnNHc2JiRmtEdkVadFNjUmpnbW5BZjIyYlNXLVE1MzdzQklK?oc=5) |
+| GOP Rep. Max Miller alleges he was "run off the road" by man with Palestinian flag - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOQ0ZnTXdkMEVOWU1kQldLRDJmUmx2cWdnMFBLZXNNZVNiUENtUWhLU0laTlpIazBmd3lOcTFMelVSSG85dzBTOEtaamNhYzExcWU1bXJNYm1nbDVldkcyRVVtdGNqeHU2eVZ6LTdrM3FFdXNSUWQzMUJZV3NPb2ZqbURn?oc=5) |
 | Hoffman family shares more details about targeted shooting - 5 EYEWITNESS NEWS | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQY3BwaUZqMVp2Wm5hV2l2TXNTVExMU3J5RzhXVExzQkhnQXB2RmRGSHh0TkdOdEthUDFSdWMtcW43SW9xQ2JOT29UZVp6eFVSZi1feVJsall0c1h5b3o0R2FKWjktTWM1NVNJeG55OV9Od01kYVdNXzhMTklJQmNGd0FDNjdRLUx1ZEpaTEtOOWloTUE4dUI0NXNCNA?oc=5) |
+| Bombing Iran's underground Fordo nuclear plant might not be effective, one expert says - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOOWtkRWV5eFROakpiZTkzWE8tTmFMWU9iajZVRnJTd3A3VzkwbS13aFZyOVQ1NjExQmFUS2JvX3A0YXk2dUd1cklOb3c5bXl6ZkhKS3JmSW9kdE9NZTNwU2Z5WTBYc3JUeW11NmVkcHF6U0JRSW1ER3JsQnM1ZVdod0lqdzhCVHJ2M0lOV0Zqb3hCLU9WVE5SRWd3TXpyaDNRbGNaeHlkQklMN0QxVlh1UDRGVdIBuAFBVV95cUxPa3dwUEYzaVEtYUZ5OGRjOVowS01hNWRIbDdlRzZ1bDRuUUtKc19ObURvMHlkRHlBLVd0SmVuemtoQVFqSjl0RWhtNUdEVnByQkltTDNYeHAxMzZ1WHVCU3haVEtpNVJHX0dRM18xZjBVR1Iya3hRaEQzSUhGbzFtTmZSZ0Q5ZXZRUWotWmdJRHB2cVd3WU1OQ0QzcjljWGo0NURwaDg2NWhmVG5ZaGNIekE2WkZzSm80?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
