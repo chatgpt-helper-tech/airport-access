@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月21日 03:27:10（北京时间）**
+🕒 更新时间：**2025年06月21日 03:39:54（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trump celebrates "BIG WIN" as court says he can keep National Guard in LA - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1oVVBLc2FQc3M4QWZ0Z2pIZEhwc2tqeXduN1RoZS1uYmMwc2dzZGtBNWE3Zlc3MHU2UjR6aVhHMENZaTdlX3FEcE1FeEhXUGg3U2VvSjVyRE9JTHFVRDFJTV8wcFlKVTlpN3A4djRjdzhSa0ttYVE?oc=5) |
 | MPs narrowly back legalising assisted dying in England and Wales by 23 votes - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE10Q3ZZUFJhSHNxR0t4cjFBTzhhVWZUSDhhWEV1YVNsNGpCdjVvUThsNmdRd3EzMW5CUko0V2NQQ0ZzTmRITkx2VC03MlQwYnRZQ3FXbg?oc=5) |
 | Why the coming heat and humidity wave will put much of Upstate NY at ‘extreme’ risk - Syracuse.com | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxQRHJuQW5xNnVkeVNDMWFuMU9XWDdxN3NHRThQczEteE56V2NPTXR0Y1RIVEp5NUZybXREUlplTFd5QUtSMEw0dGZ3V2Q2ZGtQY1hQVDgyQkxDUW5kdGVwT3RCbjVxT2FpM3owMTNNQjZoYmtibkc1OE5wYW55aUNBY2E3YVIydE9vUHozYl9ZVlJFRGNfdnE3b0puc1Vkb29XeHM3M2pma0VZZlNYeHR4RXN5cjAyQmhxZGtmWElKek55dVhhdGc?oc=5) |
-| JD Vance to travel to Los Angeles amid tensions over immigration enforcement - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOVGJrNmFRRm9yT2FKOW5FaDNCUndkWl9uRVhZbXcyb2VwQzRRcHFWZk9jWjRqOGhLNzBETlBzUW5MQ0FaNUVrQW1hNWlBNmhTUkhqMllPUWNraWZKNTBDdUtLdXhDS1pNY25BbzhQZzVYTTk0RkQwcVBMS1o1THBZN2hlY9IBVkFVX3lxTE5LbEJkc3pPOG1iQXd2QmR5bUZSYW1iQlA2RTAtMGJQZDVqVU9iaXdsaGNvMDk0bi1kUW5nOE9WSjlvaV9rdDhjVUloSEVWRmxjbEhXX3p3?oc=5) |
 | White House floats a new funding trick — and GOP lawmakers grimace - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNSHYtN2x5R3VwbXhFQlF4cmhzcUhSeHNHNjNQRzByX0IyX215UlRkVzNmYllVQ09kYUtZeW9SaFA0aUFMVHRBall3NUM4MWdBVnRpSXd6bHdEaWhFejdNbFllNDN3QjhFaF93LU5ITWxlMUlRWFE3am8xU3dGUFZWaExxR19PRjRiZG9VNlNCMVRUSUZUbUluWWNB?oc=5) |
 | Has Trump put off joining the Israel-Iran conflict for two weeks? - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOVTUycXhpZi00RUUxNGdXTWJOM1QyRjBLRVRiMlZWOEZ5bkNDM19lZEFueFlQV2pydDE2TUR2Q2gwSTZsMUFxWGJpTGtZN2pCSlhFanBEMTlJWEU4cmFabFQzTEhUNGhsUTdwdDFTb2FiV2ZnUTRGdEJ1QjlwbjB4MlJ1SmNCeWNlX000ZlBuMDVtdk9RTTc4RTMtLWdJZVJuUjIyYV9ibUzSAa4BQVVfeXFMTWRUYVRfb3hDbTdLMkhnOEk4Q3VncE16QlZHM2lLV0NyMlRxUFBpTFZFdzE4ckY5Yk5qWXFSdkUxZFpQU1pFOWRrNzJsaEV2TEk3dzR1TWtKaDQ1SXpTRnBJdjItYllBdnI4dEl3aVJ1dV9naDMzU2FIRU94ZlpUNEpPMi1BczJVVm9Xc2F1UDh5RXZQOThVMG9qQUJrMmt5ZzJKX2FjVnlyVXZmNF9R?oc=5) |
+| Ricky Williams fights effort to ban THC in Texas - NBC Sports | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQelFERjViSWJxVWlfS3ZtUmpWdFplb3FHX0NxM2I4eWdrX19odFdfeGNfWU5EWWYtTWFIWFVTSVNxMktpQ2h0T3lpSVRmS0loV3RaQUFqTllnWDJVakxwd3N6XzhkQldvbHo0b0ZxUWNqdGNkT3p6UEN4N2ZtY3d1M0o5RW1BNTlCZTluRjBwMGhvdFFNYnVLdlRQcnpiZmp3S0x0WmljekdmaGlNQnRn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
