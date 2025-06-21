@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月21日 19:26:58（北京时间）**
+🕒 更新时间：**2025年06月21日 19:39:01（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Welcome to summer: U.S. braces for first significant heat wave of the new season - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQT05BaV8xWkVSa09oRk1JQWg1dEtNcVE5MTEybEhmWjI2OHJzWmRnc25jLU81UFJkYm4zaGFIQzhTVTZWLU8zRjdINjhJbnlmVWs5UHRlamdYa3pxTWhPTXhTam5tVm1makZZaXJzY2hXd2dqTE55V2s5OHYzamN3ekdn?oc=5) |
 | US citizen speaks out after being detained by ICE in Hollywood - FOX 11 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE55SmpJTTkxc1dWWmM0cHhabFdyQldvYzk1eEdEMDBUY0JNbkdSblFHbGJaQjBHdjNKSkE5NU9MN2EzOVVTQnNCSHk4aV9NQ0NUNDhPYzJ5YTJ6NVhKaVlMdS10Q2ZBVHFLbFVvV1YxZzR2Z9IBd0FVX3lxTFBaSEdDTy1HUG1jdTRrTmJLRWZ1cE9vR0c1T214M01wWVg3M2ZjTXh1WXU3T0ZKYWRCSU1HZmhuVHNyZkZTYlg4TGdFLUdtdHlXaVB3LXdTd1F4VG9KLW12Um04NlJzcW5sSXRZN2c5dkNaTzd0RGtr?oc=5) |
 | Appeals court blocks Louisiana law requiring Ten Commandments in classrooms - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQeFBHZUlIckRNX04wdEJ3a1VzQlBaWmNZNHZiS3NtU0k2aERIVW80cVc1VnlwRWNRXy1GaHZRb1lUdFZpa1JZZExGZlhuSkJQU041V1JaUWc1QUcxWlkzU05PRGlUNnpwNU9kcE14ci1XX0tYT1dxbGZsLTFTMnpUZVNJOGYyT3JiY3ZENXRsMHJMMy1mU0J3?oc=5) |
+| Health care has been a job market bright spot, but Trump's budget bill looms over the industry - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPWnRYSXU0eXBBd1g2TE03TVBoaFNaeEpaRk5hQW9QVVlJRlQyQ0hYMnFkeGNscm9qdnZ6T1FEcnNLbFhCT0MtNm8wSmQxcU0zU2xsRmZXd0tjblFabWdFbnAwejhCN05lQWJiNFFFYWhZUUxrdFRWckw4YUwzVUQwakVXZjJQYUpqd25FczFnRXg5eGdZU0hWZUJ0UUpvRmxlQ291eFlRRmFqTkVkMmJEakczTE1hZ01md1ZqejQ5Q1FuTDg5aWkzZXNfNXJPQdIBVkFVX3lxTFBYR3FTWTk5aHhaUXpRY2c3VDVCSjBNQzRBVnR6V09HdEdtQzQxek1TNzVnM1BKeTdCSTREUTRteFlPbXVJQm1YNUhPR1MxMElMd1ZPRWhn?oc=5) |
 | Newsom Denied Day In Court In Latest Trump Battle Over Troops In LA As Judge Punts: “You Are Going To Tell Me What To Do,” He Informs DOJ & State Lawyers - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9menhnN0RLRFBRa19PbkhxN1d5bFhUTEN0RWllTC16SUlDNnRrSGQyNUZzYmkyb0w0MHBLMEJydjVQSHBWR3VTQkFmelVSZlNkdE15SEJIbjU3Z2dZQUhKRUhYX2xNSENGTUZ3MXBRQXcwem9pR2FqMUpvYw?oc=5) |
-| Harvard and Trump Restart Talks to Potentially End Bitter Dispute - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOT3c1TUpIdzJ3aHE0cDNJV1NIZ0lNeHZQS3c4QUhPYmVJNGNSeEJMWDdVZG1rM3piY1RzOFZLa0JOZU9FQTRLNGtScGpqaG9maExiN3VEbkdmalNmOWc4bWpxVURlMkN6dEZDU1hPVTdFRzk5YTRvRWxOMnluTnRvZHlFLTctRVVC?oc=5) |
-| Karen Reed is free, but more legal trouble looms - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiZkFVX3lxTE5GNGxBNFF1cEctWGs3Q0xhSVp4RDE5TGVoeS01bDZsV2dSb0RSRXJyWXN4Ul91SHhkZ3Y0ejBWLTdIQy1tMmJpRHozWFFCWURQUEFheDN1ejV5RVJ6ZzhvMmZkZ3FQQdIBa0FVX3lxTE1ZQy1YTlR0b1JRRFl5eGMySHY1eXkyVVl5NkdQbHJ0NmF5VzJhWjZZVEk4eURQWmtfNnhrOWhKNXNGT2hEUHg0dTd1UGRVZnRXR3RKUXVhNUQzdl9rUjJkYzRTWFYtMmNwcmhr?oc=5) |
+| Trump Claims Harvard Is in Talks With White House Over ‘Historic’ Settlement - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNQU5kcERZa2lrNGswbGZ3ZXVMMnhSa2p4Q1B4OGJVdVZiM0RXRkFycF9qTXB5LVFZNTJ5MmlwdGh6YllQYnFqXy0yVV9fSkFaZkhySlpuS2RrR2R3TkJ5UzBJVlU2SkNlellLR1dXNnFvb29xXzdfTjBrWTBjXzk5YjVTdjM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
