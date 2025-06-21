@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月21日 18:01:04（北京时间）**
+🕒 更新时间：**2025年06月21日 18:14:32（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| ‘Justice Will Prevail,’ Mahmoud Khalil Says as He Goes Free on Bail - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOUFRVVHFhYnYwSkZmMjFXWlhoNUNoZndHblpFbzVzbTg0X2Y1aGg1c1hwa2VnMnowUDFCbVpYeC1JUlVoZ3piaTZtbHNoRGQ3OVo2bk9kUUwtcG5WLXA0WVJicjM3ZGE3dVMyQTZEcGhvNFJxUFJGWHdJOFo0cHlMNWdoaw?oc=5) |
+| Columbia protester Mahmoud Khalil freed from immigration detention - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPbW96YlM5VWQwdEg5c2VRVkJOem9ubWxuVWYxUzBta0V2dXdkNE9VNGtmT2djbDNlNUpHVlBVeXdBT3B5Q281c1RnbWt5WkZ5RUVjTkZtU1ZCZm8wZ1ByUW9IUDJ4OUh1RGM1cGUycXV6YW5ZaWY3eEJ0NldUbDRwbFlsVDBvQ3BKMEtod0kySlI4VTNGU0htVnBERGMyOWppLW42TmFmb0FFWHhOWUdMT2tR?oc=5) |
 | From ‘evacuate Tehran’ to ‘two weeks’: Behind Trump’s shift on Iran - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPQjhjbWhVWkhnTGdrQ0FHbjhPajgtUE02TzNmbl83OENrRFdManJQb0pkZmlsdnVncGxVOTlKMElGU0ZuZlE3X2s3OERtS1hrUkdBNkE2NmpmM0huTTdua3RsZl9qTUpWZ2ZIS2lTc0hPNlBMeUYtQ05jaUJLRXVoSg?oc=5) |
 | Iran rules out new nuclear talks until attacks stop - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5oYnB3N1pyQzZyMFZZNnZqZHcyR2xBOHFYM2VHbUU0WHJkRkViSmpodXlodDBydmhZTVd1QVAtdHl3WkhKRmxGcmdwUjUtdkVNU2xEWkVjUDdVUdIBX0FVX3lxTE1RZGVDSDVOWHdTWGlPeDVBM1d1cHdESXJ4alBLOXF0WVFHM2xBVGp0ZHp2Q1M2TkpNRWxzd2o4YlY3YXRLaGVpTU0yM1k5NjRleGZTdWpOOGVrVWtRV0Jz?oc=5) |
 | Vice President JD Vance rips Newsom, Bass and mocks Padilla during visit to Los Angeles - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQSXpPa2VGcDFkZmZ1RmhaUzZvTE9ReVBabVdYX0hRMDEwRV9zRTVNd0pvVThZTUh5dG1rLVd6ekZRM3c4N1NaMjBDdUI5ZDF5VmRpRVdnaGxnWEJ1eDBxbFYtYXB2bmpjRnZSSVZybVpJY0lzXzBFQVM5N3FPYmlmbTR2Vl9uSEhLNTBYREtFZGpzbk1BYnBIMHdfblotQQ?oc=5) |
-| IDF chief warns Israelis must brace for ‘prolonged campaign’ against Iran - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPUUgtWVRwR2w0S0ZUVzdBUExhMk1yNzcyYi00UGRfaVVJdjVrbVZlZmRlbWZUMDhFMnhVVW01QmxzT1ZUTzE2d0I2VU4tT1RWWFp5WGUwTXN1dUxUeFprX1hieTNSeld1NU1kUHc2blBzTWc2NTFEOVJjYlVvWGlBUVIzYlR6bHMzUHZQTWx5dDV5Z0JVVEpVZ2RadnFYdUVaWC11OdIBqgFBVV95cUxOaHhUNHNvNjZtUjY2RWVMNlZyTnY2bVZYTUViSXNaSWt5OGFaX1B5bHg2NnJWdHFBN0dmTXo2X0ZjRTd2OGNISmotR2M0YTVzLS1yM2V0X0pFRDJfaThwb2Fnd2g4bzQ2RTM2NkFSQWVjVUxxRE5qNmtYX01PcWJUd2w1bFEtNG9wWU5SbVlVQzlkcDJqa3dLS0w4cFhoX1V1czRrQWJ6T0s3UQ?oc=5) |
 | Welcome to summer: U.S. braces for first significant heat wave of the new season - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQT05BaV8xWkVSa09oRk1JQWg1dEtNcVE5MTEybEhmWjI2OHJzWmRnc25jLU81UFJkYm4zaGFIQzhTVTZWLU8zRjdINjhJbnlmVWs5UHRlamdYa3pxTWhPTXhTam5tVm1makZZaXJzY2hXd2dqTE55V2s5OHYzamN3ekdn?oc=5) |
-| Appeals court blocks Louisiana law requiring Ten Commandments in classrooms - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQeFBHZUlIckRNX04wdEJ3a1VzQlBaWmNZNHZiS3NtU0k2aERIVW80cVc1VnlwRWNRXy1GaHZRb1lUdFZpa1JZZExGZlhuSkJQU041V1JaUWc1QUcxWlkzU05PRGlUNnpwNU9kcE14ci1XX0tYT1dxbGZsLTFTMnpUZVNJOGYyT3JiY3ZENXRsMHJMMy1mU0J3?oc=5) |
+| Satellite image of an Iranian airport shows an American-made F-14 Tomcat that Israel turned into a burned wreck - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNWGdWcnNYUTlWTHpnNXVmcmp6NjNIYUlQTUVUYTVBY2ExSlZIQkdQRDZ2NEtDc1lueEZxcWdBZktVNkZsbHRhUHZBZHZQUm44c2NvWHFIZkdDMTAwYVRDak92dk1Ja0t3aDBfVjV3eXVId2tBT2dlRm1ackFxajRMZG9IaWY3MlE?oc=5) |
+| Louisiana’s Ten Commandments Law Is Unconstitutional, Appeals Court Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQUUVJNXd4QmZMUVRraWNpcHVmLXZrRXdYSTNJZmliVEtxYWtlbFgxaWV3bVBfWXptSElhQTVCaDdPN1pMaVBBb1JTTzJVUEV2c21EY0taTVA3R3F4ZVZXc05fTUhWOXRrdWlsNTEwNFFoNTBRLWR1ZUpMNkRrZk1UTUVoWTJNajFVYUxvRU1SMDM3Skhic1J6ZzNZQzJObVlyamF6OFpDQkgyOHJUN2QtZ1ZhUmM?oc=5) |
 | Newsom Denied Day In Court In Latest Trump Battle Over Troops In LA As Judge Punts: “You Are Going To Tell Me What To Do,” He Informs DOJ & State Lawyers - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9menhnN0RLRFBRa19PbkhxN1d5bFhUTEN0RWllTC16SUlDNnRrSGQyNUZzYmkyb0w0MHBLMEJydjVQSHBWR3VTQkFmelVSZlNkdE15SEJIbjU3Z2dZQUhKRUhYX2xNSENGTUZ3MXBRQXcwem9pR2FqMUpvYw?oc=5) |
+| Judge Grants Preliminary Injunction Preserving Harvard’s Ability to Host International Students - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5fcWxPYXdkZmU5aVZqZXBSZjJyTDhMZFQ3U2l4cC1tR0d0N3FJc2M3QkpaRklzQzFCbEdNUlhOYkh3WEtFQ0oteDBzOUVqcGVpRlRCWGg4U0ozR2d1RmZuRGNmc3BPVnJBU2M1c0R3OEVSN3Z0X3NaM1Q1VXpzdw?oc=5) |
 | America Is on the Verge of Catastrophe in the Middle East - Foreign Affairs | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQSkxQR3Q5bl80MzJfdFhRV0l5cnNqWWpOWEQwOHVRaFBtWHB2amI0M1lXLS1iQlBVMm1lcnZsRWc1aG5iZ1loUG56eXJTcUlqeGt3aXFYYjJXcVdTaXVTb29fZV8zR1pSYXBOTXROX1FrY1hVWl9ZQkhtTUkxR1d5QWdoc2dGTUU?oc=5) |
-| Harvard and Trump Restart Talks to Potentially End Bitter Dispute - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOT3c1TUpIdzJ3aHE0cDNJV1NIZ0lNeHZQS3c4QUhPYmVJNGNSeEJMWDdVZG1rM3piY1RzOFZLa0JOZU9FQTRLNGtScGpqaG9maExiN3VEbkdmalNmOWc4bWpxVURlMkN6dEZDU1hPVTdFRzk5YTRvRWxOMnluTnRvZHlFLTctRVVC?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
