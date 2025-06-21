@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月21日 16:26:07（北京时间）**
+🕒 更新时间：**2025年06月21日 16:39:36（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Palestine Action to be banned after activists break into RAF base | [阅读全文](https://www.bbc.com/news/articles/cn81g4e0nlyo) |
 | Dua Lipa brings out Jamiroquai at emotional Wembley debut | [阅读全文](https://www.bbc.com/news/articles/c98wdj5peyko) |
 | Yellow storm warning issued as UK heatwave intensifies | [阅读全文](https://www.bbc.com/news/articles/cg5z78nyglpo) |
-| Watch: Sunken British superyacht raised from seabed | [阅读全文](https://www.bbc.com/news/videos/c74zl9eleezo) |
+| Armani to miss Milan Fashion Week for first time after hospital stay | [阅读全文](https://www.bbc.com/news/articles/cx2k8dynrr0o) |
 
 ## 📰 Google News
 
@@ -30,9 +30,9 @@
 | Vice President JD Vance rips Newsom, Bass and mocks Padilla during visit to Los Angeles - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQSXpPa2VGcDFkZmZ1RmhaUzZvTE9ReVBabVdYX0hRMDEwRV9zRTVNd0pvVThZTUh5dG1rLVd6ekZRM3c4N1NaMjBDdUI5ZDF5VmRpRVdnaGxnWEJ1eDBxbFYtYXB2bmpjRnZSSVZybVpJY0lzXzBFQVM5N3FPYmlmbTR2Vl9uSEhLNTBYREtFZGpzbk1BYnBIMHdfblotQQ?oc=5) |
 | Trump denies approving Iran attack plan but will make decision ‘within two weeks’ ｜ Donald Trump - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOM0YyTTk1TWFyRHBxRGI1cUF3TDhNZkhGaHFRdmNtRXVlS3VNd0hrdnBkUURMX3lvSVJWV01ESVUzdlBsU2hZX1FxX3Q2Mmd2X2MwVkwya1VIUXVGTkYwZDBfTWJVWmpTM19IeWRwRzBhM2R4R0gtNVNRSDVPTk84YVRseFQ?oc=5) |
 | Appeals court blocks Louisiana law requiring Ten Commandments in classrooms - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQeFBHZUlIckRNX04wdEJ3a1VzQlBaWmNZNHZiS3NtU0k2aERIVW80cVc1VnlwRWNRXy1GaHZRb1lUdFZpa1JZZExGZlhuSkJQU041V1JaUWc1QUcxWlkzU05PRGlUNnpwNU9kcE14ci1XX0tYT1dxbGZsLTFTMnpUZVNJOGYyT3JiY3ZENXRsMHJMMy1mU0J3?oc=5) |
-| Newsom Denied Day In Court In Latest Trump Battle Over Troops In LA As Judge Punts: “You Are Going To Tell Me What To Do,” He Informs DOJ & State Lawyers - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9menhnN0RLRFBRa19PbkhxN1d5bFhUTEN0RWllTC16SUlDNnRrSGQyNUZzYmkyb0w0MHBLMEJydjVQSHBWR3VTQkFmelVSZlNkdE15SEJIbjU3Z2dZQUhKRUhYX2xNSENGTUZ3MXBRQXcwem9pR2FqMUpvYw?oc=5) |
 | Harvard and Trump Restart Talks to Potentially End Bitter Dispute - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOT3c1TUpIdzJ3aHE0cDNJV1NIZ0lNeHZQS3c4QUhPYmVJNGNSeEJMWDdVZG1rM3piY1RzOFZLa0JOZU9FQTRLNGtScGpqaG9maExiN3VEbkdmalNmOWc4bWpxVURlMkN6dEZDU1hPVTdFRzk5YTRvRWxOMnluTnRvZHlFLTctRVVC?oc=5) |
 | America Is on the Verge of Catastrophe in the Middle East - Foreign Affairs | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQSkxQR3Q5bl80MzJfdFhRV0l5cnNqWWpOWEQwOHVRaFBtWHB2amI0M1lXLS1iQlBVMm1lcnZsRWc1aG5iZ1loUG56eXJTcUlqeGt3aXFYYjJXcVdTaXVTb29fZV8zR1pSYXBOTXROX1FrY1hVWl9ZQkhtTUkxR1d5QWdoc2dGTUU?oc=5) |
+| Newsom Denied Day In Court In Latest Trump Battle Over Troops In LA As Judge Punts: “You Are Going To Tell Me What To Do,” He Informs DOJ & State Lawyers - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9menhnN0RLRFBRa19PbkhxN1d5bFhUTEN0RWllTC16SUlDNnRrSGQyNUZzYmkyb0w0MHBLMEJydjVQSHBWR3VTQkFmelVSZlNkdE15SEJIbjU3Z2dZQUhKRUhYX2xNSENGTUZ3MXBRQXcwem9pR2FqMUpvYw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
