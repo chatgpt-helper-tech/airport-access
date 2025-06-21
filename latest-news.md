@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月21日 11:52:36（北京时间）**
+🕒 更新时间：**2025年06月21日 12:00:35（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Donald Trump gives Iran 'maximum two weeks' for decision; rules out European mediation; says 'Europe can' - Times of India | [阅读全文](https://news.google.com/rss/articles/CBMioAJBVV95cUxQOENmUTRtdGgtSHYxSWp2d1F3dEFmd0FvcVFvV2x1Y2Y1VTBITWp0b01sT3ZjSVBKY0txTjZtLVZzSDl1Zk12el9LMExKVGdzVzlqd0hTbFZWdFVUdW1fUEswYmYtcWhWNzdJdFlsd05TWm44bnZDby1wOHhaOUxDZnRubXRMallESXVsLS1WLThJcU1nYzA5NWlvV3Z2LWl6clNmaW0xQjdOdU5aZG5GTGg4YTg5WEcyUWp4UVhIVUZLWFpxa1UtNHVXMndnWm9oYTNDclZJYmJEQ1hkVmhsNHRzazdFT3ROaFlDc1dmMjJnRFhfRWtaNWVyajhsTzlEVXdjcncxQUx0S2x0MlhLYjZneklpd0dTdjBBUThXWEk?oc=5) |
 | Mahmoud Khalil released from Ice detention after more than three months - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNeUk0YzVnWWZzMWFrTTJ1NlVuSm5Ic0NxSWZzZVEtdmN2UW0ySEFlbTFLYk1LaGpLRGt1dzN6SnVDdFQ0RWp5aHVwNmxlX3RNZ1p2Z09SYUVjSDdBVWZQWlpkb3RIUWtrSzliNjBjR2F4TG9OM3lBcUpGa3hIdnVNaXZacU9kNi0zZkJXUg?oc=5) |
+| Donald Trump gives Iran 'maximum two weeks' for decision; rules out European mediation; says 'Europe can' - Times of India | [阅读全文](https://news.google.com/rss/articles/CBMioAJBVV95cUxQOENmUTRtdGgtSHYxSWp2d1F3dEFmd0FvcVFvV2x1Y2Y1VTBITWp0b01sT3ZjSVBKY0txTjZtLVZzSDl1Zk12el9LMExKVGdzVzlqd0hTbFZWdFVUdW1fUEswYmYtcWhWNzdJdFlsd05TWm44bnZDby1wOHhaOUxDZnRubXRMallESXVsLS1WLThJcU1nYzA5NWlvV3Z2LWl6clNmaW0xQjdOdU5aZG5GTGg4YTg5WEcyUWp4UVhIVUZLWFpxa1UtNHVXMndnWm9oYTNDclZJYmJEQ1hkVmhsNHRzazdFT3ROaFlDc1dmMjJnRFhfRWtaNWVyajhsTzlEVXdjcncxQUx0S2x0MlhLYjZneklpd0dTdjBBUThXWEk?oc=5) |
 | Iran rules out new nuclear talks until attacks stop - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5oYnB3N1pyQzZyMFZZNnZqZHcyR2xBOHFYM2VHbUU0WHJkRkViSmpodXlodDBydmhZTVd1QVAtdHl3WkhKRmxGcmdwUjUtdkVNU2xEWkVjUDdVUdIBX0FVX3lxTE1RZGVDSDVOWHdTWGlPeDVBM1d1cHdESXJ4alBLOXF0WVFHM2xBVGp0ZHp2Q1M2TkpNRWxzd2o4YlY3YXRLaGVpTU0yM1k5NjRleGZTdWpOOGVrVWtRV0Jz?oc=5) |
 | Welcome to summer: U.S. braces for first significant heat wave of the new season - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQT05BaV8xWkVSa09oRk1JQWg1dEtNcVE5MTEybEhmWjI2OHJzWmRnc25jLU81UFJkYm4zaGFIQzhTVTZWLU8zRjdINjhJbnlmVWs5UHRlamdYa3pxTWhPTXhTam5tVm1makZZaXJzY2hXd2dqTE55V2s5OHYzamN3ekdn?oc=5) |
 | Vice President JD Vance rips Newsom, Bass and mocks Padilla during unexpected visit to Los Angeles - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQSXpPa2VGcDFkZmZ1RmhaUzZvTE9ReVBabVdYX0hRMDEwRV9zRTVNd0pvVThZTUh5dG1rLVd6ekZRM3c4N1NaMjBDdUI5ZDF5VmRpRVdnaGxnWEJ1eDBxbFYtYXB2bmpjRnZSSVZybVpJY0lzXzBFQVM5N3FPYmlmbTR2Vl9uSEhLNTBYREtFZGpzbk1BYnBIMHdfblotQQ?oc=5) |
