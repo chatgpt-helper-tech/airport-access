@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月21日 19:53:22（北京时间）**
+🕒 更新时间：**2025年06月21日 20:00:17（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | NHS plans to DNA test all babies to assess disease risk | [阅读全文](https://www.bbc.com/news/articles/c1ljg7v0vmpo) |
 | Romance book sales are booming but will they bring publishing its happily ever after? | [阅读全文](https://www.bbc.com/news/articles/c75r6kq2pdwo) |
 | Prince William celebrates birthday with puppy photo | [阅读全文](https://www.bbc.com/news/articles/crk645er1kpo) |
-| 32 nations but only one man matters - Nato's summit is all about Trump | [阅读全文](https://www.bbc.com/news/articles/c93kqnz3pxgo) |
-| Palestine Action to be banned after activists break into RAF base | [阅读全文](https://www.bbc.com/news/articles/cn81g4e0nlyo) |
 | Dua Lipa brings out Jamiroquai at emotional Wembley debut | [阅读全文](https://www.bbc.com/news/articles/c98wdj5peyko) |
-| Yellow storm warning issued as UK heatwave intensifies | [阅读全文](https://www.bbc.com/news/articles/cg5z78nyglpo) |
-| King's Midwinter message to Antarctic researchers | [阅读全文](https://www.bbc.com/news/articles/cn9yxv2lvl0o) |
+| 'Noses out of joint': Colleagues reveal what Reform's Zia Yusuf is like to work for | [阅读全文](https://www.bbc.com/news/articles/c991epp257lo) |
+| Shorts at work: Can men now get their legs out in the office? | [阅读全文](https://www.bbc.com/news/articles/crlj0g43n18o) |
+| 32 nations but only one man matters - Nato's summit is all about Trump | [阅读全文](https://www.bbc.com/news/articles/c93kqnz3pxgo) |
+| How did my MP vote on assisted dying? | [阅读全文](https://www.bbc.com/news/articles/cd78nvn2r1yo) |
 
 ## 📰 Google News
 
@@ -29,9 +29,9 @@
 | Welcome to summer: U.S. braces for first significant heat wave of the new season - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQT05BaV8xWkVSa09oRk1JQWg1dEtNcVE5MTEybEhmWjI2OHJzWmRnc25jLU81UFJkYm4zaGFIQzhTVTZWLU8zRjdINjhJbnlmVWs5UHRlamdYa3pxTWhPTXhTam5tVm1makZZaXJzY2hXd2dqTE55V2s5OHYzamN3ekdn?oc=5) |
 | Vice President JD Vance rips Newsom, Bass and mocks Padilla during visit to Los Angeles - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQSXpPa2VGcDFkZmZ1RmhaUzZvTE9ReVBabVdYX0hRMDEwRV9zRTVNd0pvVThZTUh5dG1rLVd6ekZRM3c4N1NaMjBDdUI5ZDF5VmRpRVdnaGxnWEJ1eDBxbFYtYXB2bmpjRnZSSVZybVpJY0lzXzBFQVM5N3FPYmlmbTR2Vl9uSEhLNTBYREtFZGpzbk1BYnBIMHdfblotQQ?oc=5) |
 | 32 nations but only one man matters - Nato's summit is all about Trump - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1SZEtBMFBLcU9KRWppay1sZGJNcnA2MERiMjFBeUtiQlpmZ0NiYnVQUVV6WF9DWEFydDlha3pOTE5fbkwycjJqMmhsaDZ1QjRrZWZmcmVXN0ROQdIBX0FVX3lxTE0xWVdFRm5zekRhTllsamI0eExVTHF3U1ctbkQxR0hsYnhWa3RqWlZ6c19UclRCQnZYXzFMUHpCcUt3NV94aVlXSDJTZDhiUjZjczR3ZnhhMFNUYlZiWlVN?oc=5) |
-| Health care has been a job market bright spot, but Trump's budget bill looms over the industry - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPWnRYSXU0eXBBd1g2TE03TVBoaFNaeEpaRk5hQW9QVVlJRlQyQ0hYMnFkeGNscm9qdnZ6T1FEcnNLbFhCT0MtNm8wSmQxcU0zU2xsRmZXd0tjblFabWdFbnAwejhCN05lQWJiNFFFYWhZUUxrdFRWckw4YUwzVUQwakVXZjJQYUpqd25FczFnRXg5eGdZU0hWZUJ0UUpvRmxlQ291eFlRRmFqTkVkMmJEakczTE1hZ01md1ZqejQ5Q1FuTDg5aWkzZXNfNXJPQdIBVkFVX3lxTFBYR3FTWTk5aHhaUXpRY2c3VDVCSjBNQzRBVnR6V09HdEdtQzQxek1TNzVnM1BKeTdCSTREUTRteFlPbXVJQm1YNUhPR1MxMElMd1ZPRWhn?oc=5) |
-| Appeals court blocks Louisiana law requiring Ten Commandments in classrooms - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQeFBHZUlIckRNX04wdEJ3a1VzQlBaWmNZNHZiS3NtU0k2aERIVW80cVc1VnlwRWNRXy1GaHZRb1lUdFZpa1JZZExGZlhuSkJQU041V1JaUWc1QUcxWlkzU05PRGlUNnpwNU9kcE14ci1XX0tYT1dxbGZsLTFTMnpUZVNJOGYyT3JiY3ZENXRsMHJMMy1mU0J3?oc=5) |
 | Newsom Denied Day In Court In Latest Trump Battle Over Troops In LA As Judge Punts: “You Are Going To Tell Me What To Do,” He Informs DOJ & State Lawyers - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9menhnN0RLRFBRa19PbkhxN1d5bFhUTEN0RWllTC16SUlDNnRrSGQyNUZzYmkyb0w0MHBLMEJydjVQSHBWR3VTQkFmelVSZlNkdE15SEJIbjU3Z2dZQUhKRUhYX2xNSENGTUZ3MXBRQXcwem9pR2FqMUpvYw?oc=5) |
+| Appeals court blocks Louisiana law requiring Ten Commandments in classrooms - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQeFBHZUlIckRNX04wdEJ3a1VzQlBaWmNZNHZiS3NtU0k2aERIVW80cVc1VnlwRWNRXy1GaHZRb1lUdFZpa1JZZExGZlhuSkJQU041V1JaUWc1QUcxWlkzU05PRGlUNnpwNU9kcE14ci1XX0tYT1dxbGZsLTFTMnpUZVNJOGYyT3JiY3ZENXRsMHJMMy1mU0J3?oc=5) |
+| Health care has been a job market bright spot, but Trump's budget bill looms over the industry - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPWnRYSXU0eXBBd1g2TE03TVBoaFNaeEpaRk5hQW9QVVlJRlQyQ0hYMnFkeGNscm9qdnZ6T1FEcnNLbFhCT0MtNm8wSmQxcU0zU2xsRmZXd0tjblFabWdFbnAwejhCN05lQWJiNFFFYWhZUUxrdFRWckw4YUwzVUQwakVXZjJQYUpqd25FczFnRXg5eGdZU0hWZUJ0UUpvRmxlQ291eFlRRmFqTkVkMmJEakczTE1hZ01md1ZqejQ5Q1FuTDg5aWkzZXNfNXJPQdIBVkFVX3lxTFBYR3FTWTk5aHhaUXpRY2c3VDVCSjBNQzRBVnR6V09HdEdtQzQxek1TNzVnM1BKeTdCSTREUTRteFlPbXVJQm1YNUhPR1MxMElMd1ZPRWhn?oc=5) |
 | Trump Claims Harvard Is in Talks With White House Over ‘Historic’ Settlement - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNQU5kcERZa2lrNGswbGZ3ZXVMMnhSa2p4Q1B4OGJVdVZiM0RXRkFycF9qTXB5LVFZNTJ5MmlwdGh6YllQYnFqXy0yVV9fSkFaZkhySlpuS2RrR2R3TkJ5UzBJVlU2SkNlellLR1dXNnFvb29xXzdfTjBrWTBjXzk5YjVTdjM?oc=5) |
 
 ---
