@@ -255,7 +255,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 
 ---
 
-### 2. <a href="https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A" target="_blank" style="color:#1a73e8;text-decoration:underline;">🐝小蜜蜂 — 618限时享7折优惠</a>
+### 2. <a href="https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A" target="_blank" style="color:#1a73e8;text-decoration:underline;">🐝小蜜蜂机场- 深港IEPL专线 — 618限时享7折优惠</a>
 
 **综合评分：9.6 / 10**  
 **关键词标签**：全IEPL专线 | 不限速 | 特色年付小包低至8元每月
