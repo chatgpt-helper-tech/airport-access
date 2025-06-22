@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月23日 01:26:29（北京时间）**
+🕒 更新时间：**2025年06月23日 01:40:03（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | 86 wounded by Iranian missile attacks on Israel after US strikes 3 Iran nuclear sites - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxONm5JV05qQ3lpT0x3OXZMYTM2cmRmbnQ5cDB0VUFtb2F5Yl9UT1ppRXo2QnNxTEN1UmFPdHpWNGJQdlpFbTNodE9fSW1BMm1KUElhOXlZZWVGU3RSWjFWVUdvTGhtLWtQT2c5R0l2MGhYRUhxTGF6WlY2M09TR0hXTVJPRElpMU9hazkyRGxyRTBGbGtpM2FNbGgtc09KTHE0TEVJY2JHTGY3N3hZQTR6bVdNR0FHUdIBuwFBVV95cUxPYjBGTkI1T3daWUlSa2tBd2pJQ2ZkSmZCRzRsRmJfSVBpdlhiY2ZUYUlmelNOZS01U3dfdERnVnl4b2xHa1JJMllXMmFZTWQ0Q3FWOUY5SzlFS00ya3hQZFBKX2x3SUtsWmp3eDBvb1hPQzdGQS1COW9idGdVejV5eE93bU9NQTFQS2RIQXgwdWVjY0kxb21KelBsWHlRZF9QRjRiODRqVWhQNlBvdVBBdTFReXpxWm1XdWo0?oc=5) |
 | In this rural Colorado valley, cuts to Medicaid would have vast ripple effects - NPR | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxQejl6MDNCek1PT0h2djR2RXNpdUhWSHYyVHhHbzlOdlJHU3RNdFRRam80V3kwczBEclE4Vlpwb25ZX3BEWUxDdHZmUXBLdkljRFFUUVl0UVFKdHBWN05lNFJZeGI5RVQ2QnJDZHdlS2hjZE0wZWZRdl9mdDNUM2dxUlpUTVlqOWhNTnJMaVo4MXJWY181TURhYkJtNF9kUlFzQTlUNzBVTG1fTllQaEdFZ25NNUYzYllfQ2lSVUh0Q0diUnVBQ1gtNlV4cjhhbUE?oc=5) |
 | Here’s where the U.S. will see record-breaking heat - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNbDVmampXeFZNcUVPdHBXQVhVNW1rTmt3VGtkdGpMdWR3bEtNWV96Y0pvSTZVdm56Vmh2ZjhjcFN0OFJjdW9OS3gzYllXVjVzNzNiR01KTHpvZ1lualgzcXVkOTBqMWM5eDBULUh2d0liZENpNnh1YXJyY1gyWTRfRnVmblpFeWYyUWxrSXV3cXdlenFWYm9HNEM2ZXo?oc=5) |
+| Vance: 'We're not at war with Iran, we're at war with Iran's nuclear program' - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPdG1NRzFaZ1ZMQlNJYkhvQUh0a0ZoVDJCcExtQmgxTEh5b1llRFhuSUp6eEdPektwNFJnTkk0LTQ0T1RhTlN5cmZEdVBVenNNWWJSa2ZIaVMtT3E5X1dJRjlmWjlWQU9DZ1FzV3IwbnVLV2FfQWpPNTNuV2FhUW1RM19rbUdnOThhZzE1aW5UekFnRnhtQUHSAZsBQVVfeXFMUE5VWlFPa1dQbHVpODBtbWN2MEl3a1cwRFBHMl9uV05rakdwZXZDWG0tSS1tOHBrUTRUeGRIdlVaVUlTbWk1ZnhmQ2hFNmtEZzdtR2lTbnJPbVFtd2xoLTN6T2U3ZW9MMEV3UXBtb3ZaQlgwNFRSSzctcTh6OUtyc2NXWVJmQlBMSEdoQjZUbzN5WkJSRVVRTkU1TGM?oc=5) |
 | Brazil: Eight killed, 13 injured in hot air balloon crash - DW | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNd2h1WENMdTRXbE1OOC0xUDFCMWE1WHEtTXdrT1d5Wk1YVm9aVVEtZlJ4ek92dUtHNnNmVndFSEZ2dmxNenFCSjlDUURNUUZnN1RaZ1MtOTc2VlNuRWdVMVBYOGJuZ0FVeWxZalJCM3l2UGt3X1p4aGs1b2xGZ1dkU1A2VDN2TW5YdWZHU1hFQUJRQdIBkgFBVV95cUxQVTdrM0hnNE5CNXAyWGNSa3c4YWNvb0FSeGcyREtLVU9Gb2pmZmgyTl9RTkJTczhSaGFWX3pkY0pULVFXYVZYeVdEX3lwOXRRb09iWWxwYXNQQWc2NzlCci1oRXZKYUlpM1Zway1PQW4xdXdZd3U1VS00emhXQUhSa1dxbmFUQVV4VmpuLU55UW9Wdw?oc=5) |
 | Keir Starmer backs US strike on Iran and calls for Tehran to return to talks - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPWWtXb3pqTFFCQ3M5SFczS0k3TTBGYW1MSFdBVEZleG9lTUZDYXEzbW1oSlVlSnVpLU9DeWZlc2V0V2tpWkx5SjRXZTZfUnh1ZXBXNjJjMEk3Nk1ScEI1eWNsUl8yX3lRNGRfNXExa0hUME9FYjhxVVhrU3doTFJxSEtiWVZwOUlhSXBuZzdTNUNyVl8ySDNoMVJMZzF2Q2l1ZG1XYmcwSk1DWWhpdWt3Si1FTWtaYmlwT0draGxTWnl2dw?oc=5) |
 | Pope Leo Slams Trump’s Iran Strike: ‘War Does Not Solve Problems’ - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPSkcwZlpSWC1IM3lSRmdlcWJTYWQ0d1JTUHZoQl9nUWxBeV9WSGg2SEdyT2ZPQ2FENDlBMktpb3VsUzJ1SmU0MVU4bE9MdXhrYUYyVFkyOWwyLVVfbFU1dW1ob3BFSVZQb3hMWnJVTkFObUFQQ2VIOHpndkxaVEVBLVpWb0pHblZGYXZsYlFEbWVjeGFvcGU4?oc=5) |
-| Trump wants NATO to spend more on defense. Here’s who is actually paying. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQd1BJZFZmRUpuR1JoQnNKX0xVeXhZdEh5QjZZbWxQZGprV2h1RXBLOThQM1IyVndsdWdYRGtFQmtuTDNKQk5ReTVSbHRyX0dPTWJiR1RsTmE5M0hfQkFSMFl2VUF0WE04MVRZWHltRXNHWnNvLXNXQlNOVjR2QUt3LXFSTW91REl4eTlnaTVGRnJiQ05DU2Rr?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
