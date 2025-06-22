@@ -140,11 +140,26 @@ Speedtest 使用香港节点测速实录：
 
 ## 🔧 使用流程指引
 
-1. [✅ 注册 TNTCloud 官网](https://tanu095.tntvipaff.cc/#/register?code=7MPbfr89)
-2. 选择套餐（推荐使用 `Crazy618` 优惠码,30元的季付限量包,不享受优惠码,老板说这个套餐已经不赚钱了）
-3. 复制订阅链接并导入 Clash / Shadowrocket / Singbox 等客户端
-4. 测试 YouTube / ChatGPT / Netflix 是否可正常使用
-5. 使用遇到问题可联系客服，响应较快，支持TG沟通
+### 1. [✅ 注册 TNTCloud 官网](https://tanu095.tntvipaff.cc/#/register?code=7MPbfr89)
+
+   ![注册](./assets/tntcloud/register.webp)
+
+### 2. 购买订阅（推荐使用 `Crazy618` 优惠码,30元的季付限量包,不享受优惠码,老板说这个套餐已经不赚钱了）
+
+   ![购买套餐](./assets/tntcloud/store.webp)
+
+### 3. 点击使用文档,下载自己操作系统适合的客户端
+
+   ![下载客户端](./assets/tntcloud/guide.webp)
+
+### 4. 导入订阅链接
+
+  ![导入订阅链接](./assets/tntcloud/sub.webp)
+
+
+### 5. 测试 YouTube / ChatGPT / Netflix 是否可正常使用
+
+### 6. 使用遇到问题可联系客服，响应较快，支持TG沟通
 
 ---
 
