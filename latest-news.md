@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月23日 03:15:01（北京时间）**
+🕒 更新时间：**2025年06月23日 03:26:17（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Six people dead and two missing after boat capsizes on California’s Lake Tahoe - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOeDBnM3pmYXF2cFdia2hWTmExRXRNRzlzMWRaTmdnTDF2YmFGb0Z3bmpOVTJtT045R3N0OEpFOHZXZWlZUURsZ1hjU0JONWpTanJVbGMxTWpDampERWZlTlVJaEhBSEEzT0MyelVOUllEQy11VXdNUlZPY0hCSDJkUEQxV2FqZU5vOU9r?oc=5) |
 | At Trump's request, Israel cleared way for U.S. bombers in Iran - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1LTmJvc0tPZ0t1NjBVOUN0ZFU1c19uU0c5S082N3daR1cxTnV6UFd2cHJTWE9PeWVWNHVPU2ItRjFvMFltRGZMV2UtdElTdTdhR0VoZ1hVLTJPUmQzYnRTRnltbEdubjRlNlpabTJvMmE0bHhNR2RhV3ZVcw?oc=5) |
 | Twenty killed in suicide bombing at Damascus church - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOUXhsaXJZN3NOYmZwSG9jWHFZOV9xMDM5RENpVDhBQzBMRDVxdkNFclBQbE1EVmFydDJkWF9NeGQ4WkV5YThYcE9iVHdhclVFaFFPX1ZwNkdEYlo1WWpEOXlvUUExZ3BQOUdwZlRKMTBCT2tOT0ZvUWlxdTkxZzRKMThQbEFsNXluZXlvSkR3RGhtdzNNTlVEeFBlMXlsUDNTNi1sVg?oc=5) |
-| Iran Update Special Report, June 22, 2025, Morning Edition - Institute for the Study of War | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPZXRaOU1CRUV6dmdLSThMSEFhNUFPbWFfVnJET1NrUno4SW5CZXczTXVuNkYyZ0NwZ255UHVqTDlkSXlGOHZJcXU4WUR5X2lsbGw2TnU1WWdFa0puaEpKc3N2dGk1WDlhSFFHeUM1Z3ctT0VnczBScEhZSnJSSEo3RFZCZG11Y29xNlhobEpxekVEZXB1RDRhcmg1aktYdzdaaUlj?oc=5) |
 | Keir Starmer backs US strike on Iran but warns of wider ‘escalation’ risk - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPWWtXb3pqTFFCQ3M5SFczS0k3TTBGYW1MSFdBVEZleG9lTUZDYXEzbW1oSlVlSnVpLU9DeWZlc2V0V2tpWkx5SjRXZTZfUnh1ZXBXNjJjMEk3Nk1ScEI1eWNsUl8yX3lRNGRfNXExa0hUME9FYjhxVVhrU3doTFJxSEtiWVZwOUlhSXBuZzdTNUNyVl8ySDNoMVJMZzF2Q2l1ZG1XYmcwSk1DWWhpdWt3Si1FTWtaYmlwT0draGxTWnl2dw?oc=5) |
+| Israel savages EU over ‘outrageous and indecent’ human rights review - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPZW41TFFsc2dnZGRYdV9ZMjMtYnJULUFlZ2RSbk9aQ05MNE9NWEw1RjlfcUJ4c3hRaWRkMFFONGJrRVR1V1Z4bjJTYm1WYUxQRzZuUmJMVTdOZVBwazR2M2pDYkRMQmJiQ0poT0hTeEREaThEbkJnMlhORkhFR20xeDM2eEwtSFNJRTliemttLUVsMHNTWnVPbmgzaw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
