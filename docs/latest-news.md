@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月22日 13:26:47（北京时间）**
+🕒 更新时间：**2025年06月22日 13:40:43（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Strikes on Iranian nuclear sites thrust US into escalating Middle East conflict - CNN | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9YRWJSNDMwSDN4azBCVWJvLThPTDJmVXh5bmlLN09Id1ZEbFRRM283R1o4eEE0QXpJY1JWbEJUSVRjejZ5bFdtZm0xcGpwSXVlYWQtNHEySkpwNHVaTm4tZVJ5ZVJza21Lc25kQmx5Y9IBdEFVX3lxTFBVaXZKQ0QxN1BHTDUtUnpuaUJGVXJ2azRGZDVLc0FuNG5MN2ZlZGNDMFhROVVhSkV1V2Z4UTFHUjloMUFVYmExS25QbXF4YVRkTDFVNEg3bTBUVWtLSHdpR2pGbVFoWjNfaEdSWTdFcXpjblV1?oc=5) |
+| Live Updates: U.S. Enters War Against Iran, Bombing Key Nuclear Sites - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE8zVVpjUk4xaDVJUnBnMjc3YWdyZ2lLaEthT3ZLMGJqZVlsaHYwQ253dk1NYW55TkFGbGdWdmFwWEpEaXNDamIwOVEwaW1BZTZMaWU5RVBPenh3OXZFeTZhdktUeTAzX1c3Vm4tTmJOa3A?oc=5) |
 | Sen. Padilla claps back after JD Vance calls him ‘Jose’: ‘He knows my name’ - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQNVhXek55MVRueWRWRG04UXB1OFlpdXZJbk50Y0NCSXd5SGlnQ0RYZmxyY1NlczZPOHN1d184TFhTV0dUSVZJTFp1RDJjcVRkUVF0d3hvemYzLUZUVEpxUlhfYnVxLVh3Qi1jWnQzcmJzUlZXTEE0REJlS3ZnTHNVV2ZfQU53bnJVcXdxemdLUXRzUnozM1dVUTBUVkZKTFFSNVFvMHhLM3ZFSXhTVnJLQ0pQcjhyYTR1RzVN?oc=5) |
-| Israeli strikes on Iran cap dramatic shift in Mideast strategic balance - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPejZmYk93U0x0QjZUdFVPUGYzZWtNd0pJNE13RWtDcndzTUVBSFd1ZnNIUnlCclFnb0RjYzJoSUhuQXcycFZ2Mm5KV1UyTnZUN3VSbDYyYW9yQ2NlclFKRUZENnhvcVV5NVlOWDJISjc5cHp6WG1fYk54VmNKTnczaHppQmdtZmhoMWR0dWFDaDRVYUE2?oc=5) |
-| Mahmoud Khalil Returns to New York After Months in Detention - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOZU13cUNYa2dXcU5rbTBLek02Ri1ZWjlMMHJHRV8tLU1VRGZiTmplR3lXdkdQYnV2RmE3NTFhVDc2T0dUWkFaTTNsZXpxdkFBbGZtSHVaTEg0Tk1Lc1V4SllSQzNueGxySWdibnRBNDR2aUdSb3V2Zk5OOXBZNmtNczgyZWhTVjdJclE?oc=5) |
+| Mahmoud Khalil reunites with family after more than 100 days in Ice detention - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOcVM2aklpbmxxbWhieS1DWmVGRHNLT0NHaENxTlhIZnhjdFNVbUNhU1FGOXlZYllqcVNfalpyVnhJdzJ1VmZyWTFPcXNtVGY5ekdBQ1NwZlFPMlNlbDEwZzZBaE5vc1lFcXVQWm8zZnpWc0FsT1lkTWdobDlvdm1SMjljYVA?oc=5) |
+| VOTE: Do you support the U.S airstrikes on Iran’s nuclear facilities? - National News Desk | [阅读全文](https://news.google.com/rss/articles/CBMi6wFBVV95cUxNenRqcDMwa2xpTkxNWDdnRGFCelNIYjIxSnVaMklzNjlRSk5mRkhXaEpvandYb2xiNmdqUzdHcWFmWG5ZdzhfUjVXRmdHU3Y1NnQxZm5RbkhTcTB0NXFfLUZfemlWRDdDd2lGeVZMVlk0U3YxMFpnQ1MyaGtQSENBNDNnT25aaFhwcVBRd0FGZzZvTkNOZGplMFVWQVowN0dTVkJDZTJ6X0NmU0N4T25qd3BQbnhheHU1MmVKaDc4T2NWZDJXMkxhb3FQRndtRHpBSWg5cDk2TXVkSURCaW9yalE0M2pmWDBoTjh3?oc=5) |
 | Hot air balloon incident kills eight in Brazil - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE02Z2Q0RWY5ZVV5UERMRDIxTXVfNDAxeHNuV2hjSkRBV3UwZGVyVzMyam5TNG1XWE4zcHgzaGQ1RE1OT19XQTA3UE03ZlRKeEpVR3JXYWtFSkhrd9IBX0FVX3lxTFBlRUJPUUtHekhwRDd6QXd4VXVKQUxiODZvYlVEOGp5bFFLVnJENmFpeE4yX051clRGdjA2OFEyRFZlWktZLUx0OVZRSkZOZDVlWFpCNUhZdGczZ3hzMHZ3?oc=5) |
-| Suspect in Minnesota killings accused of being ‘prepper’ preparing ‘for war’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxON01wMFdxcjR4T1VNQzktSXkwX2pUaVhwM3Y0LWdubDRSaGxLQktiWmpwXzR0dXNMRVplc1p0dVFvVUR4Smk3UE1JVXBoUG9HajhPVmZJa1ZvU1h6ZE5lcE1QNGV0M01SajZBZHVqb3dOWWQ0bE9BZUxYRWJYTHcyUmsxRWJIQzY4eUxpeEVaMUp5ZzdvaThpVUtmcU0?oc=5) |
-| Senate Official Rejects Food Aid Cuts Proposed by Republicans in Megabill - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOSWdHeFZxcEFBNl9CVTBvQ0xfTmFHc2RxbGZjUE90a2RYOVgxZFl6aERNOWJrUTZEUzZaVlFZYTJiakMwWlkxN01TN1liQUdBQ2xHTVN5MVczbVc5T3phbVFJejdVRHJscXk3aFZlRHRRT1VKV3J4V3dVZUlQYUpVQQ?oc=5) |
+| Minnesota shooting suspect and wife were ‘preppers,’ FBI affidavit says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQMFAyZTFWRG9ZMXNvM1VoZE5abXJMYzZBcWJXVHQtQWtjNVlvc3o2aXlwd2pkMUsycVZCZEJURjZ2WF9JdTkyZHJFNmdGY3Ztal9fV2tJS2ZoX2QwR1Q2QXRBUGdmV2JYMzVCWkNDTWVaT3ZHa3puVjVQdTBTQnJkSmxQVWFYeFlDQ0Z0eWV0QXJEN0lNdHE2cA?oc=5) |
 | New Texas law requires Ten Commandments to be displayed in classrooms - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9GaDlRbmlBWXREQmhUaTBpbzdBcUlQSExjZTNwOWJNQ04zejBXdjdhczlRV1dVRTA4cW94bkpFYnI0UVo4R2wyX0FQRVdVZWhDSWQwT09aUXpfMnQ0eHRDMjRIUzRUSTdKNUNia3hEaDkzWDN0Qk1zZGxGNFY3bzA?oc=5) |
-| US strikes Iran: This time it’s Trump’s war - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE13WU9QWUFISzQ5WTVKaFB1TS1sZjVwNzF1ODZEcFJ3ejdDZmZHVU9LV2FMaGwyOGRRcmUyRE96a2w0TjhITlVEYjI5WXNnS3pTSllGQ2sxaXRKWW1BdkR1RmxuMmtEZklUazZDandoUjI?oc=5) |
-| Ayatollah Ali Khamenei, Planning for His Possible Assassination, Picks Successors - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOazA4VFVkSGVUSng0am9kU2JFVlpsOWdHOThGbGRqaWZyMGhIMFhmRzVxOEVqUHRVTHhLclh3c2I4em1iUk5sUDE0NDN5Sm1LV19XZFlZVlFtUl9zQW5oczBvZ1lqcEl6aGM1NDZwVHJiV3JKUTFQWjI1U0JzdzgzVHJaeEpsUGptQUE?oc=5) |
+| Senate Official Rejects Food Aid Cuts Proposed by Republicans in Megabill - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOSWdHeFZxcEFBNl9CVTBvQ0xfTmFHc2RxbGZjUE90a2RYOVgxZFl6aERNOWJrUTZEUzZaVlFZYTJiakMwWlkxN01TN1liQUdBQ2xHTVN5MVczbVc5T3phbVFJejdVRHJscXk3aFZlRHRRT1VKV3J4V3dVZUlQYUpVQQ?oc=5) |
+| B-2 bombers have taken off from US as Trump weighs Iran strike - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQcDdBczFDVVhwN0NBZmI5SnFEY2RUa21kZmRPdWx2aDRqZWpWYkwxajFiZmEwUnd3RTZBTF9pVnpFcVRRbWtOc3JDQlJjZk83ZmFRWXdRblpOa2VWZ0twYV9OUTN3SEhCeXlkbUFTbzFVTVVvT0I0MXBvaTJQS2J2cmdqYlhwaF9YR09oODMwMThFYXVwTURFZzRNV2hrWjZFdzREMkVQQU1HYXN0?oc=5) |
+| Trump Lists Reasons He Deserves Nobel Prize in Epic Meltdown - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNLU5RQl9tQUhOR21xSlRDLXFpM2xfV2NWVlNPd2xvTzJpbWcxOUVaMFVQOGJjWGh6aTVjVjFPT2lRQzdGT3Vlbm9PR3AtYXZiYW9TUVpkbVVtWlRDZzBaY0NIMkU5dHBNZ1BpWEtUM1Rmb0Fpd25KdzBjVnNEY0JVSlI2V3ZqdlRJWGlQUXU2VDliVWd6WXc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
