@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月23日 05:52:55（北京时间）**
+🕒 更新时间：**2025年06月23日 06:01:31（北京时间）**
 
 ---
 
@@ -8,10 +8,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| This is an unprecedented moment - but what the US and Iran do next could be even more momentous | [阅读全文](https://www.bbc.com/news/articles/cy0w94yj68xo) |
+| An unprecedented moment - but what US and Iran do next could be even more momentous | [阅读全文](https://www.bbc.com/news/articles/cy0w94yj68xo) |
 | Watch: How successful have the US strikes on Iran been? | [阅读全文](https://www.bbc.com/news/videos/cq53l9dvggjo) |
+| Decoy flights and seven B-2 stealth bombers - how US says it hit Iran's nuclear sites | [阅读全文](https://www.bbc.com/news/articles/cew0x7159edo) |
 | Diplomatic tightrope on Iran just got more precarious for Starmer | [阅读全文](https://www.bbc.com/news/articles/cqx28yr8gj1o) |
-| Satellite images and decoy planes: Behind the US attacks on Iran | [阅读全文](https://www.bbc.com/news/videos/cdezkx5nl1wo) |
 | What we know about US attacks on three nuclear sites | [阅读全文](https://www.bbc.com/news/articles/cvg9r4q99g4o) |
 | Starmer and Trump discuss need for Iran to return to negotiations | [阅读全文](https://www.bbc.com/news/articles/cq53l41gl8jo) |
 | Met Police chief 'shocked' by planned Palestine Action protest | [阅读全文](https://www.bbc.com/news/articles/c79q1jv8p24o) |
@@ -31,7 +31,7 @@
 | 1 injured, suspected shooter killed after shooting at church in Wayne, sources say - WXYZ Channel 7 | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxONkJHRlR0dERWQlpRX19PTVJ2WDhiQWFzX3BoLS1fT2hIaFBTRFdhWjdWLTlsd21Xc1pGV2NGYTlrTGdLZHFXR2RaVHdUTWY3Y2h5SWFzMnBTTHgtYWotUm51Z3BUTVFUck41c2hSNU8tWjFmWjhIMS1HOWN3dnhkYjFtNnU1ZEFXWjF4S2tTS1JXWVhnZnNaTkp5SGY1Wm9hS3BMa05DbS1VdFk?oc=5) |
 | Exclusive ｜ Republican’s Life-Threatening Pregnancy Collided With Florida’s Abortion Politics - WSJ | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxNRFQ1YXRLcGsxQlpqQlhGSGlDeVBDOEVUeVhkX3lXSWJBS09nWXYwb1R2WDZ6Yktrc19zY3AzR3lqdS12WGNDY1RRanFFVDE3Y2l5Ti1kTUlQTGstQ2g5MUZkVFVQcGVMdHVhelBhLS1JZ25CRDA2X1lpeHBYempJMWZkN2Q4MHBXMUdwZVBtYjB4YmV6R1gzYVJHcVl1d1VDa3JyZ2JQdk5HSjN5c3JWWXIxWUo5TGtrN0h6aTdGQnFnQQ?oc=5) |
 | Scoop: Trump launches MAGA PAC in effort to oust Rep. Massie from Congress - Axios | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE8xSG50ZXVKZHhyNnVnRExMUDJsblVXbW1CSTdnb3FqQV9tZHpQM3A4MTVGc2Q2Rl9pbmJEd3NXOVlfVkpmRDdDalBCWElmbjBOTnVFN0RHQkhWWmN3MG5hZlhtSHZ3c0VpUFo4?oc=5) |
-| Syria Church Bombing Kills at Least 20 in Damascus - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQNWNWT0NtS0wwbkp1OFRvTHhiNjlfWi1ORDRZSExDXzJ0eGRpZ21FbWxmd1lKQkJJOUpEOUhsTnBNZ2pMSFBXZWRaMHgzY3huUnBDbVhLblZQNXZtM3ZYdElTSjh2MnlVMDVwUERrNFUyV2lFcG9xWDJOQzJYNVAyNWRfd1FkbmM?oc=5) |
+| Syria: Suicide bombing at Damascus church kills 22 - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9jZFR3RXhhdEd0cFJ2ZXJxazgxTWpPQW5wOEJ1RWZfdENVVHpsci1yVW43cGh5MTEySlNITlFtOVVlVDBZNTJUQjI0ZlVydlZCUk9oQW4ybnYwQdIBX0FVX3lxTE12WDBGSE5oNVpRLUpZT1Q2TkdTcEdTeHFRdGVMMjBFY01LdVBUUUZsb0xyeHJOajJzYTdrbkhSMUFJaTdZOHBRdG1lWTktRUhhbjdtNTlDeV9tdnBlR2hF?oc=5) |
 | Israel savages EU over ‘outrageous and indecent’ human rights review - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPZW41TFFsc2dnZGRYdV9ZMjMtYnJULUFlZ2RSbk9aQ05MNE9NWEw1RjlfcUJ4c3hRaWRkMFFONGJrRVR1V1Z4bjJTYm1WYUxQRzZuUmJMVTdOZVBwazR2M2pDYkRMQmJiQ0poT0hTeEREaThEbkJnMlhORkhFR20xeDM2eEwtSFNJRTliemttLUVsMHNTWnVPbmgzaw?oc=5) |
 
 ---
