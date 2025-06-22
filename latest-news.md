@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月22日 17:27:32（北京时间）**
+🕒 更新时间：**2025年06月22日 17:39:57（北京时间）**
 
 ---
 
@@ -23,11 +23,11 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| World reaction to US attacks on Iran nuclear sites - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQZkd6V2lRcVBhZm1FemVxVjhPVHJUUE5sNURLcEhUSzNjNVlLdzVZcUxMbTJrNkpWNVZSbmh5bjRYTmI2dzRPcmdJYlh5TWRHTXF2LU54MnhpaUhLU1pBTTE1ZEN4Z2htaGlJNDRWcE5nSFVOSnoyaUdlS0pveVhUei1wU2xVWW5xRTNuSDhB?oc=5) |
+| Investors brace for oil price spike, rush to havens after US bombs Iran nuclear sites - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNX3piNHNOSU8yT2I1VFgxb3YxYkVNRDd6UXNfd1g1ZU1zTTQ5clV2TFFTa0RIdjl6OVlaMkEtalJMSGZ2bjUzX0tfVFFRMjNLOUJ6ZzRxbnA3NnBsVEZJbThoQmNqc2VLWVhLNk1mQkxfY09mSVlaQ1R3SF9CZ2lSRzZvYVdXR0xaNDMyWEFtNWJuckUxMG1DTTM3WnJ2a0Z0TVNleDVzYktSSlhUQVRkekxoSkFUUFM5U1FnNVB3VQ?oc=5) |
 | Belarus opposition leader's husband Sergei Tikhanovsky freed from prison - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE92N1ZtSVVnQVFsQmJFalRLeGlXMDZjS0Q3c283eXVnQjFtOS1ZS1JyRVJtaDdaZVhnNjBiMC1ZQzY2U3lmRlkzS2NmMlRPTTZPcmlzUVpXVWVXZ9IBX0FVX3lxTE5UTHRFb0phMVZIQ09oYW92NEhwMDBzZ281X3lnTUpLb2xOa3NpNFExQi1UWXFSTl9wUXNBLU1kaHItNkFRV1ZDQ1NGeEFId2FwLUlLdjduNE1jQ3ZJZkdB?oc=5) |
 | Senate Official Rejects Food Aid Cuts Proposed by Republicans in Megabill - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOSWdHeFZxcEFBNl9CVTBvQ0xfTmFHc2RxbGZjUE90a2RYOVgxZFl6aERNOWJrUTZEUzZaVlFZYTJiakMwWlkxN01TN1liQUdBQ2xHTVN5MVczbVc5T3phbVFJejdVRHJscXk3aFZlRHRRT1VKV3J4V3dVZUlQYUpVQQ?oc=5) |
 | Eight killed after hot air balloon catches fire, crashes in Brazil - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPTUJyTVlTU1A0amVGRkc1UE5Cd0ZaNF8ya1NmNF85MlRSZlhObUVkVjh2c2xyenlXdXIwSTgwMDBXZVItN2psX1JRcW9mRl8tdmJSMXQ5RE9HbjktVGoxQ1pkeXNSWFc2bjdqQzVFUy1GV3NSOS1pSURWN1JXX21SWUZMMEhfX3hEeFBTV2RpMTExRTZKbnfSAZsBQVVfeXFMT0dfa3A5dW1LWVFid05Pdndwbnl6ZVNBUTdWYldiWmxvMTFKLWtVZmZrc3g1YmVrU3pWV3BfR0stb2FJWGxEUGt6T3JTVThUWUdzbGtCekNHMllLWXhONWJUdVJzMkNaZG80NU5lSkFLajdDQUFGcHAyWUlZVDJkUThQYTN0MHEyN0Nfb1BmZGREX3VURERJbXRKSUk?oc=5) |
-| Iran Update Special Report, June 21, 2025, Morning Edition - Institute for the Study of War | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOTzFMaWpsbkxWVDFhbERxeTFWdVVCMGoybFNNUVJJanAzbktxbkkwcHVYWmRKYjFjbUtKSnBLdDkyTWNlWV8xcVFjQm1KNGhYcVZwNW92TnMweThidjB2TkdGSXI5WDdwa1dVWDljREk3RFVfRGFRQ1c2Sl96bHY5Zko5NWNwdERrbTZvaXdqVjVEWG1kMVVEalFaVmdyR2JmOENJ?oc=5) |
+| What to know about the US B-2 bombers heading to Guam - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE9HVjZBRVJfMnNsNE5QaGhYRTZseDM0VHFSc1BFM3JzZkp1Q1l6ZW5mMW5KWkZieDV4dXZnQl9yWlpWRTRvOGlkdm15SjBtdUpVWkRXTVVMY1hhUXNaS2JIVFB4S3kwa2o3clBON0pkLVZpOUwxcXpfZlB30gF_QVVfeXFMTk5zLW03c2VsdzJ4UHVENVhmS2tfdDZIb3E0S2RnXzEtcG0yeWh0NnpQcnBlMlBEZ19SdU9sVE5zbF85X2pfX0hZT0x4cG4waEFhcWNJTEszVnhEOW1EZ1R6YWVFd1JiV2hlb2d0NEItbjNibl9DZ0dJVWZUNXE4cw?oc=5) |
 | East Coast prepares for major heat wave as temperatures reach triple digits - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNMFJoTVNXbjJFSDFsdXVxM2gxYzN1WmJNT0xWWkU1MXZubklPZklWTEZ1czBraVFlZm5EdFh0MVpOZXFwNEVOYXZhbmRMWUpOd0lDWDhRSDJWcWwtY0IxUGdtbDJKcDZTWmNIZWk3SkJSc2JjMlFpQndUSHVGTlByZ0N1SlE4VlEtNnZKbWVJRWM2Nk1McXlBcm90T0RvWXdq0gGmAUFVX3lxTE5mNmc3S1ZpWm9fSGVYNjVEckVWa1VCZWFpYWlKOUNZcC1XR1R0WmdYZlRIOEY4cUJWbGZJdzVsbExmYkI5MXhsMk9SOHFNSEo1WS1fOUxtUENiUG14T3VYWkN3RkpoSTFJWWN0UkRJUGFlU0JvVE9wYW1TUkR2T05WdWFxVWN6TzBVbTJnaXlwY1JsdDN6bENXUTNHT2dQenU3cGJxZnc?oc=5) |
 | US strikes Iran: This time it’s Trump’s war - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE13WU9QWUFISzQ5WTVKaFB1TS1sZjVwNzF1ODZEcFJ3ejdDZmZHVU9LV2FMaGwyOGRRcmUyRE96a2w0TjhITlVEYjI5WXNnS3pTSllGQ2sxaXRKWW1BdkR1RmxuMmtEZklUazZDandoUjI?oc=5) |
 | Mahmoud Khalil vows to continue protests after release from detention - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQZmxvMXpiVmppbExoano3emFpVW0zMmx0UHM1NkQ4WUFKQzFXbl9Lc2dRLWxLMHZwME9IWXhsbUJRb3l0UlZHbzM2Q0tIZWg1c29PZ2pxRFE4dHFBUG9xYVRPWDM2VlVXVEZWUThNRmhBdlZmN3V2d0VnUWtrS3Vfdjg3UFlZcEpxS2pqOTFQdnIxRU9ZZFEtSGxFbnhqalVXTHpKQ29DbjhGNVkyS2dSNzJGY1JDNGFMbXdn?oc=5) |
