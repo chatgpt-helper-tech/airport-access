@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月22日 12:39:21（北京时间）**
+🕒 更新时间：**2025年06月22日 12:52:22（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | Action on Iran is loaded with risks for Trump | [阅读全文](https://www.bbc.com/news/articles/cvg86pd63j8o) |
 | What we know about US strikes on Iran's nuclear facilities | [阅读全文](https://www.bbc.com/news/articles/cvg9r4q99g4o) |
-| Watch: Trump addresses nation | [阅读全文](https://www.bbc.com/news/videos/c93k8nvdnqpo) |
+| Watch: Trump says strikes a 'spectacular military success' in address | [阅读全文](https://www.bbc.com/news/videos/c93k8nvdnqpo) |
 | Palestine Action member tells BBC plan to ban group 'absurd' | [阅读全文](https://www.bbc.com/news/articles/cq6m24v7910o) |
 | British man arrested in Cyprus suspected of spying and terror offences | [阅读全文](https://www.bbc.com/news/articles/c628jy5rg78o) |
 | Dating app scam victims told 'don't suffer in silence' | [阅读全文](https://www.bbc.com/news/articles/cyvjy0871dqo) |
@@ -23,13 +23,13 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump claims U.S. strikes "obliterated" Iran's key nuclear facilities - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE1QM0Q0VE1KaF9uTEl0eU9RQjV6R0gzWVdRaGs5ZjlPN0VVRHd1c0ViZjdGZ2FNWHRLUW9GaHhhZjJ3NUNXdUREejdlNHVRUWZCX1hvQjBBaHpubTRMYlRmN0s3c0dvTTFJZVFBWXdiQXgzamNLS0Jn?oc=5) |
-| Sen. Padilla claps back after JD Vance calls him ‘Jose’: ‘He knows my name’ - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQNVhXek55MVRueWRWRG04UXB1OFlpdXZJbk50Y0NCSXd5SGlnQ0RYZmxyY1NlczZPOHN1d184TFhTV0dUSVZJTFp1RDJjcVRkUVF0d3hvemYzLUZUVEpxUlhfYnVxLVh3Qi1jWnQzcmJzUlZXTEE0REJlS3ZnTHNVV2ZfQU53bnJVcXdxemdLUXRzUnozM1dVUTBUVkZKTFFSNVFvMHhLM3ZFSXhTVnJLQ0pQcjhyYTR1RzVN?oc=5) |
+| What we know about US air strikes on Iran's nuclear facilities - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1PUWJYVVo2NjlhVklhRE12dVRrbnRmaVQ2bkNoczVfN2luS2U1THhNLWQzVnhVeWlsaUVobVBKZXFfdVBSbTVxN2VRdW5iMmxpbFdla3ktN1puQdIBX0FVX3lxTFBsQmtLT2JxeGpGRGN5cjhJUHhJRHZESTdwb1VyQzZmZHJBV1FfeWhvN0gwUGlOTkpDR3RzUUROaDQ3aFVwejVZQk1xZWtxemtLMzJTdXhUSkNoWGx6eVNN?oc=5) |
+| Mahmoud Khalil Returns to New York After Months in Detention - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOZU13cUNYa2dXcU5rbTBLek02Ri1ZWjlMMHJHRV8tLU1VRGZiTmplR3lXdkdQYnV2RmE3NTFhVDc2T0dUWkFaTTNsZXpxdkFBbGZtSHVaTEg0Tk1Lc1V4SllSQzNueGxySWdibnRBNDR2aUdSb3V2Zk5OOXBZNmtNczgyZWhTVjdJclE?oc=5) |
 | Israeli strikes on Iran cap dramatic shift in Mideast strategic balance - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPejZmYk93U0x0QjZUdFVPUGYzZWtNd0pJNE13RWtDcndzTUVBSFd1ZnNIUnlCclFnb0RjYzJoSUhuQXcycFZ2Mm5KV1UyTnZUN3VSbDYyYW9yQ2NlclFKRUZENnhvcVV5NVlOWDJISjc5cHp6WG1fYk54VmNKTnczaHppQmdtZmhoMWR0dWFDaDRVYUE2?oc=5) |
-| Mahmoud Khalil reunites with family after more than 100 days in Ice detention - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOcVM2aklpbmxxbWhieS1DWmVGRHNLT0NHaENxTlhIZnhjdFNVbUNhU1FGOXlZYllqcVNfalpyVnhJdzJ1VmZyWTFPcXNtVGY5ekdBQ1NwZlFPMlNlbDEwZzZBaE5vc1lFcXVQWm8zZnpWc0FsT1lkTWdobDlvdm1SMjljYVA?oc=5) |
-| How targeting Iran's nuclear facilities could impact the environment - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQRW5EYkM4TGNEeFF2cl9xczBfZXlKcTh6WlVobWF6MWtYazBfVFlZV2JaZHZSVEwyMkNZQzA5c1dUZUFfNjd6TDlyTlBvS1UzandxdEE0WWxGcE5aMnBnekNGa3ZUUENhU05iSFYyNEdTTmRiLTNOMmdfSlNheEhDMFlZeEZLejF6ejJHWDgwamVBMGNZRDN5TVpqODQzakJWWlh4Zld0d0FfeHBBQXfSAbMBQVVfeXFMTkNWYkRXSmlSdXROeGM5R0pUOS1ZUzVhNjhLN1AxYmF2VFFrUmxSRHhvaGtrMk9LTUFLYU92WFRwWUE0STI3bllyVlhkSll0R29mRjNFc3NEWlFsN1N4Q2w5QnZqT2RnZmc5eUVzNjdTUXkyT2lBQ2hKZmJpd1Z5NHFqcW1wa2EzS09TTzhSTzF5bDFuYWh5a0RWUHJncUh2YkNuNlFwekdfWl9ZWFVvempLOVU?oc=5) |
-| GOP's food stamp plan is found to violate Senate rules. It's the latest setback for Trump's big bill - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOR0FlMXJvN3FFTGhGdmVpOFlvUUt3UHh1T3h2RDRKTklibzBsOEwta2JDM0JiR0ZPQW9qUExBbXJVcHptcDdzQmN5anlRMk9OTlNEQ25sam5aSkZXYWV4Z2RMaFRnclM0eFkyaEZtYnJHS1pSdFJlTy1pY2I2MWN0Zmw3WG5CVUhBa0lhNF93TTFCVG0xcnBIR3hRN2FNemNKeDBQVA?oc=5) |
-| Minnesota shooting suspect and wife were ‘preppers,’ FBI affidavit says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQMFAyZTFWRG9ZMXNvM1VoZE5abXJMYzZBcWJXVHQtQWtjNVlvc3o2aXlwd2pkMUsycVZCZEJURjZ2WF9JdTkyZHJFNmdGY3Ztal9fV2tJS2ZoX2QwR1Q2QXRBUGdmV2JYMzVCWkNDTWVaT3ZHa3puVjVQdTBTQnJkSmxQVWFYeFlDQ0Z0eWV0QXJEN0lNdHE2cA?oc=5) |
+| Sen. Padilla claps back after JD Vance calls him ‘Jose’: ‘He knows my name’ - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQNVhXek55MVRueWRWRG04UXB1OFlpdXZJbk50Y0NCSXd5SGlnQ0RYZmxyY1NlczZPOHN1d184TFhTV0dUSVZJTFp1RDJjcVRkUVF0d3hvemYzLUZUVEpxUlhfYnVxLVh3Qi1jWnQzcmJzUlZXTEE0REJlS3ZnTHNVV2ZfQU53bnJVcXdxemdLUXRzUnozM1dVUTBUVkZKTFFSNVFvMHhLM3ZFSXhTVnJLQ0pQcjhyYTR1RzVN?oc=5) |
+| US bombs Iran: What to know about possible weapon, the 'bunker buster' - USA Today | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxQc2hKNXBhN19iejFfQjU1azU5VF9GUzE5S2Z3YXlnbnhBcUNvX2JkdExCRE5adkt0NzFKRjdJdWlYYU5kM242TjQ0eldWNVB1c0hPaDZTZjVJVlFCSGVVSkNNczg4VHlnekJhZWhOdEFDNEtkSlNhaUxWMlQzaUhJekg0UXlyNXpyU21DV3JYQ2Jpc1RfcEpMLUJhRE9adlZ1SEhENVAtQUY1WUxQbW5ZdkU1M3N0S1VpVnA3cQ?oc=5) |
+| Eight killed after hot air balloon catches fire, crashes in Brazil - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPTUJyTVlTU1A0amVGRkc1UE5Cd0ZaNF8ya1NmNF85MlRSZlhObUVkVjh2c2xyenlXdXIwSTgwMDBXZVItN2psX1JRcW9mRl8tdmJSMXQ5RE9HbjktVGoxQ1pkeXNSWFc2bjdqQzVFUy1GV3NSOS1pSURWN1JXX21SWUZMMEhfX3hEeFBTV2RpMTExRTZKbnfSAZsBQVVfeXFMT0dfa3A5dW1LWVFid05Pdndwbnl6ZVNBUTdWYldiWmxvMTFKLWtVZmZrc3g1YmVrU3pWV3BfR0stb2FJWGxEUGt6T3JTVThUWUdzbGtCekNHMllLWXhONWJUdVJzMkNaZG80NU5lSkFLajdDQUFGcHAyWUlZVDJkUThQYTN0MHEyN0Nfb1BmZGREX3VURERJbXRKSUk?oc=5) |
+| Minnesota shootings suspect was a 'prepper', FBI says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBTQTRxdkFPWHY2WGxlX3lWLXdkYU1yQ0dUWVEtVUtRYkM2cmE0UDZFOU02Q1hQRjlrV085cjM5WDRWUWpPZmRNSGd0ZFNsVTNDOG5jQkxLS0poUdIBX0FVX3lxTE80QnFmUWk1VTlscDIxX3hoM2dVQWhqZW9DSmV4VUtfazdNZC1feXJnVXBoSHlYVWFpNEJ1UHJCQjdjSFRQWG5ZMlJ5c0FBdkxWV0dVLUYyZm1xV3dlRjBF?oc=5) |
 | Midwest Cities Bake as Heat Wave Blankets the Central U.S. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9kcENNRHpacXhoc1F1dkowNHB6Yjdqc09lSVZ4VGtnaFF0QVZHNC05U3hWa2swc1M2ZlNLVXc2NnM4UG1qb0lIaElGajZoMEYxR3lqelZrNUFoU1B1bzJ3NUxIYUxEcmlSeEMyR3V0bW1Bajgwak95anA1VQ?oc=5) |
 | Trump faces backlash from Maga base after strikes on Iran - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9YNkxaWnRQV1Y3d2pvR01SX3dGbzEwWVI5UXRtSFhyYmdTY2FYcHlMX2d2VWhsQmNGRTY3M1dXWnpFN1FJOWhuNnNoSGQzTU5LVldTUy03UVh4blN3aWR6dUNFLTQtd1l0OHhGeEtOZ3E?oc=5) |
 | New Texas law requires Ten Commandments to be displayed in classrooms - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9GaDlRbmlBWXREQmhUaTBpbzdBcUlQSExjZTNwOWJNQ04zejBXdjdhczlRV1dVRTA4cW94bkpFYnI0UVo4R2wyX0FQRVdVZWhDSWQwT09aUXpfMnQ0eHRDMjRIUzRUSTdKNUNia3hEaDkzWDN0Qk1zZGxGNFY3bzA?oc=5) |
