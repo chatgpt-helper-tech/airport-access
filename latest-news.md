@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月22日 13:40:43（北京时间）**
+🕒 更新时间：**2025年06月22日 13:53:58（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Hot air balloon incident kills eight in Brazil - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE02Z2Q0RWY5ZVV5UERMRDIxTXVfNDAxeHNuV2hjSkRBV3UwZGVyVzMyam5TNG1XWE4zcHgzaGQ1RE1OT19XQTA3UE03ZlRKeEpVR3JXYWtFSkhrd9IBX0FVX3lxTFBlRUJPUUtHekhwRDd6QXd4VXVKQUxiODZvYlVEOGp5bFFLVnJENmFpeE4yX051clRGdjA2OFEyRFZlWktZLUx0OVZRSkZOZDVlWFpCNUhZdGczZ3hzMHZ3?oc=5) |
 | Minnesota shooting suspect and wife were ‘preppers,’ FBI affidavit says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQMFAyZTFWRG9ZMXNvM1VoZE5abXJMYzZBcWJXVHQtQWtjNVlvc3o2aXlwd2pkMUsycVZCZEJURjZ2WF9JdTkyZHJFNmdGY3Ztal9fV2tJS2ZoX2QwR1Q2QXRBUGdmV2JYMzVCWkNDTWVaT3ZHa3puVjVQdTBTQnJkSmxQVWFYeFlDQ0Z0eWV0QXJEN0lNdHE2cA?oc=5) |
 | New Texas law requires Ten Commandments to be displayed in classrooms - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9GaDlRbmlBWXREQmhUaTBpbzdBcUlQSExjZTNwOWJNQ04zejBXdjdhczlRV1dVRTA4cW94bkpFYnI0UVo4R2wyX0FQRVdVZWhDSWQwT09aUXpfMnQ0eHRDMjRIUzRUSTdKNUNia3hEaDkzWDN0Qk1zZGxGNFY3bzA?oc=5) |
-| Senate Official Rejects Food Aid Cuts Proposed by Republicans in Megabill - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOSWdHeFZxcEFBNl9CVTBvQ0xfTmFHc2RxbGZjUE90a2RYOVgxZFl6aERNOWJrUTZEUzZaVlFZYTJiakMwWlkxN01TN1liQUdBQ2xHTVN5MVczbVc5T3phbVFJejdVRHJscXk3aFZlRHRRT1VKV3J4V3dVZUlQYUpVQQ?oc=5) |
-| B-2 bombers have taken off from US as Trump weighs Iran strike - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQcDdBczFDVVhwN0NBZmI5SnFEY2RUa21kZmRPdWx2aDRqZWpWYkwxajFiZmEwUnd3RTZBTF9pVnpFcVRRbWtOc3JDQlJjZk83ZmFRWXdRblpOa2VWZ0twYV9OUTN3SEhCeXlkbUFTbzFVTVVvT0I0MXBvaTJQS2J2cmdqYlhwaF9YR09oODMwMThFYXVwTURFZzRNV2hrWjZFdzREMkVQQU1HYXN0?oc=5) |
+| GOP's food stamp plan is found to violate Senate rules. It's the latest setback for Trump's big bill - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOR0FlMXJvN3FFTGhGdmVpOFlvUUt3UHh1T3h2RDRKTklibzBsOEwta2JDM0JiR0ZPQW9qUExBbXJVcHptcDdzQmN5anlRMk9OTlNEQ25sam5aSkZXYWV4Z2RMaFRnclM0eFkyaEZtYnJHS1pSdFJlTy1pY2I2MWN0Zmw3WG5CVUhBa0lhNF93TTFCVG0xcnBIR3hRN2FNemNKeDBQVA?oc=5) |
 | Pakistan plans to nominate Trump for Nobel Peace Prize - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE13RWRlLWRfd1lwYUNtV1h5dUFja0owSTQwZXJHVVRjSEFuaWQySmZGTV9oYmpvQXB4VWptZDZ1SFVKLXQ5TjlydFE1RGFDNU1QRTg2Mndpbk5IQdIBX0FVX3lxTFA2X3Nlck5jUXJlVlpCQTBFR2xuTkNHMkFMNXV3QmRhaUM3UkhrZzE1a1BhTk5BV1M5LWVLeGRodE4waGdmZjhZbjV0d2RobTd0WVl6WGpHQU53QWVSWkNZ?oc=5) |
+| Israeli strikes on Iran cap dramatic shift in Mideast strategic balance - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPejZmYk93U0x0QjZUdFVPUGYzZWtNd0pJNE13RWtDcndzTUVBSFd1ZnNIUnlCclFnb0RjYzJoSUhuQXcycFZ2Mm5KV1UyTnZUN3VSbDYyYW9yQ2NlclFKRUZENnhvcVV5NVlOWDJISjc5cHp6WG1fYk54VmNKTnczaHppQmdtZmhoMWR0dWFDaDRVYUE2?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
