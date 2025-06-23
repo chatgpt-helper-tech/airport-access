@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月23日 10:01:22（北京时间）**
+🕒 更新时间：**2025年06月23日 10:13:58（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Republican representative’s ectopic pregnancy clashes with Florida abortion law - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNa25Mcm04NHBRUkpZeDdCSzg3SUtOMlFiVW52c3pnWEZjVjBoeTVDdGFmRFRXeHNFUWZodm5MY05ZX2c4OGt4Wk53RE0tam55SGRRREMwS3hEQ3FPcmNCNW1lbTY2bDlhejg4LWZSTU5fVEdNclEtdWZQQXNVdm5ITWJpLXJfbzJZRGlFTTNwQVRyQ3NyQzY1TTJaNTVONnhYaUVEcDk5V0VKeFZvWXc?oc=5) |
 | Six dead and two missing after boat flips in Lake Tahoe - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5BNVBzSEowajJXZGpDT0hWR3VjTE96cFBXeGZYVVY0YXFtWWczYm4tbVhsQlUzdkhLY1l0STk1enpOR3hLWHphbDlWZG5FRmtlVm1ScEJfaDU1d9IBX0FVX3lxTE5JZElPUWJRLWZCel9zcHVjWjg4UGVQY1BJRXE5STRYRDNRSmltMEVxVTFXM1VBUVFrV3dMeWkzQkR1ak10dTZtT2x5LTNEOEtkTWhDaTJ1ZVFlVFQ3c09n?oc=5) |
 | Trump’s go-it-alone strategy on Iran risks dividing an already split Congress - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQdzNobWNpb1M2ZmQzdDVqWElYcW1MS2FFYldMU0dIenlrdkxla3p3NHQ3WHlZVmdSWXdyVGxPcTQ4Vm96eWZkNXd3ZjRVNTAwZzZlbVlKb3Y2cHZlVEdMMjZTb2hNZFpFdWx3RGtibmZKY2hrZHc2YXVyMjU0UUFscXdITWtkZTdYZ3Y4cmtZamEwck1wajlJdk9DenE?oc=5) |
-| Scoop: Trump launches MAGA PAC in effort to oust Rep. Massie from Congress - Axios | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE8xSG50ZXVKZHhyNnVnRExMUDJsblVXbW1CSTdnb3FqQV9tZHpQM3A4MTVGc2Q2Rl9pbmJEd3NXOVlfVkpmRDdDalBCWElmbjBOTnVFN0RHQkhWWmN3MG5hZlhtSHZ3c0VpUFo4?oc=5) |
+| ‘It Felt Like Kidnapping,’ Khalil Says in First Interview Since Release - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQXzF2LUFJTFhkdmVERm1MYW5Dc3J0enR3UlpIS3E5TTN3STB1ekk0NGlsWmhYWmoyMjFSbU95d1A0QlpsWDVWVVlXYUF2VVg1UUdLdEtaUEk1ZkZRUGxNWkxGYXcyMDdidS1ManlLSTI4Wm9uY04yUkNrOWZmcGZ2a1JvVTlxUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
