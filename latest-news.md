@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月23日 12:54:01（北京时间）**
+🕒 更新时间：**2025年06月23日 13:00:33（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | Chris Mason: UK's position on Iran is clear but will the US listen? | [阅读全文](https://www.bbc.com/news/articles/cwyep25p5d0o) |
 | 'Necessary' or 'unfounded'? Americans in Texas respond to US strikes | [阅读全文](https://www.bbc.com/news/videos/c07dg04ke45o) |
 | What we know about US attacks on three nuclear sites | [阅读全文](https://www.bbc.com/news/articles/cvg9r4q99g4o) |
-| Starmer and Trump discuss need for Iran to return to negotiations | [阅读全文](https://www.bbc.com/news/articles/cq53l41gl8jo) |
+| Four killed in Kyiv in new Russian aerial attack | [阅读全文](https://www.bbc.com/news/articles/c0k7vll16l3o) |
 | Lower energy costs part of government's 10-year plan for industry | [阅读全文](https://www.bbc.com/news/articles/c1ljnrrmd7jo) |
 | Strict rules as GPs in England start to prescribe weight loss jab Mounjaro | [阅读全文](https://www.bbc.com/news/articles/cglz4xyk7w9o) |
 | First celestial image unveiled from revolutionary telescope | [阅读全文](https://www.bbc.com/news/articles/cj3rmjjgx6xo) |
@@ -31,7 +31,7 @@
 | Judge will order Kilmar Abrego Garcia’s release before trial, but ICE plans to detain him - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOMFZJMDNmWl9tNVFhRUs1OVczU1I3YTRnVnBtNm1uRGZHX0U2Y2sxbXRmWnlGQWVLLVZfR2pSdWs3NzIwaWtSTGp4QVVRN2M0Umo1QzRKOFVqWnN1dkZUM0RVX19TOEh3ZlNiSkdqNUZHOW5tYVV4VVVmdTlFaEUxWWp0bW5OOE1mOURwV2ZGamp3dlNETUE?oc=5) |
 | Police credit staffers for stopping gunman at Wayne Co. church: They 'prevented a mass shooting' - The Detroit News | [阅读全文](https://news.google.com/rss/articles/CBMi7AFBVV95cUxNYjFvZ2IzQXJvOGJQVkoxVzNsS2ZzaWNQdTBzQXFjdWhTS3N3d2JMc192NC1lMFRRdkxxX3NIY2pxdnlzVmdYMm51ZVRwYl83RmxuenVyWjFseDBGRVpIdEhiZno5Q205RFhqWl9JdE5veVBCdGt4V242TTBkb0Q4X2lVWjhWaGptZFhzdjItM2Nqa0xtR2pGRXlwRG55YnJUYWNJTTItVzlrSG9EWlludDA2MkRHR3JQV0twNUQ0NEJBSEJfNTRBbkJrNGpnMGJCVEhzMjRSNndwelNNbVI2RUhwd3N4S2dGZE53aQ?oc=5) |
 | ‘It Felt Like Kidnapping,’ Khalil Says in First Interview Since Release - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQXzF2LUFJTFhkdmVERm1MYW5Dc3J0enR3UlpIS3E5TTN3STB1ekk0NGlsWmhYWmoyMjFSbU95d1A0QlpsWDVWVVlXYUF2VVg1UUdLdEtaUEk1ZkZRUGxNWkxGYXcyMDdidS1ManlLSTI4Wm9uY04yUkNrOWZmcGZ2a1JvVTlxUQ?oc=5) |
-| Two Supertankers U-Turn in Strait of Hormuz After US Strikes - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQRWVFRm9jdmVqRnl6OXU3aHlJcmtUUWx4ODlxamxWb0Y3U2I4ZWlaaHF6U3hZWVZESF9ORkRxV3pTRzNaZTZVVFFNM1AwcTFuLTd6elZ4MFYwOWhCMXhoVDNVdXhwRXIta0xsWGN5TGtyRUJXTGl2MWV1MzBJQ2cxNzBhalVfQTdjV2tLWTVTRGNqc25remZTblEtdGxvRU9ZbFVzUDhBZEhfUVBiVkVRWQ?oc=5) |
+| Two Supertankers U-Turn in Strait of Hormuz After US Strikes - Bloomberg | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQRWVFRm9jdmVqRnl6OXU3aHlJcmtUUWx4ODlxamxWb0Y3U2I4ZWlaaHF6U3hZWVZESF9ORkRxV3pTRzNaZTZVVFFNM1AwcTFuLTd6elZ4MFYwOWhCMXhoVDNVdXhwRXIta0xsWGN5TGtyRUJXTGl2MWV1MzBJQ2cxNzBhalVfQTdjV2tLWTVTRGNqc25remZTblEtdGxvRU9ZbFVzUDhBZEhfUVBiVkVRWQ?oc=5) |
 | Israel recovers bodies of three hostages from Gaza, IDF says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOVnYyX0ZJRlVhMFFUVTByaUVBLXlMZ25hUURBM2JNMWVKUndNVHdDeWg4RkU1Y3RfV0RPdlRtMjRfTElVTEVvS3MzNTNXY2tKcjFFMEZWeUwxQTcxaHMtRTVFR25rT3YzdE9kclhkUW1CRkRHV21rYlI2bmxla3dxck9uYnp4bDg5R2VFZnl3?oc=5) |
 
 ---
