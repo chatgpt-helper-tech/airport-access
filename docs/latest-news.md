@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月23日 20:14:28（北京时间）**
+🕒 更新时间：**2025年06月23日 20:27:44（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| 6 Trump Voters React to the U.S.’ Bombing of Nuclear Sites in Iran - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBoaFpheWt6MEtLcjhjTm41V0tmWkVpWUdfZ2x3WUtOczVqVGhOTEFjR0Z3NWdJb0t4Q2NXNXFsbUI3V2hDQ0YzV0JZX1ZQcDZaUnVYSUZ2TWpKZTNoZVRlTTBtbERrZkh4VFVWaFFHSGR4YmJsbE1vSw?oc=5) |
+| What satellite images reveal about damage to Iran’s nuclear sites - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPcDRqVE5iWFc4REVKenVqSG1aa0NyZm1PTDhYQ2tRLWl2a3lGRzFCdDJ1Yk1lZnlON1duNkw5aHBKNm9RTnFIU0I4Q1V6VmVQc09vN3lJTm1Sd2RhbTByTnJoNXNWOE1SMjBRN1I5UWpnNFFISWR3RnpaU1Vhd3U2ejBJY2FsVXdQcjdXRHZJYmhDczVVWEpQWUpLNlBfVkE?oc=5) |
 | What is the Strait of Hormuz and why does it matter? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9tN3d3SGFFOS1kb0ctMnU0WDdib1hmYUVaLXQ3bm5vRUFlUjVhN05nLVBJOUozTXo2ZnpDZ0NHQUJzMXpBNkdqbHdJNy13bUF0aDJSLUdLR19OQdIBX0FVX3lxTE1XWnpqVHpxdENMY3JtU29Nb2MtS3JEN2NQcWh5VzlUcDdBcmhTbWtDNmFxbk1ZMkJHa0tSTkNDaHoxTmVuRG53Rm1hb3NqZnFVYzJaWms3OVFjRkVualNF?oc=5) |
-| NATO agrees to higher defence spending goal, Spain says it is opting out - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPYmlsS1QzemRFTWhMUnVrZXY3VUdWcXdCSUVxc1hNblVYVGJMWHNGbnpTZ1F0aFZ0eUhhYzk4eE52SmpaTmF5ZmFOa0xDMk4zTnNScnprYWJvZ1p3cVZSRVpZOXlVWnpZeTRhS2ZUVmVCZHRoR2xmTWZ1THk4UjZ3VlZSREFjb21JQ3AzYm1lVXRPMGd2eFdJM21acmMzXzBwdl9naTBzRWVKeGFjWUlWNEhMaVZtbUtzb3JWQVd1RFM?oc=5) |
 | Iran's supreme leader asks Putin to do more after US strikes - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOa1R4ZlJkQk0zejc5ekFmdHJBM1c3VnhMT2o0X3hBLTRJdTRhdEthNEZYN2x4N09FMXdDQWZmS2I4UlpfX3AtYVFvOVdIRzdSSFJPS20yZmZPRkk1cnczdEdIQTVBSFFVNFhNZmVWNEJuQU01YWJyYmpMRHJZZld5d1BWcTlSQ0xVYUdNV096UWtBSDBjbUpGWDNQOXRJejdReHNIZHZIYw?oc=5) |
+| NATO leaders gather Tuesday for what could be a historic summit, or one marred by divisions - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPeHB3U3hDMVk1ZUVLSmN6bXotdlJsc1Z0VEo3Z2FxY1FOZzE5ODViUjF2TWUwMlBOU3J4cWdKaGZWd3JBd0laWWpOaEZKTWhDbVJXeWtQZzdiM3RTUHF6UkQtcTRlWXUtdWxwdW5yZ3dQdUZaV3hvazhMYl96ZFl5Z3YwSGtUR1JKaUwzSkpmenRMWmFWdnlGcVo1Znh4eEhiTk5ydFo4NFFqRE9q?oc=5) |
 | FBI, DHS host call with governors over US threat environment after Iran strikes - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPbkFDN3NfSHF2SGV1OFNQSkl6Tk9zMWtEYXB3TXFGRHBfYmFmRjBiOUpMU3RETEtfRnRja3BDY2c0R0pnOWJON1Z4bnV0VV9JLVZOWnplNlloQ1l0eW1mSkhTaWpVektYcjJnWEZyTzIzMzRndVVYUnlpbUpjcnFzVUVReEs2LVo1VEIzYzhmMVFYeEhjVDFKV21XU3o3YXhVMmfSAacBQVVfeXFMTjlneTZBM1NGYTRYbnVOSWZieFJTVndCYmFHTFczSjlXeUdCcVpsMlotUmxNQmdCLV9fMjUzMEwxUWNoLUU2UGlmNFR3NDg4YkdWSVEtcFZ3VDBmaDB1QllJVTIydTBpRS1lQlctZUFZVFZZMHhrOUdPTktUQ2hwYzZVN2xKb3VLQ21Ya3hTNEFYUko2ZEtkQXNlT2JwcGJrbU1Oc0RfY3M?oc=5) |
 | Trump’s bombings present major constitutional and legal questions. But it’s up to Congress to force the issue - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQclBhQTd2bm4tNjV5OFdyWUFLMmVxRDV1aFltekVGMFJiZXRmR2ZTTUE4a3hHeEJSUlVGZ2h6S0xhTHBSeGVLbkpQUDBYNlJ0cW5XZ0dfLTFYTXJoYUxVNVVUMzJNNXBkbURMOU9iZy1RUkdmLWplWHg2WTNIQWlmbFdkUThTaTY0RzZ2UGZsMUtfSEpTUVHSAZsBQVVfeXFMTVM4elozV2FRYkVGQjk0dGJPOVV6REotSWtlcVlPNUFkdnN6aWxpYk5CUHVycjY3Z0dSblBFVE5ZenZ6eDZULUJGaTBuYlFrWEF5QWpBQ0RyQW5jN1kzbFBsUEZncnpXTEhyZGVzdlhkX1hpOUpaRy1QRUIxZUdIclF0MmdpZlZWYmNkSFpmU3ItcGNHSG5vTUdKTmc?oc=5) |
 | Judge says government ‘failed’ to prove wrongly deported man poses a danger - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQUnRNa3dvN0JISzlWeFd2UkR6dHJOalJLb1ZJd0VFWjZ5QVdFZHlxSmhSUmhCZnBqMmlZTm1PaHpmS0pyUmRCWTViQkpTdWRYNGYteGVqbVBqbDhKLWNYLUxDOHFHVmxDQXdpRzlBRkhFaW5RenRESVdDNC0tcEU2aXpPSnVJaFhGLVpWRjBNVkRyYVdqaF9fVGJIbw?oc=5) |
