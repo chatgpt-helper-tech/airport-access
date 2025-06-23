@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月24日 04:53:09（北京时间）**
+🕒 更新时间：**2025年06月24日 05:00:12（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | U.S. braces for heightened threats in wake of Iran strikes - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBES2RreWtON200V3dyck9sYnJTLXlsVFlyRks4ZDhLQnBmU2EwVmJtZGJsNUNYTTV5UFh6MDY1SGpuSW50bGJFUWJQX25fbUNWdU5zeDQxZ3U2bWtLOUZ4WmxlUVZTLWpFbnluSWM4djNsSjZJaHc?oc=5) |
 | The Strait of Hormuz is a vital route for oil. Closing it could backfire on Iran - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOSjF1b21uNUxMUE02NVl1bjdLQUhXX3FxNEFkX0ZyNUo5b3JLRlFoc0Z2Q2tFU1N2VWlQbTBBbzNMa0hCbjY3ZXBIVVZOeE1LZjVPLXlUaXhaTVRKTXJJZ0JVUDN3aGduelFfcm9tOXFEbTE0ZEM5dVhMNm45Z3FkcF8weU12cm5KTm9JZWNEbHg3T3ZwXzg4ZA?oc=5) |
 | Police ID suspected gunman fatally shot at Wayne church - The Detroit News | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxQU25uU0RETXFXZ1ViVzJoWWZYTUpobG1NeW1tZ2hlbmEzWUdqaXVBRjh4N2ZzamxIOG5Ma3AyV3dRZ0J3bWVVRFJLZGRnXzQxMXhsQmU0STY3Tm9zZUxPa2IxUDg5bnZ6ZTI4MXNTbDItOFU5R0ZkNExjeDE0TXY5clM5b2NxRnFCb1Z4MHY3czlsOXFta3B0QlZWeGNQU3VSdWJlYVItRXJoRWl3YlkzenpZYnNwWV9FLWlkcGhVNk5CTllNek9pNG15aFBCUHBuMndj?oc=5) |
-| Texas governor vetoes bill that would ban all THC products - CNN | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE1tZXk4Qkx5bnRiVnd0VDY3dWdMdzA4aFhzcjhxdGtNajR3aDBvNk9LNzg0ZnhrWFVOMndCeElmdDhnd0dCYUp2ZDFQdGkzN21YU0tYLXlqVFplM2ZzM2VPMDZkOW14WVFkWDdJ0gFwQVVfeXFMTWNmMUZGdEMxTUVzMXRiLXZpV1MyNFc5RUl3XzdreWNQYXRGUEFJVlhSdmFlcmFUUVJRY1lZd3F0SkVyRzAwbF9jLVJQZHE4R1F0MUJ0Qkh1b3VFTVM2U01KbVhGTmpXaXZiRkdNZGdQVA?oc=5) |
+| Former B-2 pilot shares details behind Iran nuclear facility strikes - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNd21fenJ5aEcxWnltVDdpZmdvcG0zMUkzd3ZTR196VW4tVVRFM01xTklGbkdKWS1mVUVIajRqaEN0WGtoUHBRUzhyYjlJa3lyY25RS2dPN0xjX0xKSzB0QTFxbWhrV05KQ1dLckVTQUp5ZGdJQkZzMEE1QjJURzY3S0hDM1o4c1BKRS1aNk10Y2xQQkFHUTZfcTNzUlLSAaIBQVVfeXFMTndSNU1XTk1WcEpnU0Zac0hYajRZNzRpbTNzeXRZQU01X0luRFoydW1NeHJiNWhNRnZJWDBnc3RieVR1aE9POF8yeVoyNVM1QjBHd1BkblBsWUFISXhUUndSanl5cFUyUUI0OGVnemZNbjhwM0VNYzU3SVVOd1IxVEJLdTlQbGpFU21rQlk3RFg1MDF4eGg0bUhLOU9uc3VNekx3?oc=5) |
 | Brutal 100-degree temperatures will hit cities from Boston to Washington - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPN3VlOXpCaGd2OHl2VDFCNXZvQm5fQV9EelhHOVFrc2g5eFhlVk9JZjBnNnFSMzMyZ2c2MGlQTm9uemlNREJwZzViS3RxTWY2bHN6aHMwdjdIWVZfelNlTThxMFFxZjRnREN1WEFOR0kzWkwyb1NZdV9QVE13YkpxQmFtTS1WV3hNZDdtQXdTVnZ2Ums?oc=5) |
 | Post-Dobbs abortions continue to increase: Report - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1vbzBrOWhzREtUek9TUEhtQnpLWTRzeUNMYzkwemRQUFNTRHJDaERUbGlfYVdjeE9OeU9GTXFyeklDV195VmFRSG5haFBmLTBTUHF2bl9rbkNvWnFkWXRMZ1RfUy10cjdQTTlaZUhFOHUyV1E2bHFWbkkxOGRWTUk?oc=5) |
-| Murkowski suggests she could become an Independent in the right circumstance - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQSWZrNEJZM2h6eExCOFMtclZCempIVjE5SF9hVDEzR2YwQUlBWkhORmNxVDZKV3V1cUJVWEhyTmdwSkVzdVJPWlhocXh0cC1oaC1xQ0JXbWtGb2hnUmMxWFRia1d1bTFxZ0xqUlExakxEZC1TY3V2ay0ycnpwTVBYNV85czZYWTdZUUo1ZHN0T1ppVENkb0E?oc=5) |
-| Trump slams Russia's Medvedev for claiming countries will give Iran nuclear warheads - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBjUjA0SWMtT01hcUIwTGRCRF9VdU5qZ1RmRlBhYXdVRkZFV09mTWhNMjZOTFVYd2daaFV3azVHM1dQd1NqcmhGV1QycTE3bDZaeGp2cFRZc2RKbWNEREtiSzh4UXNsaDlTVXBraklmeG9JY2JoQ3FkMDVqNNIBgAFBVV95cUxNTUZsLVE3OGNsaVZwczg1TmVLY1lObEZYTmFuSjNHZW1LZTFXdGptNzVDeWNXdlQxMnVFRHIwNTlEY0FWX19ZT2FTbGM5QXpOMFl3elhGSUNnTVR3RDNRSkpRejNKci1VcG1UYUNfWTJKQXpOMVlyTGt3c1RJNXNVNA?oc=5) |
+| Texas governor vetoes hemp ban bill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPdjg3Q2ZjeE55ejRZY3luSDh5SnV4VUhPQzlvNVBlWmp4YjZ6RUJzU1FFbkdtbjEzb05QRV9seVVZMTNnUU5IM2gtdlRSSkNLeE1rdVg2dS1pemEzd3h5bldoMHhRYTlGalRLZFIwUXVpM3RqNWJ3UU5WSG5NR3VmTzYtSzFaRm9HaTZnLVRn?oc=5) |
+| Zohran Mamdani appears to pull ahead of Andrew Cuomo, according to new poll - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNdTV0OE5zSUNHNHFyQVU1R2EzWVRBM0VISC0xM1BLNUdxU2czclBLZnQ5VmpUbGM2MUJBZHhBNkJKMlJsS3h0dUlyUzAzYlRkd1ZNSlEtdDBfVWdjbDQ5RmotbTlDV0VJNWx6TnhCMF9FdDdzeHFBZGt0WTY2NWhncGRSZUo?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
