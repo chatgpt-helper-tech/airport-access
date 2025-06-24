@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月25日 05:40:35（北京时间）**
+🕒 更新时间：**2025年06月25日 05:53:15（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Is the 12-day Israel-Iran war really over – and who gained what? - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPUkFNbWdWNC1HaDJTNkxlRVI1bm5nY0RqSTdGLUNfVm9HYXpuU2RzYTdTWmlCQUIxaDBMNTgtbWNvOUhLS1MyOWZrNkhzTC1hWUxrRi1FNDhGLUxERDVVSTJKa0JpaDNVYnZvWDhnbUVhaDhPbDFaRGpRSGpDTTA4RmtNNU5UUWdDcGZReFhDQjNMTUdhZGJqcExjRmhwZ9IBowFBVV95cUxONTBsVUY4OFJEZU9mbXFPd1FVbkhKdFRGVzBLemJfTUlwcDlXYk5rMzIwQ19sTU5tZVlXT2RaR1QteXphRVlqcjNPT21xLTg2LUhUY0Y1cXgxbkp1Zzg1ckFPa1dNVnRISV82VWp6Y0VRcjkyQnphb1FJMzlVTUNSRHozWjZwTEJHQkJ4OUV5UGZ0cDVhckxjNHJTV2xiOXVZcE8w?oc=5) |
-| Trump backtracks on ‘regime change’ talk in Iran - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNZkR6dldIRW9yUXNEMUF1ajlmWTYxV2V0SFR0TGx3N04ySl9VM2dCcUttZW5mVk1OMFNGTVctMm1lZjRoTGUxVU0wSmxtNFczb0JNZDZLU1dQOUxaRnpDNkdjZHJuakpEZFdVdkhaaWp6X2JDRWhoN3FDbkI5dThKZ3NLdXg5X3J5d0pQdmNEb2xHbW0wdlZsM1lvRlI?oc=5) |
+| As US cities heighten security, Iran’s history of reprisal points to murder-for-hire plots - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQSHRKa2owU1FsVWxEOVZza3R5ZjNQT3NDWTc3T1JKRkROQk9KMF9vZHJQc1Jpa0E3WDJkWnJNSFhjSlhZUVlOdWlXU0M4c3Z1NjJnanFScjZRTEV3dEFYaUdlaEktZ3pOQnlRWS1jcWthaU4wOXhYNUh3ajNvWjU4ZUtQS0JKYm5ZQWgxLWlELTQ?oc=5) |
 | House Democrats join Republicans to kill vote impeaching Trump over Iran strikes - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNWDQ4N29VZVpjUVBxT0tIUWZPRWQtZDFTODFLZ2dZTHNOeFAxamZTVExSY2loWlduM1lJazNlQ29YeVRoMGMyZ1BBSnV2bE44T1Z0bEI5TG1ITDVPLUw1aXdKQmlqSTZ6M0FmcU5kR1d2LTJlZnJBWnJWZTdoalNuQlE2M1Q1ajQ?oc=5) |
 | The Nato countries that missed their defence spending targets - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5ibnI3c1lOaDljdDB6S0gyRE1EWmEzNHQ4LXliWm1GaUFOeG94UERQOG9ReUUxQmVXUHBMZXNZdWxUbVNxM2JkV1Nhb2dPZXpIVkx6RC1acjZod9IBX0FVX3lxTE1KcGdyMkpEMXlpeDNLTThjUkEzanNRbzlVQ1BpSHNCakdqZDBDb3lnQlJycm4teENzLTNjd2VuVWppNWJza01xZE40WjhNeTNGVUNDS0ZnaHVlZWpBU0p3?oc=5) |
 | Family of four, including DoorDash executive, killed after Lake Tahoe boat capsizes - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPRGh4QVY4OEp6X2diUEtyaTlJVGQxYm5FNE5mdWNraTZpd1JrTFF6dW54ZmVNdzNpaGo5QzREdW0zcVQ1cXBjb3kzVUlFbWpMbnNncXEySVhsc0gzVk81aUFnMV9SWUdCcjE1dTBVb0VqVE9TekZXcFNWY0t6LTdkUThhX29nOHFOTHNxZGVxbTEya3RW?oc=5) |
@@ -22,7 +22,7 @@
 | New York City mayoral candidates share closing arguments about taking on Trump - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxONkxYdkdIZ0ZEeTFzM0JPdGV1aU1XN24xSERSS1F5UzE1NDQwZXlzR0t1YkVsMmY0eFVudlFnT1JXZ2J0eEpGMGphVVdGakc3Q0txTEstbGM2SHlsYWV1YWhnSTdXaTdkWFFXSDdxRElvY2M5akMzX1dZeTNTX3FqZE1iUlNEdktOc0ZlWm9RUWRRanZtYjNKaVY5Z3ZobzA1UlRDNFQtWlBWT2_SAbABQVVfeXFMTlZQdHU2LWZycm1jMUxKWUlEN2QyYWFZT244N2g1Z3BwbXJJdnZId3hBa29nWFpwQVdDbzRuRjRnaG5PWUNmeDNBUnV2eERXQjgtUTdTdHpRem1nRE9XRmdMS0hXTXU2TjJHQWNfTmpaZFdlZ09SRG1ZdEF2QkJMR2t0dVhhalpGMkJTVUc1UnlvYzRVT1lSTjFteGVDRnZfdGNOVXRQYk1VTmNkMDhvTlQ?oc=5) |
 | As heat peaks for most of East, these cities are set to hit 100 degrees - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOZmZLTVd1bENRSDRIWWNtakdQY0poUHQtbC1sMjlQOWdBWklZdkJId3N4ekVITmw1Nm1LeVB3cVV3aUdndHZUYUkxVTY0dkRnVnVocldOa2tEa3J4VDhWUG1pNG5ncDlORGZtN09NSEZISEpZajdIajZkZ0JBcDBXT21YTFI0SjctaE0tQ2ZveElXNG9v?oc=5) |
 | Trump takes Middle East ceasefire to trade war strategy - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOVERKamo1N2hNT3BJaEo0NWEtVEpod2JhekhuMy1FZVI4RTJDSm1nX1lSUFF5aTFZeGc3dkNTOXIzQ3lZa3pmTExtbkVrZ2t4ZHZhZWZwbzZRSEdZMmMzUDlmdzFRUW5vRnRUdV9sYThzMG8yX0xCemJudjhORjJ2ZktXaTNKUlNENkpGaWx4RjFpdzBFamdDRzQxTmIyRUhwQmV3ZVZyeWhCdw?oc=5) |
-| Returning to Supreme Court, Trump Accuses Judge in Migrant Case of Defiance - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE8yQVJWUkF0dmtmeUJQZUU0SWFfR0dtREtiRF9ISXNCUEVkanFfeXZCRHhYTHl0T1ZCZ1NGbUZhdTZIZGtTSXRGSXdCQWs2dVVFcW12RVl0TkNlb0FHZnZhOFZlM3Vzd2h4bEZvNTdXZ09adDVPMWhCU2xaOA?oc=5) |
+| Robert Garcia elected Oversight Committee ranking member in win for younger Democrats - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxObzREZVhhOFdKSVUzbTBCSDBJREh6NkFTUFdtUVZCVUhFT2xxS3dqd1B5ZjRrazZzdjFNcWM3WVdpM3ZubmRMZ1pRMXg3dXVTRWp4b3Ftd181b05SeEVGeEQyWFFGTkZoZmVqaE9XTnNfSnVpS2w0TVY4NUlUMElyT281WUJRUHo4b1E?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
