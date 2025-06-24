@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月25日 00:52:27（北京时间）**
+🕒 更新时间：**2025年06月25日 01:01:05（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Dangerous heat dome scorches millions from Midwest to Northeast as roads buckle, travel impacted - FOX Weather | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNeHJKODZvTWVNZUt0T0V6M1Q5d05ZRTBKQzlrOWF3YnllcHh3VzdOZy1wNmpYbkZDRzNBQ1BGc2ctdWN3S290XzNWRXdGRjdVQXg2OVVJQ3F1dEZWbVY1cV9jdlFnUHlzVmpZUDBPS2ZyRjg4dnJ3LXdxR182V1dxaHBqTkhpZzhqWExhTNIBkgFBVV95cUxOVm1jcFNiSXVmeEx3dFlDOHdiZl9jT2xlMnBvTDJmY2Z6N2xRc2JXeWVQOEJ5dDhaOGREYUp2SmZfZmk4clFSX0UtdGM3dk8tcGQyV25QYzRiSy1HM0tOX0xoa2tGXy00aHVYX1ZxQWtQWlhtWkpBcF9aMTVoQXJoZUM4aTNscTZtdmRMQ2owbl9VUQ?oc=5) |
 | After Iran uses missiles, US braces for cyberattacks - CNN | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE1LNTJDTFMyVEVnejI3UUkwVnAtb2xQQTJweDhCcFFpSktkWVBzZGlRNVVWMm9kVHBmamVCbmY4cXBFX05fRTUyazJXUm9VT3hBUzBXWTI4cWtPY1RreDVhRC1XWnZqc1g0cFFyVVBB0gFzQVVfeXFMTzJzbVRMaWhYdDhGc2k4dTI5UEZUVmxsT1Z4V01tQWRXaURqckJjYV9pWjlCWkExcjhXN1V0SDJfSkFjV0puSFQ2MDRyTEstYnhhMC15d3VoMUt6dFNyTGM2ZWlyamtCNVJQMHdOQ25zb3NWUQ?oc=5) |
 | New Yorkers vote in mayoral primary as poll shows Mamdani leading Cuomo - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPdl80a0U0cWcyUmVUU3hyRXk5SldqRWZUNENtZDVrODBvYzN1N2xWaUhGN0tzQ3hsTzE4bTQtcHVMVmZoZzhmSDV5VlM3Yl9TYTRaS0xuRVBnN25YanJ5UEJHU3FCREdKRlZMVzAzZ2FfVlJlUTc5cWpDeVFfQVRYSFNVdFFFUGxqQTdLSmswZ0o5d28?oc=5) |
-| Trump signals sanctions relief for China to buy Iran’s oil - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1WOEZfU294ajl6SU52amlVc0p6LVZMQldzSEZ0MXdLUnROUTcybFZTS2p3dXJPS2NuemFrMVdJcmVLR1QyZ0NiWkRtU0sxb1JqVFZ1NVVHbUtaZGZRSFoxWkZURHRSaVZfMzg0ZWdKQ0Y?oc=5) |
 | Was Trump’s Iran Attack Illegal? Presidential War Powers, Explained. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNejNKckRUeXc5c3N1bzJ2bTN4SUNpbFBwZlRkeUhXaENGbHNBTS1pQTNYaTVYckVwTG5YRDlFUG1BVGZ5SVBsOG1ZOWV4YloyUlN5dUhJSzR2TDVHXzZpLVItTERIbjVwN1VuU3N1UDR3OW9LOFZOeHN3ckNHUUx2MkhTd21oU0x0MVNCc21WRQ?oc=5) |
 | ‘Karen Read is innocent': Jury foreman speaks out for first time - NBC Boston | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOR2tvWDZkcnlvZ0ZKZVI2TFhHNmNsUFlBRFg4eVNSOUJmYnFjYTNSRTZIVXdrUE0tNnJVTXJvS21DZlJyQzBTY1FVVTZQLTFIS0FkamhCSXRyVm9LQUtKeEx5RTUwTHVHX2ZwdUZtTjlqaWs1WldIVDh0YWhNT05nQjU1X1JENUNvUXR4UDN5ckJCZzhQbl95ZUJ4VkRpN0hIaklIR3NEWTIzOXPSAbMBQVVfeXFMT2x1MF85TWF2UDVLNHJ5eVRYdVNpLTJ0LUtaWE83d1k2ZGg2cXBZUWJRUlBnNlJrbGZFaGRadTk0Zy1JREctQXJBRjFJbHAzQktxREZwcGNOY2pnY3FGZ0h6M3dma2Z3TFJlZmg4d3RJYnJwaXBpMV85U3dXVzAwMk5nSDBVTEFreHZhTFpfN2czUkdwYjRJcmlWMGI3NEdJeWtTRTlzVTd4X0dPdGt3dEtXNTQ?oc=5) |
 | Robert Garcia elected Oversight Committee ranking member in win for younger Democrats - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxObzREZVhhOFdKSVUzbTBCSDBJREh6NkFTUFdtUVZCVUhFT2xxS3dqd1B5ZjRrazZzdjFNcWM3WVdpM3ZubmRMZ1pRMXg3dXVTRWp4b3Ftd181b05SeEVGeEQyWFFGTkZoZmVqaE9XTnNfSnVpS2w0TVY4NUlUMElyT281WUJRUHo4b1E?oc=5) |
+| Trump takes Middle East ceasefire to trade war strategy - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOVERKamo1N2hNT3BJaEo0NWEtVEpod2JhekhuMy1FZVI4RTJDSm1nX1lSUFF5aTFZeGc3dkNTOXIzQ3lZa3pmTExtbkVrZ2t4ZHZhZWZwbzZRSEdZMmMzUDlmdzFRUW5vRnRUdV9sYThzMG8yX0xCemJudjhORjJ2ZktXaTNKUlNENkpGaWx4RjFpdzBFamdDRzQxTmIyRUhwQmV3ZVZyeWhCdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
