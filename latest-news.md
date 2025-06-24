@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月24日 13:52:09（北京时间）**
+🕒 更新时间：**2025年06月24日 14:01:45（北京时间）**
 
 ---
 
@@ -12,12 +12,12 @@
 | What we know about Iran's attack on US base in Qatar | [阅读全文](https://www.bbc.com/news/articles/cdjxdgjpd48o) |
 | Did Trump have the legal authority to strike Iran? | [阅读全文](https://www.bbc.com/news/articles/c4gkw04yze1o) |
 | What is the Strait of Hormuz and why does it matter? | [阅读全文](https://www.bbc.com/news/articles/c78n6p09pzno) |
-| Talk of regime change resonates with Iranians fleeing across border | [阅读全文](https://www.bbc.com/news/articles/cy9xl4nrq8wo) |
 | Labour MPs mount major bid to block benefits changes | [阅读全文](https://www.bbc.com/news/articles/c8d6947ej5ro) |
 | UK vows to spend 5% of GDP on national security by 2035 | [阅读全文](https://www.bbc.com/news/articles/c07dk90d94vo) |
 | More pets being put down due to rising vet bills, BBC told | [阅读全文](https://www.bbc.com/news/articles/ce9xjmz70m5o) |
 | Queen Elizabeth memorial to include Prince Philip | [阅读全文](https://www.bbc.com/news/articles/cy8g98zxgg6o) |
 | Wreck of $30m yacht which sank and killed seven lifted from seabed in Sicily | [阅读全文](https://www.bbc.com/news/articles/crrq0w8evnjo) |
+| At-home cervical screening tests offered in England | [阅读全文](https://www.bbc.com/news/articles/czxe8g98vq8o) |
 
 ## 📰 Google News
 
