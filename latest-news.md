@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月24日 17:26:58（北京时间）**
+🕒 更新时间：**2025年06月24日 17:39:12（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Central Park hits temp last seen this time of year in 1888 as heat wave hits eastern US - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPeWVpUHhhd3A5bEtnTjhJWk56eEt3VW5iTjhNeFV6dU1xQjFtUGNrMUdQN0lXdnlxSno0YWl1TUlDVFJOYWFrdW1DQ1hqRzV0Z19kV0ZwSXpQNTVwSkx4N0VHdXh3YldvMTMwNEVHTjgzaFYtQU9rZnI0VTN3ZzJyStIBhgFBVV95cUxOakZNMV81NExDc0VXdUZoSHpmOFZMSFVNeHZNM005UE1Kd0lRVVhWTUllRFJ4d214Z1RLMk41V2Q0eVhIRnhzV1VENk0tbkZoSzVSLWs2Tl9vTDdackcwUmtHTTMtcHpGV3FTbHdLQTA2Vjk2UTdsTnpWUjNqLU15ejNwN1BRQQ?oc=5) |
 | Tensions rise as Patrick slams Abbott’s veto of THC ban: ‘Legalizes marijuana in Texas’ - KHOU | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPdkIxMzlFMDZtYWhZWFJTTGFFdTd5RVRlbElmTlNXT0pPc2VINkdfRVRoTWwzQkY0Z1U2WXhrYkw0Y0N1WmE4STBjaEYxWjBDOTh2SDF1YnA1NXZIUHlzdVNVMWFJVW1Ud2ZlQ09XNDByaFlxQXJrOWlyU3hncFZBR2c1MlcxWTVUajJPZXViNGhNQ3BTOEN6ckFNUHNPS1Nxb2t4Sk9lR1M2OUVLWEdVVTIxc1JCcHJNTWxr?oc=5) |
 | Florida Builds ‘Alligator Alcatraz’ Detention Center for Migrants in Everglades - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPbWppUVd6cFN4VE5jQmVQZXFVSEl3NEFTTUxtOWRBTlR6TEExM0ZSdzh5aWhPOFFISkFwZmF0Zm1JdTVES0VPUnpYZkplQ3FFUUZGN204OTRIZmtPb1BvcTNNVWgydDIwUy1pRGhXWng2RS15WlRGLTMyb0NFR0wzV3FiWW5OMUlJUjQ1Sk5mbVVjVjFzSi1XbVhjSnlVM3hxYjkxQ2xn?oc=5) |
+| Five people killed after Iranian missile crashes in Israel's South - The Jerusalem Post | [阅读全文](https://news.google.com/rss/articles/CBMiXEFVX3lxTE9IWFVHZmNPcC1QY2dqT2pIRDR4UEVPbjU4YlNDTld5Q1pOTDNZa0xpRF9WTnBtUFpfRXlvVWM1N00tc2lFeFRya010WXNaLWk3VVpWSkpPZG0wbUZY?oc=5) |
 | Europe tiptoes through NATO summit as Trump lands and Iran looms - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNNW9NU18wVjhVcUkxUTNfdWFqMGZobTJ5SHItWGRvNDVXeG5GdXlWeWxiQWI3Zjg0RXJHb3Myc1FhaVB2UXNwcmRsU3AtQmNSYjBtRS1VVWltbFR5V3JsSzVoeHM3eXhyb1RjS3ZfU3JmUmJyem1YUVRtcDhGMGJadFVpZldxVUtP?oc=5) |
-| Images and eyewitness accounts from Tehran's Evin Prison after an Israeli strike - France 24 | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPa1hrb1V6YWlXRDAwNWJ5QlRCSnVPdDFuZk5qeGxwT0p4cjctNnFfeHl2eFNmVXBoOHNjNy1rUkl4ZjdTSHNHU1czVFVpQUlPTUd4VElza183RE16Ykc0NGlHdGtoU1RmWWttUEFCMnlCQzJMazdpamhWWkdRMVQwaWgwdUZ1ck9QQ00yNmk1NnhMb0N1ZG11M2d1Mi1nWlpGbGNKeDBONDdNeVp2REE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
