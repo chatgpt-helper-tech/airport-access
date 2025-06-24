@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月24日 18:53:10（北京时间）**
+🕒 更新时间：**2025年06月24日 19:01:15（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Stock futures rise after Trump says Iran-Israel ceasefire is in effect: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9GU3lyc2NhZG1LeVR3N3FNWDVheGtidGtSMm1QdGlDcVlVZ0YtcWdQY2lFRS0wRlktQXJSeGNqOWpubEJFdDdFa1Z6R3UzWURnSHlWaS1pRHZRV3dZbTU3T0VEZFQ1SHBaOVdxU09WMjlfWjF6U01Z0gF8QVVfeXFMTXMzMDdXYXg0MWxHblpZdHJTT01tNlFpMkYtTnVMajliZlR6VU8tSE5vZS1DTDdOTlR1UXplNmVjS3VsSGpyVXFnQmllSDNPVU1jaVJLTFVsQ1ZWeHBBaDJZSHBSdF9oSVFzTGFWRGdLZU5XWTJQdWlLM1dtQg?oc=5) |
-| Trump calls Iran’s retaliatory strike ‘very weak,’ says country gave ‘early notice’ of attack - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQM0JQUFNNbGhiOEE2VHlQeHpEUjA2aWYxTnNDRVgxb3BacmdiUVZ4OXF5d2NUMVE0b2ptQTBHNXEtVFp6bkd5RXJ2MmpaOEhfMFByUHF4X1YwcDJ2QllBSk8tcHBqMy1STzRKb3hjVnY4eTlhaU02bk5MZk9XRFhaWTdLa2ZkSkNldXctaW8yNTExbFFCMXY0TkxySlIwZzZ4Tnlid2FMLVFIUzFtRVB4VkdsYS1ybjlvTFJLb0cwOTNuOUHSAcgBQVVfeXFMTzFNWHpGbUgyLUZqaFNaREFJRVJvY250TFluRDYyZFpvbTQyV19Bd0todHR2VkJlM3VwWEdNT1ZTSDZjSDVQdTZodjlDdWhwQWtodkRabWdLSmxmVHE3MV96OUwtMWRkSXRNR3hybnktTl9GNURqMWtwTzhqelhHZWM5M1JNSnlTU3lJdjZpZWpoQ2dRUHZHQ29uMzBDcVdkbW51eXdrT29abHg0d2NvVVA4dXVQeVM2NjdJZmFtdWRubnRGVEdkNVU?oc=5) |
 | Supreme Court for now allows Trump to deport migrants to ‘third countries’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQc0lIWjBMSi00TTF3bmxrOXdua0x6S3BzMGJjLWltdWNtMUw1Y1phREZ3bkZtVXgtbUlzeWRGSEk5UGtrSXhMQzI2VjN1NVVZRkRPMXMtSk5DMllDYXZMNEFWbklfT3p0TmdvZnNkT1pua3htc3ZQN0dqT0FZRDBGcGtvVDdjZk1CY2lHZmcyQUluYjJpd2U1dGF1d09QWGZqcHNwN2VJOXFYS1ZHeFJR?oc=5) |
+| 12 House Democratic veterans announce support for war powers resolution - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNYldRR29QSThYU3o0X3FJM1d0WXc3WTVMc1hVNmRISTlVZm5DV2syck1BdzRCSDdRRExCZGxiWE9pMHdmeUtuZ05ZWWV6Zkhoaldqc3FCWDJvUzRwSXFDSWdwQ3ZLbmp6Mmc5Z1pkVGItV1NMS2tPMlJrRHJ4dWx2RHVZZFFRUzRnWjZIVWM5dXptQ3PSAZgBQVVfeXFMTjFwN000MUo1MUYtN3BqOXlON0hOVG9SMmxObVZ6b01XdXMzLWtJM0RLSE9id2tCNWJubXotVnBYWkxxR2dYUWFzT24tVmVnQjhORnhBNnhmWTdrWUN1T3VBVjRnUVNoajFNNXZuRHYzWUFVNm5wNzRtQllEcmhWZGJFWHM2Y25kcHdJenJmckJKTk9LUkVSWko?oc=5) |
 | Some candidates focus on blocking Cuomo’s path a day before NYC’s mayoral primary - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxON05LRnM2bV82Nkc0bTRaakE1VExrZ1lMQW9HSTZZQ2xEclNwU1ptS0VQWEdzNUtYQkNIams1VDR0SEpIdEktdHVZenp3bFU5a3hKOExkZFVpWE1xWG15bGxVTHVkSlJxdWhfbElfajBkRF9JYkhjcExhc1ZLRjRSLXhLZTFqRVJfRDhmR3dCT1ZSbkpD?oc=5) |
 | Turkey sandwiches and stealth: Preparing for B-2 bomber missions - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPMU5WTUZJOTFrVGFpZ3hITUJNZGs1YnhlLTdsZ1lEVzhaS21TRl83RWFqWnEwSnJLWS10M3cyYllwWFV3bWtpRnlQY0xVZUs3LWdGMndqQU5EMDNIMDYwMEp2TkhqMnNRZ1ZDWFZvdmZPaC1XUzFHUUhYWHVyOU40Y0Ywc2c3Q2ZabFhlaUljNkxtYzYtRWZBTVI3S2g1eHh1dGJBT0VZZlg0S0pDMHVQbkNzUVdOaGV3dWc?oc=5) |
 | Lake Tahoe: 'The water was just screaming,' says witness of boat tragedy that killed eight - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE93RDRWNVBqUW5nYVV5OWY2djk4MFF5bXROSEl1M2lTS29VZllWS3c2MnJRT0FjamtrNk1XR1JBMWk5b285bmFidndIcUpYcXF1QVdaRjNBa3BOQdIBX0FVX3lxTFBBUUdvYVJqUHAtOUp6cGIwTU1NTFl5QklZbHA5VVNId0ZrOEpUdFZBaVpRelJXQlFrUmpxLUVJb0dIT0VLbzdCSFRYQ2NVeTYwaXRnRFpadnVzNXpua1pj?oc=5) |
