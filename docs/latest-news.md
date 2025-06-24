@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月25日 07:01:49（北京时间）**
+🕒 更新时间：**2025年06月25日 07:14:22（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | Keir Starmer vows to press on with welfare cuts as rebellion grows | [阅读全文](https://www.bbc.com/news/articles/c04dn3v616yo) |
 | Russian naval ship 'disguised' itself while passing through English Channel | [阅读全文](https://www.bbc.com/news/articles/c62gq6y62d1o) |
 | 'A slap in the face' - Asos bans shoppers for making too many returns | [阅读全文](https://www.bbc.com/news/articles/cnvmj4e81nzo) |
-| UK must prepare for war scenario, government warns | [阅读全文](https://www.bbc.com/news/articles/cpqnlxr43zdo) |
+| This burger was made in a lab from cow cells… Should it really be served in restaurants? | [阅读全文](https://www.bbc.com/news/articles/cgrxnlpln24o) |
 | Minister to meet food delivery firms over reports of illegal workers | [阅读全文](https://www.bbc.com/news/articles/cj615p5y5kko) |
 | UN condemns Gaza aid 'death trap' as dozens reported killed by Israeli fire | [阅读全文](https://www.bbc.com/news/articles/c15wz2ee05do) |
 | Man accused of hiring £1,500 'hitman' to kill wife | [阅读全文](https://www.bbc.com/news/articles/cg5zym26v10o) |
