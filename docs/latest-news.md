@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月24日 15:01:12（北京时间）**
+🕒 更新时间：**2025年06月24日 15:13:16（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Turkey sandwiches and stealth: Preparing for B-2 bomber missions - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPMU5WTUZJOTFrVGFpZ3hITUJNZGs1YnhlLTdsZ1lEVzhaS21TRl83RWFqWnEwSnJLWS10M3cyYllwWFV3bWtpRnlQY0xVZUs3LWdGMndqQU5EMDNIMDYwMEp2TkhqMnNRZ1ZDWFZvdmZPaC1XUzFHUUhYWHVyOU40Y0Ywc2c3Q2ZabFhlaUljNkxtYzYtRWZBTVI3S2g1eHh1dGJBT0VZZlg0S0pDMHVQbkNzUVdOaGV3dWc?oc=5) |
 | Satellite images show extent of US bombing damage to Iran nuclear sites - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPbnFVNDVRVk81ZDBNOW93UTVpYWtUeVpxQkU5MDZFY1hGMjN3bkR5d2tXSFcySkdIa3pTWWlOdnh4WDI5cGFWcGRYSWgybkN1YmZ3clVjXzZrREZBeHMwNDk5akFBeWVudGYxYWtyQ2g5bU82ZGRmb0UyZFVNaWVLQ05feWVYUDJnTWRMbkNNSkt4U0JjeTFuOGduanRWenlfMGtlOThaUmJXZkHSAbABQVVfeXFMTmQ2cnkxNjZzY0dxTUZhZG82b0hVNks2M3N2RXQzbm5MeE1NXzBHOTh2bHJrTmxqcTRrdnduZlFUZkRaVTJiaTdacVRkNFBVcEg2SmxvOGtBa0FXUy1tS0VValVKSF95azBYVkR6LUlCU2E1T1dIU0Z3WTVaTXhLNUJXOHg2dlhpa0tBdjVhUTB1NEZlTGYxakRCeGtMY2NqLWN4M1JfbXdVWUxob1BabWg?oc=5) |
 | Lt. Gov. Patrick rips Gov. Abbott for vetoing THC ban, digs in against calls for regulation - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQdFZBRTdKalkxeFNCNEg3alA0QUUxQ1htelFyemhwc0o2aUZ5dDBsTnppSUlZbFVxMzlwUTRhZXJIa3VHOF9CYmdxaEoyVWg5cVpYRHc3dndJdXhrVG1ud1AwcjNEX2IyaHh5eGRFd093LXFoY09YU1lIX3k1bFRqcWREZjdkbWowNGNxa1lYU1ZPZw?oc=5) |
-| Millions at risk amid widespread heat wave - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE80MEVRNzRsSmJTSC10M29hZ0FTaGxtMEUxRzVWdk1nanBwdGI5Z19Bb0N6clFhVTlEdjQ3UWVTUnhjVDNicWtZU2N0Y2NGVFZtVXpHdw?oc=5) |
-| Eight dead after boat capsizes in Lake Tahoe - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQRE5pYmZMSFk0N2pSSlFTRFFrZV85QXNtUFJfYXBFWTFfS2l1UXVaMHVWT2xLUG1pRkl0Y0VycE5SWmF2R3NxSzdkSVZ1Q2V6dTNkZjRudDcxUDRTaHNWTkt5bU1GVlFPM2FXWE5lU2ZYMUM4VklXbDVSaGRqdUZzSDhidDlZX0hBQllocEl3WFRGeVXSAVZBVV95cUxQUTNRdEZLSEhkVXA2ZVdaOEI0UDJZVnp2U0lhS21OSC1VWlg2M2FYOHQ2a28zd0dzeWhnYTcxSEUxc0hCdmprSHlubTZHTXpocTFTcHhiQQ?oc=5) |
-| Cuomo and Mamdani Push to Raise Turnout in ‘Jump Ball’ Mayor’s Race - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOMTNrQ25IMkVSRVNxNE1yNmhRZGY4NFR6U1hxVTBmR2FDckxJc19OV0Zza1Iza0NvUlB4cHlUZUxCS3VLNkJXbHA4MFNCLUVGOUNqT1ZTbHBlMDU2UHdMcEtxeDZ0a1R5bzMyVnNSbmU1NThqNG1QVi1JT0NibHdYU3Nn?oc=5) |
-| Hakeem Jeffries Said Trump’s Attack on Iran Was Unconstitutional. What’s He Going to Do About It? - The Intercept | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNU1cyY3FOOEc0UmVvbG1JR1AtY0RoVVdoSlBjVElsNUJHRDNpM1QzWDQ4Xzc3bUVHR0VPZjNYMjR5UDBkVkRXMEVqbmpSbzNKM25zbG9aQ2pHY0NmSVBBWjZQSDZYRkh3S1VScm4zYmhMNkdMZjhxRDJBdm1BVnYzclZsVQ?oc=5) |
+| Some candidates focus on blocking Cuomo’s path a day before NYC’s mayoral primary - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxON05LRnM2bV82Nkc0bTRaakE1VExrZ1lMQW9HSTZZQ2xEclNwU1ptS0VQWEdzNUtYQkNIams1VDR0SEpIdEktdHVZenp3bFU5a3hKOExkZFVpWE1xWG15bGxVTHVkSlJxdWhfbElfajBkRF9JYkhjcExhc1ZLRjRSLXhLZTFqRVJfRDhmR3dCT1ZSbkpD?oc=5) |
+| Former astronaut Terry Virts launches Democratic bid for U.S. Senate in Texas - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPRTlMTlMzMzFQVU9PY3NMek5vNGYzUEd3VlZTcjNyRFlYNWo2Qkc3U1RZY3hsTnc5TjQ3bU4td05BSDlGdHRsNmhQNEM2YkVncGQtdUFseXFRYXlvS3IzME9hN1ktbTJ6SHpvdmRrbWRla1pTanltMlU4MUM1dldicm9qTzlsNUNaLVhXb2o4ckdNenFZbFVvdQ?oc=5) |
+| Lake Tahoe: 'The water was just screaming,' says witness of boat tragedy that killed eight - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE93RDRWNVBqUW5nYVV5OWY2djk4MFF5bXROSEl1M2lTS29VZllWS3c2MnJRT0FjamtrNk1XR1JBMWk5b285bmFidndIcUpYcXF1QVdaRjNBa3BOQdIBX0FVX3lxTFBBUUdvYVJqUHAtOUp6cGIwTU1NTFl5QklZbHA5VVNId0ZrOEpUdFZBaVpRelJXQlFrUmpxLUVJb0dIT0VLbzdCSFRYQ2NVeTYwaXRnRFpadnVzNXpua1pj?oc=5) |
+| CWG Live updates: Oppressive overnight lows as extreme heat persists into midweek - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPWHNYS0hRVE5lY0RiLTVmNFdIN3VQZERJQXJkTzkxejBMS1VVVkxKRDBzS1lwTjVqY0tYWFJWZmlXY2prV0dXemhSVi1ZNzdmVlNfQThpNHVLU25zaDNhbW1MaUhYa1FaMk9DSjNLM0R3SHN1SjNEdkpsdFMybzlQUXhuYTRDNExNYmVqOVRJaG0yYTc0cU5F?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
