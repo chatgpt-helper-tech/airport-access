@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月24日 19:14:51（北京时间）**
+🕒 更新时间：**2025年06月24日 19:27:57（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | More pets being put down due to rising vet bills, BBC told | [阅读全文](https://www.bbc.com/news/articles/ce9xjmz70m5o) |
 | Starmer vows to spend 5% of GDP on national security by 2035 | [阅读全文](https://www.bbc.com/news/articles/c07dk90d94vo) |
 | Google may be forced to link to rival search platforms in the UK | [阅读全文](https://www.bbc.com/news/articles/cy4ym77rkgeo) |
-| Queen Elizabeth memorial to include bridge inspired by her tiara | [阅读全文](https://www.bbc.com/news/articles/cy8g98zxgg6o) |
 | 'I applied for 647 jobs after uni until I got one' | [阅读全文](https://www.bbc.com/news/articles/clygj739dmvo) |
+| Bears raid honey store after enclosure escape sparks wildlife park evacuation | [阅读全文](https://www.bbc.com/news/articles/cgrxn4x7yx2o) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | Texas governor vetoes ban on intoxicating THC products - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNdGVZZ1k2cXMyejRYOTFBdU1IaFRrS2dxOFAtZzVFUkhQM1dyUlRvdHN5TnZEcHZDWGkyNENQZW1tc0tLN1lvUjZXbFhPcTFCM2dDdGZvWWJJWWxDYUpIZm9oVVBLcFlvMzFaaEZtNG03VU5kZHFjVHlMVlpJYlREMEdEcw?oc=5) |
 | Judge Issues Preliminary Injunction Blocking Trump’s Entry Ban on International Harvard Students - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPc2haVzdMMWVjdTNYd2FBSF9sZVkyOWNmLU12NFZzZDV5NFE3TEgtZkpDV1lVdlpWbktvakFhRXcyRktKVHhORVhWbjdhamdZVUItLTFkLWpOM0pBcHM1c2Voa2NhRDVubTFKaHB0and6V0ZPU2E0Uzl5QUFhcFZRV2w3Z04xZExHSnRyVEEwT2w?oc=5) |
 | Lake Tahoe: 'The water was just screaming,' says witness of boat tragedy that killed eight - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE93RDRWNVBqUW5nYVV5OWY2djk4MFF5bXROSEl1M2lTS29VZllWS3c2MnJRT0FjamtrNk1XR1JBMWk5b285bmFidndIcUpYcXF1QVdaRjNBa3BOQdIBX0FVX3lxTFBBUUdvYVJqUHAtOUp6cGIwTU1NTFl5QklZbHA5VVNId0ZrOEpUdFZBaVpRelJXQlFrUmpxLUVJb0dIT0VLbzdCSFRYQ2NVeTYwaXRnRFpadnVzNXpua1pj?oc=5) |
-| Judge’s Ruling Casts Doubt on Trump Administration’s Claims Against Migrant - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQMkNjUDFfSGdULUQyb0gwY2ZEanlRdnpVanlBdmxVVFdrWDhZQkVrOHl6T1ROVHhvXzBZMWVZbWF1ZW1TOTY1eEIxS2FVUUtpSTFzT3JQdFRoZHRYcTFWeC04VUR4TnpsN1JjSTVNTERvVll2aTd0cW5rZ21CZlhvc0pURQ?oc=5) |
+| Jury orders man to pay $500K for assaulting police officer who killed himself after Capitol riot - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQelRWTnlXcHFXZjhvVXdIUGNxYmVFZGNiMUpwVDN4T09ydFFKekZLSWZUeTR4YlI3OV8yLXJVaUJtLXFpamlyWXhiSkQ5TnZCTmE3SUsxMlltYUM2bGt3dmo3ZWZMNXY1MVJRSzRZTWxhVWJET0VXbkRDSHNuT3ZPUTgwemF1MHNKamRrWl8tSXlPTEYtaFc2RUJBbmp4MTJ3Nkc4M1VXVWM3Zw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
