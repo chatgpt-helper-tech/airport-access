@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月24日 13:27:32（北京时间）**
+🕒 更新时间：**2025年06月24日 13:40:39（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Israel-Iran latest: Donald Trump says Israel and Iran have agreed ceasefire - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9vdFRKVmU4VnpacWZuTzNtaEtYNV9MLS1YbHpiRGxVb090Wmg3YVhTNm0yLTc0RGlmN0RSRTFrY0RFaEd1X0U5ZWVtYS1ULTNWVWIxTThQUmdfbmlwZUZucUFfV1h2bmFtTDVnR2o4YWw?oc=5) |
 | Supreme Court lifts limits on Trump deporting migrants to countries not their own - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxNVjRTNmRRNURMc01CWmFHX3pMUk1VZXA3SzZ0Y2tNVmVaTVhmcW9Lc2U2NGxsWkFFZ01TZ1JKU3dCZTJPYnZvOGJhTG9TT1FKdThTRjMzYklfUl9CYW01SEk5MlZndDN2VW5RbURiLWtaVnAzMlRhZjlmdmZ6UkJCS05yM2RyWXFQSG14M2lYOFlWVUpmUjBSNWdyZng3Yk5FRmo2bVpKNVVFcXlPREN2eVd2NXdXSWFGdW5WQ0dUeEhpc1k?oc=5) |
-| Was Trump’s Iran Attack Illegal? Presidential War Powers, Explained. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNejNKckRUeXc5c3N1bzJ2bTN4SUNpbFBwZlRkeUhXaENGbHNBTS1pQTNYaTVYckVwTG5YRDlFUG1BVGZ5SVBsOG1ZOWV4YloyUlN5dUhJSzR2TDVHXzZpLVItTERIbjVwN1VuU3N1UDR3OW9LOFZOeHN3ckNHUUx2MkhTd21oU0x0MVNCc21WRQ?oc=5) |
+| No casualties reported after Iran missile attack on U.S. base in Qatar - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE8wNjdNUlpiS1o3UFp3RVNQd1JxUUU5Znh2aHNWMWNPNGtCSkdaS3hmTU45SlhlNzRaOWpwbG90LUVlT18wZVlWT0hLLTZRNVp2aFNtand0VWJwSWVfdGVLcXh1c0RTZVFocXNNSjBiZk5JR3BH?oc=5) |
 | 12 House Democratic veterans announce support for war powers resolution - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNYldRR29QSThYU3o0X3FJM1d0WXc3WTVMc1hVNmRISTlVZm5DV2syck1BdzRCSDdRRExCZGxiWE9pMHdmeUtuZ05ZWWV6Zkhoaldqc3FCWDJvUzRwSXFDSWdwQ3ZLbmp6Mmc5Z1pkVGItV1NMS2tPMlJrRHJ4dWx2RHVZZFFRUzRnWjZIVWM5dXptQ3PSAZgBQVVfeXFMTjFwN000MUo1MUYtN3BqOXlON0hOVG9SMmxObVZ6b01XdXMzLWtJM0RLSE9id2tCNWJubXotVnBYWkxxR2dYUWFzT24tVmVnQjhORnhBNnhmWTdrWUN1T3VBVjRnUVNoajFNNXZuRHYzWUFVNm5wNzRtQllEcmhWZGJFWHM2Y25kcHdJenJmckJKTk9LUkVSWko?oc=5) |
 | Former B-2 pilot shares details behind Iran nuclear facility strikes - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNd21fenJ5aEcxWnltVDdpZmdvcG0zMUkzd3ZTR196VW4tVVRFM01xTklGbkdKWS1mVUVIajRqaEN0WGtoUHBRUzhyYjlJa3lyY25RS2dPN0xjX0xKSzB0QTFxbWhrV05KQ1dLckVTQUp5ZGdJQkZzMEE1QjJURzY3S0hDM1o4c1BKRS1aNk10Y2xQQkFHUTZfcTNzUlLSAaIBQVVfeXFMTndSNU1XTk1WcEpnU0Zac0hYajRZNzRpbTNzeXRZQU01X0luRFoydW1NeHJiNWhNRnZJWDBnc3RieVR1aE9POF8yeVoyNVM1QjBHd1BkblBsWUFISXhUUndSanl5cFUyUUI0OGVnemZNbjhwM0VNYzU3SVVOd1IxVEJLdTlQbGpFU21rQlk3RFg1MDF4eGg0bUhLOU9uc3VNekx3?oc=5) |
 | Some candidates focus on blocking Cuomo’s path a day before NYC’s mayoral primary - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxON05LRnM2bV82Nkc0bTRaakE1VExrZ1lMQW9HSTZZQ2xEclNwU1ptS0VQWEdzNUtYQkNIams1VDR0SEpIdEktdHVZenp3bFU5a3hKOExkZFVpWE1xWG15bGxVTHVkSlJxdWhfbElfajBkRF9JYkhjcExhc1ZLRjRSLXhLZTFqRVJfRDhmR3dCT1ZSbkpD?oc=5) |
