@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月25日 06:40:57（北京时间）**
+🕒 更新时间：**2025年06月25日 06:52:16（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | S.F. DoorDash executive and parents among 8 victims killed in Lake Tahoe boat accident - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOZkEtaUpMRGs3Q2ZsWS1QZUlYRHNnRHIxWWNpTFVUY19XSXViaklTZElJaU1ZSE1fN0lCZ3VmU3lzTGRDcHI4clBWOXF0R3Yxb1ZLRzlBeWR0WTJpN1JFdHotNWcwZnBwN2NiSUU3MldoUFZtVzAwd0xjZVFZWEtGemZ0RGtEMEtpbFdpQ0pyUENDXzRpQS1TbTZsRDg2WTEwUTZmYmZ3?oc=5) |
 | Trump heads to NATO, minimizes time as he shrugs off global meetings - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE9JRDR5X3R2Q0xFTm1DQ3FYZWh3dGZVX0RSczE4MVpoTzBVM2hUODM2TTRvUFBlNDdwQ1RFQWNrVTBudjZ6dTU0dzg4dWpqMUdXZTJVakRwc0Nkak94T25qV0FKa1hlZU5WU3M5S25RZWlhVjVQUkdUa193?oc=5) |
 | NYC Mayoral Primary Live Updates: Polls Are Open in Tight Race Between Cuomo and Mamdani - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPVlQzWHZkZ0N3SVA3aHpSbUVwOHVkaUdzZl9jY015dGh2SVdWQWFLbm5IdEhkNzAtLUZfVGNfaGNHTmdaX0hQRWN4RnU3LVV4N01qUWNHQVpLbG9naHo1NmZ0NGs2RG1Va0NfalE2THROV2wxTWRHQ3hubzRaZ21vczhzM2ZiWmRfZG9VVElicw?oc=5) |
-| FBI plans to shift agents from immigration enforcement to counterterrorism: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxON1hjSkJaandBWlFFdVZLUHJiZXNSYUxpcDhuVmJFbnh2UTlqYl9laHkxOU9Lc2tJOXFRcy03dUM1OVNBSmhScUtac0hkNGUxQ3VqeVBoLXU2dHZaZjdfTEY3dVJiaVI0bkJFUjlkUGFNNmRRUThaVDdwcjVOWDRvVkVoLXBKUUNSU21fVDMxbDF4cUpEU3czT240TVBNbGRGOGdFMktocVdEbUZjcmc0NjN1NTdtZDTSAbwBQVVfeXFMUGhPWXp6bjJQYUhVZVJ5YjQ1RDEtMS1jRUdBYmFUWmJMbUh4SDd4N3d1aVZnZ25ra0dRa1lWUGMweDA4enc4SVVzTTJyczJnOUhrYnNST0s1N0xSb1JFc3kyM2JHSm5NV1gwXzF6WnNKdFFvR0syTWxOdGs1TTFBdjZOUWlDX1pBNHZqRHpRc3hpTlhaVHlkREdYLXI5d0ROY1cyTksxTXhxVzNjTGYwZVFrREt3MHNCSFU0LTg?oc=5) |
-| Trump takes Middle East ceasefire to trade war strategy - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOVERKamo1N2hNT3BJaEo0NWEtVEpod2JhekhuMy1FZVI4RTJDSm1nX1lSUFF5aTFZeGc3dkNTOXIzQ3lZa3pmTExtbkVrZ2t4ZHZhZWZwbzZRSEdZMmMzUDlmdzFRUW5vRnRUdV9sYThzMG8yX0xCemJudjhORjJ2ZktXaTNKUlNENkpGaWx4RjFpdzBFamdDRzQxTmIyRUhwQmV3ZVZyeWhCdw?oc=5) |
 | As heat peaks for most of East, these cities are set to hit 100 degrees - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOZmZLTVd1bENRSDRIWWNtakdQY0poUHQtbC1sMjlQOWdBWklZdkJId3N4ekVITmw1Nm1LeVB3cVV3aUdndHZUYUkxVTY0dkRnVnVocldOa2tEa3J4VDhWUG1pNG5ncDlORGZtN09NSEZISEpZajdIajZkZ0JBcDBXT21YTFI0SjctaE0tQ2ZveElXNG9v?oc=5) |
+| FBI plans to shift agents from immigration enforcement to counterterrorism: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxON1hjSkJaandBWlFFdVZLUHJiZXNSYUxpcDhuVmJFbnh2UTlqYl9laHkxOU9Lc2tJOXFRcy03dUM1OVNBSmhScUtac0hkNGUxQ3VqeVBoLXU2dHZaZjdfTEY3dVJiaVI0bkJFUjlkUGFNNmRRUThaVDdwcjVOWDRvVkVoLXBKUUNSU21fVDMxbDF4cUpEU3czT240TVBNbGRGOGdFMktocVdEbUZjcmc0NjN1NTdtZDTSAbwBQVVfeXFMUGhPWXp6bjJQYUhVZVJ5YjQ1RDEtMS1jRUdBYmFUWmJMbUh4SDd4N3d1aVZnZ25ra0dRa1lWUGMweDA4enc4SVVzTTJyczJnOUhrYnNST0s1N0xSb1JFc3kyM2JHSm5NV1gwXzF6WnNKdFFvR0syTWxOdGs1TTFBdjZOUWlDX1pBNHZqRHpRc3hpTlhaVHlkREdYLXI5d0ROY1cyTksxTXhxVzNjTGYwZVFrREt3MHNCSFU0LTg?oc=5) |
+| Trump allies taking on Thomas Massie after Kentucky Republican’s recent opposition to the president - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1rd25Hd3ljSGFuYzJWdW5FazRUVUV5b0lUMjFVdkNUamNtSC1vSGQwRjAyc1llRGhtc3B0VVlZd0xId00wWmNhSlNSUzJxT1dnNzlYNHFWUnZXSW10TzFDNWh2NFU1ZzRGUk8tUWg3Qm9mWHFsUWtFYUp6YUN4TEnSAYQBQVVfeXFMTWEyVnBlS2w3ODJNX1lZMkFYVkp3akhoTnhIYVhyUzA1NE91SE0ySElXa3hUN0xQNjF3ZXgzd1ZKQ0lEczBudkFhaEhIS0x0S05IeGhTYnRaTVJ1X3hub3JQTDZuVGI2YUh3T1FDblRKb3lwXzRZNVRjVkE4WTJBckFLamJY?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
