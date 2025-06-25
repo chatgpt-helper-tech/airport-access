@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月25日 13:26:46（北京时间）**
+🕒 更新时间：**2025年06月25日 13:39:16（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | How B-2 Bombers Can Fly to Iran and Back - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE5DQjlrYlBLRmduQXNaRWNVSFgwWUR3ajZDT0dmSXR2NWkxZm40WEt3dGkxRXktdERhZEtZNXNraHVnN0M5Q0J6d1JoQkh2dGtBb2Jqb0ZXX2lwT2JIbldNMWFkczVMaWp5eGpYWGhYUWk4dHpu?oc=5) |
 | FBI Abandons Miller’s Migrant Round-Up in Humiliating Blow - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQU3J5d0MwZllremtsU3N0N21HZnhLN3FNMU9Xb1Y0cTVkUm9teUxRdDRZSjE3eVVKUHNsZGVhRkUwdHFXQ2JaSEU0LXlrWXhoaG5md2ZEeFAxemo3b3RZUlNCVGxlNEM3Wm5mZlFjZjJ4cEw0TktzY1ZJQk1pUTNleWp3UF8yRnFSX0U1WHpSQjRPUzEwYnl6R0V5bnY?oc=5) |
 | This is what could happen next after an Israel-Iran ceasefire - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNaG4xZlpkRjRsZGpCTU1RSHlsdDh5YlhSVG05VUEyMkE5ak10WVMzSDZwX3NNNDJOdUxnckg5T1lyY2l0TG03d2R5cGVpbWoxX3h2MDFSck5tc1EyWVFRbkxSZ08wdFVmTHItRzJJSkE5bzc2VkhmeGxET19MWFVQaEs1cUtxVTZxZ3ladTU4ZXZTSnl0Y0NqNm1vZFJlbU1wdTRF?oc=5) |
-| Dangerous heat wave: Several East Coast cities break June heat records - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQb2xHTFlrOU83dlIwSlZyUmJwM01MTC1CMUZFSmV4eHFpREdqRHB6Q1ZSa1VMdlY5RTFUYzZOX0tTNjc1R1Y1anhtdjFTeW1TeEUtNVlMc3RKcEl4ME1FaV9tMVFyN0FHSURTMjJzaHd1RklWQmM5Z3ZtYkxoOHZVdElETDZ1OFBYUVNlak8wTXVubHV4bU9jSWYwcHptOG150gGmAUFVX3lxTE5wLURqLUVENkdGa3k2MFNQZHp6X2c5Q0pvS3JKdmRsS2xlUFpWY3F1Z0JDbDVUNkxKUERDVEp6NnoyNU56NEJhZjJFUnBtX0JkU1c1eVFJTThBUklOUVkzOGkyS3gza2g0bFNvZ2RnMW5rRWlCTTYwelRjN0w0LWZPOS1WODdjOXE0c201bzRQbHgySXZibjlFVFFIeXpySVE1aHR3T3c?oc=5) |
+| 'A lid on a pot': How does a heat dome work? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBqUkc4blBudm5jZ2ctZXVJTEFxd3BUQ3NnZkY0aDhPZWY1ekxzMlpOM3JER0t5UEs5M3VoM2FZd1V3dWNFTXJ5eDNQTjNGQnZsNmhNV2FnMnhuS1ByUDdwTUd5aUlBTTRxb2FrUjJSM3VKVUtLX2JpZnRfVkFRQQ?oc=5) |
 | Man charged with supplying chemicals to Palm Springs fertility clinic bomber dies in custody - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPUlpFSnM1QnQwVXVDVno0RVZDX1A0SGJtSlh6Y05vOUpEaWhoZXpmcVJ2Z1A2WDdBdERMRHpEbWxVLWl2MlNaOEJuMkplSlFLWk9vR2ZQTlBURExrNTRmTVVVcHRmUk05ZUY1aWR2RXJLd0VDMW5XazJpaWlPR3BTVUtBOTZGZlRkUjRJRVhHbG1vdFBJaVhJ?oc=5) |
-| 20 injured in lightning strike at South Carolina beach - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOZjNMUjE1QUZUcXZUQzBRY01BVE00VWgxSXhsZzYyc0pNMjM1X3hoZWxLOHkzWFBWVGhzb2ozdWt4N0R2S0U2azdCaktZZ0IyS2oyeVB4RmV6ZUhrT2ZlVEZNU1otc3M2WTJRYXlwdG02Um5uQ21lZmhNMFF2eVlvTzFPSVo5SGRGUEtoTkhCc1JLUEdTazBaRXViWDjSAVZBVV95cUxOb25hcEZmbnRkeXVoQW1yUjU3QzNES2xJMnIwdEZVbHI1cWNwR0M4ektKRTlrVFN3NVRKVWl5UVMyd2lyRk9UNmFWWTZVYVpjQXR3RHJRdw?oc=5) |
 | "Completely unserious and selfish": Democrats fume at rogue Trump-Iran impeachment vote. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5Ub1N0SEFEUDZsOUR3QTdzek1ZMkJTUTVjQ3JWeDkwLWdlTUh1V0xEWGU4NkZad2NURWxNLTQ4cTVsWkd3S1VBUHRHZHF4a1Z5RXR6M3dhQ3lUdDR5QkRsc0taZzlRQmlHOC1tYmJEbGNuWHNGNlcwVkJQUy1VX1E?oc=5) |
+| How a Birthday Boat Ride on Lake Tahoe Turned Tragic - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE4zYW9SdzJMMGVnQWg5dUd4UzBjQV9saEk2NFpaRGRzR244YkxNU1k1REthV2VXd0JlYXoyYXgydlBwNXpOVVh6UFBZZkdPeEJjS3hqVWFOS2RVOEdQa2NXYTFOVFdBaFNBMjN6UmpaZTdVdFV5My13?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
