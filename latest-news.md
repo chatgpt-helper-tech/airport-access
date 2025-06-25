@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月26日 06:26:17（北京时间）**
+🕒 更新时间：**2025年06月26日 06:39:04（北京时间）**
 
 ---
 
@@ -23,16 +23,6 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| 4 things to know about Zohran Mamdani, presumptive Democratic nominee for NYC mayor - NPR | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5YQllWaUtHd250RDFaQWFfY2d0b3JlVm5OZW50Y1U4eXRqa0dCdTU4aDc2c1ZDdThra3g3MXlkTWFaZ213R21hMU53Zzh5VXlnUE8tUnpJVHpsUEw3a0xXYkE3Ul9OdXgxY1BoVmFoTGE3MkVuVDNuUE1qOTgzWmc?oc=5) |
-| Trump threatens tough trade deal for Spain after it refuses to meet NATO defense spending target - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNOGVnXzVIZk5fZzdudDdZaUFTcXR2Z1d1NjNIUm9OX3BycHY3R3RWa0lFSzllOHdVN2F4MXcxd0gzRExTaTVZQWFSRXE3R1hmMDVKTnVKdzB2cXMxUktHM3Y4NjNWZG11aWdzU2dyLThDbjhQOHdlZjVZU081NlBiN1VWcGpLR2xkbjRMeWtSYUJBNEZEWS1jemF1TEYzZ3U1enJJRGpn?oc=5) |
-| Trump Says U.S.-Iran Talks Will Resume Next Week (Live Updates) - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNZnNKWEZ4Ympudlpidi0yajhrS2I1SzhabnRxaWVVUTZQN0pBTXRET2d2MHJpdHF5RVExS2tTaWVURHlrNmx6UURHbXVXeTNpaEtzVV9QTzQ3WDNEYW1GY2dySEQ2dnV0NkpIaGhGaXBYOUJFalh1YlJQdk1IMHplMDA2THNFOERoT01yYlVKby05VUlNRnp5emIzdFBZM0lYUWVscFN2amJSMmt2bU5QTkhn?oc=5) |
-| Kilmar Abrego Garcia is expected to be released from jail only to be taken into immigration custody - PBS | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxOcFhUTzZkYTNzZGY2ZmpQNDhtMzFQOVlnWkQ0WVNpRUlnRjJubFdNQVhVZ0prM2p3dEc1R29MSDJiekVGcE1FS3dhMURQaGFLYVd3UXBzMzdtZndEdlpIQnVwR1ZRMVBhaWZJbVNKOUhtMEVoUDBZWjVZNEJIZ2dQaExwbENpLVVicjN0a2x6aUppMGY2dlA1SXBscDYwem1OSW9YQ1M4ZkZVRkJqekJnNjQySjlTZDVKZ1U2MEhEYlZvTUNWRHprZmxkRDlCSFhFTXlZ0gHYAUFVX3lxTFBwZWlrWWRDWHpDNmFJY3N6OThPLVlrWlF5ZmdXd2daN3pWVlY4Q3FpakxheEhHeV9yclJ2ZE1KSDJTZXpLQVdMQUszZkxNd0k1WmZhSmZjd1pmVjY1NVBjQ1NXaDFXOXV2QlhoVmZxVVJOeFdlOHAwRzJ6bGttSU1JRUlRV0p3MGtaak40Q21xRUN2YlZSVW9fWWQzTzM4eVV2TjVJVTEyaUxMRVBGNWx5LVpVYV80TC1pWTZCUnpzdjd0UFhhYWxjNFo3X2pVMVJzUnlqUmZ1eA?oc=5) |
-| RFK Jr.’s vaccine panel to review childhood immunization schedule - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQcUNSczRQbTZWNzVsazVURDg1aU96TVFGTWZ2NFZRLUhVYTZsYTNHMnFwVm9rUU9KWlpIUTNvMjdvSTBwLWhyTUoxVzI1WFRXeElBVURYeGdXWWpXNHRINGNzOGFoMlU3d1dtVWxfLW1fSjRDaThzeWxyTWc4b1FKenh6UUtXY3Z5bnlN?oc=5) |
-| Trump Says He May Send Additional Patriot Systems to Ukraine - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPQzFqb0hlMl9TLS0tTHRxV1d2VkhENWY1dzMxaU1pTURMOXMyeHozYmtoN3RFQUtSSlVma0c1UE9JNV9MYm5ZelNwd19peDlMVnYyRmY1Qjg5bmRtd2luakYzSXVuQkZyTDA3MFRFRnNiRjRuVm9vNl9GR2ExWGFGWGJjRGE4bFFrLV9BMjBVUXl2RjJ0dHc?oc=5) |
-| Whistleblower complaint alleges top DOJ official Emil Bove said he was willing to violate court orders - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNRVpHMGRsOGtNUE9KZmpLaGV0c2VMYzNybDJ4bFNBN2Q4dG9oX3ZTWUlaSnBiTjd4TXU2bkhaQ0NGLTJnTi14aUtUay1VZklIalFtVG1GSFlsRjNwYk13bTZfS0Ewa2NCQS1WQmxwOTdHcnR2S2JENGJOdU11V0VzeHdIUFdjcmtEWWVmNWhxTmRONkY5WHlTVF9FbG8zeldvOXNUZW5B0gGrAUFVX3lxTE1IWTNqNkp0bkxLUWpDNkdNaENqZ1ZXcm10THFqMG54dW9xZ0hMQzNrVGs3dkhyamV6WTBPd0pvcDZxNk1EdHVxbXdhSFFxeXpOTzJfUkp1V2I2aDhfQm92alZORHNlTUFIeGlWSDRmdWczcldfWXFXNUx1QUFfa2xzOU10b05QaXZzUEFYbFI0THV3UHEtOXdySWVQVnA0dDBNX2FMRHZRU1AwSQ?oc=5) |
-| Thune faces brewing megabill mutiny - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQbmNDOVZkQTBhWjZDb29ONGM1bUZST3VOdDh0bnBXUldqR0IwYzJYOTVBdzhPY0pnZ2hyRDNSamRURzc1c3FVNHpORkIxeVpVMkJreEFvVnozc1hhc3VWYjZRTXROQWVnaS01b2s4Zy1mREhBRUEzVFNKVjB2ZWF6N1B1SWhNcjFrbi1CUHlickdaeXc?oc=5) |
-| When will the brutal heat wave end? Here’s what to know about the forecast. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQYWIwSVRYSmFSWFJvZWUwN0NLaGQ4R0NhOGVDVURFQ3pXYWczV2JRb2hIcHJTd2M2U1BQZGp2aDZoNENTRlJNbTYtaFlzVWttQi1sb1lBZHBHOHhiZFJ0c0JqY3VzblRZelhaVlBhSERQUE9ndU5jZTl2Ny1HXzU3SjRvZG9EUC1vRmRj?oc=5) |
-| Trump Administration Says California’s Trans Sports Policies Discriminate Against Girls - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBsOEJYWUxFZUw1YXU1Mmk5SmtzelRub2JVY2dEVlBpQ01VSnc4MENqQ3Y3TFNwTjZJSUNDcS1FTWYxRkRSSTZ4b3BDQXNnLTdDeTgzbFZGWnN6XzVFRFVWMzY3R1pldE9VMnNLODF5QzgtbFNObWZUTGYyWjNmNzg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
