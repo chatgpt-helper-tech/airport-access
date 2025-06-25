@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月25日 19:26:13（北京时间）**
+🕒 更新时间：**2025年06月25日 19:39:12（北京时间）**
 
 ---
 
@@ -8,6 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| UK to purchase nuclear-carrying F-35A fighter jets | [阅读全文](https://www.bbc.com/news/articles/c335406gxdvo) |
+| Eurostar passengers face severe delays and cancellations after cable theft | [阅读全文](https://www.bbc.com/news/articles/c4gedxe7wnro) |
+| Smashed windscreens and knife threats: We're living in fear of our neighbours | [阅读全文](https://www.bbc.com/news/articles/c86gq3v8yplo) |
+| British man charged over mock Disneyland wedding to child had been investigated by BBC | [阅读全文](https://www.bbc.com/news/articles/c62gq269jv7o) |
+| Left-wing Democrat stuns former governor in NY mayor primary | [阅读全文](https://www.bbc.com/news/articles/ckg6yg7x467o) |
+| Buckingham Palace confirms Trump state visit invitation | [阅读全文](https://www.bbc.com/news/articles/cvg4589pweeo) |
+| More people buying electric cars and heat pumps than ever before | [阅读全文](https://www.bbc.com/news/articles/cqjqzj8rnvyo) |
+| I lost £15,000 after going to an IVF middleman | [阅读全文](https://www.bbc.com/news/articles/cm2eyzndlvvo) |
+| Trump takes Middle East victory lap - but big questions remain | [阅读全文](https://www.bbc.com/news/articles/c17wejpw79qo) |
+| US strikes did not destroy Iran nuclear programme, says intelligence assessment | [阅读全文](https://www.bbc.com/news/articles/ckglxwp5x03o) |
 
 ## 📰 Google News
 
@@ -18,7 +28,7 @@
 | Trump says Iran's nuclear plans put back 'decades' by US strikes as report suggests impact limited - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE85UkhMb2ZYUlhqZkoxRGlCcVBNaU5VbmxuLXZ4Slk0RGpGSUZzOHRGcjlza05fVUwyYW9EdFIxME5LbHNhYUFpUEp5a2RaeHZxOFh6Rw?oc=5) |
 | This is what could happen next after an Israel-Iran ceasefire - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNaG4xZlpkRjRsZGpCTU1RSHlsdDh5YlhSVG05VUEyMkE5ak10WVMzSDZwX3NNNDJOdUxnckg5T1lyY2l0TG03d2R5cGVpbWoxX3h2MDFSck5tc1EyWVFRbkxSZ08wdFVmTHItRzJJSkE5bzc2VkhmeGxET19MWFVQaEs1cUtxVTZxZ3ladTU4ZXZTSnl0Y0NqNm1vZFJlbU1wdTRF?oc=5) |
 | Four astronauts launch to the space station as NASA grapples with strange twist in leak issue - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFA5dExYT3BFM3ZMTno2ekR0RHhvSGhFb2hNdnBXR25MTk55S0d5RHVFLVQ5UnFWcHc4SmFaM2s1VzlXbVk2VW83RWlTUDJHS3Qtb1JuSEYxY0tlbVl2RF9xaERvTzJJRVpncmtfQXB0dTZXOExCck1PNEMzS2tsQdIBgwFBVV95cUxQNDZ4TXhkNDRoLWVmRDBHb04xOGd0dUd3Q0hjQTRJcnRTQ1hMWF9WNlI3V1ZfMkY5X01oWkYwT0pfRlZseGRjdW1UUjF0WWt3SmVVXzMxclFEOVhaVktTR0QxTGx1QV9LbG82MEVPNmdsbTRZYmZuLXRTNjNBcnhLSlVfQQ?oc=5) |
-| "Completely unserious and selfish": Democrats fume at rogue Trump-Iran impeachment vote. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5Ub1N0SEFEUDZsOUR3QTdzek1ZMkJTUTVjQ3JWeDkwLWdlTUh1V0xEWGU4NkZad2NURWxNLTQ4cTVsWkd3S1VBUHRHZHF4a1Z5RXR6M3dhQ3lUdDR5QkRsc0taZzlRQmlHOC1tYmJEbGNuWHNGNlcwVkJQUy1VX1E?oc=5) |
+| Florida sprints ahead with ‘Alligator Alcatraz’ immigration detention center project - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPWG56eEZzWU9aZms1Njg0RWxkWTVIZkNOZkRfcHg1NVdTV3lQM0FFTzFndFEtUHA4ZEtYdlpnZkd5WFktUGM1eDY0Wm9ZaF9NRWxMOVZJdVdFcjZwOVdXZ3JrdnE0bzhyVzl4bVoyNEMwRmtfR3pUNDJEODYyX0s5blBRaHFiWlJfcjc0ZGZOSF9OcnZ3ZC1uamRfZ0VPak9Ba2I0WXZCbE83dEhk?oc=5) |
 | Man charged with supplying chemicals to Palm Springs fertility clinic bomber dies in custody - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPUlpFSnM1QnQwVXVDVno0RVZDX1A0SGJtSlh6Y05vOUpEaWhoZXpmcVJ2Z1A2WDdBdERMRHpEbWxVLWl2MlNaOEJuMkplSlFLWk9vR2ZQTlBURExrNTRmTVVVcHRmUk05ZUY1aWR2RXJLd0VDMW5XazJpaWlPR3BTVUtBOTZGZlRkUjRJRVhHbG1vdFBJaVhJ?oc=5) |
 | 8 victims, including DoorDash executive, identified in fatal Lake Tahoe accident - USA Today | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQa2JUUzFiU2kxZ1lBTzAyZjI3YXZPZHRCNnJ3anduYXZONzlnRWxvNXlKOVEtWXpFUWpScnZYeVpIVl82Zy1jalJTQkY2cF9odjFMbzBEbEQyLVk2bHF3VmUxc2k2QS1IWk5jUWhtd1lLNVVhYlhpb1F4WFJtQV9WQ0xPOGJScXRlcUJrYm9WaGRFcURSWWhuQXRzeXpJRG1j?oc=5) |
 | Central Park Breaks Heat Record as Temperatures Rise in NYC - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxONVduVUFjUVRHWjJEeHJ4ZHVMWjVxU3c2a0U0aWs4Y2draE9qLWNjSUpHZjl4RDBqZGgwdzB4R3QzOVctRjBXU0VmMjRqOG9zOV9sekp4TFRHcEQ3RHk2MlhlMXBBUUwtM2RSa2pRb1dPWmc4U1I5N1BfbmlPdGhUVnRwazVBNFBDOGN5SkxR?oc=5) |
