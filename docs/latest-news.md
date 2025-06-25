@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月26日 03:13:22（北京时间）**
+🕒 更新时间：**2025年06月26日 03:27:26（北京时间）**
 
 ---
 
@@ -8,16 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| A political storm is brewing over welfare cuts - can Starmer ride it out? | [阅读全文](https://www.bbc.com/news/articles/cn0z45d641do) |
 | Five takeaways from Nato's big summit on hiking defence spending | [阅读全文](https://www.bbc.com/news/articles/cvg8pd2y80go) |
 | Man guilty of murdering schoolboy, 14, in Hainault sword attack | [阅读全文](https://www.bbc.com/news/articles/cwyrg6ynnx9o) |
 | 'He's just killed that boy': Police video shows how Hainault attack unfolded | [阅读全文](https://www.bbc.com/news/articles/clyx0xkjmmgo) |
-| Watch: BBC's Lyse Doucet reports from inside Iran | [阅读全文](https://www.bbc.com/news/videos/ceq7jjg929qo) |
+| Damaged or destroyed - how much does leaked US report on Iran's nuclear sites tell us? | [阅读全文](https://www.bbc.com/news/articles/cy7nxgzlpllo) |
 | What are the government's planned welfare cuts and how much will they save? | [阅读全文](https://www.bbc.com/news/articles/cdjxygjrk9ro) |
 | Man arrested over 1980s sex attacks days after BBC questions police | [阅读全文](https://www.bbc.com/news/articles/cpqnly2x8qno) |
 | Eurostar services returning to normal after major disruption | [阅读全文](https://www.bbc.com/news/articles/c4gedxe7wnro) |
 | Crowds pour in as Glastonbury Festival gates open | [阅读全文](https://www.bbc.com/news/articles/c23g4vd7p99o) |
 | Temperatures above 30C expected as a second June heatwave looms | [阅读全文](https://www.bbc.com/weather/articles/cx2g8vw8v0jo) |
-| Fraudster jailed for selling fake 'Scottish-grown tea' | [阅读全文](https://www.bbc.com/news/articles/c1dngyk69d0o) |
 
 ## 📰 Google News
 
@@ -26,7 +26,7 @@
 | 4 things to know about Zohran Mamdani, presumptive Democratic nominee for NYC mayor - NPR | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5YQllWaUtHd250RDFaQWFfY2d0b3JlVm5OZW50Y1U4eXRqa0dCdTU4aDc2c1ZDdThra3g3MXlkTWFaZ213R21hMU53Zzh5VXlnUE8tUnpJVHpsUEw3a0xXYkE3Ul9OdXgxY1BoVmFoTGE3MkVuVDNuUE1qOTgzWmc?oc=5) |
 | Trump says Nato defence spend rising to 5% of GDP is 'big win' for US and the West - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1UVDJEekpkZU9BTU8tWUVJZklGSENwdW02YzFPaDFza2QxQy1hUHRFb3JsNlpra3BWbHhIUGdrQWU5MTlidFZNenJkY1ozanloQlNFRA?oc=5) |
 | Early US intelligence report suggests US strikes only set back Iran’s nuclear program by months - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNOTY4UFQ0eGpLeEVpSHFqdEg2Wjh3M0xGX3N0RFRDdXFXUmd0emUxS1E1TE1DR1lYcWlTT1l0TGE4S0tCSDJwMmtpMjdRUFc4cEw4M2xZZ2lFU05RV3VrdkJoQnJRRG9pQWU4QVJ2cjdTZjdsSWhGbmc5UHlSV3RkdHRPdFc2UmEwMVE2c3pSMkQxZjE3dUY2LVd1WjYtRmhudlpVeGVn?oc=5) |
-| Vaccine panel appointed by RFK Jr. loses member before first meeting - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQcUNSczRQbTZWNzVsazVURDg1aU96TVFGTWZ2NFZRLUhVYTZsYTNHMnFwVm9rUU9KWlpIUTNvMjdvSTBwLWhyTUoxVzI1WFRXeElBVURYeGdXWWpXNHRINGNzOGFoMlU3d1dtVWxfLW1fSjRDaThzeWxyTWc4b1FKenh6UUtXY3Z5bnlN?oc=5) |
+| RFK Jr.’s Handpicked Vaccine Advisers Are Set to Meet for the First Time - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE82YW5mRGpQMTlkbkx1MUo2SjR4ZmtXdXdQVENIMk1sdnBaT0JHSWRURmFnSnNMdGtHenRJRHM3SExleXM0ZVkyS0o2cFN2WTNmQ1VaY1hvOXJyYU03ZVV3VkZXSnBhMlJLaUloX3lKUWIxbUJlald5SGYyVTI?oc=5) |
 | Bove denies advising anyone to flout court orders - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPZWZxbGUwbmtXTG1nWUZNZ3JSWEY3NG0zd3BIS1BTY0cwY0tOVXk0WlZWYUhzS0hxUEtHN1JhTTdLN3M4QUdEMy1IeWVOdXlrSWVwQlRWSnFfcGwwblNJVmVRSzZTZldJN2FCVmhTZUFDUmFIcHJmSEZLenFGUXZER2pIdEpLdE9qZVlGampIS1A?oc=5) |
 | Trump changes tune on Zelenskyy and Putin - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFB6X3hGbktTWDFwSEFRQXBSMlc1WTJaU2hReEw3UDNpR01IVTh4R1NTT2RNcExUMUIzSXFORlhOemU1cDBPbVBjQ0tMODFNcW5nT0hHdmVEMWVyRm9aWFNTTmdTd2JIQ1Fmdl9oRTFUSDk?oc=5) |
 | When will the brutal heat wave end? Here’s what to know about the forecast. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQYWIwSVRYSmFSWFJvZWUwN0NLaGQ4R0NhOGVDVURFQ3pXYWczV2JRb2hIcHJTd2M2U1BQZGp2aDZoNENTRlJNbTYtaFlzVWttQi1sb1lBZHBHOHhiZFJ0c0JqY3VzblRZelhaVlBhSERQUE9ndU5jZTl2Ny1HXzU3SjRvZG9EUC1vRmRj?oc=5) |
