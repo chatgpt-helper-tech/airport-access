@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月25日 17:27:42（北京时间）**
+🕒 更新时间：**2025年06月25日 17:40:16（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | New York City Democratic mayoral primary: Mamdani declares victory, Cuomo concedes before ranked choice votes are counted - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOSFB5ZW11N3U2bE81eDBtMmpCR0J5S1FSQU9yUC11SVpTeTh0UElBVFhrczF0RTl4Y096Qmw0VE9pYjRwbUpaN0EtYThYM1dRbm5GSFQyNUFKTWRjb2VSUEpTM081MkhtTWpXY1kzRk5UbFphVUpRRS03X2s3QUFrdWpuREhnM1BkZGQ5Zk4yeU94V25KSjRneVVIMFVNN2dwNHRBYUtTVTVvd9IBrwFBVV95cUxPaTJhcTB3R28zbWs0Z2RBNV9waDFuR3RycEhlZ1JXQ1l1QkVHd3FHelpLNVd2R2xmd2ZzTGw0NzVqcHh4UExMczZ2UWJRQ2xoRXVoSkJ3YWNkelpOUXJVU0JVNE1Lckk0eGVwNjQ5eXJUbml4Z0xaeFEyRkFqU2treklaY3dzaEhKS0FycUhRcENjcWhqQjNCd1VRYjI4X0tBUklRY3Jmd3dIR1R2VVRj?oc=5) |
-| Trump says Iran's nuclear plans put back 'decades' by US strikes as report suggests impact limited - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE85UkhMb2ZYUlhqZkoxRGlCcVBNaU5VbmxuLXZ4Slk0RGpGSUZzOHRGcjlza05fVUwyYW9EdFIxME5LbHNhYUFpUEp5a2RaeHZxOFh6Rw?oc=5) |
+| Iran-Israel ceasefire holding, Trump envoy says talks with Iran 'promising' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQeWtocDMyZkR5dFBUQ25iY042eEMwS2ZfckN4U3EzT3g5bkV4SGJUeVJGSlpyQTdpeGZVQURsMEQ3TklhZXFNazN6b01xLUVfcXpkb3NFQVF3cG1NeTM5aWpycTVGa3JRMUpQZFpQZnh6ajR6eC00dTVzX3NUZW56N0dkU0JtSzhham9nbVZlRnF2ZFBIeUFLckJFN1dZWnhRLUxTYlhFVl9CTWRGOXQwcmZMeURSZlFqeVl0amdhR2xrQ3lyNUJJ?oc=5) |
 | In his sole full day at the NATO summit, Trump faces an alliance further shaped to his liking - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxORFExYjRObTJRWlpOeFVzUDRjYURQbjMtVHlLS2phSC1qRldER0pLcThROTlWWTBrckI1SDVoU0JEdExWak5KZlJRdUQtekRXSnJmUVZkOGFqNkhRZHIzV2owQWNlN2pfOWNLUDg3VFc0eXNPQThfYjkxSVRxSmp3c2dUZE9xdWwxVGtOUEFRYw?oc=5) |
 | What to know about 'Alligator Alcatraz,' Florida migrant detention center in progress - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPOC1yQk5fSVNreWp6d3E0b2pYX0ZQWDFTOHltSG1aa3cySms1LUlXMl9qd05sMllfMUNDQ0wtcEE1S0RxS0RlY29YaGpnQWJNRHJaRjNubDJiUkVETlVEYU1BNkE3Rl93Tkl3b0FzM3FGSVlIVE1CNktSczM2T0E2bmdNYUhWNlRabEs0UUJkOTNOODNoMzJ0TmFXb0RMVXFRbUl0M0tsZU1YejA?oc=5) |
 | "Completely unserious and selfish": Democrats fume at rogue Trump-Iran impeachment vote. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5Ub1N0SEFEUDZsOUR3QTdzek1ZMkJTUTVjQ3JWeDkwLWdlTUh1V0xEWGU4NkZad2NURWxNLTQ4cTVsWkd3S1VBUHRHZHF4a1Z5RXR6M3dhQ3lUdDR5QkRsc0taZzlRQmlHOC1tYmJEbGNuWHNGNlcwVkJQUy1VX1E?oc=5) |
