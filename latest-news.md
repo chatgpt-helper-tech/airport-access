@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月25日 18:52:41（北京时间）**
+🕒 更新时间：**2025年06月25日 19:00:09（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Man charged with supplying chemicals to Palm Springs fertility clinic bomber dies in custody - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPUlpFSnM1QnQwVXVDVno0RVZDX1A0SGJtSlh6Y05vOUpEaWhoZXpmcVJ2Z1A2WDdBdERMRHpEbWxVLWl2MlNaOEJuMkplSlFLWk9vR2ZQTlBURExrNTRmTVVVcHRmUk05ZUY1aWR2RXJLd0VDMW5XazJpaWlPR3BTVUtBOTZGZlRkUjRJRVhHbG1vdFBJaVhJ?oc=5) |
 | How a Birthday Boat Ride on Lake Tahoe Turned Tragic - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE4zYW9SdzJMMGVnQWg5dUd4UzBjQV9saEk2NFpaRGRzR244YkxNU1k1REthV2VXd0JlYXoyYXgydlBwNXpOVVh6UFBZZkdPeEJjS3hqVWFOS2RVOEdQa2NXYTFOVFdBaFNBMjN6UmpaZTdVdFV5My13?oc=5) |
 | As heat peaks for most of East, these cities are set to hit 100 degrees - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOZmZLTVd1bENRSDRIWWNtakdQY0poUHQtbC1sMjlQOWdBWklZdkJId3N4ekVITmw1Nm1LeVB3cVV3aUdndHZUYUkxVTY0dkRnVnVocldOa2tEa3J4VDhWUG1pNG5ncDlORGZtN09NSEZISEpZajdIajZkZ0JBcDBXT21YTFI0SjctaE0tQ2ZveElXNG9v?oc=5) |
-| The Bombing of Iran May Teach an Unwelcome Lesson on Nuclear Weapons - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNZ09pM2N3bmN1NDZlOTNSYmJ4NlZoMDdNVFRpeDBwOVJLMTc4RVdyOUIxNXVEWGJWaXp2NXRRbVdFWmFlNDROUnVjMFN5QU9fS2t4S2tfNzZKYkhsTVRZWlRYZzZud1NoNF9yNFJYQUlxTXJXbkpUUDNkN3ZyNHl6STlNRmhBY0FvWUlV?oc=5) |
+| Central Park Breaks Heat Record as Temperatures Rise in NYC - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxONVduVUFjUVRHWjJEeHJ4ZHVMWjVxU3c2a0U0aWs4Y2draE9qLWNjSUpHZjl4RDBqZGgwdzB4R3QzOVctRjBXU0VmMjRqOG9zOV9sekp4TFRHcEQ3RHk2MlhlMXBBUUwtM2RSa2pRb1dPWmc4U1I5N1BfbmlPdGhUVnRwazVBNFBDOGN5SkxR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
