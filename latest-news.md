@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月25日 21:14:08（北京时间）**
+🕒 更新时间：**2025年06月25日 21:27:57（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Cargo ship carrying new vehicles to Mexico sinks in the North Pacific weeks after catching fire - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNaktmMHpESzZoZkVFejNMQzBTeGdLb0IyZW92MUpPcDVlY3ZiTE5Nc0xEbnFaYjlIZzNuVEZ5QnZOYks4MDB0Y1dqdW1seE9oWjBnQjhfRW9Jb0FrT1VTM2M4RWREOVRnSHlqQXBlZnN1QjFrQnpJV0xRbXhPdXl5eFZXMFZGdHZsY3k0ejlKZ3pIVzRlWk1YSmdn?oc=5) |
 | DoorDash Executive Among 8 Killed in Lake Tahoe Boat Accident - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOU2NxdUhLSEt5dEJrRXZ6VkFmdE50VU9qZloyVjBWMkRXZzhHV3ltbFotbXQyZFhSbXBSZ2pteDZ4YWJISm0wemRwRWtXY1prX2VEMC1OT1JWNGQ2aTZJazhybUJVcERWRjVOcVJjSzNJYXhkSE5ZZllKMnZCME9MVFg2RTJOTU9TRTdHZVNYRHB4alI2YXI5dUVGRTZmV1FHRXFMRlg3LUQzeHJ0ZFZMNVh3?oc=5) |
 | Scott Brown launches campaign for Senate in New Hampshire - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNMUFPS3BoM0c1VHV3ZWxrWDg4X19nUVBLUnlaVTB0eHZRQW1TMEI3M2xiUnoxMElpOW5CWkhXZThvRS14ZHZoQ3cyemtDOHE1YnFmRzdLR0FYM0dUY0x1MGR5ZGxsY2NTY2NZSEtBZWQxVU1HTE1xS1lrd2d2bDVYVkdiN3dQaXVKaHhVV2o3QVBkSEU1djU0c01TQTk?oc=5) |
-| C.D.C. Vaccine Panel Gutted by R.F.K. Jr. Loses a Member Ahead of First Meeting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOQU50ejRMdlhlUGVpZk5vT29LVFl2SG9pZHd2YlRiTzFaMUVMbGFrNWlibFlUZ1F0cFRoWUstSEh6NTQ2cFU0MU9PaHFhUXFKaFlsS3ZpQ21YYkZnYm1fSTA5cVBERjhmbmxrTS1vSjVvbGV6OEh3OXJGSDNLcXNycGt3?oc=5) |
+| Kennedy’s Handpicked Vaccine Advisers Are Set to Meet for the First Time - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE82YW5mRGpQMTlkbkx1MUo2SjR4ZmtXdXdQVENIMk1sdnBaT0JHSWRURmFnSnNMdGtHenRJRHM3SExleXM0ZVkyS0o2cFN2WTNmQ1VaY1hvOXJyYU03ZVV3VkZXSnBhMlJLaUloX3lKUWIxbUJlald5SGYyVTI?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
