@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月25日 16:52:47（北京时间）**
+🕒 更新时间：**2025年06月25日 17:00:59（北京时间）**
 
 ---
 
@@ -8,7 +8,6 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump takes Middle East victory lap - but big questions remain | [阅读全文](https://www.bbc.com/news/articles/c17wejpw79qo) |
 | UK to purchase nuclear-carrying fighter jets | [阅读全文](https://www.bbc.com/news/articles/c335406gxdvo) |
 | More Labour MPs join benefit revolt despite ministers' appeals | [阅读全文](https://www.bbc.com/news/articles/cy4ymj00px7o) |
 | I paid £15,000 for IVF - then the concierge clinic went bust | [阅读全文](https://www.bbc.com/news/articles/cm2eyzndlvvo) |
@@ -17,15 +16,16 @@
 | British man charged over mock Disneyland wedding to child had been investigated by BBC | [阅读全文](https://www.bbc.com/news/articles/c62gq269jv7o) |
 | More people buying electric cars and heat pumps than ever before | [阅读全文](https://www.bbc.com/news/articles/cqjqzj8rnvyo) |
 | Left-wing Democrat stuns former governor in NY mayor primary | [阅读全文](https://www.bbc.com/news/articles/ckg6yg7x467o) |
+| Dog-sized dinosaur that ran around feet of giants discovered | [阅读全文](https://www.bbc.com/news/articles/cglzy4zndp0o) |
 | Millions of children at risk as vaccine uptake stalls | [阅读全文](https://www.bbc.com/news/articles/c1ljv2mvr00o) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| New York City Democratic mayoral primary: Mamdani declares victory, Cuomo concedes before ranked choice votes are counted - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOSFB5ZW11N3U2bE81eDBtMmpCR0J5S1FSQU9yUC11SVpTeTh0UElBVFhrczF0RTl4Y096Qmw0VE9pYjRwbUpaN0EtYThYM1dRbm5GSFQyNUFKTWRjb2VSUEpTM081MkhtTWpXY1kzRk5UbFphVUpRRS03X2s3QUFrdWpuREhnM1BkZGQ5Zk4yeU94V25KSjRneVVIMFVNN2dwNHRBYUtTVTVvd9IBrwFBVV95cUxPaTJhcTB3R28zbWs0Z2RBNV9waDFuR3RycEhlZ1JXQ1l1QkVHd3FHelpLNVd2R2xmd2ZzTGw0NzVqcHh4UExMczZ2UWJRQ2xoRXVoSkJ3YWNkelpOUXJVU0JVNE1Lckk0eGVwNjQ5eXJUbml4Z0xaeFEyRkFqU2treklaY3dzaEhKS0FycUhRcENjcWhqQjNCd1VRYjI4X0tBUklRY3Jmd3dIR1R2VVRj?oc=5) |
+| Andrew Cuomo concedes to Zohran Mamdani in NYC mayoral primary - Axios | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOdWtpeW8zbURBRjZtWl96UTFtY1N3VHhXSUpOT1ZjMnhXQXFXNVl4UVJOXzF5ME9vV18zNkZoazhHSHo5NGtraVZjaFBkcEZPS3Blb3g4ampuTG9mNDIydXRIdGRyakFWT1hiSkl2OTVhWGNvWUNvQ3lJM3JIUDVtZXJ1cEdaSnJHaEc0RXpza1hZR05RRVpqLQ?oc=5) |
 | Fragile ceasefire holding, Trump envoy says peace talks with Iran 'promising' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQeWtocDMyZkR5dFBUQ25iY042eEMwS2ZfckN4U3EzT3g5bkV4SGJUeVJGSlpyQTdpeGZVQURsMEQ3TklhZXFNazN6b01xLUVfcXpkb3NFQVF3cG1NeTM5aWpycTVGa3JRMUpQZFpQZnh6ajR6eC00dTVzX3NUZW56N0dkU0JtSzhham9nbVZlRnF2ZFBIeUFLckJFN1dZWnhRLUxTYlhFVl9CTWRGOXQwcmZMeURSZlFqeVl0amdhR2xrQ3lyNUJJ?oc=5) |
-| Trump Dismisses Report Saying U.S. Bombing On Iran Had Little Impact (Live) - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi7wFBVV95cUxOVTZTak9vb3o1NVlHVmpHdVEtR1NNMlpqd1ZtYm9iLUhYZ2gyc3lhRVRlbmpfSzl0VlcyVVNhcm5nSXk0MVAwelZKVTFFc214Rll3MmVwc0s3b1NzZHVfUFBkRGFhNml1dFh2UlVTUjZoTXBfQVBhV3RaSzdfb3RMZEhaMjY0UFJBZGNzVHpTSlFGam1pWGRLNUhrMFk0bFFYTl9lNXhGQUFJajRoWmFCdVdmQ2N5LVF6dDVJSXI1ZVNrTXNwcUk4X3RCaWJRM05BZkE4eTB2ZXIzSklzUEVxVDhEZlJCUERobVQtMXdtUQ?oc=5) |
+| Israel-Iran live news: Trump insists nuclear sites ‘destroyed’ after intelligence suggests program could restart in months - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi8wFBVV95cUxPNm03bnR2S3M2Uzh4VmJYbExPU05QeFdreFlWMVVfcDlQMmYzeENwcmItZ1dSTEpOaWhyZVRWMlV5b1poV2p5MVhQbFFodHBpVk5JdHlrRXV0bFBLb3d1R2c4QUZlaVp5RFMxSVdHWEdVT2djQ29NLWhWWEV2NlJDa1VBUGpocEYwM0VmNFVkTDNuc3pTSmxrT0p5T3Y2ZE5YZFQ2S3hucGhZUVRMT1F6Q3AxaTNvQWFpc1N4ZHhGYTVaV2hBLUVGNWc1X3RWaWhtSHJOUXJhQjdyOGRtMTQyTU9qeEN0V0ZlUk14MDZWRzJseGM?oc=5) |
 | In his sole full day at the NATO summit, Trump faces an alliance further shaped to his liking - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxORFExYjRObTJRWlpOeFVzUDRjYURQbjMtVHlLS2phSC1qRldER0pLcThROTlWWTBrckI1SDVoU0JEdExWak5KZlJRdUQtekRXSnJmUVZkOGFqNkhRZHIzV2owQWNlN2pfOWNLUDg3VFc0eXNPQThfYjkxSVRxSmp3c2dUZE9xdWwxVGtOUEFRYw?oc=5) |
 | "Completely unserious and selfish": Democrats fume at rogue Trump-Iran impeachment vote. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5Ub1N0SEFEUDZsOUR3QTdzek1ZMkJTUTVjQ3JWeDkwLWdlTUh1V0xEWGU4NkZad2NURWxNLTQ4cTVsWkd3S1VBUHRHZHF4a1Z5RXR6M3dhQ3lUdDR5QkRsc0taZzlRQmlHOC1tYmJEbGNuWHNGNlcwVkJQUy1VX1E?oc=5) |
 | How a Birthday Boat Ride on Lake Tahoe Turned Tragic - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE4zYW9SdzJMMGVnQWg5dUd4UzBjQV9saEk2NFpaRGRzR244YkxNU1k1REthV2VXd0JlYXoyYXgydlBwNXpOVVh6UFBZZkdPeEJjS3hqVWFOS2RVOEdQa2NXYTFOVFdBaFNBMjN6UmpaZTdVdFV5My13?oc=5) |
