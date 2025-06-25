@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月25日 16:26:13（北京时间）**
+🕒 更新时间：**2025年06月25日 16:40:13（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Zohran Mamdani stuns Andrew Cuomo in NYC mayor primary - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9ONFc1OVRSZ0pfY0lQeEotQ2dzTHlmbjhvTFJlVjd5QjhBa0hQZEZFNFNFWWdBM1FrVF9oRS1tTG1BUC1nbXVlLWFia0ZnRnE1UGFSRUNUNEVWZ9IBX0FVX3lxTE5vWTJVN0JydUtXVWdMbk4yRjZIV0J6M3BPOUU0dkUxbGVodUxPUjl1cjc4VW44V1p3WExJZTNWTDd6TVhOS0hORjlJUU9lVHFWLURid2JDRmFFak0yMHZj?oc=5) |
+| Zohran Mamdani declares historic victory in New York City mayoral primary after Cuomo concedes - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQaDUteDduUndjTkJNUFJ6Y3dZSFpvTnNRVU12VWdOYkdaYm9GVjgxVzdOUGJ4dlVrZG1qdWV2MnBOeG52amZpdkE3UXBIMFE4ZmRPSWV2c2llQnBnRUhkRnVZZGZoaXZlNHpHMldTQUQxdFZDbi1vMEcxS2NBWmc4SXRZY0g1cGc?oc=5) |
 | Fragile ceasefire holding, Trump envoy says peace talks with Iran 'promising' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQeWtocDMyZkR5dFBUQ25iY042eEMwS2ZfckN4U3EzT3g5bkV4SGJUeVJGSlpyQTdpeGZVQURsMEQ3TklhZXFNazN6b01xLUVfcXpkb3NFQVF3cG1NeTM5aWpycTVGa3JRMUpQZFpQZnh6ajR6eC00dTVzX3NUZW56N0dkU0JtSzhham9nbVZlRnF2ZFBIeUFLckJFN1dZWnhRLUxTYlhFVl9CTWRGOXQwcmZMeURSZlFqeVl0amdhR2xrQ3lyNUJJ?oc=5) |
 | U.S. initial damage report: Iran nuclear program set back by months, not obliterated - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQbnVkQ3BQaGs4UHZSLU9WY3VIaENOYVFTSmlDUDFqLW5ucjdqMVhfY09wMGpCRWpTNHVnbzBpOUllSUVnRkZyLUdpdVBBN3pBWjQ1OG1CZlp1d290ei1CWWY0MWFVNDMxT3N4ck5pNU5JRU5BZHJpY2RfRF91cDBVY3k1MWE0UmNUakpYdjZ6bHZ1dkhHQUNDUzF6R3p4eDFpNlVKUUsyYXE4NmMwUHltRV93?oc=5) |
 | Trump says commitment to NATO mutual defense guarantee ‘depends on your definition’ - PBS | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOU2gxTFBILVppR3BidlM3TmsyVlBwTElGSUxzczQ4aHZjRkw4eXZQRjRDZ2FZMk1aSVA4MXdZQkNaRDAta0VSTzl6QTdBQ2hyc21VaUlKeXZVaG1Ed1BURnRLaE1teXlzbjgtM3BjM1FGWnlnVXB3LURXLTRwSnhnZUxYQW5IX0M0T09tY0paZ0RWemJKU1dQWFdsQUEzSFNibzVuYjI3dXFRM1Z6MnU0UkkyU1NmNkXSAbwBQVVfeXFMTkxzU0RTLXJHMERmWUs3WFBaR2dnVFVQZGlhbGcyRXoySWdhbVlQR0lfYTh4emE0ME50SC1aMWtJOWkyQndnVFkzUktSaUx1SjFNUkR4cVNmWVVWYjZwalRuQnh5YmJmRVN2M3JmMXZfZUNNT0hlamdkLXBacVJQcEwyWFZnMDh1YlVjUHhsYjdwU0tBM0hrVVkyZG15WnBaaGxBRl90WC1fVGRIVFl4TE5GejFlVTdiRW14Z2w?oc=5) |

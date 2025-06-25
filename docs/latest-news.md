@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月25日 16:26:14（北京时间）**
+🕒 更新时间：**2025年06月25日 16:40:13（北京时间）**
 
 ---
 
@@ -8,12 +8,22 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Trump takes Middle East victory lap - but big questions remain | [阅读全文](https://www.bbc.com/news/articles/c17wejpw79qo) |
+| UK to purchase nuclear-carrying fighter jets | [阅读全文](https://www.bbc.com/news/articles/c335406gxdvo) |
+| More Labour MPs join benefit revolt despite ministers' appeals | [阅读全文](https://www.bbc.com/news/articles/cy4ymj00px7o) |
+| I paid £15,000 for IVF - then the concierge clinic went bust | [阅读全文](https://www.bbc.com/news/articles/cm2eyzndlvvo) |
+| Rod Stewart on Glastonbury: 'I wish they wouldn't call it the tea time slot' | [阅读全文](https://www.bbc.com/news/articles/cq6m41zzpn3o) |
+| This burger was made in a lab from cow cells… Should it really be served in restaurants? | [阅读全文](https://www.bbc.com/news/articles/cgrxnlpln24o) |
+| British man charged over mock Disneyland wedding to child had been investigated by BBC | [阅读全文](https://www.bbc.com/news/articles/c62gq269jv7o) |
+| More people buying electric cars and heat pumps than ever before | [阅读全文](https://www.bbc.com/news/articles/cqjqzj8rnvyo) |
+| Left-wing Democrat stuns former governor in NY mayor primary | [阅读全文](https://www.bbc.com/news/articles/ckg6yg7x467o) |
+| Millions of children at risk as vaccine uptake stalls | [阅读全文](https://www.bbc.com/news/articles/c1ljv2mvr00o) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Zohran Mamdani stuns Andrew Cuomo in NYC mayor primary - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9ONFc1OVRSZ0pfY0lQeEotQ2dzTHlmbjhvTFJlVjd5QjhBa0hQZEZFNFNFWWdBM1FrVF9oRS1tTG1BUC1nbXVlLWFia0ZnRnE1UGFSRUNUNEVWZ9IBX0FVX3lxTE5vWTJVN0JydUtXVWdMbk4yRjZIV0J6M3BPOUU0dkUxbGVodUxPUjl1cjc4VW44V1p3WExJZTNWTDd6TVhOS0hORjlJUU9lVHFWLURid2JDRmFFak0yMHZj?oc=5) |
+| Zohran Mamdani declares historic victory in New York City mayoral primary after Cuomo concedes - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQaDUteDduUndjTkJNUFJ6Y3dZSFpvTnNRVU12VWdOYkdaYm9GVjgxVzdOUGJ4dlVrZG1qdWV2MnBOeG52amZpdkE3UXBIMFE4ZmRPSWV2c2llQnBnRUhkRnVZZGZoaXZlNHpHMldTQUQxdFZDbi1vMEcxS2NBWmc4SXRZY0g1cGc?oc=5) |
 | Fragile ceasefire holding, Trump envoy says peace talks with Iran 'promising' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQeWtocDMyZkR5dFBUQ25iY042eEMwS2ZfckN4U3EzT3g5bkV4SGJUeVJGSlpyQTdpeGZVQURsMEQ3TklhZXFNazN6b01xLUVfcXpkb3NFQVF3cG1NeTM5aWpycTVGa3JRMUpQZFpQZnh6ajR6eC00dTVzX3NUZW56N0dkU0JtSzhham9nbVZlRnF2ZFBIeUFLckJFN1dZWnhRLUxTYlhFVl9CTWRGOXQwcmZMeURSZlFqeVl0amdhR2xrQ3lyNUJJ?oc=5) |
 | U.S. initial damage report: Iran nuclear program set back by months, not obliterated - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQbnVkQ3BQaGs4UHZSLU9WY3VIaENOYVFTSmlDUDFqLW5ucjdqMVhfY09wMGpCRWpTNHVnbzBpOUllSUVnRkZyLUdpdVBBN3pBWjQ1OG1CZlp1d290ei1CWWY0MWFVNDMxT3N4ck5pNU5JRU5BZHJpY2RfRF91cDBVY3k1MWE0UmNUakpYdjZ6bHZ1dkhHQUNDUzF6R3p4eDFpNlVKUUsyYXE4NmMwUHltRV93?oc=5) |
 | Trump says commitment to NATO mutual defense guarantee ‘depends on your definition’ - PBS | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOU2gxTFBILVppR3BidlM3TmsyVlBwTElGSUxzczQ4aHZjRkw4eXZQRjRDZ2FZMk1aSVA4MXdZQkNaRDAta0VSTzl6QTdBQ2hyc21VaUlKeXZVaG1Ed1BURnRLaE1teXlzbjgtM3BjM1FGWnlnVXB3LURXLTRwSnhnZUxYQW5IX0M0T09tY0paZ0RWemJKU1dQWFdsQUEzSFNibzVuYjI3dXFRM1Z6MnU0UkkyU1NmNkXSAbwBQVVfeXFMTkxzU0RTLXJHMERmWUs3WFBaR2dnVFVQZGlhbGcyRXoySWdhbVlQR0lfYTh4emE0ME50SC1aMWtJOWkyQndnVFkzUktSaUx1SjFNUkR4cVNmWVVWYjZwalRuQnh5YmJmRVN2M3JmMXZfZUNNT0hlamdkLXBacVJQcEwyWFZnMDh1YlVjUHhsYjdwU0tBM0hrVVkyZG15WnBaaGxBRl90WC1fVGRIVFl4TE5GejFlVTdiRW14Z2w?oc=5) |
