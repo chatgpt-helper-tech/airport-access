@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月26日 07:27:24（北京时间）**
+🕒 更新时间：**2025年06月26日 07:40:42（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Trump Says He May Send Additional Patriot Systems to Ukraine - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPQzFqb0hlMl9TLS0tTHRxV1d2VkhENWY1dzMxaU1pTURMOXMyeHozYmtoN3RFQUtSSlVma0c1UE9JNV9MYm5ZelNwd19peDlMVnYyRmY1Qjg5bmRtd2luakYzSXVuQkZyTDA3MFRFRnNiRjRuVm9vNl9GR2ExWGFGWGJjRGE4bFFrLV9BMjBVUXl2RjJ0dHc?oc=5) |
 | RFK Jr.’s vaccine panel to review childhood immunization schedule - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQcUNSczRQbTZWNzVsazVURDg1aU96TVFGTWZ2NFZRLUhVYTZsYTNHMnFwVm9rUU9KWlpIUTNvMjdvSTBwLWhyTUoxVzI1WFRXeElBVURYeGdXWWpXNHRINGNzOGFoMlU3d1dtVWxfLW1fSjRDaThzeWxyTWc4b1FKenh6UUtXY3Z5bnlN?oc=5) |
 | What this Trump nominee says about his potential SCOTUS picks - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQQnZ1NERyMlhoQUJvR2MtdzR0S2RfX0U4cklSTFJBcnhaRDc2Y253Z2xhc2tqUUVvSUpUOTNUQWNKSlJ2RHRBeHNnbGlWc2dvUGkwTG9HU2ZyaWNtM2dZSnZTZ3dYQ3YyV0t1RWJkZW9fY2VyYUZvTjlJeFdMRGh2S0JkRnZqQQ?oc=5) |
+| The devastating impact of Trump’s big beautiful bill, in one chart - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPdFo1c1dQUzZuRWhJWWxFUG1aSUFUUEI0WE1UYUhja2J0TDhGYlFKOHc2U3llQWRyQ0VNSHBTSy1aMFUzVXVfOHBNNXRZcEZJTGFFZDJraTJtNFNDdE13OXRYVjhkdFVHTlFiTElNOVMzNXhrejFORTVReXl3WmhrR1RlRGRMOFhCdjJESw?oc=5) |
 | When will the brutal heat wave end? Here’s what to know about the forecast. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQYWIwSVRYSmFSWFJvZWUwN0NLaGQ4R0NhOGVDVURFQ3pXYWczV2JRb2hIcHJTd2M2U1BQZGp2aDZoNENTRlJNbTYtaFlzVWttQi1sb1lBZHBHOHhiZFJ0c0JqY3VzblRZelhaVlBhSERQUE9ndU5jZTl2Ny1HXzU3SjRvZG9EUC1vRmRj?oc=5) |
-| Thune faces brewing megabill mutiny - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQbmNDOVZkQTBhWjZDb29ONGM1bUZST3VOdDh0bnBXUldqR0IwYzJYOTVBdzhPY0pnZ2hyRDNSamRURzc1c3FVNHpORkIxeVpVMkJreEFvVnozc1hhc3VWYjZRTXROQWVnaS01b2s4Zy1mREhBRUEzVFNKVjB2ZWF6N1B1SWhNcjFrbi1CUHlickdaeXc?oc=5) |
 | Judge sees no reason to keep holding Abrego Garcia pending criminal trial - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxObnRNM2RzWllNTjFaWFVXOW1vdU85M1lwS240cGl3VWFIM1pyX0tnaWRRNlo2anJuQ1pJangxQW5saFR3dkJJUi1NeHJnUV9ReXc3MUhuSEk1cFJPUFZGc1hMbDRqMzZxZHh1eDVCeXJkR2VGeG1TZ2JnTWhUdWRwU3AyRQ?oc=5) |
 
 ---
