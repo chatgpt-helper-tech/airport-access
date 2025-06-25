@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月25日 11:40:57（北京时间）**
+🕒 更新时间：**2025年06月25日 11:53:54（北京时间）**
 
 ---
 
@@ -8,16 +8,6 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| How a volatile 24 hours edged Iran and Israel to a ceasefire | [阅读全文](https://www.bbc.com/news/articles/c3vdpeq606do) |
-| UK to purchase nuclear-carrying fighter jets | [阅读全文](https://www.bbc.com/news/articles/c335406gxdvo) |
-| Keir Starmer vows to press on with welfare cuts as rebellion grows | [阅读全文](https://www.bbc.com/news/articles/c04dn3v616yo) |
-| Russian naval ship 'disguised' itself while passing through English Channel | [阅读全文](https://www.bbc.com/news/articles/c62gq6y62d1o) |
-| Dog-sized dinosaur that ran around feet of giants discovered | [阅读全文](https://www.bbc.com/news/articles/cglzy4zndp0o) |
-| This burger was made in a lab from cow cells… Should it really be served in restaurants? | [阅读全文](https://www.bbc.com/news/articles/cgrxnlpln24o) |
-| Watch: How prosecutors went after Diddy in his sex trafficking trial | [阅读全文](https://www.bbc.com/news/videos/c9qxv928z11o) |
-| Millions of children at risk as vaccine uptake stalls | [阅读全文](https://www.bbc.com/news/articles/c1ljv2mvr00o) |
-| Post Office payout progress insufficient, MPs say | [阅读全文](https://www.bbc.com/news/articles/c3d15z9zrxdo) |
-| Electric cars and heat pumps making progress, UK climate advisers say | [阅读全文](https://www.bbc.com/news/articles/cqjqzj8rnvyo) |
 
 ## 📰 Google News
 
@@ -30,9 +20,9 @@
 | Cat naps, ‘piddle packs’ and amphetamines: Here’s what it can take to complete a marathon bombing run - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBVTXZLc3c4TGhBMzdrWFJtakFja0d3aXd2UE11STN1MHVQdzZCMUVjcHVYV1Q3N3F2ejM0ekRWZmFWV1JiZWZCZGpZOHNKZ0ZLRW1ET1F0REJMcWdGV0R1U0xSRHRTMlRkS2h2Yk1iZ2VSZ1k5MHfSAXtBVV95cUxQLVRua25rYVo4VmEtSGV2TWdfSEU1eFVGZlViNjhCa29Jdk5hWUtxMklmM2syc0hqSXhDbWdJZkhmSUtILVJxRmNwbG05Q052TnJKR0xBLXduNmFLcjBQWFFYR1ZxSDY0Wjd1WWNOU0lEczFpQjRnYTRyTFE?oc=5) |
 | Suspected accomplice in Palm Springs bombing dies in federal custody in Los Angeles - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQS0ZJUkJjejFxZTQ0blRTTE53OEZGZm80cHU5alBKTUgtM1Y2cVNQVFJHSl90RHNneFpjQWtVcDBzMWJ6QkFieHRPMXhqN3RMWXNTSVRFWWpNa2YzWl8tcVRocVltZml3NURlUWRyTXVxUXJUNjZlUko3SUgyZGNKUmc2RElta1NpeE56N1I1NmZ2UXpLSTI2RDE5RmltN1Axc0pkbVk2ZmpHZWhsUWVSUmhn?oc=5) |
 | 'A lid on a pot': How does a heat dome work? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBqUkc4blBudm5jZ2ctZXVJTEFxd3BUQ3NnZkY0aDhPZWY1ekxzMlpOM3JER0t5UEs5M3VoM2FZd1V3dWNFTXJ5eDNQTjNGQnZsNmhNV2FnMnhuS1ByUDdwTUd5aUlBTTRxb2FrUjJSM3VKVUtLX2JpZnRfVkFRQQ?oc=5) |
-| 20 injured in lightning strike at South Carolina beach - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOZjNMUjE1QUZUcXZUQzBRY01BVE00VWgxSXhsZzYyc0pNMjM1X3hoZWxLOHkzWFBWVGhzb2ozdWt4N0R2S0U2azdCaktZZ0IyS2oyeVB4RmV6ZUhrT2ZlVEZNU1otc3M2WTJRYXlwdG02Um5uQ21lZmhNMFF2eVlvTzFPSVo5SGRGUEtoTkhCc1JLUEdTazBaRXViWDjSAVZBVV95cUxOb25hcEZmbnRkeXVoQW1yUjU3QzNES2xJMnIwdEZVbHI1cWNwR0M4ektKRTlrVFN3NVRKVWl5UVMyd2lyRk9UNmFWWTZVYVpjQXR3RHJRdw?oc=5) |
+| 20 people injured by lightning strike at South Carolina lake - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5wOUZlM0h2Y2FYcE9oVWZqd2QxQnpBWDh0TVNsVkV4dWNoMWIycjV3MExmaGlBcFI4aFA5alRiSkZ3ZE1UeWdiZXkxQUNqa0VBYURQNXdST0pQSWVxcWJZRk52Y3U5a1h2cExDWEN5ZXo1cHdTQ3NLZUZac21EV03SAYQBQVVfeXFMTXhvMm05UGpybWktUUNCSzVOSEJ2QmJxWERaN0gwLUthbDREUGJVcm1pT1RzTTFmYmRvRXRyMXpZeUloWldhRDkyTGZNZ0pvdlRyYy1DcVNUSkpEYy1ZRWhyNjRGb0w2S2xsX0tzVXhEVzhnWldwZHNsblZaWkNtbTFSS2U1?oc=5) |
 | "Completely unserious and selfish": Democrats fume at rogue Trump-Iran impeachment vote. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5Ub1N0SEFEUDZsOUR3QTdzek1ZMkJTUTVjQ3JWeDkwLWdlTUh1V0xEWGU4NkZad2NURWxNLTQ4cTVsWkd3S1VBUHRHZHF4a1Z5RXR6M3dhQ3lUdDR5QkRsc0taZzlRQmlHOC1tYmJEbGNuWHNGNlcwVkJQUy1VX1E?oc=5) |
-| Gov. Pritzker set to announce he's running for a third term: Sources - NBC 5 Chicago | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxQMG9xNmNtU1VwVXROUmtSblhaSXFXYy1senRLZ3ZDYTZnR3hRODFaYTQ3YjBGUHhab19hcEp0am16TE0wWUQ2RzN2ak9leENZME1VLTBfbDBGTnpFV0ZCMm05OXZwWGJNN25ZaTgwdHg4M0pWd1ZOR0lKX1cyZDlDTl9nQS1SNGFsTFg1TUkwTHJJN0R3VTlRWFJHQlVzTmtVT1huUlRNWjUxbzFXRmlFdjhUR3dlUGpFRHVOeGhTdXVOOXhidEJlRtIB0AFBVV95cUxQVWdrVnNqd3FUamZZaVdQT1VvZ19yLXUwREdjRWc3NFV1RF9Cd0NBem1BcmVKcVdFYkdnSmNWQnZ2SktIOThITDU5VUNJRWhsQzA2eTVsMzVjQnVxSE16RXpiTFZ6TDR0Z2JZWTljM3ZESW9sZ0wwdkI5cUpyY0lvcG1qRDIwa25iWGwtcGpmOVJnakd4c1BDSDRjTE4yWTR0ZjJGcXJtVzBMZXl5Ulp3TFZQdEx3Z3pyV3ZLT0szQkdZNG9udVB5UzFkMjVVSGlu?oc=5) |
+| Jumaane Williams wins reelection primary as NYC public advocate - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPdzdiVDByYnN1Z2diLXBVTlBPek12dC1BY2dxOE4wY0R6QXNKQlFMN1BzaWRId3NzeERacnRETE0xM1E0cHlBUU8wekt1c2F5di1rMEh2d05oQ0hoWU5oaXFnLUExcmZ4V2dJQ0VCenlUZFpWUDJqdUNtQnhidl9wU3dfRTlEWTloMER5dE1EM0F0dzVtN29CekJnUGRpcFRldDA5SjVXWDk0N2UtcDN5UVZybw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
