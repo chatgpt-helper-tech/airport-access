@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月25日 11:26:18（北京时间）**
+🕒 更新时间：**2025年06月25日 11:40:57（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Suspected accomplice in Palm Springs bombing dies in federal custody in Los Angeles - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQS0ZJUkJjejFxZTQ0blRTTE53OEZGZm80cHU5alBKTUgtM1Y2cVNQVFJHSl90RHNneFpjQWtVcDBzMWJ6QkFieHRPMXhqN3RMWXNTSVRFWWpNa2YzWl8tcVRocVltZml3NURlUWRyTXVxUXJUNjZlUko3SUgyZGNKUmc2RElta1NpeE56N1I1NmZ2UXpLSTI2RDE5RmltN1Axc0pkbVk2ZmpHZWhsUWVSUmhn?oc=5) |
 | 'A lid on a pot': How does a heat dome work? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBqUkc4blBudm5jZ2ctZXVJTEFxd3BUQ3NnZkY0aDhPZWY1ekxzMlpOM3JER0t5UEs5M3VoM2FZd1V3dWNFTXJ5eDNQTjNGQnZsNmhNV2FnMnhuS1ByUDdwTUd5aUlBTTRxb2FrUjJSM3VKVUtLX2JpZnRfVkFRQQ?oc=5) |
 | 20 injured in lightning strike at South Carolina beach - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOZjNMUjE1QUZUcXZUQzBRY01BVE00VWgxSXhsZzYyc0pNMjM1X3hoZWxLOHkzWFBWVGhzb2ozdWt4N0R2S0U2azdCaktZZ0IyS2oyeVB4RmV6ZUhrT2ZlVEZNU1otc3M2WTJRYXlwdG02Um5uQ21lZmhNMFF2eVlvTzFPSVo5SGRGUEtoTkhCc1JLUEdTazBaRXViWDjSAVZBVV95cUxOb25hcEZmbnRkeXVoQW1yUjU3QzNES2xJMnIwdEZVbHI1cWNwR0M4ektKRTlrVFN3NVRKVWl5UVMyd2lyRk9UNmFWWTZVYVpjQXR3RHJRdw?oc=5) |
-| Whistleblower complaint alleges top DOJ official Emil Bove said he was willing to violate court orders - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNRVpHMGRsOGtNUE9KZmpLaGV0c2VMYzNybDJ4bFNBN2Q4dG9oX3ZTWUlaSnBiTjd4TXU2bkhaQ0NGLTJnTi14aUtUay1VZklIalFtVG1GSFlsRjNwYk13bTZfS0Ewa2NCQS1WQmxwOTdHcnR2S2JENGJOdU11V0VzeHdIUFdjcmtEWWVmNWhxTmRONkY5WHlTVF9FbG8zeldvOXNUZW5B0gGrAUFVX3lxTE1IWTNqNkp0bkxLUWpDNkdNaENqZ1ZXcm10THFqMG54dW9xZ0hMQzNrVGs3dkhyamV6WTBPd0pvcDZxNk1EdHVxbXdhSFFxeXpOTzJfUkp1V2I2aDhfQm92alZORHNlTUFIeGlWSDRmdWczcldfWXFXNUx1QUFfa2xzOU10b05QaXZzUEFYbFI0THV3UHEtOXdySWVQVnA0dDBNX2FMRHZRU1AwSQ?oc=5) |
 | "Completely unserious and selfish": Democrats fume at rogue Trump-Iran impeachment vote. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5Ub1N0SEFEUDZsOUR3QTdzek1ZMkJTUTVjQ3JWeDkwLWdlTUh1V0xEWGU4NkZad2NURWxNLTQ4cTVsWkd3S1VBUHRHZHF4a1Z5RXR6M3dhQ3lUdDR5QkRsc0taZzlRQmlHOC1tYmJEbGNuWHNGNlcwVkJQUy1VX1E?oc=5) |
+| Gov. Pritzker set to announce he's running for a third term: Sources - NBC 5 Chicago | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxQMG9xNmNtU1VwVXROUmtSblhaSXFXYy1senRLZ3ZDYTZnR3hRODFaYTQ3YjBGUHhab19hcEp0am16TE0wWUQ2RzN2ak9leENZME1VLTBfbDBGTnpFV0ZCMm05OXZwWGJNN25ZaTgwdHg4M0pWd1ZOR0lKX1cyZDlDTl9nQS1SNGFsTFg1TUkwTHJJN0R3VTlRWFJHQlVzTmtVT1huUlRNWjUxbzFXRmlFdjhUR3dlUGpFRHVOeGhTdXVOOXhidEJlRtIB0AFBVV95cUxQVWdrVnNqd3FUamZZaVdQT1VvZ19yLXUwREdjRWc3NFV1RF9Cd0NBem1BcmVKcVdFYkdnSmNWQnZ2SktIOThITDU5VUNJRWhsQzA2eTVsMzVjQnVxSE16RXpiTFZ6TDR0Z2JZWTljM3ZESW9sZ0wwdkI5cUpyY0lvcG1qRDIwa25iWGwtcGpmOVJnakd4c1BDSDRjTE4yWTR0ZjJGcXJtVzBMZXl5Ulp3TFZQdEx3Z3pyV3ZLT0szQkdZNG9udVB5UzFkMjVVSGlu?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
