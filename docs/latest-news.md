@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月26日 12:53:15（北京时间）**
+🕒 更新时间：**2025年06月26日 13:01:36（北京时间）**
 
 ---
 
@@ -8,6 +8,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| My wife and daughters left behind a legacy of love, John Hunt tells BBC | [阅读全文](https://www.bbc.com/news/articles/cy5wk716pzdo) |
+| Watch: John and Amy Hunt's interview with BBC's Victoria Derbyshire | [阅读全文](https://www.bbc.com/news/videos/cp82l17397jo) |
 | A political storm is brewing over welfare cuts - can Starmer ride it out? | [阅读全文](https://www.bbc.com/news/articles/cn0z45d641do) |
 | CIA director says Iran's nuclear sites 'severely damaged' | [阅读全文](https://www.bbc.com/news/articles/c5yk942y437o) |
 | When Iran's Supreme Leader emerges from hiding he will find a very different nation | [阅读全文](https://www.bbc.com/news/articles/c0j4g1ll8yqo) |
@@ -16,8 +18,6 @@
 | Gaza mediators intensifying ceasefire efforts, Hamas official says | [阅读全文](https://www.bbc.com/news/articles/clylzlv91pro) |
 | Andy Murray wants to shield kids from 'damaging' social media | [阅读全文](https://www.bbc.com/sport/tennis/articles/cpqn22erd10o) |
 | Controversial project to create artificial human DNA begins | [阅读全文](https://www.bbc.com/news/articles/c6256wpn97ro) |
-| The virtually abandoned Florida airport being turned into 'Alligator Alcatraz' | [阅读全文](https://www.bbc.com/news/articles/cwyrnrnxy7yo) |
-| Council boss quits, leaving 18-year-old in charge | [阅读全文](https://www.bbc.com/news/articles/c93knke95peo) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | Senators question Trump plan to kill federal funds for PBS, NPR and some foreign aid - NPR | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNZDhENVd4Q3I5Qm56Q2s5b1U5S21XdUhpbEJUdl9hWVF6TkFuX1lldGpMZUtjZHp6LUNkYTdrSWlLRTZJSmREbmNUNEdsZ2xESkxtSmNzbHVmcVVJRmhVYWFUSmVqQzg0akVaVHNNV1RwaHBha1dpUkN6ZWpUY0UzN3NjX1hVRnJ1cEdidk5BaXgxd0RsUy1ZWlZZVEdDUQ?oc=5) |
 | Kilmar Abrego Garcia to remain in jail while attorneys spar whether he’ll be swiftly deported - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPVGs4ZEp0YnZQNFZ3alNQczk3eXFjc3pzbDVUX09lWjNTZVhqR29xZzBham00dVR6aHM1ekh0ME9neXQyemQxb0s3THQ5YTUtcFZqYnA5bzZmRDZXOTlDenE3U01XZ1VWdkYwa2ZBZUE0LXItSm5KUGl2YVdISHVqbHlKemFMVVozdTljQTR1UWxSWGVpeXZpbWNn?oc=5) |
 | Mississippi executes the longest-serving man on the state’s death row for 1976 killing - AP News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxOUnlmWEtiWklWb1YtMUh5S2tWRFMzVmp0anlQU2J6ZU1lcXUyVGtRT2dQaWRWSWdIWGstclBHYmRKTnc0T0xxSU1DejNtdXdJbHZLMW5HSmFMQlJBLTE4cGtZRXJWNzBLRk16RFRZNTlwRGI2UFFMbUxiYUF6NE4ycGZHZ2N6SURKN1Vsb2ltdGNKSHdoWThvS2JGQTQwTHp2QndLUTFsU3RlSjFrdHRiSjViMzhSQ0I5cmVqX0EwNWtxUmRYSGhn?oc=5) |
-| When will the brutal heat wave end? Here’s what to know about the forecast. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQYWIwSVRYSmFSWFJvZWUwN0NLaGQ4R0NhOGVDVURFQ3pXYWczV2JRb2hIcHJTd2M2U1BQZGp2aDZoNENTRlJNbTYtaFlzVWttQi1sb1lBZHBHOHhiZFJ0c0JqY3VzblRZelhaVlBhSERQUE9ndU5jZTl2Ny1HXzU3SjRvZG9EUC1vRmRj?oc=5) |
 | Emil Bove Denies Suggesting Justice Dept. Ignore Court Orders in Deportation Cases - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1DM3A2clVNUHZkRUQ3NkRCZDE4dXpOdW5DRFdTcWZ4T2JuRGVaWnJGR3N6enhJTkxwOXBaNTk4NzVpOHM1Z0Q5WlJEc284S0tqeVYwUHoweDdpWUY4Y0otUEZ0eWZteHZ3Q2RTRnlrLUJyRjRycUNYT2ZheW9FOEE?oc=5) |
+| When will the brutal heat wave end? Here’s what to know about the forecast. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQYWIwSVRYSmFSWFJvZWUwN0NLaGQ4R0NhOGVDVURFQ3pXYWczV2JRb2hIcHJTd2M2U1BQZGp2aDZoNENTRlJNbTYtaFlzVWttQi1sb1lBZHBHOHhiZFJ0c0JqY3VzblRZelhaVlBhSERQUE9ndU5jZTl2Ny1HXzU3SjRvZG9EUC1vRmRj?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
