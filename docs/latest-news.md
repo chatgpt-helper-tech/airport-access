@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月27日 04:40:31（北京时间）**
+🕒 更新时间：**2025年06月27日 04:52:38（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | White House to limit intelligence sharing with Congress after leak of early Iran report - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNZUl1OThLSGxSWFBtWjlKeDN6eTJTZDR3elczUmVTc1ZTUUJUWXZSaWMzRmM0c0dJbmxmX3hEcjFMNF9Zb3A5bWJBM2Jrc0FaR0tvLXRVZFdObm5lb3FDb2VBOHRONmdXQ2llS25jZGdNN0FXRmtzQ0JLRGJtNjRVdXFKa3BrRnBQS2JXSEo2b0k2aUpqX0FaOUc5ZE5wQXlrTGhCN3B5OUJaRHhFcExHMVRqYS1IQk0?oc=5) |
 | Top General Offers Look Into Planning to Defeat Iran's Nuclear Sites - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNbnVRNmNlZmNCYjJsdWZnX2lBNjNjV1M5eVJ0Um13STQ4dHNNb0JQQ2ltMnFQZklMRXpFb0Z4NXhIMXJoa2QxVmZRS19GNTd3cmpqZUtteEZVVVZISjBOTXFuTWFFZWlFT19sZjl0YWdzRHkzbHZIaExGN2RvTS1YVk52SXRYWW9qcEZuSGhlTjFGMHhIUHJGekVCcDNxdw?oc=5) |
 | Mamdani Shock Gives NYC Mayor Adams a Shot at a Comeback - Bloomberg | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOQ2ZxNWJfSzc3OUllMzl5emhPcWk3NGtXQUlWQ1BRUHUwZF9KWWx0MGw2YUNPS2R1WWRZcXhUMU1fZTJiZXJkVWxrSndhb054Z18tUS0tSnRSQWtsNzRoNFd6bDZmWXhhVDJBOFd6S1U2cWZaMVdralZPTXRoUUlJclNxR2RtRjR5b1NrVEF3UjJ0aW9MeGlrZlJpUFVyam9qSmxPQVdLaDlHTFo0QUJxZW5mWk80UHM?oc=5) |
-| House GOP holdouts threaten revolt over Trump and Senate’s tax bill - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeTZuVENoTlF2eFJQeDBSRy1KODhOazlDUF93VFMwVDZtWjRsY1lzSm1UdlBncVF2ZUNZN3NRWWFyZUY2NmNOTkMxQUd1aWdVSHVweUFOc1llWnV0cm55WkJmczB0UFMyaWhVY3dPN05WWHZ4b0d3R01tTWVCUXZfMU9FR01oUTRPQk1BTVZyYw?oc=5) |
-| Once opponents in the Supreme Court case that legalized gay marriage, now they're friends - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQNkFWZ0dBcnF2M0RmZExmQ0ptSjd5RE1UTGtjcndOQWs5b0ZHcVZDQ0JFRTFZcHYtNWdqbjR0aWIxMm1sOHZuVkgyWUdiTXdJM3Jfb2tETUlrdXQ2eEE2UWlrdTJQM3pTVEdtajEwOW1oN3dWM0FqVEg0azFIWEx6YkhzbEtqMkhBeVA5VUNRVHFnek42Z3g2VTVFdXF6eTVUdTA5bml2cEEwY2loeWhfZE8zS2R4d9IBVkFVX3lxTE9JWm1vOHY5cUNoS3NLMHJxVERFUzl6NWxRVUYyM0o2MHNjU0ZxRUhMeDVUa3o0d2laNFFsM1gtNmk3eThXYnNLVjFpSVVBSUZJTDlGRURB?oc=5) |
+| Live updates: Trump pushes for passage of his massive tax and immigration bill - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9KaGZwQy1CYWg3aGhXdEthWVBiQlo3b2oxYmtRMER1WHlBQXRqQWtfaGpERHhVUVdEQi1qeUY5MWVSZElkalBMeVVFQVNyZnJMemRKUUtuSWwwZWMzUERqYXVSM3l2eUlLWWhQbEVDY2hNSVE3Vy1iSXNpNGRMdw?oc=5) |
+| Americans Share What the Supreme Court’s Same-Sex Marriage Ruling Has Meant to Them - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPVlBvUXBrWTg0U0xKUENMS2lRS2NPMFJFVHpOTl84OVRLQXN3YW5tUVZsTExnRDd0SGI1dnQ5YjJLZnVkLXhDejZicDVITTRZbzFEUlgydXFDdEFOdTRSdDFsZlU0M1JJa21iTVNrMndPUTgxQXNsZVNoX2l0X2lWWHhnWQ?oc=5) |
 | US pediatricians criticize RFK Jr’s new vaccine panel: ‘Truly an embarrassment’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxONTk4cEtVU3V4Y1J2UkNVWUFvY3JrenhDNDNib0U5MnhSZHZCUkhqQXdhZkFfbFpGdVIwS1pvWndYenQxWERXd0plV1AyTGpNZ3lIVm92a1JydDdmbmNPcDhZc1RaZm44Q3kzNDRuNDhYQzY4d2VRQVV2dkhhQmNzYTRLbGJfZw?oc=5) |
 | Debris From SpaceX Explosion, Landing in Mexico, Draws Investigation - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPM20wQnVrNWdxWVpuYU12eTZtbjZycTltLWd6Zm42M2FMRzdManRtVHZqZnpVQ3lMUWhnNTVKRThrSllIOWJQYUhrcGk0ZGNLWmJKd3FIaV9LT2gyM0Y1TTdFMVF6QlVFVWg0Wk95TTJPYU1FQ0l3cVVDYU5LQWJWNGVRc0JNMmlaS1pRRmFJSTc?oc=5) |
 
