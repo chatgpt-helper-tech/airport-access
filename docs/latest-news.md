@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月27日 04:26:08（北京时间）**
+🕒 更新时间：**2025年06月27日 04:40:31（北京时间）**
 
 ---
 
@@ -8,9 +8,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Starmer set to announce Labour rebels deal in welfare cuts climbdown | [阅读全文](https://www.bbc.com/news/articles/cq6my6v81z4o) |
+| Starmer set to announce welfare climbdown in deal with Labour rebels | [阅读全文](https://www.bbc.com/news/articles/cq6my6v81z4o) |
 | Misogyny is an epidemic fuelled by social media, Amy Hunt tells BBC in first interview | [阅读全文](https://www.bbc.com/news/articles/c8d64z4rl5ro) |
-| Child Q unsure she will 'feel normal again' after strip-search | [阅读全文](https://www.bbc.com/news/articles/ce8zyjdj067o) |
+| Child Q unsure she will 'feel normal again' after police strip-search | [阅读全文](https://www.bbc.com/news/articles/ce8zyjdj067o) |
 | Iran leader says US gained nothing from strikes as Hegseth hails 'historic success' | [阅读全文](https://www.bbc.com/news/articles/cdjxy039ln8o) |
 | Hegseth talks up US strikes on Iran in push for public approval | [阅读全文](https://www.bbc.com/news/articles/c20rd30l7l3o) |
 | Weight loss jabs study begins after hundreds report pancreas issues | [阅读全文](https://www.bbc.com/news/articles/c4ged0r1n3wo) |
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Republicans are dealt a setback on their big bill as Senate referee disqualifies key provisions - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOR0t0dlhWa0xMMEFQYndFZTRIR1Rpd2d1Mm1OTEZUSmt3MVY4QUI3ZFdjSDlta0tZYVAtSGh5RjZ3bWZFbDJDczJNcVJhUlQ3dDdqYm9yLUNNVWdtSC1IcUtxY2lpLTRqczlmS3k0aDV6WFY4OUJuQ181X21oVlkwRVR6R2s1dVlzSUtwX3Z6aXhKRmRIYWhKR0dsaWl1TU5GTjZFRGt2Qk9MYnYzWHYwMVlkQjdlMGdON3BidWdWZ9IBVkFVX3lxTE5vMFJkaWEwZUZSTU5hYWN5S0pkTnk0dXdBT0l5RmlIQkU5aVlFbGpoMXJtXzlRWDdUaThPWmRMYk81aHQwVnhDZXBnLXBuaTZDVS1Xek5n?oc=5) |
+| Senate GOP 'frustrated' by parliamentarian's Medicaid ruling in Trump's bill -- but won't overrule her - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxNcUJWcl9UMHY2cklrRllmdlhYRXNJVjJZRmNVbUo0ZkloVVNhb3FhXzNJaUlMVzZsS2xIdVhqNEJzTjI4ck9QSGE3N1BITy1QRGdkaTk2TXgyREprcENSaE9Bai0xbFRvUDZuVDhlZklYSHFtWEdoT1duUmU4bFdWUjhyNDJEY2FiSDBTZFltZmVyZkZVaEtSRlBOeFJySS1nbFZhdmYtZE9Fc185SjB1WDgtLWp5NXo4ZjdjSnhnTE_SAcYBQVVfeXFMT2xTMW5tUWdJX0trd0k4WEZmdUptQktNdHNfVzNySThGbnFTakx0NWJiM0lldHRBX2w2RGNwcEZ1MURIcGs1aks4dzBCYTYxRkFXTkRDOVdCNmJTYjVfR0JVTTgyZGF1bk01OVc3bnU3cW1tWlBHeVBVNlFNa0lpNUdxTk56M3A4ZldjdWgxeEZRRVdLdUJrUjhldkF2TU1tblpvZkRzcW5oNTJ4T3VidTBVUktMZnc2TlVOSmdiUERnbjcyaVJ3?oc=5) |
 | Iran Supreme Leader Says U.S. Attacks ‘Achieved Nothing.’ Cease-Fire With Israel Holds. - Barron's | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOcmUwbUloSm9DdV9vSHlzcXBDdWRGYlZmZTdNUnQzbkx6V2Z6bk53SF9LT0o3V3lUTWQ4VkNsdmZuVjB0WDJrNndJS3V2MXFnbmZjQVFBQXZ2emVnZHBlVGZIT1h2VnhEY3h1ajlTbUFCeXdRSm5oYUVZWmZxSzlZYnF0aDN5RGZfM1E?oc=5) |
 | Supreme Court allows states to cut off Medicaid funding for Planned Parenthood - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNaTVkM1JjaVhXWmlybmFtX3hnSS1BNEwtVnlpQ3ZsVzBZNU5IYmhGbnRrSUgyaTZQeElCZTJET2pRa1ZhSnRyVUo0RWxDYlJmdFg1ODRXWEE1VjFCblozWTg0clpHS3hXamdKVkstUkZLNUJHZUh4RG9CUXpPU0hwbXNaSzdKeENBZXljVVlQMmFiSnZsOGQyQVc4MG9SOHlURkpUZEdveXB6M1F5?oc=5) |
 | White House to limit intelligence sharing with Congress after leak of early Iran report - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNZUl1OThLSGxSWFBtWjlKeDN6eTJTZDR3elczUmVTc1ZTUUJUWXZSaWMzRmM0c0dJbmxmX3hEcjFMNF9Zb3A5bWJBM2Jrc0FaR0tvLXRVZFdObm5lb3FDb2VBOHRONmdXQ2llS25jZGdNN0FXRmtzQ0JLRGJtNjRVdXFKa3BrRnBQS2JXSEo2b0k2aUpqX0FaOUc5ZE5wQXlrTGhCN3B5OUJaRHhFcExHMVRqYS1IQk0?oc=5) |
-| Senate Republicans rush to pass President Trump's signature policy bill - NPR | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQTWtha2h1UGtmX1dnSzJHT0VEMXhYMVl4Qi1obGR2Q25mUkNZX2ViTzltNldodlY2TjFGV2ljMkc0bFBWVWZHMGNFUnRJMUpmd1hlem9TVkFhZmZXMnhsaHBnZFJWWEpIX01CTE11WHlsems2Q0dubzBFTUw2WnduTW1VVnZLRjJRd1NFWm42R0Q3Y1hNekpOY3ZtRkRNdFpMaGowTGZVRjNGS05ueDNSb0JxZjJKUQ?oc=5) |
-| Jaw-dropping footage released showing how 30,000-pound bunker-buster bombs work like the ones used in historic Iran strike - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQaEE0Q3RyRFlHS2pGNGVMcm9zNXg4OERRQkpWSzR4SUNMMlpQc29YOU43S1BPZ2txaFA2TnNCQW0ySEhYQ3JNRDVtNTM1NzgzRnZMNUVtNWM5aWdiQ0lZR0FVMERTWU9VN2ZpYmlxRVlON0ZYQjNKY0dLaFJtazhNUG5SelBhV0hFeVdHRWItQnBWZzhxX1NoX3QxbGZIeVpEOGN5YzBfcnk0d25Ra0F0dGd6X0FJTTZUaXlrQ2FBNWlWQQ?oc=5) |
-| He sued for marriage equality and won. 10 years later, he fears for LGBTQ+ rights - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPd09HQmtKYXV5VzZjVmQyWC1PVl82S1QtWWlyeHRVekI5alFhQS1FeEt0Rkg0NVc0U2k2c0FybGVhdGRacmFURlo3R25XRDRfOXFpbVZRNEk3S0tEM0w2YTNVLUNxMzgyWm1KQ210bElYckMyYy0zSGxwZlF3a2dYWWVUMkFGZGQ2aEZqaWp0ZDI2dW9NMzM4?oc=5) |
+| Top General Offers Look Into Planning to Defeat Iran's Nuclear Sites - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNbnVRNmNlZmNCYjJsdWZnX2lBNjNjV1M5eVJ0Um13STQ4dHNNb0JQQ2ltMnFQZklMRXpFb0Z4NXhIMXJoa2QxVmZRS19GNTd3cmpqZUtteEZVVVZISjBOTXFuTWFFZWlFT19sZjl0YWdzRHkzbHZIaExGN2RvTS1YVk52SXRYWW9qcEZuSGhlTjFGMHhIUHJGekVCcDNxdw?oc=5) |
+| Mamdani Shock Gives NYC Mayor Adams a Shot at a Comeback - Bloomberg | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOQ2ZxNWJfSzc3OUllMzl5emhPcWk3NGtXQUlWQ1BRUHUwZF9KWWx0MGw2YUNPS2R1WWRZcXhUMU1fZTJiZXJkVWxrSndhb054Z18tUS0tSnRSQWtsNzRoNFd6bDZmWXhhVDJBOFd6S1U2cWZaMVdralZPTXRoUUlJclNxR2RtRjR5b1NrVEF3UjJ0aW9MeGlrZlJpUFVyam9qSmxPQVdLaDlHTFo0QUJxZW5mWk80UHM?oc=5) |
+| House GOP holdouts threaten revolt over Trump and Senate’s tax bill - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeTZuVENoTlF2eFJQeDBSRy1KODhOazlDUF93VFMwVDZtWjRsY1lzSm1UdlBncVF2ZUNZN3NRWWFyZUY2NmNOTkMxQUd1aWdVSHVweUFOc1llWnV0cm55WkJmczB0UFMyaWhVY3dPN05WWHZ4b0d3R01tTWVCUXZfMU9FR01oUTRPQk1BTVZyYw?oc=5) |
+| Once opponents in the Supreme Court case that legalized gay marriage, now they're friends - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQNkFWZ0dBcnF2M0RmZExmQ0ptSjd5RE1UTGtjcndOQWs5b0ZHcVZDQ0JFRTFZcHYtNWdqbjR0aWIxMm1sOHZuVkgyWUdiTXdJM3Jfb2tETUlrdXQ2eEE2UWlrdTJQM3pTVEdtajEwOW1oN3dWM0FqVEg0azFIWEx6YkhzbEtqMkhBeVA5VUNRVHFnek42Z3g2VTVFdXF6eTVUdTA5bml2cEEwY2loeWhfZE8zS2R4d9IBVkFVX3lxTE9JWm1vOHY5cUNoS3NLMHJxVERFUzl6NWxRVUYyM0o2MHNjU0ZxRUhMeDVUa3o0d2laNFFsM1gtNmk3eThXYnNLVjFpSVVBSUZJTDlGRURB?oc=5) |
 | US pediatricians criticize RFK Jr’s new vaccine panel: ‘Truly an embarrassment’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxONTk4cEtVU3V4Y1J2UkNVWUFvY3JrenhDNDNib0U5MnhSZHZCUkhqQXdhZkFfbFpGdVIwS1pvWndYenQxWERXd0plV1AyTGpNZ3lIVm92a1JydDdmbmNPcDhZc1RaZm44Q3kzNDRuNDhYQzY4d2VRQVV2dkhhQmNzYTRLbGJfZw?oc=5) |
 | Debris From SpaceX Explosion, Landing in Mexico, Draws Investigation - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPM20wQnVrNWdxWVpuYU12eTZtbjZycTltLWd6Zm42M2FMRzdManRtVHZqZnpVQ3lMUWhnNTVKRThrSllIOWJQYUhrcGk0ZGNLWmJKd3FIaV9LT2gyM0Y1TTdFMVF6QlVFVWg0Wk95TTJPYU1FQ0l3cVVDYU5LQWJWNGVRc0JNMmlaS1pRRmFJSTc?oc=5) |
-| Bill Ackman pledges to bankroll any NYC mayoral candidate capable of defeating Zohran Mamdani - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNblE3bFBPcGdaUWxRRTZnYnpsMTdTeWFEVGMyS1BPWlE5cUYwdnpuTDFmLWwxSExfRWR4bnpwN3ZTRjFiRTUyeTFTS0ZpLXBUbnpQU1NIa2JmaW1EdUxJR3ZQUXFMdHRMS3FxTTlGREpLQ0REY0NDNVNLb1Nxa3RsQUppM1lZWnBKb0g3YnNXckJxQ3NfZndKQlpVSmc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
