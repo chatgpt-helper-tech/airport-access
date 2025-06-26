@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月26日 22:27:43（北京时间）**
+🕒 更新时间：**2025年06月26日 22:40:09（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Key takeaways from the Trump-dominated NATO summit - NPR | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTFBfMlM5ekZMM3o1UGkwSHNLU0dtOUhrZFBNNDZES0lTS1dLTjBVLWx5QUoyTkFuXzFFYUZPNDR5c3JRME9ZUnlNZ0ViNmMtcnlkT1lJaXFLTDFJTnFCOHNMTkNuQUdNWXdRaVVUdHVlMA?oc=5) |
 | After stunning NYC mayor primary upset, Mamdani tells ABC News Democrats need to focus on economic agenda - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNdGpSUTY2TVBvNmFUWVQxVzJtOTFUTThCclcyaTROT3dFYTBGbzhxdVpfVEV5RTN0NEY3U3QwVVF6emowWHI2QUFLT0w5c3BmQnhkNG1BSl8yTWhmVTF5LW83dkctRXVRdmFKbXpEQjZob0VOWmpvYllZdkVsSm9ZdW5qbmwzcXprUDBvb0FIYk1nQncxQzZLaHNHeFFPdFlZaW9zcUN30gGrAUFVX3lxTE9XNE1EUHYyMUNOdFVJTkN1aDFDMWdsMV9UUzJ4VG9RcVg1WmtrenpfNlZWa3Rtd2FkOW9uT3BGZ1gtR3Ezd0lBOVNfM3NoN2VZcUNxcHVfRFhoSnNNeUI2eU1VX2FZZDl1dnVWWlIzNUZ4OVBOZ2JrNEVWR19sMGcySXNRTWdOOW01LVdla3pwMjg1Zk5DT01vdmoxN0trenE5aHJIcllFa1VFSQ?oc=5) |
 | Here's where same-sex marriage would be banned without Obergefell - Axios | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQNFl6bUZpVTZ4RUlOYmtTaWlmd0Frck1fSHpDb3ltN0EwUFRFQVQ5QzFScVp1UV8xSlRQNEFKUzdqWE1qbmZWLXA3SVlfcGtZb21hUk4zOGRRNzJNeW1xdGR5WHBNOXBZRmx0R19NeUYxZVFMTGVjbVFpT2U3RUhZc1ZlcHBpd19uYWk4Yy05cmkxTE1rUUY2VHo3b2ZlenM?oc=5) |
+| Supreme court paves way for South Carolina and other states to defund Planned Parenthood - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQcTZwZmMwQm5WUTB3b0xrbXFVanktUEUxclBIaWV6RjIybUJSSlBkMkNLcWx2OGRadWZvWVhQZDZneUpIWGdPdTJyeWFpVkQyMlBnUFdUTUlWczNDM0d1S3hnd1RpRkh3VU1FbW1wem41ZmNESERIelI5cEc2SW9yQmkwSUlTb29TcUMxR2FaVDdrR1E?oc=5) |
 | Senate parliamentarian blocks Medicaid changes in "big, beautiful bill" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE4xei1jcnY4ZnFVdXl2UXVGUE9qWGZNM01vMjQ3TUZSa00yTzFpQ0JwXy1TU09FNnRmTU5LdUVJcF9Dakg4WDZMSlVQY3ZMaTkzTHdISl9uTmtSeE1fUjVFSTZzS01sYjdNNE9Lalk0ZmdRSXJ0Rlg3TEVUS2hGdw?oc=5) |
 | Mississippi executes the longest-serving man on the state's death row for 1976 killing - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOQnB6YTdodVQ5TVViOWZ1TkdVb1h2VlNSalh4d0dVMHZicll6SXRRd2xUNnF1WVhNQ01zYWhrMDJuVmFzMjF0bW51ZFlTUDFIU1phNVlOTjM3RUpuaGhtLUZXSUxIbjlmYXhNZFJHVGdVbXl4eWo3SFBTZl82M3QtSUotMHVLb3JadlhTWEZXME9zcjZRU29Eb1c0TQ?oc=5) |
-| Kennedy’s vaccine committee to vote on flu vaccines and controversial preservative - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNMENJdXB1Y1ZLNzFSakttZUdib3ZlV083cHYtUjNLTFRocTgxTURHZHRmYmIwdlp6QWNyaDlfdXE2RnB2ZUFScmVaSGJUMEhLdzdVSWRWOV8taXlNWXFheDdkZDdCZU9HRzBQaDdJLU13QVBjSkV4ejBnVlBTc3NPTEUzSVJMUzNpUk5LSFVEUUdCQzl5emc?oc=5) |
-| Capitol agenda: Thune’s megabill teeters on the brink - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQZTJBaTVEeFVDT3V0aGdISVZTSUVwXzhnY2JpQmstN3NNS1ZabEpwTmlZYTlqVHhJcUJvNUg1VWd5ZldWbHZTUlFMLWJIOG9zb0ZDZ0VLZDRqdVMzVGVMY0w1ZThOYW1jd0NuVDk3ZGQycVhmR3F1aEJjcGdtd1UwdG55Yzh6SlJMcktDVE41dHhCcDNBUUUzYmhxcVVuNkRPT3E2cnlxRWRvdG5XSlkwYUdnSnZ3cVY5RWc?oc=5) |
+| Pritzker launches campaign for 3rd term as Illinois governor - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPS0JnR044UTE1N0Fxd1Rrb09GTTB5U3N4YXMtS0tRcExUSEZNZm4xa2FJT1JYTHRSM3RFRTlJby1oMnRrbk94MGZmZHBDa2djSXozb1E1cnQ5YjFuTGp5cVB3Yk5nVzZpZ3FHMzY0TlVqMXRUY0V2Nm5vbERSLXlrOTVWOG5LTWVSSnVTZXQ0ZWVab0lIOXVBVzhn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。

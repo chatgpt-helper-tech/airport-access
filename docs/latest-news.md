@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月26日 22:27:44（北京时间）**
+🕒 更新时间：**2025年06月26日 22:40:09（北京时间）**
 
 ---
 
@@ -23,6 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Hegseth says US strikes on Iran were 'historically successful' after ayatollah downplays impact - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFBqNldkTXprbUI2dTN6UzA1NFk4bEd3WjVJQTVzdnRxOFNXV0JHanhVWFkwUkdVRWw1emFtUzQ2VFlxalZycC16TlNUUWUxcExrWlk5Tw?oc=5) |
+| House GOP holdouts threaten revolt over Trump and Senate’s tax bill - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeTZuVENoTlF2eFJQeDBSRy1KODhOazlDUF93VFMwVDZtWjRsY1lzSm1UdlBncVF2ZUNZN3NRWWFyZUY2NmNOTkMxQUd1aWdVSHVweUFOc1llWnV0cm55WkJmczB0UFMyaWhVY3dPN05WWHZ4b0d3R01tTWVCUXZfMU9FR01oUTRPQk1BTVZyYw?oc=5) |
+| Trump’s spy chiefs say new intel shows Iran’s nuclear facilities were destroyed - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQU0ZqQUNXcXZnZ1pveE54NGh1WW9vRDFPamRmLWdNTlJiN3Y1ZHB0OXNjSUc0NUdBclY4QUNieGtuejRyS2pnRFpUTU5QNm91LWFQUW9jTEstd05mN3I4alZUb2hTX0FKdE93SVR6b1E3R3dGMXVWbl93N0dySF9MZjd6a1c0UDdBSUFHaWxGRjlMZkx6NGJfbXl3?oc=5) |
+| Key takeaways from the Trump-dominated NATO summit - NPR | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTFBfMlM5ekZMM3o1UGkwSHNLU0dtOUhrZFBNNDZES0lTS1dLTjBVLWx5QUoyTkFuXzFFYUZPNDR5c3JRME9ZUnlNZ0ViNmMtcnlkT1lJaXFLTDFJTnFCOHNMTkNuQUdNWXdRaVVUdHVlMA?oc=5) |
+| After stunning NYC mayor primary upset, Mamdani tells ABC News Democrats need to focus on economic agenda - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNdGpSUTY2TVBvNmFUWVQxVzJtOTFUTThCclcyaTROT3dFYTBGbzhxdVpfVEV5RTN0NEY3U3QwVVF6emowWHI2QUFLT0w5c3BmQnhkNG1BSl8yTWhmVTF5LW83dkctRXVRdmFKbXpEQjZob0VOWmpvYllZdkVsSm9ZdW5qbmwzcXprUDBvb0FIYk1nQncxQzZLaHNHeFFPdFlZaW9zcUN30gGrAUFVX3lxTE9XNE1EUHYyMUNOdFVJTkN1aDFDMWdsMV9UUzJ4VG9RcVg1WmtrenpfNlZWa3Rtd2FkOW9uT3BGZ1gtR3Ezd0lBOVNfM3NoN2VZcUNxcHVfRFhoSnNNeUI2eU1VX2FZZDl1dnVWWlIzNUZ4OVBOZ2JrNEVWR19sMGcySXNRTWdOOW01LVdla3pwMjg1Zk5DT01vdmoxN0trenE5aHJIcllFa1VFSQ?oc=5) |
+| Here's where same-sex marriage would be banned without Obergefell - Axios | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQNFl6bUZpVTZ4RUlOYmtTaWlmd0Frck1fSHpDb3ltN0EwUFRFQVQ5QzFScVp1UV8xSlRQNEFKUzdqWE1qbmZWLXA3SVlfcGtZb21hUk4zOGRRNzJNeW1xdGR5WHBNOXBZRmx0R19NeUYxZVFMTGVjbVFpT2U3RUhZc1ZlcHBpd19uYWk4Yy05cmkxTE1rUUY2VHo3b2ZlenM?oc=5) |
+| Supreme court paves way for South Carolina and other states to defund Planned Parenthood - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQcTZwZmMwQm5WUTB3b0xrbXFVanktUEUxclBIaWV6RjIybUJSSlBkMkNLcWx2OGRadWZvWVhQZDZneUpIWGdPdTJyeWFpVkQyMlBnUFdUTUlWczNDM0d1S3hnd1RpRkh3VU1FbW1wem41ZmNESERIelI5cEc2SW9yQmkwSUlTb29TcUMxR2FaVDdrR1E?oc=5) |
+| Senate parliamentarian blocks Medicaid changes in "big, beautiful bill" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE4xei1jcnY4ZnFVdXl2UXVGUE9qWGZNM01vMjQ3TUZSa00yTzFpQ0JwXy1TU09FNnRmTU5LdUVJcF9Dakg4WDZMSlVQY3ZMaTkzTHdISl9uTmtSeE1fUjVFSTZzS01sYjdNNE9Lalk0ZmdRSXJ0Rlg3TEVUS2hGdw?oc=5) |
+| White House to limit intelligence sharing, skip Gabbard at Senate Iran briefing - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOUFU2MGlHdU1FWEVIcFBQVVhQdkVFMC1iR2NPRmEyZGlNdWRNQkwyRmdQdGhydjBjdXQzVXpnWktUZzhheTV5RXk5QUVsemR0bC1qdFhLNmduMVZCeEhFczFXcGMwOGhrd0I4cGdmMS1EX05SdFIybVp4YmR4OThHVlJYUUZiaWtHa3p1NUFBR21ZYU5NTkZzazJn?oc=5) |
+| Mississippi executes the longest-serving man on the state's death row for 1976 killing - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOQnB6YTdodVQ5TVViOWZ1TkdVb1h2VlNSalh4d0dVMHZicll6SXRRd2xUNnF1WVhNQ01zYWhrMDJuVmFzMjF0bW51ZFlTUDFIU1phNVlOTjM3RUpuaGhtLUZXSUxIbjlmYXhNZFJHVGdVbXl4eWo3SFBTZl82M3QtSUotMHVLb3JadlhTWEZXME9zcjZRU29Eb1c0TQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
