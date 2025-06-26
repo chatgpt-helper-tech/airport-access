@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月26日 21:01:20（北京时间）**
+🕒 更新时间：**2025年06月26日 21:13:13（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Exclusive: 10 years ago, a day to remember for Obama - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNTU9HS2ZHZ25RLVhINjJmcUtvTkJjN2VNd09ZSnZzWGxDTi1VTUV1ZEZWeDZHcVpleXg0eEVnMHdOdnNaR1NiRS04WHFPZThiemtNOFpNT05jMDhQR29BeHRlR0h3M2pBVzkwcGNTVS1kVW05eFkxRHNVNW90ZVpYWDBR?oc=5) |
 | After stunning NYC mayor primary upset, Mamdani tells ABC News Democrats need to focus on economic agenda - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNdGpSUTY2TVBvNmFUWVQxVzJtOTFUTThCclcyaTROT3dFYTBGbzhxdVpfVEV5RTN0NEY3U3QwVVF6emowWHI2QUFLT0w5c3BmQnhkNG1BSl8yTWhmVTF5LW83dkctRXVRdmFKbXpEQjZob0VOWmpvYllZdkVsSm9ZdW5qbmwzcXprUDBvb0FIYk1nQncxQzZLaHNHeFFPdFlZaW9zcUN30gGrAUFVX3lxTE9XNE1EUHYyMUNOdFVJTkN1aDFDMWdsMV9UUzJ4VG9RcVg1WmtrenpfNlZWa3Rtd2FkOW9uT3BGZ1gtR3Ezd0lBOVNfM3NoN2VZcUNxcHVfRFhoSnNNeUI2eU1VX2FZZDl1dnVWWlIzNUZ4OVBOZ2JrNEVWR19sMGcySXNRTWdOOW01LVdla3pwMjg1Zk5DT01vdmoxN0trenE5aHJIcllFa1VFSQ?oc=5) |
 | Scoop: Trump hosting "everyday Americans" to squeeze GOP holdouts - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNTDRaZ0plemU5SXVDWHlRMWNjOG1hWndYR2ZFeWZ6b296c2RIZGlGNXdWY1RFcy04bFhlcE43eGhxZy1zMlNjSVpVdldNaXdlUnF6Y2xUME5BQnJ4REctMWIycFF4TDBjWTBzZW1BN3hIVEhsbzBBWUpNQmFzZklrV2Vn?oc=5) |
-| Kilmar Abrego Garcia is expected to be released from jail only to be taken into immigration custody - PBS | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxOcFhUTzZkYTNzZGY2ZmpQNDhtMzFQOVlnWkQ0WVNpRUlnRjJubFdNQVhVZ0prM2p3dEc1R29MSDJiekVGcE1FS3dhMURQaGFLYVd3UXBzMzdtZndEdlpIQnVwR1ZRMVBhaWZJbVNKOUhtMEVoUDBZWjVZNEJIZ2dQaExwbENpLVVicjN0a2x6aUppMGY2dlA1SXBscDYwem1OSW9YQ1M4ZkZVRkJqekJnNjQySjlTZDVKZ1U2MEhEYlZvTUNWRHprZmxkRDlCSFhFTXlZ0gHYAUFVX3lxTFBwZWlrWWRDWHpDNmFJY3N6OThPLVlrWlF5ZmdXd2daN3pWVlY4Q3FpakxheEhHeV9yclJ2ZE1KSDJTZXpLQVdMQUszZkxNd0k1WmZhSmZjd1pmVjY1NVBjQ1NXaDFXOXV2QlhoVmZxVVJOeFdlOHAwRzJ6bGttSU1JRUlRV0p3MGtaak40Q21xRUN2YlZSVW9fWWQzTzM4eVV2TjVJVTEyaUxMRVBGNWx5LVpVYV80TC1pWTZCUnpzdjd0UFhhYWxjNFo3X2pVMVJzUnlqUmZ1eA?oc=5) |
+| White House to limit intelligence sharing, skip Gabbard at Senate Iran briefing - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOUFU2MGlHdU1FWEVIcFBQVVhQdkVFMC1iR2NPRmEyZGlNdWRNQkwyRmdQdGhydjBjdXQzVXpnWktUZzhheTV5RXk5QUVsemR0bC1qdFhLNmduMVZCeEhFczFXcGMwOGhrd0I4cGdmMS1EX05SdFIybVp4YmR4OThHVlJYUUZiaWtHa3p1NUFBR21ZYU5NTkZzazJn?oc=5) |
 | Longest-serving person on Mississippi’s death row executed - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxORTgzZnp3d0syU1lTUVNJNm1vaXhxOHlwUmtnMWMxYjVhZXJGQnRubTIxNEpGRGhVNlF0N081QnhsVF81NDl2LW00OFFSV3BPeHRRRlJCaG9sT2dFczFTdWowbVg4QzZpcm1wa2pMWXJTUk1HelpxdGIxdkdBNkt2cjFHSXgycXJvQUwyRi10MFZwUWd1LVYyOTZZTHR5QkFUNU5F?oc=5) |
-| The devastating impact of Trump’s big beautiful bill, in one chart - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPdFo1c1dQUzZuRWhJWWxFUG1aSUFUUEI0WE1UYUhja2J0TDhGYlFKOHc2U3llQWRyQ0VNSHBTSy1aMFUzVXVfOHBNNXRZcEZJTGFFZDJraTJtNFNDdE13OXRYVjhkdFVHTlFiTElNOVMzNXhrejFORTVReXl3WmhrR1RlRGRMOFhCdjJESw?oc=5) |
-| Did the Attacks on Iran Succeed? - Foreign Affairs | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTFBwSWxmTDlVemctSTc2eTd4VU5pbEUwdUFNenU5NWZUUDZpQmNkQUo5VVF5OFY5UkZnQkhUN2ZxMTd3dFJlNUNxdjBRVXAxVmUyS0FhMFdjcnlZT25SQS0tY000U1pyUUxLWjEwXw?oc=5) |
+| Capitol agenda: Thune’s megabill teeters on the brink - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQZTJBaTVEeFVDT3V0aGdISVZTSUVwXzhnY2JpQmstN3NNS1ZabEpwTmlZYTlqVHhJcUJvNUg1VWd5ZldWbHZTUlFMLWJIOG9zb0ZDZ0VLZDRqdVMzVGVMY0w1ZThOYW1jd0NuVDk3ZGQycVhmR3F1aEJjcGdtd1UwdG55Yzh6SlJMcktDVE41dHhCcDNBUUUzYmhxcVVuNkRPT3E2cnlxRWRvdG5XSlkwYUdnSnZ3cVY5RWc?oc=5) |
+| Trump calls for Netanyahu's trial to be canceled - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPSC1HejJMdEtFbThHSHk2aExFSjNHNGdyc0EyVE85MlVRelNGVXJmakd1RVlLMFVNemFTZjllMXVoQkR4MXktYXBXcG03RXE0dWNoY09jNVBlREJ4b09DR2xBR1V5QTBDc1JVUjBhdURIaFlWbGhCQjdpYXZ6RDF4VFhyaVlJLUJfZjBkSmFCQnV1WHpuQkJHZzY3V0lYSEdLMUE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
