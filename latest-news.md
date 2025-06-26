@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月26日 13:53:58（北京时间）**
+🕒 更新时间：**2025年06月26日 14:01:19（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Touts employ overseas workers to bulk-buy gig tickets | [阅读全文](https://www.bbc.com/news/articles/c04e9k1vllro) |
 | Gaza mediators intensifying ceasefire efforts, Hamas official says | [阅读全文](https://www.bbc.com/news/articles/clylzlv91pro) |
 | Reform UK council boss quits, leaving 18-year-old in charge | [阅读全文](https://www.bbc.com/news/articles/c93knke95peo) |
-| Controversial project to create artificial human DNA begins | [阅读全文](https://www.bbc.com/news/articles/c6256wpn97ro) |
+| Denis Villeneuve announced as director of new James Bond film | [阅读全文](https://www.bbc.com/news/articles/cn41yddj4m1o) |
 
 ## 📰 Google News
 
@@ -28,7 +28,7 @@
 | Trump’s spy chiefs say new intel shows Iran’s nuclear facilities were destroyed - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQU0ZqQUNXcXZnZ1pveE54NGh1WW9vRDFPamRmLWdNTlJiN3Y1ZHB0OXNjSUc0NUdBclY4QUNieGtuejRyS2pnRFpUTU5QNm91LWFQUW9jTEstd05mN3I4alZUb2hTX0FKdE93SVR6b1E3R3dGMXVWbl93N0dySF9MZjd6a1c0UDdBSUFHaWxGRjlMZkx6NGJfbXl3?oc=5) |
 | Trump administration says California must bar trans girls from girls sports - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNTHBWam9tMTQtZ0Z5Zl9BMi1qcEVVYUlScnRxNXBKZHpLV1N4bzl5V3VmWThFYXk5QVQ5ekh3VFFkU1UwXzlNeG5fdFpQN19pdnF5ejJtSGpvSFItSjFYMnRyZ1FRY3NoVXM2eWRZZmxWb3JCQzBaZ0FGZTNqMkt3a2hKNzQ3STR1RW0zRW5GYlJkRG9jYU9oSlExWmxXRmhlX1p3?oc=5) |
 | Senators question Trump plan to kill federal funds for PBS, NPR and some foreign aid - NPR | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNZDhENVd4Q3I5Qm56Q2s5b1U5S21XdUhpbEJUdl9hWVF6TkFuX1lldGpMZUtjZHp6LUNkYTdrSWlLRTZJSmREbmNUNEdsZ2xESkxtSmNzbHVmcVVJRmhVYWFUSmVqQzg0akVaVHNNV1RwaHBha1dpUkN6ZWpUY0UzN3NjX1hVRnJ1cEdidk5BaXgxd0RsUy1ZWlZZVEdDUQ?oc=5) |
-| When the Supreme Leader emerges, he'll be leading a changed Iran - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1MOGFFSGpRLXc5MFNTVVl4bGh4aF9IV0E0aE1vOE1fZWJPOS1TZTBOUnlaUE5RejhMVTl5QkFmMlJPWEk2TnJZRDdMZGRCQnRCbWxFemd1Q0ZzZ9IBX0FVX3lxTE5icXNJY0FGaVp1MHJIZV9SUjExMHZuTjB6TDBFRS1XZlAyLWJJUERjTVF0SUZUa0ExSHF5VWNDNkNQRl9vZU9nTmtCRzBjamVheVB4TFVvc3lrTWE2VUJV?oc=5) |
+| U.S. strikes crippled Iran’s nuclear program, Israeli analysis finds - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxOclJsOXRJUmNBMjNvRWZ1SWgwaGRNLWxPVVpLY1poVmF3eFZGQlBfNjRrdzYwX0F0MjlSRThRNTlYTG92SmJ4RFhiZWE2cHMyc1JUcWZncTFIdmFBaUhkU1NycGVQS2EzX2s5YzNUN2JsZTBremtLbzNqTWdGVkVsdEt0cVdxeXpnZFFCUUxJWW9kaV9aTHZrSnRzdkhRMTVHejdzY3lwWnRXYlo4ZEd3R1U3QjZ2cG9Yb3l6NTJ2OVdzQ2JUaHc?oc=5) |
 | Kilmar Abrego Garcia to remain in jail while attorneys spar whether he’ll be swiftly deported - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPVGs4ZEp0YnZQNFZ3alNQczk3eXFjc3pzbDVUX09lWjNTZVhqR29xZzBham00dVR6aHM1ekh0ME9neXQyemQxb0s3THQ5YTUtcFZqYnA5bzZmRDZXOTlDenE3U01XZ1VWdkYwa2ZBZUE0LXItSm5KUGl2YVdISHVqbHlKemFMVVozdTljQTR1UWxSWGVpeXZpbWNn?oc=5) |
 | Mississippi executes the longest-serving man on the state’s death row for 1976 killing - AP News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxOUnlmWEtiWklWb1YtMUh5S2tWRFMzVmp0anlQU2J6ZU1lcXUyVGtRT2dQaWRWSWdIWGstclBHYmRKTnc0T0xxSU1DejNtdXdJbHZLMW5HSmFMQlJBLTE4cGtZRXJWNzBLRk16RFRZNTlwRGI2UFFMbUxiYUF6NE4ycGZHZ2N6SURKN1Vsb2ltdGNKSHdoWThvS2JGQTQwTHp2QndLUTFsU3RlSjFrdHRiSjViMzhSQ0I5cmVqX0EwNWtxUmRYSGhn?oc=5) |
 | Emil Bove Denies Suggesting Justice Dept. Ignore Court Orders in Deportation Cases - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1DM3A2clVNUHZkRUQ3NkRCZDE4dXpOdW5DRFdTcWZ4T2JuRGVaWnJGR3N6enhJTkxwOXBaNTk4NzVpOHM1Z0Q5WlJEc284S0tqeVYwUHoweDdpWUY4Y0otUEZ0eWZteHZ3Q2RTRnlrLUJyRjRycUNYT2ZheW9FOEE?oc=5) |
