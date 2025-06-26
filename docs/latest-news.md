@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月27日 01:52:10（北京时间）**
+🕒 更新时间：**2025年06月27日 02:00:39（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Experts: Damage to Iranian nuclear sites likely far more extensive than leaked DIA report - Jewish Insider | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOTU1GYVk1eWNYTGJxWm1ESFRKd2VlSV9yUDZFaXlLUFJBZjhhR0ktR1hLWS1GUWJlYVZDbnFqOEVHemRlODY2VlNzQXRpaGNDQlRvSDhRZk1ZeUEzR0R3cmgwUVpoMGNRV2lTV19PeGUwVzNHNmpLalhlNmdUaThHdEQwNTFfRHg1RS1lQ1BSM3ZXcHo4STJIeWFnaHRJSERWMWVlblBzTEY?oc=5) |
 | How 'Daddy' talk and Trump and Rutte's bromance stole the NATO spotlight - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQWXJ4WnhySDZwWWtpUU9oM3hEU0steEYyNDVNcjUwa09pOXFZWTY3SnB3RDlTY0pSellIeWJvc00yOXhzN1VtaDJWSi1HUFdjV01SOW1rZk9EUlBYNE5FRUhoNFRGQTRHRHdUM1hPaUxPWWY2NkJFZTM5M2hkMWxlWGFQN3JUVFRFV3RFUWFDVXhuNk1wLUxCZXFpMHplaWJHNU000gGoAUFVX3lxTE1PazRrWlFYYTlGZkFmTmZXWGxYLXZ2YXFOM0RzVnM3S2tvMnVkS3M0U25iZE05SnhWT3FJeUJJa3pQUTlHb3ZCQUt1OGJBVTlKUHNPVWxVLVJaWk1rbFctdXlnVXZhSURNQkNvd0h0dE1NV0NjYkxiNnRUbUQzRnEtQ2lFV055MEVubWVCNzFLVW1ockpBQTZ0blYxSmpoaUl2WHBxVkJYNA?oc=5) |
 | House GOP holdouts threaten revolt over Trump and Senate’s tax bill - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeTZuVENoTlF2eFJQeDBSRy1KODhOazlDUF93VFMwVDZtWjRsY1lzSm1UdlBncVF2ZUNZN3NRWWFyZUY2NmNOTkMxQUd1aWdVSHVweUFOc1llWnV0cm55WkJmczB0UFMyaWhVY3dPN05WWHZ4b0d3R01tTWVCUXZfMU9FR01oUTRPQk1BTVZyYw?oc=5) |
-| 10 Years After the Supreme Court Legalized Same-Sex Marriage Nationwide, Here’s What Couples Think - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPVlBvUXBrWTg0U0xKUENMS2lRS2NPMFJFVHpOTl84OVRLQXN3YW5tUVZsTExnRDd0SGI1dnQ5YjJLZnVkLXhDejZicDVITTRZbzFEUlgydXFDdEFOdTRSdDFsZlU0M1JJa21iTVNrMndPUTgxQXNsZVNoX2l0X2lWWHhnWQ?oc=5) |
-| Behind Trump’s 2024 Victory, a More Racially and Ethnically Diverse Voter Coalition - Pew Research Center | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxOcGZEX0tjYW9KRjRTY29IOWh1UG5SOWxtcld2OUQ3NW8xLXJjeTNiT1gwQjFCQXl1Wk5mNDY1dnVtczhmRU1KWXh6cGxmQzYzTVJDbExjd1pubnRicUx4c3Y1R2xSWk1OTU9LcjFnRXBQVU9LUkNVR1k5YXpyempVNDJTWGtqeGxSRE91ZEM3X3huYWFwanYxY0RSQXRiX0FUYWVkWm94TGFGempLZ3djcDZZY285NkkzSUpzUnkwNjM1VkE3SWVzRzBR?oc=5) |
+| How America Changed After the Supreme Court Legalized Same-Sex Marriage in Obergefell v. Hodges - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPTDU4VjhWbEtyRG42UFlTUktrXzM1bHNBdUhHeXhRaU5CZjU1c3BHXzNWSVlDR3oxZk92VjJzbjFjbDNFUG96RExTUlU3dlJhS1hBeWk4QjBiYnZwWUs0akhGUV9IZEpXQjZpUjVIanZOYlBTRWc5WHJpOG5jLVM3TDdQYkxxRzZxb09jUkZfdDVTVTNlNVRwYjRR?oc=5) |
+| Hegseth says US strikes on Iran were 'historically successful' after ayatollah downplays impact - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFBqNldkTXprbUI2dTN6UzA1NFk4bEd3WjVJQTVzdnRxOFNXV0JHanhVWFkwUkdVRWw1emFtUzQ2VFlxalZycC16TlNUUWUxcExrWlk5Tw?oc=5) |
 | Bill Ackman pledges to bankroll any NYC mayoral candidate capable of defeating Zohran Mamdani - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNblE3bFBPcGdaUWxRRTZnYnpsMTdTeWFEVGMyS1BPWlE5cUYwdnpuTDFmLWwxSExfRWR4bnpwN3ZTRjFiRTUyeTFTS0ZpLXBUbnpQU1NIa2JmaW1EdUxJR3ZQUXFMdHRMS3FxTTlGREpLQ0REY0NDNVNLb1Nxa3RsQUppM1lZWnBKb0g3YnNXckJxQ3NfZndKQlpVSmc?oc=5) |
 
 ---

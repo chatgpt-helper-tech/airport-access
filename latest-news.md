@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月27日 01:52:10（北京时间）**
+🕒 更新时间：**2025年06月27日 02:00:38（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Early intelligence suggests Iran’s uranium largely intact, European officials say - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE45X3RwT0psN1NMYjR3Y19aUlVmSnFPRmRCN2xyT0NWdmF5VThvMm12LWNPa2lDcFA2SzJTZGlSUUxrV0c0SXMtUkk0S1Y2WndQWTdscHlQVmkwZkxvVmlXSkV0Uzc5aTM3NFhnVTZTVTA?oc=5) |
 | Experts: Damage to Iranian nuclear sites likely far more extensive than leaked DIA report - Jewish Insider | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOTU1GYVk1eWNYTGJxWm1ESFRKd2VlSV9yUDZFaXlLUFJBZjhhR0ktR1hLWS1GUWJlYVZDbnFqOEVHemRlODY2VlNzQXRpaGNDQlRvSDhRZk1ZeUEzR0R3cmgwUVpoMGNRV2lTV19PeGUwVzNHNmpLalhlNmdUaThHdEQwNTFfRHg1RS1lQ1BSM3ZXcHo4STJIeWFnaHRJSERWMWVlblBzTEY?oc=5) |
 | How 'Daddy' talk and Trump and Rutte's bromance stole the NATO spotlight - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQWXJ4WnhySDZwWWtpUU9oM3hEU0steEYyNDVNcjUwa09pOXFZWTY3SnB3RDlTY0pSellIeWJvc00yOXhzN1VtaDJWSi1HUFdjV01SOW1rZk9EUlBYNE5FRUhoNFRGQTRHRHdUM1hPaUxPWWY2NkJFZTM5M2hkMWxlWGFQN3JUVFRFV3RFUWFDVXhuNk1wLUxCZXFpMHplaWJHNU000gGoAUFVX3lxTE1PazRrWlFYYTlGZkFmTmZXWGxYLXZ2YXFOM0RzVnM3S2tvMnVkS3M0U25iZE05SnhWT3FJeUJJa3pQUTlHb3ZCQUt1OGJBVTlKUHNPVWxVLVJaWk1rbFctdXlnVXZhSURNQkNvd0h0dE1NV0NjYkxiNnRUbUQzRnEtQ2lFV055MEVubWVCNzFLVW1ockpBQTZ0blYxSmpoaUl2WHBxVkJYNA?oc=5) |
+| Hegseth and Caine Delve Into Details but Not Results of Iranian Strikes - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE9CbnlSSHZ5d1dxN0duSXBhZ25rbGNsVTNORkliMXFIY2hWcWdOczlmc2I0R2FRcURqYUF5MjFXT29QaDV2ZFptMlNpZmY1YTNTMVBXYWJSZldOcXVvZDF0VmhRUXlhNTFRVkxJUWNFUlJUZzczSzNROWFR?oc=5) |
 | House GOP holdouts threaten revolt over Trump and Senate’s tax bill - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeTZuVENoTlF2eFJQeDBSRy1KODhOazlDUF93VFMwVDZtWjRsY1lzSm1UdlBncVF2ZUNZN3NRWWFyZUY2NmNOTkMxQUd1aWdVSHVweUFOc1llWnV0cm55WkJmczB0UFMyaWhVY3dPN05WWHZ4b0d3R01tTWVCUXZfMU9FR01oUTRPQk1BTVZyYw?oc=5) |
-| 10 Years After the Supreme Court Legalized Same-Sex Marriage Nationwide, Here’s What Couples Think - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPVlBvUXBrWTg0U0xKUENMS2lRS2NPMFJFVHpOTl84OVRLQXN3YW5tUVZsTExnRDd0SGI1dnQ5YjJLZnVkLXhDejZicDVITTRZbzFEUlgydXFDdEFOdTRSdDFsZlU0M1JJa21iTVNrMndPUTgxQXNsZVNoX2l0X2lWWHhnWQ?oc=5) |
-| Behind Trump’s 2024 Victory, a More Racially and Ethnically Diverse Voter Coalition - Pew Research Center | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxOcGZEX0tjYW9KRjRTY29IOWh1UG5SOWxtcld2OUQ3NW8xLXJjeTNiT1gwQjFCQXl1Wk5mNDY1dnVtczhmRU1KWXh6cGxmQzYzTVJDbExjd1pubnRicUx4c3Y1R2xSWk1OTU9LcjFnRXBQVU9LUkNVR1k5YXpyempVNDJTWGtqeGxSRE91ZEM3X3huYWFwanYxY0RSQXRiX0FUYWVkWm94TGFGempLZ3djcDZZY285NkkzSUpzUnkwNjM1VkE3SWVzRzBR?oc=5) |
-| Pritzker launches campaign for 3rd term as Illinois governor - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPS0JnR044UTE1N0Fxd1Rrb09GTTB5U3N4YXMtS0tRcExUSEZNZm4xa2FJT1JYTHRSM3RFRTlJby1oMnRrbk94MGZmZHBDa2djSXozb1E1cnQ5YjFuTGp5cVB3Yk5nVzZpZ3FHMzY0TlVqMXRUY0V2Nm5vbERSLXlrOTVWOG5LTWVSSnVTZXQ0ZWVab0lIOXVBVzhn?oc=5) |
+| He sued for marriage equality and won. 10 years later, he fears for LGBTQ+ rights - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPd09HQmtKYXV5VzZjVmQyWC1PVl82S1QtWWlyeHRVekI5alFhQS1FeEt0Rkg0NVc0U2k2c0FybGVhdGRacmFURlo3R25XRDRfOXFpbVZRNEk3S0tEM0w2YTNVLUNxMzgyWm1KQ210bElYckMyYy0zSGxwZlF3a2dYWWVUMkFGZGQ2aEZqaWp0ZDI2dW9NMzM4?oc=5) |
+| Bill Ackman pledges to bankroll any NYC mayoral candidate capable of defeating Zohran Mamdani - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNblE3bFBPcGdaUWxRRTZnYnpsMTdTeWFEVGMyS1BPWlE5cUYwdnpuTDFmLWwxSExfRWR4bnpwN3ZTRjFiRTUyeTFTS0ZpLXBUbnpQU1NIa2JmaW1EdUxJR3ZQUXFMdHRMS3FxTTlGREpLQ0REY0NDNVNLb1Nxa3RsQUppM1lZWnBKb0g3YnNXckJxQ3NfZndKQlpVSmc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
