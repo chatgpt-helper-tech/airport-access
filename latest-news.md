@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月26日 19:14:25（北京时间）**
+🕒 更新时间：**2025年06月26日 19:26:50（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | My wife and daughters left behind a legacy of love, John Hunt tells BBC | [阅读全文](https://www.bbc.com/news/articles/cy5wk716pzdo) |
 | 'They were the best of us': John and Amy Hunt speak for first time about murders of their loved ones | [阅读全文](https://www.bbc.com/news/videos/cp82l17397jo) |
-| Government in talks with Labour MPs on welfare reforms, No 10 says | [阅读全文](https://www.bbc.com/news/articles/c8731w0d8yvo) |
+| Starmer confirms talks over welfare cuts climbdown | [阅读全文](https://www.bbc.com/news/articles/c8731w0d8yvo) |
 | Amber heat health alerts issued as temperatures to soar | [阅读全文](https://www.bbc.com/news/articles/c79q8y84exdo) |
 | What might James Bond be like under new director Denis Villeneuve? | [阅读全文](https://www.bbc.com/news/articles/cn41yddj4m1o) |
 | One child in every classroom is IVF baby, new research suggests | [阅读全文](https://www.bbc.com/news/articles/c3en42pwdwyo) |
@@ -29,9 +29,9 @@
 | 'Equal dignity': U.S. map shows the impact of Obergefell v. Hodges decision - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPU2dzQVBxVk1kRzFCczVaOTd6YUFwSGsxeTFiVlhGYmhXbDRmc0FQUk1fRnRBbFdMREx1LWkwSjl6OXptNzlxTmZqTEpGa0NsZXMxZWFyam1fOEY2dlgxN1RiYk1SajIyRnVfOXJiQWcxc3M5UDFQNm1KRVc4eW1WNWxtbTR5SE1KVms1NF9oQQ?oc=5) |
 | Iran's supreme leader claims 'victory' over Israel before first video message since ceasefire - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFBqNldkTXprbUI2dTN6UzA1NFk4bEd3WjVJQTVzdnRxOFNXV0JHanhVWFkwUkdVRWw1emFtUzQ2VFlxalZycC16TlNUUWUxcExrWlk5Tw?oc=5) |
 | Scoop: Trump hosting "everyday Americans" to squeeze GOP holdouts - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNTDRaZ0plemU5SXVDWHlRMWNjOG1hWndYR2ZFeWZ6b296c2RIZGlGNXdWY1RFcy04bFhlcE43eGhxZy1zMlNjSVpVdldNaXdlUnF6Y2xUME5BQnJ4REctMWIycFF4TDBjWTBzZW1BN3hIVEhsbzBBWUpNQmFzZklrV2Vn?oc=5) |
+| Kilmar Abrego Garcia remains in custody for now amid questions over what happens if he’s released - CNN | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE9RZk9aMEhJYmRtN2xqWHlSSVR5SVl3SDlSeVN4Y1FUQlRaWDM5U1lLa2tSOURtWXotY0pacDREN0l2SGpTcFZEcVcxS3ZnZk9nOTI5MVhCRDduN2xUQVN5N1otVFBObFkxNE9UV1dn0gFzQVVfeXFMTm9uQVkxWFFJamF2RkZNd3BoNDBPZ3RKcGp5Tmw2c0d1TUVFQk9FcVYxWjRzNWlBc04yRElIU1hSOTlDbVdSZ3FTN2ZaelZuaElJSG9IWkc3U1pQLXB3Vm4wY1RQUHJEWlRLaTZsMk1MUGdtQQ?oc=5) |
+| Poll: More Americans oppose the U.S. strikes on Iran, as MAGA supporters line up with Trump - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNeE5rc0dKYzJLWXZKUGI2SnNVYmVfazQ3T1dmSFlnbFNUdHo4YU91ZGU2Ym0yMTNubkd6a283V2RwcThoZGppZEIyVFNMblo4c0xIVnNFWG12SktESDlKcmppTjdpX2JWMG43VGxQdVJMVGRLUXJONmEwLUtqckc2VVNfYk4zY1Jabjkxekp1aVhZdWdhTy1VR01SR2NhLTJ6ZzM1dnNObDdXUlFIbW1fQ3N2TWgxTTNxVkF2cUI4LUs3bVhXdWhES9IBVkFVX3lxTE5zYlFMU3Nsc3ItOEd6aFpNTk9XeUhRQk1NZE13VGl2a0dzblRfc3o4d3R2VkdpVEhBbXVBMUdaYVI0c0ZGRlZrLWJ0T3diZVR2UXRpODdR?oc=5) |
 | White House to limit intelligence sharing, skip Gabbard at Senate Iran briefing - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOUFU2MGlHdU1FWEVIcFBQVVhQdkVFMC1iR2NPRmEyZGlNdWRNQkwyRmdQdGhydjBjdXQzVXpnWktUZzhheTV5RXk5QUVsemR0bC1qdFhLNmduMVZCeEhFczFXcGMwOGhrd0I4cGdmMS1EX05SdFIybVp4YmR4OThHVlJYUUZiaWtHa3p1NUFBR21ZYU5NTkZzazJn?oc=5) |
-| Kilmar Abrego Garcia to remain in jail while attorneys spar whether he’ll be swiftly deported - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPVGs4ZEp0YnZQNFZ3alNQczk3eXFjc3pzbDVUX09lWjNTZVhqR29xZzBham00dVR6aHM1ekh0ME9neXQyemQxb0s3THQ5YTUtcFZqYnA5bzZmRDZXOTlDenE3U01XZ1VWdkYwa2ZBZUE0LXItSm5KUGl2YVdISHVqbHlKemFMVVozdTljQTR1UWxSWGVpeXZpbWNn?oc=5) |
-| Trump calls for Netanyahu's trial to be canceled - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPSC1HejJMdEtFbThHSHk2aExFSjNHNGdyc0EyVE85MlVRelNGVXJmakd1RVlLMFVNemFTZjllMXVoQkR4MXktYXBXcG03RXE0dWNoY09jNVBlREJ4b09DR2xBR1V5QTBDc1JVUjBhdURIaFlWbGhCQjdpYXZ6RDF4VFhyaVlJLUJfZjBkSmFCQnV1WHpuQkJHZzY3V0lYSEdLMUE?oc=5) |
 | RFK Jr's vaccine panel to review long-approved jabs for children - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE55OW5nMXp2X3NDTnQyRkx3MXpxVUtKNmpFMW5mN0hNM1VJWWVnZGtONHhQY3F0dlZPVkJ2LVVxZGx4UnhidjNZb09NZnZmaXVaZDlXYWxYUEhSZ9IBX0FVX3lxTE9heGNjd2JxLWxVSXlOYTlmZVhBakRpOFNqTTkxMlFLVlBxal9nUDY5WV9DTDB6U2l6R3dEZ3ZsWEloT2xRc3MtS3hlRTUyR2d0NXhTRjlQUHF2dTNRamIw?oc=5) |
 
 ---
