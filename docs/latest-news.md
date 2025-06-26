@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月26日 17:39:45（北京时间）**
+🕒 更新时间：**2025年06月26日 17:53:50（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | White House to limit intelligence sharing, skip Gabbard at Senate Iran briefing - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOUFU2MGlHdU1FWEVIcFBQVVhQdkVFMC1iR2NPRmEyZGlNdWRNQkwyRmdQdGhydjBjdXQzVXpnWktUZzhheTV5RXk5QUVsemR0bC1qdFhLNmduMVZCeEhFczFXcGMwOGhrd0I4cGdmMS1EX05SdFIybVp4YmR4OThHVlJYUUZiaWtHa3p1NUFBR21ZYU5NTkZzazJn?oc=5) |
 | Iran intensifies internal security crackdown with executions and mass arrests - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOSGdkWkRHczFSRWpJUkU0TTJTNWc5RVpUNUh6RTEwWTEwaGhXa2tVcjB6emtVUEJjRFoxem93Q285YVdZUU5TaC1ZXzdXWUF0OVI5Z29sZDdIdXhZTy1qWF9sU0dfclYxYk9vRUQzSzE1YUpvdm1jd090TUR3R3pIVlBzMXM5MVZPbXhScVVFWWRDMmlxOE95WjVRTVdFSDdnN2RaeG9WWlRRNEx3dlF2TEVabk5RMWc3cVJyN0xESUU?oc=5) |
 | Thailand's 'weed wild west' faces new rules as smuggling to UK rises - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1HT0ZnRmRmRXhuOHdlc3BURkNRSnJTaGxGRDFhRVNjMUdNN0hiYXRuUmp3YVRGaGtwRnM1aE9zbC1HVUZscVZDbzZFR2l0WWMtRmlLdjV4QmlOZ9IBX0FVX3lxTFBmWmpQY0xvQ2tfLUQzSklUYnJYMzI3Z0FLS25Hb3BlU0RWSHY2ZmRtNkhrX1dZQmlfMnYwcTR0OVk4aEt0YWF6TERQM05UMTIwUjJxTWpvZWZ0WlRMUm1Z?oc=5) |
-| Abrego Garcia still in custody as judge asks if DOJ can prevent his deportation while awaiting trial - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOdFFPa09nMXA5OFNFaml0Ukd5bUVpNVB0ZDU1UDFSX25ZdEhMNVkzN0lWMzhORWg0UkdtTF9zaHZkdUY1enFEYVV6SXhNVnYwOEJjbVd2ZEpybGstNmZyQXE1N1NmRGRlMU5ERWJlb1NUcy0tSVNLZlFJNDloekt2U19yUTVocDZ2SEd4N1I0a25qbS1OUk1YeHBWQmZhQdIBowFBVV95cUxNZXlsNlhwUDdrRy1lajVJeDBDNGd1ZHFhQy1ORENpdEIxTEtVRnBaeGZrU1hJNk8xMUppLWJfTkd0cV90MHBRRmJTbmJjdG5wbGlGRjNEc0c1QVk2U2dwWVhHblg0UkZQVklSMFZoQnh6MGhZVkZQMlBIYU8wSzc2ekh6ZU1Wd2tYX1hFc2hTWlhUVjNMWFR6LThwazJWVVJvOVhZ?oc=5) |
+| Kilmar Abrego Garcia to remain in jail while attorneys spar whether he’ll be swiftly deported - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPVGs4ZEp0YnZQNFZ3alNQczk3eXFjc3pzbDVUX09lWjNTZVhqR29xZzBham00dVR6aHM1ekh0ME9neXQyemQxb0s3THQ5YTUtcFZqYnA5bzZmRDZXOTlDenE3U01XZ1VWdkYwa2ZBZUE0LXItSm5KUGl2YVdISHVqbHlKemFMVVozdTljQTR1UWxSWGVpeXZpbWNn?oc=5) |
 | Trump calls for Netanyahu's trial to be canceled - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPSC1HejJMdEtFbThHSHk2aExFSjNHNGdyc0EyVE85MlVRelNGVXJmakd1RVlLMFVNemFTZjllMXVoQkR4MXktYXBXcG03RXE0dWNoY09jNVBlREJ4b09DR2xBR1V5QTBDc1JVUjBhdURIaFlWbGhCQjdpYXZ6RDF4VFhyaVlJLUJfZjBkSmFCQnV1WHpuQkJHZzY3V0lYSEdLMUE?oc=5) |
 | RFK Jr's vaccine panel to review long-approved jabs for children - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE55OW5nMXp2X3NDTnQyRkx3MXpxVUtKNmpFMW5mN0hNM1VJWWVnZGtONHhQY3F0dlZPVkJ2LVVxZGx4UnhidjNZb09NZnZmaXVaZDlXYWxYUEhSZ9IBX0FVX3lxTE9heGNjd2JxLWxVSXlOYTlmZVhBakRpOFNqTTkxMlFLVlBxal9nUDY5WV9DTDB6U2l6R3dEZ3ZsWEloT2xRc3MtS3hlRTUyR2d0NXhTRjlQUHF2dTNRamIw?oc=5) |
-| What this Trump nominee says about his potential SCOTUS picks - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQQnZ1NERyMlhoQUJvR2MtdzR0S2RfX0U4cklSTFJBcnhaRDc2Y253Z2xhc2tqUUVvSUpUOTNUQWNKSlJ2RHRBeHNnbGlWc2dvUGkwTG9HU2ZyaWNtM2dZSnZTZ3dYQ3YyV0t1RWJkZW9fY2VyYUZvTjlJeFdMRGh2S0JkRnZqQQ?oc=5) |
+| Mississippi executes the longest-serving man on the state’s death row for 1976 killing - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNSzVybEUyQUU3NWNUaFhEZk53M01jT0lnQzFrbDE0TWNqM0RjM3RiWTNOU1NxMHZYbXBwTV84cG93NjZTbnZsemdGd29uWF9ZMlA3SWZ2cmlRbnhoTWdHS2tLZU1tM0R5RVdpdVVaQkg0VjY0RURmbEx5UGxvQjVvUG1Ka9IBiAFBVV95cUxOY3pmOHo3ZWxoLUd0aXlqWVFCbXVUR3R3SUowbkhZMU50X25oSUVXdXVBQ2JLTU56Mm5VdVNwTkdNakx1S2hNRkFJNGl1azgyNjVDNWhiMzlRZkFXc2l6UHV4Y1JOT0kyV2U0Y3hMRXQ0Y3NkTExXa0ZzbHZzVmFJNVFZeXdjZ19L?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
