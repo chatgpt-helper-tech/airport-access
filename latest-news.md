@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月26日 13:01:26（北京时间）**
+🕒 更新时间：**2025年06月26日 13:14:45（北京时间）**
 
 ---
 
@@ -8,6 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| My wife and daughters left behind a legacy of love, John Hunt tells BBC | [阅读全文](https://www.bbc.com/news/articles/cy5wk716pzdo) |
+| Watch: John and Amy Hunt's interview with BBC's Victoria Derbyshire | [阅读全文](https://www.bbc.com/news/videos/cp82l17397jo) |
+| A political storm is brewing over welfare cuts - can Starmer ride it out? | [阅读全文](https://www.bbc.com/news/articles/cn0z45d641do) |
+| CIA director says Iran's nuclear sites 'severely damaged' | [阅读全文](https://www.bbc.com/news/articles/c5yk942y437o) |
+| When Iran's Supreme Leader emerges from hiding he will find a very different nation | [阅读全文](https://www.bbc.com/news/articles/c0j4g1ll8yqo) |
+| New test could identify women at higher risk of miscarriage | [阅读全文](https://www.bbc.com/news/articles/c39zvjmmwndo) |
+| Touts employ overseas workers to bulk-buy gig tickets | [阅读全文](https://www.bbc.com/news/articles/c04e9k1vllro) |
+| Gaza mediators intensifying ceasefire efforts, Hamas official says | [阅读全文](https://www.bbc.com/news/articles/clylzlv91pro) |
+| Andy Murray wants to shield kids from 'damaging' social media | [阅读全文](https://www.bbc.com/sport/tennis/articles/cpqn22erd10o) |
+| Controversial project to create artificial human DNA begins | [阅读全文](https://www.bbc.com/news/articles/c6256wpn97ro) |
 
 ## 📰 Google News
 
