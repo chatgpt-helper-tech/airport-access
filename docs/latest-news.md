@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月26日 08:53:55（北京时间）**
+🕒 更新时间：**2025年06月26日 09:00:29（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Trump Demands Israel End Netanyahu Trial - Newsweek | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPRUIxM3BpZU9GOWZsVkNlTjhkTklSXzdPdlBZN0xBcUxtZy1BZVYwazhWVkRCSGlkM0FaNnBJNU1HYzYxb010THh3c1FyZnZwSzdzVVpLVnJkZjZJZUt6UFN6aUw2SlJqaDktZU11S2ZiSWlCNlVWYTkycU0zamY1d3RraE0xSDRlOVYtbVBQRFI3WHdzeXdPN0p3cVlGUQ?oc=5) |
 | Trump Administration Live Updates: Pleasing Trump, NATO Leaders Make Spending Pledge but Keep Some Flexibility - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE1YZTFFMjdkZjBWYk13ZDdZWF9qQ2dFeENMWnNLdDd2bVY3ZG5fSVdZblhjRi0yMkUxdi1GUFhsRDc1OURwNGxydzZrZVZfYVprVnZNaWhQWURTWGluRkZaUlhPYkxGdTl3Snc?oc=5) |
 | A judge ordered Abrego Garcia released. His future remains uncertain - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxObnRNM2RzWllNTjFaWFVXOW1vdU85M1lwS240cGl3VWFIM1pyX0tnaWRRNlo2anJuQ1pJangxQW5saFR3dkJJUi1NeHJnUV9ReXc3MUhuSEk1cFJPUFZGc1hMbDRqMzZxZHh1eDVCeXJkR2VGeG1TZ2JnTWhUdWRwU3AyRQ?oc=5) |
-| Trump changes tune on Zelenskyy and Putin - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFB6X3hGbktTWDFwSEFRQXBSMlc1WTJaU2hReEw3UDNpR01IVTh4R1NTT2RNcExUMUIzSXFORlhOemU1cDBPbVBjQ0tMODFNcW5nT0hHdmVEMWVyRm9aWFNTTmdTd2JIQ1Fmdl9oRTFUSDk?oc=5) |
-| Emil Bove Denies Suggesting Justice Dept. Ignore Court Orders in Deportation Cases - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1DM3A2clVNUHZkRUQ3NkRCZDE4dXpOdW5DRFdTcWZ4T2JuRGVaWnJGR3N6enhJTkxwOXBaNTk4NzVpOHM1Z0Q5WlJEc284S0tqeVYwUHoweDdpWUY4Y0otUEZ0eWZteHZ3Q2RTRnlrLUJyRjRycUNYT2ZheW9FOEE?oc=5) |
+| The Trump judge wars are back - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQQnZ1NERyMlhoQUJvR2MtdzR0S2RfX0U4cklSTFJBcnhaRDc2Y253Z2xhc2tqUUVvSUpUOTNUQWNKSlJ2RHRBeHNnbGlWc2dvUGkwTG9HU2ZyaWNtM2dZSnZTZ3dYQ3YyV0t1RWJkZW9fY2VyYUZvTjlJeFdMRGh2S0JkRnZqQQ?oc=5) |
 | When will the brutal heat wave end? Here’s what to know about the forecast. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQYWIwSVRYSmFSWFJvZWUwN0NLaGQ4R0NhOGVDVURFQ3pXYWczV2JRb2hIcHJTd2M2U1BQZGp2aDZoNENTRlJNbTYtaFlzVWttQi1sb1lBZHBHOHhiZFJ0c0JqY3VzblRZelhaVlBhSERQUE9ndU5jZTl2Ny1HXzU3SjRvZG9EUC1vRmRj?oc=5) |
-| Graham a 'yes' on rescissions bill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNeGhsdTlyMWJfMWFOUmhORlNKUldRd1J4TTVtaWxXelFKWGtMVDFJeUwyQWYtZVBTY1VQVGRrSXFWc3RvSnRHaUtyVFc0TWItQWE4ZHR2d2hPWVc1Rk51ekxKVV9RRk5BbDR2WHRxRTBxaXU4SHBCcmpld2pnYmFJVG5zMFByYmJ6NllpOUFjT2FwblRrODJGWWh3RTM1N1k?oc=5) |
+| Capitol agenda: Johnson warns about a Medicaid backlash - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOV2NWSWhZcTFtZ2lRQnZZSzZRalJwWE5SeDZfTGNMWXhDNzJHQkp5NV8tMlJtd0paVVNlUU5NbEVTdFpERkJlVHlaRVl4TFdOUllER245VVRMU25LNW92VGwyc0gyM3hRWTB6eGM5R3d1SkxGcWk1U0pLNVZNMElySUdodWlxWlNVT0pYVzZZQmdzTE1FOXhra1BLdmcwaTRoZU00QnBCYkJYVnF6Vkg2c3ZKZFVyNHA4V2NCbjlR?oc=5) |
 | Mississippi executes the longest-serving man on the state’s death row for 1976 killing - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNSzVybEUyQUU3NWNUaFhEZk53M01jT0lnQzFrbDE0TWNqM0RjM3RiWTNOU1NxMHZYbXBwTV84cG93NjZTbnZsemdGd29uWF9ZMlA3SWZ2cmlRbnhoTWdHS2tLZU1tM0R5RVdpdVVaQkg0VjY0RURmbEx5UGxvQjVvUG1Ka9IBiAFBVV95cUxOY3pmOHo3ZWxoLUd0aXlqWVFCbXVUR3R3SUowbkhZMU50X25oSUVXdXVBQ2JLTU56Mm5VdVNwTkdNakx1S2hNRkFJNGl1azgyNjVDNWhiMzlRZkFXc2l6UHV4Y1JOT0kyV2U0Y3hMRXQ0Y3NkTExXa0ZzbHZzVmFJNVFZeXdjZ19L?oc=5) |
+| Trump Administration Says California’s Trans Sports Policies Discriminate Against Girls - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBsOEJYWUxFZUw1YXU1Mmk5SmtzelRub2JVY2dEVlBpQ01VSnc4MENqQ3Y3TFNwTjZJSUNDcS1FTWYxRkRSSTZ4b3BDQXNnLTdDeTgzbFZGWnN6XzVFRFVWMzY3R1pldE9VMnNLODF5QzgtbFNObWZUTGYyWjNmNzg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
