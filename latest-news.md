@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月26日 12:01:50（北京时间）**
+🕒 更新时间：**2025年06月26日 12:14:30（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | Trump administration says California must bar trans girls from girls sports - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNTHBWam9tMTQtZ0Z5Zl9BMi1qcEVVYUlScnRxNXBKZHpLV1N4bzl5V3VmWThFYXk5QVQ5ekh3VFFkU1UwXzlNeG5fdFpQN19pdnF5ejJtSGpvSFItSjFYMnRyZ1FRY3NoVXM2eWRZZmxWb3JCQzBaZ0FGZTNqMkt3a2hKNzQ3STR1RW0zRW5GYlJkRG9jYU9oSlExWmxXRmhlX1p3?oc=5) |
 | Senators question Trump plan to kill federal funds for PBS, NPR and some foreign aid - NPR | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNZDhENVd4Q3I5Qm56Q2s5b1U5S21XdUhpbEJUdl9hWVF6TkFuX1lldGpMZUtjZHp6LUNkYTdrSWlLRTZJSmREbmNUNEdsZ2xESkxtSmNzbHVmcVVJRmhVYWFUSmVqQzg0akVaVHNNV1RwaHBha1dpUkN6ZWpUY0UzN3NjX1hVRnJ1cEdidk5BaXgxd0RsUy1ZWlZZVEdDUQ?oc=5) |
 | What this Trump nominee says about his potential SCOTUS picks - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQQnZ1NERyMlhoQUJvR2MtdzR0S2RfX0U4cklSTFJBcnhaRDc2Y253Z2xhc2tqUUVvSUpUOTNUQWNKSlJ2RHRBeHNnbGlWc2dvUGkwTG9HU2ZyaWNtM2dZSnZTZ3dYQ3YyV0t1RWJkZW9fY2VyYUZvTjlJeFdMRGh2S0JkRnZqQQ?oc=5) |
-| When will the brutal heat wave end? Here’s what to know about the forecast. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQYWIwSVRYSmFSWFJvZWUwN0NLaGQ4R0NhOGVDVURFQ3pXYWczV2JRb2hIcHJTd2M2U1BQZGp2aDZoNENTRlJNbTYtaFlzVWttQi1sb1lBZHBHOHhiZFJ0c0JqY3VzblRZelhaVlBhSERQUE9ndU5jZTl2Ny1HXzU3SjRvZG9EUC1vRmRj?oc=5) |
 | Mississippi executes Richard Jordan, state's longest-serving death row inmate, for 1976 murder - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPanN6LWRDN1dEYW54dEF5M3BUMTJaeXBsQ0FIZnJKVlctVkpQUjVpa1QwSkJUSXhzZU4xcDZPSDJ6bEtqNDV4RVI1ZU5TZGRsVy1nbjE2aE5DdUNCRS0zX2ZwNGdybWZnUkc3U2hWdF9sVE8wZ3lEREFIZkJIUmdPZGp5a2JKUmFIQ3dv0gGQAUFVX3lxTE9pdUlvOXh6WEk2a0U5XzBzajdjRW55WG5nRmwzMG9Jc2pUclVZcWtJaWVLcVNCYjM2R1ktaF8xdFR0VTIwSEpyTjBZZ3RXTHNCbGdfOVFBN3JpV3o3Tm9seHhOMWM5bXliMHhGZVFydG5zLWZCZjdvY000eWZYVDNtaE5OVnAwazd4SzQtc1FMNg?oc=5) |
-| Kilmar Abrego Garcia remains in custody for now amid questions over what happens if he’s released - CNN | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE9RZk9aMEhJYmRtN2xqWHlSSVR5SVl3SDlSeVN4Y1FUQlRaWDM5U1lLa2tSOURtWXotY0pacDREN0l2SGpTcFZEcVcxS3ZnZk9nOTI5MVhCRDduN2xUQVN5N1otVFBObFkxNE9UV1dn0gFzQVVfeXFMTm9uQVkxWFFJamF2RkZNd3BoNDBPZ3RKcGp5Tmw2c0d1TUVFQk9FcVYxWjRzNWlBc04yRElIU1hSOTlDbVdSZ3FTN2ZaelZuaElJSG9IWkc3U1pQLXB3Vm4wY1RQUHJEWlRLaTZsMk1MUGdtQQ?oc=5) |
+| When will the brutal heat wave end? Here’s what to know about the forecast. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQYWIwSVRYSmFSWFJvZWUwN0NLaGQ4R0NhOGVDVURFQ3pXYWczV2JRb2hIcHJTd2M2U1BQZGp2aDZoNENTRlJNbTYtaFlzVWttQi1sb1lBZHBHOHhiZFJ0c0JqY3VzblRZelhaVlBhSERQUE9ndU5jZTl2Ny1HXzU3SjRvZG9EUC1vRmRj?oc=5) |
+| Abrego Garcia still in custody as judge asks if DOJ can prevent his deportation while awaiting trial - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOdFFPa09nMXA5OFNFaml0Ukd5bUVpNVB0ZDU1UDFSX25ZdEhMNVkzN0lWMzhORWg0UkdtTF9zaHZkdUY1enFEYVV6SXhNVnYwOEJjbVd2ZEpybGstNmZyQXE1N1NmRGRlMU5ERWJlb1NUcy0tSVNLZlFJNDloekt2U19yUTVocDZ2SEd4N1I0a25qbS1OUk1YeHBWQmZhQdIBowFBVV95cUxNZXlsNlhwUDdrRy1lajVJeDBDNGd1ZHFhQy1ORENpdEIxTEtVRnBaeGZrU1hJNk8xMUppLWJfTkd0cV90MHBRRmJTbmJjdG5wbGlGRjNEc0c1QVk2U2dwWVhHblg0UkZQVklSMFZoQnh6MGhZVkZQMlBIYU8wSzc2ekh6ZU1Wd2tYX1hFc2hTWlhUVjNMWFR6LThwazJWVVJvOVhZ?oc=5) |
 | RFK Jr.’s Handpicked Vaccine Advisers Are Set to Meet for the First Time - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE82YW5mRGpQMTlkbkx1MUo2SjR4ZmtXdXdQVENIMk1sdnBaT0JHSWRURmFnSnNMdGtHenRJRHM3SExleXM0ZVkyS0o2cFN2WTNmQ1VaY1hvOXJyYU03ZVV3VkZXSnBhMlJLaUloX3lKUWIxbUJlald5SGYyVTI?oc=5) |
 
 ---
