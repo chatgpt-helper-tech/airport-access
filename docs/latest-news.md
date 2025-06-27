@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月28日 06:13:37（北京时间）**
+🕒 更新时间：**2025年06月28日 06:26:04（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Major Unions Are Dropping Cuomo to Back Mamdani in N.Y.C. Mayor’s Race - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNS0hZWUNkNGQ5Y2xjNWw5bGJUOWQ2V05SV01henpnbk9femw2VFNaVDEzNGhXdGRkcVdTdmR0RnJhMDRtVDg5bkExa1preUV0ckhxZzBLVTI3TWRDaEw1YUFxWkF1NFc0XzdYV3pXTnl0bUwtdDdFUGdrNzJtWWxiRWRocjlDTHQx?oc=5) |
 | Supreme Court sides with religious parents seeking to opt out of LGBTQ storybooks - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQTjh6RE85TlFpd2F5ME01eUM0Z0ZHaVNycnRweFpVcmR1Q0xJQ1A0dzVBeEFiOEFWSk9DZFBwVl9SYkM0OTZMaUk3YzdCSVNCMkZkaWtRdm9meWxEYks2aURReHRFMkV4TGhNSXJaT0xWM3dBUjJZWTRJS3lnNTlWenlwdW41bzMyWnMwLXNUUDY5cjA1UmpvbnJtUQ?oc=5) |
 | University of Virginia President Resigns Under Pressure From Trump Administration - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQX2VQNS15R1RRZ0RtQy1FTzRyRjZsVXFLS0NTeTROWnNsOHJ3S1loS2ZFWXgxX0lLem1LOU9ydGdOUGRjT3dUbTQtN0pjQUJnRExITmZTUW84NWt6aThuWWdEd0JJYzFycTBvVDNzc1E4aGFQelNXVXBYYzJpU1ZmcXp4b1Nlc0tsMUJnbXJOX1VVZw?oc=5) |
-| Tax Bill Delays Mount as Major Disputes Remain Unresolved - Barron's | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNbVV6bDloSFBid29heWFYTkNKbHJ4eXcwX3hSRW9yQmROdDBPWUN0YUZiWFpOeFhvQVJZTHVQclItOGxacVVUODg5dk02eVpld3JJc1M2RG0zZkltZHlfWmxtYkV6WUZQV0lQRWxDMTFlM2Q2YzJ6UE5UTG5ndS04ZU1ocVA?oc=5) |
 | A slain Minnesota lawmaker's beloved dog, Gilbert, stays with her as she and her spouse lie in state - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQU3JlZXZCRmhpOF8zdjgxNXpqMW1sQzNENUFndEJuY250RUViRDdkS2tRMVlXOXZuOGNFdjFJUkxrRGpURWdlazZIWmNCMm9KSmVjSXZreU00R3ZXNndRWWhQTWxvLTV6bDJISkVjV0NieUdJR2VaTUJaNXRkcThTVi1Uc2wxTGRCMnB2MkJsQ3pvcDVzWDVldWZ3bzM?oc=5) |
+| Tax Bill Delays Mount as Major Disputes Remain Unresolved - Barron's | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNbVV6bDloSFBid29heWFYTkNKbHJ4eXcwX3hSRW9yQmROdDBPWUN0YUZiWFpOeFhvQVJZTHVQclItOGxacVVUODg5dk02eVpld3JJc1M2RG0zZkltZHlfWmxtYkV6WUZQV0lQRWxDMTFlM2Q2YzJ6UE5UTG5ndS04ZU1ocVA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
