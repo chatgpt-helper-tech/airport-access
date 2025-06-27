@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月27日 10:26:39（北京时间）**
+🕒 更新时间：**2025年06月27日 10:40:24（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump Administration Tells Congress to Kill ‘Revenge Tax’ From Policy Bill - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQQUM5cEZnSkhQaVoySHVubmdJWXNRa2VCdTdHUlBQRGxvT1BCR3dGNGVCaG8wLVZGWER2anljOTVuc3poUlJoNEE5U1VaSGxxNmdoeFFCU2NWR0NFejNEV1lvaGNjbU1yWjB2SnM5OHJpc3NyY2FteV9vTV9CemNtQUFvQ0xob25vS05pVDNmN2pUWG8tNmNONTlfaw?oc=5) |
 | Pete Hegseth attacks old Fox News colleague's reporting on Iran strikes intelligence evaluation - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNRzRXemVKQ3ZlWVdVMmROOWlfaElHa1I5UjRLekVDSnhGZjllbDVSamRscy12Y3hUSzBBZDZfR0Rad1JlMWEydE00Z2pCQnhiYzdqc3h3OG9DdXBFS1NHTTJ2ZFRfRmU4ZjFNeUVualducmNsYzUzYnFqd3dmNE1xcDN1aDAwUVFOdnBacDJUcENTYl9waHpsS1ZYSG42SFhUbW5DMDNfTVdEdw?oc=5) |
 | On its tenth birthday, gay marriage in America is under attack - The Economist | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPWmFfa2ptakxTdVB5cUJWeVhvMDlkYVNXQkxiWWFOQnVZMlBGZ1B2bW1SRWU0OTNyQ1Uzc0w2SFNtNXk1cFo2Z2I4Nl92RUJINnI1SWdwMWU1UEpBaWkzUFRncjFsU1Q4M25jemFmU0EwaHo3cmpveWxUWVI5VkVlMENVb21mQVJFbzFZN1N0aEJYa3VQczYyM25xb19LYmYwYnZuNl9xSXF2Vk5ZZkNnMzhB?oc=5) |
+| Kennedy’s vaccine panel met for the first time. Here’s what to know. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNZGN4bTM4RnFTTEhMbUc3VkN4NG42YUhXNmtFYVZ5S195aXU0MGRQQ1NlM091WVBPbnBVVl9VcFdYUE1sTDB5Y2xOZ25hd2xldmxxSzhFZU5UZ1B5QVVDNjd2WTFSUnFFNXFNNzV5V1QzMzB5WkxzVzBMaW5mb3ZpTUg5WXlBRldxSExtZWNnS3VZVHZTSHluQUxqelA3WEcxQTRpcFZWNFNiU1dTQ2NDNXdPVUM?oc=5) |
 | Cuomo will stay on NYC mayor’s ballot after conceding Democratic primary to Mamdani, sources tell CNN - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQZnZucmJjeHp5TmNwRk1ablA2Q0M4T1A4dTI3NTZoSm11WHd1Q3I5dDhVWmp3bFZZaHNxSS1nTmEtV1ppT3ZscU1rQWktVWcxZC1yZ0s5VHNFUElIYWFLWDNXWmRqdm1BVV9jNkdHR25DZTZ6WFRnNU1URVZDQjdZbdIBhgFBVV95cUxOS29Za214WUtFQ3l6MXdnb1pyX0lIMlotSFNNUWlxZlc3MG1RN3hfMmZDLXM2X3ViLXBmVWZYSFpDTUVVNHIweFl4ZkpRb013Qm9WNTZscFdMOG5xUEhBM0FaT0JlTjE2SGlOZUFCVVhHTnEwWjktTWhoTFp6WXF1elUtRk9xQQ?oc=5) |
-| Bill Moyers, the former White House press secretary turned acclaimed TV journalist, dead at 91 - NPR | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxQbjVzSG56MUJ2SFV4ZmhCNEcyS1JUdEZ1V1VkMVBndTVaZHlzc202RktTZzZCWVktOWNlWGZFVTZYNGNSd2lDOVc5QjgwLS0yeUc3ZlJlRTR3RXVqcWdvSGozUm5PcVVjVDNBdHRpZHZxYjRtUXZrb3JpRC03MFR4bzFsblcxVzhyV0hRUVpIQVNuNXFYSzktS0FjYVNGb1pEV1E2LV9ObEZ5aUNpcTZRWEtCVnFwWkUwV2RzakRWbVpCRS14N2FOMm5SU2Z2bU9BS0hv?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
