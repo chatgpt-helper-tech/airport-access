@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月27日 08:01:00（北京时间）**
+🕒 更新时间：**2025年06月27日 08:13:33（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump hosts event to rally Republicans behind his megabill - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPcGk4Z0ExcmloY25GUzBHVXFDRHhXRDIwelVudkNVb2s0X2JZT2ZTZVZHc0t1MHJvelNqXzdrOHI0ajhkQVBlQ2FFTWJ6QVc2Q2QzWlI3dmJUR1JIYjJhQlJZcVJCcUh2bHlVRzVuYmFab1k2M1VpYUNaUFZUbUZaWWM4bzRyMFJzZEU2U1MwREd2S2VsRzdmVFV30gGfAUFVX3lxTFBWRk1XSjFpQmcyME94R0kwY1c5ZDBnLU1hOXB5alJtYmFvSl9SUEt3YzhIODNfZGRsNllxd0NsT001Zm5fZ0I4cVNERHB4aTJRMFNfTkZwVDdXcmZ4azNyYUIzZkJDcUlQb29NdDNiTmpZdnRMQnJtU3hrWjg4aFlvRXdpeWhYNVlQZ1J2aXRuWDB1cGxZNDlZOWh4ZDd1WQ?oc=5) |
 | Americans Share What the Supreme Court’s Same-Sex Marriage Ruling Has Meant to Them - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPVlBvUXBrWTg0U0xKUENMS2lRS2NPMFJFVHpOTl84OVRLQXN3YW5tUVZsTExnRDd0SGI1dnQ5YjJLZnVkLXhDejZicDVITTRZbzFEUlgydXFDdEFOdTRSdDFsZlU0M1JJa21iTVNrMndPUTgxQXNsZVNoX2l0X2lWWHhnWQ?oc=5) |
 | Supreme Court tees up blockbuster final day of term - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE9Za1VFeFl4TllRR3Yzdk8xOEpyaGQxY2xzMnpVbWhqMG9KSUVWM08xQ0FlMndSLWY1bnNDV2RnNktkMkdoX280ODB0ZU1NUHdSOW9id1BHbmRqaExiRUhwTFNqc9IBaEFVX3lxTE9VQlpXQWFCNjkwZmVjX2JVUzM2cWljM21sZ2xBVVp3VkxIbWliNnRvZE1vc21RVmw1WVBFTWRCa3U5WGhqdWVESHhUYktkUkRfQ0dRNkdGdVd0OGJTeEVBUFZJdlJyeGo5?oc=5) |
-| US pediatricians criticize RFK Jr’s new vaccine panel: ‘Truly an embarrassment’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxONTk4cEtVU3V4Y1J2UkNVWUFvY3JrenhDNDNib0U5MnhSZHZCUkhqQXdhZkFfbFpGdVIwS1pvWndYenQxWERXd0plV1AyTGpNZ3lIVm92a1JydDdmbmNPcDhZc1RaZm44Q3kzNDRuNDhYQzY4d2VRQVV2dkhhQmNzYTRLbGJfZw?oc=5) |
+| Kennedy’s vaccine panel met for the first time. Here’s what to know. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNZGN4bTM4RnFTTEhMbUc3VkN4NG42YUhXNmtFYVZ5S195aXU0MGRQQ1NlM091WVBPbnBVVl9VcFdYUE1sTDB5Y2xOZ25hd2xldmxxSzhFZU5UZ1B5QVVDNjd2WTFSUnFFNXFNNzV5V1QzMzB5WkxzVzBMaW5mb3ZpTUg5WXlBRldxSExtZWNnS3VZVHZTSHluQUxqelA3WEcxQTRpcFZWNFNiU1dTQ2NDNXdPVUM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
