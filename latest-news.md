@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月27日 11:01:22（北京时间）**
+🕒 更新时间：**2025年06月27日 11:13:41（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Pete Hegseth attacks old Fox News colleague's reporting on Iran strikes intelligence evaluation - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNRzRXemVKQ3ZlWVdVMmROOWlfaElHa1I5UjRLekVDSnhGZjllbDVSamRscy12Y3hUSzBBZDZfR0Rad1JlMWEydE00Z2pCQnhiYzdqc3h3OG9DdXBFS1NHTTJ2ZFRfRmU4ZjFNeUVualducmNsYzUzYnFqd3dmNE1xcDN1aDAwUVFOdnBacDJUcENTYl9waHpsS1ZYSG42SFhUbW5DMDNfTVdEdw?oc=5) |
 | On its tenth birthday, gay marriage in America is under attack - The Economist | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPWmFfa2ptakxTdVB5cUJWeVhvMDlkYVNXQkxiWWFOQnVZMlBGZ1B2bW1SRWU0OTNyQ1Uzc0w2SFNtNXk1cFo2Z2I4Nl92RUJINnI1SWdwMWU1UEpBaWkzUFRncjFsU1Q4M25jemFmU0EwaHo3cmpveWxUWVI5VkVlMENVb21mQVJFbzFZN1N0aEJYa3VQczYyM25xb19LYmYwYnZuNl9xSXF2Vk5ZZkNnMzhB?oc=5) |
 | Cuomo will stay on NYC mayor’s ballot after conceding Democratic primary to Mamdani, sources tell CNN - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQZnZucmJjeHp5TmNwRk1ablA2Q0M4T1A4dTI3NTZoSm11WHd1Q3I5dDhVWmp3bFZZaHNxSS1nTmEtV1ppT3ZscU1rQWktVWcxZC1yZ0s5VHNFUElIYWFLWDNXWmRqdm1BVV9jNkdHR25DZTZ6WFRnNU1URVZDQjdZbdIBhgFBVV95cUxOS29Za214WUtFQ3l6MXdnb1pyX0lIMlotSFNNUWlxZlc3MG1RN3hfMmZDLXM2X3ViLXBmVWZYSFpDTUVVNHIweFl4ZkpRb013Qm9WNTZscFdMOG5xUEhBM0FaT0JlTjE2SGlOZUFCVVhHTnEwWjktTWhoTFp6WXF1elUtRk9xQQ?oc=5) |
-| Fireball appears to explode over Southeastern U.S. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQaHA5cFloaGYyXzFBM3UxYjZvNmhOVEh6dTJQUURQV1ZUa3UtWDFDWEJ5clc4bm94dC0tTHhsT0JSLXR2YXQxWlFVejA1SWlmbGdpUmV0aFZmZGV6RDd3NTFIWFpMekV5cmhFeXFSTnNHQ3JtZUNLaUhQNEtpbVUtcEdGS09QZzd4WTNSUk1acU1mZ1UzcmpYYU51Z1JvSUlfeHc?oc=5) |
+| Meet the Senate parliamentarian, the official tying Republicans in knots over their tax bill - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNM3gzbE1zX0lRVnIwREJWN3JlVi10NkdxelE1ZW9rX3ktQjVrcGFhT2lmaUhXTFNENzlSNnVlVkNodFE1NWQ5Z2dSS0pUNFZFUW9hTk1DV2J4VEkxNXZJa3VtZnNqUFhKMmNlXzhXTGdmY1ZjSHUtRnBMQkc1dm1zN0p3Tkd6eUtQR0NFcHBXQzE4SUtHY0ExVlVVMTNNdlRlSjktN1pUaVpOZkdfd1NtYnd2SUc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
