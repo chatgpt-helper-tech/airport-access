@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月28日 03:52:05（北京时间）**
+🕒 更新时间：**2025年06月28日 04:00:31（北京时间）**
 
 ---
 
@@ -23,11 +23,11 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump terminates trade talks with Canada - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPYmM1cDlTQThNMmtnamJzRV92Sy1VV3dyMkRCQVZOeWc1cjhIMUJaeUhzMlJZRHdGRFpCVU0xcnhnNFJGa3Rsczl1djJQR3RtNTNiZ2lDY0d3QWZidHRvUUNvNHQtYXFzazBXUDhPaW9yeE4ydkl1TFpDdzUwWkpaeGJZaDZUeHNyNTI1ZGVHUnViSDN1M1c2RXc1T1VUSDFhcFHSAVZBVV95cUxQdjNlV3Q3T2hqa3g5SHZBcEFvdFhGVkRjYmJZR3haWU9lNEd0Um5QTWNlbjNweURqWExHaUFZMkN3UUNqSGVjTkc2ekRLQk9UREJEZ2tzdw?oc=5) |
+| S&P 500 is little changed, retreats from record after Trump ends Canada trade talks: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE83NzFMU2NvNTI2MWROUUZXNkltRkQ1ZUkxNTQwYi1sZ2JLckpDU2lLbGs4Mnk3aFk4QWJ3amw4SzU0a2FQck4wbzZ5cm9ZQWNyTFhNcC14d1RKYU1tVGltWmFzVnQtUHR4dGVHRHhxQnZEalVDbFVv0gF8QVVfeXFMTnUxX0EwRVJ0cXhOaTQ5WHZxZEdxSGRnVEg3MlFHUzNfNk1LUUtpYmZ1WTZfUWdFbTZ4N2xYRjU3TFlVQXoxTEthS1FqZGFfWk1kZXZ3U29UMW9tVzkxNGhvdjNGNXNvdXVwWXFUWEtiMEItV2NBQm8zR0ZaMg?oc=5) |
 | Supreme Court limits nationwide injunctions in birthright citizenship order - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPdUEweG5GZ2FsUjFuR2RPb1o4MC1wU3hPQkxiNEJ3Y1ZRQlpBejctTTQ5ZlZyZlpIU3MzbTFWbjJtZnlPX2VhUVdiZmszRGhUSnlHcDR5SjBrQnRla0NLc2ZwUEwxbElFa2NiVEZESWE3WENURzRNR2xDcGQwcGZJRzFGdzdMM1h2UUEtcWpyY3pwS3JhUEFLX2FjU2Y?oc=5) |
 | US Supreme Court upholds Texas law requiring ID verification for porn sites - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFAtTjY2T1NDV0dXbjBkMnBSSGdKWWdVWlRXWkx4OEJ3SXRNWm9ZVGFweTJZVmY2WDltYVBZNGF2dUY2Qzhsc3FVMjRSTnIzaWotUDVEX0lmaGg5d9IBX0FVX3lxTFBmTV8yLTItX0VKczdoU2xqbDI4N1hoRnNOTGh1Y0djMzk1X2RFMHJXSWh0U0NtaUY2dlFnUWhFZHdvSVhTSTNrMko0YXBDSzVmMVZPWF80NFZCeWQ4XzVZ?oc=5) |
 | Major Unions Are Dropping Cuomo to Back Mamdani in N.Y.C. Mayor’s Race - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNS0hZWUNkNGQ5Y2xjNWw5bGJUOWQ2V05SV01henpnbk9femw2VFNaVDEzNGhXdGRkcVdTdmR0RnJhMDRtVDg5bkExa1preUV0ckhxZzBLVTI3TWRDaEw1YUFxWkF1NFc0XzdYV3pXTnl0bUwtdDdFUGdrNzJtWWxiRWRocjlDTHQx?oc=5) |
-| US supreme court rules schools must let kids opt out of LGBTQ+ book readings - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNZnY4QXdGRXJBbko2ZFlmSHlDai1Fby1RYzZfNW1yanFDSXFfWDN3LU1peF9Yb0ZQVXk1ZlZfQXlkMmpuVXZSeVJva3FXM3A1X0lORWM1VHBnQllOYWNGM2ZSMDBobjM0YnlDN0ZmQUZWZDFra3dSVmQ1MGlvX3gyNEtWY3pNbEZXMm1PanlYRV8?oc=5) |
+| Supreme Court backs parents seeking to opt their kids out of LGBTQ books in elementary schools - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNeHFrcFFyaUhmeXdqd1dwenptVmNjRjBUVXlmZkxjOGo3X1RYNExfOU10N2ZFTW96X1RPaGFIcEg3MGF6bERzTnJ3T2RFVVJQYkRoTjY0VDNveEppRFZIaUZxTTBMTHFsc0tFNm56Q2lvYVBTVVc1UXRodTktY2pIZXEzaFFiZTQyN2FGZU9FdzdHYmxUeGd2LVU2VUs0Y01IZ01IYWM0QjVQcjhQTS1KekNHQ3g0dWRITF9DU1ZySlhoMjI0VS1v0gFWQVVfeXFMUEdDVDVwc0JxaWFyZEFaVjR4UFVMTDFuRWl2RGowbXdtTy0wdmtOd1V6SUswbVF4OVdyaEN0WUMtSkFRb1J6VjFHVVN6dFJxLXRhREJkMkE?oc=5) |
 | Gavin Newsom sues Fox News for $787M in defamation case over Trump call - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQUVJkemZfd2VRZWhRcVp3NFJfM2NoZjFPVm5WQTd2aUphZVNJSHEyZnpyVkdzVGdob3F6cjVZWXFfclFWOGNxbGVCUWs4REg5aWtqbW1sRDljakMyeTRQYTg2dWhQMmFlV0ItM3lqeHlpZ1N3aUJBM2hNeGRNdHQ2d2prQTBIUEpZUEZWdDhGdw?oc=5) |
 | Lawyers for Kilmar Abrego Garcia ask judge to keep him in jail over deportation concerns - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQcURwMTc2ZTFjOU5STUpUZTZscGdBYnFzTzM5cDFlckJ5Vmx0VmJUMmhPMUVRNHJ6cmdrTVYwd2ZGcXF3eTd6dnktZlhuUUZfemRqRlJFVGtZd0lMdDJOYXVhX2t4blJnNzZ6SGFGRWNoUVhrUVJzNGlnZGgzYkxDWU1rbldocXF4VERHNGVTMEVvelZ5eFJqWXkxUXRqQndOUndkcU1mSEhYTUJLalhfczVjQUZEUQ?oc=5) |
 | Live: Melissa and Mark Hortman lie in state at Minnesota Capitol - Star Tribune | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQX1RZX1dfcWZ5U0JBbnNsM0ZZX2tweEQzS1F2QjQxd2g2M0oxQ1haT3VUSjN6WE9UOG9QWFdYRjNhdXZ2aDQ2QnBWbVUxa1FqYk9xNEg1cGpweGJSUm9Jdm9LZUhQaUNrZVAyd3p0VDRDc0t0OFFsZFZOVXItazhuYnFIbw?oc=5) |
