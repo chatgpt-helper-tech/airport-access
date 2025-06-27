@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月27日 11:53:51（北京时间）**
+🕒 更新时间：**2025年06月27日 12:01:26（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Starmer set to announce welfare climbdown in deal with Labour rebels | [阅读全文](https://www.bbc.com/news/articles/cq6my6v81z4o) |
+| Government confirms welfare climbdown in deal with rebels | [阅读全文](https://www.bbc.com/news/articles/cq6my6v81z4o) |
 | Misogyny is an epidemic fuelled by social media, Amy Hunt tells BBC in first interview | [阅读全文](https://www.bbc.com/news/articles/c8d64z4rl5ro) |
 | How is your hospital doing as NHS battles to bring down waiting times? | [阅读全文](https://www.bbc.com/news/articles/cedg8dz7996o) |
 | BBC inside Iran state building hit by Israeli missile strike | [阅读全文](https://www.bbc.com/news/videos/cgmw8g782pro) |
