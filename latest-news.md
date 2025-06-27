@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月27日 19:52:09（北京时间）**
+🕒 更新时间：**2025年06月27日 20:01:26（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | Norfolk teen is first to be given new 'life-changing' drug for ultra rare genetic condition | [阅读全文](https://www.bbc.com/news/articles/c07dzrx02e0o) |
 | Man who stabbed wife as she pushed their baby in pram guilty of murder | [阅读全文](https://www.bbc.com/news/articles/c9qxj5d4jdro) |
 | MrBeast removes YouTube AI tool after backlash | [阅读全文](https://www.bbc.com/news/articles/c15wvvjv402o) |
-| Welfare cuts: What are the Pip and universal credit changes? | [阅读全文](https://www.bbc.com/news/articles/cj924xvzrr2o) |
+| What are the Pip and universal credit changes? | [阅读全文](https://www.bbc.com/news/articles/cj924xvzrr2o) |
 | Chris Mason: A hat-trick of U-turns – and this is the most awkward of the lot | [阅读全文](https://www.bbc.com/news/articles/cx240n632z3o) |
 
 ## 📰 Google News
