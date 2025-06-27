@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月27日 21:14:45（北京时间）**
+🕒 更新时间：**2025年06月27日 21:26:10（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Megabill threatens to languish as challenges pile up - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOOWxFb3pHOFFqNUozUkhjd2hCSDB1SmNsdkZyNkNEU040NWJnMk1wX1RjbTRDY3dwYWNkMjVMTS1JUFZFRVlpSHlnX3RDYjh5cWszNXRjMlF0WmhrUm5zcWZmQllIU3IwaEZmR2FKdUNtTHVzaUFVd2l6UXBudC0yeWRYV0YzTHktV0t1STJtUlA?oc=5) |
 | Trump Administration: News and Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE0zVVJnb0RPQ2dTa0toMGZvTHBUTVdTV3A2czJuMnpLTzNpZGl4eUVTZ0ZyWnpXTFNIam1EZjROOGRzM2FqSDRRN28zS2hfVFJBVlp0bFROQjRmbF9PTUtsNG1qbw?oc=5) |
 | Iranian woman, who has lived in US for 47 years, taken by Ice while gardening - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPbmplMUh2amNJb0RIR081X1RDeUdDYm9BUU9OblpRM1JQOGdWWWtyZTliUGw4OW9oRVRYYXh4dWw5OGxSdmZDWlUtY3NnYmNMRUJXUHF4UlJzQUQwU2xvSzJTU0xkWHdqQS1hRjljVXlJLU03S090RUMtM09iWWQxYjJOVmtBN3RkRVE?oc=5) |
-| What to know about states blocking Medicaid funding for Planned Parenthood - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQUTR1YkZWLUNEN1VIaEFEaHQ1STlkaHhXaEZFVnNnbW1wUllFUkxMYndZUnNjaVdXTVI0dDN2dGVVY1dfRkVIeW9CMzh3cTdIMVdpTjRpRDNGYTNCY01BU0dOYXFwRHJkRy1BQnVBR041ZHItRmZJNnVCVXNtNnh2eEZiM0sxMElDNzRzMUN1VC1TdWR4MWNoN3lnRWc?oc=5) |
+| Supreme Court reframes Medicaid patients' rights - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5iMUNJRkprc0Y5MHV2dHctQ3d2dzVUWXZTdzVQdF94bVhVaFNUa3RicFl1SXZDLUUzUWI0TE9QdVczWWhxQlVuQTY4TFM1LVlNVG9FVlJfWGlWS2s3cGdNdGxrYXNpMjBkbEc0YUk0VjF1Y3czWVVTYVRNNA?oc=5) |
 | What's that in the sky? We're not sure, but the fireball was very bright - NPR | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE15N09ULXF2QzFIclJMTm1HWEk1VFNWbVdRU0V3RnZqVU9xRlY4cGR5Tmd4Z19BNE82UGoxRm1GZDZONGptNzV2ZUNpTnZ0RFV6YXhRMF83c1RhWkJXTU1oYzRSMHdiMTJxajQ0OUdTZ1BPY2FTWVhZSQ?oc=5) |
 
 ---
