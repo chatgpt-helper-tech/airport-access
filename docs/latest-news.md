@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月28日 05:00:57（北京时间）**
+🕒 更新时间：**2025年06月28日 05:13:51（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Supreme Court says Maryland parents can pull their kids from public school lessons using LGBTQ books - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPT3ZMbG5TN0FZbnlKWnVrckgxSjl4ajdYelVPbTk4T2xnazBSRUN6cEttaGVvU2lQNDh0Qy0zUDNlaHo2V3VHdk9UbHVnRkM5WU1aQUJuV1k0cHpBM3JaYkJXNmFRQlA4ZlluZk5yVWR1MlJTTG1xNm5GWEdFV1J4MkRobUkxTkZwbENNSnZvNFpoLUVtYW95NkFGV1hKTU0yZThiLW9udGgyTGRid3d4OQ?oc=5) |
 | Gavin Newsom sues Fox News for defamation and demands $787m - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQVTNDZGRHdlF0dENMalJURG5JUVN5SzMzX05Venk5alNkbDRkSDRJaXhRQlVSOUlBZGZWc3RtV2dnQmtONDJ3Q0JsdkhPMkFMR0hxRVdwNW1ncUc2enRNaDc4MmF5VTVIQXlRZ2VESGxBQnduN2hVeWJXRE5xbFNtNkhqdzI?oc=5) |
 | University of Virginia president resigns under Trump administration pressure on DEI, AP source says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQLUdnYkJHUUpkVXljQTJLSW5IVnlsVGZrVFA0ZWFQdm5CRmpTdzl5em1KVk4wQkZIOXh3TjZrUjFQOWdEUm1kUWRpazgxbi1GZE13WVAxTV9yM2pyTzVjcTI2Z3U4MFRmUzc5YWFKOUVjRFJPZXROQ3ZMNHZOSkhHM3BwcWo2VWdXd1N3VFE5bW5RWnNjS3pGS2Q5VUpKZw?oc=5) |
-| Senate slated to take first vote on megabill Saturday - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxQdnJQcE1HTWxNVDJTZmpXS052eURXR3dLTW9PYl82T1dfMHJQcldCT2dGUXZ3U3oydlVOMFlvSE0xdm1sR1gxS3hRZTRpLVk1eERfTnFEaVZDZEJKR3FxNXlOMXVHOU1iMmx5aTJLTHg5dmtzSGN6TDlqdUx4VGEzazRaSEVTWml6ZE1pNDVlUkl4bmV3dk1LcklhTWVmYU12MkEya3V1X1o3U1Z0R1kxdDVYNUdpbmJrTndwLQ?oc=5) |
-| Minnesota Rep. Melissa Hortman, husband and dog lie in state; suspected killer appears in court - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPS3UyRGk5N0NVaU5fNms5clFwdjE3ak85R3NqaTVUbmVIQUlsSF9hZ1hldGpsazVYcnJ3TFRPbnloTEhNdFlRVXRPSi00TXlvQVI2a3lQdFN4RERLRnNuR3NPODQyakZUU0FaZ01FWlJRc0RnQ0xOcEE0bFhOQnNwRVoyS2tzZi15ZWtZWmhNVzNOc2FiN2hVWEkzUGxzaUtmMzI5aVVCVWF1ZFFBbUNUcUdiaUF0ZVRLemfSAVZBVV95cUxNOEpmWjNOVVAwNU9xMGNmVEY3R1h5azRFOXJURXIxcm5LNi1pTmJ6VTlIUUFHTGRqOWg5bGp0RlEtSldNc2J4dkVqTjdrdDhDek1iZHVPZw?oc=5) |
 | Major Unions Are Dropping Cuomo to Back Mamdani in N.Y.C. Mayor’s Race - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNS0hZWUNkNGQ5Y2xjNWw5bGJUOWQ2V05SV01henpnbk9femw2VFNaVDEzNGhXdGRkcVdTdmR0RnJhMDRtVDg5bkExa1preUV0ckhxZzBLVTI3TWRDaEw1YUFxWkF1NFc0XzdYV3pXTnl0bUwtdDdFUGdrNzJtWWxiRWRocjlDTHQx?oc=5) |
+| Minnesota Rep. Melissa Hortman, husband and dog lie in state; suspected killer appears in court - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPS3UyRGk5N0NVaU5fNms5clFwdjE3ak85R3NqaTVUbmVIQUlsSF9hZ1hldGpsazVYcnJ3TFRPbnloTEhNdFlRVXRPSi00TXlvQVI2a3lQdFN4RERLRnNuR3NPODQyakZUU0FaZ01FWlJRc0RnQ0xOcEE0bFhOQnNwRVoyS2tzZi15ZWtZWmhNVzNOc2FiN2hVWEkzUGxzaUtmMzI5aVVCVWF1ZFFBbUNUcUdiaUF0ZVRLemfSAVZBVV95cUxNOEpmWjNOVVAwNU9xMGNmVEY3R1h5azRFOXJURXIxcm5LNi1pTmJ6VTlIUUFHTGRqOWg5bGp0RlEtSldNc2J4dkVqTjdrdDhDek1iZHVPZw?oc=5) |
+| Russian stuff blowing up: Ukraine destroys two more Russian aircraft - Daily Kos | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPMFkwaWVxeDZ0RFZuc3lJZTJzYlFsOVZvQ0xSYS1ldF9XbGhDdmJWcWY2Tmd6S3Z1Y2QxMnZTR1FKYUIyY0NIeU5BRTJvbndjWEtfby1JTFlCa2NDMUZqdVpuVDZQZHJBbC0wSjhZU09jeVpnNXRBeWZoeFEtbFBUMUwtTmZDeEFzX0FDb2o1RlE0enhGMUN6VkwxVnZ6dzB2RUdYdXVDMG4zWWhXdFJfeGlITmdfSDBWZWh3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
