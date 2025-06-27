@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月27日 16:01:41（北京时间）**
+🕒 更新时间：**2025年06月27日 16:14:06（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | Chris Mason: A hat-trick of U-turns – and this is the most awkward of the lot | [阅读全文](https://www.bbc.com/news/articles/cx240n632z3o) |
 | I'm no hero, says officer slashed in Hainault sword attack | [阅读全文](https://www.bbc.com/news/articles/cvgwdyn4yqvo) |
 | How is your hospital doing as NHS battles to bring down waiting times? | [阅读全文](https://www.bbc.com/news/articles/cedg8dz7996o) |
-| Watch: BBC's Lyse Doucet inside Iran state building hit by Israeli missile strike | [阅读全文](https://www.bbc.com/news/videos/cgmw8g782pro) |
+| Watch: BBC's Lyse Doucet inside Iran state TV building hit by Israeli missile strike | [阅读全文](https://www.bbc.com/news/videos/cgmw8g782pro) |
 | Glastonbury gears up for The 1975, Alanis Morissette and more | [阅读全文](https://www.bbc.com/news/articles/cvg1ey6vl17o) |
 | Beaver activists secretly releasing them into wild say they're 'doing God's work' | [阅读全文](https://www.bbc.com/news/articles/clygl4dv4rno) |
 | Norfolk teen is first to be given new 'life-changing' drug for ultra rare genetic condition | [阅读全文](https://www.bbc.com/news/articles/c07dzrx02e0o) |
@@ -30,9 +30,9 @@
 | Trump Administration Tells Congress to Kill ‘Revenge Tax’ From Policy Bill - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQQUM5cEZnSkhQaVoySHVubmdJWXNRa2VCdTdHUlBQRGxvT1BCR3dGNGVCaG8wLVZGWER2anljOTVuc3poUlJoNEE5U1VaSGxxNmdoeFFCU2NWR0NFejNEV1lvaGNjbU1yWjB2SnM5OHJpc3NyY2FteV9vTV9CemNtQUFvQ0xob25vS05pVDNmN2pUWG8tNmNONTlfaw?oc=5) |
 | ‘The stars aligned’: Why Israel set out for a war against Iran, and what it achieved - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNNDI4VXhZbEpxbUhwX3EwMTBVY1o0S0ZCOEMzczFpajFlc01SMGJOeWtfcHBEZW9qUTR1R2JRbGhxRlE2ZTBmakY1NG80OUVabU5hRktkMExqSURYN0VQdWpqNE8tUGVpR3JELW5RN1FVeVpqOGViVWFUMWdXb0JRaGQ3N0dBd0JsUVIyUDFCazRObTlUYWNFbm1zc3Ztdms2dE1Xb0YxU1dmV0ZLT0lvLQ?oc=5) |
 | Supreme Court meets Friday to decide 6 remaining cases, including birthright citizenship - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOWFVHVm5wSmI0YnJEdGhJYm1ZUG5vTVFuN0lKczFDVzJQX1VFR20wUlljWmJxY1BrRlduSGozVWt3aTczU0hycng1Unc1WU9sYUp4LWgydENfaDY3bUU1Y3ktb1J4aHhoMjBENW5mY3NCcVA0UHZGd2FabklIcHdNMkZfSUN3azhKdG01QkhBU3hGQnRjWGNra0l6eEpxUDBramtqbQ?oc=5) |
-| On its tenth birthday, gay marriage in America is under attack - The Economist | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPWmFfa2ptakxTdVB5cUJWeVhvMDlkYVNXQkxiWWFOQnVZMlBGZ1B2bW1SRWU0OTNyQ1Uzc0w2SFNtNXk1cFo2Z2I4Nl92RUJINnI1SWdwMWU1UEpBaWkzUFRncjFsU1Q4M25jemFmU0EwaHo3cmpveWxUWVI5VkVlMENVb21mQVJFbzFZN1N0aEJYa3VQczYyM25xb19LYmYwYnZuNl9xSXF2Vk5ZZkNnMzhB?oc=5) |
 | Senate parliamentarian approves tweaked SNAP cost-share plan - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxOZkpobFBMQVNudW5yekEzcXBJMjBLRzVCVDZHdXJlNEpQME8zalhfd25aQjZCM0l1X1RoU2x2eEZEblZSSlYyRnFndEVsOEVSd1h5b1l4ckRZb0RUcnlOV2xsOGNHTGRqdE9lWU05TnZMQzNQaFZrTkpIYnZEYXlWVGZVRzVNb1BSZllwOGJ0ckhoWjhGczJTT251RTFqRlZmLTE4U1ZnTmRTSzV1MEp6N3V0VG5TZXlsQWltSDBwWC1DVVUxNV83QmNRcjhKdTg?oc=5) |
 | Former Trump lawyer loses law license in New York - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNR0tjMEJPWjVXeFBvNzVFblhmSlBldjhfd09GcThSbzduNWdJdFZaOE9INTBsVkdrdEpneVltTy1ic0hON0hLOWEwWTBSbXJXSVc4N0c0ZFA4eUoyWDYxOXlkU3FVQkl3YnZSWnJXeUd4X2NLWjlMWlRKbkQyZEY0SWxqTWI4OFB6Vkg5V1VLZm5VNFEwa2dwVldxTl84bUho?oc=5) |
+| On its tenth birthday, gay marriage in America is under attack - The Economist | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPWmFfa2ptakxTdVB5cUJWeVhvMDlkYVNXQkxiWWFOQnVZMlBGZ1B2bW1SRWU0OTNyQ1Uzc0w2SFNtNXk1cFo2Z2I4Nl92RUJINnI1SWdwMWU1UEpBaWkzUFRncjFsU1Q4M25jemFmU0EwaHo3cmpveWxUWVI5VkVlMENVb21mQVJFbzFZN1N0aEJYa3VQczYyM25xb19LYmYwYnZuNl9xSXF2Vk5ZZkNnMzhB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
