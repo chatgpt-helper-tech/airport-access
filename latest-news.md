@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月28日 08:27:34（北京时间）**
+🕒 更新时间：**2025年06月28日 08:40:42（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Supreme Court upholds Texas law aimed at blocking kids from seeing pornography online - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPSlZneDVaMEp4cUNjNjBBR1p6TUVaTDVobk1HYlF2TktpRXNpTlE4akl3bm95eGZXTGxjV2tENDJmeFpiUE45SUVkUXoxSjN1TF9NLXJ3eENoSGtfVElXMUY0WlN0V2ljU0dyWWp0V2RlYlFXMVJ4YlFQcE1tMWNlVzJmcXVtbnJ1VkFXa1M5eVgtdXhZZVlGSTRpTlFxdVY1U2pj?oc=5) |
 | SCOTUS rules in favor of parents seeking to opt children out of reading LGBTQ-themed books - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQUDZfRnQwTzkwYmZwQ1ZVZkZVak1uWmJkdWhUZTNyREdQNDRLR01OYldLMThIWlJIemxjX09UWjBkcnVzNzV4RTdWMlVfMWlFeG9SaXF2WnBnTXFtS3BlNVNMX2RIekpWTXRjNlRaZmV3OEdEN3Z2ZzZUYmFMXzlZSjlyblVMOXhaZEpzeWR0OXk5ZDRVMXlaeF9rQnI0NThyRDMwbjNqVWE5Z9IBrwFBVV95cUxNbXItV0VWUmdBeHJhOVBaaFl4RjJ5ZWlRVmFhSS1ITVVYTFpic05vM1hvd1JDT1luTW9Fd2hqZUxkaWpaUU1xZnRlTldWSldUb2hQR2NocFhxMjJaWE44TGZXNzJmSDF3N05BTzhHWWh3RXBmVkxIeUtYa01xNFpWTzFZbzlJNkNTeVpuamtWVi1LMlVGeG5TQk9leGk2ZG4wb1BVcnZ2ZGNvdVdqUW1J?oc=5) |
 | University of Virginia President Resigns Under Pressure From Trump Administration - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQX2VQNS15R1RRZ0RtQy1FTzRyRjZsVXFLS0NTeTROWnNsOHJ3S1loS2ZFWXgxX0lLem1LOU9ydGdOUGRjT3dUbTQtN0pjQUJnRExITmZTUW84NWt6aThuWWdEd0JJYzFycTBvVDNzc1E4aGFQelNXVXBYYzJpU1ZmcXp4b1Nlc0tsMUJnbXJOX1VVZw?oc=5) |
+| Jail escapee Antoine Massey recaptured Friday in New Orleans - fox8live.com | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNa3BnYlQ1UHpTWmQzWk1vaWxOcDZfVEtzbDlIekZVaDlWTU5pcGtuczZVOVdUMkhZd2JSNC1tc2hpNzk0VENxWEVCSTA1YkVOeEtFaHk4bHFrbFJxR0pZYVFqLWhVXzZ3STF4Wk9RZ3ZWRmF5V1JSOWc5Y2NsdWk1bmVKTGthWmNpYkpkc3hPQ0JoT2RBLVBwOXZB?oc=5) |
 | Senate slated to take first vote on megabill Saturday - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxQdnJQcE1HTWxNVDJTZmpXS052eURXR3dLTW9PYl82T1dfMHJQcldCT2dGUXZ3U3oydlVOMFlvSE0xdm1sR1gxS3hRZTRpLVk1eERfTnFEaVZDZEJKR3FxNXlOMXVHOU1iMmx5aTJLTHg5dmtzSGN6TDlqdUx4VGEzazRaSEVTWml6ZE1pNDVlUkl4bmV3dk1LcklhTWVmYU12MkEya3V1X1o3U1Z0R1kxdDVYNUdpbmJrTndwLQ?oc=5) |
-| A slain Minnesota lawmaker's beloved dog, Gilbert, stays with her as she and her spouse lie in state - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQU3JlZXZCRmhpOF8zdjgxNXpqMW1sQzNENUFndEJuY250RUViRDdkS2tRMVlXOXZuOGNFdjFJUkxrRGpURWdlazZIWmNCMm9KSmVjSXZreU00R3ZXNndRWWhQTWxvLTV6bDJISkVjV0NieUdJR2VaTUJaNXRkcThTVi1Uc2wxTGRCMnB2MkJsQ3pvcDVzWDVldWZ3bzM?oc=5) |
-| USNS Harvey Milk renamed amid Trump administration efforts to cut DEI - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOay1QWDdwN09RYi1yMmZXOXhXWFVQMGNvVjdoeEctTmVGaGF1RmR4TDVNVlRyY25RTTdYMFhMWGppcWhqaUk0cEE3aGl2Z3FaUW9CREFBb1lJMEVDcEdPbTFkZE52M1lOdU1wMklBYXJndm9NRDVUMXpkdm5yZGd4NmpESTZrVk9GaXRXaVlRYVJqNHM?oc=5) |
+| Senate Parliamentarian Advises on More Byrd Bath Violations in Republicans’ “One Big, Beautiful Bill” - Senate Committee on the Budget (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMi7gFBVV95cUxNejJZbDNkT05LR2ExU0pJbFZnbDFOcmFxLVhSYkxQendwaV9Wd3BsOEhMamQxY0RRb3Y0dWgzSFZKcHl4d0FIZnBobnpnVmEyWHVaM0JsRFlJa1FGY1NqM2s0cW41ZEVhNDBrdkxsdFNPS0ctU0p5enViNGU4aWtzaWstaWNKYWYySWl5bVQ4SGpiaWpMcDZQUmlXakRBbUpxUVBuTUYwcjFDaHgtaHZ6MElkNEdHRzNFM3dtZUtfbGpjODNmb2dxU2J4N1lUZGs0X1VxdE10QlNxQnVkcE9XNlE0VDFmWDQ1MTZNQjRn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
