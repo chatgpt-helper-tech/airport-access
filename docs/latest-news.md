@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月28日 07:53:21（北京时间）**
+🕒 更新时间：**2025年06月28日 08:01:33（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | Anna Wintour's legacy and who might replace her as Vogue editor | [阅读全文](https://www.bbc.com/news/articles/c3envvyvqydo) |
 | Glastonbury: The 1975 deliver a polished, but safe headline slot | [阅读全文](https://www.bbc.com/news/articles/cz6gdnz041do) |
 | Trump says he is cutting off trade talks with Canada | [阅读全文](https://www.bbc.com/news/articles/ckg629n7wzvo) |
-| Trump says he would 'absolutely' consider bombing Iran again | [阅读全文](https://www.bbc.com/news/articles/cvgenq599kwo) |
 | Archbishop retires amid cathedral behaviour failings | [阅读全文](https://www.bbc.com/news/articles/cvg4nw7xvyvo) |
 | Man who murdered boy with sword jailed for 40 years | [阅读全文](https://www.bbc.com/news/articles/cvg977nkl9xo) |
+| MI6 distances its new chief from Nazi grandfather | [阅读全文](https://www.bbc.com/news/articles/c0l406gpydgo) |
 
 ## 📰 Google News
 
@@ -30,9 +30,9 @@
 | Supreme Court clears the way for increased age verification for porn sites - The 19th News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOT3A4SU5Qamx2VjlZaDlKc1JBOFJOZHF2cnNSWmMxTFlIMUNVTmdVcFNKZGZOTjlPMG9jeXpqdkVuaWJGVWZaaXdjdjhSWUd5U0lNemlBUnNCclRURTlXdmZPdFk1ZC05VVEzQjduRVViUzFVajVYRU1va0wxN1FTbTVkeEl4QQ?oc=5) |
 | Obamacare decision makes way for debate on what’s preventive - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgJBVV95cUxNT3hnUzJXMmhnVlIybUhZblJST3R1ZzNzbGlPNGFuaUhMQ0NNZ1hRbVdEWjgxVE1XOXV5SnFMRzZFN2dNZXZENkthWEFMQS13OHNTYzJyVnBDY3ZDejdSc3o2NUstSDEyQTVMcjVIbWVYWDQ0QzZnRmNGSzdKeFVXcjFFMVFENF84U2g3UGJPdUpNNnFURXVKbUIxNXpLR2dqdUdudWFsQmNFZzg3b1QwVEtDUkR5c0xQbWJMdmFRc19rMEZlR2NST1RhLWN3RC16ZllNTkphVW1sNXJnektVamNtcWlyYVA3WWhuUW91OXBBbEJZdXc0b3J2MHpLT3k4dno5UjJR?oc=5) |
 | Ninth escaped inmate captured in 7th Ward - WDSU | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOLTFQTUd3M0xSd1NwZkNRS21WeVhyRnRDSkNGRWxRc2Zic0o1bGZPeVEyVS1BN0tkRE5oUVMxZ19BMy1EVndCMHEwcGJpaFFxZDdwVjZzdl9TbWdXeUM3ZUhaWWY5YWdzOFFuV2pKd3V4dnY1dFVWMlllVTkzSW9MNFlTZ3hBMG8?oc=5) |
-| UVA president resigns under pressure from Trump administration - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5MSVBDU205a09XclM3UVVYZzdhaDZkazNHOTMtclpVSmw3OWpwamU3Z3lhNFVrOEo3eE82ZXk3SzlqRzVMOUxPZ0hiUnp2VTZKNkFLTWFUTUlGT3lkbFVaVkdHeTd0TE1ZMjFDTVlfbjFqdEZvU2owRGNvTGFMZw?oc=5) |
 | SCOTUS rules in favor of parents seeking to opt children out of reading LGBTQ-themed books - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQUDZfRnQwTzkwYmZwQ1ZVZkZVak1uWmJkdWhUZTNyREdQNDRLR01OYldLMThIWlJIemxjX09UWjBkcnVzNzV4RTdWMlVfMWlFeG9SaXF2WnBnTXFtS3BlNVNMX2RIekpWTXRjNlRaZmV3OEdEN3Z2ZzZUYmFMXzlZSjlyblVMOXhaZEpzeWR0OXk5ZDRVMXlaeF9rQnI0NThyRDMwbjNqVWE5Z9IBrwFBVV95cUxNbXItV0VWUmdBeHJhOVBaaFl4RjJ5ZWlRVmFhSS1ITVVYTFpic05vM1hvd1JDT1luTW9Fd2hqZUxkaWpaUU1xZnRlTldWSldUb2hQR2NocFhxMjJaWE44TGZXNzJmSDF3N05BTzhHWWh3RXBmVkxIeUtYa01xNFpWTzFZbzlJNkNTeVpuamtWVi1LMlVGeG5TQk9leGk2ZG4wb1BVcnZ2ZGNvdVdqUW1J?oc=5) |
-| New York City Leaders Reach Deal on $115.9 Billion Budget - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5wWTNrRnRnU2U3OWtKSzhYRFctYXdaTThnenBlTkdTM0JrSmFRTkh1YWxJM0txOEZ2cDhnWFUtMTByU2ppcDJjVGJMZDdrcmt0TWFlai1ZeGJfSjVuOElRRjZwcHo0RnlCZzhnS0F0OVAwMHowaXdGbg?oc=5) |
+| University of Virginia president, pressured over DEI, resigns rather than 'fight federal government' - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQLUdnYkJHUUpkVXljQTJLSW5IVnlsVGZrVFA0ZWFQdm5CRmpTdzl5em1KVk4wQkZIOXh3TjZrUjFQOWdEUm1kUWRpazgxbi1GZE13WVAxTV9yM2pyTzVjcTI2Z3U4MFRmUzc5YWFKOUVjRFJPZXROQ3ZMNHZOSkhHM3BwcWo2VWdXd1N3VFE5bW5RWnNjS3pGS2Q5VUpKZw?oc=5) |
+| Judge rejects another Trump executive order targeting the legal community - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPRmtCNENpQ3NpMF9DSVNSSTNLMm9RSnMyQWFjS0lHYl96Q29XSUFsZTc4WnloaGZOc21lMG93ZGw2SkRRYzdsTU91ZkV5ODdlXzA2aWwwdDNjQUk2MG1HMnZoNFU3aFljUzVyVU9iaHhKc1hKcjFYdDB4Tm9kamJtUlhHTmE5VW9LdlpyOXRLcEV6OGFncEN5MUhSd0I2NjJib3ZEeXNla1E?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
