@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月29日 07:27:24（北京时间）**
+🕒 更新时间：**2025年06月29日 07:39:03（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | Venice divided as lavish Bezos wedding brings glamour and protests | [阅读全文](https://www.bbc.com/news/articles/c5ylk5nznkyo) |
 | Budapest Pride draws huge crowds in defiance of Orban legal threats | [阅读全文](https://www.bbc.com/news/articles/c23g02dl1z8o) |
 | I buy my children vapes to try to control their addiction | [阅读全文](https://www.bbc.com/news/articles/czdv3jq1pnyo) |
+| 'Proud to be gay': K-pop star on coming out to the world | [阅读全文](https://www.bbc.com/news/articles/cn5kx7wn1nzo) |
+| I feel like I've been gaslit - like the life I had before the war was made up | [阅读全文](https://www.bbc.com/news/articles/cn81rdvdm9jo) |
 | Trump on a high after 'tremendous' wins at home and abroad | [阅读全文](https://www.bbc.com/news/articles/c994p7vd8l5o) |
 | Netanyahu hopes for boost from Iran conflict - but do Israelis still trust him? | [阅读全文](https://www.bbc.com/news/articles/cvgnp2l2vj9o) |
-| Japan loves them. And now they're in the UK - strawberries and cream sandwiches | [阅读全文](https://www.bbc.com/news/articles/c75rdryk63lo) |
-| A collision challenge is going global - but it's not all fun and games | [阅读全文](https://www.bbc.com/news/articles/cedg05z18z7o) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | Slain Minnesota lawmaker Melissa Hortman mourned at funeral service - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOcGxsU2tleklyRVlQV3Y3V3VfOVoyTWZ5OHBCNVV3cHBXSTJPNGNfWXVpSEY4WnN6LVhMeXpIdWlHeUhUQnduUnBhaGRja0RmNUh2QlA5M2NZVWFMejRMakozZnA1V1VwQWh2WFEtQ0FqQm9NOGltNUpkenVMYlE5eTJKcmdkQnhqZFE1SVJLaGREZWs?oc=5) |
 | Louisiana hospitals warn Mike Johnson of ‘devastation’ from megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNU0F2M3h2S3Nzbl9NaXVwWDN1SERSX3lRbVhiMkxXU2gxZ2IyOXNhSVVpelFMTG16cHNGVHFFVW1ZOHBiOVZxdkZueFBrUU94V2FZN2NTYlY5ZGVMbEdJb2pWYnBvektiRmR2Vk15M0RGR3I1MHFCRkxHdmJBd01MOWVDRHl2X3JxTXJoLWY1T0k1SHJnLTZabndfMjhSVEtOZEctNG52MnotSXlrdk1aMGZ4SzNsOGVQSWlXdG5DZkhBbWlPbnNtY0dUX1IwZw?oc=5) |
 | Zohran Mamdani has the Palestinian protest movement to thank for his win ｜ Heba Gowayed - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOQjNLUzg1dkpXeXhWdmJabmNXY0F2dkZua2lwc19xYl9Tc3AyQ2F3Mlh0WjU4S1FobzhDck5RNkVOVXhhSUJjNzNWaFdSUkJHREs2UXNpUk1wQjNNQkM2ZUppZFhibnJHcTM4U2JUbEJTd2l4VHROYTZIdllnNEJnN2FQNzBYLWJFZlI3TVE5OWJ1b240Qnc?oc=5) |
-| DHS ends deportation protection for Haitians, says Haiti is ‘safe’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOSzNWX3FORVJudDVoNEFHVUV4V3VQZ0xnNy16cTgyWVJpMk14WFlNblpNandfdXRPSkI2WVNzS1Bxa3VXLVJUTjlQaDZXeFBnUy1aT2tLdFJJMUZ4bUN4MVoxWmFzVndxSkVmenlOaEQ3a2VTQWJzVlZDNHc1T2lHZDVFU2N1MHY1RGpwTWNIZUV1cHVTOVgtdFJrQQ?oc=5) |
+| Protesters line highway in Florida Everglades to oppose ‘Alligator Alcatraz’ - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxORmlRaGtfTXYzVkc0WE94R2xDTlp3a3U4VUt0Z3IyQkhJSHc1VW5jNHg5NU1ZVzhzVzFLQXVxSDBFbEJaTUd2dk9SbGxvbC1tSV9iS215SW5VdWR0NUNLdGM1WU14bnBySE1NYWVvR3c4cGFrUjdBWmNFbXRHSWtBeEIwdmxXaHJMNjlPYmNkTXYtbzh0NkdITFZPNEhpQjhDa2llQkgzTG4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
