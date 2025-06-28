@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月29日 03:01:17（北京时间）**
+🕒 更新时间：**2025年06月29日 03:13:22（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Beloved dog joined Minnesota lawmaker, husband as they lay in state - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPSnVEb0g2QWhvVGo2eTZmejh4d01wb2NkWHBQVjRRdml1b3ZCNHhZY3dFd243cmx4SElMYW9lc1phMjlJaWltc3dHVUNRSDZHNmRMYXAzTDBPbWd0ZGhrZ0RGX0JONWdtNDNFbnBuUXNocE1GMXFjdlUwLTV5Ym5uWnRsZzRweGNGaTVV?oc=5) |
 | Zohran Mamdani has the Palestinian protest movement to thank for his win ｜ Heba Gowayed - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOQjNLUzg1dkpXeXhWdmJabmNXY0F2dkZua2lwc19xYl9Tc3AyQ2F3Mlh0WjU4S1FobzhDck5RNkVOVXhhSUJjNzNWaFdSUkJHREs2UXNpUk1wQjNNQkM2ZUppZFhibnJHcTM4U2JUbEJTd2l4VHROYTZIdllnNEJnN2FQNzBYLWJFZlI3TVE5OWJ1b240Qnc?oc=5) |
 | Israel and U.S. Smashed Iran Nuclear Site That Grew After Trump Quit 2015 Accord - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE13SUg4cE5RUXVKZm1fb3pWc2kyTEpWSUptWnhfa1dzMzdHUEthOHFtbXVzbWYtT1dEc011MVhaaERKNzVNYkd4Q2pvVUhSOVdFYTZpSzF4NWplMWNqeEhJN3cyQ3hDd0FRYjFkUG5Bb01UVWdxTWRZSEVPaHJjbTg?oc=5) |
+| Hospitals incensed over latest megabill text - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPUzN1UDRXU0xveTl3ZURucVZ2enpWYmVNNG5NVDYzV2hyX3lGbjZ2ODZ3akU4MGYtMVJCbVBReXNYc1pYRzYtc3Q5M25Vb0x3RkUxSmF4eGczUnpaVnNkbnN6akU3MUFmNzhyTk9pUUlIZjRDUDBPSnZQMm9OOEk2anEtemxwMWlJRFZxY2pNVUNYcUpKU2gzNktTLWtpLTh3OUdEMjlaYw?oc=5) |
 | California closes $12-billion deficit by cutting back immigrants’ access to healthcare - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxQOHBOT3RaZFJKQVRjTmdEVndZUFBPU0t5OFdmcmptTzBQaDhlekZKY2V2bWd0c0psaFV4bXlEYmJmU21rbnNvaWR4eURGOEpOOWptSDFTeHFnZG1CN0FPSF9saVhHS3kxTHJ4T0wtUnZ0bkw2Umk3VU9IU3g5RXBUS0pSYjBNNDFxblJYTURfdkpTRE5PUUlkcDFlSktKRmJXTS02M1FxUl9IU1QzOXlzbXRENHdBSmRELWp5SktTX1RXR01VWW80MzZoYm0?oc=5) |
 | After ICE detention, Georgetown scholar Badar Khan Suri reflects on parenting from behind bars - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxONXJmNWJyZHJmQy12Mlk0RmplQVBneU1COTN4U0tHM2xGU0dEaEhXcUQ0SXk2REN4NjlKLXhLTnk0eUtEYkZBdGg0czBFUjY3TEZwTHpwM0EzUWFlbWZFSmFjQmUyYmItMWJTd0pXRjVtT2lhS1RZWGdQMVZ2ZkhHNG9Kc3BxY1p3ZXQ2T2pCb0k1NG9HdkJMSmlCSXJvaDNzY01HREhn0gFWQVVfeXFMTWFXVHFycFNsYkZfaDdHczNKbFJZa2RLcUNqUUZ2RTlpV05mMTVxalY1N2RjVF9WMU5vd0VRRG9XaGkzNENhd0I1Y0x5bm9pR1NFMEtKRHc?oc=5) |
 | Chief Justice John Roberts warns anti-judge rhetoric can lead to violence - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOY3JRV0NjdlJxM3gxdWh4T0I5MEJ4RlpjTzJuX2hqSzNtN1pwQTJvVVRRUF8wa21pcTJBYTMwQkJyQU90SXpudnUxcE9MRVRpSFpHUUdkYUM3X1BmSmg2a0tkNFhpYmQ4RmtoRGJlZFNiMVUydFJKTDBEQk1MODMtWVBwZk1YMFozQmlSY0tDSWQ?oc=5) |
-| Concerns Grow Over Dire Conditions in Immigrant Detention - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE8wZUxPQ0lzbXk0QVA3Sl8yYlVvMk81UGcyRHhRSUxDREdkcktWRHg4MUJsRVVqYmVybEZGclR4TE9DV293WDdCUE8xdHJDMS12bWtnYW9jT0ZTcVd4a0ZpbmRNUzRlUElpOGE4VVBtOTdLVDB2dWRtSW9qLTY0QQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
