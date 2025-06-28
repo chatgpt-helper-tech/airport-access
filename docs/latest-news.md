@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月29日 02:53:04（北京时间）**
+🕒 更新时间：**2025年06月29日 03:01:17（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Why Trump’s birthright citizenship ban still faces an uphill battle in court - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQRnRmZEE1eXFlTHFUQm56U1VDNWx2ZU1yc1Btb3dudUk2WVFIWk1DOUZHaXduS1ZXRk5NdHJBM1ZDTGI2THJWTUJRYTdXdFpHOF9IdHZjeDF6UF9vbXZHd2xMSC1KMnEya2lFQXFlOHhzbFMzUHRJdkEwSHNxQlVEb19vY29TNVFqaGJZanc3bUVOeU1SWmlrVFFONzlPUmlhVHc?oc=5) |
-| Senators prep for a weekend of work to meet Trump's deadline for passing his tax and spending cuts - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPSFpmRy1YN3pWb2RrSld6ak4yc0ZRczNtVUVVc0dFbF9ZVXk5MHdtYkxLWi1yMDdFUUFkY1ZxcjFLLTF1bFZkOV91Q0NTNkFiREl5MTNfMEJHZkRCU0RXWk5DdVpVRGpGYWNfTWg0SmlQUFpEZlFuOTN0OTNiRXVTemV1bU1lMUFoVVYzeWpCSkVKajRUN280TmJhTXVjNVpKYWlDSjY0UkdQUQ?oc=5) |
+| Trump wins as Supreme Court curbs judges, but may yet lose on birthright citizenship - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPenAwVlFWY0FMbVZzeU9zMlZOaFlrbTljOTh2aE9QQThBUHQzMjZUa3RjbTd2NUVlV2FFbWVlSkJVemt6ZjJMSUJLQVpLeW1DRVNDSEtnUHdSNVNWRFM0R2wxY29SNXppb0JtelV4ZUJfUG5CTUFWOHNzVmtnNEpMMC1ocUp0WG43MzVMRHgteDZzR3pfZTgtNHpSNFIxNDM3emxxd3M3cF9XTjZENnVTVW1VVFMxSVFpX3c?oc=5) |
+| Senate Republicans scramble to pass Trump's 'Big Beautiful Bill' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5IckQza2xtU2pnR29nekJuVlJyeWkzQ3NoRjZldTk5YU1VRVQwaE1iYVV5d2RZU251WWlDbGNzeGRidERpRnU4RGwtU25kSy1MaDJrOXpJcTNKd9IBX0FVX3lxTE1PX01zNVVyYzVjWEhUYUZRdVpWeEVYT0hMTnNGRDBIcUwtV19IMC1jN0N4dEJldWdMUXdLS3h5RnNyU042VTcwQWZVdE9UeGZmbHZvOElISXAzc1JLV1dR?oc=5) |
 | Big beautiful bottleneck: Trump's high-stakes week at home and abroad - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNU2w0NGFKc2tHbURoRFZLYmJiZk56S2pQOEN2RWVxR2NJRFRMVVU5NDNfb1FHby11NEhBMHNxYzZfcWItTnpWZHUtdklKdUhsdW1wMFpWY3E1MUNibE5rSGhsLUJPX2hKNXM5a3RGcXBfWFNNVGhQczN1ZURvekJ4WHd5T0U3WmJTNmZtb1RxVzk?oc=5) |
-| Biden pays respects as former Minnesota House Speaker Hortman, killed in shooting, lies in state - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQSnFLWFVKZVdUNlhIdlJDbEU4SEV3S0xHVUk0Zk1mX1ZRQVdma3JzVkFSTDFic1l5bXhkUnRLeEhGTDB2a0JtYjM4ZWc1X01EeHVpOXFlRU5IOHp3c084b19ON1ZfZHlpMWxfSDM3NHFlSWZpaG1yeVdnRUJuUzlKV0dSZkNHM0U5TkhwWktXTkQ?oc=5) |
+| Beloved dog joined Minnesota lawmaker, husband as they lay in state - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPSnVEb0g2QWhvVGo2eTZmejh4d01wb2NkWHBQVjRRdml1b3ZCNHhZY3dFd243cmx4SElMYW9lc1phMjlJaWltc3dHVUNRSDZHNmRMYXAzTDBPbWd0ZGhrZ0RGX0JONWdtNDNFbnBuUXNocE1GMXFjdlUwLTV5Ym5uWnRsZzRweGNGaTVV?oc=5) |
 | Zohran Mamdani has the Palestinian protest movement to thank for his win ｜ Heba Gowayed - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOQjNLUzg1dkpXeXhWdmJabmNXY0F2dkZua2lwc19xYl9Tc3AyQ2F3Mlh0WjU4S1FobzhDck5RNkVOVXhhSUJjNzNWaFdSUkJHREs2UXNpUk1wQjNNQkM2ZUppZFhibnJHcTM4U2JUbEJTd2l4VHROYTZIdllnNEJnN2FQNzBYLWJFZlI3TVE5OWJ1b240Qnc?oc=5) |
 | Israel and U.S. Smashed Iran Nuclear Site That Grew After Trump Quit 2015 Accord - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE13SUg4cE5RUXVKZm1fb3pWc2kyTEpWSUptWnhfa1dzMzdHUEthOHFtbXVzbWYtT1dEc011MVhaaERKNzVNYkd4Q2pvVUhSOVdFYTZpSzF4NWplMWNqeEhJN3cyQ3hDd0FRYjFkUG5Bb01UVWdxTWRZSEVPaHJjbTg?oc=5) |
 | California closes $12-billion deficit by cutting back immigrants’ access to healthcare - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxQOHBOT3RaZFJKQVRjTmdEVndZUFBPU0t5OFdmcmptTzBQaDhlekZKY2V2bWd0c0psaFV4bXlEYmJmU21rbnNvaWR4eURGOEpOOWptSDFTeHFnZG1CN0FPSF9saVhHS3kxTHJ4T0wtUnZ0bkw2Umk3VU9IU3g5RXBUS0pSYjBNNDFxblJYTURfdkpTRE5PUUlkcDFlSktKRmJXTS02M1FxUl9IU1QzOXlzbXRENHdBSmRELWp5SktTX1RXR01VWW80MzZoYm0?oc=5) |
