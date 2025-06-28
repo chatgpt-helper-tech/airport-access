@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月28日 12:52:01（北京时间）**
+🕒 更新时间：**2025年06月28日 13:00:12（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | What the Supreme Court’s ruling means for birthright citizenship - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQSW1fZU03bWlRM0RpU2kwR3V6b3JBNmNvSFJ5YTM1ZWUxLW1VTTc3U25pSkFRV0REV0FKLXlyWnVxdUtjUWhaQ2VwVGNYSTM3Mk0wYXpHUU82eTIwMDhoanIxbk4xWHNjUWpPRE94ZHFtMkpSY3RPR0xDMDZPLVl4a0lvS19FVHRObVg4QlNQX256SHYyTll3OGtDNzNIQk1ibVEwb1RoakhPSVpYTEswdW1sNA?oc=5) |
-| Trump Says U.S. Ending Trade Talks With Canada Over Digital Services Taxes - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNdG5IRkRqUmxSM0daLTRueDdlNElxUk1iSXctbGNBaGZhWTVrM2FvdURNVmRKQXgxUXU2Tno4T1R1VkxVcWxGM1hyN3pNQ1NwNXg0RmpuYnVzeVVDaXpZcEJ3NHRBc2xvNFZEcGozUjZrYURVbkR6c3h0dUJkWnRFVGhScnQ?oc=5) |
-| Senate rejects limiting Trump's military authority on Iran - Axios | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE9PYXEzQllhdDVuV2FiUGZ3ZUJGNTBxN2JWOWdKODZybmwwckpIc1d0MHhxOERrN2FjNWRuWVFfNVl2dHJ6eGxIWFdUYllRbVBfQ0t2cVNtbjBmeThfMTI2OXpiVWZ5NFRmcjNXRy1qOERrdmc?oc=5) |
+| Amazon, Google, Meta, and Uber slapped with $2 billion retroactive tax bill as Trump suspends Canada trade talks - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNU0dDQWUyTTB5Y196QVdlNlJWVjMtY1Zxc0xmdlB6dEozVl9lTTlTVEd6eHVkT3lucFZ6dm10ZWZNT1VIaHhDSUEzd0ZabkYzNTI1VDA5R1RVV293UWx2cklLM09GemdhZXdCWnlGT2Q5c1BYbXN6NHNkZk9DbWwzUU9oUXFhYlhiNWVuM1Y1ZUI?oc=5) |
+| US Senate votes down resolution to restrict Trump from escalating Iran war - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQWVZhdG5RSmcxRkRvLUhYRzYxUmRFWERSU3FLbzNQTF9QdTA2M1BRTndOQUlldTBIRFlVN0p2cjBzc0l2eDdiemxnRkZwZFh1UUpNM2ZiTndvdEdYY0F4ZTlHbzhkRXhqZTd4ZGVlTnNVZ25idVdMaU5FSG9hRXdoR194ZG53UQ?oc=5) |
 | The Supreme Court Just Handed RFK Jr. New and Extraordinarily Frightening Power - Slate | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMExYWm9MTEhjVnNFZ1pBMlR6S3EwSUFwVFcxd0ZNVm55czRFQzNYcHFQdXY2ZVg4UmdFS3UtZ0ctemgtV1dEZWhtSjZWVFJvd0xPOG9RRm1iYm13Ti0waEt3LU13OGZLXzdLMjkzNmlNajlTa0pCR0pFNk5waVNIX041TTJBa0U?oc=5) |
-| A fourth judge has blocked a Trump executive order targeting elite law firms - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPNkZDNlpBSHRmZFUtdVA4SkJmLWJGY2xEbHpuTDhPTjlDUlhUVzcwUU5sRkx2NjBSNjQwVzJuMFMxY3owaUJJWlh4WENoVU1FaHJYamhVdWdvZVZjdDhmWi02Y0hOandldTRXdDlRU3pmakVjeENRRDNUNkZwWU82OHRBZng?oc=5) |
+| Judge Strikes Down Trump Order Targeting Susman Godfrey Law Firm - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPX3VYdXQ4aWVUQUdZelZfbmlKYzA1cDlyWHdyQlV3elphbEh4Rzc5QlJWRVhzT1VhMU9wOGE5Um9xcllLTjQwUXlGbWVobHE4VkxTZ0ZNMUZfLUw3UjhPN2JjMkJxVS1jbGNmREFQYmVWQ1RRWG91TW9JS3NnNzBRcFpWMkFoU2R2LVJzMHI4QQ?oc=5) |
 | Congo and Rwanda sign a US-mediated peace deal aimed at ending decades of bloody conflict - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQa2g2cnp6ZkNEbF9hTm9nUWllTVREbHBBcUNFQ3M0dU9sQmRNcUw2a1NqVWE5WmJpZXl0cl9ZTldjQmFJTGdnZkx0bU5mSFRvcjZNRm9McDRIa29VTlJMbXpBUmFGS0pYNHhqY3FYX0plVS1WVmhZVTA5a3hSNGVLVWZ4S0VVYXhDX2ZOZnVnd29mTVZKclNiS0NyNjhoZw?oc=5) |
 | University of Virginia president, pressured over DEI, resigns rather than 'fight federal government' - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQLUdnYkJHUUpkVXljQTJLSW5IVnlsVGZrVFA0ZWFQdm5CRmpTdzl5em1KVk4wQkZIOXh3TjZrUjFQOWdEUm1kUWRpazgxbi1GZE13WVAxTV9yM2pyTzVjcTI2Z3U4MFRmUzc5YWFKOUVjRFJPZXROQ3ZMNHZOSkhHM3BwcWo2VWdXd1N3VFE5bW5RWnNjS3pGS2Q5VUpKZw?oc=5) |
-| Senate plunges into do-or-die moment on "big, beautiful bill" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFB0UWhaVWpQZFRMVlJqVHVCeWV4bFFtUVQwaXBGTGN5b21CUXVGcWlDbGxLdGFWR0xlTjY1eGNMRlM5YU5vT2FLYkE1cHd3alVVLWdKM1VpOU5XOUdFRFFqRlU5aDhxQk9CaXdyRF9qSDVoUQ?oc=5) |
-| Biden pays respects as former Minnesota House Speaker Hortman, killed in shooting, lies in state - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQSnFLWFVKZVdUNlhIdlJDbEU4SEV3S0xHVUk0Zk1mX1ZRQVdma3JzVkFSTDFic1l5bXhkUnRLeEhGTDB2a0JtYjM4ZWc1X01EeHVpOXFlRU5IOHp3c084b19ON1ZfZHlpMWxfSDM3NHFlSWZpaG1yeVdnRUJuUzlKV0dSZkNHM0U5TkhwWktXTkQ?oc=5) |
-| Trump calls New York Democratic mayoral candidate Zohran Mamdani 'a communist' - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQaU5oS1hEM3dwakVnSzdCQ0xUcTRUX28tWTQ0LUk2VURKeE9GSk92cXN5Z092QmVodkVmdWlfUHRsTW1EdlpaSnJQTWpfQlRJc09VRVVUbFIyUWhxaUc5Nmt5Si1sMUJ1Ql9MR3JFVF9NLWJCRFJqQnYyTmVYWlhFT2x30gGHAUFVX3lxTFBxTVVibUp1b0g5dXBYZVBWdnRsSkNXSmtnRms0WGltV2ZvN0ZaOC1Dd3lTazJoVURZRFdMQzNDTDZBSV9VbmxGakpUYXFaaWZIdndNdEszZkplbmhpc3hmTGpmd2VJTmQzOVFsUjVfVUE0SE9XOFFza1ItNFlBand1ajdxRWNnTQ?oc=5) |
+| Senate Republicans release updated text for most of their megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxPX0Z4MmNoRHAtYmcwRzFNaktIczB5UFhjd1A1d01MN3B3aXlmQlJpR3puY19TY3RPNUFlTFdkWEM2VXZ3ZVVxZldubXFpLTJ0V3hkcnF6Y1laTjhITXhiVmUtMGtfYVFZdDVac1pwVkZEU2tOTV9acDNzMjlfUUtMem5teDFQYW1rYXJ0d2M5TTllSXJhWi1CTlltNVlBN3liMGhkdFlsbkVuMXY4dDVRM0NqdmxrTEszcWlNWHJFOEdnNXU0NFNlRTZB?oc=5) |
+| Joe Biden visits Minnesota Capitol to honor Melissa and Mark Hortman - Star Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPUnNSamhaelJQSHkya2Q3aVhTVnpRWDlmQWUwNVBNcy1NVEtsVUJLZlpzaFFtcWxLUl9aY2ZXWmY2X001UV96WTBpN3lmMG15QVRZNllIaHNhb19tQlJsVDFkWndqbllYUkJyS0szWnlZZ3g4VVE3dVV4UXBKZVFubWxDd2ItU3duMWNQV0p5OS1yeC1IWHU3ekdLdjZ1UHpoZy1wWl9ScG9qQQ?oc=5) |
+| Schumer defends Zohran Mamdani from "disgusting" GOP attacks - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNcTdXLUZzSjlYNXV4QUxYZzU3N19UVTNIZ2FSY0ZrWm1abjY5R244eE5NMjZVWmkxZktXeTRTeVgyNm1lb0E5bk1YV2FIdDVRNHRQWm9HOENkMmt6ejRNUXhBSTNXLUNobUItdDVzUTluQVVXM0VMcmpwTmZLWktUM05VTl91Zmc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
