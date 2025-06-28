@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月28日 21:00:11（北京时间）**
+🕒 更新时间：**2025年06月28日 21:13:01（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | What’s next for birthright citizenship after the Supreme Court’s ruling - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOUHhJWExxU3E1Z09YRFJZQ2FwS3VjanRHMXRiOVZ6STY0RlVuNnc5N0lWZks3RVlLb0kzRzVSaUN3RW9kckI3U1pEclZMMTA4OTQ2S0hSUkFFSXVEalNKdmx4QVVWbkJ0WW1BN3J5ZzRHU3ZTQ1FDVHRDblgxaWZLZTRmVGxKeWhFSlJBc3RMbU04VWM0U24tTjZrTU02dVpVWWRDYjc1SVZEM2h0czhLdkpSaw?oc=5) |
-| Senate plunges into do-or-die moment on "big, beautiful bill" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFB0UWhaVWpQZFRMVlJqVHVCeWV4bFFtUVQwaXBGTGN5b21CUXVGcWlDbGxLdGFWR0xlTjY1eGNMRlM5YU5vT2FLYkE1cHd3alVVLWdKM1VpOU5XOUdFRFFqRlU5aDhxQk9CaXdyRF9qSDVoUQ?oc=5) |
+| Senate Republicans release updated text for most of their megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxPX0Z4MmNoRHAtYmcwRzFNaktIczB5UFhjd1A1d01MN3B3aXlmQlJpR3puY19TY3RPNUFlTFdkWEM2VXZ3ZVVxZldubXFpLTJ0V3hkcnF6Y1laTjhITXhiVmUtMGtfYVFZdDVac1pwVkZEU2tOTV9acDNzMjlfUUtMem5teDFQYW1rYXJ0d2M5TTllSXJhWi1CTlltNVlBN3liMGhkdFlsbkVuMXY4dDVRM0NqdmxrTEszcWlNWHJFOEdnNXU0NFNlRTZB?oc=5) |
 | Today's Supreme Court Decision on Age Verification Tramples Free Speech and Undermines Privacy - Electronic Frontier Foundation | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxNWkdFQlVBdWZ2WXVjbVNnOThKT3FjRlBQN1p1LWwycVhlcUIyWk43WjlZRmtoWFVvTUxYZ29lZ19CaFgtNlpCdWgtblM2WDFpWUxRUWViT191NGhKRnMtcklRSVE0WmtqVVVWMVo3MS1KQXlFTjFYR1puQ0ZhZWJQOTRjcDRTV192NXJaLWZjcWY1NDBvVkdmaEJzXzlfa0JrUVpJTl9tNkhpQ1habGlKOFpsZHBSRng2UDd2dw?oc=5) |
-| Biden pays respects as former Minnesota House Speaker Hortman, killed in shooting, lies in state - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQSnFLWFVKZVdUNlhIdlJDbEU4SEV3S0xHVUk0Zk1mX1ZRQVdma3JzVkFSTDFic1l5bXhkUnRLeEhGTDB2a0JtYjM4ZWc1X01EeHVpOXFlRU5IOHp3c084b19ON1ZfZHlpMWxfSDM3NHFlSWZpaG1yeVdnRUJuUzlKV0dSZkNHM0U5TkhwWktXTkQ?oc=5) |
+| Former President Joe Biden pays respects to Hortmans, visits Hoffmans at the hospital - FOX 9 Minneapolis-St. Paul | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxObDNFOWdGSGFEeHdydG9vb19XOVp0TnNuV3czZ1VVZ2dlNFlrb0xaZnduRFBaWHRWQkNIZk9BQlJWdkRPOHVpQ3lRRTF3dXBHSnk1OXA0VmJZa0ZpQ0pOQmI1RlJPWEE1SGZLWW1ja0tibzFTbXhfWWJWR1NTbW1PN1BFcnhhY3FNUGVMd1NR0gGTAUFVX3lxTFBxQ0czb285VktHaHd0SmNrRDF5YjNuR0xQMmNla0Z6ekY5eEhuMl80UjlaNU9qTGNPTnhSMUVPNG5pUEJBOHd4d29FM3RVZmlYdXM2MlJXZUljdHpMQVlFR0hMQzQ4YXVYNklGY29aSjNBM3RGRkdteGl4a2FEc21TcXgwd0J5dnNldm1aV1FkRlBpWQ?oc=5) |
 | DOGE loses control over government grants website, freeing up billions - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPMXNOYlJJalZHbVgtQjZKOEwzSmQzQ044TldWRGZsSE9PelBtOU9Xd09mNkNvbTRxMHRnTTlJYUIxUWdiOHd4clo0dGx6WWpoT1VnQUFkdzYzUEJsMW1YbWVrVFNQN190X1pLMWdTOFBOcng1VGp4alA0RHZIdlFqTDhRRVhLSmNHaHpKV2ZR?oc=5) |
 | Amazon, Google, Meta, and Uber slapped with $2 billion retroactive tax bill as Trump suspends Canada trade talks - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNU0dDQWUyTTB5Y196QVdlNlJWVjMtY1Zxc0xmdlB6dEozVl9lTTlTVEd6eHVkT3lucFZ6dm10ZWZNT1VIaHhDSUEzd0ZabkYzNTI1VDA5R1RVV293UWx2cklLM09GemdhZXdCWnlGT2Q5c1BYbXN6NHNkZk9DbWwzUU9oUXFhYlhiNWVuM1Y1ZUI?oc=5) |
 | University of Virginia President Resigns Under Pressure From Trump Administration - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQX2VQNS15R1RRZ0RtQy1FTzRyRjZsVXFLS0NTeTROWnNsOHJ3S1loS2ZFWXgxX0lLem1LOU9ydGdOUGRjT3dUbTQtN0pjQUJnRExITmZTUW84NWt6aThuWWdEd0JJYzFycTBvVDNzc1E4aGFQelNXVXBYYzJpU1ZmcXp4b1Nlc0tsMUJnbXJOX1VVZw?oc=5) |
