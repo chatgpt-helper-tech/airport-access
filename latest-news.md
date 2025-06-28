@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月28日 20:40:17（北京时间）**
+🕒 更新时间：**2025年06月28日 20:53:31（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | £96m of cocaine seized from vessel at UK port | [阅读全文](https://www.bbc.com/news/articles/c1k84xpz1mmo) |
 | I found a bacteria-eating virus in my loo - could it save your life? | [阅读全文](https://www.bbc.com/news/articles/czryvm3nlvdo) |
 | Did a JD Vance meme get tourist banned from the US? | [阅读全文](https://www.bbc.com/news/videos/c5y2l9nn7y1o) |
-| In pictures: Celebrities descend on Venice for Jeff Bezos and Lauren Sanchez's wedding | [阅读全文](https://www.bbc.com/news/articles/cdx5g4vjz07o) |
+| In pictures: Celebrities descend on Venice Jeff Bezos and Lauren Sanchez's wedding | [阅读全文](https://www.bbc.com/news/articles/cdx5g4vjz07o) |
 | Japan loves them. And now they're in the UK - strawberries and cream sandwiches | [阅读全文](https://www.bbc.com/news/articles/c75rdryk63lo) |
 
 ## 📰 Google News
@@ -31,7 +31,7 @@
 | Amazon, Google, Meta, and Uber slapped with $2 billion retroactive tax bill as Trump suspends Canada trade talks - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNU0dDQWUyTTB5Y196QVdlNlJWVjMtY1Zxc0xmdlB6dEozVl9lTTlTVEd6eHVkT3lucFZ6dm10ZWZNT1VIaHhDSUEzd0ZabkYzNTI1VDA5R1RVV293UWx2cklLM09GemdhZXdCWnlGT2Q5c1BYbXN6NHNkZk9DbWwzUU9oUXFhYlhiNWVuM1Y1ZUI?oc=5) |
 | University of Virginia President Resigns Under Pressure From Trump Administration - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQX2VQNS15R1RRZ0RtQy1FTzRyRjZsVXFLS0NTeTROWnNsOHJ3S1loS2ZFWXgxX0lLem1LOU9ydGdOUGRjT3dUbTQtN0pjQUJnRExITmZTUW84NWt6aThuWWdEd0JJYzFycTBvVDNzc1E4aGFQelNXVXBYYzJpU1ZmcXp4b1Nlc0tsMUJnbXJOX1VVZw?oc=5) |
 | Senate rejects limiting Trump's military authority on Iran - Axios | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE9PYXEzQllhdDVuV2FiUGZ3ZUJGNTBxN2JWOWdKODZybmwwckpIc1d0MHhxOERrN2FjNWRuWVFfNVl2dHJ6eGxIWFdUYllRbVBfQ0t2cVNtbjBmeThfMTI2OXpiVWZ5NFRmcjNXRy1qOERrdmc?oc=5) |
-| Environmentalists sue to stop opening of ‘Alligator Alcatraz’ in Everglades - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOdnpEWjM5aVYzb1k0WXZpcnZCZUhUbnBaSGNiQXNGaURDbHZVTGlxWE0xZFNxTHd1dS1iNjFxb2FpbVpQZVExLTJpc01hZG9rM0FpdjMwNTdlNXNsRUxuVVRLR3MzTTdNd1BkV1pDalA3QjhPNVJucVRTM2ZrdUEwUmFUellyOU52cVVGUDFzN0xQM3BoZDRJcnFQbDhWa05HN3BtNXBpYlRRcWd2SHpRUTlESHpSN2xybVVCRzZn?oc=5) |
+| House Republicans proposed to diminish a federal grant for students. Campus leaders want the Senate to save it. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi8AFBVV95cUxPZnJqdW1xVXpTby1uT24ybjFHLU5tLWdOY1VpZUtaQUJ3YWZtMnBHTC1zYk42WmdycmlLcGNPZEhGMXlEWTNaTGltUlhDUjhNM3R4bW9GSk9VWkNJZFhUSncxVzZ4RzROUFFRaGdmcUNVdDJZcFJiaW01eGF3R1R1WkFEeXdxVXlNeHhDLXowdzU5XzVKTXMxUTZGNl9CYk1NaVZ0elpydnBMVmFZVGtJUDduMnF2ZHlJa2RVVXdkUmpoWWs2U1ZidDhWM1I1QzlkMjNxTmJvamI1TTItdE8xRUlkV3h4MnRGYkVCZEZwNVY?oc=5) |
 | California closes $12-billion deficit by cutting back immigrants’ access to healthcare - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxQOHBOT3RaZFJKQVRjTmdEVndZUFBPU0t5OFdmcmptTzBQaDhlekZKY2V2bWd0c0psaFV4bXlEYmJmU21rbnNvaWR4eURGOEpOOWptSDFTeHFnZG1CN0FPSF9saVhHS3kxTHJ4T0wtUnZ0bkw2Umk3VU9IU3g5RXBUS0pSYjBNNDFxblJYTURfdkpTRE5PUUlkcDFlSktKRmJXTS02M1FxUl9IU1QzOXlzbXRENHdBSmRELWp5SktTX1RXR01VWW80MzZoYm0?oc=5) |
 
 ---
