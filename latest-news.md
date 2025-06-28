@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月28日 18:13:33（北京时间）**
+🕒 更新时间：**2025年06月28日 18:26:28（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | What the Supreme Court’s ruling means for birthright citizenship - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQSW1fZU03bWlRM0RpU2kwR3V6b3JBNmNvSFJ5YTM1ZWUxLW1VTTc3U25pSkFRV0REV0FKLXlyWnVxdUtjUWhaQ2VwVGNYSTM3Mk0wYXpHUU82eTIwMDhoanIxbk4xWHNjUWpPRE94ZHFtMkpSY3RPR0xDMDZPLVl4a0lvS19FVHRObVg4QlNQX256SHYyTll3OGtDNzNIQk1ibVEwb1RoakhPSVpYTEswdW1sNA?oc=5) |
-| Senate Republicans release updated text for most of their megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxPX0Z4MmNoRHAtYmcwRzFNaktIczB5UFhjd1A1d01MN3B3aXlmQlJpR3puY19TY3RPNUFlTFdkWEM2VXZ3ZVVxZldubXFpLTJ0V3hkcnF6Y1laTjhITXhiVmUtMGtfYVFZdDVac1pwVkZEU2tOTV9acDNzMjlfUUtMem5teDFQYW1rYXJ0d2M5TTllSXJhWi1CTlltNVlBN3liMGhkdFlsbkVuMXY4dDVRM0NqdmxrTEszcWlNWHJFOEdnNXU0NFNlRTZB?oc=5) |
+| Senate plunges into do-or-die moment on "big, beautiful bill" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFB0UWhaVWpQZFRMVlJqVHVCeWV4bFFtUVQwaXBGTGN5b21CUXVGcWlDbGxLdGFWR0xlTjY1eGNMRlM5YU5vT2FLYkE1cHd3alVVLWdKM1VpOU5XOUdFRFFqRlU5aDhxQk9CaXdyRF9qSDVoUQ?oc=5) |
 | Amazon, Google, Meta, and Uber slapped with $2 billion retroactive tax bill as Trump suspends Canada trade talks - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNU0dDQWUyTTB5Y196QVdlNlJWVjMtY1Zxc0xmdlB6dEozVl9lTTlTVEd6eHVkT3lucFZ6dm10ZWZNT1VIaHhDSUEzd0ZabkYzNTI1VDA5R1RVV293UWx2cklLM09GemdhZXdCWnlGT2Q5c1BYbXN6NHNkZk9DbWwzUU9oUXFhYlhiNWVuM1Y1ZUI?oc=5) |
 | Supreme Court preserves key part of Obamacare coverage requirements - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQaUNNNllOZFNqWnRZZklROVFTTGZpUEtScEJ0Mmx3U3ZoUGQ3LTd3azZIRkZSMkF1WE8tYlM2cGFXOE9vWVJYb2VUbEFGMzE0S0tNZjlIVFBmc1k4THR3S3djekdXREpBeEZOdkJobUpkUExuYTNmYTJtelhSQkZXbTB6VlBvZW1zU1E0dnM3ZWprY0diQmFkVjktTTZrZE5GN0lnOVk4RDZrN29MR204NA?oc=5) |
 | Senate Blocks War Powers Resolution to Limit Trump’s Ability to Strike Iran Again - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQQzZscEtPWnV5eVVIY1BsdUsxWlhsNmZiem9XSDU0SWhhRXM3S2w1VUY1bHMwU3NmQXJMbTV3T2szYl80Zmo5MTNvQllBZWYxX0d4ZnFUYVQ3WEdwaHFNbk45ZUEyak5SWGExaGhNd1kxOFo5UVc2d2xuX1FQR25tMFdCanh5a0U?oc=5) |
