@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月28日 16:14:19（北京时间）**
+🕒 更新时间：**2025年06月28日 16:27:21（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | The Supreme Court Just Handed RFK Jr. New and Extraordinarily Frightening Power - Slate Magazine | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMExYWm9MTEhjVnNFZ1pBMlR6S3EwSUFwVFcxd0ZNVm55czRFQzNYcHFQdXY2ZVg4UmdFS3UtZ0ctemgtV1dEZWhtSjZWVFJvd0xPOG9RRm1iYm13Ti0waEt3LU13OGZLXzdLMjkzNmlNajlTa0pCR0pFNk5waVNIX041TTJBa0U?oc=5) |
 | University of Virginia president resigns under US government pressure - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNSWtxZnpTVnJhN2dYNVFtcUxTcTFzZzVOS3hrcDNUR0EzYmZ3bThKbnRvbGlwdThQeC1wY1B2N1dXb2FEV2JaWV9fcmJDN1pUN0J1REpRaFJxX1RZWFhRWDlYakVYMlpzSW9OcnowcFZXZTVxZ1MyZnZnR3FUZDFSd2s0eFJkTHNaUTNGcWhtZTNzck1RbllXeWtJR3F6SnE5TFFkZ2ZGbV93TUM1QU1j0gG0AUFVX3lxTE1SUk04YlhFOVRTeUpnbnNtamtEeTNyVkpJUGdNa2c1UFlYU1ozWE5oM2pHVHlDc0F5cnJFWFVnRWJ2ZnNlaEE5UDVlZVdXbjFweC1NVm15U3JCeVVCVGNnUEtUX0hYM3ZiTThoVmlmTDRSZG9teHZoNjFBc3hiYjBSTC1ZcXRCVXk0VnZQdmtRQ2ZPNnpxTTl6TEdfS3A3OVpxNkYwUnE5eXJiQnF0cGs1RDcxTQ?oc=5) |
 | Governor Newsom signs balanced state budget that cuts taxes for vets, fully funds free school meals, builds more housing, & creates jobs - Governor of California (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiU0FVX3lxTFBJZmV4bzNwOWdBMjhZcEhkTS1VVHZiTERQOVRvdE5RaWJOemxSYXhLbXJ5dkYzcUd4dk5JM3lISGFJOThhVjhwakFBWFpiaVZFbk9J?oc=5) |
-| Schumer defends Zohran Mamdani from "disgusting" GOP attacks - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNcTdXLUZzSjlYNXV4QUxYZzU3N19UVTNIZ2FSY0ZrWm1abjY5R244eE5NMjZVWmkxZktXeTRTeVgyNm1lb0E5bk1YV2FIdDVRNHRQWm9HOENkMmt6ejRNUXhBSTNXLUNobUItdDVzUTluQVVXM0VMcmpwTmZLWktUM05VTl91Zmc?oc=5) |
 | A slain Minnesota lawmaker's beloved dog, Gilbert, stays with her as she and her spouse lie in state - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQU3JlZXZCRmhpOF8zdjgxNXpqMW1sQzNENUFndEJuY250RUViRDdkS2tRMVlXOXZuOGNFdjFJUkxrRGpURWdlazZIWmNCMm9KSmVjSXZreU00R3ZXNndRWWhQTWxvLTV6bDJISkVjV0NieUdJR2VaTUJaNXRkcThTVi1Uc2wxTGRCMnB2MkJsQ3pvcDVzWDVldWZ3bzM?oc=5) |
+| Schumer defends Zohran Mamdani from "disgusting" GOP attacks - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNcTdXLUZzSjlYNXV4QUxYZzU3N19UVTNIZ2FSY0ZrWm1abjY5R244eE5NMjZVWmkxZktXeTRTeVgyNm1lb0E5bk1YV2FIdDVRNHRQWm9HOENkMmt6ejRNUXhBSTNXLUNobUItdDVzUTluQVVXM0VMcmpwTmZLWktUM05VTl91Zmc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
