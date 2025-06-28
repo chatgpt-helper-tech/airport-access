@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月28日 14:54:01（北京时间）**
+🕒 更新时间：**2025年06月28日 15:01:53（北京时间）**
 
 ---
 
@@ -25,10 +25,10 @@
 |--------|-------------|
 | What the Supreme Court’s ruling means for birthright citizenship - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQSW1fZU03bWlRM0RpU2kwR3V6b3JBNmNvSFJ5YTM1ZWUxLW1VTTc3U25pSkFRV0REV0FKLXlyWnVxdUtjUWhaQ2VwVGNYSTM3Mk0wYXpHUU82eTIwMDhoanIxbk4xWHNjUWpPRE94ZHFtMkpSY3RPR0xDMDZPLVl4a0lvS19FVHRObVg4QlNQX256SHYyTll3OGtDNzNIQk1ibVEwb1RoakhPSVpYTEswdW1sNA?oc=5) |
 | Amazon, Google, Meta, and Uber slapped with $2 billion retroactive tax bill as Trump suspends Canada trade talks - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNU0dDQWUyTTB5Y196QVdlNlJWVjMtY1Zxc0xmdlB6dEozVl9lTTlTVEd6eHVkT3lucFZ6dm10ZWZNT1VIaHhDSUEzd0ZabkYzNTI1VDA5R1RVV293UWx2cklLM09GemdhZXdCWnlGT2Q5c1BYbXN6NHNkZk9DbWwzUU9oUXFhYlhiNWVuM1Y1ZUI?oc=5) |
-| Senate plunges into do-or-die moment on "big, beautiful bill" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFB0UWhaVWpQZFRMVlJqVHVCeWV4bFFtUVQwaXBGTGN5b21CUXVGcWlDbGxLdGFWR0xlTjY1eGNMRlM5YU5vT2FLYkE1cHd3alVVLWdKM1VpOU5XOUdFRFFqRlU5aDhxQk9CaXdyRF9qSDVoUQ?oc=5) |
+| US Senate votes down resolution to restrict Trump from escalating Iran war - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQWVZhdG5RSmcxRkRvLUhYRzYxUmRFWERSU3FLbzNQTF9QdTA2M1BRTndOQUlldTBIRFlVN0p2cjBzc0l2eDdiemxnRkZwZFh1UUpNM2ZiTndvdEdYY0F4ZTlHbzhkRXhqZTd4ZGVlTnNVZ25idVdMaU5FSG9hRXdoR194ZG53UQ?oc=5) |
 | The Supreme Court Just Handed RFK Jr. New and Extraordinarily Frightening Power - Slate Magazine | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMExYWm9MTEhjVnNFZ1pBMlR6S3EwSUFwVFcxd0ZNVm55czRFQzNYcHFQdXY2ZVg4UmdFS3UtZ0ctemgtV1dEZWhtSjZWVFJvd0xPOG9RRm1iYm13Ti0waEt3LU13OGZLXzdLMjkzNmlNajlTa0pCR0pFNk5waVNIX041TTJBa0U?oc=5) |
 | Judge Strikes Down Trump Order Targeting Susman Godfrey Law Firm - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPX3VYdXQ4aWVUQUdZelZfbmlKYzA1cDlyWHdyQlV3elphbEh4Rzc5QlJWRVhzT1VhMU9wOGE5Um9xcllLTjQwUXlGbWVobHE4VkxTZ0ZNMUZfLUw3UjhPN2JjMkJxVS1jbGNmREFQYmVWQ1RRWG91TW9JS3NnNzBRcFpWMkFoU2R2LVJzMHI4QQ?oc=5) |
-| Governor Newsom signs balanced state budget that cuts taxes for vets, fully funds free school meals, builds more housing, & creates jobs - Governor of California (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiU0FVX3lxTFBJZmV4bzNwOWdBMjhZcEhkTS1VVHZiTERQOVRvdE5RaWJOemxSYXhLbXJ5dkYzcUd4dk5JM3lISGFJOThhVjhwakFBWFpiaVZFbk9J?oc=5) |
+| Senate slated to take first vote on megabill Saturday - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxQdnJQcE1HTWxNVDJTZmpXS052eURXR3dLTW9PYl82T1dfMHJQcldCT2dGUXZ3U3oydlVOMFlvSE0xdm1sR1gxS3hRZTRpLVk1eERfTnFEaVZDZEJKR3FxNXlOMXVHOU1iMmx5aTJLTHg5dmtzSGN6TDlqdUx4VGEzazRaSEVTWml6ZE1pNDVlUkl4bmV3dk1LcklhTWVmYU12MkEya3V1X1o3U1Z0R1kxdDVYNUdpbmJrTndwLQ?oc=5) |
 | University of Virginia President Resigns Under Pressure From Trump Administration - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQX2VQNS15R1RRZ0RtQy1FTzRyRjZsVXFLS0NTeTROWnNsOHJ3S1loS2ZFWXgxX0lLem1LOU9ydGdOUGRjT3dUbTQtN0pjQUJnRExITmZTUW84NWt6aThuWWdEd0JJYzFycTBvVDNzc1E4aGFQelNXVXBYYzJpU1ZmcXp4b1Nlc0tsMUJnbXJOX1VVZw?oc=5) |
 | Two major NYC unions back Mamdani’s general election bid for mayor - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQRFRwbWpLUWNRRDV0eXRhTTAyOXk0dFF5LVRfTWhxSHhJbFJJVExGQjM0TExCTkl6V3FNTTIyUFZhUk9RSWJSX2VhRC1UQk9vTHRqUmVtV2hDelFnS0ZfMGwtVHlvUDN3VXFKUHRER25oRUdGZDZlOHVYWVppUy1OVko1NGs2b2pnVVRDcEUwRHRueFg3d1J3VkhaQk05TDBLMmZWOHc4TXVILW1LYUFycTFzcTZUZw?oc=5) |
 | A slain Minnesota lawmaker's beloved dog, Gilbert, stays with her as she and her spouse lie in state - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQU3JlZXZCRmhpOF8zdjgxNXpqMW1sQzNENUFndEJuY250RUViRDdkS2tRMVlXOXZuOGNFdjFJUkxrRGpURWdlazZIWmNCMm9KSmVjSXZreU00R3ZXNndRWWhQTWxvLTV6bDJISkVjV0NieUdJR2VaTUJaNXRkcThTVi1Uc2wxTGRCMnB2MkJsQ3pvcDVzWDVldWZ3bzM?oc=5) |
