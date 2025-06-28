@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月29日 06:27:24（北京时间）**
+🕒 更新时间：**2025年06月29日 06:39:41（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | US Senate Republicans push ahead on Trump's sweeping tax-cut, spending bill - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQakk0azlpSFVXMUs5SGN3RFZSUFFlMkxjQnNxWEdKcU90RHZOalJLVHBMM2F4WTExc2VsejRYcXVKd1M3TGo5Yk0zRTAwTnBmbERzZDFvMi1FQXRWMGhFNXgtRlB3X3AwdWIyVmRvVW9TWDg5N0IyUU1EdDJMQjNhbmpqS1Qxa191YnBKd3pva3Rta0dqdG1FcjcyZVhwN09SbWR6bUl1d2s0UzVWelVyZFR6UmNIamUzSXhV?oc=5) |
 | Why Trump’s birthright citizenship ban still faces an uphill battle in court - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQRnRmZEE1eXFlTHFUQm56U1VDNWx2ZU1yc1Btb3dudUk2WVFIWk1DOUZHaXduS1ZXRk5NdHJBM1ZDTGI2THJWTUJRYTdXdFpHOF9IdHZjeDF6UF9vbXZHd2xMSC1KMnEya2lFQXFlOHhzbFMzUHRJdkEwSHNxQlVEb19vY29TNVFqaGJZanc3bUVOeU1SWmlrVFFONzlPUmlhVHc?oc=5) |
-| Defense Department will stop providing crucial satellite weather data - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOdGpRZ3FkWUJicG90cDMxWjk3STdScENMelV5N1djZkxrSXRKNjJJMEZoZUEtTUpNNkpHNWRCYlJsS3pxU3FNZzA2RTdjMFpLbFZOX1d6UXBFc0l4d1RjODY1THBhZmhMazg1OFRYX1c3LXJzUWVlVlNzQjlSbE84U0p6QTEyamhiQ0tFMXowN2Nkc0ZET1dVdzlPTHBuUjhYMHc?oc=5) |
+| Hurricane season is here and meteorologists are losing a vital tool for forecasting them - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOanFNSG1lQTBoV1Nod19Gcjg0MFZwTFYtM1JFdTh5Q2xpTTVFNmdJc1U5bEhtY0VncHIwR2JTWGhyMTVjV1ZPa3AydGQyU1dzYm5iRk5SZTFlZmtvWVBITEpFZDMyc1lXRWRTOTBwYml6NTFwWVFyZExoYWhqMHhvemthb1JkdFBsMDBjZ2ZTbEcydGowcGdBZHRMd3ZCWDJEX1F0RXFlNjRvQdIBrwFBVV95cUxPMjhwVUhwd3ZIUXpqdWRDUDZSbkYxQm5mc0FUWTBxa0pGRWIzWU1kUlZsZGp2NTNKVEdVbmFqdXBNTjlmOHdzdDBVNVhfX3BScVVXYTJybFZhcFNvMjRZa3FHWFNZa21KVzZocDItQzZqc2l0a21jNUdudE5QSUg0elBCWV9XM2VaVzVMRXZJS1JXM1puSC1WNGpXMWI1OGhGX2xjUmdUdHdHdHdMZzRv?oc=5) |
 | Israel and U.S. Smashed Iran Nuclear Site That Grew After Trump Quit 2015 Accord - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE13SUg4cE5RUXVKZm1fb3pWc2kyTEpWSUptWnhfa1dzMzdHUEthOHFtbXVzbWYtT1dEc011MVhaaERKNzVNYkd4Q2pvVUhSOVdFYTZpSzF4NWplMWNqeEhJN3cyQ3hDd0FRYjFkUG5Bb01UVWdxTWRZSEVPaHJjbTg?oc=5) |
 | Israel's leaders slam a news report on a Gaza 'killing field' near food sites - NPR | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1nQzNRcVN3VTJnQUJ6bjFPMDdkLW00d1NyeGtCQ2o0cHNoeng1N0xYeVlONFNFbDhIQlpYZFg1VTMxemNnVGNIaWZKMzdNWm1jNFJWSm9RSnp0WEtZd21vbHBYRDcxSnZhVVZibDlzSTNhVHJlakFpbGpmVQ?oc=5) |
 | Chief Justice Roberts warns against heated political words about judges - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPU0NQbndTMnBDR0FWenR1T3E3bTgzaXQ5RzRubzRzdmh1M0R5NEd4amp6QWRFT2FtYW9WM0V1M25zY0RRd2w2UW1nNlBuRXNRUTc2em50aDlNZFVRTlR0dzVsaWo4ZkhObGdrZVJKd2dtb0ZqbmVwZ0dydi1NbDk4ZV9ySHBMdDNIUDJXQVhHdTJpbGY3bTUtbjNqbllmXzJjQ0FaVlFCcVdTd01IZ0pj?oc=5) |
