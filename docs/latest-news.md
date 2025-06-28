@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月29日 00:14:52（北京时间）**
+🕒 更新时间：**2025年06月29日 00:27:35（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | California closes $12-billion deficit by cutting back immigrants’ access to healthcare - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxQOHBOT3RaZFJKQVRjTmdEVndZUFBPU0t5OFdmcmptTzBQaDhlekZKY2V2bWd0c0psaFV4bXlEYmJmU21rbnNvaWR4eURGOEpOOWptSDFTeHFnZG1CN0FPSF9saVhHS3kxTHJ4T0wtUnZ0bkw2Umk3VU9IU3g5RXBUS0pSYjBNNDFxblJYTURfdkpTRE5PUUlkcDFlSktKRmJXTS02M1FxUl9IU1QzOXlzbXRENHdBSmRELWp5SktTX1RXR01VWW80MzZoYm0?oc=5) |
 | SCOTUS rules in favor of parents seeking to opt children out of reading LGBTQ-themed books - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQUDZfRnQwTzkwYmZwQ1ZVZkZVak1uWmJkdWhUZTNyREdQNDRLR01OYldLMThIWlJIemxjX09UWjBkcnVzNzV4RTdWMlVfMWlFeG9SaXF2WnBnTXFtS3BlNVNMX2RIekpWTXRjNlRaZmV3OEdEN3Z2ZzZUYmFMXzlZSjlyblVMOXhaZEpzeWR0OXk5ZDRVMXlaeF9rQnI0NThyRDMwbjNqVWE5Z9IBrwFBVV95cUxNbXItV0VWUmdBeHJhOVBaaFl4RjJ5ZWlRVmFhSS1ITVVYTFpic05vM1hvd1JDT1luTW9Fd2hqZUxkaWpaUU1xZnRlTldWSldUb2hQR2NocFhxMjJaWE44TGZXNzJmSDF3N05BTzhHWWh3RXBmVkxIeUtYa01xNFpWTzFZbzlJNkNTeVpuamtWVi1LMlVGeG5TQk9leGk2ZG4wb1BVcnZ2ZGNvdVdqUW1J?oc=5) |
 | After ICE detention, Georgetown scholar Badar Khan Suri reflects on parenting from behind bars - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxONXJmNWJyZHJmQy12Mlk0RmplQVBneU1COTN4U0tHM2xGU0dEaEhXcUQ0SXk2REN4NjlKLXhLTnk0eUtEYkZBdGg0czBFUjY3TEZwTHpwM0EzUWFlbWZFSmFjQmUyYmItMWJTd0pXRjVtT2lhS1RZWGdQMVZ2ZkhHNG9Kc3BxY1p3ZXQ2T2pCb0k1NG9HdkJMSmlCSXJvaDNzY01HREhn0gFWQVVfeXFMTWFXVHFycFNsYkZfaDdHczNKbFJZa2RLcUNqUUZ2RTlpV05mMTVxalY1N2RjVF9WMU5vd0VRRG9XaGkzNENhd0I1Y0x5bm9pR1NFMEtKRHc?oc=5) |
-| Israel and U.S. Smashed Iran Nuclear Site That Grew After Trump Quit 2015 Accord - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE13SUg4cE5RUXVKZm1fb3pWc2kyTEpWSUptWnhfa1dzMzdHUEthOHFtbXVzbWYtT1dEc011MVhaaERKNzVNYkd4Q2pvVUhSOVdFYTZpSzF4NWplMWNqeEhJN3cyQ3hDd0FRYjFkUG5Bb01UVWdxTWRZSEVPaHJjbTg?oc=5) |
+| Senate GOP adds SNAP waivers for Alaska, Hawaii in new megabill text - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQVDZvRUFTV3c4UlZfalFJTTZFOTgtZVpaVjlsdGk0VldrNUI4cE41LTR4WGRXNG4wNENRQURac3hTekR2NFVuSzc2X3JGX0RJR0JhaDJIdi04el8xT1ctOWpTMm1UQXhwTkNFMUFvSk1pQ24wQkh1bzNrV1pzaEdEd09WT25NRC1BWmVlTHlvQ1E4TW9IT180U28xN21SV0VadmU5VGstWjFKai05Z3ByWUM2SQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
