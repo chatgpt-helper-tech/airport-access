@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月28日 08:40:48（北京时间）**
+🕒 更新时间：**2025年06月28日 08:52:18（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | Major Unions Are Dropping Cuomo to Back Mamdani in N.Y.C. Mayor’s Race - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNS0hZWUNkNGQ5Y2xjNWw5bGJUOWQ2V05SV01henpnbk9femw2VFNaVDEzNGhXdGRkcVdTdmR0RnJhMDRtVDg5bkExa1preUV0ckhxZzBLVTI3TWRDaEw1YUFxWkF1NFc0XzdYV3pXTnl0bUwtdDdFUGdrNzJtWWxiRWRocjlDTHQx?oc=5) |
 | US Supreme Court preserves key element of Obamacare preventive care - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxQd2o0amQ4ZE50S05GOGlnc3pnWjY1dm5KZ3BtRWFuaWhVbE1wdEFuRk05RFJSaWZDWVpUSG8zOFZXOTdCUEtrVzlRSE5Jb2RBSVlLbjFZbXlia3ozVFFIRXRkRUU5WmwxaEFJYUVUQWdfOFV3bzQxY1hoZE12SUxGZDR1UERyV0RvbHlJdE80SXlLdEI1V3BhbXV3ZVAyV2ZuZmFQQndYOUkwME5IbDlabU95QmRZdGl5YzlVSg?oc=5) |
 | US Supreme Court allows parents to opt out of lessons with LGBT books - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBQc2pBc1NKaDUzNVNzNUs5ZHhOQlI0RE9CLURyMVJGNUFsWXkyMkVPdjFqdzFjelEzZUp0NWdIeXQzMERCaUJ0RzlHQm9EdE4xVDN0b0NwQU1yd9IBX0FVX3lxTE9wVzJEVmloVy1hbXpJb3pCRXpyTTQybTF1LXprRndKVzVQMkpDcC1ZZlczSUNHc0JUaFpZUzJsSlpkY0gwUzRpZlJGZ09pWC1US0VpUE42UHdlblo4Vzdj?oc=5) |
-| University of Virginia President Resigns Under Pressure From Trump Administration - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQX2VQNS15R1RRZ0RtQy1FTzRyRjZsVXFLS0NTeTROWnNsOHJ3S1loS2ZFWXgxX0lLem1LOU9ydGdOUGRjT3dUbTQtN0pjQUJnRExITmZTUW84NWt6aThuWWdEd0JJYzFycTBvVDNzc1E4aGFQelNXVXBYYzJpU1ZmcXp4b1Nlc0tsMUJnbXJOX1VVZw?oc=5) |
-| Jail escapee Antoine Massey recaptured Friday in New Orleans - fox8live.com | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNa3BnYlQ1UHpTWmQzWk1vaWxOcDZfVEtzbDlIekZVaDlWTU5pcGtuczZVOVdUMkhZd2JSNC1tc2hpNzk0VENxWEVCSTA1YkVOeEtFaHk4bHFrbFJxR0pZYVFqLWhVXzZ3STF4Wk9RZ3ZWRmF5V1JSOWc5Y2NsdWk1bmVKTGthWmNpYkpkc3hPQ0JoT2RBLVBwOXZB?oc=5) |
+| UVA president resigns under pressure from Trump administration - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5MSVBDU205a09XclM3UVVYZzdhaDZkazNHOTMtclpVSmw3OWpwamU3Z3lhNFVrOEo3eE82ZXk3SzlqRzVMOUxPZ0hiUnp2VTZKNkFLTWFUTUlGT3lkbFVaVkdHeTd0TE1ZMjFDTVlfbjFqdEZvU2owRGNvTGFMZw?oc=5) |
 | Supreme Court upholds Texas law aimed at blocking kids from seeing pornography online - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPSlZneDVaMEp4cUNjNjBBR1p6TUVaTDVobk1HYlF2TktpRXNpTlE4akl3bm95eGZXTGxjV2tENDJmeFpiUE45SUVkUXoxSjN1TF9NLXJ3eENoSGtfVElXMUY0WlN0V2ljU0dyWWp0V2RlYlFXMVJ4YlFQcE1tMWNlVzJmcXVtbnJ1VkFXa1M5eVgtdXhZZVlGSTRpTlFxdVY1U2pj?oc=5) |
+| Senate GOP leaders close in on SNAP grants for wary Alaskans - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxPenRtSG1uMzVBeFJMNTJ4UzVWUlh4enFiRlRBQXdkaXh5ZUNXeWR4dE5hWFpsc3h5b1ZiZXZlcUxicHBBeGgzdzctZ3VXcFJXOFYwSDRFU2tFdnduMmpkcWxNaE8xT3gta2pjMDdmbllQc1kzUnNZbkljLV85dW9xdWhEMnVhQWQxX1p5X2dJZEZvdTZJNWxiM3Q0Rzc1Y2R6OHlEaTV5bXdNVktjQ3NuZGNicFBXTmdsUUFjMGFMNXgxSFRzd3c?oc=5) |
 | Senate slated to take first vote on megabill Saturday - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxQdnJQcE1HTWxNVDJTZmpXS052eURXR3dLTW9PYl82T1dfMHJQcldCT2dGUXZ3U3oydlVOMFlvSE0xdm1sR1gxS3hRZTRpLVk1eERfTnFEaVZDZEJKR3FxNXlOMXVHOU1iMmx5aTJLTHg5dmtzSGN6TDlqdUx4VGEzazRaSEVTWml6ZE1pNDVlUkl4bmV3dk1LcklhTWVmYU12MkEya3V1X1o3U1Z0R1kxdDVYNUdpbmJrTndwLQ?oc=5) |
 
 ---
