@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月28日 21:27:12（北京时间）**
+🕒 更新时间：**2025年06月28日 21:39:53（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Starmer says fixing welfare is a 'moral imperative' | [阅读全文](https://www.bbc.com/news/articles/c20wxq3q1x3o) |
-| 'What a shambles': PM's welfare U-turn leaves backbenchers feeling bruised | [阅读全文](https://www.bbc.com/news/articles/cd78vz9q3g5o) |
 | Southern Europe swelters as heatwave spreads | [阅读全文](https://www.bbc.com/news/articles/c5y74nv1zqpo) |
-| Hundreds of NHS agencies to be scrapped | [阅读全文](https://www.bbc.com/news/articles/c3w4xl8gyyqo) |
+| Netanyahu claims victory over Iran – but polling shows many Israelis don't trust him | [阅读全文](https://www.bbc.com/news/articles/cvgnp2l2vj9o) |
 | Carrie Johnson warns mums over dehydration from hospital bed | [阅读全文](https://www.bbc.com/news/articles/c4gd31g56d3o) |
+| In pictures: Celebrities descend on Venice Jeff Bezos and Lauren Sanchez's wedding | [阅读全文](https://www.bbc.com/news/articles/cdx5g4vjz07o) |
 | £96m of cocaine seized from vessel at UK port | [阅读全文](https://www.bbc.com/news/articles/c1k84xpz1mmo) |
 | I found a bacteria-eating virus in my loo - could it save your life? | [阅读全文](https://www.bbc.com/news/articles/czryvm3nlvdo) |
-| Did a JD Vance meme get tourist banned from the US? | [阅读全文](https://www.bbc.com/news/videos/c5y2l9nn7y1o) |
-| In pictures: Celebrities descend on Venice Jeff Bezos and Lauren Sanchez's wedding | [阅读全文](https://www.bbc.com/news/articles/cdx5g4vjz07o) |
+| Pioneering satellite reveals rainforests' hidden worlds | [阅读全文](https://www.bbc.co.uk/news/resources/idt-d7353b50-0fea-46ba-8495-ae9e25192cfe) |
 | Japan loves them. And now they're in the UK - strawberries and cream sandwiches | [阅读全文](https://www.bbc.com/news/articles/c75rdryk63lo) |
+| Did a JD Vance meme get tourist banned from the US? | [阅读全文](https://www.bbc.com/news/videos/c5y2l9nn7y1o) |
 
 ## 📰 Google News
 
