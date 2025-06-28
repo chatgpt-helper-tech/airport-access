@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月29日 01:13:51（北京时间）**
+🕒 更新时间：**2025年06月29日 01:26:21（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | Starmer says fixing welfare is a 'moral imperative' | [阅读全文](https://www.bbc.com/news/articles/c20wxq3q1x3o) |
 | Southern Europe swelters as heatwave spreads | [阅读全文](https://www.bbc.com/news/articles/c5y74nv1zqpo) |
-| Netanyahu claims victory over Iran – but polling shows many Israelis don't trust him | [阅读全文](https://www.bbc.com/news/articles/cvgnp2l2vj9o) |
+| Netanyahu hopes for boost from Iran conflict - but do Israelis still trust him? | [阅读全文](https://www.bbc.com/news/articles/cvgnp2l2vj9o) |
 | Carrie Johnson warns mums over dehydration from hospital bed | [阅读全文](https://www.bbc.com/news/articles/c4gd31g56d3o) |
 | Celebrities descend on Venice Jeff Bezos and Lauren Sanchez's wedding | [阅读全文](https://www.bbc.com/news/articles/cdx5g4vjz07o) |
 | Children among casualties after tree falls in park | [阅读全文](https://www.bbc.com/news/articles/c4gdr4el5vpo) |
