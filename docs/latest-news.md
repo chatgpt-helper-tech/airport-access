@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月28日 19:26:07（北京时间）**
+🕒 更新时间：**2025年06月28日 19:39:13（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | Hundreds of NHS agencies to be scrapped | [阅读全文](https://www.bbc.com/news/articles/c3w4xl8gyyqo) |
 | Carrie Johnson warns mums over dehydration from hospital bed | [阅读全文](https://www.bbc.com/news/articles/c4gd31g56d3o) |
 | Trump says he is cutting off trade talks with Canada | [阅读全文](https://www.bbc.com/news/articles/ckg629n7wzvo) |
+| £96m of cocaine seized from vessel at UK port | [阅读全文](https://www.bbc.com/news/articles/c1k84xpz1mmo) |
 | Did a JD Vance meme get tourist banned from the US? | [阅读全文](https://www.bbc.com/news/videos/c5y2l9nn7y1o) |
 | In pictures: Celebrities descend on Venice for Jeff Bezos and Lauren Sanchez's wedding | [阅读全文](https://www.bbc.com/news/articles/cdx5g4vjz07o) |
 | I found a bacteria-eating virus in my loo - could it save your life? | [阅读全文](https://www.bbc.com/news/articles/czryvm3nlvdo) |
 | Japan loves them. And now they're in the UK - strawberries and cream sandwiches | [阅读全文](https://www.bbc.com/news/articles/c75rdryk63lo) |
-| Pioneering satellite reveals rainforests' hidden worlds | [阅读全文](https://www.bbc.co.uk/news/resources/idt-d7353b50-0fea-46ba-8495-ae9e25192cfe) |
 
 ## 📰 Google News
 
