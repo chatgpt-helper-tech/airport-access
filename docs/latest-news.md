@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月30日 02:14:33（北京时间）**
+🕒 更新时间：**2025年06月30日 02:27:20（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Senate rulekeeper deals blows to revised ‘Big, beautiful bill’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNT3lVWnRka2lKM3NRNkNUX2pjTFZON0ZRUXRyYzZrZlRmUVhRaHpyeWdaZzBWS3BvM1NEVjJVWk1acHFvSWNZckV6aDlGVlhZTFBrajNYWklSaGk0eHNteDNXR29na0F5Sll1Q25oMzJBLXM1UVNpbXdpRXVKczU1a0tXNjFqa3QwazhxOFpCbjQ0WWJGbkU5ZGItTQ?oc=5) |
 | Russia launches record aerial attack on Ukraine - NPR | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE11ZmdyLU9QaGZUX0tFbjdsUDEtT2RjZWV0UmdtYUJrWWFpZkthMTlDTmpTbHBFVElZWHgzZUlFOWlpYUY4NW1iRFk4bTczeFRUc0cwT0N6NkRYWEkxZFFkRWl5ZkdOOTZ4TEhoNnlDNjV3blNr?oc=5) |
 | Biden, Harris and Walz attend funeral for former Minnesota House Speaker Melissa Hortman - Euronews.com | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPSkFFZEVSS2VxdG1wNXRIX3RtY21CX0x1YnFjTDRtRHNHandxV0F1d0ZaWjE5bXNsUnRnVGU4ZWs3VXE5a21yZDJqVkxPU0dWS2V4Q3B3ZGZNQVR0bXdWX3UyMU9PR0VaNWVCYjc5OWVMN21PSmMtaTUzRmI5Wnd6bV9Md3F4Sk0tVjlXYVBNcVUxT3V2MjREcE9LQzVFZE9hVXJlMGNiUlNldnMzVmNiNm05TjVMT2ZacW5RcVFCbzQ?oc=5) |
-| Trump says Mamdani must 'do the right thing' if elected mayor of New York City — or risk losing funding - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9mR0EyQ3dacWoyYVgtSnhWZFFmaG8xd2xreE03clBVbl85di1OQW55V0hHMmF2dmFXMDlLQTNSZnlEbVBkSGZ1WnpzZkhWVjN6YWR3ZXF4LW9iRnRYZ2VrUlFhOFduNU83ZkxuWktVUlhOMUpQNFdJNndObnRYd9IBgwFBVV95cUxQNU1PZ29nRXlPOElGV3FyUGJrZ1F4YkpXdm5wVWNESk5SNlp2LXhJQ3JyRzVIN1o3VzFtbFVIaGdjcURYLTJmOXdOY01aZmNxdHJDRUdkQS1XSVBYaFY0UzFycFUtVW9ITXJMeDl2NjF1Q205czBBNDRLekdTRDhpQm1rNA?oc=5) |
 | A Triumphant Supreme Court Term for Trump, Fueled by Emergency Rulings - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE84MnJ4WlBHWE54U0tWYklJYXdtaVEweTU0STNTLUNoQTBWODJCeVFOcHJxVV9qSGlqcmFpWi1qRXZYMW9sUXp2dWNMeTV1ME1SMTNiUHJURWZJOGZqT2hYM0tBRG9IdWp3QTZOR01zUFF5eEpyZzduSTNhNDA?oc=5) |
-| Senate’s tax bill seeks to gut clean energy; Musk calls it ‘utterly insane’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOZmZVWFFGN0FSWms2ZDdjMllUNVh1QlNzWlhsQnBqYkhodkthVE5mV3NrSDlOdUdLanRMdDJhQnhyNVFIYUE5M3p0a2dVQlFzYzd0YktHdXZBd09mQmI2cXR3clFRQ2RUc3o2dXRud2ZqcUFaa0ZmeXZKdDB0TUNHUmR1eHdTMC11Z3o5UGRoaGxTZmVGd3AyTGZDaGw?oc=5) |
+| Trump says Mamdani must 'do the right thing' if elected mayor of New York City — or risk losing funding - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9mR0EyQ3dacWoyYVgtSnhWZFFmaG8xd2xreE03clBVbl85di1OQW55V0hHMmF2dmFXMDlLQTNSZnlEbVBkSGZ1WnpzZkhWVjN6YWR3ZXF4LW9iRnRYZ2VrUlFhOFduNU83ZkxuWktVUlhOMUpQNFdJNndObnRYd9IBgwFBVV95cUxQNU1PZ29nRXlPOElGV3FyUGJrZ1F4YkpXdm5wVWNESk5SNlp2LXhJQ3JyRzVIN1o3VzFtbFVIaGdjcURYLTJmOXdOY01aZmNxdHJDRUdkQS1XSVBYaFY0UzFycFUtVW9ITXJMeDl2NjF1Q205czBBNDRLekdTRDhpQm1rNA?oc=5) |
+| Elon Musk renews his criticism of Trump's big bill as Senate Republicans scramble to pass it - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQdUJuaVREbFg1bDlJR05zMjhzYjBJVmgtYWRRZW83dVl1Z1pVdm11STFqeEhzY0hiQXVEQzk4dzFraEFqaDJsbjlhdDVFcnpUUkg1NDJ3RVpTLXZhZzB6YmxaaDE5bXJuc3FJY3Z0OW9SazhIZXcxa1dSZXV3X3kwek5uYlN0a2REcWhKRkpXWmhvYUpKUWl1eHdaX1p3SVItLWfSAacBQVVfeXFMTjNNXzBFMm5ETmdGRjRrWTk3SURnWURBbVZwa19jcWZ5dVNNSlBrWUlPTlNNQUVwcmRlVWxSejBRcktnQXowWlp1QU5RVjdRWEhaSEhhckRZWk5kNW5wWTBHQUprQnp6cWRleXpBTXZON2RLQy10ME9vOU9wOWN0T29QTVN1QjdMT0JoeTRzZ1c4YmlsaHJRN1pjcEIyVXhwYTF2RjJrYjg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
