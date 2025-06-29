@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月29日 23:26:51（北京时间）**
+🕒 更新时间：**2025年06月29日 23:39:37（北京时间）**
 
 ---
 
@@ -26,7 +26,7 @@
 | What’s in Trump and Senate Republicans’ tax and immigration bill? - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQNl9PYVd0V2pnNElrS3VjNGxVUDFNMmJjSmFZbF9BSmplN1VObTRHMU0zSkxaZDRwczJoYnJjaWk1QnJ0UDktYlptWkdIa0Y5NnA2cHh2OVY4MEE4ZlhDdkhTckhUcUZhR2VJWTBVbmlESHZDWnY0U0RmbHB6cXhpUjkxT0xBZWx6My1NNEp0ckptYTlreGFONnZkMzQ?oc=5) |
 | UN nuclear watchdog chief says Iran could again begin enriching uranium in ‘matter of months’ - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE11aU9HZnNkeXFXX0Yyczc3MUpPeF93aUwwNElrblN3dm5zV2dlVXhxV2ZrNlBpSmZ5Nm5nalRVTUxNNDFjQWN5SDc1WjZlV0xJTmpTcWY2Ukx5VndIcWpoVFBKYTA5VXNUR1F2YXlLdFBVRXk1ZEZ30gF8QVVfeXFMUGp6T3RLLVo2XzB1VEVDYVh5WUFuNTdBOHRBbUFuTTFfWlRWWEJaRGdlMm1XNzNxT1dISnl2anZiVUEtU1hBdVU3MkNqemRLT21YSXZacEdjREJCTjExa2FpbDk0eWxXdGhrZXNvbTJ0d3gtcDJHSzJZTWU4Zg?oc=5) |
 | Russia hits Ukraine with biggest air attack of the war - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5ncVJnNlgyMGxJbDlXaGhXMlZTNGZKaUVUOFRHYzNTYjlwczBCVVpSOGdEYm5xb3Bsc2JxUF9YMDF0QlM0d3Z6RzM4QjVWeVZJTV9tWE82dXdxVVZVcG5xQ2V6UkpwLVFxSEMyWnV0OVo?oc=5) |
-| Elon Musk Rages as Trump Tax Bill Slashes Electric Vehicle Credits - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOb3FUeS1hR1hONHBCLVZUUVFxQU5vWFVmRWotTk5LS3lBeF9GZ3FFa3p2MVo2blJuQm82Ym1Iel96TjdGRzI0bU9FVmFtX2QxX1g3OGhubF9rb2UtYzNldnRDZXZDbkNGZGFUX0llVW03MTNTRmhBcUJuN011WGd5VVBIR1FON3ZsdXZlNWlhVEI4VU9ERmtGT1Y3RVBEcjhZUkFqbUROZGhkTzl1UUtSX3pR?oc=5) |
+| Elon Musk Rages as Trump Tax Bill Slashes Electric Vehicle Credits - Bloomberg | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOb3FUeS1hR1hONHBCLVZUUVFxQU5vWFVmRWotTk5LS3lBeF9GZ3FFa3p2MVo2blJuQm82Ym1Iel96TjdGRzI0bU9FVmFtX2QxX1g3OGhubF9rb2UtYzNldnRDZXZDbkNGZGFUX0llVW03MTNTRmhBcUJuN011WGd5VVBIR1FON3ZsdXZlNWlhVEI4VU9ERmtGT1Y3RVBEcjhZUkFqbUROZGhkTzl1UUtSX3pR?oc=5) |
 | Big Trump wins, boomerang appeals define Supreme Court term - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBQNkQ4cHQzNk1VaGJWZWFVNVpMaExuN0FoLVhDT2twYklRb29UcjRFb1hVUm9TZU9aa2JZWmNpZTJfQU9RWExPczYwZFM3NkZqc3hyM1FDeXNlSXU0bUdVWTQyMDAyMS1lUEQ1TVVkSlAtby1sMlZpbdIBfkFVX3lxTE1nbmtnUm5uZnNxOENEWDdaeVVVU080eFB0T3FqTnZ3MDQ4YUd5OGtHMVFhOFl0aTNDdndqeVE3R2FMQ2xDYkRHQzNVR0pDUkRNYmpnNEdtRHNOOVJBX05VckJ0LWozQ0Jia1hqTkRsaFJybmxkZnRXbWV3eHEtQQ?oc=5) |
 | How Zohran Mamdani Brought New Voters to the Polls - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxObWxTckZpU2xCaC1fZ25rdVFGT2t5MDRFcnB2Z01CaWZGWHJWZnN1UnU1eVIwOVpUZ0FGWFd0ak1ZUmh3RE05NlpUZnk1dDd1N2FtYW96dUdmRGs4S0pFS2pZdEd4S1lTVlh3LUpINXQ0VHVRZEZhSjRRb3ZpSTJPeUt3MnFiQQ?oc=5) |
 | Joe Biden, Kamala Harris among attendees as slain Minnesota House Speaker Melissa Hortman laid to rest - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNbEtIOUZDYm1nRGNBVldaOTBlckFtVlVpQkJfMzJoOEtzb09PWHZSVjRQbXl3ZUlsOHItd1pVTTQ2cjVwTW93SEUwcy1UME1WZXZGOXkwTkdUMmhoc1gxemFab0hSMVl4aWRMbEhNN2xUWFZqdTNFZy05SUJfWkNrcUdhQk9YR0dqR3RrWm1lcjVFMVlHbXduWDNmUFU3UdIBVkFVX3lxTE0yQVB6Ml83a0paa2Fzajdza1dTZXVVeXhNbUlUc1hQUUQ3cFkyRExkTnF6QXdoTnRkY0tBUnNvYmpKMG80Y19fUFcxbXBxb2tpU0hVTHBn?oc=5) |
