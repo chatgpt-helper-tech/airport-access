@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月29日 23:39:37（北京时间）**
+🕒 更新时间：**2025年06月29日 23:53:02（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Joe Biden, Kamala Harris among attendees as slain Minnesota House Speaker Melissa Hortman laid to rest - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNbEtIOUZDYm1nRGNBVldaOTBlckFtVlVpQkJfMzJoOEtzb09PWHZSVjRQbXl3ZUlsOHItd1pVTTQ2cjVwTW93SEUwcy1UME1WZXZGOXkwTkdUMmhoc1gxemFab0hSMVl4aWRMbEhNN2xUWFZqdTNFZy05SUJfWkNrcUdhQk9YR0dqR3RrWm1lcjVFMVlHbXduWDNmUFU3UdIBVkFVX3lxTE0yQVB6Ml83a0paa2Fzajdza1dTZXVVeXhNbUlUc1hQUUQ3cFkyRExkTnF6QXdoTnRkY0tBUnNvYmpKMG80Y19fUFcxbXBxb2tpU0hVTHBn?oc=5) |
 | Inside the fallout at Paul, Weiss after the firm’s deal with Trump - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOU0JDbmJ5OE9VTGJERHBDSzZUZTNjQVZLb2VEQUNqUkxsTWRuZkg4VHBKU2JGZTBkdy10TFhGZ2d6V2liVU96MHF2UlhGdFpydzdPRXJ1aUVqajBtNzBnR3N5eTR5UjVRMkRScWVnQ1U4UFE4aEN5QmRyWkM0TUV4NnFybTNJRTlZM3dFTQ?oc=5) |
 | Tourists are trickling into Afghanistan and the Taliban government is eager to welcome them - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPbzlPM0dXaWxHUGotbFgzLXlPZzZuSUdfT1dLcjZ0T1hxeUJVY2JSNXpadzVPNWhweEhXa0FvX0RDa21GTnV2X0w0NjBsc182bHMzcDYzUUxBbl9zdThveVZTV0M2YzVWSDFjWk95OTd4WkRJeEUzT18xMjRTNHFFRkFTSjhlSUVQcFlmd3c2WXdpU2N1MkFUQnpR?oc=5) |
-| DeSantis used his emergency powers to get ‘Alligator Alcatraz’ built - Tampa Bay Times | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxQbTJrQnpmOVBQdjRYdi1VZHh6b2xsbDRaSUxsV1VJX2cwUWlnWjdPeGpnNDVodHFJaHZ2VEZIVERXQ29kMlgta3B6d2NMV3FlXzZfMkR3Q3lRVFN2ZGhDUHpVN3d5X3lSc2lXRG1oLTlBb19BbDRiM2hlYUxTaWJYY25uaHluaGhCeEt0V1NOOGlTTjJkLUJyb2tCZ2dvZFU5c3VZOUNFbktrRDN3R0lWMmNZVzV4dWtZWVU5ZFNpSHF1am9qVXotZlJoUQ?oc=5) |
+| NC Republican Sen. Thom Tillis says he won’t vote for Trump’s ‘big beautiful bill’ - Raleigh News & Observer | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNMDZib29LZVRrQndXMTBfb3hzVXUtVl9mQUZ3Nzh2RDlocUppM29pcE1EU2c1YXF3S1lxZHppWnBNbi1tWjdLd2E3S3pXVkVBUU5zS0VLeXl3RUdydElzS3R1b2RqSGdHajA4UTMydEJOTEN6aU5STUZGc05UYjJ1TNIBgAFBVV95cUxPU0UwdHI0U1ZGYndjS19DTFFLc3o2YW5zdjBPOVprVUJNYmFBNUNmYnI5eTB3X3RNOHJ5eElJOXBOdFltWE82SS00NE84eXRIdVdYNC1zSnNJTVVPc2hjeXViUk1qczNMeC1YT2F4QTJnRE5PVUlUX2RsTnRBcEk5LQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
