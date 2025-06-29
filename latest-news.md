@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月30日 00:53:43（北京时间）**
+🕒 更新时间：**2025年06月30日 01:00:16（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Big Trump wins, boomerang appeals define Supreme Court term - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBQNkQ4cHQzNk1VaGJWZWFVNVpMaExuN0FoLVhDT2twYklRb29UcjRFb1hVUm9TZU9aa2JZWmNpZTJfQU9RWExPczYwZFM3NkZqc3hyM1FDeXNlSXU0bUdVWTQyMDAyMS1lUEQ1TVVkSlAtby1sMlZpbdIBfkFVX3lxTE1nbmtnUm5uZnNxOENEWDdaeVVVU080eFB0T3FqTnZ3MDQ4YUd5OGtHMVFhOFl0aTNDdndqeVE3R2FMQ2xDYkRHQzNVR0pDUkRNYmpnNEdtRHNOOVJBX05VckJ0LWozQ0Jia1hqTkRsaFJybmxkZnRXbWV3eHEtQQ?oc=5) |
 | Serbia: Police clash with anti-government demonstrators - DW | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOTmZtVDV4R0dldFI4Nk1OcDgtQ1RMclI3empLOTNxZ2ZHVEV5OVJTZXJNLTltLUl2TC14dktKM3VIRERCUXJtN2tFcjBDc2hkMFhKQ3p1WkxCVy1IR1YwRy1CZ0NYMFBQZ0JPSy1CZTh3SVNOUEExM0ROQnV2QTI3NXU1WFIyd0tZRXJWNFhPRnnSAZABQVVfeXFMT044RzFkTEdrVktiTWJHMzhKbFhabnd3SXBXS3VsMW5SZ2Y2VjFxa1YwTVg3V0FQWnhxVl9GSUZwNFZ6Mi11RGF1b09nSVdQc0RaaGxNS2I5MXlldFhDMjRRM09RS3pEeHN6RVduNU9NTm1yWjBCNDZRcDQ4b0xFM3F6VlZsQnpWdENscmxsMGRl?oc=5) |
 | Biden, Harris and Walz attend funeral for former Minnesota House Speaker Melissa Hortman - Euronews.com | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPSkFFZEVSS2VxdG1wNXRIX3RtY21CX0x1YnFjTDRtRHNHandxV0F1d0ZaWjE5bXNsUnRnVGU4ZWs3VXE5a21yZDJqVkxPU0dWS2V4Q3B3ZGZNQVR0bXdWX3UyMU9PR0VaNWVCYjc5OWVMN21PSmMtaTUzRmI5Wnd6bV9Md3F4Sk0tVjlXYVBNcVUxT3V2MjREcE9LQzVFZE9hVXJlMGNiUlNldnMzVmNiNm05TjVMT2ZacW5RcVFCbzQ?oc=5) |
-| Jeffries not yet ready to endorse Zohran Mamdani - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQd1N2S0lxV2Vad3FDX2hzYTlRZTg4OFIwUVFTd1B4SXItcDdvUXhOUGRLSDBsaXZPQUZKU21LTF82ZDVQeVNER0RuZHZmOHRseE9fZzBkRTZ4WnpWVVFPQXREQWZLMXJ2Nl9CNEI0SmNiVFFJcGRTbGhyakYtTTZHY1FFWWM5Vjc0MUE?oc=5) |
 | Senate rulekeeper deals blows to revised ‘Big, beautiful bill’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNT3lVWnRka2lKM3NRNkNUX2pjTFZON0ZRUXRyYzZrZlRmUVhRaHpyeWdaZzBWS3BvM1NEVjJVWk1acHFvSWNZckV6aDlGVlhZTFBrajNYWklSaGk0eHNteDNXR29na0F5Sll1Q25oMzJBLXM1UVNpbXdpRXVKczU1a0tXNjFqa3QwazhxOFpCbjQ0WWJGbkU5ZGItTQ?oc=5) |
 | Inside the fallout at Paul, Weiss after the firm’s deal with Trump - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOU0JDbmJ5OE9VTGJERHBDSzZUZTNjQVZLb2VEQUNqUkxsTWRuZkg4VHBKU2JGZTBkdy10TFhGZ2d6V2liVU96MHF2UlhGdFpydzdPRXJ1aUVqajBtNzBnR3N5eTR5UjVRMkRScWVnQ1U4UFE4aEN5QmRyWkM0TUV4NnFybTNJRTlZM3dFTQ?oc=5) |
+| RFK Jr. is bringing psychedelics to the Republican Party - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQMm9kaWtUVWlKT1FPLWx1azVOWlJhZDJKT0RJTWRmYlpIdXV5WjdrOFF3Y3BlWUk2bkIyMkh6NTVUR1ZQU0xJY0dWNFEzTFVROE1jYmxHdklPYUVsSzlUWWUzWjl4OU5rejVoem9sRVgxZkdWb3BLTnU2dHdCTnE2dnZfSWRQcS0yNDFtX3lFalVZTDBfTVY4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
