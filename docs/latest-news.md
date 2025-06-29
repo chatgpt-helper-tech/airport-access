@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月29日 14:52:24（北京时间）**
+🕒 更新时间：**2025年06月29日 15:01:15（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | Second 30C day for London ahead of Monday's UK heatwave peak | [阅读全文](https://www.bbc.com/news/articles/cx2l77w5pl7o) |
 | Child, 7, dies and another critical after tree falls in park | [阅读全文](https://www.bbc.com/news/articles/c4gdr4el5vpo) |
 | A preacher asked me out. When I turned her down, the stalking began | [阅读全文](https://www.bbc.com/news/articles/ce3velqy9rzo) |
-| 'Regrets, I have a few' and 'cut weight to cut waits' | [阅读全文](https://www.bbc.com/news/articles/cr79ze0p9y2o) |
-| I buy my children vapes to try to control their addiction | [阅读全文](https://www.bbc.com/news/articles/czdv3jq1pnyo) |
 | The mystery of the paedophile who hired out Disneyland | [阅读全文](https://www.bbc.com/news/articles/c93kg14zn3zo) |
+| I feel like I've been gaslit - like the life I had before the war was made up | [阅读全文](https://www.bbc.com/news/articles/cn81rdvdm9jo) |
+| I buy my children vapes to try to control their addiction | [阅读全文](https://www.bbc.com/news/articles/czdv3jq1pnyo) |
 
 ## 📰 Google News
 
