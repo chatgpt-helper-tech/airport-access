@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月30日 06:01:57（北京时间）**
+🕒 更新时间：**2025年06月30日 06:13:06（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Israel orders evacuations in northern Gaza as Trump pushes for ceasefire - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBPQ3UxSDNyYThCVm1fTHdkeHlQTE1FMkduQ09yQW5uMVFETkp6RDhQWlJkS0RyRkh3OXJJRFdNZ3ZYMk8tRmFrVzN5aDZjX21Ia1ZVdzEwX0ZRZ9IBX0FVX3lxTE1neWlVdm1mOFl0eVNGUFpyX2NIOUVFWnM2ZzU1OHJNX2lWZVhlbGpmaDhmRENDQUsyVWtzTDBwNDhOTVo3U2c0MVlhLVZqUURwWnc2WlNoUlNGWUxZZUtF?oc=5) |
 | 1 dead and 2 injured after three buildings collapse following explosion in Philadelphia - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNenlEdk40dHVENWdFOFBwNmJ1VnN2Z0ZSVGE0ZmJsbHJlb0VubzNrcHdQYXBaeTk5TXpUbkhBbVlXNGNBb19zMmh5Ui1MQ0hqXzNZTUxxby1fVnRfVVFHX0U1c1FFMDRsRDJ5OHZCdnFma3dhN3JJTzJJMUlmWkFVYm9QN0hYbEQ1eWFETThaMNIBVkFVX3lxTE5UREprellJNG4tMTRFWmk2VzJsTng0U0w0OTVHdWZITVFBamhVd0VpSkNwa3NqOWdpb21LUklVVHduRWtYb1FxU2J3VHhWZHhCb29nZWFR?oc=5) |
 | Biden, Harris attend funeral for slain Minnesota lawmaker - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOR3VOcHY3ZG9lVXppNnNyckNoRUN3U3FFZ3NNa1E3WXRLSmZzVnhMUXdEaVM3U0E1TEVOMzEzX2xEWlpienYwRDMwSDRnVzFHVHNFcUNzQ2dqdW9KcnhwbktDMHdWVzJMODlwamp3VWVISkJzTjBlVVpNc3lQcy1iOGFPM2d5ODFVaFd4eWtwTVhyRFR6U0dwN2o1aWbSAaIBQVVfeXFMTlVfdEVrQ25GUWVUclZVYkxuWEx1Qm90UWcwbm5ZMFAzTUpDUVRZQXhvamhHY013NGRuWEt0ZnJnbHNybTJkbU9aOW1BYUJEZzdpTXVuUThuTUZ1VUE4RWNkaER2NERjUkQxNVplaUhlNEtkWXBRaTAzVkZNRVdkWGxUMF9jTjhnei1kZ1E2ZElZVTJlQ1dyMVVkUFlKUkJtTGJn?oc=5) |
-| Big Trump wins, boomerang appeals define Supreme Court term - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBQNkQ4cHQzNk1VaGJWZWFVNVpMaExuN0FoLVhDT2twYklRb29UcjRFb1hVUm9TZU9aa2JZWmNpZTJfQU9RWExPczYwZFM3NkZqc3hyM1FDeXNlSXU0bUdVWTQyMDAyMS1lUEQ1TVVkSlAtby1sMlZpbdIBfkFVX3lxTE1nbmtnUm5uZnNxOENEWDdaeVVVU080eFB0T3FqTnZ3MDQ4YUd5OGtHMVFhOFl0aTNDdndqeVE3R2FMQ2xDYkRHQzNVR0pDUkRNYmpnNEdtRHNOOVJBX05VckJ0LWozQ0Jia1hqTkRsaFJybmxkZnRXbWV3eHEtQQ?oc=5) |
 | Trump won’t let other countries score big ‘wins’ in trade talks. Both sides could lose. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE05MVVoZkRXMldnYWhrOW9ReXRUN0llVDZvZlFBYmdpY29uc1FKTmR3UnFuUGtNVFBZYTRtYVpkRl9Hdm1CeDR0ckxoOGdJMXQ2VmM1OV8xSGJlc085WDBiTEhIdlMwS082Zl8telI2WjBrVWloZjlmag?oc=5) |
+| Republican Senate tax bill would add $3.3 trillion to the US debt load, CBO says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNMkhwSFhFdk91bzJJd1lsVEl6MUprZkptYkJZMW5KMVM3d2wzNVljVFpkZFpWQzFVUDdsZ1YxOVFDelFIem1ld3JOUDFGa3VLZHE3Z2x2VklTZGw5R2N5cDh4TTBaWGZJTF9rb3pOYkZiSjNLRmlMTlNVVE9SZmhZVUctSzZXZGRnalROb0xieXF6LUVzVHVlQV9PZ3ZBUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
