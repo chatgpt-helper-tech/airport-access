@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月29日 21:52:08（北京时间）**
+🕒 更新时间：**2025年06月29日 22:01:43（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | How Zohran Mamdani Brought New Voters to the Polls - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxObWxTckZpU2xCaC1fZ25rdVFGT2t5MDRFcnB2Z01CaWZGWHJWZnN1UnU1eVIwOVpUZ0FGWFd0ak1ZUmh3RE05NlpUZnk1dDd1N2FtYW96dUdmRGs4S0pFS2pZdEd4S1lTVlh3LUpINXQ0VHVRZEZhSjRRb3ZpSTJPeUt3MnFiQQ?oc=5) |
 | Joe Biden, Kamala Harris among attendees as slain Minnesota House Speaker Melissa Hortman laid to rest - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNbEtIOUZDYm1nRGNBVldaOTBlckFtVlVpQkJfMzJoOEtzb09PWHZSVjRQbXl3ZUlsOHItd1pVTTQ2cjVwTW93SEUwcy1UME1WZXZGOXkwTkdUMmhoc1gxemFab0hSMVl4aWRMbEhNN2xUWFZqdTNFZy05SUJfWkNrcUdhQk9YR0dqR3RrWm1lcjVFMVlHbXduWDNmUFU3UdIBVkFVX3lxTE0yQVB6Ml83a0paa2Fzajdza1dTZXVVeXhNbUlUc1hQUUQ3cFkyRExkTnF6QXdoTnRkY0tBUnNvYmpKMG80Y19fUFcxbXBxb2tpU0hVTHBn?oc=5) |
 | Inside the fallout at Paul, Weiss after the firm’s deal with Trump - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOU0JDbmJ5OE9VTGJERHBDSzZUZTNjQVZLb2VEQUNqUkxsTWRuZkg4VHBKU2JGZTBkdy10TFhGZ2d6V2liVU96MHF2UlhGdFpydzdPRXJ1aUVqajBtNzBnR3N5eTR5UjVRMkRScWVnQ1U4UFE4aEN5QmRyWkM0TUV4NnFybTNJRTlZM3dFTQ?oc=5) |
+| Fetterman Voted With GOP to Make Sure Trump Can Attack Iran Again - The Intercept | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFB6RWh1dENsZDJMbkJJOVFzMnlhM29FWXl2SVFBc24tUkNDRDRScHhHWFVjNFhzRWdtMmdRUnZPSGtQZUQ4aXV3a3VXWFNOXzBobFNGMUl3cWtPWHA0R3U2Y1FyTUdnelVuT3JOb2pKcDJ2WUxQN2FN?oc=5) |
 | Tourists are trickling into Afghanistan and the Taliban government is eager to welcome them - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPbzlPM0dXaWxHUGotbFgzLXlPZzZuSUdfT1dLcjZ0T1hxeUJVY2JSNXpadzVPNWhweEhXa0FvX0RDa21GTnV2X0w0NjBsc182bHMzcDYzUUxBbl9zdThveVZTV0M2YzVWSDFjWk95OTd4WkRJeEUzT18xMjRTNHFFRkFTSjhlSUVQcFlmd3c2WXdpU2N1MkFUQnpR?oc=5) |
-| Lee pulls federal land sales from megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNYzI3Q3NYdGRfMmZ3NS1JMGJJOGVFdDBjSXJIOVVoeEJqV3VoVllwWTNJbmo3bVIyRDJPVlZnbUM0QXZtRTlvdHRDOHhpV2Z2MEJLZl8wNk85Rm82dGwwTWcwcGVaRmJEVGpOaHhQM0REUmtpWVlsN2JqWTd3bWNWQzd1TWlWNnFndG50TVFsbkNUMGZ5alR6QldjN3JtMkdNSTc1WkZkN0d1emNhakE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
