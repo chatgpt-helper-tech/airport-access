@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月29日 23:01:25（北京时间）**
+🕒 更新时间：**2025年06月29日 23:13:25（北京时间）**
 
 ---
 
@@ -8,14 +8,14 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Glastonbury Festival says it is 'appalled' by punk duo Bob Vylan comments after controversy | [阅读全文](https://www.bbc.com/news/articles/c33514nryy1o) |
+| Glastonbury Festival 'appalled' by punk duo Bob Vylan's IDF chants | [阅读全文](https://www.bbc.com/news/articles/c33514nryy1o) |
 | MP refers himself to commissioner over 'cash for questions' claims | [阅读全文](https://www.bbc.com/news/articles/c4gdrjqvp0jo) |
 | Highs of 30C ahead of Monday's UK heatwave peak | [阅读全文](https://www.bbc.com/news/articles/cx2l77w5pl7o) |
 | Iran could start enriching uranium for bomb within months, UN nuclear chief says | [阅读全文](https://www.bbc.com/news/articles/c79qeqg89g2o) |
 | Man critically injured in Piccadilly Circus crash | [阅读全文](https://www.bbc.com/news/articles/cn0z5gxnrydo) |
 | A preacher asked me out. When I turned her down, the stalking began | [阅读全文](https://www.bbc.com/news/articles/ce3velqy9rzo) |
-| Most Britons in a generation - home stars set for Wimbledon | [阅读全文](https://www.bbc.com/sport/tennis/articles/cm2my49x07eo) |
 | The mystery of the paedophile who hired out Disneyland | [阅读全文](https://www.bbc.com/news/articles/c93kg14zn3zo) |
+| Most Britons in a generation - home stars set for Wimbledon | [阅读全文](https://www.bbc.com/sport/tennis/articles/cm2my49x07eo) |
 | Emma is doing something she swore she never would - buying her kids vapes | [阅读全文](https://www.bbc.com/news/articles/czdv3jq1pnyo) |
 | I feel like I've been gaslit - like the life I had before the war was made up | [阅读全文](https://www.bbc.com/news/articles/cn81rdvdm9jo) |
 
@@ -30,7 +30,7 @@
 | Big Trump wins, boomerang appeals define Supreme Court term - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBQNkQ4cHQzNk1VaGJWZWFVNVpMaExuN0FoLVhDT2twYklRb29UcjRFb1hVUm9TZU9aa2JZWmNpZTJfQU9RWExPczYwZFM3NkZqc3hyM1FDeXNlSXU0bUdVWTQyMDAyMS1lUEQ1TVVkSlAtby1sMlZpbdIBfkFVX3lxTE1nbmtnUm5uZnNxOENEWDdaeVVVU080eFB0T3FqTnZ3MDQ4YUd5OGtHMVFhOFl0aTNDdndqeVE3R2FMQ2xDYkRHQzNVR0pDUkRNYmpnNEdtRHNOOVJBX05VckJ0LWozQ0Jia1hqTkRsaFJybmxkZnRXbWV3eHEtQQ?oc=5) |
 | The Trump administration is building a national citizenship data system - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOano5TnNMMWwyRG16aGRJQnl0U2kzeWgySGJUdGdQaVAzUTdVb0FHUUdHeTdaMXdqVFNCeU4xT0ZhWFBORklzRFhyZE5GMFYwSjlyMXVhOHVUbEpOcXVjSUNHWDZUd3ZzTzRNZTloekdBNnQ4eGZfblQtNDV0SkpRaGJadXFhNE11WlVuYTZrSQ?oc=5) |
 | Joe Biden, Kamala Harris among attendees as slain Minnesota House Speaker Melissa Hortman laid to rest - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNbEtIOUZDYm1nRGNBVldaOTBlckFtVlVpQkJfMzJoOEtzb09PWHZSVjRQbXl3ZUlsOHItd1pVTTQ2cjVwTW93SEUwcy1UME1WZXZGOXkwTkdUMmhoc1gxemFab0hSMVl4aWRMbEhNN2xUWFZqdTNFZy05SUJfWkNrcUdhQk9YR0dqR3RrWm1lcjVFMVlHbXduWDNmUFU3UdIBVkFVX3lxTE0yQVB6Ml83a0paa2Fzajdza1dTZXVVeXhNbUlUc1hQUUQ3cFkyRExkTnF6QXdoTnRkY0tBUnNvYmpKMG80Y19fUFcxbXBxb2tpU0hVTHBn?oc=5) |
-| How Zohran Mamdani Brought New Voters to the Polls - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxObWxTckZpU2xCaC1fZ25rdVFGT2t5MDRFcnB2Z01CaWZGWHJWZnN1UnU1eVIwOVpUZ0FGWFd0ak1ZUmh3RE05NlpUZnk1dDd1N2FtYW96dUdmRGs4S0pFS2pZdEd4S1lTVlh3LUpINXQ0VHVRZEZhSjRRb3ZpSTJPeUt3MnFiQQ?oc=5) |
+| 'As if people like Mahatma Gandhi...': Republican leader says Zohran Mamdani has no idea how cops work - Times of India | [阅读全文](https://news.google.com/rss/articles/CBMi-wFBVV95cUxNbDAyY1RIMVJYYzdiT05MbWR3NEhjTGNhOVpjdVRPNGlMcnpmTXdIZUl5c3FaVVc4WHpDUjhXZWxPa3VWeFI1NFBsUkdXMmdIYV9SOUJrbEZzaDllODFTQ3NONHNidjYxcVg3em0wNk5tZHN4VWVOZXc4akFteG5aeWlGc25Lc3FjU0NKYjl5a2tPSEd3dGhHR0paVHB3VUJsUTlGZkpqX3VQTTd3WEZSLVpJXzdwYVJ0b1pmQ1cwa0d1dm5ncG1JZDNBT2pVNmIyay1tZWhVOERiM2VVY1pNemh1V2hRNVA1VWxVZUwwZFhkbU4zNGxoWWVoNNIBgAJBVV95cUxOZEs1TjhkQWQ4cjVPUkpsZmF5ZE9NNFAweDA5Wk5pOGZPODlPTXhQUVFtR0xqT3RRT1RLbzd6MHYtVWQyaTBJRlFMN0dXMzBYNVp6d2VpblZXakJIZjJKRnZWMmZrUVVJRTRuT3c2aFpkRGZ6cE5EelV5V25lNDNhZnl1QUhvZnJMNXJDbkU3X25zekJRU2hSUkg5N3NlQnhWTExzVHNHd3o3eTVfNVJNcm1WOGZ0bW1mUFo0N3BqREVfLVJRWWw3V2lhUFZuYWljTXlyV0N4U2tFT2NTX0x1Vlg5eU1fOVVvU3BqN01ldzdWbEZJd1JodGV4NUF2MzJ5?oc=5) |
 | Tourists are trickling into Afghanistan and the Taliban government is eager to welcome them - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi2AFBVV95cUxOeWJoYWtQaUpENUJ2bWxGM2tDR19pM1A0T2RMSjdkRHMyUktOV0xrVGZhNHppTUEzRnRCS0hKQ0N0cFI5aVVLUVJ1Ty1aaU5NWjFMdkkyZFQxY3dCQjV1YWJpN195Sk1Lc0twVXFpQXZIQkxiNWxJaDkzUGV3NEtHTHZKYWJjYVNkbldKa0Jhd2tPeE1tZl9YaThpNVVCcE5SQTRmUUhaT0pMYzFpSEVmTmpuN0JKYUtTTVNCeWxYanBuSVByOFVYVXJKSkFLVXJUS2ZnRUFvdE0?oc=5) |
 | Inside the fallout at Paul, Weiss after the firm’s deal with Trump - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOU0JDbmJ5OE9VTGJERHBDSzZUZTNjQVZLb2VEQUNqUkxsTWRuZkg4VHBKU2JGZTBkdy10TFhGZ2d6V2liVU96MHF2UlhGdFpydzdPRXJ1aUVqajBtNzBnR3N5eTR5UjVRMkRScWVnQ1U4UFE4aEN5QmRyWkM0TUV4NnFybTNJRTlZM3dFTQ?oc=5) |
 
