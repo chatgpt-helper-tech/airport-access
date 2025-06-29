@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月29日 09:14:44（北京时间）**
+🕒 更新时间：**2025年06月29日 09:27:14（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | Charli, Neil Young and Scissor Sisters give Glastonbury goosebumps | [阅读全文](https://www.bbc.com/news/articles/cj0m9r35142o) |
 | Child, 7, dies after tree falls in park | [阅读全文](https://www.bbc.com/news/articles/c4gdr4el5vpo) |
 | Venice divided as lavish Bezos wedding brings glamour and protests | [阅读全文](https://www.bbc.com/news/articles/c5ylk5nznkyo) |
-| Budapest Pride draws huge crowds in defiance of Orban legal threats | [阅读全文](https://www.bbc.com/news/articles/c23g02dl1z8o) |
+| Thousands party at Budapest Pride despite Orban's ban | [阅读全文](https://www.bbc.com/news/articles/clylnev5y36o) |
 | I buy my children vapes to try to control their addiction | [阅读全文](https://www.bbc.com/news/articles/czdv3jq1pnyo) |
 | 'Regrets, I have a few' and 'cut weight to cut waits' | [阅读全文](https://www.bbc.com/news/articles/cr79ze0p9y2o) |
 | The mystery of the paedophile who hired out Disneyland | [阅读全文](https://www.bbc.com/news/articles/c93kg14zn3zo) |
@@ -32,7 +32,7 @@
 | Louisiana hospitals warn Mike Johnson of ‘devastation’ from megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNU0F2M3h2S3Nzbl9NaXVwWDN1SERSX3lRbVhiMkxXU2gxZ2IyOXNhSVVpelFMTG16cHNGVHFFVW1ZOHBiOVZxdkZueFBrUU94V2FZN2NTYlY5ZGVMbEdJb2pWYnBvektiRmR2Vk15M0RGR3I1MHFCRkxHdmJBd01MOWVDRHl2X3JxTXJoLWY1T0k1SHJnLTZabndfMjhSVEtOZEctNG52MnotSXlrdk1aMGZ4SzNsOGVQSWlXdG5DZkhBbWlPbnNtY0dUX1IwZw?oc=5) |
 | A week of shifting descriptions of Iran attack spark ongoing questions about extent of damage and goals - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNMXIzTzdzOVpsQ0JodnVmWHBlaGVFZFlHektIdVpFcFhGV2lvaFJWX2RBTnJDVDN6anVhQ1pGMm02VWxuUWRneUMtbGt2TENRVkduWFJ6bmozTFgweDVlc2NzMHgyTWozcV9SMGNZS3BBdjMtWk1iRXFoRzQ0ME92WEVNMmw4ZFpNSHBBYnZxVGMzUHZtVTlMaEMzMjJxcHl6WHJjaUdDN1lXeDlOelFPSl9wVdIBuAFBVV95cUxNa1FqdGlDVDZJcFZsOVZIclZKakU0MTYzaUJDZmR0WjZydkJRX3U1VkxjMWw1d0ZxVXlScmcyR2IwbVRYbVZ4LTc3UDdpN2p1N1FLSVVraWlPTFNUMV9kd3F2UjNsNGgtY0kybmlGOTJ2WEN1eUNTX012cnhwbjh5YUJRanFfM19keHpzQmhndk5pYzcwVE42WE44M2tEWWVBT3pZSjV0czI3eXRSRVpWR1AtanVCUkQy?oc=5) |
 | Zohran Mamdani has the Palestinian protest movement to thank for his win ｜ Heba Gowayed - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOQjNLUzg1dkpXeXhWdmJabmNXY0F2dkZua2lwc19xYl9Tc3AyQ2F3Mlh0WjU4S1FobzhDck5RNkVOVXhhSUJjNzNWaFdSUkJHREs2UXNpUk1wQjNNQkM2ZUppZFhibnJHcTM4U2JUbEJTd2l4VHROYTZIdllnNEJnN2FQNzBYLWJFZlI3TVE5OWJ1b240Qnc?oc=5) |
-| Schumer to force reading of 1,000-page GOP mega bill, delaying it by half a day - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQWktCT1pFcVBrT1VIYjRqTVQycnp3TDlBcFJ5aTJtZFlBLXphUEJFT2F4bDVPblJqd0ZueTFrNmZSUXpiZER0X3dvdnkwNHFOX0Q4RVZBZGxzVTJRQmtjeXRsRFpfLWJqbHBxZnF4LWNrOXRPOWN5NC1MSU1oRURzYl94UVptT3U5bm1HVl9UTXlfQUZZUl9xYUVXZ2lQSV9ZY3R0T1pjd2d1ejJjV2VmMHZDbXJjXzFoWnIxRWlpRdIBxAFBVV95cUxNdGhRUFY2MnVKSkJhUG5pZndobFBvbmh1YVpvd2VZeDFtWjZrRHJtWE9jQmJ4TllaUUNSSDRxYnBSbkNHRkpXdEJuNGNtcTRMbWlvXzVyb2xtSzV4VkRTcEZOX19WcWRPSGpTVlVRMWZ2SERKZnRQTGVVMVNISXhQMFR5Z0JjRk1HTDlnXzFlaWR2WEZzeHU5bkhCN2RHVzU2Sk1weUZNQmdXYzVaSV9rZm94bjI1N2VSVlEzRHZJOU5UTGN4?oc=5) |
+| DHS ends deportation protection for Haitians, says Haiti is ‘safe’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOSzNWX3FORVJudDVoNEFHVUV4V3VQZ0xnNy16cTgyWVJpMk14WFlNblpNandfdXRPSkI2WVNzS1Bxa3VXLVJUTjlQaDZXeFBnUy1aT2tLdFJJMUZ4bUN4MVoxWmFzVndxSkVmenlOaEQ3a2VTQWJzVlZDNHc1T2lHZDVFU2N1MHY1RGpwTWNIZUV1cHVTOVgtdFJrQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
