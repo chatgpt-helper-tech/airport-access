@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月29日 15:39:29（北京时间）**
+🕒 更新时间：**2025年06月29日 15:52:02（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | Iran could start enriching uranium for bomb within months, UN nuclear chief says | [阅读全文](https://www.bbc.com/news/articles/c79qeqg89g2o) |
 | Police review footage of chants led by Glastonbury acts | [阅读全文](https://www.bbc.com/news/articles/c33514nryy1o) |
-| Charli, Neil Young and Scissor Sisters give Glastonbury goosebumps | [阅读全文](https://www.bbc.com/news/articles/cj0m9r35142o) |
+| Charli XCX, Neil Young and Scissor Sisters give Glastonbury goosebumps | [阅读全文](https://www.bbc.com/news/articles/cj0m9r35142o) |
 | Make healthy food more appealing, government tells supermarkets | [阅读全文](https://www.bbc.com/news/articles/ckg5xzpmxzgo) |
 | Second 30C day for London ahead of Monday's UK heatwave peak | [阅读全文](https://www.bbc.com/news/articles/cx2l77w5pl7o) |
 | Child, 7, dies and another critical after tree falls in park | [阅读全文](https://www.bbc.com/news/articles/c4gdr4el5vpo) |
