@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月30日 03:52:35（北京时间）**
+🕒 更新时间：**2025年06月30日 04:00:08（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | Iran could restart enriching uranium in months, says nuclear watchdog chief - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBFSGVUWTJaS0FWWUVjdEN2OHNpM281VVhkMXdqNHVicXo3cU1rcjg4NkVLa09wck02UUVCSTIwbG1mRl9qQUlfQ0VURVZnTHBENGE0NVdYcHJvTE9fQ1AwdHptb0lIODdTRU1OZDllREo?oc=5) |
 | Trump considers forcing journalists to reveal sources who leaked Iran report - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOeUdKazgxMVZjRXFlSERHTzVNdGtwU2ZoaEd1WGJCNFlMZWZxdUFJR1E3RG1URFlZYXdCOTB4cTZad3hVbEVtTFdWQnE2SzM3cUdnVlU1UEdEOVlaSDZOYVVaYV9jNGUzUXNFdUY0eXVMOWhGMEthZjNnYnlsM0txZTlfWHI1bFZv?oc=5) |
 | Elon Musk renews his criticism of Trump's big bill as Senate Republicans scramble to pass it - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQdUJuaVREbFg1bDlJR05zMjhzYjBJVmgtYWRRZW83dVl1Z1pVdm11STFqeEhzY0hiQXVEQzk4dzFraEFqaDJsbjlhdDVFcnpUUkg1NDJ3RVpTLXZhZzB6YmxaaDE5bXJuc3FJY3Z0OW9SazhIZXcxa1dSZXV3X3kwek5uYlN0a2REcWhKRkpXWmhvYUpKUWl1eHdaX1p3SVItLWfSAacBQVVfeXFMTjNNXzBFMm5ETmdGRjRrWTk3SURnWURBbVZwa19jcWZ5dVNNSlBrWUlPTlNNQUVwcmRlVWxSejBRcktnQXowWlp1QU5RVjdRWEhaSEhhckRZWk5kNW5wWTBHQUprQnp6cWRleXpBTXZON2RLQy10ME9vOU9wOWN0T29QTVN1QjdMT0JoeTRzZ1c4YmlsaHJRN1pjcEIyVXhwYTF2RjJrYjg?oc=5) |
-| A Triumphant Supreme Court Term for Trump, Fueled by Emergency Rulings - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE84MnJ4WlBHWE54U0tWYklJYXdtaVEweTU0STNTLUNoQTBWODJCeVFOcHJxVV9qSGlqcmFpWi1qRXZYMW9sUXp2dWNMeTV1ME1SMTNiUHJURWZJOGZqT2hYM0tBRG9IdWp3QTZOR01zUFF5eEpyZzduSTNhNDA?oc=5) |
 | Biden, Harris and Walz attend funeral for former Minnesota House Speaker Melissa Hortman - Euronews.com | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPSkFFZEVSS2VxdG1wNXRIX3RtY21CX0x1YnFjTDRtRHNHandxV0F1d0ZaWjE5bXNsUnRnVGU4ZWs3VXE5a21yZDJqVkxPU0dWS2V4Q3B3ZGZNQVR0bXdWX3UyMU9PR0VaNWVCYjc5OWVMN21PSmMtaTUzRmI5Wnd6bV9Md3F4Sk0tVjlXYVBNcVUxT3V2MjREcE9LQzVFZE9hVXJlMGNiUlNldnMzVmNiNm05TjVMT2ZacW5RcVFCbzQ?oc=5) |
-| Zohran Mamdani declines to condemn ‘globalize the intifada’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNbXdEQnNXZzJKend3aXQtbEpOQlNnT0VhVW5Wd1pTY3RVeFFrMVNVaU53NEEwMzhHaTltcW9RRzJwM0liMjJaazVWU19xRTkzdUNUMFZGek9Ib0xQV2VGZElpVVVWcF9SOV9CNmF0Y3NOTUdUOVdKQ2hDQTR6U2k3SVI1YUswQ0tPbHMyU2dKRnM?oc=5) |
+| Big Trump wins, boomerang appeals define Supreme Court term - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBQNkQ4cHQzNk1VaGJWZWFVNVpMaExuN0FoLVhDT2twYklRb29UcjRFb1hVUm9TZU9aa2JZWmNpZTJfQU9RWExPczYwZFM3NkZqc3hyM1FDeXNlSXU0bUdVWTQyMDAyMS1lUEQ1TVVkSlAtby1sMlZpbdIBfkFVX3lxTE1nbmtnUm5uZnNxOENEWDdaeVVVU080eFB0T3FqTnZ3MDQ4YUd5OGtHMVFhOFl0aTNDdndqeVE3R2FMQ2xDYkRHQzNVR0pDUkRNYmpnNEdtRHNOOVJBX05VckJ0LWozQ0Jia1hqTkRsaFJybmxkZnRXbWV3eHEtQQ?oc=5) |
+| Trump says Mamdani must 'do the right thing' if elected mayor of New York City — or risk losing funding - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9mR0EyQ3dacWoyYVgtSnhWZFFmaG8xd2xreE03clBVbl85di1OQW55V0hHMmF2dmFXMDlLQTNSZnlEbVBkSGZ1WnpzZkhWVjN6YWR3ZXF4LW9iRnRYZ2VrUlFhOFduNU83ZkxuWktVUlhOMUpQNFdJNndObnRYd9IBgwFBVV95cUxQNU1PZ29nRXlPOElGV3FyUGJrZ1F4YkpXdm5wVWNESk5SNlp2LXhJQ3JyRzVIN1o3VzFtbFVIaGdjcURYLTJmOXdOY01aZmNxdHJDRUdkQS1XSVBYaFY0UzFycFUtVW9ITXJMeDl2NjF1Q205czBBNDRLekdTRDhpQm1rNA?oc=5) |
 | RFK Jr. is bringing psychedelics to the Republican Party - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQMm9kaWtUVWlKT1FPLWx1azVOWlJhZDJKT0RJTWRmYlpIdXV5WjdrOFF3Y3BlWUk2bkIyMkh6NTVUR1ZQU0xJY0dWNFEzTFVROE1jYmxHdklPYUVsSzlUWWUzWjl4OU5rejVoem9sRVgxZkdWb3BLTnU2dHdCTnE2dnZfSWRQcS0yNDFtX3lFalVZTDBfTVY4?oc=5) |
 
 ---
