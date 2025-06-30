@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月30日 14:13:06（北京时间）**
+🕒 更新时间：**2025年06月30日 14:26:06（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | U.N. Inspector Says Iran Could Be Enriching Fuel Again in a ‘Matter of Months’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQdzhyQ2Yxa2JieHR5WGhoUGNRMWU0UC1jcktfampCZXNvdDBXUmZmcjVJeW1LS1RoaFJvNzcxS1Q0TF9BY2ctdnNPTWJiaUJybm5WR2N5TkFXVGc2QzdNaVBSU2xkNFg3dkFkWGlhS3ExRHlkS1ktaE5OeUJwNzhndnhjamJIUXhFSkRKbzVhOA?oc=5) |
 | Blackburn, Cruz find potential truce on state AI moratorium, child online safety - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxQMDJYWVNPSEZJdTloVEEwRzZ0djQ3Q3V5cHVHN1luald0YVZwb1E5a1FZXzd4MnBGMnB2UlBuaFZrdnB3cFhnNW5iWmVmR0J5cjI1RngyQ21iYW9GRjdMOTBvVWpsNWdVYWhCdHZRNTNRdHlWbHh0UUM0YmUyeGxWbUgtYWdpZml6UHItNVFPX2dJWjloSFRYd1l5VjE0UjhXUW9NdlFUUEx2OEpPT25waGtLcDdCa1ZRdG1xLWQ3dVNUcUdneHRtQzBKSVEtOUttNTVVTQ?oc=5) |
 | Republican Senate tax bill would add $3.3 trillion to the US debt load, CBO says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNMkhwSFhFdk91bzJJd1lsVEl6MUprZkptYkJZMW5KMVM3d2wzNVljVFpkZFpWQzFVUDdsZ1YxOVFDelFIem1ld3JOUDFGa3VLZHE3Z2x2VklTZGw5R2N5cDh4TTBaWGZJTF9rb3pOYkZiSjNLRmlMTlNVVE9SZmhZVUctSzZXZGRnalROb0xieXF6LUVzVHVlQV9PZ3ZBUQ?oc=5) |
-| 1 dead, 2 hurt in Philly fire and explosion that leveled or damaged multiple homes - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOSUl2UmFKbnFTc0w4Uk5lcDdiQXlfMVlDendiTFhJZEJhVEcwU2JfR1h6RkJJZ3JXSWZqbUVIeVJIN1JwQldzMktxV2VtLWJiUnVCNHA4WldWNVBSZktieU5uTHU5cnAyNFhGdmhKSkU2M20zOHdITlBUVTl5djlWVVd2akU1ZDdXOFVaWTlaX3BBQdIBlwFBVV95cUxPLUVCS3BMVDMzVWtVbXdNVlZSNWZpeTNaNk00ZWtPS0NiNjZKMTlJMjRiWW05Y2xGcmpjWnZxRm9iWDNtUFYxV0k5ZGNDSXBpalJZZ0Y2VWZvT0tKNFhRbzB0T3B2Yi1CcDZyODNqVjQxdlpiQkVEcXZZTjVzQ1ZzR0FtX3ZHcUN5aHpFTW4tVkgyZUJfQUtZ?oc=5) |
+| Trump: Mamdani must "behave" if elected NYC mayor or face funding cuts - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBmNFBwa1cxZDVWel9LM1MweFdLT2poT2g4bFFOeVFTYTUwU2otZVB3RWtWV0ZXS1dzYU5TTnZ5WXB2NDlneEw2aTFWOVJNSzc1dmpmb0FBNHBXY2lTUy1nb3BMMk8telBqYkFWeXZFM1JzVEctdWc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
