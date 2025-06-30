@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月01日 07:00:28（北京时间）**
+🕒 更新时间：**2025年07月01日 07:13:55（北京时间）**
 
 ---
 
@@ -11,11 +11,11 @@
 | Labour MPs press Kendall on rollout of benefit changes | [阅读全文](https://www.bbc.com/news/articles/ckg55y84vvlo) |
 | Police launch criminal investigation into Bob Vylan and Kneecap Glastonbury sets | [阅读全文](https://www.bbc.com/news/articles/cd0vvnl41mno) |
 | Israeli strike on Gaza seafront cafe kills at least 20 Palestinians, witnesses and rescuers say | [阅读全文](https://www.bbc.com/news/articles/c62884y1pl5o) |
-| 'I had to investigate my own abuse case because the police failed me' | [阅读全文](https://www.bbc.com/news/articles/cj0mzmqvp6zo) |
+| Is RFK Jr's divisive plan to Make America Healthy Again fearmongering - or revolutionary? | [阅读全文](https://www.bbc.com/news/articles/ceq7jx3dlj9o) |
 | Heatwave peak sees parts of UK climb to 33C | [阅读全文](https://www.bbc.com/news/articles/c89epj8pd9zo) |
-| Almost 2,200 dog attacks on Royal Mail staff last year | [阅读全文](https://www.bbc.com/news/articles/c5ygp5lv8d6o) |
+| Household energy bills fall but may not go much lower | [阅读全文](https://www.bbc.com/news/articles/c79q8g7q283o) |
 | Emma Raducanu beats British teenager Mimi Xu on first day of Wimbledon | [阅读全文](https://www.bbc.com/sport/tennis/articles/cq8zzyw99jdo) |
-| 92-year-old man found guilty of 1967 rape and murder | [阅读全文](https://www.bbc.com/news/articles/cgk3jyl5prvo) |
+| 'I had to investigate my own abuse case because the police failed me' | [阅读全文](https://www.bbc.com/news/articles/cj0mzmqvp6zo) |
 | 'We're not safe here anymore' - Syria's Christians fear for future after devastating church attack | [阅读全文](https://www.bbc.com/news/articles/c79q8p8qx1do) |
 | Royal train to be cut in Palace cost-saving measure | [阅读全文](https://www.bbc.com/news/articles/ce377nr5r43o) |
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Bryan Kohberger to plead guilty to all counts in Idaho college murders - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNV3VDWUtndHotelNEaXRmcnZ0UGM3dDNFclF2eVJrdTQyVXVZR0NYNHdEMlR3MXVUY0tJeVhZLVBwWVpydlMxUnhCbHNwT2l0Y0doYnliTGdsUUNZazVtZjFlMTVqY1hKS0QySUF3aXQyWWhXdnZ3b2xpZFZzNXZadGFldGJKXzFXNGR2WlE4WXdrUXBpSWVZbFlpUEJySGhRdHVqSg?oc=5) |
+| Bryan Kohberger agrees to plead guilty to all counts in Idaho college murders case: Letter from prosecutors - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNV3VDWUtndHotelNEaXRmcnZ0UGM3dDNFclF2eVJrdTQyVXVZR0NYNHdEMlR3MXVUY0tJeVhZLVBwWVpydlMxUnhCbHNwT2l0Y0doYnliTGdsUUNZazVtZjFlMTVqY1hKS0QySUF3aXQyWWhXdnZ3b2xpZFZzNXZadGFldGJKXzFXNGR2WlE4WXdrUXBpSWVZbFlpUEJySGhRdHVqSg?oc=5) |
 | Senate Republicans face infighting as vote nears on Trump's $3.3 trillion bill - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPN0IwYUdBd0p2bERMS25LZ3pSaHg3cjVEUnpFMlpHU09CNGpOelJoUFd5SnMyT3BWUEVsWnp0UHdaMFRUbXZWcnFnSTREU3VyQ1c4SnhCdlhGNjhtd0V4YVEySlNiMHJPVVFxa1RxeTZZNl96RGRWN1lieHk0NXpHRndZNnNSSnlIOEVER3lWTXpxNzJGbGV5N0ZJRVJtdlRvSF9HcFpYYW1VMnlOenJ0R1Mxc3lRaXRWU3dYODQ2MzZGSzNETDM0dDhEaEdrUQ?oc=5) |
 | Suspected shooter identified in Idaho firefighter ambush - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1WaXBBUFdCVlY5RGI3dWtVLW1JbXdxR0MzdGpNUWxaVFZMcTM1eGxZMlhIUEF6RnpDdG1NRmxTdkZYUTluOWVlWGMyb0ZnUTZlYnhPeDd1SS1zMDVKODA4R1NOQlRXR0tUdWkwYWthb2dod011?oc=5) |
 | Elon Musk just made his starkest political threat since the election - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1FeUxleXcySWhyZWowQVcyZlppU1NGQ3NFSG1INm8ySzEtdEE2VWpCNlpSRmFWU01PdGxOWlpFbHRJeVRiZDFicmhEeElwLXVkby0tQ1RCakhNLWNUWjJBUV9YeEM3REtJYm5QX2NLOThSY2t00gF6QVVfeXFMUFNObF9EdUtiY1FkOXVWZnJSYktSU0R0WUIxdXJvWml5RGtBRlNkNzBFNGpmU01lLXZjNHRhYzRjcThKNENjZTZYSHlDYkhOMW95YndfQlZiNW1Wbnd3dEJGeVJlZV9KNVBGRTJ2ZEFVTW1ZYUlibzZjclE?oc=5) |
