@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月30日 08:26:28（北京时间）**
+🕒 更新时间：**2025年06月30日 08:39:26（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Sen. Thom Tillis announces he’s not seeking reelection, a day after voting against Trump’s agenda bill - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1hdHpzZ1NRblE0cmNLVTlWdEdoQ1pFNF9LMGdQSFF5RndFZV84Z1dhUFYtWDJCVGhJNjNDM0cyYnhUXzJSWWUxUDV4eHB3WTVWdE84Q3VfSi1hbzVGODVuUVp2MTRZMWhUclduczBZUjI0SzRHWVdWeTZrOXN6YTjSAYQBQVVfeXFMTUQzck5LRFpveUNkdXNvMjRnWUxXckRSbHBsWGJqVno3RnNJZE1FN3ZZalBmREd2YVh5NWRrVkFDN01XUFUzckUyNGtQOWtSSVRtclpYekJ2NnZqeGNneWJEWXZZRnE1dWJBZ1ZCV2JTUVF5clNHTXBoekkyQWdxbGJQZlJZ?oc=5) |
 | Elon Musk Rages as Trump Tax Bill Slashes Electric Vehicle Credits - Bloomberg | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOb3FUeS1hR1hONHBCLVZUUVFxQU5vWFVmRWotTk5LS3lBeF9GZ3FFa3p2MVo2blJuQm82Ym1Iel96TjdGRzI0bU9FVmFtX2QxX1g3OGhubF9rb2UtYzNldnRDZXZDbkNGZGFUX0llVW03MTNTRmhBcUJuN011WGd5VVBIR1FON3ZsdXZlNWlhVEI4VU9ERmtGT1Y3RVBEcjhZUkFqbUROZGhkTzl1UUtSX3pR?oc=5) |
 | Trump considers forcing journalists to reveal sources who leaked Iran report - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOeUdKazgxMVZjRXFlSERHTzVNdGtwU2ZoaEd1WGJCNFlMZWZxdUFJR1E3RG1URFlZYXdCOTB4cTZad3hVbEVtTFdWQnE2SzM3cUdnVlU1UEdEOVlaSDZOYVVaYV9jNGUzUXNFdUY0eXVMOWhGMEthZjNnYnlsM0txZTlfWHI1bFZv?oc=5) |
-| Tropical Storm Barry Strengthens As It Heads Toward Landfall Tonight - KHOU | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQU0Noa1Q1UE9oQ21XRzdsSFItLWFfMnEyZUVSenJrR0FRb2wxdW4xYWw3QXJwbHE1V1ozOXJOaWUzWVRFWHZWT0dCV1NjVUotUDZ0eXoxTVVKMXFFd0lNZnQ4anhHT1h4MlFvVHk4Wm5sZ1dhUU1wUjN6S0gwMXFJYmpFM25qc25vOEF2T3R6WVRBMFZFZXpFaFBhSy1vaWRaTUlRQ2w4ejJVc2Q4MXVDYUF0QQ?oc=5) |
+| Trump says he’s not planning to extend a pause on global tariffs beyond July 9 - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxORTFySDVpVlBydGQ5YlZlOVBwdDhaS2xpOFZJWEU5d185U2VIRWVQeGthUlY0MGtpWUp3V083aGhoak9IQjIzQWVzZlhQc2laa3BvRTZlRFpna2tFWV9sbVZpV3hkWDJlaVNORkIyeVUxcmY0V083YkhNZE1INmpKNlhiRldYS2toNW5hYzlPaTZtRHdQWDhJSGxFM09ub1ZjcHdFMkpSU3QwSlJtd3c?oc=5) |
+| U.N. nuclear watchdog says Iran could enrich uranium again in 'a matter of months' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQNjBnc1h4aDVCekdyTkxyb0ZkMDF6dHBFV3U4eVJuNnhqeW9qOUlXT0VpNENYR0p6RzgtOGNVVnctYUYtWXg0MldqeVdzdDdDdEtYX2pwMmlIMjVSUFJ6RElmMGg2WmRndGxsSDlnYUM4b0pSZ1F5d2N3VFZTRWM3Rm5yYlJCMzdxYlFNMlVoak0zVU1mT2wxQzhwLWY2VHROSjRCcHVqYTFXa1FGQTJnR3E1MmFqRFZNY2haN2JzdDFzUQ?oc=5) |
 | 1 dead and 2 injured after three buildings collapse following explosion in Philadelphia - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNenlEdk40dHVENWdFOFBwNmJ1VnN2Z0ZSVGE0ZmJsbHJlb0VubzNrcHdQYXBaeTk5TXpUbkhBbVlXNGNBb19zMmh5Ui1MQ0hqXzNZTUxxby1fVnRfVVFHX0U1c1FFMDRsRDJ5OHZCdnFma3dhN3JJTzJJMUlmWkFVYm9QN0hYbEQ1eWFETThaMNIBVkFVX3lxTE5UREprellJNG4tMTRFWmk2VzJsTng0U0w0OTVHdWZITVFBamhVd0VpSkNwa3NqOWdpb21LUklVVHduRWtYb1FxU2J3VHhWZHhCb29nZWFR?oc=5) |
 | Trump won’t let other countries score big ‘wins’ in trade talks. Both sides could lose. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE05MVVoZkRXMldnYWhrOW9ReXRUN0llVDZvZlFBYmdpY29uc1FKTmR3UnFuUGtNVFBZYTRtYVpkRl9Hdm1CeDR0ckxoOGdJMXQ2VmM1OV8xSGJlc085WDBiTEhIdlMwS082Zl8telI2WjBrVWloZjlmag?oc=5) |
 | Republican Senate tax bill would add $3.3 trillion to the US debt load, CBO says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNMkhwSFhFdk91bzJJd1lsVEl6MUprZkptYkJZMW5KMVM3d2wzNVljVFpkZFpWQzFVUDdsZ1YxOVFDelFIem1ld3JOUDFGa3VLZHE3Z2x2VklTZGw5R2N5cDh4TTBaWGZJTF9rb3pOYkZiSjNLRmlMTlNVVE9SZmhZVUctSzZXZGRnalROb0xieXF6LUVzVHVlQV9PZ3ZBUQ?oc=5) |
-| Chris Murphy calls birthright citizenship ruling ‘dangerous’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQaUN2SjNrbUM1RXVwclJ2NzhBcU9iQXhqdlZWd25fSFppWUZnYkxXY1lPU2hKZ2FIRFBaLWFNVF9LbmlIa2hqT1dHalFubmRMTjNoWDRMZ2hvbnlyUmEyeEdFMjgwMkQ0clJ6c2lzY0tvZG04SkNaSHhoZDlKVnZPaElPMmdGZC1CRDZ5dG51UHlFTFh0V0g5enk3c0NWd1NMakE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
