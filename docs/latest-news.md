@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月01日 07:13:55（北京时间）**
+🕒 更新时间：**2025年07月01日 07:27:24（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Karen Diamond, burned in Boulder Pearl Street attack, dies - Boulder Daily Camera | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOVHR1MGZrOFFkMmVZQ1RBNHdkWlVZWTAwTlRPbWlFZzZqWXBRem1HWGM1amNQNFU2dm1FeEtZZm9QT3VzN2h5YjV6ZDZ4S2hjcnpLbzJsYkQxLU9aQUNUakNFY28yNDFaS0hrWGxPOEozNExTenVHeHVWcDlwWXdXZzBodTc2ekRUdnZob25kMFVwd3V5c3Riaw?oc=5) |
 | Republican senators seek to change Senate bill clean energy tax, improve tax credits - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNZGd0UjY0QTFwbk1jQnJuYjRqTUxjeDY5ejhsTktZN0dQZFBuYUVrNHZ2M0p6NDVMLWhBdDhLckI1S1RmZjZWVXpXS0diTEFHMHBwRWRPM3hFanZ5UUxSd0JwZ3BPZlIxY001S3RFaV9SOEh4aGtqeXhSZzZyMVhfeHg2V2NTLWcybGJFcld6TG1EX2dIV2pXWEtUZ1g2cTBEU0ZhU2JxaW5VT3lQU3pFSXBaY3M2R3hoTDZDSnpJd0VyZ21nYkk0?oc=5) |
 | Trump administration sues Mayor Karen Bass, L.A. City Council over sanctuary policy - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQeER5V1JfX1Q1TFptb0NXeDJsSllIOXFnSW9NRThEQkFnTk5ZWk0tZnRRcUhNQXh4Y0x2S3I4bVpXTGJIVHRUVzNaLVZRVUdCS29QUGxPcy01SDVsRV80UnN1YXFvNUhucTc0TlR2VTl5UTNIYWZDTHRDajBTVHRHN2VDazN0ZEFzYmthY0lTdk0zT1A0?oc=5) |
-| Boozman rushes to block Grassley’s farm aid amendment - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOTV9CZ2ZVc0xld3pDWlhuRXpOT1V5STZFaFVja0NJXzY2UW9TOVl3WDRsWHcyS3pmbDFpM3kzMTV2dTA5dXpFeHNWdk04WHp4RDlSWHBIX05yZlJVLWpJaS1WYV9GZnJXNVhmQVlYc3o0SVZta0E0V0RtcU5BV1loQk9mbjQxSDVGd1ZNQ3ZQTGo1WW9RdG5sUXd3VUQzLVVqdk1KQ0JPREgtVkNYQjZsMjVxZTB0U0RxMnhn?oc=5) |
+| Harvard inches closer to losing more federal money after civil rights accusation - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQMXpLdUQzajR3R2s4LXI5YU1UWFp4UW9XSDVDaE1vdHFQUGJ5UGZjYnlDakR3Ny1mUXVUVm9iQzVPWmQ0UXlWYkExVHpYSksybXVSNVJTQUVuOS1ldnJZV1drWm94dzY1M2Y1RFF5d2t3cXU2RTFZUlBvTkdNVXRMRVBGUFJ5NFA1T2ppbERtSmZ1Slp5akM4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
