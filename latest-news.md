@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月30日 15:40:24（北京时间）**
+🕒 更新时间：**2025年06月30日 15:53:38（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | After five years in Belarus jail, opposition figure Tikhanovsky says he's not broken | [阅读全文](https://www.bbc.com/news/articles/czey1y6x6zzo) |
 | Lifetime ISAs leave some with less money than they put in | [阅读全文](https://www.bbc.com/news/articles/c93kgye03j9o) |
 | Covid inquiry to look at impact on care services | [阅读全文](https://www.bbc.com/news/articles/c62dg6xvy6no) |
-| Jury retires in mushroom murder trial in Australia | [阅读全文](https://www.bbc.com/news/articles/cn86y31vql5o) |
+| Jury for Australia mushroom murder trial begins deliberating | [阅读全文](https://www.bbc.com/news/articles/cn86y31vql5o) |
 
 ## 📰 Google News
 
