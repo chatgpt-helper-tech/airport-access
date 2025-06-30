@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月30日 12:13:15（北京时间）**
+🕒 更新时间：**2025年06月30日 12:26:08（北京时间）**
 
 ---
 
@@ -29,7 +29,7 @@
 | Canada rescinds Digital Services Tax after Trump cuts off U.S. trade talks - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQNjYwMjlENmR4emg2Nm9fRXRfZDV5Ymx5MFFOZE04S2VMMngwbFFjaVVQeEFKQUM0T2J1U084MGhVUFBueVBfYmJvd0xKTm9TaVppREdnQmRxcF9TTWZmQXRnYXdsVGJXZ3BDVDhLY295SjZoM2d2REpCbE54Y2lKcXRjU1RPMGdvNlFQSjF0S2hiNG1NLUxyR1U0NmFiSi1vMzNOMC1BcERldTlBNFHSAbMBQVVfeXFMUE1Lc195cm9ETUM0SGRqc05PQWpvX3gyQUcwNkk0NWhTeFFTajB0RENodTRQWXl0Vk9XVndNVVJ4eDgtbGg5dzFwX01PX2FFUV93ZlBSSG9zaEJxTW4xT2FnbGRGd1NETGF0ZmE0OFZlX2RmU0tLaWhOX2swLWFvWUpyWGN6MGpiVHYtU2VIcl90Ymwxazg3SkZIQkl3WDJ6NU1PUVRJMjBHWGZtMThxMXFRaGs?oc=5) |
 | Trump says he’s not planning to extend a pause on global tariffs beyond July 9 - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxORTFySDVpVlBydGQ5YlZlOVBwdDhaS2xpOFZJWEU5d185U2VIRWVQeGthUlY0MGtpWUp3V083aGhoak9IQjIzQWVzZlhQc2laa3BvRTZlRFpna2tFWV9sbVZpV3hkWDJlaVNORkIyeVUxcmY0V083YkhNZE1INmpKNlhiRldYS2toNW5hYzlPaTZtRHdQWDhJSGxFM09ub1ZjcHdFMkpSU3QwSlJtd3c?oc=5) |
 | Senate Republicans seek to vote on Trump’s massive tax bill Monday - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPM2FMaHZTb0lmN2NKZmhkX1JWdVJWMWpSUVl4RW1RSUNDX25QbXJqT2tSeGVGNzFpMENRZkJuUEkzYUF1U21QN0pwcFVWRXczamFXNUpOaG1zVGxocVBIN1V2VGphekNaOUlyT1pvYnBLUGVaUk11WXNMOE9oLUVvLXdfbjI?oc=5) |
-| U.N. Inspector Says Iran Could Be Enriching Fuel Again in a ‘Matter of Months’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQdzhyQ2Yxa2JieHR5WGhoUGNRMWU0UC1jcktfampCZXNvdDBXUmZmcjVJeW1LS1RoaFJvNzcxS1Q0TF9BY2ctdnNPTWJiaUJybm5WR2N5TkFXVGc2QzdNaVBSU2xkNFg3dkFkWGlhS3ExRHlkS1ktaE5OeUJwNzhndnhjamJIUXhFSkRKbzVhOA?oc=5) |
+| U.N. nuclear watchdog says Iran could enrich uranium again in 'a matter of months' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQNjBnc1h4aDVCekdyTkxyb0ZkMDF6dHBFV3U4eVJuNnhqeW9qOUlXT0VpNENYR0p6RzgtOGNVVnctYUYtWXg0MldqeVdzdDdDdEtYX2pwMmlIMjVSUFJ6RElmMGg2WmRndGxsSDlnYUM4b0pSZ1F5d2N3VFZTRWM3Rm5yYlJCMzdxYlFNMlVoak0zVU1mT2wxQzhwLWY2VHROSjRCcHVqYTFXa1FGQTJnR3E1MmFqRFZNY2haN2JzdDFzUQ?oc=5) |
 | One dead and two injured after explosion damages Philadelphia homes - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOU0pic2hWSElhYl9DY3piRHBaNC1tVzUtOVFJeTJGX1BHaFdiZm5UWVJsaDBMb1hVWjhkWGdOa21SQmw1WkQyRVNOdk02NjR0MkpVUlF3VmVPaVVhS1dyYU1kdkctRGdWQjl4SlE5V1ZPbW5EWmVxRHoxQkIxSGFEbWdR?oc=5) |
 | Blackburn, Cruz find potential truce on state AI moratorium, child online safety - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxQMDJYWVNPSEZJdTloVEEwRzZ0djQ3Q3V5cHVHN1luald0YVZwb1E5a1FZXzd4MnBGMnB2UlBuaFZrdnB3cFhnNW5iWmVmR0J5cjI1RngyQ21iYW9GRjdMOTBvVWpsNWdVYWhCdHZRNTNRdHlWbHh0UUM0YmUyeGxWbUgtYWdpZml6UHItNVFPX2dJWjloSFRYd1l5VjE0UjhXUW9NdlFUUEx2OEpPT25waGtLcDdCa1ZRdG1xLWQ3dVNUcUdneHRtQzBKSVEtOUttNTVVTQ?oc=5) |
 | Trump: Mamdani must "behave" if elected NYC mayor or face funding cuts - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBmNFBwa1cxZDVWel9LM1MweFdLT2poT2g4bFFOeVFTYTUwU2otZVB3RWtWV0ZXS1dzYU5TTnZ5WXB2NDlneEw2aTFWOVJNSzc1dmpmb0FBNHBXY2lTUy1nb3BMMk8telBqYkFWeXZFM1JzVEctdWc?oc=5) |
