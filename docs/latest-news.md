@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月30日 17:52:27（北京时间）**
+🕒 更新时间：**2025年06月30日 18:00:45（北京时间）**
 
 ---
 
@@ -9,14 +9,14 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | US must rule out more strikes before new talks, Iranian minister tells BBC | [阅读全文](https://www.bbc.com/news/articles/c20r18x8x05o) |
-| Keir Starmer criticises 'appalling' Bob Vylan IDF chants | [阅读全文](https://www.bbc.com/news/articles/c33514nryy1o) |
+| BBC has questions to answer over Bob Vylan broadcast, says Ofcom | [阅读全文](https://www.bbc.com/news/articles/c75rr6g96z4o) |
 | Two firefighters shot dead in Idaho ambush, police say | [阅读全文](https://www.bbc.com/news/articles/c9vrg9g2ll7o) |
 | Lifetime ISAs leave some with less money than they put in | [阅读全文](https://www.bbc.com/news/articles/c93kgye03j9o) |
 | Wimbledon set for hottest first day as Alcaraz and Raducanu top bill | [阅读全文](https://www.bbc.com/sport/tennis/articles/cx249z9zjx7o) |
 | How safe is the Boeing 787 Dreamliner, really? | [阅读全文](https://www.bbc.com/news/articles/cwyq7vgq2e5o) |
 | Hundreds of families displaced by wave of Israeli air strikes on Gaza, witnesses say | [阅读全文](https://www.bbc.com/news/articles/c62884y1pl5o) |
 | Welfare concessions to be set out before key vote | [阅读全文](https://www.bbc.com/news/articles/ce83304r12no) |
-| I may have lost half the weight, but I'm not broken, says freed Belarus opposition leader | [阅读全文](https://www.bbc.com/news/articles/czey1y6x6zzo) |
+| I lost half my weight in jail, but I'm not broken, says freed Belarus opposition leader | [阅读全文](https://www.bbc.com/news/articles/czey1y6x6zzo) |
 | Glastonbury's best bits: Capaldi's comeback, celebrity sightings and lots of spoons | [阅读全文](https://www.bbc.com/news/articles/c0l4033xe22o) |
 
 ## 📰 Google News
