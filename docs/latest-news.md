@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月01日 02:52:09（北京时间）**
+🕒 更新时间：**2025年07月01日 03:00:13（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Threat of More Tariffs Hangs Over Countries Negotiating Trade Deals - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOOEtMWWNiQmlIb3NaNmdXS3RCM0QxSTJ1ekc2WnlVbTc2MmU2NGpsWVVGUXp6c3owY0FDZjZ6YXJMam1yYkVyc09lWXNiNHpDNW1OcE1ud293SmhqWTNLN1p3cDZUMXVMU05HeFVoWUVSOU9mNkl2Qk1lSVMzb2x4bThIelV6b0RhQWc?oc=5) |
 | Canada abruptly scraps digital services tax targeting US technology firms days after Trump ripped ‘foolish’ move - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQM0t0RG5Edk9uS1Bpd2VRZTlsVUw0bG9SYzlPcUdvX0o5a2RveVEzXzBmdTc0akdZUHRKUDdWUnRZZjVRZk1kT3BDTDhNXzYwOFVZdTVhMEZRcmhZajhiQjljMXh5SmlUalRSSTBJczZrWU5IYkJjVk5qTHh1V3lzYWNrcTUxTHNweVZrbloyMnVTQW81S0FCMUY4b1BXSkFpWVd2S2lhRE9laEREYmhZZjdXNnJ1S1E0cWlHV3lMdk9Hcm5CZ3BnOEowdmVGbjBVTHc?oc=5) |
 | Federal investigation finds Harvard violated civil rights law - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOaVRpZ0VXN3VPeC0wNFJ4am1mNG93Nnl0bEd3X0phTWhxRmFEMURUQlZ6c3ppNkloTm04WE1xTlluRlppUjgwU0FWRS1YRHBXTlBCdzd2dUxyVC1XYWV6LWhiS3d0NExWSWNDcnUwc19wWUtKWVhDeEdCY1lxbGxGQTdoNWZVckpyMGlZTVFlZTJuX2tESEljV2ZLX3Q2Uzg4WHdR?oc=5) |
-| Trump’s Megabill Has a Nasty Surprise for Solar. Why Sunrun, First Solar Stocks Are Rising. - Barron's | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNZGJJSDJWb3dnZDJaN1lNT1ZFTXBoN1pKb011VEkxMVJzdUVFTUM5RUZJSHZESWNhX2dKUGdLTXlSelpqZC1TLWFWWG9wdWc2YzROeWhaR1g4RzZBelFETUhremNTZ0RpeTE5MlZ4ek9YRklYT3Z1QVlPRGRKVDY4ZDA1Zk4yWUJpMXRjSGlB?oc=5) |
 | An 82-year-old woman who was injured in a firebomb attack in Boulder, Colorado, has died - AP News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPSVkxdkw5Q1RfSnZ6a1ZLcUtrSnRWbnlsUkhwQ1VnOGlidC03MURuc0U3M3BzUUM2QUh1Q0E5LVJYQUxMUkxjc1lXUzRyVDJhQllkaEhFcC11VmR6TnNLUDg1NFhuMGFhNGFvTS10Rko4RWE4enpqYzNOaFY2d28zNEJUekdROGM?oc=5) |
+| Trump’s Megabill Has a Nasty Surprise for Solar. Why Sunrun, First Solar Stocks Are Rising. - Barron's | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNZGJJSDJWb3dnZDJaN1lNT1ZFTXBoN1pKb011VEkxMVJzdUVFTUM5RUZJSHZESWNhX2dKUGdLTXlSelpqZC1TLWFWWG9wdWc2YzROeWhaR1g4RzZBelFETUhremNTZ0RpeTE5MlZ4ek9YRklYT3Z1QVlPRGRKVDY4ZDA1Zk4yWUJpMXRjSGlB?oc=5) |
 | Anxious House Republicans scramble to forestall Senate’s Medicaid cuts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPVGR1ckpGME9STFU3M0M5Q1A0OUllQXlpNU43a1lBdS1iQTZhOUV6d18tS2xJdlUyQWZ0QkMzZFljT2dmUlpSeDZtSHhVd1JPT0Z0a1lDUGdfUm5FbHRSMmtLai14dE91ZWlQVm5LTHo3MFZfUG9TUEhLZ1U4WDRRWE5iQUhXZmstWEMweVNRS1Z2eHVhT2tKRGJldw?oc=5) |
 | Key witness in Kilmar Abrego Garcia case spared from deportation - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxONzg5RXlhN1FvZm9lSERFUGg0XzVBeWpVRWFUcGg1cFV3emg3MFRPYU5mcGtZVUFBY0tGRjdMMDJ4ZXVyS256X2RrWm9rWjR6a2tEaHdLTnhydXpKQTdYakthWVFQdFkxdVQ0bEtVMEV2LUMyN1RCc1lZa1ZLVWRyTU8wOU5KdHNWM2NJYzZTMlh3QXN1TzZfWHZxWlTSAVZBVV95cUxPM2c5NENzZFd4Z1RjdTk3RGthQ1ZYU3FYdmtNejVGRm94cWx1X09Vb3ZEX3dUZzJlTGNvYi1zOXNrM0ZPWWloVGxvNG1YNU1PSTlyTkFRUQ?oc=5) |
 
