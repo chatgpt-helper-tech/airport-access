@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月30日 12:40:43（北京时间）**
+🕒 更新时间：**2025年06月30日 12:52:55（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trump says he’s not planning to extend a pause on global tariffs beyond July 9 - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxORTFySDVpVlBydGQ5YlZlOVBwdDhaS2xpOFZJWEU5d185U2VIRWVQeGthUlY0MGtpWUp3V083aGhoak9IQjIzQWVzZlhQc2laa3BvRTZlRFpna2tFWV9sbVZpV3hkWDJlaVNORkIyeVUxcmY0V083YkhNZE1INmpKNlhiRldYS2toNW5hYzlPaTZtRHdQWDhJSGxFM09ub1ZjcHdFMkpSU3QwSlJtd3c?oc=5) |
 | Plan to sell off public land in the West nixed from ‘big, beautiful bill’ amid GOP backlash - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNYUpkWjlMdWsxMGdXRk9NMlNNTnJ4TjRGSVhoNWRQQ0hwYTdrWmJCSmNwM21iRWNtU096LWN5MUNXSmtiV0FFUkNrYUowY0NOTUJybWt2c3dlYl82Tm9pQTdCRWE2SmZLaE1WYjFpbTkxN1FYdHNRUkFfLUMxODJvZDJFTk16djNpVnZfQnB6UENUSUlQY2NhWGpYNUNOV1dVTFJKeVczQzlkS3h1Y3k0REwtS3l1NGlD?oc=5) |
 | U.N. Inspector Says Iran Could Be Enriching Fuel Again in a ‘Matter of Months’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQdzhyQ2Yxa2JieHR5WGhoUGNRMWU0UC1jcktfampCZXNvdDBXUmZmcjVJeW1LS1RoaFJvNzcxS1Q0TF9BY2ctdnNPTWJiaUJybm5WR2N5TkFXVGc2QzdNaVBSU2xkNFg3dkFkWGlhS3ExRHlkS1ktaE5OeUJwNzhndnhjamJIUXhFSkRKbzVhOA?oc=5) |
+| One dead and two injured after explosion damages Philadelphia homes - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOU0pic2hWSElhYl9DY3piRHBaNC1tVzUtOVFJeTJGX1BHaFdiZm5UWVJsaDBMb1hVWjhkWGdOa21SQmw1WkQyRVNOdk02NjR0MkpVUlF3VmVPaVVhS1dyYU1kdkctRGdWQjl4SlE5V1ZPbW5EWmVxRHoxQkIxSGFEbWdR?oc=5) |
 | Blackburn, Cruz find potential truce on state AI moratorium, child online safety - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxQMDJYWVNPSEZJdTloVEEwRzZ0djQ3Q3V5cHVHN1luald0YVZwb1E5a1FZXzd4MnBGMnB2UlBuaFZrdnB3cFhnNW5iWmVmR0J5cjI1RngyQ21iYW9GRjdMOTBvVWpsNWdVYWhCdHZRNTNRdHlWbHh0UUM0YmUyeGxWbUgtYWdpZml6UHItNVFPX2dJWjloSFRYd1l5VjE0UjhXUW9NdlFUUEx2OEpPT25waGtLcDdCa1ZRdG1xLWQ3dVNUcUdneHRtQzBKSVEtOUttNTVVTQ?oc=5) |
 | Senate's "big, beautiful bill" would add $3.3 trillion in new debt: CBO - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1CMUtBSGxZUTUtc1hUVm9iZVljRmhzUDhyTGVQTWE2dU5WMl9WQ2tib1lsdFpKOWFDZjJRYXNEVWJPM1Zqa2hZLUozTkxZbDZrWnhpMV9TZWpfUmJiN2RDNnR0bGFyMVFTOGFRX1MtNkNHamVRc2RiRWNTUkM?oc=5) |
-| Zohran Mamdani Confronts Trump’s Misinformation and Threats - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQcUp6U1Y2eUZncXVRTDB5eGtFajRrLXRZTlBXenFneC1OSnExLXV5RWg2TzZMWTBRd3VjZlB2ZDE2enpuSUp3dnM2d3hwV295YW5URk0zN1ZzSG5fT0FtOE9ZNUJxM0lQME5neWs5WTU1R0pFVlB2ZHI0MlpYVFIzRy1RT2xxX0kwZ2dpYVhNc0VsVHIwbU1YdzJR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
