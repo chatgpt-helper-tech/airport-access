@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月30日 20:01:01（北京时间）**
+🕒 更新时间：**2025年06月30日 20:13:44（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | How safe is the Boeing 787 Dreamliner, really? | [阅读全文](https://www.bbc.com/news/articles/cwyq7vgq2e5o) |
 | Woman let girl under 10 drive car through village, court hears | [阅读全文](https://www.bbc.com/news/articles/cyvjjy5j35zo) |
 | Hundreds of families displaced by wave of Israeli air strikes on Gaza, witnesses say | [阅读全文](https://www.bbc.com/news/articles/c62884y1pl5o) |
-| US must rule out more strikes before new talks, Iranian minister tells BBC | [阅读全文](https://www.bbc.com/news/articles/c20r18x8x05o) |
+| Family wins fight for Lapland dream holiday refund after it failed to snow | [阅读全文](https://www.bbc.com/news/articles/c994pmv77gro) |
 | I lost half my weight in jail, but I'm not broken, says freed Belarus opposition leader | [阅读全文](https://www.bbc.com/news/articles/czey1y6x6zzo) |
 | Glastonbury's best bits: Capaldi's comeback, celebrity sightings and lots of spoons | [阅读全文](https://www.bbc.com/news/articles/c0l4033xe22o) |
 | Olivia Rodrigo leaves Glastonbury on a high | [阅读全文](https://www.bbc.com/news/articles/c2lekyx02j4o) |
