@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月30日 21:26:51（北京时间）**
+🕒 更新时间：**2025年06月30日 21:40:41（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | Senate Republicans seek to vote on Trump’s massive tax bill Monday - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPM2FMaHZTb0lmN2NKZmhkX1JWdVJWMWpSUVl4RW1RSUNDX25QbXJqT2tSeGVGNzFpMENRZkJuUEkzYUF1U21QN0pwcFVWRXczamFXNUpOaG1zVGxocVBIN1V2VGphekNaOUlyT1pvYnBLUGVaUk11WXNMOE9oLUVvLXdfbjI?oc=5) |
 | Syrian forces massacred 1,500 Alawites. The chain of command led to Damascus. - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOWlZWMERCRUNqV200YjkzRlY5YnRzSDBKUkExbWZIVEczWVZTZlhWZUxOcEwwbDhEODNreFNLMUhCSWplU01RdmpVUzE2ak4taE1XZVBiVlBrNU5lak5uMVJ1VExfWTZtcFdFZEU5UUt0TmU3X1BKN0loWF80QnJ4QlFPS2JGM3dRV1oxQzBST0s5Zzd1VDlSdDJNTVF0bmJoVk1NNkc3RUhHUGhPR2RuQ2phbzVHQQ?oc=5) |
 | Thom Tillis denounces GOP megabill’s Medicaid cuts in fiery speech - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPeGxGZG92a04yYWxlWTRaNFN1djdmdTE3enpnaHFlbThqQ3ZUSjFJTXJKVGNzZW1BVldtQW12ZkNNU1ZPR1BrR3hxSDYwN2NoU1pHQU0wR1M4U1VsYTJ1TnNRWG04dzdLM29tckhydFZpaE12eE1Vc3JKa2ZKSnhEU1J4Tldrc3FFVHY3OHZqeFExdHNYOUM2Yk1YQlVqWVU3?oc=5) |
-| Elon Musk Returns to Politics by Trolling Iran and Torching Trump’s Big Bill - Gizmodo | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOMWp4dHEyRGtKN3BHLU00Y0xwRFhlMjdZS0RIUFRTOVZUNVBTUUlkdHBHMF9KeER6QzhvVDAyNHppQk9Wc21DRTJwR3NDZklRRmJEZzdiNWlLOHVkRDZib3ZsSVkzVlJ6Q1dYUklOM0NEWUJrT3k5RFNQWnUtWFltX1V2LUR4d2VkQjRyb1B5Mjk2QzdRMWU4OWJFOVJURE1oT296RzNCUDV2Zw?oc=5) |
+| Exclusive ｜ Harvard Violated Students’ Civil Rights, Trump Administration Finds - WSJ | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOZlZpUWtxOGI5R3NZcXVwTE54SDRaYWNkWTUyOTdiVGwySUUyTHFVRm5aU0I5LTBuRXZCYmRwZXRuMlRsU05tOW9oVS1iVEU3Wk9SdFFYSlRHWHoxcGJJbm5ENUt6bk1BelRwYmJCNkpMY3paQkFTZ0c0dHNUOXlSYXVlTjFlTEJ4cXZOOTBITDJudzZjNlYtVXVZWndUcC1VSG1FcFYtODJ3OE5zNEF3ZDhn?oc=5) |
 | CIA chief told lawmakers Iran nuclear program set back years with strikes on metal conversion site - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOWnh0SEctTXk3TWNEYUZVblZqTnFSVTZKWldiZE9KcVE2YURpUzBoOERUZkRwNEszUmczZ0F5b2l2c0ZhQnpaSkFJNlFQbWpoQnRGUDk2bkJFbVAtZXpaRVJjMm4zOVhMaE0yRFBIUC1IR1VROU1NTE81SDVIS1VXeUtKTnZHRmxIZFk2NUdzZGVYSkxPS0Ftb2h3?oc=5) |
 | 2 teens shot near Stonewall Inn after NYC Pride march, police say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOOVpNMWtERWVTR3ZTazNMZlR0blZ1cEVic3dFR1RObTlaRE5HOU5rUXRIX0NOVy1WcVBibVlIZVNBcDBfZVgzVVhJVlJ0bzE1QmdJcllSQkxyMXl4TE5jNnFOZ3RjcWMySmVzV0dSWDgydURjV01sU1BURWFYcEM1U3hTaEx3QnpJSXlBNDdwbmFHN0c1LW5sY1RodTBOWVRvbFJ30gFWQVVfeXFMT3o1WlNNb3dGREVQVURndEN6WHd1dEM5Y1NMVWxyaGRyVDRpdW9pNkV2cGdHUU9HcHlxSENidWRqV1pDS0g0cllJanZvVzV6OTgzdFEwQUE?oc=5) |
 
