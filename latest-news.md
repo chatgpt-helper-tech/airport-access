@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月01日 03:39:54（北京时间）**
+🕒 更新时间：**2025年07月01日 03:52:36（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Suspect ID'd in killing of 2 Idaho firefighters who were ambushed by gunman at wildfire - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOMmxNaEU4Y01WMC1VR3dzVDlaVmdJQy1TUTFJM2FzeVlZbjdIQXN4U0tZYUxhTGJzdXJDXzNVSWlyT193SkRCeVJSVlpVV2lhQTlobEF3encxenlzOFFJblZSc1RRaGlNSmYwX0g2SjVPUkRiTEhLMVNnc1haWXRBMXNkeExsM2RIVXlMNXdLQzBLRWNoSGZGdnhvNnZrRndwZ01JeDdFdjllX2oy0gGyAUFVX3lxTE5iYVBQOFRRaGh1Ynd0UDNteF8tYzZ0bHB5Y213RFhNLVlFeUNVb05PVFRiazNyY3ppV2hzSl9iYnBXRjdRX2FQVmN0RVZfdEVVWWV5UV9EOEVQLXFYVTdRb1h3ZW5NWG1nRURsWlVIQzhLb0ZuSzFCQThaNFIyMFgwTzZKeERkcjVPa296bzVoQzQ3cExMWVdha25rMzc3VzFGMXU4LVRwZlR5ZmlKNWd5T2c?oc=5) |
 | Senate Republicans try to get Trump's tax cuts over the line, amid party divisions - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPN0IwYUdBd0p2bERMS25LZ3pSaHg3cjVEUnpFMlpHU09CNGpOelJoUFd5SnMyT3BWUEVsWnp0UHdaMFRUbXZWcnFnSTREU3VyQ1c4SnhCdlhGNjhtd0V4YVEySlNiMHJPVVFxa1RxeTZZNl96RGRWN1lieHk0NXpHRndZNnNSSnlIOEVER3lWTXpxNzJGbGV5N0ZJRVJtdlRvSF9HcFpYYW1VMnlOenJ0R1Mxc3lRaXRWU3dYODQ2MzZGSzNETDM0dDhEaEdrUQ?oc=5) |
+| Suspect ID'd in killing of 2 Idaho firefighters who were ambushed by gunman at wildfire - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOMmxNaEU4Y01WMC1VR3dzVDlaVmdJQy1TUTFJM2FzeVlZbjdIQXN4U0tZYUxhTGJzdXJDXzNVSWlyT193SkRCeVJSVlpVV2lhQTlobEF3encxenlzOFFJblZSc1RRaGlNSmYwX0g2SjVPUkRiTEhLMVNnc1haWXRBMXNkeExsM2RIVXlMNXdLQzBLRWNoSGZGdnhvNnZrRndwZ01JeDdFdjllX2oy0gGyAUFVX3lxTE5iYVBQOFRRaGh1Ynd0UDNteF8tYzZ0bHB5Y213RFhNLVlFeUNVb05PVFRiazNyY3ppV2hzSl9iYnBXRjdRX2FQVmN0RVZfdEVVWWV5UV9EOEVQLXFYVTdRb1h3ZW5NWG1nRURsWlVIQzhLb0ZuSzFCQThaNFIyMFgwTzZKeERkcjVPa296bzVoQzQ3cExMWVdha25rMzc3VzFGMXU4LVRwZlR5ZmlKNWd5T2c?oc=5) |
 | Federal investigation finds Harvard violated civil rights law - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOaVRpZ0VXN3VPeC0wNFJ4am1mNG93Nnl0bEd3X0phTWhxRmFEMURUQlZ6c3ppNkloTm04WE1xTlluRlppUjgwU0FWRS1YRHBXTlBCdzd2dUxyVC1XYWV6LWhiS3d0NExWSWNDcnUwc19wWUtKWVhDeEdCY1lxbGxGQTdoNWZVckpyMGlZTVFlZTJuX2tESEljV2ZLX3Q2Uzg4WHdR?oc=5) |
 | Israeli strike on Gaza seafront cafe kills at least 20 Palestinians, witnesses and rescuers say - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFA3bHFrYXpycXF5Y0MyUGZOWDlNa1k5eHl5cDEydW9KN0dZZ1dkYktSVHFWTjZLdTBnMTVaclZ4c3ZQVnNnTkMwRDZZOXBDRjMtdEEtaTlhdjl4UdIBX0FVX3lxTE1UT01nZWtkSXBOd3Nia0RqMTZVb05EUWZjWTBjWHZpaWd6bktueWk3ZkZwS1BlUGJaM09HU2lCRG1YWnBxYXVUbm5jUWVwNHFUZFFKRzAyYjM4dHNQYkhj?oc=5) |
 | Threat of More Tariffs Hangs Over Countries Negotiating Trade Deals - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOOEtMWWNiQmlIb3NaNmdXS3RCM0QxSTJ1ekc2WnlVbTc2MmU2NGpsWVVGUXp6c3owY0FDZjZ6YXJMam1yYkVyc09lWXNiNHpDNW1OcE1ud293SmhqWTNLN1p3cDZUMXVMU05HeFVoWUVSOU9mNkl2Qk1lSVMzb2x4bThIelV6b0RhQWc?oc=5) |
