@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月01日 05:53:52（北京时间）**
+🕒 更新时间：**2025年07月01日 06:00:13（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Harvard found in 'violent violation' of Civil Rights Act over antisemitism, Trump admin says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPT1pjSGJybEsyWG5MSmxhLWNfNTd2ZXN6VGN0MElhd1VlQnhrTDYwUTRpeEtKSlBLWkFJUW9WV3loQ1B4d0p3a092NGRlN2VXcXJQcHJNckJ6UDQ4MXlzV01peXRxRGRsVkpnNFROWFAwWUFJMk9hMllTU2hqOUtqZW9fMHpFSXA3dGQzMS14NkwwZjRfd2xuREdxcjU1WGZxSjdQNHNuekIxNDBfSEs3WEN2UC0zWGY3RXfSAVZBVV95cUxNVWlkTGFrUHFWX3FyTVdQQmRXT3BkcHZVU01aOE9JaWNSNUVfUXZVeXRfcXVnazdmRkxaT2hqdDBkMUMwNTViMzd2R1J0WVVQYkRKdHpQQQ?oc=5) |
 | DOJ announces a record-breaking takedown of health care fraud schemes - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNcUpjeXRUajh2d3RtMDNhTmhwMGZzNDR3X01QajRUM3RhWVVhQ2NOa2owQW5qSXh1VFIyT0diSEMyN3VFeUNJdjR1aktsZzVBM3F3UTVjQkUzaHJodk1TTndVTm5uN2pqeEFYeEhwUHZ0X0JCWHJndWNwTEVfV0hHRw?oc=5) |
 | Israeli strike on Gaza seafront cafe kills at least 20 Palestinians, witnesses and rescuers say - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFA3bHFrYXpycXF5Y0MyUGZOWDlNa1k5eHl5cDEydW9KN0dZZ1dkYktSVHFWTjZLdTBnMTVaclZ4c3ZQVnNnTkMwRDZZOXBDRjMtdEEtaTlhdjl4UdIBX0FVX3lxTE1UT01nZWtkSXBOd3Nia0RqMTZVb05EUWZjWTBjWHZpaWd6bktueWk3ZkZwS1BlUGJaM09HU2lCRG1YWnBxYXVUbm5jUWVwNHFUZFFKRzAyYjM4dHNQYkhj?oc=5) |
-| GOP fight over clean energy threatens to derail megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPX2hYS0NGVW1PZFF2dkRPNGtQMXJxYWR0T3JUaURhR1luNS1XYTUtNERYNFBvOHpjMklHaHpTUVE4QTlQTnBMZ3MzRjcxanY1WFpaeDBTUnVMNTlyOFA3V2M1MkpBQzFFRTZIQXZMaElCeXBRcmwzQkl1NjhHU3dFTkIzYnFYV3RMRHc3ZmVIVW16ZGluTWgxaEFxRWZyaDZXczVQczFYUFdzN3lr?oc=5) |
 | An 82-year-old woman who was injured in a firebomb attack in Boulder, Colorado, has died - AP News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPSVkxdkw5Q1RfSnZ6a1ZLcUtrSnRWbnlsUkhwQ1VnOGlidC03MURuc0U3M3BzUUM2QUh1Q0E5LVJYQUxMUkxjc1lXUzRyVDJhQllkaEhFcC11VmR6TnNLUDg1NFhuMGFhNGFvTS10Rko4RWE4enpqYzNOaFY2d28zNEJUekdROGM?oc=5) |
-| White House says Canada's Carney 'caved' to Trump on tech tax - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFB1YXRNb05Ob3l3RkJDM1pBUV9CUmItOVlDZy1UQXBUSkwzQVVSdTg0VUlzZXYwLTdLSkVvMkl1eXZaN01PREVmTmY3ZXVWRFhQZXg1UU5HRWI3QdIBX0FVX3lxTFBVcFJhYV9VUjdZclg2YzA3SHpHRDBlM2xMQzdRLWhwS1J4UnZQQkZpX3dUUUdvb1FqV3FJV1ZQUE9oNE5iZW9haFJMNjdXdmFHd3hKOU1EblhFMFQzblJV?oc=5) |
-| Glastonbury: Police launch criminal investigation into Bob Vylan and Kneecap sets - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE12cVpSR20xakdNV0J5RnQ3dm4xdjFMV0ZRV295UlI0cnlwZ2hGMkV6aE5Ra1R4MjhKUkJza1pwV0lRV0dBUkRWV2p1c3NoVUZ4Z0M1YVY0RjZoQdIBX0FVX3lxTE0tN1NJSTNPc0dNbFFoOWhkYmNDQktXR2JMc2ZwWjlKdDFTT3Q3SzVzNUhfMXBXUEhKTjlESXRuUVJyUFdWcjdBemx5MVo1dVU2RGRwZ2pQNG9XaThIR0tF?oc=5) |
+| GOP fight over clean energy threatens to derail megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPX2hYS0NGVW1PZFF2dkRPNGtQMXJxYWR0T3JUaURhR1luNS1XYTUtNERYNFBvOHpjMklHaHpTUVE4QTlQTnBMZ3MzRjcxanY1WFpaeDBTUnVMNTlyOFA3V2M1MkpBQzFFRTZIQXZMaElCeXBRcmwzQkl1NjhHU3dFTkIzYnFYV3RMRHc3ZmVIVW16ZGluTWgxaEFxRWZyaDZXczVQczFYUFdzN3lr?oc=5) |
+| Boozman rushes to block Grassley’s farm aid amendment - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOTV9CZ2ZVc0xld3pDWlhuRXpOT1V5STZFaFVja0NJXzY2UW9TOVl3WDRsWHcyS3pmbDFpM3kzMTV2dTA5dXpFeHNWdk04WHp4RDlSWHBIX05yZlJVLWpJaS1WYV9GZnJXNVhmQVlYc3o0SVZta0E0V0RtcU5BV1loQk9mbjQxSDVGd1ZNQ3ZQTGo1WW9RdG5sUXd3VUQzLVVqdk1KQ0JPREgtVkNYQjZsMjVxZTB0U0RxMnhn?oc=5) |
+| After Glastonbury, Bob Vylan faces U.K. criminal investigation and U.S. visa revocation - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPRHpUX2V2czc1SW1NTGVDemF5dGE3Yk5VSHQxaGdmU2Nud05HVzM4NVVlQ3N1MHhFdGxHLVFPblpfTUZ3Zy1rbE9QLXptS2lRZmtoei1QdnRRVGFYNFU1dWRvSF9sZnUxRkREdFBxU2tJMDVTN0V3X1ZPSWhjUERMOVBfQjA1ZmMtNnBrY3Zn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
