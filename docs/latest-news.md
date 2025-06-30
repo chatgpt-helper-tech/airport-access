@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月30日 17:00:52（北京时间）**
+🕒 更新时间：**2025年06月30日 17:13:39（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Senate Republicans seek to vote on Trump’s massive tax bill Monday - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPM2FMaHZTb0lmN2NKZmhkX1JWdVJWMWpSUVl4RW1RSUNDX25QbXJqT2tSeGVGNzFpMENRZkJuUEkzYUF1U21QN0pwcFVWRXczamFXNUpOaG1zVGxocVBIN1V2VGphekNaOUlyT1pvYnBLUGVaUk11WXNMOE9oLUVvLXdfbjI?oc=5) |
 | U.N. Inspector Says Iran Could Be Enriching Fuel Again in a ‘Matter of Months’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQdzhyQ2Yxa2JieHR5WGhoUGNRMWU0UC1jcktfampCZXNvdDBXUmZmcjVJeW1LS1RoaFJvNzcxS1Q0TF9BY2ctdnNPTWJiaUJybm5WR2N5TkFXVGc2QzdNaVBSU2xkNFg3dkFkWGlhS3ExRHlkS1ktaE5OeUJwNzhndnhjamJIUXhFSkRKbzVhOA?oc=5) |
 | Trump: Mamdani must "behave" if elected NYC mayor or face funding cuts - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBmNFBwa1cxZDVWel9LM1MweFdLT2poT2g4bFFOeVFTYTUwU2otZVB3RWtWV0ZXS1dzYU5TTnZ5WXB2NDlneEw2aTFWOVJNSzc1dmpmb0FBNHBXY2lTUy1nb3BMMk8telBqYkFWeXZFM1JzVEctdWc?oc=5) |
-| Debate over 'Alligator Alcatraz' detention center a personal one for members of Miccosukee and Seminole tribes - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPYTg4Uk9uMkN4RXNPVlR4SkhZSi1MMXpZUDkzR2VtZklvaW1HNF9WOVlua1FjSEhPZWRKaEw1SUZzSW9aem5zQ3owRkdJdmdYUzRvZUZiaWpqT05JTEVxY2kwaWlkcGJIR1FWc3FJXzUwdlpqdGo0aDRkWmhjQ3VtMmVyRkljOTI1aUZoanpxWEVtUzNuTGdB0gFWQVVfeXFMUGxQNWlvaGFsYTJLeURFVnVaQXZTLWJvcEhKOHQ5OHNqNU5BVEktUEZiT01QcE5WdHFlbXBaXzZoTUVkN2ZxcDM1blA1YkEzQ3UzUGhzblE?oc=5) |
+| 1 dead, 2 hurt in Philly fire and explosion that leveled or damaged multiple homes - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOSUl2UmFKbnFTc0w4Uk5lcDdiQXlfMVlDendiTFhJZEJhVEcwU2JfR1h6RkJJZ3JXSWZqbUVIeVJIN1JwQldzMktxV2VtLWJiUnVCNHA4WldWNVBSZktieU5uTHU5cnAyNFhGdmhKSkU2M20zOHdITlBUVTl5djlWVVd2akU1ZDdXOFVaWTlaX3BBQdIBlwFBVV95cUxPLUVCS3BMVDMzVWtVbXdNVlZSNWZpeTNaNk00ZWtPS0NiNjZKMTlJMjRiWW05Y2xGcmpjWnZxRm9iWDNtUFYxV0k5ZGNDSXBpalJZZ0Y2VWZvT0tKNFhRbzB0T3B2Yi1CcDZyODNqVjQxdlpiQkVEcXZZTjVzQ1ZzR0FtX3ZHcUN5aHpFTW4tVkgyZUJfQUtZ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
