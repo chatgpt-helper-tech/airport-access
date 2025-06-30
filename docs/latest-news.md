@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月30日 10:14:03（北京时间）**
+🕒 更新时间：**2025年06月30日 10:26:53（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Idaho shooting: two dead after firefighters ambushed by gunman while responding to fire - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5HY3NFMHZ2Ni1ic1lnVEpaR2kteGRsVTRIRjhHVmJldy1jeXdzRkw0WGVkaUZCRmZuUHJsTHJGT2cxU0NfTjJ2eUp0Y2JoMVBsUzN0NFhKTUdpVGFVSzJVS3NSNFBtRldvVVJIVG15Rmx4YWRFaVpHVDNIQ0JyZw?oc=5) |
 | Republicans struggle to pass Trump’s ‘big, beautiful bill’ as debate drags on - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1oRjhOZVE4alNHbU1XYnY5VVhZc3lFdmlZRWZralVmMDJSMVdlaGZsLTVQSzB2bi1GYVBKLWc1blI5ZGhiSmV5T2pLMXBDWjYya1VGeXFTTVB3U2tPblB2RXJRQm5kaEEwRTRZWlhTWWs?oc=5) |
-| Sen. Thom Tillis announces he’s not seeking reelection, a day after voting against Trump’s agenda bill - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1hdHpzZ1NRblE0cmNLVTlWdEdoQ1pFNF9LMGdQSFF5RndFZV84Z1dhUFYtWDJCVGhJNjNDM0cyYnhUXzJSWWUxUDV4eHB3WTVWdE84Q3VfSi1hbzVGODVuUVp2MTRZMWhUclduczBZUjI0SzRHWVdWeTZrOXN6YTjSAYQBQVVfeXFMTUQzck5LRFpveUNkdXNvMjRnWUxXckRSbHBsWGJqVno3RnNJZE1FN3ZZalBmREd2YVh5NWRrVkFDN01XUFUzckUyNGtQOWtSSVRtclpYekJ2NnZqeGNneWJEWXZZRnE1dWJBZ1ZCV2JTUVF5clNHTXBoekkyQWdxbGJQZlJZ?oc=5) |
+| North Carolina U.S. Sen. Thom Tillis won't run for reelection in 2026 - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5CVGMwWVF2U2dpeVRMSjJYc0V4a1hmd0hxZnBJWVVRU0hpYUFPZ3VJSVliSjNEc2g3eDFGTXlwcTRjcDhWbmkxWTY3Z25tM0h5ZHdVblc3T2VOVjI3XzRYV2hHQlBKeWtHaS1HVDFLbE10LVdaZ2VJN3pzSnFtUQ?oc=5) |
 | Elon Musk renews his criticism of Trump's big bill as Senate Republicans scramble to pass it - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQdUJuaVREbFg1bDlJR05zMjhzYjBJVmgtYWRRZW83dVl1Z1pVdm11STFqeEhzY0hiQXVEQzk4dzFraEFqaDJsbjlhdDVFcnpUUkg1NDJ3RVpTLXZhZzB6YmxaaDE5bXJuc3FJY3Z0OW9SazhIZXcxa1dSZXV3X3kwek5uYlN0a2REcWhKRkpXWmhvYUpKUWl1eHdaX1p3SVItLWfSAacBQVVfeXFMTjNNXzBFMm5ETmdGRjRrWTk3SURnWURBbVZwa19jcWZ5dVNNSlBrWUlPTlNNQUVwcmRlVWxSejBRcktnQXowWlp1QU5RVjdRWEhaSEhhckRZWk5kNW5wWTBHQUprQnp6cWRleXpBTXZON2RLQy10ME9vOU9wOWN0T29QTVN1QjdMT0JoeTRzZ1c4YmlsaHJRN1pjcEIyVXhwYTF2RjJrYjg?oc=5) |
 | Trump says he’s not planning to extend a pause on global tariffs beyond July 9 - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxORTFySDVpVlBydGQ5YlZlOVBwdDhaS2xpOFZJWEU5d185U2VIRWVQeGthUlY0MGtpWUp3V083aGhoak9IQjIzQWVzZlhQc2laa3BvRTZlRFpna2tFWV9sbVZpV3hkWDJlaVNORkIyeVUxcmY0V083YkhNZE1INmpKNlhiRldYS2toNW5hYzlPaTZtRHdQWDhJSGxFM09ub1ZjcHdFMkpSU3QwSlJtd3c?oc=5) |
 | Tropical Storm Barry strengthens as it heads toward landfall tonight - KHOU | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQU0Noa1Q1UE9oQ21XRzdsSFItLWFfMnEyZUVSenJrR0FRb2wxdW4xYWw3QXJwbHE1V1ozOXJOaWUzWVRFWHZWT0dCV1NjVUotUDZ0eXoxTVVKMXFFd0lNZnQ4anhHT1h4MlFvVHk4Wm5sZ1dhUU1wUjN6S0gwMXFJYmpFM25qc25vOEF2T3R6WVRBMFZFZXpFaFBhSy1vaWRaTUlRQ2w4ejJVc2Q4MXVDYUF0QQ?oc=5) |
