@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年06月30日 13:13:29（北京时间）**
+🕒 更新时间：**2025年06月30日 13:28:02（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Idaho shooting: US police end 'shelter in place' warning after two firefighters shot dead - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE16QXRrM21hX1FPakRRY1BDVVk2S21WS1g1Y3dod3QzWmFkOTVpVVVlTkdoeS14Q1ROX2pndW8wbnJpdmU3QTAwWHM4UTRpaGJlT2FfVg?oc=5) |
-| Trump Tax Bill Hits Senate With GOP Torn by Competing Demands - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNTHljM3lqSVNnbXBuT0J5NWhYNE81c0R6RG44Z1QxZUs1cFJlUXgtZS1DaUM4Rm53cjFGaHk0UkN0WXYwNlVXTWExMm0wZmNHcVRZTUVaY0NZU0htalEwZFVQeTZ6SWl6c05BUGp1b1E2NVhOcHo0czRjekVVVDNfX1Nmb3JFMFdJWVJLSTBnbGJDZzRVN0l3ZmdBTGpkelVRdlBNdmEtUG1uOXBQQTFvMnln?oc=5) |
-| North Carolina U.S. Sen. Thom Tillis won't run for reelection in 2026 - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5CVGMwWVF2U2dpeVRMSjJYc0V4a1hmd0hxZnBJWVVRU0hpYUFPZ3VJSVliSjNEc2g3eDFGTXlwcTRjcDhWbmkxWTY3Z25tM0h5ZHdVblc3T2VOVjI3XzRYV2hHQlBKeWtHaS1HVDFLbE10LVdaZ2VJN3pzSnFtUQ?oc=5) |
+| Trump Tax Bill Hits Senate With GOP Torn by Competing Demands - Bloomberg | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNTHljM3lqSVNnbXBuT0J5NWhYNE81c0R6RG44Z1QxZUs1cFJlUXgtZS1DaUM4Rm53cjFGaHk0UkN0WXYwNlVXTWExMm0wZmNHcVRZTUVaY0NZU0htalEwZFVQeTZ6SWl6c05BUGp1b1E2NVhOcHo0czRjekVVVDNfX1Nmb3JFMFdJWVJLSTBnbGJDZzRVN0l3ZmdBTGpkelVRdlBNdmEtUG1uOXBQQTFvMnln?oc=5) |
 | Canada to Scrap Tax That Led Trump to Suspend Trade Talks - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOZHJfUWJpdkFlY05MQzBlY2w2T3dvaTR4SnR4alNrVi1CZXVfa1VGdmcyalFBNlpRYl9GNnhIenN3ZzhuTGJkbWV0Rml6Y3A2a0RiS3lKWjVOSFF4czRmZHZ6R1hWYTNjSjBPYWVoc0ptV2VmbnM1M3NNWWJzVVp5MkRTS0NQUQ?oc=5) |
+| North Carolina U.S. Sen. Thom Tillis won't run for reelection in 2026 - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5CVGMwWVF2U2dpeVRMSjJYc0V4a1hmd0hxZnBJWVVRU0hpYUFPZ3VJSVliSjNEc2g3eDFGTXlwcTRjcDhWbmkxWTY3Z25tM0h5ZHdVblc3T2VOVjI3XzRYV2hHQlBKeWtHaS1HVDFLbE10LVdaZ2VJN3pzSnFtUQ?oc=5) |
 | Trump says he’s not planning to extend a pause on global tariffs beyond July 9 - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxORTFySDVpVlBydGQ5YlZlOVBwdDhaS2xpOFZJWEU5d185U2VIRWVQeGthUlY0MGtpWUp3V083aGhoak9IQjIzQWVzZlhQc2laa3BvRTZlRFpna2tFWV9sbVZpV3hkWDJlaVNORkIyeVUxcmY0V083YkhNZE1INmpKNlhiRldYS2toNW5hYzlPaTZtRHdQWDhJSGxFM09ub1ZjcHdFMkpSU3QwSlJtd3c?oc=5) |
 | Trump Threatens to Force Journalists to Reveal Sources Who Leaked Iran Intel Report - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQWVE5eDN0QTVlZTAyTkFwclpkU2xuNkJST2FaSXdjOGQxY1gwcThXT0JhR1JyRGh0Wmw3R3E1TGRGdmhwZlZkMENWR1B6empEOFNIYnpMQmxTNmxFM2N3a2ZOMExCNkZwNV9WRDJ1VDZUQ1lIeUIyaENzSnFsVGRZV09Ja2JoTVE1eTlOV2VaNF9yb2FTdWcxd0t1aGhXZWVsWms1MUxOQTdXRmNLWmVKcnRWRnU?oc=5) |
 | One dead and two injured after explosion damages Philadelphia homes - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOU0pic2hWSElhYl9DY3piRHBaNC1tVzUtOVFJeTJGX1BHaFdiZm5UWVJsaDBMb1hVWjhkWGdOa21SQmw1WkQyRVNOdk02NjR0MkpVUlF3VmVPaVVhS1dyYU1kdkctRGdWQjl4SlE5V1ZPbW5EWmVxRHoxQkIxSGFEbWdR?oc=5) |
