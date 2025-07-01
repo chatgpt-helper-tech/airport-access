@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月01日 20:01:27（北京时间）**
+🕒 更新时间：**2025年07月01日 20:14:37（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Bryan Kohberger, Suspect in Idaho Student Murders, Accepts Plea Deal - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOenlUdkVrTkR0WnpMUXNrTTJTYXVoTVQ1cGN1LUJZQU1GWnR6NHNsQjIyMTZUWGlHMjRQRHcwVktLVG55cVpYdmlMSlN2S1FLRFhONnFnLUQ0Snh4TjB3QTQ2VG5OdlliN1ZmX1JDQVkwWVNtZEg4XzlkNEJKX252NWEzWQ?oc=5) |
 | Newsom pushes major housing reform through California Legislature - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPUDBYaVpJYVlHUXowalo2UlNEbnMwWVJxSHBxVDh6X0dhLThrUWktR0VFUDdpeFVWcjBTS1B5NERnbWpJblFpRWRHeHZEdVZMbHNwUVhaRU5YdFFYWjB3ajdRWkhHVm5NTVRuN3lLZWtZbTBMb29WdHZiQWo0eTFyaUVNamMtTFZLTWUzWkFCT2dBenZDTEJZQnhBOTlqWW9ndUk5TjI2UWdHYkUwc0FlSkpEQ0xxUnY4?oc=5) |
 | Firefighters shot in Idaho ambush identified - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQeTRqLW85SDd3LXlXTTZvWHpIZXZ6RkR3aU5rd2FlTndzUzNJY0NncHF4Y3RJckFoalF3Ulc4eUNJeEFHdTQzQWl3c2FvMTVlRW4wLXk2WC04S1RWbmJRbVk4LUI2YVhjLVEwYUpMeTJtLVNqeE14THJtRGo3TEJxeC1EWUk?oc=5) |
-| Why a GOP senator says the budget bill breaks Trump's promise - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPZm5xUG9uRVVSZXFTZWhJcGpDQnFvR2dCVjVUMkI2UnVFakFmRExwWXl0YzdHcDVfWVI4b3R6ZjhSYTIxOGRSOHlaaVBsclpRSDRGM0lJdERnWjFIdThpMWlsSlQ5OXQ1M1pJcEV0UE1lSmlKdGJ4MllmNThFSFJ4RzRCbEY1ZTFQMldGMEN4bVg3Q3pyajV2Zg?oc=5) |
+| Poll: Most feel democracy is threatened and political violence is a major problem - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZHFYSVBERG5ZV01uN1lSeVhlZGJKdW5HVFZZRjZ3Y0hBbGk4aGtQTk1hbVMzUk9Yb1dRb3k1WmNVXy1aSmVfZTZFS0lzYTcyS3NNaldTZEtVZnlwZGNLUWNueGpteV81ZDJTU00wd3FVcWVDTGNWUnBOY1hGSnFfWVMtZw?oc=5) |
 | Capitol agenda: Lisa Murkowski slams the brakes on the GOP megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNSXFhcWtQNXVoSnNxcVUxSl9VTFAtMEVkQVNGakpqYl9BdHU3SVVETnJTRHVuVTFyVXE3cERsaGFWSUlJTk9oWXRTLTkxbXZGQ2ZsSUR0QXM4S1paMkdVWDNGZjFyYmJNUllkMGZfRTF1QlVWUTJGMkJPZ2VSYWJ4Mmx3WFVmX0pRcWdJNktnS2RkMW5vb3A1UzJoa0FpUzRtVENXckdqcw?oc=5) |
 | Bush and Obama fault Trump’s gutting of USAID on agency’s last day - CNN | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE5URFVLUkJwcGUyOU1WV1o3MjBPTUU1dTZITlhIT1IzcGJqa3cxMTdQa3M4NkZ4dnY3emhCbHZkcjFYLW13MnBqQmg5b2lLNXJXZVdpXzU0bzl4cFMzSmFaUF9LNllXTkZpWjU0dWdFQdIBdEFVX3lxTE1zOUg1eFJLWllEMWtHNWNueTBNSlB6OEFJcUdiZGQ5WXFPWWpfTmsyT2JocEdEeU1DVjlOMFh4T3phd2RmU2luSDM1YmYxZ1lpakFlem5mNFJ2MEgtNTI2NmFMWWZWaU9zbGtueTBlQmpybEY2?oc=5) |
 | Federal judge again delays Abrego Garcia’s release from Tennessee jail over deportation concerns - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxOWk51ZVlXVG9Gd2xNU0I2X1JrRGQyMXdPUDNnTkpQU015VTF3d0hGODJYYnVtNEI5UjBDSGpLQzVBbE5NRXMxb0IxaXhPMV9fWmZJMFhfSVA3TlZYOGl2N0hxM0FkTkdJQ000U3FTRlNndHg3eTN6SE5VQi1pWUZWcUluNnI0V0RPUjhkVW5UTjBBcmhkY1k2MXpmOHRVR0RtdVhtcG1QX2x5VlBjck1zalZHbzNTZGNsVXFmMVlvUWppcVQ3?oc=5) |
