@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月01日 09:53:23（北京时间）**
+🕒 更新时间：**2025年07月01日 10:01:05（北京时间）**
 
 ---
 
@@ -8,6 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Chris Mason: Labour still has a big persuasion job ahead | [阅读全文](https://www.bbc.com/news/articles/czjkkmdv33mo) |
+| Household energy bills fall but may not go much lower | [阅读全文](https://www.bbc.com/news/articles/c79q8g7q283o) |
+| Is RFK Jr's divisive plan to Make America Healthy Again fearmongering - or revolutionary? | [阅读全文](https://www.bbc.com/news/articles/ceq7jx3dlj9o) |
+| 'I had to investigate my own abuse case because the police failed me' | [阅读全文](https://www.bbc.com/news/articles/cj0mzmqvp6zo) |
+| Guilty plea expected over US student murders | [阅读全文](https://www.bbc.com/news/articles/c3r994xvj42o) |
+| Royal train to be cut in Palace cost-saving measure | [阅读全文](https://www.bbc.com/news/articles/ce377nr5r43o) |
+| Father and daughter plucked from sea after cruise ship drama | [阅读全文](https://www.bbc.com/news/articles/c6288v6j4y0o) |
+| Emma Raducanu beats British teenager Mimi Xu on first day of Wimbledon | [阅读全文](https://www.bbc.com/sport/tennis/articles/cq8zzyw99jdo) |
+| Heatwave peak sees parts of UK climb to 33C | [阅读全文](https://www.bbc.com/news/articles/c89epj8pd9zo) |
+| Police launch criminal investigation into Bob Vylan and Kneecap Glastonbury sets | [阅读全文](https://www.bbc.com/news/articles/cd0vvnl41mno) |
 
 ## 📰 Google News
 
@@ -19,7 +29,7 @@
 | Elon Musk just made his starkest political threat since the election - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1FeUxleXcySWhyZWowQVcyZlppU1NGQ3NFSG1INm8ySzEtdEE2VWpCNlpSRmFWU01PdGxOWlpFbHRJeVRiZDFicmhEeElwLXVkby0tQ1RCakhNLWNUWjJBUV9YeEM3REtJYm5QX2NLOThSY2t00gF6QVVfeXFMUFNObF9EdUtiY1FkOXVWZnJSYktSU0R0WUIxdXJvWml5RGtBRlNkNzBFNGpmU01lLXZjNHRhYzRjcThKNENjZTZYSHlDYkhOMW95YndfQlZiNW1Wbnd3dEJGeVJlZV9KNVBGRTJ2ZEFVTW1ZYUlibzZjclE?oc=5) |
 | Israeli strike on Gaza seafront cafe kills at least 20 Palestinians, witnesses and rescuers say - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFA3bHFrYXpycXF5Y0MyUGZOWDlNa1k5eHl5cDEydW9KN0dZZ1dkYktSVHFWTjZLdTBnMTVaclZ4c3ZQVnNnTkMwRDZZOXBDRjMtdEEtaTlhdjl4UdIBX0FVX3lxTE1UT01nZWtkSXBOd3Nia0RqMTZVb05EUWZjWTBjWHZpaWd6bktueWk3ZkZwS1BlUGJaM09HU2lCRG1YWnBxYXVUbm5jUWVwNHFUZFFKRzAyYjM4dHNQYkhj?oc=5) |
 | Inside Operation Gold Rush, largest health care fraud bust in U.S. history - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQZWZCVXc3aEtTX28zRXcwUlNSRHVQMndPRmV0Z3pxSGNQcTBGamhKWVdZYk1WT2FIVTVyM0RQVHhJX1E5VkNMVm5vc1h4am95aF9ndFM3U0htbnZJb1JORkZiSE80bGZaZDY5ZklHVXN6aHhRaUlJWm45UHNZdFludGZpQmd4NGwtTWVSVWFPYV9yRlhVcHhLSXJn?oc=5) |
-| By Ruling Against Nationwide Injunctions, SCOTUS Affirms the Imperial Presidency - Truthout | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNUUxzX3VlV0pIdEZxTzh3Q0R5c0hUb0w2R0RIOWlPUWpRZFdQTHF6Yjl5RFFOUU5pUG0wdDNlSXY0dDJGbUQ4T21IZ2d0VzVwem5jbHgwMXZYcmpmNGh6TGdadURqQWljT3dxbkJKckQ3SnU1TUg5SG8tcGFxLU13NHlrM3A4YTc5cDd1bDVOTFBxZmNfaGlGS3JreWYxZjZPblBlNUJuSV9NZ2lqQUtV?oc=5) |
+| How the Supreme Court’s Ruling on ‘Universal Injunctions’ May Affect Birthright Citizenship - FactCheck.org | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQSGhYQ2V6anEzYVdOekRsZmRta0hncnNWYS16RERzUUJUdjVSdDh3UUlhVUFxeVJWSkNQbFZNN3ZmOHF0cExtVkJrTTlkUkc5T3pEX1g5QjlGaDBrNV8tcVIzazl4M2RSUXh6WlctekdsUm5jWFptd2h0NGNhdUh3RElKWFVRTktVV0l3dG9uTmt5dzdpZ0xfMUg5aW9YUGlsQ3JMc05kQlNPa0dLT0xtSVJ1Sl9lZy1nd05GcjI5VW4?oc=5) |
 | Boulder woman, 82, dies from injuries sustained in firebombing attack on Pearl Street Mall - The Colorado Sun | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNNVJ4NnBvNzE3YUllXzd2U0hLYkNLbDdjUTI4dFc1SUl4RUg3Z3J2b3VzRnJFUUdIQnd3c2V5Ym5zaGt3YnJJNl9BSkxmeFRuYmFjWXh4THIxeTJMclBMU0FyRWxQOGhTMHBnYTlLdEYxTG1EdnZkSjZBR2FYZFIwbjRn?oc=5) |
 | Hundreds of laptops, bank accounts linked to North Korean fake IT workers scheme seized in major crackdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNLXNEQXFWcEhXX1hyTkJYUmFwWFJtTTVtMjhiZmV1ZG5DbFhBVWVsYkRyVWtOOUxXZk5ST3QxMERSZnRPSHNuTVN3QVJ4azdTV2VJMThSTzdzcVBPc1hJc2plOWJBNWZPeDFkLUFvalRmTHl0LUUyTUZhSE42MWc0MFQ2VmhvWUNxQjNwZmFEZlZGYjZRQUE?oc=5) |
 | Republican senators seek to change Senate bill clean energy tax, improve tax credits - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNZGd0UjY0QTFwbk1jQnJuYjRqTUxjeDY5ejhsTktZN0dQZFBuYUVrNHZ2M0p6NDVMLWhBdDhLckI1S1RmZjZWVXpXS0diTEFHMHBwRWRPM3hFanZ5UUxSd0JwZ3BPZlIxY001S3RFaV9SOEh4aGtqeXhSZzZyMVhfeHg2V2NTLWcybGJFcld6TG1EX2dIV2pXWEtUZ1g2cTBEU0ZhU2JxaW5VT3lQU3pFSXBaY3M2R3hoTDZDSnpJd0VyZ21nYkk0?oc=5) |
