@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月01日 22:39:50（北京时间）**
+🕒 更新时间：**2025年07月01日 22:52:52（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Senate remains stuck on Trump’s tax cuts bill after voting all night - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOS1BUR1ZYbUFqbjJhVnBEVE1EeVd6a0RrT0xSVlZVRTJjTlJXdWhVRFRpSmU4RWhBMnpkVHFxV195bUR5Uk9wVXU3Um92TWFfdVVnMGZwODRJTVhxVGl2RWh4ajMyTWsxZGxoZWkzQzB0YS1ZWFRDaTIwVnZwekM3S2dKSFBHNThr?oc=5) |
+| Marathon vote on Trump’s ‘big, beautiful bill’ continues as ‘vote-a-rama’ becomes longest in Senate history – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi6wFBVV95cUxOcW5NTmlNNHNWYnd6MVgwQnZWM21neF94NjNVa0k2MWxIalljOTJmdnVJMUl3cGZwNHhWcy15V2h3MlJ2LXMyYUNxUGJtTWN6bGhpZjA5aVo3VEU5aGp1aWhEaG9ITUp4RmhhZHFPTjM3MTQxREp4NEN6VVVjaGJxNHdmRmVPb0szTm1CRzhvVFJiRkZWM1p3NGtGalFudVFiQ2lUSmhfR3R6OHN4Rk1MNzNGSnJQYjlXdnN2elFjdjdOaTFSRUVCSi1XcHk2cXRBVkwycmE3S1ZIU1VHN25sdTlJMUlIV2l6UTJZ?oc=5) |
 | Tesla Stock Falls as Trump-Musk Feud Escalates. Where It Goes Next. - Barron's | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE4xZThHWEJuLXkza3ByRUpycDVmRlV1bkppNXA2MDhBWU9HUm1LMXNQSVV5WV9vSlFlc0dNd2Z3R0pBRVFWYjktUTJ4T05XclE0Y01zQ0Zjd0llZTRITnJNb1RuQ0VLajJwVGtuYXBQNk9wOXNlNEdsQnpn?oc=5) |
 | California Rolls Back Its Landmark Environmental Law - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQVjlGQXppemVRQTdpOEdDOTBkZHVGdVJaU3lUX0IxUVZ3azdqdGNlWHlCcGVDdGJRLVhuOTRsYi16UGFlcVYzNk13Y016OEFKc09JbExQMlJxdjNMZW14cnhqaWlhNHE1UmVPZFJlMUtnUjJKR0NRa1BNVDBMQ0FhcTd6aw?oc=5) |
-| Trump will visit a remote immigration detention site in the Florida Everglades - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPUk9jWWpUZTRqZVhfM1ZDbWdlZFNzbU1ueWt3eHUydDBNMDZhMmN1bVdyTU9sb2NOR2ZSeERkdm94enMzRmF0c1RLaG1meGNOOUJkTmZnTWFhaWRWeTBLZmtNRkRVTWkxZVVpLWI2Y0R1Q2w1bEdGWGhvV0JQRWJsa01BcThqdUdxNDdpU0JycWlXWnhqYm1HVHNxVUNaQmdJU0RrdEd6SmJndE5USEhUTQ?oc=5) |
-| Firefighters shot in Idaho ambush identified - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQeTRqLW85SDd3LXlXTTZvWHpIZXZ6RkR3aU5rd2FlTndzUzNJY0NncHF4Y3RJckFoalF3Ulc4eUNJeEFHdTQzQWl3c2FvMTVlRW4wLXk2WC04S1RWbmJRbVk4LUI2YVhjLVEwYUpMeTJtLVNqeE14THJtRGo3TEJxeC1EWUk?oc=5) |
 | Bryan Kohberger to plead guilty in 2022 murders of Idaho students - reports - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5hNEt4SFhyZ2RsVzRMRGRZZjdzRGExVXJfbld4OTlfN2d3YVhVZHJET2tnRU1UOUFSdDUzQk5mRmNBTE9Pa1lxWmJVNGFvcE83cndxTzhncEQzUdIBX0FVX3lxTFB6eGVOS3RoMkdvVmxUeGsyZFhfd0hWNDJnUDllMy1nYURHSy1XblplSUNWa0Jvb1dRQ2l1WU5IRklBZTRoT1FvX1FmMmJlYk5XZzZSMVMwcC1LdDI0NnAw?oc=5) |
+| Trump heads to "Alligator Alcatraz" to tout new Florida migrant lockup - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1oaFB4MWdXMm1nVHRtYjE0QnZEVlJLQ1JCSHpSRTYyMUxYOXRfRk42ZV9OR3p0QXNUNWxvN0pRcjNnODFoX2ZsM2JyejNLSGFUREl3YTZfOWpwQmlzTG1YdlExTjAxazNzNER0RWR2OFIxaDNscXcxWlF6d29nUHc?oc=5) |
+| Suspect in Idaho firefighter shooting identified as 20-year-old man - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQcFUtZ2RldDJIZEFIMWpkNlhjQWRKVjJNR3R3eG96Mkc3UWM3SGdnMV9KdnhTeEFRSFRPTTF1SGRwc1ZvZlVKejlWcTF0NmtueDQ4YlBLX3RiWTNiT2VMZ093R012d2pSRjFlMDFTVnNfdGplbV9EdTY2dkt1elpLTEYtcmNEMGtaMGNpNlUxTG5Pc0JxdFFhQkp6MA?oc=5) |
 | 82-year-old woman dies from injuries suffered in Boulder Molotov cocktail attack: Prosecutors - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPWF9PZTR6RElFeE1mbm96a2s2TVF4OGlHdTRPandZVTFBaGw5WndITDBrbndzVjVXTWxiMWU4RUI1NGM0OURCdVBZYmtkdmFNbm03ZTFiRTczY3F2b1ZSWFY4ejVNTmlSVGhOUTZBeWc0Y3lVcWFqVjdtYWRycmJlUWFDblJ6TFFQenRUaVJPdEJGejFrN3k1dlpFdlNkd9IBowFBVV95cUxObWFiZERxMzRSSE41UmFfUlhQR2hJMm5DSEw4OTNtMVRsMlNIZ2dlX1ZvZWQyOEVQckNyczNnU1UxclRtRUttdmZDSXZsRGJNQjhpaWFwRVdYVlhQRWhTbGNJQ2ZiNnZMMUZZeG9jWGQ4NjVyUXVCdEp5NHZBYk9xYU5wZmpFdHFTUVZsV21qa0hMWWN1R284bWNleFY4dnphR2VJ?oc=5) |
-| Capitol agenda: Lisa Murkowski slams the brakes on the GOP megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNSXFhcWtQNXVoSnNxcVUxSl9VTFAtMEVkQVNGakpqYl9BdHU3SVVETnJTRHVuVTFyVXE3cERsaGFWSUlJTk9oWXRTLTkxbXZGQ2ZsSUR0QXM4S1paMkdVWDNGZjFyYmJNUllkMGZfRTF1QlVWUTJGMkJPZ2VSYWJ4Mmx3WFVmX0pRcWdJNktnS2RkMW5vb3A1UzJoa0FpUzRtVENXckdqcw?oc=5) |
-| North Korean operatives and American accomplices accused in massive fraud that infiltrated the Fortune 500 and stole millions - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOOWVqLTNTclJMSlV1ZHdaaFFvckpzX21LVTBRa0YwM2tRU055dnVkbWdhYzF2djdxOUt4cXdiMXBFSEFYTnZmdUotU2hud0h2a2RCc2pfZ0pOWUhLRTFDOWQ5alF4T2FWcTk5blAzOURDQU9rdy1PVVlZNEZMcjFOYV9hV01uQmxaVUFfUktwQQ?oc=5) |
+| New Jersey’s Phil Murphy takes heat from all sides in final budget as governor - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPaHNmbWUtM0J2X3hDY1U1WmVSOU01WWVNMXZsM0RvLVptUVBVTDRBMVhXenBETnBMVGNMWUQ1N2ZYbHlHUUp3QXFUek1Oa19CM2dkV0VOYjNfOG9yNHk3cUV1cjdOcDNIRm1vVDNqRWtyX3NlMFJSaE5wa3pqQzhHNnVrdkhuRjA0QWpLY1ozb1R5ZW8?oc=5) |
 | Thailand: PM Paetongtarn Shinawatra suspended over leaked phone call - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9raloyamNncTh6NTN0RlBNdThScTZXcDNiTm8xdTk0c29XaGEtVnp0VjV0Tks1Yl93d1hUOHYyTmhWUFdYYnJvSjNvb01VckU0T24wU3BLcFNaQQ?oc=5) |
+| What to Know About the Heat Wave in Europe - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQUWFKYnh1bGpBNWx6R1M1MjJsZmFfaVlfdFJpWW1NUDFoR2d1TDVoNTdIZ2F1N2ZUNDJHVmVodTlPMFdZRU9oSlBvVmlpdG1rVWFlakhLal9ZbFRXbDQyZTF2UUxvM2psTENjMWtiaUFxNTJIQ0x5X1VXT0U0OHMwMGQ0bGt3SEdXR0E?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
