@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月01日 15:39:24（北京时间）**
+🕒 更新时间：**2025年07月01日 15:53:25（北京时间）**
 
 ---
 
@@ -10,9 +10,9 @@
 |--------|-------------|
 | Chris Mason: Labour still has a big persuasion job ahead | [阅读全文](https://www.bbc.com/news/articles/czjkkmdv33mo) |
 | Energy bills fall £11 a month but may not stay lower | [阅读全文](https://www.bbc.com/news/articles/c79q8g7q283o) |
+| Chief Rabbi calls 'vile Jew-hatred at Glastonbury' a 'national shame' | [阅读全文](https://www.bbc.com/news/articles/c70rrld1nlpo) |
 | Is RFK Jr's divisive plan to Make America Healthy Again fearmongering - or revolutionary? | [阅读全文](https://www.bbc.com/news/articles/ceq7jx3dlj9o) |
 | US-Israeli backed Gaza aid group must be shut down, say 130 charities | [阅读全文](https://www.bbc.com/news/articles/cn5kk1w00xyo) |
-| Did BBC's focus on one potential Glastonbury controversy miss another? | [阅读全文](https://www.bbc.com/news/articles/cgjgg25v0q9o) |
 | Royal train to be cut in Palace cost-saving measure | [阅读全文](https://www.bbc.com/news/articles/ce377nr5r43o) |
 | Boulter and Kartal win on record-breaking day for British players | [阅读全文](https://www.bbc.com/sport/tennis/articles/c0rvvn5y8kqo) |
 | Hot weather continues in parts of England but temperatures cool elsewhere | [阅读全文](https://www.bbc.com/news/articles/c79qqx1r5yyo) |
