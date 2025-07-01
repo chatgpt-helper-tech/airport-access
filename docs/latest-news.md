@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月01日 15:53:25（北京时间）**
+🕒 更新时间：**2025年07月01日 16:01:48（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | Is RFK Jr's divisive plan to Make America Healthy Again fearmongering - or revolutionary? | [阅读全文](https://www.bbc.com/news/articles/ceq7jx3dlj9o) |
 | US-Israeli backed Gaza aid group must be shut down, say 130 charities | [阅读全文](https://www.bbc.com/news/articles/cn5kk1w00xyo) |
 | Royal train to be cut in Palace cost-saving measure | [阅读全文](https://www.bbc.com/news/articles/ce377nr5r43o) |
+| Father jumps off Disney cruise ship to save daughter who fell overboard | [阅读全文](https://www.bbc.com/news/articles/c6288v6j4y0o) |
 | Boulter and Kartal win on record-breaking day for British players | [阅读全文](https://www.bbc.com/sport/tennis/articles/c0rvvn5y8kqo) |
 | Hot weather continues in parts of England but temperatures cool elsewhere | [阅读全文](https://www.bbc.com/news/articles/c79qqx1r5yyo) |
 | Thai prime minister suspended over leaked phone call | [阅读全文](https://www.bbc.com/news/articles/c9vrrj72xy7o) |
-| Father jumps off Disney cruise ship to save daughter who fell overboard | [阅读全文](https://www.bbc.com/news/articles/c6288v6j4y0o) |
 
 ## 📰 Google News
 
