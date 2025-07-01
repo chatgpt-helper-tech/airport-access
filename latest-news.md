@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月01日 20:14:37（北京时间）**
+🕒 更新时间：**2025年07月01日 20:27:46（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Senate works overnight as marathon voting session stretches on for Trump’s ‘big, beautiful bill’ - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5ycHdjczdMSEN2YjBpTVd4MFE0b3FkcXhrZ0REN3hHRGVIWm5pamtXLXotcEZCcjlhOW9PdzdiMFdQS2xuUTFBOGM5V0Y3cWtWZjZaVE1HNmVUSjFmOTRGbEQ4ajRxcWdpcEZuTjRJY3Y5aTg4ajBra1N3YW9PZ9IBgwFBVV95cUxPU3B1RlJ2b0lTdURaSThYdDFEVGpxRWpJOHZaLUJYRFVYem14UTZDSHEtb3laTFcyQmhnemRGb1plNXM4cHpTZjlpRFNuU1dXV2ZiY0NDejViWldrTU9NbFY0RDJDQ28xY3B3MG1yRnVnWmhmSHhEMm0wSnplSnVFZmRvVQ?oc=5) |
-| Trump suggests DOGE look at subsidies for Musk's companies to save money - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxOSUcxMmZpbGtjSFVfQnMxd1FrSDFEMW91cGpwaGFlNGNyV1VhcHRHVkk0MUI0d0lqUUNSYlpWQUdiVERNN2hMZkJwclhfb0xfV2Q0TWdsS0w3NGZ5U1BhM09zWXRGZFhWYV9hMmRBclU1Mk1BRU5vTlFPRFlYSkh0WmFySlNhWXFrcUhMOExrUnZ5V0IzbHJsRUdNT2tLSkh6ckFKM0VIM2g1aTJ5d3ZlMjR1MGVZc2dFcW5QQnZHNm4yUlZrMnU1Wm9UY2V3a09Zd0h2ZA?oc=5) |
+| Trump Takes Aim at Musk Over EV Subsidies; Tesla Shares Slump - Bloomberg | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNVjk3Q1BZMHRaaWJZcUN4eVlPZEdWQ0xNUWI5WXNZc2JGUUxza2hUNFVYWnVIRTc4NzQ1OGdNOEVBX0JUVnZ5NmpybWhvOGhvMXo1UVkyWVNtT3hSOFhIRXRtYWlsU0Z5V0ktYVNuZzhFMW1uQksyZTlfY2RRTmFkVXV4d1g4aDlkMkd4ZV9GZnF1c01yQzF4cWdSbEkyUmNvc1ZuMmVxSQ?oc=5) |
 | Bryan Kohberger, Suspect in Idaho Student Murders, Accepts Plea Deal - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOenlUdkVrTkR0WnpMUXNrTTJTYXVoTVQ1cGN1LUJZQU1GWnR6NHNsQjIyMTZUWGlHMjRQRHcwVktLVG55cVpYdmlMSlN2S1FLRFhONnFnLUQ0Snh4TjB3QTQ2VG5OdlliN1ZmX1JDQVkwWVNtZEg4XzlkNEJKX252NWEzWQ?oc=5) |
 | Newsom pushes major housing reform through California Legislature - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPUDBYaVpJYVlHUXowalo2UlNEbnMwWVJxSHBxVDh6X0dhLThrUWktR0VFUDdpeFVWcjBTS1B5NERnbWpJblFpRWRHeHZEdVZMbHNwUVhaRU5YdFFYWjB3ajdRWkhHVm5NTVRuN3lLZWtZbTBMb29WdHZiQWo0eTFyaUVNamMtTFZLTWUzWkFCT2dBenZDTEJZQnhBOTlqWW9ndUk5TjI2UWdHYkUwc0FlSkpEQ0xxUnY4?oc=5) |
 | Firefighters shot in Idaho ambush identified - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQeTRqLW85SDd3LXlXTTZvWHpIZXZ6RkR3aU5rd2FlTndzUzNJY0NncHF4Y3RJckFoalF3Ulc4eUNJeEFHdTQzQWl3c2FvMTVlRW4wLXk2WC04S1RWbmJRbVk4LUI2YVhjLVEwYUpMeTJtLVNqeE14THJtRGo3TEJxeC1EWUk?oc=5) |
