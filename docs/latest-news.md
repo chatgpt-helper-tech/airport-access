@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月01日 11:14:07（北京时间）**
+🕒 更新时间：**2025年07月01日 11:27:49（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | California Rolls Back Its Landmark Environmental Law - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQVjlGQXppemVRQTdpOEdDOTBkZHVGdVJaU3lUX0IxUVZ3azdqdGNlWHlCcGVDdGJRLVhuOTRsYi16UGFlcVYzNk13Y016OEFKc09JbExQMlJxdjNMZW14cnhqaWlhNHE1UmVPZFJlMUtnUjJKR0NRa1BNVDBMQ0FhcTd6aw?oc=5) |
 | Israeli strike on Gaza seafront cafe kills at least 20 Palestinians, witnesses and rescuers say - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFA3bHFrYXpycXF5Y0MyUGZOWDlNa1k5eHl5cDEydW9KN0dZZ1dkYktSVHFWTjZLdTBnMTVaclZ4c3ZQVnNnTkMwRDZZOXBDRjMtdEEtaTlhdjl4UdIBX0FVX3lxTE1UT01nZWtkSXBOd3Nia0RqMTZVb05EUWZjWTBjWHZpaWd6bktueWk3ZkZwS1BlUGJaM09HU2lCRG1YWnBxYXVUbm5jUWVwNHFUZFFKRzAyYjM4dHNQYkhj?oc=5) |
 | A megabill mystery: New solar and wind tax comes as a surprise to Republican senators - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQRWl0MXNEbEgtcTRoSDlrOVVXQ1RfSE1SYy1Nd2NqMjFvTzBLZUNqYWo3UFlmc2trT2JnOG1iNlo1anNuUXNDRmlCcVR4M254SU1pMGxBeFhBTDJ2UUZQbmk5UTFmSDdQeC12Nk94QkFpeWwzZFBtbTF4UjZKTVpxemt0XzQ2NHpzTnVJZFB3SjE5eVRnNWFPeDVvaG93SGE2cDRfWXhUQ21URnpTQU43LWMxTFhUWjI30gFWQVVfeXFMUEMwaU9vaHAxYnJDbEF3NTJ2MEhEVTJ1VlhSMjVNMTA4NWJDS0UyU1dxTlZJTVFJM3d6Q19MZzRwRWZLeW4wZWR4UWJDMXNiMVAxNlB2c0E?oc=5) |
+| How the Supreme Court’s Ruling on ‘Universal Injunctions’ May Affect Birthright Citizenship - FactCheck.org | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQSGhYQ2V6anEzYVdOekRsZmRta0hncnNWYS16RERzUUJUdjVSdDh3UUlhVUFxeVJWSkNQbFZNN3ZmOHF0cExtVkJrTTlkUkc5T3pEX1g5QjlGaDBrNV8tcVIzazl4M2RSUXh6WlctekdsUm5jWFptd2h0NGNhdUh3RElKWFVRTktVV0l3dG9uTmt5dzdpZ0xfMUg5aW9YUGlsQ3JMc05kQlNPa0dLT0xtSVJ1Sl9lZy1nd05GcjI5VW4?oc=5) |
+| Victim of Boulder Firebombing Attack Dies of Wounds - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1PdElKQWczcmtJOHhUT2Q0TXpsSXBkR19SNEllTF9ac2FHdU9WS2dLb1R6bWN5ZnpxVWlXakF6Zl9nRi1kNEVibTJrLXJETzR0akRCUzFMaDc3SC1FQlhXVFdlWmR0bERWWVNuTDl6QVI4ZzNSWTAzb21n?oc=5) |
 | Judge again delays Abrego Garcia’s release from Tennessee jail over deportation concerns - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQblFhYVNOd1dCb1FDVjQ4ZnI3WjhSY2lKdkdmLWRDdV90aGhPUEtwNDQxNFZiY2pZaDh3NVRvUzJHNmpkaFMxLTlDRXdVazBFOTJ6QmZYblRoSGZCMjl1QzYwTHdXaFdKWHF0d29ZY2EwUldzVDh6a043SmJBZzRGd2d5WEttTW5jME1PYlFfbVV0V2VHU1hmNklDYlEzWERoNDR3Vkln?oc=5) |
-| Scoop: Roy Cooper leans toward N.C. Senate bid, potential Trump showdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPZ2c2ak1OOF9tM3JpZXFVYXU3dGpyV0QtREp1UTU2cmNWOWpsX0hkNW5UbkpLTGFEcWM1SndrT2hESTRvLS1veXlqVmdLdFhFUV9sTWEwencyZzg1WjNTZ3M2ZHdYOV93M2hyd0tsTTlldUlrMFZGOUhBSTY2d0w0LUFB?oc=5) |
-| Inside Operation Gold Rush, largest health care fraud bust in U.S. history - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQZWZCVXc3aEtTX28zRXcwUlNSRHVQMndPRmV0Z3pxSGNQcTBGamhKWVdZYk1WT2FIVTVyM0RQVHhJX1E5VkNMVm5vc1h4am95aF9ndFM3U0htbnZJb1JORkZiSE80bGZaZDY5ZklHVXN6aHhRaUlJWm45UHNZdFludGZpQmd4NGwtTWVSVWFPYV9yRlhVcHhLSXJn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
