@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月01日 07:53:50（北京时间）**
+🕒 更新时间：**2025年07月01日 08:00:22（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | "PORKY PIG PARTY": Musk blasts Trump's bill and calls for new political party - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQd21ha2RwLUItdE8wbkkwRmNLZ1A2a25Ba3NTVXFRYzM4SzJNTWgwUUJJNHNjOWd4VFpmVlhIZ3RtblF2QmtlLWZCN0R2V2p2YnY4Mk5WdXhGRnlPRldkWV9ZVzNtSEFTT3N5OXRILVQ5WkpGbnQzWXNQZHJUeWFWbTRNWktKOXlzdnc?oc=5) |
 | DOJ announces a record-breaking takedown of health care fraud schemes - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNcUpjeXRUajh2d3RtMDNhTmhwMGZzNDR3X01QajRUM3RhWVVhQ2NOa2owQW5qSXh1VFIyT0diSEMyN3VFeUNJdjR1aktsZzVBM3F3UTVjQkUzaHJodk1TTndVTm5uN2pqeEFYeEhwUHZ0X0JCWHJndWNwTEVfV0hHRw?oc=5) |
 | Israeli strike on cafe near Gaza City port kills dozens, hospital official says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQMm95LURNNTFZalI4cVp2dENWbEFnYmZyeHF1SlRQclNIbHRLRXB0NEZUNWZaWFo4aDkwNFp5eXZ5c0trVUJtZW4tYXowWXE1cHJkVFdCZ1YxX1hZcU5HQnNmbHF0aVNUUVY3LUxhNkFXbGZ6WkY5RUE5d0VyVU5lcjUwQ09tSE1WZGfSAY8BQVVfeXFMTWVELVJwc0MtYmpjRFQ4VmR0QUdVZmpLWUhBUTUxMTJ3TVp0aVNCdTkxV3ZxSUd2c3dWZDVJVnRCY2tEWlFMZHpHYjlRTWdyRC1CcGtNaXdtSmRSdDlRdDlPR3oweVdqVDNjcnZYLV9sVmhGbC1NSm1aY2NiTVlCbERkeW9RdHpmTGgtaUxIZWs?oc=5) |
-| An 82-year-old woman who was injured in a firebomb attack in Boulder, Colorado, has died - AP News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPSVkxdkw5Q1RfSnZ6a1ZLcUtrSnRWbnlsUkhwQ1VnOGlidC03MURuc0U3M3BzUUM2QUh1Q0E5LVJYQUxMUkxjc1lXUzRyVDJhQllkaEhFcC11VmR6TnNLUDg1NFhuMGFhNGFvTS10Rko4RWE4enpqYzNOaFY2d28zNEJUekdROGM?oc=5) |
-| GOP fight over clean energy threatens to derail megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPX2hYS0NGVW1PZFF2dkRPNGtQMXJxYWR0T3JUaURhR1luNS1XYTUtNERYNFBvOHpjMklHaHpTUVE4QTlQTnBMZ3MzRjcxanY1WFpaeDBTUnVMNTlyOFA3V2M1MkpBQzFFRTZIQXZMaElCeXBRcmwzQkl1NjhHU3dFTkIzYnFYV3RMRHc3ZmVIVW16ZGluTWgxaEFxRWZyaDZXczVQczFYUFdzN3lr?oc=5) |
-| Mitch McConnell Laments ‘Big Setback’ As GOP Senator Thom Tillis Bows Out of Midterms - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPa05tYzFOaTFfQnpJWXg3MHR2THU2dW1RdmF6Q0dyZlU5TTBIY1dwVnVvRTZNWk1XejB4dV9kdTIxMEM1ZDZIUWd4V2xiMVJPMkF1YlgwVE40OTdxbFJYNktnY0VvWk9XVWVvUXc3N09pbkJZd25xZExBRGxWdEtKRk5nNWtLYVpyV0xadnRpT0ozcFJ4VHo1U0UwODY3TzhpM0lpV1RoYkw3ckNHclFaNVc2WGE?oc=5) |
-| Federal investigation finds Harvard violated civil rights law - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOaVRpZ0VXN3VPeC0wNFJ4am1mNG93Nnl0bEd3X0phTWhxRmFEMURUQlZ6c3ppNkloTm04WE1xTlluRlppUjgwU0FWRS1YRHBXTlBCdzd2dUxyVC1XYWV6LWhiS3d0NExWSWNDcnUwc19wWUtKWVhDeEdCY1lxbGxGQTdoNWZVckpyMGlZTVFlZTJuX2tESEljV2ZLX3Q2Uzg4WHdR?oc=5) |
+| A Georgia town that solidly backed Trump could fall victim to his tax bill’s green energy cuts - AP News | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxPUTZ1TW1rSWRKeWt1VDhQUS0yRzdSUjVBSnBZV3B1c3BiNkpHTzZfbzZoOHlpelVVaEU3UlJrd3RvbUNWVkFlczRvZkI3UDBfdmxuSWVHVjMyWTBNQ1F4R0RieXYtMFJvYk1GVGRUM1lYb1FNYmRIcDItVkxjNWNDN1FueTZXWHpqU3hWR3B4QW05SG1aZGFaSm1NWnR6clZoejNDMl9ERVoyX2hOb0p3eFNKc2M4MnBkT1NmVw?oc=5) |
+| Karen Diamond, burned in Boulder Pearl Street attack, dies - Boulder Daily Camera | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOVHR1MGZrOFFkMmVZQ1RBNHdkWlVZWTAwTlRPbWlFZzZqWXBRem1HWGM1amNQNFU2dm1FeEtZZm9QT3VzN2h5YjV6ZDZ4S2hjcnpLbzJsYkQxLU9aQUNUakNFY28yNDFaS0hrWGxPOEozNExTenVHeHVWcDlwWXdXZzBodTc2ekRUdnZob25kMFVwd3V5c3Riaw?oc=5) |
+| Trump administration sues Mayor Karen Bass, L.A. City Council over sanctuary policy - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQeER5V1JfX1Q1TFptb0NXeDJsSllIOXFnSW9NRThEQkFnTk5ZWk0tZnRRcUhNQXh4Y0x2S3I4bVpXTGJIVHRUVzNaLVZRVUdCS29QUGxPcy01SDVsRV80UnN1YXFvNUhucTc0TlR2VTl5UTNIYWZDTHRDajBTVHRHN2VDazN0ZEFzYmthY0lTdk0zT1A0?oc=5) |
+| Harvard inches closer to losing more federal money after civil rights accusation - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQMXpLdUQzajR3R2s4LXI5YU1UWFp4UW9XSDVDaE1vdHFQUGJ5UGZjYnlDakR3Ny1mUXVUVm9iQzVPWmQ0UXlWYkExVHpYSksybXVSNVJTQUVuOS1ldnJZV1drWm94dzY1M2Y1RFF5d2t3cXU2RTFZUlBvTkdNVXRMRVBGUFJ5NFA1T2ppbERtSmZ1Slp5akM4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。

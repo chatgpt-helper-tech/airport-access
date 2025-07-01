@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月01日 07:53:50（北京时间）**
+🕒 更新时间：**2025年07月01日 08:00:21（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Israeli strike on cafe near Gaza City port kills dozens, hospital official says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQMm95LURNNTFZalI4cVp2dENWbEFnYmZyeHF1SlRQclNIbHRLRXB0NEZUNWZaWFo4aDkwNFp5eXZ5c0trVUJtZW4tYXowWXE1cHJkVFdCZ1YxX1hZcU5HQnNmbHF0aVNUUVY3LUxhNkFXbGZ6WkY5RUE5d0VyVU5lcjUwQ09tSE1WZGfSAY8BQVVfeXFMTWVELVJwc0MtYmpjRFQ4VmR0QUdVZmpLWUhBUTUxMTJ3TVp0aVNCdTkxV3ZxSUd2c3dWZDVJVnRCY2tEWlFMZHpHYjlRTWdyRC1CcGtNaXdtSmRSdDlRdDlPR3oweVdqVDNjcnZYLV9sVmhGbC1NSm1aY2NiTVlCbERkeW9RdHpmTGgtaUxIZWs?oc=5) |
 | An 82-year-old woman who was injured in a firebomb attack in Boulder, Colorado, has died - AP News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPSVkxdkw5Q1RfSnZ6a1ZLcUtrSnRWbnlsUkhwQ1VnOGlidC03MURuc0U3M3BzUUM2QUh1Q0E5LVJYQUxMUkxjc1lXUzRyVDJhQllkaEhFcC11VmR6TnNLUDg1NFhuMGFhNGFvTS10Rko4RWE4enpqYzNOaFY2d28zNEJUekdROGM?oc=5) |
 | GOP fight over clean energy threatens to derail megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPX2hYS0NGVW1PZFF2dkRPNGtQMXJxYWR0T3JUaURhR1luNS1XYTUtNERYNFBvOHpjMklHaHpTUVE4QTlQTnBMZ3MzRjcxanY1WFpaeDBTUnVMNTlyOFA3V2M1MkpBQzFFRTZIQXZMaElCeXBRcmwzQkl1NjhHU3dFTkIzYnFYV3RMRHc3ZmVIVW16ZGluTWgxaEFxRWZyaDZXczVQczFYUFdzN3lr?oc=5) |
+| Trump administration sues Mayor Karen Bass, L.A. City Council over sanctuary policy - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQeER5V1JfX1Q1TFptb0NXeDJsSllIOXFnSW9NRThEQkFnTk5ZWk0tZnRRcUhNQXh4Y0x2S3I4bVpXTGJIVHRUVzNaLVZRVUdCS29QUGxPcy01SDVsRV80UnN1YXFvNUhucTc0TlR2VTl5UTNIYWZDTHRDajBTVHRHN2VDazN0ZEFzYmthY0lTdk0zT1A0?oc=5) |
 | Mitch McConnell Laments ‘Big Setback’ As GOP Senator Thom Tillis Bows Out of Midterms - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPa05tYzFOaTFfQnpJWXg3MHR2THU2dW1RdmF6Q0dyZlU5TTBIY1dwVnVvRTZNWk1XejB4dV9kdTIxMEM1ZDZIUWd4V2xiMVJPMkF1YlgwVE40OTdxbFJYNktnY0VvWk9XVWVvUXc3N09pbkJZd25xZExBRGxWdEtKRk5nNWtLYVpyV0xadnRpT0ozcFJ4VHo1U0UwODY3TzhpM0lpV1RoYkw3ckNHclFaNVc2WGE?oc=5) |
-| Federal investigation finds Harvard violated civil rights law - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOaVRpZ0VXN3VPeC0wNFJ4am1mNG93Nnl0bEd3X0phTWhxRmFEMURUQlZ6c3ppNkloTm04WE1xTlluRlppUjgwU0FWRS1YRHBXTlBCdzd2dUxyVC1XYWV6LWhiS3d0NExWSWNDcnUwc19wWUtKWVhDeEdCY1lxbGxGQTdoNWZVckpyMGlZTVFlZTJuX2tESEljV2ZLX3Q2Uzg4WHdR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
