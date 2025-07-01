@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月01日 14:14:33（北京时间）**
+🕒 更新时间：**2025年07月01日 14:26:13（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Senate GOP closes in on passing Trump’s tax bill, but holdouts remain - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE84U1VobC1KS0Z2TmZkWHY5RS11QkpnLXBlc1hKZHpGNkZtczl0bkxUMUpreE40OVFGWFA2cnp0aWhnYlR3bHY4LWJMUlV1NVRzRzRxNGM2MFdXYXhTTjkxNUNhT0xJWXQ3ZzZNcXJtaUE2QmFUT0RqSEwzWUttQQ?oc=5) |
-| Bryan Kohberger agrees to plead guilty to all counts in Idaho college murders case: Letter from prosecutors - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNV3VDWUtndHotelNEaXRmcnZ0UGM3dDNFclF2eVJrdTQyVXVZR0NYNHdEMlR3MXVUY0tJeVhZLVBwWVpydlMxUnhCbHNwT2l0Y0doYnliTGdsUUNZazVtZjFlMTVqY1hKS0QySUF3aXQyWWhXdnZ3b2xpZFZzNXZadGFldGJKXzFXNGR2WlE4WXdrUXBpSWVZbFlpUEJySGhRdHVqSg?oc=5) |
-| California Rolls Back Its Landmark Environmental Law - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQVjlGQXppemVRQTdpOEdDOTBkZHVGdVJaU3lUX0IxUVZ3azdqdGNlWHlCcGVDdGJRLVhuOTRsYi16UGFlcVYzNk13Y016OEFKc09JbExQMlJxdjNMZW14cnhqaWlhNHE1UmVPZFJlMUtnUjJKR0NRa1BNVDBMQ0FhcTd6aw?oc=5) |
-| Suspect identified in the fatal ambush of 2 firefighters in Idaho - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNcGZ0dXRFOVF6U2M3UWxyNjBlUXlLWW91YnJ6SHlrT0pnc1ZzT0psSE5lNXlmdkhfajBjRF9ZQ2FsZzFLQ3VlTmxxM28xMDFVdEw5MHdSdjNrYngyd3ROelFlNHRHNkFvTWVfaXR1bmFpSFNQenNVRjJ4SVU2Wml5WjZFS2RqWlFxa29KRmNpVmRSY1U?oc=5) |
+| On Trump’s tax bill, GOP tries new accounting trick as national debt mounts - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQV3J6RnAxeHIxaWswU3F5NmZDOVR4NnJxbXVKTEk3RXJzTXdKQzFpRElhWTFPU19UQ2ZSWV9jXzVSTWZJbUxlS3dENUdkQTlTakZaRUN2eE5QOF9WN1RacEM1cklvM0tzREVVQWtrMDd2TVNsek90bHVwZURYMG0tc2tqZjZaYTMwXzY1bzZISGxoblE?oc=5) |
+| Bryan Kohberger, Suspect in Idaho Student Murders, Accepts Plea Deal - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOenlUdkVrTkR0WnpMUXNrTTJTYXVoTVQ1cGN1LUJZQU1GWnR6NHNsQjIyMTZUWGlHMjRQRHcwVktLVG55cVpYdmlMSlN2S1FLRFhONnFnLUQ0Snh4TjB3QTQ2VG5OdlliN1ZmX1JDQVkwWVNtZEg4XzlkNEJKX252NWEzWQ?oc=5) |
 | Elon Musk just made his starkest political threat since the election - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1FeUxleXcySWhyZWowQVcyZlppU1NGQ3NFSG1INm8ySzEtdEE2VWpCNlpSRmFWU01PdGxOWlpFbHRJeVRiZDFicmhEeElwLXVkby0tQ1RCakhNLWNUWjJBUV9YeEM3REtJYm5QX2NLOThSY2t00gF6QVVfeXFMUFNObF9EdUtiY1FkOXVWZnJSYktSU0R0WUIxdXJvWml5RGtBRlNkNzBFNGpmU01lLXZjNHRhYzRjcThKNENjZTZYSHlDYkhOMW95YndfQlZiNW1Wbnd3dEJGeVJlZV9KNVBGRTJ2ZEFVTW1ZYUlibzZjclE?oc=5) |
+| Suspect identified in the fatal ambush of 2 firefighters in Idaho - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNcGZ0dXRFOVF6U2M3UWxyNjBlUXlLWW91YnJ6SHlrT0pnc1ZzT0psSE5lNXlmdkhfajBjRF9ZQ2FsZzFLQ3VlTmxxM28xMDFVdEw5MHdSdjNrYngyd3ROelFlNHRHNkFvTWVfaXR1bmFpSFNQenNVRjJ4SVU2Wml5WjZFS2RqWlFxa29KRmNpVmRSY1U?oc=5) |
+| California is about to roll back a landmark environmental law - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNUXVQWmVheEI1ajRzdjFrWERMQzNBNncwM2ZqUDdUU2EwejFFem5SRmt0X2ZEaXg2LWlUYWlrYkNDbHpVc1prYm5FTWUyVXFTNTNTaFZldnplZ0RtU3VsYkFQa0F3ZmJfeDgtdTNBUFlieDA2R2JuMXd3UWVMZ0Vja2hObTAyQWNrMzlidmFGbFJUc19UaW5oNC00N2o?oc=5) |
 | Israeli strike on Gaza seafront cafe kills at least 20 Palestinians, witnesses and rescuers say - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFA3bHFrYXpycXF5Y0MyUGZOWDlNa1k5eHl5cDEydW9KN0dZZ1dkYktSVHFWTjZLdTBnMTVaclZ4c3ZQVnNnTkMwRDZZOXBDRjMtdEEtaTlhdjl4UdIBX0FVX3lxTE1UT01nZWtkSXBOd3Nia0RqMTZVb05EUWZjWTBjWHZpaWd6bktueWk3ZkZwS1BlUGJaM09HU2lCRG1YWnBxYXVUbm5jUWVwNHFUZFFKRzAyYjM4dHNQYkhj?oc=5) |
 | Judge again delays Abrego Garcia’s release from Tennessee jail over deportation concerns - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQblFhYVNOd1dCb1FDVjQ4ZnI3WjhSY2lKdkdmLWRDdV90aGhPUEtwNDQxNFZiY2pZaDh3NVRvUzJHNmpkaFMxLTlDRXdVazBFOTJ6QmZYblRoSGZCMjl1QzYwTHdXaFdKWHF0d29ZY2EwUldzVDh6a043SmJBZzRGd2d5WEttTW5jME1PYlFfbVV0V2VHU1hmNklDYlEzWERoNDR3Vkln?oc=5) |
 | Boulder woman, 82, dies from injuries sustained in firebombing attack on Pearl Street Mall - The Colorado Sun | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNNVJ4NnBvNzE3YUllXzd2U0hLYkNLbDdjUTI4dFc1SUl4RUg3Z3J2b3VzRnJFUUdIQnd3c2V5Ym5zaGt3YnJJNl9BSkxmeFRuYmFjWXh4THIxeTJMclBMU0FyRWxQOGhTMHBnYTlLdEYxTG1EdnZkSjZBR2FYZFIwbjRn?oc=5) |
-| Blackburn says AI deal with Cruz is off - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPY2J3Zzlkck1uU1k3bl9va2FwZFFETGRoMFFQY2I2bWxDTl9TTGRmaHpaSV9XOEl5UTgtM1RENXBFa3ByUm1sZW1uZUJzM3pqU3ltYlZScG8zWm1wWXU2Ri1TYWtDWVU0N2NDaUZKOXQ0T0JKeGYyblJhczZpNjFwemktaWk4YWPSAYwBQVVfeXFMUGYtazN4WWhPTDRzUl9WeDF1NWd4VjZwT0I0UVJOUmI5RnRocGFxQ3hFVDhCV0VpMW5DWGcxc0lVdkRndVF1Y3BuZFNCM3F0MFNwdWdyWm5HakM4UWlQUGM4T0M4MXF3UXdmUmNpU1JVSDEwdTAyR1RYV0M4NHlUVDVsRWczRE9xV3BFQ24?oc=5) |
 | Scoop: Roy Cooper leans toward N.C. Senate bid, potential Trump showdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPZ2c2ak1OOF9tM3JpZXFVYXU3dGpyV0QtREp1UTU2cmNWOWpsX0hkNW5UbkpLTGFEcWM1SndrT2hESTRvLS1veXlqVmdLdFhFUV9sTWEwencyZzg1WjNTZ3M2ZHdYOV93M2hyd0tsTTlldUlrMFZGOUhBSTY2d0w0LUFB?oc=5) |
+| Inside Operation Gold Rush, largest health care fraud bust in U.S. history - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQZWZCVXc3aEtTX28zRXcwUlNSRHVQMndPRmV0Z3pxSGNQcTBGamhKWVdZYk1WT2FIVTVyM0RQVHhJX1E5VkNMVm5vc1h4am95aF9ndFM3U0htbnZJb1JORkZiSE80bGZaZDY5ZklHVXN6aHhRaUlJWm45UHNZdFludGZpQmd4NGwtTWVSVWFPYV9yRlhVcHhLSXJn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
