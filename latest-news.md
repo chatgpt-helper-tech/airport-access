@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月02日 07:39:45（北京时间）**
+🕒 更新时间：**2025年07月02日 07:52:20（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Senate passes Trump’s tax bill, sending it to House for final passage - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOb2MwREoybExNbkRuYTU1aU5LcE5HdlM2UzVmS2MydE05OF9ReDllaGxEaXFiaGtVNWV6amQtT25CMlRveW1nV1JQcklWYVJaQ1piVE9yd3ZtZnBQTWlOQ19qRTk2OUduWk5JcXNvWXkySGs0Zk0wQkJFU1JYbW1rZnRwcmhnTXVVXzg1a2t0c19ndw?oc=5) |
-| Trump celebrates harsh conditions for detainees on visit to ‘Alligator Alcatraz’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPSnROY2ljeTlBQ1pIRC1XcHo1aFhlOEJuYUZPVGFmTEJvbTFHMEhFc1dsVE5GYUdQYk0tbkFMaFh5NlF6THJldnVBeWhjNXFQdHRRMnhtQUEyYmpUZGgwcldQWFc3ZWUtNEdUbzJVZ2FXMi1STXRxTnhlMjJ4V1E3Y05oNzA0TlM0eWljM3lqRXAzc1UxTEMw?oc=5) |
+| What the Senate Republican tax-and-spending bill means for your money - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE54QXJWZEd3SnIwakE0eDBkTFNnempGNXhMX0VocktWSlZMbGotSXYzeFotaENuX0VfN2U4ckwxZHlFeXZVZm9kMjRxN2F5WFl0UXhFVXludUlZUXFxUDc1eUFHV0lVSEx0U0taUVkzVXloMGY4Wnc1eE5RUkXSAYIBQVVfeXFMT1VhRUZaS2dXSllrakN2aXBuOWc5X0dhS2JDS2N0Y1BoUmU5V3hxRWZrcG9ZM01zalYxLWg0Wl9UYUJSajhCUjRZc1IwWGxYSDc3dFdNUkE5dlpoeUJ2amNpMXNyclpuellmaS1ua2l1c21QYVNoUUhDazZhT2tuclprUQ?oc=5) |
 | Trump threatens to deport Elon Musk as feud with tech titan reignites: ‘We’ll have to take a look’ - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNMHlKNFdhLThiWWVFSTRvaTVMaGxLZnRiWXhkQnhHLWJiWWlyOVpyOW92cGpCUHU2NzJhd2cyeDRMMG9FMkZXaXFHMWFTM0VibTF3VWtGVk1YbVZyZU9ZR3NWYWFzUzBRU21RTHFRRTVja0R3QkZkSFZpWU9tczVsM1UxVUdnRHNLTGtsY2VyelV1UjRKTTdQNHhtRUZ5cHpNamVTWkxfc041R3BxdG9PNUsyREljZE90RllZOHFyQ0U4X2RpRVlUTkxwQkJsUQ?oc=5) |
-| Ranked-choice ballot count gives Zohran Mamdani even bigger win in NYC mayoral primary - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQcTRfbTRSNU9HWVhjQVRYaTFCNUtGYVEzbDJkTjdncFhfY3VhQmFEdlkzMGRxVEFYT3BGR1ctRVJMVjdja1UwQWhkay1laE1peHliajN5N1VwdEthaHBxWnoyVlJzYzI3cnJpZ3djcFY2TGRqYTk0UERydklCSV9mLUlmdHEwclhCMEJqTlZWc0tTMlFMUENWMjE4U3V1YjJTdExsQXp3M2FURTNYeU10MA?oc=5) |
-| Senate prepares to take final megabill votes - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQOGg3N0RtTVBka3o1X3JpZjM0RU1ZdzFJeEVxV1hiOVI5SUc1bHdzLW4wNTNIckwxRTB4VWZwMmJ6ZmxLNjFMd2NsVTV6QVNnWEdqV1FTa3N2LU1Kb0FIZTA4RHlNam1UNkdHa2RTS2pCSnFRY3YtNXV6Sm9sa3BwZFRMODFyeFZRcTBoZWhUYTVyb3FBbXc?oc=5) |
+| Zohran Mamdani clinches Democratic nomination for NYC mayor - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPTzlUcEkyWVFfY1I2TklhdHRreTUxSjZUR1Y1VDlzaDNWMFFMZzlJZl94OV80V21SRktBNER1YjdydFpDNnY1Uklra3lRVDV6ZGNsTTlpRnQ4bjZRemE0enZLVU5YRURSQkxEVnJKUTRjQXZmcjVuVTJmTjJHTW56M1M3NFB4aGNrd3NpRkdueDdCYk1qME5ndzFzZW1qUzBOWmc?oc=5) |
+| Republicans now own America’s broken health care system - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOaU5zU3FYR2k1VjZrQ3JReVdDTzV5SWNmSy04TGFLdm15NUZRVFcxbFNBNXp0Tm4zZ2Q4Z3dGRk83ZDdWSUxtc2ZqWElycWZFdk9vTS1EZFRpWDRLNG9oSHVSRkpoXzV3YUxNbWJYQzRjZ3V2OGFUR3NyUWd5azV5cDJUYw?oc=5) |
 | Senate Clears the Way for State AI Regulation. Meta, Amazon, and Alphabet Stock Fall. - Barron's | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNMmZXeDJvbXh1LTI5WWh4ZnJ6MDk2dzAteDcwcDdLTDNzRFBOeFRTMzVrRW8yYVdibkRJbGlWRlNlTXN6bU5VdTdVb3BBRjZyUlNhM3p0N1lwMVJKRG95SlZ0RFltRkJxSGtjV0YyYnZnR3VxaGVkaUE4dDk3VEl0Yzg1M1c4bHp0N0c4T0FBTUtWSExf?oc=5) |
 | Idaho victim's dad slams Kohberger plea deal: 'I can't pretend like I feel like this is justice' - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNbTU0NUpiQjA1TDJBbnZhcS1NTVphSE1Jd0daMEdDU1h3dkZEVnRONDI3eTdmVFF6cU9BbEdUdHdYak5RbmFqOGQzZEZXdlA1SWE2N21PNEhJS2p0aVRKMHZYdnpZRGtSblhOZmpfMmxJOEpWQ09lWEhSSml1Z2RILTY5cUdIMVJWd09ndmJaM1FhQnZMUVBXSUVzbVM?oc=5) |
 | 'Long overdue': Newsom makes sweeping changes to landmark environmental law to make space for housing - SFGATE | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQLV8tNDUyNjROTHQ2ekdxbi1VQUZEbGVEQXlMRHllYlRRcDQ4UXVZVDFkY3NRanplcjJxTzRKMVJJYTFzZ1ZIZ25KdXNodFVHZ3p2S0p1RWZ6ODBJRWt1dW0xSGVQdmN0bVZsUDRTNnpMUkVBOE1Td3l1N0xwZjJYMzdlblVJV3ppM0gxM19IN0JDNHdzcFo5c3FucVk?oc=5) |
-| Televangelist Jimmy Swaggart dies at 90 - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQbnVveUVFdmliRlU0T0NfSk05T040TWsyWEZSUFBSODFoc0U4ZWF2eG45N3VoOTdyOE9BX2dsWkNIQi1HXzhqNXYxZWs2RVo1QmY3bU9vMFFCQXJ1V0gzLVFQcWk3aU9fRGhqaGdCLWtrNWN6UE9mbGJUM1BaQnU0V3AwdGgtTGJXVE5EONIBVkFVX3lxTE53QkVTVVNRZUluWWZmSkYtTEVBOWJKZV9LV3ZmaDNVb0F6d0Z2QWFwNmN0WmNtVnZPSmZFajNRaEJJSE5wQlBDeS14ZmJrNE9rSGdDVjBB?oc=5) |
-| Trump administration plans to keep FBI headquarters in DC - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOVTNHbG15U3IzRC1oYmpUcEphYmhib2pYUVNleFBfbjZROFZHZndOd1JiWXloaER6Q0JZY29OUnZ2LUtoaThmRDhyRHpyS0hqOVVBV01UOE13U1VDM0FXZDVvVElsaFlRR2hSVEdkQ18ydkpGa1AyR2ZueGVMOGlsT1haVkVSaGFzYk11bzNMcw?oc=5) |
+| Senate prepares to take final megabill votes - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQOGg3N0RtTVBka3o1X3JpZjM0RU1ZdzFJeEVxV1hiOVI5SUc1bHdzLW4wNTNIckwxRTB4VWZwMmJ6ZmxLNjFMd2NsVTV6QVNnWEdqV1FTa3N2LU1Kb0FIZTA4RHlNam1UNkdHa2RTS2pCSnFRY3YtNXV6Sm9sa3BwZFRMODFyeFZRcTBoZWhUYTVyb3FBbXc?oc=5) |
+| Trump administration targets building that housed USAID for FBI - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQbUZmcXVXNkNwbXBmeTdhdmFEZzJ3MzNKWTYtMlplcThNN2Z3YlE2cURmdmZNdXI3RXBycEEzalVjbTM4M2tTV2E0bk41UWFoNWI1MHRaVDRQbFhMeUU4VjBTT2dFbGV5R0ZKUGZvYXU1eDNJMEVCRmNxVl9hd0ROTHBFSQ?oc=5) |
+| Trump celebrates harsh conditions for detainees on visit to ‘Alligator Alcatraz’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPSnROY2ljeTlBQ1pIRC1XcHo1aFhlOEJuYUZPVGFmTEJvbTFHMEhFc1dsVE5GYUdQYk0tbkFMaFh5NlF6THJldnVBeWhjNXFQdHRRMnhtQUEyYmpUZGgwcldQWFc3ZWUtNEdUbzJVZ2FXMi1STXRxTnhlMjJ4V1E3Y05oNzA0TlM0eWljM3lqRXAzc1UxTEMw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
