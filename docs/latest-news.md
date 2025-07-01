@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月01日 22:52:52（北京时间）**
+🕒 更新时间：**2025年07月01日 23:00:55（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Bryan Kohberger to plead guilty in 2022 murders of Idaho students - reports - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5hNEt4SFhyZ2RsVzRMRGRZZjdzRGExVXJfbld4OTlfN2d3YVhVZHJET2tnRU1UOUFSdDUzQk5mRmNBTE9Pa1lxWmJVNGFvcE83cndxTzhncEQzUdIBX0FVX3lxTFB6eGVOS3RoMkdvVmxUeGsyZFhfd0hWNDJnUDllMy1nYURHSy1XblplSUNWa0Jvb1dRQ2l1WU5IRklBZTRoT1FvX1FmMmJlYk5XZzZSMVMwcC1LdDI0NnAw?oc=5) |
 | Trump heads to "Alligator Alcatraz" to tout new Florida migrant lockup - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1oaFB4MWdXMm1nVHRtYjE0QnZEVlJLQ1JCSHpSRTYyMUxYOXRfRk42ZV9OR3p0QXNUNWxvN0pRcjNnODFoX2ZsM2JyejNLSGFUREl3YTZfOWpwQmlzTG1YdlExTjAxazNzNER0RWR2OFIxaDNscXcxWlF6d29nUHc?oc=5) |
 | Suspect in Idaho firefighter shooting identified as 20-year-old man - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQcFUtZ2RldDJIZEFIMWpkNlhjQWRKVjJNR3R3eG96Mkc3UWM3SGdnMV9KdnhTeEFRSFRPTTF1SGRwc1ZvZlVKejlWcTF0NmtueDQ4YlBLX3RiWTNiT2VMZ093R012d2pSRjFlMDFTVnNfdGplbV9EdTY2dkt1elpLTEYtcmNEMGtaMGNpNlUxTG5Pc0JxdFFhQkp6MA?oc=5) |
-| 82-year-old woman dies from injuries suffered in Boulder Molotov cocktail attack: Prosecutors - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPWF9PZTR6RElFeE1mbm96a2s2TVF4OGlHdTRPandZVTFBaGw5WndITDBrbndzVjVXTWxiMWU4RUI1NGM0OURCdVBZYmtkdmFNbm03ZTFiRTczY3F2b1ZSWFY4ejVNTmlSVGhOUTZBeWc0Y3lVcWFqVjdtYWRycmJlUWFDblJ6TFFQenRUaVJPdEJGejFrN3k1dlpFdlNkd9IBowFBVV95cUxObWFiZERxMzRSSE41UmFfUlhQR2hJMm5DSEw4OTNtMVRsMlNIZ2dlX1ZvZWQyOEVQckNyczNnU1UxclRtRUttdmZDSXZsRGJNQjhpaWFwRVdYVlhQRWhTbGNJQ2ZiNnZMMUZZeG9jWGQ4NjVyUXVCdEp5NHZBYk9xYU5wZmpFdHFTUVZsV21qa0hMWWN1R284bWNleFY4dnphR2VJ?oc=5) |
 | New Jersey’s Phil Murphy takes heat from all sides in final budget as governor - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPaHNmbWUtM0J2X3hDY1U1WmVSOU01WWVNMXZsM0RvLVptUVBVTDRBMVhXenBETnBMVGNMWUQ1N2ZYbHlHUUp3QXFUek1Oa19CM2dkV0VOYjNfOG9yNHk3cUV1cjdOcDNIRm1vVDNqRWtyX3NlMFJSaE5wa3pqQzhHNnVrdkhuRjA0QWpLY1ozb1R5ZW8?oc=5) |
+| 82-year-old woman dies from injuries suffered in Boulder Molotov cocktail attack: Prosecutors - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPWF9PZTR6RElFeE1mbm96a2s2TVF4OGlHdTRPandZVTFBaGw5WndITDBrbndzVjVXTWxiMWU4RUI1NGM0OURCdVBZYmtkdmFNbm03ZTFiRTczY3F2b1ZSWFY4ejVNTmlSVGhOUTZBeWc0Y3lVcWFqVjdtYWRycmJlUWFDblJ6TFFQenRUaVJPdEJGejFrN3k1dlpFdlNkd9IBowFBVV95cUxObWFiZERxMzRSSE41UmFfUlhQR2hJMm5DSEw4OTNtMVRsMlNIZ2dlX1ZvZWQyOEVQckNyczNnU1UxclRtRUttdmZDSXZsRGJNQjhpaWFwRVdYVlhQRWhTbGNJQ2ZiNnZMMUZZeG9jWGQ4NjVyUXVCdEp5NHZBYk9xYU5wZmpFdHFTUVZsV21qa0hMWWN1R284bWNleFY4dnphR2VJ?oc=5) |
 | Thailand: PM Paetongtarn Shinawatra suspended over leaked phone call - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9raloyamNncTh6NTN0RlBNdThScTZXcDNiTm8xdTk0c29XaGEtVnp0VjV0Tks1Yl93d1hUOHYyTmhWUFdYYnJvSjNvb01VckU0T24wU3BLcFNaQQ?oc=5) |
 | What to Know About the Heat Wave in Europe - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQUWFKYnh1bGpBNWx6R1M1MjJsZmFfaVlfdFJpWW1NUDFoR2d1TDVoNTdIZ2F1N2ZUNDJHVmVodTlPMFdZRU9oSlBvVmlpdG1rVWFlakhLal9ZbFRXbDQyZTF2UUxvM2psTENjMWtiaUFxNTJIQ0x5X1VXT0U0OHMwMGQ0bGt3SEdXR0E?oc=5) |
 
