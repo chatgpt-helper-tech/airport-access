@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月01日 19:26:37（北京时间）**
+🕒 更新时间：**2025年07月01日 19:39:28（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Boulder woman, 82, dies from injuries sustained in firebombing attack on Pearl Street Mall - The Colorado Sun | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNNVJ4NnBvNzE3YUllXzd2U0hLYkNLbDdjUTI4dFc1SUl4RUg3Z3J2b3VzRnJFUUdIQnd3c2V5Ym5zaGt3YnJJNl9BSkxmeFRuYmFjWXh4THIxeTJMclBMU0FyRWxQOGhTMHBnYTlLdEYxTG1EdnZkSjZBR2FYZFIwbjRn?oc=5) |
 | Capitol agenda: Lisa Murkowski slams the brakes on the GOP megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNSXFhcWtQNXVoSnNxcVUxSl9VTFAtMEVkQVNGakpqYl9BdHU3SVVETnJTRHVuVTFyVXE3cERsaGFWSUlJTk9oWXRTLTkxbXZGQ2ZsSUR0QXM4S1paMkdVWDNGZjFyYmJNUllkMGZfRTF1QlVWUTJGMkJPZ2VSYWJ4Mmx3WFVmX0pRcWdJNktnS2RkMW5vb3A1UzJoa0FpUzRtVENXckdqcw?oc=5) |
 | Federal judge again delays Abrego Garcia’s release from Tennessee jail over deportation concerns - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxOWk51ZVlXVG9Gd2xNU0I2X1JrRGQyMXdPUDNnTkpQU015VTF3d0hGODJYYnVtNEI5UjBDSGpLQzVBbE5NRXMxb0IxaXhPMV9fWmZJMFhfSVA3TlZYOGl2N0hxM0FkTkdJQ000U3FTRlNndHg3eTN6SE5VQi1pWUZWcUluNnI0V0RPUjhkVW5UTjBBcmhkY1k2MXpmOHRVR0RtdVhtcG1QX2x5VlBjck1zalZHbzNTZGNsVXFmMVlvUWppcVQ3?oc=5) |
+| Trump will visit a remote immigration detention site in the Florida Everglades - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPUk9jWWpUZTRqZVhfM1ZDbWdlZFNzbU1ueWt3eHUydDBNMDZhMmN1bVdyTU9sb2NOR2ZSeERkdm94enMzRmF0c1RLaG1meGNOOUJkTmZnTWFhaWRWeTBLZmtNRkRVTWkxZVVpLWI2Y0R1Q2w1bEdGWGhvV0JQRWJsa01BcThqdUdxNDdpU0JycWlXWnhqYm1HVHNxVUNaQmdJU0RrdEd6SmJndE5USEhUTQ?oc=5) |
 | Why a GOP senator says the budget bill breaks Trump's promise - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPZm5xUG9uRVVSZXFTZWhJcGpDQnFvR2dCVjVUMkI2UnVFakFmRExwWXl0YzdHcDVfWVI4b3R6ZjhSYTIxOGRSOHlaaVBsclpRSDRGM0lJdERnWjFIdThpMWlsSlQ5OXQ1M1pJcEV0UE1lSmlKdGJ4MllmNThFSFJ4RzRCbEY1ZTFQMldGMEN4bVg3Q3pyajV2Zg?oc=5) |
-| Blow for Thailand's government as court suspends PM from duty - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQVXViWTdwSUN1bFlwWkNqNEt2N2RXVnpCRFhNaXpYNUtEa1NBaElBMXVNMlhRc1Fwak5PMXVaX0FPbVpiUHRIN2FyVFhyNUxaVkhXSTdmNWhxTkdmVElGdGpIWVo4cURlVlVFZ2dTTllrSGVZQkkzY0FkZzZMYUZCaXkySHBZSmZENnJWcjEtdzRzRDVpU2JyTHU3TkRzWDdRSU1mVkx5TUpVVGxUVzIwY0lSMTJuSmhk?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
