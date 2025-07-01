@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月01日 14:52:55（北京时间）**
+🕒 更新时间：**2025年07月01日 15:00:10（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | Did BBC's focus on one potential Glastonbury controversy miss another? | [阅读全文](https://www.bbc.com/news/articles/cgjgg25v0q9o) |
 | Royal train to be cut in Palace cost-saving measure | [阅读全文](https://www.bbc.com/news/articles/ce377nr5r43o) |
 | Boulter and Kartal win on record-breaking day for British players | [阅读全文](https://www.bbc.com/sport/tennis/articles/c0rvvn5y8kqo) |
-| Guilty plea expected over 2022 murders of four Idaho students | [阅读全文](https://www.bbc.com/news/articles/c3r994xvj42o) |
+| Thai prime minister suspended over leaked phone call | [阅读全文](https://www.bbc.com/news/articles/c9vrrj72xy7o) |
 | Father and daughter plucked from sea after cruise ship drama | [阅读全文](https://www.bbc.com/news/articles/c6288v6j4y0o) |
 | US Senate holds marathon vote on Trump's 'big beautiful bill' | [阅读全文](https://www.bbc.com/news/articles/czjkkdyplymo) |
 
@@ -24,10 +24,10 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Senate GOP closes in on passing Trump’s tax bill, but holdouts remain - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE84U1VobC1KS0Z2TmZkWHY5RS11QkpnLXBlc1hKZHpGNkZtczl0bkxUMUpreE40OVFGWFA2cnp0aWhnYlR3bHY4LWJMUlV1NVRzRzRxNGM2MFdXYXhTTjkxNUNhT0xJWXQ3ZzZNcXJtaUE2QmFUT0RqSEwzWUttQQ?oc=5) |
-| Bryan Kohberger, Suspect in Idaho Student Murders, Accepts Plea Deal - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOenlUdkVrTkR0WnpMUXNrTTJTYXVoTVQ1cGN1LUJZQU1GWnR6NHNsQjIyMTZUWGlHMjRQRHcwVktLVG55cVpYdmlMSlN2S1FLRFhONnFnLUQ0Snh4TjB3QTQ2VG5OdlliN1ZmX1JDQVkwWVNtZEg4XzlkNEJKX252NWEzWQ?oc=5) |
 | Elon Musk just made his starkest political threat since the election - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1FeUxleXcySWhyZWowQVcyZlppU1NGQ3NFSG1INm8ySzEtdEE2VWpCNlpSRmFWU01PdGxOWlpFbHRJeVRiZDFicmhEeElwLXVkby0tQ1RCakhNLWNUWjJBUV9YeEM3REtJYm5QX2NLOThSY2t00gF6QVVfeXFMUFNObF9EdUtiY1FkOXVWZnJSYktSU0R0WUIxdXJvWml5RGtBRlNkNzBFNGpmU01lLXZjNHRhYzRjcThKNENjZTZYSHlDYkhOMW95YndfQlZiNW1Wbnd3dEJGeVJlZV9KNVBGRTJ2ZEFVTW1ZYUlibzZjclE?oc=5) |
-| California is about to roll back a landmark environmental law - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNUXVQWmVheEI1ajRzdjFrWERMQzNBNncwM2ZqUDdUU2EwejFFem5SRmt0X2ZEaXg2LWlUYWlrYkNDbHpVc1prYm5FTWUyVXFTNTNTaFZldnplZ0RtU3VsYkFQa0F3ZmJfeDgtdTNBUFlieDA2R2JuMXd3UWVMZ0Vja2hObTAyQWNrMzlidmFGbFJUc19UaW5oNC00N2o?oc=5) |
+| Bryan Kohberger agrees to plead guilty to all counts in Idaho college murders case: Letter from prosecutors - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNV3VDWUtndHotelNEaXRmcnZ0UGM3dDNFclF2eVJrdTQyVXVZR0NYNHdEMlR3MXVUY0tJeVhZLVBwWVpydlMxUnhCbHNwT2l0Y0doYnliTGdsUUNZazVtZjFlMTVqY1hKS0QySUF3aXQyWWhXdnZ3b2xpZFZzNXZadGFldGJKXzFXNGR2WlE4WXdrUXBpSWVZbFlpUEJySGhRdHVqSg?oc=5) |
 | Firefighters shot in Idaho ambush identified - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQeTRqLW85SDd3LXlXTTZvWHpIZXZ6RkR3aU5rd2FlTndzUzNJY0NncHF4Y3RJckFoalF3Ulc4eUNJeEFHdTQzQWl3c2FvMTVlRW4wLXk2WC04S1RWbmJRbVk4LUI2YVhjLVEwYUpMeTJtLVNqeE14THJtRGo3TEJxeC1EWUk?oc=5) |
+| California Rolls Back Its Landmark Environmental Law - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQVjlGQXppemVRQTdpOEdDOTBkZHVGdVJaU3lUX0IxUVZ3azdqdGNlWHlCcGVDdGJRLVhuOTRsYi16UGFlcVYzNk13Y016OEFKc09JbExQMlJxdjNMZW14cnhqaWlhNHE1UmVPZFJlMUtnUjJKR0NRa1BNVDBMQ0FhcTd6aw?oc=5) |
 | US says it halts healthcare fraud schemes worth nearly $15 billion - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPdXZ3dzg0VnlzLVo3RFAwTUNjbXJZLWlCdDNLTWk3NTRzYUM4WGJ1cDh1bEpkY0xwb3Q4clFmV3lxeEZISEc2Wm1TZGFIUndTUHBPUV9STFZ2UnVINU9DdnA1R3NwYndkZEZPcnZhX0Zqb2VBVFJoWER4R0hDelJtZEFOckFoSGtETmNxLXJQM05Gc3RzSkY5aFkzUElZNTdFTGhkTmxtQWY1ZjUyeXlzQUhqTkExMjlhakE?oc=5) |
 | Judge again delays Abrego Garcia’s release from Tennessee jail over deportation concerns - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQblFhYVNOd1dCb1FDVjQ4ZnI3WjhSY2lKdkdmLWRDdV90aGhPUEtwNDQxNFZiY2pZaDh3NVRvUzJHNmpkaFMxLTlDRXdVazBFOTJ6QmZYblRoSGZCMjl1QzYwTHdXaFdKWHF0d29ZY2EwUldzVDh6a043SmJBZzRGd2d5WEttTW5jME1PYlFfbVV0V2VHU1hmNklDYlEzWERoNDR3Vkln?oc=5) |
 | Why a GOP senator says the budget bill breaks Trump's promise - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPZm5xUG9uRVVSZXFTZWhJcGpDQnFvR2dCVjVUMkI2UnVFakFmRExwWXl0YzdHcDVfWVI4b3R6ZjhSYTIxOGRSOHlaaVBsclpRSDRGM0lJdERnWjFIdThpMWlsSlQ5OXQ1M1pJcEV0UE1lSmlKdGJ4MllmNThFSFJ4RzRCbEY1ZTFQMldGMEN4bVg3Q3pyajV2Zg?oc=5) |
