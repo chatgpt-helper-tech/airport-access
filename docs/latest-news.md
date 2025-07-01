@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月01日 21:52:41（北京时间）**
+🕒 更新时间：**2025年07月01日 22:01:39（北京时间）**
 
 ---
 
@@ -23,16 +23,6 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Senate’s marathon voting session on Trump’s ‘big, beautiful bill’ stretches into morning - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5ycHdjczdMSEN2YjBpTVd4MFE0b3FkcXhrZ0REN3hHRGVIWm5pamtXLXotcEZCcjlhOW9PdzdiMFdQS2xuUTFBOGM5V0Y3cWtWZjZaVE1HNmVUSjFmOTRGbEQ4ajRxcWdpcEZuTjRJY3Y5aTg4ajBra1N3YW9PZ9IBgwFBVV95cUxPU3B1RlJ2b0lTdURaSThYdDFEVGpxRWpJOHZaLUJYRFVYem14UTZDSHEtb3laTFcyQmhnemRGb1plNXM4cHpTZjlpRFNuU1dXV2ZiY0NDejViWldrTU9NbFY0RDJDQ28xY3B3MG1yRnVnWmhmSHhEMm0wSnplSnVFZmRvVQ?oc=5) |
-| Tesla shares sink as Trump-Musk feud heats up, risking subsidies - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiXkFVX3lxTE1sd2FsUTF3QUtReW4zdkVxTHJmQkxxN2NPN3drNkpzVjBTdmFKUG5GcEVUT1FzYzN2bmE5djB3NEY2NWNUaGFGdnpEdzZIbWlwOW15Mlp5eUVTY2Fxd1E?oc=5) |
-| Bryan Kohberger, Suspect in Idaho Student Murders, Accepts Plea Deal - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOenlUdkVrTkR0WnpMUXNrTTJTYXVoTVQ1cGN1LUJZQU1GWnR6NHNsQjIyMTZUWGlHMjRQRHcwVktLVG55cVpYdmlMSlN2S1FLRFhONnFnLUQ0Snh4TjB3QTQ2VG5OdlliN1ZmX1JDQVkwWVNtZEg4XzlkNEJKX252NWEzWQ?oc=5) |
-| Newsom pushes major housing reform through California Legislature - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPUDBYaVpJYVlHUXowalo2UlNEbnMwWVJxSHBxVDh6X0dhLThrUWktR0VFUDdpeFVWcjBTS1B5NERnbWpJblFpRWRHeHZEdVZMbHNwUVhaRU5YdFFYWjB3ajdRWkhHVm5NTVRuN3lLZWtZbTBMb29WdHZiQWo0eTFyaUVNamMtTFZLTWUzWkFCT2dBenZDTEJZQnhBOTlqWW9ndUk5TjI2UWdHYkUwc0FlSkpEQ0xxUnY4?oc=5) |
-| Suspect in Idaho firefighter shooting identified as 20-year-old man - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQcFUtZ2RldDJIZEFIMWpkNlhjQWRKVjJNR3R3eG96Mkc3UWM3SGdnMV9KdnhTeEFRSFRPTTF1SGRwc1ZvZlVKejlWcTF0NmtueDQ4YlBLX3RiWTNiT2VMZ093R012d2pSRjFlMDFTVnNfdGplbV9EdTY2dkt1elpLTEYtcmNEMGtaMGNpNlUxTG5Pc0JxdFFhQkp6MA?oc=5) |
-| Poll: Most feel democracy is threatened and political violence is a major problem - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZHFYSVBERG5ZV01uN1lSeVhlZGJKdW5HVFZZRjZ3Y0hBbGk4aGtQTk1hbVMzUk9Yb1dRb3k1WmNVXy1aSmVfZTZFS0lzYTcyS3NNaldTZEtVZnlwZGNLUWNueGpteV81ZDJTU00wd3FVcWVDTGNWUnBOY1hGSnFfWVMtZw?oc=5) |
-| Murkowski slams brakes on megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOV1Z0UlFSalZmN1ZmT3F5VVhkdXdZWFlZMG9nNllNODA2WjE0bkxjM01LdnVYaEtjYXRWOTJ3ODdHUUVzRDVqOXY5ZUhQbTlTeTYzaVlycENzNXpMOHhpYjFHUU1qa3JvUVRoVnFFV3ZoX2ZUS2V3YjFPekRseF9XVXY3bVlnNHhVeENlQkMtcU9STkJMUkZybTExVGZPR05jdlBOTl9NODM3ZkU?oc=5) |
-| 82-year-old woman dies from injuries suffered in Boulder Molotov cocktail attack: Prosecutors - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPWF9PZTR6RElFeE1mbm96a2s2TVF4OGlHdTRPandZVTFBaGw5WndITDBrbndzVjVXTWxiMWU4RUI1NGM0OURCdVBZYmtkdmFNbm03ZTFiRTczY3F2b1ZSWFY4ejVNTmlSVGhOUTZBeWc0Y3lVcWFqVjdtYWRycmJlUWFDblJ6TFFQenRUaVJPdEJGejFrN3k1dlpFdlNkd9IBowFBVV95cUxObWFiZERxMzRSSE41UmFfUlhQR2hJMm5DSEw4OTNtMVRsMlNIZ2dlX1ZvZWQyOEVQckNyczNnU1UxclRtRUttdmZDSXZsRGJNQjhpaWFwRVdYVlhQRWhTbGNJQ2ZiNnZMMUZZeG9jWGQ4NjVyUXVCdEp5NHZBYk9xYU5wZmpFdHFTUVZsV21qa0hMWWN1R284bWNleFY4dnphR2VJ?oc=5) |
-| Bush, Obama — and singer Bono — fault Trump’s gutting of USAID on agency’s last day - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPOExpZW5Zel9SckhmTGVLZkV0VGVxdktSX2JjeVc0N0tYcUhfVy1QNDRNRWlkcmNEb3FTdmVQUjBwVlExQWlhOUVsbnVYN2xPM1VQVE5KR01mR0UtTUoyTy1JcjFmM0gtWlNSNnl2Q1JVZENQdHVvZHJRN0xva3JrM3g2ek5qSUhXcXVaNnFJaW8?oc=5) |
-| Trump will visit a remote immigration detention site in the Florida Everglades - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPUk9jWWpUZTRqZVhfM1ZDbWdlZFNzbU1ueWt3eHUydDBNMDZhMmN1bVdyTU9sb2NOR2ZSeERkdm94enMzRmF0c1RLaG1meGNOOUJkTmZnTWFhaWRWeTBLZmtNRkRVTWkxZVVpLWI2Y0R1Q2w1bEdGWGhvV0JQRWJsa01BcThqdUdxNDdpU0JycWlXWnhqYm1HVHNxVUNaQmdJU0RrdEd6SmJndE5USEhUTQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
