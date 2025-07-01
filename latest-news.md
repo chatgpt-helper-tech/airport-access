@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月01日 18:00:46（北京时间）**
+🕒 更新时间：**2025年07月01日 18:14:21（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Three arrests in Letby hospital investigation | [阅读全文](https://www.bbc.com/news/articles/c62ddkde7y5o) |
+| Three former bosses at hospital where Lucy Letby worked arrested over gross negligence manslaughter | [阅读全文](https://www.bbc.com/news/articles/c62ddkde7y5o) |
 | Chief rabbi says 'national shame' that BBC aired Bob Vylan Glastonbury chant | [阅读全文](https://www.bbc.com/news/articles/c70rrld1nlpo) |
 | Is RFK Jr's divisive plan to Make America Healthy Again fearmongering - or revolutionary? | [阅读全文](https://www.bbc.com/news/articles/ceq7jx3dlj9o) |
 | Father jumps off Disney cruise ship to save daughter who fell overboard | [阅读全文](https://www.bbc.com/news/articles/c6288v6j4y0o) |
