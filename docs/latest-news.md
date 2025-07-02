@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月02日 16:01:23（北京时间）**
+🕒 更新时间：**2025年07月02日 16:13:10（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | What to know as Trump’s tax bill heads to the House - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBMcVQ1MGhtdEtrNTdzZDdobm9HZHBhdmlUWkhEYzZjVy1RNG94clJqZFVRaUx5OWhrTXFIYXo1QUo4S3ZtbUZENjVGb2hGb1RURnNQMV9JTGx1X2xxUXpJYlhuM0xLS1k0Z256X3JGaUUxSmpwSDNuY1JEWlQ?oc=5) |
-| Paramount agrees to pay $16 million to settle Trump’s CBS ‘60 Minutes’ lawsuit - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxONWdjN1JQbkNxSmxkUmR5cXJUeUhEc3pjU2F4UG14VGx6SHc3cW9PbkpuQVpFWTQ0dUppLVFFOG51YlU0V2dYMnZtNHh5eDBHSTVlQ0ppZVY0aUF0ekhNcjRDZ3g5WkhXSHMwZnRoWEpFTHNUSDRfSFRwc1FjRURsZFJ2U3l0T2JJYVhaR2NSaXdGWmVKT20wOG5xcUN6NmxLVW5hZWpocENIVVNYdTJkM091THpUdw?oc=5) |
 | The play-by-play of the 24-hour war of words between Elon Musk and Donald Trump - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOdE5kYXJYVGRVbDY1bW1COEZJa1hTWkZPNFZ4b21RTHVXU1owSXA5Y2w2alBKdEh3SDNMTXhiWnVkQ1NwN212aWticW1GZEFwVWs3X0UtTmxmS0s2V190MnpUUHlkUTRHUER6cWtuUzlkWTVMV1U3TXRCWVpZUkpNcy1LVzgzM1R6WWZsWE9VdjNHbW5DRldGaktXNVBGTVU?oc=5) |
+| Paramount agrees to pay $16 million to settle Trump’s CBS ‘60 Minutes’ lawsuit - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxONWdjN1JQbkNxSmxkUmR5cXJUeUhEc3pjU2F4UG14VGx6SHc3cW9PbkpuQVpFWTQ0dUppLVFFOG51YlU0V2dYMnZtNHh5eDBHSTVlQ0ppZVY0aUF0ekhNcjRDZ3g5WkhXSHMwZnRoWEpFTHNUSDRfSFRwc1FjRURsZFJ2U3l0T2JJYVhaR2NSaXdGWmVKT20wOG5xcUN6NmxLVW5hZWpocENIVVNYdTJkM091THpUdw?oc=5) |
 | Trump says Israel has agreed to conditions for 60-day Gaza ceasefire - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE12b01YMjhMTXA3ZjgxcTIxVi1USkZOR2hBbnBQdlhmN1lKTEZ0eW5iVWxtQWdUYVlJR3owSGVxa0lyREJfZEh6TlhPU2tWRkJpR19YOWQwc243d9IBX0FVX3lxTE44Qlh0UGlza0g5aV9EekVBRS0wSnBvTEtQUEM4UlJoRjBqNkR2TnN2RzlWSC03czJVYzliSzhFSEVaVlRCZGxkdTRmUWFuMlNVd3J2RUxwSHpmVW5vM1BJ?oc=5) |
 | Trump Withholds Nearly $7 Billion for Schools, With Little Explanation - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBJYjFDc2g4ZUpyem5nZzdQWWl6SGU1OTl4dGpIVUgzQW9FSEdvY0hNbmktUTAwZkZZTzVIRDVNWVJWRDg1TTdnaGlLTlo4WHFHaWtjdnpOXzBaSzBMRlUyak9zMVNxNy1tRFMtTGQ4dl9nUQ?oc=5) |
 | Donald Trump threatens Japan with tariff up to 35% as deadline looms - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBsTFV2Z00tR3lyZExZX1NtbTI1VGZUY2RWbjRxMXhrbnpqYUQ0eU1pLXJhVS1lTTQ0dFhxR2tjYnJMcElTNlNZSlJBclJRZ2dGMHNCM1h5RHpBUdIBX0FVX3lxTE1hdmFlUlBMbXJTRldWcUNjTzJIcVN2c3J1OFYzdVUwM05KTVpzdGxiQkxxNHl5RnpHUkNrVUg4dFY5dEpGakJPM0k3dnpSUXlZZXFSdU55UEtZRFNDVDJN?oc=5) |
