@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月02日 16:13:10（北京时间）**
+🕒 更新时间：**2025年07月02日 16:26:19（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | 'They took shrapnel from my heart' – the magnets saving lives in Ukraine | [阅读全文](https://www.bbc.com/news/articles/c1mgdendnv7o) |
 | At least 180 aircrew pursuing Ministry of Defence after cancer diagnoses | [阅读全文](https://www.bbc.com/news/articles/cew00x9jq1do) |
 | US halts some weapons shipments to Ukraine, White House says | [阅读全文](https://www.bbc.com/news/articles/cgk33k204ddo) |
-| Will there be a drought where I live? | [阅读全文](https://www.bbc.com/news/articles/crk661074ejo) |
+| After one of the driest springs on record, will there be a drought where you live? | [阅读全文](https://www.bbc.com/news/articles/crk661074ejo) |
 
 ## 📰 Google News
 
