@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月02日 21:39:27（北京时间）**
+🕒 更新时间：**2025年07月02日 21:53:41（北京时间）**
 
 ---
 
@@ -15,24 +15,24 @@
 | Bob Vylan dropped from music festivals after Glastonbury controversy | [阅读全文](https://www.bbc.com/news/articles/cz09y1r1y1ro) |
 | Ukraine warns halt of US weapons shipments will 'encourage Russia' | [阅读全文](https://www.bbc.com/news/articles/cgk33k204ddo) |
 | Diddy jury are deadlocked on racketeering charge - but what is it? | [阅读全文](https://www.bbc.com/news/articles/c0qz32wzeego) |
-| Don't call him Oliver - the British qualifier aiming to stun Alcaraz | [阅读全文](https://www.bbc.com/sport/tennis/articles/cq533p4x7l2o) |
-| Slow-motion humiliation for Starmer as he loses control of Commons | [阅读全文](https://www.bbc.com/news/articles/czry6gv80mjo) |
 | Who is the Dalai Lama and why does he live in exile? | [阅读全文](https://www.bbc.com/news/articles/c78nzwd10d4o) |
+| There is space for every woman in football, say Wales' first Muslim female referees | [阅读全文](https://www.bbc.com/news/articles/cly8dpqzz2no) |
+| Don't call him Oliver - the British qualifier aiming to stun Alcaraz | [阅读全文](https://www.bbc.com/sport/tennis/articles/cq533p4x7l2o) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| House to vote on Trump’s big policy bill as Johnson vows to ‘get it over the line’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE53QkxldWIzdkVGVDVyX3BkOFNTUExndGYtOHhTa24tRHNZOS1Jd2pDNU1lN1hxQ1hFMTNwNFl2Vm5PYmxzX1hCUlBqRDFOSXBfVlRCZ1BpaEExemViQ3dJVFVrQ1dvR18wUU9Rc3RvdkxIRVdJdHpNWGVZcw?oc=5) |
-| Paramount to pay Trump $16m over 60 Minutes Kamala Harris interview - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBySDBQLTdEX0J3WFdHdDJKcWlfQmxZU2ZEdTF0b2pTbW5PclRUMTdmOGJPd0dvWnpCT19KYXVEd21ISmF2NTRxdkpHTGFZaHBwcjJXSTJkYTlLQdIBX0FVX3lxTE1SMFdhbkJMaWxIZ1lMUEt5TW91ZWVWYjBha1Zxel9ZdE1DNWxEN3VlWmlRcjZhUEFJU2dRZ2JlNGlUanlxeGhucjVqdTJRSEY3a3VCY3dQQXpTd2JZOVY0?oc=5) |
+| Trump tax-cut plan returns to US House, Republicans divided on bill - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNd0JpMGt6OWVmVF9pY0ZSYXlDSy04UG5TNlZXX0ZBZ2s5akRiU0o0c1QwMnJ6cFVzTDVaQ1gwRmFXb1dfS0FEdVhuLU1oRjBGM1VkbFhxbzYtRC14TG91OW9TRWtQN29qVXg0VGNKWnVvNVF2Ym9vT1RvSGZ3MmZURWpMRFkxaXRnUV9ITUQ2YkJFOVl3U1dZTTUwekR2Z1JYN1ZSUHQ1ODFZS0hZSnBWeGxiMA?oc=5) |
+| CBS owner Paramount settles Trump lawsuit over Harris interview for $16M - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPOXhQMHF1Mi1aeDNQS0FDTFJRZ25ja25semJyWkJiemdhX2FRd0RZd3FPYXhNejZmSkk5Y1gwSjJodTVKcnhBMk5oWFdqT1RJaDIwM1VPRk5WM1JNZXJXbjdKUV9YVFJHTlNlZ0RpTjB1aVV4aHBOWXJxWmpIeHBkcENxbkRQVFBCaXItNUNIR2xDdkVleUU3ZUEzUWRNaXdYaGlkdg?oc=5) |
+| Trump says Israel has agreed to conditions for 60-day Gaza ceasefire - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE12b01YMjhMTXA3ZjgxcTIxVi1USkZOR2hBbnBQdlhmN1lKTEZ0eW5iVWxtQWdUYVlJR3owSGVxa0lyREJfZEh6TlhPU2tWRkJpR19YOWQwc243d9IBX0FVX3lxTE44Qlh0UGlza0g5aV9EekVBRS0wSnBvTEtQUEM4UlJoRjBqNkR2TnN2RzlWSC03czJVYzliSzhFSEVaVlRCZGxkdTRmUWFuMlNVd3J2RUxwSHpmVW5vM1BJ?oc=5) |
+| The play-by-play of the 24-hour war of words between Elon Musk and Donald Trump - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOdE5kYXJYVGRVbDY1bW1COEZJa1hTWkZPNFZ4b21RTHVXU1owSXA5Y2w2alBKdEh3SDNMTXhiWnVkQ1NwN212aWticW1GZEFwVWs3X0UtTmxmS0s2V190MnpUUHlkUTRHUER6cWtuUzlkWTVMV1U3TXRCWVpZUkpNcy1LVzgzM1R6WWZsWE9VdjNHbW5DRldGaktXNVBGTVU?oc=5) |
 | Federal judge blocks Trump administration from ending temporary legal status for many Haitians - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOemljVnNfLTJ2UEFZS09ua29RWEFrTE5ydDFQblNJdjh5bklkTE1fc1luYXJ6VjlDcWtocjJsbEZNOUhoSzJzN3U1aDBQdXFJWEcyMDViakVyUDhELXlhZ09kZ0xVdy0wcFBzUFI0NXVsZzd6TUp4a01CY3FiWjVNMURYTHdZVlBYTC1ZNGF6c9IBVkFVX3lxTE5mTGRlQnBtZ0ZXQ2NST25ac0FxT3F5RXl1dzR1RmloaHYwWW4yNHN2aVY5M3Iyd01NOFNnaktKd3I2anZxd2xkYmRDbl85cWtLdWRSeG9B?oc=5) |
-| Trump warns ‘spoiled’ Japan may not get a US trade deal - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE14amFzRzdpc2lyamZVSlk1NWR5eGJwaElyUmtRdkN6b09zaUxtdmJJdHNRNGFHR20wbzVfTDREdVFkdV9LWUxoaEFpWDVLdld1ODc0VFBMSXlzRGJnS0dRcFRPN2t2T0JuNXkxdkt6UWZsV3BDT0g1WVFYWdIBgAFBVV95cUxNcDRmcEVOQXZ3WENTR3NGckpId0tjaHdoY2UybjZBY0JEQXNsQXJLZWlqMlpxZlZ6aDVaWW5yRGdUNTFvNm9WeVdHOWk3Mkd3c1lZbVU3MzdqNWpXZTMwUmtZWnpMcEMtVXpNa2w0SWJSQktUdUJLdWE1bFFhNUVqVg?oc=5) |
 | Trump’s Finances Were Shaky. Then He Began to Capitalize on His Comeback. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBDMGhnTDAxTG9VdU8tcldNQy1mQWxIeVNnTWtNMFBEdkM1VHNSMEhrekE4c2cwYTdzdmp5UHl4b0VGZG9yOGJUSDRWSk5RZzJMWkRIZU12cnhia21xN0NCWURFWjVVZG9QVGZGc3NxV0I2Zw?oc=5) |
-| The Dalai Lama announces plans for a successor, signaling China won't have a say - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPYVk1dTN6M0FJWVF4LThyWkVSc3loOGRkMDFHZ2FfbmdndHNHcUdGb0EzTHNkdU1aMEp3WXJ1NTdQZzU1ODFwZE94Z2dWblJsNy1sSlZCZHRwN3FVb1BFd29ZdnBjSWhqWTM4UllVZ2lRRm16dncxQWpOb05FV09ZVVJPbGlvclhWbU9Ud0RaN3lBZjBQMHpMU0M2SGlScGpXSVE?oc=5) |
-| Former Criminology Student Is Set to Plead Guilty in Idaho Murders - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5iQ09zblBBcndWa0Nqb1BHaEdYWGczd0xFTGxmRVRvYmVUTlpqOUxsRHN5OFlEaWlaMzhUSTRtcmRTNUZEZ3dZcEpRcVVWd3NUdUxjeEVMNW9IUHRCMzB0QUNWVjRsdXZUM1ZXeWowYlN2b3F0UUNVZ0M3UQ?oc=5) |
-| Trump-Musk Feud: Musk Says Trump’s Comments About Him Are ‘Just Plain Wrong’ - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxOS3BlcllvQ0otOUxiRmJobTRJWDN0R1VXMDZwX3BYQXMwYUhyOXVjcXFFdGVKM2pFdHF6NUJ4UUhxbFl4RkJXWFJ4cU5udHByeWRhX1NFTy1IU2lSSVFkNW1wSk1qb3EweXhhYTdMTTh1RDJackdvZmM2Ynlwc3pNQVgzV29KbHIxaFdSRUZHbzI5R21TcERtWDNFOHhnTjM3VW95Sk83VVpzMlh1TUNNdGI0WWVEeGw5Z0U5dUs0OXI3aWVD?oc=5) |
-| California just rolled back a landmark environmental policy. Here's what it means. - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNWnY1b0ZwdFp0aUMyOHlRQ0k5SnEya3V6MlBURk93cjhDUjlVTXhEYnNYUFpJNU4wQnlEcjZuMVF0TmhBMkNvazI2SDJqQU44QVQ1b2ZRSzJ1aTRiNUF1UmdvbTVsaEF4LWpwSXdJTTVIOTY5MDA1Q0MxRFJocEx2TlJLVS1Xd0ZkWHRCSlllUUk3VEtBOXZKUGZTc3NqQTd0Z3dFQTJ30gGrAUFVX3lxTFBhU0k3TjdkSHNqNkVzWjBTVmstUlh0QXJIb1BLaUY4bG1yWEJlMWRhbVAyZHRVOHktX3NGSXVtemdUUXpCNDJxU2ZoR2V3TG5zeWVxQ0p1WjZpX0o2Y2kzREpOLXR2RXJqd0lXMWdNRG05cmRTcE9IdFFhcno3YmdPd2pKSGs4bDR6cURRTkk5dkJPRElKUGRaMzUzd1k3MzRvUVB1eVNya3JCYw?oc=5) |
-| Trump withholds nearly $7 billion from schools, leaving Colorado districts uncertain about future of programs - The Colorado Sun | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPU0FxQ0hONXZQVEI0dXVWZjV1Ujd6ZUNHdDViaFh5SkhRVDhvQVFMdFhlWXNhOXdXdjZhcEpfY3g3dlMyaDVYSEVGWlFucUs1cDkyVVRyYTd1RURmTkoxekpqVlIzWmdiRVNkelFMLXI0Y0pkN0dILW1IVW0wMGlQcFdzZVU3d2tXM3F2TGZScDM?oc=5) |
+| Bryan Kohberger due in court today to plead guilty in Idaho college killings, sparing him death penalty - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNSGJMeDNjbzZhTGEwYWpTb01lbVQxX2hkb1lKVVNGaUxnMjVIdklDbjZ3SzZSaHJoS3RMWVJ3a1hudFFYWjgwRUlkZmhkRERqdVp4NDNBb08xYklwa3ktRmp6YWhFbzIzWDNXQ3RFcEFfX0ZvNzRUUm9OTzByam93Vk56X2QzbU5rYzdEaXA0aXNPWWxEbXlYRkRSMA?oc=5) |
+| Trump administration freezes $396M in Florida education funds - Tampa Bay Times | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQTURVczg1bm91b2RGd0EtZFdnZGxrdXNITldzU0NYSlpjLVBsdHdBUXRwQU1hMmFQNTV5RWctbmxTMktOQmF6a3Y0b1l4MjNTcVkwN3JhZ0tuUzhBRGVhaWp4NlBMTDU1STZCZk1RUWV4RVJFOE0wREZ6M2ZUNWxpd0ZQc1ZyTW9BSGtTU0VUdFZRajY0eVNZT0E0a0s5UUZUY2tuVHNtZW9IcHZXbHc?oc=5) |
+| Gov. Gavin Newsom signs housing bill overhauling California's landmark environmental law - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNbWkyYVY1Z2V6Zmg5RGV3ZUo4cDFnWm1kUEF6NGFJOEtEQ3dMOG9LMDZDUUMzdEZxVjVVbkMxTmxNaTdkZ1h3MWZlM1g3SmlPaFhuX2JFYTRaUFAtZHFpQndqNU5PNk5UYnBFWnNaeGNlS3lJRUIxRTNMSWQ3VjZIWHE3TmQ4QVhDUmtjanc5R2JNTjV2U3VkX2VUbmh0TE80R0tJUTZKSE0zV3RUMzZuWWhaemzSAVZBVV95cUxOUGg1REVuRHR6UWRJcnU0WUZZdVpTNTJrVjlyVDJWdjJGdXhrVDE1RjVmc2xLTjVORW93eHRCcVVIUFVWLXFIaE9ENTF3Qzh6OS1kR1dBdw?oc=5) |
+| Trump's big day: A feud, a Senate win and "Alligator Alcatraz" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQYzl6LXU2MjFBQnVaOUVlLUZZS2pqQVJjVFUzakItVDYyd2JSOXJSLVByQk5NRWpQZWZNM2RFR0ZsQ2RTb1NaMjVvMlphdDFKV1NWZnNsUjl4MlU5MkpZT2p3TzVHcWFxSi1DNlVDakd3ZTVjR2djUDI4UnpxbnNDNw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
