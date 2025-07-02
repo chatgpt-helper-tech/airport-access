@@ -9,7 +9,7 @@
 > 📌 墙内访问Github太慢了,如果加载不出测速解锁的图片,请访问GithubPages页面获得更好的阅读体验：  
 > 👉 [https://gptvpnhelper.com/airport-access/](https://gptvpnhelper.com/airport-access/)
 
-> 最近更新: 2025年6月28日
+> 最近更新: 2025年7月2日
 
 ---
 
@@ -438,6 +438,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 
 ---
 
+<a id="yhy"></a>
 ### 4.<a href="https://realvpntest.galaxyvipaff01.cc/register?aff=tcOd0ob7" target="_blank" style="color:#1a73e8;text-decoration:underline;">银河云 Galaxy — 高性价比 Trojan 专线机场，节点丰富，AI 与流媒体完美解锁</a>
 
 **综合评分：9 / 10**  
@@ -473,10 +474,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 | 星系套餐       | 800GB        | ¥140    | ¥378    | ¥714    | ¥1344   | ¥2352   | ¥3024   |
 | 永久不限时套餐 | 1000GB       | -       | -       | -       | -       | -       | ¥680（一次性） |
 
-> 🎁 **活动期间（2025/6/1～6/30）专属优惠码：**
-> - 月付 / 季付 / 半年付：使用 `gptvpnhelper85` 享 85 折优惠
-> - 年付及以上：使用 `gptvpnhelper80` 享 8 折优惠
-> - 特别提醒：**年付小包和不限时套餐不参与活动**，三年付已含 6 折，叠加码最高达 4.8 折！
+
 
 ---
 
@@ -514,8 +512,12 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
   </a>
 </div>
 
+> 🎁 专属优惠码：**
+> - 月付 / 季付 / 半年付：使用 `gptvpnhelper85` 享 85 折优惠
+> - 年付及以上：使用 `gptvpnhelper80` 享 8 折优惠
+> - 特别提醒：**年付小包和不限时套餐不参与活动**，三年付已含 6 折，叠加码最高达 4.8 折！
+
 ---
-<a id="yhy"></a>
 
 >  👉 [Galaxy 银河云 机场详细测评,如需了解更多测速、解锁、套餐信息、使用教程请前往](https://gptvpnhelper.com/airport-access/yinheyun/)
 
