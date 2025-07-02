@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月02日 09:14:42（北京时间）**
+🕒 更新时间：**2025年07月02日 09:27:00（北京时间）**
 
 ---
 
@@ -13,26 +13,26 @@
 | Israel has agreed to conditions for 60-day Gaza ceasefire, Trump says | [阅读全文](https://www.bbc.com/news/articles/cgkg4m0133po) |
 | 'They took shrapnel from my heart' – the magnets saving lives in Ukraine | [阅读全文](https://www.bbc.com/news/articles/c1mgdendnv7o) |
 | Diddy jury to keep deliberating after deadlocking on most serious charge | [阅读全文](https://www.bbc.com/news/articles/c20nn0p9xg2o) |
-| UK sees hottest day of 2025 as heatwave peaks | [阅读全文](https://www.bbc.com/news/articles/c79qqx1r5yyo) |
 | Will there be a drought where I live? | [阅读全文](https://www.bbc.com/news/articles/crk661074ejo) |
-| Family pay tribute to girl, 7, killed by falling tree | [阅读全文](https://www.bbc.com/news/articles/c0k77m8r8n2o) |
+| Draper through Wimbledon opener as opponent retires | [阅读全文](https://www.bbc.com/sport/tennis/articles/cx2jjzzrnjxo) |
 | Banknotes are getting a makeover - and the Bank of England wants your help | [阅读全文](https://www.bbc.com/news/articles/cy4nn1d2vzxo) |
+| Family pay tribute to girl, 7, killed by falling tree | [阅读全文](https://www.bbc.com/news/articles/c0k77m8r8n2o) |
 | TSB could disappear from high street after £2.65bn sale to Santander | [阅读全文](https://www.bbc.com/news/articles/cdjxxvg3vpeo) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What the Senate Republican tax-and-spending bill means for your money - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE54QXJWZEd3SnIwakE0eDBkTFNnempGNXhMX0VocktWSlZMbGotSXYzeFotaENuX0VfN2U4ckwxZHlFeXZVZm9kMjRxN2F5WFl0UXhFVXludUlZUXFxUDc1eUFHV0lVSEx0U0taUVkzVXloMGY4Wnc1eE5RUkXSAYIBQVVfeXFMT1VhRUZaS2dXSllrakN2aXBuOWc5X0dhS2JDS2N0Y1BoUmU5V3hxRWZrcG9ZM01zalYxLWg0Wl9UYUJSajhCUjRZc1IwWGxYSDc3dFdNUkE5dlpoeUJ2amNpMXNyclpuellmaS1ua2l1c21QYVNoUUhDazZhT2tuclprUQ?oc=5) |
+| Senate passes Trump’s tax bill, sending it to House for final vote - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOb2MwREoybExNbkRuYTU1aU5LcE5HdlM2UzVmS2MydE05OF9ReDllaGxEaXFiaGtVNWV6amQtT25CMlRveW1nV1JQcklWYVJaQ1piVE9yd3ZtZnBQTWlOQ19qRTk2OUduWk5JcXNvWXkySGs0Zk0wQkJFU1JYbW1rZnRwcmhnTXVVXzg1a2t0c19ndw?oc=5) |
 | House Homeland Security Democrats allude to internment camps as they slam ‘Alligator Alcatraz’ facility - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQOG4zSU5xVUg0SHBlOFYxdjJYczJNOVRwM25jLWw4MGVRVFppazJTMFc3NWR2UWN1ek05cnlhVERRSFpsbC1XODBiYTMxNHlOWnZMelpsZF9QM1ByTFlXeGhaTkEwVnhHMDJDVzV0VE8wbE5HaTlFT1ZPUXE1ZENEMHh2dkZ5bE9odVZCQ1psQk5IMkVURWdSQXpTS2dKTF9TQUE?oc=5) |
 | Trump-Musk feud reignites, and now the Tesla and SpaceX CEO's companies are in the spotlight - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNWWRnQWFmcTVpc2xvSnNUa0pJRjVyelVHQTZrejhrOGRlYmxKUjdOZFBjVWFrenZOSW5PNUxfSl9CclRXYWZLSUtBMG5nRVd0ak5MVkhDa3NhMHY0TUpsTWVYWDcxeThycUNuYnd2VjVObmZodzh1bTBBZEZJcHlpb2FReW4xVzc4TkdrXzBwMUt2WUhGMmlFa3B2OF9RcUZZZnFOUHVNNEE5QdIBVkFVX3lxTE9WMDVwb3l2elpNZ1lzc2tGcmpNaTZtbUJTcDYxZDBQeXA1a2dGR3c4STZVdHN1QjA5THlOcTBBNkJrM0NYakNKaWxWc1drNTdSOWNJMVBB?oc=5) |
 | Israel has agreed to conditions for 60-day Gaza ceasefire, Trump says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE12b01YMjhMTXA3ZjgxcTIxVi1USkZOR2hBbnBQdlhmN1lKTEZ0eW5iVWxtQWdUYVlJR3owSGVxa0lyREJfZEh6TlhPU2tWRkJpR19YOWQwc243d9IBX0FVX3lxTE44Qlh0UGlza0g5aV9EekVBRS0wSnBvTEtQUEM4UlJoRjBqNkR2TnN2RzlWSC03czJVYzliSzhFSEVaVlRCZGxkdTRmUWFuMlNVd3J2RUxwSHpmVW5vM1BJ?oc=5) |
-| At least 17 million Americans would lose insurance under Trump plan - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPOU9Kc3ZaWUkyRjgxVDVfNkRKcmY2RmtieHJVdDlyUEVoekVmT1A4U0ZITi1ISC14RFJRYm1ONFZsX3hIbUR3aEJsR1RlMDdYUTlBMWZOcmNtYzBaSGZiTlNkbE1rNEZJbWtnNjkwRmRIekk4bnk1M05PSU9JdGE0Zi0tVTkzQTJTa21oRGE4MXE3VVA0NjhJODkyNU5sejh6OU96VDJ0U0ZLUDNza2d2eWlOdk94azg?oc=5) |
-| WHAT THEY ARE SAYING: Senate Approves Landmark One Big Beautiful Bill - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNRXUtTm5qT1dMekRHeFl4bjlteTNUS1RtZTNlbUJHaGZSdGxsWFN3YWotdHE4X3RaT2wzZHQwUE5iUFhRaGNvYUViOWVfTHJxN2JXbkhGbVdSNjVkaXRFS2xzQmQzLUdTR3p2TjVyY1p2U2pzeUE3enNxbWVaanJEeGRaNWFkQ01SZDc2MjQ5TzJSRDc4cWxaTHRFaGZPeWs2cVlLZDdhYjdYQmtmYlBwUVlCbw?oc=5) |
-| Idaho murder case highlights limits of victims’ input in plea bargains - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQSjg2SFJNdzlXbUNHZnZKcHdPSEhkMEw1VDVjelEtNXFnSmNvZlRuZVJNVjhWcm5ZQkdhOThLZDc3Q1BEXzhhUFNnTDlpcDFBZG44dm42V2hkQWFmSXhGY1RZR1lZOVc4cjd3Y21USC1aZXBIbUpfeG1WMW5COGFPOU1Bckh3Y1NNYzR5cDRtc2RNbFpPTV9NNnhpdHlYaFBLYUxyZE1tT2pCQU1NN0dyWnNvUGppSGs?oc=5) |
+| Medicaid cuts in Trump's 'big beautiful bill' will leave millions uninsured, threaten rural hospitals - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQNW5qM1pYNGRfVG1XVUlYMTVGak1za2VmZUtXUVljNWlldXBEbUgwWk4tZFVZckJZcGRCdE42bEQtdm5Sa0IxMmhyT1hrTXloRE9LVGRuT2hSUmo4cDlxTC1Zd2xPZFhhc1dINGVHV2FFbTI5TUpCZUhJcmVXVVdYSkY5cjNSUm9kWk1jX1hQY25HMG5lYUdv0gGcAUFVX3lxTE9rVjRmR1ExcHBpdUhiZHZqTFZKcEpoNFpPV2dpTXdxYXJmNjlSVldETS1IRkFsY1VSaVpWZTlEWjdwUFlqMGdISWxOdEtscjdVMndSbU9NYWtKN1I2OHJJWGozUHFrekM0Z1BjZk81MHU3NFNHeEl6cFRjRWttLVZDZFJCRUs4NTdRWk9qc0ZsR1BNM1owR0pzOHpFWQ?oc=5) |
+| Sen. Murkowski on big beautiful bill: "This has been an awful process" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNdlNtaHo5SnFrUDZIektJcW1URUlOalRDMV9jNzVNeEgzYmxsVUlkaWV1N2ZpLWR2NWlWb0c2NEZBeWJIZUpUbGh5cXpWZHNQcFdzb3ZNdDhoWGpra1F6MTc0Q3dhZVVpUnk2OGItVUJ6RHZaeExNZUpSbVBjVGZVaQ?oc=5) |
+| What to know about the Bryan Kohberger case as a plea deal emerges over Idaho murders - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQYkdnMldTY0RKZUgxV2t1RDBUQmZiVHRNZUdzTUF6QWZUNnkyeXNSV0lKOFlRWmtZMnhLNmJ2QUUxSWFudjFvV1JzYjF6Z1RSRHlhSGpHLWNNaHRWZEJ3b0FqYjJjMm1DZU1iYTR1X05oTENxTzYzdzhRXy1qRXJhNmlFWUpJOFFyLXF1SU8ySHFyVHhZbEdGVDNDdEF6ZmNkS2c?oc=5) |
 | Gov. Newsom signs housing bill overhauling California's landmark environmental law - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNbWkyYVY1Z2V6Zmg5RGV3ZUo4cDFnWm1kUEF6NGFJOEtEQ3dMOG9LMDZDUUMzdEZxVjVVbkMxTmxNaTdkZ1h3MWZlM1g3SmlPaFhuX2JFYTRaUFAtZHFpQndqNU5PNk5UYnBFWnNaeGNlS3lJRUIxRTNMSWQ3VjZIWHE3TmQ4QVhDUmtjanc5R2JNTjV2U3VkX2VUbmh0TE80R0tJUTZKSE0zV3RUMzZuWWhaemw?oc=5) |
+| Trump threatens to arrest NYC mayoral front-runner Zohran Mamdani if he defies ICE operations - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQOU9ZY3hSUmtnYnJ4ZkNFMFgzVWZYVloySDhaRFVtbmFOTEYxNjc5MmFWdHYxN1pibDRqYmNpdWx0b2VCa0xROW1NVUhmeTdlMHl3NU9HZUx3WGNSUEhfWmMyWWhYVXQ2SEZEWWV2RmhBR0w2enFLc29uVEdaSWZJUTAyTFRjdmNEdUJTUFVlZWhyNlU?oc=5) |
 | Vance’s potential 2028 Democratic rivals want him to be the face of the megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPNTNMYk9vMDl1emlHdndmaTJOWTh3em9Xc2lGcEgxVUR1SWJfZVQzYzh0aVdvZ1hkQXpqS0xDSFp6TV9JbWMwMXpRVXpWUExCUUhoRU55Tld2RFZNakR4bXh1WUZ2WFY0a1E0bnVvSE84NzdyczFXQWNyd0prZWxqNzJmTHR2MWRfd3Nr?oc=5) |
-| Trump administration picks new DC location for FBI headquarters - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOVTNHbG15U3IzRC1oYmpUcEphYmhib2pYUVNleFBfbjZROFZHZndOd1JiWXloaER6Q0JZY29OUnZ2LUtoaThmRDhyRHpyS0hqOVVBV01UOE13U1VDM0FXZDVvVElsaFlRR2hSVEdkQ18ydkpGa1AyR2ZueGVMOGlsT1haVkVSaGFzYk11bzNMcw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
