@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月02日 15:39:59（北京时间）**
+🕒 更新时间：**2025年07月02日 15:52:47（北京时间）**
 
 ---
 
@@ -15,17 +15,17 @@
 | 'They took shrapnel from my heart' – the magnets saving lives in Ukraine | [阅读全文](https://www.bbc.com/news/articles/c1mgdendnv7o) |
 | Don't call him Oliver - the British qualifier aiming to stun Alcaraz | [阅读全文](https://www.bbc.com/sport/tennis/articles/cq533p4x7l2o) |
 | Diddy jury to keep deliberating after deadlock on most serious charge | [阅读全文](https://www.bbc.com/news/articles/c20nn0p9xg2o) |
-| Will there be a drought where I live? | [阅读全文](https://www.bbc.com/news/articles/crk661074ejo) |
+| At least 180 aircrew pursuing Ministry of Defence after cancer diagnoses | [阅读全文](https://www.bbc.com/news/articles/cew00x9jq1do) |
 | US halts some weapons shipments to Ukraine, White House says | [阅读全文](https://www.bbc.com/news/articles/cgk33k204ddo) |
-| TSB could disappear from high street after £2.65bn sale to Santander | [阅读全文](https://www.bbc.com/news/articles/cdjxxvg3vpeo) |
+| Will there be a drought where I live? | [阅读全文](https://www.bbc.com/news/articles/crk661074ejo) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | What to know as Trump’s tax bill heads to the House - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBMcVQ1MGhtdEtrNTdzZDdobm9HZHBhdmlUWkhEYzZjVy1RNG94clJqZFVRaUx5OWhrTXFIYXo1QUo4S3ZtbUZENjVGb2hGb1RURnNQMV9JTGx1X2xxUXpJYlhuM0xLS1k0Z256X3JGaUUxSmpwSDNuY1JEWlQ?oc=5) |
-| Tesla Stock Is Falling as Trump-Musk Feud Escalates. Where It Goes Next. - Barron's | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE4xZThHWEJuLXkza3ByRUpycDVmRlV1bkppNXA2MDhBWU9HUm1LMXNQSVV5WV9vSlFlc0dNd2Z3R0pBRVFWYjktUTJ4T05XclE0Y01zQ0Zjd0llZTRITnJNb1RuQ0VLajJwVGtuYXBQNk9wOXNlNEdsQnpn?oc=5) |
 | Paramount to Pay Trump $16 Million to Settle ‘60 Minutes’ Lawsuit - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOc2lWQjE2X3V2X0E0RnJwN0g5aE82dlZDVVIyaFc4UDViX0lqSE90bk1rOFJaQzJjZG1VTTlNMDFrbmhZajlYUktxOHNFeE1UT2ZTQ0dtaVZFc3ZKMkwtOWJhN29PaWx3ZlJ4b3ZmM0JhNVNyREJDUWxiUVZ1X0cyN1RtWUJ6cFNJa3BKRHpDanN3ems?oc=5) |
+| Tesla Stock Is Falling as Trump-Musk Feud Escalates. Where It Goes Next. - Barron's | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE4xZThHWEJuLXkza3ByRUpycDVmRlV1bkppNXA2MDhBWU9HUm1LMXNQSVV5WV9vSlFlc0dNd2Z3R0pBRVFWYjktUTJ4T05XclE0Y01zQ0Zjd0llZTRITnJNb1RuQ0VLajJwVGtuYXBQNk9wOXNlNEdsQnpn?oc=5) |
 | Trump says Israel has agreed to conditions for 60-day Gaza ceasefire - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE12b01YMjhMTXA3ZjgxcTIxVi1USkZOR2hBbnBQdlhmN1lKTEZ0eW5iVWxtQWdUYVlJR3owSGVxa0lyREJfZEh6TlhPU2tWRkJpR19YOWQwc243d9IBX0FVX3lxTE44Qlh0UGlza0g5aV9EekVBRS0wSnBvTEtQUEM4UlJoRjBqNkR2TnN2RzlWSC03czJVYzliSzhFSEVaVlRCZGxkdTRmUWFuMlNVd3J2RUxwSHpmVW5vM1BJ?oc=5) |
 | California schools are scrambling as Trump administration withholds almost $811 million - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOUXBhbVdwWS05SEJqRnBjZnN1NEtWbExGX25UM0d6ODdOY3BCUkdDWjQxdUxxMXpJcXBXckM2LWJpT1RyOFBGR20tdHhaZ19rUkx6a05JSnNQanVmcHpOSjFTVHRpQkx0OHdEejVMaHpzU0thb2NCUnhDYjdfX25wRGxjLUotSzFSUkZodkxR?oc=5) |
 | Donald Trump threatens Japan with tariff up to 35% as deadline looms - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBsTFV2Z00tR3lyZExZX1NtbTI1VGZUY2RWbjRxMXhrbnpqYUQ0eU1pLXJhVS1lTTQ0dFhxR2tjYnJMcElTNlNZSlJBclJRZ2dGMHNCM1h5RHpBUdIBX0FVX3lxTE1hdmFlUlBMbXJTRldWcUNjTzJIcVN2c3J1OFYzdVUwM05KTVpzdGxiQkxxNHl5RnpHUkNrVUg4dFY5dEpGakJPM0k3dnpSUXlZZXFSdU55UEtZRFNDVDJN?oc=5) |
