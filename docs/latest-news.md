@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月02日 12:01:58（北京时间）**
+🕒 更新时间：**2025年07月02日 12:13:46（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Trump Withholds Nearly $7 Billion for Schools, With Little Explanation - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBJYjFDc2g4ZUpyem5nZzdQWWl6SGU1OTl4dGpIVUgzQW9FSEdvY0hNbmktUTAwZkZZTzVIRDVNWVJWRDg1TTdnaGlLTlo4WHFHaWtjdnpOXzBaSzBMRlUyak9zMVNxNy1tRFMtTGQ4dl9nUQ?oc=5) |
 | Republicans now own America’s broken health care system - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOaU5zU3FYR2k1VjZrQ3JReVdDTzV5SWNmSy04TGFLdm15NUZRVFcxbFNBNXp0Tm4zZ2Q4Z3dGRk83ZDdWSUxtc2ZqWElycWZFdk9vTS1EZFRpWDRLNG9oSHVSRkpoXzV3YUxNbWJYQzRjZ3V2OGFUR3NyUWd5azV5cDJUYw?oc=5) |
 | Senate Clears the Way for State AI Regulation. Meta, Amazon, and Alphabet Stock Fall. - Barron's | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNMmZXeDJvbXh1LTI5WWh4ZnJ6MDk2dzAteDcwcDdLTDNzRFBOeFRTMzVrRW8yYVdibkRJbGlWRlNlTXN6bU5VdTdVb3BBRjZyUlNhM3p0N1lwMVJKRG95SlZ0RFltRkJxSGtjV0YyYnZnR3VxaGVkaUE4dDk3VEl0Yzg1M1c4bHp0N0c4T0FBTUtWSExf?oc=5) |
-| Idaho murder case highlights limits of victims’ input in plea bargains - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOVnhyeGVNSTJ4Y0cwWXVCQVZmTGFwWjRXem9obHl0b09uMkxhVy1lTUd2NFdHbGpGVUdNREFWT21wRkNVOE1rdmNvMmFOYS14M1h1d2FFcmRrN3dZZlkwYVpwWHAtS0xyOS1aR3puZ0FRUGFsdmFxSm9qdGstODJvUWtCdUozUnlGWjBtZTBMeFpHeDNzdFMtY29oYTV3Um5QYUU3cDllVm15Q25xUU5jRTU2ekVlaW4tWDdZ?oc=5) |
-| ‘Agonizing': How Alaska’s pivotal Republican senator decided to vote for Donald Trump’s bill - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPVGxtZ05hRlp2aE9BTjJ4YllWOVFiUDk0OW16cnRBa0V5UjVQR2ZfRnN0dTdmZGNtSlhoRDhISTVuVGRkRG5OMVFZNTZVbWFZOURXaWtkdll4eU4xeDlkT1JNMGw3QVJHOTRaNGJJZDhGQnljMnRJZDFRSHhPUl9ZZXdLb214b3RnLTVUMzVMZ2Z5VFVKTFVkTy11V1RKS0E?oc=5) |
+| What to know about the Bryan Kohberger case as a plea deal emerges over Idaho murders - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQYkdnMldTY0RKZUgxV2t1RDBUQmZiVHRNZUdzTUF6QWZUNnkyeXNSV0lKOFlRWmtZMnhLNmJ2QUUxSWFudjFvV1JzYjF6Z1RSRHlhSGpHLWNNaHRWZEJ3b0FqYjJjMm1DZU1iYTR1X05oTENxTzYzdzhRXy1qRXJhNmlFWUpJOFFyLXF1SU8ySHFyVHhZbEdGVDNDdEF6ZmNkS2c?oc=5) |
+| How Republicans got Murkowski to yes on Trump's megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPTlFzejJWYmU0MjNYQlZYUG0tSmxOTEtRMTJiMldyUGdyMlVoVHMxbVNleGlBbHAtZFpTNlppVkhRN2VXajVSeGtPcElnYm1yeTVLRl9QVHhiQzFweTRKNDZMcDlQSTl5RXhDMnVqVTFmN3lWSGxmNjdvTTRIcUR6cDRSaDJXeEhP?oc=5) |
 | Gov. Newsom signs housing bill overhauling California's landmark environmental law - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNbWkyYVY1Z2V6Zmg5RGV3ZUo4cDFnWm1kUEF6NGFJOEtEQ3dMOG9LMDZDUUMzdEZxVjVVbkMxTmxNaTdkZ1h3MWZlM1g3SmlPaFhuX2JFYTRaUFAtZHFpQndqNU5PNk5UYnBFWnNaeGNlS3lJRUIxRTNMSWQ3VjZIWHE3TmQ4QVhDUmtjanc5R2JNTjV2U3VkX2VUbmh0TE80R0tJUTZKSE0zV3RUMzZuWWhaemzSAVZBVV95cUxOUGg1REVuRHR6UWRJcnU0WUZZdVpTNTJrVjlyVDJWdjJGdXhrVDE1RjVmc2xLTjVORW93eHRCcVVIUFVWLXFIaE9ENTF3Qzh6OS1kR1dBdw?oc=5) |
 | J.D. Vance Dismisses Kicking Millions Off Medicaid: ‘Minutiae’ - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNQmE5XzNXQzA2MmptZTQzNmN5T2g4cThwcXZwbWs4WC1PN0JyNGlRXzNJdGpxaHpRLWRMVlpvNlhFc0Y2bUpyRFpuUTg1SzJ5YmxqMkdwM3g4eTVTVEJYVnlBbmI2TnZSODM0cGNfZE5USU1od1JqMTVhckdwX3J1TDhVT21TZ2NlWHB5aUVaNDRVczg3V0NKSXU0cS04Xy1lc1l5cDVvSE1WV0Y4cndmeGwxdlhRN1p4?oc=5) |
 
