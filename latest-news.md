@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月02日 08:40:21（北京时间）**
+🕒 更新时间：**2025年07月02日 08:53:08（北京时间）**
 
 ---
 
@@ -8,8 +8,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Government wins welfare bill vote after big concessions to rebels | [阅读全文](https://www.bbc.com/news/articles/cly8877x3z2o) |
-| Who are the welfare bill rebels? Find out how your MP voted | [阅读全文](https://www.bbc.com/news/articles/c4g889ywy82o) |
+| Labour rebellion clouds welfare bill win despite concessions | [阅读全文](https://www.bbc.com/news/articles/cly8877x3z2o) |
+| Slow-motion humiliation for Starmer as he loses control of Commons | [阅读全文](https://www.bbc.com/news/articles/czry6gv80mjo) |
 | Israel has agreed to conditions for 60-day Gaza ceasefire, Trump says | [阅读全文](https://www.bbc.com/news/articles/cgkg4m0133po) |
 | Diddy jury to keep deliberating after deadlocking on most serious charge | [阅读全文](https://www.bbc.com/news/articles/c20nn0p9xg2o) |
 | Three former bosses of Lucy Letby arrested on suspicion of gross negligence manslaughter | [阅读全文](https://www.bbc.com/news/articles/c62ddkde7y5o) |
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What the Senate Republican tax-and-spending bill means for your money - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE54QXJWZEd3SnIwakE0eDBkTFNnempGNXhMX0VocktWSlZMbGotSXYzeFotaENuX0VfN2U4ckwxZHlFeXZVZm9kMjRxN2F5WFl0UXhFVXludUlZUXFxUDc1eUFHV0lVSEx0U0taUVkzVXloMGY4Wnc1eE5RUkXSAYIBQVVfeXFMT1VhRUZaS2dXSllrakN2aXBuOWc5X0dhS2JDS2N0Y1BoUmU5V3hxRWZrcG9ZM01zalYxLWg0Wl9UYUJSajhCUjRZc1IwWGxYSDc3dFdNUkE5dlpoeUJ2amNpMXNyclpuellmaS1ua2l1c21QYVNoUUhDazZhT2tuclprUQ?oc=5) |
+| Senate passes Trump’s tax bill, sending it to House for final vote - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOb2MwREoybExNbkRuYTU1aU5LcE5HdlM2UzVmS2MydE05OF9ReDllaGxEaXFiaGtVNWV6amQtT25CMlRveW1nV1JQcklWYVJaQ1piVE9yd3ZtZnBQTWlOQ19qRTk2OUduWk5JcXNvWXkySGs0Zk0wQkJFU1JYbW1rZnRwcmhnTXVVXzg1a2t0c19ndw?oc=5) |
+| House Homeland Security Democrats allude to internment camps as they slam ‘Alligator Alcatraz’ facility - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQOG4zSU5xVUg0SHBlOFYxdjJYczJNOVRwM25jLWw4MGVRVFppazJTMFc3NWR2UWN1ek05cnlhVERRSFpsbC1XODBiYTMxNHlOWnZMelpsZF9QM1ByTFlXeGhaTkEwVnhHMDJDVzV0VE8wbE5HaTlFT1ZPUXE1ZENEMHh2dkZ5bE9odVZCQ1psQk5IMkVURWdSQXpTS2dKTF9TQUE?oc=5) |
 | Trump-Musk feud reignites, and now the Tesla and SpaceX CEO's companies are in the spotlight - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNWWRnQWFmcTVpc2xvSnNUa0pJRjVyelVHQTZrejhrOGRlYmxKUjdOZFBjVWFrenZOSW5PNUxfSl9CclRXYWZLSUtBMG5nRVd0ak5MVkhDa3NhMHY0TUpsTWVYWDcxeThycUNuYnd2VjVObmZodzh1bTBBZEZJcHlpb2FReW4xVzc4TkdrXzBwMUt2WUhGMmlFa3B2OF9RcUZZZnFOUHVNNEE5QdIBVkFVX3lxTE9WMDVwb3l2elpNZ1lzc2tGcmpNaTZtbUJTcDYxZDBQeXA1a2dGR3c4STZVdHN1QjA5THlOcTBBNkJrM0NYakNKaWxWc1drNTdSOWNJMVBB?oc=5) |
-| Republican Donors Cash In on ‘Alligator Alcatraz’ Immigrant Camp - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOWm05RmhTMUJwUFNkWjFSa2ZJaXRFVnRrSHhKc21xRERwUUctcGRPazJjb1pPTjBtR0xxb2g5M1RIb0J3WjhKOHcxemU5N1ZHVFhFRWFoTXlCQVFsMHk4QjNDYUJVekx6UFpvY0dxNTlQQlF1dzR6LW1QZUxVcTdydjhPb2RfX2hId2ZmdW9abDd3TTJlYlY3ejYzRklpYVd5UGtmR1JxbTVvbHhuR01zWGxuYktabmI4WGdsUUpOM1I?oc=5) |
 | Israel has agreed to conditions for 60-day Gaza ceasefire, Trump says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE12b01YMjhMTXA3ZjgxcTIxVi1USkZOR2hBbnBQdlhmN1lKTEZ0eW5iVWxtQWdUYVlJR3owSGVxa0lyREJfZEh6TlhPU2tWRkJpR19YOWQwc243d9IBX0FVX3lxTE44Qlh0UGlza0g5aV9EekVBRS0wSnBvTEtQUEM4UlJoRjBqNkR2TnN2RzlWSC03czJVYzliSzhFSEVaVlRCZGxkdTRmUWFuMlNVd3J2RUxwSHpmVW5vM1BJ?oc=5) |
 | At least 17 million Americans would lose insurance under Trump plan - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPOU9Kc3ZaWUkyRjgxVDVfNkRKcmY2RmtieHJVdDlyUEVoekVmT1A4U0ZITi1ISC14RFJRYm1ONFZsX3hIbUR3aEJsR1RlMDdYUTlBMWZOcmNtYzBaSGZiTlNkbE1rNEZJbWtnNjkwRmRIekk4bnk1M05PSU9JdGE0Zi0tVTkzQTJTa21oRGE4MXE3VVA0NjhJODkyNU5sejh6OU96VDJ0U0ZLUDNza2d2eWlOdk94azg?oc=5) |
-| Trump threatens to arrest NYC mayoral front-runner Zohran Mamdani if he defies ICE operations - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQOU9ZY3hSUmtnYnJ4ZkNFMFgzVWZYVloySDhaRFVtbmFOTEYxNjc5MmFWdHYxN1pibDRqYmNpdWx0b2VCa0xROW1NVUhmeTdlMHl3NU9HZUx3WGNSUEhfWmMyWWhYVXQ2SEZEWWV2RmhBR0w2enFLc29uVEdaSWZJUTAyTFRjdmNEdUJTUFVlZWhyNlU?oc=5) |
+| WHAT THEY ARE SAYING: Senate Approves Landmark One Big Beautiful Bill - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNRXUtTm5qT1dMekRHeFl4bjlteTNUS1RtZTNlbUJHaGZSdGxsWFN3YWotdHE4X3RaT2wzZHQwUE5iUFhRaGNvYUViOWVfTHJxN2JXbkhGbVdSNjVkaXRFS2xzQmQzLUdTR3p2TjVyY1p2U2pzeUE3enNxbWVaanJEeGRaNWFkQ01SZDc2MjQ5TzJSRDc4cWxaTHRFaGZPeWs2cVlLZDdhYjdYQmtmYlBwUVlCbw?oc=5) |
 | What to know about the Bryan Kohberger case as a plea deal emerges over Idaho murders - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQYkdnMldTY0RKZUgxV2t1RDBUQmZiVHRNZUdzTUF6QWZUNnkyeXNSV0lKOFlRWmtZMnhLNmJ2QUUxSWFudjFvV1JzYjF6Z1RSRHlhSGpHLWNNaHRWZEJ3b0FqYjJjMm1DZU1iYTR1X05oTENxTzYzdzhRXy1qRXJhNmlFWUpJOFFyLXF1SU8ySHFyVHhZbEdGVDNDdEF6ZmNkS2c?oc=5) |
 | Gov. Newsom signs housing bill overhauling California's landmark environmental law - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNbWkyYVY1Z2V6Zmg5RGV3ZUo4cDFnWm1kUEF6NGFJOEtEQ3dMOG9LMDZDUUMzdEZxVjVVbkMxTmxNaTdkZ1h3MWZlM1g3SmlPaFhuX2JFYTRaUFAtZHFpQndqNU5PNk5UYnBFWnNaeGNlS3lJRUIxRTNMSWQ3VjZIWHE3TmQ4QVhDUmtjanc5R2JNTjV2U3VkX2VUbmh0TE80R0tJUTZKSE0zV3RUMzZuWWhaemw?oc=5) |
-| Vance’s potential 2028 Democratic rivals want him to be the face of the megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPNTNMYk9vMDl1emlHdndmaTJOWTh3em9Xc2lGcEgxVUR1SWJfZVQzYzh0aVdvZ1hkQXpqS0xDSFp6TV9JbWMwMXpRVXpWUExCUUhoRU55Tld2RFZNakR4bXh1WUZ2WFY0a1E0bnVvSE84NzdyczFXQWNyd0prZWxqNzJmTHR2MWRfd3Nr?oc=5) |
-| Chip Roy: Odds of House megabill passage by July 4 ‘hell of a lot lower’ now - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOUDhRVGZ0RXl6VnU4dDhDV011SFVWV3Y1ZTkxLTltcFZtVTJibkl3V0pfdktwbVVuaVJXcU5XMXVUYzJvb3hRZlNLSDZLcmhhdTYxLXZSYlFpTG0zMGY5Q0p3YjBXN3dfYWZwUmFmVTk3Z1BONkw2QVB5V2FXaUhpR1RzSEkzY0k2WkZfOHNtaDZUbHU3LVpaZk9MeHhhaGwyckJkQzE0dVl6SVU?oc=5) |
+| Trump threatens to arrest NYC mayoral front-runner Zohran Mamdani if he defies ICE operations - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQOU9ZY3hSUmtnYnJ4ZkNFMFgzVWZYVloySDhaRFVtbmFOTEYxNjc5MmFWdHYxN1pibDRqYmNpdWx0b2VCa0xROW1NVUhmeTdlMHl3NU9HZUx3WGNSUEhfWmMyWWhYVXQ2SEZEWWV2RmhBR0w2enFLc29uVEdaSWZJUTAyTFRjdmNEdUJTUFVlZWhyNlU?oc=5) |
+| Trump administration picks new DC location for FBI headquarters - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOVTNHbG15U3IzRC1oYmpUcEphYmhib2pYUVNleFBfbjZROFZHZndOd1JiWXloaER6Q0JZY29OUnZ2LUtoaThmRDhyRHpyS0hqOVVBV01UOE13U1VDM0FXZDVvVElsaFlRR2hSVEdkQ18ydkpGa1AyR2ZueGVMOGlsT1haVkVSaGFzYk11bzNMcw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
