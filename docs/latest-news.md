@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月02日 10:27:50（北京时间）**
+🕒 更新时间：**2025年07月02日 10:39:34（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Israel has agreed to conditions for 60-day Gaza ceasefire, Trump says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE12b01YMjhMTXA3ZjgxcTIxVi1USkZOR2hBbnBQdlhmN1lKTEZ0eW5iVWxtQWdUYVlJR3owSGVxa0lyREJfZEh6TlhPU2tWRkJpR19YOWQwc243d9IBX0FVX3lxTE44Qlh0UGlza0g5aV9EekVBRS0wSnBvTEtQUEM4UlJoRjBqNkR2TnN2RzlWSC03czJVYzliSzhFSEVaVlRCZGxkdTRmUWFuMlNVd3J2RUxwSHpmVW5vM1BJ?oc=5) |
 | At least 17 million Americans would lose insurance under Trump plan - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPOU9Kc3ZaWUkyRjgxVDVfNkRKcmY2RmtieHJVdDlyUEVoekVmT1A4U0ZITi1ISC14RFJRYm1ONFZsX3hIbUR3aEJsR1RlMDdYUTlBMWZOcmNtYzBaSGZiTlNkbE1rNEZJbWtnNjkwRmRIekk4bnk1M05PSU9JdGE0Zi0tVTkzQTJTa21oRGE4MXE3VVA0NjhJODkyNU5sejh6OU96VDJ0U0ZLUDNza2d2eWlOdk94azg?oc=5) |
 | How Republicans got Murkowski to yes on Trump's megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPTlFzejJWYmU0MjNYQlZYUG0tSmxOTEtRMTJiMldyUGdyMlVoVHMxbVNleGlBbHAtZFpTNlppVkhRN2VXajVSeGtPcElnYm1yeTVLRl9QVHhiQzFweTRKNDZMcDlQSTl5RXhDMnVqVTFmN3lWSGxmNjdvTTRIcUR6cDRSaDJXeEhP?oc=5) |
-| Study: 14 million lives could be lost due to Trump aid cuts - NPR | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOMjRwdi1KTFlWalZmM1BGejFfREhJYTNSODBMTjJQaUQzV01NejYxN2laenl2UHFpcEZ2TGF0MlJ5ZEhRTjdmbEc5bEY3b0ppcmdacXplR0VxcC1NY3dPOENGaHQ3NjVyYlRmLUx2WTFaRDVKS0RzMUo3Y2xEVGcwS1lrYzN3cExnWmFtU0RBdXcwV0pIbTBNSFltOHV1VWF6?oc=5) |
+| Senate Votes to Allow State A.I. Laws, a Blow to Tech Companies - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE41bzM2RzA2eEEtdzFQNFF2M244R0t0Z2c1RG1KVzJTWXNRU3V1SUd1TmVEbDYxSEQ3dWloMDRQOWFGeWJwdWJZa2RQN0tYdXRibDJnSHlWNDUzY1owQWw1UGxlSGVXZEk1NFZkYUpoQThyZUU?oc=5) |
 | Trump Withholds Nearly $7 Billion for Schools, With Little Explanation - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBJYjFDc2g4ZUpyem5nZzdQWWl6SGU1OTl4dGpIVUgzQW9FSEdvY0hNbmktUTAwZkZZTzVIRDVNWVJWRDg1TTdnaGlLTlo4WHFHaWtjdnpOXzBaSzBMRlUyak9zMVNxNy1tRFMtTGQ4dl9nUQ?oc=5) |
+| What to know about the Bryan Kohberger case as a plea deal emerges over Idaho murders - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQYkdnMldTY0RKZUgxV2t1RDBUQmZiVHRNZUdzTUF6QWZUNnkyeXNSV0lKOFlRWmtZMnhLNmJ2QUUxSWFudjFvV1JzYjF6Z1RSRHlhSGpHLWNNaHRWZEJ3b0FqYjJjMm1DZU1iYTR1X05oTENxTzYzdzhRXy1qRXJhNmlFWUpJOFFyLXF1SU8ySHFyVHhZbEdGVDNDdEF6ZmNkS2c?oc=5) |
 | Gov. Newsom signs housing bill overhauling California's landmark environmental law - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNbWkyYVY1Z2V6Zmg5RGV3ZUo4cDFnWm1kUEF6NGFJOEtEQ3dMOG9LMDZDUUMzdEZxVjVVbkMxTmxNaTdkZ1h3MWZlM1g3SmlPaFhuX2JFYTRaUFAtZHFpQndqNU5PNk5UYnBFWnNaeGNlS3lJRUIxRTNMSWQ3VjZIWHE3TmQ4QVhDUmtjanc5R2JNTjV2U3VkX2VUbmh0TE80R0tJUTZKSE0zV3RUMzZuWWhaemw?oc=5) |
 | Vance’s potential 2028 Democratic rivals want him to be the face of the megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPNTNMYk9vMDl1emlHdndmaTJOWTh3em9Xc2lGcEgxVUR1SWJfZVQzYzh0aVdvZ1hkQXpqS0xDSFp6TV9JbWMwMXpRVXpWUExCUUhoRU55Tld2RFZNakR4bXh1WUZ2WFY0a1E0bnVvSE84NzdyczFXQWNyd0prZWxqNzJmTHR2MWRfd3Nr?oc=5) |
-| What to know about the Bryan Kohberger case as a plea deal emerges over Idaho murders - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQYkdnMldTY0RKZUgxV2t1RDBUQmZiVHRNZUdzTUF6QWZUNnkyeXNSV0lKOFlRWmtZMnhLNmJ2QUUxSWFudjFvV1JzYjF6Z1RSRHlhSGpHLWNNaHRWZEJ3b0FqYjJjMm1DZU1iYTR1X05oTENxTzYzdzhRXy1qRXJhNmlFWUpJOFFyLXF1SU8ySHFyVHhZbEdGVDNDdEF6ZmNkS2c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
