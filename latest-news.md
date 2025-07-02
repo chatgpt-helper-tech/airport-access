@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月02日 09:40:00（北京时间）**
+🕒 更新时间：**2025年07月02日 09:52:59（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | What to know about the Bryan Kohberger case as a plea deal emerges over Idaho murders - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQYkdnMldTY0RKZUgxV2t1RDBUQmZiVHRNZUdzTUF6QWZUNnkyeXNSV0lKOFlRWmtZMnhLNmJ2QUUxSWFudjFvV1JzYjF6Z1RSRHlhSGpHLWNNaHRWZEJ3b0FqYjJjMm1DZU1iYTR1X05oTENxTzYzdzhRXy1qRXJhNmlFWUpJOFFyLXF1SU8ySHFyVHhZbEdGVDNDdEF6ZmNkS2c?oc=5) |
 | Gov. Newsom signs housing bill overhauling California's landmark environmental law - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNbWkyYVY1Z2V6Zmg5RGV3ZUo4cDFnWm1kUEF6NGFJOEtEQ3dMOG9LMDZDUUMzdEZxVjVVbkMxTmxNaTdkZ1h3MWZlM1g3SmlPaFhuX2JFYTRaUFAtZHFpQndqNU5PNk5UYnBFWnNaeGNlS3lJRUIxRTNMSWQ3VjZIWHE3TmQ4QVhDUmtjanc5R2JNTjV2U3VkX2VUbmh0TE80R0tJUTZKSE0zV3RUMzZuWWhaemw?oc=5) |
 | Vance’s potential 2028 Democratic rivals want him to be the face of the megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPNTNMYk9vMDl1emlHdndmaTJOWTh3em9Xc2lGcEgxVUR1SWJfZVQzYzh0aVdvZ1hkQXpqS0xDSFp6TV9JbWMwMXpRVXpWUExCUUhoRU55Tld2RFZNakR4bXh1WUZ2WFY0a1E0bnVvSE84NzdyczFXQWNyd0prZWxqNzJmTHR2MWRfd3Nr?oc=5) |
-| Trump threatens to arrest NYC mayoral front-runner Zohran Mamdani if he defies ICE operations - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQOU9ZY3hSUmtnYnJ4ZkNFMFgzVWZYVloySDhaRFVtbmFOTEYxNjc5MmFWdHYxN1pibDRqYmNpdWx0b2VCa0xROW1NVUhmeTdlMHl3NU9HZUx3WGNSUEhfWmMyWWhYVXQ2SEZEWWV2RmhBR0w2enFLc29uVEdaSWZJUTAyTFRjdmNEdUJTUFVlZWhyNlU?oc=5) |
+| Trump Withholds Nearly $7 Billion for Schools, With Little Explanation - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBJYjFDc2g4ZUpyem5nZzdQWWl6SGU1OTl4dGpIVUgzQW9FSEdvY0hNbmktUTAwZkZZTzVIRDVNWVJWRDg1TTdnaGlLTlo4WHFHaWtjdnpOXzBaSzBMRlUyak9zMVNxNy1tRFMtTGQ4dl9nUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
