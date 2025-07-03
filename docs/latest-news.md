@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月03日 13:26:46（北京时间）**
+🕒 更新时间：**2025年07月03日 13:39:55（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | 'Diddy' denied bail after being cleared of most serious charges | [阅读全文](https://www.bbc.com/news/articles/cjd2e310k25o) |
 | House tests support of Trump's budget bill in vote after hours of delays | [阅读全文](https://www.bbc.com/news/articles/c20rrxjnx4lo) |
 | New plan will fundamentally rewire NHS, says PM | [阅读全文](https://www.bbc.com/news/articles/cy5wpe9r1d6o) |
+| BBC visits heart of Tibetan resistance as showdown looms between Dalai Lama and China | [阅读全文](https://www.bbc.com/news/articles/c5y772jlpgzo) |
 | Raducanu ready for Sabalenka after 'statement' win | [阅读全文](https://www.bbc.com/sport/tennis/articles/c86g079z8l9o) |
 | Citroen owners left stranded over airbag safety risk | [阅读全文](https://www.bbc.com/news/articles/c0m8872n9gxo) |
-| Redacted evidence 'delayed police grooming cases' | [阅读全文](https://www.bbc.com/news/articles/cgq7n3lyyjqo) |
 
 ## 📰 Google News
 
