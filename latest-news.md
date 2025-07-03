@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月03日 19:01:14（北京时间）**
+🕒 更新时间：**2025年07月03日 19:13:30（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Liverpool and Ronaldo lead tributes to Jota | [阅读全文](https://www.bbc.com/sport/football/articles/cx2kx7w7m34o) |
+| 'It doesn't make sense' - Ronaldo and Liverpool lead tributes to Jota | [阅读全文](https://www.bbc.com/sport/football/articles/cx2kx7w7m34o) |
 | Diddy's secret world revealed in videos and his voice notes | [阅读全文](https://www.bbc.com/news/articles/c628r6q0n4vo) |
 | Ryanair cancels flights for 30,000 passengers in France due to strike | [阅读全文](https://www.bbc.com/news/articles/cz9k37xxdkxo) |
 | Women poisoned by fake Botox get apology from beautician | [阅读全文](https://www.bbc.com/news/articles/c89eey7jjeno) |
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump Administration Live Updates: House Moves Ahead With President’s Policy Bill Amid G.O.P. Resistance - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1tOE85OWotVTV2ckFxb0lDWHZrb2ZlcURCeFJtaUlBOWJoNlZySnRHY0ZOT3M2WlhLaGhuay1WejN6aTN0dS1XNDVxTGQtUzRsOHdUTHNlYWc1ZUVkMTRWLUZ0RDJaand4WjJrNzJ0MXBVVk0?oc=5) |
+| House GOP holdouts fall in line, paving way for final passage of Trump agenda bill - CNN | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE9saktodFc1elR3Q0xoaXdIMWxkTnRVWklYTFpKV2hadzBHbE9mSEIyV1c4RTM2cldCNks3NkpsMUpNaW00OVFwM3RyUDJTcllBRjVWT3lnUEtjUVllNnoxd2VPQ1JIazA4TXBpRW5pcUdRUdIBd0FVX3lxTE5OSlc3bEVHZGJrS29aLVk2OTFPTVdiSDVybEMtTHFmaW5USjhXMUdHVVFqTzFSNGJUY0lPQ0ZDQUFPQUJKTVpvSnl4Yk8yb0MzeVc5TmZxeTBROTE4SVFlN0V1cWI2cWJlQlJXTkhWdmk4dTNTeXZZ?oc=5) |
+| Skydiving plane with 15 people onboard goes off runway at New Jersey airport, injuring multiple people - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE5vVDYyNlJDM0wtRXZZa0FWbGNkeGx6R1Y2WGpGZzEyZ0lUaklzRGlYLVpZa3hzUXNhMko4UHZBZHJ5eWhqVFNFdDFsbEZoRnJ4U1ZJNkVxUGMtZ2tVWlBJdkdKS0JLaGlWWUJIaDRyR0xSanV30gF6QVVfeXFMUDRNa0ktRGhXWElIb1ZuVHJxS3lGOG9sQlJzeG1NVlVwRVMzaHdYdjVTWmRaYWxtZHFYNElwTVMzcFVCT2s3b1E5VnNJMHhxblgxMWxpUlBxZXpLbmdkLXZRSGl4WVduaE5UX21oeUhPLS1QOFFmbWhmZUE?oc=5) |
 | Federal judge strikes down Trump's order suspending asylum access at the southern border - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOS0NMS1VxQnBYbHNTRHRUN0sxQXNYMUxNRjFKeV94M0RkbXdsTnFtZTgtM21wcDRuMmN5NkxCcV9rUTVUdHlTbGxDU0FmR01paUR5X0JMRGNCYnBPSm5EYkJqVFl3TC1feWRxT19WaEMweC05QVVzMzJlVWdsQXJtLWZuM3dobHBE?oc=5) |
-| Unpacking Bryan Kohberger’s guilty plea deal to avoid death penalty in Idaho student killings - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNMTZNQ2JPRU1Dd09Zd3h4bVNLakNxelFtdy1zSmZiZEg5ek5WTi1pZlZ2UzRDNHVoWnN2OGlWYkhpSV9qazRFYU5EdHdnY21SMGx6a0NNRUFuc19lQjhCQ1g0RUppMktrbGVod0ZISlFYMWVHOWl1RFptMGhNRl9HT1JMY9IBiAFBVV95cUxNNmI0dUxWYnYxZ1ZnNWxmS1JTeGpGanpmVnVJbFlqOEp4Q2lmZjVBWHlYZ0ZnS1hhVFBBMV9BZFlVTEZQNXhadVo5X3NJMUdpdnBIeUp2cTFBaVY4cVltcVFjeTZfZ1VCWDNaczZ5M01FcWNmVzZ4SnZTNW12Q1hOc1lLZXNkTEt1?oc=5) |
-| As Dalai Lama turns 90, BBC visits heart of Tibetan resistance to China - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5hZ2xJXzFVYWtzRDcyb3BZSTd2U0VGWVZTaDRBN1lJYlV0S2Z6V3VEaVAySWZZaTZRdkFiWXhGdC00bVJCZmFUWUJjdG9iU0lYUUJ2Z3I0NGlIUdIBX0FVX3lxTFBlSlFKNDV4YWJ5Y0lhRDFJZ1ZmVjJkZ082NDlWRGZJT2hpYXFGZzh0MDZxRWE0MEdkQkxmSTdiNDd6d3pncjhSS0pnaVppc3JIX1FqczhHcVdnazY5aXRR?oc=5) |
+| A Q-tip and spotless car were key evidence linking Bryan Kohberger to murders of 4 Idaho students - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNcGxjcndYMkhvNHZDOHEtUG5YalBWeFA2ZDB0NUgzTWtCZ0FmcEVqMlY1UldCRktSZkRiM0ZQUE10SkN5aDRQMWhiVEFmNG1NVmhVaDdMaWstMEN0eUFJZjdoY2JwMGFISGM0WjNmQUJMVUZ2emtMQ3g0TFFqemxkUDNlR04tT0ItYVhaVTZhQzA4djJidUFuRGp5NzlvWU4tVWpZMDdB?oc=5) |
 | Trump Brags About Insane Plot to Screw Musk: Wolff - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQRUwzc1d2cHNqRFN3SFYtVHlxVTRHZmY5N0F4cUdiRzZuTmFTVk5fRmJ1M3UxdjZNdU4zSktTMGtLUGx4V25XdEFpbEppZFI0azllLV84dXkySXNEVWRnSEZuRXl2T3J0LXBZaHk4d3kzQ0JtUHM0MmFndW1TeFdmLS03akRTNWM?oc=5) |
 | Trump allies caught off guard by Pentagon’s Ukraine weapons freeze - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNRUVzUXVEdTE4RHJMNUJzYmhPUXBCeXBoRWZINGd1bTBxVkJORlJobWxPaFZld2hVR0x5WmEtRXBmSmN6Y215NWxUcUZFZTlTM01NNHpwSm02dFczNHV3OWJPNE9PYS15SG0tS2RIbUdyWERCMERGSXhQcjY3UmxWU0hLQWN2cnI4RDJOa2dMcTE?oc=5) |
 | Summer and after-school programs at risk under Trump's K-12 funding hold - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPdklPR1RCZUt6UnBOSkpVaDEybUY3MEpUS045ZkhGM2dER3NXYjRpLWFNc3c1VUhtWjdNNjcwWWJEYmc2WWxfRkpkd2JESTNRX1U4ZTVZWWxUUGxsNm92WkRxeXRYRGpIWGl4SHgwU1hTbVB2d19UYUFHd1FEZVNqLXM3VU0?oc=5) |
