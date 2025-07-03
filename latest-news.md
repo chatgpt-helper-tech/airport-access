@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月03日 23:27:17（北京时间）**
+🕒 更新时间：**2025年07月03日 23:40:55（北京时间）**
 
 ---
 
@@ -8,16 +8,6 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Tears as fans mourn Liverpool's Jota at Anfield | [阅读全文](https://www.bbc.com/news/articles/c1dnxwl3513o) |
-| Senior BBC staff told to step back from duties following Glastonbury row | [阅读全文](https://www.bbc.com/news/articles/czjkmlj1348o) |
-| Universal's UK theme park could feature Europe's tallest rides | [阅读全文](https://www.bbc.com/news/articles/c5yplvrvx0vo) |
-| Four remanded in custody over break-in at RAF base | [阅读全文](https://www.bbc.com/news/articles/cly1jejw4xeo) |
-| Deputy Russian Navy chief killed in strike near Ukraine border | [阅读全文](https://www.bbc.com/news/articles/cz7l1zd8e8ro) |
-| Wildfire forces evacuation of thousands on Greek island of Crete | [阅读全文](https://www.bbc.com/news/articles/cd0vdkry307o) |
-| Ryanair cancels flights for 30,000 passengers in France due to strike | [阅读全文](https://www.bbc.com/news/articles/cz9k37xxdkxo) |
-| How Jota overcame challenges to play football | [阅读全文](https://www.bbc.com/sport/football/videos/czeyrzeg0k3o) |
-| Liverpool FC say they are devastated after death of Jota | [阅读全文](https://www.bbc.com/sport/football/articles/cx2kx7w7m34o) |
-| A natural finisher who was always feared by defences | [阅读全文](https://www.bbc.com/sport/football/articles/cm2lkgmg5p7o) |
 
 ## 📰 Google News
 
@@ -32,7 +22,7 @@
 | Jobs Report Live Updates: U.S. Hiring Remains Solid as Unemployment Rate Falls - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1WcVd1SmFzVkpua3JCTmo2SDUtYnlxVXZZMEF0NkExdmZheDhCY2JsOXVFQzNaeFlNeDlERXdtZGRvbGhhSXRmX2JwclZndzJQSTlPNlZNN1NsV1F5NzluOHdjTFJsM2hJYlVXM0ZHaG01YnNEZzlfQl9idW9jZw?oc=5) |
 | China criticises Donald Trump’s trade deal with Vietnam - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE11WUxVM1p3SnJ2VlUwUVB4STB5VTN4U2pMNFJKTWhxRE82WGJ6Z1ZNQi1DMEp6VDg4NVVqRGFhOUczcktxTGo3ZUdycW9XQmR1OEg3NVhJSkZnZzJCNHFBRVZRRXNWd1V5cG54ajZkZGc?oc=5) |
 | National Hurricane Center Tracking Possible Tropical Or Subtropical Development Off Southeast Coast - The Weather Channel | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPZnduTDZNSnRvTmdPUmFPT3lQcld2dE9IaUYxZ0pKbGRURUwtcE1NNUY2c0lMUHFTMHhUTFN4Ym9uYnlvVVBOODZ6TnRHd1Axc09vTmlLSVoybTh2YzRoTTRQWklvN1Jka0xKM01Fb200ajNBUFZvX29KbzQxeThpbkpxdTdITXFPUmdzeW9uVGg2MHBkOUJDYm5ESTJoeTJDaFE0eHBfTWlpMS1mOUNpeVBiX2Y?oc=5) |
-| Clearly I was upset, says Rachel Reeves after Commons tears - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9kQmlVTUpEbFNUTHJiNHFXN2FaWUozLUlZMkFkWTNBYjB6YzJuWFFkeE1JcjlGUDRtQV8ybkJKQUxwdUU5ZU0zMFpyT3RnRUhFMGhScHJPaS11Z9IBX0FVX3lxTE9nSTFscEdZMFlKZ1FIMUtTdk15b2VreWpiTU0tcmh3NU9iYzhZUjVuOUNiOVB6a0ZvTm5seGI0YkgzT3FMMmQ2ck1vWUpvZ0JfdmNPMXJNcnR3ekk5YW5Z?oc=5) |
+| Trump Is Bragging That He Planted the Elon Musk Drug Abuse Story in the New York Times: Author - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQRUwzc1d2cHNqRFN3SFYtVHlxVTRHZmY5N0F4cUdiRzZuTmFTVk5fRmJ1M3UxdjZNdU4zSktTMGtLUGx4V25XdEFpbEppZFI0azllLV84dXkySXNEVWRnSEZuRXl2T3J0LXBZaHk4d3kzQ0JtUHM0MmFndW1TeFdmLS03akRTNWM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。

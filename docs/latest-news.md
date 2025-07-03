@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月03日 23:27:18（北京时间）**
+🕒 更新时间：**2025年07月03日 23:41:10（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Jobs Report Live Updates: U.S. Hiring Remains Solid as Unemployment Rate Falls - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1WcVd1SmFzVkpua3JCTmo2SDUtYnlxVXZZMEF0NkExdmZheDhCY2JsOXVFQzNaeFlNeDlERXdtZGRvbGhhSXRmX2JwclZndzJQSTlPNlZNN1NsV1F5NzluOHdjTFJsM2hJYlVXM0ZHaG01YnNEZzlfQl9idW9jZw?oc=5) |
 | China criticises Donald Trump’s trade deal with Vietnam - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE11WUxVM1p3SnJ2VlUwUVB4STB5VTN4U2pMNFJKTWhxRE82WGJ6Z1ZNQi1DMEp6VDg4NVVqRGFhOUczcktxTGo3ZUdycW9XQmR1OEg3NVhJSkZnZzJCNHFBRVZRRXNWd1V5cG54ajZkZGc?oc=5) |
 | National Hurricane Center Tracking Possible Tropical Or Subtropical Development Off Southeast Coast - The Weather Channel | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPZnduTDZNSnRvTmdPUmFPT3lQcld2dE9IaUYxZ0pKbGRURUwtcE1NNUY2c0lMUHFTMHhUTFN4Ym9uYnlvVVBOODZ6TnRHd1Axc09vTmlLSVoybTh2YzRoTTRQWklvN1Jka0xKM01Fb200ajNBUFZvX29KbzQxeThpbkpxdTdITXFPUmdzeW9uVGg2MHBkOUJDYm5ESTJoeTJDaFE0eHBfTWlpMS1mOUNpeVBiX2Y?oc=5) |
-| Clearly I was upset, says Rachel Reeves after Commons tears - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9kQmlVTUpEbFNUTHJiNHFXN2FaWUozLUlZMkFkWTNBYjB6YzJuWFFkeE1JcjlGUDRtQV8ybkJKQUxwdUU5ZU0zMFpyT3RnRUhFMGhScHJPaS11Z9IBX0FVX3lxTE9nSTFscEdZMFlKZ1FIMUtTdk15b2VreWpiTU0tcmh3NU9iYzhZUjVuOUNiOVB6a0ZvTm5seGI0YkgzT3FMMmQ2ck1vWUpvZ0JfdmNPMXJNcnR3ekk5YW5Z?oc=5) |
+| Trump Is Bragging That He Planted the Elon Musk Drug Abuse Story in the New York Times: Author - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQRUwzc1d2cHNqRFN3SFYtVHlxVTRHZmY5N0F4cUdiRzZuTmFTVk5fRmJ1M3UxdjZNdU4zSktTMGtLUGx4V25XdEFpbEppZFI0azllLV84dXkySXNEVWRnSEZuRXl2T3J0LXBZaHk4d3kzQ0JtUHM0MmFndW1TeFdmLS03akRTNWM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
