@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月03日 15:53:43（北京时间）**
+🕒 更新时间：**2025年07月03日 16:00:45（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | Reeves' tears raise big questions at top of Labour | [阅读全文](https://www.bbc.com/news/articles/cn0qr9wlpnqo) |
 | Diddy's secret world revealed in videos and his voice notes | [阅读全文](https://www.bbc.com/news/articles/c628r6q0n4vo) |
 | Trump's mega-bill heads for final vote in overnight US House session | [阅读全文](https://www.bbc.com/news/articles/c20rrxjnx4lo) |
-| Woman left fighting for life as fake Botox beautician apologises | [阅读全文](https://www.bbc.com/news/articles/c89eey7jjeno) |
+| Woman poisoned by fake Botox used by beautician who apologises | [阅读全文](https://www.bbc.com/news/articles/c89eey7jjeno) |
 | BBC visits heart of Tibetan resistance as showdown looms between Dalai Lama and China | [阅读全文](https://www.bbc.com/news/articles/c5y772jlpgzo) |
 | Four charged over break-in at RAF Brize Norton | [阅读全文](https://www.bbc.com/news/articles/cly1jejw4xeo) |
 | Mass evacuations as wildfire rages in Greek island of Crete | [阅读全文](https://www.bbc.com/news/articles/cd0vdkry307o) |
@@ -23,14 +23,14 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Johnson pushes to get House GOP holdouts to back tax bill - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNTzhfT2o0Y3FOTEVtU1UzdU5sbXBnSl9kZ3lVR2txWFFNR2Q5TGU2RWdfOUxsRERxLWF6Q3pWRGhENmY2TzQwQWtvdVFJaFdWYVprZmZmTnJQVF8xN1NTbTFOSzUxVmZQQXo2bWRwQmd5MmRJZWpjb0h0ZFFCLUh3aW9hYy1feDk1bkd3anVqcjQ?oc=5) |
+| House Republicans advance toward vote on Trump's tax-cut bill - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNd0JpMGt6OWVmVF9pY0ZSYXlDSy04UG5TNlZXX0ZBZ2s5akRiU0o0c1QwMnJ6cFVzTDVaQ1gwRmFXb1dfS0FEdVhuLU1oRjBGM1VkbFhxbzYtRC14TG91OW9TRWtQN29qVXg0VGNKWnVvNVF2Ym9vT1RvSGZ3MmZURWpMRFkxaXRnUV9ITUQ2YkJFOVl3U1dZTTUwekR2Z1JYN1ZSUHQ1ODFZS0hZSnBWeGxiMA?oc=5) |
 | Judge blocks Trump's asylum ban at southern border - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQaEN5bzZTT0taSmpkSDMwTjEtcFlEaTlZb19Ja1BNYmFEVXpQQnVOWjZwUEwteEEybVBibjN4WEctaWJTX3ZZY2o0TFd3ejYxbUlMM1RjVDlRMEwtSzd0Wm54R2J0R0c0NzRBVmUxRTYtajh3eG5XbURSMm90Wld5RTVFc0JuUUROcENjQmRJM2Y4V3JUNGfSAZsBQVVfeXFMUC1lLXJxWjV6SXVIQU5uSEFaMUx6Nmh6eGxXVjV2VFlEeUlpLWItZ1ZYNnJRdnFRb2JFOWp3bEFBOHVRWWxGRng5TUVzUlFjdGo1NlF4c3cwdXYtQVdmRnBoYzRqSzExbmJkYnpIclhCVlRmSzI2YURFR29fM0pfX3F3Rm1OaGNPUjJWZVg5cWpKaTIteVVEX2hsVUE?oc=5) |
 | As Dalai Lama turns 90, BBC visits heart of Tibetan resistance to China - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5hZ2xJXzFVYWtzRDcyb3BZSTd2U0VGWVZTaDRBN1lJYlV0S2Z6V3VEaVAySWZZaTZRdkFiWXhGdC00bVJCZmFUWUJjdG9iU0lYUUJ2Z3I0NGlIUdIBX0FVX3lxTFBlSlFKNDV4YWJ5Y0lhRDFJZ1ZmVjJkZ082NDlWRGZJT2hpYXFGZzh0MDZxRWE0MEdkQkxmSTdiNDd6d3pncjhSS0pnaVppc3JIX1FqczhHcVdnazY5aXRR?oc=5) |
 | A Q-tip and spotless car were key evidence linking Bryan Kohberger to murders of 4 Idaho students - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNcGxjcndYMkhvNHZDOHEtUG5YalBWeFA2ZDB0NUgzTWtCZ0FmcEVqMlY1UldCRktSZkRiM0ZQUE10SkN5aDRQMWhiVEFmNG1NVmhVaDdMaWstMEN0eUFJZjdoY2JwMGFISGM0WjNmQUJMVUZ2emtMQ3g0TFFqemxkUDNlR04tT0ItYVhaVTZhQzA4djJidUFuRGp5NzlvWU4tVWpZMDdB?oc=5) |
-| Kilmar Ábrego García was tortured in Salvadorian prison, court filing alleges - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNZmVmR0lGWFd3aFJNLWZGbmtrNXNDRnNpMG9VVVd4RnVnSmowaVpKTkRKdkdoQzFNbHJfeXo0WXlWUVNnQmJER3lZSzBlZXhqQm82LWp6ZXJESlRHc1hNVUNlUTVaZm9lR3EwaURJT201ZDFzVHZnWEFmbzZ5SC05YnRRdUtxOUZEYzNr?oc=5) |
+| Trump announces a US trade deal with Vietnam - CNN | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE9TbFFIYThhc29ScnBub0pBamk3dEdDczlUTDAzdFgzdTJUZUN2NGc3M08yNm1TVVp0eHhMa0RKQ3Q0NjhIZVJhVi1EVXMzc3RsZUs3YVB1OFJtV19wQk9VT2hmWUNtUFZiZU41VThfZW1TZ9IBd0FVX3lxTFBUOXBlWGoyLVdJdndhRTg5clFTSkJ4bXh4OGZ0aXRWVXlieENiZmE1ZGVPb3JEUVNveVJHNkZhVkJ3cW1DcVk3dzkyZGc1c3NJUXJwb0JxdWsxYmRXYlMtc2VWTFZzYUJfQkFTbzlUSmFQQjFwRll3?oc=5) |
 | Trump allies caught off guard by Pentagon’s Ukraine weapons freeze - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNRUVzUXVEdTE4RHJMNUJzYmhPUXBCeXBoRWZINGd1bTBxVkJORlJobWxPaFZld2hVR0x5WmEtRXBmSmN6Y215NWxUcUZFZTlTM01NNHpwSm02dFczNHV3OWJPNE9PYS15SG0tS2RIbUdyWERCMERGSXhQcjY3UmxWU0hLQWN2cnI4RDJOa2dMcTE?oc=5) |
 | Summer and after-school programs at risk under Trump's K-12 funding hold - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPdklPR1RCZUt6UnBOSkpVaDEybUY3MEpUS045ZkhGM2dER3NXYjRpLWFNc3c1VUhtWjdNNjcwWWJEYmc2WWxfRkpkd2JESTNRX1U4ZTVZWWxUUGxsNm92WkRxeXRYRGpIWGl4SHgwU1hTbVB2d19UYUFHd1FEZVNqLXM3VU0?oc=5) |
-| US Contractors Say Their Colleagues Are Firing Live Ammo as Palestinians Seek Food in Gaza - Military.com | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxPMlM1WkdNSG9lZEJBeHlzVjF4Y01wS05WV20tWlZQUGdiM3FIa1VVaGp3bkdsbW5lcjNkYVhCaGJRRTJobHVYejV6UlFSRjFRWkt6aUlRSjZQZjZhTmVLUm9UVlVaTEJEZ1d2RXQwcEpWcHA3Zks1bnpVZDI1MkZXU3ZPaTh3WEJEdFo0d0hld2lxNXBPY0JJdUl5Qm8xNlk0RlBHY1oxbVpyMnRTbm1kM2kzR3F0b05NYVY4ZmdqbUVZcGV1MFotblo5ZlVfVjFYemfSAdcBQVVfeXFMTkNIbGViVThVXzBqcDAxS2pfQ2JTR0RIb3hSTGxIc25CaS1aM0N0M0lfbGhWU01wRGNwY3BXQkdLOVpIdlBEZXNPQWVETHdfM1c3bHVfRFh6U2dqTVhySlZkYWQ2dUtOZUlKcUgxU21EMkNrU3lhU3RiTXJ2NFN2cllQYVN4cVo1OU1LaXN6SXF4NC1QYWFkRlY2ZlhBaENQMFBfNnlFa1NDc3pSRlJ2TmJhVGpTXzRKUU5aSXdvODk4dVRTNVV5WTRROHhxbFY3Sk50QmlRVjg?oc=5) |
+| US security contractors say their colleagues are firing live ammo at aid-seeking Gazans - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOSlZ0VURvR3NDd3JvSEQzSUtkS2pDOWZNZEtPc0ROU1BBQ09mRm80U0xBdlI5VHliWXk0UjdiX2pZZ0pOdXdFbmstVWcxSVhfWFZVSzU1d3FXdEk5OHZEQUNXVERSM3RjVGxEUkhiS0J2cmdWY0hVQ3BOUkhXUXp2N2ktZnJXaGc1VUxGSFJsdUVWOFVtNFlWTy1mZ2JiV2VZRThBeWF2cEdUbHRTWnVZbUJ6dEp3NGZ3R0HSAb8BQVVfeXFMUHFNdS1aWWh6ZnB1QXFQazhCbV9fbGJHamEzUkUwdDNxQ0ZJN29qY1ZJdTh2VlNwNUpVUVdKa3d0eXhOSU85TkMyRVUyRjFycU4tWjc4c2lzMXU4T213amhOZlFkYmNCTlc2MndMNUJ6eldqV2hNZ2h5R0E4RXRSYzRXMGF1aGY2S3F3eVVkR25iVkItZFhINkxJaHpicDZ0bTFiY0lyNjVJVmN0TkRWaDZGeU9mNXpwdkpqQlBXc1U?oc=5) |
 | A Dedicated FEMA Fund Will Pay for ‘Alligator Alcatraz’ - FactCheck.org | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPbVE0YlNYSk90eGdZWEp2UDdlMjdMWkI1dFV2eTRLcXdMd0lkWHJtRDdleC1DQ0ZjbWRtYVU5Y2llWUozcEQxOFF6V2xSaHJzSDlBb0NqTGcyV3l2eGFUOFRyTGtuVHZ0TjIzUndNRDdKbGk1NW5JdG81TVZKcVVueEVJaXdiUVBIejZtWWFjUmcxdw?oc=5) |
 | Tax Cuts Now, Benefit Cuts Later: The Timeline in the Republican Megabill - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE90Snd5MFFPX3ZxdVhsSzVQc3RTMVU4RDh4eVpISUJXN1VrWm5uOFNXcXpZU0dQbU1Vakd1WnpHMjVWNHIzbGhmWmhpckk3TlhwcjktSDgwdnpQdm1xU05PeThwTS1uVjVmc2o2UHFudnJ3VnN4SzhuTDB4enJGZw?oc=5) |
 
