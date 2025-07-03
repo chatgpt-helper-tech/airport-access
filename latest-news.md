@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月03日 23:14:07（北京时间）**
+🕒 更新时间：**2025年07月03日 23:27:17（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Unpacking Bryan Kohberger’s guilty plea deal to avoid death penalty in Idaho student killings - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNMTZNQ2JPRU1Dd09Zd3h4bVNLakNxelFtdy1zSmZiZEg5ek5WTi1pZlZ2UzRDNHVoWnN2OGlWYkhpSV9qazRFYU5EdHdnY21SMGx6a0NNRUFuc19lQjhCQ1g0RUppMktrbGVod0ZISlFYMWVHOWl1RFptMGhNRl9HT1JMY9IBiAFBVV95cUxNNmI0dUxWYnYxZ1ZnNWxmS1JTeGpGanpmVnVJbFlqOEp4Q2lmZjVBWHlYZ0ZnS1hhVFBBMV9BZFlVTEZQNXhadVo5X3NJMUdpdnBIeUp2cTFBaVY4cVltcVFjeTZfZ1VCWDNaczZ5M01FcWNmVzZ4SnZTNW12Q1hOc1lLZXNkTEt1?oc=5) |
 | Trump allies caught off guard by Pentagon’s Ukraine weapons freeze - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNRUVzUXVEdTE4RHJMNUJzYmhPUXBCeXBoRWZINGd1bTBxVkJORlJobWxPaFZld2hVR0x5WmEtRXBmSmN6Y215NWxUcUZFZTlTM01NNHpwSm02dFczNHV3OWJPNE9PYS15SG0tS2RIbUdyWERCMERGSXhQcjY3UmxWU0hLQWN2cnI4RDJOa2dMcTE?oc=5) |
 | Jobs Report Live Updates: U.S. Hiring Remains Solid as Unemployment Rate Falls - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1WcVd1SmFzVkpua3JCTmo2SDUtYnlxVXZZMEF0NkExdmZheDhCY2JsOXVFQzNaeFlNeDlERXdtZGRvbGhhSXRmX2JwclZndzJQSTlPNlZNN1NsV1F5NzluOHdjTFJsM2hJYlVXM0ZHaG01YnNEZzlfQl9idW9jZw?oc=5) |
-| Trump to speak with Putin after U.S. pauses some weapons shipments to Ukraine - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFB0SmhiOGNXVmh4dC1jT0xmY2FjeGlpYkJKZHRQOXM5cm5oS2d6ZUtnOUhwY1VQVnRjRHB5cVRUZ3QzZl9vRV9qOXFKYzV1RmpXTldsbEdyeG0tYU9oNXo3SnNZbnlwMzdQLWF5b2tqT2bSAXZBVV95cUxNWm9QVFdhaWIzd3lRaGVtVWI2NWtOXzBpZm5DS3JXR0ptb0JpcVVUWjBnVEZ6MnV5VGpYYUFyallCeTlxM0dqQ0k2bUw1RUdoZWJGUHA1RkNsSkR2UWYwZzZSbkJWWnFwNFIxcUpzaHY1YTBKUHpR?oc=5) |
-| Supreme Court declines to revive Montana law that would require parental consent for minors to obtain abortions - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNcEw3RlJnUnl2Z0w3NDl4QjRvMXNQRjg4LUwtbkk4RkxIN1hENUl6dUltOFloRkdfeDFicHVUQ2MzS2RlVEF1TkJqNGd6OVBpWHhFUG1YZXhRaEhOaV8tcHRBb0otdE1QWTZHM1dRbllrV3k5dDd1MGFyOFg3VUw5Ri1keG5qSl9EQkpZZlJsdWM4VE85d3JNVHBUSUVCdUgxM1hhV0k0UWpCazJJa2N1d0dvRnBkQ1pocEhWZXFNUnUwazlzdVRr0gFWQVVfeXFMTVNGcjU4ejVBV2lRUGR4MmNkbVgxdHRRRndLLWFFRUs4V3ZKZ1VBQXg4T0lkTXA4WS1aajdZMkRyRU1JX0p5SFA3aFF3TWs1SmNpcHNYVmc?oc=5) |
 | China criticises Donald Trump’s trade deal with Vietnam - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE11WUxVM1p3SnJ2VlUwUVB4STB5VTN4U2pMNFJKTWhxRE82WGJ6Z1ZNQi1DMEp6VDg4NVVqRGFhOUczcktxTGo3ZUdycW9XQmR1OEg3NVhJSkZnZzJCNHFBRVZRRXNWd1V5cG54ajZkZGc?oc=5) |
+| National Hurricane Center Tracking Possible Tropical Or Subtropical Development Off Southeast Coast - The Weather Channel | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPZnduTDZNSnRvTmdPUmFPT3lQcld2dE9IaUYxZ0pKbGRURUwtcE1NNUY2c0lMUHFTMHhUTFN4Ym9uYnlvVVBOODZ6TnRHd1Axc09vTmlLSVoybTh2YzRoTTRQWklvN1Jka0xKM01Fb200ajNBUFZvX29KbzQxeThpbkpxdTdITXFPUmdzeW9uVGg2MHBkOUJDYm5ESTJoeTJDaFE0eHBfTWlpMS1mOUNpeVBiX2Y?oc=5) |
+| Clearly I was upset, says Rachel Reeves after Commons tears - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9kQmlVTUpEbFNUTHJiNHFXN2FaWUozLUlZMkFkWTNBYjB6YzJuWFFkeE1JcjlGUDRtQV8ybkJKQUxwdUU5ZU0zMFpyT3RnRUhFMGhScHJPaS11Z9IBX0FVX3lxTE9nSTFscEdZMFlKZ1FIMUtTdk15b2VreWpiTU0tcmh3NU9iYzhZUjVuOUNiOVB6a0ZvTm5seGI0YkgzT3FMMmQ2ck1vWUpvZ0JfdmNPMXJNcnR3ekk5YW5Z?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
