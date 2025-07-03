@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月03日 18:52:31（北京时间）**
+🕒 更新时间：**2025年07月03日 19:01:14（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Liverpool FC say they are devastated by death of their player | [阅读全文](https://www.bbc.com/sport/football/articles/cx2kx7w7m34o) |
+| Liverpool and Ronaldo lead tributes to Jota | [阅读全文](https://www.bbc.com/sport/football/articles/cx2kx7w7m34o) |
 | Diddy's secret world revealed in videos and his voice notes | [阅读全文](https://www.bbc.com/news/articles/c628r6q0n4vo) |
 | Ryanair cancels flights for 30,000 passengers in France due to strike | [阅读全文](https://www.bbc.com/news/articles/cz9k37xxdkxo) |
 | Women poisoned by fake Botox get apology from beautician | [阅读全文](https://www.bbc.com/news/articles/c89eey7jjeno) |
@@ -26,9 +26,9 @@
 | Trump's big spending bill heads to final vote in US House - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE80Mm5DaUNabWNLYWRwOUhHVlZOLVpmVlVzV0kwUW41c05fbHdBenc0Qm9UYVkxWlBJMHhXci16SEYxRV93Wmw3VE1ZbHBUVlRWU1Ytaw?oc=5) |
 | Federal judge strikes down Trump's order suspending asylum access at the southern border - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOS0NMS1VxQnBYbHNTRHRUN0sxQXNYMUxNRjFKeV94M0RkbXdsTnFtZTgtM21wcDRuMmN5NkxCcV9rUTVUdHlTbGxDU0FmR01paUR5X0JMRGNCYnBPSm5EYkJqVFl3TC1feWRxT19WaEMweC05QVVzMzJlVWdsQXJtLWZuM3dobHBE?oc=5) |
 | Unpacking Bryan Kohberger’s guilty plea deal to avoid death penalty in Idaho student killings - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNMTZNQ2JPRU1Dd09Zd3h4bVNLakNxelFtdy1zSmZiZEg5ek5WTi1pZlZ2UzRDNHVoWnN2OGlWYkhpSV9qazRFYU5EdHdnY21SMGx6a0NNRUFuc19lQjhCQ1g0RUppMktrbGVod0ZISlFYMWVHOWl1RFptMGhNRl9HT1JMY9IBiAFBVV95cUxNNmI0dUxWYnYxZ1ZnNWxmS1JTeGpGanpmVnVJbFlqOEp4Q2lmZjVBWHlYZ0ZnS1hhVFBBMV9BZFlVTEZQNXhadVo5X3NJMUdpdnBIeUp2cTFBaVY4cVltcVFjeTZfZ1VCWDNaczZ5M01FcWNmVzZ4SnZTNW12Q1hOc1lLZXNkTEt1?oc=5) |
+| As Dalai Lama turns 90, BBC visits heart of Tibetan resistance to China - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5hZ2xJXzFVYWtzRDcyb3BZSTd2U0VGWVZTaDRBN1lJYlV0S2Z6V3VEaVAySWZZaTZRdkFiWXhGdC00bVJCZmFUWUJjdG9iU0lYUUJ2Z3I0NGlIUdIBX0FVX3lxTFBlSlFKNDV4YWJ5Y0lhRDFJZ1ZmVjJkZ082NDlWRGZJT2hpYXFGZzh0MDZxRWE0MEdkQkxmSTdiNDd6d3pncjhSS0pnaVppc3JIX1FqczhHcVdnazY5aXRR?oc=5) |
 | Trump Brags About Insane Plot to Screw Musk: Wolff - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQRUwzc1d2cHNqRFN3SFYtVHlxVTRHZmY5N0F4cUdiRzZuTmFTVk5fRmJ1M3UxdjZNdU4zSktTMGtLUGx4V25XdEFpbEppZFI0azllLV84dXkySXNEVWRnSEZuRXl2T3J0LXBZaHk4d3kzQ0JtUHM0MmFndW1TeFdmLS03akRTNWM?oc=5) |
 | Trump allies caught off guard by Pentagon’s Ukraine weapons freeze - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNRUVzUXVEdTE4RHJMNUJzYmhPUXBCeXBoRWZINGd1bTBxVkJORlJobWxPaFZld2hVR0x5WmEtRXBmSmN6Y215NWxUcUZFZTlTM01NNHpwSm02dFczNHV3OWJPNE9PYS15SG0tS2RIbUdyWERCMERGSXhQcjY3UmxWU0hLQWN2cnI4RDJOa2dMcTE?oc=5) |
-| 4 Dead and 30 Missing After Ferry Sinks Near Bali - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPaU5SbHNiUnJHd0t2RDZNSXp1WnBDSmFlcWxfdWROUmRRd2VOVTIxVTJJbDNaV2RGWXhYQXhpNlEtanByNlRQYnpLVV9tcnlkSmJ6OUlkRFJGVjM1c3huSlUySS1qbXhDX3Y1NHZzSkxiN2k3ajZnY3BNUVR1RHhKVGkycw?oc=5) |
 | Summer and after-school programs at risk under Trump's K-12 funding hold - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPdklPR1RCZUt6UnBOSkpVaDEybUY3MEpUS045ZkhGM2dER3NXYjRpLWFNc3c1VUhtWjdNNjcwWWJEYmc2WWxfRkpkd2JESTNRX1U4ZTVZWWxUUGxsNm92WkRxeXRYRGpIWGl4SHgwU1hTbVB2d19UYUFHd1FEZVNqLXM3VU0?oc=5) |
 | A Dedicated FEMA Fund Will Pay for ‘Alligator Alcatraz’ - FactCheck.org | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPbVE0YlNYSk90eGdZWEp2UDdlMjdMWkI1dFV2eTRLcXdMd0lkWHJtRDdleC1DQ0ZjbWRtYVU5Y2llWUozcEQxOFF6V2xSaHJzSDlBb0NqTGcyV3l2eGFUOFRyTGtuVHZ0TjIzUndNRDdKbGk1NW5JdG81TVZKcVVueEVJaXdiUVBIejZtWWFjUmcxdw?oc=5) |
 | Trump announces US-Vietnam trade deal - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFB1LTBDVUdFcHZVTTMxVmYxWm84RGMzeDZpRV8xZTNGRFZXSGlDYkp5dWRCaFJKdkhsNFV3NmJSRk9wU1BpcnVDb0tKdzJEWmZLZ0dFekRqUm8yUdIBX0FVX3lxTE5YNndNc1g2blJqaEJreFV2ZzhPVkFnY3NvRkE4VjBWLTdzM3FlUV9PSFNyOUllR01JNDZ1dVpCdTNSc0hTS3M4ZkU3cEJ4SnVwNlpQdldvWmpNRVNkWHdJ?oc=5) |
