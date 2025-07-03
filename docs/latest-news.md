@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月03日 15:14:10（北京时间）**
+🕒 更新时间：**2025年07月03日 15:26:10（北京时间）**
 
 ---
 
@@ -10,9 +10,9 @@
 |--------|-------------|
 | Rachel Reeves doing excellent job, PM tells BBC after Commons tears | [阅读全文](https://www.bbc.com/news/articles/cly26wpez97o) |
 | Reeves' tears raise big questions at top of Labour | [阅读全文](https://www.bbc.com/news/articles/cn0qr9wlpnqo) |
-| Four charged over break-in at RAF Brize Norton | [阅读全文](https://www.bbc.com/news/articles/cly1jejw4xeo) |
-| Woman left fighting for life as fake Botox beautician apologises | [阅读全文](https://www.bbc.com/news/articles/c89eey7jjeno) |
 | Diddy's secret world revealed in videos and his voice notes | [阅读全文](https://www.bbc.com/news/articles/c628r6q0n4vo) |
+| Woman left fighting for life as fake Botox beautician apologises | [阅读全文](https://www.bbc.com/news/articles/c89eey7jjeno) |
+| Four charged over break-in at RAF Brize Norton | [阅读全文](https://www.bbc.com/news/articles/cly1jejw4xeo) |
 | BBC visits heart of Tibetan resistance as showdown looms between Dalai Lama and China | [阅读全文](https://www.bbc.com/news/articles/c5y772jlpgzo) |
 | Mass evacuations as wildfire rages in Greek island of Crete | [阅读全文](https://www.bbc.com/news/articles/cd0vdkry307o) |
 | Trump's massive budget bill in limbo after hours of delays | [阅读全文](https://www.bbc.com/news/articles/c20rrxjnx4lo) |
@@ -32,7 +32,7 @@
 | Summer and after-school programs at risk under Trump's K-12 funding hold - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPdklPR1RCZUt6UnBOSkpVaDEybUY3MEpUS045ZkhGM2dER3NXYjRpLWFNc3c1VUhtWjdNNjcwWWJEYmc2WWxfRkpkd2JESTNRX1U4ZTVZWWxUUGxsNm92WkRxeXRYRGpIWGl4SHgwU1hTbVB2d19UYUFHd1FEZVNqLXM3VU0?oc=5) |
 | US Contractors Say Their Colleagues Are Firing Live Ammo as Palestinians Seek Food in Gaza - Military.com | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxPMlM1WkdNSG9lZEJBeHlzVjF4Y01wS05WV20tWlZQUGdiM3FIa1VVaGp3bkdsbW5lcjNkYVhCaGJRRTJobHVYejV6UlFSRjFRWkt6aUlRSjZQZjZhTmVLUm9UVlVaTEJEZ1d2RXQwcEpWcHA3Zks1bnpVZDI1MkZXU3ZPaTh3WEJEdFo0d0hld2lxNXBPY0JJdUl5Qm8xNlk0RlBHY1oxbVpyMnRTbm1kM2kzR3F0b05NYVY4ZmdqbUVZcGV1MFotblo5ZlVfVjFYemfSAdcBQVVfeXFMTkNIbGViVThVXzBqcDAxS2pfQ2JTR0RIb3hSTGxIc25CaS1aM0N0M0lfbGhWU01wRGNwY3BXQkdLOVpIdlBEZXNPQWVETHdfM1c3bHVfRFh6U2dqTVhySlZkYWQ2dUtOZUlKcUgxU21EMkNrU3lhU3RiTXJ2NFN2cllQYVN4cVo1OU1LaXN6SXF4NC1QYWFkRlY2ZlhBaENQMFBfNnlFa1NDc3pSRlJ2TmJhVGpTXzRKUU5aSXdvODk4dVRTNVV5WTRROHhxbFY3Sk50QmlRVjg?oc=5) |
 | A Dedicated FEMA Fund Will Pay for ‘Alligator Alcatraz’ - FactCheck.org | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPbVE0YlNYSk90eGdZWEp2UDdlMjdMWkI1dFV2eTRLcXdMd0lkWHJtRDdleC1DQ0ZjbWRtYVU5Y2llWUozcEQxOFF6V2xSaHJzSDlBb0NqTGcyV3l2eGFUOFRyTGtuVHZ0TjIzUndNRDdKbGk1NW5JdG81TVZKcVVueEVJaXdiUVBIejZtWWFjUmcxdw?oc=5) |
-| Trump ramps up his attacks against NYC’s Zohran Mamdani as GOP seizes on new foe - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQRlh6Mk5Vb1p3eWcxSVZpbFJkNGRMN2pESGdZTS1FZTlBOUcxR0c3QkNscG1USU80ZzhheTVLS3l3RjhIdFhna3g3YmdFT1p1Tmp3Z0M3OUcyNENIcFItVVdXLTdrOC14QWFid3E5ZGtHaEtiaWJBbkozRUNORDAtU1cxTHUwOEN5M1pFSXR0RWJaN2NGeUpySTZkN2ppczQ4NFlqdWg2Um13TEtidnVnSE83bTVrOVlU?oc=5) |
+| Andrew Cuomo is trying to hang on to support for a general election bid - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNMU9sR3N4aG9SbVR3V1Q3QmNLQnVsOFR6VlN6SHBiZkxhdTM0ZzRlbXE0X2NlOGlZdGxOSlRQTnZCN3hGRERyMXVma3g4WTVDT0huMXlGMVVhdXJLZy1xaWVnOHZGenU5VmNkZVQ5ZHB4V1ZCLW1zWVlRRU8tRmxDa2RWRnNxT1U?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
