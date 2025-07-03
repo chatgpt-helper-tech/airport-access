@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月03日 17:53:49（北京时间）**
+🕒 更新时间：**2025年07月03日 18:00:01（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | As Dalai Lama turns 90, BBC visits heart of Tibetan resistance to China - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5hZ2xJXzFVYWtzRDcyb3BZSTd2U0VGWVZTaDRBN1lJYlV0S2Z6V3VEaVAySWZZaTZRdkFiWXhGdC00bVJCZmFUWUJjdG9iU0lYUUJ2Z3I0NGlIUdIBX0FVX3lxTFBlSlFKNDV4YWJ5Y0lhRDFJZ1ZmVjJkZ082NDlWRGZJT2hpYXFGZzh0MDZxRWE0MEdkQkxmSTdiNDd6d3pncjhSS0pnaVppc3JIX1FqczhHcVdnazY5aXRR?oc=5) |
 | Unpacking Bryan Kohberger’s guilty plea deal to avoid death penalty in Idaho student killings - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNMTZNQ2JPRU1Dd09Zd3h4bVNLakNxelFtdy1zSmZiZEg5ek5WTi1pZlZ2UzRDNHVoWnN2OGlWYkhpSV9qazRFYU5EdHdnY21SMGx6a0NNRUFuc19lQjhCQ1g0RUppMktrbGVod0ZISlFYMWVHOWl1RFptMGhNRl9HT1JMY9IBiAFBVV95cUxNNmI0dUxWYnYxZ1ZnNWxmS1JTeGpGanpmVnVJbFlqOEp4Q2lmZjVBWHlYZ0ZnS1hhVFBBMV9BZFlVTEZQNXhadVo5X3NJMUdpdnBIeUp2cTFBaVY4cVltcVFjeTZfZ1VCWDNaczZ5M01FcWNmVzZ4SnZTNW12Q1hOc1lLZXNkTEt1?oc=5) |
 | Kilmar Ábrego García was tortured in Salvadorian prison, court filing alleges - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNZmVmR0lGWFd3aFJNLWZGbmtrNXNDRnNpMG9VVVd4RnVnSmowaVpKTkRKdkdoQzFNbHJfeXo0WXlWUVNnQmJER3lZSzBlZXhqQm82LWp6ZXJESlRHc1hNVUNlUTVaZm9lR3EwaURJT201ZDFzVHZnWEFmbzZ5SC05YnRRdUtxOUZEYzNr?oc=5) |
-| 7 people ‘unaccounted for’ after California fireworks warehouse explosions, fire - Sacramento Bee | [阅读全文](https://news.google.com/rss/articles/CBMiZkFVX3lxTE5vUlE1MGtTY2NoTndaSURXTV9BVXJzamtJMlRoN2hycW5jVXI4S1A5ZzgteF85QjlvQXVQemZIWDF6M2RyODhjdERLQmhSOGJvTDVzN0VFUzRIZ3htTzQwZFVQZ0t4d9IBZkFVX3lxTE9aZzdMWlRWREt2eW5mQXZ3ZHV4VGlkVklRaDBSV2FSUjhmRVEtN3R5UFdOcWh1cUlxYXVGa1hqc3BrMC00Y0NMN1ZMWlFQZEFIeXV3akdTNUM4Q0Z2NUtGNGdvTmxsZw?oc=5) |
 | Trump allies caught off guard by Pentagon’s Ukraine weapons freeze - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNRUVzUXVEdTE4RHJMNUJzYmhPUXBCeXBoRWZINGd1bTBxVkJORlJobWxPaFZld2hVR0x5WmEtRXBmSmN6Y215NWxUcUZFZTlTM01NNHpwSm02dFczNHV3OWJPNE9PYS15SG0tS2RIbUdyWERCMERGSXhQcjY3UmxWU0hLQWN2cnI4RDJOa2dMcTE?oc=5) |
 | A Dedicated FEMA Fund Will Pay for ‘Alligator Alcatraz’ - FactCheck.org | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPbVE0YlNYSk90eGdZWEp2UDdlMjdMWkI1dFV2eTRLcXdMd0lkWHJtRDdleC1DQ0ZjbWRtYVU5Y2llWUozcEQxOFF6V2xSaHJzSDlBb0NqTGcyV3l2eGFUOFRyTGtuVHZ0TjIzUndNRDdKbGk1NW5JdG81TVZKcVVueEVJaXdiUVBIejZtWWFjUmcxdw?oc=5) |
 | Trump announces US-Vietnam trade deal - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFB1LTBDVUdFcHZVTTMxVmYxWm84RGMzeDZpRV8xZTNGRFZXSGlDYkp5dWRCaFJKdkhsNFV3NmJSRk9wU1BpcnVDb0tKdzJEWmZLZ0dFekRqUm8yUdIBX0FVX3lxTE5YNndNc1g2blJqaEJreFV2ZzhPVkFnY3NvRkE4VjBWLTdzM3FlUV9PSFNyOUllR01JNDZ1dVpCdTNSc0hTS3M4ZkU3cEJ4SnVwNlpQdldvWmpNRVNkWHdJ?oc=5) |
 | US Department of Education withholds millions in funding for Vermont school districts - VTDigger | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNUnJVbnE4ZlZXNXpOQjBsdnJpalhrenhtRnp0Z1ZjRWVCYlE5MG9weVNsMV9MdXY2X2hRcTJrZkh2cy1OMjRNdGZrQUI2THE3X2NfVjlwSy1IVXNqX3dhYkhiTEx1VjRIOFRyelZRZG9QZG0ydHZmZWx0N3lkRGZZVjRkdUplZ1dRaUliS3Vua0k5ZU9pQ3B3VVZrd0R4WFg3M0lFM3lrSThnVnZlLTJ5MWgweHFUZ2Z5U2E4?oc=5) |
+| ‘Spineless capitulation.’ Paramount faces backlash over its $16-million Trump settlement - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxPZkM1eFZLSnU4UmlIX0NiS014X3JOUGlWY0FadTdJdlZvbTZUVEpzQXc2RGt5VjRldnA2Vy00R25XV0tyTVh4cUQ5aVlJWFROS3dQRDdsdS1VblVWZ0JUcml3UjM1Y1JrbEJkblBRTldwa0taMVdVYlFzMkhRZ0d0d18tLTVva2p0OTY3b1c4T1JMb2VVRmRtWktKaFNjMlhZVEZuRGdlbDc4V0d1UHMxRl9xbzAxZzlLMk1nRGUyRDZUV2RfanFZdjBQdWpudnFr?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
