@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月03日 13:53:00（北京时间）**
+🕒 更新时间：**2025年07月03日 14:01:03（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | New six-day neighbourhood health hubs under NHS plans | [阅读全文](https://www.bbc.com/news/articles/cy5wpe9r1d6o) |
 | BBC visits heart of Tibetan resistance as showdown looms between Dalai Lama and China | [阅读全文](https://www.bbc.com/news/articles/c5y772jlpgzo) |
 | Raducanu ready for Sabalenka after 'statement' win | [阅读全文](https://www.bbc.com/sport/tennis/articles/c86g079z8l9o) |
-| Citroen owners left stranded over airbag safety risk | [阅读全文](https://www.bbc.com/news/articles/c0m8872n9gxo) |
+| Mass evacuations as wildfire rages in Greek island of Crete | [阅读全文](https://www.bbc.com/news/articles/cd0vdkry307o) |
 
 ## 📰 Google News
 
