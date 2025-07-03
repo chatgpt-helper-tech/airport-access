@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月03日 14:01:03（北京时间）**
+🕒 更新时间：**2025年07月03日 14:14:13（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | Four charged over break-in at RAF Brize Norton | [阅读全文](https://www.bbc.com/news/articles/cly1jejw4xeo) |
 | Woman left fighting for life as fake Botox beautician apologises | [阅读全文](https://www.bbc.com/news/articles/c89eey7jjeno) |
 | 'Diddy' denied bail after being cleared of most serious charges | [阅读全文](https://www.bbc.com/news/articles/cjd2e310k25o) |
-| House tests support of Trump's budget bill in vote after hours of delays | [阅读全文](https://www.bbc.com/news/articles/c20rrxjnx4lo) |
-| New six-day neighbourhood health hubs under NHS plans | [阅读全文](https://www.bbc.com/news/articles/cy5wpe9r1d6o) |
 | BBC visits heart of Tibetan resistance as showdown looms between Dalai Lama and China | [阅读全文](https://www.bbc.com/news/articles/c5y772jlpgzo) |
+| House tests support of Trump's budget bill in vote after hours of delays | [阅读全文](https://www.bbc.com/news/articles/c20rrxjnx4lo) |
 | Raducanu ready for Sabalenka after 'statement' win | [阅读全文](https://www.bbc.com/sport/tennis/articles/c86g079z8l9o) |
 | Mass evacuations as wildfire rages in Greek island of Crete | [阅读全文](https://www.bbc.com/news/articles/cd0vdkry307o) |
+| Citroen owners left stranded over airbag safety risk | [阅读全文](https://www.bbc.com/news/articles/c0m8872n9gxo) |
 
 ## 📰 Google News
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Trump, Johnson rush to get House GOP holdouts to back tax bill - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNTzhfT2o0Y3FOTEVtU1UzdU5sbXBnSl9kZ3lVR2txWFFNR2Q5TGU2RWdfOUxsRERxLWF6Q3pWRGhENmY2TzQwQWtvdVFJaFdWYVprZmZmTnJQVF8xN1NTbTFOSzUxVmZQQXo2bWRwQmd5MmRJZWpjb0h0ZFFCLUh3aW9hYy1feDk1bkd3anVqcjQ?oc=5) |
 | Federal judge strikes down Trump's order suspending asylum access at the southern border - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOS0NMS1VxQnBYbHNTRHRUN0sxQXNYMUxNRjFKeV94M0RkbXdsTnFtZTgtM21wcDRuMmN5NkxCcV9rUTVUdHlTbGxDU0FmR01paUR5X0JMRGNCYnBPSm5EYkJqVFl3TC1feWRxT19WaEMweC05QVVzMzJlVWdsQXJtLWZuM3dobHBE?oc=5) |
-| Inside the Surprise Idaho Murders Plea Deal That Left Some Families Fuming - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPNC1nejJNYXRDX2pmZFQ0RmJoQ2ZjZEhYbGt6OGxYaG1BS0FGVXRTUnFMdnU2U2JGcDAyYzNXRHZkUFRmV29EYnVxVklvNmhhOGdqbkxGZUkyazhZblJvMW5lUXBmM1Rrd0FxT2VMVGVZZVZ2bm12RjhXN213MWdXM1BR?oc=5) |
+| Bryan Kohberger admits to Idaho college killings in plea hearing - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNSGJMeDNjbzZhTGEwYWpTb01lbVQxX2hkb1lKVVNGaUxnMjVIdklDbjZ3SzZSaHJoS3RMWVJ3a1hudFFYWjgwRUlkZmhkRERqdVp4NDNBb08xYklwa3ktRmp6YWhFbzIzWDNXQ3RFcEFfX0ZvNzRUUm9OTzByam93Vk56X2QzbU5rYzdEaXA0aXNPWWxEbXlYRkRSMA?oc=5) |
 | GOP breaks record for longest House vote with "big, beautiful bill" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPaHFZcWt4c1N1REtxejlXYm1ER2ItNjR5eFFzMEJXMWlQWUUzdnE2ZmtGaU0yRk5vVS1EUXpZa1NkaDh6M0dQeXdkZGhMQmVZSDBySHRsV0Q0OElOeVB1dVVLYjVHS09UcU9WdFAxYlhRNTdIS1phTHBDRmk2Ukl0WmVhYw?oc=5) |
 | Trump allies caught off guard by Pentagon’s Ukraine weapons freeze - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNRUVzUXVEdTE4RHJMNUJzYmhPUXBCeXBoRWZINGd1bTBxVkJORlJobWxPaFZld2hVR0x5WmEtRXBmSmN6Y215NWxUcUZFZTlTM01NNHpwSm02dFczNHV3OWJPNE9PYS15SG0tS2RIbUdyWERCMERGSXhQcjY3UmxWU0hLQWN2cnI4RDJOa2dMcTE?oc=5) |
 | US offers assurances as Hamas said 'satisfied' with phased hostage release proposal ｜ These are details of the deal - Ynetnews | [阅读全文](https://news.google.com/rss/articles/CBMiVkFVX3lxTE9xRTJBTlZ0WFAxTDRqTlRCczZiR1IySmRtLWJpRjJmSk1Xc0pwSEtYeUN1TXQxMnFGVDZhR2s1OEl5cVcyU0lzdU5pSzc0VERNLXNzdkZB?oc=5) |
