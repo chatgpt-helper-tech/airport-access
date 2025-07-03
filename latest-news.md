@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月04日 00:27:34（北京时间）**
+🕒 更新时间：**2025年07月04日 00:39:14（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Live updates: Did House pass sweeping tax bill? Trump is closing in on 'big win' - USA Today | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNM0FHTm1vcXhKazlZb19ZalRUZ2drd2N3YVlpZ1V6N0YzeFNEQ19kOUJxN0p2Q3hOOFZoRUdkcDZRd0RQV3pNbEIzYWxwY2NZU3p3Zm5YMDJfY0NsYnFiUmpfOGpmRmVrcXA3Ym1LbmctdTAtVVdNdGlWVWZ0ek1TeEdLUFNRNVJJRGhNd2FpNzB5N2U5cWE4OW1TblpsNUJ0YlYwWGpHaF9GOEE?oc=5) |
+| Democratic leader speaks for more than five hours on House floor as Republicans aim to vote on Trump’s major tax bill – live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOSDBmQVlxdlB2UlZ2bXpmc3ZrcUVxNkhjdEtlY2tCZE1pdjYxdWJPWXNKc2FZUVhjT0tUY2ZtVTREQnRHN2ZqNzcwczZ4TnE4THVoTjBNX0hWNl9RdklwY0VrOUxESE8tWE9nUkpHVDZtZXY5dmVvakI4MGktaHZSc2hVNnBvMERvMWZnakROVWJESnpLOHc?oc=5) |
+| Jeffries calls out Republicans over Medicaid ahead of final megabill vote - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxPUkhVNVBuY1dDWnhWdnVTc3pVb2Ffc1I3V3ROWUI3eXNkcS11NUJYN2Z5ckZaN2ZJamhOT0VxSzRzeHhVNVR0aFBGRmtTc092RnVVcDF0R2F6NnhrWEpVQkpqanloVUFFUF84N0xkMFpsXzRlODBxakFFY1dvcEI1YWVjWDNaRzdLdXY3OG80OEJDMTdRNnlqY1V6a0k3d3RIZW05c1A2Mld6LTdISnl1VFEtUXBaY21XS1gzSQ?oc=5) |
+| 4 Dead and 14 Injured in Chicago Drive-By Shooting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE1zOWQwVkZjVkpQT015UzVXMDEtYXo5R3RuUDFxaktxbEhYbTZ1TkVCNXpOZV9ZVkpJd0EyVUlqTGNCS0FIWjdLSkx6TFdiRkpMZ2dCRUFqeFl6X2JxZS1uMFBPNzg2eWxPNkZz?oc=5) |
 | Supreme Court to rule on state transgender student sports bans - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOdHNyMjZoTEFVMlVKLXJac193cU9RSjZIN04ydmlBRW5oTHdrNW9FSVFRVmlSVjUzeFdOd0RnLTlKWVNCMzBfUW54OGh0cTctZ3l1M2VrOGRpaER5T0xkNWpMdy05QVBNbWRob3ItNmNwQ3lRZTl2aDR0UGxFdE9xUkNfQVFVZ09zT3FLNk5fTmhLZkt4M2syOXBucDBEWlpSYUtuZG5aUEFtdkhLNDI5R1dCZzQ?oc=5) |
-| 4 killed, 14 hurt in Chicago mass shooting: 'Absolute chaos' - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOUEQxeWlLV2FiOXNaUjJLbU5IME0taGRxejFNUzgxZEdqU01PTG81OUNKSDFQenQ4Y1ZuN1M5ZTJPWVNNWlplU1VUTl9LWEpaRE9yQ0RFeE1YNHF1MFctV1l4dnZMbnZ5SUd2SFU2X0kwZlFENFE4TkpBS1BRNFFOeUI1bVdBY2Y3VEVxZE1tMF9lWGp5bmfSAZsBQVVfeXFMUFJpRmpsQXJsUTJ5NWllVXJMWXYtSXdKQlhrLTR2MmZCYXVHZUdqVlFOcFRPM3hvbkpYWERYUDhaeVhTWXFEQWxUeW05OWp3Zm9nZ0hBYl9QNUZhOVdHZ2Z0S0k2cVZIdHB3MTI5U0lSa3VMNXBpSUhGRkJyYmN6UTNLNlhmQzVOelhhcjJiTmRVRk16UWJ5bnRGNlE?oc=5) |
+| Kilmar Abrego Garcia says he was beaten and subjected to psychological torture in El Salvador jail - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNWk1aM3d2c01ZbWRlaERJZTEzb2x4MzdpZzluODM0LXFRcmdqdFY1WUtsQmwyOURhV1RScHBzNXRuS3dMVlMxUTNNc2s3UnB3dEo5djU3dUU4S3Ricm5QLUR6c1QyMnFjdVZSeUtnazRZcVY5N2F4M0hteXMtVnlXaGM2dHNVQlplWU5jbGxDTzBJdmZMdDZDUTFodG1MMDJ6UEwzS1p0N09TN1Bhd2dnNW5NanFERzBfMGc?oc=5) |
 | Unpacking Bryan Kohberger’s guilty plea deal to avoid death penalty in Idaho student killings - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNMTZNQ2JPRU1Dd09Zd3h4bVNLakNxelFtdy1zSmZiZEg5ek5WTi1pZlZ2UzRDNHVoWnN2OGlWYkhpSV9qazRFYU5EdHdnY21SMGx6a0NNRUFuc19lQjhCQ1g0RUppMktrbGVod0ZISlFYMWVHOWl1RFptMGhNRl9HT1JMY9IBiAFBVV95cUxNNmI0dUxWYnYxZ1ZnNWxmS1JTeGpGanpmVnVJbFlqOEp4Q2lmZjVBWHlYZ0ZnS1hhVFBBMV9BZFlVTEZQNXhadVo5X3NJMUdpdnBIeUp2cTFBaVY4cVltcVFjeTZfZ1VCWDNaczZ5M01FcWNmVzZ4SnZTNW12Q1hOc1lLZXNkTEt1?oc=5) |
-| Media's death by a thousand cuts - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPX2w5V2RwYlVWMG5PNnZXTjE0RG83LW5LSkE5LTJBckdVbXpnQkFTbjROOFFFQ0hTaGxtNXRkanVSTmpTTjdaVkRJSDRBdUF2cEVDSlhiM0hOY014dGlPaDR0YkEwVkNoT1R4QXdoZWkxTko3T0hKV0w1T1l5dC1VWWY4QQ?oc=5) |
-| Donald Trump and Volodymyr Zelenskyy to discuss pause to US weapons deliveries in call - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1mN1NSOWhmeVlreWxPVzRNUE03Ml9PeFJ2N1pfa0dYWXVsRXlJT0ZYUkhRVDlicXB6SV9WamV5UzQxclR6NUdZVmRram1sY29Qc25oUTVRSHNibjlsbWFtTWljd2pJeFl2dDcwNE9DY2E?oc=5) |
 | China criticises Donald Trump’s trade deal with Vietnam - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE11WUxVM1p3SnJ2VlUwUVB4STB5VTN4U2pMNFJKTWhxRE82WGJ6Z1ZNQi1DMEp6VDg4NVVqRGFhOUczcktxTGo3ZUdycW9XQmR1OEg3NVhJSkZnZzJCNHFBRVZRRXNWd1V5cG54ajZkZGc?oc=5) |
+| America’s ominous new halt on weapons to Ukraine - The Economist | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOdmNoTzRiSHdUZHduX3FnVWlEWDZCNDMzYnFQeEs2VWlHSWljYkRaUUJjb2FnRG40dVdMZVQ2T3ZTSEozdk5RRVR3R1YyZ21FMUFGUkpORkxkLWZFd1lyc0JoRG55SVpWZzVTZmZTSkF4b1Y1RE1YMUNkWjNLZXpjTjdGRHFKR1Q1b1ZIbUY4bTFGdEkwRnc?oc=5) |
 | National Hurricane Center Tracking Possible Tropical Or Subtropical Development Off Southeast Coast - The Weather Channel | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPZnduTDZNSnRvTmdPUmFPT3lQcld2dE9IaUYxZ0pKbGRURUwtcE1NNUY2c0lMUHFTMHhUTFN4Ym9uYnlvVVBOODZ6TnRHd1Axc09vTmlLSVoybTh2YzRoTTRQWklvN1Jka0xKM01Fb200ajNBUFZvX29KbzQxeThpbkpxdTdITXFPUmdzeW9uVGg2MHBkOUJDYm5ESTJoeTJDaFE0eHBfTWlpMS1mOUNpeVBiX2Y?oc=5) |
 | San Francisco progressives eye Mamdani’s rise with envy - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNR0ZUTGl4N29OekJIcUg1NWZFeUdiTlY0YVlCSWxzeFFGYW0xOGpzajdIaUFaREpTdVJvczNjUGk5NmZSc2pWbWxyUHdIUXM5UDFRWWNWN1V6dnZHYjF6dUY4WGZYcmhlU2ZnYlVCSjFqSDNNOGpTcEw0RHpPMldmQW91TmFDcjFidUJ5UVpKZFY4VnhVT000XzdFLW52M3dzRDFkNnFSYw?oc=5) |
-| UK borrowing costs fall as investors' nerves ease - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1sLTU5LUxVaXFiQUllRXdmN1VpSEJmSVR2ckNWSFA4R094Mng0TVpJcHNBLVV0WjlPb3RsdUFSRDBPNW0wTlpfUE5SX2Q0bUJsTGdfbGF2MFV6UdIBX0FVX3lxTFBfT08yOFpFZDVEdmMxLWE5WjROUlFrcDA0cDlsNlRtREhXOGtjN0FpNlF1N0JRRVdKS3JuNFFzNzdxQ1Y4TnZWaFVvaVZTeG1qWXBPREdkZnlsM0w5MDlz?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
