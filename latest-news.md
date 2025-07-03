@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月03日 15:26:10（北京时间）**
+🕒 更新时间：**2025年07月03日 15:39:57（北京时间）**
 
 ---
 
@@ -11,11 +11,11 @@
 | Rachel Reeves doing excellent job, PM tells BBC after Commons tears | [阅读全文](https://www.bbc.com/news/articles/cly26wpez97o) |
 | Reeves' tears raise big questions at top of Labour | [阅读全文](https://www.bbc.com/news/articles/cn0qr9wlpnqo) |
 | Diddy's secret world revealed in videos and his voice notes | [阅读全文](https://www.bbc.com/news/articles/c628r6q0n4vo) |
+| Trump's mega-bill heads for final vote in overnight US House session | [阅读全文](https://www.bbc.com/news/articles/c20rrxjnx4lo) |
 | Woman left fighting for life as fake Botox beautician apologises | [阅读全文](https://www.bbc.com/news/articles/c89eey7jjeno) |
-| Four charged over break-in at RAF Brize Norton | [阅读全文](https://www.bbc.com/news/articles/cly1jejw4xeo) |
 | BBC visits heart of Tibetan resistance as showdown looms between Dalai Lama and China | [阅读全文](https://www.bbc.com/news/articles/c5y772jlpgzo) |
+| Four charged over break-in at RAF Brize Norton | [阅读全文](https://www.bbc.com/news/articles/cly1jejw4xeo) |
 | Mass evacuations as wildfire rages in Greek island of Crete | [阅读全文](https://www.bbc.com/news/articles/cd0vdkry307o) |
-| Trump's massive budget bill in limbo after hours of delays | [阅读全文](https://www.bbc.com/news/articles/c20rrxjnx4lo) |
 | Child grooming investigations delayed after evidence redacted, report says | [阅读全文](https://www.bbc.com/news/articles/cgq7n3lyyjqo) |
 | Citroen owners left stranded over airbag safety risk | [阅读全文](https://www.bbc.com/news/articles/c0m8872n9gxo) |
 
