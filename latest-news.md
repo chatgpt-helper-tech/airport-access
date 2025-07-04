@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月04日 14:00:30（北京时间）**
+🕒 更新时间：**2025年07月04日 14:13:51（北京时间）**
 
 ---
 
@@ -8,16 +8,6 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| I understand what Trump cares about, says Starmer | [阅读全文](https://www.bbc.com/news/articles/cq8ze23vx4po) |
-| Gaza aid contractor tells BBC he saw colleagues fire on hungry Palestinians | [阅读全文](https://www.bbc.com/news/articles/cnvmry71q5yo) |
-| Death of Liverpool forward Jota leaves football world in shock | [阅读全文](https://www.bbc.com/sport/football/articles/crl05r070wro) |
-| Home Office unaware if foreign workers leave after visas end, MPs say | [阅读全文](https://www.bbc.com/news/articles/cwykw93d393o) |
-| Oasis 'sounding huge' as comeback tour launches | [阅读全文](https://www.bbc.com/news/articles/cz7l1x7x80ro) |
-| The sale of illegal cigarettes signals a deeper problem with UK high streets | [阅读全文](https://www.bbc.com/news/articles/cy9097lwxg9o) |
-| Watch: Mini mart workers selling illegal cigarettes confronted by BBC reporter | [阅读全文](https://www.bbc.com/news/videos/c4gkwqwwzp9o) |
-| Zarah Sultana says she is quitting Labour to start party with Corbyn | [阅读全文](https://www.bbc.com/news/articles/cwyel9kgdvdo) |
-| Katy Perry and Orlando Bloom confirm split | [阅读全文](https://www.bbc.com/news/articles/cj61x8r552ko) |
-| Congress passes Trump's 'big, beautiful bill' cutting taxes and spending | [阅读全文](https://www.bbc.com/news/articles/cddz3n6vz0go) |
 
 ## 📰 Google News
 
@@ -30,9 +20,9 @@
 | First immigration detainees arrive at ‘Alligator Alcatraz’ in Florida Everglades - PBS | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNQndBOGRBd3lkanVJbkpLT3NvUWdRLVVmUFlheUdFSnFuTms4dzN6Y2NDRkthT1JXT2p2NGp5RDNBRENJNlBTOEV6ZmR3Z3gtUkdQM2ZZWXhNd3pJQWpFWTlQSTgxRENRVTdPdGViRjBWRVpJc0hCeWFSbXh5eEV0dDJQZldVTWo1XzY1X3MzMzFjWUU4S0pZeHVHcVZiVDhzMEswamZRZ3A0VUtrZ2owZzJ4ekLSAboBQVVfeXFMTUw0ZkZNamNhdFZLWUJPcl9MVU1yUEptN1NsMTZjc1p5OUNEMU9JUHhsNmxHb2E5eWJHai1TOEZlQkQzbTBGdkNrbk85TEI3bHpiT05vaDc0MmhydFJmVjRWVGhEaFh3SW1IbFVrUi11TUpkdEFVYW93WkY3MDl6Z2RHdlFNZ1RNSjUwWTlILUNqMmxCeFo2TkxTSVNLbDFnREg3WURTQXpmbXpVU19FQkI5N3RObVVaMVVB?oc=5) |
 | How the GOP spending bill will fund immigration enforcement - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOMU9XVHFXeGlzUlBmTlRScEVJakR3a18xbWE4MXZTQ3BESWhVQ2hfVWl3OWNCSDh1VmlUbVdid1F5TVZINm5vUXp0cUpZWGJ6ZEtDcUV1Q0lnTHpJdWJkRDVjWTNzQ1laMHRsanBKeVo5MWpYQmQweE0wNGdYckhrYUtPUDQ3NUtNb0Z4eE1HZFU3UQ?oc=5) |
 | Trump says he made no progress on Ukraine in his call with Putin - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE14WTBOYVY4RDhVV3BZVi15NVhWNkY3Z0FxQkR6YVhZUWFWSjUwV1dzZGRDNHV5b3c0bXNjclFkVG9OdjU3LVJ6a09TT2U2SlpqUTYtSUdzSHk4NDR3TVJoSE1PWi1XRnh4UjFORDlLZzI?oc=5) |
-| ESTABLISHING THE PRESIDENT’S MAKE AMERICA BEAUTIFUL AGAIN COMMISSION - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxOaUptOGx0NFIxTjE2RGw4U0ZnVHY5QmZIOW1KM1VremV0TWF4blYxMjROcks5OE5sWFc4ZWhoTHJfbFI2ZDB5ZXJmQXJFVjZlTnVtYVJqUVlrSFdxQkUxSWNuSzRTOHpwbmpBd0F2YTlrZG11bjhULXFVa3lTTXhtMUl3VGU4MVRTSVlzMFNfVkhwdWsxV3dpZ0dpdkJGeWt2c3dHM0VLX2tjZmFKNFFTaGxRSVlLZGdCTXVsa1NJNTJtUQ?oc=5) |
 | ‘Disgusted’: Kohberger’s former friends, peers react to guilty murder plea - Idaho Statesman | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE92cUlXUnBoS3E5bmItWlZZRktteEZRZFNGcmVCY3A0cG9RempBNTJKMnRfMDg2UVI4MUNJbnpBOU9MVnpwM1JHYW9YcHhWbVQzV1RhYXkyVXdRNDlPZUpfMW5RX1JGRXBpanVMUUwwdlM4Tk4xbVdnWNIBeEFVX3lxTE1jZUZfVTlaSU9teTdNMTdzSzZpemNSMjF6ZHVoT0lBYWdEUVJZWlpDOWdZRkY4X2JFNzZ5WVN6ZEJzSFdHQ3hVaC1TbEs1Q0hEeVEwUjVQRlVrQXFoaDQ3OWotcGtJOXNqUWFWdk9vd05PUUtxSC1zRg?oc=5) |
 | Missouri officials warn against swimming at 4 beaches due to high E. coli levels during July 4th weekend - KSDK | [阅读全文](https://news.google.com/rss/articles/CBMi9gFBVV95cUxNTVhCTlpNR0NNNk03TGtrOE05SEpXdUo0bWlsb2JwOXNvQ0ZqVjhlQ2pwcFFwTkhyeFc2LWl6Y1I5UW5TbXlfRWdXblZ1blJTRVlTYXZVVlMxZlFtZnpEaHItMnRCZWFwVnI5bXl4SUdWRElkWUV5T3FvZHF1S2NLMFAybGJWWEh5LWN4anZBSHQtWW9ZdEIxOElVTl9mWkVDNjJvdXhpTVFDaEJuc2lJazJhVDFFdmtfUTFVNDJyeFlRaDVFY0t4WjF3OVZIRVAxMGlrRncwRU1TamFyNWZuV3JlQnEzYUo5WHQ2YjhLc3Ziemd6NUE?oc=5) |
+| Los Angeles cancels some July Fourth events amid deportation fears - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNdW9oa2FNR1FtRkp6Q3lFQU1QSWNVRXd4VURTYi16ZHVVR0tKY09ZaTI4VW9pV3NaeUhOMkI0Vm5RUmNvVTlobkVYYUI2bnY2blRuNHY5bHhKbTlNbDhUVWtqUnpoVy1xSkozZ2dCNVYyblktQ2Y3SWNmSmdSTlR6SkNKOUw3OXVoQUkzZGFwV2FxemJpT1VXRWZtblNuNUNISGlaUXZMd9IBVkFVX3lxTE16eDFpRHpGMjNoMFRPWkpWN2tfY2xRN0JhT0dJbWVWUV9mZnZ5U3NYdnVXTHpEZnBuVmlFN2tQOWdGRFhSV1UwMm5BTE1VX0pqcG1HVGlB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
