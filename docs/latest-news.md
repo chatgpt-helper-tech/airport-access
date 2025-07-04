@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月04日 22:52:11（北京时间）**
+🕒 更新时间：**2025年07月04日 23:01:27（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | ICE prepares detention blitz with historic $45 billion in funding - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNQ21vazhQMFBFMmNXMlFQcWJiaWdGMGdMaWtiUTRmUjY2TWZuSjYtSTZlY0lYc1BULTBIUWtsUFZjSTJoUlRHOE5IdzUxVTNjVVNlN0VUZ29lZ09IYnQ0c1h0RlBnR3VfMWYxd0tmM0JIeTFoeEtaTDFjMHk1UGZCZzhNTF9nSFVYWFZFcDFTYw?oc=5) |
 | Trump's tariffs deadline is looming for Europe. Here's where things stand - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQbGxPeFh1UUp3MGk1QzdvMHhfNUNBZ2FkVnNMUWw1ejl6YmVSUGFNanlRSGRkNW00Si1qQW1KNk50YUNXNkFkanNBM05rN0xMNFdpa05ISUEtUHVGNTFidnQxTVZ3MlpONko5UVlYODZIY1pXVG9ldVdLYXRZUGV2d0VPNDM1VG9kUGpVYmlrWXhGYW9VWXdpWUVmNVJzQ0dVd2hfVmIzSmRZa1HSAbABQVVfeXFMT29tck1iZXRxbVEyQ0g0bmFVOHg0ZFJaLUtacXRYbzdyTVZrcC1FZmpxMUxqa1o3M2JoMGNXWlRsajViNUY2VGRQTklOZEJwMVp3RTdNMEozUU9hWG1uaHBtLTBhOEpXdDVUZEN5d2hscTZZYVlGVC0zZGlGaW9OMFAtRUVZQUllZ1g3eVd2eWcwQWZWcy1COVpTZjdMbzFSQ0xfdmxKSXFGUkc1TlFObDU?oc=5) |
 | White House to host UFC fight, US President Donald Trump says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9iajM2NVRGVjdjSVZiX2NLNFVReVZnYjdWQXlxTjVmbS1WMUpIZ3U0d0pCUE5QcldPajlkeVRxbnRVNXZnMjBGcXdxUDhPWHd3M1RtRUtiQ2lCd9IBX0FVX3lxTFAzYVFhYVpwRmVMampoNkZiYV9ZYm9fZTVBZlhyTUJ2R09KSWtlR3c3bHhrLVo2OUhSeTNUajFOZkhZMzhuVnFCdENtUVRwVHBubWdXVEt5dHZnazhrTXRn?oc=5) |
-| Madre Fire explodes in size to become California's biggest this year - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBpSTBRcU1la09JNkZTUElPVzh2eV9Yc25jcDFkenVfUEg1STk2UzFldk1zaW5Jdzc5eFFVVjB1cEczSzExZGdyUkpIbXI5LUh2R1dGNU5MREc3dllFV09tODQ0cjlJem1aeUhCMDk4TWR6cGFiQ3c?oc=5) |
 | School districts warn Trump administration withholding funds could bring cuts - KUSA.com | [阅读全文](https://news.google.com/rss/articles/CBMi3gFBVV95cUxPOW92TmlqYjlHU0ZxZXlYeWxYcTEzdHhhaC1yZkFwYmZWSXhQSVprQXBCUUJ2TW1TaUdHekYzWTBaWFRvd1hUX3Yza0VLQXV1V1RyMWRsVVZkUnZuY3cxOS1hT2g5YnZwWUJNZVZLZkZ5ejdGeTNzand6TnhJaUtOT2xQTTFSOURIQmFGNFhod3RDOWpKRjJUcU1KR2VpYUFSTUUwTmk1UF9SVk9ZaXpJakd1Vmc0YklIWEwzVGFEd01WeDVKNFgwTHY4Zk1BWDUwblNuUWIwSlBMT3NwbUE?oc=5) |
+| Madre Fire explodes in size to become California's biggest this year - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBpSTBRcU1la09JNkZTUElPVzh2eV9Yc25jcDFkenVfUEg1STk2UzFldk1zaW5Jdzc5eFFVVjB1cEczSzExZGdyUkpIbXI5LUh2R1dGNU5MREc3dllFV09tODQ0cjlJem1aeUhCMDk4TWR6cGFiQ3c?oc=5) |
 | Trump Says Call With Putin Yields No Progress on Ukraine Cease-Fire - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPQmJTNnNiNEVxUGNneFQ3LXhoRnBvZWlFRUNCR3RLamhxbHJNLWVEdVVrQkdWUXZfU0JQNnIyQ1FyNWlqbThIdGRSVVdzVVlkVzRVelhLV0R2MW5QS2xPaW9xMGNIZ3NFRkhVRFhhdGUyeW16MVBNUk9FbVVNbnRvakVocFNPQS0y?oc=5) |
 
 ---
