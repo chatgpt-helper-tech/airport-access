@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月04日 21:27:54（北京时间）**
+🕒 更新时间：**2025年07月04日 21:39:50（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | Kent council bans transgender books in children’s library sections | [阅读全文](https://www.bbc.com/news/articles/c6257p2vry3o) |
 | Discussions ongoing about new party, says Corbyn | [阅读全文](https://www.bbc.com/news/articles/cy0wvkg492ro) |
 | Manchester Airport brawl followed assault at Starbucks, jury hears | [阅读全文](https://www.bbc.com/news/articles/cn5kqe01r5zo) |
-| Hamas says it is consulting other Palestinian groups on Gaza ceasefire plan | [阅读全文](https://www.bbc.com/news/articles/cnvmrmvp98go) |
+| Elephant kills British and New Zealand tourists in Zambia | [阅读全文](https://www.bbc.com/news/articles/cp86jkdn838o) |
 | I understand what Trump cares about, says Starmer | [阅读全文](https://www.bbc.com/news/articles/cq8ze23vx4po) |
 | A year in power - BBC correspondents assess how Labour are doing | [阅读全文](https://www.bbc.com/news/articles/crenvyrnv33o) |
 
