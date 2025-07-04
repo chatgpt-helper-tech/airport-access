@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月04日 12:52:21（北京时间）**
+🕒 更新时间：**2025年07月04日 13:00:17（北京时间）**
 
 ---
 
@@ -10,8 +10,8 @@
 |--------|-------------|
 | Gaza aid contractor tells BBC he saw colleagues fire on hungry Palestinians | [阅读全文](https://www.bbc.com/news/articles/cnvmry71q5yo) |
 | Death of Liverpool forward Jota leaves football world in shock | [阅读全文](https://www.bbc.com/sport/football/articles/crl05r070wro) |
-| Tears as fans mourn Liverpool's Jota at Anfield | [阅读全文](https://www.bbc.com/news/articles/c1dnxwl3513o) |
 | A year in power - BBC correspondents assess how Labour are doing | [阅读全文](https://www.bbc.com/news/articles/crenvyrnv33o) |
+| Katy Perry and Orlando Bloom confirm split | [阅读全文](https://www.bbc.com/news/articles/cj61x8r552ko) |
 | Diddy's reputation is tarnished, but could he find a way back? | [阅读全文](https://www.bbc.com/news/articles/cd0vdx41ddzo) |
 | The sale of illegal cigarettes signals a deeper problem with UK high streets | [阅读全文](https://www.bbc.com/news/articles/cy9097lwxg9o) |
 | Oasis 'sounding huge' as comeback tour launches | [阅读全文](https://www.bbc.com/news/articles/cz7l1x7x80ro) |
@@ -27,8 +27,8 @@
 | Boyfriend, friend of rapper Mello Buckzz among 4 killed in River North shooting - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQQkxmNWNNbjl1UkZybU90ZnB3dldNSWhCcTl5WG1RS0R4QWdzQ3Y4NHRtY1dKaExKUll3cG9wN2QwTFpFUGEyODRQRFMzWmUtMk0zb0NZWWZOamJ0aHVpNWc0Sk05XzVmZzlwRzMycjFxX3lobmdkTzZ3ekl6aW5aYlZPdFFFaEhkekI4ZlZwdUNJZEJGZml4eWpXczdQcGljVEZGTEFFWXZ3MTZodWUtNVVLZThWNzlRVnVN?oc=5) |
 | How the GOP spending bill will fund immigration enforcement - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOMU9XVHFXeGlzUlBmTlRScEVJakR3a18xbWE4MXZTQ3BESWhVQ2hfVWl3OWNCSDh1VmlUbVdid1F5TVZINm5vUXp0cUpZWGJ6ZEtDcUV1Q0lnTHpJdWJkRDVjWTNzQ1laMHRsanBKeVo5MWpYQmQweE0wNGdYckhrYUtPUDQ3NUtNb0Z4eE1HZFU3UQ?oc=5) |
 | How Trump’s big bill will affect you, from Medicaid cuts to tax credits - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNUHRpWGxNZl81OGJfU1M5MGhncFh2blZhTlZTX2ROVW82NHRpNzFIYWlJaWNRVks5Q2hMVnlzczg0R0lxWlNlb3dZbndFemVfRWJTUHVBcUlnanpDeEdXNmZ3UGtWcWtSWUZ6MThsX284TlFoT1NvdnpZcE8wTjRLR3dCOXFWSW5fbklqOTN4N1RmZXExYjFEdg?oc=5) |
+| 'Immoral': Democrat Hakeem Jeffries blasts Trump megabill in record-breaking, 8-plus-hour speech - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNc25fSTJINF9ZOVNhQ3pRbGVBNjI0RzZyUjlFSGZ6Z2ZGdGRzUFNrbTI2WXhvZlJ3Zks4emdmUy0tZTVxc1UzRlU2dDI5Z0cwT25xaGxSSnlqTGo2X0ZoNmkteGRDdEZRT2tQa3h1dW5rLXowRlh0YUc2dUlJeGF4TFEzd2xGNy16TERmeDc3eDZDX1kwQmp1WEY5elpzTkMweG51UHVxQlFSUHBEUmVMSNIBtgFBVV95cUxObFl1YnU1Rk8ydmg4VU1LVE5MNDhmb2NpblJPLVJWZTZBUnpxMDhWT3dndXdJNDhvbVl4YmJwSW42d2NOdkwwX3hTa2h6VTRScG9ZR2hicmJyQW5aVGNHV0VVLTJKQ25oMEtJakRLYVVpMk5UeVJyX0lHUEF4cHRYd3VTNzd0U3Q1VzV3WVBUWktKY0pDT2VKbHFGMU5ZdWotTkdxU1poSmFJd25tRGdXWW5Uck5wdw?oc=5) |
 | First immigration detainees arrive at ‘Alligator Alcatraz’ in Florida Everglades - PBS | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNQndBOGRBd3lkanVJbkpLT3NvUWdRLVVmUFlheUdFSnFuTms4dzN6Y2NDRkthT1JXT2p2NGp5RDNBRENJNlBTOEV6ZmR3Z3gtUkdQM2ZZWXhNd3pJQWpFWTlQSTgxRENRVTdPdGViRjBWRVpJc0hCeWFSbXh5eEV0dDJQZldVTWo1XzY1X3MzMzFjWUU4S0pZeHVHcVZiVDhzMEswamZRZ3A0VUtrZ2owZzJ4ekLSAboBQVVfeXFMTUw0ZkZNamNhdFZLWUJPcl9MVU1yUEptN1NsMTZjc1p5OUNEMU9JUHhsNmxHb2E5eWJHai1TOEZlQkQzbTBGdkNrbk85TEI3bHpiT05vaDc0MmhydFJmVjRWVGhEaFh3SW1IbFVrUi11TUpkdEFVYW93WkY3MDl6Z2RHdlFNZ1RNSjUwWTlILUNqMmxCeFo2TkxTSVNLbDFnREg3WURTQXpmbXpVU19FQkI5N3RObVVaMVVB?oc=5) |
-| Holdouts say Trump promised he'd 'make the bill better' in the future - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOSURqeWJ0MzE5a0p5SDY3YTQ3NFNJTDBFdHd1eHFfQzh4cC10MWllOE5kWjgxdVFnb3VwN1RwTm11bDhWMEtnRnVIczdDaVNFendNVk1uamJXTFZVRkFVbnZFcUJxSW93blllaUJLNDBoejdkY1djeWpKTTFvbXFQeF9IeFJwQXpsYi1BVGZFeV92ME5JX0wzVWxETdIBoAFBVV95cUxQcEVYb3ZnZXVITF9tSzFaQzFnWUppX01CSTI0R242OGpWc0VpdEZ3MVZjMjVRYXZzY0RMYmZzc29kNHhTN1lJMGtFckI1Z2RqYUYxbmdhUk9rSjZEMzlDNHk4bHF3Y0tDb0F1VEswQmxQTG1PREtzUGdwQXhNY3BVTmFpZHZDM19xaWFfQTJjYWZjNVFBT1VCZmN4ODJlWlAy?oc=5) |
 | ESTABLISHING THE PRESIDENT’S MAKE AMERICA BEAUTIFUL AGAIN COMMISSION - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxOaUptOGx0NFIxTjE2RGw4U0ZnVHY5QmZIOW1KM1VremV0TWF4blYxMjROcks5OE5sWFc4ZWhoTHJfbFI2ZDB5ZXJmQXJFVjZlTnVtYVJqUVlrSFdxQkUxSWNuSzRTOHpwbmpBd0F2YTlrZG11bjhULXFVa3lTTXhtMUl3VGU4MVRTSVlzMFNfVkhwdWsxV3dpZ0dpdkJGeWt2c3dHM0VLX2tjZmFKNFFTaGxRSVlLZGdCTXVsa1NJNTJtUQ?oc=5) |
 | Trump says he made no progress on Ukraine in his call with Putin - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE14WTBOYVY4RDhVV3BZVi15NVhWNkY3Z0FxQkR6YVhZUWFWSjUwV1dzZGRDNHV5b3c0bXNjclFkVG9OdjU3LVJ6a09TT2U2SlpqUTYtSUdzSHk4NDR3TVJoSE1PWi1XRnh4UjFORDlLZzI?oc=5) |
 | Julio César Chávez Jr., former world champion boxer, detained by ICE - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNdWF0Y0lQS3FCb3VieWY0VklnbGw2RjVyeDJUbTBid2h3VjJ3czRfdE1fd083enRfNEI0bzBOUFRfUlJUcVBIdXNheWlaTUJfUUNHMU0xR1V1UVVYdEgyMFpHbmlPR1hpcmliN2ZRSFVNRTBFWVhQbTRsUjhHYXZLWWJXYlR5X19VSFVQZE92ZElwU3puM2JHX3dR?oc=5) |
