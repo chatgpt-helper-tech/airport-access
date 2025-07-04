@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月04日 21:52:57（北京时间）**
+🕒 更新时间：**2025年07月04日 22:00:25（北京时间）**
 
 ---
 
@@ -9,6 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | BBC on French beach as police slash migrant 'taxi-boat' heading to UK | [阅读全文](https://www.bbc.com/news/articles/c5ygjjxjlplo) |
+| Footballer Thomas Partey charged with rape | [阅读全文](https://www.bbc.com/news/articles/c39zr7y9ep3o) |
 | Kyiv hit by barrage of drone strikes as Putin rejects Trump's truce bid | [阅读全文](https://www.bbc.com/news/articles/cx2g3qvz0pvo) |
 | Starmer told me he'd met every challenge. But things look bad right now - very bad | [阅读全文](https://www.bbc.com/news/articles/ckg5dgr4mepo) |
 | Kent council bans transgender books in children’s library sections | [阅读全文](https://www.bbc.com/news/articles/c6257p2vry3o) |
@@ -17,7 +18,6 @@
 | Elephant kills British and New Zealand tourists in Zambia | [阅读全文](https://www.bbc.com/news/articles/cp86jkdn838o) |
 | I understand what Trump cares about, says Starmer | [阅读全文](https://www.bbc.com/news/articles/cq8ze23vx4po) |
 | A year in power - BBC correspondents assess how Labour are doing | [阅读全文](https://www.bbc.com/news/articles/crenvyrnv33o) |
-| Watch: PM talks about his 'good personal relationship' with Trump | [阅读全文](https://www.bbc.com/news/videos/cr4we4gl576o) |
 
 ## 📰 Google News
 
@@ -28,8 +28,8 @@
 | How Trump’s big bill will affect you, from Medicaid cuts to tax credits - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNUHRpWGxNZl81OGJfU1M5MGhncFh2blZhTlZTX2ROVW82NHRpNzFIYWlJaWNRVks5Q2hMVnlzczg0R0lxWlNlb3dZbndFemVfRWJTUHVBcUlnanpDeEdXNmZ3UGtWcWtSWUZ6MThsX284TlFoT1NvdnpZcE8wTjRLR3dCOXFWSW5fbklqOTN4N1RmZXExYjFEdg?oc=5) |
 | Trump's tariffs deadline is looming for Europe. Here's where things stand - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQbGxPeFh1UUp3MGk1QzdvMHhfNUNBZ2FkVnNMUWw1ejl6YmVSUGFNanlRSGRkNW00Si1qQW1KNk50YUNXNkFkanNBM05rN0xMNFdpa05ISUEtUHVGNTFidnQxTVZ3MlpONko5UVlYODZIY1pXVG9ldVdLYXRZUGV2d0VPNDM1VG9kUGpVYmlrWXhGYW9VWXdpWUVmNVJzQ0dVd2hfVmIzSmRZa1HSAbABQVVfeXFMT29tck1iZXRxbVEyQ0g0bmFVOHg0ZFJaLUtacXRYbzdyTVZrcC1FZmpxMUxqa1o3M2JoMGNXWlRsajViNUY2VGRQTklOZEJwMVp3RTdNMEozUU9hWG1uaHBtLTBhOEpXdDVUZEN5d2hscTZZYVlGVC0zZGlGaW9OMFAtRUVZQUllZ1g3eVd2eWcwQWZWcy1COVpTZjdMbzFSQ0xfdmxKSXFGUkc1TlFObDU?oc=5) |
 | How Republicans Re-engineered the Tax Code - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOS2VkRXFJZm9kcl82YXY1bHM0eDVtRmNmNXBybWE4d1I1dW1PX0hjRlhLbG1HaVhCWjlzRTNSMWJIeFhxZnVmZEVHOXJZMnVLbTFDaGU5aHkxbzd0WG9HYUdRd1dDamVXTnhUV0lQektQYjlYMVJzWlBLc2ttd1dRRUR1N2M?oc=5) |
-| Trump looks for a win on Israel-Gaza peace deal during Netanyahu visit - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOQzZQT0ZlcTc0WHlpa00zMWpQWmdZNUg0NUh5bThIb1c5clZoYXg1R0tLcGVBeG1VMVlvYzdsaVV4cHZGZ0VXUTFhdmExb1B0dzQ5RGRBMW1YU204UndoOTZTQW85Ul9fQkJoTnNVNVV4OEE1XzUzaWl6OFh4MjItQkMzN19RZnAydDJNV082cWQtMGMyYTBocA?oc=5) |
-| Donald Trump says he wants to stage UFC fight on White House grounds - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOZmRuUE1uQWtROW1sQ1pMclR4MkhCR0ZYZGVMUW5vcFR0aUpmbTdBSGJ0SVRCUF9qOEtQazY0bGtyR1k1U2x1QXd2eGt1bkhQektvQ3VoSks0cE5pdkhMZ1FRd1B2U1NuY1lXZ1hPaVlSc2hyeHFKZEdEN1NoZHo5U09tVDFXTnJPOVRETGhoQ0JEby1fT2VaZG5OX0lUT21sM3NTU0oxUi1VRVZCS0xQc3RkYTI?oc=5) |
+| Russian use of chemical weapons against Ukraine 'widespread', Dutch defence minister says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxQTjZlZ2lTWVhPcUkxcjB6SzEyX0U0MkJGWU1ETy1Hc2R4X0g2bklubUVNOFNNZ2lJSmxQTjNSeVR4VWJSMVh1RDRsRmU4U3NXYnlleGdqSzBxcWhZX2N5aW1uR1lTNmdaSW1RSHZLaXJGQzQ5VmsxVnAwLTdPYnhoNjd0M2pHbGMwQkkwQnBRcWdrMVY5Vnd2MlJOWGUxVVQ2THBQbkZMazlzWTZoWjM4MDlBaEtmRnBPUGh3SU44bmtmNXFEaWc?oc=5) |
+| White House to host UFC fight, US President Donald Trump says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9iajM2NVRGVjdjSVZiX2NLNFVReVZnYjdWQXlxTjVmbS1WMUpIZ3U0d0pCUE5QcldPajlkeVRxbnRVNXZnMjBGcXdxUDhPWHd3M1RtRUtiQ2lCd9IBX0FVX3lxTFAzYVFhYVpwRmVMampoNkZiYV9ZYm9fZTVBZlhyTUJ2R09KSWtlR3c3bHhrLVo2OUhSeTNUajFOZkhZMzhuVnFCdENtUVRwVHBubWdXVEt5dHZnazhrTXRn?oc=5) |
 | Madre Fire explodes in size to become California's biggest this year - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBpSTBRcU1la09JNkZTUElPVzh2eV9Yc25jcDFkenVfUEg1STk2UzFldk1zaW5Jdzc5eFFVVjB1cEczSzExZGdyUkpIbXI5LUh2R1dGNU5MREc3dllFV09tODQ0cjlJem1aeUhCMDk4TWR6cGFiQ3c?oc=5) |
 | Idaho college killings: Questions remain after stunning guilty plea - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPeERGMGhFZUdnYUEzTHB2MjFXTHdpLVZJd01jTC1DTHVPN2NkRWxGSGNtNnJ0ZGtHQWxCZVVZOC1TbVJ3QmZ4YklZN2R4WkdWYkZoVGY5TVhDLTN5Tks3Vk5UUjdKaTFqNVB5M1ZESXRTVHJBZnB2VEdIdF91Q2dLbnFRM0JOSVZ2RHY4a2t5TG1WZ014UThvUHMtYUNJWmpSaUotX2d2QmVCQdIBrwFBVV95cUxPYXVmR0FHYW5lWjFKcUZyald0ZllTRlZQUWhkbVFVaTNnNTRWakw2SVZvMWJ6bWxrd3VIZHlYQ21TUXlVekNWQkxSZDg2N0RqMXBLVkFUdE9BNTE3Y2pkQlBrUXVCOWZDMzJsUlJhRFNTQjlIRnVDNExtdDZITkZRbDFHMjZxREluNEN5WGNhNFdaTFhRMzJ1Qkpud2UyMUVDRkhvUmo3Y1ctYzMxa1lJ?oc=5) |
 | Trump says no progress on Ukraine in call with Putin - Politico | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE42NXFtTXFTNlpLc2NKRVY4MVNkOWxQWjZuZ1IxdWtja0o5V09HUGd4c0ZtTEZWbXNna0tFZWJubF90SWJVVkFkSm9DYm9FeGtkRG00OW5ZQ283ZlJwWVA0SHZ1SEc3Z1FhWXdSMGZHSF9kWVZfYmdaYg?oc=5) |
