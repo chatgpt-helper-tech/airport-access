@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月04日 15:52:12（北京时间）**
+🕒 更新时间：**2025年07月04日 16:00:28（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump Wins Broad Economic Policy Shift as House Passes Tax Bill - Bloomberg | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxPUHVLdVozTjlaUHhQQ2Rwd2dRWF9VOHNYX0NwVGYwRXZjM1l1WE81bng3bmI2Nk9XNG5yVHNWcmhPZi15RWtTRFVuRlNzMmpnVlRWSDVfZ1MyWDJHMnczVGtaVXNZdHI5cEV6WmlWYUktNzV1cmxiZmRWU0xlRjNHSF9QYklvQjI3a0d2T1l6eWZ5eFl6ZnAzWU9pVW54VHE2NFZCQkUyYkx3U1F0Z2tMeEQ5aWxFcS1pdW94eW55WndaRU5i?oc=5) |
+| Trump Wins Broad Economic Policy Shift as House Passes Tax Bill - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxPUHVLdVozTjlaUHhQQ2Rwd2dRWF9VOHNYX0NwVGYwRXZjM1l1WE81bng3bmI2Nk9XNG5yVHNWcmhPZi15RWtTRFVuRlNzMmpnVlRWSDVfZ1MyWDJHMnczVGtaVXNZdHI5cEV6WmlWYUktNzV1cmxiZmRWU0xlRjNHSF9QYklvQjI3a0d2T1l6eWZ5eFl6ZnAzWU9pVW54VHE2NFZCQkUyYkx3U1F0Z2tMeEQ5aWxFcS1pdW94eW55WndaRU5i?oc=5) |
 | How the GOP spending bill will fund immigration enforcement - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOMU9XVHFXeGlzUlBmTlRScEVJakR3a18xbWE4MXZTQ3BESWhVQ2hfVWl3OWNCSDh1VmlUbVdid1F5TVZINm5vUXp0cUpZWGJ6ZEtDcUV1Q0lnTHpJdWJkRDVjWTNzQ1laMHRsanBKeVo5MWpYQmQweE0wNGdYckhrYUtPUDQ3NUtNb0Z4eE1HZFU3UQ?oc=5) |
 | How Trump’s big bill will affect you, from Medicaid cuts to tax credits - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNUHRpWGxNZl81OGJfU1M5MGhncFh2blZhTlZTX2ROVW82NHRpNzFIYWlJaWNRVks5Q2hMVnlzczg0R0lxWlNlb3dZbndFemVfRWJTUHVBcUlnanpDeEdXNmZ3UGtWcWtSWUZ6MThsX284TlFoT1NvdnpZcE8wTjRLR3dCOXFWSW5fbklqOTN4N1RmZXExYjFEdg?oc=5) |
 | Boyfriend, friend of rapper Mello Buckzz among 4 killed in River North shooting - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQQkxmNWNNbjl1UkZybU90ZnB3dldNSWhCcTl5WG1RS0R4QWdzQ3Y4NHRtY1dKaExKUll3cG9wN2QwTFpFUGEyODRQRFMzWmUtMk0zb0NZWWZOamJ0aHVpNWc0Sk05XzVmZzlwRzMycjFxX3lobmdkTzZ3ekl6aW5aYlZPdFFFaEhkekI4ZlZwdUNJZEJGZml4eWpXczdQcGljVEZGTEFFWXZ3MTZodWUtNVVLZThWNzlRVnVN?oc=5) |
