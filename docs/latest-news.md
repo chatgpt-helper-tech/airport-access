@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月04日 22:13:31（北京时间）**
+🕒 更新时间：**2025年07月04日 22:27:20（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | How Republicans Re-engineered the Tax Code - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOS2VkRXFJZm9kcl82YXY1bHM0eDVtRmNmNXBybWE4d1I1dW1PX0hjRlhLbG1HaVhCWjlzRTNSMWJIeFhxZnVmZEVHOXJZMnVLbTFDaGU5aHkxbzd0WG9HYUdRd1dDamVXTnhUV0lQektQYjlYMVJzWlBLc2ttd1dRRUR1N2M?oc=5) |
 | Russian use of chemical weapons against Ukraine 'widespread', Dutch defence minister says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxQTjZlZ2lTWVhPcUkxcjB6SzEyX0U0MkJGWU1ETy1Hc2R4X0g2bklubUVNOFNNZ2lJSmxQTjNSeVR4VWJSMVh1RDRsRmU4U3NXYnlleGdqSzBxcWhZX2N5aW1uR1lTNmdaSW1RSHZLaXJGQzQ5VmsxVnAwLTdPYnhoNjd0M2pHbGMwQkkwQnBRcWdrMVY5Vnd2MlJOWGUxVVQ2THBQbkZMazlzWTZoWjM4MDlBaEtmRnBPUGh3SU44bmtmNXFEaWc?oc=5) |
 | White House to host UFC fight, US President Donald Trump says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9iajM2NVRGVjdjSVZiX2NLNFVReVZnYjdWQXlxTjVmbS1WMUpIZ3U0d0pCUE5QcldPajlkeVRxbnRVNXZnMjBGcXdxUDhPWHd3M1RtRUtiQ2lCd9IBX0FVX3lxTFAzYVFhYVpwRmVMampoNkZiYV9ZYm9fZTVBZlhyTUJ2R09KSWtlR3c3bHhrLVo2OUhSeTNUajFOZkhZMzhuVnFCdENtUVRwVHBubWdXVEt5dHZnazhrTXRn?oc=5) |
+| 7 little-known items in Trump’s big agenda bill - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNSXVGMm56V0xlTUVtWWZoV0huNjJKUzBnSHAwTjlCR2FGQkpWNXI0NHljUE9SX2JKN2dacXUwVTRfQTVqMk9aYXg5MlZjNXJzaUREc0lwMWtRNGs0VG16dmxkQW5meVdKWnJHVTZ4d0hfQ2lFTWN5WHlHYm5UcVFBSDFfNNIBiAFBVV95cUxOaVFQVTZWeGhhdkdBaWs2VUY1UVkzbTlfVUlkaHdUZjlLRkpEYWpvT0M4LXdmMnQyU2t1RTdRcnVSSFVUZHoxYnBsbk1wVlNUWDk4VzIyUFJSZTIyNmtLQ2lOdmttTDJQV2l1NEp0Z09GMGt4YlJVcVZDLUJGMVJkLUxWbU1JcWlO?oc=5) |
 | Madre Fire explodes in size to become California's biggest this year - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBpSTBRcU1la09JNkZTUElPVzh2eV9Yc25jcDFkenVfUEg1STk2UzFldk1zaW5Jdzc5eFFVVjB1cEczSzExZGdyUkpIbXI5LUh2R1dGNU5MREc3dllFV09tODQ0cjlJem1aeUhCMDk4TWR6cGFiQ3c?oc=5) |
-| Idaho college killings: Questions remain after stunning guilty plea - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPeERGMGhFZUdnYUEzTHB2MjFXTHdpLVZJd01jTC1DTHVPN2NkRWxGSGNtNnJ0ZGtHQWxCZVVZOC1TbVJ3QmZ4YklZN2R4WkdWYkZoVGY5TVhDLTN5Tks3Vk5UUjdKaTFqNVB5M1ZESXRTVHJBZnB2VEdIdF91Q2dLbnFRM0JOSVZ2RHY4a2t5TG1WZ014UThvUHMtYUNJWmpSaUotX2d2QmVCQdIBrwFBVV95cUxPYXVmR0FHYW5lWjFKcUZyald0ZllTRlZQUWhkbVFVaTNnNTRWakw2SVZvMWJ6bWxrd3VIZHlYQ21TUXlVekNWQkxSZDg2N0RqMXBLVkFUdE9BNTE3Y2pkQlBrUXVCOWZDMzJsUlJhRFNTQjlIRnVDNExtdDZITkZRbDFHMjZxREluNEN5WGNhNFdaTFhRMzJ1Qkpud2UyMUVDRkhvUmo3Y1ctYzMxa1lJ?oc=5) |
-| Trump says no progress on Ukraine in call with Putin - Politico | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE42NXFtTXFTNlpLc2NKRVY4MVNkOWxQWjZuZ1IxdWtja0o5V09HUGd4c0ZtTEZWbXNna0tFZWJubF90SWJVVkFkSm9DYm9FeGtkRG00OW5ZQ283ZlJwWVA0SHZ1SEc3Z1FhWXdSMGZHSF9kWVZfYmdaYg?oc=5) |
+| North St. Paul-Maplewood-Oakdale school district stands to lose $622K in federal funding after Trump Administration withholds dollars - kare11.com | [阅读全文](https://news.google.com/rss/articles/CBMitAJBVV95cUxOX04talBRbHRkVjRFdjczLXQ0U2QxWEVJYzlZRHU5dG9xOFlGV1FkQWVUdWlYeU5jYmlERk1UOFRESnFCUUZmNDNydzFmNFBVbDk2dWlEV2V2M2xTRUlEZ0RtUlZhZERscjk5SVlBN2cxUVFCZjdJSGZpSWFLWHlTV0lEaERKcmZTRUdNazJhM2xxbjVRY2dqMnB1OHdBTk8yQUlUdFBkbmZlX1ZGUXlJQl84dWcyLXRfb2pTT041LWU3N01Ma0NMcjNwaGpPNUI1WjRTUmU2YWROdF9rRzlBaFJDY0NmekdFTzNmbTU3OXNWRndBZkJoT1N0UzdTRkl4aUowbU9YcFU5aHpWRVFkLU16TnJLOGxtNEtlVG5mcElxaUtLOG5ydmZRQk5aalpneXZjTA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
