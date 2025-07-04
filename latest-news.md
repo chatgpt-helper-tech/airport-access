@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月04日 10:27:01（北京时间）**
+🕒 更新时间：**2025年07月04日 10:39:45（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | 4 Dead, 14 Injured in Chicago Shooting Outside River North Lounge - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE1zOWQwVkZjVkpQT015UzVXMDEtYXo5R3RuUDFxaktxbEhYbTZ1TkVCNXpOZV9ZVkpJd0EyVUlqTGNCS0FIWjdLSkx6TFdiRkpMZ2dCRUFqeFl6X2JxZS1uMFBPNzg2eWxPNkZz?oc=5) |
 | How Trump’s big bill will affect you, from Medicaid cuts to tax credits - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNUHRpWGxNZl81OGJfU1M5MGhncFh2blZhTlZTX2ROVW82NHRpNzFIYWlJaWNRVks5Q2hMVnlzczg0R0lxWlNlb3dZbndFemVfRWJTUHVBcUlnanpDeEdXNmZ3UGtWcWtSWUZ6MThsX284TlFoT1NvdnpZcE8wTjRLR3dCOXFWSW5fbklqOTN4N1RmZXExYjFEdg?oc=5) |
 | How Trump's big beautiful bill aims to 'supercharge' immigration enforcement - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOZkVLVEJQQjJQaGNPNTY1T0I4OEJaREdfSnlQSHgyaG00dEtYbE16WUNyRGJGWlJQNktITlc2OXFNWThjX3p5NDV1bExSSWlCakVqVHQ0S29DeFBtUW5NZUY0ME10dDRBNEhtRHZ2TmpmTWZ0MXpWZ1BVQ1R0cWdMOGRLVnNwb0tVZE5pMQ?oc=5) |
-| Madre Fire explodes in size to become California's biggest this year - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBpSTBRcU1la09JNkZTUElPVzh2eV9Yc25jcDFkenVfUEg1STk2UzFldk1zaW5Jdzc5eFFVVjB1cEczSzExZGdyUkpIbXI5LUh2R1dGNU5MREc3dllFV09tODQ0cjlJem1aeUhCMDk4TWR6cGFiQ3c?oc=5) |
 | Johnson brings it home - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNcV9aRDdCamkxWGpfZk1uSHBaS05aOEpDanVpbXh2NW9oZ3M1di1YMWlFX0FUc2ZPaVpsTkxCeTZRRFY0NE5qaEpmUFBfbnJYTm82cnNrcmZLTzdTd0QxcVpVYmFnZXBUcklfTzJxRi1zNC1TU3pkZkRiZWJ3cVBIRWp4MVN5NHFpWUo4NEp0RWxDYjQ?oc=5) |
-| Trump Says Call with Putin Yields No Progress on Ukraine Cease-Fire - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPQmJTNnNiNEVxUGNneFQ3LXhoRnBvZWlFRUNCR3RLamhxbHJNLWVEdVVrQkdWUXZfU0JQNnIyQ1FyNWlqbThIdGRSVVdzVVlkVzRVelhLV0R2MW5QS2xPaW9xMGNIZ3NFRkhVRFhhdGUyeW16MVBNUk9FbVVNbnRvakVocFNPQS0y?oc=5) |
+| First immigration detainees arrive at ‘Alligator Alcatraz’ in Florida Everglades - PBS | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNQndBOGRBd3lkanVJbkpLT3NvUWdRLVVmUFlheUdFSnFuTms4dzN6Y2NDRkthT1JXT2p2NGp5RDNBRENJNlBTOEV6ZmR3Z3gtUkdQM2ZZWXhNd3pJQWpFWTlQSTgxRENRVTdPdGViRjBWRVpJc0hCeWFSbXh5eEV0dDJQZldVTWo1XzY1X3MzMzFjWUU4S0pZeHVHcVZiVDhzMEswamZRZ3A0VUtrZ2owZzJ4ekLSAboBQVVfeXFMTUw0ZkZNamNhdFZLWUJPcl9MVU1yUEptN1NsMTZjc1p5OUNEMU9JUHhsNmxHb2E5eWJHai1TOEZlQkQzbTBGdkNrbk85TEI3bHpiT05vaDc0MmhydFJmVjRWVGhEaFh3SW1IbFVrUi11TUpkdEFVYW93WkY3MDl6Z2RHdlFNZ1RNSjUwWTlILUNqMmxCeFo2TkxTSVNLbDFnREg3WURTQXpmbXpVU19FQkI5N3RObVVaMVVB?oc=5) |
 | Inside the Freedom Caucus’ final surrender - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNdzlJYmdWRjQ1SXc2T3pqX2ZNZEptS3JwejFyc0Qtc0NlT0szbzFVbEJiZWJpV3RtOGlKNjE5Wm50UXkzbnQ0WE1fTV9VcXVyRncxTHBuMHJISVQxLXNLOTJRTEliWkpqQmQtdGlGSFVYa1BSRVRObldWZnU3YzA4RHJIRGtCS3V5WFdwTTlncGtKa1U?oc=5) |
-| Who is Julio César Chávez Jr., the Mexican boxer facing deportation from the US? - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQYUhoYTRQTlU3clctdWsxYUxRVWlJZUpZNWdzc04tR0lYX3NVS0htYWRxNFpyYzdidGsxRXlzcnNjTDBPZ0dDcWoyUDBKOTZWTzBidlFxOTU4eE5sZDJDUWU4QkJZOHF2Y1dtQ0V3QUhsUTFFTzg5N2ctYjFlTUpIaU1Sek1PVWVfa1BQVTFHeXBfMXhTelVMZWVMNA?oc=5) |
-| EPA suspends and investigates around 140 employees who signed a letter critical of the agency - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOR0Q1aU9TTTl0Q1ZXOU1ORUExZXMtaGFJVEgyTW5OZDMyVGZmdU9IOWZaczdnT2NVbmZJYjRBbDVFSW9MaHFudXFNb2ZYLXl1X0NIWFU4bk8wNERWVmthY0l6SFZiUUl6YlVCVllDdHVYU05uSHhUcE5NajNkS3RudzFfNmhTeFBfdFJn0gGQAUFVX3lxTE1odmhDcEcxUUlLUjJ1RzRvVE0yQ3hKaG12a1Q0NnA3RzAyNjQzMGlFZEZNckJHUVY0azNUMUtEN0FXN2lIcUlDSTY3SkkxOFpaZm1BY2xzTGZXVHVmNnprXzZqVUZpc0FmQ0dKV3MyQUZNZFFVdW9HOVFwenZrMTItcnV3UlZkSGttMTYycURwWA?oc=5) |
+| Mexico Confirms Arrest Warrant for Boxer Julio César Chávez Jr. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQaVoyeThmQzdPVlBLUVJrNGQ0S1l3NWw5ZnZYbE1jU2VwSjNUclE0UnYwU1BQZzZxSHExTl82eHp2SVpMZG1aWUctdERidlZPczBFSnN1b25qOERKZnY1STY2SlRDQk0zQ0trZlE2NU5pMlZhbXIxbmFoa1h0RVdnd2E5MU12MW1qUDZhc0V4bGJTNXYzSy1Idm9zalZfRUxlWExVSVZ4TQ?oc=5) |
+| Trump says he made no progress on Ukraine in his call with Putin - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE14WTBOYVY4RDhVV3BZVi15NVhWNkY3Z0FxQkR6YVhZUWFWSjUwV1dzZGRDNHV5b3c0bXNjclFkVG9OdjU3LVJ6a09TT2U2SlpqUTYtSUdzSHk4NDR3TVJoSE1PWi1XRnh4UjFORDlLZzI?oc=5) |
+| What Trump Told Me About His Complete Domination of Congress - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNMzJCUUpCZDQzYlJjMmVMT0VrMm5vS01SeXJlUnU0emQ2dDNnY1pjcHZZYmdPcGdTLUtLVGU3SG9MTlhrTEgyc0h0OENnMDhsVjEwWWR4anZoX3VtdlQtN0w2anoxeHNlZFF4bDM1eFhyd1NXSHRMOXR0SEtFeEUxd0o1SjVyVUZsdGlrdy03OFR3VXhQT24zeWZWWXE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
