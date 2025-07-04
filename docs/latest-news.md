@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月05日 04:14:06（北京时间）**
+🕒 更新时间：**2025年07月05日 04:26:39（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | BBC on French beach as police slash migrant 'taxi-boat' heading to UK | [阅读全文](https://www.bbc.com/news/articles/c5ygjjxjlplo) |
-| Israel's strike on bustling Gaza cafe killed a Hamas operative - but dozens more people were killed | [阅读全文](https://www.bbc.com/news/articles/cgeqr73p8wyo) |
+| Hamas says it delivered 'positive response' on Gaza ceasefire plan | [阅读全文](https://www.bbc.com/news/articles/cnvmrmvp98go) |
 | Crowds mourn Liverpool star Jota in his Portuguese hometown | [阅读全文](https://www.bbc.com/news/articles/c8xvr9v1exlo) |
 | Former Arsenal footballer Thomas Partey charged with rape | [阅读全文](https://www.bbc.com/news/articles/c39zr7y9ep3o) |
 | Man who told woman to kill herself first to be sentenced under new online safety law | [阅读全文](https://www.bbc.com/news/articles/cpwqy40wxw1o) |
@@ -28,7 +28,7 @@
 | ICE prepares detention blitz with historic $45 billion in funding - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNQ21vazhQMFBFMmNXMlFQcWJiaWdGMGdMaWtiUTRmUjY2TWZuSjYtSTZlY0lYc1BULTBIUWtsUFZjSTJoUlRHOE5IdzUxVTNjVVNlN0VUZ29lZ09IYnQ0c1h0RlBnR3VfMWYxd0tmM0JIeTFoeEtaTDFjMHk1UGZCZzhNTF9nSFVYWFZFcDFTYw?oc=5) |
 | Anti-Defamation League decries Trump’s use of ‘centuries-old antisemitic trope’ at rally - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNMm0taFpxeUd6WTBSRkZyR0R2SVZ4UzZ1MFlYblFNVUdmR0xSRlgzdkRQam0wRGhzMlJXSTF4VE1RWng3SEZ4dHVSUzE2VkVaUDJ2dGt0QzVnUUg5SXhyc1JRaHlwUS1sZ1Y4TWRFbEtiblhiOFZYa1lWbGp6OFFDVXZuRjNpR0NnY3c?oc=5) |
 | Trump's tariffs deadline is looming for Europe. Here's where things stand - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQbGxPeFh1UUp3MGk1QzdvMHhfNUNBZ2FkVnNMUWw1ejl6YmVSUGFNanlRSGRkNW00Si1qQW1KNk50YUNXNkFkanNBM05rN0xMNFdpa05ISUEtUHVGNTFidnQxTVZ3MlpONko5UVlYODZIY1pXVG9ldVdLYXRZUGV2d0VPNDM1VG9kUGpVYmlrWXhGYW9VWXdpWUVmNVJzQ0dVd2hfVmIzSmRZa1HSAbABQVVfeXFMT29tck1iZXRxbVEyQ0g0bmFVOHg0ZFJaLUtacXRYbzdyTVZrcC1FZmpxMUxqa1o3M2JoMGNXWlRsajViNUY2VGRQTklOZEJwMVp3RTdNMEozUU9hWG1uaHBtLTBhOEpXdDVUZEN5d2hscTZZYVlGVC0zZGlGaW9OMFAtRUVZQUllZ1g3eVd2eWcwQWZWcy1COVpTZjdMbzFSQ0xfdmxKSXFGUkc1TlFObDU?oc=5) |
-| Gaza: Hamas says it is consulting other groups on ceasefire plan - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE0tVDJlXzJSb3Y2QmtPVl9JTnFMa181dC1JcHV2aWF0bUhNREFYR0p0aDZ4clR1WmNiOUJnMjhhUVJqSHZYQWZ3ZUNuemd3S0t5Um05U3RpRGFGUdIBX0FVX3lxTE1XRmg1eTB6Y0xoTjA1bmE1dzJEOHd3MzBOS0JYTzF3T2hWWDY0U3plNUxfWG1nR2p1Tk1RY3ZzaFBoWWNZZk9WZTd4Q0FpZWdmcHBWUGVmV01pNnZGYzJZ?oc=5) |
+| Russia welcomes Trump’s cut to Ukraine’s military aid but it could be deadly for Kyiv - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPZEJScEpKV3o2MGtIUzg4YWhrNFF1SEhQTWtwdUdETGlzV0ZzVGdmU2wxX2wwYmZRN2RqM3JUTExudml0NzZldkl1TzkyUHZGc1B5NXNpdTNTUlVmbXh3UmdqbG5Halh2Q1pfT3dQNjYxY0s5OHZsZDZtOVFzQ0ZaaThNMDhkLTcwWVHSAY8BQVVfeXFMT2VEUDJkN0JxUm9PTEdDQmcwM0ktOGpjcld1QUl3U2tSSTJnS2s3RUo4akt5Y0ZQUFhwem8wR2ZhSFFZM3dtZFQwbGdsak9FanNmYS1XVTJkcVpJeGdkdDg5THMxRlVkb29PbGQ4N1FRTDZTQkdxTExDcmtMaVM0WDdJYm9pbmxlSzJjTVVzUU0?oc=5) |
 | Madre Fire, California’s biggest this year, surges to 52,000 acres - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBYM3JHUi1ha3lNYXdYYVFsYUs0QTFfWHFZcnB6czRZOFE0RGwxdlRscGhSb2lDWTAyS20xb2xDY185WW50REt5dG1XY1k5dmVEbzNxSmVBZWdoRHFGTy0xRFc3S1g2bHhQNkdESW1QSGRDdGlwM190U1RqWQ?oc=5) |
 | School districts warn Trump administration withholding funds could bring cuts - KUSA.com | [阅读全文](https://news.google.com/rss/articles/CBMi3gFBVV95cUxPOW92TmlqYjlHU0ZxZXlYeWxYcTEzdHhhaC1yZkFwYmZWSXhQSVprQXBCUUJ2TW1TaUdHekYzWTBaWFRvd1hUX3Yza0VLQXV1V1RyMWRsVVZkUnZuY3cxOS1hT2g5YnZwWUJNZVZLZkZ5ejdGeTNzand6TnhJaUtOT2xQTTFSOURIQmFGNFhod3RDOWpKRjJUcU1KR2VpYUFSTUUwTmk1UF9SVk9ZaXpJakd1Vmc0YklIWEwzVGFEd01WeDVKNFgwTHY4Zk1BWDUwblNuUWIwSlBMT3NwbUE?oc=5) |
 | At least 3 dead in New Jersey after strong thunderstorms sweep through the Northeast - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxORC1HNklKdUVLRFZIb042SFZIMUNaRnBaV2xFbENMTEVMUHZVUzRlX1Vab0VuY1RKNnd6MndrX1otWlFPLW1QcGxRU29HRS1raDB0bkdUVlhMTEh5ZkVOSmlHYXlVazJfbUNOSVR0SGhLbC1EcmhyczVpQmU2bjRRWnRCU0tDVzAzbHNpY3A5cVpzYUNuUjN4M0UzYkQ2RV9MdG9Ldg?oc=5) |
