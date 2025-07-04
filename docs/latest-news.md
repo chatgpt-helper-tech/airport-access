@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月04日 13:53:03（北京时间）**
+🕒 更新时间：**2025年07月04日 14:00:30（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | Home Office unaware if foreign workers leave after visas end, MPs say | [阅读全文](https://www.bbc.com/news/articles/cwykw93d393o) |
 | Oasis 'sounding huge' as comeback tour launches | [阅读全文](https://www.bbc.com/news/articles/cz7l1x7x80ro) |
 | The sale of illegal cigarettes signals a deeper problem with UK high streets | [阅读全文](https://www.bbc.com/news/articles/cy9097lwxg9o) |
+| Watch: Mini mart workers selling illegal cigarettes confronted by BBC reporter | [阅读全文](https://www.bbc.com/news/videos/c4gkwqwwzp9o) |
 | Zarah Sultana says she is quitting Labour to start party with Corbyn | [阅读全文](https://www.bbc.com/news/articles/cwyel9kgdvdo) |
 | Katy Perry and Orlando Bloom confirm split | [阅读全文](https://www.bbc.com/news/articles/cj61x8r552ko) |
 | Congress passes Trump's 'big, beautiful bill' cutting taxes and spending | [阅读全文](https://www.bbc.com/news/articles/cddz3n6vz0go) |
-| Dozens killed in Gaza as Israel intensifies bombardment, rescuers say | [阅读全文](https://www.bbc.com/news/articles/c3d1r93gg9ro) |
 
 ## 📰 Google News
 
