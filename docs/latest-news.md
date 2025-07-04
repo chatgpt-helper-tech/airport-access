@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月04日 16:52:37（北京时间）**
+🕒 更新时间：**2025年07月04日 17:00:57（北京时间）**
 
 ---
 
@@ -8,6 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Kyiv hit by barrage of drone strikes as Putin rejects Trump's truce bid | [阅读全文](https://www.bbc.com/news/articles/cx2g3qvz0pvo) |
+| I understand what Trump cares about, says Starmer | [阅读全文](https://www.bbc.com/news/articles/cq8ze23vx4po) |
+| Gaza aid contractor tells BBC he saw colleagues fire on hungry Palestinians | [阅读全文](https://www.bbc.com/news/articles/cnvmry71q5yo) |
+| Oasis 'sounding huge' as comeback tour launches | [阅读全文](https://www.bbc.com/news/articles/cz7l1x7x80ro) |
+| The sale of illegal cigarettes signals a deeper problem with UK high streets | [阅读全文](https://www.bbc.com/news/articles/cy9097lwxg9o) |
+| Watch: Mini mart workers selling illegal cigarettes confront BBC reporter | [阅读全文](https://www.bbc.com/news/videos/c4gkwqwwzp9o) |
+| Zarah Sultana says she is quitting Labour to start party with Corbyn | [阅读全文](https://www.bbc.com/news/articles/cwyel9kgdvdo) |
+| Home Office not checking when foreign worker visas expire, MPs say | [阅读全文](https://www.bbc.com/news/articles/cwykw93d393o) |
+| Tax cuts, healthcare and tips: The key items in Trump's 'big, beautiful bill' | [阅读全文](https://www.bbc.com/news/articles/c0eqpz23l9jo) |
+| Katy Perry and Orlando Bloom confirm split | [阅读全文](https://www.bbc.com/news/articles/cj61x8r552ko) |
 
 ## 📰 Google News
 
