@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月05日 18:53:45（北京时间）**
+🕒 更新时间：**2025年07月05日 19:01:50（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Camp Mystic: 25 killed in Texas floods, some from Houston missing - Houston Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOYWdXeVdkS1NKc1M0UzFmT1p0V0JyNlNDdXp2ejd6VkcyRjBuYjVvSmQ5OW5Wd19IM2hvR09KSzV5QkZPSU83UmdFWXlReXc4ZU5UMDZhWVNia2NYWmkzQ1BhNFptUVlwRXdSTW84RE9UdG96V3ZnRXdZYXJnZXJGbnFNUnRyak9CRnhZWXFERnVhV2s0RW1DZVVZOG1FYlJFdVZKX1owQWk3OWpJcHc?oc=5) |
+| Texas families plead for information on at least 23 girls missing from summer camp after floods - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNU0JxRW9VR1hPS3hyQjlBTF9ta2xRZFlFclNXWnY4cGVOejdQcVFSbDJxN2JrUUhGc2dyQ3B1LWJ3YTlJWktpc2QyQ2VQNi1lYm1Rbmw3QlZBUU1HT0x6b1lLNDZWTVdvNjRMWWhwdHRydVhPQkE1MGZSdUNSUHV1cV9BamxoRTdpU1ZPRGZKVm1IU2hSSTNTb2NCX1N4aWFtbnc?oc=5) |
 | Trump signs his tax and spending cut bill at the White House July 4 picnic - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNLVF0YU9mR0hvVDM5TlpQc3dNWnJOZ2FSNkZqVHZVN1VUb0Rsb1dWT0xNRC1sbE1IWUJGRjZ0WFlkZmVmeDN5QWhRWG9NR0FWQzdNSTZJUkMwSU82Q05TaEtzQTE0UEVtejBVNXlYSXRxelppeTY1U25ESnJTWWQ5UDYyUGNZdy1oaDhvdTFKR1Q?oc=5) |
 | California’s largest blaze this year explodes in size as hot weather raises wildfire risk statewide - PBS | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxORWpTcVRneURqLUpuaHItbWVSRkFvYl9nOWNHNVM4ZmtZajIyOTRMVnU0X3d0WEFLdTdGZlItX1hrTTJsdkZranBCSDRmRDhsWUlUWWtfSlVPV0lxNmNsVDVzN2M2NkhHZ2xEeFNHRlZ4c3p0eTN2WVhtVGJjQ3lFeF96S3pjZGNtUlp1VnkyNFZoY2tLc2R1dkg1RFprbGVieFN2TW1rU1FKM2dHR1NOcG1OTWJCTVVGM0FrTVdwTTg0eTRfNndYOC04eHY4YlHSAdQBQVVfeXFMT2dHUkpLZEl4emwzRUZ3SFJkblh5YU42WURFajBTTUgxcFM4alRJNUhOOGZVOXNFeEZYdW5LMXZqT2tzeGZ3RFptRm5JRFVPcHcwOEV5X3YxLUJpQjF4aWlHdEVkQWVYV3NhSnBuOEQxQ1lEQzliWHU5TXRHNVNKRDVQa2pRRy1lWi1MUzAtMUNLY0V4MkJTeHZPR2pFWFhwRmU0TENCcVFZaDlIbndOSXozOGJiWlMwZW5EdGlKSGZwZ1ZTaGswN29Jck9pYWUtOURRY24?oc=5) |
 | Eight people lose appeal in US against deportation to South Sudan - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxONW1xS1p5eFhiR19ZT3dCX2d1VVlQa19URl91OWNtOTl5OEdMeFhFZEdvcENBejM5cU4zN3k2ei0wRzNxRHhRcTlreWJpVWdzc2pqTnprNW1iVXdmaFBoYXlsbFZJeDYtT3doSUtRVjlWTnltVXpFZ2ZIaG8xN3B3OW9RWEFhODdPVW5lWmVVSmYtckVGY3BrblFRY2ExeVN1alpIeGNTWngyR1VUTXNlTdIBtgFBVV95cUxPQURQN1VmZTZlUUU1S3BScDhVQ2NFLUlHbUtxWTFETnloeDJFRTVGdkR5Y2s1d1JrOFlsdl9XcE9KVFdKYTdwWXAzTmZGb0pkMEswand5QXpIaXgtbmU0bXRNbUdHVkxudnhxdjBacUpHanRkaFkzUUhOeWN4TXVrS0pBdFN3dkNrLVJCaDdqN1JiSjZ3bEM1M0tkNzN3N05ldVdSVmVkaUI0WjBPbDlZNGxQLUhkdw?oc=5) |
