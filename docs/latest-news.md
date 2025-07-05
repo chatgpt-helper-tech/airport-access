@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月06日 06:53:41（北京时间）**
+🕒 更新时间：**2025年07月06日 07:01:34（北京时间）**
 
 ---
 
@@ -8,22 +8,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Frantic search for survivors of Texas floods that killed 32, including 14 children | [阅读全文](https://www.bbc.com/news/articles/cr4w36lnvgyo) |
-| Israel to send negotiators to Gaza talks despite 'unacceptable' Hamas demands, Netanyahu says | [阅读全文](https://www.bbc.com/news/articles/c4g8p24zm3vo) |
-| Elon Musk says he is launching new political party | [阅读全文](https://www.bbc.com/news/articles/c1dn04lvgpdo) |
-| Labour might be down, but it's not necessarily out - voters reflect on a year in power | [阅读全文](https://www.bbc.com/news/articles/cvg8vjm4ee1o) |
-| Ozzy Osbourne goes out on a high at farewell gig | [阅读全文](https://www.bbc.com/news/articles/ckg565mk8jxo) |
-| Family and Liverpool players gather for funeral of Diogo Jota and André Silva | [阅读全文](https://www.bbc.com/news/articles/c98jdq57dedo) |
-| David Lammy first UK minister to visit Syria since 2011 uprising | [阅读全文](https://www.bbc.com/news/articles/c0rvpz1kjkpo) |
-| Ketamine helped me escape my negative thoughts - then it nearly killed me | [阅读全文](https://www.bbc.com/news/articles/c70r1xdyy59o) |
-| Why did our aunt leave everything to a complete stranger? | [阅读全文](https://www.bbc.com/news/articles/cx2390x51zqo) |
-| Sydney Jo's viral TikTok group chat drama, and Superman hits cinemas: What's coming up this week | [阅读全文](https://www.bbc.com/news/articles/cdjx2k1e0ydo) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Flash floods like the one that swept through Texas are the nation’s top storm-related killer - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNYUxSVFEwelVyZmpIN3NUeUlkMHY4akRGSG9Nb1JROEZrVHZ1SEVIOEpjdGJUSFZ1dE9BUkp3NlhRaUxiRzdseTlYVkVIUGJaZEtKb3kxUHlsZzlIQXpPX2JBOHRVOEdETDhLdGRhRzg2aDU5YkNXaW5MdEpJN1NNN2hWbFBOcW50SmIxOU5hYVlvdnd6UWc?oc=5) |
+| Floods turned beloved Texas camp into a nightmare. At least 27 girls remain missing - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNU0JxRW9VR1hPS3hyQjlBTF9ta2xRZFlFclNXWnY4cGVOejdQcVFSbDJxN2JrUUhGc2dyQ3B1LWJ3YTlJWktpc2QyQ2VQNi1lYm1Rbmw3QlZBUU1HT0x6b1lLNDZWTVdvNjRMWWhwdHRydVhPQkE1MGZSdUNSUHV1cV9BamxoRTdpU1ZPRGZKVm1IU2hSSTNTb2NCX1N4aWFtbnc?oc=5) |
 | Elon Musk says he is launching new political party - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBHa0toaExoWXpFZmE2UG5EWVFRaEJTdmhtSlV0S1pzSnhld0k4bloxdnVYZ2lDSWdyWjRQNHNaOTFpUUY5eXZfNVVMQXBMODZPQUVwenBWUHRvZ9IBX0FVX3lxTFBfVGlLY3g4SF9MaHhwcHpvOGwzNm1RLXd5ZnpNS2liaDNtWUJ5QTlTRzdfVlBydTR2ZUg4b0tha2R4WWhMRV9pdmVRdFlmQS00VFBpTlYweVpDSWxLdS1Z?oc=5) |
 | Madre fire in rural San Luis Obispo County grows to nearly 80,000 acres - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOVnR2SVRSN2cxOHJQa05Gc2xyUE1BVWhTWWNDUFdRbjhTcmF3eVlQWWNEUEpOTk43d0NXTVRweHdrS1o1TWhCNm5JbmVoT1NNM1JZckJhTlNhRlRMQ2tubTBRUUdfM1ZGNXpYcFpfZk01VjNmLXlBQzZjU3E1U2VfTjNkUmVlRTVKNFlRRFk5WDVnYk5xU0poVDRnak1iUV9iVkFQbExMaGdkbmtUdlROUjJEdzBnMkJUd0JBd0t6THY?oc=5) |
 | No holiday for ICE, as immigration raids continued on July 4 - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOS1JyQkxqUUF5Rlh6X0M0SHNaVHI4a3lqNjFNS0xiM3BXWGNyaS1ZaEhDX0tfX0s0SUtEOEMzWC1NNkplOGdJTndRU1dFTWdRZWFVbnNiNDRXLWRDSTYxa3NMWmNYRGNwUXM4MENNam45TGF1RXNWbnptSm1CTmlNMHVybU41bmdDM2I5aXhLV2NXOWE3WGs2ZmZRUjBjaWxfcF8zcTNldERieEtx?oc=5) |
