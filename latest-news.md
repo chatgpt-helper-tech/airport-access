@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月05日 08:39:12（北京时间）**
+🕒 更新时间：**2025年07月05日 08:52:38（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | ICE prepares detention blitz with historic $45 billion in funding - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNQ21vazhQMFBFMmNXMlFQcWJiaWdGMGdMaWtiUTRmUjY2TWZuSjYtSTZlY0lYc1BULTBIUWtsUFZjSTJoUlRHOE5IdzUxVTNjVVNlN0VUZ29lZ09IYnQ0c1h0RlBnR3VfMWYxd0tmM0JIeTFoeEtaTDFjMHk1UGZCZzhNTF9nSFVYWFZFcDFTYw?oc=5) |
 | Tropical Depression Three Forms And Is Headed For The Carolinas - The Weather Channel | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPN1VpN2l3Y3BhVHRPQzZ1U0JWeFM0ZkZJWTNfbFA4YXo0cGpHYXhPS3dCYmhPU2F2SWV0T0kzQTNkdy1XV1NtNnUtNEowTkVQdGhtMm9QUHlhRHRsbjFNd1pEb3huSHJUQTdUYXZHeUpaMHl4ZUpNV295Q1Z5eDRVNzYyQ3VtLXFNYURkTHlPV3c2R09fd2Rn?oc=5) |
 | New aerial photos of 'Alligator Alcatraz' immigration detention center show detainees - USA Today | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNd05ZRm1DT0RhUkN0cEVrRFdWWmtvVUV0MGduSTdDQmtZOTZqc1JmOFNDRWNHOUgydUZnRm1KWU9QTU5VM3FyLXVNOUxrYjFMNE1RbUhYMW4tb1VkYkoxVGhhTDExUmRZaEdWcXZDUmlqbEQtSWZTdFB5eVIxRVBWSUF4Zjl0M3o5aEZIQ2k3X0IyUHF2X3k3SDN2OTN2R05DU0pfVUUxZFh4QQ?oc=5) |
-| Wall Street was expecting a TACO Tuesday. But Dow futures fall 250 points after Trump says he will set tariffs as high as 70% - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQWl9mNEpIM2pMWmJHWjVEVjlFWHMwT056RHYxZ1RkZXlROFJ2Njhubm9Bb2EtT1kzUmVIb01Cc0dTTHYwV1BYZ1lMTV84TktHeGRnekdnYV9ZUTFuR1Z3QkRqV0xLa1hhUzJrSGNFZm9lZTEzY3BUM3dYN1FCZGVncGZkM1lvcV9Zdll2aFdTNHpYb1p2SjJZYXFUaEgxcjctcXd1S0RkWQ?oc=5) |
 | Some Americans Are Protesting the Trump Administration on July 4 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPN09HTnU0SlhrM1pTcGlMQmZIMDhZQXBXNmRSSWVXZV8wYWNMOUVCby0xT0REVnVtMUFJZHRXLXZqMzJsSjZqaTJtTkNzdXIxQklYNUh6V3dtamxTV2tfZHNoTXlUUk8tMGNqQ0FJS01XVlcwUkx3dTRzZnlZVllDdQ?oc=5) |
+| Wall Street was expecting a TACO Tuesday. But Dow futures fall 250 points after Trump says he will set tariffs as high as 70% - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQWl9mNEpIM2pMWmJHWjVEVjlFWHMwT056RHYxZ1RkZXlROFJ2Njhubm9Bb2EtT1kzUmVIb01Cc0dTTHYwV1BYZ1lMTV84TktHeGRnekdnYV9ZUTFuR1Z3QkRqV0xLa1hhUzJrSGNFZm9lZTEzY3BUM3dYN1FCZGVncGZkM1lvcV9Zdll2aFdTNHpYb1p2SjJZYXFUaEgxcjctcXd1S0RkWQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
