@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月06日 05:00:54（北京时间）**
+🕒 更新时间：**2025年07月06日 05:13:04（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump got $170 billion for immigration. Now he has to enact it. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPTjM1Zk0zSG9uWC1PWDRSM1NjSWs2YXhSaWVtekJCTW12cUxoVWducHNpSmpEQ2JrNUc1a2tDSk14cXZ2RUlCZGhZZk1EMU5PNDA2ZjMyUmJ6WGo0TXVvcHVBREZEemNwTS1icm5nZWRFekdlQ3g1bmpPZkI0S2kzbms3M3RucVlwWmNEdjVkSldwcEZKejdWdEppSHhzRWRISE1EQW1wMmMtUkI5eEQw?oc=5) |
 | Trump warns a dozen countries will get tariff letters Monday - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiZEFVX3lxTE5VTmNhRDVlMkJsaWZ0aW1YVzhQbmdIWWNTVGwxUC0tX05ZMUZhZ3dtRUlqcU5HZ3kzcVU0S2FwZ0NyUDVGZGpHRmdNNEE1SkcyenVmSWpsVmZ3SlUtc0Y0Z1EzdFU?oc=5) |
 | Heat, storms, mosquitos the big threats at Alligator Alcatraz, experts say - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOb3p3Z2hMa2Ytd1U4czNMNEJrQ1Roa0gxbjhpZERpeEdhbmItT2lRQzZxdDljdlpNcHB4WWYtd0NHb3dvb0NGR2d5dmk3LThGOTNPdENibWIyVEVodE5CUGFRSTMtVlpSTTMwQTJBU0Y2OXBlc1dSYTRDWlNwdjBTYS11WVRuMFNaZVotSkw0eVc2WDZFSHhDTnl6SGVBZw?oc=5) |
-| Hamas says ready to enter Gaza ceasefire talks ‘immediately’ - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOSmg5SVdKSGlJOEt4ajdqMk8wYlNURU95YjdQeTlHNUI3YlpxVnE3bEl0WlpicFNOd0pBNlYwTU84UlNHb0lySXJlM1VZWHdpWm1YclZfb05DRjhDU0FTUG1tZE55cDR1WVE3QTFuVTlOYXRxckwwejB0LVFHOE9yUDQxX2NucDg0ZUFR?oc=5) |
+| Musk says 'America Party' is formed in US - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNQUVmc2RaTWYwRmVRa1RJWVI0NjBjaC1xb3ZOa0Y5cXJ5bGlKVVdpODJDM3BkaWozSGhmOWZQdERMNENuM2Y4VTU3OU03WHplN1RzLU90Mjd0ci1xbEdUU0VVcDNqVEZ0WUwzWGs0ZEVlcDZIX1RBXy1vR3lfbXdjNU9qMHRWOTFC?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
