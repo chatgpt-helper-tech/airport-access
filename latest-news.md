@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月05日 13:27:47（北京时间）**
+🕒 更新时间：**2025年07月05日 13:40:28（北京时间）**
 
 ---
 
@@ -24,10 +24,10 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Camp Mystic deadly flood updates: Death toll rises to 24; 270 rescued - San Antonio Express-News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxORElBRWdhUjJkOHd6dDBRQVo4QjhKV0dCb0x4T1BwZnBsdkdMY052NEhRTjNtNlZ2NFdiNk11UXlCMjV6bkxHOTQ0RDFUTVZOSG52NzJtWHJzX252UUV2d010ZlRsbXhfbDJjSkJrdXhqb2E0RjlpZDdoTVZLcW90Tk5XcmVwYW8?oc=5) |
-| Trump signs tax-and-spending bill into law in major win for administration - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQdDdsSTRJVktyZjdNbjh1U05QTDZtRzNoZnR2dWdiUEZLOEluaTE5RlptekJBelFpU2ZnbDkyQzZ5ZjdjdzUxNV9NZ0p2aVhMa3ltX0tHd3VveG8waWRQMHZYYjB3ZnlzWmxzU1JJTko5MVV0bVNaTndOMmhiaWQwdg?oc=5) |
+| Trump signs his tax and spending cut bill at the White House July 4 picnic - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNLVF0YU9mR0hvVDM5TlpQc3dNWnJOZ2FSNkZqVHZVN1VUb0Rsb1dWT0xNRC1sbE1IWUJGRjZ0WFlkZmVmeDN5QWhRWG9NR0FWQzdNSTZJUkMwSU82Q05TaEtzQTE0UEVtejBVNXlYSXRxelppeTY1U25ESnJTWWQ5UDYyUGNZdy1oaDhvdTFKR1Q?oc=5) |
 | Tropical Depression Three Forms And Is Headed For The Carolinas - The Weather Channel | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPN1VpN2l3Y3BhVHRPQzZ1U0JWeFM0ZkZJWTNfbFA4YXo0cGpHYXhPS3dCYmhPU2F2SWV0T0kzQTNkdy1XV1NtNnUtNEowTkVQdGhtMm9QUHlhRHRsbjFNd1pEb3huSHJUQTdUYXZHeUpaMHl4ZUpNV295Q1Z5eDRVNzYyQ3VtLXFNYURkTHlPV3c2R09fd2Rn?oc=5) |
-| Social Security letter on taxes sends confusing message, some experts say - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBDMkg4RWtXdTNkbS0xT2s2S05ZSEJNeml0bFdQMXJETzRSRWgzdmQxd1U2OURMdGUwQVhDNmVrb3NybzRFQWpVQUVVbEtSZDl2ck4xZEU1d1JBQUs5SVd4aW44MmN0VTBfSGN3Q0NYLWtDdFVjYUJucFgyZHN4Zw?oc=5) |
 | America's nonstop birthday party - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1MSzBtMlljYmM1dnZGNS00alF2RWVnaWFpcXAxSkNLWWhBS0ctRndldE9qaWpPMTh5bDBBanhVV0dXY193VTViYkdONWJuWExtTU15OWdfTmxWSjFqQU1QVGFCLVlpdldoNlJvSXRqS3BPbUczQUk2MnF0Vm0?oc=5) |
+| Social Security letter on taxes sends confusing message, some experts say - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBDMkg4RWtXdTNkbS0xT2s2S05ZSEJNeml0bFdQMXJETzRSRWgzdmQxd1U2OURMdGUwQVhDNmVrb3NybzRFQWpVQUVVbEtSZDl2ck4xZEU1d1JBQUs5SVd4aW44MmN0VTBfSGN3Q0NYLWtDdFVjYUJucFgyZHN4Zw?oc=5) |
 | California’s largest blaze this year explodes in size as hot weather raises wildfire risk statewide - PBS | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxORWpTcVRneURqLUpuaHItbWVSRkFvYl9nOWNHNVM4ZmtZajIyOTRMVnU0X3d0WEFLdTdGZlItX1hrTTJsdkZranBCSDRmRDhsWUlUWWtfSlVPV0lxNmNsVDVzN2M2NkhHZ2xEeFNHRlZ4c3p0eTN2WVhtVGJjQ3lFeF96S3pjZGNtUlp1VnkyNFZoY2tLc2R1dkg1RFprbGVieFN2TW1rU1FKM2dHR1NOcG1OTWJCTVVGM0FrTVdwTTg0eTRfNndYOC04eHY4YlHSAdQBQVVfeXFMT2dHUkpLZEl4emwzRUZ3SFJkblh5YU42WURFajBTTUgxcFM4alRJNUhOOGZVOXNFeEZYdW5LMXZqT2tzeGZ3RFptRm5JRFVPcHcwOEV5X3YxLUJpQjF4aWlHdEVkQWVYV3NhSnBuOEQxQ1lEQzliWHU5TXRHNVNKRDVQa2pRRy1lWi1MUzAtMUNLY0V4MkJTeHZPR2pFWFhwRmU0TENCcVFZaDlIbndOSXozOGJiWlMwZW5EdGlKSGZwZ1ZTaGswN29Jck9pYWUtOURRY24?oc=5) |
 | Trump’s $7 Billion Education Funding Freeze Blindsides Schools - WSJ | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNM0VseC0zY3RrcTAwYWFCSUNTbVBqc0Y5RHEtdzViREYzVzFKUjBITTBPU05XY2t3cWJGUUJCRWYwQVZ4d21yWFgxTW85MV8wczNTcUFteTJtM1lZOVZDWTFMa29fMW9yT0RWbGZzSnVnMGxycnMtUTdSRE5jVGpRVklXUUo?oc=5) |
 | Court Rejects Effort to Keep Migrants From Being Sent to South Sudan - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQa2xsX3BLLVFSLWdkMWpmTjlWSlM1TGVlMGdjX3FTSjJBdWVrUDV3UTBxTURoQUcyd1dqUGJjbnNrVm1WYkZuNGlXUTVVMmtvZ3BuQkx1ZXA3UE1hdjl4a3VQWDRGcDRYaGUycWI1am13bUZvdmRZMEZGY3hadElHSGo5bmNoQWs?oc=5) |
