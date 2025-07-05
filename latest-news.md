@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月05日 22:01:48（北京时间）**
+🕒 更新时间：**2025年07月05日 22:14:00（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump got $170 billion for immigration. Now he has to enact it. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPTjM1Zk0zSG9uWC1PWDRSM1NjSWs2YXhSaWVtekJCTW12cUxoVWducHNpSmpEQ2JrNUc1a2tDSk14cXZ2RUlCZGhZZk1EMU5PNDA2ZjMyUmJ6WGo0TXVvcHVBREZEemNwTS1icm5nZWRFekdlQ3g1bmpPZkI0S2kzbms3M3RucVlwWmNEdjVkSldwcEZKejdWdEppSHhzRWRISE1EQW1wMmMtUkI5eEQw?oc=5) |
 | Trump’s $7 Billion Education Funding Freeze Blindsides Schools - WSJ | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNM0VseC0zY3RrcTAwYWFCSUNTbVBqc0Y5RHEtdzViREYzVzFKUjBITTBPU05XY2t3cWJGUUJCRWYwQVZ4d21yWFgxTW85MV8wczNTcUFteTJtM1lZOVZDWTFMa29fMW9yT0RWbGZzSnVnMGxycnMtUTdSRE5jVGpRVklXUUo?oc=5) |
 | Eight people lose appeal in US against deportation to South Sudan - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxONW1xS1p5eFhiR19ZT3dCX2d1VVlQa19URl91OWNtOTl5OEdMeFhFZEdvcENBejM5cU4zN3k2ei0wRzNxRHhRcTlreWJpVWdzc2pqTnprNW1iVXdmaFBoYXlsbFZJeDYtT3doSUtRVjlWTnltVXpFZ2ZIaG8xN3B3OW9RWEFhODdPVW5lWmVVSmYtckVGY3BrblFRY2ExeVN1alpIeGNTWngyR1VUTXNlTdIBtgFBVV95cUxPQURQN1VmZTZlUUU1S3BScDhVQ2NFLUlHbUtxWTFETnloeDJFRTVGdkR5Y2s1d1JrOFlsdl9XcE9KVFdKYTdwWXAzTmZGb0pkMEswand5QXpIaXgtbmU0bXRNbUdHVkxudnhxdjBacUpHanRkaFkzUUhOeWN4TXVrS0pBdFN3dkNrLVJCaDdqN1JiSjZ3bEM1M0tkNzN3N05ldVdSVmVkaUI0WjBPbDlZNGxQLUhkdw?oc=5) |
-| Trump says Ukraine will need Patriot missiles for its defense, chides Putin - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxNd1ZVM0dyOUgzYzRoS1FFZkFtam4xbXBMeGhyTDd6M1JVN1VmZFJucVBYVmpFeU9GV2pQeWJPUmRKRFkzT29VeHhjYjljMFQ2SUFYS2MzT1Jfd0I1cjM5ZXBneVVacUk4a1JvUUZTVWpERC16MzdOZzYzU0hpZjZYUVQ4cG5pbXIxeTVDMWZCNVJCcXJXVGRVUWNZTnJWa3huN2RmQWV6cUlKZDRwN1BsazFNb1VmcDI1MTVSMUlR?oc=5) |
+| Why Roberts and Gorsuch may decide the Supreme Court’s blockbuster transgender sports case - CNN | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQVkU0N1VhQ3UxZWR3c0JxZ1ZNamZ1RmVweXo3OXZIb0xXRDRSVl9wWkM3alJLN3hzMC1VdjR2QXg3RnJ4TVZJaXJhYVZ6RFUxc3oxUXF0T2ppVk9FeWpvWi1kREd3MUFuT0lpSDFrLTBCV2ZOWm8xOWh1dDhCLVJ3Z0NnWjh1TGtHeDVtbEQ5SXRieU9qa0lDYmd5eWpUdkHSAaQBQVVfeXFMTTBCSG1sZi1mZlA3eXNMVktWWFMxdld5TlFxeE1Jc3FvR3JTakpfQ1dWWG8yeFF3QndLcUN4LTVCTXZPSjAwMWtYMmlzamZvMTh5NmxLcmVZVExEQ2N5czFtcnN5amFvbDVhNjV0TnhWM3lTVGhucEJqcW54My1XaW1abHhEY0JEc1NDWlpad3JSVWRJT3piR0ltV1JWS3dDaUNVTXU?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
