@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月06日 05:52:47（北京时间）**
+🕒 更新时间：**2025年07月06日 06:01:08（北京时间）**
 
 ---
 
@@ -27,7 +27,7 @@
 | Tropical Storm Warnings Issued in the Carolinas Ahead of Chantal - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPclEzdkU5bUpFMTRKOG1zc0s3Vm8yQ2pfZ2FDUWNfanVpS0M4NC1wT2t2VTVFQlhrZ3FWMVJyWDhSLXRZaXFlbk1aYTlXVG5xc2hIZHJTWWJ5NHpvNjdqc3ZIbHU1TUk0YjJMUHVqX1JHeXRoX3VDLVhTTkJZdUFGNUlJQTlyUXdINEhCdEJn?oc=5) |
 | Eight people lose appeal in US against deportation to South Sudan - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxONW1xS1p5eFhiR19ZT3dCX2d1VVlQa19URl91OWNtOTl5OEdMeFhFZEdvcENBejM5cU4zN3k2ei0wRzNxRHhRcTlreWJpVWdzc2pqTnprNW1iVXdmaFBoYXlsbFZJeDYtT3doSUtRVjlWTnltVXpFZ2ZIaG8xN3B3OW9RWEFhODdPVW5lWmVVSmYtckVGY3BrblFRY2ExeVN1alpIeGNTWngyR1VUTXNlTdIBtgFBVV95cUxPQURQN1VmZTZlUUU1S3BScDhVQ2NFLUlHbUtxWTFETnloeDJFRTVGdkR5Y2s1d1JrOFlsdl9XcE9KVFdKYTdwWXAzTmZGb0pkMEswand5QXpIaXgtbmU0bXRNbUdHVkxudnhxdjBacUpHanRkaFkzUUhOeWN4TXVrS0pBdFN3dkNrLVJCaDdqN1JiSjZ3bEM1M0tkNzN3N05ldVdSVmVkaUI0WjBPbDlZNGxQLUhkdw?oc=5) |
 | Will Trump's megabill help Democrats win the House? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNX1dHNUtXWmVTdEhfcWhaVVhxUTFrbWdQbmVqd3pqemlwRzZpMmN4VEtvZ202bWlGRXNvYkN5Z2lsSlVmSnVwb3lLVzY3a2RpRU56dlJQS04xNU55MDV4R2NWVW1uODlHQ19RZnROLUlBdVZvaW1rMWFaWDR2VWVrRlV1bnI1Z1VCVlFrZ2RuMF80Zw?oc=5) |
-| Musk announces arrival of new ‘America Party’ after Trump split - Politico | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9RNWRsdUlCUEt1Z3FKOXM1R3RkQ3VxbUF0eE1PdVJzOXN4Q1JXRTc5UHFsR2MzTVN6MFd2QXZKaWlkVHZ1dnVSaVl3NG5pUWctb2FCNTFPUW1qU0tieDFEUHBQbjlSZGY1RXpWN3hQVmIzNEJucmhfeFM2SQ?oc=5) |
+| Elon Musk says he is launching new political party - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBHa0toaExoWXpFZmE2UG5EWVFRaEJTdmhtSlV0S1pzSnhld0k4bloxdnVYZ2lDSWdyWjRQNHNaOTFpUUY5eXZfNVVMQXBMODZPQUVwenBWUHRvZ9IBX0FVX3lxTFBfVGlLY3g4SF9MaHhwcHpvOGwzNm1RLXd5ZnpNS2liaDNtWUJ5QTlTRzdfVlBydTR2ZUg4b0tha2R4WWhMRV9pdmVRdFlmQS00VFBpTlYweVpDSWxLdS1Z?oc=5) |
 | Joyful Parisians take a historic plunge into the Seine after 100 years - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNUXVWOEVzUGNIOE1iRktOQWczZ2VlSTJZQjNyRVpsRG1paWNaMUhsbkYtYnlWVnlna1RDeXdCb1hsMDJBYUxPSjNxdDFncUptVVJFdUNYWVp2ZE5GZXZnZnJpS3AwNTB0R1EwOXlhakoxYTdKQS1tbjdBai1yalA5Q0pwYVjSAVZBVV95cUxNNXNrZWR4cFNLY1A0UGZfSGg3OS1Ic3Qyb0pXbVJuY2FfNVNnemZxZ1lqMWliSXdCal9lcmw5QjJJdThxa2hNRUZqUUdzMml3N0JwNFZTUQ?oc=5) |
 | Trump got $170 billion for immigration. Now he has to enact it. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPTjM1Zk0zSG9uWC1PWDRSM1NjSWs2YXhSaWVtekJCTW12cUxoVWducHNpSmpEQ2JrNUc1a2tDSk14cXZ2RUlCZGhZZk1EMU5PNDA2ZjMyUmJ6WGo0TXVvcHVBREZEemNwTS1icm5nZWRFekdlQ3g1bmpPZkI0S2kzbms3M3RucVlwWmNEdjVkSldwcEZKejdWdEppSHhzRWRISE1EQW1wMmMtUkI5eEQw?oc=5) |
 | Trump warns a dozen countries will get tariff letters Monday - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiZEFVX3lxTE5VTmNhRDVlMkJsaWZ0aW1YVzhQbmdIWWNTVGwxUC0tX05ZMUZhZ3dtRUlqcU5HZ3kzcVU0S2FwZ0NyUDVGZGpHRmdNNEE1SkcyenVmSWpsVmZ3SlUtc0Y0Z1EzdFU?oc=5) |
