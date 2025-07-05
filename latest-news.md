@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月05日 23:52:38（北京时间）**
+🕒 更新时间：**2025年07月06日 00:01:34（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Joyful Parisians take a historic plunge into the Seine after 100 years - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNUXVWOEVzUGNIOE1iRktOQWczZ2VlSTJZQjNyRVpsRG1paWNaMUhsbkYtYnlWVnlna1RDeXdCb1hsMDJBYUxPSjNxdDFncUptVVJFdUNYWVp2ZE5GZXZnZnJpS3AwNTB0R1EwOXlhakoxYTdKQS1tbjdBai1yalA5Q0pwYVjSAVZBVV95cUxNNXNrZWR4cFNLY1A0UGZfSGg3OS1Ic3Qyb0pXbVJuY2FfNVNnemZxZ1lqMWliSXdCal9lcmw5QjJJdThxa2hNRUZqUUdzMml3N0JwNFZTUQ?oc=5) |
 | An Isolated Iran Looks to BRICS for Allies, Testing a New World Order - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQaDRlNHA0SHVBQ192VnZhLVAxZFVETUg5WXdLNFM5R1JkMjNMQU44Zy1rTFRNUndjX1RMZmlMTk9lUXVvSFlmTGRrLWpQOENRUGdQRGl6ek1EVmJ6V1ZRcEQzTnRBV0JNcUpoM2ZuNUk2c3RWTmlRZW5RSnVDV3lqbWM3QWxwMWZ3YzlMNGIzXy0?oc=5) |
 | Trump got $170 billion for immigration. Now he has to enact it. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPTjM1Zk0zSG9uWC1PWDRSM1NjSWs2YXhSaWVtekJCTW12cUxoVWducHNpSmpEQ2JrNUc1a2tDSk14cXZ2RUlCZGhZZk1EMU5PNDA2ZjMyUmJ6WGo0TXVvcHVBREZEemNwTS1icm5nZWRFekdlQ3g1bmpPZkI0S2kzbms3M3RucVlwWmNEdjVkSldwcEZKejdWdEppSHhzRWRISE1EQW1wMmMtUkI5eEQw?oc=5) |
+| Trump on if he can end fighting in Ukraine: ‘I don’t know’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE45REw1ZVkyRTlXTkRleG9sSktsUDZ0N2JEa3hReFZRWm9tNWk4Y240bkxsdHE3VGk5bDBnZ1dMQjVobm1hZF83Y25IN1JvTmtCbS1xWXUxYTBtckNoSk5ITW1BMTFIQ0ZBWWNISVhvR2dJdlI3SnFHOV9HRTVKNmc?oc=5) |
 | Heat, storms, mosquitos the big threats at Alligator Alcatraz, experts say - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOb3p3Z2hMa2Ytd1U4czNMNEJrQ1Roa0gxbjhpZERpeEdhbmItT2lRQzZxdDljdlpNcHB4WWYtd0NHb3dvb0NGR2d5dmk3LThGOTNPdENibWIyVEVodE5CUGFRSTMtVlpSTTMwQTJBU0Y2OXBlc1dSYTRDWlNwdjBTYS11WVRuMFNaZVotSkw0eVc2WDZFSHhDTnl6SGVBZw?oc=5) |
 | Eight people lose appeal in US against deportation to South Sudan - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxONW1xS1p5eFhiR19ZT3dCX2d1VVlQa19URl91OWNtOTl5OEdMeFhFZEdvcENBejM5cU4zN3k2ei0wRzNxRHhRcTlreWJpVWdzc2pqTnprNW1iVXdmaFBoYXlsbFZJeDYtT3doSUtRVjlWTnltVXpFZ2ZIaG8xN3B3OW9RWEFhODdPVW5lWmVVSmYtckVGY3BrblFRY2ExeVN1alpIeGNTWngyR1VUTXNlTdIBtgFBVV95cUxPQURQN1VmZTZlUUU1S3BScDhVQ2NFLUlHbUtxWTFETnloeDJFRTVGdkR5Y2s1d1JrOFlsdl9XcE9KVFdKYTdwWXAzTmZGb0pkMEswand5QXpIaXgtbmU0bXRNbUdHVkxudnhxdjBacUpHanRkaFkzUUhOeWN4TXVrS0pBdFN3dkNrLVJCaDdqN1JiSjZ3bEM1M0tkNzN3N05ldVdSVmVkaUI0WjBPbDlZNGxQLUhkdw?oc=5) |
-| Why Roberts and Gorsuch may decide the Supreme Court’s blockbuster transgender sports case - CNN | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQVkU0N1VhQ3UxZWR3c0JxZ1ZNamZ1RmVweXo3OXZIb0xXRDRSVl9wWkM3alJLN3hzMC1VdjR2QXg3RnJ4TVZJaXJhYVZ6RFUxc3oxUXF0T2ppVk9FeWpvWi1kREd3MUFuT0lpSDFrLTBCV2ZOWm8xOWh1dDhCLVJ3Z0NnWjh1TGtHeDVtbEQ5SXRieU9qa0lDYmd5eWpUdkHSAaQBQVVfeXFMTTBCSG1sZi1mZlA3eXNMVktWWFMxdld5TlFxeE1Jc3FvR3JTakpfQ1dWWG8yeFF3QndLcUN4LTVCTXZPSjAwMWtYMmlzamZvMTh5NmxLcmVZVExEQ2N5czFtcnN5amFvbDVhNjV0TnhWM3lTVGhucEJqcW54My1XaW1abHhEY0JEc1NDWlpad3JSVWRJT3piR0ltV1JWS3dDaUNVTXU?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
