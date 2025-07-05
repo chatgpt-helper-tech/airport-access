@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月05日 15:40:44（北京时间）**
+🕒 更新时间：**2025年07月05日 15:52:47（北京时间）**
 
 ---
 
@@ -29,7 +29,7 @@
 | Court Rejects Effort to Keep Migrants From Being Sent to South Sudan - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQa2xsX3BLLVFSLWdkMWpmTjlWSlM1TGVlMGdjX3FTSjJBdWVrUDV3UTBxTURoQUcyd1dqUGJjbnNrVm1WYkZuNGlXUTVVMmtvZ3BuQkx1ZXA3UE1hdjl4a3VQWDRGcDRYaGUycWI1am13bUZvdmRZMEZGY3hadElHSGo5bmNoQWs?oc=5) |
 | Trump says ceasefire deal is near as Israeli strikes kill 138 Palestinians in Gaza - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPMDlQa0ZkLUtRUGhxc3dvSU5ERk9ZSmFEUlh0UjJpeUJleGVzNFNwTmxxdkFmbml0cnlsVEIwZkhLQXItbmlRX1hPNkdvZ3pqTlpGUC1qdG54ekhaQ1VtZ0xQenhZV3gzQ3dNMGFrTmJaVHB5b3BnZFl3alp0UjhxckdmSTlsdlVQRWtIZUdYaHpmSkxNQVVNS2Z3eWRycnpYTGZhZ0RTRHN4TEd6Yi1fdjlYU2xMTjBCenc?oc=5) |
 | ‘I’ve never heard that’: Trump denies knowingly using anti-Semitic term - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNSlZ1Y2NDTWk4dkNTSkdBaXk0YnQwU3ZNMHUwS3Y1bkZPbmpBLTJxcnhIU2EzZlBNTU5uLXZTRF9fSkJqSlF6TU9oZldUMVl4SmZ4cmlaZHZIREZrT3JSaHpYbWdlWHZKb2kwSlF3WHJTLWNTN3ZsMkh5eVRYVDZnd2w1eHhqLXdzUXBSRUNOc2RTMkhNSWVXMVpYcVh1RXZfd3lMSFk0X3ZpRkHSAbABQVVfeXFMTm40RDJSTUZSMXF2YWVCSEV2Q3FMVDZ0MlZRQ1FKRzl6Tml4VHBHTkRxSmx0NWVVX1JoNEI3RmRncVJJQnJrS0tOX0JfbzlNczdRSE5hXzJTeUIxM2doMy1Za3BWakJ0ZjUyaFVGcnF2T05qM2IyNTFhT0Utb3JvZXdLY0Z5dVhIWXZaYUhqcm0tc0xmM2RJbDN6UmpfVm1SVFd4Y0pCVndibTlnekUtR3g?oc=5) |
-| 7 hurt in Fourth of July boat explosion on Lake Lanier - 11Alive.com | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxOZlZDaXdDV19vZUtPVHozTjBuRkNsb1J6LVpJVEdIOFZIOFpFQUR4Sm56dzlkQWJfR09aNndrcTVYM3EtM0tlX213cUFJeFZZdTFZc2RfM1Z5cTkzY2kxZUdVMGo5RVdPQ2Uwb0dhZTc2VGc5dFZhVjRmN3RhT2tuZWM1aC1SUnFzVWVnbGljSVhadTQ1aEkxV0VlSGU2cEphTDN0MzVrRVNjTnZIUDM4U2JSeV94Yy1IeFIxMkpEbDJWTE1nNWJXYWFIOFE?oc=5) |
+| Boat explodes near Lake Lanier Islands, five injured - AccessWDUN | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNSHJlQk9GejgzUnhMZmtMM1A4VzhsMVh5VTlSWXUwZjZiSnRpZGtIaDFSZ1p3LWVFbFMwbHMyLUhfN1RpUENhRTRVVFp4QUp5cHVhY19oVHRFNXpYQzNHcGZ3OXp5bHBuWkIwaE5wVUVxZEh2T0VFNVAyendDbGJTTllCZnNjZ1paWGwzaFEzTWlyaTZxVmI4RXZUbHRBQQ?oc=5) |
 | Trump’s $7 Billion Education Funding Freeze Blindsides Schools - WSJ | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNM0VseC0zY3RrcTAwYWFCSUNTbVBqc0Y5RHEtdzViREYzVzFKUjBITTBPU05XY2t3cWJGUUJCRWYwQVZ4d21yWFgxTW85MV8wczNTcUFteTJtM1lZOVZDWTFMa29fMW9yT0RWbGZzSnVnMGxycnMtUTdSRE5jVGpRVklXUUo?oc=5) |
 | Tropical Depression Three Forms And Is Headed For The Carolinas - The Weather Channel | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPN1VpN2l3Y3BhVHRPQzZ1U0JWeFM0ZkZJWTNfbFA4YXo0cGpHYXhPS3dCYmhPU2F2SWV0T0kzQTNkdy1XV1NtNnUtNEowTkVQdGhtMm9QUHlhRHRsbjFNd1pEb3huSHJUQTdUYXZHeUpaMHl4ZUpNV295Q1Z5eDRVNzYyQ3VtLXFNYURkTHlPV3c2R09fd2Rn?oc=5) |
 | Wall Street was expecting a TACO Tuesday. But Dow futures fall 250 points after Trump says he will set tariffs as high as 70% - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQWl9mNEpIM2pMWmJHWjVEVjlFWHMwT056RHYxZ1RkZXlROFJ2Njhubm9Bb2EtT1kzUmVIb01Cc0dTTHYwV1BYZ1lMTV84TktHeGRnekdnYV9ZUTFuR1Z3QkRqV0xLa1hhUzJrSGNFZm9lZTEzY3BUM3dYN1FCZGVncGZkM1lvcV9Zdll2aFdTNHpYb1p2SjJZYXFUaEgxcjctcXd1S0RkWQ?oc=5) |
