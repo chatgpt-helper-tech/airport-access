@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月05日 08:27:56（北京时间）**
+🕒 更新时间：**2025年07月05日 08:39:12（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Floods kill at least 13 in Hill Country; 20 children still missing - Austin American-Statesman | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQc0RqMXBPZXlVcThoNGpyWlRMMnJvMU9OQlQzT1JuYXg0Vzc5Q0w5SzFwLWNCRTMza3VGREt0YjgtdVhnaE4tUUhFLXNueDBNa1lvZDVscUtqdG5EZHdJdDY3eGtsdngwUlJYdVhfM2lhb3NnRFB2NVViSW4wQjRVbkMya01SZ2R4UXJBa0Izd1BfMFRYdTJhUlJNVExScU5UeUs5X2xPUVRaTWZ4Y3VYYkdES2RicTh1cjhFbVlBekZMYkpO?oc=5) |
 | Trump signs controversial spending bill during White House 4th of July celebrations - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPZ21FZmNvdWtNXzFjejA5NndYWEkzc3JiWk01OHJqa3hKSzhsUHB0YjJvSmQ1SVhjYUt3REYyT2JTQ0RUM1RtRkdfTm4tWU5KR2p4cHdBWm9XejZKZnhxWnBqMi1NblcxUVNfYnZpUEpRcTE1b0k3My03eDRxbUZNaEpXM2ZFaFVaemwzX1h3amh1OXhzUmtXb3dyUWZhc0UtbTlEOWFOVV_SAa4BQVVfeXFMTmktZzRuWW1ZQ1V4czZQSWw0RWtiNE9Yd2pfUkYxenR3elF5N3ctS3l3aFIxWklqNkNCQVJpSFRnTmMteVVKaHNMYmVHSEY4QXF1Q25oTS1qWmNYaDB1Ukx6Vmp3c0hRMndEOWlHRXNrWVQ1LUd3SU1vT04xaXNNZmY5V2tpOVF6czFjZFpOQ2VIZmFJN1ZKWkxXZVY5dnJVX1gzcU1JV195ZTRSZ3VB?oc=5) |
-| Trump says ceasefire deal is near as Israeli strikes kill 138 Palestinians in Gaza - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPMDlQa0ZkLUtRUGhxc3dvSU5ERk9ZSmFEUlh0UjJpeUJleGVzNFNwTmxxdkFmbml0cnlsVEIwZkhLQXItbmlRX1hPNkdvZ3pqTlpGUC1qdG54ekhaQ1VtZ0xQenhZV3gzQ3dNMGFrTmJaVHB5b3BnZFl3alp0UjhxckdmSTlsdlVQRWtIZUdYaHpmSkxNQVVNS2Z3eWRycnpYTGZhZ0RTRHN4TEd6Yi1fdjlYU2xMTjBCenc?oc=5) |
+| Hamas submits ‘positive response’ to ceasefire proposal in major step toward a deal - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNdm9PcXk2SHhwMVY0YzVUNzBISTBIdzFlUWp3c2h3RU5weVkzTjRvR2ItLWw0R1BLOE1JR1p4UVh5aEMtYVRWMkc1bTFHazdfTWZaUUcyVnMyR1BhMHdlNFNOYzQxX1Nzejd4WlU3VWRXajZCMlVCWHFISDgzX1BSNXp4NmJTMlBJRzBqZjNNb2FfdUHSAZgBQVVfeXFMTWtWWmphSHREd1BmTUFPVW9RTmdRdm50YUZIRS1MZFo0ZmxqajEtazZIdy1kN1VOWVVKejhRNjBjTjFyaGhYMkRmZkwtQ0praVNtZ3B5UWotYWl5d2owU2ZmUDhMNVNEb3NVSzI5QVFUTk96YlVhSHotc0F4d0VBT1BtUWh4UWhnZnZGbWlIaW5HTF9ScEsydUo?oc=5) |
 | Federal judge again halts deportation of eight immigrants to South Sudan - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNNDJ6andNa1dXdEpVOThmU1VtV1phOUxjWnIzdjN0NWtJR0wxV3d2alpQdFBLVFpQQVltb3BURUpDVl9UZnJJRXBFWlA1QlZxem1GbEoya0R4eXZmWTZTRklDWmt2VTgtSHI5ZGRDQkdJRFBaM19lQmxOUVpEcjY3TlNnb2REQQ?oc=5) |
 | ICE prepares detention blitz with historic $45 billion in funding - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNQ21vazhQMFBFMmNXMlFQcWJiaWdGMGdMaWtiUTRmUjY2TWZuSjYtSTZlY0lYc1BULTBIUWtsUFZjSTJoUlRHOE5IdzUxVTNjVVNlN0VUZ29lZ09IYnQ0c1h0RlBnR3VfMWYxd0tmM0JIeTFoeEtaTDFjMHk1UGZCZzhNTF9nSFVYWFZFcDFTYw?oc=5) |
 | Trump speaks with Zelenskyy after he was ‘disappointed’ in call with Putin - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPY0VQMTB2d29uUzhVd0FqbWRxMzJQUUZ3dVJYTW9ySzR5a0lhby1YeEpnSm1vLXJueHJ3NXNteEQtVUNQX0M1XzZpM1Q3MHpHTGwwMC1iZk5ZUWVyMTh6Y0lrT0F6eUxXcndOeE9BWUpCTUZBTExJTFZ6YWhIUHVKc3lB?oc=5) |
