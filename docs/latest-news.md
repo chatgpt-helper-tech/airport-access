@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月06日 04:27:19（北京时间）**
+🕒 更新时间：**2025年07月06日 04:39:25（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Floods turned beloved Texas camp into a nightmare. At least 23 girls remain missing - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNU0JxRW9VR1hPS3hyQjlBTF9ta2xRZFlFclNXWnY4cGVOejdQcVFSbDJxN2JrUUhGc2dyQ3B1LWJ3YTlJWktpc2QyQ2VQNi1lYm1Rbmw3QlZBUU1HT0x6b1lLNDZWTVdvNjRMWWhwdHRydVhPQkE1MGZSdUNSUHV1cV9BamxoRTdpU1ZPRGZKVm1IU2hSSTNTb2NCX1N4aWFtbnc?oc=5) |
-| States Brace for Added Burdens of Trump’s Tax and Spending Law - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5EUHFpMEZuSkFHckEtVlNfTjdOd191Sm9neG5GZTB4S1UxREZPMnBfVEJud3hsejdlQjc5Y2c3T2FTdEpvcUJxeUVqNF8tLVVDS094MG96VTV4clFrSXd0RlMweHpxeTlzVE45WmMwYjZUbm43eUNUeA?oc=5) |
-| Tropical Storm Chantal Forms And Is Headed For The Carolinas - The Weather Channel | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPN1VpN2l3Y3BhVHRPQzZ1U0JWeFM0ZkZJWTNfbFA4YXo0cGpHYXhPS3dCYmhPU2F2SWV0T0kzQTNkdy1XV1NtNnUtNEowTkVQdGhtMm9QUHlhRHRsbjFNd1pEb3huSHJUQTdUYXZHeUpaMHl4ZUpNV295Q1Z5eDRVNzYyQ3VtLXFNYURkTHlPV3c2R09fd2Rn?oc=5) |
+| Flash floods like the one that swept through Texas are the nation’s top storm-related killer - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNYUxSVFEwelVyZmpIN3NUeUlkMHY4akRGSG9Nb1JROEZrVHZ1SEVIOEpjdGJUSFZ1dE9BUkp3NlhRaUxiRzdseTlYVkVIUGJaZEtKb3kxUHlsZzlIQXpPX2JBOHRVOEdETDhLdGRhRzg2aDU5YkNXaW5MdEpJN1NNN2hWbFBOcW50SmIxOU5hYVlvdnd6UWc?oc=5) |
+| Tropical Storm Warnings Issued in the Carolinas Ahead of Chantal - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPclEzdkU5bUpFMTRKOG1zc0s3Vm8yQ2pfZ2FDUWNfanVpS0M4NC1wT2t2VTVFQlhrZ3FWMVJyWDhSLXRZaXFlbk1aYTlXVG5xc2hIZHJTWWJ5NHpvNjdqc3ZIbHU1TUk0YjJMUHVqX1JHeXRoX3VDLVhTTkJZdUFGNUlJQTlyUXdINEhCdEJn?oc=5) |
 | Joyful Parisians take a historic plunge into the Seine after 100 years - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNUXVWOEVzUGNIOE1iRktOQWczZ2VlSTJZQjNyRVpsRG1paWNaMUhsbkYtYnlWVnlna1RDeXdCb1hsMDJBYUxPSjNxdDFncUptVVJFdUNYWVp2ZE5GZXZnZnJpS3AwNTB0R1EwOXlhakoxYTdKQS1tbjdBai1yalA5Q0pwYVjSAVZBVV95cUxNNXNrZWR4cFNLY1A0UGZfSGg3OS1Ic3Qyb0pXbVJuY2FfNVNnemZxZ1lqMWliSXdCal9lcmw5QjJJdThxa2hNRUZqUUdzMml3N0JwNFZTUQ?oc=5) |
+| Will Trump's megabill help Democrats win the House? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNX1dHNUtXWmVTdEhfcWhaVVhxUTFrbWdQbmVqd3pqemlwRzZpMmN4VEtvZ202bWlGRXNvYkN5Z2lsSlVmSnVwb3lLVzY3a2RpRU56dlJQS04xNU55MDV4R2NWVW1uODlHQ19RZnROLUlBdVZvaW1rMWFaWDR2VWVrRlV1bnI1Z1VCVlFrZ2RuMF80Zw?oc=5) |
 | Trump administration deports 8 migrants to South Sudan - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQb0hvMkhBWjJpVVNrMG9fVkVaaGduY05ib0V5dHVnOE5nWDN1LUx4Yi15SjRfRHl2cFZxYlpRN3dvMTQ1dU9OYTdQeVEwY0dIYmxPWFgtalhwblV5Nmh2ajdDeDBjb3Y0cFhPeVNqeWtxSHNIeUN3LXlCSGdTVlJ4M3lkMU1DSnFINzkybHJQa05yZDZVS21FaDlaZkjSAaIBQVVfeXFMUEVfTGI5V3k0QlhNNkZIVnBjSDhWOUVoYnFDRy1NTk9uZUtjcjBGdDA4S1pORXBhOVlFMkFvN0RRcFhuOU5nb3RNdTBOLWdwczd6Z1NhYUNOXy1CLTlfXzk1VnJOSnpMNUVfbU1jeUU5Uk5FVk5VRzlQMC1kUDdBMFp5b2ZsUWJhR0JtT19tZGh3OEQ1RGtkY2lEZmptM3I5aUZB?oc=5) |
 | California’s largest blaze this year explodes in size as hot weather raises wildfire risk statewide - PBS | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxORWpTcVRneURqLUpuaHItbWVSRkFvYl9nOWNHNVM4ZmtZajIyOTRMVnU0X3d0WEFLdTdGZlItX1hrTTJsdkZranBCSDRmRDhsWUlUWWtfSlVPV0lxNmNsVDVzN2M2NkhHZ2xEeFNHRlZ4c3p0eTN2WVhtVGJjQ3lFeF96S3pjZGNtUlp1VnkyNFZoY2tLc2R1dkg1RFprbGVieFN2TW1rU1FKM2dHR1NOcG1OTWJCTVVGM0FrTVdwTTg0eTRfNndYOC04eHY4YlHSAdQBQVVfeXFMT2dHUkpLZEl4emwzRUZ3SFJkblh5YU42WURFajBTTUgxcFM4alRJNUhOOGZVOXNFeEZYdW5LMXZqT2tzeGZ3RFptRm5JRFVPcHcwOEV5X3YxLUJpQjF4aWlHdEVkQWVYV3NhSnBuOEQxQ1lEQzliWHU5TXRHNVNKRDVQa2pRRy1lWi1MUzAtMUNLY0V4MkJTeHZPR2pFWFhwRmU0TENCcVFZaDlIbndOSXozOGJiWlMwZW5EdGlKSGZwZ1ZTaGswN29Jck9pYWUtOURRY24?oc=5) |
 | Trump got $170 billion for immigration. Now he has to enact it. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPTjM1Zk0zSG9uWC1PWDRSM1NjSWs2YXhSaWVtekJCTW12cUxoVWducHNpSmpEQ2JrNUc1a2tDSk14cXZ2RUlCZGhZZk1EMU5PNDA2ZjMyUmJ6WGo0TXVvcHVBREZEemNwTS1icm5nZWRFekdlQ3g1bmpPZkI0S2kzbms3M3RucVlwWmNEdjVkSldwcEZKejdWdEppSHhzRWRISE1EQW1wMmMtUkI5eEQw?oc=5) |
