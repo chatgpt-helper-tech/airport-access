@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月05日 15:52:47（北京时间）**
+🕒 更新时间：**2025年07月05日 16:00:53（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Tropical Storm Watch issued along Southeast coastline as Tropical Depression Three expected to become Chantal - FOX Weather | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNQkdNOG5xNXpPelNWMVhxZERhamZ4emhIbGNzYUZEeWUyUEh0VTN6ZDkwN3Fnclh2WDl4OUw0cVNnVFV0QjhwWUo5WGd2YjBfZ1pUZlIxSVFTak42bUZrT3BoOUdZQlR3Z3dwMXI0OFItUmlfTVptVEx3S0g5Tmhka0VmaU45RVRRNnRjai1rVWVHRkR40gGaAUFVX3lxTFBNaEUyWkRTVnAzZGNhSFZGWmVYTTRjRVFra1N3QXVJcHNoQ3BpZHJhaG1KOEpta1ZmdDFpSXAzYl9QME9aMVNlbFdiSTVHczJNUWpwVVJFR1RPRXBEbWptU1J2SmFQY1N4RGY0M1o0dTlYOGpMdzlFQXh0STJ2TExBSFpWQzFUc3Y3VnFHcm9YeFJ4MUZHYzJUb2c?oc=5) |
 | Court Rejects Effort to Keep Migrants From Being Sent to South Sudan - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQa2xsX3BLLVFSLWdkMWpmTjlWSlM1TGVlMGdjX3FTSjJBdWVrUDV3UTBxTURoQUcyd1dqUGJjbnNrVm1WYkZuNGlXUTVVMmtvZ3BuQkx1ZXA3UE1hdjl4a3VQWDRGcDRYaGUycWI1am13bUZvdmRZMEZGY3hadElHSGo5bmNoQWs?oc=5) |
 | Trump says ceasefire deal is near as Israeli strikes kill 138 Palestinians in Gaza - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPMDlQa0ZkLUtRUGhxc3dvSU5ERk9ZSmFEUlh0UjJpeUJleGVzNFNwTmxxdkFmbml0cnlsVEIwZkhLQXItbmlRX1hPNkdvZ3pqTlpGUC1qdG54ekhaQ1VtZ0xQenhZV3gzQ3dNMGFrTmJaVHB5b3BnZFl3alp0UjhxckdmSTlsdlVQRWtIZUdYaHpmSkxNQVVNS2Z3eWRycnpYTGZhZ0RTRHN4TEd6Yi1fdjlYU2xMTjBCenc?oc=5) |
-| Boat explodes near Lake Lanier Islands, five injured - AccessWDUN | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNSHJlQk9GejgzUnhMZmtMM1A4VzhsMVh5VTlSWXUwZjZiSnRpZGtIaDFSZ1p3LWVFbFMwbHMyLUhfN1RpUENhRTRVVFp4QUp5cHVhY19oVHRFNXpYQzNHcGZ3OXp5bHBuWkIwaE5wVUVxZEh2T0VFNVAyendDbGJTTllCZnNjZ1paWGwzaFEzTWlyaTZxVmI4RXZUbHRBQQ?oc=5) |
 | Trump’s $7 Billion Education Funding Freeze Blindsides Schools - WSJ | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNM0VseC0zY3RrcTAwYWFCSUNTbVBqc0Y5RHEtdzViREYzVzFKUjBITTBPU05XY2t3cWJGUUJCRWYwQVZ4d21yWFgxTW85MV8wczNTcUFteTJtM1lZOVZDWTFMa29fMW9yT0RWbGZzSnVnMGxycnMtUTdSRE5jVGpRVklXUUo?oc=5) |
+| New aerial photos of 'Alligator Alcatraz' immigration detention center show detainees - USA Today | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNd05ZRm1DT0RhUkN0cEVrRFdWWmtvVUV0MGduSTdDQmtZOTZqc1JmOFNDRWNHOUgydUZnRm1KWU9QTU5VM3FyLXVNOUxrYjFMNE1RbUhYMW4tb1VkYkoxVGhhTDExUmRZaEdWcXZDUmlqbEQtSWZTdFB5eVIxRVBWSUF4Zjl0M3o5aEZIQ2k3X0IyUHF2X3k3SDN2OTN2R05DU0pfVUUxZFh4QQ?oc=5) |
 | Wall Street was expecting a TACO Tuesday. But Dow futures fall 250 points after Trump says he will set tariffs as high as 70% - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQWl9mNEpIM2pMWmJHWjVEVjlFWHMwT056RHYxZ1RkZXlROFJ2Njhubm9Bb2EtT1kzUmVIb01Cc0dTTHYwV1BYZ1lMTV84TktHeGRnekdnYV9ZUTFuR1Z3QkRqV0xLa1hhUzJrSGNFZm9lZTEzY3BUM3dYN1FCZGVncGZkM1lvcV9Zdll2aFdTNHpYb1p2SjJZYXFUaEgxcjctcXd1S0RkWQ?oc=5) |
-| Julian McMahon Dies: ‘Nip/Tuck’, ‘Fantastic Four’, ‘FBI: Most Wanted’ Star Was 56 - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE8wdDBmQ1VpUWZfTEtpd1Z6X0ZNdnRfODRtRkw2UVNhRlN6a3EzcEVVbjlRT1JfT092VkR2MXBrcEZrWWNzZWxVbGtiQ1FUTXgxTU1jTnVsRUNQZGFERFgxVndLWFZGRlRsYkZYbw?oc=5) |
+| Elon Musk floats strategy for new political party - Axios | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9IdV9ZY1lYZlczVmhLYjc5SnJRYnBBUTc4ZWNKcFQtMmtPQjRQZmdEc3BfN3c2NktMb3NHZ3ZiTlBaY1ljZDYzMVBNU0c0bXlPM3BfMzIyN2FkY1JvUWwyT0NGX25VSjdUMlpReXZ3UQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
