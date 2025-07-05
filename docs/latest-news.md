@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月06日 01:14:30（北京时间）**
+🕒 更新时间：**2025年07月06日 01:27:02（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | Labour might be down, but it's not necessarily out - voters reflect on a year in power | [阅读全文](https://www.bbc.com/news/articles/cvg8vjm4ee1o) |
 | Arrests after protest in support of Palestine Action, police say | [阅读全文](https://www.bbc.com/news/articles/c4gd3pkr9x1o) |
 | 'Too many shots in dog collars': Booze culture at crisis-hit cathedral revealed | [阅读全文](https://www.bbc.com/news/articles/ckg34410dx7o) |
-| Sydney Jo's viral TikTok group chat drama, and Superman hits cinemas: What's coming up this week | [阅读全文](https://www.bbc.com/news/articles/cdjx2k1e0ydo) |
 | Why did our aunt leave everything to a complete stranger? | [阅读全文](https://www.bbc.com/news/articles/cx2390x51zqo) |
+| Sydney Jo's viral TikTok group chat drama, and Superman hits cinemas: What's coming up this week | [阅读全文](https://www.bbc.com/news/articles/cdjx2k1e0ydo) |
 | Ketamine helped me escape my negative thoughts - then it nearly killed me | [阅读全文](https://www.bbc.com/news/articles/c70r1xdyy59o) |
+| Oasis kick off their comeback: The best they've been since the 90s | [阅读全文](https://www.bbc.com/news/articles/cn9y5z5nqe1o) |
 | Tiny creatures gorge, get fat, and help fight global warming | [阅读全文](https://www.bbc.com/news/articles/c628nnz3rp9o) |
-| Why Indian artisans are up in arms over Prada's sandals | [阅读全文](https://www.bbc.com/news/articles/cly801q2pw7o) |
 
 ## 📰 Google News
 
@@ -30,9 +30,9 @@
 | Joyful Parisians take a historic plunge into the Seine after 100 years - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNUXVWOEVzUGNIOE1iRktOQWczZ2VlSTJZQjNyRVpsRG1paWNaMUhsbkYtYnlWVnlna1RDeXdCb1hsMDJBYUxPSjNxdDFncUptVVJFdUNYWVp2ZE5GZXZnZnJpS3AwNTB0R1EwOXlhakoxYTdKQS1tbjdBai1yalA5Q0pwYVjSAVZBVV95cUxNNXNrZWR4cFNLY1A0UGZfSGg3OS1Ic3Qyb0pXbVJuY2FfNVNnemZxZ1lqMWliSXdCal9lcmw5QjJJdThxa2hNRUZqUUdzMml3N0JwNFZTUQ?oc=5) |
 | Hamas says ready to enter Gaza ceasefire talks ‘immediately’ - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOSmg5SVdKSGlJOEt4ajdqMk8wYlNURU95YjdQeTlHNUI3YlpxVnE3bEl0WlpicFNOd0pBNlYwTU84UlNHb0lySXJlM1VZWHdpWm1YclZfb05DRjhDU0FTUG1tZE55cDR1WVE3QTFuVTlOYXRxckwwejB0LVFHOE9yUDQxX2NucDg0ZUFR?oc=5) |
 | Heat, storms, mosquitos the big threats at Alligator Alcatraz, experts say - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOb3p3Z2hMa2Ytd1U4czNMNEJrQ1Roa0gxbjhpZERpeEdhbmItT2lRQzZxdDljdlpNcHB4WWYtd0NHb3dvb0NGR2d5dmk3LThGOTNPdENibWIyVEVodE5CUGFRSTMtVlpSTTMwQTJBU0Y2OXBlc1dSYTRDWlNwdjBTYS11WVRuMFNaZVotSkw0eVc2WDZFSHhDTnl6SGVBZw?oc=5) |
+| 3 family members struck by lightning on Florida beach; 17-year-old girl hospitalized - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPb0lPX1RTaTFpOTNVazlYUE9UR0dyc2xlaURwTUkySG9yTW5CMkdoTUVRQVBPMXd0RWFmSUlwVF96b2pSc3dzcXBPZ2JLMjZKRW44Y0s3aXRQU1lYbm5hbUI0TjZyY2c1NWtoNDU1QnFoZGhiUHgyY1lGdkxwcno3ZHY2d1RTeHBlWGdmatIBkgFBVV95cUxQRW1pTk9aWGowRjd0Wi0xRFE5a3dZUTlXbExnOXlmZEhSQ0pQbWtoenpZYkZZOWIxbnpKRWdXSXpwNk94N1ZpOTNySk5nMnlvVHZPdTd2NFE5ZEN2eEdMWWNlTzRJUE9CaGdGMUk4aGdHU1RtYTlleHFEMmp0MXIwSjh0NW12TTZ6MnhCNUMtWExPUQ?oc=5) |
 | Fourth of July bloodbath as mass shooting at bar sees 11 sprayed with bullets - Daily Mail | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQUFoyMWFaVDNES3JZYzN3RWtPMXlXbUQ4TlM1VWcwZWoyZEpHS1VKM1hsRXpPdGx0ZTFtck9mQ29NTU5DZFVMMkZQamw1U1RvY2Q5dE4yd2Q0bndkd001VkN2UlZtLUZ5WUVDUVlySF9USDMyQzBjQnRDLVRORXozMTNicFZLM2lYUHRVeWFvNVhpWFFWWFdVbVhtc0JSY29YWm5KMFpR0gGrAUFVX3lxTFBuR2xLdXEwbklJNkJNQjFKcUh5MXJXQ1c2TWxxenNyUGlrSHFOMU9nbF9ZSWZrcG02bnBRU2hGX0JnaXByYjBybGh1Y3RhTEpOUUN2OW5oWlR5ZlRzaS1iVkhOVU94Z1FjWmdUWGtmYlV3c0xEeHB4QVpmdEs3VWJ3YjRYa1RINnBMMktTNUgxYnFHTlBYQ0EyNkMyZHJaUGhZQUs1Xy1QWnhYMA?oc=5) |
 | Trump got $170 billion for immigration. Now he has to enact it. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPTjM1Zk0zSG9uWC1PWDRSM1NjSWs2YXhSaWVtekJCTW12cUxoVWducHNpSmpEQ2JrNUc1a2tDSk14cXZ2RUlCZGhZZk1EMU5PNDA2ZjMyUmJ6WGo0TXVvcHVBREZEemNwTS1icm5nZWRFekdlQ3g1bmpPZkI0S2kzbms3M3RucVlwWmNEdjVkSldwcEZKejdWdEppSHhzRWRISE1EQW1wMmMtUkI5eEQw?oc=5) |
-| Why Roberts and Gorsuch may decide the Supreme Court’s blockbuster transgender sports case - CNN | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQVkU0N1VhQ3UxZWR3c0JxZ1ZNamZ1RmVweXo3OXZIb0xXRDRSVl9wWkM3alJLN3hzMC1VdjR2QXg3RnJ4TVZJaXJhYVZ6RFUxc3oxUXF0T2ppVk9FeWpvWi1kREd3MUFuT0lpSDFrLTBCV2ZOWm8xOWh1dDhCLVJ3Z0NnWjh1TGtHeDVtbEQ5SXRieU9qa0lDYmd5eWpUdkHSAaQBQVVfeXFMTTBCSG1sZi1mZlA3eXNMVktWWFMxdld5TlFxeE1Jc3FvR3JTakpfQ1dWWG8yeFF3QndLcUN4LTVCTXZPSjAwMWtYMmlzamZvMTh5NmxLcmVZVExEQ2N5czFtcnN5amFvbDVhNjV0TnhWM3lTVGhucEJqcW54My1XaW1abHhEY0JEc1NDWlpad3JSVWRJT3piR0ltV1JWS3dDaUNVTXU?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
