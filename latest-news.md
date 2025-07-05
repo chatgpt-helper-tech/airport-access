@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月06日 02:27:31（北京时间）**
+🕒 更新时间：**2025年07月06日 02:39:39（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump administration deports Djibouti detainees to South Sudan after judge denies emergency bid to block flight - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5sRC10c3prSF9LU1pickhObnBkcVZfT0lrQl93SDhKeGNWamRWQlphdUhTTlQ5eWl6VXB5OTBnaGNocmtaY3R4OVFWU1lwcWVOM1c5bFFjeVZpQXJUZ0ZMY0ZTNWVnbk5yMVRWcVNUNHh2YWhSWHZ4NdIBfkFVX3lxTE42LUZXUG4tVHBCaWlCbTR3eTNFR1E0ZXc4OEJ2NjhZNm5EYVBqMHZsVDRDSlJWdWNUZjFvTzJtOWJ1XzFzN1dvejlJbXN1blpQZTlRSDlmMGVxcDFvWGxzc1R1dEoxaVdKSWp0ci1CU3FxTXp1TkdVenFVM3NzZw?oc=5) |
 | Heat, storms, mosquitos the big threats at Alligator Alcatraz, experts say - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOb3p3Z2hMa2Ytd1U4czNMNEJrQ1Roa0gxbjhpZERpeEdhbmItT2lRQzZxdDljdlpNcHB4WWYtd0NHb3dvb0NGR2d5dmk3LThGOTNPdENibWIyVEVodE5CUGFRSTMtVlpSTTMwQTJBU0Y2OXBlc1dSYTRDWlNwdjBTYS11WVRuMFNaZVotSkw0eVc2WDZFSHhDTnl6SGVBZw?oc=5) |
 | Trump got $170 billion for immigration. Now he has to enact it. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPTjM1Zk0zSG9uWC1PWDRSM1NjSWs2YXhSaWVtekJCTW12cUxoVWducHNpSmpEQ2JrNUc1a2tDSk14cXZ2RUlCZGhZZk1EMU5PNDA2ZjMyUmJ6WGo0TXVvcHVBREZEemNwTS1icm5nZWRFekdlQ3g1bmpPZkI0S2kzbms3M3RucVlwWmNEdjVkSldwcEZKejdWdEppSHhzRWRISE1EQW1wMmMtUkI5eEQw?oc=5) |
+| Zohran Mamdani’s New York primary win sparks the ire of Modi’s supporters - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQekplNGlQN0pzdmUtZ1VEZkdpQ0R5RHhGZE03eEZ5UnFSck84cFN6VzNwSWEtX1lOc1E3QVJZOHh6SWI4eFotV2pISHNzX3BKSHFLOTZzdDFjbzhLY0x6ZFIxVEFvQnJOYm1pTlp3T3dQdVNMSG9RM2h1QlVhTEREWWJFWlMxMF96REVyMzU4MFhpb1VfbjNGaURTYVcyR29pNktQajVpaXhvY1drcnlFZ9IBtgFBVV95cUxOblVwc3F6ZFE2cW1kNDFpNnVKclM1SWRSWkFtZklKWWVNQTl5WUdQZHpyaVpBU2JBcTJrU0xDcDJyVTJjcU1tY1lvVVdvcDBnWnU4ZWRjSU1rdGFsVGs1QVVYWHdydm41bERPNGo5Nk90UkM2UGJvR2IwQUVtWmRWbkNKdmlMTUJEWGxadDg5UjFhRWlvNWNQWTcxbUhsOEJqMGRucVJmZHhma0tDaEV1NG5adl9DZw?oc=5) |
 | Thom Tillis' exit shakes up the battle for the Senate as key races take shape - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOSjJBSndOLVM3dG1VQ1hwR1hxdGswWHd3MGdhS24yWkoyNDlUN3pjZUpWQVBnY2FhQXI5QXlBbXFNeTRBbU5aVm9hcFpkeU9mNjJMdjl5MHc0VHY3ZmxoY1RYSE1aR3VmN0V0d2dBMW50dHlXOXlWcWFnWmJjT3dLeU00Tng2M1pZZVFoc3h6Z21BNnU1cW5ib2ZKcmtpeFVwRVZ3UFVkMTdIXzZDVEh4ek1wS0JzLTjSAVZBVV95cUxPNmUtOG9TeGIwWEkxN2NwUVB2emVQZmlYa3h4ZnBNdVRkYnJJSW9TcU93RWg2T3BvTlpBcXNQTERRVUZ4cy1oeUZsM0gtUHZyeUlITi1adw?oc=5) |
-| Hamas says it responds to Gaza ceasefire proposal in 'a positive spirit' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxOc1lPczdlVm5sRjJDbXc3YWstbHIybGZ1clUzcV9wUmhuUEN3YUoxNjA0NVJsYjZETTRrWk85bTh6cjJEV045VmNEYjRsbE9pd0duVnppdWJPTEhJbDI0N3BEOEFtMVpCcGZQdHFwSmp1UFhmMkN6ME9hV0ZtNC1pUjFWSlB5cVlicUhpWkFZdF9XVUpXVzR1Yno0ZF84bXlxMUlWeldyUGhiMmhUNW5PdFhYY05rNjVxWjhzOWFlQTFOeC1uUUpFVUhR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
