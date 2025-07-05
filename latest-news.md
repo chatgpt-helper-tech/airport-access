@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月06日 01:00:22（北京时间）**
+🕒 更新时间：**2025年07月06日 01:14:30（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | Trump warns a dozen countries will get tariff letters Monday - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiZEFVX3lxTE5VTmNhRDVlMkJsaWZ0aW1YVzhQbmdIWWNTVGwxUC0tX05ZMUZhZ3dtRUlqcU5HZ3kzcVU0S2FwZ0NyUDVGZGpHRmdNNEE1SkcyenVmSWpsVmZ3SlUtc0Y0Z1EzdFU?oc=5) |
 | Joyful Parisians take a historic plunge into the Seine after 100 years - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNUXVWOEVzUGNIOE1iRktOQWczZ2VlSTJZQjNyRVpsRG1paWNaMUhsbkYtYnlWVnlna1RDeXdCb1hsMDJBYUxPSjNxdDFncUptVVJFdUNYWVp2ZE5GZXZnZnJpS3AwNTB0R1EwOXlhakoxYTdKQS1tbjdBai1yalA5Q0pwYVjSAVZBVV95cUxNNXNrZWR4cFNLY1A0UGZfSGg3OS1Ic3Qyb0pXbVJuY2FfNVNnemZxZ1lqMWliSXdCal9lcmw5QjJJdThxa2hNRUZqUUdzMml3N0JwNFZTUQ?oc=5) |
 | Hamas says ready to enter Gaza ceasefire talks ‘immediately’ - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOSmg5SVdKSGlJOEt4ajdqMk8wYlNURU95YjdQeTlHNUI3YlpxVnE3bEl0WlpicFNOd0pBNlYwTU84UlNHb0lySXJlM1VZWHdpWm1YclZfb05DRjhDU0FTUG1tZE55cDR1WVE3QTFuVTlOYXRxckwwejB0LVFHOE9yUDQxX2NucDg0ZUFR?oc=5) |
-| Minnesota districts eye levies to cover federal funding freeze - kare11.com | [阅读全文](https://news.google.com/rss/articles/CBMiiwJBVV95cUxOOG1jX0padld2Z2V5S0U4LVVSNERwa0szclkzSGM3bG1sMVZyT2xhQm5TMFJ5NGNURlRqTmJNR1V5SGV4d1pyTGJVWWIwa014QkkyMnFqMVRManhhV2UxTUsxS0NPaC1IWWxrbHUxam1oTXo2Z2lMSW9yRFdUMnFXcmtYTThzcFBETWFiNUhLZTVWTk0xNDA3LV9vQm9xSU5xcUJVR19pbC1vdW8waTNQN2l4SUdUa0pvSlk1S1BNcXJLbHo5SlcwdExaRFhVNjRZSG5zZkg5eHVfcEVMMGRFUFdvTlR4b1JGRGdRa0JTUVlXYWRQU2ZHTHc3T3diQjZReUFZZkJraVRtVzA?oc=5) |
 | Heat, storms, mosquitos the big threats at Alligator Alcatraz, experts say - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOb3p3Z2hMa2Ytd1U4czNMNEJrQ1Roa0gxbjhpZERpeEdhbmItT2lRQzZxdDljdlpNcHB4WWYtd0NHb3dvb0NGR2d5dmk3LThGOTNPdENibWIyVEVodE5CUGFRSTMtVlpSTTMwQTJBU0Y2OXBlc1dSYTRDWlNwdjBTYS11WVRuMFNaZVotSkw0eVc2WDZFSHhDTnl6SGVBZw?oc=5) |
-| Trump got $170 billion for immigration. Now he has to enact it. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPTjM1Zk0zSG9uWC1PWDRSM1NjSWs2YXhSaWVtekJCTW12cUxoVWducHNpSmpEQ2JrNUc1a2tDSk14cXZ2RUlCZGhZZk1EMU5PNDA2ZjMyUmJ6WGo0TXVvcHVBREZEemNwTS1icm5nZWRFekdlQ3g1bmpPZkI0S2kzbms3M3RucVlwWmNEdjVkSldwcEZKejdWdEppSHhzRWRISE1EQW1wMmMtUkI5eEQw?oc=5) |
+| 3 family members struck by lightning on Florida beach; 17-year-old girl hospitalized - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPb0lPX1RTaTFpOTNVazlYUE9UR0dyc2xlaURwTUkySG9yTW5CMkdoTUVRQVBPMXd0RWFmSUlwVF96b2pSc3dzcXBPZ2JLMjZKRW44Y0s3aXRQU1lYbm5hbUI0TjZyY2c1NWtoNDU1QnFoZGhiUHgyY1lGdkxwcno3ZHY2d1RTeHBlWGdmatIBkgFBVV95cUxQRW1pTk9aWGowRjd0Wi0xRFE5a3dZUTlXbExnOXlmZEhSQ0pQbWtoenpZYkZZOWIxbnpKRWdXSXpwNk94N1ZpOTNySk5nMnlvVHZPdTd2NFE5ZEN2eEdMWWNlTzRJUE9CaGdGMUk4aGdHU1RtYTlleHFEMmp0MXIwSjh0NW12TTZ6MnhCNUMtWExPUQ?oc=5) |
+| Flooded Areas of Texas Could Get Several More Inches of Rain - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE10dDZZSjlwZEYyN2tMV1hITkpydEdfUlVfbUdGS0NUWGRhdFY5SnlQNWhPZlFiWlRpdmp3dnhIUU5xSThTYlBvSXJBNVRXeUNqaDFnbnMwQlIxeDdSRU9ScXJFa2VTVnBVZHJmS0Fudw?oc=5) |
 | Fourth of July bloodbath as mass shooting at bar sees 11 sprayed with bullets - Daily Mail | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQUFoyMWFaVDNES3JZYzN3RWtPMXlXbUQ4TlM1VWcwZWoyZEpHS1VKM1hsRXpPdGx0ZTFtck9mQ29NTU5DZFVMMkZQamw1U1RvY2Q5dE4yd2Q0bndkd001VkN2UlZtLUZ5WUVDUVlySF9USDMyQzBjQnRDLVRORXozMTNicFZLM2lYUHRVeWFvNVhpWFFWWFdVbVhtc0JSY29YWm5KMFpR0gGrAUFVX3lxTFBuR2xLdXEwbklJNkJNQjFKcUh5MXJXQ1c2TWxxenNyUGlrSHFOMU9nbF9ZSWZrcG02bnBRU2hGX0JnaXByYjBybGh1Y3RhTEpOUUN2OW5oWlR5ZlRzaS1iVkhOVU94Z1FjWmdUWGtmYlV3c0xEeHB4QVpmdEs3VWJ3YjRYa1RINnBMMktTNUgxYnFHTlBYQ0EyNkMyZHJaUGhZQUs1Xy1QWnhYMA?oc=5) |
 
 ---
