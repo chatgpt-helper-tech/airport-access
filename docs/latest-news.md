@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月07日 06:52:12（北京时间）**
+🕒 更新时间：**2025年07月07日 07:02:01（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | In pictures: Deadly flooding in Texas - CNN | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE82SlE4OTZwYVhfSVRLaWtEczl0aUVJYUljVUVpa29ZNXYwdnpoUXlMa09qb1dDRkd6Vi1RXzc5WFM4Q3NyV1YyU1hMSFgxZTlFbU1ramZ1Wmo4eHBMLVVTdDFhbGh6RUFOcGdNM0RLWTY?oc=5) |
 | Pressure from Trump for trade deals before Wednesday deadline, but hints of more time for talks - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPVXNvaHNZNkFmX3hqYzhiZk94STV6d085V2FmTmxaWjNoaW9rcmJWVUJ3d0k1Z0dtS2VhLTNCeERsdGgwdVlzQVMyRlNlYTlsUkpfaUlaWjZvb0JvY3BoOFdVdHJLWk9xc2VnSWxqNUJvendHWHhNX1hfMEE1WHhFZU44WDJzd2ZDZGNiT0ZzNFFQajZmblZjNzhidU5nOGQ5NUdaaXdB?oc=5) |
-| Elon Musk says he's formed the 'America Party.' Mark Cuban and Anthony Scaramucci are interested. - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE4xUzJMUWNIeWRDLWE0cWVxTEtPaTlzRGFOendHREpEQUhTelA4cjVUemlmWU9ZY1VvbVFxaWRLTG9CWUxsMVlNa0NHcXA3N1pESHZZbmxnbGtNbGJDSV9MVWxHa1dVcmhiTU94dE91VQ?oc=5) |
+| Musk should stay out of politics, treasury secretary says after ‘America’ party news - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNQmJfZDVlNEpwRzdRV1dUaDNrSWhCU3VwRGcxdTRkMnZ5M1Iwa0cxcmtWSFh6SGpBTGdZb2xEaTdOV2tTb181eF8wTmJHbEhHVEM5czVoeUpsa05PckRtVTFtTFprTE5VQU54el9oN3ZDZ01DSjV6TXpoNU9sbzUwR2xUNnRSbHh2WlNhcGJB?oc=5) |
 | U.S. seeks limited trade deal with E.U. as Trump’s deadline approaches - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1JVEM3Z1E4RGVsY00yUHNIeXdfZzdpY3JmQjZscDBLQXFuR0ViaXVqamlfX0x0MVZEb0t1SGtYQ0hhUFpoQzBQanJuRkE0ZFRIVjJ3QVg5eUQzRFZZX0F0eW9mR1RwM05tTmExaWY1LS12UHF2TjVmXy1qTy1zQjg?oc=5) |
 | Tropical Storm Chantal brings heavy rains into northeastern South Carolina - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOSkxFWjlCVHVvTGVvc3c5MXZMZGN4Nno0UExLbUFZemVrTmE4OTVQNV9qN0J1aUplRHRwZWpPaWltRy1zeUE0cHFna2ZZTmRiazUxT2U4aGltQ0tvczBoUm5zdlkwcDNGdi1IZzJSbHJDSUd1cFE3WG9fNjU1M0xYM3NlWXZGaExIRzRtcW8weUh4OGx5M2g3b041dmtLWVktdVp4V0RB?oc=5) |
 | Knives, bullets and thieves: the quest for food in Gaza - NPR | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTFA1aFNDS1l4a0RHY2FBRG80NGFIYnhxMUlRWHBSRVJBOXE1ejBialBydUd0Uk5DWF9HOTROMnBvTzRRMW5CUkJaR3k5YUczUFhZMjNMMDBYQmRCS0VtRnVFLUNXQ2NZamV5TkVoOXJEQQ?oc=5) |
