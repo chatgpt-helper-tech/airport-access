@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月06日 16:14:56（北京时间）**
+🕒 更新时间：**2025年07月06日 16:27:35（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Brazil hosts BRICS summit, eager to avoid provoking Trump’s ire - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPYnVMY0hUZzFZSWZqZDJWTGJYVzdnQkU4T1VRdFpFbGNZUEE5YzJQZUxzOTRsOWRSVld0d25UY3VKNEMxTW5GN1ZickZZbmt2ZE1rTWRQbXRUcmZJYkFWYXlMeDRCMXRuSEFsVEFGVUlNck9jdHdoODhYSlV4d0htTVNESlVxTURCVmRTT25DWEgtMzA?oc=5) |
 | Trump administration freezes millions in grants to Alaska schools - Anchorage Daily News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQWlZrWThaR0FTSTE2R1ZYZFRCTDd4OGptRW5Wb3NidWRfRm9iMjJKS1cxN2k5clBheDg0Y0JxM2tOUFNFVW1xOWtRYUhhR0d1bHAtU0NuM1pENW1JV05FajlKRGNQa0YtOTBTVUdyb0wxcy0zc0ctMEs1Tlk5c0V2MzRya1NMdU5Dd3BYTThnY3Vnd3g2b2FOaUVVN1lVc1BlWk9jb2lYMk93Zw?oc=5) |
 | 'Alligator Alcatraz' Detention Center Poses Serious Risks to Immigrants Beyond Just Alligators - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOWjZ3aHFvcmptb0d5SmZIbmtHbmlEZjVUbElGQW1MSzRCYWcyUF9PYUZkRXJjRl9wUjFmY3dHUzk5b2stLXhaWU1BcTdzckVHczdoek9neVFOMzdUZnVtak5INlFpSWNtYktJQnFDdGZJQmhNa0UyaTMxOHFTMXBzQjFrajdtT1lLU25KbmRNMzVGNElKN2VaNEFndUhLTVVVYmJTa2hlMUdXLW1LNjhzN1NpTzhkZWQw?oc=5) |
-| The next megabill Congress needs to worry about - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPNVkyTzg0U0F2RzkyWHV4R3ItVlNHQTlGcUtuak1neFNUMGZZQ2RHM3kzcmZEckVFZDkwa2wwWXNDZUV4ZjhhUFVYb0htRHlXamh6ZVM4VXBfX0haeFh0R2pkVzRXN0VTX3haVzRIOVd4MVppYk5fQjRlSE1OdUdCelItUVRrQnlGQjZVRFhmYmI?oc=5) |
+| Will Trump's megabill help Democrats win the House? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNX1dHNUtXWmVTdEhfcWhaVVhxUTFrbWdQbmVqd3pqemlwRzZpMmN4VEtvZ202bWlGRXNvYkN5Z2lsSlVmSnVwb3lLVzY3a2RpRU56dlJQS04xNU55MDV4R2NWVW1uODlHQ19RZnROLUlBdVZvaW1rMWFaWDR2VWVrRlV1bnI1Z1VCVlFrZ2RuMF80Zw?oc=5) |
 | Dalai Lama marks his 90th birthday as crowds throng his home-in-exile - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPa2Y1NDBhb2hQMkhnbUNnT3BOOVlxWmo2cVRpN0hVbFZFSzQyQTZIMlUxdEhmMXJkcGRCNWdna2lCUEZia2psc0phaTVmWm1UVFZyZHpTV0NMN09XdGhqeVNFVGdpVVhJX1VPYTJsMXlPdVB2VTJkdkREWGE0dVJ4bzJWUGUtVm1Z0gGOAUFVX3lxTE12T003SVh3eXpaMXdEXzdRM3pydU1pblVFTnQxQnlETFF2Ty1rRTV3M1NOOUZjdm52MWNuRFFtN2NLS28yY1VKanZTMTlVZGlSV0xWX3ZWYnRQOUpUa2pFbC1iVDBtaXZVQUE4bElkek1qMWl4OFB5LUpMTHJDZTk3Z0pITHg3bXduekY3cVE?oc=5) |
 
 ---
