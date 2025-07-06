@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月07日 03:13:43（北京时间）**
+🕒 更新时间：**2025年07月07日 03:27:20（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | Hamas security officer says group has lost control over most of Gaza | [阅读全文](https://www.bbc.com/news/articles/c4gk79xlzwjo) |
 | Parents of girls killed in school crash 'still waiting for answers' | [阅读全文](https://www.bbc.com/news/articles/c89e1kynjjko) |
 | Trump is using the 'Madman Theory' to try to change the world (and it's working) | [阅读全文](https://www.bbc.com/news/articles/czxww2kez0go) |
-| Murder inquiry launched after scientist found injured on street | [阅读全文](https://www.bbc.com/news/articles/c628965dvp1o) |
+| Murder inquiry after scientist found injured on street | [阅读全文](https://www.bbc.com/news/articles/c628965dvp1o) |
 | Football clubs should pay towards £70m policing cost, Met chief says | [阅读全文](https://www.bbc.com/news/articles/cqx2338z971o) |
 | Norris takes first Silverstone win in dramatic race | [阅读全文](https://www.bbc.com/sport/formula1/articles/c4gd76m7391o) |
 | Eurostar train evacuated during eight-hour delay in northern France | [阅读全文](https://www.bbc.com/news/articles/c89e1511l7po) |
