@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月07日 02:26:34（北京时间）**
+🕒 更新时间：**2025年07月07日 02:39:17（北京时间）**
 
 ---
 
@@ -8,12 +8,22 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Welfare U-turn makes spending decisions harder, minister tells BBC | [阅读全文](https://www.bbc.com/news/articles/cq8z34x914jo) |
+| Hamas security officer says group has lost control over most of Gaza | [阅读全文](https://www.bbc.com/news/articles/c4gk79xlzwjo) |
+| Parents of girls killed in school crash 'still waiting for answers' | [阅读全文](https://www.bbc.com/news/articles/c89e1kynjjko) |
+| Trump is using the 'Madman Theory' to try to change the world (and it's working) | [阅读全文](https://www.bbc.com/news/articles/czxww2kez0go) |
+| Murder inquiry launched after scientist found injured on street | [阅读全文](https://www.bbc.com/news/articles/c628965dvp1o) |
+| Football clubs should pay towards £70m policing cost, Met chief says | [阅读全文](https://www.bbc.com/news/articles/cqx2338z971o) |
+| Norris takes first Silverstone win in dramatic race | [阅读全文](https://www.bbc.com/sport/formula1/articles/c4gd76m7391o) |
+| Eurostar train evacuated after four-hour wait in northern France | [阅读全文](https://www.bbc.com/news/articles/c89e1511l7po) |
+| Watch: Ozzy Osbourne belt out Iron Man one last time during final Black Sabbath show | [阅读全文](https://www.bbc.com/news/videos/cgjgdz94389o) |
+| Archaeologists unveil 3,500-year-old city in Peru | [阅读全文](https://www.bbc.com/news/articles/c07dmx38kyeo) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| In pictures: Deadly flooding in Texas - CNN | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE82SlE4OTZwYVhfSVRLaWtEczl0aUVJYUljVUVpa29ZNXYwdnpoUXlMa09qb1dDRkd6Vi1RXzc5WFM4Q3NyV1YyU1hMSFgxZTlFbU1ramZ1Wmo4eHBMLVVTdDFhbGh6RUFOcGdNM0RLWTY?oc=5) |
+| As Floods Hit, Key Roles Were Vacant at Weather Service Offices in Texas - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQSEpxUUJkTHFlTklTSE94WGZTYmxrRXhPN3BVRW04MTZMUXBabFpQZGlmeVhCNU9tTGo0cXBrRE54UXdDcTBzYTBieGdjVm9hQ0VCSUhKTFVxcG12ZXl5S2JEUGJ2cWhMcFRhN055QV9VT0tKQWliSWlkajhVUXZFSlhWLVVrQXN6cUlV?oc=5) |
 | Trump team moves goalposts on tariffs again - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQMHlpcjVZR2UyWDB5TkFud3dzZS02UzhYM25VYnFSTGtkdjFwVUt1X2lTQTZ3WlJ1RXBlTnA0T2FCcFV1OFRjY255T1FtRjhVTDh3Qy1xYVJ3Q3JxQkpLMDQzZkF5eGpyVHVNLWlpMVRYMmFFMHVUWkNvNDBDMThoTGJtcWlWemJmdFYxUUtGcDU?oc=5) |
 | Elon Musk says he is launching new America Party - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBHa0toaExoWXpFZmE2UG5EWVFRaEJTdmhtSlV0S1pzSnhld0k4bloxdnVYZ2lDSWdyWjRQNHNaOTFpUUY5eXZfNVVMQXBMODZPQUVwenBWUHRvZ9IBX0FVX3lxTFBfVGlLY3g4SF9MaHhwcHpvOGwzNm1RLXd5ZnpNS2liaDNtWUJ5QTlTRzdfVlBydTR2ZUg4b0tha2R4WWhMRV9pdmVRdFlmQS00VFBpTlYweVpDSWxLdS1Z?oc=5) |
 | Knives, bullets and thieves: the quest for food in Gaza - NPR | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTFA1aFNDS1l4a0RHY2FBRG80NGFIYnhxMUlRWHBSRVJBOXE1ejBialBydUd0Uk5DWF9HOTROMnBvTzRRMW5CUkJaR3k5YUczUFhZMjNMMDBYQmRCS0VtRnVFLUNXQ2NZamV5TkVoOXJEQQ?oc=5) |

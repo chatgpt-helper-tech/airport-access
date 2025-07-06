@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月07日 02:26:54（北京时间）**
+🕒 更新时间：**2025年07月07日 02:39:18（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | Hamas security officer says group has lost control over most of Gaza | [阅读全文](https://www.bbc.com/news/articles/c4gk79xlzwjo) |
 | Parents of girls killed in school crash 'still waiting for answers' | [阅读全文](https://www.bbc.com/news/articles/c89e1kynjjko) |
 | Trump is using the 'Madman Theory' to try to change the world (and it's working) | [阅读全文](https://www.bbc.com/news/articles/czxww2kez0go) |
-| Man charged over death of scientist found injured on street | [阅读全文](https://www.bbc.com/news/articles/c628965dvp1o) |
+| Murder inquiry launched after scientist found injured on street | [阅读全文](https://www.bbc.com/news/articles/c628965dvp1o) |
 | Football clubs should pay towards £70m policing cost, Met chief says | [阅读全文](https://www.bbc.com/news/articles/cqx2338z971o) |
 | Norris takes first Silverstone win in dramatic race | [阅读全文](https://www.bbc.com/sport/formula1/articles/c4gd76m7391o) |
 | Eurostar train evacuated after four-hour wait in northern France | [阅读全文](https://www.bbc.com/news/articles/c89e1511l7po) |
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| In pictures: Deadly flooding in Texas - CNN | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE82SlE4OTZwYVhfSVRLaWtEczl0aUVJYUljVUVpa29ZNXYwdnpoUXlMa09qb1dDRkd6Vi1RXzc5WFM4Q3NyV1YyU1hMSFgxZTlFbU1ramZ1Wmo4eHBMLVVTdDFhbGh6RUFOcGdNM0RLWTY?oc=5) |
-| Trump team moves goalposts on tariffs again - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQMHlpcjVZR2UyWDB5TkFud3dzZS02UzhYM25VYnFSTGtkdjFwVUt1X2lTQTZ3WlJ1RXBlTnA0T2FCcFV1OFRjY255T1FtRjhVTDh3Qy1xYVJ3Q3JxQkpLMDQzZkF5eGpyVHVNLWlpMVRYMmFFMHVUWkNvNDBDMThoTGJtcWlWemJmdFYxUUtGcDU?oc=5) |
+| As Floods Hit, Key Roles Were Vacant at Weather Service Offices in Texas - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQSEpxUUJkTHFlTklTSE94WGZTYmxrRXhPN3BVRW04MTZMUXBabFpQZGlmeVhCNU9tTGo0cXBrRE54UXdDcTBzYTBieGdjVm9hQ0VCSUhKTFVxcG12ZXl5S2JEUGJ2cWhMcFRhN055QV9VT0tKQWliSWlkajhVUXZFSlhWLVVrQXN6cUlV?oc=5) |
 | Elon Musk says he is launching new America Party - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBHa0toaExoWXpFZmE2UG5EWVFRaEJTdmhtSlV0S1pzSnhld0k4bloxdnVYZ2lDSWdyWjRQNHNaOTFpUUY5eXZfNVVMQXBMODZPQUVwenBWUHRvZ9IBX0FVX3lxTFBfVGlLY3g4SF9MaHhwcHpvOGwzNm1RLXd5ZnpNS2liaDNtWUJ5QTlTRzdfVlBydTR2ZUg4b0tha2R4WWhMRV9pdmVRdFlmQS00VFBpTlYweVpDSWxLdS1Z?oc=5) |
+| Bessent: Tariffs will 'boomerang' back to April levels by Aug. 1 for countries without deals - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1iUlp1LWtqdFBLMWEtU243OVFGVmpwM2s2SUtMMzFlMmVfb2JURFRSazVPeHhMMkQzdGFyVkVRLUgtYTRGYTNxd1hjNC1rWE1WSmlTenVZV2JFYXpkTVc0UlMwWk1RSDdpWmRBZG81YWlJSnfSAXhBVV95cUxNN0tPdjhsWnNvS1RGZUZQci1MWnhLa20zemtIVmxkNlk1WmFVUjB5d0dqeWRBWXA0SGtiQU5rYkx6c3o0aU40Ui16OFNNU2M2M2g2WXJNWldtTUtfMmhaMGdCRDNmQmstMjh2SUg2Z0tvb0UtbVV4QnA?oc=5) |
 | Knives, bullets and thieves: the quest for food in Gaza - NPR | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTFA1aFNDS1l4a0RHY2FBRG80NGFIYnhxMUlRWHBSRVJBOXE1ejBialBydUd0Uk5DWF9HOTROMnBvTzRRMW5CUkJaR3k5YUczUFhZMjNMMDBYQmRCS0VtRnVFLUNXQ2NZamV5TkVoOXJEQQ?oc=5) |
 | Dalai Lama, a global symbol of Tibetan culture and resistance, turns 90 - NPR | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE9xSXNxUUVxWnVPTkZpLWlNUXFadDJoZk1QMkcwTkVzZlMyMmJrSUNrdW55MDVmcmRlVTg0Nk5UVVZCS2pEYm92ZkF2ZmZfa0pwTG95bkdSdktqVU9ubmdwZzVtV0xFR25LcUQ2OUhiX09XUQ?oc=5) |
 | Trump’s ‘Big Beautiful Bill’ has been signed into law. What does that mean? - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxNSXhFVFRmUDNHU0F3UWpjOEFnUG16c0VyT2M0dk5Ua3oyQkUweTRuQUV4c3JROVcxX3pIM1J5MTdpQ1dtY083YUxVS1BVYUswRjZoQjFMZW16U0xmUzRmaEI3TS15WUZOQkFhSGNDb1E4LTRzTUVIZWpsOG5hN29zX3NLVFU3LUx0Z0RyaVVLNTNaZnE2N2pMSVE3R296aEVOTU5Vdmc4ZG50UUFfWklRSk5rVFN2aVl3TDIzLUg3aEN4WFM2VE5rUzhWSTJYZ0E3djZ0amxPS2l5WWtwdmgw?oc=5) |
