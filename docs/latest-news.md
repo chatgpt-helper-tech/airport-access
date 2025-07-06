@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月07日 00:53:25（北京时间）**
+🕒 更新时间：**2025年07月07日 01:01:21（北京时间）**
 
 ---
 
@@ -8,25 +8,15 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Welfare U-turn makes spending decisions harder, minister tells BBC | [阅读全文](https://www.bbc.com/news/articles/cq8z34x914jo) |
-| Hamas security officer says group has lost control over most of Gaza | [阅读全文](https://www.bbc.com/news/articles/c4gk79xlzwjo) |
-| Trump is using the 'Madman Theory' to try to change the world (and it's working) | [阅读全文](https://www.bbc.com/news/articles/czxww2kez0go) |
-| Parents of girls killed in school crash 'still waiting for answers' | [阅读全文](https://www.bbc.com/news/articles/c89e1kynjjko) |
-| Watch: Ozzy Osbourne belt out Iron Man one last time during final Black Sabbath show | [阅读全文](https://www.bbc.com/news/videos/cgjgdz94389o) |
-| How MI5 piled falsehood on falsehood in the case of neo-Nazi spy who abused women | [阅读全文](https://www.bbc.com/news/articles/c3w4nwdwywno) |
-| Sabrina Carpenter tones down headline show - but she's still at her best | [阅读全文](https://www.bbc.com/news/articles/cwyqr1q8ypno) |
-| I looked into the eyes of a man who blew himself up on the Tube. I still see him everywhere | [阅读全文](https://www.bbc.com/news/articles/cedgvg3elx2o) |
-| Not getting a summer job? Here are eight ways to change that | [阅读全文](https://www.bbc.com/news/articles/crl0j9jkez1o) |
-| Why I kick down Peak District stone stacks | [阅读全文](https://www.bbc.com/news/articles/cd6g55w5l5zo) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Texas Flood Victims: What We Know - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTFB0YUlndjhJNGRJOU5ZZzZwUnhkLTA0TUhmeV9DSUYwRUUxZkpFQk81X1l0Zk1vdnNPVXRWSk1Vb0JlbEdwcUxEYlBUajFJRzZTR2VtenlJWF9yWFM0RWNhUkdUV1IwZzd3UVhfVVVDOA?oc=5) |
+| Camp Mystic Parents Endure Agonizing Wait for Their Missing Children - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBIc28tV1ZLMVFXeXIwZ3JXRnByTU5ZeE0tYThvclliMHNTSjA2ZF9sWGo2UXpqdWZrVHpFZzZLMnZlYXd0NlJxWlUyR2FiUjhrY3JQTUVIQUFvQVdoeVVPekZldndtd2x0YjRaRllPNWc?oc=5) |
 | Tariffs return to April rates on August 1 without deals, Bessent says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE9HUUU1clhlTGkwYi1pd0UwSnI1eUx4bGM3MGc3a21SN0pic1FNUGswYWZNUFdESDlfU0czY0VpWE5tb2NaZHkwZjlpR3RDSnl0MnEzM1VYZFIwb3lVNi1FZkVyTE14UUVZZWgtNXU2TjNFQQ?oc=5) |
 | Israel to send team to Gaza talks despite Hamas demands, PM says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5mTE5WTFJxcXcwWWFCUUt3U25Jc1pOY3l2cFhoN2t1UjQwYUltWHhERFJPcElwYnQtbEgyU0Nid1FsTWdaVFl5QmVUWWQtZzVSVW5KNzctT1Y5QdIBX0FVX3lxTE9mdXpsZFlsbUZHSmlOSExaOU1yY3JVY19Id2hqOGpXdnZEcDFzajN2STBmVG5qY0JSdEZjZUhCSnc0Z0FLZ0Y0YnRFWkNTaThBZ19lTjB1aDVGM0RqSUdR?oc=5) |
-| Musk says he is forming new political party after fallout with Trump - CNN | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1OZThSLUwySHRuME16amI1UnUyaFlxVUl5XzE0VW45SVdFUElFRlJkZ0pSRTJXRXBTcEI4X3BZVGY1S0JVcjFEbVJHZjVKWWFyMHRWYVBtV0JISjI1RktKN1VPZ1RBZTdoSzZRZ0hJUFF4NWPSAXhBVV95cUxObHNkXzBmb0tHczNCQVZKZ3FHM1JiaGRkY0F5X2NkVTNLa2p5QURuQWpmckdoRG1Ga3JOQm5WWG44Zko1NXJ3V05hTnRmOTJjZUV0REJaWENlTGh1ei1WaFJjOGduVkF0OWZadWxmN0NaWl95WW5KTVY?oc=5) |
+| Musk should stay out of politics, US Treasury Secretary Bessent says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi2AFBVV95cUxQTS12eHZueWVLUjBtbTc2MnFuRlM2WnNZV3N6ajNJVFNBOG5ibVk2QW9LR0F4MklpRU1SNm5CeWlLVmdMLVZ5WUJldmY2cjFsMEVrSXJBMXNSaThuSnQwVTNyXzhoWUhrbU03Y1VJRUtBV1A5QW9la1AwWVZYTHBxSkQwR0hoZXFWQm5NVGc5UWFtaktQNV8takZ5QjNIVjdLSEpKVVI1VzhuLTJHUm5FZXZDcW55Vy00OFkwOTI2VlNXVlpfLWNZa0JackM3WFY4SE9lMk1tVG8?oc=5) |
 | Knives, bullets and thieves: the quest for food in Gaza - NPR | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTFA1aFNDS1l4a0RHY2FBRG80NGFIYnhxMUlRWHBSRVJBOXE1ejBialBydUd0Uk5DWF9HOTROMnBvTzRRMW5CUkJaR3k5YUczUFhZMjNMMDBYQmRCS0VtRnVFLUNXQ2NZamV5TkVoOXJEQQ?oc=5) |
 | Dalai Lama, a global symbol of Tibetan culture and resistance, turns 90 - NPR | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE9xSXNxUUVxWnVPTkZpLWlNUXFadDJoZk1QMkcwTkVzZlMyMmJrSUNrdW55MDVmcmRlVTg0Nk5UVVZCS2pEYm92ZkF2ZmZfa0pwTG95bkdSdktqVU9ubmdwZzVtV0xFR25LcUQ2OUhiX09XUQ?oc=5) |
 | How Trump's megabill could slam the job market - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOTG9WUmwxSVpaUDdsMlZaNWtnY1BxMXRYd1ZDSlhWTFRGRURhc0ZXZ1hzaEhUSXVsb3pIbTEtcEkyc0w5R05adTdULVVPNlVNZHItU00xblk5NTJRTE1LMld2bmNzcGk4dHlwSVdhRm5FNzJuOW9DUW45b2RzWUVydndZeUVNcHRvbExqQnpRSnk?oc=5) |

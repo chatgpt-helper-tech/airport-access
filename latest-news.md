@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月07日 00:53:15（北京时间）**
+🕒 更新时间：**2025年07月07日 01:01:21（北京时间）**
 
 ---
 
@@ -8,12 +8,22 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Welfare U-turn makes spending decisions harder, minister tells BBC | [阅读全文](https://www.bbc.com/news/articles/cq8z34x914jo) |
+| Hamas security officer says group has lost control over most of Gaza | [阅读全文](https://www.bbc.com/news/articles/c4gk79xlzwjo) |
+| Trump is using the 'Madman Theory' to try to change the world (and it's working) | [阅读全文](https://www.bbc.com/news/articles/czxww2kez0go) |
+| Parents of girls killed in school crash 'still waiting for answers' | [阅读全文](https://www.bbc.com/news/articles/c89e1kynjjko) |
+| Football clubs should pay towards £70m policing cost, Met chief says | [阅读全文](https://www.bbc.com/news/articles/cqx2338z971o) |
+| Norris takes first Silverstone win in dramatic race | [阅读全文](https://www.bbc.com/sport/formula1/articles/c4gd76m7391o) |
+| Eurostar train evacuated after four-hour wait in northern France | [阅读全文](https://www.bbc.com/news/articles/c89e1511l7po) |
+| Watch: Ozzy Osbourne belt out Iron Man one last time during final Black Sabbath show | [阅读全文](https://www.bbc.com/news/videos/cgjgdz94389o) |
+| Archaeologists unveil 3,500-year-old city in Peru | [阅读全文](https://www.bbc.com/news/articles/c07dmx38kyeo) |
+| Four-year-old boy killed by falling gravestone | [阅读全文](https://www.bbc.com/news/articles/cr5veeyvpelo) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Texas Flood Victims: What We Know - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTFB0YUlndjhJNGRJOU5ZZzZwUnhkLTA0TUhmeV9DSUYwRUUxZkpFQk81X1l0Zk1vdnNPVXRWSk1Vb0JlbEdwcUxEYlBUajFJRzZTR2VtenlJWF9yWFM0RWNhUkdUV1IwZzd3UVhfVVVDOA?oc=5) |
+| Camp Mystic Parents Endure Agonizing Wait for Their Missing Children - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBIc28tV1ZLMVFXeXIwZ3JXRnByTU5ZeE0tYThvclliMHNTSjA2ZF9sWGo2UXpqdWZrVHpFZzZLMnZlYXd0NlJxWlUyR2FiUjhrY3JQTUVIQUFvQVdoeVVPekZldndtd2x0YjRaRllPNWc?oc=5) |
 | Tariffs return to April rates on August 1 without deals, Bessent says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE9HUUU1clhlTGkwYi1pd0UwSnI1eUx4bGM3MGc3a21SN0pic1FNUGswYWZNUFdESDlfU0czY0VpWE5tb2NaZHkwZjlpR3RDSnl0MnEzM1VYZFIwb3lVNi1FZkVyTE14UUVZZWgtNXU2TjNFQQ?oc=5) |
 | Israel to send team to Gaza talks despite Hamas demands, PM says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5mTE5WTFJxcXcwWWFCUUt3U25Jc1pOY3l2cFhoN2t1UjQwYUltWHhERFJPcElwYnQtbEgyU0Nid1FsTWdaVFl5QmVUWWQtZzVSVW5KNzctT1Y5QdIBX0FVX3lxTE9mdXpsZFlsbUZHSmlOSExaOU1yY3JVY19Id2hqOGpXdnZEcDFzajN2STBmVG5qY0JSdEZjZUhCSnc0Z0FLZ0Y0YnRFWkNTaThBZ19lTjB1aDVGM0RqSUdR?oc=5) |
 | Musk should stay out of politics, US Treasury Secretary Bessent says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi2AFBVV95cUxQTS12eHZueWVLUjBtbTc2MnFuRlM2WnNZV3N6ajNJVFNBOG5ibVk2QW9LR0F4MklpRU1SNm5CeWlLVmdMLVZ5WUJldmY2cjFsMEVrSXJBMXNSaThuSnQwVTNyXzhoWUhrbU03Y1VJRUtBV1A5QW9la1AwWVZYTHBxSkQwR0hoZXFWQm5NVGc5UWFtaktQNV8takZ5QjNIVjdLSEpKVVI1VzhuLTJHUm5FZXZDcW55Vy00OFkwOTI2VlNXVlpfLWNZa0JackM3WFY4SE9lMk1tVG8?oc=5) |
