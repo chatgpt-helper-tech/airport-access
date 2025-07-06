@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月06日 22:26:11（北京时间）**
+🕒 更新时间：**2025年07月06日 22:40:27（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Dalai Lama, a global symbol of Tibetan culture and resistance, turns 90 - NPR | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE9xSXNxUUVxWnVPTkZpLWlNUXFadDJoZk1QMkcwTkVzZlMyMmJrSUNrdW55MDVmcmRlVTg0Nk5UVVZCS2pEYm92ZkF2ZmZfa0pwTG95bkdSdktqVU9ubmdwZzVtV0xFR25LcUQ2OUhiX09XUQ?oc=5) |
 | Centrist Rep. Don Bacon is done with Congress — but keeping the door open on a presidential bid - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPbVI0WTN2WWhBRVFEbkpMbUM3RVdraEREYVQyY2l4allaUHNsTEdHNG9fUTB5anNvQkNYenJlT0ljTkVHeWc0c2ZxSjdDWEl4TWRWYnh5aTdYZmZwR01fQmY1SjBoM3NnZXNUelFaZFJYR0hjMFFwcF80a0htSkFpOGhDTUdhVHo1N1JZc1NZTzJ1ZnlqUFQ0V2tldU9OUUYzODJN0gFWQVVfeXFMT1hjb2NycVpMUFZVMm5mY1NtTmNHXzRTajhob08yOTV5OU54NXN3ajBCSm5qUE0zVTg1ZFIxbnZ1a3p0eFFvQmM4bG0ybDlTLXg5dHRsRHc?oc=5) |
 | 'Alligator Alcatraz' Detention Center Poses Serious Risks to Immigrants Beyond Just Alligators - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOWjZ3aHFvcmptb0d5SmZIbmtHbmlEZjVUbElGQW1MSzRCYWcyUF9PYUZkRXJjRl9wUjFmY3dHUzk5b2stLXhaWU1BcTdzckVHczdoek9neVFOMzdUZnVtak5INlFpSWNtYktJQnFDdGZJQmhNa0UyaTMxOHFTMXBzQjFrajdtT1lLU25KbmRNMzVGNElKN2VaNEFndUhLTVVVYmJTa2hlMUdXLW1LNjhzN1NpTzhkZWQw?oc=5) |
-| ‘We’re the frontline of defense’: Food banks grapple with megabill’s impact - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPblIwcm03NjFZLTZrYzQ2aVYwWVVxZVdDSDNmVElBaUJIWGlfTDBBTnNXcGsxdEZBTVNrM1d2UVYxWHRiNWs0bHZkY3VjcnM1WjJDMG5FYW1oT0hGeGJkT1JHbklMaE1QZFgyQl9rTWwzMGJ5ckpqUHhSZkVJcGhhYXV0c2tzWHJwSGpvWV9wcE1NYVE2RUNwR2ZtX1ZaaGhZdVdoTTNlcWwwQQ?oc=5) |
-| Tropical Storm Chantal makes landfall over South Carolina with 50 mph winds - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPd0UwY2g5RHpZTFpPbmF1OHlQUmJ1Mk5GdnR5OC1CZGR5R1JPdGhtLWJCa3UxTkxhZGxiMkNyekZleGxHUzVqd082M01mc3BUejA3azFYUEpSZ0o2V2tacHF5UDJZaFN2VFRPYmdJSDVvRGsxTGkwV015Si1wVFFLeGllMWNCUndqY1VWVklIVHNJc3pjcEdaUDdQaWtESUVvb2pIVVZuQ053VFJyVDBjZ9IBtgFBVV95cUxNckdQbm5mTEdBNWM3dXRmX3RSSGpIcGZTX2d6T1k1ZGZnWGM5NjN4cXBJSHJtdjZYZ1gtRUdMMnlxbVZmOFNQd1Z1NF9yemRhdHpwNnBpTXRITjNRMzdkNy1teU02Z1dfbHVpUjJzU0ZzV0d3RWtsbE1jY29OSGFkc2l3aE0ySzhYZHhFdklwRzRuZ0pQLWprNkt5VnBfdVhHSFp5WVgxQ1BLOHIwTlJhdWlvZlROdw?oc=5) |
+| How Trump's megabill could slam the job market - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOTG9WUmwxSVpaUDdsMlZaNWtnY1BxMXRYd1ZDSlhWTFRGRURhc0ZXZ1hzaEhUSXVsb3pIbTEtcEkyc0w5R05adTdULVVPNlVNZHItU00xblk5NTJRTE1LMld2bmNzcGk4dHlwSVdhRm5FNzJuOW9DUW45b2RzWUVydndZeUVNcHRvbExqQnpRSnk?oc=5) |
+| Tropical Storm Chantal brings heavy rains as it moves across northeastern South Carolina - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPXzlqY2l6WVRfR0ZEVDF3aVVYc3lVYVhIcmdwQjVxMlh3NDZjdU5ualZ2Y21YMWpGWWpib2xiMGN1Uzg4TW5FRW5VXzlFbU9qRjZUdlVyZkdBSWRzQkE5N3V2R3FFVmNMTjhZRjNZMXIzOVNiUFluTzNHaEk2dTJBeUFSU29tUVJxQlA5a1p6OE5XTTBLV3JQVEx4MnlWejR2M2RSUXdvR2lqb0Nw?oc=5) |
+| Trump administration freezes millions in grants to Alaska schools - Anchorage Daily News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQWlZrWThaR0FTSTE2R1ZYZFRCTDd4OGptRW5Wb3NidWRfRm9iMjJKS1cxN2k5clBheDg0Y0JxM2tOUFNFVW1xOWtRYUhhR0d1bHAtU0NuM1pENW1JV05FajlKRGNQa0YtOTBTVUdyb0wxcy0zc0ctMEs1Tlk5c0V2MzRya1NMdU5Dd3BYTThnY3Vnd3g2b2FOaUVVN1lVc1BlWk9jb2lYMk93Zw?oc=5) |
 | US tariffs on European goods threaten to shake up the world's largest 2-way trade relationship - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOMk52enVsY0V6dHlWU3hIWDFONkZwSW9rbVdCaEJMZlpMVUp5T0tTQlg5M2ZfTVB6ZFpabFlFMU0yejhfTWdIejExVTcwdHR1eWZTM253dENoanNKREUyQVoxNkxmTXc5V1REbUR0c2NpRkwtaHRqV1RtNnlrUTFMUHU4OHduWEtZZkgxWGcyVUc3UQ?oc=5) |
-| Schools Scramble After Trump Admin Withdraws $7B in Federal Education Funding - Truthout | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOT3ZscUdvWDFRQlFYWm94b0tLV29HNGNJU2RjcHJMdzRVeEx3RjZWLTBHQXlWaVd3Q05Yc243TEJJOS1fVks0dGp1bjlxSFdDWV9Db1B5c09fRExSMTZMbTdBbUM3ZGl2Ymx5RmVtNzlnWGtwQVFJWE1VQ1RFMUNjaE5IV09OQWowazVBVVZKbVF5ekw5akw1UzZ1MnZlVG5Yb25nRG9iSzlQX3M?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
