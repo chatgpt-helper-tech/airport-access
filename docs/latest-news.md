@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月06日 22:53:41（北京时间）**
+🕒 更新时间：**2025年07月06日 23:01:02（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Dalai Lama, a global symbol of Tibetan culture and resistance, turns 90 - NPR | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE9xSXNxUUVxWnVPTkZpLWlNUXFadDJoZk1QMkcwTkVzZlMyMmJrSUNrdW55MDVmcmRlVTg0Nk5UVVZCS2pEYm92ZkF2ZmZfa0pwTG95bkdSdktqVU9ubmdwZzVtV0xFR25LcUQ2OUhiX09XUQ?oc=5) |
 | How Trump's megabill could slam the job market - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOTG9WUmwxSVpaUDdsMlZaNWtnY1BxMXRYd1ZDSlhWTFRGRURhc0ZXZ1hzaEhUSXVsb3pIbTEtcEkyc0w5R05adTdULVVPNlVNZHItU00xblk5NTJRTE1LMld2bmNzcGk4dHlwSVdhRm5FNzJuOW9DUW45b2RzWUVydndZeUVNcHRvbExqQnpRSnk?oc=5) |
 | Trump administration freezes millions in grants to Alaska schools - Anchorage Daily News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQWlZrWThaR0FTSTE2R1ZYZFRCTDd4OGptRW5Wb3NidWRfRm9iMjJKS1cxN2k5clBheDg0Y0JxM2tOUFNFVW1xOWtRYUhhR0d1bHAtU0NuM1pENW1JV05FajlKRGNQa0YtOTBTVUdyb0wxcy0zc0ctMEs1Tlk5c0V2MzRya1NMdU5Dd3BYTThnY3Vnd3g2b2FOaUVVN1lVc1BlWk9jb2lYMk93Zw?oc=5) |
+| The next megabill Congress needs to worry about - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPNVkyTzg0U0F2RzkyWHV4R3ItVlNHQTlGcUtuak1neFNUMGZZQ2RHM3kzcmZEckVFZDkwa2wwWXNDZUV4ZjhhUFVYb0htRHlXamh6ZVM4VXBfX0haeFh0R2pkVzRXN0VTX3haVzRIOVd4MVppYk5fQjRlSE1OdUdCelItUVRrQnlGQjZVRFhmYmI?oc=5) |
 | US tariffs on European goods threaten to shake up the world's largest 2-way trade relationship - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOMk52enVsY0V6dHlWU3hIWDFONkZwSW9rbVdCaEJMZlpMVUp5T0tTQlg5M2ZfTVB6ZFpabFlFMU0yejhfTWdIejExVTcwdHR1eWZTM253dENoanNKREUyQVoxNkxmTXc5V1REbUR0c2NpRkwtaHRqV1RtNnlrUTFMUHU4OHduWEtZZkgxWGcyVUc3UQ?oc=5) |
-| 'Alligator Alcatraz' Detention Center Poses Serious Risks to Immigrants Beyond Just Alligators - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOWjZ3aHFvcmptb0d5SmZIbmtHbmlEZjVUbElGQW1MSzRCYWcyUF9PYUZkRXJjRl9wUjFmY3dHUzk5b2stLXhaWU1BcTdzckVHczdoek9neVFOMzdUZnVtak5INlFpSWNtYktJQnFDdGZJQmhNa0UyaTMxOHFTMXBzQjFrajdtT1lLU25KbmRNMzVGNElKN2VaNEFndUhLTVVVYmJTa2hlMUdXLW1LNjhzN1NpTzhkZWQw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
