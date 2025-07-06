@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月07日 06:26:45（北京时间）**
+🕒 更新时间：**2025年07月07日 06:40:43（北京时间）**
 
 ---
 
@@ -23,12 +23,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Texas flooding updates: Kerr County deaths climb to 59, including 21 children - Houston Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNNWx4NDZvNkJxRkN1dHVhSmZkQm5nekpDQ0FqYnBNbEhCVDZvVEgycVlIMmJIY0R0YllsMFRjOHNITHBRRERuYmRfMGdtZXBhVzdwQXk1b29jWF9uOVJVMUZ4RExpY25BeDZlZ3VVbVA4Zkx3bDhfV0FxUzhpLVBWTlRhcTUtWDctVXcwaU1JclZEVGhVd1N0U3Y3cXpsSXY0d3h3?oc=5) |
+| In pictures: Deadly flooding in Texas - CNN | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE82SlE4OTZwYVhfSVRLaWtEczl0aUVJYUljVUVpa29ZNXYwdnpoUXlMa09qb1dDRkd6Vi1RXzc5WFM4Q3NyV1YyU1hMSFgxZTlFbU1ramZ1Wmo4eHBMLVVTdDFhbGh6RUFOcGdNM0RLWTY?oc=5) |
 | Pressure from Trump for trade deals before Wednesday deadline, but hints of more time for talks - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPVXNvaHNZNkFmX3hqYzhiZk94STV6d085V2FmTmxaWjNoaW9rcmJWVUJ3d0k1Z0dtS2VhLTNCeERsdGgwdVlzQVMyRlNlYTlsUkpfaUlaWjZvb0JvY3BoOFdVdHJLWk9xc2VnSWxqNUJvendHWHhNX1hfMEE1WHhFZU44WDJzd2ZDZGNiT0ZzNFFQajZmblZjNzhidU5nOGQ5NUdaaXdB?oc=5) |
 | Elon Musk says he's formed the 'America Party.' Mark Cuban and Anthony Scaramucci are interested. - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE4xUzJMUWNIeWRDLWE0cWVxTEtPaTlzRGFOendHREpEQUhTelA4cjVUemlmWU9ZY1VvbVFxaWRLTG9CWUxsMVlNa0NHcXA3N1pESHZZbmxnbGtNbGJDSV9MVWxHa1dVcmhiTU94dE91VQ?oc=5) |
 | U.S. seeks limited trade deal with E.U. as Trump’s deadline approaches - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1JVEM3Z1E4RGVsY00yUHNIeXdfZzdpY3JmQjZscDBLQXFuR0ViaXVqamlfX0x0MVZEb0t1SGtYQ0hhUFpoQzBQanJuRkE0ZFRIVjJ3QVg5eUQzRFZZX0F0eW9mR1RwM05tTmExaWY1LS12UHF2TjVmXy1qTy1zQjg?oc=5) |
-| Tropical Storm Chantal brings heavy rains into northeastern South Carolina - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOSkxFWjlCVHVvTGVvc3c5MXZMZGN4Nno0UExLbUFZemVrTmE4OTVQNV9qN0J1aUplRHRwZWpPaWltRy1zeUE0cHFna2ZZTmRiazUxT2U4aGltQ0tvczBoUm5zdlkwcDNGdi1IZzJSbHJDSUd1cFE3WG9fNjU1M0xYM3NlWXZGaExIRzRtcW8weUh4OGx5M2g3b041dmtLWVktdVp4V0RB?oc=5) |
 | Knives, bullets and thieves: the quest for food in Gaza - NPR | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTFA1aFNDS1l4a0RHY2FBRG80NGFIYnhxMUlRWHBSRVJBOXE1ejBialBydUd0Uk5DWF9HOTROMnBvTzRRMW5CUkJaR3k5YUczUFhZMjNMMDBYQmRCS0VtRnVFLUNXQ2NZamV5TkVoOXJEQQ?oc=5) |
+| Chantal weakens to a tropical depression but raises concerns of flash flooding in North Carolina - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPXzlqY2l6WVRfR0ZEVDF3aVVYc3lVYVhIcmdwQjVxMlh3NDZjdU5ualZ2Y21YMWpGWWpib2xiMGN1Uzg4TW5FRW5VXzlFbU9qRjZUdlVyZkdBSWRzQkE5N3V2R3FFVmNMTjhZRjNZMXIzOVNiUFluTzNHaEk2dTJBeUFSU29tUVJxQlA5a1p6OE5XTTBLV3JQVEx4MnlWejR2M2RSUXdvR2lqb0Nw?oc=5) |
 | Trump’s ‘Big Beautiful Bill’ has been signed into law. What does that mean? - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxNSXhFVFRmUDNHU0F3UWpjOEFnUG16c0VyT2M0dk5Ua3oyQkUweTRuQUV4c3JROVcxX3pIM1J5MTdpQ1dtY083YUxVS1BVYUswRjZoQjFMZW16U0xmUzRmaEI3TS15WUZOQkFhSGNDb1E4LTRzTUVIZWpsOG5hN29zX3NLVFU3LUx0Z0RyaVVLNTNaZnE2N2pMSVE3R296aEVOTU5Vdmc4ZG50UUFfWklRSk5rVFN2aVl3TDIzLUg3aEN4WFM2VE5rUzhWSTJYZ0E3djZ0amxPS2l5WWtwdmgw?oc=5) |
 | Alligator Alcatraz: American history from the dark side - Salon.com | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQVDR6aHNrbDVGTmlxcGhCUUIyTFdnZlNyTWp6QVNOZXpBcTVGUjVyTk1EMUNzWWZmZUdnWTVxeFJqeHZRQVc0eWdaV29SOWVPQzFHX2JfRVNJdmF5TndwRTdiSENrenZEXzhNdnJRT0ZfbWozZ2M5dC1ySXgyZVI2bzNveVQ0U0wyUU10RjN4b0NIdw?oc=5) |
 | ‘Tears My Heart to Pieces’: North Carolina Braces for Medicaid Cuts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFB1Mks3QTREd2lKbTNySlRfOGp4cmR5amphMlhVTm5pSVF4a2VoN0t5UDh1b3MzMUJYb3V6c0duNEFRUEc1c1NneDlGZUE3RDkwYzA3RzhaTzhzNmNYak1rVXlIenlCYkNvTlY3eUYtb2R6VWJPNVFXLVBNNA?oc=5) |
