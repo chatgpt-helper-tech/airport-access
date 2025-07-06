@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月06日 18:00:28（北京时间）**
+🕒 更新时间：**2025年07月06日 18:14:28（北京时间）**
 
 ---
 
@@ -27,8 +27,8 @@
 | Tropical Storm Chantal forecast to bring heavy rain to the Carolinas - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQNDBrUGRROXVPMW8yLU5GbUExLVJCRU9hSmRuNU9jV1V1Q0Q1VWhldmJkVGxLUTZoLTdvRHN5VmplaFJPWlFuUFZjSTNxTmRIdFVqRTA3SU4wOFNLRjJzbUZqNVN2TnhpVlYzNTNuV3lxUVd2NmNOZWhYQWhkcjhfbllJNVR6TWYwbGNTYTB1RlhUT3FzV01HWFY1Uk9lQkt6TW5aU1JB?oc=5) |
 | Elon Musk says he is launching new America Party - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBHa0toaExoWXpFZmE2UG5EWVFRaEJTdmhtSlV0S1pzSnhld0k4bloxdnVYZ2lDSWdyWjRQNHNaOTFpUUY5eXZfNVVMQXBMODZPQUVwenBWUHRvZ9IBX0FVX3lxTFBfVGlLY3g4SF9MaHhwcHpvOGwzNm1RLXd5ZnpNS2liaDNtWUJ5QTlTRzdfVlBydTR2ZUg4b0tha2R4WWhMRV9pdmVRdFlmQS00VFBpTlYweVpDSWxLdS1Z?oc=5) |
 | Israel and Hamas to hold indirect ceasefire talks in Qatar - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1pOXh5dnB5Z3lpcFY5Vll3N1BGZ0xBOXZUMGgxcnFLVHE4MF9KOVZXeTZHTDlIVTU1cVpPTmV1OUdZZ2FOWnkwSmNHeVpBVUlIVkZTSFlwQWk4OV9tQjNxbkZ1ZHlsai1qQWxaMkIzaDZnalRtQmc?oc=5) |
+| Trump warns a dozen countries will get tariff letters Monday - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiZEFVX3lxTE5VTmNhRDVlMkJsaWZ0aW1YVzhQbmdIWWNTVGwxUC0tX05ZMUZhZ3dtRUlqcU5HZ3kzcVU0S2FwZ0NyUDVGZGpHRmdNNEE1SkcyenVmSWpsVmZ3SlUtc0Y0Z1EzdFU?oc=5) |
 | Buddhist rebirth v Chinese control: the battle to choose the Dalai Lama’s successor - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxOZU41dnVGSVJuX1dCVnNHNmdxaHdjRkRLUkxnRU0tTmJkN2FqdDRucU53OVZKa01waV9uS3ZrMzk1U2l2VVQtdWdodFhUYzI4eGJBSWtTcnlzRmJkTG9lZ3JaMl92Y0NLR0R0Tjh1TXJGclBMRjZ0RnJpVFFJNDVXdm9sRjFQbTByNVc0M2VmYjlkcXJHSkZDLWdzZVBhR3BkNWZWLVNDQklack0xYzk2d2N5cjBTVWxnNVEwNWZ2ZThPS1Q4VGc?oc=5) |
-| Brazil hosts BRICS summit, eager to avoid provoking Trump’s ire - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPYnVMY0hUZzFZSWZqZDJWTGJYVzdnQkU4T1VRdFpFbGNZUEE5YzJQZUxzOTRsOWRSVld0d25UY3VKNEMxTW5GN1ZickZZbmt2ZE1rTWRQbXRUcmZJYkFWYXlMeDRCMXRuSEFsVEFGVUlNck9jdHdoODhYSlV4d0htTVNESlVxTURCVmRTT25DWEgtMzA?oc=5) |
 | Trump administration freezes millions in grants to Alaska schools - Anchorage Daily News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQWlZrWThaR0FTSTE2R1ZYZFRCTDd4OGptRW5Wb3NidWRfRm9iMjJKS1cxN2k5clBheDg0Y0JxM2tOUFNFVW1xOWtRYUhhR0d1bHAtU0NuM1pENW1JV05FajlKRGNQa0YtOTBTVUdyb0wxcy0zc0ctMEs1Tlk5c0V2MzRya1NMdU5Dd3BYTThnY3Vnd3g2b2FOaUVVN1lVc1BlWk9jb2lYMk93Zw?oc=5) |
 | 'Alligator Alcatraz' Detention Center Poses Serious Risks to Immigrants Beyond Just Alligators - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOWjZ3aHFvcmptb0d5SmZIbmtHbmlEZjVUbElGQW1MSzRCYWcyUF9PYUZkRXJjRl9wUjFmY3dHUzk5b2stLXhaWU1BcTdzckVHczdoek9neVFOMzdUZnVtak5INlFpSWNtYktJQnFDdGZJQmhNa0UyaTMxOHFTMXBzQjFrajdtT1lLU25KbmRNMzVGNElKN2VaNEFndUhLTVVVYmJTa2hlMUdXLW1LNjhzN1NpTzhkZWQw?oc=5) |
 | The next megabill Congress needs to worry about - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPNVkyTzg0U0F2RzkyWHV4R3ItVlNHQTlGcUtuak1neFNUMGZZQ2RHM3kzcmZEckVFZDkwa2wwWXNDZUV4ZjhhUFVYb0htRHlXamh6ZVM4VXBfX0haeFh0R2pkVzRXN0VTX3haVzRIOVd4MVppYk5fQjRlSE1OdUdCelItUVRrQnlGQjZVRFhmYmI?oc=5) |
