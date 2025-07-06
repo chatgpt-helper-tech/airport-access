@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月07日 01:52:29（北京时间）**
+🕒 更新时间：**2025年07月07日 02:00:41（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Camp Mystic Parents Endure Agonizing Wait for Their Missing Children - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBIc28tV1ZLMVFXeXIwZ3JXRnByTU5ZeE0tYThvclliMHNTSjA2ZF9sWGo2UXpqdWZrVHpFZzZLMnZlYXd0NlJxWlUyR2FiUjhrY3JQTUVIQUFvQVdoeVVPekZldndtd2x0YjRaRllPNWc?oc=5) |
-| Trump team moves goalposts on tariffs again - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQMHlpcjVZR2UyWDB5TkFud3dzZS02UzhYM25VYnFSTGtkdjFwVUt1X2lTQTZ3WlJ1RXBlTnA0T2FCcFV1OFRjY255T1FtRjhVTDh3Qy1xYVJ3Q3JxQkpLMDQzZkF5eGpyVHVNLWlpMVRYMmFFMHVUWkNvNDBDMThoTGJtcWlWemJmdFYxUUtGcDU?oc=5) |
-| Musk should stay out of politics, US Treasury Secretary Bessent says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi2AFBVV95cUxQTS12eHZueWVLUjBtbTc2MnFuRlM2WnNZV3N6ajNJVFNBOG5ibVk2QW9LR0F4MklpRU1SNm5CeWlLVmdMLVZ5WUJldmY2cjFsMEVrSXJBMXNSaThuSnQwVTNyXzhoWUhrbU03Y1VJRUtBV1A5QW9la1AwWVZYTHBxSkQwR0hoZXFWQm5NVGc5UWFtaktQNV8takZ5QjNIVjdLSEpKVVI1VzhuLTJHUm5FZXZDcW55Vy00OFkwOTI2VlNXVlpfLWNZa0JackM3WFY4SE9lMk1tVG8?oc=5) |
+| In pictures: Deadly flooding in Texas - CNN | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE82SlE4OTZwYVhfSVRLaWtEczl0aUVJYUljVUVpa29ZNXYwdnpoUXlMa09qb1dDRkd6Vi1RXzc5WFM4Q3NyV1YyU1hMSFgxZTlFbU1ramZ1Wmo4eHBMLVVTdDFhbGh6RUFOcGdNM0RLWTY?oc=5) |
+| White House suggests some countries could see tariff deadline shifted - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNeHRWU3VYQm5YNm9NN1NBVFlKeXdodnYyczV3QzFnTnNSd2tRS29uUmQ2dExJSEExVl9jS28yd0RaTVJNaGxfUXhJR1l1SHM0VXc3b2FwQ3VsZTFOTFU0YXJFUlpGSDI3djE1ZFFBRmlwRDQ0YUVlc3pYVFdRNERRMVVzLWp6Q1hacWZPMU1ZZlB4Q2NnOVc0cDExWW9rNmw0d3d1cll3ZDLSAa4BQVVfeXFMTXdsMEJMYklKNWpDVkRBOHZHZUxmQ0RUc3E2VEVRb1pxRFFud0dqTjR1cTRNOHdvZDBNeWFKQ05qb0ZteTBLcGw4NFIyQVh1TGc1aFBGOTE2cS1PVWFteTY4M2NiM0ZxdmYzZk5wclJmTklqUGpCS3NFZml5MGhGcVF6S0pvcUoxdjNoajE4QTN0ZkgxakdFVVdnMXRSbU5TTHhveHNDaFdQcjhkUFhR?oc=5) |
 | Israel to send team to Gaza talks despite Hamas demands, PM says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5mTE5WTFJxcXcwWWFCUUt3U25Jc1pOY3l2cFhoN2t1UjQwYUltWHhERFJPcElwYnQtbEgyU0Nid1FsTWdaVFl5QmVUWWQtZzVSVW5KNzctT1Y5QdIBX0FVX3lxTE9mdXpsZFlsbUZHSmlOSExaOU1yY3JVY19Id2hqOGpXdnZEcDFzajN2STBmVG5qY0JSdEZjZUhCSnc0Z0FLZ0Y0YnRFWkNTaThBZ19lTjB1aDVGM0RqSUdR?oc=5) |
+| Musk should stay out of politics, US Treasury Secretary Bessent says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi2AFBVV95cUxQTS12eHZueWVLUjBtbTc2MnFuRlM2WnNZV3N6ajNJVFNBOG5ibVk2QW9LR0F4MklpRU1SNm5CeWlLVmdMLVZ5WUJldmY2cjFsMEVrSXJBMXNSaThuSnQwVTNyXzhoWUhrbU03Y1VJRUtBV1A5QW9la1AwWVZYTHBxSkQwR0hoZXFWQm5NVGc5UWFtaktQNV8takZ5QjNIVjdLSEpKVVI1VzhuLTJHUm5FZXZDcW55Vy00OFkwOTI2VlNXVlpfLWNZa0JackM3WFY4SE9lMk1tVG8?oc=5) |
 | Knives, bullets and thieves: the quest for food in Gaza - NPR | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTFA1aFNDS1l4a0RHY2FBRG80NGFIYnhxMUlRWHBSRVJBOXE1ejBialBydUd0Uk5DWF9HOTROMnBvTzRRMW5CUkJaR3k5YUczUFhZMjNMMDBYQmRCS0VtRnVFLUNXQ2NZamV5TkVoOXJEQQ?oc=5) |
 | Dalai Lama, a global symbol of Tibetan culture and resistance, turns 90 - NPR | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE9xSXNxUUVxWnVPTkZpLWlNUXFadDJoZk1QMkcwTkVzZlMyMmJrSUNrdW55MDVmcmRlVTg0Nk5UVVZCS2pEYm92ZkF2ZmZfa0pwTG95bkdSdktqVU9ubmdwZzVtV0xFR25LcUQ2OUhiX09XUQ?oc=5) |
 | How Trump's megabill could slam the job market - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOTG9WUmwxSVpaUDdsMlZaNWtnY1BxMXRYd1ZDSlhWTFRGRURhc0ZXZ1hzaEhUSXVsb3pIbTEtcEkyc0w5R05adTdULVVPNlVNZHItU00xblk5NTJRTE1LMld2bmNzcGk4dHlwSVdhRm5FNzJuOW9DUW45b2RzWUVydndZeUVNcHRvbExqQnpRSnk?oc=5) |
