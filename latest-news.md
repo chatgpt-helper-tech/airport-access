@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月06日 17:01:58（北京时间）**
+🕒 更新时间：**2025年07月06日 17:14:50（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Schools Scramble After Trump Admin Withdraws $7B in Federal Education Funding - Truthout | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOT3ZscUdvWDFRQlFYWm94b0tLV29HNGNJU2RjcHJMdzRVeEx3RjZWLTBHQXlWaVd3Q05Yc243TEJJOS1fVks0dGp1bjlxSFdDWV9Db1B5c09fRExSMTZMbTdBbUM3ZGl2Ymx5RmVtNzlnWGtwQVFJWE1VQ1RFMUNjaE5IV09OQWowazVBVVZKbVF5ekw5akw1UzZ1MnZlVG5Yb25nRG9iSzlQX3M?oc=5) |
 | 'Alligator Alcatraz' Detention Center Poses Serious Risks to Immigrants Beyond Just Alligators - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOWjZ3aHFvcmptb0d5SmZIbmtHbmlEZjVUbElGQW1MSzRCYWcyUF9PYUZkRXJjRl9wUjFmY3dHUzk5b2stLXhaWU1BcTdzckVHczdoek9neVFOMzdUZnVtak5INlFpSWNtYktJQnFDdGZJQmhNa0UyaTMxOHFTMXBzQjFrajdtT1lLU25KbmRNMzVGNElKN2VaNEFndUhLTVVVYmJTa2hlMUdXLW1LNjhzN1NpTzhkZWQw?oc=5) |
 | The next megabill Congress needs to worry about - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPNVkyTzg0U0F2RzkyWHV4R3ItVlNHQTlGcUtuak1neFNUMGZZQ2RHM3kzcmZEckVFZDkwa2wwWXNDZUV4ZjhhUFVYb0htRHlXamh6ZVM4VXBfX0haeFh0R2pkVzRXN0VTX3haVzRIOVd4MVppYk5fQjRlSE1OdUdCelItUVRrQnlGQjZVRFhmYmI?oc=5) |
-| Parisians take their first plunge into the Seine in more than a century - France 24 | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQX0dtQWR6NFZTTGdHeFZlVEJZVnF1cDdhaGM5OVNLdGFaSlhuMlAxTndsMXlSNmtHbjdSMzJzdWNPZ0FPTlB4a21wbHo1cG5HeHdaamltSGZvSkU1Z2h3V3ZXY3JYSzJUV1FiTGRZN2t4MWpiSnhONjRZV3F4Ynl5dmJDRlNfSzRmRldfaU4tSENxYjlLTWRDaG9EazJGbWxhY1E?oc=5) |
+| Hegseth falsely cited weapon shortages in halting shipments to Ukraine, Democrats say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQV05Ua05XSVRoWTZaUE9JaFpad3F4OTJKVHVpem9xTVRhWGdYQTFoQ1U4ZEdkanlkMV9vNVVzd2hOd2FjQlpHRmx3WjBZaVh2WXhqTEVfTy1ZWjlaNi1Qc1VQYjJRLWJqTnhSTktSTWRtbW1na2I2b0hOeVRTS0h3Q1Y3R3U1ZHNp?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
