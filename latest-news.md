@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月06日 13:52:42（北京时间）**
+🕒 更新时间：**2025年07月06日 14:01:48（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump administration freezes millions in grants to Alaska schools - Anchorage Daily News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQWlZrWThaR0FTSTE2R1ZYZFRCTDd4OGptRW5Wb3NidWRfRm9iMjJKS1cxN2k5clBheDg0Y0JxM2tOUFNFVW1xOWtRYUhhR0d1bHAtU0NuM1pENW1JV05FajlKRGNQa0YtOTBTVUdyb0wxcy0zc0ctMEs1Tlk5c0V2MzRya1NMdU5Dd3BYTThnY3Vnd3g2b2FOaUVVN1lVc1BlWk9jb2lYMk93Zw?oc=5) |
 | The next megabill Congress needs to worry about - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPNVkyTzg0U0F2RzkyWHV4R3ItVlNHQTlGcUtuak1neFNUMGZZQ2RHM3kzcmZEckVFZDkwa2wwWXNDZUV4ZjhhUFVYb0htRHlXamh6ZVM4VXBfX0haeFh0R2pkVzRXN0VTX3haVzRIOVd4MVppYk5fQjRlSE1OdUdCelItUVRrQnlGQjZVRFhmYmI?oc=5) |
 | Dalai Lama marks his 90th birthday as crowds throng his home-in-exile - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPa2Y1NDBhb2hQMkhnbUNnT3BOOVlxWmo2cVRpN0hVbFZFSzQyQTZIMlUxdEhmMXJkcGRCNWdna2lCUEZia2psc0phaTVmWm1UVFZyZHpTV0NMN09XdGhqeVNFVGdpVVhJX1VPYTJsMXlPdVB2VTJkdkREWGE0dVJ4bzJWUGUtVm1Z0gGOAUFVX3lxTE12T003SVh3eXpaMXdEXzdRM3pydU1pblVFTnQxQnlETFF2Ty1rRTV3M1NOOUZjdm52MWNuRFFtN2NLS28yY1VKanZTMTlVZGlSV0xWX3ZWYnRQOUpUa2pFbC1iVDBtaXZVQUE4bElkek1qMWl4OFB5LUpMTHJDZTk3Z0pITHg3bXduekY3cVE?oc=5) |
-| Key suspect arrested in shooting of Colombia senator - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBGV2F3c19wY1k2SFhRUjdjRE8wbzk4dW02TUJBYUowMVVRS25hSmY5dWtsUU8wUDlFejRKODFzeGlRN296RW8ySHpaakh3ZDhQMWd2UDQ4eEVZUdIBX0FVX3lxTE10RjhpTzJuNlZiTGlLUEZnRloxZXdoc1VqM1VSdGtHM0FwQnN2aXIyYS1TVFc1ZnBZNFV6bTMwRFpxbnBkRFRGODgyVHlNc2lOR09HN253NTZNTnZkTzRr?oc=5) |
+| Turkey detains mayors of opposition-run Antalya, Adana, Adıyaman - Euronews.com | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxORmI5Szl4a3JicG0xZHd2OTFnWG4zaHJZVE5rTlhPMzVGTlZ2QzdOZzBoc3FsMnJOUmJWN19kMWxFb0JndHJMMWJTTUFOMnpnWjFaTlo0UFlyeWFfRXpBSWhHbTlwSWRSaVBZMUJud3pZdG5FRHFick8tQzdrbnJSOHdHVVcxa1B5RUdYUG11ZXZVNkhOZ0lJNHh6VWd6MGxOWnlLM0NTanNMZUFRbEJHVHlFM2t3WDUtdWNmS3ZkWUNxdXc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
