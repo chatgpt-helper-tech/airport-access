@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月06日 09:14:29（北京时间）**
+🕒 更新时间：**2025年07月06日 09:26:39（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| How weather conditions set the stage for the deadly Texas flash floods - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPUmlxeUdIeEhDTFRZQmd5bHdVcjE2Wk55Y2dHaDZRcFJkbi1xWFhLQnlVVGkzbUdGc09LTlJ6QVBsY1JQNVdZSnFfX193VDl0OVhJcHFtVGlfYW1YS0libU5jNndlMVp4Z1hoeUtVV1lxQ3JEX3RwUGVDUnFxOFZPeUNNVHA5TERTNEhQVlNaR3BPZnVXNjZ2SHVZbl9IU25OU21ZeFhWeVk?oc=5) |
+| Floods turned beloved Texas camp into a nightmare. At least 27 girls remain missing - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNU0JxRW9VR1hPS3hyQjlBTF9ta2xRZFlFclNXWnY4cGVOejdQcVFSbDJxN2JrUUhGc2dyQ3B1LWJ3YTlJWktpc2QyQ2VQNi1lYm1Rbmw3QlZBUU1HT0x6b1lLNDZWTVdvNjRMWWhwdHRydVhPQkE1MGZSdUNSUHV1cV9BamxoRTdpU1ZPRGZKVm1IU2hSSTNTb2NCX1N4aWFtbnc?oc=5) |
 | Elon Musk’s ‘America’ party could focus on a few pivotal congressional seats - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQWEFhdFlPUk4wSW8zdDdJRlhveWx6aHdXTElzWEVETU1kbTZSQ2tHM0dJbTRHeUl4R0hoYUxmTy1qMEhMSEllenZyd0U1YTFoTGo0M0tqNllObHJrWjFoOXN0QU1lQ3U4OW1fZnFGNEJuVllFSmFNRlV5enBQbHRTcVR5WGZsRmNhUWVv?oc=5) |
-| Israel and Hamas to hold indirect ceasefire talks in Qatar - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1pOXh5dnB5Z3lpcFY5Vll3N1BGZ0xBOXZUMGgxcnFLVHE4MF9KOVZXeTZHTDlIVTU1cVpPTmV1OUdZZ2FOWnkwSmNHeVpBVUlIVkZTSFlwQWk4OV9tQjNxbkZ1ZHlsai1qQWxaMkIzaDZnalRtQmc?oc=5) |
+| Israel to send team to Gaza talks despite Hamas demands, PM says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5mTE5WTFJxcXcwWWFCUUt3U25Jc1pOY3l2cFhoN2t1UjQwYUltWHhERFJPcElwYnQtbEgyU0Nid1FsTWdaVFl5QmVUWWQtZzVSVW5KNzctT1Y5QdIBX0FVX3lxTE9mdXpsZFlsbUZHSmlOSExaOU1yY3JVY19Id2hqOGpXdnZEcDFzajN2STBmVG5qY0JSdEZjZUhCSnc0Z0FLZ0Y0YnRFWkNTaThBZ19lTjB1aDVGM0RqSUdR?oc=5) |
 | No holiday for ICE, as immigration raids continued on July 4 - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOS1JyQkxqUUF5Rlh6X0M0SHNaVHI4a3lqNjFNS0xiM3BXWGNyaS1ZaEhDX0tfX0s0SUtEOEMzWC1NNkplOGdJTndRU1dFTWdRZWFVbnNiNDRXLWRDSTYxa3NMWmNYRGNwUXM4MENNam45TGF1RXNWbnptSm1CTmlNMHVybU41bmdDM2I5aXhLV2NXOWE3WGs2ZmZRUjBjaWxfcF8zcTNldERieEtx?oc=5) |
 | Tropical storm warnings extended up to North Carolina as Chantal approaches - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPd0UwY2g5RHpZTFpPbmF1OHlQUmJ1Mk5GdnR5OC1CZGR5R1JPdGhtLWJCa3UxTkxhZGxiMkNyekZleGxHUzVqd082M01mc3BUejA3azFYUEpSZ0o2V2tacHF5UDJZaFN2VFRPYmdJSDVvRGsxTGkwV015Si1wVFFLeGllMWNCUndqY1VWVklIVHNJc3pjcEdaUDdQaWtESUVvb2pIVVZuQ053VFJyVDBjZ9IBtgFBVV95cUxNckdQbm5mTEdBNWM3dXRmX3RSSGpIcGZTX2d6T1k1ZGZnWGM5NjN4cXBJSHJtdjZYZ1gtRUdMMnlxbVZmOFNQd1Z1NF9yemRhdHpwNnBpTXRITjNRMzdkNy1teU02Z1dfbHVpUjJzU0ZzV0d3RWtsbE1jY29OSGFkc2l3aE0ySzhYZHhFdklwRzRuZ0pQLWprNkt5VnBfdVhHSFp5WVgxQ1BLOHIwTlJhdWlvZlROdw?oc=5) |
 | U.S. completes deporting 8 men from various nations to South Sudan after weeks of legal battles - PBS | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxNRVl4UVU5UGFsRVRGSW9kZlRobFNtd0Q2SkVrcXFrdDY3dGdydTF6RHIzcnN6OGVWY2piMW5tWTI2cEFndjl1MWxxOS1yR1dYSkkzTTFUNk0zMlRVWlprZGl6bk41UEw3dkVGV0JfbGNaV2hieGk1TXViZHE4VmJTQjV2UmJXeWthQjlDWFBWQWN2NklkN21obFNsNkpLamswbi1xWkJpTDNkZl9sb2xabHpKdzBIZGVZWE5ac1k2YXBUanJSLXo4OGRrN0TSAdIBQVVfeXFMUEFPbTluZEFRcHluMUdvazFkbnA0NXBaY2dqWFlNZEZVQWlsbndqMmw2NDJWWEFTMWVzSHZTYVRKME5TV2dwTXZ4RVF4QnZJWTQwY1JJTVlhX0prQmNsa1RoVGZnc0lxZW5PMDYwMldMUFM3eW8yWkhIMGtSa29ZNjBjTklFX29tQzlVWGhET29iNmxfSlFkcmNVQ0RoMjF0WjVNd2kxZUFzd3VtMjhyaE5MbXpqd1FEdnhTNU9uc2pOSERCSXlRZWQ5ZmdQV1RFYXlR?oc=5) |
