@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月07日 23:40:18（北京时间）**
+🕒 更新时间：**2025年07月07日 23:52:53（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | NYC real estate dealmakers brace for drag-out battle with Mamdani’s socialist policies - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQYVhoX3pVb2R2d3FZOWx5VzV6Z1plZHd3bzhZT0ZQNGhhOTlZaUJzcG9udUtlbmRUOVNGeEZzLUpSMEFZN3hwZDlMTXU2VGxTU2dSbTlGMlNKREZhZ3lBT3UxVTB0UHRSc3lfbDRLZlB3OWV2STRyN0g3WWlzTG0xbVhUaE5GcW1xQVI1ak5VTHA4NEQ1X2dJdFVwdkpsUTdPV1NfS0g0aklrNVU2b3h2elBfMHhIX3pKWUZfaGVPcmVLTjQ?oc=5) |
 | DOJ, FBI review finds no Jeffrey Epstein 'client list,' confirms suicide: Memo - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOeXBCYjlNTnpkbzFUVXZ6RUg2WXNfMk5yXzlOVW1BRjJTZUNULW5xRWU3VjFhZHIxbWtzNl9Hc1pXUXhDNjhEWnZyRFY0TjRmeW1MUjQ3VHZhVEpHX3puOWc4ZmVkQjg1UVI3ZzNxWGNfVEJSOTRJWUhtWTRkR09mVHgtSk44WkttUFVTV0xzVWMzR1Vmb3BVa9IBngFBVV95cUxQUkRFNTFvSkFyZy1GYTNiQnYxQVIyY0lkcThoQ2Nmc0M3ZzBBdzdqZW12azBJYUQ3MnJ3OHdwYmdHY2I3WHNLTVNSM0dSX1Z4d0lOQXJ6dFNQVGRLd0JZMWpFckhBV2JxUXpyVzFfM1drbUZHTThvNXZxMHNZLTFxX19VRkRxMEZaanZHUEswYlJ0YzQwRVBKdVhHcUU2dw?oc=5) |
 | Dozens of Water Rescues, Evacuations Reported in Orange County After Flash Flooding - Chapelboro.com | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNUmg3ZzFHWEl0THZURndIa0JOUkpVR3kwYTdEbkt4SzBma05tUmxYTmdYS0J3aWxDY0EtMEdwbmpKU00yYmN5SWsxeXpxa3lKYnRPRTZyQnhfZDN6eDZZYjlqZFJySlctRXE3c0ZSSmZ5N1FpdThUajljdnpCRXZxSGJ4SWFYZVo0M2c1U0x6WHRkMXptMThEU1JMd082ekRaVU9rVDRXeldGOGtVd1dhRTZ6OA?oc=5) |
-| Trump’s ‘Big Beautiful Bill’ has been signed into law. What does that mean? - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxNSXhFVFRmUDNHU0F3UWpjOEFnUG16c0VyT2M0dk5Ua3oyQkUweTRuQUV4c3JROVcxX3pIM1J5MTdpQ1dtY083YUxVS1BVYUswRjZoQjFMZW16U0xmUzRmaEI3TS15WUZOQkFhSGNDb1E4LTRzTUVIZWpsOG5hN29zX3NLVFU3LUx0Z0RyaVVLNTNaZnE2N2pMSVE3R296aEVOTU5Vdmc4ZG50UUFfWklRSk5rVFN2aVl3TDIzLUg3aEN4WFM2VE5rUzhWSTJYZ0E3djZ0amxPS2l5WWtwdmgw?oc=5) |
+| 3 dead, 10 injured in South Philadelphia shooting and a person is in custody, police say - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPWTZ5N0Izczh2dnFjNXU0ZXpVWGVvQ3VyeE9SRWM5Q3ZPVkg2SU1xZ2lUeUIwT3FxUFJoZEFtUkRqVE9IRTVCd0dSYnk2WG12Y0NGRXFJSi1wNHJXZnNVMk9uZmlDS3pxVXJoNkVXS1QxRi1hRHA1Q05iWlE2ZHlPWG1KMjNSNFdX?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
