@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月07日 21:52:29（北京时间）**
+🕒 更新时间：**2025年07月07日 22:00:24（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Trump hopes to align with Netanyahu on Gaza war endgame during visit - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOQ2QzTVNEOUxzeHdtaVpKOVJKZjNGZ1lIZElnd2VTZzFLWUZUV0ZLWl96d3BhcWNVMFlrMjROQ2xENFJGZjJGdU8wT29aVUY1LWpEcm1ZbmVvZkJ3REd6RExDQi04V1ZqRVVkTkZzSnp2SzJ4cWJfQnoxM0VqTW54ZUln?oc=5) |
 | Bodies of all 7 missing people found at California fireworks warehouse that exploded - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQd1JuOUh6LVoxaUQwaGFZMUU3OXFwTTBVM1dsLUdBNm9vVFYxclRPd1JQVjFOUWhTclJ2b1VzSV9mXy1BTl9GYlJyU2FXZVcyVmZXb2RKejBUcEZGNVhDcEhsMWJFVXB2eUdGcFB4Q2VTX3lsNWxBS2ZRZ3p6N3YtZVJDb3QxUzB0V0R6TTZhU0lBYjctbG9IMWh2UWQzZDA?oc=5) |
 | Treasury secretary says countries without trade deals will see tariffs 'boomerang' to April rates by Aug. 1 - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPdXkyX25MbUJLMUZRaVpwbHhhRXI3eW9EODBLSWJFM1RZVGcxaUo4dUtHUmFQT3JUUFJWeFMyUWVXNmROX2phMUZqbnlFNjZxamhzT0tSeFducHJES0NORWJmWUZfamFmX0lkM3BMY1VHLWNEcEg5Um9KeDYzdUZOQURhSnZoejBraXBNTTQtd1Rfd1RWM25YUWtIUzUwQnBJNENEUDF4eHA5QjNFcm9tbGF1dllSa2NwQTVz0gFWQVVfeXFMTzZYUS0ya1Z2UWpyVmZNT1lZZ2dWNnJpMFNtclNtdThQTEJnaWtLdHRlUTdXZVBsUVFzMDlfdmpnQTBQRkp5VzBERGRIRVdrLV92bnlGdkE?oc=5) |
-| Erin Patterson Is Found Guilty of Murder in Australia Mushroom Poisoning Case - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQTXozQ1NwMktnNlNIMWM2MUMzTGN2aHVPVDFUQm1OZTZ0OElTWDNQNDVDNjNBSGQxZmtaOWtVa1hHNEJFM1M0STRsTGVyeGt6cks2aEJtY0JsalZidVZDN09oUi04Zk94TnFxdU5nQTBNbklJUUFxS190RnRxZnRFcS1Ydkl3NzAzUW5feFZ2TEo2UQ?oc=5) |
+| Australian Erin Patterson convicted of mushroom murders - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxQNWtUa1V0bUQ5MG5SOFpmLWl6dU9KUDJ3RWtTRkdZUTFZRzU4azJxQ2cxMXpPd1RRdzJSaHdLb3p2OGliT3JMRDVTcTZ6UzVtN0pkU283ZkVYUmFlYlV5SnpJVzlMbGk5Mk1NSzBRNXc1WjRqYkw2Tll0OXREN0EyelRQbTYwR0N4LWVyVXFGcTRLb3RmM0lZZm1BbnM5UmdrTEk3NzluUnJRbF9XY1lhQ3NhTzJsZ3ZzSzNwem5LYkNTejB6QnFNN0FB?oc=5) |
 | Trump bill's health effects won't be felt until after midterms - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1rVjJVMXpvVmF1RFBPYW5JY05UdGFfeDhtbTQtcjBDZmJqdk9oaEVWVUpZQ0oxdk9QWnNrNXRMLWJOWEM0ZGVid2xYUE9SOEFEOWtoNHZQaV9Wc1RGT0MxZnBpdUFXdXJfTnRMd1QwUGlUR0Et?oc=5) |
 | Flash Flooding Hits Orange County; Chapel Hill Evacuates Dozens of Residents - Chapelboro.com | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNUmg3ZzFHWEl0THZURndIa0JOUkpVR3kwYTdEbkt4SzBma05tUmxYTmdYS0J3aWxDY0EtMEdwbmpKU00yYmN5SWsxeXpxa3lKYnRPRTZyQnhfZDN6eDZZYjlqZFJySlctRXE3c0ZSSmZ5N1FpdThUajljdnpCRXZxSGJ4SWFYZVo0M2c1U0x6WHRkMXptMThEU1JMd082ekRaVU9rVDRXeldGOGtVd1dhRTZ6OA?oc=5) |
 | NYC real estate dealmakers brace for drag-out battle with Mamdani’s socialist policies - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQYVhoX3pVb2R2d3FZOWx5VzV6Z1plZHd3bzhZT0ZQNGhhOTlZaUJzcG9udUtlbmRUOVNGeEZzLUpSMEFZN3hwZDlMTXU2VGxTU2dSbTlGMlNKREZhZ3lBT3UxVTB0UHRSc3lfbDRLZlB3OWV2STRyN0g3WWlzTG0xbVhUaE5GcW1xQVI1ak5VTHA4NEQ1X2dJdFVwdkpsUTdPV1NfS0g0aklrNVU2b3h2elBfMHhIX3pKWUZfaGVPcmVLTjQ?oc=5) |
