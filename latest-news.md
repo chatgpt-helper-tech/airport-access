@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月07日 19:53:30（北京时间）**
+🕒 更新时间：**2025年07月07日 20:00:13（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | Jessie J reveals cancer operation success | [阅读全文](https://www.bbc.com/news/articles/c2lev0jrdeeo) |
 | Paramedic jailed for secretly giving woman drug to abort their child | [阅读全文](https://www.bbc.com/news/articles/c9qxneddqn2o) |
 | Netanyahu visits US as Trump puts pressure to agree Gaza ceasefire deal | [阅读全文](https://www.bbc.com/news/articles/cy4ypze027ro) |
-| Friends 'heartbroken' after scientist killed in Dundee | [阅读全文](https://www.bbc.com/news/articles/cj4eq9yelk5o) |
 | Bereavement leave to be extended to miscarriages before 24 weeks | [阅读全文](https://www.bbc.com/news/articles/cz9k12w5j54o) |
 | Trump threatens extra 10% tariff on nations siding with 'anti-American policies' | [阅读全文](https://www.bbc.com/news/articles/c1dnz7gw92zo) |
+| At least 81 dead and dozens missing in Texas floods as more rain looms | [阅读全文](https://www.bbc.com/news/articles/cddzrj323zzo) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | Dow futures fall as Trump officials signal limited breathing room before tariffs 'boomerang back' - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPWTNNS2ZJZFZkUHlwSEYyc1FwcUF6ek5QazJIYkt6YUlhdVh1UkllRUM1UkYwU29rR0NxclVXamFqUGNZUUFpajB4cktDTU96bW9Gb2hpWng3TTBkVjRaeWVFUlAzejJuUnRGVlpUYUxCeDh5TTRSMEhlM3JVc0sxOTRtWVpOYTZ4bEdRYkVRMndlRWpGUjZ2SWlJb3RPWlNYWUswTXQ1Rkc?oc=5) |
 | Part of I-40/I-85 closed due to flooding, state of emergencies in Orange, Moore counties - WRAL.com | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNZ1pfYlJTcEtiN3VkV01lbzItZEg2WnJ6c3dfUEdLZXR6WTZmYVh2alBLNWl4M2ZpTERhSnpBa2FKOVZpcG5IWklhdzBmaGUybWl1UTQ3elBtN2JPSWRoMkxfRFhaWHhMWUMtVmdpQUFZb3Zxa0hjVDJpa0c0T0FLQ0tsYUd1Z3VmVzY0MDh2aw?oc=5) |
 | DOJ, FBI review finds no Jeffrey Epstein 'client list,' confirms suicide: Memo - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOeXBCYjlNTnpkbzFUVXZ6RUg2WXNfMk5yXzlOVW1BRjJTZUNULW5xRWU3VjFhZHIxbWtzNl9Hc1pXUXhDNjhEWnZyRFY0TjRmeW1MUjQ3VHZhVEpHX3puOWc4ZmVkQjg1UVI3ZzNxWGNfVEJSOTRJWUhtWTRkR09mVHgtSk44WkttUFVTV0xzVWMzR1Vmb3BVa9IBngFBVV95cUxQUkRFNTFvSkFyZy1GYTNiQnYxQVIyY0lkcThoQ2Nmc0M3ZzBBdzdqZW12azBJYUQ3MnJ3OHdwYmdHY2I3WHNLTVNSM0dSX1Z4d0lOQXJ6dFNQVGRLd0JZMWpFckhBV2JxUXpyVzFfM1drbUZHTThvNXZxMHNZLTFxX19VRkRxMEZaanZHUEswYlJ0YzQwRVBKdVhHcUU2dw?oc=5) |
-| Mayor Cherelle Parker wants striking city workers to see the big picture of what she’s done for them. So far, it isn’t working. - Inquirer.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQNllybGI3MFI5dEpQYjdLSzB6TVd0ZklaaE1yaVhFYjI2OWFCdk02dF84c2lVZkpzZGphbk9uejRPbG9WMUV1SEEwWXVuVFktOC0wSUJ4UGc0dldEeTMtRlR2TEU0VWZoZVU1RmRUY1hvWmY0LVc4ZkpWMEx4eXl3M2psRC1CSXd6b1Vsd2FEc1ZtVGhqZ0RmZ3QxZXF5MTNxd1BPQk1xeURsUTUy?oc=5) |
 | Trump’s ‘Big Beautiful Bill’ has been signed into law. What does that mean? - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxNSXhFVFRmUDNHU0F3UWpjOEFnUG16c0VyT2M0dk5Ua3oyQkUweTRuQUV4c3JROVcxX3pIM1J5MTdpQ1dtY083YUxVS1BVYUswRjZoQjFMZW16U0xmUzRmaEI3TS15WUZOQkFhSGNDb1E4LTRzTUVIZWpsOG5hN29zX3NLVFU3LUx0Z0RyaVVLNTNaZnE2N2pMSVE3R296aEVOTU5Vdmc4ZG50UUFfWklRSk5rVFN2aVl3TDIzLUg3aEN4WFM2VE5rUzhWSTJYZ0E3djZ0amxPS2l5WWtwdmgw?oc=5) |
+| Mayor Cherelle Parker wants striking city workers to see the big picture of what she’s done for them. So far, it isn’t working. - Inquirer.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQNllybGI3MFI5dEpQYjdLSzB6TVd0ZklaaE1yaVhFYjI2OWFCdk02dF84c2lVZkpzZGphbk9uejRPbG9WMUV1SEEwWXVuVFktOC0wSUJ4UGc0dldEeTMtRlR2TEU0VWZoZVU1RmRUY1hvWmY0LVc4ZkpWMEx4eXl3M2psRC1CSXd6b1Vsd2FEc1ZtVGhqZ0RmZ3QxZXF5MTNxd1BPQk1xeURsUTUy?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
