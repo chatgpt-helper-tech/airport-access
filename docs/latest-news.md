@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月07日 16:14:29（北京时间）**
+🕒 更新时间：**2025年07月07日 16:26:59（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Mayor Cherelle Parker wants striking city workers to see the big picture of what she’s done for them. So far, it isn’t working. - Inquirer.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQNllybGI3MFI5dEpQYjdLSzB6TVd0ZklaaE1yaVhFYjI2OWFCdk02dF84c2lVZkpzZGphbk9uejRPbG9WMUV1SEEwWXVuVFktOC0wSUJ4UGc0dldEeTMtRlR2TEU0VWZoZVU1RmRUY1hvWmY0LVc4ZkpWMEx4eXl3M2psRC1CSXd6b1Vsd2FEc1ZtVGhqZ0RmZ3QxZXF5MTNxd1BPQk1xeURsUTUy?oc=5) |
 | Rural hospitals will be hit hard by Trump’s signature spending package - The Conversation | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQdkk5SGEtcjlDNUNQT3Zmc2dBZ2tUNXFrTDc0U01XZFFBMXlVSldaSkw2TnZZTk5PTU1ZOXByNDk1RU5ySDdxSzVKd2E1RGFjZ1ItYmNtRWFMRWFmUnNicDNGUGwyTFpCU19Obk42ME83OVk1VktLR1QtVWpiMFg3SGI1TWdqVGtISDRfZUJuY3psQjFPUE1CaFBnR3A0Z1VSc3NNWmFRRQ?oc=5) |
 | U.S. seeks limited trade deal with E.U. as Trump’s deadline approaches - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1JVEM3Z1E4RGVsY00yUHNIeXdfZzdpY3JmQjZscDBLQXFuR0ViaXVqamlfX0x0MVZEb0t1SGtYQ0hhUFpoQzBQanJuRkE0ZFRIVjJ3QVg5eUQzRFZZX0F0eW9mR1RwM05tTmExaWY1LS12UHF2TjVmXy1qTy1zQjg?oc=5) |
-| Suozzi says Mamdani ‘tapped into the same thing’ as Trump - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPWXNlc201MWxfdC0yVXE0TXFRWXJ2Q3owNXpObWV4SFNpZV9pSG1sTVlBOFNidHp3eUhONXJDS3ptNFlhaDJNNlZraVg4SVMxUmpNT3EtUmpYTVFnQjVJU0MxOG1vWU94XzBhV016cFZHRFAyRV8yd2FtUk5rR091S0tnLW9JQ2ZUNjBCcjNJbnVxVW_SAZgBQVVfeXFMUGphdU5zZzc0ZmVvYVJlb3VyUUJQMjk3MGktU3JUaHVUZ1BuZ0RBSEUyWnpsZndEX3U2Z0xpSlNMaDV3dGkxa29NNlltUHJvelRoRFVPcnlWcy10SFlBZl9EZE5TeGFXZDZIVnlPUEJ5bTltSi1sX1loVDJXT3R4OUh4S09xUW1GRXFfRzBDSl95M0s2MEh3bHM?oc=5) |
+| Knives, bullets and thieves: the quest for food in Gaza - NPR | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTFA1aFNDS1l4a0RHY2FBRG80NGFIYnhxMUlRWHBSRVJBOXE1ejBialBydUd0Uk5DWF9HOTROMnBvTzRRMW5CUkJaR3k5YUczUFhZMjNMMDBYQmRCS0VtRnVFLUNXQ2NZamV5TkVoOXJEQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
