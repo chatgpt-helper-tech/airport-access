@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月07日 09:26:16（北京时间）**
+🕒 更新时间：**2025年07月07日 09:40:16（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What to know about the flash floods in Texas that killed at least 79 people - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNOWJFdjYxbGIxNkI1UU1iZ1ljNVdPR0djaHYyOUo3S3Q2V2xOOFB4NlY4NC1MdlUtcmFxU19PU1U0bjNlVzRzXzR4VzFPb05MT2V2YTFySnF5dFd3NHZCZ1EzLWJKWUtFdmtPX01wbWtxbTk2aWg3QmVTaFBhb2lNRElaaDJ1X1NxTnU5eUtCQUlBMGs?oc=5) |
-| Stock futures fall after Trump team says tariffs will go into effect on Aug. 1: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFBMTEZfQTJISG93LTBYaXNKMnV3RGZKRU1wYnZWRjl0QmpVamFMa0VtazZwZWhxLWdxQXRIZFhoc3JPS2ZGSmhycnVJb05rM3plQzZNMUVaaUhaMllsLTJDaTVlcDJJS050ajFPd05IaHZ6QkE3ZF8w0gF8QVVfeXFMUEZsVS0wNkVsd29UTzlwZ01ycG5zZDlncjE2T2tkSElMNTZ4STdFUWkxZDBIR1hucnh4eXpiUlVqQ0xQUTBMUjRGUTZFdHRLaHgyaG90ZHRkalUzMWFaZjZwZlRaMUpTUHRMTl9ZNGdmQkU3b0RUU012cWpNcw?oc=5) |
+| Quick action by one Texas summer camp leads to timely evacuations ahead of deadly flood - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQS1IzeHNRcWxRZ09RWHV4OFVCa0hyR0t4WFZlUHNNM190V0Nyc01aZUpDcGoxOWw5NzNzWlFoamNHSngxVDZLb2daVHk2bjRObmNKeHJ6Q3pKTnZ0d0pnZVU5NDhrTFVUV3ZwNl9tVVR4aUltMV80QkRqcE50VjJRc3paOHZZQmhMd1B5ckVIRk5TclBLRElKQlVtZw?oc=5) |
+| Trump says US nears trade deals as tariff effective date delayed - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQNWVuQ3pIOFZPR2I3UDNYZ1pTd0F6cjRxSGVBMWZGczUwU29ZbzVjTHVsRTV6YU9uS2trU2xfclBtbTFuU2xBc1NCRm5MZm40M0dDVDFuOWItNjh4Y3hBRXdsWTlaVTFkRDF0ME5XbnRFdnZDRTEtTkRaQ3BmTmk4R0JWYnJGNEFEbGpTb3VQOGlickRxa21wRVNtLXVxbm9NdTJtNmFtNmdWOWVYclAzR0dGV1ZKYzRVRk5nalR3?oc=5) |
 | Musk says he is forming new political party after fallout with Trump - CNN | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1OZThSLUwySHRuME16amI1UnUyaFlxVUl5XzE0VW45SVdFUElFRlJkZ0pSRTJXRXBTcEI4X3BZVGY1S0JVcjFEbVJHZjVKWWFyMHRWYVBtV0JISjI1RktKN1VPZ1RBZTdoSzZRZ0hJUFF4NWPSAXhBVV95cUxObHNkXzBmb0tHczNCQVZKZ3FHM1JiaGRkY0F5X2NkVTNLa2p5QURuQWpmckdoRG1Ga3JOQm5WWG44Zko1NXJ3V05hTnRmOTJjZUV0REJaWENlTGh1ei1WaFJjOGduVkF0OWZadWxmN0NaWl95WW5KTVY?oc=5) |
 | Chantal, now a tropical depression, raises concerns of flash flooding in North Carolina and Virginia - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPXzlqY2l6WVRfR0ZEVDF3aVVYc3lVYVhIcmdwQjVxMlh3NDZjdU5ualZ2Y21YMWpGWWpib2xiMGN1Uzg4TW5FRW5VXzlFbU9qRjZUdlVyZkdBSWRzQkE5N3V2R3FFVmNMTjhZRjNZMXIzOVNiUFluTzNHaEk2dTJBeUFSU29tUVJxQlA5a1p6OE5XTTBLV3JQVEx4MnlWejR2M2RSUXdvR2lqb0Nw?oc=5) |
 | U.S. seeks limited trade deal with E.U. as Trump’s deadline approaches - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1JVEM3Z1E4RGVsY00yUHNIeXdfZzdpY3JmQjZscDBLQXFuR0ViaXVqamlfX0x0MVZEb0t1SGtYQ0hhUFpoQzBQanJuRkE0ZFRIVjJ3QVg5eUQzRFZZX0F0eW9mR1RwM05tTmExaWY1LS12UHF2TjVmXy1qTy1zQjg?oc=5) |
