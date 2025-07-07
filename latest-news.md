@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月08日 06:39:12（北京时间）**
+🕒 更新时间：**2025年07月08日 06:53:22（北京时间）**
 
 ---
 
@@ -8,9 +8,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| London remembers 7/7 bombings 20 years on as William lays flowers for victims | [阅读全文](https://www.bbc.com/news/articles/cq53jqg2y90o) |
-| 'It became pop culture': Inside the sleepy towns left reeling by the mushroom murders | [阅读全文](https://www.bbc.com/news/articles/c4g8zr16y21o) |
 | Why don't we trust technology in sport? | [阅读全文](https://www.bbc.com/sport/tennis/articles/cdr3nk7vd28o) |
+| 'It became pop culture': Inside the sleepy towns left reeling by the mushroom murders | [阅读全文](https://www.bbc.com/news/articles/c4g8zr16y21o) |
 | The Salt Path author defends herself against claims she misled readers | [阅读全文](https://www.bbc.com/news/articles/cm2z0707mlgo) |
 | 200 million year-old flying reptile species found | [阅读全文](https://www.bbc.com/news/articles/cqx2zzn53pqo) |
 | Russian minister sacked by Putin found dead | [阅读全文](https://www.bbc.com/news/articles/cy7nvxzrvr0o) |
@@ -18,6 +17,7 @@
 | Emergency alerts to be sent to UK smartphones | [阅读全文](https://www.bbc.com/news/articles/c4ge9xk8wj0o) |
 | Workplace misconduct and discrimination NDAs to be banned | [阅读全文](https://www.bbc.com/news/articles/c93kwgzz88qo) |
 | Maternity retailer worn by Kate enters administration | [阅读全文](https://www.bbc.com/news/articles/c5y9qez8ze3o) |
+| Young campers, teachers and football coach among Texas flood victims | [阅读全文](https://www.bbc.com/news/articles/c5ygl8lpyyqo) |
 
 ## 📰 Google News
 
@@ -25,14 +25,14 @@
 |--------|-------------|
 | More than 100 killed in Texas floods, with 11 still missing from Camp Mystic - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFAzVHVPSWJBZ1VibFpqQ1NQOUQ1UlQ5Qi1NdTRZLTlweXdpT3VPeXBTdW1DQ3JNbVVfejBEZFFSSHk1YWxldVpaVjlLdmpoWlhKS21mTA?oc=5) |
 | Here Are Trump’s New Tariff Threats - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOMG51OWkxOXdQRkYxQ2pDc05jejZYUUZlajNkdl9pUWZrLWlHNDVObk1wVUxfS2s2WTJyZlRtRkQtRmZsb3NfLVZaNW1GNXZZS0hkU2RKX1RrV2FIdnZMU2EtTXdrbFp2UlJBRVdnRHNUQTlhWmVTVVJscmhRb2w4N3I3ZkIyckZnajhV?oc=5) |
-| ICE in LA: Mayor Bass confronts federal agents in MacArthur Park, demands withdrawal - FOX 11 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBMcGc1WEUzRHJVWFM5aUlsU2wzYXlHaldkX013dmRrbjlHZlNleEdPREdTLV9zOWJZRG9OWU05cGhaUzRhOVhYQmlNekU2cGYxSlktX2FKcmo3UENaRW8ySktiUGVHX1d5YU41WlVWMXRBbEtBZEHSAXtBVV95cUxOU2lYNk1weDhDOEhLRHJxTXF6cXJ0NGJhYVA0dE9TbmVaOGJDMGRROW5jVHlpN1BIajZlV0xuQU1wSUVlMmJBRnFpbnhkVlhlY0JqVlVLejhYNGljejRQd2NsSFhheDVlYWtfSV9hTGFHUzNLVlBmNmtvZzA?oc=5) |
-| Man killed after shooting at a US Border Patrol facility in southern Texas - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQUkRjazhVeWZRM09ieXl6b2FfcFotS1QwS2wtZ1ltWVk4VWJrN2kyZE5jTl9Jd1JqSjVjb3hVdXVHMTltd3dZOE4xSC14U2lKdVF1REo1TkU4NHBmVjNPN1BEc2J6OVBNaUhMVDhpa0NZZ0d2T0pWY2F5eFZ3Y09zdVBNOS0xV1ZwQ3A0ZDhEQU83NG1GMzI2VmxRWnQ?oc=5) |
+| Troops and federal agents briefly descend on LA's MacArthur Park in largely immigrant neighborhood - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPanR3TjYxaDl0UW4wYWFjOV83dXVNdUREX0lfZHZ1Sk5ld0szY0FuNHBaNmVONHAxdGk0OTJRS1VWOGhjLUlRbTRJRU80Qi1pSm5KRDJJOVNwZTlVX1oweWFQM28wdzJlYXFTOU56TmUxTUhMcXlBVTZhOWlhdUk1cmZVdHpkSW53Sm9vQ25oR0Y4eEdPN2FoSVpQVDBZZEpXN1pUTjJR?oc=5) |
+| Man killed after exchanging gunfire with Border Patrol agents in Texas - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQX3lQUWU0ei15dmhLRmRLbmhQekNncl9sMnVhZU9KUVpzaXNLbFRkbU9qd3Nud3VqVFVrTUlYcWI4YXJkQUR6bEZ3UzVPa0tWTU0zbkRqMjk3UUhNWE5YNHhDTHpuLUxEZm1tUnZkc0pFM09qVVp2bXNHc19kanBfSHJPV1M5bzM0Yms2OXdXN1FiWVBVZG1kOHp5NlJrU0xBcmJCVWJqTkZ0RFl0YjBlWNIBVkFVX3lxTE5iZkx2aHBCbFFzR2huZnRkWGlQc3Z6cjJ3bzJnS3EyVEJGVkYxSHRkcE5kSlpSRTUxbWJFNlJ2c1dyLWlyVS1PWEdYb1FXMlNpeXJqb2xR?oc=5) |
 | US physician groups sue Kennedy over vaccine policy - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOYnkxcEJXaEtTR2dtXzhPcWs2a3NZQjh0Y0xyZ1RWMXVYeGhtWEVzaU5qZ0t0bExtcDJyN0pQVk9RblV2Z1JKQ0s3QVBmajcxQ19UaW8yY2pLS3JaSGlDektGSTU0d0YwemhhQng0YVU2YzQ0Rm04cVNOZjR4Um1pUUtmQ3g0ZWpxN3BCNWFzNjVZMmI0ZXIzSDJWdEdNQmV5ZVFPaw?oc=5) |
-| DOJ says no evidence Jeffrey Epstein had a 'client list' or blackmailed associates - NPR | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1Na2F0Z2lUTmoxOG1Rbml6TWtPX2swenJfU3NId3pQaVB2RjVqQzNwd1RvSGpreUcwcmhtX0x2ZFF6bWpWTlJEWkdUNTE2dlltaDZwaWVHdzJWaG42UTlhQkFDS3M3b1ZwRURLR2VRN3R6YmJh?oc=5) |
 | Tesla stock tanks after Trump dismisses Musk’s new political party plan and calls him ‘off the rails’ - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE5SZ25YeEZDQ3JrRlhFbW04Y18tbmxIVFJuSG90ejIyNlpfVUpuVDlTY3NjOXRtMmxhdXdaR2Jrd0ZKYS15MF9mYUdMSWJjcEdXZVBuVTdfbE80QjdkbE91dlNOcjR2V0EzNERkQVBMemo0M2lWZGfSAXtBVV95cUxQODBOYzBWSHFqTlNzeGstX2lENHBaWG5XRlhmazVBTlFRZVJXb1BKSzFlRnM0T2EyWC15TmliZkcwLTJyNzRoVS1EU0tXMGdtNVA4R2Jsbkh3VFlhbnpISFhDUEdjMlpGRU5PMTlyaGtpdXlMUFJQaUVldDA?oc=5) |
+| Fugitive dad accused of killing 3 daughters may have been seen in Idaho - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPc2V3T1I2cGNMUmMwNWhXdVhHYWh4cnlMWi1DeTNEQkl1cnA2ZzEySy1fU3J6czVjUkQ1MkR6NnhJVGVoMU44a3ZKLUJhTnJoTFRhUXRiX0E1N1FVN1hlQVhMX1BJTnhiSTY5dnhzSXI4Tk1NYU51dHJsQ3VheVpwVGo5M21LakpEWjZEMNIBVkFVX3lxTE5KZk54UFZoSjBqVkk1LS1YQmE2Rm81UWR4b2ZqdUZEbDlLTzFBcGVKb1lrME9KTkhyYnlGdHpLR3JFLWJkZ0J3OWoyT19kWEYxY3l1cEFn?oc=5) |
 | Revoking the Foreign Terrorist Organization Designation of Hay’at Tahrir al-Sham - U.S. Department of State (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxNVVJwVmk4Z2NDZEJqUXNxZGhrdGsxaDRTT05pUGtOQW5ZT1pVYmlwRWpONTlwcjRyamhoaEhQUnk4cXZKamFaQnhybHYzd2RLNWpiRUs1cXlNVzVBb3daaUhlTS1GLXJvRzR2c3pLZWtGVmpZTmRRRlZqeENWTVMwcHBpbC1XVm5XdWNaenp4TFVvaGpHcTI3YnVoU1AyZlV3S2YyMW90eHJyOGM0VVN4Q29Pb05fTklhR25POVp2ankyU3A1b3I3R0w3cEdUN0Y2X0xGVHhoWl9iMV9Mc0kw?oc=5) |
-| Travis Decker search: Father accused of murdering 3 daughters possibly spotted in Idaho by campers - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQMTNQdEJmcC1vUmQzY1lxbkR2UDdkTkVFcG93eHpOeVZhMnk3MTZLYWtuSFJMWExubzg3SFM3Q2ZnU3M4eHJobjlHUUN1OW0wYUd5RGdMS3I4bUNTTDdfd2xEclpZMWFoMWl6eHY4SVFwa0tCVFlQVTVvRUY4aXFmTV9YeGVXU0VPOXBOdHk0VGlMcm5RbFV5OTZpdVdPSWN2MF9SM9IBqgFBVV95cUxQLThZcEpQWEFHT043emZETkZUUFZnOHVNeHBmSXhoRmFvcnFvV2RoQ1BWT2NsOUM1TkVtNHN0X2NYVG9CWk1SZ2tCUkNmeHRMRi04ZnRQS1FrVjJJZ1Rublk2Wk11Y0p2eHpuR0FheUNVLWQwXzdnVlJwVU1WVWFrZUxtQUFZVmpjMDJycUVFdEJrQ09NaGk4WVp6ZHR1WklxZGI3cEJpSUY2QQ?oc=5) |
-| Trump administration says it will deport Kilmar Abrego Garcia before his trial if he’s released from criminal custody - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFB3Yzk0RTJQOHhnQ3pnZXZWbS1QZ0VMVk9sRm5YdllRbFZFWHZ3RG5ielRIdTBwNDM1N0E2b1lqbVc2TkNRUTJldkh2MFZNQ0xFQkFObW9xYXdFX1VZSVNuSWpBaFNmcS1DRU83TW1ta1NNZGpkNXlEZVM1YXozZ9IBgwFBVV95cUxQbWZDczV2MkJHU2xreVFab0FIcEtITnpXZU9VU2x1MUh0X1NocDNGd0FoZlNjc1lJSi1yMk0xRVUzLTh4QXRmX19qS2lOcXpMaC1ncWluWHpHUDQ4NmRVbGJPQUtyWFdMODJ2NzVJb0FSNVcwYXM3SGtDTU5ubHVVNk9VTQ?oc=5) |
+| Photo Gallery: Tropical Depression Chantal Causes Floods In Chapel Hill, Hillsborough, and Chatham County - Chapelboro.com | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxNb19FQTRudHQtak8wU1drWUtLaVVnLXpYeXpsZjZyR3JjdUd2Z3JnXzlJWThGaF83UXc1bTNVbmVfUHFWUERSTFVsWTJOcVRUc0tMZmN5aDRWQzBqRVZseDhiVzduNW51Q1pQaDJDaFh5TG9ydUhEbWt1OXFMTXV6cmRzbS1zaGxneE9USERlaGZwNDBzZjFjcnE2VnJUVnNNWEdZaUtadkNWVzVTSXdyVlZHa29xM3NIZENoaG9DeHAya2tmTUJDMW95UFNmalVyeVIybg?oc=5) |
+| ‘Like nailing jello to a wall’: Judge scolds DOJ for shifting positions on Abrego deportation - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOcG5WLXVJcGtjQjJMdTdEZ1FJc21QZ3VqNUI3REhFODRCVmpURHZsN25IR1pXeGkyZVg1Vlc1V094QWxpVXhPcExEOHVRNlZrQnIzMzhhNFZKU2t5c1NnM0JDOXVtSXBieDJTLUt2d2lwSnZoS2x1N2RpcXA3RllsQnotNWliUnlpY2hUbEwxd0FocEs1?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
