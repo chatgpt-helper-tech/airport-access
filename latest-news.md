@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月08日 00:13:11（北京时间）**
+🕒 更新时间：**2025年07月08日 00:27:04（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | Young campers, teachers and football coach among Texas flood victims | [阅读全文](https://www.bbc.com/news/articles/c5ygl8lpyyqo) |
 | Released Hamas hostage says Trump can bring home those still captive in Gaza | [阅读全文](https://www.bbc.com/news/articles/c8xvd4jd0wvo) |
 | Names of 7/7 London bombings victims read out at 20th anniversary service | [阅读全文](https://www.bbc.com/news/articles/cq53jqg2y90o) |
-| Watch as victims of 7/7 remembered | [阅读全文](https://www.bbc.com/news/videos/cvgw1d17nl3o) |
+| Wimbledon announces change to line call system after 'operator error' | [阅读全文](https://www.bbc.com/sport/tennis/articles/c3vd1w9kr3lo) |
 | The Salt Path author defends herself against claims she misled readers | [阅读全文](https://www.bbc.com/news/articles/cm2z0707mlgo) |
 | Man in court charged with murder of scientist in Dundee | [阅读全文](https://www.bbc.com/news/articles/cj4eq9yelk5o) |
 | Russian minister sacked by Putin found dead | [阅读全文](https://www.bbc.com/news/articles/cy7nvxzrvr0o) |
