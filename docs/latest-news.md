@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月07日 20:00:13（北京时间）**
+🕒 更新时间：**2025年07月07日 20:14:59（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Netanyahu visits US as Trump puts pressure to agree Gaza ceasefire deal | [阅读全文](https://www.bbc.com/news/articles/cy4ypze027ro) |
 | Bereavement leave to be extended to miscarriages before 24 weeks | [阅读全文](https://www.bbc.com/news/articles/cz9k12w5j54o) |
 | Trump threatens extra 10% tariff on nations siding with 'anti-American policies' | [阅读全文](https://www.bbc.com/news/articles/c1dnz7gw92zo) |
-| At least 81 dead and dozens missing in Texas floods as more rain looms | [阅读全文](https://www.bbc.com/news/articles/cddzrj323zzo) |
+| A girls' summer camp swept away by a 'horrific' deluge | [阅读全文](https://www.bbc.com/news/articles/cg75n3k1k3yo) |
 
 ## 📰 Google News
 
