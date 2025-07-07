@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月07日 20:26:11（北京时间）**
+🕒 更新时间：**2025年07月07日 20:39:34（北京时间）**
 
 ---
 
@@ -8,16 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| 'It was inhuman': 7/7 bus driver on witnessing bombing horror | [阅读全文](https://www.bbc.com/news/articles/ce37xwxgy1xo) |
+| What we know so far about the victims | [阅读全文](https://www.bbc.com/news/articles/c5ygl8lpyyqo) |
 | An orange plate and cancer lie: Key evidence that gripped mushroom murder trial | [阅读全文](https://www.bbc.com/news/articles/cdx554n1x0wo) |
 | Watch: The CCTV and audio used to convict Erin Patterson | [阅读全文](https://www.bbc.com/news/videos/c62gd705ly9o) |
-| British teen jailed in Dubai over sex with girl returns to UK after Eid pardon | [阅读全文](https://www.bbc.com/news/articles/cq8zdvzj5vwo) |
-| Jessie J reveals cancer operation success | [阅读全文](https://www.bbc.com/news/articles/c2lev0jrdeeo) |
 | Paramedic jailed for secretly giving woman drug to abort their child | [阅读全文](https://www.bbc.com/news/articles/c9qxneddqn2o) |
+| Jessie J reveals cancer operation success | [阅读全文](https://www.bbc.com/news/articles/c2lev0jrdeeo) |
+| British teen jailed in Dubai over sex with girl returns to UK after Eid pardon | [阅读全文](https://www.bbc.com/news/articles/cq8zdvzj5vwo) |
 | Netanyahu visits US as Trump puts pressure to agree Gaza ceasefire deal | [阅读全文](https://www.bbc.com/news/articles/cy4ypze027ro) |
 | Bereavement leave to be extended to miscarriages before 24 weeks | [阅读全文](https://www.bbc.com/news/articles/cz9k12w5j54o) |
 | Trump threatens extra 10% tariff on nations siding with 'anti-American policies' | [阅读全文](https://www.bbc.com/news/articles/c1dnz7gw92zo) |
-| A girls' summer camp swept away by a 'horrific' deluge | [阅读全文](https://www.bbc.com/news/articles/cg75n3k1k3yo) |
+| Did officials do enough to warn people? | [阅读全文](https://www.bbc.com/news/articles/c0rvp24wvrqo) |
 
 ## 📰 Google News
 
