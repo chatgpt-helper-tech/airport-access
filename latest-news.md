@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月07日 12:52:32（北京时间）**
+🕒 更新时间：**2025年07月07日 13:00:48（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | First round of Israel and Hamas ceasefire talks ends without breakthrough - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1xUURYTXdqc1g0YU8xeXV4YU4xN2lQYnJCdlllaU52ektNdkJvdU4wZE9TVTdWb0NkT0VJMi1LdS0waTdhclFFM0UyRFhZX3c0Ui1Qck9ObFNPd9IBX0FVX3lxTE9YRDFZaTF3NkRXc2x6ZjFXMXlwQ08zV2R2bWNwZG1aay1fUkxmTVpwWFRsNkYwVXlOT2pzeDZxdC1FaElxYlp4OVlFbmVYc1dzUkJKNmJUQjRnSFoxdG5R?oc=5) |
 | N.J. weather: Tropical Storm Chantal remnants to hit state Monday with thunderstorms, heavy downpours - NJ.com | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxNVndwZFZsTnVQZ20zbkU0YlFBVDF6WGV0TDE4ZHdxRE80ZU16d082NTViSDBGandOelByanhYTGlZcHVVU0J6cUlmaGNoWk9xNnVwWllxT2ROaHZFT3c4MnVWZUNaYlNDbWw5MmRVOEFTYXgzY1VPblgyY19SOVBVdkhST1FrNktaYy10c05WUFVLbTQ3ZXZKTDVEZVVsTHR5SThzQ0NsNWZXOHZnWFlhemJ3UGJUVnRYR3EyeXlCa3A1V25qcXhqLTF3QTliVFZJaEhn0gHnAUFVX3lxTE1iWkhuMmRkSVNvSjk5MGZtUWRZcGFZRWFYTlBJWEVTNFpwa2t1T0xXMjloakctblFDbjdDZTJmSndZMlY4R3I5WFgxNzFwY3AzWWFWZUoxVWEwMXZ3dko5anF6XzFPRkI5bWdvUHhJWVlmWWFrckVWdUhMc0p6eDJUMXAwMkRHcFJEQkt1QTBPOWhxNGtfNzhzcHJpbGRyekVuSnFXaHIxZ1NETjU2MnN6bnR5N1NqWDl1cDJxcFdlU081RVR6TFhxOE1KSUFEdHZrOWdOSHg4djNiQTlmNVNwajZMSkJwdw?oc=5) |
 | Mayor Cherelle Parker wants striking city workers to see the big picture of what she’s done for them. So far, it isn’t working. - Inquirer.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQNllybGI3MFI5dEpQYjdLSzB6TVd0ZklaaE1yaVhFYjI2OWFCdk02dF84c2lVZkpzZGphbk9uejRPbG9WMUV1SEEwWXVuVFktOC0wSUJ4UGc0dldEeTMtRlR2TEU0VWZoZVU1RmRUY1hvWmY0LVc4ZkpWMEx4eXl3M2psRC1CSXd6b1Vsd2FEc1ZtVGhqZ0RmZ3QxZXF5MTNxd1BPQk1xeURsUTUy?oc=5) |
-| Ex-NY Gov Says Trump and Mamdani Have Surprising Similarities - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPQ29MZlJsaW53Vl9WNTQ1SjVVLWxkN0FIRGlLcmFWVVZ1a0NLTFptY21Sbk5jT2FBWGlaUDRBMkFkNE44RnVZSnVDRmtDUWI0MGVyZmFIZF9lUnFNYVVGLTUySFVqTFZIcXpQUzNlSDBwcVVSNzk5S2tLdFpubzBDdXE0cmttazRrUUNtWU1NSHNLQlp3Mm9sSkpORm51b0NzQkZSZFF4a2gxbHctZmxLR3NlYklvQnEzMzkw?oc=5) |
 | Officials Feared Flood Risk to Youth Camps but Rejected Warning System - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5ENFBEeVRZQmEzZXd6emRBc0pOTEEwV0Zfa2VEVjZrN1NmeDNYb0tZRzNzQUczS2VGUG5fVEV1Sk1kLTBkU2w3ckd6NVc4d0lFSlJncy1ZdmhYbzZ4STh0cU5IbDZwMkdGckhWdzZ2eDRyU2J0QlQ0ZWVB?oc=5) |
+| Ex-NY Gov Says Trump and Mamdani Have Surprising Similarities - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPQ29MZlJsaW53Vl9WNTQ1SjVVLWxkN0FIRGlLcmFWVVZ1a0NLTFptY21Sbk5jT2FBWGlaUDRBMkFkNE44RnVZSnVDRmtDUWI0MGVyZmFIZF9lUnFNYVVGLTUySFVqTFZIcXpQUzNlSDBwcVVSNzk5S2tLdFpubzBDdXE0cmttazRrUUNtWU1NSHNLQlp3Mm9sSkpORm51b0NzQkZSZFF4a2gxbHctZmxLR3NlYklvQnEzMzkw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
