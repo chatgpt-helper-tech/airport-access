@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月07日 12:00:12（北京时间）**
+🕒 更新时间：**2025年07月07日 12:13:18（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Is the UK really any safer 20 years on from 7/7? | [阅读全文](https://www.bbc.com/news/articles/c14e77je72mo) |
-| King's message of unity for 7/7 attack anniversary | [阅读全文](https://www.bbc.com/news/articles/cq53jqg2y90o) |
 | At least 78 dead and dozens missing in Texas floods as more rain looms | [阅读全文](https://www.bbc.com/news/articles/cddzrj323zzo) |
 | First round of Gaza ceasefire talks ends without breakthrough | [阅读全文](https://www.bbc.com/news/articles/crenx445170o) |
 | Welfare U-turn makes spending decisions harder, minister tells BBC | [阅读全文](https://www.bbc.com/news/articles/cq8z34x914jo) |
-| Government urged to keep care plans for children with special needs | [阅读全文](https://www.bbc.com/news/articles/cx2vn950d5go) |
+| Bereavement leave to be extended to miscarriages before 24 weeks | [阅读全文](https://www.bbc.com/news/articles/cz9k12w5j54o) |
 | 'Human error' - Wimbledon sorry over missed line calls | [阅读全文](https://www.bbc.com/sport/tennis/articles/czry1j5e32ko) |
-| Israel launches strikes on Houthi targets in Yemen | [阅读全文](https://www.bbc.com/news/articles/ce9xdlxp1x7o) |
+| Government urged to keep care plans for children with special needs | [阅读全文](https://www.bbc.com/news/articles/cx2vn950d5go) |
+| Trump threatens extra 10% tariff on nations that side with Brics | [阅读全文](https://www.bbc.com/news/articles/c1dnz7gw92zo) |
 | Post Office scandal victim: 'I need someone to be punished' | [阅读全文](https://www.bbc.com/news/articles/cx244zk2jppo) |
-| Murder inquiry after death of scientist on Dundee street | [阅读全文](https://www.bbc.com/news/articles/c628965dvp1o) |
+| Israel launches strikes on Houthi targets in Yemen | [阅读全文](https://www.bbc.com/news/articles/ce9xdlxp1x7o) |
 
 ## 📰 Google News
 
