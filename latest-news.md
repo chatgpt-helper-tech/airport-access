@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月08日 09:52:22（北京时间）**
+🕒 更新时间：**2025年07月08日 10:00:16（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Troops and federal agents briefly descend on LA's MacArthur Park in largely immigrant neighborhood - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPanR3TjYxaDl0UW4wYWFjOV83dXVNdUREX0lfZHZ1Sk5ld0szY0FuNHBaNmVONHAxdGk0OTJRS1VWOGhjLUlRbTRJRU80Qi1pSm5KRDJJOVNwZTlVX1oweWFQM28wdzJlYXFTOU56TmUxTUhMcXlBVTZhOWlhdUk1cmZVdHpkSW53Sm9vQ25oR0Y4eEdPN2FoSVpQVDBZZEpXN1pUTjJR?oc=5) |
 | Tesla stock tanks after Trump dismisses Musk’s new political party plan and calls him ‘off the rails’ - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE5SZ25YeEZDQ3JrRlhFbW04Y18tbmxIVFJuSG90ejIyNlpfVUpuVDlTY3NjOXRtMmxhdXdaR2Jrd0ZKYS15MF9mYUdMSWJjcEdXZVBuVTdfbE80QjdkbE91dlNOcjR2V0EzNERkQVBMemo0M2lWZGfSAXtBVV95cUxQODBOYzBWSHFqTlNzeGstX2lENHBaWG5XRlhmazVBTlFRZVJXb1BKSzFlRnM0T2EyWC15TmliZkcwLTJyNzRoVS1EU0tXMGdtNVA4R2Jsbkh3VFlhbnpISFhDUEdjMlpGRU5PMTlyaGtpdXlMUFJQaUVldDA?oc=5) |
 | DOJ says no evidence Jeffrey Epstein had a 'client list' or blackmailed associates - NPR | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1Na2F0Z2lUTmoxOG1Rbml6TWtPX2swenJfU3NId3pQaVB2RjVqQzNwd1RvSGpreUcwcmhtX0x2ZFF6bWpWTlJEWkdUNTE2dlltaDZwaWVHdzJWaG42UTlhQkFDS3M3b1ZwRURLR2VRN3R6YmJh?oc=5) |
-| Man killed after opening fire on Texas border patrol station - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1HOENZdDlSSTdWd19OcThYcWpvRXRnR1I1c29yTEFSeU85VllUclZvX0MwcXBXdU9KQnRlUVdnb1FRSkpjNl8waVJPQy1LTzc1YmNGbnJaZ3JlZ9IBX0FVX3lxTE1KMlJnUWFoVV9MYzRqVlNSU2hoOWN1NjdfdU9xZGl4NkUyQ2ZSaU4ySVJWakltUl94WUp4TVFZZzQ1dDFMYkJ0dHhoQmVNdmN0bXUydkdxV3Q1OGFEdG44?oc=5) |
+| Michigan man dead after firing at U.S. Border Patrol station in South Texas - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQVG1Yc293NW5Ic1pabXF5UWk5S1UycFFUQ1B6ZWhCVkJVT2Z4QlNoUWZ5UVB1TEdxX2p0M25KX2tmbjM5cmlKZXRqRDVGTFFsb1MxdGJWSDBSZ2JTa2xEMlR3MEJ1SHlSdWFQa0k2TnFNUWRsY3BEYnpfZkZkMHIxc0hFalVIZzli?oc=5) |
 | Ted Cruz ensured Trump spending bill slashed weather forecasting funding - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQMDQxYTZrRi1vUGNDLXpVUEZfdGlXUjRfWFB1TGtRYnBCamZEcGlKT3I5enp2NV80eDR4dnRqQzdNR2dsX092eUh1UnNhRVVYaDRaaS1RSnJtM2VzdXVoejNWLXRHNUVXVTRaenJ2c09LcmU4YmVRT3hFQmFCZnFNMXBFODBYWVZCQnRNeFdCd2Q?oc=5) |
 | Halted military aid for Ukraine may start flowing again - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQMENGZWlvdjRXcmpjWEtpcE9IOHhkaU43eHNhMVVvQ2s2YURHT2R2RzJ0VENSSDNfclFKMWk0V0RTOFJOR0hsYmUtN0psVFVuREl4MWdxaWp0VUlwdHlkWlBuZy1DUkhpVWNWeER2TzR3dFRJd3g0Nm5iYVR4ZVFBT3JiTFprZw?oc=5) |
 | Judge temporarily blocks Trump administration from enforcing funding ban against Planned Parenthood - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE42aTZnem4yeERLSXhaQkphVjE2X25WOGNGbEM2VS1IZGhNZkpUV2xYYVhScG9DcXhCSDdDcUd1MlQyWExOQ0s3eUE5RExrOUs1WjNvV2EtcVlaZTlqZHdUWDY4dTd2UjhPbzVBTTYyU0NiRFJjYXpxTzZQTjExa1nSAYQBQVVfeXFMTnpmQlJGaVB5b1FIWTFDTVBKc0Mxb3BXQ0h6RjZXRy1SMmRnOEd3eWswR3I0Mld2T3g1UE52V3FZdmcxdHNQUXBmbFBHUk9hZ0Rud0ctT1lBLXhmQnBrQVFLb2pLc3lMRHR4c2NNczJVSnRGY1g0VU5LeHpLeVNsOE1sbkNf?oc=5) |
-| Trump administration says it will deport Kilmar Abrego Garcia before his trial if he’s released from criminal custody - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFB3Yzk0RTJQOHhnQ3pnZXZWbS1QZ0VMVk9sRm5YdllRbFZFWHZ3RG5ielRIdTBwNDM1N0E2b1lqbVc2TkNRUTJldkh2MFZNQ0xFQkFObW9xYXdFX1VZSVNuSWpBaFNmcS1DRU83TW1ta1NNZGpkNXlEZVM1YXozZ9IBgwFBVV95cUxQbWZDczV2MkJHU2xreVFab0FIcEtITnpXZU9VU2x1MUh0X1NocDNGd0FoZlNjc1lJSi1yMk0xRVUzLTh4QXRmX19qS2lOcXpMaC1ncWluWHpHUDQ4NmRVbGJPQUtyWFdMODJ2NzVJb0FSNVcwYXM3SGtDTU5ubHVVNk9VTQ?oc=5) |
+| Netanyahu meets Trump at White House as Israel, Hamas discuss ceasefire - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQNDdXUS1iTVhRM3ktOWQxODJpTF9fQkpzdlJWaFVTMFlKY0w3TDlReWZCd1VZY3ZZTGZVVjFONjVpRU1ndEhoRkpLSWoyeEpfdGZMQTBLRm9GYTBzamx2ZjBGX1N6azFRYm1MZWF0TGpSb3lvQkh3N2c3UWRtN29Xc1d6amQwS0N0RGttX3FmX0VMZm1kUXJkZjhtMWxsVVc2czhFbktmdWhtellnTmFKYXRPOWZjdGF5?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
