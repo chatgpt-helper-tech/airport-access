@@ -9,7 +9,7 @@
 > 📌 墙内访问Github太慢了,如果加载不出测速解锁的图片,请访问GithubPages页面获得更好的阅读体验：  
 > 👉 [https://gptvpnhelper.com/airport-access/](https://gptvpnhelper.com/airport-access/)
 
-> 最近更新: 2025年7月4日
+> 最近更新: 2025年7月8日
 
 ---
 
@@ -441,7 +441,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 ---
 
 <a id="yhy"></a>
-### 4.<a href="https://realvpntest.galaxyvipaff01.cc/register?aff=tcOd0ob7" target="_blank" style="color:#1a73e8;text-decoration:underline;">银河云 Galaxy — 高性价比 Trojan 专线机场，节点丰富，AI 与流媒体完美解锁</a>
+### 4.<a href="https://inv03.galaxyaff.cc/register?aff=tcOd0ob7" target="_blank" style="color:#1a73e8;text-decoration:underline;">银河云 Galaxy — 高性价比 Trojan 专线机场，节点丰富，AI 与流媒体完美解锁</a>
 
 **综合评分：9 / 10**  
 **关键词标签**：Trojan 协议｜IEPL 内网专线｜多地区节点｜不限速｜支持退款｜YouTube 4K｜全天候稳定
@@ -498,7 +498,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 - 🧳 跨境电商、远程办公、技术开发、科学-上网刚需人群
 
 <div align="left" style="margin: 10px 0 20px 0;">
-  <a href="https://realvpntest.galaxyvipaff01.cc/register?aff=tcOd0ob7" target="_blank" style="
+  <a href="https://inv03.galaxyaff.cc/register?aff=tcOd0ob7" target="_blank" style="
     display:inline-block;
     background:linear-gradient(90deg,#0f2027,#2c5364);
     color:#fff;
