@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月08日 09:01:31（北京时间）**
+🕒 更新时间：**2025年07月08日 09:14:41（北京时间）**
 
 ---
 
@@ -10,11 +10,11 @@
 |--------|-------------|
 | Texas floods death toll climbs to more than 100 | [阅读全文](https://www.bbc.com/news/articles/c0j4eq517qyo) |
 | How King Charles is helping to 'reinvigorate' the shaken UK-France friendship | [阅读全文](https://www.bbc.com/news/articles/cyvjg41e6mzo) |
+| Trump delays tariffs on 14 countries until August | [阅读全文](https://www.bbc.com/news/articles/cd0vkl31085o) |
 | Why don't we trust technology in sport? | [阅读全文](https://www.bbc.com/sport/tennis/articles/cdr3nk7vd28o) |
 | 'It became pop culture': Inside the sleepy towns left reeling by the mushroom murders | [阅读全文](https://www.bbc.com/news/articles/c4g8zr16y21o) |
-| The Salt Path author defends herself against claims she misled readers | [阅读全文](https://www.bbc.com/news/articles/cm2z0707mlgo) |
 | Drugs smuggling 'destabilising' prisons, watchdog says | [阅读全文](https://www.bbc.com/news/articles/c0m8prz7077o) |
-| Manchester Airport brawl CCTV shown to jury | [阅读全文](https://www.bbc.com/news/articles/c4g8e29jdrpo) |
+| The Salt Path author defends herself against claims she misled readers | [阅读全文](https://www.bbc.com/news/articles/cm2z0707mlgo) |
 | Emergency alerts to be sent to UK smartphones | [阅读全文](https://www.bbc.com/news/articles/c4ge9xk8wj0o) |
 | Workplace misconduct and discrimination NDAs to be banned | [阅读全文](https://www.bbc.com/news/articles/c93kwgzz88qo) |
 | Maternity brand worn by Kate enters administration | [阅读全文](https://www.bbc.com/news/articles/c5y9qez8ze3o) |
@@ -31,8 +31,8 @@
 | Pregnant doctor denied Covid-19 vaccine sues Trump administration - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNX3BlU1NUTUt2bW1NR1k0VnNvX2hLUkVROE12eWJxclNqUWNJVkFuMlpiRWpZU1lOSVRlc3FuZlFxWGozMklGS3Z2MVVOR2I5U1lES2FxcmxtRUFfTEZPT09CTlNueXF3bDBfSTBBdWgwOHhyTW1CT3BJZERJemlJRDI3OEV5eGV2NXVIak9oY0Y1WjM3dDZhcA?oc=5) |
 | Halted military aid for Ukraine may start flowing again - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQMENGZWlvdjRXcmpjWEtpcE9IOHhkaU43eHNhMVVvQ2s2YURHT2R2RzJ0VENSSDNfclFKMWk0V0RTOFJOR0hsYmUtN0psVFVuREl4MWdxaWp0VUlwdHlkWlBuZy1DUkhpVWNWeER2TzR3dFRJd3g0Nm5iYVR4ZVFBT3JiTFprZw?oc=5) |
 | Fugitive dad accused of killing 3 daughters may have been seen in Idaho - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPc2V3T1I2cGNMUmMwNWhXdVhHYWh4cnlMWi1DeTNEQkl1cnA2ZzEySy1fU3J6czVjUkQ1MkR6NnhJVGVoMU44a3ZKLUJhTnJoTFRhUXRiX0E1N1FVN1hlQVhMX1BJTnhiSTY5dnhzSXI4Tk1NYU51dHJsQ3VheVpwVGo5M21LakpEWjZEMNIBVkFVX3lxTE5KZk54UFZoSjBqVkk1LS1YQmE2Rm81UWR4b2ZqdUZEbDlLTzFBcGVKb1lrME9KTkhyYnlGdHpLR3JFLWJkZ0J3OWoyT19kWEYxY3l1cEFn?oc=5) |
-| Ted Cruz returned from Greece trip Sunday amid deadly floods - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNSWVPQkNWYzd0a1BBM2JCZF95Tl90enhpM3BxZGxJYkd3ZWxZM2FRcUo1MkVyaVpsMzVjTDg5SGVYZ2x6RV9nWDFxQ3d6bFpOUURKbVBxOXJZNk5xc0tucWMyakllREh3WDJmM3lTSjE2NGJJNmJnWXI3eURuUG5IMTI3d3JQV3Vp?oc=5) |
-| ‘Like nailing jello to a wall’: Judge scolds DOJ for shifting positions on Abrego deportation - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOcG5WLXVJcGtjQjJMdTdEZ1FJc21QZ3VqNUI3REhFODRCVmpURHZsN25IR1pXeGkyZVg1Vlc1V094QWxpVXhPcExEOHVRNlZrQnIzMzhhNFZKU2t5c1NnM0JDOXVtSXBieDJTLUt2d2lwSnZoS2x1N2RpcXA3RllsQnotNWliUnlpY2hUbEwxd0FocEs1?oc=5) |
+| Trump administration says it will deport Kilmar Abrego Garcia before his trial if he’s released from criminal custody - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFB3Yzk0RTJQOHhnQ3pnZXZWbS1QZ0VMVk9sRm5YdllRbFZFWHZ3RG5ielRIdTBwNDM1N0E2b1lqbVc2TkNRUTJldkh2MFZNQ0xFQkFObW9xYXdFX1VZSVNuSWpBaFNmcS1DRU83TW1ta1NNZGpkNXlEZVM1YXozZ9IBgwFBVV95cUxQbWZDczV2MkJHU2xreVFab0FIcEtITnpXZU9VU2x1MUh0X1NocDNGd0FoZlNjc1lJSi1yMk0xRVUzLTh4QXRmX19qS2lOcXpMaC1ncWluWHpHUDQ4NmRVbGJPQUtyWFdMODJ2NzVJb0FSNVcwYXM3SGtDTU5ubHVVNk9VTQ?oc=5) |
+| Brics nations hit back at ‘emperor’ Donald Trump over tariff threats - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5hZXJvR3g3eDdfVk8wTWYtMjdWWGlQaUc0ZF9ObGFDS3NUXzVpNy1NVjhTbjh4bW9JdG1JanhlckdRU1ByUEM2Z3RJdWw4ckI5cEdGcXlkcEhTa2w1RnozazRKbHcxcExGQVVGSWx4TW4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
