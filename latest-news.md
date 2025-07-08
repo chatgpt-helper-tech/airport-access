@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月09日 03:52:20（北京时间）**
+🕒 更新时间：**2025年07月09日 04:01:24（北京时间）**
 
 ---
 
@@ -15,15 +15,15 @@
 | Diogo Jota's car was likely speeding before fatal crash, Spanish police say | [阅读全文](https://www.bbc.com/news/articles/cn4l1n45l1xo) |
 | Bayeux Tapestry to return to UK on loan after 900 years | [阅读全文](https://www.bbc.com/news/articles/c14ev1z6d5go) |
 | Southport murders one of UK's most egregious crimes, inquiry chairman says | [阅读全文](https://www.bbc.com/news/articles/cg5zmlvlrn4o) |
+| France and UK to stop small boats together, Macron says | [阅读全文](https://www.bbc.com/news/articles/cr4wdv69796o) |
 | Alcaraz masterclass ends Norrie's Wimbledon hopes | [阅读全文](https://www.bbc.com/sport/tennis/articles/ckg3d02j8xlo) |
 | Marseille firefighters 'waging war' on wildfire at city's edge, mayor says | [阅读全文](https://www.bbc.com/news/articles/cp8mz44j6n6o) |
-| Monzo fined £21m after customers faked PM and King's addresses | [阅读全文](https://www.bbc.com/news/articles/cqjqgxzz8gjo) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Texas flooding: death toll in Kerr county rises to 87, with total number of victims exceeding 100 – latest updates - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQSFhiblIxM1ZnLUdrM1pJd0NqMmlJUVVxT1lKUkxOVjRkaTNNNlRRc19IM1lKRVFNWmtaTHFXRTFmdzZ4VFBEWU1WUDBFTWJ2V3FtQm5ISU5uVnZFcFQyY3p5VnJBcDB4YUhWUmY2TUZoQUVZY3RYT0Jka3FMa21yai1VNzEyNWxwSG1GQlV0WXdvek1qTDVnT19Fa1JYT2J2VGUtSlpQYmtqRGl5WVpDbnFmbWptYXpMMWZrMk5R?oc=5) |
+| Texas flooding: at least 107 people have died as questions intensify over handling of disaster – as it happened - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQSFhiblIxM1ZnLUdrM1pJd0NqMmlJUVVxT1lKUkxOVjRkaTNNNlRRc19IM1lKRVFNWmtaTHFXRTFmdzZ4VFBEWU1WUDBFTWJ2V3FtQm5ISU5uVnZFcFQyY3p5VnJBcDB4YUhWUmY2TUZoQUVZY3RYT0Jka3FMa21yai1VNzEyNWxwSG1GQlV0WXdvek1qTDVnT19Fa1JYT2J2VGUtSlpQYmtqRGl5WVpDbnFmbWptYXpMMWZrMk5R?oc=5) |
 | Trump’s New Trade Threats Set Off Global Scramble to Avoid Tariffs - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQSkE1OUFRcjdyMVVUMkRUM3k3emxUTGZIekZBbFJKTXJndUxtOVRxTGY5Q3ByYXdReUY1SjBhMWtRR0NCeV9uSEo5Q09tRTR3aktGM2MtQkRsamE1Ny1ZTnM3QXpMMENyUVAwYUx5OWhoQVhqc21JanRyYk13TUZkcjRB?oc=5) |
 | TSA will no longer require all passengers to take shoes off at airport security checkpoints - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9kN1hCVlVUX3Z4V2xDdmkzbklCVTNiZTVTUXRkRzE3R1huQVBWYUlWaFhwTnQ5bUhDMXRzcGdHX1hYTjBRSkN6YkNrY2JCdWhacENpZjV4a0x4Y2JBanVGLW1yVENvVWd4YmpxQ1RjcTlmQ2JGOEYw0gF8QVVfeXFMT3BQN1Z5MmlvRnlDTy1vTjN1V1FlemUyaVFXQWhfNTJHZG1NYW5Wbmc2VU1rN2Y5dllYckRieHNVdU9NRXdzZFI1TDZHcFAwdUlwMU9id2tqWi12ekg5QVVPN1NKb0Q0a3NLMnV0Wnk2ZldMMkNpdVRpWjlWWQ?oc=5) |
 | Trump says U.S. will resume sending weapons to Ukraine after pausing last week - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPOTlnUDZwY185b2M1eXdXeEhQbU5pNUN1cThaUjFFcDF4bjJoQmFoRHVOVWpOQ2Y0UEMybnRNTnU5MUtaRG9pekFBRzR6M0hLY016NlZuanJ4ZzNxRk5aRlBoZXJHSmhJZ0xXSzFTQkR1OWN6djJBXzR2TWEyZC1RMFNWc0pRc0kwMnhSbEZlNA?oc=5) |
