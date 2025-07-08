@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月09日 00:40:04（北京时间）**
+🕒 更新时间：**2025年07月09日 00:52:23（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Gregg Wallace sacked from MasterChef as 50 more people make claims | [阅读全文](https://www.bbc.com/news/articles/cewgz0qw77lo) |
+| Gregg Wallace sacked from MasterChef as 50 more people make claims to BBC News | [阅读全文](https://www.bbc.com/news/articles/cewgz0qw77lo) |
 | Post Office scandal had 'disastrous' impact on victims, official inquiry says | [阅读全文](https://www.bbc.com/news/articles/cz9k4lvg77lo) |
 | Three men guilty of arson attack on London warehouse on behalf of Russian mercenary group | [阅读全文](https://www.bbc.com/news/articles/cx2k37x91vlo) |
 | Diogo Jota's car was likely speeding before fatal crash, Spanish police say | [阅读全文](https://www.bbc.com/news/articles/cn4l1n45l1xo) |
@@ -31,7 +31,7 @@
 | TSA to end shoes-off policy for airport security screening - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQdVRrRl9kZmlBcXBEVTJfSHBkemdZQm1SNWdMY3V3Z1dtX0lQQmdPNDZ3aEVZT3FlMmN6eERnVlJqa0Rfdk9tWVZMTXAxWmNURW9UdXAyQUVfSkh3Y3EzaGZBSEhibXZ4cHVOelQzVmlFUUdyb1pJem52VkZuUDhEdm1zNzNUdWd4T1VQeVZTTlEwR0JBaU0tMHdSOErSAaIBQVVfeXFMTkNITld2M2RibWpxMDAyLTM5YlVaZTNVdlBwVjFJLVV1Ulp4WnVoTTBCWGR6ejdGdkxXOHdhUTVXd052WU1EZ2gyY3VudlVGM1lIYjF6VklXVHRFcUdXclBGdDZoV055UW5WSGlPdWdJa3U1SjVBYnFoMVBTN2lmUWRSSUtoT1FRcmRQM1FTTFcwM1EwakNHYWlwUjg1Q0NRWE9B?oc=5) |
 | Troops and federal agents briefly descend on L.A.'s MacArthur Park in largely immigrant neighborhood - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPMGg1TkI2bTFPbHZST3dCMFBMc2llWk9UVlVuek5neDM1aTJiLW9HY2lrMGVWU3VIRjVHWkJjMUlEMWxTMGN1Vzk1aXBzQ3pqLVdCZ2xycUZPY3V6Y0k3dktQSHQ4X1pVY0NpTVl6Y3R1Yy10ZUxTTWlfcmg2NGNsUkR1ZXdObUdTOThReHhYQWJsa2NQRUl3SHZtcUtFZndoWEYxa1VtYlFHanlKcmc5WWlOSHpLWUdYVEHSAVZBVV95cUxQYy03aU5QbWd5U3NtajBaY2E3Z1J4dk1zTUl1MUJTYUxWcjVKc2ZOVGJ4dEVnWXdjOWpaZVZZWjVsWmhDTVdJWmdHSW40QkFsc3h3WWlNZw?oc=5) |
 | Mass dismissals of Education Department civil rights complaints prompt concern from former officials - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi2AFBVV95cUxNdWg5NlhaRnhUMHdkTXdRWlNkNXJhdjhpMnpaUmFzVHBkOXd4MlhDQUlUTFU5ZXJ2aWo2V3VUTUVuZjM0QVp3ZGdhUmZKNWhKMXUzMDVuTG1RQlVxeUgzYzBNdWI3Q3pEVWNPRV81NDhONnVkR0tJWURuSmEyc0ctQUhMeG53azVEYzRoMXhETmNhdEE2MEtZRE0tT3dFRWZqRHlPVWJCR0JQVnRhM3prRERXeDVUT3hhbUJjbDg4YzlfTm4tMlZoRGJDNXhRS3FFbDNaMndERVk?oc=5) |
-| Elon Musk's Trump fallout poses deepening risks to Tesla, SpaceX - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFBvWEJaSXJISDJLSkhSSnFtaFQwSlFEOWQ1NTg5MHd2TzRhZi0wZ1ZoYVZIVE9lYVV6Y2dobDBhdDVIdXNFSUlFLWhWZXA4bUNoNGV1NlNLTmNRVjQzS0dHN0FJS1J5cUd6ZGhNeG92XzlZU1Z4MFFz?oc=5) |
+| Could Musk Really Create a Viable Third Party? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9EcHhVNDBkdkVDbHRaRWhFVFRael9xbWFMc2lvazQxVWpPNVZQc1ktQVU0ZGZyRlVjWS1KMzB1eTlsV0V5dFJOVDY2MGFoeTlGOXdzZWNVeEwzUDE2cFVqdWRQMXl0MlRQZFByN1I1c1VXYl9VMkNYVi0tRnhMdw?oc=5) |
 | Caltech Settles Case Accusing It of Misleading Students - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNOTE0QjBpZXRrRG4zOU1mR2k0U0NEdXVycGJ3ckFqWERIUTd0NEptNVNOOTUzZDlMbFJ2X1htTXZ6dHJMc21XODZ5c1R2NkhiUGQ1YWdOY2h1UFh6VnJmX19nX1k3U08tcUJTYjFUalNTNlZxRTV6dGdMak9qUUg4LWItMlpFRlZaTmc?oc=5) |
 
 ---
