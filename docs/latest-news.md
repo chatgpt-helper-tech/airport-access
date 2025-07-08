@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月08日 12:54:00（北京时间）**
+🕒 更新时间：**2025年07月08日 13:01:20（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | More than 100 killed in Texas floods, with 11 still missing from Camp Mystic - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFAzVHVPSWJBZ1VibFpqQ1NQOUQ1UlQ5Qi1NdTRZLTlweXdpT3VPeXBTdW1DQ3JNbVVfejBEZFFSSHk1YWxldVpaVjlLdmpoWlhKS21mTA?oc=5) |
-| Trump announces new tariffs of up to 40% on a growing number of countries - CNN | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9rZXJVTnFVWVplQnBiYWpYeXUwelRsRDNodi1obkE1RmwxTkdPWFhhLUNpdURkMWExb01sV2NJT2hCRjhoT0FCQUl6MldHMElMZjdfM0JBNG02ajFGRE9vZ3lpb1FYeXd2YWZZTA?oc=5) |
+| Trump announces new tariffs of up to 40% on a growing number of countries - CNN | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9rZXJVTnFVWVplQnBiYWpYeXUwelRsRDNodi1obkE1RmwxTkdPWFhhLUNpdURkMWExb01sV2NJT2hCRjhoT0FCQUl6MldHMElMZjdfM0JBNG02ajFGRE9vZ3lpb1FYeXd2YWZZTNIBckFVX3lxTE5rRkEyb01DaklBeDRaWHVVaGhtMnNSZHlZVjJ0YkM3Qmp0aG1mQUozc2hsZEFHNTJHLW8yOW5aQUo3d3lFT2pkMnA3dS1va1RiSEp0NGlGVG9tVm4xR3htZWNoR3lDd0NqR29nUXdNVkFadw?oc=5) |
 | Statement by Chief Pentagon Spokesman Sean Parnell on Ukraine Military Aid - U.S. Department of Defense (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxOWjlubTY3UGVkV2M0TWlYVlBfU2hjMWlWT2o5Z0tmRzJBNUc1bXlEN1hKV3FvVXRSdTZiMjhFWWtTNWdydU1RcS1fdU1KSXY4aElqZk5OWHZrclhYcjEyb3VuMHlFLW93QnpzNnhmRkRFMUs1MEhtWUw2VmF3LTZQejNmYkViRGlpSkh5cnNLN3BmdUF2NjNFZ0djbDhZRkgwVUwyS0p3OFdEajVNSTh1YkRUZmVrZ3dpeWVZMG44TW4zaXd6RmlVVHd0aWpfM3E4MExr?oc=5) |
 | Trump Administration Acknowledges Lack of Evidence for Jeffrey Epstein ‘Client List’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQZzRrdXRQQk84UF91NFBvRkQwTFhXYnl4RjROZ1NFUVdPSHVwXzZoZDRLNFR2ajlkdkJWdk00OVQtVGM4R3dDMnJJMm9TTVkyYjA0dGlNcnlSWEhtVXRKNVdQUzd6cVJLaTFWY3k3bk5qNFBSTERWYUxicU5WQkN6RTFCWWhGUHYzUVhxRlExNVRPNGU4SjFwX3ZUVjhlcWl4ZXduSm1Lb0g4UVJE?oc=5) |
 | Troops and federal agents briefly descend on LA's MacArthur Park in largely immigrant neighborhood - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPanR3TjYxaDl0UW4wYWFjOV83dXVNdUREX0lfZHZ1Sk5ld0szY0FuNHBaNmVONHAxdGk0OTJRS1VWOGhjLUlRbTRJRU80Qi1pSm5KRDJJOVNwZTlVX1oweWFQM28wdzJlYXFTOU56TmUxTUhMcXlBVTZhOWlhdUk1cmZVdHpkSW53Sm9vQ25oR0Y4eEdPN2FoSVpQVDBZZEpXN1pUTjJR?oc=5) |
@@ -32,7 +32,7 @@
 | Trump and Musk feud escalates after Musk floats creating new political party - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNV3hsVkdfOVhaTU5pX29hU1F1OHdENl9HWWlmbWpLMnZNX0cxRjVQdjZIdEUwSUtuQ1pfX29qbnF5Q2dwS1dNSDBrbXpqVGNXYXJVTGMxb0JNQlFaR1k1WXJNaHgtSnRVbTBwYS14R2VEeTYwYXVQdVFhT09hRU1rUU1reE50MmhGV2lseGJIZGVJTmVhOFoxWi1COXpBYVFnOXpiTDVR0gGrAUFVX3lxTFBSZUpNQzlXcWppZ1pKT0RjdllWbFVFd2FOQjBGd0NrMjVlWTdPUDRZMDZ4dWU1eWlKamFfM2N5OWI2MlRSTTY1Y3E0bnJtU0JSdXRLNWRuTGNZX0JHWWtHTnRvaEY5aVJWTUc4WEY3UUxBd2lMRW1YT2MxdVlzRFE0QnJBQWZVdXlBV1EwZTN1dFpPVmVxVEdBczRMdGZreEEyVnhBcHBsY091Zw?oc=5) |
 | Judge temporarily blocks Trump administration from enforcing funding ban against Planned Parenthood - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE42aTZnem4yeERLSXhaQkphVjE2X25WOGNGbEM2VS1IZGhNZkpUV2xYYVhScG9DcXhCSDdDcUd1MlQyWExOQ0s3eUE5RExrOUs1WjNvV2EtcVlaZTlqZHdUWDY4dTd2UjhPbzVBTTYyU0NiRFJjYXpxTzZQTjExa1nSAYQBQVVfeXFMTnpmQlJGaVB5b1FIWTFDTVBKc0Mxb3BXQ0h6RjZXRy1SMmRnOEd3eWswR3I0Mld2T3g1UE52V3FZdmcxdHNQUXBmbFBHUk9hZ0Rud0ctT1lBLXhmQnBrQVFLb2pLc3lMRHR4c2NNczJVSnRGY1g0VU5LeHpLeVNsOE1sbkNf?oc=5) |
 | ‘Like nailing jello to a wall’: Judge scolds DOJ for shifting positions on Abrego deportation - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOcG5WLXVJcGtjQjJMdTdEZ1FJc21QZ3VqNUI3REhFODRCVmpURHZsN25IR1pXeGkyZVg1Vlc1V094QWxpVXhPcExEOHVRNlZrQnIzMzhhNFZKU2t5c1NnM0JDOXVtSXBieDJTLUt2d2lwSnZoS2x1N2RpcXA3RllsQnotNWliUnlpY2hUbEwxd0FocEs1?oc=5) |
-| Netanyahu meets Trump at White House as Israel, Hamas discuss ceasefire - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQNDdXUS1iTVhRM3ktOWQxODJpTF9fQkpzdlJWaFVTMFlKY0w3TDlReWZCd1VZY3ZZTGZVVjFONjVpRU1ndEhoRkpLSWoyeEpfdGZMQTBLRm9GYTBzamx2ZjBGX1N6azFRYm1MZWF0TGpSb3lvQkh3N2c3UWRtN29Xc1d6amQwS0N0RGttX3FmX0VMZm1kUXJkZjhtMWxsVVc2czhFbktmdWhtellnTmFKYXRPOWZjdGF5?oc=5) |
+| Trump says he thinks Hamas and Israel want a ceasefire deal in Gaza - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBvWVRWQk8yWkp6V1hNMjI0a21VLUF3eEdPQ2ptN0tCU2RqbUxYMFFtaFNDbTZ6T1g3OWpGbmdiR2JRRDVVWTBOT1IzUW5VWFhPVW9ieTFYSk5vcFh3UUJFZ0NoVXRaMGdOdlpjT3VZVnZwS2E3MDc3MnRkTQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
