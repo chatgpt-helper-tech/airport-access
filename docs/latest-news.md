@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月08日 12:26:28（北京时间）**
+🕒 更新时间：**2025年07月08日 12:39:51（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Fire that threatened hundreds of Laguna Beach homes possibly sparked by fireworks - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOeFVwNDRucWUxUndzVjRqcU1qYTREYmczVHA2RlRtcDB4b2JSbE91UFphQjNmb09GVS1ORkJ2dFE5Y1dkcjhKQUJIU1NweU1NdEVaYjRVbTVKZnF6Q045bW1sZFl2S20xRzJTbXNJVEk1T0JBY1Fyb3ItRnkwU2JuV0tVTm1ucUtoWXdBN3ZOakxhZjFhWUhJa202dkNyTVVUZnl4UUxzUDdiNmU2WkJmV2pBRlFBYXp0ZlcxVE5R?oc=5) |
 | TSA to end shoes-off policy for airport security screening - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQdVRrRl9kZmlBcXBEVTJfSHBkemdZQm1SNWdMY3V3Z1dtX0lQQmdPNDZ3aEVZT3FlMmN6eERnVlJqa0Rfdk9tWVZMTXAxWmNURW9UdXAyQUVfSkh3Y3EzaGZBSEhibXZ4cHVOelQzVmlFUUdyb1pJem52VkZuUDhEdm1zNzNUdWd4T1VQeVZTTlEwR0JBaU0tMHdSOErSAaIBQVVfeXFMTkNITld2M2RibWpxMDAyLTM5YlVaZTNVdlBwVjFJLVV1Ulp4WnVoTTBCWGR6ejdGdkxXOHdhUTVXd052WU1EZ2gyY3VudlVGM1lIYjF6VklXVHRFcUdXclBGdDZoV055UW5WSGlPdWdJa3U1SjVBYnFoMVBTN2lmUWRSSUtoT1FRcmRQM1FTTFcwM1EwakNHYWlwUjg1Q0NRWE9B?oc=5) |
 | Cruz came back ‘as fast as humanly possible’ from Greece vacation after floods hit Texas, his office says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNZXB6bktQaTEtbEJPMlJ3Y3llR2NmZXFvSHp0c2R2RFRyOG1hU05VRnMzLTU5RnYxcjJlMlVJSUFsd21EeDhZczVEZEhZRWZsdmdtcHJQMjBic2VBTnZ6YnlMSUw4bWFqdkhURDhiNlhUMllWUnBkSDR6cEtPaWtMeVNJNNIBiAFBVV95cUxQQkwySW1sa29qSVJSYjE0dEROU0RBRS1ENDZxb2Z2RFNoQmZNRFBwMmpjM09XXzBRZjVpX0Qza3ROWjZNQmN1TlhmSW45OFdJeUVCZmJ1RzlVTVNtOHc3UDVLb1RjZ1pRYWNrbVFXTFVvODByem5nYUxxakh5aDFBWHNRaHdFT29q?oc=5) |
-| It’s Hard to Create a Third Party, Even for Elon Musk - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9EcHhVNDBkdkVDbHRaRWhFVFRael9xbWFMc2lvazQxVWpPNVZQc1ktQVU0ZGZyRlVjWS1KMzB1eTlsV0V5dFJOVDY2MGFoeTlGOXdzZWNVeEwzUDE2cFVqdWRQMXl0MlRQZFByN1I1c1VXYl9VMkNYVi0tRnhMdw?oc=5) |
 | Judge temporarily blocks Trump administration from enforcing funding ban against Planned Parenthood - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE42aTZnem4yeERLSXhaQkphVjE2X25WOGNGbEM2VS1IZGhNZkpUV2xYYVhScG9DcXhCSDdDcUd1MlQyWExOQ0s3eUE5RExrOUs1WjNvV2EtcVlaZTlqZHdUWDY4dTd2UjhPbzVBTTYyU0NiRFJjYXpxTzZQTjExa1nSAYQBQVVfeXFMTnpmQlJGaVB5b1FIWTFDTVBKc0Mxb3BXQ0h6RjZXRy1SMmRnOEd3eWswR3I0Mld2T3g1UE52V3FZdmcxdHNQUXBmbFBHUk9hZ0Rud0ctT1lBLXhmQnBrQVFLb2pLc3lMRHR4c2NNczJVSnRGY1g0VU5LeHpLeVNsOE1sbkNf?oc=5) |
+| Tesla Stock Dives as Elon Musk Plans New Political Party - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOclRINkFVY3VZNmg2dnhkNWl4QThINDBUVkJKb0U5WXBBWmdyUWVDeUZPRW9iQ2ZUTG5Uejl3TTNVMXlRT2VHVUxyaV9ZSWg5RTF0bFJZVlFWZTNWWFJvc3hzTkxHN1ltamZWZkVLcUZTSWQ1WUVqM2Q4ajRpdm85ZmlET001MVpZQ01YWQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
