@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月08日 16:01:28（北京时间）**
+🕒 更新时间：**2025年07月08日 16:13:08（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | Trump Administration Acknowledges Lack of Evidence for Jeffrey Epstein ‘Client List’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQZzRrdXRQQk84UF91NFBvRkQwTFhXYnl4RjROZ1NFUVdPSHVwXzZoZDRLNFR2ajlkdkJWdk00OVQtVGM4R3dDMnJJMm9TTVkyYjA0dGlNcnlSWEhtVXRKNVdQUzd6cVJLaTFWY3k3bk5qNFBSTERWYUxicU5WQkN6RTFCWWhGUHYzUVhxRlExNVRPNGU4SjFwX3ZUVjhlcWl4ZXduSm1Lb0g4UVJE?oc=5) |
 | Troops and federal agents briefly descend on Los Angeles’ MacArthur Park in largely immigrant neighborhood - PBS | [阅读全文](https://news.google.com/rss/articles/CBMi2wFBVV95cUxQQ3JRemVxc2JnSDlFX2Rsc3RrajRKYW16bUxFSi1JU2Qyc1hXUTUwSHhnN1FjLXFBT0pLcGhJZEdheXVzNjQyaGJ1emFGNjQ0OFVIam1QdGJPdUxhNmtRQmNMVXdNc0xFRjVKbWRuelB5ZEZ4eURudnJ3YUVGVkxCaHlObVg0VXNMa1B2dTU3OXpSaEpuNmNvdTlfRHdVS1Y3Mm5VZ1U1NkM2SU1XeXIxVmZiVGJYTDdRWEFpOFNGM1BFc1NoMkQ2SXBnS2xkTUUtRjFieUQ0MUlkZEXSAeABQVVfeXFMTWJmSW1SNzVPY1Z2VloyN0xhZE0zSzlvcVE4Yk52UERWaFEtX09GV09uZnRxYUJtazg5OVo3U29GMG1VYm9RUmhKRFkxalpaeHoyRGxPS1R3LXczYzFzc0llNU9fanExZXQ2NGotQkFZeDdMcFZUd0Y4bzJDUXlHNG41QUtCS0pEd2M1NGRRcEk0cWNJc0ZkTWZ6YU9Mb1JSOUFmenU1TmVJb1FvTGJxWUVKMU1yS0s4cXdVbWd1OUpxeG1HRC05SlcxZElfRXlLUkVMQ1ZaeDV6RVEzOVBlTUM?oc=5) |
 | Ted Cruz ensured Trump spending bill slashed weather forecasting funding - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQMDQxYTZrRi1vUGNDLXpVUEZfdGlXUjRfWFB1TGtRYnBCamZEcGlKT3I5enp2NV80eDR4dnRqQzdNR2dsX092eUh1UnNhRVVYaDRaaS1RSnJtM2VzdXVoejNWLXRHNUVXVTRaenJ2c09LcmU4YmVRT3hFQmFCZnFNMXBFODBYWVZCQnRNeFdCd2Q?oc=5) |
-| Planned Parenthood wins freeze on "defund" provision - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBsWXRraGZMSXI0anRLck96MHdQQ3E4Y1Rqc0Q3bkxBcXBuZ0lDUUpxT2RqcHVKZkEteU5OSU52TUlUbTUyZ1p4OGlVd0t0NzJaUjBNbDc2X2JUT3lKRElMMTc4dEVWeVJhbkVMLVhRcWljdmpaSmlxX3k5UUhBZw?oc=5) |
+| Judge temporarily blocks Trump administration from enforcing funding ban against Planned Parenthood - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE42aTZnem4yeERLSXhaQkphVjE2X25WOGNGbEM2VS1IZGhNZkpUV2xYYVhScG9DcXhCSDdDcUd1MlQyWExOQ0s3eUE5RExrOUs1WjNvV2EtcVlaZTlqZHdUWDY4dTd2UjhPbzVBTTYyU0NiRFJjYXpxTzZQTjExa1nSAYQBQVVfeXFMTnpmQlJGaVB5b1FIWTFDTVBKc0Mxb3BXQ0h6RjZXRy1SMmRnOEd3eWswR3I0Mld2T3g1UE52V3FZdmcxdHNQUXBmbFBHUk9hZ0Rud0ctT1lBLXhmQnBrQVFLb2pLc3lMRHR4c2NNczJVSnRGY1g0VU5LeHpLeVNsOE1sbkNf?oc=5) |
 | Tesla Stock Dives as Elon Musk Plans New Political Party - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOclRINkFVY3VZNmg2dnhkNWl4QThINDBUVkJKb0U5WXBBWmdyUWVDeUZPRW9iQ2ZUTG5Uejl3TTNVMXlRT2VHVUxyaV9ZSWg5RTF0bFJZVlFWZTNWWFJvc3hzTkxHN1ltamZWZkVLcUZTSWQ1WUVqM2Q4ajRpdm85ZmlET001MVpZQ01YWQ?oc=5) |
 | Israeli PM Netanyahu nominates Trump for Nobel Peace Prize - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOWEw1YVhKdUVBRXlaSkxYaXd1VWhPS3RVMUIybjV4RHg4TWlUVUllT3lkdE03M1BLSmZnUm8tajMzRlhvTmlvM19PT21YMGJ6RjFZYnBHaHR4Qkl2aUJpeTFIcGUyS1dUdDZoVTFvWnR6Rk9pR2d3TlRsYng1Rnd6UXhGSWd5aFcxa1F1Qg?oc=5) |
 
