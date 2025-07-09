@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月09日 23:02:00（北京时间）**
+🕒 更新时间：**2025年07月09日 23:13:44（北京时间）**
 
 ---
 
@@ -8,6 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Seven-year-old Southport survivor fought to save others, mum tells inquiry | [阅读全文](https://www.bbc.com/news/articles/ce83r3jjzjeo) |
+| Starmer refuses to rule out freeze on tax thresholds | [阅读全文](https://www.bbc.com/news/articles/cvg1p1pwxn6o) |
+| Blood scandal victims harmed further by compensation delays, inquiry chair says | [阅读全文](https://www.bbc.com/news/articles/cd78zgj0wwdo) |
+| Police preparing for Donald Trump to visit Scotland | [阅读全文](https://www.bbc.com/news/articles/cm20xvgmd8yo) |
+| Gregg Wallace warned by top barrister not to 'say women made it up' | [阅读全文](https://www.bbc.com/news/articles/ckg5knz7ve6o) |
+| 'You did it': How doctor realised mushroom cook was a killer | [阅读全文](https://www.bbc.com/news/articles/c74zwevy181o) |
+| Christian Horner sacked as team principal of F1's Red Bull | [阅读全文](https://www.bbc.com/sport/formula1/articles/cn5k6y1xyl3o) |
+| Penguin says it did 'all necessary due diligence' after The Salt Path accuracy claims | [阅读全文](https://www.bbc.com/news/articles/c89eqpk9pjvo) |
+| Man guilty of murdering 'Good Samaritan' after driving into wedding crowd | [阅读全文](https://www.bbc.com/news/articles/ckg3y89m70do) |
+| Linda Yaccarino departs as boss of Musk's X | [阅读全文](https://www.bbc.com/news/articles/cx2gy3j9xq6o) |
 
 ## 📰 Google News
 
@@ -22,7 +32,7 @@
 | Missing paddleboarder found dead during search of Maine pond was killed, police say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOUGV4MU1SQXpVNHlMZmZleTJncTlCUHdiYUhGbnNVazFRenlvbVVta1NWbW54WlBqdFBpbS1DTWgyZmlIeVQ0ai1qeU9qQ08tamRYRFphT3dka09mNTNpcXI1a05YNy1WNm9zeENMb0VNUXF2ZjFBSjJNcnZWcU02bTg3Y3VRTkg20gGOAUFVX3lxTE1XemVUWTFhbWJRaDhscWNsUmJ2LWI0c0NmaU5vQ1NsVkRlVkhKLUZNaFNqenpCYVpyR0NOaUQyeHNrWUUwYnROa3JQeFJLc0lLeDNqU1A5Q1JYbjE1NTNxVkVtazVvU2JZOEtSYkx4dWJYdnRwaVJjR05lczJ3WW5USzlYSjFKU3NjTEtLbnc?oc=5) |
 | ‘The strike is over’: Workers reach tentative deal with city of Philadelphia - WHYY | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE51OW5JQTNXd1luTDQtSUJsMEZGdWhjWUFucjdSenlOSmh3ME9TYW02aUx2MjlXSy1wOXZOdVc5RXZaS1N5YldJT1NFeV9razFxbU1BeEQtR1BxcjBEdTdKXzB0QlhvME9MOTdOdVRYcDJ0eTBaaV9IM1MwTmYwY00?oc=5) |
 | Trump and Bondi, Confronted Over Epstein Files, Tell Supporters to Move On - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1PLVpXZlF4NU5rU04taFhXdXkzV0ZlbFBHNzFWSlAwTkZkYVFXa21mXy1zR1JjM3VRdC1keUM3MnEyeTdiWURlUVBGamJYaGp1dFZsaXF2ZTF3Z0huTWJXb1hpWGdvaVpweXFtVnB2OHMyb0U?oc=5) |
-| Cruz pushed for NOAA cuts days before Texas flooding - Salon.com | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQbWx1TlpaVEV0azlqZk1zOHkyY2ZTTmxrb2EzcFRSdGduRjZBNmg4UHJNeUJWR0lPVU5YdU1LbHRObDhZQ0s2WmR1bXVCcG1xVElSWW9ZaW9FY2llZ1RZclBMSzlIN19EcFIwWDZUbmpBUnU4SlgtbC1mRXZncTUzaHQ1Nl9ZMnBGNmVGN1Jxdw?oc=5) |
+| European Union in limbo as Washington keeps it waiting on a trade agreement - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQZ3MyQ3dadEZZRmtYMXNya0pKcjRpZWR5MDJZZ20xV215Vk5lcEpzTC1mSDkxVGh5djhNNThBdmZQZkJaZVFndHo3VTdBU0owYVpkcjg0Y2pFM0U4UFpld25GSE9faWJUbndmdnlyd3d3RFc2RTk5UkZJdGsxYS1DVG1xY2pQRWxvek9jRUc5WHRMMThhM1FKSjcwZ3JKeXlaSUVB0gGoAUFVX3lxTE1SYUcwMUVtT2IwRk82UE9QMGM4SDBrbFNFTVRDZlVkYlVYQi1YX1haZzNJZVA1dGIweVZwTk9CZ0ZEMUI3MmhpN2FqQ0lQS21xdzU4YjVDRFpBRktBWDFZRDdOcTdGSUFDenRiTDQ1NDFGNUxHVzBtZjI3Q0ptLXliLVpxenIxcWZlWkJYdFUybXVTLTJsXzBFR0JWdXRRSmlWNWh6ZENlVQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
