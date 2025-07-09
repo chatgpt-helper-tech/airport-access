@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月09日 14:26:40（北京时间）**
+🕒 更新时间：**2025年07月09日 14:40:14（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Trump delays tariffs as the rest of the world plays hardball - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1BVkxEajZqaVFXMEZsMHF3Q2hHQjUyWDE2Q21ibWxBX2pGVWlFRkNNN01TNVlVcUhaQTY3aEoyQ3E0MF93Z1RYdDRQUFdrRnZqRFBKQW5BYjk5Z9IBX0FVX3lxTE5EenJYZHBJemlHYXJfMGRlRkpMR0RHazlzRGVvcjh5TUpiSnNwRDlSRDZZOS1QVTI0Y2xmVlQzZ3loUVRpZDA4VVpSVkV0WFE2NVVoV050X0V2NUFkbnBB?oc=5) |
 | Confronted Over Epstein Files, Trump and Bondi Tell Supporters to Move On - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1PLVpXZlF4NU5rU04taFhXdXkzV0ZlbFBHNzFWSlAwTkZkYVFXa21mXy1zR1JjM3VRdC1keUM3MnEyeTdiWURlUVBGamJYaGp1dFZsaXF2ZTF3Z0huTWJXb1hpWGdvaVpweXFtVnB2OHMyb0U?oc=5) |
 | No need to take off your shoes. TSA has a new screening policy already in effect at some airports - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxNVGJRMm82VVRfang1ajE5M2RleHpyZ3kxVlExZ2NneWk3MExZaWR6WW9HQ2hiTkE0VUcyN3lWZ3RVZzBMUlkxb3Q5TThzZmVPeXprX0xVSGtwMWdfM3lPNk9aUU03VUJ4bS1KU25MLU5vWVlJcGx4dk43Vm1JM1gtdUUzWUgzQ0MyOWUwMFRJM1d2d1dxM2toWWRSNTVfeGpBYWxTUmpYZkhlQkpDQXZvLWZEMEVlLXFhZjVxZTlQWHgwbDFJNV9HUTkwS2ZZcEVXcnlFcQ?oc=5) |
-| Trump says 50% tariff on copper imports is coming and threatens 200% on pharmaceuticals - CNN | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTFAzcG5POHVnU0xxd3pCanRJSTZtS3RrSUo3Tm5peVhBWmVJdGVwLXV0dmQ4eS10WkY5c1hnY1lKcVIxdWRyQWJxZi1aQkpla200UjREMGFBQ2tocTlxTGROYmZQcHdYakxoeWVj0gFwQVVfeXFMT3BPOTBkaGFoRk5jVVdMTzYwemp4UFpFcHBOVkhrMEtSRlFnQlFEc1UxN0p0UFNZNVYxQnFpal9UbENaNkFnZjkxd2RHQ1ZQUXMtSnlUb3RHTE51NGVsZFI5ODYyTHMwZWZvY0lHM3Jieg?oc=5) |
 | Trump, finally fed up with Putin, teases more Russian sanctions 'at my option' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNVFF0MnB3aUZzaHFpOVdxZERnTGNPVGZvbE5jbDlxMktWRGlLVkIwZmloaFVadFFrb2VKYUpOVmQ0dXk5SGlFVmNxYnhKMURyT2hZZ0Q4RjZjUUI3Wk9jb016Q2pIWjJjanhYSnNTdDFpbUxVcUxpc0MyN3RpallzVmY5WmM?oc=5) |
+| Trump says 50% tariff on copper imports is coming and threatens 200% on pharmaceuticals - CNN | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTFAzcG5POHVnU0xxd3pCanRJSTZtS3RrSUo3Tm5peVhBWmVJdGVwLXV0dmQ4eS10WkY5c1hnY1lKcVIxdWRyQWJxZi1aQkpla200UjREMGFBQ2tocTlxTGROYmZQcHdYakxoeWVj0gFwQVVfeXFMT3BPOTBkaGFoRk5jVVdMTzYwemp4UFpFcHBOVkhrMEtSRlFnQlFEc1UxN0p0UFNZNVYxQnFpal9UbENaNkFnZjkxd2RHQ1ZQUXMtSnlUb3RHTE51NGVsZFI5ODYyTHMwZWZvY0lHM3Jieg?oc=5) |
 | Mayor and Police Chiefs Let Corruption Fester at N.Y.P.D., Suits Charge - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNM2ZzXzdKcjlMb2YwUEJEa0RiNmtTQnRYVTFpNTNnTV94RE5fY0xtdGtib2pldXhGVUR6VmZXRFJEdEZhSVlWU3lQVjVCbVVlWU81YjV3NVk0aVVERHlSRmY2cTNQemhPT0tXaXgyUWhOcmV3VDRQTHZEX3VmSERfWlJ0VUlsQQ?oc=5) |
 | Federal judge dismisses lawsuit seeking to stop DOJ grant cancellations - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxObzVPTS1nR3Q0MXU2eFJtR3NLVlBEWk5hNWY2dHVMUUZCcmdiV0xZaGJSdjJDekozUjNvbG1MNnNtVjloUGJYbEdBVXptZTh3eDBOVk9seEhGUUlxeVVLaDhHazk4TmZuNjVnUUxrMVN1eGtvS0JyaHlaUldvdUVHX0NyZTV3RzAyTEU4X2dOa3k0WnNlVmQ2c0FBQTVQNDM4SVVXeE03OG5oU2xHMWJHTw?oc=5) |
 
