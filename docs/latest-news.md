@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月09日 22:40:35（北京时间）**
+🕒 更新时间：**2025年07月09日 22:52:38（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | 'You did it': How doctor realised mushroom cook was a killer | [阅读全文](https://www.bbc.com/news/articles/c74zwevy181o) |
 | Christian Horner sacked as team principal of F1's Red Bull | [阅读全文](https://www.bbc.com/sport/formula1/articles/cn5k6y1xyl3o) |
 | Penguin says it did 'all necessary due diligence' after The Salt Path accuracy claims | [阅读全文](https://www.bbc.com/news/articles/c89eqpk9pjvo) |
+| Man found guilty of 'Good Samaritan' murder | [阅读全文](https://www.bbc.com/news/articles/ckg3y89m70do) |
 | Ukraine suffers heaviest attack as Trump criticises Putin | [阅读全文](https://www.bbc.com/news/articles/c2k19q4j07zo) |
-| Son of couple held in Iran: 'They aren't spies, they're Mum and Dad' | [阅读全文](https://www.bbc.com/news/articles/cp867vdxe70o) |
 
 ## 📰 Google News
 
@@ -26,13 +26,13 @@
 | Texas’s Camp Mystic was ‘a place of joy’. Floods turned it into a site of great loss - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZ3JOVkVLME9xZTZ4VTk3dmdNbjVYTXp3bUxqclVFMEh6dGQwNlBLbnpsX3Q0SHVyY0ZHV0F4U3lueFdwektRRWlEdWdxR2tNZW5rUlJtQWVVZ1VyYW9TLUhYcHFWNVhCWmZFTnNya1djUWY4MHhqNERHTzRCWlh5eFpLaw?oc=5) |
 | Ukraine suffers heaviest attack as Trump criticises Putin - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5SZUJOTkhiNFVuZ1FXNUExeG02ZTVoT1lUa2FQOFNBTXYwX3hubkUyTVJzanpMZUV0Nm5yWUI5VmtMekNTSGJSV255ZThvaUNGdkFQWlNVX3VJd9IBX0FVX3lxTFBTc0FUM20wQUFpM2dYajJpVnVIenhpaDZTNDBSY0d4WEdqTTE0WWR1N2VWNGF3UFdzNktUMTFHamkySUw2SnZEeFA5MlZRVk5BLV9RSXBucjRUV29BWkQw?oc=5) |
 | Trump Got the Green Light to Fire Federal Workers. Now, They Wait. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQVHBCcTgtTkkwcVV5dUc3VTdkQU9mSjdGeU5YQkJkWmY1VnFmbGk1enQxTnFUVktIckxnYTZocXI4RmhqNVk0bzRtaXpoVEs2X3lJcld0QzJZWWpqdVpoUUJ2cFQxdzIzTDBHeEZ1dzhTTklFaklIUGdWd29md0VGd2w3S3FneG1K?oc=5) |
+| Texas is relying on FEMA. State leaders said it should be cut - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE41MDFLTE95VC1IWDc1SGRTUDF4Qi1DUkxpSHp4V2FqbmtQSlEzWjdmMWp6X0RPNy1qQXh0NU5ZdE8wQk5UZVJMcmIyWlVkUE9PTmE0d0FkajNjejNfNVEyc19CamVsMnRlS0dfbEZpcVVUei0tbWp4LVF3?oc=5) |
 | Trump tariffs raise the specter of sharper economic downturn for South Korea and Japan - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPbVZBOE1aS194d1FMMG40R3BsbU5PNG1yOVlocHRXRm9rQTl5U2NmUVFNQ0w4NFlvVURCOEVKSm5SZDJEV1pDUFZvVm9lU3hpVEFZSXBZcm1nMGloRjJ5YVlfdHEyUFhwX2wwTDNCbTNPR3ZEcFdyVVRtcEJiMmJLLWZieDUyZVZaN1JZTzZJVUw1VzJxTjkwY1o5ZjRjRVRZLUtYMlZweDdtS0nSAbABQVVfeXFMTS1LRUVfTWw1eWRhM0ZqMXIxUlR2cW9rdk5mZkZ2c3NLeGt0djB6QS1MQkFqSF95QmVsdDh4R1k2eF92SFRmTnVpRF9HRWhGbENROGRtZEpDTFZvSFhDMkxCcFVmSUtYeFUzemFJZGZoRFFsY1lMU2owUlhPejJIeWpWVzN2em9xZHFqemxwN1JsdTk2Y2xsYjQzOGpldWs0S2lNLTFjamkxODhSNENhT18?oc=5) |
-| Trump’s Top Aides Spread the Epstein Conspiracy. Now They Are Trying to Kill It. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOUFUwQXA2dlRncGxCTkRBLUpmNC1LQVZ5YXNmSHk0aVdHb19RUW02Qi1ETEhPTVlNQUt4YnVOYkFUUkJaQi0wUU5uVHFneFUtODhRNmVBaDNiTl9YSFoxbnhDeWNVQWlnU25VRldqekJTalNzNUJFVElRbE9IZFMybG1Ha0Y5aUdlcGlr?oc=5) |
 | 3 dead, including 2 children, in New Mexico flooding, local authorities say - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNODVOaU1HWEN6YkkxX3hLSDNlTU9UZktsdUJOWDVyT245a3Y4Q21NUy1USUE5OHNMQjdtX0JvUDBfNE1EU2VfUnhRYlZ2SUtWOVhhcFdJZGhSazl3eU8xa2xSaHBxakxWek1vdVBTTnZwOThvS0trMWZyTkdzdldnUHVQX2ZZOFlGbHZJ0gGQAUFVX3lxTE1zV3B1TDE5RDNZSVMxMEptZTNEVkpyRGE1VmJJbFlKS0tVenVhRVBMRVhwNnJ2WjhEWHJhUWFlQlRST2IzS2Z4dk5XSHM3WVY4QXhmeS1weW1UWVlXcmJVS2ZaWXplWHJvT1hJZ1RmSmxmWlNDazZaamJKb3FnUHZKZUw5TmE4NlhRNWh1NEtyeA?oc=5) |
 | Missing paddleboarder found dead during search of Maine pond was killed, police say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOUGV4MU1SQXpVNHlMZmZleTJncTlCUHdiYUhGbnNVazFRenlvbVVta1NWbW54WlBqdFBpbS1DTWgyZmlIeVQ0ai1qeU9qQ08tamRYRFphT3dka09mNTNpcXI1a05YNy1WNm9zeENMb0VNUXF2ZjFBSjJNcnZWcU02bTg3Y3VRTkg20gGOAUFVX3lxTE1XemVUWTFhbWJRaDhscWNsUmJ2LWI0c0NmaU5vQ1NsVkRlVkhKLUZNaFNqenpCYVpyR0NOaUQyeHNrWUUwYnROa3JQeFJLc0lLeDNqU1A5Q1JYbjE1NTNxVkVtazVvU2JZOEtSYkx4dWJYdnRwaVJjR05lczJ3WW5USzlYSjFKU3NjTEtLbnc?oc=5) |
-| Capitol agenda: Senators take aim at Trump’s rescissions - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxOR3hoODB5MlVfVklCZ0RlMmtGeW90NXZyV3Jna19kbUZaUFd4aUNlVkhjanM1bTZKcDR6MnRaRmxqdjdlT2RIWE9vSjF0SjRoSVpOREVuU0M4SGEzWHNEbUxoRVZTZXZ0dUY0bVI3MmRpR3hsQmplOHlnWk5WWGxCQmlGQzdWZE9IVVl4RnhuY0ctTUNuc3BQZnpBWXRaTmpRVGRBOEdYWkVrWTN2T2FoSVAwcTN2RjVQaU5HM2lnaldyWnpQZ0JPenYwUVdoTWZkOUFjLTRn?oc=5) |
 | ‘The strike is over’: Workers reach tentative deal with city of Philadelphia - WHYY | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE51OW5JQTNXd1luTDQtSUJsMEZGdWhjWUFucjdSenlOSmh3ME9TYW02aUx2MjlXSy1wOXZOdVc5RXZaS1N5YldJT1NFeV9razFxbU1BeEQtR1BxcjBEdTdKXzB0QlhvME9MOTdOdVRYcDJ0eTBaaV9IM1MwTmYwY00?oc=5) |
-| Trump’s Frustration With Putin Preceded Resumption of U.S. Weapons to Ukraine - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1nWlFfSGdXOVpkQ0lpZ1ZUbXJmaTltbGR4TzYzSlVMMXZnMGpJbk5GdGhnc0VQcXZEeUdDYmRkb0xEay1fRE1Zb3Q5bFZVTWM3ZGJES1hicVNUMlVvU2ExTjJUZVlob0lfTXZXWU9lWGxrUnVfZXdqR1pEMA?oc=5) |
+| Musk, MAGA torch Trump administration over Epstein investigation - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQT2FrcVBWdndhOExiVUplcER6R2l0bFd4UVNQdkZpS2pkQ0FJSkFzTGMtZmIwT1dkWWVaWlMzNkhKeFBYc0F2Qk9tcUFDRlktT0ZzQTFTNnFPZHI1NmxobDZSSzVRaFhPaVdPVlBqYVNCQ1kyTG9ZOWN1QmJGOGYtUC1vS2Izb3dubFZmWDB0bw?oc=5) |
+| Capitol agenda: Senators take aim at Trump’s rescissions - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxOR3hoODB5MlVfVklCZ0RlMmtGeW90NXZyV3Jna19kbUZaUFd4aUNlVkhjanM1bTZKcDR6MnRaRmxqdjdlT2RIWE9vSjF0SjRoSVpOREVuU0M4SGEzWHNEbUxoRVZTZXZ0dUY0bVI3MmRpR3hsQmplOHlnWk5WWGxCQmlGQzdWZE9IVVl4RnhuY0ctTUNuc3BQZnpBWXRaTmpRVGRBOEdYWkVrWTN2T2FoSVAwcTN2RjVQaU5HM2lnaldyWnpQZ0JPenYwUVdoTWZkOUFjLTRn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
