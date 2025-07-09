@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月09日 22:26:35（北京时间）**
+🕒 更新时间：**2025年07月09日 22:40:35（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Trump Got the Green Light to Fire Federal Workers. Now, They Wait. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQVHBCcTgtTkkwcVV5dUc3VTdkQU9mSjdGeU5YQkJkWmY1VnFmbGk1enQxTnFUVktIckxnYTZocXI4RmhqNVk0bzRtaXpoVEs2X3lJcld0QzJZWWpqdVpoUUJ2cFQxdzIzTDBHeEZ1dzhTTklFaklIUGdWd29md0VGd2w3S3FneG1K?oc=5) |
 | Confused about where things stand with Trump's tariffs? Here's a handy primer - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPemhMNkhrV1FYY2YzVk9XeXRBTmtwQTlrcG1MbXhkY3AtNHc3Z0ltbDhaSXZYTjlkekFGb3ZpSDF3WGxuSVJXZ3lyRUNKUlYtbkNRNm9qWWZOR1BJSmVhUEhYWlg5aTBCdHZRSmViZTBpaURpcE9TVC1GR2VWZ05qN0g1cTMzUQ?oc=5) |
 | McConnell rips Pentagon’s ‘isolationists and restrainers’ after Trump restarts Ukraine aid - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPZXE0LWJ2ZTJtUHo1ei1sa2g2SHBOY21RWGNiR2dNTElSNUw2NWFkQlp1QmdBQ0NvQ0x1aFM2ckEyZklUVlBURzJES205SVFyU2xQWlphYkVzeHNDWjE0MlpsNDhvbUVmc2tmeWR4SUhIcGhzaDQ1aHdTV1NzNmh2NkQ5RDF5VzJMcU9xbGxYdS12cUJGb3VPYU5CLW9vWmh6U0hrZzJn?oc=5) |
-| Strike ends after Philadelphia leaders, union officials reach a deal - WHYY | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE51OW5JQTNXd1luTDQtSUJsMEZGdWhjWUFucjdSenlOSmh3ME9TYW02aUx2MjlXSy1wOXZOdVc5RXZaS1N5YldJT1NFeV9razFxbU1BeEQtR1BxcjBEdTdKXzB0QlhvME9MOTdOdVRYcDJ0eTBaaV9IM1MwTmYwY00?oc=5) |
+| ‘The strike is over’: Workers reach tentative deal with city of Philadelphia - WHYY | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE51OW5JQTNXd1luTDQtSUJsMEZGdWhjWUFucjdSenlOSmh3ME9TYW02aUx2MjlXSy1wOXZOdVc5RXZaS1N5YldJT1NFeV9razFxbU1BeEQtR1BxcjBEdTdKXzB0QlhvME9MOTdOdVRYcDJ0eTBaaV9IM1MwTmYwY00?oc=5) |
 | 3 dead, including 2 children, in New Mexico flooding, local authorities say - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNODVOaU1HWEN6YkkxX3hLSDNlTU9UZktsdUJOWDVyT245a3Y4Q21NUy1USUE5OHNMQjdtX0JvUDBfNE1EU2VfUnhRYlZ2SUtWOVhhcFdJZGhSazl3eU8xa2xSaHBxakxWek1vdVBTTnZwOThvS0trMWZyTkdzdldnUHVQX2ZZOFlGbHZJ0gGQAUFVX3lxTE1zV3B1TDE5RDNZSVMxMEptZTNEVkpyRGE1VmJJbFlKS0tVenVhRVBMRVhwNnJ2WjhEWHJhUWFlQlRST2IzS2Z4dk5XSHM3WVY4QXhmeS1weW1UWVlXcmJVS2ZaWXplWHJvT1hJZ1RmSmxmWlNDazZaamJKb3FnUHZKZUw5TmE4NlhRNWh1NEtyeA?oc=5) |
+| Missing paddleboarder found dead during search of Maine pond was killed, police say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOUGV4MU1SQXpVNHlMZmZleTJncTlCUHdiYUhGbnNVazFRenlvbVVta1NWbW54WlBqdFBpbS1DTWgyZmlIeVQ0ai1qeU9qQ08tamRYRFphT3dka09mNTNpcXI1a05YNy1WNm9zeENMb0VNUXF2ZjFBSjJNcnZWcU02bTg3Y3VRTkg20gGOAUFVX3lxTE1XemVUWTFhbWJRaDhscWNsUmJ2LWI0c0NmaU5vQ1NsVkRlVkhKLUZNaFNqenpCYVpyR0NOaUQyeHNrWUUwYnROa3JQeFJLc0lLeDNqU1A5Q1JYbjE1NTNxVkVtazVvU2JZOEtSYkx4dWJYdnRwaVJjR05lczJ3WW5USzlYSjFKU3NjTEtLbnc?oc=5) |
 | Capitol agenda: Senators take aim at Trump’s rescissions - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxOR3hoODB5MlVfVklCZ0RlMmtGeW90NXZyV3Jna19kbUZaUFd4aUNlVkhjanM1bTZKcDR6MnRaRmxqdjdlT2RIWE9vSjF0SjRoSVpOREVuU0M4SGEzWHNEbUxoRVZTZXZ0dUY0bVI3MmRpR3hsQmplOHlnWk5WWGxCQmlGQzdWZE9IVVl4RnhuY0ctTUNuc3BQZnpBWXRaTmpRVGRBOEdYWkVrWTN2T2FoSVAwcTN2RjVQaU5HM2lnaldyWnpQZ0JPenYwUVdoTWZkOUFjLTRn?oc=5) |
 | Trump and Bondi, Confronted Over Epstein Files, Tell Supporters to Move On - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1PLVpXZlF4NU5rU04taFhXdXkzV0ZlbFBHNzFWSlAwTkZkYVFXa21mXy1zR1JjM3VRdC1keUM3MnEyeTdiWURlUVBGamJYaGp1dFZsaXF2ZTF3Z0huTWJXb1hpWGdvaVpweXFtVnB2OHMyb0U?oc=5) |
-| Impostor uses AI to impersonate Rubio and contact foreign and U.S. officials - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPZ04tVWZIZ2NJakFhS2s5a3JrcXREc3hpUkFtNlRPcVB4dFhtT2xtSmtobFkxVV9zd2NMelI5UjF0UURHY29mdGJabU5oMXVCUmh1M0lUS3czaEZLQXFfTERPQ040MVkxZ19rRUxNMHJLSDVSMG9Ycl8yWnNlV1NnSHJUQnVrTFQ0ajB6OFZMZE43Sl9BdjFN?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
