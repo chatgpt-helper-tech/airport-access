@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月10日 05:40:21（北京时间）**
+🕒 更新时间：**2025年07月10日 05:52:47（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump sends out tariff letters to 7 more countries but he avoids major US trade partners - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNeURMN1ltRF9UYTBWTlVRMFhzMjdXYzhJMWR2UDVmcndNdEpXcnlVX0RHR0NlNmk3aWZ5T2JpSVB0cDN2UTZCQWw1X2c3U3djWkEyb1lrbEhxWW14MkwwNTQwcVRGR19VLUoxSGlSRk9EVHRsMjBqazRPaVhMMDNRbzZPUTlkVnJqeHdKcXhrSkJjYXY5OGZ2Wlg2TG95TEFuTkE?oc=5) |
 | Families Wait for Word of Missing as Texas Floods Death Toll Nears 120 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1OM05jRVBHcnF1MGdMS3lWZE5WcThpc1RPQ055Wk1UWXpXYkJwZ0xmQVI1Z25FS1hxSEJsR3pGM003ZDE5LTlQR1RFOHVHdV9qRGVWODNKbDd0ME1wczFWWTJDU1ZqcUNJU0ltVExJajE3NlRtT0NoYTZB?oc=5) |
+| Trump sends out tariff letters to 7 more countries but he avoids major US trade partners - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNeURMN1ltRF9UYTBWTlVRMFhzMjdXYzhJMWR2UDVmcndNdEpXcnlVX0RHR0NlNmk3aWZ5T2JpSVB0cDN2UTZCQWw1X2c3U3djWkEyb1lrbEhxWW14MkwwNTQwcVRGR19VLUoxSGlSRk9EVHRsMjBqazRPaVhMMDNRbzZPUTlkVnJqeHdKcXhrSkJjYXY5OGZ2Wlg2TG95TEFuTkE?oc=5) |
 | Supreme Court blocks part of Florida’s immigration law - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQMlVxRkltSFJMZFY3WTNzYUd1UlZMTzMwZXlNT0hMOUhOWVRmeFREckJ6c2JKNFNUTEkyeWhackwwWmpERXFlOG9SS2FVU2x6RTN6OG1DcG9tVVRqWmFHbDctYVRXb0VfN1hVUVh0MVM2WVZHZGQxQnVHWldfNk95QVUweTg?oc=5) |
 | Ukraine suffers heaviest attack as Trump criticises Putin - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5SZUJOTkhiNFVuZ1FXNUExeG02ZTVoT1lUa2FQOFNBTXYwX3hubkUyTVJzanpMZUV0Nm5yWUI5VmtMekNTSGJSV255ZThvaUNGdkFQWlNVX3VJd9IBX0FVX3lxTFBTc0FUM20wQUFpM2dYajJpVnVIenhpaDZTNDBSY0d4WEdqTTE0WWR1N2VWNGF3UFdzNktUMTFHamkySUw2SnZEeFA5MlZRVk5BLV9RSXBucjRUV29BWkQw?oc=5) |
 | Governor Abbott Announces Special Session Agenda - Office of the Texas Governor (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOVTRLQ1dTajdrVFVRN0xnZG5fdTZBX25Qc1gwTVRiSVVBTlE5V05OcDN5VW5XbU92WkJUcmltdWR6RlZCcFBEa2RsdWdvZURCSHNnNS1Wck1ZYThnaVhmSWxQb1FHN1NqT3NrbzVXTy1OT2d1dFQ4cHltdkRmRW9ZekpseHVBQ2g5?oc=5) |
