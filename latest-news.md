@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月09日 19:14:08（北京时间）**
+🕒 更新时间：**2025年07月09日 19:27:02（北京时间）**
 
 ---
 
@@ -23,6 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Satellite images show devastation at flood-hit Texas summer camp - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE9xdWRUMGpieTF6Ykt2bjJPSEZQSEFTUU41TVl0eTlSdTdRdi00NlJ4dHp6dmQ0d28wVkM4UXZCQmVBSlg4WlpwS2tidU9sYnNoVGZxSg?oc=5) |
+| Supreme Court allows Trump to launch mass layoff and restructuring plans - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOcmNGU0VIX2xHZW5RQlBTWHVNMFVRYndaWW9vMzlFam5QVTZZOFk0c1BqV3hPbVRGOUJZczV1ZXpzN1AxMm92VTI0Y25WZi1oNlhQeEVabHloUXhvdUlUOUVHRHVxTUx4WERMaHRiazk3ZFNXLVp2YjJjRDYzMmhhZ2pHNURNdFZqZ2xlT3JpSVRSTVNsbmRkUThZYmljVnFXQWc?oc=5) |
+| Multiple water rescues, home swept away as flash flood emergency declared in New Mexico - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNdFJCaDBjamU4VXAxUlE3WXFEeG54b21JeVhjRWYwNWZ2X1IyOGxJZWFxU1dLSE1FU0lfbUJoM2RNZ1FMMnM1Nm1OVUFsRWhxOFRscXdMYm5YajB0U1J3cWk0S0Q3NFkzaXpSODk1ZnRQX210OG5XT2EtR01CaEdxUDVPaw?oc=5) |
+| Confused about where things stand with Trump's tariffs? Here's a handy primer - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPemhMNkhrV1FYY2YzVk9XeXRBTmtwQTlrcG1MbXhkY3AtNHc3Z0ltbDhaSXZYTjlkekFGb3ZpSDF3WGxuSVJXZ3lyRUNKUlYtbkNRNm9qWWZOR1BJSmVhUEhYWlg5aTBCdHZRSmViZTBpaURpcE9TVC1GR2VWZ05qN0g1cTMzUQ?oc=5) |
+| Russia launches largest drone attack on Ukraine as Kyiv pushes US for air defense aid - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQWTl6NDk1UEZ5RlJYWU5QM3dmWlJ5Y0JiS3VOWjhrdFJXVGcxOFdEdTFVUm1VY05NZnBKR0I4aVFSdDU3SU5yN3RDWS11MTlveWg4ZzZtTkNsczN2d3JYa3ZRdnBoSjFXUHBzUHpLY0xjaklFUWJpRkdBeF9ZYW4zVkRrY19HR1lPc0N0cDA1YVN0d2VTbjI1V0ZsWUtySGczWElSbjFKRVY0c0QydmFuSWRB0gG3AUFVX3lxTE5LZjVDMzdQZWZ6V01tZlZDV1VYdU1ld2Z0bXdDTUF4TXRRbHZ6VDBQSzRqRnBTN0k3WFFZOGlxYkJNNHNnc1ZDZWV1RTVGb1ZRWVU5UnhIT2p2ajhMVzVoMWtiM3l6enB2UjhpcUJ6ODM3OVN2M011RkhfUjFQMDBwWW5iOEgxUTFlYzdtVkpDQlpBMWtWNzZnWUZRQkpISU5TMC0tSmRLNV9xYTQxbUJ0cnNtMjlWcw?oc=5) |
+| McConnell rips Pentagon’s ‘isolationists and restrainers’ after Trump restarts Ukraine aid - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPZXE0LWJ2ZTJtUHo1ei1sa2g2SHBOY21RWGNiR2dNTElSNUw2NWFkQlp1QmdBQ0NvQ0x1aFM2ckEyZklUVlBURzJES205SVFyU2xQWlphYkVzeHNDWjE0MlpsNDhvbUVmc2tmeWR4SUhIcGhzaDQ1aHdTV1NzNmh2NkQ5RDF5VzJMcU9xbGxYdS12cUJGb3VPYU5CLW9vWmh6U0hrZzJn?oc=5) |
+| Rural hospitals brace for painful choices after Trump's Medicaid and Obamacare cuts - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNQWM3OFRSOGpldVRaMkZOX1pqcWtOdkplbkFYdUJKNVU0eFloSjBVNURXWVg3aklkLUtOV2NPa1hOOFRVcmhBek9rUVFYUkR0MlJiVXlOQnVIS3MxQlNhUVc1NmM0T25iUFdWQjNCNlhQODhSQ01Mb2lXVFNHaFdnMFZSUWhJRENuSExISDVneWJqVlQ0QWs2XzFzQ3RhdGxEZ3ZERzNDU01sdzN1UVV2Rkpad1BqenN3SzYxbzAyb9IBVkFVX3lxTE1za1FONFVRNFBxeFd1TEdheW1WbFc4cVRzbHd0cG8zVUF6Z0F6dEkydGZkMjlGc2Q3cXNBR3lUX05vdVA3Vlo2MUlGVHdNazRKbXRRTTZR?oc=5) |
+| Trump and Bondi, Confronted Over Epstein Files, Tell Supporters to Move On - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1PLVpXZlF4NU5rU04taFhXdXkzV0ZlbFBHNzFWSlAwTkZkYVFXa21mXy1zR1JjM3VRdC1keUM3MnEyeTdiWURlUVBGamJYaGp1dFZsaXF2ZTF3Z0huTWJXb1hpWGdvaVpweXFtVnB2OHMyb0U?oc=5) |
+| Philly’s city worker strike ends after Mayor Cherelle Parker strikes deal with AFSCME District Council 33 - Inquirer.com | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNR19saGMwd0E0Q3FlcGpxX2NTTUlWemhpcjY3LWs0cUJFMm8xcFdzc1BqTEticXp1STlxVjhDVHpJcG44MlpiY2lfNGh5N2RmbVFTMEtoSmhPOFFwdWdJRGdDdEppYTRPVUZvMXVERnA0REp3c2IxSlFYUFJOeXRsRXNhQTJSQ0FBMV95aFBBdzZXX1JvSUJKSWpsQ2Q?oc=5) |
+| L.A., other local governments seek to join lawsuit to stop ‘unconstitutional’ immigration raids - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNY0dZQ3JwbFg3WmZjSEszdFozbGgzRHRyRjhmcXdlRmNkUlBydncxcW90Y2JYdFJ0bGV1alBnSFkxdFdXZVJiQkZZdGdUdUlxRjRHdTFOQnk4M1l1dkV6anRXTmR3bWlnMFpSUV9IMzRaYnhsaWJHbV8weXZrSWg5bWkzWVFpVUszV0hJXzYtLW5LWV82V241cWRCeEdkWHNPRzFfdnlHNk54Zw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
