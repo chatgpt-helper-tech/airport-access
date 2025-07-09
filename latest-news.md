@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月09日 16:53:34（北京时间）**
+🕒 更新时间：**2025年07月09日 17:00:02（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | McConnell rips Pentagon’s ‘isolationists and restrainers’ after Trump restarts Ukraine aid - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPZXE0LWJ2ZTJtUHo1ei1sa2g2SHBOY21RWGNiR2dNTElSNUw2NWFkQlp1QmdBQ0NvQ0x1aFM2ckEyZklUVlBURzJES205SVFyU2xQWlphYkVzeHNDWjE0MlpsNDhvbUVmc2tmeWR4SUhIcGhzaDQ1aHdTV1NzNmh2NkQ5RDF5VzJMcU9xbGxYdS12cUJGb3VPYU5CLW9vWmh6U0hrZzJn?oc=5) |
 | Trump tires of Putin's "bullsh*t" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9EbldRUjZPdlJybmJuOXlxbTc1VnNOQ3JNa19WQjRHa0VIbFM5cW55NTBuNGlQNmU1ZVZqN0Vpalc5MGp2dWJFbVBRa3ZFdkdHbERkTGwwU1RoREpQdXcyWjBmQ0RpTDB6UHNLNDlFWFUxb3YwRjFObXBiOA?oc=5) |
 | 3 missing, house swept away as flash flooding hits New Mexico mountain village - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5nVGVZdzdTdGNEZkpfOEY2RU9oR2htYWF3RnVLbF9OYWdkUWFLMWNDN3lySEI2M2ZSclZqUnEzcGdnNjBvTS1POFVwR0l3b1dlNDJKQ2RlSFdrVUFIeWxnTDV0MFNYRHEyR0hEMmtYbW9rZ3ZoSmVsOEZn0gF_QVVfeXFMTzk5d3RLNm43bS1zam1jVU9yUjFpelN2Q3BVOG8tQUlaQ1FsLThtWUNPS2k0YXN3MEJzbENSSVpzeGN4b3ZCVll6NXRKdlcwZlhxQnBNTHE1MFlkcFgzcWg5ZThYc0c0dE5XbzBjLUIzSFdqQ05fSHhieFMyTFF1RQ?oc=5) |
+| Ex-NYPD chiefs sue Mayor Adams, top aides over alleged favoritism, corruption in department - New York Daily News | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPeDhrMmF1R0tmd0RrVDM5N0tBcmcyNEtOQWM3dzNfLVBKV2J2c2hPaEpWOVhLd3EyUmRhbFd5N2xaZ3AxQVpjTnI4MzFaWDJ3aHV5VWZhaExZTWdmOXZ6MzlvWFpnLVFvTHNPa3hPakttTE1WVXppVW9LZTNoZ3VPM25GNzZSbjNLc2hIMTZrUWhuUXphVEhlaW0wdjNmSEVFYUtDSHdkTXNxU1JjYVluQ2tBdFpVM2VkRHhWWGlrVmw4aXhWRHllaw?oc=5) |
 | L.A., other local governments seek to join lawsuit to stop ‘unconstitutional’ immigration raids - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNY0dZQ3JwbFg3WmZjSEszdFozbGgzRHRyRjhmcXdlRmNkUlBydncxcW90Y2JYdFJ0bGV1alBnSFkxdFdXZVJiQkZZdGdUdUlxRjRHdTFOQnk4M1l1dkV6anRXTmR3bWlnMFpSUV9IMzRaYnhsaWJHbV8weXZrSWg5bWkzWVFpVUszV0hJXzYtLW5LWV82V241cWRCeEdkWHNPRzFfdnlHNk54Zw?oc=5) |
-| Mayor and Police Chiefs Let Corruption Fester at N.Y.P.D., Suits Charge - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNM2ZzXzdKcjlMb2YwUEJEa0RiNmtTQnRYVTFpNTNnTV94RE5fY0xtdGtib2pldXhGVUR6VmZXRFJEdEZhSVlWU3lQVjVCbVVlWU81YjV3NVk0aVVERHlSRmY2cTNQemhPT0tXaXgyUWhOcmV3VDRQTHZEX3VmSERfWlJ0VUlsQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
