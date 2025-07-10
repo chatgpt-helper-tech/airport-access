@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月10日 21:01:59（北京时间）**
+🕒 更新时间：**2025年07月10日 21:14:26（北京时间）**
 
 ---
 
@@ -8,6 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Chris Mason: Migrant deal will be seen as failure if numbers don't fall | [阅读全文](https://www.bbc.com/news/articles/cly8mk006kvo) |
+| Woman and three teens arrested over M&S and Co-op cyber-attacks | [阅读全文](https://www.bbc.com/news/articles/cwykgrv374eo) |
+| UK faces rising and unpredictable threat from Iran, report warns | [阅读全文](https://www.bbc.com/news/articles/c98wjzj4jlpo) |
+| Children queuing for supplements killed in Israeli strike in Gaza, hospital says | [阅读全文](https://www.bbc.com/news/articles/c4gd01g1gxro) |
+| Olympian Caster Semenya denied a fair hearing over sex eligibility rules, court says | [阅读全文](https://www.bbc.com/sport/olympics/articles/c7vr04v3vpdo) |
+| Armed police in Romania carry out raids linked to UK tax scam | [阅读全文](https://www.bbc.com/news/articles/cp867gjmn25o) |
+| Deadly new Russian drone and missile attack hits Kyiv | [阅读全文](https://www.bbc.com/news/articles/cj3rvpe06rxo) |
+| Ban some foreigners from sickness benefits, Tories urge | [阅读全文](https://www.bbc.com/news/articles/c80p1gdvyggo) |
+| Heatwave to peak this weekend as temperatures soar to 34C | [阅读全文](https://www.bbc.com/weather/articles/cd0vy9gmdg4o) |
+| How a wanted man evaded police and went on to kill dog walker Anita Rose | [阅读全文](https://www.bbc.com/news/articles/cjwnyln4q86o) |
 
 ## 📰 Google News
 
@@ -20,9 +30,9 @@
 | At least 31 workers rescued after tunnel collapse in Los Angeles: LAFD - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOdmVpcTJTTWUzY0xhYkV6emZwLVd3cFhIal9iXzFXNE1kU014X3pSYzEyc0tRXzdROTY1TE5Rd29ZTE5DSDZUN3N5NnJ3YVZlQ3VTX3FSRlFxNE9NTXFPdUNQcmZDaVY4N3JRNWRtWkxRMThVNlExVXJ0VThQaHQzSXFIZDNqMlRRQTk3cldNeVRrcEFZQzQ1ZGpaWWnSAaIBQVVfeXFMUGh4ZWhXM1Z1ZFBWZnBvWTd5ekk4NVNZVXY4SXEzSGU5R0xWbkY0Q1hMZGhQRWI5Y1hrNTNnNHZhWURHdi1qbWdKT25SMXFJak9SdHZUZ3BBYnA1QlFvTFB0V2c1U24wS0QtM1R4YWpYYzhfYkJ4aXlrNTd2TXFpQkNWeUtKdEhPNUFOVkd3X2Zsd0ZyMFhIMUJEUjdHWHF4U1l3?oc=5) |
 | US military delivering some weapons to Ukraine after pause - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQblpaeG1kdklwY3lnMzU0NFFNTERtMy04UDE0R2g2VUtCN0V1NzdoVHljc1hFcFhkRkZ1UHMwcmJYRVloQ3Q0QUJ0dXRVMVB2dEJKWWpGY3ZhYTV0OUFoaTd5MmV6NXpiNWVlQ25mUUdmaXdLZEVJTjlwRWhlek5WTi1BVGdHbWI4NFhBTmt2MUlxc0x5VU9HQXBsMmYtMGJ3eWx5UVJNejBrajJWNHVOcjV6ZGtPcm5aaGc?oc=5) |
 | As FEMA aids Texas flood victims, Noem urges eliminating US agency 'as it exists today' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxPVzBob0dtSXJybzF5S1FmV3c0UzFLbWJaMlNFZXpmcGRKdDBvSi1xeDVTTFNDWjdXeFo2UC1tbkVaSmdlYk4xZkljOGY0U1pfcFQyTWhLR2F3am56ZWtUUFpUcURMNHhuaVRMSkhHVUFrV2taUVY2Uk5RMFBDSlFiM0JtdktfNXRIQ0dYREJNZmVaTk90WEJ4bzhTUnBIbDkyVGYteDRQRlJ4WldwZFBBb0pnNER3cGxRRFUtUjR3c09ScURPZjY4?oc=5) |
+| Floods, abortion and THC: Texas Gov. Greg Abbott announces packed special session agenda - KUT | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxORFE3ekdrZDFfZFc2eFRFeUc0ZEk5OG1XaEcwUF9VV21pVTdUb0c4WVV2bUh2MlJXODhZNjVVcjJjeExhcFZTQ3g1YTRhb09GbkhvNmlaWHE0dHhuUFZVVnNicEF5WkwzSHVScmhuOFNrZ3BBZ3Ixc25CSUVZQm5jYjVEM19OS29yc3paZjRFWDRBRnhvcF8yRlBEYXFPY3IyTk5jemwwV3J1MEJvTl9tbVlnUF9fdGd4WWpNT2M1TXB1eVdNN1RoYg?oc=5) |
 | U.S. issues sanctions against United Nations investigator probing abuses in Gaza - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOcU95aGZBQTR0UXRpb1NzdUlEQmlpUmhwYXlJWWVYTHZLTk9JMTdWUC1DaUpHQkNBQmZENzFnZnpKV1ZGcGh2ZmhzUWw1UENwM2dGUzU3RkVzMnpfdWFaSktIa3JtX2phRkVpd2p5QmYzQTRmNFR0Tk9GWVBXUC1DaTJOX0l6dkFRbmcxMHlVXzRHM1JEeWhfV0w0OA?oc=5) |
-| UK's Starmer, France's Macron to announce migration deal at summit - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNRUJxOXhNSWRzZ3NWMmY2NjNyOEJvZno1dUV0dVVzRnRObWZjUGNURUNTekQyZFVLWVVPMUNCZlRZN0dmTEhVaGpHaWN2WkpNNDdnV2lqbmZPdWRDR01weXl0OGtCM3cxQ0dCOVpNVEc3SjJQTy1aT2ZmYWJJQ0Y1TFZlOGJMUERDS2JieFJMdC13dmc1MllFWGF1aw?oc=5) |
-| Rubio Visits Asia as Trump Raises Trade-War Tensions - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNY0d2RHVSTkV5eDFDR2JIaWV1QTBockRWVm1XdHVMV1AwMEVnQlVqcG9UcjJFSEhlblJJNGhVQi1NTTFjTkswOGpEY0dlc0Q5bUdoVUQtUzRyeFhscTM5ZGlDeEtHYk1RaV9MdGt2QTYxZDBBY1ZaVHVEMGd5cmdKd0p5ZDZmQQ?oc=5) |
+| Federal workers fear Trump will fire them after court ruling: ‘We are toast’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQSmxhU1pLb2dRU3c1bTFVT2czQjBiSXBrUTdpMHd3N0oxVFYwMFkxbmVzd1JKVUdmanpQRHJFYjVXRmRaVnFmOXVObkdWU1BUcUdJTFVzdzQtd2lMcTZvb1ZMVFF6c3ZxQXN2bllybG1LR3NaVnZDdU5sTm9JNExJYks5cVlFM1hQN3hTbE54Wml6RmE0TXYyOEx2bVA5dDV4aFE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
