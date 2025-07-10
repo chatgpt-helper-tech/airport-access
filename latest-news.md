@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月10日 08:53:16（北京时间）**
+🕒 更新时间：**2025年07月10日 09:01:28（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Families Wait for Word of Missing as Texas Floods Death Toll Hits 120 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1OM05jRVBHcnF1MGdMS3lWZE5WcThpc1RPQ055Wk1UWXpXYkJwZ0xmQVI1Z25FS1hxSEJsR3pGM003ZDE5LTlQR1RFOHVHdV9qRGVWODNKbDd0ME1wczFWWTJDU1ZqcUNJU0ltVExJajE3NlRtT0NoYTZB?oc=5) |
 | Trump threatens Brazil with 50% tariff over Bolsonaro trial - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1vWFE2SEJ5WmpKN3dPNzRwYUhwRlV1WXZPMHloXzJfbE1jckw3eWh2RXZWZF9wUGdQWVdfOUtZV2owREFyLVJIVmVsb2JWVzJEXzNZNFNWaXM0d9IBX0FVX3lxTFBXSHkxT3k3YlBvU3oxZ2pEdzJTYUpINmxnVXZ2UmhlNE41MDh1TXNPTFRiekVRWHc0ZFEzRVM1OGR3eEJqUW1iM1RqdjUtWnRhUWZQWDdpSW9lWVlJb21r?oc=5) |
-| US issues sanctions against UN investigator probing abuses in Gaza - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOdGlHSlBvVFFQX196bXVsVTVWUzJYSFh2NXRtQXNrbVFubVRZaXFhUElIdk11YnlWUDN3T1VpOUxUVUpkX0RmellTTEtEczZjbVRzTlpqQXJiUXA3NV9mR3ZVYkI0elFlU2o0dXBSd1dVUDdBY0ZQZmFVaXVlZVZZb3gwVEkyM2FXYTJnaFlaTVVHTk5yV2R0by1zUmJvVU1VUVdRS0dDcEw5UVlfN3RJQW5n?oc=5) |
+| US issues sanctions against UN official investigating abuses in Gaza - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNbjhfalI4R3FPTUFtbjJqNGdIX3JKdkpvbEhMQld1UnNRNzVHZV85dmVLTG9qVEU4eUJNdkt5MnRJWXhDeW1Nc3U3QmlpZjdrNURQNUc4R1lTWkpDTTRJd1NvUTdWUGJaYlI1emZTbnZibXNWV2h5RW8wbzVoT0J4bFhn?oc=5) |
 | The Trump administration's shifting explanation of Ukraine weapons pause - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQQk82WVctYzhEQl9XYnpfaWdHYmphbFZsdkZqMGdQZzFONjZhbHpNVXg5U0E0N2N0TWxWNy1ma0RNZmRvcloyRkkzaGZDRGtoTGlZWGk5ZnBIS1hFZU8wSUZxbDYyb0pWWmRFckt6bWhmTWp6elpjZ0ZCVk5VQ3I4akxkc093YU8zQUdIZnYxQjJEWk1XOTFDX01iaG1MQ2l6UzZRa1VhQUR0bVg3b1Z4Z9IBtgFBVV95cUxNczU5MHlpWXZxUU5sOFdmbHFWQzJvUDQ4X0t4dkh3Q1ZfVXRHbkkzRWxSYmZOcjRRWkZnLUJpNm4yanEzdFhtZTAzTlhlNkdkRVhvbXVBdGtRVkFVamFHcHpyajlJMWNBejE2a2Q1RkoydEFmbmYxN0hEZnh0dDdTeWtyLVVzcURET1paTFctamdQSmNNVk1tei0zT29RYm9NUy1XVTdRUmI5RkpLcUp3MWtSTGFsZw?oc=5) |
 | Trump administration targets Comey and Brennan with new investigation - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQcDZtVjVZc0dzWVUyOWhIVzY4a1M3NlBBWEVoalRXZlRtUGt6VzhtcUkzcF9BdGpRckZUd3BxRm1XZlNsdFVhU2wyUThid0FYZmswRHR3bFZGUWFkSkVmZTU2UWdiTkdmSWswM0FPZlI4c0lQY0VPS0hkTHp3ajFjVVpEWk9wdmpTZ3BsaFdXUWF5V0NJZXU2N1ZTYllCZmZxQ204U3NNeE45b3hFQ05UcTV3QlIwXzE3TlZXLW5GdTTSAVZBVV95cUxPSVFfUmdOQkQxaGRJZjk5MmI1TTBvQjl4MDBJTE1VYzRDMzktNGtPVE5NT2xHV2c1YTJrd0tXaUY1YUNJaTBpVFRUVU1VcFBWUDA0ck9UQQ?oc=5) |
 | Supreme Court blocks contentious Florida immigration law for now - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQQjNpN1NTSjRvY1NzZEpCRTZGMVZTSGo1dnBsWmVfMzZfNGU0dTNKX1hGNjRBQkhyLXYwQ0k4bS1TSFdLU0x1dGVpZUtFTTJSbndNWTdqbnRBTjRVMGdOY1dsdmxRUE1PMGZZNGw5akRHOXhsM21Kb05taHFnVUh1bG90elJfT1pYQVE?oc=5) |
