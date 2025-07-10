@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月11日 05:27:37（北京时间）**
+🕒 更新时间：**2025年07月11日 05:39:48（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | Original Birkin bag shatters record with £7m sale | [阅读全文](https://www.bbc.com/news/articles/cly8zvexp42o) |
 | Police officer punched in Manchester Airport brawl was 'absolutely terrified' | [阅读全文](https://www.bbc.com/news/articles/cvgn8dz3l0lo) |
 | Arsenal poised to make Liverpool's Smith first £1m female footballer | [阅读全文](https://www.bbc.com/sport/football/articles/cp8m517dl99o) |
-| Woman and three teens arrested over M&S and Co-op cyber-attacks | [阅读全文](https://www.bbc.com/news/articles/cwykgrv374eo) |
-| School suspensions rise to nearly a million in England | [阅读全文](https://www.bbc.com/news/articles/c784ezdmnp4o) |
+| Man stabbed to death near five-star hotel in London's Knightsbridge | [阅读全文](https://www.bbc.com/news/articles/ckglyvx49p4o) |
+| Ukrainian intelligence officer shot dead in Kyiv | [阅读全文](https://www.bbc.com/news/articles/cx2l8kwd13wo) |
 
 ## 📰 Google News
 
