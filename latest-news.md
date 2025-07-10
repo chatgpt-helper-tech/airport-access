@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月11日 04:53:19（北京时间）**
+🕒 更新时间：**2025年07月11日 05:00:27（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump Administration Is Forcing Prosecutors to Ignore Law, Whistle-Blower Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNRDRDS3VZZGd6c21Fa3JPNnd4cmJ2SkxWNE9JMzNKZ2EtWlBzZzNkMVVkbHEzcTVmZExtNFY1UzVjNDFjQkdHUHlfTVM4amlEQW51Y0I5WW4zeFVVMnNCdWpWMzFLTGdtX0NORGZod1VjR0xfZEZ3a25YSHBIanptWDJKSEg1aFUxSWx3R3BMX0U3N25lalJldGxsVFFVZEF3LTdz?oc=5) |
 | Coffee prices climb after Donald Trump threatens 50% tariffs on Brazil - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9KS1Z0eVpMQjJFWk9NYW1obmxJX2NkUVBIbG01WEk0NEFvVzFHYThNSXZKc3FQUDFMTU5LNkZLMmZ6aVR1M3hxemFHckoyOTU1N2IyVUgwWHZuenNIb2g5U3ZlM09QdGxMMThmMWpkR3c?oc=5) |
 | Verified images show Red Sea ship sinking and aftermath of attack on Kyiv - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1ycC05cmhmTFJKN2RLS1NTdGJWUm5wa1I4SDUtQnE3NFlTMzFxdnZ2MjVoQVJsbXJULThsT2xXUllzYnY5dG9SR01PbmJZaWZyTnRRYQ?oc=5) |
-| Freed from ICE detention, Mahmoud Khalil files $20 million claim against Trump administration - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOSDBQN1EwZVRFLTQxeTVNNEhkcE5tMG5rNXRobE5sN3VFQzNaTGtQdVBrSlpaYjY5c2hTalJGbzRZMkItaGJjcW91UXZqT3IwY2hKNjRnc2JXSkZ5LV9JNV83TXJJVTRQcTBSbXdaeFl6RGZYdzhtdkdrRER5YUJIYUtDUDB2WWlqUmZfZWtfcXJpSTVsN2JhWllsY0piTURoQ091bUFlbTBKc1BVemRZ?oc=5) |
-| State Sen. Angela Paxton files for divorce from Texas Attorney General Ken Paxton - KUT | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxQMndKNXZUV2ptTXlHLUlVMDZrTEdtcXNDSS1PQ0NxUzc0enpKTy1lMFB6MHdSTS10R2V3TzVxRTdBcG1qRElhbVlwSWk0UmNIV21sbW1lSWJOR0pickhIb0dCQkxpOThlbTA5amtCZ0lEeDhEZm9CeWlBUGVxd0JzVFhyM0I5VTVuZTJpXzhkUm15OXB3NWduRXp6UkxXZFJ1NzhfTmowcDBTYkdaZktOTENJOVVhdUN0LWpQag?oc=5) |
 | FEMA leader is a no-show after deadly Texas flooding - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNeERzWnpLSm0wbk5OQmRtUWdyeUNsTEx6bUlXVHNzZ1BuZFg2WnNjWnU1QVZpX0NEUHZ1cU45VmZPLTB5cHVBMVY4dmJZdWpkd3BkdmlETEpwQUFheXF4MHJvWExXbWVnSGh2VlRFOF8zSWxrN21XSC1kUGJMSWtuamhR?oc=5) |
 | U.S. imposes sanctions on U.N. official investigating Israel over Gaza - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPLXdvWVZZSTZwVWVRUl81N2ZnZmkwRWZGM2MtUlZJNmxWMFU0NlpzUXF0LUJEWGdza05GWDJsNjA4dGEtdDNZalZzbGRGQjREWGIzaW1ZS0VoazgyTF83UmU5aDVicll5RnFhRmRQWUcwN1lfcE8wTmt0Q1ZmVDZMbVpGS2J4RlQ3Ty1lOW44RGRWUk53?oc=5) |
+| Court fight over RIFs continues after Supreme Court ruling - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNTFVCQnZSV0F2aDV6dTR4aEgxc1d0QW80SV9Sb1VMQ0hwWmJITHp1dlVmcWszMVJJOEJoVVhXa0dsU3RjbVoyNEZKdVV1bENVcjBPZEtpSkNGSXdQcjVkRXJFa3IxSEhoQWtqNHZoQ3FxWmtwWTBhdVJmaEd3UlpDNHNnQXBwZ1E2UkQtaDBmdlVfbjVnbUViZXNfck9jaEtLdFY3OW00QXNCOVVQ?oc=5) |
+| Trump Names Sean Duffy as Interim Head of NASA - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBHWU9fNHA4ZjE3NXFoTlR4TXpJRGFWanYtdV9QSXVNM04xdHZMYkN2bXM1SUFKYzdWQk5fVDlmcTRDTW9LX1BWcTdFd0NUT3ZLbDlGaUpKS21JdkdMa3VsbkVuajhtRDY5NFAxV3VObVlPaFhUNHRhYTdoeUp3dw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
