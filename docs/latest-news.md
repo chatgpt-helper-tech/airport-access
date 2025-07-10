@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月11日 00:52:59（北京时间）**
+🕒 更新时间：**2025年07月11日 01:01:01（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Brazil vows to match US tariffs after Trump threatens 50% levy - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5GU3hmU3BtaGJseXZBbHY3SGdkU005UTRodzFNMzhYSUZTMnRvRXlQcWh4M3F2WUxlMG9FTkhHb0hqcVM0TGVzNUpueWU2TDFGYUdKbmxpblVPd9IBX0FVX3lxTE82eTJHaVpRV2QyNEtnTFNpY1JjZ3hodFFnaFlQUGFRMEVsbnAzeWd0LWVwNzJ1Z0hWTU5Yb1d2NVB0NS1XbWJoTUs3WUo1LTdLN1djTEFWb21Hb2tjNFZr?oc=5) |
 | Rubio slams Russia over 'lack of progress' toward peace in Ukraine - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPN09weVRTVVBMYXIwSUhFWlFtRlJDQTh2SnJCSHB4c3FnS3VORGw0UnVDU0ZxRDlnYVh1YjFJSDlON1lycTR2NnB0MVB0d3piX2thaG5wMVlNdXZWbE5ka28zZ090S0dlOTYyejdaQmNYMTlTSGF3S1N3c0RxSWo1WnJ4Rnh2UQ?oc=5) |
 | Deadly new Russian drone and missile attack hits Kyiv - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1uUWpYNnZrQWxnS0ZUelVxczBwWHpZbWY1dlFpVkpGSElEZUpXUENwejNEQldpQl9TQndFV3p6Nm83NUFPcDZ5cnROS2FDcWpSWmFlZDRGU1lSd9IBX0FVX3lxTFBOVnluSmhUdjRVVkoxQmxSRG50MEdJcjFHNFp5YURMNGg5bTRkYmZkYlMwNlk3UVUyeEQwMi1JUS1HT3pHTGN4QUNubmg0NjIxUF9WS0JEdXFFLWstR3Jj?oc=5) |
-| 'We agree this can't go on' says PM, as UK and France discuss deal to send back some migrants - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5zTkgycTJlR0NmbHROSVRKOTltMVl5MENyQ3NXVzR4RlliaEpYTHFCTUtxWEpGQ2xWQjlUUW5kRmZRT2IxMjl3aUIzM0FUQnpZdnBfOQ?oc=5) |
+| Children queuing for supplements killed in Israeli strike in Gaza, hospital says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1yZGd0c0FlSmZ1bEdRblZqdmVPMHB3bjhiS1BqelF0Zk05UDMtVko5WDduQUlVUDhFZjRPZ2otbXVuT05OTXVtb3Z3b21UQmdlTjVFdElCM1djd9IBX0FVX3lxTE9GMFQ0VGJqcVVnVDlrUm9tcnk0WlVFZUZwbUNLLWZaUExBWXZHdWdZcG5yYi1HbDJkSkUxTElnd2lfLW90dFlvaEpJWXRnUU1wNGtEZUVLQjFEY05DLVBz?oc=5) |
 | Trump Administration Is Forcing Prosecutors to Ignore Law, Whistle-Blower Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNRDRDS3VZZGd6c21Fa3JPNnd4cmJ2SkxWNE9JMzNKZ2EtWlBzZzNkMVVkbHEzcTVmZExtNFY1UzVjNDFjQkdHUHlfTVM4amlEQW51Y0I5WW4zeFVVMnNCdWpWMzFLTGdtX0NORGZod1VjR0xfZEZ3a25YSHBIanptWDJKSEg1aFUxSWx3R3BMX0U3N25lalJldGxsVFFVZEF3LTdz?oc=5) |
 | FEMA’s response to Texas flood slowed by Noem’s cost controls - CNN | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE1WZnhaX1JpbkpGdUYwTE5DNmE5OG9ZN04zNGlIdV9lZTJQT2JuVVpuQWFaYnR5VS1hZlg2Y3NIUjgxUHdnazdCRGUyNUEyeG52S3IxTi1TZk8yTGZxTEVCOUpyb3FhU0JnQW5FYV930gFzQVVfeXFMT24zSHdNSVNIZVN5Rks1T0x4MWxzMDdGMTRDMTloelJ0N3VfMkhscDBweWpBY3VPcHIxdkZfRW9pNU9wSGNYVk5fTlhYRjFPQy1MUTROeEtQYnFrRDdEcFBkX3BiVTI5XzhGQmN3ZzBGeFpWSQ?oc=5) |
 | How a Univ. of Virginia gun incident drew DOJ’s ire - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPS2NHdkJIR1FUQWRVMUwxamkydXZNX1JrbkpEeUFtWjc5cDJsdFRacm9GcUtKbDBsb2o2T1lFWTltN2RQcHdMa3B4T1NCUl9pb0p4UnhsamRGM2pKdTFOd0I4RnAwUFNPVk5QSGFXWmo2Q0xLU1QtcFpqNW5aYi1DaEdxUGt0WkRUbUhuYWYtMWxIM2c2QVhpcHdkY29qekhaVDV1REpmZWoyOGhIR2fSAVZBVV95cUxORC1ja05kajFES1lwNVdSNjRhZFBBZVRBZ3BUTTBHYWZyME9YejJuZnZ4NE1fU21VbWRLSHBBakV1eHc4akxvX180bWEtbGNNcmMtdnFrUQ?oc=5) |
