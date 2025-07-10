@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月10日 22:39:39（北京时间）**
+🕒 更新时间：**2025年07月10日 22:53:49（北京时间）**
 
 ---
 
@@ -8,6 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Woman and three teens arrested over M&S and Co-op cyber-attacks | [阅读全文](https://www.bbc.com/news/articles/cwykgrv374eo) |
+| UK faces rising and unpredictable threat from Iran, report warns | [阅读全文](https://www.bbc.com/news/articles/c98wjzj4jlpo) |
+| Gregg Wallace faces backlash over autism defence for misconduct claims | [阅读全文](https://www.bbc.com/news/articles/cx24lxl85wyo) |
+| Children queuing for supplements killed in Israeli strike in Gaza, hospital says | [阅读全文](https://www.bbc.com/news/articles/c4gd01g1gxro) |
+| Armed police in Romania carry out raids linked to UK tax scam | [阅读全文](https://www.bbc.com/news/articles/cp867gjmn25o) |
+| Olympian Caster Semenya denied a fair hearing over sex eligibility rules, court says | [阅读全文](https://www.bbc.com/sport/olympics/articles/c7vr04v3vpdo) |
+| Deadly new Russian drone and missile attack hits Kyiv | [阅读全文](https://www.bbc.com/news/articles/cj3rvpe06rxo) |
+| It's too easy to claim benefits in UK, Badenoch says | [阅读全文](https://www.bbc.com/news/articles/c80p1gdvyggo) |
+| Heatwave to peak this weekend as temperatures soar to 34C | [阅读全文](https://www.bbc.com/weather/articles/cd0vy9gmdg4o) |
+| Five things Trump should know about Liberia and why they speak 'good English' | [阅读全文](https://www.bbc.com/news/articles/c5y72w17vpwo) |
 
 ## 📰 Google News
 
@@ -17,8 +27,8 @@
 | Brazil vows to match US tariffs after Trump threatens 50% levy - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5GU3hmU3BtaGJseXZBbHY3SGdkU005UTRodzFNMzhYSUZTMnRvRXlQcWh4M3F2WUxlMG9FTkhHb0hqcVM0TGVzNUpueWU2TDFGYUdKbmxpblVPd9IBX0FVX3lxTE82eTJHaVpRV2QyNEtnTFNpY1JjZ3hodFFnaFlQUGFRMEVsbnAzeWd0LWVwNzJ1Z0hWTU5Yb1d2NVB0NS1XbWJoTUs3WUo1LTdLN1djTEFWb21Hb2tjNFZr?oc=5) |
 | Deadly new Russian drone and missile attack hits Kyiv - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1uUWpYNnZrQWxnS0ZUelVxczBwWHpZbWY1dlFpVkpGSElEZUpXUENwejNEQldpQl9TQndFV3p6Nm83NUFPcDZ5cnROS2FDcWpSWmFlZDRGU1lSd9IBX0FVX3lxTFBOVnluSmhUdjRVVkoxQmxSRG50MEdJcjFHNFp5YURMNGg5bTRkYmZkYlMwNlk3UVUyeEQwMi1JUS1HT3pHTGN4QUNubmg0NjIxUF9WS0JEdXFFLWstR3Jj?oc=5) |
 | Children queuing for supplements killed in Israeli strike in Gaza, hospital says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1yZGd0c0FlSmZ1bEdRblZqdmVPMHB3bjhiS1BqelF0Zk05UDMtVko5WDduQUlVUDhFZjRPZ2otbXVuT05OTXVtb3Z3b21UQmdlTjVFdElCM1djd9IBX0FVX3lxTE9GMFQ0VGJqcVVnVDlrUm9tcnk0WlVFZUZwbUNLLWZaUExBWXZHdWdZcG5yYi1HbDJkSkUxTElnd2lfLW90dFlvaEpJWXRnUU1wNGtEZUVLQjFEY05DLVBz?oc=5) |
-| 6 Secret Service agents suspended over conduct in Trump assassination attempt - Axios | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNeVFlSjNDRVRPSWxSUHBaeHdmZ1FtLWZEZElLSG1vdUNiSzhSb1NuWV8tUy1XbDF3VV8wWkV5LTVaZHJLQXBPYzFVZkFORzVlajRTUFY2ZDU2QzR1ZkptOGhqdVNveUFuUkRrX0JfeTlKa2F5NFV1MXN1RWlFNGRaT0FtZ3RTRjB4T0dxTjZMZ05sTnlnajQ4?oc=5) |
-| Masked immigration agents are spurring fear and confusion across the U.S. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5oWnMtWkFpdjdRblFLNXl5WHRidnBEU1ctSWhyRXNTSVZwanlBNy1laXdZZjd1b2xVeWZUcmluQURiXzJQM3RyRktxNXdmU3cxbmRZa0NnOGlmV3ZRalNQVnpJMFFuSWo0MzlMckFRYUpTME13YV9j?oc=5) |
+| Verified images show Red Sea ship sinking and aftermath of attack on Kyiv - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1ycC05cmhmTFJKN2RLS1NTdGJWUm5wa1I4SDUtQnE3NFlTMzFxdnZ2MjVoQVJsbXJULThsT2xXUllzYnY5dG9SR01PbmJZaWZyTnRRYQ?oc=5) |
+| Lawmakers in Liberal States Want ICE Agents to Show Their Faces - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOZUNVbHhPNWtpZlR6aW5JVUt6anoxSXVtOTlEYWIyRVkxSk1Fc0xBaXdjVGJzZjVfWVpXMXVBVXBndi1KRU96enhXZHFzeE50ZXdWaDN1eGhBMnhyVVY3QldCMTVfMDZLSnU2aW4zZ1Q5X3F1QUlGMXh5SWpNRTVDTDdqZlNVQQ?oc=5) |
 | 5 things to know for July 10: FEMA, Ukraine, FBI investigations, Secret Service, NASA - CNN | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOZjhyU0ljWk82QUFsaDEzcXUteXNvTzVrejAzdVdwb3M5TG5seGwtMW81Vlkwbk1oZkpQUmcwc0ZhOVJDdHV0ZXpPMkdBUXZ6a216dk5LaW1uNHNMU3lsbGctbHJqWnZ5bUV6V1p0ZVVfMHJOekFDS2dSY0FTQXdiSzRQY2xBcU1pZnJoOGRiZUg0Uk1wd0VnRm91OFh1QjJZcFBMLU9mQnlULThYMzRGamZUVTY?oc=5) |
 | Internal DOJ messages bolster claim that Trump judicial nominee spoke of defying court orders - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQNTdDSHlzYmFRelZ3Yk43WXVxT0hoTWdJXzdpWGJBY0N2djl6Zkg3RlZVMEZzQ1lWR2QybTY2bnBndEM3N1ZuSk1ROU5zcEF0UUtmZmwybjVrdGFOSHFVbzNjZXVVVnd2bXFOUVd1eHJwVUZacDVMTkJIaDBvdnFCd0otNFlKNENVcW9B?oc=5) |
 | U.S. Imposes Sanctions on U.N. Special Rapporteur Francesca Albanese - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNOGFVZ2lNRlJBSmk0Y0FFa0ItM1FXNXdicElzejNuVXpFNS1mZFpXcTZjVnI5OFRlMnp2X2J2ZmZ6NDItQ2pqUkU1QzE5Z0ZkQTZjZ1hOb1lJNzZackhndENWYktfcnRvRGlDUU9uRkNXZlREaWFraXRPbGZzbGs3alZScmtTcVByNlh5NEl3?oc=5) |
