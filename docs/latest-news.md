@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月11日 06:53:56（北京时间）**
+🕒 更新时间：**2025年07月11日 07:00:59（北京时间）**
 
 ---
 
@@ -8,6 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| UK to return some migrants to France within weeks, Starmer says | [阅读全文](https://www.bbc.com/news/articles/c4g2edx410wo) |
+| 'One in, one out' sounds simple - but the deal could be complicated | [阅读全文](https://www.bbc.com/news/articles/c8d60djgqndo) |
+| Gregg Wallace faces backlash over autism defence for misconduct claims | [阅读全文](https://www.bbc.com/news/articles/cx24lxl85wyo) |
+| Children queuing for supplements killed in Israeli strike in Gaza, hospital says | [阅读全文](https://www.bbc.com/news/articles/c4gd01g1gxro) |
+| Russia's intensifying drone war is spreading fear and eroding Ukrainian morale | [阅读全文](https://www.bbc.com/news/articles/c0m8gn7grn2o) |
+| Original Birkin bag shatters record with £7m sale | [阅读全文](https://www.bbc.com/news/articles/cly8zvexp42o) |
+| Police officer punched in Manchester Airport brawl was 'absolutely terrified' | [阅读全文](https://www.bbc.com/news/articles/cvgn8dz3l0lo) |
+| Arsenal poised to make Liverpool's Smith first £1m female footballer | [阅读全文](https://www.bbc.com/sport/football/articles/cp8m517dl99o) |
+| Man stabbed to death near five-star hotel in London's Knightsbridge | [阅读全文](https://www.bbc.com/news/articles/ckglyvx49p4o) |
+| Ukrainian intelligence officer shot dead in Kyiv | [阅读全文](https://www.bbc.com/news/articles/cx2l8kwd13wo) |
 
 ## 📰 Google News
 
