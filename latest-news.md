@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月11日 02:52:14（北京时间）**
+🕒 更新时间：**2025年07月11日 03:01:26（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump Administration Is Forcing Prosecutors to Ignore Law, Whistle-Blower Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNRDRDS3VZZGd6c21Fa3JPNnd4cmJ2SkxWNE9JMzNKZ2EtWlBzZzNkMVVkbHEzcTVmZExtNFY1UzVjNDFjQkdHUHlfTVM4amlEQW51Y0I5WW4zeFVVMnNCdWpWMzFLTGdtX0NORGZod1VjR0xfZEZ3a25YSHBIanptWDJKSEg1aFUxSWx3R3BMX0U3N25lalJldGxsVFFVZEF3LTdz?oc=5) |
 | As FEMA aids Texas flood victims, Noem urges eliminating US agency 'as it exists today' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxPVzBob0dtSXJybzF5S1FmV3c0UzFLbWJaMlNFZXpmcGRKdDBvSi1xeDVTTFNDWjdXeFo2UC1tbkVaSmdlYk4xZkljOGY0U1pfcFQyTWhLR2F3am56ZWtUUFpUcURMNHhuaVRMSkhHVUFrV2taUVY2Uk5RMFBDSlFiM0JtdktfNXRIQ0dYREJNZmVaTk90WEJ4bzhTUnBIbDkyVGYteDRQRlJ4WldwZFBBb0pnNER3cGxRRFUtUjR3c09ScURPZjY4?oc=5) |
 | US imposing sanctions on senior UN official focused on Palestinian human rights - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNbjZlVV91YXJKQ1RwNGpPRURHUkVDYVVZbTYySE1qNVo2RG1RTko3TW9zaWVhS3hzY0Zna2VTT2M3U3M5dEtFbTJsbVl2b01oSVRCYTZ3OGxyT2ZseW8zbkNrSTYzZVp4dHhYb3JjYjM2YnFhQ0NURkp4UWN5cHpCSGlsUkRDSGwtLTlpNDVvZDdVYzjSAZgBQVVfeXFMTUViWldhcXV2SV9xbGZXYUdUXzdidVZ4Mk1ZcnBXMi1qZHl5VXZJdU8tOWNnUHJjcGJJcTJoaWVNakNwRnJ4ZGFhYTNjUFJkbFhqWDZnOXljT2czczVfdEtRSy1ZeGJLYnJmenJSZlM5SElmc2pLZ3VxeXJTSmN3T1ZQQ3ExWEdXQ04zV0ZkMmExZ0JIX2dTY3U?oc=5) |
-| Maya Ruler’s Tomb Is Unearthed in Belize, With Clues to His Ancient World - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPVFJQX25JNGc0YVVVTm1rUkZ2bVVNRjVGc3NCMXZDZ2xqWFgzUHIxRXBEaFVmUTRJRGlHR1Rxa05RcmNrR1lkZnFrZUxYaExaVl9sTWl1TmJMMThfTEktUmhyTDhsTnJEdzUwUmp0S3hLU1dHVm9oSWpJUzNlWkY5QlRscG5NZw?oc=5) |
+| America's Top States for Business 2025: The full rankings - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOM2RuSXY3YS1mVEY1akJ5anZnZWdFbDJLLXZmVW9UUF85UlR6N0FQQjhSZERGSGtEa3RCOGdzcFJTczB2VTFlN2N4Szh4Y29MN0xKVzQxUUNXMUw3MmIzMHhqeXNCSS02aTlMSHY3emR3S0dTMEh1RjMyV3E0RC02eHhmeGxQZm9zaENkaURNOHIxaEZyclVZ0gGcAUFVX3lxTE9MNjBDc1FCNmpDT3J4MEF0d0ZPcTFtLWdQaEhXY2U1RVNXdTJVcHJBNndyWWZJVWl5UFFxRlhWdXdRTFQ4emExUHlyRkVEZ1c5M1JmaTFWWlhTbjhRSDBPSk85THNKa3Q0NHN5T0tIU1daZldOSC10WHM4akpBZTRTbXhTRmZzdDByckF2UFVxQXlVZ2t5SEdoTnVXTQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
