@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月10日 15:13:37（北京时间）**
+🕒 更新时间：**2025年07月10日 15:27:04（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Deadly new Russian drone attack hits Kyiv | [阅读全文](https://www.bbc.com/news/articles/cj3rvpe06rxo) |
+| Deadly new Russian drone and missile attack hits Kyiv | [阅读全文](https://www.bbc.com/news/articles/cj3rvpe06rxo) |
 | Chris Mason: After a high-profile Tory defection, Reform is making the political weather | [阅读全文](https://www.bbc.com/news/articles/c1e0vq4gxeno) |
 | Package holidays to Spain, Cyprus and Turkey soar in price | [阅读全文](https://www.bbc.com/news/articles/clyndp097gro) |
 | Wiegman delivers 'proper England' performance with 4-0 victory | [阅读全文](https://www.bbc.com/sport/football/articles/c15w07p509jo) |
@@ -32,7 +32,7 @@
 | As FEMA aids Texas flood victims, Noem urges eliminating US agency 'as it exists today' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxPVzBob0dtSXJybzF5S1FmV3c0UzFLbWJaMlNFZXpmcGRKdDBvSi1xeDVTTFNDWjdXeFo2UC1tbkVaSmdlYk4xZkljOGY0U1pfcFQyTWhLR2F3am56ZWtUUFpUcURMNHhuaVRMSkhHVUFrV2taUVY2Uk5RMFBDSlFiM0JtdktfNXRIQ0dYREJNZmVaTk90WEJ4bzhTUnBIbDkyVGYteDRQRlJ4WldwZFBBb0pnNER3cGxRRFUtUjR3c09ScURPZjY4?oc=5) |
 | Trump praises English-speaking Liberian president’s English - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1HeG1nVjBPakdVN2xjQTJ4bl8yb0JYd3pUaEJKN0QtZk5RVlBTSGFfaEpiM1Q0eTBzekpkX0k0Ri1LS3kyQWt4dDhaMm5ZZDhrOVdzUVc0MnpBbXdnNlVHazlGNDdfa0dEd2tlSDVoTHNBRHBvbjZXMGdhdl90dw?oc=5) |
 | Immigration Officials Used Shadowy Pro-Israel Group to Target Student Activists - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQYnF0UGY4aHoxZGlaY1k2NjBISDVXTWZZZkk3VnlkRF9FR2toeS04R2s4RGN6ZG9sTF9YRjUwam90ZHM2UVVMOHEwdHdRUER0UnMxU2FQcXpMa2RFTmtJZmVDWXhKaTE2LWxzcjZIS3VENFBIRmNJcW9zVWVyNkx5X2RmcGtWWTRibmRXZmwxT0lSOF9xWnc?oc=5) |
-| Supreme Court Order Creates Chaos for Federal Worker Litigation - Bloomberg Law News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOZzVyMDFBR1hYQzNiblV1YWtIOEZUaks0aUU3WEhMYV9RZmZmdGd1V3lHNXMwWGg3S0tPWTlmclRSLVpweUVtQnBsN2FCWTc3SjQ4UWJiMGRXcXA5UDNaLXJ5MjJFczZQcHAteC1oQWlfU3BfZHdxVFV2STRCaGRqY0M2VklTdEh6aTBMV19mcXZDWjFrN1YxM1VnQkZISW1xYkJV?oc=5) |
+| US imposing sanctions on senior UN official focused on Palestinian human rights - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNbjZlVV91YXJKQ1RwNGpPRURHUkVDYVVZbTYySE1qNVo2RG1RTko3TW9zaWVhS3hzY0Zna2VTT2M3U3M5dEtFbTJsbVl2b01oSVRCYTZ3OGxyT2ZseW8zbkNrSTYzZVp4dHhYb3JjYjM2YnFhQ0NURkp4UWN5cHpCSGlsUkRDSGwtLTlpNDVvZDdVYzjSAZgBQVVfeXFMTUViWldhcXV2SV9xbGZXYUdUXzdidVZ4Mk1ZcnBXMi1qZHl5VXZJdU8tOWNnUHJjcGJJcTJoaWVNakNwRnJ4ZGFhYTNjUFJkbFhqWDZnOXljT2czczVfdEtRSy1ZeGJLYnJmenJSZlM5SElmc2pLZ3VxeXJTSmN3T1ZQQ3ExWEdXQ04zV0ZkMmExZ0JIX2dTY3U?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
