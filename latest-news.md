@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月10日 17:26:37（北京时间）**
+🕒 更新时间：**2025年07月10日 17:40:50（北京时间）**
 
 ---
 
@@ -9,14 +9,14 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Chris Mason: Migrant deal will be seen as failure if numbers don't fall | [阅读全文](https://www.bbc.com/news/articles/cly8mk006kvo) |
+| UK faces rising and unpredictable threat by Iran, report warns | [阅读全文](https://www.bbc.com/news/articles/c98wjzj4jlpo) |
 | Deadly new Russian drone and missile attack hits Kyiv | [阅读全文](https://www.bbc.com/news/articles/cj3rvpe06rxo) |
 | Package holidays to Spain, Cyprus and Turkey soar in price | [阅读全文](https://www.bbc.com/news/articles/clyndp097gro) |
 | Wiegman delivers 'proper England' performance with 4-0 victory | [阅读全文](https://www.bbc.com/sport/football/articles/c15w07p509jo) |
 | 'Huggable' piece of Sycamore Gap tree to go on permanent display | [阅读全文](https://www.bbc.com/news/articles/c5ygv2n8jy2o) |
 | Ban some foreigners from sickness benefits, Tories urge | [阅读全文](https://www.bbc.com/news/articles/c80p1gdvyggo) |
+| Heatwave to peak this weekend as temperatures soar to 34C | [阅读全文](https://www.bbc.com/weather/articles/cd0vy9gmdg4o) |
 | Royal Mail to scrap second-class post on Saturdays | [阅读全文](https://www.bbc.com/news/articles/c36x8k2612ko) |
-| North Korean defector to sue Kim Jong Un for abuse | [阅读全文](https://www.bbc.com/news/articles/cedgw4jp9qwo) |
-| US lawmakers write to Canada to complain their wildfire smoke is spoiling summer | [阅读全文](https://www.bbc.com/news/articles/czjkgg0kk3lo) |
 | Watch as England put four past Netherlands | [阅读全文](https://www.bbc.com/sport/football/videos/czjkgm24j4lo) |
 
 ## 📰 Google News
@@ -30,9 +30,9 @@
 | At least 31 workers rescued after tunnel collapse in Los Angeles: LAFD - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOdmVpcTJTTWUzY0xhYkV6emZwLVd3cFhIal9iXzFXNE1kU014X3pSYzEyc0tRXzdROTY1TE5Rd29ZTE5DSDZUN3N5NnJ3YVZlQ3VTX3FSRlFxNE9NTXFPdUNQcmZDaVY4N3JRNWRtWkxRMThVNlExVXJ0VThQaHQzSXFIZDNqMlRRQTk3cldNeVRrcEFZQzQ1ZGpaWWnSAaIBQVVfeXFMUGh4ZWhXM1Z1ZFBWZnBvWTd5ekk4NVNZVXY4SXEzSGU5R0xWbkY0Q1hMZGhQRWI5Y1hrNTNnNHZhWURHdi1qbWdKT25SMXFJak9SdHZUZ3BBYnA1QlFvTFB0V2c1U24wS0QtM1R4YWpYYzhfYkJ4aXlrNTd2TXFpQkNWeUtKdEhPNUFOVkd3X2Zsd0ZyMFhIMUJEUjdHWHF4U1l3?oc=5) |
 | Floods, abortion and THC: Texas Gov. Greg Abbott announces packed special session agenda - KUT | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxORFE3ekdrZDFfZFc2eFRFeUc0ZEk5OG1XaEcwUF9VV21pVTdUb0c4WVV2bUh2MlJXODhZNjVVcjJjeExhcFZTQ3g1YTRhb09GbkhvNmlaWHE0dHhuUFZVVnNicEF5WkwzSHVScmhuOFNrZ3BBZ3Ixc25CSUVZQm5jYjVEM19OS29yc3paZjRFWDRBRnhvcF8yRlBEYXFPY3IyTk5jemwwV3J1MEJvTl9tbVlnUF9fdGd4WWpNT2M1TXB1eVdNN1RoYg?oc=5) |
 | Immigration Officials Used Shadowy Pro-Israel Group to Target Student Activists - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQYnF0UGY4aHoxZGlaY1k2NjBISDVXTWZZZkk3VnlkRF9FR2toeS04R2s4RGN6ZG9sTF9YRjUwam90ZHM2UVVMOHEwdHdRUER0UnMxU2FQcXpMa2RFTmtJZmVDWXhKaTE2LWxzcjZIS3VENFBIRmNJcW9zVWVyNkx5X2RmcGtWWTRibmRXZmwxT0lSOF9xWnc?oc=5) |
-| U.S. imposes sanctions on U.N. official investigating Israel over Gaza - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPLXdvWVZZSTZwVWVRUl81N2ZnZmkwRWZGM2MtUlZJNmxWMFU0NlpzUXF0LUJEWGdza05GWDJsNjA4dGEtdDNZalZzbGRGQjREWGIzaW1ZS0VoazgyTF83UmU5aDVicll5RnFhRmRQWUcwN1lfcE8wTmt0Q1ZmVDZMbVpGS2J4RlQ3Ty1lOW44RGRWUk53?oc=5) |
-| The Trump administration's shifting explanation of Ukraine weapons pause - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQQk82WVctYzhEQl9XYnpfaWdHYmphbFZsdkZqMGdQZzFONjZhbHpNVXg5U0E0N2N0TWxWNy1ma0RNZmRvcloyRkkzaGZDRGtoTGlZWGk5ZnBIS1hFZU8wSUZxbDYyb0pWWmRFckt6bWhmTWp6elpjZ0ZCVk5VQ3I4akxkc093YU8zQUdIZnYxQjJEWk1XOTFDX01iaG1MQ2l6UzZRa1VhQUR0bVg3b1Z4Z9IBtgFBVV95cUxNczU5MHlpWXZxUU5sOFdmbHFWQzJvUDQ4X0t4dkh3Q1ZfVXRHbkkzRWxSYmZOcjRRWkZnLUJpNm4yanEzdFhtZTAzTlhlNkdkRVhvbXVBdGtRVkFVamFHcHpyajlJMWNBejE2a2Q1RkoydEFmbmYxN0hEZnh0dDdTeWtyLVVzcURET1paTFctamdQSmNNVk1tei0zT29RYm9NUy1XVTdRUmI5RkpLcUp3MWtSTGFsZw?oc=5) |
-| Supreme Court Order Creates Chaos for Federal Worker Litigation - Bloomberg Law News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOZzVyMDFBR1hYQzNiblV1YWtIOEZUaks0aUU3WEhMYV9RZmZmdGd1V3lHNXMwWGg3S0tPWTlmclRSLVpweUVtQnBsN2FCWTc3SjQ4UWJiMGRXcXA5UDNaLXJ5MjJFczZQcHAteC1oQWlfU3BfZHdxVFV2STRCaGRqY0M2VklTdEh6aTBMV19mcXZDWjFrN1YxM1VnQkZISW1xYkJV?oc=5) |
+| As FEMA aids Texas flood victims, Noem urges eliminating US agency 'as it exists today' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxPVzBob0dtSXJybzF5S1FmV3c0UzFLbWJaMlNFZXpmcGRKdDBvSi1xeDVTTFNDWjdXeFo2UC1tbkVaSmdlYk4xZkljOGY0U1pfcFQyTWhLR2F3am56ZWtUUFpUcURMNHhuaVRMSkhHVUFrV2taUVY2Uk5RMFBDSlFiM0JtdktfNXRIQ0dYREJNZmVaTk90WEJ4bzhTUnBIbDkyVGYteDRQRlJ4WldwZFBBb0pnNER3cGxRRFUtUjR3c09ScURPZjY4?oc=5) |
+| US imposing sanctions on senior UN official focused on Palestinian human rights - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNbjZlVV91YXJKQ1RwNGpPRURHUkVDYVVZbTYySE1qNVo2RG1RTko3TW9zaWVhS3hzY0Zna2VTT2M3U3M5dEtFbTJsbVl2b01oSVRCYTZ3OGxyT2ZseW8zbkNrSTYzZVp4dHhYb3JjYjM2YnFhQ0NURkp4UWN5cHpCSGlsUkRDSGwtLTlpNDVvZDdVYzjSAZgBQVVfeXFMTUViWldhcXV2SV9xbGZXYUdUXzdidVZ4Mk1ZcnBXMi1qZHl5VXZJdU8tOWNnUHJjcGJJcTJoaWVNakNwRnJ4ZGFhYTNjUFJkbFhqWDZnOXljT2czczVfdEtRSy1ZeGJLYnJmenJSZlM5SElmc2pLZ3VxeXJTSmN3T1ZQQ3ExWEdXQ04zV0ZkMmExZ0JIX2dTY3U?oc=5) |
+| Unhappy with Putin, Trump and Congress move closer to Ukraine - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQeFdTUEJ0dXg2c2JnNmgzdEp0cEdVTlRLZW9sN3hLaEltVHdSTmJ4bXQ3VW1BdEJCRVdEVzZpSVRZR29kZUY3dUFoczRmRW1TSXoybGVWTTlFY0FFMjZUcmRvcE42X1pzdXBlSnJySTRJRV9EMkd3anJ5MVRYY3VsWEI2ZlBOd3VWWmR3cHNOdk53VWM0ZGpzd01sV0htYW8?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
