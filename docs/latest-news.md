@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月10日 11:40:14（北京时间）**
+🕒 更新时间：**2025年07月10日 11:54:14（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | US issues sanctions against Francesca Albanese, UN official investigating abuses in Gaza - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNbjhfalI4R3FPTUFtbjJqNGdIX3JKdkpvbEhMQld1UnNRNzVHZV85dmVLTG9qVEU4eUJNdkt5MnRJWXhDeW1Nc3U3QmlpZjdrNURQNUc4R1lTWkpDTTRJd1NvUTdWUGJaYlI1emZTbnZibXNWV2h5RW8wbzVoT0J4bFhn?oc=5) |
 | Trump administration resumes sending some weapons to Ukraine after Pentagon pause - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNWEktV3pQamtTX1hheWlzaU9XX1NhUXBTWEJOT0FPV3l5cllEeGJiTjl2WVdET2tfSVZFVVlaaUk2a1FkdURvbTJoYThIUXpBTGpscHpnNGJRR2s3Vm9JM21ab0FJeFNUdi1jbWtqN3JnZUJnOENrVFVHeExIbmxQMTQtbEl3Q3I3RllOeFlTdXdkRWZuc1E?oc=5) |
 | Trump administration targets Comey and Brennan with new investigation - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQcDZtVjVZc0dzWVUyOWhIVzY4a1M3NlBBWEVoalRXZlRtUGt6VzhtcUkzcF9BdGpRckZUd3BxRm1XZlNsdFVhU2wyUThid0FYZmswRHR3bFZGUWFkSkVmZTU2UWdiTkdmSWswM0FPZlI4c0lQY0VPS0hkTHp3ajFjVVpEWk9wdmpTZ3BsaFdXUWF5V0NJZXU2N1ZTYllCZmZxQ204U3NNeE45b3hFQ05UcTV3QlIwXzE3TlZXLW5GdTQ?oc=5) |
-| Supreme Court refuses to allow Florida to enforce new immigration law - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPV0NOLV9zMmI5M0pTUFNCSWJyS0ZyaGdVaGl0Y3NiZ19WOGMzNVpvblRJLXMyNTZFRWxMLUdiTjQycTZlRW9helBNQnVpYThqWGVpOVRaZjhEYlMtTGZNanNuUUNhSjh0N2ZiR1hydGtZYTBVTEItZGlQTlplblNJWXljVzlVV0cyaFl0NmthUnpZVEIyWXgyOGdzTmV1MWEtdGh3WHJJeXZSN0MwUkdNaQ?oc=5) |
+| Supreme Court blocks contentious Florida immigration law for now - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQQjNpN1NTSjRvY1NzZEpCRTZGMVZTSGo1dnBsWmVfMzZfNGU0dTNKX1hGNjRBQkhyLXYwQ0k4bS1TSFdLU0x1dGVpZUtFTTJSbndNWTdqbnRBTjRVMGdOY1dsdmxRUE1PMGZZNGw5akRHOXhsM21Kb05taHFnVUh1bG90elJfT1pYQVE?oc=5) |
 | Trump praises English of the leader of Liberia – where English is the official language - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNVThUem9VMVQ4V0NyeXQ3ZjlHR0JZUHQ5WFJGemVBU01MVi1YVk1XMnlIWE90cmp3TDlXTGNjTXFRTzdxOGJ4eGw5dGRheDlEZDc3TGFxRDVJTE1oWVQ0UnVxR2xSX3kza2ZTVVNvMmp0OS1vLUNzTmlac0VwRGwzUU84QU5GU3M?oc=5) |
-| Floods, abortion and THC: Texas Gov. Greg Abbott announces packed special session agenda - KUT | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxORFE3ekdrZDFfZFc2eFRFeUc0ZEk5OG1XaEcwUF9VV21pVTdUb0c4WVV2bUh2MlJXODhZNjVVcjJjeExhcFZTQ3g1YTRhb09GbkhvNmlaWHE0dHhuUFZVVnNicEF5WkwzSHVScmhuOFNrZ3BBZ3Ixc25CSUVZQm5jYjVEM19OS29yc3paZjRFWDRBRnhvcF8yRlBEYXFPY3IyTk5jemwwV3J1MEJvTl9tbVlnUF9fdGd4WWpNT2M1TXB1eVdNN1RoYg?oc=5) |
+| DHS used anonymous pro-Israel site to target activists for deportation, agency says in court - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNS1dTUkVTZXhtNVNxOEwtb0ZoVVJwMU9xV3FmNW82MHZoMVd6bXVkdzFzRkxCWkxRVzFzaW5tLW5yUUYzdkxya2ZiUXJOYW51TDduNGg5TV8xdkFMUzFoTmVCN0hvMERxaWdzOU0zVnk0R2tFSlg2R3pJTXlYbTNkUTZkblp3N2hXbFFaNWlGY3AtaUFoZEI5T0hJXzNLQng2V1RCUHFlaThNa09PLWNaakRDeFV0cERqX1HSAVZBVV95cUxOdmlnQWFRb3o3ZFN6UFlmX0ZiQ0UyZDBNYzN6cVNLZWRZVFVTVVkzSDdEUkRMcmVramxEc1NHUHVTTnRRTFNtank3MjZzTnVMYXFBTXh1UQ?oc=5) |
+| 6 Secret Service agents suspended over conduct during attempted Trump assassination - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQMnR2Y2h1UUtfbmtHQU5rc3R6b2hjUlVCLWhXODVXQUhEY0I1UlRNYnFJYVpCZzYtLVFsTVNFejMxZTU0M0x5SlNvNFFQYU1HMGs4cGdNSlpQeWFOWTUwTDRvcTlPSTRwNUZuc2ZsTGQ3TzMyeWhFaDZheEtjYTZYR3ZjcWtnTGNQQS1OcFJnSFJnSkEzSm1DVWdwZFNGOWIySUY2am1DRU1nMUxibjl3TllZNF8?oc=5) |
 | Federal workers fear Trump will fire them after court ruling: ‘We are toast’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQSmxhU1pLb2dRU3c1bTFVT2czQjBiSXBrUTdpMHd3N0oxVFYwMFkxbmVzd1JKVUdmanpQRHJFYjVXRmRaVnFmOXVObkdWU1BUcUdJTFVzdzQtd2lMcTZvb1ZMVFF6c3ZxQXN2bllybG1LR3NaVnZDdU5sTm9JNExJYks5cVlFM1hQN3hTbE54Wml6RmE0TXYyOEx2bVA5dDV4aFE?oc=5) |
-| Sanctioning Lawfare that Targets U.S. and Israeli Persons - U.S. Department of State (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOZHFtMnRDNGJXQThrcHdqVk9sLThpaHhMXzNPVUtuVXVJdVpTN2hCcjFoN0tjOWVodklwR3d5eklzLWQzVnNNeHRjNjhnYUFZRl91cXd4ZnBwQ3VIeURGTGFPdTJZT3Zqd25DNWQ1LXFXVzNocnF3a0lGVVN5TW9TeWstcl96bzd4VWdPRFl5dWxwRFFCcjVfcWUzZWY0TGYtMFd6MmpxUWRTU1VoTVI2bmM3azZHZTFXcjRPeVIwTQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
