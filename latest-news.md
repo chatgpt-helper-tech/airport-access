@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月10日 09:40:00（北京时间）**
+🕒 更新时间：**2025年07月10日 09:52:14（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trump administration targets Comey and Brennan with new investigation - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQcDZtVjVZc0dzWVUyOWhIVzY4a1M3NlBBWEVoalRXZlRtUGt6VzhtcUkzcF9BdGpRckZUd3BxRm1XZlNsdFVhU2wyUThid0FYZmswRHR3bFZGUWFkSkVmZTU2UWdiTkdmSWswM0FPZlI4c0lQY0VPS0hkTHp3ajFjVVpEWk9wdmpTZ3BsaFdXUWF5V0NJZXU2N1ZTYllCZmZxQ204U3NNeE45b3hFQ05UcTV3QlIwXzE3TlZXLW5GdTTSAVZBVV95cUxPSVFfUmdOQkQxaGRJZjk5MmI1TTBvQjl4MDBJTE1VYzRDMzktNGtPVE5NT2xHV2c1YTJrd0tXaUY1YUNJaTBpVFRUVU1VcFBWUDA0ck9UQQ?oc=5) |
 | Supreme Court blocks contentious Florida immigration law for now - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQQjNpN1NTSjRvY1NzZEpCRTZGMVZTSGo1dnBsWmVfMzZfNGU0dTNKX1hGNjRBQkhyLXYwQ0k4bS1TSFdLU0x1dGVpZUtFTTJSbndNWTdqbnRBTjRVMGdOY1dsdmxRUE1PMGZZNGw5akRHOXhsM21Kb05taHFnVUh1bG90elJfT1pYQVE?oc=5) |
 | Trump asks Liberian president where he learned English, his country's official language - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQS2EwTW8xcnNtSzJQMGkxU3VnemtGU0ZnWTB6anhQZXNYNk5EQjBGdlFDUGhmVmVPQ2syY1o0V01iVGJlUG44T0tnQ1JPcnhGQ2h4WTdpZzh3OTBmS283bzdiLURwem9CV1RSX2kxcXoyQ2YzLVZpUGFucE5KeUV3NTFnWGozQ3hjNHROVU1DcDJ2VWhPZXhmQ2ZkNlNKZlBRS2w4Q1hMUHZ0RW1JMVMzbGtKQl81OUM2TGplQ0JfZHJuZ0U?oc=5) |
-| Clinging to a tree, and praying: how a family survived the Texas flash floods - NPR | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxNUnhGWUlfQ0hSVXNjYUkzTHJUejAxN3dkbnVkRVcxX2ctQnBvbXRHYTA0WTB3ZGdYZ0VJOFR0UDl6VlQ0cE1SM3R3WUFhZ2JHeVhvaGt5NlNLQ3lmUl9LY2VRbHppMWc1Z0VRdWNRMktXQzVycGxod05peG1NRFRvSTNGczRCOURIbHQ3bkJ2cTJJdl9LU05ZZllzcWpRandmOUJ0bGVHUlpoMzQyellGZG9rV1BFWGw2c1ZHMw?oc=5) |
 | 3 dead, including 2 children of Fort Bliss soldier, in New Mexico flooding, local authorities say - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNODVOaU1HWEN6YkkxX3hLSDNlTU9UZktsdUJOWDVyT245a3Y4Q21NUy1USUE5OHNMQjdtX0JvUDBfNE1EU2VfUnhRYlZ2SUtWOVhhcFdJZGhSazl3eU8xa2xSaHBxakxWek1vdVBTTnZwOThvS0trMWZyTkdzdldnUHVQX2ZZOFlGbHZJ0gGQAUFVX3lxTE1zV3B1TDE5RDNZSVMxMEptZTNEVkpyRGE1VmJJbFlKS0tVenVhRVBMRVhwNnJ2WjhEWHJhUWFlQlRST2IzS2Z4dk5XSHM3WVY4QXhmeS1weW1UWVlXcmJVS2ZaWXplWHJvT1hJZ1RmSmxmWlNDazZaamJKb3FnUHZKZUw5TmE4NlhRNWh1NEtyeA?oc=5) |
-| Trump's push to claw back funding ignites a fight that threatens a government shutdown - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOYnEzZW55dm9ZbDJyOTFmQ0RxaGhUY25CU2t0RmNKZ3VwQU9aTlVod0YteUlWdzE1MHBLM2Z3YkNNMkpzVmxvUDN6QzdVYlVGNk4wN2pLQnI1SjNIVDd3NFROeDhBLUZjVHVjZmdTQ3ZhN1ctemtwUzR4QVg2MlU0ZXJuX3dfbVpsWHAtV04ySTRYa1FMNWZGX2JUZHA5OTV4eXRjSU43WGhkUDDSAVZBVV95cUxPaXFxLWhReHZtMFA1N0RxVzFVcEhoTlJLUzNiYjBSdEViX2hZcU9mekdwUHFoYnkzZmI5UEE2YV9kTTBuM2hnYkhiSnN3ZXBRT1NpZHhvQQ?oc=5) |
+| U.S. Transport Secretary Duffy to be interim NASA administrator, Trump says - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNNFBBaW9oVUZ1d2NXWmYwVlRxUWVFRThnUUd0Zm1jQVU5SWZHVThGZ19TSncybHdDT1R0VFpKUlZvOWFFMUhjb3Q3V01NczBEQWJGbHFjdkt0YkFIWEU2YjlVWkt5Ui1KNU1UYzhncVpqd3hoSFV2b3BpeEdkTnF2YUEtUC1TOHY5Xy1YV1pOei1QdURtajNjZmFES3k2WWg4ZVNEc0QtM0l0QdIBrwFBVV95cUxORk44dkNoN2xCUERuMWFhbDczZldjemJRcGJBVWMyLThYTUs3UnhndmRSRklOOHZBc2s0RWNFZVJIck9zNHlKOWxIQU9FVkNtX3dTYk5ROGN6WjI5WGQyTWd4RDBScmhjSDVjT0tnNnR6MDBlZ0RqS2Y5YmhKQThrVHptTGNMWjRXU3ZrRkJzT0dIalRKSW90SmVXQkRweTVJWHFkRDQ3UnRYa244eURn?oc=5) |
+| Senate Democrats enter shutdown hardball against GOP spending cuts - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQbjctU1NlemFyTDdwTzFWVDY5SEhraFhUZlV1ekE1cUhtWndiV2lVM2VpdW9DMmxiYV9zRVZsRW5SOWtLXzNyb0cyZFBIV0pkaGlvOXljRm1qS3JmSEE0eDJqM2NLRXJfM3lBcklXelpYY2tYdUNOU2xQdVlxcF81ZjJpbHQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
