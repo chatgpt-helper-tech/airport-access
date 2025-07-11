@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月11日 14:13:07（北京时间）**
+🕒 更新时间：**2025年07月11日 14:27:59（北京时间）**
 
 ---
 
@@ -8,9 +8,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| UK economy shrank unexpectedly in May | [阅读全文](https://www.bbc.com/news/articles/cq6mvem8neno) |
 | UK to return some migrants to France within weeks, Starmer says | [阅读全文](https://www.bbc.com/news/articles/c4g2edx410wo) |
 | Chris Mason: Starmer and Macron plead for patience in an impatient world | [阅读全文](https://www.bbc.com/news/articles/clynxqdr157o) |
-| UK economy shrank unexpectedly in May | [阅读全文](https://www.bbc.com/news/articles/cq6mvem8neno) |
 | Surgeon banned by private practice over safety concerns still operates on NHS patients | [阅读全文](https://www.bbc.com/news/articles/cev0n2r0d2yo) |
 | As UK faces third heatwave, is this weather 'just summer'? | [阅读全文](https://www.bbc.com/weather/articles/cwyrw66jkkko) |
 | Delays and shortages in UK's F-35 jet fleet, watchdog says | [阅读全文](https://www.bbc.com/news/articles/cy0wdyxpqvro) |
