@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月11日 20:40:31（北京时间）**
+🕒 更新时间：**2025年07月11日 20:53:51（北京时间）**
 
 ---
 
@@ -13,19 +13,19 @@
 | Unite union votes to suspend Rayner's membership over Birmingham bin strikes | [阅读全文](https://www.bbc.com/news/articles/cx24de0d9rdo) |
 | Reeves says latest GDP figures 'disappointing' after economy unexpectedly shrinks for second month | [阅读全文](https://www.bbc.com/news/articles/cq6mvem8neno) |
 | Mystery interstellar object could be oldest known comet | [阅读全文](https://www.bbc.com/news/articles/cx23g5jpj9go) |
+| The Salt Path author's next book delayed after 'distress' of newspaper investigation | [阅读全文](https://www.bbc.com/news/articles/c20r4p55vdvo) |
 | Chancellor shelves planned changes to cash Isas after backlash | [阅读全文](https://www.bbc.com/news/articles/cqjq9yxkkrvo) |
 | Surgeon banned by private practice is working for NHS | [阅读全文](https://www.bbc.com/news/articles/cev0n2r0d2yo) |
-| Trainspotting author Irvine Welsh says we've become 'dumbed-down machines' | [阅读全文](https://www.bbc.com/news/articles/cgq7vzjwyvxo) |
 | MP Rupert Lowe investigated by standards watchdog | [阅读全文](https://www.bbc.com/news/articles/ceq7z421pwzo) |
-| UK-France migrant deal 'robust' against legal challenges, Cooper says | [阅读全文](https://www.bbc.com/news/articles/cx24d70gw41o) |
+| Outrage builds over plan to force all Gazans to southern city | [阅读全文](https://www.bbc.com/news/articles/c9dgv7v1d06o) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Protesters and federal agents clash during raid at Southern California farm - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOQWtqeTYza1hGcVRxdkxGWE5LY3U5ZlgydzhHMVh4Y1ZfeVBpVGR5VExCMGZ5Q0M4UTRtbzVQcDdWTDhHR3EtWFRCWFgwRkFUaGtoX3dGSHBGbU5nSVE3UmE1el9tZExLSzYwb25sREVwNjMwVk8tUmFFcjJ1amlhT19yeFplUEJsNTBpS1dGSHl4UUM1Vm1UNDNtOA?oc=5) |
 | Trump heads to Texas after catastrophic flooding, avoiding criticism he's heaped on other governors - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNSk9xSDFfT2k0WWVWaTZiRU1UMm5RODFScTdENEEyazk1dnFYYm5hR245MnVZYnFBSl94aFRsdnhUTjMxbkFPTHA1LW01ZTg5aG9KU2ktaHFHSnlBZDlMamwyMlY3alR6OFBCazZpQng3ZGtnRWFFOGZjNTJNQjVWVGFzaXVGY3ItTWRuQ1JVMThkdW5EeW5ZZkNzUWxSTG5ob3FqckVyMkRIbzdvcDNsLWhSSUloZ9IBuwFBVV95cUxPYXItY1FsSkJubW9LMkxydjExWnZZWHRUWWlXeC1JSjVocW02U290bXpQNzVuQ0RQbThhSmxaSktlcnJFMEJnN05lLTEtZVN3TUdZVEtlbTAxRUo4Wkl4RlY1WTV0b0Jlbk5tcC1fTUs1OW9YcU9za2lla1pwZzZaM3RjYS1ZbFZ0YS1neXlhM2UwQUR6OU5jdjBEcGFnLXB1WkhVR0pPTEtBbVBQd3pwajU2SERQR2ozR1NZ?oc=5) |
 | Trump says US to impose 35 percent tariff on Canadian goods - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOUWRqeFhfbTEwcUFoRzRlTWhxZXNXVDdERG1zVndyM1lZRVA5Wkdjb0tqVUI1RlYzUXRUZkxIWm1TaFJpWU1lcnp2c1lUVmMtTFdkUUl6ZTZaMERHZXQ1QWNJWEFBVzNOdjhJSzZjTkNrWGdVTklIUl94ZFItcUF4Y2ZyZzdOOUxEWGM4MWFicUNOUTBRNlltVg?oc=5) |
-| Feds offer $50,000 reward in apparent firing of gun at agents after clash with protesters - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOUUJFdGlMU2MtVmM1NWQ4WlVEeDhyUUMzQnNuM2pXYlRHMHg1WjZjcTFHYUJ3MTl5YXdvMzJJcVc0Q0ZzOWZPWktKcHRzWHdIdDdYdGxjck1UdjlUQnNfeGhhQjlEMGo4dmVfSi00aUdOOHBhbEdTbEV1dWMyM2txYllNM3prbWpWNjVBNjJsU3JBTlc1cEtxc3lqYTBucFVDdDNBekhycGNVZDE5eURfYS16dThsd9IBVkFVX3lxTE1YUy1INFZULTluV1IwbHdRWkhqRjdJV1NhanZnZFNFdmxYU3pvV1ZXVFh5Ylh1Z2R6RGVXNHR5cHdyUFBjcXctVURlZF9FWWpPRHdUb2pn?oc=5) |
 | Trump’s Seesawing on Tariffs Gives the World Whiplash - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQYmZhQXh2dEhWWTJ3MEhGZ1JRNEVMYnQ5cWdkT2pza3lsYjMxYXVIaVJueE0wcFJBM09Ja1ltNlZPSzR1LTNZNmNlVkxMamt5Q0xsMkNFNkV5d2tnTWF5Qjd3ZkN0aDM2SkVRSG9Hd1FRWkIxVFVNYmFrZFBRdXJYZndFVU84NnpjSGxmUTF3?oc=5) |
 | State Department undergoes deep cuts in sweeping reorganization - NPR | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNMHduZzB1dlplVTd6Q1VOdzUwa2FydzRyV3NDcVlLckJSLWJWRUl4Mm9nOE5ud0JlOGVsejZWem5rQ0wtNzlxcTNIaHNyOUlZcHBucENtUUIxLVFPOVZkS2o4UWlkcHVORG9BeUxUNkk2ZlZuVzRnUUZBYTUyVWFGbUhqeHF5UlhnSWxGeE9KXzNlZjZ6bVVKRmZYd2dnYl9wTFR2WHNxcGVIQzI4?oc=5) |
 | Ukraine to receive US Patriot air defence systems, says Trump - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5tMXZQWTA2TEtQejY5UmhHZkRsUkxmQXNrdk9Nc2pXM1M2ZEhFZjRtNmlFaVZOcUsyMkl2enh4WlE5UlJ2WDNPXzBJY3lDekJZYlIzSzU3Rmo0UdIBX0FVX3lxTFA3MTl2eGdMZVJpSDduVU9HcDRwSWtUV29UNnRlSElkTERGUEJaZm41S0dTX3UxWTN3MFNSX3ZYY0JRUk54MDJZelVhY1J1MTdlM0pOOHZhbUxDb2haZlNz?oc=5) |
