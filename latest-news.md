@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月12日 00:27:30（北京时间）**
+🕒 更新时间：**2025年07月12日 00:39:46（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | U.S. diplomats brace for mass layoffs after months in limbo - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOM3dtcDNtLTVoUUlYNXNtaWVNNjhzdXpzbkZDY1dwZ1cyQmxTQU0zV2d0UUp6Tl85V09JeXdEUVZKbzZLTGxvTGZaX2JPWjZyLWE5aEpITzBYSVpBSUR5V3A3M2YyYkY3RjJ2c0xGUS05dE4td2s5WU8tbmVSUmJDUWZJRTVHTXN4N3B2cU9Vc3k3RnNQTFlhLW5CaVdKUkszR01QNUFrSdIBVkFVX3lxTE5aYzJoNjBXZXc1aDI4ODRHeURaV3lDc1ZBb0pBQkE3Ny1wUWZuYmlVcVkyQ0RvVDJWck5Nd1AwTHM4WDRoWHVLQnJvUU5vRGN3Vm5GNXJB?oc=5) |
-| Protesters and federal agents clash during raid at Southern California farm - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOQWtqeTYza1hGcVRxdkxGWE5LY3U5ZlgydzhHMVh4Y1ZfeVBpVGR5VExCMGZ5Q0M4UTRtbzVQcDdWTDhHR3EtWFRCWFgwRkFUaGtoX3dGSHBGbU5nSVE3UmE1el9tZExLSzYwb25sREVwNjMwVk8tUmFFcjJ1amlhT19yeFplUEJsNTBpS1dGSHl4UUM1Vm1UNDNtOA?oc=5) |
 | Trump heads to Texas after catastrophic flooding, avoiding criticism he's heaped on other governors - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNSk9xSDFfT2k0WWVWaTZiRU1UMm5RODFScTdENEEyazk1dnFYYm5hR245MnVZYnFBSl94aFRsdnhUTjMxbkFPTHA1LW01ZTg5aG9KU2ktaHFHSnlBZDlMamwyMlY3alR6OFBCazZpQng3ZGtnRWFFOGZjNTJNQjVWVGFzaXVGY3ItTWRuQ1JVMThkdW5EeW5ZZkNzUWxSTG5ob3FqckVyMkRIbzdvcDNsLWhSSUloZ9IBuwFBVV95cUxPYXItY1FsSkJubW9LMkxydjExWnZZWHRUWWlXeC1JSjVocW02U290bXpQNzVuQ0RQbThhSmxaSktlcnJFMEJnN05lLTEtZVN3TUdZVEtlbTAxRUo4Wkl4RlY1WTV0b0Jlbk5tcC1fTUs1OW9YcU9za2lla1pwZzZaM3RjYS1ZbFZ0YS1neXlhM2UwQUR6OU5jdjBEcGFnLXB1WkhVR0pPTEtBbVBQd3pwajU2SERQR2ozR1NZ?oc=5) |
+| Protesters and federal agents clash during raid at Southern California farm - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOQWtqeTYza1hGcVRxdkxGWE5LY3U5ZlgydzhHMVh4Y1ZfeVBpVGR5VExCMGZ5Q0M4UTRtbzVQcDdWTDhHR3EtWFRCWFgwRkFUaGtoX3dGSHBGbU5nSVE3UmE1el9tZExLSzYwb25sREVwNjMwVk8tUmFFcjJ1amlhT19yeFplUEJsNTBpS1dGSHl4UUM1Vm1UNDNtOA?oc=5) |
 | Trump says US to impose 35 percent tariff on Canadian goods - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOUWRqeFhfbTEwcUFoRzRlTWhxZXNXVDdERG1zVndyM1lZRVA5Wkdjb0tqVUI1RlYzUXRUZkxIWm1TaFJpWU1lcnp2c1lUVmMtTFdkUUl6ZTZaMERHZXQ1QWNJWEFBVzNOdjhJSzZjTkNrWGdVTklIUl94ZFItcUF4Y2ZyZzdOOUxEWGM4MWFicUNOUTBRNlltVg?oc=5) |
+| Trump administration moves away from abolishing FEMA - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPbzlndGVvaEZzMlRnajRzTzZUQ3FzaXVfYWh2UF80OUJEWFNOSUU2QlNFT3hQNzY4anVBdXF5REpSYmR5eGh3WUs0cXRFdG9PTWRxdnEyX2xxMHBha2pFcTlHSWhlRnNrLWF5NnhHLS05WEdCSmFiZzllRzBSNm9fUw?oc=5) |
 | How Netanyahu Prolonged the War in Gaza to Stay in Power - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNb08yRHl3V19ST1RXTE1jTTVncXMtUkhWOTRNNXZMZTViMFJ6MXlsTEd6VVRyZ1V5TDVKd0IyOWV5LWRsb1pTa1c0T1RkZDZ0dmZEZ0w3MGw4cTFFV2ZaMXZLNlFrOEpvN2hReUQwRWdKYnlxWG5kMzBhc2ZJUV9QbEJR?oc=5) |
-| Trump administration backs away from abolishing FEMA - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPbzlndGVvaEZzMlRnajRzTzZUQ3FzaXVfYWh2UF80OUJEWFNOSUU2QlNFT3hQNzY4anVBdXF5REpSYmR5eGh3WUs0cXRFdG9PTWRxdnEyX2xxMHBha2pFcTlHSWhlRnNrLWF5NnhHLS05WEdCSmFiZzllRzBSNm9fUw?oc=5) |
 | Gov. Kehoe signs bill repealing paid sick leave - KSDK | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxOc0N5bnp3bXFzUTYtN2hmZnNqeU82THNIRHlHXzhsY0ZQbFVVM1k1RzlDeS12b093Tm1uMmlUNmNieHllM3QxNFozaE1fTWtfbjMtcWw1aXp5a0RBNlVrc3BGY0hpTEcwZ3RYaFkyS2padGFJV2lIcjB2Tk1IaW1tdE5uVVpnSEdWaldoVWpfZUZkUGxzSW1jdE00TWk4TTVnX2JyQWN2LXFhU0lQaXNDLXVLWm9NWTNRbmh4aDdnVHJBLUJpcU5YYXRFOWx6bXAwNWVTMA?oc=5) |
+| How Republicans’ Texas gerrymandering plan could backfire and help Dems - Politico | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBCZktRelVPMGlMcGJOMGVwUHAwQmYxVElhWVU0OVFFVjg1U3VYRzdBSTlUTXVZLTVKdWlnT0xBRVN3dUhBcjJ4N1QtdEhTbnlxbjZGV3A4SEVFYzZkMzhUY1FlV0lzN3hsWXIyUVRsd3BHM3NrNThvNQ?oc=5) |
 | Behind Trump’s Decision to Tax Brazil to Save Bolsonaro - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNdDMwazlTUzNDTExyMk5zM0FyWHMxeE56WndIdUk0MC12NktwbTJjalQyWFdWZlhycnRyTXpRZTNjUWRkamgwRGduYVluSVgyU0xibzBjV3lCV1NuaFM3TnVpVmhJdTRDRHp5TGV6UmZGNHkyeG1XcHMxUFY4blB3Yg?oc=5) |
 | Whistleblower Documents Implicate Emil Bove in Criminal Contempt Order by Chief Judge Boasberg - Just Security | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE1CaHk1bDB2RURrU3NZZzdKZ2lSLVBDY1JNZUR5VXU4OUFZVVU3eVlkWHUySkQwc3B2eE5ZUS1URkdXM0hTbTh1WURCUjRYaTc5bE5vUmNGbmp3dWlwUV9aV1BUcnE1b3ZEU3dZdXZnZE1zRUpNMFEw?oc=5) |
-| Dozens taken to hospital after suspected mass overdose in Baltimore - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBjWlRQSW5YaVFqNEozU2pvM3pQMGJsLXkwVkhPbkVEbG9ab2JmUkYzTXpYYjFINGUyT3hMNTZZYjA5d2J0UXdZdmhiZ1UwOWJLVWpjUEdjb0s3QdIBX0FVX3lxTE80Q3R0RnI3dGtsclBhRHlrRy10czFvSlBVVmEtN0R4VlpxM21Ea0JSN2NHREowdWtFUXNpbTd1Z21vOHJIQklLMHFDcHNoWU1DZElmbVVhcmdvWXprTWVF?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
