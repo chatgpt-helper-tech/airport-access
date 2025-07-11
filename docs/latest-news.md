@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月11日 16:39:36（北京时间）**
+🕒 更新时间：**2025年07月11日 16:53:51（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Budget limits at DHS delayed FEMA’s Texas deployment, officials say - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQSGFoMnRpTE52VzE5WG5JTGRqQlVvS3RJN3VaTmZ6OGc4SGRua19sZUZVdzV6WHZGelhSaVhtemJ1Z2hhX2lyV2tkMEFGb1JnT2JwZTBjSkZzeVJpVmxPR3BCMGpRN0Rzd2JFZUFiRjdIeUFDQ1Z6TkdKM2R2czhPWE5KbXNMTEl1bEFGTVVOWUtZRm1nWmx0M1ZvQlNDWVA5a3c?oc=5) |
 | Judge blocks Trump's birthright order after Supreme Court ruling - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1INHpSdUY5T3JSTHJPZ1YwVzdoeWZ0c3ViaXNLaUNHM0NWYmtmaE55RHRIS3dtbjM4NVkzclJRemwzc1prSEEwdzdhd1VXTVJkTjhuYnZfR3ZoQdIBX0FVX3lxTFAyNmUtV0FNQjFqT21vMS1iLUk3NktIZTF4MlRITW9nTjFpZ0lpV0xmVy1rVFZZbS1sUDBjV2xhTTBGN2JHS251YTdiX1pjYlUxdTJlSngtTzJVcVNDaU1J?oc=5) |
 | US state department to begin mass lay-offs ‘in coming days’ - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE42N0RDeW11Wko2U0ZhVzh4QzhDcWYwbUNCSTA2dFBtUjZQTmd5TVJHa0hJZ0FEUUFTa2pLM1ZuVWozWDZhUkVBcS0wZE1SaGYtOWY2ZEVEZndzWHhEb1JwVW9WUnFaQ20zX0d2dVVUTm4?oc=5) |
-| Trump tariffs: Asia is reeling but is anyone winning? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE03ZWZjZWRPVnZ1R3A4V28wMkRnWGtnVTNGOTJtSEpERTR5bXUwNTdLZmgwOHdpYzVjWDNfZXExX3dyUzV2Ykw5d2c3VWhGUTVNbmZTdmVreElCQdIBX0FVX3lxTE54NWN2MktjdVYwTDRjbkdLWjI0SVZVLVBCY2xfSHBWNmROZzNqMWFwa0FsQ3J6cG00NzVUaDlWRDVUUExSbUhOVGdDTGlsVDVEdUZGSzNBMXpCNXFYaG9V?oc=5) |
-| Did fiscal conservatism block plans for a new flood warning system in Kerr County? - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPejRTcmVPMmczclpJdFJqODFzNnF4U3RkMG1tQldPOUJWelBySWNwam9jMzNxWVhaMmNzeDMzVEgyRGU5U2FZQUNWb2pXakY5ZWRxdkdRR3N1SXYwS0pVQ3FOcWVlZnNISDhFZEg2YlFlaW5zWlJNcDEtRUdlMUtjNUVsMmE5YUYyRlBGd0ZFQllaMDg?oc=5) |
-| Secret Service suspends 6 agents over handling of Butler shooting - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNaGlPWVAzQUIxcWQ3R2JzQ2phbVpYOUVlb2dMdFhBS3FGNm1ZekpJSFBBVkFySjBiZW1uV2NSeWxPcGVBSHVsdnhEOHdkb2tPOXhiXzNnb21Qb1VZN1pkWGR0MU5xWWJ0TjRXSWh0SHItVUtEd0Nzb0NlazZTdVVMNDViN1NCUGtOVGxZQm9CN25HdS1pdnZHY2ZRaUY?oc=5) |
+| Justice Dept. Demands Private Patient Info From Trans Youth Medicine Providers - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPeUdrWkV5QkJoUVlpMW5jU0xJaDlJSjNLSEFyQnZTY1IwbENmS051ZmI1b0ZSRDF1ekp3dWlTZ19uNnJrNU1objhTcnozbGhmRzJ3MG9wbUZKOGRsdm1BRW9WcV9ONGNKOHp2dnJTTjBzMF9ZMncyTWFPUnVkaTdJY2VISjJwS1lqQTNSZjJUbnhMc0E?oc=5) |
 | Mahmoud Khalil seeks $20M from the Trump administration -- or an apology - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOQ3JYSDl6M2RJdXVHRGt6Wlh5VEJHWkxGdExuNUVsdVlLTURLX2hqNjZUdURQSG5mYldYaTBkNk55Qm5pZUdvdFM5VnFWazh0VDYwNFlkZ3o2THQ3Tkc1bTd0NmZXT3RqSDlPZlZSX3RjcEZBdi1GZFJpWFc5MlNxRnctWnZqSVoxQ1dNTkppT3NvQUF5U0VtczdoRWlRWEHSAaQBQVVfeXFMTVlnMU9WZDNBZzFkUlNyX2RTMXo4SmdHMDVVd3NYZV9aLUxrUGlYeXQ3VkloU20xREpfZmRtRDlZc2NJc3BwU3FkNWJhUkpQM0JFRnZsRDc5R1BValFsaGZDVHVpU05GZnBSajg2eGc0WEQyNnlVc2dULXNxOVJ5V1ZLOGl1RTZvV3FZR2wwQjdKVWs4R2gtZnpSeFRaNEIxeXZiMXE?oc=5) |
+| Did fiscal conservatism block plans for a new flood warning system in Kerr County? - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPejRTcmVPMmczclpJdFJqODFzNnF4U3RkMG1tQldPOUJWelBySWNwam9jMzNxWVhaMmNzeDMzVEgyRGU5U2FZQUNWb2pXakY5ZWRxdkdRR3N1SXYwS0pVQ3FOcWVlZnNISDhFZEg2YlFlaW5zWlJNcDEtRUdlMUtjNUVsMmE5YUYyRlBGd0ZFQllaMDg?oc=5) |
 | In South Carolina, Newsom Tests the Presidential Waters (Without Saying So) - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNcmxqNWNSdmFVQkRkNFduQmN2NFFSbGstRVJXN0dhbkh4bzU0bnRodUwzeGFCelRxb2RtNUc1Tjh6Vno0MzlzUk5QUGFMMmpoV0RaMFllX1M2MGNvUHEwSksyYUUxNWhDbVViTmJOM05xeTg2UFBidGdRcGFIYXotcUh2Ny00ZzJ6UFBPV2I2WQ?oc=5) |
+| Secret Service suspends 6 agents over handling of Butler shooting - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNaGlPWVAzQUIxcWQ3R2JzQ2phbVpYOUVlb2dMdFhBS3FGNm1ZekpJSFBBVkFySjBiZW1uV2NSeWxPcGVBSHVsdnhEOHdkb2tPOXhiXzNnb21Qb1VZN1pkWGR0MU5xWWJ0TjRXSWh0SHItVUtEd0Nzb0NlazZTdVVMNDViN1NCUGtOVGxZQm9CN25HdS1pdnZHY2ZRaUY?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
