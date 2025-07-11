@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月11日 23:00:51（北京时间）**
+🕒 更新时间：**2025年07月11日 23:14:23（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Protesters and federal agents clash during raid at Southern California farm - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOQWtqeTYza1hGcVRxdkxGWE5LY3U5ZlgydzhHMVh4Y1ZfeVBpVGR5VExCMGZ5Q0M4UTRtbzVQcDdWTDhHR3EtWFRCWFgwRkFUaGtoX3dGSHBGbU5nSVE3UmE1el9tZExLSzYwb25sREVwNjMwVk8tUmFFcjJ1amlhT19yeFplUEJsNTBpS1dGSHl4UUM1Vm1UNDNtOA?oc=5) |
+| Trump looks to quash criticism on natural disaster response during Texas visit - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE90WXlzd3c0eVZYcmp2eVhpekUxMS1qVVQzcl9ULVpCVWR2U0FIMFlyX2tLcUpPRWEwdV9fc2JWWVNGa0pmd05sSWJaT0tKWHhHQkdMcVFqaVNUd2thOEpNa21uS3Vxc3g0MWNOWXBnVkN6QmtlVGc?oc=5) |
 | Trump says US to impose 35 percent tariff on Canadian goods - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOUWRqeFhfbTEwcUFoRzRlTWhxZXNXVDdERG1zVndyM1lZRVA5Wkdjb0tqVUI1RlYzUXRUZkxIWm1TaFJpWU1lcnp2c1lUVmMtTFdkUUl6ZTZaMERHZXQ1QWNJWEFBVzNOdjhJSzZjTkNrWGdVTklIUl94ZFItcUF4Y2ZyZzdOOUxEWGM4MWFicUNOUTBRNlltVg?oc=5) |
 | State Department is firing over 1,300 employees under Trump administration plan - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQbXk1VmFpd1NzSk9sVDlUMk5EblZBQ0ZvTktjem5ERUFkZnh3SmZaUVNpZlZsLWUtbFEyRGdvVmY2ZW01d0t3ZEVlUEJKUFdDdnVmVDl1N2xLS1FXNUVRTUUwWE9wV2FfWlVGTkxrVWY0bnVac3hBc0t3d28xcEdmc0c1THdxZ29pcUtGU1I5MUNaWVgtS21lR2VqY1BBQ0RSMWdrR0t3OENNZw?oc=5) |
-| Trump looks to quash criticism on natural disaster response during Texas visit - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE90WXlzd3c0eVZYcmp2eVhpekUxMS1qVVQzcl9ULVpCVWR2U0FIMFlyX2tLcUpPRWEwdV9fc2JWWVNGa0pmd05sSWJaT0tKWHhHQkdMcVFqaVNUd2thOEpNa21uS3Vxc3g0MWNOWXBnVkN6QmtlVGfSAXtBVV95cUxQZXByQ1lCYkFMaTduSkp4MlBYMUdDX1hETll0WE0tVkZWQjBNQ2xXNngtV2xxWGpTSEk4cjR2dVVfSkUwLWU0Q2RwQ2dSTHg5ZTJzb3pMSXZBS1hhVHBNeE5kbGNJTUJUcmlzdUZITDNLZGxURjd5M3ptQk0?oc=5) |
+| Man appears to fire pistol at immigration agents in California protest, feds say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOUUJFdGlMU2MtVmM1NWQ4WlVEeDhyUUMzQnNuM2pXYlRHMHg1WjZjcTFHYUJ3MTl5YXdvMzJJcVc0Q0ZzOWZPWktKcHRzWHdIdDdYdGxjck1UdjlUQnNfeGhhQjlEMGo4dmVfSi00aUdOOHBhbEdTbEV1dWMyM2txYllNM3prbWpWNjVBNjJsU3JBTlc1cEtxc3lqYTBucFVDdDNBekhycGNVZDE5eURfYS16dThsd9IBVkFVX3lxTE1YUy1INFZULTluV1IwbHdRWkhqRjdJV1NhanZnZFNFdmxYU3pvV1ZXVFh5Ylh1Z2R6RGVXNHR5cHdyUFBjcXctVURlZF9FWWpPRHdUb2pn?oc=5) |
 | Trump defends global allies against "witch hunts" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQUWxiUDBBVHVFczRzTzJMMUtOMXFEWGZnamJ3bWlScUhpOWxvYTRZTEh6YlZ0RURWNlBRbGZJRnJWTDN3bW5hcEdYOTlvRkE4Q1FfaEhSRXU0VjBCU19YalBSV3RDU2NJb1V0SVEtYnJCbk0wazZMVGp2alJGNlBIN2hn?oc=5) |
-| How Netanyahu Prolonged the War in Gaza to Stay in Power - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNb08yRHl3V19ST1RXTE1jTTVncXMtUkhWOTRNNXZMZTViMFJ6MXlsTEd6VVRyZ1V5TDVKd0IyOWV5LWRsb1pTa1c0T1RkZDZ0dmZEZ0w3MGw4cTFFV2ZaMXZLNlFrOEpvN2hReUQwRWdKYnlxWG5kMzBhc2ZJUV9QbEJR?oc=5) |
-| Missouri governor signs tax cuts and raises vehicle registration fees - KSDK | [阅读全文](https://news.google.com/rss/articles/CBMi8wFBVV95cUxNWEROMGlZeC1EX1h3andSY2s2WFpEN0xROHdJaWNYZk1wTmFVN29QTm44UG9ZbldJTmtTUnVCSkpGc0J6Y0F2RkpGTGMtX2Q4dUlwNnA3WDQ1VkVCR3NTMFJ6VHdEdUxybk1fbHpoU291VGtwbHBJdHN4OHBoQ0I2Q3dfRXpIdWtWNzZ6bDBiRnk4aHFxSnpJaXltOTdPV2tFV2lmeTVJMGNNZDBXRDl1Z2RGekJTaElHU3RQcjlPbUhhbUNPRDJQdkg1Z0lNLV9jdm5EclNWOXFWMUsyR3B2WnFkS0NYNFdvQzBaTFNQVVkteXM?oc=5) |
+| Ukraine to receive US Patriot air defence systems, says Trump - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5tMXZQWTA2TEtQejY5UmhHZkRsUkxmQXNrdk9Nc2pXM1M2ZEhFZjRtNmlFaVZOcUsyMkl2enh4WlE5UlJ2WDNPXzBJY3lDekJZYlIzSzU3Rmo0UdIBX0FVX3lxTFA3MTl2eGdMZVJpSDduVU9HcDRwSWtUV29UNnRlSElkTERGUEJaZm41S0dTX3UxWTN3MFNSX3ZYY0JRUk54MDJZelVhY1J1MTdlM0pOOHZhbUxDb2haZlNz?oc=5) |
+| How Republicans’ Texas gerrymandering plan could backfire and help Dems - Politico | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBCZktRelVPMGlMcGJOMGVwUHAwQmYxVElhWVU0OVFFVjg1U3VYRzdBSTlUTXVZLTVKdWlnT0xBRVN3dUhBcjJ4N1QtdEhTbnlxbjZGV3A4SEVFYzZkMzhUY1FlV0lzN3hsWXIyUVRsd3BHM3NrNThvNQ?oc=5) |
+| Missouri Gov. Kehoe signs bill repealing paid sick leave - Missouri Independent | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPZHN0VUo5Y1dVQ2ZVSnd1SEN4MGJyb0s0Q2ZhQi1BWE5oV2VremFIbTFFcFY5TC1KcGZVa0wzejQtV1FyTHUxQzg4ZFNncjNsVklFc0VMa25IUkM4aVoxY3h6U25jbmJEUGcyVmthN2VlREJkc2JNZmhBb3JUVC1oVmVVTUV0cDFELWhDMU0zYWxPTkdQdWhoVGkyZ1U1WEl0?oc=5) |
 | Six Secret Service agents punished over Trump assassination attempt - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxQNmJaMDEydFRmSDE1TEsyMVhiQ2IwMmY4SUpsYy1lUFVjZE8zUzU4S1Y2bzhTWFJHanB6NmU1WDNUSl9xY1AxT3NQdi1GTHk1UnZ5RGw4UzNMRDk0T1BNeERfdWZrQ3VIc0JQdEJqZnpqMnNmNEF4N2pGWGhsOC1OY3czNVpRaGZLMmNYNFJWY0dGYlM1NHJjWko3bUZxVXBSTGhxQ2loLVpnZVhPRk13WngtOUptaGdERkdveg?oc=5) |
 | Dozens taken to hospital after suspected mass overdose in Baltimore - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBjWlRQSW5YaVFqNEozU2pvM3pQMGJsLXkwVkhPbkVEbG9ab2JmUkYzTXpYYjFINGUyT3hMNTZZYjA5d2J0UXdZdmhiZ1UwOWJLVWpjUEdjb0s3QdIBX0FVX3lxTE80Q3R0RnI3dGtsclBhRHlrRy10czFvSlBVVmEtN0R4VlpxM21Ea0JSN2NHREowdWtFUXNpbTd1Z21vOHJIQklLMHFDcHNoWU1DZElmbVVhcmdvWXprTWVF?oc=5) |
-| Explosions Rock Russian Drone and Weapon Plants After 155-Drone Blitz - Kyiv Post | [阅读全文](https://news.google.com/rss/articles/CBMiS0FVX3lxTFBXcVFhM3VZRHpCa3VOT3JrSndqYlhUU2xLRkVwRzNOQ2hlbW42MW1SYmpqZGJEWWRycWE0eG9VNHAxSHprei1ZSXlBWQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
