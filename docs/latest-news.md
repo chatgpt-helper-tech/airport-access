@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月11日 13:13:35（北京时间）**
+🕒 更新时间：**2025年07月11日 13:26:50（北京时间）**
 
 ---
 
@@ -13,9 +13,9 @@
 | Trump threatens 35% tariffs on Canadian goods | [阅读全文](https://www.bbc.com/news/articles/cvg819n954mo) |
 | Surgeon banned by private practice is working for NHS | [阅读全文](https://www.bbc.com/news/articles/cev0n2r0d2yo) |
 | As UK faces third heatwave, is this weather 'just summer'? | [阅读全文](https://www.bbc.com/weather/articles/cwyrw66jkkko) |
-| Children queuing for supplements killed in Israeli strike in Gaza, hospital says | [阅读全文](https://www.bbc.com/news/articles/c4gd01g1gxro) |
 | Delays and shortages in UK's F-35 jet fleet, watchdog says | [阅读全文](https://www.bbc.com/news/articles/cy0wdyxpqvro) |
-| TV doctor and IVF pioneer quits BMA over strikes | [阅读全文](https://www.bbc.com/news/articles/c15wxn851eqo) |
+| TV doctor and IVF pioneer Robert Winston quits BMA over strikes | [阅读全文](https://www.bbc.com/news/articles/c15wxn851eqo) |
+| Children queuing for supplements killed in Israeli strike in Gaza, hospital says | [阅读全文](https://www.bbc.com/news/articles/c4gd01g1gxro) |
 | Gregg Wallace faces backlash over autism defence for misconduct claims | [阅读全文](https://www.bbc.com/news/articles/cx24lxl85wyo) |
 | Rosenberg: Putin determined to press on despite threat of tougher sanctions | [阅读全文](https://www.bbc.com/news/videos/cz9kqe5v379o) |
 
@@ -29,7 +29,7 @@
 | Trump Live Updates: Latest News on Tariffs, Ukraine and More - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTFB5SGFLQ2hJQl96VVd0YzBpSmFBblhNaThYQUJMSmFwc3pIeTM3ZzF1ajZSRzE3VjJIQ2QwUmFhcThOV2FNU0hZV1FRWjgtVDJ6WjBVcC1TWEtkbjJZdkZuaE5kVQ?oc=5) |
 | Budget limits at DHS delayed FEMA’s Texas deployment, officials say - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQSGFoMnRpTE52VzE5WG5JTGRqQlVvS3RJN3VaTmZ6OGc4SGRua19sZUZVdzV6WHZGelhSaVhtemJ1Z2hhX2lyV2tkMEFGb1JnT2JwZTBjSkZzeVJpVmxPR3BCMGpRN0Rzd2JFZUFiRjdIeUFDQ1Z6TkdKM2R2czhPWE5KbXNMTEl1bEFGTVVOWUtZRm1nWmx0M1ZvQlNDWVA5a3c?oc=5) |
 | DOJ subpoenas more than 20 doctors and clinics that provide trans care to minors - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPbHpNQ1dxRVJva194VmV4OTh0STJXUGNSbGk5anZzeXhNcHVkTzVCOFU2b0lDU2hVZ3R3V3dyWW9TaFZ4RG1nWTR1azVCNmxWLUFsOHI4cWFUcWx1R1R2S2tNc0xkenZuVE40OFdHRU1hZEdZN3U4ZVVuZjYzS005WmNaOFoxU1NaVGF1U2Nyd1Fya3NFdHdnOTlLeXFaZUJ1QThWT0xEU3NGaDR5eGV0UG1pRVRiazJELWVUR2NCbmstVnPSAVZBVV95cUxPbUU0NDVSMXF2SzQ4bkpPTkFnQlo0eEFjT1lvZWxhRFFlSGYtY1g1N3Zma21rbk9mOFNQSkxBTHktaFNOdGtZU0g5OXIySGR5UzlUM0hwUQ?oc=5) |
-| Mahmoud Khalil seeks $20 million from Trump administration over immigration arrest - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxOSFpxdXpXc1ptMGFvSlVPdHBqTXQ3MXE5YXU2M2VCTm9MSTEyNk9Na0c0eFBqMnpRT2ttanZiaGljLXpLRkpjRjloOGczbURoZXhrYWhONmFUMEM4OXhxcVk0Q21zdlFQdktiQW1TaEc3RGlvS1VnTDh5MjhBMjdiUVZ4OUQyZUdmOEc4a0k1d3YzOEk5T3BtSXpUZTdnem52LVlqRGpOUEU0S3pBVjBDLTBYR3c0a3FTWXZ5azdSQXdOc2hEWFRGaw?oc=5) |
+| Freed from ICE detention, Mahmoud Khalil files $20 million claim against Trump administration - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPcE9HcENPOXVzVEJXYU5tQ0poazhlNjcwbzVGSXpIVFZjWDhrSVc3MU9qMXNVYnkxVHIzTVhVcmRfVlRUS3lLbHBJZnpFWGtDR1pTSWlkb3JwaUhTcGRGWkFHT1FQSGVQcXltMGdDSmdQVVN2a1ZydlFKX2NqYWNKcEpxa9IBiAFBVV95cUxQdkhNY2pqSVh0VDFPLTV4MVY3dGZZeXpoYWJibVBRLTVsekxTdkxvQTNtQkRTWU1odkcxbGxVSGtwenZQUXpVQklwdlhBRmJuWmN2YnVYZWF2UkdFNjczb2pVRDlWTE5IRGlUaXJqQmtyTXlrbEhwSW5RdndiUVUzT2FLcHd6YTNz?oc=5) |
 | State Department to begin layoffs in effort to downsize government - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNd29fVmFOUnJtdzdZalZhZ3doNkJWaXFHUjBIQzZoREd2TU1fRTlzTEpsTXA2Qm5XRExtdlJpYl9rQk9HakZhN0ZnNUlGQWNWX1ltalFxYmhqTUxWeE52cWt5emtwZ21uSVFPd0pheWVRVXZFQ1lXMWJOVUo5XzJJeVE1aXFwSUFrOXRCQkJMZ1IzNzhGcXlEYjVn?oc=5) |
 | Secret Service suspends 6 agents over handling of Butler shooting - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNaGlPWVAzQUIxcWQ3R2JzQ2phbVpYOUVlb2dMdFhBS3FGNm1ZekpJSFBBVkFySjBiZW1uV2NSeWxPcGVBSHVsdnhEOHdkb2tPOXhiXzNnb21Qb1VZN1pkWGR0MU5xWWJ0TjRXSWh0SHItVUtEd0Nzb0NlazZTdVVMNDViN1NCUGtOVGxZQm9CN25HdS1pdnZHY2ZRaUY?oc=5) |
 | Texts, emails bolster whistleblower account of DOJ defying court order - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPODFtODE5NERCQ1MwM0d2bml2cU82cnNhSkc1TkFlcnBvNlhMNjhGZ1VaNElzMkJaWjJIdWh6NlJhSVMybFF6NTJERnhkcXktelpWNnFtT1lmWVhJQkplZjc3ZGlkMWZIXzMydU1JUUNiX1prTDB5QnppRHpLQURrUlYxUjdHSDNiTTlkV19xVDYxUUhGMGNhaTV5VFY5ZXVQWEp1V3RKaFFKUmpqR2E2U0J3?oc=5) |
