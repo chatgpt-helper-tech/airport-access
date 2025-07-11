@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月11日 11:53:52（北京时间）**
+🕒 更新时间：**2025年07月11日 12:01:15（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Mahmoud Khalil seeks $20M from the Trump administration -- or an apology - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOQ3JYSDl6M2RJdXVHRGt6Wlh5VEJHWkxGdExuNUVsdVlLTURLX2hqNjZUdURQSG5mYldYaTBkNk55Qm5pZUdvdFM5VnFWazh0VDYwNFlkZ3o2THQ3Tkc1bTd0NmZXT3RqSDlPZlZSX3RjcEZBdi1GZFJpWFc5MlNxRnctWnZqSVoxQ1dNTkppT3NvQUF5U0VtczdoRWlRWEHSAaQBQVVfeXFMTVlnMU9WZDNBZzFkUlNyX2RTMXo4SmdHMDVVd3NYZV9aLUxrUGlYeXQ3VkloU20xREpfZmRtRDlZc2NJc3BwU3FkNWJhUkpQM0JFRnZsRDc5R1BValFsaGZDVHVpU05GZnBSajg2eGc0WEQyNnlVc2dULXNxOVJ5V1ZLOGl1RTZvV3FZR2wwQjdKVWs4R2gtZnpSeFRaNEIxeXZiMXE?oc=5) |
 | Secret Service Suspends Six Agents Over Trump Assassination Attempt - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9BN19jSzg4YVlOR0pqNWV3ZHNDZDlKVUFUdFBnZ1U1NVBQSUxPSEhzRjlJQzRndl9PekR1LUNkQS1pYnJyWTE1OEl6Y0xCTk5tY1o5Y3BPandLTFFUZ3VXME5UOE1RbnJQa01aZDhTT05GQ01VRExoNkN0STQ?oc=5) |
 | In South Carolina, Newsom Tests the Presidential Waters (Without Saying So) - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNcmxqNWNSdmFVQkRkNFduQmN2NFFSbGstRVJXN0dhbkh4bzU0bnRodUwzeGFCelRxb2RtNUc1Tjh6Vno0MzlzUk5QUGFMMmpoV0RaMFllX1M2MGNvUHEwSksyYUUxNWhDbVViTmJOM05xeTg2UFBidGdRcGFIYXotcUh2Ny00ZzJ6UFBPV2I2WQ?oc=5) |
-| Internal DOJ messages bolster claim that Trump judicial nominee spoke of defying court orders - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQNTdDSHlzYmFRelZ3Yk43WXVxT0hoTWdJXzdpWGJBY0N2djl6Zkg3RlZVMEZzQ1lWR2QybTY2bnBndEM3N1ZuSk1ROU5zcEF0UUtmZmwybjVrdGFOSHFVbzNjZXVVVnd2bXFOUVd1eHJwVUZacDVMTkJIaDBvdnFCd0otNFlKNENVcW9B?oc=5) |
+| Texts, emails bolster whistleblower account of DOJ defying court order - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPODFtODE5NERCQ1MwM0d2bml2cU82cnNhSkc1TkFlcnBvNlhMNjhGZ1VaNElzMkJaWjJIdWh6NlJhSVMybFF6NTJERnhkcXktelpWNnFtT1lmWVhJQkplZjc3ZGlkMWZIXzMydU1JUUNiX1prTDB5QnppRHpLQURrUlYxUjdHSDNiTTlkV19xVDYxUUhGMGNhaTV5VFY5ZXVQWEp1V3RKaFFKUmpqR2E2U0J3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
