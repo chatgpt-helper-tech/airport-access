@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月11日 13:53:17（北京时间）**
+🕒 更新时间：**2025年07月11日 14:01:15（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | TV doctor and IVF pioneer Robert Winston quits BMA over strikes | [阅读全文](https://www.bbc.com/news/articles/c15wxn851eqo) |
 | Rosenberg: Putin determined to press on despite threat of tougher sanctions | [阅读全文](https://www.bbc.com/news/videos/cz9kqe5v379o) |
 | Officers who confronted Southport killer honoured | [阅读全文](https://www.bbc.com/news/articles/c9w1nkkvjz1o) |
-| The Wimbledon finalist who lost in qualifying last year | [阅读全文](https://www.bbc.com/sport/tennis/articles/cwyrk91g912o) |
+| Hosepipe ban prompts frustration as leaks continue | [阅读全文](https://www.bbc.com/news/articles/cqx2y21p1xjo) |
 
 ## 📰 Google News
 
@@ -28,10 +28,10 @@
 | Did fiscal conservatism block plans for a new flood warning system in Kerr County? - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPejRTcmVPMmczclpJdFJqODFzNnF4U3RkMG1tQldPOUJWelBySWNwam9jMzNxWVhaMmNzeDMzVEgyRGU5U2FZQUNWb2pXakY5ZWRxdkdRR3N1SXYwS0pVQ3FOcWVlZnNISDhFZEg2YlFlaW5zWlJNcDEtRUdlMUtjNUVsMmE5YUYyRlBGd0ZFQllaMDg?oc=5) |
 | Judge blocks Trump's birthright citizenship order after Supreme Court ruling - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxNWHVJS1RCTmxfbG1qM3FTR2VCSXJuUmNTYXlHVUhYVjNEbmRyd0tzQUJ3Q29MUzljR1JUTGNfZm1Qa2pXdWVpems1RnBPdkVfV2tvVG5LS3h5VXhWVS1LeVpOd09kclZuRXVKSWZHbm5HOGEwQWVUQnhUb205X0stMldkWjZLRXlsMDc4WTNBdVFlendmQ3lLTTZXY2NGMjY2MGdKQ1hPbldGN0hkbDRCakhUQ2VGSnpxbm9aOXRpemVzQllELWR1aUYyNA?oc=5) |
 | Budget limits at DHS delayed FEMA’s Texas deployment, officials say - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQSGFoMnRpTE52VzE5WG5JTGRqQlVvS3RJN3VaTmZ6OGc4SGRua19sZUZVdzV6WHZGelhSaVhtemJ1Z2hhX2lyV2tkMEFGb1JnT2JwZTBjSkZzeVJpVmxPR3BCMGpRN0Rzd2JFZUFiRjdIeUFDQ1Z6TkdKM2R2czhPWE5KbXNMTEl1bEFGTVVOWUtZRm1nWmx0M1ZvQlNDWVA5a3c?oc=5) |
-| DOJ subpoenas more than 20 doctors and clinics that provide trans care to minors - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPbHpNQ1dxRVJva194VmV4OTh0STJXUGNSbGk5anZzeXhNcHVkTzVCOFU2b0lDU2hVZ3R3V3dyWW9TaFZ4RG1nWTR1azVCNmxWLUFsOHI4cWFUcWx1R1R2S2tNc0xkenZuVE40OFdHRU1hZEdZN3U4ZVVuZjYzS005WmNaOFoxU1NaVGF1U2Nyd1Fya3NFdHdnOTlLeXFaZUJ1QThWT0xEU3NGaDR5eGV0UG1pRVRiazJELWVUR2NCbmstVnPSAVZBVV95cUxPbUU0NDVSMXF2SzQ4bkpPTkFnQlo0eEFjT1lvZWxhRFFlSGYtY1g1N3Zma21rbk9mOFNQSkxBTHktaFNOdGtZU0g5OXIySGR5UzlUM0hwUQ?oc=5) |
+| U.S. diplomats brace for layoffs after months in limbo - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOM3dtcDNtLTVoUUlYNXNtaWVNNjhzdXpzbkZDY1dwZ1cyQmxTQU0zV2d0UUp6Tl85V09JeXdEUVZKbzZLTGxvTGZaX2JPWjZyLWE5aEpITzBYSVpBSUR5V3A3M2YyYkY3RjJ2c0xGUS05dE4td2s5WU8tbmVSUmJDUWZJRTVHTXN4N3B2cU9Vc3k3RnNQTFlhLW5CaVdKUkszR01QNUFrSdIBVkFVX3lxTE5aYzJoNjBXZXc1aDI4ODRHeURaV3lDc1ZBb0pBQkE3Ny1wUWZuYmlVcVkyQ0RvVDJWck5Nd1AwTHM4WDRoWHVLQnJvUU5vRGN3Vm5GNXJB?oc=5) |
 | Freed from ICE detention, Mahmoud Khalil files $20 million claim against Trump administration - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPcE9HcENPOXVzVEJXYU5tQ0poazhlNjcwbzVGSXpIVFZjWDhrSVc3MU9qMXNVYnkxVHIzTVhVcmRfVlRUS3lLbHBJZnpFWGtDR1pTSWlkb3JwaUhTcGRGWkFHT1FQSGVQcXltMGdDSmdQVVN2a1ZydlFKX2NqYWNKcEpxa9IBiAFBVV95cUxQdkhNY2pqSVh0VDFPLTV4MVY3dGZZeXpoYWJibVBRLTVsekxTdkxvQTNtQkRTWU1odkcxbGxVSGtwenZQUXpVQklwdlhBRmJuWmN2YnVYZWF2UkdFNjczb2pVRDlWTE5IRGlUaXJqQmtyTXlrbEhwSW5RdndiUVUzT2FLcHd6YTNz?oc=5) |
-| Trump news at a glance: state department plans mass layoffs in line with president’s ‘America First’ policy - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPdExWeUFObUlpS2pacDlMclAxUUVKLVNQeEFQOC1qQjNVR2wwTEFQSVdpWG5NVFMtc1BPb2k1RWpwRFExTGZpeWhaRFlKLVNHYjVBc1Y5a0pWYnZpb0JHZ21uQVV1eW5iZHhxNnF2Z2hOWmphNlVtZHVNdWpteWRNSUtINF95Zw?oc=5) |
 | Secret Service suspends 6 agents over handling of Butler shooting - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNaGlPWVAzQUIxcWQ3R2JzQ2phbVpYOUVlb2dMdFhBS3FGNm1ZekpJSFBBVkFySjBiZW1uV2NSeWxPcGVBSHVsdnhEOHdkb2tPOXhiXzNnb21Qb1VZN1pkWGR0MU5xWWJ0TjRXSWh0SHItVUtEd0Nzb0NlazZTdVVMNDViN1NCUGtOVGxZQm9CN25HdS1pdnZHY2ZRaUY?oc=5) |
+| Trump Administration Is Forcing Prosecutors to Ignore Law, Whistle-Blower Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNRDRDS3VZZGd6c21Fa3JPNnd4cmJ2SkxWNE9JMzNKZ2EtWlBzZzNkMVVkbHEzcTVmZExtNFY1UzVjNDFjQkdHUHlfTVM4amlEQW51Y0I5WW4zeFVVMnNCdWpWMzFLTGdtX0NORGZod1VjR0xfZEZ3a25YSHBIanptWDJKSEg1aFUxSWx3R3BMX0U3N25lalJldGxsVFFVZEF3LTdz?oc=5) |
 | What should you do in a flash flood? Expert safety tips for before, during and after - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPS1ROTXlTRWtDWFowQ05rWHVGc0szbXZTV3BxQU9uTklTbHh1YzByeV9TTlVyM3Z3a2NUbzB1VmlfQllrZGpicHd3aDRJU05Zb2VxTzR2c240WUxDcllWOXF2WjQ1VTJPZ0djQjUyUDYxQk1ZdVNVaUFTSml4emVSYVJ3bnp4SFBH?oc=5) |
 
 ---
