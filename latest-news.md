@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月11日 21:53:09（北京时间）**
+🕒 更新时间：**2025年07月11日 22:01:12（北京时间）**
 
 ---
 
@@ -12,10 +12,10 @@
 | Two residents die after car crashes into care home following police chase | [阅读全文](https://www.bbc.com/news/articles/c9w1n78qq8lo) |
 | Unite union votes to suspend Rayner's membership over Birmingham bin strikes | [阅读全文](https://www.bbc.com/news/articles/cx24de0d9rdo) |
 | Gaza's largest functioning hospital facing disaster, medics warn, as Israel widens offensive | [阅读全文](https://www.bbc.com/news/articles/cdx5zeywgrgo) |
+| Man killed outside Knightsbridge hotel named | [阅读全文](https://www.bbc.com/news/articles/cqjq9zjq7djo) |
 | The Salt Path author's next book delayed after 'distress' of newspaper investigation | [阅读全文](https://www.bbc.com/news/articles/c20r4p55vdvo) |
 | Reeves says latest GDP figures 'disappointing' after economy unexpectedly shrinks for second month | [阅读全文](https://www.bbc.com/news/articles/cq6mvem8neno) |
 | Mystery interstellar object could be oldest known comet | [阅读全文](https://www.bbc.com/news/articles/cx23g5jpj9go) |
-| Chancellor shelves planned changes to cash Isas after backlash | [阅读全文](https://www.bbc.com/news/articles/cqjq9yxkkrvo) |
 | MP Rupert Lowe investigated by standards watchdog | [阅读全文](https://www.bbc.com/news/articles/ceq7z421pwzo) |
 | Outrage builds over plan to force all Gazans to southern city | [阅读全文](https://www.bbc.com/news/articles/c9dgv7v1d06o) |
 
@@ -30,8 +30,8 @@
 | Takeaways From the Times Investigation Into Benjamin Netanyahu - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNLV9NRDIzOXZpWEhnZlhKa2hsNmlBZk1sRHlVanF3MXA2SDZTUUd0Z010YVo5ZVZINUllUkpxVF8temlOUnBoQUEyTE5UaXRUajdaUzVrNVFtWWt1bmJleFFPV3BkWV9nRWwtZFNhVlh0RkR0dEJadnN3RHJYU3VhVmVxRUZMM3JJbWJsam80NjYxXzJDTGlmUUlNcEQ?oc=5) |
 | State Department workforce reduction: ‘There are simply too many people’ - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQcHc2X2JhV3N2SHlrSDcyb0psSFZpelU0Q0k5X09zUFdGNi03SkNUamdpMGhSTFJfbkFjajdkbXJWd3A5RVVjWDAyUWJSSFdPUUoxbTV5YUFuYW5CU214LVZJNE5fdFFfU0FPTy1McXdiUkhIb1JXZW1Cam93enN3ejRxeWJxNlV4QTliMVNCd0N4alBDQ2pSQ19SUG1aNW9FOWNHR09QeTNyZjNfTWVhSmtDNlF2SGvSAbwBQVVfeXFMT2ZKOFN0YkZPSkNDMUNYLUtfQkJFUEctSzM2UEQwdVY3YVM1UTdJVTJFYi1vdXRPRl9qaHpocVFHcEJBbGsyR2tkaHBDMnlRQ3FKMS1jZ2dDeHluVnJuc2hKdkdyc3R6U283blgzdVU4ZlhrZ0gzZVhZOFdXeGUzRjdSX3V0bWhiVTk5M3VUemR4R3FOSHBGUm1Ra0lMNXZ1aVRpbC1HSHNIN0M4cmFLU2JDSlE5cGtodmE1MGs?oc=5) |
 | Secret Service Suspends Six Agents Over Trump Assassination Attempt - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9BN19jSzg4YVlOR0pqNWV3ZHNDZDlKVUFUdFBnZ1U1NVBQSUxPSEhzRjlJQzRndl9PekR1LUNkQS1pYnJyWTE1OEl6Y0xCTk5tY1o5Y3BPandLTFFUZ3VXME5UOE1RbnJQa01aZDhTT05GQ01VRExoNkN0STQ?oc=5) |
-| Missouri Gov. Kehoe signs bill repealing paid sick leave - Missouri Independent | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPZHN0VUo5Y1dVQ2ZVSnd1SEN4MGJyb0s0Q2ZhQi1BWE5oV2VremFIbTFFcFY5TC1KcGZVa0wzejQtV1FyTHUxQzg4ZFNncjNsVklFc0VMa25IUkM4aVoxY3h6U25jbmJEUGcyVmthN2VlREJkc2JNZmhBb3JUVC1oVmVVTUV0cDFELWhDMU0zYWxPTkdQdWhoVGkyZ1U1WEl0?oc=5) |
 | EU waits on Trump letter as markets digest latest tariff salvo - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQSHVReFMwQ1pPcXVpRTNvSERWZHRIdUNsQ2NkQXM2WC1Ta1BDTk5jNU1Zbi1YbnNMOE4tNEtGQ2pfLWlHWU9hdHprN1BGWTNkUlhISGtzSE5pYjA1ODY5ejFtRGRJWmRuWXktTEZLTmFqOTYycHZObVctaW12NEROTGN1OVU3TDh3MEMyTllmR2ZoTlAyOHdZamFWOVo2TmVjLVljazlUTQ?oc=5) |
+| Missouri Gov. Kehoe signs bill repealing paid sick leave - Missouri Independent | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPZHN0VUo5Y1dVQ2ZVSnd1SEN4MGJyb0s0Q2ZhQi1BWE5oV2VremFIbTFFcFY5TC1KcGZVa0wzejQtV1FyTHUxQzg4ZFNncjNsVklFc0VMa25IUkM4aVoxY3h6U25jbmJEUGcyVmthN2VlREJkc2JNZmhBb3JUVC1oVmVVTUV0cDFELWhDMU0zYWxPTkdQdWhoVGkyZ1U1WEl0?oc=5) |
 | Trump defends global allies against "witch hunts" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQUWxiUDBBVHVFczRzTzJMMUtOMXFEWGZnamJ3bWlScUhpOWxvYTRZTEh6YlZ0RURWNlBRbGZJRnJWTDN3bW5hcEdYOTlvRkE4Q1FfaEhSRXU0VjBCU19YalBSV3RDU2NJb1V0SVEtYnJCbk0wazZMVGp2alJGNlBIN2hn?oc=5) |
 
 ---
