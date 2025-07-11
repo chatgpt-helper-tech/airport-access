@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月12日 07:40:18（北京时间）**
+🕒 更新时间：**2025年07月12日 07:53:15（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Emergency 911 systems go down in US state leaving thousands to fend for themselves - Daily Mail | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOeTNGMXdqdnloVG9nNUc0Z3lFY1cwSjg1OVJaV1NGTXZ2cjdxMTIxYlQxZ29Pd251dnBmMl9TemZpek9DT1pyRzJvRl9UeWNnS2ZiVjIxQXF1NHltd0QwbC05VzhHUE1YeThYbW1uV0tZQkVxamZQMWYtM3I0VnJZVWRtdkc5TW16YlZGMklpOWJVM0FpUTczcGZmVEY?oc=5) |
 | Guantánamo plea deals for accused 9/11 plotters are canceled by federal appeals court - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPRGtYeXdVS0JISzZZUFZYTFU2UUFPWWNTazJIbHRFNmRrY3ZmbXlWOXpXUjJqTFM2SzlvZzZ5OUlaWUZXblVfMThKeDd4cG9uVVloSkU4cXM4UWVIM1pVTDlkOEFLVFpta1F6RVM2UmhYMGpLb0h5UnYtTkFMbTBEMXZlVUFucGlZbTNr?oc=5) |
 | Dow falls 280 points, S&P logs weekly loss as Trump trade war escalates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE4xOTA5alhNNDVXTXlqVFVWYUhCN1ZvTjdlTUhfY2dXTDRvdkIwUjM2QThfZnhkajhPVExseDhvWER2RFhFUTVsNW9CaGxJSWk2dTQyeGVJMlpDRVpRRDkyekhtZDJra3V5SHd0VDNhU2R6RnEwY1F3?oc=5) |
+| David Gergen, political insider who advised four presidents of both parties, dies at 83 - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiaEFVX3lxTFBzRFJxb3dBTndZU0tQdGVMbW1TbU1RZEF6djUtUkVleDJQaG9UeGp5S3pXeWxpRE1pUXpLZ05KcFVyeXJJY1NvOVRXLUFFVEM2clZoMGQ2LTU4ZzMyR3doMXdUVzV3RmR1?oc=5) |
 | Trump's 50% tariff on Brazilian goods like coffee and orange juice could drive up US breakfast costs - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNMXB3ZEVrQThmTEJDc3Bwa241MkFXV1NzNWJybXpmbHVGa1NsQ1ZNLUs3Z3ZsaGFXV2poTG1ya25WdlhCcXRja1Q5TUl5aUNoQ0ZfZlJsd0wyZl9tZUtyV1AwWXB0UmFocmZIY1JTd2FRUGJBanlOZS1HbW1SQ29udGhqMm1GSU1LdEh3UURoYzMxdndtTG5WZDZ3aGcxOExzVkE?oc=5) |
-| David Gergen, Washington Veteran Who Advised Four Presidents, Dies at 83 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1Yak1JTUNRUVA1dmQ4Mk9wV2MzUE9rVlFnc0pBSXdIVHhwOU9ON0tjUHFESlhURmllcWtncnpET1U0anJHem9IeGJrMFFGTkY1SDFjUldVaUg3WHRPUmp5VVE5Z2dmWjE5MXVKeEttOHp4NWNGLVRtdQ?oc=5) |
-| State official defends canceling visas of pro-Palestinian academics - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOc182ZWxnTE1RMjVfaFh0N2I5by1aaU04UXVyTi05a0FJWnNRRFRZVDUzT0M4bExhRXQ3TEpiZ1ZLdlRERmxrWl81OS14dk84NmVwQWZnQU5xYm14TmhKNC1XakVxeG9zbTVNcHUxSi0zRjN6Yjc4R2phMFpVTGROYnNib1pZbEluVkFFWmxVZlFPbTZ0aXItNw?oc=5) |
+| State Department official defends canceling visas of pro-Palestinian academics - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOc182ZWxnTE1RMjVfaFh0N2I5by1aaU04UXVyTi05a0FJWnNRRFRZVDUzT0M4bExhRXQ3TEpiZ1ZLdlRERmxrWl81OS14dk84NmVwQWZnQU5xYm14TmhKNC1XakVxeG9zbTVNcHUxSi0zRjN6Yjc4R2phMFpVTGROYnNib1pZbEluVkFFWmxVZlFPbTZ0aXItNw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
