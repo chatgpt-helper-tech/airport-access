@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月12日 02:53:49（北京时间）**
+🕒 更新时间：**2025年07月12日 03:00:41（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | As Trump Sows Tariff Confusion, Rules of Global Commerce Give Way to Chaos - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQYmZhQXh2dEhWWTJ3MEhGZ1JRNEVMYnQ5cWdkT2pza3lsYjMxYXVIaVJueE0wcFJBM09Ja1ltNlZPSzR1LTNZNmNlVkxMamt5Q0xsMkNFNkV5d2tnTWF5Qjd3ZkN0aDM2SkVRSG9Hd1FRWkIxVFVNYmFrZFBRdXJYZndFVU84NnpjSGxmUTF3?oc=5) |
 | Ukraine to receive US Patriot air defence systems, says Trump - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5tMXZQWTA2TEtQejY5UmhHZkRsUkxmQXNrdk9Nc2pXM1M2ZEhFZjRtNmlFaVZOcUsyMkl2enh4WlE5UlJ2WDNPXzBJY3lDekJZYlIzSzU3Rmo0UdIBX0FVX3lxTFA3MTl2eGdMZVJpSDduVU9HcDRwSWtUV29UNnRlSElkTERGUEJaZm41S0dTX3UxWTN3MFNSX3ZYY0JRUk54MDJZelVhY1J1MTdlM0pOOHZhbUxDb2haZlNz?oc=5) |
 | Scoop: FBI's Dan Bongino clashes with AG Bondi over handling of Epstein files - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5RNlllS2NNeTZMZTlGZjcxT0M2a2pxZlYyTjBYd2lEVzFvVzlfMXctLXVoX0xIR0p0RnFwVEh5c3Z3X0lZOXV1NDg2RndyZWJlZ1JaUHhjVEloMHhMLVBDakFWay1CU3RIMWJwMzhNdFVfMGRoTzgybEdfR0xFSjQ?oc=5) |
-| Stock Market Today: Dow Slips After Trump Threatens 35% Canada Tariffs - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPNk0zNXV5WHdSQW1nUFpkbDZtT0p1YU1GdWNRa0hKNTNyWlA5LWp3SlRoSUFvc3VkVm1oWHRDUWx5Nm5DWHRETTlUOGgwYU5TbXBoZ3BCMW11Nmp2RWF5RHVLVWQ0RmZ4MHRLUDFSX1pMUFFHVFhaNVpRc3lVX0E0b2hPMWE4Zk0?oc=5) |
-| Kerr County Repeatedly Sought Help with Flood Risk. Texas Said No. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOODZRYjdfS0FvZ25kbHB0ZlVmTzNjUW8tT3NEazF6RUZwU3lkQTdjdm91Q25RaVRlNnhtVURKRS1kX0RtVEhGRlZjeUQ5VEhvVjd1YTNiX1VlVFB3eXhGejdNUmdja1NzYVZCZElJVVM3NlhyVGNuM1BSTUswdkFKb3F3?oc=5) |
-| Trump defends global allies against "witch hunts" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQUWxiUDBBVHVFczRzTzJMMUtOMXFEWGZnamJ3bWlScUhpOWxvYTRZTEh6YlZ0RURWNlBRbGZJRnJWTDN3bW5hcEdYOTlvRkE4Q1FfaEhSRXU0VjBCU19YalBSV3RDU2NJb1V0SVEtYnJCbk0wazZMVGp2alJGNlBIN2hn?oc=5) |
 | Missouri governor repeals voter-backed law guaranteeing paid sick leave - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQclRnaHNoX1M2dmlRSTh0SEdTZHgzT0xLMEc1UWFpVzZxMTB3SUxFVXBrVVQtVEpZOFVOamZIMmx3MVpPWHBLYlRyUkI3R2Z2SFRZeDlCb0xfaE1HNEtrWXoxc2dBcUVyOFc0ZVRWZUctX21LTjRGNWd4NVJQSGc3ck5UOUhUbVJuRXR1NE02RUw?oc=5) |
+| Appeals court throws out plea deal for alleged mastermind of Sept. 11 attacks - spectrumlocalnews.com | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxQZFNHV1pxNHdzVnNsT0JOU0V4enRSNzgzY2FpQUZJbWlzZGRNQ1hyVTVNNTc2ZFBRdUYxcEI4TlBYSUZqdUdjVXlrWU5sY0RCS2RjaFk1TnlPZnJNYVFoVDJkTjJhdlBnQkRfUlAwYXNrWW0xMjFMNVJMVWkycGRteFQyMVRPcHFKWFVhb0wwY0gzOHVRWGhNQ2ZhU2s0cVI1WlNPOThnLXBuak9TWlRaY0NEU2V5OTM1Rk5wU1Awa0hrMExJaXVkUXRB?oc=5) |
+| Behind Trump’s Decision to Tax Brazil to Save Bolsonaro - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNdDMwazlTUzNDTExyMk5zM0FyWHMxeE56WndIdUk0MC12NktwbTJjalQyWFdWZlhycnRyTXpRZTNjUWRkamgwRGduYVluSVgyU0xibzBjV3lCV1NuaFM3TnVpVmhJdTRDRHp5TGV6UmZGNHkyeG1XcHMxUFY4blB3Yg?oc=5) |
+| Stock Market Today: Dow Slips After Trump Threatens 35% Canada Tariffs - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPNk0zNXV5WHdSQW1nUFpkbDZtT0p1YU1GdWNRa0hKNTNyWlA5LWp3SlRoSUFvc3VkVm1oWHRDUWx5Nm5DWHRETTlUOGgwYU5TbXBoZ3BCMW11Nmp2RWF5RHVLVWQ0RmZ4MHRLUDFSX1pMUFFHVFhaNVpRc3lVX0E0b2hPMWE4Zk0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
