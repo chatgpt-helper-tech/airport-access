@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月12日 09:53:39（北京时间）**
+🕒 更新时间：**2025年07月12日 10:00:26（北京时间）**
 
 ---
 
@@ -13,9 +13,9 @@
 | Faisal Islam: We are heading for significant tax rises | [阅读全文](https://www.bbc.com/news/articles/c9dgn647nplo) |
 | BBC faces dilemma over new series of MasterChef | [阅读全文](https://www.bbc.com/news/articles/cm2mx9x5yrno) |
 | Trump surveys damage in Texas as search continues for 160 missing | [阅读全文](https://www.bbc.com/news/articles/cr5vlp0pmdzo) |
+| Alcaraz expects to be 'pushed to limit' by Sinner at Wimbledon final | [阅读全文](https://www.bbc.com/sport/tennis/articles/cy8gl12d7lxo) |
 | Watch: Russians tell BBC how they think Ukraine war will end | [阅读全文](https://www.bbc.com/news/videos/c1wp55wqq0lo) |
 | Liverpool to retire number 20 in honour of Jota | [阅读全文](https://www.bbc.com/sport/football/articles/cpqnwpxle79o) |
-| Ruthless Sinner beats Djokovic at Wimbledon to set up Alcaraz final | [阅读全文](https://www.bbc.com/sport/tennis/articles/ckg52kr13ggo) |
 | US has resumed military supplies to Ukraine, Zelensky says | [阅读全文](https://www.bbc.com/news/articles/crl04200dp4o) |
 | GPs to refer patients for gym classes and career coaching to reduce sick notes | [阅读全文](https://www.bbc.com/news/articles/cwyx880d1w8o) |
 
@@ -31,8 +31,8 @@
 | Pennsylvania experiencing statewide 'intermittent' 911 outage - WTAE | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1CR2dmdjl6VFVYbFVaa3BTMWptNXRiZThxLVpvWkdvWXJucWY3Zzg5WHNweHJxR1ZtZXBEMzNIUGw0MWdDVkxqRzVVYjBPaVg3VVZoWGY0UkxuRmtIc29mcUJnc2hSWFlTNE5oLVJDazk5QVVEYkpwZw?oc=5) |
 | Canada pauses new tariff threats as Trump escalates - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNQ3Flc3ppMUlkQlpKWmstbGJGbjlMSmRRQ2o5QXlaN2U2bUEwMGxfbFRjZVYybGJLOC1zWllvMHpGM0xjbHhnbEt6WThyaTI4aWRoU2RKbmRwVVh4R01DNnc3WW1NTjJHV1BDX1BLcDg5cl84ZnpPVERJeUV6NEJwMzV5NnhyVzQ4TW1Wa0RMMFU0VDRsMVNydmYtQ1o5MWZOYlJhWXowTVU?oc=5) |
 | Miami archbishop slams Everglades migrant detention site known as 'Alligator Alcatraz' as 'unbecoming' and ‘corrosive' - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQZjJIQ1NVMkZrWXkxcEtYSU1lU0pBcUxEVXNyc0tlRzUzS21PSUh4TlROVkJZaVMyb3RtV0I3LXZFS0h6aHZNZWJMNlh4TE1FbU1WS0d3MWRmamtPWFk0RHdnMnFmQmY2OG02V0pjeklJSTlQX0Jmd0s0bWt4M0h0bXlLUlRNWDN2d00zUU83dDUzRTlOUTBmSjY0SWlIUzZxUmpGRE1B0gFWQVVfeXFMT3NuQmdwX2dobWFOS1c3V0VWYlZra09yT2NxV1BBbFA1UktiV0NGRWloNkk5cTRBcnhqSUhRODhlcnJwTWxBa2oyanVpNW03QU5OVXZyMHc?oc=5) |
+| Trump's 50% tariff on Brazilian goods like coffee and orange juice could drive up US breakfast costs - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNMXB3ZEVrQThmTEJDc3Bwa241MkFXV1NzNWJybXpmbHVGa1NsQ1ZNLUs3Z3ZsaGFXV2poTG1ya25WdlhCcXRja1Q5TUl5aUNoQ0ZfZlJsd0wyZl9tZUtyV1AwWXB0UmFocmZIY1JTd2FRUGJBanlOZS1HbW1SQ29udGhqMm1GSU1LdEh3UURoYzMxdndtTG5WZDZ3aGcxOExzVkE?oc=5) |
 | Guantánamo plea deals for accused 9/11 plotters are canceled by federal appeals court - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPRGtYeXdVS0JISzZZUFZYTFU2UUFPWWNTazJIbHRFNmRrY3ZmbXlWOXpXUjJqTFM2SzlvZzZ5OUlaWUZXblVfMThKeDd4cG9uVVloSkU4cXM4UWVIM1pVTDlkOEFLVFpta1F6RVM2UmhYMGpLb0h5UnYtTkFMbTBEMXZlVUFucGlZbTNr?oc=5) |
-| Man Who Decapitated Father and Displayed Head on YouTube Gets Life in Prison - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOMy03eTh3OHNTcm9KU3lISk50QkFRN21FSGxuZ29qNFU5SlEwNXB2bjdIOHlsNEZWc0VWQ0tnOC1IYllHMXBhdUJ2eDZJMDR6ZW1CNzFIMDJGREFyQnNPMC1KM2tfQkV5S2w0QWRjcEtVbk9qVHN3ODdwZlByRUZzZEFIckFvdzRUOGQwRA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
