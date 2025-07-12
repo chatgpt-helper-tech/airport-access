@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月12日 08:53:41（北京时间）**
+🕒 更新时间：**2025年07月12日 09:01:37（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Pam Bondi and FBI’s Dan Bongino Clash Over Handling of Epstein Case - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQUEVvZTU1aTdaY1d2bHlwcUx4V1ZPcGpMMjE5YTNMZ294alN6eHA1aDN3aFgzUENhbjRRbU5BUjJvMDlGc3pxem1NYlpSZkQ3dXdVY3dNc1V4alNRMEhOU3k3N2RYU2lrakJkbDJ4NUNVekdmLV96Vk1ZSTlqX1UzVE5BLVRtZF9MZ1FEX1dvZnF2d3FyMW56M05tUQ?oc=5) |
 | Trump praises FEMA response in Texas after earlier threats to eliminate agency - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQWlMtUEVXTzl5UEhmQlpLdHUwWmtZS1hPTzVqZnRSbGVsa09xSmg5dG85Vl9pRl9adHAzRUV2dVFCV1BobkF5cnJBRXN0N2RsZHR3U05USGNxX1V3dkd1ZFRKdHM5WXM4OW1kaml0cW0xenloeEpENXJubXJQR0p2aTZkSkVrRWZR?oc=5) |
 | State Dept lays off 1,350 employees as reorganization nears final phase - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQSjhpRGV0d2IyOUFpNjZ2WE01X1gzRjljRVpadHNUX2FlRWhaMjdZZG13MnpNVFdGdmRnaTRsSy1FT0k1TnZQZFdZVEI2aWlJNGdITG5VaWt2UjFpZVNhRzFfTi00Qi1lX2V3dTNCNDh0cTE3VlpzTld6cm5qWm13b1c5MV9OcWdsTHBTUldQTFRhR3R1S1F6ajJPOWw5TWNybXRSM3QxMjJncDJPbkxfVTFKX0VYOW1SNDFNRjBQT1hNdndJNWk4?oc=5) |
-| Trump’s Latest Canada Tariff Threats Come Despite Cordial Negotiations With Carney - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNT0d1cS1VT3pvd01EUHFhelQ2ck1XSGZ2LXAyeUt0SWhFN1U4VmlLQnVGS0VHeUFaQjBBbmhFbkU3d3BiN2RSYWp4OG9FdG54TWFvRWVGbkFMVnZyWUpDNWZISU90UGZpem1YY2V6NjJnUThwcUpMMjE4Z1ZMei10Rk9pLVRHMVhxa3hUNVlR?oc=5) |
+| Canada pauses new tariff threats as Trump escalates - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNQ3Flc3ppMUlkQlpKWmstbGJGbjlMSmRRQ2o5QXlaN2U2bUEwMGxfbFRjZVYybGJLOC1zWllvMHpGM0xjbHhnbEt6WThyaTI4aWRoU2RKbmRwVVh4R01DNnc3WW1NTjJHV1BDX1BLcDg5cl84ZnpPVERJeUV6NEJwMzV5NnhyVzQ4TW1Wa0RMMFU0VDRsMVNydmYtQ1o5MWZOYlJhWXowTVU?oc=5) |
+| Miami archbishop slams Everglades migrant detention site known as 'Alligator Alcatraz' as 'unbecoming' and ‘corrosive' - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQZjJIQ1NVMkZrWXkxcEtYSU1lU0pBcUxEVXNyc0tlRzUzS21PSUh4TlROVkJZaVMyb3RtV0I3LXZFS0h6aHZNZWJMNlh4TE1FbU1WS0d3MWRmamtPWFk0RHdnMnFmQmY2OG02V0pjeklJSTlQX0Jmd0s0bWt4M0h0bXlLUlRNWDN2d00zUU83dDUzRTlOUTBmSjY0SWlIUzZxUmpGRE1B0gFWQVVfeXFMT3NuQmdwX2dobWFOS1c3V0VWYlZra09yT2NxV1BBbFA1UktiV0NGRWloNkk5cTRBcnhqSUhRODhlcnJwTWxBa2oyanVpNW03QU5OVXZyMHc?oc=5) |
+| David Gergen, Washington Veteran Who Advised Four Presidents, Dies at 83 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1Yak1JTUNRUVA1dmQ4Mk9wV2MzUE9rVlFnc0pBSXdIVHhwOU9ON0tjUHFESlhURmllcWtncnpET1U0anJHem9IeGJrMFFGTkY1SDFjUldVaUg3WHRPUmp5VVE5Z2dmWjE5MXVKeEttOHp4NWNGLVRtdQ?oc=5) |
 | Trump's 50% tariff on Brazilian goods like coffee and orange juice could drive up US breakfast costs - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNMXB3ZEVrQThmTEJDc3Bwa241MkFXV1NzNWJybXpmbHVGa1NsQ1ZNLUs3Z3ZsaGFXV2poTG1ya25WdlhCcXRja1Q5TUl5aUNoQ0ZfZlJsd0wyZl9tZUtyV1AwWXB0UmFocmZIY1JTd2FRUGJBanlOZS1HbW1SQ29udGhqMm1GSU1LdEh3UURoYzMxdndtTG5WZDZ3aGcxOExzVkE?oc=5) |
-| Guantánamo plea deals for accused 9/11 plotters are canceled by federal appeals court - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPRGtYeXdVS0JISzZZUFZYTFU2UUFPWWNTazJIbHRFNmRrY3ZmbXlWOXpXUjJqTFM2SzlvZzZ5OUlaWUZXblVfMThKeDd4cG9uVVloSkU4cXM4UWVIM1pVTDlkOEFLVFpta1F6RVM2UmhYMGpLb0h5UnYtTkFMbTBEMXZlVUFucGlZbTNr?oc=5) |
-| State Department official defends canceling visas of pro-Palestinian academics - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOc182ZWxnTE1RMjVfaFh0N2I5by1aaU04UXVyTi05a0FJWnNRRFRZVDUzT0M4bExhRXQ3TEpiZ1ZLdlRERmxrWl81OS14dk84NmVwQWZnQU5xYm14TmhKNC1XakVxeG9zbTVNcHUxSi0zRjN6Yjc4R2phMFpVTGROYnNib1pZbEluVkFFWmxVZlFPbTZ0aXItNw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
