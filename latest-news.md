@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月12日 17:01:22（北京时间）**
+🕒 更新时间：**2025年07月12日 17:13:59（北京时间）**
 
 ---
 
@@ -13,9 +13,9 @@
 | Men charged after women die following care home crash | [阅读全文](https://www.bbc.com/news/articles/cql0gl9e1pwo) |
 | 'They were just kids': Mother mourns sons killed in Israeli strike while waiting for aid | [阅读全文](https://www.bbc.com/news/articles/cy9xgrrq54go) |
 | Faisal Islam: We are heading for significant tax rises | [阅读全文](https://www.bbc.com/news/articles/c9dgn647nplo) |
-| What we know so far about Air India crash investigation | [阅读全文](https://www.bbc.com/news/articles/c5y5nq170z4o) |
-| Fuel to engines cut off before Air India crash, preliminary report says | [阅读全文](https://www.bbc.com/news/articles/c79qrez8gqlo) |
-| Who are the victims of the Air India plane crash? | [阅读全文](https://www.bbc.com/news/articles/cdd28legnzvo) |
+| What we know so far about the investigation | [阅读全文](https://www.bbc.com/news/articles/c5y5nq170z4o) |
+| Who are the victims? | [阅读全文](https://www.bbc.com/news/articles/cdd28legnzvo) |
+| Fuel to engines cut off before crash, preliminary report says | [阅读全文](https://www.bbc.com/news/articles/c79qrez8gqlo) |
 | Inside King Charles's fiery gathering that shone a light on his beliefs | [阅读全文](https://www.bbc.com/news/articles/c0l4jppyjzjo) |
 | Med Sea heatwave might feel nice for holiday swimming, but there's a catch | [阅读全文](https://www.bbc.com/news/articles/c4g2v1l7j6yo) |
 
@@ -32,7 +32,7 @@
 | State Dept lays off 1,350 employees as reorganization nears final phase - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQSjhpRGV0d2IyOUFpNjZ2WE01X1gzRjljRVpadHNUX2FlRWhaMjdZZG13MnpNVFdGdmRnaTRsSy1FT0k1TnZQZFdZVEI2aWlJNGdITG5VaWt2UjFpZVNhRzFfTi00Qi1lX2V3dTNCNDh0cTE3VlpzTld6cm5qWm13b1c5MV9OcWdsTHBTUldQTFRhR3R1S1F6ajJPOWw5TWNybXRSM3QxMjJncDJPbkxfVTFKX0VYOW1SNDFNRjBQT1hNdndJNWk4?oc=5) |
 | Canada pauses new tariff threats as Trump escalates - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNQ3Flc3ppMUlkQlpKWmstbGJGbjlMSmRRQ2o5QXlaN2U2bUEwMGxfbFRjZVYybGJLOC1zWllvMHpGM0xjbHhnbEt6WThyaTI4aWRoU2RKbmRwVVh4R01DNnc3WW1NTjJHV1BDX1BLcDg5cl84ZnpPVERJeUV6NEJwMzV5NnhyVzQ4TW1Wa0RMMFU0VDRsMVNydmYtQ1o5MWZOYlJhWXowTVU?oc=5) |
 | Man Who Decapitated Father and Displayed Head on YouTube Gets Life in Prison - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOMy03eTh3OHNTcm9KU3lISk50QkFRN21FSGxuZ29qNFU5SlEwNXB2bjdIOHlsNEZWc0VWQ0tnOC1IYllHMXBhdUJ2eDZJMDR6ZW1CNzFIMDJGREFyQnNPMC1KM2tfQkV5S2w0QWRjcEtVbk9qVHN3ODdwZlByRUZzZEFIckFvdzRUOGQwRA?oc=5) |
-| David Gergen, former White House adviser and News Hour political commentator, dies at 83 - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOWG1aWmxDVWdweDhLX0N6aldYN2JhVVNDcDItRzliVHdqdWF3a2hoU0w4c1NBTTVSR2tXa3F2VXZKVWFCVzFQZnFEeXRiOEhyNFhxcmN1Q2plTFR6ZXF3dUhPT0lwUUR3bF84azJfc3hRRVBIMld5clVFYWlhTURQdlcwQm9IWTVLZWZXb3QxVUFYdk1ac19GSGhkMWdtMjMyRHdWN2FBQzczcDNNaWN6cjJ2YVNJTkltNHV4NVNZONIBxAFBVV95cUxQRVZsMGpFSk1CM3NYNC1OOHU4M182QmVhTk9EWDEyZzlNbEJPbmlKWVA3VEdVV29rNGlNTGhScjNidUMwYTdnb1E2YnRYdWhEV3YzelIzQ1RjWEVuYU85WTh2cHRmcE8weHVjX3ZkMUk0bHp1UGxqM3FoTTNMTE1ubjlERDY5bUMtVzZxT04xOTdVc2ZFVml4R0tkTl8xOXpmNlkxclVmWVJHb0g5TU9DemItRG5sa3E4c1NJMXFUbUsxdjgw?oc=5) |
+| A Texas family clung to life on their roof, capturing the terrifying flooding in photos and video - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPVzk0SlZnQmREQkRjajFfdlExUVBiUzdVbU5xWF9xY0tld01mNVBueHpVTDdBaDMtZk04U0IzRWFFdHd6ZW4tWEltaXBVUTBpSFlVQTI3Q013clY2bXljcUdKMzJkWjV0OTQ1MWxFT09mWnBkLUhva05TQWZOeWtnc3p0TzUzWkpwdjM5blNVR08zZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
