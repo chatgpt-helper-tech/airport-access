@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月13日 04:41:02（北京时间）**
+🕒 更新时间：**2025年07月13日 04:53:29（北京时间）**
 
 ---
 
@@ -23,15 +23,15 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump says EU and Mexico face 30% tariff from August - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1VMEFaSVV1VERUMnJ5OFlzcm5Va1BRMGdKalgyVnJ0em94T0RmOTdWZmxndXJoNlF1dk96X2ljMHdfZ29qMHMzRjBxUUp2V0xHZUZ0c3NpMEdGUdIBX0FVX3lxTE4yTG53SGJoQllFSS1BMGtuU0ZyMHEtaVYxM0d5dUJ3V19RR3RhbUhrZEhMamhPNnF2YWQtYXJkelZEOFRSdTFEbmhsYzZERmp5aWxFRGZWTnRIbmItdkJJ?oc=5) |
+| Trump intensifies trade war with threat of 30% tariffs on EU, Mexico - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9OTWlDbkFVcERhVld0MXRUbnREX2RqdUxnT3prN2xKZlNkcnhyaFVrMHhkMTdWdU1XNUo3YVZOZkJQNUk3VmlxN1RhVTZzUDBoTU1BZmdiclhPX0EtZ18tdGVZZEUxdHduZG5hV1E3NXF4SVhEYWpMX0tqSWx3NkE?oc=5) |
 | An Army of Searchers Combs the Banks of the Guadalupe for the Missing - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPamg4NmQ0b1NZd3N6b0JRQXhiT2FqODZ4RXkwek5WT3NoNEN4Qk9naHNNUkdDWGRqZGE4cGpOaGJMSmoxV3A4bnIxVEpvaXlWYlFfMVQwMFZUdTFoNExMTnpsaTRRSk96YnI0Ymltc2d5THhDTjd0U0ZHSExsZ1VqOHpIVzZPX2VfUnhIVlpfdkc0M0R5OWNvYk9CS1p2aWZ5WnNUNENuSDZMV1NFb0lIN19OcEdJMkxFREE?oc=5) |
-| Israeli settlers beat U.S. citizen to death in West Bank - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQMk15cFJWRmcxb3hscUJLWDBNQ21XVEdiZ0d1QUNDY0VIMEU0SUdpOF9JQnZjWmVPVWdudjh5a0pTal8tUVlvOFRXU3hpdTdVeGVVMGZ2VHRXRUJPb2tHMFhXMHFDZTJncnJCWkkzWllPb09BMmxncjNlUVBFNExNelRaeVhvQTdyTUtYd1B3SQ?oc=5) |
 | When key provisions in Trump’s ‘big, beautiful bill’ take effect - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1MeFJaSnl1MmZWUFR5a1lYTnRMQ1Jwd1I3bWVya1dIcWpsMWNvU1JMRXhsaDVqVjR5RGlqeC1hRlp2aEZRNmszUGNNenRUdUpqU2hkZXhpRlFGUFQtQVJKcTN5UTJ0WVpPNzN4aFZKb0QwalNvbFpqZW130gF_QVVfeXFMUG16QUpfZkY1V0RpaTVtaDNYdHZudUdDamRGenUwdlM4SzFRaEJ1ekYwQzR3WmUtNUQ2WUVIY2FFeWdzeXh0TVJZb2lacWFRQmtzLVM3UnFHeTF3cGlxMjNNZTZSOEFoTTBGMFY3WElKOFVqd3BacUM5TGtkRVFWRQ?oc=5) |
+| Israeli settlers beat U.S. citizen to death in West Bank - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQMk15cFJWRmcxb3hscUJLWDBNQ21XVEdiZ0d1QUNDY0VIMEU0SUdpOF9JQnZjWmVPVWdudjh5a0pTal8tUVlvOFRXU3hpdTdVeGVVMGZ2VHRXRUJPb2tHMFhXMHFDZTJncnJCWkkzWllPb09BMmxncjNlUVBFNExNelRaeVhvQTdyTUtYd1B3SQ?oc=5) |
 | How the DOJ's Epstein memo led to a Dan Bongino White House blowup - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1rTlVMNHdoRE1zdnA2VkhnelZpai1vWk9JVFIxR0RKWnNSZTh2VWlZeWRLMmNTY3BWRExadi0tMDZaa19sX1NVMmVfaWdXUi1zdkV5UV9lejZCWHhOMXhDY2JkZWFlYmUzajUzSFc3ZE1Sc1dv?oc=5) |
 | Judge orders Trump administration to halt indiscriminate immigration stops, arrests in California - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNMDJ2emlnT01OTG5vN1lNT0l3UDBFaHhUU2JnS1VtWFUyQVBvcGlrVXFZVzZlclJYTjJmWjVRNkJvd0pfRzhNdnRYU3lKZ1VKUGVPVGE4YUZQRGMwZW1wWVBLa2J5aV84cXZWc0FUbEQzeUtFd3kweWlqdGxDQ2hWX3dJYjFGZnNBWWNSR3Q0alR3VDFWSzB4SGVpaUU?oc=5) |
+| US Justice fires several more employees from Jack Smith's team, sources say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOZkJaUUhyeS1tcXFRbjBVaXh0WE9kM09EUXdzZUd5clY0Yy1ZSnpFdWRJSUJtbjBfOEVKcVRrVGx4UHZkWU1wT2E5bHdZX3VId2RCT2VtMEJtcEJIYXRnd0FRNFl1ZXlvb2VNSlo2VmlOc1NKNTBNUlB3WEJlS00tcDByQjhvcXgzVndGaHlRTG1BUzNNT2VpQmlvdF9tdjBfTFQyOHhvUWc4SGZoLUlJ?oc=5) |
 | US: Worker reportedly dies after immigration raid on farm - DW | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQbUt1YzZSQ3hOaWlTanFQeUVKeVJTY0gyMnZRcnUtYVZ0bWxJUjFlOHZMa040eUprRXpFU2Q2UlRBSWZ4X3V1cGlTV3gxZXFZXzgwUjhZLUtqdGRCQS1mTVJqMVo5d1NSb3YwQkpCQzVzYUdsMVl0VS02X24yMXdkWWFYYU83WllYMjZqMFJhRUl1S3fSAZMBQVVfeXFMTkt4TkkzUzFjc3RxTXpXNkRSQlRaaVJXdGNnWFgweWk3SW43RzZlRU95WmJJMGNab01nNGJFOGNsb0RGUmt4N1h2NmFMOUg3WnBVLWVmakwwdFExRTBxMkxJS3cwVjQ3dVJic0tNMTFzMUx1YkZpMmFqaEFzNWxoME91Z3RrTVlDaXdhelBrYk92VExn?oc=5) |
-| The lingering mystery of the Trump shooting: Why did this young man do it? - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNU0RxLUdqNWg5bzRrZm43aVdZN05LY0MxcUpYQkx2b1dRYkpnbG90a1dqWEZlcFBtWTVQbU9LelJzemRqSDFxM1dITC1OT0xLaVlpenpxYzM0VGlrWkJTMExBLTQxR29xSGtGQU1SSDJEYTNNaEhMMkdseUNzVnZES2NLT3JrM08ydzl5VFRDb1E2U1BVT2RFUnc4TWk0QQ?oc=5) |
-| Trump says he’s considering ‘taking away’ Rosie O’Donnell’s US citizenship - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNQTZ5MTlHcjVHRXpHY2Zwa3lwLWhiV2JPbW5sYy1TZ3FBYzBaUmw0NHp0RHdFbGdxVG56RGhPN1duSkxuel9lb0dwakN3OVI0UWdfOVkzclViaUN4aHVoNl9Pc1hfbXBzZ3Z6bDJHOUlnb1FxLXA3cl8tOWpWSGF3MTlfdmRiVDVabC1rcmZjTFNoV3hmOG1z?oc=5) |
+| A year after Trump's near-assassination, friends and allies see some signs of a changed man - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOcFZ6MHNKUFY0cHM4UmtMUDBfdWNndzFwc2h0Q3VEQTJKcVdMTkRRc2JOUjE3ZEZMU256QWdsVXpTVUgwU2k1dU1QMUVoSDhWOEZPRU93dENTQW9TRFNySm5kMnFhS0ItTlpwNFVjd25JZXJ5eExRYnZIYUp5WkRFdVhlSnpxMFJxM01iYXE5YlJuNVFZcW44dkNBOC1mbWs?oc=5) |
 | Air India crash report answers one question – and raises more - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE9UU1ZoajFJbF9QcFFoQTlLeHNNaU8zVzQtWFY5MVhudTBwcTR3VUt6RTJzbDV2dk50Rll4LWszVk1tcGI3ZmdvMlRZWF8zdUpaUkNGRTVTNmFadUZfdzhIMzlwNUM3bDUtaTZmdkRpM1c4Vi1iZmfSAXtBVV95cUxNWUdjRHNoc0JUVjVfLW5TQlFkWWZkOFByeXA5RHlrVlI4a1BqdDhYMjRLaVlGYUJLNXRNaURyU1BkNHU4Y1B5Z2RmN2pnS1hKUksycjdXcDJyUUlfOGdtVVhSdi00TE80dHhnM2lRX2I0WHZYQ3JmcF82RGM?oc=5) |
 
 ---
