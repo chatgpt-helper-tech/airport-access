@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月13日 02:40:37（北京时间）**
+🕒 更新时间：**2025年07月13日 02:52:03（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Kash Patel will resign if Dan Bongino leaves; FBI chief ‘frustrated’ with Pam Bondi - Hindustan Times - Hindustan Times | [阅读全文](https://news.google.com/rss/articles/CBMi5gFBVV95cUxPbDNDU3BLX0poTHJMSjhVbVNscTJrZzhLY2I4U0o1OTA5bGctdnV1VEw2RnBXR2doUWJYWExDZnYtTGhQQzRXZ0pHOXpwaFVuLUhmM2dUeUxrNndZc2pYV19kQ2JyV0MyaVhKcVQ3V0ttZndUekxhcEY1LXhrek5odU1GLVMtSlFlOVZlLWphV1dtZGcxUk1xVklkSzkta2c3SU9pcG9pR0hsOUMtQ1MyMEIyTFk1Sy14YzFuaC1RZGVpX0xDUkpXb0FsT0pJZjVUTVJhMS10MkRzdGl0X1lvMWNHZVllZ9IB6wFBVV95cUxQbUlLVXNwbFlKXzU2MXlCUF8yRUdfbEhQM1lRM3AtSHBhNU9ZcTVWbmEza0pvZlkwclBsZjZLazZjRVBYMWlmaWVuN2pTeDRTNENzekhZbnF3VWhRbTM0S1FXN0EweEljQXJZVm4zdmFvU254Q1l3Z1BYY0g2WGQwQTc1akh1TGZ3RjlTdEVUUHhHM3RyOXZweG5aUzQ3SkpyUEtpVEY3OVlBLWJERHVTNjFNZ1dyVkNqazFWcHhDTlVlQ3JzZkNMc1lINHRyUFlBWmcxbGt6VmI0OVl5Tkxlb25wS2hCQmx5UFZz?oc=5) |
 | An Army of Searchers Combs the Banks of the Guadalupe for the Missing - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPamg4NmQ0b1NZd3N6b0JRQXhiT2FqODZ4RXkwek5WT3NoNEN4Qk9naHNNUkdDWGRqZGE4cGpOaGJMSmoxV3A4bnIxVEpvaXlWYlFfMVQwMFZUdTFoNExMTnpsaTRRSk96YnI0Ymltc2d5THhDTjd0U0ZHSExsZ1VqOHpIVzZPX2VfUnhIVlpfdkc0M0R5OWNvYk9CS1p2aWZ5WnNUNENuSDZMV1NFb0lIN19OcEdJMkxFREE?oc=5) |
 | GOP warning sign in new poll: Trump’s voters don’t love his tariffs - Politico | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5fTGNvWm1EcEV3UTBTM3pMcUtWSXZGX2JWOTJDSzhDSHRfT0pYSkI4TWxnVHpoSmZkWDdyeGFhTW93Nnh4SXFJcERjRGNDMDRJVHh0MWVrZ3lBMHFrd0lLcjBMaWRDbEJycV9rX0czNkVZR09fa0k1Q2VOWmxXQQ?oc=5) |
-| The lingering mystery of the Trump shooting: Why did this young man do it? - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNU0RxLUdqNWg5bzRrZm43aVdZN05LY0MxcUpYQkx2b1dRYkpnbG90a1dqWEZlcFBtWTVQbU9LelJzemRqSDFxM1dITC1OT0xLaVlpenpxYzM0VGlrWkJTMExBLTQxR29xSGtGQU1SSDJEYTNNaEhMMkdseUNzVnZES2NLT3JrM08ydzl5VFRDb1E2U1BVT2RFUnc4TWk0QQ?oc=5) |
 | Trump’s frightening 7-word to Melania revealed by lip leader as they visit flood-stricken Texas; ‘Look at how…’ - Hindustan Times - Hindustan Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAJBVV95cUxNLVV2aENsdTVCVDRvRXduREdRWV84ZVpIblRBNE8wY1FBc3N5cUlSblRJeEhkdEZZMkRoVTQzLW9LY1hoM0t1QUhaSkQyelFkVF9zSVUwSFNSRmZaLU5pSndvSnJNUi0wbmo2WVpCTnNMTU1MQjkyNjNPLTdBMFhhM2FHRnl5Y3c1eTdQSEVsSzM0ckU0NmlZenE4ekJoUDZzb0o0QWVJQU5EVEw2ZHlEcUc3SmFSV1NHcFV2VThXWkpqbUx4UTZBMUlZcnlDS1U3SU1ZSjBMYWJsblE0WkFCSFk0TFF1N0c4N2p4UEpDN1VFT29iejZBNjlyV3ZqYWpudXFYbGwweWrSAY4CQVVfeXFMUG0tMUdrckpDTWFFcm41REV4enF6cDllQk0xc3VLbGlJWjhnLUlIMFdRM0tOdmJrYjViNWJTZnoyWTFjbWhPQ0g4NnZCSUQ4WHJEUnhzOENZUlZSZDBLVG13Zk0tMFdQMDZIeV9wMlNkY05QYk9oR2hIbTM0ZU8xWUJVWVRvTmFHSGMzNWNfLW9NWFBlYUl6bnVJMVRCczFtTHJTRUl2N3RuUmRWTWZ0NEkwbGtDeHJ0NFFvc043QkdydjFVdVpkTzRwTDZWdDFOUjF2MDNOLWM1eG8zYktXSmhaWWN0SnJsc1RQeWl6UVB5a2RwdTlYWmdYeGdGVGlrTUZDc28teTFnczhRcU9B?oc=5) |
+| The lingering mystery of the Trump shooting: Why did this young man do it? - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNU0RxLUdqNWg5bzRrZm43aVdZN05LY0MxcUpYQkx2b1dRYkpnbG90a1dqWEZlcFBtWTVQbU9LelJzemRqSDFxM1dITC1OT0xLaVlpenpxYzM0VGlrWkJTMExBLTQxR29xSGtGQU1SSDJEYTNNaEhMMkdseUNzVnZES2NLT3JrM08ydzl5VFRDb1E2U1BVT2RFUnc4TWk0QQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
