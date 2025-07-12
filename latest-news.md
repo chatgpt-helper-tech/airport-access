@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月12日 22:40:48（北京时间）**
+🕒 更新时间：**2025年07月12日 22:53:10（北京时间）**
 
 ---
 
@@ -9,8 +9,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Watch: How do fuel switches  on an aeroplane work? | [阅读全文](https://www.bbc.com/news/videos/cx2vrdd5xkeo) |
+| New online safety rules are here - but as tech races ahead, expect changes | [阅读全文](https://www.bbc.com/news/articles/cj0mn7gmpplo) |
 | Trump says EU and Mexico face 30% tariff from August | [阅读全文](https://www.bbc.com/news/articles/cyvj13d9ylpo) |
-| North Korea's Benidorm-style resort welcomes first Russian tourists | [阅读全文](https://www.bbc.com/news/articles/cwyrk588dlro) |
 | Faisal Islam: We are heading for significant tax rises | [阅读全文](https://www.bbc.com/news/articles/c9dgn647nplo) |
 | Why cockpit audio deepens the mystery of Air India crash | [阅读全文](https://www.bbc.com/news/articles/cx2gy78gpnqo) |
 | What we know so far about the investigation | [阅读全文](https://www.bbc.com/news/articles/c5y5nq170z4o) |
