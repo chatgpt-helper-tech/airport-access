@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月12日 18:52:25（北京时间）**
+🕒 更新时间：**2025年07月12日 19:00:33（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | What we know so far about the investigation | [阅读全文](https://www.bbc.com/news/articles/c5y5nq170z4o) |
 | Who are the victims? | [阅读全文](https://www.bbc.com/news/articles/cdd28legnzvo) |
 | Fuel to engines cut off before crash, preliminary report says | [阅读全文](https://www.bbc.com/news/articles/c79qrez8gqlo) |
+| 'Was this avoidable?': Victims' families seek answers | [阅读全文](https://www.bbc.com/news/articles/c5ylv04r1eyo) |
 | Inside King Charles's fiery gathering that shone a light on his beliefs | [阅读全文](https://www.bbc.com/news/articles/c0l4jppyjzjo) |
 | Med Sea heatwave might feel nice for holiday swimming, but there's a catch | [阅读全文](https://www.bbc.com/news/articles/c4g2v1l7j6yo) |
-| Jellycats were great for business - now these shops can't stock them | [阅读全文](https://www.bbc.com/news/articles/cwyr854k912o) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | Hospital says California farmworker is alive after 30-foot fall during ICE raid - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOMGNLY3VOeWlEQTYwZFhGWVJIY3pYZzZ2eFloeDBtZ1ZESDJEdXZGMnhqdlJnT1BYcUwwb2VGTU4yMFRnS0N0OEwxSlFWckNaV2FjazREYm5ERHI5V3JyV0l0a3oxSzJZNmM4SThtdXZKYzRSUWU0UC1HalJVcWN4aGZFc0xWR0lMaG9jZHdsci11UXpxUEluSnpkaXlVajBNMWfSAacBQVVfeXFMTm5jdzRrZEhtemM3c1otWnJnR0Rjb19tX09qdDlVSnlZNUhQbEQyTFgyRG01Q3llVV8xWmJ0Z3AxQ1BJT2hiTENyN0s1RVRuU0ZZSTZOSGdfWnN5Q1FQc0htbkQtM002elpmZHZ6aWx4eF9pd0t5dDJYeWRKNTF4UVA3N0NtVjFSeUctc0RlVTlCWEx3cjkyT2RaYXF3a2FlcWJpamJadk0?oc=5) |
 | Trump praises FEMA response in Texas after earlier threats to eliminate agency - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQWlMtUEVXTzl5UEhmQlpLdHUwWmtZS1hPTzVqZnRSbGVsa09xSmg5dG85Vl9pRl9adHAzRUV2dVFCV1BobkF5cnJBRXN0N2RsZHR3U05USGNxX1V3dkd1ZFRKdHM5WXM4OW1kaml0cW0xenloeEpENXJubXJQR0p2aTZkSkVrRWZR?oc=5) |
 | A Texas family clung to life on their roof, capturing the terrifying flooding in photos and video - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPVzk0SlZnQmREQkRjajFfdlExUVBiUzdVbU5xWF9xY0tld01mNVBueHpVTDdBaDMtZk04U0IzRWFFdHd6ZW4tWEltaXBVUTBpSFlVQTI3Q013clY2bXljcUdKMzJkWjV0OTQ1MWxFT09mWnBkLUhva05TQWZOeWtnc3p0TzUzWkpwdjM5blNVR08zZw?oc=5) |
+| David Gergen, former White House adviser and News Hour political commentator, dies at 83 - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOWG1aWmxDVWdweDhLX0N6aldYN2JhVVNDcDItRzliVHdqdWF3a2hoU0w4c1NBTTVSR2tXa3F2VXZKVWFCVzFQZnFEeXRiOEhyNFhxcmN1Q2plTFR6ZXF3dUhPT0lwUUR3bF84azJfc3hRRVBIMld5clVFYWlhTURQdlcwQm9IWTVLZWZXb3QxVUFYdk1ac19GSGhkMWdtMjMyRHdWN2FBQzczcDNNaWN6cjJ2YVNJTkltNHV4NVNZONIBxAFBVV95cUxQRVZsMGpFSk1CM3NYNC1OOHU4M182QmVhTk9EWDEyZzlNbEJPbmlKWVA3VEdVV29rNGlNTGhScjNidUMwYTdnb1E2YnRYdWhEV3YzelIzQ1RjWEVuYU85WTh2cHRmcE8weHVjX3ZkMUk0bHp1UGxqM3FoTTNMTE1ubjlERDY5bUMtVzZxT04xOTdVc2ZFVml4R0tkTl8xOXpmNlkxclVmWVJHb0g5TU9DemItRG5sa3E4c1NJMXFUbUsxdjgw?oc=5) |
 | What to know about Trump's new tariffs on Canada - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOb0w3bU0tcEo1QUJNeXhVckxUcVcxRFpXSWlwMmpQY2JJMXhJUk5mS0lTQS1USUdCUVA1ZHI0ZmsySm13eHpHWmFZcnFkS19CbXc4NnlPM2JiYjRUczh0dUlhMm9BNXpDRmRZT1pkQlVTdXhzQjBxX3JxN2NzMVZlME9n0gGHAUFVX3lxTE9LblJCaHVkOVVhNnZOZnZvU0djZGYwUFpieXVwU2tHZlI1dUdkdVFCT09GSTZlc1B1OWJPaFhydnJhaThiYUlrdlcycGtBN0Z2U3dtMUdzQVZBX19lT25vR1Baam56Ym9WWEQ1cjVvN3F4XzY1ek9BNE9Pbng2SkVOY2MxU2ljUQ?oc=5) |
-| Man Who Decapitated Father and Displayed Head on YouTube Gets Life in Prison - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOMy03eTh3OHNTcm9KU3lISk50QkFRN21FSGxuZ29qNFU5SlEwNXB2bjdIOHlsNEZWc0VWQ0tnOC1IYllHMXBhdUJ2eDZJMDR6ZW1CNzFIMDJGREFyQnNPMC1KM2tfQkV5S2w0QWRjcEtVbk9qVHN3ODdwZlByRUZzZEFIckFvdzRUOGQwRA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
