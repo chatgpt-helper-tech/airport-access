@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月12日 14:53:39（北京时间）**
+🕒 更新时间：**2025年07月12日 15:00:37（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Why cockpit audio deepens the mystery of Air India crash | [阅读全文](https://www.bbc.com/news/articles/cx2gy78gpnqo) |
-| Heatwave set to peak as temperatures soar over 30C | [阅读全文](https://www.bbc.com/news/articles/c5y2jd5yye9o) |
+| Heatwave set to peak with 34C temperatures predicted | [阅读全文](https://www.bbc.com/news/articles/c5y2jd5yye9o) |
 | BBC faces dilemma over new series of MasterChef | [阅读全文](https://www.bbc.com/news/articles/cm2mx9x5yrno) |
 | 'They were just kids': Mother mourns sons killed in Israeli strike while waiting for aid | [阅读全文](https://www.bbc.com/news/articles/cy9xgrrq54go) |
 | Alcaraz expects to be 'pushed to limit' by Sinner at Wimbledon final | [阅读全文](https://www.bbc.com/sport/tennis/articles/cy8gl12d7lxo) |
