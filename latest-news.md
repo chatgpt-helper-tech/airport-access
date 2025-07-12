@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月12日 17:53:44（北京时间）**
+🕒 更新时间：**2025年07月12日 18:02:02（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | State Dept lays off 1,350 employees as reorganization nears final phase - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQSjhpRGV0d2IyOUFpNjZ2WE01X1gzRjljRVpadHNUX2FlRWhaMjdZZG13MnpNVFdGdmRnaTRsSy1FT0k1TnZQZFdZVEI2aWlJNGdITG5VaWt2UjFpZVNhRzFfTi00Qi1lX2V3dTNCNDh0cTE3VlpzTld6cm5qWm13b1c5MV9OcWdsTHBTUldQTFRhR3R1S1F6ajJPOWw5TWNybXRSM3QxMjJncDJPbkxfVTFKX0VYOW1SNDFNRjBQT1hNdndJNWk4?oc=5) |
 | How the DOJ's Epstein memo led to a Dan Bongino White House blowup - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1rTlVMNHdoRE1zdnA2VkhnelZpai1vWk9JVFIxR0RKWnNSZTh2VWlZeWRLMmNTY3BWRExadi0tMDZaa19sX1NVMmVfaWdXUi1zdkV5UV9lejZCWHhOMXhDY2JkZWFlYmUzajUzSFc3ZE1Sc1dv?oc=5) |
 | Hospital says California farmworker is alive after 30-foot fall during ICE raid - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOMGNLY3VOeWlEQTYwZFhGWVJIY3pYZzZ2eFloeDBtZ1ZESDJEdXZGMnhqdlJnT1BYcUwwb2VGTU4yMFRnS0N0OEwxSlFWckNaV2FjazREYm5ERHI5V3JyV0l0a3oxSzJZNmM4SThtdXZKYzRSUWU0UC1HalJVcWN4aGZFc0xWR0lMaG9jZHdsci11UXpxUEluSnpkaXlVajBNMWfSAacBQVVfeXFMTm5jdzRrZEhtemM3c1otWnJnR0Rjb19tX09qdDlVSnlZNUhQbEQyTFgyRG01Q3llVV8xWmJ0Z3AxQ1BJT2hiTENyN0s1RVRuU0ZZSTZOSGdfWnN5Q1FQc0htbkQtM002elpmZHZ6aWx4eF9pd0t5dDJYeWRKNTF4UVA3N0NtVjFSeUctc0RlVTlCWEx3cjkyT2RaYXF3a2FlcWJpamJadk0?oc=5) |
-| Man Who Decapitated Father and Displayed Head on YouTube Gets Life in Prison - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOMy03eTh3OHNTcm9KU3lISk50QkFRN21FSGxuZ29qNFU5SlEwNXB2bjdIOHlsNEZWc0VWQ0tnOC1IYllHMXBhdUJ2eDZJMDR6ZW1CNzFIMDJGREFyQnNPMC1KM2tfQkV5S2w0QWRjcEtVbk9qVHN3ODdwZlByRUZzZEFIckFvdzRUOGQwRA?oc=5) |
 | What to know about Trump's new tariffs on Canada - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOb0w3bU0tcEo1QUJNeXhVckxUcVcxRFpXSWlwMmpQY2JJMXhJUk5mS0lTQS1USUdCUVA1ZHI0ZmsySm13eHpHWmFZcnFkS19CbXc4NnlPM2JiYjRUczh0dUlhMm9BNXpDRmRZT1pkQlVTdXhzQjBxX3JxN2NzMVZlME9n0gGHAUFVX3lxTE9LblJCaHVkOVVhNnZOZnZvU0djZGYwUFpieXVwU2tHZlI1dUdkdVFCT09GSTZlc1B1OWJPaFhydnJhaThiYUlrdlcycGtBN0Z2U3dtMUdzQVZBX19lT25vR1Baam56Ym9WWEQ1cjVvN3F4XzY1ek9BNE9Pbng2SkVOY2MxU2ljUQ?oc=5) |
+| Man Who Decapitated Father and Displayed Head on YouTube Gets Life in Prison - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOMy03eTh3OHNTcm9KU3lISk50QkFRN21FSGxuZ29qNFU5SlEwNXB2bjdIOHlsNEZWc0VWQ0tnOC1IYllHMXBhdUJ2eDZJMDR6ZW1CNzFIMDJGREFyQnNPMC1KM2tfQkV5S2w0QWRjcEtVbk9qVHN3ODdwZlByRUZzZEFIckFvdzRUOGQwRA?oc=5) |
 | David Gergen, former White House adviser and News Hour political commentator, dies at 83 - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOWG1aWmxDVWdweDhLX0N6aldYN2JhVVNDcDItRzliVHdqdWF3a2hoU0w4c1NBTTVSR2tXa3F2VXZKVWFCVzFQZnFEeXRiOEhyNFhxcmN1Q2plTFR6ZXF3dUhPT0lwUUR3bF84azJfc3hRRVBIMld5clVFYWlhTURQdlcwQm9IWTVLZWZXb3QxVUFYdk1ac19GSGhkMWdtMjMyRHdWN2FBQzczcDNNaWN6cjJ2YVNJTkltNHV4NVNZONIBxAFBVV95cUxQRVZsMGpFSk1CM3NYNC1OOHU4M182QmVhTk9EWDEyZzlNbEJPbmlKWVA3VEdVV29rNGlNTGhScjNidUMwYTdnb1E2YnRYdWhEV3YzelIzQ1RjWEVuYU85WTh2cHRmcE8weHVjX3ZkMUk0bHp1UGxqM3FoTTNMTE1ubjlERDY5bUMtVzZxT04xOTdVc2ZFVml4R0tkTl8xOXpmNlkxclVmWVJHb0g5TU9DemItRG5sa3E4c1NJMXFUbUsxdjgw?oc=5) |
 
 ---
