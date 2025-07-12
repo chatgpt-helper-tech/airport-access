@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月12日 23:39:42（北京时间）**
+🕒 更新时间：**2025年07月12日 23:53:10（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Mystery of Air India crash deepens as report reveals cockpit audio | [阅读全文](https://www.bbc.com/news/articles/cx2gy78gpnqo) |
+| Mystery of Air India crash deepens after report reveals cockpit audio | [阅读全文](https://www.bbc.com/news/articles/cx2gy78gpnqo) |
 | Watch: How do fuel switches on an aeroplane work? | [阅读全文](https://www.bbc.com/news/videos/cx2vrdd5xkeo) |
 | New online safety rules are here - but as tech races ahead, expect changes | [阅读全文](https://www.bbc.com/news/articles/cj0mn7gmpplo) |
 | Trump says EU and Mexico face 30% tariff from August | [阅读全文](https://www.bbc.com/news/articles/cyvj13d9ylpo) |
@@ -31,8 +31,8 @@
 | Before the Central Texas Floods, the Owners of Camp Mystic Were a Fixture - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBmeG40U3l4OVA1N0J3MVE1RWJkNG4tSnlsRXlhMjVUWjROR3lKQWRLY0N1X2hNNElodlZwUHN6TmhodGlhMDNWVjdUMzZubUlzR2l3X0I4bUEtai0zOG5yazI2YzE1aTBJTkJZMWE3OVZfbGk5Q1E?oc=5) |
 | Trump praises disaster response in Texas while FEMA's future is murky - NPR | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFBsd21yMmtkN2VrZHZsWGs0ZlFsYTRnenlGM0xHMk8zTXRjTlliejZFMV9KeWQyeU5LcWtWTGR4LUdkenBXWUwydTNvOU9XOUtFd1djNHoyOW9jdHppREVpeW4tM2Y1X3FSZGY3dC1kYXcxcUFrN1o4?oc=5) |
 | As Texas cleans up, ex-officials say Fema has ‘eroded capacity’ for multiple disasters - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNLU1IV2lUdXFIWUxkVWhxR05EU1R1M2k2ZzlUenVoR0hlXzhyTjdvREZyamNMYVFHLVlsX2w1QURBcHc5ajZqaEJOc3BqOVlxYm5yNGhHemY4S1MtMFZJUUR1YUtUdnBuV056cFpiVURkdWZ5WTNZaFRtXzhhMVluRGljeW5lZlp0YUZCNmNybw?oc=5) |
-| A Mother of Five Survived the Flood to Return to a Cabin in Ruins - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOLXktUks4SzBPUnNSeFYzY0ZCekR4UjgtbDYxSFFFUHMxNzZaRm9WLVI3WE9zdldMaDVXemYyZnlkdzdHbEN2ME5nZjNZZVNQckpTSHEyckJZV2hXUXloSzNKaDlQcW94bUJlOTFYV0VCRHFwLTZHUkdybFFEaUljNzVVWlpwZw?oc=5) |
-| State Department starts firing more than 1,350 workers in Trump's shake-up of diplomatic corps - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxPTjFMQlJ5NTAxekNsS0RFdzc1dWtucFUzOEtHaVI1QlVqRlFjRVNBV1FFQzFZVVlfaUxxZHFLV2hldEQwWDVGUFNUNHR6S1JCbXBfRnRqZGdMQ1dyUk5qbWlsMkM4UkpFajF4M3BGbHpMNW9oSUxMeXZrclZsU1RiVm9kN2ZfYVBmSEluamtnelJ0RkxXTDJzWDhiWnBSTm9zYy1JQ3Q4MDFtQjZsOTBlR1duZGdpZGJZRUJpT1ZGc1RpY2RP?oc=5) |
+| Trump delayed his tariffs again. This could be the last time. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi4AFBVV95cUxOSnF6Nm0xOFJrYUlJUDhkRzhIVm8zLVNDTDRuZXdGVVp6cG1HQ2ZnLXo4bWM0azlCZng5ZmU3OU1uZm9WcFM3MGhRaTFsdkNsZkNKanFVNzFNNmk0R3JKd3p4Vi1MZGM0WXhEMlRFLXNvbmdSVVRlWDR4TFgxUWd2b1c3UW8tc2MybktfRW9YU1NiXzJVSjZ4RXdQa0IzeDVaQ054czVFTVpyTXFNeVF3em5hdVF1Z1RXb1RleXNfUVlJOGx2aF9sbFRoSlk3MW9zZnNtdENISzVZS0QyTU1Gcw?oc=5) |
+| A year after Trump's near-assassination, friends and allies see some signs of a changed man - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOcFZ6MHNKUFY0cHM4UmtMUDBfdWNndzFwc2h0Q3VEQTJKcVdMTkRRc2JOUjE3ZEZMU256QWdsVXpTVUgwU2k1dU1QMUVoSDhWOEZPRU93dENTQW9TRFNySm5kMnFhS0ItTlpwNFVjd25JZXJ5eExRYnZIYUp5WkRFdVhlSnpxMFJxM01iYXE5YlJuNVFZcW44dkNBOC1mbWs?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
