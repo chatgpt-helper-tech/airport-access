@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月13日 04:13:36（北京时间）**
+🕒 更新时间：**2025年07月13日 04:27:58（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | How the DOJ's Epstein memo led to a Dan Bongino White House blowup - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1rTlVMNHdoRE1zdnA2VkhnelZpai1vWk9JVFIxR0RKWnNSZTh2VWlZeWRLMmNTY3BWRExadi0tMDZaa19sX1NVMmVfaWdXUi1zdkV5UV9lejZCWHhOMXhDY2JkZWFlYmUzajUzSFc3ZE1Sc1dv?oc=5) |
 | An Army of Searchers Combs the Banks of the Guadalupe for the Missing - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPamg4NmQ0b1NZd3N6b0JRQXhiT2FqODZ4RXkwek5WT3NoNEN4Qk9naHNNUkdDWGRqZGE4cGpOaGJMSmoxV3A4bnIxVEpvaXlWYlFfMVQwMFZUdTFoNExMTnpsaTRRSk96YnI0Ymltc2d5THhDTjd0U0ZHSExsZ1VqOHpIVzZPX2VfUnhIVlpfdkc0M0R5OWNvYk9CS1p2aWZ5WnNUNENuSDZMV1NFb0lIN19OcEdJMkxFREE?oc=5) |
 | Judge orders Trump administration to halt indiscriminate immigration stops, arrests in California - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNMDJ2emlnT01OTG5vN1lNT0l3UDBFaHhUU2JnS1VtWFUyQVBvcGlrVXFZVzZlclJYTjJmWjVRNkJvd0pfRzhNdnRYU3lKZ1VKUGVPVGE4YUZQRGMwZW1wWVBLa2J5aV84cXZWc0FUbEQzeUtFd3kweWlqdGxDQ2hWX3dJYjFGZnNBWWNSR3Q0alR3VDFWSzB4SGVpaUU?oc=5) |
-| Engine fuel supply was cut just before Air India jet crash, preliminary report says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5ROFpCdnhCQzlNNW1OVTk1UkpfMjAwSGMzZ0NXTHRsT3RidWRVbExiS092enBORkRwNVNMR1Rjb18yRVEtM2NjMWpERGJPVVdlU05PcGJfMU9TWWtGcnBFOW9xUlFzUEFzMVZPdm9uMUROSS1iaVY5SjN30gF_QVVfeXFMUGlYd2tGbTBGek9SYkpqS090MmdBQnZ2cEI4UUIyd3FIVGVjWnA0bkx2WjZKNi1iTHZaVFNsQzJMbHlhXzVmQV80TkhfZ0NMX042WmtROGZwdzNJLWl5VTRfV3gtcloyc3NSOGVYdmFKaWpHY1dMYzZRR0dVaURGQQ?oc=5) |
+| Trump threatens to revoke US citizenship of longtime critic Rosie O’Donnell - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNTUJYbHU3VmU4Zk5DVXVPQmc5a0Z1amI1ejFuWTRmWVNLc0p6c0p4ZkFhekFyLUJmMDJ2VWxjWTdIRG9jc2FWenBIZDBVMnV5R1piNXdYc1pFcGxLMDFiS2lZVGl1M2ZOdFloMnJWZzBGYnNfelFmbmFrYjQxSEV4V042N3RTU0FyYmJjemZlMTlnZms?oc=5) |
 | Israeli settlers beat U.S. citizen to death in West Bank - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQMk15cFJWRmcxb3hscUJLWDBNQ21XVEdiZ0d1QUNDY0VIMEU0SUdpOF9JQnZjWmVPVWdudjh5a0pTal8tUVlvOFRXU3hpdTdVeGVVMGZ2VHRXRUJPb2tHMFhXMHFDZTJncnJCWkkzWllPb09BMmxncjNlUVBFNExNelRaeVhvQTdyTUtYd1B3SQ?oc=5) |
 | US: Worker reportedly dies after immigration raid on farm - DW | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQbUt1YzZSQ3hOaWlTanFQeUVKeVJTY0gyMnZRcnUtYVZ0bWxJUjFlOHZMa040eUprRXpFU2Q2UlRBSWZ4X3V1cGlTV3gxZXFZXzgwUjhZLUtqdGRCQS1mTVJqMVo5d1NSb3YwQkpCQzVzYUdsMVl0VS02X24yMXdkWWFYYU83WllYMjZqMFJhRUl1S3fSAZMBQVVfeXFMTkt4TkkzUzFjc3RxTXpXNkRSQlRaaVJXdGNnWFgweWk3SW43RzZlRU95WmJJMGNab01nNGJFOGNsb0RGUmt4N1h2NmFMOUg3WnBVLWVmakwwdFExRTBxMkxJS3cwVjQ3dVJic0tNMTFzMUx1YkZpMmFqaEFzNWxoME91Z3RrTVlDaXdhelBrYk92VExn?oc=5) |
 | The lingering mystery of the Trump shooting: Why did this young man do it? - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNU0RxLUdqNWg5bzRrZm43aVdZN05LY0MxcUpYQkx2b1dRYkpnbG90a1dqWEZlcFBtWTVQbU9LelJzemRqSDFxM1dITC1OT0xLaVlpenpxYzM0VGlrWkJTMExBLTQxR29xSGtGQU1SSDJEYTNNaEhMMkdseUNzVnZES2NLT3JrM08ydzl5VFRDb1E2U1BVT2RFUnc4TWk0QQ?oc=5) |
 | Lawmakers visit ‘Alligator Alcatraz,’ but some wonder how much they’ll get to see - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNRTlPWVBTaGgtY1Y5aGU4a3NkZW9hZ1llSjV3UndVMmtVclUxdGNURmVWOXVMano3VC1Jc3JpRGtKeGVQVE0xWC0zemI0WlBKWlpYczdnZGhQeDU0cmJSN2FISy1mUlpqTHZwMGdNc3hCaTVVUmRsdXR5MDE2eTgwNlJzWkNDczhIeFkyX0VQZm5NYzlqcW85djE5QzBFSF95a0tEY2NhVmZrN3dE?oc=5) |
-| GOP warning sign in new poll: Trump’s voters don’t love his tariffs - Politico | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5fTGNvWm1EcEV3UTBTM3pMcUtWSXZGX2JWOTJDSzhDSHRfT0pYSkI4TWxnVHpoSmZkWDdyeGFhTW93Nnh4SXFJcERjRGNDMDRJVHh0MWVrZ3lBMHFrd0lLcjBMaWRDbEJycV9rX0czNkVZR09fa0k1Q2VOWmxXQQ?oc=5) |
+| Timeline Details Final Seconds of Crashed Air India Flight - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQOEU4TFVXYlFYQVY3RWFGUFBVTDBxMEZxY0JlV3ZRSHd6T3lOTkRaRTF6RzlUc0lXWEl3alVTVmk2YjU4SjlGWEZkX0RwU3R4X3hwdnBlNmpWOHFhVERRdzhyZzVUd1pTcDJ1RmFwNzJ4QTA1Vk93c1M2cHJlS1dkTk1DTUVHT3Byd2c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
