@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月13日 15:27:28（北京时间）**
+🕒 更新时间：**2025年07月13日 15:40:32（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Texans Offer a Hand and Open Their Hearts as Flood Death Toll Grows - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9hRVYyQ0dHUk9DdVpmdjdrVFpNWUNxTTJGc1BoM3l3TzlQYU8wQUhyQ01WWkdGcWlVVTZDOWFYNW43WHdZOFFDa2ZUMU5zZFhkZGh0MEFyc3U5SHhUWjFtSUJwV1FxQmh4MTVVZzBpY2VpUk1JbHJXVkxZbw?oc=5) |
 | Florida lawmakers allowed into ‘Alligator Alcatraz’ say detainees packed into cages - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxONUJNQ0pxS0xva280WmtWZ0drWnlCOEhHalF3OWx2OU9aZ2Y2ZmtJR0FQc1J5cTZzek9qTWUzd2tQR29vQ2VFQ1JBY1o2XzE5N2E1M18tTnFZTFVxa3h2eGhYYkJCbXlZY0h3QTFuekhHd0hZZEg0cXhpeDFYclJtak5RWdIBiAFBVV95cUxOekNZdW1XSTVwTUp6NDh2VmRuZndrMF9HTmhuZTVVMmNVTEY5NjJyc3l0Njg3cDBXekloSmhjb3RvaERkMTdPd0htQUJjLUNhT24tM25BSGtfbXFqTkZPYWRvVzVvaHNqbWIwaFJaMFI2Qk42Ul9VNGI0Q2pjdXAzM1Z3aURfT1R2?oc=5) |
-| The EU and Mexico criticise Donald Trump for proposed 30% tariff - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1VMEFaSVV1VERUMnJ5OFlzcm5Va1BRMGdKalgyVnJ0em94T0RmOTdWZmxndXJoNlF1dk96X2ljMHdfZ29qMHMzRjBxUUp2V0xHZUZ0c3NpMEdGUdIBX0FVX3lxTE4yTG53SGJoQllFSS1BMGtuU0ZyMHEtaVYxM0d5dUJ3V19RR3RhbUhrZEhMamhPNnF2YWQtYXJkelZEOFRSdTFEbmhsYzZERmp5aWxFRGZWTnRIbmItdkJJ?oc=5) |
+| Trump threatens EU, Mexico with 30% tariff rate - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiZ0FVX3lxTE9sLVA5UHlJVWFuM19jbWl5SU0xLWhScDFFV1N2bnh2QjA0OUFNSldGSHNsWXZQUVB0Zm1ndmFwZ0E4MnNERU1IOTIzR04zaWlZak5rQXJvbjNjaU5zMkN6VVUyTnlEYUk?oc=5) |
 | 'I don’t like what’s happening': Trump tries to quell MAGA blowup over Epstein - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOM0tKa1hTWXlOUE9ycDNmcVYwM0FzSFlwTmZJWDItRXBBOE1vVjkteDZsVjZ5bzAtdlNQdlc1UnE3LUFLc3NvY1NSUVFheGZSbUFnRXZYaUhHZkJtZ0kwb3RfbUctMlRBa2wxZUR4SS00Wi14MWdrTE50SnFxLWdKN1RVTkh5bnJEUnJDUDk5YWk?oc=5) |
 | California farmworker dies after chaotic federal immigration raid, family says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOUHNHRUZYUWxFN2x1dkNXQWV5c29mZHprUXN4NWtnQWRaUUxlTmEwWjVDZWJ0clhrVmVBcEx6TFlGWjI1dUJxbzc1SkxHSTZzeFZ0SUdOQzQ5X2ZhQkFnRkVnMzZaQ1pfYTduT2pobVpnZnRHY2tQaHZpVm8xY1BybVowSHRsNkZBdmNvRktJeHJKb1hBaFHSAVZBVV95cUxPYTZhOUtSZEN0d1NOOHZJNXRXdVBvdWhTNTltRFYzcHptZThtUVhOYXJ6b1RtTDVaLU0wZzI2T0dDTjZCalNHbUpOS29xOF9haVBfMzlmdw?oc=5) |
 | Fuel to Air India plane was abruptly cut off before deadly crash, investigation report says - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOdlFlR2lndzNJRU9qa0tyTXpmYjFNQTNocVd5SXJLOHBaODBTTGgyUVVZZF9UVnE4bDNNeENhTjR3SXBqLV9US2lJS19FWTk3cnIwZkxpenBWVjZIWGFIWUtHSFBfSGtLS3JEVXFtUTB1b2NPbUtNMGhSS1BwbmVnT3VKOFA0VVlKYXN2Yy1RVUVxVnd3RV8wcDZadlZublg5RGxtQU9KNUVJYTVaV25IVnd3b3luWXBXZnNwazllczJnbmfSAcgBQVVfeXFMTWl4bVVabXBvSl8tVVY1Y1BkMElwR05IcTlvbWFYc0Q0OUhJTFBDZk9sdzFsT2V3b09rOTg1TTItOUdyYVp2b2xBZHVENC1RNUpsbGJBZ3ItSXVNdkNGYWxlUHVPYWl6QnQwUmttVnNtaGJGd3luWW5BbFAyQzFXNTkxSkMzYXJSWlBPUUl6NmtSMUZod0VJLTRXUFdtc0M5TXMxV241N1FuSVkxTmJLQmZ4czlDLVBZNEdYX2pXRW5kQm43aDRFUFM?oc=5) |
