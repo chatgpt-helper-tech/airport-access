@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月14日 02:40:41（北京时间）**
+🕒 更新时间：**2025年07月14日 02:53:31（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | Liverpool pay tribute to Diogo Jota in first game since forward's death | [阅读全文](https://www.bbc.com/sport/football/articles/cz7l85y42n5o) |
 | Iran president was reportedly injured in Israeli strikes | [阅读全文](https://www.bbc.com/news/articles/cn0z8n037p6o) |
 | Electric cars will be cheaper to buy, pledges minister | [阅读全文](https://www.bbc.com/news/articles/cg5z4nlned0o) |
-| Texas camp buildings were removed from map showing flood risks, US media reports | [阅读全文](https://www.bbc.com/news/articles/ce8zjk5yx8wo) |
 | EU delays retaliatory trade tariffs against US | [阅读全文](https://www.bbc.com/news/articles/cdez5w61g5lo) |
+| Boy, 15, and three others dead in incidents on hottest day | [阅读全文](https://www.bbc.com/news/articles/cpqnxxll9zno) |
 
 ## 📰 Google News
 
