@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月13日 20:14:57（北京时间）**
+🕒 更新时间：**2025年07月13日 20:27:02（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Florida lawmakers allowed into ‘Alligator Alcatraz’ say detainees packed into cages - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxONUJNQ0pxS0xva280WmtWZ0drWnlCOEhHalF3OWx2OU9aZ2Y2ZmtJR0FQc1J5cTZzek9qTWUzd2tQR29vQ2VFQ1JBY1o2XzE5N2E1M18tTnFZTFVxa3h2eGhYYkJCbXlZY0h3QTFuekhHd0hZZEg0cXhpeDFYclJtak5RWdIBiAFBVV95cUxOekNZdW1XSTVwTUp6NDh2VmRuZndrMF9HTmhuZTVVMmNVTEY5NjJyc3l0Njg3cDBXekloSmhjb3RvaERkMTdPd0htQUJjLUNhT24tM25BSGtfbXFqTkZPYWRvVzVvaHNqbWIwaFJaMFI2Qk42Ul9VNGI0Q2pjdXAzM1Z3aURfT1R2?oc=5) |
 | Iran sees chance for nuclear deal with U.S. even after attacks - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQVnUxZ09HSzZVaWdjLVd0ZUszMDZBQ0VkLVE3bTRlbVh5OFh1aU43WElDOW5GS0I4Yk9PVXpDbDhWT1lFNlliSmx2OEZSMUFyTjRNZ2JrS0t1UjlZVWVMUVVTM2JsZ1BIQWk3V1pmOVFXRzBlR0JvRllQQXBRX1B2aDZrOFJMdlBRTjhVOGhVQmNvLWgybkYybDhR?oc=5) |
 | The 5 big questions about the Senate battleground map - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQZWtlVjVOR09hYU5UdGpIaFJvV2IzSy04bXE1YTFzSDdGYUJmWkdIcnJycGJITnVEclc2WldjOF9PdThpY0JQQ2FEYktkNHVIWDVUeHAxa09mWEtQMUQtalR6d2tSRXVvU19MY3ktTENoUDdUX0VodnR2RUFLLVpqZ0h5TmF4eGlMODVz?oc=5) |
-| Camp Mystic appealed to remove buildings from FEMA’s 100-year flood map, records show - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOSDQ0Z2cwc1JSYmRBU3QxZ1FFU1RWRXl3R0lOU3h6M2tYMTVFUVpyRDRCX1dkS3lleTdYeDc0SC04ZU1oaE04bUJqN0RlUE5iZXdmWTlhS3lBNWpma0pIMDVNaFN5YkE1Z1NNSmVxVVp0VTE3eFNJSmFYNzlaVTNyeWE1TG9TZVFvb0RzbDBhZ2UxOU5yYTUzNWhiaks0bGd5WnhZVndfVFFtd2ROamdHQmo1eEdBSWlzUHFj0gHAAUFVX3lxTE5WZWNFeXk1RTNERjc1QjZDSEZQYzNyTGRJa21HNl9neWJCbVNoNHJmOGpUUGdhYXF4am5zWXJfRWgwb1YxbGNWd0l2WEMwZHpUczhxaWpSYXp2MlpwNmdSM2dMWUlBSlJCdjh0UXpKTWdHS2w3NlVNclVrM2dMQjFLVFJETVZWdWc4MmRzbnB4ZGdQbjBOWW5RdlNGU0hoWDExT1JaLW1kN0J2czdraFpnRnQ2cVFXYk9ZZVpNdnJ6OQ?oc=5) |
+| American killed by Israeli settlers in the West Bank, family says - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQRHVrRkZ4c3QySXlrcmJpRWdGb0JwcWhqb0ZQck5WcWNKTnRxeWZLb3pIc3JOMmd3cXFneFMyaFJQbFpsQnBDTnUtaVdsN1Z5S1d3emF6RVNQa25ZQUZUdXhMVXRGejAycnJkMXU0Q0RTWUZUdGFzNXZRWWpiVS1pN1QtNGFoMTM5bnJUZGFDeDlScUhUTnNrdEJtYTB3WEhxRUpnX0U1ZDXSAa4BQVVfeXFMUFhybWxJYmMyT1Q5c09ERHg5QjJMUUJ6TFF5TGY0UEphTy1DT3hfR19Zc0VqQ0lXT3ZUdHJIMk1xc3dwUTNIWHhpd2Y4TE9VTjBBbmV3MjBMVHE2ZXhNNmtvS3V1OHZWQS1acXNCZzh4eGJaektFUWd4SThSbTRweTNMTGRjbzl1cE1TZVFEVUNYUnAtM1N6cXE5Tldpc0pnOXo4aG5xaDBpWTNFVTVB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
