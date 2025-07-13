@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月13日 10:53:51（北京时间）**
+🕒 更新时间：**2025年07月13日 11:00:03（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump says EU and Mexico face 30% tariff from August - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1VMEFaSVV1VERUMnJ5OFlzcm5Va1BRMGdKalgyVnJ0em94T0RmOTdWZmxndXJoNlF1dk96X2ljMHdfZ29qMHMzRjBxUUp2V0xHZUZ0c3NpMEdGUdIBX0FVX3lxTE4yTG53SGJoQllFSS1BMGtuU0ZyMHEtaVYxM0d5dUJ3V19RR3RhbUhrZEhMamhPNnF2YWQtYXJkelZEOFRSdTFEbmhsYzZERmp5aWxFRGZWTnRIbmItdkJJ?oc=5) |
-| 'I don’t like what’s happening': Trump tries to quell MAGA blowup over Epstein - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOM0tKa1hTWXlOUE9ycDNmcVYwM0FzSFlwTmZJWDItRXBBOE1vVjkteDZsVjZ5bzAtdlNQdlc1UnE3LUFLc3NvY1NSUVFheGZSbUFnRXZYaUhHZkJtZ0kwb3RfbUctMlRBa2wxZUR4SS00Wi14MWdrTE50SnFxLWdKN1RVTkh5bnJEUnJDUDk5YWk?oc=5) |
+| Trump posts support for embattled Attorney General Pam Bondi - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxON1ZYZkUtOE05LURxeFpCYXFjQURoWnVuOVlJTEUtcGpxMlNILWJOWDh2SVQzSUFyV3NObTNqeGd3d2hfX0ZldEJKb1dYdXNxTnhaSVhFeDFwNXB4eFdlaFlsOUNwbG1EX3BnbU1KUzZBaG9vSjJuZVZmbXREdkZUS3VWcW4xZnZDenl1SDBFeElSU1JvTENfX3RlbkxLekphLWptS2ZmNjF0SnJ0OEVnb3QwV1JRMndBUzFqVUlR0gFWQVVfeXFMUC1sSjBBU08tenVRUVpBNDhwOEdQUGp2THhyYmVZT0RUSE5TelU5WUtNSzlFZ012d3pmWnN1aUwwZi1SbmJ4dnAzNXpRX0xHZm5oZGVqZEE?oc=5) |
 | Florida lawmakers allowed into ‘Alligator Alcatraz’ say detainees packed into cages - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxONUJNQ0pxS0xva280WmtWZ0drWnlCOEhHalF3OWx2OU9aZ2Y2ZmtJR0FQc1J5cTZzek9qTWUzd2tQR29vQ2VFQ1JBY1o2XzE5N2E1M18tTnFZTFVxa3h2eGhYYkJCbXlZY0h3QTFuekhHd0hZZEg0cXhpeDFYclJtak5RWdIBiAFBVV95cUxOekNZdW1XSTVwTUp6NDh2VmRuZndrMF9HTmhuZTVVMmNVTEY5NjJyc3l0Njg3cDBXekloSmhjb3RvaERkMTdPd0htQUJjLUNhT24tM25BSGtfbXFqTkZPYWRvVzVvaHNqbWIwaFJaMFI2Qk42Ul9VNGI0Q2pjdXAzM1Z3aURfT1R2?oc=5) |
 | Aidan Heartfield body recovered after week-long search following Texas Hill Country flood - 12newsnow.com | [阅读全文](https://news.google.com/rss/articles/CBMijgJBVV95cUxPSmJhdWJ2TkcwUDBsbmRRNkdQRFdtSnRaaUxQZUVZNEg5ZjhtM0VxbEo0cDJVd3EyalNKR3dUTHRwck9pZmdIX3Q4d1JtNlFVVmk1Vm9NWVBiVEpGdGRWMU5lN0hoUVJuU2N1NnVyRXFZWjFQdzkyWWtWdk5ZMjJEWTN3UGtDOUJSVEdaRUZ5M2lxc0dlcU42TmRDekJTV1Y3SWEydHlQUGpaUjliQmFIVWlnSnVVTXdGbGxMR2JfYWRVYUJlNnBBRjcwX3k0SVBTekU1NW9MNlpBZTBWV2ZPRU9KelV5ZDNCR1ExSkJzV01lTGpBeUVvV1ZHdUFlczNMZkktT2VGMlNnN3NQRkE?oc=5) |
 | American killed by Israeli settlers in the West Bank, family says - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQRHVrRkZ4c3QySXlrcmJpRWdGb0JwcWhqb0ZQck5WcWNKTnRxeWZLb3pIc3JOMmd3cXFneFMyaFJQbFpsQnBDTnUtaVdsN1Z5S1d3emF6RVNQa25ZQUZUdXhMVXRGejAycnJkMXU0Q0RTWUZUdGFzNXZRWWpiVS1pN1QtNGFoMTM5bnJUZGFDeDlScUhUTnNrdEJtYTB3WEhxRUpnX0U1ZDXSAa4BQVVfeXFMUFhybWxJYmMyT1Q5c09ERHg5QjJMUUJ6TFF5TGY0UEphTy1DT3hfR19Zc0VqQ0lXT3ZUdHJIMk1xc3dwUTNIWHhpd2Y4TE9VTjBBbmV3MjBMVHE2ZXhNNmtvS3V1OHZWQS1acXNCZzh4eGJaektFUWd4SThSbTRweTNMTGRjbzl1cE1TZVFEVUNYUnAtM1N6cXE5Tldpc0pnOXo4aG5xaDBpWTNFVTVB?oc=5) |
