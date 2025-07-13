@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月13日 11:52:02（北京时间）**
+🕒 更新时间：**2025年07月13日 12:01:12（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | California farmworker dies after chaotic federal immigration raid, family says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOUHNHRUZYUWxFN2x1dkNXQWV5c29mZHprUXN4NWtnQWRaUUxlTmEwWjVDZWJ0clhrVmVBcEx6TFlGWjI1dUJxbzc1SkxHSTZzeFZ0SUdOQzQ5X2ZhQkFnRkVnMzZaQ1pfYTduT2pobVpnZnRHY2tQaHZpVm8xY1BybVowSHRsNkZBdmNvRktJeHJKb1hBaFHSAVZBVV95cUxPYTZhOUtSZEN0d1NOOHZJNXRXdVBvdWhTNTltRFYzcHptZThtUVhOYXJ6b1RtTDVaLU0wZzI2T0dDTjZCalNHbUpOS29xOF9haVBfMzlmdw?oc=5) |
 | US judge bars Trump admin's 'indiscriminate' immigration arrests - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5LRWF6M2NwX0FzZ3NiSVZOdG9kMmdnMzNiUWNrbENkaG14eTFSeTNTZl9TSENWRVkzTXBhbFc3V09PYVdyWC1jdnBkaE9hZldnUTJrYjNpaVRwQdIBX0FVX3lxTE1ISUExSlVQU2p2cWdwei1ieUtTaDUzQTYwekhWeHFsRndlSG1mMnlMRGM1eWVjR2pKYV83T2RIQl9FbElVLVBfQ1FURFVVdHFRcFhvNFBXMTlBYXVSYWhB?oc=5) |
 | Camp Mystic appealed to remove buildings from FEMA’s 100-year flood map, records show - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOSDQ0Z2cwc1JSYmRBU3QxZ1FFU1RWRXl3R0lOU3h6M2tYMTVFUVpyRDRCX1dkS3lleTdYeDc0SC04ZU1oaE04bUJqN0RlUE5iZXdmWTlhS3lBNWpma0pIMDVNaFN5YkE1Z1NNSmVxVVp0VTE3eFNJSmFYNzlaVTNyeWE1TG9TZVFvb0RzbDBhZ2UxOU5yYTUzNWhiaks0bGd5WnhZVndfVFFtd2ROamdHQmo1eEdBSWlzUHFj0gHAAUFVX3lxTE5WZWNFeXk1RTNERjc1QjZDSEZQYzNyTGRJa21HNl9neWJCbVNoNHJmOGpUUGdhYXF4am5zWXJfRWgwb1YxbGNWd0l2WEMwZHpUczhxaWpSYXp2MlpwNmdSM2dMWUlBSlJCdjh0UXpKTWdHS2w3NlVNclVrM2dMQjFLVFJETVZWdWc4MmRzbnB4ZGdQbjBOWW5RdlNGU0hoWDExT1JaLW1kN0J2czdraFpnRnQ2cVFXYk9ZZVpNdnJ6OQ?oc=5) |
-| Trump says he’s considering ‘taking away’ Rosie O’Donnell’s US citizenship - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNQTZ5MTlHcjVHRXpHY2Zwa3lwLWhiV2JPbW5sYy1TZ3FBYzBaUmw0NHp0RHdFbGdxVG56RGhPN1duSkxuel9lb0dwakN3OVI0UWdfOVkzclViaUN4aHVoNl9Pc1hfbXBzZ3Z6bDJHOUlnb1FxLXA3cl8tOWpWSGF3MTlfdmRiVDVabC1rcmZjTFNoV3hmOG1z?oc=5) |
 | Trump's tariffs add to fears in the UK's struggling steel towns - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1tOHA4Z3VrRG10N2o5RW1VaWJKVWJjM3d1cFJzWXNqRzFleXVaVFhzZUV5Z19GY0VDRnQxWmE1Z3h3QmtCVWN2SW9WelhNOFhwS1g3V1htNWcwd9IBX0FVX3lxTFBPUHh0a1dYVXh1S2w2enBVR2VEbi1BWFpvclBZTkF1TnVSZUdQSzN4V2pONGhfamhRUTRIS0sxbTc1eWRqM1QzY3o2RVBENFI2LUtBMEI2MXR3THFUdFZr?oc=5) |
+| A year after Trump's near-assassination, friends and allies see some signs of a changed man - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOcFZ6MHNKUFY0cHM4UmtMUDBfdWNndzFwc2h0Q3VEQTJKcVdMTkRRc2JOUjE3ZEZMU256QWdsVXpTVUgwU2k1dU1QMUVoSDhWOEZPRU93dENTQW9TRFNySm5kMnFhS0ItTlpwNFVjd25JZXJ5eExRYnZIYUp5WkRFdVhlSnpxMFJxM01iYXE5YlJuNVFZcW44dkNBOC1mbWs?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
