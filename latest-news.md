@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月13日 16:14:02（北京时间）**
+🕒 更新时间：**2025年07月13日 16:27:55（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Fuel to Air India plane was abruptly cut off before deadly crash, investigation report says - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOdlFlR2lndzNJRU9qa0tyTXpmYjFNQTNocVd5SXJLOHBaODBTTGgyUVVZZF9UVnE4bDNNeENhTjR3SXBqLV9US2lJS19FWTk3cnIwZkxpenBWVjZIWGFIWUtHSFBfSGtLS3JEVXFtUTB1b2NPbUtNMGhSS1BwbmVnT3VKOFA0VVlKYXN2Yy1RVUVxVnd3RV8wcDZadlZublg5RGxtQU9KNUVJYTVaV25IVnd3b3luWXBXZnNwazllczJnbmfSAcgBQVVfeXFMTWl4bVVabXBvSl8tVVY1Y1BkMElwR05IcTlvbWFYc0Q0OUhJTFBDZk9sdzFsT2V3b09rOTg1TTItOUdyYVp2b2xBZHVENC1RNUpsbGJBZ3ItSXVNdkNGYWxlUHVPYWl6QnQwUmttVnNtaGJGd3luWW5BbFAyQzFXNTkxSkMzYXJSWlBPUUl6NmtSMUZod0VJLTRXUFdtc0M5TXMxV241N1FuSVkxTmJLQmZ4czlDLVBZNEdYX2pXRW5kQm43aDRFUFM?oc=5) |
 | 59 Palestinians in Gaza are killed by Israeli airstrikes or shot dead while seeking aid - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5UVUVOV0ItN0N3aThaWmkwd01UNElIX2dMUHAzX2ZlM1g2TGJTQlVhMXV6MVB0LURFdGFhNENsTWZGd19RUkdTQ3FuX0E5c0YzTUlLcHRrN3FZdVY3Q1pxYmVrd2NoREFiM2ZER1BxQkg1TDM2Wk00Mm9B?oc=5) |
 | US judge bars Trump admin's 'indiscriminate' immigration arrests - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5LRWF6M2NwX0FzZ3NiSVZOdG9kMmdnMzNiUWNrbENkaG14eTFSeTNTZl9TSENWRVkzTXBhbFc3V09PYVdyWC1jdnBkaE9hZldnUTJrYjNpaVRwQdIBX0FVX3lxTE1ISUExSlVQU2p2cWdwei1ieUtTaDUzQTYwekhWeHFsRndlSG1mMnlMRGM1eWVjR2pKYV83T2RIQl9FbElVLVBfQ1FURFVVdHFRcFhvNFBXMTlBYXVSYWhB?oc=5) |
-| DOJ pressures DC's Bowser over antisemitism 'crisis' in Washington - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNc0J5akI4alJvNGg4U0RORjVfcDBRRWh3eFpDZWpPQXpieHBRVlloSFZ5Wk8xTmpCQWM0eUJaLWlqbUt2SGlsSkxmV0VaaHozVjhyZDFuV0xCNlhlbmdpWXl2OFdZVlVld1oySzA3T3kwNE0zUk5kTFE1aG5BZWdsMkp3VnpkczFMWEE?oc=5) |
 | A year after Trump's near-assassination, friends and allies see some signs of a changed man - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOcFZ6MHNKUFY0cHM4UmtMUDBfdWNndzFwc2h0Q3VEQTJKcVdMTkRRc2JOUjE3ZEZMU256QWdsVXpTVUgwU2k1dU1QMUVoSDhWOEZPRU93dENTQW9TRFNySm5kMnFhS0ItTlpwNFVjd25JZXJ5eExRYnZIYUp5WkRFdVhlSnpxMFJxM01iYXE5YlJuNVFZcW44dkNBOC1mbWs?oc=5) |
-| Modi Wants More Indians to Speak Hindi. Some States Are Shouting ‘No.’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBkQmVhOU92YVBuanVBU2VGMkNGTk56U19MbXYwR3F5WkRXclU2NzB1YVAzejMzNlZNZGlKdnZDMWh5NlY4SEkxZlo4V1lfSGtobmVXdVdtVUZXeXBOdy1iLXhMX2MwN1RVRExkbHk4WHZJQnhiM3c?oc=5) |
+| DOJ pressures DC's Bowser over antisemitism 'crisis' in Washington - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNc0J5akI4alJvNGg4U0RORjVfcDBRRWh3eFpDZWpPQXpieHBRVlloSFZ5Wk8xTmpCQWM0eUJaLWlqbUt2SGlsSkxmV0VaaHozVjhyZDFuV0xCNlhlbmdpWXl2OFdZVlVld1oySzA3T3kwNE0zUk5kTFE1aG5BZWdsMkp3VnpkczFMWEE?oc=5) |
+| Trump says he’s considering ‘taking away’ comedian Rosie O’Donnell’s U.S. citizenship - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNZkMxZHFOaFAxeDlzdjVRVmdpeXVqZm5hdkxpVWNDU0hjNnk5WlZsdWJmSlZleUFjTGQ3TEUxRHByRjlIbEFvLWEwWHhaZGpVdU9JNldPUDl2U1dmZzJHMVFpaW9jU2E1UEtNQ3NoM1NhTHczblcwTEx5bU03SWtMRy0zUG1JREpKT1l1ang2QlVfbl9ndm5SU0llUFZtdklRMEdUWk9mS09LTzFFUm54Uk9oQmZLVjJL0gG-AUFVX3lxTE0xY1FrNDNIRFBtN1VQUy1tR0V3dTlTTGFsRHZldlo3LVo0SWtFMmY5NURhaFlhRldYVzV4UnVVVDdjSXM1VVQzQm1OQ0JRV1B2N2pNZzV2a1JhcTF0U3NxUHltUXFnZ0lPTm1xLVo2MGcxODFmbFJqbEcyXzJ5VUpMVlllSGFaeWQ5VHV5YWhyUWRXQUhTQUZ2d28xb19ETFRya3J0TWJ2MGMzN3FNdjVfazZibXpEMDlHMjRjQXc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
