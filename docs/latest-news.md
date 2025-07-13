@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月14日 05:39:47（北京时间）**
+🕒 更新时间：**2025年07月14日 05:53:08（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| SA police minister suspended over organised crime allegations | [阅读全文](https://www.bbc.com/news/articles/c8d6lzn733jo) |
+| South Africa's police minister suspended over organised crime allegations | [阅读全文](https://www.bbc.com/news/articles/c8d6lzn733jo) |
 | Plane crashes at Southend Airport | [阅读全文](https://www.bbc.com/news/articles/c1jw71kjx14o) |
 | Gaza officials say children killed in strike as Israeli military admits 'error' | [阅读全文](https://www.bbc.com/news/articles/c0rvxjnvv71o) |
 | Ukraine says it has killed two agents behind assassination of its intelligence officer | [阅读全文](https://www.bbc.com/news/articles/cj3r7p117l0o) |
@@ -25,14 +25,14 @@
 |--------|-------------|
 | Secret Service’s ‘cascade of failures’ allowed Trump assassination attempt, report says - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNMTBNcDZVWXBjRTFmRU8wTUdFZUN6VjlkYjJGeGgxZW1pSEt6ZFdlaXU1MnVSSk5VbjJ0eDV1LWRrblJCODlWZjAxd2RtLVVpNEp5cWUxSzVhdzhXMWNoWXVkSzUxRWEzM253d19hVUo3UUlvbHlUN1ZWLTdGSDh0M25Eb2FTNG54TXpFNHVvMWNvNWVIOEpxb2hjR2h3UQ?oc=5) |
 | Donald Trump defends Pam Bondi over Jeffrey Epstein files - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9CeTMzaE83OTNqa01FSDJPWTdKVkhhZGlCM3g2aEg2RDJ5S2R6WklBNjNjd3phWURaNnJfbElGWk1pZ0dFZndycVVtNFBrSWpoN1dtaUlwckVPd9IBX0FVX3lxTE9oaG85WFo4Z3VlV0FsTkZkUU0zdmJoSS1BcVZrNm42djJ2d0hzWDY0MkNHVTNaVUpJOU1oelFvZ2RJZF9ENGpwR2FWVWZOb0h6cXpidXQtLWxlODE4QWtr?oc=5) |
+| IDF admits error in deadly strike on water delivery site as truce talks stay jammed - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQZ3AyemdqUDVnVkxnWFhVQkMwNmNwUC01bUIzcDhmZC15MGdTdmI0dUwyVzBZN3BCc0Z3TzhuVmZzaE5pakNkQ2JqOGFGX2Q2b0ZvVFdHS0RsblR0MDFoRmFFaUt2MkwwWXZlWHpndHJSMHlkQTVFUmNDYUU4OEYzZkFmVS1ROUxDU3Y2eVp2YVYtajUyZV9TUXlLbXNLTXloWjdYNnZ3MzRNa1B2RGF2TEtUYUjSAboBQVVfeXFMUE45NFlpcnRvX3RsdUpvVzJkVkV5SGFDWHF1RHRDOVBkSkJjaFRJQlJrZjhVQU1JMU4yMkFNQ3h4YUhSUDZpV1pMZUlOUjhqNVpxdk41UU9ZYTBKVTVOWlpObHY2TEF5dmlnOFJRRGtpdmFVSFB3UGhxblQyS0txRXFtMGFpNkZEdm1QNjJqQWswZGFaVTdGY2l3eWNiN0JTR3Q3VzhLNkhYbm5rQjJQbnFoU1Y1aVYtbVR3?oc=5) |
 | Search efforts paused as more flooding rains hit Central Texas - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQNkVpNmEwYmxkaDBIZXFCaVpHWW82eWR5UTBJVDNrNDFfbkNfbDVtdHpCNzVfZ0ZTa2tDbE5VbUJLTktrRl9IM1dzbGVRcWtsa2c2MVBVTFFfakpWSVhLdHFfbEVFVGlHRXR1ekdLbXJqN0g0WDFCSmZoendiNF95QXhrVDRmUFRST2QxQVRTbU9USktWTno5bEpB?oc=5) |
 | State Trooper Is Among Multiple Victims in Kentucky Shooting, Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQVVRDMjZ0YjRlR1pjMkhHR3lPYXhtN1lwem9QNWhSZ2k1YUZKVmVzWGUtOVd6THVDWmhmbGotSUZLUU1US09xNWd3VDlwX1JjU3NnQXo3dnZ0MWZ3bm5lYTBialY2UWV4ZUk4TWV5VG9zTThtNGFLb1ZfVno1Rk5hRXZtb3A2QmU3?oc=5) |
 | FAA says Boeing fuel switches are safe following fatal Air India crash - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE0teVhkVXJLbUhkN2ZxR0FSQlZldEpjQ1JfNkxZaHg3SnhOTDFSdGF5RlMtTjBKOGNJSG8tdFhibFhlLTZBVng2cmdDcHpHLWFRQnZWODdrc015TDF2dXFLcUJfdDhMbGo0cVVuS1llbkk?oc=5) |
-| EU suspends US trade war countermeasures while pushing for tariff deal - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQTlR4WjU5ZUFDS1k5cEtUNzFUeEFYNVY5YXBpbkRFX1pGdHN4dEwySnFTdzZzaEw2ZnRLbUdRUjh5cFYtLVZkUVpGUHNSMW1Jem9TRkFEdE9yZ3UwNTdzYnZJVmNzVHkydXNweko5YWRUdEs2R3hvbE9SbTlzMDMzc3F4QTJyUURZNWpIcUZScURZc2RobVZwYldxbDNPM2w1UWFkb1J3RQ?oc=5) |
-| Wildfire destroys a historic Grand Canyon lodge and other structures - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQanFDWWpQamVVSjlpTmJBbnRNbjhPamZSTlJJS04xNGhTb3dzV1lFbklMZlg5UFZjVk1qTC13MkxJOHRmalJNcVBnbFJHcmNnaksxOThHYTlRdGY5UU5WVF80VVFaaW1Qbkg1NDAyOUNRbERRTTczellobzZ1TFlxVGhEbU5TTGptSXZVQUR0UXdJZ3ctY3hIb0JCRzRCUQ?oc=5) |
+| Wildfires destroy historic lodge on Grand Canyon’s North Rim, park says - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOV2J4a1dvNVFjQ0pSR2JCLS1PUUNBazRzbXozU19UZGRaZFJkcGZCVl9yS3RBM3hNTEkxY0lvakdoVlZmcHVFcXppLW5JbzBkWWZDTVQ5YnpnMTZmeGs1Vll0WS1jZEt5cGJZZG9DWlBTaTdRSDZyWVVIbUI3amUxOXBFVVlrVG5ldnlFZ0IwUHhuNHEwanBnOXZn?oc=5) |
 | Trump administration defends immigration tactics after California worker death - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxNVm53ZmtDems5SUd3VjFMeFZ6M2RjZ3FEbFp1WUI1OWEybnNMR2YxdjNjZ0txWkx2VlNtVnVpSC1TTGFmZ1NoeFV2aENxclUxTHJPUG1NNmc5MXYxem1UUEhUQjlfNnlrRVBUZmNhdm1JZktWOVEyeVZPelZzNDJUQno0X3FmN19uVEJxaEQybVR0ZnIzWkJNWHNjMnhYWXQySHVTWmxlTEVEenhkbFB1VjJOeVNkQWlxTVktV2JUM1A?oc=5) |
+| EU delays retaliatory trade tariffs against US - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9NZTJLVC1fanhzSE40dTJobnVtZGhDRE82MGJnaTV6cjdZQ0FrR1NhZG5IMUgwOElhc21PQ0FwYVg3bVVrU05NREhFbWhLZ3hyaURLdm5DU01uUdIBX0FVX3lxTE1oc3ZTOUxvUVZRN1dGUTZWU0FHbzlDWHVYbFpJQUpwOTd3ZExOSmczUHdDRk40S2Jta21qZUttNGVsbklacENYcjRJNkhvSTQxRjJDRFNFaURUdmpKU3VR?oc=5) |
 | Noem on blocked ICE operations ruling: Judges are ‘getting too political’ - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOS3pPVzlUQmJIR29QNVFzbW9teFVwQU1FQTdJZmtQYWN4eEp2RnQ2dEJhc1pQRUlEQ0pDZVFiZ29ZRzM1ZnRrNk9qclctQzFPZURaMndaMTBVdWFNSkZvM1VQV0YwS09lTjZGTWVoalRSWlVHdm1uYTZxR3pPOUM0aU45UFBGd9IBiwFBVV95cUxPZHc4blgtTVpKNjJmMEFXSV9BcjJyeXc2SUFSOVIwVlhTZFQySjY5YmZnQmd4WFFkd3lLWXAzbm90RnZraVVUQzl0OURQRWV5Rl8zRklTaVY4SVhTSVcwWF9QTUFYb2d1VlFBNk9HanlPVTEzaVREcVFzQVFPRG1Ua3NERmRUZWQzdzRZ?oc=5) |
-| Gaza officials say children killed in strike as Israeli military admits 'error' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9BaU5SVW9QeE9LNUlrejlrVFJJQkNwci01VTVRaTd2NnROREJ3X0FmZFlad0NYQk5heVZ1bXl2cEpEYVZ0Z0tsRnh4aUk1Y04ybU9Bbk42QUJlQdIBX0FVX3lxTFAzc3pZUlNpcFplQXg5cENlUExzTlNEVG1VX3dwZE0zcnlFa0x4TmpNMEEzYlpiNHU4Q1l6RTRVT1FLWUNTTTVjaHQ2bzR6UXNpQ0NQLVpHa1EteFdKY2Y4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
