@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月14日 11:00:35（北京时间）**
+🕒 更新时间：**2025年07月14日 11:13:14（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| State Trooper Is Among Multiple Victims in Kentucky Shooting, Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQVVRDMjZ0YjRlR1pjMkhHR3lPYXhtN1lwem9QNWhSZ2k1YUZKVmVzWGUtOVd6THVDWmhmbGotSUZLUU1US09xNWd3VDlwX1JjU3NnQXo3dnZ0MWZ3bm5lYTBialY2UWV4ZUk4TWV5VG9zTThtNGFLb1ZfVno1Rk5hRXZtb3A2QmU3?oc=5) |
+| Two women killed at Kentucky church as gunman opens fire after shooting officer - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1ILUV6X2pXTGZ0aGhtdm81VnBHb1BScmd4bkI0Uk9ETWI1R3pWZVNzX01FZmdXZDM5cV90SjZvcXZpRmtpcDROWUQ2b09wNkpseTFWX2ZvLVV2QdIBX0FVX3lxTE1WWWIzRC01UVlvb1dyNkg5OU5tNTBNU0ZIMzRQNDgxM2FpeXFHODUwbVlfc3duUHQzeEFFV18wVE8wSWFwdHhHbUVSNW5fYWpOZF80TGxKaFc2aDRGVnc0?oc=5) |
 | Germany urges tough EU response if 'fair deal' cannot be reached on US tariffs - France 24 | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxOeWZhZXJtU0M4N0F2ZjZVYU5DRUVnXzl6SXljREZ4cHEtU1YwZUE0MjBXX2FNVC13ejhJU295RVV3ZjBldE5oVzE2SkF2YWlvQXZXQ2kzcVAyZXdUUDViQnJzb3FzTFUzMmR0SHhFdWl6NDd0d0JhaWl0cEQ3TVpVS3VBc0xkMkxHM0M4MnhINXlVcEV3Wjdrb3FFMjlBTjBSa1owN255b0JWM2c0cXdsaU1nYzZUeWFXeEFseQ?oc=5) |
-| Senate report details failures ahead of Trump assassination attempt - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOTVltRjhPdFpYblFkSTVkRzVWdklsbWcyZjQ1T25hYWgxRThCNk5fWEdUTWR4NEhMTEZLSm9JWWNXdExXMmxYR0MwV3B5eU9CTnpaV0c4UEFManlfcVhEU0pXSHZuRFRzc0t2QnpCSFFtUF9pdl84bGcyclVJUEJuZG5VQktiRWtlQmRrZ25xel82VWVxeUdXczR3WFYzcFViZFE?oc=5) |
 | Amid Air India probe, US FAA, Boeing notify fuel switch locks are safe, document, sources say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxPQ1ZTcjdqeUxNZFg2aUVrbzNYYXQ0VGxvQk11NWZPQkU0Wlk2eUQ5RWpRVjB0SXVuMmZwbmpIQ0VLWS1nbkhVZHI5TUR5RzRfMGN4T0M0WTdEckZIczE3bGg1TVo0RkVmaVVaYVV4YVYybjlraHJHLU5hTVlRd2cxQ2R6RnFmSUl2N29FZ0dNUVF5Zm5fSnFMQWpKY0VjbmJ4S0drRmRiektjTVdBSXhEQWx2S3BXWUREY0cyNWRDSjBPTERNYVpTWGRNX0N1Q0xYcjRlejk5OA?oc=5) |
+| Senate report details failures ahead of Trump assassination attempt - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOTVltRjhPdFpYblFkSTVkRzVWdklsbWcyZjQ1T25hYWgxRThCNk5fWEdUTWR4NEhMTEZLSm9JWWNXdExXMmxYR0MwV3B5eU9CTnpaV0c4UEFManlfcVhEU0pXSHZuRFRzc0t2QnpCSFFtUF9pdl84bGcyclVJUEJuZG5VQktiRWtlQmRrZ25xel82VWVxeUdXczR3WFYzcFViZFE?oc=5) |
 | Biden Says He Made the Clemency Decisions That Were Recorded With Autopen - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPNmc3ZlFmWmtUZmEwYU1SMC1kaVdUUjJTanFpdC1USWFwNHdCMm1zMmQtOHBxYkNiSDh0VTZXNVd0d0YwaWNHMzhBZm45T3dqOEI3S25qbVo1SWRhN04zTk0xNlZzSFk5aDNBLVJaMVZCMHpSX1pQYzVOZm5tWEZEa1NMTEI?oc=5) |
 | Trump administration defends immigration tactics after California worker death - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxNVm53ZmtDems5SUd3VjFMeFZ6M2RjZ3FEbFp1WUI1OWEybnNMR2YxdjNjZ0txWkx2VlNtVnVpSC1TTGFmZ1NoeFV2aENxclUxTHJPUG1NNmc5MXYxem1UUEhUQjlfNnlrRVBUZmNhdm1JZktWOVEyeVZPelZzNDJUQno0X3FmN19uVEJxaEQybVR0ZnIzWkJNWHNjMnhYWXQySHVTWmxlTEVEenhkbFB1VjJOeVNkQWlxTVktV2JUM1A?oc=5) |
 | Wildfire destroys a historic Grand Canyon lodge and other structures - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQanFDWWpQamVVSjlpTmJBbnRNbjhPamZSTlJJS04xNGhTb3dzV1lFbklMZlg5UFZjVk1qTC13MkxJOHRmalJNcVBnbFJHcmNnaksxOThHYTlRdGY5UU5WVF80VVFaaW1Qbkg1NDAyOUNRbERRTTczellobzZ1TFlxVGhEbU5TTGptSXZVQUR0UXdJZ3ctY3hIb0JCRzRCUQ?oc=5) |
