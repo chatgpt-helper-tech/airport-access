@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月14日 15:52:58（北京时间）**
+🕒 更新时间：**2025年07月14日 16:00:41（北京时间）**
 
 ---
 
@@ -11,9 +11,9 @@
 | Extreme weather is the UK's new normal, says Met Office | [阅读全文](https://www.bbc.com/news/articles/c74w1gyd7mko) |
 | Southend airport to remain closed after fireball plane crash | [阅读全文](https://www.bbc.com/news/articles/c1jw71kjx14o) |
 | 'Just appalling' - dubious tactics at leading estate agencies uncovered by BBC | [阅读全文](https://www.bbc.com/news/articles/cvg81l57x53o) |
-| The 'strongman' PM who inspired Trump's playbook - but now finds his power crumbling | [阅读全文](https://www.bbc.com/news/articles/cpd1j1x2l1lo) |
 | Woman smuggled baby into UK using fake birth story | [阅读全文](https://www.bbc.com/news/articles/c98jl8jnz92o) |
 | Gaza officials say children killed in strike as Israeli military admits 'error' | [阅读全文](https://www.bbc.com/news/articles/c0rvxjnvv71o) |
+| The 'strongman' PM who inspired Trump's playbook - but now finds his power crumbling | [阅读全文](https://www.bbc.com/news/articles/cpd1j1x2l1lo) |
 | How Sinner bounced back to win Wimbledon | [阅读全文](https://www.bbc.com/sport/tennis/articles/cx20dxyd5plo) |
 | Bank boss ready to cut rates if job market slows | [阅读全文](https://www.bbc.com/news/articles/cqx2pj42395o) |
 | Disappointment as Drake's final Wireless show ends after 40 minutes | [阅读全文](https://www.bbc.com/news/articles/c14e54ggyl1o) |
@@ -30,9 +30,9 @@
 | Historic Grand Canyon lodge reportedly destroyed by Dragon Bravo wildfire - ABC15 Arizona | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPaFhVc0hsVHNMeFNjQUpBTEZsU3piU0ZxOURYTzI4VFB0TDRJMk9QVU5lb3NVYThSVXVTTVNRRFlQaTlTZzhtNlAzV2xpLUZMSno4ZEsxSlByQ3VKdk9yWFVlVHdReXJOWGs5T1k4TXExQ2NudjNHQlZFUFRQUWhzWUxsZVhqbGU2NnR2bUZKdk95azZDRExzSHhuT2MzTVRJVzh0UVdBc01MNUQyaDdB?oc=5) |
 | Details emerge about pot-farm immigration raid as worker dies - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPMmFjRTFmdFdUcHdESTJQaHZRZzBSSVRTV3NXLWtITTh2TzM2WGMxdUVGU3d5bGNfWnk2eGdQUmxoZ29PNTVzaDhqNFNNOWdjbE95bmRueWxYUXpVMjlyQWpybGkyYnF1VVo3bHNfNUh1eU4yS21qMEVMcnFSQnZkTzFDMks1cFlRR0dn?oc=5) |
 | Senate report details failures ahead of Trump assassination attempt - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOTVltRjhPdFpYblFkSTVkRzVWdklsbWcyZjQ1T25hYWgxRThCNk5fWEdUTWR4NEhMTEZLSm9JWWNXdExXMmxYR0MwV3B5eU9CTnpaV0c4UEFManlfcVhEU0pXSHZuRFRzc0t2QnpCSFFtUF9pdl84bGcyclVJUEJuZG5VQktiRWtlQmRrZ25xel82VWVxeUdXczR3WFYzcFViZFE?oc=5) |
-| Trump news at a glance: King Charles schedules state visit as president booed at Club World Cup final - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPOVR3dTE4eXlGZlJMVG1qWTdlbkZ1aUVRYnpZYWRqZ1k1U2JXZGJOOUhGOGlSRmdYSTRJY3NZSjZiWUxRWmM0SnhaZGVwdlJ1Nmlmc2V2LTR0OUhLSV9CUGRrU2k0LTZwTmdFMFFJd1J2alJ6S25vZ2hHZS1hcTN2cXVFQ0NXcnczUGhBSFBMc0p4Y1ptVGNwX3R6SlE?oc=5) |
-| Noem Defends FEMA Response to Texas Flooding and Says Trump Wants Agency ‘Remade,’ Not Cut - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQdVFsZHUzbVFZVk5RcU5GTEZKS1lfMTVNWjdBazNCNU8xOGR0eVVXSGU2Yk1ZR3JVVzhmSFpXSXU3dUlRd0ZIcXAwMkZIR0p0ZWxWQXhBR29va0IxTlpOV19iY0NFS3BXd0pyTDMyLTlSUHJoVG1HemhzQXZWWnplaUJPQkpjVHpxMWdhVVUybXA?oc=5) |
+| Donald Trump’s UK state visit set for September — when MPs are away - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE80eTFJOC13RTl2S2tka0N0M3BVV0RfMVlYOE9nMFh4RVREVkp4ZDV2Tlh2RXZscEh6LVh0WTMyRlJzWnZ0RmFCc3B5TF9CTTZnb2hjaDJrQWZCdmQzTktkWEZQN2lJbEJwRW1XQzhodXFsdnZlRU5ITEh3?oc=5) |
 | Muhammadu Buhari, Nigerian president and ex-military ruler, dies at 82 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQVVlZMnhNSHdfdjBoMjR1R1h3aG93TlZTeGE2eVlHNjNQcXlIN2kwaXZTMWVqMUtSMTRHYzVHLWJfUmtFWWU4TjYzYU9YcnF3VkVkblhnUmR5OV9jVUpWTzdHdTU5Yjk1Y21lT2xRRkMxUEFENXA1ZVJKOXNteXFEWkxHNjRlQ0FKMWY0?oc=5) |
+| IDF blames ‘error’ for Gaza strike that killed children collecting water - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNc1NZMTJwUVI4WWdCOTlOTzY2M3dUU2xfX2xTYUtRVnhRdFhlVDdTa1d3dXpXODU2RTR3aVJXSVVLM2tVWXdzd0FWVHlHMnJieElJTGhIY0F6eXJQRGJrWmRoYUhNOGpfRTBDUVFRMFJBdU54VHJWMzg3dmctUGJyWjZkVHpOUUU?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
