@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月14日 11:40:14（北京时间）**
+🕒 更新时间：**2025年07月14日 11:52:09（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Amid Air India probe, US FAA, Boeing notify fuel switch locks are safe, document, sources say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxPQ1ZTcjdqeUxNZFg2aUVrbzNYYXQ0VGxvQk11NWZPQkU0Wlk2eUQ5RWpRVjB0SXVuMmZwbmpIQ0VLWS1nbkhVZHI5TUR5RzRfMGN4T0M0WTdEckZIczE3bGg1TVo0RkVmaVVaYVV4YVYybjlraHJHLU5hTVlRd2cxQ2R6RnFmSUl2N29FZ0dNUVF5Zm5fSnFMQWpKY0VjbmJ4S0drRmRiektjTVdBSXhEQWx2S3BXWUREY0cyNWRDSjBPTERNYVpTWGRNX0N1Q0xYcjRlejk5OA?oc=5) |
 | Trump administration defends immigration tactics after California worker death - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxNVm53ZmtDems5SUd3VjFMeFZ6M2RjZ3FEbFp1WUI1OWEybnNMR2YxdjNjZ0txWkx2VlNtVnVpSC1TTGFmZ1NoeFV2aENxclUxTHJPUG1NNmc5MXYxem1UUEhUQjlfNnlrRVBUZmNhdm1JZktWOVEyeVZPelZzNDJUQno0X3FmN19uVEJxaEQybVR0ZnIzWkJNWHNjMnhYWXQySHVTWmxlTEVEenhkbFB1VjJOeVNkQWlxTVktV2JUM1A?oc=5) |
 | Biden Says He Made the Clemency Decisions That Were Recorded With Autopen - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPNmc3ZlFmWmtUZmEwYU1SMC1kaVdUUjJTanFpdC1USWFwNHdCMm1zMmQtOHBxYkNiSDh0VTZXNVd0d0YwaWNHMzhBZm45T3dqOEI3S25qbVo1SWRhN04zTk0xNlZzSFk5aDNBLVJaMVZCMHpSX1pQYzVOZm5tWEZEa1NMTEI?oc=5) |
-| Senate report details failures ahead of Trump assassination attempt - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOTVltRjhPdFpYblFkSTVkRzVWdklsbWcyZjQ1T25hYWgxRThCNk5fWEdUTWR4NEhMTEZLSm9JWWNXdExXMmxYR0MwV3B5eU9CTnpaV0c4UEFManlfcVhEU0pXSHZuRFRzc0t2QnpCSFFtUF9pdl84bGcyclVJUEJuZG5VQktiRWtlQmRrZ25xel82VWVxeUdXczR3WFYzcFViZFE?oc=5) |
+| Trump news at a glance: King Charles schedules state visit as president booed at Club World Cup final - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPOVR3dTE4eXlGZlJMVG1qWTdlbkZ1aUVRYnpZYWRqZ1k1U2JXZGJOOUhGOGlSRmdYSTRJY3NZSjZiWUxRWmM0SnhaZGVwdlJ1Nmlmc2V2LTR0OUhLSV9CUGRrU2k0LTZwTmdFMFFJd1J2alJ6S25vZ2hHZS1hcTN2cXVFQ0NXcnczUGhBSFBMc0p4Y1ptVGNwX3R6SlE?oc=5) |
 | Wildfire destroys a historic Grand Canyon lodge and other structures - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQanFDWWpQamVVSjlpTmJBbnRNbjhPamZSTlJJS04xNGhTb3dzV1lFbklMZlg5UFZjVk1qTC13MkxJOHRmalJNcVBnbFJHcmNnaksxOThHYTlRdGY5UU5WVF80VVFaaW1Qbkg1NDAyOUNRbERRTTczellobzZ1TFlxVGhEbU5TTGptSXZVQUR0UXdJZ3ctY3hIb0JCRzRCUQ?oc=5) |
 | Heavy Rain Pounds Central Texas, Forcing a Halt to Search Efforts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBYR0ZhMDctd0plcGo3Vlo3U1YxR0l0RzZKY1U4QnR4QzVOZnp4S1NPUmNKSWJ4cE9famRCUmYwQUJ6X3M0RDlubFJvckVleXR2c2hVa0FjQUI1SDZGT0c3X2JkS0xuWEJjeHJFNXBONDhIaEFtaXc?oc=5) |
-| Trump news at a glance: King Charles schedules state visit as president booed at Club World Cup final - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPOVR3dTE4eXlGZlJMVG1qWTdlbkZ1aUVRYnpZYWRqZ1k1U2JXZGJOOUhGOGlSRmdYSTRJY3NZSjZiWUxRWmM0SnhaZGVwdlJ1Nmlmc2V2LTR0OUhLSV9CUGRrU2k0LTZwTmdFMFFJd1J2alJ6S25vZ2hHZS1hcTN2cXVFQ0NXcnczUGhBSFBMc0p4Y1ptVGNwX3R6SlE?oc=5) |
-| American 'Brutally' Beaten To Death By Israeli Settlers In The West Bank - HuffPost | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOZTc3YVgwU2hJY2VJOE9oNkdKWjQ3LTZyTGg2RERoeS1sUWF3SWxNY0ptR0llX0FyYUgzV2xsS2N2UGMydkZwTXFXbU80QVJXM3k2R0JZTUY5NHBILThHT1ZHQnNIWVdoNGZWTXZJS21mR0QwcUxicmh5OXFzbEpxZVJIX0JkSFNIX2JNLXlGYnJudEM1bFJVWVhHWngxd2RL0gGmAUFVX3lxTE9mVTlhVEFLLV9xN0V0Nm9qVHllUndvMU10a2pZMFFJRmpUWnhXNTUxX1F4dG9WZXlxZzFLb3Atd3N5d3R6R0tOdlBBMVV4U0NsRXBLWDZNbVd6ZWxwZGQwMUNOQ29ZM0lGZXlTWGI0S2E0cmlMZ1NQRmFGYy1oTmF0dmhxaUQ0OVJkTTV6LXo0SG5wMzNjUU5UYm51RG5hN2wtT0k2aVE?oc=5) |
+| Documents Show FEMA Calls Went Unanswered. Kristi Noem Claims It’s Fake News - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPQUpFOXYtcEZXU0dFdF9QcVN2dU03Z0ZmakFWUTFVMDYtNnAyeTRwQTNYOGxGVlktd0dkME5CaHVvODZ2X2lPaVNtSGJXczJ2d1dOVmNVU21LQUlkY2lpaDhFSzBzdjZLeS1BSWtqV3YzZXVTRHg3bDFCYmlRei1uWjhFRk1udDJkY2RGMXRNSlFZUzJNRzRGdUIyb2czLXJ4NDdmYQ?oc=5) |
+| Senate report details failures ahead of Trump assassination attempt - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOTVltRjhPdFpYblFkSTVkRzVWdklsbWcyZjQ1T25hYWgxRThCNk5fWEdUTWR4NEhMTEZLSm9JWWNXdExXMmxYR0MwV3B5eU9CTnpaV0c4UEFManlfcVhEU0pXSHZuRFRzc0t2QnpCSFFtUF9pdl84bGcyclVJUEJuZG5VQktiRWtlQmRrZ25xel82VWVxeUdXczR3WFYzcFViZFE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
