@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月14日 18:52:57（北京时间）**
+🕒 更新时间：**2025年07月14日 19:01:18（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | 'We want to carry on Bebe's light', mother of Southport attack victim tells BBC | [阅读全文](https://www.bbc.com/news/articles/cgrxpn5vw8yo) |
 | Boeing fuel switches are safe, aviation authority says after Air India crash | [阅读全文](https://www.bbc.com/news/articles/ce9xpgnx3vdo) |
 | Man who murdered girlfriend and tried to cover up her death jailed for life | [阅读全文](https://www.bbc.com/news/articles/cz7lgpxld24o) |
-| Gaza officials say children killed in strike as Israeli military admits 'error' | [阅读全文](https://www.bbc.com/news/articles/c0rvxjnvv71o) |
-| Disappointment as Drake's final Wireless show ends after 40 minutes | [阅读全文](https://www.bbc.com/news/articles/c14e54ggyl1o) |
+| A-listers and royals grace Wimbledon finals - in pictures | [阅读全文](https://www.bbc.com/news/articles/ce8zl55598qo) |
+| The 'strongman' PM who inspired Trump's playbook - but now finds his power crumbling | [阅读全文](https://www.bbc.com/news/articles/cpd1j1x2l1lo) |
 
 ## 📰 Google News
 
@@ -28,9 +28,9 @@
 | Search efforts paused as more flooding rains hit Central Texas - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQNkVpNmEwYmxkaDBIZXFCaVpHWW82eWR5UTBJVDNrNDFfbkNfbDVtdHpCNzVfZ0ZTa2tDbE5VbUJLTktrRl9IM1dzbGVRcWtsa2c2MVBVTFFfakpWSVhLdHFfbEVFVGlHRXR1ekdLbXJqN0g0WDFCSmZoendiNF95QXhrVDRmUFRST2QxQVRTbU9USktWTno5bEpB?oc=5) |
 | Historic Grand Canyon lodge destroyed as wildfires force evacuations in northern Arizona - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNQV9EVGZkZ2VaRHZFQnJsUjJScW55RHlUenlXUlJwZTVReDV3UFNlNVJHV3RLZTB5aHRxN0hORndTeUlGaTRWeFByOWdCckZfb2tBZnhYMVQ5T09HanJ4TFpRZDhKbnRuVEF1d1RESFFDQV80eG1XVnZYUXZuMmZmbGl1Qll2UEFaN1BpZHN6NWhpUQ?oc=5) |
 | Details emerge about pot-farm immigration raid as worker dies - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPMmFjRTFmdFdUcHdESTJQaHZRZzBSSVRTV3NXLWtITTh2TzM2WGMxdUVGU3d5bGNfWnk2eGdQUmxoZ29PNTVzaDhqNFNNOWdjbE95bmRueWxYUXpVMjlyQWpybGkyYnF1VVo3bHNfNUh1eU4yS21qMEVMcnFSQnZkTzFDMks1cFlRR0dn?oc=5) |
-| Biden Says He Made the Clemency Decisions That Were Recorded With Autopen - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPNmc3ZlFmWmtUZmEwYU1SMC1kaVdUUjJTanFpdC1USWFwNHdCMm1zMmQtOHBxYkNiSDh0VTZXNVd0d0YwaWNHMzhBZm45T3dqOEI3S25qbVo1SWRhN04zTk0xNlZzSFk5aDNBLVJaMVZCMHpSX1pQYzVOZm5tWEZEa1NMTEI?oc=5) |
+| Air India Crash: Aviation authority says fuel switches are safe - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1Ha0ZHRXVIeTZ2cWJTWVZLNjRBLW1TTk5DakhTbjVudzFyX1hHZEgxbVFwWFJESExOdzZEbHZWMTdnc2stUTlMWEExNllydHBsUzhsY2FWby0zQdIBX0FVX3lxTE9aSEg2Ymdnd2c5d1g2OEFBQWlTZVM3RTdKYkNydU9mRzEwY2c3WXJRczZNenZZUzVhQjlVTlNTZ1pGUmx0YXZHZnE5ZW45REhXcjJHX0JWN0ViQ2U0UjRz?oc=5) |
 | 2 dead at a Lexington, Kentucky, church after suspect shot a state trooper, police say. Suspect is dead - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPR3E5di1MS0huYnVaVHgxYmFmVU9scHRQWnFHR3oyUGc2MHJTbk85VVdVc0ZvRVFfNkFOdHVvd0NXaXBKWV9JcmM0VDB2dGZ6bVVhSGphUG1GT052b05XYXkzWUpNNm9DejREY0ctaDFTd21CS3c3c1doZ3lJSXdLOdIBgAFBVV95cUxOd0VyLWZZRXg3SmxLcGZhZEZ4NF9wUzBCR2dqY2RlMktfR1NfSXBfUUZ1dlBlNWNSeVVvVjEwdXUxRF9ldUdXS0VzQ3BpQUNaby13cFNQb054MWp5dVo1Tk55YTN2dEcxdDNQRGUtSmIyVzR0amF3UXN1XzJ2OW9FYQ?oc=5) |
-| Questions remain at Secret Service one year after Trump rally shooting - PBS | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQLXV2aGttS05xSl9CMDdmaFRsYTZIXzJvS0kwSW12LXdRZEZ6dE1LQTFXZloxNEVoMEtTOU1pdTVGV0JlOW8wMkl5NUplUFB5a0NJU2JYZllvM3dHS2J3ZkNHUVFwNmN3d2FnRDNURWwwYmdjaVhzUnl5cC1JREN5MmNlQTdNb0FITUMxNFZBRFhqejF2NXlxN0ROaElZSGVCLW9BOGRnX0NYOTI50gGyAUFVX3lxTE9HQTFwWU0zYkQzaWZUamtiSnRlVjVMbzVnaFF1WHp2a01FTllHZ0toaW5XZzh4VGRaWm9tb2M3dUlDUzhlSmVFT2VzbEg2SU5ZNTNfd3I0c1FDYy1iNjRBWW1xOUcyelRjWDh5cUswV09Xb1lCVHozXzdpVWkwR2FVamJyWmlJbVhCX1QzaGJpa21RV3ZzQTRvSEZEaldmSmowUlV6MXFlUWZKRm5DcHdDZ1E?oc=5) |
+| Senate report details failures ahead of Trump assassination attempt - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOTVltRjhPdFpYblFkSTVkRzVWdklsbWcyZjQ1T25hYWgxRThCNk5fWEdUTWR4NEhMTEZLSm9JWWNXdExXMmxYR0MwV3B5eU9CTnpaV0c4UEFManlfcVhEU0pXSHZuRFRzc0t2QnpCSFFtUF9pdl84bGcyclVJUEJuZG5VQktiRWtlQmRrZ25xel82VWVxeUdXczR3WFYzcFViZFE?oc=5) |
 | Some Alligator Alcatraz detainees have no criminal record, list shows - Tampa Bay Times | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPLWpFb2ZvYXJMUGFya1R0ak5zZU40eE96TnluZXR5Z1RRUk8wTTc5Y0d2eldvdnRkQXNRQy1kN1E5WnZWX3NJTThRRE4wZmZPZkYzbEhLWVFWMDZGdUV6T0twZEduWm5GX2dLbkdMcTdNN3JYbFJJa1VrY21CWXhjN0RBSmdpdUZ1X0h4MmNZWlZWSkc5b3l6WWxwd1BvaUVoZTEtYlJpck5lRkJIRmpDVk94ZURqU09SM0E?oc=5) |
 | Trump to make second state visit to UK, hosted by King Charles III - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQRThoQUJyZHZ5VENDS1dHcU81TmxwOTNNZ1c0SHZJZV9PRU9BR1Z2bFhoOWE1TmhESEdtT2Q0bnJtRmUxYmlLcnhlWlFENkdOWWxTRlJaNlpwZmhoZnVVV3JYRWVXUUZnVWVzZHpjNHEzVHR0ZXBuc2lMaE05M2VJTVVyT3VfZ0hvSmNBdnBqMFpmUW5K?oc=5) |
 
