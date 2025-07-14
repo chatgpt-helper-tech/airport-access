@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月14日 22:52:38（北京时间）**
+🕒 更新时间：**2025年07月14日 23:00:50（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| 9 dead, 30 injured in fire at Massachusetts assisted-living facility, officials say - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNck5sZEdDZEdZVEh3aUtkY3o2VHpsME9zdUIwOGplRk50dE4tRTFaMWNGVEcyUGo5Sl93X21vVmpJemZ2a2FjS3hSOVJtdVVxR19PUVJxbDN1eVFUeFdCM2pWdHhGM2pvdG5HYVRsNzRKemtyaDAwNy1fX28yeUlLY1JpdFhZNlN2WFB5UmxYSE5hSVhKLXRHZ1h2WU92LXZQeEJEX1pCUGUwQQ?oc=5) |
+| 9 dead, dozens hurt in fire at assisted-living facility in Fall River, Massachusetts: Officials - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNck5sZEdDZEdZVEh3aUtkY3o2VHpsME9zdUIwOGplRk50dE4tRTFaMWNGVEcyUGo5Sl93X21vVmpJemZ2a2FjS3hSOVJtdVVxR19PUVJxbDN1eVFUeFdCM2pWdHhGM2pvdG5HYVRsNzRKemtyaDAwNy1fX28yeUlLY1JpdFhZNlN2WFB5UmxYSE5hSVhKLXRHZ1h2WU92LXZQeEJEX1pCUGUwQQ?oc=5) |
 | EU warns that its trade with the US could be effectively wiped out if Trump follows through on his threat - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPQk0ydFdIejN6cUd5bkVJb2Z2ekM0NnRrV2lPTjVqZXRTVmRQTVJyN3JvS2xTeHVmMXpxLWE1dFRJbE4ybHVsTXRBcDdxTGhyNjlYTHRjc1NGNng1UGk0alFmUjVNck1PdllzSlByOFNDUVlqUi1lcnFMb3Q3MUNMMWxR0gGHAUFVX3lxTE5iR2tMcnVuVWdwZkp3MHhTQWZ1WXpzRzNkTFExT0NhWkxMM3ctQ1J3VFhoei1XYWtWcFlFNUxJSEVqeFAzcmZaNl9ZamNkcjBraWxPZDRYZlBncUZWY2loNXlpUWpKc0FJZUctdG84cWZtaGNKS01SQTFvYjVURlVILXdpMHlXWQ?oc=5) |
 | Kremlin says weapons and ammunition deliveries to Ukraine from U.S. are continuing - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxPMUdsdTM4NDFBa3hRS2Y4VG9PRGlEZWtmWE5OQTUwTi1SYlNxZC1PbnhtNXNnTHRFX250M0FKYnJtbmVzLXNQdUlXa3U3eWpRcHZWT1pKU2MxVjhxYXROS1V0YjdXVE1yeU94cHR2ZjF0azIzekFtRDJmQjJvU1JTVTN3TUpWNVQxOEZReEY2ODAyMjBWVXNVdlp1VzEzRm5HUWFrSURwenVoWFBkMWRoN2RTcmdiUmNNRFRJVjhzX1BRR0xfV0VSX0E4SQ?oc=5) |
 | Historic Grand Canyon lodge destroyed as wildfires force evacuations in northern Arizona - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNQV9EVGZkZ2VaRHZFQnJsUjJScW55RHlUenlXUlJwZTVReDV3UFNlNVJHV3RLZTB5aHRxN0hORndTeUlGaTRWeFByOWdCckZfb2tBZnhYMVQ5T09HanJ4TFpRZDhKbnRuVEF1d1RESFFDQV80eG1XVnZYUXZuMmZmbGl1Qll2UEFaN1BpZHN6NWhpUQ?oc=5) |
