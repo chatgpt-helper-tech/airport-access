@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月14日 09:39:35（北京时间）**
+🕒 更新时间：**2025年07月14日 09:53:41（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Historic Grand Canyon lodge reportedly destroyed by Dragon Bravo wildfire - ABC15 Arizona | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPaFhVc0hsVHNMeFNjQUpBTEZsU3piU0ZxOURYTzI4VFB0TDRJMk9QVU5lb3NVYThSVXVTTVNRRFlQaTlTZzhtNlAzV2xpLUZMSno4ZEsxSlByQ3VKdk9yWFVlVHdReXJOWGs5T1k4TXExQ2NudjNHQlZFUFRQUWhzWUxsZVhqbGU2NnR2bUZKdk95azZDRExzSHhuT2MzTVRJVzh0UVdBc01MNUQyaDdB?oc=5) |
 | Heavy Rain Pounds Central Texas, Forcing a Halt to Search Efforts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBYR0ZhMDctd0plcGo3Vlo3U1YxR0l0RzZKY1U4QnR4QzVOZnp4S1NPUmNKSWJ4cE9famRCUmYwQUJ6X3M0RDlubFJvckVleXR2c2hVa0FjQUI1SDZGT0c3X2JkS0xuWEJjeHJFNXBONDhIaEFtaXc?oc=5) |
 | Germany urges tough EU response if 'fair deal' cannot be reached on US tariffs - France 24 | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxOeWZhZXJtU0M4N0F2ZjZVYU5DRUVnXzl6SXljREZ4cHEtU1YwZUE0MjBXX2FNVC13ejhJU295RVV3ZjBldE5oVzE2SkF2YWlvQXZXQ2kzcVAyZXdUUDViQnJzb3FzTFUzMmR0SHhFdWl6NDd0d0JhaWl0cEQ3TVpVS3VBc0xkMkxHM0M4MnhINXlVcEV3Wjdrb3FFMjlBTjBSa1owN255b0JWM2c0cXdsaU1nYzZUeWFXeEFseQ?oc=5) |
-| Documents Show FEMA Calls Went Unanswered. Kristi Noem Claims It’s Fake News - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPQUpFOXYtcEZXU0dFdF9QcVN2dU03Z0ZmakFWUTFVMDYtNnAyeTRwQTNYOGxGVlktd0dkME5CaHVvODZ2X2lPaVNtSGJXczJ2d1dOVmNVU21LQUlkY2lpaDhFSzBzdjZLeS1BSWtqV3YzZXVTRHg3bDFCYmlRei1uWjhFRk1udDJkY2RGMXRNSlFZUzJNRzRGdUIyb2czLXJ4NDdmYQ?oc=5) |
+| King Charles schedules Trump state visit for when UK parliament is in recess - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQMTFfUVFtMm1JVXZKcDlCSG81OXhQOEhRdHVnb0gzYTlveWNZWVFLTl84VFNDWERFdkZkZm1teUdQVVlyTmROeTdzR09rTV9Va0w1WFVwbzIxUUlyTkFxZVlXejBOQUFjSW40elJTOGo4YkZmTDlsbG5qc0JPN3haclU0dXZ3X1hrQnp2cDI4MWlvbjY2U2ZackE4c3pQd2h3WGVTOXhGN24tLVVXWlZzTlJlTnhFOEUxNEdPemlwYWJPZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
