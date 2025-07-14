@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月14日 17:27:51（北京时间）**
+🕒 更新时间：**2025年07月14日 17:40:24（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | Extreme weather is the UK's new normal, says Met Office | [阅读全文](https://www.bbc.com/news/articles/c74w1gyd7mko) |
 | Southend airport to remain closed after fireball plane crash | [阅读全文](https://www.bbc.com/news/articles/c1jw71kjx14o) |
 | 'Just appalling' - dubious tactics at leading estate agencies uncovered by BBC | [阅读全文](https://www.bbc.com/news/articles/cvg81l57x53o) |
-| 'We want to carry on Bebe's light', mother of Southport victim tells BBC | [阅读全文](https://www.bbc.com/news/articles/cgrxpn5vw8yo) |
+| 'We want to carry on Bebe's light', mother of Southport attack victim tells BBC | [阅读全文](https://www.bbc.com/news/articles/cgrxpn5vw8yo) |
 | Woman smuggled baby into UK using fake birth story | [阅读全文](https://www.bbc.com/news/articles/c98jl8jnz92o) |
 | The 'strongman' PM who inspired Trump's playbook - but now finds his power crumbling | [阅读全文](https://www.bbc.com/news/articles/cpd1j1x2l1lo) |
 | Gaza officials say children killed in strike as Israeli military admits 'error' | [阅读全文](https://www.bbc.com/news/articles/c0rvxjnvv71o) |
