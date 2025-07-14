@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月14日 15:40:09（北京时间）**
+🕒 更新时间：**2025年07月14日 15:52:58（北京时间）**
 
 ---
 
@@ -27,11 +27,11 @@
 | Dow futures drop over 200 points after Trump slaps 30% tariff on Mexico and the EU: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE1oN0xvZWRlRkNDa3pNX2x3TEY5VnhHN2FOSWgxSFo4a3dFNzFiT29RTDZfQmNGbHI2akRaV3UzbEJYLVZHVGhTVlJ1SGtqTVdWUkJvdlBmQUg3aFpzUWtXZElNOC04RXgyQ0RyTW0tSVh3R2RoSFlF0gF8QVVfeXFMTzVpYnlaUWw1MEJLdnVmNE53aUhtRVFzWGNyc1dkdS1iY1g1QXhYQjFFX2VGZU0yVmpBbDNCVUVXaGxKNnZ1TkRTdVJ1QWVuaVNMRE1KTC1KY2xDa2ZNRWFwMng2U3JfOFY4eUJXa1BvWEtMbVhjWWNMNGpEbQ?oc=5) |
 | Two dead and three injured, including state trooper, in Kentucky shootings - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQYTFOVl9EajFZaG9WZnF0OUZxZEVOelo3Slk3ZGdoMi1LQzFjMVBsQzBseDZhc195c3hySEJDXzc4SldkWFp4V25PNnhZS1cxT0FCNW9KRmVVTU1CQUFZS0hnUWJfUnp5eVBWNUk2Qy1QSk52YmllRTl6ZTFLQUJUXw?oc=5) |
 | Heavy Rain Pounds Central Texas, Forcing a Halt to Search Efforts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBYR0ZhMDctd0plcGo3Vlo3U1YxR0l0RzZKY1U4QnR4QzVOZnp4S1NPUmNKSWJ4cE9famRCUmYwQUJ6X3M0RDlubFJvckVleXR2c2hVa0FjQUI1SDZGT0c3X2JkS0xuWEJjeHJFNXBONDhIaEFtaXc?oc=5) |
-| Biden defends frequent autopen use at end of term - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFB5ak9laXJicnNaUHFOclBBaElXVEE2QUdkLUhkX3RUdEFkTFU0bDF5U2NDXzE4TXhDQ2RDYXo3NDZ1MVZpbzVtbjJqSUplXy13WGRHd2tjaUdDU3h2ZlRwYXNCb0dKS2hyTHRoNVVINHZrSExQWEJ6Z2ZB?oc=5) |
 | Historic Grand Canyon lodge reportedly destroyed by Dragon Bravo wildfire - ABC15 Arizona | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPaFhVc0hsVHNMeFNjQUpBTEZsU3piU0ZxOURYTzI4VFB0TDRJMk9QVU5lb3NVYThSVXVTTVNRRFlQaTlTZzhtNlAzV2xpLUZMSno4ZEsxSlByQ3VKdk9yWFVlVHdReXJOWGs5T1k4TXExQ2NudjNHQlZFUFRQUWhzWUxsZVhqbGU2NnR2bUZKdk95azZDRExzSHhuT2MzTVRJVzh0UVdBc01MNUQyaDdB?oc=5) |
-| Senate report details failures ahead of Trump assassination attempt - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOTVltRjhPdFpYblFkSTVkRzVWdklsbWcyZjQ1T25hYWgxRThCNk5fWEdUTWR4NEhMTEZLSm9JWWNXdExXMmxYR0MwV3B5eU9CTnpaV0c4UEFManlfcVhEU0pXSHZuRFRzc0t2QnpCSFFtUF9pdl84bGcyclVJUEJuZG5VQktiRWtlQmRrZ25xel82VWVxeUdXczR3WFYzcFViZFE?oc=5) |
-| Donald Trump’s UK state visit set for September — when MPs are away - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE80eTFJOC13RTl2S2tka0N0M3BVV0RfMVlYOE9nMFh4RVREVkp4ZDV2Tlh2RXZscEh6LVh0WTMyRlJzWnZ0RmFCc3B5TF9CTTZnb2hjaDJrQWZCdmQzTktkWEZQN2lJbEJwRW1XQzhodXFsdnZlRU5ITEh3?oc=5) |
 | Details emerge about pot-farm immigration raid as worker dies - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPMmFjRTFmdFdUcHdESTJQaHZRZzBSSVRTV3NXLWtITTh2TzM2WGMxdUVGU3d5bGNfWnk2eGdQUmxoZ29PNTVzaDhqNFNNOWdjbE95bmRueWxYUXpVMjlyQWpybGkyYnF1VVo3bHNfNUh1eU4yS21qMEVMcnFSQnZkTzFDMks1cFlRR0dn?oc=5) |
+| Senate report details failures ahead of Trump assassination attempt - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOTVltRjhPdFpYblFkSTVkRzVWdklsbWcyZjQ1T25hYWgxRThCNk5fWEdUTWR4NEhMTEZLSm9JWWNXdExXMmxYR0MwV3B5eU9CTnpaV0c4UEFManlfcVhEU0pXSHZuRFRzc0t2QnpCSFFtUF9pdl84bGcyclVJUEJuZG5VQktiRWtlQmRrZ25xel82VWVxeUdXczR3WFYzcFViZFE?oc=5) |
+| Trump news at a glance: King Charles schedules state visit as president booed at Club World Cup final - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPOVR3dTE4eXlGZlJMVG1qWTdlbkZ1aUVRYnpZYWRqZ1k1U2JXZGJOOUhGOGlSRmdYSTRJY3NZSjZiWUxRWmM0SnhaZGVwdlJ1Nmlmc2V2LTR0OUhLSV9CUGRrU2k0LTZwTmdFMFFJd1J2alJ6S25vZ2hHZS1hcTN2cXVFQ0NXcnczUGhBSFBMc0p4Y1ptVGNwX3R6SlE?oc=5) |
+| Noem Defends FEMA Response to Texas Flooding and Says Trump Wants Agency ‘Remade,’ Not Cut - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQdVFsZHUzbVFZVk5RcU5GTEZKS1lfMTVNWjdBazNCNU8xOGR0eVVXSGU2Yk1ZR3JVVzhmSFpXSXU3dUlRd0ZIcXAwMkZIR0p0ZWxWQXhBR29va0IxTlpOV19iY0NFS3BXd0pyTDMyLTlSUHJoVG1HemhzQXZWWnplaUJPQkpjVHpxMWdhVVUybXA?oc=5) |
 | Muhammadu Buhari, Nigerian president and ex-military ruler, dies at 82 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQVVlZMnhNSHdfdjBoMjR1R1h3aG93TlZTeGE2eVlHNjNQcXlIN2kwaXZTMWVqMUtSMTRHYzVHLWJfUmtFWWU4TjYzYU9YcnF3VkVkblhnUmR5OV9jVUpWTzdHdTU5Yjk1Y21lT2xRRkMxUEFENXA1ZVJKOXNteXFEWkxHNjRlQ0FKMWY0?oc=5) |
 
 ---
