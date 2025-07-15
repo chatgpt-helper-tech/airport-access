@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月15日 17:52:46（北京时间）**
+🕒 更新时间：**2025年07月15日 18:01:33（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Fall River fire that killed 9, injured 30 deemed ‘not suspicious’; Victims identified - Boston 25 News | [阅读全文](https://news.google.com/rss/articles/CBMi4wFBVV95cUxQRGNLb3lidzh2U19RYktQdGg0U1M3Y3Zjc2pTNGJ6Nk1XX0xUcHpjaWxVNnhySE5XcHlHSExPblZYVXNnWXpxQTM4REJiQnRxSmgwWEVPSW1YRmpGeG9Td3hyR3p5eDV2M2xENFZKZ0FsRTlONnVPcUJaRkpqVGhXNkZmYmJPR3QwYmxlWWpld3lnZ0tXSHZpNU05aGdDbkNQWTNPSGxrazBhUkh1ajE5TnI4VU9WNVBvYTVsZUNIcE1NZFI0SFlDbGFDYVh5S1NjMWdRN3FlTDMxZ0FrcXJyWmY3QdIB9wFBVV95cUxNSGVacUpCZm83YTNOdlJzMG1xejVwNnQtNmdfOTR3UUxlV3prS0R3d3FJSGdRVTlyRXJWbEhZaTEtVWk1dVBFeFQxdG1vRVA5SW1FaGRDTC1UamMzcnVBRE90cDVqM190aE8ta3hLWk1nTWtmUlJsLWF0WGRuT0hUaEViNUozMUYxbHpfZEppcmFqczd4dk1DUFlObFBCM3lHbU9zWGoxNkZLaldZM1huNXcxSjM4R01VZ29NenUtOHFQeWdyRDZmWE1xdWM4YzFPdHVrR3FINGpDaGc4dXBUYUh5M1JpQkJzUkJrWl9qYmJjdk5IeTlJ?oc=5) |
 | Fewer Than 100 Unaccounted For in Texas Flood as Officials Decry ‘Blame Game’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQeS01Ulh6QWxaZVBSWm1KeDlGSWliM2NHM09yRzgyUkt4LU9xQmwzNnhFazlKc1ViRWtvdVNkNE1GeTNtM3IzOThJZUxHeVZrajZaTktUcU5DTm83OHQ3LVBvZllXSEJvY2FPczhBeEJqelNveXNjUlZWMXhpVXlDbA?oc=5) |
 | John MacArthur, Firebrand Preacher and Culture Warrior, Dies at 86 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9HM1JFbWhyaEpNeTJQQWZ5SFI4RXcxMVR4ZkJKX05sLWxqbEQ1UHZPZGN6b0JqUlEzcVhyZnp1N2xrN1g4MXY3cVhTM3FrZFdIQ3pYaGpCdTF3ZnQwd183MTgtUUFHUjM3ZWZ6WG16dw?oc=5) |
-| Heavy rains and flash flooding sweep across Northeast - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQSV9IVWRWaDZhUW1MS1BNQVZVQ1NuUXMtRUZULTV2eE9Cclc4MEo2MHdkX3czWHh6MGNLSE9vRzJFczZsQlJhOXBodDFSbHUzN0E0MUpKS3RNOW9ZQzlsZkNOWFRUaldzc0tvTFU2Wm5NWl9wRzBhbTZ3UW1fUk4yZjF5NnUwT3JLeHdNT2ZMLWNQMkQwY1ZtZHJWRUdmX1dhZ3JFQg?oc=5) |
+| Arizona seeks probe of feds' response to Grand Canyon fire - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPSGFQemIyWXMtdzc2cGl3TnNPQlJDV0ZlZlVtT08zSXl2NkNtcXVndlVfQTM1Z3Vrc2pqVEhhNWw5Q191c0dCS1VXQ1VIZEJyX1pWek1DZ2pSQ3hVMWxJc3BkMU5janlXSlh3UGVsVHZraHRZcEItYXVsaVlWWlZqZk1hcmZESUlZZ3FOQlpEN0dObXI4bjU5X1BfR1gwNGFPWGs0YzgxNmRQQzQ3TGtGdnlGdjRFR3ZyTGtqc0R3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
