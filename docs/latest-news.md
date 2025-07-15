@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月16日 00:26:57（北京时间）**
+🕒 更新时间：**2025年07月16日 00:39:10（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | John Torode sacked as MasterChef host after racist language allegation upheld | [阅读全文](https://www.bbc.com/news/articles/c8j1vzngdjpo) |
-| I'm 'disappointed but not done' with Putin, Trump tells BBC | [阅读全文](https://www.bbc.com/news/articles/c1e02q12z32o) |
-| How Trump woke me up for surprise interview  - and the key takeaways | [阅读全文](https://www.bbc.com/news/articles/c5yg7eg8w98o) |
 | Thousands of Afghans were moved to UK in secret scheme after data breach | [阅读全文](https://www.bbc.com/news/articles/cvg8zy78787o) |
 | Men who felled Sycamore Gap tree in act of 'sheer bravado' jailed | [阅读全文](https://www.bbc.com/news/articles/c93969ln7zwo) |
-| Constance Marten spent months at 'torture' church, friend tells BBC | [阅读全文](https://www.bbc.com/news/articles/ce77wd5ne60o) |
+| I'm 'disappointed but not done' with Putin, Trump tells BBC | [阅读全文](https://www.bbc.com/news/articles/c1e02q12z32o) |
+| Trump woke me up for a surprise interview - these are the key takeaways | [阅读全文](https://www.bbc.com/news/articles/c5yg7eg8w98o) |
 | Savers to be targeted with offers to invest in shares under new plans | [阅读全文](https://www.bbc.com/news/articles/cvgwz7vypllo) |
+| Constance Marten spent months at 'torture' church, friend tells BBC | [阅读全文](https://www.bbc.com/news/articles/ce77wd5ne60o) |
+| The undersea tunnel network that could transform Shetland's fortunes | [阅读全文](https://www.bbc.com/news/articles/cvg7jw27w1do) |
 | Immigration status of benefit claimants published for first time | [阅读全文](https://www.bbc.com/news/articles/cdx5pw8pwg5o) |
 | Couple guilty of murdering two-year-old grandson | [阅读全文](https://www.bbc.com/news/articles/c7vr9z4ejego) |
-| Barcelona's Lamine Yamal to be investigated over dwarfism row | [阅读全文](https://www.bbc.com/sport/football/articles/cn5kpd4y2yvo) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | Heavy rain floods NYC streets, highways and subway as commuters brace for Tuesday - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNb3ExZ1ppU2VtV0M3amkzbzFwQW5qSFlkYkU2M2Y2OGxMcEhwSVhvMWJhMS11Z2dEdnh2TGFaaFF1RFFXUnpBLWxSd3pvLVdpRHl4QXhSVkl4SWtyY3AzWndzUWdFODZmUUtESm5qZ2VKUURTOHhJYUtZbXozb2Jwc2lUREFuQ1REUU9yQUltQy1nQWZjRVV4TTNxa1UwRVNlQUE?oc=5) |
 | Democrats' generational divide tested in Arizona special US House primary - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQX3FJWTlfTGczT0hCbkdpMVltYWp3ZnM3UXJkRUozSjhRVXdZel9STUNXWXZCNGtidzRreE1nX3I1a2I3UC1hcVpEWEZvOHNGOXN2ZnVGXzNVRUpMcG40dTlYb0hURk9vRVpVQTVOcUhfWXVxd0k5WnNHVXF4SEYwV3AtTFFNWXRyRmJDS2dnVXh6U3VSR3d5VmM2NFp3dnU3SkQ1ZmV1Yk9wNEJwRmpLWkJXWjM?oc=5) |
 | Homeless Population Declines in Los Angeles for a Second Straight Year - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9ZQzVmSGxYVUhnZmx6N1FUNE8zVWVjVVZsYkVUZUlXM2dPa18xWWgtVjkzMnVCeGRlNnI4OE9IR0lZTno1QU9KYUtDeld0U1V1OVN1NWQ0Y3dQMEVSaDN5Wjg2dVpSMGVZdjlzUElWM3U?oc=5) |
-| Three Universities Will Face Congress Over Antisemitism Allegations - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPdk5JMTZnTlJKXzgzQkx6YnU0ald6Q3drZ1BmWkJuSkRjbTJ6bmFybUgxdXZ1VnNPWVRFZGZGalV3X3EwNFBwc1NWeFZoUURNVGZRU2NUZWZZSExBOWNQZ1lfekFPLUtWM3N6VklLbXVKMU9PcWk5VXpCdUFIc2xoUnFHSUZMRVVpblh0MWZFaEdVNTVQT0dDdzlfaEJVYWxKN3c?oc=5) |
+| John MacArthur, Fiery Preacher and Culture Warrior, Dies at 86 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9HM1JFbWhyaEpNeTJQQWZ5SFI4RXcxMVR4ZkJKX05sLWxqbEQ1UHZPZGN6b0JqUlEzcVhyZnp1N2xrN1g4MXY3cVhTM3FrZFdIQ3pYaGpCdTF3ZnQwd183MTgtUUFHUjM3ZWZ6WG16dw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
