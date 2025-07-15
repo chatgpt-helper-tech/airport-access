@@ -187,7 +187,7 @@ description: 机场推荐,实测2025年最稳定科学上网工具，评测 Clas
 
 2. [TNTCloud 机场/85折优惠](#tnt):推荐理由: IPLC 专线、原生 IP、高速稳定，海外团队运营,适合 ChatGPT、TikTok、Netflix、海外开发者和重度流媒体用户。不限设备、不限速，性价比极高
 
-3. [银河云机场 Trojan协议 IPLC专线/8折优惠](#yhy):推荐理由:trojan 协议 IEPL 专线机场，新加坡海外团队大机房产品，性价比专线，支持退款,有不限时流量套餐(限流量),24h在线客服，专业且靠谱稳定，任何线路问题都是1h内修复处理。全天候任何时期都稳定不掉线 ,测试油管4k高峰期无压力，下载视频可以跑满带宽,超优质的流媒体和 ChatGPT 解锁能力。
+3. [银河云机场 Trojan协议 IPLC专线](#yhy):推荐理由:trojan 协议 IEPL 专线机场，新加坡海外团队大机房产品，性价比专线，支持退款,有不限时流量套餐(限流量),24h在线客服，专业且靠谱稳定，任何线路问题都是1h内修复处理。全天候任何时期都稳定不掉线 ,测试油管4k高峰期无压力，下载视频可以跑满带宽,超优质的流媒体和 ChatGPT 解锁能力。
 
 ### 入门级
 
@@ -432,7 +432,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
   </a>
 </div>
 
-> 🎁 付款时使用专属优惠码 `TNTCloud` 可享受 **85 折优惠**！季付限量包,不享受优惠码,老板说这个套餐已经不赚钱了
+> 🎁 付款时使用专属优惠码 `TNT85` 可享受 **85 折优惠**！季付限量包,不享受优惠码,老板说这个套餐已经不赚钱了
 
 --- 
 
@@ -445,7 +445,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 ---
 
 <a id="yhy"></a>
-### 4.<a href="https://inv03.galaxyaff.cc/register?aff=tcOd0ob7" target="_blank" style="color:#1a73e8;text-decoration:underline;">银河云 Galaxy — 高性价比 Trojan 专线机场，节点丰富，AI 与流媒体完美解锁/8折优惠</a>
+### 4.<a href="https://inv03.galaxyaff.cc/register?aff=tcOd0ob7" target="_blank" style="color:#1a73e8;text-decoration:underline;">银河云 Galaxy — 高性价比 Trojan 专线机场，节点丰富，AI 与流媒体完美解锁</a>
 
 **综合评分：9 / 10**  
 **关键词标签**：Trojan 协议｜IEPL 内网专线｜多地区节点｜不限速｜支持退款｜YouTube 4K｜全天候稳定
