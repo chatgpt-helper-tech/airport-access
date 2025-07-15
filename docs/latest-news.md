@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月16日 05:13:38（北京时间）**
+🕒 更新时间：**2025年07月16日 05:27:25（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Adolescence star Owen Cooper becomes Emmys' youngest ever nominee | [阅读全文](https://www.bbc.com/news/articles/cjelpe2y3plo) |
 | Stop being negative about savers buying shares, Reeves tells business leaders | [阅读全文](https://www.bbc.com/news/articles/cn4ld9v73dzo) |
 | Constance Marten spent months at 'torture' church, friend tells BBC | [阅读全文](https://www.bbc.com/news/articles/ce77wd5ne60o) |
-| Immigration status of benefit claimants published for first time | [阅读全文](https://www.bbc.com/news/articles/cdx5pw8pwg5o) |
+| Children at risk of being recruited by hostile states, police warn | [阅读全文](https://www.bbc.com/news/articles/c9dg217glveo) |
 
 ## 📰 Google News
 
@@ -30,9 +30,9 @@
 | Mike Waltz pledges to make UN ‘great again’ at Senate confirmation hearing - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPb2NnQUVUNzVCTzdtaFJVZDg1ZDJZdUpXUnNZTmRvMk50ZWF2a3prN2EwblpuQ1QybWdHeUZtV0xsOGgyVkhJREVVbTcyVnNNLUh2TTBDOXpjanJSQkVnWF93ejlzZTFoU3hSd1BWNk13dWNtN29mVVJMY01XcXRvdENYRmxKZjJndDRnTGM0c0VpbWpsQTQ1X0hLOWhFNnUtMEpSR0plSQ?oc=5) |
 | Supreme Court Faces Heat After Unexplained Rulings for Trump - Bloomberg Law News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOMk04SWdRdzZuYldfWU5FWTVRU0Voa0J0MlpWVFpwMENFRkRqWktCSVpkUlB0anF4NkVrTW1WREhzU1M4ckxaa2NxU2JmZjE0X3FDRWM1MmNpMlZpMTc4UVJCTloyQjhUVzVxVUstbWwxS0hHYjVCUFlqdmRJa2NDbW5IbnlhVWlDdFJNX1pHeEFOLUtNWVBLcHZMamhGdHJUalFhWA?oc=5) |
 | 2 killed when car swept away in flash flooding in New Jersey, dozens rescued - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQcG1Td0xnRFdoVGJ3TjMtUEJPdGxKQ09nczJnYkxSd253RGNjV1hiZXk4TUdLNDNtZWNXZUdaX0dNbkdpRl9keDRfcU85b3BuQk5VVklYWWE1b1FpVkFac2VfRUxyR1JtN2RUNTNzVFNZd3lnX3RIaTlqQWNmZ19YNmRwQXJCdkl2T3VPVWlWTWxBVF9NUTlBNmRBbGdwZGPSAaQBQVVfeXFMTkNhQ1NFaC11NHIwMHVXdk9pQXFSbEEyMXFOTlBSVGZBbGJNRDRGaGNCaWhpb3ByRnVpbUxSWWdPZVdQdVloV3Zfb1B3R092UWk4b2M0bnNhTW5qMkMwNWFEb1g3ejFHQ3ZneEhrV2xsV2MxSGJXcm9DX2tzcjRLSkViNWYyek83b2c2S0ZGUTlsMEllOEt6ODJvd2ZFS19seFNLVC0?oc=5) |
-| The Democrats’ next test will feature these three Arizona candidates - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPMEVmanBOY2ZHRlNQTkJ3clpLVlhqdk1NMVBjcG4zMGRZanZfaWdReWhQcGtlcHEtUWxSSGtnYktsVkljdHNqVTRoWGtLdVhlcVQwQTNfbGFFQzBZS3Q0Y1R6RG0xQUhZZlZMRmtRTWVRUEY1SkVDY2tyREszSmVBWkFQOE05NTZrOUxpMGFiRkpaM2ZBcWoxRNIBngFBVV95cUxOZ04xVkQ5VnFFcy16TVc1NFFHYTVWR0txcHZWZGhrZ1FTVjNUMUx3NWs4TjNxM2JOXzVOUjRWRDl0Tks5RUNWdDNPTGJZcmxhUWppbjNSWWpnaU54VTltei1qbG4tNHMwNEF4YmZMSjRkUE4wazRZeElWLUhIYXBrQ2JNT2xTT3ZtbXpnblpFUExaQTFscU96eXVuWVZfQQ?oc=5) |
-| Influential evangelical preacher John MacArthur dies at 86 - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxONTNnS1hEeGFtVW1MaVVnM1NjMl9xbkVyVXBTam01QTJFNDVGX0dmbUdaczgxWWgxdlZpRWxoaC16TUxMckxzcFY4eXNkM2U0VUxKYk82eGlQV1BtMUFDMUZRaFZoWTN4dDZpcFZvNjZjMmlBUUdZZ2dKZWZOVWtrQ0FiS3lrYkhZWE8xSU1wRUxvOTZlR1lLb2ZpLUhKMzdQS25Sckpn0gFWQVVfeXFMUFZ5cl9QRG9XQW9TM0tqbW0xNDUzREI0SWJuMjFUTUZnUDlTNkxub0pLUDdQSE01Zlpia2k2NVhTNFhJa0dhMlNlQUszSGVRcWpiT1k4TVE?oc=5) |
-| Secret Afghan relocation scheme set up after major data breach - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9pemVKQjF4a202eHo1c2JUeTQxbXIwZHdoc2wwQU5IdmhYSjRuVk15M05LRkpfTjM3bFV5QTkyZE8wNHhQUXh3WlRLTGtiSlJUenk2SEFxcmZaUdIBX0FVX3lxTE84LU1rSmVHRzRrRklONUxQQk5aUzRybHdaLWJWbDZJbzR1R3pMNFA4TExNNUFaVkdGYzhqVnpucWh4WENWQmRzUmRBQ2FXc2Q1M3YzYUlDOUtDUkJMQTFN?oc=5) |
+| Federal grand jury indicts man accused of killing former Minnesota House Speaker Melissa Hortman - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE05T0diUGwxNzRUT3Nwa0JBaU1sTVFKNzhYZUxNNjAzY2FvNjFYcnpQM3dDeDBsekhmYlplNlRVUHZ3VXhiaFhMaWJmckFHaTdtRDFqQk1sdG4xdmxMTTA0bjh6OFd6Zml5SUxEWGt6Z0tOMEVsYjdrRkxXR1PSAYIBQVVfeXFMTVNuRGlXQlNaZVRPdjJ1d0dXRkp5ZGtpTy0zalRiRjRaM2dZX1hiUldHN3ZhNGtabkZtQU5TamtSOS1hUmFZU2JGZmEtMW9EMElVR1JCT2xFX3ZpUnoyZzZqSVY3SDhDcjU2Q3NiVjJOandBZ0VvVkhQS09TSmhkck1CZw?oc=5) |
+| The ‘Next AOC’ Rejects Comparisons Ahead of Potential Upset - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQNUR2RFE1cHBNbDFIS3dXcXNPT3J4ZS1xS3VWXzdHNnlxYXRrd0VDRjVnMV9ZSG9jYVd5YzI2VTdVMmFveDdELW9HeExfVDE4aWtSdmR0VlpSNDcxWEtrenM2aHFlOS15anlFWWRXMDJoYTZQME9kQjBYMnlzclVGMm9yMS1UX0liUnFPYU1JSkRsZw?oc=5) |
+| John MacArthur, Fiery Preacher and Culture Warrior, Dies at 86 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9HM1JFbWhyaEpNeTJQQWZ5SFI4RXcxMVR4ZkJKX05sLWxqbEQ1UHZPZGN6b0JqUlEzcVhyZnp1N2xrN1g4MXY3cVhTM3FrZFdIQ3pYaGpCdTF3ZnQwd183MTgtUUFHUjM3ZWZ6WG16dw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
