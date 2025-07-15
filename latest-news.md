@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月16日 06:40:34（北京时间）**
+🕒 更新时间：**2025年07月16日 06:53:06（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Supreme Court Faces Heat After Unexplained Rulings for Trump - Bloomberg Law News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOMk04SWdRdzZuYldfWU5FWTVRU0Voa0J0MlpWVFpwMENFRkRqWktCSVpkUlB0anF4NkVrTW1WREhzU1M4ckxaa2NxU2JmZjE0X3FDRWM1MmNpMlZpMTc4UVJCTloyQjhUVzVxVUstbWwxS0hHYjVCUFlqdmRJa2NDbW5IbnlhVWlDdFJNX1pHeEFOLUtNWVBLcHZMamhGdHJUalFhWA?oc=5) |
 | Secret Afghan relocation scheme set up after major data breach - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9pemVKQjF4a202eHo1c2JUeTQxbXIwZHdoc2wwQU5IdmhYSjRuVk15M05LRkpfTjM3bFV5QTkyZE8wNHhQUXh3WlRLTGtiSlJUenk2SEFxcmZaUdIBX0FVX3lxTE84LU1rSmVHRzRrRklONUxQQk5aUzRybHdaLWJWbDZJbzR1R3pMNFA4TExNNUFaVkdGYzhqVnpucWh4WENWQmRzUmRBQ2FXc2Q1M3YzYUlDOUtDUkJMQTFN?oc=5) |
 | Federal indictment reveals new details about the case against man accused in killing of former Minnesota House speaker - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE05T0diUGwxNzRUT3Nwa0JBaU1sTVFKNzhYZUxNNjAzY2FvNjFYcnpQM3dDeDBsekhmYlplNlRVUHZ3VXhiaFhMaWJmckFHaTdtRDFqQk1sdG4xdmxMTTA0bjh6OFd6Zml5SUxEWGt6Z0tOMEVsYjdrRkxXR1PSAYIBQVVfeXFMTVNuRGlXQlNaZVRPdjJ1d0dXRkp5ZGtpTy0zalRiRjRaM2dZX1hiUldHN3ZhNGtabkZtQU5TamtSOS1hUmFZU2JGZmEtMW9EMElVR1JCT2xFX3ZpUnoyZzZqSVY3SDhDcjU2Q3NiVjJOandBZ0VvVkhQS09TSmhkck1CZw?oc=5) |
-| Trump comes to Pam Bondi’s defense on Epstein: ‘She’s really done a very good job’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPSlNCa1lrcjg5aWtZcWtsZlpEX2FMT0FKam9jMWoxU3VjSkFPaC1VZ3NGVThOSFd4S0h1VU04ZHN6S2tzdUp2LXc3d0pMd1FIWUZiTUE1Zm1GVGtreDhIWXYtbWJOUUFXdXNpNTVzSmlocVViOTBuWUw2VlZkc3NwTDZZYlpPTXlKZzVXeVZKLUwxbGpqdjJFSVpVNA?oc=5) |
-| John MacArthur, Fiery Preacher and Culture Warrior, Dies at 86 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9HM1JFbWhyaEpNeTJQQWZ5SFI4RXcxMVR4ZkJKX05sLWxqbEQ1UHZPZGN6b0JqUlEzcVhyZnp1N2xrN1g4MXY3cVhTM3FrZFdIQ3pYaGpCdTF3ZnQwd183MTgtUUFHUjM3ZWZ6WG16dw?oc=5) |
-| University Leaders Reject Republican Attacks on Campus Antisemitism - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPdk5JMTZnTlJKXzgzQkx6YnU0ald6Q3drZ1BmWkJuSkRjbTJ6bmFybUgxdXZ1VnNPWVRFZGZGalV3X3EwNFBwc1NWeFZoUURNVGZRU2NUZWZZSExBOWNQZ1lfekFPLUtWM3N6VklLbXVKMU9PcWk5VXpCdUFIc2xoUnFHSUZMRVVpblh0MWZFaEdVNTVQT0dDdzlfaEJVYWxKN3c?oc=5) |
+| Trump says Bondi should release 'whatever she thinks is credible' on Epstein - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPbnZsQTloR1hndUdKY0lZQ182aHdSaDNYQVBNOE0zYnp5ZnJDdWZjeUtrbTdjeDNoQjJ1Q1JHejIteWpCX1JaZml2OXgySEFfOWZZbmlWZUFucmZCSXVHUnYzRk5LTzVtU3U2a0E2M3EyN3VoOVI3dUljMmw5MkhkRlZ4dEtDd0luendueExjR3g0Y2V4NUtfVnhB0gGfAUFVX3lxTE9uUHp2RTJGUlpkdTRON2hmbzNNWFVlNDdrVmF1S0ZwRTVBWlUtYWVaSHlUaVNFUUJwbXA0elBIbEZBVG52UWJzSlRIODZXbENVMHBwdWJ1Zm9hV0xRZ2NiNmRYWGhUelN2SnRVeTB5Ykx4SFlxV21obXo4blFRbW1RMUJ0NzNnM2J5Rzk1ektqVDV3eDZJaThicDJURmJobw?oc=5) |
+| Why the Subway Still Floods in New York After Billions in Renovations - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE05QmtjNHZKU1lGaGJ2VXBYVEF4MGRqYkFqbWNjTHZMN3RXUjJIUDBvYlE2MDJIUVhmYmk5THFZcFVURHNfUVBreHI2amxUaUltTm9oaFluVm5DNWFobU9JU0h2NEdMeGJXMmZuMmg4bHhGcEpEUVd0WHp1ZnQ?oc=5) |
+| Influential evangelical preacher John MacArthur dies at 86 - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxONTNnS1hEeGFtVW1MaVVnM1NjMl9xbkVyVXBTam01QTJFNDVGX0dmbUdaczgxWWgxdlZpRWxoaC16TUxMckxzcFY4eXNkM2U0VUxKYk82eGlQV1BtMUFDMUZRaFZoWTN4dDZpcFZvNjZjMmlBUUdZZ2dKZWZOVWtrQ0FiS3lrYkhZWE8xSU1wRUxvOTZlR1lLb2ZpLUhKMzdQS25Sckpn0gFWQVVfeXFMUFZ5cl9QRG9XQW9TM0tqbW0xNDUzREI0SWJuMjFUTUZnUDlTNkxub0pLUDdQSE01Zlpia2k2NVhTNFhJa0dhMlNlQUszSGVRcWpiT1k4TVE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
