@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月15日 17:00:15（北京时间）**
+🕒 更新时间：**2025年07月15日 17:14:38（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Supreme Court gives greenlight for Trump to dismantle Education Department, layoff 1,400 employees - PBS | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxOTlFiQmRiNFhKcVp3SXBtNDEwY0NGT182ZWFER1lOQnlzODVDUTdLOUpEcHd1M0ZXaC1OZ2Y1QXdaMmlFd1ZvNTFVQ3JFaklGMkotSXJENW1QZk9oVDl2eVhuUTQxdjMzQzdnVTlCdWhuT040SXZ2R3RDRENZaEJMQ21aX3E5Z1FGc3ZIQV9FS2tUUGUxanRWdlhhc25Odi1qR0M4ZzdNbUhfVktVVEFQV3BZVGJGamp3SnE5MEpKU0MtRDN4VHFUOExncFhENU3SAdQBQVVfeXFMTzBhSi0yQ3ZaZWRYb2dpcDBCMFdNZmJPMGhHcmQ4R3plaEdBSFhIRFVVbFZ3VDBEMFo4eWxvTkxzUnIzQ0RjOVhxWTRYeERPT1RQdHV1elRlQ05tMXN5ZmctaURYWE0zTkxrdUVsdmJsUnMza2FGZ0N3bGxuZTJkWnVsSFM1bjk1U0E2M1ZoOENkcWZDM3JPWnEyRy14cnJ6QU1BX0sxZWpsYVNLT0FpVlRaZ0xoYWxXOEZ0ZHVyb0RNT1JJOU5fTkhGcm9JREM2c1h1U0M?oc=5) |
 | Trump backs Kyiv in war with Russia through weapons and threats to Moscow - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQZmdHSXpLcV9QZ19VMWRWVXA3UDg3dVUzcExnZm1vTlQ1UGRTNFU1SzA5TjctYzU5YW1tVUdDVkFfdV9PeUttdTZpQVFnSEl2S0RmS2R5ajl0OHhTVjZ1YS1kVU00OEF0LXRERDRmZEFUYk02OEZjNnBkcTVxRDU2OHpsTHhJMHpKT044?oc=5) |
-| Supreme Court Allows Trump to Gut Education Department With Mass Firings - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNVFNDSUVxUy1OSFJVVzNHQktvbnlVaUpTdjZ6NEQtWWtjVmVzN3ZnSWd0d1doYTZ3SS0zdlZZMjQzX1dSSklsTk1vMS1UMUpGcVh6WTQtRFdsbjdOcy1UYmhXWWJBOUlmSk5FMFFsckNiT3U5cFRHaW00dkN5UUJHUkF1T3Y4WGRyNUVKa0FBZw?oc=5) |
 | Donald Trump’s Maga base split over handling of Jeffrey Epstein files - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBya1NMZVNsdmQtOVQ1eVJDR05lcURkSEFBa3VidzQ2UkJBOGlWb0g0LW1ydHFBVUlfQnoyUVhZZkZ3X0k3SmphdkxHLUg4bE5jVTdCRTd4M29fR3N4TFlUQkNBMVp4RHpvaktOMEkybDc?oc=5) |
 | House GOP blocks Dem maneuver to force release of Epstein files - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOazZFOF9tU1VnUzdHTHhnV2NWNTBsLWdlM2x4UjNBTVQycVJSVWFSVDBya05teTA4amJLVHBrWXdRTzVqSjBGQjBDcUF5cE9Fd25YREdWNkF5TmZycG5SVWhnX2tZNlVXQXZGbjRLeXlCLUc0M1hKckhsMlE1MGJLVURxYXY3QQ?oc=5) |
 | RFK Jr.: ‘No cuts on Medicaid’ in ‘big, beautiful’ law - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNOV9YQU1CYkI3cmh5Y3ZlN20xMVIzUHJ6ZExWYVpfVnBwSEFhemJTUDBQX0hFSXFVQml6S3FFRWpZTlFPNzFCaDdYUGg2aDhIWkVoTXBNMm1LbmVNQlNaYzJ1VmpJMDZPMVNYeDhaV3lpQmhaVzR2OW0wRGkyVTROVVZLUVkwZldfcU9adWo5V0ZqUlQ3eVHSAZsBQVVfeXFMT2xnWVAyNGJ2Y3p1TG1aSWtVYWxYa1Y2VEExdWhfVzhES1F5c2dTeXo5UU1uNEc5dWJtVUxKWVkxTXNBc3NCX2VMVWtUQnozcmFLNFItQnNMWDd2VHB6R19qdkRxSTVOaDFzWTdrQnVzb0lKVjN2YXc4RFRvVjlpLTRueG5OeHNxYjRyb1hYYzZQcXpXZ01pdmRvbU0?oc=5) |
