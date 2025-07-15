@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月16日 06:14:45（北京时间）**
+🕒 更新时间：**2025年07月16日 06:27:19（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | Frank Gardner: Three key questions after Afghan data leak | [阅读全文](https://www.bbc.com/news/articles/c9w12kdg5zko) |
 | Men who felled Sycamore Gap tree in act of 'sheer bravado' jailed | [阅读全文](https://www.bbc.com/news/articles/c93969ln7zwo) |
 | Man who murdered British backpacker Peter Falconio dies | [阅读全文](https://www.bbc.com/news/articles/cjrlg4x8e78o) |
-| Adolescence star Owen Cooper becomes Emmys' youngest ever nominee | [阅读全文](https://www.bbc.com/news/articles/cjelpe2y3plo) |
+| Adolescence star Owen Cooper becomes Emmys' youngest supporting actor nominee | [阅读全文](https://www.bbc.com/news/articles/cjelpe2y3plo) |
 | I'm 'disappointed but not done' with Putin, Trump tells BBC | [阅读全文](https://www.bbc.com/news/articles/c1e02q12z32o) |
 | Stop being negative about savers buying shares, Reeves tells business leaders | [阅读全文](https://www.bbc.com/news/articles/cn4ld9v73dzo) |
 | Children at risk of being recruited by hostile states, police warn | [阅读全文](https://www.bbc.com/news/articles/c9dg217glveo) |
@@ -30,9 +30,9 @@
 | AG Bondi says there’s no change to her position on Epstein after Trump suggests she could release more files - CNN | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE9TdVFscjhNVURiY3RqTXl3eTlfM3dpVklRc2dUVFZ5NGxjMkprVExFZHZRS1JYSDBRelRrTms0a040Z1h0WEVIRmpfTEpNY191U0JqWFR6clJHNUt2OWkwOWV2R0xJZG9uUThCZEpNdXpoTDTSAXhBVV95cUxPTUN0d0tHSTUzSGZ3dkNfS2Zkc3RBU19MRlNKaWlBMnFYejlHYXhtVEg0M3p5eFRMbjh4eVhSeEdJMXVwdzBScEhSbjVWMjN0Y2dua1FVSjEtUjdPbHZZRjgwMlkweks2cnZlR2hpNWJyenc4YWJyN2o?oc=5) |
 | Supreme Court Faces Heat After Unexplained Rulings for Trump - Bloomberg Law News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOMk04SWdRdzZuYldfWU5FWTVRU0Voa0J0MlpWVFpwMENFRkRqWktCSVpkUlB0anF4NkVrTW1WREhzU1M4ckxaa2NxU2JmZjE0X3FDRWM1MmNpMlZpMTc4UVJCTloyQjhUVzVxVUstbWwxS0hHYjVCUFlqdmRJa2NDbW5IbnlhVWlDdFJNX1pHeEFOLUtNWVBLcHZMamhGdHJUalFhWA?oc=5) |
 | Federal indictment reveals new details about the case against man accused in killing of former Minnesota House speaker - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE05T0diUGwxNzRUT3Nwa0JBaU1sTVFKNzhYZUxNNjAzY2FvNjFYcnpQM3dDeDBsekhmYlplNlRVUHZ3VXhiaFhMaWJmckFHaTdtRDFqQk1sdG4xdmxMTTA0bjh6OFd6Zml5SUxEWGt6Z0tOMEVsYjdrRkxXR1PSAYIBQVVfeXFMTVNuRGlXQlNaZVRPdjJ1d0dXRkp5ZGtpTy0zalRiRjRaM2dZX1hiUldHN3ZhNGtabkZtQU5TamtSOS1hUmFZU2JGZmEtMW9EMElVR1JCT2xFX3ZpUnoyZzZqSVY3SDhDcjU2Q3NiVjJOandBZ0VvVkhQS09TSmhkck1CZw?oc=5) |
-| WATCH: New York City subway stations flood from heavy rain - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxONEItOEJWb1djS0QwWTlPVUJaWVJMdVdTVkJMX1pRczR6bmxNNjgtSExxZlJNd2ZGdF9rbTNNTVBsSHM4WHZBZEpWQmZmbFI1YVM2SDlwNkJFNlJnc3FWck1wSWt1U3dqWGFXLU9jRERBYjNiV0pZb244b3pCRVRWcnp2bVFMcHhCQ0s1aFh5N1EwUVQ1V1HSAZsBQVVfeXFMTzJST093ak9YbTlFWVBRZWdtTGZKV09Zbl9LSHlVVnJtYXFxbU5ySWR4MzZQZndqTnEweFpQLWQ3ejktT1FERDNVRnQ5RTFTbTlLVERkODhiaWZDOWdZdm5HNUpNNzcwdFJhNDY5MmpibW96UzI1RWU4TmwzMFlNc0RKcWFxM25uYzg1NldGS2g3REQ1aDFXTEhCMDA?oc=5) |
 | John MacArthur, Fiery Preacher and Culture Warrior, Dies at 86 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9HM1JFbWhyaEpNeTJQQWZ5SFI4RXcxMVR4ZkJKX05sLWxqbEQ1UHZPZGN6b0JqUlEzcVhyZnp1N2xrN1g4MXY3cVhTM3FrZFdIQ3pYaGpCdTF3ZnQwd183MTgtUUFHUjM3ZWZ6WG16dw?oc=5) |
-| The ‘Next AOC’ Rejects Comparisons Ahead of Potential Upset - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQNUR2RFE1cHBNbDFIS3dXcXNPT3J4ZS1xS3VWXzdHNnlxYXRrd0VDRjVnMV9ZSG9jYVd5YzI2VTdVMmFveDdELW9HeExfVDE4aWtSdmR0VlpSNDcxWEtrenM2aHFlOS15anlFWWRXMDJoYTZQME9kQjBYMnlzclVGMm9yMS1UX0liUnFPYU1JSkRsZw?oc=5) |
+| A Summer Camp on the Guadalupe River Reopens After Deadly Texas Flooding - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1JWncyTVZVbHFpQjJOLVY2VGZ2VW5ITnJIcHU2X0hOWTN4Q3ZHRFMtdkZTX01oNEwxbV9mSUFKeFJQUE1WcnhyZFFoR1pYay1mY1d6YzM1WEh3RHRleTRrNmFyVTI1aVZtOVBfQmE1MnVtLWtzckE?oc=5) |
+| WATCH: New York City subway stations flood from heavy rain - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxONEItOEJWb1djS0QwWTlPVUJaWVJMdVdTVkJMX1pRczR6bmxNNjgtSExxZlJNd2ZGdF9rbTNNTVBsSHM4WHZBZEpWQmZmbFI1YVM2SDlwNkJFNlJnc3FWck1wSWt1U3dqWGFXLU9jRERBYjNiV0pZb244b3pCRVRWcnp2bVFMcHhCQ0s1aFh5N1EwUVQ1V1HSAZsBQVVfeXFMTzJST093ak9YbTlFWVBRZWdtTGZKV09Zbl9LSHlVVnJtYXFxbU5ySWR4MzZQZndqTnEweFpQLWQ3ejktT1FERDNVRnQ5RTFTbTlLVERkODhiaWZDOWdZdm5HNUpNNzcwdFJhNDY5MmpibW96UzI1RWU4TmwzMFlNc0RKcWFxM25uYzg1NldGS2g3REQ1aDFXTEhCMDA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
