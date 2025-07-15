@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月15日 11:40:56（北京时间）**
+🕒 更新时间：**2025年07月15日 11:52:32（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump administration leaves Congress in dark on spending decisions - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQS3VLV1UwaFFhdDA3WkpYejR3U3RjbndMLUlRRjZFY1hTa212MjFhUGJBQkt4UmNFYUdBQXhYTjk0YXFFdkdua1dWazRGSzlGOXRDdEVscHg4Z2lvbWw0ZU5aeWZfR2tGWllwOWlBNG5sWUQ0MWFQRGhTZ002blh3NG9Uc25OV1NSSnlELW9NeFpvQkx4eDJ3WXNodDhDNWpkRkZrbVp4RmM?oc=5) |
 | Texas is still facing more floods. When will rains finally end? - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5jRGJmYlNKLVVaNGdPR3hKU0R0b2xiUlUtei1oMmc1aEJaWkJsSlBSNkkzTXRzRDJUZVlWTnVnbFZZcU50Rm8zRDRwU3B0Ymw1RW1oSXdLWXNkUFZPVkNjN0JwMXlTSTdPZmdWeExLYXpoWjVZcWxETmNLV1Y4QQ?oc=5) |
 | EU to hit US aircraft, cars and food in latest retaliatory strike - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPVEg0NTFlb2xfSUxwcS1qNEtOYWlPYmdHUC1RUzFRZmZjbERHM0h0Mno1Wm4tbzMtRmJzbmR3UTVNMldsbjFrcFpkNUxhaWVGRWp2UE1IVmR5Y2h4OTVPRkdrQ0Zjdm1GQkhmTW1KZjZ1endtVHFQY1pVWkdpV3dxZlBaN2ZUdFNHbncxZFpQNHpBc2JVbGM2bTE2SWMxdw?oc=5) |
+| Man who killed 2 at KY church, shot trooper, had upcoming domestic violence hearing - Lexington Herald Leader | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1fZTRXQ1pwXzlKUkpHdktxLWxGNDlXajQ1a3VXWmExN3FzbjlaY0hUZ0pzcGxYQzlCd2FpLWNkQkczQW9TenJ4bmdRYTR1dWwyRjBaaXNqU2lKb08zWHlvLVVsazg3T3c0TlotR2U1dXY?oc=5) |
 | Senate Republicans scramble to lock down support for Trump’s spending clawbacks - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNRGFUX2tHR3FZaFdBdWdwYXFZOUE5aV9nWTZoMXcwb25BMVVjSnR2bkU1OXhCRzFnRFJUYzUwWFhlZFVUc2c3RnhVZF9vQ3RHRGlSOVdxVFA2cHhDLVBRVUh1VEQ2c0FvSFVzbEZqTnNtamxMZ1RSa2t4SDQtZTFrYk1SZlg5WHNBd0poOWQzSVg0MGxXcGRMREd5S19oRkZ4R0NkX2dUSHljLW5FVEhqUFlGSHVtVzVtOVd1d3VsRkxsSkpsc2dV?oc=5) |
-| Man who killed 2 at KY church, shot trooper, had upcoming domestic violence hearing - Lexington Herald Leader | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1fZTRXQ1pwXzlKUkpHdktxLWxGNDlXajQ1a3VXWmExN3FzbjlaY0hUZ0pzcGxYQzlCd2FpLWNkQkczQW9TenJ4bmdRYTR1dWwyRjBaaXNqU2lKb08zWHlvLVVsazg3T3c0TlotR2U1dXbSAXBBVV95cUxOdWI5WjhrX0tLMVRaeGE3eVhxNmlfQU9pQkFsNmx2VndqRklEWXJocjFfRGpXZnhvTkloUmd3M0NIY2pOTDJTMF9sUzZKV1NkNUw0SmJxN2lxdWpBS0x4M1ZpNm54Wms0ZDhQYzljQzNi?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
