@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月16日 02:27:41（北京时间）**
+🕒 更新时间：**2025年07月16日 02:39:26（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Ex-MLB pitcher Serafini found guilty of murder - ESPN | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOSE9URGtSUGxJQ05XejNLTlhranA1SHpUN2habXROMGsyZEQwS2g5V1oyeWg5NWFoN1lnMnlUWFRSbmpLR3FscXRBWFVNUmgwYjN4R1lPNDlUVUROZ256Q1JBOVVxTEt3U2V6bU5qSk52T3F5cWJzbldUMm1LVWNXdDhYbXlvS29sWFBYQUp5N1ctNTJVRWg3TVl6VEM?oc=5) |
 | WATCH: New York City subway stations flood from heavy rain - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxONEItOEJWb1djS0QwWTlPVUJaWVJMdVdTVkJMX1pRczR6bmxNNjgtSExxZlJNd2ZGdF9rbTNNTVBsSHM4WHZBZEpWQmZmbFI1YVM2SDlwNkJFNlJnc3FWck1wSWt1U3dqWGFXLU9jRERBYjNiV0pZb244b3pCRVRWcnp2bVFMcHhCQ0s1aFh5N1EwUVQ1V1HSAZsBQVVfeXFMTzJST093ak9YbTlFWVBRZWdtTGZKV09Zbl9LSHlVVnJtYXFxbU5ySWR4MzZQZndqTnEweFpQLWQ3ejktT1FERDNVRnQ5RTFTbTlLVERkODhiaWZDOWdZdm5HNUpNNzcwdFJhNDY5MmpibW96UzI1RWU4TmwzMFlNc0RKcWFxM25uYzg1NldGS2g3REQ1aDFXTEhCMDA?oc=5) |
 | The ‘Next AOC’ Rejects Comparisons Ahead of Potential Upset - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQNUR2RFE1cHBNbDFIS3dXcXNPT3J4ZS1xS3VWXzdHNnlxYXRrd0VDRjVnMV9ZSG9jYVd5YzI2VTdVMmFveDdELW9HeExfVDE4aWtSdmR0VlpSNDcxWEtrenM2aHFlOS15anlFWWRXMDJoYTZQME9kQjBYMnlzclVGMm9yMS1UX0liUnFPYU1JSkRsZw?oc=5) |
+| Republicans move to block Democratic effort to force release of Epstein files - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNY3p4aGVPZlA0MGowUkNLT2V3a0RRYnYwQ2cwMlV2dU1IS2xhRXF3NFNYelVsTGlpUmNMWWFLWTFVcy1PcDdXNm5hM0I5RTF1Yk5WTmhSVG9NUDlDN29RRllxY0dpa2ZsTElDeFA1WDBmbWNJcGtrbG5xTnRfOWV4bF9kdlRTX3RCNzlqOENxamltakE?oc=5) |
 | Mike Waltz pledges to make UN ‘great again’ at Senate confirmation hearing - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPb2NnQUVUNzVCTzdtaFJVZDg1ZDJZdUpXUnNZTmRvMk50ZWF2a3prN2EwblpuQ1QybWdHeUZtV0xsOGgyVkhJREVVbTcyVnNNLUh2TTBDOXpjanJSQkVnWF93ejlzZTFoU3hSd1BWNk13dWNtN29mVVJMY01XcXRvdENYRmxKZjJndDRnTGM0c0VpbWpsQTQ1X0hLOWhFNnUtMEpSR0plSQ?oc=5) |
-| Homeless Population Declines in Los Angeles for a Second Straight Year - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9ZQzVmSGxYVUhnZmx6N1FUNE8zVWVjVVZsYkVUZUlXM2dPa18xWWgtVjkzMnVCeGRlNnI4OE9IR0lZTno1QU9KYUtDeld0U1V1OVN1NWQ0Y3dQMEVSaDN5Wjg2dVpSMGVZdjlzUElWM3U?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
