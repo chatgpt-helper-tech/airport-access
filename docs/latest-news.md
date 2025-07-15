@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月15日 20:13:49（北京时间）**
+🕒 更新时间：**2025年07月15日 20:26:46（北京时间）**
 
 ---
 
@@ -17,14 +17,14 @@
 | Savers to be targeted with offers to invest in shares under new plans | [阅读全文](https://www.bbc.com/news/articles/cvgwz7vypllo) |
 | World's 'oldest' marathon runner dies at 114 in hit-and-run crash | [阅读全文](https://www.bbc.com/news/articles/cpqnppnx0z1o) |
 | Barcelona's Lamine Yamal to be investigated over dwarfism row | [阅读全文](https://www.bbc.com/sport/football/articles/cn5kpd4y2yvo) |
-| Drivers offered up to £3,750 discount to buy electric cars | [阅读全文](https://www.bbc.com/news/articles/cn5kpkypxp6o) |
+| 'Not our war' - US-Nato weapons deal for Ukraine sparks MAGA anger | [阅读全文](https://www.bbc.com/news/articles/c14e2ydv4d6o) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Supreme Court Allows Trump to Gut Education Department With Mass Firings - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNVFNDSUVxUy1OSFJVVzNHQktvbnlVaUpTdjZ6NEQtWWtjVmVzN3ZnSWd0d1doYTZ3SS0zdlZZMjQzX1dSSklsTk1vMS1UMUpGcVh6WTQtRFdsbjdOcy1UYmhXWWJBOUlmSk5FMFFsckNiT3U5cFRHaW00dkN5UUJHUkF1T3Y4WGRyNUVKa0FBZw?oc=5) |
 | Trump backs Kyiv in war with Russia through weapons and threats to Moscow - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQZmdHSXpLcV9QZ19VMWRWVXA3UDg3dVUzcExnZm1vTlQ1UGRTNFU1SzA5TjctYzU5YW1tVUdDVkFfdV9PeUttdTZpQVFnSEl2S0RmS2R5ajl0OHhTVjZ1YS1kVU00OEF0LXRERDRmZEFUYk02OEZjNnBkcTVxRDU2OHpsTHhJMHpKT044?oc=5) |
-| Supreme Court gives greenlight for Trump to dismantle Education Department, layoff 1,400 employees - PBS | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxOTlFiQmRiNFhKcVp3SXBtNDEwY0NGT182ZWFER1lOQnlzODVDUTdLOUpEcHd1M0ZXaC1OZ2Y1QXdaMmlFd1ZvNTFVQ3JFaklGMkotSXJENW1QZk9oVDl2eVhuUTQxdjMzQzdnVTlCdWhuT040SXZ2R3RDRENZaEJMQ21aX3E5Z1FGc3ZIQV9FS2tUUGUxanRWdlhhc25Odi1qR0M4ZzdNbUhfVktVVEFQV3BZVGJGamp3SnE5MEpKU0MtRDN4VHFUOExncFhENU3SAdQBQVVfeXFMTzBhSi0yQ3ZaZWRYb2dpcDBCMFdNZmJPMGhHcmQ4R3plaEdBSFhIRFVVbFZ3VDBEMFo4eWxvTkxzUnIzQ0RjOVhxWTRYeERPT1RQdHV1elRlQ05tMXN5ZmctaURYWE0zTkxrdUVsdmJsUnMza2FGZ0N3bGxuZTJkWnVsSFM1bjk1U0E2M1ZoOENkcWZDM3JPWnEyRy14cnJ6QU1BX0sxZWpsYVNLT0FpVlRaZ0xoYWxXOEZ0ZHVyb0RNT1JJOU5fTkhGcm9JREM2c1h1U0M?oc=5) |
 | Timeline: Jeffrey Epstein memo causes controversy among MAGA base - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQbjhJYWlwY0xaalhFNlh0Vm5PMGwwOGRhV0hEbnY5NzQ5c3lsdEh4SGREMm9oN3NQOUozZDEtMTVmMG1IZWVKNERQVTRWS04wbUpSX2RIV2pnN2VSSld4UEgtTDNrc2t5NU9JX0g5blZkYWNfYW00cmlyTENVejRnNXF4NGNEM1VmNDlieVpDRjJtRlFhOGFwQmQyS1NkRlRwVDBrUzIyWkxsSmJWOVHSAbMBQVVfeXFMTkZ6S3M1SGJsTnd0LUF0VGZWY25yeUxkckwzRmY4aERvUzV1b1ZvaTQ0OXplRGs2dTF0ck02ek1jMmZ2ZkpsN1BNYTJxdHRIdW1FaGp2ejlxVXRNTDQ0TXAxLWZ0NG94Tmd2X1lmcjhMdnhRUm8yTjdneDJTZVBGNUxBMU5PYkJOZm92Ym12ZERieUFBaTNZUVlNWjNUdDUwWk9zTjdpZjZNTVdvdnRMSGs5Tmc?oc=5) |
 | Air India crash: As theories swirl, key details remain unknown - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5LWDFrM21rbjVmNDd1RFBXYk1YRWdmY0NqWWNqWEhBSDVwUjRHdG9YR2VXYktKYnk5LTUzUFl3NHdPSkpJM0xmaENTV2lfU19qSUJZZGwxYWVGZ9IBX0FVX3lxTE5OSk5udzFqOHRFbTF0LU9UcUdXdU5hQlllWHMxdzlncUdXc1NEZ1cwTGRXOUZSemlRcUtSajVCQ3VkUy03TFJXRmxlZkFWc0JzbnpJc3hZdE81Ymp4c0tJ?oc=5) |
 | Senate Republicans scramble to lock down support for Trump’s spending clawbacks - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNRGFUX2tHR3FZaFdBdWdwYXFZOUE5aV9nWTZoMXcwb25BMVVjSnR2bkU1OXhCRzFnRFJUYzUwWFhlZFVUc2c3RnhVZF9vQ3RHRGlSOVdxVFA2cHhDLVBRVUh1VEQ2c0FvSFVzbEZqTnNtamxMZ1RSa2t4SDQtZTFrYk1SZlg5WHNBd0poOWQzSVg0MGxXcGRMREd5S19oRkZ4R0NkX2dUSHljLW5FVEhqUFlGSHVtVzVtOVd1d3VsRkxsSkpsc2dV?oc=5) |
