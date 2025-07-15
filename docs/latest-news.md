@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月15日 19:01:34（北京时间）**
+🕒 更新时间：**2025年07月15日 19:13:36（北京时间）**
 
 ---
 
@@ -10,20 +10,20 @@
 |--------|-------------|
 | I'm 'disappointed but not done' with Putin, Trump tells BBC | [阅读全文](https://www.bbc.com/news/articles/c1e02q12z32o) |
 | How Trump woke me up for surprise interview  - and the key takeaways | [阅读全文](https://www.bbc.com/news/articles/c5yg7eg8w98o) |
-| John Torode says allegation he used racist language upheld in MasterChef report | [阅读全文](https://www.bbc.com/news/articles/c8d68r07qq0o) |
-| I've never seen a case like Constance Marten and Mark Gordon's - it was jaw-dropping | [阅读全文](https://www.bbc.com/news/articles/cn0zkg4g4zyo) |
-| Drivers offered up to £3,750 discount to buy electric cars | [阅读全文](https://www.bbc.com/news/articles/cn5kpkypxp6o) |
+| Lineker takes top spot on BBC earnings for eighth year running | [阅读全文](https://www.bbc.com/news/articles/c07d082jpkko) |
 | Drought declared in Midlands after hot, dry weather takes its toll | [阅读全文](https://www.bbc.com/news/articles/cx201001n79o) |
-| Gaza father's outrage after Israeli strike kills son 'searching for sip' at water point | [阅读全文](https://www.bbc.com/news/articles/ckglpk9xjewo) |
-| 'My disabled son was punched' - how a CCTV error exposed a major abuse scandal | [阅读全文](https://www.bbc.com/news/articles/c8j1xxkxk74o) |
+| I've never seen a case like Constance Marten and Mark Gordon's - it was jaw-dropping | [阅读全文](https://www.bbc.com/news/articles/cn0zkg4g4zyo) |
+| Savers to be targeted with offers to invest in shares under new plans | [阅读全文](https://www.bbc.com/news/articles/cvgwz7vypllo) |
+| John Torode says allegation he used racist language upheld in MasterChef report | [阅读全文](https://www.bbc.com/news/articles/c8d68r07qq0o) |
+| Drivers offered up to £3,750 discount to buy electric cars | [阅读全文](https://www.bbc.com/news/articles/cn5kpkypxp6o) |
 | World's 'oldest' marathon runner dies at 114 in hit-and-run crash | [阅读全文](https://www.bbc.com/news/articles/cpqnppnx0z1o) |
-| The fate of the Sycamore Gap tree has shed light on a deeper concern | [阅读全文](https://www.bbc.com/news/articles/cnvmpz5qqe5o) |
+| 'My disabled son was punched' - how a CCTV error exposed a major abuse scandal | [阅读全文](https://www.bbc.com/news/articles/c8j1xxkxk74o) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump backs Kyiv in war with Russia through weapons and threats to Moscow - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQZmdHSXpLcV9QZ19VMWRWVXA3UDg3dVUzcExnZm1vTlQ1UGRTNFU1SzA5TjctYzU5YW1tVUdDVkFfdV9PeUttdTZpQVFnSEl2S0RmS2R5ajl0OHhTVjZ1YS1kVU00OEF0LXRERDRmZEFUYk02OEZjNnBkcTVxRDU2OHpsTHhJMHpKT044?oc=5) |
+| Marjorie Taylor Greene Criticizes Trump’s Plan to Speed Weapons to Ukraine - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNX3dBUkptS0dXU2lZNHhNbVdIZDRIZG5oc001UWlWb21ZZ2E2S1JSTUJGNXRsaEdxcjVHUVRhb3JTTG0ydzN4UVMzR2h3eWtFbXdkVFJySGlvSncydDJhdThrZGRqZzVGYU5Jd3o4SjJFaFJzYWFmR3RWb0FMemdsMmdnVDZCNDM4VXhLX2xDZDVpQQ?oc=5) |
 | Supreme Court gives greenlight for Trump to dismantle Education Department, layoff 1,400 employees - PBS | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxOTlFiQmRiNFhKcVp3SXBtNDEwY0NGT182ZWFER1lOQnlzODVDUTdLOUpEcHd1M0ZXaC1OZ2Y1QXdaMmlFd1ZvNTFVQ3JFaklGMkotSXJENW1QZk9oVDl2eVhuUTQxdjMzQzdnVTlCdWhuT040SXZ2R3RDRENZaEJMQ21aX3E5Z1FGc3ZIQV9FS2tUUGUxanRWdlhhc25Odi1qR0M4ZzdNbUhfVktVVEFQV3BZVGJGamp3SnE5MEpKU0MtRDN4VHFUOExncFhENU3SAdQBQVVfeXFMTzBhSi0yQ3ZaZWRYb2dpcDBCMFdNZmJPMGhHcmQ4R3plaEdBSFhIRFVVbFZ3VDBEMFo4eWxvTkxzUnIzQ0RjOVhxWTRYeERPT1RQdHV1elRlQ05tMXN5ZmctaURYWE0zTkxrdUVsdmJsUnMza2FGZ0N3bGxuZTJkWnVsSFM1bjk1U0E2M1ZoOENkcWZDM3JPWnEyRy14cnJ6QU1BX0sxZWpsYVNLT0FpVlRaZ0xoYWxXOEZ0ZHVyb0RNT1JJOU5fTkhGcm9JREM2c1h1U0M?oc=5) |
 | Donald Trump’s Maga base split over handling of Jeffrey Epstein files - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBya1NMZVNsdmQtOVQ1eVJDR05lcURkSEFBa3VidzQ2UkJBOGlWb0g0LW1ydHFBVUlfQnoyUVhZZkZ3X0k3SmphdkxHLUg4bE5jVTdCRTd4M29fR3N4TFlUQkNBMVp4RHpvaktOMEkybDc?oc=5) |
 | House Republicans block Democratic maneuver to force release of Epstein files - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOazZFOF9tU1VnUzdHTHhnV2NWNTBsLWdlM2x4UjNBTVQycVJSVWFSVDBya05teTA4amJLVHBrWXdRTzVqSjBGQjBDcUF5cE9Fd25YREdWNkF5TmZycG5SVWhnX2tZNlVXQXZGbjRLeXlCLUc0M1hKckhsMlE1MGJLVURxYXY3QQ?oc=5) |
