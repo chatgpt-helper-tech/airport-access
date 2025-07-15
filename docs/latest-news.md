@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月15日 15:26:58（北京时间）**
+🕒 更新时间：**2025年07月15日 15:41:02（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | Gaza father's outrage after Israeli strike kills son 'searching for sip' at water point | [阅读全文](https://www.bbc.com/news/articles/ckglpk9xjewo) |
 | Drivers offered up to £3,750 discount to buy electric cars | [阅读全文](https://www.bbc.com/news/articles/cn5kpkypxp6o) |
 | 'My disabled son was punched' - how a CCTV error exposed a major abuse scandal | [阅读全文](https://www.bbc.com/news/articles/c8j1xxkxk74o) |
-| How a massive database of body scans aims to unlock the secrets of ageing | [阅读全文](https://www.bbc.com/news/articles/c8d65jvznvzo) |
+| World's biggest human imaging project scans its 100,000th volunteer | [阅读全文](https://www.bbc.com/news/articles/c8d65jvznvzo) |
 | Who's missing from the BBC salaries list, and why? | [阅读全文](https://www.bbc.com/news/articles/c1dn6kxxqxko) |
 
 ## 📰 Google News
@@ -29,10 +29,10 @@
 | House GOP blocks Dem maneuver to force release of Epstein files - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOazZFOF9tU1VnUzdHTHhnV2NWNTBsLWdlM2x4UjNBTVQycVJSVWFSVDBya05teTA4amJLVHBrWXdRTzVqSjBGQjBDcUF5cE9Fd25YREdWNkF5TmZycG5SVWhnX2tZNlVXQXZGbjRLeXlCLUc0M1hKckhsMlE1MGJLVURxYXY3QQ?oc=5) |
 | RFK Jr.: ‘No cuts on Medicaid’ in ‘big, beautiful’ law - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNOV9YQU1CYkI3cmh5Y3ZlN20xMVIzUHJ6ZExWYVpfVnBwSEFhemJTUDBQX0hFSXFVQml6S3FFRWpZTlFPNzFCaDdYUGg2aDhIWkVoTXBNMm1LbmVNQlNaYzJ1VmpJMDZPMVNYeDhaV3lpQmhaVzR2OW0wRGkyVTROVVZLUVkwZldfcU9adWo5V0ZqUlQ3eVHSAZsBQVVfeXFMT2xnWVAyNGJ2Y3p1TG1aSWtVYWxYa1Y2VEExdWhfVzhES1F5c2dTeXo5UU1uNEc5dWJtVUxKWVkxTXNBc3NCX2VMVWtUQnozcmFLNFItQnNMWDd2VHB6R19qdkRxSTVOaDFzWTdrQnVzb0lKVjN2YXc4RFRvVjlpLTRueG5OeHNxYjRyb1hYYzZQcXpXZ01pdmRvbU0?oc=5) |
 | Arizona seeks probe of feds' response to Grand Canyon fire - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPSGFQemIyWXMtdzc2cGl3TnNPQlJDV0ZlZlVtT08zSXl2NkNtcXVndlVfQTM1Z3Vrc2pqVEhhNWw5Q191c0dCS1VXQ1VIZEJyX1pWek1DZ2pSQ3hVMWxJc3BkMU5janlXSlh3UGVsVHZraHRZcEItYXVsaVlWWlZqZk1hcmZESUlZZ3FOQlpEN0dObXI4bjU5X1BfR1gwNGFPWGs0YzgxNmRQQzQ3TGtGdnlGdjRFR3ZyTGtqc0R3?oc=5) |
-| Fall River fire that killed 9, injured 30 deemed ‘not suspicious’; Victims identified - Boston 25 News | [阅读全文](https://news.google.com/rss/articles/CBMi4wFBVV95cUxQRGNLb3lidzh2U19RYktQdGg0U1M3Y3Zjc2pTNGJ6Nk1XX0xUcHpjaWxVNnhySE5XcHlHSExPblZYVXNnWXpxQTM4REJiQnRxSmgwWEVPSW1YRmpGeG9Td3hyR3p5eDV2M2xENFZKZ0FsRTlONnVPcUJaRkpqVGhXNkZmYmJPR3QwYmxlWWpld3lnZ0tXSHZpNU05aGdDbkNQWTNPSGxrazBhUkh1ajE5TnI4VU9WNVBvYTVsZUNIcE1NZFI0SFlDbGFDYVh5S1NjMWdRN3FlTDMxZ0FrcXJyWmY3QdIB9wFBVV95cUxNSGVacUpCZm83YTNOdlJzMG1xejVwNnQtNmdfOTR3UUxlV3prS0R3d3FJSGdRVTlyRXJWbEhZaTEtVWk1dVBFeFQxdG1vRVA5SW1FaGRDTC1UamMzcnVBRE90cDVqM190aE8ta3hLWk1nTWtmUlJsLWF0WGRuT0hUaEViNUozMUYxbHpfZEppcmFqczd4dk1DUFlObFBCM3lHbU9zWGoxNkZLaldZM1huNXcxSjM4R01VZ29NenUtOHFQeWdyRDZmWE1xdWM4YzFPdHVrR3FINGpDaGc4dXBUYUh5M1JpQkJzUkJrWl9qYmJjdk5IeTlJ?oc=5) |
 | Fewer Than 100 Unaccounted For in Texas Flood as Officials Decry ‘Blame Game’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQeS01Ulh6QWxaZVBSWm1KeDlGSWliM2NHM09yRzgyUkt4LU9xQmwzNnhFazlKc1ViRWtvdVNkNE1GeTNtM3IzOThJZUxHeVZrajZaTktUcU5DTm83OHQ3LVBvZllXSEJvY2FPczhBeEJqelNveXNjUlZWMXhpVXlDbA?oc=5) |
+| Fall River fire that killed 9, injured 30 deemed ‘not suspicious’; Victims identified - Boston 25 News | [阅读全文](https://news.google.com/rss/articles/CBMi4wFBVV95cUxQRGNLb3lidzh2U19RYktQdGg0U1M3Y3Zjc2pTNGJ6Nk1XX0xUcHpjaWxVNnhySE5XcHlHSExPblZYVXNnWXpxQTM4REJiQnRxSmgwWEVPSW1YRmpGeG9Td3hyR3p5eDV2M2xENFZKZ0FsRTlONnVPcUJaRkpqVGhXNkZmYmJPR3QwYmxlWWpld3lnZ0tXSHZpNU05aGdDbkNQWTNPSGxrazBhUkh1ajE5TnI4VU9WNVBvYTVsZUNIcE1NZFI0SFlDbGFDYVh5S1NjMWdRN3FlTDMxZ0FrcXJyWmY3QdIB9wFBVV95cUxNSGVacUpCZm83YTNOdlJzMG1xejVwNnQtNmdfOTR3UUxlV3prS0R3d3FJSGdRVTlyRXJWbEhZaTEtVWk1dVBFeFQxdG1vRVA5SW1FaGRDTC1UamMzcnVBRE90cDVqM190aE8ta3hLWk1nTWtmUlJsLWF0WGRuT0hUaEViNUozMUYxbHpfZEppcmFqczd4dk1DUFlObFBCM3lHbU9zWGoxNkZLaldZM1huNXcxSjM4R01VZ29NenUtOHFQeWdyRDZmWE1xdWM4YzFPdHVrR3FINGpDaGc4dXBUYUh5M1JpQkJzUkJrWl9qYmJjdk5IeTlJ?oc=5) |
+| Ukraine: Zelenskyy proposes new prime minister - dw.com | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOdEo2WUZQOWsxOEpnQUQ0NDQ3Q0xxWWdoeUx4aFIwb3YyZElCNUc1MG91NFpaaW03Qldyc00yMWhyT3hvcVhkQTNOS2Y3am9ET2QwOGxLR3lVM24ydDR2dERCVXJOMXRKZEQtLXh3RFhNbUd3blpreVdrTVlwTFhXV2xqYlTSAYQBQVVfeXFMUFpVcmNVVkVNMVNtWDBOemV2T2pGQk1HWTU4bTNHYmxJcnNjdVoySDJDcVpzQTF0WDNBZHpqS0xxQjBPQ3pqa2hrVi1fdnhMa2dReHhSZVNIb3lHNlFrdkd2dVpraG00eUVCRURDRUFUN1Y1Ym5ud1dVNkxmTWhxbm81Yktz?oc=5) |
 | EU Targets Boeing, US Cars and Bourbon With €72 Billion List - Bloomberg | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPbmNGRHlxeVVRbjAxbFZuVVIxOExiSU5ueXpXTlNpQU84bU9JemZraHdaNTFWNXB1MnpFa24zSm1DaXpvam5xeVNhMFBYcnZIYTROaHZCX2lRX3BEMy1uNUxXdUNXcm1EekRYZDg3cEJ3SkVleG5nMEtoS3dOekcyN1FWSHJ6bUlxV2RRM2FZOVVJLWlBYjVPVmlPZ3FOZ3RyVzNRRU05UDN6NkkxYTY0bW9QWTBtWkdGRGJaQi1wUE1oSkU?oc=5) |
-| Man who killed 2 at KY church, shot trooper, had upcoming domestic violence hearing - Lexington Herald Leader | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1fZTRXQ1pwXzlKUkpHdktxLWxGNDlXajQ1a3VXWmExN3FzbjlaY0hUZ0pzcGxYQzlCd2FpLWNkQkczQW9TenJ4bmdRYTR1dWwyRjBaaXNqU2lKb08zWHlvLVVsazg3T3c0TlotR2U1dXbSAXBBVV95cUxOdWI5WjhrX0tLMVRaeGE3eVhxNmlfQU9pQkFsNmx2VndqRklEWXJocjFfRGpXZnhvTkloUmd3M0NIY2pOTDJTMF9sUzZKV1NkNUw0SmJxN2lxdWpBS0x4M1ZpNm54Wms0ZDhQYzljQzNi?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
