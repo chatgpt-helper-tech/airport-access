@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月16日 10:27:23（北京时间）**
+🕒 更新时间：**2025年07月16日 10:39:53（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | ICE bars immigrants who entered U.S. illegally from getting bond hearings - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNMGhieHpFTWpuNkNmTFhVam93ME1TbE56WndYaVFJSFd1d05zeURUaHdaUzUyeFBLZGdNVUdwZXJiNXo2SzFkWWhzZGdzSnVFTkdxb2hhRnk5aVFBN1E3WGZseWg5X21mRGhGay1na2lGSW11ZTMzc1B0SDczRi0zaWRSeDhQeXVHUnBUTkNYZk5iZlNrWXpOODlTbFlYM2wzdDIyetIBVkFVX3lxTFB2V3k2OUNCWWdjeDRpTkpiMHlqdHIyYks3VUE5WG0ybW5RU2N5Y1h2cU8tZEdEZjdzT0JpeVdtZnVjU2FoQmRMeFl6bnE3RnFCXzg5Nm1n?oc=5) |
 | Alleged Minnesota shooter confessed to killings in letter to FBI director - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNMlNyaWNnbFBNZU51SHZPQzZEQS1TVzk0T2tpRDRkcWxNclNaUy1CN1Rndkg4RG1pRW5JVjY5RWp4VWVaTVRoeWZZemFFNmc4azlYbXcxSE10ZGNXelA5Z1g2MmJXWEhpZjRoTmdhanZCMHJPUGdYdGRoVmtMVWlEckNUNEVuaDMxcHpNRWxjQUJmZGZLYkFGWUJn?oc=5) |
 | University Leaders Reject Republican Attacks on Campus Antisemitism - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPdk5JMTZnTlJKXzgzQkx6YnU0ald6Q3drZ1BmWkJuSkRjbTJ6bmFybUgxdXZ1VnNPWVRFZGZGalV3X3EwNFBwc1NWeFZoUURNVGZRU2NUZWZZSExBOWNQZ1lfekFPLUtWM3N6VklLbXVKMU9PcWk5VXpCdUFIc2xoUnFHSUZMRVVpblh0MWZFaEdVNTVQT0dDdzlfaEJVYWxKN3c?oc=5) |
-| Mamdani expected to clarify his position on ‘globalize the intifada’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNNFRoRlNwWV8xSTRaWUZQbW5yT1RYM095RnpwZm96UjlLOUFfRThXNjlHR0RUMk8zWDQzNzdKbGpMczhiLVVRbTE1eElHcU8xSk9pcFIzanBibEVLejNJOGlqdEYxRTVma3FUelByTk5DSS1iTGMxaXprWE45NGZmU2RNWGp1MFBoVGljRk1IVExNSjFPbzBuX3Z0bWE4SUZ6R29HVUVMRlAyWUVKS05SeldDLWxMNW8?oc=5) |
 | Trump tells Texas Republicans to redraw the state congressional map to help keep House majority - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPZDhaU2NHX09JQlZTQjc4dC1PVXNMRnRkMDFJanZqVEctc2dabW91UFVfbEF3clJkZ1Y3QTRVQndXQUc2Nk1tZUN5TTF1bnFfY090UGV4eFQ2MTB6eDg2U2ZoNEF1Q3lXRGpEUnpSZUNQSFN4MjNQbE81R0h0VHh4WEtMTGRwcndNeEpxTkFlQmdNQnk5TWd3Wkl4M3JQSHlBSTB0ckN5VkxGVHRyazVXbHRB?oc=5) |
+| Mamdani expected to clarify his position on ‘globalize the intifada’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNNFRoRlNwWV8xSTRaWUZQbW5yT1RYM095RnpwZm96UjlLOUFfRThXNjlHR0RUMk8zWDQzNzdKbGpMczhiLVVRbTE1eElHcU8xSk9pcFIzanBibEVLejNJOGlqdEYxRTVma3FUelByTk5DSS1iTGMxaXprWE45NGZmU2RNWGp1MFBoVGljRk1IVExNSjFPbzBuX3Z0bWE4SUZ6R29HVUVMRlAyWUVKS05SeldDLWxMNW8?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
