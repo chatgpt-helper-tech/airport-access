@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月16日 23:26:48（北京时间）**
+🕒 更新时间：**2025年07月16日 23:40:47（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Donald Trump says those interested in Jeffrey Epstein inquiry are ‘bad people’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNS0g0TkUteHd1aHB5cVdqY3VfVHUySUxlN3RIYzZFTE5mRVhQbWRTRW1LNGJFaHFjSDRRRHgycmE5R1RWRUlWcDlOMHVqMTRvcElnMkhHWDBUdXN6LUszQk9DZlptUHRpMEVoNlJaSUNDQ1diY19vNno0bnhBR0RhUVlpUkhJU1V4cDdYR2sybTF1YmlTR3JnZFIxd0lpRTFEOXhSTzJ5THd2ZTVWTFE?oc=5) |
+| Trump disavows "PAST supporters" who "bought into" Jeffrey Epstein "hoax" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE44d2hyR184XzdCeVFpNVl4MENyMXdJYldGUXRpOUk2SW9LUnA4SWNNZi16WUpiVnRybkMyRXJHTFdCaTZKM19FbTRObi1Da1FEODU1MjFmNFNJRlJJdGVzclJIQ2xrcnhwSkhF?oc=5) |
 | Israel strikes Syria's capital Damascus - NPR | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBxV0F1cmczVW9QNXZqTWM1Nl9kbWZDZmxPX25kQmE3OFR6X0xnN1dvT0lSYTg2VlJOb25fcVlhMUxQUW1qTkdVRllMWHhZZjBWcXU5SkFTQjUzTHczWm9kV3hFM3NMNlZvLUpQNXREVmdLem0zem5USGcyVEM1YmM?oc=5) |
-| Trump’s 50-day ultimatum gives Russia a chance to wear down Ukraine - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQWTFDdDdtNVhPbkwwcFIwR2xwanhPaWo0dmswaFB5a0xZekdKclFJMnFOZG96YXoxU3Blczd2ZXJlRkx4TjYwNFl3TFRBMmJDNy0wVWY0SHZMbmpuVndvai1QZC1qTFl1ek5fQUZla3YxUGJJRDBWdzZpaktIUXdQOEg1dFczMjZqRTJEelFaUVYzLWZmSWdiNG12TXBQeHRqTFE?oc=5) |
+| Trump launches new round of third country deportations with new flight to Eswatini - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQTDhneXVqeUdIOFAyZ1FtUl9LT0lBdWhJZ250YlVxdEg4TzJDcUp3eGZnXzBPVzdsUkdoQTZWREhZRHNYQm1TQTl1WVVPektVSVpGWXhOMS15cm81MTlkMmtZUVhVYWlWcDR6QkZRRHFHbTFRTF9OcVlGcElMTGk3bUJOR09iUFFsN1FuQnhYei1LWllJUlE?oc=5) |
 | Senate Votes To Advance Trump’s Effort To Rescind Funding For PBS, NPR And Public Media - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQTDFPaGtaakU1MUtRNWF6T0FuVU96Qk4xZEg0bkhBUGJjeXhVSXpKTlJKMjdSV2RTN0ZiSEJUMDJ2dzgxOEJzWDIyaHNwUjllQVVaazZKaXEtalF6eU10SXRpX0pWa1d4aUJOT2lWN002Q3J0QmJHUVVWVUFtSkU5M1JIa1RuU3VKT19PRTV3cVBsWS1yRkpPeg?oc=5) |
-| US President Donald Trump's administration deports five migrants to Eswatini - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE8wb2FtQkdyOEtDUDlpb3RuTTQ4UEtPOHI2d0tIMWtlRjJtN0VjVE01QlZETnBOdFN0RUZHdWVud2FsRWR4clFhZzZReHhndW50YUdaZkNTTXhhUdIBX0FVX3lxTFBPTktJNHFBYmJKNUJjeEw0Y2tjTzVtS2NHUk82T3BqRHBtYVF0LWFoblFQaWJDMHRlbUhHTEdEQ3c5aVA1QXN1QnJiNFAxV1dteW9qWUxVNHJFSWJKWnJ3?oc=5) |
 | Robert F. Kennedy Jr. fires two top deputies at Department of Health and Human Services - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQUjNXN1dWTE8wWTV1X1R3OGpXcWFQYnV3clpFSlVFNThQNTViZlEwWTJuTGY1Y01obS1PUGEyWUhUV1BvMWJXN2s4bDFEQkxMNnV2SUZDcGVsNFlPbklZNzZJaVJKVXgxUjZYcDlGRE8yVmlaVHY5R3BPVjVDNW56VHk3aVM1WGJnNWFBMWZlTU00MDV5NkVGX2I0U3IxWkFjTTBvRXpERG7SAa4BQVVfeXFMT1dBMEVJRjRYVzZXSWI2dUhPUmt3bjctZl9OMGtBX0N1SmR6SlVrcUtaLWFDeDQ1VmljU0tzTFpjWXJTbW9tZHlhejR3b1NJem9jRHRwTU91MXFVV1M3U2cwZERISzluUlVjM3VhRENsa2ljU2VzdTJpNG5zWGQ4eTROTVdEZjJoUEpNcEZ3Q0dTU2VIUlNLMEUza3ZHcHJ0ZE43bnlBNl80aWdWYW9R?oc=5) |
+| Bondi declines action after Trump suggests further Epstein files release - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOSnZ4QnFxWWthN1RpeF9fS0NxbnhIbDNUdnpEMlBIQUV3UHI4dFhJbGVQZFNtUDd4QTItZ01JVDJTUmNaZUhNSTA3NDVwSXJVOU0xSThhQXdqWk9pREhURWk2QWlFYTkxY0VBcUFYTVlZLVAzYXkxZUNDQWg4MTdyTmJteXp2dw?oc=5) |
 | Adelita Grijalva defeats Deja Foxx in Arizona primary: 3 takeaways - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPXzJnaHo4eGE3eGRUUFdxMmpabHlpQTFfcGFoWVlhWXVrQVVsdzU2YTJyWEtGSHkxTXRmTWFQTi1MM3Vjdy1QLURRZnhxOFRTNVQ2dXJ3azM2dUY0WjcybHVhS2hfMnhCMS1rTkZfR2pYdWszYV9WUjhyWmdCWDYzdnBRNEVRNnFoRWk4aXVQalBwQWJmYUE?oc=5) |
-| Mamdani Talks ‘Intifada’, Taxes in Grilling by Business Leaders - Yahoo Finance | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNWTU0THQ0M0JxZG9uZFlpWV9CU0w5ZkxMRkQ4X3ktX3RKWFNFUnhxN2swYWVyN0ZwQWVwLXZnUFA0eFIwZnVEcF9ZcjR5UkF6bllqbmUxOS1DVGdMcjRTUU8xZi1STHJjTEFCcVlhUTBXQm5Pc3dubVdlTHFTUHBZUTVidjhncy1MY2xZ?oc=5) |
-| Susan Collins finally got her dream job. Fellow Republicans are making it a nightmare. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNTVhlZmNQSmFJdWMtRzFadUY1eWxfQWFDTmZmRVk4UFYydWFYVERIWDdocFhuZE1odEhPZXBlU21wd3Vsc1FDOEhDbHJTd0JRSFNBNm5xR0wzeTRDZlVhS3E5NFBQREtsYzdpcGx2V0RvcUh1RHg5ZFpRajJmQkowQ0t0YUpLUDBWM3BsdzNjSWdMUVE?oc=5) |
-| Trump Announces ‘Great Deal’ on Trade With Indonesia - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNRGtPVWNjd0kwQVZaaXVBaUtGYkwyVWZZejJILWF6WXZidlNYbnM2LTROc3ducmd3cTdYZlp1SDBBMUVmNll5NE13NHVHd2NyRmFiWjM2QzA3a25xYWhGYkYtT3hCSXN6OFpPS0pFY3RHNjR0c21FdTBVZ2xUeW9WeHdGLXZ0NU9TbWpvckVhRm5mQ0FYaGRudVhXUQ?oc=5) |
+| Mamdani says he won’t use ‘globalize the intifada’ amid backlash - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOUG83WF94aUhkV2xhNy13TFdjOGcyT1FPd3lyNWpqZ0I3Zlltam1JQm9qV2V5SURSZVJkZmIwd1NSRjlYVEtmd2NZaG4xNmFiZkJ0N3EtV1o1Y0RDVmNBOWcyNWdpS3lSVk1CejBiZmkzSnN5MDRtNVowa0FVeExvQUtWQmRwMmx4Sjg0?oc=5) |
+| Trump’s 50-day ultimatum gives Russia a chance to wear down Ukraine - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQWTFDdDdtNVhPbkwwcFIwR2xwanhPaWo0dmswaFB5a0xZekdKclFJMnFOZG96YXoxU3Blczd2ZXJlRkx4TjYwNFl3TFRBMmJDNy0wVWY0SHZMbmpuVndvai1QZC1qTFl1ek5fQUZla3YxUGJJRDBWdzZpaktIUXdQOEg1dFczMjZqRTJEelFaUVYzLWZmSWdiNG12TXBQeHRqTFE?oc=5) |
+| Zohran Mamdani briefs House Democrats on lessons from his campaign - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNZWg2Y2tvOHNhRVByNURzWXhBZDRSNGpFZU8zYS1Edk1kZWN5QVEwTUpWREFJQTY2b2JKTGlBM1hMSm84V1lhWXNPNFhqazVUZVpINlJwUkE2WUdUNjNwRy1Na09lcV9sWnJYRHFka2gyeXg4OUFCbTlESTl5dFVyeEUxekNadFBfbXJncnVxMW5GZlVuckdTcUR6Q2VpUk0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
