@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月16日 13:52:51（北京时间）**
+🕒 更新时间：**2025年07月16日 14:01:34（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | Three key questions after Afghan data leak sparked unprecedented secret evacuation | [阅读全文](https://www.bbc.com/news/articles/c9w12kdg5zko) |
 | Stop being negative about savers buying shares, Reeves tells business leaders | [阅读全文](https://www.bbc.com/news/articles/cn4ld9v73dzo) |
-| Trump says attorney general should release any 'credible' information on Epstein | [阅读全文](https://www.bbc.com/news/articles/ckgl4dl334go) |
+| Trump says US attorney general should release any 'credible' information on Epstein | [阅读全文](https://www.bbc.com/news/articles/ckgl4dl334go) |
 | Man who murdered British backpacker Peter Falconio dies | [阅读全文](https://www.bbc.com/news/articles/cjrlg4x8e78o) |
 | Physician associates should not diagnose patients, says review | [阅读全文](https://www.bbc.com/news/articles/c70r7d7z0wro) |
 | Kew Gardens' Palm House will close for five years for major makeover | [阅读全文](https://www.bbc.com/news/articles/cpwq08rxxklo) |
