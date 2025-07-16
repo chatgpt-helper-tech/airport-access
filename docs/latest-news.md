@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月16日 18:26:17（北京时间）**
+🕒 更新时间：**2025年07月16日 18:39:48（北京时间）**
 
 ---
 
@@ -14,9 +14,9 @@
 | Trump says US attorney general should release any 'credible' information on Epstein | [阅读全文](https://www.bbc.com/news/articles/ckgl4dl334go) |
 | Physician associates should not diagnose patients, says review | [阅读全文](https://www.bbc.com/news/articles/c70r7d7z0wro) |
 | Southern Water issues hosepipe ban for 1m people | [阅读全文](https://www.bbc.com/news/articles/ckglpvzygvzo) |
+| Trans changing room row nurse cleared of misconduct as tribunal resumes | [阅读全文](https://www.bbc.com/news/articles/cm2mp5jley8o) |
 | Man who murdered British backpacker Peter Falconio dies | [阅读全文](https://www.bbc.com/news/articles/cjrlg4x8e78o) |
 | Trip drink ad banned over claim it makes you calm | [阅读全文](https://www.bbc.com/news/articles/c14e2d2ednpo) |
-| Trans changing room row nurse cleared of misconduct as tribunal resumes | [阅读全文](https://www.bbc.com/news/articles/cm2mp5jley8o) |
 | Kew Gardens' Palm House to close for five years for net zero makeover | [阅读全文](https://www.bbc.com/news/articles/cpwq08rxxklo) |
 
 ## 📰 Google News
@@ -27,12 +27,12 @@
 | The Trump-Epstein question that put the White House "in a tizzy" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5zTWdEajdsdkNzS083OEEtSHE1WGx4VWJKei1vY3o2emhCNndoeDNUVndQZW5yMjFIZUlRc0xURXdnLXJsaU1YaUY3WXJybzBfRUYzMGZYUlFFR0tOeEVsSW1yZEwwdWNuUUdGOUphc3pETlV1aXpJaWZkYUg?oc=5) |
 | Trump threatens ‘very significant’ Russia sanctions, bashes ‘all talk’ Putin - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOelM0bTg5MVZpMVRKQVM4YWRfcjdvNF9INzFhZ2d6UjY4ZFh3Y1A3YVdreFV6UDZ6YjlVSDdzUmdibzJfNlpvWVNlVWZWdEw0NThmNWxOVEx4V056dF9wMEJ0eWJBS216S2VXNlhteXJ3Y190YVBMNUpieExod0NMb2ItUkpfX0xqaURHRmxHYVJmQmtDY0lRV21XYw?oc=5) |
 | Trump officials to send home half of the 4,000 National Guard troops in L.A. - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxNMDQzblNLUm1xc3A0TDJvZVZxOFd1TmJ5LVBkZ29ySDZUdGdyNWlfRmRDWmd3YWZQU253cjVjT1U5aXU1aTViRF94NkhKWVhzbW1GM010X2w1NWI5UXFnRGMyV3RuYk1DcGVMU09XR0FqU2NTM2o1bDVwanNOMUEtWjQzQW5QbFNTRFk2VkxGS3JxT2t6d0Zhc1lNc2tIN040akE5ZHJLZkpwVlNlVmpYY0dwMUotdWJnbERlMTI1eTcxMzlkYURuZ2lvMXZEVWtZTWhOOA?oc=5) |
-| Arizona Special Election: Social Media Star Deja Foxx Loses To Adelita Grijalva - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi9wFBVV95cUxQYm1mNXhYVTMxaTR4ajU5NDY5ZndoWWZXMGlKaHFsS1dnSGxpdnF4ZkZWT1YtMkdodkVOYWM5RnNPRGpHWXdvUDRZbHhPWU53QTJtdklGck5xT0Z3Uks2cEV0ZTZZQVduZ1ZaaWdLZ3dPaFNTLW1KWWtyV1I3Nmd1c2Z1X0ZEazBSUzlKYVBPS0pIMVZreFA2WDJzN0ZWSDkyMTdhSExpRV82Nk00LWZOc3BiRlhrT3AxSnJmWC0tN29kTnhOeDdIQm1GUUZtRElIRExNR3dMYlZTLXpGQ1pVOXBHWE1RZlZ6ZWR1dTRrbjYyN1ZJd3Aw?oc=5) |
 | US House speaker Mike Johnson calls for release of Epstein files amid backlash - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPMF9hakpCaGFMSmdfM0VpVXdqV2JERFhCOEFTMnpWMkttMjRDeHZHZ1hhTzk4NFh1QXBjSTBxRkQ1NkxOaWRySnp0VW5vbURfY2s3bGxMdkxBNk40bk5OQXQ3X2RscVBlZ3pYa2hGQV9menVENUljNGRNMzBNYjIyS1JpUGxQUVVpVzJ6LXZCSQ?oc=5) |
+| Adelita Grijalva wins Arizona Democratic House primary, Daniel Butierez wins GOP nomination - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOSElPSHZBU29JZUFOYWthXzA0LUZMcFNLa2xQcHV3QkNoS2tHcUR3RFJ5dXBmbDJkanVQcUVENVIxajEyVUVjZjlEY1ZIOEhrZG1tSUdzTVhjN09VYy1yTUpSejMxWHNzN2VrbHRxdmhrQmplT3VGc1lNNy1YYUtBVUVjUmJFdFNjUTVKM1ZmS3F0Z3dNcUF5NXM1V3ZJTWRZdW1hcmttZ9IBrAFBVV95cUxNQ2RValIycnk5VnhyaXI3bEZydlVGUWs1QXpJVHZHaXNQSmlIeFlHSWxqLVl2anVnUUlTZjVRVXd6OE5WdTdRVU1LZjY1b2FVbzR1SEVUaGtRd3I4QjVIbjVxbEI4clVaT0FZeTZqaXAyQy1fcHZCSGhGakhfbmZyRzl2RWdrOXllM2tVdl9qemxzNEg0RXN2eWltelhJRGdtVXJ1WklHSHZLTjhI?oc=5) |
 | Democrats Broach Potential Walkout to Block Texas Redistricting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQanhmcG5iTDljczhUc2lwbEUzaWVQM0xoMkdhY3NsODdrQlVBUDJoXzc3WHhPZnlIaDdHMjhOUmRzUWN1d1lkX2JweFhSXzhCTWdmTWFPUGJvWjBfWmFSVDlvd3hzOWJ5MThWZmpQTVgwNTh5Z2dVeEpvZnZ5S0JGMGl3Yw?oc=5) |
-| Feds: Vance Boelter acted alone in lawmaker attacks, also targeted Senator's daughter - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNN1J0ZlJnN215cnBzTFBGZlNyVTAxZG5tM2tQNkdRblcwQnJRb2ctY2dMNnpXXzVhVkxuUUZEQ1QtcFJCRVBEOGNDeGRndEE2ZWFxdVpWQ0JFU3pVVkRYMlJQX1FkV3FHRXNoRDIzdlBGNHNMTllkT3pqSDN5Y1E0Y1MzcmJTa2hjM1BVRHdsVVBnb1JOSFZVNkVDSGozZkdi?oc=5) |
-| Mamdani expected to clarify his position on ‘globalize the intifada’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNNFRoRlNwWV8xSTRaWUZQbW5yT1RYM095RnpwZm96UjlLOUFfRThXNjlHR0RUMk8zWDQzNzdKbGpMczhiLVVRbTE1eElHcU8xSk9pcFIzanBibEVLejNJOGlqdEYxRTVma3FUelByTk5DSS1iTGMxaXprWE45NGZmU2RNWGp1MFBoVGljRk1IVExNSjFPbzBuX3Z0bWE4SUZ6R29HVUVMRlAyWUVKS05SeldDLWxMNW8?oc=5) |
-| Susan Collins finally got her dream job. Fellow Republicans are making it a nightmare. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNTVhlZmNQSmFJdWMtRzFadUY1eWxfQWFDTmZmRVk4UFYydWFYVERIWDdocFhuZE1odEhPZXBlU21wd3Vsc1FDOEhDbHJTd0JRSFNBNm5xR0wzeTRDZlVhS3E5NFBQREtsYzdpcGx2V0RvcUh1RHg5ZFpRajJmQkowQ0t0YUpLUDBWM3BsdzNjSWdMUVE?oc=5) |
+| Speculation Swirls After Deadly Fire at Massachusetts Assisted Living Facility - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPQmxqaTRmM3hMTnFKUDg0aU1fTWJjdUMzUlBKUTFyNS02NFRaYmZoZWxBa0ZQeTZEaTBoYkFqQjBBV1ZKRWhNT3NydUgzRUYxQ05ONDN3akItYkI3TXFCS0gxWEpDaHRVRWM1TFI1T0NMT1RyMWc2TjZIaEVtak1YVVJoaDRnaHF0R1VoSFFWOA?oc=5) |
+| Trump says Zelenskiy should not target Moscow - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQNHE0LVhBRkgxNjZlMDZKWWl0LWlHZS14a0tpUXU0TWFReDhIa1FKY1J0VWFlTXpuUzFfUTFrQVQ1UzVvbUVVRDh4ck14bFRfT2hRcHJnTm41bGpYSTdZbjBfSml2empiNDloZC1YTFN5TzFQMDRwTTh1R0ltUHNnTUYyT3VNeXN6cmIxQ0d6WXNrb0JneXhqcDZR?oc=5) |
+| Alleged Minnesota shooter confessed to killings in letter to FBI director - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNMlNyaWNnbFBNZU51SHZPQzZEQS1TVzk0T2tpRDRkcWxNclNaUy1CN1Rndkg4RG1pRW5JVjY5RWp4VWVaTVRoeWZZemFFNmc4azlYbXcxSE10ZGNXelA5Z1g2MmJXWEhpZjRoTmdhanZCMHJPUGdYdGRoVmtMVWlEckNUNEVuaDMxcHpNRWxjQUJmZGZLYkFGWUJn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
