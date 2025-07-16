@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月16日 19:00:42（北京时间）**
+🕒 更新时间：**2025年07月16日 19:13:50（北京时间）**
 
 ---
 
@@ -11,11 +11,11 @@
 | UK inflation unexpectedly jumps to 3.6% to highest rate in year and a half | [阅读全文](https://www.bbc.com/news/articles/c3en2enpy7po) |
 | Defence secretary 'unable to say' if anyone killed after Afghan data breach | [阅读全文](https://www.bbc.com/news/articles/c1k8yvj89kyo) |
 | Co-op boss confirms all 6.5 million members had data stolen in cyber-attack | [阅读全文](https://www.bbc.com/news/articles/cql0ple066po) |
-| Trump says US attorney general should release any 'credible' information on Epstein | [阅读全文](https://www.bbc.com/news/articles/ckgl4dl334go) |
-| Southern Water issues hosepipe ban for 1m people | [阅读全文](https://www.bbc.com/news/articles/ckglpvzygvzo) |
 | Physician associates should not diagnose patients, says review | [阅读全文](https://www.bbc.com/news/articles/c70r7d7z0wro) |
+| Southern Water issues hosepipe ban for 1m people | [阅读全文](https://www.bbc.com/news/articles/ckglpvzygvzo) |
+| Trump says US attorney general should release any 'credible' information on Epstein | [阅读全文](https://www.bbc.com/news/articles/ckgl4dl334go) |
 | Trans changing room row nurse cleared of misconduct as tribunal resumes | [阅读全文](https://www.bbc.com/news/articles/cm2mp5jley8o) |
-| Man who murdered British backpacker Peter Falconio dies | [阅读全文](https://www.bbc.com/news/articles/cjrlg4x8e78o) |
+| Emma Watson banned from driving for six months after speeding | [阅读全文](https://www.bbc.com/news/articles/cly10x7pjplo) |
 | Trip drink ad banned over claim it makes you calm | [阅读全文](https://www.bbc.com/news/articles/c14e2d2ednpo) |
 | Kew Gardens' Palm House to close for five years for net zero makeover | [阅读全文](https://www.bbc.com/news/articles/cpwq08rxxklo) |
 
@@ -29,8 +29,8 @@
 | Trump officials to send home half of the 4,000 National Guard troops in L.A. - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxNMDQzblNLUm1xc3A0TDJvZVZxOFd1TmJ5LVBkZ29ySDZUdGdyNWlfRmRDWmd3YWZQU253cjVjT1U5aXU1aTViRF94NkhKWVhzbW1GM010X2w1NWI5UXFnRGMyV3RuYk1DcGVMU09XR0FqU2NTM2o1bDVwanNOMUEtWjQzQW5QbFNTRFk2VkxGS3JxT2t6d0Zhc1lNc2tIN040akE5ZHJLZkpwVlNlVmpYY0dwMUotdWJnbERlMTI1eTcxMzlkYURuZ2lvMXZEVWtZTWhOOA?oc=5) |
 | US House speaker Mike Johnson calls for release of Epstein files amid backlash - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPMF9hakpCaGFMSmdfM0VpVXdqV2JERFhCOEFTMnpWMkttMjRDeHZHZ1hhTzk4NFh1QXBjSTBxRkQ1NkxOaWRySnp0VW5vbURfY2s3bGxMdkxBNk40bk5OQXQ3X2RscVBlZ3pYa2hGQV9menVENUljNGRNMzBNYjIyS1JpUGxQUVVpVzJ6LXZCSQ?oc=5) |
 | Adelita Grijalva wins Arizona Democratic House primary, Daniel Butierez wins GOP nomination - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOSElPSHZBU29JZUFOYWthXzA0LUZMcFNLa2xQcHV3QkNoS2tHcUR3RFJ5dXBmbDJkanVQcUVENVIxajEyVUVjZjlEY1ZIOEhrZG1tSUdzTVhjN09VYy1yTUpSejMxWHNzN2VrbHRxdmhrQmplT3VGc1lNNy1YYUtBVUVjUmJFdFNjUTVKM1ZmS3F0Z3dNcUF5NXM1V3ZJTWRZdW1hcmttZ9IBrAFBVV95cUxNQ2RValIycnk5VnhyaXI3bEZydlVGUWs1QXpJVHZHaXNQSmlIeFlHSWxqLVl2anVnUUlTZjVRVXd6OE5WdTdRVU1LZjY1b2FVbzR1SEVUaGtRd3I4QjVIbjVxbEI4clVaT0FZeTZqaXAyQy1fcHZCSGhGakhfbmZyRzl2RWdrOXllM2tVdl9qemxzNEg0RXN2eWltelhJRGdtVXJ1WklHSHZLTjhI?oc=5) |
-| Democrats Broach Potential Walkout to Block Texas Redistricting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQanhmcG5iTDljczhUc2lwbEUzaWVQM0xoMkdhY3NsODdrQlVBUDJoXzc3WHhPZnlIaDdHMjhOUmRzUWN1d1lkX2JweFhSXzhCTWdmTWFPUGJvWjBfWmFSVDlvd3hzOWJ5MThWZmpQTVgwNTh5Z2dVeEpvZnZ5S0JGMGl3Yw?oc=5) |
 | Speculation Swirls After Deadly Fire at Massachusetts Assisted Living Facility - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPQmxqaTRmM3hMTnFKUDg0aU1fTWJjdUMzUlBKUTFyNS02NFRaYmZoZWxBa0ZQeTZEaTBoYkFqQjBBV1ZKRWhNT3NydUgzRUYxQ05ONDN3akItYkI3TXFCS0gxWEpDaHRVRWM1TFI1T0NMT1RyMWc2TjZIaEVtak1YVVJoaDRnaHF0R1VoSFFWOA?oc=5) |
+| As Trump looks to net five GOP seats through Texas redistricting, Democrats grasp for response - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQaWs1QnZBdGJZQzY3Ri1OUW1JcXRwdVhHanYyRGNvSkY3NDlmOHF5NnFHVVdjdFlza0lOZHVublhUMlR2QzVhZEk3ZFdLRFA1S2ZWaUFyQTl2ZW9hVFBRZ21Uek90aUVpTzh5ZENrbTR5MTRrVFcxUHZ6blBSUVMzeVkzclc3UTF2TFhUTE0td2ZPaXBRNzVvMGZtVmdKbVl5c1JBU3d4MGxWWkU?oc=5) |
 | Alleged Minnesota shooter confessed to killings in letter to FBI director - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNMlNyaWNnbFBNZU51SHZPQzZEQS1TVzk0T2tpRDRkcWxNclNaUy1CN1Rndkg4RG1pRW5JVjY5RWp4VWVaTVRoeWZZemFFNmc4azlYbXcxSE10ZGNXelA5Z1g2MmJXWEhpZjRoTmdhanZCMHJPUGdYdGRoVmtMVWlEckNUNEVuaDMxcHpNRWxjQUJmZGZLYkFGWUJn?oc=5) |
 | Mamdani expected to clarify his position on ‘globalize the intifada’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNNFRoRlNwWV8xSTRaWUZQbW5yT1RYM095RnpwZm96UjlLOUFfRThXNjlHR0RUMk8zWDQzNzdKbGpMczhiLVVRbTE1eElHcU8xSk9pcFIzanBibEVLejNJOGlqdEYxRTVma3FUelByTk5DSS1iTGMxaXprWE45NGZmU2RNWGp1MFBoVGljRk1IVExNSjFPbzBuX3Z0bWE4SUZ6R29HVUVMRlAyWUVKS05SeldDLWxMNW8?oc=5) |
 
