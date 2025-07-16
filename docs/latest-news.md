@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月16日 11:54:00（北京时间）**
+🕒 更新时间：**2025年07月16日 12:00:39（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trump accuses Schiff of mortgage fraud, which Schiff calls false ‘political retaliation’ - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxQOE8wcjQ0c1c3OURyNGp4cC1LTWxxWHo4cXlUMEp2Um1Ud1puOHNvMmdtblVJeXhIR05KNWNKMF9lbXE3WHgzMEV2Qkg5Q3ZxSzNiQllDb0FGZFRMU2J1Q1BmeHlJTS1rUEFXcTZHZEJlUFNFTW5DZ1dFbk5tVzhtblUxSUpCaW1ZN09zZm1CbUNQbnFFblRBeHl2ZnZpNGJEWkRaNTkwdy1fcEFuQkw5bU1RVWxELWt3Q2NTQ3pfVmtoVTBOTDFndkVaOE1BUmZL?oc=5) |
 | Donald Trump announces trade deal with Indonesia - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1VZ3dBYWlCOEpqSVhxeEExd2F2YW96UDZxaVY2SHA5R0g2MjYzMVlRendScFoyS3VYdXBqejFfR1cwNUVoTU9IZmt3MVA4a0hmc05MWm9xUGJVOFJBRnFxMk9INkhnSkwtU19yM2lOMk0?oc=5) |
 | Alleged Minnesota shooter confessed to killings in letter to FBI director - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNMlNyaWNnbFBNZU51SHZPQzZEQS1TVzk0T2tpRDRkcWxNclNaUy1CN1Rndkg4RG1pRW5JVjY5RWp4VWVaTVRoeWZZemFFNmc4azlYbXcxSE10ZGNXelA5Z1g2MmJXWEhpZjRoTmdhanZCMHJPUGdYdGRoVmtMVWlEckNUNEVuaDMxcHpNRWxjQUJmZGZLYkFGWUJn?oc=5) |
+| Arizona Special Election: 25-Year-Old Deja Foxx Seeks To Go From TikTok Activist To Congress - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxQY3NhVHYwY2pBRl94SnNjZlcxaFZUaWZBc2FRbnVPcHlpMWU3WUpGQ2k5QXE0ajVnbFR5ektHTHBqS2pZajlWWEZqcE5TaGRCRmNoWFFVR05oN3ZwQXFfN0RidGd4bDh0YlhmWW9mS1AzcE14bXlWb01ENWFyakw5eXlNS3kzZW9sd0RVdnVKSFFoWkdhOHc2c0t6UUdqeUstaE5BaV9ULXNJaUFHVnhMSkMwTm43VmN3RWVZcVVuM0tUVU9aM0gycDAxRGR4MkU?oc=5) |
 | Mamdani Says He Will ‘Discourage’ the Term ‘Globalize the Intifada’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQNmExS0JYUFA3V0JOdFpHM2F4UDRyaWtyUkd3UUw2QVlBSkhOYll3d2M4dTNYcDFnMHh1bUJydGJwakNrTDNhcWxfVXJnT0dWUHYySzAwcjJNckpCQldzR195MWNHVmdKbTE4QnoxN21NQlZuaE1mTzU5MEYyMlhjaWl4eW9NTEkxMjl4Zm5JVFZ4R1dXVW1N?oc=5) |
 | Trump tells Texas Republicans to redraw the state congressional map to help keep House majority - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPZDhaU2NHX09JQlZTQjc4dC1PVXNMRnRkMDFJanZqVEctc2dabW91UFVfbEF3clJkZ1Y3QTRVQndXQUc2Nk1tZUN5TTF1bnFfY090UGV4eFQ2MTB6eDg2U2ZoNEF1Q3lXRGpEUnpSZUNQSFN4MjNQbE81R0h0VHh4WEtMTGRwcndNeEpxTkFlQmdNQnk5TWd3Wkl4M3JQSHlBSTB0ckN5VkxGVHRyazVXbHRB?oc=5) |
-| Ukrainians unimpressed by Trump's 50-day ultimatum to Putin - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBCbV9vM2p5RUdtNXB4RHkxY09IVlM2TFRZcjc2bFFXcE9FMk41cmRnYTA3SXB3YVJDa3R3cnItY1pzRm1OTklQTEY3ek43V2RjY3lDZmRRU0dXUdIBX0FVX3lxTE9WRkt5LUp4SUNNZnVvUTNzQnFUUzVTMjV5dHhZb2tOZ1BKZG9kTDhuRFk5YTYxV2sxTXd2VXdyeXRISlRDVVNSQ0tsVlpzb3VJa3dwRnN2T183R3A5QVo4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
