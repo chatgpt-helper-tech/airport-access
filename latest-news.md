@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月16日 15:14:22（北京时间）**
+🕒 更新时间：**2025年07月16日 15:27:22（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | Physician associates should not diagnose patients, says review | [阅读全文](https://www.bbc.com/news/articles/c70r7d7z0wro) |
 | Stop being negative about savers buying shares, Reeves tells business leaders | [阅读全文](https://www.bbc.com/news/articles/cn4ld9v73dzo) |
 | Man who murdered British backpacker Peter Falconio dies | [阅读全文](https://www.bbc.com/news/articles/cjrlg4x8e78o) |
-| Kew Gardens' Palm House will close for five years for major makeover | [阅读全文](https://www.bbc.com/news/articles/cpwq08rxxklo) |
+| Kew Gardens' Palm House to close for five years for £50m net zero makeover | [阅读全文](https://www.bbc.com/news/articles/cpwq08rxxklo) |
 | John Torode sacked as MasterChef host after racist language allegation upheld | [阅读全文](https://www.bbc.com/news/articles/c8j1vzngdjpo) |
 | Under-pressure BBC boss getting tough after controversies | [阅读全文](https://www.bbc.com/news/articles/c20pyjggzzro) |
 | Trip drink ad banned over claim it makes you calm | [阅读全文](https://www.bbc.com/news/articles/c14e2d2ednpo) |
@@ -32,7 +32,7 @@
 | Alleged Minnesota shooter confessed to killings in letter to FBI director - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNMlNyaWNnbFBNZU51SHZPQzZEQS1TVzk0T2tpRDRkcWxNclNaUy1CN1Rndkg4RG1pRW5JVjY5RWp4VWVaTVRoeWZZemFFNmc4azlYbXcxSE10ZGNXelA5Z1g2MmJXWEhpZjRoTmdhanZCMHJPUGdYdGRoVmtMVWlEckNUNEVuaDMxcHpNRWxjQUJmZGZLYkFGWUJn?oc=5) |
 | Trump wields tariffs to sway Putin on Ukraine. Here’s how they might work, or not - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPV0xpVXFQMlMxdnhnWDFHYURaS0R4TjBWelJWeEZ1dm5qQXItT1ZjamdpU1EwX1BFTkNvY1paRkdXcnUxS01IWGVLc1h5akMzODhTTWZyLU5TTTJXMzhiSzA1SnFGb1Q2aUVyUnd3Q2tBbnh6UXplNk9zMjBEaTBEVTA2RTZRQmV1dXFlWUNkZ0hSYndJeHBR?oc=5) |
 | Democrats Broach Potential Walkout to Block Texas Redistricting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQanhmcG5iTDljczhUc2lwbEUzaWVQM0xoMkdhY3NsODdrQlVBUDJoXzc3WHhPZnlIaDdHMjhOUmRzUWN1d1lkX2JweFhSXzhCTWdmTWFPUGJvWjBfWmFSVDlvd3hzOWJ5MThWZmpQTVgwNTh5Z2dVeEpvZnZ5S0JGMGl3Yw?oc=5) |
-| Mamdani Clarifies ‘Globalize the Intifada’ Stance in Meeting With Business Elites - WSJ - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxOaThTMjFZZkNSdXVBbkU3blVKTkV1OFUwVEtVaWpBUEgzVEtqdDk3SFFTYTdBM1dRSElwYWsxeDJsdkV5Ynd3bEhGcV9jaE5JS1htWHlmRGVmTFlPMW5iMTEyMHJEcWtnVVFCYUEwUldGWFNCYUxYZ0xac1VIaUV4VDl2WEwwUVdvemJnR2ZQMHd6VWNkczd2eUprazdxOG9lS1Q3SFZaUnFWUmxGTU1DWlNxdjZ0WThkWXJITDhLSElwVUNYcnc?oc=5) |
+| National Park Service defends the handling of lightning-sparked blaze that destroyed historic lodge - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQcUVJbldqd2JwX0FkMVNucVBJZFMtUUNKMU1sbDdIanFYSkx2VDJkOXQ0Nm1TSVoxOFpMSWFONDRIM25GLWVvS0FZTG9LOXpmRUIyS25JUVFtbGViREJ1VTZydGNmb0RjcndsSXprNmg3ZU1lS0tORDJXbm9CNjRTaUVucjVLdFdSMVo00gGQAUFVX3lxTE1uRjRMOXFCMzY2U2NxRWpfXzNfS3dNSXdkd0ViN29NNXVTMlhkS09oZkVBRzFqcTRKSnd0MllrOVBQeVQtZ1JVMUp4MVVkWkNWTHZPRlFuZTl3VV9WT0hZaUhZMzZob0FyM21SQ3RzWGdDZzJtdkU1QUtfbFBqdzlrM1J5ZVJqMXhmXzFoalV0Rg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
