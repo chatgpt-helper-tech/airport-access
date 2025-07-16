@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月16日 16:52:23（北京时间）**
+🕒 更新时间：**2025年07月16日 17:00:15（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| UK inflation hits highest for almost a year and a half | [阅读全文](https://www.bbc.com/news/articles/c3en2enpy7po) |
+| UK inflation rises by more than expected to 3.6% | [阅读全文](https://www.bbc.com/news/articles/c3en2enpy7po) |
 | Ex-defence secretary says he makes 'no apology' for Afghan injunction | [阅读全文](https://www.bbc.com/news/articles/c1k8yvj89kyo) |
 | Co-op boss confirms all 6.5 million members had data stolen in cyber-attack | [阅读全文](https://www.bbc.com/news/articles/cql0ple066po) |
 | Trump says US attorney general should release any 'credible' information on Epstein | [阅读全文](https://www.bbc.com/news/articles/ckgl4dl334go) |
@@ -17,7 +17,7 @@
 | Man who murdered British backpacker Peter Falconio dies | [阅读全文](https://www.bbc.com/news/articles/cjrlg4x8e78o) |
 | Kew Gardens' Palm House to close for five years for net zero makeover | [阅读全文](https://www.bbc.com/news/articles/cpwq08rxxklo) |
 | Twenty killed in crowd surge at Gaza aid site, GHF aid group says | [阅读全文](https://www.bbc.com/news/articles/cg4rwrkdlzxo) |
-| Trip drink ad banned over claim it makes you calm | [阅读全文](https://www.bbc.com/news/articles/c14e2d2ednpo) |
+| Trans changing room row nurse cleared of misconduct as tribunal resumes | [阅读全文](https://www.bbc.com/news/articles/cm2mp5jley8o) |
 
 ## 📰 Google News
 
