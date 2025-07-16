@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月16日 08:52:29（北京时间）**
+🕒 更新时间：**2025年07月16日 09:00:35（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | Global AIDS funding to be pulled from Trump clawbacks request - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOTnUtMUhzU2szdHNRZkF3VVlHQnAtLW13NGZJY3g5dHlmNlY5WXI2ak5SSkpsNTVhWGVLdjRIZWUwV1FHOFdJaDJwZ3VaY2JodGNJczhiU0pBUGJPS1NoR0hZWm5sZVY3ZmJCS21IMENsdHYybWstSUpDeXFhYzJkMEFnS01Vblp2WFBsUEVxdEhkVTh0d1ZIcnRTaw?oc=5) |
 | Trump accuses Sen. Adam Schiff of mortgage fraud in new attack on critic - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOdTFnM0ZsY1N3VUY0c2R5NEttWGNxbmgxM0tuOXY3bjd5ZC1fc09fVWF0TThELVQ2b2JreEVGbGVaQ1FQV3VRY0JtWHQtRHVWclAteU1KTWk2NGJ5eWx1TFFPWjdQSS1hSElSVmNuVU1sT1ZYYlVLSkVYaVhVaTgxZFVudnhlZw?oc=5) |
 | Federal indictment reveals new details about the case against man accused in killing of former Minnesota House speaker - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE05T0diUGwxNzRUT3Nwa0JBaU1sTVFKNzhYZUxNNjAzY2FvNjFYcnpQM3dDeDBsekhmYlplNlRVUHZ3VXhiaFhMaWJmckFHaTdtRDFqQk1sdG4xdmxMTTA0bjh6OFd6Zml5SUxEWGt6Z0tOMEVsYjdrRkxXR1PSAYIBQVVfeXFMTVNuRGlXQlNaZVRPdjJ1d0dXRkp5ZGtpTy0zalRiRjRaM2dZX1hiUldHN3ZhNGtabkZtQU5TamtSOS1hUmFZU2JGZmEtMW9EMElVR1JCT2xFX3ZpUnoyZzZqSVY3SDhDcjU2Q3NiVjJOandBZ0VvVkhQS09TSmhkck1CZw?oc=5) |
-| University Leaders Reject Republican Attacks on Campus Antisemitism - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPdk5JMTZnTlJKXzgzQkx6YnU0ald6Q3drZ1BmWkJuSkRjbTJ6bmFybUgxdXZ1VnNPWVRFZGZGalV3X3EwNFBwc1NWeFZoUURNVGZRU2NUZWZZSExBOWNQZ1lfekFPLUtWM3N6VklLbXVKMU9PcWk5VXpCdUFIc2xoUnFHSUZMRVVpblh0MWZFaEdVNTVQT0dDdzlfaEJVYWxKN3c?oc=5) |
+| Georgetown University leader and educators grilled about antisemitism on campuses - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPdkVLTlJmS1ZfOGVYQzZWT2VvLXlUeENISGF1ZU5YSU9YY3N5MjlxRW1FZjJ1Rmd6ZTROU2xhVFZ1bGluVE1yY3Q4RmZYc2hJNTFuMHcweUgyenZpY0hUX0FRZElLNFkzQ2pEbzN6N29aR3pBaUZGTnItMkVEamd4UVRqY0FGaGNGUDBtdGRXeVRtYjRzQ2pwT2FaMlh4YVZESXhVNWtvcTlKaGhaN2xGTzdkTFZZVTA?oc=5) |
 | Trump tells Texas Republicans to redraw the state congressional map to help keep House majority - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPZDhaU2NHX09JQlZTQjc4dC1PVXNMRnRkMDFJanZqVEctc2dabW91UFVfbEF3clJkZ1Y3QTRVQndXQUc2Nk1tZUN5TTF1bnFfY090UGV4eFQ2MTB6eDg2U2ZoNEF1Q3lXRGpEUnpSZUNQSFN4MjNQbE81R0h0VHh4WEtMTGRwcndNeEpxTkFlQmdNQnk5TWd3Wkl4M3JQSHlBSTB0ckN5VkxGVHRyazVXbHRB?oc=5) |
 | Mamdani Prepares to Meet With the City’s Wary Business Leaders - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNYk1Bb21vdWREdDBKejZ5dHBMekhmUUtuZ1FMUVFSVUIxZlBMZW9wLU9NRTZJSGZxU2pkUXV5MWNmNFYxZFllRTdiZ25TVXZPd0xndzZDVjNITW1RRTE0eXRKQUMxWUJDRHZsUVRJZUZFR1FSZk43TlhkTl9TTlB5NTBwVQ?oc=5) |
 
