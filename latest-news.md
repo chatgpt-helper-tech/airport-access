@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月16日 19:52:36（北京时间）**
+🕒 更新时间：**2025年07月16日 20:01:01（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Trump threatens ‘very significant’ Russia sanctions, bashes ‘all talk’ Putin - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOelM0bTg5MVZpMVRKQVM4YWRfcjdvNF9INzFhZ2d6UjY4ZFh3Y1A3YVdreFV6UDZ6YjlVSDdzUmdibzJfNlpvWVNlVWZWdEw0NThmNWxOVEx4V056dF9wMEJ0eWJBS216S2VXNlhteXJ3Y190YVBMNUpieExod0NMb2ItUkpfX0xqaURHRmxHYVJmQmtDY0lRV21XYw?oc=5) |
 | Pentagon withdraws 2,000 California National Guard troops from LA - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOcF9KamVzUFhpbmhZQjNoSEpmZl9GdjdyMFFUS3Y0VjZZQTA3elBoeVBtVi1DUVdqSXN4LUpubHlsR1hDRlRxUm43RlB1c3o2RFlkTFlyb1p5SU9LVDBiUnBDQ1hTdk1PdWFCREU3bW1aZkpZUmM2RTRWMnhyczhQLTAtcWs2YTlLOUE?oc=5) |
 | US President Donald Trump's administration deports five migrants to Eswatini - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE8wb2FtQkdyOEtDUDlpb3RuTTQ4UEtPOHI2d0tIMWtlRjJtN0VjVE01QlZETnBOdFN0RUZHdWVud2FsRWR4clFhZzZReHhndW50YUdaZkNTTXhhUdIBX0FVX3lxTFBPTktJNHFBYmJKNUJjeEw0Y2tjTzVtS2NHUk82T3BqRHBtYVF0LWFoblFQaWJDMHRlbUhHTEdEQ3c5aVA1QXN1QnJiNFAxV1dteW9qWUxVNHJFSWJKWnJ3?oc=5) |
-| Democrats seize on Epstein files as a campaign issue and a chance to rile Trump’s base - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBqNTV5VEJiQXcxMDZzN0J2R0ZrbkVlYlBvbW51OE1ZbjVMOHN4NWE5RlRrSzBtYjZacGVYRVRWQy1LdEEtdTZfRWxIejYzeU1tcEcwT0hTOXRxZ2dBZUVWbmk2d2pNN25RVHROVGo2UjM1Q0luRFhqX9IBfkFVX3lxTE9EZEw1MC1jSzBwTXJ4YUIxMG03WVJxNlJzcEhyVDFwbGVnc0d5MzBnTzV0MjVnOWJNd0F3bm5XTGZ4MUxUTV8tVnk4QWU0MUhPVWZrX0V2cDA0b3RxeUtLVVpVeDFyY00zU29Kc2NSY0hndmhGLVlpQ2J0QTRlUQ?oc=5) |
+| 'The powerful protecting the powerful': Democrats see an opening on Epstein - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPSnBpQlFSejJCN2gxUF9CUmlwbmdZX2xjMzdOQjFPQy1zY3FGT0NnOGY4SjN6TkQ1TVdNTDVNaklhSDhWUmRtMjAtN1NvVlRhbXFOZ2JBZVFxd0hmYldUOXVpMG8xencyZGY5ZkZDVmRTT2IwQmZyZWR5dUZzcXRCNlpjODZOZkJFOTNZT0lfbDdfRF9YR2NpNHhhWDN5dw?oc=5) |
 | Adelita Grijalva defeats Deja Foxx in Arizona primary: 3 takeaways - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPXzJnaHo4eGE3eGRUUFdxMmpabHlpQTFfcGFoWVlhWXVrQVVsdzU2YTJyWEtGSHkxTXRmTWFQTi1MM3Vjdy1QLURRZnhxOFRTNVQ2dXJ3azM2dUY0WjcybHVhS2hfMnhCMS1rTkZfR2pYdWszYV9WUjhyWmdCWDYzdnBRNEVRNnFoRWk4aXVQalBwQWJmYUE?oc=5) |
+| Trump says Zelenskiy should not target Moscow - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQNHE0LVhBRkgxNjZlMDZKWWl0LWlHZS14a0tpUXU0TWFReDhIa1FKY1J0VWFlTXpuUzFfUTFrQVQ1UzVvbUVVRDh4ck14bFRfT2hRcHJnTm41bGpYSTdZbjBfSml2empiNDloZC1YTFN5TzFQMDRwTTh1R0ltUHNnTUYyT3VNeXN6cmIxQ0d6WXNrb0JneXhqcDZR?oc=5) |
 | Trump tells Texas Republicans to redraw the state congressional map to help keep House majority - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPZDhaU2NHX09JQlZTQjc4dC1PVXNMRnRkMDFJanZqVEctc2dabW91UFVfbEF3clJkZ1Y3QTRVQndXQUc2Nk1tZUN5TTF1bnFfY090UGV4eFQ2MTB6eDg2U2ZoNEF1Q3lXRGpEUnpSZUNQSFN4MjNQbE81R0h0VHh4WEtMTGRwcndNeEpxTkFlQmdNQnk5TWd3Wkl4M3JQSHlBSTB0ckN5VkxGVHRyazVXbHRB?oc=5) |
 | Susan Collins finally got her dream job. Fellow Republicans are making it a nightmare. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNTVhlZmNQSmFJdWMtRzFadUY1eWxfQWFDTmZmRVk4UFYydWFYVERIWDdocFhuZE1odEhPZXBlU21wd3Vsc1FDOEhDbHJTd0JRSFNBNm5xR0wzeTRDZlVhS3E5NFBQREtsYzdpcGx2V0RvcUh1RHg5ZFpRajJmQkowQ0t0YUpLUDBWM3BsdzNjSWdMUVE?oc=5) |
-| Mamdani Says He Will ‘Discourage’ the Term ‘Globalize the Intifada’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQNmExS0JYUFA3V0JOdFpHM2F4UDRyaWtyUkd3UUw2QVlBSkhOYll3d2M4dTNYcDFnMHh1bUJydGJwakNrTDNhcWxfVXJnT0dWUHYySzAwcjJNckpCQldzR195MWNHVmdKbTE4QnoxN21NQlZuaE1mTzU5MEYyMlhjaWl4eW9NTEkxMjl4Zm5JVFZ4R1dXVW1N?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
