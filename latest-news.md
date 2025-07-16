@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月16日 07:53:40（北京时间）**
+🕒 更新时间：**2025年07月16日 08:01:05（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Schiff calls Trump's escalating attacks political retribution to distract from Epstein files - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOMW9HZHpacmhxTGU2a1pTUzVaUjdCNG5TTjEtblNlaWV1OW1DZ3c1OU9Ma2VjRUt3QVBiZ3Z1MWNobWpyakVyV3lVOWdFYmxocmdoZ2dVVnBpS2gwckZIT3VhRkpxT2VuWE41ZmdQc1dabTlPT2Y2QzB5Vjl1UERWUXdWZHhKQjdxeFNCTw?oc=5) |
 | Federal indictment reveals new details about the case against man accused in killing of former Minnesota House speaker - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE05T0diUGwxNzRUT3Nwa0JBaU1sTVFKNzhYZUxNNjAzY2FvNjFYcnpQM3dDeDBsekhmYlplNlRVUHZ3VXhiaFhMaWJmckFHaTdtRDFqQk1sdG4xdmxMTTA0bjh6OFd6Zml5SUxEWGt6Z0tOMEVsYjdrRkxXR1PSAYIBQVVfeXFMTVNuRGlXQlNaZVRPdjJ1d0dXRkp5ZGtpTy0zalRiRjRaM2dZX1hiUldHN3ZhNGtabkZtQU5TamtSOS1hUmFZU2JGZmEtMW9EMElVR1JCT2xFX3ZpUnoyZzZqSVY3SDhDcjU2Q3NiVjJOandBZ0VvVkhQS09TSmhkck1CZw?oc=5) |
 | Georgetown University leader and educators grilled about antisemitism on campuses - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPdkVLTlJmS1ZfOGVYQzZWT2VvLXlUeENISGF1ZU5YSU9YY3N5MjlxRW1FZjJ1Rmd6ZTROU2xhVFZ1bGluVE1yY3Q4RmZYc2hJNTFuMHcweUgyenZpY0hUX0FRZElLNFkzQ2pEbzN6N29aR3pBaUZGTnItMkVEamd4UVRqY0FGaGNGUDBtdGRXeVRtYjRzQ2pwT2FaMlh4YVZESXhVNWtvcTlKaGhaN2xGTzdkTFZZVTA?oc=5) |
-| Trump tells Texas Republicans to redraw the state congressional map to help keep House majority - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPZDhaU2NHX09JQlZTQjc4dC1PVXNMRnRkMDFJanZqVEctc2dabW91UFVfbEF3clJkZ1Y3QTRVQndXQUc2Nk1tZUN5TTF1bnFfY090UGV4eFQ2MTB6eDg2U2ZoNEF1Q3lXRGpEUnpSZUNQSFN4MjNQbE81R0h0VHh4WEtMTGRwcndNeEpxTkFlQmdNQnk5TWd3Wkl4M3JQSHlBSTB0ckN5VkxGVHRyazVXbHRB?oc=5) |
-| John MacArthur, Fiery Preacher and Culture Warrior, Dies at 86 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9HM1JFbWhyaEpNeTJQQWZ5SFI4RXcxMVR4ZkJKX05sLWxqbEQ1UHZPZGN6b0JqUlEzcVhyZnp1N2xrN1g4MXY3cVhTM3FrZFdIQ3pYaGpCdTF3ZnQwd183MTgtUUFHUjM3ZWZ6WG16dw?oc=5) |
+| Influential evangelical preacher John MacArthur dies at 86 - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNdHNhYmRjWDNCb3pZU0FFVTZmZ0htWW9WRDRaamI0MXVxaXhIbng2VFN0VDU5cDk0ZXhXdlpHVUpDR1N1UTd1NHdiTXV4azFlLWUtSU1hcnloa1phbElPWXZlV1hHUXQwTlY0UzJ6T2dEWmNnZlROd3lVdXlWYURVLU1NSVM0WktFSklzTEdSYmxDcDFjWDA3TnlRYU9DR1FrVmFUbER5dVQ?oc=5) |
+| Supreme Court Faces Heat After Unexplained Rulings for Trump - Bloomberg Law News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOMk04SWdRdzZuYldfWU5FWTVRU0Voa0J0MlpWVFpwMENFRkRqWktCSVpkUlB0anF4NkVrTW1WREhzU1M4ckxaa2NxU2JmZjE0X3FDRWM1MmNpMlZpMTc4UVJCTloyQjhUVzVxVUstbWwxS0hHYjVCUFlqdmRJa2NDbW5IbnlhVWlDdFJNX1pHeEFOLUtNWVBLcHZMamhGdHJUalFhWA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
