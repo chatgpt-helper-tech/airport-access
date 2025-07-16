@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月16日 17:53:51（北京时间）**
+🕒 更新时间：**2025年07月16日 18:00:42（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Adelita Grijalva defeats Deja Foxx in Arizona primary: 3 takeaways - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPXzJnaHo4eGE3eGRUUFdxMmpabHlpQTFfcGFoWVlhWXVrQVVsdzU2YTJyWEtGSHkxTXRmTWFQTi1MM3Vjdy1QLURRZnhxOFRTNVQ2dXJ3azM2dUY0WjcybHVhS2hfMnhCMS1rTkZfR2pYdWszYV9WUjhyWmdCWDYzdnBRNEVRNnFoRWk4aXVQalBwQWJmYUE?oc=5) |
 | Trump tells Texas Republicans to redraw the state congressional map to help keep House majority - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPZDhaU2NHX09JQlZTQjc4dC1PVXNMRnRkMDFJanZqVEctc2dabW91UFVfbEF3clJkZ1Y3QTRVQndXQUc2Nk1tZUN5TTF1bnFfY090UGV4eFQ2MTB6eDg2U2ZoNEF1Q3lXRGpEUnpSZUNQSFN4MjNQbE81R0h0VHh4WEtMTGRwcndNeEpxTkFlQmdNQnk5TWd3Wkl4M3JQSHlBSTB0ckN5VkxGVHRyazVXbHRB?oc=5) |
 | Feds: Vance Boelter acted alone in lawmaker attacks, also targeted Senator's daughter - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNN1J0ZlJnN215cnBzTFBGZlNyVTAxZG5tM2tQNkdRblcwQnJRb2ctY2dMNnpXXzVhVkxuUUZEQ1QtcFJCRVBEOGNDeGRndEE2ZWFxdVpWQ0JFU3pVVkRYMlJQX1FkV3FHRXNoRDIzdlBGNHNMTllkT3pqSDN5Y1E0Y1MzcmJTa2hjM1BVRHdsVVBnb1JOSFZVNkVDSGozZkdi?oc=5) |
-| Supreme Court allows Trump to continue effort to gut Education Department - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQQmtyZHZjYTh4Q3lGaUZ0WGdxektmQ0RoTHpjUFJKOV80UU9XaE1pZm4wMGUzLS13MFN6OE5ZQU9hVFQ5Q1BGQ19ocGt5Z3JDX0h1NWNtNzV6R2VGazlKWlhwU0RCMTlsZlNEX3VVUndqa3IzWmFYOEtyUDhfSzRxbEttdTZZX2twSVBxdWExNnp4aDBxZlZwN1FEQ3kxeWlCVWxsOFFMLTVFYmPSAbABQVVfeXFMT0hzekdBSDVTSlB3dzZqaVRsWXlvZWVRaXE0ZXNvZ0VNaFQtb1JMbjQtZmJicWQzMEY0MDE5NGNnd1J3Q3NZMGNyT0h1eTFhamhjUDJyMDR4aUFIeFBtOXZES2I0UVF0am1aUmw5MVdjc2pOanBBZHdWMWpSdmpTSFpsVk8xVDRySlN5X2pmN2laWHNOcGVwUk5SUEdUR2NlUnhjcVlVWC01Tk5UemZneU0?oc=5) |
+| Susan Collins finally got her dream job. Fellow Republicans are making it a nightmare. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNTVhlZmNQSmFJdWMtRzFadUY1eWxfQWFDTmZmRVk4UFYydWFYVERIWDdocFhuZE1odEhPZXBlU21wd3Vsc1FDOEhDbHJTd0JRSFNBNm5xR0wzeTRDZlVhS3E5NFBQREtsYzdpcGx2V0RvcUh1RHg5ZFpRajJmQkowQ0t0YUpLUDBWM3BsdzNjSWdMUVE?oc=5) |
 | US National Guard unit was 'extensively' hacked by Salt Typhoon in 2024, memo says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPN24yQ0IyRThUV2lzUDIzZVI4ODIxZXpQUS1yZE8zS3IzQkJvdGxBVmw4STgyM2tCeUhEaHpnYlV2dm1ObkJBMkF4QmtrRnYtSEJwRmVkaUpDemN0VWJ2a1Q3X1BqMWxSSjRXc250QUFRcDFnQnJRVldqZVd3OWkxcV9WcVlxZDR5TlA5VTg2b0VlNVdpU0ZCMkU3c18xWDM1Q29jdnpQelNWOU95dWNnTmFtZzg5QlZKQ0FET3Fn?oc=5) |
 
 ---
