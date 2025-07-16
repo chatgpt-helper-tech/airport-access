@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月16日 10:39:53（北京时间）**
+🕒 更新时间：**2025年07月16日 10:53:26（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Senate Republicans shrink Trump's spending cut package ahead of a key vote - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPckZnVlY0eV9YS0RqSHVkT0FkcW9Jdjl0MFMxbWR4TXhxZjZfU3NYcGpQSS1HQ19TR2huSDRHX3FRRE5hVnNoeEFBeld5VUc2b3lQdzlGQXVsNWw0d0lNd2N4Z18zb1BYOGRJTl9WeDBjc1QwdHdNcGlvdkZIT1NYRFh0Ni1aYWRoZzllRm1TVUcyQk1ib1dndk1IZ3g4ajZndTNfZVl6MlQyT2FScDRuNXNIM09pV3NiQTh4ZFBR0gFWQVVfeXFMTUJLT2l1ZUR6TTNULUljcGR0V0FtTVRoNFlwWF9adTh0Vi1lYXZscVdiS1VuVmkzYlpFdGZVT3FpS2FTRWVEUG5yS1I0cnZaVllvbV9vd2c?oc=5) |
+| Senate Republicans narrowly advance Trump's $9 billion spending cut package - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPckZnVlY0eV9YS0RqSHVkT0FkcW9Jdjl0MFMxbWR4TXhxZjZfU3NYcGpQSS1HQ19TR2huSDRHX3FRRE5hVnNoeEFBeld5VUc2b3lQdzlGQXVsNWw0d0lNd2N4Z18zb1BYOGRJTl9WeDBjc1QwdHdNcGlvdkZIT1NYRFh0Ni1aYWRoZzllRm1TVUcyQk1ib1dndk1IZ3g4ajZndTNfZVl6MlQyT2FScDRuNXNIM09pV3NiQTh4ZFBR0gFWQVVfeXFMTUJLT2l1ZUR6TTNULUljcGR0V0FtTVRoNFlwWF9adTh0Vi1lYXZscVdiS1VuVmkzYlpFdGZVT3FpS2FTRWVEUG5yS1I0cnZaVllvbV9vd2c?oc=5) |
 | Trump says Bondi should release 'whatever she thinks is credible' on Epstein - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPbnZsQTloR1hndUdKY0lZQ182aHdSaDNYQVBNOE0zYnp5ZnJDdWZjeUtrbTdjeDNoQjJ1Q1JHejIteWpCX1JaZml2OXgySEFfOWZZbmlWZUFucmZCSXVHUnYzRk5LTzVtU3U2a0E2M3EyN3VoOVI3dUljMmw5MkhkRlZ4dEtDd0luendueExjR3g0Y2V4NUtfVnhB0gGfAUFVX3lxTE9uUHp2RTJGUlpkdTRON2hmbzNNWFVlNDdrVmF1S0ZwRTVBWlUtYWVaSHlUaVNFUUJwbXA0elBIbEZBVG52UWJzSlRIODZXbENVMHBwdWJ1Zm9hV0xRZ2NiNmRYWGhUelN2SnRVeTB5Ykx4SFlxV21obXo4blFRbW1RMUJ0NzNnM2J5Rzk1ektqVDV3eDZJaThicDJURmJobw?oc=5) |
 | Trump Releases About Half of the National Guard Troops in Los Angeles - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNVU5MTTg5SDNleDg3S3JtV1pEUTJsek4wSy03ZHJUYURVNWxzNDZUVjJyQlBJZ1NaS0JnSkRRSEc3TFJpRVpGV3ZMMXRGVHk0N2wtRm1ub0JiWWlhakJmQnAwT3dVTldVc0hnX0VVdjZ0WHdzdUQtMWJzd3lGY1JsTw?oc=5) |
 | Ukrainians unimpressed by Trump's 50-day ultimatum to Putin - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBCbV9vM2p5RUdtNXB4RHkxY09IVlM2TFRZcjc2bFFXcE9FMk41cmRnYTA3SXB3YVJDa3R3cnItY1pzRm1OTklQTEY3ek43V2RjY3lDZmRRU0dXUdIBX0FVX3lxTE9WRkt5LUp4SUNNZnVvUTNzQnFUUzVTMjV5dHhZb2tOZ1BKZG9kTDhuRFk5YTYxV2sxTXd2VXdyeXRISlRDVVNSQ0tsVlpzb3VJa3dwRnN2T183R3A5QVo4?oc=5) |
