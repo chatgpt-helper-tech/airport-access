@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月17日 03:27:36（北京时间）**
+🕒 更新时间：**2025年07月17日 03:40:09（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Influencer Emilie Kiser's husband could face felony child abuse charge in drowning death of son - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNNmpLUHVmYVNxQk52aDZSZXRDVW41U2t5MktLdVA3bk90LW5zdmZqVmFueGZBUjkzTUZZNW05dkQ1SjN5SklFTFBndHFZZ3I5bmRyZkR2OTltQ0RCc0h5U0dZV0FvZFl2N0pMNkQyNnlkN2s0LVFfeUFyZ3hOLVk5YlFHdmk4MUg3c1M3QkdpNXp0RjN2NmVNX01jeXE2cW0tZGg3NjRwajY3UjAtNGRXOTVqOGxCZF9jdFHSAVZBVV95cUxQWWpGNHlheXFvbEtJNzA5cGRGLUpFdG5BX0NaVHdYbmc5ZlM3eDBwMXBHNjJDYnRwdGdoaThBazIyTGhpNUhNMnZBOVg5Z09TaFFCVDUwQQ?oc=5) |
 | For Trump, Domestic Adversaries Are Not Just Wrong, They Are ‘Evil’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQcXdibUw4TmQyc1Q0MUl0Yzc3OGFlcFNMOUc3NEV5bUphcV9XdV9sWGNVMnFqbVB2dW5xYnppWXFxaGdBZkZxdE94cTZtTDIyb1ByMGRiUUZkZjhhX2I0ekdqWjMzd3dkNm92cE9LeWR6bjkxTk9ta0ljUFJSVDFNeXRDSlNFMGs?oc=5) |
 | Ex-Commissioner Sues, Saying Adams Ran N.Y.P.D. as a Criminal Enterprise - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQejJaYW1NVVJTdkFPLUo1WTlLOHdJa3dvcTlHMHJocU1XeV80ZGxxQmhDbl9Zd2FLRWZsVkp6WDh5NVRKZXFzOXh1WmdrcFJoMmI4Q1BoSVVqQ0ZFNFVhMkF1Mng2Z19KY1I2OGRuM09ja2o3WVB0UHhGWl9Tc0J3NDlyZmtqY3hzSkJnSA?oc=5) |
-| Louisiana police chiefs among those arrested and accused in a bribery scheme to help foreign nationals get visas - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQOG9XSmNYazdTUVpMaVkzb09MN0ZKNUhhOFJrMzZLbnoxcUNjOHQ2N2RKeVB2R1BXVVBfUEUzQ3BnQVZZSUJCMzdKdk0wdWwzalV2SG5MbjE2cGV0SkJWc25rTXM1SVMwVVROQXQ2T096dUJvU1ZsR3libTc1UUc4QUwtaFdjdGRL0gGOAUFVX3lxTFAyMGtpR1VhRnJ1SGl1RV9XMU1WUDBHLWdXX3F6UjVlcHJhaUpDcWVYQUhzN0EwRlZKN2JnMWxpRDFfRUJFVFJxUHFIWW9iMXZ4a1p1RVdwQnV5bzJ0ZXk0TFI5THdvdlVxc3FpeXQxUzRxVElWV2YzbUllR0k3d0VwWE82WlN4R3JHWk90UXc?oc=5) |
 | Adelita Grijalva defeats Deja Foxx in Arizona primary: 3 takeaways - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPXzJnaHo4eGE3eGRUUFdxMmpabHlpQTFfcGFoWVlhWXVrQVVsdzU2YTJyWEtGSHkxTXRmTWFQTi1MM3Vjdy1QLURRZnhxOFRTNVQ2dXJ3azM2dUY0WjcybHVhS2hfMnhCMS1rTkZfR2pYdWszYV9WUjhyWmdCWDYzdnBRNEVRNnFoRWk4aXVQalBwQWJmYUE?oc=5) |
+| Louisiana police chiefs among those arrested and accused in a bribery scheme to help foreign nationals get visas - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQOG9XSmNYazdTUVpMaVkzb09MN0ZKNUhhOFJrMzZLbnoxcUNjOHQ2N2RKeVB2R1BXVVBfUEUzQ3BnQVZZSUJCMzdKdk0wdWwzalV2SG5MbjE2cGV0SkJWc25rTXM1SVMwVVROQXQ2T096dUJvU1ZsR3libTc1UUc4QUwtaFdjdGRL0gGOAUFVX3lxTFAyMGtpR1VhRnJ1SGl1RV9XMU1WUDBHLWdXX3F6UjVlcHJhaUpDcWVYQUhzN0EwRlZKN2JnMWxpRDFfRUJFVFJxUHFIWW9iMXZ4a1p1RVdwQnV5bzJ0ZXk0TFI5THdvdlVxc3FpeXQxUzRxVElWV2YzbUllR0k3d0VwWE82WlN4R3JHWk90UXc?oc=5) |
 | S&P 500 rises in volatile session as Trump denies he is firing Powell: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFB3SEhTdUNtSjlqVi1tRXBFakRMYm45R21WWXhfRWtQcEtEbEZjU21uWFhQWWFXVUJ1eVhTbUhwUmZDY1kzY2RBT2Q3Rm1TLWlhR2IzNVlSTVU1RERRYm53Q3hPbWZHSkQxdk90QkNQcXdpeWtpTnfSAXtBVV95cUxOaVBBWkhVbWEzdkdNazZRblZTdGZBQTNXSnhBR1h5RFdZWENKMGJjWndwT000VHMyZjRITFhtb3NnUWxJZzFTQ0lGVEZQbmh5ak9Ea0dOeHJsbFUyQXlhQ2NKdVhIWWZKU0hJRHdUcW43QzFmZlJIdEZhVnM?oc=5) |
 
 ---
