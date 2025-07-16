@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月16日 19:26:06（北京时间）**
+🕒 更新时间：**2025年07月16日 19:39:37（北京时间）**
 
 ---
 
@@ -12,10 +12,10 @@
 | Defence secretary 'unable to say' if anyone killed after Afghan data breach | [阅读全文](https://www.bbc.com/news/articles/c1k8yvj89kyo) |
 | Co-op boss confirms all 6.5 million members had data stolen in cyber-attack | [阅读全文](https://www.bbc.com/news/articles/cql0ple066po) |
 | Physician associates need new job title, says review | [阅读全文](https://www.bbc.com/news/articles/c70r7d7z0wro) |
+| Emma Watson banned from driving for six months after speeding | [阅读全文](https://www.bbc.com/news/articles/cly10x7pjplo) |
+| Trans changing room row nurse cleared of misconduct as tribunal resumes | [阅读全文](https://www.bbc.com/news/articles/cm2mp5jley8o) |
 | Southern Water issues hosepipe ban for 1m people | [阅读全文](https://www.bbc.com/news/articles/ckglpvzygvzo) |
 | Trump says US attorney general should release any 'credible' information on Epstein | [阅读全文](https://www.bbc.com/news/articles/ckgl4dl334go) |
-| Trans changing room row nurse cleared of misconduct as tribunal resumes | [阅读全文](https://www.bbc.com/news/articles/cm2mp5jley8o) |
-| Emma Watson banned from driving for six months after speeding | [阅读全文](https://www.bbc.com/news/articles/cly10x7pjplo) |
 | Trip drink ad banned over claim it makes you calm | [阅读全文](https://www.bbc.com/news/articles/c14e2d2ednpo) |
 | Kew Gardens' Palm House to close for five years for net zero makeover | [阅读全文](https://www.bbc.com/news/articles/cpwq08rxxklo) |
 
@@ -32,7 +32,7 @@
 | Senate GOP needs Vance on recissions vote - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNUkpNUWhJXzFYaklsaVZuMUp4SnRvZlZXRkVYTWJnX3lWSFFVRVhFejlvYm1fUU5tTkVuR2hsU0lDUTRMazFBOEQ1clB6R2FHb0tJTi1PVUVqTGx0Ujc0UVVyV2dydngwRVl6Rm9fX0EyeUV4RVJWaWhBOU1SZmExQXljUkVXakhxemE3ZnM1eW9LTEI4T09LcUVnOG5MdWNnYTR4dTNDeTV3dWI4?oc=5) |
 | Feds: Vance Boelter acted alone in lawmaker attacks, also targeted Senator's daughter - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNN1J0ZlJnN215cnBzTFBGZlNyVTAxZG5tM2tQNkdRblcwQnJRb2ctY2dMNnpXXzVhVkxuUUZEQ1QtcFJCRVBEOGNDeGRndEE2ZWFxdVpWQ0JFU3pVVkRYMlJQX1FkV3FHRXNoRDIzdlBGNHNMTllkT3pqSDN5Y1E0Y1MzcmJTa2hjM1BVRHdsVVBnb1JOSFZVNkVDSGozZkdi?oc=5) |
 | Trump says Zelenskiy should not target Moscow - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQNHE0LVhBRkgxNjZlMDZKWWl0LWlHZS14a0tpUXU0TWFReDhIa1FKY1J0VWFlTXpuUzFfUTFrQVQ1UzVvbUVVRDh4ck14bFRfT2hRcHJnTm41bGpYSTdZbjBfSml2empiNDloZC1YTFN5TzFQMDRwTTh1R0ltUHNnTUYyT3VNeXN6cmIxQ0d6WXNrb0JneXhqcDZR?oc=5) |
-| Speculation Swirls After Deadly Fire at Massachusetts Assisted Living Facility - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPQmxqaTRmM3hMTnFKUDg0aU1fTWJjdUMzUlBKUTFyNS02NFRaYmZoZWxBa0ZQeTZEaTBoYkFqQjBBV1ZKRWhNT3NydUgzRUYxQ05ONDN3akItYkI3TXFCS0gxWEpDaHRVRWM1TFI1T0NMT1RyMWc2TjZIaEVtak1YVVJoaDRnaHF0R1VoSFFWOA?oc=5) |
+| Trump tells Texas Republicans to redraw the state congressional map to help keep House majority - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPZDhaU2NHX09JQlZTQjc4dC1PVXNMRnRkMDFJanZqVEctc2dabW91UFVfbEF3clJkZ1Y3QTRVQndXQUc2Nk1tZUN5TTF1bnFfY090UGV4eFQ2MTB6eDg2U2ZoNEF1Q3lXRGpEUnpSZUNQSFN4MjNQbE81R0h0VHh4WEtMTGRwcndNeEpxTkFlQmdNQnk5TWd3Wkl4M3JQSHlBSTB0ckN5VkxGVHRyazVXbHRB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
