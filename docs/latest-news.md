@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月17日 15:39:37（北京时间）**
+🕒 更新时间：**2025年07月17日 15:53:16（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Army veteran and US citizen arrested in California immigration raid warns it could happen to anyone - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNYXNrcDZveFhfR1g4MVFiMFotSHg5MWhneUR2WEhpUmFnMVhvOE9ybElhQjcwc0J5czBFNC1yS0ljR21oSkVIbnQxbUVvUzdieTRTUS13S1lIMTBDNDlHUWRrbFUzaURndmE2SDhBM2lIbEE0ckwtSEVacERYd2xGaHhFZXdPMlB3OHFWTWZIOElFcXFhLU9Z?oc=5) |
 | An Alaska tsunami warning had residents scrambling for high ground after 7.3 magnitude earthquake - KING5.com | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxPTFo2R041SVYzR2NsbG92amRHTTRHdnRLVUQtb2FUVVBHeHRXY0plQUFIQzRHQnJnaFdSLXBhdmdCS2doaUJwakZMN1RZcmRYenRpOF8xNm9CRTgzNndael9WV0lOcHM5Tm91Z3BybUpTMlE2RHprRUozdG1BMkdOMHBTazMyQzFfNXk3ZENwUHVwRlNVTTh5N0o4RHdKQmRNZW1OaTZQd2JaZ1RzMkY0eld6S1d1UUFKRmxDU2VZekdYc1FsbXNWSF96d2lfazA?oc=5) |
 | The Grand Canyon Fire Has North Rim Residents Wary of the Future - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNXzRaR3B6WHZ3LWlZTGFSdHlfd0NSckp2WUZ6a0FrNkl3RHRkOEFkVWdycENaSEl2aF91b29YT2RLM2phV1NxdlU1Y2x6LWY5YTRzRnNkSF9rTlBaV3BjSEtrempGQVYxQUZYYjlxUGVEZjFQeTk5cWk1N2IwV09BX0lmemFXdnd4LUFHZG9GS1k?oc=5) |
-| Camp Mystic leader may not have seen urgent alert before Texas flood - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNbWJOLVNNTkQ1cjBDbWRhcWxTMlFERGdTc0d3bmJJWkF3T09KeVNQNFQzMTVhZk9KaDlQaWtsenRodDBxQ2E1Z0NTanFHM3p1MmNTcTRzVWJNUzlLeEJYNTQ3dE1CbnZKbWs0RXc2bWFDVkJ3akREeDctdEJDcW5raXFYQ2llQXQwN0ZwZ05pZUtWN1FmaHZQVk00WDdENU03dElsaVVWb1hHOFZfMU9GdEZTY2ZJdnJLOFE?oc=5) |
 | Hurricane center tracks system over Florida. More rain expected in Tampa Bay. - Tampa Bay Times | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOaUNfanBkaGRnTmlCWDU4V19pX1pncC1ZNmhIR0M3T2hCYmh5WUZ3XzE0c281eGxOUTRTRHBOeUVoMFBmRHBFbThxT21jMGpQc1ViejJuOEVmLWF3cS1MT0FISXJCa1lsTmdqaURrQVpFcTNPY1g3Y0VhZlJ0RVJRWGZZaHBGV2FXZEhqT3ZQVGo4d1RqdnhNajJYcnhNZEN2OE03S0FXT0RveXcx?oc=5) |
+| ‘Crazy hill to die on’: Newsom jolts California with bid to throw out House maps - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQZEVaeHJvX21BZG41WDd1ajZJQ3lKTVBIMWN6dDRzT0lYeG5maVZYYVU2TEhDeldKT1ZvRHhlY1NEOWFKbmQyUmFwQzJJZEVQQ1hRNjZrTXk4X1ZYMElLakdxWFVuMDZHRjEwU0JVTVc2TUUxT1U5dGJESDF6d2ptam5yNk9sX2E1U2lWbDJfVjQzOUw4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
