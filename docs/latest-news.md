@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月17日 09:14:19（北京时间）**
+🕒 更新时间：**2025年07月17日 09:26:53（北京时间）**
 
 ---
 
@@ -11,11 +11,11 @@
 | Babies made using three people's DNA are born free of hereditary disease | [阅读全文](https://www.bbc.com/news/articles/cn8179z199vo) |
 | Starmer suspends four MPs after welfare cuts rebellion | [阅读全文](https://www.bbc.com/news/articles/c5y7zqdwzqyo) |
 | MoD offered to speed up resettlement case of Afghan who posted data breach names on Facebook | [阅读全文](https://www.bbc.com/news/articles/c0rvyqd7wq2o) |
-| US says 'specific steps' agreed to end Syria violence after Israeli strikes hit Damascus | [阅读全文](https://www.bbc.com/news/articles/cp90l77187zo) |
 | New photo to mark Queen Camilla's 78th birthday | [阅读全文](https://www.bbc.com/news/articles/cdezjjkzy52o) |
-| Co-op boss confirms all 6.5 million members had data stolen in cyber-attack | [阅读全文](https://www.bbc.com/news/articles/cql0ple066po) |
+| US says 'specific steps' agreed to end Syria violence after Israeli strikes hit Damascus | [阅读全文](https://www.bbc.com/news/articles/cp90l77187zo) |
+| Harry in Diana's footsteps with landmine walk in Angola | [阅读全文](https://www.bbc.com/news/articles/crenllxwj8wo) |
 | Watch: 'She took me back' - Obamas joke about divorce rumours | [阅读全文](https://www.bbc.com/news/videos/cx2041rp7nro) |
-| At least 20 killed in crush at US-backed GHF aid site in Gaza | [阅读全文](https://www.bbc.com/news/articles/cg4rwrkdlzxo) |
+| Co-op boss confirms all 6.5 million members had data stolen in cyber-attack | [阅读全文](https://www.bbc.com/news/articles/cql0ple066po) |
 | 'It's just better!' Trump says Coca-Cola to change key US ingredient | [阅读全文](https://www.bbc.com/news/articles/czxe59zl8qzo) |
 | Germany to tighten people-smuggling law as chancellor visits UK | [阅读全文](https://www.bbc.com/news/articles/cq6m10g7e35o) |
 
