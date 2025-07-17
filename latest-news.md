@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月17日 19:27:41（北京时间）**
+🕒 更新时间：**2025年07月17日 19:39:48（北京时间）**
 
 ---
 
@@ -13,10 +13,10 @@
 | Labour taking Abbott's renewed comments about racism 'incredibly seriously' | [阅读全文](https://www.bbc.com/news/articles/cwye24vjnn8o) |
 | Suspension from Labour doesn't mean I'm silenced, MP says | [阅读全文](https://www.bbc.com/news/articles/cdx57w45wyno) |
 | Tomorrowland organisers say festival will go ahead after fire destroys main stage | [阅读全文](https://www.bbc.com/news/articles/cpwqewyrw57o) |
-| UK jobs market weakens as unemployment rate rises | [阅读全文](https://www.bbc.com/news/articles/cg754negn75o) |
-| 60 dead after fire tears through Iraqi shopping centre, officials say | [阅读全文](https://www.bbc.com/news/articles/ceq7d45v5v3o) |
+| Several injured after Gaza church struck, patriarchate says | [阅读全文](https://www.bbc.com/news/articles/c8xvnlpx2dxo) |
+| Ariana Grande says she's not abandoning music for film | [阅读全文](https://www.bbc.com/news/articles/cg7547gn3x5o) |
 | Arsenal sign Liverpool's Olivia Smith in most expensive deal in women's football | [阅读全文](https://www.bbc.com/sport/football/articles/c3r9yz5x3w5o) |
-| New photo to mark Queen Camilla's 78th birthday | [阅读全文](https://www.bbc.com/news/articles/cdezjjkzy52o) |
+| UK jobs market weakens as unemployment rate rises | [阅读全文](https://www.bbc.com/news/articles/cg754negn75o) |
 | Starmer stamps authority with MP suspensions, but risks appearing vindictive | [阅读全文](https://www.bbc.com/news/articles/cedg44wj47go) |
 
 ## 📰 Google News
@@ -26,11 +26,11 @@
 | Senate passes Trump's foreign aid, public broadcasting clawback - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE4tUkx6UjJBbUtySEZPQU5kQ2xrZGYyX2hJQnhublFGN2hvdXRtREs2VWcwWVMxTXN3MnBHQzFKTDN2cnAzcFFVN18tZGJkUWN2ZFh2RWo2Vy1zMHVKZkN1X1BGOGFaZnB1azRBNTF2Ni1mZk5BT3JfU3RKQnpoMFU?oc=5) |
 | Why do Trump's MAGA followers care so much about the Epstein files? - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOelByS1k0Z2pBaEpueDUwNFpCbXJ5VUpEcndFNkRMZEtyVWdlMFJTX0stTDZrTnpTNndEb2ZJN2lSZUpHbDZPWi0zNUhfdDUtTXFFNnpYSDllUGFXSXJiLTBlaGZ0ZEZkWGppUEVXUHhXVlE5OUE3aV9vRzNWeFBEX2JGNFZEN0x5OEdwR3o0ZG8yN1h5aVHSAZsBQVVfeXFMUEhGQkhVbWxieFFJbUxUcWhyS1k5MWpzbW1zaXBXcjFQQVBOOEtBaTZqNndiVXBybUhka1RSTEZtUURNWm92aDJiWUpSemNCYmVJUWt1ZlNrdkl0SDFKV3FMdnZpZUx6QUpqM09YbjBIaFUtVWZrODF0N3VWVTFHTE9vTlY1b2Y4LXZySVp5emIxY0Vac0dGUU45M1E?oc=5) |
 | Trump rescinds $4 billion in US funding for California High-Speed Rail project - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPaWxoYU1zdUdXcXMwUDNXT0N0VXBKcVV2Zkp3UjRMcTdVdV9sSzFhY01FaE1DNlBNdE91VUZnTk1jM2IyT0Z0MUxqVWpYMFJmWG5NdjliS3JQQlM4Rmp2bTFJV3lTS1pBeXRkMVBYWEN0dlBlZ2VvNGVqdHlCeGZvLUF3ZVAwNm11ckRyZk1YcGdMblJCeW5ZSnFncUtfUGJRMDVFeUlQSl8xcXk1Wmp0NUhya0t5NVJreG5ocjZrX3Q?oc=5) |
+| Maurene Comey, Prosecutor of Jeffrey Epstein, Is Fired - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNR29JNjlORlpQc1FMQ1pHZGh5WExJazVFd0VhRTRaOUt2aXBnYUVGa1dlVmRLOXlOUnZSZ3pSQk5VYTdqbHh4VE40ajVNUy1HNURkRXpRcWZJRF8wWnlueWppSHpwZ1EzZjFiZ1JxLTZ4ZFZXb1dYUUhHcTA2Z3JzeW9kZWFyT1dOWXJfQ2VqTnFuTVNJOVlLeTZtOA?oc=5) |
 | Trump’s National Guard Troops Are Questioning Their Mission in L.A. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9fMVYxVHItOVNVckJubmZjckJiNWtHem15TWtTcXBuUU9Sak96VkVBRWMtRjdxcHdLQ0NOanVaY3prT2twbzRCVXA0MkpXUjNIU1FLZkR5M0c4MjBQTmxmdFpGeXlpQUJET3hkMTZtV1J0UHE4ajZIVnVkX2xuSnc?oc=5) |
-| New U.S. assessment finds American strikes destroyed only one of three Iranian nuclear sites - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxNbjJzaExPSFcyeHA3Uk9rQ0VlQXp5VzY5N19kdXNiQ1ZsVXZNNVhKRHJla1V1Z1pjQzZrWE40VkZqSjhxZ3NGSTY2ZjhTMExsTWdrdFpCYU84WTBCTHBNY1dRSm5Ndlc0RHBtN2RXTlRkQy1fQnU2bzNCeHI5bEhEOW9SOEV5UE1sWmxuSlJlcVJNdlk4Y1YtcHZnR0xaYnJtUWh4UFZnalkybXduZ0pKaGtWblRHTDJkSmY1OC1DQktuVFBMR0l6R0JOd2XSAVZBVV95cUxPZFhNYUVpM2Z5RHdZQUxfUkYtRS1KR3ZQMnNRNlhuMkZyQktmeS1iMHRMeng4Z3RmY3hudFlxRkdkc0JnZERlZ1ZvZTQ3ZmR5Vk41VnJpZw?oc=5) |
 | Army veteran and US citizen arrested in California immigration raid warns it could happen to anyone - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNYXNrcDZveFhfR1g4MVFiMFotSHg5MWhneUR2WEhpUmFnMVhvOE9ybElhQjcwc0J5czBFNC1yS0ljR21oSkVIbnQxbUVvUzdieTRTUS13S1lIMTBDNDlHUWRrbFUzaURndmE2SDhBM2lIbEE0ckwtSEVacERYd2xGaHhFZXdPMlB3OHFWTWZIOElFcXFhLU9Z?oc=5) |
-| Maurene Comey, federal prosecutor in Sean 'Diddy' Combs and Ghislaine Maxwell cases, fired: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPdVNqb21fLUV0Z2IxTXZDWWdOeUZ4Wi1kTkZsTXo4X1ZGZGQ1Qkp0SHpidWd2MjNuNk9JblphS1lIZnVvNXR5Vnp0N3RjeUp3eFhqQUo3eUxMaVMtWXl3TUVRVzVCb05xazZ2VWNBcE11MFplaVlLeDhfOWVCMlVTdjdNeENxOTZrazRrMEFWczBaUGdYak1mdFF3VdIBoAFBVV95cUxOenNERXgzU1h0aElheTJDNGdkQ0RYT0FxaThIMm9jc0Qtd2ZZUkZ0XzE5NUgxOVY2ZFdsc2ZZT015aVJEWVZSSXBZUU5oYlNaX3N0NTVCQ1l0Z2hJaVg0S2R1VjJNOUNpZDFzaXo0TjVXeWt3UU9uV2U2TFRoS1F4U3EtZEdKdjRQN1VWdXBzeHFxVjlfOWtSa2hya3Z6RExR?oc=5) |
 | Ex-Justice Dept. Lawyers Urge Senate Not to Confirm Emil Bove as Federal Judge - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQUzdjTVNRSFFWSnBRUHcwYnBMYUlITExKTVNLdjB6NloxS29Canc5Mk56RmtOMFlfT1RfTmZmV3hVODZLSUNoS3lLVVRWbmJPV0JiQk0tVy05cnM0Xy1LUGltMGpUMjFndjBaT1piTnNNWTdqRUhLMHZ3TlRiakotanNBSmNXMGdsR09QYmxwWU0xWTY0bzE2a0JDb0g?oc=5) |
+| New U.S. assessment finds American strikes destroyed only one of three Iranian nuclear sites - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxNbjJzaExPSFcyeHA3Uk9rQ0VlQXp5VzY5N19kdXNiQ1ZsVXZNNVhKRHJla1V1Z1pjQzZrWE40VkZqSjhxZ3NGSTY2ZjhTMExsTWdrdFpCYU84WTBCTHBNY1dRSm5Ndlc0RHBtN2RXTlRkQy1fQnU2bzNCeHI5bEhEOW9SOEV5UE1sWmxuSlJlcVJNdlk4Y1YtcHZnR0xaYnJtUWh4UFZnalkybXduZ0pKaGtWblRHTDJkSmY1OC1DQktuVFBMR0l6R0JOd2XSAVZBVV95cUxPZFhNYUVpM2Z5RHdZQUxfUkYtRS1KR3ZQMnNRNlhuMkZyQktmeS1iMHRMeng4Z3RmY3hudFlxRkdkc0JnZERlZ1ZvZTQ3ZmR5Vk41VnJpZw?oc=5) |
 | The NYPD was run like a ‘criminal enterprise’ under Mayor Eric Adams, lawsuit alleges - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE80Umd3QV9DVTlGSElwemMzdnpobjdBdkstVGZhczdmX0cyN09JVGJEVnRRcmNHbEVEZm8zSnZhOE0xY2V5bXhiVmw1QTgzcVBzdWJxM1BnbVc3dUZDTm1wVTV4ZWFSX0NZQ2FsZG8tMDRWeE0zTVRz0gF8QVVfeXFMTS1uMEFvVGpfQlRqZy0tNHBUcmlEaGlvT2JfQmZ0Zlk2bnJkT0pJUFNVdmQ0YlMzOXRDOWVqMFpvVjJUdnFPVTBxb3BJOTF1TEZpUk1DNnQybFFaNmFCSmplYXFUUGl2bFBIZVFZcDlNRWZteHZENGdJbXFhOQ?oc=5) |
 | Gulf Coast braces for flooding as storm builds into possible tropical depression - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNZUFYNjhrSUVxTllxdXZQQ1VXamNsbWV2X1dmanFPSG9zTURkdTF0cm5RcUpROWlZR053Slg4R2FCSDIwanlKeDZqOGpseFA0UndFS2s2eUN0eW1ZLTNUQXlOei00eXAxSzZMZHFDUGhsTFM3U0k4TjN0bzJmc1c1cG1QdEY?oc=5) |
 
