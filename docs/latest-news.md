@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月18日 00:26:18（北京时间）**
+🕒 更新时间：**2025年07月18日 00:39:21（北京时间）**
 
 ---
 
@@ -10,6 +10,7 @@
 |--------|-------------|
 | Plans for direct train to Berlin in new UK-Germany treaty | [阅读全文](https://www.bbc.com/news/articles/cq6m10g7e35o) |
 | Pope expresses sadness after Israeli strike on Gaza church kills three | [阅读全文](https://www.bbc.com/news/articles/c8xvnlpx2dxo) |
+| 16 and 17-year-olds to be able to vote in next general election | [阅读全文](https://www.bbc.com/news/articles/c628ep4j5kno) |
 | Syria leader vows to protect Druze after sectarian violence prompts Israeli strikes | [阅读全文](https://www.bbc.com/news/articles/cg5z3jqe673o) |
 | Labour taking Abbott's renewed comments about racism 'incredibly seriously' | [阅读全文](https://www.bbc.com/news/articles/cwye24vjnn8o) |
 | Nurse confronted trans doctor in 'unacceptable' manner, tribunal hears | [阅读全文](https://www.bbc.com/news/articles/c4g2xz2wwwwo) |
@@ -17,7 +18,6 @@
 | Meta investors settle $8bn lawsuit with Zuckerberg over Facebook privacy | [阅读全文](https://www.bbc.com/news/articles/cx2jmledvr3o) |
 | Tomorrowland organisers say festival will go ahead after fire destroys main stage | [阅读全文](https://www.bbc.com/news/articles/cpwqewyrw57o) |
 | 'It's just better!' Trump says Coca-Cola to change key US ingredient | [阅读全文](https://www.bbc.com/news/articles/czxe59zl8qzo) |
-| How will votes at 16 and changes to voter ID work? | [阅读全文](https://www.bbc.com/news/articles/cm2lgnze013o) |
 
 ## 📰 Google News
 
