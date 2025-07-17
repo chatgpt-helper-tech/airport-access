@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月17日 15:14:01（北京时间）**
+🕒 更新时间：**2025年07月17日 15:27:16（北京时间）**
 
 ---
 
@@ -10,8 +10,8 @@
 |--------|-------------|
 | Babies made using three people's DNA are born free of hereditary disease | [阅读全文](https://www.bbc.com/news/articles/cn8179z199vo) |
 | Starmer stamps authority with MP suspensions, but risks appearing vindictive | [阅读全文](https://www.bbc.com/news/articles/cedg44wj47go) |
-| Syria president vows to protect Druze after deadly sectarian violence | [阅读全文](https://www.bbc.com/news/articles/cg5z3jqe673o) |
-| UK jobs market cools as unemployment rate rises | [阅读全文](https://www.bbc.com/news/articles/cg754negn75o) |
+| Syria leader vows to protect Druze after sectarian violence prompts Israeli strikes | [阅读全文](https://www.bbc.com/news/articles/cg5z3jqe673o) |
+| UK jobs market weakens as unemployment rate rises | [阅读全文](https://www.bbc.com/news/articles/cg754negn75o) |
 | Busiest UK airports raise kiss-and-fly fees, says RAC | [阅读全文](https://www.bbc.com/news/articles/cwyg0ly2ld8o) |
 | New photo to mark Queen Camilla's 78th birthday | [阅读全文](https://www.bbc.com/news/articles/cdezjjkzy52o) |
 | 'It's just better!' Trump says Coca-Cola to change key US ingredient | [阅读全文](https://www.bbc.com/news/articles/czxe59zl8qzo) |
@@ -32,7 +32,7 @@
 | The NYPD was run like a ‘criminal enterprise’ under Mayor Eric Adams, lawsuit alleges - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE80Umd3QV9DVTlGSElwemMzdnpobjdBdkstVGZhczdmX0cyN09JVGJEVnRRcmNHbEVEZm8zSnZhOE0xY2V5bXhiVmw1QTgzcVBzdWJxM1BnbVc3dUZDTm1wVTV4ZWFSX0NZQ2FsZG8tMDRWeE0zTVRz0gF8QVVfeXFMTS1uMEFvVGpfQlRqZy0tNHBUcmlEaGlvT2JfQmZ0Zlk2bnJkT0pJUFNVdmQ0YlMzOXRDOWVqMFpvVjJUdnFPVTBxb3BJOTF1TEZpUk1DNnQybFFaNmFCSmplYXFUUGl2bFBIZVFZcDlNRWZteHZENGdJbXFhOQ?oc=5) |
 | An Alaska tsunami warning had residents scrambling for high ground after 7.3 magnitude earthquake - KING5.com | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxPTFo2R041SVYzR2NsbG92amRHTTRHdnRLVUQtb2FUVVBHeHRXY0plQUFIQzRHQnJnaFdSLXBhdmdCS2doaUJwakZMN1RZcmRYenRpOF8xNm9CRTgzNndael9WV0lOcHM5Tm91Z3BybUpTMlE2RHprRUozdG1BMkdOMHBTazMyQzFfNXk3ZENwUHVwRlNVTTh5N0o4RHdKQmRNZW1OaTZQd2JaZ1RzMkY0eld6S1d1UUFKRmxDU2VZekdYc1FsbXNWSF96d2lfazA?oc=5) |
 | The Grand Canyon Fire Has North Rim Residents Wary of the Future - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNXzRaR3B6WHZ3LWlZTGFSdHlfd0NSckp2WUZ6a0FrNkl3RHRkOEFkVWdycENaSEl2aF91b29YT2RLM2phV1NxdlU1Y2x6LWY5YTRzRnNkSF9rTlBaV3BjSEtrempGQVYxQUZYYjlxUGVEZjFQeTk5cWk1N2IwV09BX0lmemFXdnd4LUFHZG9GS1k?oc=5) |
-| Camp Mystic leader may not have seen urgent alert before Texas flood - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNbWJOLVNNTkQ1cjBDbWRhcWxTMlFERGdTc0d3bmJJWkF3T09KeVNQNFQzMTVhZk9KaDlQaWtsenRodDBxQ2E1Z0NTanFHM3p1MmNTcTRzVWJNUzlLeEJYNTQ3dE1CbnZKbWs0RXc2bWFDVkJ3akREeDctdEJDcW5raXFYQ2llQXQwN0ZwZ05pZUtWN1FmaHZQVk00WDdENU03dElsaVVWb1hHOFZfMU9GdEZTY2ZJdnJLOFE?oc=5) |
+| Camp Mystic leader may not have seen urgent alert before Texas flood, family spokesman says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPM0tGQVNmcktzNEw5LVJHaTJwTE41cVB3cXUxMzNOaklrX09Dd1BrX0pEcnp2VlI3LTNRa0lQMy1XOExxVFFFeS1PcU93eU9IQ0d5RGZpaGJLYnJhdGVORVRnblJqS1RJdktTS1BNUFFWaW1fal8tdEYybFM2UmFzaW1wVnhQUUlyYXRjc0k3eXZfdmhWS2hEYzdPLVltcV9XYlFpZEdFbHJ4Ukxfc1g1RVJ2TFJ4Zw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
