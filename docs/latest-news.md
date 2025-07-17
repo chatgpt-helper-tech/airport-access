@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月17日 14:53:23（北京时间）**
+🕒 更新时间：**2025年07月17日 15:00:04（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Syrian gov’t forces begin withdrawing from Sweida as Israel vows to protect Druze - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPWEpRRnZqS3hGN1lwLWJNOTFrYTRiYXZ4UUlVcWhpSWlZVVdiZTVMQ01DdTNGQmdYWER2b3NUX21RajgtYVlUNEM3bkZja0F6M21mVEdWVEFZbWtObXdmbWpYZmlNTURjS09BMVQ5NWNLR2RWM3EwY3hHZXNrdmE5bXg4YzFwWHBTY21CaElzTmxhV2o0dHdNeF8zSDFxWEhCOWxTel9GVnFGLUd4cFFrYdIBtgFBVV95cUxPdjg4QWs0bGkxWWFFNzQ5cktjWXdidHoyZDBtVU93RHQ0NmRlUTM0SHQ5STdXQlVkbFJhUElaSFR4VnN4X29ZTmFwZDZRaVNkaG9ick1ZYXRBYllwTEZZX1BpOU9WZnBob0ZzMUotLTN1N0ViQ2ZnU0FhZUp4bElOWDBGN2ZKa01pcklmQUNTRWVTQlRBekxMQUkxemk5UUc5Y21jb1l0blVWaWxpNHhfc2VYNHhNdw?oc=5) |
 | Trump rescinds $4bn in US funding for California high-speed rail project - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQYkY2VUZTWkdwWWdoOFRJb21CQXI3UndrOV8xVHY2a3pScjBZZE43MUlaWWs0SVVQeEJxaEx4WlkzMXRkb3dQa01SdExNTnNPRTk2RG5oa3gxd2ItbWhnYXZXNUMzNWFfMndPREhrZWV1WG43SDJ1bG85VktyeFdRaTZFallWUF9QV0NsZTV3Zlc4YUFHWFNIRkpkd3A?oc=5) |
 | Inside ‘Alligator Alcatraz,’ detainees report relentless mosquitoes, limited water - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOdklSMk9HM2dscnJzU1B0dkpRT3NQUDdBcEJhQUY2M3kzMzBMaHdHMUZzMHNpZmthMjZVVXNxVHV1OHhtT0JYbW82dmJma19mVWZOZF9EUE1OSm52STlsMDVUOVRxLW8yYThJb0syV1FHY3JHS0loTGlNeU1IMTFBX2xqblBiQQ?oc=5) |
+| Louisiana Police Chiefs Accused of Fabricating Robberies in Immigrant Visa Scheme - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQTEJzeVU4azg5anp6S19OU3pGSzNNRDV1UGNod1NHUE9hemNDUjlVWUdzdHIzNkxCZzZ6UjU4TzFNbmdKa3liXzFNXzFpZnlmSTduUXV3aHgxTU5IWVhIeU1GcmtuX0dhUmx3RC1CWkVDUmZGaWVpZEo3SmY5X3ZuNWFzelBnalk?oc=5) |
 | The NYPD was run like a ‘criminal enterprise’ under Mayor Eric Adams, lawsuit alleges - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE80Umd3QV9DVTlGSElwemMzdnpobjdBdkstVGZhczdmX0cyN09JVGJEVnRRcmNHbEVEZm8zSnZhOE0xY2V5bXhiVmw1QTgzcVBzdWJxM1BnbVc3dUZDTm1wVTV4ZWFSX0NZQ2FsZG8tMDRWeE0zTVRz0gF8QVVfeXFMTS1uMEFvVGpfQlRqZy0tNHBUcmlEaGlvT2JfQmZ0Zlk2bnJkT0pJUFNVdmQ0YlMzOXRDOWVqMFpvVjJUdnFPVTBxb3BJOTF1TEZpUk1DNnQybFFaNmFCSmplYXFUUGl2bFBIZVFZcDlNRWZteHZENGdJbXFhOQ?oc=5) |
 | An Alaska tsunami warning had residents scrambling for high ground after 7.3 magnitude earthquake - KING5.com | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxPTFo2R041SVYzR2NsbG92amRHTTRHdnRLVUQtb2FUVVBHeHRXY0plQUFIQzRHQnJnaFdSLXBhdmdCS2doaUJwakZMN1RZcmRYenRpOF8xNm9CRTgzNndael9WV0lOcHM5Tm91Z3BybUpTMlE2RHprRUozdG1BMkdOMHBTazMyQzFfNXk3ZENwUHVwRlNVTTh5N0o4RHdKQmRNZW1OaTZQd2JaZ1RzMkY0eld6S1d1UUFKRmxDU2VZekdYc1FsbXNWSF96d2lfazA?oc=5) |
 | The Grand Canyon Fire Has North Rim Residents Wary of the Future - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNXzRaR3B6WHZ3LWlZTGFSdHlfd0NSckp2WUZ6a0FrNkl3RHRkOEFkVWdycENaSEl2aF91b29YT2RLM2phV1NxdlU1Y2x6LWY5YTRzRnNkSF9rTlBaV3BjSEtrempGQVYxQUZYYjlxUGVEZjFQeTk5cWk1N2IwV09BX0lmemFXdnd4LUFHZG9GS1k?oc=5) |
-| Camp Mystic leader may not have seen urgent alert before Texas flood - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNbWJOLVNNTkQ1cjBDbWRhcWxTMlFERGdTc0d3bmJJWkF3T09KeVNQNFQzMTVhZk9KaDlQaWtsenRodDBxQ2E1Z0NTanFHM3p1MmNTcTRzVWJNUzlLeEJYNTQ3dE1CbnZKbWs0RXc2bWFDVkJ3akREeDctdEJDcW5raXFYQ2llQXQwN0ZwZ05pZUtWN1FmaHZQVk00WDdENU03dElsaVVWb1hHOFZfMU9GdEZTY2ZJdnJLOFE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
