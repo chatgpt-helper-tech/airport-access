@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月17日 12:53:06（北京时间）**
+🕒 更新时间：**2025年07月17日 13:02:07（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Inside ‘Alligator Alcatraz,’ detainees report relentless mosquitoes, limited water - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOdklSMk9HM2dscnJzU1B0dkpRT3NQUDdBcEJhQUY2M3kzMzBMaHdHMUZzMHNpZmthMjZVVXNxVHV1OHhtT0JYbW82dmJma19mVWZOZF9EUE1OSm52STlsMDVUOVRxLW8yYThJb0syV1FHY3JHS0loTGlNeU1IMTFBX2xqblBiQQ?oc=5) |
 | Republicans plow ahead on cuts to PBS and foreign aid - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdXZONTBrczFlTzdWalRKcWNPUUx1czZnOXhWWXpfWHJzNFA4NVhaTkxQcXFxWTJVYVFfN0R6YWxieDVTTWI2TzJ4YjBmWWxnTW1ZRTFZZzNlcTYtWVFHSllsVG5IM2ZWOUpFMS1qVFY4NWtGWVlmandzYWw0ejRFendOTmY?oc=5) |
 | Louisiana police chiefs, marshal fabricated reports in visa fraud scheme, prosecutors say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQblp0RmtidkZURUxDcGVkM1lOUTNIOEl6d1lKSEtsd28yOUxNU3h4VFRsV3VMbXBkMVBEWTg5UjNYTFV4N1NCS1hGSkJKNUgtRTdxbUF2bDBkWHZfNmNKT1NyQWdweTQzQXg2bldjU0xveEhUY1ZCOERBV0g4Vy10cjQ5SllrQzRGTXh2SnFxRDUwTXdLREHSAZsBQVVfeXFMTW1Dd3pPcWFnLXZtMWpndkRpbFY4T2R1QW9zeGVfMkhtSWN1ekNoV3BXUHZOV1FWdjNhMXV0TnFVZHNlVXc0ZEtFZVFNd0lEQzhFTlhKd3AzdllxbG56N0swN0hoZndqRXBuUWJHUkJ2OTZQZDFoTjdkRmUycjhDN3FZQ1kzcFdJa3BEWWxfd3hZT1RXV2dIbkJLQUE?oc=5) |
-| 7.3 magnitude earthquake rattles Alaskan island, prompting tsunami advisory - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPNm1oNk01YU1TOVVUU1kwUU54eXp0Skl4dmRrcXgwbS1nUGl1WUZ1Q1RTQzgxWnFIN2V5S2VBcGFVMUdRaU1lVm15TENBNDNoVS13MzJpdEh4WFI2emk3dzl3Z2hHUzZ6QkYxT0xJeWUtUXg5ZHRycjhMUUo5bE1MeWdYZ3BQOC1Oa3l2ZVlsTHpQWnhZN3V2YTRELUJKcHAyMVo3MmhFUdIBrAFBVV95cUxOeklWQkpHMF8wZFc1X1NmclpGclJLVkhNd1hDQm9XSUFhZnBzOFlNMGNtaEZ3OXZEUzR0dHhBMjVEZ0l3QlZMTU1sNFlkQkhOUFBuQmx5Q2NtNW1tN3NlQTVHMWlmNmdNeEtBbkxkZWhkbWxCakZSWng0ZmxnbENyOGhYREhaQzVLb0VldjZ2UmY4eV9wTjNOU3NLVHh3S25xOGdXNEliWTRPcklu?oc=5) |
+| An Alaska tsunami warning had residents scrambling for high ground after 7.3 magnitude earthquake - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPdGZsSHY5Vi1IYUUxb29BNDM4NDdzWGNzb2Rhak0wRDlsb2xNOUVyYzlXNEtoQnlOcFpfc3NacFBLV2RJWXg2ektNeW5EZTA3Nm5OTzN5MjBYUlJRLTVmQkV4b0hwckJwQzJSY0Z0Q0dqNGg2U2pKZFlWTFMyUERzLVZtbE1fSXJQZmtNSlg0bnRQQ1ppeUhoeQ?oc=5) |
+| Trump’s National Guard Troops Are Questioning Their Mission in L.A. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9fMVYxVHItOVNVckJubmZjckJiNWtHem15TWtTcXBuUU9Sak96VkVBRWMtRjdxcHdLQ0NOanVaY3prT2twbzRCVXA0MkpXUjNIU1FLZkR5M0c4MjBQTmxmdFpGeXlpQUJET3hkMTZtV1J0UHE4ajZIVnVkX2xuSnc?oc=5) |
 | The NYPD was run like a ‘criminal enterprise’ under Mayor Eric Adams, lawsuit alleges - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE80Umd3QV9DVTlGSElwemMzdnpobjdBdkstVGZhczdmX0cyN09JVGJEVnRRcmNHbEVEZm8zSnZhOE0xY2V5bXhiVmw1QTgzcVBzdWJxM1BnbVc3dUZDTm1wVTV4ZWFSX0NZQ2FsZG8tMDRWeE0zTVRz0gF8QVVfeXFMTS1uMEFvVGpfQlRqZy0tNHBUcmlEaGlvT2JfQmZ0Zlk2bnJkT0pJUFNVdmQ0YlMzOXRDOWVqMFpvVjJUdnFPVTBxb3BJOTF1TEZpUk1DNnQybFFaNmFCSmplYXFUUGl2bFBIZVFZcDlNRWZteHZENGdJbXFhOQ?oc=5) |
-| Russia Appears Unfazed by Trump’s Ukraine War Ultimatum - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNYkwtWkswMjhUQVBpUFZlS1FZMU1RWUV5STBIcDlVT3lmWlFBUnE0Z0RoZ1RDejd2OHMwRVNYaG5RdkliOHBuQmI0X1hVcWtWU2VzN0gxUXNTRGVmSlozeWhFcEhEZTlDbWh0dnJYcFJKVzBQQjRDXzBQbUVhTXlMWQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
