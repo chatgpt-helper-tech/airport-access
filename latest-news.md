@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月17日 14:00:24（北京时间）**
+🕒 更新时间：**2025年07月17日 14:13:27（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Inside ‘Alligator Alcatraz,’ detainees report relentless mosquitoes, limited water - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOdklSMk9HM2dscnJzU1B0dkpRT3NQUDdBcEJhQUY2M3kzMzBMaHdHMUZzMHNpZmthMjZVVXNxVHV1OHhtT0JYbW82dmJma19mVWZOZF9EUE1OSm52STlsMDVUOVRxLW8yYThJb0syV1FHY3JHS0loTGlNeU1IMTFBX2xqblBiQQ?oc=5) |
 | Louisiana police chiefs, marshal fabricated reports in visa fraud scheme, prosecutors say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQblp0RmtidkZURUxDcGVkM1lOUTNIOEl6d1lKSEtsd28yOUxNU3h4VFRsV3VMbXBkMVBEWTg5UjNYTFV4N1NCS1hGSkJKNUgtRTdxbUF2bDBkWHZfNmNKT1NyQWdweTQzQXg2bldjU0xveEhUY1ZCOERBV0g4Vy10cjQ5SllrQzRGTXh2SnFxRDUwTXdLREHSAZsBQVVfeXFMTW1Dd3pPcWFnLXZtMWpndkRpbFY4T2R1QW9zeGVfMkhtSWN1ekNoV3BXUHZOV1FWdjNhMXV0TnFVZHNlVXc0ZEtFZVFNd0lEQzhFTlhKd3AzdllxbG56N0swN0hoZndqRXBuUWJHUkJ2OTZQZDFoTjdkRmUycjhDN3FZQ1kzcFdJa3BEWWxfd3hZT1RXV2dIbkJLQUE?oc=5) |
 | An Alaska tsunami warning had residents scrambling for high ground after 7.3 magnitude earthquake - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPdGZsSHY5Vi1IYUUxb29BNDM4NDdzWGNzb2Rhak0wRDlsb2xNOUVyYzlXNEtoQnlOcFpfc3NacFBLV2RJWXg2ektNeW5EZTA3Nm5OTzN5MjBYUlJRLTVmQkV4b0hwckJwQzJSY0Z0Q0dqNGg2U2pKZFlWTFMyUERzLVZtbE1fSXJQZmtNSlg0bnRQQ1ppeUhoeQ?oc=5) |
-| Trump’s National Guard Troops Are Questioning Their Mission in L.A. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9fMVYxVHItOVNVckJubmZjckJiNWtHem15TWtTcXBuUU9Sak96VkVBRWMtRjdxcHdLQ0NOanVaY3prT2twbzRCVXA0MkpXUjNIU1FLZkR5M0c4MjBQTmxmdFpGeXlpQUJET3hkMTZtV1J0UHE4ajZIVnVkX2xuSnc?oc=5) |
 | The NYPD was run like a ‘criminal enterprise’ under Mayor Eric Adams, lawsuit alleges - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE80Umd3QV9DVTlGSElwemMzdnpobjdBdkstVGZhczdmX0cyN09JVGJEVnRRcmNHbEVEZm8zSnZhOE0xY2V5bXhiVmw1QTgzcVBzdWJxM1BnbVc3dUZDTm1wVTV4ZWFSX0NZQ2FsZG8tMDRWeE0zTVRz0gF8QVVfeXFMTS1uMEFvVGpfQlRqZy0tNHBUcmlEaGlvT2JfQmZ0Zlk2bnJkT0pJUFNVdmQ0YlMzOXRDOWVqMFpvVjJUdnFPVTBxb3BJOTF1TEZpUk1DNnQybFFaNmFCSmplYXFUUGl2bFBIZVFZcDlNRWZteHZENGdJbXFhOQ?oc=5) |
+| Camp Mystic leader may not have seen urgent alert before Texas flood, family spokesman says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPM0tGQVNmcktzNEw5LVJHaTJwTE41cVB3cXUxMzNOaklrX09Dd1BrX0pEcnp2VlI3LTNRa0lQMy1XOExxVFFFeS1PcU93eU9IQ0d5RGZpaGJLYnJhdGVORVRnblJqS1RJdktTS1BNUFFWaW1fal8tdEYybFM2UmFzaW1wVnhQUUlyYXRjc0k3eXZfdmhWS2hEYzdPLVltcV9XYlFpZEdFbHJ4Ukxfc1g1RVJ2TFJ4Zw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
