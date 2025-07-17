@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月17日 15:53:15（北京时间）**
+🕒 更新时间：**2025年07月17日 16:00:20（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | New photo to mark Queen Camilla's 78th birthday | [阅读全文](https://www.bbc.com/news/articles/cdezjjkzy52o) |
 | 'It's just better!' Trump says Coca-Cola to change key US ingredient | [阅读全文](https://www.bbc.com/news/articles/czxe59zl8qzo) |
 | MoD offered to speed up resettlement case of Afghan who posted data breach names on Facebook | [阅读全文](https://www.bbc.com/news/articles/c0rvyqd7wq2o) |
-| Labour MP Diane Abbott stands by racism comments | [阅读全文](https://www.bbc.com/news/articles/cwye24vjnn8o) |
+| Labour looking into Abbott's comments about racism | [阅读全文](https://www.bbc.com/news/articles/cwye24vjnn8o) |
 | Deadly fire rips through shopping centre in Iraq | [阅读全文](https://www.bbc.com/news/articles/ceq7d45v5v3o) |
 
 ## 📰 Google News
@@ -31,8 +31,8 @@
 | Army veteran and US citizen arrested in California immigration raid warns it could happen to anyone - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNYXNrcDZveFhfR1g4MVFiMFotSHg5MWhneUR2WEhpUmFnMVhvOE9ybElhQjcwc0J5czBFNC1yS0ljR21oSkVIbnQxbUVvUzdieTRTUS13S1lIMTBDNDlHUWRrbFUzaURndmE2SDhBM2lIbEE0ckwtSEVacERYd2xGaHhFZXdPMlB3OHFWTWZIOElFcXFhLU9Z?oc=5) |
 | An Alaska tsunami warning had residents scrambling for high ground after 7.3 magnitude earthquake - KING5.com | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxPTFo2R041SVYzR2NsbG92amRHTTRHdnRLVUQtb2FUVVBHeHRXY0plQUFIQzRHQnJnaFdSLXBhdmdCS2doaUJwakZMN1RZcmRYenRpOF8xNm9CRTgzNndael9WV0lOcHM5Tm91Z3BybUpTMlE2RHprRUozdG1BMkdOMHBTazMyQzFfNXk3ZENwUHVwRlNVTTh5N0o4RHdKQmRNZW1OaTZQd2JaZ1RzMkY0eld6S1d1UUFKRmxDU2VZekdYc1FsbXNWSF96d2lfazA?oc=5) |
 | The Grand Canyon Fire Has North Rim Residents Wary of the Future - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNXzRaR3B6WHZ3LWlZTGFSdHlfd0NSckp2WUZ6a0FrNkl3RHRkOEFkVWdycENaSEl2aF91b29YT2RLM2phV1NxdlU1Y2x6LWY5YTRzRnNkSF9rTlBaV3BjSEtrempGQVYxQUZYYjlxUGVEZjFQeTk5cWk1N2IwV09BX0lmemFXdnd4LUFHZG9GS1k?oc=5) |
+| Louisiana police chiefs, marshal fabricated reports in visa fraud scheme, prosecutors say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQblp0RmtidkZURUxDcGVkM1lOUTNIOEl6d1lKSEtsd28yOUxNU3h4VFRsV3VMbXBkMVBEWTg5UjNYTFV4N1NCS1hGSkJKNUgtRTdxbUF2bDBkWHZfNmNKT1NyQWdweTQzQXg2bldjU0xveEhUY1ZCOERBV0g4Vy10cjQ5SllrQzRGTXh2SnFxRDUwTXdLREHSAZsBQVVfeXFMTW1Dd3pPcWFnLXZtMWpndkRpbFY4T2R1QW9zeGVfMkhtSWN1ekNoV3BXUHZOV1FWdjNhMXV0TnFVZHNlVXc0ZEtFZVFNd0lEQzhFTlhKd3AzdllxbG56N0swN0hoZndqRXBuUWJHUkJ2OTZQZDFoTjdkRmUycjhDN3FZQ1kzcFdJa3BEWWxfd3hZT1RXV2dIbkJLQUE?oc=5) |
 | Hurricane center tracks system over Florida. More rain expected in Tampa Bay. - Tampa Bay Times | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOaUNfanBkaGRnTmlCWDU4V19pX1pncC1ZNmhIR0M3T2hCYmh5WUZ3XzE0c281eGxOUTRTRHBOeUVoMFBmRHBFbThxT21jMGpQc1ViejJuOEVmLWF3cS1MT0FISXJCa1lsTmdqaURrQVpFcTNPY1g3Y0VhZlJ0RVJRWGZZaHBGV2FXZEhqT3ZQVGo4d1RqdnhNajJYcnhNZEN2OE03S0FXT0RveXcx?oc=5) |
-| ‘Crazy hill to die on’: Newsom jolts California with bid to throw out House maps - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQZEVaeHJvX21BZG41WDd1ajZJQ3lKTVBIMWN6dDRzT0lYeG5maVZYYVU2TEhDeldKT1ZvRHhlY1NEOWFKbmQyUmFwQzJJZEVQQ1hRNjZrTXk4X1ZYMElLakdxWFVuMDZHRjEwU0JVTVc2TUUxT1U5dGJESDF6d2ptam5yNk9sX2E1U2lWbDJfVjQzOUw4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
