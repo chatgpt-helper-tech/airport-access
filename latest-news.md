@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月18日 07:52:25（北京时间）**
+🕒 更新时间：**2025年07月18日 08:00:28（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | What is chronic venous insufficiency, Trump's diagnosis? - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxONndydzVLNUxEVUZQQUtzRjU4WXVfaEdOS3FmNUxsNl9zLUhteVlWTzFha0ZsdjBLZ1NfSmdCOVFiY2NhMmhSMGtvTy1uVnRvdHdHUVh0VWktSEJxZUM1WmdQdXpqdUxhQmswbjZFUUF0LWtnQmFpSWtQQ1A4MjBTUUJwZUdGQ3MwVFRsb1BfNVI2c3RzWjVlTjlYMUtacGZnRFVKODFaMy04aGNC0gFWQVVfeXFMTjBGb2FIdDd2Njk1MGI1Q2gzanlVSGNaVFY1dzRsdlhUTVF3ZEdmRXRKRjFieUFOMlUtRUtWSkZxR2lSZXpLM3hFa1dvOEtsUGg1RDZsVmc?oc=5) |
 | Trump ‘would not recommend’ special prosecutor to investigate Epstein case, White House says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQX1lCUnA5YnJxQjBDbjdyMUt4M1hLTlZUWEhVbUtnWUVLdTBScUlzaUZPeDM4WGRYUk1rakptTVVhNnZWYmpEN3AyZVQzbVFzdHZmOFBLYjV4cS1ROWRWUW1wUm5oWU85bGFrYTMwa1FYMW9nTTU0Z0k1c19EZGhWQjhFWURQNEnSAYwBQVVfeXFMTWgwUmM5OFpLajBHb2I0ZlNrQlR2M3FFM2xHbGctNGJ1Z0VOV1dqU0RpWlhfbU9hbldpQkNqSFB0WDlvOXRPUF9VTl82dGozUmhtLU9FNVZYMzZSZWNVV19PRlhVT09QRndFZ2hwUzlYZVh5bHRSUEV1MnZLbS1wdEFsMkpOS1NEbEFKNkE?oc=5) |
-| Tensions over Epstein files complicate Republican plan to vote on cuts bill - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPcmZPN1NCWXB4cXZXU3RwQ0g1dHNWcXBDeDBDV092b2kwYXRxRFlxclc5OElQU3JFR3MzbVk0UzB1OHgxOXVkVndtOXNkejJHRWQ2Z25fNTREY0NQd2dQSkNwRWNncEptaVVjV0VOejNqM18zbWFzdG1neHdIMDJfM1FIUQ?oc=5) |
+| Senate passes Trump's foreign aid, public broadcasting clawback - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE4tUkx6UjJBbUtySEZPQU5kQ2xrZGYyX2hJQnhublFGN2hvdXRtREs2VWcwWVMxTXN3MnBHQzFKTDN2cnAzcFFVN18tZGJkUWN2ZFh2RWo2Vy1zMHVKZkN1X1BGOGFaZnB1azRBNTF2Ni1mZk5BT3JfU3RKQnpoMFU?oc=5) |
 | As Democrats walk out, Republicans advance judicial nomination of Emil Bove - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQTEpZUU9VeTNvNVAxZzNWdlJMRTFlYkZRa1EzOXE4R1NXb1VBUnQtWFNrTHNfUEZ5Rlc5LXRndzdkSWdzYTB6NGs5aGFrVFNKUjdnLXkzUHRrWFAwazZvdVhHRkp1QlFDUVYxamRrX3M5QVYtT0hhNjZiUC0yOVkyUUdXYnAya29YV1JaRW1BVzRvdFdyZ1pYcXZ0Q0hSYjllcjRWTjdiT0czZUNU?oc=5) |
 | Trump administration hands over nation's Medicaid enrollee data, including addresses, to ICE - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNbUtsVE1xUVh4cE4yd1VkM25GdWNacGdQdDVFbVZURDhxeHByOTh0ZG1ER2w3R1JqbWxzU3dveUpINVplbkQ4TDJKUmxqZWRhd2V3ajllOVZ2bzN1R1JMOEt0RVY2UWxUbmJYQUROYXozbmZaOC1yQXU1ZVRzOC1JOWY3WFJGbnhXOU9VU2lCY2d6Uk10c1ZYUHpVa3l6SzNsRlZYcGxXaGFMOUVXQUkwSE9BONIBuAFBVV95cUxOb2hKbm5penVRYWE0YVBiVm05X2hXbVVZS3lZTEhIUWxocHZxZDlYSS1UeDh3MWxxUE1SMEZEU3JYanhVTTZld1pKZnhBYlNUVEFBTGRVY2FKR2JYSTc0ZS1yOGQ2S0FCMTZ0aEJpaThvN1lnc1lBX1NmWkNNdktzUGpwMUI4dHhENXMzVU5RS0I4SEx3YU9qX1JrU0JVaUZEcHd1THp2WEMwc1kwdEZORUx1Z1NNWUhJ?oc=5) |
 | California Dems brace for Bondi, Burgum to visit Alcatraz - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNUHpwVGFrQVM1bDQ0STVRSzBvaGIxLXRlZTRIWjg1OVIzXzd0ZExYTHVEY0xDWWN1R1R3NV93NzdUOERQU1BUX3JhRG82UTRjVnZLOHFxOGF4c1l2RW1DeVpfRXBlOHpRTmd6ZWxZelZUSFJuUmtMUjJkTURfVnhYNlZLLWF4b0Jqa2Nv?oc=5) |
