@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月18日 14:01:21（北京时间）**
+🕒 更新时间：**2025年07月18日 14:14:07（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Obvious Labour leadership wants me out, Diane Abbott tells BBC | [阅读全文](https://www.bbc.com/news/articles/c4g8v33g1dgo) |
-| Chris Mason: Why Labour had little choice but to suspend Abbott again | [阅读全文](https://www.bbc.com/news/articles/cz9k7yje44eo) |
 | Child dies and 21 injured after school coach crash | [阅读全文](https://www.bbc.com/news/articles/ckg538x0lm5o) |
 | Kill Russians, win points: Is Ukraine's new drone scheme gamifying war? | [阅读全文](https://www.bbc.com/news/articles/c80p9k1r1dlo) |
 | Unique 1.5m year-old ice to be melted to unlock mystery | [阅读全文](https://www.bbc.com/news/articles/c5ygwd6yj28o) |
-| 'Trusting The Salt Path author was our biggest mistake' | [阅读全文](https://www.bbc.com/news/articles/c80p2pzgpmgo) |
-| Trump orders officials to 'produce' more Epstein documents after mounting pressure | [阅读全文](https://www.bbc.com/news/articles/c9w1014rlq9o) |
 | Germany's Merz tells BBC Europe was free-riding on US | [阅读全文](https://www.bbc.com/news/articles/ckg6v0pk964o) |
+| 'Trusting The Salt Path author was our biggest mistake' | [阅读全文](https://www.bbc.com/news/articles/c80p2pzgpmgo) |
+| The Late Show with Stephen Colbert to end in May 2026 | [阅读全文](https://www.bbc.com/news/articles/c20n4q0q9zqo) |
+| Trump orders officials to 'produce' more Epstein documents after mounting pressure | [阅读全文](https://www.bbc.com/news/articles/c9w1014rlq9o) |
+| South East hosepipe ban affecting more than 1.4 million customers comes into force | [阅读全文](https://www.bbc.com/news/articles/cwyq0yd4zygo) |
 | Buy now, pay later checks will block some shoppers | [阅读全文](https://www.bbc.com/news/articles/cwygjvd67plo) |
-| Man who jumped from edge of space dies paragliding | [阅读全文](https://www.bbc.com/news/articles/cx2k7094e8xo) |
 
 ## 📰 Google News
 
@@ -30,8 +30,8 @@
 | ICE is gaining access to trove of Medicaid records, adding new peril for immigrants - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQUTI3ZFU3OTAyaG1BX3JNSVhYZzYweHduVUF4LVdlenFqV2xRejE1VVI2UFYyOTFUMTE1YXRncHljc2dkc01XR0hzcDRScS12WGVwWVhwYmhCSE1VcHlsTktrb2lhWGV5RmRIWjlWeXdTMXFteGc0TFdydHpsXzFoNUlJWGJCLU4yck02eHh1RzhUVXJ4c3ZOSndIMF9hQTdRaUNZYUpIUHdtLVFoOXpYWWpUZkswYld1bzVnN0R6T2ZQUjA?oc=5) |
 | Republicans are split over the Trump administration’s handling of Epstein files - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOcmxPN2xNbWUtcGRybnhwZXR2YXpkeDFMU25aZVNFTWxVbzRSMWV0QkFrZU5WZXZXZUc1ZHkzeW1LX2dHeklFUlAxajhHSUgyT2Y4MFNMVkxPRDRiN21Vc1RiZUxjeVZBZnNmQ2hkMmdDRW9zc2tiaHhNN2N2UVkwdW41MA?oc=5) |
 | Newsom threatens to redraw California House maps in protest at Texas plan - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOMzQwX3AwRTYtSXI4SWV1c0FsUEhhM05qN0dpcDVQbG9NN2w5aGxWM3JKSGtpWmxhV2lwc1pyZkRvR0c2YWtfdDJGV0ZTM3Q0S1dJQm9idjJtenJXa2dVS1RrbTJ3VWxCRmIwNG9mLUxXZXVOc19aTnBmcllNM2E1ZjdqZmhxZTNvWGc?oc=5) |
-| Border Patrol Agents Raid a Home Depot in Northern California - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOcV9udnRPQUxMbUhBeWVtbGt2QjlrOTE4eGdwXzhnWV9WVks3QmVwNHhCQkF2UW5ibGdPWDhyZk00Qlh5RnlXNzUyVEhfVWZtdy1HQmlJTDJ3N0k3MWJxU3RzOEtTNDZEbjQ2ZVZuclZxTXZwa2VuVmQ4U0ZSN2pKejFaS3A?oc=5) |
-| Senate GOP blocks resolution demanding Trump release Epstein files - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOdDh5NnljakMybEJVdERfVU1sakVoREw1UVV6YzJiTXlCSnRlbFJkYlhSbUhZZ1dlNmhLWUk4bHZkNnpCLUZMMFZaRDFuYzYxN2RTNGpmb3dUZVpZZ1pGTXlVZmRvVUJTMGloc2JSazVZaDNzNVVwOVppQjU3N2V3SVA4X1RWeGlTOXc?oc=5) |
+| Republicans plot endgame on rescissions package — and Epstein files - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNNkZhQzAzdDdFaXBVQnVQWUJSVW1hQlRtSjZfcy1BcmRyV0FadEpPY3BocVljWkgzZUNvd0hyME1jVkctTDVGNnFES0l2VVVNYnJqVmFJM0hhZzhYSTNPYlUzd3VOd2E5MzFudUVqdl9WNE91U0NfTi1PVkZLQ1psZEVyQ2xtRnVyVElQZ3V6dDdqVjdSUDB1SDB0LVJ1Yzl0SW42eVNn?oc=5) |
+| ‘There is no sanctuary anywhere:’ Border Patrol raids come to California’s capital - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1mek5ybEp5R2NGSFVrVmxXMWhpNkFHTVFjT0FuZ0RudnFLaVNxbU4xTWdsTE9mVnB1dEtKZmt4aG9DdU9UTlpwNzNjVzItNl8zVkhaZW92U2xnQWJ0RGl2eU5zdGhiMXY0SHZVMGg3TWppNDJEbzRfcFNB?oc=5) |
 | Trump administration shuts down LGBTQ youth suicide hotline - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPQkJFbHJBSFMzd1pxMi1vREozSVBaM2JUNEoyakkxTHlIU2ZJS19wZUhiZGVaNWQxeWg1QWhBdjJ3MmJYbXhNbkRQcmZ4X3hPaVZWQzEzTkRzLUpZZHE0NHJMQjJieW5KdGRqSlVuWTRDWjgtb1ZWZ3E5eDJubldxWDdzLThobGx1U1ZiYS0xZ0xvNmFiX1M0SWxmNzfSAVZBVV95cUxNbi01R1dEbWg5X2tGc2hWUmZySDFqcUswbHdhX2IzT2ktS3ZzVVVJT2RBUXJzVHFrTFh0anhMTDNvMUtoTXA1cVNfUXpsMW5JZTBNalJhUQ?oc=5) |
 
 ---
