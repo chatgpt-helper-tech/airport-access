@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月18日 21:27:59（北京时间）**
+🕒 更新时间：**2025年07月18日 21:40:30（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Newsom Wants California to Counter Texas on Redistricting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNZXVFaUkyTGR6eEhpTjRVaW1GV1pSc0l3MzA3aWhYQWt2bFdnY3lQTzczX0Fxd1Z5d2N4V3YxYmNTVmNGU2prd2ZxX05BNkJiMjczRlRweHhRbjZQLWdHbDRidWFxXzUtUnBvVjVwUVN3cHRzR1ZoanB1UkgyQnZJa1dCa1QtVHc?oc=5) |
 | Trump immigration raids move north to Sacramento: ‘No such thing as a sanctuary state’ - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQbFFlcHpoM05iZkQ3Qm8xMXItWUQ5ejM2NW1MVFZTZU1nZXdDUXNEdTNtRk5ObWlqdVJwTU5zRk1pd1F5X1QxdllVX3JVdzRqcC1uT2dZNC0tUS15bVctcDdpMTRvekQ0cF81MVVaY3ZDei1GUnBCcHVCUUlmTjFBWWZjME9mNDNVNFRBRnF2TEY2VFB4M05Rc05kTnlrR2JxQjZrU005MHFLdzNhTkJmY0diMTVpWmRVTk5FdjJJWlFHUkJ5d0gw?oc=5) |
 | ‘Devastating’: US public broadcasters condemn Trump cuts to key programs - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOXzI2UkU1Z3FYTjJvN1FvSVdkUjhpVnF4bUhINGd5cmVwLWlhZFZYRkctVGdmWVFaWGVzbEJLRHVqWmw4Q01qY1FNTjdRN2tuYUkyWmI1dlkwbEZlNl92cWducVpsZVpoalJJZW5MaE1KY2tkRXVsQ29GWXQtN2x3eWZn?oc=5) |
-| US health department hands over Medicaid personal data to ICE - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxPdzl4WGk2NWdLd3NsdE1QS1VNVmFDbFJQNTlTQUN6c19RaEdCUGlKZkN6VHNwdGtSbldXTk5wSXdLcHZPbFFCTFlZblBkZFZaWXU0STM3TGY0Rjh2Z3U1ek16N1JBWDhzaU0ta1ZqTWxiVkg2d0xIOGN4b3FBS25lYlVxNzRqZUtKMDh1eWpmZlNncFNLOThjN0RlSjNudHplNzJBcHI0WnNKaFZXZHNUMUlfR1dvMTZtajh3SWdJS1VSOU9FN05kT1Rn?oc=5) |
+| Felix Baumgartner, daredevil who jumped from the stratosphere, dies in paragliding accident at age 56 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNM05fSmtLLUFvd0RIeTBJV2o2RkM1Z3I2WGI5RVdvaHRwLV82RmY3cUlYTWQ1ZnliWDRqXzJWZDFNZExpTWEtM3hRQTdpZ1B5LWZEeU1KZ1FxUlg0c09rODk5a1JEQ005d2VZS0tTMWY1NV8yU2pIWXhFVnZJZWZmdG1UMkt1Tm85MGgxcXdQSEVVQdIBlwFBVV95cUxPT2owYlVVWl9HYmhRVVZlelMyTFdGdEFONUxmelpFSVlyVFZTb1FndWE0U0lxVXNpUUEtdXlfc2RXamlPcEU2MG9zNFI0R3NyWlExVjViUkQtOFN3OWhOdzdINXlIR0dRa0EwMllNbDZRbjU0eTRiSzdndHhqdC11MjdhUnIzcHZNQVFpZy00N0RXbmJZZ0Q4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
