@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月18日 21:14:57（北京时间）**
+🕒 更新时间：**2025年07月18日 21:27:59（北京时间）**
 
 ---
 
@@ -8,15 +8,15 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Serious pollution incidents by water companies up 60% last year | [阅读全文](https://www.bbc.com/news/articles/cg5zl75dmm0o) |
+| Serious pollution incidents by water companies up 60% | [阅读全文](https://www.bbc.com/news/articles/cg5zl75dmm0o) |
 | Germany's Merz tells BBC Europe was free-riding on US | [阅读全文](https://www.bbc.com/news/articles/ckg6v0pk964o) |
 | No action to be taken over Kneecap's Glastonbury performance | [阅读全文](https://www.bbc.com/news/articles/cly290dk226o) |
+| Amber weather warning issued as thunderstorms and flooding to cause significant disruption | [阅读全文](https://www.bbc.com/weather/articles/cn7d5221le7o) |
+| Doctor and husband jailed for selling stolen PPE on eBay | [阅读全文](https://www.bbc.com/news/articles/ckgl8qn1we8o) |
 | Trusting The Salt Path author was our biggest mistake, family says | [阅读全文](https://www.bbc.com/news/articles/c80p2pzgpmgo) |
 | Unique 1.5m year-old ice to be melted to unlock mystery | [阅读全文](https://www.bbc.com/news/articles/c5ygwd6yj28o) |
 | Kill Russian soldiers, win points: Is Ukraine's new drone scheme gamifying war? | [阅读全文](https://www.bbc.com/news/articles/c80p9k1r1dlo) |
-| Amber weather warning issued as thunderstorms and flooding to cause significant disruption | [阅读全文](https://www.bbc.com/weather/articles/cn7d5221le7o) |
 | Officers attacked at hotel protest, say police | [阅读全文](https://www.bbc.com/news/articles/c70rgkrr6rpo) |
-| Doctor and husband jailed for selling stolen PPE on eBay | [阅读全文](https://www.bbc.com/news/articles/ckgl8qn1we8o) |
 | 'There were bodies everywhere': Druze residents describe 'bloodbath' in Syrian city Suweida | [阅读全文](https://www.bbc.com/news/articles/c5y76e9p1gno) |
 
 ## 📰 Google News
@@ -30,7 +30,7 @@
 | House Republicans Dangle Possible Vote on Epstein Files, After Voter Backlash - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxONDFQVWh2bzJ4M3hnNEZvUW9pdTE2YV9oS0FhVVBCdFZiN0hGbWJpYjhfWE9yQW5YMTZaSEs1NTJfMFR2VDBUaWwzb0o1Z3F2VFBNREVRU3Y5YTIwcTZVSzRFbmJ0RVNyalNVNGlZei16ZEJDNHhOQW9OLVU0YlV1ZVdtcUJZVHI1VmFSZUkyWm1JUQ?oc=5) |
 | Suweida: Druze residents describe 'bloodbath' in Syrian city - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1yUjRIQlhVZGVPZlppVThSUjlHYnV2aGFkb1J3UjBjSlgtNjlEQ0VFQ2NQbUVkYmxUVDVjMWdKMzdsTjBrdTZTclNCWU1vamcwcHNmcGtQeEVsd9IBX0FVX3lxTE14MFNZVmRzNFYyT1lMMUVZc0d1QTdOWGJINGN1Y1UteFhBOUl2MmhPeEI5VWN3UTRSMTJqbGpiSnE2VEVONnZONXRnZjRUV2RqdlFYTXVVUUxPMXhKOEdn?oc=5) |
 | Newsom Wants California to Counter Texas on Redistricting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNZXVFaUkyTGR6eEhpTjRVaW1GV1pSc0l3MzA3aWhYQWt2bFdnY3lQTzczX0Fxd1Z5d2N4V3YxYmNTVmNGU2prd2ZxX05BNkJiMjczRlRweHhRbjZQLWdHbDRidWFxXzUtUnBvVjVwUVN3cHRzR1ZoanB1UkgyQnZJa1dCa1QtVHc?oc=5) |
-| Border Patrol raids in Sacramento intended to send message: 'No such thing as a sanctuary state' - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQbFFlcHpoM05iZkQ3Qm8xMXItWUQ5ejM2NW1MVFZTZU1nZXdDUXNEdTNtRk5ObWlqdVJwTU5zRk1pd1F5X1QxdllVX3JVdzRqcC1uT2dZNC0tUS15bVctcDdpMTRvekQ0cF81MVVaY3ZDei1GUnBCcHVCUUlmTjFBWWZjME9mNDNVNFRBRnF2TEY2VFB4M05Rc05kTnlrR2JxQjZrU005MHFLdzNhTkJmY0diMTVpWmRVTk5FdjJJWlFHUkJ5d0gw?oc=5) |
+| Trump immigration raids move north to Sacramento: ‘No such thing as a sanctuary state’ - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQbFFlcHpoM05iZkQ3Qm8xMXItWUQ5ejM2NW1MVFZTZU1nZXdDUXNEdTNtRk5ObWlqdVJwTU5zRk1pd1F5X1QxdllVX3JVdzRqcC1uT2dZNC0tUS15bVctcDdpMTRvekQ0cF81MVVaY3ZDei1GUnBCcHVCUUlmTjFBWWZjME9mNDNVNFRBRnF2TEY2VFB4M05Rc05kTnlrR2JxQjZrU005MHFLdzNhTkJmY0diMTVpWmRVTk5FdjJJWlFHUkJ5d0gw?oc=5) |
 | ‘Devastating’: US public broadcasters condemn Trump cuts to key programs - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOXzI2UkU1Z3FYTjJvN1FvSVdkUjhpVnF4bUhINGd5cmVwLWlhZFZYRkctVGdmWVFaWGVzbEJLRHVqWmw4Q01qY1FNTjdRN2tuYUkyWmI1dlkwbEZlNl92cWducVpsZVpoalJJZW5MaE1KY2tkRXVsQ29GWXQtN2x3eWZn?oc=5) |
 | US health department hands over Medicaid personal data to ICE - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxPdzl4WGk2NWdLd3NsdE1QS1VNVmFDbFJQNTlTQUN6c19RaEdCUGlKZkN6VHNwdGtSbldXTk5wSXdLcHZPbFFCTFlZblBkZFZaWXU0STM3TGY0Rjh2Z3U1ek16N1JBWDhzaU0ta1ZqTWxiVkg2d0xIOGN4b3FBS25lYlVxNzRqZUtKMDh1eWpmZlNncFNLOThjN0RlSjNudHplNzJBcHI0WnNKaFZXZHNUMUlfR1dvMTZtajh3SWdJS1VSOU9FN05kT1Rn?oc=5) |
 
