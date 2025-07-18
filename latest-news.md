@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月18日 10:39:06（北京时间）**
+🕒 更新时间：**2025年07月18日 10:53:37（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | ICE will get access to Medicaid enrollees' personal information to help find immigrants. - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQdVZJaVlOSVg0OWljcC1GV0hyazl4a1lNWjVSZDNvR1FtSEtBX1ZSZFQ1M1FrOHBXVWR6Y1BQd1I1SnA0bEFRalIzeklIWlJQSFJtVENCNEdGR3lHam5aNFR6eXZ3ZzVEdmRseDQ2NFNCT05DUTQ1bERzT1ZJMGRaMWViTHE2SksxdGV4YlFn0gFWQVVfeXFMT1RTMzk1TTFKNjR4ZjB0a2ZQX2VjMHpwdkZpVHVNNHEwSFVsQzVSLW1UeDlkODdpblFSVnAzQzJ2VV85Q0pOOVpYRndEdklvdThwNDcwV2c?oc=5) |
 | Air India cockpit recording suggests captain cut fuel to engines before crash, source says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxPUkphZWF5Z2RreVQ5bTFWczZQNEZrQnlpb3JrYTBBRmxJbHk0YVZfWWRWNDh5RklQVFUxeTdZa2tYOTF4S1hhSmFzRllLOTRSck5fZEtmR1RoRFY5c1Y5ZTNNOTNJZWpPMVpya3pJZkl6bEFlRFg4dEFTRk41RWNCdTd1ZWhMc2hNcHNZbXVveEhUYmtuSW0wV0NVaW1qMEFyaC1LbUJEUVc4azZMWDJZb0w5Wi1hY2ZrbXF2NUVpbUZiYzRUNk9yT3RkNXV6TTRoWF9j?oc=5) |
 | Trump orders production of some Epstein material after pressure - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1xMjViTUZlM0Q3c1dlQXNSR1FSSUFxY3lkVkdKZlhtRzR6WEcyYlNjU1ktbjhUd3VvMktiam11ZFFHZ1QwNXdCWFZNUU82U0FVVkNPRENibUY4QdIBX0FVX3lxTE5TQ3NJSnUyWjJhWHNzcXBGNE1BZDFfYWpQV1VrNG9sYWZEc1g0QWhVSFFFQ2JlTnRFa2NmNHVFXzlfVnNqSEZyT0F1T1owS3VkcWRacXdrNzAwdW1GX1Br?oc=5) |
-| Republicans plot endgame on rescissions package — and Epstein files - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNNkZhQzAzdDdFaXBVQnVQWUJSVW1hQlRtSjZfcy1BcmRyV0FadEpPY3BocVljWkgzZUNvd0hyME1jVkctTDVGNnFES0l2VVVNYnJqVmFJM0hhZzhYSTNPYlUzd3VOd2E5MzFudUVqdl9WNE91U0NfTi1PVkZLQ1psZEVyQ2xtRnVyVElQZ3V6dDdqVjdSUDB1SDB0LVJ1Yzl0SW42eVNn?oc=5) |
 | Justice Dept. Asks for 1-Day Sentence for Ex-Officer Convicted in Breonna Taylor Raid - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQdTJ0SW9odEh1VDdaX1NQb3FKeUNETkNOMFBvZUFYVmZmN0sweEtaQzNfNkxKTk9ISktNRjdSaENiUV82MjAzelM4bUIzeWxPb0hUdldKbmVEWklpQUM5eDFLQjNkR1d4c194Z002MkhxZ1R5TmZBcjI3YnZZajNKak9VcUNmaTZvUHZrT3pTZkdBZnJkNWYxWW50Q0g5UV85VHpjRXBNLW53cEZLTUE?oc=5) |
+| Trump administration shuts down LGBTQ youth suicide hotline - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPQkJFbHJBSFMzd1pxMi1vREozSVBaM2JUNEoyakkxTHlIU2ZJS19wZUhiZGVaNWQxeWg1QWhBdjJ3MmJYbXhNbkRQcmZ4X3hPaVZWQzEzTkRzLUpZZHE0NHJMQjJieW5KdGRqSlVuWTRDWjgtb1ZWZ3E5eDJubldxWDdzLThobGx1U1ZiYS0xZ0xvNmFiX1M0SWxmNzfSAVZBVV95cUxNbi01R1dEbWg5X2tGc2hWUmZySDFqcUswbHdhX2IzT2ktS3ZzVVVJT2RBUXJzVHFrTFh0anhMTDNvMUtoTXA1cVNfUXpsMW5JZTBNalJhUQ?oc=5) |
 | In message to colleagues, fired federal prosecutor Maurene Comey says: ‘Fear is the tool of a tyrant’ - PBS | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNcWtFWnI3TU1sb1FBbms2YXFqMS1Qckw1STlIemN5SFVpYzNjR1JHYVlQMFU4SFVqZkduUkIzcWVheG5MZnRtRFl5bGVGUGxYcWtWMXpKdFFtd1VOVUhRU0ltcDVFN3JpWEFLZ01Td0prZGNvYVdORTBEZEFJTUZTaWlWdzZWNDM0UEpuM2ZYT1B4QTZURzRxeUxqeTEtUDZIYmIycF9n0gGrAUFVX3lxTE43Zk9yand2ZmpQZ0lwYTVyTHV6Q2tfUnNSSmliZ0JORGpKVURKeWY0U1k5TWd1d0pHVzIzZlR4MWNvaFR6em84NGJpRmxyVDBPS3NSbmp5Z19IT1ZVVjdfTExlajZvT2wxWi1CMFVmVGpBR2dnYUNDS0dqUXktNHhUVVFMNzhOdHlYcWh3UldVVXVsQ0IxZEdNTm1pR18tdWl1aVQ2c3RxWU5yZw?oc=5) |
 
 ---
