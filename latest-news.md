@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月19日 04:13:26（北京时间）**
+🕒 更新时间：**2025年07月19日 04:26:10（北京时间）**
 
 ---
 
@@ -8,6 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Boy, 10, dead as nine in hospital after coach crash | [阅读全文](https://www.bbc.com/news/articles/cvg98l9x0j0o) |
+| Amber warning as thunderstorms set to bring flash floods | [阅读全文](https://www.bbc.com/news/articles/c8j1nvp9440o) |
+| Three killed in explosion at Los Angeles police training facility | [阅读全文](https://www.bbc.com/news/articles/c62891d4p50o) |
+| Man accused of airport assault 'didn't know' he hit female PCs | [阅读全文](https://www.bbc.com/news/articles/clylqpzqezlo) |
+| Royal swan count sees numbers on Thames resurface after dip | [阅读全文](https://www.bbc.com/news/articles/cyvjl0jv91ro) |
+| More than 30 poisoned after suspected fake Botox | [阅读全文](https://www.bbc.com/news/articles/c628e5ez78yo) |
+| Police drop investigation into Kneecap's Glastonbury performance | [阅读全文](https://www.bbc.com/news/articles/cly290dk226o) |
+| UK's asylum hotel bill down 30%, government says | [阅读全文](https://www.bbc.com/news/articles/cgeqwv98d55o) |
+| UN says it has credible reports of summary executions during Syria fighting | [阅读全文](https://www.bbc.com/news/articles/c056q0zgy8jo) |
+| Lawyers for nurse in trans case criticise 'irresponsible' health board | [阅读全文](https://www.bbc.com/news/articles/cvg98nwrqpdo) |
 
 ## 📰 Google News
 
@@ -18,11 +28,11 @@
 | House gives final approval to Trump’s $9 billion cut to public broadcasting and foreign aid - PBS | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxOZ01yb2wtNVczakg0MmRGQzhFZVFVb1V1RmNFakhacTFyLWc1dXBaTGloczdEb2d4UGd5anhpMGRCZklWSzlLNGVnUUx6el9QVEtnQXF6NTNkLS1uZ3JNek1pVzBqT2hvNVB1d3JNZmdTSm9UN1pkM3B5TFh6dDFiLWstSXRFcDQ5NDFpcEZwb2RXaXdycGVISUlWN2E1ZDByMUttYzVCYUoxN2c0RUhMZ283R1M1aFpsbG9jMDVyWTJ4UmhRMnfSAcsBQVVfeXFMT3VrYXVPWHB6ODJZcnV5VE1rNXJtQ1VXV1JpM0MwMk1Fb29vb0ZFYzRlelR6bV9qcnJjaTBITFFnQnBQTVVKV2ROTGU0VmZWQVNlakdNMm1FbHJ1NHdTbVVqMHdxdXM4aTc3ejR2MmtIUXJ5QmpNdnNtRGc2S2JUaUdOR3oxTVU4MDRtUlVtNWtFVHA2TG9sLUM2Z3BfWnBia2ttTDFxT3MyVlNiekF2dV9udlVNZlNlQ0FzTEhLb3FDM0NUSzFvZGZoZjA?oc=5) |
 | Republicans keep voting for bills they say they don't like - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNWUNlQTRkZ1YyeE5odGJDMF96dzJlZ1lCam0wN0V4dDhsdXlqOU1KdzBSSmk4OEFudlNTU0VtcVZKd0xHZmFiWmhQU3A0ZjNiMlNEOFJJcjJKYTRnX1Zka2JVcmhLelAyUGhMTTdDTWdCZVhSWjN5LWNLX2JFZXhJUkJnVjM2VFpiSHM4QXR0QU02N0RNeEQ3UFpneXjSAVZBVV95cUxOZWN1cy1Sa0J5czFZT3pSOER4LU1tWFNRRkJFZlREb3kzVEttbk9scHo1WTh6V01PSEkxYjBnQ05LSWVpRFoxLVhFUlJwVjcwZGRFbjE0dw?oc=5) |
 | What is Trump's vein condition and how serious is it? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9EVGtwaG96bHRHOVVRdDVJTmFYcDdDX3lsMXhKQ2VvTEJLQUdnUjZ2STYwTFpaM04tNHlHTHl3VHdBNWtUeHFHbi1WX1MyRnNCa1JNQmllZEo3UdIBX0FVX3lxTE5HX2xMUFV3SHJhaE84dlRTbW5hQk1jS0VlRVlSbW56RFdBbnNGRVdZZXEyRTJZV21aa0pKWDdMMVVrRlgwRUV6c0xtbnFtTENQOEhpaG1URGJjQlFqejRr?oc=5) |
-| Netanyahu calls Pope Leo after uproar over Israeli attack on Gaza church - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5CT3hENEZDZ1E5UGU1dzB0N3FkVVJNMGkxcXFrVmRZTVR5R3h5V0lrel9vaHFOc0VTNWJ1QTVVQl9VUFBBYWxrYlFqV0p2WmlJMFZLV1lJYk52Zmd5RFRsbTEyTGxkWnFQdk5YeTFMNGo?oc=5) |
+| Brazil police raid ex-President Bolsonaro’s home, fit ankle tag, citing flight risk concern amid criminal trial - CNN | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTFBPbHJ4OUxzTmZLSjEzeWVSanJyeW5aRDRicnliUFFtZDlZRjVGdndvVGV6NG0xTFVuWEd1TUJLcHZyMlItbDVaUExRRXF3U1NfdWdvdUllWjBGNFJXUWZxbTZHaGxpNjQ4Q2VwNHd30gFzQVVfeXFMTkkxRlFDVDBaSm9JUXZNNGtzLThuRkhicUtCUUhUZG5UUDZNb3NIeVhkbURhWXBvZUpYT01KUmlQVnR1OHFRRTN4QTUtNWVfbS1TVllfUExUQ0JnLTVjT0MzSGd0TjFxNVRPVnZzanhPWW5raw?oc=5) |
 | Mamdani and Jeffries finally meet, but no endorsement yet - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQaW9jckIxZmYwMlJ6U1lyQzRlVGRwbVFtQVRib1VZTEJiVFlTRVdfZWgzLTRHV0xtdm1sTi16bXNMVlpyN1pJR25jWkhvZ3pJRVFYWUltb1lyeUVwY0xTbDZuaGNnLUwzMnJXUTNDRUhPZXJJTkRkRWUtU0c2YzMzZg?oc=5) |
 | Maine teen charged with murder of paddleboarder in Union identified - WGME | [阅读全文](https://news.google.com/rss/articles/CBMiuAJBVV95cUxQS0FXRU4wX1BXMVBESUh2czluMHVfVEpSdEQxcHFOQW9xXzBOREhoRk9wOWc4UzhORG56NmNpYUNmaDBsenozaGYyUnBpRGF5aHNvSXUyUmdDNUNwTEZqRnJCZHVBUUlRbjctQmhETk5lamFTWDJlblozZ0lvQWhwb0FxWHV3MmJQeVBJVkg3RzZjWl9mZ1BJbmN3YTNQZjZldnBSN3BDZHlLd3pfV016ekRGWXJuY0NjMmZwR1laVmJkM1gxa0JjWVptUjNGVVRjTjM1U09uQkgtd3N1X0RmM1Fwa0JFTUZIMHZ0TmIzMnhsR0xJbU9GYnBvaVkxODMzdVlQQ1EtMDhZbGh0Qm5WZ1dFbm1qMW4wWmZSUmJkOEtCb0ZTUjFMVFBDWnRoS280TW8wRlJhb1U?oc=5) |
-| Brazil police raid ex-President Bolsonaro’s home, fit ankle tag, citing flight risk concern amid criminal trial - CNN | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTFBPbHJ4OUxzTmZLSjEzeWVSanJyeW5aRDRicnliUFFtZDlZRjVGdndvVGV6NG0xTFVuWEd1TUJLcHZyMlItbDVaUExRRXF3U1NfdWdvdUllWjBGNFJXUWZxbTZHaGxpNjQ4Q2VwNHd30gFzQVVfeXFMTkkxRlFDVDBaSm9JUXZNNGtzLThuRkhicUtCUUhUZG5UUDZNb3NIeVhkbURhWXBvZUpYT01KUmlQVnR1OHFRRTN4QTUtNWVfbS1TVllfUExUQ0JnLTVjT0MzSGd0TjFxNVRPVnZzanhPWW5raw?oc=5) |
-| Idaho judge lifts sweeping gag order in Bryan Kohberger’s quadruple murder case - PBS | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOR04xVkNXYURMMXkyWG1FY2xrT1pCSVEwUmR4YmRqdzh0aEdnck9KVzlXbE1ydldLUlVrNnF5S3VoZnFEbFRrLUhmVVd2UEpRVnk4bi1ET2c1M25FNUZwNjc3UnlmWjRtMTl0MGNha3FqNHNCQm5KY3RjTWZ0QmU1TC02NUxMVmYtaXUwSl9iUmk1aHgzZEJoSU05akpaWHZvcl9iVXdxVGRaMW84cGh6X2QyY23SAboBQVVfeXFMTTVRZ2hUcE5namo1U3JuQm05U09RdkRMRkkzQnJKcVA5MGlibGhNNzUwR19paDMzRW9WcGswbXFkOGQ3V2Y0ajF4a3l3azBsNFRVclphVHlRb0pnXzlqaC1ORnVxUjZyWC00Q2w1M0hYV3hFLUhFNEFUUHN0Wk51bFRHQUNQYVZyWm5faUtpa2pfYXFFNWM4a3E5M3hIZnh2X1owY2NVY2JwVHlLbjU3TTI0SjFBVEJxaC1n?oc=5) |
+| Sen. Nicole Mitchell's burglary case will be in hands of jury soon after multi-day trial - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOZjhlMmFLVXdZdUVmaUR3dklLbzNJRU90cEFQejVkOE5neE0wVi1fWjRsN3dBMmpoSzNtZWZITmxtNGU3RGMxa1RLR0JKT0V5ei1GbDNqVVZuaE1IR2l0NnpSZjNOOExpc3lKcnEtMUl1ek43MzU4TzZReUN1ZjE3TG1YU0RwSFRENlE?oc=5) |
+| ICE is gaining access to trove of Medicaid records, adding new peril for immigrants - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQUTI3ZFU3OTAyaG1BX3JNSVhYZzYweHduVUF4LVdlenFqV2xRejE1VVI2UFYyOTFUMTE1YXRncHljc2dkc01XR0hzcDRScS12WGVwWVhwYmhCSE1VcHlsTktrb2lhWGV5RmRIWjlWeXdTMXFteGc0TFdydHpsXzFoNUlJWGJCLU4yck02eHh1RzhUVXJ4c3ZOSndIMF9hQTdRaUNZYUpIUHdtLVFoOXpYWWpUZkswYld1bzVnN0R6T2ZQUjA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
