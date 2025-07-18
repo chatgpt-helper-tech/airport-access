@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月18日 22:14:40（北京时间）**
+🕒 更新时间：**2025年07月18日 22:26:34（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Israel says it ‘deeply regrets’ strike on Gaza’s only Catholic church, pledges investigation - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOWU0tWXdZR1F6Ymo5bXVzRy1BcUZMLU85emxheXhfTzBITXp5SkhYVkFRMldpcklDZWtPTDVDdzZQajEweU4yZWliUUVvdzlBVVNsYWNGZUxscnl6c0I2WC1NNGdXUUxhN1NmS0IyWXRXZVhNY3BIaTVrWDU2TS1PaWZiSEhIWFpP0gGOAUFVX3lxTE1KX3ZKN3JFczA1aXNrRFlnVW9mVE52ZEp0TWlFMWhpYTB3d1V3dWRQcmNITHZDc2dSYzJJS01Ka1NsdWxqS19VQzBrMmlsUkNIaWxLNXY3Z0ZNeERzQm5POUNJem9NU2oxanJzSkJSTHAyc1Jha096NGE1TWJWbzNwZUFZb0drZHlTQlV3TGc?oc=5) |
 | What is Trump's vein condition and how serious is it? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9EVGtwaG96bHRHOVVRdDVJTmFYcDdDX3lsMXhKQ2VvTEJLQUdnUjZ2STYwTFpaM04tNHlHTHl3VHdBNWtUeHFHbi1WX1MyRnNCa1JNQmllZEo3UdIBX0FVX3lxTE5HX2xMUFV3SHJhaE84dlRTbW5hQk1jS0VlRVlSbW56RFdBbnNGRVdZZXEyRTJZV21aa0pKWDdMMVVrRlgwRUV6c0xtbnFtTENQOEhpaG1URGJjQlFqejRr?oc=5) |
 | Suweida: Druze residents describe 'bloodbath' in Syrian city - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1yUjRIQlhVZGVPZlppVThSUjlHYnV2aGFkb1J3UjBjSlgtNjlEQ0VFQ2NQbUVkYmxUVDVjMWdKMzdsTjBrdTZTclNCWU1vamcwcHNmcGtQeEVsd9IBX0FVX3lxTE14MFNZVmRzNFYyT1lMMUVZc0d1QTdOWGJINGN1Y1UteFhBOUl2MmhPeEI5VWN3UTRSMTJqbGpiSnE2VEVONnZONXRnZjRUV2RqdlFYTXVVUUxPMXhKOEdn?oc=5) |
-| Texas' Paxton Threatens to Arrest Democratic Lawmakers If They Flee to Block Redistricting - Bloomberg | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPUmpIS3puM0Z3SE91Y3JZbDhhbkdZTndBNWRTNk02ZlI2a291X1Vfbnc3aHRPMjBaNTRMQWxoUURMTGUwbXpBUHBsRWJqWjdUckhCdUhXRUVQVXZoYnlIZzExbUdOOFpOTHlCbFNUODV6aHlFT0ctNFV0bFNxMkROX1dZNVBkS2RkNjhxSFozZHkwQjktUG1jVmgwUjBGallHT0g1TUJLakYwdW9wdHJwOFp3?oc=5) |
+| Newsom Wants California to Counter Texas on Redistricting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNZXVFaUkyTGR6eEhpTjRVaW1GV1pSc0l3MzA3aWhYQWt2bFdnY3lQTzczX0Fxd1Z5d2N4V3YxYmNTVmNGU2prd2ZxX05BNkJiMjczRlRweHhRbjZQLWdHbDRidWFxXzUtUnBvVjVwUVN3cHRzR1ZoanB1UkgyQnZJa1dCa1QtVHc?oc=5) |
 | Trump immigration raids move north to Sacramento: ‘No such thing as a sanctuary state’ - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQbFFlcHpoM05iZkQ3Qm8xMXItWUQ5ejM2NW1MVFZTZU1nZXdDUXNEdTNtRk5ObWlqdVJwTU5zRk1pd1F5X1QxdllVX3JVdzRqcC1uT2dZNC0tUS15bVctcDdpMTRvekQ0cF81MVVaY3ZDei1GUnBCcHVCUUlmTjFBWWZjME9mNDNVNFRBRnF2TEY2VFB4M05Rc05kTnlrR2JxQjZrU005MHFLdzNhTkJmY0diMTVpWmRVTk5FdjJJWlFHUkJ5d0gw?oc=5) |
+| Republicans plot endgame on rescissions package — and Epstein files - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNNkZhQzAzdDdFaXBVQnVQWUJSVW1hQlRtSjZfcy1BcmRyV0FadEpPY3BocVljWkgzZUNvd0hyME1jVkctTDVGNnFES0l2VVVNYnJqVmFJM0hhZzhYSTNPYlUzd3VOd2E5MzFudUVqdl9WNE91U0NfTi1PVkZLQ1psZEVyQ2xtRnVyVElQZ3V6dDdqVjdSUDB1SDB0LVJ1Yzl0SW42eVNn?oc=5) |
 | Felix Baumgartner, daredevil who jumped from the stratosphere, dies in paragliding accident at age 56 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNM05fSmtLLUFvd0RIeTBJV2o2RkM1Z3I2WGI5RVdvaHRwLV82RmY3cUlYTWQ1ZnliWDRqXzJWZDFNZExpTWEtM3hRQTdpZ1B5LWZEeU1KZ1FxUlg0c09rODk5a1JEQ005d2VZS0tTMWY1NV8yU2pIWXhFVnZJZWZmdG1UMkt1Tm85MGgxcXdQSEVVQdIBlwFBVV95cUxPT2owYlVVWl9HYmhRVVZlelMyTFdGdEFONUxmelpFSVlyVFZTb1FndWE0U0lxVXNpUUEtdXlfc2RXamlPcEU2MG9zNFI0R3NyWlExVjViUkQtOFN3OWhOdzdINXlIR0dRa0EwMllNbDZRbjU0eTRiSzdndHhqdC11MjdhUnIzcHZNQVFpZy00N0RXbmJZZ0Q4?oc=5) |
-| Scoop: Trump's new Alcatraz could cost $2 billion - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5td3Y1UXNIajczelJ1ekhUVDV5TFdsalJXUEs0bEhVaVlOdkJTYVVrUFd1YzJaRVFlSHFLa2JYNFczbThBWmZfZEZmcHJKWWhtQ2ZTeng5SUlDZnhTZUZ1RkwzR0xRa3Nual8ybkJOOVA2V09lOTZFdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
