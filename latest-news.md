@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月19日 04:54:01（北京时间）**
+🕒 更新时间：**2025年07月19日 05:00:24（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | House gives final approval to Trump’s $9 billion cut to public broadcasting and foreign aid - PBS | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxOZ01yb2wtNVczakg0MmRGQzhFZVFVb1V1RmNFakhacTFyLWc1dXBaTGloczdEb2d4UGd5anhpMGRCZklWSzlLNGVnUUx6el9QVEtnQXF6NTNkLS1uZ3JNek1pVzBqT2hvNVB1d3JNZmdTSm9UN1pkM3B5TFh6dDFiLWstSXRFcDQ5NDFpcEZwb2RXaXdycGVISUlWN2E1ZDByMUttYzVCYUoxN2c0RUhMZ283R1M1aFpsbG9jMDVyWTJ4UmhRMnfSAcsBQVVfeXFMT3VrYXVPWHB6ODJZcnV5VE1rNXJtQ1VXV1JpM0MwMk1Fb29vb0ZFYzRlelR6bV9qcnJjaTBITFFnQnBQTVVKV2ROTGU0VmZWQVNlakdNMm1FbHJ1NHdTbVVqMHdxdXM4aTc3ejR2MmtIUXJ5QmpNdnNtRGc2S2JUaUdOR3oxTVU4MDRtUlVtNWtFVHA2TG9sLUM2Z3BfWnBia2ttTDFxT3MyVlNiekF2dV9udlVNZlNlQ0FzTEhLb3FDM0NUSzFvZGZoZjA?oc=5) |
 | Republicans keep voting for bills they say they don't like - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNWUNlQTRkZ1YyeE5odGJDMF96dzJlZ1lCam0wN0V4dDhsdXlqOU1KdzBSSmk4OEFudlNTU0VtcVZKd0xHZmFiWmhQU3A0ZjNiMlNEOFJJcjJKYTRnX1Zka2JVcmhLelAyUGhMTTdDTWdCZVhSWjN5LWNLX2JFZXhJUkJnVjM2VFpiSHM4QXR0QU02N0RNeEQ3UFpneXjSAVZBVV95cUxOZWN1cy1Sa0J5czFZT3pSOER4LU1tWFNRRkJFZlREb3kzVEttbk9scHo1WTh6V01PSEkxYjBnQ05LSWVpRFoxLVhFUlJwVjcwZGRFbjE0dw?oc=5) |
 | New Evidence of Obama Administration Conspiracy to Subvert President Trump’s 2016 Victory and Presidency - ODNI.gov | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNaVh2Vm1EZkxQajZWMlRHbDczRzJfbG5MVDRPajRRQUdCLVBSY0xfMG1STjM2SnRhOE0yX0hNVm1tSmJOcGs1ZnVrTEZ6Z004LXN3eDRRZE81a21tcHNvUkR4bkhPTTRDb3FjdHYxQWw1ZGtQc1JGSEZUak1UMVpLaUhQUlgwRHJpUmEyS25JR0g?oc=5) |
+| 17-year-old charged with murder in paddleboarder’s killing at a pond in rural Maine - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNYjJWaVotekp2UUgtbkVSOXdyUTZmYTF0RmpvRkc2VUFmdEIwUnI2ZS1EUVJIWUxadzhKUzJpdG0tc3V4MjZZb3VlTC11a1phSVRvaGJINF9TQ2lqWDhIbmtOVzFnLWpJSFUwb005WldQYm1wWHdRdU84Z29DQW80TXdZbG9lQlhxNlFaT05ZSHNId2VHY0JheWVkTTM5THM?oc=5) |
 | ‘Five-Alarm Fire’: Texas Dem Sounds Off on Trump’s Bid to Gerrymander Midterms - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQMnNRLWNlUnNJX3JxQi1WZzU5aUQ5emtOT292aTQ0YmRScDltbHVCSUd5d0xYTno3cTFtTGJQZDVUaEpUMkJDY1NxdmxZRUxqMDU2Q3k0SHpBb0JydldYRlNvQmdtak1tUUJPd083dFh5bXd4a1NjVExRZU83ODJ1RGlsbXlVM0pvQVhncXRDY0pDcWxENFlGS050NHlVLUVoYzVNLUxTWU5qaGI0X1VTc0ZtcVZxOVVXRE5XQzJR?oc=5) |
 | Mamdani and Jeffries finally meet, but no endorsement yet - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQaW9jckIxZmYwMlJ6U1lyQzRlVGRwbVFtQVRib1VZTEJiVFlTRVdfZWgzLTRHV0xtdm1sTi16bXNMVlpyN1pJR25jWkhvZ3pJRVFYWUltb1lyeUVwY0xTbDZuaGNnLUwzMnJXUTNDRUhPZXJJTkRkRWUtU0c2YzMzZg?oc=5) |
-| 17-year-old charged with murder in paddleboarder’s killing at a pond in rural Maine - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNYjJWaVotekp2UUgtbkVSOXdyUTZmYTF0RmpvRkc2VUFmdEIwUnI2ZS1EUVJIWUxadzhKUzJpdG0tc3V4MjZZb3VlTC11a1phSVRvaGJINF9TQ2lqWDhIbmtOVzFnLWpJSFUwb005WldQYm1wWHdRdU84Z29DQW80TXdZbG9lQlhxNlFaT05ZSHNId2VHY0JheWVkTTM5THM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
