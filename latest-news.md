@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月19日 02:13:59（北京时间）**
+🕒 更新时间：**2025年07月19日 02:27:45（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | ACA health insurance will cost the average person 75% more next year, research shows - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQX1ozQ0FRMUpTT29saVI5bGl4cXA5clZLWjVrSTRCYjJsSDl3dFp2ZXpPYnNNTHUxZF9OMTZwUUVaRVozZzhLT1RkU18wMUItMzB0Q2lPMFY3ZUlsZE9ZWlJ2V0o5ai1iMTN5QzJzMnV6TmhqZEZCVmJlRHh4WUpkTkN3SzFPRVcxNmVCUmVFa3hGS3BXYnBmVndXQ2UxUmp0MXhSVk1tNk5UNU9OZDN5S0RpMjJUR203ZE5r?oc=5) |
 | What is chronic venous insufficiency; how serious is Trump’s condition? - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNMXkzajdrUW9UYVNOQkoyWTJGSmVsQm1jWEVRMUlVYlZrLTBqMHNBUHppeU91UWpJRmtBdTVodU5DTzBOdFAtTkxPTFZkYXFETFRUU25yQVp5eVdGNmVranhrTFlSRkEtZ2lIT0tHdzdoREhIN3VkRmFEX2FsN3JPdjdpcmtfeGRQcmdkT3ZPMVdpdDE3VXo0bTl6c2VVZlFnZ21PVXRqN21sLU5hN1HSAbMBQVVfeXFMT1RVWERLMVlrX05uQktWOW15bG5OMllnbGZfMUM4a2RzVkJmRnZkM2dJRXNIOGNOVmVSZHQ4N2R0Nll6TFZWZGdNVzQxNVFwck13XzktRGdYQW1TTzdUMHlwSTI5VG84dVhiRmx5NVgzaENnOFJTOVNYT1laakd0enhiS1EtRkRlYXRnbHZVY0ZIdUI1YTZBbmRiOUx6aC1VZldBY3RYOFM4OGpZN2kwdW9TN2s?oc=5) |
 | What the 'One Big Beautiful Bill' will change for students, schools and colleges - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9oa19qTVJLa1FIeEt1RW5iaWxNdDhMeHNnX05UbTZ1LXJfQ3U2LUdKYXVEVC1EZWlSSkNBSEp1M2Uyd19mVE5FcHdFVmtyTlRzbnBxYmdxLTBLQU1wN2lqSDRWdUd4UlhFLXFxVTBXYy1BeUQ4NWk3X3ZrUk5SZw?oc=5) |
+| ‘There is no sanctuary anywhere:’ Border Patrol raids come to California’s capital - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1mek5ybEp5R2NGSFVrVmxXMWhpNkFHTVFjT0FuZ0RudnFLaVNxbU4xTWdsTE9mVnB1dEtKZmt4aG9DdU9UTlpwNzNjVzItNl8zVkhaZW92U2xnQWJ0RGl2eU5zdGhiMXY0SHZVMGg3TWppNDJEbzRfcFNB?oc=5) |
 | Senate Dems protest committee vote to advance Trump's judicial pick - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQVVN2d0JEYlo4NWk4Y1o3ZWF3N3NtNFk2S29sdFJ1VlRZTnBRRGZKVlJsbEtCRWFBMGJGVnlUSi14R2NDc2dPVXlLR24tV255V2lrZTRjQVhoa2cwTFdZUEpFanRFRHBTazltMDRzcGJKekEwZU5jM2ZUUC16VVJha1hOUmtGV3N2NEQyZkFuMGJPbHoy?oc=5) |
 | Felix Baumgartner, Skydiver Who Jumped From the Edge of Space, Dies Paragliding at 56 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOR3Z0eGtmcVNuVlZBbHFJUmVxUVNBakRpblN2U1lacUU1d3RvVkdWREpvSGkxeWhFYWxWQktqWHVYU1RGUUxBbnV0T0trZ0dKX0ZTU1ZEeWIzZmh4c29NR2RQNFA0cVJmNTBPTDhLU3dmcmNfQXFGMWZWb1R1dDRDRQ?oc=5) |
 | Brazil police raid ex-President Bolsonaro’s home, fit ankle tag, citing flight risk concern amid criminal trial - CNN | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTFBPbHJ4OUxzTmZLSjEzeWVSanJyeW5aRDRicnliUFFtZDlZRjVGdndvVGV6NG0xTFVuWEd1TUJLcHZyMlItbDVaUExRRXF3U1NfdWdvdUllWjBGNFJXUWZxbTZHaGxpNjQ4Q2VwNHd3?oc=5) |
-| Trump immigration raids move north to Sacramento: ‘No such thing as a sanctuary state’ - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQbFFlcHpoM05iZkQ3Qm8xMXItWUQ5ejM2NW1MVFZTZU1nZXdDUXNEdTNtRk5ObWlqdVJwTU5zRk1pd1F5X1QxdllVX3JVdzRqcC1uT2dZNC0tUS15bVctcDdpMTRvekQ0cF81MVVaY3ZDei1GUnBCcHVCUUlmTjFBWWZjME9mNDNVNFRBRnF2TEY2VFB4M05Rc05kTnlrR2JxQjZrU005MHFLdzNhTkJmY0diMTVpWmRVTk5FdjJJWlFHUkJ5d0gw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
