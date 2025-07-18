@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月19日 00:41:00（北京时间）**
+🕒 更新时间：**2025年07月19日 00:52:46（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Brazil police raid ex-President Bolsonaro’s home, fit ankle tag, citing flight risk concern amid criminal trial - CNN | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTFBPbHJ4OUxzTmZLSjEzeWVSanJyeW5aRDRicnliUFFtZDlZRjVGdndvVGV6NG0xTFVuWEd1TUJLcHZyMlItbDVaUExRRXF3U1NfdWdvdUllWjBGNFJXUWZxbTZHaGxpNjQ4Q2VwNHd30gFzQVVfeXFMTkkxRlFDVDBaSm9JUXZNNGtzLThuRkhicUtCUUhUZG5UUDZNb3NIeVhkbURhWXBvZUpYT01KUmlQVnR1OHFRRTN4QTUtNWVfbS1TVllfUExUQ0JnLTVjT0MzSGd0TjFxNVRPVnZzanhPWW5raw?oc=5) |
 | Trump rails against ‘NOTHING’ Epstein case after WSJ report - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQQVd6N281Vml4R2Jkb2JaUFF1RmZYRjRQei1ITlBUc0QybkxxWS1CLTJWV0JaRmtIVW9xU3diUENlOHk4eDRZMS1mdE1TYjN3amExVEs5YVFJcHVEMDFvWVU0amtBNm40UXhwdk5ZREJNXzJueTI3SW0wZnJscG5IZ3ZMYXphM0NwVmtr?oc=5) |
 | ACA health insurance will cost the average person 75% more next year, research shows - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQX1ozQ0FRMUpTT29saVI5bGl4cXA5clZLWjVrSTRCYjJsSDl3dFp2ZXpPYnNNTHUxZF9OMTZwUUVaRVozZzhLT1RkU18wMUItMzB0Q2lPMFY3ZUlsZE9ZWlJ2V0o5ai1iMTN5QzJzMnV6TmhqZEZCVmJlRHh4WUpkTkN3SzFPRVcxNmVCUmVFa3hGS3BXYnBmVndXQ2UxUmp0MXhSVk1tNk5UNU9OZDN5S0RpMjJUR203ZE5r?oc=5) |
-| Trump immigration raids move north to Sacramento: ‘No such thing as a sanctuary state’ - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQbFFlcHpoM05iZkQ3Qm8xMXItWUQ5ejM2NW1MVFZTZU1nZXdDUXNEdTNtRk5ObWlqdVJwTU5zRk1pd1F5X1QxdllVX3JVdzRqcC1uT2dZNC0tUS15bVctcDdpMTRvekQ0cF81MVVaY3ZDei1GUnBCcHVCUUlmTjFBWWZjME9mNDNVNFRBRnF2TEY2VFB4M05Rc05kTnlrR2JxQjZrU005MHFLdzNhTkJmY0diMTVpWmRVTk5FdjJJWlFHUkJ5d0gw?oc=5) |
+| ‘There is no sanctuary anywhere:’ Border Patrol raids come to California’s capital - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1mek5ybEp5R2NGSFVrVmxXMWhpNkFHTVFjT0FuZ0RudnFLaVNxbU4xTWdsTE9mVnB1dEtKZmt4aG9DdU9UTlpwNzNjVzItNl8zVkhaZW92U2xnQWJ0RGl2eU5zdGhiMXY0SHZVMGg3TWppNDJEbzRfcFNB?oc=5) |
+| Felix Baumgartner, Skydiver Who Jumped From the Edge of Space, Dies Paragliding at 56 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOR3Z0eGtmcVNuVlZBbHFJUmVxUVNBakRpblN2U1lacUU1d3RvVkdWREpvSGkxeWhFYWxWQktqWHVYU1RGUUxBbnV0T0trZ0dKX0ZTU1ZEeWIzZmh4c29NR2RQNFA0cVJmNTBPTDhLU3dmcmNfQXFGMWZWb1R1dDRDRQ?oc=5) |
 | Senate Dems protest committee vote to advance Trump's judicial pick - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQVVN2d0JEYlo4NWk4Y1o3ZWF3N3NtNFk2S29sdFJ1VlRZTnBRRGZKVlJsbEtCRWFBMGJGVnlUSi14R2NDc2dPVXlLR24tV255V2lrZTRjQVhoa2cwTFdZUEpFanRFRHBTazltMDRzcGJKekEwZU5jM2ZUUC16VVJha1hOUmtGV3N2NEQyZkFuMGJPbHoy?oc=5) |
 | Texas' Paxton Threatens to Arrest Democratic Lawmakers If They Flee to Block Redistricting - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPUmpIS3puM0Z3SE91Y3JZbDhhbkdZTndBNWRTNk02ZlI2a291X1Vfbnc3aHRPMjBaNTRMQWxoUURMTGUwbXpBUHBsRWJqWjdUckhCdUhXRUVQVXZoYnlIZzExbUdOOFpOTHlCbFNUODV6aHlFT0ctNFV0bFNxMkROX1dZNVBkS2RkNjhxSFozZHkwQjktUG1jVmgwUjBGallHT0g1TUJLakYwdW9wdHJwOFp3?oc=5) |
-| Skydiver Felix Baumgartner, who broke sound barrier in 2012, dead at 56 after paraglider crash - Yahoo Sports | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxQMDhld3NzQjFlNDVjQ0xDb0R1TlJFa09jUG1WenpHQ2hkMEM3X2FzVlpyQ0JkNHhnNC0xbkp1NmtjTGhpTEFuN2pQSzMyMUxXcF9ELVA2clhvU29obHBDdHBoTl8tNFpsX0Q3eU03M2xPa1ZXV19aajV4WWQyNGVzOHRacHNPZEduOU5TUnMtV1JoSTdOOHIzNlBhRFRXbEh3VUhZQnFBUG9nZ0xHeVV5STdvUTI2dENuNWpaWnlGV1llYi04LWdfWFZEaFZFd2hvaXFDWWVKMA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
