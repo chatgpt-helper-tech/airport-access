@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月18日 16:53:10（北京时间）**
+🕒 更新时间：**2025年07月18日 17:01:19（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | Serious pollution incidents by water companies up 60% last year | [阅读全文](https://www.bbc.com/news/articles/cg5zl75dmm0o) |
 | Germany's Merz tells BBC Europe was free-riding on US | [阅读全文](https://www.bbc.com/news/articles/ckg6v0pk964o) |
 | England fight back to beat Sweden on penalties | [阅读全文](https://www.bbc.com/sport/football/videos/ckg3d72lzyro) |
-| My focus was on saving lives after Afghan data breach, Shapps says | [阅读全文](https://www.bbc.com/news/articles/c39ze7mrello) |
 | Unique 1.5m year-old ice to be melted to unlock mystery | [阅读全文](https://www.bbc.com/news/articles/c5ygwd6yj28o) |
 | Kill Russian soldiers, win points: Is Ukraine's new drone scheme gamifying war? | [阅读全文](https://www.bbc.com/news/articles/c80p9k1r1dlo) |
+| My focus was on saving lives after Afghan data breach, Shapps says | [阅读全文](https://www.bbc.com/news/articles/c39ze7mrello) |
 | 'Trusting The Salt Path author was our biggest mistake', family says | [阅读全文](https://www.bbc.com/news/articles/c80p2pzgpmgo) |
-| Obvious Labour leadership wants me out, Diane Abbott tells BBC | [阅读全文](https://www.bbc.com/news/articles/c4g8v33g1dgo) |
 | Trump orders officials to 'produce' more Epstein documents after mounting pressure | [阅读全文](https://www.bbc.com/news/articles/c9w1014rlq9o) |
 | Buy now, pay later affordability checks to come into force | [阅读全文](https://www.bbc.com/news/articles/cwygjvd67plo) |
+| Relentless immigration raids are changing California's way of life | [阅读全文](https://www.bbc.com/news/articles/cpqnpwrq1l4o) |
 
 ## 📰 Google News
 
