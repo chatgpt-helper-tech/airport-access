@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月19日 14:27:49（北京时间）**
+🕒 更新时间：**2025年07月19日 14:40:56（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | US tech CEO suspended after Coldplay concert embrace goes viral | [阅读全文](https://www.bbc.com/news/articles/c80pnnn0gj3o) |
 | Thousands of Afghans won't be compensated by UK for data breach | [阅读全文](https://www.bbc.com/news/articles/c20pd5035vyo) |
 | Premature babies to be immunised against winter virus | [阅读全文](https://www.bbc.com/news/articles/ce8z5ndy6zpo) |
-| Wayne and Coleen Rooney made heroes of Lord of the Rings spoof | [阅读全文](https://www.bbc.com/news/articles/crrq1ldey05o) |
+| 'Gangsta Debbs' - the granny who used her family to run an £80m drug empire | [阅读全文](https://www.bbc.com/news/articles/cqx27w1dwe9o) |
 | Is this the death of the late night US chat show? | [阅读全文](https://www.bbc.com/news/articles/cwye2w5n5q8o) |
 | Wasps are back this summer – a lot of them | [阅读全文](https://www.bbc.com/news/articles/cz7ld2jgqz2o) |
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Trump files libel lawsuit over Wall Street Journal report on Jeffrey Epstein’s birthday letters - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNampDV0tGcUhrSjRzV25iOHZVNUdkb1lQWXZHTVh3YnNsSTRvSlljVGpSeEU3U19xS0E2ZHVaQlZMWGszT1RlWDdKM28tWWh1b0VaX2FMNk5QYXFMcjhLay1oeHNJYzlyek82eFktTXdrdXRJM1RzSkhxMlJ6ZnI4UzEwbzVKWDAx?oc=5) |
 | Trump may not see the Epstein grand jury records for a while — if at all - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOVl83Q0VOOEVFWDVYXzJEMHZXcy1OaXRsdGlSYUdVNl9id0laZTdUTkR3NWtCbzNKY05Bb3VDNVQzY3kwcU9Na2F2Z21pR3RkTnJXYUZad19MajYzRGpNV2U2c2Z2aUlnUUpZRGkwNUE3dy1WMUlweFNEZzVUeHV2UGczX0ZjQUFLcnBONGRYdE8ya2llUHc?oc=5) |
-| U.S.-Venezuela prisoner swap frees Americans for migrants in El Salvador - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOSGU5SXNQTktXbnJKVFBIdUJEbkhfWG00T1k3VVZIOXJzd2g0Umh3TndOMVBSTnoxMy1XaTZEMjExOXZxZGZOWGxCNkViR0Z6MzYxZWRsT3NaME1EVThSa3pWMTduejVQTmQ0OHpWd092ekpBYTh4aXZpZ3hGRUxncGNZSlVkVjBYZVZwck51M250bV9xTmlNcWQzdmhPa3FDLXVV?oc=5) |
+| What we know about the Americans freed in a prisoner swap with Venezuela - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNeHhMMjRlWUlmNDFWdGhjM0dpY0tuOHh6Q3BnbllYdmNGX3pjOHhTOEdoVVBHekVOelBjLVJFRGhXZTRMVFA4Qml2OU82UU52MkF3ZVpNZlcwWEZrN2FlYnRhTkxlWHNCSlh5WnFGT3Jvb0FPQnJuTzJGY2xRbGNrM2VZZFFFOUljcUFNNzIzWTdQYm9qTWhz?oc=5) |
 | Explosion kills 3 LASD deputies in East LA; Santa Monica investigation possibly tied to blast - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxORFplWW9mSDNWakM0WmwzWEdDTUUycnJ0SzRJa0puNkhyTjZoUEpUaThhVjlkWFp1SFp4bDlpTTJ3VVpKdmstUWhfbTFfcWlkWTJ2NTRob2hGWS1CU2VKUEJ6czgwcm1xVU5LRnJnRmVITE5HamhjYkZvOFZET3ZxaVdEbmsxVF9jRk1WTENQelhTb3dYbGZhYjcyOGN4QkVvaTBn?oc=5) |
 | Syria presidency to send new force to halt clashes in south - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5pUVRWTEVXRlZYMzZfRTQ1SWU5dUdpZFI3Q25sT1RxdlRnT0FJRno3LUFOVGYwbkV1VW1BcXoxanRod19nMUU1WGtuT2M0QXhGRlNEdXhzNmpld9IBX0FVX3lxTE9tVHc2SmNGLXpGQ0h1SGI4LUFvMFliUHdKcGtQY2FrbmhQZHFWUU1aYlFZbUpVOTR4Tks4Y0ZfSUR6ZjJEaG5QVk5VSTZFYW1udGIyV3dNWU9NYk82SVY4?oc=5) |
 | FBI asked to "flag" Epstein files that mention Trump, senator says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE0zNGktaUhtNnBBbW9WWUlMNVAtZzhTU09BZFExUXBBMXZnUXlRUUdaUE5QSUhYVzRsT3dOdURrM0R6QjhiUWFMWmtqRzdjSEZEOWdkQS1QdVR0aENEZzluVVJXOXhzT214LXM2c0ZvWFZRZVR1NFdV?oc=5) |
