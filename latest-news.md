@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月19日 23:01:16（北京时间）**
+🕒 更新时间：**2025年07月19日 23:13:17（北京时间）**
 
 ---
 
@@ -9,12 +9,12 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Syrian presidency announces ceasefire after deadly sectarian clashes in south | [阅读全文](https://www.bbc.com/news/articles/c0m87d4p9gvo) |
-| More rain and thunderstorm alerts bring flash flood threat | [阅读全文](https://www.bbc.com/news/articles/c8j1nvp9440o) |
 | Dozens killed by Israeli gunfire near aid sites in south Gaza, Hamas-run ministry says | [阅读全文](https://www.bbc.com/news/articles/ce3n04w19qlo) |
 | MasterChef crisis: Wallace and Torode were 'never friends' | [阅读全文](https://www.bbc.com/news/articles/cj9vgwr48gwo) |
 | Who is in charge? The prime minister's authority is in question again | [阅读全文](https://www.bbc.com/news/articles/czxwe3g4wl5o) |
-| Trump sues Murdoch and Wall Street Journal for $10bn over Epstein article | [阅读全文](https://www.bbc.com/news/articles/c23g5xpggzmo) |
+| At least 63 arrests at Palestine Action ban protests | [阅读全文](https://www.bbc.com/news/articles/c20rvdexj8jo) |
 | US tech CEO suspended after Coldplay concert embrace goes viral | [阅读全文](https://www.bbc.com/news/articles/c80pnnn0gj3o) |
+| Several dead after tourist boat capsizes in Vietnam | [阅读全文](https://www.bbc.com/news/articles/c5ypd6vr4e7o) |
 | Fantastic Four and Pokémon Presents: What's coming up this week? | [阅读全文](https://www.bbc.com/news/articles/cy7n3epl1yxo) |
 | Wasps are back this summer – a lot of them | [阅读全文](https://www.bbc.com/news/articles/cz7ld2jgqz2o) |
 | 'Gangsta Debbs' - the granny who used her family to run an £80m drug empire | [阅读全文](https://www.bbc.com/news/articles/cqx27w1dwe9o) |
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump meets toughest opponent: his Epstein-fixated base - Axios | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFB2YktFVE9WXzZmSjJzVHRXYnViWVNNSTB1X1RseVZiVFFVOGE4QVhlQk1ybHRWTk9TZkZZSTZ0aWhGVzI1Y2tQdUJER1dYdklQZ2hVd214SWJscHNRMjVxb3VMNG5hWUpldjlyZzFDbVpZdVE?oc=5) |
+| Trump DOJ order on Jeffrey Epstein could create legal and ethical challenges - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxOcTdKUUV2SnZ4MTdiRGh3aU1FR1VkdFlLN0lpQmhmaldWNTMyWER3NTdCcklTakVXbWd4TXBCTEJLa05zNzJ4UlMwWEZWSUtEd2Q2VnNaRFhTUnR0WnM4UDQyMXBmLUpCdXRGZ1NOMHRJbVhJMGtQQ0tYd0w1RV9pSFp4OTB6YWlZRDRhUXVRRllJOXV3ZVNCNjQta3czZzZibHVUaTdoOXdaWDh4VDNIdzlFVFZmeG4zRUhhS9IBVkFVX3lxTE1DRWRCUW90cXRSV2dFdWNPR3A4SVVobDlWcDkycDFIRTZzUXJkYkVNeE93eUdZLXFTcjBSbFk1NWszMWZuby11bXlvbVNXemlzcnFZY0RR?oc=5) |
 | Suweida: Syria presidency announces ceasefire after clashes between Bedouin and Druze - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5pUVRWTEVXRlZYMzZfRTQ1SWU5dUdpZFI3Q25sT1RxdlRnT0FJRno3LUFOVGYwbkV1VW1BcXoxanRod19nMUU1WGtuT2M0QXhGRlNEdXhzNmpld9IBX0FVX3lxTE9tVHc2SmNGLXpGQ0h1SGI4LUFvMFliUHdKcGtQY2FrbmhQZHFWUU1aYlFZbUpVOTR4Tks4Y0ZfSUR6ZjJEaG5QVk5VSTZFYW1udGIyV3dNWU9NYk82SVY4?oc=5) |
-| Vehicle driven into crowd in Los Angeles, injuring at least 30: LAFD - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQVm5ENGlfUUNOSVNMcTVwQXcyZFRyZFpmaVdlbEJLOHJhWTBYTlFxUXBSYU9tdEFXQ3YwM2JKZEtNaE9Pdl9KVnNjS2xsNlJxWndRQ3hycUV2VWlhRGhQVjBRWGQ5WkIxSEpBYmNDQlJZU1lSeHlGb1ptOElnNDFSTTJXSWVZUWNvemk3QzBOeGU4enBSWXQyVEdsaTdRdjExM1FWc1ZNaUJHaVdsRXNn0gG0AUFVX3lxTFBpcmRueTNUWXNKVVBJTjBqYWlWQ0VaTWhzN1R4RnFFSWl2YjhmSTZLTnZiVTlvTlBtRlRiZl8wMWVtRUJNbTF2RFFpVEoxT3dHREV1OVRnZVZiUzJLQmhOcnE4TmhQMnNHb2o3dmVlT01tUlJ4b3d6X2NQVzNNOVhqV0tPaXdjUThiX05OVnBZaFhqYURUcjl4RXJtM3pwdzFjSXVRZ2dsMnJUTDV1d1JpVDVBRQ?oc=5) |
+| A vehicle drove into a crowd in Los Angeles, injuring 30 people, including at least 3 critically - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPcnpBWHdWRlRvMjRGeml5azhoTnA2Z2I3SFRUcFNZR1c4dy0xQzNsal9iQTlHT3JrZV9weVAtbkRXazR5Z254MWZRVUZoeGVJMElDQlhSWndtSlV5dWl5c1p4RmtHd0U0eHhWemNQQUNjSm1EVlpmdHhDenJSTHJsU2xaVDhWWnhRakNlSTl6YlNpckRabmRRR1Z0TQ?oc=5) |
 | 3 LA sheriff's deputies killed in explosion at training facility in department's biggest loss of life since 1857 - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNRjlSLWtwczlfUlRZU1Uwbko3THU2VlhGZE9nM29PQ2NwRG44cTVoRnd3Vm1Nd09RczNKTWNMNi1Ec2RJMGFQWUFDTll1VGRMVUl5TmpNbm94VFRVQkZOUWVhUzZEVGtFaHp6aHp6Z05xYW8tWGpCbXY1OEs0Z1B0SkdjNlpkTWtjZ1lBVjY4Zl94c0gyNzFaVkpoRVdFQm5kU1NfQ0JKb0LSAa4BQVVfeXFMUFN4Y3FnWWtMeVV3amd5dlVOQ1NvQ0VBUnA1ajF3eVl4MGxBYmZZajBIYTYtV0lfX3czUGVNLXdpRnphc2JORVhyVDVJR3d0RjNFc05RYTJ4ai1MMm0wWVc0ZkhDamN2a2RtbFZ3Y2lVMkdyV01qeExSN0g0c2hjUDFjMjJJQXAtcVRHeUFwcWRmLUY2Nl94SDNldGVGbzVISnpDdUY0d0tWT2U5TEpR?oc=5) |
 | Trump files libel lawsuit over Wall Street Journal report on Jeffrey Epstein’s birthday letters - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNampDV0tGcUhrSjRzV25iOHZVNUdkb1lQWXZHTVh3YnNsSTRvSlljVGpSeEU3U19xS0E2ZHVaQlZMWGszT1RlWDdKM28tWWh1b0VaX2FMNk5QYXFMcjhLay1oeHNJYzlyek82eFktTXdrdXRJM1RzSkhxMlJ6ZnI4UzEwbzVKWDAx0gGOAUFVX3lxTFBKX3lacG9OMjVkV1hRdFhILTdZZEpOaDZYTTJpbldsb2ZMZlNRR3g3bWRjYUp1SVNJcGpjM1VUZ1M0bGNXdVRud3ZFUVZ0ODJjcXV4ZjRGZXA0b0tlRk44N1UzTklqTURBZkFCYVVLVjBVTDdrRHdEd0g0Nm5VN1NWODBJc0s0OUFtem9yUmc?oc=5) |
 | More than 30 killed after Israeli forces open fire on people seeking food in Gaza, health ministry says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQNUVYNTlQWGlPUW5wbXpzaldSZXI0NF83M2JzOC1QSWpuTTIxaG1ZU1htcnR0N1pwZWVPMHA1d2J5VDlVcDhjbnRoTEdnc3VvZ1VHYVM0TDZvSFVUWlQ1djRsQ2tQeEY3QnEtY0QzcGg5cHhQQ0haWGw1Y204QVhWZnJ30gGHAUFVX3lxTE91QlA4Z1RoRVg2dUc2Z0tjc3FRMEVtMVlsZWlFVWV2Uzh0NkRyOFR6NkZEbzVxRHl2RVlZOGhvbGcxdVJ4Q2FWMkt0SVdHU1laV1JOWUFvV0xKU080eTRxVk9HR3ZRVlZJNUtsSm9sY2hBMG1ycTBncVhGNmt3ckVpS0hPZjRwaw?oc=5) |
