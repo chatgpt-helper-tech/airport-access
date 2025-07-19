@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月19日 20:00:45（北京时间）**
+🕒 更新时间：**2025年07月19日 20:14:54（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | MasterChef crisis: Wallace and Torode were 'never friends' | [阅读全文](https://www.bbc.com/news/articles/cj9vgwr48gwo) |
 | Several critically injured in LA after vehicle driven into crowd, emergency services say | [阅读全文](https://www.bbc.com/news/articles/c873vd3y007o) |
 | US tech CEO suspended after Coldplay concert embrace goes viral | [阅读全文](https://www.bbc.com/news/articles/c80pnnn0gj3o) |
+| Fantastic Four and Pokémon Presents: What's coming up this week? | [阅读全文](https://www.bbc.com/news/articles/cy7n3epl1yxo) |
 | Wasps are back this summer – a lot of them | [阅读全文](https://www.bbc.com/news/articles/cz7ld2jgqz2o) |
 | 'Gangsta Debbs' - the granny who used her family to run an £80m drug empire | [阅读全文](https://www.bbc.com/news/articles/cqx27w1dwe9o) |
 | Why the Epstein case looms large in MAGA world | [阅读全文](https://www.bbc.com/news/articles/cy8ge16d2y3o) |
-| Is this the death of the late night US chat show? | [阅读全文](https://www.bbc.com/news/articles/cwye2w5n5q8o) |
 
 ## 📰 Google News
 
