@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月19日 11:53:27（北京时间）**
+🕒 更新时间：**2025年07月19日 12:00:23（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Trump files libel lawsuit over Wall Street Journal report on Jeffrey Epstein’s birthday letters - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNampDV0tGcUhrSjRzV25iOHZVNUdkb1lQWXZHTVh3YnNsSTRvSlljVGpSeEU3U19xS0E2ZHVaQlZMWGszT1RlWDdKM28tWWh1b0VaX2FMNk5QYXFMcjhLay1oeHNJYzlyek82eFktTXdrdXRJM1RzSkhxMlJ6ZnI4UzEwbzVKWDAx0gGOAUFVX3lxTFBKX3lacG9OMjVkV1hRdFhILTdZZEpOaDZYTTJpbldsb2ZMZlNRR3g3bWRjYUp1SVNJcGpjM1VUZ1M0bGNXdVRud3ZFUVZ0ODJjcXV4ZjRGZXA0b0tlRk44N1UzTklqTURBZkFCYVVLVjBVTDdrRHdEd0g0Nm5VN1NWODBJc0s0OUFtem9yUmc?oc=5) |
 | Prisoner Swap Frees Americans in Venezuela for Migrants in El Salvador - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPZGNpU0RFNG5VdWd1OGVoTFhrTHpISnNHcmlqb1l3SndpMi0yNjZKV0JGLXBDWUNCemFZZHJXRFFybGtfd0VSME1DRmpsZ2ZXOFNteWpJbUhjU3VZTy12WGw0RV9aSVRlekRleGZzX2JtaWVKejJ4Q0ZmYlBtaFB2Wl9zTE9ReF9DRUszaDFUQTdlRWRYTTUzQllHT1g0ZExSWWxmbw?oc=5) |
-| 3 deputies killed in explosion at East LA Sheriff's Department training facility - LAist | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOcnNlSm1MZmZhSjM4b0tYMWh5M3U3Sm5hLUs5M3pkNzN3bkpaUF9KQjFqbnA4X2Y3VWdxNXJBMFBjUG9QVFBZdTh5aVJDUlRJS3VnSDVISmdrVVZzMUZ5ZUp6RF9UYmZKd0tUMnBvTXJnRV9YeEVEWWJkX0RsT3NJdmVLSmFQU0NJNWU2YTJZcV9xS0VGYXIzdU9GUzNrT1l3ZVhFMDMtaw?oc=5) |
 | Trump may not see the Epstein grand jury records for a while — if at all - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOVl83Q0VOOEVFWDVYXzJEMHZXcy1OaXRsdGlSYUdVNl9id0laZTdUTkR3NWtCbzNKY05Bb3VDNVQzY3kwcU9Na2F2Z21pR3RkTnJXYUZad19MajYzRGpNV2U2c2Z2aUlnUUpZRGkwNUE3dy1WMUlweFNEZzVUeHV2UGczX0ZjQUFLcnBONGRYdE8ya2llUHc?oc=5) |
+| 3 deputies killed in explosion at East LA Sheriff's Department training facility - LAist | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOcnNlSm1MZmZhSjM4b0tYMWh5M3U3Sm5hLUs5M3pkNzN3bkpaUF9KQjFqbnA4X2Y3VWdxNXJBMFBjUG9QVFBZdTh5aVJDUlRJS3VnSDVISmdrVVZzMUZ5ZUp6RF9UYmZKd0tUMnBvTXJnRV9YeEVEWWJkX0RsT3NJdmVLSmFQU0NJNWU2YTJZcV9xS0VGYXIzdU9GUzNrT1l3ZVhFMDMtaw?oc=5) |
 | FBI asked to "flag" Epstein files that mention Trump, senator says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE0zNGktaUhtNnBBbW9WWUlMNVAtZzhTU09BZFExUXBBMXZnUXlRUUdaUE5QSUhYVzRsT3dOdURrM0R6QjhiUWFMWmtqRzdjSEZEOWdkQS1QdVR0aENEZzluVVJXOXhzT214LXM2c0ZvWFZRZVR1NFdV?oc=5) |
 | Minnesota lawmaker convicted of felony burglary for breaking into estranged stepmother’s home - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQOVdJNUpWcHl0YnprTnBDajNxQzJUT2tHQXdFYUp5WnlRZVZQQ3Rwc1c2NkF0Ulg3VzBDRWMxNUJNT2NJU2FsY2l6dWhqdkpMN3ViazhqNThSekxvN3NUT2JyQ2tVc2gxN3lFR1BZa0cweE5oM3ZGSjl6SWtCREpqcnJqMUhqUnlKMkxUaXhOUXlsU28xYk1nbzN3SVdvX0ZHTnBNWXRtMG9reHQwM1hEeGo5eEdZQQ?oc=5) |
 | Texas Republicans might redraw congressional maps. Democrats plan to strike back - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNRThYT3ZvYUtLQi1nOVNTVThNek5HZnNnRkpSY2FORkh4emtxV0cya3hYSHc1VjUtallsRHlkOU8wTXhzNTRNVFd3X2J0c29SNlRDMzJjR1hwaUktU0dNdnNFTUtkbTB0ODdzVk11R0U1YVVtSjlIRE9mNU50LVMwTUotVXB1MkY5QzFVcWlSMGhGWV9KbE80c3dJUTNHdjA1SGt3dzlDdjVMUGszYU96YkxaTTBYWVnSAbwBQVVfeXFMTnVQdndyeWVPd2J0UTAyLURXMlJSVUUwRzZrMjZkVG8zWTRxalBDZkNGcVNlUW03T0tCR3dITUZIZU4wUmdQalZocW1OZmtreHczaFo4WVhSdWpaVlVOWmRhQ3FjR0FCYWdNdFlKNW9TQ055ZlZNTjBBRTF5N01VYm92SldJVmdwN3lLMThhaUdaNk9Ya3JoZFM0RFg2TTFaVjhRS0dNSVJURzZWbnViTUc1QnM1RHZhMFlfSDc?oc=5) |
