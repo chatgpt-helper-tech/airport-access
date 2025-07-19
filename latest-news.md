@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月20日 02:26:45（北京时间）**
+🕒 更新时间：**2025年07月20日 02:39:47（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Gabbard threatens Obama officials with criminal referral over 2016 election assessment - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNQVk5dlJlZ1RhenhrWjZHc0hySVlQeUhkWGVRcjZORDZnRXZMVzdwMm5LNTdJQ01NcVVhNGJIYm1NWEFCclhfcEx0dk5YRUxxWEJaWkNXajNWU3p1MjQwbWFnbXp1ODN2QXhfbmV1RUJ0RVo1RmFwelN5VWVxdVppQkRHUFVfRHF2b0IxejdOdG3SAZYBQVVfeXFMUHBZUmhjMW1SU3dpRFBMaXN4QU83VEtqMjQ5UTd3UkRLTWtrOUwwaEdLbU9xc3I2ZlcyYlVZVEQwSEN5UWZpdEZvaWtFMEc2Rm9jNXRsSlpzZ09xcV9LVVppdW52a0kzeS1jWm1JSTl1Ql9UX0swRUhHdTBJT0dKOUxmOTZiZXFCaE1wX2FwN29WU2djcFBn?oc=5) |
 | At least 32 Palestinians killed in Gaza as IDF fires on crowds seeking food - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxORmZWV1lxelhGX1dLREVGbzFtWFlqNGFQWS03UjhSVkthaGo4My0weW9Md055OXRITGpxSWtVY050Yzh3QjByS29pSFNMZHVhZmh3bWpRbERZQnphSzFkcU9kM2dGbGJTNnFJbzRuMVZQekQ5N05mNl9OZE1wZTJScDg1OWpZbVRYdmNUZVRMekNDYjFoOTBVaUROZzlZQQ?oc=5) |
 | 'Best of the best,' What we know about the 3 L.A. County sheriff's detectives killed in explosion - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxORmVYTXNsRFBXRGltZmJiWXJXRTlqb1hQbUhSSzhzSDNwVFhjbEVIZHh4Z3FmTWJ4MGFjRU5iT0V6MkpkYTJfZmhNMVRVUWM1N040NTlaSXR4YklfS0xXOVFZMEdxUWhESWhxUkJleDdUUHhTZS1CYWdBR3M5ZUozZ2E5Zk9oM2w5YW5Ec2toVEFVUTdtQlJxc2t2Mm42b1duWHZCXzJJXzk2Tjg?oc=5) |
+| Why Are More Than 100 People Still Missing in Texas, 2 Weeks After the Floods? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9FejAtTnVpM0VaRU1yTlUtWXRQZXN1aVhsUmdqeXNwcWhLUG93eDVoQV9zWlM4Z1lkMG5CcUFnN1FRWFlVeTh6Q0hsMWV1STQ4VzZsRE9PbFA2a3k1VjJubkdQa2stZFM3aWkwMHg0Sy12TXE1Uk1Vc0hfbDg?oc=5) |
 | Sen. Nicole Mitchell guilty of two counts of burglary after multi-day trial - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOZjhlMmFLVXdZdUVmaUR3dklLbzNJRU90cEFQejVkOE5neE0wVi1fWjRsN3dBMmpoSzNtZWZITmxtNGU3RGMxa1RLR0JKT0V5ei1GbDNqVVZuaE1IR2l0NnpSZjNOOExpc3lKcnEtMUl1ek43MzU4TzZReUN1ZjE3TG1YU0RwSFRENlE?oc=5) |
-| What to know as Texas’ search for flood victims stretches into a 3rd week - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPV1MyeXJYVHVDajJ2eEJMTTFubXJrcXRzd1NSWXY5YVVPQUNnUWZ4UXMtWHRuQmJIa3ZLR1RwTC1Rd1htd3E2MV9rVnFuRkZQcm40ei1vWXhBcnlTRjk5VE41ck40SXJ2cWVLU21kYnRMemlPZjJmWFZydHFQbzYtRUVZNDU0clluLXVfenZrRVBvM2NFbjk3aWoxc01USkM0WEFIYzBsYXY?oc=5) |
-| Luigi Mangione has an issue with another health insurance company — and it's not UnitedHealthcare - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOcGd2dWJqcHJUaXNwd0hLWHBzTWRYQjh5Y2ZfMWR1MmMtVHZxM1VFSXFXUUFtWEd5aDV4Vzd5eVNHaEtkVnVlQ28xRVJYQjVkSVVtNmhpWnp3SXF1ZUU0SFNwNjZNUmJIdG0yd1k3MWlPYzBwRVdHVWlBbTVTR0EyamE0Y1NzMk8zQ1FiWXlaR0RFT3BGZjJ0SlkyV2dsWGNoMXJZWGpn?oc=5) |
 | Man dies after being pulled into MRI machine while wearing metal chain: Police - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNN1FsMC1EOVBHYzI5eDZrdVd4bzhDWlFyaWdUbERTbUVkYkdGdHpOcVgzalA4WnZCcVkzLURQa0V2QnJBNkNOR1hIOTRHSVkxN2dJb1k0ZldMYjk5THNROGsxZjJDendwRnJuLXJSLUdBcnd2dGtucHZfbGMwWF9qVWhWTUVtdnM2UUNmSjkxMA?oc=5) |
+| Luigi Mangione has an issue with another health insurance company — and it's not UnitedHealthcare - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOcGd2dWJqcHJUaXNwd0hLWHBzTWRYQjh5Y2ZfMWR1MmMtVHZxM1VFSXFXUUFtWEd5aDV4Vzd5eVNHaEtkVnVlQ28xRVJYQjVkSVVtNmhpWnp3SXF1ZUU0SFNwNjZNUmJIdG0yd1k3MWlPYzBwRVdHVWlBbTVTR0EyamE0Y1NzMk8zQ1FiWXlaR0RFT3BGZjJ0SlkyV2dsWGNoMXJZWGpn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
