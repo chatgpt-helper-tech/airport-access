@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月19日 13:01:42（北京时间）**
+🕒 更新时间：**2025年07月19日 13:14:01（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump sues Wall Street Journal for libel over Epstein letter - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9qVDhIaFlqSUgwOUgxYzNkNk91dDBwNS0wLTRiU1NXQ0ZoQVIzZWl1TUhVckRXNE1HSGxpRGVzcEJmYUt4M1Y4bVY5VG9McV83Z3ZBUTFVNFBVNlEwRS00ekNfdC1yajA1b2NpdXhrWW1EUWJoY2NGOERPS0R6UQ?oc=5) |
+| Trump files libel lawsuit over Wall Street Journal report on Jeffrey Epstein’s birthday letters - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNampDV0tGcUhrSjRzV25iOHZVNUdkb1lQWXZHTVh3YnNsSTRvSlljVGpSeEU3U19xS0E2ZHVaQlZMWGszT1RlWDdKM28tWWh1b0VaX2FMNk5QYXFMcjhLay1oeHNJYzlyek82eFktTXdrdXRJM1RzSkhxMlJ6ZnI4UzEwbzVKWDAx0gGOAUFVX3lxTFBKX3lacG9OMjVkV1hRdFhILTdZZEpOaDZYTTJpbldsb2ZMZlNRR3g3bWRjYUp1SVNJcGpjM1VUZ1M0bGNXdVRud3ZFUVZ0ODJjcXV4ZjRGZXA0b0tlRk44N1UzTklqTURBZkFCYVVLVjBVTDdrRHdEd0g0Nm5VN1NWODBJc0s0OUFtem9yUmc?oc=5) |
 | ‘He’s a lot of fun to be with’: Trump and Epstein were close friends for 15 years - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5IMWdKQkJtSGY1TUhxTnM2VGpHdnR0YWZaYlJpdUthUF9ISDV4ZmhRYzVhQUdfaDlRV0VaRHhQSWFzWF9lR1JROXEtTDJJbjNTbUJJR0JITGt4aHBLTXlzbFFfZ3JkallRNkdGYnRNZVdNQjF4V05Uc3pOYnk?oc=5) |
-| El Salvador sends detained Venezuelans home in swap for Americans - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxONVdlTTNORlF4MEliYmVuUV9YV3k0YUpyLUwzbldHMlp5aFhfdFJHcUF1SFJMOU1UaEtQcXFPZEhWdGhnYkVCTXpSNXZOZjhYRWJoUnI0MmpnV08zdGNSejRHSFNLXy1hWEdwMDl2WTFQQXlEZ0JYaVZVSHRIM0M2ZGxoNWcxWFF4dzEyWi1veTlqamVyTnY4TnRQMk9vLU5IcVdQVUMyUk9jZDRpWnc?oc=5) |
+| What we know about the Americans freed in a prisoner swap with Venezuela - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNeHhMMjRlWUlmNDFWdGhjM0dpY0tuOHh6Q3BnbllYdmNGX3pjOHhTOEdoVVBHekVOelBjLVJFRGhXZTRMVFA4Qml2OU82UU52MkF3ZVpNZlcwWEZrN2FlYnRhTkxlWHNCSlh5WnFGT3Jvb0FPQnJuTzJGY2xRbGNrM2VZZFFFOUljcUFNNzIzWTdQYm9qTWhz?oc=5) |
 | Explosion at Los Angeles Training Center Kills 3 Sheriff’s Deputies - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNYy1PNzZxaV9qSGh4My1jUDVsMGxBSm9DUkdzc3RKUURReXpRYTNvNmpjeVVKRkVrd0hQVVRodVgySXp2a0ZSMVdWa29sZFdGTmZUdVpkX29XOWNfaWw2VWtySS1peWU2TU9jRDlyUDhxSUp0S2RKaWhOZWJaSThCY2JlODFQdEtYb2d0VkNjUQ?oc=5) |
 | FBI asked to "flag" Epstein files that mention Trump, senator says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE0zNGktaUhtNnBBbW9WWUlMNVAtZzhTU09BZFExUXBBMXZnUXlRUUdaUE5QSUhYVzRsT3dOdURrM0R6QjhiUWFMWmtqRzdjSEZEOWdkQS1QdVR0aENEZzluVVJXOXhzT214LXM2c0ZvWFZRZVR1NFdV?oc=5) |
 | Suweida: Druze residents describe 'bloodbath' in Syrian city - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1yUjRIQlhVZGVPZlppVThSUjlHYnV2aGFkb1J3UjBjSlgtNjlEQ0VFQ2NQbUVkYmxUVDVjMWdKMzdsTjBrdTZTclNCWU1vamcwcHNmcGtQeEVsd9IBX0FVX3lxTE14MFNZVmRzNFYyT1lMMUVZc0d1QTdOWGJINGN1Y1UteFhBOUl2MmhPeEI5VWN3UTRSMTJqbGpiSnE2VEVONnZONXRnZjRUV2RqdlFYTXVVUUxPMXhKOEdn?oc=5) |
