@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月20日 01:53:53（北京时间）**
+🕒 更新时间：**2025年07月20日 02:00:25（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Gabbard threatens Obama officials with criminal referral over 2016 election assessment - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNQVk5dlJlZ1RhenhrWjZHc0hySVlQeUhkWGVRcjZORDZnRXZMVzdwMm5LNTdJQ01NcVVhNGJIYm1NWEFCclhfcEx0dk5YRUxxWEJaWkNXajNWU3p1MjQwbWFnbXp1ODN2QXhfbmV1RUJ0RVo1RmFwelN5VWVxdVppQkRHUFVfRHF2b0IxejdOdG3SAZYBQVVfeXFMUHBZUmhjMW1SU3dpRFBMaXN4QU83VEtqMjQ5UTd3UkRLTWtrOUwwaEdLbU9xc3I2ZlcyYlVZVEQwSEN5UWZpdEZvaWtFMEc2Rm9jNXRsSlpzZ09xcV9LVVppdW52a0kzeS1jWm1JSTl1Ql9UX0swRUhHdTBJT0dKOUxmOTZiZXFCaE1wX2FwN29WU2djcFBn?oc=5) |
 | Gaza: Dozens killed by Israeli gunfire near aid distribution sites, Hamas-run ministry says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE93bUdSNUtxQTk4bTRMQmxDMUdNdGRLQjcya3VPY1h3c1RJQmpBcVhRai1sZnktcTBxODhyMTNTa3FFaG54T051ckZCY19maS1neHI4SF9RaEtmZ9IBX0FVX3lxTE5yWl93OTgzZmhiSW45ZjNUcUZtaDd3TWZUMmVYaEVLOHpFbkhrSi1jZnN6Wks2SFN1bUVqVkFKSW5CSF9YbGc4VHRMM2ZqbG1iVWZmazl2dWNrVXdhZl9J?oc=5) |
 | Israel and Syria reach ceasefire deal - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1LUFJUdmxPMDFuX0VZZ0RVc3E0cm1vdVcxZ1NnSWUzVDZVZkpFZk9fSWR0OW95alFGVWtiWkhBdE83YzRPOUg4TEpOaHctcGhkVzFZd3g4R2JfN0dLdTBMWDR0NlpYbTFvbC0xZzFVWER3dW8ySlhEVVpn?oc=5) |
-| Trump sues Wall Street Journal for libel over Epstein letter - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9qVDhIaFlqSUgwOUgxYzNkNk91dDBwNS0wLTRiU1NXQ0ZoQVIzZWl1TUhVckRXNE1HSGxpRGVzcEJmYUt4M1Y4bVY5VG9McV83Z3ZBUTFVNFBVNlEwRS00ekNfdC1yajA1b2NpdXhrWW1EUWJoY2NGOERPS0R6UQ?oc=5) |
+| Man dies after being pulled into MRI machine while wearing metal chain: Police - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNN1FsMC1EOVBHYzI5eDZrdVd4bzhDWlFyaWdUbERTbUVkYkdGdHpOcVgzalA4WnZCcVkzLURQa0V2QnJBNkNOR1hIOTRHSVkxN2dJb1k0ZldMYjk5THNROGsxZjJDendwRnJuLXJSLUdBcnd2dGtucHZfbGMwWF9qVWhWTUVtdnM2UUNmSjkxMNIBlAFBVV95cUxQZkxwYU1ISDJSQ05Gc2laekJOejVNRDlKMHBOOHV5aHM1Wk1JUVRNVTZia3h3M2dHUHlHclZmVHNybjFyQURqbjhNNzhFcUhhS204NXA2YUdGN0dQRFlPOG00VG5JZ253Y09wRTVNM21BdjFhZjR3QV80MUZVZVdNdEJLZDdDTXRGd1dTTDN1YW4wMlMw?oc=5) |
 | 'Best of the best': What we know about the 3 L.A. County sheriff's detectives killed in explosion - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxORmVYTXNsRFBXRGltZmJiWXJXRTlqb1hQbUhSSzhzSDNwVFhjbEVIZHh4Z3FmTWJ4MGFjRU5iT0V6MkpkYTJfZmhNMVRVUWM1N040NTlaSXR4YklfS0xXOVFZMEdxUWhESWhxUkJleDdUUHhTZS1CYWdBR3M5ZUozZ2E5Zk9oM2w5YW5Ec2toVEFVUTdtQlJxc2t2Mm42b1duWHZCXzJJXzk2Tjg?oc=5) |
 | A Kentucky Republican and a California liberal: The unlikely alliance pushing Trump on Epstein - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPb2NQdTRRdFJicDBtR0NWX1NOSW5ycmNyMGtzZEVmSVMtS2hlYnBHSERqLTIzN1lBUUhoQWZoN1NPS0VMcXhCWW9MQk5MaHVjbTB5VGJodWhiWDlvdWZUVXdZc3hIWk1KNk91TU5jUnUwOG9PVThQOE4ydkJ1aVF0OFhDWWg0U1Uwb2t2MThFeG1iUWpmaXZUQi1rblVJTFVseHFnZE16amU0TWl2UF9hQg?oc=5) |
 | Sen. Nicole Mitchell guilty of two counts of burglary after multi-day trial - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOZjhlMmFLVXdZdUVmaUR3dklLbzNJRU90cEFQejVkOE5neE0wVi1fWjRsN3dBMmpoSzNtZWZITmxtNGU3RGMxa1RLR0JKT0V5ei1GbDNqVVZuaE1IR2l0NnpSZjNOOExpc3lKcnEtMUl1ek43MzU4TzZReUN1ZjE3TG1YU0RwSFRENlE?oc=5) |
