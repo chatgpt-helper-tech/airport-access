@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月19日 14:40:57（北京时间）**
+🕒 更新时间：**2025年07月19日 14:52:59（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Sen. Nicole Mitchell convicted on both counts in burglary trial - Star Tribune | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQdU9Rdm53MG1UQlkxVDI4Y2liYjh2bDI4aWY4akJDVVRfck8wUjJCT2ZDeHpSRkRRM3BPNGFzWmhMVDBCcE41MGZaR0ljRHlyNWJmZk1EZ3BLd19qQjVVR0Z0d0FCc0ZnUHRSYk52aXpJYzhSbUhHZlVmYjByWndxZnhxajQwamVEamRVMlNR?oc=5) |
 | Tulsi Gabbard calls for Obama to be prosecuted over 2016 election claims - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNM0xHWU11enVKTEZQNWJKRnlHUjdYZnQ2c3hoczZpd0txMnVxUUJ4VVV0RENDN2V5SFBETmF3NmhLZ3dxc1NGejFrak91UnNBMzE4ZHZRd0JEVnc5T2o4RUdpU29WVGxZQ1lFd2N6M3lwYVduLWtOUnJhYTUzQ2RxVE9xc2dfREExZ0MtT3FmR2c1dw?oc=5) |
 | Texas Republicans might redraw congressional maps. Democrats plan to strike back - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNRThYT3ZvYUtLQi1nOVNTVThNek5HZnNnRkpSY2FORkh4emtxV0cya3hYSHc1VjUtallsRHlkOU8wTXhzNTRNVFd3X2J0c29SNlRDMzJjR1hwaUktU0dNdnNFTUtkbTB0ODdzVk11R0U1YVVtSjlIRE9mNU50LVMwTUotVXB1MkY5QzFVcWlSMGhGWV9KbE80c3dJUTNHdjA1SGt3dzlDdjVMUGszYU96YkxaTTBYWVnSAbwBQVVfeXFMTnVQdndyeWVPd2J0UTAyLURXMlJSVUUwRzZrMjZkVG8zWTRxalBDZkNGcVNlUW03T0tCR3dITUZIZU4wUmdQalZocW1OZmtreHczaFo4WVhSdWpaVlVOWmRhQ3FjR0FCYWdNdFlKNW9TQ055ZlZNTjBBRTF5N01VYm92SldJVmdwN3lLMThhaUdaNk9Ya3JoZFM0RFg2TTFaVjhRS0dNSVJURzZWbnViTUc1QnM1RHZhMFlfSDc?oc=5) |
-| Maine teen charged with murder of paddleboarder in Union identified - WGME | [阅读全文](https://news.google.com/rss/articles/CBMiuAJBVV95cUxQS0FXRU4wX1BXMVBESUh2czluMHVfVEpSdEQxcHFOQW9xXzBOREhoRk9wOWc4UzhORG56NmNpYUNmaDBsenozaGYyUnBpRGF5aHNvSXUyUmdDNUNwTEZqRnJCZHVBUUlRbjctQmhETk5lamFTWDJlblozZ0lvQWhwb0FxWHV3MmJQeVBJVkg3RzZjWl9mZ1BJbmN3YTNQZjZldnBSN3BDZHlLd3pfV016ekRGWXJuY0NjMmZwR1laVmJkM1gxa0JjWVptUjNGVVRjTjM1U09uQkgtd3N1X0RmM1Fwa0JFTUZIMHZ0TmIzMnhsR0xJbU9GYnBvaVkxODMzdVlQQ1EtMDhZbGh0Qm5WZ1dFbm1qMW4wWmZSUmJkOEtCb0ZTUjFMVFBDWnRoS280TW8wRlJhb1U?oc=5) |
+| 17-year-old charged with murder in paddleboarder’s killing at a pond in rural Maine - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNYjJWaVotekp2UUgtbkVSOXdyUTZmYTF0RmpvRkc2VUFmdEIwUnI2ZS1EUVJIWUxadzhKUzJpdG0tc3V4MjZZb3VlTC11a1phSVRvaGJINF9TQ2lqWDhIbmtOVzFnLWpJSFUwb005WldQYm1wWHdRdU84Z29DQW80TXdZbG9lQlhxNlFaT05ZSHNId2VHY0JheWVkTTM5THM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
