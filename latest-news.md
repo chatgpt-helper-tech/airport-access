@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月19日 17:26:44（北京时间）**
+🕒 更新时间：**2025年07月19日 17:39:25（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump Sues Wall Street Journal for Article on Note to Epstein - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNUWNWNzdlU0U1UkVqZkJTYXlNODdWakxhNU5iVnVUVmQ0ZGl0VUhCSFE4YWt4YUpsT3YzbW5mNEJaQkx0cERYMTVyOENEajRvNW5ZTFVPdURyRzJ5Z2w5VDB4YlNkR1UxRWNvMDBNVmJrOG5OLUJWMGJJeEdPeWhfR0xCaUgtN2wzaWRJQlI2UnpuZTVzT25DLQ?oc=5) |
+| Trump files libel lawsuit over Wall Street Journal report on Jeffrey Epstein’s birthday letters - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNampDV0tGcUhrSjRzV25iOHZVNUdkb1lQWXZHTVh3YnNsSTRvSlljVGpSeEU3U19xS0E2ZHVaQlZMWGszT1RlWDdKM28tWWh1b0VaX2FMNk5QYXFMcjhLay1oeHNJYzlyek82eFktTXdrdXRJM1RzSkhxMlJ6ZnI4UzEwbzVKWDAx0gGOAUFVX3lxTFBKX3lacG9OMjVkV1hRdFhILTdZZEpOaDZYTTJpbldsb2ZMZlNRR3g3bWRjYUp1SVNJcGpjM1VUZ1M0bGNXdVRud3ZFUVZ0ODJjcXV4ZjRGZXA0b0tlRk44N1UzTklqTURBZkFCYVVLVjBVTDdrRHdEd0g0Nm5VN1NWODBJc0s0OUFtem9yUmc?oc=5) |
 | Trump administration files motion to unseal Jeffrey Epstein transcripts - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE91OVJOUjloMnRkbEV2Sm9sY2lQTG15Z3kzX2lMenFrN3VHUUNmZGY0Q2hyR2E5cHpyTzAxREdIZ3dmTURmTDY0WDBuUHU2T1Y5N3ZpNF9lc2V4TGVYZlk1d2xlVF9lN3Vld244WTlaaVo?oc=5) |
-| U.S.-Venezuela prisoner swap frees Americans for migrants in El Salvador - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOSGU5SXNQTktXbnJKVFBIdUJEbkhfWG00T1k3VVZIOXJzd2g0Umh3TndOMVBSTnoxMy1XaTZEMjExOXZxZGZOWGxCNkViR0Z6MzYxZWRsT3NaME1EVThSa3pWMTduejVQTmQ0OHpWd092ekpBYTh4aXZpZ3hGRUxncGNZSlVkVjBYZVZwck51M250bV9xTmlNcWQzdmhPa3FDLXVV?oc=5) |
-| 3 L.A. County sheriff’s deputies killed in explosion ID'd; investigators search Santa Monica apartment - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNR0JVbXJXYnR5djBCZ1RyQVFyMkpETDRkMWVLUkoybWs4TG50Z09CNXBobkQ5Y3JVYzNTam04SVRUZWxiX1BhcnAyNzRYSDNSWjRUbVBiOE9TWXNuWjlFeDRPR0pUcUtBVEZaZm93Sm43bFhDOHRaZ3ZjMkVRY0pfcjhKUWxVUFJ2ZkZoN1VlZGd4T1RU?oc=5) |
+| What we know about the Americans freed in a prisoner swap with Venezuela - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNeHhMMjRlWUlmNDFWdGhjM0dpY0tuOHh6Q3BnbllYdmNGX3pjOHhTOEdoVVBHekVOelBjLVJFRGhXZTRMVFA4Qml2OU82UU52MkF3ZVpNZlcwWEZrN2FlYnRhTkxlWHNCSlh5WnFGT3Jvb0FPQnJuTzJGY2xRbGNrM2VZZFFFOUljcUFNNzIzWTdQYm9qTWhz?oc=5) |
+| Explosion kills 3 LASD deputies in East LA; Santa Monica investigation possibly tied to blast - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxORFplWW9mSDNWakM0WmwzWEdDTUUycnJ0SzRJa0puNkhyTjZoUEpUaThhVjlkWFp1SFp4bDlpTTJ3VVpKdmstUWhfbTFfcWlkWTJ2NTRob2hGWS1CU2VKUEJ6czgwcm1xVU5LRnJnRmVITE5HamhjYkZvOFZET3ZxaVdEbmsxVF9jRk1WTENQelhTb3dYbGZhYjcyOGN4QkVvaTBn?oc=5) |
 | Syria presidency to send new force to halt clashes in south - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5pUVRWTEVXRlZYMzZfRTQ1SWU5dUdpZFI3Q25sT1RxdlRnT0FJRno3LUFOVGYwbkV1VW1BcXoxanRod19nMUU1WGtuT2M0QXhGRlNEdXhzNmpld9IBX0FVX3lxTE9tVHc2SmNGLXpGQ0h1SGI4LUFvMFliUHdKcGtQY2FrbmhQZHFWUU1aYlFZbUpVOTR4Tks4Y0ZfSUR6ZjJEaG5QVk5VSTZFYW1udGIyV3dNWU9NYk82SVY4?oc=5) |
 | FBI asked to "flag" Epstein files that mention Trump, senator says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE0zNGktaUhtNnBBbW9WWUlMNVAtZzhTU09BZFExUXBBMXZnUXlRUUdaUE5QSUhYVzRsT3dOdURrM0R6QjhiUWFMWmtqRzdjSEZEOWdkQS1QdVR0aENEZzluVVJXOXhzT214LXM2c0ZvWFZRZVR1NFdV?oc=5) |
 | Sen. Nicole Mitchell convicted on both counts in burglary trial - Star Tribune | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQdU9Rdm53MG1UQlkxVDI4Y2liYjh2bDI4aWY4akJDVVRfck8wUjJCT2ZDeHpSRkRRM3BPNGFzWmhMVDBCcE41MGZaR0ljRHlyNWJmZk1EZ3BLd19qQjVVR0Z0d0FCc0ZnUHRSYk52aXpJYzhSbUhHZlVmYjByWndxZnhxajQwamVEamRVMlNR?oc=5) |
