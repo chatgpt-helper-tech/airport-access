@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月20日 01:00:55（北京时间）**
+🕒 更新时间：**2025年07月20日 01:13:06（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Inside the Long Friendship Between Trump and Epstein - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPNHFLY0dZY0gwendOSE0zVTBBNjY3RHlYbjlPVENIN3huUkxwLVB0MHZwM21kanJfM05CbjMzbzB5eU9OYU9GRHpNZ0VzV29HaWlxR0dFd0RRYmFSZThCc0JYZ2tFMTZPVWI2UGFQdTBMaTBQeThFZ3FLakJUam1GUEJndHhXV2JiOGNR?oc=5) |
-| Los Angeles: Several critically injured after vehicle driven into crowd - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1hdDRBSXRySXp3MzlQRkRZVTNkN25TRW5wdkhsd3lkRElacTR6bldqd1N6RE1qQS1QTzdFQWMtaUxCby1iSGZkSGltNGdrTWZraUpndi02NEZOZ9IBX0FVX3lxTE5JTktWTGgwcTFfamoyWmhnNFZjYUl4cFhIZ09HLTFtNmpITnpWdk1vT0pkTFo3eUFzVGFNZFNyajliVXI4ckYwOExHV1ZZMl9aM2YyR0tOQ21iTnRFZFFB?oc=5) |
+| Man whose car struck crowd outside Los Angeles club, injuring 30, was shot, attacked by crowd - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPMHNYOFlrWXI5aFlla0RHTVRrME9QcDdpYmV2UnJtelhObTRfZG9YQ2xBT1h0LUxjd0J2V2JIb2ttXzRIa1pXbDk4Yy1WZEV5YVFUYlR2YjV0a00ya1F4QnR3UDd5S0ppU1RQUmN2YTVidWt3YmtBWS1OdEliRWdUY0s4dWMya1dVZThzZ3NaZEd4SE5BYVNmR3hsOFhjZmhBdmc?oc=5) |
 | More than 30 killed after Israeli forces open fire on people seeking food in Gaza, health ministry says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQNUVYNTlQWGlPUW5wbXpzaldSZXI0NF83M2JzOC1QSWpuTTIxaG1ZU1htcnR0N1pwZWVPMHA1d2J5VDlVcDhjbnRoTEdnc3VvZ1VHYVM0TDZvSFVUWlQ1djRsQ2tQeEY3QnEtY0QzcGg5cHhQQ0haWGw1Y204QVhWZnJ30gGHAUFVX3lxTE91QlA4Z1RoRVg2dUc2Z0tjc3FRMEVtMVlsZWlFVWV2Uzh0NkRyOFR6NkZEbzVxRHl2RVlZOGhvbGcxdVJ4Q2FWMkt0SVdHU1laV1JOWUFvV0xKU080eTRxVk9HR3ZRVlZJNUtsSm9sY2hBMG1ycTBncVhGNmt3ckVpS0hPZjRwaw?oc=5) |
-| Israel and Syria reach ceasefire deal - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1LUFJUdmxPMDFuX0VZZ0RVc3E0cm1vdVcxZ1NnSWUzVDZVZkpFZk9fSWR0OW95alFGVWtiWkhBdE83YzRPOUg4TEpOaHctcGhkVzFZd3g4R2JfN0dLdTBMWDR0NlpYbTFvbC0xZzFVWER3dW8ySlhEVVpn?oc=5) |
+| Suweida: Syria presidency announces ceasefire after clashes between Bedouin and Druze - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5pUVRWTEVXRlZYMzZfRTQ1SWU5dUdpZFI3Q25sT1RxdlRnT0FJRno3LUFOVGYwbkV1VW1BcXoxanRod19nMUU1WGtuT2M0QXhGRlNEdXhzNmpld9IBX0FVX3lxTE9tVHc2SmNGLXpGQ0h1SGI4LUFvMFliUHdKcGtQY2FrbmhQZHFWUU1aYlFZbUpVOTR4Tks4Y0ZfSUR6ZjJEaG5QVk5VSTZFYW1udGIyV3dNWU9NYk82SVY4?oc=5) |
 | Tulsi Gabbard calls for Obama to be prosecuted over 2016 election claims - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNM0xHWU11enVKTEZQNWJKRnlHUjdYZnQ2c3hoczZpd0txMnVxUUJ4VVV0RENDN2V5SFBETmF3NmhLZ3dxc1NGejFrak91UnNBMzE4ZHZRd0JEVnc5T2o4RUdpU29WVGxZQ1lFd2N6M3lwYVduLWtOUnJhYTUzQ2RxVE9xc2dfREExZ0MtT3FmR2c1dw?oc=5) |
 | Here’s where public broadcasting cuts hit the hardest - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5ja0ZSMVgxbXZ6T1RlZENBanRCSHdQY0Q1MlEtOUJtZktJWW5fLVM4U0h6YnVfRFdsNl9Hay1FOEN2M3B4dmxMZm5VVUpUbXhic0NHU1ltc040czRfMU5YOFpGZG9QT0pDSzA5T3pzdGZ1VUNmdUNNZXNaWVZoa1U?oc=5) |
 | A Kentucky Republican and a California liberal: The unlikely alliance pushing Trump on Epstein - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPb2NQdTRRdFJicDBtR0NWX1NOSW5ycmNyMGtzZEVmSVMtS2hlYnBHSERqLTIzN1lBUUhoQWZoN1NPS0VMcXhCWW9MQk5MaHVjbTB5VGJodWhiWDlvdWZUVXdZc3hIWk1KNk91TU5jUnUwOG9PVThQOE4ydkJ1aVF0OFhDWWg0U1Uwb2t2MThFeG1iUWpmaXZUQi1rblVJTFVseHFnZE16amU0TWl2UF9hQg?oc=5) |
