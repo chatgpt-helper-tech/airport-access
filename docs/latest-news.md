@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月19日 13:53:36（北京时间）**
+🕒 更新时间：**2025年07月19日 14:00:15（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | FBI asked to "flag" Epstein files that mention Trump, senator says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE0zNGktaUhtNnBBbW9WWUlMNVAtZzhTU09BZFExUXBBMXZnUXlRUUdaUE5QSUhYVzRsT3dOdURrM0R6QjhiUWFMWmtqRzdjSEZEOWdkQS1QdVR0aENEZzluVVJXOXhzT214LXM2c0ZvWFZRZVR1NFdV?oc=5) |
 | Sen. Nicole Mitchell convicted on both counts in burglary trial - Star Tribune | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQdU9Rdm53MG1UQlkxVDI4Y2liYjh2bDI4aWY4akJDVVRfck8wUjJCT2ZDeHpSRkRRM3BPNGFzWmhMVDBCcE41MGZaR0ljRHlyNWJmZk1EZ3BLd19qQjVVR0Z0d0FCc0ZnUHRSYk52aXpJYzhSbUhHZlVmYjByWndxZnhxajQwamVEamRVMlNR?oc=5) |
 | Gabbard Claims Obama Administration Tried to Undermine Trump in 2016 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOWmNPZE9Hem9GRE9qY0tSNkFUQmpCVFpiSVBRYlVGaWM0SUtWYmhSb05wR1ZzVGlMYU9CYkNzTjM1Z1JQbFktRnhxMDgwSG15WHFYYjJYVEQyNnp6X0xMY09jYklENGZ4UUJhNDlaYlFXZVN4VU1QdkVnWkducjJzTVYxQko?oc=5) |
-| Texas Republicans might redraw congressional maps. Democrats plan to strike back - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNRThYT3ZvYUtLQi1nOVNTVThNek5HZnNnRkpSY2FORkh4emtxV0cya3hYSHc1VjUtallsRHlkOU8wTXhzNTRNVFd3X2J0c29SNlRDMzJjR1hwaUktU0dNdnNFTUtkbTB0ODdzVk11R0U1YVVtSjlIRE9mNU50LVMwTUotVXB1MkY5QzFVcWlSMGhGWV9KbE80c3dJUTNHdjA1SGt3dzlDdjVMUGszYU96YkxaTTBYWVnSAbwBQVVfeXFMTnVQdndyeWVPd2J0UTAyLURXMlJSVUUwRzZrMjZkVG8zWTRxalBDZkNGcVNlUW03T0tCR3dITUZIZU4wUmdQalZocW1OZmtreHczaFo4WVhSdWpaVlVOWmRhQ3FjR0FCYWdNdFlKNW9TQ055ZlZNTjBBRTF5N01VYm92SldJVmdwN3lLMThhaUdaNk9Ya3JoZFM0RFg2TTFaVjhRS0dNSVJURzZWbnViTUc1QnM1RHZhMFlfSDc?oc=5) |
+| ‘Five-Alarm Fire’: Texas Dem Sounds Off on Trump’s Bid to Gerrymander Midterms - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQMnNRLWNlUnNJX3JxQi1WZzU5aUQ5emtOT292aTQ0YmRScDltbHVCSUd5d0xYTno3cTFtTGJQZDVUaEpUMkJDY1NxdmxZRUxqMDU2Q3k0SHpBb0JydldYRlNvQmdtak1tUUJPd083dFh5bXd4a1NjVExRZU83ODJ1RGlsbXlVM0pvQVhncXRDY0pDcWxENFlGS050NHlVLUVoYzVNLUxTWU5qaGI0X1VTc0ZtcVZxOVVXRE5XQzJR?oc=5) |
 | Maine teen charged with murder of paddleboarder in Union identified - WGME | [阅读全文](https://news.google.com/rss/articles/CBMiuAJBVV95cUxQS0FXRU4wX1BXMVBESUh2czluMHVfVEpSdEQxcHFOQW9xXzBOREhoRk9wOWc4UzhORG56NmNpYUNmaDBsenozaGYyUnBpRGF5aHNvSXUyUmdDNUNwTEZqRnJCZHVBUUlRbjctQmhETk5lamFTWDJlblozZ0lvQWhwb0FxWHV3MmJQeVBJVkg3RzZjWl9mZ1BJbmN3YTNQZjZldnBSN3BDZHlLd3pfV016ekRGWXJuY0NjMmZwR1laVmJkM1gxa0JjWVptUjNGVVRjTjM1U09uQkgtd3N1X0RmM1Fwa0JFTUZIMHZ0TmIzMnhsR0xJbU9GYnBvaVkxODMzdVlQQ1EtMDhZbGh0Qm5WZ1dFbm1qMW4wWmZSUmJkOEtCb0ZTUjFMVFBDWnRoS280TW8wRlJhb1U?oc=5) |
 
 ---
