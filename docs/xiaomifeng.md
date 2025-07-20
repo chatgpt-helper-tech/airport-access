@@ -39,7 +39,7 @@ permalink: /xmf/
 ---
 
 
-> 📅 最后测试时间：2025-07-15
+> 📅 测试时间：2025-06-04
 
 > 🛠️ 工具环境：1G 宽带 + MiaoKo测速脚本
 
@@ -50,7 +50,7 @@ permalink: /xmf/
 
 ## 📷 测速和解锁测试结果
 
-![小蜜蜂测速和解锁截图](./assets/xiaomifeng/xiaomifeng250715.webp)
+![小蜜蜂测速和解锁截图](./assets/xiaomifeng/xiaomifeng.webp)
 
 
 
@@ -187,8 +187,8 @@ permalink: /xmf/
 > [👉机场推荐榜单  2025科学上网指南](https://gptvpnhelper.com/airport-access/)
 
 
-## 历史测速结果
+## 测速结果记录
 
-### 2025-06-10
+### 2025-07-15
 
-![小蜜蜂测速和解锁截图-0610](./assets/xiaomifeng/xiaomifeng.webp)
+![小蜜蜂测速和解锁截图-0610](./assets/xiaomifeng/xiaomifeng250715.webp)
