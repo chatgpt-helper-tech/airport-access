@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月20日 12:27:35（北京时间）**
+🕒 更新时间：**2025年07月20日 12:40:02（北京时间）**
 
 ---
 
@@ -10,9 +10,9 @@
 |--------|-------------|
 | Syria struggles to quell deadly Bedouin-Druze clashes in south | [阅读全文](https://www.bbc.com/news/articles/c0m87d4p9gvo) |
 | Home secretary pledges new power to stop violent attackers | [阅读全文](https://www.bbc.com/news/articles/c9w14yjw8x0o) |
-| Ukraine seeks new round of talks with Russia | [阅读全文](https://www.bbc.com/news/articles/c5yl4lz0r38o) |
-| At least 37 dead as tourist boat capsizes in Vietnam | [阅读全文](https://www.bbc.com/news/articles/c5ypd6vr4e7o) |
+| Sewage discharges to halve by 2030, minister pledges | [阅读全文](https://www.bbc.com/news/articles/c4g8m8r6grzo) |
 | 'Great British Energy solar panels' were made in China | [阅读全文](https://www.bbc.com/news/articles/c1lj21pjn72o) |
+| At least 37 dead as tourist boat capsizes in Vietnam | [阅读全文](https://www.bbc.com/news/articles/c5ypd6vr4e7o) |
 | US tech CEO resigns after Coldplay concert embrace goes viral | [阅读全文](https://www.bbc.com/news/articles/cx20z3ykd9ro) |
 | Mr and Mrs XCX: Brat star weds drummer of The 1975 | [阅读全文](https://www.bbc.com/news/articles/cwygznx573wo) |
 | How the rise of green tech is feeding another environmental crisis | [阅读全文](https://www.bbc.com/news/articles/c30741j351go) |
@@ -31,8 +31,8 @@
 | Tourist boat capsizes, killing dozens in Vietnam - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBoOFQxd254VlRpOGtmSGRtUzgxZWlLQlpZOWszNnljMHR0VmNzdEVIRmMxbXVzczhVSmNyVTJsLUxIMTRGMGE1WHl0YzBKSHZyNHlBa1RBYUJxTjJJeWstRGVkT01VODlvLVNfODFQNlBNU0xYVUs3U2lzRXXSAYIBQVVfeXFMTWFNaElfNkl5V2kwWGlLVjc3dUtkSjhaN3lLSnktNUpwcEhRdUI4S3BrN0hWNUk5UjQ2bzRsRlV0dHNmZk5JUW1yWXhFOFA3djZNTjVDQllmOVBQeFNsRmMwb0hVaWdYY0d5bVVKWGZJQnlqZUptY3NJN3ZWSkRacWtwUQ?oc=5) |
 | Here’s where public broadcasting cuts hit the hardest - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5ja0ZSMVgxbXZ6T1RlZENBanRCSHdQY0Q1MlEtOUJtZktJWW5fLVM4U0h6YnVfRFdsNl9Hay1FOEN2M3B4dmxMZm5VVUpUbXhic0NHU1ltc040czRfMU5YOFpGZG9QT0pDSzA5T3pzdGZ1VUNmdUNNZXNaWVZoa1U?oc=5) |
 | Santa Monica apartment is focus of probe into blast that killed 3 L.A. County sheriff's deputies - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxNcjhLMXo2bzQ0TTlvQXJHRllOYW1sNWFpUEtVTHdlYmgtbVJaQWFkWWxhSlVCWWRaWEhGM18zbXQ3U2lFdGpYWFotOXhQYi1rUjJNWlR5am1haTI5UWZuYS11X0k3aDZQZVV1b184TldjTm9rbGs2M3pZb2NwNVY2ZmktcThvVGF0dUI3dUJXaEl5NW9TV2RYWC1NR0pUNWdxdmlxNXFNeTdmeHJPeGNoOG1vRUptZFBSMmxxZFVTbHdqaVZlMXgtcVF4c0dXaWc?oc=5) |
-| Hegseth senior staffer out at Pentagon - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOTVZ6ZmNSU3JvY3phcVRqZEtzZG1scDZUemRyT3V2Yl9HLUJfcExwR0dBTU5NVHNWdFpBRDE4eEdBRnItZmZHTEl1QlJUZWlKUmp5ckQ4TzJ4OHhfS3Z4N0tJZUpmaUhBS2tSWUZyVzFzTE1xdGNpLXB1WU9RejNpYWtjSV80SWVZY1HSAY8BQVVfeXFMTzN0a2llSzVZanVDV2xRbm1hMW9lYXk2WFF0NzdhV0NJYWdzc3dGZWdKSk1QUDZLVkc1UFdZWFVVTU1JRkg1dzl0T09CaVdGZHJSYVNGYWJrWVMxcXJON2NwU2NRQ25maDYyS3d2YUhwcVVDSUlKM2VMX0RZNzVla181YUNjLU5tZm9iSUt3ZkE?oc=5) |
 | Tulsi Gabbard Helps Boost Trump's Russia Crusade, Calling for Prosecution of Obama Officials - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQWnVqZXpoOGw5emFQZFYxZmRvNUhuXzdIeE9RYzZ1aklPS3FUdDJZMk5IMTM1V1Z3TjJfTE5PZ0hPWHQ3ckFFbU5Jb2hkTUxnVU85ejRtSC1mMG5jWnZHdkROb2UzSnJpN1p5b2laYWw4U0M4b3o2SGVTZEt5R2VNMlo4VUlqcHZRM3p5dkE3OFRMZ3p5bno4VDZsdEhIMGQwNkQ3Z2tPeTZ1UmlwVTlacGg1UVBNYkJha0E?oc=5) |
+| A Kite Surfer, Navy SEAL and Makeup Artist: Freed in a U.S.-Venezuela Swap - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQelZCNkZlR2tOaWE0MXUxWXBYdVFJc1BpeS03N3JzTkQ5cWJPOTl4SmMwaUJpR2Z0ZUdCMFNxVGtPU3JWbWZJZy1Jb3dLQVFYRmJlUHQ5WFpNdHVoemxPV0c3MTRPX0NlZ2dsNXplcllyZXR0eXJ6SWlmdTlna1BqSDRwcHJVbnpQM25vTE83RFItS0Zx?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
