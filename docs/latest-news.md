@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月20日 11:52:54（北京时间）**
+🕒 更新时间：**2025年07月20日 12:00:13（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Police are investigating a man's death after he was pulled into MRI machine - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPeGpFYUVCb1h5WHRHU3B1cnJTSE1oUGc3cTR3OU9Tb1doQmZSS1plZDNzTlVXdHhfSXdJenpFZVB6Vi1QLUJ3bk5wSXZYYlc0SzdRRmFPakZJZ2Q4T3plYWZ3VVlxbzdDU3RCTnM5WW5uVVdLbENtRUNrb0NGWVRvTA?oc=5) |
 | Tourist boat capsizes, killing dozens in Vietnam - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBoOFQxd254VlRpOGtmSGRtUzgxZWlLQlpZOWszNnljMHR0VmNzdEVIRmMxbXVzczhVSmNyVTJsLUxIMTRGMGE1WHl0YzBKSHZyNHlBa1RBYUJxTjJJeWstRGVkT01VODlvLVNfODFQNlBNU0xYVUs3U2lzRXXSAYIBQVVfeXFMTWFNaElfNkl5V2kwWGlLVjc3dUtkSjhaN3lLSnktNUpwcEhRdUI4S3BrN0hWNUk5UjQ2bzRsRlV0dHNmZk5JUW1yWXhFOFA3djZNTjVDQllmOVBQeFNsRmMwb0hVaWdYY0d5bVVKWGZJQnlqZUptY3NJN3ZWSkRacWtwUQ?oc=5) |
 | Santa Monica apartment is focus of probe into blast that killed 3 L.A. County sheriff's deputies - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxNcjhLMXo2bzQ0TTlvQXJHRllOYW1sNWFpUEtVTHdlYmgtbVJaQWFkWWxhSlVCWWRaWEhGM18zbXQ3U2lFdGpYWFotOXhQYi1rUjJNWlR5am1haTI5UWZuYS11X0k3aDZQZVV1b184TldjTm9rbGs2M3pZb2NwNVY2ZmktcThvVGF0dUI3dUJXaEl5NW9TV2RYWC1NR0pUNWdxdmlxNXFNeTdmeHJPeGNoOG1vRUptZFBSMmxxZFVTbHdqaVZlMXgtcVF4c0dXaWc?oc=5) |
-| Another Hegseth aide exits as Pentagon churn continues - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNWE1EaE4ya0VCTlJnLXBUenFSZmhGRk93ZDVMVDZBWmlsSTFVVnpLY3EtbE01YmlxazlMbm1MeU1zLWgyZXNzZmI2cHhRQ3VfcmNhUy1qMm9FVnJNOUt3TXYtSmt5MUx5UlNKYXJIWDhIcloxOWJwNzdWdzByeW9zVFNrT0toOWNmclFJM0JtQ1BQMThZMWN3?oc=5) |
+| Hegseth senior staffer out at Pentagon - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOTVZ6ZmNSU3JvY3phcVRqZEtzZG1scDZUemRyT3V2Yl9HLUJfcExwR0dBTU5NVHNWdFpBRDE4eEdBRnItZmZHTEl1QlJUZWlKUmp5ckQ4TzJ4OHhfS3Z4N0tJZUpmaUhBS2tSWUZyVzFzTE1xdGNpLXB1WU9RejNpYWtjSV80SWVZY1HSAY8BQVVfeXFMTzN0a2llSzVZanVDV2xRbm1hMW9lYXk2WFF0NzdhV0NJYWdzc3dGZWdKSk1QUDZLVkc1UFdZWFVVTU1JRkg1dzl0T09CaVdGZHJSYVNGYWJrWVMxcXJON2NwU2NRQ25maDYyS3d2YUhwcVVDSUlKM2VMX0RZNzVla181YUNjLU5tZm9iSUt3ZkE?oc=5) |
 | Tulsi Gabbard Helps Boost Trump's Russia Crusade, Calling for Prosecution of Obama Officials - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQWnVqZXpoOGw5emFQZFYxZmRvNUhuXzdIeE9RYzZ1aklPS3FUdDJZMk5IMTM1V1Z3TjJfTE5PZ0hPWHQ3ckFFbU5Jb2hkTUxnVU85ejRtSC1mMG5jWnZHdkROb2UzSnJpN1p5b2laYWw4U0M4b3o2SGVTZEt5R2VNMlo4VUlqcHZRM3p5dkE3OFRMZ3p5bno4VDZsdEhIMGQwNkQ3Z2tPeTZ1UmlwVTlacGg1UVBNYkJha0E?oc=5) |
-| A Kite Surfer, Navy SEAL and Makeup Artist: Freed in a U.S.-Venezuela Swap - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQelZCNkZlR2tOaWE0MXUxWXBYdVFJc1BpeS03N3JzTkQ5cWJPOTl4SmMwaUJpR2Z0ZUdCMFNxVGtPU3JWbWZJZy1Jb3dLQVFYRmJlUHQ5WFpNdHVoemxPV0c3MTRPX0NlZ2dsNXplcllyZXR0eXJ6SWlmdTlna1BqSDRwcHJVbnpQM25vTE83RFItS0Zx?oc=5) |
+| Exclusive ｜ Newly Flush With Cash, ICE Races to Build Migrant Tent Camps - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE4wd3dCcVNEMnRpZTkwMGtVZ2h2MzVkaHFJSzFRSG1STmdwNE44MmR2QkVCUExsMjRRLUVyZUVSUW1Na1lQdFBWOXZxS0l0WXZVd0ZVbHlvN1htZHhoWjJ1b09qYmx0WFhVUnhwbVVyNmJuRUMyVFU2aFh3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
