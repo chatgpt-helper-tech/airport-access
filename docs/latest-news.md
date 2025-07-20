@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月20日 15:39:25（北京时间）**
+🕒 更新时间：**2025年07月20日 15:53:28（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Driver hits crowd in L.A. after dispute, injuring 30, police say - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPeDNOeDd3cXdiQjhGV0VOdkNKbmtSN1JveEYxWnRiNzhpODNBOHJlTkJvcW8wcDRnbnZzQ2RYY21CS1dRM1FMNzI0N2gtcngtUVdLdFpYUDNJa3VNREJnTEhmRUJwbjJobjV1ekpOak81V0NabFRRSE1QeHp5VE9SaVNKQXRBRHZaYWVDQQ?oc=5) |
-| Israel and Syria agree ceasefire as Israel allows Syrian troops limited access to Sweida - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxOZEt1U3FTMTFVbTVYaTMzb0NCMXk5MjF1UWd6a3paVkNFd0RHV05hSFM4MDNYa3NVRUhvRndUS2VKZDNab29LZzZweUhJU0hMcndRUnF4QTZrSW81bEFaazdyenJXVm0yNXRkcy12VU16MmFDVWVScnIwWjBmSXJwNmhBMk41YWFwUzdGT0w3SkE1UlZwYkFYaW9RU1Y3QWxEMWM2ZWpnU3lybFhYeEw3Uk1VdFpoVFI1MGVlNXFYbU82VHRJRjlUR3M4TDA?oc=5) |
 | Number of Missing in Kerr County, Texas, After Floods Drops to 3 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPVlZaZ0VMRnpmSGtpekhZSHB3enVJUnR6NjA4WXJfb0ZZNE5CUDJ4UFp2VGkzd1FnZUZKTklhWGd2a1pBTGZPWlE3Zm5fT1BjQzBxUHZDaFFGdk5WZU5kQjNxMGs1N2tjYnJtZXZFdWNpSnNSVjVNSzZ2cEUtUWQyRg?oc=5) |
 | Trump calls those who want Epstein files released 'troublemakers' - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNdGNaSlkzTktaem9SY0NMTkRuSXZuM1ZGeWRDaXdTMUlOM01GR1FYQUh4UzNNeWtFS1c4V2haOGpzNUN0UlRVY0NoeGR3RFdlMFFPWnJLam9BQTRDS0xOSkhPUlo1VmR6ckpvTFNpbGZwdDJDZEFjaU5ZbHF2MlFZZW9ZaEpmaVYtUGdzX2JCNDdvNGFmRENtTNIBngFBVV95cUxOdWd3anRVQTh3cUFwZmNTUmFQTDFwSHZRbGMyS2QxZkZ3bW9WUjRDSjhhQmcxaUR4THZvVDBxZEJ0akhkTXhLWEdrRldHbmt0MVJ1OFNITFpyMnlBMWFxSDR2UlJxYjI1WlJKak12RG1xU2k4YlpMVXEyT1ZPU01LS3pzQ1J2SFlxSEoxTm9Iem5vQWNiam9XUWI3VHJuZw?oc=5) |
+| Israel and Syria agree ceasefire as Israel allows Syrian troops limited access to Sweida - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxOZEt1U3FTMTFVbTVYaTMzb0NCMXk5MjF1UWd6a3paVkNFd0RHV05hSFM4MDNYa3NVRUhvRndUS2VKZDNab29LZzZweUhJU0hMcndRUnF4QTZrSW81bEFaazdyenJXVm0yNXRkcy12VU16MmFDVWVScnIwWjBmSXJwNmhBMk41YWFwUzdGT0w3SkE1UlZwYkFYaW9RU1Y3QWxEMWM2ZWpnU3lybFhYeEw3Uk1VdFpoVFI1MGVlNXFYbU82VHRJRjlUR3M4TDA?oc=5) |
 | Rescuers search for survivors after Halong Bay tourist boat capsizes killing dozens in Vietnam - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBoOFQxd254VlRpOGtmSGRtUzgxZWlLQlpZOWszNnljMHR0VmNzdEVIRmMxbXVzczhVSmNyVTJsLUxIMTRGMGE1WHl0YzBKSHZyNHlBa1RBYUJxTjJJeWstRGVkT01VODlvLVNfODFQNlBNU0xYVUs3U2lzRXU?oc=5) |
 | Severe weather, flash flood threat impact eastern half of US - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOT3pIbUc4WnJnWVVfa3RKSEZ3XzFlZmlfS0thWGtEWkJFMURGc2l6TXZLMnM3VXAwVHR6N1lKTDl6b2UxaklSbHhGNTlFOUU5dDZpdGdhZUszUlZrakI4Rkg1VEhCa1J4dlJuZ3dHcWhmYkt1S3pnbU9TMWs1R0stbGh4Z0dEQkZBMHpoMXUyU0hmdWd2REZSOVozWVJIZUF5RUHSAacBQVVfeXFMUFp4Zk5ScmVCRHVMT0U1VnNudUl1U0RXdUFXX3VfUWlwQWsxVXdpMkJZMHhpSFRxbGNRVDI0akhtVTdsYzBQTU11bF9HdWZNazRDYmV6TmVocW4tcVpMRERZT1c0X1lnTjhXTThFejVjUnA2LXZKNEg1c0FZeVZuVkpPcXNKUUZaWHBXdWRmbVFTVWVSb0U4VHNqUWJ3U3prNFRKdGNPeUk?oc=5) |
 | Here’s where public broadcasting cuts hit the hardest - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5ja0ZSMVgxbXZ6T1RlZENBanRCSHdQY0Q1MlEtOUJtZktJWW5fLVM4U0h6YnVfRFdsNl9Hay1FOEN2M3B4dmxMZm5VVUpUbXhic0NHU1ltc040czRfMU5YOFpGZG9QT0pDSzA5T3pzdGZ1VUNmdUNNZXNaWVZoa1U?oc=5) |
