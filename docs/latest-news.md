@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月20日 16:40:21（北京时间）**
+🕒 更新时间：**2025年07月20日 16:52:43（北京时间）**
 
 ---
 
@@ -9,9 +9,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Syria struggles to quell deadly Bedouin-Druze clashes in south | [阅读全文](https://www.bbc.com/news/articles/c0m87d4p9gvo) |
+| At least 14 dead in South Korea floods and landslides | [阅读全文](https://www.bbc.com/news/articles/cwygzxd8g9jo) |
 | New criminal offence to target violence-obsessed suspects before they attack | [阅读全文](https://www.bbc.com/news/articles/c9w14yjw8x0o) |
 | Dozens dead after Ha Long Bay tourist boat capsizes in Vietnam | [阅读全文](https://www.bbc.com/news/articles/c5ypd6vr4e7o) |
-| US tech CEO resigns after Coldplay concert embrace goes viral | [阅读全文](https://www.bbc.com/news/articles/cx20z3ykd9ro) |
 | Usyk and 'Ivan' - the untouchable duo who can't be beaten? | [阅读全文](https://www.bbc.com/sport/boxing/articles/c89ej3lkp51o) |
 | Mr and Mrs XCX: Brat star weds drummer of The 1975 | [阅读全文](https://www.bbc.com/news/articles/cwygznx573wo) |
 | Parked in lay-bys - the drivers determined to avoid airport drop-off fees | [阅读全文](https://www.bbc.com/news/articles/cd78lee2enpo) |
