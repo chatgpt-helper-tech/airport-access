@@ -16,10 +16,10 @@
 
 ---
 
-📌 **访问更快的镜像站点（推荐）：**  
+📌 **墙内访问Github太慢了,如果加载不出测速的图片,请访问GithubPages页面获得更好的阅读体验：**  
 👉 [https://gptvpnhelper.com/airport-access/](https://gptvpnhelper.com/airport-access/)
 
-⭐ **觉得实用？别忘了 Star + 分享，帮助更多人安全科学上网！**  
+⭐⭐ **觉得内容有用？欢迎 Star 收藏 + 分享给身边人，让更多人安全、稳定、自由地连接全球网络。**
 📅 最近更新：2025年7月20日 ｜ 来源：[ChatGPT 中文导航站](https://gptvpnhelper.com)
 
 
