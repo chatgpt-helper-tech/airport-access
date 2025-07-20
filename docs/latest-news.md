@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月21日 03:00:21（北京时间）**
+🕒 更新时间：**2025年07月21日 03:13:04（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | Performer unfurls Palestinian flag on Royal Opera House stage | [阅读全文](https://www.bbc.com/news/articles/c20n9yzxyyvo) |
 | Ellen DeGeneres: I moved to the UK because of Trump | [阅读全文](https://www.bbc.com/news/articles/c8d638rrndzo) |
 | Scheffler completes dominant Open win at Portrush | [阅读全文](https://www.bbc.com/sport/golf/articles/cql0wn52kpqo) |
-| Passengers rescued from Indonesia ferry fire | [阅读全文](https://www.bbc.com/news/videos/c3enql5g8xgo) |
+| British woman dies after rafting incident in French Alps | [阅读全文](https://www.bbc.com/news/articles/c86gx82jvd3o) |
 | Four remain in hospital after school coach crash | [阅读全文](https://www.bbc.com/news/articles/clyz77l39eeo) |
 
 ## 📰 Google News
@@ -31,8 +31,8 @@
 | Community radio stations are collateral damage as Congress cuts NPR funding - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQYmduYVNBamp2TUxVR3c1M00xVTlTSmlRa1hwZzIwTjVhY2J6ZEkzT0dNSGxFQmNYQ3gxanJZblVkU3duYWF4RXhXbHRESXAzc1pCb3h4VmFMODVPX00wamJpc0FFNHdwZ0Y2S1NWVkZneUNJNzdtdmV3cGtYNzRtbXhwX0JGN2RwNnl3emI5VHJOQUZIWmpkMGlnSTVFd3ZsMUpfaE8tV3FOSkQwMkJxZDFqcVpJS1pVVjV3dGdEX3A?oc=5) |
 | 1 dead, 2 missing after being swept down Oregon waterfall - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOMW15S3VVOHpBUmpsbkhjZ0JOamZiYS1xZ2ZuUjNiUmRXd3QwcllnblMwakI0QjJnNGllbUVaUHZmTThOU2lYNUtXZ21EZjNZZmVGMXZhYmlnTTk2U0syU2xQb2UxcHNRMnQ3VHRrVUdKSHdDaEI4QW9YZGNzbkRFaldFRnpPTV9HbEQ2RzZfUkk1ZGfSAZgBQVVfeXFMT1FScVUxSnREUTBac0dJUHY1RmlDRExObEhkcWtIUTVyMmpMTjAxbmR3SG4zaGJKU0xTX0JkSm84TG9JdXpjUGZMWVAxdzB3NUZmd1V1OGpPMHotcUI4bzdxd0NHZUNaR0d2VTQ2bXRNaUlPeUdheUJsYmlsTGx0OWl3Um1jZ0YzQVhEMDV2MXg5ZTVmUjlJcDE?oc=5) |
 | Ice secretly deported Pennsylvania grandfather, 82, after he lost green card - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNUklOV2FaeU84NTl5c1dDdDhUZWF5NG9ZdHA0TGVObWZLaURTcmpkN2VKTTgzSkdMWXdoaFo5TlN3V252RVI2V0dLZTY3R0JfdUxjcVR1R3hCUzZmWUNMT2xmbjdIb09jczJ0N2pONnp1eEh0ZzJJcmlIbXN0RjFXbkVGODBOQ3Ft?oc=5) |
+| Texas Republicans aim to redraw House districts at Trump’s urging, but there’s a risk - AP News | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQREwyXzRFWjI4ZWNQVzNxTHRnM19iYllaUUNmdWYtQmY1NU4xa21Rc2lwQl9UcGljS3pNb19CMk1kZDZzVzRKSTBuT21EaGxyMkJMMEhpOGZKM0U1TXN1QjhYU0xCckVCaVFFWDU5ZFA0N3RpVjh4bUxESWJjeGw3bXFHQ3ZJMVVVajhEM1lfTlplLWozR2Y1cHJKMXBMSVpTdS1wRU1VeVZWTGhwSDhYYmo5MTl4WDlwcHBEMjl3?oc=5) |
 | After plowing his car into a crowd outside an LA nightclub, the driver was beaten and shot by bystanders, police say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNNkN3Q3RVOUlNTGFWbkk3Skxja0NZVjZJaW4ySzEwQmp6ZzNFOXV1WUFtaTAtbnVCTUxDVjVTSVd5VXl1cjQtbUJPN3pzYmQwaV8zRHQ0bXE3Y2ZRV2s4aW1fN0YtNWxEVlBvUm5DcW8taGNmQ3d2WDBrWmRULUs4RXJ4NnZGcHZsMU9MNnB30gGTAUFVX3lxTE55bjFGSUxiR2RrT1A1T2lCcXhySEE2aDRvbC1jeTltRExMeF9yWm5USDZHRmZ3dER4TVBCYzF4NUJsaTVmRWdSeEpKd3U5VE5tTU1RTmo3azZRT1JtdjRYR1pKYXRZXzJveWVVTXlEZ1c0bVNIQ1JaNHVpSEJsUnY0M0FSRWhpMzJfUW5JVlpsRElpSQ?oc=5) |
-| Zelenskyy says Ukraine offered Russia a new round of peace talks - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQbXZ6UU9aVGVVTVRWTnRxMGZLeVJIWDFQZ2lFNzlFZ1dxWGJrN3BsMEtrSHlnLWVOSlUyWjk2cVJMMXRmakE1WExfUFBSNU1CeHZ3aERGYVNfNll3LVhVRk1ULTM5eEc3YjExQUxTa09sT21hQzJQbExhdTVZenQ2SHNGQUJWTTRZVnF2UlJTeW9hVWZkdEtIbml0ZVRHQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
