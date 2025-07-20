@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月20日 23:52:17（北京时间）**
+🕒 更新时间：**2025年07月21日 00:01:10（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | Israeli forces kill 67 Palestinians seeking aid in northern Gaza, Hamas-run ministry says | [阅读全文](https://www.bbc.com/news/articles/c8rp62480r3o) |
 | Sewage discharges to halve by 2030, minister pledges | [阅读全文](https://www.bbc.com/news/articles/c4g8m8r6grzo) |
-| Japan's ruling party set to lose majority, exit polls suggest | [阅读全文](https://www.bbc.com/news/articles/c8xvn90yr8go) |
+| Japan's PM vows to stay on despite bruising exit poll | [阅读全文](https://www.bbc.com/news/articles/c8xvn90yr8go) |
 | Parked in lay-bys - the drivers determined to avoid airport drop-off fees | [阅读全文](https://www.bbc.com/news/articles/cd78lee2enpo) |
 | Performer unfurls Palestinian flag on Royal Opera House stage | [阅读全文](https://www.bbc.com/news/articles/c20n9yzxyyvo) |
 | England call in police over racist abuse of Carter | [阅读全文](https://www.bbc.com/sport/football/articles/c2k1wwv7jkwo) |
