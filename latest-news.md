@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月20日 09:39:36（北京时间）**
+🕒 更新时间：**2025年07月20日 09:53:34（北京时间）**
 
 ---
 
@@ -8,12 +8,22 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Bedouins and Druze clash in Syria despite 'immediate ceasefire' | [阅读全文](https://www.bbc.com/news/articles/c0m87d4p9gvo) |
+| At least 34 dead after tourist boat capsizes in Vietnam | [阅读全文](https://www.bbc.com/news/articles/c5ypd6vr4e7o) |
+| Home secretary pledges new power to stop violent attackers | [阅读全文](https://www.bbc.com/news/articles/c9w14yjw8x0o) |
+| US tech CEO resigns after Coldplay concert embrace goes viral | [阅读全文](https://www.bbc.com/news/articles/cx20z3ykd9ro) |
+| Mr and Mrs XCX: Brat star weds drummer of The 1975 | [阅读全文](https://www.bbc.com/news/articles/cwygznx573wo) |
+| 'Great British Energy solar panels' were made in China | [阅读全文](https://www.bbc.com/news/articles/c1lj21pjn72o) |
+| Usyk destroys Dubois to reclaim undisputed crown | [阅读全文](https://www.bbc.com/sport/boxing/articles/cm2lmd1rj8no) |
+| How the rise of green tech is feeding another environmental crisis | [阅读全文](https://www.bbc.com/news/articles/c30741j351go) |
+| Should school summer holidays be shorter? | [阅读全文](https://www.bbc.com/news/articles/cp82x4709n0o) |
+| Parked in lay-bys - the drivers determined to avoid airport drop-off fees | [阅读全文](https://www.bbc.com/news/articles/cd78lee2enpo) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Man found shot after striking crowd with car outside Los Angeles nightclub, injuring 30 - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQUXk3V21tVm5KRU9ILXRvbm55Y1lEZXRaTEw0RVBOZkVpTk4tcTlsMUdmcVhwZTFjcHJ3eHNNenE4S3BUbzJLZEVxWmFURTZDbEdSVE1hVFpJSXRyTmtxZzROVk93TGFTczBwYmx5aG1FN1BCVDdsU3Q3b05tTlNkSkk1VUFKYU9qUEo2bDloOUhBemFoZ1FYTVIwbHV3cDJiTWJ1MVI3WlJSNUlabFVYbHNCZEZ5aDMxM1R5VS1ZONIBxAFBVV95cUxQejlxVFd4emI1aVNUdnJYRU80cF94aVhidXczNklKMkN2V2lzUHhjNE1ZekR2VFdPeVViTXp6STVaUnVzTFZ1SnE2RzlQR1RuNUE5by0yOXI1YjRQMHFOaWMzSHdoWVFMbnVONzdEMDFqNnRqWnVDellGdlRJQXZ1ZWVtWlRweEVGZG1RVlo0dWRvTUJ1SXR1bG8wQ3hRUWRCdHRURjhORVNiUmJzUFdyaGtmS0FEODg1LTdtdFRBZ1B3VGhI?oc=5) |
+| Driver intentionally hits crowd in L.A. after dispute, injuring 30, police say - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPeDNOeDd3cXdiQjhGV0VOdkNKbmtSN1JveEYxWnRiNzhpODNBOHJlTkJvcW8wcDRnbnZzQ2RYY21CS1dRM1FMNzI0N2gtcngtUVdLdFpYUDNJa3VNREJnTEhmRUJwbjJobjV1ekpOak81V0NabFRRSE1QeHp5VE9SaVNKQXRBRHZaYWVDQQ?oc=5) |
 | Inside the Long Friendship Between Trump and Epstein - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPNHFLY0dZY0gwendOSE0zVTBBNjY3RHlYbjlPVENIN3huUkxwLVB0MHZwM21kanJfM05CbjMzbzB5eU9OYU9GRHpNZ0VzV29HaWlxR0dFd0RRYmFSZThCc0JYZ2tFMTZPVWI2UGFQdTBMaTBQeThFZ3FLakJUam1GUEJndHhXV2JiOGNR?oc=5) |
 | 'We are so back': MAGA supporters rally around Trump following WSJ article - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxObnF3Mk1CTXVlZTNDN2VxZW5UdzJZdFdEOFV5QXlIc0hWcUh1QXJLYVNLVnFRaEZMTl9URGVObmlxLXhYeHRRZmpwRklEME0tT2RwTXF4YXNhRWNyaW52a3REdmtObjFjYUFDdW1zQVdhX09ya3RQZzBKeXNfSjdlVjVsMEdvSEpaMGZXYzR6LVJlRjDSAZgBQVVfeXFMTnh6S0FrbEdOU2dNOHRIOHNqSG45QlRHaEYyeG9UdGxtS2pvMU5LT1J5YzA4dU9tWWhhQlIxTzNxOEZZR09kcnFiRndwUDluWGtVYjFKa0xOd2lkZmtfUGEtUFFTZFk3QjhrcDRXZ1dKR05xT1lZelFKTmM5cnFwOGtnZzZaWE8wS3NhZWs5d3hYYl9vemsydVI?oc=5) |
 | Israel and Syria agree ceasefire as Israel allows Syrian troops limited access to Sweida - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxOZEt1U3FTMTFVbTVYaTMzb0NCMXk5MjF1UWd6a3paVkNFd0RHV05hSFM4MDNYa3NVRUhvRndUS2VKZDNab29LZzZweUhJU0hMcndRUnF4QTZrSW81bEFaazdyenJXVm0yNXRkcy12VU16MmFDVWVScnIwWjBmSXJwNmhBMk41YWFwUzdGT0w3SkE1UlZwYkFYaW9RU1Y3QWxEMWM2ZWpnU3lybFhYeEw3Uk1VdFpoVFI1MGVlNXFYbU82VHRJRjlUR3M4TDA?oc=5) |
