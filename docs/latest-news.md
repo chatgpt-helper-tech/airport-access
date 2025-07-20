@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月20日 11:26:22（北京时间）**
+🕒 更新时间：**2025年07月20日 11:39:03（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Inside the Long Friendship Between Trump and Epstein - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPNHFLY0dZY0gwendOSE0zVTBBNjY3RHlYbjlPVENIN3huUkxwLVB0MHZwM21kanJfM05CbjMzbzB5eU9OYU9GRHpNZ0VzV29HaWlxR0dFd0RRYmFSZThCc0JYZ2tFMTZPVWI2UGFQdTBMaTBQeThFZ3FLakJUam1GUEJndHhXV2JiOGNR?oc=5) |
-| Man found shot after striking crowd with car outside Los Angeles nightclub, injuring 30 - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQUXk3V21tVm5KRU9ILXRvbm55Y1lEZXRaTEw0RVBOZkVpTk4tcTlsMUdmcVhwZTFjcHJ3eHNNenE4S3BUbzJLZEVxWmFURTZDbEdSVE1hVFpJSXRyTmtxZzROVk93TGFTczBwYmx5aG1FN1BCVDdsU3Q3b05tTlNkSkk1VUFKYU9qUEo2bDloOUhBemFoZ1FYTVIwbHV3cDJiTWJ1MVI3WlJSNUlabFVYbHNCZEZ5aDMxM1R5VS1ZONIBxAFBVV95cUxQejlxVFd4emI1aVNUdnJYRU80cF94aVhidXczNklKMkN2V2lzUHhjNE1ZekR2VFdPeVViTXp6STVaUnVzTFZ1SnE2RzlQR1RuNUE5by0yOXI1YjRQMHFOaWMzSHdoWVFMbnVONzdEMDFqNnRqWnVDellGdlRJQXZ1ZWVtWlRweEVGZG1RVlo0dWRvTUJ1SXR1bG8wQ3hRUWRCdHRURjhORVNiUmJzUFdyaGtmS0FEODg1LTdtdFRBZ1B3VGhI?oc=5) |
+| Driver slams into crowd outside Hollywood nightclub, critically injuring 7 and wounding more than 20 others - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE53V1VxRXNnX3cwOXUzSnRzNVd6bEFqOWVJdWEtZDdDdGhubjUyVFFGRGpHeFZNSjAyTnZqUFBNd3BEWGoyWmJ0WERBWXNVVE5UZVJ0OEFBejMwU3BhdlpKQ21lRi1yQkVJcWhrNmJ4bXdxRm5YWFU0ZlZCQlkwZw?oc=5) |
 | Israel and Syria agree ceasefire as Israel allows Syrian troops limited access to Sweida - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxOZEt1U3FTMTFVbTVYaTMzb0NCMXk5MjF1UWd6a3paVkNFd0RHV05hSFM4MDNYa3NVRUhvRndUS2VKZDNab29LZzZweUhJU0hMcndRUnF4QTZrSW81bEFaazdyenJXVm0yNXRkcy12VU16MmFDVWVScnIwWjBmSXJwNmhBMk41YWFwUzdGT0w3SkE1UlZwYkFYaW9RU1Y3QWxEMWM2ZWpnU3lybFhYeEw3Uk1VdFpoVFI1MGVlNXFYbU82VHRJRjlUR3M4TDA?oc=5) |
 | Number of missing in Texas floods drops from nearly 100 to 3 in hard-hit county - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNOVFIUlRoX2FWMzR3QVJJWVB3SGppdlYwMW5vTHJyUVhrRlpKcHhzRS1UeHV3RkM2SXZzbGUwdHJRZG1ReVU0Ml82Slhuc2g0ZjRqVnF3N1RuUkZpMWdlWGhfeDEwZ3pOQ0J0dnZFa1FBdHVkTGlEYjkxa2RJT3I5TUN6QUV6ZGtNUUZlV9IBkgFBVV95cUxPbUxPUmFEQjVQZ2xjeUlLNnJiVkM5TnB4c2YtWlJwZWtMbXFlZWE0c2YzMmlaeEZFUDBRcUxoMGkxaTZLaVlXUzRYSWcxUjg0ZG1RdUNvVFRBNmNCQUFBZGVpNU56bzJfd1dsRmVRRnJpMDZHOG9VdUFmbW5ock1lTW9DVHUxWWctcGFyQUtFdWdZUQ?oc=5) |
 | Police are investigating a man's death after he was pulled into MRI machine - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPeGpFYUVCb1h5WHRHU3B1cnJTSE1oUGc3cTR3OU9Tb1doQmZSS1plZDNzTlVXdHhfSXdJenpFZVB6Vi1QLUJ3bk5wSXZYYlc0SzdRRmFPakZJZ2Q4T3plYWZ3VVlxbzdDU3RCTnM5WW5uVVdLbENtRUNrb0NGWVRvTA?oc=5) |
