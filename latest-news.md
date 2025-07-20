@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月21日 04:15:02（北京时间）**
+🕒 更新时间：**2025年07月21日 04:27:50（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | England call in police over racist abuse of Carter | [阅读全文](https://www.bbc.com/sport/football/articles/c2k1wwv7jkwo) |
 | Bottles and smoke flares thrown in hotel protest | [阅读全文](https://www.bbc.com/news/articles/cdr3716kd8mo) |
 | Ellen DeGeneres: I moved to the UK because of Trump | [阅读全文](https://www.bbc.com/news/articles/c8d638rrndzo) |
-| Performer unfurls Palestinian flag on Royal Opera House stage | [阅读全文](https://www.bbc.com/news/articles/c20n9yzxyyvo) |
+| Bedouins tell BBC they could return to fighting Druze in Syria | [阅读全文](https://www.bbc.com/news/articles/cwykzznepw0o) |
 | Reform councillors obstructed by officials, Farage says | [阅读全文](https://www.bbc.com/news/articles/cx2kz127pj3o) |
 | One person killed and two missing after six swept over Oregon waterfall | [阅读全文](https://www.bbc.com/news/articles/c79q0pjyreno) |
 
@@ -29,10 +29,10 @@
 | Man dies after being pulled into an MRI by a metal chain he wore, police say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE02MEN5bzBucTlxdGtRMVFGa3ZKSGRXY2NldmRFUFRNLW5nZVRsSlRuUnRib2tVSHY2RDFTR2luWnF2RDlxcG9sZDlCRkl0RjBYYy1wUnlUN0ktSDNreG1jUkp6QVlZQmNnSHNVQ1VGYXhybU9nNFHSAXtBVV95cUxOdTJ2RzcwR2lzcWJDbHVtZkdVWEFyX2RBT09fb21nc09tVTZyWEpQb2ZYRHdEbk9zTUY3ZzRZcDFmV0ZlZFBUM1JNd3d6TGRkbTMwbjZPVVRtVGFDVDF0VV9oVU5sck83RWFteTI4NUh5UnRzOHliYld3cWc?oc=5) |
 | An Accuser’s Story Suggests How Trump Might Appear in the Epstein Files - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQV1ZIT25WcWN0Qm1Wc3FhS28xa21raHdBSkRyMW9FRXpfenkwSkJZSnJybzNQMjlZdmZGUFUxYklZSVI1TzdhV2pjUUZUNDcwYm44Q2pkakw1U1NYMFZMVmxsRnRQb0FMWnliUTluT0Z3OUphMU9TMXFDLXN1LWRpamw3THZJblQ0NUMxRk81MW9UZw?oc=5) |
 | Tsunami threat ends after large quakes strike off Russia's Pacific coast - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOSmtTUDJMbW5qYVVvcTRoUzRXaVVKcjdjdXF4aWJCUWl6NlgzT1piTTZLUXExekEtakllRndhazNTbjdsYVNJc2tBZmZvMHFUSXhwVmt2XzhxM3dCYml0cE83Zmw2X1JTbkkzd0NfSWREem1uNEpqS1hVQUdjY1FwNW0xeENobnE1ZFVvTdIBkgFBVV95cUxPeUk3X3dtWUZmeDFZVHd6V0JndVNPZTluMFc5bnJ4MnZhVzgwYUV3X3dWdWxjalliQnY4WDBEdlZoQV9ERDFJVHVCM0plZXJVdVZyeWNPU3gzMEVfb3d5VUZBQjhiWU5kd2U1eGhHdHRZMEROTGk2WEZrUEVEQktJQnlqa2lhSHBDRXlIN0hCVGFtUQ?oc=5) |
+| Jake Larson, D-Day Veteran and TikTok Star, Dies at 102 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE1vanlkVUNLWTdYWFFQTU1zeWpxQnZnUWlIWjhzOGt2YUJzT0Ruck9Lenh4V2RyXzJyUmdldnNqVFZCRTdkZjYzRUFZalRNZkZfU1MxcmdPOS1rSzZQLUtITGlRMFhhcDI1MlM0RmE4RXlpdUo0NFVR?oc=5) |
 | Texas Republicans aim to redraw House districts at Trump’s urging, but there’s a risk - AP News | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQREwyXzRFWjI4ZWNQVzNxTHRnM19iYllaUUNmdWYtQmY1NU4xa21Rc2lwQl9UcGljS3pNb19CMk1kZDZzVzRKSTBuT21EaGxyMkJMMEhpOGZKM0U1TXN1QjhYU0xCckVCaVFFWDU5ZFA0N3RpVjh4bUxESWJjeGw3bXFHQ3ZJMVVVajhEM1lfTlplLWozR2Y1cHJKMXBMSVpTdS1wRU1VeVZWTGhwSDhYYmo5MTl4WDlwcHBEMjl3?oc=5) |
-| One person killed and two missing after going over Oregon waterfall - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9aWHBBV2E2ZmZ3QjdJVnh0SGVmZUkwUkp4aHd4REZFMjhEbHp6ZUdZd3NoS0FrWkxub2tyQmxXVTdEQklKcW9aZ05OV3JVTGVWSVNyRmJsNU1yZ9IBX0FVX3lxTFBLUnQzcFJkZ1R3UkozV3hwLWpqdFBnUHNjRHJob1NhYTV2aVlsTjdZd0Y2RjlIWW90R3k5T1l1UTNmZDZ0SlloUGpjUXFLa3RDbldaNkR6QnItVUxjLUVj?oc=5) |
 | Mamdani’s social media savvy comes at a cost - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOVEV2MmtWZVltWXhaX3JuNjZZbjREcDVjenF3TWVXbXA4OWJXS3hlaGlaQ3ZzQ09VRzdzSF9ILUxfZFprMS1hYzlIWTBERW1wRllfdGhIbjRCeXY3ZDlTQmppZFF0MVFTVUw2d3l0OTRtUVRnYVpjZm5SQThDR29iS2lfM1gzeElxRVBLZU13VHBQVmYyVlFObA?oc=5) |
-| Ice secretly deported Pennsylvania grandfather, 82, after he lost green card - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNUklOV2FaeU84NTl5c1dDdDhUZWF5NG9ZdHA0TGVObWZLaURTcmpkN2VKTTgzSkdMWXdoaFo5TlN3V252RVI2V0dLZTY3R0JfdUxjcVR1R3hCUzZmWUNMT2xmbjdIb09jczJ0N2pONnp1eEh0ZzJJcmlIbXN0RjFXbkVGODBOQ3Ft?oc=5) |
+| One person killed and two missing after going over Oregon waterfall - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9aWHBBV2E2ZmZ3QjdJVnh0SGVmZUkwUkp4aHd4REZFMjhEbHp6ZUdZd3NoS0FrWkxub2tyQmxXVTdEQklKcW9aZ05OV3JVTGVWSVNyRmJsNU1yZ9IBX0FVX3lxTFBLUnQzcFJkZ1R3UkozV3hwLWpqdFBnUHNjRHJob1NhYTV2aVlsTjdZd0Y2RjlIWW90R3k5T1l1UTNmZDZ0SlloUGpjUXFLa3RDbldaNkR6QnItVUxjLUVj?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
