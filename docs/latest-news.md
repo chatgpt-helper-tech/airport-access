@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月21日 13:00:55（北京时间）**
+🕒 更新时间：**2025年07月21日 13:14:06（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Israeli forces kill 67 Palestinians seeking aid in northern Gaza, Hamas-run ministry says | [阅读全文](https://www.bbc.com/news/articles/c8rp62480r3o) |
+| Weak password allowed hackers to sink a 158-year-old company | [阅读全文](https://www.bbc.com/news/articles/cx2gx28815wo) |
 | Asylum hotel protest escalated into 'mindless thuggery', police say | [阅读全文](https://www.bbc.com/news/articles/cdr3716kd8mo) |
 | Japan's PM vows to stay on despite bruising election loss | [阅读全文](https://www.bbc.com/news/articles/c8xvn90yr8go) |
-| British woman dies after rafting incident in French Alps | [阅读全文](https://www.bbc.com/news/articles/c86gx82jvd3o) |
 | England call in police over racist abuse of Carter | [阅读全文](https://www.bbc.com/sport/football/articles/c2k1wwv7jkwo) |
+| £1m 'down the drain' as danger flats set to close | [阅读全文](https://www.bbc.com/news/articles/cyvjl5vyg7eo) |
+| British woman dies after rafting incident in French Alps | [阅读全文](https://www.bbc.com/news/articles/c86gx82jvd3o) |
 | Ellen DeGeneres: I moved to the UK because of Trump | [阅读全文](https://www.bbc.com/news/articles/c8d638rrndzo) |
-| Bedouins tell BBC they could return to fighting Druze in Syria | [阅读全文](https://www.bbc.com/news/articles/cwykzznepw0o) |
 | Battle of Orgreave national inquiry confirmed | [阅读全文](https://www.bbc.com/news/articles/cvgelpx2ljpo) |
 | HS2 was doomed to be a mess, say insiders - due to a 'problem in this country' | [阅读全文](https://www.bbc.com/news/articles/cx2l8kq52y8o) |
-| Future pensioners to be worse off, government warns | [阅读全文](https://www.bbc.com/news/articles/ckgj84ejd9wo) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | Number missing in Texas floods drops from 97 to 3, Kerr County officials say - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5xNFlaV3ExUE9wOTNDeER1TkY5VU5Nb0ZQOW45dHNfTmlBNGFZR3VGVWNTMGtpYzhjZjg3MDFCUkhnaGNyb2hSWUdpaWVMYUxYa0U5a1FCdENzbWhtcUJ0bUN4c2dLNmxtZXBlM3lWbFN2VlQyTktUWU1nbw?oc=5) |
 | Northern D.C. area hit by flash floods. Here’s why it happened. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQUU94T2dCbFZMSU1tZEN5Uk9NbkZMQjh5Z2pWV3BVMzhRZ1c5LXBaeXNidHJjUFBPR3BDbV9XcnRyRW9EQUJGOFhBLXV6M052N3I4YUN0U3ZGOEE2OFVnOEVKTVhmajBGNFBlT2UycWFPaHk2TUJiX0lxOFROb0xKeElPbGc4ZmNOUVd3cld0TQ?oc=5) |
 | Mamdani’s social media savvy comes at a cost - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOVEV2MmtWZVltWXhaX3JuNjZZbjREcDVjenF3TWVXbXA4OWJXS3hlaGlaQ3ZzQ09VRzdzSF9ILUxfZFprMS1hYzlIWTBERW1wRllfdGhIbjRCeXY3ZDlTQmppZFF0MVFTVUw2d3l0OTRtUVRnYVpjZm5SQThDR29iS2lfM1gzeElxRVBLZU13VHBQVmYyVlFObA?oc=5) |
-| Jake Larson, a WWII veteran who became a TikTok star as 'Papa Jake', has died at 102 - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOeUdHZTVZRmd1cGFkVlFWMk5OUEFodmhEU0UybmwtdDNaSzlOZXF4SUdRWlpEOUZQWV94dHJRTWtyYVRwZVFHYWRYNE5ZakNjdGFJcmlzOEFTNV9NMGZBYnJQQnl0YnhnWHFTSzM0TldvdnNlYkRsY2gxN0IzX05tWDB4S2tJZw?oc=5) |
+| U.S. Northeast, Midwest face severe storms, flood threats - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOYzd0MW1yRElKLWtIRmZlcnk0YWdldDBjS1ZERGUxWUE5X1V2VHd4Yk9RV215X1JjWGY5cmUtOVY2OGItZ1U3ekJSaGNfa3hYZFpBTXp6THRSSWhIM04tR1FRdnpPYXpCc3VnVFJ6VW1WOTRldWhaVHB3YjJZM0V2c0h6R1NBdmJYTUZN?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
