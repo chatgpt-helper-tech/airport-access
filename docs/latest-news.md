@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月21日 10:14:48（北京时间）**
+🕒 更新时间：**2025年07月21日 10:27:49（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | U.S. Northeast, Midwest face severe storms, flood threats - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOYzd0MW1yRElKLWtIRmZlcnk0YWdldDBjS1ZERGUxWUE5X1V2VHd4Yk9RV215X1JjWGY5cmUtOVY2OGItZ1U3ekJSaGNfa3hYZFpBTXp6THRSSWhIM04tR1FRdnpPYXpCc3VnVFJ6VW1WOTRldWhaVHB3YjJZM0V2c0h6R1NBdmJYTUZN?oc=5) |
 | Republicans and Democrats Call for More Information on Epstein Case - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1VYWNBVzIwcTNnRUFUd2g0WnRxSFVYVHNpS2IyaFVxaFFVWGxFUlk4N3FsQ2hJaTVraVM5UERPTmdwQmN4dFg1bkc0djZtZ2I3UjR6RThZOGJSbHY1VVBzRlZ2T0RQOUJhOU5OSU1YY3RTOG1pSzdRaHpoaw?oc=5) |
 | Pat Tillman’s brother arrested for driving into California post office – report - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOUktHUGRnR2NmSEdwVDRSRk1NYm85alZhNTRSSmJVUUxNMC1rejIzR0pfTktVdm9vOVNvX0RtUHRtWWZRdklqR0VBdENnV29oSkdSNGFNU2lhNHZfY0ZZUjJaTXBnOUR0WEJKLTY1MkVvQ2hWU1VuYnphMzlQTFUyb3hNcGRIdWVGN1ZGekk2YXNrSXFUd21XQ3BYYw?oc=5) |
-| Trump administration shuts down EPA's scientific research arm - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPT1VGa09kclFXOEsyZ3p4Yk4yR1J6d0NfUUZXMXJPaTgzZmszbVVLSmdIWW1PLU5ZOVYtNVhsTHc2OU50ajZCLVVRdXljVUtVRFNTb0tzWGYwbXBUS3Z2bEw3VFBtaHJfVk1BcGVOX29XbEhuRldMX1FJVWNOanJ1LWJ3VmNLREdW?oc=5) |
+| 'Japanese First' party emerges as election force with tough immigration talk - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNMUxIR2prcGZ6Q0VtNVFCeU1sWktwSWE4bldXeU5lSXR4aDNBWGxORUU2UjNFSU9YOG9vRWQzblZDM01DSHRlRzRjYzFRdFpwdjVIUUhaWHJqdzVldmtza0FZUGRFUVRnWEpVQlVUcDdld1ZRNXlVeDdRbGZjUVpPWUQtT1VCMEs5OUUxMnNkUGRfOXlkWnRId3pZSU9qYnowdGoxa3lGOUlSUkNYNjBtSlNUdw?oc=5) |
 | How Did the Number of People Missing After Texas Floods Drop So Drastically? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFB2alNrQjhxanJZZ0tfR0NqN1dzQ3VPSlIyQlNUYnh3TXVLSGdjcG1MX2U5eG9qQ29VejVrREQzSDVNd3V4WnFNXy1HSDRfSGphN094WXFGdmUyQ1FPa2dnQzg5ZzFVTFZxTTk1am9UaU0?oc=5) |
 | Northern D.C. area hit by flash floods. Here’s why it happened. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQUU94T2dCbFZMSU1tZEN5Uk9NbkZMQjh5Z2pWV3BVMzhRZ1c5LXBaeXNidHJjUFBPR3BDbV9XcnRyRW9EQUJGOFhBLXV6M052N3I4YUN0U3ZGOEE2OFVnOEVKTVhmajBGNFBlT2UycWFPaHk2TUJiX0lxOFROb0xKeElPbGc4ZmNOUVd3cld0TQ?oc=5) |
 | Jake Larson, a WWII veteran who became a TikTok star as 'Papa Jake', has died at 102 - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOeUdHZTVZRmd1cGFkVlFWMk5OUEFodmhEU0UybmwtdDNaSzlOZXF4SUdRWlpEOUZQWV94dHJRTWtyYVRwZVFHYWRYNE5ZakNjdGFJcmlzOEFTNV9NMGZBYnJQQnl0YnhnWHFTSzM0TldvdnNlYkRsY2gxN0IzX05tWDB4S2tJZw?oc=5) |
