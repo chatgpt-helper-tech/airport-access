@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月21日 18:27:17（北京时间）**
+🕒 更新时间：**2025年07月21日 18:39:55（北京时间）**
 
 ---
 
@@ -9,8 +9,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Weak password allowed hackers to sink a 158-year-old company | [阅读全文](https://www.bbc.com/news/articles/cx2gx28815wo) |
-| Police say asylum protest turned into 'thuggery' | [阅读全文](https://www.bbc.com/news/articles/cdr3716kd8mo) |
 | Pensioners in 2050 to be worse off than those retiring today, government warns | [阅读全文](https://www.bbc.com/news/articles/ckgj84ejd9wo) |
+| Police say asylum protest turned into 'thuggery' | [阅读全文](https://www.bbc.com/news/articles/cdr3716kd8mo) |
 | HS2 was doomed to be a mess, say insiders - because of a 'problem in this country' | [阅读全文](https://www.bbc.com/news/articles/cx2l8kq52y8o) |
 | £1m spent trying to stop dangerous flats from closing down | [阅读全文](https://www.bbc.com/news/articles/cyvjl5vyg7eo) |
 | Japan's PM vows to stay on despite bruising election loss | [阅读全文](https://www.bbc.com/news/articles/c8xvn90yr8go) |
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Nearly 100 people killed seeking aid in Gaza on Sunday, Palestinian officials say - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQSDNNV0dJTkQ5UmhoX25pVDFBeG9Sb3l3cHYtdTh4T3dZQjFycDh6UHFOc0RDWDI0RVVDOVBvbFJaazUwWEZvelB6Y1BEYkFtMDJmY2ZEaE9odlRUUzV3WE1BUWdfQ1hINVRKZUNLSklkSEI2SkdZVVM1eDZmTk0xRlo1MG95QjFDdDZieQ?oc=5) |
+| Russia launches a major aerial attack on Kyiv hours before high-level talks on support for Ukraine - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNZXVNYUFqUzNmZHM4c3FfMlpBQnhKOC11U0lpVlVneExzbFpKTjJlVlJKZjNnZEdjR2xmdktHMkdzdUFacE80UTRsclhzVU4waDltNEdoRm9OQ1RvS3dIZHNVaWhObWpKZTBHdlpsODJrZGttSW9PUThhcDZUNjFSa2dKeEFvUFlnazZ4RWFfdGhTcFhaMmppcQ?oc=5) |
 | Driver who police say plowed into crowd outside Hollywood club has violent criminal history - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOTkhFbmhWQmxHb3RKMzk3Q293bEdvZHJnV2JxVXJzQmo5LVZ3aThFZXM5dUhUNWM5aHZKQzlFaFd6NFJNSy1vSnR0SmF2bS1XRWdSbVhYa3pRU2txV1NpbFVJaENCOWYyNG9za01ZTUFYZkFVMHZqRzVkUk8xdFp4LVd1VWg?oc=5) |
 | Delta regional pilot makes 'aggressive maneuver' to avoid B-52 collision - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQTHhOd3h3WnUwWEZ5UnAxaWdQWW8tUnlRV0Z0dEh5OWsxS0F3M04yQ1NBWGN0cmdCZXhLTFI4aklwVXlFZl9ZTFRaYmpOZXVKeU16eUNXYUFUV19ubEZxY1lScEpGZWg4Z1g1SllvWUtsdXZUeEFaOHhWY2JINU16dnkxRC16c3k0V1lRN3ItLTdsQVdJT3B3MDB5RdIBoAFBVV95cUxNc3lEQ2ZRQzJWMXRJbVBCbUZxc09jWnZSUEJzZDh6QTNVNGhtOVZNQXdDeVRCNUg0MGhmUlhSZTh2aFg2eDM0UTYwRzJSd0RFZXVrcms5Mzhldk50SUJGSGdQZHh0QTNXMUVsS2ljUTk4ZGJKb1NoMzBlV2hTb1lBdnlla25HNTFOSHJ1TEhnMkl2RW5mc3R5aTZHS1hOajhO?oc=5) |
 | 'Japanese First' party emerges as election force with tough immigration talk - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNMUxIR2prcGZ6Q0VtNVFCeU1sWktwSWE4bldXeU5lSXR4aDNBWGxORUU2UjNFSU9YOG9vRWQzblZDM01DSHRlRzRjYzFRdFpwdjVIUUhaWHJqdzVldmtza0FZUGRFUVRnWEpVQlVUcDdld1ZRNXlVeDdRbGZjUVpPWUQtT1VCMEs5OUUxMnNkUGRfOXlkWnRId3pZSU9qYnowdGoxa3lGOUlSUkNYNjBtSlNUdw?oc=5) |
