@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月22日 01:27:52（北京时间）**
+🕒 更新时间：**2025年07月22日 01:39:19（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | At least 19 killed, scores injured as Bangladesh air force jet crashes into college campus - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxPbG9tSjNXTTFOdkRGNzE1cHB4YVkxV0MyQi1SeFh5VVNrX1Q0cm5UZGpVQlYtTXVLWWI3UF9PdzJZU3VvU3JNZFFYRHlUeFRsazA4ODJwZEtJRFlGRUZFWkYySXVDc0RUbHMzcWpYUWNxaWpDbmNZNVMtM09GTTlBMkZsa3doR0JXTVd4ZlZZXzI4ck9vbVVadUpaMVZ1SWowY0NyalBqVEI0OUMwNjNLSUo3X2JfeERObGktVTVPMUpfSW9HR1FUVVNSUQ?oc=5) |
 | Gabbard Garbles 2016 ‘Russiagate’ Intelligence - The Bulwark | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE4zcmlUNk5sQURYc082VVJNenBETWJuNF9INXFzdXpQVmNtM1VkV1BxVXdOc1U3Z3piOEhBV0tXM0ZVSm9KZkU5eHBiYmdsaUo4OFk3bTRuXzkyNmFkZE9sOUxxWnhzaTNTclI1NVhNY2J2Qnhpc3AxNQ?oc=5) |
 | EU to ramp up retaliation plans as US tariff deal prospects dim - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQMWVkeThRRVpOUDZ0ZEQtQjZvclVuWjJxOHdMU3FuVXUwU3NkUUVXNVRmYmRTekU4U3lDbWFBQUxvc0o3MnZrc21MSGR4Q09qQllLbGdhenZXRFdxdnVqSk9pS2pRS0hOcWpiSjJhU3c2WUZvZmlvdjVoZU9ZdmtWb1Q1eENfY05mUXRveUpablktY1AzcWgzNXY3WGVyV0pUaGlUWG5jQUVqR3VJWUZfRDVWV0dvcXFYcG5yLUM5eUQ?oc=5) |
-| Delta pilot makes 'aggressive manoeuvre' to avoid collision with military aircraft - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5xY2pnWmtHSUt5N3ZXRjRORUp1bnhvbjgwTWotT1J1aDJMaTkwVWNBb3I3eXVhMDBKWDJsR0l5ck9YcnBTV1Rra0pWbmdQLUROd2g3d0hOSFNHUQ?oc=5) |
+| Delta pilot makes 'aggressive manoeuvre' to avoid midair collision with military aircraft - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5xY2pnWmtHSUt5N3ZXRjRORUp1bnhvbjgwTWotT1J1aDJMaTkwVWNBb3I3eXVhMDBKWDJsR0l5ck9YcnBTV1Rra0pWbmdQLUROd2g3d0hOSFNHUdIBX0FVX3lxTFAxMTJ1Z3MteWpfc25JUXhWblNISjU1QWRwV2JTTm55WWJtM1VNcFBzMlZDcnhoOWVmZkc2Mk5ObUttb1kyOWZLbDQxWHdxbDU1YW5jc3BqXzlKaFBxSjZr?oc=5) |
 | Number missing in Texas floods drops from 97 to 3, Kerr County officials say - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5xNFlaV3ExUE9wOTNDeER1TkY5VU5Nb0ZQOW45dHNfTmlBNGFZR3VGVWNTMGtpYzhjZjg3MDFCUkhnaGNyb2hSWUdpaWVMYUxYa0U5a1FCdENzbWhtcUJ0bUN4c2dLNmxtZXBlM3lWbFN2VlQyTktUWU1nbw?oc=5) |
 | Ex-officer convicted in relation to Breonna Taylor’s death to be sentenced - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQcnlDOHA1bGdiMk1FNG5mUWFQTFNXbksxQ09fek1JckVyTTlVQmVhYWd3QU5jRHhfc3g1aVYzM3VDakVadzc2WVB1eF9mWk1ZRmlXZmk4VEFJQzRrQi1WSE5BQ0E1VFFZajEzVjg2OWVPNXcyMW9UNjFaRlBlcnlxb3hXY0FjN1hoRHU0M2pwSVpPQ2dlSXlacHIyUk9VanpMWDE0LTkyVWlvNmRIRm1maGNR0gG3AUFVX3lxTE12cEg5Y244NEhVT2FWVEhULXpfb3NQOURUSVFGcEdlYTJyYjAxakxsMmY1a0Yxd2hZU0ZYaUIwTnowcU8zV1piUTZQMlo5TGZ0akdUWmNzeHFNQUFKSmNTVFZiczlxNGo1WkJpYmJnVm5YVkM4RTA1TFlYMEZLTFE4SE5CaV9ocDRzNnVMR0tZbmYyWHhqT3pkcEFwSnJwSkZRTDY1RTJLR1pPUVUxMURUSHkzbkRKVQ?oc=5) |
-| Capitol agenda: The GOP’s biggest shutdown hurdles - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQSEVDdGVfRDNlUVRSdG52clcwaUg2TnR1QkhlM3h4a2tnY2VvSkpQcGpGY3RWOFFyNlFHZVYwQ0NSYm5rX2p0Qk9WUXFIT1BfVnctWFhtcEx2YjZ0cVpBVFZqR05mNGJsemZkeFE5VXYxU1dpbGFCZUdtcm54bWIwdC1QQlB0RVdlT21SREZ3SDNuS0xaZzFmWk5yUGNSNkxUal9Hc1F0cUNzNTNNVzlmNjN4b2o2b2gxa1VmSzhWbDBhWnc?oc=5) |
+| Missing girl Melina Frattolin found dead in NY; father charged - USA Today | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNZ1p2NkZLcWl0eWJFMGhxZ18tbVZma2NZTUpjLURPLUpFWmQ0X0NtbHhzcTlZQXN1TVRDOHBOSlNsbDUzUEpCWktFNUVYM0RfSXI2V1dyX2ZZWW1NZzh5eUZTejA2X3p6cWFKd1o1RHMwMnEwWktlbHR2bi1NQVdncFJPbEtucHVNbTZZSWRFd1ROSVNMMTJwYkFvWlBOTVkyd1ROc3gwb2ZfMGk4Qm1zRnJyMDE4aURKeG16TWJzYVNJQ2Mx?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
