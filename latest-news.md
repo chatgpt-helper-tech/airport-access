@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月21日 15:53:03（北京时间）**
+🕒 更新时间：**2025年07月21日 16:01:53（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Number missing in Texas floods drops from 97 to 3, Kerr County officials say - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5xNFlaV3ExUE9wOTNDeER1TkY5VU5Nb0ZQOW45dHNfTmlBNGFZR3VGVWNTMGtpYzhjZjg3MDFCUkhnaGNyb2hSWUdpaWVMYUxYa0U5a1FCdENzbWhtcUJ0bUN4c2dLNmxtZXBlM3lWbFN2VlQyTktUWU1nbw?oc=5) |
 | Japan’s Shigeru Ishiba remains PM to negotiate tariffs despite historic defeat - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1tTG9iNFBCb2lZU0RjMUcwUnFldHBoQVNRaHEwc09kLWt1ZUFiMTFVUGVCeGtlYVNvTHZDWmRocGNOdURJQnM0MWxZTzR0ZFQyb3ZGbE9tT0Q2S055R3BFSTVKWHZVOVZzVWJ6RWg3Sno?oc=5) |
 | Brother of former NFL player and Army Ranger Pat Tillman reportedly drove car into San Jose post office, officials say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPbnFPekFGanlSY0dCTEM5UnNLUUhTUkxqRllTb2RSaHE0SmxoblVibHM4eC04MkU0QU56T2JJckVubU5uTmJabkktdmhrU2lUVzAzM2YwU3hVTUp4Q0taTTgyejVSaFljVG9qVmw5M285UU5PWlhEaEtwOEF3bWdFaFl6V2JmRFp10gGOAUFVX3lxTFBjcmplX0ZGNmdvbjVJN3YwYUZkNUo0LU1ySFJQTDZWSkJjdW9jeHRGMDJmY0FmZ295cGNHZHdsRDdNUUl0S0x1Ynl5M184TWswY0NIb21ncm9zbWhqR1lWVUlkeEVieDE0YVI1X011dmh2T2tuWE5jWlB4NVJiOWlpM1RKSjFyMjkyZC1kbHc?oc=5) |
+| Donald Trump’s Poll Approval Craters—Even on His Top Policy Issue - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPTERCelN3cWxDM1M3czNxVzZ6bXRORklYTm1oT0hfV3BPc0hkNkw2OHlfSkJJWHJpd1BudFdLUkwtSmxMQ21pcFBxTEd1eWRnSHhhM2RFd2xkaEhpM3BtUTI2ck1wRTFlSVJtUy1nc3FoLXRrZFUzc09Na2xpZk5TZVN4VUd1RzJHdGcw?oc=5) |
 | Former prosecutors say request to unseal Epstein grand jury transcripts likely to disappoint - PBS | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxORWd3Z2VqOXpLTnZ6QWxzenhkckVWNXJlSkNRY0MwLTRYZnFXeVVhTXRnNTVraDhveTlBazliRmZpVm5fN29LSWZfb281SlMwTGNMenBRSDkwWUNDYWRFTVJ0Q2JnUV9BNFpGNnd6WFNDc2RwTjZQWkFOUUFZX2hJXzBKaG1IVThkVEJVbXd3eXh3UjBmSk5lMXFTSlNEUW5SNzlXMERFWmprVWplaFpjTE8tQmRUd3QtNnhrMUI0R3ppa1dINmdB0gHMAUFVX3lxTE55dkpjcWR1ZHVyMEZEYUpkdnRkSmdQRDJoOGxZandlSWVzSXRIc3B2WHVGX1F1X0NEMTFOeFg1OG01aU1LZlA3RWJjbEs2ajkxMTY5MFRxcXJycjRuNnROUHI5VUJLcG9CRC1wN2s3N0I2ZFpEUlNhYktfZ1hWQjlrY1RwZDhnQVFfb3JKYUZ2WmRMb3o2RTh2d2szdTJjVXc2RENMY3ZITzBGcDk2dG9nTTZueWUwUFZiQ1JubHJiWllQQUoyNnQzMS1yRg?oc=5) |
 | Mamdani’s social media savvy comes at a cost - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOVEV2MmtWZVltWXhaX3JuNjZZbjREcDVjenF3TWVXbXA4OWJXS3hlaGlaQ3ZzQ09VRzdzSF9ILUxfZFprMS1hYzlIWTBERW1wRllfdGhIbjRCeXY3ZDlTQmppZFF0MVFTVUw2d3l0OTRtUVRnYVpjZm5SQThDR29iS2lfM1gzeElxRVBLZU13VHBQVmYyVlFObA?oc=5) |
-| Faint Signs of Life Appear in Effort to Halt Ukraine War - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPQU0xeU1LSWxwNC1DQ2VFZnJFRUJZbUIzb21LX0cwZVFxanNOTnpxeEJyRjVzVFVfaG84RkJqdEVKVllNeEhjTy1kZXBsbGhQaWlVaVVRQVZEVHplTW1LZTR4WndYdHVQX0dvZzdXM2VQTmw1Z2xlYk5QRWZ2ZzFxbFFhV1ZHVjNYaVRsTVZ4aTVpNnc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
