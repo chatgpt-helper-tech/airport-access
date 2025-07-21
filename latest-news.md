@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月21日 08:26:39（北京时间）**
+🕒 更新时间：**2025年07月21日 08:39:23（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Number of missing in deadly Texas floods down to three - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE4zT1VWajZkb2NoTldSdkdkQWVZcGhxSGxETEcxNjN5aW5DXzlMUDRSSFBYT0JOc1ZlS0pQNUczdTNYNjFYS0ZRX0lDWE1DNUdWaC1hMFNYWDd2Z9IBX0FVX3lxTE84N1l0dXFaUjM1OHBObzU1MzhQdk5BY1pnOXQwM09Ga1I1eUp6VFFYNFp3LWVHZUplNTNDU3JQaThlNE5TNFpfQWlCVTlaa25TTy1wTDZwUEFXWEw4amdV?oc=5) |
 | Northern D.C. area hit by flash floods. Here’s why it happened. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQUU94T2dCbFZMSU1tZEN5Uk9NbkZMQjh5Z2pWV3BVMzhRZ1c5LXBaeXNidHJjUFBPR3BDbV9XcnRyRW9EQUJGOFhBLXV6M052N3I4YUN0U3ZGOEE2OFVnOEVKTVhmajBGNFBlT2UycWFPaHk2TUJiX0lxOFROb0xKeElPbGc4ZmNOUVd3cld0TQ?oc=5) |
 | Jake Larson, a WWII veteran who became a TikTok star as 'Papa Jake', has died at 102 - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOeUdHZTVZRmd1cGFkVlFWMk5OUEFodmhEU0UybmwtdDNaSzlOZXF4SUdRWlpEOUZQWV94dHJRTWtyYVRwZVFHYWRYNE5ZakNjdGFJcmlzOEFTNV9NMGZBYnJQQnl0YnhnWHFTSzM0TldvdnNlYkRsY2gxN0IzX05tWDB4S2tJZw?oc=5) |
-| Atlanta’s Growth Streak Has Come to an End - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1rR0xVZC1LU3FYeVpOTWhsWlRFbmY0bmlwYlpPOEk3bFdFSnBUUXU2bFJVT1pRaUh1UTF3VlVqNVhnYUFURHk3ZHptNjd6QlJ4VXB3amlRQi02M3ZRTXJrOUc1Nm5JMmRoSF80LS1nWDUwblR1NzFIeg?oc=5) |
+| Mamdani’s social media savvy comes at a cost - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOVEV2MmtWZVltWXhaX3JuNjZZbjREcDVjenF3TWVXbXA4OWJXS3hlaGlaQ3ZzQ09VRzdzSF9ILUxfZFprMS1hYzlIWTBERW1wRllfdGhIbjRCeXY3ZDlTQmppZFF0MVFTVUw2d3l0OTRtUVRnYVpjZm5SQThDR29iS2lfM1gzeElxRVBLZU13VHBQVmYyVlFObA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
