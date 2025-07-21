@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月21日 13:40:48（北京时间）**
+🕒 更新时间：**2025年07月21日 13:52:29（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | HS2 was doomed to be a mess, say insiders - due to a 'problem in this country' | [阅读全文](https://www.bbc.com/news/articles/cx2l8kq52y8o) |
 | £1m 'down the drain' as danger flats set to close | [阅读全文](https://www.bbc.com/news/articles/cyvjl5vyg7eo) |
 | England call in police over racist abuse of Carter | [阅读全文](https://www.bbc.com/sport/football/articles/c2k1wwv7jkwo) |
-| Battle of Orgreave national inquiry confirmed | [阅读全文](https://www.bbc.com/news/articles/cvgelpx2ljpo) |
-| British woman dies after rafting incident in French Alps | [阅读全文](https://www.bbc.com/news/articles/c86gx82jvd3o) |
+| nquiry to be held into violent miners' strike clashes at Orgreave | [阅读全文](https://www.bbc.com/news/articles/cvgelpx2ljpo) |
+| Scheffler completes dominant Open win at Portrush | [阅读全文](https://www.bbc.com/sport/golf/articles/cql0wn52kpqo) |
 
 ## 📰 Google News
 
@@ -30,7 +30,7 @@
 | Brother of former NFL player and Army Ranger Pat Tillman reportedly drove car into San Jose post office, officials say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPbnFPekFGanlSY0dCTEM5UnNLUUhTUkxqRllTb2RSaHE0SmxoblVibHM4eC04MkU0QU56T2JJckVubU5uTmJabkktdmhrU2lUVzAzM2YwU3hVTUp4Q0taTTgyejVSaFljVG9qVmw5M285UU5PWlhEaEtwOEF3bWdFaFl6V2JmRFp10gGOAUFVX3lxTFBjcmplX0ZGNmdvbjVJN3YwYUZkNUo0LU1ySFJQTDZWSkJjdW9jeHRGMDJmY0FmZ295cGNHZHdsRDdNUUl0S0x1Ynl5M184TWswY0NIb21ncm9zbWhqR1lWVUlkeEVieDE0YVI1X011dmh2T2tuWE5jWlB4NVJiOWlpM1RKSjFyMjkyZC1kbHc?oc=5) |
 | An Accuser’s Story Suggests How Trump Might Appear in the Epstein Files - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQV1ZIT25WcWN0Qm1Wc3FhS28xa21raHdBSkRyMW9FRXpfenkwSkJZSnJybzNQMjlZdmZGUFUxYklZSVI1TzdhV2pjUUZUNDcwYm44Q2pkakw1U1NYMFZMVmxsRnRQb0FMWnliUTluT0Z3OUphMU9TMXFDLXN1LWRpamw3THZJblQ0NUMxRk81MW9UZw?oc=5) |
 | Number missing in deadly Texas floods drops from 97 to 3, Kerr County officials say - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5xNFlaV3ExUE9wOTNDeER1TkY5VU5Nb0ZQOW45dHNfTmlBNGFZR3VGVWNTMGtpYzhjZjg3MDFCUkhnaGNyb2hSWUdpaWVMYUxYa0U5a1FCdENzbWhtcUJ0bUN4c2dLNmxtZXBlM3lWbFN2VlQyTktUWU1nbw?oc=5) |
-| Maryland county fields more than 100 rescue calls in two-hour period - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNYnlKWFBUcUxySjB0RjF3cVcwMUN3UGs5YllpekRwNWd6eDZBbmxuZWI4NWkyN3FrRlVGZjY3UTFpd2ZmVDZtN1VaR1RiQjBseEpKbmNsUUxZejF6NC1fSERJT1dwRVkwTVZwSEJ1N3NiSDhaN0d1bkI1dzIxLWk0c3RSS1F4TTROb2hpZ2VTTlpGbUxPcGxrUlRGR3F6UGNQUlNQbjRB?oc=5) |
+| Northern D.C. area hit by flash floods. Here’s why it happened. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQUU94T2dCbFZMSU1tZEN5Uk9NbkZMQjh5Z2pWV3BVMzhRZ1c5LXBaeXNidHJjUFBPR3BDbV9XcnRyRW9EQUJGOFhBLXV6M052N3I4YUN0U3ZGOEE2OFVnOEVKTVhmajBGNFBlT2UycWFPaHk2TUJiX0lxOFROb0xKeElPbGc4ZmNOUVd3cld0TQ?oc=5) |
 | Mamdani’s social media savvy comes at a cost - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOVEV2MmtWZVltWXhaX3JuNjZZbjREcDVjenF3TWVXbXA4OWJXS3hlaGlaQ3ZzQ09VRzdzSF9ILUxfZFprMS1hYzlIWTBERW1wRllfdGhIbjRCeXY3ZDlTQmppZFF0MVFTVUw2d3l0OTRtUVRnYVpjZm5SQThDR29iS2lfM1gzeElxRVBLZU13VHBQVmYyVlFObA?oc=5) |
 | Kremlin says Putin open to peace with Ukraine only after Russia’s goals have been achieved - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPQm5yMDZJanF2LXhnUWNCVlhPWG4xQ0NDaC03VVNjb1lNMU1nR0NqeTJjQlZ4VVNYbEZEeFdlOENVNGhKYU81UWQtOGFFNDJGcUF0Q1lLaTA5emtaNlFDeXQ5cGdIMHhuUXR5bjQzTnhHYlEzUUhmMkVzdXpZVHpGWFZBM0FzdUQycW84TzJ1aTRjYktOSGhSRDBMdXd6NU5QNW93OFRMdkRmTDUtS0hlQ29NVXVvc3BZeWZ0NWVvOVBJQdIBxwFBVV95cUxNQmxCa0NMZHZOMnhwWE1MRlB3QWg5SHpGUmRSdjhzMkwxZTFvbmR0SHA1SlNWNDBkT29GdUFIWXlaaEtNYk1Yalo4SUJ4NVhWOTREbGRrdjRKRjdPeTFGQ3hUUDJyLW50S1NtTjh1S2ljeXZ0dEN4d1F1TFhuR1J5aXhwMmdrYjhMRzN6NGNSOGxpWnhzbDJvbS1sOFZSbXBFM2M0WWc1WUJXYXZyV210Y2h5d1lxbnFldTVlSXE1cFh6alJEV19F?oc=5) |
 
