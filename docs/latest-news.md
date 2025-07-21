@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月22日 04:14:05（北京时间）**
+🕒 更新时间：**2025年07月22日 04:27:30（北京时间）**
 
 ---
 
@@ -8,12 +8,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| UK and 27 other nations condemn Israel over Gaza civilian suffering | [阅读全文](https://www.bbc.com/news/articles/c4g814gy2e7o) |
+| UK and 27 other nations condemn Israel over 'inhumane killing' of Gaza civilians seeking aid | [阅读全文](https://www.bbc.com/news/articles/c4g814gy2e7o) |
 | Man who dumped remains in suitcases guilty of murder | [阅读全文](https://www.bbc.com/news/articles/c98wz78jy6zo) |
 | Water bill rises needed to fix investment, report says | [阅读全文](https://www.bbc.com/news/articles/c75rprzq361o) |
 | Ibiza Rocks pauses events at venue after deaths of two Brits | [阅读全文](https://www.bbc.com/news/articles/ckgl73kvyweo) |
 | Divers find WW1 ship 109 years after it was sunk | [阅读全文](https://www.bbc.com/news/articles/cglzw18yng4o) |
-| Taking the knee 'not good enough' - Wiegman | [阅读全文](https://www.bbc.com/sport/football/articles/ckg5j6v02xxo) |
+| Taking the knee not good enough as anti-racism gesture, Lionesses manager says | [阅读全文](https://www.bbc.com/sport/football/articles/ckg5j6v02xxo) |
 | Queen Elizabeth II's fashion to feature in major exhibition | [阅读全文](https://www.bbc.com/news/articles/ckg5jzj6088o) |
 | Weak password allowed hackers to sink a 158-year-old company | [阅读全文](https://www.bbc.com/news/articles/cx2gx28815wo) |
 | Plans to expand Wimbledon tennis site can go ahead, judge rules | [阅读全文](https://www.bbc.com/news/articles/cwyr7e394p0o) |
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Malcolm-Jamal Warner, former 'Cosby Show' star, dead at 54 - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOMHNYRDA5Qk51SWpZUVYyTlVJcGlDeFh3SFhPbHFFSTdKRlVjLW03SEtyNWNjVkQtekp0RWVVeFFRS2E0Rm1kSm9VUER1dkVVanhfUG1peW9tVTlVOUNFWGdrbVNyeTBuMnJZcHNVRXhTNC1WZm5YcHNBNHZxY0lnRUtXNFpqeHZ0T1AyejRjd2RFXzRRRWNjcw?oc=5) |
-| Live updates: Harvard heads to court in $2.6 billion lawsuit against Trump administration - AP News | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE1TRnhTeTRTRGVqZTU3MzQtQlM1RjA5VFhaZFIzbld5Tmt0ZzJVVDk0SFBTZGJQWHZQdERtMWh0RGRwLVJ6bllXZkhFcV8yUHQ2amp5cU5OZFZ2N3lxZ182M0s1eXBsekU0ZXQ4?oc=5) |
-| A Bangladesh Air Force training jet crashes into a school in Dhaka and kills at least 20 - NPR | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFB6RDU4UFZLdmhBNzREOVNkY0RuYmUzam9tS1F4bWJ1VW9DcmpDN05jUWg5bHZ1MWRjY0hYQkNNU1h3UXhHYjlpQng4V0EyOURFWmdBVmd6aFROUlItSTZUMWFDT3ZDbGpaakRoX25SSWRWNDUyUGR5VlpzUHZHY0U?oc=5) |
+| Malcolm-Jamal Warner, former 'Cosby Show' star, dead at 54 - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOMHNYRDA5Qk51SWpZUVYyTlVJcGlDeFh3SFhPbHFFSTdKRlVjLW03SEtyNWNjVkQtekp0RWVVeFFRS2E0Rm1kSm9VUER1dkVVanhfUG1peW9tVTlVOUNFWGdrbVNyeTBuMnJZcHNVRXhTNC1WZm5YcHNBNHZxY0lnRUtXNFpqeHZ0T1AyejRjd2RFXzRRRWNjc9IBngFBVV95cUxPRXRXekZQRjBLRTFncjdlcW85WG9Bb09DQTdka3hOMU54UENoUTBieHd1Yzc3QndOLWt2SklNZ1pRTVhDMmhvajdjcV9qY0FOeWlRVTgxRlF0WHJaLUJIMVRBSWZRWTFHZzlWb3J0QnpjVU1mNnhtVWZOc0ZRNi1qYm1lR251bGZFUVJvbkNrcUdjdWw5UHFxY2JWdGYwUQ?oc=5) |
+| Lawyers for Harvard and Trump square off in court in Boston - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQcXJSVy1Ld2lXYm9wMWkxYnhKYjNTeG1sWHMxc0lwWnpVODBGdUVVU0pqUlZSeGlCdndhZGFfcWFXYzVHTDhla1BUcGNNcUtJVmJvdlF0TFNfU3Q2cjVCMk5OUmhINWswM2dBcG9uci11bS1JUS1VaktPRVcxcFhQY1F5OUtlZw?oc=5) |
 | Trump's 'big beautiful bill' will add $3.4 trillion to the debt, CBO says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOSDVlOUpldkM2bV80aHFLMUpnZlQ5YW9FTDduR0NUSWRXTmc0OGIwNF9DOFhYaXhsa2I0dWp0clgtUmU2NzktSWpQMk1wN1V2ejZYQkg4ckhBX1hyY05COFZ2aTZ6cXp1Z3g0TGd5aklvX0QyaW9xdHc2NFlYOTNkeGp2MmRQb1ROSXBPdnVTVU5CTXl4ZmVuT29RVkFQRHdTRVlBNTVPUzZNRm1LWkZ6S9IBVkFVX3lxTE9ONFpQVHIxSHhkVkVjQU5ESTU2b29Ob0Q1ck1WM2pCSnlLNHBGcVJyTHFPbGEzT1owUURSRE5IU3hRUTJfakU1NktvS01QQ3Uyem1CbGpB?oc=5) |
-| Tulsi Gabbard reveals 'historic' intelligence plot allegedly targeting Trump and more top headlines - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxNMlY3Tll0S0NEcGJ3TnZtY2RyNGN4NFhSYXdXZjdidndmeHA0YzhxVTFnMVpHWGtTZnhxNC1jbHNUWnFRYzVoR1I5Nmw4a0JaUlpGNmNEZGxOWWtNYk56SklxMnV5VjZRSjIxcE5kbzcwb2otX2NWN2FFMGQ0TWdYdTdLNE0zUWZSZW13dUZIeGR4bEtpclJnT3Z3RWRSWk9RMlgxTUVSOGtTOXNCaUtTeVFEak1kYmdEekVVWdIBwgFBVV95cUxObk9CSXJ5bWlPNWEwaUs1Nm4yYi1jbnlMbjN0R2VYR3RmcmZ2dXAwWDR2MVlTZlBNbjB0TnBUT3Rxai1Ua3c3V29rMEYzLURfazFmWmp3dHVZeG5YZVh4MG92NldHaElUSUxnWHJLekNkMHNQNDM2TXozYllvNHVrMFNSVlRDSHVpZWNpcHh0MlpVRXJ1UVBYWGVWa3J1bFlWQjdQb2hkVXRvZUJIeVNHRXhQX0Rab1p1a2NzU3JoeUVpUQ?oc=5) |
-| Marina del Rey boat searched in probe of blast that killed 3 L.A. County Sheriff’s deputies - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPcV9DQkRFRzF0eGFVNE90TVNGNnRieDVHYXhGSGVDdHNjd3JJYmxJWXVxU2M1bmNmQk1fMnBoOGMwclVLa2ZsbHZCS1FKS2F4XzJ1VHUxNTdFMmx5X1RaXzczR1l2cTBmaDhkbjdoczhLT0xPZmg1YWswenhPNjR1TmJ6ckQ?oc=5) |
+| UK, France and 23 other nations condemn Israel over 'inhumane killing' of civilians - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQcXZjclZackxyNGtTcDl1RkJXcWttV0I1U3BhM2U3aXR3Qk45UTVVcGt0Zm41MVVNRG8zRWlzV0Z0QmxpWlpTVXdJU0E0NnQxaVRSQUluaWJhSGJaLVlKMUc3X0dNTzhydVNrQkNzdGJ3V2lXWnZ3a19jTVkxeWNjbG1Nbkc5X0RsQlJHVlBuNXhPdDBJNGE4T3R6OUZRREdIWkd5MU5iVHdrYzh5dld2bnNrMFBCZHFBVXc?oc=5) |
+| What to know about the Bangladesh Air Force jet crash into a Dhaka school - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNdmRjM2VDUUtPZ29LZkVKWXF6MVZqNURpMmVzTnJ4QlRfa1UwYktHR25lMHpja0dJSnJpN0prY1hfNDlNN3ctLVcyaVN2NUtJb2JsRkwtSERUQkxRSE10Y3F4dkQzOWVHSUpONm1TRDBmRDlTQ2loRExGckllWUppU3dQNWtDUE0xRUU5RTY1M21mbHk0SlNRTw?oc=5) |
+| Marina del Rey boat searched in probe of blast that killed 3 L.A. County sheriff’s deputies - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPcV9DQkRFRzF0eGFVNE90TVNGNnRieDVHYXhGSGVDdHNjd3JJYmxJWXVxU2M1bmNmQk1fMnBoOGMwclVLa2ZsbHZCS1FKS2F4XzJ1VHUxNTdFMmx5X1RaXzczR1l2cTBmaDhkbjdoczhLT0xPZmg1YWswenhPNjR1TmJ6ckQ?oc=5) |
 | ICE will ‘flood the zone’ in NYC - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNVC1BVGVtZG0tVmxCNlBRSWhWWDNuYUE4OUZsNE4wRGI2Z2VSb1lra0Vtb3JHOFdENVFGRV9sZUFtSVE3NENfMlVIMThtdHVGQkpBbFJSV01fdVgzYUI3Nk8xZDkwdDNMUnZZSm9pWml1OGhXQ08zeTV6X2lqV3E3LVFUMUZLZw?oc=5) |
-| Appeals court orders new trial for man convicted in 1979 Etan Patz case - CNN | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE85UldhOWhUU01LSFQ3OUpSMFFnYWlDeGp5b3ZIVXFKMHExc1BWVkdYaU5XV3dLaFBFU0IwRnZEdUxzc1RQMm0tM3RPYTRFYng0SWRZZHEwVHpQZE1UNlA3a2l3VHlWdkNUQTY1RXdhYk52aG_SAXhBVV95cUxNMm5TQWZuS0I3dFZWUkdVM1NKdnRMMVVyTmRBcVg1aTF6VW52ZzYtOHd6QVhrV3hoOVpEQVB5NnN2RWNLR0UySVVjcjdod053dUlDNmJzVENod0V6Yl9Vc1dEVFhZYS1YeTJLYk5RZGcyMUZGTGtLTms?oc=5) |
-| Migrants at Ice jail in Miami made to kneel to eat ‘like dogs’, report alleges - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQZEtBc1pzRU53MHBEa3d0Y3lISUVnU1NzWW5MdWtaaU5YelFnTWVjVGxRNkhKd3BLQjNGRzdyRUZnSFVMM0JNdGhFX2JFazBNTVFGcmp4RDhLbUpCLXVxc0JJcEt4ZmZfX1V3WU85czJKQTJXcm40aVR4OHJDMlNhMll0cE4?oc=5) |
-| Delta regional jet experiences near-miss with military plane over North Dakota - kare11.com | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxQRkUzc0YtNFRvWFpqNEVnbXVZbVpxSVl0UjNtbjF5cVhpdUl3R0dwSTJvLVYzZ2NiUF9LcG9EMHlTUXlkVVZvZGRoRUJsLTdvcTkxTVlVeDNIOS1KSFhCUTgyMnNITjJNVTBoWEdxTDlHSVZLdXJBb3pvV09jbG52bzdZMS1DTkpsM3k1Y0pDajRHZTg2QkV5QXFMbU1wMTd2NHZVSENfaThQT1pYTmRtenRKNy1KczNHbDgzalNIMFZxYlZXS194VU5lYWU2UW5Id0V4UkFGem5OUXdFSmVGQURicURwRTBHbXJEeV8yUGJ1Zw?oc=5) |
+| US airline pilot makes ‘aggressive maneuver’ to avoid colliding with air force bomber - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOeEJWWV9hVnFGR29heWRfWGh4Y2ttNndzanhmRUdfRnBEa2kxbS1ReHFBb2VHXzktR21KR1U3cVpPTzNBY1h0Z3RNQzRRbXRDZHZNY0tVU1ZRcTQxdl9yQVM1MTlQU2dlb25CckdrUXVneEtuZWJ1eWo0a3c0TU1VWFowamRXZURYSDFBY1NTak0?oc=5) |
+| Ex-officer convicted in relation to Breonna Taylor’s death to be sentenced - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQcnlDOHA1bGdiMk1FNG5mUWFQTFNXbksxQ09fek1JckVyTTlVQmVhYWd3QU5jRHhfc3g1aVYzM3VDakVadzc2WVB1eF9mWk1ZRmlXZmk4VEFJQzRrQi1WSE5BQ0E1VFFZajEzVjg2OWVPNXcyMW9UNjFaRlBlcnlxb3hXY0FjN1hoRHU0M2pwSVpPQ2dlSXlacHIyUk9VanpMWDE0LTkyVWlvNmRIRm1maGNR0gG3AUFVX3lxTE12cEg5Y244NEhVT2FWVEhULXpfb3NQOURUSVFGcEdlYTJyYjAxakxsMmY1a0Yxd2hZU0ZYaUIwTnowcU8zV1piUTZQMlo5TGZ0akdUWmNzeHFNQUFKSmNTVFZiczlxNGo1WkJpYmJnVm5YVkM4RTA1TFlYMEZLTFE4SE5CaV9ocDRzNnVMR0tZbmYyWHhqT3pkcEFwSnJwSkZRTDY1RTJLR1pPUVUxMURUSHkzbkRKVQ?oc=5) |
+| Conviction of Man in Killing of Etan Patz Is Overturned - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNYWhDX204ZTdkQ0QwX1cwQm9iYWtnWHE1S1ExYmZHY01fSzBtdVZvbUl2c1Y5OGhhR3RkYS1TUVVvd1FZWGtvTU5DSng0X0RuTVpEemZnRmVkNjh3Z1lQa0xvVHZrQzI4Y19DLUs5MlZkeE54VVVwMG1wWjFWSkp6Y3B1b3Z0LUk?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
