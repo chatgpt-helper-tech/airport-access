@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月22日 05:14:01（北京时间）**
+🕒 更新时间：**2025年07月22日 05:27:55（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | 20 dead as Bangladesh air force jet crashes on school - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQMm9JMHI0c2xhUENTN2RrX3prZzEzMm0xbElyYkdGZFN6V2NXR1BXYjV5YVRfYXJrUVdvRUxXSm5zQ0JTTi1EZUNXeU1QQnd1RVlsckFET2pMakloT0d2dE1JazNZMlE2YzhldnA1NlduTVY0Yzl0eElPeU1KN2dmREpJM2RKMHI1d19NRWtnNG5jcEtlb3ZCeFB5YzItX2RUYm9ZYmsyTm42UdIBrwFBVV95cUxNZ3ZMQWw5V1doR2FmNDJObFFjSjMyWmN6S0NaY00tZHpCcTVBZ3JFeVd0LU5PaHlCSkR3T2dOS0pJZTBGbjVxcm56TmQ4cnlZcWFxSDRBWWdjbzk5WnI0SE5Qa1FMMW5jNG1waHJkTDROTGJVdEdvekhpSy1vdHF6VUNKdmh2Sm9VTFFqZk55ZEdZc3hZQzktamt1OTdaZDV5TFE4LVVSNkVLR1RXSjNV?oc=5) |
 | Gaza: Israel tanks advance into Deir al-Balah city for first time - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9zTl9ncE0wbDB4dzYyUlZQSzYxVlUwY1NfM213azFwYkxTcFlTaHRfdkRwZVNuZHZ5TTNxd2F6bWsyX3A2YW9iNnZ3Ym9RRnBjekxvN3ctMW9yZ9IBX0FVX3lxTFA5NlM2UV9WNW9TeHhiNFhXQmVLU2tpaVNXVXBqNHhMS0VTWnJyRmR2M3Jla0lRcUl3Ml8wZmNVbllhdzYtd2diN2h4UW8tWlJEcVM4d2JoM3kwWkpSYVA4?oc=5) |
 | Marina del Rey boat searched in probe of blast that killed 3 L.A. County sheriff’s deputies - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPcV9DQkRFRzF0eGFVNE90TVNGNnRieDVHYXhGSGVDdHNjd3JJYmxJWXVxU2M1bmNmQk1fMnBoOGMwclVLa2ZsbHZCS1FKS2F4XzJ1VHUxNTdFMmx5X1RaXzczR1l2cTBmaDhkbjdoczhLT0xPZmg1YWswenhPNjR1TmJ6ckQ?oc=5) |
+| Man convicted in 1979 kidnap and murder of Etan Patz must have new trial or be freed, appeals court rules - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOMFVIYVFOc2ZseExWalBSaC1RRFc1NXktb1k4TVhfa0ROM05CX3FzWGh2TXE0RFc0eTFrLWlfRmQ2OWxZSFZwbjRMbFhzWW51YkRYbDlUWDBhbnZsNkZVaXlRa0EyOVFQeTM5RTU3b2pQaGg4b1ZyR1VYanVQeVlpTFRxTG16VTd5Z3RIdXFoWlVJTFZmTVFlZzNXSE5GX0t4WXZqRFJoMDRLc3JDTjctbTlOMDZLVUhTb0HSAVZBVV95cUxQZHg4Q3pNc1BVNVpXWjNfUzRyYzNQX09qUlFEbjdZMkpHa3pBdEsySC0wa0o3TlFrcy1SeVQtT2FpQkRFNnpRZzE2MXIzNUtKTldONXY1dw?oc=5) |
 | Minnesota Lawmaker Convicted of Burglary Plans to Resign, Ending Democratic Majority - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNLXExbjdzN2VLV1VDSWJsbTJKNTlPRzF3eDVPZm9sSlI0dUhJLVZMeUhjb25lU2MtV3hvNmU2Qy1CcVpaOGtJbTdWd2tsazFZV0xsemNSdE5HcXdWRXI4ekxyejRqRWpONXZabU9QbEhzbGFQS3AyTEN6c0pkOC1CTGtES0ZBSWF1YnZpUy13?oc=5) |
 | ICE will ‘flood the zone’ in NYC - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNVC1BVGVtZG0tVmxCNlBRSWhWWDNuYUE4OUZsNE4wRGI2Z2VSb1lra0Vtb3JHOFdENVFGRV9sZUFtSVE3NENfMlVIMThtdHVGQkpBbFJSV01fdVgzYUI3Nk8xZDkwdDNMUnZZSm9pWml1OGhXQ08zeTV6X2lqV3E3LVFUMUZLZw?oc=5) |
-| Airline pilot was about to land in N.D. when he saw a B-52 'coming at us' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQUFdKbmxMUHB1NHdoVHdDcDZfRTVPZVlQOTRob0FadjBJVWM2WXVZXzlwOWpNWTlKYTdNUVpINTAtb3JPY2w4V21hcVQzb25CeXRuR0pYbHlZNlJ1ZElHMHZnRC1qMm9EQnl4Sm91Zm1WQUg2d0xTckpSdTBaaWJYdzc2bHh5Nk0?oc=5) |
-| Man convicted in 1979 kidnap and murder of Etan Patz must have new trial or be freed, appeals court rules - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOMFVIYVFOc2ZseExWalBSaC1RRFc1NXktb1k4TVhfa0ROM05CX3FzWGh2TXE0RFc0eTFrLWlfRmQ2OWxZSFZwbjRMbFhzWW51YkRYbDlUWDBhbnZsNkZVaXlRa0EyOVFQeTM5RTU3b2pQaGg4b1ZyR1VYanVQeVlpTFRxTG16VTd5Z3RIdXFoWlVJTFZmTVFlZzNXSE5GX0t4WXZqRFJoMDRLc3JDTjctbTlOMDZLVUhTb0HSAVZBVV95cUxQZHg4Q3pNc1BVNVpXWjNfUzRyYzNQX09qUlFEbjdZMkpHa3pBdEsySC0wa0o3TlFrcy1SeVQtT2FpQkRFNnpRZzE2MXIzNUtKTldONXY1dw?oc=5) |
+| Several people, including Breonna Taylor's aunt, detained outside courthouse ahead of Brett Hankison's sentencing - WHAS11 | [阅读全文](https://news.google.com/rss/articles/CBMi6wFBVV95cUxQc0dFS3phQ3VaQk5WN1RvVFFNMUtObW1acmQzcjBMYlpWWFlZaG9paWxKc3FwbHZNclVLTmtJMW5FeVM3N01OVllIRUhMems5RXdDQk9uRklIWEJYVjlBcTBJS1RLNlMzTlB1OTNDR2lSNTlQaDFHT3UzaVFNc05vcFlNQUVXQVVUdkxaWkZXVDA5SVNacFYzRkk4N2ZFY3NHUVJzeEZyeWJpRXp1Tl9BUUg1bU51bW91c2NFZ1ZLMnZuR09MOHZWVUJ4b1ZkcHRzeDVzMkc3clY5SlVOTWg1eDZsM3psbmxDNGRF?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
