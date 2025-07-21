@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月21日 22:28:02（北京时间）**
+🕒 更新时间：**2025年07月21日 22:40:51（北京时间）**
 
 ---
 
@@ -12,12 +12,12 @@
 | Weak password allowed hackers to sink a 158-year-old company | [阅读全文](https://www.bbc.com/news/articles/cx2gx28815wo) |
 | New regulator and higher bills - key takeaways from water industry report | [阅读全文](https://www.bbc.com/news/articles/cly1kwdze5qo) |
 | HS2 was doomed to be a mess, say insiders - because of a 'problem in this country' | [阅读全文](https://www.bbc.com/news/articles/cx2l8kq52y8o) |
-| Ulrika Jonsson hits back at people 'offended by ageing face' | [阅读全文](https://www.bbc.com/news/articles/c0rvl1n7v0eo) |
-| Man accused of violent disorder at asylum hotel | [阅读全文](https://www.bbc.com/news/articles/cwyedn0vlg1o) |
+| Body found in lake in search for missing mum | [阅读全文](https://www.bbc.com/news/articles/cnvml4027j3o) |
 | Plans to expand Wimbledon tennis site can go ahead, judge rules | [阅读全文](https://www.bbc.com/news/articles/cwyr7e394p0o) |
-| Pensioners in 2050 to be worse off than those retiring today, government warns | [阅读全文](https://www.bbc.com/news/articles/ckgj84ejd9wo) |
+| Ulrika Jonsson hits back at people 'offended by ageing face' | [阅读全文](https://www.bbc.com/news/articles/c0rvl1n7v0eo) |
 | Ryanair considers increasing bonus for staff who spot oversized bags | [阅读全文](https://www.bbc.com/news/articles/c75rp3w77kpo) |
 | Farrell 'doesn't understand' social media 'poison' | [阅读全文](https://www.bbc.com/sport/rugby-union/articles/cwyedepx749o) |
+| I'll keep playing as long as I breathe, Stevie Wonder says | [阅读全文](https://www.bbc.com/news/articles/c1k81r9ejpeo) |
 
 ## 📰 Google News
 
