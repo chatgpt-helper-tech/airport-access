@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月21日 08:00:25（北京时间）**
+🕒 更新时间：**2025年07月21日 08:14:22（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Police still searching for shooter of the driver who plowed into crowd outside Hollywood club - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOTkhFbmhWQmxHb3RKMzk3Q293bEdvZHJnV2JxVXJzQmo5LVZ3aThFZXM5dUhUNWM5aHZKQzlFaFd6NFJNSy1vSnR0SmF2bS1XRWdSbVhYa3pRU2txV1NpbFVJaENCOWYyNG9za01ZTUFYZkFVMHZqRzVkUk8xdFp4LVd1VWg?oc=5) |
 | Japan Election Throws a Wrench in Trade Talks - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNc3BHbzFMRl9CTXhGZ0gtaGo2Ti1zUDRZVG1MOWtUdzVrNlNoNEVJNnpzUFU0Q1Fhc2d3ajBkdlRlTEwzc3hMZW5janBkN0xMTmhwTVRsODVvc0k1U29vaGg1V1VKYWp4MDlGSm1RVE42Xzk2MEhHTVpKNVEyQWNELVRhN3dLUHRaeHh0UFNB?oc=5) |
 | An Accuser’s Story Suggests How Trump Might Appear in the Epstein Files - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQV1ZIT25WcWN0Qm1Wc3FhS28xa21raHdBSkRyMW9FRXpfenkwSkJZSnJybzNQMjlZdmZGUFUxYklZSVI1TzdhV2pjUUZUNDcwYm44Q2pkakw1U1NYMFZMVmxsRnRQb0FMWnliUTluT0Z3OUphMU9TMXFDLXN1LWRpamw3THZJblQ0NUMxRk81MW9UZw?oc=5) |
-| US Border Patrol agent shot in the face in New York City park - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNcmd4SEpoMUZJWXJiZWxmeHFqbG9sTFVob3FjWV94SFdBQVNQZGV4amczbFZENWlUMDJyOE9KQmU5Ykt2dXBLU3ZFWFZxS1RMUm8wUmRyRjZSWW4zS2dka3dscDd5R1pXbjFjbmJjQzFWcmtIZjlfTnQwUHFsYXBZYmtQNVVmSF9UemxFMThyR0fSAZYBQVVfeXFMTXFrMFFOU0hRREVxZjBpWjZRRjlqeUtLdmU2WXZqRFVkTVp6Y09Va2xTb3R3ZV9EREE5YXRTTV9SaW9xQld1dTRsd19Lb3puRWVBb0FKRFVpZlo0Slk5UDFkLW1uSnd4UFBUanIyVWY1UkVaUHRkanBab1Vsd25rRko2eTUydGJic1VTX3pSVHFXYlFmM3Vn?oc=5) |
+| 'When the raids started, fear spread': LA Mayor Bass on Trump's deportation efforts - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOZlZkcWh1ZVdlT1JWWTZCOTA3TmhuMnd0ZldNVFQ3OEJMZ2hobGxwTkg5ZkI1SzA4M3hQWWI1MDluR2RBeE1PV2xKYkdUejRUTUgzMy1SNFljdWtnTHFQSWYyZHNpSW8zUEVLY1p1cGpON2tqSjRzbUlWZGt3bVdFTWE5dkZxcmxEVGpPVGZzT3NnNTF3aGgxcUN0VUstQdIBowFBVV95cUxNRnVrR3R3WktJblJ0OHFsQzgtMEZfcEliTHFhRS1LOVJrNXU5R3p2SjUtcXNGM3pmYVhzRVBvWXhtOThpLWVyT1A0SUYtN1pvT2xreWxOSGNLT2dOLXRDMTRUT09FemR3SUdWZGZqRDcwZUxuTVJ0VTdhSmlURVRRWE9vNUprX3JNdG1WSEJud3NIQUNwbC1BTzhBQWdVWVI2T1ZF?oc=5) |
 | Number of missing in deadly Texas floods down to three - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE4zT1VWajZkb2NoTldSdkdkQWVZcGhxSGxETEcxNjN5aW5DXzlMUDRSSFBYT0JOc1ZlS0pQNUczdTNYNjFYS0ZRX0lDWE1DNUdWaC1hMFNYWDd2Z9IBX0FVX3lxTE84N1l0dXFaUjM1OHBObzU1MzhQdk5BY1pnOXQwM09Ga1I1eUp6VFFYNFp3LWVHZUplNTNDU3JQaThlNE5TNFpfQWlCVTlaa25TTy1wTDZwUEFXWEw4amdV?oc=5) |
 | Northern D.C. area hit by flash floods. Here’s why it happened. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQUU94T2dCbFZMSU1tZEN5Uk9NbkZMQjh5Z2pWV3BVMzhRZ1c5LXBaeXNidHJjUFBPR3BDbV9XcnRyRW9EQUJGOFhBLXV6M052N3I4YUN0U3ZGOEE2OFVnOEVKTVhmajBGNFBlT2UycWFPaHk2TUJiX0lxOFROb0xKeElPbGc4ZmNOUVd3cld0TQ?oc=5) |
 | Jake Larson, a WWII veteran who became a TikTok star as 'Papa Jake', has died at 102 - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOeUdHZTVZRmd1cGFkVlFWMk5OUEFodmhEU0UybmwtdDNaSzlOZXF4SUdRWlpEOUZQWV94dHJRTWtyYVRwZVFHYWRYNE5ZakNjdGFJcmlzOEFTNV9NMGZBYnJQQnl0YnhnWHFTSzM0TldvdnNlYkRsY2gxN0IzX05tWDB4S2tJZw?oc=5) |
