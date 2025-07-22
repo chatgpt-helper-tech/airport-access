@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月22日 11:26:23（北京时间）**
+🕒 更新时间：**2025年07月22日 11:40:55（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | 25 countries sign statement calling for end of war in Gaza - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOZXo1VkJONi1odXZ6bkxkR1ZkUkNpb2t3TkNZTUJMT0pVTkpBM3FmZ3Fmd0lZOUNNZGYxaUg1YkpiZU1XY0VENkY0RUVpb09tUUVBbzFwVTBpNnZUeG9wazJPQ0d2c2Zld2xZY3FrS1BNUXBXZWJNczlrdF93T01LZ2hfU21tRXpBOEhGODZDY2MzUlVTU25CY1dlM0hkUGhqbFZWLVdXZ9IBrAFBVV95cUxQU0c2WVpmUk5NYXM4QnExby1TZmJjb3hyR3cwLVdoMkJuOGNGM25pUG14NWY3ZTlDUHdKNlZ1bjZHX0s5bjYyS2FRRXhUSVQ2RlpHQW43TEhSTmhoMkVGTHZoUXRyM201dkJSUUhrdlRxanMyUmNpeTZoS01KelF1Qklsckh4YWVlb05sWVdITzNWVlYzTmVFWnZiSGFHVVBtbU9TUHBGQy1NaUJD?oc=5) |
 | US Marines mobilized to Los Angeles are being sent home, Pentagon says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxORUdOZ3lWalgtd3ltZ1BrWHkwYkRvMlJqbTFNNWdyMmZiQ01fcTcyckk5eENGc25DbElHaEUyZkc1UF9NM25zcnB3azdENDM1OWlmNDBuemZzZ19qNVNjX0ZDZDNoNHFtdl8wMlR3ejNja0pPOE1oTDVjM0VpSVQ5MkZMSFHSAYoBQVVfeXFMT1dEOU1qcm9aT1dENGk1U3dvOFRicV9qOENMaE1RUGZaN1F1MlFHalBBcjkwN3ZyY1didGlnN010NUp2M05QaUtHT0dLQTRoRnJzQW9LVVlVTnJRRXpyQ1RaRE8tV0tWQnpUTE9YU3FqM2VIYXk1cF9vTmk4VjVGQ1E3SGFKY2VWNzNn?oc=5) |
 | Trump's spy chief claims the Obama administration 'manufactured' intel on Russia - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQVkNqRTNiVndqR2pMWC1WaGNyX0xjRWVGWG9qVWRiTmVGVGtvZjQwdWVMMnNPOTYxXzBpZU11LXZ2M1JWUW5VVExHaGFPM0NLblZmMEotc3JkVUlwR0pkX21ZSENCaU0zQ0lsRXBUUFRXZ3cyTzRMUTVvYlU2dHpsTklRcTB1QQ?oc=5) |
-| Nicole Mitchell to resign from Minnesota Senate after burglary conviction - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPRENyLS1mVXRqZ3RfOEU3eVg3blcyNHNkeGNkdnZrXzlKUUttcTlmREJMcUdGOW44UHduUjFMN2VoYUNYN3R3ZENFaGpJZWwxVE41LTJyel9EMjBuN3F0RzhIQ3RZMW96azZ0VjhsemlfOWtNMWh0SHN2c0lxYi1HNnhEQUU0RjBQQl9ZZkFQYXJ6RVdaXzZmV2pB?oc=5) |
-| Trump Talks About Anything but Epstein on His Social Media Account - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPMk1UUWtiemNoVklBd0Ribk5zUTdMRVV6Ym5uSjlsWUp2eFY1azJmUTJFN0hQc1dhNjNOc3ByTmExSERrUjJlaHFRSEVzNHphZzVXci04T3dtS0ZRVmtmLWI5X3p0UnNfXzFTaHl4T3Mtd21iRDZYcll2SkxnaFRfUnNJVlc?oc=5) |
-| Senators question incoming CBS owner about ‘side deal’ with Trump and cancelling Colbert show – live updates - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNMXE2MGZDRlh6Tk5RV1Y4Z0dyUWF4R3J0ZUdJUjViN0cwNm8wSWR4d3F4T3pTWDB1azY4YmtoczIxWHc2WnNGdmlEVnJSWU5nWld6YXNBQ0JyVHhWV29fVkRPUHlHY3JMR0NucVB4M0p2akQtZnJaVHpMaGhLYk94eU5RVVViLWN3TzBPeloyaGZEenE0X1lxU1M0WXo2V0xWZDNwYnhWRG02RndYQlVmREZPRQ?oc=5) |
+| Pat Tillman’s brother Richard is arrested for allegedly crashing car into post office - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNVXZ4d3JkRTNJSWRJa0txdmVmYzU2TUFBZm9XazNpaXA4Q1R5OEc1NDMtckdGMXlMdm1EUTlCbm03cWplLTZOdW9WRFVDSGhjbzVmX1NfVFNMazE5WVlvckd1VDJjRFNqempOWnp3LVN5NWhGbUQzRjRrNlU2cHBCdmFzelM2SXpPYURSTXVqU19Sem9fYUhxa1ZndG1VM1RXTkQ0b3VfYVU2Nnhw?oc=5) |
+| Rep. Andrew Garbarino elected chair of the House Homeland Security Committee - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPaEwwTzRVRnFHbl9uWTB2MmV4ZTlOWjR6TjlFajNDWUZfVlVMeV8zVGRIYTVUVGNDaVJRc0laWXhwWnRLQUVVU0QxUjZrSHlaREZzdnVabnNzUzZ5ZDkwS1YzblBEZF85RkxJMjIzMml5aVVzb3NvODZJME9abDFRYmdSVVFPai1mUGNTRXI1cDNfMjdCZDY1ejZSdTNKU2RkTG5RQ0lsTlRzVV9JbjFyQUlPaEVCQ2NLQjBjM3E5Ykc?oc=5) |
+| Minnesota Lawmaker Convicted of Burglary Plans to Resign - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNLXExbjdzN2VLV1VDSWJsbTJKNTlPRzF3eDVPZm9sSlI0dUhJLVZMeUhjb25lU2MtV3hvNmU2Qy1CcVpaOGtJbTdWd2tsazFZV0xsemNSdE5HcXdWRXI4ekxyejRqRWpONXZabU9QbEhzbGFQS3AyTEN6c0pkOC1CTGtES0ZBSWF1YnZpUy13?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
