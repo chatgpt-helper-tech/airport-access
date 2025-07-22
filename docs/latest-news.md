@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月23日 06:14:37（北京时间）**
+🕒 更新时间：**2025年07月23日 06:27:10（北京时间）**
 
 ---
 
@@ -25,14 +25,14 @@
 |--------|-------------|
 | Trump accuses Obama of 'treason' in the Oval Office - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPQnRBa0VyeHh1UGI4ckd5TklkeGlNM3BPNW1kSldRVHJXMUl2Vmd5aEJSTTBGanA1c1owdlFidmNlU0ZoYURsUTJFdkh2bkVyQVVCWENEc0VvS3Z4WEFac2laZE9ualVMbS1UM2JESkpyZnNWUUlvOWFfY0J4QmJPNUQxSUl2U1YxUXNydldLSmZ5bVFE0gGaAUFVX3lxTE1nT0dROEozcXVlVWU0R3dWR2J4czdJSV9TMU5UU2VtR1lkX2pOLWRReXQzZWVKUmhELTgwem9xRllWVmNzMzBaOHBkbG1mZXI4TV80cGhnLWo1Rnc3M3QwUnUwMVl5NENVRFFfMHRYNEVUMlBTX2N6RDdEdkxnQWphcEFJRlJCLURocE05bmNnV2w3YmpWZHhNeEE?oc=5) |
 | Justice Department reaches out to Maxwell as calls for Epstein transparency grow louder on Capitol Hill - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBUSkZzeXJ5emJTUXRmNHZnMW1Ra21qeEpNOGJlYk12Q2p6NjYtaWNsQkVyZHljVE1DQWRneUpldFZIbklDeWU2X0E1MDVybi1HUjRRZWxDYUg3aEJydE9RQ0hkazhSalYwek14SldZZ3hKZkNRZnVGadIBfkFVX3lxTE9vaHN6NWhrX0dOODdCcnlwTENIZWxTWkFFZUFwcF8wOFlsRnp0cEpqTUd1alRrd3BrSlFfMDV2SGdBUjlzbVNHMEJVd19vejE1NnRXdHRJaThVOUw1VFI3aW1KSGlCQXM4cHM4Zkhiczk5LWhkRkptT2VVVHh3QQ?oc=5) |
-| House flees Washington amid turmoil over Epstein fallout - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPdWYySnNwdnR6YzVmOE54eDhpWlN4SU9nZlBoNEtiaXUxQVJXUXN5R2VEWEpQM3l1SXJ3VndZX2tYMlA0Z3RBVnByaTZMQURhZWF3Y2NnZFMzUnk4Tm5YTXFNRTc1a1BScVRFYWF4MEhQMXMyX2VnZzlQeFBPaWtRWQ?oc=5) |
 | Alina Habba: Trump's ex-lawyer replaced as federal prosecutor by judges - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFA1MURfLV8xR2FSb3FOWEkyZi1uRFhuaTd6QXluaDNmOUEyRzF1SnpHNVcyQTlRa2dRdWs1NGNCcWNSLTJaWmpmMW5zZm9zUlRYNFhxbkROSE51Z9IBX0FVX3lxTE5kOGxNeWp2UlU1eWZac0QxRGhwZkxXSDY2cFNHSU9MNm5EUDFVLXI1Ujk0Q3FBVE54VzdXZ2lJNDNzWnAxd19LRUNIRm9MMXQ3U2dMZXJPbENVMkUySUdn?oc=5) |
+| House flees Washington amid turmoil over Epstein fallout - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPdWYySnNwdnR6YzVmOE54eDhpWlN4SU9nZlBoNEtiaXUxQVJXUXN5R2VEWEpQM3l1SXJ3VndZX2tYMlA0Z3RBVnByaTZMQURhZWF3Y2NnZFMzUnk4Tm5YTXFNRTc1a1BScVRFYWF4MEhQMXMyX2VnZzlQeFBPaWtRWQ?oc=5) |
 | FEMA Urban Search and Rescue Chief Resigns, Citing Agency ‘Chaos’, Colleagues Said - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOSXdKc3JMNUxiUEdIWkZ1Q0VFenZGX0hpRTVVNmFxZWZvaDZIdGNmMUFSdElDVC14WmdCRno1SzNqcTRDNHc2YVU3QVNLY1FQdzVLcURCak9QaDdkRVdIUFU3WWYtT041SlBKblgxUjNuSkczT2tuWG50ZEMyVGYza3lVN1hjR2k3M3N4RGpFMA?oc=5) |
 | China blocks US federal employee from leaving - theguardian.com | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPclV0YW9Dd09aUS1ScXpBTGhmS0YzSERhM0RIcWdiVTZUcGxXRFN3RlhPb2hEMkstZkVGSGRLS2RyRFY3aGdQYlJIUW0tVUpsUFZxVkl6b3Q3UllybkVOUlVrSmpBWDNYNGY2OXlFYm5GNld3MzRCV2labV8tU2k3ZVBYbmlZZjR3UWJIVm1MMVJSYXY4OGc?oc=5) |
 | Tolkkinen: Thumbs up for Detroit Lakes jury in Sen. Nicole Mitchell burglary case - Star Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOWHF0bTlWZFpoNERra0ZuMl9BWWlMVzcwdENWd0RfVzZIczhUTHlGcEpxeGlRdGlsUzd1QzMxYWxTX0hIcDZyaEdwMUswQ1pGVXN6VnBKSXl2STViOU53SG5JUnlDTjI0bGR2anhpLVpCVTJWaTh0VEtDOWpQVk9aWkN2X0g1WUtpMUxJQW5zaUxUNnhOMXBQaTVWWDdPNE5oR3JjcUd5UFN1QndydnNTS1g5bDdYOXFV?oc=5) |
-| Trump Live Updates: Johnson Blocks Epstein Vote as Justice Dept. Seeks Interview with Maxwell - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE1QZ243LTV0T1NjQi1VUkNDZDJjRmJVMVdsUk5YdDFzb25IZDlGUzlYWkVyZWVSXzMzcEtIaDNkVHNGWXJESmxLWG43SnVtVWxoVzVEMlZYbTJlRFEyT3B6bGR2MA?oc=5) |
 | Hunter Biden lashes out at George Clooney, other Democrats, over Joe Biden's 2024 campaign - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQOUJ2OFFvU19tRFk5alEtX0VwaUNUVlVFd2g4Q3BpU0dIMTl3ZnlKd1BJT3J2MnA4ZzVlWUc2VXdCbk81N0QxYkd6ZWVLSE40VTB5V3NHd2VCY1FicjNodFUwVHVDVkp3ZDFOeUlfR1YzcEVPNjBmZTFHdGlRaEdLZ1pXZk10Z3dwcWotcjBPNE04QkRVTEZEQXU2cGVTUXNEMFdETGVn?oc=5) |
 | Trump announces trade agreement with the Philippines and terms of deal with Indonesia - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5EelA2MXY4UFBvRU5tOE1JaXNkNGs1WDNXZk5ES29FX2gxYkFPSU1SSEZkU05icHRPV3BVT2VIbmN4alNTa0dtNjZmRTJWaWtZOTgwdldnT1hvVFl5akF3SG4xWmF0T1IxaWtPbGM0aGRrQTNZcXp30gF8QVVfeXFMUEZ1ZUZDM1BIeUg3TzdzN1BUX3ZzTlB4eFhiNnRMMzlINUlvZF93ZnJxNFZqRzFhRmVRemN2YjQ4bG1OUFhReVdxTnBqMU9ZNXBZaFpQMktkQ2VUX2xmcjd1OTBtSS1ncUwtTnJRR2JreC04TGQ4dnNWc3M0aQ?oc=5) |
+| Judges Order Trump Administration to Submit Epstein Transcripts With Proposed Redactions - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPcGZTVVVFdHMyT2ZzMXR4NDMzaEFtMXZUb2djUWlTREFsUW5va0JFT3hBZF9qTzBadlZfbjA0YzloWUR3SE5nSzF5X1J0eTVPTkE3UEJPeDh2d215RllCMlh3Vjd4V1EtNTFobHVyWGJwNXFzNVRrdGR6eFdhaTFCSUNqWk5jSF9oMlBkMm9JWQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
