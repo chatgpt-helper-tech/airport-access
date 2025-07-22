@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月23日 07:14:34（北京时间）**
+🕒 更新时间：**2025年07月23日 07:27:00（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Obama rebukes Trump's accusations in rare response - Axios | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFB5aVBHSnRZZDRPNENqZUVoMzBIUmJiR2k2SGZQdzlvZ242VEtlc3ZUQmRIdkhpLWVfd3NkZXA4d0R2VnRZOHFGTWtkNE5ZRWRTMEJjRzVOYXRIRFczdjZ6YUNRQUpJMlFFRHNKTlFJb0xNZ0U?oc=5) |
 | Johnson ending legislative session early over Epstein controversy as some Republicans demand answers - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNcFU0emtBOUFGOXBqSVJEWENWM2tGck93R1Uwb1ZjeHlBckZhVzBBOTZ3REdZUE1vQVZHWmV3MVQ4Nm5ZdHFnQTVXWVpsR3pRRE1CRUY2QjBJZ0FqOHRnUnhncGlFd1AwZ0pVRkhhY3pkbmNXdVVWMXBsSUxYei1INHgydHYwRUQyN2dla3dwWUNmcGxKVUYwMNIBngFBVV95cUxQMU11WThWSmtxQTV1VUdidFIySGtacWhPYlBWclhveWppbF9WY05Hb3QtUnlnOTB6UDRZOXdZNnZfNFNqNVZTbGNkQkwzVG16QktLVWs2N0JZdVplNXJzbmNhYi16b0g3T1F1MDN3ZmZ1aUdEcFFSLTRUVkFBRjJkc1RXeElYSk1TS0V3QlNmOHpCOV9xeVNKdnVNUHEzQQ?oc=5) |
-| Can DOJ trust Ghislaine Maxwell? Prosecutors say she’s lied about Jeffrey Epstein before. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOZEZpMHVYVjlvbXNuRXR3dW90Q1VsdlV2dklUUkZKNXNIaDNWa2NLcVFkNC02a3Vhamgzc05xWUluSWx4OXIxckQ0d1I2NF9LaGl1T2gySXJRR3ZVMXRoUUlWLXlhd3Y0aUJjdU9XVXJ0VFBFb09NSmh0UDA2ZUs0VjFBZ1pCNUlZ?oc=5) |
 | Alina Habba: Trump's ex-lawyer replaced as federal prosecutor by judges - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFA1MURfLV8xR2FSb3FOWEkyZi1uRFhuaTd6QXluaDNmOUEyRzF1SnpHNVcyQTlRa2dRdWs1NGNCcWNSLTJaWmpmMW5zZm9zUlRYNFhxbkROSE51Z9IBX0FVX3lxTE5kOGxNeWp2UlU1eWZac0QxRGhwZkxXSDY2cFNHSU9MNm5EUDFVLXI1Ujk0Q3FBVE54VzdXZ2lJNDNzWnAxd19LRUNIRm9MMXQ3U2dMZXJPbENVMkUySUdn?oc=5) |
+| Can DOJ trust Ghislaine Maxwell? Prosecutors say she’s lied about Jeffrey Epstein before. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOZEZpMHVYVjlvbXNuRXR3dW90Q1VsdlV2dklUUkZKNXNIaDNWa2NLcVFkNC02a3Vhamgzc05xWUluSWx4OXIxckQ0d1I2NF9LaGl1T2gySXJRR3ZVMXRoUUlWLXlhd3Y0aUJjdU9XVXJ0VFBFb09NSmh0UDA2ZUs0VjFBZ1pCNUlZ?oc=5) |
 | A Trump Executive Order Prompts Park Workers to Report Displays That ‘Disparage’ Americans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQQXo3Uk5oeWYzOUFBelA0dU16OF81RExaN1NXYnIxbVFrTkp0ekhLUHFENW85TzgzSU1BMzRLRXg3dHAtT3hfcTJjM2xndDFGVXY0a3pyRURXMWpSNFp0cWJPa09NcURqbFRGLWRtUjMzWDZ5VnpLYnBkcFRQaVQzXzNHd2xaVzl6UXRHUWtCTzNJVDJ6U0E?oc=5) |
 | FEMA Urban Search and Rescue Chief Resigns, Citing Agency ‘Chaos’, Colleagues Said - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOSXdKc3JMNUxiUEdIWkZ1Q0VFenZGX0hpRTVVNmFxZWZvaDZIdGNmMUFSdElDVC14WmdCRno1SzNqcTRDNHc2YVU3QVNLY1FQdzVLcURCak9QaDdkRVdIUFU3WWYtT041SlBKblgxUjNuSkczT2tuWG50ZEMyVGYza3lVN1hjR2k3M3N4RGpFMA?oc=5) |
 | Sen. Nicole Mitchell resigning, Senate control on the line in special election - Star Tribune | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNeHBFb2tzbF83VU1fWnJ5SWcxaEVuYTlLV2RhZEJkZnE4UF91XzgzQkJ0NFZNYVhZMnRKYktxR1praXFITEdhbXhZUUxSaHhlaE91Y1ZqUk5majdoc3cwX2ItN3NCWkFENy16dVNxbVVNQ0lwd0dwMXk0bUE5R2dfRmdySm9lNEJpYkFtMGhaM1Z1aC1jRkphN0VHN292dE1jS0ZoQTdHWG1QcWliTTJHU0Y3ODQ?oc=5) |
