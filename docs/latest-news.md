@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月22日 08:39:26（北京时间）**
+🕒 更新时间：**2025年07月22日 08:53:53（北京时间）**
 
 ---
 
@@ -24,10 +24,10 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Judge Sentences Ex-Officer in Breonna Taylor Raid to Nearly 3 Years in Prison - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNQWFrRDZGSnVqOXZyQmZZQlZxeENxMjJmTExjTXlaYUZDbFc0WWhsajE5ZERsdXFVS0R4Mkl5UjJaN09iaWw5eFVURlpfaVpOOVliMWdNU25IWjdSNW11RTIwQzdjTEZoSG05VHd2bWxLa1piOHVuRzRrbThlN0hGZFJLaVZkQ1dRbUhXQkpFTDJqdw?oc=5) |
-| Lawyers for Harvard and Trump square off in court in Boston - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQcXJSVy1Ld2lXYm9wMWkxYnhKYjNTeG1sWHMxc0lwWnpVODBGdUVVU0pqUlZSeGlCdndhZGFfcWFXYzVHTDhla1BUcGNNcUtJVmJvdlF0TFNfU3Q2cjVCMk5OUmhINWswM2dBcG9uci11bS1JUS1VaktPRVcxcFhQY1F5OUtlZw?oc=5) |
 | Martin Luther King Jr: Trump administration releases files on slain civil rights leader - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1zYlYxNWxPb2IwWVN5THpYdTNFOVdPdG5fUkNSa2lUUF82dWttQmh5R0g4Ry1yei0xdzAtWTZkRU5jT0NKTUtUb0wxZHF3OGNINXdSSzVXNlhGUdIBX0FVX3lxTFBMby1YRmh2bFNGc2J1MGRUYkFtcHp3dW95djFEanV1Q1ZPOUJsbGRlLWFIZWlvWHJOTG5qUm10X21MUUNlZmxsN0xJY2I3bFlPSy1ISGl5dEhLdnY4eVd3?oc=5) |
-| Man convicted in 1979 kidnap and murder of Etan Patz must have new trial or be freed, appeals court rules - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOMFVIYVFOc2ZseExWalBSaC1RRFc1NXktb1k4TVhfa0ROM05CX3FzWGh2TXE0RFc0eTFrLWlfRmQ2OWxZSFZwbjRMbFhzWW51YkRYbDlUWDBhbnZsNkZVaXlRa0EyOVFQeTM5RTU3b2pQaGg4b1ZyR1VYanVQeVlpTFRxTG16VTd5Z3RIdXFoWlVJTFZmTVFlZzNXSE5GX0t4WXZqRFJoMDRLc3JDTjctbTlOMDZLVUhTb0HSAVZBVV95cUxQZHg4Q3pNc1BVNVpXWjNfUzRyYzNQX09qUlFEbjdZMkpHa3pBdEsySC0wa0o3TlFrcy1SeVQtT2FpQkRFNnpRZzE2MXIzNUtKTldONXY1dw?oc=5) |
+| Appeals court orders new trial for man convicted in 1979 Etan Patz case - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQcE1ULTN0ZkV1WngzNXJ5V2YycGZlNWlKd05qRFdxWHV2NFJTeWlrWTF4RFB4QVdBbnF4TWYxOGhKZ3N6RkEwblNta0tZUXBBeThkeVF2Z0JwNW9WbGpoQ213NUszczl6c28tZnYySU5WRnBldlYyd25hbXNZaDFFWVFFTkt5bGdEd3RpTGx6Qm90ZmFqeGNaRU53ZWU4Ym1LbzB2OQ?oc=5) |
 | UK, France and 23 other nations condemn Israel over 'inhumane killing' of civilians - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQcXZjclZackxyNGtTcDl1RkJXcWttV0I1U3BhM2U3aXR3Qk45UTVVcGt0Zm41MVVNRG8zRWlzV0Z0QmxpWlpTVXdJU0E0NnQxaVRSQUluaWJhSGJaLVlKMUc3X0dNTzhydVNrQkNzdGJ3V2lXWnZ3a19jTVkxeWNjbG1Nbkc5X0RsQlJHVlBuNXhPdDBJNGE4T3R6OUZRREdIWkd5MU5iVHdrYzh5dld2bnNrMFBCZHFBVXc?oc=5) |
+| Lawyers for Harvard and Trump square off in court in Boston - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQcXJSVy1Ld2lXYm9wMWkxYnhKYjNTeG1sWHMxc0lwWnpVODBGdUVVU0pqUlZSeGlCdndhZGFfcWFXYzVHTDhla1BUcGNNcUtJVmJvdlF0TFNfU3Q2cjVCMk5OUmhINWswM2dBcG9uci11bS1JUS1VaktPRVcxcFhQY1F5OUtlZw?oc=5) |
 | Trump's spy chief claims the Obama administration 'manufactured' intel on Russia - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQVkNqRTNiVndqR2pMWC1WaGNyX0xjRWVGWG9qVWRiTmVGVGtvZjQwdWVMMnNPOTYxXzBpZU11LXZ2M1JWUW5VVExHaGFPM0NLblZmMEotc3JkVUlwR0pkX21ZSENCaU0zQ0lsRXBUUFRXZ3cyTzRMUTVvYlU2dHpsTklRcTB1QQ?oc=5) |
 | US Marines mobilized to Los Angeles are being sent home, Pentagon says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxORUdOZ3lWalgtd3ltZ1BrWHkwYkRvMlJqbTFNNWdyMmZiQ01fcTcyckk5eENGc25DbElHaEUyZkc1UF9NM25zcnB3azdENDM1OWlmNDBuemZzZ19qNVNjX0ZDZDNoNHFtdl8wMlR3ejNja0pPOE1oTDVjM0VpSVQ5MkZMSFHSAYoBQVVfeXFMT1dEOU1qcm9aT1dENGk1U3dvOFRicV9qOENMaE1RUGZaN1F1MlFHalBBcjkwN3ZyY1didGlnN010NUp2M05QaUtHT0dLQTRoRnJzQW9LVVlVTnJRRXpyQ1RaRE8tV0tWQnpUTE9YU3FqM2VIYXk1cF9vTmk4VjVGQ1E3SGFKY2VWNzNn?oc=5) |
 | Pat Tillman’s brother Richard is arrested for allegedly crashing car into post office - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNVXZ4d3JkRTNJSWRJa0txdmVmYzU2TUFBZm9XazNpaXA4Q1R5OEc1NDMtckdGMXlMdm1EUTlCbm03cWplLTZOdW9WRFVDSGhjbzVmX1NfVFNMazE5WVlvckd1VDJjRFNqempOWnp3LVN5NWhGbUQzRjRrNlU2cHBCdmFzelM2SXpPYURSTXVqU19Sem9fYUhxa1ZndG1VM1RXTkQ0b3VfYVU2Nnhw?oc=5) |
