@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月23日 22:14:47（北京时间）**
+🕒 更新时间：**2025年07月23日 22:26:53（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Gaza doctors ‘becoming too weak to treat patients’ as hunger crisis deepens - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxPNnctYkdrTmFObkw4YTJualFXbWV6dENFQjk4aU1QYTAwSjBQUnVBMlhSQTYxdkV1dW5UWkZGZU1DZ3lqTEJ6UXhzWVBCOUlHd1UwcjdnNWtxSEM5ZFpQWWFrbFZwODRreGQyb08zcnFuOVFvVjRYWHV4d18tZHlMb1k4V0tlSTlzcTRraVlxYUdacVA5ZXRlRnRpTExCa3NaMlBrSTJzUmk3V181SWpmSV9rRmhNbnlDVUJLaGoyVlFldE5zZURtNld1Sy0?oc=5) |
+| Doctors and health officials report wave of hunger deaths in Gaza - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5wMW5NN004SER5VWs1UWtMSzUxWDBGLW5Cbkhfc2VvSjRSbVUzZkZOS25VbFQ1TVJiQlNYM1U0T0ZYX1pYWXhINC12Z2dHS1ZndTFZOEdlT3JzcXZaUU03UXdsVGFCcFNmSXVjeXZyVVc?oc=5) |
 | MAGA clamors for arrests as Trump accuses Obama of "treason" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE4wRndGcDNsTjVoMlVSbExHbnAyU0UyWmxWZzFNNXplbDJJWjJLZWctUHdoZzllQnctSDJkdGlWSnUxbm1qYWNPMHBfbzhlMHNtUjRhQ0c0Q1VOWTRPajJra0xPWDBkaUl3ZjNaVkJOVUFRNUotQy1vaTV1QQ?oc=5) |
 | What to Know About the U.S. Move to Withdraw From UNESCO - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5zSmdiYnpmeXZhQnhUSmFoaTZycWg5T3QwZWNDNEdoRTNHcDRUZGJuaFdpMFBEZ0JGX1RaS2ozbl93MnJvNjV3TjBEYVRmdmlTb3F4ODBkYnJkcHdXbnUwekZpb1RVNURnXzgwUkxnUGZCb0lFTkZ2ZVRqLU8?oc=5) |
 | Capitol agenda: Johnson tries to contain Epstein dissent - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPczFTNnc0TzRLZXBHdGh5ZXJZMUEwelNhalBwZk9xYXVmY1RCeEI5YjY4cDdPdzdSWUktWjFLMllEU3hyVFBacW1oV0RPcG81a2RSekN0d2JpZ1l5b2hraUhmcnNHbGNBV2t6Ukc1UHIzcW9NSUZLc1g1NmU2cjIxWUlrR1AxNHFrV25MYW4xTjUwQkYtSEc5aXVnZlFBS1diU1JQcTFlbzVybTN6UzZ5aTdqWWVsVnhNOTNn?oc=5) |
