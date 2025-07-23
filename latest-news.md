@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月24日 04:53:58（北京时间）**
+🕒 更新时间：**2025年07月24日 05:01:58（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | Gazans 'wasting away' as mass starvation spreads, humanitarian groups warn | [阅读全文](https://www.bbc.com/news/articles/ce9xkx7vnmxo) |
 | Bryan Kohberger gets four life sentences for murdering Idaho college students | [阅读全文](https://www.bbc.com/news/articles/c0rvk25v5lxo) |
 | UK and other countries can be sued over climate change, top UN court rules | [阅读全文](https://www.bbc.com/news/articles/ce379k4v3pwo) |
-| Judge blocks release of Epstein docs, where Trump is reportedly named | [阅读全文](https://www.bbc.com/news/articles/cwyq921zqqzo) |
+| Judge blocks release of Epstein grand jury files | [阅读全文](https://www.bbc.com/news/articles/cwyq921zqqzo) |
 | British surgeon who had his legs removed  accused of fraud | [阅读全文](https://www.bbc.com/news/articles/c75r21ww30vo) |
 | Macrons file defamation suit against US influencer Candace Owens | [阅读全文](https://www.bbc.com/news/articles/c8739w8py4jo) |
 | Mother and two children killed in Northern Ireland shooting, BBC understands | [阅读全文](https://www.bbc.com/news/articles/cqx2537w5e2o) |
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Judge denies release of Jeffrey Epstein transcripts in Florida - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNUGl3WktCdTN4dW93a2cybEo1VFRiVW9qcHVqRXFHUTBqZ25aNjR3RkxJbko3eEE2aWtma0QySFdEanQ5RGs3WXNjU0hHcEJnRm1GOTJ4TUJzZ245azdFWnB3TzJ3Qk04dVR3TW9uZ2p3YV9JS25rVGlpQVpOTEtxdThHSjZkM3c?oc=5) |
+| Judge denies DOJ request to unseal Jeffrey Epstein grand jury transcripts in Florida - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPbGhzYkh0U0ozd2Y0RGNWUllvX1pBMlQ0Yy1wdEF4SW9xS3JLSWdtd1AzRS1CR2VEa2NKYUhOSjZjVVk4N2NJcnlYS0o4MHREWHRDc1FIRjFUenR1ektFNHVCdGh1S2d3SEt3dnhvLVo1ckxENHRsYjlNb0ZBcGJBNS1mb1kwNmJzOVl2azdKUHRBQVl1clN3TmhrRG5JcWV3T3VSR3h4T2JrTzdEQUVCM3NFLTE2VnFLOEZpcExBYjdrNFJmUTA2YjFGWHFfQdIBVkFVX3lxTE5RcDZTQmRYUmRqQXdUaXNQWDdvWGM4cWdiM0xuaGE4S1doaHJHb2poWmptZFFQR3h6ZTlSZDUxQmhkT210T0FSSGdXNjBTcjFHQkkxVTZR?oc=5) |
 | Bryan Kohberger live updates: Judge sentences Idaho killer to life, says motive may never be known - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOYndGTmdVRmkxanZtc3I1a3FPTGlBTTEzYTgzTDVTLTBXMTRSV3hnM3liaVU4SUpDd0dMMEZJOEs0STBPRG0zZVVSRFNWZ3FnV2NNYk5fYTlOYTdkVk4wamRoZUpoNWxEVjAtRllfRDg0VFlqeF9jOWxKUXN5MFlBQi02a29VdGgzR0Zob0RraHJJNzByckxVc2p5SzdHUmN3eXYxMXJzX0NPakpvUk9n?oc=5) |
 | Gabbard, once scorned, takes center stage with latest Obama allegations - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOWTl4bkxOR1hXUWF4UnVMc3dONmlwTmpqRXZvUE1OUG1FaElTd3QyU3hEVm1UWmRlOWlrcGpRRzhNdllsNnM4c0ZHSGozVkQ4cjVoWTk1SlVlZm9lSnhyWnVjdy1kRG9UZkY0NGFSRGl4VEFlOWRERXVrbkxOdnJXbjEyUkdiajF2U21hbENycmwxbDA0Y0pTRTJjMUk2QW5QX0JGMm52dFhrWVZ0bVN0QnlENWVJTjNVTHJV?oc=5) |
+| Judge orders Kilmar Abrego Garcia to be released from federal custody - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPXzNhdlBNWGNsMk50elRxbmxCQ1lNUHVvNnFvaXhkWE1DRnN2dUc1SU9tXzVoLV9oRjRkMG1uOVIwVXg2UFB4Y09sTWQ0bHNMaVlDZ2V4Q1Y2b3JGS3AtV2w1YXRTUm50djh2WTB4d3BqUjg2YzQ3WGtyZ3I3Q1ZobkdnNGVvRElObTFQM1Z2N3lPWUh2TzlvVndqbUthU09wTU90Z0FGRjZMUQ?oc=5) |
 | House Oversight Committee issues subpoena for Ghislaine Maxwell - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPckpuZEZlcEtLM2h3MXo3Z0RLVDRqMmRWaWVjSDJvVXMwYjZqNmtxMkdNa29sbjBaWENvZ1BuRlNBbkk4Qnp2TUFWamxRODd3RHBlTXVTbXFWcy1oYks5UHp4czdlSWk4Z01fb21EX2V3U3ZIa1FoSnZibEtlbHdXQmFoWW82R0ZrUnJDSG5xWUNqeExhbm1GeEdJcVRadTRxVTQ5eGpVajRTNTREQ1Fn0gG0AUFVX3lxTE5sc21HT3RyamtLVmFpZUZCcloweFRRcUhrZGt0QmhQWlhlNHk0dDkxcmRXaU02U08xRXBkbjEzQkJaazB3NUlZTzRBNzYyTEdnWkh0ejJFUDB6MTJ3M2pDdHBEVkpxclVNLURQd1ZTTWpXcWpheGNZNEgzQWV6UnpZNmdBRm5kd1czRzI1YXBVS2JPY2p6RFByaVdnNFdPU3g4R3FYOUQxZGVId21tc3Z2OWUxdA?oc=5) |
-| No charges for Jacksonville officers who punched Black man during arrest - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOZHdUaHFWUTc1UTRNZkdrQlVwZU1mMXdZMXo1QVN3WmRlYkRQNUh5c2lxR2RhTGxFNDJhaWE1ZWVSUXlaTjNoVC11MF9XU1F1VE1Rd0RaTXBjME5RRGNsemxEaGYwOFlQSGtKemFHejFDNW1ua2xhek5xM2FHU3BYWDVhbWJTOGpHMm00TWFqLS1SWmM3al80?oc=5) |
-| Doctor pleads guilty to selling Matthew Perry ketamine in the weeks before the actor’s death - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPZTItNkNud19hUDNIc2J4WmNxY0RORTJXN1lRZERvQ0liV3FwNmNrVUVsRVdrNWJCSjU2dFhiWEdmekhvRmtPcmZpRl85Q01uOGNyM0o5MjJPMWI4bUtTRW5CajVLMlJfTjdRQlZOWUtUNlZvTVJzaVE3V3FXNGxDMDV1VmlSNW1VZW9SQ0xFQlVpU3d0LWUtLVRsaEM4RWNYQ09vWldublJCaE5LYmhHeQ?oc=5) |
+| Black student faces long recovery after police beat him at traffic stop in Florida, lawyers say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQVlBsNWcxdWVPV0Mwb2xWdU9sMGgtX0h1ejRZZDVySkVlN0RnRDFmRTIzdEpfRWVSeVZMbmRBZjFsX3UyU0tDWnl6Z3I1UExka0RsY1hOcXJfaHNjUDVEd0stUHpFYkIzVXBLd1FSeXdTSGtWRDVvR3YtZXh2WTdla3VBTExWU3kzbzF2cGg4MXhUUWlTS1NnOEdRaHVadw?oc=5) |
 | House Democrats ambush GOP with 11th hour push to subpoena Epstein files - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQbjRUUXhBZ25oYUZQZFNFOXFJZTlEOTU1VFBXZXI0OHc2cURscmRpZmtiT3dGeXF4X3czc1QzRVQ2YmVWTGNOTXRnbU5jX2JpcWpVQjZGY1hiWWdrZ0YwaXdnd0FUX2pCb21nNFEzRnhhT184M05hTVZSZ2lVTnBfczZuS3JkQQ?oc=5) |
-| Judge orders Kilmar Abrego Garcia released from criminal custody - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPQmZic1FJTTl0N2U3Q1Y2Tkg2eGk3UWl2cnFVZDVGMUZGU1RLWTI3OWt1R2FqQzBjNUpCTFBUQTh1VEFGa3hvNmJ2Si1EVUJIMjd6WUhMcGhQNmdUQlFSVHZ4MUpkQ3BJYlRlQldWdlhmTTNlRWo4ckltTkRUeXUyMDUybw?oc=5) |
 | ‘POTUS is clearly furious’: White House is frustrated by all-consuming Epstein coverage - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxPUGw0ck04WG92VFlIX3NTOEJSUGxNdkNiUC1ibF9BaGFORkJocXA0cXFrckM4ZmdGT2d3ZHhRSFN0dFJsaktHQnZqbUhPVjJNaGc0cXVnVm1qRUZyWHRsSDVfOXdsN0ZOcmdnQk9pVUVmUTlqZHJ6eEdsTENMZ3NBckQ1TWhBdGRWdG05ZUpDSzE0dGdrR3JxNXRiUEhTZXBNTk1GS2Rlc0FlZTlfUUlfSWVtQldPeUxqN1otSkJFc2lxbE9yQUJISTlGS3FFa3M?oc=5) |
 | The absurd fight over Trump’s MAGA prosecutor in New Jersey, explained - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOY2pIYUZiUUVvTE5PWklDeldxdklDdkFPV2VaVF9WTUNCLWZCeFk4YU51cWF3cEpCa0t2a2tZSnJJZWE4cUZtN0loYjRYUk13elg1TDNUREtmVFMyTWhOY1plRUR5cXZMVXlJbHlRLWlsREk1VHJ4ZW9rSTRSSTVSc05BdXNEODZhWDRRTkxyYkNxV3phVUE?oc=5) |
+| Justice department reportedly told Trump in May that his name is in Epstein files – live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi5AFBVV95cUxQUDZOc3N4aDlFcHJyWnp0WWk0dXRvcEFVdUQ3UElwSVdRcXhxdlhkZTlwbE53Tk0tWl9FTERpdVVLenRJOVh1MlBTMlBpdEl3dU43NVhqMklOUXVoMVFqNXdySVJBQnBFVUhYcnhxTVpTdkNJT05mZ21uZHZ4SU9rMzloUHBxN0ZsVTExZHpGWWZLanpMc1pjRV9iREQzQmhuWEw2bEZNTUJRVnpway00aGxpT3RGM0IzV2tXT1dlaldCTzVfUnVZYWd0cEVuWGpldEZBUXJvVF9Nc29QVlN4aFpDUjI?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
