@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月23日 21:13:32（北京时间）**
+🕒 更新时间：**2025年07月23日 21:26:16（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | Air India crash victim's son says he received wrong remains | [阅读全文](https://www.bbc.com/news/articles/clyld3vwqwzo) |
 | 'There will never be another Ozzy': Stars pay tribute to rock legend | [阅读全文](https://www.bbc.com/news/articles/c17w4wn71z9o) |
 | I don't care about my age, 19-year-old Reform council leader tells BBC | [阅读全文](https://www.bbc.com/news/articles/cj61l526xlxo) |
-| Chaos and comebacks: How England keep overcoming the odds | [阅读全文](https://www.bbc.com/sport/football/articles/c1lj0nm0myyo) |
+| Faisal Islam: Trump's tough tariff tactics are getting results | [阅读全文](https://www.bbc.com/news/articles/c93k0wzyw0ko) |
 | Two dead and two seriously injured in Northern Ireland shooting | [阅读全文](https://www.bbc.com/news/articles/cqx2537w5e2o) |
 | Erik Menendez taken to hospital with 'serious' condition, lawyer tells US media | [阅读全文](https://www.bbc.com/news/articles/c8xv0dgdgd2o) |
 | Heathrow boss 'frustrated' at being asleep during fire that caused airport closure | [阅读全文](https://www.bbc.com/news/articles/c07d4v9j7gvo) |
@@ -27,7 +27,7 @@
 | MAGA clamors for arrests as Trump accuses Obama of "treason" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE4wRndGcDNsTjVoMlVSbExHbnAyU0UyWmxWZzFNNXplbDJJWjJLZWctUHdoZzllQnctSDJkdGlWSnUxbm1qYWNPMHBfbzhlMHNtUjRhQ0c0Q1VOWTRPajJra0xPWDBkaUl3ZjNaVkJOVUFRNUotQy1vaTV1QQ?oc=5) |
 | What to Know About the U.S. Move to Withdraw From UNESCO - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5zSmdiYnpmeXZhQnhUSmFoaTZycWg5T3QwZWNDNEdoRTNHcDRUZGJuaFdpMFBEZ0JGX1RaS2ozbl93MnJvNjV3TjBEYVRmdmlTb3F4ODBkYnJkcHdXbnUwekZpb1RVNURnXzgwUkxnUGZCb0lFTkZ2ZVRqLU8?oc=5) |
 | Capitol agenda: Johnson tries to contain Epstein dissent - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPczFTNnc0TzRLZXBHdGh5ZXJZMUEwelNhalBwZk9xYXVmY1RCeEI5YjY4cDdPdzdSWUktWjFLMllEU3hyVFBacW1oV0RPcG81a2RSekN0d2JpZ1l5b2hraUhmcnNHbGNBV2t6Ukc1UHIzcW9NSUZLc1g1NmU2cjIxWUlrR1AxNHFrV25MYW4xTjUwQkYtSEc5aXVnZlFBS1diU1JQcTFlbzVybTN6UzZ5aTdqWWVsVnhNOTNn?oc=5) |
-| DOJ fires newly appointed US attorney in NJ after judges vote against keeping Alina Habba in role - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFBIUUxPMldmZXY0WTZ3czVqRU42RzNrRmdLV2lOM19iSXBuQ1FLTExIMERBVl9GdnN4ZkV3QUlVRjM0NWNhblBHZnZvLXR0QnFEeWdqYXVGOVRnYUlCTWdmSVF2QV9sMTBlYUc2bThRSHRuZWhXb2FCdlF30gF_QVVfeXFMTzNYeG9OcHYyekVnOVE3OVdRYlVLSldrZ19NWS1sU2hvQ0pxajlLSUZraEVLZHdscm16ejJSekhmVFd6amJCTkZ2TElWcDFTbVZOQjVaVVhHZDVKT2ZMSEtTQnB6TUJWSVE2THBjWDRQcXJidmljam5Hemg1NDZjWQ?oc=5) |
+| Judges’ move to oust Trump U.S. attorney pick Habba triggers a showdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNcXlNbHhpeUd4Z3lzVjJfTTZZWDRXdmNReHFoWDBJaEQ5TEVyZ2p3Yi1CMFJxN1Z1QTdMYjRCTzZhX0lzZFRCT3JjbWhFbEh5ZWFNWTBLMFkyQUJSRnNSemh5bDZ0UkJjOVRTajA4RzZaOS1VRlJBaDRqMVB2cWR4b2JOM1VJdkpEWDJYMHN4TkhPZFhDU2tGRC1VYmduRG16WWc?oc=5) |
 | What to expect at sentencing for Idaho college killer Bryan Kohberger - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOY0JBSE96V01DZ0cyeU1fQ0theWEweUJwM1pUTERMbVFCYXlENXRlRXZvRUVzQjBUajJQQzF4WGZUTkNmRVhvNkZWejMyejR1cVdsODQzR0NXbVllT1BtNGVpcjNZb0wwcVVlX2ZkRk9INzBKcGJ5c3J3QnJmbHJNSEZaYjZnejQ5d0dzZXpoMkVnN3RJWFNMS2ZqWHJQMmlU0gGmAUFVX3lxTE4xeWl5MFdlNTgteWNNMHMyUFRzWG1GWnhOdDZqYmZRRWdpRldJMUxTZHBxRWYxMVp3STBLNXE1cGE3M2lUaXRCQTBhcVdwQVpJSVVSQWNqQ3QtQ0Z2aV85QVlmczJ2N0dDVmpmZDBaUU55NDR4MDhCM05yX2NHWUdzSGhhUkJiT2Z2a0p2ejVYVEVKQlR3RXM5ZU9vbHlpQWJKUVRLdHc?oc=5) |
 | Trump administration continues deportations as members of Congress say Afghan man seized after green card appointment – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi5AFBVV95cUxQUDZOc3N4aDlFcHJyWnp0WWk0dXRvcEFVdUQ3UElwSVdRcXhxdlhkZTlwbE53Tk0tWl9FTERpdVVLenRJOVh1MlBTMlBpdEl3dU43NVhqMklOUXVoMVFqNXdySVJBQnBFVUhYcnhxTVpTdkNJT05mZ21uZHZ4SU9rMzloUHBxN0ZsVTExZHpGWWZLanpMc1pjRV9iREQzQmhuWEw2bEZNTUJRVnpway00aGxpT3RGM0IzV2tXT1dlaldCTzVfUnVZYWd0cEVuWGpldEZBUXJvVF9Nc29QVlN4aFpDUjI?oc=5) |
 | Lawler Will Seek Re-election to House, Forgoing Run for N.Y. Governor - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOMzMyVUZRR0todnRERW9IM3laWlcwZlczenZQTTUyNGxSdWo4RGV5NjY1T3h2QmQzU3pidm5jazQ3enpZd0dseXhjODU1em90M3dGV1BCeTlTdUN6c0RQa0RGeVZJTmctLVF0UUI0NDIxTWdiTU5wUW54YlFscHdLdzVUT3hoRGc?oc=5) |
