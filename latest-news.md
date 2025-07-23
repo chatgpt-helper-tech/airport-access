@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月23日 21:52:09（北京时间）**
+🕒 更新时间：**2025年07月23日 22:00:02（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Lawmakers call for release of Afghan man seized by Ice at green card appointment – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi5AFBVV95cUxQUDZOc3N4aDlFcHJyWnp0WWk0dXRvcEFVdUQ3UElwSVdRcXhxdlhkZTlwbE53Tk0tWl9FTERpdVVLenRJOVh1MlBTMlBpdEl3dU43NVhqMklOUXVoMVFqNXdySVJBQnBFVUhYcnhxTVpTdkNJT05mZ21uZHZ4SU9rMzloUHBxN0ZsVTExZHpGWWZLanpMc1pjRV9iREQzQmhuWEw2bEZNTUJRVnpway00aGxpT3RGM0IzV2tXT1dlaldCTzVfUnVZYWd0cEVuWGpldEZBUXJvVF9Nc29QVlN4aFpDUjI?oc=5) |
 | Lawler Will Seek Re-election to House, Forgoing Run for N.Y. Governor - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOMzMyVUZRR0todnRERW9IM3laWlcwZlczenZQTTUyNGxSdWo4RGV5NjY1T3h2QmQzU3pidm5jazQ3enpZd0dseXhjODU1em90M3dGV1BCeTlTdUN6c0RQa0RGeVZJTmctLVF0UUI0NDIxTWdiTU5wUW54YlFscHdLdzVUT3hoRGc?oc=5) |
 | What we know about the violent Jacksonville traffic stop that went viral - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNNkRySXE4czFULVZNOXhtWTJDMURiNnBIZEVNWXJwRmVpc0oyVm9XU08xZ2tWdjN1R2dxODJfVEl0NWZpSkRNa3Nwa0s5WFUzX0hVcnVMZHdUekNrazlDNVFJdGFrVlRpa05EcVVEVVZXUm1fZjVEZW5MczUzWmFyZnN4a3hJVmhQcDFBTtIBkgFBVV95cUxNdEFhTDYzZGItVS05N1czNGJkbTJXeVkyajNoMkxDTG5HMDhnZGtfOV9UQzNrNGJ2NC1VR096ZmNfRUphMV9kdWMtVjdvS3ROYnlZNEsydjl5dzNZTFZMM01NejFpLWlBMG5fZ09iTXdBQUtuVC1nTndVVHI5S3pSRnFqeGtzdWxsc0JoSWtXODY5QQ?oc=5) |
-| Trump announces trade agreement with the Philippines and terms of deal with Indonesia - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5EelA2MXY4UFBvRU5tOE1JaXNkNGs1WDNXZk5ES29FX2gxYkFPSU1SSEZkU05icHRPV3BVT2VIbmN4alNTa0dtNjZmRTJWaWtZOTgwdldnT1hvVFl5akF3SG4xWmF0T1IxaWtPbGM0aGRrQTNZcXp30gF8QVVfeXFMUEZ1ZUZDM1BIeUg3TzdzN1BUX3ZzTlB4eFhiNnRMMzlINUlvZF93ZnJxNFZqRzFhRmVRemN2YjQ4bG1OUFhReVdxTnBqMU9ZNXBZaFpQMktkQ2VUX2xmcjd1OTBtSS1ncUwtTnJRR2JreC04TGQ4dnNWc3M0aQ?oc=5) |
+| Plane that crashed, killing husband of ex-Rep. Mary Peltola, had too much moose meat and was dragged by antlers, NTSB says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNd2h6OER1c0NXdzRfTlVrZlEtZDdxUWFFdVZESU9TcXU5bnF6UlBRbmp4TjFlVVo1UDR4M1FGVzllR05kMWRyb2g4MDhYa2dKZGtkaU5raU9LZUlWMExEQkFjUUN3WWltZG14ZzdTdzRGOHJscmNOTEZVb2d6QUVXUWJQRExwLXB1NVZndjY3aXlqT0dHd0g4T2t1QWNzOWvSAaQBQVVfeXFMT2F2RTdjQVFPWi0tY2c3VUR4T3dMYXVpY2JsOXJHZnMxc1VtOWd5VjRMZEtWQVBSV3pORU90NlQ5ak55Z3U4LURnMkVpTGVwZmJubTdsOGdaa194NS14MW56UXFQUWJPVG9ob0tQT3BDVnhGVGt5R3lGaFRnbzNYbVc3T3dEb2pKQ0F6dDFyNkFnUWJOV0VvbTBsakR3Rkl2SW82WnU?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
