@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月23日 22:53:26（北京时间）**
+🕒 更新时间：**2025年07月23日 23:00:35（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Families of Idaho victims to confront murderer Bryan Kohberger at sentencing - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQRlVmNjN5UEg5Y3g2SUhYbnREYnlKUkwxMHpjTElGeFF3NURhaFY1NFp0Vjl4ZVdlMGJpOWJ2ZDBlWmI3QmQtdy10dThpSXhJV3p0SFItdTNPc3FlbFNLeXV6SnQ3SnlsU0x0Z19ZNHVNZnkyZ2pCOENSTzdySzJwcnZHNnB6Mk96bVc0djFKdGdxYUZ6NTJrRk5xcUpjVFN4X0hDQ2E3Snl1S1M4b0FXSHlsVjVvNHBUSVVr0gHAAUFVX3lxTE51d2pQNjB0SGZjUU04akJhY2gyTE1hcm1EUFEwNFM2eEhrT0pRMDhZZ0s5MGI4RmZOS3lWUFlGUmpQLWdlOTlXcThnZHo4M1YyLTlJRXdfTjh0cXJ6T2tDZDBzSWVxQXNvWXlFaXBBVUc0Q0doNWFpd3pqS2JDVUpJU0FVZzFtdGQ0UEtPZjJzVEY5THBPMlFoTGtBb3cwQVdqaHg3UU01OTZWbGZ4OUYwWEx4MmJlNjdfYlpOWlE5VA?oc=5) |
 | Lawmakers call for release of Afghan man seized by Ice at green card appointment – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi5AFBVV95cUxQUDZOc3N4aDlFcHJyWnp0WWk0dXRvcEFVdUQ3UElwSVdRcXhxdlhkZTlwbE53Tk0tWl9FTERpdVVLenRJOVh1MlBTMlBpdEl3dU43NVhqMklOUXVoMVFqNXdySVJBQnBFVUhYcnhxTVpTdkNJT05mZ21uZHZ4SU9rMzloUHBxN0ZsVTExZHpGWWZLanpMc1pjRV9iREQzQmhuWEw2bEZNTUJRVnpway00aGxpT3RGM0IzV2tXT1dlaldCTzVfUnVZYWd0cEVuWGpldEZBUXJvVF9Nc29QVlN4aFpDUjI?oc=5) |
 | Lawler Will Seek Re-election to House, Forgoing Run for N.Y. Governor - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOMzMyVUZRR0todnRERW9IM3laWlcwZlczenZQTTUyNGxSdWo4RGV5NjY1T3h2QmQzU3pidm5jazQ3enpZd0dseXhjODU1em90M3dGV1BCeTlTdUN6c0RQa0RGeVZJTmctLVF0UUI0NDIxTWdiTU5wUW54YlFscHdLdzVUT3hoRGc?oc=5) |
-| What we know about the violent Jacksonville traffic stop that went viral - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNNkRySXE4czFULVZNOXhtWTJDMURiNnBIZEVNWXJwRmVpc0oyVm9XU08xZ2tWdjN1R2dxODJfVEl0NWZpSkRNa3Nwa0s5WFUzX0hVcnVMZHdUekNrazlDNVFJdGFrVlRpa05EcVVEVVZXUm1fZjVEZW5MczUzWmFyZnN4a3hJVmhQcDFBTtIBkgFBVV95cUxNdEFhTDYzZGItVS05N1czNGJkbTJXeVkyajNoMkxDTG5HMDhnZGtfOV9UQzNrNGJ2NC1VR096ZmNfRUphMV9kdWMtVjdvS3ROYnlZNEsydjl5dzNZTFZMM01NejFpLWlBMG5fZ09iTXdBQUtuVC1nTndVVHI5S3pSRnFqeGtzdWxsc0JoSWtXODY5QQ?oc=5) |
+| From tech podcasts to policy: Trump's new AI plan leans heavily on Silicon Valley industry ideas - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOcUR1YWpUYktiZDlwZXA4cVV1T1Fhak5yYjAzNXNuYVZQTGJ6eEhXSDZhVl9FNUVrUkhrLXRQRkU5TDJZX2dEd2xicDR6T092MmZscFNTakV3MktjMjgxTkdzb0FNb2tWblNENmItWHFIWGhYeEQ4bzNEUHRLcnNBUjQ0ZllKdlRjUXZQNGtqdzZiTGRaNzNB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
