@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月24日 01:52:59（北京时间）**
+🕒 更新时间：**2025年07月24日 02:00:04（北京时间）**
 
 ---
 
@@ -17,13 +17,13 @@
 | Police deny driving counter-protesters to asylum hotel demonstration | [阅读全文](https://www.bbc.com/news/articles/c4g8nzn3ne9o) |
 | M&S ad banned over 'unhealthily thin' model | [阅读全文](https://www.bbc.com/news/articles/cly2j1322w9o) |
 | City traders jailed for interest rate-rigging have convictions quashed | [阅读全文](https://www.bbc.com/news/articles/cr5vgqr8p14o) |
-| Tech glitch leaves some disabled people unable to pay for care | [阅读全文](https://www.bbc.com/news/articles/crengx473y2o) |
+| Backlash grows after Zelensky strips anti-corruption bodies of independence | [阅读全文](https://www.bbc.com/news/articles/c9w19vxjr44o) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Idaho victims’ families give emotional statements ahead of Bryan Kohberger sentencing - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOS3Z2WUYzbUh6VUlfcHk5elhsMHh0N2gtZ3NKM05hNm1zMjRZam5qclFELTJ1Q3BQY1VXR085dE9qWWFhWjdOcDcwMVZOYVVaNkY3VXJBeDB1aERJeDlZNWJwajFYYWR0dEYyZXBJUktYLTlDQnM5bW1ZcWE3SllYbV9wTjdDajd3a0ZpTTJrbE9hSGtR?oc=5) |
+| Bryan Kohberger sentencing live updates: Surviving roommate gives tearful statement as Idaho killer faces victims' families - Yahoo Home | [阅读全文](https://news.google.com/rss/articles/CBMigAJBVV95cUxNdXhWSWJIZ0M0alU0bjJ4RTE3TURZeHd3NGxwVVN3TTFlZF9kTHZlZVoxOTRyZzYzb2FGN0pBMks3dTNpUjhkS0ZrdDk3U0VZZ1VWZ3h1ck5Xdlk0WmpIUUdZZWJvMFR6TWs2QWNZSzN4alZrYTNIVzJJaF9GYjlRSExMcVBBWlBDLWtjWmRfNFlOWEZTY3FrNm5ldFJwWWVrZTljNDRXdi1MUXN4ZTkzZE1Hd2dzT1lJb1l2d2htcHpGQnAyZDhmclplWUp6c1NDRjZjU0dOU1Vjcl84OVpfV3ZGaGpLeDZEVVo0MDJXODBiMm5SUHpubFV0ZGtGdjVO?oc=5) |
 | Gabbard Releases New Documents Targeting Obama Administration - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQWFFlbDdmNFFJXzFZMzlCUWQxUmtQTGxOYnFlbUxDS0Vqck43d1NlRUJzZS14cHF4TkY3M1NuSkJMblNlbDZtYlBrUEpjeXMxQ1k3VVFsMGw0bTh0Z0pObHF0b042ZF9yX0RoNWVuQ1J6Vm9fMzhOV0NuZVlKNldBVlpvMG4?oc=5) |
 | Trump aims to get rid of AI regulations and finance exports to win AI race - NPR | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE9hT1lvUjN0RDlHeW9lbk96Z2hkUDkyRzNoa242U0p0ZmxURjZfaU4wdEU2aW8wbUs4aXhjMmNVZzVTZGdvMVdrbmM1VWo5WjhfeEMwVlRuZzBpN05qRk9CYzFMazhWMlNKTGl5bUhGZmdpWlU?oc=5) |
 | Ukraine backlash grows after Zelensky strips anti-corruption bodies of independence - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1vWWl5SkFwbFRsYU5lZVhFaF84NkFCeXhQY19ETEpXbXgwUDY4eXNyeDlRVjdNSE1MaEdsdi16MzIyZ3ZRUzJrRTdnUWRvTjZjVjN5RXpsSGx5UdIBX0FVX3lxTFBsOC1ROXg4TkxzNExtSWJ0VjZuNUJGYWlZbWFkWGw0dGlVZzN2TXVxQTZwVzdabE5fTVdLdFBfYlR4V3NqUzM4aTR4ZjluZ2tQR0pJYk1MQzFveURYNlJN?oc=5) |
@@ -31,8 +31,8 @@
 | US and EU close in on 15% tariff deal - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9uWEZYeXZubFZPM0RtczV3czg3QmF4MV8tbEg4TEgzM0k1M3FFLU9QN2RpSXNsNUxkbVlEX1lja01GTE5lUC1lTXF6Z1d1ME9qY0psSVVTSFRMa24wNm4xT2tuYUNIN1AtY0RhZkdZRm0?oc=5) |
 | ‘POTUS is clearly furious’: White House is frustrated by all-consuming Epstein coverage - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxPUGw0ck04WG92VFlIX3NTOEJSUGxNdkNiUC1ibF9BaGFORkJocXA0cXFrckM4ZmdGT2d3ZHhRSFN0dFJsaktHQnZqbUhPVjJNaGc0cXVnVm1qRUZyWHRsSDVfOXdsN0ZOcmdnQk9pVUVmUTlqZHJ6eEdsTENMZ3NBckQ1TWhBdGRWdG05ZUpDSzE0dGdrR3JxNXRiUEhTZXBNTk1GS2Rlc0FlZTlfUUlfSWVtQldPeUxqN1otSkJFc2lxbE9yQUJISTlGS3FFa3M?oc=5) |
 | Lawmakers call for release of Afghan man seized by Ice at green card appointment – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi5AFBVV95cUxQUDZOc3N4aDlFcHJyWnp0WWk0dXRvcEFVdUQ3UElwSVdRcXhxdlhkZTlwbE53Tk0tWl9FTERpdVVLenRJOVh1MlBTMlBpdEl3dU43NVhqMklOUXVoMVFqNXdySVJBQnBFVUhYcnhxTVpTdkNJT05mZ21uZHZ4SU9rMzloUHBxN0ZsVTExZHpGWWZLanpMc1pjRV9iREQzQmhuWEw2bEZNTUJRVnpway00aGxpT3RGM0IzV2tXT1dlaldCTzVfUnVZYWd0cEVuWGpldEZBUXJvVF9Nc29QVlN4aFpDUjI?oc=5) |
+| Macrons file US lawsuit over claims France’s first lady was born male - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBfa1N1QkYzcS1KdzRibWdnTy1zc0duUVVwZ1hxVnJhdDcwNld0WU5Xdmw5NV9VMXRWZU9Eb0laaXZqUU5SMFJJbzdtT1g4UkVtRjNDZzVwcXJlTXNva2hINmVUYUZUQ1lnLVc2SlY4NUk?oc=5) |
 | No charges for Jacksonville officers who punched Black man during arrest - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOZHdUaHFWUTc1UTRNZkdrQlVwZU1mMXdZMXo1QVN3WmRlYkRQNUh5c2lxR2RhTGxFNDJhaWE1ZWVSUXlaTjNoVC11MF9XU1F1VE1Rd0RaTXBjME5RRGNsemxEaGYwOFlQSGtKemFHejFDNW1ua2xhek5xM2FHU3BYWDVhbWJTOGpHMm00TWFqLS1SWmM3al80?oc=5) |
-| Exclusive: "Release the damn" Epstein files, Tillis says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1GVUdUMXRhXzdfSFhMVVVQaTJmSFplYzVBU0ZZSG1CYTltRENSUVZ3MUhPcHl4d1dEVGZsNDlqa1pMNU96TlJkcXBtRF8yYy1TRjlSLVFGRUhmZ2ZKWWFBMGJzU3ViekJpbXd5V3hOUWxTaVJBbWFtMg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
