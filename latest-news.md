@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月23日 22:00:02（北京时间）**
+🕒 更新时间：**2025年07月23日 22:14:46（北京时间）**
 
 ---
 
@@ -12,11 +12,11 @@
 | New MasterChef series starring sacked hosts to be aired, BBC confirms | [阅读全文](https://www.bbc.com/news/articles/cvg8dn9ddqzo) |
 | Air India crash victim's son says he received wrong remains | [阅读全文](https://www.bbc.com/news/articles/clyld3vwqwzo) |
 | Did Ozzy Osbourne bite a live bat's head off? The rock legend's infamous moment | [阅读全文](https://www.bbc.com/news/articles/c72ppzwek90o) |
-| I don't care about my age, 19-year-old Reform council leader tells BBC | [阅读全文](https://www.bbc.com/news/articles/cj61l526xlxo) |
+| British surgeon who had his legs removed  accused of fraud | [阅读全文](https://www.bbc.com/news/articles/c75r21ww30vo) |
 | Faisal Islam: Trump's tough tariff tactics are getting results | [阅读全文](https://www.bbc.com/news/articles/c93k0wzyw0ko) |
+| I don't care about my age, 19-year-old Reform council leader tells BBC | [阅读全文](https://www.bbc.com/news/articles/cj61l526xlxo) |
 | Two dead and two seriously injured in Northern Ireland shooting | [阅读全文](https://www.bbc.com/news/articles/cqx2537w5e2o) |
 | Erik Menendez taken to hospital with 'serious' condition, lawyer tells US media | [阅读全文](https://www.bbc.com/news/articles/c8xv0dgdgd2o) |
-| Heathrow boss 'frustrated' at being asleep during fire that caused airport closure | [阅读全文](https://www.bbc.com/news/articles/c07d4v9j7gvo) |
 | Has Marvel got its mojo back? Critics give verdicts on Fantastic Four | [阅读全文](https://www.bbc.com/news/articles/ckg37kmpl01o) |
 
 ## 📰 Google News
