@@ -1,4 +1,4 @@
-# 🚀 2025机场推荐指南 |   科学上网教程 | Clash/V2Ray/Trojan 节点评测
+# 🚀 2025机场推荐指南 |   免费科学上网教程 | Clash/V2Ray/Trojan 节点评测
 
 想要高速访问 **ChatGPT、YouTube、Netflix、Google、GitHub** 等国外网站？我们为你精心整理了 **2025年度最佳机场推荐榜单**，涵盖最新的 **Clash 节点 / V2Ray / Trojan / Shadowrocket** 节点测速与解锁能力实测。
 
