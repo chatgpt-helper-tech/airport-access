@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月24日 09:13:16（北京时间）**
+🕒 更新时间：**2025年07月24日 09:26:44（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | Trump's new AI policies keep culture war focus on tech companies - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPNk91Um9jNkhxOHRvQS1RcU1kZnBGX250aTNyVlp6eFJ4OHVaNVJBYk5KNV9tVXExLU02Q2NKY29OM0hCbWtYbFVVWkRrN0M1ek1lM2dxUDBLdHFoNmdjcTJyWS11bFJ2RUhsMzUwdXZRdGF3T3l6SXMxUG95Mi1jQ0VJVzFPRGhLNVE?oc=5) |
 | In Pictures: Starvation in Gaza - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQeS1sSTNqMEcwdDRZVzBOSndwbVRHYnBPQmxJeHJocERrelhjNnNwd1NRTmRfSmR5ejBVSGhiV3hHT0R0NDU5VEtRNGVpU0JyWTBUSlhQVWlRZzVfZG9CYmQ4RUdYTEt1QTExbFg2ajhzLXpCQm9SNnFLTVQzU1J1Yg?oc=5) |
 | Gabbard says declassified report 'exposes' Obama administration - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFA4aVQtSHE0RlJIdXd5VHJqUnVTS3lrQlo4N1dNdlFWc1hJRVJZTV9yTWt6dlVlNEJXTkN3QkZlTFZmU3J0OURCOGwxRFdJX1hkRUFjR19NVklKUdIBX0FVX3lxTE16bEM1NG50RDBGblFUY1RjZWZIM3RmQXJTSXdpeHBnblJ6cWVjUjJqcE50ZFZzaGhBSXNKaGVmN2JLc3lwTXdULVV6NzNEZm9kR3llSGg3TVJhS2lCcFJB?oc=5) |
-| Judge pauses Kilmar Abrego Garcia’s release from federal custody - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPXzNhdlBNWGNsMk50elRxbmxCQ1lNUHVvNnFvaXhkWE1DRnN2dUc1SU9tXzVoLV9oRjRkMG1uOVIwVXg2UFB4Y09sTWQ0bHNMaVlDZ2V4Q1Y2b3JGS3AtV2w1YXRTUm50djh2WTB4d3BqUjg2YzQ3WGtyZ3I3Q1ZobkdnNGVvRElObTFQM1Z2N3lPWUh2TzlvVndqbUthU09wTU90Z0FGRjZMUdIBVkFVX3lxTFBkVGJQRDVKSXlaSlJ6dHk2czFPUGxLalkwTmdrM0VqeUtOSUZBa0JfZTdPUmktUEpNcXRZQTIyeEpmVDFJTzJvLW9WZjg2Z3MzbXNOLVdn?oc=5) |
+| Abrego Garcia to remain behind bars for at least a month even as judge rejects Trump administration’s claim he’s dangerous - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFBaSjVsY1BLWXlpUk5TREk5eGFyVXpwZTlia21ZdzBKUEtUWVJLV2pTRFNCTHZMck5JSkNGQ1FVSENnREN5Rkoxd1FGdVAtRkpGWC1Pb3cyUUpIa2cwV29tdV9xTHI1eDhUcmNyRzNVeHJudjhoYVNV0gF8QVVfeXFMUFNjZERsSGxsR0NCbjlpNnpXSWNGSVVfUFd2dFBRZGV0OVJnMTItbFdRVVNTV0E1X2V5VGxkbXl3WVYtaDV6ZEZ3cEJxSm5wWkdIXzhtRGc5dy1MOHpJTmdrT1p5MndJWGVCS0tRSW1uejdyNEl5UkRQZzJjUw?oc=5) |
+| Second court blocks Trump’s birthright citizenship order nationwide after Supreme Court ruling - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxNVVc0a0pxd0pvQWdNS3Z3TkUzZTVQWlZ4VkVNcG8ycmlzX3NwSUF4S3pDTlZWSjI5V19ZNkRzby1tZHZTaW11TTgtUDBCWVNHYjlkczNaZjhqY1hXTHRWb2NBM3BGdUg2VTlXMzhab3BfUF9JSmx1bmFWVGMzZDlYZXFJNENYV0s4c1M0eDZrb3ppOW84UUY2cWdpZTc5WllSNWI5RkhWX1YxWjY0a2hpcWNwZDY1aWFtd3VHOdIBwgFBVV95cUxQWHpsb0hkNW40LWdLX3dsTmdlV2pGM05oM09fREJGZWdIckZPOWU4dzRRcXpvb0wxRjB0NmxqcHpPWTgyVGRKTWJkYlljel84OWxNQ3U0MEFtQ1ZGMDJ6QjQxaWVmdm5HbFNtWWF4QUFuZE4wQXhKZkF4b1h5N2pqQTBPNkEtYlpuYWlvaEJoU2dicEZ4cm1pd1BNR2FBc1MyWXZzYVlsV2hiMDZKOTExN3FNY1c1N1dNMVdmVFVMRm5FUQ?oc=5) |
 | Supreme Court allows Trump to remove 3 Democrats on the Consumer Product Safety Commission - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxORnJQRV8xbXRtSnkxZlVncTlGWXNYNGtwRUQzYWdBd3R2SGNsRTNRX1NvLVlleXhiT0taNTFtajdYLTlZT3VOQzhNc0FORGgyT0FRcEM5ZExaQVBjNUs2TEZWWmx0dEk5cHV3bDFGbDFibldESk5WTGxRYWp6QlJYV1BMQS1yMDkzaHo1bVFSdHFyOEozTWhsRllDUXlheWJud3FNbFJB?oc=5) |
-| New photos and videos highlight close ties between Epstein and Trump - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9oS3IxN3IzN0FiOXVFWlNQc3RfLWJNSjBOSDE0UUtWRUVPRVROZEtZV0ZCd2hVdHlmRmIwQlVENVNtMDZaQVRxYmMxWWlLWTlhUGZxNU51YjZ5cUw2T0xhWklUcktiOHdGT1d4eXc2aGxWTjZ0aUhV?oc=5) |
 | Ukraine backlash grows after Zelensky strips anti-corruption bodies of independence - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1vWWl5SkFwbFRsYU5lZVhFaF84NkFCeXhQY19ETEpXbXgwUDY4eXNyeDlRVjdNSE1MaEdsdi16MzIyZ3ZRUzJrRTdnUWRvTjZjVjN5RXpsSGx5UdIBX0FVX3lxTFBsOC1ROXg4TkxzNExtSWJ0VjZuNUJGYWlZbWFkWGw0dGlVZzN2TXVxQTZwVzdabE5fTVdLdFBfYlR4V3NqUzM4aTR4ZjluZ2tQR0pJYk1MQzFveURYNlJN?oc=5) |
 
 ---
