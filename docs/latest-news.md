@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月24日 22:53:50（北京时间）**
+🕒 更新时间：**2025年07月24日 23:00:10（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | Forget 10,000 - just 7,000 steps is enough for health benefits, says study | [阅读全文](https://www.bbc.com/news/articles/cx238lgy3pwo) |
 | Dad guilty of murdering premature baby in hospital | [阅读全文](https://www.bbc.com/news/articles/c7vr282v15vo) |
 | Why are Thailand and Cambodia fighting at the border? | [阅读全文](https://www.bbc.com/news/articles/cdjxje2pje1o) |
-| White House pushes back after reports Trump is named in Epstein files | [阅读全文](https://www.bbc.com/news/articles/cwyq921zqqzo) |
+| Doctor strike will harm patients, NHS boss warns | [阅读全文](https://www.bbc.com/news/articles/cn5k5w7vrdvo) |
 | Public frustrated by asylum seeker housing, says minister | [阅读全文](https://www.bbc.com/news/articles/c0rvr84l2jzo) |
 | Four things you need to know about UK-India trade deal | [阅读全文](https://www.bbc.com/news/articles/c99p2mlyep5o) |
 | Does Canada's favourite sport have a toxic culture? The sexual assault trial that gripped a nation | [阅读全文](https://www.bbc.com/news/articles/cdxv71v5lq2o) |
