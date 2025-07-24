@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月24日 11:52:37（北京时间）**
+🕒 更新时间：**2025年07月24日 12:00:52（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump birthright citizenship order "unconstitutional," appeals court rules - Axios | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOWVI5VGJxVmZuc1JlTmJUdFdpa2VnRzdwdmp5ZGVQc0luUnZNSlR3dVRkQmJmOFVkckQ3OVA3TDlybkZXMDdIb0VCYk9Rc001OFBrRFFYVlBGUG1DNUJ5SHhOVDNNelpsRnRUOUxvV3NfN2pPWUVzbVY5RXExNzUwZ2ZIS2p6andOeVdlVGlHdlpneGNx?oc=5) |
 | Judge pauses Kilmar Abrego Garcia's release from federal custody - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPXzNhdlBNWGNsMk50elRxbmxCQ1lNUHVvNnFvaXhkWE1DRnN2dUc1SU9tXzVoLV9oRjRkMG1uOVIwVXg2UFB4Y09sTWQ0bHNMaVlDZ2V4Q1Y2b3JGS3AtV2w1YXRTUm50djh2WTB4d3BqUjg2YzQ3WGtyZ3I3Q1ZobkdnNGVvRElObTFQM1Z2N3lPWUh2TzlvVndqbUthU09wTU90Z0FGRjZMUdIBVkFVX3lxTFBkVGJQRDVKSXlaSlJ6dHk2czFPUGxLalkwTmdrM0VqeUtOSUZBa0JfZTdPUmktUEpNcXRZQTIyeEpmVDFJTzJvLW9WZjg2Z3MzbXNOLVdn?oc=5) |
 | Trump Live Updates: Bondi Told President His Name Was in Epstein Files - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE1HZlhYMGNmWUJKWkxyMGczdWdEVHBPNXYyT2JwT2ttWFZqNGdVTjNhMkZKaUxzZDVSWVA0aTBZb0FkaEcxTTBDd1E4RTJnMF91UVBUU0NBYjhjbTQ3M1c0MEl4MA?oc=5) |
-| New photos and videos highlight close ties between Epstein and Trump - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9oS3IxN3IzN0FiOXVFWlNQc3RfLWJNSjBOSDE0UUtWRUVPRVROZEtZV0ZCd2hVdHlmRmIwQlVENVNtMDZaQVRxYmMxWWlLWTlhUGZxNU51YjZ5cUw2T0xhWklUcktiOHdGT1d4eXc2aGxWTjZ0aUhV?oc=5) |
+| Gaza doctors ‘becoming too weak to treat patients’ as hunger crisis deepens - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxPNnctYkdrTmFObkw4YTJualFXbWV6dENFQjk4aU1QYTAwSjBQUnVBMlhSQTYxdkV1dW5UWkZGZU1DZ3lqTEJ6UXhzWVBCOUlHd1UwcjdnNWtxSEM5ZFpQWWFrbFZwODRreGQyb08zcnFuOVFvVjRYWHV4d18tZHlMb1k4V0tlSTlzcTRraVlxYUdacVA5ZXRlRnRpTExCa3NaMlBrSTJzUmk3V181SWpmSV9rRmhNbnlDVUJLaGoyVlFldE5zZURtNld1Sy0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。

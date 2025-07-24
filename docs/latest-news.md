@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月24日 11:52:38（北京时间）**
+🕒 更新时间：**2025年07月24日 12:00:52（北京时间）**
 
 ---
 
@@ -8,16 +8,6 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| White House hits back at reports Trump named in Epstein files | [阅读全文](https://www.bbc.com/news/articles/cwyq921zqqzo) |
-| UK vehicle making hits lowest level since 1953 | [阅读全文](https://www.bbc.com/news/articles/cr5vglq04zeo) |
-| Gazans 'wasting away' as mass starvation spreads, humanitarian groups warn | [阅读全文](https://www.bbc.com/news/articles/ce9xkx7vnmxo) |
-| Columbia University to pay $200m in settlement with Trump administration | [阅读全文](https://www.bbc.com/news/articles/cq8zljpvyk0o) |
-| Just 7,000 steps a day cuts health risks,   study says | [阅读全文](https://www.bbc.com/news/articles/cx238lgy3pwo) |
-| In a Haitian city ruled by gangs, young rape survivor raises baby she was told to abort | [阅读全文](https://www.bbc.com/news/articles/c07d3m3xk32o) |
-| Tesla pledges to make cheaper cars as issues mount | [阅读全文](https://www.bbc.com/news/articles/cqjq51vvello) |
-| Thousands of river pollution tests cancelled because of staff shortages | [阅读全文](https://www.bbc.com/news/articles/cx24xy8zgp4o) |
-| Mountain biker completes epic bid to ride down all 282 Munros | [阅读全文](https://www.bbc.com/news/articles/c4gen42g6z8o) |
-| Footballer Baldock died in swimming pool accident, inquest finds | [阅读全文](https://www.bbc.com/sport/football/articles/cvg928r5518o) |
 
 ## 📰 Google News
 
@@ -31,8 +21,8 @@
 | Judge denies release of Jeffrey Epstein transcripts in Florida - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNUGl3WktCdTN4dW93a2cybEo1VFRiVW9qcHVqRXFHUTBqZ25aNjR3RkxJbko3eEE2aWtma0QySFdEanQ5RGs3WXNjU0hHcEJnRm1GOTJ4TUJzZ245azdFWnB3TzJ3Qk04dVR3TW9uZ2p3YV9JS25rVGlpQVpOTEtxdThHSjZkM3c?oc=5) |
 | Trump birthright citizenship order "unconstitutional," appeals court rules - Axios | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOWVI5VGJxVmZuc1JlTmJUdFdpa2VnRzdwdmp5ZGVQc0luUnZNSlR3dVRkQmJmOFVkckQ3OVA3TDlybkZXMDdIb0VCYk9Rc001OFBrRFFYVlBGUG1DNUJ5SHhOVDNNelpsRnRUOUxvV3NfN2pPWUVzbVY5RXExNzUwZ2ZIS2p6andOeVdlVGlHdlpneGNx?oc=5) |
 | Judge pauses Kilmar Abrego Garcia's release from federal custody - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPXzNhdlBNWGNsMk50elRxbmxCQ1lNUHVvNnFvaXhkWE1DRnN2dUc1SU9tXzVoLV9oRjRkMG1uOVIwVXg2UFB4Y09sTWQ0bHNMaVlDZ2V4Q1Y2b3JGS3AtV2w1YXRTUm50djh2WTB4d3BqUjg2YzQ3WGtyZ3I3Q1ZobkdnNGVvRElObTFQM1Z2N3lPWUh2TzlvVndqbUthU09wTU90Z0FGRjZMUdIBVkFVX3lxTFBkVGJQRDVKSXlaSlJ6dHk2czFPUGxLalkwTmdrM0VqeUtOSUZBa0JfZTdPUmktUEpNcXRZQTIyeEpmVDFJTzJvLW9WZjg2Z3MzbXNOLVdn?oc=5) |
-| Donald Trump’s name reported to feature in DoJ files about Jeffrey Epstein - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxONVd1Si1PUmJXd3hNRzFnT0NWSWRxSkt6ZVU2WDNqcnBIY3BKTVhOcnIyNDFEZ3JrZmxTOFJoY2ZaZ0dZQlJvQ0pyRGRnbXNOb3pQZ2RDWXdRTEVzUmdvWHc2bEtPRXNQejNiUnpuRjZiSHh3NGZ3QVNvRkIzRGYyTkE5NmxWQXBUbUE?oc=5) |
-| New photos and videos highlight close ties between Epstein and Trump - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9oS3IxN3IzN0FiOXVFWlNQc3RfLWJNSjBOSDE0UUtWRUVPRVROZEtZV0ZCd2hVdHlmRmIwQlVENVNtMDZaQVRxYmMxWWlLWTlhUGZxNU51YjZ5cUw2T0xhWklUcktiOHdGT1d4eXc2aGxWTjZ0aUhV?oc=5) |
+| Trump Live Updates: Bondi Told President His Name Was in Epstein Files - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE1HZlhYMGNmWUJKWkxyMGczdWdEVHBPNXYyT2JwT2ttWFZqNGdVTjNhMkZKaUxzZDVSWVA0aTBZb0FkaEcxTTBDd1E4RTJnMF91UVBUU0NBYjhjbTQ3M1c0MEl4MA?oc=5) |
+| Gaza doctors ‘becoming too weak to treat patients’ as hunger crisis deepens - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxPNnctYkdrTmFObkw4YTJualFXbWV6dENFQjk4aU1QYTAwSjBQUnVBMlhSQTYxdkV1dW5UWkZGZU1DZ3lqTEJ6UXhzWVBCOUlHd1UwcjdnNWtxSEM5ZFpQWWFrbFZwODRreGQyb08zcnFuOVFvVjRYWHV4d18tZHlMb1k4V0tlSTlzcTRraVlxYUdacVA5ZXRlRnRpTExCa3NaMlBrSTJzUmk3V181SWpmSV9rRmhNbnlDVUJLaGoyVlFldE5zZURtNld1Sy0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
