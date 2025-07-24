@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月24日 12:52:11（北京时间）**
+🕒 更新时间：**2025年07月24日 13:00:33（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | Just 7,000 steps a day cuts health risks,   study says | [阅读全文](https://www.bbc.com/news/articles/cx238lgy3pwo) |
 | Columbia University to pay $200m in settlement with Trump administration | [阅读全文](https://www.bbc.com/news/articles/cq8zljpvyk0o) |
 | In a Haitian city ruled by gangs, young rape survivor raises baby she was told to abort | [阅读全文](https://www.bbc.com/news/articles/c07d3m3xk32o) |
+| Tories must 'offer hope' unlike Reform - Badenoch | [阅读全文](https://www.bbc.com/news/articles/cy4yj3rpjm8o) |
 | Tesla pledges to make cheaper cars as issues mount | [阅读全文](https://www.bbc.com/news/articles/cqjq51vvello) |
 | Thousands of river pollution tests cancelled because of staff shortages | [阅读全文](https://www.bbc.com/news/articles/cx24xy8zgp4o) |
-| Footballer Baldock died in swimming pool accident, inquest finds | [阅读全文](https://www.bbc.com/sport/football/articles/cvg928r5518o) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | Bryan Kohberger sentenced to life in prison without parole: Live updates after victims’ families tell Idaho killer ‘you're gonna go to hell’ - Yahoo Home | [阅读全文](https://news.google.com/rss/articles/CBMikwJBVV95cUxQS1NUSFFYTXBLOVNHSmFYNDhiR2pkcjQ5YUpqN3lZS2pUVU43WnZDcHRkN1A4VDFIQ1daVkxwTFg0b0hYU1dna0xUN0tnUTVJWkl0RDQ2MlNTdDRxVUxFMFlnZVJvTVU4TDNBNkotV0swdmJqS1RQajBoczJISDJOWXpaaXFNUHF4bS0ydmtJSjc5eHVueEhKVldJX0dWemlqVjVKN1RwOXgyd0NqR0RWU2wwMkNsTlo1Y3MzNW5Tc213N1VFdzJEQXlMZUltb2l6Y244dzg0U0JtdnpfVndjRnRrRWV1YU1PclM2UEJpSmVwcVdWWlFOcGlHVjU4X05oUHlDbkhDb2FUOV9JWTAzaGp5bw?oc=5) |
 | Judge rejects Trump administration’s request to unseal Epstein documents - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5zQ3pHTm1wQTAtaEtwdTREZWNSQS11eGZ4d21rYU8tc19ROEp5bDd1YTlyX2JFcVNWN2lCNUtNcC1nVEdDdkpyZklOMjBGUTV3R2psNG9KYm55SW5MZGR4ZHc2OWh6ajNFbDhEOFVkY1U?oc=5) |
 | Judge pauses Kilmar Abrego Garcia's release from federal custody - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPXzNhdlBNWGNsMk50elRxbmxCQ1lNUHVvNnFvaXhkWE1DRnN2dUc1SU9tXzVoLV9oRjRkMG1uOVIwVXg2UFB4Y09sTWQ0bHNMaVlDZ2V4Q1Y2b3JGS3AtV2w1YXRTUm50djh2WTB4d3BqUjg2YzQ3WGtyZ3I3Q1ZobkdnNGVvRElObTFQM1Z2N3lPWUh2TzlvVndqbUthU09wTU90Z0FGRjZMUdIBVkFVX3lxTFBkVGJQRDVKSXlaSlJ6dHk2czFPUGxLalkwTmdrM0VqeUtOSUZBa0JfZTdPUmktUEpNcXRZQTIyeEpmVDFJTzJvLW9WZjg2Z3MzbXNOLVdn?oc=5) |
-| New photos and videos highlight close ties between Epstein and Trump - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9oS3IxN3IzN0FiOXVFWlNQc3RfLWJNSjBOSDE0UUtWRUVPRVROZEtZV0ZCd2hVdHlmRmIwQlVENVNtMDZaQVRxYmMxWWlLWTlhUGZxNU51YjZ5cUw2T0xhWklUcktiOHdGT1d4eXc2aGxWTjZ0aUhV?oc=5) |
-| House subcommittee votes 8-2 to subpoena Justice Department for Epstein files - PBS | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNRWI2SGpIVWRDZktIbktDdXJUd0stcUIyTmVTOEU5WURBSWhsU1Q4MHVDTnhYTkNpY2Q2ZlVmZXZMTWxnbWR0NXFKNkEtNnRyRHBXX1NzbzUyd29CUWxrLWRoalV6QnVKNEpGYmRJeGdOTzBlb3cydEF3cEE0b2lEcXNzdVY0cXhPaG9kSGVjUnhONFpsek5iWXU5V2lwT2hWQ19pbUg0cGJEbzBQVldqanl0WHJkUdIBuwFBVV95cUxOR2p6Q054ekVJZW15RzE2dEdRa0R1VnVyWXpZSl9iZ1hVN0lTNGZTLU13MFFUSFMtaDVCOUlrZ2VaUXB3cXlXb0tPOFNCdmlzWnpUZmNJV2VFNXZtbjFFcWZHNDF4M3Zxdll1MTR6YS1TblNHZk5odzVJZjFsT1ZHZDBqQmRSVlFVVTJwR2lLMlRHT2JmZlJZWUNORUtxRW9pS1BOQzc3NHVueUkyb2hmalRNYm5KbGZlMGh3?oc=5) |
+| Prosecutor Fired by Trump Officials Defiantly Says She Is Set to Take Job - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOckhYU0pwYndmMVJBd09Rekgya3BMZXh6UkFWTzFZaGZpWFgzekpRSlhoUlJOaFFPeVcyYUFkYi1yNU9hVDVpWjNBYjlOY1RFWDRGY2FPc1VkSGlfQUplU19STFJtSmZjTnBqUEVrNVBJUm8yX3JXX0JsYU95UHBxQnBlalMzWGRxbG1hb3p3?oc=5) |
+| Thai and Cambodian troops exchange fire at disputed border - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBsa3pUZ1FGZmlTaTFvYjhuTkVNY3c0aS14UFFMRXdRZ1lXQ3YySVNweTl1cFpQSEVFMl85SnRldXNQa3A1U3ZZQVlFeElJZGpySW5ablRDUE0xQdIBX0FVX3lxTE05WnJYVHFzNzhnQXBmUjdzdGEtNFpfd1haZTFZTzlESThKTklTTFFqeVZKMmkwNDU3ZHhNVmVyZWF0WjNhdExwM21XelluLV9nY0VVSE9HNjlOcFRQcExN?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
