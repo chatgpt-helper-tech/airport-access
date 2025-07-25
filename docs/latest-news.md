@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月26日 01:52:58（北京时间）**
+🕒 更新时间：**2025年07月26日 02:01:00（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | How and why Trump has struggled in dealing with the Epstein files - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPeDBLdkxTc0hhZzZJMU5UdVJmOEhDU2s0bDZXUzdkeHVnSTV6VmZVNmd0THJpZEpXbnlvVENiT2RncW5yY3lVSU1STjYzcW41U2MzS2pYS0FTZmR0VTdsS05QbXllUzkyU1FBeUszRnhOeE5ub3pTOGdjSzBCU0Z6azNYZS0?oc=5) |
 | 'Doomsday mom' Lori Vallow to be sentenced in Arizona murder conspiracy trials - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOZThlVEdHcHhWbC1jMkJHdEw4ejlUWTMxNC1LZVVSQ2loLTVIWU9PXzJmVHhHUGJZc1RJZEhtcVBzUTNIczFMUzY1Nk4zWEliNGdWOVE4U3BLcXh6VFUtRndYLWtUOUtTWnRzN2dBOTd1ZlR3SDRQTjhockQxbmhGUjBDYWdIUjZEUnVWYnJEYThhMUlMM20wMWtEc0x3RG82MENMQmRiTTZvUl9vVGxUQmFXUF8tUdIBVkFVX3lxTE5LY0l5aVFmN2JXblBzeFI1WjJNdWUxeDlUbmhSa2VmWFFPS201ckd0Qk9uTVhzU3IwOFplNXcyek1UWklidGhsTm5WMk1fczVvSUlkWE1R?oc=5) |
 | First Deportation Flights Depart From Florida’s ‘Alligator Alcatraz’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQd2hpazdiMWU4S3VOUVlaR3FScXFjeWJvY0RLSDk3eTZtZ0s0Y2pVU1VsM1ZoMV8wSzBHODJiYlYzdFFuWnZBeUR3bzZJUDNjaTBSeGJLYXg2VEF6RWk4dUlVbnllTnlUdk0tZnIyd2F4OFpqVkYyQi01SzNCbThFdU9adzg0S1o1?oc=5) |
+| Texas Democrats to Confer With California and Illinois Governors on Redistricting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5wMU80RFY1a3QwNDlSSHROQ2JROGtyaEItV2Zzd0FFY2g5anhtdnZEQzB6MlR6by1rcmtLYU1idkVYbXVMWHJyVlJ2dk9aZlJ0QUk2d0R6NEZ5dWd0OER0QlhYcHZYTjg4Z1dvYW04MlExM1lra3FJanMtdjA?oc=5) |
 | Epstein’s birthday book also included an entry from Bill Clinton, WSJ says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNanpjaG80TExvZWFxRnJOOUZTUG9rRjFiTmhpZkJHY284WHNURFl2UXp2aEg0SmZCcWZQYmZGbVgtR1VoSFdNTmtITWROZ0RnSkZ0c2xnVUVTMjF3WGhyaUhOaW9pWXJmYlRQRlZxTlhnUEZrWTNhNENZVWhWUlQzQWNUQUJXNzc0MDFMZ25QZ1MtVkFk?oc=5) |
-| Inside Trump's plan to keep control of Congress in 2026 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNU3BzZDR1cmlwOWdlM1FZY1lVc2FEUWFQMkJQRzRvSFhGWFE1RGdiMlFacnMxMUFLMmRpQ2d3Q2xac25OLVJPenUtTkNja2hVVFM4Um5xOExRMkg5NkdaTHBCWXM1MV9VLU9kUXFpRGZfbDFhNDcyMlZZTFNGXzZ0eU5TMA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
