@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月25日 12:40:20（北京时间）**
+🕒 更新时间：**2025年07月25日 12:53:53（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Starmer issues 11th-hour plea with resident doctors to halt strike | [阅读全文](https://www.bbc.com/news/articles/cn5k5w7vrdvo) |
+| Starmer issues 11th-hour plea to resident doctors to halt strike | [阅读全文](https://www.bbc.com/news/articles/cn5k5w7vrdvo) |
 | France will recognise Palestinian state, Macron says | [阅读全文](https://www.bbc.com/news/articles/ckg5g4p3245o) |
 | The story behind the photograph of a starving Gaza baby | [阅读全文](https://www.bbc.com/news/videos/czryry57x4do) |
 | Trump to fly into Scotland for golf club visits - and a meeting with Starmer | [阅读全文](https://www.bbc.com/news/articles/cg4r4z2gx2qo) |
