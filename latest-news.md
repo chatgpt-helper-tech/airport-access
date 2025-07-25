@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月25日 17:53:28（北京时间）**
+🕒 更新时间：**2025年07月25日 18:01:17（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | France to recognise Palestinian state in September - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9YZFlMRU0ycEhNYkpmdG8xYmtGcU4wN1ZFRXJ0ZnlJWkVQWFZhc3lNUTA4WkRQbWtiaXhaVldPM0Ffb1NJZ2E2blk5ZndFdFk4ZWx2RmNua1Q3UdIBX0FVX3lxTE9PZXBGeDRJdkxDM3p1WTB3OWxKZE1KWWFzaHhqTGdIbWluODRaRUtQaWIyZlQ1S2ZkTVU4NTd5enotSEN0LVRJRzB4Nm84ejVMNmVKWXlSaTBPWFVNanNN?oc=5) |
 | Bill Clinton reportedly sent Jeffrey Epstein note for birthday album - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOdGJWUFNjNHdfRmlEQl9kTXgxOXlfMGR4RFR2UTdvTkhZczliTXp0M1RGdlFNOVY3MEQ3WkI0Z3JMVVNaN28wd2lqQlVaX0hjVnZCZjZ3SXE4UDJYcWd3OVFqbzZtTklHQjljZGpxVmc2QnVhdFhjaW5fQU16ZVYwRzUtZllGdHdIZG1nOEpyWTRNaTNCN1E4N0hzZm13MUlHTlpiUjlR?oc=5) |
 | In pictures: Starvation in Gaza - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOMEdZdk0wOEdHV1pjWkY0VTg4T1EyS250d1Y5UWdna2hSLUdod3Q4YlM2X3NNZFpHSXh1RzVRTHdvTzR2S3VfZ0M5UGllNDNTZFhRQXJlRUQtUHVsanc3Q3JPakhSYXlmb0RtSEdydkFDYTZmZXhxMVRxcEFKTk1KVkY2SWJnZVhQX29NYmhOOHU?oc=5) |
-| Israel and the U.S. Pull Back From Cease-Fire Talks With Hamas - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9hZlhqMW1iRDZQQWpab1FRNGx0WWljcXBjbHQwYm43QzJIZnhRbE41QWNSWlVPaXZyU0Jid3Q1MWJkX0Fkd05idVl3Ul80UGVLenhxWjVVdEd5ZUlXZ3dSa195LV9GUzdYYkFqcUlLSUxERUxZamcwSU9jUEtzUQ?oc=5) |
+| Trump signs an executive order to make it easier to remove homeless people from streets - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQWVAxUXpralhfdlRac0Q1R1dVX3dzTjgzbjJRLTJabkhwZk1FeHpMeWJoaE9uZGpGVndLVGQ3Nk5pdUNPTmYwUFo1a0FLQmU5UTFQbmNnblB2UzBzVGdJRmxEMGJscWZzV051aHRRMUJ6QW0zLU1zckVpYWFETTNiVDBoQ2I0VEk5b3VqSGhXX3lBNXF4eW9xNEN4N1ViVTN4ZHB3Nml6OA?oc=5) |
+| Idaho Murders Case Investigators Dispel Baseless Rumors and Theories About Bryan Kohberger - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNd3VidDRtbEhqeFZxVUlYZGNFQ0N6T3E0OE45WlhLQlZPTGdyd2ZLR2Z4UkxOMUxPcTU5R3dqOTA1NFVSLURXMFJXX0hVUVdTNUxDOU9kUkJZbWFCY3pubWpiMTkwU0IxLVF0dmVfWTVFYU9ucFh4RlVKRjhfTXZuNHJTSTdYcDZTYmszTFIxV2lUd3pvV2c?oc=5) |
 | The White House wants more states to redraw House maps to help GOP. Democrats are readying a fight - AP News | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxNREZSeFZyV24xTGRnaUxwUWRic1BKVk91bTFLYUxjSk41Qk1pQ2IwUlV6cXpYZWowdzY1d3U3VloyaTFCSXFpbE52ckFXVXpSeUphM2NKdGdpcWt5TnFIVWYxeExNclc3RG53eDZ4ZFZjOXNlV3lEcnRtSjlKOWJfMUk0bVp3YUlRQW02RFNGM19pb0U0WW1peUc2TTIzTUJzdl81WFlMNURIZWlXTjlnclpDS2ZSUUZXTkRiWg?oc=5) |
-| Ohio officer dies after ambush shooting - WHIO-TV | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQWFltTXNJbE1xcEJkelZIbGFMVnl1aWJISVJ3RkdUbDIxQlVHQi1TVzdGZ0hRNng3SWFoNFBDNG1NVmJFc1FOZ1NINkNwZ2ptcTFjb0IzX0N4S2FabWVyTl9uZUNQTEloa2R4a2NVM0lPMGtHTkwxdnJRRUxSVTRJdE9tWERXLWhwWUMwV0NsODctb3JhQVpMM0dsQVhUY3Rv0gG0AUFVX3lxTFBPbXVCc0tpRVpYVzZmcTcwYU9POEk0dXpLVGhHamFsUnlHRHZ4X1A2STF2OEs1clo4MWt5QWJkMnB5RVV6MkJzNDMxT1VQRlA5Z1Y5VTJkLU16N2EyaXJ5bFVRMEl2WDRhYjBFVmJkb3pQLUlfZnlvY09MLWJ5VWwxa1lmcWRUSXVmN3k5alhqVk96WmV3WUNpWnJVaGhmajRWRVhxN2JCUHMxYm55WXhwX2VjMg?oc=5) |
 | Court Strikes Down California Ammunition Background Check Law - KQED | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPOGt1NWhqRi1lYVA3Z0hjX05wRmV4dnNEUV9mUjgzZy1BX3NRRVhKdGRFT2ZlR08zc1lJWHhNX3lZZUdOQWViWm00YWNNQ1ZnRGZtWlFsQVVOeGFndU96cVcxNk0yQ3pjOWo2Y3RWMGdNMTRQSUxmSTdYbWJMZjB2RFFzcVUxdkQtM2szbkdBR2h1Nml1RmxlX2c2SFk?oc=5) |
-| Storms in New Mexico Cause Flash Flooding and Water Rescues - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5JaHFqRmxOYy0zc0FSaGdQY2g2N0NJN3ZydnZ6SWFGMi0tSHo0T2ROc0I2TXFzWUtOV2xnMUlRaEFaMFlpTEVBVHBLTkFBeDNHbHNVUUxMYjVvQXlNUk1mRFR4MUY0Q25sMDFfTS1Yc0J4RnozUUZpOU5n?oc=5) |
+| Ohio officer dies after ambush shooting - WHIO-TV | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQWFltTXNJbE1xcEJkelZIbGFMVnl1aWJISVJ3RkdUbDIxQlVHQi1TVzdGZ0hRNng3SWFoNFBDNG1NVmJFc1FOZ1NINkNwZ2ptcTFjb0IzX0N4S2FabWVyTl9uZUNQTEloa2R4a2NVM0lPMGtHTkwxdnJRRUxSVTRJdE9tWERXLWhwWUMwV0NsODctb3JhQVpMM0dsQVhUY3Rv0gG0AUFVX3lxTFBPbXVCc0tpRVpYVzZmcTcwYU9POEk0dXpLVGhHamFsUnlHRHZ4X1A2STF2OEs1clo4MWt5QWJkMnB5RVV6MkJzNDMxT1VQRlA5Z1Y5VTJkLU16N2EyaXJ5bFVRMEl2WDRhYjBFVmJkb3pQLUlfZnlvY09MLWJ5VWwxa1lmcWRUSXVmN3k5alhqVk96WmV3WUNpWnJVaGhmajRWRVhxN2JCUHMxYm55WXhwX2VjMg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
