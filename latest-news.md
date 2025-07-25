@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月25日 09:27:24（北京时间）**
+🕒 更新时间：**2025年07月25日 09:40:43（北京时间）**
 
 ---
 
@@ -8,16 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| The fractured friendship behind the fight at the Thailand-Cambodia border | [阅读全文](https://www.bbc.com/news/articles/cvg1gdgy2pyo) |
 | Starmer pleads with resident doctors to halt strike | [阅读全文](https://www.bbc.com/news/articles/cn5k5w7vrdvo) |
 | One in five children in Gaza City is malnourished, UN aid agency says | [阅读全文](https://www.bbc.com/news/articles/cwyxy5k70rzo) |
 | The story behind the photograph of a starving Gaza baby | [阅读全文](https://www.bbc.com/news/videos/czryry57x4do) |
 | Trump to fly into Scotland for golf club visits - and a meeting with Starmer | [阅读全文](https://www.bbc.com/news/articles/cg4r4z2gx2qo) |
 | US wrestling legend Hulk Hogan dies aged 71 | [阅读全文](https://www.bbc.com/news/articles/clyzyr4d2rzo) |
-| Five ice hockey players found not guilty in Canada sexual assault case | [阅读全文](https://www.bbc.com/news/articles/cn0qlwnyy70o) |
 | Cash cards to pay for gluten-free food in UK first | [阅读全文](https://www.bbc.com/news/articles/c0l4d3g4p2do) |
 | Samaritans to close more than 100 branches | [阅读全文](https://www.bbc.com/news/articles/cm2l23ylv46o) |
+| Five ice hockey players found not guilty in Canada sexual assault case | [阅读全文](https://www.bbc.com/news/articles/cn0qlwnyy70o) |
 | More traders to challenge rate-rigging convictions | [阅读全文](https://www.bbc.com/news/articles/ckglglj7dgdo) |
-| Woman in viral Coldplay concert clip resigns from executive role | [阅读全文](https://www.bbc.com/news/articles/cp3l3ldd0j1o) |
 
 ## 📰 Google News
 
@@ -29,9 +29,9 @@
 | Questions about Epstein files follow lawmakers home - NPR | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1Kd21PampsY2RYQ2hTTllQNlBPR2dZMVFxaVlOWU9sOG1BckltbUxrajByT1IyUEVBWnk0bGJGZTZBdUJtZWdYSUNtR2lmUEtjRmdfdWhyQ1dXQVV3NkFmS0N0RGZQWEp3R2tmQ3B4Zk9feFQ4RHc?oc=5) |
 | In pictures: Starvation in Gaza - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOMEdZdk0wOEdHV1pjWkY0VTg4T1EyS250d1Y5UWdna2hSLUdod3Q4YlM2X3NNZFpHSXh1RzVRTHdvTzR2S3VfZ0M5UGllNDNTZFhRQXJlRUQtUHVsanc3Q3JPakhSYXlmb0RtSEdydkFDYTZmZXhxMVRxcEFKTk1KVkY2SWJnZVhQX29NYmhOOHU?oc=5) |
 | Fact Sheet: President Donald J. Trump Takes Action to End Crime and Disorder on America’s Streets - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxQVGo4MEdTbWM3VVc4c3NwZHI2a1BxNHhmZ2gzVTF4YVdkLVgyMWJnSHNIY1hpa2NvR29KWGVUWW51MjhsTlc0M1d1bVI2dXo2bFhIaHBWNmpwelNGenJ4bkNuaVF4LXdUeTRTaXc2OXVOdnE4NmV4MVNoeVFpRFRtV2YzVzVKYUhjcWRuTzlfamdvcnMtLTJneGpuODV3aDhVdE82dHVPOGpPa2YzWWlGbV9VeEZwUG9JSVVuOWxJdlBja19HbWlYamJIcmcyZGlsU2RZbklVazkxZw?oc=5) |
-| Trump sues NYC over ‘sanctuary city’ policies - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNcEZZTExwUnlxNVpqbXZvRm9hSThyazliSzJrMmw2MW1JbU9RQUlMRVFpUnNqS3dMWF9lSktCR083T2QyaEtnQzRZV2pfNTlhT3p0ZDg0Znhxc0ptZURuQVlXWjQwS0s1QkR5MUpaV1JVY2JPVjFzUnB0NWd0dTNmWlpjRzJRSW54ckYya0N0MnRzQktYcnZUag?oc=5) |
-| Arizona woman in North Korean IT workers scheme sentenced to 8.5 years for helping to trick Fortune 500 companies out of millions - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE0tQW1GemVjY3NLY0hKRFJlWHZEY0R0eXRqeVFJRHRNd1BZUFhlZ19MX0tHUzZ3WVlsX3FkQm5pV0czVFJwc2dHNGpCdl9CQ1Juakxad2xCOFYxNTJKYXF5WURBdW9zWDBiWlNRZ2R5dWtKY0NBcUNF?oc=5) |
+| Arizona woman sentenced to eight years in prison for hosting ‘laptop farm’ for North Korean remote workers - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQcHItcThocFhLaHdKUVZSYkg5TmZmbFZCM3o3RXgxbHJZbzhCa2tEbVE4b0ljN0pVTHJKRUJyc3pjWWVhb29JSUQ0ZmxNNGdNaDk2TElVSVBCYmhhRjNtR19DZGJFeTdxTjF4cXJzX1U3TGJETnA2NzJlWUdiNHJtR0o3aVp0a2M2Q1BWZmpiSUFxQkhtekRaWk1kM0RhVDF1?oc=5) |
 | Trump yanks Habba's nomination for U.S. attorney, enabling her to serve in acting capacity - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQeDhFSTlrWGpFVmxEVjF5dV8zVGp1NUIxektVbEl4QkE0MDU0cmFuaUVvSlpvMnBkODVEMl9LaVdZSm5Sb3JrRk5DRlR3RmlIaVNWOGx5MHNBZWJpVm1qTGVKOTNpSGpwTm5JaGlSOC1LWjNCNm56X3R6dlJ4WG5sNW9DeW52QTdrS1YyWlZ3Vzc2RFo0SDlEaVMtb9IBoAFBVV95cUxOWWhsLVJ5bDFhTjJsUWxlekNkTzI5Tm1jdS1zZnk1elpBMHNXaVR6eU0yTk13ZmVCNkNRd3RQMm83dldyTnRrZmlYZ2MxSHNTNHg3Snp3cFpuUTROZ3NNaV9DcHdsSlQ1TlJBUXJUY2tDTFZoRXMwUzFwZDZ2N3BOTUMxanl4R19LYk1vczZoTE9oUklqOXFhU1hFRlkyZFhu?oc=5) |
+| California ammunition background checks declared unconstitutional by US appeals court - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxPWEJUQl9fZEhvMC13SHM5S0VtcnZoTGpmcnExS0Yxc3MtQjRCMXNibUx1ZGphTG5ZRmhONWtpUmlNSzhDaWZhZHkyX2I0X1RQZU1DbkhNaGlfYV9kS21qVmt4eExvNkpoaG1PUHludk10THNXWVZhaWNYM0w0QkNpeUZFS1JKQndTYlNpVGV5MWZCcFU2OEN4a3ZjZW56dWVMX2RfdVZwSm5GdEpSdjRaRWMxWXROaFBRdE8zbjMwa2FSbEtOS3BSS3VNc0M?oc=5) |
 | Flake: ‘All of us should be concerned’ by Columbia, CBS deals with Trump - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPcTJKSzNicXZxS0xIUzdKdkFhSTNqVTZGQ0F3Z3VGbjBjVFdMSkF6SkF3RU5FWW9QZGhLcnV6VEZDMW5hUU1KeGFBYURZbHJ3TXV1VjlWMTdITk1LUF9FZkVEVzhPaXJkdGJiQnBzOC1MTkZjcWlPc0RzZHpjV2pMNHRmUE0waUJZSC1QWVRCNmtGMDRwQ1NycWpFSEJHbWpTdHfSAacBQVVfeXFMT2dXbUhyeHNqcmdIUWpLNkpadXlCR19BYUctZXdYRXJBYnZSYk0tclViUE1kbEd5Ry1KV3l4dDJDTVFuajJjeGJXQ3h5cWctSHZZSm82aGl3NzhOTkxGUGlSUHNZSzBEVXg5OG8ybFRhbm8wRXdPQlY2WklPc2w0LWJ4RnlzRk5pLU1LY1RfNndWM2l2ckIxVHlIQU05dzctQXM1bEsxbW8?oc=5) |
 
 ---
