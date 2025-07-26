@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月26日 11:14:49（北京时间）**
+🕒 更新时间：**2025年07月26日 11:26:54（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| After Ghislaine Maxwell Interview, Concerns Mount Over Possibility of Pardon - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPLVpWRHNuYzYwckxtUGhsY01BcTRWQS0tS3kzYkhmdFJXaXp2WmhYQ043ZGg3NFFHX0dwbzYzTzhhVlRCclh5ekRGYmVCZFl5cEVlczBYZHdkQWIyQ2ZZVzNDekRmNXM1TE1CWkg1ZTF5aHdjSF84dDBIcER1bEU5ZTEtMUdQd2hUT2c?oc=5) |
+| After Ghislaine Maxwell Interview, Concerns Mount Over Possibility of a Trump Pardon - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPLVpWRHNuYzYwckxtUGhsY01BcTRWQS0tS3kzYkhmdFJXaXp2WmhYQ043ZGg3NFFHX0dwbzYzTzhhVlRCclh5ekRGYmVCZFl5cEVlczBYZHdkQWIyQ2ZZVzNDekRmNXM1TE1CWkg1ZTF5aHdjSF84dDBIcER1bEU5ZTEtMUdQd2hUT2c?oc=5) |
 | Amid starvation scenes in Gaza, Trump administration hardens tone on Hamas - washingtonpost.com | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPVjRBREdzMnVUQVc1X0N1b2lGXzBCaXRtbUs1MUYyVHBNVDlnY2ZjTVJiVFhDemM5eFJMYWppMDh1VHEyNmJqS1M3cFl4aUM2TkNwUkw5SVZUSXBId29DSWFIbVB5X3hWeGFuZmQ1bkZoSVdseUtUNTBWb0YwUVduNDhyV2I2NGwwbUhzRnNlWXlXWnBTQXFaSmtR?oc=5) |
 | Trump administration releasing $6 billion in education funding it withheld - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPUFQ2VjNZTEsxN0k5XzRvQjJXWFE2MDhxVTJjaE1UVTlmWUlHSGxZQnJkZkZpUlJRT0NFMW0zVlZaMXdaSnVvSC1CTEhoSF9DckRrX3RfVzlLSHE4Q0NON1RhTFFCVGIyN3dGR3ZGOTY3R0R5cEVIdnVpc1FENy1RX2NsQU9LMFpBVW92MU1QcmV3YmVYRTFHallQOGtrRUJJVWd4STgxZEhmUmZNRnfSAbMBQVVfeXFMT3VpdlFQNHc3RTcyc1BjZExGOC1FcWZmaTlOZGlFUHM2bmpBMjEzY1BxVkNWRUJTN3ltWHp0eFY0NDZsZG9FMUZsaXB2elJIdktSTWQ5LWlmZE5GeXlqT1dKb2s1eEx0LWdXRDdRUWI2NTZSRWpLUGtRNllxVVdXVThmTnAtU2M0SGEwNHFqdVFFOWRrU25FTGc2eWkyUXRqS0xCY1pndFVrTmRhbEZYaF9kb3c?oc=5) |
 | ​​What is inside the GHF aid box being distributed in Gaza - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE50U0p6dWJWMUg3Y0xDZElzb3Q1OThoY29qUjJ0Yi1EQjJ3Qmg5clo4QzMwVnlhaFpkLURUT3A4dlZnSGdlRGRmWW1pcVhtRWZfSEY0dExjdG00Z9IBX0FVX3lxTE52MXVMcERSS1Rjb1ZGdjhOR1N4TEtCZTJkaVlhV25XNy1tQmJjaEphWGlPOG1UQUw3Q001SXZBTDVTZ1NIZ2toSUJiQXRUbS1iZWJsWGlhSWVsUF9iR19z?oc=5) |
