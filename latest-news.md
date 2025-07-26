@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月26日 19:52:29（北京时间）**
+🕒 更新时间：**2025年07月26日 20:00:58（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | New aerial footage captures ‘Alligator Alcatraz’ from above - USA Today | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPQkRGMlJkU2NjMXVGTXVEWVNhamExQTJXTmpOWFBpREw3SHZaUzBRRE9JQXZtT3FQNEp0TENRZENQb0FDYTkyQ1YzbmowTGxwMFplc0dNZ1BleWl6dmF3UTVkUXJXaTFyOHVmdGljZUcwN1o3V0dsZ3VIVjdDdlNDQVhqUDA4X0xTbGhhWFJDY3JzTUh4Wnc?oc=5) |
 | Judge dismisses DOJ lawsuit against Illinois, Chicago over ‘sanctuary city’ policies - washingtonpost.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNVmJXZ2xHVUhraHhXR3NTUnQ1RzNZenI5ZWxXN2dMY08tenIzTHM2TjJHYVVQUTRfWDdmamllSmo5bFBvQkhOdG93anFYTG1YWUM2SlVDT1luYzhWUG1JbzRobVIzak1UODBFcmFENW0tQ0J3NFNFS3hiUTAweTUyemRYclU5TENLTTNFWWh0OU5YbGlOVEZPWWlQNFNVbEMyX19wb2JFTWtGVTgt?oc=5) |
 | Suspect arrested after University of New Mexico dorm shooting leaves 1 dead - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOeW4zOTBFN2E2TmNiTUpSTFZHNG12emU3M3JLV0RZZENWVC1PaWozX2xLWUpOS1M2eTBEUVBBZXJwRjRSYW91X3pwdTN5S2drWTJIc0RKOFdIUE1KLUpPWkt3akVOZWdYejVXZVV5Q1JBTUJucnhBbGN1S2gyT3Z5UDk1Vml6UmxDSXcxU1l2VHdDa2c1VjJ5LWwzX3EtTTltSnlyeng3U0ppUFk?oc=5) |
-| Inside the Idaho prison where Bryan Kohberger is being housed - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPX0ZxV1ZCVlNLX1Raenhoczk0amNHV3FpSFdURnVsSmplTXU3LWFRYVV2QmNQT0x0X0F5UW1WM09SWjdCVGlPX0E1VDZmbURPdlJkWFJWZk9IdGFCaVNtOHZKLTVtd211dlRaNDhnR1FUV1NKbF9KSzZxb0twUUpoWVJzbnNnUVJlVDdBOGlwenc?oc=5) |
+| Trump administration releasing $6 billion in education funding it withheld - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPUFQ2VjNZTEsxN0k5XzRvQjJXWFE2MDhxVTJjaE1UVTlmWUlHSGxZQnJkZkZpUlJRT0NFMW0zVlZaMXdaSnVvSC1CTEhoSF9DckRrX3RfVzlLSHE4Q0NON1RhTFFCVGIyN3dGR3ZGOTY3R0R5cEVIdnVpc1FENy1RX2NsQU9LMFpBVW92MU1QcmV3YmVYRTFHallQOGtrRUJJVWd4STgxZEhmUmZNRnfSAbMBQVVfeXFMT3VpdlFQNHc3RTcyc1BjZExGOC1FcWZmaTlOZGlFUHM2bmpBMjEzY1BxVkNWRUJTN3ltWHp0eFY0NDZsZG9FMUZsaXB2elJIdktSTWQ5LWlmZE5GeXlqT1dKb2s1eEx0LWdXRDdRUWI2NTZSRWpLUGtRNllxVVdXVThmTnAtU2M0SGEwNHFqdVFFOWRrU25FTGc2eWkyUXRqS0xCY1pndFVrTmRhbEZYaF9kb3c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
