@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月27日 00:13:10（北京时间）**
+🕒 更新时间：**2025年07月27日 00:26:02（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | DOGE builds AI tool to cut 50 percent of federal regulations - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQSXBTeFN4ZDZ6Sms3TzJPakdfLXhpWE9qQVMzanBSMzNoUF9qMmljaEI1NnVsejdSM1lHdklaUjRYY0JSaGgxWXZyUG55OHo0bFlsQmZNdTMyX3huZzNMR3lNQ3FQS0xzaGZiUTIxcmFJczJ2eGx3bXJYUXdIak1OcE9TYnBnaTBZeVFBZmVSQQ?oc=5) |
 | Victim killed in University of New Mexico campus shooting was 14, police say - USA Today | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOZXFOcVRYaHVmRkJxbmNlWldTUEVVTEswcFYwTE0wVGRJbFFTZGhBZnFIYmVROWc1c2IwZE5sRkE3ZlNrWWVuQWhBeGZKaGFVelBVejBmakYtV2QxT2t0aGtTNWFKdWdHei1zdExyWnpkME9hbkNVNTZQc0NiWUw2MkJLUDJaWVlPQTYzTzdIbVNjcHFLaWNWUzJFNGlnbk15M180bG5XeWtkOWM?oc=5) |
 | ‘They’re consolidating power’: Navy secretary’s staff try to undercut incoming deputy - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNazZVTXRTTzVXbUs0d1N4RFcwNXVGVXJUeXlsZWNUMjBhMGF3RS1NWFJzQVV5S0ZtNWZhNEZ4cXNKenM3cFREZGFwSjRCSWZxLWZVaU42Q0ZadnQ5MlF6c3htTFl3dXlfeFdMc2M0NzVhZmdSQXl4RjFxSGxqRmxCenVUY2ZCRllqd3VMakhhZTFhem1v?oc=5) |
+| Inside the Idaho prison where Bryan Kohberger is being housed - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPX0ZxV1ZCVlNLX1Raenhoczk0amNHV3FpSFdURnVsSmplTXU3LWFRYVV2QmNQT0x0X0F5UW1WM09SWjdCVGlPX0E1VDZmbURPdlJkWFJWZk9IdGFCaVNtOHZKLTVtd211dlRaNDhnR1FUV1NKbF9KSzZxb0twUUpoWVJzbnNnUVJlVDdBOGlwenc?oc=5) |
 | Can California Democrats rewrite the rules to counter Texas redistricting? - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFAzQXFXT3djaWpWbG5ZaVk0MWZTQW9zanJrSEd1dF9UWnlIRzJENmJ2S21ja3FwT2RueHBZNHpVNW1iSl9mZG9zcHozSkU1ZEpNUVVhMEExaVZPRUNPclEtSHhVUndOdFdlcEI0dGU3Tm44N2pmeGc?oc=5) |
-| Judge dismisses DOJ lawsuit against Illinois, Chicago over ‘sanctuary city’ policies - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNVmJXZ2xHVUhraHhXR3NTUnQ1RzNZenI5ZWxXN2dMY08tenIzTHM2TjJHYVVQUTRfWDdmamllSmo5bFBvQkhOdG93anFYTG1YWUM2SlVDT1luYzhWUG1JbzRobVIzak1UODBFcmFENW0tQ0J3NFNFS3hiUTAweTUyemRYclU5TENLTTNFWWh0OU5YbGlOVEZPWWlQNFNVbEMyX19wb2JFTWtGVTgt?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
