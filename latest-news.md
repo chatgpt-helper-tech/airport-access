@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月27日 03:53:20（北京时间）**
+🕒 更新时间：**2025年07月27日 04:00:21（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| The bitter feud fuelling the border dispute between Thailand and Cambodia - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPTXMxYXBGNXc2MVVyc0h2UmFLb0lwOEplQjZLR0JJYnZQeXBkNVlETGIyS1hBWFZKVm1CQXVtQ1ZkSzhPbnBMTmw2SzdPYnJqcDEzNUZQYmI5MV9YNXV5WjJ5VDF2Q0F3RTgtUGJiS1Btb085Q25QYjRfYTdlSzNJQTNxOVRHR283TGp1SUZuT1F4eTRIbEppT0s3ZW85M294MlZabWl1aUV1dk5ocG85UmphN1hVTE1xVVZz?oc=5) |
 | Epstein associate Ghislaine Maxwell secures DOJ "limited" immunity: News reports - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOaUJ5Y242ZlBaZ1NBeUpTNHNLX2VIZzgzSUNTeHUxclZ3b2hFMVJZMEpGbTBsNzRrMWJkUDJDVE1VeWZlN1lGX1VFaTRlTmR0bmkzYzg1T2t3SUJzSW5TYnFObzA3REpUQm1Jc19fX1A5UFgxaVYyZURScGZfSDhNVw?oc=5) |
-| Thai-Cambodian conflict pits a well-equipped US ally against a weaker adversary with strong China links - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNdTdUOWNjVkNvcFZvTDVETE8wVnphUURYdXZzUF93OS1DWjFBQlI1MzZUQTZiQkttNlJwUmt6eGVJQlZBdDFXVWNkeWdZYkstd18wR0VwSzBQMlU0SzZwOGk5RURRWG51VjN1Mk1QcTRiX0R5ckxkZzlnQnBXNkV6eld5Znlvdldhb21LNnRjOFBZVlJmZ3pkSkNB0gGfAUFVX3lxTE90YXFHT3NtRmRvTTVKWFdrY29PRkhJVXlqeUJ6blZ0cjFMbGdTUENzQ3RDQzhBUmZ4ZEczRy1hMXByWEZyV0o5UkVfNVlxWl81U0x5VWkyREdhS2tveVdFaHlJWUl0ZHFIZzVqYWI5Z3dQQ0o0alF0Q3NILUJ3U3JRSm9BSHpZVkswTDdWOVh1cTFzSlZvZTE3RkpvejRMSQ?oc=5) |
 | A Golfing Trump Is Greeted by Protesters in Scotland - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPQklhYUdiWTlmZTUzSkdqQVEteVZTRHZNVDlsNGlVZzg4ZEV0Qnh3RGduNGktSHVFSHRmVmlpbVJ4RC1IVUR2d3QwVlkzeW5LdFJTRXBTaEtReHZRVndqMURpX0lsSWx3QnRhNHFjTjE3MGhzYUFocEIweFEweEhtUg?oc=5) |
 | Gabbard and White House 'lying' about intel on Russian interference in 2016, ex-CIA official says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxOM3RNajNUV1NzNnFwZmVUUFZvY3NFSUNPYnl2ak9QOGZ3WUpDM3pLaUJteWw3RGgzbWNjVktSZ2ZKMU8xcTlWY2hfd1dnV3NjSEZnUlhPX3JxZlBGellBc3FLTmdRYXZmYng1ZEJhX3dFR196WVZRbUxEcXFKWE1WQ0J4blctR2VBSllGQzlidE1rcHJvMklSSEJ0YmdIWWFLaGF1eXJuVXdnX0JmSTMtTDc1bG1RZ1hzZVBMTkZnTXUzdFRhX0phQTBZTGrSAVZBVV95cUxPZXgwOHlSeTA5cDk5X21lbzdBci1EVUNGdDZCenk1UTVUdDlVRGR0MUZUalE0YkZaVzNxRlh3QW1tNTV2VUdra19ZODN5RE5aa1FYc29LUQ?oc=5) |
 | Scoop: Democrats think they can get their hands on Epstein's birthday book - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPUkctcy1lNHp2NEc1c0ctdGRsYnVQSFBRWm9rMnFydDk3UGQyMFpreDUyaVNjR1VCMEh2MXlrSFBFdnd6Y1J2c0VuQW1zemFoSDJ6em1oZlZyX2c3eUo3bGFJNXUzMFgxdlNBMU9ORF9zVlZEelNxaHpFa3RoOWhGMndYMlczQQ?oc=5) |
