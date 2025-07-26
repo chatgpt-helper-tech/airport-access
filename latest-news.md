@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月26日 17:53:22（北京时间）**
+🕒 更新时间：**2025年07月26日 18:01:55（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Scientists bust 10,000 steps advice - do we need to stick to other daily health targets? | [阅读全文](https://www.bbc.com/news/articles/cwygy378nn1o) |
 | Why we need to talk about periods, breasts and injuries in women's sport | [阅读全文](https://www.bbc.com/news/articles/cq53v066x52o) |
 | Russian teens, fresh out of school, losing their lives in Putin’s war with Ukraine | [阅读全文](https://www.bbc.com/news/articles/ce9xkg7dmd5o) |
-| Tee time with Trump - striking balls and deals over 18 holes | [阅读全文](https://www.bbc.com/news/articles/cly2y4w47deo) |
+| Refusing to take out the trash: The garbage strikes plaguing US cities | [阅读全文](https://www.bbc.com/news/articles/cvgegvwk9q2o) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | Desantis says deportation flights from Florida’s ‘Alligator Alcatraz’ detention center have begun - PBS | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxPcmd1eGVRbDRsRnd5MDRNS2NreHNjS1YtbUFpMmtlY0ZMLXFYRGVIT1FUS1pIdDBsVHJYRmVlX1A5Smo4QVBrcmp1MkdrTEJrNl9YYWFoM1BnWFUtTm5MRUVUVTNNa0lycFRjSEFWQlhsOFltRm4wMXRvSEw2cGtBMkdaeUh5dmVla3R3QWQwWWc0YlA5Rkc4LTZ0TVg2aERid2VrNWlCSUlwNkR5RDYtQ0ExejI3SXdPVGt2OFp0ZHhTX01FZEswMVBpMHPSAdIBQVVfeXFMUExnYzRpLUV0czViZ3VYbUFSRUZSTElfS2xVS3B4bVVGWHJSaTVvVVk3OFA3WTFqbTVaSkFuQmNRU3l2bV9yQXhnbjBHUTFkcTRFQTAxa3dEbkI0QTg1ZVRiYnBaR056UHFIV28tLXVHYVNIZVZZZlVSZDRDdDBWMTR0cnc4dDQxcE1GVHBYOGRXRlpRWjRwOW92WGVuOTFGTGJVTzk2VHM5RzdUVWVJUXU5d3NGSGYwdlFjTmNGNlVOSXE5VDd3VEhCb0JMNXE0ZFZn?oc=5) |
 | Suspect arrested after University of New Mexico dorm shooting leaves 1 dead - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOeW4zOTBFN2E2TmNiTUpSTFZHNG12emU3M3JLV0RZZENWVC1PaWozX2xLWUpOS1M2eTBEUVBBZXJwRjRSYW91X3pwdTN5S2drWTJIc0RKOFdIUE1KLUpPWkt3akVOZWdYejVXZVV5Q1JBTUJucnhBbGN1S2gyT3Z5UDk1Vml6UmxDSXcxU1l2VHdDa2c1VjJ5LWwzX3EtTTltSnlyeng3U0ppUFk?oc=5) |
 | Inside the Idaho prison where Bryan Kohberger is being housed - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPX0ZxV1ZCVlNLX1Raenhoczk0amNHV3FpSFdURnVsSmplTXU3LWFRYVV2QmNQT0x0X0F5UW1WM09SWjdCVGlPX0E1VDZmbURPdlJkWFJWZk9IdGFCaVNtOHZKLTVtd211dlRaNDhnR1FUV1NKbF9KSzZxb0twUUpoWVJzbnNnUVJlVDdBOGlwenc?oc=5) |
-| Trump signs order allowing forced hospitalization for homeless people - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOb0QwOG1IcDNET05pSk9LRHlBUkpsVGlKVE1qX2VaeFBsSGd6bTNiZ3FlT3phcXJGYy1LZ2o2YkZmU2w4MFFFeUFPNEJCbkdTYTNjVmFSN3d3Ul9tb2FQOEk4YllRSFVPM2oyUm1sSThybmVROU1LOUVLTFE4eUJTM1R3?oc=5) |
+| Can California Democrats rewrite the rules to counter Texas redistricting? - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFAzQXFXT3djaWpWbG5ZaVk0MWZTQW9zanJrSEd1dF9UWnlIRzJENmJ2S21ja3FwT2RueHBZNHpVNW1iSl9mZG9zcHozSkU1ZEpNUVVhMEExaVZPRUNPclEtSHhVUndOdFdlcEI0dGU3Tm44N2pmeGc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
