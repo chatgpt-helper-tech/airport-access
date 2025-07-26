@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月27日 00:53:06（北京时间）**
+🕒 更新时间：**2025年07月27日 01:01:54（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | Five killed as Ukraine and Russia trade drone attacks | [阅读全文](https://www.bbc.com/news/articles/cvgv3ppl7m3o) |
 | Scientists bust 10,000 steps advice - do we need to stick to other daily health targets? | [阅读全文](https://www.bbc.com/news/articles/cwygy378nn1o) |
 | There's no 'clear underdog' in Euros final, says Leah Williamson | [阅读全文](https://www.bbc.com/sport/videos/cy40l0x81rgo) |
-| The Traitors Prom, and WWE Unreal: What's coming up this week? | [阅读全文](https://www.bbc.com/news/articles/cgk3lyx4gz1o) |
 | Why we need to talk about periods, breasts and injuries in women's sport | [阅读全文](https://www.bbc.com/news/articles/cq53v066x52o) |
-| Russian teens, fresh out of school, losing their lives in Putin’s war with Ukraine | [阅读全文](https://www.bbc.com/news/articles/ce9xkg7dmd5o) |
+| The Traitors Prom, and WWE Unreal: What's coming up this week? | [阅读全文](https://www.bbc.com/news/articles/cgk3lyx4gz1o) |
+| How reality TV changed the way we think - for the better | [阅读全文](https://www.bbc.com/news/articles/cy4nedxl3wyo) |
 
 ## 📰 Google News
 
