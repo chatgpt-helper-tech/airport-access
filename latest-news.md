@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月26日 17:00:42（北京时间）**
+🕒 更新时间：**2025年07月26日 17:14:43（北京时间）**
 
 ---
 
@@ -8,6 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Trump praises PM as he arrives in Scotland for four-day trip | [阅读全文](https://www.bbc.com/news/articles/cy8g8w431wyo) |
+| Gregg Wallace 'sorry' but says he's 'not a groper' | [阅读全文](https://www.bbc.com/news/articles/c335grk668lo) |
+| UK condemns Hong Kong cash offer for help in arresting activists | [阅读全文](https://www.bbc.com/news/articles/cdx069we39xo) |
+| 'My dad started spying on my mum' - the drugs causing sexual urges | [阅读全文](https://www.bbc.com/news/articles/cpqnpryxvrro) |
+| World's thirst for matcha dries up global supplies | [阅读全文](https://www.bbc.com/news/articles/cgq7w1n00xeo) |
+| Watch moment 'air scooter' fails Channel crossing attempt | [阅读全文](https://www.bbc.com/news/videos/c741jj7y770o) |
+| Why we need to talk about periods, breasts and injuries in women's sport | [阅读全文](https://www.bbc.com/news/articles/cq53v066x52o) |
+| Russian teens, fresh out of school, losing their lives in Putin’s war with Ukraine | [阅读全文](https://www.bbc.com/news/articles/ce9xkg7dmd5o) |
+| Sleep, exercise, hydrate - do we really need to stick to recommended daily doses? | [阅读全文](https://www.bbc.com/news/articles/cwygy378nn1o) |
+| Tee time with Trump - striking balls and deals over 18 holes | [阅读全文](https://www.bbc.com/news/articles/cly2y4w47deo) |
 
 ## 📰 Google News
 
@@ -22,7 +32,7 @@
 | First Deportation Flights Depart From Florida’s ‘Alligator Alcatraz’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQd2hpazdiMWU4S3VOUVlaR3FScXFjeWJvY0RLSDk3eTZtZ0s0Y2pVU1VsM1ZoMV8wSzBHODJiYlYzdFFuWnZBeUR3bzZJUDNjaTBSeGJLYXg2VEF6RWk4dUlVbnllTnlUdk0tZnIyd2F4OFpqVkYyQi01SzNCbThFdU9adzg0S1o1?oc=5) |
 | Suspect arrested after University of New Mexico dorm shooting leaves 1 dead - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOeW4zOTBFN2E2TmNiTUpSTFZHNG12emU3M3JLV0RZZENWVC1PaWozX2xLWUpOS1M2eTBEUVBBZXJwRjRSYW91X3pwdTN5S2drWTJIc0RKOFdIUE1KLUpPWkt3akVOZWdYejVXZVV5Q1JBTUJucnhBbGN1S2gyT3Z5UDk1Vml6UmxDSXcxU1l2VHdDa2c1VjJ5LWwzX3EtTTltSnlyeng3U0ppUFk?oc=5) |
 | Trump and golf - striking balls and deals over 18 holes - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBKTnVsZ0RQZzk0d0JVOE1ZUmdJeUZONzVEdGlXWk85UW9lXzktd1dZaTNKd25Na013OTcwZzFqOHZodTF2c1dRSEw0X0VoQUFkRU1UOTZtZDh3UdIBX0FVX3lxTE9fWVpzMGhoeTFObC0teFZYSnF5UTQ0MmEteEl5MXA5cWZ2SDVUYzZiMUducU43UFdYS2hiQkJqeC1MMXIxaks4dlo1NTZZS3NRWnNJS0hTNnV4c2J3VlhN?oc=5) |
-| Inside the Idaho prison where Bryan Kohberger is being housed - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPX0ZxV1ZCVlNLX1Raenhoczk0amNHV3FpSFdURnVsSmplTXU3LWFRYVV2QmNQT0x0X0F5UW1WM09SWjdCVGlPX0E1VDZmbURPdlJkWFJWZk9IdGFCaVNtOHZKLTVtd211dlRaNDhnR1FUV1NKbF9KSzZxb0twUUpoWVJzbnNnUVJlVDdBOGlwenc?oc=5) |
+| Democrats request copy of Epstein ‘birthday book’ that reportedly contains Trump poem - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQdGJaeDQtSmc4VFhoNzhvZTZqV0ExTVJwMzdMVDBta3dqRGtyNGVZM0pzUENKSV9RTTBRSko2MDBfbkxfMWRHSG5UOUVDRDdJRDBLMXhCYUpKY1hjdlN4SHJ4TUFGT2xHU29yNkV3WUpkRENzUWw4cDZkWGowdzNoQnBkVW1UZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
