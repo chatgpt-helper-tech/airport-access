@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月27日 10:52:28（北京时间）**
+🕒 更新时间：**2025年07月27日 11:00:41（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| 11 People Are Injured in Stabbing Spree at a Michigan Walmart, Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE83LUtlemNNNWFvZkNkSmp2UFlIaURsdUlJVGhDakJNdVZROGEtbFpjNmpNOVZsbUdEc2lmOHJLSWttOXFDSEdKdmg3MXBXUFpvNUxrVUtpQVVEYkpGV3JJb3FPM1lHWXc4NFN0aVQyQWdScUZseF9MbDBMT3Z3dw?oc=5) |
-| Israeli says it has begun aid airdrops into Gaza - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBTN1VzVkF3SjA5elpjR0pCekx4ODFuNlRTU3M5em14ZGdqbGNyY18xRl9kZkxuT3c0WVNXU3h6dDJWcVdpVFFVbjlpOGJjcjljWVFvMzMtMTRWQdIBX0FVX3lxTE1HR08zOFROQ2xGUlpkc1BwRjZUeXN4c25EU2J2VUt4eEpUdVZIRXBpVnF1d3NGS2d0OUxiVzk4dnN3RWhwaExYbmlvQjhFeHhKX2NhRWphV2dIeFU5eHl3?oc=5) |
 | 'Scotland is already great.' Protesters troll Trump on his golfing trip - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNakhWYWR1YXI4a3NCUklYbUZvNU4xVEgzLTFkbEJsUF80clB3NjNNWDhCbWp1OGNYV1ZEampNVS1USlkzTzZMMzQ3YU9jdU9pWkdTb2h0dlI4V0IxU1k4Yk9VTFlJZjlyMXFUSWRwLVBVdHBpd0pCNXQ0RWpvWkNQNGh5TQ?oc=5) |
+| Gov. Whitmer releases statement following ‘brutal’ Traverse City stabbing - MLive.com | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOR3d0ajRLRUt1c2lUNURaUEhuMEtpaEQtRFJJQkpsYUM2dU1KLU15ZnVlTktIdTFtS1pGMlg0TW5qVHhsVi01NS1Cam1wNUlNZVhFRDE1QzFkVEZyX1l3YkhVTFBXVTNoNTlyU2xBLVUtRE9sNkdUYWZTSTNFNVprZE85R0FkX2FjQnVDUzhYcDBVenIyT2pSdkxxd1BzdEIyUzdqaVhFbjNLRVB3dm9Z0gHDAUFVX3lxTE1RNHotSTUtaTgtRGN6cFpxdlFpbldiSWk0aXZrOU1uRzZrVlo5WTRxQWNFdlJKMHpiazgtUFRtbWI0TnNCNTN5WTVrMkt0R255YzJiZmtiS3BzRHhJVVNTYmsyaG1sVGhXWjY4MGljVFctcGJ5REdMMlJnWks0V2Z6aGoyb2toR1NLZG9yaGFsUFlJRUhLakI4ZDQyTVJvMDJfb1BRZGNPR3lWU3hWVkJGelNJSVZZQzFUeWoyR0ZqNlphRQ?oc=5) |
+| Israeli says it has begun aid airdrops into Gaza - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBTN1VzVkF3SjA5elpjR0pCekx4ODFuNlRTU3M5em14ZGdqbGNyY18xRl9kZkxuT3c0WVNXU3h6dDJWcVdpVFFVbjlpOGJjcjljWVFvMzMtMTRWQdIBX0FVX3lxTE1HR08zOFROQ2xGUlpkc1BwRjZUeXN4c25EU2J2VUt4eEpUdVZIRXBpVnF1d3NGS2d0OUxiVzk4dnN3RWhwaExYbmlvQjhFeHhKX2NhRWphV2dIeFU5eHl3?oc=5) |
 | Trump leans into trade threats to try to stop Cambodia-Thailand clashes - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQdG9UYkEzUWExQlVnUkpvNFJtYVoyakowa0Q2VHVndDg5REtPY2xMRWsybENpcVFBME9mcUt3RFlNdkQ5NHYteDlKelZzbGl2OTVXTG8zaDc4ak1kbTdLekpkYmRaRmNkZ2h1aDU0NGx2b3JXVlFDcDBiYzlhRnhuSWIwd1Y0QQ?oc=5) |
 | Ghislaine Maxwell's meetings with Justice Department shrouded in secrecy - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNQ3c4ZXB6WGpybW1BcnZlc2l5QjBYUVNYcFoxdk1ZUUpiQTFuWkxBWXVFbnBRRXkwSDduVG5IaE1xY3VuNXBBNTlnWWZ1MXd2ZHhlMDFUdnljR2NtOTZSSVhYeFhJVV82SWdSYU8zUkNhVElRMUR6VF9fUFNYUFpKRllzNUg3dnc3c2tBZnZHYVdEN0VUYUMyOEdBNThVajU4bF9veTVoekkyUW5a0gFWQVVfeXFMTlRwQ05BNGNQZlgwdXBQNENtQ0pJN2d4M3RNWXRxVnFJYy14b0gtb3VocGZqcllhTjROcnd0blcxRU5IenhScHpyR0g1QlVUa1NaNlpFSEE?oc=5) |
 | Wildfire burns through northern suburb of Athens as residents told to evacuate - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPdy1DVG9RQ3VSMERqalllUS14VUlWMXU2bWZtZ05RelJ2RU1fMjVqblV1Z2k0dW1sbHpleVNTeEdxMWwxZnV1VmUxVFBNak1PMWI5bnNudXFzNTV0dDdta055TVlCRU1ieHowd2xBeHJUa3NUNm5kM1hFZ2hROHJGSDJlQUdTelY5Y2lxN043dkVCRHVkZ1gzQlctNTBhOXZHLUNVX2xUa1lhTlhnR3JjdEZlNGVFeUhJVDlEQ3hKS1VMZw?oc=5) |
