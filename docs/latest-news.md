@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月27日 08:53:51（北京时间）**
+🕒 更新时间：**2025年07月27日 09:02:02（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Texas Democrats escalate fight against Republican-led redistricting efforts with Pritzker, Newsom meetings - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOelg3d1NGdUwtdUxZTXd5bVVDQkp1dkJ4RmNSQWpTeWtFUFpUekJlSWFVdzZoRTFUbE03dW5GdExCRERXLTNEWlVnTzdjMnFOZlAtc1lZcUxQelFseUwxWTRKN2NkM2ZmUzRCQUVXQnBkaGgteFRHbDRqQXpHdDJFWmJmY0ZxRWVuNld0ZUNWcnJhNGR2eGhIRk11dXlVVzNrR0JNVkNTNDNVaVJoMFEwNmhLWG85UnAzLVHSAb8BQVVfeXFMT1BDV1NyWXVMV3JPdW1NbGJYRUNtN1owNDZ0NjJUd3k4czFhWlZtUnhPb0RVY0RWSHc3X0ItMmVKbmhwdFdQRk5GblpzM2w4Qm43T0xWUDk4amNsTi1zMk1VWVc4dVd6TGVKMkRBaERQREdxTk9VOW85eks0NEZvV2FVLXVvWXlLZmhtVTc0TzROZ0RmVmp3anZFN2doQVpIM3MtcWZNRnJiSjJ4S0oxWl9ZVzgzZS00clVXZXBRbVk?oc=5) |
 | Dangerous heat continues for over 80 million Americans - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQblFoNmdJb1lBVnZiUmctQzRNOWZYSWxEeFNXRGpfS2tDQUFqem1lTjY1ZEpyRTR2R1czbW5CTXJ3X0JSUEJYXzRnMHhReU4zdG1DajNEaHY0TVdISDFPTEhmM0Y3dXl5SElXZW5ZaWJlc2luSHNTdVh3Z2lNS2dlR2gwODZiOHVSYVhER25wSE1VMFho0gGaAUFVX3lxTE9mNTNveFFsQlFERXdSLThscGJJMUc1bUpkdTNBUWlnck5NSjlHYTh0SkQydWxYMVNFWVdXOGdPc1FhZnd0R3JLbF85X0RuODhpNDVROW81TlcycVYxYkljNmtBTFd3TzdCNEt0UFVtN3hUWFdhMG5JUnlKelk0SlJIaGt6OUtwd29iWUYzOFlJcWw2Sm12ZGpxN1E?oc=5) |
 | Suspect arrested after University of New Mexico dorm shooting leaves 1 dead - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOeW4zOTBFN2E2TmNiTUpSTFZHNG12emU3M3JLV0RZZENWVC1PaWozX2xLWUpOS1M2eTBEUVBBZXJwRjRSYW91X3pwdTN5S2drWTJIc0RKOFdIUE1KLUpPWkt3akVOZWdYejVXZVV5Q1JBTUJucnhBbGN1S2gyT3Z5UDk1Vml6UmxDSXcxU1l2VHdDa2c1VjJ5LWwzX3EtTTltSnlyeng3U0ppUFk?oc=5) |
+| Elon Musk is threatening to put third-party candidates on the ballot. Democrats are giddy. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxObThfRk02Nl9ZMVFFVTlfYTZoR3lpS3h5X2xZX29tR2hyc2h3OXhlVUlGck11M3ZqcFVMRFUzeDZlSzc0OEVjQ0IyaGhDUm1Sd3IxQmxHUWRnZDUtM29XMDhEZHJycnpxQXBCU2xWUVdCRm1QN3Q5X3pXZnV3dU9Zc2lydmZhRUp5bkR3QzVPOA?oc=5) |
 | EU and US locked in talks ahead of key Trump meeting with von der Leyen - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE01MXFHQTNZSExMV21qMVhhaF9lWUtVaFU2U1hLOXlmcWp4blhPbmU4akNRNHUtaTlmS3g0RXJsUkRpb3oxeVVGY1lPZ2ZsWUY2OHdFM29zN3MycDExZUNfaXNIZklKM2pHT20yNFRDTTU?oc=5) |
-| Chinese research ship detected off Alaskan coast, Coast Guard says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNenBQTFNTLWc5aDF0TlJUVk9Ga3NrSDV1T3NvZXJjb1dsWEsxdk4ySkY0TlJFZWpCb3BSUzFXRVBjWXBiaGNOcHNKZDZTTGE0ODEzeWwyTURWaVZmd0MwNVFpOFdMck1iWjJBYTQxeHV0Wmh0b3pDNkRuVm0xaTJNb1d2cVZIUF9jRG8tc29B0gGTAUFVX3lxTFBQM2pPOFExb1NzQ3VRMkZtVFNYeUhpSUZRZndpbUpoTGVWOUM0UWszRXBlTDUyd2JkUXBHblNGRVRIVFdTMnBYTFRETUdQYVlCbXVPaUtVWUt4a1hISUdPYWY4dDVDVFp1OEtyMDVfN0x0ajVNZnNicnlCZGREZzFSdkNCLUhfVmZlWEs1SFNEanc4WQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
