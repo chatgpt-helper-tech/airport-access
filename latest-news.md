@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月28日 04:52:03（北京时间）**
+🕒 更新时间：**2025年07月28日 05:00:02（北京时间）**
 
 ---
 
@@ -23,6 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Trump announces EU trade deal with 15% tariffs - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBoQTVZTWJXWXF2elhiclltZTJQcW5sRDFGMlBScW9uNVhKUHFQUC02SnJRRmp0Tzg3dE9EZUpWUHpOYjJZWWl1eFN5TXk2Uk53UFEyU2hjNW1XaHE2TklJNXZRZlY3VFhuYmJZMjdvWTVkNEFGS0JISjM0T21sazDSAYQBQVVfeXFMUEdTaE4zbHpPT1Z6bHhVTXNZdFVlSnhBZTVnWDA0eVB5RXcteERGbDJPUDJyRkhpSkdIYU4wXzVqM0l5a251eS1hbnBDSHBsTEhoQVM0Z1h4RmJSN0s5eDFmZ25GN1NLTTEwRXpBWTBTSlhleXMzcGMtZ0VaMUlSWmJqOHU2?oc=5) |
+| Suspect in Traverse City Walmart Stabbing Attack Faces Terrorism Charge - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPR2hQcTdVRk1UZFdQemp4bUhaR0dmcUZwRG9xblBjOTdMd0w0QkNPV1h0ZDFoXzFPNG1OM0dhdkg2RWF4UkQ5TXctMGlJc3M3SURRcVNGOU1TeHNfQ3NtWnBNbDlJVUlXNWZpZjlGaFpWWHgtRDF2aXRUVXlEWlBKZHA5OWZidlM1?oc=5) |
+| Israel announces humanitarian pause in Gaza after international pressure - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOUHdwMmo4WktqX1g2T1dFbXkyQUc0dzJVU1NwbDgtZWRYOE1JZ3lkbmNQaXc1ZmRtX0ZwZmRud0tzdGdCNWpfd09MN3hMdWZXQV9mTXpDcUtXY0VBeGN6enBWZjFIVHF1ZTVUVUo0S2tuYU10QUtLYnB2X0NsbmRTNG5YUQ?oc=5) |
+| Mike Johnson would have ‘great pause’ about a Ghislaine Maxwell pardon - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOeVRyTHJoTExhdTV5Rlk4M1c2Nm02ekRPdkFXLXdfZGVKUGFPX1YwSlRrUnlZSmNpVFNEYmZLTE92RzRESnlacG13WVBCUmdkUE5HbEtZOWl6MTE5Z01mTnVKSHo5ZW05WTlSdmFpZEl6Wm03M0cxUkJrNERMM09mcEpScy16ODV3?oc=5) |
+| Several reported killed in German train derailment - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBqVGNhRzlET2dzakp6Umoxbi05RTVCRGZiay1uQ0h4TjF3RHhqR1QyTzNpaFk4MlpCVWNKTFlKNklHSWJIUEtadGpjZ2VaQ2JjN2toQUVIb0pBQdIBX0FVX3lxTFBhYkszX3YyclR0N3NYMDEyeU5BcWVsTzE3aDFKVFgzLWlqRk9rYk9vcDFfMDAwSTBVbU5PMGlSTC1vZ25QVGktSXN5QWdERU5mN18xcnhrblY5R2RGZXpZ?oc=5) |
+| Thailand and Cambodia to hold talks on deadly border conflict in Malaysia - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQY0xqMWFlWmZ4S3l4MFBVU2ZKWlk4bVo5S1o0RHY3OVEwRWVvbktxWEdPR2hTMmFySDZnaHdjMFVyY1ByV21PZmFySjdmUklZZm5hZUxaM1BXNlJtSkxDWXRBT2VsRk81c1dBXzgxUUMxUUNTanQ5MnY2YWxmY1hDLWxrUkVlNWxBTDBXMk4xd2hWbG4wSEl6RXZOekF2dHh4eUt5MlRGN3EyU3pqZmJSb1FabVAwUQ?oc=5) |
+| 2 people found dead along Arkansas hiking trail in a suspected homicide, officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxORTJ3WDFFS1hScms1cFAxeW1wSXJnR0FpRXd5NC1nU3EyUTY4Nm5xODJrOEpFM0pFdDNZdktvcGx1WExPc3FCRUlvY0lQTnFUbno0b2FCb21xNExUVlRzMXVVLW1IbmU5MmxSSDAzYWE1Z09pNHJHaTZqQVhIcktrNHVhazNQN0JCdDQ5bjFSSkhiZjJRQnpZ0gGcAUFVX3lxTE5KOHIwcjJKZ1VQRkNxT3FhcUI5bS1CN0tGaG0wd21id1AxV1EwWmVoMXBBZkw4d1VyZjVxQ2FsVGhIVG93MEQwc0pxZ1Uwc0tPcG1QSmE0eGhvQzZWdHpZeTFXWXB2V1BEbHZGNmk0anREd19rNUJyNkVHVE4wZ3dUcThCNEpZWVNEQ3V1NEFoVU8zVWJLTjhza1R1ZA?oc=5) |
+| Colorado lawmaker says Gabbard has become ‘weapon’ for Trump - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPVlBISm1zN2JNLUlFMHhQQUZ4NHNiV01kQXAzOVNwS0dWVU5NTGJqY3g1NkVOS2pnQ2xBSkJrUzdzcmUwS0JMZnB4UU5tVC12aGtFczloM0I5YWxkUnMxNVFrRENNemswWnVWVHdOOVRJZVVfY0V0ZlJ2R09jblRVekhBSk5TMWtQVHNaUmV2eVpRSkk?oc=5) |
+| Trump’s Scotland trip latest example of blending private business with presidential duties - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1yRVdsUjU3aENEa3NfQnlPdnZoX3R5ZEVGOUdNSEc5UWg4NGMwQVJZdVB1UDhiZjdCX0tfVnhUckZFLU5uLVZJdjBQNVdQWUFxektsTDNLZ01lZUpYRDM1X2JnaG1VMktFcXNpMEhIelZ2TUJFR21oRXpB0gF_QVVfeXFMTnpIU3JqTzFVbWdmU2k5aWVLR1IxaWw0Z1kwdUoyR2FFNTdJX1czN205d1llWVhwcGM1UjNiVjNRRnZFMklHcGtBLXlCTUFVdWNJNjdqdEJ1Ti1lR1BUamFsOVVNMVpBaDY5dDkyWHRLNzJBZG5qdEFWYWhQXzl3SQ?oc=5) |
+| Passengers exit plane via emergency slide after aborted takeoff - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNUWxhcmtkeEJTZlBqbTZCc2NPMWJGaXF2aUpMaUVuTFlFSzhuQVFLSDRKMUN4cW9raXA3TEhBNExxMlVzMlhNTjBOalhocnVfZzd3bkoyQXJhYS1Cb3V5Zk5ibVFxVmZGa0RFaTV3ZWJURkQ5RnZQV25IX25Jb1FnLUVxUmJXY0hPcXhpYlp6QzBEc0ZXb2llV2tpSWM5V0dod0Y1dVVOc9IBrAFBVV95cUxNZ21ZRkMyVnJKY0lmMkpJUXZNYTlhcmFGUHl4dG1YaE5HRUJadkpYUkdoczJkOEE3WUd2N25MTk5oOU16NGVlSkc4cEdwNUpiYXlLc2dKVnpnQ3F0Q1RGbjJKVGZ1Rmh2X1dZSmswRkkxR1h0cHg4Ml8xYkJZaFFJNF81eHJBT3FXNDd6UWt5cllCVkF3MDVRVkt6VGtfb2JBWWRfVDhLd0JPWVU1?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
