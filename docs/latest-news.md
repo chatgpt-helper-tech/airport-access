@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月27日 14:00:16（北京时间）**
+🕒 更新时间：**2025年07月27日 14:13:59（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Taiwan Recall Campaign Fizzles, in a Setback to Its President - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9vbVNIbVRQQUdNT3ZKNTZxdUNYTGZEdzIzVm5IRFktc2lzQmZhenFBbWRFSWtyUU1VN1RCNHZVZW9Jc1dRSVNhazNIYWU3ZmpjOW5VLWdqZ1VVdXFCLUNKUVFkNFIyVkhQUjg5aE9OUXRYdkRFb3drUzQ3QQ?oc=5) |
 | Goncalves family issues statement after Moscow Murders investigation documents are released - KREM | [阅读全文](https://news.google.com/rss/articles/CBMijwJBVV95cUxNUlRfSGlqdWEzOEdRd2VnSXlSc2tiTFVBTnBRenNyN1kwNi1VQW5vQ2c5Q0R6eThCd3UzN1ZvT2VBNkxIengyOElDejdZa05tbVd4MXZTdXJjeXAtQzZQeVNhck9CUlpiNlEzY3FVbnY3NFdnSm5fNk1ST2xyVl9tQ1JkTXExVTJOdmVteDM0YmNlVVJmNFBPX0pqdUZZMUFTNW9NQ3dKYWJXbXNLM1ZCTTF3UWVGZnVkajNjOWtVZ1ZKTV91dGRrd3VJNEg5S2tFOFd3Y2kwTklMYTVJRUx3R1hmVW9FdHFjTHZ5UHo3d3VnNjhJbDdWajNFdGRWVHJHNllmX0VDMlNnYnk3cGow?oc=5) |
 | US man convicted in Palestinian-American boy hate crime murder dies in jail - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOQ0l6Q0dGUVdRTjZnY0VRNGpKaVdRRThoQm1vV2pQc1pLaDJGendQbUNYM0JuWWZIc18yNU9EbnI0aERaTVJnRWFTUG94U1hELUZibFFRNFg0WTFkX0FYZjFyaUYxSnFFZFNiWGE1VTBjT3A5QjVwbmpYanFxZE44aC16QzJ1bFAyRmJkM2hjaFA5V0E4NjlrWHdVbEloWXN0Und6SV9qd2VGSTdYYkJ6aWI5STZmLW_SAbwBQVVfeXFMUGl0a1l4V1VkYUxhSXMyVnRuNnlZZTNJZ1FXU0VOQzdFU19hLUdBOFpKTk5fM0R0UG03b0tKSzlfYXBQRkIyQ2ljNXUzWmNLTGkydEwxcmZPdFNVOUFKTEhDcTQ3YmlZdFNDWG5YNXNod3ZqYXJsN201QkhjaDBDeTlXbVZudWJMcG5zc3FOS3lGcWw1ZUVPbzkySEJMSUJ6eXBWQWZnaGtVV0JSajVDdjVzOWdHZEpzbjZieXA?oc=5) |
-| Dangerous heat continues for over 80 million Americans - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQblFoNmdJb1lBVnZiUmctQzRNOWZYSWxEeFNXRGpfS2tDQUFqem1lTjY1ZEpyRTR2R1czbW5CTXJ3X0JSUEJYXzRnMHhReU4zdG1DajNEaHY0TVdISDFPTEhmM0Y3dXl5SElXZW5ZaWJlc2luSHNTdVh3Z2lNS2dlR2gwODZiOHVSYVhER25wSE1VMFho0gGaAUFVX3lxTE9mNTNveFFsQlFERXdSLThscGJJMUc1bUpkdTNBUWlnck5NSjlHYTh0SkQydWxYMVNFWVdXOGdPc1FhZnd0R3JLbF85X0RuODhpNDVROW81TlcycVYxYkljNmtBTFd3TzdCNEt0UFVtN3hUWFdhMG5JUnlKelk0SlJIaGt6OUtwd29iWUYzOFlJcWw2Sm12ZGpxN1E?oc=5) |
 | Texas House redistricting committee’s Houston hearing draws criticism over absence of maps - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9YT2dXcGhqM0FTSjlXNWh3MXpmRXVuOHliRlZIOGQta2l3U3BOSE9uN21oZDZ6ZEZFN1RINHIyZ2t3VjY4NkhfNnpodF9PZnJLTjNzR1dreFNBSGJwM0hObGZTVUFpaDc3MkdHX1NsVlJEYUphZS1XeWdIcGx1UQ?oc=5) |
+| EU and US locked in talks ahead of key Trump meeting with von der Leyen - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE01MXFHQTNZSExMV21qMVhhaF9lWUtVaFU2U1hLOXlmcWp4blhPbmU4akNRNHUtaTlmS3g0RXJsUkRpb3oxeVVGY1lPZ2ZsWUY2OHdFM29zN3MycDExZUNfaXNIZklKM2pHT20yNFRDTTU?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
