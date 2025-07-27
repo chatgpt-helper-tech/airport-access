@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月28日 07:27:19（北京时间）**
+🕒 更新时间：**2025年07月28日 07:39:45（北京时间）**
 
 ---
 
@@ -15,8 +15,8 @@
 | Jeremy Bowen: Israel's aid measures a gesture to allies horrified by Gaza starvation | [阅读全文](https://www.bbc.com/news/articles/cz60x5v75p1o) |
 | Officers faced Southport killer 'shoulder to shoulder' | [阅读全文](https://www.bbc.com/news/articles/cjd2d9kpl4do) |
 | Google failed to warn 10 million of Turkey earthquake | [阅读全文](https://www.bbc.com/news/articles/c77v2kx304go) |
+| Imported dogs 'posing risk to UK', RSPCA warns | [阅读全文](https://www.bbc.com/news/articles/cpwq40vjw8lo) |
 | Royals lead praise for 'awesome' Lionesses after Euro win | [阅读全文](https://www.bbc.com/news/articles/c5y03dyyvx2o) |
-| Beyoncé reunites Destiny's Child at final Cowboy Carter show | [阅读全文](https://www.bbc.com/news/articles/c4gzegpmwexo) |
 | Churchgoers killed in DR Congo attack linked to Islamic State | [阅读全文](https://www.bbc.com/news/articles/c3ezjg34lw4o) |
 
 ## 📰 Google News
@@ -30,7 +30,7 @@
 | 3 Dead After Small Plane Crashes Off California Coast, Coast Guard Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBYX2NTNjRUMVhxbktVeDJHR0xIbGJOYnE5cmdndktzQ0FKNVNxQXJ3QjhCUUUyVUlabktVYjE1YWZCMEdZQy1adXR2bFU4eURPcWpMcW9GczZBRG5pZkREYnRtcXd0OWVfeWhzYlo0bVMwdEk?oc=5) |
 | Three people killed in train crash in Germany, police say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNckhLTHlGY3lLSGpNM25LTmd3a3R5RHpjc2lGZk5rSThmUWw4a3QzUkJ1d1FIeG1QMEhrRkZobE85MnlKT2ZQT2VidldtSG5nd0dDUnl3Mno1RmlKWHJ5V3U3Z0dYQm0yR0dVMTRMd1FfS3paSFhrR3lVcWNzazFMcldtcjdkUlJDdkt0RlUxall3NWljWU1V?oc=5) |
 | Scotland protests Trump – with wit, bite and bagpipes - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOS3kxSGltVXZmWjEtcHNtbU5wTjBpbkJFNk5hOFZjdXpqbjRyZ3ZTamtadWM4YlphakE0SU1icXZuLTJEb3BDOVphZWtOblU4WHZEYktVOFh4Z2d2aXRQanlaUlN0Y3oyZG9rTUdkWWhQd0owUTF4cG14a09RbEpQQl9KcUxyYWVBMUpveg?oc=5) |
-| A Boston Suburb Removed Italian Flag Colors From a Street. Residents Rebelled. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQU0VsZlNURi1CUklSTzJ3SU9mcUdZT1JjU2lmcU4zUFE1U2ZpN2tVQWNoanYxNmhwTHQ1bmtGOWlvbjZBV0RKci1uN0M1RGNvSXNSNzlmUWREb3Rpb0doVzVpWnZQZGMzT2VXNWVxX19GRUVQTXJ2RzN0UVdTMmxSM0JR?oc=5) |
+| Italian Flag Colors Were Removed From a Street. Residents Rebelled. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQU0VsZlNURi1CUklSTzJ3SU9mcUdZT1JjU2lmcU4zUFE1U2ZpN2tVQWNoanYxNmhwTHQ1bmtGOWlvbjZBV0RKci1uN0M1RGNvSXNSNzlmUWREb3Rpb0doVzVpWnZQZGMzT2VXNWVxX19GRUVQTXJ2RzN0UVdTMmxSM0JR?oc=5) |
 | Some Republicans aren't backing down from Epstein transparency push - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOVlVyQkNxZEFkS2t1YWpSNWY0VXV6amZuOVJVSElHVWpfeTVVTVB4OElKM1l0bC12dGdnSVplR0JxRy1pa3RqNjZFWHdRRjRVNTRFYkh6X3owV0E2dHNucUQ5V01GdzIteWJrdFp4RGFQVmNDZWY4YkVSSk1RQUJRRF9R?oc=5) |
 | Ohio State president says he feels 'no pressure' after White House complaints - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPdTVPckZtVHlqaV80NVhVZ2dTLVJsMjNRaDJnMVZRR0JkZElKRDVWNkR0Q1VBVVlhbVZwTFFUM2lmNDFZNUt1dnNfV0xKSHFlOGhyMDNNQnkySGk0b3hTM1pONlhPVDhsWjlvMnltRzJuTlJ1NUlJMHNRc21MYnZvWEFmMHd6cmx5ZER1QWVRdERCa0I3bWFGdENR?oc=5) |
 
