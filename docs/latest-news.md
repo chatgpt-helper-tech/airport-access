@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月28日 02:27:50（北京时间）**
+🕒 更新时间：**2025年07月28日 02:39:35（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Massie, Khanna hammer Republican leadership for thwarting Epstein transparency push - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPWFd6NU9ITzBTdEtzQlJONkowc21fT0FWM1ZxRm5UNWdRLW15UDRlemhiNWJRLTVNUm0zOHJmNXJ1Q3FGN0lfYl90UEJLRWhxSGk5ajBTb3JQOGM0bHdNV28yS0FGazJYYVlJT2otd296T1A3OVhiRk5TQUFRQXdxTEN0QlYtOHJiVXVaT3A4UjJ0cFk?oc=5) |
 | Colorado lawmaker says Gabbard has become ‘weapon of mass destruction’ for Trump - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPVlBISm1zN2JNLUlFMHhQQUZ4NHNiV01kQXAzOVNwS0dWVU5NTGJqY3g1NkVOS2pnQ2xBSkJrUzdzcmUwS0JMZnB4UU5tVC12aGtFczloM0I5YWxkUnMxNVFrRENNemswWnVWVHdOOVRJZVVfY0V0ZlJ2R09jblRVekhBSk5TMWtQVHNaUmV2eVpRSkk?oc=5) |
 | Mike Johnson pans discharge petition from Massie and Khanna - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPUERDSHNudWJXQVRxMUZlR09DWTcyNDNWTHQta25YbTFQRzZ2ZFFRbGd3ZlpNWUVPclcwVzdZWmtldlY1VUlEdlJZOXhOZ05FaWdGeGR5YTdQZXpwM1U5T2Z3Y0k4TVlZTmRzYXpEcjdlWi1iYnNNazFrTzB1bFBCRDU2N3VPQXd2dVlTUVRUdjZQTUhHV3BtMkV0SQ?oc=5) |
+| Researchers quietly planned a test to dim sunlight. They wanted to ‘avoid scaring’ the public. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQbV9CQ1JXMV9PRXI0X2hSbDc4amtlRTZXVVcyNG5lb3NnTHdJZnFLaTlDT3NtdGVjLUZXUGoxNzRQWUI5SVczUTdRNEIwOWFhOGlqSm1DWndVVmxYZm1HY09MR0hBTjBRd3R2Y09rVVVtZUdoOWhFR0pGTUs2RUFzOGMxT3Y3Ujd1SlE0TGxwOEN2Q19jNWphRnNKZURFdw?oc=5) |
 | CWG Live updates: Hot today with strong storms possible; more heat through midweek - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQQ0FKR0tyUVl0MXNFMlpxWTZ2c1k1VjhNOFpaM1BjZGxBRTlXRGVwY3ZBRXBTdUprUnVadW9UUzFnYW9ubG4tUjFjVXQ0U2JrNUlIS1Zma0ZWMFJtMmI4SEs0MTF1S054TVIyVXI5MGtRQVRxS2Q1U3FUSUxpNXRSZXV5bEVHbWFiazV0Z2hNb1g1TXJvZkhlQURiUQ?oc=5) |
-| Passengers flee smoking jet on emergency slide after apparent landing gear problem at Denver airport - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNNzI0bTR6dDJKZ1FpZ2VRMGo0Qk9KRjRqMUxKMHo5R1BBeDBTRG42QzNsaGRYQnVtRWVpcGxCNDlfUl82SEJNX0dtRmJGMHN1OVFnOGNKcFUwUktpbl9aR0pzTEx0NV96U3VwcWZwTTdFR0p0Wk9makx6SDdwZFhwVnd6dTZVM1NOc0VQOWhGMzMyRUVmZzl2TUkwTzhJTlZVRjFJQ2ZB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
