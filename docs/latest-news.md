@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月27日 19:40:24（北京时间）**
+🕒 更新时间：**2025年07月27日 19:52:09（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | 'We need a real solution': Gazans welcome aid plan but fear it will not end crisis | [阅读全文](https://www.bbc.com/news/articles/crlzr7ey8rpo) |
-| Greece battles wildfires, evacuating residents near Athens | [阅读全文](https://www.bbc.com/news/articles/cvgv313e381o) |
+| Wildfires continue to rage in Greece as extreme heat persists | [阅读全文](https://www.bbc.com/news/articles/cvgv313e381o) |
 | Thailand and Cambodia thank Trump for mediation, but shelling continues | [阅读全文](https://www.bbc.com/news/articles/cy854585r32o) |
 | Plans for pubs to get greater protection from noise complaints | [阅读全文](https://www.bbc.com/news/articles/cwye5jx8y3go) |
 | Astronomer's 'clever' PR move embracing CEO scandal - featuring Gwyneth Paltrow | [阅读全文](https://www.bbc.com/news/articles/crlzrjp2e2lo) |
@@ -29,9 +29,9 @@
 | As Trump plays golf in Scotland, protesters take to the streets and decry his visit - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxQTVllbWtTX2hqU1VhM0Q1R1RoYlozTGY2N2ZYaFVjaEE5REs3alBiaC0xWjNzT3g3RWxETnAyLWhEQmxjQUtJM1hoMlBKUzQ3eWFpOXRzZzY2Q2k3OW9hcV9wdm5TSFYzREVzVk80Y19SeERYTlFOSE5hWnltZlYzd3QxYjhGUkRmMlZiWlE0M0pXSjRkZnBmTzFkUm1pejB1MmZzUGVNM3hWY0xCTlVnM01DLXpFNEhEbzBBOdIBwgFBVV95cUxNNUliZDVMUk9vY1hPcEJvQklhUjhGNmZWM3FLNkl4VHhnUm40a3U4ejRyemRGczJxU1ZCeWJTaUFydzN4a1ZLT1g0dzJxemtmX0FwaEVXQ2htVWEwVXR0YnhuSzF4TExCdDNrT2ZUQUZ4a0JvWUR6dEdqZ3gtMl9nZnNpTy1PeVoyTVF6bDhEUzY0Nlp0S2xvdnFyblZNQ0pMc0tiamlxT21DSUhLc3k4VTlCTmNvVnNudjdtRFRqelpLdw?oc=5) |
 | From Epstein to Obama, Trump’s Washington Is Consumed by Competing Conspiracies - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNTVZzclJWMHg4RkNMMHVuc2xkY0pCd0tMSHBvd0xSMktkUDIySmFXNm1IVEw1TE9BNXlVem51SmlYT2VHcXh0bHQ3Z0d0X3hWc1piM1FlM2Z2a1lsSGZodlJyQUhUR1dhZWh4NU5yQkpIRDcwN3VJUllDNkpMN29XN3dhM2Y1SHN5TVA1dA?oc=5) |
 | Dangerous heat continues for over 80 million Americans - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQblFoNmdJb1lBVnZiUmctQzRNOWZYSWxEeFNXRGpfS2tDQUFqem1lTjY1ZEpyRTR2R1czbW5CTXJ3X0JSUEJYXzRnMHhReU4zdG1DajNEaHY0TVdISDFPTEhmM0Y3dXl5SElXZW5ZaWJlc2luSHNTdVh3Z2lNS2dlR2gwODZiOHVSYVhER25wSE1VMFho0gGaAUFVX3lxTE9mNTNveFFsQlFERXdSLThscGJJMUc1bUpkdTNBUWlnck5NSjlHYTh0SkQydWxYMVNFWVdXOGdPc1FhZnd0R3JLbF85X0RuODhpNDVROW81TlcycVYxYkljNmtBTFd3TzdCNEt0UFVtN3hUWFdhMG5JUnlKelk0SlJIaGt6OUtwd29iWUYzOFlJcWw2Sm12ZGpxN1E?oc=5) |
-| Landlord imprisoned for decades in hate-crime attack on Palestinian American family has died - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQSURzNlNFaXRhb2RXOXZOX05qcURRSkhOVGs0ZzVQZWNWSExCTjhHUUVlMFpqRjYyUlF4V3U0VHprVTBLSDZUelR5b0d4ZW5QTC1kLUZrNGpxQWs2VjJNQk9TblFhb1ozdnBNaXZ5aUhyYjJoajNEbzE5QkVGRENOdjRqR0xxMzRmQlpmMThoSlBDc0dSaE1idkItb2xJUkhRakRtVWV3?oc=5) |
 | Goncalves family issues statement after Moscow Murders investigation documents are released - KREM | [阅读全文](https://news.google.com/rss/articles/CBMijwJBVV95cUxNUlRfSGlqdWEzOEdRd2VnSXlSc2tiTFVBTnBRenNyN1kwNi1VQW5vQ2c5Q0R6eThCd3UzN1ZvT2VBNkxIengyOElDejdZa05tbVd4MXZTdXJjeXAtQzZQeVNhck9CUlpiNlEzY3FVbnY3NFdnSm5fNk1ST2xyVl9tQ1JkTXExVTJOdmVteDM0YmNlVVJmNFBPX0pqdUZZMUFTNW9NQ3dKYWJXbXNLM1ZCTTF3UWVGZnVkajNjOWtVZ1ZKTV91dGRrd3VJNEg5S2tFOFd3Y2kwTklMYTVJRUx3R1hmVW9FdHFjTHZ5UHo3d3VnNjhJbDdWajNFdGRWVHJHNllmX0VDMlNnYnk3cGow?oc=5) |
-| EU-US Trade Agreement Now Hinges Mostly on Trump’s Verdict - Bloomberg | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQRDRORWV1WDdIdzlpZ2hBdjdTSXJiVmw4cHl1dU1aWFZuRVpIWVdMN09DQmFCR3RpcEdSdTA0dFhQSWJKOU1iZG1IU3RZbTNUXy1DVVNNTjd5ckJlYjVaVVVMal9zdUhKc25IMzFRakFRWEM3T0M3OGtyU1dYbUk2QmhNY0JFbm5OOFlMME8tSUdOTS1HVGQwNHFhNF9ZZC1fUHlvX013U3dFR3MxZ1E?oc=5) |
+| Trump’s meeting with a key European official comes as his tariff deadline nears - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQOFhyY09NM211M1FUaFIzVGNYTjUtamw4RWk4alZHeGNoa2NaRl93OU1fU2JuREVVWmNCRDM0WGZrT2xJdDhfNzlVX0VBRHpxWWVhLU9YU1dmTHl4TVMxSThfN2N3OHh0VG0wSmMtdjBPaEVNLWhJY1RIY0kwdmJwaml5MGgyVWgza01LV2VPaWJPbDA?oc=5) |
+| Plainfield landlord convicted of killing 6-year-old Palestinian American boy dies in custody, sheriff says - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiZEFVX3lxTFBqSEVUWE4wWUJHUXdaRVVjMDhCbEJsNXNSMkxrcjZVR1Vhc0E1Zmc0VjhPQWU5RWI1OFJmR2RIUHQ2OUdUVVpOVnk0TlFncUpGdDhlbFRISXdBSHJlSFRaWG9Ub08?oc=5) |
 | Epstein associate Ghislaine Maxwell secures DOJ "limited" immunity: News reports - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOaUJ5Y242ZlBaZ1NBeUpTNHNLX2VIZzgzSUNTeHUxclZ3b2hFMVJZMEpGbTBsNzRrMWJkUDJDVE1VeWZlN1lGX1VFaTRlTmR0bmkzYzg1T2t3SUJzSW5TYnFObzA3REpUQm1Jc19fX1A5UFgxaVYyZURScGZfSDhNVw?oc=5) |
 
 ---
