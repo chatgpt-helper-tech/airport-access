@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月28日 06:26:32（北京时间）**
+🕒 更新时间：**2025年07月28日 06:40:12（北京时间）**
 
 ---
 
@@ -8,6 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Lionesses defy odds to create English football history | [阅读全文](https://www.bbc.com/sport/football/articles/c5yklp550yno) |
 | Three killed and others injured in German train derailment | [阅读全文](https://www.bbc.com/news/articles/cy9844egpx8o) |
 | EU and US agree trade deal, with 15% tariffs for European exports to America | [阅读全文](https://www.bbc.com/news/articles/cx2xylk3d07o) |
 | Malnutrition in Gaza at alarming levels, WHO warns as aid airdrops resume | [阅读全文](https://www.bbc.com/news/articles/ckgj270grkxo) |
@@ -16,7 +17,6 @@
 | Royals lead praise for 'awesome' Lionesses after Euro win | [阅读全文](https://www.bbc.com/news/articles/c5y03dyyvx2o) |
 | Beyoncé reunites Destiny's Child at final Cowboy Carter show | [阅读全文](https://www.bbc.com/news/articles/c4gzegpmwexo) |
 | Tories would ban strikes by NHS doctors, says Badenoch | [阅读全文](https://www.bbc.com/news/articles/c1kz3d9d9vzo) |
-| Astronomer's 'clever' PR move embracing CEO scandal - featuring Gwyneth Paltrow | [阅读全文](https://www.bbc.com/news/articles/crlzrjp2e2lo) |
 | Churchgoers killed in DR Congo attack linked to Islamic State | [阅读全文](https://www.bbc.com/news/articles/c3ezjg34lw4o) |
 
 ## 📰 Google News
@@ -26,10 +26,10 @@
 | EU and US agree trade deal, with 15% tariffs for European exports to America - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE9CV0FEeVpIX21HNGtFdDdjcldIR0ZSVGdrcXB5aXE1c2F2VWhudE5DNzRldWpxdjhNYXN6Q21pdGhoYnNGNFFIcm1jYUFZM0ZlbHNfbQ?oc=5) |
 | Suspect in Traverse City Walmart Stabbing Attack Faces Terrorism Charge - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPR2hQcTdVRk1UZFdQemp4bUhaR0dmcUZwRG9xblBjOTdMd0w0QkNPV1h0ZDFoXzFPNG1OM0dhdkg2RWF4UkQ5TXctMGlJc3M3SURRcVNGOU1TeHNfQ3NtWnBNbDlJVUlXNWZpZjlGaFpWWHgtRDF2aXRUVXlEWlBKZHA5OWZidlM1?oc=5) |
 | Israel announces humanitarian pause in Gaza after international pressure - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOUHdwMmo4WktqX1g2T1dFbXkyQUc0dzJVU1NwbDgtZWRYOE1JZ3lkbmNQaXc1ZmRtX0ZwZmRud0tzdGdCNWpfd09MN3hMdWZXQV9mTXpDcUtXY0VBeGN6enBWZjFIVHF1ZTVUVUo0S2tuYU10QUtLYnB2X0NsbmRTNG5YUQ?oc=5) |
-| Mike Johnson would have ‘great pause’ about a Ghislaine Maxwell pardon - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOeVRyTHJoTExhdTV5Rlk4M1c2Nm02ekRPdkFXLXdfZGVKUGFPX1YwSlRrUnlZSmNpVFNEYmZLTE92RzRESnlacG13WVBCUmdkUE5HbEtZOWl6MTE5Z01mTnVKSHo5ZW05WTlSdmFpZEl6Wm03M0cxUkJrNERMM09mcEpScy16ODV3?oc=5) |
-| Gazans are dying of hunger. Here’s what happens to a starving human body. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOQW04cGMxZDRoZWppdUZQemttRzRfd1VMT0VmVXg0RExfTTJFVkhhc1d3RXZyczlQWFdEQ1FqcHh3SE1PRDd0em54Q01uZXJBRW0zaTBBSHpocUszMXlCZFdFRUxoWFJNbTBNa0FlT3l6ekxtb2E4Y2pHNUdmRVdDeklOY21nR2Nta3FSMDl6dWpoS2JQQUE?oc=5) |
 | 3 Dead After Small Plane Crashes Off California Coast, Coast Guard Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBYX2NTNjRUMVhxbktVeDJHR0xIbGJOYnE5cmdndktzQ0FKNVNxQXJ3QjhCUUUyVUlabktVYjE1YWZCMEdZQy1adXR2bFU4eURPcWpMcW9GczZBRG5pZkREYnRtcXd0OWVfeWhzYlo0bVMwdEk?oc=5) |
-| 2 people found dead along Arkansas hiking trail in a suspected homicide, officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxORTJ3WDFFS1hScms1cFAxeW1wSXJnR0FpRXd5NC1nU3EyUTY4Nm5xODJrOEpFM0pFdDNZdktvcGx1WExPc3FCRUlvY0lQTnFUbno0b2FCb21xNExUVlRzMXVVLW1IbmU5MmxSSDAzYWE1Z09pNHJHaTZqQVhIcktrNHVhazNQN0JCdDQ5bjFSSkhiZjJRQnpZ0gGcAUFVX3lxTE5KOHIwcjJKZ1VQRkNxT3FhcUI5bS1CN0tGaG0wd21id1AxV1EwWmVoMXBBZkw4d1VyZjVxQ2FsVGhIVG93MEQwc0pxZ1Uwc0tPcG1QSmE0eGhvQzZWdHpZeTFXWXB2V1BEbHZGNmk0anREd19rNUJyNkVHVE4wZ3dUcThCNEpZWVNEQ3V1NEFoVU8zVWJLTjhza1R1ZA?oc=5) |
+| Thai and Cambodian leaders to meet in Malaysia for talks to end deadly border dispute - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxObXhpMFpxTXFxOEpNRlZNZnIyTVBpdVlhSHh5cXkzZ3pvZzVtcmxBZU5FcHV6bjE1elc0aEo1b0JVZHRfMTF2QWRJYnRQQlE3YUpMSlJ4TzBTVy12amk2eDFoWXlEd2ZDSVNCNXQ0WkNDM0hlVC1QZkVnZ3FwS3kyZllxUkIteFFHaG1iWkdtdnZfdkZDY3ZfQVh1UUo?oc=5) |
+| Mike Johnson would have ‘great pause’ about a Ghislaine Maxwell pardon - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOeVRyTHJoTExhdTV5Rlk4M1c2Nm02ekRPdkFXLXdfZGVKUGFPX1YwSlRrUnlZSmNpVFNEYmZLTE92RzRESnlacG13WVBCUmdkUE5HbEtZOWl6MTE5Z01mTnVKSHo5ZW05WTlSdmFpZEl6Wm03M0cxUkJrNERMM09mcEpScy16ODV3?oc=5) |
+| Mystery deepens after bodies found on Devil's Den State Park trail ｜ What to know about the park - 5newsonline.com | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxOWUI3SUhXVVdIRF96ZTFrU191T2N5RG5qU3R5QUgyYlJ6c1FPd2l6aHp3bU4xcFB6bmEtR2tqYjRoUHJwMm1LUEg0TE5waHoxS2FUcHhHX1ZBb2h0VlZndnBUTzRwZVhONWdlVUhMd241S216LUc2dEJJUFBUVjYyb0hVWDFHNno3RjlTbXdENEJ5elZqdGRkclhJZjVVdDNqMWg4djZDYWZtTDA2bmtGeHVaZzlhSG1qT2RfQlBDVzZRWnB0WlE?oc=5) |
 | A Boston Suburb Removed Italian Flag Colors From a Street. Residents Rebelled. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQU0VsZlNURi1CUklSTzJ3SU9mcUdZT1JjU2lmcU4zUFE1U2ZpN2tVQWNoanYxNmhwTHQ1bmtGOWlvbjZBV0RKci1uN0M1RGNvSXNSNzlmUWREb3Rpb0doVzVpWnZQZGMzT2VXNWVxX19GRUVQTXJ2RzN0UVdTMmxSM0JR?oc=5) |
 | Trump’s Scotland trip latest example of blending private business with presidential duties - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1yRVdsUjU3aENEa3NfQnlPdnZoX3R5ZEVGOUdNSEc5UWg4NGMwQVJZdVB1UDhiZjdCX0tfVnhUckZFLU5uLVZJdjBQNVdQWUFxektsTDNLZ01lZUpYRDM1X2JnaG1VMktFcXNpMEhIelZ2TUJFR21oRXpB0gF_QVVfeXFMTnpIU3JqTzFVbWdmU2k5aWVLR1IxaWw0Z1kwdUoyR2FFNTdJX1czN205d1llWVhwcGM1UjNiVjNRRnZFMklHcGtBLXlCTUFVdWNJNjdqdEJ1Ti1lR1BUamFsOVVNMVpBaDY5dDkyWHRLNzJBZG5qdEFWYWhQXzl3SQ?oc=5) |
 | Passengers flee smoking jet on emergency slide after apparent landing gear problem at Denver airport - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNNzI0bTR6dDJKZ1FpZ2VRMGo0Qk9KRjRqMUxKMHo5R1BBeDBTRG42QzNsaGRYQnVtRWVpcGxCNDlfUl82SEJNX0dtRmJGMHN1OVFnOGNKcFUwUktpbl9aR0pzTEx0NV96U3VwcWZwTTdFR0p0Wk9makx6SDdwZFhwVnd6dTZVM1NOc0VQOWhGMzMyRUVmZzl2TUkwTzhJTlZVRjFJQ2ZB?oc=5) |
