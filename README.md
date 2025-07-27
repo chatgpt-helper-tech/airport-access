@@ -20,7 +20,7 @@
 👉 [https://gptvpnhelper.com/airport-access/](https://gptvpnhelper.com/airport-access/)
 
 ⭐⭐ **觉得内容有用？欢迎 Star 收藏 + 分享给身边人，让更多人安全、稳定、自由地连接全球网络。**
-📅 最近更新：2025年7月24日 ｜ 来源：[ChatGPT 中文导航站](https://gptvpnhelper.com)
+📅 最近更新：2025年7月27日 ｜ 来源：[ChatGPT 中文导航站](https://gptvpnhelper.com)
 
 
 ---
@@ -144,12 +144,15 @@
 
 ### 高端旗舰
 
-1.[WgetCloud机场 顶级机场/新用户85折](https://invite.wgetcloud.ltd/auth/register?code=xEgJKS):推荐理由: 极致稳定性,虽然比其他机场贵,但是钱都是花在了刀刃上,不糟心,用户评价很高
+1.[WgetCloud机场 顶级机场/新用户85折](https://invite.wgetcloud.ltd/auth/register?code=xEgJKS):推荐理由: 网站自建面板，速度、稳定性、安全、解锁能力都做到了顶级,可以观看包括 Netflix、Hulu、HBO、TVB、Happyon、AbemaTV 等在内的多种流媒体视频，聆听包括 Spotify、Pandora 等在内的流媒体音乐。虽然比其他机场贵,但是钱都是花在了刀刃上,不糟心,用户评价很高
 >  👉 [WgetCloud 机场详细测评,如需了解更多测速、解锁、套餐信息、使用教程请前往](https://gptvpnhelper.com/airport-access/wgetcloud/)
 
 ### 中端主力,适合大多数场景
 
-1. [小蜜蜂机场 IEPL专线 618活动/7折优惠](https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A):推荐理由: 全IEPL节点专线机场，晚高峰看了几天Netflix 4k,不卡顿,不模糊,不限设备数，海外团队,特色年付小包低至8元每月,解锁能力极强,提供美区id下载小火箭Shadowrocket(苹果用户福音),特点是稳稳稳, 618活动7折优惠,**七折专属优惠码：xmfxmf7**
+1. [小蜜蜂机场 IEPL专线 618活动/7折优惠](https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A):推荐理由: IEPL全专线节点，所有套餐不限速无倍率，所有套餐只有流量区别，
+   原生IP解锁流媒体，包括Netflix、Disney+、HBO、HUGO等等，
+   解锁Tiktok，解锁ChatGPT、Copilot、Gemini等工具，
+   晚高峰不限速、不限制客户端，提供美区id下载小火箭Shadowrocket（苹果用户福音）,年付小包低至8元每月，最大特点是稳稳稳, 618活动7折优惠,**七折专属优惠码：xmfxmf7**
 >  👉 [小蜜蜂机场详细测评,如需了解更多测速、解锁、套餐信息、使用教程请前往](https://gptvpnhelper.com/airport-access/xmf/)
 
 ---
@@ -159,7 +162,7 @@
 
 ---
 3. [银河云机场 Trojan协议 IPLC专线](https://inv03.galaxyaff.cc/register?aff=tcOd0ob7):推荐理由:trojan 协议 IEPL 专线机场，新加坡海外团队大机房产品，性价比专线，支持退款,有不限时流量套餐(限流量),24h在线客服，专业且靠谱稳定，任何线路问题都是1h内修复处理。全天候任何时期都稳定不掉线 ,测试油管4k高峰期无压力，下载视频可以跑满带宽,超优质的流媒体和 ChatGPT 解锁能力。**- 月付 / 季付 / 半年付：使用 `gptvpnhelper85` 享 85 折优惠
- 年付及以上：使用 `gptvpnhelper80` 享 8 折优惠**
+ 年付及以上：使用 `gptvpnhelper80` 享 8 折优惠**，特别提供爆款98元年付小包（这个套餐不能使用优惠码）
 >  👉 [Galaxy 银河云 机场详细测评,如需了解更多测速、解锁、套餐信息、使用教程请前往](https://gptvpnhelper.com/airport-access/yinheyun/)
 
 
