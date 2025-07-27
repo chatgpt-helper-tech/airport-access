@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月27日 14:26:08（北京时间）**
+🕒 更新时间：**2025年07月27日 14:39:55（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | 6 people in critical condition after 11 stabbed at Michigan Walmart in 'brutal act' - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOeFVPbUc3cnpuUlpGXzJFVHpZV0Z3Yl9GQUNRbUhxLVpwdjZvZFpIZ1Q5ajZDNTh4Znp2dnp4YkVFV1pNVkFac2M4NXN2UDB5M0ZwdTNQdUZYN0RwTll6SExWQlY0WGVUVDhFMkFCcTFRZlYwWDNyREprLWg2cUhub2MyVTMwbWZyYmdHSXpDUTE2TllDd1Fmc1phQWc5eURGdF9vVzhyY0JyZGfSAbABQVVfeXFMTmpnRC04a1Z1UkhKeDRXcWR0Z185QXRtdVV2bW5jR3A2cW8zanNjRDVnRzhZTU9KRFlNTzN0VngyenZURnlEWm5sYVpTMzlqVnVmX1FpWXBMMUxOWS1pWXhrUWJIdkNLWDcwN3JuM3NNUUFMOXp4NGdnT1hLQUJTVnozQWt3TG1iS3VHbTZKRXJUMVJfUlE2c2FDMDZQVHh5akNXcmZScGZUVks4Si10QUk?oc=5) |
 | Israel resumes airdrop aid to Gaza, military says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNTnlMT1lnb0x1TXEtdlVRenUtMzd1V0lqVERMZEM2ZHVHenpWajlHVF9iSmRwV0w4dFhPNVlFTlIxZ2xKem0yU1FicnJWZ3YwZXVJZ3paaldNdjZWMUpvOXZtWkpMVEYzdWF4OFI4Z2lLYW5HLXMtcGhnUk56NU9XOENnNVJLdUt0N1NNVnQzQkZuVmxSNURUZDNIZE56TERh?oc=5) |
+| Thailand and Cambodia thank Trump for mediation, but shelling continues - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE4yVmdhSk5oNEctNFdqTFoxRXktN09idl9FRmQ1QVNJdEoyVEEwbzAxWGpZby1WWjN0M3M1QkpyRWkyUWQtYkVjaXk4UWp5NUo2cl8waGJMTmZxZ9IBX0FVX3lxTFAwWFpSQjAzOS1ybzg4YnhXaTFENzl4aHplR0VBaE5GY1FGYWREZlliVmRKZ21xVDR0YWRUUGZaR3lvOG15WFZWeENyaXdGSG5DTC1wV1FTV2FWWkloSDJB?oc=5) |
 | 'Scotland is already great.' Protesters troll Trump on his golfing trip - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNakhWYWR1YXI4a3NCUklYbUZvNU4xVEgzLTFkbEJsUF80clB3NjNNWDhCbWp1OGNYV1ZEampNVS1USlkzTzZMMzQ3YU9jdU9pWkdTb2h0dlI4V0IxU1k4Yk9VTFlJZjlyMXFUSWRwLVBVdHBpd0pCNXQ0RWpvWkNQNGh5TQ?oc=5) |
-| Trump calls on Thailand and Cambodia to cease fire and talk trade - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE4yVmdhSk5oNEctNFdqTFoxRXktN09idl9FRmQ1QVNJdEoyVEEwbzAxWGpZby1WWjN0M3M1QkpyRWkyUWQtYkVjaXk4UWp5NUo2cl8waGJMTmZxZ9IBX0FVX3lxTFAwWFpSQjAzOS1ybzg4YnhXaTFENzl4aHplR0VBaE5GY1FGYWREZlliVmRKZ21xVDR0YWRUUGZaR3lvOG15WFZWeENyaXdGSG5DTC1wV1FTV2FWWkloSDJB?oc=5) |
 | Ghislaine Maxwell's meetings with Justice Department shrouded in secrecy - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNQ3c4ZXB6WGpybW1BcnZlc2l5QjBYUVNYcFoxdk1ZUUpiQTFuWkxBWXVFbnBRRXkwSDduVG5IaE1xY3VuNXBBNTlnWWZ1MXd2ZHhlMDFUdnljR2NtOTZSSVhYeFhJVV82SWdSYU8zUkNhVElRMUR6VF9fUFNYUFpKRllzNUg3dnc3c2tBZnZHYVdEN0VUYUMyOEdBNThVajU4bF9veTVoekkyUW5a0gFWQVVfeXFMTlRwQ05BNGNQZlgwdXBQNENtQ0pJN2d4M3RNWXRxVnFJYy14b0gtb3VocGZqcllhTjROcnd0blcxRU5IenhScHpyR0g1QlVUa1NaNlpFSEE?oc=5) |
 | Taiwan Recall Campaign Fizzles, in a Setback to Its President - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9vbVNIbVRQQUdNT3ZKNTZxdUNYTGZEdzIzVm5IRFktc2lzQmZhenFBbWRFSWtyUU1VN1RCNHZVZW9Jc1dRSVNhazNIYWU3ZmpjOW5VLWdqZ1VVdXFCLUNKUVFkNFIyVkhQUjg5aE9OUXRYdkRFb3drUzQ3QQ?oc=5) |
 | Goncalves family issues statement after Moscow Murders investigation documents are released - KREM | [阅读全文](https://news.google.com/rss/articles/CBMijwJBVV95cUxNUlRfSGlqdWEzOEdRd2VnSXlSc2tiTFVBTnBRenNyN1kwNi1VQW5vQ2c5Q0R6eThCd3UzN1ZvT2VBNkxIengyOElDejdZa05tbVd4MXZTdXJjeXAtQzZQeVNhck9CUlpiNlEzY3FVbnY3NFdnSm5fNk1ST2xyVl9tQ1JkTXExVTJOdmVteDM0YmNlVVJmNFBPX0pqdUZZMUFTNW9NQ3dKYWJXbXNLM1ZCTTF3UWVGZnVkajNjOWtVZ1ZKTV91dGRrd3VJNEg5S2tFOFd3Y2kwTklMYTVJRUx3R1hmVW9FdHFjTHZ5UHo3d3VnNjhJbDdWajNFdGRWVHJHNllmX0VDMlNnYnk3cGow?oc=5) |
