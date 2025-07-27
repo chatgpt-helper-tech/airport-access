@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月27日 13:52:47（北京时间）**
+🕒 更新时间：**2025年07月27日 14:00:16（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Trump calls on Thailand and Cambodia to cease fire and talk trade - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE4yVmdhSk5oNEctNFdqTFoxRXktN09idl9FRmQ1QVNJdEoyVEEwbzAxWGpZby1WWjN0M3M1QkpyRWkyUWQtYkVjaXk4UWp5NUo2cl8waGJMTmZxZ9IBX0FVX3lxTFAwWFpSQjAzOS1ybzg4YnhXaTFENzl4aHplR0VBaE5GY1FGYWREZlliVmRKZ21xVDR0YWRUUGZaR3lvOG15WFZWeENyaXdGSG5DTC1wV1FTV2FWWkloSDJB?oc=5) |
 | 'Scotland is already great.' Protesters troll Trump on his golfing trip - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNakhWYWR1YXI4a3NCUklYbUZvNU4xVEgzLTFkbEJsUF80clB3NjNNWDhCbWp1OGNYV1ZEampNVS1USlkzTzZMMzQ3YU9jdU9pWkdTb2h0dlI4V0IxU1k4Yk9VTFlJZjlyMXFUSWRwLVBVdHBpd0pCNXQ0RWpvWkNQNGh5TQ?oc=5) |
 | Ghislaine Maxwell's meetings with Justice Department shrouded in secrecy - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNQ3c4ZXB6WGpybW1BcnZlc2l5QjBYUVNYcFoxdk1ZUUpiQTFuWkxBWXVFbnBRRXkwSDduVG5IaE1xY3VuNXBBNTlnWWZ1MXd2ZHhlMDFUdnljR2NtOTZSSVhYeFhJVV82SWdSYU8zUkNhVElRMUR6VF9fUFNYUFpKRllzNUg3dnc3c2tBZnZHYVdEN0VUYUMyOEdBNThVajU4bF9veTVoekkyUW5a0gFWQVVfeXFMTlRwQ05BNGNQZlgwdXBQNENtQ0pJN2d4M3RNWXRxVnFJYy14b0gtb3VocGZqcllhTjROcnd0blcxRU5IenhScHpyR0g1QlVUa1NaNlpFSEE?oc=5) |
-| No Proof Hamas Routinely Stole U.N. Aid, Israeli Military Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQc0g4bFZERzBtZEF6Wnprc3NjVE1RUHhEX0xjN3RaSVZvM1NxRllmQ29hQTdqNlFmSUtFSWJYZFlYV3VuSmRBVDJNR2JtQndvdmp6QnVIRVZGWUYxdlRWNUZ6Uk00WXBsMHk4N1RFUDR4eWhSZ2Y0RjFIMGMzZHZ5Sw?oc=5) |
+| Taiwan Recall Campaign Fizzles, in a Setback to Its President - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9vbVNIbVRQQUdNT3ZKNTZxdUNYTGZEdzIzVm5IRFktc2lzQmZhenFBbWRFSWtyUU1VN1RCNHZVZW9Jc1dRSVNhazNIYWU3ZmpjOW5VLWdqZ1VVdXFCLUNKUVFkNFIyVkhQUjg5aE9OUXRYdkRFb3drUzQ3QQ?oc=5) |
+| Goncalves family issues statement after Moscow Murders investigation documents are released - KREM | [阅读全文](https://news.google.com/rss/articles/CBMijwJBVV95cUxNUlRfSGlqdWEzOEdRd2VnSXlSc2tiTFVBTnBRenNyN1kwNi1VQW5vQ2c5Q0R6eThCd3UzN1ZvT2VBNkxIengyOElDejdZa05tbVd4MXZTdXJjeXAtQzZQeVNhck9CUlpiNlEzY3FVbnY3NFdnSm5fNk1ST2xyVl9tQ1JkTXExVTJOdmVteDM0YmNlVVJmNFBPX0pqdUZZMUFTNW9NQ3dKYWJXbXNLM1ZCTTF3UWVGZnVkajNjOWtVZ1ZKTV91dGRrd3VJNEg5S2tFOFd3Y2kwTklMYTVJRUx3R1hmVW9FdHFjTHZ5UHo3d3VnNjhJbDdWajNFdGRWVHJHNllmX0VDMlNnYnk3cGow?oc=5) |
 | US man convicted in Palestinian-American boy hate crime murder dies in jail - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOQ0l6Q0dGUVdRTjZnY0VRNGpKaVdRRThoQm1vV2pQc1pLaDJGendQbUNYM0JuWWZIc18yNU9EbnI0aERaTVJnRWFTUG94U1hELUZibFFRNFg0WTFkX0FYZjFyaUYxSnFFZFNiWGE1VTBjT3A5QjVwbmpYanFxZE44aC16QzJ1bFAyRmJkM2hjaFA5V0E4NjlrWHdVbEloWXN0Und6SV9qd2VGSTdYYkJ6aWI5STZmLW_SAbwBQVVfeXFMUGl0a1l4V1VkYUxhSXMyVnRuNnlZZTNJZ1FXU0VOQzdFU19hLUdBOFpKTk5fM0R0UG03b0tKSzlfYXBQRkIyQ2ljNXUzWmNLTGkydEwxcmZPdFNVOUFKTEhDcTQ3YmlZdFNDWG5YNXNod3ZqYXJsN201QkhjaDBDeTlXbVZudWJMcG5zc3FOS3lGcWw1ZUVPbzkySEJMSUJ6eXBWQWZnaGtVV0JSajVDdjVzOWdHZEpzbjZieXA?oc=5) |
 | Dangerous heat continues for over 80 million Americans - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQblFoNmdJb1lBVnZiUmctQzRNOWZYSWxEeFNXRGpfS2tDQUFqem1lTjY1ZEpyRTR2R1czbW5CTXJ3X0JSUEJYXzRnMHhReU4zdG1DajNEaHY0TVdISDFPTEhmM0Y3dXl5SElXZW5ZaWJlc2luSHNTdVh3Z2lNS2dlR2gwODZiOHVSYVhER25wSE1VMFho0gGaAUFVX3lxTE9mNTNveFFsQlFERXdSLThscGJJMUc1bUpkdTNBUWlnck5NSjlHYTh0SkQydWxYMVNFWVdXOGdPc1FhZnd0R3JLbF85X0RuODhpNDVROW81TlcycVYxYkljNmtBTFd3TzdCNEt0UFVtN3hUWFdhMG5JUnlKelk0SlJIaGt6OUtwd29iWUYzOFlJcWw2Sm12ZGpxN1E?oc=5) |
 | Texas House redistricting committee’s Houston hearing draws criticism over absence of maps - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9YT2dXcGhqM0FTSjlXNWh3MXpmRXVuOHliRlZIOGQta2l3U3BOSE9uN21oZDZ6ZEZFN1RINHIyZ2t3VjY4NkhfNnpodF9PZnJLTjNzR1dreFNBSGJwM0hObGZTVUFpaDc3MkdHX1NsVlJEYUphZS1XeWdIcGx1UQ?oc=5) |
-| EU and US locked in talks ahead of key Trump meeting with von der Leyen - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE01MXFHQTNZSExMV21qMVhhaF9lWUtVaFU2U1hLOXlmcWp4blhPbmU4akNRNHUtaTlmS3g0RXJsUkRpb3oxeVVGY1lPZ2ZsWUY2OHdFM29zN3MycDExZUNfaXNIZklKM2pHT20yNFRDTTU?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
