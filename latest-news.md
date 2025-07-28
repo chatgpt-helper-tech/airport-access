@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月28日 12:01:57（北京时间）**
+🕒 更新时间：**2025年07月28日 12:14:17（北京时间）**
 
 ---
 
@@ -16,14 +16,14 @@
 | The rise of Japan's far right was supercharged by Trump - and tourists | [阅读全文](https://www.bbc.com/news/articles/cx2k29233jeo) |
 | Officers faced Southport killer 'shoulder to shoulder' | [阅读全文](https://www.bbc.com/news/articles/cjd2d9kpl4do) |
 | Three killed and others injured in German train derailment | [阅读全文](https://www.bbc.com/news/articles/cy9844egpx8o) |
-| Royals lead praise for 'awesome' Lionesses after Euro win | [阅读全文](https://www.bbc.com/news/articles/c5y03dyyvx2o) |
 | Nurses to 'overwhelmingly' reject pay deal as strike vote looms | [阅读全文](https://www.bbc.com/news/articles/c4ge4905eq7o) |
+| Taser trial for prison officers to tackle violence | [阅读全文](https://www.bbc.com/news/articles/ckgjpd1vnzxo) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| For Trump, E.U. Trade Deal was Badly Needed - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNRzBaWmhCc2E1WFkwbURlZDJ5UE5UV1VkOC02cTVkN3ZRZFlMZ2JuZGJ1WENiWlNFYkYydjhVajdUOUU1STJRU3lTWHRlOU1SYVVoZFlTUmt4bEdrOWoxNHZMME9UaGRQRUhJQUxON0JqZEpQaXIyOHpsLS1PY1R5Yg?oc=5) |
+| Stock futures rise as U.S.-EU trade deal kicks off a hectic week for markets: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5ZR29NVGFNYS1oTmpva09ra2RWMF8yYWJfSElhUmVZYk5WTWtSUWlkcUJFT0V5aHNFQ2UxWXRMV19pOFhmMFUzcVVOMkp4VkR3SjlCa0IxQ0RkUVRkOVM0VVk5aEIwcXQxTDgtZnllUGYxT2c0TTVB0gF8QVVfeXFMT2F1d2ZtR0ltZC05bWFTR01URDBkUjlTdXRQcEcxNHRycDctLTE5ZVY0VHJFeGduTGUtTnhBdUhtbTlZSmk1cnFuRmZmSExfRDFCeExtVHJLTy1JcGMtRzRTeHZzN3FETkQ4TzJYQW9YNWV3d3d6ZlI0bXphbg?oc=5) |
 | Couple slain while hiking with daughters in Arkansas state park, police say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNYW5VTXVDOW1vX2lnMklGMU1iME1RajVVU2FVaU91X2pkRUN4T0thSHEyU3lCMDk1TUlwSFZVNE9uQkNDNzdDd0RFZTZFTVhNYjUwb2RZWThwTlVLMmtOV3hsVDJ3V0dIWi1ieTY2SURmaVdqd3pMajkwQlk4Z1JORVJRa1BGdHJqS0RiRnYwSjFPNm9Cbk1KV1BJbzlONkJyTkdQNVY1Z2wyVTB10gFWQVVfeXFMTk5ISnZGaGN0N2pOLWJYR3k3LXotYWc1WVVFUDBYcnhIa05RY2lCblVObHZNQlJPeU5zRlZ1TUh3MjdXdUFFdFRFR0RHWU9oMm1sc1FOUUE?oc=5) |
 | Israel pauses attacks in some of Gaza to allow limited aid, as global criticism grows - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQN3Y3ZlZHX0ZZaVhHSTBPakQ1M1FaME9SWGt6WExHREhsYkduR2JnRG5vaEFZdVptRjNXWmhRN2Rsc0ExX1lPSUx5eHY0TzlNd2ViTzczV19jdG5XeWFyN21jQmJtWVk0c1JMQWtJTXNvX1lYV2tzRTZ0Rm5MZy0wVEdlVGk?oc=5) |
 | Prosecutor to seek terrorism charge against Traverse City Walmart mass stabbing suspect - The Detroit News | [阅读全文](https://news.google.com/rss/articles/CBMi7AFBVV95cUxQVl9LeV9JQjkxMzZlNTVZM0Y2d1NaZ2lVSFc4SXhBY1NLb2JHbDNxY2t1S3NNLVdVSlhEMlBaYlBJWHotQXFidURqWWpDZVFCQmU3M2tpbWFRSDVCZzAxRHI4LWcya1BDUWNEZUIwZTZCb1FhcXVRUVpCZllzMUxmODNqcWtqLXVheDZpZnZpTnVCclpfVVl0VWVoRGtYSTc4RWFTeEk0SE1ZRnhsaWR2Z2k3dzQ3bDBuNTFWVEo0V3N0TXRfQ2xRS2JuZmZ5RWozbG5TRzhVSUd4MERwSnRsQVAzLW9tcU5QR3oyeQ?oc=5) |

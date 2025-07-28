@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月28日 12:01:58（北京时间）**
+🕒 更新时间：**2025年07月28日 12:14:17（北京时间）**
 
 ---
 
@@ -16,17 +16,17 @@
 | The rise of Japan's far right was supercharged by Trump - and tourists | [阅读全文](https://www.bbc.com/news/articles/cx2k29233jeo) |
 | Officers faced Southport killer 'shoulder to shoulder' | [阅读全文](https://www.bbc.com/news/articles/cjd2d9kpl4do) |
 | Three killed and others injured in German train derailment | [阅读全文](https://www.bbc.com/news/articles/cy9844egpx8o) |
-| Royals lead praise for 'awesome' Lionesses after Euro win | [阅读全文](https://www.bbc.com/news/articles/c5y03dyyvx2o) |
 | Nurses to 'overwhelmingly' reject pay deal as strike vote looms | [阅读全文](https://www.bbc.com/news/articles/c4ge4905eq7o) |
+| Taser trial for prison officers to tackle violence | [阅读全文](https://www.bbc.com/news/articles/ckgjpd1vnzxo) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Stock Futures Rise as Trump, EU Reach Tariff Deal: Markets Wrap - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOeG9WTEY3c214QjFXTVZuMV9lbmZlVGM2aTZPLUY3dzhld21YWkd5bnR2cXZMcDRFN1NGclJGWUllbVB3eEgyeDlqTkkwbGdLQXFxSUc4WHhhY3lVVm1kY1djZ2V3QlRISVgwNGZ3dnNQbEJhNnhpMDFEZDd0VkdLSkEwSnk2NHg3dTNYbU0zVmxUTGxZcTVKUXZxcGlaUDRwUTVjcE1uYmtpNDA0bGtqRHp2WjA?oc=5) |
+| Stock futures rise as U.S.-EU trade deal kicks off a hectic week for markets: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5ZR29NVGFNYS1oTmpva09ra2RWMF8yYWJfSElhUmVZYk5WTWtSUWlkcUJFT0V5aHNFQ2UxWXRMV19pOFhmMFUzcVVOMkp4VkR3SjlCa0IxQ0RkUVRkOVM0VVk5aEIwcXQxTDgtZnllUGYxT2c0TTVB0gF8QVVfeXFMT2F1d2ZtR0ltZC05bWFTR01URDBkUjlTdXRQcEcxNHRycDctLTE5ZVY0VHJFeGduTGUtTnhBdUhtbTlZSmk1cnFuRmZmSExfRDFCeExtVHJLTy1JcGMtRzRTeHZzN3FETkQ4TzJYQW9YNWV3d3d6ZlI0bXphbg?oc=5) |
 | Couple slain while hiking with daughters in Arkansas state park, police say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNYW5VTXVDOW1vX2lnMklGMU1iME1RajVVU2FVaU91X2pkRUN4T0thSHEyU3lCMDk1TUlwSFZVNE9uQkNDNzdDd0RFZTZFTVhNYjUwb2RZWThwTlVLMmtOV3hsVDJ3V0dIWi1ieTY2SURmaVdqd3pMajkwQlk4Z1JORVJRa1BGdHJqS0RiRnYwSjFPNm9Cbk1KV1BJbzlONkJyTkdQNVY1Z2wyVTB10gFWQVVfeXFMTk5ISnZGaGN0N2pOLWJYR3k3LXotYWc1WVVFUDBYcnhIa05RY2lCblVObHZNQlJPeU5zRlZ1TUh3MjdXdUFFdFRFR0RHWU9oMm1sc1FOUUE?oc=5) |
 | Israel pauses attacks in some of Gaza to allow limited aid, as global criticism grows - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQN3Y3ZlZHX0ZZaVhHSTBPakQ1M1FaME9SWGt6WExHREhsYkduR2JnRG5vaEFZdVptRjNXWmhRN2Rsc0ExX1lPSUx5eHY0TzlNd2ViTzczV19jdG5XeWFyN21jQmJtWVk0c1JMQWtJTXNvX1lYV2tzRTZ0Rm5MZy0wVEdlVGk?oc=5) |
-| See timeline of Traverse City Walmart stabbing attack, suspect to be charged with terrorism - MLive.com | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxNYW80eXBKeFdaZWdkaF9tNzBrTVVqR1hPWVc5SW85UUQzTF85T0I3Wi1iOG9WR3RiQWFOU3UwUkE5eUN2M1I4YzJtQW1VSm1PbWEzU25KQkpSb3AyaG5KNDU3Um5Mby1iSUNuajFjSlZjM0dZSGV6YzJ6SXRsaDcxZ2VPSFVNZzd5VUl4Tno4UXBwOEpoYktZVmN6WGJuNld4T182aV82N2RuSU1qd3JhWkM1NzFQU0x6aEF1M2dXRUtnT3RHNmxHdmVB0gHeAUFVX3lxTFA1QWd0d1Nvall2TDN1Y2ZwMmlwYlFsWHp0Ry1YNHZIRDROUVZsM08xUzcwdGxDdDJYZjRWalNtalJzZXBDYXBZSG5JMV8tc3RpRkJWc2NlcjBJaWJRX2FxUzlkSkR0dHRBV3ZXSXp0ZndJV0hob1NBU0JPWEZ2TkpsVXhGYjVBME1FY1dPRXRkWm0yRlYtYXpBVXAxTzdNR3Y4M1k5N0JqM2RRVGpvX0FMa21SSERSLTdwM2FqTkVTWjZPWU9leGFZXzNkRzRQOXZ0RERpT2tManNzeWZ6QQ?oc=5) |
+| Prosecutor to seek terrorism charge against Traverse City Walmart mass stabbing suspect - The Detroit News | [阅读全文](https://news.google.com/rss/articles/CBMi7AFBVV95cUxQVl9LeV9JQjkxMzZlNTVZM0Y2d1NaZ2lVSFc4SXhBY1NLb2JHbDNxY2t1S3NNLVdVSlhEMlBaYlBJWHotQXFidURqWWpDZVFCQmU3M2tpbWFRSDVCZzAxRHI4LWcya1BDUWNEZUIwZTZCb1FhcXVRUVpCZllzMUxmODNqcWtqLXVheDZpZnZpTnVCclpfVVl0VWVoRGtYSTc4RWFTeEk0SE1ZRnhsaWR2Z2k3dzQ3bDBuNTFWVEo0V3N0TXRfQ2xRS2JuZmZ5RWozbG5TRzhVSUd4MERwSnRsQVAzLW9tcU5QR3oyeQ?oc=5) |
 | Medical groups are concerned that RFK Jr. may dismiss a panel of primary care experts - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNVC1tUm9UVGVKWE9MUDBRZFpqSnZaNmtUNHA4UnBidldmLTl6UEZQWlU4T0Vwd0tDSndhb0VqcnByNlJVVUY4VF9hdVpyU0pQaU16NGdTQ3lud3ViOEdwd25jVFBZUzl3TG4xOFpaOGozaVNNbVJXeFprc1IwOXRaMHBXaHdia0ZsN0pYOS1vRQ?oc=5) |
 | Thailand and Cambodia agree to talks in Malaysia after four days of fighting - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE4yVmdhSk5oNEctNFdqTFoxRXktN09idl9FRmQ1QVNJdEoyVEEwbzAxWGpZby1WWjN0M3M1QkpyRWkyUWQtYkVjaXk4UWp5NUo2cl8waGJMTmZxZ9IBX0FVX3lxTFAwWFpSQjAzOS1ybzg4YnhXaTFENzl4aHplR0VBaE5GY1FGYWREZlliVmRKZ21xVDR0YWRUUGZaR3lvOG15WFZWeENyaXdGSG5DTC1wV1FTV2FWWkloSDJB?oc=5) |
 | Justice Dept. shuts down dark web child abuse sites that had 120,000 members and millions of files - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQUmlQQ2Y2VGNYdU9tekM3LWIxaFFkYm9OTVQ2dHgwYXdLUlJaeGhtVTczUjM5eEVXNEFYemZEQWJIbHVtbGZVRTd3YlZRT2Rtc0FsV2RxUERlQkpCQmQ1REMwMXA2TzdPMkNMWjl4VHFWRjlHeDI2V1htMmlpZ1dnbmRsWC1kd9IBiwFBVV95cUxNLVRtel9MOGd3VFJNdGExR0NBVnAtQ0FDUjlaUzBtdzRfRkNnbGpOVUh6RTA0ZVVEU2U2Tzlselk1NzdGSHpzTFBYTnVWNVkxWVJCZ0lDYkV2NWoyS1l0ZXVvdm9YZzFNdDNVcWVBWUYzYVZvVVY4VFE4cGotLTB5TFBLcF9lbmxWbkU0?oc=5) |
