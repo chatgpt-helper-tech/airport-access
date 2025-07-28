@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月29日 05:01:21（北京时间）**
+🕒 更新时间：**2025年07月29日 05:14:08（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Suspect in murder of woman and her two teenage children dies | [阅读全文](https://www.bbc.com/news/articles/cqjylj455v4o?at_medium=RSS&at_campaign=rss) |
 | Liam and Noel Gallagher's brother charged with rape | [阅读全文](https://www.bbc.com/news/articles/cr4exd0yx90o?at_medium=RSS&at_campaign=rss) |
 | Emergency pleas for strike doctors to work blocked by union | [阅读全文](https://www.bbc.com/news/articles/cd0dz70zmx3o?at_medium=RSS&at_campaign=rss) |
-| France and Germany lead downbeat EU response to US trade deal | [阅读全文](https://www.bbc.com/news/articles/c3ez97zv5y5o?at_medium=RSS&at_campaign=rss) |
+| Reconsider Gaza family case, court tells Foreign Office | [阅读全文](https://www.bbc.com/news/articles/c4g0qeedgzwo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,8 +30,8 @@
 | Trump says he’s shortening the 50-day deadline for Russia to end the war in Ukraine - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPRzZNWFNMMEo4OExxTFBSRzB2dXlzQlhscDNLV0tTUWowNlFNUGFtSGNtVUVUanI4b282VVNIci1mcHlLZ0lHS3FTS09UQ2lCQ1Q2VVNFUWlzQUx1WWR0RGNaN3JyUmxKOW1CT1BjTVBHR3J5aUJuWEZEQjdfaTdDM0x0UHp5RVJVbEJ4aHpzMzNlY200dVVZa3BfaTNWZXRlUmhVWnlnYkc?oc=5) |
 | 'Lives lost' after shooter opens fire outside Reno casino; suspect in custody, authorities say - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQTUN4ZVFUdTdSSHdGM2JwLVJKbUV4RzRnLVd0ZHlQVEVaY2F3RndNYlE2bFgwMG1CcVgyUVFhczRYeDR2MGdJV29qMlZDM3FtZmdPZGFFeTY0cWlCTVhMbnhfYzdZdGlLajlYbjRqWHRnckx5NWVnUjRMTE9vSW9OY1VwREM4WXVrazVwWl9rMl9lSU5YNU5QdDVzYTNoQzhuTW5JRGtoaFR0Tlhzd0t3ZVpR?oc=5) |
 | Man was wanted by authorities in nearby county day before mass stabbing in Walmart - MLive.com | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxPUzk0WWlTT1N4eFEwMVVXTDQzaEZVQXcxNXJkVjI1cUtZVnNjcl9pcmN4TTJ6cHVDV19WMlJKRkNKVG8zWTF3amx3ZUZRaXhvSmxfOGtTaWx1dl9GdERkN25IOC1xYmdPQ3hlYjhPTU96WEItWjRGVlAzLXNtcGFfRHJmRkY1UGlvQUtJOEdEZGc3SFFHd1JPeHFwUlczZFR1NTJDU3ZHX0pvdERvbXdySGg3Wlo5dVBKZFY2TjRZd9IB0wFBVV95cUxQMXlaQ19PRVR4ZnlhQXc1T0k4a1NDa3Vqbnp1R01QMjY3VV84OTllS0Q4b0RFaW5HRjNoZkowdWZWZGItQ3R3UTQ1Y3JrdnQwa24xQVlJQmRTcnE0ZTRHS2pQWGFfVmVLRjRSUm1RRkFkNjl6QWJNWDQ1Y1NKbzhsNXFpSmRtM0RRTUNPdUxiTVlYZW9BMzdRXzNmWDZaeEdBRDJlZlc2MS02RU1LUEJyRjR5R2tLaVJzaW1lVFpyWTBIdkw1ZDFLRFFkeTBWaktfb1U4?oc=5) |
-| Former Democratic Gov. Roy Cooper will run for the US Senate in North Carolina in 2026 - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPN000eWVhaGdBdWJ1enpoektPelZTZW9yQm84TUQtYkYtX05BMzkyeDNBYWhULU8tUVFVRHFNdnZZam1GeEdPbjBneS1DOVFLQ2RuQlVmRmMxT2Nhcm1rcGFaaUpUU3VKUmF0cVU0NlowQ1JScEFrRTdqRThwSmZZalJSd0ZTU0xKT2UwdXdzdEJ5ZHlWUWkwQjRXRjZXQWxK?oc=5) |
 | Another Trump clash with the courts is already spinning out into criminal cases - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPM2c4ZjNTM0VGME1PZnNxZGJtZlVQYlJTbmI4ZWQ2ZXZrTE1sazVsUzNQYWJldDdpQXpESG9GT1hTRW9taHV0VHRBZHdqVDdZYXRidEdISHZMNzZVX1FhOHpVMEtLSWJWNktfbDBrS1dMNnREY0Zzai10aVlJYjJNMk5MTllhV2xCZ2dWeHc2Y19GVlFEb0FFQWVNeDhweUFOYjJvTEstVWc3TmZ5TFZHaXhMNDE5cDgxVXdHTGV5bW9zU0EyODFFSkd0aTdjZw?oc=5) |
+| Former Democratic Gov. Roy Cooper will run for the US Senate in North Carolina in 2026 - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPN000eWVhaGdBdWJ1enpoektPelZTZW9yQm84TUQtYkYtX05BMzkyeDNBYWhULU8tUVFVRHFNdnZZam1GeEdPbjBneS1DOVFLQ2RuQlVmRmMxT2Nhcm1rcGFaaUpUU3VKUmF0cVU0NlowQ1JScEFrRTdqRThwSmZZalJSd0ZTU0xKT2UwdXdzdEJ5ZHlWUWkwQjRXRjZXQWxK?oc=5) |
 | Manhunt Underway in Arkansas After Couple Is Killed in State Park - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOd1pDNk5SQlUwUVJmb2tjODQ1YXhuM2J3dkpQRnRPMjQwRXZsdll6N081eGk5UVgtMzZ2endRNW9BT0xRVUJFb2pJTkY1MXpSbDN4OUR3R0QtVUJXdml5ZHdNSk9LTXFJUXp0a0RPWm12OFBrRklndmNwQThrWi1nRzdmVDVybnc?oc=5) |
 
 ---
