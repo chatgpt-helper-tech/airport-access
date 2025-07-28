@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月28日 17:52:19（北京时间）**
+🕒 更新时间：**2025年07月28日 18:00:15（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Kim Jong Un’s sister rejects outreach by South Korea’s new president - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQS3dRSElqbWRMXzFqRURXSWROQ2dieF9yZWk1Q0lZVk1pVGd6bzVlVjdvX3Fhak9EblNDOHVDamZmYmltTy1NNXJQMnNVejlPRlpJTy0xcWV6S3BUZXFqal9jdS0taTg5Uk1JUXVzWnVNb19tRkgwQlhvbGMzRnNBMU5XOHN4eXI2NGg5S3R5SG5tdWU0OUxmU3NXLVB4dw?oc=5) |
 | Justice Dept. shuts down dark web child abuse sites that had 120,000 members and millions of files - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQUmlQQ2Y2VGNYdU9tekM3LWIxaFFkYm9OTVQ2dHgwYXdLUlJaeGhtVTczUjM5eEVXNEFYemZEQWJIbHVtbGZVRTd3YlZRT2Rtc0FsV2RxUERlQkpCQmQ1REMwMXA2TzdPMkNMWjl4VHFWRjlHeDI2V1htMmlpZ1dnbmRsWC1kd9IBiwFBVV95cUxNLVRtel9MOGd3VFJNdGExR0NBVnAtQ0FDUjlaUzBtdzRfRkNnbGpOVUh6RTA0ZVVEU2U2Tzlselk1NzdGSHpzTFBYTnVWNVkxWVJCZ0lDYkV2NWoyS1l0ZXVvdm9YZzFNdDNVcWVBWUYzYVZvVVY4VFE4cGotLTB5TFBLcF9lbmxWbkU0?oc=5) |
 | Photos: Protesters rally with bagpipes and pointed signs as Trump visits Scotland - Axios | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE5GdGFNNnJxbTk3dmJUam8xMWVhdzAzRFJ2bEIzRTNqT0pGQmJiUC1mYnpLWDNjOGxfeVktSWNySm84ekxWYjliT0prTHNsQWlGQWEta3VKMlotQVNEdnoxVkl6Q1k3SUgyS2dDUHh6dw?oc=5) |
-| How Japan's far right was supercharged by Trump and tourists - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9aOHV3cUMtNVowdDhqNFlveV9vN0RNNS1lYWp0bzNLSFd3QUN6ZGp6azE0RFdkczBYZkVBeGhGLW1ReEdNbmE0U2d4b2ZuSWxaZEJoM0FiY09yd9IBX0FVX3lxTE1SM1BLUDRucmZFYWZZWm5HbU1lbUNZVTlZT0F4N0VNdG5hS0hOaEJEYzkwbUN5Q0Z1cmtuc0lWbDFET0tGX2plTXlaTUhJYnlKWkhsRmIzSDBuN3FpdlpV?oc=5) |
+| NYC mayoral hopeful Mamdani faces sharp jabs from within South Asian community - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxONnFCbnprVTRsNmVacWc0eHVyWmo2ZlVQSUpiN2hEVWtQbzZKMm15aUw4SGI4WVluTnh2eVVzT2daVVhVVDdLMkdaSGY5YkpESFhqRTFJbF8wSzQwVm9sM1pwOWR6MUw1amNiamdDNEhqMzJxTEdjaENwejdSRXJXVUFTRlJRQXkzOXJWUWRIUzZSYTZhRTRGVWNsNHdYVWZ1MUM0SzIwdXI?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
