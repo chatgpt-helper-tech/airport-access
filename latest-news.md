@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月29日 06:53:07（北京时间）**
+🕒 更新时间：**2025年07月29日 07:01:38（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Tampa Hits 100 Degrees for the First Time as Heat Grips the Southeast - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQSm01TGZIWXdJQjJjN3F2RFBTVk5RbTNpazVfM29IS1A3TWpEaVhSbVA3dk9OVGU0U2ZtQ2daUVNneGh4RU1ESER0akVsdnJqS1VYSVJSYlVvaHRtZW5EY2RUYUdKbFZUOEhONEt0NlF6enVqUjNJYXBOTXZ0M2VQWnVyMmtoUk5nRmVfbDJmSmZ2b1dPNzl1UmVn?oc=5) |
 | Pete Buttigieg says Democratic Party’s attachment to two words handed Trump the White House in 2024 - Yahoo Home | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNQXpQRVhOZDVPS1Vsdm1NOTNQOFhnN0FwZkFkSnRBOVp4UFc3RTRDdHZsSzFsUVY0c2dPcTdBTnRjd2t0ZlBlZjRBX29JM2FpbGRBcGl0UEJwcE5zVXI0ZG43M2E0ZHYwRjNkd2UtVEk2SlluSmNtQVJOV2twcXR2eUxtVQ?oc=5) |
 | Vice President JD Vance hits the road again to sell the Republicans’ big new tax law - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNUHhuZDJwQ01wS1JGUnJiNG0zcmdMVXViZ1ZMS0FFcXRIMnFGR3ZNT2VGNi0zLUlJbU5DTUZCaFBBemhlODR0a1VkM3lTdXpLU1VXOW50TWc5ZG9mMDQ1cWRyb2RxSXBIcUJYNU81QVRrbTlBWHAtbUI2bjQ5Znh5ZWhNMTdGRXhTSWg5dGFjVkxYNjJkcWhEWjlEWUlJa0dWOWVJ?oc=5) |
-| Brother of Walmart stabbing suspect says family tried to get him help for years - The Detroit News | [阅读全文](https://news.google.com/rss/articles/CBMi4AFBVV95cUxPamhWMHNzNzB2ZzY3SHZ6cXllSV9XVm9BclZXSG1uOEJ1WFdpTHdzOWIydVgyUFpFSGtGeU45N1A4cUhTV1hMMUk3UHZ1SGJ0YTZwMkthM05vdXpycENHZlZFYVA0RzFuQ2xkekk0aERXOUgyQXFmakplSGR5SlRXbFlmUFl2RGt2SXFoX05tMjRGRHdPaGNmZmdPM2EycTcyVFNsdi1GZ3hOb3dnaFRWNUpZOG1mcnVjZ3JOM0I4bWNsMGJfaHNQZmtWTFlmZi1TdVl5RXVIMVl0Tzk1R3FkUA?oc=5) |
+| Traverse City Walmart stabbing: 5 key things to know after suspect arrested for attacking 11 people - MLive.com | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxONE9qb2owaUJNTVg3ODZJTldmYTY0MndvaDZ6QzNVMWdFczc2Wk1WeGhIVGxqUmp5c21MbXI3SnBaTFpzSWloNDViQkMwNGtIVHpLVklJYjlYdkV0TEJsa2VHVDRkUUt2RllVbXhZWkkwajRmc3NpdDY1SVBzUTdlSWg0QmxpMVBaSTJTckhUSmI3MnJqX1JSd2s5dnVSbWhITml4X3Z2QVhxbVQzbmZxdzB4dHUyTVQtMTFfUm5sZTlCSFUwQmc0YjdsYTA0d2Vkem5LcdIB6AFBVV95cUxOUXYtd0w0WmYwa25qZ25nX0J1UzJRRzlGUXRadWlVUW9BNjdkbXJBamZpV3BRbVBpUGxrMk5yOU15VUhrTC1ma0xrcTV3Z0dpVWlCZ1ZmMlFPeHh3MW5Rb3JHT0pyS09PeXZMbWJ0RXFFQV9FYnZfX3pRaU4xZndPcWxMVFhVcUl5UVB6dXNtX0U2bzJ3NUxidWVNb1NEZmROTmViSmNFWmdSM2ZKRGxZbUZpLWV6NGRzWGdaX0hLOUJnN0JOaWZHYVNQc2lUcG9vQXZiRkFoN08xcng5M2NVSHhXa1Y4RmVT?oc=5) |
 | Another Trump clash with the courts is already spinning out into criminal cases - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPM2c4ZjNTM0VGME1PZnNxZGJtZlVQYlJTbmI4ZWQ2ZXZrTE1sazVsUzNQYWJldDdpQXpESG9GT1hTRW9taHV0VHRBZHdqVDdZYXRidEdISHZMNzZVX1FhOHpVMEtLSWJWNktfbDBrS1dMNnREY0Zzai10aVlJYjJNMk5MTllhV2xCZ2dWeHc2Y19GVlFEb0FFQWVNeDhweUFOYjJvTEstVWc3TmZ5TFZHaXhMNDE5cDgxVXdHTGV5bW9zU0EyODFFSkd0aTdjZw?oc=5) |
 | 3 dead, several injured in shooting outside casino in Reno: Police - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNWFNrUzFjcE54akF2X09YaFVRNkg1V2FVWEZ3QXA2VzVmR3QtcksySDdMQ0lLeUxLTTVHZEpNbERfeG9BR21fZmxJUk9sMWwxQzVkWnFpQlE0Ry1lUG42ZVd3Mk0tNlhXM2YweTgtMzJtTVpNLVB3eVBBTGxsV1JqRGhPVdIBiAFBVV95cUxOUDVRQ2R5TklHNXY5UF9qRVpuUXRid05mel9sdzhPRUkzZ0tZVWJmOXM3aG1EeFM1SHh5QndoTTl3eHN6WjdVOWhIZlNtZjVpZUs5YmhkdDNhcVRrVHpQOGliOWxHR2wzLVVzc00wT3FJR2NOcmtPNHU3UFJHRXJoYlF1YkhPVENF?oc=5) |
-| Police search for suspect who fatally attacked couple in Arkansas’ Devil’s Den State Park - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNWmxMMmRrY202SVFTSzczTnpzaUpJbm54TWNfMEdvZ2piM2JjbmUwTVF6NTNrN3FBMGZmcGJKX1R0Y2c0Y29WSlBJZUxFc1pfTGQza1ZJWldGdzBlS2hHUV9zTVVUNGtDb01rM3FpbXVaaWVoQ21QWEo2NGhIVHRPdDVpMEg4bk9SRmpCU1pzVmFuMmdlbnVhLURVeDV0Tll6?oc=5) |
+| Trump News Updates: Epstein, Tariffs and Ukraine War - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE1ZZU5LVzNZQWNLTnpETDdaaFVqY1BEQWFiel8tNFZWaklXVndpMlVnN0Zwd1ZIY2lQR2dxcmxmSDh4WEo4bnJQZXZkdWx6cUJVVTRINmprR0dXeGVJYzlzVW52UQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
