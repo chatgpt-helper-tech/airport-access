@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月29日 02:53:54（北京时间）**
+🕒 更新时间：**2025年07月29日 03:00:13（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What's in Trump's trade deal with Europe? - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPbnNFdFR0Wlh0SktPTHVBaTlSSXRDYkpYWEdjY3VPRUJsY1JTc2xuTVBQa080ZlF5SnFCZ0JsYnA0X1F0QVdqWXo4bW1IeDdqMGQzdGJBMFRTTGtxb2Y4cjdfY1dqdnJ4TXVURFZVOUVPT3ltYW1la2hvQ0Fhd1NsUjdjTktReEtjR0RZSzI4bmsyNHFRSE5lVVZjOUVaRC0wUGNv?oc=5) |
 | Trump acknowledges ‘real starvation’ in Gaza and tells Israel to let in ‘every ounce of food’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxPZFp1SVdoYXpsOHFuOUlReDljdUlRbUIwajdYcDF5aGZTdjNSalhQQ0p1MXRoMGJma2hSeTJVYk1JMEFVQkxBZ3RZSHA4XzdmckpoMW4wMFlQT2ZJWVF6QmU2eTd5cXJkVHl2S3NDTWhoZjlOUTY4a0FBdkF1ei13ZTBXQ1lGQTVEVEVJSlJSbzZvdE04ZUZyMDA1YVNvTVYxM2NwTXNRZHh0V1ZaNXZ1X2hYaFc0V3lOVDk0dFFSSTYtUmFSN3oxa2VKeFM3YU92VkpF?oc=5) |
 | Trump Gives Russia Less Than Two Weeks to End Its War in Ukraine - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOOWVWbkcyc1RERVdYTFp6NEVMQ2htd2hJeGg2eFA5QXhDYWVXNUE2VzNHejE5bElHUEZGaXhYT3Zwd2ktMmZCQ1pLbGFLd1FFZWRERm5rdHZuZTVIT0NxbDBpNDQtWVFZYm1ZMmE2c1lyTHFEX1J1aFlOVXFmaHdQek8xMldTeXBFTTNocnNtS3RyRVM5V2c?oc=5) |
+| What's in Trump's trade deal with Europe? - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPbnNFdFR0Wlh0SktPTHVBaTlSSXRDYkpYWEdjY3VPRUJsY1JTc2xuTVBQa080ZlF5SnFCZ0JsYnA0X1F0QVdqWXo4bW1IeDdqMGQzdGJBMFRTTGtxb2Y4cjdfY1dqdnJ4TXVURFZVOUVPT3ltYW1la2hvQ0Fhd1NsUjdjTktReEtjR0RZSzI4bmsyNHFRSE5lVVZjOUVaRC0wUGNv?oc=5) |
 | Heat indices could hit 120 as sweltering temperatures grip eastern half of US - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOX3g4OFIwbHZDSkpGcGlWYm84M2dPcHZFQVkxNldZeHhMQndmQldQN1I2b2V1SVprc3pCc3puajhqaVlWWk94RmU4eW1lemVSQ3FQbmNGdGxjOVFNSmZkYk5OWFM3dXJuejRYMzRBS0h0TUUwU19UMjdONWlMdjNybG40RjhsbC0yTTNMb1AzY0ZCdU5JMHY5NVl30gGfAUFVX3lxTFBCRy1JVnVqejNuU2hiaUhJeVVQZnlQWmZhem1renF4cUphcXNnOC1IaGkyOXhvOHQxTHBqVlZIS3dUdUNhd2p4MkxZbjVja0k5VEhPcmVtdWlVU0RRZGtBYlBjenNzSGRMNjlaVWNVT1FybFVycmlkc0lFcXItcng1Rm9oVk1DNkw4enpfMUNieDJMSFNNeDd6ZktwRURxWQ?oc=5) |
 | Couple murdered while hiking in Arkansas ID'd; police update suspect description - USA Today | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQbXNZemx6bDFPcVBNTWhVNlhFZ3p3aGExVkx2ZHRHQTJVMEhycGRWeEg0R0dsbEpybjhsQkVLN1E0cG9YV3JmWFBYTUR1WkNLbkdfaUlVcll6dVhpUE5paDRpeU1TQ2ZsbmNOZkxIUTJKUVNiNDhrbFRoR3IzYnBWYkR5WldEaUhmYmc0ekdTVklId3puSE9YZ2xCdzJ1T2Izc3pr?oc=5) |
 | 'Lives lost' after shooter opens fire outside Reno casino; suspect in custody, authorities say - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQTUN4ZVFUdTdSSHdGM2JwLVJKbUV4RzRnLVd0ZHlQVEVaY2F3RndNYlE2bFgwMG1CcVgyUVFhczRYeDR2MGdJV29qMlZDM3FtZmdPZGFFeTY0cWlCTVhMbnhfYzdZdGlLajlYbjRqWHRnckx5NWVnUjRMTE9vSW9OY1VwREM4WXVrazVwWl9rMl9lSU5YNU5QdDVzYTNoQzhuTW5JRGtoaFR0Tlhzd0t3ZVpR?oc=5) |
