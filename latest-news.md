@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月28日 15:01:39（北京时间）**
+🕒 更新时间：**2025年07月28日 15:13:21（北京时间）**
 
 ---
 
@@ -9,21 +9,21 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Relive the penalty shootout from England's Euro 2025 win | [阅读全文](https://www.bbc.com/sport/football/videos/c0l68lpjkz2o) |
-| Google failed to warn 10 million of Turkey earthquake | [阅读全文](https://www.bbc.com/news/articles/c77v2kx304go) |
-| Imported dogs 'posing risk to UK', RSPCA warns | [阅读全文](https://www.bbc.com/news/articles/cpwq40vjw8lo) |
-| The rise of Japan's far right was supercharged by Trump - and tourists | [阅读全文](https://www.bbc.com/news/articles/cx2k29233jeo) |
 | Nurses to 'overwhelmingly' reject pay deal as strike vote looms | [阅读全文](https://www.bbc.com/news/articles/c4ge4905eq7o) |
-| Starmer to discuss Gaza with Trump at Scotland talks | [阅读全文](https://www.bbc.com/news/articles/c5y254078k1o) |
-| Officers faced Southport killer 'shoulder to shoulder' | [阅读全文](https://www.bbc.com/news/articles/cjd2d9kpl4do) |
-| Three killed and others injured in German train derailment | [阅读全文](https://www.bbc.com/news/articles/cy9844egpx8o) |
 | EU and US agree trade deal, with 15% tariffs for European exports to America | [阅读全文](https://www.bbc.com/news/articles/cx2xylk3d07o) |
+| Officers faced Southport killer 'shoulder to shoulder' | [阅读全文](https://www.bbc.com/news/articles/cjd2d9kpl4do) |
+| Imported dogs 'posing risk to UK', RSPCA warns | [阅读全文](https://www.bbc.com/news/articles/cpwq40vjw8lo) |
+| Google failed to warn 10 million of Turkey earthquake | [阅读全文](https://www.bbc.com/news/articles/c77v2kx304go) |
+| The rise of Japan's far right was supercharged by Trump - and tourists | [阅读全文](https://www.bbc.com/news/articles/cx2k29233jeo) |
+| Starmer to discuss Gaza with Trump at Scotland talks | [阅读全文](https://www.bbc.com/news/articles/c5y254078k1o) |
+| Three killed and others injured in German train derailment | [阅读全文](https://www.bbc.com/news/articles/cy9844egpx8o) |
 | Taser trial for prison officers to tackle violence | [阅读全文](https://www.bbc.com/news/articles/ckgjpd1vnzxo) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Stock futures rise as U.S.-EU trade deal kicks off a hectic week for markets: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5ZR29NVGFNYS1oTmpva09ra2RWMF8yYWJfSElhUmVZYk5WTWtSUWlkcUJFT0V5aHNFQ2UxWXRMV19pOFhmMFUzcVVOMkp4VkR3SjlCa0IxQ0RkUVRkOVM0VVk5aEIwcXQxTDgtZnllUGYxT2c0TTVB?oc=5) |
+| Stock futures rise as U.S.-EU trade deal kicks off a hectic week for markets: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5ZR29NVGFNYS1oTmpva09ra2RWMF8yYWJfSElhUmVZYk5WTWtSUWlkcUJFT0V5aHNFQ2UxWXRMV19pOFhmMFUzcVVOMkp4VkR3SjlCa0IxQ0RkUVRkOVM0VVk5aEIwcXQxTDgtZnllUGYxT2c0TTVB0gF8QVVfeXFMT2F1d2ZtR0ltZC05bWFTR01URDBkUjlTdXRQcEcxNHRycDctLTE5ZVY0VHJFeGduTGUtTnhBdUhtbTlZSmk1cnFuRmZmSExfRDFCeExtVHJLTy1JcGMtRzRTeHZzN3FETkQ4TzJYQW9YNWV3d3d6ZlI0bXphbg?oc=5) |
 | Israel pauses attacks in some of Gaza to allow limited aid, as global criticism grows - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQN3Y3ZlZHX0ZZaVhHSTBPakQ1M1FaME9SWGt6WExHREhsYkduR2JnRG5vaEFZdVptRjNXWmhRN2Rsc0ExX1lPSUx5eHY0TzlNd2ViTzczV19jdG5XeWFyN21jQmJtWVk0c1JMQWtJTXNvX1lYV2tzRTZ0Rm5MZy0wVEdlVGk?oc=5) |
 | 2 people found dead along Arkansas hiking trail in a suspected homicide, officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxORTJ3WDFFS1hScms1cFAxeW1wSXJnR0FpRXd5NC1nU3EyUTY4Nm5xODJrOEpFM0pFdDNZdktvcGx1WExPc3FCRUlvY0lQTnFUbno0b2FCb21xNExUVlRzMXVVLW1IbmU5MmxSSDAzYWE1Z09pNHJHaTZqQVhIcktrNHVhazNQN0JCdDQ5bjFSSkhiZjJRQnpZ0gGcAUFVX3lxTE5KOHIwcjJKZ1VQRkNxT3FhcUI5bS1CN0tGaG0wd21id1AxV1EwWmVoMXBBZkw4d1VyZjVxQ2FsVGhIVG93MEQwc0pxZ1Uwc0tPcG1QSmE0eGhvQzZWdHpZeTFXWXB2V1BEbHZGNmk0anREd19rNUJyNkVHVE4wZ3dUcThCNEpZWVNEQ3V1NEFoVU8zVWJLTjhza1R1ZA?oc=5) |
 | With Bombs Whizzing in Air, Thousands Flee Thailand-Cambodia Border - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNalpBOWVvNXJFem9OYXFHOFc5Y0JPVU5oY1hOaWZoTVc4b0xCVFRDVnpkSHJVWVhjaGRTT2dRdWNRUWdQUkdYWE5zZC1RX1V1QlZ4V1RqOGFJZmRNNEs2NTdxTkdmSGNkektobkRUZmpPWXhLWEhLSE1jSXdjcFloNmsxQkZTcUQ4RTFBRWNmMkVCUjVxQXBoQQ?oc=5) |
