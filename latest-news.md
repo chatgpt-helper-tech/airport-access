@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月28日 11:26:07（北京时间）**
+🕒 更新时间：**2025年07月28日 11:40:57（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Israel pauses attacks in some of Gaza to allow limited aid, as global criticism grows - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQN3Y3ZlZHX0ZZaVhHSTBPakQ1M1FaME9SWGt6WExHREhsYkduR2JnRG5vaEFZdVptRjNXWmhRN2Rsc0ExX1lPSUx5eHY0TzlNd2ViTzczV19jdG5XeWFyN21jQmJtWVk0c1JMQWtJTXNvX1lYV2tzRTZ0Rm5MZy0wVEdlVGk?oc=5) |
 | Prosecutor to seek terrorism charge against Traverse City Walmart mass stabbing suspect - The Detroit News | [阅读全文](https://news.google.com/rss/articles/CBMi7AFBVV95cUxQVl9LeV9JQjkxMzZlNTVZM0Y2d1NaZ2lVSFc4SXhBY1NLb2JHbDNxY2t1S3NNLVdVSlhEMlBaYlBJWHotQXFidURqWWpDZVFCQmU3M2tpbWFRSDVCZzAxRHI4LWcya1BDUWNEZUIwZTZCb1FhcXVRUVpCZllzMUxmODNqcWtqLXVheDZpZnZpTnVCclpfVVl0VWVoRGtYSTc4RWFTeEk0SE1ZRnhsaWR2Z2k3dzQ3bDBuNTFWVEo0V3N0TXRfQ2xRS2JuZmZ5RWozbG5TRzhVSUd4MERwSnRsQVAzLW9tcU5QR3oyeQ?oc=5) |
 | Thailand and Cambodia agree to talks in Malaysia after four days of fighting - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE4yVmdhSk5oNEctNFdqTFoxRXktN09idl9FRmQ1QVNJdEoyVEEwbzAxWGpZby1WWjN0M3M1QkpyRWkyUWQtYkVjaXk4UWp5NUo2cl8waGJMTmZxZ9IBX0FVX3lxTFAwWFpSQjAzOS1ybzg4YnhXaTFENzl4aHplR0VBaE5GY1FGYWREZlliVmRKZ21xVDR0YWRUUGZaR3lvOG15WFZWeENyaXdGSG5DTC1wV1FTV2FWWkloSDJB?oc=5) |
-| Scotland protests Trump – with wit, bite and bagpipes - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOS3kxSGltVXZmWjEtcHNtbU5wTjBpbkJFNk5hOFZjdXpqbjRyZ3ZTamtadWM4YlphakE0SU1icXZuLTJEb3BDOVphZWtOblU4WHZEYktVOFh4Z2d2aXRQanlaUlN0Y3oyZG9rTUdkWWhQd0owUTF4cG14a09RbEpQQl9KcUxyYWVBMUpveg?oc=5) |
+| Photos: Protesters rally with bagpipes and pointed signs as Trump visits Scotland - Axios | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE5GdGFNNnJxbTk3dmJUam8xMWVhdzAzRFJ2bEIzRTNqT0pGQmJiUC1mYnpLWDNjOGxfeVktSWNySm84ekxWYjliT0prTHNsQWlGQWEta3VKMlotQVNEdnoxVkl6Q1k3SUgyS2dDUHh6dw?oc=5) |
 | Justice Dept. shuts down dark web child abuse sites that had 120,000 members and millions of files - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQUmlQQ2Y2VGNYdU9tekM3LWIxaFFkYm9OTVQ2dHgwYXdLUlJaeGhtVTczUjM5eEVXNEFYemZEQWJIbHVtbGZVRTd3YlZRT2Rtc0FsV2RxUERlQkpCQmQ1REMwMXA2TzdPMkNMWjl4VHFWRjlHeDI2V1htMmlpZ1dnbmRsWC1kd9IBiwFBVV95cUxNLVRtel9MOGd3VFJNdGExR0NBVnAtQ0FDUjlaUzBtdzRfRkNnbGpOVUh6RTA0ZVVEU2U2Tzlselk1NzdGSHpzTFBYTnVWNVkxWVJCZ0lDYkV2NWoyS1l0ZXVvdm9YZzFNdDNVcWVBWUYzYVZvVVY4VFE4cGotLTB5TFBLcF9lbmxWbkU0?oc=5) |
 | Severe thunderstorm watch: Storms explode, will they rip through Twin Cities? - Bring Me The News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQTVYzQXY3WTlldVI5OTVTMm1oNm9HRzFXRmxhV3RmYW94OFU4UW9ucU0yTjE2ZTRNUHZ5R2RQbTJMckVFaGo0NjdDdzhYbkltNnViM0VLejJaT1FEZlZkUGpFQmdTRkx2cUJrYUFIV0RrU21fSnJYS3BVUkpMNXlmak1WOTc4S0I1SGtMbmZicG81T3FpclM2VklxNXdoUGVnTFg2SlNrNndGZEk3bjdOUnNtLXVTaFEyNVdv?oc=5) |
 | ‘A nightmare that no one wants’: GOP fears Mastriano’s down-ballot drag in Pennsylvania - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNNGN6djlHbmFYSnRQX0E3eVNoZUNDQmVDdDlHM2lLTXQzZ05lOGF1XzcwOHlNWVlnSDNPRDN3N1k5Mk04Q1RJamZJaDlqOU93c2EwM3gzYXR6a0hiRXM4bi1wR2t6YTVlbUgwbFZxZEFGQzRrazVPU2NwdWkzaWdwV215QzNIZDczNFRleHJrOExVU1RZZmxHUkpDYUVFZzVqRnc4Tg?oc=5) |
