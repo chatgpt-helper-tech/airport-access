@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月30日 00:40:25（北京时间）**
+🕒 更新时间：**2025年07月30日 00:52:19（北京时间）**
 
 ---
 
@@ -13,8 +13,8 @@
 | New York gunman was targeting NFL but went to wrong office, mayor says | [阅读全文](https://www.bbc.com/news/articles/c2en7k2e77wo?at_medium=RSS&at_campaign=rss) |
 | Trump's Scotland trip gives him three things he likes - and one thing he doesn't | [阅读全文](https://www.bbc.com/news/articles/cly42x8k55lo?at_medium=RSS&at_campaign=rss) |
 | Bereaved parents ‘horrified' by Leeds maternity services report | [阅读全文](https://www.bbc.com/news/articles/c5y2m51krkko?at_medium=RSS&at_campaign=rss) |
-| Police seek to question Tommy Robinson in connection with station assault | [阅读全文](https://www.bbc.com/news/articles/c209p0v5plwo?at_medium=RSS&at_campaign=rss) |
 | Dali painting bought for £150 could fetch £30k | [阅读全文](https://www.bbc.com/news/articles/c1jnr0xx479o?at_medium=RSS&at_campaign=rss) |
+| Police seek to question Tommy Robinson in connection with station assault | [阅读全文](https://www.bbc.com/news/articles/c209p0v5plwo?at_medium=RSS&at_campaign=rss) |
 | Farage demands apology after minister says he is on the side of 'people like Jimmy Savile' | [阅读全文](https://www.bbc.com/news/articles/cgery3eeqzxo?at_medium=RSS&at_campaign=rss) |
 | Man arrested after two killed in quadruple stabbing in south London | [阅读全文](https://www.bbc.com/news/articles/cz71wjv7yxwo?at_medium=RSS&at_campaign=rss) |
 | IMF upgrades global growth forecast as US tariffs ease | [阅读全文](https://www.bbc.com/news/articles/cn84gg2y5kpo?at_medium=RSS&at_campaign=rss) |
@@ -28,11 +28,11 @@
 | Trump Opens Golf Course During Not So Private Scottish Visit - Yahoo Finance | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPUGJXaGc4dXFoQ1ZBRUVSbnFRWEtQREZXOW1CX280WDJHRkQ1Tk95VFJBSVFIdjBhMkk1NDYxQ2d2T0h5dmFkenVuM1BJcjVVc0JGdU44ZEJWWWIzOXY5M2Z3LVAxMThJQU93MDZxSGY1dFlzQk5meHdqdkFjcVRwV093?oc=5) |
 | Jimmy Fallon Ridicules Trump’s Choice Words About Epstein Island - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNdHM0LVk2c1JHUWpfZWJXSFRBa080eGhvVXpvYVpOSzJDWHBqS3RZMEotUUREU29UNWFFNDMxcnF5eE5OWnA2WmJsVHJPM24xRzQtRWo3YXlFUW1STUhWTV9rQjU2emttaXR1a1NjWUloUmZxdEQtNmtvaFp0eENLb0FTVFFfTVJiUlE?oc=5) |
 | EPA looks to overturn the scientific reason for climate regulations - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE15cEVXSGpTcldjQlBwZmx5cFJtNHJ5YXFkN0p0enBMNm1FZWVHbERTOUdTTWFkUzhJU0RhaWdvSW1wRHV1RFRFeU5YNUZwMG5mazhhZGtwbklYOXNuNFRTVWRmcDhhbkJ4cmRqNWdzRXpxMWdOM0plYg?oc=5) |
-| The EU-U.S. trade deal could have one unexpected winner: The UK - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNSllndVlvdzhWVUQ2NEhnY0dDQmJ0UE81OTJhZG82OFlzS3RhUmVtMGJtMGFVZ1BfTmdHQ2F0dTh6SkVLTnAzZ2N3SlU1TkdrcDlUSzcxaVJWelRZR3ktR3BnN3pjSGdaLWplcnNLRUdqM2J1elNlX0RTUUlZNzBNZElpVmd6R29NTnJWX0Q5Z3l0SE9CVXEzMXEtN3hOd9IBowFBVV95cUxNUV9ES2RsaWRILTlPVXB0cHBDUExWdzZzdE9vMDVzUnZiVkpVdC0zMTh3MzItTDdSN2hjWW1KM2ZBRnZmaVJJUWpDMzlqb09XUU5sZ282ZDdTSENxNVBzY3U1SkJLT1FlUmRjU0RnT0drZTVjcGtwM3h5d01rcnpLd1Fzbko1U0ZBVVM5WDVBT3JYNFFUc0VCdHVfeXlRcEZ5TGZ3?oc=5) |
+| Trump’s trade war victory is already under siege - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiZkFVX3lxTE55aWVXWl93UTF3bU1HNm5yRnFhei0xamJubEZ5MFd4VUEwQXpvQjRWRnFBR3NWQXUwN19KekRBa2hIZDRMUy1xNnZYSlVZamllT05wSV9pN3hGMHVVc1p2N0luNGcyZ9IBa0FVX3lxTE5UNzRBaHhhQUdHdEFjYld6djYyVUMzbkVfeV9EOERwaEQxMXNkZkNOQjZCM1RkY3A2WXkzMG5qajh4MlpvMW5tSUgweVNwVU92bTFBYWkySmJabHlvdDN1RTZWWFZ4N3l0YXAw?oc=5) |
 | Wiley Nickel ends short-lived Senate campaign in N.C. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPdFRuSmhLQTByV2tqa3dBci12UXhwRDJnZ3cyUnF4MUtZYVF3UmtTNTNZR0xWMUl5VXU2UE1RYnYzNUVBbGhvWXVjWm5rM0lRRy1UYzBTc1pFTUo2d21rWkpJU2JDamNiYkxzVHQ1dHZHT3JZMGZSS0ljWjRvWmpXX0FybmJFT1kxdmNKenBBRGVfcUNlbjFnRng3c200aDkzTFE?oc=5) |
-| ASP releases sketch of suspected killer in Devil's Den State Park double homicide - KATV | [阅读全文](https://news.google.com/rss/articles/CBMimgJBVV95cUxOVjRxZERtNlBMUUlLWlk4V2xCV2FNVVdMNEItWUJud2xsVWFkREhJSmxaN3p5ZW01NktWNlNrSTJscnlWY182QmtOX3IweVFNWEhVUTZYM3p1TnN6eS1qVGljS1NWMVBoLTB2a2gtUi00MlBzMXI5VmdKeVp5N3owZWw2dDlRSkJ2UXZzNV90d2ZZYWR5QndtT3g2eGR5TjZMcm5YOU9rblBjVkpWZ0w5X0xUY3pjMjBXZ3JBRWZENzdoOFMxWEd0b3ZScjFuZERnUS1QRkhYTWdRSlZMczYta2FhaVFROGpnQjV1OFZjd3Vka3gxQmRpZUFxWXRaUU1aLVRDOFJfRlNadU0wN3dSclQyWXN6RHlPUGc?oc=5) |
-| What the GOP’s megabill promotional plan doesn’t mention - Politico | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE9vaXhSQ1NqNW54b2tETk55Q0JacHM2US1tWHBCUUVZT1pSN003MnhJeExpY1BoQnRWdjhRSHpMbTQtc2N0MlRGeFNxQnJGN3NKRU5CR2M4Wm5pZnJFbXdkcU1DS3lIUVJMVGVGeW5MQktQV1RV?oc=5) |
 | Ukraine, Russia respond to Trump's new ceasefire deadline as strikes continue - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNOGU2Wmc1b2JVQ2ktS2FMZ2Q2cldBVFl5X183ZGhjMnREdnlveTdJYm9PVjZ3djFmaWVEQlM1N2l6c0F5WnpESlFJS0ptcmozZnpoWG5XM184b3ZKVWU2TEVJa1hrOTlDUVhjMzA5bm94SV9nX3N3NTlLc3B2S0F3TUYzdWp0bzV3QTAwc1dNa1RBV3lqbVFtMU9JcDFLLXdMZGwtV1JKXzZ4SjNBQ1ZmS3hkeG90YmvSAbwBQVVfeXFMT1FtZ3ZBaFlnMjdNMThMMlpkb2RrMmp1Mi1vaVRmZkJweTB5ODdXT2Q1SjdLc2h6NHA5dFJrdFB4TThYN3o2ZnBzdUVzaGNRUHRHb2NObDVUMDJOeUtuMUQ5MFdDdnFZWmVYOG5JSmptZ0wyR3V4c2xYU1YzUXhsSGJrd1cxLWFJUFI1emRySFFqYUd2QlJsQjZ5ZXQxN0thOE94bkZNUkF6a21OUDd1aUdrZ2tjVHFRdWRNc08?oc=5) |
+| Armed bystander who helped confront Walmart stabbing suspect speaks out - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxObzRkN19wWGRWa0hBTHBjbTgtSElhR0VtWXNad3ZCUnlEMjcxc1EyVkpyZ3pFWEUwb1hMMERFSE9RN2pic0xCOXQ4aWgzTTh2UUgtb01sckN1NmdIQVhKSGx3Tml6Q3h5SHYyZ09fX1M5Yks3ZDlVYlB4UFYybGRhY2dhZ3VoZHBKVGx6TG9FVVh2R0RoZTBzS0pYWVhrSzJGX2lr0gGoAUFVX3lxTFBXQ3hVVGFILVNSOGpCU2VQMlQ4SVFxSGt2b1E5OE1FTFZqY2ZsTEg2cVpFakNNNUNfVTVmcmNxVFZNNjNIRllhaU03aVpjU2FPdGxBWHpUcWFoMXZpU1hkbmJBVjlLTzFvOXRUbXNiTVZZeHl2X3VjblY3QU4ySENETy02MVJEODJOb3JtdldGNUwwVE9sYzFQWENZMnQ3aEliZjV1WTEyTg?oc=5) |
+| Famine unfolding across Gaza, says global hunger monitor - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQV05uc1lWTXRRQk1uaHRUaUxwTWZQY2lpTHM2Tlc2TFJBRE83LUpqU2JTOG1QeTRFTWRGZUVQdEM5ZHU5WlVYbUZtaG9ybVRaeGhKSkJ4WF9FUk9ibFh2OHlPSkdsQl95MDZqSnR3c1hJdHRobHRRZDluNEJsLTNndnBWcWEySHgzMko0Vw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。

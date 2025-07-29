@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月30日 00:40:25（北京时间）**
+🕒 更新时间：**2025年07月30日 00:52:19（北京时间）**
 
 ---
 
@@ -13,8 +13,8 @@
 | New York gunman was targeting NFL but went to wrong office, mayor says | [阅读全文](https://www.bbc.com/news/articles/c2en7k2e77wo?at_medium=RSS&at_campaign=rss) |
 | Trump's Scotland trip gives him three things he likes - and one thing he doesn't | [阅读全文](https://www.bbc.com/news/articles/cly42x8k55lo?at_medium=RSS&at_campaign=rss) |
 | Bereaved parents ‘horrified' by Leeds maternity services report | [阅读全文](https://www.bbc.com/news/articles/c5y2m51krkko?at_medium=RSS&at_campaign=rss) |
-| Police seek to question Tommy Robinson in connection with station assault | [阅读全文](https://www.bbc.com/news/articles/c209p0v5plwo?at_medium=RSS&at_campaign=rss) |
 | Dali painting bought for £150 could fetch £30k | [阅读全文](https://www.bbc.com/news/articles/c1jnr0xx479o?at_medium=RSS&at_campaign=rss) |
+| Police seek to question Tommy Robinson in connection with station assault | [阅读全文](https://www.bbc.com/news/articles/c209p0v5plwo?at_medium=RSS&at_campaign=rss) |
 | Farage demands apology after minister says he is on the side of 'people like Jimmy Savile' | [阅读全文](https://www.bbc.com/news/articles/cgery3eeqzxo?at_medium=RSS&at_campaign=rss) |
 | Man arrested after two killed in quadruple stabbing in south London | [阅读全文](https://www.bbc.com/news/articles/cz71wjv7yxwo?at_medium=RSS&at_campaign=rss) |
 | IMF upgrades global growth forecast as US tariffs ease | [阅读全文](https://www.bbc.com/news/articles/cn84gg2y5kpo?at_medium=RSS&at_campaign=rss) |
@@ -29,10 +29,10 @@
 | Jimmy Fallon Ridicules Trump’s Choice Words About Epstein Island - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNdHM0LVk2c1JHUWpfZWJXSFRBa080eGhvVXpvYVpOSzJDWHBqS3RZMEotUUREU29UNWFFNDMxcnF5eE5OWnA2WmJsVHJPM24xRzQtRWo3YXlFUW1STUhWTV9rQjU2emttaXR1a1NjWUloUmZxdEQtNmtvaFp0eENLb0FTVFFfTVJiUlE?oc=5) |
 | EPA looks to overturn the scientific reason for climate regulations - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE15cEVXSGpTcldjQlBwZmx5cFJtNHJ5YXFkN0p0enBMNm1FZWVHbERTOUdTTWFkUzhJU0RhaWdvSW1wRHV1RFRFeU5YNUZwMG5mazhhZGtwbklYOXNuNFRTVWRmcDhhbkJ4cmRqNWdzRXpxMWdOM0plYg?oc=5) |
 | Trump’s trade war victory is already under siege - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiZkFVX3lxTE55aWVXWl93UTF3bU1HNm5yRnFhei0xamJubEZ5MFd4VUEwQXpvQjRWRnFBR3NWQXUwN19KekRBa2hIZDRMUy1xNnZYSlVZamllT05wSV9pN3hGMHVVc1p2N0luNGcyZ9IBa0FVX3lxTE5UNzRBaHhhQUdHdEFjYld6djYyVUMzbkVfeV9EOERwaEQxMXNkZkNOQjZCM1RkY3A2WXkzMG5qajh4MlpvMW5tSUgweVNwVU92bTFBYWkySmJabHlvdDN1RTZWWFZ4N3l0YXAw?oc=5) |
-| Wiley Nickel ends short-lived Senate campaign in N.C. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPdFRuSmhLQTByV2tqa3dBci12UXhwRDJnZ3cyUnF4MUtZYVF3UmtTNTNZR0xWMUl5VXU2UE1RYnYzNUVBbGhvWXVjWm5rM0lRRy1UYzBTc1pFTUo2d21rWkpJU2JDamNiYkxzVHQ1dHZHT3JZMGZSS0ljWjRvWmpXX0FybmJFT1kxdmNKenBBRGVfcUNlbjFnRng3c200aDkzTFE?oc=5) |
-| ASP releases sketch of suspected killer in Devil's Den State Park double homicide - KATV | [阅读全文](https://news.google.com/rss/articles/CBMimgJBVV95cUxOVjRxZERtNlBMUUlLWlk4V2xCV2FNVVdMNEItWUJud2xsVWFkREhJSmxaN3p5ZW01NktWNlNrSTJscnlWY182QmtOX3IweVFNWEhVUTZYM3p1TnN6eS1qVGljS1NWMVBoLTB2a2gtUi00MlBzMXI5VmdKeVp5N3owZWw2dDlRSkJ2UXZzNV90d2ZZYWR5QndtT3g2eGR5TjZMcm5YOU9rblBjVkpWZ0w5X0xUY3pjMjBXZ3JBRWZENzdoOFMxWEd0b3ZScjFuZERnUS1QRkhYTWdRSlZMczYta2FhaVFROGpnQjV1OFZjd3Vka3gxQmRpZUFxWXRaUU1aLVRDOFJfRlNadU0wN3dSclQyWXN6RHlPUGc?oc=5) |
-| What the GOP’s megabill promotional plan doesn’t mention - Politico | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE9vaXhSQ1NqNW54b2tETk55Q0JacHM2US1tWHBCUUVZT1pSN003MnhJeExpY1BoQnRWdjhRSHpMbTQtc2N0MlRGeFNxQnJGN3NKRU5CR2M4Wm5pZnJFbXdkcU1DS3lIUVJMVGVGeW5MQktQV1RV?oc=5) |
+| Capitol agenda: Trump confirmations split Senate Dems - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxOdHRJTkhxSk0zTnl3UUY5R2RnTW5uNGl5TzNGTGsyZm01LWoxbVBrOFdhUU9wa1d2U2sweHBycG9QNnpkbV9nb3JqX0VlOE15bDJFaVd0WENkUDRZenktcENyck93U0pmSTBZbkptOHRwMHVmSE1TZzJlMnpSYVBOa01ZZTc4OC1WczdfdlR6cEZpb1pIbFVHY2RMc1AxY0huelRyZHhyX0JYRHZXT1lZUHRWVzM5c0Yyd3hvd09hbE1CUQ?oc=5) |
+| Democrats got a top Senate recruit in North Carolina. Now they’re trying to find more - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFAweVd6QlR3aVprM0YteGR4R0l5djNkUFlJTFY1QXg3ZlFXczBYUmZaeHVZdkR5NkpjVjN1bEJCNGdNVW5tUEcwVXYxZnhRLWVjaTVpaGdZSnlFRjRhMzhiM3BiQ0NDS2xVUVVEMUk5czJjYk1mRFJIV3A5b9IBgAFBVV95cUxPcmRXVC1tdXM2MGZtaXhGalcyeG05V1F5X2NySkdaUEhzd1hVeUs2dlBJR3BYb1JfOUhOZFNPY3Y5TVE0Qnk1elNqZDE4cERaUFNBMVVlU09aWTFQODhfRDJtckFTTnVpWE1DaXU0amtWQXNmZVUzTWtFZzI2dmNJUQ?oc=5) |
 | Ukraine, Russia respond to Trump's new ceasefire deadline as strikes continue - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNOGU2Wmc1b2JVQ2ktS2FMZ2Q2cldBVFl5X183ZGhjMnREdnlveTdJYm9PVjZ3djFmaWVEQlM1N2l6c0F5WnpESlFJS0ptcmozZnpoWG5XM184b3ZKVWU2TEVJa1hrOTlDUVhjMzA5bm94SV9nX3N3NTlLc3B2S0F3TUYzdWp0bzV3QTAwc1dNa1RBV3lqbVFtMU9JcDFLLXdMZGwtV1JKXzZ4SjNBQ1ZmS3hkeG90YmvSAbwBQVVfeXFMT1FtZ3ZBaFlnMjdNMThMMlpkb2RrMmp1Mi1vaVRmZkJweTB5ODdXT2Q1SjdLc2h6NHA5dFJrdFB4TThYN3o2ZnBzdUVzaGNRUHRHb2NObDVUMDJOeUtuMUQ5MFdDdnFZWmVYOG5JSmptZ0wyR3V4c2xYU1YzUXhsSGJrd1cxLWFJUFI1emRySFFqYUd2QlJsQjZ5ZXQxN0thOE94bkZNUkF6a21OUDd1aUdrZ2tjVHFRdWRNc08?oc=5) |
+| Armed bystander who helped confront Walmart stabbing suspect speaks out - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxObzRkN19wWGRWa0hBTHBjbTgtSElhR0VtWXNad3ZCUnlEMjcxc1EyVkpyZ3pFWEUwb1hMMERFSE9RN2pic0xCOXQ4aWgzTTh2UUgtb01sckN1NmdIQVhKSGx3Tml6Q3h5SHYyZ09fX1M5Yks3ZDlVYlB4UFYybGRhY2dhZ3VoZHBKVGx6TG9FVVh2R0RoZTBzS0pYWVhrSzJGX2lr0gGoAUFVX3lxTFBXQ3hVVGFILVNSOGpCU2VQMlQ4SVFxSGt2b1E5OE1FTFZqY2ZsTEg2cVpFakNNNUNfVTVmcmNxVFZNNjNIRllhaU03aVpjU2FPdGxBWHpUcWFoMXZpU1hkbmJBVjlLTzFvOXRUbXNiTVZZeHl2X3VjblY3QU4ySENETy02MVJEODJOb3JtdldGNUwwVE9sYzFQWENZMnQ3aEliZjV1WTEyTg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
