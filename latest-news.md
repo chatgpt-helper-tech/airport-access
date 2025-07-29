@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月29日 21:13:28（北京时间）**
+🕒 更新时间：**2025年07月29日 21:26:53（北京时间）**
 
 ---
 
@@ -8,15 +8,15 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Five women who were abused as children by Rotherham grooming gangs say they were also sexually abused by police | [阅读全文](https://www.bbc.com/news/articles/cn9y0lvpyqvo?at_medium=RSS&at_campaign=rss) |
 | Fans join Lionesses for 'unbelievable' Euros parade | [阅读全文](https://www.bbc.com/sport/football/articles/c6264m4me78o?at_medium=RSS&at_campaign=rss) |
 | Man arrested after two killed in quadruple stabbing in south London | [阅读全文](https://www.bbc.com/news/articles/cz71wjv7yxwo?at_medium=RSS&at_campaign=rss) |
-| Ozzy Osbourne's hearse to travel through home city Birmingham for fan procession | [阅读全文](https://www.bbc.com/news/articles/cgeryx3j01go?at_medium=RSS&at_campaign=rss) |
 | New York gunman was targeting NFL but went to wrong office, mayor says | [阅读全文](https://www.bbc.com/news/articles/c2en7k2e77wo?at_medium=RSS&at_campaign=rss) |
 | Farage demands apology after minister says he is 'on the side of people like Jimmy Savile' | [阅读全文](https://www.bbc.com/news/articles/cgery3eeqzxo?at_medium=RSS&at_campaign=rss) |
 | Rising meat and tea costs drive up food prices | [阅读全文](https://www.bbc.com/news/articles/c627gpekvw3o?at_medium=RSS&at_campaign=rss) |
 | Trump discusses whisky tariffs and Gaza with Swinney | [阅读全文](https://www.bbc.com/news/articles/cx2q5pwzz1yo?at_medium=RSS&at_campaign=rss) |
+| Ozzy Osbourne's hearse to travel through home city Birmingham for fan procession | [阅读全文](https://www.bbc.com/news/articles/cgeryx3j01go?at_medium=RSS&at_campaign=rss) |
 | Police investigate station assault as video appears to show Tommy Robinson | [阅读全文](https://www.bbc.com/news/articles/c209p0v5plwo?at_medium=RSS&at_campaign=rss) |
-| Beijing floods kill 30 as China sees summer of extreme weather | [阅读全文](https://www.bbc.com/news/articles/cg7j8x3xnrko?at_medium=RSS&at_campaign=rss) |
 | EE to launch phone plans which restrict internet for teens | [阅读全文](https://www.bbc.com/news/articles/cvg3lgdv3r7o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
