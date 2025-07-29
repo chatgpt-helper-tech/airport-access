@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月29日 23:27:06（北京时间）**
+🕒 更新时间：**2025年07月29日 23:40:41（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Europe Caves to Trump on Tariffs - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOTDFwcTlfNGVlQXcxLWFRWE56dW1fZlNsN2puNVVBZGFMNWRrb25PYWpoRjlldUsyWllVaTVrdE52TTNTRXhMcDlaY2F0SmJSa2N1MEU5eVhhMVQ2dmdrbGVHcGRoTElQa01LSmhzUVM5VTR5ZGVkWHlpSlIzWW82WQ?oc=5) |
 | Jimmy Fallon Ridicules Trump’s Choice Words About Epstein Island - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNdHM0LVk2c1JHUWpfZWJXSFRBa080eGhvVXpvYVpOSzJDWHBqS3RZMEotUUREU29UNWFFNDMxcnF5eE5OWnA2WmJsVHJPM24xRzQtRWo3YXlFUW1STUhWTV9rQjU2emttaXR1a1NjWUloUmZxdEQtNmtvaFp0eENLb0FTVFFfTVJiUlE?oc=5) |
 | Ukraine, Russia respond to Trump's new ceasefire deadline as strikes continue - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNOGU2Wmc1b2JVQ2ktS2FMZ2Q2cldBVFl5X183ZGhjMnREdnlveTdJYm9PVjZ3djFmaWVEQlM1N2l6c0F5WnpESlFJS0ptcmozZnpoWG5XM184b3ZKVWU2TEVJa1hrOTlDUVhjMzA5bm94SV9nX3N3NTlLc3B2S0F3TUYzdWp0bzV3QTAwc1dNa1RBV3lqbVFtMU9JcDFLLXdMZGwtV1JKXzZ4SjNBQ1ZmS3hkeG90YmvSAbwBQVVfeXFMT1FtZ3ZBaFlnMjdNMThMMlpkb2RrMmp1Mi1vaVRmZkJweTB5ODdXT2Q1SjdLc2h6NHA5dFJrdFB4TThYN3o2ZnBzdUVzaGNRUHRHb2NObDVUMDJOeUtuMUQ5MFdDdnFZWmVYOG5JSmptZ0wyR3V4c2xYU1YzUXhsSGJrd1cxLWFJUFI1emRySFFqYUd2QlJsQjZ5ZXQxN0thOE94bkZNUkF6a21OUDd1aUdrZ2tjVHFRdWRNc08?oc=5) |
-| DHS is urging DACA recipients to self-deport - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOY2ltT1JPT0lwMGlSYW9WTlZHZGVsdEtyczd5dXlhREQ5VlZncUpfdFVzWkV2ZFRPTjJ1bGg2UzJac3lDcUIwTDRlZkh2UnhXYzc4QUUtbXcxS2V4NWhYT0llMk5LRVE5NW10RzhGNHBBVXVZVVMzN1pxcWY0V1F1aUt3?oc=5) |
 | Wiley Nickel ends short-lived Senate campaign in N.C. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPdFRuSmhLQTByV2tqa3dBci12UXhwRDJnZ3cyUnF4MUtZYVF3UmtTNTNZR0xWMUl5VXU2UE1RYnYzNUVBbGhvWXVjWm5rM0lRRy1UYzBTc1pFTUo2d21rWkpJU2JDamNiYkxzVHQ1dHZHT3JZMGZSS0ljWjRvWmpXX0FybmJFT1kxdmNKenBBRGVfcUNlbjFnRng3c200aDkzTFE?oc=5) |
-| Trump’s trade war victory is already under siege - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiZkFVX3lxTE55aWVXWl93UTF3bU1HNm5yRnFhei0xamJubEZ5MFd4VUEwQXpvQjRWRnFBR3NWQXUwN19KekRBa2hIZDRMUy1xNnZYSlVZamllT05wSV9pN3hGMHVVc1p2N0luNGcyZ9IBa0FVX3lxTE5UNzRBaHhhQUdHdEFjYld6djYyVUMzbkVfeV9EOERwaEQxMXNkZkNOQjZCM1RkY3A2WXkzMG5qajh4MlpvMW5tSUgweVNwVU92bTFBYWkySmJabHlvdDN1RTZWWFZ4N3l0YXAw?oc=5) |
 | Armed bystander who helped confront Walmart stabbing suspect speaks out - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxObzRkN19wWGRWa0hBTHBjbTgtSElhR0VtWXNad3ZCUnlEMjcxc1EyVkpyZ3pFWEUwb1hMMERFSE9RN2pic0xCOXQ4aWgzTTh2UUgtb01sckN1NmdIQVhKSGx3Tml6Q3h5SHYyZ09fX1M5Yks3ZDlVYlB4UFYybGRhY2dhZ3VoZHBKVGx6TG9FVVh2R0RoZTBzS0pYWVhrSzJGX2lr0gGoAUFVX3lxTFBXQ3hVVGFILVNSOGpCU2VQMlQ4SVFxSGt2b1E5OE1FTFZqY2ZsTEg2cVpFakNNNUNfVTVmcmNxVFZNNjNIRllhaU03aVpjU2FPdGxBWHpUcWFoMXZpU1hkbmJBVjlLTzFvOXRUbXNiTVZZeHl2X3VjblY3QU4ySENETy02MVJEODJOb3JtdldGNUwwVE9sYzFQWENZMnQ3aEliZjV1WTEyTg?oc=5) |
 | Second night of severe storms leaves damage, power outages across wide swath of Minnesota - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOV0R0OUZaTjlfTUtHWmpSRzRoSXdiZ01tYVRJNEpUODdHRTZYNHFac1RMSEV3bXVXMllZcElOek13WUFFU3lZSGFrQTFJX2N2TFBaZUM3a3hqWEl1eXhyRERJS2h3bUlxbkktOERCR20xbEVwWl8zWFhwSXQyYzUwM0xqQWYxdktaaFdvUE1leThRTl9sM3VkVEU5Zlk3YXNsVF9SSjc5WFlRZw?oc=5) |
+| Trump's Environmental Protection Agency moves to repeal finding that allows climate regulation - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPa1dnQUduUG1MVzI0YUV1ZGtfM0pXR0dyMGo0emt2S1JBWnlnUFo0c1M3ejZGMU1XSXhGZTlvV0wzRjdNbEJwSzRiZk5sVnpEb3RncU5uODhUNURwX2pyX0VOTkxhUlhRMzZkTUFBMi1CNDNTNGVtT0hUZnFFNGZDUUxiemZQa1RXSUJJZnZOcE80eDMzOWlTYVM0YWkxZw?oc=5) |
+| Gaza crisis could get famine label, global hunger monitor says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi2AFBVV95cUxPVWlEZHIzNHVFQ2h5TVk4NFRPNGl0R1d6ZDFMeG14amV1UzlYZ3p3dEk0LVIyMnFZLWtWT1E5dmZHQ29QSDBBZGFTYXltclF1NmE2TkRYOE9mcnEwTEtNeEFTTHNESWY5QmdLdmFGX2VzOVdQbnRLblo0cTRkM2o3UWVKa2c3d2ZrRzZHcENDeUVqSDhMZmVrVTl6cmZUR3hFaXJ2bXNCX3BiM2lRV0pvVXpoRlpGUEZOQkdFY0ktSlhkNUlUR2dZX0F5ODVOc1lqVDI2MkRPTUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
