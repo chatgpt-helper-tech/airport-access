@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月29日 10:53:18（北京时间）**
+🕒 更新时间：**2025年07月29日 11:00:28（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Police search for suspect who fatally attacked couple in Arkansas’ Devil’s Den State Park - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNWmxMMmRrY202SVFTSzczTnpzaUpJbm54TWNfMEdvZ2piM2JjbmUwTVF6NTNrN3FBMGZmcGJKX1R0Y2c0Y29WSlBJZUxFc1pfTGQza1ZJWldGdzBlS2hHUV9zTVVUNGtDb01rM3FpbXVaaWVoQ21QWEo2NGhIVHRPdDVpMEg4bk9SRmpCU1pzVmFuMmdlbnVhLURVeDV0Tll6?oc=5) |
 | Judges press Trump administration on deportation quotas - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOdmRMUzl3SEdDc1VfRU9Vb0xxMHcwUUx3clBoTWtJcHZjbFdlZkZYR1RxeWJtRmh2X0dJcXBZMHdQUUhfQ3dPS01wdWhLb2t2dGxsSzFELTk0Z1QxZFZEVi1tWHhuWXpQcGpQTWJ4Ukk0UnByY012OTFPdG1RLVRIdFFlU05RTHh5bTE2VzJtRFZpZlBOenpTVFRQVWw?oc=5) |
 | Trump Gives Russia Less Than Two Weeks to End Its War in Ukraine - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOOWVWbkcyc1RERVdYTFp6NEVMQ2htd2hJeGg2eFA5QXhDYWVXNUE2VzNHejE5bElHUEZGaXhYT3Zwd2ktMmZCQ1pLbGFLd1FFZWRERm5rdHZuZTVIT0NxbDBpNDQtWVFZYm1ZMmE2c1lyTHFEX1J1aFlOVXFmaHdQek8xMldTeXBFTTNocnNtS3RyRVM5V2c?oc=5) |
-| Former Democratic Gov. Roy Cooper will run for the US Senate in North Carolina in 2026 - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPN000eWVhaGdBdWJ1enpoektPelZTZW9yQm84TUQtYkYtX05BMzkyeDNBYWhULU8tUVFVRHFNdnZZam1GeEdPbjBneS1DOVFLQ2RuQlVmRmMxT2Nhcm1rcGFaaUpUU3VKUmF0cVU0NlowQ1JScEFrRTdqRThwSmZZalJSd0ZTU0xKT2UwdXdzdEJ5ZHlWUWkwQjRXRjZXQWxK?oc=5) |
+| Ghislaine Maxwell asks US supreme court to overturn conviction - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPSXJ3dmhsS2l3M0hUQ2VTN0I0WmVsa0tSM19sLW94ZGNoeXRka3c1X0EwQW4wOUx2UnFkclNTSjRVZWVjYkptcS1uWF9TVUYyYTBIQ1RMXzB0NmNueDFxRVZ0Y0pVVXJUaWVwUVhQOGxiWkl5UnlOMy1MeEdyWUFrZmVIRWtGZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
