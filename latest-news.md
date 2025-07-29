@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月29日 19:27:07（北京时间）**
+🕒 更新时间：**2025年07月29日 19:40:13（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Gunman Fatally Shoots Officer and 3 Others in Midtown Office Tower - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPZmtwS3FRNUZDWmY2Znp4U1BJRDB1bXhOaE1QUnNvUmdDYXdvUFdnN1BsY21qN25yRktIZENJLW5JZDkxdWU4clFYVk1vWVJOQi1vcEo0dEFYYzM3Wi14SEFrS25NdkItRWhfT0l5YlR1RnpGbkc0ZDhJN2pLUnhmSlh6a25nMWJn?oc=5) |
+| Manhattan shooting suspect claimed to have CTE, mentioned NFL in note, sources say - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQRzVtMDFSRTF4Rkx3Q0w1VHUtRlA1ZXMtVnRXOXV5MVBNREJXZlhHMWtONWN4TGVlQzNsTjhHclNXMm5PMURwV3RsUkdsRjNiQVZlUXVuSmotVTJwaV94LXh5dktFOWkydVVGOUJvQmFTOXFuZm9WeWZpODdob3NKb3BaWXpVWFctMU9icjZ5Njg3S0pyanhWNW5MZlRXczjSAaQBQVVfeXFMTlBTNlM0MndYaHJ2RlhuakF0Tm5nMExzLXlOYUVzMzc4UkNOYlRvREYwa2FMcVFjMU1oNHc2SEh1NldHbFFKV2R5aE9sSWplVlJpM013X0RZdGJ3VVhYc1FjZzZzblZtQng4elJicHQzY0lmcUNZZG9CcWR4eDZIUnl0ZlBHS2wyXzFYTzFqa19KOXhJX2ZybVI3TXJmRGk3LTdMQkI?oc=5) |
 | Roles reversed: A veteran Gaza aid worker pleads for survival - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQQ0l5Nm9GbGR5aVhVOGxFRVB0cjByZjRBdVR1S04ySmkyS1hGQTRvOTA1WWNYTUpwd1JwSkhjMWVhR21DVnRMY3hJUzdsS3RjRnRkYnpmSEVjUTNmQS1mQV9HcjlCbFd4U180dWNYRG8tekJCZERwTkFKVXBacmRSbzhqUGpBZw?oc=5) |
 | France and Germany lead downbeat EU response to US trade deal - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE8tSl90TFFIMWlDbkpOWENzQnJRN1RJNTA5SlFWV0d4elZYeVN3Zm5SbDBnZUdKWHRCS1lhbm5sWjk3ZGg5RVVITExXQ1FvY0I0NGdOWVJyWmJaUdIBX0FVX3lxTE9fSnFxMl8tdF9yaGdLLURBX2ZubUFQYWx3Vmw1OHZCbEdka21haEk5WXAwOEdsMUJ2SFZqZXpNaHppY1Myc1VIVWNHU2h1dmEzWlpwVDN2WVBhcXlMUnY0?oc=5) |
 | Ghislaine Maxwell urges Supreme Court to hear her criminal appeal - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPM1BpaU93RjE2WE5kMkZ2amRyV2xQdmJlbVJjdkFoalhCYWYwSlc5TGE1cUNNTS1RUFR6cE9JU2tPUlpmcVpqV2ZQLVZPS3lIbFhHM1FwLXlTYml2cFExUUFlZkZFNzNFTzV6LU9wQktxQnBsSVVzUjdhaFZxTDV5cmlVZ093RjNKY0w0NVh5M0VWdjBLUkxMNFdFM2tSdXp0Q2NuLWNGUkwwMXZOOFdzM1lRRENTQlnSAVZBVV95cUxPMjdKNFNkSEIwNUw0eEpta0kzaGlBZzBmVGZBWm1HLUU0VllERE1ud0JUMjZCODdlTGtUeVgyZ2JQX1lPb18yNFNMMmh4TGlQbnljejdnUQ?oc=5) |
