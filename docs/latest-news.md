@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月29日 14:53:01（北京时间）**
+🕒 更新时间：**2025年07月29日 15:00:27（北京时间）**
 
 ---
 
@@ -12,10 +12,10 @@
 | Police officer among four dead in shooting at New York City office building | [阅读全文](https://www.bbc.com/news/articles/cn023751713o?at_medium=RSS&at_campaign=rss) |
 | London to celebrate victorious Lionesses with open-top bus parade | [阅读全文](https://www.bbc.com/news/articles/cpdjq3jd5npo?at_medium=RSS&at_campaign=rss) |
 | Two dead and two injured in stabbing at business | [阅读全文](https://www.bbc.com/news/articles/c39dlwdev08o?at_medium=RSS&at_campaign=rss) |
+| Google launches new AI search feature in UK | [阅读全文](https://www.bbc.com/news/articles/clyj4zky4zwo?at_medium=RSS&at_campaign=rss) |
 | Thailand accuses Cambodia of violating hours-old ceasefire | [阅读全文](https://www.bbc.com/news/articles/cly4l7j3e8zo?at_medium=RSS&at_campaign=rss) |
 | Raducanu wins Montreal opener, but Boulter exits | [阅读全文](https://www.bbc.com/sport/tennis/articles/cgm2ge7v7j1o?at_medium=RSS&at_campaign=rss) |
 | China offers parents $1,500 in bid to boost births | [阅读全文](https://www.bbc.com/news/articles/c776xgex02jo?at_medium=RSS&at_campaign=rss) |
-| Google launches new AI search feature in UK | [阅读全文](https://www.bbc.com/news/articles/clyj4zky4zwo?at_medium=RSS&at_campaign=rss) |
 | Reconsider Gaza family case, court tells Foreign Office | [阅读全文](https://www.bbc.com/news/articles/c4g0qeedgzwo?at_medium=RSS&at_campaign=rss) |
 | France and Germany lead downbeat EU response to US trade deal | [阅读全文](https://www.bbc.com/news/articles/c3ez97zv5y5o?at_medium=RSS&at_campaign=rss) |
 
@@ -30,9 +30,9 @@
 | States sue USDA over efforts to gather food stamp data on tens of millions of people - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1WUHU0X0FjOVdpajRKYkY5VkNzaUJEM3Y2dEMtYWlUMC1sNWlMTE1lVFd2NFpVODFiUVFOME90a1puWU9vaXhQWnMwQkM1SnMyUXhEaDF4b1ZkdkRlUnlVYnFYR1JsTjZhYV9HRzhwSm56ZDRKTEJjczV3?oc=5) |
 | Israel’s leader claims no one in Gaza is starving. Data and witnesses disagree - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPMl9zY0RmTTNCN3VvN1lJRDFtbnlDQVJBTUJqSXd2ZWd4Ym1ZbFA4dDREcUUzcGNaRmtBdmxXd0ZYX3QwZ3kzWEhfR3oycG5TbWVyeHVRdThQYWZEYW5NUGlhb0ZaR29UYmdmcGF5cGxDQi05N0VWWlk1dWF6OEhta19HUVlzOGFvRDdkcHJkQW01aDNuQVg0SHlnZkRPdWxNME9ZYzE1eHpuSUZkU0xXbEZpUQ?oc=5) |
 | Arkansas police release sketch drawing in search for killer at Devil’s Den State Park - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNWmxMMmRrY202SVFTSzczTnpzaUpJbm54TWNfMEdvZ2piM2JjbmUwTVF6NTNrN3FBMGZmcGJKX1R0Y2c0Y29WSlBJZUxFc1pfTGQza1ZJWldGdzBlS2hHUV9zTVVUNGtDb01rM3FpbXVaaWVoQ21QWEo2NGhIVHRPdDVpMEg4bk9SRmpCU1pzVmFuMmdlbnVhLURVeDV0Tll6?oc=5) |
-| North Korea says US must accept its status as a nuclear weapons state - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPMWYtcVFsYm5sX0dCQlQ2RVBRc2hQbU4wSkpsa1llaEMwZUVTU092UktqSnlweHNCOHdOcWJLc3VMN3ZTVjhYVkdXZ3hBLTRLMUFZZEV1UU5HRlRvVU5oeVl4RWtrUGtBYWhRWDRoQzFLN043WEhDbkl3cXV2QnhwV0ROLXloZXNMVzZwYmVVcUZHSGdXTnJ5MklfdFUyQW1DOHdNRjdvYkFMYkN1b1BwQjVqWdIBuAFBVV95cUxNMW5vcHJ2T29JamFSUWIwNXh1RTRVVTNSRjBnemVqejB4S0F1dnN3cmR2ZlNxOXMyWDdNSGZnamN5Q3p1YUhzMGQyb0ZXMkx1Rmd2RHBuQnhmZ3I1OFpubGJZbmZhT3hxUFRlRWhKb1ZudkE2OHhuY1VITkZsV1F6TTRYam5ES2xHcVJidlBmQVM4RTZlUEt3cktwTzhTRTY2UUZNY29rWTZnZ2JuRXhZM3ZIa2phOGN5?oc=5) |
 | Trump Says Rupert Murdoch Should Be Deposed Within 15 Days in Suit Over Epstein Article - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNcFRiSF9iajZzWlk0RE1fR2pnNUkyM0Z5R1h6SFA0eVRCcV92SFJkLTE3Q0hpeVc5Vkw3YTJGbVRnTi1DTnVkVkpma3VHSVF0ZVlJX3NfbWZmdUVvRzBBWFFFWUxzMVp5TkxvZDM2OVpyY3FrTXdSYkRxVlpyOW1ETWItTUNDWXlFMkdsVHJjQ0cwOWM?oc=5) |
 | Severe weather risk favors southern Minnesota overnight - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOMzZzVURRT0ZGVXNGWTY1OURmbThXamluN3Y4bXRRTXRpUFpOYmYydFVaQkR2SUNkZGwtQVh0VFNuQWFXblZyejNicGQteU1VSFZYT01wbHRHa281bl9URXRiTVRwdzVJRm0ya3JTcGVtRWozeDZMemZLWHExalN0S3RjRFlQdmgwX3NRRmRlZ0FTeTdaSGVFaktfTlg?oc=5) |
+| Medicaid funding to Planned Parenthood must continue, court rules - Axios | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQZWVCZlQyTjhYWnJiMDNRMnZhVUlQNnZ2MVNqSEFQYUdCNjhlc19BRVVRZlM2bV9vYUUwR090OG1Od29yb1ZITTFRUGVrNHNDTU52RmY2R2lyamJ4SnpLMFFEcmtvR28telEtSF9ZRHNWTXpuMUNwTzlFWFg4X2VSMWFJSmFhbG5FZndoaXhYQW51dEozRk9zQg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
