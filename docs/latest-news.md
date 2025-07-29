@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月29日 16:27:55（北京时间）**
+🕒 更新时间：**2025年07月29日 16:39:35（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | What we know about Shane Devon Tamura, the suspect of the Midtown Manhattan shooting - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPWG1iV0lCS0NENDVUNkduME1XcGc2VUlBNGFFSFhrMm5vWnFhQkxNT0FhMkpPLXBRTXQ0X1hVRlkyU05BaG1KdTFfTnI5SE1EU2ZOZUdwbEFDckpOMmlEZHNUNTJQTWdrenYycXhFdm5lQ2VMQ01CR3lPWFotVnBEQkQyOTNVak91NmN4d2dmMzBaaGZ4NHd5MW5IWklTQzQ?oc=5) |
 | Trump acknowledges ‘real starvation’ in Gaza and tells Israel to let in ‘every ounce of food’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxPZFp1SVdoYXpsOHFuOUlReDljdUlRbUIwajdYcDF5aGZTdjNSalhQQ0p1MXRoMGJma2hSeTJVYk1JMEFVQkxBZ3RZSHA4XzdmckpoMW4wMFlQT2ZJWVF6QmU2eTd5cXJkVHl2S3NDTWhoZjlOUTY4a0FBdkF1ei13ZTBXQ1lGQTVEVEVJSlJSbzZvdE04ZUZyMDA1YVNvTVYxM2NwTXNRZHh0V1ZaNXZ1X2hYaFc0V3lOVDk0dFFSSTYtUmFSN3oxa2VKeFM3YU92VkpF?oc=5) |
-| 3 killed in Reno casino shooting at Grand Sierra Resort; suspect in critical condition - Reno Gazette Journal | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPLWtNenBhV1RDalRRdnhKSVBUSDlwdl9DRlUyRDN4MWhVWE1fUGVfTDlodDZNZUxwV0IzaFFVbDhwVUp4aHRid0p2SjFHVnFuTmh5M2N3V043V1BlS004Y2dFQngwMVAwVVdtdC1VLWwxVHpiYXhETHozbldHTzZ4clBYVGNSc3c0VXlqbDB4YnNNa2ZnVkI5N25aQWlMdmtCZzN1RXRIZTQ?oc=5) |
 | To avoid worst of Trump tariffs, E.U. accepted a lopsided deal - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNV3dzeVBnUkFPMDlJTjZGQjhFRkVRMHA4ZTlaVzFpdlY0b2NvN2lsOTJDeEhrT2ttaWlTbGtMLTFJSzZkLTBZb0NfZXh3N01VLWJTU3ZEOWFTX3VnZ19QSHlBZXZZUDZRZTczTzI0TFRWak01aDFiQVlZSEhBN094UEF6MW5iSmNaRklF?oc=5) |
+| 3 killed in Reno casino shooting at Grand Sierra Resort; suspect in critical condition - Reno Gazette Journal | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPLWtNenBhV1RDalRRdnhKSVBUSDlwdl9DRlUyRDN4MWhVWE1fUGVfTDlodDZNZUxwV0IzaFFVbDhwVUp4aHRid0p2SjFHVnFuTmh5M2N3V043V1BlS004Y2dFQngwMVAwVVdtdC1VLWwxVHpiYXhETHozbldHTzZ4clBYVGNSc3c0VXlqbDB4YnNNa2ZnVkI5N25aQWlMdmtCZzN1RXRIZTQ?oc=5) |
 | States sue USDA over efforts to gather food stamp data on tens of millions of people - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1WUHU0X0FjOVdpajRKYkY5VkNzaUJEM3Y2dEMtYWlUMC1sNWlMTE1lVFd2NFpVODFiUVFOME90a1puWU9vaXhQWnMwQkM1SnMyUXhEaDF4b1ZkdkRlUnlVYnFYR1JsTjZhYV9HRzhwSm56ZDRKTEJjczV3?oc=5) |
 | Israel’s leader claims no one in Gaza is starving. Data and witnesses disagree - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPMl9zY0RmTTNCN3VvN1lJRDFtbnlDQVJBTUJqSXd2ZWd4Ym1ZbFA4dDREcUUzcGNaRmtBdmxXd0ZYX3QwZ3kzWEhfR3oycG5TbWVyeHVRdThQYWZEYW5NUGlhb0ZaR29UYmdmcGF5cGxDQi05N0VWWlk1dWF6OEhta19HUVlzOGFvRDdkcHJkQW01aDNuQVg0SHlnZkRPdWxNME9ZYzE1eHpuSUZkU0xXbEZpUQ?oc=5) |
 | Arkansas police release sketch drawing in search for killer at Devil’s Den State Park - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNWmxMMmRrY202SVFTSzczTnpzaUpJbm54TWNfMEdvZ2piM2JjbmUwTVF6NTNrN3FBMGZmcGJKX1R0Y2c0Y29WSlBJZUxFc1pfTGQza1ZJWldGdzBlS2hHUV9zTVVUNGtDb01rM3FpbXVaaWVoQ21QWEo2NGhIVHRPdDVpMEg4bk9SRmpCU1pzVmFuMmdlbnVhLURVeDV0Tll6?oc=5) |
