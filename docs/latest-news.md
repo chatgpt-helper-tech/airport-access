@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月30日 07:01:20（北京时间）**
+🕒 更新时间：**2025年07月30日 07:13:06（北京时间）**
 
 ---
 
@@ -11,21 +11,21 @@
 | UK to recognise Palestinian state unless Israel meets conditions | [阅读全文](https://www.bbc.com/news/articles/cpdjvn1eeplo?at_medium=RSS&at_campaign=rss) |
 | Watch: How did Gaza get to the brink of starvation? | [阅读全文](https://www.bbc.com/news/videos/cjey0v4xjz9o?at_medium=RSS&at_campaign=rss) |
 | Women abused as children by Rotherham gangs say police also sexually assaulted them | [阅读全文](https://www.bbc.com/news/articles/cn9y0lvpyqvo?at_medium=RSS&at_campaign=rss) |
-| Watch: Sarina Wiegman dances for joy as Lionesses celebrate Euros win | [阅读全文](https://www.bbc.com/news/videos/c15l444q9k8o?at_medium=RSS&at_campaign=rss) |
+| The doctor strike is ending - what comes next? | [阅读全文](https://www.bbc.com/news/articles/c4glxxxj3e0o?at_medium=RSS&at_campaign=rss) |
+| UK gets first female Astronomer Royal in 350 years | [阅读全文](https://www.bbc.com/news/articles/c741lll88q5o?at_medium=RSS&at_campaign=rss) |
 | The ordinary rush-hour that became  two hours of terror in a New York skyscraper | [阅读全文](https://www.bbc.com/news/articles/cy85737235go?at_medium=RSS&at_campaign=rss) |
 | Trump's Scotland trip gives him three things he likes - and one thing he doesn't | [阅读全文](https://www.bbc.com/news/articles/cly42x8k55lo?at_medium=RSS&at_campaign=rss) |
 | Theft of royal items prompts £3m insurance payout | [阅读全文](https://www.bbc.com/news/articles/cy40nn3v9p9o?at_medium=RSS&at_campaign=rss) |
 | Father and son killed in London stabbing named | [阅读全文](https://www.bbc.com/news/articles/cz71wjv7yxwo?at_medium=RSS&at_campaign=rss) |
 | Russian strikes kill 25 in Ukraine, as Trump confirms deadline for talks | [阅读全文](https://www.bbc.com/news/articles/cj0y45mdjp7o?at_medium=RSS&at_campaign=rss) |
-| Police seek to question Tommy Robinson in connection with station assault | [阅读全文](https://www.bbc.com/news/articles/c209p0v5plwo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | What we know about Midtown Manhattan mass shooting suspect Shane Devon Tamura - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPWG1iV0lCS0NENDVUNkduME1XcGc2VUlBNGFFSFhrMm5vWnFhQkxNT0FhMkpPLXBRTXQ0X1hVRlkyU05BaG1KdTFfTnI5SE1EU2ZOZUdwbEFDckpOMmlEZHNUNTJQTWdrenYycXhFdm5lQ2VMQ01CR3lPWFotVnBEQkQyOTNVak91NmN4d2dmMzBaaGZ4NHd5MW5IWklTQzQ?oc=5) |
-| E.P.A. Moves to Revoke the Legal Basis for Tackling Climate Change - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPd2VCeG9KMTRabk1qTDRfYXRyajgtUi0tVlFRWGRZZjRZeVZfdzVzMnljalQ3eFBWa1A3RTBlV2xFYU5jZUxkdm9QZ2ZERkdyM1FWam1EekZjTWc3TWNQNXZRUXFkUzdvZHM0LUNhNXFDUUpYY0dOeTJFTW5kTHQ5QloxajJPNjJWOFlzdGw4eGpyUQ?oc=5) |
 | Trump says his falling out with Jeffrey Epstein was over spa workers at Mar-a-Lago - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNc3ZUMFlkY0F3VUtQSVNtTE1nVHAzdF9ULUhSckhYai1vNjZ3a0hDWHpydllVTFgxSTAyQ3ZjUV9acFpjLUlYTWZRVTJpUU9OR1JRT09ESjBuYS1vZG94Vm40VEU2X0ZlTll4X2VReDNrVkUxUmZNWmVaMDlhS1U5UElESGR0WkUzU1o0NFhFZGxoeWoxMGN6dzRrWQ?oc=5) |
+| E.P.A. Moves to Revoke the Legal Basis for Tackling Climate Change - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPd2VCeG9KMTRabk1qTDRfYXRyajgtUi0tVlFRWGRZZjRZeVZfdzVzMnljalQ3eFBWa1A3RTBlV2xFYU5jZUxkdm9QZ2ZERkdyM1FWam1EekZjTWc3TWNQNXZRUXFkUzdvZHM0LUNhNXFDUUpYY0dOeTJFTW5kTHQ5QloxajJPNjJWOFlzdGw4eGpyUQ?oc=5) |
 | Trump brushes off European push on recognizing Palestinian statehood - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPMjVsUjUwSy1wbmpQNXJyNVpyOGswU2owTnlvcXRfNGxYUXB3TldfMVlSY2hYQThvbHJnV2lHSUstampjVm4zWHlwaUFSWTJqdWFjeVpjSmdoLU9pdTJ3NHhXUDZFT0o2OEpuQ3B3RFBaT2U3NzlGVlY0a3BacTZZTQ?oc=5) |
 | House Oversight Committee rejects Ghislaine Maxwell's request for immunity in exchange for her testimony - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxPVk9wX20zcVlxUnNueXprdks4aWpTc2NNX0NOb05IdVh2XzhhbmN2cWoyNzBZTENLM1o0X2djMUlMby1jQU4xQThDUGZrRS1QU3dLVm9JX1Zqb3djTzFpYTlpczdIYXRpaU92bTN1bE8yNGhNOEJRTEhMNVg2QzJvaDBiOWZ3M1FrNTlsaGI5RVhySzhvZnAxZkhRdi1wNWhsbXFXRVE0cWFmdF9xTE5kTXVyTTdJb250Z2V5b0lkMNIBVkFVX3lxTE1lMlNlY1FkYlE5UF9lWGRBZjhLZE5BdjBsTHR2THlHMjRzR2xhN1M3eE0zN0xCX05sbUY4QnFhQVdLMUkzTzBzQnZZMXhyZkFvWkJjdUln?oc=5) |
 | Trump Used Your Tax Dollars to Open His New Scottish Golf Course - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQVlAtMVZEMWQ2SlVOSkJUbTZuN0JySkRVS3F4ZjBrR0NjWkNqLWJnbFZiMGN5T2pmRF9UQmVvWWZvNkg4MzRyektVR3ZHYTBNRTBCRGsxOHo4MzN4TjlQSS1RNjZXWVFXUm5FWU1XSGluR0YtNXM4MU0tMUh6SkQ5THhybWwxRDF5MU5SZ1QtMXdibkxpMVNDUkhoTXVkU2YwSFVfSVBuTm5YX3FWblFVczVyYktjRVBT?oc=5) |
