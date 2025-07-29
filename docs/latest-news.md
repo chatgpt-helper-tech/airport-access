@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月29日 21:01:27（北京时间）**
+🕒 更新时间：**2025年07月29日 21:13:28（北京时间）**
 
 ---
 
@@ -8,25 +8,25 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Fans join Lionesses for 'unbelievable' Euros parade | [阅读全文](https://www.bbc.com/sport/football/articles/c6264m4me78o?at_medium=RSS&at_campaign=rss) |
 | Man arrested after two killed in quadruple stabbing in south London | [阅读全文](https://www.bbc.com/news/articles/cz71wjv7yxwo?at_medium=RSS&at_campaign=rss) |
 | Ozzy Osbourne's hearse to travel through home city Birmingham for fan procession | [阅读全文](https://www.bbc.com/news/articles/cgeryx3j01go?at_medium=RSS&at_campaign=rss) |
-| New York gunman left note blaming NFL for brain injury, mayor says | [阅读全文](https://www.bbc.com/news/articles/c2en7k2e77wo?at_medium=RSS&at_campaign=rss) |
+| New York gunman was targeting NFL but went to wrong office, mayor says | [阅读全文](https://www.bbc.com/news/articles/c2en7k2e77wo?at_medium=RSS&at_campaign=rss) |
 | Farage demands apology after minister says he is 'on the side of people like Jimmy Savile' | [阅读全文](https://www.bbc.com/news/articles/cgery3eeqzxo?at_medium=RSS&at_campaign=rss) |
 | Rising meat and tea costs drive up food prices | [阅读全文](https://www.bbc.com/news/articles/c627gpekvw3o?at_medium=RSS&at_campaign=rss) |
 | Trump discusses whisky tariffs and Gaza with Swinney | [阅读全文](https://www.bbc.com/news/articles/cx2q5pwzz1yo?at_medium=RSS&at_campaign=rss) |
-| Police probe St Pancras assault as video appears to show Tommy Robinson at station | [阅读全文](https://www.bbc.com/news/articles/c209p0v5plwo?at_medium=RSS&at_campaign=rss) |
+| Police investigate station assault as video appears to show Tommy Robinson | [阅读全文](https://www.bbc.com/news/articles/c209p0v5plwo?at_medium=RSS&at_campaign=rss) |
 | Beijing floods kill 30 as China sees summer of extreme weather | [阅读全文](https://www.bbc.com/news/articles/cg7j8x3xnrko?at_medium=RSS&at_campaign=rss) |
 | EE to launch phone plans which restrict internet for teens | [阅读全文](https://www.bbc.com/news/articles/cvg3lgdv3r7o?at_medium=RSS&at_campaign=rss) |
-| 'So terrifying' - New Yorkers describe scrambling for cover in rush-hour skyscraper shooting | [阅读全文](https://www.bbc.com/news/articles/clyj4y145xxo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Manhattan shooting suspect claimed to have CTE, mentioned NFL in note, sources say - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQRzVtMDFSRTF4Rkx3Q0w1VHUtRlA1ZXMtVnRXOXV5MVBNREJXZlhHMWtONWN4TGVlQzNsTjhHclNXMm5PMURwV3RsUkdsRjNiQVZlUXVuSmotVTJwaV94LXh5dktFOWkydVVGOUJvQmFTOXFuZm9WeWZpODdob3NKb3BaWXpVWFctMU9icjZ5Njg3S0pyanhWNW5MZlRXczjSAaQBQVVfeXFMTlBTNlM0MndYaHJ2RlhuakF0Tm5nMExzLXlOYUVzMzc4UkNOYlRvREYwa2FMcVFjMU1oNHc2SEh1NldHbFFKV2R5aE9sSWplVlJpM013X0RZdGJ3VVhYc1FjZzZzblZtQng4elJicHQzY0lmcUNZZG9CcWR4eDZIUnl0ZlBHS2wyXzFYTzFqa19KOXhJX2ZybVI3TXJmRGk3LTdMQkI?oc=5) |
+| Europe Caves to Trump on Tariffs - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOTDFwcTlfNGVlQXcxLWFRWE56dW1fZlNsN2puNVVBZGFMNWRrb25PYWpoRjlldUsyWllVaTVrdE52TTNTRXhMcDlaY2F0SmJSa2N1MEU5eVhhMVQ2dmdrbGVHcGRoTElQa01LSmhzUVM5VTR5ZGVkWHlpSlIzWW82WQ?oc=5) |
 | Roles reversed: A veteran Gaza aid worker pleads for survival - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQQ0l5Nm9GbGR5aVhVOGxFRVB0cjByZjRBdVR1S04ySmkyS1hGQTRvOTA1WWNYTUpwd1JwSkhjMWVhR21DVnRMY3hJUzdsS3RjRnRkYnpmSEVjUTNmQS1mQV9HcjlCbFd4U180dWNYRG8tekJCZERwTkFKVXBacmRSbzhqUGpBZw?oc=5) |
 | Trump lawsuit against Murdoch and 'Wall Street Journal' turns personal - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPWmxYLXJWbkMzaDdFMklaRTduel9Gc1Iwa00wd3Q0bTROSzhBZ0FnakFEbTFxRGRpckRGSVB0TUdacGtkOFlZTTEzdW80cjY0YlJOSTF6ZVk1OUFPcDBqVVhOSXZjb29fZGEtdzNNX0ZmZzBJSWlCSGdXNXFUcWhUUWUxdFZxLWFnOHFmS2dB?oc=5) |
-| Europe Caves to Trump on Tariffs - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOTDFwcTlfNGVlQXcxLWFRWE56dW1fZlNsN2puNVVBZGFMNWRrb25PYWpoRjlldUsyWllVaTVrdE52TTNTRXhMcDlaY2F0SmJSa2N1MEU5eVhhMVQ2dmdrbGVHcGRoTElQa01LSmhzUVM5VTR5ZGVkWHlpSlIzWW82WQ?oc=5) |
 | A frustrated Trump gives more details on his relationship with Epstein, as the scandal follows him abroad - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxObTlBUGtfb01yZ1Zjc3NaaW5wekEzbDJfTTkzcnBZMWprTDNjMHF0SkppMmZJYUlKMGZTb0RjUkRIMzFOcmVzRGwwRWFCdGcxaHRzU3NEWUhwM0ZwYU5GWjhxUFpBOWlDRGlSRE44MVg5TDNPMS1MT1o3bFVpcVBKMEtsRF9KWnplemVn0gGQAUFVX3lxTE1id21iTWM0UTY2Qm9VeTk4YURJM3lzbU1ha0hkLWpuaW4yR3daT1BKQ3ZsS3l1Y2ZHUHZIZVQzQUptNmhfLUo4WkJDenNBVlhMMjB2YS1vRXBQZDZtOXZXVUpjNE5GZ3B5dXlnYkNmUkVmaFZpSjZhcFVXaTJCc1U4ZU1sQXNTd1l3X01nd09xNw?oc=5) |
 | DHS is urging DACA recipients to self-deport - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOY2ltT1JPT0lwMGlSYW9WTlZHZGVsdEtyczd5dXlhREQ5VlZncUpfdFVzWkV2ZFRPTjJ1bGg2UzJac3lDcUIwTDRlZkh2UnhXYzc4QUUtbXcxS2V4NWhYT0llMk5LRVE5NW10RzhGNHBBVXVZVVMzN1pxcWY0V1F1aUt3?oc=5) |
 | Trump Is Winning His Trade War. What Will That Mean for the Economy? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPNmJrdjhXVlUtYnRhbnh3MmZIYUpkcGJ1ejAzUXdxd0p5Vzg5LUxlVm1YQ3NDbHFUUmVfeThfRExsaG5FSEdXNDJMX3FBLUF4RGdoZFNWNVdTZGJybmN0SGNWRWlLQ0NmX3d5dHJGd2U5dXlwWHFfWFA4NmRvTDdoOVIyZWw?oc=5) |
