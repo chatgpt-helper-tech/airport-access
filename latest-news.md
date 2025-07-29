@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月29日 20:27:12（北京时间）**
+🕒 更新时间：**2025年07月29日 20:39:12（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Gunman Fatally Shoots Officer and 3 Others in Midtown Office Tower (Gift Article) - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPZmtwS3FRNUZDWmY2Znp4U1BJRDB1bXhOaE1QUnNvUmdDYXdvUFdnN1BsY21qN25yRktIZENJLW5JZDkxdWU4clFYVk1vWVJOQi1vcEo0dEFYYzM3Wi14SEFrS25NdkItRWhfT0l5YlR1RnpGbkc0ZDhJN2pLUnhmSlh6a25nMWJn?oc=5) |
+| Manhattan shooting suspect claimed to have CTE, mentioned NFL in note, sources say - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQRzVtMDFSRTF4Rkx3Q0w1VHUtRlA1ZXMtVnRXOXV5MVBNREJXZlhHMWtONWN4TGVlQzNsTjhHclNXMm5PMURwV3RsUkdsRjNiQVZlUXVuSmotVTJwaV94LXh5dktFOWkydVVGOUJvQmFTOXFuZm9WeWZpODdob3NKb3BaWXpVWFctMU9icjZ5Njg3S0pyanhWNW5MZlRXczjSAaQBQVVfeXFMTlBTNlM0MndYaHJ2RlhuakF0Tm5nMExzLXlOYUVzMzc4UkNOYlRvREYwa2FMcVFjMU1oNHc2SEh1NldHbFFKV2R5aE9sSWplVlJpM013X0RZdGJ3VVhYc1FjZzZzblZtQng4elJicHQzY0lmcUNZZG9CcWR4eDZIUnl0ZlBHS2wyXzFYTzFqa19KOXhJX2ZybVI3TXJmRGk3LTdMQkI?oc=5) |
 | Roles reversed: A veteran Gaza aid worker pleads for survival - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQQ0l5Nm9GbGR5aVhVOGxFRVB0cjByZjRBdVR1S04ySmkyS1hGQTRvOTA1WWNYTUpwd1JwSkhjMWVhR21DVnRMY3hJUzdsS3RjRnRkYnpmSEVjUTNmQS1mQV9HcjlCbFd4U180dWNYRG8tekJCZERwTkFKVXBacmRSbzhqUGpBZw?oc=5) |
-| The EU’s ‘fantasy’ $750B energy promise to Trump - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNSElLQ1hHbXFjcERWMEtMU0o4d3JWRXM3TVNnU1VqUnpZYnhlU0VsTlNUTFFWVDlLdGVvWlRGbEZjYnBva0ZiZVl0N3hIY1ZyZG9VcGNWaXRJaXBmaVJXLUVPTTV1c2FBQzVoYkI4VXhiZi13XzBUUlpkTUlsYWRDMXdB?oc=5) |
 | Trump lawsuit against Murdoch and 'Wall Street Journal' turns personal - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPWmxYLXJWbkMzaDdFMklaRTduel9Gc1Iwa00wd3Q0bTROSzhBZ0FnakFEbTFxRGRpckRGSVB0TUdacGtkOFlZTTEzdW80cjY0YlJOSTF6ZVk1OUFPcDBqVVhOSXZjb29fZGEtdzNNX0ZmZzBJSWlCSGdXNXFUcWhUUWUxdFZxLWFnOHFmS2dB?oc=5) |
+| France and Germany lead downbeat EU response to US trade deal - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE8tSl90TFFIMWlDbkpOWENzQnJRN1RJNTA5SlFWV0d4elZYeVN3Zm5SbDBnZUdKWHRCS1lhbm5sWjk3ZGg5RVVITExXQ1FvY0I0NGdOWVJyWmJaUdIBX0FVX3lxTE9fSnFxMl8tdF9yaGdLLURBX2ZubUFQYWx3Vmw1OHZCbEdka21haEk5WXAwOEdsMUJ2SFZqZXpNaHppY1Myc1VIVWNHU2h1dmEzWlpwVDN2WVBhcXlMUnY0?oc=5) |
 | DHS is urging DACA recipients to self-deport - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOY2ltT1JPT0lwMGlSYW9WTlZHZGVsdEtyczd5dXlhREQ5VlZncUpfdFVzWkV2ZFRPTjJ1bGg2UzJac3lDcUIwTDRlZkh2UnhXYzc4QUUtbXcxS2V4NWhYT0llMk5LRVE5NW10RzhGNHBBVXVZVVMzN1pxcWY0V1F1aUt3?oc=5) |
 | Ghislaine Maxwell asks US supreme court to overturn conviction - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPSXJ3dmhsS2l3M0hUQ2VTN0I0WmVsa0tSM19sLW94ZGNoeXRka3c1X0EwQW4wOUx2UnFkclNTSjRVZWVjYkptcS1uWF9TVUYyYTBIQ1RMXzB0NmNueDFxRVZ0Y0pVVXJUaWVwUVhQOGxiWkl5UnlOMy1MeEdyWUFrZmVIRWtGZw?oc=5) |
 | Trump's "devil in the details" trade deals sow confusion - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE0zVzdjSTBkdUI0bFF3UGY4OXpuQ1pCNFVkWnZSMDZTZkVjWnVXcXoxcnRVMnkzY3hyTzJNUldMUEExcFlyUWh2ZzFLYkpMRHpvRDBkT2kwSHBtSUJObFJFX1o0YWJsdnVQc0E?oc=5) |
