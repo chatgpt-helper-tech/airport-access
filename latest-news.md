@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月29日 15:13:06（北京时间）**
+🕒 更新时间：**2025年07月29日 15:27:44（北京时间）**
 
 ---
 
@@ -11,12 +11,12 @@
 | Chris Mason: Trump visit provides Starmer with invaluable access | [阅读全文](https://www.bbc.com/news/articles/cdrkj4nvy22o?at_medium=RSS&at_campaign=rss) |
 | Police officer among four dead in shooting at New York City office building | [阅读全文](https://www.bbc.com/news/articles/cn023751713o?at_medium=RSS&at_campaign=rss) |
 | London to celebrate victorious Lionesses with open-top bus parade | [阅读全文](https://www.bbc.com/news/articles/cpdjq3jd5npo?at_medium=RSS&at_campaign=rss) |
-| Two dead and two injured in stabbing at business | [阅读全文](https://www.bbc.com/news/articles/c39dlwdev08o?at_medium=RSS&at_campaign=rss) |
+| Two dead and two injured in stabbing at business in south London | [阅读全文](https://www.bbc.com/news/articles/c39dlwdev08o?at_medium=RSS&at_campaign=rss) |
 | Google launches new AI search feature in UK | [阅读全文](https://www.bbc.com/news/articles/clyj4zky4zwo?at_medium=RSS&at_campaign=rss) |
 | Thailand accuses Cambodia of violating hours-old ceasefire | [阅读全文](https://www.bbc.com/news/articles/cly4l7j3e8zo?at_medium=RSS&at_campaign=rss) |
+| Trump to meet First Minister Swinney and open golf course on final day of visit | [阅读全文](https://www.bbc.com/news/articles/cx2q5pwzz1yo?at_medium=RSS&at_campaign=rss) |
 | Raducanu wins Montreal opener, but Boulter exits | [阅读全文](https://www.bbc.com/sport/tennis/articles/cgm2ge7v7j1o?at_medium=RSS&at_campaign=rss) |
 | China offers parents $1,500 in bid to boost births | [阅读全文](https://www.bbc.com/news/articles/c776xgex02jo?at_medium=RSS&at_campaign=rss) |
-| Reconsider Gaza family case, court tells Foreign Office | [阅读全文](https://www.bbc.com/news/articles/c4g0qeedgzwo?at_medium=RSS&at_campaign=rss) |
 | France and Germany lead downbeat EU response to US trade deal | [阅读全文](https://www.bbc.com/news/articles/c3ez97zv5y5o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -32,7 +32,7 @@
 | Arkansas police release sketch drawing in search for killer at Devil’s Den State Park - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNWmxMMmRrY202SVFTSzczTnpzaUpJbm54TWNfMEdvZ2piM2JjbmUwTVF6NTNrN3FBMGZmcGJKX1R0Y2c0Y29WSlBJZUxFc1pfTGQza1ZJWldGdzBlS2hHUV9zTVVUNGtDb01rM3FpbXVaaWVoQ21QWEo2NGhIVHRPdDVpMEg4bk9SRmpCU1pzVmFuMmdlbnVhLURVeDV0Tll6?oc=5) |
 | Trump Says Rupert Murdoch Should Be Deposed Within 15 Days in Suit Over Epstein Article - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNcFRiSF9iajZzWlk0RE1fR2pnNUkyM0Z5R1h6SFA0eVRCcV92SFJkLTE3Q0hpeVc5Vkw3YTJGbVRnTi1DTnVkVkpma3VHSVF0ZVlJX3NfbWZmdUVvRzBBWFFFWUxzMVp5TkxvZDM2OVpyY3FrTXdSYkRxVlpyOW1ETWItTUNDWXlFMkdsVHJjQ0cwOWM?oc=5) |
 | Severe weather risk favors southern Minnesota overnight - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOMzZzVURRT0ZGVXNGWTY1OURmbThXamluN3Y4bXRRTXRpUFpOYmYydFVaQkR2SUNkZGwtQVh0VFNuQWFXblZyejNicGQteU1VSFZYT01wbHRHa281bl9URXRiTVRwdzVJRm0ya3JTcGVtRWozeDZMemZLWHExalN0S3RjRFlQdmgwX3NRRmRlZ0FTeTdaSGVFaktfTlg?oc=5) |
-| Medicaid funding to Planned Parenthood must continue, court rules - Axios | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQZWVCZlQyTjhYWnJiMDNRMnZhVUlQNnZ2MVNqSEFQYUdCNjhlc19BRVVRZlM2bV9vYUUwR090OG1Od29yb1ZITTFRUGVrNHNDTU52RmY2R2lyamJ4SnpLMFFEcmtvR28telEtSF9ZRHNWTXpuMUNwTzlFWFg4X2VSMWFJSmFhbG5FZndoaXhYQW51dEozRk9zQg?oc=5) |
+| DOJ files complaint against judge who raised Trump's ire in deportation case - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQSmpnZnllSU1rZUpCZF8zb3BwcFBodnJnN1VWWnVJSHdPVHQ5dXpaZEQwUUFWS0V1RlUtaHNXSlVkNDNJVjBlMUJWeHB1Z1p1OWZxU0QxekJycXM0cnplZEJVV3prUEg1THJtQlYwbkdUMXJzWmR2dUczTGtIQ1B5dlJManI?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
