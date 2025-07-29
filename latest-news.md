@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月29日 11:27:38（北京时间）**
+🕒 更新时间：**2025年07月29日 11:40:14（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| 4 dead, including off-duty NYPD police officer, in Midtown Manhattan shooting: Officials - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE40Qk1TRmstZ3otLWJpUUJ1T25IckpQRkdpamt2Vlc1ZjVPSEl6QXZRTjl1emlJQzZhNXdSVVhDWHFQMDc4aWloclRLQ2FITnlxakNZVEdDU0Z4a3Y2LWQtcE9DbXc4aGNuX1QtSEUtZW9yc3Nob0FQYUxZQQ?oc=5) |
+| 4 dead, including off-duty NYPD police officer, in Midtown Manhattan shooting: Officials - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE40Qk1TRmstZ3otLWJpUUJ1T25IckpQRkdpamt2Vlc1ZjVPSEl6QXZRTjl1emlJQzZhNXdSVVhDWHFQMDc4aWloclRLQ2FITnlxakNZVEdDU0Z4a3Y2LWQtcE9DbXc4aGNuX1QtSEUtZW9yc3Nob0FQYUxZQdIBgAFBVV95cUxQNk9xR2hvenJKdG5wWFVSdFk5VHMtalJUYkc2cWY3a25hdi1aLWxHODZXbEdqTG5LelhtRnZtRG02Z19kUkV2aFZRVTE5VTZzSWp3NGwyOVhjSjNZeGh5UGNPNG9SelpWamY1SnkyWkhKTU9xbUZKZ2I4TWVwLVFWMA?oc=5) |
 | To avoid worst of Trump tariffs, E.U. accepted a lopsided deal - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNV3dzeVBnUkFPMDlJTjZGQjhFRkVRMHA4ZTlaVzFpdlY0b2NvN2lsOTJDeEhrT2ttaWlTbGtMLTFJSzZkLTBZb0NfZXh3N01VLWJTU3ZEOWFTX3VnZ19QSHlBZXZZUDZRZTczTzI0TFRWak01aDFiQVlZSEhBN094UEF6MW5iSmNaRklF?oc=5) |
 | Trump acknowledges ‘real starvation’ in Gaza and tells Israel to let in ‘every ounce of food’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxPZFp1SVdoYXpsOHFuOUlReDljdUlRbUIwajdYcDF5aGZTdjNSalhQQ0p1MXRoMGJma2hSeTJVYk1JMEFVQkxBZ3RZSHA4XzdmckpoMW4wMFlQT2ZJWVF6QmU2eTd5cXJkVHl2S3NDTWhoZjlOUTY4a0FBdkF1ei13ZTBXQ1lGQTVEVEVJSlJSbzZvdE04ZUZyMDA1YVNvTVYxM2NwTXNRZHh0V1ZaNXZ1X2hYaFc0V3lOVDk0dFFSSTYtUmFSN3oxa2VKeFM3YU92VkpF?oc=5) |
 | 3 killed in Reno casino shooting at Grand Sierra Resort; suspect in critical condition - Reno Gazette Journal | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPLWtNenBhV1RDalRRdnhKSVBUSDlwdl9DRlUyRDN4MWhVWE1fUGVfTDlodDZNZUxwV0IzaFFVbDhwVUp4aHRid0p2SjFHVnFuTmh5M2N3V043V1BlS004Y2dFQngwMVAwVVdtdC1VLWwxVHpiYXhETHozbldHTzZ4clBYVGNSc3c0VXlqbDB4YnNNa2ZnVkI5N25aQWlMdmtCZzN1RXRIZTQ?oc=5) |
