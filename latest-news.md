@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月30日 14:13:35（北京时间）**
+🕒 更新时间：**2025年07月30日 14:27:07（北京时间）**
 
 ---
 
@@ -8,16 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Watch: Major earthquake off Russia triggers widespread tsunami warnings | [阅读全文](https://www.bbc.com/news/videos/cwy01l5kgxno?at_medium=RSS&at_campaign=rss) |
 | Lammy hopes plan to recognise Palestinian state 'will get ceasefire' | [阅读全文](https://www.bbc.com/news/articles/c23p8gl05r2o?at_medium=RSS&at_campaign=rss) |
-| Bowen: UK move to recognise Palestinian state is a diplomatic crowbar to revive peace process | [阅读全文](https://www.bbc.com/news/articles/c8deme846mro?at_medium=RSS&at_campaign=rss) |
+| Bowen: UK move is a diplomatic crowbar to revive peace process | [阅读全文](https://www.bbc.com/news/articles/c8deme846mro?at_medium=RSS&at_campaign=rss) |
 | Missing Brady memoir 'could hold new clues to Moors murders' | [阅读全文](https://www.bbc.com/news/articles/c8d6vp3ezepo?at_medium=RSS&at_campaign=rss) |
 | The doctor strike has ended - what comes next? | [阅读全文](https://www.bbc.com/news/articles/c4glxxxj3e0o?at_medium=RSS&at_campaign=rss) |
-| Why plane turbulence is really becoming more frequent - and more severe | [阅读全文](https://www.bbc.com/news/articles/ckgy7jx082ro?at_medium=RSS&at_campaign=rss) |
+| Why plane turbulence is becoming more frequent - and more severe | [阅读全文](https://www.bbc.com/news/articles/ckgy7jx082ro?at_medium=RSS&at_campaign=rss) |
 | UK gets first female Astronomer Royal in 350 years | [阅读全文](https://www.bbc.com/news/articles/c741lll88q5o?at_medium=RSS&at_campaign=rss) |
 | Rape crisis centre to launch single sex-only meetings after trans row | [阅读全文](https://www.bbc.com/news/articles/cvgp558qkz0o?at_medium=RSS&at_campaign=rss) |
 | What will the new banknotes look like? | [阅读全文](https://www.bbc.com/news/articles/ckgy7j02xzro?at_medium=RSS&at_campaign=rss) |
 | Up to 40,000 homes to be built on disused railway land | [阅读全文](https://www.bbc.com/news/articles/cgqny1jw7peo?at_medium=RSS&at_campaign=rss) |
-| Ozzy Osbourne's home city set to say final goodbye | [阅读全文](https://www.bbc.com/news/articles/c3v3lle5z3wo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | California tsunami advisory in place after Russia quake; waves slam buildings in Siberia, Japan - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNZW14TzJrS0RjNEZzbWFwVGxqekU4TUQ0Q2kwSDZDaVU1MTFQcUVEOW5ETmtHdmpPUk5SWUJPdDdyTk1xdHNpaG9YOHlUdWQ4RHdCeEx1UHlkM1RYN3g4VnlIYXJhOE4yLWV1NFgzSy10SEtST0J5RUR4Tm5nejUzdmVuLWNtc21wNkUyYUhVcExEam1MSzVwYmM3cU5yR2pyZXNDeE5YMnF5TzRlVkhveGowWEltNnpKZ0E?oc=5) |
 | The Manhattan gunman believed he had CTE. What does that mean? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOdngzYVp1d1Vud2g4T2NsS2VVNzhUZUtBZnBTUUx3WUNGcmpVSFVVZUZ0MENrci1IOEN1VEVfbWp0X1JfUXRVMlNDOUpsa0F3a0VvU0JxWkVvc19CbXdZLXRidUR1Tk5Wb1lPR05mNEh1TFNiWXNYRy1hdVJUcGpncW8xZV91Tkk?oc=5) |
-| Senate confirms Trump lawyer Emil Bove for appeals court amid whistleblower claims - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQUmV5UXdVX1ZRUUdvZDhBbjNIZ2UwQjgzaE9oMGFmTlNnb3lCZEZTR3lObWotbHRoWkR3Rm5mTm9HVzlHR194RmtpeUFyRHBrbFptRDJoQm93OTNIdTVEWERrNG9zQXdHY3FZUGtvaHJtckFHUEtHczI1NVpUR2FHblhMV1V5aUE1RUh3V0NhRzNrd2o0ZnRjTmJJcTN2Ukh0LUtod3c1dkJMOXlENmdjZlRRdVFXdE4zTDY4b1M4RHlwT2M?oc=5) |
+| Emil Bove: Trump's ex-lawyer confirmed as appeals court judge - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1pVFNoMGgzOEh4Uk9PT1EzTUlaRFQ4cXhEUUg2ZzBxa3pwOTY0U3g2a05nN0F0dVlkdEtTY0hMTzJHVDFwRFBCeXhFNEtyYlM3NklDOEVESHMwUdIBX0FVX3lxTE5IOW9ISWhDOHRFZm4wTlFwaHBBMmVfUjJlbXhHc1BuaWtpc0lUQ1VwZVgxT1pZTVZuWDN4WUJrcHBkYkRZSnRVZFBFaXprQklvcXRuNU5BN25KNWpZdWRF?oc=5) |
 | Senate confirms Susan Monarez as CDC director. Here's what she's said about vaccines, fluoride and more. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1ucVJUdlR6aTl2aVg0MUtOeWUxVXFqM09ySlNfSXZzelZlemZESkJhLXo4RG52cU5kQzQ1Y1hmVElrZTUzVW9QbDU1R1BBVXdsc3lpWTEzeHZ6UHJ6N2FTb2N3Ml9zLUtyY2gtZVNKNmtHSjZNSTRiT3p6NjdicmPSAYQBQVVfeXFMTzRpTlA1UFlLUGtlZWRFOXk2RHlfSjdlNTRpMVljcHR0RUdzTjNmV0ZFSnp1amFZUFljTGRaX1FhZmNQSm9ZVUx6VWpLRmNieVdQNlVUY2VHaElLX19QRG1Kb1pTUGlPZkNaUFFnY1FPNEI5Y2NFNzJXZEl2dXFmTDRxb3pX?oc=5) |
 | Trump says Epstein ‘stole’ young women from Mar-a-Lago spa, including Virginia Giuffre - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPbTEtOUhWNG5QV2FMWVN5UkgxSV9yNjh2d3FXNnZRS0xVX1plcXBUci1GOElPcEZOQW5jSVU4czRaeFdCNzNxMlVFTm9FTkNpZVI0ZWpqTU1fUmxBcWRMdUxtQmFqMndZOGhIcEhuUGYzVjVlV3Bad1JmT1hJREV3QjNUQXdhNkE2QUFJLWpoQUEzcWFGb2hPdm5ZVUdDN0psX0VXUVlUZko4TkpMUk0tbUdKakNUY2hvcmNlSGln0gHDAUFVX3lxTE8yMmlhVEkzWGNjeDZ6MndTbmZtRzFkTWdyeW5EX2dKbXktSEdCbGR5UFJ4VHlNVXUzOTk2MVp0Y2paQ2g2eDVLSGlWWjJ1STBQeDNLb201QzIxOVJtUEZwN3VFMnZNLVpLSE5kVXE4cTRJUlBaV0RPMHhmVjZUMnU2SmVLQ3ZtTXNDLW5qLWVmTktxcjdUOUhlZFZlcENyNVlFZUxVRTRSdGlHcTVTbU9fbTBMNmhEZDdGYXJHZHlWQXYzTQ?oc=5) |
 | In Gaza, mounting evidence of famine and widespread starvation - UN News | [阅读全文](https://news.google.com/rss/articles/CBMiV0FVX3lxTE9aa3pOZmNmeTRoNmhydHB3ZnJvc1hXSlVCZzBodEtjdThaRTRVbS12MDEzNWhHWnFEejdfXy11aFBTQ2NabWdDX0lPbkxxaENaT01DNTdxMA?oc=5) |
