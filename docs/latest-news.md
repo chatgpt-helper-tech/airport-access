@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月30日 08:13:55（北京时间）**
+🕒 更新时间：**2025年07月30日 08:27:05（北京时间）**
 
 ---
 
@@ -10,25 +10,25 @@
 |--------|-------------|
 | UK to recognise Palestinian state unless Israel meets conditions | [阅读全文](https://www.bbc.com/news/articles/cpdjvn1eeplo?at_medium=RSS&at_campaign=rss) |
 | Watch: How did Gaza get to the brink of starvation? | [阅读全文](https://www.bbc.com/news/videos/cjey0v4xjz9o?at_medium=RSS&at_campaign=rss) |
-| Women abused as children by Rotherham gangs say police also sexually assaulted them | [阅读全文](https://www.bbc.com/news/articles/cn9y0lvpyqvo?at_medium=RSS&at_campaign=rss) |
 | The doctor strike is ending - what comes next? | [阅读全文](https://www.bbc.com/news/articles/c4glxxxj3e0o?at_medium=RSS&at_campaign=rss) |
+| Why plane turbulence is really becoming more frequent - and more severe | [阅读全文](https://www.bbc.com/news/articles/ckgy7jx082ro?at_medium=RSS&at_campaign=rss) |
 | UK gets first female Astronomer Royal in 350 years | [阅读全文](https://www.bbc.com/news/articles/c741lll88q5o?at_medium=RSS&at_campaign=rss) |
 | The ordinary rush-hour that became  two hours of terror in a New York skyscraper | [阅读全文](https://www.bbc.com/news/articles/cy85737235go?at_medium=RSS&at_campaign=rss) |
+| Ozzy Osbourne's home city set to say final goodbye | [阅读全文](https://www.bbc.com/news/articles/c3v3lle5z3wo?at_medium=RSS&at_campaign=rss) |
+| Women abused as children by Rotherham gangs say police also sexually assaulted them | [阅读全文](https://www.bbc.com/news/articles/cn9y0lvpyqvo?at_medium=RSS&at_campaign=rss) |
 | Trump's Scotland trip gives him three things he likes - and one thing he doesn't | [阅读全文](https://www.bbc.com/news/articles/cly42x8k55lo?at_medium=RSS&at_campaign=rss) |
 | Theft of royal items prompts £3m insurance payout | [阅读全文](https://www.bbc.com/news/articles/cy40nn3v9p9o?at_medium=RSS&at_campaign=rss) |
-| Father and son killed in London stabbing named | [阅读全文](https://www.bbc.com/news/articles/cz71wjv7yxwo?at_medium=RSS&at_campaign=rss) |
-| Russian strikes kill 25 in Ukraine, as Trump confirms deadline for talks | [阅读全文](https://www.bbc.com/news/articles/cj0y45mdjp7o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Shooting victims include ‘hero’ security guard, executive, immigrant NYPD officer - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOa3l6Y2RvNmFxS0tBZjFDcWNGRUtXNU5QMDRTVEtueU5jcnhSa2t1ZDU1cmdXWTA3QzJOcEstZm56Qml5MXA2YndBYUo1VjU5OGhKY21sSTRPZVloLURPYlhDZ09EblFYeHhrNXFKaEJRaElXOHlOdGtjc3hLVnRFeGRTdjlXbUpnbVhFV3dR?oc=5) |
-| Trump says Epstein 'stole' Virginia Giuffre and other young women from Mar-a-Lago spa - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPejFXendvX0g1eHBFd01RUkpFcGlBSUxVN01tU041UmJHTDF5b0F4ODZwelFZWE03OXVTNGVPNHFndGRKTmU5Ym5oX0tDTTFzSlRmN3JSSE5qXzBmM25taGZNcDA1Rk9DQy0yREFQSW1lYXNBSUVmS2lyUWVvb1lTYkl2bFROc2I0cmx3V1V6SHA2TkQxRV9XZkw2akdjUFJfNnl3eV9B0gGrAUFVX3lxTE01VHdGaUVzQm5qWkZqVHp5SHRuZlJULUVvSV9YX2NlWms4a3hWbDBIVGt3Qm1vXzFidTNBUW9JS2pnZnFXZ19sZ0dERXBjSXBKUjAyRVVBRXlselZSRm1qXzQ0Z3FJNlZzWnpVeERXNTQwXzZVTlVBU1c3b3UxUmNyS2VwSVlkb2pDbFhTM0t2TFhqOTRaRHNHTEFhc1V3NElVQXpaX29XRWs2VQ?oc=5) |
-| E.P.A. Moves to Revoke the Legal Basis for Tackling Climate Change - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPd2VCeG9KMTRabk1qTDRfYXRyajgtUi0tVlFRWGRZZjRZeVZfdzVzMnljalQ3eFBWa1A3RTBlV2xFYU5jZUxkdm9QZ2ZERkdyM1FWam1EekZjTWc3TWNQNXZRUXFkUzdvZHM0LUNhNXFDUUpYY0dOeTJFTW5kTHQ5QloxajJPNjJWOFlzdGw4eGpyUQ?oc=5) |
-| The U.K. will recognize a Palestinian state if Israel doesn't agree to a Gaza ceasefire - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNZkFJYW0zZlZWczFJbUpPNkxYQkpHb1AydTVUMHUzNURBcnN3bFBjS2t3Y3F3R1dsMVJ0aEJURWxEV29mQW1HbFFBM2xVdGxKNldWZ2RibTNFNTlNelItZDRERjdsODBpZEhZTDEwV09FWXR0NkpqLV9XRVpYRmlUVDBLTWs5RUVZeWhB?oc=5) |
-| House Oversight Committee rejects Ghislaine Maxwell's request for immunity in exchange for her testimony - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxPVk9wX20zcVlxUnNueXprdks4aWpTc2NNX0NOb05IdVh2XzhhbmN2cWoyNzBZTENLM1o0X2djMUlMby1jQU4xQThDUGZrRS1QU3dLVm9JX1Zqb3djTzFpYTlpczdIYXRpaU92bTN1bE8yNGhNOEJRTEhMNVg2QzJvaDBiOWZ3M1FrNTlsaGI5RVhySzhvZnAxZkhRdi1wNWhsbXFXRVE0cWFmdF9xTE5kTXVyTTdJb250Z2V5b0lkMNIBVkFVX3lxTE1lMlNlY1FkYlE5UF9lWGRBZjhLZE5BdjBsTHR2THlHMjRzR2xhN1M3eE0zN0xCX05sbUY4QnFhQVdLMUkzTzBzQnZZMXhyZkFvWkJjdUln?oc=5) |
-| US and China end 'constructive' trade talks without breakthrough - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE80cmhHa0RhR1d3ZmdjR1hFdTFTMmpiTWdHa0YtRXZQQVlFU2tzOW90aW1Sa21adklQczQ5bll4cENDT3BUQkRMNE9rTVV6Z3EtWTV6ZGZVZWtjd9IBX0FVX3lxTE1HbFZ1TWh6RVA2ekJGRFNoWXR4bnc4TzdneFk5WlBKYXZ5ek9pS25lTmwzdDN4QkVYdTJ5aUpDYmo4TWdGNG9lYzZSSm5xejJ5VzJaSGtONmVsOEI0R09n?oc=5) |
+| Shane Tamura was an L.A. football standout. Now. he's accused of targeting NFL in mass shooting - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNeTFGcUE0N1ROR20taFFSekd1a0N1cDNZNkFmR3ItQUtzdlk4T0dNOE4xTFUwYXhXNTNrZmFZNTF5dWw4ckIwckQxZXNUWlBKZGgtT01QNXJFUlNmNFVyS29GRDNRdXM5VFQ5cEp4SXh0WURWREdCSWpvTHFZRzM1VnJUZm9NQV9wV0hiLUkzU2pQVDEyNFlYSzRLSmwtakNxU1BYRmhRZDJRN28?oc=5) |
+| Trump says his falling out with Jeffrey Epstein was over spa workers at Mar-a-Lago - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNc3ZUMFlkY0F3VUtQSVNtTE1nVHAzdF9ULUhSckhYai1vNjZ3a0hDWHpydllVTFgxSTAyQ3ZjUV9acFpjLUlYTWZRVTJpUU9OR1JRT09ESjBuYS1vZG94Vm40VEU2X0ZlTll4X2VReDNrVkUxUmZNWmVaMDlhS1U5UElESGR0WkUzU1o0NFhFZGxoeWoxMGN6dzRrWQ?oc=5) |
+| Trump's EPA targets basis of all US greenhouse gas rules - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxONmZGS0lURTlGODNOeURjMGxlMld0a05VMVprMXU4Xzl0eVFkUjFUdlctRklHcFFvY0ZUM0tXWjRVVDMtY1JtUHJseHZKYjB5QU1zLVphbk8wcUk0bFlfWUFmblpnYjllR2Z5d2lwY2ZMcVBGRTFCM1NibVl3UFNPSjB0YW16R1lWWXJkUUkxUVo4RUZmU3FMZ0ZJRXMyTGpSME8tLVJKamI?oc=5) |
+| Trump flies back to the US after whirlwind trip to Scotland - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5Hc2lXeHpGYkRqTUxha2JFRDVkcXd2a3lvYVo3S0VDR0s1M3NmWVJ1Q3J2VEVWWEFBYU5YMzUteWxHaXRfQmd5LTBPU2dOZkRFYnhUWlVBd3V3UdIBX0FVX3lxTFB0djdXeWhaMGp3US1ZZFdla1RqLWZWTDVLYWRXUFBWYzI5UUZlbE1rS0U1RzcwNE1Hb0V1Szk2ZHVTWDNZSVFZblRBa29DT01pTUN5RG0wTWh2RTQ1dGtF?oc=5) |
+| China-US trade talks conclude without deal to prevent tariffs from surging again - CNN | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE1aOHFZYmJ1R3M2d205WDdFaE9MUXBUblJSNjZvelRzRjRPcDMwOHdrWFgzNWJhNDJqbU1PUDJaZlpyYldYVW9wSW9CMnNXbEFBU0R2N3l6bVFCeks0ckNMdXlvdUcyMEh1Zzln0gFwQVVfeXFMT0xkVFhwM0Z6bDExSG5EdGFSc0F2U25aMTRzZ1pBLUNwX2luRGRidEtkeXN1ZlExTGdVVFZOcl9QeVhiLWpnNW10LW4waVVpSk9STVp1RndTWjgxc3ZCQ240SDFLU2JCNVNfamdMVDdTMQ?oc=5) |
+| UK Will Recognize Palestinian Statehood In September, Unless Israel-Hamas Cease-Fire is Reached - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOY2Fxa2tyNEtWOHBuWXREUzh3MmRRYWVBQW5qdXJLVlF6cTRiVS1uSklKZnpydnVzRXlxaU82RURsLVR3b2pjdEJuenFKaGxvaEJWN3h3ajdDNTRlY0VoT0lVVEJQRWJ3RGlhbVlaQXNUOWdnMzFpMHhLTURpVE1TMU5ubmttOHRnZWlqUkVVMDJUcGtpOHc?oc=5) |
 | With a few more days of big heat, these cities will experience the brunt of it - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE82bEtISFU3TzduOUhIS3BsSVRaUWFjTlc2Skp0WDlqSjlXSnJKTFFZMmdWeFZKd3FCdTd5RFdrcFJlb243WG0yQ2dzT2RBTm5JaGpQb2tnc3N5XzY0RG55TlRiSENDWURvdVlIV2ExOXMwT1RYWllDX2VvVEcyQUU?oc=5) |
 | Senate floor erupts as Booker accuses Dems of being "complicit" to Trump - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPUmRYMzR3b0wtS25Sbzlsc2lsWG9fZXE1TDJKVXFfdG16bEtjWFBtMVltRk5USTJBUlpXeFYtNzdpcGtqNVJQYkVkLTFuV2pDZmIyRVVhMkhNNnpseF9zdWhwU2JicXdHb3NxRDhmcW9yeHNFdkRaZDR4VWhQaW1PTFJDQjhYVWIzTkE?oc=5) |
 | Trump's EU trade deal is based on massive energy purchases that are unlikely to materialize, analysts say - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPVlRlTWtEMV9qTzQtVUdWZU90M1JjekRjdkRsUEx6QkVqVzZxQjFRc0JKMWNYR2VmV3FEM1JtbzNXX0E0UDNTdXFzSmZwMnVBaE02LWJxUGpUZkVsVVNCbWtqSUlRTkNpbUpJRGhiYWp4NXVpblZiUW1FbngybWxFNWkwb0ZzOFlGdmxj0gGQAUFVX3lxTFBJVzFCYlVXWVdFalpqb1lVZ0FIREhIV2hqUmdXSG9RX2FTYTJfNC1DcW5kUnJSek9RNFNKWUpoUmx6QXpmVFRqaS1hMW5wZGxGaHk4aXhRanlRSF9jcjBnYmUxdmpzYVZadV8zSUdsQlRjdElmNjBYSjNob3doRkp1dkc4RkJLWWVhZEFsd1YtQg?oc=5) |
