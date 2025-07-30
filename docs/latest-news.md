@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月30日 09:53:43（北京时间）**
+🕒 更新时间：**2025年07月30日 10:00:34（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Senate floor erupts as Booker accuses Dems of being "complicit" with Trump - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPUmRYMzR3b0wtS25Sbzlsc2lsWG9fZXE1TDJKVXFfdG16bEtjWFBtMVltRk5USTJBUlpXeFYtNzdpcGtqNVJQYkVkLTFuV2pDZmIyRVVhMkhNNnpseF9zdWhwU2JicXdHb3NxRDhmcW9yeHNFdkRaZDR4VWhQaW1PTFJDQjhYVWIzTkE?oc=5) |
 | 3 people unaccounted for following explosion at Nebraska plant: Mayor - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPQkhGam4tbmR1X3N1MHBOOUVNNmhXYjNONFdDWEU5MVZpWW9SNEhIeVphMklfOFFLbnNtS0JsUGptVEx2NmpVeEtrZVNPTVdkUDFYRHpGTFZwRWV6YndKWmQzUl8xTFl2aUN4NUxDUEYwbWdPS0FJUGtKb3FvV1hoOElQQdIBiAFBVV95cUxOS2U5bHBSR1dvZmR4Szh1ZUllTW1HMVBSRi1INFQwaG5nNVhuV1BNQU15ejZUTVE4VTFvQVowUjdtVGpwR3dOaEh0ejZUVzVXeUtBSUFDX0NhV0NRd2tXa3BWd1lJbnh6NHZUYVFEQ09YWTExZFFyWWU1TEFYNm9JM2RTd2s4T3px?oc=5) |
 | EPA moves to end climate regulations under Clean Air Act - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPUVp6WG8ySGVUVWZJeExHR3hQNS1hUEw4a2FTSHI2bjVGblZoUjl3TmtHMjFVSDV4enFQdXNWOE1TSzAzU2l6dW9MUDFQM09LQ3o4aWZFN2lxejNhNjVYaFo2a1k1YlRaVFFIUFJFRGU5TF90eGZKS1BoOTVqa0N4RThTSTdCOUZVNHFQLVA3Q09faGhaRVhzNHUxRVpYU3A3R2hv?oc=5) |
-| Trump flies back to the US after whirlwind trip to Scotland - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5Hc2lXeHpGYkRqTUxha2JFRDVkcXd2a3lvYVo3S0VDR0s1M3NmWVJ1Q3J2VEVWWEFBYU5YMzUteWxHaXRfQmd5LTBPU2dOZkRFYnhUWlVBd3V3UdIBX0FVX3lxTFB0djdXeWhaMGp3US1ZZFdla1RqLWZWTDVLYWRXUFBWYzI5UUZlbE1rS0U1RzcwNE1Hb0V1Szk2ZHVTWDNZSVFZblRBa29DT01pTUN5RG0wTWh2RTQ1dGtF?oc=5) |
+| US and China end 'constructive' trade talks without breakthrough - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE80cmhHa0RhR1d3ZmdjR1hFdTFTMmpiTWdHa0YtRXZQQVlFU2tzOW90aW1Sa21adklQczQ5bll4cENDT3BUQkRMNE9rTVV6Z3EtWTV6ZGZVZWtjd9IBX0FVX3lxTE1HbFZ1TWh6RVA2ekJGRFNoWXR4bnc4TzdneFk5WlBKYXZ5ek9pS25lTmwzdDN4QkVYdTJ5aUpDYmo4TWdGNG9lYzZSSm5xejJ5VzJaSGtONmVsOEI0R09n?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
