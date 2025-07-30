@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月30日 14:54:01（北京时间）**
+🕒 更新时间：**2025年07月30日 15:00:53（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | Missing Brady memoir 'could hold new clues to Moors murders' | [阅读全文](https://www.bbc.com/news/articles/c8d6vp3ezepo?at_medium=RSS&at_campaign=rss) |
 | The doctor strike has ended - what comes next? | [阅读全文](https://www.bbc.com/news/articles/c4glxxxj3e0o?at_medium=RSS&at_campaign=rss) |
 | Why plane turbulence is becoming more frequent - and more severe | [阅读全文](https://www.bbc.com/news/articles/ckgy7jx082ro?at_medium=RSS&at_campaign=rss) |
-| UK gets first female Astronomer Royal in 350 years | [阅读全文](https://www.bbc.com/news/articles/c741lll88q5o?at_medium=RSS&at_campaign=rss) |
+| UK gets first female Astronomer Royal in 350-year history | [阅读全文](https://www.bbc.com/news/articles/c741lll88q5o?at_medium=RSS&at_campaign=rss) |
 | Rape crisis centre to launch single sex-only meetings after trans row | [阅读全文](https://www.bbc.com/news/articles/cvgp558qkz0o?at_medium=RSS&at_campaign=rss) |
 | What will the new banknotes look like? | [阅读全文](https://www.bbc.com/news/articles/ckgy7j02xzro?at_medium=RSS&at_campaign=rss) |
 | Up to 40,000 homes to be built on disused railway land | [阅读全文](https://www.bbc.com/news/articles/cgqny1jw7peo?at_medium=RSS&at_campaign=rss) |
