@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月30日 12:13:35（北京时间）**
+🕒 更新时间：**2025年07月30日 12:27:05（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Senate confirms Susan Monarez as CDC director. Here's what she's said about vaccines, fluoride and more. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1ucVJUdlR6aTl2aVg0MUtOeWUxVXFqM09ySlNfSXZzelZlemZESkJhLXo4RG52cU5kQzQ1Y1hmVElrZTUzVW9QbDU1R1BBVXdsc3lpWTEzeHZ6UHJ6N2FTb2N3Ml9zLUtyY2gtZVNKNmtHSjZNSTRiT3p6NjdicmPSAYQBQVVfeXFMTzRpTlA1UFlLUGtlZWRFOXk2RHlfSjdlNTRpMVljcHR0RUdzTjNmV0ZFSnp1amFZUFljTGRaX1FhZmNQSm9ZVUx6VWpLRmNieVdQNlVUY2VHaElLX19QRG1Kb1pTUGlPZkNaUFFnY1FPNEI5Y2NFNzJXZEl2dXFmTDRxb3pX?oc=5) |
 | In Gaza, mounting evidence of famine and widespread starvation - UN News | [阅读全文](https://news.google.com/rss/articles/CBMiV0FVX3lxTE9aa3pOZmNmeTRoNmhydHB3ZnJvc1hXSlVCZzBodEtjdThaRTRVbS12MDEzNWhHWnFEejdfXy11aFBTQ2NabWdDX0lPbkxxaENaT01DNTdxMA?oc=5) |
 | Trump says Epstein ‘stole’ young women from Mar-a-Lago spa, including Virginia Giuffre - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPbTEtOUhWNG5QV2FMWVN5UkgxSV9yNjh2d3FXNnZRS0xVX1plcXBUci1GOElPcEZOQW5jSVU4czRaeFdCNzNxMlVFTm9FTkNpZVI0ZWpqTU1fUmxBcWRMdUxtQmFqMndZOGhIcEhuUGYzVjVlV3Bad1JmT1hJREV3QjNUQXdhNkE2QUFJLWpoQUEzcWFGb2hPdm5ZVUdDN0psX0VXUVlUZko4TkpMUk0tbUdKakNUY2hvcmNlSGln0gHDAUFVX3lxTE8yMmlhVEkzWGNjeDZ6MndTbmZtRzFkTWdyeW5EX2dKbXktSEdCbGR5UFJ4VHlNVXUzOTk2MVp0Y2paQ2g2eDVLSGlWWjJ1STBQeDNLb201QzIxOVJtUEZwN3VFMnZNLVpLSE5kVXE4cTRJUlBaV0RPMHhmVjZUMnU2SmVLQ3ZtTXNDLW5qLWVmTktxcjdUOUhlZFZlcENyNVlFZUxVRTRSdGlHcTVTbU9fbTBMNmhEZDdGYXJHZHlWQXYzTQ?oc=5) |
+| 3 people unaccounted for following explosion at Nebraska plant: Mayor - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPQkhGam4tbmR1X3N1MHBOOUVNNmhXYjNONFdDWEU5MVZpWW9SNEhIeVphMklfOFFLbnNtS0JsUGptVEx2NmpVeEtrZVNPTVdkUDFYRHpGTFZwRWV6YndKWmQzUl8xTFl2aUN4NUxDUEYwbWdPS0FJUGtKb3FvV1hoOElQQdIBiAFBVV95cUxOS2U5bHBSR1dvZmR4Szh1ZUllTW1HMVBSRi1INFQwaG5nNVhuV1BNQU15ejZUTVE4VTFvQVowUjdtVGpwR3dOaEh0ejZUVzVXeUtBSUFDX0NhV0NRd2tXa3BWd1lJbnh6NHZUYVFEQ09YWTExZFFyWWU1TEFYNm9JM2RTd2s4T3px?oc=5) |
 | EPA moves to end climate regulations under Clean Air Act - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPUVp6WG8ySGVUVWZJeExHR3hQNS1hUEw4a2FTSHI2bjVGblZoUjl3TmtHMjFVSDV4enFQdXNWOE1TSzAzU2l6dW9MUDFQM09LQ3o4aWZFN2lxejNhNjVYaFo2a1k1YlRaVFFIUFJFRGU5TF90eGZKS1BoOTVqa0N4RThTSTdCOUZVNHFQLVA3Q09faGhaRVhzNHUxRVpYU3A3R2hv?oc=5) |
 | CNBC Daily Open: Boomerang tariffs ahead? - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPcC0tSkdqa0NzWlEzQXBtMk5Xb2xqSG9Uc1ozTDZUaGxKUllQZFQ2RzhYNWlSZHhRNDEwNWJsZU5fbGtvTXRhbXRSYVN4bGg1WXRRblByWTA5bDNwUXlnd0NpcHV6UGpHT01iLTMtQ2hnZHh5ZFFfN2NPU1ZkcnNvazdFWjJxcm5jTUtLTkpNUVEtM1HSAZgBQVVfeXFMTlZlOEplbl9sWVU5WktXeVBEM2VldmQ2NEZCektuWmxDcnk0WWhHYkc0TlhqMjhlMjhOcG1GZUlLZWFsM09PWDFQaUdMcHczc0hFMzdIU3JKNFo5Nk90VnhGcks4WTVObkJ5cXJsU2VGTUZRQWZDZ2ltdHYxN2xyRFRMUVZiSmowall0LUlsNXhTNkNQYmt4T0Q?oc=5) |
 | Senate floor erupts as Booker accuses Dems of being "complicit" with Trump - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPUmRYMzR3b0wtS25Sbzlsc2lsWG9fZXE1TDJKVXFfdG16bEtjWFBtMVltRk5USTJBUlpXeFYtNzdpcGtqNVJQYkVkLTFuV2pDZmIyRVVhMkhNNnpseF9zdWhwU2JicXdHb3NxRDhmcW9yeHNFdkRaZDR4VWhQaW1PTFJDQjhYVWIzTkE?oc=5) |
-| Brussels scrambles to defend US trade deal with details up in the air - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQMURZUlhfRHRsenlzUEVna0ozd2UwMVRmZ1pfZkFxMGVFV0FYRHktM0lXVDVvUFZNNXZYRnJiVjRVVnEwQTl3dzlTT041RnlsMGhmOFVRM0ZjLVQxUXBqUlVyNmk1OUdBUTNZNEVBT2p0Tm9faGNLWk15dW1lRl9UcU16OWhkeElMdEI3TjNTUmdrUmkyN2FjSmlQY3J3WEM3UXFyak5GeUZXLWJmQU1wN1o4aFc3QQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
