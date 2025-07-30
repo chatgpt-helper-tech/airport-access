@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月30日 22:52:41（北京时间）**
+🕒 更新时间：**2025年07月30日 23:01:38（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Japan's Fukushima plant workers evacuate after tsunami warning - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE04Mkx2OUJuZTRjVGxIVFVRaWhzLXEwUDRhd3hkSlh3VnJONS1KUEZnMUFsYllUYmhEdkJvUU1RNGpHY1F2Z21BRTNINUFRUUxnUkQ0Q1VmWkxnZw?oc=5) |
-| Questions emerge about NYC gunman's mental health and his security-sensitive job in Las Vegas - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOWDZHMFBTeXVjbVNSNUxNUTl0cDE5Qk5UQ3RkWEVnR1hjd0dHZVFKcFpUcDdUZ1dJOWczWEttNmxTSGtHVVVoVm5SMVdNdmJTZXRxZU9hc21BS01Kb19ORmhTNC1NS0JuNDFQbEhQRVA0dk5FbHNzUlU4R3RUeC0xMVVMUEtDWmtNOFhjbS16dw?oc=5) |
+| NYC gunman worked in Las Vegas casino surveillance and was once licensed as a private security guard - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOWDZHMFBTeXVjbVNSNUxNUTl0cDE5Qk5UQ3RkWEVnR1hjd0dHZVFKcFpUcDdUZ1dJOWczWEttNmxTSGtHVVVoVm5SMVdNdmJTZXRxZU9hc21BS01Kb19ORmhTNC1NS0JuNDFQbEhQRVA0dk5FbHNzUlU4R3RUeC0xMVVMUEtDWmtNOFhjbS16dw?oc=5) |
 | Trump hits India with 25% tariffs and unspecified ‘penalty’ - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFA1RC1UTXEwdWh0Y2Q2ZEFUNXRKLUpnWjRnNzJBN1BQSGstbUduQTQwWTFndWdpaWQ3VmtSVGlfNy1uQlZReFdCcDgyWEJZNWV6dVVydlo2a0JVR3E4RTlGS3hIMTNjcGZuSHR4VjBCOTY?oc=5) |
 | Trump is winning trade battles. The war? We'll see - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiXEFVX3lxTE85eEpPSWRWWEdscHdXWFJtWTBFelhuRjAyeVNFZmt5eE5tOVA1bnZheVJoYmE4RjVkYVpZeGd6TkJwaUZyVnJjYjBaTlpLdEUzTmpNMWxnUXlacTBs?oc=5) |
 | Trump says Epstein ‘stole’ young women from Mar-a-Lago spa, including Virginia Giuffre - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPbTEtOUhWNG5QV2FMWVN5UkgxSV9yNjh2d3FXNnZRS0xVX1plcXBUci1GOElPcEZOQW5jSVU4czRaeFdCNzNxMlVFTm9FTkNpZVI0ZWpqTU1fUmxBcWRMdUxtQmFqMndZOGhIcEhuUGYzVjVlV3Bad1JmT1hJREV3QjNUQXdhNkE2QUFJLWpoQUEzcWFGb2hPdm5ZVUdDN0psX0VXUVlUZko4TkpMUk0tbUdKakNUY2hvcmNlSGln0gHDAUFVX3lxTE8yMmlhVEkzWGNjeDZ6MndTbmZtRzFkTWdyeW5EX2dKbXktSEdCbGR5UFJ4VHlNVXUzOTk2MVp0Y2paQ2g2eDVLSGlWWjJ1STBQeDNLb201QzIxOVJtUEZwN3VFMnZNLVpLSE5kVXE4cTRJUlBaV0RPMHhmVjZUMnU2SmVLQ3ZtTXNDLW5qLWVmTktxcjdUOUhlZFZlcENyNVlFZUxVRTRSdGlHcTVTbU9fbTBMNmhEZDdGYXJHZHlWQXYzTQ?oc=5) |
