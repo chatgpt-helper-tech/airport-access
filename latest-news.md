@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月30日 15:26:28（北京时间）**
+🕒 更新时间：**2025年07月30日 15:39:08（北京时间）**
 
 ---
 
@@ -9,7 +9,6 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Watch: Buildings shake and people take shelter after tsunami warnings | [阅读全文](https://www.bbc.com/news/videos/cwy01l5kgxno?at_medium=RSS&at_campaign=rss) |
-| UK hopes plan to recognise Palestinian state 'will get ceasefire' | [阅读全文](https://www.bbc.com/news/articles/c23p8gl05r2o?at_medium=RSS&at_campaign=rss) |
 | Bowen: UK move is a diplomatic crowbar to revive peace process | [阅读全文](https://www.bbc.com/news/articles/c8deme846mro?at_medium=RSS&at_campaign=rss) |
 | Missing Brady memoir 'could hold new clues to Moors murders' | [阅读全文](https://www.bbc.com/news/articles/c8d6vp3ezepo?at_medium=RSS&at_campaign=rss) |
 | Banknotes are getting a major redesign - what could they look like? | [阅读全文](https://www.bbc.com/news/articles/ckgy7j02xzro?at_medium=RSS&at_campaign=rss) |
@@ -18,6 +17,7 @@
 | Up to 40,000 homes to be built on disused railway land | [阅读全文](https://www.bbc.com/news/articles/cgqny1jw7peo?at_medium=RSS&at_campaign=rss) |
 | Rape crisis centre to launch single sex-only meetings after trans row | [阅读全文](https://www.bbc.com/news/articles/cvgp558qkz0o?at_medium=RSS&at_campaign=rss) |
 | The doctor strike has ended - what comes next? | [阅读全文](https://www.bbc.com/news/articles/c4glxxxj3e0o?at_medium=RSS&at_campaign=rss) |
+| Watch: How did Gaza get to the brink of starvation? | [阅读全文](https://www.bbc.com/news/videos/cjey0v4xjz9o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
