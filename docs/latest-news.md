@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月31日 03:13:11（北京时间）**
+🕒 更新时间：**2025年07月31日 03:27:57（北京时间）**
 
 ---
 
@@ -23,16 +23,6 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Two Trump appointees vote to cut rates as Fed holds steady - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNV3NYc0VEUEtzMnVYNjhoVXF1RlFPdGdTNjM2RHROM1p4YV93SktsSV9sZ1Y3YW93MFh4dzhtOHVfQTAzWEtvQ1lyVFI1RGNLZllaeGMtSDRyQTlTbWx5Q1F4M0xiTTF6aDlzTFk1QW9CYUU0WENoYmlIWVdBMjUxTXNreGR2SHJGbHdGblVEbTJPREY0dC1OVTYwQzFWbU9WSW9fTjg4bHlvN1ZfTGZnTFptc9IBVkFVX3lxTE5GWEx2Z0Zpd2pvVUowdFpVNGV1X1NwTVZjcWYwaXJITk94WEo1d3IxVFdtSHNIdVFNUkt4aEFybmV0U2ZoMTZjZ3NHUDZ4Q0E3V2tkbHFn?oc=5) |
-| Why did the Russian mega earthquake not cause more tsunami damage? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1CWE8xUnRwY3dTVEkzU20tdkR2M1FNLTI3WmhadDZuenRRMmg3UXZSd3o1MjhqQ0FWSy1lOWxaRmZ2bG9fWDA2SlRuQmtFWWVpSlhqcC1lNGY2Z9IBX0FVX3lxTE40TmVYSE5YYTljTjlGbUgyREZLVWRpZm9XN0tJbmdCOUhTVy1TUW9qdmM2MzdjeGk4U1ZuMWpxRE15XzFTbDhJSXMwZ2ZucE0zVkhqZ205cUh2ZDVrZDd3?oc=5) |
-| New York skyscraper mass shooter assembled weapon himself, police say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQb2gwS2xFZ21USXRIQnloN1NROVlGQTFvdGt3QmZRQ2ctREEwWlRWcVUwU19iM0ZhLUtyWlNLcElsV25HNVNlSUhmc3Q1MF9IU2xKX1RnUnVHblZiVndPYlp2Ty04Q2ZzTFlybm9yT1RfU01Ta0k5eUxTN1RuRHhMdV9GOA?oc=5) |
-| Trump dashes hopes of a trade deal with India by Aug. 1, announcing 25% tariffs - NPR | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9rbEhscnpDZGw3cWQ0MlE0RlJpMWRLZ0dXTHpRZDVqYjI0U0VYQzdISWhHN1N4Uy1pX2pjcUdTOVM2M1RkODFYNE5ON0RQcW04TGc5V3RhaVFRSmFTZWVlSDZqSzR0aW1UUGVnSzNtSUlKc0g4UXRZWg?oc=5) |
-| Some air traffic controllers wanted to close a helicopter route near Washington’s airport. It was abandoned as ‘too political.’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPRlBnWnBmWG9CZXEzSGJDRUhJb2FlNzRsM1FJS01Yd2tGX2tLMEpCYi00RkV0Z2tuLWhCNWdaVzV5Wk04dmh4UTIzT1FSaW9Tdm9pTUdWR2ZNdXVaRUFPbExqbEZHeVc1OWRQYzFESkk0T2huckV5LTNfYjJpeTJBbFZpbFlEdjhlbHZySTh5NFpGODBfYk9rSw?oc=5) |
-| U.K. to recognize Palestine in September if Israel doesn't change course - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOb2dtYkZpRDBiNWtXZ3A4TmdBTV9oeC04RjRGejFBZC1mMnBwRkw1Q1FrZkoxTXdEWnFneExCSkZIaUtPcnYxNV90SGUyX0R2UUZsRHcyck5PM1RqN3FyeXJwUFdCN1lJLUJxU0lOUk9rYlFxS1E2R1htVTZqanRoZQ?oc=5) |
-| Texas Republicans release a redistricting plan that could achieve Trump's aims - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNbW5RcVAySmtLbGRTVElTdFFoWHVtdjk2N3lNb3pKMXZVd3h0VDJFRHQyR1BfM0x6MXJpWFZKOWFoQ3hlaHVENTFiNzFvcjUyRWRyeXpHZDNmNVh4VldpQm9hUmE3TUd2UWJyYUE0ZlYyYk5lVl9jQXdubXo1dnJvUnhqU2tfcFZmRFduelgzQUY3bXl2dVE?oc=5) |
-| Democrats invoke rare Senate rule to force release of Epstein documents - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNR2ZMS0tQSGlQMlFpcmZBbmJ5SFZQQUh0dlh0dndYaDUtTFVnZGdVdzU1NnIybEg5TFVMNkpBTkE5OUZjWmVBOEhFaFBlZVlhcmphc3hiR2dWMVhZVnZxWGJBbWloSXl3REpqSUtGdGNLM3puQ01icVdraVU5eGNVaFo5WjJlUlZUbG04RjFR?oc=5) |
-| Epstein and Maxwell grand jury transcripts include testimony from only two witnesses, Justice Department says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOa2lqYk1EUFc5bkdFLXJOM2pPb2JKcjhJMFhocmVKRFVnRV95SlpsSUhIRGtZLVpPMUZzb2dlQkVXb082aUdkakI5NnJMMXQ3Wks2Z0lDMy14U3VmY3BBdktjczd6VkVGRUlXVFYyTHVWUEJTNXhka1ZISWpIQVR3SmEwTk5wTFdKNTc0UmFKcTdNQjZVQmduenhZVEnSAaIBQVVfeXFMT2tBaW41SnhFa3lJOU1FYXdtcXNLYWlQSVFLV3p4Z3o2SlFxeFp5QnhOYUdwei02cGlja0ZpQ181RzYwSWVBWHZQWFJia2thX0w5N0xUUkxGdjk1R0J2NkdCcGtTVzVVNFhNTGVjdWdvVEp0eG41YS1FZWlSdU1Ud1VYa2tVTTNCbDNONFhrQWRZNWxsWDZqR3JmT3Rla3dDeGdR?oc=5) |
-| US imposes sanctions on Brazilian high court judge - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPeVBnVUxZR2ZvV1N5RDE2VkJWcnAzVi03c0JEUmxWcjFUdUxmaTlVVTIwYTY4bWhKdmJ2RmtqV1FPUVMta05TUE9qbmoyOUlCMzN3LXFwQVpuUEpza0lOM1d4OHRZeHRnY3hZYmlQcGVUcUdxR3N1dFhhWmpsS3pMRWV2YThuMzN6TTU2WnJ3ZGwwRFlndXNTRVdHbHNjVms?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
