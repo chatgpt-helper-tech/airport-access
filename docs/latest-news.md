@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月01日 07:00:11（北京时间）**
+🕒 更新时间：**2025年08月01日 07:13:22（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | White House Unveils $200 Million Plan for Enormous Ballroom Long Sought by Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQX09WRG9VUUwxNWdJZzQyS1hQalNkcmJ0MTF4eEZJYlBfUDc0WEVlVVBRYnlWVmx1bk0zU3pVUTA0Z3pxMnNhS3JYRFBhUUFSejZnekJ6Z0lJbm56a2tNRTNHWFhfclRPTmJiZERTUG13ci1RUnlIWW9Fc1VyZ1RQLVh0cy0?oc=5) |
 | Trump to bring back presidential physical fitness test canceled by Obama - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOeThiUGV5SHJRTEdjRXR0OURIY0tQcmtNQ1laMGpILW9DeEpQdFBxMkJGT1gtZzE5dGlqQmh0cmFRbWxJZmpuUG5oaEFvZzFQVzE2ZFo3bHZJd01xbURnTUphdXZNdDNRYm81YTFYa0FlUXpCY0M2bjlMX3BabWpCS0h4ZG5wMUFSeGZ0NjgxaDc?oc=5) |
 | 130 feet from disaster: What we learned about the deadliest airline crash in decades - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOeHdFRzZPS1lrTnVrb01ZXy05czNmdk94NWNHSnE3dFRxS1dPbGE2YTBRZTlUNWZTZ0VQRWpyVktzQjlRR1N2alBaSm1MdTJKOWlfNF9NZ3psT1FuT3FITGhfRWFzZkVaaWhoTFVDaDVDbks1a3BEcW0ycy05WndxRzItcw?oc=5) |
-| US envoy to visit Gaza, as hospital says dozens killed seeking food - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBMTVF5VXhXNE1hX1BwWnBndXRVOVNacjVnM1cwY244bUdfVVY1NGd0ZmI2a29RVjJJRnVCaFZoOU9FUWJub2RUaW1IZEVYTDFRaHE5a0NreTFDZ9IBX0FVX3lxTE1YOVVYYllnemQ2NlJDZnhuRDBoNmZHaHVsWUcydmF6UWRhNFlid2hGZk4wRGI1c3V2dkZKOHBrbUZWXzNJRXpnTFJpdFlZS1hOVkVodkF1Zmp5OTBtZ0c4?oc=5) |
 | Kerr County, Texas, lead emergency management official says he was asleep during deadly flooding - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNaTFxTWVOZXlNX3hUbzlxcngyQmVJS3pEU2JYN0c1T0dOdmltUzc2emxGYjAtZHY4VDhPZDVtME5tNGNlclVSQ3FXdkhoZW9sUnJWOFFEVzhfZ3hyZm1MLTdUNVFUeUJ4c2QzbTBEU19Fb1hUdHlYNl84Vi1sVlRONDBEWVdWeVVxUXRRTkN2Y3ZUSkJTWWlXVkZkRXkycmx2YlFlcC12Y9IBrAFBVV95cUxORkZpOEl5cE81U2luM2J5NV9Ndy1IV1JJdEhtZm1WZ1VockJZa21ZemdrdURvQk1JV2dhVWU2aUh6Q1dZdWhlZVBMUVdnR1R2ZkoxWXRyTU5PV2RRREw4NUpvUjBLX2Y3Mkk4cTJiSXlxb3hQc0FSb3EtNXZMV3ZFQUJXWGRzZWtIbUM4eGsyaEhmZU5GNWg1NDFwbTRfRF9DYVVaOGw2dmU4TVhL?oc=5) |
 | Trump's tariffs face crucial court test on eve of latest deadline - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOX1J2ZTJZeEE4bG5lSmJybnBDdFU0RHJiUF85SElyclA0ZTlFdmdVQ3dxRGxIQjVjNXYxY2NpSUhYQ0hBc1Q2bWtUaklua3l3Ulg2V1o3ZldBSC05MDh0dXJtOUw4c0Z5cm9JR3kyNHd3dUNfcjROU2puc0JQcEdOVkZPbXBpZE5rRjJEZjBIWjlCdmdDUE5yaVctQ2U4eXEwMS1ZcHREMl9QcnZK0gFWQVVfeXFMUHlPSXZidGEyNFZmWUJ5YWxSOUU2WEhxUlBzTzEwMG9BY1NVYVQ1ajRlbndDY0ZTMmU1cXI5SDQ0MGFfbDA1WkEwb1N2c1R2Sy1KSjhUR2c?oc=5) |
 | Governor Hochul to Declare State of Emergency and Urges New Yorkers to Prepare for Heavy Rainfall Today into Friday - Governor Kathy Hochul (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQVVZrYjI2OGd0SDk4MFUyVGIwcVZpSHRKdUhjTUdzRVVLaDRFQTJNMjVWcnM0R2Z1NVpPRU1jSHo5VlMtSEhHQXlaRWVRcDNsS3k0aDJrTTQ0T3dnVUZuLUcwZ1pjdW50TERscmFKZmlMS1FLVkJtdmZJUVBaaDBmOFpoVDJiMkt5MlA4aVQwd1JsMTNfTHc1NEVtcWtmNGdFWWlFVlFyVnFRYWxKYkdHZ1FaQzl6VkpNNkd2MjZ1clM?oc=5) |
 | She Came Face to Face With the Park Avenue Gunman and Survived - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQSUprOGpyb09TeTctdHA3NC1BT1ZmNDhFSENvTEpWVE9Eb1lHQk11ZmpNV2JkanNZY0RTamRCb1VvaWVfQVVYdnFheXphM1NkbFJuX29QRm5FSDQ1UFlwVGQtSGxLb0hZZmFDMXl5aFdEUzBFNF9DTUllc1BpMmdjcE9sbWJRTmpDQ01MOQ?oc=5) |
+| With Kamala Harris out, the governor’s race is wide open. ‘Welcome to the thunderdome’ - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNc2tVYW5MeFRYMjVvTVU3T2Z5TDg0emR2QlM2UFVfa2EzQVZGbnRhNDlZNzJRWUtDVXBibHVhRXFhVUp1RVNsYjlDRFlCQXNiQXlvVlNmSk00MnJmbHF0d19tN1hodlIwWXo0QnF3ZDR0NEJPVlJCTjE1Zm1Ub21abHcwcjRiM1JSUkV1VHZuZjlhMEI4bFVxLXRTbVpqT1VobzlLS0tqWQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
