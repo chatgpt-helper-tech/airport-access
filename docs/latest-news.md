@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年07月31日 16:14:47（北京时间）**
+🕒 更新时间：**2025年07月31日 16:27:25（北京时间）**
 
 ---
 
@@ -17,22 +17,22 @@
 | Russian strikes kill six and hit apartment block, Ukrainian officials say | [阅读全文](https://www.bbc.com/news/articles/ce930z8g9mvo?at_medium=RSS&at_campaign=rss) |
 | Hotel tycoon reveals Heathrow expansion proposal | [阅读全文](https://www.bbc.com/news/articles/cd6nvzjvwgqo?at_medium=RSS&at_campaign=rss) |
 | 'Communities' of strange, extreme life seen for first time in deep ocean | [阅读全文](https://www.bbc.com/news/articles/c3wnqe5j99do?at_medium=RSS&at_campaign=rss) |
-| Major healthcare equipment firm on brink of failure | [阅读全文](https://www.bbc.com/news/articles/cn72mpz0zzeo?at_medium=RSS&at_campaign=rss) |
+| 2,500-year-old Siberian 'ice mummy' had intricate tattoos, imaging reveals | [阅读全文](https://www.bbc.com/news/articles/c4gzx0zm68vo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Hawaii Cruise Ships Leave Passengers Behind Amid Tsunami Warnings - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPLWswdmdGQkl2bTVmVVoxdDlPSzdmTjB5ZkFPalFBNTVGaHNuNHotZ3hqQ25vbmFmYVFZMlJpd2RnWEo3SEIzODRiYlRfUDZZNXA4eWZmYndLODJrZTZpbmktS1NRUUVYUEFxSzdad0lLaWp2UmFacUR0NjJ2Y01scHR2N2M4ZW4xdG0zSUpB?oc=5) |
-| Trump says he has trade deal with South Korea as Friday deadline nears - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPZ0hZVkhKcnVBZXNoWE16NXh0dGFkcG1yNUw5akFHWGhFRzhlaU11ckswaFJjeHk5RGpURW9tV09ZbXowZzZlZzhYcDBVUjNnVjFXOTVSQU1hbmJCYnBuTllFNUM5YUcyVXQ2OGZ6MS1EUkF0RF95U1ROMGZGaFVMZjhrb2hpaFJ4UzR6N3NSb0ljWjc1MEkybnJWWi1neGdhZ3hlTnhKRm1oeFZ2eWN5dktsaw?oc=5) |
-| Nancy Pelosi appears to endorse a candidate for California governor after Kamala Harris bows out - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPd3lLYnBreE9JM1g5VmZxcTFRNG9tOHJ1Z3lpOU1PSDVQZDladG5CNlh5emNmY1R4MzR1MHF5NVhvZmxNaENLUzVWY2VMQ0M3anp5Q3dCRlhIZ2I3OXlBWEdfX0xKb0MxdWFIZ2pJYkRYa0pYdE9mNEgxcVE5ZFNqbg?oc=5) |
+| Trump’s Tariffs Threaten to Deepen $248 Billion India Stock Rout - Bloomberg | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNN0JObUxhY3YtdmU0MUtnZmNwMm9JakxrTHF5VDRxeThPS2lwNlJsUlhad293dzZDZTJ4UmNBLWg0MGptZ3pwbW1OTDl1aGI1MTd3blhtMHFNSlRYMFZjSE9BcS1CdjBUWUU4aDlzUHdUSG9DWFBhX3UzR0V6LTJ2SUhiZlJYdHNBRzZsdXVZMmJSbVltM3NZeldFU3BheDUtY3dQRzAxYlVUSEs2VFNZME1KRnU?oc=5) |
 | Trump hits Brazil with tariffs, sanctions but key sectors excluded - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPU2xGcERzRzc2MF8wVDB0M2VhRWN2MXpfMWxWYmZjTHQtYjlMWXAzSm1qaHNkVlBlUExTVXg2aWpVdU5DajJGMXJTdUtIT0RfV0ZiWUc0aWU0d210a21saWZvYXY4aVh0Z2RFRjVXWGhNWXVzczF0VXlZUDJTZl9LME9ZT1FScHdnTjdYSmpGRFktX2xNV2MwZjlXaTEzY0NYSDlqWkNGSWg1ZnpwWUJEMDRR?oc=5) |
-| Trump dashes hopes of a trade deal with India by Aug. 1, announcing 25% tariffs - NPR | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9rbEhscnpDZGw3cWQ0MlE0RlJpMWRLZ0dXTHpRZDVqYjI0U0VYQzdISWhHN1N4Uy1pX2pjcUdTOVM2M1RkODFYNE5ON0RQcW04TGc5V3RhaVFRSmFTZWVlSDZqSzR0aW1UUGVnSzNtSUlKc0g4UXRZWg?oc=5) |
+| Kamala Harris will not run for California governor, opening door for 2028 run - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNX09mRml0VmdsVnRXYi0xTEpqSHFITGJyTHRLd3RsTW5PWmhLelBKUDlrNWFKVWFrMVZmQThMaXluWjQ1WDd6Uk9vU2FGWnNYUF9TS24xNkN2VTJHQjQ4RVZWT0lST19fa2drNlNXSkNiQS1wT2tSMGlZWHZMeldLcXhyNVRRN094eDE5cHVfTFFUTms?oc=5) |
 | Canada to recognize Palestine in September, subject to reform commitments - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPdm9zZ1ZUVzc4Y09tcU1ieDRvaXMyTkJpY0wwbUE2VmgydW5xX2xOclVYaXR3NkJ1c1F5MmRBMXZla3dwY0NUZzJ0ckw3djkzSW5jN0ZpZlJrcEJtS3l5SW54eklWaF9FQVJFVTVudTdjcEZybWhxSVBmaWlueVV4ZE9FQQ?oc=5) |
-| Arkansas State Police arrest suspect in Devil's Den State Park double homicide - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOUU9hUGl6OFpTRXpmRGdIMzJQVFRpaURzVUdjWndVS1laUjBHNXBIMnBGbHY3aXlyUnRydW55RDFDbTRDM2YzaVlDb21mSnBRdlJMMkMxRENtSG1lZWJpRmxGQ3M1RVdodHB3VzhMc3ZlOU04eXhMTW9rWHEwMlduZnZTVXg0a3ZObzhOX2Y4SmtQNlJlOTBSUjBNeU1xSkHSAaQBQVVfeXFMUHBFTTdmdGR2STBwZDQ0TUxWdG1YRmxQVDdBbm45ZUZpWTNPWC1tQ0EzWm85WnJITlJCejliYUJHUk5mNzRQc3FVZUUzc2xUVUdlVV9jZnR4czI0X3NLYUtyQTJzTzhVem15d0VTZkczbkZQX3l6MUViT3ZMRnBWNk94NTd2b3JGWnpUS0xxUV9JRnl4RFZRNTYtd1ZyNjlhOWhUd00?oc=5) |
-| US trading partners rush to sign deals before Donald Trump’s tariffs hit - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1tVFY5QmZOdXRvbGdJYlB4UllSVW0tczFkdHpsXzdWWTFOR1N0MUgwVGs1dFVsdExsajUyN05wcTJILTZtMWpVWVBzYnd3RGpSbnhKT3UxWC1qVjM3Y2pSUndsVHE3M0lVeVo3MWNHRmU?oc=5) |
+| Suspect arrested after couple killed while hiking in Arkansas park: Police - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOdEEzTzlkc19CS3ZjeWctUGhKRldONDBHYmY4UGtmQXZ2aFJCRG5VMVBuQXNEcUtweDBKb1ZKaXQ3ME9MM0hjTUdsSk02U3FyMFh0RzREN0VhRnh0MUx6OTdOaUVpaUpnNzNhamNSTW0zS29LY25nVThXSWxiSFN6MmtxbDRLeGJsd01vQWNiZ2NsV25IaTk4WVMzTE1tNVVkci1FaNIBqgFBVV95cUxNOG1BWGhMQy1iRDQyYWd5ZjZqcTNMMDdTY1BjWDVnLU04UlNHS21NUC0ycm03akhQa1pHQW1MeTdYNG1LVTZsY3EyR0lnc2tyZjFrcVVIOTNqQVBkaS1tNjJuVGZpZ3NDVDNseFR0bXJDOWowOHo3TU1OZWZzc3k5M2FTUGhpajNkWkRvYm9uMmEzS3NiaFpmNlZLMmRsbDdPZXZuenZCU0ZjZw?oc=5) |
 | Mamdani, After Visiting Slain Officer’s Family, Defends Stance on Police - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOcy1yVVd0SnJlNkROSEJxV0ZFeHBYOUREbVhfT3hIT2lMd0V3SUg1LUpPYzl2T1Y2b2ZMRHlkd0E2RXdYSTVPVnktRmJ4NDJoLV95Uzc5S2U0V0dyNmxtYjJnbGRBRFBvQV9zdUhpX3RULTRYWWN4OE5VVzdJaEdrU2s3Qmk?oc=5) |
 | Virginia city councilman set on fire in attack over ‘personal matter’ - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOQnc1d0FuWUNmc3FrT25YOWZYemgzODEwaUREeWJNbEduZnB2MXFITU41UHZsaGlNWS1JU2w3OWwyQzVPNGVCeEZNMlhMYzd5MjctNXJ6bkMyZDE0N2NiMDA1OWhQR2NHRmJqQ3hNclpaR195cEp3WjVVaEJoVVBqMktaZktPZV9Bb3JCc05vRFdBWHUtMnRpbVBfTDNzU0ZPNHl0NDBtannSAa4BQVVfeXFMTzR1RGtMZHNvTFhGa0d6dmxybEhzcWhnaVRJcW1tTGgyTENPT1NyZ2NMNDBNWHhMaWFnR0dxTTJiNnZrbVU3a0ZGRDhpTFktbTR0QnNDV0VvZUZrY3NCamFFVjNHdE9tUldmU0xqUUt4d2x2WUhwTi1GcWpMT0FUa3hTZm1zOFB5UUpNZFY4ZzNMalpxWWZoRFI0c2NwUW11VlNWaHUyUkdoRmhIOW9R?oc=5) |
+| Brown University reaches $50 million deal with White House to unfreeze funding - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQeXdJc1JsMXU2R3RseUpEN0cyR29FVUJfNGNVd1FyNG0yMlEwQjEyQTVoaEl5WEw5S0RWX1lNZ0pXbk9YU1dXYjhWaU9mMHF4X0dibk4yVGNFa0ViLS1KdVJHcGFUYU4yX1pDMGlvY3J4YTU3dDAybHpzUWt5cmVoa0s1ZUo1QzRKaGppS2ZPdnVkaUtnNFNyMER6dEl2LUVHWWhjWE130gGrAUFVX3lxTE5JSHN2TVdKdUVWU0JIZnkwVlI5dmZhVFZTTnVrSldGSTFXWWlvZzE2VmZKMGlJMEFKdm9pYlZYT2lwa3dSalhGc1JRRWQ5WnViMDh4LXdiMG1Obm9iTkhnczd5QWN0NFBPdGItYldvNHJpbzlyVlMzVnVrTl9Tam5id2Zoc1dCbTNBcXlJcTVDdVItZEhDaGl0N05BSzh4Z3diMl83TXNveThnVQ?oc=5) |
+| 130 feet from disaster: What we learned about the deadliest airline crash in decades - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOeHdFRzZPS1lrTnVrb01ZXy05czNmdk94NWNHSnE3dFRxS1dPbGE2YTBRZTlUNWZTZ0VQRWpyVktzQjlRR1N2alBaSm1MdTJKOWlfNF9NZ3psT1FuT3FITGhfRWFzZkVaaWhoTFVDaDVDbks1a3BEcW0ycy05WndxRzItcw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
