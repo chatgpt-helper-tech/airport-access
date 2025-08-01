@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月01日 19:27:29（北京时间）**
+🕒 更新时间：**2025年08月01日 19:39:59（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Alaska ignored budget crisis signs. Now, it doesn't have money to fix schools. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNQUxLM2dxTUZWSjQwS1MzR28xSWF0S0tnd0VSZmFHRTJLN2sydC1nNTdUb0docmNFMW9uUVd5aEI4ZnVPVzJ5X2Zqc2tfTlZ3TV92cDU4Tnp1VW9HdTdqenZELVd4Tk9ldi1Ob0FTZ0hNMGhuUm1tTmJwZUdyWGhfS2JMRThGQ0lGazBMN0h4ZV9SVUNPM0xzTFViMnlOb0V1NkZPZTAyVk9RWkNlMU5WOWJ2aGNpZlU?oc=5) |
 | Trump to approve new Gaza aid plan after Witkoff visits Friday: White House - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1qblNCcjBCczJLanNHMjFuYm5DMlQta1NiU2ZuTlRSUjBZSmo2d084M0Zsc0N5akROU0R2NzdXTnVEY2dMdGFKNU95WWNBMjFFWDdjOVcza1U2UldKYTBHLVQ5ZzQzYzlxR2pnZVV5WTVPWHpI?oc=5) |
 | Harris tells Colbert, in first interview out of office, that the U.S. system is ‘broken’ - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxPODBSQ1VZTWhYTGdQWlJ3TFplWTM2MGItVHVaZDZTWGM3bVVvZlV6R0VmeDR0ODdQckJ0ZTd1N3Ywek1hbTJIaF90SUZlSU56LXNLNVdhbVdvUTZlOXFFaXF4ZmFQUnRMM196TUYxY1JxdzZzX1dWRnU1UWpDQ0NJbWViYnlOc0NBZGE0SEFKcDhER1VxWUMySE1iZWtVMGw2a04yTktWQ2xWdlR5UkpTbGd6Wnc1Wm1UcVppWWVVR1Fqc1JRZTNLYk5WNnExYXM?oc=5) |
-| Trump orders a 35% tariff for goods from Canada, citing a lack of cooperation on illicit drugs - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPY0xnVHpEM3RRa0VKUExON0hLVXZpZE9xeVhoUDhkbDY2dEEzM2dFZHRBVm9QRmhOdkJqTTdGUHl0eVFXY3FiV2RwODlmdUpyeUxpMUhwV3VqM185SEg5TWl3LW05Y0EzNC1UWEl0SVBnSDdSejBVdlFXZ01iYklNVGxsMTlIRk02TENESk1aVQ?oc=5) |
-| Federal judge delays expiration of TPS for Hondurans, Nicaraguans and Nepalese - NPR | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQazR0Z0NJMWswM242dlE2dHFXNjRVbnFiWXdCdGZqeExObHF2eGxLSDdJcGtkNWlfdkR2SExiLTg3ekg3UTl2YlJLR1ZrOXNNak42azZNczRvcWVjQkYtNmNDRGNIRGdaZHpRMG5BVGFkSHAtaVAwVTFQRHNDMWtiaGRJZHl0RWFtNXFWMFdocnpQSkdNRnBWOWV6dktZSDJ0UTNxNjdZNGN3MS1kZWtQSjF0ZlN1cmJHWnFTWlo3SQ?oc=5) |
+| Trump tariffs: Canada rate raised as deal deadline hits - DW | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQVDVJVWlyRFZXTXRZUUtNejRIeU5naWZtcG5LM3ZYckRqYXg0LUJqR2o3T1NwNjl1T3BxcXRRUTNvekwxQ29WTTVrMFUwbzQ1OVp3LVlYRzdCeENQSFFFN0ZFQjZCbjVLOWRIMldaVGpySUF3Z1hCWnZuekVvT2NXQWxUaEdMTDRvUUpyV3NNLWtWTDlr?oc=5) |
 | ICE efforts to poach local officers anger some local law enforcement leaders - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxNbU94OTFGaUdrOUZkelY1X05uRkhKXzExZ2VQS2lzLWFHeG9aUnlITlFVOHh2OVlJYVhONlNjSHpia2x6RTEyMXZoR3NqYk0xVlBtaWxnc1FWYUU2cWdIV0JDVC1MYTNvclBxNFh6SlNlNHRFZDdTSEEtN1d0d0lLd2F3U3dUbFViNExDa2xPT2J3THFKWjlZVWVLWlN5SE9jQXUyMXo0d3VGUTNJZ0hDWjhrZzNXRGJLQmdHU0tTOGh2YVl2N3M0NElDT3bSAVZBVV95cUxPNGdpLUlKcGtQaERkakFKOC10MW1DTzFfOEhKNjVoWmI4VHVLQ2VQU3Z5ajRab1A0VXhycWs5eXZSeks0VHlmbkVlc1JnX3h4U0VOOU52UQ?oc=5) |
+| “Nobody came”: Hill Country flooding survivors recount anguish, neglect during emotional hearing - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOTmZRQ0kzb0VWT2M2NHpxWjJ6UW82R2hlOE14aC1lNUd1bXNTdnZiekZJRnBNNTJXcDVSMmwtenZBNE5WVlZ5cHZaaEM3UF9NbU04a2luenhVZE9INlpGWW1Gc1M1YVhEUDR4TWpPamFjNzJpRmk4ZnYwaGVJZWpSbDJNVUtwRlZKRGZJ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
