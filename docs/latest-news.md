@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月01日 16:13:33（北京时间）**
+🕒 更新时间：**2025年08月01日 16:27:59（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | Trump's global tariffs 'victory' may well come at a high price | [阅读全文](https://www.bbc.com/news/articles/c0l6g13rlwko?at_medium=RSS&at_campaign=rss) |
 | Rats, mould and dangerous overcrowding - inside illegal house-shares hiding in plain sight | [阅读全文](https://www.bbc.com/news/articles/c04r7l455zeo?at_medium=RSS&at_campaign=rss) |
-| Ruling could enable millions to claim compensation for car finance mis-selling | [阅读全文](https://www.bbc.com/news/articles/c8j1jkyjl1xo?at_medium=RSS&at_campaign=rss) |
+| Millions could claim compensation for car finance mis-selling if ruling upheld | [阅读全文](https://www.bbc.com/news/articles/c8j1jkyjl1xo?at_medium=RSS&at_campaign=rss) |
 | Two girls shot in Gaza - BBC pieces together what happened and looks at dozens more child shootings | [阅读全文](https://www.bbc.com/news/videos/cjelp738zd7o?at_medium=RSS&at_campaign=rss) |
 | Civil service interns must be working class, government says | [阅读全文](https://www.bbc.com/news/articles/c3ez3v9v8jqo?at_medium=RSS&at_campaign=rss) |
 | Heathrow Airport's expansion plans to cost £49bn | [阅读全文](https://www.bbc.com/news/articles/cj6yz77nlw4o?at_medium=RSS&at_campaign=rss) |
