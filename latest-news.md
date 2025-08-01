@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月01日 16:53:02（北京时间）**
+🕒 更新时间：**2025年08月01日 17:01:45（北京时间）**
 
 ---
 
@@ -10,14 +10,14 @@
 |--------|-------------|
 | Trump's global tariffs 'victory' may well come at a high price | [阅读全文](https://www.bbc.com/news/articles/c0l6g13rlwko?at_medium=RSS&at_campaign=rss) |
 | Rats, mould and dangerous overcrowding - inside illegal house-shares hiding in plain sight | [阅读全文](https://www.bbc.com/news/articles/c04r7l455zeo?at_medium=RSS&at_campaign=rss) |
-| Millions could claim compensation for car finance mis-selling if ruling upheld | [阅读全文](https://www.bbc.com/news/articles/c8j1jkyjl1xo?at_medium=RSS&at_campaign=rss) |
+| BBC faces mounting calls to pull MasterChef series | [阅读全文](https://www.bbc.com/news/articles/cwye4840zdgo?at_medium=RSS&at_campaign=rss) |
 | Two girls shot in Gaza - BBC pieces together what happened and looks at dozens more child shootings | [阅读全文](https://www.bbc.com/news/videos/cjelp738zd7o?at_medium=RSS&at_campaign=rss) |
+| Millions could claim compensation for car finance mis-selling if ruling upheld | [阅读全文](https://www.bbc.com/news/articles/c8j1jkyjl1xo?at_medium=RSS&at_campaign=rss) |
 | Civil service interns must be working class, government says | [阅读全文](https://www.bbc.com/news/articles/c3ez3v9v8jqo?at_medium=RSS&at_campaign=rss) |
 | Heathrow Airport's expansion plans to cost £49bn | [阅读全文](https://www.bbc.com/news/articles/cj6yz77nlw4o?at_medium=RSS&at_campaign=rss) |
-| BBC faces mounting calls to pull MasterChef series | [阅读全文](https://www.bbc.com/news/articles/cwye4840zdgo?at_medium=RSS&at_campaign=rss) |
 | Stricter rules for older drivers could have saved my mum's life | [阅读全文](https://www.bbc.com/news/articles/czell1g83nno?at_medium=RSS&at_campaign=rss) |
 | University tuition fees in England and Wales rise to £9,535 | [阅读全文](https://www.bbc.com/news/articles/cwyegp0dnq9o?at_medium=RSS&at_campaign=rss) |
-| At least 28 killed in Kyiv as wave of Russian strikes defies Trump ceasefire demand | [阅读全文](https://www.bbc.com/news/articles/ce930z8g9mvo?at_medium=RSS&at_campaign=rss) |
+| What tariffs has Trump announced and why? | [阅读全文](https://www.bbc.com/news/articles/cn93e12rypgo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | Trump freezes $200 million in UCLA science and medical research funding, citing antisemitism - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOZWo4UW5sTEp1bHlhTE1aTGFVQ2VtODV4RFgwbDRDdkplRlhYQlZUd3NVWkhvQk9YMGZJbWI5TXNsak51MTZndmpVaVFOY25kQWhfLWY0ZmVDN2VWbWlxU2ZtN0o0MW9ZcVZTdi00N0NmV0o0cjFnWEdiTzFoTWlXNUVDTUlIZ3E2YncxUjJ1Yw?oc=5) |
 | Wife in Devil's Den double homicide was fatally stabbed after trying to save husband - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOcE1kbHRLbnNTRkpCVkJMemgyMmlfRnl4U05leVZiRzk0NWE1eHdmUGxNSk1aUEJUdVlobElwUHlRVzRpNGdVclFaNXVxRVBqMG9GaEtzOWVmeE5fcE4zLUVmR05yQUx5OW9MN2VXNllJVGxkQVNaM3EtdWx3ajdxc2VHQTjSAYoBQVVfeXFMUFV5TVdUckhENzFHMGo0djlMM3ZVRTlDVkJZVVhKM2lJbVBfUmlrY0J5Q3JvaFhrbHV3eGxEd2hHVkJYVmg5RG96YmJaR3k2dU5walFydW5PT2JBVnM1bVZ5ZUVKX2xnU29PbjBqbUk5dE5CUHVVVm1Lb19JSGowVGs2ZVhieVlPeFln?oc=5) |
 | “Nobody came”: Hill Country flooding survivors recount anguish, neglect during emotional hearing - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOTmZRQ0kzb0VWT2M2NHpxWjJ6UW82R2hlOE14aC1lNUd1bXNTdnZiekZJRnBNNTJXcDVSMmwtenZBNE5WVlZ5cHZaaEM3UF9NbU04a2luenhVZE9INlpGWW1Gc1M1YVhEUDR4TWpPamFjNzJpRmk4ZnYwaGVJZWpSbDJNVUtwRlZKRGZJ?oc=5) |
-| Trump modifies tariff rate for Lesotho to 15% as small country reels from tariff impacts - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxNZTg4U2lDaTd0a3loWWw4bXBfRGlud0VLcDBqN0lYSjE2bzZXYlZXbnNGSXd3MkNMVkVQWDlqZHd5VDhIZzd4UnBIdkI1SHVfcktFeTdLVU9VZWpyZXNrRzFXUlZKTzVseEhSVWNudXgxeHVXWTNfdHRHQU1ETkd5a2VtYWFtaDdOWENtZ1dhOHJhQm5SeHdSVG5RRnZmSUN1M1JwNzc3al8xRkxrZ2FCUDQzS1pFME40Wm9kVXNB?oc=5) |
 | Trump’s political operation has stockpiled a massive amount of cash ahead of the midterms - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPTTlPazlpN20tMEl6Q2lSRkZLV3hZa004RjU4QUUtdGhRYm1RTjdxc0I0MGlUYkZwdHpZa2JVcUhJRGl1MUZkYmlFMkl4OXpzTkIzeHdmWDA2OW9IUW5nMlFsUzRUM3piS3Y5ZXlhc0oya2IwcVA5MTI4ckprZTdJSG13?oc=5) |
+| Trump modifies tariff rate for Lesotho to 15% as small country reels from tariff impacts - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxNZTg4U2lDaTd0a3loWWw4bXBfRGlud0VLcDBqN0lYSjE2bzZXYlZXbnNGSXd3MkNMVkVQWDlqZHd5VDhIZzd4UnBIdkI1SHVfcktFeTdLVU9VZWpyZXNrRzFXUlZKTzVseEhSVWNudXgxeHVXWTNfdHRHQU1ETkd5a2VtYWFtaDdOWENtZ1dhOHJhQm5SeHdSVG5RRnZmSUN1M1JwNzc3al8xRkxrZ2FCUDQzS1pFME40Wm9kVXNB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。

@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月01日 16:53:02（北京时间）**
+🕒 更新时间：**2025年08月01日 17:01:45（北京时间）**
 
 ---
 
@@ -10,14 +10,14 @@
 |--------|-------------|
 | Trump's global tariffs 'victory' may well come at a high price | [阅读全文](https://www.bbc.com/news/articles/c0l6g13rlwko?at_medium=RSS&at_campaign=rss) |
 | Rats, mould and dangerous overcrowding - inside illegal house-shares hiding in plain sight | [阅读全文](https://www.bbc.com/news/articles/c04r7l455zeo?at_medium=RSS&at_campaign=rss) |
-| Millions could claim compensation for car finance mis-selling if ruling upheld | [阅读全文](https://www.bbc.com/news/articles/c8j1jkyjl1xo?at_medium=RSS&at_campaign=rss) |
+| BBC faces mounting calls to pull MasterChef series | [阅读全文](https://www.bbc.com/news/articles/cwye4840zdgo?at_medium=RSS&at_campaign=rss) |
 | Two girls shot in Gaza - BBC pieces together what happened and looks at dozens more child shootings | [阅读全文](https://www.bbc.com/news/videos/cjelp738zd7o?at_medium=RSS&at_campaign=rss) |
+| Millions could claim compensation for car finance mis-selling if ruling upheld | [阅读全文](https://www.bbc.com/news/articles/c8j1jkyjl1xo?at_medium=RSS&at_campaign=rss) |
 | Civil service interns must be working class, government says | [阅读全文](https://www.bbc.com/news/articles/c3ez3v9v8jqo?at_medium=RSS&at_campaign=rss) |
 | Heathrow Airport's expansion plans to cost £49bn | [阅读全文](https://www.bbc.com/news/articles/cj6yz77nlw4o?at_medium=RSS&at_campaign=rss) |
-| BBC faces mounting calls to pull MasterChef series | [阅读全文](https://www.bbc.com/news/articles/cwye4840zdgo?at_medium=RSS&at_campaign=rss) |
 | Stricter rules for older drivers could have saved my mum's life | [阅读全文](https://www.bbc.com/news/articles/czell1g83nno?at_medium=RSS&at_campaign=rss) |
 | University tuition fees in England and Wales rise to £9,535 | [阅读全文](https://www.bbc.com/news/articles/cwyegp0dnq9o?at_medium=RSS&at_campaign=rss) |
-| At least 28 killed in Kyiv as wave of Russian strikes defies Trump ceasefire demand | [阅读全文](https://www.bbc.com/news/articles/ce930z8g9mvo?at_medium=RSS&at_campaign=rss) |
+| What tariffs has Trump announced and why? | [阅读全文](https://www.bbc.com/news/articles/cn93e12rypgo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
