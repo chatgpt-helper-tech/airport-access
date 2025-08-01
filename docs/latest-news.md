@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月01日 22:13:52（北京时间）**
+🕒 更新时间：**2025年08月01日 22:28:01（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Alaska ignored budget crisis signs. Now, it doesn't have money to fix schools - NPR | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNQUxLM2dxTUZWSjQwS1MzR28xSWF0S0tnd0VSZmFHRTJLN2sydC1nNTdUb0docmNFMW9uUVd5aEI4ZnVPVzJ5X2Zqc2tfTlZ3TV92cDU4Tnp1VW9HdTdqenZELVd4Tk9ldi1Ob0FTZ0hNMGhuUm1tTmJwZUdyWGhfS2JMRThGQ0lGazBMN0h4ZV9SVUNPM0xzTFViMnlOb0V1NkZPZTAyVk9RWkNlMU5WOWJ2aGNpZlU?oc=5) |
 | Biden warns ‘these are dark days’ under Trump administration - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE5uMXFIOWVid0M0czB4VUZybldKb0pTMVBxUndKdzZ3NDdrVndtcFgtbDlxZEdSRHZ0Qkh5MFdZVndOVTdXWnoxSXh5LXhCXzRfSjZLVlFDSlRKMV9ST1FRSkRuRXdwaWI3X2FVdUZ2MXowaW5M0gF6QVVfeXFMTlBUeVhUb0N1RU5FeldDQkVCejJyM3U1UTdHekhnQnhuQlBRXzM4V2tOdmdicWFOSlhYdXI3MnFvUVI3TG9XNFplcEI2d3kxaElvS3dvTUhDNmxPamJTaEdBMVY2eWZISHB0OFRjWkRNdVUtWTIyZm5rWHc?oc=5) |
 | Trump increases tariff on Canada to 35% from 25%, cites fentanyl - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQZGtSM1dIbGk0YlljeXhBWV9mdGJBTFRoMGVfa0pzc2VWeEw2b3VpV2dVOGlRZ1MzUHZpaWcwMDdpMy1RcWcyRUV5ZWxoT3h6X1ZZNXhVMHY3NUt4RGtjUS1TbGZUUmVmYWlDRG5fTkxhZ3V1ellEd1lhM2hzdjNuSUxjTG9BNVR3NWt0b1hvQ2RWTHc0a1lvT1Myd3BLdl9ndzRn?oc=5) |
-| Kamala Harris Tells Colbert She Wants a Break From Public Office - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNQ3RDY3J5cE4zVDQ4UnZzdFk3VkVJYlpYbTZwb3VhbGU0SzVOY0RDR2JuLXpYaXh4dDltYWstdDVTXzRPbXdnd2VUZm1iOGR5OGJHaFA1ZzlBZlJzTDh4SlNaR3pHMERnTHYtRVA0MDY3ZEx2bkhjWVYyLVJiTmVvMWVJdldEWlNHd05vamwxTzEtdk9IdWc?oc=5) |
 | How the Threat of Trump’s Highest Tariff Derailed an African Nation - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQQzZSX3oya3RKQXhwMnM0X21nTTdzMDZLRXRQZkdHQ2hfRE9qN2VwaDdwM3JCU2JHSXE1UFdZMWFqZUVzNVZIaktKZVlTQzlycTFOVlpsbTdqcW5nRkl2QU9YUzNlb3JuQjlGWUI4NzkzMWtEYkZtYmlVZkZwN2RfNlhvVlNQWmprZVRLQWdn?oc=5) |
-| US Rep. Bryan Steil met by hostile audience during raucous town hall - WPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPYXdDUmR0MV9NZkxCVmljSEEzbzdWUDFVUnBRSjh1ejh3aWh0ZTN0QkdSaFNJc1RaT0t1YTcwck5fMm1aaldveXRZcWpFVlhGQnlVa3NCLXhnLUZMdVBFdEVxZWVYZGNkV0FqZTBCcE54b0FjRDRjVXBvajdsMUZTd014STM?oc=5) |
+| Kamala Harris says system is ‘broken,’ criticizes ‘capitulation’ under Trump - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1lNS1Ba3AtZENHMFhYbk9kMDZ6SHRKVU9sckJUb2FBNVlOTDJvblB4eGlrbkRYcE82amVMLW4tNXUwSGNCdnRYNTJlWUdQQ3NaNmVBQzk3Ujk0WjV6YXhKeVJQclVRb0tPTVdWMy1sSzVpcXBKazlPTU93bkXSAYIBQVVfeXFMUFEzU29oTGpVODE1aEFUTGd0Q3RNUjVnUUtTOW1XYkpxdFlLbDR6X2FtOVR6NUFqY0pMZHBMTFZ3VVRGajdYZjl4RHhLUkxhajZMMkxNaWM0LXU2MDZlZkw3S3pXdGxaSlpCT1NjZ1cwNldHdzFwOXhhVl9sSV9CcmMzQQ?oc=5) |
+| Trump freezes $200 million in UCLA science and medical research funding, citing antisemitism - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOZWo4UW5sTEp1bHlhTE1aTGFVQ2VtODV4RFgwbDRDdkplRlhYQlZUd3NVWkhvQk9YMGZJbWI5TXNsak51MTZndmpVaVFOY25kQWhfLWY0ZmVDN2VWbWlxU2ZtN0o0MW9ZcVZTdi00N0NmV0o0cjFnWEdiTzFoTWlXNUVDTUlIZ3E2YncxUjJ1Yw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
