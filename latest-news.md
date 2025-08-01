@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月02日 00:53:06（北京时间）**
+🕒 更新时间：**2025年08月02日 01:00:20（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | Father of boy sexually assaulted on campsite saw attacker | [阅读全文](https://www.bbc.com/news/articles/crr2wq22wnwo?at_medium=RSS&at_campaign=rss) |
 | Trump envoy visits controversial Gaza aid distribution site | [阅读全文](https://www.bbc.com/news/articles/c8x5jnl5eygo?at_medium=RSS&at_campaign=rss) |
 | Sheffield Wednesday failing to pay players and staff as club's financial crisis deepens | [阅读全文](https://www.bbc.com/sport/football/articles/ce3j27y92p8o?at_medium=RSS&at_campaign=rss) |
-| BBC faces mounting calls to pull MasterChef series | [阅读全文](https://www.bbc.com/news/articles/cwye4840zdgo?at_medium=RSS&at_campaign=rss) |
+| BBC told bad behaviour 'should not be rewarded' as calls to pull MasterChef series mount | [阅读全文](https://www.bbc.com/news/articles/cwye4840zdgo?at_medium=RSS&at_campaign=rss) |
 | UK citizens will have fingerprints and faces scanned at EU border from 12 October | [阅读全文](https://www.bbc.com/news/articles/c8deq8qm504o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -29,10 +29,10 @@
 | Devil's Den State Park murder suspect Andrew James McGann arrested in Arkansas Lupita's Beauty Salon - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxOSkpHcF9SaXFreXFWSHhOdWI2eFVBbUs4bDdUQWplME9YRGd6RTV5WjctczVTSUZoZVdXV2JKN0drWDNpdTFLNDhvcTVQaUp6amRPUWNBUTZCVXBNQjlQS2RCNkl1Q0JfTU1vakdjLUt6RlhOX0xvdWZ2X0JZVy05QjVLZEg1TjFCcmF3Q0tKS0hJdzFjWFhTRVBpYnJhMEVsa2RTb3N4UkVfV2xlVEN2dVR0blkzQzQ0Yk1GZVVUVE5iOXJmZURNc0k2SXgyRVM3QkQ0?oc=5) |
 | Kamala Harris says system is ‘broken,’ criticizes ‘capitulation’ under Trump - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1lNS1Ba3AtZENHMFhYbk9kMDZ6SHRKVU9sckJUb2FBNVlOTDJvblB4eGlrbkRYcE82amVMLW4tNXUwSGNCdnRYNTJlWUdQQ3NaNmVBQzk3Ujk0WjV6YXhKeVJQclVRb0tPTVdWMy1sSzVpcXBKazlPTU93bkXSAYIBQVVfeXFMUFEzU29oTGpVODE1aEFUTGd0Q3RNUjVnUUtTOW1XYkpxdFlLbDR6X2FtOVR6NUFqY0pMZHBMTFZ3VVRGajdYZjl4RHhLUkxhajZMMkxNaWM0LXU2MDZlZkw3S3pXdGxaSlpCT1NjZ1cwNldHdzFwOXhhVl9sSV9CcmMzQQ?oc=5) |
 | N.J. town-by-town rainfall totals: See which town got 6 inches of rain in heavy storms - NJ.com | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPTjRVcVdERktiSHcyRWhHUllHYXQxd0FwMVV3OVp0QkVnSm1rOFJENGRJM0QxclpUS0xWOU1hZFM1ZzhXbkhuaUdFZ01selFWNkVqSXM0ZHVseF9CRlpCeDB5Y25FNktXOXFBWkZMM0hEQjBKSW92Y2lPUTh0YTNnYTdvTWpCNFR5dmJwVF9ndEVLWjNJY0lYQW1Ca28teTBLVC1PTWZoTElUOHZvU1FGZUZQdEF3LXZRYldXNW9mME00QdIB1gFBVV95cUxNQXczajhuSGtRRG5fY0hNc0FZaE12RU1lNzNqZnVVV2tqME9qWEdCeUZXaG1IYnBCakhkR0Vsek8zWWxKUW5iQ3MwZU5nRDY5aHBPUy03ZTA0NzE2aURiTkcwc3Z3S0hZYmtwQlNXakVJLTdEaFQ3a3V3X2lyVkJTb2V1cW5rY0l0bGlodXdFcjJnTzBwQXlnb3pVMHVNdFRWLXliSW1SWHRSMnREVGM2aXJiZVJGS1FoRk41aHp0ZVF3TWJLS2hfemZoU3c2eWJLVkFMQmhB?oc=5) |
-| Canada will be its own best customer, Carney says on tariffs; Trump demands interest rate cut again – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPNWtYM00teVM1aU1IUmhXUGc3dVdlOG40cVZtbUlTT2l6cHZocTg2MWhmQzQzRnpBZmhrUmo1SFlOWjJKTW5ISHBYbHo5UUJuX1pYWXZnWWdlb3QzLUVxZWlGN3JDamtCVVZNWDZlYS1DTHpmWEkyM3hUZk5zX0dzOUw2U0pGZ0xzZ1JyZmtPSGFUX0hsNk5QV0tNLWtVakFBUnV2NVBoSkpVQXNiUXFOWFpLVUlmSUU?oc=5) |
 | Ghislaine Maxwell moved to federal prison in Texas - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNWjFuZURaRlZmX0plOGpaMjRzalRGaV9pV1hVWVM4RW1xeHg2QzhRTEpuaUdrOUNGMDBNdnhFc0FOXzZuZzRLZjRCR1Nub2xDWU43WUJQaXNRUzlPWEx0bExNeDYxcXBsb1VfaVExVjlUVFZaSnY4bnQ0RkRyYzZ0bnV5UTjSAYoBQVVfeXFMUG9QRGRIZk4yR1VMX3dNNWFtc3UxdXo0TWhRSWtpYkZVVHR1Nmp5NWh3Z0RfLUVwLTM4aDdiYmNhMlBNUENfbEwwZ1QzdUZObnZJeVVDdkJ3QThxUzFtdkNZVnZEM2lPX0ZmZjhiTEc3Q0lZa2NiblFTUDhFeGI5SkdOc0ZZYk9hdi1B?oc=5) |
-| How the Threat of Trump’s Highest Tariff Derailed an African Nation - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQQzZSX3oya3RKQXhwMnM0X21nTTdzMDZLRXRQZkdHQ2hfRE9qN2VwaDdwM3JCU2JHSXE1UFdZMWFqZUVzNVZIaktKZVlTQzlycTFOVlpsbTdqcW5nRkl2QU9YUzNlb3JuQjlGWUI4NzkzMWtEYkZtYmlVZkZwN2RfNlhvVlNQWmprZVRLQWdn?oc=5) |
+| Canada will be its own best customer, Carney says on tariffs; Trump demands interest rate cut again – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPNWtYM00teVM1aU1IUmhXUGc3dVdlOG40cVZtbUlTT2l6cHZocTg2MWhmQzQzRnpBZmhrUmo1SFlOWjJKTW5ISHBYbHo5UUJuX1pYWXZnWWdlb3QzLUVxZWlGN3JDamtCVVZNWDZlYS1DTHpmWEkyM3hUZk5zX0dzOUw2U0pGZ0xzZ1JyZmtPSGFUX0hsNk5QV0tNLWtVakFBUnV2NVBoSkpVQXNiUXFOWFpLVUlmSUU?oc=5) |
 | GOP's summer town hall push gets heated - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNZl9JeGJrV2twZ1pOa0t3cEpxdng3V1l4aW9jWXNKdUhsRVhlTndkY3NnLTYzZHowRUpGcWMxc0ZvOTdUeHhnemxjUmRNLXBrcUNhOWM3U3doZVZya1BEbmx4LXMyNXpIbXFPbHh4b2NhTXlaeThFN3NJNnRhM1h2ZG1qejVzSUg5LVlUWE5wZFhHUkNXUGpnTXJXTHREWjJ6LUpDcHlraTA?oc=5) |
+| How the Threat of Trump’s Highest Tariff Derailed an African Nation - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQQzZSX3oya3RKQXhwMnM0X21nTTdzMDZLRXRQZkdHQ2hfRE9qN2VwaDdwM3JCU2JHSXE1UFdZMWFqZUVzNVZIaktKZVlTQzlycTFOVlpsbTdqcW5nRkl2QU9YUzNlb3JuQjlGWUI4NzkzMWtEYkZtYmlVZkZwN2RfNlhvVlNQWmprZVRLQWdn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
