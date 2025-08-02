@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月02日 15:14:36（北京时间）**
+🕒 更新时间：**2025年08月02日 15:27:22（北京时间）**
 
 ---
 
@@ -23,11 +23,11 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump says he repositioned nuclear subs in veiled threat to Russia - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPNFA1THJNZnp1cGlpZDh1UWpBVFd1b1k2SzRiYy1aWFZ1YU80aTVaZm85SUk1Vkt6TUx3NzJRSGtTemVKVFlGbUpYVHRha2g5YXk4Tnl3RDJRTm1XaEtucGxkTHZWck82YS1qcHJSb1pyR1FUZ0diVkpXRU82NnBCQjZmU2VHZw?oc=5) |
+| Trump moves nuclear submarines after ex-Russia president’s menacing tweet - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPZWlTbWZnOTFqM3V3ZHpSNFpmRENDR1dWRmV2RTNfVnp0T1M3N043RFVsVmFXN2oyTFhSQVhGbXB3cWRpSngyeW5BZVdXbGFteFVFVHNSY2YyNEJrYUNMYnhDczczOWhpdnJnZVBxRFdTc2ZTaGM0OW1sQS1wd09ycEstN0cwTzI3QUxJS2V2OTI?oc=5) |
 | Stocks tumble on latest tariffs, soft jobs data - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQZUVDTy1tNGlISkhtUnNFT0QySklidzl4WHRJOFlrRnByazBVbHNGOU1kaThrRVlSSGNWZ2tuRzdZbjc2WmR0dzI1bklVTWFKX0xDeTRoYUhoVy11Uk1ya0VaaFdQTzNqMDdIYmkzcXU1aVRCM2I3YnQ5Tk9yTEhrRGU5OEhwYmNEM21hSDd3NUhfUQ?oc=5) |
 | Ghislaine Maxwell moved from Florida to women's prison in Texas - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9tN0hXYXFWMDNZRmQ0NURvOFFyTVlyaDdzeFh3NWNSTTE5enlKa3JKMTVBRTQ5MUNmQjVPSmxheFBVdDM3MU5XX3BfNlVxUzNlRDdPN2dGLVVpZ9IBX0FVX3lxTE5PcjZmaHZ2b1VDUkFmVWVQd2V0bUJFTC1ZMHVOalVwNEtHNHJ1dTk4MkVLdzJ0MllHZ3ZlNFVSSndST2hRb1dHQnpOM3MwaldyaFo0bFUwMUhnOWI0TW9F?oc=5) |
-| How a fragile aviation system led to disaster near Washington - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQMk1xZXhGSVpnVjB0OFZ6bWtSVXVHMGtOZWVCeDVNZndCMEplMUwyZmx1NUxRZU92V015NXNiTVVnNThGR2NrUmxJLWxqODJhMFlTYUxLYlJ4YUh5d3FPcGNNek1xQzRObGV4VkhSSGZ3cGhXdEplSC1rQ3ZmUWVaTFo0MlQ1X0JmT29aNi02YnZSYV9JM3o1d09Qd3VsUU9tSDQtLWtQbXJJdjA2UWlrNw?oc=5) |
 | Kamala Harris says she doesn’t plan to return to ‘broken’ system of US politics - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNMURGcGZWcHBBV1BxNzNkZ0RScm1iSUNJRGFoaTNyQlh2Rm5Kc2VoOU5PWmNTUjhJNE5zZlMxeHhaNE1RLWtIcDF2NXhRamFUYUQ3SDlsZTlicW5ZdW53b0NDQzJsZmtUNkQ1VnRmOF85LVlKd2hjbVZaakxWdGNrdjViQzc?oc=5) |
+| How a fragile aviation system led to disaster near Washington - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQMk1xZXhGSVpnVjB0OFZ6bWtSVXVHMGtOZWVCeDVNZndCMEplMUwyZmx1NUxRZU92V015NXNiTVVnNThGR2NrUmxJLWxqODJhMFlTYUxLYlJ4YUh5d3FPcGNNek1xQzRObGV4VkhSSGZ3cGhXdEplSC1rQ3ZmUWVaTFo0MlQ1X0JmT29aNi02YnZSYV9JM3o1d09Qd3VsUU9tSDQtLWtQbXJJdjA2UWlrNw?oc=5) |
 | For Some, Return of Presidential Fitness Test Revives Painful Memories - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPOTBXbFJyVXYxbld6c0VtSjF0RUNtQVJ4X2ltYkNMSXkydmlGb2dRYVNJVWgtY2xmT1BmbGwtUnp1eTU5LW84QnZDeTZKcjN4Rjc2MHBTbHBselMtcWNibV82N2lESW02Q2xXd1hsXzNLTE80UF9iWndzRzBtRXJnV2dR?oc=5) |
 | Montana shooting kills 4 at Anaconda bar as search for suspect underway - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNNXNwSy0yZ09uODllLXV6d3dodGtPZmJzbDhWdzdKVXBzcERKZGpSVmg0aVMxMWYtUmVWa2JkLXZpTVMxSWQ0c0d5a19Mcml2Rkt6UVk1LUtEc21IQkVtU0czMGVvbFJVeEdSY1NwUVljdTNneWlQdEktcG1vRWN6RDE4RW9SeDZaanFGVkpUOW0?oc=5) |
 | The Supreme Court just dropped a hint about its next big Voting Rights Act case - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOMmZyRU5fT3FmdjVWTlRrT1dZYTMyMkdFMW13WWQ5VG1Ydkp2Wm5FWXVnNWVzbU9LeDZYTV9OMzB3SGdlVkZoekNsYWJ5SlQ3QUlPcml1OVRJLXo3QlZELVpTTkhMMnl1ZVBCMGMyNUVDc25CdE1Jd2tQb0x2Y05IRnlGOGw0aFMycW54S2NqbmhMX0ZGajNKNw?oc=5) |
