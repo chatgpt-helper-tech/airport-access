@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月03日 07:40:51（北京时间）**
+🕒 更新时间：**2025年08月03日 07:53:08（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| US officials investigate former special counsel Jack Smith - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFA0NG52VHpfSy1XREtDdEF6c1FudllKNzg1RWNJTmNOQ0lkVTE5Q2VySVJuMnI5Q2JQYl82OFZTYkxwZTV0SFJVYVJVUnZPSjg2YklSVWRXQ3V5UdIBX0FVX3lxTE5NcjBTZURoMWxvMnVJUmdxQ015RS16SS0tNU96V2lMeEtiUjdmc3BQak1raTJza2JRN0xrYXhmZzlPMUZfem9aWC0tYXkxRzFGTE05WDVDTzZSRXBHTTVN?oc=5) |
+| Authorities investigating ex-Trump prosecutor Jack Smith for alleged illegal political activity - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOTktMckhWYzVkbzF1QW9iZ2JGU3d4azVfUGVORVMwNy1haXdEeUdoR0UtWTY1czgzWlNCQ3FCUG9Jamc2UDFjenllcDUwNFRTU29QS2trc2FjUy1DWDJYX0VZejhDblZzdHBTX3JLVENrSDh5a3d5TFBKZzk0REVIZEU3WUpJdG5SX1FQUmVhZ0ZiSHVLM1htMW56WWNVT0w3VHRZWEdib1BxTmZTaVF5RQ?oc=5) |
 | From Laos to Brazil, Trump’s tariffs leave a lot of losers. But even the winners will pay a price - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPV19VZmxZYnV5RnBFWUVWdEt3QUd0U0tSNUlaeGZDakNTN2JGbnFIWTdwUnF0bk1JUHBCb1BITjNSY2cwSU9OLXdvN1BiN1VWQXBrNE5VTmlINE5vNU8wWTlfbFB5anltTldDLUhfMDBsLW90T1ZlaXZkNUk3OThYVDRVVEZkb1QxdDN0SnRVQy1nTzlsYmtnT05jVFZZTWlUM2c?oc=5) |
 | Senate GOP eyes recess appointments as stalemate drags on - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQQnJKTW1CbzBQakJtRTZyOU9sdE5BRlhfNEFJemRoQ2Zib09jcXo2MHJDYmZLbE9Ra3dVYkhETk9iTDBWSkRORnFIOF9DazlOOVJ6NG4wMDEtY3Bya0xBNkU2blpzWHNRYWtvdXVVWEEzZ1lmSWhwOXprZHQ2V0ZUN0dJWQ?oc=5) |
 | In Gaza, more Palestinians are killed while waiting for food aid - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQUktWQ0V5cDRySHM1dGJWTUdrYjhub216WGV2SGJyZEg1WjQtZTJ4OF9VZEpKTW1ycnRrQkxHZ291SGdBMGp1ZVFXVVJKcWNfZUc2U2pqLV9QcGFuNDZjT1lBeWxfVFZkUVBtOTNQOTIycW84TEtsOWtZQm9tM05jTkozaTM?oc=5) |
