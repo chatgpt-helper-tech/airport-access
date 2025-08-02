@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月02日 17:52:02（北京时间）**
+🕒 更新时间：**2025年08月02日 18:00:09（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Teacher accused in Arkansas double homicide resigned from Plano ISD after only 4 days in 2024, officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQN29wdnZLVC1xUmdNcFcxcV9HLWZkYmxMcVlNaW1vbXFWSkZLaTdNSjhLZk5WNFE1WXUtVmtfdFdUWWFKYWxtRXhTSW1ueTZHVWdKb3VoSGpDOXRLTEFkRVViV0ItbUJmcVRIWHNkSWx0Mk55U3d2VGZTOHVLMThmby1QczFFclNrakIxaklobXBiOFNxWmxmYnR4TFJraV9qTE5CVjVn?oc=5) |
 | Montana shooting kills 4 at Anaconda bar as search for suspect underway - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNNXNwSy0yZ09uODllLXV6d3dodGtPZmJzbDhWdzdKVXBzcERKZGpSVmg0aVMxMWYtUmVWa2JkLXZpTVMxSWQ0c0d5a19Mcml2Rkt6UVk1LUtEc21IQkVtU0czMGVvbFJVeEdSY1NwUVljdTNneWlQdEktcG1vRWN6RDE4RW9SeDZaanFGVkpUOW0?oc=5) |
 | The Supreme Court just dropped a hint about its next big Voting Rights Act case - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOMmZyRU5fT3FmdjVWTlRrT1dZYTMyMkdFMW13WWQ5VG1Ydkp2Wm5FWXVnNWVzbU9LeDZYTV9OMzB3SGdlVkZoekNsYWJ5SlQ3QUlPcml1OVRJLXo3QlZELVpTTkhMMnl1ZVBCMGMyNUVDc25CdE1Jd2tQb0x2Y05IRnlGOGw0aFMycW54S2NqbmhMX0ZGajNKNw?oc=5) |
-| Judges Keep Restrictions on L.A. Immigration Arrests, in Setback for Trump Agenda - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOUVRFQnhFV3NqVnJqTGtpcE9LMlNNcFNYT0FGWldIYXVseVk1djMyM3Jlc1lpNXpTdzNJRi1DamgzeXZMRnBiMHdMQm9UZ1ctaTI2WUY2UXNPTUZRNUd5ZjZnN21Mcmh1ZWpvUDB5VUJ3NEI0d3VHeTItLVVVVEhkeVIwOXMwUQ?oc=5) |
 | Ghislaine Maxwell moved to women's prison in Texas - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9tN0hXYXFWMDNZRmQ0NURvOFFyTVlyaDdzeFh3NWNSTTE5enlKa3JKMTVBRTQ5MUNmQjVPSmxheFBVdDM3MU5XX3BfNlVxUzNlRDdPN2dGLVVpZw?oc=5) |
+| Senate unlocks ‘minibus’ deal , prepares to advance three spending bills - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPNjk1UkxxZTB3WVRteV83M0ZvNWZoMEtJUVdqNzBHbHRtRWdhbEpCRzBscXd5OTlldFo1RW92STJpbFNjdXlzOWNScENMVFVXbTNxei1BSTRsd3VYOXFnQ2NISERhcWx6SktmOVdRQ1BucUR6eVAyOVV2dUwzcGh3VlJiWGRTeHJxNVVNamlCZXg4UGFHbGJIdU1n?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
