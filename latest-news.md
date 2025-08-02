@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月02日 12:26:44（北京时间）**
+🕒 更新时间：**2025年08月02日 12:40:46（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| US stock market and global trade partners react to Trump’s new tariffs - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE15U2tSOGNPTzdvc09ISFVyQkRZeEU5bndvdnNDOGpHSEExX3pqcXlCdnkwNXAwS19OVmFQa2d0VnBrYVNIdDFKVzJ0NFRGem1UMHo2ZEtQdnJBMG5NNDRTZUEyRk9sRUVkM2c?oc=5) |
 | Trump moves nuclear submarines after ex-Russia president’s menacing tweet - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPZWlTbWZnOTFqM3V3ZHpSNFpmRENDR1dWRmV2RTNfVnp0T1M3N043RFVsVmFXN2oyTFhSQVhGbXB3cWRpSngyeW5BZVdXbGFteFVFVHNSY2YyNEJrYUNMYnhDczczOWhpdnJnZVBxRFdTc2ZTaGM0OW1sQS1wd09ycEstN0cwTzI3QUxJS2V2OTI?oc=5) |
+| US stock market and global trade partners react to Trump’s new tariffs - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE15U2tSOGNPTzdvc09ISFVyQkRZeEU5bndvdnNDOGpHSEExX3pqcXlCdnkwNXAwS19OVmFQa2d0VnBrYVNIdDFKVzJ0NFRGem1UMHo2ZEtQdnJBMG5NNDRTZUEyRk9sRUVkM2c?oc=5) |
 | Corporation for Public Broadcasting says it will shut down after Congress cut money - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNQkxHOWdYcDFhcVZ5aXJLR0hheXVCVmozU2sxRmNPYmVYUklLUzJZYWZNMHJ2QTc1QlRwbThrZmo3LU5scjVzVW4zY3ppZkw5ZG1PR3VBSng5a0o4VkdsN2dLbnRNNjFNdGlLNG9ub2N5QktyZ2Q3VmJXTWJIWl9ZUFliaFBVOXJFc2V2N2hZY2lOUHU0WWpGUW1wcF9uY3ZWY05XT05XZnVZZ9IBVkFVX3lxTE9MWTdGd0pfWHczTk42MVQ5ampOcUJaUUttTnJwU0huSmJKSXN4SlF3VFc4T25yQU51dUhsUWxoRk9fQ2RwNWwtN0JwTU1DN1dsMEJmS2ZB?oc=5) |
 | How a fragile aviation system led to disaster near Washington - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQMk1xZXhGSVpnVjB0OFZ6bWtSVXVHMGtOZWVCeDVNZndCMEplMUwyZmx1NUxRZU92V015NXNiTVVnNThGR2NrUmxJLWxqODJhMFlTYUxLYlJ4YUh5d3FPcGNNek1xQzRObGV4VkhSSGZ3cGhXdEplSC1rQ3ZmUWVaTFo0MlQ1X0JmT29aNi02YnZSYV9JM3o1d09Qd3VsUU9tSDQtLWtQbXJJdjA2UWlrNw?oc=5) |
 | Ghislaine Maxwell moved from Florida to women's prison in Texas - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9tN0hXYXFWMDNZRmQ0NURvOFFyTVlyaDdzeFh3NWNSTTE5enlKa3JKMTVBRTQ5MUNmQjVPSmxheFBVdDM3MU5XX3BfNlVxUzNlRDdPN2dGLVVpZ9IBX0FVX3lxTE5PcjZmaHZ2b1VDUkFmVWVQd2V0bUJFTC1ZMHVOalVwNEtHNHJ1dTk4MkVLdzJ0MllHZ3ZlNFVSSndST2hRb1dHQnpOM3MwaldyaFo0bFUwMUhnOWI0TW9F?oc=5) |
