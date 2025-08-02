@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月03日 00:26:40（北京时间）**
+🕒 更新时间：**2025年08月03日 00:40:41（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | From flag poles to a $200 million ballroom: Inside Trump’s ‘legacy project’ at the White House - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQaG1ER2R1RUdTTzV0Q2tZajd6bktoajNqS3Bhd0w3RDBnWTNTVGpOSE5IcmR4NUNydW85b3FZdEtIMXY5RHVVcjUxb0JqbTRpS2VWSFpEcFZnUEI2OW9CNEt4LWo4Y3NQRU9DemIwdEN1MG9OZDdSUlNNcUJIQ3ZNaEVjd0XSAYoBQVVfeXFMTjVHSlJvb3pSYnpGWjVMdVRmRDFXWks5cVFOSC1sbmwwaUlxMGtGd1puZnhrQ25xQ2lsUlhJVW1rVFlfMW5rRkJOam04VDVOV2x0Zld5bkV4UHBPMmJHNG03NTlZbm80OGRUaWZQWXNoNWliT29vWlhseWxyQVdQcGxpV2dpczV0cGNn?oc=5) |
 | Texas’ proposed congressional map dismantles districts flagged by DOJ - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPd2ZVT0dUb2J3N2J4b1M5SVUwS1ZlS0NZSHVxNFFnZnVUUFpuX3lLdWJISWRjdlJwZHM2WS10a2puLWUwZ3E2Zzltc2J2ZndjV2lUM2tPNFBVMmlKSE1jNDJVZ3F3WFFSTUJ4Yzg2MERiZWpONUpsTWJiQ2EtQ1ByVUl3R3d6Q1p4NG5fWUFuOFBBSS1yemlqYnpoY2UxNTg?oc=5) |
 | Anaconda, Montana shooting: Police find getaway car of army veteran suspected of deadly attack - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5rY2xud29EenZHR0VWSm56N21vZkJyYVRYc19HZlBKV19xMXZtSHMtbmQzU3BqeEtFY3ZQVzA2MzFTOFpLR1p6OExvZTRSdDJHRFJQVEE3dVhFZ9IBX0FVX3lxTE1TajRQMzQxMU1LQ3hVRHM4YWNMX2tud2kteFBCcjJoekFKMkhCZzNsVGdLLThTOEJzT3A1ZzVpb2Z3V3dGMl9vRFZWZGt2enlodGdReEY4RzQ4OG9rOGNZ?oc=5) |
-| A war is brewing over the future of the Republican Party. It’s getting messy. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQT3FoNU5aQ2dJbC1hTkxjZmc5ZjVPVXhRNWZQUV82ZjBxMldoZjAtUUFSMzV6S010anFFQkh0NnpqUWdzZlMwSlp0WkhqM2s3UTdYS3MxRFlNM1ROTkZoNlpjNDNLbmhDY3VtcmhMcEF4NXdTWG1tLUl3bTJOQzZfcWVWZWh2RzFwc3hPQkNPeC1fcFVZZFJuLW9xWGRZUlU?oc=5) |
+| On the Senate’s ‘Kumbaya’ committee, John Kennedy is suddenly singing off-key - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxORndRZzlxb29VSmpmNjZXejkzUVlfWEFNMVFXem03T2lGMzVOU0J2eXRKYjFrdV9rSVZHZFNzdmFIcUxhY0pUeEEybEhVREppQ1BCOGV4RThKVW51cW5kbmpMU19QWlh2WG9NVFZ0by1zMDVxRWEydDEyLUJwazYwenQ4OFIwNFdOYVNyNlpvTE0tY2VRQ0p2eA?oc=5) |
 | George Mason board votes to end some DEI efforts, approve raise for president - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPRVFvOEpuWTZpOUZZLUVTaThGQ3ZKdmdjUHhHalpjcWdWdHZuRHUzYzgxSDIyVTlJVGllUUkyQmFoVTFvR2EtVWxtZ2pXT24zNFoxcEJWY1M2MVJaNE1rRGlxTlZIdTN6UDloVEN0cW01cjNjRFdMVUhVcDhoWFQ3UWhuWjV6ajhlazd5bUhxU1BRM0lKMXdRdzd0bks?oc=5) |
-| Corporation for Public Broadcasting to shut down after being defunded by Congress, targeted by Trump - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOSXp1M2I5VkFzX2FYanpxeGNOZGYwQ1doOWVqOWpDM2pwX2JlampsbE90bkljdDdoak4wd0UxRlhCWHJJRTg1VTlDYmVWLXgtcHdVdER3Ui1zYzF0ZlFjM1pGb3JYaWg3VmdxZXZSb2wwZllnWXdkbUFLZ005TVRWcFNxUUExcGFKamdsWUR5YzhtdnluTTJ2WjdYamczdw?oc=5) |
+| A war is brewing over the future of the Republican Party. It’s getting messy. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQT3FoNU5aQ2dJbC1hTkxjZmc5ZjVPVXhRNWZQUV82ZjBxMldoZjAtUUFSMzV6S010anFFQkh0NnpqUWdzZlMwSlp0WkhqM2s3UTdYS3MxRFlNM1ROTkZoNlpjNDNLbmhDY3VtcmhMcEF4NXdTWG1tLUl3bTJOQzZfcWVWZWh2RzFwc3hPQkNPeC1fcFVZZFJuLW9xWGRZUlU?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
