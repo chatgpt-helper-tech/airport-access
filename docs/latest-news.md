@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月03日 14:39:38（北京时间）**
+🕒 更新时间：**2025年08月03日 14:53:01（北京时间）**
 
 ---
 
@@ -23,6 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Trump tells Schumer to ‘go to hell’ as Senate heads home after failed attempt to strike deal on nominees - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5rNVVncWIwUHNqZjYyUENyUWQ3UV83NG1TX3hZNXE5RllOa2paUUNHYWZXNGxWemlUb3FNSlRQRG41bFdwNWltQV96aVMtT2hDNWM3Q3V1WDZpZElodG5GSHVnNDZTTnFkd0pFWjhFTjJKMVQwY3MwVtIBfkFVX3lxTFBCZklaRnF3bGMydTlyS1V0MHZFTGRCVEZYd3Qza2I4UVFYejdjbjhJM096enNIY1VkQWhBT3BFaG05bE54anJKMFd6Z2dVZzdpdW45YmhEbkFacVctZHBWLThKZ0NRbWdFNThwQ0FtTXpIT0duVUJkMlExWklwZw?oc=5) |
+| Former Trump prosecutor Jack Smith faces investigation by Office of Special Counsel - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQSnZxcmExM1NzT2s5akEwZHhzMFlnTkIyajB0UXdNVEpqT0k3Y3RtbERuRzI1VmdjRjhhdFN6aG9nYlVFcmZpcUtkYUpza2hjMkNRZUtKbnBXbjJRRTNqb0twMGszcFVieFRUNldWSTJuMS16LXp0VW4tQWlUc1dBOTVBanRmUG9IOHJMWURqZW9wSXZab0dmTWVPbldZemYxZHhvMVBPQWlUNWZFQWc?oc=5) |
+| US envoy tells Israeli hostage families he is working on plan to end Gaza War - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOck9ydll5RUIzVkRLcWcxRlNqYTl1SEZKbjlGM29pbHMwZVhtVWExaS1FcHp3b216c21qRFpyWi1CM19jQzdLMWdwZkxadEk0QWxuRjZ4Tk8zSDl3ZDdLQ0RFcG1wZkJRVEkta3IwZloyVHpUMzd0TXJQaDRkZUliUElHMFNmQklMelMtMXVYMWIyRDRYS1NER0lTcE9NTlBWc08zOFlhOUctSE9wS2VBaDlrTjhpb08wOGMxVlEzMXVyV0E?oc=5) |
+| India indicates it will keep buying Russian oil despite Trump’s threats - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQTjNyaGtmeVV6NVhWZ2xSOG91bGJRWm5CQ2lEYmZGcDNxWE5xN0xaWnJLb1JDa2RBazZRcmphSS1PbmtjdDU1MFpnVUdoY0daem0tTEg5RHdYT1BpeVVRcFJ0TFZJeEpFZ2hHNGljaUR1Vm10M1N3SVFsT2k5eS1JcVdzZ2xrUG5vTXc?oc=5) |
+| Smithsonian slated to restore Trump impeachment exhibit - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxONGNwc1JzWnNHcFVBb25xT1E2dFd3V1p4ZmF0Yll6SWFSSmx4U1BRMUt2b0dXaXpzVEtzc2hwTXhNUGptclF4WFBtc0pWMlVrb2dtV2xUeDBoVE0yZ2Q5aG8tZkNERU5yWFdsM2RheW93WVNDZXdsZ3p4UXlhMEZ2TG1JcGs4Z19WdmtSRzU0Mmx5QU9wSnlFYjlWZVhPSzFqaWxzdmVKUkVTeFpO0gGyAUFVX3lxTE5hbzVNcTRwT1pOYmtERWp1c0pKd0FiTW5TSWpTZ1U3aXNLUGc4ZXBVYWNnMVdpUXFOV0l6U0t5RzhIUFN3Tnp0T1JYRFV6VjZQdG50N3g3MmozXy1iVThaVndLU2ZhOG5rRVZaanc3elJWc3N0RVlHY29GbTJ2dGdWZXFyaHFidWxETHYzOTJNdXBEV0ZXU3RWY3ZITGlCU0JiVmhrdTJxbVBoUFV6X1Z5eFE?oc=5) |
+| Trump hits Brazilian products with 50% tariffs over Bolsonaro - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNQlduZmtKcGxIRGJoVjhjZzB1X0ZwbFkyMnVlaGZscjA2TlpvUGwyVTJtZlVoSjZnTU51NTRLck1kbXdoLUJxaXBMcUVHU3B0WGF4Ni1OZjNETTIxNUdOa3VBX1k3NWpEaGVOeGFZMDg4UzVubTVxRjdVQ0RDMGduZUp2V281bFdweklXZWdZVmJkVFVDRGh0NC1RN2k3SzJ2UnhQNGo4RWZKWkHSAVZBVV95cUxPTElhUU5TQ2tZdHQwdTdfRXZWVF82Z1lwNVduaUpNRGZOcFlOTlROTTdmM2VyamtXb2ZJOWV1QVVVUGk0alV2d3J0WUlvRDBlOXBHMVY4dw?oc=5) |
+| Search continues for suspect in Anaconda mass shooting - KRTV | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNS3I0MEZPQVhwbXNSTFRMRUluNkNUX2VJcDVaOEF4RUNCVUhjaXhKZHV5MktoUEstaE9ncko2VDM4YXpkRWNpc0NUVGlRdkdpSjlRLVkyeEtiM0VTaUlybThzVks3WnpvZmh3MllFaEd3VnhlSWJvQXk4WDNwTGE4Ym5aRXhkNU5Cd1JtYm1rSGZHelF5NGRCVEU4OUFuLVVkcnhPWU9IVWtOUQ?oc=5) |
+| Alyssa Farah Griffin on Harris’s Colbert appearance: ‘Everything that’s wrong with Democrats’ - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPdnRMc1VyWmI0TE55ek9xX21Uc29nQXlqa2EwS25XVlZIS0Z3TnpQa0ZSNWpJVmtqRkprNVBKWkJHYWxUMmtTYmpxd1VhOG1CWGpfTDZfX01veEpyUTJRSFNMcFVIQXEweW1jdG16RUpDNlU1UmNPei1LcC1hTmg3SEFhX0p5ZFRGTmhNbEIzU1RnRnVwLUZ6eWVnXzlPUdIBowFBVV95cUxQV3FFMlRSYXh3cVVYNHF0YzI3MEprSy1xeC16NDBvTFhPaXJxZnVOTGM2RWhqdkRNWDh1VjJJOXh4Q1B1YXpMWEFFN0RFZzF0OFFTNHBaQlhlYThGcDZrdWpIWVduSFFfaENFUnNQRUQxOUJ1UUZLOGNzWXNWRmg4VnU5TWxvanFLZUNzRTBaX1pTZWZCRTRtejNlbWFidktpSE5B?oc=5) |
+| Until Trump Fired Her, She Was an Economist With Bipartisan Support - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPSVgzMDE0a080WjZYTDlsaDBxYnpXVWxZVHRVS2VxT3FrMDJETGlUdG5OSXhneXBSS0NFUXJvcXVoWm9tVEJNWEhqVmoxZTdGYVlSYmJOVmtHNm1IcjJVOVVoZkxwTUt3dnBGLTk0TkpkX2JhT2tXTkpqOERvRlVJWnJTQ2hYVjItWk10TVFnWm9CWW9VZkNHenB5YmxCVkp1bXVZdFZrdXRhaFBGTExtanRtR3FEd0UxN3c?oc=5) |
+| Appeals court keeps order blocking Trump administration from indiscriminate immigration sweeps - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQTnExdnVqN1FMRzhxeGRaaTN4Q04tLXhrQmc4Y2dFRmxtRmx4bjRxYnprOWdWSjloakI1MUc2UWUzeWQzWXlwRWQwRElQUnFkcndTOC03VW5Id2dDcEpGNGJXX1RFb3dKWEViem1hMWlVODJZQWRBaHMyZ09jQzB0OE9GRURORXBDQWthYlpQTE9JQjYtdnNXWFhFNE9oQmVHdk16b0dhd0IzU0lo?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
