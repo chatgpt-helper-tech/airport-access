@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月03日 18:40:56（北京时间）**
+🕒 更新时间：**2025年08月03日 18:53:03（北京时间）**
 
 ---
 
@@ -9,9 +9,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Crackdown on Channel crossing social media adverts | [阅读全文](https://www.bbc.com/news/articles/cgm2y24xjgko?at_medium=RSS&at_campaign=rss) |
-| Ukraine drone attack sparks fire at Sochi oil depot, Russian authorities say | [阅读全文](https://www.bbc.com/news/articles/ckglyv396ppo?at_medium=RSS&at_campaign=rss) |
-| Amber warning issued ahead of Storm Floris | [阅读全文](https://www.bbc.com/news/articles/c4gq3n049jno?at_medium=RSS&at_campaign=rss) |
 | Aid group says worker killed by Israeli military in attack on Gaza HQ | [阅读全文](https://www.bbc.com/news/articles/cx2x5eyl676o?at_medium=RSS&at_campaign=rss) |
+| Amber warning issued ahead of Storm Floris | [阅读全文](https://www.bbc.com/news/articles/c4gq3n049jno?at_medium=RSS&at_campaign=rss) |
+| Ukraine drone attack sparks fire at Sochi oil depot, Russian authorities say | [阅读全文](https://www.bbc.com/news/articles/ckglyv396ppo?at_medium=RSS&at_campaign=rss) |
 | BBC launches investigation into Strictly 'drug use' | [阅读全文](https://www.bbc.com/news/articles/c4ge98v7j80o?at_medium=RSS&at_campaign=rss) |
 | Mum's 'brutal' murder still a mystery 20 years on | [阅读全文](https://www.bbc.com/news/articles/c8603j1zxn5o?at_medium=RSS&at_campaign=rss) |
 | The mystery of Winston Churchill's dead platypus was unsolved - until now | [阅读全文](https://www.bbc.com/news/articles/cglzl1ez283o?at_medium=RSS&at_campaign=rss) |
@@ -31,7 +31,7 @@
 | Smithsonian slated to restore Trump impeachment exhibit - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxONGNwc1JzWnNHcFVBb25xT1E2dFd3V1p4ZmF0Yll6SWFSSmx4U1BRMUt2b0dXaXpzVEtzc2hwTXhNUGptclF4WFBtc0pWMlVrb2dtV2xUeDBoVE0yZ2Q5aG8tZkNERU5yWFdsM2RheW93WVNDZXdsZ3p4UXlhMEZ2TG1JcGs4Z19WdmtSRzU0Mmx5QU9wSnlFYjlWZVhPSzFqaWxzdmVKUkVTeFpO0gGyAUFVX3lxTE5hbzVNcTRwT1pOYmtERWp1c0pKd0FiTW5TSWpTZ1U3aXNLUGc4ZXBVYWNnMVdpUXFOV0l6U0t5RzhIUFN3Tnp0T1JYRFV6VjZQdG50N3g3MmozXy1iVThaVndLU2ZhOG5rRVZaanc3elJWc3N0RVlHY29GbTJ2dGdWZXFyaHFidWxETHYzOTJNdXBEV0ZXU3RWY3ZITGlCU0JiVmhrdTJxbVBoUFV6X1Z5eFE?oc=5) |
 | Search continues for suspect in Anaconda mass shooting - KRTV | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNS3I0MEZPQVhwbXNSTFRMRUluNkNUX2VJcDVaOEF4RUNCVUhjaXhKZHV5MktoUEstaE9ncko2VDM4YXpkRWNpc0NUVGlRdkdpSjlRLVkyeEtiM0VTaUlybThzVks3WnpvZmh3MllFaEd3VnhlSWJvQXk4WDNwTGE4Ym5aRXhkNU5Cd1JtYm1rSGZHelF5NGRCVEU4OUFuLVVkcnhPWU9IVWtOUQ?oc=5) |
 | Tennessee man arrested after officers find 14 IEDs inside home: Sheriff - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQVlY3YUVaUEZQdHhKX3A3YmdOR2pBSjZ2akpaQzZqRFdnMENmcWh6UnhId2ZXMTU5LUkyNm9EUzRmSXprMEhGRk1QZy1TTjJ4OWFkdTQ1VzF1OGFqWEM5TjJpLTgxRlVrWWJzbGFBS1RqaTIxZEs3N1RWQmdEcGRMZkZyYlRDdWZoNnE4T1FuSjJZRTl5R1huQnVsONIBoAFBVV95cUxOcnFpc0VUblo5SzRRLXFyMElPZnhkNlI3bk05OG9yQlg0Z3pKTEpXU2lkQVFxWVJIZUliZmE4S1RLOUx1QjE2bHJ2TlRqQ2htZnRQdTN1Q0p2cGlUVkF3VGlDWUI5cEFLSmpzdkp2VU5MUmhSeThEcGkyZmMxRlUzZkRJenh3ajZzNEgxS0NyRmNQM3I4V2RrclJmY3pYODhM?oc=5) |
-| Teacher accused in Arkansas double slaying grew up on Southwest Side, attended Fenwick High - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQaE9zWnptUkxiZnpOalFSbmczYUhWZnBwempyRmhlVFVXYk1rSTRUc2FILXlqbUlnQ3FrNS00TC1SQ0RQTlVBQV9zZDFsSU9haWxSbjVRS0d4eVMxdkNYeVJHd2VNWmkxcFU3Y0UwSUtMaUU0NjBfRVM0MHV0WnBLNUI0a2c1Ykc0UVIwUmFhSnVRd0VOSWlUMnVieHVxcnFsRzJIT0JNUFcxX0NyUDhqWmJlZ25nbGZvUUdtT25aaGhQQkExai00YTJ0aFFoZlZQWnc?oc=5) |
+| New tsunami warning from Russia after Kuril Islands quake - DW | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPVTVITUk2SjRGY2JfRE1paEpGWFRZcjlUU1R5c200eTRPbTNSSjNCQ0Ntc0hxQ3dWRS1LZzV3dU5VNmRVdmNOZTlYRVE3S2ZQR2dBVExEN2FYUjVhS1hUZDdzVDBFQm91U2FuZ0d4MUNhN295d1lpZU80NHV4dUlHT3plZlpNMEx4bld2WS1fS1dhOWNf0gGUAUFVX3lxTE9RZDlFcmtEZ3BXUlhRY2VkMl9nSU5PV1Y0QmRsVmY5SEhvaGpOQVc0S3BjaVNONWVGMGxFenFFdzZwazZxb25tazJHRzI1bFo2QWZnTE82TzV2RDJja1FwdThNLU93NXRWSm5JMERnMUh5Mm5kVnhISm1GQ3pMd2dPOVRzeEhCYU9YYkNVSDcxNXhZVUQ?oc=5) |
 | US Senate confirms former Fox News host Pirro as DC top prosecutor - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQSmVCV0NDU1REZVdwRUtFYmRLMFhqSTRZVGJmMGpQODdkU3VwZGJzVzE1WGRTd0tQSFFqVG5IM01OMWRleVU5OE1OODZRZ3BJejdxNkctVEFFSGtqU2JhN2JTU3MtOWsxbU5NOGtlWDJvVW4yWW1XTnIxbEdiM0htR2VBemhxUnRBR01rMWc0azBJeTA5WUduZWpoMDZYbVZZUnBtc09XNmlXQdIBrwFBVV95cUxOYXNWbzFnd1I4MFlNb1B2elBuRE11YWstMDhteXdPdG5VZExlMU8xaDAzUWdMTXZMSkYtaThseTdySkFjaE80dUdqNFotdTU0dDhSdTJqN2FaQlE1YlFHUHBJdEdZU2RrZ0hQNldaUU9GQU9lSGpVSDVEVTZJdF94RmwyeEJTMFF0cDRhMG5mUjZhX3M3ZVV5UV9aRk1UTms0ZE5iQkg4ZmVBYzJSR3dz?oc=5) |
 
 ---
