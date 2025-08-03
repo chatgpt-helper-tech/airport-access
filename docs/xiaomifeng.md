@@ -12,10 +12,10 @@ permalink: /xmf/
 
 套餐不限设备数、节点覆盖全球主流地区，支持 Trojan 协议 + Full Cone UDP，对游戏、AI、流媒体都非常友好。我特别喜欢的一点是——**它提供美区ID下载 Shadowrocket**，对苹果用户特别友好，IPhone,Apple tv都可以下载使用,不用折腾就能直接上手。
 
-目前赶上**618七折优惠活动**，现在大黄蜂年付套餐只要 ¥96，换算下来每月不到 ¥8，真的是目前性价比极高的专线机场之一。
+目前赶上**85折优惠活动**，现在大黄蜂年付套餐只要 ¥96，换算下来每月不到 ¥8，真的是目前性价比极高的专线机场之一。
 
-👉 **注册地址（支持优惠码 `xmfxmf7`）：**  
-[🐝 点击注册小蜜蜂机场 - 享受618专属七折优惠](https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A)
+👉 **注册地址（支持优惠码 `xmfwww85`）：**  
+[🐝 点击注册小蜜蜂机场 - 享受专属85折优惠](https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A)
 
 
 ---
@@ -117,13 +117,13 @@ permalink: /xmf/
 
 ---
 
-## 🎁 限时优惠：618 七折 + 专属码
+## 🎁 限时优惠：85折 专属码
 
-- 优惠码：`xmfxmf7`（三年付最优性价比，低至42折）
+- 优惠码：`xmfwww85`
 - 特别提示：**大黄蜂特惠年付版 ¥96 不叠加优惠码，已是极限价**
 
 <a href="https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A" target="_blank" style="color:#fff;background:linear-gradient(90deg,#ff416c,#ff4b2b);font-weight:600;font-size:16px;padding:12px 24px;border-radius:8px;text-decoration:none;box-shadow:0 4px 14px rgba(0,0,0,0.25);transition:all 0.3s ease;display:inline-block;margin-top:16px;">
-🚀 点击前往 小蜜蜂 官网，享限时 7 折优惠
+🚀 点击前往 小蜜蜂 官网，享限时 85 折优惠
 </a>
 
 ---
@@ -149,7 +149,7 @@ permalink: /xmf/
 ![注册](./assets/xiaomifeng/register.webp)
 
 
-2. **左侧菜单->购买订阅>选择套餐,大部分套餐能使用推荐码 `xmfxmf7` 享618七折优惠**（支持三年付）
+2. **左侧菜单->购买订阅>选择套餐,大部分套餐能使用推荐码 `xmfwww85` 享85折优惠**（支持三年付）
 
 ![套餐购买](./assets/xiaomifeng/purchase.webp)
 
@@ -178,7 +178,7 @@ permalink: /xmf/
 | ✅ 价格亲民，年付¥8/月起        | 对比同类机场，性价比极高                                               |
 | ✅ 客服响应快，支持美区ID/小火箭 | 苹果用户友好体验，解锁更简单                                             |
 
-> 🐝 **一句话总结：稳定、解锁强、便宜的IEPL专线机场，618优惠别错过！**
+> 🐝 **一句话总结：稳定、解锁强、便宜的IEPL专线机场，85折优惠别错过！**
 
 ---
 
