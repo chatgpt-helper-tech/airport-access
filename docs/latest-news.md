@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月03日 21:13:02（北京时间）**
+🕒 更新时间：**2025年08月03日 21:26:57（北京时间）**
 
 ---
 
@@ -23,11 +23,11 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Senate heads home with no deal to speed confirmations as irate Trump tells Schumer to 'go to hell' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPUWF2UC1TazVVam1BZzFoM3hPOWROOXU3MExRY3Y5YnV5dWxJektvWXZPR1BXREpFMy02UTdBVXU0Z25tNlRCYVJNMjFaZW9BYUVLY3Ytb2d2LU5nd2IwR1JKVGVDeUViakRWcjR1NTktZ2F3cXFLbUpmWmt5QzFscDRTR09OUQ?oc=5) |
+| Senate GOP eyes recess appointments as stalemate drags on - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQQnJKTW1CbzBQakJtRTZyOU9sdE5BRlhfNEFJemRoQ2Zib09jcXo2MHJDYmZLbE9Ra3dVYkhETk9iTDBWSkRORnFIOF9DazlOOVJ6NG4wMDEtY3Bya0xBNkU2blpzWHNRYWtvdXVVWEEzZ1lmSWhwOXprZHQ2V0ZUN0dJWQ?oc=5) |
 | Former Trump prosecutor Jack Smith faces investigation by Office of Special Counsel - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQSnZxcmExM1NzT2s5akEwZHhzMFlnTkIyajB0UXdNVEpqT0k3Y3RtbERuRzI1VmdjRjhhdFN6aG9nYlVFcmZpcUtkYUpza2hjMkNRZUtKbnBXbjJRRTNqb0twMGszcFVieFRUNldWSTJuMS16LXp0VW4tQWlUc1dBOTVBanRmUG9IOHJMWURqZW9wSXZab0dmTWVPbldZemYxZHhvMVBPQWlUNWZFQWc?oc=5) |
-| Trump trade adviser: President has ‘real concerns’ about jobs data after BLS firing - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQYVFjUTFmaEx2bkV2WWNFbVFoSVVZbDQ2QldZOVVsQ3dnY1pIYkxSdzhDUlpITlFPSHhoWWRsb1RnQnFfeElTYXJTOUs4RVhJclIxS1dheUlIQzYzcGkxY0dudVhNWjBFR0dCN21oMHF6Zk41M1ppZER3Z2MwbXdmV3dsMzF4SDZ2bndBenNQdWF6S01Sb2VFX2h6NUYyZTJJWURv0gGoAUFVX3lxTE1wbmJhaHYzSFN1WFozenJkYW5GcmNCQ0lrcDNWak5TQkpERjJ6ZnoxaHBzX3RRbHp2S3RVNEpEOHBTc3ZZcEZxaHB0R0dZU2RrVWg5dkg0OUNrWlRmY1pjeUNpMUdseWNEX1VCMF92QWNSZkxFelZyempXTVVrVjlOaVhkb09uQjBtV3A1ZWJ1RTFJVnJLWDBwUkoxLVdEME4zQ3paTVhBZA?oc=5) |
-| Earthquake Jolts New Jersey and New York City - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOQWc0LVhyMHJpZXQyUFdpbWRwckdEeWtfZGY5TzNpY2FhZTJEX1c4QWZSb2lLNUlRMlFMU3NtcmE4QklMZGZkdDJjNThaVHdybG40dnlIZnp1azVfMjFtLVEyN05icE16QUtrM1dlVXdjRHNqU2tKblJ0NEk5UFlQOGNXNUk0QQ?oc=5) |
-| In Gaza, more Palestinians are killed while waiting for food aid - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQUktWQ0V5cDRySHM1dGJWTUdrYjhub216WGV2SGJyZEg1WjQtZTJ4OF9VZEpKTW1ycnRrQkxHZ291SGdBMGp1ZVFXVVJKcWNfZUc2U2pqLV9QcGFuNDZjT1lBeWxfVFZkUVBtOTNQOTIycW84TEtsOWtZQm9tM05jTkozaTM?oc=5) |
+| Until Trump Fired Her, She Was an Economist With Bipartisan Support - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPSVgzMDE0a080WjZYTDlsaDBxYnpXVWxZVHRVS2VxT3FrMDJETGlUdG5OSXhneXBSS0NFUXJvcXVoWm9tVEJNWEhqVmoxZTdGYVlSYmJOVmtHNm1IcjJVOVVoZkxwTUt3dnBGLTk0TkpkX2JhT2tXTkpqOERvRlVJWnJTQ2hYVjItWk10TVFnWm9CWW9VZkNHenB5YmxCVkp1bXVZdFZrdXRhaFBGTExtanRtR3FEd0UxN3c?oc=5) |
+| White House has no plan to mandate IVF care, despite campaign pledge - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQVnc2TzlxUS1NZWdqR0pPTTJ3WE43RWFsVHdjQU5qclU1MkQyQW9MV25LLVM4RmYyQVVVMlFERzVpS3N4WG9YTWVEeVJrNWtES0hURThRb043bk9qODdEMFZsR25nNWNwVVFJZGNtQkhwamxhUHBhUEJqeGNDbTB5d3hLVG1VQ1Jt?oc=5) |
+| Earthquake in Bergen County shakes parts of New Jersey, New York - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQZ0F1VHdnRWxWYWJaNGY0UzVNb2tvdzRSWmJZeUMtM2NURFpJdlE2QmZvWDZ5U3MxeWEya1NWMXNNaGV1ZHJSRXQ2YWNqZi1IR2tJaVgzWkJINlBjYWtzVlJ1YldLam9sWnBVV2pNMkxQaWE3bmlKdi0ya1BxUDBGeDVSNnpOeDQ2dWpoY0hqcGNSN3c?oc=5) |
 | Huge earthquake may have triggered volcano’s first eruption in 600 years, Russian team says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQNDh2cUdmSXlsTWhRZjFfWVZFNEtKZUtESGJDdmo3ekVxUmk1NlJlSFAtaC1wYlZQYzFLaElsY1daZFVlN3RVT1Jmb1VsX2lEZ1d6Y0pHcnFqM2RacFF5MUE5WDd4N0RwYTY5bTYxdmRHSmxaVWhIVW10a01hRjVlcl9Lc1dEVG_SAYwBQVVfeXFMTUx6M2EwQXBqbjNtZHhHdXRfY1FWSHlZMDNJbTFld1hRY3BsYzJjZ0tReGh2VW1fNEhLckprc3RybE0xajAyZEdULWlQd1dsWWxaVUpsZDlCRHQyMkFwVlBfbmp1Y3M0STljZ3RSQW5iUnlBRXhjVHR0V1ZMUnQtV2c4eUI3NEt2MUYyeGM?oc=5) |
 | DOJ is walking back the White House’s goal to arrest 3,000 immigrants per day - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQYlRENjlZUVFWc2YwTDEtWTNmYUVfTVRtTjQyMnpMR052OFB1TWJZZkpRVmd0d2oxUzJvYjh1aXgwVDU0MzU0ZXI3aU9RMW5RNUZDTEdBZ2NGbXNJdFF2Mm5SZ091bmxsdlZVNk9EQTZvNzkyREhRNElfSmdpcUxrOGVNRWc0OGg3c05Bb19FLXVsQ0hvT3pN?oc=5) |
 | What We Know About the Montana Bar Shooting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNc0wteUpnT1ZpNTNhVjRuSzJaRmlKTm9LRG5nVS1SWjNsWXVLdXYtUWhkUDlPS1NybUo4dk56WjFvZUo4QzNtUVNVbzU2d2thLXJUY1kzZFpJSXNFQU5tNkRIOHNwY3MtM2c2a29Fbm14U2JvQ1BkLV83TDJBdW9Cb3l6QmhoZw?oc=5) |
