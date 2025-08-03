@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月04日 04:27:01（北京时间）**
+🕒 更新时间：**2025年08月04日 04:40:04（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | White House has no plan to mandate IVF care, despite campaign pledge - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQVnc2TzlxUS1NZWdqR0pPTTJ3WE43RWFsVHdjQU5qclU1MkQyQW9MV25LLVM4RmYyQVVVMlFERzVpS3N4WG9YTWVEeVJrNWtES0hURThRb043bk9qODdEMFZsR25nNWNwVVFJZGNtQkhwamxhUHBhUEJqeGNDbTB5d3hLVG1VQ1Jt?oc=5) |
 | Smithsonian says Trump impeachment exhibits will be restored - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE5aUGh0c0xOVmN1VS1kSVJkWGxnekdOMm5wWXhwVlJMTi1mcjRLNzB3Sk8zLXRudHZLd3ByWmw2dUtUTmY5RmxHSUMwUWJaN01oODJzZC1OcFJ5aXl6Y3o2d2puMGg2dVJSNkZsZnpkM2lJc0NCSXfSAXtBVV95cUxPWllRVV9VVzBYSmhHLTdxMkN1aFJ6X1hXejlIVnRpSXhQdWNmekJGUmgyeU1VVnhsYjdpc0M1MEZObzNOLXVfODdKamRsUzNCS2pqVC1tam5NeDc1VktCWVR2WjZYaXhFZmtFQ2Y2MWY3MDNISGpNblRyTFU?oc=5) |
 | Trump, Carney to speak in coming days, Canadian official says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOSE92aTR4Zk5FV3ZfZ3hYZnp1YXFHZG1MZC1kV3c1blY5bS1SM2w1dnV3UG8ySGhZQ212aEt3Si1OU29kVUUzTnk0YkpIYXNEbWx0a1B5R3BWNFI1dnVYYTFnYjFCbXZWb2JJbldxSzRFNW0zdzJuU0c5OVVhclZLaXZNcGNwU3prSzNKNmxpYVZBX3B6WUttMVhSeG9fMzBBOVJrVXJiWQ?oc=5) |
-| DOJ is walking back the White House’s goal to arrest 3,000 immigrants per day - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQYlRENjlZUVFWc2YwTDEtWTNmYUVfTVRtTjQyMnpMR052OFB1TWJZZkpRVmd0d2oxUzJvYjh1aXgwVDU0MzU0ZXI3aU9RMW5RNUZDTEdBZ2NGbXNJdFF2Mm5SZ091bmxsdlZVNk9EQTZvNzkyREhRNElfSmdpcUxrOGVNRWc0OGg3c05Bb19FLXVsQ0hvT3pN?oc=5) |
 | Irate Trump tells Schumer to ‘go to hell’ after Senate standoff over confirmations - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE9VU3NpZU9hbXJDeGtQSHJPM1BjbVdwSU01QW91U0hoU1ExMHJDN3hBR25JZEpUaXluemNyX3hUMGx1b1I2NzY2RVRUZXJsaUR4WFgzc1gtXzhfWUdBWDVCbXlFcS10VWt1MlBjV3BGNGpfQQ?oc=5) |
+| Men charged in Tennessee case involving 4 dead family members of abandoned infant - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPcVlWZG1vMXdjMXJFVWZsWlhpNEFJT3h0Tm4yT1I3V2RLRFZpQUo1QkhrUHppZEFBYjhwWnFHSmVLNTZCUHRvYU9wbXJhd3lQV2VFUGFBS04wYWhLNXRMOENDS2R1TEdTTnNGc2w4RFZGRnNjQ3J1V3VpZGVraHJuaC1yaDl5WDJhQW93eW80VFBZM3RyN3JwZkp6Qml6MkluX1d6Z1dRWnNUNUt4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
