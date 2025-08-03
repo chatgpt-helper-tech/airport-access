@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月03日 23:00:51（北京时间）**
+🕒 更新时间：**2025年08月03日 23:13:39（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Trump Fired America’s Economic Data Collector. History Shows the Perils. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPN3FURExPQTNWUWExazM3MTNJVXJKd1AyVHhnY0h5d0Uzell4QjM1eWlMdllWMDlmQjlSU1RCSU5KQjJuX0ttRk5tN1BhOF81Y2hwZUl6MEQyTHh1X2JNMHJmZVhobmFEUFBjQXBfLW53WHJnaUduUWdUWkJIYXhqTjB1VTIyN0dYRXc?oc=5) |
 | Senate GOP eyes recess appointments as stalemate drags on - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQQnJKTW1CbzBQakJtRTZyOU9sdE5BRlhfNEFJemRoQ2Zib09jcXo2MHJDYmZLbE9Ra3dVYkhETk9iTDBWSkRORnFIOF9DazlOOVJ6NG4wMDEtY3Bya0xBNkU2blpzWHNRYWtvdXVVWEEzZ1lmSWhwOXprZHQ2V0ZUN0dJWQ?oc=5) |
 | Ex-Trump prosecutor Jack Smith faces investigation by independent political watchdog - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOTktMckhWYzVkbzF1QW9iZ2JGU3d4azVfUGVORVMwNy1haXdEeUdoR0UtWTY1czgzWlNCQ3FCUG9Jamc2UDFjenllcDUwNFRTU29QS2trc2FjUy1DWDJYX0VZejhDblZzdHBTX3JLVENrSDh5a3d5TFBKZzk0REVIZEU3WUpJdG5SX1FQUmVhZ0ZiSHVLM1htMW56WWNVT0w3VHRZWEdib1BxTmZTaVF5RQ?oc=5) |
-| Until Trump Fired Her, She Was an Economist With Bipartisan Support - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPSVgzMDE0a080WjZYTDlsaDBxYnpXVWxZVHRVS2VxT3FrMDJETGlUdG5OSXhneXBSS0NFUXJvcXVoWm9tVEJNWEhqVmoxZTdGYVlSYmJOVmtHNm1IcjJVOVVoZkxwTUt3dnBGLTk0TkpkX2JhT2tXTkpqOERvRlVJWnJTQ2hYVjItWk10TVFnWm9CWW9VZkNHenB5YmxCVkp1bXVZdFZrdXRhaFBGTExtanRtR3FEd0UxN3c?oc=5) |
 | Legal cases could prise open Epstein cache despite Trump’s blocking effort - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE55Um55Q0lIRVVMMDR1TVVscEljV3FPY2VqdnVHZFhFTmotYUozUFhZX0dLYUg0TzZial9VT1pjbnN2Zm5xejBUM0hzYWp1MjNSYU1hMlFqYVZlRTRkbzRnVEhGYTVqei1QekxXV01ScjlJamRfZlF5TkJUZ0ZCUQ?oc=5) |
 | Pope Leo tells 1 million Catholic youths they are sign 'different world is possible' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxPUFRDXzhDUkNDSWFMdXdFT1hCMkF0OFk3SjYtbGxDdnFmSURvUnV0SHVKUjhZYU1EQklkVVpOZmRiWGtYNm56UkNPRkhrR2NhLXBpMmh1ZXNNZy1oYkdJZFphMkVSUTFlUWZLOW1NS0xvcE82WmcwMUI3YUdOQWZwclF0ajM2bHhkQnhBRXhyZXBjWTBpSENwZWxFM1ZXSk52QVU0dEp6dkRqc2RqX1EzcHVsMWVYOE9qSzZObzUtZ2FycWJ3aVE?oc=5) |
 | White House has no plan to mandate IVF care, despite campaign pledge - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQVnc2TzlxUS1NZWdqR0pPTTJ3WE43RWFsVHdjQU5qclU1MkQyQW9MV25LLVM4RmYyQVVVMlFERzVpS3N4WG9YTWVEeVJrNWtES0hURThRb043bk9qODdEMFZsR25nNWNwVVFJZGNtQkhwamxhUHBhUEJqeGNDbTB5d3hLVG1VQ1Jt?oc=5) |
