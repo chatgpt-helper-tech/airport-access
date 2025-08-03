@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月03日 17:40:31（北京时间）**
+🕒 更新时间：**2025年08月03日 17:53:49（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | After a Lag, Consumers Begin to Feel the Pinch of Tariffs - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNdE5wc0ZRUjBUZjBYTHBiYXVlck1IUmoxN1Z3bUtzNlVTZ2hQSmp0WlljUVZ5QzhDMGo2Si0xNVZZUHYwcFNPYy1SZEl6MWJ1MXJ5eEJiUUt1OGVCRkJxYjNLTDJqVVZWY0NibkN6RzMxVWZXNV9wSjg4R2NjVDBpVHAyb3Y?oc=5) |
 | Search continues for suspect in Anaconda mass shooting - KRTV | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNS3I0MEZPQVhwbXNSTFRMRUluNkNUX2VJcDVaOEF4RUNCVUhjaXhKZHV5MktoUEstaE9ncko2VDM4YXpkRWNpc0NUVGlRdkdpSjlRLVkyeEtiM0VTaUlybThzVks3WnpvZmh3MllFaEd3VnhlSWJvQXk4WDNwTGE4Ym5aRXhkNU5Cd1JtYm1rSGZHelF5NGRCVEU4OUFuLVVkcnhPWU9IVWtOUQ?oc=5) |
 | Tennessee man arrested after officers find 14 IEDs inside home: Sheriff - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQVlY3YUVaUEZQdHhKX3A3YmdOR2pBSjZ2akpaQzZqRFdnMENmcWh6UnhId2ZXMTU5LUkyNm9EUzRmSXprMEhGRk1QZy1TTjJ4OWFkdTQ1VzF1OGFqWEM5TjJpLTgxRlVrWWJzbGFBS1RqaTIxZEs3N1RWQmdEcGRMZkZyYlRDdWZoNnE4T1FuSjJZRTl5R1huQnVsONIBoAFBVV95cUxOcnFpc0VUblo5SzRRLXFyMElPZnhkNlI3bk05OG9yQlg0Z3pKTEpXU2lkQVFxWVJIZUliZmE4S1RLOUx1QjE2bHJ2TlRqQ2htZnRQdTN1Q0p2cGlUVkF3VGlDWUI5cEFLSmpzdkp2VU5MUmhSeThEcGkyZmMxRlUzZkRJenh3ajZzNEgxS0NyRmNQM3I4V2RrclJmY3pYODhM?oc=5) |
-| Appeals court keeps order blocking Trump administration from indiscriminate immigration sweeps - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQTnExdnVqN1FMRzhxeGRaaTN4Q04tLXhrQmc4Y2dFRmxtRmx4bjRxYnprOWdWSjloakI1MUc2UWUzeWQzWXlwRWQwRElQUnFkcndTOC03VW5Id2dDcEpGNGJXX1RFb3dKWEViem1hMWlVODJZQWRBaHMyZ09jQzB0OE9GRURORXBDQWthYlpQTE9JQjYtdnNXWFhFNE9oQmVHdk16b0dhd0IzU0lo?oc=5) |
 | Teacher accused in Arkansas double slaying grew up on Southwest Side, attended Fenwick High - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQaE9zWnptUkxiZnpOalFSbmczYUhWZnBwempyRmhlVFVXYk1rSTRUc2FILXlqbUlnQ3FrNS00TC1SQ0RQTlVBQV9zZDFsSU9haWxSbjVRS0d4eVMxdkNYeVJHd2VNWmkxcFU3Y0UwSUtMaUU0NjBfRVM0MHV0WnBLNUI0a2c1Ykc0UVIwUmFhSnVRd0VOSWlUMnVieHVxcnFsRzJIT0JNUFcxX0NyUDhqWmJlZ25nbGZvUUdtT25aaGhQQkExai00YTJ0aFFoZlZQWnc?oc=5) |
+| US Senate confirms former Fox News host Pirro as DC top prosecutor - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQSmVCV0NDU1REZVdwRUtFYmRLMFhqSTRZVGJmMGpQODdkU3VwZGJzVzE1WGRTd0tQSFFqVG5IM01OMWRleVU5OE1OODZRZ3BJejdxNkctVEFFSGtqU2JhN2JTU3MtOWsxbU5NOGtlWDJvVW4yWW1XTnIxbEdiM0htR2VBemhxUnRBR01rMWc0azBJeTA5WUduZWpoMDZYbVZZUnBtc09XNmlXQdIBrwFBVV95cUxOYXNWbzFnd1I4MFlNb1B2elBuRE11YWstMDhteXdPdG5VZExlMU8xaDAzUWdMTXZMSkYtaThseTdySkFjaE80dUdqNFotdTU0dDhSdTJqN2FaQlE1YlFHUHBJdEdZU2RrZ0hQNldaUU9GQU9lSGpVSDVEVTZJdF94RmwyeEJTMFF0cDRhMG5mUjZhX3M3ZVV5UV9aRk1UTms0ZE5iQkg4ZmVBYzJSR3dz?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
