@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月03日 21:41:01（北京时间）**
+🕒 更新时间：**2025年08月03日 21:52:34（北京时间）**
 
 ---
 
@@ -9,10 +9,10 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Aid group says worker killed by Israeli military in attack on Gaza HQ | [阅读全文](https://www.bbc.com/news/articles/cx2x5eyl676o?at_medium=RSS&at_campaign=rss) |
+| Government plans to bring more Gazan children to UK for treatment | [阅读全文](https://www.bbc.com/news/articles/cr4e641p41po?at_medium=RSS&at_campaign=rss) |
 | Amber warning issued ahead of Storm Floris | [阅读全文](https://www.bbc.com/news/articles/c4gq3n049jno?at_medium=RSS&at_campaign=rss) |
 | Ukraine drone attack sparks fire at Sochi oil depot, Russian authorities say | [阅读全文](https://www.bbc.com/news/articles/ckglyv396ppo?at_medium=RSS&at_campaign=rss) |
 | BBC launches investigation into Strictly 'drug use' | [阅读全文](https://www.bbc.com/news/articles/c4ge98v7j80o?at_medium=RSS&at_campaign=rss) |
-| Mum's 'brutal' murder still a mystery 20 years on | [阅读全文](https://www.bbc.com/news/articles/c8603j1zxn5o?at_medium=RSS&at_campaign=rss) |
 | MP Chris Bryant says he was abused by former National Youth Theatre boss | [阅读全文](https://www.bbc.com/news/articles/cn923pdq8yzo?at_medium=RSS&at_campaign=rss) |
 | The mystery of Winston Churchill's dead platypus was unsolved - until now | [阅读全文](https://www.bbc.com/news/articles/cglzl1ez283o?at_medium=RSS&at_campaign=rss) |
 | Melting glaciers threaten to wipe out European villages - is the steep cost to protect them worth it? | [阅读全文](https://www.bbc.com/news/articles/cj4w9ggzxv4o?at_medium=RSS&at_campaign=rss) |
