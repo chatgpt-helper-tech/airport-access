@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月04日 06:13:58（北京时间）**
+🕒 更新时间：**2025年08月04日 06:27:19（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Texas House Democrats flee the state in bid to block GOP’s proposed congressional map - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPaDdDeVp6a2pERnRVczJnOE5tTEFta1JlNlN0czJqSGRvUHJndmF5Uzhqd1RkMFp1NUFQREI2aktFbnoxVFliX1ZCWmprTW1PSktSXzRYRG1FN3VNQW9DZFNHY0MyNUpaSWs1NmxTRlVJZFBIQ2VxZ0E0ak9fNW5JNUlRMzJYSG02bDRLZmhGS2Q?oc=5) |
-| Trump Fired America’s Economic Data Collector. History Shows the Perils. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPN3FURExPQTNWUWExazM3MTNJVXJKd1AyVHhnY0h5d0Uzell4QjM1eWlMdllWMDlmQjlSU1RCSU5KQjJuX0ttRk5tN1BhOF81Y2hwZUl6MEQyTHh1X2JNMHJmZVhobmFEUFBjQXBfLW53WHJnaUduUWdUWkJIYXhqTjB1VTIyN0dYRXc?oc=5) |
+| Trump Administration Live Updates: Hassett Defends Firing of Top Labor Official Over Weak Jobs Numbers - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTFA3cktfZnk4cVBBdmZ4dURveGx6ZVBlalBjLWJsbFk0Z1ZYTXRiNjJHYzVXSGVUV2Z2MTBxNnZQZU1OaE9zNFZUbTc2ZndTc05sOWhYRG9fUlhIcS14ZXlGQUhGOA?oc=5) |
 | A volcano in Russia’s Far East erupts for the first time in centuries - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQSk0yN1Y5ajI3d0I5RUgwVTBPQV9pRVBKNllVWWlBWFVWV2o4cE12RTBaNGxkcGN1MU81Vm1DZ0wxYjAzeS1neHd4RE5OdFd1X3NMaEw0X0VQZE1xNE9SN3I5bXhFYjgyT0Y3V2J4TzJDM1M2a0E0RzVxTWhiOVF4NUV2YWt6WHczM1FWeEk1anpVNlRIWUM5WjgtRm7SAaIBQVVfeXFMTk1mOFpWdUxmNkZOOWNtbmJOTy16aWVBMjNpM1JwaWRPcUktOTltdjNPem1INTdsTzliUTd6M2t6bTN3c0w0X1V3bDVPMlhQSjF1U243S1BWd1lLUDNac1BFbDRyZURhM0FxcmJleEp3Y0haQWQ1Q2dibjh5dkd3clgtbnAwWWJTSmNDSzQwVVU5Vm1Sb2s5SDFBU2FzSXRWR2t3?oc=5) |
 | Videos of emaciated hostages condemned as Red Cross calls for access - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE50NmxHOUY3dnVSTjdRRERvTXNTV2NCZ0lMaUJxODdLVEF4WDFNN3lEcERtdVpLcjlSQzgxM1EwdTZmM1cxbjRnRjZKQVROU2szNVh6Tmd1VEJxd9IBX0FVX3lxTE9WbkdfNjZIRlpXeTdMOFFfVl95d2l2WE9QRVNObjdDUUF0emE2ZUllazB5Zk5FY0s0bmplbGNPdGc1ZGZaYWRMRjBtN2QtcTdCd2ZLV1VvYUltZUJfRl9z?oc=5) |
 | Canada wildfires cause poor air quality in the midwest and northeast U.S. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPcmxhNElBRVBmM0J2WUNBaW5TSzkxVlBOMU0tVUtfMG9POGJjSV9nUWE2VXR6VUxCTC00bkJJMWFSNWZYR0ZCVnQxOG9VVUUzaFg4ZlZOVG40TlFIclQ2ZFVldXdUdjRPOWpUQkZnOThlZm1qTFBXUnBtV0ZIc20zRmpWZjRTSl9YU1Y4QXAyX01NVWxnLUwwWUQxcktBdzdHMFVoODNCTTczY29Da0o0MXFwYw?oc=5) |
