@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月03日 15:14:15（北京时间）**
+🕒 更新时间：**2025年08月03日 15:27:44（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Crackdown on Channel crossing social media adverts | [阅读全文](https://www.bbc.com/news/articles/cgm2y24xjgko?at_medium=RSS&at_campaign=rss) |
-| Ukraine hits oil depot and Russia strikes homes near Black Sea | [阅读全文](https://www.bbc.com/news/articles/ckglyv396ppo?at_medium=RSS&at_campaign=rss) |
+| Ukraine drone attack sparks fire at Sochi oil depot, Russian authorities say | [阅读全文](https://www.bbc.com/news/articles/ckglyv396ppo?at_medium=RSS&at_campaign=rss) |
 | Melting glaciers threaten to wipe out European villages - is the steep cost to protect them worth it? | [阅读全文](https://www.bbc.com/news/articles/cj4w9ggzxv4o?at_medium=RSS&at_campaign=rss) |
 | Jeremy Corbyn's new party needs a name and it's trickier than you might think | [阅读全文](https://www.bbc.com/news/articles/c3wnqj2pwvdo?at_medium=RSS&at_campaign=rss) |
 | Harry Hill says his stepfather's death made him pursue comedy career | [阅读全文](https://www.bbc.com/news/articles/c70x8gx5n9wo?at_medium=RSS&at_campaign=rss) |
