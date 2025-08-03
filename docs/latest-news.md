@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月03日 19:52:07（北京时间）**
+🕒 更新时间：**2025年08月03日 20:00:32（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Judges are scrutinizing the latest mismatch between White House deportation rhetoric and DOJ’s position in court - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQYlRENjlZUVFWc2YwTDEtWTNmYUVfTVRtTjQyMnpMR052OFB1TWJZZkpRVmd0d2oxUzJvYjh1aXgwVDU0MzU0ZXI3aU9RMW5RNUZDTEdBZ2NGbXNJdFF2Mm5SZ091bmxsdlZVNk9EQTZvNzkyREhRNElfSmdpcUxrOGVNRWc0OGg3c05Bb19FLXVsQ0hvT3pN?oc=5) |
 | What We Know About the Montana Bar Shooting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNc0wteUpnT1ZpNTNhVjRuSzJaRmlKTm9LRG5nVS1SWjNsWXVLdXYtUWhkUDlPS1NybUo4dk56WjFvZUo4QzNtUVNVbzU2d2thLXJUY1kzZFpJSXNFQU5tNkRIOHNwY3MtM2c2a29Fbm14U2JvQ1BkLV83TDJBdW9Cb3l6QmhoZw?oc=5) |
 | Tennessee man arrested after officers find 14 IEDs inside home: Sheriff - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQVlY3YUVaUEZQdHhKX3A3YmdOR2pBSjZ2akpaQzZqRFdnMENmcWh6UnhId2ZXMTU5LUkyNm9EUzRmSXprMEhGRk1QZy1TTjJ4OWFkdTQ1VzF1OGFqWEM5TjJpLTgxRlVrWWJzbGFBS1RqaTIxZEs3N1RWQmdEcGRMZkZyYlRDdWZoNnE4T1FuSjJZRTl5R1huQnVsONIBoAFBVV95cUxOcnFpc0VUblo5SzRRLXFyMElPZnhkNlI3bk05OG9yQlg0Z3pKTEpXU2lkQVFxWVJIZUliZmE4S1RLOUx1QjE2bHJ2TlRqQ2htZnRQdTN1Q0p2cGlUVkF3VGlDWUI5cEFLSmpzdkp2VU5MUmhSeThEcGkyZmMxRlUzZkRJenh3ajZzNEgxS0NyRmNQM3I4V2RrclJmY3pYODhM?oc=5) |
-| Senate confirms Jeanine Pirro as top federal prosecutor for D.C. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPVzNaTlZuRVdaNDQ3RFh3QVVvOG95QnBnX2NlZEdNNTZaZGtYcjdneW1TcU5BbWxEY2M0WFM1SC14emZWTkhqZlAwV1hNSlBsWHNYSWtmbWprTUdjUkhmUTlwU29heXhCVWlxV2JvWHhXWUZUakZ1MXFpRWlhc3FQS09DLXR0MVZLakw5dVR2Tk9nUVhPWWFCdDRIZw?oc=5) |
+| Russia cancels tsunami warning for Kamchatka after quake, dormant volcano erupts - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxQUUpNcm1mV1JmY2R6Y3gzOUR5ZlZkbzQxeDR0aTU0M05QLUxHV1NBYm1lYmh0djhWUzB5dEpMdlB0cjZuTy1BM1B0YnFCZ1ZieDJpRjlxclZBVEpnX3RGUDNjX0Vnd1ZrMzFodEJ6MlZhbEtsNW5BR2xvVFdVaHFQRnNtZktSX005ang0QnBLS0ZlQV91ZVNsR0VxWHZwclpsSy14Wm9xTzRSZTdqanBsaHZNZ3lkYk9Tandick1QU2FFUTkwalZiSHBYb2U?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
