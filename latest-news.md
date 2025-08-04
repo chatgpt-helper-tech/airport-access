@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月05日 02:13:21（北京时间）**
+🕒 更新时间：**2025年08月05日 02:26:37（北京时间）**
 
 ---
 
@@ -23,6 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Gov. Greg Abbott’s options to force a redistricting vote are more limited than they appear - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPSENlTVVZVWRPaEF1Z2ZodGlOVXhRQ0lodFRTcDBhOEUtRmhKZkU1a2FuRThLVHZEQjRMeWNPaGg5YXk0LVpxTHhPa3BKZExBcUVnSE9VazhPNm5TTGJoSjRicnZjVk90YlVPaTBRQTNES2RLWXZBT3RNYnEtbFI0NHpoLUhpUER3UUtBUncxVDF3V2lsaUE?oc=5) |
+| Trump stokes conspiracies about jobs data, as White House defends firing BLS chief - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5Nb3NGMkR6QjZOblItTnE3dDJ2R3ZJQUtuYWFRaGtxNEZ2QzhRRTNzQTJ1MnhXcW9vUDVjNktGZlRZVmhqbFU1dVh2TWhPYkJCTmpBRlhXYzZMUXJTYTJnNGFIb0dsaW1CUlFzZjZRTEVLYWNpN3FyR2xn0gF_QVVfeXFMUEM3bnRNTFhTaW5OSGJJZUU4NURvU3ZBQ0tudmx2MkQtdkd0dERFMkhHakZZb0FVZHRIS05DUXhjdmpaV1ZQRm1aUmZ0cVFkRFFNUG9KcmRLb0l3dDZlcE4xMGprQmRINjRzUXlOM083VndEUlQ4WXlZQ0RFelVhNA?oc=5) |
+| Shooting in Downtown Los Angeles Leaves 2 Dead and 6 Wounded, Police Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPdVZ0WGk2SzN0SlcxOGhncGxCYjRWNWdMaERqeTk1ZHZkVFZqX1ZjeVdoZzJjWnlqMk14T1ZOQTNlTDZxamJsZTVlcEQ1YlU2S3BSNHZvYzQ5bW9rWjBhbnBDcm9raTNheDBiU1phWnlZOFJ3YjViMHRFeG1ZVHBwU0lzVmJINTlk?oc=5) |
+| Donald Trump to raise tariffs on India over Russian oil purchases - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFA2WHhRMmxiRkVxR3d6Vmp5alNUSGt2X2JBOTktSWY1Z3NqSXRyRHFMSW4zYlAxM2dWTDV6Vk1tMkxTbEs5WTdYWDZzVlhGb21uMEIwb0lVMkIzOWlfSHhNSTdjZGNBSDItX1hRQ004MUI?oc=5) |
+| Israel threatens to expand military offensive in Gaza - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1lMWszaC1SMjdscVVHdHBnVVlDekllQVN1SElIZ2M3dWcxSmlrMzJqbHR0ZjV4VGFWU0ZEN2VMV3hob0ZlX29NamJvdnBEemxBdEtzUm81d3kyX2lQOTROLTB2OGRxMVJZMS12WTg2R1I?oc=5) |
+| PATH train fire impacts morning commute in N.J. today. Video shows smoky scene. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5EdU5DQ2lJRXNCQXFaR1lvZV9vbnpYYjFRWmNZcFNVQlE4dmdJVHAxaHB3b2dnVzlhSm1PZGVsVHpNZnZzd3ZHeTktRThJek5nVkRNNWprekZDZnhKd1c0S00zZ3QwTHBYMXlKWmpMRzJlMkhfX0dFUA?oc=5) |
+| Rep. Nancy Mace, Trump critic-turned-ally, to run for South Carolina governor - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNNmdyWTVNcnJmM2FRNEttdzRqZzVDOU5FOUZUOHNYanBHa1dwa2k1ZU9TNDV5bGFuaXA5VFBmVGI5UjFFaG5iVC05QnJNazMxcl81U1lJeVBXMzNGT2ViUFVkRTRnU19QVXBOZTVXZ3dKamdYVmdPQWhxUzlaWENMMmU1NEM0UERxM0NzTFQ1aw?oc=5) |
+| Former US soldier suspected of killing 4 in Montana remains at large - Syracuse.com | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOQ1dlUEFBSUV5aVJsbmFQNk1meWE3Ui1fdjc1V3VsRUhYblZvalRfdWVoWnZJM2FMc0NwWDFxSGttd2tFZ25BZ3UzbDJxWmVZdEh4cFpia1FrZ1JNLWp0dXJ3T2ZnWVNHZDFkbmdhU3RQME40NER6WUJkaV9DZ2hneUFOcFFzRFpja0xmT053YkNtcl9ZeTd1ZDY0VmZOSjVKQ18zUzhvQV9KNGRjSUlOXzhtOGXSAcgBQVVfeXFMTTRMeC0xUmhYWThZVWtlbmtLR3hSVUUxQTZkVVZqN1BmQmIyS1FhZ0tHVjRZZDFlU2VNcWIteVBENGFJYU5iOGoxc0xtM1A1VWNlU08zMlh6ZzIzaUVsTUZEZ2E4dGhDY01PWWJrTkxJMWRJM1hDdWREMXVXN2pDZE9RUUVQenU5WmtCMEFueGF6Y3lUcHdobGNRYVdER0lkUWVDMzhzQjlVMHJwZ1BLU1dhR1U1RW4yeTg0QVNRbDJkemozVW5jTi0?oc=5) |
+| Toxic Canada wildfires prompt air quality warnings for Upper Midwest, Northeast - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOVWswMnVIX21Ba1NyQjlyRDFzcUxkRVhMbldCSzJ2V1JOcDEtSkw5b1BFSVJpOENYcW9LSHRCUm1URktzOXF2b3dkS3pJdjNyenZ0eVUwekRuOXc5YjNqQmIwUHFhckhmd2JuOUdkdmlHQXhQY2xBRjFiR1dpbUI2MmpqUF9PQTdxaXA2ajRoV2lHVFI1MmFsVHh0Q0ZTUTJ6TlRRdzlR?oc=5) |
+| Fighter jets scrambled, flares fired after planes violate Trump airspace over Bedminster, New Jersey - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNS25DOTF4djVzUUU0eTVwU2lSa2tKOE9MNWRyQkN5QlpPQy04RUZ1OEYwcjNmZUpCZXFLUkNCQjNHdVJTb2dpZUN2eGlVZS1ncmlOUTlsVVllNDJsb1owdThHWlMzZW5ST0VobHFIZnp0RU5tMWlVdlJSaWFyb1dLN05nVWE5VE50SHdQUnVSY0pJMTBLZGFzMHpZVGRicjhoSm11QzJvNNIBrAFBVV95cUxPWXVzTllwby1BSk83X3JETlEtbFNLS1d3OVRleHQwd0tiU0ZaeTQ1ZGluUHlqZFJ6V0U5VmtVM1NrR2ZDeHFoeEJJSkRzNHJVcHFNQ2FBdDFfS2RnaFRhYUdsNnFHeFZlVzVrS29WTHFGeV8wWnR5c2pOODVOYmJ2aDJHUUk4RWFubC1hMGpteUJrXzJrTDdDcURmbnlKbEZzbExyeTlhcXdPOWlj?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
