@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月04日 18:26:03（北京时间）**
+🕒 更新时间：**2025年08月04日 18:40:09（北京时间）**
 
 ---
 
@@ -17,13 +17,13 @@
 | Men in court over alleged rape of 12-year-old girl | [阅读全文](https://www.bbc.com/news/articles/cy98l9j913vo?at_medium=RSS&at_campaign=rss) |
 | Deputy First Minister Kate Forbes to stand down as MSP | [阅读全文](https://www.bbc.com/news/articles/c70xejr8drro?at_medium=RSS&at_campaign=rss) |
 | Secret filming exposes the 'madams' involved in Kenya's child-sex trade | [阅读全文](https://www.bbc.com/news/articles/c15l9zl508eo?at_medium=RSS&at_campaign=rss) |
-| The big fat 'fake' Indian wedding - Gen Z's latest party trend | [阅读全文](https://www.bbc.com/news/articles/cdxyrk04kd0o?at_medium=RSS&at_campaign=rss) |
+| BBC finds electrocuted, drowned and starved cats in online torture groups | [阅读全文](https://www.bbc.com/news/articles/c5yp9w5kyw7o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Gov. Greg Abbott threatens Texas House Democrats with removal from office for fleeing state - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNLWxqcXpXbDJTM1lfRDkwRDQtZUMzODE3UVRzY00ya2xoZVZfbkkyMVY4X3ZNU0xObGN1ODMtLWNUUENDRXJ1U0RieWRrMTBack01cGt2Q2ZSVkdSaHlRNnNKMHdmNmZBQ3g5cHZINmNoOFp1N2N4OHMzcFdUMl9IaXdadWw5STJkbnpUbVYwOGRYbm41TXdGZUYweEIzbDhUZXc?oc=5) |
+| "This truancy ends now": Texas governor threatens to remove Democrats who fled state - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNYXFxSWxEdGpsNFg1UHRnOVBHZHRpU3RoNHVxcEg0dGlKVzFaRzNSNWtWVEpGZllPOVZlZ3ota3FJZnhzQkhWM0NjTXZWdldabHNyT3VNbXAwa0RPVWtsWWFGbGlZLVVjQS1ad0dNSUZaNjJjamV2QjBhcDRLVk9JeERvc1g4cFpIQTBZUF9KdFA4Zw?oc=5) |
 | Trump says the Bureau of Labor Statistics orchestrated a ‘scam.’ Here’s how the jobs report really works - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOTWxpdlRiZWxISWg0eExkdEpHTEpiTFpXU1Z6dEhoRVFiZVVocjVHUnRVbWVzdzBlZVJ2NFhWTEpVOThJSktwaGtEZWJpc050dGF0Y2hoQU9OelVfcTJ6N29qNWdLMGdfQ1JwM1Vubml6ZmtXU0xoWTJxaXh6LXlGQXAwWjBaSmhwbUhGZ2hMUU81X2FZdHJz?oc=5) |
 | Videos of emaciated hostages condemned as Red Cross calls for access - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE50NmxHOUY3dnVSTjdRRERvTXNTV2NCZ0lMaUJxODdLVEF4WDFNN3lEcERtdVpLcjlSQzgxM1EwdTZmM1cxbjRnRjZKQVROU2szNVh6Tmd1VEJxd9IBX0FVX3lxTE9WbkdfNjZIRlpXeTdMOFFfVl95d2l2WE9QRVNObjdDUUF0emE2ZUllazB5Zk5FY0s0bmplbGNPdGc1ZGZaYWRMRjBtN2QtcTdCd2ZLV1VvYUltZUJfRl9z?oc=5) |
 | Modi Defiant as Trump Steps Up Pressure on India’s Russian Oil Purchases - Bloomberg | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNa1R1NUh4VDZrV1JpU1ViMHhINy1qcWlDQTZxa2l1LXVwdzZRVER4eHF0YVFSRWxjU2Zmcm1jb2xaaHhPbTJ0SS1sbnFKbHg5XzltTFJLTlc4cGpaeXVnUDFuQkFlWi1QTWI0eWVtc3YtS3FXbEJjVHpOUTdhV0xLZDlWZ2l2NWh2U2FBUnVRa1VNaXhwdV9fR09OblJmQi10em1TNFZfcVk3c0xYUWRhc3JKOHQ?oc=5) |
