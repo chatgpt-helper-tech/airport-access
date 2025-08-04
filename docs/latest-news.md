@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月04日 15:14:14（北京时间）**
+🕒 更新时间：**2025年08月04日 15:26:36（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Montana shooting victims named as manhunt for suspect continues - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQY08wZFgzbS1qNFpoNUl6RVp5cUVrb1Byckk1YVFFYjNCV0k0VURIVHdIR0NiaHh0SDQtZzViRHRTVFEwYnNlV01BVnpnUFBRSVdBb20tQThvSkMzX1Ayemd2Z19XWmw1MEFORHRPZFpoMW5EQy10THR2amdpZFdnbVc0MEgwYU0?oc=5) |
 | Canada wildfires cause poor air quality in the midwest and northeast U.S. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPcmxhNElBRVBmM0J2WUNBaW5TSzkxVlBOMU0tVUtfMG9POGJjSV9nUWE2VXR6VUxCTC00bkJJMWFSNWZYR0ZCVnQxOG9VVUUzaFg4ZlZOVG40TlFIclQ2ZFVldXdUdjRPOWpUQkZnOThlZm1qTFBXUnBtV0ZIc20zRmpWZjRTSl9YU1Y4QXAyX01NVWxnLUwwWUQxcktBdzdHMFVoODNCTTczY29Da0o0MXFwYw?oc=5) |
 | A volcano in Russia’s Far East erupts for the first time in centuries - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQSk0yN1Y5ajI3d0I5RUgwVTBPQV9pRVBKNllVWWlBWFVWV2o4cE12RTBaNGxkcGN1MU81Vm1DZ0wxYjAzeS1neHd4RE5OdFd1X3NMaEw0X0VQZE1xNE9SN3I5bXhFYjgyT0Y3V2J4TzJDM1M2a0E0RzVxTWhiOVF4NUV2YWt6WHczM1FWeEk1anpVNlRIWUM5WjgtRm7SAaIBQVVfeXFMTk1mOFpWdUxmNkZOOWNtbmJOTy16aWVBMjNpM1JwaWRPcUktOTltdjNPem1INTdsTzliUTd6M2t6bTN3c0w0X1V3bDVPMlhQSjF1U243S1BWd1lLUDNac1BFbDRyZURhM0FxcmJleEp3Y0haQWQ1Q2dibjh5dkd3clgtbnAwWWJTSmNDSzQwVVU5Vm1Sb2s5SDFBU2FzSXRWR2t3?oc=5) |
-| Irate Trump tells Schumer to ‘go to hell’ after Senate standoff over confirmations - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE9VU3NpZU9hbXJDeGtQSHJPM1BjbVdwSU01QW91U0hoU1ExMHJDN3hBR25JZEpUaXluemNyX3hUMGx1b1I2NzY2RVRUZXJsaUR4WFgzc1gtXzhfWUdBWDVCbXlFcS10VWt1MlBjV3BGNGpfQQ?oc=5) |
+| Sen. Chuck Schumer Trolls Trump’s Nominee Tirade With Jet2 Holiday Meme - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNRUp6dFFaQVM4Y3dOSm4wWmFCaTMxYWREZkI5a2h0aGlHdG5DUjdUN3V6UV9qYlpTS3VzNWlSS0xSMmFNYnNjVFNvQWtxdS1DLThUR3Y5ZFpFZm9sdEZXYXN2eDU2aFl4aERBOVJzTlV0bkg0amc1Z2JZN0ItWm5ISERzR3pQa0taTkpvX1R0ZUNPbE9NWkJ1OXNvc042c0loZkE?oc=5) |
 | Trump Smashed a Obama Legacy Item—Harming Many and Pleasing Few - The Bulwark | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQZkhiVFF0WlRPRXhOV05KQ1BYOWJ0UWMtR2JSU3FjSXVaeEd4Mm5UNDJqTG54ZFJ2YkJ3a05VZmlnVUU0MVlDajNGWVN6cTVfLTBiUGc3cDVFQ0pvbGVqeFptdUNxS1pmZFhMUEd2dGxKU0hFYW5jeUwtZmpMTEp5czhySmZoSFBDVkVZ?oc=5) |
 
 ---
