@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月06日 05:01:55（北京时间）**
+🕒 更新时间：**2025年08月06日 05:13:30（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump says Texas Republicans 'entitled' to more seats as redistricting showdown continues - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPYU5xM2tUcmh5VGh1dUxFX2M0dTZqc0lWRHd4WDlITkxCN2RRc1Zmc0FyNnBxcmFVR1pocWQwcXpNYUZYcGlUckpqYmU3RWpFQmpWUlhWb3hORHg5eHMzeHkyQmJtQXhwQldwRElRSG5ocDJiM0JtcUhnWjhSOHBCS1Z6Uy1UYXNQVUNJUTdITzZFYXZSaHo3enNyOThXZUt0M2tJSzdvc3RqaGE4cEHSAbMBQVVfeXFMUGd1UDRFM1FlMzZNSWd6bEo3TGRTTkVwdUI3LTQ2WWszX0w1OUlaZDV1bDNQVndaZldXY1FGWVRMem5UVHpFdHRkWW12UElud21DS1IxczR2RlVEd0tfTDRpLWQtTTRfb095UkJGMnlHWmVZMkZFb2hLQUR6bDdvOTdkdV9qcHYwZG0yVkRoaGg0Umo5TVdSRE5mc2ZFZzV6MGpyWlVrWGRjeUY3WnFxRFZ6aGs?oc=5) |
+| Texas AG Paxton will try to expel Texas Democrats if they don’t return by Friday - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE93QThILVJ4cEZpeGJScGY4Q1RUdXlSNkVXb3A0T05pbVFYSXBKUHQ4LUFUbmFTQktHcWtpb2V4MDJSRHVtamlZRW5fdEREM3JJZWQzUzZBTmFUdWtXaTZlN1pGR2ZTaDJLUTUxcllUM2FmMUhhUmJRa1ZR?oc=5) |
 | Bill and Hillary Clinton subpoened in House committee's Epstein probe - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5zdFlvakFXY1JWd2sxbDZ1M2VESXVrRkppNXpiNUJVYmtvRkhVQzZWNjlHN0dITXdsdnZ6NW9ZYmpFMzFFRnpQcE5fX2VBQ19zM28yT3llY0MwQdIBX0FVX3lxTE93eTc3VzZ6Slp5N0IySlNrSDByMW9oLXpjaEI3Nm1IbEtVTkhPcEE4OXVBSjJRTGo1R1hRcU0td1BRSG95N0MyWl90UkdPYjQwd2ZuaDRXRm9hS0FjZXdN?oc=5) |
 | Israeli plan to occupy Gaza brings fear to Palestinians, hostage families - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQc29TUG5wcUh1QVRUODVtdGZrV2xRRjVNb0QwUVRlQ3Bod2U3RE8zdmxtc1phS0d2NmJvLXlMdVZpVXhnV3RFOUphdmtyMUpfRkI0ZEs3OExMWnIzMjdpaDZRS3QwX3p6NHdSeXduOGg3MjZBVmR0blJEOHZpU1BQWmxB?oc=5) |
 | Confederate statue toppled during Black Lives Matter protests will be reinstalled - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOeEhob0l3N1UtTlIxVGQ1M1l6dEV6OFNGeGVPa21qRnV6MUJ0OWtnQUpJZGhqRF92YnU0M3dHaDJjQWdOXzlLRURidEdEUUpzajVpNFZ1dWZkZHEyTVpxeTdkQ3lIczNteTV4YThZeTVMSE9YR3duN0JISERRTzYwWEg2NHJQMUpRMUhHWmhR?oc=5) |
