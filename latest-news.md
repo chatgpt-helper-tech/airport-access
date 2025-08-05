@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月05日 17:00:29（北京时间）**
+🕒 更新时间：**2025年08月05日 17:13:36（北京时间）**
 
 ---
 
@@ -13,10 +13,10 @@
 | Thousands remain without power in aftermath of Storm Floris | [阅读全文](https://www.bbc.com/news/articles/c0j9g25q5eyo?at_medium=RSS&at_campaign=rss) |
 | Disfigured, shamed and forgotten: BBC visits the Korean survivors of the Hiroshima bomb | [阅读全文](https://www.bbc.com/news/articles/cp8zlwd3e42o?at_medium=RSS&at_campaign=rss) |
 | £100m of premium bond prizes remain unclaimed | [阅读全文](https://www.bbc.com/news/articles/ce3791ep6gko?at_medium=RSS&at_campaign=rss) |
-| Obesity jab patients need a plan to stop weight coming back, health experts say | [阅读全文](https://www.bbc.com/news/articles/cwy3jg20j1ro?at_medium=RSS&at_campaign=rss) |
+| More transparency needed on immigration status of suspects, says Cooper | [阅读全文](https://www.bbc.com/news/articles/c8rygx2xpy7o?at_medium=RSS&at_campaign=rss) |
 | Danish zoo asks for unwanted pets to feed its predators | [阅读全文](https://www.bbc.com/news/articles/c0r7z2ynd2lo?at_medium=RSS&at_campaign=rss) |
-| 'Totally torn apart': How decline of Morecambe FC threatens a whole community | [阅读全文](https://www.bbc.com/sport/football/articles/cd7yez08p8zo?at_medium=RSS&at_campaign=rss) |
-| Texas Republicans vote to arrest Democrats blocking plan to re-draw electoral boundaries | [阅读全文](https://www.bbc.com/news/articles/c93dkwnx94ro?at_medium=RSS&at_campaign=rss) |
+| Police officer accused of sharing Manchester Airport brawl CCTV footage | [阅读全文](https://www.bbc.com/news/articles/cy85e43kg95o?at_medium=RSS&at_campaign=rss) |
+| Patients stopping obesity jabs need help to keep weight off, NHS told | [阅读全文](https://www.bbc.com/news/articles/cwy3jg20j1ro?at_medium=RSS&at_campaign=rss) |
 | He is a human skeleton, Gaza hostage's brother tells BBC | [阅读全文](https://www.bbc.com/news/articles/cewyk4ezeedo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
