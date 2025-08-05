@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月05日 09:53:16（北京时间）**
+🕒 更新时间：**2025年08月05日 10:00:52（北京时间）**
 
 ---
 
@@ -29,7 +29,7 @@
 | Israel's PM Benjamin Netanyahu says decision made for full occupation of Gaza - Euronews.com | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQOHVKZkxmZnh3ZVM2YlV2MHFpZHFReGh5aThpV1Y1UzJ1M2kxOEpQQllHSlF6VUpxR0RjTEwwUExnYlBKamNsN1RFV3I5VjV5WWpydUVhQURySmFia2kxTHdfNjhvdVBLRWdObmpBMnlCNUl2dXhRcXF5MUZZV2pieEItcEFLd0xHSGkxR2thaW1iV3FucUFz?oc=5) |
 | Wildfire smoke is like smoking 'half a pack a day.' Here's how to protect yourself - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQZU5aRkhuSEVQN1NmTEhOZzh6eVB6NjhOTnVVTHlTdWEzcFVPTGJ3c1dqT1FzdjdMcE9SYkpIc1llYWhveDBPM2FOdmFsVWdIYThpdHZ4d1FvMVk0U2M0ODJlV3haNlpzcE9leHJadGRhREU1VVhNNG1BQmVOTlpnbWhIQmFNYmtaSWpSMGJQSXJiUkFRdGFHVFJ6VXVmRGVodENSV0Zodw?oc=5) |
 | State Department may require some travelers to post $15,000 bond for business or tourism visas - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE51cS1Bd090VkI5bTdVUjd6NmVJRW8wY1U4Wk1jMzhYVWkxWF9iem5SVVJTZ3pSUFhYMy1reVZpX2VSNGxVUmxMa1lUWTBKT2Qxb3BzN2o1dDNvUTU5dnl6aWpRYjBUQUZEZXVIZ3UwcEp5c2E5NTVYaTJn0gF_QVVfeXFMTnZSdXVhZC1hRHVlNUpyN3Q1ODAyaXdsTmpncUViMGRYR2w2blM3Q3h3MWZXbnJfZ2NCbjNBQUd2ajhtaFM3dUYzSGdsbV82b010WWdfU2RLM2dqcEJmRGlCcHl5aWo3ajJtb0ZmSlFGLUt0eWtndTE4UDJ3SThzdw?oc=5) |
-| What is known about the search for a former US soldier suspected of killing 4 at a Montana bar - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPWkhRWVhfMjBvSU5ya3lOaHBud0xCUGxEZEMyZk5vZUdYeWhjWThqWnZYR0ZRZV83RjZXZXVCZlFtZDMtVEJVOE9aYTByYTM4MndjU0VUVU9lN3dYdVFmUjV2QnhmcklFUldibVc2WVdPZzlZNktnRVY4M092RmUtY2MxekhKR20tUWQwUkVhTGs2WVdPX2swd2VNaVAtX0lYNkE?oc=5) |
+| How Is the Montana Shooting Suspect Still at Large? Check Out the Terrain. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE45VDVxcW1PdjVGM19hNmF2ZTBQbkYzNEhLNEZkcEtPaVVvRm92RTIxUS1fU3dtdUdZVjcwU1NKc0FiWkp6bnQ2Ukl5QjBEOXFwcHB5cWZfcGFKcEo0VWM3SzQ4UzBwLUhaSnNIa1JuclFwalVI?oc=5) |
 | US Rep. Nancy Mace officially launches bid for governor of South Carolina - Post and Courier | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPRTVBTm5YeWlCb0lmbm5WYVl4WDdVM0tRNTh6Tnh1UG5nTWQtQ3JMdDhYLVlTWjNwTzk1YW9uY3Y3SV9Mc0VUZFB1NnRST0JiT2pLLV9VaUljRE84RXowTmhMbm9sM0JjWnIwUl9leVZIR2VDNjVGdGhFLUxMWU5GaEoxai01bUw3aUJZMkpSbkdMOHhhaks3eHMwbVpHNlo4Q09HS1hYQmNQYW01b2FHaDU4aDJFYTNCUzljektB?oc=5) |
 | All to know about the quadruple killing manhunt in Tennessee after family found dead - The Independent | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPV1ZHMVdZNXNHdlVqSm9GVV9wU1pDczF3ZVlfclJkUUFCQ2VvWlE2S1REdHBCWjJ5M1ZoVmpyYXg0MXY0YjBrSjF2SGdDS2dieVlOcmVPbkozdEZMMFBtcUdadzZrRXNOeXFQMHFBOTJ4RXZuN3MxOVlrNXZnbXRMVHc1Y3BWNDIzbTVEZ0Y2R0xWd013YlNpbDEtWjYyYUpSOXVGaGNndEdKLUhSMkZUbi1R?oc=5) |
 | Trump moves to bar nearly all abortions at Veterans Affairs hospitals - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQNnVwTFBsRUZXekk1VlZFd0hLN29kSnpvM0xuOWxZWEZMZXMtRks0Q2N1V0VTdmtIa0xPcnBPM1VLNUp4N0RDeDJpSjk3WUphempFTW40MnRReGtGcS1HUEp0ek5yX3lhUGhzZDRNb19sQXlpZ210cTVHT1pMQk16NGtB?oc=5) |
