@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月05日 12:14:16（北京时间）**
+🕒 更新时间：**2025年08月05日 12:27:30（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Wildfire smoke is like smoking 'half a pack a day.' Here's how to protect yourself - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQZU5aRkhuSEVQN1NmTEhOZzh6eVB6NjhOTnVVTHlTdWEzcFVPTGJ3c1dqT1FzdjdMcE9SYkpIc1llYWhveDBPM2FOdmFsVWdIYThpdHZ4d1FvMVk0U2M0ODJlV3haNlpzcE9leHJadGRhREU1VVhNNG1BQmVOTlpnbWhIQmFNYmtaSWpSMGJQSXJiUkFRdGFHVFJ6VXVmRGVodENSV0Zodw?oc=5) |
 | How Is the Montana Shooting Suspect Still at Large? Check Out the Terrain. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE45VDVxcW1PdjVGM19hNmF2ZTBQbkYzNEhLNEZkcEtPaVVvRm92RTIxUS1fU3dtdUdZVjcwU1NKc0FiWkp6bnQ2Ukl5QjBEOXFwcHB5cWZfcGFKcEo0VWM3SzQ4UzBwLUhaSnNIa1JuclFwalVI?oc=5) |
 | Trump news at a glance: political battle in Texas escalates and president under fire for firing labor statistics chief - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNa0Zrcl9vUlVUVHpQbUVjdlJndmhsOFNIUF9IYkdnNHBDTGFtOGVHTjN5OTh4b2FqMnpfaXdkT3RMejhyeHhiZmROb01mOV9Td2FxRlNGaE1WRF9Sc2tULUp3TlE1NUVEZVhCNzFJUTI2eFp5alRNWFNfUExOSUpXdjNSaGtNcTJMblRjV3NQWWVWSDlMT0FabEp3?oc=5) |
-| DOJ to launch grand jury probe over Russia allegations against Obama officials - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQSzJ6ZTFJc0VmLVpManVQeno2QWJqNzZUY3hvMGtjVUFfbDJxU3BBaDIzaVhGdzk1SGlvRHpHai1XTFpKajY5dmdtRDllaFNVUjduYzZONWNwbHBCeEpHZDctcllfRVRReHNETHhOOTc5WG45U2g1STNpS3VBTnVLeVRod1N4RHRHU2hKbncwVkd1Vjg4ODY0ZGhwWUR5THd5WkFWWWVHS210X2FsQjlSc01IOEgwZmPSAbwBQVVfeXFMTmRwOWNzYlpqV18yWnAxZ3lkY2VHSDl6QVppb09YTnpiQ2Y1bndERmdMSTN0ZHpnUGhSNlNaYV9NaXI3RWNYU25udFN1RS13cXVzVnZZc21BVXQ2dkphRUdRd01hOVJWeWo1ajZBWE1IaWRPckFSbnBvWlI3SWNnazFOLVR4M2kzWm9CUTE5MmliVG9qNFJqSWY3d1paeEd6U05ROXRtRkhNMl81dWFaelJQdVdES2lzODRrdUo?oc=5) |
-| All to know about the quadruple killing manhunt in Tennessee after family found dead - The Independent | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPV1ZHMVdZNXNHdlVqSm9GVV9wU1pDczF3ZVlfclJkUUFCQ2VvWlE2S1REdHBCWjJ5M1ZoVmpyYXg0MXY0YjBrSjF2SGdDS2dieVlOcmVPbkozdEZMMFBtcUdadzZrRXNOeXFQMHFBOTJ4RXZuN3MxOVlrNXZnbXRMVHc1Y3BWNDIzbTVEZ0Y2R0xWd013YlNpbDEtWjYyYUpSOXVGaGNndEdKLUhSMkZUbi1R?oc=5) |
+| Appeals court upholds Texas law requiring ID numbers to cast mail-in ballots - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNdkVRX1pobE1ON210TUN5RWNnLWZYV0NYWEs3Z202WkVCZUR2R2w0dlJrSmRfZ1BvOThILW1KV3NkSnNJd3lqTW5wOENQckphVC1iMk9MWHYzdEZsQ3hhSU9GZzEzVkVVQ1JXdnZsV3Z1RmVQZnQySUl0OVA2SFdrbmQ4cUh4djdrWGdWdHFXYUU0XzhBRmVQbXNQcEducWRScUtsWmFqWVhmLWdhNXYwRUo5bzhxUm9IcGFUYm1YYzlFWkhr?oc=5) |
+| US DOJ to open grand jury to investigate Obama officials, source says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPMFpTV2JuSE1QSkh1bnBoWmdKMlpRbTJnY1RRQkJvY2wyT0NZZHJDUVpaZEJHaEY1MXdNbVppVVNSZU9DMFhBRUUtajZPeVJZNjdOSW5iNDU4YUlSdEk4NTF5d0lPU1A2eVo3ak10Q3R2RWk4QWdpMS15RVVycGJUc2lpd3JMSkVrQnBweHZOVGtSWm1BeEhuRFA5Sk5HUVNLZXVuVVBFbGVnZmdRS3FDSVVPMUk4Zw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
