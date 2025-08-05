@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月05日 20:52:47（北京时间）**
+🕒 更新时间：**2025年08月05日 21:00:13（北京时间）**
 
 ---
 
@@ -14,9 +14,9 @@
 | Netanyahu to propose full reoccupation of Gaza, Israeli media report | [阅读全文](https://www.bbc.com/news/articles/cpqv2qjg5vvo?at_medium=RSS&at_campaign=rss) |
 | Footballer Thomas Partey granted bail on rape charges | [阅读全文](https://www.bbc.com/news/articles/c05engnv3l2o?at_medium=RSS&at_campaign=rss) |
 | Home secretary won't say how many migrants will be returned to France in new scheme | [阅读全文](https://www.bbc.com/news/articles/cewykzegy4qo?at_medium=RSS&at_campaign=rss) |
+| Corbyn attacks Rayner for selling off allotments | [阅读全文](https://www.bbc.com/news/articles/c3dpkvkkjjno?at_medium=RSS&at_campaign=rss) |
 | £100m of premium bond prizes remain unclaimed | [阅读全文](https://www.bbc.com/news/articles/ce3791ep6gko?at_medium=RSS&at_campaign=rss) |
-| Nasa to put nuclear reactor on the Moon by 2030 - US media | [阅读全文](https://www.bbc.com/news/articles/cev2dylxv74o?at_medium=RSS&at_campaign=rss) |
-| Tommy Robinson bailed after arrest in connection with assault | [阅读全文](https://www.bbc.com/news/articles/crr2dpxxzz1o?at_medium=RSS&at_campaign=rss) |
+| Nasa to put nuclear reactor on the Moon by 2030, according to US media | [阅读全文](https://www.bbc.com/news/articles/cev2dylxv74o?at_medium=RSS&at_campaign=rss) |
 | Putin and Trump's relationship has soured - but behind the posturing, a Ukraine deal is still possible | [阅读全文](https://www.bbc.com/news/articles/cj4wn1j7w1jo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
