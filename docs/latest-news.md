@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月06日 02:53:08（北京时间）**
+🕒 更新时间：**2025年08月06日 03:01:55（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Netanyahu to propose full reoccupation of Gaza, Israeli media report - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFAxNW9sOC1hdzcta0NHNDhsVGU2UG45M3p2TEJSeTdVMm9va2Jub0l0SzQ2SzhSU3Q1OXhxT0RWaTBWaHhTUHNLb0o0OEpUV3NCaVlOci1SLU9Gd9IBX0FVX3lxTE42ZkloYjVmd1VPcTVHaVF4TlBCaVZienQ3d0VJNDBJTlhReFFDcjFJY0pXbWl3U01HcnZfYlFtNnhNTjFoTTk5THpWZTVmYVpfU0dHVjkya2tMNWNmTWs0?oc=5) |
 | Nebraska Republican is shouted down by hostile crowd at a town hall on Trump’s tax cuts - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNR1hhcFYyUHF4MlNvT0hmQVRQbEtSeC1GVFQwNmdpcm5UMnF1QUhxX1VpVFgxeW1ydE4zUHFPWXhvV1lVSFY5M3FIUWFET3N0RWFDLURVemEtZ0JlWHd0Y0ZSMjVzZ2R1WE9DRnBJTVVGckxCVEZ3LWhtYXdTdXZXcWYtZGlEMlJVSExUdDM0X0VRNzEyU1RxWHZ1VVJIdE9OaE1nRTBSbw?oc=5) |
 | Confederate statue toppled during Black Lives Matter protests will be reinstalled - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOeEhob0l3N1UtTlIxVGQ1M1l6dEV6OFNGeGVPa21qRnV6MUJ0OWtnQUpJZGhqRF92YnU0M3dHaDJjQWdOXzlLRURidEdEUUpzajVpNFZ1dWZkZHEyTVpxeTdkQ3lIczNteTV4YThZeTVMSE9YR3duN0JISERRTzYwWEg2NHJQMUpRMUhHWmhR?oc=5) |
-| Tennessee murder suspect Austin Drummond, accused of killing 4 family members, is captured after manhunt - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBXNVN1REVKdkcyYTVpdVRKNXU4M1FjQi1MLVYtb2xLWXp0VVFxYTB4aTNjUVlOcVJzcXp6YllSaTlrR2tNZ21OSl8tSHNOZi05dHBLWURpSHV0cG1lU2lDbHJfN3lBSFIyR2F5QmtqeTBjZ9IBd0FVX3lxTE1kdkJWLUZONTJTUExMck55TDRPREhOTGJ6OTdxY0cwYVFSZklMRFhfa2x2VGhkYXYwbzh3YVN6azVSQkg1SFhLRElUbWJjNHJpZ0hiWTNhcDU5SnBIMkEzc1RjMjZ3dkd1YjkxdU5TNXlYUERXMlQ0?oc=5) |
+| Epstein victims condemn Trump administration for plan to unseal grand jury testimony - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNOFdYUEZkNVlxdWlsR0RLNF9QOTRISzJYRkFuOHhZcHVqYUk1WElJajJRU01sc2lyd05ZenhzekcyX25lQXJkQnlSeXFBa1NRQkdnUk11ZGRiV2wtRDNLX1NWSWN4THlKMTlibWJObW9jaVl0ZG9NMVJ5VlZxY3VFQUF1cWRrOFNLQVg0?oc=5) |
 | Tennessee Inmate Executed Despite Ethical Health Concerns - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOZUpud2NpaV90N1MzM0c5NmY5RkUxOTBva2puUXVEZkZ5ZmpZWDNIUURsSDZRLTZ2OFBpb052b3dFU3A2aW1pay1hWFlnS1J1ZVBtM0pvUUVfRGc4Y0FDeWFCNXhQUU1KS2w3OHlOSUlWMWViNHBvN2FteUxLcE1QYkJwaHA5NU4zWHBLOWJR?oc=5) |
 | Titan sub firm used 'intimidation tactics' and 'critically flawed' safety practices, US Coast Guard report finds - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE93SjdjMk1ma0NPbVFWU1FORHlnUlA2MlljT1F3LVpVRDRqNDhJUE1RNk9yOWpHZmxOSmZCQnI3WThTQ2hwNHVZcURub2ZleFJTZF9NZQ?oc=5) |
-| Why the manhunt for a Montana mass shooting suspect has proven exceedingly difficult - CNN | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNY3F5dVhCTGM4YU45R0FkMFdHZ2ZGYldzQktPYV9HcjlLVG5PYlpfVVJnRFB4NzdHT2lLelk0QWowNzhfSTkyTnNwSTdYVnM5R0hxUEJtU2NLLTF3RlAwRmVsQzZ0NE80MUxGYk5PLTRKVlpySnhPN01OaTE5MXBwYVAwYjZKa09GNGVHWUthUXNJNWNhdXNhbnVRYTJsTENyRTA5T0dLRkxsVVFiWHc?oc=5) |
-| Epstein victims condemn Trump administration for plan to unseal grand jury testimony - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNOFdYUEZkNVlxdWlsR0RLNF9QOTRISzJYRkFuOHhZcHVqYUk1WElJajJRU01sc2lyd05ZenhzekcyX25lQXJkQnlSeXFBa1NRQkdnUk11ZGRiV2wtRDNLX1NWSWN4THlKMTlibWJObW9jaVl0ZG9NMVJ5VlZxY3VFQUF1cWRrOFNLQVg0?oc=5) |
+| Tennessee murder suspect Austin Drummond, accused of killing 4 family members, is captured after manhunt - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBXNVN1REVKdkcyYTVpdVRKNXU4M1FjQi1MLVYtb2xLWXp0VVFxYTB4aTNjUVlOcVJzcXp6YllSaTlrR2tNZ21OSl8tSHNOZi05dHBLWURpSHV0cG1lU2lDbHJfN3lBSFIyR2F5QmtqeTBjZ9IBd0FVX3lxTE1kdkJWLUZONTJTUExMck55TDRPREhOTGJ6OTdxY0cwYVFSZklMRFhfa2x2VGhkYXYwbzh3YVN6azVSQkg1SFhLRElUbWJjNHJpZ0hiWTNhcDU5SnBIMkEzc1RjMjZ3dkd1YjkxdU5TNXlYUERXMlQ0?oc=5) |
+| Republicans’ next redistricting target: Missouri - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPWDlSdEpVaE1qMlI4VjRMSENJYV8xV1pXVmZ1c0c0ZzNtbk9HcG5abFJ1dWxwd0hVRTlJY3YwYzVfamZRejR1SU44bDR6YzgyVW9VN2lGU2Z0TVZzUlNaUUNtdXpCMlBLcWxSbWZzVUJLNUwxVjVlVkVwdGNGOEZ2dWFBenZRdGQyczJadkE5Zw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
