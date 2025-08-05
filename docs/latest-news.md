@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月05日 13:01:12（北京时间）**
+🕒 更新时间：**2025年08月05日 13:14:37（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| UK-French small boats pilot plan comes into force | [阅读全文](https://www.bbc.com/news/articles/cewykzegy4qo?at_medium=RSS&at_campaign=rss) |
+| First migrants could be detained within days under UK-France small boats deal | [阅读全文](https://www.bbc.com/news/articles/cewykzegy4qo?at_medium=RSS&at_campaign=rss) |
 | Obesity jab patients need a plan to stop weight coming back, health experts say | [阅读全文](https://www.bbc.com/news/articles/cwy3jg20j1ro?at_medium=RSS&at_campaign=rss) |
 | He is a human skeleton, Gaza hostage's brother tells BBC | [阅读全文](https://www.bbc.com/news/articles/cewyk4ezeedo?at_medium=RSS&at_campaign=rss) |
 | Tommy Robinson arrested in connection with assault at St Pancras station | [阅读全文](https://www.bbc.com/news/articles/crr2dpxxzz1o?at_medium=RSS&at_campaign=rss) |
