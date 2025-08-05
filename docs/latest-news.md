@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月05日 16:27:30（北京时间）**
+🕒 更新时间：**2025年08月05日 16:40:49（北京时间）**
 
 ---
 
@@ -8,16 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| First migrants could be detained within days under UK-France small boats deal | [阅读全文](https://www.bbc.com/news/articles/cewykzegy4qo?at_medium=RSS&at_campaign=rss) |
+| Home secretary won't say how many migrants will be returned to France in new scheme | [阅读全文](https://www.bbc.com/news/articles/cewykzegy4qo?at_medium=RSS&at_campaign=rss) |
 | Repair Shop's Jay Blades charged with two counts of  rape | [阅读全文](https://www.bbc.com/news/articles/c5yl63965q0o?at_medium=RSS&at_campaign=rss) |
-| Obesity jab patients need a plan to stop weight coming back, health experts say | [阅读全文](https://www.bbc.com/news/articles/cwy3jg20j1ro?at_medium=RSS&at_campaign=rss) |
 | Thousands remain without power in aftermath of Storm Floris | [阅读全文](https://www.bbc.com/news/articles/c0j9g25q5eyo?at_medium=RSS&at_campaign=rss) |
 | Disfigured, shamed and forgotten: BBC visits the Korean survivors of the Hiroshima bomb | [阅读全文](https://www.bbc.com/news/articles/cp8zlwd3e42o?at_medium=RSS&at_campaign=rss) |
 | £100m of premium bond prizes remain unclaimed | [阅读全文](https://www.bbc.com/news/articles/ce3791ep6gko?at_medium=RSS&at_campaign=rss) |
+| Obesity jab patients need a plan to stop weight coming back, health experts say | [阅读全文](https://www.bbc.com/news/articles/cwy3jg20j1ro?at_medium=RSS&at_campaign=rss) |
+| Danish zoo asks for unwanted pets to feed its predators | [阅读全文](https://www.bbc.com/news/articles/c0r7z2ynd2lo?at_medium=RSS&at_campaign=rss) |
 | 'Totally torn apart': How decline of Morecambe FC threatens a whole community | [阅读全文](https://www.bbc.com/sport/football/articles/cd7yez08p8zo?at_medium=RSS&at_campaign=rss) |
 | He is a human skeleton, Gaza hostage's brother tells BBC | [阅读全文](https://www.bbc.com/news/articles/cewyk4ezeedo?at_medium=RSS&at_campaign=rss) |
 | Texas Republicans vote to arrest Democrats blocking plan to re-draw electoral boundaries | [阅读全文](https://www.bbc.com/news/articles/c93dkwnx94ro?at_medium=RSS&at_campaign=rss) |
-| Danish zoo asks for unwanted pets to feed its predators | [阅读全文](https://www.bbc.com/news/articles/c0r7z2ynd2lo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -25,14 +25,14 @@
 |--------|-------------|
 | Texas governor says Dems can’t do ‘anything about’ GOP plans - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQMGl5UjlFUXdSeHhPTGlRU1ZEVVNnejMxUFoyMUlKaWRXT29mOWh5MkRqZ2oyYjFDMUZBVzU2RjZ3QnZiZldCdHZtZS1NYlUteU5Xc0YwS3h4WGhwek9zRlFxa2g5Mk5TcXBoR3hXSFg4aTBUcmxZdW1YXzRyUXo1TmZpZk1Vd0pPcG5CX2ZEX1J6Z2FGa2Q5M3RPODXSAaIBQVVfeXFMTUNJbkxMd0hlX1VQR2UxQTFIOHNuQkJwdlRLWFBnazQ4YnVJREdNWnR1cU9xbnhNWUp5WnhqZHRUbVlhZlFtZWtVN01MdUlJcHpEanlSR2VmNXJKTFhUeUE3Q1dYa0FWVkV4bEdMbDA4X0VvX3BVWEFyS3doQkk1Nm8zeVlWQ1E4RUk0OFFCSHp3YUhBWkVrSC1yZWlEZUlLeFB3?oc=5) |
 | Netanyahu vows to occupy Gaza as U.S. touts ‘all or nothing’ hostage plan - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQWUpIdURIX253TERmYlNJQzdHbjNSckFvczlxN0ZlRDZrTzU3QVlRcXFRQmpPNHJuVWxhcFo2VTBfUUZYc3Q5cl9QdjFYUExHLXcxLW55RW1neEkzTmtJNlloVWd5TGl5a1MweGtNcUM4YUJ2c2JocWJqbVRmaHd0azVJUEZVUEFBYzlCRGRROWpzTmVVbDNpcDFwcDJvVlNicEluOA?oc=5) |
-| Modi and Trump once called each other good friends. Now the US-India relationship is getting bumpy - apnews.com | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPSllCZ25vaTMtWlZFekdac3pfc3Q3Uzd1eWs2SjZucUdBTnpVNjNLZldpZnFCTUw1Q1N1VEFYb3JuLTM2a3Qtd2xwaGYxS2F1SEc4ejRmaEVvVXNQY3FtZHlpaE5oNDVJd2RtUEFtT1J5NXc4amhFZTlkRkVhVTRWVTNjTGVOR2ZjakpyQWptNFZpMUtMakdOV3dBRTN3TUU5dlE?oc=5) |
 | Texas redistricting move would ‘trigger’ new California maps, Newsom says - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNcVdhZVdrWDNZWVJHZi1QMEd4Rlg5azR0aWo4SnlZbFVDZlp6OTZtTEZWZzlqNjlUcHU1UUpXTk9weXdPMDBCS3VlLWhXdmpVWV9ONGt0YWdvcFctSmZaWmRlWTFnbjFYaUxoRVI0aC1lRDdRclNJZS1odkZXYmxqd3lYSUJXS2pXYlExMTNtRENiOW5BUjRRWHEwNkFMcXFmaGc?oc=5) |
-| Brazil’s supreme court orders house arrest of Jair Bolsonaro - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9wenFiRVRsd2RSU2VNcGQwZHM1N1d2TEprN0NmVTNCWHVPOFdMZlk1VGJCVExDVFdQVFBkUUhtaXB3c184QUY2aTJYU1VwcnRmUUFpUnI4Yk9SUDhQRllkdktwY3BXRFkybnRmWUR4YVE?oc=5) |
-| State Department may require visa applicants to post bond of up to $15,000 for entry - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPMTd5cnQzajRkVURTVldMMnptTmxYQnBfZFBFNnZEbDlrcjFPcElxdng3Q3Zxem1PdlR2U1Z5dFRXM1N4ZFBBT2I1MDFHRGNwN0dQLVJkYkwyWXJZMXlobGp4cjZHZzloU2hZVlJzT0ktVklGd3pRZ1A2LXJpckQwQ292OF9xMFFCOVE?oc=5) |
+| Brazil Supreme Court orders house arrest of ex-president Bolsonaro - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQWUROdWllUHZYQ25IR2RkcWFSc01CRG9WSTNzT0tydS1zWmNHN3htajVMTGR5R3BMbTVHR21nM2xtVDJyMlJzdzJLTVp3NkpiMi01TWVja0JuV3dmRE80dWtTbnJ4YkJPVkozRWZuaXh4am5pN09qdWkwU2d2N0NBOUl3?oc=5) |
+| State Department may require some visa applicants to post bond of up to $15,000 - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPMTd5cnQzajRkVURTVldMMnptTmxYQnBfZFBFNnZEbDlrcjFPcElxdng3Q3Zxem1PdlR2U1Z5dFRXM1N4ZFBBT2I1MDFHRGNwN0dQLVJkYkwyWXJZMXlobGp4cjZHZzloU2hZVlJzT0ktVklGd3pRZ1A2LXJpckQwQ292OF9xMFFCOVE?oc=5) |
+| The history behind Trump's newly paved Rose Garden - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPZXNYSVByYUhNdGJTUXJMUk5DalctZjVLdUpFTjAtaThpM3hkZUJJZ0FPS1FTWE81dVVZNmVHOGdLWFc0RmpOVHo3WFNGWldmSkVaUXBSWkpEcS1zNUVud1paWmRlOGxXUXBLVW1HelR3Qlh4aElPaHNtYTd1QkFJTWRpcjZVNlBvb3NDT3BodUZDUQ?oc=5) |
 | How Is the Montana Shooting Suspect Still at Large? Check Out the Terrain. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE45VDVxcW1PdjVGM19hNmF2ZTBQbkYzNEhLNEZkcEtPaVVvRm92RTIxUS1fU3dtdUdZVjcwU1NKc0FiWkp6bnQ2Ukl5QjBEOXFwcHB5cWZfcGFKcEo0VWM3SzQ4UzBwLUhaSnNIa1JuclFwalVI?oc=5) |
 | UVA appoints Paul G. Mahoney as interim president - UVA Today | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQWkx0VmRVc19ZVGlaLU45Zk91Z003UGo4cVl6ZDlMVms4dWZBTVJ6bFEtby1Kb3VQRmdRVzNzcHB6a1dhb3ptM19OQ1ZseWxvd1BGMmo0ZXVwcTNDc2d3blRXVExLMTlmaHVrNUEtdkRENXNHZ1VwQjZXcDZ4dUh6dkkwYVRkZw?oc=5) |
-| How Trump decided to fire a little-known statistician, sparking conspiracy theories about government data - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNS0NYbUZ2a1F4Q1J3eEltSHBhMkRBSGVEaGdfSnFJTHlJVy1wSzRMZDRRVndxWWFWaDMwNXhpS09KNDJMb18wVXhuUGFpYlVEdHBucmNFTmFZWEo0TjhBTm9QekpMMnFla1RIcmZINVI4VTlqVGRRNTYwTE5pdnZiM083TnPSAYoBQVVfeXFMTWlpM0tzLUdvT3FvR05LNWFlTWp6MGhaa0l6UUs4N3ZGdFlaVHdVUlFlNHp5bmpTTUFxMHdOTy1wNTQ3S3VMWVBRR3o3emdNQndZelFiQ0NnbmtyeU0wTnpWbC1ydzREWVUyU3NhQ0RJQ3ZQM0EyMWFPcndsT0wzdHYzN2dlc21Rdkxn?oc=5) |
-| US DOJ to open grand jury to investigate Obama officials, source says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPMFpTV2JuSE1QSkh1bnBoWmdKMlpRbTJnY1RRQkJvY2wyT0NZZHJDUVpaZEJHaEY1MXdNbVppVVNSZU9DMFhBRUUtajZPeVJZNjdOSW5iNDU4YUlSdEk4NTF5d0lPU1A2eVo3ak10Q3R2RWk4QWdpMS15RVVycGJUc2lpd3JMSkVrQnBweHZOVGtSWm1BeEhuRFA5Sk5HUVNLZXVuVVBFbGVnZmdRS3FDSVVPMUk4Zw?oc=5) |
+| In rejecting the jobs report, Trump follows his own playbook of discrediting unfavorable data - apnews.com | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQMXhLVktjYk9Oa2NoWkVNT3RXWTJBQ1FXaDZQdHpvV3hWbmItTTFwYWZOTnV3RzF6Znh3ZVJKUzlSVkZtTVlQOURVc3NRd0dvR2gzaG45dDdaa0RoaExSV0ZWRXFIbHdhNE11VFFhWjJjNDdUWlJQS1VSVHZDNWN4NlF5X3lPMEFyWkxhVTM0dHNYaEs1ejlxMXgyQ25sZTlVMl82aFY5eHdVQQ?oc=5) |
+| Trump threatens higher India tariffs, accuses nation of funding war in Ukraine - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1uT2hzMF9udnJVeUM5al9XSkduNlc2WkNocFRJUlZmU3VYQTBpM2l2dkx2MU42LTVfSmdiTk9rRW1velB6YVo4eERuN0FvTTEzbGF1UTVWUEliWFhFdUdZeUdlaVlkX19tTUdBZzQxcGo?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
