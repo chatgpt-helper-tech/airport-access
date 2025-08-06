@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月07日 05:00:18（北京时间）**
+🕒 更新时间：**2025年08月07日 05:14:49（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | 5 soldiers injured in shooting at Fort Stewart in Georgia, Army sergeant in custody - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQUnJ5VU5IU3R0WXJjeFQ1V3p0cTJDcGpJN1ZLWjJUSndjZk91XzN2X21uOXJ2dnhrX1dzS1NqS2gtUk55cFJQQnNiOThBNkdwYWpaS2N6TFNFVkxMWXNwamFiVXZSc1U3Q0RobFhXcHJKZmFPZGYzdnFHTUZFY2Q4MWNZYmkwajN2Q3VxVHN0c2NVQmhLWF9DemI1WkR2bjNzRXdNWFFwV2lFUy0zS0HSAbMBQVVfeXFMT0dSSWhwTXZteG9TUmoxTEU4amozeG5aNzRJbncxNWR0R3haT1lMTF9vXzZ5TjV2OEI0cThPU2c0U2huNmg3WWVQT2YwY1BfcWo3Qi1vazZGckI5ZV9YekM1RVNaT2VYSUZoZUxST25FV0ZYOHZwVVdqbWt1VTBZWGY4U3pHcFk4ekVyY1E2RTBPSllMRnZEREhaUi1SS2hjYnBRaThBVE5OSkQ0ekdLbVpfb0U?oc=5) |
-| Trump threatens 50% tariffs on India for buying Russian oil - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1Fc2xpcElSdFpNNk5lNFRYYVd0ZzlRandmOXdEcUFuNHJBSW1RTHZXaWtuWlVoQ3VFMVczY09UYk1wbE9CU2FmdEhKZWJxWFd2TUtoTFRYbF9vZ9IBX0FVX3lxTFBkQU1iYVBiWDdyT1I1aEdMak5fTkd2WTNZSWtvX1c1NnhFbklQYWxZUElqanF2SFlzeDFMU21tRjFEbHB6MXdPdjJWTzdWaXVVT1pFb0R4S2hqYXV1OUxN?oc=5) |
 | Trump Tells European Leaders He Intends to Meet With Putin and Zelensky - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMTlSWkZITWZORG02NkczVlYydzZOeVlNR2dzVW92VFllVElFLU44dll3bno3eFJTT1FnQWJ2SGlHbm5YeW9tSC1RdDNjWVVfeFQ5LVF2d1BSUFVlNTVsdm1jVFBVd2ZDMVBzOUVfUDFkdHFaYXFRYllHNTBtMzIxRDhCMTBFVVE?oc=5) |
+| Trump threatens 50% tariffs on India for buying Russian oil - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1Fc2xpcElSdFpNNk5lNFRYYVd0ZzlRandmOXdEcUFuNHJBSW1RTHZXaWtuWlVoQ3VFMVczY09UYk1wbE9CU2FmdEhKZWJxWFd2TUtoTFRYbF9vZ9IBX0FVX3lxTFBkQU1iYVBiWDdyT1I1aEdMak5fTkd2WTNZSWtvX1c1NnhFbklQYWxZUElqanF2SFlzeDFMU21tRjFEbHB6MXdPdjJWTzdWaXVVT1pFb0R4S2hqYXV1OUxN?oc=5) |
 | How Texas Republicans want to dismantle Democratic districts - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOcl9pVG83OWJqZ0U4Um5fbS14Rm4tWFpiRTBYR0ZJemNCOTl2WGZQa2haQk94MTZUN3AtSi1aQkE1My0wVkhPa3pwMEI2eDJYSGJtcDQzUnhXVzN4M18tT0tLX0xSZ3o1c2NUMUpSVUJCWmRRVmpqS3h6N3hyeE54LVRETjJTWFNnODNGaFNBOHhGUdIBlwFBVV95cUxQLUZILWx3eDlQa3g0ZWxPSkNFZUJBZnk2dkdIT2tRUVN6amVNemRSQlFvekt6TjFrTGQ0NEVfVWRjemMtOWZTblBIaDVYNW9FVElrWmpGT3RRRXpkUHhtQ0lneWEtS2tmVjBYd3E2bDI1ZXM0SGhYWVNYbWM5TmM4aWQzYzhDUzlZTU9TUlVCYTlYOUJzY2gw?oc=5) |
 | Can Trump federalize D.C.? Here's what to know - Axios | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE9zQ1ZmVW9jSE11LUxYSDdwMjRDQ2ZNWHNONjVmc1dSdkhST21Xejc4WjlFWlpSOGFwVno1ejBFeVlpZmRpWWY3MXozcjJURGtPMHliLXQyWHZNYXR2dXFhV294NUJwU3JNamRDYjBsaVBEQzA?oc=5) |
 | Texas state lawmakers in Illinois evacuated from their hotel after threat - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQTGxaRjdPYkhjX1RpenZuM09GSHY2RnBGS3dfRXlOQTQ5dEJieFZ6Y2M4YVVCeFRJc1JxX01YelI2WWFHZENLZWNxWDE3a3lJTV9neFNPSGNaSzlvZlNub0dxdVBzemVNQlNhcGxUa1dhaUdWT2Jsc25ZQzNmcHJjdlFQYWRYRnF3dUMyUVA3VGtNd0lBODVVTmJvbGZYeExrM1BLUkNUanBCbGPSAVZBVV95cUxNYWItSTRuaUdzdldKZkNoVXlwWEpSZmhoaExDUlFNM2hjdkV3NHV3RUdnZVkzejVVWjJEY2xzM2FCTWo3V0x6NkxUM3pHdHF0aHRVMzE0dw?oc=5) |
