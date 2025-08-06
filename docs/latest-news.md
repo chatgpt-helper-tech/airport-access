@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月06日 11:40:31（北京时间）**
+🕒 更新时间：**2025年08月06日 11:53:31（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Fact check: Trump’s claims jobless numbers were 'rigged' - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNUTZiSGs2N29lWndkUHhiWl9ZMS13ZTJZQ2l6TkxzY0RrQndWZzY1MF9LQnZpWExacjVvYWk4M0tUb1hjRDVIV3EzaXFyeWNJa3lRU2lINHdVbDlmWUhyZW5qOXlYM0dXRXVjRlF5cVlqeEJQa1JDMTJrWW5EX3hPUU5kMHRibTNINVU0VnM2Q0V6VlNueF9wYkZvQ3Bfa2_SAaQBQVVfeXFMTUFTWmlhZmJKdk9uZEFyQ3ZpeGwtZmVxYjIyN3RLZWlac1dkeHg5UV94SVBsUGZ5cFBkLXpNbmg4dFN0ZlFhSklHZnNhdUo3TDZpcjBldTVlYzY3RnNyX3M0dENhYUVJMWpPMDdOVmtDeWp6Vm50Q1pKbzRYUUNrTkt6dnVGVjB5b01SSTFlSVdHQmxPWk5WSjNSd1FfdE9WUTFRWHg?oc=5) |
 | Manhunt for Montana bar shooter who killed 4 is state's highest priority, governor says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTFBDcjdJUGkzMmc4bDBwd1lvb1J2WjQ1Q1o4YTNuY05mMDhKNUNYUnc0bzJiSHZFLUhvTGRaTjFCZFMydGloTFJVNE40ZVF4anl0UzFaQTJreFI2VkJpaGNrTWU2R0JMXzV0eDItYzhHY0hlU3BD0gF6QVVfeXFMUEQyWGdFZjdxcVg5UHgtaFVnVk02aFZmc1dZVDJSUlpmUTR3RzVMQzFaemJVendzU2dJbi1VbVoyNGlHUGZGQ3JqRXgybkJkZWpJWjBaSm9ESFdUbFo4WUZ5NDQ5Z0ZnZDRQR1NMcTBiRERYUHduZElrd3c?oc=5) |
 | Justice Department releases new list of so-called sanctuary jurisdictions - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxObHM4NW43Q1R5VjM1dDRUNlVMSGw2YzNsQXhJNlRKM0xJa0RreUNpeHI3VnNWVnUwbHgzX0pYWWRXQ1c2S3prenp3R2I3blhRTDdsSUFYdklaakpjQ3F6bDRXcS1pZW9ZbzZUYlBGenJ1ZE1CS2I4UVBsaWFiTFFWTVFSZHMzLWZXQ1hpU2FhdXF5T3ZLZU1uS1FKMmR5eV9nLWZHamtWekx4dw?oc=5) |
-| Tennessee executes man after legal battle over heart device - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxON1g3MHdsOXFmNGhHT3VTeEZacFVtUFdqVTNmTDJyWmVvMXZFa3k3d1pENVUwY0t6ZnQ1Q0NpMFFsLXV1eGdLa3JIRHN1SmpVelNyTlQxb2p0NlBCblc0TDZGQTZ3TDZJT2UtMnQtVjJtVVJqeE5qV3FSbkZlWnhTMDlQMzJsUVlEbHdDMXRfenNMaEVhWTI1NXZfOA?oc=5) |
-| Georgia GOP worries Senate race will turn into Trump vs. Kemp proxy war - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPZTNYay1Lek9xbkV4RDRMUzcwNHM5SzU3VWNMYTNlM2VtT2M3YVV4bXh6MDJ0bkJDSW83Rk1rWW50WUpkb1V4eHB1Z0ZMcGlYTXhJMHlOOWFSZ2VacS03X19WM0JWSE5FaUZna09KTVlfNVNnZ0w4Tm1GbW8yN3YxTlhIZ1k4OHVuVGVNTjFqdmVZRFFuMm5aX3V3?oc=5) |
+| Trump threatens federal takeover of D.C. after attack on DOGE worker - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxONG9VY2tuUlFlSGpoNEt3Z1hIQ01aR1ZodjRIc0VZeURWLWFMLWNqcE1faUdDMEdBR2pBODcyTWYyT2VQTW50N0VWRXlTX2Z1MVFicTNXeTMzUnNmQ0xNUFFGYzkwNGUzak10TVotN0dtYU5KUVlGNUdEd1ZxS2tOOWEtOUhKbldYQnVTSXpjN0c4bHM?oc=5) |
+| Tennessee Inmate Executed Despite Ethical Health Concerns - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOZUpud2NpaV90N1MzM0c5NmY5RkUxOTBva2puUXVEZkZ5ZmpZWDNIUURsSDZRLTZ2OFBpb052b3dFU3A2aW1pay1hWFlnS1J1ZVBtM0pvUUVfRGc4Y0FDeWFCNXhQUU1KS2w3OHlOSUlWMWViNHBvN2FteUxLcE1QYkJwaHA5NU4zWHBLOWJR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
