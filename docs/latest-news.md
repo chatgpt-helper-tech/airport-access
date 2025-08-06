@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月06日 14:53:57（北京时间）**
+🕒 更新时间：**2025年08月06日 15:00:52（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Texas Gov. Abbott sues to remove alleged "ringleader" of Democratic walkout from office amid redistricting showdown - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQcVBnUHdMekhlX2RrZmJXLUJWT1UwMXlSUVBWMnljZk9yS3l2UW45NVlEM0VwNGR5TFNyUlBaajh6M01CazZkTGJoNURmZG1zbldGZWlyZHIyQ2lORW9RM285RkptZmJITzFZX3ZLUzJ4ci04QlhuRDlZbS1vMUpxUnN0MnlPUDl4dDYtczBCWjNtdVNPLVktUnNwOHVRWTY4bTFvdFFGODRpMW9BdF9JbjU4dGY5UTIxM2NlNThzVHR3dw?oc=5) |
+| Gov. Greg Abbott asks Texas Supreme Court to remove House Democratic Chair Gene Wu - Dallas News | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxQZDlJWUNyV0tkbEwzWnllODJnV2lkLTdnVGQ5b0RqcVNnVVZWcmJBNTFyQTRPeFZJbXpNRVVCYUJuWVhuVGp0YmNwVTVNUTJiazdYSExSUHJLTU9DUkx1UjhWSzRnWW9pVHg3T2FUMmlJbWNyZk9BUjhEQ2tVeGgySUk5RExJTFVISEdHbHdlUU9KODRXZFNNbFhtdkdCNzlkT2thTVlsOEVoQkMwaUZ0Nk0wRDIzSmV0WHItUU1lNy02S3N3Z0sySU50VzN5a0k?oc=5) |
 | Bill and Hillary Clinton subpoenaed in congressional Epstein probe - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5zdFlvakFXY1JWd2sxbDZ1M2VESXVrRkppNXpiNUJVYmtvRkhVQzZWNjlHN0dITXdsdnZ6NW9ZYmpFMzFFRnpQcE5fX2VBQ19zM28yT3llY0MwQdIBX0FVX3lxTE93eTc3VzZ6Slp5N0IySlNrSDByMW9oLXpjaEI3Nm1IbEtVTkhPcEE4OXVBSjJRTGo1R1hRcU0td1BRSG95N0MyWl90UkdPYjQwd2ZuaDRXRm9hS0FjZXdN?oc=5) |
-| Kennedy Cancels Nearly $500 Million in mRNA Vaccine Contracts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1faS0xcmM1S0lYN2hvUmVOZ2pxaHg4MEt2bW92TFZIdGpCR0ZDR0pjQXRYVUJuZGk3WlM3UkdtOThDZE1wNGhuMTQ4dktoZldoUlB3ZllJeTVNajJVWlRVVmZGSG9jUnNlWHlOaWcydjhNTldyb25VOA?oc=5) |
+| RFK Jr. pulls $500 million in funding for vaccine development - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPaWZJU1FPT3U3RWhsV1ZGa2tTbUxwNDhsTkFHdW1TazJYb3lmZmZqMXpmdE1zTlhIN2dtT3o3ajd3QWt3c0tNQVphRXloUVRHcF9yS01JazdqXzZyb1FnNTFlbzgyVFA4WERCNHdDLTJJanlCbi1aZG1RZXNZOHlXdFR5b21qdEQ3cUdHVlRKZ0JBUGNvVWdPTjc2SzU?oc=5) |
 | Ghislaine Maxwell told DOJ Trump never did anything concerning around her: Sources - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOV2JVNFJlUThiQXljN1ZfMGI1TnVqcmc0MHVUUjRhcVp2eFFxSm1Kci1PdjNrbXFmNTFkNFJXYjNBbklueGd6RVd1akM4R0xEaXFROGJ3X2tpVXRVVkJEYU9hd2cxV0NQdFB6SWVHYURsMlYwZzZoZVFGZDFRb3FtZ1JHN05UT3pxdUhFeU1yQkpWX2JFd0dfcGQ2clZwRV9kcW8tSGFWMmQ5X1NKVnRXV3M1Rldfb3RKWkFPOTBB0gHDAUFVX3lxTE10d1M4ekpTT1ktZERfS2Y1SXkxcDJQZ0l3RVRDNGJ1U1lUTnFFMENFNHIzdzFseFlTbllTQ3lNa2t2NEYxdWhoS0Y0S1VKTmtCSVpGUDRSbUQ3UU9TblItX3lEV0xIamJNRktUNXJHODJjUmlXNFE2eGVhNVZZWkhVckFfOGFIekNLcno0U1BpcjBKc1UySVdNa1hhcjBfWjZia3IzM3ZhNHJiSTQ5emJrYW1iT3NoTGx6YnhQdGRXZ1IzTQ?oc=5) |
 | What to know as Israel considers reoccupying Gaza in what would be a major escalation of the war - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOS0Vlay1XU0czOWFtUUpJVWYyN3pSbmFKbEVwLWZTMHdoU3EtNmVaVE5qWG5ORjY0Uks1SkIxZFR3QkFIcnd3b2VtMjhkNzIxcnZXUDVKVkVhczJZVlhCck1zOTByZ1VKenhYa1lMa1c3eHlvSVpoVUcwMk1mRDhkM3hJd1pJMHNNVjMzTElOeXozdzBiMmR6LVdMOEpyRnhJSGEyNklQNnFjaTl2djJFUlZFY1A3Zw?oc=5) |
 | Coast Guard says Titan submersible deaths were preventable and faults company's CEO - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOQUkxbFpqRk12VjhQbm9BY185UjhxYkRoTldXdXpNMkZzcGR1SHlEdEREUi1zZGdGdlpwVUlyMTY2ZGV4Z2pMcDVFU3lkS0pLSFFiVnJCNjNYRFR4R1g4OUFHeXJwQ1Yya2tCa1AxT2tMbVd6X1RQTnZIT1U0X3Vxb0pYZHdJeC1HTlMySlR2VTJKTDgyOWhxby1jM0M1RFk?oc=5) |
