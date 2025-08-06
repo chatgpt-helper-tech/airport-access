@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月06日 07:54:00（北京时间）**
+🕒 更新时间：**2025年08月06日 08:01:01（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | Violent Channel smuggling gang's French and UK network exposed by undercover BBC investigation | [阅读全文](https://www.bbc.com/news/articles/cly48nmmzdro?at_medium=RSS&at_campaign=rss) |
 | Watch: Secret filming shows Channel gang associates take payment at UK station | [阅读全文](https://www.bbc.com/news/videos/cwy57p22nl3o?at_medium=RSS&at_campaign=rss) |
 | The real reason weather forecasters (like me) often appear to get it wrong | [阅读全文](https://www.bbc.com/news/articles/cwy1epz58pyo?at_medium=RSS&at_campaign=rss) |
+| Call for help with school uniform costs in England | [阅读全文](https://www.bbc.com/news/articles/c5ye47gj4q4o?at_medium=RSS&at_campaign=rss) |
 | Zara ads banned for 'unhealthily thin' models | [阅读全文](https://www.bbc.com/news/articles/cp941z3nnnxo?at_medium=RSS&at_campaign=rss) |
 | Titan implosion that killed all five on board was 'preventable', says report | [阅读全文](https://www.bbc.com/news/articles/cwy57pnjw4wo?at_medium=RSS&at_campaign=rss) |
 | Clintons subpoenaed to testify in congressional Epstein investigation | [阅读全文](https://www.bbc.com/news/articles/c79l38vl3lwo?at_medium=RSS&at_campaign=rss) |
 | Family in tribute to Oasis fan who died at Wembley | [阅读全文](https://www.bbc.com/news/articles/ce87gykd4z8o?at_medium=RSS&at_campaign=rss) |
 | Great Barrier Reef suffers worst coral decline on record | [阅读全文](https://www.bbc.com/news/articles/cvg3pp52m65o?at_medium=RSS&at_campaign=rss) |
 | Bridgerton actress tells BBC she's agoraphobic after phone theft that went viral | [阅读全文](https://www.bbc.com/news/articles/cg4xkp30y6ro?at_medium=RSS&at_campaign=rss) |
-| Police deny Reform council leader's claims of rape case 'cover-up' | [阅读全文](https://www.bbc.com/news/articles/czer11p6d5go?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,7 +30,7 @@
 | Trump administration debating releasing transcript of Ghislaine Maxwell interview with DOJ, sources say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNc1djTjRwVGtyV05hemhXWDZUNzhsYXBRY00wVmlvV0pjLXZfSVFFQ19ockhhVGIwcEY5a3BpdVlCZmF2ak9zZEdEazFhS2J3dDFLM2lyZ2EtVFBKOG1IVl9KSjFGNF9URjdwa2R6aFJUSkRSQzdOdlhYY25EMl9VNEkxbWRmYkcyZE9fa2I3MWxqaHc40gGaAUFVX3lxTFBvWXhFR2RqWldJa3VCZGhkUmxFM3Y2VE9Xc2NqaDUxUHh5emlUMy1VUXpJZTdQS3V6SFg5VnN1ZWI4Q0VmMUlleHpFS01WS2VaREJSb1U1VFh5dmhRMmVzZzQ2MGpTRUt3V0tXWjgyWTV6UUlxTkVyZnZUbm03Vk4yWnVweDZnWkFCZ0VDRGVtdmJlbGRLUWhkd3c?oc=5) |
 | 'Vote him out!': Town hall erupts in anger at Nebraska GOP congressman over Trump megabill, policies - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQMWphbHVocTZmWGdGYzI0ZUVvT1ZJMHJNZC1GZlFOdXhhNW9rX0FWckZqVTBielZWMnpTWHRJWFhTcEZWX2hnbExWYWhJNlJWWVFwZnVidlZKNnlwRVJ1akJ3aUc0OC1yUXRibFdBUWZ5ZS1tQWpjN1BVSWNCN1VQc25ELUpKTjA2M2RTaXBoc01VN1V6Z3AtbTNuLV9zekoxWkxlQU1n0gGrAUFVX3lxTFBaX2dpbGI0bFJjZjBHcjlLSXdXZnZERGF4anFGZlBXNzhlTkNrT2E2Yk9pYk8yeEpxUVRmY0dxcXFVbElESXROV1BsS29EcTJTWFo4Y1dUT1lubm1QY19TM1hYcjZEUWZwY2xhM3J0TjFNclcxUHV3Qm1lYXV6Wm5kbnAyaVZGNnFaZ3dpX2lHZ3JiOTFLR3dOSmRwVk9qcklPbXBJVkxTc1N3MA?oc=5) |
 | Justice Department releases new list of so-called sanctuary jurisdictions - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxObHM4NW43Q1R5VjM1dDRUNlVMSGw2YzNsQXhJNlRKM0xJa0RreUNpeHI3VnNWVnUwbHgzX0pYWWRXQ1c2S3prenp3R2I3blhRTDdsSUFYdklaakpjQ3F6bDRXcS1pZW9ZbzZUYlBGenJ1ZE1CS2I4UVBsaWFiTFFWTVFSZHMzLWZXQ1hpU2FhdXF5T3ZLZU1uS1FKMmR5eV9nLWZHamtWekx4dw?oc=5) |
-| Tennessee executes Byron Black despite concerns about his defibrillator - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOVkFUUGlBZkdJMzVLcmV3d1VvNWtFWGN0SEFTdWoxbC1QVDFvYkNKQzRPRHJocjhndDlhaVVVN01qSDJIS3lldDFjSGkzRmVJQURrQ1dlMHcyeW9fVnZNUThJRXV1Q3g2TkFDV0VMalZlb1RRSjJFVTBnckFzQll3dkRrc2NHY1Q5N3M1cU5jM09OMlBXdVNDckVsajR4d0hlcFhPS2FwRGlkdjZ4eHRUZNIBtgFBVV95cUxOZVpnLWhqNWM5ZGNKWDlJZUUtd0FlbUZHbFpBQl90ekRuc19HcFZ5LVNCUThsdk9UNWdvWFAyMWxPWklWWE9pTW0wbGttZGdnVlp4aGRqMmVPMzM0a0hhRWVydTUwbzhEdndTTWVOUF85enNObnhEdW1TcVRtOFpOeUNfWnFFajE2clMyZ0R2aHVic0ZfUWRsWHc2ZW9WWlpXQUNmaDhob2xnNkNhUUFIckpRZVlIUQ?oc=5) |
+| Tennessee executes man with implanted heart device despite concerns over shock risk - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOYmhrYjlfX0N6cXgtc0NReXN2YkVyMWkxU1JvbW4yU3VaZmV2ZGpISzBaUU96UXdGNzhZYWJhQkZybTkzZE5lVWtoZlR0ZHJHREZtV1RraXFpeWZwMWVyTGV0WTFzeGhJc2ZMZzZkRC1zeGdnR1p1SXJJV0JmWk9xdlRpaDF3Sldzbmw40gGQAUFVX3lxTE43TkszMWhxUWkyMEtSbkttekxaUGJqMVBaMEVNbUpyX3p3MjNLUW9abThZQWJaMFFaUjloMnhyYzVLSk5rVFNHRl85SWRtdkhEWXJkY1hMRmt3Qkt0YXRhVGZSS2hqY3hkcFY5QzQ4R3VZcXJnZFJzUExhTnJJNlg5dUFHVzRYVV93UEVkYTNkTg?oc=5) |
 | Georgia GOP worries Senate race will turn into Trump vs. Kemp proxy war - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPZTNYay1Lek9xbkV4RDRMUzcwNHM5SzU3VWNMYTNlM2VtT2M3YVV4bXh6MDJ0bkJDSW83Rk1rWW50WUpkb1V4eHB1Z0ZMcGlYTXhJMHlOOWFSZ2VacS03X19WM0JWSE5FaUZna09KTVlfNVNnZ0w4Tm1GbW8yN3YxTlhIZ1k4OHVuVGVNTjFqdmVZRFFuMm5aX3V3?oc=5) |
 | Whitmer is trying to leverage her relationship with Trump again — this time on tariffs and Medicaid - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOY0otWlRXcENRVTBFcXFpZmFTeTBtRXFEOXZEV0w2cF9mbjh4UEUxeDlZY0xrSHFVQkhWdHJUMmZGc0VZd1pyLWozTTZBbzJRLWJNb3gwWXZCUEdSNEJac1ZjR19sZDloUE5qR0tiVXFDWHEyMHlUQm9qWFlKSExpSDBvMNIBiAFBVV95cUxNSTVUZHpQbGpfZGFpdXFuaVpsTXlHeEs5cGk4Y0phZkp4UmdaaGpJaG12dFJ6cDdiOEl3QkVmT3NtNnRjYVZMVUVKckI0MmFQRUxkVi1RZ0hHQ3pMbzY3VFhNbWxaNldzZzJpT1k5dkRmUk4xaWVSaksxTmNsakxzcHJQblpGLUhU?oc=5) |
 
