@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月07日 06:27:17（北京时间）**
+🕒 更新时间：**2025年08月07日 06:39:02（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Bomb threat prompts evacuation at Chicago hotel where some Texas Democrats are staying - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPUTZnODdIWmM3X1MyNk14aEVvRjAyd3NNcnl4VDJKQ2JHa1Mxckk4X2dPWlA5a1E2SlhZenFlYnNjWmNzTm9WRXBIcXlXdWVoQUtKb0U0OVJFN3JnLVl4THBoYXhvVy1rdHRwV0JOMWtLdy1sMi01R3hpbHFaYzVwd255TFZ6NHVtRG1pNjh5QWdlYWc4YlUzSFgyUnZkMXNsQU4zeVFR?oc=5) |
 | Can Trump federalize D.C.? Here's what to know - Axios | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE9zQ1ZmVW9jSE11LUxYSDdwMjRDQ2ZNWHNONjVmc1dSdkhST21Xejc4WjlFWlpSOGFwVno1ejBFeVlpZmRpWWY3MXozcjJURGtPMHliLXQyWHZNYXR2dXFhV294NUJwU3JNamRDYjBsaVBEQzA?oc=5) |
 | Capital Jewish Museum shooting suspect indicted on murder and hate crime charges and could face death penalty - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQQms5SGJFY3ZoSUlMaGJUd3k0TW5CU05OanRFR2JzZ1oyTHd4UFcwNWFiZkJhMlA4eEJFdENQZkVTODJxa0JDQWctdmZpYllkQUxVem1TR2diUUk1MmpiSG1XZ0Q4Uy1NYm9KSEFhN185b0ZDMGI1U1p4d3NUZmU0bkxwYVrSAYoBQVVfeXFMT2h6TmZrcTZOMTd0SzI1VGR4OGdCOEFwdXRUdmxGTlRfNnY1R0hYcjljZ2E5M1JLRHA1RkgyTzRnTlktNmpRa0VWSEJudkNpTmhxU1didlhVbDNlY2tybHE3UnExUWM1bUZLVUJJYTRtRkppdmU3TXpRU2FBZTloMl82ZEExQU5mblBn?oc=5) |
-| UCLA says Trump administration has suspended $584 million in grants - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxObTZ4ZlVMcTJ2Z2FyVUVBbkVyZGpVTlNCbE13RFI3V3NfNW5uVjVnR0diWkJaRldzbjRVUDhGbjg2V2V6Ykx5b0NqbEFmX2FmY2dGZnVKN294ZGJHcEx0UzUtVHFEemhfc3FFUUtVTzE5ZVF0TVp6el9fQk9JdDRrTjR1bHBrbXdYVFVxMzdKSjhzQ2tFd3BPZ1dnS1FjWG1qckd5aE10RnF0UzjSAVZBVV95cUxNWllXblh3Rm5LUDU0UGZoOXVFYUxOby1CRGZSblNFcFMwSWdNSGRjSEh5OVFuVWZ6YjY2emt5Z0JlZE9udzJxSFlBTU1mM3pqeWt3bXp3dw?oc=5) |
 | Republican US Sen. Marsha Blackburn joins Tennessee race for governor - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNc3Z0NDhKVFhEV09sakJ6V2cwaFN3RVJoNEpBQ1g1d2NOV2t3WjNEZnJmMkVEZmdOeUxMOUsxNl84YzRDX2pyeXVoXzFTYk8zcDVMSGcxS2dsUnRaLVJHVjZxSWFObWhLV0gxWG1QRUFPRlQtZjBTVi1ITWdWbWxtejVFTVdTYmstb2ZmcTN5QThvbXdNRUJ5bl9lSQ?oc=5) |
 | Trump Spending Bill Means Big Cuts for New Mexico - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE45RllXWlAxTUNiTFc3UWFXM24yVENqcldTMFozXzlYUWpERENSOWZUVG9UODBndkxiOVJGRFBmSXdid1pCeW5PTl9xU25Ramkxc2U4VGFKSHY3VTJtR1Z1RTI5bmppY0liRkNReEk3bmtfdlRER1phSXpScFFYZw?oc=5) |
+| ‘If this fails, he'll have egg on his face’: Gavin Newsom bets political future on redistricting power play - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNdUdBV0xhQUlLeEdHdFhrczY4Q1VVc25uV3BwN01CZXUteHRncW9CWUlXYnFPWlBDOHA5elVHZk1RWHBSd0ZrZTRKcjJOSW1ZTVpEeHZjZlB3NEpjbVhSMkFFb3BhdFlfZXp1VlN0WWVqanA3aTVldnIyNFR0TmhYcTNwT3pFNThjSnV5VGRtRQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
