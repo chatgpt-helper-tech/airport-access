@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月06日 17:40:55（北京时间）**
+🕒 更新时间：**2025年08月06日 17:53:07（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Ghislaine Maxwell told DOJ Trump never did anything concerning around her: Sources - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOV2JVNFJlUThiQXljN1ZfMGI1TnVqcmc0MHVUUjRhcVp2eFFxSm1Kci1PdjNrbXFmNTFkNFJXYjNBbklueGd6RVd1akM4R0xEaXFROGJ3X2tpVXRVVkJEYU9hd2cxV0NQdFB6SWVHYURsMlYwZzZoZVFGZDFRb3FtZ1JHN05UT3pxdUhFeU1yQkpWX2JFd0dfcGQ2clZwRV9kcW8tSGFWMmQ5X1NKVnRXV3M1Rldfb3RKWkFPOTBB0gHDAUFVX3lxTE10d1M4ekpTT1ktZERfS2Y1SXkxcDJQZ0l3RVRDNGJ1U1lUTnFFMENFNHIzdzFseFlTbllTQ3lNa2t2NEYxdWhoS0Y0S1VKTmtCSVpGUDRSbUQ3UU9TblItX3lEV0xIamJNRktUNXJHODJjUmlXNFE2eGVhNVZZWkhVckFfOGFIekNLcno0U1BpcjBKc1UySVdNa1hhcjBfWjZia3IzM3ZhNHJiSTQ5emJrYW1iT3NoTGx6YnhQdGRXZ1IzTQ?oc=5) |
 | Missed signals, lost deal: How India-US trade talks collapsed - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOak1xeXVEcE9lNC1Zbzl5MUloaUtvUXJ2QWxoLWVETEJuWVVVb1plLXJkMzBSVkdEUHo5S1pWc0pGMGVhR0lRM1o2alZ5WGt6R2Q3UllNdFVyTW1zZzE3MHVRTW1ESFpnQmRQQkxqcTZsSk5yWTVJa2xMSnk5N3l4d1ZPYzZmc2x4Wkh2QWJ4UjNHUE56QWk2Wmc0Zk1xUkNqSWMwSHg5V1dWZlk?oc=5) |
 | Rep. Mike Flood met with anger at Nebraska town hall - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQMHNOZl9wVEs2SllMaGJTZkFlbTA1OHlTbFowanh5UHZYLUlER2Y4WlBWQVU4RGRsNmhxeDJyZ2dSbXI2WldzZ1J3eXlxNUxpdHhxc29CZzlacmRUQlpPZWhhUzBmQ2RWWmhaTmowZ3FHSFJtWWdoRUJpWG1wcmlRWmk0Ny03dTVVdUhWMHhBYw?oc=5) |
-| Trump and Johnson face escalating GOP revolt on redistricting - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQM1BuY05obUd3SWdIektPMkh0RUp0Z2NaRlVYNzBZYW56RF82UWktbWFITlM2MURLWnVVSTZGdFBhUGtzcnBVYUN3cXNndnc4SnFqV0NMdVRMbnl5OHQwUnpHT0NCN3IzT1hDNVFwR0MxdWRHai1SWFNadlpadThMN1pOVHRxQ09heWc?oc=5) |
 | California Democrats Look to Redraw House Map to Counter Texas G.O.P. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNTS1obl9KWVBTanlEck1LOVhJZTcxaUx5cjd0MEtOQlNXZ1IwX18tZ0hkTHl0UHhNaHliWnFodk1HWW9FSS1BRkhlMi04YnRWY3FwV2F3UjhBdE1CcGFOS01xSzdLSnJsbW5QMjhKdFpId2EtLVJwdG05eXczdENFOUQ3OV9meG5Oc1k3dUFKSXo?oc=5) |
 | 4 dead after medical transport plane crashes while landing in Arizona: Authorities - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNdkZJTmZSVHV0UDJRU0tic2l3eHdjaGN6RF9WaVowb2VmUkFTLU14dExLb1ZsN0V3cV9GMlhHS1E2djFmQWJEeFo5ZW10cW1sWGlmNkduVENNZkpMcmZwYzJ4bU1OeEdTVjU5RGZCd19rS3Z6SWdzVGswaE1vbDVoU3M4c1FBNmJLdFNkOWc1TVUxcVnSAZgBQVVfeXFMUEFWZkxvVUlRN0ROVjI4SkhfUnpLVVdwMWptWWx3dVhYTFVxWHNhUGNET0xnZFFMRk5KcGVST3JUSm9BUUpjakR3Y3RzdHVlcWNsTl9kWHIyb3Ntd2VCbHAzbS11b2FNclBNOW1wcU1HV1lWX3JkNVFVbW9fb216T3BoeWFvNkF4QWVvd2FEVDhoSDd0X0ZDMnI?oc=5) |
+| NYC gunman who blamed NFL for hiding brain injury dangers suffered from sports concussion, mom said - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOdDBKU2gtN1JOb0t6NV84NjJXR3JQVkFndVV5Z1N4Z1cyUUgtQU5xbVZjaFpjbW1MdVRIX2VDcjl3RVJCLUhjOS1VMWpHems0STVmU0EyV0xJTktaeXZTcW9ib0JYT1JVWFAwSjZQNktONGstcl9WSTltSHdXSUZOZXZaVmJtWnFkbVJnTjJTNEFNaVJGS3VFN0dPYw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
