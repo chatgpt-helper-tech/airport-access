@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月06日 16:26:23（北京时间）**
+🕒 更新时间：**2025年08月06日 16:39:15（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Despite Trump's peace calls, Russian attacks on Ukraine double since inauguration | [阅读全文](https://www.bbc.com/news/articles/c5yl6eegv63o?at_medium=RSS&at_campaign=rss) |
 | MasterChef returns with sacked hosts Wallace and Torode | [阅读全文](https://www.bbc.com/news/articles/cn92vw9gl74o?at_medium=RSS&at_campaign=rss) |
 | RFK Jr cancels $500m in funding for mRNA vaccines that counter viruses like Covid | [阅读全文](https://www.bbc.com/news/articles/c74dzdddvmjo?at_medium=RSS&at_campaign=rss) |
-| Families in England struggling with school uniform costs need grants, government told | [阅读全文](https://www.bbc.com/news/articles/c5ye47gj4q4o?at_medium=RSS&at_campaign=rss) |
+| Struggling families need grants for 'unaffordable' school uniforms, government told | [阅读全文](https://www.bbc.com/news/articles/c5ye47gj4q4o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,7 +31,7 @@
 | Witkoff lands in Russia as Trump’s sanctions threat looms - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPLXo1N3Y4WTBaUXlXcGpDSTJRbG5jS3hEdjIwdEY2ZnFCbkIxd1p3RDd2amdTbi0wYklvN0RlVDExRmF1RGR0Mmh0b2Rsd05wMG5XdlBMNDNvS19SYnlNc3JkYV9LTnhMWkFKSUJtT1lmRXN6VS1Gay1SQUc2ZThOLWExc9IBiAFBVV95cUxNX1pWWVA1RlNfN01ITUN2YlRwRWd3c2JicmUyaDhVTTRhcDl0el9qWUZ2eTdWell6Nml0elBwemFGS0Vzc0ZfcUdvQktvQXlUWElKTTRjZk1FR1kzVmQ5RkZYWGZ4c05reDFQeExYOVFhdVdMNFBfS2llTGt4THNiUEZhcTUzV2t4?oc=5) |
 | Trump and Johnson face escalating GOP revolt on redistricting - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQM1BuY05obUd3SWdIektPMkh0RUp0Z2NaRlVYNzBZYW56RF82UWktbWFITlM2MURLWnVVSTZGdFBhUGtzcnBVYUN3cXNndnc4SnFqV0NMdVRMbnl5OHQwUnpHT0NCN3IzT1hDNVFwR0MxdWRHai1SWFNadlpadThMN1pOVHRxQ09heWc?oc=5) |
 | Rep. Mike Flood met with anger at Nebraska town hall - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQMHNOZl9wVEs2SllMaGJTZkFlbTA1OHlTbFowanh5UHZYLUlER2Y4WlBWQVU4RGRsNmhxeDJyZ2dSbXI2WldzZ1J3eXlxNUxpdHhxc29CZzlacmRUQlpPZWhhUzBmQ2RWWmhaTmowZ3FHSFJtWWdoRUJpWG1wcmlRWmk0Ny03dTVVdUhWMHhBYw?oc=5) |
-| India Braces for Pain as Trump Gives 24-Hour Warning on Tariffs - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOVkV6dG1XS01RR0dDN3BBODBQUExhX1NRTVZCX3JTWVJwMDJWcUhUVW5pYTFWQkwtV2NqU0x5TjhPVkdMZkt5ejVRM2doN05uMmpTMHo1dWo3ZFlVelNUQTlWRlVjaVozV1pPbEdNR3VVMWZ0eXJFNGxEdU5VSVRRSEFrN3lucEx5WU5nVm5rWndmeU5vVV9tUXV0S1Z3YlBMVGkwWHFDbk1QU1VpUnpSTWVZYw?oc=5) |
+| Trump threatens federal control of D.C. following attack on administration staffer known as 'Big Balls' - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxQRFBwU09SUXAyZFBrcW1xR3NQNHcxVW51TFh3dlczQldmMnNkb0hzMnBhcFk2UGFqbHNMQ1h1VnMyQmxUS2lHbEdjYVdLRmpSd200bnM2RmNUTzBLQldtSWptU2VxSi15Y2R4c0tmTzVWZ0dpb05FaVBxSHJNdVBZVmJqSHVqU3BiSmRJNzA4V1Nyd3hYMDhkWGJ5Ul9jeGJZNjNzRUp6T0doeG85RXg0ZmJ0Z01DZjh1Q0Z5N3Vtc3ZHMHF2NDcwaNIBVkFVX3lxTE1oelRrUWdRTlN0OVVPOEM0Q3hhajRyRnFUdklWYUNOMWNwMl9xbEx0UzVXdTNwdUpPNjc1LW44NzFJMDVsYmlMeVlfbFBIamZ0VWtaRnZn?oc=5) |
 | GOP Rep. Mills accused of threatening to release nude videos of ex-girlfriend - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQWFdlSkIzaWZwVmpmVDduUmwyZmpGR3JBTzRfajBrTkdOSkJtZmZXUEV0ZjJIaXpYYWktUC1jVkQ1dmxBak42d0RrSUtJbFBWeEo1OGZvQ3FfWnBCUlZiY0xYV3QzRVdWUFAyTjgwUnpHT0V0TWpGM3E1LUlhNzBaZzN2cmpjNVhjNmJ5aFliSVA5Wm5kdl9BOEtNT2dMSFVzYXFFZmo2dmdKN0xiRUZHNC0zS0t4cDFXQUw1VERRRGViRUFM?oc=5) |
 
 ---
