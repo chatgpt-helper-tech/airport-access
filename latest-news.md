@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月06日 12:52:34（北京时间）**
+🕒 更新时间：**2025年08月06日 13:01:28（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Zara ads banned for 'unhealthily thin' models | [阅读全文](https://www.bbc.com/news/articles/cp941z3nnnxo?at_medium=RSS&at_campaign=rss) |
 | Families in England struggling with school uniforms need grants, government told | [阅读全文](https://www.bbc.com/news/articles/c5ye47gj4q4o?at_medium=RSS&at_campaign=rss) |
 | Taxes must rise to meet target, says thinktank | [阅读全文](https://www.bbc.com/news/articles/cn85vyd1epzo?at_medium=RSS&at_campaign=rss) |
-| Hiroshima marks 80 years since atomic bombing | [阅读全文](https://www.bbc.com/news/articles/cm2v58qrjq0o?at_medium=RSS&at_campaign=rss) |
+| More than 100 missing after flash floods in India | [阅读全文](https://www.bbc.com/news/articles/cj3lxzpkn87o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
