@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月06日 18:40:56（北京时间）**
+🕒 更新时间：**2025年08月06日 18:53:49（北京时间）**
 
 ---
 
@@ -9,10 +9,10 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Reeves warned taxes must rise to cover £41bn spending gap | [阅读全文](https://www.bbc.com/news/articles/cn85vyd1epzo?at_medium=RSS&at_campaign=rss) |
-| Carol Kirkwood: Why weather forecasters (like me) often appear to get it wrong | [阅读全文](https://www.bbc.com/news/articles/cwy1epz58pyo?at_medium=RSS&at_campaign=rss) |
 | Trump's envoy Witkoff meets Putin as Ukraine ceasefire deadline looms | [阅读全文](https://www.bbc.com/news/articles/cr5rdl1y8ndo?at_medium=RSS&at_campaign=rss) |
 | 'All sides' to blame in Prince Harry charity row, watchdog finds | [阅读全文](https://www.bbc.com/news/articles/c741n548dkko?at_medium=RSS&at_campaign=rss) |
 | Zara ads banned for 'unhealthily thin' models | [阅读全文](https://www.bbc.com/news/articles/cp941z3nnnxo?at_medium=RSS&at_campaign=rss) |
+| Carol Kirkwood: Why weather forecasters (like me) often appear to get it wrong | [阅读全文](https://www.bbc.com/news/articles/cwy1epz58pyo?at_medium=RSS&at_campaign=rss) |
 | MasterChef returns with sacked hosts Wallace and Torode | [阅读全文](https://www.bbc.com/news/articles/cn92vw9gl74o?at_medium=RSS&at_campaign=rss) |
 | Gorillas seek out old female friends even after years apart | [阅读全文](https://www.bbc.com/news/articles/c80d7l94yvro?at_medium=RSS&at_campaign=rss) |
 | Hiroshima's warning to the world as it marks 80 years since atomic bomb | [阅读全文](https://www.bbc.com/news/articles/cm2v58qrjq0o?at_medium=RSS&at_campaign=rss) |
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Gov. Greg Abbott asks Texas Supreme Court to remove House Democratic Chair Gene Wu - Dallas News | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxQZDlJWUNyV0tkbEwzWnllODJnV2lkLTdnVGQ5b0RqcVNnVVZWcmJBNTFyQTRPeFZJbXpNRVVCYUJuWVhuVGp0YmNwVTVNUTJiazdYSExSUHJLTU9DUkx1UjhWSzRnWW9pVHg3T2FUMmlJbWNyZk9BUjhEQ2tVeGgySUk5RExJTFVISEdHbHdlUU9KODRXZFNNbFhtdkdCNzlkT2thTVlsOEVoQkMwaUZ0Nk0wRDIzSmV0WHItUU1lNy02S3N3Z0sySU50VzN5a0k?oc=5) |
+| Texas Democrats could be fined nearly $400,000 for fleeing the state - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNQUpPdVRCVUR4bDlwY3ctdWhONzRnUFlsd0xSVlhJZEVjalJGNERXam85VjlxZzFYaU93eE1kbDFUM0diZkYxQUpFUlIxN1p0dWprNnctZGdWSE1yZWo0Nm91TTlob045QmlFZVV5eEQzRm9SMk5nRzNxenZ6cDhrTnRmWTNCUQ?oc=5) |
 | RFK Jr. Cancels $500 Million In Federal Funding For mRNA Vaccine Research - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQR00yYzNkR2NRNWZUc0t5ZkFWcnZqbzlPOWpJbGVON3lkMVhSXzJBdjktekMyOXpmZW9USERrcXJwaDF1VkVYZDVzZUhOZDRnUVQ1eUQ2R3lPODhlMW55Q000a0djTGJhSFJGTHZlUF84V0E1eURob2h2Ym8zV1NPbE1nTHJPd3pXQTdSeWdVY3pCSHdNTGdmMU9GekdXNUQ5REs3dklfSVlDWmRzeWdiU0QxVFZOb2N4LVFBRFJKMlA4b0E?oc=5) |
 | Bill and Hillary Clinton subpoenaed in congressional Epstein probe - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5zdFlvakFXY1JWd2sxbDZ1M2VESXVrRkppNXpiNUJVYmtvRkhVQzZWNjlHN0dITXdsdnZ6NW9ZYmpFMzFFRnpQcE5fX2VBQ19zM28yT3llY0MwQdIBX0FVX3lxTE93eTc3VzZ6Slp5N0IySlNrSDByMW9oLXpjaEI3Nm1IbEtVTkhPcEE4OXVBSjJRTGo1R1hRcU0td1BRSG95N0MyWl90UkdPYjQwd2ZuaDRXRm9hS0FjZXdN?oc=5) |
 | Trump threatens federal takeover of D.C. after attack on DOGE worker - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxONG9VY2tuUlFlSGpoNEt3Z1hIQ01aR1ZodjRIc0VZeURWLWFMLWNqcE1faUdDMEdBR2pBODcyTWYyT2VQTW50N0VWRXlTX2Z1MVFicTNXeTMzUnNmQ0xNUFFGYzkwNGUzak10TVotN0dtYU5KUVlGNUdEd1ZxS2tOOWEtOUhKbldYQnVTSXpjN0c4bHM?oc=5) |
