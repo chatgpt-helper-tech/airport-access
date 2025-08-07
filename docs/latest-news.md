@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月07日 09:52:55（北京时间）**
+🕒 更新时间：**2025年08月07日 10:01:52（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Trump and Putin plan meeting on Ukraine, as early as next week - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPUzJMbGk5aEpWV29jeE1mdml2UlAyeDZhWldxZkV4QnpubjliWXY5bDFwUW9rZEs5RlpxZUdTZ0VsaEtWVDhRVC1CYnVLaUJvel9PRTRxTXJCTTNzejRBb1JHUE5xNU5HMnl6S2RaZVN0cmEwN1YweXpIYVh4ZzNVNmp3?oc=5) |
 | After an ex-DOGE staffer's assault, Trump threatens to federalize D.C. Can he? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQRVRfTnllWkpjWVdyZ3EtVnpjLW5YTVV5WTNFUU42d1QzeHdrVlFYa1dUVnpPajlFeFlhazZsYkI0QkYwb1FNcFZLWThBOUt5aHhpcjlsYk5NcHNDb0hRcHFTZ2xwY2RBbG0xcmJMZWZ2NVhveXdLRDFjZ3BhUzRvakt2Q1BWQjB0TVE?oc=5) |
 | Trump to Double India’s Tariff to 50% Over Russian Oil Purchases - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPZHJjY3RWc0tFcjRnSmxkM2xDWjdhcy1YRnY0RF9FR25iNlktRXNjT2NKakh0MnM5XzVZbjdlRzhDdExUZFVzbFc2bHlmc2xRT3FSQVlzN0ExWnliM0ZEaUR3eTdvY1ltVi1VQjRZTzVYNnZmOFRjdXU4WnZSd252eUl0dndhNkp0dEE?oc=5) |
-| Donald Trump’s new tariff regime set to deepen global trade war - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE43b09rNmJCbmE0NThfTE8tckZURlQxWGc0Ui1LS1VxV1pOY2dPUmw5Y19GU3p5SkRDVTZ0RHJkaXBmYjBZSW1ZMkpEeDBMczVObURZcGxSM0xKRmEzTGNhR2ZTeGQxZDNNNjJFVzNHOVA?oc=5) |
+| Texas House Democrats evacuated from hotel in Illinois after bomb threat - Houston Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxONlQ5UFJzMHc2RnRtZ2hkYWNZNldwMENjX2dVTW5NRnNSZlZqaUhlMXp5M3IwT3hNLW1UMXVlUEFVd0xIUWg4QVdiWXRPQUxsSjNkYlhHOHVrMGhTcmIwTFo2VnJXRXprTWh1bGNxUEJNWlV5MkRpQk13OFJWZWlJUWUwbjl0QXZ6MlQ2TVZ0NTBsYXBheHp0RWhhOFNwZXRCTGxRWQ?oc=5) |
 | Republicans quietly fret about ‘disturbing’ Cory Mills allegations - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOQTBBdUQxOW53SHVPT0RrZ0ZPYnFwWkxSVGJ6bTVIR1VEZ1ZHUE13bThYZFVndkY0THFtZkhqUXpmRTk0NnJ1RXdhUnVNSkt2b241bXgzSVpkcU5MZTNtZk83R3ozbmRhcXNBVkFGWEhleFpUMndzaDlmRWVSRkNtYjZ1bGl6SklKajlkb0Nn?oc=5) |
-| Senator Marsha Blackburn Will Run for Governor of Tennessee - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOZWJkZ09wcnNnQ2dYVURBLUZ0anM3VXZZWnlDMjlwQnZjV2NYOHZnckpwRDloVG9XVEhreTZTNkE4dXNrejhiVGllSWlQeTIySmRPZy10UUx1cjQxbHlVVkdhbXNHRmdVWlYwYUJaQkhZTER4czFvcExkR2lTTklaT3hMWldTMVlqVmRQaGJHZUE?oc=5) |
 | UCLA says Trump administration has suspended $584 million in grants - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxObTZ4ZlVMcTJ2Z2FyVUVBbkVyZGpVTlNCbE13RFI3V3NfNW5uVjVnR0diWkJaRldzbjRVUDhGbjg2V2V6Ykx5b0NqbEFmX2FmY2dGZnVKN294ZGJHcEx0UzUtVHFEemhfc3FFUUtVTzE5ZVF0TVp6el9fQk9JdDRrTjR1bHBrbXdYVFVxMzdKSjhzQ2tFd3BPZ1dnS1FjWG1qckd5aE10RnF0UzjSAVZBVV95cUxNWllXblh3Rm5LUDU0UGZoOXVFYUxOby1CRGZSblNFcFMwSWdNSGRjSEh5OVFuVWZ6YjY2emt5Z0JlZE9udzJxSFlBTU1mM3pqeWt3bXp3dw?oc=5) |
 | Paxton launches investigation into Beto O’Rourke’s political group for funding Democrats who left state - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOaXU5TDhvaUlTUUlKUllZZ1UyZ3NHVi1BaHZtUFdtYzJrSjc1dnBoa3FmVm1Ja1BYWGhKdVdGd0VsRWxpRWN6cG5ERWpZVURleXZpWlE1Q05NUDJGbGdwWEUyZjQ5cUU1MmpTVTBZLUlkVTVHeWFPU2E0Q0wxY0NVNFcwMzd4RGJjZm9leXRiSnNvNER3aDdQVFJR?oc=5) |
+| Republican US Sen. Marsha Blackburn joins Tennessee race for governor - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNc3Z0NDhKVFhEV09sakJ6V2cwaFN3RVJoNEpBQ1g1d2NOV2t3WjNEZnJmMkVEZmdOeUxMOUsxNl84YzRDX2pyeXVoXzFTYk8zcDVMSGcxS2dsUnRaLVJHVjZxSWFObWhLV0gxWG1QRUFPRlQtZjBTVi1ITWdWbWxtejVFTVdTYmstb2ZmcTN5QThvbXdNRUJ5bl9lSQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
