@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月07日 20:00:37（北京时间）**
+🕒 更新时间：**2025年08月07日 20:14:04（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Border patrol agents jump out of rental truck and ambush people at LA Home Depot - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOMFlhMEduRklMcDlBanExcS1SX3BOcnlUSXBLWXpMTV9kRTRnVHVUTWJIRlNlSm52WkdUVW01eG4zVFhuRFZjQjdvYTM5dDAxZnUxUkx6UHhfbHFvOG9vZkVtOFZuQ2pKSFpFRHJ3TllueGZiYVZ5Q1JabUtjZXNEbkhtb2RQN2ppcHhXMFN5MDVfdw?oc=5) |
 | Sen. Marsha Blackburn enters race for Tennessee governor - Axios | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPSGN5S0ZnODJwWm5lQTk5Q1VYOXRXd1JUVEh5ekY2UnBuRGFZR1NIUU9wZUpjanI5bkFlUjN1dzB5Ym44RF9rdmJpWFVPY3E3N0F5clRCbzAzVk5oOG53dUhWS2FaVkJVbk5uUjF5M1dhVWlLbmNCU21Fazh2WTVkSmNtRG9zTzFuUDNOakZ5dFAzQmZ6YkNHQTdXQ005VFBQb2Jkbw?oc=5) |
 | Mexico was the only country to get a 90-day tariff reprieve from Trump. Here’s why. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPMHZqR1ZKRnpiTnVDQUVKWDE5ZG15ekRKNGtudjcxNkpkZTczWXJ5dXVhNUF6NlBXQUtudEN3bHhNSGgxXzBoYklacDgyMkpHelNwOExWaTMzRDh1VzFnTnY4WG90TDZyRFR4Z2NNNkcydU9VQVE2LW5hUzlvZ2w3WUFmbXJYTk5teFpsUElZaXdZbFpISWc?oc=5) |
-| India's $434 billion merchandise exports engine: What's at stake as Trump doubles tariffs to 50% - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQcEZBWkJweVkyMnNCX2ZwVGRBU0JtVVZuUzN6NHZPZW5iS29ENTRrNnk1RlJQWkpXUDBlTXAyTDU0T3RLbk1LcEF0OFRXanFpVEtZekloWFB0cmNjRFhGSDZNdlhCb19md080SVlLOEhCTExuWkFqZDBaclRydlFHUndQcXJ1VWdsT0QxSEw1Q2NVaG0yVVVRY0FpX2tRM0FTR29HQ1FtUVFNLUpsVFE?oc=5) |
+| India isn’t flinching: Why Trump might be misreading India’s tariff playbook - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPNjZPdFR4ZGg3Q1JUX2xPZ2o2bHNBLTN1VVpRQW5lajZZMDVOOUhrZTM2UU5vQU82SGphZWZUeGRmYmlnb1RtQk1Mdml4T19sdzdBWkxrUHhFZk5KY1pFbWtZS0ljVUhIWWlQbzlLSzBtYXp4RlVqUDNxTXhxSFplejNVZ0h0VklZZW4tU0FfQ25QWjB4MS14YUdFOTRJaFBNS2VGM1BSOEs0SHB2RU9z0gG0AUFVX3lxTFB1WVVaZ2pnQ0Q2c0RHVS1GYWk5bXR5QXk0YUEwYmg1ckJ1dzkyNTdrdDlOMk9wX0tqYzhwX2xMU1VFT2xEV2p3X1JpX0lfM3ZXbmZGcWdRSkpiR1A5bmF5WkxIaTJKUm9qUmYyRk1xMzNfdmxKeWE5dm9WcjkyRDJ6WjIxN09HckJGLU94MUk2VXRfYU5vNER2TVg3Z0xIaVY3MTNEX29neGhfRmJ5R3VIM2d3Yg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
