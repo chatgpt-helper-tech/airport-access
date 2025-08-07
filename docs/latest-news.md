@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月07日 17:27:19（北京时间）**
+🕒 更新时间：**2025年08月07日 17:39:19（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump threatens to deploy National Guard in D.C., take over police department - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPVVFpTWtES291Q25QTmZDdUMyN2ZwSTdST2lMSW5XZ09LdjVPUXhpSkhqbVVuLUNNcXo3UGM4SlFrZVBpT3l5WTNfV1UwQVR5TXJqQTd4ZjNPSGU1R3dGZExXWHVMU1FOZEljTWxTUFhqS0trQkxxUnNtNmNnWW9QZWQyMWFLWmd2dk5oM29VdHFJUEtC?oc=5) |
 | Trump’s Tariff Gamble Puts America’s Ties With India at Risk - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE8yV2lMSEpTdDlqTlN1cTJ6QkJmR1BxcjhXZ3VvbVFuTV9oSXUwZWNYa0FYZzFyT1VGcXNXSVNNQzdHbTRmUGc5Q0dpb1VvWXVHUWZqNkczM0ZjYUE2S1dPTTlkcUk5SHNNRGU3dUxNMHRfNFdnSDdDR2ln?oc=5) |
 | Border patrol agents jump out of rental truck and ambush people at LA Home Depot - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOMFlhMEduRklMcDlBanExcS1SX3BOcnlUSXBLWXpMTV9kRTRnVHVUTWJIRlNlSm52WkdUVW01eG4zVFhuRFZjQjdvYTM5dDAxZnUxUkx6UHhfbHFvOG9vZkVtOFZuQ2pKSFpFRHJ3TllueGZiYVZ5Q1JabUtjZXNEbkhtb2RQN2ppcHhXMFN5MDVfdw?oc=5) |
-| United Airlines System Outage Leads to Grounded Flights Nationwide - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNZFFxNC1kQ2hSaW1SZ2hVb0IwWGMtR09pOXVUTFhfU2pFWG1YRkhIUWZNb29BdGE1Y2IzS3FkUjJleGREV0YyNTRDYTlNV0w1YkI1U1FXblFiVThqS29LVWl6bE93RmV3QUpZaG9WeXRlbUI1a05GWmZNd3NOemJqUTUxbXM?oc=5) |
-| Texas Gov. Abbott claims FBI is going to search for Texas House Democrats - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQWmpjYTAza2JSakNvVWdlNE5ia2ExQUtlX2dvcWJKLVVZZDJReFpQZnZfYm1pU1lsYktZdTc2dUFwdXg5S3BhaTVpenpYOWh4THlsUmlBa2NYZloyRWZuUnVEV1h3M1dLNGplbmNhVi1BcGFCaWtoQTVtU0NUM1Z2V0wwSEJfM2xtV2JaRWl1c09TQ0tqaEEwcUJiQ3RSczBNOVczUmJpSzN1bEnSAbABQVVfeXFMTUpRdTZjbFlUMFRNTzUzWHhTbFFXNHRQOEtjQVVMNnhWaU1aQlB4bHZUNHFTLUctYVBGeEpkZWVaZWVVbkxkVDROdGhFQ3JybVNGY0tERHpMZ1RadEctNGNzYzNJNEt2ZkMzNXlrUFhFUTlDZzV3RnJRWFhGcVl2S2ZOZG5PbllWMno1dGNaNHZ6QVZPYl9mQUZEV3daRENsMDE4eUx0bmRVOUJoaUNhbGQ?oc=5) |
+| Hundreds of flights delayed after tech issue grounds United Airlines flights - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPbm95OFhzVm1SYXdWS2owMGFfdkdOQkt5ZnE0MkUxQm1tUjhDeUpITkQyTWRDN0VpMGwtTEdCQ2pkaTMzVDVPMVFEajJnSjU5clQxbTQ0eGJaOTR1Vi1MMGM0U3d2Q3hvR0d2Zkg5TU1ZTTg0VzBtN2FVT2F6OWtqVS1CVWVrMml0TFRpQTlBdXBMeWdzYlRTTUU0MXAyWEYwVjdFbHdZaw?oc=5) |
+| A Texas Republican state lawmaker on the fight for redistricting - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOOE92cVNMN3AzNHI1Q0ZXYjJiUFFPN0YtVjU1U1FiVVZjdDNLMkJaQnFkME44OElQVTY3b3l0cUJibHoyRUpPdHJOUi1UZGpub2Fhd25UNWhfOWlLVXQzUjRINWpoa3FHckN5TG5WZW9fRWtSSklXUm8wTmZrU3ZETjdnZw?oc=5) |
 | U.S. soldier accused of trying to give Russia sensitive Army tank info for citizenship - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQTHlBajJDbVNMbjNpSmNuMmlOX1hfWWhVaEJSeUJTbERGTVkxaDNMMlNwanROTUhoWmFtUHliWDJTaE1DX0NYUm00UnZEWnRXSEQ0WXI1OFJtZG01WnV4WFNIWlQ2X3BRLWxGYnBFaUFZMmVla0lfNllEZ00wOUx4ZUNzYmlZdlZnM2pVVGw4S0NNRXlLY3liOFZfb0hWb01oZWI2eF92RXZGZGRNRlNsSklB0gG3AUFVX3lxTE5HUkRtdXQyQnBVRGtzTnZWVU5TMnJDci1JaWNhWlRTRlM5MUhmcjd4NTV6NkJJSm9samRlVjFUYWlucEM5bkVMTEdWT2pmZTltbVBybE5lUG81MzBKakl1SlQ1XzFLeXowMjhDRTl4MXdwV0RkcDBjVDRtOHJMdHNsX2NTbmx0TzkyTzZJa2FqS2syRlNfcTEteWV3Z3B0bGY0ekt0Tk1MX3hvdkZYWTNrZHRjSndGVQ?oc=5) |
-| Sen. Marsha Blackburn enters race for Tennessee governor - Axios | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPSGN5S0ZnODJwWm5lQTk5Q1VYOXRXd1JUVEh5ekY2UnBuRGFZR1NIUU9wZUpjanI5bkFlUjN1dzB5Ym44RF9rdmJpWFVPY3E3N0F5clRCbzAzVk5oOG53dUhWS2FaVkJVbk5uUjF5M1dhVWlLbmNCU21Fazh2WTVkSmNtRG9zTzFuUDNOakZ5dFAzQmZ6YkNHQTdXQ005VFBQb2Jkbw?oc=5) |
+| For Gaza’s residents, daily life a Sisyphean struggle for simplest necessities - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNdnE3RE9HV3hYZWxvVlREcktzelJmRUswYjdhbDNnTUdPLXkwM0gxR2xydTBXRVdNVnFrSjU3Yzh1ZXViSTdwZVhPbTN0ZmRNZFdXb1VIZThkMllGb0M1ei1iTGplR0Nzc3Y5TzdKcHQxRGtnSk0wRFlfd3haM01aUXFZcm1GUHZBREE5SVhYUmdrT2JFaGRmT0RRMmdENE5WZXAySzhqTXJ0M1k?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
