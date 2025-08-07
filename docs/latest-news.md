@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月07日 21:53:17（北京时间）**
+🕒 更新时间：**2025年08月07日 22:00:43（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What the interest rate cut means for you | [阅读全文](https://www.bbc.com/news/articles/cp9421x3egmo?at_medium=RSS&at_campaign=rss) |
+| Why has the Bank of England cut interest rates? | [阅读全文](https://www.bbc.com/news/articles/cq6899yleg8o?at_medium=RSS&at_campaign=rss) |
 | Israeli security cabinet to discuss plan to fully occupy Gaza | [阅读全文](https://www.bbc.com/news/articles/c8ryekj1m1do?at_medium=RSS&at_campaign=rss) |
 | Trump and Putin to meet in coming days, Kremlin says | [阅读全文](https://www.bbc.com/news/articles/cr5rdl1y8ndo?at_medium=RSS&at_campaign=rss) |
 | Migrants detained under new 'one in, one out' deal with France | [阅读全文](https://www.bbc.com/news/articles/ce35v0zyzvlo?at_medium=RSS&at_campaign=rss) |
@@ -31,7 +31,7 @@
 | Trump threatens to deploy National Guard in D.C., take over police department - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPVVFpTWtES291Q25QTmZDdUMyN2ZwSTdST2lMSW5XZ09LdjVPUXhpSkhqbVVuLUNNcXo3UGM4SlFrZVBpT3l5WTNfV1UwQVR5TXJqQTd4ZjNPSGU1R3dGZExXWHVMU1FOZEljTWxTUFhqS0trQkxxUnNtNmNnWW9QZWQyMWFLWmd2dk5oM29VdHFJUEtC?oc=5) |
 | Senator Marsha Blackburn Will Run for Governor of Tennessee - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOZWJkZ09wcnNnQ2dYVURBLUZ0anM3VXZZWnlDMjlwQnZjV2NYOHZnckpwRDloVG9XVEhreTZTNkE4dXNrejhiVGllSWlQeTIySmRPZy10UUx1cjQxbHlVVkdhbXNHRmdVWlYwYUJaQkhZTER4czFvcExkR2lTTklaT3hMWldTMVlqVmRQaGJHZUE?oc=5) |
 | Republicans are full steam ahead on redistricting — and not just in Texas - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQbkdxcnJDeUc5WEZpdjlHb3d5T3ZyZ184ZXJLZGJVUHNFbnduWUY0QllSWkFiTU1LUVNaYzg4TEllekM1NXEtUjVWdGM4MU5MOURBQkxzX0NFUDdVS3pfWW1yT2tUcnlobkh6ZWN4MVpPQW42bTJwNE9fZlp1eW9HcVQ2NTNBaWxxTDQ3aFFGUG84eDN4YjFWaUpYWHNCbjQ4Q01DRWxrT2phdnJ2U3U3ZGhTTDRPYkNkREFyRzFB?oc=5) |
-| How India ended up facing steep US tariffs despite its strategic partnership - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQa29JRGNERk1sRkpfaXBrZS1QM3J2RW9HMUhCbF9PNlpUdVZTT1JRdzN3dEszU2RtT1RfeDg2MnNFM3FBd0R2WktxN0c0UU1LOHJwVVB4akJjVmk3cVdqVjR4ckZkNjlXU2FLWjFoNThaVktMZ3I1REZ3Q19kTEZIUU5ESXJmanVOQXpaNFdUc3I?oc=5) |
+| India isn’t flinching: Why Trump might be misreading India’s tariff playbook - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPNjZPdFR4ZGg3Q1JUX2xPZ2o2bHNBLTN1VVpRQW5lajZZMDVOOUhrZTM2UU5vQU82SGphZWZUeGRmYmlnb1RtQk1Mdml4T19sdzdBWkxrUHhFZk5KY1pFbWtZS0ljVUhIWWlQbzlLSzBtYXp4RlVqUDNxTXhxSFplejNVZ0h0VklZZW4tU0FfQ25QWjB4MS14YUdFOTRJaFBNS2VGM1BSOEs0SHB2RU9z0gG0AUFVX3lxTFB1WVVaZ2pnQ0Q2c0RHVS1GYWk5bXR5QXk0YUEwYmg1ckJ1dzkyNTdrdDlOMk9wX0tqYzhwX2xMU1VFT2xEV2p3X1JpX0lfM3ZXbmZGcWdRSkpiR1A5bmF5WkxIaTJKUm9qUmYyRk1xMzNfdmxKeWE5dm9WcjkyRDJ6WjIxN09HckJGLU94MUk2VXRfYU5vNER2TVg3Z0xIaVY3MTNEX29neGhfRmJ5R3VIM2d3Yg?oc=5) |
 | ‘Icy cool’: How Claudia Sheinbaum is navigating Trump’s new world order - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPMHZqR1ZKRnpiTnVDQUVKWDE5ZG15ekRKNGtudjcxNkpkZTczWXJ5dXVhNUF6NlBXQUtudEN3bHhNSGgxXzBoYklacDgyMkpHelNwOExWaTMzRDh1VzFnTnY4WG90TDZyRFR4Z2NNNkcydU9VQVE2LW5hUzlvZ2w3WUFmbXJYTk5teFpsUElZaXdZbFpISWc?oc=5) |
 
 ---
