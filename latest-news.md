@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月08日 04:52:28（北京时间）**
+🕒 更新时间：**2025年08月08日 05:00:24（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | More than 60 countries scramble to respond to Trump’s latest tariffs - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOWWVNeVRnYWU3VTlQRGM3SHQ5VGRhWmI3WjJuX1hUVUctQVZDMkc5NXhLRGJwcFRYRHk0Rzl4LUNMamljazNnYmNUU1l6bk14c2NmeFdXWTMxbTFnTUJRaGV2Um1USzBTYi1KZk9vSkJxOHhyMTBzRXRVVnJ4VDN5U0JmNXpQeUIyYmhyMmJOMDJ1bDY0Z0Z5V3NKaEY2cnRCVUZzVWNVeGd6NmFxUGRmdkdxNVBOZw?oc=5) |
 | GOP Sen. Cornyn says FBI will help locate Texas Democratic lawmakers - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOc3JiTkRjaXNOLXB6Vzg4bkJ6WkFSTUJtVEJkeU0yQVFqR2NScGI1SFg5azM3ZEotdVVuekNIVFZJNDRTei1acmJBa1JFNHIzQkxOZ0d2THBVUGVPTzlGNEd2UWIzb3d3VTZMTVUwSTRiRVdVOE4wTk9LY1lVWXU0WC14Ny1TRFEtaUdyRnpNd2Z4TlFiQnFDOHJB?oc=5) |
 | Unarmed Fort Stewart soldiers tackled, subdued gunman who was "shooting their buddies," Army secretary says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQSndoaWc3X29JUW84OFVXR1RGZ0diY3ZhQnlGLS1EUmdqTnpLVHVpZFc1aEluamFHZmwwSHE5RTdJVk9qNFBqQWhQR2dsZzk4MnFzbldCa1g0VXR4bDF5ejg5ZHdBMWRnTVVMc1VBbzFUS3VLdHQyUnZXQWJXSFVkT1hIYlVIbXIwZm5V0gGQAUFVX3lxTE9JTHRKTlJjLUxLMzZvUjRacVFkVWtqVW5KdjI2MUhYZ1lYNlBfMmhfbDBqdUhtdjh0dmV3Qk80dW9vU2lpSkU4bGl5QV9uelRrZ0JSUE44VHBXM05SMmU3S25kWlVfR2tKX3FVZDZWTnV4Sl9VRVJzS21RU1dEbG4tTy1jb2FORnE5OHc1TnhGTg?oc=5) |
-| 'They understand the microscope they’re under': White House ratchets up redistricting pressure - Politico | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9ieVlUVHdqcVhnVVNLYnhQV09Vdlc2OUN5YjhWbjRmb1FlR1J6SGMyenlEUUpVdmhwSEFYeXBrTVhXUHUyQzk1LTNHYUMtSkpmWVhIZjhjdVhfVlRiY0w3S09aVDRIOEJfTkRUM2dTR0M?oc=5) |
-| What Court Order? Federal Agents Keep Raiding LA Workplaces Despite Ban - The Intercept | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNZXZ4Q0NUUEpiblViR3JDbjB0SHJqQUxLRTFsVlJ5b0l6bU11SVBKc1VjU09zUnNRU3hKZm1jZWZ6THVGWWl1S1puVFhKV0dZbmFYdnVtWnlhVktCbmdQcmEzc2ZXUXRmdWtuX3ZGamVLWWxHYlJtNWVOLWFwM0o3dVp1ZU0tc0FsN2Q4?oc=5) |
+| 'Operation Trojan Horse' immigration raid involving Penske rental truck draws pushback - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQUUlyeWJsMnBrWXFRdS1jcWJGTUJhVDZHMU9pTWhMdjFXT1laLTVHTElYNHVXQ3Z3ZEYxZ2pYTl92Z2ZJelh2SEN0a04wUUd2bGRUWC02WUhseTl4a3FVcXFJVEFScVloS0lzdy13ZGtkZnhxS3U1NzVOTUhzcWNEd0pzZEc4YmlMY0RjU0ZmS3B6ZEduNnFkYS1WYW50NllNSFEzeXJn0gGrAUFVX3lxTFBvQ0Jhb0szZWtyUHM5c1pCOWlUalJNaHJpNDZXM19mejFzN0VOanpKMUVPQnVGeThTTU9VOFotQTUxSWpfUTAtUm9KVWhoNnphNkJaQnYwMVd0OWNFdXEtMk1jWmE3RjNwX1ZxdThTR2prWGRoemNhR1JEaEdHSW9XNUs1S0JscFNkTlUxNTJTMGVlbHpicFZsNzJGZnZkZDU1QWNRMkpJM3dMTQ?oc=5) |
 | Minnesota Man Charged in Attack on Lawmakers Pleads Not Guilty - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNbjZMUG94QlVPdWVoMkh1WkdMMXU5bUtZWDBXRHNheGEtaEx1SkVMOVFrMXlMTW5vdE1qVFNYblEwQ3FYZFByRmo3WUVnbVdLV28yU20zMDNyekJOSjdLdHhSNjJRcGtaVUd0Z1RGZkxuTXdqcEdkMlNOYm9rU3FPcTJqa3I1czNXVXc?oc=5) |
-| 2 killed after helicopter crashes into barge on Mississippi River near Alton - KSDK | [阅读全文](https://news.google.com/rss/articles/CBMi5gFBVV95cUxNNV9LeE1ILWhRNXdCNHZ3WlVHWUt2TWphMERzUUVOV0txT0pCeFZtWnlrSnJMa1lJTXZlc1A4aU9TRkJWaS1Lc3MwaGVkRm1IMVF1T1JfRkxITGozLTB1c0dlRXh0SV9uQXhhcDdWN256OV9aTFB5QmR0S0h0b1hHa2JlWllZS3BTYVlaY215ZGo1X05rcS02UnN2a2JoVUJfTWtPSGlRTFZ4eXZuRnRURWlZMXhTMFQ0ZG1DbUVQenFodF95VjJJRFQ1SjI0NmNNSFFHMmdyVUpuME9fOEZUbnpBX2dSZw?oc=5) |
+| 2 Pennsylvania state troopers have been shot - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPb3FwV2ViWnlzS3pESE5rN014WG5JMUx5aERFdEROd1NMcnVsUXEwWlo2NGhCRnJLZUQ3Z1R1eUNuTjhUZzBVdGlkS1NCZVUwX3cza1BySjh2UXRmQlhYOWhLOU9NbURoZVFrdVlYMUp2UDMyQldEVmRxd2xBMXdFRWZDT2xia2NrZHZUTTVPSQ?oc=5) |
+| Trump set to announce initial deal to end conflict between Azerbaijan and Armenia - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE5NQURDTE93bC1kRk9qRmZWWm4tcnFTTUlPNTcxeHpqYkRkUkdWelVZQTQ3NlgwUHNmZ1JyM3U3OEZoVFBSczVNWjBwc3NCTVY2eFlENk42MzBzN3NNVW90b0NOcEJCWWFUbC040gFwQVVfeXFMTzc1UlVwbjhFWmg1TG5aOUdpMkNnM3EyOVh0MHptdEFlYUdVc1NJamtNOGhkaGRxZHZxSWM5NjRsZ0kwV0NXSkJoQ0FUb2lKc25odDJVOWhOOTJfNHhtYzNYQmc4U0RCYmRIaU5mWThyYQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
