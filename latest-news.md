@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月07日 21:26:15（北京时间）**
+🕒 更新时间：**2025年08月07日 21:40:19（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | As Texas pushes redistricting plan to add 5 GOP House seats before 2026 elections, other states may follow - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPMTlmZFkxT3A5djFKQUhlSk8yeFFxVnVvMWdXWkhGUnk1VS1SZ0FKRFctbGJQMi11TFJxaDJEWVRRV05OdVI1cEJKdXdEZjlJSkl2Q3gxUHRGNmswbU5JUWR0SldlRDNfcTE1QTdlRGM4eGFscXc1Y3g5TnRIQ0dibU5XWFREQ19iUEU0NDZGcDhYazlHMXfSAZsBQVVfeXFMUG1namtMeUU3X2JZTlBxWV9wUmNueFl4ZGtpS1JTWFRkdWdxZEhyRlRuUjNteU9NVUxYV0xpR0NuUDBFQ24talNJNkk1ZUZnZk4wYkkwd1MwSzMyc0xwSkEydk9Jc1ZBb0JueUhIZ0s1UTl4N2FzLVVzZ2wwN3VJcWZkWE9Fd2FndGhLSE5mLXUwMklnZ3FDbEhtTzA?oc=5) |
 | Trump threatens to deploy National Guard in D.C., take over police department - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPVVFpTWtES291Q25QTmZDdUMyN2ZwSTdST2lMSW5XZ09LdjVPUXhpSkhqbVVuLUNNcXo3UGM4SlFrZVBpT3l5WTNfV1UwQVR5TXJqQTd4ZjNPSGU1R3dGZExXWHVMU1FOZEljTWxTUFhqS0trQkxxUnNtNmNnWW9QZWQyMWFLWmd2dk5oM29VdHFJUEtC?oc=5) |
 | India isn’t flinching: Why Trump might be misreading India’s tariff playbook - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPNjZPdFR4ZGg3Q1JUX2xPZ2o2bHNBLTN1VVpRQW5lajZZMDVOOUhrZTM2UU5vQU82SGphZWZUeGRmYmlnb1RtQk1Mdml4T19sdzdBWkxrUHhFZk5KY1pFbWtZS0ljVUhIWWlQbzlLSzBtYXp4RlVqUDNxTXhxSFplejNVZ0h0VklZZW4tU0FfQ25QWjB4MS14YUdFOTRJaFBNS2VGM1BSOEs0SHB2RU9z0gG0AUFVX3lxTFB1WVVaZ2pnQ0Q2c0RHVS1GYWk5bXR5QXk0YUEwYmg1ckJ1dzkyNTdrdDlOMk9wX0tqYzhwX2xMU1VFT2xEV2p3X1JpX0lfM3ZXbmZGcWdRSkpiR1A5bmF5WkxIaTJKUm9qUmYyRk1xMzNfdmxKeWE5dm9WcjkyRDJ6WjIxN09HckJGLU94MUk2VXRfYU5vNER2TVg3Z0xIaVY3MTNEX29neGhfRmJ5R3VIM2d3Yg?oc=5) |
-| Federal Agents in L.A. Conduct a Big Immigration Raid at a Home Depot - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBKZnBPVzk0cGtFNW5QM2gzU2ZNN25UaXJPRXdSM1hKNE9NU2tLMkR4WUlScU9MUEN4TkQydk1lYW1DbzFiaXFxM2dqUlZZRWM0Z3FueGxCRHVlaEhfNUUxV1RRX3I0WURPTVZ4Vkt1NTZUUGdFOHdldmtBRQ?oc=5) |
-| Texas Democrats evacuated from Illinois hotel over potential bomb threat - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPbWcwVktzQjRVdXM0a3FDT2IzTFdpR2VCT0E5enlhME9aZk9NV0x2RDc3ZWFsLTFjVWRQVzBEZXBCQkxRaWVtdkstVnJ0dUxGWnd2clhKNTRZM1hoejFlUFNGR3BsRFhra3FTREhDV0g5bUV4N01ybzNNczlqdHZhb2UwQ2lWcFBlcnhvbk5wS1Y1c2pRMUhqTzNZWkJZSTg?oc=5) |
-| Mexico was the only country to get a 90-day tariff reprieve from Trump. Here’s why. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPMHZqR1ZKRnpiTnVDQUVKWDE5ZG15ekRKNGtudjcxNkpkZTczWXJ5dXVhNUF6NlBXQUtudEN3bHhNSGgxXzBoYklacDgyMkpHelNwOExWaTMzRDh1VzFnTnY4WG90TDZyRFR4Z2NNNkcydU9VQVE2LW5hUzlvZ2w3WUFmbXJYTk5teFpsUElZaXdZbFpISWc?oc=5) |
+| Republicans Raise the Pressure on Texas Democrats to End Their Walkout - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE52RG85aHR1YUtfVmhhZFZEY09LcER5Rl92eUw0ck42ZllsT0EwOXhFbHVpNl9iNUkycDdGYmU2RU5VZ2g4cGpKZGFKN0tYMjBBS05iRnFhN0lFaGZ0RGRXeVBxMmJnVzZ3andMdGkzcFVlNTNDcDdJbElGSQ?oc=5) |
+| ‘Icy cool’: How Claudia Sheinbaum is navigating Trump’s new world order - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPMHZqR1ZKRnpiTnVDQUVKWDE5ZG15ekRKNGtudjcxNkpkZTczWXJ5dXVhNUF6NlBXQUtudEN3bHhNSGgxXzBoYklacDgyMkpHelNwOExWaTMzRDh1VzFnTnY4WG90TDZyRFR4Z2NNNkcydU9VQVE2LW5hUzlvZ2w3WUFmbXJYTk5teFpsUElZaXdZbFpISWc?oc=5) |
+| Republican US Sen. Marsha Blackburn joins Tennessee race for governor - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNb3ZsbEZxZUxXVWJTak44OFNXSUw4V1l0enY1Z3ptMWQtM2UxSnl4MVA1eTJ5Y1hLSnVlSEoxSTZPSlNtWHNNeWVSN1F0QXBQMmJ1Z29TQmlXUGxqMmo0Q01IZzBKeDN4ODFDMklaZHJ5dFRMWUdua3RwWjdERldEQ3ZPSTFleG1UVDFNdlZyVdIBlAFBVV95cUxOUkJyd2Z0OWNGY1JBbDNPOHYtbzBTZS10azJVdkVEZUdudUFuT01JcTE5Q2dGb21sVy1Sa21OUFBGSHVZY0U3dGY0dTBvdE05NUw5SElIa2cxWXU2WV94eWNtdm5PZmE5UlJqZjJBZkV6aTBvaExSemZlWHBhbzhWWXpkbW5yM2NKdzNUN1pXaVJOdVly?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
