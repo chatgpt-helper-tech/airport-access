@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月08日 00:52:51（北京时间）**
+🕒 更新时间：**2025年08月08日 01:01:42（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | FBI will help track down Texas Democrats who left state, Sen. John Cornyn says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPSEVxVUxuTDlHcVZrazNleF9JV3lTdTBHREYzMFlPZGF2QnNGTktGQTF4VXMxVkEwa1hzQW1ySk5xcEl1T3FOZTZ0cUd5WWdIRG00cG5ZaHBMN2FLRUVLYjNoT2w0QlNtZ0FPV29SdS14RUItdTBURTBOR280WDNhcFd5Ri1XZ3hFTlRFM3Yyc2ZmYlZodmR5dnhObkXSAaIBQVVfeXFMUGFZNkdKLVVNVE9hZEJfaW1JSHl3aTJ5dHR1WXVKc1ptT1o0bjE2REJVay1RRnJmUUdoeEtQSkdGU1A0UkhqMjRKcXprRVEwVE9RM1hkVkJiVHQwTDdPbGc0QVBxNW1Md1pXSVp5aHdwWU1wc2VzM0MxT3RyLWZkS3hhUVVOUzdrdFNfNng5SEkyT1FLeXZfT04zek5MYkl6WVlB?oc=5) |
 | FBI firing senior officials at odds with Trump administration - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPNjJlNnhTTkNQSzJrdzJsUkxQd2pDaXltR3kwdzZOWktJOWtOamdLc3pJMGZUNzhvOWs3STk2Y0RPdFRoLXVMTEFZd0JhYzFJaDQxdEVlUXJhaDBHZ09EOTZ4YVVIMHViNkdJb3JSX3ZQWDU5SkdPZjlsQmZ4cnVmMDZGQ2UwNnFXdFUyOGpoYTY0UVZfYUJNMlNVYXp0NTZJSFHSAacBQVVfeXFMTUtTdmZHYVJIb1RHTjF4aVFJSDhyQXA4bEdjWjZfd3lXUzdHa2g2RDN6cjA1OUNUVTJhV3MyczZBM2lfemFXY1dDQ1FpdUtPUzU0UlZFckhvcVBDQTFjZEU0cWpJd2JKbmR3Y2oxMUE5c2k3Z2pjR2picG0yaUhrb0szT3RWbERBMDl6TzQ5RGhxcS15VUlTYUFjQWEzY1YwRnZ1b29fWEE?oc=5) |
 | As Trump Administration Plans to Burn Contraceptives, Europeans Are Alarmed - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPUThuWHRnN0ZhWm0xUkJmRG45MFBGOGlxYkphSGVCdERHaHZwMVhQZ3BtQk1vRTVXYm9tTjZGQTg0MFhNQ1YyUElNZGgwMW1CSVE4d3g2TlZRM2dFSzkyZmlkWk1CWTVUeU12Zy1SZ0h6bWZYVWVkaC01TmxWcFlsSENDQ3BlQQ?oc=5) |
-| Trump seeks to change how census collects data and wants to exclude immigrants in US illegally - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOeVdKSGdkdVp4YVVCUVhCNE5hZHlydm9NX1dEVnBkVVpYc3ctTzlsOUk2eWo5VzM1M3VFdjdqRmU2Um05TUVkVUhSYTZnVWF6UlJVbDBVeVdZdy14WDhKRkZuRjBBWHUtOUQ1NEM5eDNlM0dweTQxS3JQNHV3Vnc4X1VGMzc2ZWxUTThET3FTZEJ1SXUzXzcw?oc=5) |
-| 'I don't see the point': Mitch Daniels on Trump's redistricting push in Indiana - Politico | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE9CSDRxZjVNRTV1ZF9hRi1JcFNXb2prYUo1SjJuNzZOMzhSSFMxc1pyaGg4VGZWVUNORTdjNkpjNGZ0cGMtN2FCR3hLQXdDQTBNZTdCOFFiaFBiMmtBdUdzNjBjeTM1Y2lsUzZvWGUwWDVuM3lpSHc?oc=5) |
 | Soldier shoots five troops at Georgia’s Fort Stewart before being subdued - AJC.com | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPV0VkbHJNUklraVdlMU55VUZPU0FSRklTbFZ6R2JNRUI5X0hnVkdqMG9SUnd3RDFJQTc1S1JtWS1URV9EMEd5UTliVDNHXzJITWx2RzNvMHhXOTJYcUlnbkVZdzdWWlNkNElqaHVldWRydlpYbS1EWGJvN08zZ0JRbEpRektfcjJuZWl0ZEJOZmhKY3FDWlhJVzlfbUd1UXl1aVJoZEN5a2ZhUQ?oc=5) |
+| Trump orders new census excluding undocumented immigrants amid redistricting battles - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOTU94T2ExSnZ3WGlzekdFNzFJNmQ5WHNQbzlpTnRJZEItU0dkam44VHFud0N6bGVsTWNPZHAxTHhMakROMkFzeGpkVG81QmhGUTVkS1RPS3ZMZUVTSjBRSWhfa19wSThvTUxOX2xUWEdJN2U4ekdJZ2NrUXZ6MGN5dU9Td3h5RkFudlJ4REZhMEszTWRtQVFRdWMtd0pPa1Jxa2FRRVlYM0dqeVFxSGVQeUtYY9IBuAFBVV95cUxPNnZlamZmaTNWLVhuQUQ4dzdaSGFqRUFhYjFTLU5rX3dEbHRvLXhveDNLMlZRaHpvTzNOMnE5eUs3dzlHYjVGWllEZHRpLUdtaTBhOUtLVkZRS2VGYkxBZXNoeGhuZWliSXU4NUIzbFhxZ3Buc05HdUE2TkZRUFdNQ2lDblpkQ1FGd3VSeER4c2xld0hmdW4wdnlPWURFa2dzUkJWRXJrRVFsM054N0NOYy1iX01pRFBP?oc=5) |
+| 'I don't see the point': Mitch Daniels on Trump's redistricting push in Indiana - Politico | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE9CSDRxZjVNRTV1ZF9hRi1JcFNXb2prYUo1SjJuNzZOMzhSSFMxc1pyaGg4VGZWVUNORTdjNkpjNGZ0cGMtN2FCR3hLQXdDQTBNZTdCOFFiaFBiMmtBdUdzNjBjeTM1Y2lsUzZvWGUwWDVuM3lpSHc?oc=5) |
 | Federal Agents in L.A. Conduct a Big Immigration Raid at a Home Depot - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBKZnBPVzk0cGtFNW5QM2gzU2ZNN25UaXJPRXdSM1hKNE9NU2tLMkR4WUlScU9MUEN4TkQydk1lYW1DbzFiaXFxM2dqUlZZRWM0Z3FueGxCRHVlaEhfNUUxV1RRX3I0WURPTVZ4Vkt1NTZUUGdFOHdldmtBRQ?oc=5) |
 
 ---
