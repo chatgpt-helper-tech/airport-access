@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月07日 19:40:58（北京时间）**
+🕒 更新时间：**2025年08月07日 19:52:43（北京时间）**
 
 ---
 
@@ -8,6 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| What the interest rate cut means for you | [阅读全文](https://www.bbc.com/news/articles/cp9421x3egmo?at_medium=RSS&at_campaign=rss) |
 | First migrants detained under 'one in, one out' deal with France | [阅读全文](https://www.bbc.com/news/articles/ce35v0zyzvlo?at_medium=RSS&at_campaign=rss) |
 | Trump and Putin to meet in coming days, Kremlin aide says | [阅读全文](https://www.bbc.com/news/articles/cr5rdl1y8ndo?at_medium=RSS&at_campaign=rss) |
 | I live in a peaceful corner of Bristol. But the house next door is empty and full of rats | [阅读全文](https://www.bbc.com/news/articles/c4g840ydlzvo?at_medium=RSS&at_campaign=rss) |
@@ -15,7 +16,6 @@
 | First episode of new Masterchef with sacked hosts sees fall in viewers | [阅读全文](https://www.bbc.com/news/articles/c1w83e44e21o?at_medium=RSS&at_campaign=rss) |
 | Trump's sweeping new tariffs take effect against dozens of countries | [阅读全文](https://www.bbc.com/news/articles/cx23jmvn5yzo?at_medium=RSS&at_campaign=rss) |
 | More teens to get their choice of uni even if they miss their grades, says Ucas | [阅读全文](https://www.bbc.com/news/articles/cy85edr2xlpo?at_medium=RSS&at_campaign=rss) |
-| Three people charged with supporting Palestine Action | [阅读全文](https://www.bbc.com/news/articles/cp3enyvge4no?at_medium=RSS&at_campaign=rss) |
 | Homelessness minister hiked rent weeks after removing tenants | [阅读全文](https://www.bbc.com/news/articles/czerl5dy0kgo?at_medium=RSS&at_campaign=rss) |
 | Unregulated nicotine pouches packaged like well-known children's sweets, BBC finds | [阅读全文](https://www.bbc.com/news/articles/cnv75dd3v37o?at_medium=RSS&at_campaign=rss) |
 
@@ -30,9 +30,9 @@
 | FBI responds to request for help in finding Texas House Democrats, Sen. John Cornyn says - Dallas News | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxPTVFpUVZpcVFDbVJSYnJ6UHRqTkx6U0ZUZHl4cHhUd3RyengtSDdrOXZ0aXptWUdtTVItMHlDT2c1QUVYRmRMUk93QUNwaXItMzl1WGxzNkVRYzZnYnkwa0xDSEpoZ1FPeDBoSFFKczRodllnQzlOZ3h2NUxJRXRoQkJScVBxT0ZvblluNnVlY1JkSWRhY0U4VlU3MWJtbnRoTGQxemJmelQzV3pzSGp5eHZTS2xTdHYzWDdweFhDNXVMbVJ1ak1HX2h6R0MwbmNybG5QRFdn?oc=5) |
 | Inside one pastor’s crusade for Christian domination in the age of Trump - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQYkVOODZRTGRTbkJ4bkRpbUtXN0ZoanJ6Si1NYXdjN2UwUmpxdVZxcFpDWVQybWZ0bzlvNkRKZmI2eWRJdzU4VEZweEl2QmVZUlhoT1A5WWN3UzQ0UjhhU3Azd0EzeG9rVVR5Y0xraVBUc1htbndVRzlyOXN2VFhGYk5sanFJZ29iVWpUOXdn0gGTAUFVX3lxTE8xYzQyNUhsbF9SLW1EbEJhSDl4OU1QT19BUkNXYjY4WWh4TEcxQUdpX3p2ZnNZNU5zZk12T3gtOWZhT3BGaXI4TTYzNE9mWlNIak9SakFiVmYwejNiU254ck1Id1VjVmR3OU4wLWprM2lsZ19EeDU3cVFuUDh4bXhDYTJuR01XQUhiYXZGS3EyTURXOA?oc=5) |
 | Border patrol agents jump out of rental truck and ambush people at LA Home Depot - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOMFlhMEduRklMcDlBanExcS1SX3BOcnlUSXBLWXpMTV9kRTRnVHVUTWJIRlNlSm52WkdUVW01eG4zVFhuRFZjQjdvYTM5dDAxZnUxUkx6UHhfbHFvOG9vZkVtOFZuQ2pKSFpFRHJ3TllueGZiYVZ5Q1JabUtjZXNEbkhtb2RQN2ppcHhXMFN5MDVfdw?oc=5) |
+| Sen. Marsha Blackburn enters race for Tennessee governor - Axios | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPSGN5S0ZnODJwWm5lQTk5Q1VYOXRXd1JUVEh5ekY2UnBuRGFZR1NIUU9wZUpjanI5bkFlUjN1dzB5Ym44RF9rdmJpWFVPY3E3N0F5clRCbzAzVk5oOG53dUhWS2FaVkJVbk5uUjF5M1dhVWlLbmNCU21Fazh2WTVkSmNtRG9zTzFuUDNOakZ5dFAzQmZ6YkNHQTdXQ005VFBQb2Jkbw?oc=5) |
 | Mexico was the only country to get a 90-day tariff reprieve from Trump. Here’s why. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPMHZqR1ZKRnpiTnVDQUVKWDE5ZG15ekRKNGtudjcxNkpkZTczWXJ5dXVhNUF6NlBXQUtudEN3bHhNSGgxXzBoYklacDgyMkpHelNwOExWaTMzRDh1VzFnTnY4WG90TDZyRFR4Z2NNNkcydU9VQVE2LW5hUzlvZ2w3WUFmbXJYTk5teFpsUElZaXdZbFpISWc?oc=5) |
 | Shooting at Tacoma's MultiCare Allenmore Hospital leaves man dead, woman injured - KOMO | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxQdmJLMllyWjZ6Q2JZQk00TERIS1F3UVE1MU1KUDhkelFacS1LdC1palo4Y2VnQ0F5NFJ1Z0JUTm5MR3hocjRWb2MyMUQxaWdqVnROUmY3S0NXaVJIZ0dGQXctclJxNHdZallybHdvYUpXTnBNR0pIZWtxaDVQTURPZGp1bkpxTlg1T1pfbzg3ZHlLb1RpNHk0anhoRGgxa05PN3RqZ0E1TUNuZDB4TUxZTzJsc29vOHJvcVRDdEJ6Z2tzdmU4czlKZTJJRlRHR3JHMXY4dkxUYm1pNklzQUZvRU1aQ2VOM0pidmd1aVpuN0lHZw?oc=5) |
-| India isn’t flinching: Why Trump might be misreading India’s tariff playbook - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPNjZPdFR4ZGg3Q1JUX2xPZ2o2bHNBLTN1VVpRQW5lajZZMDVOOUhrZTM2UU5vQU82SGphZWZUeGRmYmlnb1RtQk1Mdml4T19sdzdBWkxrUHhFZk5KY1pFbWtZS0ljVUhIWWlQbzlLSzBtYXp4RlVqUDNxTXhxSFplejNVZ0h0VklZZW4tU0FfQ25QWjB4MS14YUdFOTRJaFBNS2VGM1BSOEs0SHB2RU9z0gG0AUFVX3lxTFB1WVVaZ2pnQ0Q2c0RHVS1GYWk5bXR5QXk0YUEwYmg1ckJ1dzkyNTdrdDlOMk9wX0tqYzhwX2xMU1VFT2xEV2p3X1JpX0lfM3ZXbmZGcWdRSkpiR1A5bmF5WkxIaTJKUm9qUmYyRk1xMzNfdmxKeWE5dm9WcjkyRDJ6WjIxN09HckJGLU94MUk2VXRfYU5vNER2TVg3Z0xIaVY3MTNEX29neGhfRmJ5R3VIM2d3Yg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
