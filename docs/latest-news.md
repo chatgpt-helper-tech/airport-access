@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月07日 15:01:13（北京时间）**
+🕒 更新时间：**2025年08月07日 15:13:51（北京时间）**
 
 ---
 
@@ -8,6 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Trump's sweeping new tariffs take effect against dozens of countries | [阅读全文](https://www.bbc.com/news/articles/cx23jmvn5yzo?at_medium=RSS&at_campaign=rss) |
+| 'I live in a peaceful corner of Bristol. But the house next door is empty and full of rats' | [阅读全文](https://www.bbc.com/news/articles/c4g840ydlzvo?at_medium=RSS&at_campaign=rss) |
+| 'Good prospect' of summit with Putin and Zelensky, Trump says | [阅读全文](https://www.bbc.com/news/articles/cr5rdl1y8ndo?at_medium=RSS&at_campaign=rss) |
+| Bank of England expected to cut interest rates | [阅读全文](https://www.bbc.com/news/articles/c5yprwyxjlxo?at_medium=RSS&at_campaign=rss) |
+| Clinics will need licences for Botox and fillers in cosmetics crackdown | [阅读全文](https://www.bbc.com/news/articles/czd03ejd28lo?at_medium=RSS&at_campaign=rss) |
+| More teens to get their choice of uni even if they miss their grades, says Ucas | [阅读全文](https://www.bbc.com/news/articles/cy85edr2xlpo?at_medium=RSS&at_campaign=rss) |
+| Rayner asks China to explain redacted embassy plans | [阅读全文](https://www.bbc.com/news/articles/ce932995ny2o?at_medium=RSS&at_campaign=rss) |
+| The secret system Hamas uses to pay government salaries | [阅读全文](https://www.bbc.com/news/articles/c1kz42j92jmo?at_medium=RSS&at_campaign=rss) |
+| Badenoch reveals how she told on exam cheat as teenager | [阅读全文](https://www.bbc.com/news/articles/c80d7l03137o?at_medium=RSS&at_campaign=rss) |
+| New checks on recycling tyres after BBC reveals millions sent to furnaces in India | [阅读全文](https://www.bbc.com/news/articles/cj9wepemrj8o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -21,8 +31,8 @@
 | Paxton launches investigation into Beto O’Rourke’s political group for funding Democrats who left state - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOaXU5TDhvaUlTUUlKUllZZ1UyZ3NHVi1BaHZtUFdtYzJrSjc1dnBoa3FmVm1Ja1BYWGhKdVdGd0VsRWxpRWN6cG5ERWpZVURleXZpWlE1Q05NUDJGbGdwWEUyZjQ5cUU1MmpTVTBZLUlkVTVHeWFPU2E0Q0wxY0NVNFcwMzd4RGJjZm9leXRiSnNvNER3aDdQVFJR?oc=5) |
 | Trump raises tariffs on India to 50 percent, citing Russian oil purchases - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPOVlocE5Qb2NveldnTzZiVGxUSm9UUWRFWVc2cFdzWVRVOVhXd2t2SHZvU1NkM092OWFQU1ZZUElMZ1YwaXUwY2EzcnpIVHZrZkd0M193cG04ekE2bEN0Z3lsakxENlhaZ1JMM0tzNzhJRU81ZlUzTWI2YUtQQmtaRkhPRUJYLTQ?oc=5) |
 | United halts flight departures across US over 'technology issues' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBRbXdUd0JJUVhfY1hRYXluSHFka3kyWW9OazhielAweG5CN09WT3ZfcmVuNEhLZDlEUzRQdjVBWnB5RERQdGtPR3h6dzhXTHpVSF9GTlFJU3pMUdIBX0FVX3lxTE5DQk4wRjdTZW40eGpZZnV2T1J0M1loRjBqSFFoR0xLNi16WUR0VjhwQlIzM0xaVldLRTBGaGhlOTY2X3lpdTZRMElxU0JTeEV2T2N6S05oNWVPdUhhZGF3?oc=5) |
-| U.S. soldier accused of trying to give Russia sensitive Army tank info for citizenship - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQTHlBajJDbVNMbjNpSmNuMmlOX1hfWWhVaEJSeUJTbERGTVkxaDNMMlNwanROTUhoWmFtUHliWDJTaE1DX0NYUm00UnZEWnRXSEQ0WXI1OFJtZG01WnV4WFNIWlQ2X3BRLWxGYnBFaUFZMmVla0lfNllEZ00wOUx4ZUNzYmlZdlZnM2pVVGw4S0NNRXlLY3liOFZfb0hWb01oZWI2eF92RXZGZGRNRlNsSklB0gG3AUFVX3lxTE5HUkRtdXQyQnBVRGtzTnZWVU5TMnJDci1JaWNhWlRTRlM5MUhmcjd4NTV6NkJJSm9samRlVjFUYWlucEM5bkVMTEdWT2pmZTltbVBybE5lUG81MzBKakl1SlQ1XzFLeXowMjhDRTl4MXdwV0RkcDBjVDRtOHJMdHNsX2NTbmx0TzkyTzZJa2FqS2syRlNfcTEteWV3Z3B0bGY0ekt0Tk1MX3hvdkZYWTNrZHRjSndGVQ?oc=5) |
 | Sen. Marsha Blackburn enters race for Tennessee governor - Axios | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPSGN5S0ZnODJwWm5lQTk5Q1VYOXRXd1JUVEh5ekY2UnBuRGFZR1NIUU9wZUpjanI5bkFlUjN1dzB5Ym44RF9rdmJpWFVPY3E3N0F5clRCbzAzVk5oOG53dUhWS2FaVkJVbk5uUjF5M1dhVWlLbmNCU21Fazh2WTVkSmNtRG9zTzFuUDNOakZ5dFAzQmZ6YkNHQTdXQ005VFBQb2Jkbw?oc=5) |
+| U.S. soldier accused of trying to give Russia sensitive Army tank info for citizenship - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQTHlBajJDbVNMbjNpSmNuMmlOX1hfWWhVaEJSeUJTbERGTVkxaDNMMlNwanROTUhoWmFtUHliWDJTaE1DX0NYUm00UnZEWnRXSEQ0WXI1OFJtZG01WnV4WFNIWlQ2X3BRLWxGYnBFaUFZMmVla0lfNllEZ00wOUx4ZUNzYmlZdlZnM2pVVGw4S0NNRXlLY3liOFZfb0hWb01oZWI2eF92RXZGZGRNRlNsSklB0gG3AUFVX3lxTE5HUkRtdXQyQnBVRGtzTnZWVU5TMnJDci1JaWNhWlRTRlM5MUhmcjd4NTV6NkJJSm9samRlVjFUYWlucEM5bkVMTEdWT2pmZTltbVBybE5lUG81MzBKakl1SlQ1XzFLeXowMjhDRTl4MXdwV0RkcDBjVDRtOHJMdHNsX2NTbmx0TzkyTzZJa2FqS2syRlNfcTEteWV3Z3B0bGY0ekt0Tk1MX3hvdkZYWTNrZHRjSndGVQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
