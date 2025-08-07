@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月07日 11:26:44（北京时间）**
+🕒 更新时间：**2025年08月07日 11:39:03（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | After an ex-DOGE staffer's assault, Trump threatens to federalize D.C. Can he? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQRVRfTnllWkpjWVdyZ3EtVnpjLW5YTVV5WTNFUU42d1QzeHdrVlFYa1dUVnpPajlFeFlhazZsYkI0QkYwb1FNcFZLWThBOUt5aHhpcjlsYk5NcHNDb0hRcHFTZ2xwY2RBbG0xcmJMZWZ2NVhveXdLRDFjZ3BhUzRvakt2Q1BWQjB0TVE?oc=5) |
 | Donald Trump’s new tariff regime set to deepen global trade war - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE43b09rNmJCbmE0NThfTE8tckZURlQxWGc0Ui1LS1VxV1pOY2dPUmw5Y19GU3p5SkRDVTZ0RHJkaXBmYjBZSW1ZMkpEeDBMczVObURZcGxSM0xKRmEzTGNhR2ZTeGQxZDNNNjJFVzNHOVA?oc=5) |
 | Texas Democrats evacuated from Illinois hotel over potential bomb threat - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPbWcwVktzQjRVdXM0a3FDT2IzTFdpR2VCT0E5enlhME9aZk9NV0x2RDc3ZWFsLTFjVWRQVzBEZXBCQkxRaWVtdkstVnJ0dUxGWnd2clhKNTRZM1hoejFlUFNGR3BsRFhra3FTREhDV0g5bUV4N01ybzNNczlqdHZhb2UwQ2lWcFBlcnhvbk5wS1Y1c2pRMUhqTzNZWkJZSTg?oc=5) |
-| Ground stop halts all United Airlines flights bound for Chicago, other hubs - NBC 5 Chicago | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQVUZmYjF2XzBqZ1ZvZkdzMk4zcmx3ajlXT2pXTDVsczRib3pmZEJLRnpFMFVlNkRSOU5XZXlCLS1HWndxNm96eVpLUUZWdGlBYVBHdHBkSUpXWmxvSTdWRTJnSFUyNGk5RXdWV09JSmNqdjluY3FHbHhSQ2w4LXhmdk1MY25jRy1nRkFrUGJvX1dVZGoxRUJ5bzJHekZRRk1oWGJmbWhqYUtkY1FVM19PRFdGYlpMRUw3V0pJcGZuYl9FZ9IBygFBVV95cUxNZUphdndYWTBHUGYtR0gzWEtsU0ZYNV9tX3I4RE93SVA3Z2lRTU01Y1NuTGY4T3lKN1hlRDVGZTJ0SGZTSlZ1UWNoM1VNdHhheG9TUEpzNkYwb1lJRXFpcUZacVJ2bXR3eUM0aENJS0tXamduYnFheHhlSUFHZWJSMk80MDZrZG1YV1VxYkV3ZTRTRGotSGN4cTc2TUp0M2FQT3hhOEZaRWlRSVpSQngta0pta2czQUdMWGhCVkctaEZIckpmRFdubmZB?oc=5) |
-| Ken Paxton launches investigation into Beto O’Rourke-led group over Texas quorum break - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQekE5NUVpWFN6TnhwQlhEV3pHcWJ4YUd0RWVwMGpnTHNRcFFGRTRhX19OaDdfNDBfd3czZkcwYkcwRUw5aEhlcUxHbFFZUDF1aEdVeVBWUjItTXVFTGwyMlV5WjRwNnI1WWNjaWF5TVliOExMT0VkRVBndjZORHBCcEQ3WjdGbHltSGFDT3JieVhBVTg?oc=5) |
+| United halts flight departures across US over 'technology issues' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBRbXdUd0JJUVhfY1hRYXluSHFka3kyWW9OazhielAweG5CN09WT3ZfcmVuNEhLZDlEUzRQdjVBWnB5RERQdGtPR3h6dzhXTHpVSF9GTlFJU3pMUdIBX0FVX3lxTE5DQk4wRjdTZW40eGpZZnV2T1J0M1loRjBqSFFoR0xLNi16WUR0VjhwQlIzM0xaVldLRTBGaGhlOTY2X3lpdTZRMElxU0JTeEV2T2N6S05oNWVPdUhhZGF3?oc=5) |
 | Army soldier charged with attempting to share sensitive data on US tanks with Russia - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFB0c1hMaXduS0dINUJXNV9ZSmw4TUdYMkRUU1JYcTNUSjVSU3BhNkd6M25TbkVoX05XSnI4dUc3U1hnc3pmejI0ZjdXWXItc3dvQ2VIRlViMFlBejV6RVBFcFVtX3JwaVhSbXNWZ1ZCQ21sUEZuaDhqSFRkVmxKejjSAYQBQVVfeXFMTU1Wd3AxRFlzSXFsVWF6NjJfUjRpejBPR096dEl2cWNUTC00MUZVbUx0dXVsc0UzMVN1RmVGWHJEOHJnM2xrMzhYUExGeENmc1YwY0R2VmMwLVhtam5IdUZGck05SnJtMlNwWGEwWExGR2ZTci1lM2M4dUlTMFo4dFhlZEpV?oc=5) |
-| Republicans quietly fret about ‘disturbing’ Cory Mills allegations - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOQTBBdUQxOW53SHVPT0RrZ0ZPYnFwWkxSVGJ6bTVIR1VEZ1ZHUE13bThYZFVndkY0THFtZkhqUXpmRTk0NnJ1RXdhUnVNSkt2b241bXgzSVpkcU5MZTNtZk83R3ozbmRhcXNBVkFGWEhleFpUMndzaDlmRWVSRkNtYjZ1bGl6SklKajlkb0Nn?oc=5) |
+| Paxton launches investigation into Beto O’Rourke’s political group for funding Democrats who left state - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOaXU5TDhvaUlTUUlKUllZZ1UyZ3NHVi1BaHZtUFdtYzJrSjc1dnBoa3FmVm1Ja1BYWGhKdVdGd0VsRWxpRWN6cG5ERWpZVURleXZpWlE1Q05NUDJGbGdwWEUyZjQ5cUU1MmpTVTBZLUlkVTVHeWFPU2E0Q0wxY0NVNFcwMzd4RGJjZm9leXRiSnNvNER3aDdQVFJR?oc=5) |
+| Republican US Sen. Marsha Blackburn joins Tennessee race for governor - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNc3Z0NDhKVFhEV09sakJ6V2cwaFN3RVJoNEpBQ1g1d2NOV2t3WjNEZnJmMkVEZmdOeUxMOUsxNl84YzRDX2pyeXVoXzFTYk8zcDVMSGcxS2dsUnRaLVJHVjZxSWFObWhLV0gxWG1QRUFPRlQtZjBTVi1ITWdWbWxtejVFTVdTYmstb2ZmcTN5QThvbXdNRUJ5bl9lSQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
