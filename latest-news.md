@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月08日 09:14:13（北京时间）**
+🕒 更新时间：**2025年08月08日 09:26:15（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Netanyahu says Israel intends to take complete control of Gaza, as warnings mount - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1OM2dZcU42YWFkZXh3ZC1sLXl5MVU2SFJRbi03TTJTSU9lY0VodXNNMUNqQmpvaFhNLVFxcEp0ZEdDdmxTUzJWanlnSXAzcmJyNUFMSVhRTHBzUdIBX0FVX3lxTE5sbG1wNUFWY1h3MEhjcDdodWFVLWNoUzZFekliZ0hUSVNMTG1PdklLbHRUWVV4OTVVNXY5UW9kLWJ1OWlzS3BVbFNBQS0zUlRzN2ZXUkZKZ2NmbVVjUHNn?oc=5) |
+| Netanyahu: Israel intends to capture all of Gaza, hand it over to non-PA ‘Arab forces’ - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQendFd1pLUVg4UlNwU1ByN0puelZVRDRnYmMxRkwxS081aDBkZVh3dVQ4cnlSRGZEZUFsajNHdjNveFM0a1dzVENRV05KdGlCd3VxSVl6YXNOdzFBTDlkQVU0MmtuWVkwTFYxSzFVb1VReWxnaTN5bXJHZG5Ga1huV2VqSl9pU1RGQUtsRVl0VGdCWVZpOHY2am5lMHVjcEJYbmEwV2pwYWVlNkJwbm0xWmNlONIBuAFBVV95cUxOWC1fRE1jd3cxV1RDeFZrbXlVSms5WnQ4aFVKWWQydy1kdE9vM3JqTE1BV2lRanhOVE04N2lzMzBWejJUODU0YlhSV1FuUTVpTERfZGtpQVdPb1R5U3pLa0xISzRPWDVKdERsbEdpd2I4LUh2eFBXRTlvZ3RpcFdNaV80Z0N5N1VzM2g0TW1wb3hQR2NEYU9YbWhxYzdVZHRKZTk1UkNoNkNWSDRrOGlub2daYS04Snps?oc=5) |
 | India Bought Russian Oil. Now It’s a Trade-War Weapon. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBTU05CcFZ5bmRRYTdwUmV3R2xFRWgtZVk2eUxPUWRvLWdQdmRYUWNpYVVDRkZLLVhpMHpzVG1qNzdXSEtfZDM0bndrdkl4bW9zRTlsYWRfQ3JfWWRlNnRWNmF0WldldGRadjhFU2VPMlBPODY0enp4Uzg4UQ?oc=5) |
 | Trump orders colleges to share admissions data, with an eye on affirmative action - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPQkdYejdiblI3VGg2TEpBZ3psSzlzMkxkTDQ1clFSaDVxak8zbmpiRkZ6a2hGRFg2dG11TmhkVVBkR3g4WEkxaF94VHZIa0NuRk5hUEtKZXNBWkhwemtPVU1sRlp3UFhEZ1RESFQxclBqdFh1VTZVTWlLOENDVEhuWlVGaFFiUnRGdnExaWp5c1lXUQ?oc=5) |
 | Trump calls for major changes to census amid GOP redistricting effort - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPYlVJdmNXTmhRN25WWVc5NVZuVUp6ODRGYTlKREZndnhFdmtRVUhHTlhvTzB5cHpWb0wwcnNzSmpObTgzSUpNTHR5X1I1OGhKRFNJZmtLU3VlSk0tUWlhamFtcWhvVkdiSmdrVVdVNnE4MzBkWEVKSGJKd2NOMnVTV2tDaUJNQ0YtcVdTTnktT1JBd1BpWTBDd0VtLWxtQ09zbThQejgtM3huR0JITU1IdmJLQjY?oc=5) |
 | Judge orders temporary halt to construction at Florida’s ‘Alligator Alcatraz’ detention center - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPR0NMNGtYZHFqLUxWbHVfQ1FmYmc1VENHRDM3LTYwNks1TFU3b2l0b2lEbmZlOVc2bXRCS2V3R0Q1dmtWWEFHRzR2OUN3ZzJEYzhXWHBKNm41elpKLVZDVEJBa25HWnhIZVNDUk81VEpWTUJJZE1NUzRRajZicXd3NXI5VWpYZ1NoRllWLVJXSkJCM1V2X0ZWTFg1TjY?oc=5) |
-| Former acting FBI director involved in Jan. 6 investigations fired - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxNNHVEQk43YnR4U2hieGJyU2ZEX2VzY1J5X2NKYjZBcVRYOUE4NjVsby0xRjdZTzhDdzlrNDZUQlRtRno1TnlLSUZ2ckdhemdvSnphQUFEQzdGV09taHpTVlI4S0ZlVm4xMXVpUjFzc2RzMTBiMjh5NDhPcUY5cER4TFFSajd6eGdXSUtpWVdWVk05Sjhib2pWMzFYbGtJY3dMcUd6MUwxb0VWeUZkNmgxNDMzdXFsS2dHd29jMkJqRWRUaUXSAVZBVV95cUxNUjdldGVKOXltdElmUlNyT1Z3bUo4VzdNUzRXMkxSY3NEQVVMcTFnWndVWFpLTDhScVNoanJIcHBPaWNUcy1seF9kT0tsOWRlNVpUVHZEdw?oc=5) |
 | Unarmed Fort Stewart soldiers tackled, subdued gunman who was "shooting their buddies," Army secretary says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQSndoaWc3X29JUW84OFVXR1RGZ0diY3ZhQnlGLS1EUmdqTnpLVHVpZFc1aEluamFHZmwwSHE5RTdJVk9qNFBqQWhQR2dsZzk4MnFzbldCa1g0VXR4bDF5ejg5ZHdBMWRnTVVMc1VBbzFUS3VLdHQyUnZXQWJXSFVkT1hIYlVIbXIwZm5V0gGQAUFVX3lxTE9JTHRKTlJjLUxLMzZvUjRacVFkVWtqVW5KdjI2MUhYZ1lYNlBfMmhfbDBqdUhtdjh0dmV3Qk80dW9vU2lpSkU4bGl5QV9uelRrZ0JSUE44VHBXM05SMmU3S25kWlVfR2tKX3FVZDZWTnV4Sl9VRVJzS21RU1dEbG4tTy1jb2FORnE5OHc1TnhGTg?oc=5) |
-| Here’s what could happen if Trump brings the National Guard to DC - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1jdi1JWWhKQjlKZHpWYW5PZ2NYQl9YNkl2ZGJtUS1aNkxhUU85aG84OUFzMTZVN00xUmZrUS0xOHg4VzZGZTdwdV9WaUlRNko5ekNBVnZHeW4xTmhaZHJXZXFvb3pnSkxJMmkwMC04bjRkdG9Oc0tvMmhhTlJBdw?oc=5) |
 | Epstein victims speak out: This ‘smacks of a cover up’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOY051SWdfQlFVTTE4cExRN0hwb0ItTGV1UEQ5OHJ6S0hKZ3FsbWIwWHNOX0JqNFhhNTMzczdscmZjYzFVR3FLbUFDTnhSVnFsbVRLcGpfSE1YYUk3bWJDbFdncmFiWUwyV0I3TnQ4TVA1NWZNeW5MQ3M1ZkpuLVlaZWJwdjh0T3FQWkNKSFpjVG9vVGxnOE5PYU9wWDZLbDZ0bTNQM3VpSmQ4NVRWcG5HMEpB?oc=5) |
 | The Texas gerrymandering showdown is about to get even messier - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQNVNiMHpzaTJJbzluV2lXQ1Q1MlgtUkhqY1oyVGpibzg4WWp0YS1fWF9XZ0prOGhpQ2JneEQwNlpEVFdMVkhmU1R0U0V1ODJwVUtYNmRRWGZFS3I2UDVRRVgybmV0Y2E4dFVZTHZoYk10TVBxUENHNkNRaFhuUFpaanlfeXhXalBTWHA4MzJuVVR5MzBjUVVGZGQzM2xkY21zak84?oc=5) |
+| Witkoff to brief Ukrainian and NATO officials on Putin meeting - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBiUjFjaVZ5OVRtYldSNlRZVnllRmF1cEdTRVAtakpXVWg3Rll4Z2pYVlRqc3dQM09XczAzQmNjcVZuaFFPT2pfWFJ2SGxmclBTeFNFNnlobEVfNko3djNCRWRQTldZeHhIOE1UZGZnelM3V3AyUVBFeTNZRGtDZw?oc=5) |
+| Here’s what could happen if Trump brings the National Guard to DC - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1jdi1JWWhKQjlKZHpWYW5PZ2NYQl9YNkl2ZGJtUS1aNkxhUU85aG84OUFzMTZVN00xUmZrUS0xOHg4VzZGZTdwdV9WaUlRNko5ekNBVnZHeW4xTmhaZHJXZXFvb3pnSkxJMmkwMC04bjRkdG9Oc0tvMmhhTlJBdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
