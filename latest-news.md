@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月08日 09:40:08（北京时间）**
+🕒 更新时间：**2025年08月08日 09:52:49（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | Homelessness Minister Rushanara Ali quits over rent hike claims | [阅读全文](https://www.bbc.com/news/articles/clyd3l2x2n8o?at_medium=RSS&at_campaign=rss) |
 | How a port clinic stopped my leg turning septic and could be the future of NHS care | [阅读全文](https://www.bbc.com/news/articles/cm21z711g59o?at_medium=RSS&at_campaign=rss) |
 | Britons booking 'later, closer, shorter' UK breaks | [阅读全文](https://www.bbc.com/news/articles/c939gx4gqwpo?at_medium=RSS&at_campaign=rss) |
-| Why Trump-Putin talks are unlikely to bring a rapid end to Ukraine war | [阅读全文](https://www.bbc.com/news/articles/c14gkkzvpx8o?at_medium=RSS&at_campaign=rss) |
+| US offers $50m reward for arrest of Venezuelan leader Nicolás Maduro | [阅读全文](https://www.bbc.com/news/articles/cwy1wn1x521o?at_medium=RSS&at_campaign=rss) |
 | Mushroom murderer's alleged attempts to kill husband revealed | [阅读全文](https://www.bbc.com/news/articles/cwy3ngr2n3vo?at_medium=RSS&at_campaign=rss) |
 | Daily weight loss pill could help patients lose 12% of body weight | [阅读全文](https://www.bbc.com/news/articles/czerly4wwwyo?at_medium=RSS&at_campaign=rss) |
 | Serious offenders to be kept in restricted zones under plans | [阅读全文](https://www.bbc.com/news/articles/ce832zyg1vlo?at_medium=RSS&at_campaign=rss) |
@@ -27,11 +27,11 @@
 | The Texas gerrymandering showdown is about to get even messier - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQNVNiMHpzaTJJbzluV2lXQ1Q1MlgtUkhqY1oyVGpibzg4WWp0YS1fWF9XZ0prOGhpQ2JneEQwNlpEVFdMVkhmU1R0U0V1ODJwVUtYNmRRWGZFS3I2UDVRRVgybmV0Y2E4dFVZTHZoYk10TVBxUENHNkNRaFhuUFpaanlfeXhXalBTWHA4MzJuVVR5MzBjUVVGZGQzM2xkY21zak84?oc=5) |
 | India Bought Russian Oil. Now It’s a Trade-War Weapon. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBTU05CcFZ5bmRRYTdwUmV3R2xFRWgtZVk2eUxPUWRvLWdQdmRYUWNpYVVDRkZLLVhpMHpzVG1qNzdXSEtfZDM0bndrdkl4bW9zRTlsYWRfQ3JfWWRlNnRWNmF0WldldGRadjhFU2VPMlBPODY0enp4Uzg4UQ?oc=5) |
 | Trump orders colleges to share admissions data, with an eye on affirmative action - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPQkdYejdiblI3VGg2TEpBZ3psSzlzMkxkTDQ1clFSaDVxak8zbmpiRkZ6a2hGRFg2dG11TmhkVVBkR3g4WEkxaF94VHZIa0NuRk5hUEtKZXNBWkhwemtPVU1sRlp3UFhEZ1RESFQxclBqdFh1VTZVTWlLOENDVEhuWlVGaFFiUnRGdnExaWp5c1lXUQ?oc=5) |
-| Trump wants to change the census to exclude undocumented immigrants. Here's how the census works - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5Ca0hPM2RkX0U5OGJBNDVtZTA2QTJUX2pXcUluSTREbWNjQVJXM2RyZmNvWjk5eDRidnVvLUJMRTFPM2lpT1Uxb0RDTkVIZ0NQOVJoSnEtaDg5eW9UaEVicW0xV2x2RUpIR2NacXZ2X1R4OWlIdm1xTGhWWdIBgAFBVV95cUxQV1h1N3lha052TEpPR1FEZTBYRDJyQ2FmSG9ONm9yTE4zT3pKRjNFWEc1SEJsMEpDcG9URFlSbmp4cDk1QkYtemRYTXN6VF9QZHQ3bzRxRlJzb2ZIUW5iT0NLMlV4V084YzZoXzVwV0RyN005UHBCYk5KWnBIdGZvTQ?oc=5) |
-| Judge orders temporary halt to construction at Florida’s ‘Alligator Alcatraz’ detention center - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPR0NMNGtYZHFqLUxWbHVfQ1FmYmc1VENHRDM3LTYwNks1TFU3b2l0b2lEbmZlOVc2bXRCS2V3R0Q1dmtWWEFHRzR2OUN3ZzJEYzhXWHBKNm41elpKLVZDVEJBa25HWnhIZVNDUk81VEpWTUJJZE1NUzRRajZicXd3NXI5VWpYZ1NoRllWLVJXSkJCM1V2X0ZWTFg1TjY?oc=5) |
+| Trump seeks to change how census collects data and wants to exclude immigrants in US illegally - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOeVdKSGdkdVp4YVVCUVhCNE5hZHlydm9NX1dEVnBkVVpYc3ctTzlsOUk2eWo5VzM1M3VFdjdqRmU2Um05TUVkVUhSYTZnVWF6UlJVbDBVeVdZdy14WDhKRkZuRjBBWHUtOUQ1NEM5eDNlM0dweTQxS3JQNHV3Vnc4X1VGMzc2ZWxUTThET3FTZEJ1SXUzXzcw?oc=5) |
+| Judge orders temporary halt to new construction at Alligator Alcatraz - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNbmJ0RVExZnVvZXFiQmJVVXROb1hOX3hQbHNVV1F6b05MU3l3U292SjZHVTZkUk45M2d6aGlxcm43RThZenoxTkZTa2Nqa3RfQmtzUTZ3WWVFNjdVa1p6ZTh3N0RsSDdmTWdNRVM2SmswdTI0MkRQcldvLXp6enEtN3pSeTZ0OXhpd3NhV3dzY1o1Ujh1eVRn?oc=5) |
 | Unarmed Fort Stewart soldiers tackled, subdued gunman who was "shooting their buddies," Army secretary says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQSndoaWc3X29JUW84OFVXR1RGZ0diY3ZhQnlGLS1EUmdqTnpLVHVpZFc1aEluamFHZmwwSHE5RTdJVk9qNFBqQWhQR2dsZzk4MnFzbldCa1g0VXR4bDF5ejg5ZHdBMWRnTVVMc1VBbzFUS3VLdHQyUnZXQWJXSFVkT1hIYlVIbXIwZm5V0gGQAUFVX3lxTE9JTHRKTlJjLUxLMzZvUjRacVFkVWtqVW5KdjI2MUhYZ1lYNlBfMmhfbDBqdUhtdjh0dmV3Qk80dW9vU2lpSkU4bGl5QV9uelRrZ0JSUE44VHBXM05SMmU3S25kWlVfR2tKX3FVZDZWTnV4Sl9VRVJzS21RU1dEbG4tTy1jb2FORnE5OHc1TnhGTg?oc=5) |
 | Epstein victims speak out: This ‘smacks of a cover up’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOY051SWdfQlFVTTE4cExRN0hwb0ItTGV1UEQ5OHJ6S0hKZ3FsbWIwWHNOX0JqNFhhNTMzczdscmZjYzFVR3FLbUFDTnhSVnFsbVRLcGpfSE1YYUk3bWJDbFdncmFiWUwyV0I3TnQ4TVA1NWZNeW5MQ3M1ZkpuLVlaZWJwdjh0T3FQWkNKSFpjVG9vVGxnOE5PYU9wWDZLbDZ0bTNQM3VpSmQ4NVRWcG5HMEpB?oc=5) |
-| Here’s what could happen if Trump brings the National Guard to DC - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1jdi1JWWhKQjlKZHpWYW5PZ2NYQl9YNkl2ZGJtUS1aNkxhUU85aG84OUFzMTZVN00xUmZrUS0xOHg4VzZGZTdwdV9WaUlRNko5ekNBVnZHeW4xTmhaZHJXZXFvb3pnSkxJMmkwMC04bjRkdG9Oc0tvMmhhTlJBdw?oc=5) |
+| Trump increasing federal law enforcement in DC beginning Thursday night - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1CSXpYQkVtZkpsZTYzdkJHYTdhV3prcGpaaXUybENEeHJQSmxwZE55Z3NYYXRyeVRKVmhjQ0IzTXltbHZUcldPVWhheFd5VVFUcmpHODdCZ3c4bUlZLWF6WldNQXpIaUJyZkt0Y3lKaWpkNlNCQkVLODFib0fSAYIBQVVfeXFMTkw3endxbk40OG9EbW03bUJaeXEwSmhRRW1jYXZxSXlQMjJrRjZ3YWxyejE3Y1NqOFFfazdCeXoyZF9sd1JhTEc5Y2luX2h3M1pGSUFuR3FYZ3lzU1BEVEpZSkdRbmdkOWZ2NjA0OUxndEJ0eVFMeEU0aHlsRHRBMU5qZw?oc=5) |
 | Witkoff to brief Ukrainian and NATO officials on Putin meeting - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBiUjFjaVZ5OVRtYldSNlRZVnllRmF1cEdTRVAtakpXVWg3Rll4Z2pYVlRqc3dQM09XczAzQmNjcVZuaFFPT2pfWFJ2SGxmclBTeFNFNnlobEVfNko3djNCRWRQTldZeHhIOE1UZGZnelM3V3AyUVBFeTNZRGtDZw?oc=5) |
 
 ---
