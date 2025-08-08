@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月08日 13:53:55（北京时间）**
+🕒 更新时间：**2025年08月08日 14:01:34（北京时间）**
 
 ---
 
@@ -8,16 +8,6 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Netanyahu divides Israelis and allies with plan for new military push in Gaza | [阅读全文](https://www.bbc.com/news/articles/cj4w2q9k4pjo?at_medium=RSS&at_campaign=rss) |
-| Courts service 'covered up' IT bug that caused evidence to go missing | [阅读全文](https://www.bbc.com/news/articles/cwye2q00k51o?at_medium=RSS&at_campaign=rss) |
-| Homelessness Minister Rushanara Ali quits over rent hike claims | [阅读全文](https://www.bbc.com/news/articles/clyd3l2x2n8o?at_medium=RSS&at_campaign=rss) |
-| How a port clinic stopped my leg turning septic and could be the future of NHS care | [阅读全文](https://www.bbc.com/news/articles/cm21z711g59o?at_medium=RSS&at_campaign=rss) |
-| Later, closer, shorter - the holidays Britons are booking this summer | [阅读全文](https://www.bbc.com/news/articles/c939gx4gqwpo?at_medium=RSS&at_campaign=rss) |
-| Mushroom murderer's alleged attempts to kill husband revealed | [阅读全文](https://www.bbc.com/news/articles/cwy3ngr2n3vo?at_medium=RSS&at_campaign=rss) |
-| Is Perrier as pure as it claims? The bottled water scandal gripping France | [阅读全文](https://www.bbc.com/news/articles/cyvn3qe0jpgo?at_medium=RSS&at_campaign=rss) |
-| Waterstones apologises after readers brand annual Bookfest event 'utter chaos' | [阅读全文](https://www.bbc.com/news/articles/ckg47k4zelyo?at_medium=RSS&at_campaign=rss) |
-| Serious offenders to be kept in restricted zones under government plans | [阅读全文](https://www.bbc.com/news/articles/ce832zyg1vlo?at_medium=RSS&at_campaign=rss) |
-| Mandalorian actress settles lawsuit with Disney over firing | [阅读全文](https://www.bbc.com/news/articles/c5ylqvl4p3yo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
