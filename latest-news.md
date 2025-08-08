@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月08日 14:53:49（北京时间）**
+🕒 更新时间：**2025年08月08日 15:00:36（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | Later, closer, shorter - the holidays Britons are booking this summer | [阅读全文](https://www.bbc.com/news/articles/c939gx4gqwpo?at_medium=RSS&at_campaign=rss) |
 | Mushroom murderer's alleged attempts to kill husband revealed | [阅读全文](https://www.bbc.com/news/articles/cwy3ngr2n3vo?at_medium=RSS&at_campaign=rss) |
 | Is Perrier as pure as it claims? The bottled water scandal gripping France | [阅读全文](https://www.bbc.com/news/articles/cyvn3qe0jpgo?at_medium=RSS&at_campaign=rss) |
-| Waterstones apologises after readers brand annual Bookfest event 'utter chaos' | [阅读全文](https://www.bbc.com/news/articles/ckg47k4zelyo?at_medium=RSS&at_campaign=rss) |
 | Serious offenders to be kept in restricted zones under government plans | [阅读全文](https://www.bbc.com/news/articles/ce832zyg1vlo?at_medium=RSS&at_campaign=rss) |
-| Mandalorian actress settles lawsuit with Disney over firing | [阅读全文](https://www.bbc.com/news/articles/c5ylqvl4p3yo?at_medium=RSS&at_campaign=rss) |
+| Waterstones apologises after readers brand annual Bookfest event 'utter chaos' | [阅读全文](https://www.bbc.com/news/articles/ckg47k4zelyo?at_medium=RSS&at_campaign=rss) |
+| Suspected people smuggler arrested after BBC investigation | [阅读全文](https://www.bbc.com/news/articles/c3wnd58zyx8o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
