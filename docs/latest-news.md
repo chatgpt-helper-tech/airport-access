@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月08日 20:52:28（北京时间）**
+🕒 更新时间：**2025年08月08日 21:00:42（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump seeks to force universities to turn over admissions data on race - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNa1pNcW1jRFJOb2VqeGlfV1Qza2JXeXlhN190MjVxVk1TVEpYM1h1SGdUdHNaMkFwZ2J4MTdRVU0xRVcwX0dLa3dJSlR2VDdNanljcDU1SG8ybGN1cF8xTjROVzliU3NUTzhxZEU0ajVxOERULW5UNEF4ODl6WHB2OE5iaWNoZUFPeEoyZVY4bkRXbE0?oc=5) |
 | MAGA world swallows a difficult truth: Arresting Trump’s opponents is easier said than done - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOMEhkREdKTm9RaW1DWXg2TWY5UTFfWnZ1REVHa0s4TlAyNjlNRUJwQlNLakNvRG52TEtlZjRVUTE2X0dVYl9TVWpLeTJWeE1BRlJxWU5DVnRVZzl2SGN6VTVMb2d1T2JTaEZaa3N3SmpucEFUdWpmTEJfYlhVUVhtV2xMdm4tSjRzc2RB?oc=5) |
 | Three more victims of 9/11 identified by New York coroner's office - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQdTV0ZE44Tnp0aDNKRnBweVk1N2VwNDk3bXRVbnJsNkZ4ZW1jdjdTOHc4WHo1aEVZRkNNZVpvSlFadkNoWWRtM3dKYVVVWmRtYlJKQVRmejBoYmdSaXZZWTJ4cWNQUFEwWjIxc0J0ZWVIMjJrRkZFbDFFbE5yWFZyZEJPMkFlTHlmUDVHNFBjM1lzQmwxSGNheG5VYXNObGZFUGpqV2pjYlRiUdIBVkFVX3lxTE5UYzNxYnBIa3hrMFp2Z283bVgxMHdHbExtb2tmS3BJLW9qWmN4eC1vakpEYmRxNXRyQ3FSeGhOd0FmWjk4V2lxSklQcWZhZlZfWWIxbXdB?oc=5) |
+| Trump calls for major changes to census amid GOP redistricting effort - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPYlVJdmNXTmhRN25WWVc5NVZuVUp6ODRGYTlKREZndnhFdmtRVUhHTlhvTzB5cHpWb0wwcnNzSmpObTgzSUpNTHR5X1I1OGhKRFNJZmtLU3VlSk0tUWlhamFtcWhvVkdiSmdrVVdVNnE4MzBkWEVKSGJKd2NOMnVTV2tDaUJNQ0YtcVdTTnktT1JBd1BpWTBDd0VtLWxtQ09zbThQejgtM3huR0JITU1IdmJLQjY?oc=5) |
 | Eleni Kounalakis drops out of California governor’s race, pivots to downballot campaign - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNRURiMWlNbVpJb09kZm9hWi02MmtidU5ieGxKRmk1dy1YUXpDQXN0UkZ5WFEwZ0dsckE5R1Zjd1BzT2o3ZkNZc0FtVTJNUUxiUFlJck03RW1tZmQ3cXg0UWRLcTJzLXhMQlA0bk93NVlGelFjMUFJS1NzYlZIODVHZkYySlRuazY1RUh0OGRTeWZkaldsdGpIWUp6bnQ3LWVpVzB3QktEVG4?oc=5) |
-| Trump’s Oval Office ‘session’ on the economy? Charts about Biden. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQMTdlellDQUp4YWRIZGxOZ3RpUi12NkJreWRGamVqNkRfY0xYbU5ySEVncHdtblJVdVNFblo1MlFfZlpCTUZZdkllc0xVVW9NUGI5cnhNSkpmQTU3X0Q2Z1pGQTNxdnNSVXZmNTFZN0lhYmlULXcxa0l6cWQxYzEwYVFPZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
