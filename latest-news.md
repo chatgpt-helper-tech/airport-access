@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月08日 11:14:30（北京时间）**
+🕒 更新时间：**2025年08月08日 11:26:13（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump plans to force new disclosure of college admissions data - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQOUlsU3ZvMnJTcUttSkpKM09FdXJEUzZ6MWlOamwzMGY0MElQZjFGdk1aLXQ5TV9zUTRDMDQ5RWkxTFR2dm5Dbk4ybVhZM25LVFJQbW1raXNJSXA3bzBFTUhrSlNnSmdsbUw0azdfMnU5NnRaQTdDWDkwWlhqZjRkMDB0bDk2bTBoQ0VzRFhucWhOb2lFRnV3YkNkd3E?oc=5) |
 | Trump announces federal law enforcement will patrol DC - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOUnlzU21KdFhMN2ZscXJHV0g5eG9zc21iMEN5d05BaElmbGwtaTkwVXJrUVowQ2VVVzVjYmRuTGQ2Ty1BckNkQVJfQXVjVFVyb1d2cDlBQjZkcHV1Yzg4aFdJQWY4YU9tN280eWVQbk1yYnF6ZDY2XzlTRjRnSUtGWlk3MnR3RGlKUWwyUllaUHBjTU1fUEY1ZEJ6alpfYnBiZnVUazNMZ2E2WjVERjRVVkhGS2tuNnM?oc=5) |
 | Unarmed Fort Stewart soldiers tackled, subdued gunman who was "shooting their buddies," Army secretary says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQSndoaWc3X29JUW84OFVXR1RGZ0diY3ZhQnlGLS1EUmdqTnpLVHVpZFc1aEluamFHZmwwSHE5RTdJVk9qNFBqQWhQR2dsZzk4MnFzbldCa1g0VXR4bDF5ejg5ZHdBMWRnTVVMc1VBbzFUS3VLdHQyUnZXQWJXSFVkT1hIYlVIbXIwZm5V0gGQAUFVX3lxTE9JTHRKTlJjLUxLMzZvUjRacVFkVWtqVW5KdjI2MUhYZ1lYNlBfMmhfbDBqdUhtdjh0dmV3Qk80dW9vU2lpSkU4bGl5QV9uelRrZ0JSUE44VHBXM05SMmU3S25kWlVfR2tKX3FVZDZWTnV4Sl9VRVJzS21RU1dEbG4tTy1jb2FORnE5OHc1TnhGTg?oc=5) |
-| Epstein victims speak out: This ‘smacks of a cover up’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOY051SWdfQlFVTTE4cExRN0hwb0ItTGV1UEQ5OHJ6S0hKZ3FsbWIwWHNOX0JqNFhhNTMzczdscmZjYzFVR3FLbUFDTnhSVnFsbVRLcGpfSE1YYUk3bWJDbFdncmFiWUwyV0I3TnQ4TVA1NWZNeW5MQ3M1ZkpuLVlaZWJwdjh0T3FQWkNKSFpjVG9vVGxnOE5PYU9wWDZLbDZ0bTNQM3VpSmQ4NVRWcG5HMEpB?oc=5) |
 | Canyon Fire in Ventura County Prompts Evacuation Orders for Thousands - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5YS2tZRnhsTzhUOV9udWhhOGtORXRwQVNBVnVSYmpjelNlZ29sZmpTNHp4cjRfVnRPUlBwNUFnS0tPejRKM1ZFUHhoeFRvSU1OZFZQT0pVU2RRMHVNcW85RGd1OUpDb3Q1Q1pRY1oxNXAxYzhycUY3QQ?oc=5) |
+| Epstein victims speak out: This ‘smacks of a cover up’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOY051SWdfQlFVTTE4cExRN0hwb0ItTGV1UEQ5OHJ6S0hKZ3FsbWIwWHNOX0JqNFhhNTMzczdscmZjYzFVR3FLbUFDTnhSVnFsbVRLcGpfSE1YYUk3bWJDbFdncmFiWUwyV0I3TnQ4TVA1NWZNeW5MQ3M1ZkpuLVlaZWJwdjh0T3FQWkNKSFpjVG9vVGxnOE5PYU9wWDZLbDZ0bTNQM3VpSmQ4NVRWcG5HMEpB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
