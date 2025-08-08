@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月08日 16:40:45（北京时间）**
+🕒 更新时间：**2025年08月08日 16:53:27（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | A walk-in fishermen's clinic saved Tom from sepsis - and could transform the NHS | [阅读全文](https://www.bbc.com/news/articles/cm21z711g59o?at_medium=RSS&at_campaign=rss) |
 | MP Rupert Lowe mistakes charity rowers for 'illegal migrants' | [阅读全文](https://www.bbc.com/news/articles/cdd32lnq445o?at_medium=RSS&at_campaign=rss) |
 | Is Perrier as pure as it claims? The bottled water scandal gripping France | [阅读全文](https://www.bbc.com/news/articles/cyvn3qe0jpgo?at_medium=RSS&at_campaign=rss) |
-| Homelessness Minister Rushanara Ali quits over rent hike claims | [阅读全文](https://www.bbc.com/news/articles/clyd3l2x2n8o?at_medium=RSS&at_campaign=rss) |
 | Suspected people smuggler arrested after BBC investigation | [阅读全文](https://www.bbc.com/news/articles/c3wnd58zyx8o?at_medium=RSS&at_campaign=rss) |
 | Waterstones apologises after readers brand annual Bookfest event 'utter chaos' | [阅读全文](https://www.bbc.com/news/articles/ckg47k4zelyo?at_medium=RSS&at_campaign=rss) |
+| Southern European butterfly spotted in UK for first time | [阅读全文](https://www.bbc.com/news/articles/cwy1wgly21zo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
