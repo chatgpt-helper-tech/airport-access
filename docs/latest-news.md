@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月08日 23:01:03（北京时间）**
+🕒 更新时间：**2025年08月08日 23:13:24（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | ‘Special session after special session’: Abbott says he’ll continue until redrawn maps are passed - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQOG5RUkpyN3hoT1lVWG5IN1B6TVVJaVhTUDBhRTd4cWFhQnpLVk9DNXJnR2pzVTNzN3lndkpzd3NCT2FGNWNfWHZmaThzbHJ1TzdNTUxTY1RUNWdKbkV6bDkwakpTTWNndnZoZVU4LW92Ym9MRHZPMzRHcEZNeGZTSVNiVDduR3Z2emVMTDBhbGdNSUdMRm9kTERrT0xnclE?oc=5) |
 | Rapidly spreading brush fire prompts evacuations for thousands in California - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFBjMUpYUHVndGNDTG1QRGpuVGM5RGt5ZUZWWDhjQUJDSDJaYjYzUllxS1hkdGc1cy1Cc2E4U0FoMVVBVzZMb1FyTUNkSUdqc1JPMllFNkhEcGszcElSVlcxa3RmOVNvM2Fxc2hGQ0Uwc1dSeTR0TjNLNER3?oc=5) |
 | Germany stops military exports that could be used in Gaza - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxONlBXVDFxR25Jb0ZNTjdxVmJxRHRCZzF3YXFoa0U2TjBPbDR6cmZRLTUyU1p1eGJaalVhVXZvUzdOYkJsUnJRMzU1enNORkJFMENPdWFYWndfamdRS3pnaXFBd3pQbFdnV2ZUMTlqcmZCWW9BOGpFMmNOMENtUERlLWlaRXRLZlJNSWo0?oc=5) |
-| India's Modi vows no compromise on farmers' interests after Trump's higher tariff announcement - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxON1BfSWVRLW1NZ3VWellBRU9hX00ySTRIdXh5dWFGUm5YM1RmREZnd1RsRDVoS2g1WGZnbDhfbUE1a3ZKQThMc29zaHFwNEVzNmRWaTZsYjRScVVWNUszSkxLcmRWZ3dGWVpzZU16eWgwY2ctNzZ1Z0RvTnJCSUNyRGZMYno1WkRLN3pnZ2I3QTVkdGZRT1pKMkxWNjRsUzBfQXZmTU9BYWtVYjRDM1pqMEtLXzgtYV91c2NyNmQ4XzU?oc=5) |
+| ‘He is completely upset’: Why Trump scrapped an India trade deal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE8xVi1FMGZPMHRvSzJrb1ZORTlERWItbXdZa1JVSkdWWm9IX0p4WUdPSmF5Y0trMnhMa0V0WVVQa1NhWnBUd3NuS3RraHhpX1hpSmJzZTVuNnhtT0s5emU3cGVxMHItcXh3bXNJWTBKQXRKWVZzYi1CWEpONzA?oc=5) |
 | NASA plans to put a nuclear reactor on the moon. Here's what that means - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQR2NwWGVHam51SmpMR0h6V3NIQXdNVG9Mc09kakhzNXd5d2FEQTBkNDVVUllMSmNvcHdKV25GckQ0azN5ZjhaRU1UMmtRSllVOVRnWU5ReWgtc3FFb0JPRUtDVnY2N050WmRYYjNxRUpObGQ5YlJSZGlLZ3NKTEowVlNIMDBkdVFnbENGaXplM2o?oc=5) |
 | Trump Escalates a Fight Over How to Measure Merit in American Education - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOUTk4M1AyUzVMX1o3M3pTSmJPMGZmS3NKNC1kUGlzcDc3UWU2NWd3SlFrNUVTN0swc3pMalRralR2WlhoWnU0eFVhM0UxNnRTdkJxSEpKeUdnUDlJemZFVUxIMGxZeUVuTHJ5SG5ZNHluSnVFWFhJRUtMTFBrV0F5c3g2eXFnVE4zSFE?oc=5) |
-| MAGA world swallows a difficult truth: Arresting Trump’s opponents is easier said than done - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOMEhkREdKTm9RaW1DWXg2TWY5UTFfWnZ1REVHa0s4TlAyNjlNRUJwQlNLakNvRG52TEtlZjRVUTE2X0dVYl9TVWpLeTJWeE1BRlJxWU5DVnRVZzl2SGN6VTVMb2d1T2JTaEZaa3N3SmpucEFUdWpmTEJfYlhVUVhtV2xMdm4tSjRzc2RB?oc=5) |
+| Justice Department Subpoenas Office of Letitia James, a Trump Nemesis - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPbzFGM0tjd21LR1pITFk5bG9rZzZoX2x6dVNlcUVqWkRuTmNrbXktWGt2UmhfNm95SWs3QWxGaTlXSm9vd2VFUHk1V254WUF3MlJRQVpSN18xN0F2Y1FkQVAxdnhGS29Wd0NhRnp4U1Q3clEzSzJzYndXdVlDT3E4NHFFRzJIa1FY?oc=5) |
 | Trump orders increased federal law enforcement presence in Washington to 'make DC safe again' - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOLWh0TnNPcnFWOEIzSjhhMEhQWTdXM0l5R2FJZGpMSjNyNE1UTTBwZHhnOTc0WlhpRXFzLXhjWWlfUlJYc1VDMXJLT0lVdWRfX3d1by1XM3g2eHBLdGFLVFk2VFltUzU2ODdGYzM4bUZrVkxTel92SWR1ODZhdXRiZDR4TnBUOHY2VDVKYXdrMHhscTE2M0xSRVV0YjZmT040U2dlTXpSWXNxUWJxOFVxdGExU1dfQUlaOEdB?oc=5) |
-| Moose that forced closure of New York hiking trail is put down after showing signs of deteriorating health - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBGekxPaHk1SElsME81NXNmRDNWbE9lZ0FJdWdNWkV1eDVqLVJNUEpqWEpIcmpncUt6UllqOURkN21fN2dGckMxNmFlQ0RMZFlYS3p1N1JpZ2sxQW5jM3NfQzFaa0xUT3FJdDRyX1d2WHNXMEk4RjVELUtJM3TSAYIBQVVfeXFMUEJXeVZLeEVpYWdsVTItb2RFYjJvalpmRjZERk9IZlZXSmxYWEd1cDE0RC1QVlg1QlAzSk1femxoei1pM1FRTVdUOGZoTHlGV09WWFZvV2Y1YWtWU2hZamV6MnBjRXA4VnhaTHpzM0lGLXhRdkUzZ0x3ZVpJVTA5VkhKdw?oc=5) |
+| MAGA world swallows a difficult truth: Arresting Trump’s opponents is easier said than done - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOMEhkREdKTm9RaW1DWXg2TWY5UTFfWnZ1REVHa0s4TlAyNjlNRUJwQlNLakNvRG52TEtlZjRVUTE2X0dVYl9TVWpLeTJWeE1BRlJxWU5DVnRVZzl2SGN6VTVMb2d1T2JTaEZaa3N3SmpucEFUdWpmTEJfYlhVUVhtV2xMdm4tSjRzc2RB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
