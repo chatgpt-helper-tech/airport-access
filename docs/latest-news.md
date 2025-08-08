@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月08日 21:53:33（北京时间）**
+🕒 更新时间：**2025年08月08日 22:00:29（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Netanyahu, Aiming to Capture Gaza City, Reverts to a Failed Military Strategy - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQNFZXMFpNMlNlSDhRLXN5YWtZekRuWThrS2VlbmtTUmZUamlsNVpqaTJWaGhVYm11WHQtUFdPVVA0MlhwUkc2Qk5qS1IxMDZNcHNvSjB0U05fWEZpMDlZY1BNazBUS18zcG5CUW5GNGVvdzYzWUFlVXRNOGJ4Q3RMa0w5MzlMX1lSLURyeVV0WFRXN0J3blpiZTlzM21QZw?oc=5) |
+| Satellite images show Israel building up forces for a possible ground invasion of Gaza, sources say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxOSG45Nm9lZU84ZGl5RjIxWVQ5OFpvbzFfUDQ0ZXpOWHV1cmhGWWt1YVRfZWFkZFJzd1k3Zkthc1BKUC16OHE4WEpkVVNxUXlNeGx5akJ5RHRIdWIwTnZEbjRSN0Jpa1k1ZDZsRW54R3N1R2Y3U0VsMGlxaTRsbm1YSTI5UE5nUVJvN0k3bnFXT3V6S180VUJJUVhZR2dwWVA5bU9PRW9WNENUQ2pma3V6UXNqdFhDd2xXNG5od2F0d0tVS1RraVlXVEV1SQ?oc=5) |
 | GOP's Texas map has Austin residents sharing district with rural Texans 300 miles away - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOckdseVRGX0czUWE2TDVmbFk2QjJERTlLRUJkZFFzX3pObUZJTnl5a3ByOTFiZFhUcGZJQUU3bHRRRHRyS01ZTG9fRkQyU3Z4VGpYMlpOZ0UyRmQ4aE94UkNQSi11S01QTDFKUjFDTHBDSC1WMjJhS01ibUVza3hqdldnQ1B2SmxzdExLYU1jazg5dk9fa05CczlBRUZEUXFYWU1iTHpQeUjSAa4BQVVfeXFMUE1PYk85UEJ1M09HcGFpaVJjaGMwTk5BWWZvNjJuZktyaThBbThBTDNRM1d3VGZqdUYxOFFsSVhYTnRjNmtDc0ZaUEFDZ1hIaVRsMlI1cFZocG9GRnRmUUdibTZLWUYxUUVnZXRkWW9pQzFYV05FWUVnb2RWYkhjX1hXUlNrcnZoM2ZZQUVkbkZYVnI1RDg3ZU5LbTUyMHo5Z0lmU0dYUkh5enVoQ1Zn?oc=5) |
 | Canyon fire explodes to nearly 5,000 acres; thousands evacuated in L.A., Ventura counties - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1FRWtQMG90UTlVcDJGQWp5Z1o3Zm9TM3FsaUlqUWZhamg4M1ZkYlFpQW5iTXFvYUhaTUQwMmdZUXNwUks0UERPaHctcEI0TEVtTlVZV3VZWmNJUFNJY1V4bkV2M2dCa0lWbXNfX3hyc3AyUE9uQkFIMg?oc=5) |
 | ‘He is completely upset’: Why Trump scrapped an India trade deal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE8xVi1FMGZPMHRvSzJrb1ZORTlERWItbXdZa1JVSkdWWm9IX0p4WUdPSmF5Y0trMnhMa0V0WVVQa1NhWnBUd3NuS3RraHhpX1hpSmJzZTVuNnhtT0s5emU3cGVxMHItcXh3bXNJWTBKQXRKWVZzYi1CWEpONzA?oc=5) |
 | NASA plans to put a nuclear reactor on the moon. Here's what that means - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQR2NwWGVHam51SmpMR0h6V3NIQXdNVG9Mc09kakhzNXd5d2FEQTBkNDVVUllMSmNvcHdKV25GckQ0azN5ZjhaRU1UMmtRSllVOVRnWU5ReWgtc3FFb0JPRUtDVnY2N050WmRYYjNxRUpObGQ5YlJSZGlLZ3NKTEowVlNIMDBkdVFnbENGaXplM2o?oc=5) |
-| Trump increasing federal law enforcement in DC - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1CSXpYQkVtZkpsZTYzdkJHYTdhV3prcGpaaXUybENEeHJQSmxwZE55Z3NYYXRyeVRKVmhjQ0IzTXltbHZUcldPVWhheFd5VVFUcmpHODdCZ3c4bUlZLWF6WldNQXpIaUJyZkt0Y3lKaWpkNlNCQkVLODFib0fSAYIBQVVfeXFMTkw3endxbk40OG9EbW03bUJaeXEwSmhRRW1jYXZxSXlQMjJrRjZ3YWxyejE3Y1NqOFFfazdCeXoyZF9sd1JhTEc5Y2luX2h3M1pGSUFuR3FYZ3lzU1BEVEpZSkdRbmdkOWZ2NjA0OUxndEJ0eVFMeEU0aHlsRHRBMU5qZw?oc=5) |
+| Trump Orders Deployment of Federal Law Enforcement in Washington, D.C. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNSm5yNkJrQktEallYSVdSdTFRX3gyUHhuX3FHSk5HS0NfbDRacVJ6cmF6M1luY0NVOGFaX18yMzdCWThKTnhfVGM1SjRTb0ViNkNRT2FSLVJTdEg2bjZIQ0lEZ0c2T0NscTZNRldFUHNhbHlkRDBKN1d2anBiaWJ2SFpQVERtMjFDeVZUUlA1Zw?oc=5) |
 | MAGA world swallows a difficult truth: Arresting Trump’s opponents is easier said than done - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOMEhkREdKTm9RaW1DWXg2TWY5UTFfWnZ1REVHa0s4TlAyNjlNRUJwQlNLakNvRG52TEtlZjRVUTE2X0dVYl9TVWpLeTJWeE1BRlJxWU5DVnRVZzl2SGN6VTVMb2d1T2JTaEZaa3N3SmpucEFUdWpmTEJfYlhVUVhtV2xMdm4tSjRzc2RB?oc=5) |
 | Three more victims of 9/11 identified by New York coroner's office - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQdTV0ZE44Tnp0aDNKRnBweVk1N2VwNDk3bXRVbnJsNkZ4ZW1jdjdTOHc4WHo1aEVZRkNNZVpvSlFadkNoWWRtM3dKYVVVWmRtYlJKQVRmejBoYmdSaXZZWTJ4cWNQUFEwWjIxc0J0ZWVIMjJrRkZFbDFFbE5yWFZyZEJPMkFlTHlmUDVHNFBjM1lzQmwxSGNheG5VYXNObGZFUGpqV2pjYlRiUdIBVkFVX3lxTE5UYzNxYnBIa3hrMFp2Z283bVgxMHdHbExtb2tmS3BJLW9qWmN4eC1vakpEYmRxNXRyQ3FSeGhOd0FmWjk4V2lxSklQcWZhZlZfWWIxbXdB?oc=5) |
 | Eleni Kounalakis drops out of California governor’s race, pivots to downballot campaign - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNRURiMWlNbVpJb09kZm9hWi02MmtidU5ieGxKRmk1dy1YUXpDQXN0UkZ5WFEwZ0dsckE5R1Zjd1BzT2o3ZkNZc0FtVTJNUUxiUFlJck03RW1tZmQ3cXg0UWRLcTJzLXhMQlA0bk93NVlGelFjMUFJS1NzYlZIODVHZkYySlRuazY1RUh0OGRTeWZkaldsdGpIWUp6bnQ3LWVpVzB3QktEVG4?oc=5) |
-| Trump calls for major changes to census amid GOP redistricting effort - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPYlVJdmNXTmhRN25WWVc5NVZuVUp6ODRGYTlKREZndnhFdmtRVUhHTlhvTzB5cHpWb0wwcnNzSmpObTgzSUpNTHR5X1I1OGhKRFNJZmtLU3VlSk0tUWlhamFtcWhvVkdiSmdrVVdVNnE4MzBkWEVKSGJKd2NOMnVTV2tDaUJNQ0YtcVdTTnktT1JBd1BpWTBDd0VtLWxtQ09zbThQejgtM3huR0JITU1IdmJLQjY?oc=5) |
+| Frustration mounts as Japan questions details of Trump’s trade ‘deal’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOcEdYeWFCR3ZlVnctYklReTJpcFlPcnZvcHFBak9GTWx4OU1VUHdfTkVkejAtdmJUSFByWG9BZ01vLWtGTkVJT25WNVNzdXpUcHZCOXN3UXpNY3dvUGxFdURsMmtmUVFFVi04bzNOX0RBRlA3ZUN0OWFaeHZxTXhjb1FB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
