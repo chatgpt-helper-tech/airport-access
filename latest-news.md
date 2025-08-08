@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月09日 01:00:41（北京时间）**
+🕒 更新时间：**2025年08月09日 01:14:20（北京时间）**
 
 ---
 
@@ -23,6 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Keir Starmer condemns Israel's plan to take over Gaza City - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5mQXRFVnoyRDFDMzdMQ0Y3NnF3NWpXY1hqSldpZGtNNWtZNGo4X0pVaDNEbXhKcmJOeC1MOHp0NEhFRlZySzdfbTJKWlI4amVVNFdFWmpFeENRd9IBX0FVX3lxTFB6VF85VFJhalp2dmlmWTFYb0NCMUxqUWg0TVhKVldhLW5qYkloWk1ELTNLeWdpd0ZvR0dpNUVjcXBiZE13WnRWbER3NmZINV91V0RuRUhwVUVGNGl1ZWxN?oc=5) |
+| DOJ opens investigation into New York AG's office that brought fraud case against Trump - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxPNVRLZ0xINGtKWDktcWJjRTB0RFhpZWZ6SDEyVkFFdGpDT2txeWpBam1NOHVKelFNU2hrY2Q2cWN4MlRrakVxckd4akVXeTZnSFRJd1VzanZ2TUUwSVpkODRDemtROXFiN2QtQ2g4SDZkWWt3WTU3T3FGTnIweC02eEFRM3ppZjV2bkM1V25vVU05Ulk0c1hXdnJzcFRkLXJnU3NVUXNNenIzZGpsNndDZC1nZm9uSkpnZk5BSmMzaFpDdFV0bTFqa3BJa9IBVkFVX3lxTE9BMWV4YWFTaXU2Uk4tYnprWVBPdG1SMzFVQWRXZUpQWEJPQV9GN3YxLVF2UElyQ0w2NFdLY3hpU1FrbmlHaFdORDRoS0lxaU95R0t0akNB?oc=5) |
+| ‘Special session after special session’: Abbott says he’ll continue until redrawn maps are passed - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQOG5RUkpyN3hoT1lVWG5IN1B6TVVJaVhTUDBhRTd4cWFhQnpLVk9DNXJnR2pzVTNzN3lndkpzd3NCT2FGNWNfWHZmaThzbHJ1TzdNTUxTY1RUNWdKbkV6bDkwakpTTWNndnZoZVU4LW92Ym9MRHZPMzRHcEZNeGZTSVNiVDduR3Z2emVMTDBhbGdNSUdMRm9kTERrT0xnclE?oc=5) |
+| Rapidly spreading brush fire prompts evacuations for thousands in California - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFBjMUpYUHVndGNDTG1QRGpuVGM5RGt5ZUZWWDhjQUJDSDJaYjYzUllxS1hkdGc1cy1Cc2E4U0FoMVVBVzZMb1FyTUNkSUdqc1JPMllFNkhEcGszcElSVlcxa3RmOVNvM2Fxc2hGQ0Uwc1dSeTR0TjNLNER3?oc=5) |
+| Appeals court tosses judge's contempt order in case over Venezuelans sent to El Salvador - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOWmxUNmxiTnZ5M3FGTEdhMmlGQU9neVFmelpwbW4xaUJ4MEprclNEMVNjUzJKc3E0VFFwaFhCQlRnc2Y5dFIxdjc5M0kwRFQwQ0RYbzE2Y3h3NllRZ0ZsdEhYNVp1MnhrWjU3YUQxTG9uNXFaNGlaWkd6UEhFdUprNm1qNDVFVVlPUWfSAY8BQVVfeXFMT21ad09wckNEc2NhbXF1eU9xNlQ3bmVLZ1FYdFRDU1VOX2k2Y1BBdVVnRTQ4MV9MelFEZkl0MlRzbFFLNnVwZExNV0Y2R1lHclVLRFZRRmNMTkFWU0ZmLUtzdjQ5ekdFQUk5b2hOS0U5d0VLRFB5QzRsaGZtclc3YkQxVHBXQ0JFanJyeXFSbVk?oc=5) |
+| NASA plans to put a nuclear reactor on the moon. Here's what that means - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQR2NwWGVHam51SmpMR0h6V3NIQXdNVG9Mc09kakhzNXd5d2FEQTBkNDVVUllMSmNvcHdKV25GckQ0azN5ZjhaRU1UMmtRSllVOVRnWU5ReWgtc3FFb0JPRUtDVnY2N050WmRYYjNxRUpObGQ5YlJSZGlLZ3NKTEowVlNIMDBkdVFnbENGaXplM2o?oc=5) |
+| ‘He is completely upset’: Why Trump scrapped an India trade deal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE8xVi1FMGZPMHRvSzJrb1ZORTlERWItbXdZa1JVSkdWWm9IX0p4WUdPSmF5Y0trMnhMa0V0WVVQa1NhWnBUd3NuS3RraHhpX1hpSmJzZTVuNnhtT0s5emU3cGVxMHItcXh3bXNJWTBKQXRKWVZzYi1CWEpONzA?oc=5) |
+| US and Russia Plan Truce Deal to Cement Putin’s Gains in Ukraine - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPV29ITlpKbWc5X0d6WjRoRDBaSHByc19RSC12cll4bXc4eVl4X2tmQUZSTjVkQ2RCS1NiRVlaMjAwNTNfR2xQb2VWb1ExUXZvd2pwY0VwV0tRdjJ2QjRQaTl6Tk93OVM4SVB1bTk2Tl9BdE1SR1dhZGpwYlJRMkVUbHdUQ2ZzWWplWEJ4cUZES0FVdkxqUFpMMUswcE9oWmhJQnhrVWpKQ0kzODlrMmRna3BkVWk4dw?oc=5) |
+| Marred by grief and riddled with fear, a quiet city worries where a mass shooter might be - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBvTVFCcGIwTmR0WERaWEJoU0pSM3FDYnRDbDRwS1RxYTdvWi1MN0NoS0l3U3VhXzdta1JfSnJGWkpDbHRjU0V2VkRzWS02ejMxOWpMbXdia2VjTFNnWUxJZ3hNbEFvYlRGOWpXVUMzNFBCSGlpUkJicGZfTdIBgAFBVV95cUxOTXhrT3NMMDFQVWR6dkFYc21aQi1EVlo3SEpwRjQ3QXAzOC0tejBMYm1SMi1TTU5sSFVqSS0tMjhHMWJQZzlpWFBkNXg1MW9FMllNRk13MGxEYmVjUl9hRURQTHBVTGl4NV9icXdORzhQTm44R2lKRnM1N2RjT1VNMA?oc=5) |
+| Three more victims of 9/11 terrorist attacks identified in New York City - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOT2kyelNydHQxVFpEMGJTanhza1Ewc0pYTUcySTVtSHhYZTNlMGNUX3hLN1ZsQVNVQkViM3lJdV9OeW5fS2J3bmI5eTdDSlFIa3RyM2F3U0xoSGo2M2JtaUh4RE1yRTc5VzRKNWZDWDJkUGZnQTJQVk5rVjJHV196dkVGX1JBQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
