@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月10日 06:14:40（北京时间）**
+🕒 更新时间：**2025年08月10日 06:26:16（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | ‘We are at war – bring it on’: Democrats ready to fight dirty to stop Trump - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOVmhWQ2kzNVFkV2ZEaEFtQlFlY295ODQweEtkc3BMY2hNSWFKcWRuVmJzd3BMd0JRVnN4YlA5VFNkZjh2TDhnRU0tb1k5NGU1ejdyZVhUMnE5OUk4Vl8yV3FIVHVUNlNQVGQ5MHEyVWZxNUJ0Y2N0V21JWXItaHFjT2lReTAzakd6dm50TTNwcw?oc=5) |
 | Playbook: California’s redistricting reality - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPQS1rNHJUVFhMTWJrYXhyek5ZMUZTXzZvSm9wTzZyTXVfR1dEV3NCZEs2YU8wRUlTaTZzTmhweUNvSjkya0RiTTRvWm5zMEhtUDNVR3NXTXl3RXp3VGNjN2hxNlJHR19uN3JHd2VNVmJuMWlHSTR5YmxXVWdON1VqcXdNRmhJWXdPM0ZLWlVWS1FoUVl5eGMtT0V6WHc2ZVlE?oc=5) |
 | Times Square shooting leaves 3 hurt, suspect in custody, NYPD says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9iQ2pmQVpHNXp0S3hCWm52VUNLLTNoc1pfQlNrcWJtYjlQUGFUQm94eEZMSVdXNFdHZWFkZ2tLRFdrSk0zREVLeHMyOHhaaDhOVmlZdl9EeGE2RExUaHRxWEVpeXA0Vkh3T1pacGVLZDlVQTRUaG52ZGgyZVhkX0k?oc=5) |
-| Trump team pushes to oust No. 2 official at world energy body - Politico | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5ZQ0VZZGFtTEMza1Z6aXNmT0g4aEdEMmM5aWZpRk9NTUp4NEZGOU1mSm1OeEo4UldlMXFCMUp2WWFGYXM3ZEQ3SGRiWlh2V3FZaHh2MGs2TUFHelZkckRxTXBabHNTMS1vcUxXU185ZGUxRWFGc0MwS1BlTWE?oc=5) |
+| Tammy Bruce, State Department spokesperson, tapped for UN role - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPaTBaY292blNlRUFDRnVqOV9WS2lZYXBtVHFMbnRwb1JaSHBJeXVKUEhBcW44MS1JNExUal84cWkxTjdtV182Rm1wTWdxSmVLMWd3c0lsZ0F3QXFCLWp6NmpaWXNsbGIwT0FBblZyUXV4NWFlTUUxU1hBVmppd0s2UnpR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
