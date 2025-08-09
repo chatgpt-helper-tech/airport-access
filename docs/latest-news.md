@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月09日 10:40:33（北京时间）**
+🕒 更新时间：**2025年08月09日 10:52:21（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Which members of Congress are at risk from redistricting - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNbWRBd283VUF6bzFHWnhtZnlrRHJKSHdjR3RmQld6b0JGd3QtTFJqdXQ1Uk5zZmZXcWNjdkpWNWVRby1lTDdIZFFtM3RNNDZzRnYyVmVYN1VMWmNmMXExQWlfZlNoeU03Tm5mR3FyVERUMmZXSjBoSTZRakJRX0NDT2g2N1ZPQlRXN0NoZ2k2MA?oc=5) |
 | Trump Is Removing Billy Long as the I.R.S. Head 2 Months After He Was Confirmed - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOVFNURDFLNzh0Z0ZDZFN5cnlyajdFdHpLZkRWNkJlN2xCdUdZZkpwZkJYR0hNT3pMLUlTd0lmdFJVS3AzVW0zRTBrWjczei1yQ1VLQVo5dkFTZWJWdHVLU3RQRF9WV2tYaTBGSXUzZENDMFkzczVUbHRHekxtaEtIX0F6UHZrY3d1NFJMUndn?oc=5) |
 | President Trump taps federal law enforcement agencies to police Washington, D.C. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPSlJTNWJ3V3U4XzRrV2xmNGl3cVRkaHhLVXRGQmgtMThrMTdJbFljQ2tTd1lRY0Z4OWo3OHRGZzJiT1ZLZ0ZUcGlFWVlpTmp2NFI1MkpZTFVrdTJQcTg2dmhPZ1ZSSHVIN2J0cUlsT1FGazk4cy1kdFgtY3VCQmgwMDQ3RFRMOWs1?oc=5) |
-| Montana bar shooting suspect is captured, ending weeklong search - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQQUE0bDdZXzBaTXlQV1MyM0hSWjFtbV9BeVZSbUVVdXJfdVFKWnpOQUZ4d3BieTFEM1VwSlRCRWtGNXoxVS1aZ3FVOHVYdnphUWV5TlI0NTI4clhhSzROam5MbkFyRUZEUW5wOUdOS3pKZlk5d2Eyek1aRmRMMld3Rkdyd1RCY1VZSXU1d1RhTUYxZFVHQkxyb0gtRQ?oc=5) |
-| New York AG James subpoenaed as Justice Department investigates whether she violated Trump’s rights - PBS | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxPdWZVZjVwcE1XQWNzUThZclN1YVZ4M09YdV9oLURHVnZIUXNHSzJwX2JPaXRlVEEyUlhMZFUwcHdMRmVfbkZNSnVEenRNQlA5QXhhTE10d1duVzJnczdtMVM5MUttaGpPV1dJdWdVZHNxMGFsckk3c1R5aFVwTkNPcnM1aGZiR29EVkdsRENlZUFRbkNGcUNReHdUYTB4UG92Vm42SlllaU04LTJCZjV2elpDZ3F6TlVKTXp3MElvMXN3Vml0X09jeW9HQzk5RUNrYnfSAdcBQVVfeXFMTlltZXFmWm1XaU9kMmJYekpqUFVUTkVwNFRYLXhabldqbUU1ckl0aWFDaG9Ca3IzNHFScl9SeHhhU241bXJLcTA2blFfUjI2TGpNV0ZYU2s5MEVCMnRGOFV4YUxraGN2RFo4UGwzSXZJTVN0WmxUNWVqUFlvek4yRVhiZ0NpNndDN19VRVNZdDM2QndNcFZ3NkNCMTBURld1QU1tNVU4dTJnODFrRGVwaDNXS194S2FlaEJVNUZPM3ZVTmsxY0lqWWhzRzNUQUdXUXpJUlBIcjQ?oc=5) |
 | Canyon fire forces thousands to evacuate; at least two structures burned - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1FRWtQMG90UTlVcDJGQWp5Z1o3Zm9TM3FsaUlqUWZhamg4M1ZkYlFpQW5iTXFvYUhaTUQwMmdZUXNwUks0UERPaHctcEI0TEVtTlVZV3VZWmNJUFNJY1V4bkV2M2dCa0lWbXNfX3hyc3AyUE9uQkFIMg?oc=5) |
+| Montana bar shooting suspect is captured, ending weeklong search - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQQUE0bDdZXzBaTXlQV1MyM0hSWjFtbV9BeVZSbUVVdXJfdVFKWnpOQUZ4d3BieTFEM1VwSlRCRWtGNXoxVS1aZ3FVOHVYdnphUWV5TlI0NTI4clhhSzROam5MbkFyRUZEUW5wOUdOS3pKZlk5d2Eyek1aRmRMMld3Rkdyd1RCY1VZSXU1d1RhTUYxZFVHQkxyb0gtRQ?oc=5) |
+| Kelly Ayotte rules out redistricting for New Hampshire - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNT01aODhTUzNrQjg0VUVDUUtoQnJWanRxUTAzWk9Kc2hEREdpbkxYRjJIbzBRR25tNW9iN3R6S3E1QTJsSlBLcmRkbVR0STdVNk1PcDI4OWZ3cUF5UTN3c2hVdnVhT0tEdUQ1UGhPY1pZbVRCX1BkTFR4NU1VSHE3eXA4LUdaWmVPRW1xUWhCWDhpaVVmUVg0a2dwRU40NThodXJBRElPbw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
