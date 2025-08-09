@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月09日 22:53:30（北京时间）**
+🕒 更新时间：**2025年08月09日 23:00:41（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Police officer dies after shooting near US's CDC headquarters - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5Hbll0OGdJNmg0Vjd5X1pHOWx4M2dOZUJVS0hLbWE4VS1iSHI4VFhmY1NqeW1RcUtTR3VxSlItd3lCbHBpY0p3UVE1SDVmdWFfdWtWMUNieGNnZ9IBX0FVX3lxTFBGT0VmNmZ3U2gyclpMdksybUJoN1hQOFo3MVgwb2ZnOTg3SkxNS1JjLWQ1MUw4eHFPT25WclFxWFJ6VTM2c1JTd0dBUGVXek1Ra21EbFBkZDhIdGxReEo0?oc=5) |
-| Vance to meet Ukraine and European allies in U.K. ahead of Trump-Putin summit - Axios | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE5kUy04ZS0wMkstTldXT3hHUnlITHhXYmVWaDR6WUpJUkJmLWpMakJDaGtFSzFKMWM0RldfZU91Z0hTb0lfa0g5SXFsakdfdlNsT0xKek43SkpqY2VnekxvY21DbkUyRGhaMEJJLTJPbw?oc=5) |
+| U.S., Ukraine and European allies plan to huddle in U.K. ahead of Trump-Putin summit - Axios | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE5kUy04ZS0wMkstTldXT3hHUnlITHhXYmVWaDR6WUpJUkJmLWpMakJDaGtFSzFKMWM0RldfZU91Z0hTb0lfa0g5SXFsakdfdlNsT0xKek43SkpqY2VnekxvY21DbkUyRGhaMEJJLTJPbw?oc=5) |
 | Texas Democrats embrace Newsom’s redistricting rebuttal as California draws new map - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxONXFNV0tSVlJJSHhERy0yUUtyS0FGdW1DR0NzbzVSNTAzb2V0aTNJeWEwU0Z4eC1ZSmx5bldwd2JxeHhCMGJiTlhPdHNPZTNYTmRSekhBSjFGMEVlakh1LTUyczVCd1BJMk9SZGFPcUVSX3p0RUxfaVFoZi1tU2FmcHRYUQ?oc=5) |
 | Zelensky rejects Trump’s suggestion that Ukraine cede territory to Russia - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQQ2R1MFhITzlvVU1jZlZxci1fRzFrZ2VYZTFVSmxubjZ0aEsweXpQSlBqa1A0VE9yUjFVcVNmUVAxQTY0dlQ1NlVpOW5DMU8xbkhLZDdweFpMLTRfekF4OS1IZllzQzRzYUx5RjhLcFZVOUcwRURFQkRzcnlkOWNvS0J2UzRJaW5zd3B5Vk1xdw?oc=5) |
 | Ken Paxton asks Texas Supreme Court to expel 13 House Democrats over redistricting standoff - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOemctV1k2Q0NiUWoyY1pUVGxZMGlmZVFfY19uQk1PbE4teHcyOWlwSXlJQXh1RFRYbmdWN2ZvNjlINkh6c1BqdWV6WFpvS3dEOEFzNGdFQjRxUnBuY01heVM1eDdMWFREbVozU25TXzFKODM3TU5JVjY0dTdRREhuR2MzSFFwbGNrLUVxQm1KS1NmWngxVmJyeG85NkZfak8wSTZIdXFR?oc=5) |
