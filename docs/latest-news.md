@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月10日 04:52:13（北京时间）**
+🕒 更新时间：**2025年08月10日 05:00:30（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| At least 365 arrests at protest against ban on Palestine Action | [阅读全文](https://www.bbc.com/news/articles/c8de6rq37v5o?at_medium=RSS&at_campaign=rss) |
+| Police arrest 474 people at Palestine Action ban protest | [阅读全文](https://www.bbc.com/news/articles/c8de6rq37v5o?at_medium=RSS&at_campaign=rss) |
 | Vance and Lammy host Ukraine talks ahead of US-Russia summit | [阅读全文](https://www.bbc.com/news/articles/c3dp119lk5xo?at_medium=RSS&at_campaign=rss) |
 | Eleven more die from malnutrition in Gaza, Hamas-run health ministry says | [阅读全文](https://www.bbc.com/news/articles/c80dpg77g0do?at_medium=RSS&at_campaign=rss) |
 | Sturgeon denies 'conspiracy to destroy' mentor Salmond | [阅读全文](https://www.bbc.com/news/articles/c754rel2nyno?at_medium=RSS&at_campaign=rss) |
