@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月09日 21:40:53（北京时间）**
+🕒 更新时间：**2025年08月09日 21:53:29（北京时间）**
 
 ---
 
@@ -8,8 +8,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Police make arrests at protest against ban on Palestine Action | [阅读全文](https://www.bbc.com/news/articles/c8de6rq37v5o?at_medium=RSS&at_campaign=rss) |
-| Israel rejects international criticism of Gaza City takeover plan | [阅读全文](https://www.bbc.com/news/articles/c207p49wrypo?at_medium=RSS&at_campaign=rss) |
+| More than 50 arrests at protest against ban on Palestine Action | [阅读全文](https://www.bbc.com/news/articles/c8de6rq37v5o?at_medium=RSS&at_campaign=rss) |
+| Eleven more die from malnutrition in Gaza, Hamas-run health ministry says | [阅读全文](https://www.bbc.com/news/articles/c80dpg77g0do?at_medium=RSS&at_campaign=rss) |
 | 'People are angry': Behind the wave of asylum hotel protests | [阅读全文](https://www.bbc.com/news/articles/c4gerg74y71o?at_medium=RSS&at_campaign=rss) |
 | Prince Andrew book seals his fate for any return | [阅读全文](https://www.bbc.com/news/articles/c24z1l090dqo?at_medium=RSS&at_campaign=rss) |
 | Elon Musk's AI accused of making explicit Taylor Swift videos | [阅读全文](https://www.bbc.com/news/articles/cwye62e1ndjo?at_medium=RSS&at_campaign=rss) |
@@ -23,12 +23,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump-Putin summit in Alaska resembles a slow defeat for Ukraine - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1OZTNfcTlYQU0yVUJtcUdtLXdSekppU1VTTHQzR3Z4dkJMVUxPbldvWWtDNENaTzFUWC1mQi1mX1RwX01Kci1CRFFsTU12a2VCenRoejVNUnQ5OFhBVVV5OEE1b1BtemlBcjUtMXVuYWlWeXpBZGNqanNn0gF_QVVfeXFMTjNmcjFUWFZFUE5Xc2ZqQndPMTNpQXlzeHF1UkNnRlVFX2puSlBxNGM2UGZLSnIwMG5pRHVvVWVwQTRfbTZFVHNMRlVmaFhMZU9QMUdyWGdXNDV5bW1uX0ZIWjBKeV9YZ0MwaG1sMnlxSTVaeE9IZ2ZrZXA2NlEzZw?oc=5) |
+| Trump, Putin meeting set for next week in Alaska - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOMU9SN2ZPNkgzVjNLTGd4cS1HQkhFejNkbkpZV1IyMDAyekVoc2xNejdrdVpBLUVTNXJIb2REN3pzeHlGWG5nZGxnR1RnTGljcmplbUF5WVFMZm51NnBqbDNPUVEtSFlHR3FON0JZN2lFOG96VDBaQW1Oek1FMW5LLW9Ec0xfZw?oc=5) |
 | Police officer dies after shooting near US's CDC headquarters - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5Hbll0OGdJNmg0Vjd5X1pHOWx4M2dOZUJVS0hLbWE4VS1iSHI4VFhmY1NqeW1RcUtTR3VxSlItd3lCbHBpY0p3UVE1SDVmdWFfdWtWMUNieGNnZ9IBX0FVX3lxTFBGT0VmNmZ3U2gyclpMdksybUJoN1hQOFo3MVgwb2ZnOTg3SkxNS1JjLWQ1MUw4eHFPT25WclFxWFJ6VTM2c1JTd0dBUGVXek1Ra21EbFBkZDhIdGxReEo0?oc=5) |
-| With summit looming, Ukraine's Zelenskyy says he won't give land to Russia - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOcWxLbUNUWWNTbE5vblNSb3pubUwtRnQ5OW02QXBmaTlDN2lYUkFfd3BEUHd1cGEwMEFtTnZDNkRobEp4VG1RNnI1TEpaV1U5Z2NRQ0xKVC1pUG5yZnkwNU5KUXpCenVGRFNSV21GLWItVzZZWDlrem1GZlZTZzZuTDA5TU5qYTBZNEhqaHROdw?oc=5) |
 | California governor threatens "trigger" redistricting plan based on what Texas GOP decides - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1PWVpGOTRhdEI1SXFVMkpvbmZoZktIcEI1VlZjT3VveEtway0wWVFmRzFtMHhmOXpDOVBuaWYtY1M5TFFOV2hGZVNVZ2pKWi1XTjJtZzF0UUtGTS1tejRyRFpZZlRncUJkVjlXVVdPN1d3aS1WeWNoLXFR?oc=5) |
-| Trump administration weighs military actions against drug cartels - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOQmF0WFY4eDJBSTFGN0s4T0JOajVoVlpjcE1zd0E3U2hpWXV4OWNibGxPN1R6TzhqWmZDa3hCRVdFQklEVzNJYUpfM3BWQkctbEdfSV80endrTnl6NG1XYkJ3MmNvc3FTaXJqS3VLSmtBa1ZUeHdSam5KbFBLSkpFaTRuQjlHOVVRcWhmTzNJNEs2VEViZXlaaDFNMA?oc=5) |
-| 17-year-old arrested after 3 people shot in Times Square - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNRXl5Y2dJOHpTLUZ6Mm0zc3hKXzh2S0xBTGpxdlVnbTZWQ2FKY3VSNi1IU3VaRThObk5CNmVpUVBWNkMydDVVTWhZcFRRNFdybVMxbzJMbnp3OTZRTnljb1AzYkE1TGY0UU5QbVkwTHhBRUxJMTkzakJsMnUwNy1fbk4zeE9iTVZ2Sk9peUNVdHrSAZYBQVVfeXFMTWZrZEp3V0dfdS1CWEJScFlJVVVFSURsRVpWNHMySTgzQldfRnBBanp5TEJ1a2FoQlRRbFNpcVc2LTJqZmE1UzZweDV0YlRFV01OdER4OHNQOFVXUHhNR1c3SHJJYmdyVllpY2lFOHdkMmhLVG01M0VpRHUwVU1Yb0VCZ3JtRDlUV1NCLTJZWmRXV2phNHVB?oc=5) |
+| Mexico’s President Says U.S. Forces Are Unwelcome in Her Country - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQOFlVUnNaekYySVVpdTBDaEpRTE9BSWpSN0N2aWFpRG85RDJFdWtXWEExcWJHRFYyaUhsN254ZGJWZUljZjBKOFRUSmtRQTRjeWljRnhZVVJybGNhdUQ0SjJsS3RfdmJNQzgxUVpxdVFtSkVKdzk0bUFycVVHMUUxT1M2MV9Wb3RtWXQ1MA?oc=5) |
+| Ken Paxton sues to remove 13 Democrats who fled Texas over redistricting - Houston Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxORmlGbFFPNGt5NlZFWTNycXJ4Mk45alB0TVhuaWFYYTJxYVFNVlFmUEJkZllNbW1CaWtTUnpFOHVlSmhyM3NGanM1MWVlQjV1REJiQWlUTDZ5LUlMdmg3RnBpZ3otTEtwa2F1SHYzbzFXUXVuazN1bnNHcms2aG9QUTRxYmhESy0yMHktRXVYRUpjRHNCZXdreVB5TWJSQjhxVFRtQlVn?oc=5) |
+| Three people injured in shooting at New York City’s Times Square - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOcW5OYkpneHlTMERBeHI2R3A4eUx3cVdaMUgycXhBYjVpdTlOdlo2WURWbjgwcHpZbUMwcGl5Ty1ieVdzYnFyQUhuaXFLelF3MWxQYTNLNHVTN2pVWFc5ZFp2Y2F0U3BaT215OHkydnBNVV9oLXlwQW1mdi14enhXUXFld1duNlNmYUFNeUw4VVY1ZHlqWEw2YTlaUWxCWDM4bkI1MUxxVjRxMG44cHgwMA?oc=5) |
 | Trump Wants Admissions Data on Grades and Race, but Who Will Collect It? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPeXNBdFlwSENnd09YVGsxak0wTHFlVVg5LWNnRE9Pcm5wclpmeDVQeDRaSUIzd01CVHNfMjlKelhpQmwyeVp6M19pTW91RUxHZml4NDVmUTFyUlJsaEpCUEp5YVlGUVdDM00zaUpKUldVU0pKTE5VcmxJR0UwTDhPNG5jck1USURpV19YanFtSzE0X2E0M1A4RG12anVRZS12a3ZGZDZTb2E?oc=5) |
 | Montana bar shooting suspect taken into custody after weeklong manhunt - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQSWlkSktYeXNKY1lWeVYwQzJVa3llUzZ3UVczYXkwSTlseDNlMlRNM2Jvck9IQ3B2Zk5UeDA3R01pN3otcXhSd0Y2aDB6UjhDSUtxVUN4Vy05aHpSWmUzMWVhdzRwNS1KX1gtY1NyYjJTMFFRZG1tSThLR01tUXpidGFUSVlOOF9hTk5xQWJfRm1jd0d5ZHhPM1k2Wm9CME9DZ3fSAacBQVVfeXFMTWFMZmxQTWhGWnB2ZGJFTDNSakFLVU0xTm4wV3pkMW1yLUdMMERTdU5UUU12bS1Eem5FLUxoOTJRd250b0RrUXlnLWs4dDFXQ2VacUQtdkN0MEVtRWR4em1SYms4VHRKcHVqN2RnOV94Tk84SldURmdWR3REYTJCU2t6T0Y3V2lxSjhmSm43d0d2VkJPdUZSZldZZzY0NTg5bUZqcm52UTQ?oc=5) |
 | William Webster, who led FBI and CIA through crises, dies at 101 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOdklkTkZRT3NYcV92T3d6OTdoMkJmdllMY0FVTXdHX0VNNDFJX2xyU1NhNmI2MFVOTkpoLUxwRnJiUDVFTWdNTUhTbTV6cjlaTXFNTU5NeE8yelptSUFiQzdHRWFaMGQ2NDlPV2FlcGI1OVpNUWhPRmF5dzMtMGo4eFg2OGZXRWcwNnJkdVNiakxnbXNiSjdneGxnSQ?oc=5) |
