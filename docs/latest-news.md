@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月09日 12:26:58（北京时间）**
+🕒 更新时间：**2025年08月09日 12:40:11（北京时间）**
 
 ---
 
@@ -23,11 +23,11 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What Putin Hopes to Gain From a Summit With Trump (Gift Article) - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxObUxyMUJ5OGpDdS1HOTN5SGVQQ1IxTGZTQWJXSTFBVlNFdWpHd2RJa3hfRmpmYzUxSDBvVF9KWnh3MUZUTGlmdllXUktnblRUckd5LUZBZnRwM1VzcmxEX1N0b1lyMU5MbEFJNVhYekk1TU9ncl9JWnZvSmpQUXBkaUZSemhWUQ?oc=5) |
+| Trump, Putin meeting set for next week in Alaska - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOMU9SN2ZPNkgzVjNLTGd4cS1HQkhFejNkbkpZV1IyMDAyekVoc2xNejdrdVpBLUVTNXJIb2REN3pzeHlGWG5nZGxnR1RnTGljcmplbUF5WVFMZm51NnBqbDNPUVEtSFlHR3FON0JZN2lFOG96VDBaQW1Oek1FMW5LLW9Ec0xfZw?oc=5) |
 | Officer killed, suspect dead in shooting near CDC headquarters, Emory University campus - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQWlVaVy1hTk5qekdTNXdKRHNGS3NSMjlpbm9EZ3JBc3ZkeS1xVTM4OVZwMHFoRnJGdkcyN041QXhNSHkzOUlfNHNBSU9xOUthNHhUUjByak9jSGZJaFN4c1g3ZTBlWC1iaE9zZ2o5UkJIMXlpRm1pVFUybDY2WVpFUUpKNWszTXhCMTBIMHpadk1TZVpzSFRETU1sMzZFSmRrZUs00gGoAUFVX3lxTE56bEJiY1l4Z2s3SG9EMl9iaXlKREFfSUJqZzFuLVpuWi1GY3RNVWNkTmNMQk1iLWdNZzJMRnJZT1NhWTBwbUlkTjctdGlnSmNpQm1vTWhGZFdHcV9GMjJwaExBWVB4SWxlTUl0T1N2UGRmSFIwVmhQZWtvbzJTMXQyUmxBdkxBajl1RUlTNTI1NDRCS1FRTGVPMHh3YXlyOXQ2ZTZud2w4cQ?oc=5) |
+| California governor threatens "trigger" redistricting plan based on what Texas GOP decides - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1PWVpGOTRhdEI1SXFVMkpvbmZoZktIcEI1VlZjT3VveEtway0wWVFmRzFtMHhmOXpDOVBuaWYtY1M5TFFOV2hGZVNVZ2pKWi1XTjJtZzF0UUtGTS1tejRyRFpZZlRncUJkVjlXVVdPN1d3aS1WeWNoLXFR?oc=5) |
 | Judge blocks Beto O’Rourke from financially supporting Texas Democrats who left the state - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPbUROT1BzbDgta3JoQWU0OWJzOTgyN3JkZlJ3QlJwQl9jWFZ3bjNWYUhjRVBTeEVMYV80YkU2MHAtalV1MHZfZXZUdHJrRGJISW1zdTNzNTRhd1VqYVJRSlVfaFU2UE5vcTF1OUZ0TzlBQjRyRi1na1BSSjNVOFFlV1FNN3N6WWtISjFsZ2xjM2pSUFpFSHZxWWJkTG1KX1g3ZkdEWmNVdVg?oc=5) |
-| Even some Republicans are questioning Netanyahu's plan to have Israel occupy Gaza City - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPZHBiclZ1UE5kSktPVTU5aDNmRHk3UFRYdWw1R2xiVmExS2ZVYS01Q1haSWRteGZMZ0xMVFRpbWxtbUZNN3EwS21hOWctVVdBb3VucWhxc19JUldYTkVMaGVYbHJqZVFLcEVjQUVPTUQ0Sm92V0FWY2JwVk5JMDUyRUFDam56VjQ?oc=5) |
-| California Democrats Back Newsom Plan to Redraw Congressional Maps for 2026 - KQED | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQaHRJbmxrOUNZbVducmJsNlE4VHY2ZkJYU1JtWnl3N0ZYZ28xTjRzeEEwcUk0emtUc24wejMwMTR5cXRVdE52X1FTX1hjT0NZNTRFVmpNQnZPR21HMkVoQzhzWEU0Vk8ySTNGUGhTb1ZiZE1QQUtmQkpBV0N0eVZRVmppR0ZURGtwOXQyRGhvMFpodnZVY2hjbTIzSUxHVzNLTXJocjVYRXRoWFN1UFE0?oc=5) |
+| Israel's plan to take over Gaza "must be immediately halted," U.N. says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPZExBNTlRS2VVd3k2aUdvelBEWWJ2eTY0U3huTHNUV0tKU2tfb1pUNTZHRmlUcVNxXzhNOXJGYzBhaEdzLTJQeUNxbm85dFVxbW4wbnZ6TWpkR2Z6UTlqWGIybEVIaDFkWDl6TE9NaDB1S2NDSkdsUnFLUGxhUjdGcWd6dnRTQkh6T2xjdHRFakhqa056NlVmZUlTb9IBoAFBVV95cUxNellBbkVTcWE1QWZJTXdnZkg1ZlhXLUQ2TEhCZEl2OFNNY0lGRzJCRmhCamVId2pHVlg1dkc0MHJPcmZub3pIWWNfaWh5ZS1TRTlDVFUyT3ZWdnpQcjhMRVBoU2hUVVlpVGUyeEdHYVBGZnBZb2xrajhRRk8zMGNSVnNzaFNvRDV2bzFpZEI3QTBLek9YZ2dRWC1nWEZ6Mlpp?oc=5) |
 | President Trump Brokers Another Historic Peace Deal - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOVGRxR2JPbm1mdmhCMjBtY0xMUERmeG1qUmUtbWpxQ3FGamFhX0dZUVcxbHM2M3VxODNaWS11WnNGaEM0Q21qdFFhRkpaZWhlT0E2VVQzNFZPWVFWb2sxRnVkX0VlZ2k5NUp1Rk9QNDBaX3NlUEpjcmZHRlkyU1dvM1RLdzcxRzhQTDBqbnV0UmoySi1mdWR3LTdCYmc?oc=5) |
 | ‘Disproportionate’ and ‘extreme’: DC officials protest Trump’s policing incursion - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPN0FCSGRyVlBuRjlKTEZsazZvRXNVRjFENU1lM1NfU2g3T3hKc0c1UHZEQzdUMmtyVV9tVThvYUlYMTR3QjJvalNHQ0hZX1d3SjBIM1dXNjVzc25WdDdmUFY4Wnk3VHpESno5cWJHdXZDRVhkWlBqMkVEY3dhY3M0cWpyWFNJbFItLXR4cWRuNTdkVEthbWhRUzZwLTVWWXZla19IMmpqdHdsQzdITUhuU2s5NmtJaXpLbWt2b2ZQRDUxa2M?oc=5) |
 | Evacuation orders lifted as firefighters make progress on Canyon fire - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1FRWtQMG90UTlVcDJGQWp5Z1o3Zm9TM3FsaUlqUWZhamg4M1ZkYlFpQW5iTXFvYUhaTUQwMmdZUXNwUks0UERPaHctcEI0TEVtTlVZV3VZWmNJUFNJY1V4bkV2M2dCa0lWbXNfX3hyc3AyUE9uQkFIMg?oc=5) |
