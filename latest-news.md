@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月09日 14:53:21（北京时间）**
+🕒 更新时间：**2025年08月09日 15:00:49（北京时间）**
 
 ---
 
@@ -13,8 +13,8 @@
 | 'People are angry': Behind the wave of asylum hotel protests | [阅读全文](https://www.bbc.com/news/articles/c4gerg74y71o?at_medium=RSS&at_campaign=rss) |
 | Elon Musk's AI accused of making explicit Taylor Swift videos | [阅读全文](https://www.bbc.com/news/articles/cwye62e1ndjo?at_medium=RSS&at_campaign=rss) |
 | Jim Lovell, who guided Apollo 13 safely back to Earth, dies aged 97 | [阅读全文](https://www.bbc.com/news/articles/cl7y8zq5xpno?at_medium=RSS&at_campaign=rss) |
+| Faith, family and fishing - the unlikely bond between JD Vance and David Lammy | [阅读全文](https://www.bbc.com/news/articles/czr68vde7nvo?at_medium=RSS&at_campaign=rss) |
 | Sturgeon memoir describes arrest as 'worst day of my life' | [阅读全文](https://www.bbc.com/news/articles/clyv8n0v75vo?at_medium=RSS&at_campaign=rss) |
-| Faith, family and fish - the unlikely bond between JD Vance and David Lammy | [阅读全文](https://www.bbc.com/news/articles/czr68vde7nvo?at_medium=RSS&at_campaign=rss) |
 | Police 'sat on information' before man, 80, killed | [阅读全文](https://www.bbc.com/news/articles/cgern08j998o?at_medium=RSS&at_campaign=rss) |
 | New signs found of giant gas planet in 'Earth's neighbourhood' | [阅读全文](https://www.bbc.com/news/articles/cx2xezw3dkpo?at_medium=RSS&at_campaign=rss) |
 | Fourth heatwave of summer set to bring temperatures above 30C next week | [阅读全文](https://www.bbc.com/weather/articles/czjm4zl20wzo?at_medium=RSS&at_campaign=rss) |
@@ -29,7 +29,7 @@
 | Judge blocks Beto O’Rourke from financially supporting Texas Democrats who left the state - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPbUROT1BzbDgta3JoQWU0OWJzOTgyN3JkZlJ3QlJwQl9jWFZ3bjNWYUhjRVBTeEVMYV80YkU2MHAtalV1MHZfZXZUdHJrRGJISW1zdTNzNTRhd1VqYVJRSlVfaFU2UE5vcTF1OUZ0TzlBQjRyRi1na1BSSjNVOFFlV1FNN3N6WWtISjFsZ2xjM2pSUFpFSHZxWWJkTG1KX1g3ZkdEWmNVdVg?oc=5) |
 | Trump removes Billy Long as IRS commissioner, giving him the shortest-ever tenure in the role - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPSGFJcjVKelJoLWMyNkNsa2Jsa3NJcjU1UnhaT1VPVXBXZmItUHJIdHZib0ZfcHdCMTc0TFFfbHJMcGY0YTFyNkM3dkptWVEtc3dVdEEwX0JRZWJ3aXR6NU5lUG1mZzd2bFVnRldHbFB2OVl2MTZBZGtycTNrdGpBT0hNazc5WXdILUFlSV85bFFqNzFkQUdpVjhn?oc=5) |
 | Trump embraces role of peacemaker in Azerbaijan and Armenia deal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPTm9GUjZ6Wll3YTYxR25USG56bGFKZmk0cU1yRWNuR2JqSGszUXk5aU9aNTFpV1pIbzJqc2pPTnE4aEdHY2lGckN3Yzd1Q2tRTk5EdDhaLXYtel9ZSjZoWkJqcnpLalVkZ1dpWWV6NlNJQ1Bpa0lKbVJQOVRZSE4wMzdFWW9NanZCOEx3SndB?oc=5) |
-| Trump orders increased federal law enforcement presence in DC over crime rate - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNUUtQa01vYVluN3V6c1c3ZjZtUmh2WVh5a0VvZlotQ2d6cFlacVg0dmNXUG44Ymx6dktIZFhHX0FIQzVmeEVlRHFFZmtJdm9iRHhLb3JidGdXc2hDMDZ2RE9PLS1qOUxlMTlDREN2cGh4SnN3ZmVnQWh5VDdPN1QtNGVxaGFiVGZ1MWtucUh2allNR0lMT0dTVjBXYWpRTzA0TVAwelNlZ2hLY2ZGdFFJa2xsTmZzQ25DYXpaVXZEbmMxU3g5b1FB0gFWQVVfeXFMUHNmb18yV1dCWG82Q25NdTdZaHpQbU9ISTdfbXFZbWtXemVURjdmUGJ1QlR2b20zVWVVVTA2c0U1UVRnUDNUMUg1V0pNUm12VExRVmZoZ0E?oc=5) |
+| Trump's federal crackdown on D.C. causes confusion: What to know - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNMzNfcXhqeVdNZ0JUalRsRU9XaHM5bnNJbGtRUnBPbTkwSVJma1U4Z2dlODBqMGluTlNHai14dXdDQ1QyMlg3QTNjSTZySzBTd2ZibHEwWjdyNlpZNUNXeG1uYkJLY0pSVVVfLXVEdGhJY09ULUZPR2pldlJtQ3MtSUo5LUUyZlpFN1hkVUF0RTNvVWMtRk1MeXphZ1ZISzlLeFZpdmNaeWRYZlVOLTd1cm9DTQ?oc=5) |
 | Ken Paxton asks Texas Supreme Court to expel 13 House Democrats over redistricting standoff - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOemctV1k2Q0NiUWoyY1pUVGxZMGlmZVFfY19uQk1PbE4teHcyOWlwSXlJQXh1RFRYbmdWN2ZvNjlINkh6c1BqdWV6WFpvS3dEOEFzNGdFQjRxUnBuY01heVM1eDdMWFREbVozU25TXzFKODM3TU5JVjY0dTdRREhuR2MzSFFwbGNrLUVxQm1KS1NmWngxVmJyeG85NkZfak8wSTZIdXFR?oc=5) |
 | Evacuation orders lifted as firefighters make progress on Canyon fire - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1FRWtQMG90UTlVcDJGQWp5Z1o3Zm9TM3FsaUlqUWZhamg4M1ZkYlFpQW5iTXFvYUhaTUQwMmdZUXNwUks0UERPaHctcEI0TEVtTlVZV3VZWmNJUFNJY1V4bkV2M2dCa0lWbXNfX3hyc3AyUE9uQkFIMg?oc=5) |
 | Montana bar shooting suspect taken into custody after weeklong manhunt - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQSWlkSktYeXNKY1lWeVYwQzJVa3llUzZ3UVczYXkwSTlseDNlMlRNM2Jvck9IQ3B2Zk5UeDA3R01pN3otcXhSd0Y2aDB6UjhDSUtxVUN4Vy05aHpSWmUzMWVhdzRwNS1KX1gtY1NyYjJTMFFRZG1tSThLR01tUXpidGFUSVlOOF9hTk5xQWJfRm1jd0d5ZHhPM1k2Wm9CME9DZ3fSAacBQVVfeXFMTWFMZmxQTWhGWnB2ZGJFTDNSakFLVU0xTm4wV3pkMW1yLUdMMERTdU5UUU12bS1Eem5FLUxoOTJRd250b0RrUXlnLWs4dDFXQ2VacUQtdkN0MEVtRWR4em1SYms4VHRKcHVqN2RnOV94Tk84SldURmdWR3REYTJCU2t6T0Y3V2lxSjhmSm43d0d2VkJPdUZSZldZZzY0NTg5bUZqcm52UTQ?oc=5) |
