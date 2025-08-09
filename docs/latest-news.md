@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月10日 06:00:36（北京时间）**
+🕒 更新时间：**2025年08月10日 06:14:40（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | IRS, White House clashed over immigrants’ data before tax chief was ousted - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQWkJtT0Y0VS10bkdHeUhKbWNnMURnVnp0dTROQ2REOGx1VGpsY3FNLUFvd25adTR2bDJPNi03WHRaNzdrNVNucGxrT3E2WnpNYWpQN0RrT1RRT3UwSjRUVWtxeXo2T0RCUGNIUkZaY20tcWExcVo3dzZsUWt4cFVETkFBTUMybDNHLUdUNFZyOW1xd28?oc=5) |
 | Trump tells military to target Latin American drug cartels, source says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQWmFYWnlPWmJFRml3SXRhUTdJd2hUZkFnSHpKTy1HeUtNNUpkdkFqSVkwTnpqbk94M0lESTVOX2RXR21oMXg0VUp2bU16T0hhTFdrRzdqQnB4UU9KZzVTM0NnUTdTVW9PQXp6ZHN3eTBqSXFwTTJvR2dPd0lBbDZaV2pVX1JDWU9DYXZvOHBQM08xcG81ME12cDhkakpQVW9rd0HSAacBQVVfeXFMUG9EcG1RVVdoNlQzRDRLaUZIOEhOTmdZTndVR0tDOXJtamRZcFlJQzJtemg0S1BYY0VacXFuMldRQlZYRTNfX1pXeTRkZzZ0RXJnZjRHcUVOOFZlYzVHRUhrTmtnOXV6RzFSeFBuMGRmRTdwX0czN1lxZ3JhdXY5cHBlMUROazFQd3RpeENKTWdjbHFnRW1uWU1QOVBfVVN1TzZvdWFucHM?oc=5) |
 | We get asked about tariffs all the time. Here's what we say - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNYzF2cXpZZ2RsRGstS1c0ZUFFbWIxZUFJQVFMMWIwaW44SHQ0Y0ZBRWpvU01VcjVfUWdmZEhUV0xWeVZZdzNrQVNhOHRMNWNEdWlHSTF4SS1KQVVwd0xOdHp0N2Y5UXFKUEdFMUxrWm5KUGZueFRmdjEyVWlVMmVpNlFR?oc=5) |
-| Zelensky rejects Trump’s suggestion that Ukraine cede territory to Russia - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQQ2R1MFhITzlvVU1jZlZxci1fRzFrZ2VYZTFVSmxubjZ0aEsweXpQSlBqa1A0VE9yUjFVcVNmUVAxQTY0dlQ1NlVpOW5DMU8xbkhLZDdweFpMLTRfekF4OS1IZllzQzRzYUx5RjhLcFZVOUcwRURFQkRzcnlkOWNvS0J2UzRJaW5zd3B5Vk1xdw?oc=5) |
 | ‘We are at war – bring it on’: Democrats ready to fight dirty to stop Trump - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOVmhWQ2kzNVFkV2ZEaEFtQlFlY295ODQweEtkc3BMY2hNSWFKcWRuVmJzd3BMd0JRVnN4YlA5VFNkZjh2TDhnRU0tb1k5NGU1ejdyZVhUMnE5OUk4Vl8yV3FIVHVUNlNQVGQ5MHEyVWZxNUJ0Y2N0V21JWXItaHFjT2lReTAzakd6dm50TTNwcw?oc=5) |
 | Playbook: California’s redistricting reality - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPQS1rNHJUVFhMTWJrYXhyek5ZMUZTXzZvSm9wTzZyTXVfR1dEV3NCZEs2YU8wRUlTaTZzTmhweUNvSjkya0RiTTRvWm5zMEhtUDNVR3NXTXl3RXp3VGNjN2hxNlJHR19uN3JHd2VNVmJuMWlHSTR5YmxXVWdON1VqcXdNRmhJWXdPM0ZLWlVWS1FoUVl5eGMtT0V6WHc2ZVlE?oc=5) |
-| Montana bar shooting suspect taken into custody after weeklong manhunt - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQSWlkSktYeXNKY1lWeVYwQzJVa3llUzZ3UVczYXkwSTlseDNlMlRNM2Jvck9IQ3B2Zk5UeDA3R01pN3otcXhSd0Y2aDB6UjhDSUtxVUN4Vy05aHpSWmUzMWVhdzRwNS1KX1gtY1NyYjJTMFFRZG1tSThLR01tUXpidGFUSVlOOF9hTk5xQWJfRm1jd0d5ZHhPM1k2Wm9CME9DZ3fSAacBQVVfeXFMTWFMZmxQTWhGWnB2ZGJFTDNSakFLVU0xTm4wV3pkMW1yLUdMMERTdU5UUU12bS1Eem5FLUxoOTJRd250b0RrUXlnLWs4dDFXQ2VacUQtdkN0MEVtRWR4em1SYms4VHRKcHVqN2RnOV94Tk84SldURmdWR3REYTJCU2t6T0Y3V2lxSjhmSm43d0d2VkJPdUZSZldZZzY0NTg5bUZqcm52UTQ?oc=5) |
+| Times Square shooting leaves 3 hurt, suspect in custody, NYPD says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9iQ2pmQVpHNXp0S3hCWm52VUNLLTNoc1pfQlNrcWJtYjlQUGFUQm94eEZMSVdXNFdHZWFkZ2tLRFdrSk0zREVLeHMyOHhaaDhOVmlZdl9EeGE2RExUaHRxWEVpeXA0Vkh3T1pacGVLZDlVQTRUaG52ZGgyZVhkX0k?oc=5) |
+| Trump team pushes to oust No. 2 official at world energy body - Politico | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5ZQ0VZZGFtTEMza1Z6aXNmT0g4aEdEMmM5aWZpRk9NTUp4NEZGOU1mSm1OeEo4UldlMXFCMUp2WWFGYXM3ZEQ3SGRiWlh2V3FZaHh2MGs2TUFHelZkckRxTXBabHNTMS1vcUxXU185ZGUxRWFGc0MwS1BlTWE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
