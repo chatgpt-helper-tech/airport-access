@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月10日 05:00:30（北京时间）**
+🕒 更新时间：**2025年08月10日 05:14:18（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | IRS, White House clashed over immigrants’ data before tax chief was ousted - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQWkJtT0Y0VS10bkdHeUhKbWNnMURnVnp0dTROQ2REOGx1VGpsY3FNLUFvd25adTR2bDJPNi03WHRaNzdrNVNucGxrT3E2WnpNYWpQN0RrT1RRT3UwSjRUVWtxeXo2T0RCUGNIUkZaY20tcWExcVo3dzZsUWt4cFVETkFBTUMybDNHLUdUNFZyOW1xd28?oc=5) |
 | Trump tells military to target Latin American drug cartels, source says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQWmFYWnlPWmJFRml3SXRhUTdJd2hUZkFnSHpKTy1HeUtNNUpkdkFqSVkwTnpqbk94M0lESTVOX2RXR21oMXg0VUp2bU16T0hhTFdrRzdqQnB4UU9KZzVTM0NnUTdTVW9PQXp6ZHN3eTBqSXFwTTJvR2dPd0lBbDZaV2pVX1JDWU9DYXZvOHBQM08xcG81ME12cDhkakpQVW9rd0HSAacBQVVfeXFMUG9EcG1RVVdoNlQzRDRLaUZIOEhOTmdZTndVR0tDOXJtamRZcFlJQzJtemg0S1BYY0VacXFuMldRQlZYRTNfX1pXeTRkZzZ0RXJnZjRHcUVOOFZlYzVHRUhrTmtnOXV6RzFSeFBuMGRmRTdwX0czN1lxZ3JhdXY5cHBlMUROazFQd3RpeENKTWdjbHFnRW1uWU1QOVBfVVN1TzZvdWFucHM?oc=5) |
 | We get asked about tariffs all the time. Here's what we say - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNYzF2cXpZZ2RsRGstS1c0ZUFFbWIxZUFJQVFMMWIwaW44SHQ0Y0ZBRWpvU01VcjVfUWdmZEhUV0xWeVZZdzNrQVNhOHRMNWNEdWlHSTF4SS1KQVVwd0xOdHp0N2Y5UXFKUEdFMUxrWm5KUGZueFRmdjEyVWlVMmVpNlFR?oc=5) |
-| Even some Republicans are questioning Netanyahu's plan to have Israel occupy Gaza City - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPZHBiclZ1UE5kSktPVTU5aDNmRHk3UFRYdWw1R2xiVmExS2ZVYS01Q1haSWRteGZMZ0xMVFRpbWxtbUZNN3EwS21hOWctVVdBb3VucWhxc19JUldYTkVMaGVYbHJqZVFLcEVjQUVPTUQ0Sm92V0FWY2JwVk5JMDUyRUFDam56VjQ?oc=5) |
+| Iran Won’t Allow Trump-Backed Azerbaijan Corridor, Top Aide Says - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPMkt2ejJoak9pOG02Z0ZZVFFDaF9QYVZKbUVMMW9ZemRTdGpWOXh6UTQzc0tuUDFJT2pWSkZXcTZLTXl1OVRlelJsb3lseWh5ZE0xa0xwTGYwQ2xLTGVXcndTT1VNSkx2SGkxcXhURGlNdmIyMkZJbXVpanhLY1pXS0NZRUV4d2ZLOTItLWF3OTdEU1ZxX09ReWw2dHV5UjRSOVU0RGpheC1MeFY1RWczN3o4aWM?oc=5) |
 | ‘We are at war – bring it on’: Democrats ready to fight dirty to stop Trump - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOVmhWQ2kzNVFkV2ZEaEFtQlFlY295ODQweEtkc3BMY2hNSWFKcWRuVmJzd3BMd0JRVnN4YlA5VFNkZjh2TDhnRU0tb1k5NGU1ejdyZVhUMnE5OUk4Vl8yV3FIVHVUNlNQVGQ5MHEyVWZxNUJ0Y2N0V21JWXItaHFjT2lReTAzakd6dm50TTNwcw?oc=5) |
 | Playbook: California’s redistricting reality - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPQS1rNHJUVFhMTWJrYXhyek5ZMUZTXzZvSm9wTzZyTXVfR1dEV3NCZEs2YU8wRUlTaTZzTmhweUNvSjkya0RiTTRvWm5zMEhtUDNVR3NXTXl3RXp3VGNjN2hxNlJHR19uN3JHd2VNVmJuMWlHSTR5YmxXVWdON1VqcXdNRmhJWXdPM0ZLWlVWS1FoUVl5eGMtT0V6WHc2ZVlE?oc=5) |
 | Times Square shooting leaves 3 hurt, suspect in custody, NYPD says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9iQ2pmQVpHNXp0S3hCWm52VUNLLTNoc1pfQlNrcWJtYjlQUGFUQm94eEZMSVdXNFdHZWFkZ2tLRFdrSk0zREVLeHMyOHhaaDhOVmlZdl9EeGE2RExUaHRxWEVpeXA0Vkh3T1pacGVLZDlVQTRUaG52ZGgyZVhkX0k?oc=5) |
