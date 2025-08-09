@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月09日 16:00:28（北京时间）**
+🕒 更新时间：**2025年08月09日 16:14:15（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | California governor threatens "trigger" redistricting plan based on what Texas GOP decides - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1PWVpGOTRhdEI1SXFVMkpvbmZoZktIcEI1VlZjT3VveEtway0wWVFmRzFtMHhmOXpDOVBuaWYtY1M5TFFOV2hGZVNVZ2pKWi1XTjJtZzF0UUtGTS1tejRyRFpZZlRncUJkVjlXVVdPN1d3aS1WeWNoLXFR?oc=5) |
 | Judge blocks Beto O’Rourke from financially supporting Texas Democrats who left the state - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPbUROT1BzbDgta3JoQWU0OWJzOTgyN3JkZlJ3QlJwQl9jWFZ3bjNWYUhjRVBTeEVMYV80YkU2MHAtalV1MHZfZXZUdHJrRGJISW1zdTNzNTRhd1VqYVJRSlVfaFU2UE5vcTF1OUZ0TzlBQjRyRi1na1BSSjNVOFFlV1FNN3N6WWtISjFsZ2xjM2pSUFpFSHZxWWJkTG1KX1g3ZkdEWmNVdVg?oc=5) |
 | Evacuation orders lifted as firefighters make progress on Canyon fire - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1FRWtQMG90UTlVcDJGQWp5Z1o3Zm9TM3FsaUlqUWZhamg4M1ZkYlFpQW5iTXFvYUhaTUQwMmdZUXNwUks0UERPaHctcEI0TEVtTlVZV3VZWmNJUFNJY1V4bkV2M2dCa0lWbXNfX3hyc3AyUE9uQkFIMg?oc=5) |
+| Trump's federal crackdown on D.C. causes confusion: What to know - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNMzNfcXhqeVdNZ0JUalRsRU9XaHM5bnNJbGtRUnBPbTkwSVJma1U4Z2dlODBqMGluTlNHai14dXdDQ1QyMlg3QTNjSTZySzBTd2ZibHEwWjdyNlpZNUNXeG1uYkJLY0pSVVVfLXVEdGhJY09ULUZPR2pldlJtQ3MtSUo5LUUyZlpFN1hkVUF0RTNvVWMtRk1MeXphZ1ZISzlLeFZpdmNaeWRYZlVOLTd1cm9DTQ?oc=5) |
 | Ken Paxton asks Texas Supreme Court to expel 13 House Democrats over redistricting standoff - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOemctV1k2Q0NiUWoyY1pUVGxZMGlmZVFfY19uQk1PbE4teHcyOWlwSXlJQXh1RFRYbmdWN2ZvNjlINkh6c1BqdWV6WFpvS3dEOEFzNGdFQjRxUnBuY01heVM1eDdMWFREbVozU25TXzFKODM3TU5JVjY0dTdRREhuR2MzSFFwbGNrLUVxQm1KS1NmWngxVmJyeG85NkZfak8wSTZIdXFR?oc=5) |
-| ‘Disproportionate’ and ‘extreme’: DC officials protest Trump’s policing incursion - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPN0FCSGRyVlBuRjlKTEZsazZvRXNVRjFENU1lM1NfU2g3T3hKc0c1UHZEQzdUMmtyVV9tVThvYUlYMTR3QjJvalNHQ0hZX1d3SjBIM1dXNjVzc25WdDdmUFY4Wnk3VHpESno5cWJHdXZDRVhkWlBqMkVEY3dhY3M0cWpyWFNJbFItLXR4cWRuNTdkVEthbWhRUzZwLTVWWXZla19IMmpqdHdsQzdITUhuU2s5NmtJaXpLbWt2b2ZQRDUxa2M?oc=5) |
 | Mexico’s President Says U.S. Forces Are Unwelcome in Her Country - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQOFlVUnNaekYySVVpdTBDaEpRTE9BSWpSN0N2aWFpRG85RDJFdWtXWEExcWJHRFYyaUhsN254ZGJWZUljZjBKOFRUSmtRQTRjeWljRnhZVVJybGNhdUQ0SjJsS3RfdmJNQzgxUVpxdVFtSkVKdzk0bUFycVVHMUUxT1M2MV9Wb3RtWXQ1MA?oc=5) |
 | Michael Paul Brown, suspect in Montana shooting, arrested by cops - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFByOEFEdjYzWklDbkNDNWhwTmhrTFRBS0xyWW9XU09VTWtDSTh5VEFyWl9YbzZEdGFBTDREMm5zSVRNTC1nUWZsc3NJQ0gxWUp3TEtpZ0dGaUNzUdIBX0FVX3lxTE5BU1FoYTBaYUxrWThoUThCSTExUG9KZjduV1VQWTFFeE9PaWItb1lCa3NndkpscnpTdmE3aTZ4SGZhOEtybmtpVWhjQjRWenBGamVoUXNNak1lazhFNC1J?oc=5) |
 
