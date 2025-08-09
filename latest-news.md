@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月10日 05:27:58（北京时间）**
+🕒 更新时间：**2025年08月10日 05:39:37（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | Sturgeon denies 'conspiracy to destroy' mentor Salmond | [阅读全文](https://www.bbc.com/news/articles/c754rel2nyno?at_medium=RSS&at_campaign=rss) |
 | 'People are angry': Behind the wave of asylum hotel protests | [阅读全文](https://www.bbc.com/news/articles/c4gerg74y71o?at_medium=RSS&at_campaign=rss) |
 | Prince Andrew book seals his fate for any return | [阅读全文](https://www.bbc.com/news/articles/c24z1l090dqo?at_medium=RSS&at_campaign=rss) |
-| Elon Musk's AI accused of making explicit Taylor Swift videos | [阅读全文](https://www.bbc.com/news/articles/cwye62e1ndjo?at_medium=RSS&at_campaign=rss) |
+| Elon Musk's AI accused of making explicit AI Taylor Swift videos | [阅读全文](https://www.bbc.com/news/articles/cwye62e1ndjo?at_medium=RSS&at_campaign=rss) |
 | 'Are we not working class enough?' Students divided on civil service internship reform | [阅读全文](https://www.bbc.com/news/articles/cm213gd5gjpo?at_medium=RSS&at_campaign=rss) |
 | The unlikely bond between JD Vance and David Lammy | [阅读全文](https://www.bbc.com/news/articles/czr68vde7nvo?at_medium=RSS&at_campaign=rss) |
 | Seoul's 'convenience stores' fighting loneliness | [阅读全文](https://www.bbc.com/news/articles/cgkrge6e0z4o?at_medium=RSS&at_campaign=rss) |
