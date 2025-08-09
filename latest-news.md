@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月09日 12:14:49（北京时间）**
+🕒 更新时间：**2025年08月09日 12:26:58（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump, Putin meeting set for next week in Alaska - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOMU9SN2ZPNkgzVjNLTGd4cS1HQkhFejNkbkpZV1IyMDAyekVoc2xNejdrdVpBLUVTNXJIb2REN3pzeHlGWG5nZGxnR1RnTGljcmplbUF5WVFMZm51NnBqbDNPUVEtSFlHR3FON0JZN2lFOG96VDBaQW1Oek1FMW5LLW9Ec0xfZw?oc=5) |
+| What Putin Hopes to Gain From a Summit With Trump (Gift Article) - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxObUxyMUJ5OGpDdS1HOTN5SGVQQ1IxTGZTQWJXSTFBVlNFdWpHd2RJa3hfRmpmYzUxSDBvVF9KWnh3MUZUTGlmdllXUktnblRUckd5LUZBZnRwM1VzcmxEX1N0b1lyMU5MbEFJNVhYekk1TU9ncl9JWnZvSmpQUXBkaUZSemhWUQ?oc=5) |
 | Officer killed, suspect dead in shooting near CDC headquarters, Emory University campus - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQWlVaVy1hTk5qekdTNXdKRHNGS3NSMjlpbm9EZ3JBc3ZkeS1xVTM4OVZwMHFoRnJGdkcyN041QXhNSHkzOUlfNHNBSU9xOUthNHhUUjByak9jSGZJaFN4c1g3ZTBlWC1iaE9zZ2o5UkJIMXlpRm1pVFUybDY2WVpFUUpKNWszTXhCMTBIMHpadk1TZVpzSFRETU1sMzZFSmRrZUs00gGoAUFVX3lxTE56bEJiY1l4Z2s3SG9EMl9iaXlKREFfSUJqZzFuLVpuWi1GY3RNVWNkTmNMQk1iLWdNZzJMRnJZT1NhWTBwbUlkTjctdGlnSmNpQm1vTWhGZFdHcV9GMjJwaExBWVB4SWxlTUl0T1N2UGRmSFIwVmhQZWtvbzJTMXQyUmxBdkxBajl1RUlTNTI1NDRCS1FRTGVPMHh3YXlyOXQ2ZTZud2w4cQ?oc=5) |
+| Judge blocks Beto O’Rourke from financially supporting Texas Democrats who left the state - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPbUROT1BzbDgta3JoQWU0OWJzOTgyN3JkZlJ3QlJwQl9jWFZ3bjNWYUhjRVBTeEVMYV80YkU2MHAtalV1MHZfZXZUdHJrRGJISW1zdTNzNTRhd1VqYVJRSlVfaFU2UE5vcTF1OUZ0TzlBQjRyRi1na1BSSjNVOFFlV1FNN3N6WWtISjFsZ2xjM2pSUFpFSHZxWWJkTG1KX1g3ZkdEWmNVdVg?oc=5) |
 | Even some Republicans are questioning Netanyahu's plan to have Israel occupy Gaza City - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPZHBiclZ1UE5kSktPVTU5aDNmRHk3UFRYdWw1R2xiVmExS2ZVYS01Q1haSWRteGZMZ0xMVFRpbWxtbUZNN3EwS21hOWctVVdBb3VucWhxc19JUldYTkVMaGVYbHJqZVFLcEVjQUVPTUQ0Sm92V0FWY2JwVk5JMDUyRUFDam56VjQ?oc=5) |
 | California Democrats Back Newsom Plan to Redraw Congressional Maps for 2026 - KQED | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQaHRJbmxrOUNZbVducmJsNlE4VHY2ZkJYU1JtWnl3N0ZYZ28xTjRzeEEwcUk0emtUc24wejMwMTR5cXRVdE52X1FTX1hjT0NZNTRFVmpNQnZPR21HMkVoQzhzWEU0Vk8ySTNGUGhTb1ZiZE1QQUtmQkpBV0N0eVZRVmppR0ZURGtwOXQyRGhvMFpodnZVY2hjbTIzSUxHVzNLTXJocjVYRXRoWFN1UFE0?oc=5) |
-| Texas Judge Freezes Fundraising by Beto O’Rourke for Quorum-Breaking Democrats - Democracy Docket | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxPb0NTeHYyVGthbDBCMnJIUEVScmdsZWoxWXFHQ1RwRlg3eHZhMXg0MjJVUi0xQ1M3WFUxNGJpSUlXRi1OVWd0R2xzX1FNeVZlVGs0czNwOHp1SGxCSVhwd2twSjJNMW4tRUhxeVRwWG01U29pbUswTHZxYnNKWm1UNU01OWlzWjN3TW1OMXFDaUFEelIycTV5RkNXMUxEMXF2WGFpc2RnVDhDRzJKZUtaOU9HMWRvcTN0SlA4el85OA?oc=5) |
-| Trump Administration: Latest News and Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE13Q2lERGFvTnRBVnNDSHZ5LVltY05feTRJSXZPcUVjbGJ5VVUyUHZnaTNVczJ2SG1mcFlteHlFTExxelNmTTlpNzBnSU43ZS1pWEhEcWFmdnE3S283ZmtnVDZHcw?oc=5) |
+| President Trump Brokers Another Historic Peace Deal - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOVGRxR2JPbm1mdmhCMjBtY0xMUERmeG1qUmUtbWpxQ3FGamFhX0dZUVcxbHM2M3VxODNaWS11WnNGaEM0Q21qdFFhRkpaZWhlT0E2VVQzNFZPWVFWb2sxRnVkX0VlZ2k5NUp1Rk9QNDBaX3NlUEpjcmZHRlkyU1dvM1RLdzcxRzhQTDBqbnV0UmoySi1mdWR3LTdCYmc?oc=5) |
 | ‘Disproportionate’ and ‘extreme’: DC officials protest Trump’s policing incursion - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPN0FCSGRyVlBuRjlKTEZsazZvRXNVRjFENU1lM1NfU2g3T3hKc0c1UHZEQzdUMmtyVV9tVThvYUlYMTR3QjJvalNHQ0hZX1d3SjBIM1dXNjVzc25WdDdmUFY4Wnk3VHpESno5cWJHdXZDRVhkWlBqMkVEY3dhY3M0cWpyWFNJbFItLXR4cWRuNTdkVEthbWhRUzZwLTVWWXZla19IMmpqdHdsQzdITUhuU2s5NmtJaXpLbWt2b2ZQRDUxa2M?oc=5) |
 | Evacuation orders lifted as firefighters make progress on Canyon fire - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1FRWtQMG90UTlVcDJGQWp5Z1o3Zm9TM3FsaUlqUWZhamg4M1ZkYlFpQW5iTXFvYUhaTUQwMmdZUXNwUks0UERPaHctcEI0TEVtTlVZV3VZWmNJUFNJY1V4bkV2M2dCa0lWbXNfX3hyc3AyUE9uQkFIMg?oc=5) |
-| Montana bar shooting suspect is captured, ending weeklong search - The Seattle Times | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxOTWVOZXM1VFZ1SlgzcDloUnVscGU3VDR6ckFBNVZkYjdsZXo3UklOSU1mbGRzcjFyZVlZTGZzSnZtYlBtbUtxbVJ4ckhXYVJoUUtBZWVLUTY0aE9wY2RxZkRRV05kZEdFcHRHY09CZFMtZllya0RNbU16Tlk3NG5CZG9JcEM0QVBJTkd1cFJvc0lPempnM0ladlpqUWZpRkNybWtHNHNlVzVzNDdDZjQyQ0FZcWtoM3g0blVkQ19VUXJNMzFSVFpVQXV4Rjg?oc=5) |
 | William Webster, who led FBI and CIA through crises, dies at 101 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOdklkTkZRT3NYcV92T3d6OTdoMkJmdllMY0FVTXdHX0VNNDFJX2xyU1NhNmI2MFVOTkpoLUxwRnJiUDVFTWdNTUhTbTV6cjlaTXFNTU5NeE8yelptSUFiQzdHRWFaMGQ2NDlPV2FlcGI1OVpNUWhPRmF5dzMtMGo4eFg2OGZXRWcwNnJkdVNiakxnbXNiSjdneGxnSQ?oc=5) |
+| Jim Lovell, commander of Apollo 13 mission, dies at 97 - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOa2NTblpGYTNYd1NSaUZLZWVQdW82dngtRGtqTUNySl9STnFFbEp6dWxzRmlTenRqNzh6T2dRaWQ0U05zYXd4RE85VlJKVExVNE1NQW9rNXA0NUFUczZjd0FtNW9Qc2NtMld6eTRER2Q0VTlYVXhJeV8td1V0TEx4djJ5OFhyN0pHOTVmcmo3Y1kwUnZ0LUHSAZsBQVVfeXFMUDR0U3FWa0I4RGw0eUlhVndUWERuYXpuMFNMZDJqaGpzMS1xSEIzaGFnODdJdmlLR2VlZEVlVE05WlNMR1pwQ1Zfb0dJNFFfNWJpWEhtX3BqQkQwNmVfTkNHMkc3SDBTR0d2RFhYVFZuZXZyVXd5TUtxZlo3RW1vOENMcjFDNXlBSFB5TGRONUxwelRJNFBRWGROOGM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
