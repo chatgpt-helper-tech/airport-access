@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月10日 08:26:04（北京时间）**
+🕒 更新时间：**2025年08月10日 08:39:08（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Israel faces growing global condemnation over military expansion in Gaza - Politico | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9QeFZfSklRTktueTNfQlN1NkpkVzFJY0lDOEZWUTd0X2syN1ExQkNfdEI0Tm1yNXRDNFZ4M3lPTmVVSmlWRFNWM3RKMHFRQ3NoM1dYMUlnZDByVUJnMFFuMERlTy1qeUwzUS02ZHB6LUJxaFczSEVnWg?oc=5) |
 | Iran Won’t Allow Trump-Backed Azerbaijan Corridor, Top Aide Says - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPMkt2ejJoak9pOG02Z0ZZVFFDaF9QYVZKbUVMMW9ZemRTdGpWOXh6UTQzc0tuUDFJT2pWSkZXcTZLTXl1OVRlelJsb3lseWh5ZE0xa0xwTGYwQ2xLTGVXcndTT1VNSkx2SGkxcXhURGlNdmIyMkZJbXVpanhLY1pXS0NZRUV4d2ZLOTItLWF3OTdEU1ZxX09ReWw2dHV5UjRSOVU0RGpheC1MeFY1RWczN3o4aWM?oc=5) |
 | IRS, White House clashed over immigrants’ data before tax chief was ousted - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQWkJtT0Y0VS10bkdHeUhKbWNnMURnVnp0dTROQ2REOGx1VGpsY3FNLUFvd25adTR2bDJPNi03WHRaNzdrNVNucGxrT3E2WnpNYWpQN0RrT1RRT3UwSjRUVWtxeXo2T0RCUGNIUkZaY20tcWExcVo3dzZsUWt4cFVETkFBTUMybDNHLUdUNFZyOW1xd28?oc=5) |
-| Mexico rules out Trump's reported military plan against drug cartels - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE11X25RRkwzZjRHT3llY3pPeERDajZxaFRwbV9zcGIzQTBrYmJsV3RiS1pQeTFqTXdMTDB0VGdyS0txZlpIR1RuTUxhSG10RFZMNXkzaDJoOU1ud9IBX0FVX3lxTE5Tb3dEdllDV2N5WXExTUdQWTFSRDJhdFd4ZlRSaG12eFNSTUxJNktuckd1MUExOU9yQjN1QmN2YUNkbHM3RlJZcGtsSGVBUmZEbVpqa2VDSUhqUlB2T3N3?oc=5) |
-| ‘We are at war – bring it on’: Democrats ready to fight dirty to stop Trump - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOVmhWQ2kzNVFkV2ZEaEFtQlFlY295ODQweEtkc3BMY2hNSWFKcWRuVmJzd3BMd0JRVnN4YlA5VFNkZjh2TDhnRU0tb1k5NGU1ejdyZVhUMnE5OUk4Vl8yV3FIVHVUNlNQVGQ5MHEyVWZxNUJ0Y2N0V21JWXItaHFjT2lReTAzakd6dm50TTNwcw?oc=5) |
 | Tammy Bruce, State Department spokesperson, tapped for UN role - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPaTBaY292blNlRUFDRnVqOV9WS2lZYXBtVHFMbnRwb1JaSHBJeXVKUEhBcW44MS1JNExUal84cWkxTjdtV182Rm1wTWdxSmVLMWd3c0lsZ0F3QXFCLWp6NmpaWXNsbGIwT0FBblZyUXV4NWFlTUUxU1hBVmppd0s2UnpR?oc=5) |
-| Teenager arrested after three shot in New York City's Times Square - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE10NFJvbE92U0xkWkNNM2lZend3WlNsN1ptWWlOOG9mVnhONzU5QTRteW00S3h6N2h5MkxKWHlQWmtyNHVscTBUQVpzUUIyblNROERZdkRNNGw2UQ?oc=5) |
+| Teenager arrested after three shot in New York City's Times Square - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE10NFJvbE92U0xkWkNNM2lZend3WlNsN1ptWWlOOG9mVnhONzU5QTRteW00S3h6N2h5MkxKWHlQWmtyNHVscTBUQVpzUUIyblNROERZdkRNNGw2UdIBX0FVX3lxTE9JdGo0N3pKTEJfd1pRcmwzNURjYmpXV1lfVXBGX1BPc3Z4Q2RUUEE0elBnVEVQUDhRNGx3RDVER05LWFVMQVY3QUUxdmlORkNLd09nZTlTM3AzLUtyZlJN?oc=5) |
 | Newsom welcomes Texas Democrats who fled to foil Trump’s redistricting plan - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQdmpKVVA0NVRzaHNOcllVMWl6aXg2X3B2dDhBUmNjTm5JSmY5WlY3dFlBTlZhaDdrTTBIOHNIRjR3M2pMa0xEMW5xY2pNQ3pqcENrWjF1QTVXSkoxLURjcW8tVS16cjJnaHJSQlFaQ0pSQzA0S2Zldjd1N3BmcUYybnBmT01VbVVoM3oyVkFaQnl5X2d5bHRJ?oc=5) |
+| Shooting near Bryan federal prison prompts law enforcement response - KBTX News 3 | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNallyZlhhelA4aGJCR1psU1FvS0U3dUlHc3VhRDJRdzhtSUw0UEhvSVhKOGdndnhURHc1MnFQWUt4bUROZG1zalgwTkVlTEJjNmZILU84VHp4QkU5MUJmRlptSjhhbC1qZl9FVTZTTWVtQ1Q4Z2lCNHlkbUVUbXlOSzNpVERhNTlYdHp4R01oajlrUWFrZTlOTGVhNNIBrwFBVV95cUxOc0pPdVN1QmlnNGtua0drT1lXcUx1Ykg0c3k1d1FUUXdURFdoSm00QVUyeGJqd3ZfLXhzRE5majQ5bWxpOEZjZWc2UDlXWjZBaHhZaGc3cGw0bVJvVTRWSnhQOUs3eUJDS1BGV1lCNUdSZFQyV2RzWERUZTYxU2Q5SlJFbkN5Z1JIZzE4UWVXRFZPdERMSl85bGZHWU5XS2h4LUEzUGhLME5pbHA0aWVJ?oc=5) |
+| ‘We are at war – bring it on’: Democrats ready to fight dirty to stop Trump - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOVmhWQ2kzNVFkV2ZEaEFtQlFlY295ODQweEtkc3BMY2hNSWFKcWRuVmJzd3BMd0JRVnN4YlA5VFNkZjh2TDhnRU0tb1k5NGU1ejdyZVhUMnE5OUk4Vl8yV3FIVHVUNlNQVGQ5MHEyVWZxNUJ0Y2N0V21JWXItaHFjT2lReTAzakd6dm50TTNwcw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
