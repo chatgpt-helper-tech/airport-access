@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月10日 15:40:03（北京时间）**
+🕒 更新时间：**2025年08月10日 15:53:44（北京时间）**
 
 ---
 
@@ -28,10 +28,10 @@
 | Cuomo Opens Line of Attack Over Mamdani’s Rent-Stabilized Apartment - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNMWtxdkl2NHl3X1hOYWRXQTlWYks5ajNmU1czdV9iQkVnc3VYbDhWNUx4aTRYa2NQbVZpazZTWlAyQzFReEpqa3B0aFVSMmZUeXFxd05WSnhrU3hlZTl2R2NUaEtUajY2U3FlVDk0ZXdldHM0WVRlQ1M2YzgyNTI0V3llMXdLbXBvbmtJRjV3?oc=5) |
 | IRS commissioner’s removal reportedly over clash on undocumented immigrant data - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNdGVWcGxleGJCdTl4akpSOFJlZnRvX2hrbTRhWE1xMTRhem5SWjlYNHRJMzE4RjJFaFJDZXB1WW9JZ0kxMzkyZ1JyM004eUVyQ2ItbWV2a3N5aHl5SzIzZm1VNzBUb29MZU1XbGl6aFA1a0s2VFhGU1V3UWEyZU9PUktiOUpQOFVWREZzNnFROEdQVWZZX3c?oc=5) |
 | Europe stresses need to protect Ukrainian interests ahead of Trump-Putin talks - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOS1ZRVDRMd09veDNqMEFBV2ZrV3c0Yk5kM3NjRUVWUDNJU2N1MG96X3pEeVV5TTJ3UzZfOWxocFVyeDQ5TTV1dDNnQ2Vaa21hNmU1QWYyY0xGOUxfN1FZV3dDZXlFUUZQcDRENXdjWVEwdTd2S3N1dDZEM3VoaDdwUlplSTVqeDJiUU45dVZhZzMxZERlbVoxVWpybjFMMGdQOV9ocXNqUWVqVEl5Z3V1TWdxNzVLeS0wbGJLVWd3?oc=5) |
-| Just as Russia’s Most-Famous Dissident Seemed Set to Go Free, Tragedy Struck - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOV0NWMS1uR1JZVlcwOUU5OHBwZFFGSFhEOXRMZWhIR3FuYlJCWUFVTENzS0QyQUNTMFpwS243TFUzOUI3TG1fZ3U1QU5uVl9CWS1qazUyR0M4TF9KSy1EY1BJeE5VV2ZMRW0xeU1ZVldrbDJ0QjVVQU1oQWNhaUFlbmtIOVE?oc=5) |
+| L.A. Home Depot raided twice in one day. Critics say ICE is violating court order - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNV2loQXp6WkJOWS1panNPM29LVVJaWUt6dUxSY2xHcTRPRnczcWx6RlNtNmxPQzF1MEtoZkhEcWhhYkw5Z1Eyem5qbUlUbFhqTl9URXc1cUFoSDBGRnkxMktuTEIzUVNESFNWTXIxM0hjZXNHUVB4RkYzdTU1M25tRDFGNi1tV1AxWEdfUV8wVmI5YnUzWUdhdnc0RkFJc2Z1WVdfTWFDMW0zN1F4QWFKbFlIVWl3YjgyaHc?oc=5) |
 | Trump nominates ex-Fox commentator Tammy Bruce for deputy UN ambassador - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPekI5dlR6WFhzUGhKUVlWNjNsaGRDaldrZEp4TzRnVnRidk5Pcko2aXk2bk56VTdyNVhuZWNGS2RhcnlGNUV0bFBQWi02TUl0aEUyRnJkRGJTeGR0WlB4SUlTQndPSVltbzZfQzJ2dFV2Yi1weHV3eXFTcnZoQlJJQlJ0RU9Fa0ZfWEFfMnpPUQ?oc=5) |
 | Shots fired near prison where Ghislaine Maxwell is being held - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNNlN4Yy1qckU5NnRBaU1MTy11azJLM0hGeXl5YXFPLWNMcnVDTDFFdHk5SHVkckpCdnNaN3BUNzZIOHdJbTFFeXdOVkhFU0JHMXZFM2dMTWhmMjN6NTI3bXpjMmtkSGxIdUVjYXh6VGVPMGFMdmJ3Y1BpSXhjWXRSRHRPSFA3VzBNMUZvQWJ2clJ3WFF0ekROUDJYS2NpVUtGS1HSAVZBVV95cUxOU1ZiVi1FQUhOWkZBVlQ1SzZpVkdOZ011UXZVVDVHNDJWZkJBbXZ2ajU1cGZVZWVQaGtxV0owd21NXzhucVQwLUdTNVAzWlRTLVBtV3JzZw?oc=5) |
-| Who Is the Heir to the MAGA Movement? Trump Keeps His Options Open - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOWUhfNHdVOW5CU0lLUDNzWXcxUnVMNDVMV3c2RU9kSE1KRWVfZjM3dkFxUzU4TkVWYjdydTctZ2dRMGFUVENMTFBJQjRISTQ3RjNYQ2hXUjZWMjdtYVpHc0lzOEFXODYwSzZnLVZtcXd4SUNHUm5NNlhIbTN3M3NLYVR5emJoUEJKNHhRLXMxUFpiX3hiNWpfcVY2ZXA4M0Npa2xYaXlOYnJ4TDhselZV?oc=5) |
+| Trump news at a glance: Lutnick threatens Harvard patents; former Fox commentator bound for UN - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQMXk1Sm9kTHpweDl3Z19oelZySnRtR29WZUhveHNnYWUxd0VJY3ZkVjhuMHZGdGowNU9OSUxKTDU0bndyRHd5U0s5QXdoZWxfM0tSVWRyQk9iYzdYYUxOcHM5dklzdXRPTG1OSmVVOUhmVkJmdmgzOTM2d3BIS2t4UkhwalZPN0tQZzJsb2U2aWJienI5XzBOMHpVS3Izd2s?oc=5) |
 | Colorado wildfires: Mandatory evacuations ordered in Garfield County as Lee fire races south - The Denver Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPMDBsVzFGbmU2V19Bbl9vUU5hOHR3N3dkV1pfNWlOZTVERWdxelZMUHRNaDVVTEpQZEpyNUFjRFlFZ1pnSmtpZHBlT3B1OFFyZFNQLXI4ZE5wcUFxY3ViaEFFeEYtemNZSjEzNjlQaDl6Z1VTT3RFX2FwTzc2elNTQTFtc9IBiAFBVV95cUxNWnhRSThSS3JOaldXVHY1amVlc25LZF9wRi14STN4TUxqWV8xbEM0NHBQOVNURnZyYm9vT2ZPbWxRNVBlWE01Y3RydFBEWXRDU21VRm1NUWlWazNoRjYzQ1F3dFFJOFI2N1pGSGpadi1PQXBOY1ZUUzh1cV9keVVHLVN5VmU5QkRO?oc=5) |
 
 ---
