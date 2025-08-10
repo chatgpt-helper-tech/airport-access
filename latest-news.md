@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月10日 15:26:28（北京时间）**
+🕒 更新时间：**2025年08月10日 15:40:03（北京时间）**
 
 ---
 
@@ -9,12 +9,12 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Ukraine's European allies say peace talks must include Kyiv | [阅读全文](https://www.bbc.com/news/articles/c0e9py7e28xo?at_medium=RSS&at_campaign=rss) |
-| Police arrest 474 people at Palestine Action ban protest | [阅读全文](https://www.bbc.com/news/articles/c8de6rq37v5o?at_medium=RSS&at_campaign=rss) |
+| Police make 474 arrests at protest against ban on Palestine Action | [阅读全文](https://www.bbc.com/news/articles/c8de6rq37v5o?at_medium=RSS&at_campaign=rss) |
 | Foreign criminals to face deportation after sentencing under new plans | [阅读全文](https://www.bbc.com/news/articles/cn72dknzepjo?at_medium=RSS&at_campaign=rss) |
 | Thousands protest in Israel over Gaza City occupation plan | [阅读全文](https://www.bbc.com/news/videos/c5ylprlr3dzo?at_medium=RSS&at_campaign=rss) |
 | Mars rock found in Niger sells for millions in New York - now the country wants answers | [阅读全文](https://www.bbc.com/news/articles/cly3q635n4no?at_medium=RSS&at_campaign=rss) |
 | Trump nominates ex-Fox News host Tammy Bruce as deputy UN ambassador | [阅读全文](https://www.bbc.com/news/articles/cj9wv49xr0xo?at_medium=RSS&at_campaign=rss) |
-| France's last newspaper hawker gets Order of Merit from his old customer - President Macron | [阅读全文](https://www.bbc.com/news/articles/cdx0vvpeq9wo?at_medium=RSS&at_campaign=rss) |
+| France's last newspaper hawker gets Order of Merit from his former customer - President Macron | [阅读全文](https://www.bbc.com/news/articles/cdx0vvpeq9wo?at_medium=RSS&at_campaign=rss) |
 | What it means to be 'culturally' Irish in 2025 is complicated - as Ed Sheeran has shown | [阅读全文](https://www.bbc.com/news/articles/cgln9y13x3yo?at_medium=RSS&at_campaign=rss) |
 | Drinks that make you chill - do they really do what it says on the tin? | [阅读全文](https://www.bbc.com/news/articles/c4gdw0y4q7wo?at_medium=RSS&at_campaign=rss) |
 | So bad they're good - why we love terrible films | [阅读全文](https://www.bbc.com/news/articles/cy40e08k1p0o?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | Trump nominates ex-Fox commentator Tammy Bruce for deputy UN ambassador - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPekI5dlR6WFhzUGhKUVlWNjNsaGRDaldrZEp4TzRnVnRidk5Pcko2aXk2bk56VTdyNVhuZWNGS2RhcnlGNUV0bFBQWi02TUl0aEUyRnJkRGJTeGR0WlB4SUlTQndPSVltbzZfQzJ2dFV2Yi1weHV3eXFTcnZoQlJJQlJ0RU9Fa0ZfWEFfMnpPUQ?oc=5) |
 | Shots fired near prison where Ghislaine Maxwell is being held - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNNlN4Yy1qckU5NnRBaU1MTy11azJLM0hGeXl5YXFPLWNMcnVDTDFFdHk5SHVkckpCdnNaN3BUNzZIOHdJbTFFeXdOVkhFU0JHMXZFM2dMTWhmMjN6NTI3bXpjMmtkSGxIdUVjYXh6VGVPMGFMdmJ3Y1BpSXhjWXRSRHRPSFA3VzBNMUZvQWJ2clJ3WFF0ekROUDJYS2NpVUtGS1HSAVZBVV95cUxOU1ZiVi1FQUhOWkZBVlQ1SzZpVkdOZ011UXZVVDVHNDJWZkJBbXZ2ajU1cGZVZWVQaGtxV0owd21NXzhucVQwLUdTNVAzWlRTLVBtV3JzZw?oc=5) |
 | Who Is the Heir to the MAGA Movement? Trump Keeps His Options Open - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOWUhfNHdVOW5CU0lLUDNzWXcxUnVMNDVMV3c2RU9kSE1KRWVfZjM3dkFxUzU4TkVWYjdydTctZ2dRMGFUVENMTFBJQjRISTQ3RjNYQ2hXUjZWMjdtYVpHc0lzOEFXODYwSzZnLVZtcXd4SUNHUm5NNlhIbTN3M3NLYVR5emJoUEJKNHhRLXMxUFpiX3hiNWpfcVY2ZXA4M0Npa2xYaXlOYnJ4TDhselZV?oc=5) |
-| Trump news at a glance: Lutnick threatens Harvard patents; former Fox commentator bound for UN - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQMXk1Sm9kTHpweDl3Z19oelZySnRtR29WZUhveHNnYWUxd0VJY3ZkVjhuMHZGdGowNU9OSUxKTDU0bndyRHd5U0s5QXdoZWxfM0tSVWRyQk9iYzdYYUxOcHM5dklzdXRPTG1OSmVVOUhmVkJmdmgzOTM2d3BIS2t4UkhwalZPN0tQZzJsb2U2aWJienI5XzBOMHpVS3Izd2s?oc=5) |
+| Colorado wildfires: Mandatory evacuations ordered in Garfield County as Lee fire races south - The Denver Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPMDBsVzFGbmU2V19Bbl9vUU5hOHR3N3dkV1pfNWlOZTVERWdxelZMUHRNaDVVTEpQZEpyNUFjRFlFZ1pnSmtpZHBlT3B1OFFyZFNQLXI4ZE5wcUFxY3ViaEFFeEYtemNZSjEzNjlQaDl6Z1VTT3RFX2FwTzc2elNTQTFtc9IBiAFBVV95cUxNWnhRSThSS3JOaldXVHY1amVlc25LZF9wRi14STN4TUxqWV8xbEM0NHBQOVNURnZyYm9vT2ZPbWxRNVBlWE01Y3RydFBEWXRDU21VRm1NUWlWazNoRjYzQ1F3dFFJOFI2N1pGSGpadi1PQXBOY1ZUUzh1cV9keVVHLVN5VmU5QkRO?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
