@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月10日 23:27:47（北京时间）**
+🕒 更新时间：**2025年08月10日 23:39:11（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Russians cheer Putin’s Alaska invitation, envision no concessions on Ukraine - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNSXV5TzdLUnMzRXAtRjA5Z1NQRVhxbUdQVXNxQmVnX09fcS1sWDNOMDkyUF81NmJhWmlfYTh0SHVWaEg0dkJpVVlSblE5TXM4MGdDelVIUndzRm9yeXhKUjJDMmpkMTRtc3NqVXRzcnVaeUdRTmZ1Z3dzU2ZWNUlOUnZ6MEFMYlN5QVE?oc=5) |
-| A week into their walkout, Texas Democrats are figuring out what to do next - CNN | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9BNjFhVUxXYndGMFVEX1hDUHZRel8zMUdHQmkyMG9UMjdJcVg1Qm5LY3UxVnZRRV9acHlBT2JhdDRiOUNxbGVpZmltWkFCSlZiU0RWbld1WVh2ZGpjcHF3ZEdGc2NqQ0V1djdoMFE5OGTSAXZBVV95cUxNV2xPLVNaTVkxU3pfQ1ItTTIycm9pX3JLYzU0aTBZVEhfVWlRLUsyMnBJeGJFM3hyUkVhNVhwS1Y2YXBMQ0Z5WXlHcERpZ1g1WUdZMTNZbjg4VEcwQnN1OGZqM2ttMzRORjM0d1BxckozX3BaV1F3?oc=5) |
-| Europe stresses need to protect Ukrainian interests ahead of Trump-Putin talks - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOS1ZRVDRMd09veDNqMEFBV2ZrV3c0Yk5kM3NjRUVWUDNJU2N1MG96X3pEeVV5TTJ3UzZfOWxocFVyeDQ5TTV1dDNnQ2Vaa21hNmU1QWYyY0xGOUxfN1FZV3dDZXlFUUZQcDRENXdjWVEwdTd2S3N1dDZEM3VoaDdwUlplSTVqeDJiUU45dVZhZzMxZERlbVoxVWpybjFMMGdQOV9ocXNqUWVqVEl5Z3V1TWdxNzVLeS0wbGJLVWd3?oc=5) |
-| Far-Right Israeli Minister Calls for Quicker Military Moves in Gaza - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOSDFPWWZEUlZVeHhPLWswdy1KU0phSGFvVUhqTVNvZjZVS1ExYk9Hd2pqMXpQbGt4LW5GUFZqN2M3NGs0dlN2aUQzek5uUGxFZlo0NS1nOU5TNUZHdjM5WGlTNUNfWjdCVFFwVUpZdnA0Z1RFaTRQUlB5d0piRVRaR0p1NDFZRExfV05saUZyOTBLZU1Fb2dNTTR3OFI?oc=5) |
+| A week into their walkout, Texas Democrats are figuring out what to do next - CNN | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9BNjFhVUxXYndGMFVEX1hDUHZRel8zMUdHQmkyMG9UMjdJcVg1Qm5LY3UxVnZRRV9acHlBT2JhdDRiOUNxbGVpZmltWkFCSlZiU0RWbld1WVh2ZGpjcHF3ZEdGc2NqQ0V1djdoMFE5OGQ?oc=5) |
+| Ukraine and Europe Project United Front Ahead of Trump-Putin Summit - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQRFQyY2FVZXljRmx1SEdTLVFOZVRGRUxxRjYxYlJSN1NZVXZkTlZWbUczTVZ5S1JONzY3eUYxYzFOVmR6YThmLXdDNEdOQWhDeHA1SGxxckpkb3FtTy1zLW5McHpMUnQwdUhaOVQ2OVZzajNGOTFUbHhncEVWMnBtX1RFUzg0RE5NOTVKRHd2VjhtUQ?oc=5) |
+| Thousands in Israel march against Netanyahu’s plan to escalate Gaza war - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNZEgtMTVjNzdKVmxsZEdaXy1tRUpEcGxURmVPdGZsUHRYeVUzcEMxeE1WQTM5ZVhWUXRfNEN5SmMwWmRHRVAwZklWa050UW1KQWdBOEZBNUhQdnluMUV0bDltR215cU5qZmFPel9MY1lqSFVmWk1oX0p6TERFa29JMVNWZXdBMHpPWnNXQTdTbENmaV82SG9NcGlkZDl3SmxwTFlROXpwRQ?oc=5) |
 | 1 dead, 5 wounded, including 5-year-old girl, in Baltimore 'mass shooting': Police - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQYk5DTVc2SzFGM0hXbTN4WVhFZkp6UFRrbEdmRzV2azZVOUtTLTBMZHI2SGdFbGJUOWRuUm5Xd0N4Q283Z2M0cHI2aDlzdmlCSjVzMlF1WVQ1bUZ4VUdJMU1VWlZFbm0wZGhNTGRfQTNkZzhEelNjRlpQQ0xodE04WVJpeUIwdTdoSkZSWWdrRTlEYknSAZgBQVVfeXFMUFYyTEVVSTdZTE9HVEk2QVgwT0RLNlZzNXczeDFCdmJ6c3hzdi1uVEp6ZDJhel9GMng0SVJlUUpRNGdEcmxGTF9KYzJ1UUNfRVZyLXhVNkYtZ0Jsb2VZSGVMUGZXTU0weEN3Sm4xdHBtOWxFbk4zTlRvTm54N2hpSjFxaHNVV0FhZjNhVUdfeEt6VURQdVE5Nlo?oc=5) |
 | CDC shooter believed Covid vaccine made him suicidal, his father tells police - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNaUJNZGszVkNlM0VkZW5fN01PU0gxb1NoUG5YVnNEemxab0lobXhsYjZpd2JXTkxmdlhILXh0ZkZEekczQWtldkY2dGFRaUlGSm5fZzdxLU5GT1I4S0ZFRDZmZFFHOC1ySWlSQkhoZ1o4STBUYjNwbUllR3g2RjkzaUVBZnp5QS1sOG5xOTFXWVV4Vkl4ajYtX3hnMVZJOGJCMmY4anlDUGluRlFveDZiTFNZN0taZ3RHcGZ2WnlGNU42dG1K?oc=5) |
 | Florida’s universities face research overhaul courtesy of Trump and DeSantis - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOcW5IR0FkelFXemdTVkhMd2p3UXRKcXF1WFE0aE9TRGdud2pQN19Od2lvdkF5Vm5OaUF0ZXhWZHl6MEJ0aGZKT0p3bXFzcjF5WWZYS2p2a3VPemh6YmZOeDUtTF85c19CaUo5eGRaMkNlVlRPcFh4ZnN2TE5BdnFZdExkTUtTeEJOR1U0RGQtbDNmNWJFdGhpenBDTzFMcU1TQXNGRDdVSUZ6ZF9ueWhGUmVQRnZROURJRzVDRjNmUkZweUE?oc=5) |
