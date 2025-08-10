@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月10日 08:52:57（北京时间）**
+🕒 更新时间：**2025年08月10日 09:01:53（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | White House is considering inviting Zelenskyy to Alaska - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQZ0ZFRUNxZTZMUkUwNlJRZjZ0aWZ4N1R0RWZwdDZaTkZYNlZ0V2VSRFkzeE8zMV9YYnhLRTFrZHdObXRrb2pjUElWd3hNLXI3WEhRNXY0bl92d0NtNmsxNXBkcW9WR3ctejdwOHdMM1drMGgzWUdpd3Q2Qm5KZlgzUHplMjdDRDg4QTlSVUNzcmVXTUJUd2lFR1Vaa214NVdDTVNYU0Z3QUZKa2Y3UTE5QXEtUDjSAVZBVV95cUxNaE5ob2xZSDVKdk45NGZUeGxmajhoQmtqQnJpWE82MURTXzV4QWhQOGRMdFFjaGVVVzR5NTNzdXJha0lqSno0eTQzTGxLSzgzTWt3b3h4UQ?oc=5) |
 | Tammy Bruce, State Department spokesperson, tapped for UN role - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPaTBaY292blNlRUFDRnVqOV9WS2lZYXBtVHFMbnRwb1JaSHBJeXVKUEhBcW44MS1JNExUal84cWkxTjdtV182Rm1wTWdxSmVLMWd3c0lsZ0F3QXFCLWp6NmpaWXNsbGIwT0FBblZyUXV4NWFlTUUxU1hBVmppd0s2UnpR?oc=5) |
 | Teenager arrested after three shot in New York City's Times Square - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE10NFJvbE92U0xkWkNNM2lZend3WlNsN1ptWWlOOG9mVnhONzU5QTRteW00S3h6N2h5MkxKWHlQWmtyNHVscTBUQVpzUUIyblNROERZdkRNNGw2UdIBX0FVX3lxTE9JdGo0N3pKTEJfd1pRcmwzNURjYmpXV1lfVXBGX1BPc3Z4Q2RUUEE0elBnVEVQUDhRNGx3RDVER05LWFVMQVY3QUUxdmlORkNLd09nZTlTM3AzLUtyZlJN?oc=5) |
-| Newsom welcomes Texas Democrats who fled to foil Trump’s redistricting plan - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQdmpKVVA0NVRzaHNOcllVMWl6aXg2X3B2dDhBUmNjTm5JSmY5WlY3dFlBTlZhaDdrTTBIOHNIRjR3M2pMa0xEMW5xY2pNQ3pqcENrWjF1QTVXSkoxLURjcW8tVS16cjJnaHJSQlFaQ0pSQzA0S2Zldjd1N3BmcUYybnBmT01VbVVoM3oyVkFaQnl5X2d5bHRJ?oc=5) |
+| Texas Democrats embrace Newsom’s redistricting rebuttal as California draws new map - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxONXFNV0tSVlJJSHhERy0yUUtyS0FGdW1DR0NzbzVSNTAzb2V0aTNJeWEwU0Z4eC1ZSmx5bldwd2JxeHhCMGJiTlhPdHNPZTNYTmRSekhBSjFGMEVlakh1LTUyczVCd1BJMk9SZGFPcUVSX3p0RUxfaVFoZi1tU2FmcHRYUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
