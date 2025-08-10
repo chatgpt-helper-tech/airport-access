@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月10日 13:01:10（北京时间）**
+🕒 更新时间：**2025年08月10日 13:13:08（北京时间）**
 
 ---
 
@@ -10,9 +10,9 @@
 |--------|-------------|
 | Ukraine's European allies say peace talks must include Kyiv | [阅读全文](https://www.bbc.com/news/articles/c0e9py7e28xo?at_medium=RSS&at_campaign=rss) |
 | Vance and Lammy host Ukraine talks ahead of US-Russia summit | [阅读全文](https://www.bbc.com/news/articles/c3dp119lk5xo?at_medium=RSS&at_campaign=rss) |
+| 'Is my secret camera working?' - posing as a migrant to infiltrate a cross-Channel gang | [阅读全文](https://www.bbc.com/news/articles/c04r5y5xv11o?at_medium=RSS&at_campaign=rss) |
 | Police arrest 474 people at Palestine Action ban protest | [阅读全文](https://www.bbc.com/news/articles/c8de6rq37v5o?at_medium=RSS&at_campaign=rss) |
 | Thousands protest in Jerusalem over Israel's Gaza City occupation plan | [阅读全文](https://www.bbc.com/news/videos/c5ylprlr3dzo?at_medium=RSS&at_campaign=rss) |
-| Foreign criminals to face deportation after sentencing under new plans | [阅读全文](https://www.bbc.com/news/articles/cn72dknzepjo?at_medium=RSS&at_campaign=rss) |
 | Trump nominates ex-Fox News host Tammy Bruce as deputy UN ambassador | [阅读全文](https://www.bbc.com/news/articles/cj9wv49xr0xo?at_medium=RSS&at_campaign=rss) |
 | Mars rock found in Niger sells for millions in New York - now the country wants answers | [阅读全文](https://www.bbc.com/news/articles/cly3q635n4no?at_medium=RSS&at_campaign=rss) |
 | What it means to be 'culturally' Irish in 2025 is complicated - as Ed Sheeran has shown | [阅读全文](https://www.bbc.com/news/articles/cgln9y13x3yo?at_medium=RSS&at_campaign=rss) |
