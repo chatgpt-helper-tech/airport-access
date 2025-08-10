@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月10日 14:53:00（北京时间）**
+🕒 更新时间：**2025年08月10日 15:00:11（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Tammy Bruce, State Department spokesperson, tapped for UN role - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPaTBaY292blNlRUFDRnVqOV9WS2lZYXBtVHFMbnRwb1JaSHBJeXVKUEhBcW44MS1JNExUal84cWkxTjdtV182Rm1wTWdxSmVLMWd3c0lsZ0F3QXFCLWp6NmpaWXNsbGIwT0FBblZyUXV4NWFlTUUxU1hBVmppd0s2UnpR?oc=5) |
 | Shots fired near prison where Ghislaine Maxwell is being held - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNNlN4Yy1qckU5NnRBaU1MTy11azJLM0hGeXl5YXFPLWNMcnVDTDFFdHk5SHVkckpCdnNaN3BUNzZIOHdJbTFFeXdOVkhFU0JHMXZFM2dMTWhmMjN6NTI3bXpjMmtkSGxIdUVjYXh6VGVPMGFMdmJ3Y1BpSXhjWXRSRHRPSFA3VzBNMUZvQWJ2clJ3WFF0ekROUDJYS2NpVUtGS1HSAVZBVV95cUxOU1ZiVi1FQUhOWkZBVlQ1SzZpVkdOZ011UXZVVDVHNDJWZkJBbXZ2ajU1cGZVZWVQaGtxV0owd21NXzhucVQwLUdTNVAzWlRTLVBtV3JzZw?oc=5) |
 | Who Is the Heir to the MAGA Movement? Trump Keeps His Options Open - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOWUhfNHdVOW5CU0lLUDNzWXcxUnVMNDVMV3c2RU9kSE1KRWVfZjM3dkFxUzU4TkVWYjdydTctZ2dRMGFUVENMTFBJQjRISTQ3RjNYQ2hXUjZWMjdtYVpHc0lzOEFXODYwSzZnLVZtcXd4SUNHUm5NNlhIbTN3M3NLYVR5emJoUEJKNHhRLXMxUFpiX3hiNWpfcVY2ZXA4M0Npa2xYaXlOYnJ4TDhselZV?oc=5) |
-| Colorado wildfires: Mandatory evacuations ordered in Garfield County as Lee fire races south - The Denver Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPMDBsVzFGbmU2V19Bbl9vUU5hOHR3N3dkV1pfNWlOZTVERWdxelZMUHRNaDVVTEpQZEpyNUFjRFlFZ1pnSmtpZHBlT3B1OFFyZFNQLXI4ZE5wcUFxY3ViaEFFeEYtemNZSjEzNjlQaDl6Z1VTT3RFX2FwTzc2elNTQTFtc9IBiAFBVV95cUxNWnhRSThSS3JOaldXVHY1amVlc25LZF9wRi14STN4TUxqWV8xbEM0NHBQOVNURnZyYm9vT2ZPbWxRNVBlWE01Y3RydFBEWXRDU21VRm1NUWlWazNoRjYzQ1F3dFFJOFI2N1pGSGpadi1PQXBOY1ZUUzh1cV9keVVHLVN5VmU5QkRO?oc=5) |
+| Zelenskiy Says Ukraine Won’t Give Up Land to Russia for Peace - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNQWU1WnBvM3FySFlwZ0FHSDQzVDNNX1hjUWNJYjdwdzlLRk1LbFQ0bDk5XzhUanlXekJhQnd2YWlxa3FyVC1rb1Y2NUNRZnU0dU5XVExpQU5JakVQQUt2Zk9LUVRQaDFXejZsOU9iaDJPMHU4cDdGQ2NCZG5SWURCWE44aWJZemN2RG9UUG02NDlqMUlsQ3VXRy1ySkpxZFE5VnpVTTNjZ09Gbl8yN2M2SDJn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
