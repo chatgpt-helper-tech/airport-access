@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月10日 16:01:53（北京时间）**
+🕒 更新时间：**2025年08月10日 16:14:17（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | White House hasn’t ruled out Zelensky being in Alaska during Trump-Putin meeting on Friday - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNUG9HMUVsb0Q2NHZkSkNlZ29GS21rbTQtNEJVdzdzY2RmMm5VYVMyNnRWemNfXzQ2M0ZoTkhMZEU0VnhJaG5sOFphSjRLVzRSMHFvRkMtQUN1d0R6R0xhdDdIb1dJOVNGbHhBclhEYXgzR3ItZlYxRUhqNmNqM240N2E0Q3FsVmvSAYwBQVVfeXFMTS1hRE9lcnpFOGtnaldCQWZtOS1oSnlOQUlWMUN5QUMtTHYyRUpCcGRIaEVTRkdrVEo2T1RHajhDcWpocVRoaDB5Z3dJaHhKNDZhUHppbDdTeDFfUEJ0R2h3eGZqTzRiellPQXQxbGtGYWxKNjUzcjI0NmpXVDF6WmpvczFHMjAweEhjYkQ?oc=5) |
-| CDC officials try to reassure staff after fatal shooting in Atlanta - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQOGxuX1FnN3hNQk9CZkF6cFd3Y21QSEN3a1plTkRZWm5lSXY1S0RhYW80RnU3ajFjbWFsRHpOYkRpR19WZG1kV25kVEFsRF9Ba1R3VVJaZDJuYzA0VHhodzlVMkM2WFl5SnBtR2xKUVFmd3FnMTFybTdybXVtS0NMNGd6cV8?oc=5) |
 | Cuomo Opens Line of Attack Over Mamdani’s Rent-Stabilized Apartment - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNMWtxdkl2NHl3X1hOYWRXQTlWYks5ajNmU1czdV9iQkVnc3VYbDhWNUx4aTRYa2NQbVZpazZTWlAyQzFReEpqa3B0aFVSMmZUeXFxd05WSnhrU3hlZTl2R2NUaEtUajY2U3FlVDk0ZXdldHM0WVRlQ1M2YzgyNTI0V3llMXdLbXBvbmtJRjV3?oc=5) |
-| IRS commissioner’s removal reportedly over clash on undocumented immigrant data - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNdGVWcGxleGJCdTl4akpSOFJlZnRvX2hrbTRhWE1xMTRhem5SWjlYNHRJMzE4RjJFaFJDZXB1WW9JZ0kxMzkyZ1JyM004eUVyQ2ItbWV2a3N5aHl5SzIzZm1VNzBUb29MZU1XbGl6aFA1a0s2VFhGU1V3UWEyZU9PUktiOUpQOFVWREZzNnFROEdQVWZZX3c?oc=5) |
+| IRS, White House clashed over immigrants’ data before tax chief was ousted - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQWkJtT0Y0VS10bkdHeUhKbWNnMURnVnp0dTROQ2REOGx1VGpsY3FNLUFvd25adTR2bDJPNi03WHRaNzdrNVNucGxrT3E2WnpNYWpQN0RrT1RRT3UwSjRUVWtxeXo2T0RCUGNIUkZaY20tcWExcVo3dzZsUWt4cFVETkFBTUMybDNHLUdUNFZyOW1xd28?oc=5) |
+| Suspect in CDC Shooting Had Anti-Vax Sentiments: Reports - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQdmQxMWdMcjl6OTZseFItV3hhMzlEcElld3lxU2diSENKSEJEa2hhb3h4NkNVdXBSckJ4bk95MmhNZDRYRE5aM3JpV1FBWVdGRUlRUUxBOExsSHRGc3hNazNiNVFvTHJxY2xyZE9zalVMWF9zOVVtcnpHaFlld29lMzREVmdNb3daODVnNG1XMVgzZGJIRDJKUmFUdkdsZ01OczFZU21jNFM3YkVQSGs4?oc=5) |
 | Europe stresses need to protect Ukrainian interests ahead of Trump-Putin talks - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOS1ZRVDRMd09veDNqMEFBV2ZrV3c0Yk5kM3NjRUVWUDNJU2N1MG96X3pEeVV5TTJ3UzZfOWxocFVyeDQ5TTV1dDNnQ2Vaa21hNmU1QWYyY0xGOUxfN1FZV3dDZXlFUUZQcDRENXdjWVEwdTd2S3N1dDZEM3VoaDdwUlplSTVqeDJiUU45dVZhZzMxZERlbVoxVWpybjFMMGdQOV9ocXNqUWVqVEl5Z3V1TWdxNzVLeS0wbGJLVWd3?oc=5) |
 | L.A. Home Depot raided twice in one day. Critics say ICE is violating court order - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNV2loQXp6WkJOWS1panNPM29LVVJaWUt6dUxSY2xHcTRPRnczcWx6RlNtNmxPQzF1MEtoZkhEcWhhYkw5Z1Eyem5qbUlUbFhqTl9URXc1cUFoSDBGRnkxMktuTEIzUVNESFNWTXIxM0hjZXNHUVB4RkYzdTU1M25tRDFGNi1tV1AxWEdfUV8wVmI5YnUzWUdhdnc0RkFJc2Z1WVdfTWFDMW0zN1F4QWFKbFlIVWl3YjgyaHc?oc=5) |
 | Shots fired near prison where Ghislaine Maxwell is being held - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNNlN4Yy1qckU5NnRBaU1MTy11azJLM0hGeXl5YXFPLWNMcnVDTDFFdHk5SHVkckpCdnNaN3BUNzZIOHdJbTFFeXdOVkhFU0JHMXZFM2dMTWhmMjN6NTI3bXpjMmtkSGxIdUVjYXh6VGVPMGFMdmJ3Y1BpSXhjWXRSRHRPSFA3VzBNMUZvQWJ2clJ3WFF0ekROUDJYS2NpVUtGS1HSAVZBVV95cUxOU1ZiVi1FQUhOWkZBVlQ1SzZpVkdOZ011UXZVVDVHNDJWZkJBbXZ2ajU1cGZVZWVQaGtxV0owd21NXzhucVQwLUdTNVAzWlRTLVBtV3JzZw?oc=5) |
