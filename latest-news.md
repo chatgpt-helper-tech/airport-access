@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月11日 02:53:06（北京时间）**
+🕒 更新时间：**2025年08月11日 03:00:43（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Heavy Rains in Wisconsin Lead to Flooding and Early Closure of State Fair - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5aMXlObmNBRGhRd1g1bnR1Q184UW5oTmgyZkhDeHhwM0ZFWnVvc253LXE4Q0lFRDh3alJRMVhtcFh3NE5HM3BORjBRYjdFR3lsdTNzNFk0U0F1V18tOUhhbGswbkdmMmhzMWlnZW84cWVxWDgyRVhBalpB?oc=5) |
 | Florida’s universities face research overhaul courtesy of Trump and DeSantis - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOcW5IR0FkelFXemdTVkhMd2p3UXRKcXF1WFE0aE9TRGdud2pQN19Od2lvdkF5Vm5OaUF0ZXhWZHl6MEJ0aGZKT0p3bXFzcjF5WWZYS2p2a3VPemh6YmZOeDUtTF85c19CaUo5eGRaMkNlVlRPcFh4ZnN2TE5BdnFZdExkTUtTeEJOR1U0RGQtbDNmNWJFdGhpenBDTzFMcU1TQXNGRDdVSUZ6ZF9ueWhGUmVQRnZROURJRzVDRjNmUkZweUE?oc=5) |
 | Big Tech’s next major political battle may already be brewing in your backyard - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxQOXlCZGlHamxEM2o0S2xIWXM2NDFDWW14YzVrSnY3N2g1R09DazJWU0czOHZnbjBDMmlCVHRvN2sySk52c3VZZVpNZnNId1poTU9wemFfWEpTdVQ2SGowLVZjOHNPZ2FGUVRPNGV3N3NzZE5rRTl1ZnMyLWVOa2lSMUc1d3lZc3RvSHhha25YTlcyWWx4LS1tZHRYWUFtY1FUSFJUSWN5Z3NHNVpBZ3B5S1RPdWkxRV8yMHVpWU95VzR2S2ZLeFE?oc=5) |
-| 1 dead, 5 wounded, including 5-year-old girl, in Baltimore 'mass shooting': Police - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQYk5DTVc2SzFGM0hXbTN4WVhFZkp6UFRrbEdmRzV2azZVOUtTLTBMZHI2SGdFbGJUOWRuUm5Xd0N4Q283Z2M0cHI2aDlzdmlCSjVzMlF1WVQ1bUZ4VUdJMU1VWlZFbm0wZGhNTGRfQTNkZzhEelNjRlpQQ0xodE04WVJpeUIwdTdoSkZSWWdrRTlEYknSAZgBQVVfeXFMUFYyTEVVSTdZTE9HVEk2QVgwT0RLNlZzNXczeDFCdmJ6c3hzdi1uVEp6ZDJhel9GMng0SVJlUUpRNGdEcmxGTF9KYzJ1UUNfRVZyLXhVNkYtZ0Jsb2VZSGVMUGZXTU0weEN3Sm4xdHBtOWxFbk4zTlRvTm54N2hpSjFxaHNVV0FhZjNhVUdfeEt6VURQdVE5Nlo?oc=5) |
+| 1 dead, 5 injured in Baltimore mass shooting - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQSmM5Ukc5QjVrRHFSTlcxUnVqSHhRVlhsd2F5MHo1MmlYOEotbEI3a0xFZ0dpTW5fa2g2dGxqd3VReWlsY2FlaDZ1V1huc0ZDNkJfdTFsbXk0Q1NCZ1JoSTAxeVkzdHZKYi1xUDRMVkg0dnVrQzNwa3NiWWpSSGZnTE9iX2M3dDlMTlk3VDZkVEYzeHd5ZkprZEFfc3g?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
