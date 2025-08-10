@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月10日 13:26:32（北京时间）**
+🕒 更新时间：**2025年08月10日 13:40:21（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | Ukraine's European allies say peace talks must include Kyiv | [阅读全文](https://www.bbc.com/news/articles/c0e9py7e28xo?at_medium=RSS&at_campaign=rss) |
 | Police arrest 474 people at Palestine Action ban protest | [阅读全文](https://www.bbc.com/news/articles/c8de6rq37v5o?at_medium=RSS&at_campaign=rss) |
 | Foreign criminals to face deportation after sentencing under new plans | [阅读全文](https://www.bbc.com/news/articles/cn72dknzepjo?at_medium=RSS&at_campaign=rss) |
-| Thousands protest in Jerusalem over Israel's Gaza City occupation plan | [阅读全文](https://www.bbc.com/news/videos/c5ylprlr3dzo?at_medium=RSS&at_campaign=rss) |
+| Thousands protest in Israel over Gaza City occupation plan | [阅读全文](https://www.bbc.com/news/videos/c5ylprlr3dzo?at_medium=RSS&at_campaign=rss) |
 | Mars rock found in Niger sells for millions in New York - now the country wants answers | [阅读全文](https://www.bbc.com/news/articles/cly3q635n4no?at_medium=RSS&at_campaign=rss) |
 | Trump nominates ex-Fox News host Tammy Bruce as deputy UN ambassador | [阅读全文](https://www.bbc.com/news/articles/cj9wv49xr0xo?at_medium=RSS&at_campaign=rss) |
 | France's last newspaper hawker gets Order of Merit from his old customer - President Macron | [阅读全文](https://www.bbc.com/news/articles/cdx0vvpeq9wo?at_medium=RSS&at_campaign=rss) |
