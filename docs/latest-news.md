@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月10日 15:53:44（北京时间）**
+🕒 更新时间：**2025年08月10日 16:01:53（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | IRS commissioner’s removal reportedly over clash on undocumented immigrant data - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNdGVWcGxleGJCdTl4akpSOFJlZnRvX2hrbTRhWE1xMTRhem5SWjlYNHRJMzE4RjJFaFJDZXB1WW9JZ0kxMzkyZ1JyM004eUVyQ2ItbWV2a3N5aHl5SzIzZm1VNzBUb29MZU1XbGl6aFA1a0s2VFhGU1V3UWEyZU9PUktiOUpQOFVWREZzNnFROEdQVWZZX3c?oc=5) |
 | Europe stresses need to protect Ukrainian interests ahead of Trump-Putin talks - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOS1ZRVDRMd09veDNqMEFBV2ZrV3c0Yk5kM3NjRUVWUDNJU2N1MG96X3pEeVV5TTJ3UzZfOWxocFVyeDQ5TTV1dDNnQ2Vaa21hNmU1QWYyY0xGOUxfN1FZV3dDZXlFUUZQcDRENXdjWVEwdTd2S3N1dDZEM3VoaDdwUlplSTVqeDJiUU45dVZhZzMxZERlbVoxVWpybjFMMGdQOV9ocXNqUWVqVEl5Z3V1TWdxNzVLeS0wbGJLVWd3?oc=5) |
 | L.A. Home Depot raided twice in one day. Critics say ICE is violating court order - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNV2loQXp6WkJOWS1panNPM29LVVJaWUt6dUxSY2xHcTRPRnczcWx6RlNtNmxPQzF1MEtoZkhEcWhhYkw5Z1Eyem5qbUlUbFhqTl9URXc1cUFoSDBGRnkxMktuTEIzUVNESFNWTXIxM0hjZXNHUVB4RkYzdTU1M25tRDFGNi1tV1AxWEdfUV8wVmI5YnUzWUdhdnc0RkFJc2Z1WVdfTWFDMW0zN1F4QWFKbFlIVWl3YjgyaHc?oc=5) |
-| Trump nominates ex-Fox commentator Tammy Bruce for deputy UN ambassador - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPekI5dlR6WFhzUGhKUVlWNjNsaGRDaldrZEp4TzRnVnRidk5Pcko2aXk2bk56VTdyNVhuZWNGS2RhcnlGNUV0bFBQWi02TUl0aEUyRnJkRGJTeGR0WlB4SUlTQndPSVltbzZfQzJ2dFV2Yi1weHV3eXFTcnZoQlJJQlJ0RU9Fa0ZfWEFfMnpPUQ?oc=5) |
 | Shots fired near prison where Ghislaine Maxwell is being held - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNNlN4Yy1qckU5NnRBaU1MTy11azJLM0hGeXl5YXFPLWNMcnVDTDFFdHk5SHVkckpCdnNaN3BUNzZIOHdJbTFFeXdOVkhFU0JHMXZFM2dMTWhmMjN6NTI3bXpjMmtkSGxIdUVjYXh6VGVPMGFMdmJ3Y1BpSXhjWXRSRHRPSFA3VzBNMUZvQWJ2clJ3WFF0ekROUDJYS2NpVUtGS1HSAVZBVV95cUxOU1ZiVi1FQUhOWkZBVlQ1SzZpVkdOZ011UXZVVDVHNDJWZkJBbXZ2ajU1cGZVZWVQaGtxV0owd21NXzhucVQwLUdTNVAzWlRTLVBtV3JzZw?oc=5) |
-| Trump news at a glance: Lutnick threatens Harvard patents; former Fox commentator bound for UN - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQMXk1Sm9kTHpweDl3Z19oelZySnRtR29WZUhveHNnYWUxd0VJY3ZkVjhuMHZGdGowNU9OSUxKTDU0bndyRHd5U0s5QXdoZWxfM0tSVWRyQk9iYzdYYUxOcHM5dklzdXRPTG1OSmVVOUhmVkJmdmgzOTM2d3BIS2t4UkhwalZPN0tQZzJsb2U2aWJienI5XzBOMHpVS3Izd2s?oc=5) |
+| Tammy Bruce, State Department spokesperson, tapped for UN role - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPaTBaY292blNlRUFDRnVqOV9WS2lZYXBtVHFMbnRwb1JaSHBJeXVKUEhBcW44MS1JNExUal84cWkxTjdtV182Rm1wTWdxSmVLMWd3c0lsZ0F3QXFCLWp6NmpaWXNsbGIwT0FBblZyUXV4NWFlTUUxU1hBVmppd0s2UnpR?oc=5) |
 | Colorado wildfires: Mandatory evacuations ordered in Garfield County as Lee fire races south - The Denver Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPMDBsVzFGbmU2V19Bbl9vUU5hOHR3N3dkV1pfNWlOZTVERWdxelZMUHRNaDVVTEpQZEpyNUFjRFlFZ1pnSmtpZHBlT3B1OFFyZFNQLXI4ZE5wcUFxY3ViaEFFeEYtemNZSjEzNjlQaDl6Z1VTT3RFX2FwTzc2elNTQTFtc9IBiAFBVV95cUxNWnhRSThSS3JOaldXVHY1amVlc25LZF9wRi14STN4TUxqWV8xbEM0NHBQOVNURnZyYm9vT2ZPbWxRNVBlWE01Y3RydFBEWXRDU21VRm1NUWlWazNoRjYzQ1F3dFFJOFI2N1pGSGpadi1PQXBOY1ZUUzh1cV9keVVHLVN5VmU5QkRO?oc=5) |
+| Who Is the Heir to the MAGA Movement? Trump Keeps His Options Open - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOWUhfNHdVOW5CU0lLUDNzWXcxUnVMNDVMV3c2RU9kSE1KRWVfZjM3dkFxUzU4TkVWYjdydTctZ2dRMGFUVENMTFBJQjRISTQ3RjNYQ2hXUjZWMjdtYVpHc0lzOEFXODYwSzZnLVZtcXd4SUNHUm5NNlhIbTN3M3NLYVR5emJoUEJKNHhRLXMxUFpiX3hiNWpfcVY2ZXA4M0Npa2xYaXlOYnJ4TDhselZV?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
