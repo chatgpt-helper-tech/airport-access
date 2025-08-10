@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月11日 04:53:10（北京时间）**
+🕒 更新时间：**2025年08月11日 05:00:48（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump tells homeless people in D.C. to move out "IMMEDIATELY" amid capital crackdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFAzaWVia1k5bldleWEwX2tuWDNqa1cxeE5zckRaTXBLalJ1dVAtU0Zsb3ZfdHpHS29hbjlUQ0Z4MUt6cVRjWFllLWJOZzdhbmtZTnBuRzhfbFFMNUl6enpLZkRKMS1VeEJwQmVqaEl0YktfcUJ0V2hrTW5PejlBVGM?oc=5) |
+| Trump orders homeless he passed en route to golf course to leave Washington DC - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOZnB6RTRkb1hia2VIZ3BzM29TY0JxX1VKSWkyNmFKa2oyNnU3RFJpRk1KaFVwOWhBSXRPNGluQnF6OEFuQks3N3lkNFpQN3dvNFBWVmFZRG1nR3BRSXRwNEhTcVZiZFpUck5hOTFBMlBKYnNIc0hTYWdZT0RNZ1hBUEI4T2g0ZExhZF81SG56TU1LQQ?oc=5) |
 | NATO Secretary General Rutte says Trump-Putin summit is about 'testing Putin' - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxObjdSUG1kSFNTTkQxSy1pNDY3VXRGWWpUT0ExSU9uZ0tydHY5UEltZzZNM3JSZmVjdWlzM2IzZEw0NFh0YVVmUnc3cUc0X2pFcVkwaDBMdVpoMnhGbVA3Uk5IT1FsU0pqTVhoY28tejdEM2k0Ym1OeUFZYWNNQndQLTI2clBvN05oRmxia2wzZlVVSmdhSDRwVnEwclhZNVBlZ0lNZXhweEVyZw?oc=5) |
 | Netanyahu Doubles Down on Gaza Offensive After Global Backlash - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOSDFPWWZEUlZVeHhPLWswdy1KU0phSGFvVUhqTVNvZjZVS1ExYk9Hd2pqMXpQbGt4LW5GUFZqN2M3NGs0dlN2aUQzek5uUGxFZlo0NS1nOU5TNUZHdjM5WGlTNUNfWjdCVFFwVUpZdnA0Z1RFaTRQUlB5d0piRVRaR0p1NDFZRExfV05saUZyOTBLZU1Fb2dNTTR3OFI?oc=5) |
 | Milwaukee contends with flash flooding, state fair and airport affected, with more rain expected Sunday - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1fWlNIeTN4ZjJGd1p1MUJpUnBpZHdQRUNTR2VHVl9lUVBOTXVmYkx2TGNfN3c5SlFCdnZoNHFxRjRlTzNaZEhRLTNIcXNJRlhBLXdKaWNheDZkVXpyZVRjd1o0a3dwSmNIZERVWlJPQU9QQUswUlpRUjNn0gF_QVVfeXFMTTNXc0FPSWpFd29PUEIxSEw4cHVKOTdsNVdpamVNTmN5U2Fjc3k4UU5ielk4dmEyOUp0Z1lhMkp3ZGtlYnA0TDVFOEQzUUFxV2FPRGt0bEd2MVdHTHlCSlFENm1xUEJMNnY3SzUzUVhoaHoyWmZpTmp1cHQ1VVAwYw?oc=5) |
