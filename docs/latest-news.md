@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月10日 12:00:47（北京时间）**
+🕒 更新时间：**2025年08月10日 12:14:48（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump nominates ex-Fox commentator Tammy Bruce for deputy UN ambassador - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPekI5dlR6WFhzUGhKUVlWNjNsaGRDaldrZEp4TzRnVnRidk5Pcko2aXk2bk56VTdyNVhuZWNGS2RhcnlGNUV0bFBQWi02TUl0aEUyRnJkRGJTeGR0WlB4SUlTQndPSVltbzZfQzJ2dFV2Yi1weHV3eXFTcnZoQlJJQlJ0RU9Fa0ZfWEFfMnpPUQ?oc=5) |
 | Shots fired near prison where Ghislaine Maxwell is being held - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNNlN4Yy1qckU5NnRBaU1MTy11azJLM0hGeXl5YXFPLWNMcnVDTDFFdHk5SHVkckpCdnNaN3BUNzZIOHdJbTFFeXdOVkhFU0JHMXZFM2dMTWhmMjN6NTI3bXpjMmtkSGxIdUVjYXh6VGVPMGFMdmJ3Y1BpSXhjWXRSRHRPSFA3VzBNMUZvQWJ2clJ3WFF0ekROUDJYS2NpVUtGS1HSAVZBVV95cUxOU1ZiVi1FQUhOWkZBVlQ1SzZpVkdOZ011UXZVVDVHNDJWZkJBbXZ2ajU1cGZVZWVQaGtxV0owd21NXzhucVQwLUdTNVAzWlRTLVBtV3JzZw?oc=5) |
 | Why the ivory tower wants a deal with Trump - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOZHBwVHk1TW9lWFhaVVlTRVM3TkZFMnhmVnhCemI5b0xJWEdfRHFrdTh6X3FjUGZQcTd2VldxWnlRNXE3ZWJtTVQyVXFpQnJ5dktRVkJ0OURfU1lJSXd3UllPRnlINWFHRFNseXRqWHlwQ05iUDZnSWRjbVlqNHZzY1FtSDQwLXhpR3M4NE8tZENlNnljakE?oc=5) |
-| Lee Fire in Western Colorado gains 27,000 acres overnight, new evacuations ordered - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQZURfWjNoUE15NExqRnFWM0tGOTNhc3JnTWpfbFdNalNZN2tqTG53aWZSbWRySUsyaDM2VjRUMmZoZkZwdTRBb3FnNWZybTZpdnQwYkpXdkxvd3dPTERQZlNfLThKUkVyeDdxT2M4RHZFZFFkMEdWVnlJb2FOa2ZSa0h6VlF6dXF4WXlJSFRQYkNFYkg1MGRGNk9xb1FVQXpPQWpON1p6NlljMjhIeWxMTzJmZ0JjQmM?oc=5) |
+| Who Is the Heir to the MAGA Movement? Trump Keeps His Options Open - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOWUhfNHdVOW5CU0lLUDNzWXcxUnVMNDVMV3c2RU9kSE1KRWVfZjM3dkFxUzU4TkVWYjdydTctZ2dRMGFUVENMTFBJQjRISTQ3RjNYQ2hXUjZWMjdtYVpHc0lzOEFXODYwSzZnLVZtcXd4SUNHUm5NNlhIbTN3M3NLYVR5emJoUEJKNHhRLXMxUFpiX3hiNWpfcVY2ZXA4M0Npa2xYaXlOYnJ4TDhselZV?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
