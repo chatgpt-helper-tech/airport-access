@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月11日 00:14:19（北京时间）**
+🕒 更新时间：**2025年08月11日 00:27:30（北京时间）**
 
 ---
 
@@ -16,14 +16,14 @@
 | What it means to be 'culturally' Irish in 2025 is complicated - as Ed Sheeran has shown | [阅读全文](https://www.bbc.com/news/articles/cgln9y13x3yo?at_medium=RSS&at_campaign=rss) |
 | Tribute after family die in Portugal holiday crash | [阅读全文](https://www.bbc.com/news/articles/clyjj35pv77o?at_medium=RSS&at_campaign=rss) |
 | Adidas designer sorry for shoes 'appropriated' from Mexico | [阅读全文](https://www.bbc.com/news/articles/c1mpzm4p7edo?at_medium=RSS&at_campaign=rss) |
-| Tube staff face deportation under new visa rules | [阅读全文](https://www.bbc.com/news/articles/c2en38jll94o?at_medium=RSS&at_campaign=rss) |
+| Firefighters tackle large blaze on Arthur's Seat | [阅读全文](https://www.bbc.com/news/articles/ckg449e1vnpo?at_medium=RSS&at_campaign=rss) |
 | Ukraine's European allies say peace talks must include Kyiv | [阅读全文](https://www.bbc.com/news/articles/c0e9py7e28xo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Russians cheer Putin’s Alaska invitation, envision no concessions on Ukraine - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNSXV5TzdLUnMzRXAtRjA5Z1NQRVhxbUdQVXNxQmVnX09fcS1sWDNOMDkyUF81NmJhWmlfYTh0SHVWaEg0dkJpVVlSblE5TXM4MGdDelVIUndzRm9yeXhKUjJDMmpkMTRtc3NqVXRzcnVaeUdRTmZ1Z3dzU2ZWNUlOUnZ6MEFMYlN5QVE?oc=5) |
+| What parts of Ukraine does Russia control as Trump suggests a land swap? - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNNzR6aWxtVzVkLUtmSWVFMEVfWWRpQl9vRkZDYTV0MkNFT1hFaUo5dkF4UUdiWDFENmtBUWlvYWJXQUluNlJ4c01XdFZPNEVyU0JLak5nUTN1U2lYc3dBT09qX0hjSlJMM0l2U3J5REZ2bWhWU0VyS1d5cUJfTld5Y08zbGdsTlRf?oc=5) |
 | A week into their walkout, Texas Democrats are figuring out what to do next - CNN | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9BNjFhVUxXYndGMFVEX1hDUHZRel8zMUdHQmkyMG9UMjdJcVg1Qm5LY3UxVnZRRV9acHlBT2JhdDRiOUNxbGVpZmltWkFCSlZiU0RWbld1WVh2ZGpjcHF3ZEdGc2NqQ0V1djdoMFE5OGQ?oc=5) |
 | Ukraine and Europe Project United Front Ahead of Trump-Putin Summit - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQRFQyY2FVZXljRmx1SEdTLVFOZVRGRUxxRjYxYlJSN1NZVXZkTlZWbUczTVZ5S1JONzY3eUYxYzFOVmR6YThmLXdDNEdOQWhDeHA1SGxxckpkb3FtTy1zLW5McHpMUnQwdUhaOVQ2OVZzajNGOTFUbHhncEVWMnBtX1RFUzg0RE5NOTVKRHd2VjhtUQ?oc=5) |
 | Thousands in Israel march against Netanyahu’s plan to escalate Gaza war - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNZEgtMTVjNzdKVmxsZEdaXy1tRUpEcGxURmVPdGZsUHRYeVUzcEMxeE1WQTM5ZVhWUXRfNEN5SmMwWmRHRVAwZklWa050UW1KQWdBOEZBNUhQdnluMUV0bDltR215cU5qZmFPel9MY1lqSFVmWk1oX0p6TERFa29JMVNWZXdBMHpPWnNXQTdTbENmaV82SG9NcGlkZDl3SmxwTFlROXpwRQ?oc=5) |
