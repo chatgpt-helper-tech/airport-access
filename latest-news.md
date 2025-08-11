@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月11日 15:14:02（北京时间）**
+🕒 更新时间：**2025年08月11日 15:26:19（北京时间）**
 
 ---
 
@@ -14,9 +14,9 @@
 | Lucy Letby: How the case of one baby death shows flaws in the medical evidence on both sides | [阅读全文](https://www.bbc.com/news/articles/cj0y9673rjno?at_medium=RSS&at_campaign=rss) |
 | More jobs for newly-qualified nurses and midwives, under NHS plans | [阅读全文](https://www.bbc.com/news/articles/c39ddjv09vvo?at_medium=RSS&at_campaign=rss) |
 | British backpacker pleads guilty to killing man while drunk on e-scooter | [阅读全文](https://www.bbc.com/news/articles/c0e999y7vq2o?at_medium=RSS&at_campaign=rss) |
-| Large gorse blaze on Arthur's Seat brought under control | [阅读全文](https://www.bbc.com/news/articles/ckg449e1vnpo?at_medium=RSS&at_campaign=rss) |
+| Trump demands homeless people 'immediately' move out of Washington DC | [阅读全文](https://www.bbc.com/news/articles/c1kzz4m3ll1o?at_medium=RSS&at_campaign=rss) |
 | More foreign criminals to be deported under expanded scheme | [阅读全文](https://www.bbc.com/news/articles/cyvnnj301l3o?at_medium=RSS&at_campaign=rss) |
-| Nvidia and AMD to pay 15% of China chip sales to US | [阅读全文](https://www.bbc.com/news/articles/cvgvvnx8y19o?at_medium=RSS&at_campaign=rss) |
+| Chip giants Nvidia and AMD to pay 15% of China revenue to US | [阅读全文](https://www.bbc.com/news/articles/cvgvvnx8y19o?at_medium=RSS&at_campaign=rss) |
 | Musk's Tesla applies to supply power to British homes | [阅读全文](https://www.bbc.com/news/articles/c3v3333rlp7o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump orders homeless he passed en route to golf course to leave Washington DC - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOZnB6RTRkb1hia2VIZ3BzM29TY0JxX1VKSWkyNmFKa2oyNnU3RFJpRk1KaFVwOWhBSXRPNGluQnF6OEFuQks3N3lkNFpQN3dvNFBWVmFZRG1nR3BRSXRwNEhTcVZiZFpUck5hOTFBMlBKYnNIc0hTYWdZT0RNZ1hBUEI4T2g0ZExhZF81SG56TU1LQQ?oc=5) |
-| Anas al-Sharif among five Al Jazeera staff killed by Israel in Gaza - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOVXg2UDF5WDBhUmRCMkNpY3hYNHExekpSZXRHcnJvOEpINDdtOGRyYjgwcHlQZlhwVlgwMUNiREJjaURHd0Z1cmZBdjFIVFhKbzFxbEVsOFhNT29tZFZpUnFwOVR6djJ5TjQ2YkpCblY1S3QwcnozRWVnUkk3TGZnU0VWSGtpa25CZldvQXc2bU1LNVhnXzl0R1libkpLcmFoYTByQlZXRkQ0Smd5QllPRVRIYURPZ9IBuwFBVV95cUxQYUx6di1oX3hLUEU0MGVQYmpDNzdBNl9WdkduRklnWW5Xa2dlR3NfNXRtWDdqaGhZa1AxYjJib2FCdHR1OWREUmJwa0hoaXNMWE5Rcmx1X2pMNWt2dHEyUmV1T0JzeHRJR2tsVHZXY1hvV3RBTFNtNGEyMXhwMkJEZk1JWkk0OW50bkNVRlRuREhOX1JYNzB3ejJFdU0yeVc5QUY3ZlRHM2Y5M3ZIUThxYXBNdndIRURIRU44?oc=5) |
+| Israeli Strike Kills 4 Al Jazeera Journalists, Network Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQbnFsbGFIV0xmZVZiQ0JpNm4tU3hrbjVEbTY5VEtwTld6X2c1cERZQ3BERElPYjR0d2FXSWFhZm11Q2NyelF6cjJIOFViYjZuZXI2TG04SUtsTDhyX3NUNVluWUlNU1ZpRDZkSUJjcThfS1A4cG45QS1WeklVRy02T1U5OGZ6eFZUcjBtWHdsMTA?oc=5) |
 | European leaders urge for Ukraine to be included in Trump-Putin Alaska peace talks - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOZDY5cmpFR0c5cG5uRGxNckgxcmZqMHZYaXU5NXZwa1JSbDJDN2oyLVVtV3A5cW5QaXVlUDlVY3RUbTB4VDlWcHFYdTBCSzJHUGR4VWM5TG5qV3cxcENGeHEzT0tzcmx4b3hXYUdqYzA5X0lLdFkzWFJ3el93Ti1zSEp2OVZac3NBUXlKdw?oc=5) |
 | Netanyahu defends Gaza City takeover as UN warns of ‘calamity’ and international condemnation grows - CNN | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNcTR3UUpYWlZXTTdCV1dlWUhhLUVGaVJoUFVDS0tyU2ZqZE9MeUMyTnhtQ2pEeDRqcnNUVWhwYWlDSVp1cFRwek5MbjlncFBVOXZ5eUNVY24tRGFVbFI2TE5GZ0JtdjNIOU8yZUVZalBKdEI4S2tJaGZnRW1CLTNhRWN5TnBiWEF6Nzd5ZUstX3hFS2ZqQThVVXRYeFDSAaIBQVVfeXFMUG5xdVpmZU44Tmd6VXg0SElDdWlWMTl0R3luQmJPYlpMTFRDQUNnem1Db3AxVldROXUyMVlHT0t6Tl9VM3V1VnNpX25uMlBCMnZfMnJXeENLOVVZeDYzVFNCNXlNNVIwLXZ3LWFEYVA0bW9QQjNFWGkwTmVRdjUxU2VzQ3pJcUZkR1FYV0Fva0hxcFVGWHY0T3dkbWh5NTE1ZXJB?oc=5) |
 | Photos: Historic flash floods hit Milwaukee as Midwest faces heavy rains threat - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQbHVNc0lpZ2lWLTlZeTZRYXQ2dXdxbHJzbW50MDdjZTJVMktLOGZNWm94R1k3d2QwQ3hyQ2pqMy02SG9JcFd6YXljSlZVU3JYd2pPWUt3WVpHLXRZczJvVEk0SkxtSjdkRGhxX1hRcW93dG84bUIwNFZ0MTlPRGs2cmlOUzQwdDFZZFo2dlNLX3k0dw?oc=5) |
