@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月11日 13:01:05（北京时间）**
+🕒 更新时间：**2025年08月11日 13:14:14（北京时间）**
 
 ---
 
@@ -13,20 +13,20 @@
 | Five Al Jazeera journalists killed in Israeli strike in Gaza | [阅读全文](https://www.bbc.com/news/articles/ceqyyrp3yq9o?at_medium=RSS&at_campaign=rss) |
 | Record warm seas help to bring extraordinary new species to UK waters | [阅读全文](https://www.bbc.com/news/articles/c05enyryqvmo?at_medium=RSS&at_campaign=rss) |
 | Plan to boost jobs for newly-qualified nurses and midwives | [阅读全文](https://www.bbc.com/news/articles/c39ddjv09vvo?at_medium=RSS&at_campaign=rss) |
+| Lucy Letby: How the case of one baby death shows flaws in the medical evidence on both sides | [阅读全文](https://www.bbc.com/news/articles/cj0y9673rjno?at_medium=RSS&at_campaign=rss) |
 | More foreign criminals to be deported under expanded scheme | [阅读全文](https://www.bbc.com/news/articles/cyvnnj301l3o?at_medium=RSS&at_campaign=rss) |
 | Firefighters tackle large gorse blaze on Arthur's Seat | [阅读全文](https://www.bbc.com/news/articles/ckg449e1vnpo?at_medium=RSS&at_campaign=rss) |
 | Chip giants Nvidia and AMD to pay 15% of China revenue to US | [阅读全文](https://www.bbc.com/news/articles/cvgvvnx8y19o?at_medium=RSS&at_campaign=rss) |
 | Australia to recognise Palestinian state in September | [阅读全文](https://www.bbc.com/news/articles/cvg33351n61o?at_medium=RSS&at_campaign=rss) |
-| Number of arrests at Palestine Action protest rises to more than 500 | [阅读全文](https://www.bbc.com/news/articles/cqjyyzlwk2go?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| FBI deployed to D.C. after Trump announces crackdown on homeless people - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFAzaWVia1k5bldleWEwX2tuWDNqa1cxeE5zckRaTXBLalJ1dVAtU0Zsb3ZfdHpHS29hbjlUQ0Z4MUt6cVRjWFllLWJOZzdhbmtZTnBuRzhfbFFMNUl6enpLZkRKMS1VeEJwQmVqaEl0YktfcUJ0V2hrTW5PejlBVGM?oc=5) |
-| Israel kills Al Jazeera journalist it says was Hamas leader - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNMGtXb1NmQkpxS2g5eWpqNXRSaVRtNFdURFNiOFdiSFdPem41M19DS05obzVqRU9QazBPaFhIVFY4WkNDeTRYbmtIZWl6LVZTRTd6MWs2cmYxcEdzeHdMc1V5NUtZVlpiNHY2cEdkSE9QNTlleVJ5OE9jYUJucTJHZkN1M3RWY0hVcEZ2TlpKUU1LZGV1SFVIcHU0QU1LQnpJX2xIckY2R3lhcE5kSGNRX21wbw?oc=5) |
-| NATO secretary general says Trump will be "testing Putin" in Friday meeting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPMDJTSUllZFZIRFBDNTF5NGJmNHBuNEtBRFlEd1VHM1NMeDluTG5fbGhCczVTUWpreVhMejRZVHVmVzFKNENLS2p3Y2RkcTRPUHR4YzN5aWtnU2xFaU5WLWd5VFQzZFo4Zjd2STJCT0thZ1pTWUtSN0E0dXFFMzJYZDdjczJzbW03LWh6cTNkZ1pzbzY3cXNGTmgxTXBhSlhXdGY5MGV30gGrAUFVX3lxTE1QRVBOeHVPdGhVU0daTGQ1alNaRUJoZ1ExdEZMR25tYVFKRWpmV2t4NXBCZUYtLXE0OXBsdXJLMVdpRGVUcDNoczdSYjRhT1c0NDlYT2hsTnpwQ1BLVHdSZ2FuNGNkeW1kVHdkSS1KbjNyS0tRYW84Z1p2MENVQUFmXzRzb0pQNVdOc2VwRHYwM0J5S2kzYnFGMU1UX2hFZEZ3akxaX2h3OTkyQQ?oc=5) |
-| Flooding cancels last day of Wisconsin State Fair as severe storms knock out power and close roads - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPQjdFS3lZemllcVVoSVgtQlJSYWhRaWFNMWNZMnlNRzhId3p6S29JSUVnWjBrYlV1Q0J5QWFKdW11NGlQcDIzWkFtWXdyWXpfdXVGT3pzYTVRQm5RR3ZyN2lLNmxFTjVJbXdrSi1JcFRQd3VncmZpQ1EzR0xIcjhWTXo2eW9rZlBGb29RUS1hQ3VabFFNN2c?oc=5) |
+| Trump vows to evict homeless from Washington, official says National Guard may be deployed - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQeWF0OEVSaWM5YlpnZzgwLVNOS3Nia2N2U3lNalIxV2k3bWFRZ3RlZnhsaGZFbmswSUFLQ2tsM2NqNFE3MXFPX0dPMktTNlU4U1FWVGhrYnJXaUVzVldnOThVb19HbjlqWHVQbnQ2SmY1RHkzOWFHcEluZTRrSzVhZWVNT0hrTnJvVFpWUWVKVHhCSVE3cHhCaTNwWTM3OTFJMEtZT3dWTlNpSEs3a3pQQ0Z6WGhlaTZf?oc=5) |
+| Israeli Strike Kills 4 Al Jazeera Journalists, Network Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQbnFsbGFIV0xmZVZiQ0JpNm4tU3hrbjVEbTY5VEtwTld6X2c1cERZQ3BERElPYjR0d2FXSWFhZm11Q2NyelF6cjJIOFViYjZuZXI2TG04SUtsTDhyX3NUNVluWUlNU1ZpRDZkSUJjcThfS1A4cG45QS1WeklVRy02T1U5OGZ6eFZUcjBtWHdsMTA?oc=5) |
+| Russia and Ukraine stick to their demands ahead of planned Putin-Trump summit in Alaska - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxONTIwSmVYUVFLbGtMWFBaRjY3VG9mTXFCUnNmVkhhNXVVWXNTNkJ2MGhPQnBlbl9nVmRaMUJ4czhJZ1pZSEZZYW1ObjFtTThaa2lNblZORFRPbTQzaGE0eG5ITDNJYWxGNGh4TEJCblBBWGUteWw5Nl9UTVRqT0pEWU5BUFQzTnd4UWVnVkdRZERNN24wMVhEU1J6QkFPR3R4dExLa2xsTVRVXzZoWTNKRnc3SUxDM3FCQWhRSEMwONIBxAFBVV95cUxPZ0Rza3FhODBhOXQ4Ni1Gamcwckx0M0I2c2RCMWlTTXExb2U0WXBRSkpUSnRPa3hEcUhpZXNPTXVWYUJjR2pjOVZSd2JUVGlhcjdLTDJsUXZPRFAweVJkZTR6V0sxb0ZjaTR5Wng3VTVNV3VXU2Fkdy1uVkxfOVZLVVpxemtUaDUwZXJEdzhJa2Vod0s1Ni1PaXdXa090Zzl0RFUyemd1WC1wS0xNN0pTM1RFWWNSNERrc0VDOGhJZGFXRkdT?oc=5) |
+| Photos: Historic flash floods hit Milwaukee as Midwest faces heavy rains threat - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQbHVNc0lpZ2lWLTlZeTZRYXQ2dXdxbHJzbW50MDdjZTJVMktLOGZNWm94R1k3d2QwQ3hyQ2pqMy02SG9JcFd6YXljSlZVU3JYd2pPWUt3WVpHLXRZczJvVEk0SkxtSjdkRGhxX1hRcW93dG84bUIwNFZ0MTlPRGs2cmlOUzQwdDFZZFo2dlNLX3k0dw?oc=5) |
 | Colorado wildfires burn more than 120,000 acres as firefighters await better weather - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPaGlIV2NoT0YyV1p3VjRQSFJMa3kxanFvVEdYN1JrakxYZ240QTZSS3RNZmYzZWV0Z2pxeFo4UjVrZnVSa01LQTFiWjhxMklRNzZPV0FmVmUya0Zyb3hLZkZZaUprZ0Y4aE1GamtpOGxQV18wdVVpU01GekI2ek5Ua2hPRjNQQUNkdE1ReTlGRFVHUlN2?oc=5) |
 | CDC union says vaccine misinformation put staff at risk after Atlanta shooting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFBZZ2xQN1VCM3FzV0xjZXZod3dHYzVXMjEzZUxKUzVUaUM5YXBLeHRFVEJXUTRwc3NXVF9fX2JBeXRqaTdjNWxYbmY1SjhrbnlJUkxIX0dyRzd5QnIwS3FKYmZ2OTB4NE5ZWm96UWZSRDkzMzExNHNJ?oc=5) |
 | Former attorney general says FBI can’t return Texas lawmakers who fled state - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNenI4dWRBT0c5cndLby1TS1JNUElQZTNuZUNpcFRMVXdZeTMzZTJUVEhTekVpWVRTbGhxeVNmMnpITWNHQlJaQ0JOdnFoaDVVdkZRM0MtRGU5VllvWGdMVVFXQldBRWJfbzB4YXhxOGMwMmVITFlXQWxyT2xURU85OHo4cWdTWW44TmtVR2pmdmFsRTQyQUk4UFFubGVjZ3BWdTZtcjFyVW9UT2g4UzNiVFBR0gG3AUFVX3lxTE1FUFBtdnFZWENaV04wNmI5VDdGT1NBSElrVEZuaFZqbXE2SmdkYjJuR2tLb3MtUWtVUVdtQTF2ZElTRXBrcVpOOE1Yb3NiMk5CVjBMRlR2dmI0R2RpZHdqNUxxOVZWTVBWR09reWVidFQzSTBMVzdOWFhCaHlGNHFKa1Y0T0F4a1puWlkweGNIOWpRckM3ZXdyZ3RKT3FRdklobGl0bFQ3MHBWeFVVblNhZko2cXE2Yw?oc=5) |
