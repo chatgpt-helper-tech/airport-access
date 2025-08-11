@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月11日 21:39:41（北京时间）**
+🕒 更新时间：**2025年08月11日 21:53:08（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump demands homeless people 'immediately' move out of Washington DC - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9VN1liNTEweDRLX0VmZXY1ci0xZXBoRS1YeU9TVXd4RkVMNHdnNmhqaW1Udnh0Rl9sTGQwa0x3QlBFMk5kWTljbHBVLTFRM2lfWkF4NWR1WmdxUdIBX0FVX3lxTE5UOVVvTU40T0VUTHJOVGtJczVNZkw3RTEtZnBmcnhfVXVsX1RTUm5aRjJXYi1VbXBnMkh1TW5XZnVtT0dtUnF2WkhBUDUtUm5ETmNSSWVFWXVrYVFpTUhz?oc=5) |
+| Trump says Washington DC will be ‘liberated’ as city mayor disputes claims of violent crime – live updates - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi4AFBVV95cUxNMU1GNkJ2VVpEQ1RvZlNlQlJPVEJGSXhrbnU5XzhpenA0RENYaENlTkNwVU5NeWJ1aG5SOVpnSzNVdG1fUjdHeXpNNDFWaFVVZWpPanJRaEgxaUtMdDhMUGZjazZKc0szbHAzWGFtaUtfVllzd1VmWTZHZ3VXRVRxVm41aC1sQm9CTWhYeVZvYjRwS1ZlbW9ILXdQNGtxWTdoeDlRUzdBWmZsTEVmNFBHTUZ1ZnBCX2dWRTBWLVpBQ2pRbjNUbVlTM3E5ZlI0VmJjOGFHb3dGOWV2ZDZoUVlCZw?oc=5) |
 | Israel targets and kills Al Jazeera correspondent Anas al-Sharif as toll worsens on Gaza journalists - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQU3RRZS1VOUhZd1RWbkIxd216LUpuTXI1N0R1YV9xYmp3bkQwci1TQ2d0aGMwUm1nVmI0UGEtLUgtUVVUNHZhNmJURUxsZlFWc0RnTEdncFJILUZnTy1Sc0Y3dUY1TkpwUlNCeDJFMUJlUVhGeWNLcnJZc3pBNTlMdXRPX2kwc1VQa3g4MERtM0tjaEZhQmxqRzlEbTQ?oc=5) |
-| Colombia presidential hopeful Miguel Uribe Turbay dies weeks after campaign rally shooting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQY212Z0VYVTdmUkFsdUlIU050Z1hEXzVzaTRHSC11TTZ0NThsQ3Q2aFFaVm1oVTNmTmxmR19waWczVVMtR1hLcDE4RUVlVlRUZHo5QlRWVXh4WVRIZFRZal9VX3FuMVFQUDdWaGVXY0NjMzhFNmYtUDZUR2M5MGd5OFIwa2dNNEdaR2Uwc20xMkRuMWtSN3fSAZsBQVVfeXFMT1A4QllGcE5HcEFTd2FndThZV3NNdERnR196NGVvbW5mWjVxMTNmV0RJUzktSnBHa3pRMlNMTlRhWmJYR3RGZTROSUNjTWhvY0trRFp2dG53UGd6YmdfRWZ2LWc0SEp1Z3c1bkR1Qy1OTm5RMmE4RGQwM2NpY2RodWFzeDNyb1FlT04xeGk5bkRtRXVYV3I1MW9leHM?oc=5) |
+| Colombian presidential hopeful Uribe dies two months after shooting - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPMzQybEl1NXo1dFNWM0JIY0Z6NlZUTGs3S0lTWGtMcnczQkNVa1B0b2hzdHpZU2hkVW9jcHIzWm16c0tteHd5Yk1XYmFDaVFPT3RRWFU0VnN6enB2aHZmMVNEdkdBdlFMQ1l1dmx5LUwtemZYZWNha0tZdEpkWFJRcm44VmFndWtGaDVoZUJJbDJ3aFkxY2Y2VkxwQ2w3ODBlaGdmNG4tSWNqMHlsV3BwRUVudlpNVzNhLXc?oc=5) |
 | Photos: Historic flash floods hit Milwaukee as Midwest faces heavy rains threat - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQbHVNc0lpZ2lWLTlZeTZRYXQ2dXdxbHJzbW50MDdjZTJVMktLOGZNWm94R1k3d2QwQ3hyQ2pqMy02SG9JcFd6YXljSlZVU3JYd2pPWUt3WVpHLXRZczJvVEk0SkxtSjdkRGhxX1hRcW93dG84bUIwNFZ0MTlPRGs2cmlOUzQwdDFZZFo2dlNLX3k0dw?oc=5) |
 | Australia Joins Growing Effort to Recognize Palestinian Statehood - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOMF9MVVBBVlZZdUphcXpGTFZuWmxEM1lDSlh6bHBQLUhRSlZiWFVxNmR1eEVMUjNiVzgtc3ZXVllnX0NDdXJXUTQtWHRzOHZFTkZaRG5hTTBpVmJ2ejRPV09yRmxaSjREQ0h3VjIzc0N6Rm5nXzVJV3U1SkZRb0dIVVpOcm1KdFhDTnFKTUlB?oc=5) |
 | Factories are losing immigrant workers, stressing those who remain - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNVUVCSnhVd2d5QThsRmNJSUl0VzRlZ0k3LURONDFLWEprOUdXeGRQUXN5aXV6LWMxT0hHUnlyeEttMWFVMWxQVGtWN2ppSkhuN2w1S0FxeTVkOXA3Tk1TelJLWldXd2owN09YaFhNakdoWnFLZDJJSmNVSkowUW1KOEtoSmpoYWFz?oc=5) |
