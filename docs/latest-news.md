@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月11日 15:52:16（北京时间）**
+🕒 更新时间：**2025年08月11日 16:01:40（北京时间）**
 
 ---
 
@@ -26,7 +26,7 @@
 | FBI dispatching agents to D.C. streets as Trump weighs calling National Guard - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPcFhWQlNqUGxDem9YdjdRUEdPYTBDT3dyZFBsUWI1Y1otbzBuUzJQTlpnV2FiVzhROG15SWZ2U2t0QnpaUmVfY0NYTUNXRmM1X040a0VlSVRvTGFVZlEtZUNzeEtEVXEzNjRrcFA2UzdJWEsya25MOUZCbWYxYVNhZlZR?oc=5) |
 | Israel kills Al Jazeera journalist it says was Hamas leader - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNMGtXb1NmQkpxS2g5eWpqNXRSaVRtNFdURFNiOFdiSFdPem41M19DS05obzVqRU9QazBPaFhIVFY4WkNDeTRYbmtIZWl6LVZTRTd6MWs2cmYxcEdzeHdMc1V5NUtZVlpiNHY2cEdkSE9QNTlleVJ5OE9jYUJucTJHZkN1M3RWY0hVcEZ2TlpKUU1LZGV1SFVIcHU0QU1LQnpJX2xIckY2R3lhcE5kSGNRX21wbw?oc=5) |
 | European leaders urge for Ukraine to be included in Trump-Putin Alaska peace talks - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOZDY5cmpFR0c5cG5uRGxNckgxcmZqMHZYaXU5NXZwa1JSbDJDN2oyLVVtV3A5cW5QaXVlUDlVY3RUbTB4VDlWcHFYdTBCSzJHUGR4VWM5TG5qV3cxcENGeHEzT0tzcmx4b3hXYUdqYzA5X0lLdFkzWFJ3el93Ti1zSEp2OVZac3NBUXlKdw?oc=5) |
-| UN Security Council ambassadors meet in emergency session on Gaza - Euronews.com | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNWENYTlh0Yk1FemJXR2c5U1dfOXZEM2JxVnhmM2FLTU5fMGRpSjUwdjhJX3BnNUNObldkemZaOVBveWVtME9FNnFHUnJBQlJEcVY3ZG9jSEdjVzc3aS10QWlSQlg3OTZxVHNvclZlVTFHT1Z0SUNIaTc1SzBGOG9TRXhhZ2lFemhKSnpjTS1qMS1RaXFYZ3ZfdnczTm1KR2ZNV1g1UklGWXFERW1od2ZqcFQzal8zb3JYby00?oc=5) |
+| Netanyahu Doubles Down on Gaza Offensive After Global Backlash - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOSDFPWWZEUlZVeHhPLWswdy1KU0phSGFvVUhqTVNvZjZVS1ExYk9Hd2pqMXpQbGt4LW5GUFZqN2M3NGs0dlN2aUQzek5uUGxFZlo0NS1nOU5TNUZHdjM5WGlTNUNfWjdCVFFwVUpZdnA0Z1RFaTRQUlB5d0piRVRaR0p1NDFZRExfV05saUZyOTBLZU1Fb2dNTTR3OFI?oc=5) |
 | Photos: Historic flash floods hit Milwaukee as Midwest faces heavy rains threat - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQbHVNc0lpZ2lWLTlZeTZRYXQ2dXdxbHJzbW50MDdjZTJVMktLOGZNWm94R1k3d2QwQ3hyQ2pqMy02SG9JcFd6YXljSlZVU3JYd2pPWUt3WVpHLXRZczJvVEk0SkxtSjdkRGhxX1hRcW93dG84bUIwNFZ0MTlPRGs2cmlOUzQwdDFZZFo2dlNLX3k0dw?oc=5) |
 | Colorado prison evacuated as growing wildfire becomes one of the largest in state history - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFAwX3RzR2wwRnozVE1vQ0Y3UlJoWmdWRkNoLWdjMVJRMUUzMnhZNGlUamQ4VGxNeU04eVJ3bFRLbGtGWjZITFFuUXhJMDBmMnhEYzJYVW5wSXVWZnFFLUt5aGdvSFNxd2c2ZkhIdVVEdmlraG1GOFh5WNIBfkFVX3lxTE9xRElKNGdWdzlVXzhDMXViQUl1YnhsbEVNaExVSmJlU2FPZzVULURtc3JubHNxUVJ2VjJMYmhXNGJGR18yX0JYc0NKcHVlTDdLZWF6TVNLa1BiVUx2ZTM3a1kwdHV3M2NwMUVRc1ZWLTYyRmR6Ylc0ajgtRk4yQQ?oc=5) |
 | CDC union says vaccine misinformation put staff at risk after Atlanta shooting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFBZZ2xQN1VCM3FzV0xjZXZod3dHYzVXMjEzZUxKUzVUaUM5YXBLeHRFVEJXUTRwc3NXVF9fX2JBeXRqaTdjNWxYbmY1SjhrbnlJUkxIX0dyRzd5QnIwS3FKYmZ2OTB4NE5ZWm96UWZSRDkzMzExNHNJ?oc=5) |
