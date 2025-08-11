@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月11日 21:26:50（北京时间）**
+🕒 更新时间：**2025年08月11日 21:39:42（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Suspected gunman in CDC shooting had grievance toward Covid vaccine: Sources - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOR1pBYXBieHpVTHZVUkxvdEtiZTFTdzN1RG1lVEJicExlb2c5bVZmWkMtQ181V2pXdFJ0RVFuZEdURzNBZDF2UGpiMW1zdndXMUpzOTJHMm1Jai1JQ2VNbXVITjJ3S3B1RWwzSG9aZkpoSTFrTlRUQzU4YlZWV2c5TTUweUJnZlVqWnNrZ1hwMC1CVFZLR01SRU1TNlpYQndXUzVXYXVYU0lTZ9IBrwFBVV95cUxPRWhLUlNtWmx2R1FLYk5oTjdQdGkzb2NvRWFnSzVkSDczT25ZVVRKOFA4Rnl2TW1tMHh4Q3luczc3cVU0dEdiaVZKcEZZVHloUHhBR3l5c1dvZkdrWXcxYnFPWFFFTnItMVJzblhYZGxQMTkxVUpialpTMHdUdHVUdWJmbEZOTlp0ai0zV1EtNU45REhzYU9lU2F0M25QbzF0T2hRbUNnYzY0SU9xM2Zv?oc=5) |
 | Another megabill? Senate Republicans have their doubts. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNX2hkaW9rS2ZSbGFTWkw0QTN3Y3FFVUQ5QVYzZk00cDZNV050UXdhR2tUNUtIMEVQekVyYTV6cFJRRXB6UThGOGFGZF9leHRHWGhrWklNX1B6a3hBZ2xYYVZldEU5b1cwMk91MDF0UDZWZ1g5Vm1mVXF1UW5idTE3M3JPM1ZDREtIYVBtLUtjZWs4RC1icGtXUVRIcVNIbGg1SXFaZ3d3?oc=5) |
 | Undocumented Immigrants Fear Seeking Aid After Texas Floods - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNUWk1YUZXdExoQ3pRSS1BbU0tSUljNm9mcWZkeHFMVmVfMWVGNldnSGpNaFlfRGoxODNfOEZ2NmJPYXFKR1VBWmpzZTRKRkVoeVVXVFpVeUZEME1YSmFHOHRtV2xVdVNMQlpvMlEzT0dQTV9oUDhZOTR4dWo1UEhQUG01U2NDVlZMbUk1UEpxbTdDb1g1RzRZ?oc=5) |
-| Texas Legislature to take another swing at redistricting vote as Democrats extend their walkout - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQY2M1ai1GYVlrYUhWaEFCSHMwUzRWSXNTdTRwYzZva01aVWhyN01QdDlMN2lSS2ZuWnpENHVwZzJoSERjM2NZUURXa3pRbUttQkFDYWVQM2s1b2prSlRKYWFMUS1tX0F3LW9BN3ZweDZMVHFaZ1ZOd3dxMmh6bzJKYllKU09ob3d6ODIzX2J5X1c4VngzRDlSUUtueUE0eW9k?oc=5) |
+| Defense lawyers for needy clients feel squeeze after congressional funding dries up - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPQS1DdjFvMG8tR2ZYV25JU1JWSC1pR1pWTTRFekd0a0x1Ml9XQ2JKSHVJRTBzOHA5djl6dmd3bHVocFVxUVBvUTFIWmhoTmo3dzFueklJRERwd2Jydlo0bkx6RnJGRDlxWXFtYmZUbWVSUm9iUUdwZHJ2Vkl2SnFGT3RUaFNGUzJUR3dBTkhIZ9IBlAFBVV95cUxPV0d2UU54cTdWZ3ZiRTNyZ0VKQlNjU2Z5TzhvZXhQTWZtVlVpSktqLWNuVEdzaDdiYlhUTERQaXJ0NGNtZjhGMVZwZF9vM0JOVWJjRmhxcEhxMFpPTlFENkJJcWk1MjlOR3lWTEt0WEVMWHNYNU9Qb282cjRvSUxEOWhkNDVBQzJfQWdRSkpNTmJEM2JX?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
