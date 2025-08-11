@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月11日 10:52:16（北京时间）**
+🕒 更新时间：**2025年08月11日 11:02:02（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump vows to evict homeless from Washington, official says National Guard may be deployed - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQeWF0OEVSaWM5YlpnZzgwLVNOS3Nia2N2U3lNalIxV2k3bWFRZ3RlZnhsaGZFbmswSUFLQ2tsM2NqNFE3MXFPX0dPMktTNlU4U1FWVGhrYnJXaUVzVldnOThVb19HbjlqWHVQbnQ2SmY1RHkzOWFHcEluZTRrSzVhZWVNT0hrTnJvVFpWUWVKVHhCSVE3cHhCaTNwWTM3OTFJMEtZT3dWTlNpSEs3a3pQQ0Z6WGhlaTZf?oc=5) |
-| Israeli Strike Kills 4 Al Jazeera Journalists, Network Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQbnFsbGFIV0xmZVZiQ0JpNm4tU3hrbjVEbTY5VEtwTld6X2c1cERZQ3BERElPYjR0d2FXSWFhZm11Q2NyelF6cjJIOFViYjZuZXI2TG04SUtsTDhyX3NUNVluWUlNU1ZpRDZkSUJjcThfS1A4cG45QS1WeklVRy02T1U5OGZ6eFZUcjBtWHdsMTA?oc=5) |
 | Europeans fear being a footnote in history as Putin looks to strike deal with Trump - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOQXczalB3cjBsdDlIbjB5TktpYXFkQnBBQTFhRXA3dm5xV3hHYWFfaTdOUjlNeGdwNVVBMHRhUTVsX01iOThnMzl1ZV8tY2VGWVR0RVRYdWNzU2NKU2NqU0VPTDNsQzAzQ2ZKaHRINmZ1ZWJ0aHFnbjk3M2lHX1ZIYVFHY2bSAYoBQVVfeXFMTjN6RTh5dndpOXVQaU1MdWcydjJZck4za0dLdkd3WjJQV2REV3B3Wkg0cmhlNUFFdGpiTS1fRC1ZWEV1LVVxRWUtRUk0R2t3blhMbFZILTVnUGNlbzFVMktZV3Jpb1BzcVl5SXJQTTE0SnQySk5UVXlBc0RfNFl1ZmY5bFhodGFDalpB?oc=5) |
+| Israeli Strike Kills 4 Al Jazeera Journalists, Network Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQbnFsbGFIV0xmZVZiQ0JpNm4tU3hrbjVEbTY5VEtwTld6X2c1cERZQ3BERElPYjR0d2FXSWFhZm11Q2NyelF6cjJIOFViYjZuZXI2TG04SUtsTDhyX3NUNVluWUlNU1ZpRDZkSUJjcThfS1A4cG45QS1WeklVRy02T1U5OGZ6eFZUcjBtWHdsMTA?oc=5) |
 | Suspected gunman in CDC shooting had grievance toward Covid vaccine: Sources - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOR1pBYXBieHpVTHZVUkxvdEtiZTFTdzN1RG1lVEJicExlb2c5bVZmWkMtQ181V2pXdFJ0RVFuZEdURzNBZDF2UGpiMW1zdndXMUpzOTJHMm1Jai1JQ2VNbXVITjJ3S3B1RWwzSG9aZkpoSTFrTlRUQzU4YlZWV2c5TTUweUJnZlVqWnNrZ1hwMC1CVFZLR01SRU1TNlpYQndXUzVXYXVYU0lTZ9IBrwFBVV95cUxPRWhLUlNtWmx2R1FLYk5oTjdQdGkzb2NvRWFnSzVkSDczT25ZVVRKOFA4Rnl2TW1tMHh4Q3luczc3cVU0dEdiaVZKcEZZVHloUHhBR3l5c1dvZkdrWXcxYnFPWFFFTnItMVJzblhYZGxQMTkxVUpialpTMHdUdHVUdWJmbEZOTlp0ai0zV1EtNU45REhzYU9lU2F0M25QbzF0T2hRbUNnYzY0SU9xM2Zv?oc=5) |
 | Flooding cancels last day of Wisconsin State Fair as severe storms knock out power and close roads - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPQjdFS3lZemllcVVoSVgtQlJSYWhRaWFNMWNZMnlNRzhId3p6S29JSUVnWjBrYlV1Q0J5QWFKdW11NGlQcDIzWkFtWXdyWXpfdXVGT3pzYTVRQm5RR3ZyN2lLNmxFTjVJbXdrSi1JcFRQd3VncmZpQ1EzR0xIcjhWTXo2eW9rZlBGb29RUS1hQ3VabFFNN2c?oc=5) |
 | Netanyahu defends Gaza City plan as UN warns of ‘calamity’ and starvation - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPdHd5OEk5LWRLdTh2MW15OFBvazhsRTFEbmxQOXdHUEhlUmxHYU1IZ2hIRUZNUFc3VmRxUzZLdWp6U0xqMUU0c0RwZE8wRUtoVnZYUVN5dGxEMERnSjBOaEp0ZDlYWGtGeVlkQ0RLZERUYnJXYzlrR01Lc2RDVGM4b0RGRGFBcnl4MGpMWG80VFowSFF3RTlTUmVkU2hjMUI0MFZ5aGkxNllJcVhJOGdJeHZXbWdBMmgx?oc=5) |
