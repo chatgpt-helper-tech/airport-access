@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月12日 01:26:52（北京时间）**
+🕒 更新时间：**2025年08月12日 01:40:35（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Explosion reported at U.S. Steel Clairton plant, multiple people injured - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5lUFF5d0RvUVRGZlRyMnFrWEpwUTM0VWFaV2w3b2pNYkVaQV9CSVd6dzl0djBHbHdXVW15U2NYTGNUZ0hvYnFZNGFYTGxOV3RuU3VodjdYVi14R1RTTGRkbDhfQngyaGt6eHF4TzFfTmZPbzNDb3oxOU1qMTc2RVk?oc=5) |
-| Trump puts DC police department under federal control, deploys National Guard - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQQ2lkZ2l2SHdTR0NDT0Q3bi00eFZvdmdBeGdIMzhSenJKU3JlZGgyOWo3OUlJOXc3a2MxaURKYlg4TFI3XzMwTVlIaGRKajM2aWJDOG9nVEtPdUxZaGhHR2w0THkwUV9kdE9QWkFGLXJ2NkZFSnNVTHpwM2MtcWxQZFZKVVViRVBZRFo0cklZMnB2VjRYTkdmV2ZWVURzbmtMQi1zZkxuTdIBrAFBVV95cUxOQ0h4XzJjVjJfdFNlUkRFMmpaU01adVEySTV1OThoZ1dfcGh2ZGMwRFNKMXVzLWNHSDVFMUswWVdSa1I4VXRhTTFiZXRBM3ItQ3ZZSUYzdldzcHR3V0QtS1FySkVFaVRqRkI5MGs1dHA5MUEwRzVlT3FBR20tamFteFF4MWIwZ0RKVkh6MmJFd3hmN1lzTk9xZ0VhbWRBOWdpek10aGxqV0xsV3R4?oc=5) |
+| Trump deploys National Guard to Washington DC as he pledges crime crackdown - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFA4eGNvc0h1SmY0bUxzdmltTnljWU5YV2gzNGNyM3FIb2dzTUtoeWhFX3lRUUFpM3RTbnNBTTRqbTJIdFRqSGlIV0RKLVRiSk95N3ZDZQ?oc=5) |
 | Judge Will Not Unseal Grand Jury Papers in Epstein and Maxwell Cases - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQQTFDdVZRajJQWldNY0wxcUJBTlBJSFlQMEpubHVrX1BhV3JiTjJ6ZXdEWnZDV1JpMmNIQi1VVlR3amNDYldfNlY2eW5CSkYxVlNtMVdBeS01akVPWjZxMDhpWnhXa0RfREtBQ2xCVkNhR1AtYWNsQ3pRdjF6cmdUdXI2T3ZQMzdSUjB4Yk5KbVZsZnlTdURMWFN3?oc=5) |
 | Tributes, condemnation pour in over slain Al Jazeera journalists in Gaza - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPNzZNeUNIQ3RMeEtacDJjcG4zNXlEeWxYMUZlTEJXcHlaVVB3NnBHSVJNcHRsLXMwUDNDVDdqS3JSZUNyRE9sYVBTMC1nSS1uRTNDdEUzR1NQc1UwQnZSbTZXa0pkMElQS2VRS0lJeGNpTGxPVWFOLTF6LWE2aUxfRGJlZlJ4Slg1bmdCaDF2R05VZmxZVE82bGlBdWZRS3huQ0tSdE1RMVlxb2V1eEcyedIBtgFBVV95cUxQSGpxZzZ2QUR4WUktRHRScVdxdTZhZHV0YlVWVUlXeE9IZVNmeWduR1VxOXp4NXFsOTNnSFRMRVIxWGVrVmFodDhNQmQ2Rm1helNRXzE2MUFqWXZINjExbURzanl5QUdkdUF6S2MyX2VTT2otb2prMDB1OTRTcEwzV2hLQjdlOFFpLVZEd1djRWVFcDdUVDZaVHdPMGFTNmp3YzdUQm1mYWhVU2QzWExubzBvWkxGdw?oc=5) |
 | Texas House set to reconvene as redistricting standoff enters its second week - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQU1Y0clhoYm9lNXhIREV3RHRFSnF5UXhIMk9KSVVpTzg4NEw1VGNaNHhSNlVDNWxqR0lyQ3RZekJtaEx2U2JxbC1Rc0dIdFJfTUJuc3ZIN05mYTdYaW5xeDFkMVM2U3lGSFB1WU50Y1U0WHoxaDA5QTNLQ0hVd09JLXlJdmvSAYoBQVVfeXFMTnZET3ptU0FMaWlCU1hxSTRWSVpyUU13cV9aOU51NzVJQWxpQTBQZ0V2WkFHcTFXbkc1TTdJZDdxVHQ0d3A0RDhJSWNVaG5kNlBnVWtGM01GM1lWc052RlhFUElJN3IwbXhJMzMzMlEtOS0tSlp4d25KZzJMbVRtRUpjNU1RNHBOdEdR?oc=5) |
