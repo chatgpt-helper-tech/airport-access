@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月11日 13:26:04（北京时间）**
+🕒 更新时间：**2025年08月11日 13:40:31（北京时间）**
 
 ---
 
@@ -12,8 +12,8 @@
 | Bowen: Israeli settlers intensify campaign to drive out West Bank Palestinians | [阅读全文](https://www.bbc.com/news/articles/cj4wwxz12jko?at_medium=RSS&at_campaign=rss) |
 | Five Al Jazeera journalists killed in Israeli strike in Gaza | [阅读全文](https://www.bbc.com/news/articles/ceqyyrp3yq9o?at_medium=RSS&at_campaign=rss) |
 | Record warm seas help to bring extraordinary new species to UK waters | [阅读全文](https://www.bbc.com/news/articles/c05enyryqvmo?at_medium=RSS&at_campaign=rss) |
-| Plan to boost jobs for newly-qualified nurses and midwives | [阅读全文](https://www.bbc.com/news/articles/c39ddjv09vvo?at_medium=RSS&at_campaign=rss) |
 | Lucy Letby: How the case of one baby death shows flaws in the medical evidence on both sides | [阅读全文](https://www.bbc.com/news/articles/cj0y9673rjno?at_medium=RSS&at_campaign=rss) |
+| Plan to boost jobs for newly-qualified nurses and midwives | [阅读全文](https://www.bbc.com/news/articles/c39ddjv09vvo?at_medium=RSS&at_campaign=rss) |
 | More foreign criminals to be deported under expanded scheme | [阅读全文](https://www.bbc.com/news/articles/cyvnnj301l3o?at_medium=RSS&at_campaign=rss) |
 | Firefighters tackle large gorse blaze on Arthur's Seat | [阅读全文](https://www.bbc.com/news/articles/ckg449e1vnpo?at_medium=RSS&at_campaign=rss) |
 | Chip giants Nvidia and AMD to pay 15% of China revenue to US | [阅读全文](https://www.bbc.com/news/articles/cvgvvnx8y19o?at_medium=RSS&at_campaign=rss) |
