@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月11日 16:39:51（北京时间）**
+🕒 更新时间：**2025年08月11日 16:53:27（北京时间）**
 
 ---
 
@@ -12,12 +12,12 @@
 | Over-70s face driving ban for failing eye tests | [阅读全文](https://www.bbc.com/news/articles/c5yllgezjk3o?at_medium=RSS&at_campaign=rss) |
 | Record warm seas help to bring extraordinary new species to UK waters | [阅读全文](https://www.bbc.com/news/articles/c05enyryqvmo?at_medium=RSS&at_campaign=rss) |
 | Lucy Letby: How the case of one baby death shows flaws in the medical evidence on both sides | [阅读全文](https://www.bbc.com/news/articles/cj0y9673rjno?at_medium=RSS&at_campaign=rss) |
-| More jobs for newly-qualified nurses and midwives, under NHS plans | [阅读全文](https://www.bbc.com/news/articles/c39ddjv09vvo?at_medium=RSS&at_campaign=rss) |
+| Entertainer founder hands over toy shop chain to staff | [阅读全文](https://www.bbc.com/news/articles/cgm2jjwmw9jo?at_medium=RSS&at_campaign=rss) |
 | British backpacker pleads guilty to killing man while drunk on e-scooter | [阅读全文](https://www.bbc.com/news/articles/c0e999y7vq2o?at_medium=RSS&at_campaign=rss) |
 | Trump demands homeless people 'immediately' move out of Washington DC | [阅读全文](https://www.bbc.com/news/articles/c1kzz4m3ll1o?at_medium=RSS&at_campaign=rss) |
-| Entertainer founder gives toy shop chain to staff | [阅读全文](https://www.bbc.com/news/articles/cgm2jjwmw9jo?at_medium=RSS&at_campaign=rss) |
 | More foreign criminals to be deported before appeals heard | [阅读全文](https://www.bbc.com/news/articles/cyvnnj301l3o?at_medium=RSS&at_campaign=rss) |
-| AI chip giants to give 15% of Chinese sales to US in 'unprecedented' deal | [阅读全文](https://www.bbc.com/news/articles/cvgvvnx8y19o?at_medium=RSS&at_campaign=rss) |
+| More jobs for newly-qualified nurses and midwives, under NHS plans | [阅读全文](https://www.bbc.com/news/articles/c39ddjv09vvo?at_medium=RSS&at_campaign=rss) |
+| Chip giants Nvidia and AMD to pay 15% of China revenues to US | [阅读全文](https://www.bbc.com/news/articles/cvgvvnx8y19o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | Colorado wildfires burn more than 120,000 acres as firefighters await better weather - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPaGlIV2NoT0YyV1p3VjRQSFJMa3kxanFvVEdYN1JrakxYZ240QTZSS3RNZmYzZWV0Z2pxeFo4UjVrZnVSa01LQTFiWjhxMklRNzZPV0FmVmUya0Zyb3hLZkZZaUprZ0Y4aE1GamtpOGxQV18wdVVpU01GekI2ek5Ua2hPRjNQQUNkdE1ReTlGRFVHUlN2?oc=5) |
 | Trump’s Cartel Order Revives ‘Bitter’ Memories in Latin America - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOOE1kQTkybGotNE9MYjNETzBRYzVySG14ODZyWGtwMDhUb25vemRyNi1YanJxZmFTaXVJUGZ1LWNLekdsem42YkFId3FFRVFnOXFVcm1Eazc3SG1CMVBlcFZXTTJDNW41cERnck9xSDlpZHJfSkk0WU50NnNwRHhCZi1WZHE3MjRNSzVxcE10X0VqOUFaV3JmZzlYblNPNGM5cmQ0TGxB?oc=5) |
 | Texas governor promises to keep redistricting fight going for years - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPSl9OMjkyTWhqNGhNYlVLRll2WHhDSjFuQ25QNENLSnNfT3ZrSEdmNGFkWktSU2x3M0gzc3ZvNmE4dU5TbXBQQUNBY3Y2RFU4SDlLWUVqVmpNOFZESms1VURhbUtVMUZ3UjVCV0wzSkM4MzRSWFhhSHQxbm1rZVA4OGM1Zw?oc=5) |
-| ‘Fighting Fire With Fire,’ Democrats on Defense as Texas Redistricting Looms - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQRlBEOWljVktPbjVBclpRNnZTcFJ1OEpsVGdlekpvQmN1TmphTTJKNXlNdmFkOTltRS1GRU4tRC1hNzhpblZNeFB1dFAyZndCbEQ5MkNlS21YdGhIMEZyTHg4NFdGX01DMEQ0TEtWTUFPNWN6SjNiRGZITDF4SVFNcjZSQ25EWGxYU3RjRGUyS0FnZDltQ1F5bXpHV0tQR0loWEtsZlk0dWtHb1ptcW9EVUxkaDdZeVFjbm93WGRWMVJsVW8?oc=5) |
 | Trump Pits Vance Against Rubio in Battle For the MAGA Throne - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxPX2Z4WGoxSEt2VEFZeW5mbC1VX2pZVzJFUWUzQjczUGU2d2locEZhb2piOTVaeFpMNkhKUnJaVXh1TjlPYVZFYTBkcHU4SFllbUtZTkVsbGM1WG5Cbi12bzByVmVEeGJnVXg0NVVlRzJqNEdPMi1xNUR6T0FnOWlFblNMNzRCTHg0bXg4ZE9mVVdkcGZoeWw1WDVKUUN1eENlaGJHRkU3OXZBZXVMYWJhS0tXOTZFUXJGSTJyTno2UVN4UDQydy0xTlpMS3Y?oc=5) |
+| Ukraine will not let Russia 'deceive America,' Zelensky says ahead of upcoming Trump-Putin summit - The Kyiv Independent | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxNR0o2NjAtQU5KOVZpMGNHNDFMUWlUbnhncnJsWnloRnJUT0tVOWJ1SkJ4T2Vpa1NMY2h5Y1BYeU9CaFRTeFN5dG85c2swcDBZUDB3M0tGRlVJVWh4QlR1emd4WUxYRXhSUDdNYWt2NEVGUGNmb0tieFl2UEQxR1JPblRBeTJBMWtIUXkwRlVqUFRDdFZKS0xOby1IMmxjc1VPenVqcmZHZzRzM3Q1MktUMm9pX3BkZUMyY2FOS0FCM2I?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
