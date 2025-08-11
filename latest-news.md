@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月11日 18:26:57（北京时间）**
+🕒 更新时间：**2025年08月11日 18:39:58（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | British man who perished in Antarctic glacier found 65 years later | [阅读全文](https://www.bbc.com/news/articles/c4g034yx4gjo?at_medium=RSS&at_campaign=rss) |
 | Amber health alerts as heatwave temperatures set to hit 34C | [阅读全文](https://www.bbc.com/weather/articles/cz60081dpyxo?at_medium=RSS&at_campaign=rss) |
 | Trump demands homeless people 'immediately' move out of Washington DC | [阅读全文](https://www.bbc.com/news/articles/c1kzz4m3ll1o?at_medium=RSS&at_campaign=rss) |
-| British backpacker pleads guilty to killing man while drunk on e-scooter | [阅读全文](https://www.bbc.com/news/articles/c0e999y7vq2o?at_medium=RSS&at_campaign=rss) |
+| EasyJet pilot suspended after 'drunk and naked' incident | [阅读全文](https://www.bbc.com/news/articles/c80dd15378eo?at_medium=RSS&at_campaign=rss) |
 | More foreign criminals to be deported before appeals heard | [阅读全文](https://www.bbc.com/news/articles/cyvnnj301l3o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump to hold press conference after ordering homeless to leave Washington DC – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi4AFBVV95cUxNMU1GNkJ2VVpEQ1RvZlNlQlJPVEJGSXhrbnU5XzhpenA0RENYaENlTkNwVU5NeWJ1aG5SOVpnSzNVdG1fUjdHeXpNNDFWaFVVZWpPanJRaEgxaUtMdDhMUGZjazZKc0szbHAzWGFtaUtfVllzd1VmWTZHZ3VXRVRxVm41aC1sQm9CTWhYeVZvYjRwS1ZlbW9ILXdQNGtxWTdoeDlRUzdBWmZsTEVmNFBHTUZ1ZnBCX2dWRTBWLVpBQ2pRbjNUbVlTM3E5ZlI0VmJjOGFHb3dGOWV2ZDZoUVlCZw?oc=5) |
-| Israeli strike kills journalists in Gaza City, worsening the death toll for the press - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQU3RRZS1VOUhZd1RWbkIxd216LUpuTXI1N0R1YV9xYmp3bkQwci1TQ2d0aGMwUm1nVmI0UGEtLUgtUVVUNHZhNmJURUxsZlFWc0RnTEdncFJILUZnTy1Sc0Y3dUY1TkpwUlNCeDJFMUJlUVhGeWNLcnJZc3pBNTlMdXRPX2kwc1VQa3g4MERtM0tjaEZhQmxqRzlEbTQ?oc=5) |
+| Israel kills 5 Al Jazeera journalists in airstrike, claiming one worked for Hamas - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNbDc5Z0FpLVg2TzZhdExTMFo4eHJNc3V2cG5nVi1PWkdEeFNGMlpvU1pyb3Awck9vZ0dva3ZlZVVyeDI0dkZXbGJZckg3VDZaVkt0TnZwaVd3eFhfTnpFV0h3aEhrX2pndEZVODNjVGx1YnRES242dk15ZmZWa3RWZ2ZPd3FaQWFsZHNSclR2elJocXp6alBWVDYtcXRXSXNYNjJZSEVMZDhjdFh4N1hPMFV30gFWQVVfeXFMTjZyUE1pSzNMSzBQRXVYNlpnUTJvOWtydGFQTUlzWV9nYzRZU0Z1Z0wtZnBlRzM2QTFzYzkzczltb0ZJQUFZQlB5dktVWjQzaHNVeTIwNWc?oc=5) |
 | In India, Trump's tariffs spark calls to boycott American goods - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPQmJydVlmc2tIVWNDclNhUFJ4TURNdjhTWHVGczV5d3liZ090MUFMWkJXYmRXZzNTWW5LYVZ5RDdZSWNIblp0ekNMdUN0MW1kMDdDNjgzS01qV2thcXRiRy1kMGtBT3hGMU9qZUU2amlGX3ZTVEQ3ZEdRczZIQVdkMzEzRjUwSnpPdE5sV08xUk4yRjgzcHFFZU1RcVRMSDdyeFotWkExQ1cwTjVSSkVHY3ZobzlZcmhvRlNlNnJR?oc=5) |
 | Europeans fear being a footnote in history as Putin looks to strike deal with Trump - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOQXczalB3cjBsdDlIbjB5TktpYXFkQnBBQTFhRXA3dm5xV3hHYWFfaTdOUjlNeGdwNVVBMHRhUTVsX01iOThnMzl1ZV8tY2VGWVR0RVRYdWNzU2NKU2NqU0VPTDNsQzAzQ2ZKaHRINmZ1ZWJ0aHFnbjk3M2lHX1ZIYVFHY2bSAYoBQVVfeXFMTjN6RTh5dndpOXVQaU1MdWcydjJZck4za0dLdkd3WjJQV2REV3B3Wkg0cmhlNUFFdGpiTS1fRC1ZWEV1LVVxRWUtRUk0R2t3blhMbFZILTVnUGNlbzFVMktZV3Jpb1BzcVl5SXJQTTE0SnQySk5UVXlBc0RfNFl1ZmY5bFhodGFDalpB?oc=5) |
 | Photos: Historic flash floods hit Milwaukee as Midwest faces heavy rains threat - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQbHVNc0lpZ2lWLTlZeTZRYXQ2dXdxbHJzbW50MDdjZTJVMktLOGZNWm94R1k3d2QwQ3hyQ2pqMy02SG9JcFd6YXljSlZVU3JYd2pPWUt3WVpHLXRZczJvVEk0SkxtSjdkRGhxX1hRcW93dG84bUIwNFZ0MTlPRGs2cmlOUzQwdDFZZFo2dlNLX3k0dw?oc=5) |
