@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月11日 11:53:18（北京时间）**
+🕒 更新时间：**2025年08月11日 12:00:31（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | Record warm seas help to bring extraordinary new species to UK waters | [阅读全文](https://www.bbc.com/news/articles/c05enyryqvmo?at_medium=RSS&at_campaign=rss) |
 | Firefighters tackle large gorse blaze on Arthur's Seat | [阅读全文](https://www.bbc.com/news/articles/ckg449e1vnpo?at_medium=RSS&at_campaign=rss) |
 | Liverpool 2.0 launched at Wembley - and Slot has bugs to fix | [阅读全文](https://www.bbc.com/sport/football/articles/czjmm30l87no?at_medium=RSS&at_campaign=rss) |
+| Plan to boost jobs for newly-qualified nurses and midwives | [阅读全文](https://www.bbc.com/news/articles/c39ddjv09vvo?at_medium=RSS&at_campaign=rss) |
 | Chip giants Nvidia and AMD to pay 15% of China revenue to US | [阅读全文](https://www.bbc.com/news/articles/cvgvvnx8y19o?at_medium=RSS&at_campaign=rss) |
 | Australia to recognise Palestinian state in September | [阅读全文](https://www.bbc.com/news/articles/cvg33351n61o?at_medium=RSS&at_campaign=rss) |
 | Number of arrests at Palestine Action protest rises to more than 500 | [阅读全文](https://www.bbc.com/news/articles/cqjyyzlwk2go?at_medium=RSS&at_campaign=rss) |
-| More foreign criminals to be deported under expanded scheme | [阅读全文](https://www.bbc.com/news/articles/cyvnnj301l3o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
