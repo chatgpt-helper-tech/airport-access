@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月11日 20:39:33（北京时间）**
+🕒 更新时间：**2025年08月11日 20:53:44（北京时间）**
 
 ---
 
@@ -25,14 +25,14 @@
 |--------|-------------|
 | Trump demands homeless people 'immediately' move out of Washington DC - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9VN1liNTEweDRLX0VmZXY1ci0xZXBoRS1YeU9TVXd4RkVMNHdnNmhqaW1Udnh0Rl9sTGQwa0x3QlBFMk5kWTljbHBVLTFRM2lfWkF4NWR1WmdxUdIBX0FVX3lxTE5UOVVvTU40T0VUTHJOVGtJczVNZkw3RTEtZnBmcnhfVXVsX1RTUm5aRjJXYi1VbXBnMkh1TW5XZnVtT0dtUnF2WkhBUDUtUm5ETmNSSWVFWXVrYVFpTUhz?oc=5) |
 | Israel targets and kills Al Jazeera correspondent Anas al-Sharif as toll worsens on Gaza journalists - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQU3RRZS1VOUhZd1RWbkIxd216LUpuTXI1N0R1YV9xYmp3bkQwci1TQ2d0aGMwUm1nVmI0UGEtLUgtUVVUNHZhNmJURUxsZlFWc0RnTEdncFJILUZnTy1Sc0Y3dUY1TkpwUlNCeDJFMUJlUVhGeWNLcnJZc3pBNTlMdXRPX2kwc1VQa3g4MERtM0tjaEZhQmxqRzlEbTQ?oc=5) |
-| Column ｜ The end of the Trump-Modi bromance - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNampRZndTaG5OUXFQaDlpVnRRcC1EZ1IwQmVhanpncVNZek5BWnhBRUg5UnhvQ0ZrUzF1V1o5NDhRLV9jS3p0UTl4R1MxRWlUdmdPQTgwa3JQQ0FGYS1ESDFGVVZBdExSMXA4WlVKWGxSbi16dzMzZzhzSUVOVWFLVEE5ZkRMdm5jLU5XY0VZaGEycTZWSzNGbmJCQWoweFU?oc=5) |
 | Miguel Uribe, Colombian Senator Shot at Campaign Event, Dies at 39 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNRmhidHE1M1JETVJxMXNnd0FrUTJYMkpwcFJoRDVDVWZGWjlZbVFOMjZpaXh5VFQ3UVdMS3Q0d09VRVpKSUZsX3pJTmhaMmNCdWFiMHZGaW50NjlqOEtpUVphOExzTDJwa284RW90N3F3aXFkR0EwWG5nbkFIeWFwSmNyaFRIZURWRUx5cWNrQ1h6aHNLWW84eDVBR3pYSGFFRkRTNw?oc=5) |
 | Photos: Historic flash floods hit Milwaukee as Midwest faces heavy rains threat - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQbHVNc0lpZ2lWLTlZeTZRYXQ2dXdxbHJzbW50MDdjZTJVMktLOGZNWm94R1k3d2QwQ3hyQ2pqMy02SG9JcFd6YXljSlZVU3JYd2pPWUt3WVpHLXRZczJvVEk0SkxtSjdkRGhxX1hRcW93dG84bUIwNFZ0MTlPRGs2cmlOUzQwdDFZZFo2dlNLX3k0dw?oc=5) |
 | Australia Joins Growing Effort to Recognize Palestinian Statehood - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOMF9MVVBBVlZZdUphcXpGTFZuWmxEM1lDSlh6bHBQLUhRSlZiWFVxNmR1eEVMUjNiVzgtc3ZXVllnX0NDdXJXUTQtWHRzOHZFTkZaRG5hTTBpVmJ2ejRPV09yRmxaSjREQ0h3VjIzc0N6Rm5nXzVJV3U1SkZRb0dIVVpOcm1KdFhDTnFKTUlB?oc=5) |
+| Factories are losing immigrant workers, stressing those who remain - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNVUVCSnhVd2d5QThsRmNJSUl0VzRlZ0k3LURONDFLWEprOUdXeGRQUXN5aXV6LWMxT0hHUnlyeEttMWFVMWxQVGtWN2ppSkhuN2w1S0FxeTVkOXA3Tk1TelJLWldXd2owN09YaFhNakdoWnFLZDJJSmNVSkowUW1KOEtoSmpoYWFz?oc=5) |
 | CDC union says vaccine misinformation put staff at risk after Atlanta shooting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFBZZ2xQN1VCM3FzV0xjZXZod3dHYzVXMjEzZUxKUzVUaUM5YXBLeHRFVEJXUTRwc3NXVF9fX2JBeXRqaTdjNWxYbmY1SjhrbnlJUkxIX0dyRzd5QnIwS3FKYmZ2OTB4NE5ZWm96UWZSRDkzMzExNHNJ?oc=5) |
 | Another megabill? Senate Republicans have their doubts. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNX2hkaW9rS2ZSbGFTWkw0QTN3Y3FFVUQ5QVYzZk00cDZNV050UXdhR2tUNUtIMEVQekVyYTV6cFJRRXB6UThGOGFGZF9leHRHWGhrWklNX1B6a3hBZ2xYYVZldEU5b1cwMk91MDF0UDZWZ1g5Vm1mVXF1UW5idTE3M3JPM1ZDREtIYVBtLUtjZWs4RC1icGtXUVRIcVNIbGg1SXFaZ3d3?oc=5) |
 | Undocumented Immigrants Fear Seeking Aid After Texas Floods - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNUWk1YUZXdExoQ3pRSS1BbU0tSUljNm9mcWZkeHFMVmVfMWVGNldnSGpNaFlfRGoxODNfOEZ2NmJPYXFKR1VBWmpzZTRKRkVoeVVXVFpVeUZEME1YSmFHOHRtV2xVdVNMQlpvMlEzT0dQTV9oUDhZOTR4dWo1UEhQUG01U2NDVlZMbUk1UEpxbTdDb1g1RzRZ?oc=5) |
-| Nvidia, AMD agree to pay U.S. government 15% of A.I. chip sales to China - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPZGVhSmZkVDg5S3NRM0VoOFBUU3JPU1JiNGxrSG9jODE0WEthYjloNEhpbUE1T21LWlVkRFRJeW02UFkzLUs4YW5fdDdDT3p6QUtxOWdSeTBtMG1ESUE0WTdJdDVHVnlsSlMxZXZlYzA1eG5pdE5Dd1dLMGdpdVlrWURkblRCYlpMd0xzdWJNMm0?oc=5) |
+| Texas Legislature to take another swing at redistricting vote as Democrats extend their walkout - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQY2M1ai1GYVlrYUhWaEFCSHMwUzRWSXNTdTRwYzZva01aVWhyN01QdDlMN2lSS2ZuWnpENHVwZzJoSERjM2NZUURXa3pRbUttQkFDYWVQM2s1b2prSlRKYWFMUS1tX0F3LW9BN3ZweDZMVHFaZ1ZOd3dxMmh6bzJKYllKU09ob3d6ODIzX2J5X1c4VngzRDlSUUtueUE0eW9k?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
