@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月13日 07:26:41（北京时间）**
+🕒 更新时间：**2025年08月13日 07:39:39（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Train carrying possible hazardous materials derails in Palo Pinto, Texas: Officials - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQZXlWS3A3dUJpT29kclBTMUMwd3dIT3R6TzhMUzExTDcwNmVXT2JDV0hqTVg5QU42ZnBOZ3c1U1FJRk12NHhTS2dmOU1kS0FwenRwMWdsNFJWZlQxSFFpcFFqdE9LYTNxbV9IekxROWh3SUtTQmxSRFR4bE9zYkE0cWE3VDRtcENTUXBBUW9iUG1wTmtsbFhaRGwtT1kzVm04NTBqRzNjY9IBrAFBVV95cUxQN1BheTJ3S2w4dlczV3BjMVRMVTctSng2YVVSdDNxVTNRcC1RVzFYQWVJcDVYb3JIOWk3VWJwcndZOW0wZmstaW43bDRPQ2NXc3BKWkRkdGhRQWhPTnJSTkRqSmtQUnJGUi1WZ0FFUTh5SjlfMmVTREsxenh2SWI2b182QkVGZ3dUd1hiSDR6NFdoUk1RM1ZzZzFiamh2aXN6Vmgxa01pMlhRcVlu?oc=5) |
 | After CDC shooting, its employees turn their anger to RFK Jr. and Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPSTV1U3NtdmJselozWHdqU2NBV1RCWndYYkFKV01LamQ2dzk3OEV3WWRpTWNlY2Z0V005Z0FMd2haclNsU215Skd0cllXSkwtNElOVWd4eDYzcF9kN3RZcTIzWjQxUXE2SVFkVUlXUlRQZkE2QzRjR21BRjVrcDhzTTVEVlViVmdmR3c?oc=5) |
 | Victims identified, additional information released by police in North Austin Target shooting - KVUE | [阅读全文](https://news.google.com/rss/articles/CBMi5gFBVV95cUxNLVp5QXRyOWsyWFV1WHRCbXFZbWFscVFKLWM2S1JqaVZiNk9mYnpMVWJSS29XcElVWHRodVFxblBteHpmSTBwdHNQN1d2ZVc2WnI2M2ozY1VITzZVNTJHaTNfaHpJcHJnYzV5bjkydEhDME9KUDdybUc5ZTBTbF9XQUpyTmNwZ1hqbVZWc2VwRWJQWExZR2JvVzQzR3lsdDFUMzgyZ19EczJLdDcxLTVqUkdVZm5ETkVtcTg2WUZ4MjE4VXloSXRpWUpWWkt2TDFyMTI2eEZvd0pmNFZ1ZXRRN3VLWUl4UQ?oc=5) |
+| Zelensky rules out ceding Donbas region as Russians make fresh advance - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9ibUk0eDVaYlNVSDI2Ri02anhQSGt4aTN4Tm9LTzZDV1FWVzNCcmNNZGotWEhReXI1akFrMFB4YnhxLXB2TEtMWHNrMWtkaXF6akliRVFHLVliZ9IBX0FVX3lxTE9INDFnUGFnZ0otejZ5SkJOY1hGM29lY01rMm1SM0t3c2dsbEZGRnlGdS1NT0JnRUNrUFlpenktbllqMTlKSmtKQ3l4SDI4QllqUHhfUVRYSC1tTXU2OTlv?oc=5) |
 | One of Fort Stewart shooting victims was Sergeant Quornelius Radford's "intimate partner," charges reveal - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQUGpBbUUyUlFiVUw1a1BIazhYUU1OMlIxQ05zbGNOanNoWmx4R1AyU1ppUUtKenE0LXpualdDSUpCREt5YTZUV3VNa1RWZzdseGNIT3Bya1UwQjRaMDVuZ3FSQm15NVk0RWZHY1FqRUdGMVBOektBajJEU3oxQzg1ZGlsZHY2Q0dzaE8yWEw0UkZCbEdlVlJ3UDRyd25iRlBVTWpQeHA4eUlTd9IBrwFBVV95cUxOS0t0UEJ5aDhvbktWZ01aUkxwYkZsejc5UERESkRyU3ZMN1hGMjhTdmg0a0pBV215cXdrUi1NQktmRTluSXUwTWtuaEozTU44NldmRV9KMWFwRm1JbURVR0pfWmw1ekJwQjluY1dtOHdVempiTVhtQW1iVTRpOEltczJzNl92Wi15NjdGX2VkTjF5OUNCNVd1SUpBS0ZNS3IxT1U3b09iX1NVclR3d0hJ?oc=5) |
 | DeSantis picks state Sen. Jay Collins to be Florida’s lieutenant governor - AP News | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxORkRud19Ed2dmbUczYThIYjhTU21PbnhfRUNSQzBIYjQ0RVJLN3ZmaUNGUElCRDVmSzRXTGlQekNGSW5kUGRwZW9jb3FuZFVkc1dQanNEdUZNaWJqNlJxY1dURk5DMFEwMDB2cmt6WkRZR2Q5RUlBY0N3Z0pBSDRHYlVaMG9SWFJzWXFiS0lzNmFlWHZVOXlGU0h2d1h1bHU2WXp6WlB6ZVZTdXhydGMtTkQ0Yl9UbTZjZnZxeg?oc=5) |
-| Tropical Storm Erin could become the first Atlantic hurricane of the 2025 season - NPR | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE0wVTN5OHlKZWsxMGJJU3BBaDROc2hnYjQ5MkhPLUNfMFpNY2lnMG1nYkVva1llNXVSNHozZ1p6eFhwV0cxY1JWb0x6cTJZVnlIdHlncVN2aWNPcERzTnZhQmoycXR3UmxibHVEZEFoaEdEVWt4eGRhckdRdGdWZnc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
