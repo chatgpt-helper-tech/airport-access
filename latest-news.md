@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月12日 15:00:44（北京时间）**
+🕒 更新时间：**2025年08月12日 15:14:17（北京时间）**
 
 ---
 
@@ -10,13 +10,13 @@
 |--------|-------------|
 | Zelensky could still attend Trump-Putin meeting, but rest of Europe is shut out | [阅读全文](https://www.bbc.com/news/articles/cn5eedq7ldro?at_medium=RSS&at_campaign=rss) |
 | Knee-replacement implant used on thousands of NHS patients was known to be faulty for years | [阅读全文](https://www.bbc.com/news/articles/cqxgen498ejo?at_medium=RSS&at_campaign=rss) |
-| UK job vacancies tumble across the board | [阅读全文](https://www.bbc.com/news/articles/cpdjjp681p7o?at_medium=RSS&at_campaign=rss) |
-| US and China extend trade truce to avoid tariffs hike | [阅读全文](https://www.bbc.com/news/articles/cg7jjkvzmkxo?at_medium=RSS&at_campaign=rss) |
+| UK vacancies fall as the jobs market cools | [阅读全文](https://www.bbc.com/news/articles/cpdjjp681p7o?at_medium=RSS&at_campaign=rss) |
 | North Koreans tell BBC they are being sent to work 'like slaves' in Russia | [阅读全文](https://www.bbc.com/news/articles/c2077gwjlvxo?at_medium=RSS&at_campaign=rss) |
 | Taylor Swift announces 12th studio album | [阅读全文](https://www.bbc.com/news/articles/cqjyerlv8eyo?at_medium=RSS&at_campaign=rss) |
 | 'This may come as a shock but I love London' - what we learnt from Nicola Sturgeon's memoir | [阅读全文](https://www.bbc.com/news/articles/cn844n379y5o?at_medium=RSS&at_campaign=rss) |
-| Worst bleaching on record for Western Australian coral reefs | [阅读全文](https://www.bbc.com/news/articles/cq877llq099o?at_medium=RSS&at_campaign=rss) |
 | Staff fear UK's Turing AI Institute at risk of collapse | [阅读全文](https://www.bbc.com/news/articles/c24zz2vdv51o?at_medium=RSS&at_campaign=rss) |
+| US and China extend trade truce to avoid tariffs hike | [阅读全文](https://www.bbc.com/news/articles/cg7jjkvzmkxo?at_medium=RSS&at_campaign=rss) |
+| Worst bleaching on record for Western Australian coral reefs | [阅读全文](https://www.bbc.com/news/articles/cq877llq099o?at_medium=RSS&at_campaign=rss) |
 | Is crime in Washington DC 'out of control', as Trump claims? | [阅读全文](https://www.bbc.com/news/articles/c8600x7dnn4o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
