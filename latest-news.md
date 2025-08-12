@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月13日 04:27:00（北京时间）**
+🕒 更新时间：**2025年08月13日 04:39:44（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Fact-checking Trump’s claims about homicides in D.C. - PBS | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOei1JS24wVS1DNUtQcUl6Q0tXY21YNUY1SldPanAxdGhqVW1yX3g1UnJ3aTNXM1BsSDZvTXZhbkxJV20xQUJFZ1NQMUx4ODZUelJrYWNmNUp1dmJfNTFOcGtMQk5PaG95MmVnWDhZQmViZy1hbTV3MkI4b0N2ZS1TRjFCUTJJMUo4eHRWWE5JdEhVd9IBlwFBVV95cUxNOVhqaGNaY3VqVWhEWjdfSm9ydEFDQmxTOTFaOWJ6VU9pckVGcVRRRkJSNERqak1TNGRiNW5QV2lrUEdmSDllYlJOdmd5bjVabmM3UVhWOEpEX0NCYy1hNFpSWkc5VVFNWlBUSm5iNGJpY1pUV3VGQkZzRWNmeXRaTW8wSGRqRnZUbWQ2dTJFTnZ2dnZpRC1B?oc=5) |
-| Alaska was once a full-fledged Russian colony. Now it's hosting a U.S.-Russia summit - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNdGxqM092SEJZMnQ3TlRPUC0yUW9Nb3pkcFo0S2hpNjlsMlZXRzhJdFRORDRlZjZNSkRtdGgxZmQwQUpBdUJXZUFDOGZ0dU53SDFCT2pwcFg5VjUzblJDRWt1SFNJVmcxUHBqN3B2N1RDelJNSHktcVRYT3J0dVVsZjByWQ?oc=5) |
+| White House says Alaska summit with Putin on Friday will be 'listening exercise' for Trump - follow live - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1CZGliSDlMSllUenlrcDBpZXowcDRCVFU3d2lxNXhaQk8zMGZrcWZfQTFPMGFWSWlxbTVtN1ZVWWlXbmRmVkFVXzdLeTBoX2FlWUV1dQ?oc=5) |
 | Ukraine will not cede land that could be Russian springboard for new war, Zelenskyy says - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQbzRGSy1rajVGSktvMXF1VUNrTU1iM05qcFFoMDV1MWZuekxlblp1cjUySDFnNTZ3SXZqaHJRRjBITE5yekxJRXpENkttM01ERFRDOFBwZW5CelpJdXRjV01yTlNjYlZEUG5KU0oyWFVodlhkdFlTc3NSSXJ1TkhJdldjS0VPQ0dmdE1oby1NdUdaaVpfQU1Fdkd6dlRoQQ?oc=5) |
 | Suspect named in deadly shooting at North Austin Target - KVUE | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPVnpHRENZX2ZsSkRGMTZGQUZiZkhZQW5BQzVDNE1rNUNYRmpvWng0Um4tVzZDZVI2WkRqMmZ2S2tqU3ZPMVZnR0hhSlg4NmZLRUVVa09aZjdENnVNdjRuZ3dFOFpLQV9Ed041WHRULTNTME5EOXJOVGxBQkd5eF9BTkNVQlgzUEo0S0huQURmSDJpU05zV1FmVGlhSmhpS2lSLWFGRlBObVpqcVRYeGNPOG9kT3YzR2pScHc?oc=5) |
 | Nearly 500 rounds recovered from CDC campus after gunman attack: Officials - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPd0pnaTQxVnRMUGJLaENLd3BtbHdNdnl6ejVyQ1ZnMnlxeU8tbXR1TVdiSTBDaDZOTEo2bVh5QWx0dnlTY3J3UTVPUW5LbkdwWkJqYXFlRWVYMm9PZHlmNmpVOWtWRXdlN1pnSlNvN0RkeEZpMFlSajIzZk15LVBMUmdpaFdhajFNdXA1Ym1PZzQxNDlxNzMyQWJPUHAtWHh3SnE00gGoAUFVX3lxTFBnV0FYaVRpZFVCTjIyTjlwNEJWZkIwendNbzZBZGRSa0VjZFh5ZVFZRHlLSmdDREZ3a3VmNklKOERIU1ZSNHNpNkpGR0hGeHBiVUlDb0dIR0t6MnV5QlpJbF91M1JWTjlGdmFMLWhHODdabktuNUNOU2xvdU9HTTd4aExRb0lTV29OZU5rUUVjN28wTkRBV3BwTlRUay1ET254NXZrOXh6aQ?oc=5) |
