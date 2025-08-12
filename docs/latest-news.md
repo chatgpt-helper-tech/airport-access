@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月12日 14:14:30（北京时间）**
+🕒 更新时间：**2025年08月12日 14:26:42（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | ‘Red meat to throw to his base’: DC residents on Trump’s police takeover - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPQlNLdVNyN3c3WmVkcjVNemRYc3VTeTRfQ1VyUmp4dFdDN2c3XzFURmltTjFfV2pxS0R5NzBKWWlNc3J3SnVwVHplektkT1pmeVZaTll4bUJZdTZiLTFfTVQ2dTJ3OGJmTXVRUHEtZWdwNnlFWEVJaXoyWHJuUV9FUmNZTE4yekotanYzUzc1SGU5N1E?oc=5) |
-| Trump Extends China Tariff Truce by Three Months - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQZ0g4NEFkNHpKSlNjemNVVUFtOElLN29HQm8yakYteW1td2FNUE5RYzBPWGxKTDdrVHhVNl9rSmtHbF9KZHpvcGZ1cGtyQVJKTW90WjhQMXVXY21NNkJTWktLcjBHYWxkTU5zbDVsVV85RDdyOFlmZS1fbGtaQ2xhZGo2MzcwZw?oc=5) |
-| What to know about the 6 journalists killed covering Israel's war in Gaza - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOZDVCbzJPY1l5dGFEU2EzaVZQWG42NXJGQldYMGpMeDdXSHB5b2pDS0JjR0VYZHVtM0xuZHpCTHc5ODJrc1VsOGV3U0NWRzFOajFab2VQNlhEMklicDRIc1l0Y1RiTjRPU2haWWtpUndyVDlSZjY1U2tPVFh5SjVJbWN3?oc=5) |
+| China tariffs delayed again, hours before sharp increase was to take hold - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPODZfaGkydTdPbVFyUzZiV1loYjlFbDdrMG92c0RDX0ZMcGdJTHQwOVFpRGl6T2NKcElQeVNuMTFfbEw0Q05vdGhpbF9xRndYTmhZQ2hPMGxmS0MxbXhzM1VLUi1vM0pvbjFPODljLUpjYVAyYThub0p3OFRrUkoyVWk3NlQwUQ?oc=5) |
+| General involved in Trump's L.A. military deployment testifies he didn't hear protests described as "rebellion" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxPanV2QWkwaUIwOFRIY1NRZzRaZEdIZ0hMZUltaWtoeWZmNnNpVnJaUk5KSVpYVmdvRTVGYWpacVhJU1J3Ny1vM0FxaTkySkwyaGZReUNiNGJHMDRKZ1JzdUNXQmxRZFZ4aHRRTGswY2NOUE5CTkZCTkswR1k5LVVqN1VfMVBpMk44UVRaNlBxMUFaakEzVGVUOFZyNC1KTy1leTlGQkg5TjlOTll5ZENXZzVfeXpTUWtPeHFwdnRKUVBGQVlPQ25pLUMtamN4aG14MThnY2IwNkEzd9IB3wFBVV95cUxNU3I3ZkVjRjJubHVEM1Fxb3ZnMzhoU2FXeU42aGh4NVpIRTlqTUI0ak1NamlSOUZCZlpIaXRoN0plRVl4Z2tZM1JwVEJRcnc0dm5UQUNKb1l4YjJUaUxvNXcxeVJfYURqUkNrdmZaamJsTDBhSGtlNE1uSENhd1J1Z2ZVRzJSWEdTOVdjelY0MFpLVGJkUUgxOGdGMDhWWWtQLU5aTmpXc1JNbk9pWUtoR05jQkNZMDdodHFvcjNCc1l5WmJDZUladVNWOG5HVlRkdHJXR291Z296Vko5SGY0?oc=5) |
 | Los Angeles-area high school student detained by immigration agents, LAUSD officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPTVViSWhzZzlQS0tYcnBXb0JyOEdGTzdPRHVwVVVjMWphSW9neDJxYUY0X3dVWkNaWmhWR0tncVZVZS14TklqYV8wbVNJYW1XQnhBSWZYU2g4Vml5OUpSb3FGRE9teHhGT3NjQlJwRU1YcXo1d0tqei1MQzVHR1FCcl9ack5kRWZ3TlU5TGJWbW56UnBiTzNKYzJRSVhMcFZqdVZPcjljV0pPRXFOWXUzRHlUZw?oc=5) |
 | Trump is taking over D.C. police. Here are the big cities he says are next. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQTWxVU05mU2NHMGtWbWg5d2pSbTctSWtmRzZ5Sm9DeHNBSDg1aXVMV29kRW9PdEh2Y2RzT3RZd2J5NjkwcTEyNDdZNGVfdkNHdmlTb0hqTzJTVmdpTXduUW1JdlYySlFDY0pCUUc5MFdEaWxwRTktTlJEdnFPbU5DQ0NkT3JtUHMxNk40SDktUEZyb2s?oc=5) |
 | 2 dead, 10 hurt from explosion at Pennsylvania steel plant: Officials - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNLW4tUGhCTUdnVnRqSUNjNEJ1SkRqLWFZUmRqeWtldXc0aUlhdHZZMVJCNUpYdUpLaHJrQl9JTGJKSlpDRk5fVGV1dllrM192RGZYVGpaVXR0Q2hHV0U3YlN3NTJna2lqNUgtVGRfcERwWFNjWmw1UzZnZ0VsN3haVFBmQnE4OURSQlBKckRRTnQzOUxYOWlDZkxCMzRHb0pRT3BrbVgzUTNsaFHSAbABQVVfeXFMTW1qSE1Rdmwyay02aGc4Mm14Y3VYbXBGYk5Bc0p5MEk1VEYzOVFBUzBITFl3bFI1b3ZMR185d0pmQzI0WmlNai1raFhmZ1dwdExZVE1NWllNTXdNcmF1OFM2OGdxSlNka2w5LVlXTVhFODI5OHFUZXB0d1dkUkhDY0NqLWdURXJIaUd5VWc3MkxzODFPcGtrWVRKLXh1c3J1dmRBNlZJVDhMaWhfbXg2Vm0?oc=5) |
