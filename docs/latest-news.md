@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月13日 03:26:45（北京时间）**
+🕒 更新时间：**2025年08月13日 03:41:02（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Suspect named in deadly shooting at North Austin Target - KVUE | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPVnpHRENZX2ZsSkRGMTZGQUZiZkhZQW5BQzVDNE1rNUNYRmpvWng0Um4tVzZDZVI2WkRqMmZ2S2tqU3ZPMVZnR0hhSlg4NmZLRUVVa09aZjdENnVNdjRuZ3dFOFpLQV9Ed041WHRULTNTME5EOXJOVGxBQkd5eF9BTkNVQlgzUEo0S0huQURmSDJpU05zV1FmVGlhSmhpS2lSLWFGRlBObVpqcVRYeGNPOG9kT3YzR2pScHc?oc=5) |
 | Russia tries to make sudden advance in Ukraine before Trump-Putin summit - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOcHNDOTJMLWZwN181VzM5aVZyWl94ZGg5ejJrVEcyNnZpUWJ4Q3F0dktuNVRsNWx0cFF4Y3FKMHBxTm1XQjd4aU1vU1lkT2E0RURwb01ZRm9ESmRwSWpNQlFoQk9rclZ1dkxLNHhtLVk0ZFVNazByaF9Rb0tjRUxhVWtIVHo2b2ZZQjJsQ3hoZVJRdU9aWWtZZ3hHQ0VNV05qNFppQlNrRkphdlRLRnh1aVZUMnJrZw?oc=5) |
 | Trump "looking at reclassification" of marijuana as less dangerous drug - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQaE9CbGNBWklSS2E3VHRUcWlYb3llY2U5UVIxQUZyLTlaZnBWT2thcFIyWTY1RkFJZ1pGSnZsbFJ0X1hGeDEwcWNqcGZSUVFzTENNMjY3eWRfLW10SkwwUWpDajRmYVFyeU5NN1pPUnVoQ0VCX3NHckN2NnBGOVFwSV9maWxVMEk1UGVNZjV5TnY3Zlk?oc=5) |
-| Photo released of gunman in CDC Atlanta shooting - 11Alive.com | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxPekdiZHlyTU43Y2REaGE4ZC1QYW9jMl9ZYXlMZkZyTF9PRGp1UWJNcVF2VjRkQlJsdHhoUHFTUWZsQ1k2aTU0aE9QVG9BYnFxbjQ5UHd4bi1IX2R3WUZvZEM4OHhXYkNuckNhbWdrck12TF92bTJJbjQzLXpzZFBCSXF6QnN4WDRNeXVucUdhaTFwd2JrMmc4MWNNR09GT0lEcnhnQXMxYmhjbjhVN0xQQWQtaWlDQkNjU1Y2U3NieC1jMk9ITnJCTGVzSQ?oc=5) |
-| George Washington University becomes the latest target of the Trump administration - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE9xRXpBUWxJZklCMGNJVGVVb3czTW5nVXlmaGNPS2NWdzdOSUhUOUkyLVFFX3B1bkZlUWVRakR1UHhzNVBMRmtnODRRMjhYRFh0dldScFlyaGlvbXZTSmZacXV6UUYtZmQ4bzNIMzJ3ZWJBWG1XZnfSAXtBVV95cUxQWEpJVzlxTlBKWDBNOXdEbGpNcTVXS1FfaloxeC12RVBHMHdsR2Q2cjJSak41djlUQWhkTE54VlpTcFI2TTBSSElRb1NxUnJxUzhqUS1pY2JBaFBGcEJjS3d6VzdPRGhweGhycVdEYVFzZ0d3RFl4c2VDR3M?oc=5) |
-| Ken Paxton asks judge to jail Beto O’Rourke for fundraising Texas Dems' walkout - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNckpFMTE1dHpDN0pKX0VOQUpUcENWcU8xVElFUFpJOTN5OV9BVWtMVmZUaW8tai14MWV2ZzUtNVZpbXlvRHd5czlxOWc5dXY4bUhDZm1MNWh5bHZJVWJ3VHA0eEJvR081NVdSMzBwd0dsQm40azhZOTlwaW12a0ZqY1BaMjJ6Rm1Jei1USXNZLUE?oc=5) |
+| After CDC shooting, its employees turn their anger to RFK Jr. and Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPSTV1U3NtdmJselozWHdqU2NBV1RCWndYYkFKV01LamQ2dzk3OEV3WWRpTWNlY2Z0V005Z0FMd2haclNsU215Skd0cllXSkwtNElOVWd4eDYzcF9kN3RZcTIzWjQxUXE2SVFkVUlXUlRQZkE2QzRjR21BRjVrcDhzTTVEVlViVmdmR3c?oc=5) |
+| Ukraine will not cede land that could be Russian springboard for new war, Zelenskyy says - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQbzRGSy1rajVGSktvMXF1VUNrTU1iM05qcFFoMDV1MWZuekxlblp1cjUySDFnNTZ3SXZqaHJRRjBITE5yekxJRXpENkttM01ERFRDOFBwZW5CelpJdXRjV01yTlNjYlZEUG5KU0oyWFVodlhkdFlTc3NSSXJ1TkhJdldjS0VPQ0dmdE1oby1NdUdaaVpfQU1Fdkd6dlRoQQ?oc=5) |
 | DeSantis picks state Sen. Jay Collins to be Florida’s lieutenant governor - AP News | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxORkRud19Ed2dmbUczYThIYjhTU21PbnhfRUNSQzBIYjQ0RVJLN3ZmaUNGUElCRDVmSzRXTGlQekNGSW5kUGRwZW9jb3FuZFVkc1dQanNEdUZNaWJqNlJxY1dURk5DMFEwMDB2cmt6WkRZR2Q5RUlBY0N3Z0pBSDRHYlVaMG9SWFJzWXFiS0lzNmFlWHZVOXlGU0h2d1h1bHU2WXp6WlB6ZVZTdXhydGMtTkQ0Yl9UbTZjZnZxeg?oc=5) |
+| George Washington University becomes the latest target of the Trump administration - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE9xRXpBUWxJZklCMGNJVGVVb3czTW5nVXlmaGNPS2NWdzdOSUhUOUkyLVFFX3B1bkZlUWVRakR1UHhzNVBMRmtnODRRMjhYRFh0dldScFlyaGlvbXZTSmZacXV6UUYtZmQ4bzNIMzJ3ZWJBWG1XZnfSAXtBVV95cUxQWEpJVzlxTlBKWDBNOXdEbGpNcTVXS1FfaloxeC12RVBHMHdsR2Q2cjJSak41djlUQWhkTE54VlpTcFI2TTBSSElRb1NxUnJxUzhqUS1pY2JBaFBGcEJjS3d6VzdPRGhweGhycVdEYVFzZ0d3RFl4c2VDR3M?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
