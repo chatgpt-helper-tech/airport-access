@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月13日 06:26:41（北京时间）**
+🕒 更新时间：**2025年08月13日 06:39:57（北京时间）**
 
 ---
 
@@ -23,16 +23,6 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump claims Washington’s murder rate is higher than Bogotá or Mexico City. Here’s what the stats from those countries say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOUXd0TEhSalNBem90Wm0zVkxpalJRSWJNYmg4eFM3b0JHU1lUV2JLMldVMWloRzNlMEN1aDNRRldwMVR0UGZ3dnY2azRhY1hqSUJzbUNLOUZBMFdIOFFTaWN4VXRSTnVPbmVVWXZEaWE1QmpzeWtRVFlqQ0M2T05wdmdmZWlsRE9Pb3ZQcUlZMWpmSXJqeUJKYktoNNIBoAFBVV95cUxOYlNmNHB5SDd3cVFyQzJpRFhmMlczd2x4YTVwMGhSSWh0a2VNMkpEMHJTMGxrWTY3a1FjMl8zWjltWkRkS2pPM2xxUGZBaTB5QjBmMjhFeWJyTkttR3VYYXV6Y3RidTc1RkQwV3dtUEs1LVEzVXdKMjZPNDdaZWFjY1loaUItX2oyV0pHd0N5NEQ3SV9UMzFRUnFGYzRSQVV1?oc=5) |
-| Russia tries to make sudden advance in Ukraine before Trump-Putin summit - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOcHNDOTJMLWZwN181VzM5aVZyWl94ZGg5ejJrVEcyNnZpUWJ4Q3F0dktuNVRsNWx0cFF4Y3FKMHBxTm1XQjd4aU1vU1lkT2E0RURwb01ZRm9ESmRwSWpNQlFoQk9rclZ1dkxLNHhtLVk0ZFVNazByaF9Rb0tjRUxhVWtIVHo2b2ZZQjJsQ3hoZVJRdU9aWWtZZ3hHQ0VNV05qNFppQlNrRkphdlRLRnh1aVZUMnJrZw?oc=5) |
-| New York City mayoral race: Mamdani leads Cuomo by 19 points, poll shows - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOUGxhUE01WGhfdlJQNlVHQ2taVDBXWGJEbjZrcjZlWFljSm51WjBERUV4SmZsLXExajdEMlk3QzlYY0w1MmMtUGs1YmhUbGVWRGw1S1M2cFBVZGJmMU56MlRaSk9GR1J0Q2pmSS15a2FfdW9HazkwUjhseWdyQ3BmS1lIVk9rS0JGdmc?oc=5) |
-| Tropical Storm Erin could become the first Atlantic hurricane of the 2025 season - NPR | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE0wVTN5OHlKZWsxMGJJU3BBaDROc2hnYjQ5MkhPLUNfMFpNY2lnMG1nYkVva1llNXVSNHozZ1p6eFhwV0cxY1JWb0x6cTJZVnlIdHlncVN2aWNPcERzTnZhQmoycXR3UmxibHVEZEFoaEdEVWt4eGRhckdRdGdWZnc?oc=5) |
-| White House Announces Comprehensive Review of Smithsonian Exhibitions - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOX21LYTJsdGQyY1RJMmkzSTdrUTJBbTdFcGNHaTZHaG9VN3Foek03RWwtRVVyVWZSdEtrTzRpa0xMQmQzWS1ITDUxSGdwS2RrWkdXLWdEUUNwXzhJc2VUNnE3ZVEyd1J1YWU4RGxvc1RJdWx4eHBHVU5rUFRxQkluZkU1Y3Q5YU9rbS1IUmRGZDFPQkp4dlRrdm1tN2VjaG5hTWc?oc=5) |
-| Suspect in shooting at North Austin Target had extensive criminal history - KUT | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPQXFlaDdKQ0lZU0M1SFdlQ1BNaldyY0hmWmxzb2dpVXZZTkdNRXFISWc3dWZSX3JEdHhmNnlZY2JpSUNYRjQ5Z2laNGRtdndsQ0Y2LTNOZFcxSGpUejd6NWFGZFl3bDJiNE0wQTcxYjZqeXUxd0I2MnhjbFFJVEhmZll0LTN5WGFEajBRakRkWWtQSHBEYjBaR1Z6U2dHSFRNdV9EaXFhU21zeUNTTXBZODk2SjBwdw?oc=5) |
-| After CDC shooting, its employees turn their anger to RFK Jr. and Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPSTV1U3NtdmJselozWHdqU2NBV1RCWndYYkFKV01LamQ2dzk3OEV3WWRpTWNlY2Z0V005Z0FMd2haclNsU215Skd0cllXSkwtNElOVWd4eDYzcF9kN3RZcTIzWjQxUXE2SVFkVUlXUlRQZkE2QzRjR21BRjVrcDhzTTVEVlViVmdmR3c?oc=5) |
-| White House downplays expectations for Trump-Putin Alaska summit - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBSazZPdUxGU21PODFUOGlaOXlmWlBSU2c2akttWnBmNmQ2RjJGZTV4SGlXSW5wUGI5VG5wZnhTTHNrQ3Q4OF9GaHZRVEtsdXREZlBXVVMxRnZ6ZFBjWmFDLTdlSFpmS1RfV0ZpRDd5OGM?oc=5) |
-| Ukraine will not cede land that could be Russian springboard for new war, Zelenskyy says - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQbzRGSy1rajVGSktvMXF1VUNrTU1iM05qcFFoMDV1MWZuekxlblp1cjUySDFnNTZ3SXZqaHJRRjBITE5yekxJRXpENkttM01ERFRDOFBwZW5CelpJdXRjV01yTlNjYlZEUG5KU0oyWFVodlhkdFlTc3NSSXJ1TkhJdldjS0VPQ0dmdE1oby1NdUdaaVpfQU1Fdkd6dlRoQQ?oc=5) |
-| Texas Senate approves new congressional lines as House Democrats remain out of state - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNMUxwZmszYXJZZERnYzBFbUt2bU9QdWZUV3ktblpqOFFqMENHZkFubkpva05LcU5FVXpxbjJCX3BrRmhyMUZsd2Z0bF8xdjctZWNQLURQamJvYVpTSUttUHZFTUFWQkJldUJyMXlENTRNaHNJb1JLbG0wYjJsNXFIQm5n?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
