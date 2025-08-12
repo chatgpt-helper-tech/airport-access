@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月13日 01:52:15（北京时间）**
+🕒 更新时间：**2025年08月13日 02:01:01（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Russia tries to make sudden advance in Ukraine before Trump-Putin summit - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOcHNDOTJMLWZwN181VzM5aVZyWl94ZGg5ejJrVEcyNnZpUWJ4Q3F0dktuNVRsNWx0cFF4Y3FKMHBxTm1XQjd4aU1vU1lkT2E0RURwb01ZRm9ESmRwSWpNQlFoQk9rclZ1dkxLNHhtLVk0ZFVNazByaF9Rb0tjRUxhVWtIVHo2b2ZZQjJsQ3hoZVJRdU9aWWtZZ3hHQ0VNV05qNFppQlNrRkphdlRLRnh1aVZUMnJrZw?oc=5) |
 | Suspect named in deadly shooting at North Austin Target - KVUE | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPVnpHRENZX2ZsSkRGMTZGQUZiZkhZQW5BQzVDNE1rNUNYRmpvWng0Um4tVzZDZVI2WkRqMmZ2S2tqU3ZPMVZnR0hhSlg4NmZLRUVVa09aZjdENnVNdjRuZ3dFOFpLQV9Ed041WHRULTNTME5EOXJOVGxBQkd5eF9BTkNVQlgzUEo0S0huQURmSDJpU05zV1FmVGlhSmhpS2lSLWFGRlBObVpqcVRYeGNPOG9kT3YzR2pScHc?oc=5) |
 | Wildfires rage across southern Europe as temperatures pass 40C - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9OSHdhZXVaRUZhNVdsLUFFQmZJbndfN1dfbHl3dUxvMWJQVDVWZnBncVpIWEJXNUNteU5tNS1XZUs2TnZkTDZySGE3aUNkaTVJeHVSclpNRVF0d9IBX0FVX3lxTE1iQ0N5ZHZtbk5jNUFyMWJ3X242Yy00V3FDWXlBc3c4TUFNUERHV2lWTXA5aFNmamp4V2JzWVdGbXFCMnJndVl4bXFvYjhVb2FxTFBQZ0xrVFNLYTRVUHhJ?oc=5) |
-| After CDC shooting, its employees turn their anger to RFK Jr. and Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPSTV1U3NtdmJselozWHdqU2NBV1RCWndYYkFKV01LamQ2dzk3OEV3WWRpTWNlY2Z0V005Z0FMd2haclNsU215Skd0cllXSkwtNElOVWd4eDYzcF9kN3RZcTIzWjQxUXE2SVFkVUlXUlRQZkE2QzRjR21BRjVrcDhzTTVEVlViVmdmR3c?oc=5) |
+| Photo released of gunman in CDC Atlanta shooting - 11Alive.com | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxPekdiZHlyTU43Y2REaGE4ZC1QYW9jMl9ZYXlMZkZyTF9PRGp1UWJNcVF2VjRkQlJsdHhoUHFTUWZsQ1k2aTU0aE9QVG9BYnFxbjQ5UHd4bi1IX2R3WUZvZEM4OHhXYkNuckNhbWdrck12TF92bTJJbjQzLXpzZFBCSXF6QnN4WDRNeXVucUdhaTFwd2JrMmc4MWNNR09GT0lEcnhnQXMxYmhjbjhVN0xQQWQtaWlDQkNjU1Y2U3NieC1jMk9ITnJCTGVzSQ?oc=5) |
 | When will Tropical Storm Erin strengthen into a hurricane? Where is it going? - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQQjJkTDRmVHl0Zkk0eFlPWEZXbE9sSjZjQ081NzEydE9NWFQyXy1PWExqdWZrb3NVM2o3dmdMNnZzanI2WmNxc1dPTVJqd05PSDZTWk5GQ0ZnaENNTENZaGxrYzhNWUpXVFNXelFGd3otSFc4VnJBNVNMcFY2YWNBRkxUc19ZQ3lXMFRqUnlwWWlqQXdZdXhZenNR?oc=5) |
 | Victim of Pennsylvania steel factory explosion is identified - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOSFBWbm5aRnVaRG9BSlkxQWVKOWZSNHdjV3VvZEpNY0VzenBxc2RXY3NMbHpvbUo1ZDlSanBVM1NWZHE3eV9wREo0SnZVNHpnRjZrY3U5alR1dUYzWHp6a25wNlkzT1VrXzFLLW1OVXc4Q2xkNHYxcjh3NVpSVHNlZXl6OFVyazl0WThyQ3hGYWpYRGc1a3EyeTh0Tmx2R3RoUGpfbdIBVkFVX3lxTE92TF9sZ2RfNjdORXFjeXc5STc5b1hnbnFmcUpBaDR0RkhFSktTRHU2N2tkbWo1Wm1Td2w0Rmd4MmtrRUtLR1dySU5sRVNrWElOS1pOTnd3?oc=5) |
-| U.S. and China extend tariff truce deadline for another 3 months - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBQckxWVVJTaTc5dGJPZjY4QmkwcV9Ld0hhWWZTT0FwdWUxcEVGeFZXbkNOTGFZZXlRYXdBcTlLWUtDc1hsdVhqcDNUTEVtZHpzVl9NZ3pGUnpxQ2Y0WW82S3BEeGw2S0V6YmpBUUNDbXhQcFY4ZF9HWUNtak5ZZw?oc=5) |
+| Man accused of faking his death and fleeing U.S. to avoid rape charges faces alleged victim in Utah court - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPb2E3RFNoY3BpUVpjZTllU3YwMHI4am9FQlRZMTAzcGxnNjd0OE5IeEZYUVc5SjRTNzJxNjBvNlF5ZTRZRm05QS1KRV9RaEZnY08xQkZGSVBiajdTS2M4X1RyYjIxdkk2Q2dvWWw4U1lRTzgzcVoyRjVzSURFY0tNZlRxSWI1Y1o4NnJFckh2YUV3QXQ1Q2dISVNQMi1zYnQxYkHSAacBQVVfeXFMTzZnX1l0c0pySUpoTzZUQlp4dGx0UUhJX2ljLWxPVnBldHA3YXEyNk1ObGllbWszSUo3bXNtZFpnZUxZN3JXVmtrbXlQLXQ2YXhoajI3ZnFCN1VXSWtEWTJFRC1iS256Xzh5U0xCT2thNnNKLWM0enZzY3luRFVUTWRpb25Icnk4TTZFY1RCNTdHbW5Ha3FVajNMX2o2ajZWS0FFSWZuMVU?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
