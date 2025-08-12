@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月13日 04:39:45（北京时间）**
+🕒 更新时间：**2025年08月13日 04:52:50（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | DeSantis picks state Sen. Jay Collins to be Florida’s lieutenant governor - AP News | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxORkRud19Ed2dmbUczYThIYjhTU21PbnhfRUNSQzBIYjQ0RVJLN3ZmaUNGUElCRDVmSzRXTGlQekNGSW5kUGRwZW9jb3FuZFVkc1dQanNEdUZNaWJqNlJxY1dURk5DMFEwMDB2cmt6WkRZR2Q5RUlBY0N3Z0pBSDRHYlVaMG9SWFJzWXFiS0lzNmFlWHZVOXlGU0h2d1h1bHU2WXp6WlB6ZVZTdXhydGMtTkQ0Yl9UbTZjZnZxeg?oc=5) |
 | Tropical Storm Erin could become the first Atlantic hurricane of the 2025 season - NPR | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE0wVTN5OHlKZWsxMGJJU3BBaDROc2hnYjQ5MkhPLUNfMFpNY2lnMG1nYkVva1llNXVSNHozZ1p6eFhwV0cxY1JWb0x6cTJZVnlIdHlncVN2aWNPcERzTnZhQmoycXR3UmxibHVEZEFoaEdEVWt4eGRhckdRdGdWZnc?oc=5) |
 | Here are 5 things to know about Clairton Coke Works explosion - TribLIVE.com | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOcXc5aWZ0YmZFNS0zaWh1cXhHNTVUUHpIdTNkY2llc2UyRVFYTUdMSjhBbG03NnJqOW9JXzBNNlVUck1TZ0t4WXVLTVV0OUR4aHZVQXM2amFKSjdabzRkVTJmWmo0SzVZVlAtMEZ2YU44Snl4X1FtT21vX3ZzNWo5ZHlmcldBUEhNTjN1WDZBLTdEZEE?oc=5) |
-| Federal Court Hears Arguments Trump Violated Posse Comitatus Act by Deploying Troops to L.A. - Democracy Now! | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxNWkFON2Q0NVJrUlJGU3h3TmJYSlJzbWlzX1BfRy1tMTdtY1lQdkxncXE4dlc4M2hQWUFyT3JybkRMRDZmYklRaXJZZ3QzakVHX0QzRUE0d08xRW1Qa3hscWpVTm5jR24xS1ZmRW5XOFpNU016Tm5XV2FDcm9pcFhxT040eU1NaFIwb19jb3hrY2NXci1SWXlzZzluRll3NG5zZEdTT25jU1p1OTZDTlFHcXZJVklEMXNqMTRqdGpYWDVrWWduV05Qb0VXdlp0NzdVTXdhdE1B?oc=5) |
+| Texas Senate approves new congressional lines as House Democrats remain out of state - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNMUxwZmszYXJZZERnYzBFbUt2bU9QdWZUV3ktblpqOFFqMENHZkFubkpva05LcU5FVXpxbjJCX3BrRmhyMUZsd2Z0bF8xdjctZWNQLURQamJvYVpTSUttUHZFTUFWQkJldUJyMXlENTRNaHNJb1JLbG0wYjJsNXFIQm5n?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
