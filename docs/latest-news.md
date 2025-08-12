@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月12日 17:52:57（北京时间）**
+🕒 更新时间：**2025年08月12日 18:00:23（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Who is Terry Cole, the DEA boss now tasked with overseeing D.C. police? - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPXzBpNDJNTEJFYl91NXFtenNFcFlLYnRZMG9Oc2FZQ3MyZDZEbHBwWEFOVHdLRFBsMGlFQmNvVWJZNXcwOWQyZHZWekN0YUI3V2hyUWlER3NNZVJFT2JLRTNCOXBVUWtaYVhtQUxBSXNrZU0wVjVFLTZkalZ4eVBXS3hPZlFPNGJvdjNnTUZCSm80a0lwNzE5dkJlcTlNQjA?oc=5) |
 | US and China extend trade truce another 90 days, easing tension between world's largest economies - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOdzdvelFUanVncU9HbldfMXpqeTIyNVV1b253Z3JiMzBUNVdhTkNmQ1RINnhkcmNWRUppWFNkUHluSGxpbmFDQXBQWnMzdUsxVXdQTkJmbUU5eldUZGxPQkQ0RXFBYXBldldXUGU5Z1BRY0dLTy1qVHpPMS1idTlPdEx6S2lmdnhaaWZMTWM2bTAxdUdFeWNINnpR?oc=5) |
-| Trump Says He’s Going to Alaska to See What Putin ‘Has in Mind’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOaTczX044U1pyZEpzUU5mM19pcDRFb21iczBINFQzM1RMRFJ4T18yU2w1T3hXaU1lSU15N1ljeWVXcm5iUWs5NlRNZzQ4Wjc4am1TN2dSSUpQTER4NUJwRjdZYUtiSlBvNi1taldUTUE3R0IwVVhxa09MTmU2WWM5VmtlZ0Q?oc=5) |
+| Vladimir Putin’s Coming to Alaska and Late Night Is Amused - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPQ0pPOTEyZzQ3azFiWVRNQUhyUFVlWURIMDh3S0Jkd2gtcDZhRjBpZnViZkVIS1BSb3BSU3hwTXJrZE03ZmppMW40Z0VpckZHSmhBeVFBMWFPZEt2aWthUXl4OWFjTGFNYmtiNl8xSHROYUdwZ2x3dGRteE96MHg5dlQyYUllUEpGMmJES1lja24?oc=5) |
 | Europe and Ukraine leaders seek talks with Trump to defend their interests ahead of US-Russia summit - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPb2FId2J4anZqVVViMnd5QlQ2ODU0ZExKTGpXSXlBa2NSMkdWUFFISzd5ZUpVRTJELUhVVmU2RE5wSi0yLUlZa25Jckc2aHBqUTMyQjhYMnEyWWlYbklUVGpra2huX091ZElJbV8ydzQtMzJiZFozWXIzOTl6U2gzSWlONFZEVUFTdmRmVkNzbU9saGF0UDJFT1VOdlE0WGNFbFp1MTdXWkVCZmczSHJj?oc=5) |
 | Video appears to show the moment a Palestinian activist is killed as an Israeli settler opens fire - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxPWGxWc3J5OEZ5Y1h5c3lVa0o1ZHFOWXlQYk91N21ibTN3M1FDQU91RGl6ZzZhdmI2ek83X3J2ZXVHQVJHbUlFWnhySF9oNVYtUkZVR3gwRHZTUnVlTE9WQU54V1E4bWNGanU2MVVNZWJUMXd4VWJUSFppbDYtTFc5aG9VTWR2QUI5UXl3bi1rXzNRaXVKTk1rdXh6eFVaNEhZdFBnQWMxcENfMk8xM08ybWZ4eFQxMGxTRERCSGVmQdIBVkFVX3lxTFB2Yy1ZMFF0cm9rekRWZUxENWpDY1NjN3NLT2p1N19kdS1lZm5LUHlZWF95cTlrUjFfeU9jUjZmd2hjR0VqcnRNYVluaWxZckJGeVpydmxB?oc=5) |
 | At least 2 dead and 10 injured in explosions at U.S. Steel Clairton plant - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOQU5KNWZuU24yWHJjSGdnVFNOR2YyMFpTZ3BlRXc1cG8tRlZ5QkdXYU9ldW5yN0R4UFdTZHJ4Y0hQLU5MODhEaC1tMkl4WnVid05sSlVfbWZXeFQ3Z3dVZ1dYbjNRM196cVBzb0htOUdtSDBNMGxsbnh3VS13SzNwV0k3WElfVU9ZWW8tMV9JcVVHQQ?oc=5) |
