@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月13日 02:27:21（北京时间）**
+🕒 更新时间：**2025年08月13日 02:40:30（北京时间）**
 
 ---
 
@@ -8,6 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| US woman convicted over failed assassination in UK | [阅读全文](https://www.bbc.com/news/articles/c4gj87jxg78o?at_medium=RSS&at_campaign=rss) |
+| A dating app, a niqab and a 9mm gun - how a US woman was hired to end a UK family feud | [阅读全文](https://www.bbc.com/news/articles/cn72x5p8801o?at_medium=RSS&at_campaign=rss) |
+| England enters fourth heatwave as temperatures reach 33C | [阅读全文](https://www.bbc.com/news/articles/czerrzdewzxo?at_medium=RSS&at_campaign=rss) |
+| Ukraine's borders must not be changed by force, EU leaders say | [阅读全文](https://www.bbc.com/news/articles/clyrlvwx9rgo?at_medium=RSS&at_campaign=rss) |
+| Wildfires rage across southern Europe as temperatures top 40C | [阅读全文](https://www.bbc.com/news/articles/cdd3my4e0pqo?at_medium=RSS&at_campaign=rss) |
+| Dozens of luxury cars, including twin Lamborghinis, seized in London | [阅读全文](https://www.bbc.com/news/articles/cp948xjkpkdo?at_medium=RSS&at_campaign=rss) |
+| Small boat migrant crossings hit 50,000 under Labour | [阅读全文](https://www.bbc.com/news/articles/c8e1xkwd74wo?at_medium=RSS&at_campaign=rss) |
+| Israel bombards Gaza City as UK and allies demand action against 'unfolding famine' | [阅读全文](https://www.bbc.com/news/articles/clyj0dd0qj9o?at_medium=RSS&at_campaign=rss) |
+| JD Vance meets senior Tories as he continues UK holiday in the Cotswolds | [阅读全文](https://www.bbc.com/news/articles/cx29n78gg0vo?at_medium=RSS&at_campaign=rss) |
+| Starbucks tells customers in South Korea not to bring printers or PCs to cafes | [阅读全文](https://www.bbc.com/news/articles/c207v3q9w08o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -21,8 +31,8 @@
 | Russia tries to make sudden advance in Ukraine before Trump-Putin summit - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOcHNDOTJMLWZwN181VzM5aVZyWl94ZGg5ejJrVEcyNnZpUWJ4Q3F0dktuNVRsNWx0cFF4Y3FKMHBxTm1XQjd4aU1vU1lkT2E0RURwb01ZRm9ESmRwSWpNQlFoQk9rclZ1dkxLNHhtLVk0ZFVNazByaF9Rb0tjRUxhVWtIVHo2b2ZZQjJsQ3hoZVJRdU9aWWtZZ3hHQ0VNV05qNFppQlNrRkphdlRLRnh1aVZUMnJrZw?oc=5) |
 | After CDC shooting, its employees turn their anger to RFK Jr. and Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPSTV1U3NtdmJselozWHdqU2NBV1RCWndYYkFKV01LamQ2dzk3OEV3WWRpTWNlY2Z0V005Z0FMd2haclNsU215Skd0cllXSkwtNElOVWd4eDYzcF9kN3RZcTIzWjQxUXE2SVFkVUlXUlRQZkE2QzRjR21BRjVrcDhzTTVEVlViVmdmR3c?oc=5) |
 | Ken Paxton asks judge to jail Beto O’Rourke for fundraising Texas Dems' walkout - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNckpFMTE1dHpDN0pKX0VOQUpUcENWcU8xVElFUFpJOTN5OV9BVWtMVmZUaW8tai14MWV2ZzUtNVZpbXlvRHd5czlxOWc5dXY4bUhDZm1MNWh5bHZJVWJ3VHA0eEJvR081NVdSMzBwd0dsQm40azhZOTlwaW12a0ZqY1BaMjJ6Rm1Jei1USXNZLUE?oc=5) |
+| DeSantis picks state Sen. Jay Collins to be Florida’s lieutenant governor - AP News | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxORkRud19Ed2dmbUczYThIYjhTU21PbnhfRUNSQzBIYjQ0RVJLN3ZmaUNGUElCRDVmSzRXTGlQekNGSW5kUGRwZW9jb3FuZFVkc1dQanNEdUZNaWJqNlJxY1dURk5DMFEwMDB2cmt6WkRZR2Q5RUlBY0N3Z0pBSDRHYlVaMG9SWFJzWXFiS0lzNmFlWHZVOXlGU0h2d1h1bHU2WXp6WlB6ZVZTdXhydGMtTkQ0Yl9UbTZjZnZxeg?oc=5) |
 | Victim of Pennsylvania steel factory explosion is identified - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOSFBWbm5aRnVaRG9BSlkxQWVKOWZSNHdjV3VvZEpNY0VzenBxc2RXY3NMbHpvbUo1ZDlSanBVM1NWZHE3eV9wREo0SnZVNHpnRjZrY3U5alR1dUYzWHp6a25wNlkzT1VrXzFLLW1OVXc4Q2xkNHYxcjh3NVpSVHNlZXl6OFVyazl0WThyQ3hGYWpYRGc1a3EyeTh0Tmx2R3RoUGpfbdIBVkFVX3lxTE92TF9sZ2RfNjdORXFjeXc5STc5b1hnbnFmcUpBaDR0RkhFSktTRHU2N2tkbWo1Wm1Td2w0Rmd4MmtrRUtLR1dySU5sRVNrWElOS1pOTnd3?oc=5) |
-| Trump extends China trade truce, setting stage for more ambitious talks - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOdnprVzV6UGdTUUExam9xWnZwb2lvYl9jMnBWWmlnUlpwX0hfbWMtclpIeGhmYzh4RFVTdVo5ZkNZZTZjMzd6SmNTSzZDUmxLeFUtM2ZKQWZ5aXloN0lSX2ZhQUdzcVo0Nngya3EtUUtidEw5c1pIMXBSUFNWOG5UZExhTktseDZXTWJZNVRGOF9jaHc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
