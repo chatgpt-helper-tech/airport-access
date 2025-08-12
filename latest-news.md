@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月13日 02:53:48（北京时间）**
+🕒 更新时间：**2025年08月13日 03:00:12（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Fact-checking Trump’s claims about homicides in D.C. - PBS | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOei1JS24wVS1DNUtQcUl6Q0tXY21YNUY1SldPanAxdGhqVW1yX3g1UnJ3aTNXM1BsSDZvTXZhbkxJV20xQUJFZ1NQMUx4ODZUelJrYWNmNUp1dmJfNTFOcGtMQk5PaG95MmVnWDhZQmViZy1hbTV3MkI4b0N2ZS1TRjFCUTJJMUo4eHRWWE5JdEhVd9IBlwFBVV95cUxNOVhqaGNaY3VqVWhEWjdfSm9ydEFDQmxTOTFaOWJ6VU9pckVGcVRRRkJSNERqak1TNGRiNW5QV2lrUEdmSDllYlJOdmd5bjVabmM3UVhWOEpEX0NCYy1hNFpSWkc5VVFNWlBUSm5iNGJpY1pUV3VGQkZzRWNmeXRaTW8wSGRqRnZUbWQ2dTJFTnZ2dnZpRC1B?oc=5) |
-| White House says Alaska summit with Putin on Friday will be 'listening exercise' for Trump - follow live - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1CZGliSDlMSllUenlrcDBpZXowcDRCVFU3d2lxNXhaQk8zMGZrcWZfQTFPMGFWSWlxbTVtN1ZVWWlXbmRmVkFVXzdLeTBoX2FlWUV1dQ?oc=5) |
-| Tropical Storm Erin could become the first Atlantic hurricane of the 2025 season - NPR | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE0wVTN5OHlKZWsxMGJJU3BBaDROc2hnYjQ5MkhPLUNfMFpNY2lnMG1nYkVva1llNXVSNHozZ1p6eFhwV0cxY1JWb0x6cTJZVnlIdHlncVN2aWNPcERzTnZhQmoycXR3UmxibHVEZEFoaEdEVWt4eGRhckdRdGdWZnc?oc=5) |
+| Alaska was once a full-fledged Russian colony. Now it's hosting a U.S.-Russia summit - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNdGxqM092SEJZMnQ3TlRPUC0yUW9Nb3pkcFo0S2hpNjlsMlZXRzhJdFRORDRlZjZNSkRtdGgxZmQwQUpBdUJXZUFDOGZ0dU53SDFCT2pwcFg5VjUzblJDRWt1SFNJVmcxUHBqN3B2N1RDelJNSHktcVRYT3J0dVVsZjByWQ?oc=5) |
 | Suspect named in deadly shooting at North Austin Target - KVUE | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPVnpHRENZX2ZsSkRGMTZGQUZiZkhZQW5BQzVDNE1rNUNYRmpvWng0Um4tVzZDZVI2WkRqMmZ2S2tqU3ZPMVZnR0hhSlg4NmZLRUVVa09aZjdENnVNdjRuZ3dFOFpLQV9Ed041WHRULTNTME5EOXJOVGxBQkd5eF9BTkNVQlgzUEo0S0huQURmSDJpU05zV1FmVGlhSmhpS2lSLWFGRlBObVpqcVRYeGNPOG9kT3YzR2pScHc?oc=5) |
+| When will Tropical Storm Erin strengthen into a hurricane? Where is it going? - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQQjJkTDRmVHl0Zkk0eFlPWEZXbE9sSjZjQ081NzEydE9NWFQyXy1PWExqdWZrb3NVM2o3dmdMNnZzanI2WmNxc1dPTVJqd05PSDZTWk5GQ0ZnaENNTENZaGxrYzhNWUpXVFNXelFGd3otSFc4VnJBNVNMcFY2YWNBRkxUc19ZQ3lXMFRqUnlwWWlqQXdZdXhZenNR?oc=5) |
 | Russia tries to make sudden advance in Ukraine before Trump-Putin summit - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOcHNDOTJMLWZwN181VzM5aVZyWl94ZGg5ejJrVEcyNnZpUWJ4Q3F0dktuNVRsNWx0cFF4Y3FKMHBxTm1XQjd4aU1vU1lkT2E0RURwb01ZRm9ESmRwSWpNQlFoQk9rclZ1dkxLNHhtLVk0ZFVNazByaF9Rb0tjRUxhVWtIVHo2b2ZZQjJsQ3hoZVJRdU9aWWtZZ3hHQ0VNV05qNFppQlNrRkphdlRLRnh1aVZUMnJrZw?oc=5) |
 | Trump "looking at reclassification" of marijuana as less dangerous drug - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQaE9CbGNBWklSS2E3VHRUcWlYb3llY2U5UVIxQUZyLTlaZnBWT2thcFIyWTY1RkFJZ1pGSnZsbFJ0X1hGeDEwcWNqcGZSUVFzTENNMjY3eWRfLW10SkwwUWpDajRmYVFyeU5NN1pPUnVoQ0VCX3NHckN2NnBGOVFwSV9maWxVMEk1UGVNZjV5TnY3Zlk?oc=5) |
 | After CDC shooting, its employees turn their anger to RFK Jr. and Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPSTV1U3NtdmJselozWHdqU2NBV1RCWndYYkFKV01LamQ2dzk3OEV3WWRpTWNlY2Z0V005Z0FMd2haclNsU215Skd0cllXSkwtNElOVWd4eDYzcF9kN3RZcTIzWjQxUXE2SVFkVUlXUlRQZkE2QzRjR21BRjVrcDhzTTVEVlViVmdmR3c?oc=5) |
