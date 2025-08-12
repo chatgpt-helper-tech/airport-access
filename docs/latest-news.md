@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月13日 03:41:02（北京时间）**
+🕒 更新时间：**2025年08月13日 03:53:00（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | US woman convicted over failed assassination in UK | [阅读全文](https://www.bbc.com/news/articles/c4gj87jxg78o?at_medium=RSS&at_campaign=rss) |
 | A dating app, a niqab and a 9mm gun - how a US woman was hired to end a UK family feud | [阅读全文](https://www.bbc.com/news/articles/cn72x5p8801o?at_medium=RSS&at_campaign=rss) |
-| Ukraine's borders must not be changed by force, EU leaders say | [阅读全文](https://www.bbc.com/news/articles/clyrlvwx9rgo?at_medium=RSS&at_campaign=rss) |
+| Zelensky rules out ceding Donbas region as Russians make fresh advance | [阅读全文](https://www.bbc.com/news/articles/c4g6qd3k2peo?at_medium=RSS&at_campaign=rss) |
 | England enters fourth heatwave of summer with 'nationally significant' water shortfalls | [阅读全文](https://www.bbc.com/news/articles/czerrzdewzxo?at_medium=RSS&at_campaign=rss) |
 | Wildfires rage across southern Europe as temperatures top 40C | [阅读全文](https://www.bbc.com/news/articles/cdd3my4e0pqo?at_medium=RSS&at_campaign=rss) |
 | Starbucks tells customers in South Korea not to bring printers or PCs to cafes | [阅读全文](https://www.bbc.com/news/articles/c207v3q9w08o?at_medium=RSS&at_campaign=rss) |
@@ -27,12 +27,12 @@
 | Alaska was once a full-fledged Russian colony. Now it's hosting a U.S.-Russia summit - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNdGxqM092SEJZMnQ3TlRPUC0yUW9Nb3pkcFo0S2hpNjlsMlZXRzhJdFRORDRlZjZNSkRtdGgxZmQwQUpBdUJXZUFDOGZ0dU53SDFCT2pwcFg5VjUzblJDRWt1SFNJVmcxUHBqN3B2N1RDelJNSHktcVRYT3J0dVVsZjByWQ?oc=5) |
 | Tropical Storm Erin could become the first Atlantic hurricane of the 2025 season - NPR | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE0wVTN5OHlKZWsxMGJJU3BBaDROc2hnYjQ5MkhPLUNfMFpNY2lnMG1nYkVva1llNXVSNHozZ1p6eFhwV0cxY1JWb0x6cTJZVnlIdHlncVN2aWNPcERzTnZhQmoycXR3UmxibHVEZEFoaEdEVWt4eGRhckdRdGdWZnc?oc=5) |
 | Suspect named in deadly shooting at North Austin Target - KVUE | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPVnpHRENZX2ZsSkRGMTZGQUZiZkhZQW5BQzVDNE1rNUNYRmpvWng0Um4tVzZDZVI2WkRqMmZ2S2tqU3ZPMVZnR0hhSlg4NmZLRUVVa09aZjdENnVNdjRuZ3dFOFpLQV9Ed041WHRULTNTME5EOXJOVGxBQkd5eF9BTkNVQlgzUEo0S0huQURmSDJpU05zV1FmVGlhSmhpS2lSLWFGRlBObVpqcVRYeGNPOG9kT3YzR2pScHc?oc=5) |
-| Russia tries to make sudden advance in Ukraine before Trump-Putin summit - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOcHNDOTJMLWZwN181VzM5aVZyWl94ZGg5ejJrVEcyNnZpUWJ4Q3F0dktuNVRsNWx0cFF4Y3FKMHBxTm1XQjd4aU1vU1lkT2E0RURwb01ZRm9ESmRwSWpNQlFoQk9rclZ1dkxLNHhtLVk0ZFVNazByaF9Rb0tjRUxhVWtIVHo2b2ZZQjJsQ3hoZVJRdU9aWWtZZ3hHQ0VNV05qNFppQlNrRkphdlRLRnh1aVZUMnJrZw?oc=5) |
 | Trump "looking at reclassification" of marijuana as less dangerous drug - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQaE9CbGNBWklSS2E3VHRUcWlYb3llY2U5UVIxQUZyLTlaZnBWT2thcFIyWTY1RkFJZ1pGSnZsbFJ0X1hGeDEwcWNqcGZSUVFzTENNMjY3eWRfLW10SkwwUWpDajRmYVFyeU5NN1pPUnVoQ0VCX3NHckN2NnBGOVFwSV9maWxVMEk1UGVNZjV5TnY3Zlk?oc=5) |
-| After CDC shooting, its employees turn their anger to RFK Jr. and Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPSTV1U3NtdmJselozWHdqU2NBV1RCWndYYkFKV01LamQ2dzk3OEV3WWRpTWNlY2Z0V005Z0FMd2haclNsU215Skd0cllXSkwtNElOVWd4eDYzcF9kN3RZcTIzWjQxUXE2SVFkVUlXUlRQZkE2QzRjR21BRjVrcDhzTTVEVlViVmdmR3c?oc=5) |
 | Ukraine will not cede land that could be Russian springboard for new war, Zelenskyy says - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQbzRGSy1rajVGSktvMXF1VUNrTU1iM05qcFFoMDV1MWZuekxlblp1cjUySDFnNTZ3SXZqaHJRRjBITE5yekxJRXpENkttM01ERFRDOFBwZW5CelpJdXRjV01yTlNjYlZEUG5KU0oyWFVodlhkdFlTc3NSSXJ1TkhJdldjS0VPQ0dmdE1oby1NdUdaaVpfQU1Fdkd6dlRoQQ?oc=5) |
+| After CDC shooting, its employees turn their anger to RFK Jr. and Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPSTV1U3NtdmJselozWHdqU2NBV1RCWndYYkFKV01LamQ2dzk3OEV3WWRpTWNlY2Z0V005Z0FMd2haclNsU215Skd0cllXSkwtNElOVWd4eDYzcF9kN3RZcTIzWjQxUXE2SVFkVUlXUlRQZkE2QzRjR21BRjVrcDhzTTVEVlViVmdmR3c?oc=5) |
 | DeSantis picks state Sen. Jay Collins to be Florida’s lieutenant governor - AP News | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxORkRud19Ed2dmbUczYThIYjhTU21PbnhfRUNSQzBIYjQ0RVJLN3ZmaUNGUElCRDVmSzRXTGlQekNGSW5kUGRwZW9jb3FuZFVkc1dQanNEdUZNaWJqNlJxY1dURk5DMFEwMDB2cmt6WkRZR2Q5RUlBY0N3Z0pBSDRHYlVaMG9SWFJzWXFiS0lzNmFlWHZVOXlGU0h2d1h1bHU2WXp6WlB6ZVZTdXhydGMtTkQ0Yl9UbTZjZnZxeg?oc=5) |
 | George Washington University becomes the latest target of the Trump administration - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE9xRXpBUWxJZklCMGNJVGVVb3czTW5nVXlmaGNPS2NWdzdOSUhUOUkyLVFFX3B1bkZlUWVRakR1UHhzNVBMRmtnODRRMjhYRFh0dldScFlyaGlvbXZTSmZacXV6UUYtZmQ4bzNIMzJ3ZWJBWG1XZnfSAXtBVV95cUxQWEpJVzlxTlBKWDBNOXdEbGpNcTVXS1FfaloxeC12RVBHMHdsR2Q2cjJSak41djlUQWhkTE54VlpTcFI2TTBSSElRb1NxUnJxUzhqUS1pY2JBaFBGcEJjS3d6VzdPRGhweGhycVdEYVFzZ0d3RFl4c2VDR3M?oc=5) |
+| Victim of Pennsylvania steel factory explosion is identified - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOSFBWbm5aRnVaRG9BSlkxQWVKOWZSNHdjV3VvZEpNY0VzenBxc2RXY3NMbHpvbUo1ZDlSanBVM1NWZHE3eV9wREo0SnZVNHpnRjZrY3U5alR1dUYzWHp6a25wNlkzT1VrXzFLLW1OVXc4Q2xkNHYxcjh3NVpSVHNlZXl6OFVyazl0WThyQ3hGYWpYRGc1a3EyeTh0Tmx2R3RoUGpfbdIBVkFVX3lxTE92TF9sZ2RfNjdORXFjeXc5STc5b1hnbnFmcUpBaDR0RkhFSktTRHU2N2tkbWo1Wm1Td2w0Rmd4MmtrRUtLR1dySU5sRVNrWElOS1pOTnd3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
