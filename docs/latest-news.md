@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月13日 06:13:17（北京时间）**
+🕒 更新时间：**2025年08月13日 06:26:41（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | Russia tries to make sudden advance in Ukraine before Trump-Putin summit - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOcHNDOTJMLWZwN181VzM5aVZyWl94ZGg5ejJrVEcyNnZpUWJ4Q3F0dktuNVRsNWx0cFF4Y3FKMHBxTm1XQjd4aU1vU1lkT2E0RURwb01ZRm9ESmRwSWpNQlFoQk9rclZ1dkxLNHhtLVk0ZFVNazByaF9Rb0tjRUxhVWtIVHo2b2ZZQjJsQ3hoZVJRdU9aWWtZZ3hHQ0VNV05qNFppQlNrRkphdlRLRnh1aVZUMnJrZw?oc=5) |
 | New York City mayoral race: Mamdani leads Cuomo by 19 points, poll shows - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOUGxhUE01WGhfdlJQNlVHQ2taVDBXWGJEbjZrcjZlWFljSm51WjBERUV4SmZsLXExajdEMlk3QzlYY0w1MmMtUGs1YmhUbGVWRGw1S1M2cFBVZGJmMU56MlRaSk9GR1J0Q2pmSS15a2FfdW9HazkwUjhseWdyQ3BmS1lIVk9rS0JGdmc?oc=5) |
 | Tropical Storm Erin could become the first Atlantic hurricane of the 2025 season - NPR | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE0wVTN5OHlKZWsxMGJJU3BBaDROc2hnYjQ5MkhPLUNfMFpNY2lnMG1nYkVva1llNXVSNHozZ1p6eFhwV0cxY1JWb0x6cTJZVnlIdHlncVN2aWNPcERzTnZhQmoycXR3UmxibHVEZEFoaEdEVWt4eGRhckdRdGdWZnc?oc=5) |
+| White House Announces Comprehensive Review of Smithsonian Exhibitions - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOX21LYTJsdGQyY1RJMmkzSTdrUTJBbTdFcGNHaTZHaG9VN3Foek03RWwtRVVyVWZSdEtrTzRpa0xMQmQzWS1ITDUxSGdwS2RrWkdXLWdEUUNwXzhJc2VUNnE3ZVEyd1J1YWU4RGxvc1RJdWx4eHBHVU5rUFRxQkluZkU1Y3Q5YU9rbS1IUmRGZDFPQkp4dlRrdm1tN2VjaG5hTWc?oc=5) |
 | Suspect in shooting at North Austin Target had extensive criminal history - KUT | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPQXFlaDdKQ0lZU0M1SFdlQ1BNaldyY0hmWmxzb2dpVXZZTkdNRXFISWc3dWZSX3JEdHhmNnlZY2JpSUNYRjQ5Z2laNGRtdndsQ0Y2LTNOZFcxSGpUejd6NWFGZFl3bDJiNE0wQTcxYjZqeXUxd0I2MnhjbFFJVEhmZll0LTN5WGFEajBRakRkWWtQSHBEYjBaR1Z6U2dHSFRNdV9EaXFhU21zeUNTTXBZODk2SjBwdw?oc=5) |
+| After CDC shooting, its employees turn their anger to RFK Jr. and Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPSTV1U3NtdmJselozWHdqU2NBV1RCWndYYkFKV01LamQ2dzk3OEV3WWRpTWNlY2Z0V005Z0FMd2haclNsU215Skd0cllXSkwtNElOVWd4eDYzcF9kN3RZcTIzWjQxUXE2SVFkVUlXUlRQZkE2QzRjR21BRjVrcDhzTTVEVlViVmdmR3c?oc=5) |
 | White House downplays expectations for Trump-Putin Alaska summit - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBSazZPdUxGU21PODFUOGlaOXlmWlBSU2c2akttWnBmNmQ2RjJGZTV4SGlXSW5wUGI5VG5wZnhTTHNrQ3Q4OF9GaHZRVEtsdXREZlBXVVMxRnZ6ZFBjWmFDLTdlSFpmS1RfV0ZpRDd5OGM?oc=5) |
-| CDC shooter, motivated by vaccine distrust, died of self-inflicted gunshot wound - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxPWmtVMFpiY0d6bDVTUVdOU2tsV0lzZFJKdW1pWnotSXkyVTFJM2E2d3dzMGtWYWkwUnBFVzk3dlhVLUtkLUEwVVVDNTRJcUxzcU50b1hsMTJRdnBCWlduVlVVdGI3WUFYcmNJMnBkUDFkTUgyaFlyZzFzRExuYUVWeVJ4Q2FVaVI2WGlqZWl3X2RMWVZKc21RSU04anRfTnVDblctVUp5RzhIREN5clhnbUNBU2Rxc1RtdGZaOTVxM1VsQVk0bzhj?oc=5) |
 | Ukraine will not cede land that could be Russian springboard for new war, Zelenskyy says - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQbzRGSy1rajVGSktvMXF1VUNrTU1iM05qcFFoMDV1MWZuekxlblp1cjUySDFnNTZ3SXZqaHJRRjBITE5yekxJRXpENkttM01ERFRDOFBwZW5CelpJdXRjV01yTlNjYlZEUG5KU0oyWFVodlhkdFlTc3NSSXJ1TkhJdldjS0VPQ0dmdE1oby1NdUdaaVpfQU1Fdkd6dlRoQQ?oc=5) |
-| Justice Department Finds George Washington University Deliberately Indifferent to Antisemitic Discrimination - Department of Justice (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxNME80WnFsSWFoVmx6TmV4VVlRY2lDN0xoTFNrbU5NRWRIcWo5TnlQTHVReXM2a2dpTVN3TUt5dVRYUzJtbmctVzBmR3ZTS2VHbzQ4RG1DZWVrYU42Ti01cHlXMTVMc2Q4a2pSUHFhZjNyNGlOcEFhOXkxVTVOTzRYbm5ZdFdUTlN5bkxQcDFwV20wazdtQTd4VUlENW1xdDQ1VWJiYUVvQm0yZWd1b0lhNmdNXzAzTndYY1VBaGV3?oc=5) |
-| DeSantis picks state Sen. Jay Collins to be Florida’s lieutenant governor - AP News | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxORkRud19Ed2dmbUczYThIYjhTU21PbnhfRUNSQzBIYjQ0RVJLN3ZmaUNGUElCRDVmSzRXTGlQekNGSW5kUGRwZW9jb3FuZFVkc1dQanNEdUZNaWJqNlJxY1dURk5DMFEwMDB2cmt6WkRZR2Q5RUlBY0N3Z0pBSDRHYlVaMG9SWFJzWXFiS0lzNmFlWHZVOXlGU0h2d1h1bHU2WXp6WlB6ZVZTdXhydGMtTkQ0Yl9UbTZjZnZxeg?oc=5) |
+| Texas Senate approves new congressional lines as House Democrats remain out of state - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNMUxwZmszYXJZZERnYzBFbUt2bU9QdWZUV3ktblpqOFFqMENHZkFubkpva05LcU5FVXpxbjJCX3BrRmhyMUZsd2Z0bF8xdjctZWNQLURQamJvYVpTSUttUHZFTUFWQkJldUJyMXlENTRNaHNJb1JLbG0wYjJsNXFIQm5n?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
