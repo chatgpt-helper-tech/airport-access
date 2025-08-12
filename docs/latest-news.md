@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月12日 11:52:50（北京时间）**
+🕒 更新时间：**2025年08月12日 12:01:38（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump says he'll "end" no cash bail in Chicago; calls Pritzker, Johnson "incompetent" amid threat to send National Guard here - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQS25wa3FTLWFGcWlTN2lXVi1zcENySmtuXzlweFFjMmlUUDhGMUFaN1hwa045Sl9FMDhKbkZ1bkNEejlZNWF4MldFa1VYWm1zaENSVTZyV0hicnJMb1dpVkdBTU44UFFKUGpxdURFYnhoQ2xqY24temlzS1h1c21jUXlGN2xLeTEzMnc?oc=5) |
 | 3 dead in shooting at Target in Austin, suspect detained: Police - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNamtoaklWam9ldWpNaEpYb2JBSlpqb1pNdHVGU3M0MldSNnhWUFJzZG53VFFaa0gwRjQwZXN0eTF3Y2FNSUpIU0NOb2E3dTVRWFExSmxlRGpiNzVISnM4eFkzbzlVYXdBR1BXN1pySlZhVThQS1NnMTNxTksxbHJlTmt3UDBiNHJrQXhNanpWYWpjcHlfOWNUUTYwUS1SZ9IBowFBVV95cUxQX2pZRWtRTE0yRWQxZFB5LWxxOG1TUHpaeXZLSnQyZWV3NnRET09va3YzSG1yb3h0OVBNSENLR1gyMzd6LTFOS1A1X0hOS1E5ek5QeEszY05kSlZac0JZT0FNMG5hcEp2TjhoZEx6djI3dXRHc0g3anF1UmJVVHNueWs3YmE1WGlyd281V3U1cXZSU1N1ejZGQzl1bTVOQWdPTUZR?oc=5) |
 | Gunman in CDC attack fired over 180 shots at building and broke 150 windows - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE44NXNNUDVERU9ydWpyS1NGVmxXTTEtYWlaYXduMzRnSDRGWUYtREoyRE02YXVrZ3h2YzlNWHp3N05nZThDdWJ2MkxBUnV3WXczZkI0dldzUGE3YTBaQ1dTWEZxRGFtMU1MYkV5MV9FdURpbW4wNFpr?oc=5) |
+| Trial starts over Trump administration’s deployment of National Guard to Los Angeles - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNTEl6T0Q4dHBMNFN5X051N2xjMWJrSWs5dUJWWmlFM1FsZzVwOWVra00xN2txMFhyMlg5Q3BORTdqQVNOOWg4QmItbHd4V3MzWVR3TmtUaFB6akdVTEJZMUl1MzltQTZuWTRNdXRwRERBbC1yTTd3SzItRjg1X1poQXJsUHhEOWF3dDNaaU55RFBCRFhySGhjYTN2WWNfSlo2?oc=5) |
 | Man who died after explosions at U.S. Steel Clairton plant identified - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPb2gwbTRjLXAzd1Q4YmdRcnBzLWNYeUlHUmZRM1ZzSGdBTTB3am9YeW1WQVptamktUHJhamFIOVJEeDdac05CWFlacUZ6RlBrYi1uRE8wNE9jVTRuby1MSUFIQm0wUFRIcnZMcUMtcUpPOGhtZzRhSlhxR0tSdXYxZnpPejF3TF8zYk9yUTEtU19vU09oeVNIRjYyaWtDNzVM?oc=5) |
-| Trump says he will 'feel out' Putin in Alaska on ending the war in Ukraine - NPR | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9iM2tTcTF5NDdHQ2d4UXZ3dzF3NzFXWEJsN252TG5KX0hBaWNpZHkwSDRMZWlNRXBsU21SY2N2MkJoaGxCTmRBYlJsYk9Qb1p2Sm56QnZrRl9hT1JLd3FKclgzekZTVmtuZm9lcUJwRktuSDlPNFZJ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
