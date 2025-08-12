@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月12日 19:01:22（北京时间）**
+🕒 更新时间：**2025年08月12日 19:13:40（北京时间）**
 
 ---
 
@@ -12,10 +12,10 @@
 | Small boat crossings to hit 50,000 since Labour came to power | [阅读全文](https://www.bbc.com/news/articles/c8e1xkwd74wo?at_medium=RSS&at_campaign=rss) |
 | Mum of murdered schoolboy Harvey Willgoose calls for killer to be named | [阅读全文](https://www.bbc.com/news/articles/cwy195xg8e4o?at_medium=RSS&at_campaign=rss) |
 | North Koreans tell BBC they are being sent to work 'like slaves' in Russia | [阅读全文](https://www.bbc.com/news/articles/c2077gwjlvxo?at_medium=RSS&at_campaign=rss) |
+| Pharmacies report surge in shoplifting and aggression | [阅读全文](https://www.bbc.com/news/articles/cj6yxkp2wx9o?at_medium=RSS&at_campaign=rss) |
 | Knee-replacement implant used on thousands of NHS patients was known to be faulty for years | [阅读全文](https://www.bbc.com/news/articles/cqxgen498ejo?at_medium=RSS&at_campaign=rss) |
 | UK jobs market cools as vacancies fall | [阅读全文](https://www.bbc.com/news/articles/cpdjjp681p7o?at_medium=RSS&at_campaign=rss) |
 | Taylor Swift announces new album on boyfriend Travis Kelce's podcast | [阅读全文](https://www.bbc.com/news/articles/cqjyerlv8eyo?at_medium=RSS&at_campaign=rss) |
-| Pharmacies report surge in shoplifting and aggression | [阅读全文](https://www.bbc.com/news/articles/cj6yxkp2wx9o?at_medium=RSS&at_campaign=rss) |
 | Italian athlete dies after collapse at World Games in China | [阅读全文](https://www.bbc.com/sport/articles/c24zr5590nvo?at_medium=RSS&at_campaign=rss) |
 | Nepal offers free climbs to 97 peaks as tourism to Everest surges | [阅读全文](https://www.bbc.com/news/articles/c0j99xxd1z1o?at_medium=RSS&at_campaign=rss) |
 
@@ -31,8 +31,8 @@
 | Video appears to show the moment a Palestinian activist is killed as an Israeli settler opens fire - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxPWGxWc3J5OEZ5Y1h5c3lVa0o1ZHFOWXlQYk91N21ibTN3M1FDQU91RGl6ZzZhdmI2ek83X3J2ZXVHQVJHbUlFWnhySF9oNVYtUkZVR3gwRHZTUnVlTE9WQU54V1E4bWNGanU2MVVNZWJUMXd4VWJUSFppbDYtTFc5aG9VTWR2QUI5UXl3bi1rXzNRaXVKTk1rdXh6eFVaNEhZdFBnQWMxcENfMk8xM08ybWZ4eFQxMGxTRERCSGVmQdIBVkFVX3lxTFB2Yy1ZMFF0cm9rekRWZUxENWpDY1NjN3NLT2p1N19kdS1lZm5LUHlZWF95cTlrUjFfeU9jUjZmd2hjR0VqcnRNYVluaWxZckJGeVpydmxB?oc=5) |
 | Police say 3 dead in a shooting at a Target in Austin, Texas, and a suspect has been detained - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPcC1FZHQ5eHAyMW9SWjcxTmlWN1phZnE4TjU3bFNsVzFtMm5RUWV6N1lKSFVxazFyejJjSTBtVXJyUlFzeGcyTnREUVdNMmF3V3JkZ0VpTWpzbTNqMHozbjk3MkxYQmFPWURGd3h4VzZjZXQwVUN1aUNZSW1nRVZYdldWazBXOE56RG43RDBiOVZxaFAzNlRaWlBFUzJwejAxeTNsZ0I0M3N3a3VMZXdXaTJoa180cUZCSGp3VGFB0gHDAUFVX3lxTE96LVpuajE0VUV4V0JqcDdPNTVuRmp5N2VDZjJCWjdRT3NYOFlYZmhYVUdWMlZJMGFENk55RC1Ka1NZRm5nVUMtU2JrYVlnLVBheGtwRWRKeWRDZzdzcFE1b2lNeUR1S2lYOFVmNTVBS2lGMXdleFpGSmNOb0ZiWEhFM1FCQmdWLUNFdUJ0WEw2TWp0NUMxRVFoWU92ZUQxWEdRZk8yRkFnc3hhc2JTQkZjTElKNEFlYTlPTzRPX0pHWWxWUQ?oc=5) |
 | CDC staff dreads going back to work after fatal shooting - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxNdE1pTndBMW02Q1ZkOHpLQnkwam1DMDZseXFlZ0haXzVuOFpJUDAxbDY3WXlLMU01RXhCMDQtb1pfLW9NV2I4UW1YdXQ2UDR6dGJaVVlhc1VTQUs5UTlneDk2WGZjWE14SjFKZHhMYTBRQUxQRXpGMjNkMHlJX2lub05HLWJEZTBMc0ROTkxNODM2dnJrSXF1VXNSM1NVZFYtczFvLTV4WUhKak4yTldsZFU1a2tSUkpnbTEtNDFjeG9sdWJVNERFNVZn?oc=5) |
-| Legality of Trump's deployment of National Guard in L.A. is argued in federal court - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQUGlGQXAxRERfRXhLUUxqM216UjN0WnlwTDdCd2tmNG1oVWUyZUN0VjM1QXdFX1JZN3pGVFZaZTNiZi04QWd1UGVqM0JQTzdJTzNZNDdIaE9IMG5LQ0xfcVNxdXc4MU5obnJNb3NqZ0dSZVVGU29pNGJEYnZzUGFkRGNMVkowMTZydHlPOFpzekY3WjVIU0xScU5PejFKd3NvQnhYZG1kSnVGaEExc2xNTU9R0gFWQVVfeXFMTTBGOUM1OWJuWTg2ZmxSUDdOeUhGQTdtQXRDZFdlTEV4dmxOaXEzVG9YSW1sQWxheVZDRmRlTS1abmVqSXY3bXBHcU9tNEJQN2Nrd1ZlZEE?oc=5) |
 | Why Trump’s tariffs haven’t gotten Brazil to cave - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOQTk2MndnaXVLckFFVjNZWVNUMmJMaFlRTEtzc1c2eWtRM2pJZFk0Slk5OVA5b2xBOUhGYkhhc2xEQzRUSDFrLU1WYng2RUdENVY0UTMwek5NN3oyNDdSSkNfSVhIU2wxVW9EelFpVEVKUjBtcmppQl9nSl9EV19FUzZtYkdsNjczQTdYYVVRQ2RzSWpI?oc=5) |
+| Legality of Trump's deployment of National Guard in L.A. is argued in federal court - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQUGlGQXAxRERfRXhLUUxqM216UjN0WnlwTDdCd2tmNG1oVWUyZUN0VjM1QXdFX1JZN3pGVFZaZTNiZi04QWd1UGVqM0JQTzdJTzNZNDdIaE9IMG5LQ0xfcVNxdXc4MU5obnJNb3NqZ0dSZVVGU29pNGJEYnZzUGFkRGNMVkowMTZydHlPOFpzekY3WjVIU0xScU5PejFKd3NvQnhYZG1kSnVGaEExc2xNTU9R0gFWQVVfeXFMTTBGOUM1OWJuWTg2ZmxSUDdOeUhGQTdtQXRDZFdlTEV4dmxOaXEzVG9YSW1sQWxheVZDRmRlTS1abmVqSXY3bXBHcU9tNEJQN2Nrd1ZlZEE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
