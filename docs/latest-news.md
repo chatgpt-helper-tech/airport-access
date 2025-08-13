@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月13日 16:00:43（北京时间）**
+🕒 更新时间：**2025年08月13日 16:14:37（北京时间）**
 
 ---
 
@@ -17,13 +17,13 @@
 | National Guard troops appear in Washington DC as mayor rejects 'authoritarian push' | [阅读全文](https://www.bbc.com/news/articles/cy7ypm6zxp2o?at_medium=RSS&at_campaign=rss) |
 | Nuclear-powered AI could make Rolls-Royce UK's most valuable firm, says boss | [阅读全文](https://www.bbc.com/news/articles/ce8772d4jzgo?at_medium=RSS&at_campaign=rss) |
 | Government expands police use of facial recognition vans | [阅读全文](https://www.bbc.com/news/articles/cj4wy21dwkwo?at_medium=RSS&at_campaign=rss) |
-| Inside Australia's billion-dollar bid to take on China's rare earth dominance | [阅读全文](https://www.bbc.com/news/articles/cgm2z91mvlvo?at_medium=RSS&at_campaign=rss) |
+| Israel bombards Gaza City as UK and allies demand action against 'unfolding famine' | [阅读全文](https://www.bbc.com/news/articles/clyj0dd0qj9o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| National Guard troops told to maintain presence near National Mall as part of Trump’s anti-crime mission - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNZXBfYTJGd2dJU0JqUzBKanFHakxmM05LTkw5R0VkbEpKNmhGVnNZbUxsLWh4bGpUclRTQTdjSlNJWXR3UW12UFcyM01QdjBZbmVKNlp6cDdaSGRYTEZQUVRMYWtBQXluQUhEQS1DMWhvT1lXOWRWUkVleVBnaEZOUzFDSmNGb3N1UXJlbmp4cWdWSXc3aDZIcU14VdIBoAFBVV95cUxPa3VuTzA2aUVzRlFaZzg0Y0pDdVkwbWczOTM5SHdjREQtaVliZGhRUUhUUnFFWUQ0TVBhekZrQVRFVWlJazViVW9KMWZoT2w2elEtMFhQUEIweF9YWTJVamFNdnQtVTdjWHYxdjJ4WmxycnNSZXo2elNncktqZEZRNlhEZzBYdF9kdW95N3dIMHk0Uk5iOFFQblRzXzBUYmxr?oc=5) |
+| Photos: Scenes from D.C. as National Guard joins Trump's law enforcement crackdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNZTEtdFZiNWE2dTlMekZ1VXVUaHJaUUFNcUp0WTF6RHdXMjBGSjRBWmtSRUxfUk96ZUZsd3E1VDRrOEc1VEpMdDhpSDZqVlo4VFVPSnNqRGNxOWppUzJRTEZHNDdXOUFxUjM1UjdPcXVTWG5lUTRUaVFYZTdhazNNS3R2QmdNQlUyOFI3UzFRZHc?oc=5) |
 | White House announces more aggressive review of Smithsonian museums - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOb3RGVWtSbmVIbnV1X3JKb01MWDM2VUZpSllsOExwWGpvNHVpaFg0ajNkU1NYTEdHUGw2TnZyZFBqWmF5ZHZ3V3FUSW1NWUxyZnRUM1JfQ05XR1BRa2JzOFF3cUVIWmw1bVA0NDNtemtybkVYVG1NZk5FdDZFbkdsZkxCa2U5X0FrN3AzdDQzQUM1NE9SYTk3UUVfYnFTM2Vq?oc=5) |
 | Trump administration must restore hundreds of UCLA research grants, federal judge rules - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOLWM0cGJ0cnhZQ3NiM1NvUEwwU1lYNTN0dkdsXzltMnZGY3pwVDhhR0JVaEtPc0x5bXlfQjh1blp4SW9BNWNpVkVIeDZzcmxFRXk1MXY0emZSYmFsRFVRNmNFU2FfNE5kSTNXZHJwTHhKMTdJdWwxRFRCTVlnY3REUHBJWGdlUEo2b3BXSg?oc=5) |
 | Russia tries to make sudden advance in Ukraine before Trump-Putin summit - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOcHNDOTJMLWZwN181VzM5aVZyWl94ZGg5ejJrVEcyNnZpUWJ4Q3F0dktuNVRsNWx0cFF4Y3FKMHBxTm1XQjd4aU1vU1lkT2E0RURwb01ZRm9ESmRwSWpNQlFoQk9rclZ1dkxLNHhtLVk0ZFVNazByaF9Rb0tjRUxhVWtIVHo2b2ZZQjJsQ3hoZVJRdU9aWWtZZ3hHQ0VNV05qNFppQlNrRkphdlRLRnh1aVZUMnJrZw?oc=5) |
