@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月13日 23:53:38（北京时间）**
+🕒 更新时间：**2025年08月14日 00:00:11（北京时间）**
 
 ---
 
@@ -10,14 +10,14 @@
 |--------|-------------|
 | Three children in court accused of man's murder | [阅读全文](https://www.bbc.com/news/articles/cgr99lkjlk4o?at_medium=RSS&at_campaign=rss) |
 | Gaza talks to focus on releasing hostages all in one go, Netanyahu hints | [阅读全文](https://www.bbc.com/news/articles/c9vd734vv0yo?at_medium=RSS&at_campaign=rss) |
+| Manchester Arena bomb plotter charged with attack on prison guards | [阅读全文](https://www.bbc.com/news/articles/ckge2qdr88eo?at_medium=RSS&at_campaign=rss) |
 | Claire's on brink of collapse putting 2,150 jobs at risk | [阅读全文](https://www.bbc.com/news/articles/cp8zwdy98k8o?at_medium=RSS&at_campaign=rss) |
 | What challenges will new guidance on ethnicity pose for police? | [阅读全文](https://www.bbc.com/news/articles/c5ypk680pe1o?at_medium=RSS&at_campaign=rss) |
 | More than 140 people report crimes to Al Fayed investigation | [阅读全文](https://www.bbc.com/news/articles/cy40r9419kdo?at_medium=RSS&at_campaign=rss) |
 | Lammy admits fishing without licence on Vance trip | [阅读全文](https://www.bbc.com/news/articles/cg7jdkmvvv1o?at_medium=RSS&at_campaign=rss) |
-| Model with Down's syndrome to make Strictly history | [阅读全文](https://www.bbc.com/news/articles/cly3318nrmpo?at_medium=RSS&at_campaign=rss) |
 | London chess prodigy, 10, becomes youngest female international master | [阅读全文](https://www.bbc.com/news/articles/crlz56n9798o?at_medium=RSS&at_campaign=rss) |
 | I had knife pulled on me in migrant camp, says shadow home secretary | [阅读全文](https://www.bbc.com/news/articles/cx2xj7g8vj0o?at_medium=RSS&at_campaign=rss) |
-| Average mortgage rates below 5% for first time since Truss budget | [阅读全文](https://www.bbc.com/news/articles/c4gzv41kw3jo?at_medium=RSS&at_campaign=rss) |
+| Model with Down's syndrome to make Strictly history | [阅读全文](https://www.bbc.com/news/articles/cly3318nrmpo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
