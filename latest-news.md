@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月14日 07:39:08（北京时间）**
+🕒 更新时间：**2025年08月14日 07:52:02（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | DC man arrested for hurling sandwich at a federal law enforcement official - PBS | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQdnpYQVF4elRnYlkzdnh4d0xwTkwxblNPMFhpUjhGa0d3cFhReUVSWWlDOVYwWGUzejd4TktaUXdzOTBfSlVxWllTTWtTdTRMRWs5czZTMk5rRDk3akQ5TXFuc2hjeXFrQms5bHo4di1UT0tsckpRN3o2NWxINlpMSmw1QzAwanNDRkh5TU44Q1pwNDNkNVJoY1BaMWZDY2JTcXRYLXF0NVpMc0tFbzln0gG0AUFVX3lxTFB0T3p3bVlBWjVYN1F3anVDaXhuU2RzR25YSjA0T0lNUzE1SHQ5NkQ3Y3ZFVUJjQWNWN1JINzZQVmxIQ1ZmSTN0ckQzWDZhamx5SmNoQ2lUdnFWOWtYV3BGM24tZFBlbkZhekxUOFB3d2lxV1R4YU9iNmllaG9UTEd4SGtMWWc4N0FlUlVGdEd2M3pVNGVzMjd4ZkpwWEUxZU5sSF9NeTVhOFdKMElTV1ZId2lXWA?oc=5) |
 | Hispanic Democratic Officials in Texas Plead Not Guilty to Voter Fraud - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5iWDdvb1J1UXBjNmJNa1pGeVJyQm56ekllQUtYcmRqS0xYRG5iOW1qMWN6aUpTS3pGV1NsS3Rjd0JnZTgyeHhMZ0YteE5lcnpHbnotbjlLdHI5QUNvOEZIeDUwZ3NjMzdnUDlDZzRzRFdxRTFkWF9kMQ?oc=5) |
 | Judge concludes hearing on halting ‘Alligator Alcatraz’ construction over environmental concerns without an immediate ruling - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNcWY3NzZaSm15Q3Bqd3pIcXdyeE5hcFVFeXZuZGZ0WWlMUUpOMlZuTXo5R2RqOEU2M1NmWmI2WEgyNkt4dl9TbzZOT1ZkQ0U0a0g4RmZEdXdnNzY2LXktVnl4aG1VVVpMdXlfenQ5Slp6aW1OclBIVWZfRXRWY3BpRFl30gGHAUFVX3lxTFByQlNyMjRCMUQtdnpIeEVNZzI0dW5INTdDbE4wQ1ZqbXctc0FMTF8tZ3pQYUd6cDBnQ2lKSk1tLW4xRXVqeWdqOXN4a1dacl83V0Q3T1Zwb0tfYlA2Q214d2Q0UGxWTy1vemlXZnB2YTdkeVhhbDBJR3hHMHlNMnM2cWtyQThDSQ?oc=5) |
-| Proponent of Medicaid cuts set to brief House Republicans as they plot another megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQU1A4allCa3JTR0RiQ3FUcHBjVlZhY1VYY3VrX1VCYTZuTnJ2dmlwNWg1UERZSHlxdEQyNUk0REJVOGpHQ1ZZdGkzMVVyeW54eVpqcmJwWVFsZ3FpVG9xWjExdWtHU1d6Q3N2bEo2XzZlbTNnMWkzcjB1N2s0Rlc5VkVxbHlUOHJC?oc=5) |
 | Emergency declared in Española area due to crime - KOAT | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOMlVJQzg3dU5PUWRZVXNUZnRqUnRHNDlCLVBYcFFvYnZyT01sRVk1YXNiUDdIRklPbDY5VlBVZUlsSnhnZkVqZ041OFlCMDk3MUQ2Q1hxbnJPV2JFNTJZRmpKWGxFV0N6bWZTTUh5Tm1Fbk9Ga2ZRMTluWHJKdm9QM0dsaGd4eFduNlVmUA?oc=5) |
+| Proponent of Medicaid cuts set to brief House Republicans as they plot another megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQU1A4allCa3JTR0RiQ3FUcHBjVlZhY1VYY3VrX1VCYTZuTnJ2dmlwNWg1UERZSHlxdEQyNUk0REJVOGpHQ1ZZdGkzMVVyeW54eVpqcmJwWVFsZ3FpVG9xWjExdWtHU1d6Q3N2bEo2XzZlbTNnMWkzcjB1N2s0Rlc5VkVxbHlUOHJC?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
