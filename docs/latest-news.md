@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月14日 06:26:33（北京时间）**
+🕒 更新时间：**2025年08月14日 06:39:34（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | D.C.’s homeless begin to see the effects of Trump’s crackdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOOGROOUlsMU5QVzEzRC1DQkl6ZU0ySzdVVTJVS3ZibkhRWDRDU0ZyTWhjYnNSU2IwNFNJV2RPUzdaTnhRLTVVcDUxQnM3ZEh3YzhyaTdGVmpRWkprTHJyOEFqSXhwOGZMbmgtbFdNTVB4eHZmQzlzN0RQZTNZNlFnaTFXVUd6cHpXcjZTUl93eHFBekF4OTRv?oc=5) |
 | Live updates: Trump warns of ‘very severe consequences’ if Putin continues Ukraine war - AP News | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE1VUU1MWTByUDA1TDJNa2dEZnczcUdKQ3E0UlNjbUJIdXRVZWUtRkdUWmJoQ3RPLXNHWVN4SXlHM2twZ19abkp5VzE3YUg3TU9GT3dCcDZseWd4dkRLUHdCZTItRnoyTWZ3b2Ew?oc=5) |
-| Humanitarian groups cannot challenge Trump’s impoundment of foreign aid grants, appeals court rules - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi4AFBVV95cUxQZzRCTFVPanlfenctTDBfdFVVUHlnUi1WakdZaFdURGgyQ0RKRmNORzRraXNZVXVlVFFxOWJKb1FKalRXV2RkWUxFNTc3RGJLTVJPWG1CS0JTRXNEaEs4VGlSNzhXOGFKaW1EWEJ1aFJURVluempVNFQ0V1Y1OHFfQ1FXZ2k4MWVzOHBfSGVTZUdoOFlwd0pzYlhuWWNNMEtQU2NiLXVBV2RUOGVUUWEzYzZ2SEdZby04VWNEVzZMYmkxUXNfZUVvVHF4dnlmei01M1g3YWNfMGdQdmZBS3hJTg?oc=5) |
+| Trump Administration Can Withhold Billions in Foreign Aid, Appeals Court Rules - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNa1ZicnNXN29uaVhabGNKNFdhakJ1b1lqenVZMWpZbjNaaXpSUXRjOEhJMjJfTWpRdFE1RFRhMVJuVXZQTWxGYUdaRmtZdDlrLTB5c0ZNNjhfcXhGMHZWeEc0WFFIU3pTTWtUVk9Da3NTUTV6VEg3cjNMNjdQS0M5a1NxRmtQNWN6QTJ0Sw?oc=5) |
 | Alaska’s capital orders evacuations as record glacier flood looms - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNdXN1YVBVWll4TC0xTC14cmlvcFRWMEd2SHU5UWpGN2ZZNVlWRTRUVl83VGhvdGFBYU5JczEwRklnMnFCMXNuN1lyQXBqMWdsQ0hJOXpqci1DWDB1eXNvQlM0MlVWbE5jVW4zMF9NTWh6US1YSnpZblBhZUh4YzN2aElDT1VQT2xLNjZSdG1IbWl1Q0JGMlE?oc=5) |
 | Texas Democrats to return after governor ends special session that included redistricting, sources say - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPX1dEZ2JBaUVxbHRiVFB6dTFGWmw5T2ExcmN1YVVuRnh5YVhTeF9LZFRYSHMtY0EteTdfMGIyUGMwOWctUmVhS0tqNmhaUzl2bDlpY0tjeTNVdTU2NkhQb044cU9hWFpndk9nSFJQT0puRnJxSUJIRlFXd3pCcmVoNXVVc1dTUVZldGwtMzlveTdiOEtDdWl4SmJkNGctZzZBUkZnbFpkOVNjckNrX0HSAbMBQVVfeXFMTTVqeWtuQmZyZHZ4NkJ1aElqektSdzNJR001Rlh6ck94N21PbEkzVUFmVjRpOFQwVFJ1VGRXeHNSVHJ1c0JPRVhvQTdhRFBOdGR6SExtWk91bEN0NnA4QmxxQzB5VDk3N2RhOUFZcUFoMV9kdVhRbnVoNnRDOFhaMEtHbEdZdjZDZHlFblVFX2VQV2RJWll5amR2SXpRY2dxVHBwSF9yMEpzd3JDWGswN2thTUU?oc=5) |
 | Tropical Storm Erin tracker: Forecast to strengthen into 1st Atlantic hurricane of 2025 this week, as latest projected path is updated - yahoo.com | [阅读全文](https://news.google.com/rss/articles/CBMioAJBVV95cUxPcjkxRHhKMWdYVW9SVFFoenozMmxDUHBwU1hPM1FvbE1INU1zYXZMYjdPYktjUWprSVFNSUlMbWxYNVJpZWVWbk5EdkMwbS1tYURjZEdKZjVhMllBWDFGWnFDTVRkMUJVNV82VERqdjVkZlJIUFpSbVhrQ2RCTTV5VkhFUExMWENrdUhZQ2h1djdpbXM4THZpeGtVSUl4bEYwc20tTzJ1OW5VcWMtRU1jNWRTbDlIMHk2Z2JuZy1qMGY3amx0TnJKMmVHS2h1WmZ3cTBTMjNNeVZESl9qbDZsSWJBSVc5TEdZMFNuMENkeDZnbzYtOWxjVFlYV3N5QS1iTDJ3WmVJVzRVcVhvNEJ2Z1BWcVNKNHdhMHp1cTNFdGE?oc=5) |
