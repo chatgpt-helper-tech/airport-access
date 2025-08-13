@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月13日 17:01:25（北京时间）**
+🕒 更新时间：**2025年08月13日 17:14:06（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Photos: Scenes from D.C. as National Guard joins Trump's law enforcement crackdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNZTEtdFZiNWE2dTlMekZ1VXVUaHJaUUFNcUp0WTF6RHdXMjBGSjRBWmtSRUxfUk96ZUZsd3E1VDRrOEc1VEpMdDhpSDZqVlo4VFVPSnNqRGNxOWppUzJRTEZHNDdXOUFxUjM1UjdPcXVTWG5lUTRUaVFYZTdhazNNS3R2QmdNQlUyOFI3UzFRZHc?oc=5) |
+| Trump Sends the National Guard Into Washington, D.C. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNSWlTVDQweFpBTS1LaE5HbFdDQjd4RmNKWUFIbEJ5c3FScWJsdmlEQS04WXZnczFkVHVFMndCOEwtZkczdVBqQXVfeEhTNWVodWhieDllNTFub3NyRUJvZkRDRDVTZnJZM1k0OGk0RWZFT3JSaHVFVy1VcXFpSVo3OGVRNVFpc3U0VGc?oc=5) |
 | Trump is talking to European leaders about his Putin meeting. They may still not get a say. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQdE04V080MVFWeVJMd1RPR25uMUNGeEZqS2JBYjZrTEVVU0ZWZkR1bi10dFd0VGJxYTdYOGlld2k1T1d4elVEMEhlMC1jb1poN05kOGJtTjctbWRvYjBBcmVxMGo4clBIQ09ocnFzWklQZGtIWlA2eWZhRHp4c1NwSkpQU25ZLTZ3SWxjNEdKWQ?oc=5) |
 | White House announces more aggressive review of Smithsonian museums - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOb3RGVWtSbmVIbnV1X3JKb01MWDM2VUZpSllsOExwWGpvNHVpaFg0ajNkU1NYTEdHUGw2TnZyZFBqWmF5ZHZ3V3FUSW1NWUxyZnRUM1JfQ05XR1BRa2JzOFF3cUVIWmw1bVA0NDNtemtybkVYVG1NZk5FdDZFbkdsZkxCa2U5X0FrN3AzdDQzQUM1NE9SYTk3UUVfYnFTM2Vq?oc=5) |
 | Trump administration must restore hundreds of UCLA research grants, federal judge rules - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOLWM0cGJ0cnhZQ3NiM1NvUEwwU1lYNTN0dkdsXzltMnZGY3pwVDhhR0JVaEtPc0x5bXlfQjh1blp4SW9BNWNpVkVIeDZzcmxFRXk1MXY0emZSYmFsRFVRNmNFU2FfNE5kSTNXZHJwTHhKMTdJdWwxRFRCTVlnY3REUHBJWGdlUEo2b3BXSg?oc=5) |
@@ -32,7 +32,7 @@
 | Austin police ID suspect, victims in Target shooting that left 3 dead - Austin American-Statesman | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPVmNDejdKSlJJWkpTU0hTeUZaZFRObm5xWDhDaTZJclBoZFFEUWRxeXFfWUxua0lmeG1QZXBiOFVYb3NneWxILU13a1VIOWVpb19BT1VKeU5BWFlMZ0h2VV9NRUZGLW96R3AtTERWS0xpc1liM1JGRGdxcGxtUHNaanJPODdXNTN6TG5jVHNIX3V6Zw?oc=5) |
 | After the shooting at CDC, RFK Jr. criticizes agency’s pandemic response - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNY2NUdUF6Ylp4YjRLaFZZazZwbm5FaTBPekltaUJYdUVXb0xQRFltNmR3MGt4NGRNSXRxY3FqTWFBMGs2Z1J0d0VLeTNYTkZOWnhDSkhvS2lRQXVFQmVXTWdrelRkSFJoR0xUTmwtalFnTzVZZmVIR0xoRDc1bzFLQUpxdUFtMFJSWlVMWjFJajBoZ0FVWmV5ai1GNjdfZzA5MHphMHUwSnDSAa4BQVVfeXFMT1g5V3BsUmxaN1p3TnRNSWpJQmVVdEZVclVSTkM1bVdreWVMRUZSRDBqd3J3Y2p0MmpVbHNXTmJTYzRTdkkzNmdVZ19vOUZBejZjcFI2VzJ1N2Q2QzdQTEdLa0c4bGdpS0JHajk0Y2NTRkRpM0YwT29TeXRiakZkX0tWTV9wUXl3cU1Ma19hdEZDUGlOZzVoTXdOSWNJOHQzMUVkTFU2YnByb1NkcVJR?oc=5) |
 | Hack of federal court filing system exploited security flaws known since 2020 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQTnVuNXV2eG95VDdtVmFRaFd0ZnhtelF5VllURzk2QTBUOEllYkhxZnlfQkltT2g3c3VBa21PMFFnS2FxcGkwOG8xVms3Y1JPclh1cnZNY2h6VXFHVENLV1hBOG05anJTOERWTk5oOW5MSlc4NjNzQmlvV0VnMHBSUVZNTWt3ZE5BUnIw?oc=5) |
-| New Video Shows Uvalde School Chief Trying to Negotiate With Gunman - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNTUxSMUFSWmtETmhTcUtObUdQQ2RSUWJLM2hQUGkybFhxRTFhXzdLanhCYWhlakJuQkFIaU05YVlEclFSSzJyVWc2Y2pLcFloS1NZcURENEQ5ZUYydVN0VTlKM3JWN0hIbmUyWC1uWXk4VVBTaUNEUHdGd1F2OHhVNg?oc=5) |
+| The snowy remote army base where Trump will host Putin for talks - Sky News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNSVJ5aDVmZjcySWFQNUhSdE5rcTQxcGdXMlhPSDJoSHhVemsyQUxXcFMybWJlbWw1VTdESnZxWW1MZ1hVUTQ2SElTa040bUY3YUlrNlpsNFIxTE9sTlpLOTZkeEoxcHhGLWczYWpQb0tsRFZfS3JpNnJUOXhTbXpYYnJRdUROdnpXQzUySG5SLVl3V2NYVHpGVm5pRjBzOGNUOXc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
