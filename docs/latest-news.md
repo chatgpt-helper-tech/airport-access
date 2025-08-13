@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月13日 19:26:25（北京时间）**
+🕒 更新时间：**2025年08月13日 19:40:49（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Nerves are fraying ahead of the Trump-Putin summit - The Economist | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOOVdhQlZHajFvZk9TeXNHc3YwTlBzU1RWeU5GbTlPZWlNUTVkV01iTkNvZHBmdGwzeDNlbjlLU0N4WG9jSmhtMXpuR3lFRmh5OE05U3U1Uzl2Vk9EaDltRXJ4RXpjZHBnUXVHdGdQRjhOZ09HWG1xVmhXZWl3amRqdGtLVzBBWkRzVFZGaEFGaGF2YW9kcVplWTZR?oc=5) |
 | How Trump could steal marijuana policy from the liberals - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE51ZUp3aVYzV3RVd2t1cEk1dFNMMzNaOV96TV90SGVEYm55M2ZtdTY0aU9mcWpLUms2T1ZnZkhfNVU1VjR6UVprcllWMnltSHM4R0xDR09oUWc5bWZ6OTM2OHRuWXNyMm5OYUhCbTVSQlUwSHdRN2hVQWtR?oc=5) |
 | Russia tries to make sudden advance in Ukraine before Trump-Putin summit - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOcHNDOTJMLWZwN181VzM5aVZyWl94ZGg5ejJrVEcyNnZpUWJ4Q3F0dktuNVRsNWx0cFF4Y3FKMHBxTm1XQjd4aU1vU1lkT2E0RURwb01ZRm9ESmRwSWpNQlFoQk9rclZ1dkxLNHhtLVk0ZFVNazByaF9Rb0tjRUxhVWtIVHo2b2ZZQjJsQ3hoZVJRdU9aWWtZZ3hHQ0VNV05qNFppQlNrRkphdlRLRnh1aVZUMnJrZw?oc=5) |
-| Some Juneau residents urged to evacuate as Alaska's Mendenhall Glacier releases floodwater - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOdXpmODl5T2hHWGp1Z0s5a0lwWW5PcnEtSzNLYmYxU05mZ1RWUGZKSUUzMnZlNGNETFA0TDdiX3U1OGMzcU1Wc2RVTURjS1VpRmxteWVfQUNPNmhIX056YzAxRUoyMUUyOF9GUGtYdjUwRHl4TmNqeVpwMF9jc0hMQmg4Z2hTTzVteUJ0Rk9DOEc?oc=5) |
+| Evacuation warnings intensify in Alaska's capital with record glacier-related flooding predicted - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQajdFU21SRnlqS1Fuc2JzcXBJc3dSZmxoUm9JcWt5aDZ0MHduNEFqSkhGblA1S0lCUmZzNWVrUlBQTEEzV1hxT3VWMDNaZzhycFd5dVd4RE9qQXRDZFZJVy1fSzlGQVd5SHk2cTdfai03WW9CODNlbmhqcV9HY3otd0ppNGN0d2x4YnBpYzVKTHUtSGNOc2t5UXBBVWlNV05pMTA5WUx2UDJvaUVGOFlaNFNEeGTSAboBQVVfeXFMT0RjS0FYaDNPM3VNcW1wWUZiX2haUXRUNk9NZkdpOEJCam9pWFF6aHdvVGhWV2xfZ3Jrblh1cGI4d1dKczRtMkVkbVV1c25yUi1Id0p3Y0dBYUJsOXRiSmlraWlFOURObWx3N3U2OEF1OEpDWFRqU2YzaXp6amhBYlp3OVpKVzdiT0ZSYUxvVFVieHc5aHByWVB4ZU5vVkhvNGNyaFhIQzRQalZOOWdOckRNSmJmRVBDdm5n?oc=5) |
+| 500 rounds fired in CDC shooting after Cobb man steals father’s guns, GBI says - AJC.com | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPQ0RoOXQ5MG9WZzNySmJNLXlrMkxVQWN6bWxmV0gyb0pHd0pVYU9Da0RFWS1YSDRIS3V5OUxSUU0yMkVwV3diSTZTRmpJVU01Y3FHNTBMYURwUWRJZy1kYVowdkltbWxsZXNtWHRMZ1JXdmVzTGFvMGpodXV6RzY1OFZ2YkZscXZOY3ZQNDFFSmdRX1puMUd4UzRHWEZhb0VFRGhnaWw5Ni1ybGJBaXNZ?oc=5) |
 | How a U.S. Senate Race Is Shaping the Fight Over Redistricting in Texas - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNWFhrSFQxcXVuc0NscWdhMm5PRHdoUS1LNjlOVFM2dzRZMUt2VHpMQ3U3a0lZUEhvSmJLdW9Jcm1BNXBobEZIbG1jOUkzV3FfTkttajk4REg2bHBCRlFRWFBGVWVxRzlNRkktT0x3QXhTcUtsNHJxcHphVmVQa1ROckY5Q0E?oc=5) |
-| Mexico sends 26 cartel members to U.S. in deal with Trump administration - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPcDFGYmxWWVVyUmxXVC02MWdBbHd3WjE4UU05SzZaS0k2eWhhNVdBVE83cGNyZU8ycXRBQ2liczFmYVRqbjdQZVdqWlhUY0haNjhtRHh0dVB0Y1lUQ2J4S1hJOEc5TmpwcG1mdjBETkpmbDRzWjVFWkZaeHVwV184ZDR4cUM5TUp4YXowRUJSMNIBlAFBVV95cUxNS0QwMnFBZDNYRE53Q2JHZjhNLVpMOWZSakN4c212MjdFYnFrNGJlbzZLYTh1SGFHbUw0TFZmZ2MxN0dwV3BvLVNqV1FjWmFnS1RlVUpYR0hZUUx5SlhNS05Hd0FJNlpaeUxXWmRhTVhHWEZnWFY5czQyZDJHRXF1TTdxR0lzaFhZOHVRRkxXNzBJV054?oc=5) |
-| Austin police ID suspect, victims in Target shooting that left 3 dead - Austin American-Statesman | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPVmNDejdKSlJJWkpTU0hTeUZaZFRObm5xWDhDaTZJclBoZFFEUWRxeXFfWUxua0lmeG1QZXBiOFVYb3NneWxILU13a1VIOWVpb19BT1VKeU5BWFlMZ0h2VV9NRUZGLW96R3AtTERWS0xpc1liM1JGRGdxcGxtUHNaanJPODdXNTN6TG5jVHNIX3V6Zw?oc=5) |
+| Drone video shows great white shark lurking near popular beaches in Maine, prompting police warning - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE4zWjZtSmY2TkV2d294T0FxMzJQVTV1NjhNS2c2SXZKaV9YblBuNmp4UkJXdWZfY3BLZlFuR0VZeUtwNGdVYWIyWW5ZTW5QQjhyUmNETURhUGdYTFlxa2RJaXVJcjJEYkxweEludXhZTUtzcERqUEFxNkR5QmFkdFHSAYQBQVVfeXFMT1RTM0tvaUd3TUdQeHNZTXpSWlJhZTZCRWd6NGlNZlhCQU4tLTk2UzQ3ZHRjR3QzcThQWktnUUFMS1Qwd3hrdC1udkt6bGlwVEdldHVxbi15Z3NqNDRjZ3VIUHVhNzRnR3BrSUl6Q3FodjZSLXJfU25kVTdiX3FSUVJRQWFu?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
