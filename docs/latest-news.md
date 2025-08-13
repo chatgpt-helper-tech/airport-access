@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月14日 01:53:51（北京时间）**
+🕒 更新时间：**2025年08月14日 02:01:19（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Eleanor Holmes Norton keeps a low profile as Trump takes aim at DC - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQVXNrT3Jua1hRRF9iWGRSZ1pudG55dFJEZkxpTExacVV2bzVUNlh3RWhnbWpmckRQY0JOcGxzZ1ZGdFc5V3dXZno0Nlh5WWQ1aXJHRkR3RmFCZm9nQk9tcGh6Vm90RGpZMWhVaE9GWG5DR2tRVU5GcTZESW5CazVYNVM5aXpDaEE?oc=5) |
-| Zelenskyy in Berlin for critical talks with European leaders and Trump - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOVnVxWW5tQmJnTE9UVTZFSG9MdUltdHdlWWhxMlFVcTU5VU9sQkp2ZmZmVHl1M3RTMEVNMmlpV0lJajVCd1ZkV0FvV3luNTVwN3RaeWVYSzI0Z05qeUtlVkFZQldqbm1XQWxGZDU0TmYxQVR2TjlySURvVzFobWJ4dXBQVEtDRG5MX2hQRU5EZ1B2VE1WUHBvSDVha1F5VTRkNDJrSTRFVGtpSGs4SksxWlhiX0MtczVUamc?oc=5) |
-| Trump and Putin Could Decide Others’ Fates, Echoing Yalta Summit - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPb3N5MUZSVGJfMmFpd1NrWHRqVllxMjVmNkRLdFZhWElfQVItTGdZY0ZiU09pWkROVGxnbHlFR3BFVnhfRWtoSjVJWjJqMGJSTkIyam5jMmNLRnYzWXY4WHYzS09ad19QQ3FDUUxWVEMxa3NDay1OMlRSWklPWlNpeFRHZmEzZk1pSjJLeUZ3?oc=5) |
+| Trump told Zelensky he wants ceasefire from Putin summit - axios.com | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxObzdIY2xiZ3IxeW9PWkZPYld5cER0djkzandnU3pRM2kzMm9xSFFhYnlfZHM4ZmFiX0tCUmpxRXVidkt1YTJFdVlWdkpaYWdHblhKTDNmM2VJVnA4a1BkRFk4aFNGSDBrYVdTR0s2QzA2dnNMeDdoRjFzd0pqX1hERA?oc=5) |
 | Alaska’s Juneau orders evacuations as record glacier flood looms - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNdXN1YVBVWll4TC0xTC14cmlvcFRWMEd2SHU5UWpGN2ZZNVlWRTRUVl83VGhvdGFBYU5JczEwRklnMnFCMXNuN1lyQXBqMWdsQ0hJOXpqci1DWDB1eXNvQlM0MlVWbE5jVW4zMF9NTWh6US1YSnpZblBhZUh4YzN2aElDT1VQT2xLNjZSdG1IbWl1Q0JGMlE?oc=5) |
+| Trump and Putin Could Decide Others’ Fates, Echoing Yalta Summit - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPb3N5MUZSVGJfMmFpd1NrWHRqVllxMjVmNkRLdFZhWElfQVItTGdZY0ZiU09pWkROVGxnbHlFR3BFVnhfRWtoSjVJWjJqMGJSTkIyam5jMmNLRnYzWXY4WHYzS09ad19QQ3FDUUxWVEMxa3NDay1OMlRSWklPWlNpeFRHZmEzZk1pSjJLeUZ3?oc=5) |
 | Inside the mine that feeds the tech world - and funds Congo’s rebels - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQQy1KeElnck5GM3pMbm93U2k2SUlaMzdrbHZGdnpjWEo2Q0FnY05RQy1MdHN5UnctODF6d2psOVJwWU9xQ2RUMmNGWjc0ZktqbHNXSkZONnRRcEpZa0RsNGcxTTZYZXMxMlFhZVdjT0gyNGRuUk1kTHdQT2VHMWZHZ002T2hvYVBSWHZUTFBPMEpXSUMwNW1FVjVqbzZ0aVZMN2FEZlBPOA?oc=5) |
 | Tropical Storm Erin path shifts, but still forecast to grow into major hurricane, NHC says - Orlando Sentinel | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQLVJkS0tnV3AyVkNzczNJd01fVzNaRlEwY2Z5QjNNUXRGaDB0bUxaY1JuOFZPcGNaWU9FTDdlWERFaFVwb21idVkxbGY5Q3Q4eVpZY3RLcjBKQ000WlNPcXRJTk14UGlVRTBqR0FxdTlvdVlmeElXUk55bFJQT2dPTlBKdlB2RlJ3UTFraDdDUS1meVBVTlprelBod0wxOUE?oc=5) |
 | How a U.S. Senate Race Is Shaping the Fight Over Redistricting in Texas - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNWFhrSFQxcXVuc0NscWdhMm5PRHdoUS1LNjlOVFM2dzRZMUt2VHpMQ3U3a0lZUEhvSmJLdW9Jcm1BNXBobEZIbG1jOUkzV3FfTkttajk4REg2bHBCRlFRWFBGVWVxRzlNRkktT0x3QXhTcUtsNHJxcHphVmVQa1ROckY5Q0E?oc=5) |
