@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月14日 02:52:59（北京时间）**
+🕒 更新时间：**2025年08月14日 03:01:58（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Zelenskyy: Trump supports ceasefire and security guarantees for Ukraine at Putin summit - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNSEFXMDVxbzl0Mi05ZVpqWDhpM3hxdFozZW0zRkV5a0FVbWhzVzJBNThWWW11RFR1bzdYWU1QZFpZbFV6a3RidUlCLUJibUdLYnRTZndFYzVqNVZ4WmhJWXRFZF80ZXJINFY0SmRHa1pEV20zQTREWlpUSmZUUTktRVA3WklIYUx5RURESXR5QkpydUNTQVE?oc=5) |
 | DC Mayor Bowser changes her tone on Trump as crackdown ramps up - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOUU8yS2tRc2E5WDI5SFdWemg0ZVdZMGlzMW9hbFVEVDhSb2xSS1RyeC1qVmlDQ1pUOFA5TEdUY0hxcDZMNjNpZE40TzAzbWU4QjdTSVNxYWdpRU83emhHRWRZWDBYRWZJQmI4SXNyYmZVSE1ZX2pBN0pQTEtOS19pWFpR0gGHAUFVX3lxTE9CbUpEaUMwWU5TZm9uTVdpRkhsbnJaNHItZnFldVViOUpMRWxrUFBrV2FnTnFzcVhMUVJXUVlURzQ3VC1ZMHpSeF84SENtbk5abXljemdlbkdHZWthaUVOVjhWejVzdTJVVURPc0NCMW55Tm1jTFFfdFZhaHRPNGhIdDJHYW5HQQ?oc=5) |
+| Zelenskyy: Trump supports ceasefire and security guarantees for Ukraine at Putin summit - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNSEFXMDVxbzl0Mi05ZVpqWDhpM3hxdFozZW0zRkV5a0FVbWhzVzJBNThWWW11RFR1bzdYWU1QZFpZbFV6a3RidUlCLUJibUdLYnRTZndFYzVqNVZ4WmhJWXRFZF80ZXJINFY0SmRHa1pEV20zQTREWlpUSmZUUTktRVA3WklIYUx5RURESXR5QkpydUNTQVE?oc=5) |
 | Alaska’s Juneau orders evacuations as record glacier flood looms - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNdXN1YVBVWll4TC0xTC14cmlvcFRWMEd2SHU5UWpGN2ZZNVlWRTRUVl83VGhvdGFBYU5JczEwRklnMnFCMXNuN1lyQXBqMWdsQ0hJOXpqci1DWDB1eXNvQlM0MlVWbE5jVW4zMF9NTWh6US1YSnpZblBhZUh4YzN2aElDT1VQT2xLNjZSdG1IbWl1Q0JGMlE?oc=5) |
 | Newsom says California to draw congressional maps to 'END TRUMP PRESIDENCY' - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNQW9ETGhFVDdUdUFBVjRodUl2TGYtN25XWDVyR3JhdUxKSnVSTXVkUnNXbU1ySnc0ckFfX0VnWXVNS213Y3U4NWNJVDRVNzd4MHZzN2xZaXVaNmkzWmJxc0hycXJiMHFEMUx5bGpYYzhVdXVMenl3cWZIOUs2ZDRBbkxtY2VDWVIwTDZsYmJpdTZlLUctZ1RwZ21ocjdnZ2fSAaQBQVVfeXFMT0dMaDdHdVlyemUxUFR2YXktX1RPT3ZWeEZqODJOMnhFNmtrUkxRdEJzQlN4S29xeHdUVlcya2E4amVKZmJ2SkFyYnh3T050aVpKbVBFeDBoRHpNR2dYV2VtdTZlRHNOdzU0QXZqeDVtRVJBTV9KVnl1Ry1ha1ZuODJhZkp3ek9Fd3R5cVo4cTMtQV9fSXRvM1dxTzZaMnJmVzQweWU?oc=5) |
 | Tropical Storm Erin path shifts, but still forecast to grow into major hurricane, NHC says - Orlando Sentinel | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQLVJkS0tnV3AyVkNzczNJd01fVzNaRlEwY2Z5QjNNUXRGaDB0bUxaY1JuOFZPcGNaWU9FTDdlWERFaFVwb21idVkxbGY5Q3Q4eVpZY3RLcjBKQ000WlNPcXRJTk14UGlVRTBqR0FxdTlvdVlmeElXUk55bFJQT2dPTlBKdlB2RlJ3UTFraDdDUS1meVBVTlprelBod0wxOUE?oc=5) |
