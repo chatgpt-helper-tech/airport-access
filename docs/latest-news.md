@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月13日 23:14:27（北京时间）**
+🕒 更新时间：**2025年08月13日 23:27:45（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | More than 140 people report crimes to Al Fayed investigation | [阅读全文](https://www.bbc.com/news/articles/cy40r9419kdo?at_medium=RSS&at_campaign=rss) |
 | Lammy admits fishing without licence on Vance trip | [阅读全文](https://www.bbc.com/news/articles/cg7jdkmvvv1o?at_medium=RSS&at_campaign=rss) |
 | Model with Down's syndrome to make Strictly history | [阅读全文](https://www.bbc.com/news/articles/cly3318nrmpo?at_medium=RSS&at_campaign=rss) |
+| London chess prodigy, 10, becomes youngest female international master | [阅读全文](https://www.bbc.com/news/articles/crlz56n9798o?at_medium=RSS&at_campaign=rss) |
 | I had knife pulled on me in migrant camp, says shadow home secretary | [阅读全文](https://www.bbc.com/news/articles/cx2xj7g8vj0o?at_medium=RSS&at_campaign=rss) |
 | Average mortgage rates below 5% for first time since Truss budget | [阅读全文](https://www.bbc.com/news/articles/c4gzv41kw3jo?at_medium=RSS&at_campaign=rss) |
-| I cleared my £13,000 debt with TikTok earnings | [阅读全文](https://www.bbc.com/news/articles/crmkyzvy4m8o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -28,9 +28,9 @@
 | Trump and Putin Could Decide Others’ Fates, Echoing Yalta Summit - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPb3N5MUZSVGJfMmFpd1NrWHRqVllxMjVmNkRLdFZhWElfQVItTGdZY0ZiU09pWkROVGxnbHlFR3BFVnhfRWtoSjVJWjJqMGJSTkIyam5jMmNLRnYzWXY4WHYzS09ad19QQ3FDUUxWVEMxa3NDay1OMlRSWklPWlNpeFRHZmEzZk1pSjJLeUZ3?oc=5) |
 | Evacuation warnings intensify in Alaska's capital with record glacier-related flooding predicted - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQajdFU21SRnlqS1Fuc2JzcXBJc3dSZmxoUm9JcWt5aDZ0MHduNEFqSkhGblA1S0lCUmZzNWVrUlBQTEEzV1hxT3VWMDNaZzhycFd5dVd4RE9qQXRDZFZJVy1fSzlGQVd5SHk2cTdfai03WW9CODNlbmhqcV9HY3otd0ppNGN0d2x4YnBpYzVKTHUtSGNOc2t5UXBBVWlNV05pMTA5WUx2UDJvaUVGOFlaNFNEeGTSAboBQVVfeXFMT0RjS0FYaDNPM3VNcW1wWUZiX2haUXRUNk9NZkdpOEJCam9pWFF6aHdvVGhWV2xfZ3Jrblh1cGI4d1dKczRtMkVkbVV1c25yUi1Id0p3Y0dBYUJsOXRiSmlraWlFOURObWx3N3U2OEF1OEpDWFRqU2YzaXp6amhBYlp3OVpKVzdiT0ZSYUxvVFVieHc5aHByWVB4ZU5vVkhvNGNyaFhIQzRQalZOOWdOckRNSmJmRVBDdm5n?oc=5) |
 | Newsom says California's new congressional maps will take down Trump - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNQW9ETGhFVDdUdUFBVjRodUl2TGYtN25XWDVyR3JhdUxKSnVSTXVkUnNXbU1ySnc0ckFfX0VnWXVNS213Y3U4NWNJVDRVNzd4MHZzN2xZaXVaNmkzWmJxc0hycXJiMHFEMUx5bGpYYzhVdXVMenl3cWZIOUs2ZDRBbkxtY2VDWVIwTDZsYmJpdTZlLUctZ1RwZ21ocjdnZ2fSAaQBQVVfeXFMT0dMaDdHdVlyemUxUFR2YXktX1RPT3ZWeEZqODJOMnhFNmtrUkxRdEJzQlN4S29xeHdUVlcya2E4amVKZmJ2SkFyYnh3T050aVpKbVBFeDBoRHpNR2dYV2VtdTZlRHNOdzU0QXZqeDVtRVJBTV9KVnl1Ry1ha1ZuODJhZkp3ek9Fd3R5cVo4cTMtQV9fSXRvM1dxTzZaMnJmVzQweWU?oc=5) |
-| Tropical Storm Erin to become a hurricane within days with turn away from U.S. more certain - Sun Sentinel | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPNk93eGlGTnJrOXNGMFJfM2ZxZmltR0wtQkdOSWlQeWhOdGp3Vmg3X1ZUSmIwcnNUdTVKMWdHU3haRS1HNk9ROW5HZjNhM3lvWmNjUUJXQ0hKXzlSRzdoM191STVSSjVPVS1SN21jaldoQ1FwM1B5MUZqNldlRjVHNGU2UkdWeEdCd2NQQ1YxWVNXa1FsRHc?oc=5) |
+| Tropical Storm Erin path shifts, but still forecast to grow into major hurricane, NHC says - Orlando Sentinel | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQLVJkS0tnV3AyVkNzczNJd01fVzNaRlEwY2Z5QjNNUXRGaDB0bUxaY1JuOFZPcGNaWU9FTDdlWERFaFVwb21idVkxbGY5Q3Q4eVpZY3RLcjBKQ000WlNPcXRJTk14UGlVRTBqR0FxdTlvdVlmeElXUk55bFJQT2dPTlBKdlB2RlJ3UTFraDdDUS1meVBVTlprelBod0wxOUE?oc=5) |
+| Parents and child killed when tree falls on car as heavy rain and flooding hit Tennessee - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQOFlQUUFJcUtEQnBTX3BpN2JHZjV1WE44R1MtRU80VjRNSFo0LW9ubjZpRGVfNm9URVh6a2E1WjJmNVZNdTJBbzJ4bmxNdkNPTUQtdnNZOVVSRG5ONEVfVHlodkZSM2JJMjlZd1NkNjFxdkZ1UnRoanlra05TUjNpWlNRN29yTFd1VGlvU2QyWXctSWktLTVR0gGcAUFVX3lxTE9KU09CNkNVajVjZFlSYlZyWk9GQnc0WVhEZ2tRdVpyOHFZa1FjLXotdFFwai1fQ01sWHhGc1NxY2RRNEppendWRmFGUjdjZHlCcjB4Z1VDVnlremtET1pmcFlGYjd1ZjRaSVBiVXZ0VWpDeUFXbkYydUtzRWlmQmVVMFRxYzl4c3pVemZ2SXJIQnVtZWMwZjE0Nlc2dg?oc=5) |
 | What newly released videos and records reveal about the Uvalde school shooting - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNdlRxZEZzYTFMRl91Rk5oaWRtVEdMMEs2T19FbjdLNHdKVVdQd2VEUi1CVGZCVmtzQkxWamZHQmNMbDVNcmJVanhoTnBfREVmUlJ6ZzQwbXh3NXp3UkZKaUNWRWgxRFBqTEZHWTNfNTZXSjh1MktlSERvSTNWLWwzWW5sV09WZUpfR3pTZ0FBOXZYZXlPOGx0aGR6Wjl6RVctX3BUTVQ1bTRkUEk?oc=5) |
-| Parents and child killed when tree falls on car amid heavy rain, flooding in Tennessee - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNbDgwYmszTkN4ZTJ4MEg1RlhvWm5wbjQ3a2NGQkdlbURSSm1NMC0yMUlBd2NtTW51V3U3UnFfbU4yUWtRMjdnQ1phU3dvcDROdzkzQ3hkRGIyUEMtMVFKRTdGQUhxNndWcVltdVV6ZjRPRUd5ZWpYakwyUDZhd3ZBaG1hTlc5SU9BWE5tUG1ydV9SaXhwQVJqZGhQVHBlV3lvQkswenIxNlc5WVRVX1Z3?oc=5) |
 | How a U.S. Senate Race Is Shaping the Fight Over Redistricting in Texas - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNWFhrSFQxcXVuc0NscWdhMm5PRHdoUS1LNjlOVFM2dzRZMUt2VHpMQ3U3a0lZUEhvSmJLdW9Jcm1BNXBobEZIbG1jOUkzV3FfTkttajk4REg2bHBCRlFRWFBGVWVxRzlNRkktT0x3QXhTcUtsNHJxcHphVmVQa1ROckY5Q0E?oc=5) |
 | Drone video shows great white shark lurking near popular beaches in Maine, prompting police warning - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE4zWjZtSmY2TkV2d294T0FxMzJQVTV1NjhNS2c2SXZKaV9YblBuNmp4UkJXdWZfY3BLZlFuR0VZeUtwNGdVYWIyWW5ZTW5QQjhyUmNETURhUGdYTFlxa2RJaXVJcjJEYkxweEludXhZTUtzcERqUEFxNkR5QmFkdFHSAYQBQVVfeXFMT1RTM0tvaUd3TUdQeHNZTXpSWlJhZTZCRWd6NGlNZlhCQU4tLTk2UzQ3ZHRjR3QzcThQWktnUUFMS1Qwd3hrdC1udkt6bGlwVEdldHVxbi15Z3NqNDRjZ3VIUHVhNzRnR3BrSUl6Q3FodjZSLXJfU25kVTdiX3FSUVJRQWFu?oc=5) |
 
