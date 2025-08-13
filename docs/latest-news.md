@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月14日 05:52:07（北京时间）**
+🕒 更新时间：**2025年08月14日 06:01:20（北京时间）**
 
 ---
 
@@ -16,16 +16,16 @@
 | Three children in court accused of man's murder | [阅读全文](https://www.bbc.com/news/articles/cgr99lkjlk4o?at_medium=RSS&at_campaign=rss) |
 | Porn site traffic plummets as UK age verification rules enforced | [阅读全文](https://www.bbc.com/news/articles/c17n9k54qz2o?at_medium=RSS&at_campaign=rss) |
 | Students face nervous overnight wait for A-level, T-level and BTec grades | [阅读全文](https://www.bbc.com/news/articles/c15lv2xxyy5o?at_medium=RSS&at_campaign=rss) |
+| Cherish bonds of love and friendship this summer, says Kate | [阅读全文](https://www.bbc.com/news/articles/cdd3r78zem9o?at_medium=RSS&at_campaign=rss) |
 | Lammy admits fishing without licence on Vance trip | [阅读全文](https://www.bbc.com/news/articles/cg7jdkmvvv1o?at_medium=RSS&at_campaign=rss) |
-| Gaza talks to focus on releasing hostages all in one go, Netanyahu hints | [阅读全文](https://www.bbc.com/news/articles/c9vd734vv0yo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump's D.C. crackdown is 'very problematic,' says former Capitol Police officer - NPR | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE51aDQyMkVYeWNKYWo0YVJDMkFYVUxtWXJuc3BpYV9SckJMU2RCQ3ZQTmFCVC1UckVmN2NsTXVLMGU4bGJyU0dJRjRHYzlOTTA1LUdleFdXRXN6Y0xpRlBheDBzaGw2UFFvWEN4MzJSamoxdUhucGlsNnplYVdPZGc?oc=5) |
-| Live updates: Trump warns of ‘very severe consequences’ if Putin continues Ukraine war - AP News | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE1VUU1MWTByUDA1TDJNa2dEZnczcUdKQ3E0UlNjbUJIdXRVZWUtRkdUWmJoQ3RPLXNHWVN4SXlHM2twZ19abkp5VzE3YUg3TU9GT3dCcDZseWd4dkRLUHdCZTItRnoyTWZ3b2Ew?oc=5) |
-| Appeals court ruling will let Trump administration cut billions in foreign aid - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQdnVIeS15RnZNaVc5cmlsSGNsbEhZZnVtd3dpNVllSE52NWltUGRqVHRVSVpTNzM4YlB1ZUZ4bDNSUVQzdzVCa0dyVHRFTUVrNlBwemFSQUpJVTV1Q2kyc215OUl2RVNUMWZQU2FzemdRWU9haFMyZXRIZDBvS2VnSndrX2lIQV9lNXgwM29ZMWhCYmpKOEgwQ2t1YnNrb3Bzd1pQVVIyTGszNUXSAbABQVVfeXFMTVVpZk5hT2tzeGdSNWUxMWZ0RjI2aENVd3owT3FIR3J3NVNhR2g3UEYxeDg2ZHR5Tl9OcmhnZTVVaUNRSVJOODdKRFhvOGlzQzdYUDVERXZJTXlyaFRncjBwcTdTcWp1MTF2Z1k5MmFNZVNNejM4ZVpUVVdSWDlrTXh5S1RSOTU2NkFWeFZaa29rX0N3Nnl0Y2xTcXRFTm9uTW93UWxMMXdFZmwwU3pJenY?oc=5) |
+| Trump: "Very severe" consequences for Putin if he refuses ceasefire - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxObzdIY2xiZ3IxeW9PWkZPYld5cER0djkzandnU3pRM2kzMm9xSFFhYnlfZHM4ZmFiX0tCUmpxRXVidkt1YTJFdVlWdkpaYWdHblhKTDNmM2VJVnA4a1BkRFk4aFNGSDBrYVdTR0s2QzA2dnNMeDdoRjFzd0pqX1hERA?oc=5) |
+| Humanitarian groups cannot challenge Trump’s impoundment of foreign aid grants, appeals court rules - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi4AFBVV95cUxQZzRCTFVPanlfenctTDBfdFVVUHlnUi1WakdZaFdURGgyQ0RKRmNORzRraXNZVXVlVFFxOWJKb1FKalRXV2RkWUxFNTc3RGJLTVJPWG1CS0JTRXNEaEs4VGlSNzhXOGFKaW1EWEJ1aFJURVluempVNFQ0V1Y1OHFfQ1FXZ2k4MWVzOHBfSGVTZUdoOFlwd0pzYlhuWWNNMEtQU2NiLXVBV2RUOGVUUWEzYzZ2SEdZby04VWNEVzZMYmkxUXNfZUVvVHF4dnlmei01M1g3YWNfMGdQdmZBS3hJTg?oc=5) |
 | Alaska’s capital orders evacuations as record glacier flood looms - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNdXN1YVBVWll4TC0xTC14cmlvcFRWMEd2SHU5UWpGN2ZZNVlWRTRUVl83VGhvdGFBYU5JczEwRklnMnFCMXNuN1lyQXBqMWdsQ0hJOXpqci1DWDB1eXNvQlM0MlVWbE5jVW4zMF9NTWh6US1YSnpZblBhZUh4YzN2aElDT1VQT2xLNjZSdG1IbWl1Q0JGMlE?oc=5) |
 | Tropical Storm Erin tracker: Forecast to strengthen into 1st Atlantic hurricane of 2025 this week, as latest projected path is updated - yahoo.com | [阅读全文](https://news.google.com/rss/articles/CBMioAJBVV95cUxPcjkxRHhKMWdYVW9SVFFoenozMmxDUHBwU1hPM1FvbE1INU1zYXZMYjdPYktjUWprSVFNSUlMbWxYNVJpZWVWbk5EdkMwbS1tYURjZEdKZjVhMllBWDFGWnFDTVRkMUJVNV82VERqdjVkZlJIUFpSbVhrQ2RCTTV5VkhFUExMWENrdUhZQ2h1djdpbXM4THZpeGtVSUl4bEYwc20tTzJ1OW5VcWMtRU1jNWRTbDlIMHk2Z2JuZy1qMGY3amx0TnJKMmVHS2h1WmZ3cTBTMjNNeVZESl9qbDZsSWJBSVc5TEdZMFNuMENkeDZnbzYtOWxjVFlYV3N5QS1iTDJ3WmVJVzRVcVhvNEJ2Z1BWcVNKNHdhMHp1cTNFdGE?oc=5) |
 | Falling tree kills parents and child in car as Chattanooga flooding prompts dozens of water rescues - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQSlhPbXlFdkZ5d0JaT29uVWloNURvUGh3NjJYTm1LX3Y2eGZVcW5iR1VCMVVWQkdmWWY2ODYxWm5mSl9VRC1wd0EydWdYVklpRTJNODN1c21RcXI3YmJnaXozTV9xeEFuWnFJZHVqWmJaVElDOVNndE5nakYwaTE2dTZGR3liVVNNYnB0dzFpLVJfMG1lM2tMWkl1ckthMW5MUmJn0gGoAUFVX3lxTE9jNlVrUklBZWFFSkpPUW5xdHo3bnU2WGVUcTZHUklQb2R3TWxuOEY0N245bGd5aVdnc3hjaXZxWlJOUDdxYk1aZy1MQUFUenhsNFJuTUJ2TmNQYWtTSUljNUwwZmZTNTlOVGZkSHRvQzluSHpHa1RhVWV3WTd0WFpXVjVCTmZNelZiWWRabXVMTWNOSWFQTjZMQ3lETHVuVzVjQWFGR2h5Zw?oc=5) |
