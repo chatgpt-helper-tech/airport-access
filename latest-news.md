@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月13日 13:13:08（北京时间）**
+🕒 更新时间：**2025年08月13日 13:26:01（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | The deadly cancers left behind by 50 years of success | [阅读全文](https://www.bbc.com/news/articles/c5ypkrzyxd1o?at_medium=RSS&at_campaign=rss) |
 | The UK car industry is at a crunch point - can it be saved? | [阅读全文](https://www.bbc.com/news/articles/c23p028p200o?at_medium=RSS&at_campaign=rss) |
 | Thirteen children died after falling from windows in six years | [阅读全文](https://www.bbc.com/news/articles/cqjyype0yn5o?at_medium=RSS&at_campaign=rss) |
-| Inside Australia's billion-dollar bid to take on China's rare earth dominance | [阅读全文](https://www.bbc.com/news/articles/cgm2z91mvlvo?at_medium=RSS&at_campaign=rss) |
-| National Guard troops appear in Washington DC as mayor rejects 'authoritarian push' | [阅读全文](https://www.bbc.com/news/articles/cy7ypm6zxp2o?at_medium=RSS&at_campaign=rss) |
-| AI can make us UK's biggest firm, Rolls-Royce says | [阅读全文](https://www.bbc.com/news/articles/ce8772d4jzgo?at_medium=RSS&at_campaign=rss) |
-| Government expands police use of facial recognition vans | [阅读全文](https://www.bbc.com/news/articles/cj4wy21dwkwo?at_medium=RSS&at_campaign=rss) |
 | Call for free bus passes to help under-22s into work | [阅读全文](https://www.bbc.com/news/articles/c9877kg42wjo?at_medium=RSS&at_campaign=rss) |
+| National Guard troops appear in Washington DC as mayor rejects 'authoritarian push' | [阅读全文](https://www.bbc.com/news/articles/cy7ypm6zxp2o?at_medium=RSS&at_campaign=rss) |
+| Nuclear-powered AI could make Rolls-Royce UK's most valuable firm, says boss | [阅读全文](https://www.bbc.com/news/articles/ce8772d4jzgo?at_medium=RSS&at_campaign=rss) |
+| Government expands police use of facial recognition vans | [阅读全文](https://www.bbc.com/news/articles/cj4wy21dwkwo?at_medium=RSS&at_campaign=rss) |
+| Inside Australia's billion-dollar bid to take on China's rare earth dominance | [阅读全文](https://www.bbc.com/news/articles/cgm2z91mvlvo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
