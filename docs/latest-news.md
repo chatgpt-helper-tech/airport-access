@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月13日 22:40:58（北京时间）**
+🕒 更新时间：**2025年08月13日 22:53:10（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | What newly released videos and records reveal about the Uvalde school shooting - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNdlRxZEZzYTFMRl91Rk5oaWRtVEdMMEs2T19FbjdLNHdKVVdQd2VEUi1CVGZCVmtzQkxWamZHQmNMbDVNcmJVanhoTnBfREVmUlJ6ZzQwbXh3NXp3UkZKaUNWRWgxRFBqTEZHWTNfNTZXSjh1MktlSERvSTNWLWwzWW5sV09WZUpfR3pTZ0FBOXZYZXlPOGx0aGR6Wjl6RVctX3BUTVQ1bTRkUEk?oc=5) |
 | Parents and child killed when tree falls on car amid heavy rain, flooding in Tennessee - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNbDgwYmszTkN4ZTJ4MEg1RlhvWm5wbjQ3a2NGQkdlbURSSm1NMC0yMUlBd2NtTW51V3U3UnFfbU4yUWtRMjdnQ1phU3dvcDROdzkzQ3hkRGIyUEMtMVFKRTdGQUhxNndWcVltdVV6ZjRPRUd5ZWpYakwyUDZhd3ZBaG1hTlc5SU9BWE5tUG1ydV9SaXhwQVJqZGhQVHBlV3lvQkswenIxNlc5WVRVX1Z3?oc=5) |
 | Drone video shows great white shark lurking near popular beaches in Maine, prompting police warning - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE4zWjZtSmY2TkV2d294T0FxMzJQVTV1NjhNS2c2SXZKaV9YblBuNmp4UkJXdWZfY3BLZlFuR0VZeUtwNGdVYWIyWW5ZTW5QQjhyUmNETURhUGdYTFlxa2RJaXVJcjJEYkxweEludXhZTUtzcERqUEFxNkR5QmFkdFHSAYQBQVVfeXFMT1RTM0tvaUd3TUdQeHNZTXpSWlJhZTZCRWd6NGlNZlhCQU4tLTk2UzQ3ZHRjR3QzcThQWktnUUFMS1Qwd3hrdC1udkt6bGlwVEdldHVxbi15Z3NqNDRjZ3VIUHVhNzRnR3BrSUl6Q3FodjZSLXJfU25kVTdiX3FSUVJRQWFu?oc=5) |
-| White House calls for a 'comprehensive review' of eight Smithsonian museums - NPR | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5mQVIwN2pIWVhIc3JMTXVWTkljNlRqQkxUOE1IRllDcG96clhCQUZEdGI4LU1mZVlHSy1MSW16N0VqT1VqNVlFTWFPal9mNW41aENSd0U5RzhJTGE0SjlsUTZVNWdIQVZvTUFLSWctcEpxd1h3d1VKYQ?oc=5) |
+| 26 Fugitives Wanted for Violent and Serious Crimes Returned to the United States from Mexico Including Leaders of Foreign Terrorist Organizations and Alien Smuggling Organization - Department of Justice (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPWW5PbzA3NG11NkV2MXF5anhGeGp5VGxqRjhwdVVNdWVwbG1aeWlSOG5Va3VWSV8yQ2ZyTTNBMmNzSjhtNC1EdEE1U0REdVlGY3pIeU1sN0xrNGhvZUQyRi1BSm1QXzFRSmpERWsxbkJpRW8zSWlMeWRMRnNpbVBJcF81YUZkXzFNUEltNG9pM3R6Y2k4aThKLXBQV0tyY3FlcDFsYTBUOE1JMWIyVHc4d1NTUlJURkJWekdv?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
