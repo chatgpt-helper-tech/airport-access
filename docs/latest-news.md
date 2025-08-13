@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月14日 05:27:28（北京时间）**
+🕒 更新时间：**2025年08月14日 05:40:29（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Tropical Storm Erin tracker: Forecast to strengthen into 1st Atlantic hurricane of 2025 this week, as latest projected path is updated - yahoo.com | [阅读全文](https://news.google.com/rss/articles/CBMioAJBVV95cUxPcjkxRHhKMWdYVW9SVFFoenozMmxDUHBwU1hPM1FvbE1INU1zYXZMYjdPYktjUWprSVFNSUlMbWxYNVJpZWVWbk5EdkMwbS1tYURjZEdKZjVhMllBWDFGWnFDTVRkMUJVNV82VERqdjVkZlJIUFpSbVhrQ2RCTTV5VkhFUExMWENrdUhZQ2h1djdpbXM4THZpeGtVSUl4bEYwc20tTzJ1OW5VcWMtRU1jNWRTbDlIMHk2Z2JuZy1qMGY3amx0TnJKMmVHS2h1WmZ3cTBTMjNNeVZESl9qbDZsSWJBSVc5TEdZMFNuMENkeDZnbzYtOWxjVFlYV3N5QS1iTDJ3WmVJVzRVcVhvNEJ2Z1BWcVNKNHdhMHp1cTNFdGE?oc=5) |
 | Falling tree kills parents and child in car as Chattanooga flooding prompts dozens of water rescues - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQSlhPbXlFdkZ5d0JaT29uVWloNURvUGh3NjJYTm1LX3Y2eGZVcW5iR1VCMVVWQkdmWWY2ODYxWm5mSl9VRC1wd0EydWdYVklpRTJNODN1c21RcXI3YmJnaXozTV9xeEFuWnFJZHVqWmJaVElDOVNndE5nakYwaTE2dTZGR3liVVNNYnB0dzFpLVJfMG1lM2tMWkl1ckthMW5MUmJn0gGoAUFVX3lxTE9jNlVrUklBZWFFSkpPUW5xdHo3bnU2WGVUcTZHUklQb2R3TWxuOEY0N245bGd5aVdnc3hjaXZxWlJOUDdxYk1aZy1MQUFUenhsNFJuTUJ2TmNQYWtTSUljNUwwZmZTNTlOVGZkSHRvQzluSHpHa1RhVWV3WTd0WFpXVjVCTmZNelZiWWRabXVMTWNOSWFQTjZMQ3lETHVuVzVjQWFGR2h5Zw?oc=5) |
 | Democrats who fled Texas to block the GOP's redistricting effort plot their exit strategy - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPSmJlU2JUNUpuU3pmRFY1SUNkb3JfeTJudlBHczlOdWprWWpWRzlUU09hOUU3a1NYcjFmbkZVLTlYeVRxMWtCTi15MXRrU3lNa29jeWN0YzdFM3VOMlp1M0daWFIweElEVndpYWtYTlo2dzJ1LUx5RTVSYk1aNFB0a3F4cjd4MV9jMWYyVmFNelRndTM5bzhlQ2ZBTkJNZGVhT1FTSmpzcDhFWE5QcEE1b3JxLXRNQ3NyX2piZno3YzQyZ9IBVkFVX3lxTE0wVFUybUo4SWdNWlI1bWZkSzlLMTZUVUgzWUdEYU13OW5CdE4zT1NoX1lDVjg4V3JrYjBfc2ZXemV5OC1kLVpGdlJIREZ6LTBScEgwSU5B?oc=5) |
-| Trump on suspected Russian court hack: "Are you surprised?" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE8xcGZjNXJLMi1hTWtqZjdIVUhDODZteG1FcW9ZZ2ctMk5LY2YzbE5GdU5ZQXdPcEF0Nkp6R0JXTGExWmkxU0o0am45Z2UxZUM5ZzBMVVc5Ukg3eHlWYmpCaVo4VEswNGItQVhNa09oVVd0bGY5VHZBV2F1cw?oc=5) |
-| Florida Approves First Black Bear Hunt Since 2015 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1RN2cyRy1nLWljUjNyWTVxMERjbTIwbGpQRG4yRllwVGg1TUY5U1R5N0lJY3dBSnk3V3k2Ukh5SWxMa3JqT2ZWdW91SzVkMTRvcHpDVzluelE4ZE5pekFVTlM3dXVueXd3ZXkxcTdha0djck5I?oc=5) |
 | Judge to hear arguments on halting ‘Alligator Alcatraz’ construction over environmental concerns - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNcWY3NzZaSm15Q3Bqd3pIcXdyeE5hcFVFeXZuZGZ0WWlMUUpOMlZuTXo5R2RqOEU2M1NmWmI2WEgyNkt4dl9TbzZOT1ZkQ0U0a0g4RmZEdXdnNzY2LXktVnl4aG1VVVpMdXlfenQ5Slp6aW1OclBIVWZfRXRWY3BpRFl30gGHAUFVX3lxTFByQlNyMjRCMUQtdnpIeEVNZzI0dW5INTdDbE4wQ1ZqbXctc0FMTF8tZ3pQYUd6cDBnQ2lKSk1tLW4xRXVqeWdqOXN4a1dacl83V0Q3T1Zwb0tfYlA2Q214d2Q0UGxWTy1vemlXZnB2YTdkeVhhbDBJR3hHMHlNMnM2cWtyQThDSQ?oc=5) |
+| Proponent of Medicaid cuts set to brief House Republicans as they plot another megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQU1A4allCa3JTR0RiQ3FUcHBjVlZhY1VYY3VrX1VCYTZuTnJ2dmlwNWg1UERZSHlxdEQyNUk0REJVOGpHQ1ZZdGkzMVVyeW54eVpqcmJwWVFsZ3FpVG9xWjExdWtHU1d6Q3N2bEo2XzZlbTNnMWkzcjB1N2s0Rlc5VkVxbHlUOHJC?oc=5) |
+| Trump administration's lawsuit against all of Maryland's federal judges meets skepticism in court - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNTlNNa1NuQ1E5TjBWM1dJZlNZTTl2ZDRyYVplV3YteXhDbkpybE5PUlBCTkF5RmtMT1ZUSFR0YTFGdFIwUnpfMGJZN0JEZ1NVQ3dmWmNkekZ3clVzTTF2Q1RHYmE5MkZtZGdXYjlVQkJFVWhndmpkNFh5TEoyNlRyWmtrQ1lXak9JanhUQk1McW5qaVVtTXh4WFN2bmdXZUd2MDlR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
