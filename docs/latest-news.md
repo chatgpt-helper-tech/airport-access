@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月14日 15:40:39（北京时间）**
+🕒 更新时间：**2025年08月14日 15:52:12（北京时间）**
 
 ---
 
@@ -12,10 +12,10 @@
 | Humanitarian groups call on Israel to end 'weaponisation of aid' in Gaza | [阅读全文](https://www.bbc.com/news/articles/cj6ynz22871o?at_medium=RSS&at_campaign=rss) |
 | ADHD drugs cut risk of suicide, car accidents and criminality, study suggests | [阅读全文](https://www.bbc.com/news/articles/crr2j792drro?at_medium=RSS&at_campaign=rss) |
 | Relationship and Easter eggs - what we learned from Taylor Swift on Travis Kelce's podcast | [阅读全文](https://www.bbc.com/news/articles/cedv5dy9v8lo?at_medium=RSS&at_campaign=rss) |
-| Thirteen children injured in amusement park ride accident | [阅读全文](https://www.bbc.com/news/articles/cwy0lygv2w9o?at_medium=RSS&at_campaign=rss) |
-| After mass arrests, what happens next with Palestine Action ban? | [阅读全文](https://www.bbc.com/news/articles/c3wn5gdv0wgo?at_medium=RSS&at_campaign=rss) |
 | Melania Trump threatens to sue Hunter Biden for $1bn over Epstein claim | [阅读全文](https://www.bbc.com/news/articles/cqjyw0l9d82o?at_medium=RSS&at_campaign=rss) |
+| After mass arrests, what happens next with Palestine Action ban? | [阅读全文](https://www.bbc.com/news/articles/c3wn5gdv0wgo?at_medium=RSS&at_campaign=rss) |
 | US fugitive Nicholas Rossi convicted of rape after extradition from Scotland | [阅读全文](https://www.bbc.com/news/articles/cx27r386p4zo?at_medium=RSS&at_campaign=rss) |
+| Thirteen children injured in amusement park ride accident | [阅读全文](https://www.bbc.com/news/articles/cwy0lygv2w9o?at_medium=RSS&at_campaign=rss) |
 | UK cities face new 'firewave' risk from hot, dry summers, scientists warn | [阅读全文](https://www.bbc.com/news/articles/c9vd79x97zlo?at_medium=RSS&at_campaign=rss) |
 | Full guide to A-level results day - and grade boundaries explained | [阅读全文](https://www.bbc.com/news/articles/c07dz891gy5o?at_medium=RSS&at_campaign=rss) |
 

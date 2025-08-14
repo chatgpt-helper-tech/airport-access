@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月14日 15:40:39（北京时间）**
+🕒 更新时间：**2025年08月14日 15:52:11（北京时间）**
 
 ---
 
@@ -12,10 +12,10 @@
 | Humanitarian groups call on Israel to end 'weaponisation of aid' in Gaza | [阅读全文](https://www.bbc.com/news/articles/cj6ynz22871o?at_medium=RSS&at_campaign=rss) |
 | ADHD drugs cut risk of suicide, car accidents and criminality, study suggests | [阅读全文](https://www.bbc.com/news/articles/crr2j792drro?at_medium=RSS&at_campaign=rss) |
 | Relationship and Easter eggs - what we learned from Taylor Swift on Travis Kelce's podcast | [阅读全文](https://www.bbc.com/news/articles/cedv5dy9v8lo?at_medium=RSS&at_campaign=rss) |
-| Thirteen children injured in amusement park ride accident | [阅读全文](https://www.bbc.com/news/articles/cwy0lygv2w9o?at_medium=RSS&at_campaign=rss) |
-| After mass arrests, what happens next with Palestine Action ban? | [阅读全文](https://www.bbc.com/news/articles/c3wn5gdv0wgo?at_medium=RSS&at_campaign=rss) |
 | Melania Trump threatens to sue Hunter Biden for $1bn over Epstein claim | [阅读全文](https://www.bbc.com/news/articles/cqjyw0l9d82o?at_medium=RSS&at_campaign=rss) |
+| After mass arrests, what happens next with Palestine Action ban? | [阅读全文](https://www.bbc.com/news/articles/c3wn5gdv0wgo?at_medium=RSS&at_campaign=rss) |
 | US fugitive Nicholas Rossi convicted of rape after extradition from Scotland | [阅读全文](https://www.bbc.com/news/articles/cx27r386p4zo?at_medium=RSS&at_campaign=rss) |
+| Thirteen children injured in amusement park ride accident | [阅读全文](https://www.bbc.com/news/articles/cwy0lygv2w9o?at_medium=RSS&at_campaign=rss) |
 | UK cities face new 'firewave' risk from hot, dry summers, scientists warn | [阅读全文](https://www.bbc.com/news/articles/c9vd79x97zlo?at_medium=RSS&at_campaign=rss) |
 | Full guide to A-level results day - and grade boundaries explained | [阅读全文](https://www.bbc.com/news/articles/c07dz891gy5o?at_medium=RSS&at_campaign=rss) |
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | D.C.’s homeless begin to see the effects of Trump’s crackdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOOGROOUlsMU5QVzEzRC1DQkl6ZU0ySzdVVTJVS3ZibkhRWDRDU0ZyTWhjYnNSU2IwNFNJV2RPUzdaTnhRLTVVcDUxQnM3ZEh3YzhyaTdGVmpRWkprTHJyOEFqSXhwOGZMbmgtbFdNTVB4eHZmQzlzN0RQZTNZNlFnaTFXVUd6cHpXcjZTUl93eHFBekF4OTRv?oc=5) |
-| Trump warns of ‘very severe consequences’ if Putin continues Ukraine war - AP News | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE1VUU1MWTByUDA1TDJNa2dEZnczcUdKQ3E0UlNjbUJIdXRVZWUtRkdUWmJoQ3RPLXNHWVN4SXlHM2twZ19abkp5VzE3YUg3TU9GT3dCcDZseWd4dkRLUHdCZTItRnoyTWZ3b2Ew?oc=5) |
+| Trump to offer Putin minerals for peace - The Telegraph | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOcktWZFdYTjZZVEJONzBrbzdmU19DU1J0NnpDMUVxZ0pSa1NEdlVBNE1rdkRpR2ZKLXV3ZEJLeHl3azhtQU95QTlYOGhJV0JsTVZaMFdGMTlLTFl6Zk5nM203M25wN0hWV3pnSFY3RFdkN3dTZXdHWm1TanNPZm5DVkJMOHpNRFBfN0lDc0VmNUFlaVlrOEdhdjhDdEFIUQ?oc=5) |
 | President Trump can continue to withhold billions in foreign aid, court rules - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQX0YwTmRmWWVralo3UmFhTFZsSjBWS3g5NE1GSEtQb3F5N3RmdWFrZU1MVXpyWE5YcXQybWhCa2ZRZUYtUUpkeFRya1h0N2ZfY29Qd2phUThBYVlLNTBRRWI3MXVpUG9lQlF0N3Z6SXdnLURDLTlNeVUyN2Y2cEdOeHlQYWNMbjBuUUxuVWpDcHVtUE1PZ2twU1V2bXQzVjBqZ0ZJ?oc=5) |
 | Melania Trump threatens to sue Hunter Biden over Epstein claim - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE4yaDRiMGhrOFhNQ1VzWG9aY2tZSFd2NTUyNVJVUnpXOHN3RUxCbHBHV2xvOHBUb08zNndHbG5fQWNhV1R6bnV5bEJQcDQ4ZHpiSW51WVJkSWU2QdIBX0FVX3lxTFBXVGFLT2YwX0tYZ2ZrMnFHaDJzakNrdEh0RFVzQzRDV055dzVRNFVTN2s4aFV0eHpjLVYxQm9PcEk1OTg0aGFGa1QzbERKRmhnMGhhUUdnaEplNUtJaGxr?oc=5) |
 | D.C. man accused of throwing sandwich at federal agent faces felony charges - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQVjZCOENFVGx0ZVE2MHhTSXZYUVphTUhkZWtrcVU3dkVWWWZQUGtZcW8xcFBvU1BmdU05TWZxanlKTVRyOGh6endFMldUVTJmLVRORk93WWgzSnVKWWNaVnlvYXRDTjZFbGxfQV9zYzI0SlVJTktGN1NzR05WMzhQOWdSOEp1UQ?oc=5) |
