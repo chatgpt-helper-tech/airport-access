@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月15日 07:14:13（北京时间）**
+🕒 更新时间：**2025年08月15日 07:26:51（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | Cost of weight-loss drug Mounjaro could rise significantly | [阅读全文](https://www.bbc.com/news/articles/c5ylppp2vj9o?at_medium=RSS&at_campaign=rss) |
 | King says VJ Day heroes will 'never be forgotten' | [阅读全文](https://www.bbc.com/news/articles/cz93j78ed87o?at_medium=RSS&at_campaign=rss) |
 | Second MasterChef contestant edited out of scandal-hit series | [阅读全文](https://www.bbc.com/news/articles/c62n985gp3go?at_medium=RSS&at_campaign=rss) |
+| Dame Vera Lynn's audition records to be released | [阅读全文](https://www.bbc.com/news/articles/c78mz4g022xo?at_medium=RSS&at_campaign=rss) |
 | Teenager arrested after death of 13-year-old girl in Huddersfield | [阅读全文](https://www.bbc.com/news/articles/cj9w7y1rz4jo?at_medium=RSS&at_campaign=rss) |
-| Faisal Islam: Are latest UK growth figures good or bad news for the economy? | [阅读全文](https://www.bbc.com/news/articles/c5yp48jprg8o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
