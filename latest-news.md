@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月15日 00:13:21（北京时间）**
+🕒 更新时间：**2025年08月15日 00:26:57（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Homeless people in detention camps? Fears grow about Trump and the Olympics - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxOc3habkN3NnVyUnFjVlZFamxhVE1ua29wSC1vS0c5WjFWb2VTM3U4eXlGdVpJOTZabUw3dGdNcXQ3S19KcDA3bnFhemlXLUJvNDkzYXl2V2hoLVdfNTMybzNJRVlPenNOcWpSTmk5Rld4bW1pQUNVSlVrQkk4SGxDdlRHcTB3SEZVd09PdGpEMTd3a3FwME42V3E2TUw4QWxrUElxdkhsMlJidHRici16N0hWeGtiT3piSERGV0NNZzViMnFU?oc=5) |
 | Erin may rapidly intensify into a major hurricane. Here’s where the storm is going. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQMHZLckhqekdqX0djOHN2VlZFRVZGbGwzWWViSGRNS3FFSVBZRG5aM0xKYzNNNC1MX1NOcUwyb3dFY0FjZGFkRzV6ZlhybVRsWW9NS0RIR2Rfd3luLS16djVjRFpQRjhzSWlhM1lXeWhXT3JnRW84Sk55QXlKNGdkVGZuN011RkRHb2FNTVV3SkFIOTF1ZDUwZGxn?oc=5) |
 | California Democrats prepare redistricting effort to counter Texas GOP - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPZG9RNWZjdDA1VXc0ZUluZTI2R2o5SGNNdk96enlQeGg2X3h4SDh1a1FDNERGZjJnZnZ6d05BUlU1VXE0dTJRYURMc0ttZWdoTWZ5NWVneGxxMWtlU2RtT0FhelZWUl9TVU16VXV1RHFmODJYdFBLa01IbU5yajgwWTlaVkxqWXJhQndzZ1k5aTjSAZYBQVVfeXFMT0tONUpJUTJtaDFkcnczNzlVc1BRU2xHWUkzNTNOSEo5YTVWbEMzaXlWTDNkUDM2QkpMRDhrdXlOcU1HYTc0WXJIM1FMRjVqRzFiN3R4QkJfNmltaGN5ZVVUZm5XWUZya3JjUXlxeEpUT3YtOFQ2czVYNm1ScGRRdkhlS0M3NlY0MDBZS2w3M0RJTHY4c013?oc=5) |
+| Man Who Faked His Death and Fled to Scotland Is Convicted of Rape - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5kcTVJTEVsa3RHdEp4UlBlTktxQU1KNGNfRVNGTWQweFVfeXVtc2VGNjFSWWYxVzZBVDdodGNxdmpOeVk4SVFtZURWN1FUSVItSHRYOHZidnhsYmpiY20xbHBWcTZOZmFtS21lLUp2ajlGT2tDOW5TYTBIel9Xdw?oc=5) |
 | Teacher accused of killing parents on hike pleads not guilty to murder charges - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQa051RG9aZkNYUFQ1ZFNMM2RWUDVCMVFfQkRqd3g5c0oxVExBMnhVcGhlMklGMzUxUlNqMjFyZFFsdVFTTmtOWFIzWkNGbHNKa3kxWUU5eERFRmVwR3gzVDlZLVVzQ01SaHJJdmVMSzNWZTZkVzl6VmM3WHh1YXVqRDdoLXlWcGlkZHRWQ2tSOHJkRXV3MG8xWWpHVWFCYUZGQkxoUkU5UnZiRTdkT18wSE0zdTBLM2lM0gFWQVVfeXFMTl9fVXBkSWdGV19zNXVvbkZOTXlrZjV3TG1sU1ZEamRHRlZ6WTZBdThtTW1JOUhZN1l0ME1MZ0JvN3lMV1EzSE90RGM0Tk1kLXBpb2F3UlE?oc=5) |
-| FBI returns stolen document signed by conquistador to Mexico - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBBSGVMek1vWEVxVlFsSWZsX0N6N3BaUU9Dc18zUjFXblptYV9RSlA5TTE2SWhXbG9oMllCY09IcDFvZ3RFYk1nakpvaDJCNlRLa0dFWnJmVUpuZ9IBX0FVX3lxTE8wZkthdWJNWk9RclU0aTEtYmpxc3FITjByTUt5MGVaSjNvQzB4UGZWODdJX3k4UzdKTVpjRE5FUmFHcUR5VVFUb0VITkVZUk9DUmZmR1dyZl95bm43OE5V?oc=5) |
 | DeSantis announces plans for second immigration detention facility dubbed 'Deportation Depot' - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPcVdKVE5McjZIbGNaeFk2bU1SQVFvZTlRampNb3ZRMEZ1bk1zOFdTaUkweDRPMFFNNDY5bzRYZWZRVnZLUmVFaFVjaTNPa2c2RHBnUlFHTHl1My1Majk5MXo3ZXF0WVZQV1B2N1cybFRsV3dJSkhFb3BBVG5KMWJlVDh6N19OYzVXUXMtUXhWMnJOLTJTcWZDeTNEb0xDOHpKWWtEQ1c5d2I?oc=5) |
-| Wild rabbits spotted with strange 'horn-like' growths sprouting from their heads - FOX 5 Atlanta | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPdzdNRndjVnl2ZFBQLXFQMnlSdXE1S1NTVXhMRWtWOE8tTEFBd0t2UC1lTGdCM0czYXMxUktmY2ZsWUZSQzNqLUdvYzNIeXNtekFIcU03OVoySGxDSFZraHZHU242RHd6aE41alcydUp3Ynd2OUtxODk2cm51UnR3bUpR0gGHAUFVX3lxTE5EcXBBY0xQTF9XTUR2dkdaazd2OWZ0ZVdjRXYwcUNJd0prV2MtdkVBd040SGpnS3lUczJLVUdXQVFPbU0yVTB3dk95b21VazdNZTdnblNSQ2VjWnMwMXIwWUNEdXZuNXdocXFPaFItMWI4QnBWZGVoUDg4V2ZndF9ZNVpVNkstOA?oc=5) |
+| FBI returns stolen document signed by conquistador to Mexico - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBBSGVMek1vWEVxVlFsSWZsX0N6N3BaUU9Dc18zUjFXblptYV9RSlA5TTE2SWhXbG9oMllCY09IcDFvZ3RFYk1nakpvaDJCNlRLa0dFWnJmVUpuZ9IBX0FVX3lxTE8wZkthdWJNWk9RclU0aTEtYmpxc3FITjByTUt5MGVaSjNvQzB4UGZWODdJX3k4UzdKTVpjRE5FUmFHcUR5VVFUb0VITkVZUk9DUmZmR1dyZl95bm43OE5V?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
