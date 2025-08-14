@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月14日 18:53:59（北京时间）**
+🕒 更新时间：**2025年08月14日 19:01:00（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Multiple injuries after school bus carrying over 40 children crashes on 1st day of school - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNcHdHX3gtSGQ1Y1J1dnMwM3ZIa3ljRXNkQ2t6aHVKaWVFeVVmV3VzN2NWQm9fRXZ0MlhWUmROWG5IaWQ3ZUtJTDh3bzN1MzRsUUNZTWlZRDFZM3JfbzdtQWxQY0pBcUxrRTNwSWhBT1V2NlphYnVnSHBMbG1EbGpzQ2JCaWZaMS1zZXg5clVEay1aZnBZdmk5eU9vMFgxSTEwdXfSAacBQVVfeXFMUE93TW50aHZycUJfVmd0VGlVRHBKUWY4OGVtbUtKS0I3S2xxeERUcnpKMHc0OTB1aURaREtSZGIzWVVPNWc4d0ZjMEx1eWNZWldHYkNtaGR6ZnZKZnczZXBJRklCZG13ck1nZW1GU0FYbUkyZmd3Q1ctSTBHSkNMVnBXM2cwU1V6YkFNNnB3S001V0M1bzdTd3pKMWgxQlNYenlSODZzUGs?oc=5) |
 | As Trump-Putin summit nears, family of American held in Russia hopes for another prisoner exchange - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOVExpZ1FTNG9ZRnJEN21CbXZzaVdNQnNCSTZ3LVVCUGN0WHJlcHFlMkl6ZTJ6S0lmZHNpb25jcUx3RUwtbzUzaHBUNWJMLTNkRGh4RUJnNUVBcmVVVWp2RXJvY0gtRngtWFFHdGlIYUR1dTkwd0FxYTcwUmNHaWJYLVBvVVJZV0t6Z0ctTF9MekRDd2FHTVh3bC03akNTQdIBowFBVV95cUxOejRYRkVQZFVteFlnMjBOb3phRVlya2ZLcTUtOXA3SkppLUs5Q0R4VXBJS3BfVWREalZpMVViaGhDWEphZTJXVUdKY20yOE5rdnpGejdLak5XUG12VFV0RW5oN0lPeWZBQ2tMWDZldUFQWEJUNDhPT1FuTjZxT185U25oMjNmUVVaTjhJVzhQODA0U0xjWGQ2ZHI1YndRZmI2MFQ0?oc=5) |
 | A GOP divide is growing over Trump’s redistricting play - Politico | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE0xSW5UM3RMVG95cU8zX0w1LS1vRjhaNFdTYWZBajlhMTM3bE9yTm55S2I3eHhNYlNudzczU1lkQ2w5NHJZUkpzSE1mME1DcGdqTDYzdTdKblVpRHZuS1M1SXBVbzRveTBBamU5dTloMm1fTVFnU2c?oc=5) |
-| Man accused of faking death and fleeing U.S. convicted of rape - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNMGVabDZsSEhobG1HdWVWSm5teXNkbHdPcXU0UHRVNDRONkE5S3pxSG9BVkFRUFdseHV0RERnSVVnME56ZC1iNGlidTUzbWl0b3FPeHhRS1JKU0FSWW5hdE51a2F3bWNqY2lXZnk1UlZRZXdIdjBtcks1R2NWNVoxZ2VJRUhIZUpUMHI4eU13TER1M0d2eW1XQ2dTNTdxdDjSAVZBVV95cUxNZFhfRHNLRTNYWXZudG5FbEZUbGd5ZENEVmFtdTUyVGVrSHFzMWt3MnBZakZ4bnNvVF9fUm5OQXBUMzM2MW5EQTFRbnVoSXR1Ukpiekw4UQ?oc=5) |
 | U.S. Steel Explosion Presents Challenge to Nippon’s Investment Plans - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQU2RNSjQxQ1FJVW1wX3ltMzVQd0I2LW5MM1k0a2M0eFlNZVo5TW1uMjVjVllFS19HaW9kTEFvOGp6eXhyVDRWQ0RlTlZoS0hSMnNjWVhjMmRkaTJ2NHdIajRqNm1SZWlEZXVLOFZ3TGdqaEZDaFRXNm52YlpmOGtVUW9SS0tUUXpFVG9MN1hPRTU2a1JCZTlmQXVJb0o2NmpsT0wzYnk3UQ?oc=5) |
+| Man accused of faking death and fleeing U.S. convicted of rape - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNMGVabDZsSEhobG1HdWVWSm5teXNkbHdPcXU0UHRVNDRONkE5S3pxSG9BVkFRUFdseHV0RERnSVVnME56ZC1iNGlidTUzbWl0b3FPeHhRS1JKU0FSWW5hdE51a2F3bWNqY2lXZnk1UlZRZXdIdjBtcks1R2NWNVoxZ2VJRUhIZUpUMHI4eU13TER1M0d2eW1XQ2dTNTdxdDjSAVZBVV95cUxNZFhfRHNLRTNYWXZudG5FbEZUbGd5ZENEVmFtdTUyVGVrSHFzMWt3MnBZakZ4bnNvVF9fUm5OQXBUMzM2MW5EQTFRbnVoSXR1Ukpiekw4UQ?oc=5) |
 | Trial over California National Guard deployment concludes as judge questions limits of president's authority - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQLU03QXBZTUQ3NnpzMGFOZUJDOEt0UXI3YkJkSVVOWHYxU2V2bDBGR2lXVUJkSlJfbEE0bEV3RGo3dTUyTUdIOHZRbEV3QlA5eFRDbzR1WHlqZWpaS2tfMldSTGl0WnpVM0NuSmthZVh1akFCOFVPZDJxSUZLN0RzbHNKM3BMQdIBiwFBVV95cUxQRWFsNS0zWkdWZ3U4dXQzX25oS0F4d1k1Q2E4ckZoWllDa1lCcW1SX09YempscTZyUXRQMmVINFRFcVp6MlJqQklmOUZLN0M4VlJEcmVhcXdUeTRya3I1R2xLSzhacXFGTlkxSEpLN281WlhJNW4wRjN1NS1VdUdfSkV2bkQ3U2ZRZG9J?oc=5) |
 
 ---
