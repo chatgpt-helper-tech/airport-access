@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月14日 14:39:14（北京时间）**
+🕒 更新时间：**2025年08月14日 14:52:44（北京时间）**
 
 ---
 
@@ -14,8 +14,8 @@
 | ADHD drugs cut risk of suicide, car accidents and criminality, study suggests | [阅读全文](https://www.bbc.com/news/articles/crr2j792drro?at_medium=RSS&at_campaign=rss) |
 | 'Our children are dying': Rare footage shows plight of civilians in besieged Sudan city | [阅读全文](https://www.bbc.com/news/articles/czxp0qyn6dqo?at_medium=RSS&at_campaign=rss) |
 | Melania Trump threatens to sue Hunter Biden for $1bn over Epstein claim | [阅读全文](https://www.bbc.com/news/articles/cqjyw0l9d82o?at_medium=RSS&at_campaign=rss) |
+| Thirteen children injured in amusement park ride accident | [阅读全文](https://www.bbc.com/news/articles/cwy0lygv2w9o?at_medium=RSS&at_campaign=rss) |
 | US fugitive Nicholas Rossi convicted of rape after extradition from Scotland | [阅读全文](https://www.bbc.com/news/articles/cx27r386p4zo?at_medium=RSS&at_campaign=rss) |
-| Cherish bonds of love and friendship this summer, says Kate | [阅读全文](https://www.bbc.com/news/articles/cdd3r78zem9o?at_medium=RSS&at_campaign=rss) |
 | UK cities face new 'firewave' risk from hot, dry summers, scientists warn | [阅读全文](https://www.bbc.com/news/articles/c9vd79x97zlo?at_medium=RSS&at_campaign=rss) |
 | Full guide to A-level results day - and how to appeal | [阅读全文](https://www.bbc.com/news/articles/c07dz891gy5o?at_medium=RSS&at_campaign=rss) |
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | As Guard deploys, Trump to seek 'long-term' federal control of DC police - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQdkFqSGJDQ0txd3RFNWVSX3M3b2hsSmFhTk1aeHllcDhqdkxEcGxBcGlZd2R6UGFOc0tJOHpvbnJmOEwydEdVUk9sd1JUczdETDlXemh6cHBjMnNuNzlqc3JqR1hFczkwRXBOMDNpM0FtLU9MVFFDSWxkV3pidS0tWWhVY1BtN295YU5qaHdKSzRMdVNpNURSRWUxZmg0VTlmN1hnazlR0gGrAUFVX3lxTE12UjhrcjFSMUdTRTNlaWkzOFZ6VkNjd09fbWhzemFlMDdRYmVHSHdYb25JNXZYVGQtb19zRkNTdE9nN2lXeGYwc3JjSkVzZWJ6bWRtSFRvaVZ3WnF4UzBQaVBxQ0ZRdk54dzdoeUtwNWs2a1k5QTZRUEhFaU1kU0FJekNObmJuekZ4enNLVnI0T3RYNzQ0TDNqX0tkTGxuUUE5dDVUWUJyTzN2dw?oc=5) |
-| Trump warns of ‘very severe consequences’ if Putin continues Ukraine war - AP News | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE1VUU1MWTByUDA1TDJNa2dEZnczcUdKQ3E0UlNjbUJIdXRVZWUtRkdUWmJoQ3RPLXNHWVN4SXlHM2twZ19abkp5VzE3YUg3TU9GT3dCcDZseWd4dkRLUHdCZTItRnoyTWZ3b2Ew?oc=5) |
+| After Reassuring Europe, Trump Strikes a Different Tone About Russian Threats - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOVHEyTDk1NXBpVUZ3bzlfVVdTVENDczVKVVdpSXVqek5YOEZxU2VpQ3RwZHNoNmhZM25QbF9VaEpOY0lZNk0xb2VvTkVLTEhaUFVncGdNd1JTejNidmlENUt1Q1lOVmVhNldvUml2NG1MN09PT29STVBOaExQbjBEQUVtMUREdw?oc=5) |
 | President Trump can continue to withhold billions in foreign aid, court rules - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQX0YwTmRmWWVralo3UmFhTFZsSjBWS3g5NE1GSEtQb3F5N3RmdWFrZU1MVXpyWE5YcXQybWhCa2ZRZUYtUUpkeFRya1h0N2ZfY29Qd2phUThBYVlLNTBRRWI3MXVpUG9lQlF0N3Z6SXdnLURDLTlNeVUyN2Y2cEdOeHlQYWNMbjBuUUxuVWpDcHVtUE1PZ2twU1V2bXQzVjBqZ0ZJ?oc=5) |
 | Melania Trump threatens to sue Hunter Biden over Epstein claim - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE4yaDRiMGhrOFhNQ1VzWG9aY2tZSFd2NTUyNVJVUnpXOHN3RUxCbHBHV2xvOHBUb08zNndHbG5fQWNhV1R6bnV5bEJQcDQ4ZHpiSW51WVJkSWU2QdIBX0FVX3lxTFBXVGFLT2YwX0tYZ2ZrMnFHaDJzakNrdEh0RFVzQzRDV055dzVRNFVTN2s4aFV0eHpjLVYxQm9PcEk1OTg0aGFGa1QzbERKRmhnMGhhUUdnaEplNUtJaGxr?oc=5) |
 | Man who hurled sandwich at law enforcement in D.C. charged with felony - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOQS0tVURxYzhJTWdpNmcxT2F0UElvWU5pYzBUQVZRQ3V6R0t2RjFuWHVYUFdkMHhLQjRfRUd6N1FtWERrR1p6bEN1WS00Sk9MNXR3MDhveUJYeHNfczFYVHZqeW55RUpUREZhcUswZFJOaWZ2UTVkQWd5OVF4bDYyalJMTzVtQmJjVHVTTkRlWnA?oc=5) |
