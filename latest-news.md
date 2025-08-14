@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月14日 13:27:07（北京时间）**
+🕒 更新时间：**2025年08月14日 13:40:17（北京时间）**
 
 ---
 
@@ -8,16 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Starmer sees viable chance of Ukraine ceasefire as Zelensky visits London | [阅读全文](https://www.bbc.com/news/articles/cp37vg34g8jo?at_medium=RSS&at_campaign=rss) |
-| Results day arrives for A-level, T-level and BTec students | [阅读全文](https://www.bbc.com/news/articles/c15lv2xxyy5o?at_medium=RSS&at_campaign=rss) |
 | Humanitarian groups call on Israel to end 'weaponisation of aid' in Gaza | [阅读全文](https://www.bbc.com/news/articles/cj6ynz22871o?at_medium=RSS&at_campaign=rss) |
 | After mass arrests, what happens next with Palestine Action ban? | [阅读全文](https://www.bbc.com/news/articles/c3wn5gdv0wgo?at_medium=RSS&at_campaign=rss) |
+| Taylor Swift gushes over 'good kind of crazy' boyfriend Travis Kelce | [阅读全文](https://www.bbc.com/news/articles/cedv5dy9v8lo?at_medium=RSS&at_campaign=rss) |
 | ADHD drugs cut risk of suicide, car accidents and criminality, study suggests | [阅读全文](https://www.bbc.com/news/articles/crr2j792drro?at_medium=RSS&at_campaign=rss) |
 | 'Our children are dying': Rare footage shows plight of civilians in besieged Sudan city | [阅读全文](https://www.bbc.com/news/articles/czxp0qyn6dqo?at_medium=RSS&at_campaign=rss) |
 | Night skies glitter with Perseid meteor shower | [阅读全文](https://www.bbc.com/news/videos/cvgnkmpkd77o?at_medium=RSS&at_campaign=rss) |
 | Cherish bonds of love and friendship this summer, says Kate | [阅读全文](https://www.bbc.com/news/articles/cdd3r78zem9o?at_medium=RSS&at_campaign=rss) |
 | Urban wildfire risk rising due to hot dry summers, scientists warn | [阅读全文](https://www.bbc.com/news/articles/c9vd79x97zlo?at_medium=RSS&at_campaign=rss) |
-| Claire's falls into administration with 2,150 jobs at risk | [阅读全文](https://www.bbc.com/news/articles/cp8zwdy98k8o?at_medium=RSS&at_campaign=rss) |
+| Baby Shark did not plagiarise, says South Korea's top court | [阅读全文](https://www.bbc.com/news/articles/cpwyvxrdd7yo?at_medium=RSS&at_campaign=rss) |
+| Full guide to A-level results day - and how to appeal | [阅读全文](https://www.bbc.com/news/articles/c07dz891gy5o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
