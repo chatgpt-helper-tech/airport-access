@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月14日 14:14:40（北京时间）**
+🕒 更新时间：**2025年08月14日 14:26:36（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Melania Trump threatens to sue Hunter Biden over Epstein claim - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE4yaDRiMGhrOFhNQ1VzWG9aY2tZSFd2NTUyNVJVUnpXOHN3RUxCbHBHV2xvOHBUb08zNndHbG5fQWNhV1R6bnV5bEJQcDQ4ZHpiSW51WVJkSWU2QdIBX0FVX3lxTFBXVGFLT2YwX0tYZ2ZrMnFHaDJzakNrdEh0RFVzQzRDV055dzVRNFVTN2s4aFV0eHpjLVYxQm9PcEk1OTg0aGFGa1QzbERKRmhnMGhhUUdnaEplNUtJaGxr?oc=5) |
 | Man who hurled sandwich at law enforcement in D.C. charged with felony - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOQS0tVURxYzhJTWdpNmcxT2F0UElvWU5pYzBUQVZRQ3V6R0t2RjFuWHVYUFdkMHhLQjRfRUd6N1FtWERrR1p6bEN1WS00Sk9MNXR3MDhveUJYeHNfczFYVHZqeW55RUpUREZhcUswZFJOaWZ2UTVkQWd5OVF4bDYyalJMTzVtQmJjVHVTTkRlWnA?oc=5) |
 | Zelenskyy on Trump-Putin summit: "Talks about us, without us, will not work" for Ukraine - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOVUhfYy0yUjlicUpBWndvTUxFYThRWl80bXRoZmVVMWdIRk9qZ2JPdmhSY2VSZnhPbV92UzNHOXlqMmFZNjhmRzVJM2t3dTZYa3BjQWE1a3loeDdkbjRFMURVOG4zRk5UVlhscF9kcDE3SDJodFFrOFpmZi03OGV2RVlORUEwdjFSR3Bsc0ZYcS1WQjJkUTZscTNVWWZIY0FDNXA4WXNuY0pqUy1CX1o4ZnJNTdIBuAFBVV95cUxQQXdNR3hnYmZKVHRldTlOZ3VBMEFac1cyVEZkalZGSDZxZjBpQ2cwbThycWZIOWpRMF9jQkpQSF9sc0Q1TVdBYW5JZWx4a2Z6ek91eExyd0hWTmloOFVTS3czbEl0d0NBRF9BdlR1Z3NqTGhkTTBkYjF2QjBTYTVtblhvaXFMRlR5TFpwQWN4Yk9KVW51N3lrakdoMDVmX29La3kybHVXSW1MV1MyOUFlcjZjbXdFam9W?oc=5) |
-| Judge weighs whether Trump violated federal law by deploying National Guard to Los Angeles - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOVDZIREdERHRxRE5MekN2NVRIeEdmWDNYMnpwdjFlLUlSeUw4Q084aUduOU1YYkZBeXFNb01mNEdRWk00VUZ0eUw5WUJHU1o4RUR4NjQ0SXhjNEZuUXF6TG9FSjc3azJOVXpkZG0yenV2aGdJbThMaEsxVk5TMnNZelVzN0FGblpVYlBhRVlsaUR0Mkl5cUFvcnkwNXExZTF4NVE?oc=5) |
+| Trial over California National Guard deployment concludes as judge questions limits of president's authority - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQLU03QXBZTUQ3NnpzMGFOZUJDOEt0UXI3YkJkSVVOWHYxU2V2bDBGR2lXVUJkSlJfbEE0bEV3RGo3dTUyTUdIOHZRbEV3QlA5eFRDbzR1WHlqZWpaS2tfMldSTGl0WnpVM0NuSmthZVh1akFCOFVPZDJxSUZLN0RzbHNKM3BMQdIBiwFBVV95cUxQRWFsNS0zWkdWZ3U4dXQzX25oS0F4d1k1Q2E4ckZoWllDa1lCcW1SX09YempscTZyUXRQMmVINFRFcVp6MlJqQklmOUZLN0M4VlJEcmVhcXdUeTRya3I1R2xLSzhacXFGTlkxSEpLN281WlhJNW4wRjN1NS1VdUdfSkV2bkQ3U2ZRZG9J?oc=5) |
 | 3 Arrested in $2 Million Heist From Brinks Truck in Philadelphia - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPRUJYb2NjWFJjRS00VGFnSVdUN0VtMWExdUlKaDFUaWY1ZUlXbmlwcXJKN2NHdWpRNTQ0c3JsVm1rRjQwcHdQTXBvN205eEV2SmVjcHdpdzNzbWdVZXBRUFlhTDlIN3p1VEliYm9fbW4zN2wxMjd2SWk2Tk15emh4Qko4X2hXQQ?oc=5) |
 | 'It would have been catastrophic': Juneau's temporary levee protects most homes from record flooding - KTOO | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxOTFA3ZEw1eU1xYWlmOEwwajJ2cVhBZHEtMDJDd2h0aUUwWXloNHhXemx6eFpsSUNOc0FEcWJIOUNocHQ4d0pkQmtLOWdDVTVOMWZUUllVX28tUWpPV2JTeFdVQklOMk9qRmdXNTFsQWtMZVZ1YkhQVEgxd0RkVTRhcURrVV9yUWxhcE1BSGk1cDlvZGMyTThRM29veVY1MFRXaF9fWXJvd2xpclRvNG5nM19zYURleWM5WnBFeElwWGlTZG5LekswUThJRVc1VkE?oc=5) |
-| Analyst: Clairton Coke Works explosion could mark a turning point for the Mon Valley - Pittsburgh Post-Gazette | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNQjF6b3FRVFMtLXJzeURaSlZVNnRua2FMdWQ2VmVsYzl0Z1pweHhtMkRDX1RRQWJmT3FrOUhxbkRxWVdWSTBrZnVEbGxKc1paQlExY1VyRGJnbTZKREpnNHV2a3dBeC04dWpwT3VTWFZ5Sjc1eHEzMGpQbmVXaXdkQ1pWa3BsTnBxY1kyTG5MczdVcTY4OFhJaWNhMngxYWtkU2RXMy0zZjRDVFBNajk0TVBMNlF6MXoyM013QW1XS1JTUlFkbGhOZw?oc=5) |
+| Allies, in jab at Trump, threaten not to buy F-35s - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPXzJKMWd4b1F3SnRGY2Y3dU9yaTdGOFY2U1JvbGwxcFNuMmFaV09FMERvell5c0s4SGFRMHZOa0diQU5MTHBHQUVyM0xrX1lsak5RaXZSYU02RnZ4YUVZSjNwMzdneDhJdkFoYnFOUWpqbURNaGV3YUNmQTlnZ08wQg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
