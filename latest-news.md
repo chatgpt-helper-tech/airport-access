@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月14日 11:14:02（北京时间）**
+🕒 更新时间：**2025年08月14日 11:26:57（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | D.C. man accused of throwing sandwich at federal agent faces felony charges - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQVjZCOENFVGx0ZVE2MHhTSXZYUVphTUhkZWtrcVU3dkVWWWZQUGtZcW8xcFBvU1BmdU05TWZxanlKTVRyOGh6endFMldUVTJmLVRORk93WWgzSnVKWWNaVnlvYXRDTjZFbGxfQV9zYzI0SlVJTktGN1NzR05WMzhQOWdSOEp1UQ?oc=5) |
 | US appeals court lets Trump cut billions in foreign aid - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNLWZtWVZSNzRxYnJGU0dTYUZLRXVxNkNYNERxS2ZFQVZLLVIybjB3NGhFRUJ0clRraUVPVnZKYUgtQjhsWWFjMkdPbGF0cC16TXh5NkV6ZTdLbjV2X2pvRnZvbzFsZ2ZoMGktb015cWxhQUgzM0tmRHZBRzlPRXhKck5yaG1hbXozVlJCMkxNNlB5dk5Id1ZYVTNnV2tsZF9BdUlvdXJlMW4?oc=5) |
 | Trump administration ordered to partially restore grants to UCLA after seeking $1 billion settlement - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQLVR5alRkT0o5S3ZYOC1lN09GUnowd0dIZ2tVUEFyV2Jna2NsZFNuUkxvcFBSRkFRNkw1ZlNvTlFnZGF1Y216ZmtvMWJ0dHJrY1lBdTFwUC1IOTd6a0RRVUt4ZDNtNDJJVjdIZXBOcXk0azJHS19nUS1iT3RhdEJuM2l6VzNhQ3hCMC1JNXU2UzBQOXVTb1VHWHg0UFExaE3SAVZBVV95cUxNQS1tcXVXd2MzYWRSaTk0cHdZU3FiTnh0T3hBNmljZ25OaDJrYjhHMi1MbGl1WFpxY0tCTlZwWFQ0a0VPRDhLR3pJS0VxWUdrSldpNGlJZw?oc=5) |
-| Glacier lake outburst at Alaska's Mendenhall Glacier causes record-breaking flooding - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNYTJmVXg3ZVRySENDeU9uSnZnTk1WVFczUjdrOTUwZUlJZnVVZFRoYmJJNTBFWTdOTFNFX1RXMEpGaXd4eUY1c3RudV9sMllzVDFEZGpVUG9vZnJyQlQyUTg4ZHlDWm5ONkEtTndRMDI5TEhsT0ZzSDJFcDFVeUxrVm82WVJvRDhhMkVyWTFBS3VEc3ZZdkttWFAyTjNjaVVIbk5wLUF6bm9KcnfSAbABQVVfeXFMUDlWNm9TVFBRcUR2T0hDUGtta0doVmM3RjhlZWlHVXZlaFJwUUl5SHAwT291NjIzaGFvMUNESTkxNUhwVHdvcEx5ODdoVEJtSWV1RHFUU3NrdTZZRXQ2OGRSWVo0eDlaODRGQzZud2QxTzhzQ01aYXZOcU9FTko0X0QycU5pUnQ1QnBqd0JrLWFDY0dDVDFkRlBhWUhuN1dEbUZZeTFPWWc5bFVzQjFmS2g?oc=5) |
 | Allies, in jab at Trump, threaten not to buy F-35s - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPXzJKMWd4b1F3SnRGY2Y3dU9yaTdGOFY2U1JvbGwxcFNuMmFaV09FMERvell5c0s4SGFRMHZOa0diQU5MTHBHQUVyM0xrX1lsak5RaXZSYU02RnZ4YUVZSjNwMzdneDhJdkFoYnFOUWpqbURNaGV3YUNmQTlnZ08wQg?oc=5) |
+| Barriers prevent severe flooding in Alaska capital after glacier outburst - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNdXN1YVBVWll4TC0xTC14cmlvcFRWMEd2SHU5UWpGN2ZZNVlWRTRUVl83VGhvdGFBYU5JczEwRklnMnFCMXNuN1lyQXBqMWdsQ0hJOXpqci1DWDB1eXNvQlM0MlVWbE5jVW4zMF9NTWh6US1YSnpZblBhZUh4YzN2aElDT1VQT2xLNjZSdG1IbWl1Q0JGMlE?oc=5) |
 | Woman finds 'most diamond-y diamond' for engagement ring at state park - USA Today | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNRHEzdWJsRkdYRnprTGxMVTZReFlCQmFVa29PYUxYbk5jQlZYOUtRU0Q4WVRHYkgtMXoxS3ZmWHNhWWdZUEhpWDFHRzZfVGxRR2ZtWG8zTV9Bc1NQRXlIWVNZV013WmV5TmR1M0swUno2N2Y2amd2T3Q5ZndybzhuTnZRU3VHd1dxX19ZdE1zUXNsS2J2V0ROTjFUQ1Jhc3h0QllNRkx3SjBUZmZ1M1pSTlNDc19GZTQ?oc=5) |
-| US to impose visa restrictions on officials, alleging ties to Cuban labor program - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQTnlCajBjNmowY1RvZWMyOEEzSng3bWdNX2Y1WU4yWTljRWRqVHZIMk5Ldk16MXJfQWQ1QWV0UVlXODhMQ1AwX1RPd0JHUHNUR0YxMVRWWWlPbXdyWm5DdGQ1cUdLaVRpbExZaERYWTFGakVsVS1iUGI1NEJPM0V3eDhZN3FzSUhDdDJiYmJtaWFDU0l1Sng3SEUyaEsyeE1wbUU1ckpmanB5Q29uNVJPMGxDWXpucFI4bVRwT0RoYw?oc=5) |
+| Proponent of Medicaid cuts set to brief House Republicans as they plot another megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQU1A4allCa3JTR0RiQ3FUcHBjVlZhY1VYY3VrX1VCYTZuTnJ2dmlwNWg1UERZSHlxdEQyNUk0REJVOGpHQ1ZZdGkzMVVyeW54eVpqcmJwWVFsZ3FpVG9xWjExdWtHU1d6Q3N2bEo2XzZlbTNnMWkzcjB1N2s0Rlc5VkVxbHlUOHJC?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
