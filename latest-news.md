@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月15日 01:26:18（北京时间）**
+🕒 更新时间：**2025年08月15日 01:40:03（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Outraged DC locals protest traffic checkpoint - CNN | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQaVVsU0ttX3k1c003SVVoWW1xWkZab1FpU19ONnZrNzY0Sl9wZmg4SGxPc3JEdXppTzJnN0R5SzNfWVBjem5oWlI1ckdwUkZoZUtoei12RFZnUjNqTXRpTzZMNmFVS19fY3pmdHZTb3NkWTZhUzVKZUl0VFFXUHhqVmo0T193RkpraXJJSEVwZ3VwQ2ZIQ0lhWVJLV0NUa2gt?oc=5) |
 | Hunter Biden said he won't apologize to Melania Trump amid lawsuit threat - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE52NnRQWEZlYWFpSnZlYnFsVWJ6XzFVNFZ3cGVvNjB4TC1GeTZ5RXo3ZVgyaDhrVDdFWkdDUWVrQ1pNVDFaZ2RBeWNJdGd6V1BCeW9zdlhodHpFQ2VZcTBnT0dMaUdHakNtZlpLcDNDQ0stZWRxUjkzTVZIRlBHdXc?oc=5) |
 | Percentage of Americans who say they drink alcohol hits record low, Gallup says - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOZTF6b3NqVmxXME1JOHR3amYxRGo4bDdUbXFlaG5RTlhxNFU1NlVrdW50eUNuTHhIY2R6bWlGa1JLeUludjRlODN1RzFBV2ZmOG9QUmVZTDdxLUVGUXRsSERqTGRYTDk3dV9yOG1VOVhRNDVROUpGLTAwOHFlZnFjUmE2LUszY2swYXZaXw?oc=5) |
-| Man Who Faked His Death and Fled to Scotland Is Convicted of Rape - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5kcTVJTEVsa3RHdEp4UlBlTktxQU1KNGNfRVNGTWQweFVfeXVtc2VGNjFSWWYxVzZBVDdodGNxdmpOeVk4SVFtZURWN1FUSVItSHRYOHZidnhsYmpiY20xbHBWcTZOZmFtS21lLUp2ajlGT2tDOW5TYTBIel9Xdw?oc=5) |
+| Mayors of Democratic cities respond to Trump's threats they could be next after D.C. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPZTZGT1ZKUmVtRS10LTRhOHMyUWk3NFRqZ3M2VkRSN1gzOUxXR05FVHhqT3ZjWElHM3QzQlZUSVFiV19Xb1hvNFNwRmxKQjhGa2FnLUo0N0QxdkFLZGNhcDNMUGpYR2tDSlpBOWF4UW1YSkhEUUc2a2FiRzQ4SnBkc3VYYUd4SzU0WmxmeXNNX2tqVDBVSXlzelZKNmttQlU?oc=5) |
 | California Democrats prepare redistricting effort to counter Texas GOP - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPZG9RNWZjdDA1VXc0ZUluZTI2R2o5SGNNdk96enlQeGg2X3h4SDh1a1FDNERGZjJnZnZ6d05BUlU1VXE0dTJRYURMc0ttZWdoTWZ5NWVneGxxMWtlU2RtT0FhelZWUl9TVU16VXV1RHFmODJYdFBLa01IbU5yajgwWTlaVkxqWXJhQndzZ1k5aTjSAZYBQVVfeXFMT0tONUpJUTJtaDFkcnczNzlVc1BRU2xHWUkzNTNOSEo5YTVWbEMzaXlWTDNkUDM2QkpMRDhrdXlOcU1HYTc0WXJIM1FMRjVqRzFiN3R4QkJfNmltaGN5ZVVUZm5XWUZya3JjUXlxeEpUT3YtOFQ2czVYNm1ScGRRdkhlS0M3NlY0MDBZS2w3M0RJTHY4c013?oc=5) |
 | Teacher charged with killing of hikers at Arkansas park pleads not guilty to murder - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOcU14OUJKQ0RBQUhyWVJXNEp3cDZMeWhlblRmcnkyZDA5NDNIMjRnc1JWSmZldHRQbEE2cGZqMzRqQXg4ZzgzNU5NQVQxQkgxRUNSdnlic1M0cHNwRnU4RVFTQVNoY0JOdDIwMmMxUFhTeUgzUEc3SGxPSlhKQmdVMmRXWVJ0NWdZOWp6UzRuZXN5NjJqOEpNRE8yNUJ4akZ1Xzdz?oc=5) |
-| Tropical Storm Erin intensifies, projected to grow into 125 mph Cat 3 hurricane, NHC says - Orlando Sentinel | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOV1JwRWY3VllSd2JTQ0dweHI0UnVnZmNZSUlVR1ZoRHdWOXhyUXhhRjJWdW5JRERmRTM1ZkdNTXo1emRNVE9KSGlRcFByakJPaDdTeHc0Y3VOelNxVzV6RkhxMGI3NTFXczV4Y05mZUJNNEd4UXM5VlBtMkhycWZ1TjJPeUJsYmxjSmFiWXg2NkVnZWtEdHc1azJ4emc1SXM?oc=5) |
-| FBI returns missing 16th-century document signed by conquistador Cortés to Mexico - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPclE2ZFpWY3Rnak14UldfNDlfQVFKLTdsWDRucDA4empfcHlsdjBYNDdiLU5nUzdISERDcWxUZ05CVW1sR2ZINS1MV2EyejQ1TGNTSjNWdEFJdjVBdHdKc053Wm5ZbUE0Z2hfNXkyb1JxblkyUTdpTS1fNlNFVmdyeDBpNlBwWmxBa1NqYTY1eW5jdjVUcmlOd1FJYXhyQ09EN1FfcjlDaU9vRVRvbzVhd0RkRzFmZ3p2UnfSAVZBVV95cUxPMEJqRVQxTW1QQ1pnSnAwaWVPTjVWRHZ6SWxQSXQxODdHOTdhZ1I0QUlRUVBJUVFaaVpoVE5CNEt2dmlOY2JLTE1Yal9UQVh3QzdkYnd3dw?oc=5) |
+| Florida to use shuttered prison as 2nd immigration detention center after ‘Alligator Alcatraz’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxPN09rQVB1ak5jMGpIQURjZFluQm5WV3Rkd1lWSUUxeGhBNFV4RjlZb182RktVVE1wdU5LNzZXbHJQQkpJZGtHZVhrYVpjQzRWVFMwVTdRZ0FwSjN4MmstVlZNOWVVRW1YaVBiTVhFN2ZtWmphalltS09Nd0VCRW92Ml9xa2htbmJNRGRFTTdLQy01TkNmcnd2clVzWDhkanNfcF9Tb1c4QmEyMmthYWFZLWs2eW9XWjN6aGtNdjNvakV4bGpvWEU1VHUxeXRTbGR4bGFmdVozNTBJZw?oc=5) |
+| Congress is lukewarm on RFK Jr.’s plans. In the states, they’re catching fire. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9zQnVUd0FCR2dXZGFiNzhqOHp5ZGFIY2t0VUdvQXg5VTRGaHNWZC00QjJXanhWZ1lSdXpaZDMwa2dVbmFqRVNacjNQdjV6MFhLb1ZmOU5hb19kNTFBSU9NcnZIOGdYNkQ2djhHU3NhcV9kaEhVb01aQlNBaw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
