@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月15日 05:53:55（北京时间）**
+🕒 更新时间：**2025年08月15日 06:00:40（北京时间）**
 
 ---
 
@@ -8,6 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| What do Putin and Trump each want from the Alaska summit? | [阅读全文](https://www.bbc.com/news/articles/c776ddjer8no?at_medium=RSS&at_campaign=rss) |
+| Left out of Alaska talks, exhausted Ukrainians fear an unjust peace | [阅读全文](https://www.bbc.com/news/articles/cly7kl7e469o?at_medium=RSS&at_campaign=rss) |
+| AI invents new antibiotics that could kill superbugs gonorrhoea and MRSA | [阅读全文](https://www.bbc.com/news/articles/cgr94xxye2lo?at_medium=RSS&at_campaign=rss) |
+| Why did boys outperform girls at top A-level grades? | [阅读全文](https://www.bbc.com/news/articles/c62707l4lwvo?at_medium=RSS&at_campaign=rss) |
+| Teenager's death after hospital failings is ruled unlawful | [阅读全文](https://www.bbc.com/news/articles/c17np9vly51o?at_medium=RSS&at_campaign=rss) |
+| Cost of weight-loss drug Mounjaro could rise significantly | [阅读全文](https://www.bbc.com/news/articles/c5ylppp2vj9o?at_medium=RSS&at_campaign=rss) |
+| King says VJ Day heroes will 'never be forgotten' | [阅读全文](https://www.bbc.com/news/articles/cz93j78ed87o?at_medium=RSS&at_campaign=rss) |
+| Second MasterChef contestant edited out of scandal-hit series | [阅读全文](https://www.bbc.com/news/articles/c62n985gp3go?at_medium=RSS&at_campaign=rss) |
+| Teenager arrested after death of 13-year-old girl in Huddersfield | [阅读全文](https://www.bbc.com/news/articles/cj9w7y1rz4jo?at_medium=RSS&at_campaign=rss) |
+| Faisal Islam: Are latest UK growth figures good or bad news for the economy? | [阅读全文](https://www.bbc.com/news/articles/c5yp48jprg8o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -21,7 +31,7 @@
 | Mayors of Democratic cities beyond D.C. decry Trump's takeover threats - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPZTZGT1ZKUmVtRS10LTRhOHMyUWk3NFRqZ3M2VkRSN1gzOUxXR05FVHhqT3ZjWElHM3QzQlZUSVFiV19Xb1hvNFNwRmxKQjhGa2FnLUo0N0QxdkFLZGNhcDNMUGpYR2tDSlpBOWF4UW1YSkhEUUc2a2FiRzQ4SnBkc3VYYUd4SzU0WmxmeXNNX2tqVDBVSXlzelZKNmttQlU?oc=5) |
 | Texas Democrats set plan to end nearly 2-week walkout over Republicans' redraw of US House maps - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNcHJvaEF0YzR5UlhvaFlrZXhKQ1VZX1NHdWhOMnZ1dzhwUmJWTl9uTENDb2ltMWtfXzBxR0w4Zl9XemFrVVVuOVFESDJmMXZJR01wLTVjZnRySkd2U2VpX2swQnlBRWlyS1NGa05PX2RfUmg2VXR4WWY2VEo5STRUc2N1amp2QUNobnlnc2ZjNHNObnQ1aWtzREhuS0VmcVZUbVN1UjVEZXR4YWVpOXA4?oc=5) |
 | DeSantis announces 2nd immigration detention facility dubbed 'Deportation Depot' in Florida - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOdWpFM1NPeEctRGxnUmNlS2ZManQzWkRiRkpYY2dzQ3RvSEhBelN1YlNCTnBBczF4akdpdXpxaGtLams1ZjFaRWVCWU5KRVFWdFRWTDAzbmJpTzRSdTNOX2JKeDFpdzJZSUMzN21DM01iMm5tRW9UaFVGeHpVN0FRWThTZnBkbHBZSDN1dzV0Um1HNktkUHI1VkdPRnp1Sl9XRG1jVTU1WC1mNzJOYWJqaWhScmRLLUF00gG-AUFVX3lxTE9BdTl4UHd6UUlpOTNmWU1xbXY4ZG54Wk03Z0NqWVUteDNnb1dhcGNHZHNwVEU5Vk5KLWt1c2ZGYk42dUNYVlR2Ui1KdXN5T2dIRXRudlZ2OVBhV21xVTdJeF9meFMxYVd5WFZtNXdzNzNqVTlLYThab3REWVJ6VEhHLU10bndYRUhORUhnVy13b09pdDVRVTREbG03WURyQ1JpLTVhMXBaN2FUVjRqc3J6MTd1bGYzT29mV2lDc1E?oc=5) |
-| Man accused of killing married hikers in Devil's Den State Park pleads not guilty to murder charges - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQV1VSQlpZVWlGVFVKd2NGVnQ1bWRPc09GLWVORmVFd0pvZ2tGZHduUTdVMmdYcXFHWXllUkdEZm10dm01RVZBOFRQLS1TOU8xb2NsZXpTb3BuUGRaWi1BNnFoY1hZWnVtV19iQzFPbDZLT05odGRFN1FaM3lMYWl2YlJERUFrRHo1VTdrTGhENkRaRkUwc3Fr0gGcAUFVX3lxTE9JY2FaUEFCd2stYkgzWUlPa0NjOGhlTFpsSUM0Z1BISWpnMkN2dXdjYXpiYjU0Y0RNQmZiR0ppNHM4NDl1N05zR0QxcklLcXR3NmNGZElLZ0ZNeWJTVEdLTnZRNC02RWhwUmlnVHpTcjdXdkdDellMa2VxRDQ5V05MMldTc2c5a25TaUFIZk90a3FPVTRlbXFYLS1Tbg?oc=5) |
+| Devil's Den double homicide suspect Andrew McGann pleads not guilty - 5newsonline.com | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxPQjkyVHRXMy1KdkZHdVFqS29XbkFsNTNPeW55WVduQWVldlZkVUpaRzRzSjNucWhteUdNOUdCVmlCaUExVnBNalJFaWp6NExhZnpwSjFaeWVrY2U0SFNhX2FYUzlWcWl6azhxQ2pwNFVTUTNwZGVrZWRld0RkNl9IbFhDemVWdXhMQzVjLUxLcnlTQmo0WDdyeVBkOVBhUFpIdlhzUmY3TGhrU2pVRS1PVHpzUWlIeHVXUjRSUVpvU0JXbUctRndVdkZSM1YtWEFGaTM4bWVhTnNYSU5QNEtuUGpLUV81dlpldUtHZWlrczB6Zw?oc=5) |
 | Outraged DC locals protest traffic checkpoint - CNN | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQaVVsU0ttX3k1c003SVVoWW1xWkZab1FpU19ONnZrNzY0Sl9wZmg4SGxPc3JEdXppTzJnN0R5SzNfWVBjem5oWlI1ckdwUkZoZUtoei12RFZnUjNqTXRpTzZMNmFVS19fY3pmdHZTb3NkWTZhUzVKZUl0VFFXUHhqVmo0T193RkpraXJJSEVwZ3VwQ2ZIQ0lhWVJLV0NUa2gt?oc=5) |
 
 ---
