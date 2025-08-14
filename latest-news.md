@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月15日 00:53:02（北京时间）**
+🕒 更新时间：**2025年08月15日 01:01:15（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | California Democrats prepare redistricting effort to counter Texas GOP - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPZG9RNWZjdDA1VXc0ZUluZTI2R2o5SGNNdk96enlQeGg2X3h4SDh1a1FDNERGZjJnZnZ6d05BUlU1VXE0dTJRYURMc0ttZWdoTWZ5NWVneGxxMWtlU2RtT0FhelZWUl9TVU16VXV1RHFmODJYdFBLa01IbU5yajgwWTlaVkxqWXJhQndzZ1k5aTjSAZYBQVVfeXFMT0tONUpJUTJtaDFkcnczNzlVc1BRU2xHWUkzNTNOSEo5YTVWbEMzaXlWTDNkUDM2QkpMRDhrdXlOcU1HYTc0WXJIM1FMRjVqRzFiN3R4QkJfNmltaGN5ZVVUZm5XWUZya3JjUXlxeEpUT3YtOFQ2czVYNm1ScGRRdkhlS0M3NlY0MDBZS2w3M0RJTHY4c013?oc=5) |
 | Teacher accused of killing parents on hike pleads not guilty to murder charges - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQa051RG9aZkNYUFQ1ZFNMM2RWUDVCMVFfQkRqd3g5c0oxVExBMnhVcGhlMklGMzUxUlNqMjFyZFFsdVFTTmtOWFIzWkNGbHNKa3kxWUU5eERFRmVwR3gzVDlZLVVzQ01SaHJJdmVMSzNWZTZkVzl6VmM3WHh1YXVqRDdoLXlWcGlkZHRWQ2tSOHJkRXV3MG8xWWpHVWFCYUZGQkxoUkU5UnZiRTdkT18wSE0zdTBLM2lM0gFWQVVfeXFMTl9fVXBkSWdGV19zNXVvbkZOTXlrZjV3TG1sU1ZEamRHRlZ6WTZBdThtTW1JOUhZN1l0ME1MZ0JvN3lMV1EzSE90RGM0Tk1kLXBpb2F3UlE?oc=5) |
 | FBI returns stolen document signed by conquistador to Mexico - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBBSGVMek1vWEVxVlFsSWZsX0N6N3BaUU9Dc18zUjFXblptYV9RSlA5TTE2SWhXbG9oMllCY09IcDFvZ3RFYk1nakpvaDJCNlRLa0dFWnJmVUpuZ9IBX0FVX3lxTE8wZkthdWJNWk9RclU0aTEtYmpxc3FITjByTUt5MGVaSjNvQzB4UGZWODdJX3k4UzdKTVpjRE5FUmFHcUR5VVFUb0VITkVZUk9DUmZmR1dyZl95bm43OE5V?oc=5) |
-| Erin may rapidly intensify into a major hurricane. Here’s where the storm is going. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQMHZLckhqekdqX0djOHN2VlZFRVZGbGwzWWViSGRNS3FFSVBZRG5aM0xKYzNNNC1MX1NOcUwyb3dFY0FjZGFkRzV6ZlhybVRsWW9NS0RIR2Rfd3luLS16djVjRFpQRjhzSWlhM1lXeWhXT3JnRW84Sk55QXlKNGdkVGZuN011RkRHb2FNTVV3SkFIOTF1ZDUwZGxn?oc=5) |
+| Tropical Storm Erin intensifies, projected to grow into 125 mph Cat 3 hurricane, NHC says - Orlando Sentinel | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOV1JwRWY3VllSd2JTQ0dweHI0UnVnZmNZSUlVR1ZoRHdWOXhyUXhhRjJWdW5JRERmRTM1ZkdNTXo1emRNVE9KSGlRcFByakJPaDdTeHc0Y3VOelNxVzV6RkhxMGI3NTFXczV4Y05mZUJNNEd4UXM5VlBtMkhycWZ1TjJPeUJsYmxjSmFiWXg2NkVnZWtEdHc1azJ4emc1SXM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
