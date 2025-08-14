@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月14日 08:26:31（北京时间）**
+🕒 更新时间：**2025年08月14日 08:40:53（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | US appeals court lets Trump cut billions in foreign aid - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNLWZtWVZSNzRxYnJGU0dTYUZLRXVxNkNYNERxS2ZFQVZLLVIybjB3NGhFRUJ0clRraUVPVnZKYUgtQjhsWWFjMkdPbGF0cC16TXh5NkV6ZTdLbjV2X2pvRnZvbzFsZ2ZoMGktb015cWxhQUgzM0tmRHZBRzlPRXhKck5yaG1hbXozVlJCMkxNNlB5dk5Id1ZYVTNnV2tsZF9BdUlvdXJlMW4?oc=5) |
 | Man accused of throwing sandwich at officer in DC faces federal assault charges - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPeVE3N3lDT0p4UGVvRk51ODdQdExyNU0xQlpnMHNBOWwyanhUcTJsa0g3V3o4RmFzek5zaHJaVHQ0N0pWa1JOb3NkcWZRMVExa3hseXEtWjVhR25tX1FsdkpaM1ZGN2RXR1hKOWJHbVg1NE9kRmNTcWRfajRGVUlVSUJ2LTEza3B5NVZZaWdlSzBBcTRJUUtkUXlTb9IBoAFBVV95cUxOVlNVV0RhTDhxTWVTRWRPTlFvS1NDQzNyTjl6bmJzZkQzdjVZdGpjaGV6MGdZNUE0NEt3ajJ2X2hZWThQTUlYWVZTYjJ3YjlqN0FDM2d1TVB6NHBaMnNkc01lN3o5dGlRNDJVa1ZfRG9FZzVRZWRlT1A0WG9BcjRXSTRGbTJpdmtwMjFETGZVVk9PLWhuVk5jay1aT1B6R0dn?oc=5) |
 | Trump administration ordered to partially restore grants to UCLA after seeking $1 billion settlement - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQLVR5alRkT0o5S3ZYOC1lN09GUnowd0dIZ2tVUEFyV2Jna2NsZFNuUkxvcFBSRkFRNkw1ZlNvTlFnZGF1Y216ZmtvMWJ0dHJrY1lBdTFwUC1IOTd6a0RRVUt4ZDNtNDJJVjdIZXBOcXk0azJHS19nUS1iT3RhdEJuM2l6VzNhQ3hCMC1JNXU2UzBQOXVTb1VHWHg0UFExaE3SAVZBVV95cUxNQS1tcXVXd2MzYWRSaTk0cHdZU3FiTnh0T3hBNmljZ25OaDJrYjhHMi1MbGl1WFpxY0tCTlZwWFQ0a0VPRDhLR3pJS0VxWUdrSldpNGlJZw?oc=5) |
-| Mendenhall River Hit Record High From Glacier Melt - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNNDVPQUYyTFFLZDFGRzNqYzBtZWJKQ0pfd1djZ3B2aW80V1dnb3Y5bE5abEJwMEk5OFdCQnNHdDNTZFFSVWRlZVBHM203cEtKTDhWT3FuYVlTTFFSdEdteHZBVTBHWjVjdVFrczNvLVZEVHB6QUlhZ1N2NUlub2Y3Mg?oc=5) |
+| Barriers prevent severe flooding in Alaska capital after glacier outburst - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNdXN1YVBVWll4TC0xTC14cmlvcFRWMEd2SHU5UWpGN2ZZNVlWRTRUVl83VGhvdGFBYU5JczEwRklnMnFCMXNuN1lyQXBqMWdsQ0hJOXpqci1DWDB1eXNvQlM0MlVWbE5jVW4zMF9NTWh6US1YSnpZblBhZUh4YzN2aElDT1VQT2xLNjZSdG1IbWl1Q0JGMlE?oc=5) |
 | How a U.S. Senate Race Is Shaping the Fight Over Redistricting in Texas - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNWFhrSFQxcXVuc0NscWdhMm5PRHdoUS1LNjlOVFM2dzRZMUt2VHpMQ3U3a0lZUEhvSmJLdW9Jcm1BNXBobEZIbG1jOUkzV3FfTkttajk4REg2bHBCRlFRWFBGVWVxRzlNRkktT0x3QXhTcUtsNHJxcHphVmVQa1ROckY5Q0E?oc=5) |
 | Hispanic Democratic Officials in Texas Plead Not Guilty to Voter Fraud - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5iWDdvb1J1UXBjNmJNa1pGeVJyQm56ekllQUtYcmRqS0xYRG5iOW1qMWN6aUpTS3pGV1NsS3Rjd0JnZTgyeHhMZ0YteE5lcnpHbnotbjlLdHI5QUNvOEZIeDUwZ3NjMzdnUDlDZzRzRFdxRTFkWF9kMQ?oc=5) |
-| Emergency declared in Española area due to crime - KOAT | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOMlVJQzg3dU5PUWRZVXNUZnRqUnRHNDlCLVBYcFFvYnZyT01sRVk1YXNiUDdIRklPbDY5VlBVZUlsSnhnZkVqZ041OFlCMDk3MUQ2Q1hxbnJPV2JFNTJZRmpKWGxFV0N6bWZTTUh5Tm1Fbk9Ga2ZRMTluWHJKdm9QM0dsaGd4eFduNlVmUA?oc=5) |
 | Judge concludes hearing on halting ‘Alligator Alcatraz’ construction over environmental concerns without an immediate ruling - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNcWY3NzZaSm15Q3Bqd3pIcXdyeE5hcFVFeXZuZGZ0WWlMUUpOMlZuTXo5R2RqOEU2M1NmWmI2WEgyNkt4dl9TbzZOT1ZkQ0U0a0g4RmZEdXdnNzY2LXktVnl4aG1VVVpMdXlfenQ5Slp6aW1OclBIVWZfRXRWY3BpRFl30gGHAUFVX3lxTFByQlNyMjRCMUQtdnpIeEVNZzI0dW5INTdDbE4wQ1ZqbXctc0FMTF8tZ3pQYUd6cDBnQ2lKSk1tLW4xRXVqeWdqOXN4a1dacl83V0Q3T1Zwb0tfYlA2Q214d2Q0UGxWTy1vemlXZnB2YTdkeVhhbDBJR3hHMHlNMnM2cWtyQThDSQ?oc=5) |
+| Woman finds 'most diamond-y diamond' for engagement ring at state park - USA Today | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNRHEzdWJsRkdYRnprTGxMVTZReFlCQmFVa29PYUxYbk5jQlZYOUtRU0Q4WVRHYkgtMXoxS3ZmWHNhWWdZUEhpWDFHRzZfVGxRR2ZtWG8zTV9Bc1NQRXlIWVNZV013WmV5TmR1M0swUno2N2Y2amd2T3Q5ZndybzhuTnZRU3VHd1dxX19ZdE1zUXNsS2J2V0ROTjFUQ1Jhc3h0QllNRkx3SjBUZmZ1M1pSTlNDc19GZTQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
