@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月14日 14:26:36（北京时间）**
+🕒 更新时间：**2025年08月14日 14:39:14（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | ADHD drugs cut risk of suicide, car accidents and criminality, study suggests | [阅读全文](https://www.bbc.com/news/articles/crr2j792drro?at_medium=RSS&at_campaign=rss) |
 | 'Our children are dying': Rare footage shows plight of civilians in besieged Sudan city | [阅读全文](https://www.bbc.com/news/articles/czxp0qyn6dqo?at_medium=RSS&at_campaign=rss) |
 | Melania Trump threatens to sue Hunter Biden for $1bn over Epstein claim | [阅读全文](https://www.bbc.com/news/articles/cqjyw0l9d82o?at_medium=RSS&at_campaign=rss) |
-| Fake death fugitive Nicholas Rossi convicted of rape after extradition to US | [阅读全文](https://www.bbc.com/news/articles/cx27r386p4zo?at_medium=RSS&at_campaign=rss) |
+| US fugitive Nicholas Rossi convicted of rape after extradition from Scotland | [阅读全文](https://www.bbc.com/news/articles/cx27r386p4zo?at_medium=RSS&at_campaign=rss) |
 | Cherish bonds of love and friendship this summer, says Kate | [阅读全文](https://www.bbc.com/news/articles/cdd3r78zem9o?at_medium=RSS&at_campaign=rss) |
 | UK cities face new 'firewave' risk from hot, dry summers, scientists warn | [阅读全文](https://www.bbc.com/news/articles/c9vd79x97zlo?at_medium=RSS&at_campaign=rss) |
 | Full guide to A-level results day - and how to appeal | [阅读全文](https://www.bbc.com/news/articles/c07dz891gy5o?at_medium=RSS&at_campaign=rss) |
