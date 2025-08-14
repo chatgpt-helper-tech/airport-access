@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月14日 08:13:10（北京时间）**
+🕒 更新时间：**2025年08月14日 08:26:31（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Mendenhall River Hit Record High From Glacier Melt - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNNDVPQUYyTFFLZDFGRzNqYzBtZWJKQ0pfd1djZ3B2aW80V1dnb3Y5bE5abEJwMEk5OFdCQnNHdDNTZFFSVWRlZVBHM203cEtKTDhWT3FuYVlTTFFSdEdteHZBVTBHWjVjdVFrczNvLVZEVHB6QUlhZ1N2NUlub2Y3Mg?oc=5) |
 | How a U.S. Senate Race Is Shaping the Fight Over Redistricting in Texas - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNWFhrSFQxcXVuc0NscWdhMm5PRHdoUS1LNjlOVFM2dzRZMUt2VHpMQ3U3a0lZUEhvSmJLdW9Jcm1BNXBobEZIbG1jOUkzV3FfTkttajk4REg2bHBCRlFRWFBGVWVxRzlNRkktT0x3QXhTcUtsNHJxcHphVmVQa1ROckY5Q0E?oc=5) |
 | Hispanic Democratic Officials in Texas Plead Not Guilty to Voter Fraud - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5iWDdvb1J1UXBjNmJNa1pGeVJyQm56ekllQUtYcmRqS0xYRG5iOW1qMWN6aUpTS3pGV1NsS3Rjd0JnZTgyeHhMZ0YteE5lcnpHbnotbjlLdHI5QUNvOEZIeDUwZ3NjMzdnUDlDZzRzRFdxRTFkWF9kMQ?oc=5) |
+| Emergency declared in Española area due to crime - KOAT | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOMlVJQzg3dU5PUWRZVXNUZnRqUnRHNDlCLVBYcFFvYnZyT01sRVk1YXNiUDdIRklPbDY5VlBVZUlsSnhnZkVqZ041OFlCMDk3MUQ2Q1hxbnJPV2JFNTJZRmpKWGxFV0N6bWZTTUh5Tm1Fbk9Ga2ZRMTluWHJKdm9QM0dsaGd4eFduNlVmUA?oc=5) |
 | Judge concludes hearing on halting ‘Alligator Alcatraz’ construction over environmental concerns without an immediate ruling - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNcWY3NzZaSm15Q3Bqd3pIcXdyeE5hcFVFeXZuZGZ0WWlMUUpOMlZuTXo5R2RqOEU2M1NmWmI2WEgyNkt4dl9TbzZOT1ZkQ0U0a0g4RmZEdXdnNzY2LXktVnl4aG1VVVpMdXlfenQ5Slp6aW1OclBIVWZfRXRWY3BpRFl30gGHAUFVX3lxTFByQlNyMjRCMUQtdnpIeEVNZzI0dW5INTdDbE4wQ1ZqbXctc0FMTF8tZ3pQYUd6cDBnQ2lKSk1tLW4xRXVqeWdqOXN4a1dacl83V0Q3T1Zwb0tfYlA2Q214d2Q0UGxWTy1vemlXZnB2YTdkeVhhbDBJR3hHMHlNMnM2cWtyQThDSQ?oc=5) |
-| Proponent of Medicaid cuts set to brief House Republicans as they plot another megabill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQU1A4allCa3JTR0RiQ3FUcHBjVlZhY1VYY3VrX1VCYTZuTnJ2dmlwNWg1UERZSHlxdEQyNUk0REJVOGpHQ1ZZdGkzMVVyeW54eVpqcmJwWVFsZ3FpVG9xWjExdWtHU1d6Q3N2bEo2XzZlbTNnMWkzcjB1N2s0Rlc5VkVxbHlUOHJC?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
