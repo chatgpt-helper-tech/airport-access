@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月15日 05:14:11（北京时间）**
+🕒 更新时间：**2025年08月15日 05:27:46（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Newsom’s California redistricting push sets up a standoff with Republican-led opposition - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQSWJNZUloRW1VLTBETjgxOTZCTW5zbGpVV19LUzZSTG04MHl5STd2bWxyNmN1cjJqLWoyelI1a2t6NWpMRktUeFZWSEFvazQzWTF5RkZYeThsbEFVeHNoWlhrMTN0c0VERHRYYUhSNkFkSkNsS2FtZG9Hb3dXU0VwQ0dXMy1nbjJadm56YzNOTEhTS3VMeUHSAZsBQVVfeXFMTWxiX25SQ2lhSGR0azhmX3g4NmJFMXEyelZmV2YzazV5MkpmWUdhN2x4N0t3NlAyaXpzUGw2T1lXOHFpNEkwQUN5bG0tX2hWVEhPb3JNZ3Q2aHVNMEdBaERva2hKZk1QNnUxSVFwcF9KbkpCa1RGS3R3X2ViWHBJbmFSd0V6bFBpa05sSDdoODk2VFFJeTR2Wml2aVk?oc=5) |
 | Putin to offer financial incentives to Trump at Ukraine summit - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPMHhxOWFCamt5akxvUmNsZ3BlMWQtQWRadW1FVmcxcEpVYXlhZU41RFNUWi1lUFJHRnlFQVJITjlKcW1PdDNqTUNBOHI1M0V2cVVKOGlOQjFYWko1aVJPbU92Rjh1blgtRi1zVVBaREd2WmJlUGh1WWtCZjVxNjJnX1hlMHFzNXVJOG1sVElyZzdZZVdNbFRnNWxrUG8yaWxWYVlJS2pBdXk3dzJt?oc=5) |
 | Texas Democrats signal they are poised to end redistricting walkout - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQVG5mODczN050UDJCY0JscENnSEo5YTM5a1pnbGYtZk9fVlpjZUd0Z2lEM2tHbXljTEpSMjA1bkF4bFhrZ2tMVlczQ3hIYWN1MDVMOW5ZX1ZXY2hnaGliWFJ1OWs2aU1iZ0hkd3A1Tk5lcklWS2hZZjhlaW43eldWdTFRNEwwZXBNWGlYUQ?oc=5) |
-| Man accused of killing married hikers in Devil's Den State Park pleads not guilty to murder charges - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQV1VSQlpZVWlGVFVKd2NGVnQ1bWRPc09GLWVORmVFd0pvZ2tGZHduUTdVMmdYcXFHWXllUkdEZm10dm01RVZBOFRQLS1TOU8xb2NsZXpTb3BuUGRaWi1BNnFoY1hZWnVtV19iQzFPbDZLT05odGRFN1FaM3lMYWl2YlJERUFrRHo1VTdrTGhENkRaRkUwc3Fr0gGcAUFVX3lxTE9JY2FaUEFCd2stYkgzWUlPa0NjOGhlTFpsSUM0Z1BISWpnMkN2dXdjYXpiYjU0Y0RNQmZiR0ppNHM4NDl1N05zR0QxcklLcXR3NmNGZElLZ0ZNeWJTVEdLTnZRNC02RWhwUmlnVHpTcjdXdkdDellMa2VxRDQ5V05MMldTc2c5a25TaUFIZk90a3FPVTRlbXFYLS1Tbg?oc=5) |
 | DeSantis announces 2nd immigration detention facility dubbed 'Deportation Depot' in Florida - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOdWpFM1NPeEctRGxnUmNlS2ZManQzWkRiRkpYY2dzQ3RvSEhBelN1YlNCTnBBczF4akdpdXpxaGtLams1ZjFaRWVCWU5KRVFWdFRWTDAzbmJpTzRSdTNOX2JKeDFpdzJZSUMzN21DM01iMm5tRW9UaFVGeHpVN0FRWThTZnBkbHBZSDN1dzV0Um1HNktkUHI1VkdPRnp1Sl9XRG1jVTU1WC1mNzJOYWJqaWhScmRLLUF00gG-AUFVX3lxTE9BdTl4UHd6UUlpOTNmWU1xbXY4ZG54Wk03Z0NqWVUteDNnb1dhcGNHZHNwVEU5Vk5KLWt1c2ZGYk42dUNYVlR2Ui1KdXN5T2dIRXRudlZ2OVBhV21xVTdJeF9meFMxYVd5WFZtNXdzNzNqVTlLYThab3REWVJ6VEhHLU10bndYRUhORUhnVy13b09pdDVRVTREbG03WURyQ1JpLTVhMXBaN2FUVjRqc3J6MTd1bGYzT29mV2lDc1E?oc=5) |
+| Teacher charged with killing of hikers at Arkansas park pleads not guilty to murder - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOcU14OUJKQ0RBQUhyWVJXNEp3cDZMeWhlblRmcnkyZDA5NDNIMjRnc1JWSmZldHRQbEE2cGZqMzRqQXg4ZzgzNU5NQVQxQkgxRUNSdnlic1M0cHNwRnU4RVFTQVNoY0JOdDIwMmMxUFhTeUgzUEc3SGxPSlhKQmdVMmRXWVJ0NWdZOWp6UzRuZXN5NjJqOEpNRE8yNUJ4akZ1Xzdz?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
