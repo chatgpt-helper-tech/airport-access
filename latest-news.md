@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月14日 16:52:40（北京时间）**
+🕒 更新时间：**2025年08月14日 17:01:09（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | In maps: The war-ravaged Ukrainian territories at the heart of the Trump-Putin summit | [阅读全文](https://www.bbc.com/news/articles/cgkrn433lk2o?at_medium=RSS&at_campaign=rss) |
 | UK economic growth slows to 0.3% between April and June but beats forecasts | [阅读全文](https://www.bbc.com/news/articles/c0ml42ww740o?at_medium=RSS&at_campaign=rss) |
 | Humanitarian groups say Israel vetting process preventing life-saving aid getting into Gaza | [阅读全文](https://www.bbc.com/news/articles/cj6ynz22871o?at_medium=RSS&at_campaign=rss) |
-| Criticism of burial 'fat tax' at council cemetery | [阅读全文](https://www.bbc.com/news/articles/c4gzx347z4vo?at_medium=RSS&at_campaign=rss) |
+| Burial 'fat tax' on wider plots at cemetery criticised | [阅读全文](https://www.bbc.com/news/articles/c4gzx347z4vo?at_medium=RSS&at_campaign=rss) |
 | Relationship and Easter eggs - what we learned from Taylor Swift on Travis Kelce's podcast | [阅读全文](https://www.bbc.com/news/articles/cedv5dy9v8lo?at_medium=RSS&at_campaign=rss) |
 | Melania Trump threatens to sue Hunter Biden for $1bn over Epstein claim | [阅读全文](https://www.bbc.com/news/articles/cqjyw0l9d82o?at_medium=RSS&at_campaign=rss) |
-| What happens next with the ban on Palestine Action after the mass arrests? | [阅读全文](https://www.bbc.com/news/articles/c3wn5gdv0wgo?at_medium=RSS&at_campaign=rss) |
 | US fugitive Nicholas Rossi convicted of rape after extradition from Scotland | [阅读全文](https://www.bbc.com/news/articles/cx27r386p4zo?at_medium=RSS&at_campaign=rss) |
 | ADHD drugs cut risk of suicide, car accidents and criminality, study suggests | [阅读全文](https://www.bbc.com/news/articles/crr2j792drro?at_medium=RSS&at_campaign=rss) |
 | UK cities face new 'firewave' risk from hot, dry summers, scientists warn | [阅读全文](https://www.bbc.com/news/articles/c9vd79x97zlo?at_medium=RSS&at_campaign=rss) |
+| Full guide to A-level results day - and grade boundaries explained | [阅读全文](https://www.bbc.com/news/articles/c07dz891gy5o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
