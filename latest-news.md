@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月16日 01:53:59（北京时间）**
+🕒 更新时间：**2025年08月16日 02:01:07（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Hurricane Erin forms over Atlantic, the first of 2025 season. Maps show its path and forecast. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiZkFVX3lxTE5yN3RTRHRvZlNFVGNvOTBOcjBqU2c2THdBbkpwdzFuUDJiMmZwT3M2U2ZuMzN6LU13cHJhMDFPYjJCMnItZ1RjdFZLUFhha2xBcjF2WEhSRzlJU0UwY3ZRTktMZ2xyd9IBa0FVX3lxTFBVb2xDOVZURkZKQkE4d2llblF6QXFSaGFBaDQtb1VfWDBrSURoRzFyS0hMMzVoT2pTdDZwVXQ3b05Tc0xnNWpSUDZCdG1yMDRuNE5jTWhGMW1ieGpqbmVkRWdOVm40cGxRLXp3?oc=5) |
 | Newsom mocks Trump's social media in a flurry of redistricting posts - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFAwR1dCZ1JWeFl0N2V1NTNGSmtzeEJ1VjREaEJkbGptcDJMZkpHbTBndHlnSlkzWVIzVEQyX3NFamdjX0ZVd3BfZExZbEdZR1J5dmVBOVF3WFA2a3ZnNXl5QUYyeEk5Qy1ZSGRuS2dPR0d1ckRhS1ltNXV0amw?oc=5) |
 | Texas Gov. Greg Abbott immediately calls second special session for redistricting - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxObE5KZXFWV1pxVkhya0l1UEt5akN1aTZpNWlqTkpRaHVzV25sWWJJQTFtZ0ZMX0VPYW05NTFqQlJpcktTd2FVX1JKWG56MmtjeDBJTE1vUHVsdFB5TDNyN01UWVIwNEFjejIzYjdYU01Rby1mTWM5UmlCTUFGV3Nkdm5DOU9MR0RYZmhTalRWN05kaWhRQkEwbUQ3emxXWW1C?oc=5) |
+| DC officials clear out homeless encampment near I-66 ramp in Foggy Bottom - WJLA | [阅读全文](https://news.google.com/rss/articles/CBMiwgJBVV95cUxNZ1Rsc3JFeGxwOE1IaDNsbDZ4UDUxOWgyZElMZUduNHoyTWhiTUZVQ0RYM3Q2VUNHcFVESjMxcE9yTHFGZmlpQ3diSlVveU9aLWtMem5tRUN4LWRFOHZZSF9nMC1YRVc2SlhMZ01MaVhNUnIwYkoyZnYya1huUEx0VWhqcnhsX3Q2MUJWX1JMb3NRRmhqQU83NG5BTTRJelc1YUhuYTF0Vkl0cExfSUdINjRhWnFvaXd4NS04Sy16V0NEenVLMkxaWTEtOWxyQXl6N1g1SE0yUWxYY3RLcVVvNjYxaC1kSnk0M3hXOGx0TjhLOHp0b1NjQWtZM0g4b1NQaEdneVlBR1Z5dmtIcU5MR3E4Nk9FN0txWHR1eFJLMzVzcHE1OUF4YThjR0k4MGR2QWF6VEIxX0E0VkVYVWFjcmF3?oc=5) |
+| Environmental groups sue Trump administration over "secret report" by "known climate contrarians" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBoanFZbFB5Z0FNdXpSTkVUcVFYZmMybllKbVNPQkptR2pwQ05oR3hBcDE0Ym05X0ZaUzNDU1hRcVVLYkIyb2xURTZSTWpjdi0yWUk2MkctdUw2UmZPU2hhMXVZZzU3a3h4VkxlcHFjSklLY0kxZGl3amdDbmJFd9IBgwFBVV95cUxPamhzN0w3bHQ1Q0dlU2RVQmdIUC1OZUQ0UXItdHVCRFlPQkNEZmkyNFVTYm96ZWVhVFJfZE1sNmVtU05oTE9NTEItN2I2ZElzN1JDdE1iVWhEU3ZlQXc4OXRIZG1ONnVpeTlXU09xZHBTR21INlkzeDhCWmkwaUdRb2lsUQ?oc=5) |
 | Appeals court clears way for deep cuts, restructuring at CFPB - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOSFhxR1djc2FaTW1MUXdqRW0zRjZtUWZQb1pRMTQ2QVZmaGNwd0ZBR3c2UTBoMFoyc0laM3ZCUHNuelRZUlI4dXVsUVF4WnpIc0Q4cTl3ZmlhRGxPdzhqbmpRUE5DSkFDUlVuS1hQLS11VVNCR1pXbHRkRnhieWdNcHN3REx1UjZHM0lkVjFVUHZrSERPM25lNw?oc=5) |
-| Judge strikes down Trump administration guidance against DEI programs at schools - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQejJRWC02S1ZRV3FscjFKT2sta1N0Z2JjcG5OWEdNR0lYSUwzUEZJMGV5UjMxcHJGZXJFWW9femhJeGhyZ0FsWkFqNUV2OXNHTnl0UFNHMm84S1Y3dEhqNEc2T2gxYTlSbnllZUN6aFZSbzF1YkhFU0NsRmp4QlNmU3hKYko?oc=5) |
 | Plastic pollution treaty stalled as Geneva talks end without deal - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxPcXJSMFJlWjdzSlROcDF4WXp3VnBmY1Y2bjdONTlIWFl2NVlQUk9xYTRuWFR0TklxektEc1lZcU9mWTh4YTAyUGgtUVBpTzZXVXBHSDFyVXUwcDV2LTRhazVCR29Va3hmei1TZGRMNnBYT28xb21XM0tUYXhoeHFxOXBNUEJzQ0pleDd5ZlpWNnkzM0tQazYtVzBIdjdtRkxaTE1HMFliVVhQdTVLVUNiSXlPS3ZCM1FOeXNPcGlfYmpValNxSVdN?oc=5) |
-| West Bank settlement plan illegal, Germany tells Israel - DW | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNTnlZZFRnRm1VSGswRnMtekpCNllSNW5DZ3RWSWx0VERtdjFlR0RBSWt6X1F5R2FuSzZVRVZwTWNSX3ZucmdvXzBYa1ZSQnRFelFjcE94WVZNdEtldklEVUMyNVZ3RU9STk1XZV9IaUwtZ2gxSURBNGZiYkpIcGdrUTAwNWo2d2hzdmxiMkVodGk4SEtTbTE40gGXAUFVX3lxTE5NRTdKaFZnZlVtZFBkLW1lV2JXZi16MkNDRlB5d1Z6d1lOSGhvNlN5MzU2UE1pa25DdzBxUk1DSVAwSE5VZGY2bThoVElpdDNSdFU1UVA2allmQm5sQkpGeWc4X2pySTNEdUstMURHQklpUkxmUVIzMU9HMVZvekF6SnVaVGRTdVlKT1JCRU9IMDhhd2Q2c0U?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
