@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月16日 04:53:02（北京时间）**
+🕒 更新时间：**2025年08月16日 05:00:49（北京时间）**
 
 ---
 
@@ -8,7 +8,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Watch: The moment Trump and Putin meet on the red carpet | [阅读全文](https://www.bbc.com/news/articles/cwy0v14vw18o?at_medium=RSS&at_campaign=rss) |
+| Handshakes and a shared limo: Our correspondents on the moment the presidents met | [阅读全文](https://www.bbc.com/news/videos/crm4dnmy0pgo?at_medium=RSS&at_campaign=rss) |
+| Why Alaska? Why now? What to expect from the summit | [阅读全文](https://www.bbc.com/news/articles/crev9ep2vdgo?at_medium=RSS&at_campaign=rss) |
 | In maps: The war-ravaged Ukrainian territories at the heart of the summit | [阅读全文](https://www.bbc.com/news/articles/cgkrn433lk2o?at_medium=RSS&at_campaign=rss) |
 | Sidelined Ukrainians look on with deep scepticism | [阅读全文](https://www.bbc.com/news/articles/cm21l237pkpo?at_medium=RSS&at_campaign=rss) |
 | 'Putin is a master of persuasion' - BBC correspondents discuss summit strategy | [阅读全文](https://www.bbc.com/news/videos/c6205ezp6nlo?at_medium=RSS&at_campaign=rss) |
@@ -17,7 +18,6 @@
 | Epping hotel given temporary ban on taking new asylum seekers | [阅读全文](https://www.bbc.com/news/articles/cp8z537ngvno?at_medium=RSS&at_campaign=rss) |
 | Why did so many teens get into their first choice uni this year? | [阅读全文](https://www.bbc.com/news/articles/c62n9ygdqeno?at_medium=RSS&at_campaign=rss) |
 | Iceland offers £1 reward to customers for reporting shoplifters | [阅读全文](https://www.bbc.com/news/articles/c707rzen2zvo?at_medium=RSS&at_campaign=rss) |
-| Charity boss offers Jenrick 'olive branch' over BBC row | [阅读全文](https://www.bbc.com/news/articles/cwyex93wnd3o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
