@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月15日 09:52:12（北京时间）**
+🕒 更新时间：**2025年08月15日 10:01:12（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Border Patrol chief crashes Newsom’s rollout of California redistricting campaign - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQTnNCNGtVamUzSGR1UEtDcW0xOTZVRjNhZFRXbEphcXZIcnN3aXB0aC1RTXd4em9xQ2dnWXVNd01DaGRvYjl4anV2VUdIUy1oZEJMMXp6a2xpbnlfZlI1NUpnTmVEeHJlY0VYOGo3VmNFYWpnMEdEUklDOG9xR1l1WU5xUnZlRW1hQUNmU2ZZZEVGeW8?oc=5) |
 | Hunter Biden said he won't apologize to Melania Trump amid lawsuit threat - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE52NnRQWEZlYWFpSnZlYnFsVWJ6XzFVNFZ3cGVvNjB4TC1GeTZ5RXo3ZVgyaDhrVDdFWkdDUWVrQ1pNVDFaZ2RBeWNJdGd6V1BCeW9zdlhodHpFQ2VZcTBnT0dMaUdHakNtZlpLcDNDQ0stZWRxUjkzTVZIRlBHdXc?oc=5) |
 | Some parents miss drop-off in Los Angeles as immigration fears dampen excitement of first day of school - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOMDEwem9sNlZuQVcyLUpoTWpfY3QxWUZZdmNfbDg3cWg1aWF1TkRQRVBpNnN0Tm8xYkRDYy0zSkoweGpPZTJFT2RZa2VZV29sQmZUWElvUEpDbHRiRFJIMlZFUXpWQUk0UkhpT0RMd0kySUl4WTBUZWhTMDJCOGVFdmdvUdIBiAFBVV95cUxNMURteFpJbTdrOFRvNHRfb1hLRTlhUng3aXY0SzdQRUZROEVIN0x3SlVQbklOcTA3VHBlaDJjeXMyM055YkxNWko0ajZjcExCR0pzT0tneFh2ZWlyaVJqSHF6SUZvYVNGTF9oZ3VFVmJnS0ZuRHpsYTByZTZqaXJzTndKVXM0Mk05?oc=5) |
-| Federal judge declares Education Department’s attempt to bar diversity programs unlawful - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxQN0xJQmNoZUJVRU5SMi14eG5GUV9YUTRENU55NF9vb3BPam52N1pwZzZFUHN6UDNKMHVGT0ZEdm50d25QbWhhYWZmVkI4LV9Bel9jUEp0RVN1UVBoeUtyTkpEOUxQVVUwZWlMZzJBaktHQlV4VU5TbFhqbGxjQUw5MUk0TDlQbTU3VTVlNzViUkZGX0dGU0NBWVVKTHRTNXdTS2Zoa0Y2djgzM1hmTEUwSjB6RWtrQl9CYkFxbmI5WW51SHZkcW9nWGtWM3hybGJDWVg0?oc=5) |
-| DeSantis announces 2nd immigration detention facility dubbed 'Deportation Depot' in Florida - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOdWpFM1NPeEctRGxnUmNlS2ZManQzWkRiRkpYY2dzQ3RvSEhBelN1YlNCTnBBczF4akdpdXpxaGtLams1ZjFaRWVCWU5KRVFWdFRWTDAzbmJpTzRSdTNOX2JKeDFpdzJZSUMzN21DM01iMm5tRW9UaFVGeHpVN0FRWThTZnBkbHBZSDN1dzV0Um1HNktkUHI1VkdPRnp1Sl9XRG1jVTU1WC1mNzJOYWJqaWhScmRLLUF00gG-AUFVX3lxTE9BdTl4UHd6UUlpOTNmWU1xbXY4ZG54Wk03Z0NqWVUteDNnb1dhcGNHZHNwVEU5Vk5KLWt1c2ZGYk42dUNYVlR2Ui1KdXN5T2dIRXRudlZ2OVBhV21xVTdJeF9meFMxYVd5WFZtNXdzNzNqVTlLYThab3REWVJ6VEhHLU10bndYRUhORUhnVy13b09pdDVRVTREbG03WURyQ1JpLTVhMXBaN2FUVjRqc3J6MTd1bGYzT29mV2lDc1E?oc=5) |
-| Prosecutors seek death penalty against Zizians member charged with murdering Vermont border agent - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOOUNGM0kyR3hwSjBfQ1FkamFnTVozMkNNRUk4aUNlaGJmeVUyTFJhNkw2U0pOQzZZcEhkeXVVTF9JVjBaQTc4NzFlRjl6QUNfWUY2Y0RjUUI3aHVHV1gzNG5WYlFKbVpQbG5BZVF3MnFRME9LLUVMVVNTVERDVzczQkhsMVY0dDl3UHU0NDZGWldqLVU?oc=5) |
+| Judge strikes down Trump administration guidance against diversity programs at schools and colleges - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPZDJCTjFhd3JHenJBZ3pYcUxEZHFxRlFnMkJ0TFV2VlljRzJhZFRkdVdIVXVJRGVjTWFTemtxXy1uSWpKajJWVlA3ZGJCSDRoSm02cEhUZzNfNXJ2YnB5Mzd2WGN5UXdjQTA3dTVHdlJua2VZT1liZGE0UmwwbWZmb3JYbUExeGhzSHhVbkN4N29rVWpXLUtpMXdMMy1BSTFiRVU0Q1FxU0RNUTdPSFdkQU9BQQ?oc=5) |
+| Florida to use shuttered prison as 2nd immigration detention center after ‘Alligator Alcatraz’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxPN09rQVB1ak5jMGpIQURjZFluQm5WV3Rkd1lWSUUxeGhBNFV4RjlZb182RktVVE1wdU5LNzZXbHJQQkpJZGtHZVhrYVpjQzRWVFMwVTdRZ0FwSjN4MmstVlZNOWVVRW1YaVBiTVhFN2ZtWmphalltS09Nd0VCRW92Ml9xa2htbmJNRGRFTTdLQy01TkNmcnd2clVzWDhkanNfcF9Tb1c4QmEyMmthYWFZLWs2eW9XWjN6aGtNdjNvakV4bGpvWEU1VHUxeXRTbGR4bGFmdVozNTBJZw?oc=5) |
+| Office of Public Affairs ｜ Seattle Woman Indicted for Murder of U.S. Border Patrol Agent in Vermont - Department of Justice (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOallDM01rVTdkVUMyWXYxak9fXzNtUVdjd0N3ZXFXZTVsV096YW9ueTlDbVZsVWpkU0M1VG1VTHNuWkZNYlBYMGEybzdFMm80MDQ3bHB4cUJ1ZUZhS2swdFBPMk9qUVhGcTZCbkJPZlZJSnRua3FPemQ2ZlhjWkdaM0RBN1JhX21vWmR3aUFpR1JVRWxOV2c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
