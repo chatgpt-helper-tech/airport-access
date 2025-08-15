@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月15日 21:02:02（北京时间）**
+🕒 更新时间：**2025年08月15日 21:13:38（北京时间）**
 
 ---
 
@@ -23,11 +23,11 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump and Putin meet today in Anchorage. Here's what to know - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNQlFqOVJIb3gtYXVtZUIxNGdkZ0lMMUpwUEN5b3FNN0J3MHhoT0lpaEVsS3BrNlljNjZGeEY5LVN2TW5vLVJJMllUZ0JSVEkwMFloaGtpWmZNa2JYRkJjeUgyMkQ1dzJEN0hCRzdxZ0RXdlluQlNrQlREZHRNMTZtSUNRT1I?oc=5) |
-| Bowser, D.C. attorney general reject push by Bondi to name emergency police commissioner - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOb3oySWphQkRsZ1RUWGwzMi1OeFVVaFpackZWcjlMS0N2VkwxN3pPMnRCXzhzUjg3T19rV1pNanlkZjdaVlBkMWt4ZHlIeVc3U1FpNVVxMVAxcDVCVW9BUmpLeUpDb25sTXVsc1Q2NHJJOEtmdXltbFZDWEx6azdfSmQwYXA?oc=5) |
+| How Putin, ex-KGB officer, will seek to sway Trump at Alaska summit - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQSmhsbWpoNnQyMG5CMmZqUldHekZ3S3dUSUZRSlAtNFZiSHN2dy1pOWNxZHZMdWdGSmNXek90OFR5YzRRWnZlV3ozOUNCQ28xRXVzdENGY3UzWElNc2RmbmMtcEtHSF9lY2JkaVBuR1JCcW5TU1ZibWpfcDRRQWJ1T1lqTQ?oc=5) |
+| White House: Bondi has "officially ENDED" D.C. sanctuary policies - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQU21vdU5UR1ZTTkFJMC1WUmdETXFCT3ZJVmx5YjZKaktPaC0zM1JEbzNDcnNnZTlGZmZxMkJsYmp5NmhIbjBPM3N3MjFGZ2JjdWdCQ09Wend4YnhpRkpfWmFnbkVYOGZYNHZpSWVPa0FveWNlR2FNZFJFaG1rWEV6dVhxalA?oc=5) |
 | Obama praises Texas Democrats and calls state redistricting effort ‘a systematic assault on democracy’ - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOZGxCRUdhWmpta0M1WERyS29PX1pVX0tBbjFCb1pwbDBUODNRUWNVRmxsbS1nXzdTRlZ3c29FY1RMT3FzMDVyYzNCbDBFQ1JsZHJuMkRTZjM2N083WmJydkdsRURhVWxWdEJ3V2ZYLUpaUGFWTzJ4S0c2VUZNdDhBX0Juc0paZElHbUt0SmpFUWVCenZsUTkyZ19B0gGfAUFVX3lxTE90WlJ3ZmFvbmlYU3VBVmo4UWtMdUVUdEVKYS0wSzRXMWdpakZsbnZRSmFyVUJ6WmFxY1M5NUdINHRNWkM2bDlpUUdJOVVyQjVHcElvdTlxakt6cUhVQ3lCdDcwc3dUblJkemZnN0ZFUEdTeEFBdnp6V2h4R2tLbmljeDNVMkV5V29nMC1TQlROR2liSmdGeHBqenpKR05LNA?oc=5) |
+| Erin gains strength in the Atlantic - Yale Climate Connections | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNNXVtS3ZwQll1V1Y2WHVpRTQ5UlpkeVc4RjR1YkQxVlBIUHQtNzNuaGk3dDN1YlYzQ3NrVW55Tk5kYks0RTBFU2VqR3ZIMGFVenFTclk0bjA2Ujg3ZjlXT1NBSWdJb1lwbHpFem5kRnFFQ2x1Wk15MEFiVGJYY21jVWdqdlQ0Zw?oc=5) |
 | Man Fleeing an Immigration Raid Dies After Running Onto an L.A. Freeway - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE44VnhIQXdpM1lCX1BaTmtSdDZfZzhZYjMtakNmbFk0NXdTTnhSZFUyX3VHMzZMemY3V19XZmVPNGFKRWUxZXlvYThTc0QydGVuVVAxUmZkWmJsZkVVSWRjMnBmczRWZ1pmTTVLejZZNjdBQlJFejd0VklSWXdiUTA?oc=5) |
-| Border Patrol agents in L.A. show up outside of Gov. Gavin Newsom's redistricting press conference - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQWmd4WkNfQmxLQnZySzlRLTB4ZE5hb3FHc29YbHRMVGVheGd4RTUtX0E4cWY3TWZWWFJERFpSMG1MYjNDTWNWOHFmTFFtV0NHS1ZHMkNEYzQ2bmVjb2k3MVBRUXNwTlJOalg2UWtQc0Y0c0N0dlpLLXNVQXhPRkZ6VG9rX1lrbFdnOXNGd0QwdnRrR21BY1ZKYUxBcllzTzJp?oc=5) |
 | Federal Raids Target D.C. Homeless Camps - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQbFJCSnZic2pOazYydFhMZS1oSHdzU0JYVXpLWjRKendYM2liTkV4YUwtOG5PcDMwcVhfQnZxNmJFNkc2MnZ6N2pHOHh5MmpwbW1KZzU0N0o4ZFRjd2ZUVnAzS1RvMGMwdC1GSjVMdlpaWjMwbDBlU0kyamE3NThFQg?oc=5) |
 | The Senate map suddenly looks a lot better for Democrats. But still not a slam dunk. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNYXJpMlZwZGptVEdRWEVrX3lRR09ZOF8zVjNTbkh2MDNySnNJT3BTQ01RdFpKUWNjYkpRVHVrbmNpUlEtMHo3QXdjcnBiWlhsR25LOWxnTGtzdmZ2bURJcm5oY2dqVHl2RzlOcElrSGFheDQzSTd0YVYybUdDWXFURVAyNzJocEFGYl9mT0RqYlNhTnc?oc=5) |
 | Judge strikes down Trump administration guidance against DEI programs at schools - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQejJRWC02S1ZRV3FscjFKT2sta1N0Z2JjcG5OWEdNR0lYSUwzUEZJMGV5UjMxcHJGZXJFWW9femhJeGhyZ0FsWkFqNUV2OXNHTnl0UFNHMm84S1Y3dEhqNEc2T2gxYTlSbnllZUN6aFZSbzF1YkhFU0NsRmp4QlNmU3hKYko?oc=5) |
