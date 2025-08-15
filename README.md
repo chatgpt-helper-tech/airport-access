@@ -20,7 +20,7 @@
 👉 [https://gptvpnhelper.com/airport-access/](https://gptvpnhelper.com/airport-access/)
 
 ⭐⭐ **觉得内容有用？欢迎 Star 收藏 + 分享给身边人，让更多人安全、稳定、自由地连接全球网络。**
-📅 最近更新：2025年8月11日 ｜ 来源：[ChatGPT 中文导航站](https://gptvpnhelper.com/airport-access/)
+📅 最近更新：2025年8月15日 ｜ 来源：[ChatGPT 中文导航站](https://gptvpnhelper.com/airport-access/)
 
 
 ---
