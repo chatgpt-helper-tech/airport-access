@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月15日 19:01:12（北京时间）**
+🕒 更新时间：**2025年08月15日 19:13:23（北京时间）**
 
 ---
 
@@ -12,11 +12,11 @@
 | Suspended Labour councillor cleared of encouraging violent disorder at rally | [阅读全文](https://www.bbc.com/news/articles/cjeykklwn7vo?at_medium=RSS&at_campaign=rss) |
 | Data centres to be expanded across UK as concerns over their energy use grow | [阅读全文](https://www.bbc.com/news/articles/clyr9nx0jrzo?at_medium=RSS&at_campaign=rss) |
 | Afghan whose details were in UK data breach at risk from Taliban if deported, son tells BBC | [阅读全文](https://www.bbc.com/news/articles/c776zgj73lpo?at_medium=RSS&at_campaign=rss) |
+| Full Strictly line-up revealed as final contestants announced | [阅读全文](https://www.bbc.com/news/articles/cly3318nrmpo?at_medium=RSS&at_campaign=rss) |
 | Bowen: Netanyahu is presiding over a divided Israel - the fault lines are now chasms | [阅读全文](https://www.bbc.com/news/articles/c3r441zyw27o?at_medium=RSS&at_campaign=rss) |
 | Sturgeon book reignites trans row with JK Rowling | [阅读全文](https://www.bbc.com/news/articles/cd6n78z1d34o?at_medium=RSS&at_campaign=rss) |
 | Chinook helicopter was on 'show flight' when it crashed killing 29, ex-RAF pilot says | [阅读全文](https://www.bbc.com/news/articles/c04rg3l3y64o?at_medium=RSS&at_campaign=rss) |
 | 'It makes me feel horrible': Female PC goes undercover as runner to catch catcallers | [阅读全文](https://www.bbc.com/news/articles/cz0y8r141pxo?at_medium=RSS&at_campaign=rss) |
-| Game of Thrones star rounds off Strictly line-up | [阅读全文](https://www.bbc.com/news/articles/cly3318nrmpo?at_medium=RSS&at_campaign=rss) |
 | Left out of Alaska talks, exhausted Ukrainians fear an unjust peace | [阅读全文](https://www.bbc.com/news/articles/cly7kl7e469o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
