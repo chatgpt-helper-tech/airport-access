@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月16日 05:53:57（北京时间）**
+🕒 更新时间：**2025年08月16日 06:00:04（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Children in a mental health crisis can spend days languishing in the ER - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOU1hDX0tZZ2JRel9MM1JSQ1A1QjMwTnl6MjNZeUx2dGxJY3RSSHRET2ZjRlN5MVhSQW9VcHN4aVprd2hBb0N4U3I3YXBQM0xfSTF2cHJ5Y2lfejNjTUttQW5ibzA2ZWdGTUNhbzVoSnotWmV5VVhOUFh2eUNsdHZRdVNpRXBsRTd4dmVOODNyeEprbmhmTlFmMHQ2d1NtZ1pTeHRMOTlYNlVmVEprZXp4WE5TYjhjaHNRQUZsU2Nzd1c3ck0?oc=5) |
 | New Orleans mayor indicted over allegations of trying to hide relationship with bodyguard - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPb0FsU3pGOFBEN1cwTmhPalUtemhoUWEyQnR0MkRBWDF3MDhKcDAtUTJ0MHN6RVlGNG5jWnhoQUJZQkR5eDlnLTllWmVjTGZ3VTBHTm9YbUx6Rnc5RkVaNk1VZy1kSkZDS0tsc3htY0pXMENjM0hZY3dXR1JVSkF3VXdOOHB1a1hEOTZXWG9EV3MwdjR3TExTbldJYUZXVW5hQlBLR2dDS2dLWi1tZXVvcmR3?oc=5) |
 | Man fleeing immigration raid in California fatally struck by vehicle, officials say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQa2ZaUW1ZSFIwN041Z2dKRXNtVWIzR05yaFdRZVlvZE5nVklWUVFkWU1lb2RiUE5SLTJ1U2lheTNlWERpTXZSak9VOERrZmNDSkM0SmFBSG5BTU1lQVV6YUx4RTBQdHd1RTJ3Nm8xaDIwYUV1OWlhRVAwSGlnNXJNQl9fRFI0Z2puV0Y2OU9UMll2bDVPU3lULURyLVJYTDR5NTdTTGJSTC1tLUJUdk1tTF90dHVFSEZyeFHSAVZBVV95cUxNWXlHeDNycW1VbFU0ekt3dm1BT29aT09wUy1aMURJdXc1bXlqenFVamhuVzBkTDE2dFdYcTdzS2ZZWEJUdjhZVGxYWk5NRE94dXR2V2hCUQ?oc=5) |
-| Newsom mocks Trump's social media in a flurry of redistricting posts - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFAwR1dCZ1JWeFl0N2V1NTNGSmtzeEJ1VjREaEJkbGptcDJMZkpHbTBndHlnSlkzWVIzVEQyX3NFamdjX0ZVd3BfZExZbEdZR1J5dmVBOVF3WFA2a3ZnNXl5QUYyeEk5Qy1ZSGRuS2dPR0d1ckRhS1ltNXV0amw?oc=5) |
+| Kevin McCarthy reemerges to fight California redistricting - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOMnJiZUlNUGxRSkFtTVNzbktZUW9mVEVzSFo5Mlp2aTRkNUFFdW5CNFQ2Z0tGT2s1VllHZndzb1h3dHFvdk9VYnJCekNPSXpwV0tUbTdEVUJmZ2owNFB4US1MMUlhYTVmLWpRTS11OTBhOU5xalJUUjNYclhFZXdsTWVlT2lMa05iWk1CZ2xocmFKRjAzZ0FoM3F2bkZmQnNLWnBXRXc3M29VTHhy?oc=5) |
 | Library book returned after 82 years. Note says, 'Grandma won't be able to pay for it anymore' - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPX3ExZEJTQ19NSWNpVUdJVllGcEpEc20yejBvMUhRd1BKTVNrYjBHMzRablMtQXNtUUpyZURLcGZaWkZJVHhtMFFNNmpPNVI2WlgzUWlnUXVSTGVUZ1pid09Ob2tkMFRQbExIbF9zRkVRVFcxeFpWbFN0QWFabWRoNnVraVR4Y04yZ1hPamR1RmRaaGItOU5DaGpUSDQzZ1hSVHlFWQ?oc=5) |
 
 ---
