@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月15日 15:27:18（北京时间）**
+🕒 更新时间：**2025年08月15日 15:39:55（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Putin to offer financial incentives to Trump at Ukraine summit - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPMHhxOWFCamt5akxvUmNsZ3BlMWQtQWRadW1FVmcxcEpVYXlhZU41RFNUWi1lUFJHRnlFQVJITjlKcW1PdDNqTUNBOHI1M0V2cVVKOGlOQjFYWko1aVJPbU92Rjh1blgtRi1zVVBaREd2WmJlUGh1WWtCZjVxNjJnX1hlMHFzNXVJOG1sVElyZzdZZVdNbFRnNWxrUG8yaWxWYVlJS2pBdXk3dzJt?oc=5) |
+| Trump the ‘dealmaker’ faces his biggest test with Putin summit - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE83RWtBRnBwcVRsb3dvcXhzOUoydDBXanlyRy0tXy1Gbm9Sc1BOVk9VWXM4QW5pYVhVZHpDNXF2QmVQWi1YR1pWY3lkeFBBOG1CUWZIbF8wNFhBbDBJb2w4UEZHVTY0clFZbkRaQXBZdnY?oc=5) |
 | Crime ‘hot spots’ targeted, encampments cleared, as feds expand D.C. push - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNRnVHdTlBQURvSUo2STFsMjhqdWJoYnJITzh2dE04amxxZ3M0YkV2V1NsZWd0R0NrTGgwTS1uQ3Y3UGF4eWNJMG13RFd6TGVZWnUybFgteFExSzZfRThfUlU1QWMweDg1S2NlSXpac0ViMVNDck5OUG5LQkx3cGNFYS1MYmFFQWIwdDFyVVZsM2k?oc=5) |
 | White House: Bondi has "officially ENDED" D.C. sanctuary policies - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQU21vdU5UR1ZTTkFJMC1WUmdETXFCT3ZJVmx5YjZKaktPaC0zM1JEbzNDcnNnZTlGZmZxMkJsYmp5NmhIbjBPM3N3MjFGZ2JjdWdCQ09Wend4YnhpRkpfWmFnbkVYOGZYNHZpSWVPa0FveWNlR2FNZFJFaG1rWEV6dVhxalA?oc=5) |
 | Obama praises Texas Democrats and calls state redistricting effort ‘a systematic assault on democracy’ - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOZGxCRUdhWmpta0M1WERyS29PX1pVX0tBbjFCb1pwbDBUODNRUWNVRmxsbS1nXzdTRlZ3c29FY1RMT3FzMDVyYzNCbDBFQ1JsZHJuMkRTZjM2N083WmJydkdsRURhVWxWdEJ3V2ZYLUpaUGFWTzJ4S0c2VUZNdDhBX0Juc0paZElHbUt0SmpFUWVCenZsUTkyZ19B?oc=5) |
