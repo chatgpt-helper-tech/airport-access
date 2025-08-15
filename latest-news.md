@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月16日 00:40:33（北京时间）**
+🕒 更新时间：**2025年08月16日 00:54:01（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Hurricane Erin forms over Atlantic, the first of 2025 season. Maps show its path and forecast. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiZkFVX3lxTE5yN3RTRHRvZlNFVGNvOTBOcjBqU2c2THdBbkpwdzFuUDJiMmZwT3M2U2ZuMzN6LU13cHJhMDFPYjJCMnItZ1RjdFZLUFhha2xBcjF2WEhSRzlJU0UwY3ZRTktMZ2xyd9IBa0FVX3lxTFBVb2xDOVZURkZKQkE4d2llblF6QXFSaGFBaDQtb1VfWDBrSURoRzFyS0hMMzVoT2pTdDZwVXQ3b05Tc0xnNWpSUDZCdG1yMDRuNE5jTWhGMW1ieGpqbmVkRWdOVm40cGxRLXp3?oc=5) |
 | Judge blocks Trump administration guidance targeting DEI programs in schools, universities - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQREVFeWRxZUUxYV9wZTJJNVhodEwyajdBaWpwS1Q5NVZ3UlUtVlFvWEIzYmtSTGxibVFFRkhCbHdRVkczV0JBV2tjNmFGMW5sRUpnbzNLZzRPaFItZlZNcXEyT3Voekt6aFNNTDBhdVVCNjVXSWJIblpXSklwbXlHNkFMSzUzaEkzSTRyZDZqWWNwcWYwNzVIb1l3M21zNC1zZ1JzTlJUeC1BZ291YUplYXlXRjNEUi1semU00gHAAUFVX3lxTE5wS05jRFBkeXJ5Q1Y4MUZ5b1FXZmlNc2I3b1IxdjEwUWYzSU1lS3hGLUpNWkg2OWpmRWx1dDJVcjJkd25EbDBrNm85c2R3bUF1QjEzTHkwTUdqaklEWkdWX09JNW8tcnB5dTI5UzE4a0JNMXRuTnN6MTNoVmkwQy0tMVJCYjEzQmdvSV84dWZueDRwOE0tUHdyQXhpOV8tOVJRQnpwYTBHY19rbWdBcE52ZzlJSFNhdmRLZk1Malkxag?oc=5) |
 | Newsom mocks Trump's social media in a flurry of redistricting posts - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFAwR1dCZ1JWeFl0N2V1NTNGSmtzeEJ1VjREaEJkbGptcDJMZkpHbTBndHlnSlkzWVIzVEQyX3NFamdjX0ZVd3BfZExZbEdZR1J5dmVBOVF3WFA2a3ZnNXl5QUYyeEk5Qy1ZSGRuS2dPR0d1ckRhS1ltNXV0amw?oc=5) |
+| Feds Turn Into Beat Cops in Trump’s D.C. Policing Surge - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5SZEVrZlAyYW5GTUMtSXFDSjltZ0ZpMVBEVjVtVlFacVVEWDVJYUk0R3BRaC03TE5xckNuUDQwT01VRXVUZDV6aG44NkptV3U2bHl3LXl0Qk5LQUpRSnZYQmFpdEl4QjB2eTRldHl0MHFKeXRrVVQ4QUVhM3c?oc=5) |
 | Bryan Kohberger taunted by other inmates at maximum-security prison, sources say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBEand6Y01MNnNWVjlfZlBMTURqRHNXQzJBU2ZQTFNHMkhYa0F6RjhXejRTZmM4YlpURmtHMnNwQ3N3MklKcm9sYlpacmx1TlVMaC12Z3Q0MFJxamtTdVF2V3hMYTZiR0FfU1Fzc3A1QzE5WkFaX24wQzUyeUJlWEHSAYQBQVVfeXFMUFVDZEd0X3BKZ2tZTUFsQTlOZjkzRkwya3JoUG0wZDdGWlJlSkhOMWNkNU5pcmlELU9RR3JKak5QUFpOUXBYdlExN3ctSDAzRmtLOWxGQmhLbVlyaVBVS3VCNThrMGRfcnpZMzlTWnlpenFkZ1BoTnpPdEtQZnRsUDE4dDFo?oc=5) |
-| UN rights office says Israeli settlement plan breaks international law - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxNUTlHQnVSR2gzY2ZzMGxXQXBid2thRFI4NmVHN1ZfLWlIV3lpWkd1OHhaXzUzUExNU2N0aktBTHJTdkl3c0JNZUxtNVBTaVY3c1UzNVpFNkMydndnTHBxOWtGeGczeUkzN3lKVlJ2VnNoZjd1TlR3OE9WelI3V2N6RVF2aUF3My11QnA1S0Rmenl6aWJFRXN2OHpuT1JjOWlsVTVxSzJZd3IwVUt0ZHRDZ3RXbkp4UmJvZ2xOWWF5eU5IQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
