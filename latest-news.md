@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月16日 08:52:21（北京时间）**
+🕒 更新时间：**2025年08月16日 09:01:02（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump and Putin conclude talks on Ukraine touting progress, but no breakthrough - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNQlFqOVJIb3gtYXVtZUIxNGdkZ0lMMUpwUEN5b3FNN0J3MHhoT0lpaEVsS3BrNlljNjZGeEY5LVN2TW5vLVJJMllUZ0JSVEkwMFloaGtpWmZNa2JYRkJjeUgyMkQ1dzJEN0hCRzdxZ0RXdlluQlNrQlREZHRNMTZtSUNRT1I?oc=5) |
+| Trump-Putin meeting live updates: Trump stops short of announcing ceasefire deal but 'great progress' was made - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOWVBqanI4ZkhtZmxqcU5FRHVRRXRRVkttSWNKUTZFMTZhSTY0RzJEN3FTLTR1Mmd1eGdLZlJjNWhfSThBV292UVMzWW9Xa2tYVDVVSzFVQjJDTm85NE5FcWNYbDZMVDR5LWVac1NfMVp1S3B1U2tfbjBaMU5zLWljR3ZGMlhKODVuUTVaSDdnYzc5V1BBREJB0gGcAUFVX3lxTFBVR0JpM1JLdWRINE90bmtQcVU4dENXQnpNcF9pLU1aRjRaNl9zUS1LWDJiNXBHOWdiVFNLQWZXMVRvbUEzck84Z1ZsMlhEWnFFVlhCNGROaXNtYmxuM0Y5NldfUXd4TWZidHlmVklLMGZkNXRlY1duejRqQW04a0NDdlRYLVAtU0h4YTUxU2ZZcXpzUWtJZjNPUW9GOA?oc=5) |
 | California Dems release map drawn to oust 5 House Republicans - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPamRITW9YT1FFUzE5dm5TUmZGVUxDS0Myd0lPM1NKXzJQblQtN1dOM1VuT1had2VnVi1VQk1FODZVcTFDTkUyc3RRM2JZOFhrTFkwZ2s2MGcwVTdVQjJBYzcwb2gtYUpxX1JQblNJMmdSQXVyLWluVmtkeXFoZ3VQdVRTelBNbmhGcUp1eXdBQ1BDN29EN3V6SW5EQ2F5cWU3WUVCX3ExV0g5X3BveHg4?oc=5) |
 | DOJ removes newly named D.C. emergency police chief, agrees to rewrite Bondi directive on immigration - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPZk1EQ2hkc3FVWklCNzlBSDI0SVdicnJ5QXVETWhRNGdjR2RLOTMwaElmUHNnWUpyVnc0Nk9Wb0Y3QlAwalcyX0pSYkxlaFUxNkk0Wk1IVmdpdTRrV3dwZjY2amVjbHU1RlA1YWw3UDNVaUhrOW9zMUtmbWkxbllkdXBCSUlFdktrMDNzejZ3ONIBlAFBVV95cUxOVjlyNTgwLU5kck1fdkdfVDNwNzg1UjdJaEcxaTdYTlNfSUNCRTFwX0lKQi1NRmpGY1F4STBBOHFlSDJKbGFyc1lsZHc2VTFwSmxNWmdwRTQ4bnNTRXZCWndIVnJrTnExTEQwZW9KdTRnVjNuSTkzQXpRNTdrX1hhZHBWU3lsMjB6M3FocVk0c05hV2Vq?oc=5) |
 | New Orleans Mayor LaToya Cantrell indicted after federal corruption investigation - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQM1BkSXQ3MlVyY0JybGRKaEcwSGdHYjlrU3ZGZGoxY09KbE1naUQ5OEpxTDVxUDFUdE5URVVNRFZLN0lkMDY0RWJDbF94RU90cDBKZ0I0ekI5X1p5RXlleUhKWW1XNk5WSi1Td2NkMmVXVFlBYUZxb2lGQTVJTFpUSVZoWmNHSWtiRnZHbTd5R0dKV1pjRHVxU0daWkNIdmQ3UnBCUWFCTk1DS0tUZ25VSTNvUjNCakQxbnfSAVZBVV95cUxONlNBZXAyeFRaV1J6NFk2S1BUaGptaHZHUDFMMmhUd3BBQkN4T1UyeEJaMEU4ZVJ4YTBHemxOVFZBVGc2eEhIbXpoTGhMWEd1MkZEdmJpdw?oc=5) |
