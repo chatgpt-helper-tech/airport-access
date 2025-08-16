@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月16日 18:40:54（北京时间）**
+🕒 更新时间：**2025年08月16日 18:53:21（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Zelenskiy to visit US, Trump speaks with European leaders after Putin summit - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxNZUp0clM1OF9wSm41QVRIUUd4NkxiQzlmQ29rb2dON0lZR0l6clU0QXlKMFNka3MxY2dBVmFUWVNIQzFEY0xrZHRVRTVrNmVUeThHM09TWVRYX3BkU2hsamZiQTBCVkdCSzhhSGNRSGtZRzlRb3JZQ056T01LZ1R5X2c1dnlMMTdlSjF3LWdBbUFmdUhyTm9pRTBTTDFpbmRqamdSMDZZemVWNzJ1QjF4eFN0aFlJTjZEUkhrVVNR?oc=5) |
 | New Orleans mayor indicted over allegations of trying to hide relationship with bodyguard - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPV3dXdTVjWFV1UndyNXJ5S2tRRG81cGxDUTJUd05BaUlWa191ZlJGNjhUSk9OWjlicFpfdExLRjJwd3dfeWhGQmNFOHZhV0M5aXJmU0VBcjNVVzR6TXJrMnZTaU5nWTRQYlVqT3lJNUU5WnZqUFE2bFFjMWdFS1hJMkVRRFgxSlhLaE9ZZjZ4V0tNUDVXak1INm0tUFh0SFI1bEtWZ3lheXZZdUZjSENabHR30gG3AUFVX3lxTFBTOWF1TUFkcmNUQ3VSdFdqaWRuOFJnaTFGUWlKbDlvX2g3dHkwTk1yaFZUYnFGeWVMYkdodVFIWWRSWjZodHVaRHFYaHhBdDFzNWVvVUhVUW1JZWxvTDY4VWRlVlE1X1hsaHFSTzhYLVR5SnlxMkhlZW1YUnZCR2tUZzg4ZkZRbjQ4WU5TYkNIUWVuMGl1S1ZDekhncnBWZVZlTlFYaXZmUlowaXlFTUxSN1BUQjFYdw?oc=5) |
 | Arkansas escapee "Devil in the Ozarks" spent 6 months planning prison break, cited lax kitchen security, report says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOUDFSMHJ4X0M2SlZtRm5kNFJTQXptb2pPZ0xWRHd0UGxSalRaWnVsd0QwQkZGRW1iOXg3MnpNOFBqUnJSMWFyV1kxNjFhcUU2bEZuX245ZFFHRkFremhoM3d4YkR3YVFJcnNRLU5JNHN2TDVoVk5qeVMxY2QxU05VekRXSXBQODlQVlBCNlpTSjJlcU5SZGc3atIBngFBVV95cUxQZ3pQRndkX1VjUWJzZ0pBNWVDUlhLODVxdHhFTnpscE1hRXdlRDNmY1AwdXh6TjNicFcxRTJWTjUtd09JQ3JXTVJpdHVncUdNNWlNZm1vVjRRcFlrZnJmZTVfOUluZVZyUGpOdjBYT3ppR0xpdUZYOURfbDhxTzQwNU85YUdNQTdoVllxVG9Db3VaYkc4Y2VfUWpDeUM4Zw?oc=5) |
-| Five Texas school districts at risk of a state takeover after ratings’ release - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQeHRhSjljY1VfWm9Ud2xtRmtjRVlPaGsyR0IyaUpIQTgyRlduRzBaYXBPdm9XU1BpcTRETzRfR2dGRGhwLWg1ZWtPaGJmYU1GWGstREpOdFFBMmNYQ3QxdEpTRjY3aE9mdzVjUVhSb2RmOUt6WndicXdmOWRIQ0lCc1h2MA?oc=5) |
+| Another North Texas school district faces potential state takeover after elementary school fails for 5th year in a row - WFAA | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxPUXpqNzg2NmpWRl9icDU2NlV5OWlsZUdtdE1RX0xLeHNpWHdIZFpQc1lOSkloN3dwZTdEalJmamRNdVp6WnJQaVg0TWpRWnNDemM4bGJ3a2ZkRFBkVzJGMnhUdjZNSGlxNTYwcDJFQTl5eWxSUS03eGRJOExELU5qdWlid2NtczhNOWVQajhDa1RTdEVGOTFESXNHdGdBcWVpU05rNUhLOEtkeTVOVllHTEk1bFgwd21NcnMyR242UFJ3cmQ2UDh0VHNPN0czSWhWY1Rj?oc=5) |
 | MAHA Draft Report Brings Relief to Some, Chagrin to Others - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOeU01RHRtMTNmTUo2cHYyZWZ1M05tOEZSZm9zM2swUGN0emd6bE1XRjF4cERfNXRQRzVDVmtQMUJ1SXA2SWUwWnpXYm9yYmhOSmlrZG9QZE1JanN0U3BHNHd3SjZDTjFySFBsaTV3UTZJaXlYRVZnV1VCRmU4MDhZNQ?oc=5) |
 
 ---
