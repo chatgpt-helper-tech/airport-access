@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月16日 13:00:59（北京时间）**
+🕒 更新时间：**2025年08月16日 13:14:43（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump fails to secure Ukraine deal at Alaska summit with Putin - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5VbU5GTmdOYUZQVjl0TnpUdDYzeHlWY2NhYmx4U09pYm5SLTh2bmExM2tYZ21MWUF4dkhnUkpaQXN3SDJ3anpjOS1Vb3FucGlTcXhaTE1wNFYwdzF2X3NwaDBzWk1sR0g4U20wSmJjZ3o?oc=5) |
+| 6 Takeaways From Trump’s Meeting With Putin - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOVlVfUmNCaWVEZFZEandIaVFfaFdmM0E0RVRHQW9uejRMNEJ3aFJfYkFDSXhpbGhKMkVEN0J4TUdYS2U4alI2Qk1mMVMycTVTRF9yRzU4Zi1pZUh0QWx0ei1MZnAyMGxmblMyV1F3Vkd3Y2ZSZ2FveElWbEZ4ZUlNb1dXU3Y2WEVq?oc=5) |
 | California Democrats unveil their new congressional map to counter Republicans - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOajEzSzUyQ2xMekVDVXpXVnduNjBCYy02RE5KbWtoYXVJcUFZbE04RDFGQ1JEZmFGTklsVWxzSFBCLTF0QTk5LWlvcmZEWmhGN2Y0YzlXRGd6WjloWXdZcl8tQXhIRXBIeFBHdHVfTXBDZk5ueS1WVDVpUEJDR1pOM1ZrTkttUnotTlBMVUEtRlh4UQ?oc=5) |
 | DC police chief retains command after deal with Trump administration - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE0yY1h3dW9EVXlFOHBuOTF3VVRGeE1TbFFpOHJyWWs3TGUwY2dvQ1I3dFRNLXRvdHVYTER2N3cwVHhiVkJ5R0tBMEFTMThBZHZXaDQ2YldJc3hGQdIBX0FVX3lxTE9neTROQlQxMnBDZjUyb1l1NVZZQnpiOGpvaEFYdVlyak5Hb2ZRYS1VWWlybXZ6Ykh1amVxTXNubjhfYlRCTFNXVmdjMlc3VG96RUtUTTQtRFczSC1Ea3Rj?oc=5) |
-| Mayor of New Orleans Is Indicted on Corruption Charges - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9QNDVmbk5NWFE4aWZ3ZmZfbVByQ0xjTWlMc0tXT0ZxcUN4OXhHbGFxWkEtYy1IXzl1ZXcwY09yOXRUc3NqM0JveG8tTVByM0FkcHRodG5VNnFnaDJRcGUxR21VMGdHeVI4VUJjSDJhd2dxSEFEOGRKYlcxSQ?oc=5) |
+| New Orleans mayor indicted over allegations of trying to hide relationship with bodyguard - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPV3dXdTVjWFV1UndyNXJ5S2tRRG81cGxDUTJUd05BaUlWa191ZlJGNjhUSk9OWjlicFpfdExLRjJwd3dfeWhGQmNFOHZhV0M5aXJmU0VBcjNVVzR6TXJrMnZTaU5nWTRQYlVqT3lJNUU5WnZqUFE2bFFjMWdFS1hJMkVRRFgxSlhLaE9ZZjZ4V0tNUDVXak1INm0tUFh0SFI1bEtWZ3lheXZZdUZjSENabHR30gG3AUFVX3lxTFBTOWF1TUFkcmNUQ3VSdFdqaWRuOFJnaTFGUWlKbDlvX2g3dHkwTk1yaFZUYnFGeWVMYkdodVFIWWRSWjZodHVaRHFYaHhBdDFzNWVvVUhVUW1JZWxvTDY4VWRlVlE1X1hsaHFSTzhYLVR5SnlxMkhlZW1YUnZCR2tUZzg4ZkZRbjQ4WU5TYkNIUWVuMGl1S1ZDekhncnBWZVZlTlFYaXZmUlowaXlFTUxSN1BUQjFYdw?oc=5) |
 | Erin becomes 2025's first major hurricane as storm intensifies - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTFAwT1JJWGEtcDZvcElXSEtjS0xDY3VDY29udE93TTRONUpIN0FRT1hDOC1wR0E3SkJiN1ZDMzRNamdEeWw4SlJlLVBYUzk3SnozSDBGa1QtRkozUHFzanFHbTl0ODRlaW0zRnNVZjFSdmVDRDlJ?oc=5) |
 | Democrats introduce measure to terminate Trump's D.C. takeover - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPeG9IaE92MlZ1d29Jakt6UWVUVWVIeXM0Y1BHNmFyaFpfYzBZd1laWkg4LVFGejRvaG9uVjhZemR5ZDV0UXh4ZE5NMnoyVXd4S1R2YlFWMUJpNEJLOU43VzFyYUw1THB3cjdJcXc4dXFKQlNqZU9ta2kxZG5jSDBVbmVPaXBsZ3pO?oc=5) |
 | 'Devil in the Ozarks' planned prison escape for months, cited lax security in kitchen, report says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOVEhxNjM4S1d6Q3hDaHdBYXRZUlctaWlzWHBCVjJJRzVKNi05SmlpOWtocnl1em1FOGFKbW1tclZla0xSWGh6NjczYkpOY1ZFTndtYkNWNnpGT0RKN3VBUUl3VVVlaFR5SC1EOVNZYjkxSFpfc2pXUlhiY3lrb0R2a3VKUUIwYVVyeDRqY0I0RnZtOThYOFI1cENHOA?oc=5) |
