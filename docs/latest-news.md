@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月16日 13:39:16（北京时间）**
+🕒 更新时间：**2025年08月16日 13:53:17（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | Hurricane Erin tracker: Latest path, maps for first hurricane of Atlantic season - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPLU5nODRNcmFlTWxHRW5SRUpCbzNmS0drbW14QmpYaUFOTjBHS1NocWpmbEI4X3AyMkdjTEw0T3hOTHBlaGs2VU8yYllwREgwaVJhVmNPNzJySmp3NkozRUN0TGFwR2NwOXNKU2FuMjhGeHd6b3NvZHc4OEVhdmFCbnJNa3Vqa0ZtQjUybzFRX3dpVFp0VmQzT0xoTG5lSUJ6Z2dpZGk1bTjSAa4BQVVfeXFMUFZHdnVfamxpQUlUUk4wUkJmQ0hmU2pGNGVKS0lfSW5YWjhVUHZLTjd4M19zLTUyU3ppT0ctejItZ0xhbDVoc3lCcm9DeEo0cDBvdDRIeW52NUNLQkoxaXBLNzZmN0pxTEtiSzBYMUNwd242ZjJtanB4MHhxb3JqTDA1NVBSSGFqZW53bWpWODZ0Mm5XSjRBOUxUcndqVmZUdHVzX2M2ZGM4Q2xseERR?oc=5) |
 | Mayor of New Orleans Is Indicted on Corruption Charges - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9QNDVmbk5NWFE4aWZ3ZmZfbVByQ0xjTWlMc0tXT0ZxcUN4OXhHbGFxWkEtYy1IXzl1ZXcwY09yOXRUc3NqM0JveG8tTVByM0FkcHRodG5VNnFnaDJRcGUxR21VMGdHeVI4VUJjSDJhd2dxSEFEOGRKYlcxSQ?oc=5) |
 | Democrats introduce measure to terminate Trump's D.C. takeover - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPeG9IaE92MlZ1d29Jakt6UWVUVWVIeXM0Y1BHNmFyaFpfYzBZd1laWkg4LVFGejRvaG9uVjhZemR5ZDV0UXh4ZE5NMnoyVXd4S1R2YlFWMUJpNEJLOU43VzFyYUw1THB3cjdJcXc4dXFKQlNqZU9ta2kxZG5jSDBVbmVPaXBsZ3pO?oc=5) |
+| Love in a cold climate: Putin romances Trump in Alaska with talk of rigged elections and a trip to Moscow - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi5wFBVV95cUxPTjdvNjQ5WU5Pb1VMTXJCcTh2WVoyLXNGUFZGbDdJLXpvY0VHMDVYNlRyeVE2U0pLMEhwRUI4X0l5VlFwejYxMUlTQjdvQUNSVTJvUmM3MDNaUUZWY2pMaDl6WmF4aFNKbFlZaHhqYWdiS3JyV2pYd1hvVEg5SXhra25uTVRJSVJoZGs1RkVYYkVEQ3BGbGJDRGpfSHBtWWVmcFNRcGhWamZhVnZzbTZtMjRvOTZhOVdQWlI3XzR5d0Vnd0NtdlpWSm9mS1FnMnZULWhuQWFBb0RoV1htNlEtN1FsUEpMRzg?oc=5) |
 | Arkansas escapee "Devil in the Ozarks" spent 6 months planning prison break, cited lax kitchen security, report says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOUDFSMHJ4X0M2SlZtRm5kNFJTQXptb2pPZ0xWRHd0UGxSalRaWnVsd0QwQkZGRW1iOXg3MnpNOFBqUnJSMWFyV1kxNjFhcUU2bEZuX245ZFFHRkFremhoM3d4YkR3YVFJcnNRLU5JNHN2TDVoVk5qeVMxY2QxU05VekRXSXBQODlQVlBCNlpTSjJlcU5SZGc3atIBngFBVV95cUxQZ3pQRndkX1VjUWJzZ0pBNWVDUlhLODVxdHhFTnpscE1hRXdlRDNmY1AwdXh6TjNicFcxRTJWTjUtd09JQ3JXTVJpdHVncUdNNWlNZm1vVjRRcFlrZnJmZTVfOUluZVZyUGpOdjBYT3ppR0xpdUZYOURfbDhxTzQwNU85YUdNQTdoVllxVG9Db3VaYkc4Y2VfUWpDeUM4Zw?oc=5) |
 | Kennedy dismisses 2028 speculation amid attacks from Loomer - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE93Rkc1QUpQVkFiYnpQN2xWLWQzWTFWbFVVaDRuaUVORWpwcVpuREJEZWJEclNYeldLampoVnMwZ3JvMC05eC0yOE02SE1zbVA2WWVvc1FNTnE5a3NrSnQ1eDNJSURiQ1hSbzJ4WWNfNkswaGtMdW1aVTBR?oc=5) |
-| Texas Republicans call new special session for redistricting, this time with Democrats expected back - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPZHJ6eEQ0NzQyS1RxOEhrUGNmamNuSGJFUHZ0akd2NFdGc01CVno3SHhwdjVkMXU5VExoSFdTOXlQRlZhelAtb2JzcG1paHhkUjFSQnFsSDVyNjhrY2pFN2NMblc5TUF0cHVtMkV3dW1RVzl1R0w3d0dWQmh4OHhTUmpfbVJmYjl60gGOAUFVX3lxTFA1ZFFJdGVtZ1dYLVZ4LXZHQXd2VTliMnRyZjNKN29wZDY2Zjlobmg2Q2dvWW1UQUotdy1fTS1ibWswRnBjdUswZVZGNnRVY0ptZ1AwUnFGZ2ZkOWtlbzJ3eDhqT1VoRk9DY1BaRjB3OENGakRqcG9TUDBWQnBlc2k5TG1fMENja21uNmYxVUE?oc=5) |
 | Israel in talks to resettle Gaza Palestinians in South Sudan, sources say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQZUNVVi1sd1I2YjZVVnMyUGYxTEJKendXWGIwRG9aRmhLZ3h5aWs3SnU5eEowUE5xUVk2ajVHUWZpOWJzTGZQeTF2UERHYUtNc19mUlcyOGM2VXRlQVJJN001Y1gtVll3VU9xRHJ2bkZQc2FtUU1SRU9hVWU2Y2w3MnJuSVRRSmFWVk0xaDVsaWNpQWdjVTg4TEEyX0VCVl9OVmg5cFpWRDhGNlgxdVpobE9OS0stM1ZL?oc=5) |
 
 ---
