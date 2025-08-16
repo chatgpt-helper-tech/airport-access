@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月16日 09:01:02（北京时间）**
+🕒 更新时间：**2025年08月16日 09:13:24（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump-Putin meeting live updates: Trump stops short of announcing ceasefire deal but 'great progress' was made - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOWVBqanI4ZkhtZmxqcU5FRHVRRXRRVkttSWNKUTZFMTZhSTY0RzJEN3FTLTR1Mmd1eGdLZlJjNWhfSThBV292UVMzWW9Xa2tYVDVVSzFVQjJDTm85NE5FcWNYbDZMVDR5LWVac1NfMVp1S3B1U2tfbjBaMU5zLWljR3ZGMlhKODVuUTVaSDdnYzc5V1BBREJB0gGcAUFVX3lxTFBVR0JpM1JLdWRINE90bmtQcVU4dENXQnpNcF9pLU1aRjRaNl9zUS1LWDJiNXBHOWdiVFNLQWZXMVRvbUEzck84Z1ZsMlhEWnFFVlhCNGROaXNtYmxuM0Y5NldfUXd4TWZidHlmVklLMGZkNXRlY1duejRqQW04a0NDdlRYLVAtU0h4YTUxU2ZZcXpzUWtJZjNPUW9GOA?oc=5) |
-| California Dems release map drawn to oust 5 House Republicans - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPamRITW9YT1FFUzE5dm5TUmZGVUxDS0Myd0lPM1NKXzJQblQtN1dOM1VuT1had2VnVi1VQk1FODZVcTFDTkUyc3RRM2JZOFhrTFkwZ2s2MGcwVTdVQjJBYzcwb2gtYUpxX1JQblNJMmdSQXVyLWluVmtkeXFoZ3VQdVRTelBNbmhGcUp1eXdBQ1BDN29EN3V6SW5EQ2F5cWU3WUVCX3ExV0g5X3BveHg4?oc=5) |
-| DOJ removes newly named D.C. emergency police chief, agrees to rewrite Bondi directive on immigration - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPZk1EQ2hkc3FVWklCNzlBSDI0SVdicnJ5QXVETWhRNGdjR2RLOTMwaElmUHNnWUpyVnc0Nk9Wb0Y3QlAwalcyX0pSYkxlaFUxNkk0Wk1IVmdpdTRrV3dwZjY2amVjbHU1RlA1YWw3UDNVaUhrOW9zMUtmbWkxbllkdXBCSUlFdktrMDNzejZ3ONIBlAFBVV95cUxOVjlyNTgwLU5kck1fdkdfVDNwNzg1UjdJaEcxaTdYTlNfSUNCRTFwX0lKQi1NRmpGY1F4STBBOHFlSDJKbGFyc1lsZHc2VTFwSmxNWmdwRTQ4bnNTRXZCWndIVnJrTnExTEQwZW9KdTRnVjNuSTkzQXpRNTdrX1hhZHBWU3lsMjB6M3FocVk0c05hV2Vq?oc=5) |
+| Live updates: Trump meets Putin in Alaska for Ukraine talks - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE9YTHRPbUNWbHQtbWpQVkpUYnJkNmRjdW9xR2ZoQVpJUWtlakIwcHAwVHdacjh3ejdlYW5VcjU5UkhyY2dHb0dpOWlXQzJMdWdDTDlBdA?oc=5) |
+| Newsom mocks Trump's social media in a flurry of redistricting posts - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFAwR1dCZ1JWeFl0N2V1NTNGSmtzeEJ1VjREaEJkbGptcDJMZkpHbTBndHlnSlkzWVIzVEQyX3NFamdjX0ZVd3BfZExZbEdZR1J5dmVBOVF3WFA2a3ZnNXl5QUYyeEk5Qy1ZSGRuS2dPR0d1ckRhS1ltNXV0amw?oc=5) |
+| Live updates: Washington, DC, Trump administration court hearing for police takeover lawsuit ｜ CNN Politics - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQeUhfb2xnNDZLZnV0Nk9HeEY0d0ZqYk1VNEE2d0dJQlJfX3V0VW1kU2NxdTdmUkJWS1dTRnBHd2dVdGxJR1pXNno1T0JRcHUzZkxTVjVnN0VzXzdoeFczQTNjdWVJZHNqWWlDaTNtUFRTU3YtZGkyRlkyVC1tcF96cGtXbmx2ZGN6cEE?oc=5) |
 | New Orleans Mayor LaToya Cantrell indicted after federal corruption investigation - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQM1BkSXQ3MlVyY0JybGRKaEcwSGdHYjlrU3ZGZGoxY09KbE1naUQ5OEpxTDVxUDFUdE5URVVNRFZLN0lkMDY0RWJDbF94RU90cDBKZ0I0ekI5X1p5RXlleUhKWW1XNk5WSi1Td2NkMmVXVFlBYUZxb2lGQTVJTFpUSVZoWmNHSWtiRnZHbTd5R0dKV1pjRHVxU0daWkNIdmQ3UnBCUWFCTk1DS0tUZ25VSTNvUjNCakQxbnfSAVZBVV95cUxONlNBZXAyeFRaV1J6NFk2S1BUaGptaHZHUDFMMmhUd3BBQkN4T1UyeEJaMEU4ZVJ4YTBHemxOVFZBVGc2eEhIbXpoTGhMWEd1MkZEdmJpdw?oc=5) |
 | The US plans to build a $750M fly factory in Texas to stop a flesh-eating cattle parasite - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxORHZkQjVBMUFGRGUwV3BjOUVaS2F0OUJ1RFZybFlDOGV2WWpiYlNTOGktWUpULTYtM0xRRU1Mbk9FQzFfNkpiMjdhdDVMZ1RIMTJwQkYyRjM3NGlVQlJ6a3NzRl90XzNhOENhd1lrang1ajV6MXBxN05GeTBjaVNLb1pvWVNkMm1KVlNrSndOaXdoWURLVWtmeXpDbThZc3lOcEpxaTlBbERtdWM?oc=5) |
 | Democrats introduce measure to terminate Trump's D.C. takeover - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPeG9IaE92MlZ1d29Jakt6UWVUVWVIeXM0Y1BHNmFyaFpfYzBZd1laWkg4LVFGejRvaG9uVjhZemR5ZDV0UXh4ZE5NMnoyVXd4S1R2YlFWMUJpNEJLOU43VzFyYUw1THB3cjdJcXc4dXFKQlNqZU9ta2kxZG5jSDBVbmVPaXBsZ3pO?oc=5) |
