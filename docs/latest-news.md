@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月16日 15:52:05（北京时间）**
+🕒 更新时间：**2025年08月16日 16:00:03（北京时间）**
 
 ---
 
@@ -8,16 +8,6 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| 'Next time in Moscow?': Five takeaways after Trump and Putin's Alaska summit | [阅读全文](https://www.bbc.com/news/articles/c4gj9er0x0zo?at_medium=RSS&at_campaign=rss) |
-| No ceasefire, no deal: What summit means for Trump, Putin and Ukraine | [阅读全文](https://www.bbc.com/news/articles/clyvd3gkg1po?at_medium=RSS&at_campaign=rss) |
-| 'A long way for nothing?' BBC correspondents on Alaska meeting | [阅读全文](https://www.bbc.com/news/videos/c707rnvrxe2o?at_medium=RSS&at_campaign=rss) |
-| How the Trump-Putin summit unfolded... in under 2 minutes | [阅读全文](https://www.bbc.com/news/videos/c62wdzlnv1do?at_medium=RSS&at_campaign=rss) |
-| Afghans resettled in UK hit by new data breach | [阅读全文](https://www.bbc.com/news/articles/ce87nyr3evro?at_medium=RSS&at_campaign=rss) |
-| UK trade envoy resigns over northern Cyprus visit | [阅读全文](https://www.bbc.com/news/articles/c0j9ezpgq8qo?at_medium=RSS&at_campaign=rss) |
-| The 104-year-old WW2 veteran who moved the Queen to tears | [阅读全文](https://www.bbc.com/news/articles/c1kzwwk30wro?at_medium=RSS&at_campaign=rss) |
-| One dead and dozens injured as Danish train hits tanker and derails | [阅读全文](https://www.bbc.com/news/articles/cx235yjk3mmo?at_medium=RSS&at_campaign=rss) |
-| Opening game of Premier League halted after Semenyo reports racist abuse | [阅读全文](https://www.bbc.com/sport/football/articles/c7vlme23nm5o?at_medium=RSS&at_campaign=rss) |
-| Blackpink: K-pop band make 'epic Wembley dream' come true | [阅读全文](https://www.bbc.com/news/articles/c36jz730114o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
