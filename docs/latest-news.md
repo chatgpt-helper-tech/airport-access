@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月17日 15:09:34（北京时间）**
+🕒 更新时间：**2025年08月17日 15:16:50（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Malnourished Gazan woman flown to Italy dies in hospital | [阅读全文](https://www.bbc.com/news/articles/ce87n455dvxo?at_medium=RSS&at_campaign=rss) |
+| Palestinians flee IDF attacks on Gaza City as Israelis protest occupation plan | [阅读全文](https://www.bbc.com/news/articles/c2018wx3zlgo?at_medium=RSS&at_campaign=rss) |
 | Trump posted a photo of me sitting by my tent - then a bulldozer arrived | [阅读全文](https://www.bbc.com/news/articles/cx2x39d2jxvo?at_medium=RSS&at_campaign=rss) |
 | Cooper defends Palestine Action ban again as 60 more face charges | [阅读全文](https://www.bbc.com/news/articles/c4gj93j2r2go?at_medium=RSS&at_campaign=rss) |
 | Gaza aid dropped into Israeli-designated danger zone, BBC Verify finds | [阅读全文](https://www.bbc.com/news/videos/cn851l607djo?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | Protesters Gather to Oppose Trump’s Push on Redistricting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPc3pFOXNNbW1FM2wtM0FfdTBZX3ByZDFVbWFzcWpJOEl2XzZmemZnd0dsc3lvelN2MUdUS05YVW5aSWtuSkVDMUY5Yko3ODltUDFKSDRDdEpQSm9YZC1Tb0NabF9zQi1LMUdya2RKNXFGaEdxVVZfcHpKa25oOEdmQ1FZTG1ENmJUemFRM1ZNclItblk5?oc=5) |
 | Ukraine war briefing: Zelenskyy says Russia refusing ceasefire ‘complicates the situation’ for ending war - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi4gFBVV95cUxOdkNYRDRtY2lPNnhzNDNucWI0X1ZIREZuYW9UeUN6VmI1MlVrU1RqUWFYelJZcGZwa1NNOUxhSTF4eG85X3Zqb2d1Vmw2TXBVdUd4MjRoMUJBQUZNSTRUUWNlY2VmdWxjY3U5OU8xUExwZVVyZ0h2OVpFYmNnOEZlQy01eVVZSThESVZFR1JVMzBEdl9jMjlJSmtNUHY5TU5iel95QmRTdi04QWZod0E5ODNkWEhLWUpGS1BtWlU1dFBqUThPc2ZJNV94VjVfVVVjY0dLY2dSa2hBVlhxWWFIUmp3?oc=5) |
 | In letter to Putin, US first lady asks him to consider the children in push to end war in Ukraine - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOakF5RTdiMnVjTGhTeFJtVVY4TndLSWdJdmhsX2l2RUVRN05OdXhMZ19HT2pjNTZLNzVUcXdXcjY0MElubnk5d2xDbzlLNWg1dnNnS21YelBMVnJwUzY2R01TblhVLWxpckxpdnBGZm5rU000YUpKTnlPZ3p6aEZCUER5cGktWjlYWFlibnBTSEI?oc=5) |
-| ‘The city has really went to hell’: Some DC residents want police help, but are concerned about tactics - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxOdnYxdWhWMmwwS29EX0RkUFVpZEROM0tIb09WT0hXZ1dGYXRKTDdLN2NsOV9wUjljTHIzal9hVWh1UDdzQ2NuVGNxWm5ZWUdEX1VHcXRJM1FsLWthOENtdHNIemU4V2lnNF96RE1udy04aE1NSy1HSTFIT3l2QUpRNjhMY1F2dVFCZVVBVXN3cVpnR0d3TkxSQm5KNDJYcnVpUXBFX21BWXEtTmkzclU5cEhnU0NpM3BhRUVtR3RlTVVVZzZDb1dv?oc=5) |
+| U.S. State Department stops medical-humanitarian visas for people from Gaza - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQODBCVGdESERuR2VmODVSTGM0Ni1tV0Y4NHVkVHhQTVBUSVZ1X04xb3ZiTXQwMGQtRDNJYl9SQlhvejEyeEEyUTk2LXVHMVVWSE05OWFzRzFCVnB5UGFPUC1MT0tnM05lU1ZHOHFUZ2VOQ0IzM3VraVppNkgtZUxFMGhpNG9SZ2ZZR1VKcXJpTHA2cWFHSmc5TTdNMXloX0otdENNY29ZNXBZNTItYlUxbGhaeGN1UUhT?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
