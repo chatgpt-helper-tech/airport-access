@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月17日 14:40:15（北京时间）**
+🕒 更新时间：**2025年08月17日 14:48:02（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Russia sees victory as Trump adopts Putin’s approach to ending Ukraine war - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOMUM5Z1ZFSUdBUjVycWl5RjdMRmVaZU83eFkxUGN4MVhxMHo4UjdaVmpaYWFaRDREYVoxTmhkeFZNTFRtb0ZDNUVodmdUQzlzZDRMYVlWZmVpYVhsOFhTeXhfQml3QTMxUG85V0pXcU1aSG5lT0tGTGFEdmlRbFhTdEpUbkNoSG1FNUVrNFdPSQ?oc=5) |
 | Protesters Against National Guard Deployment Flood D.C. Streets - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOR0dkWkpjeEhLRlBMQkFPUlNwbGFULVVrTjdpbFU0WUlKYk5nZU9VbjJMYWpXLW9YQ1hOWFRjNDFqOFo3dDR2eFQzN3NodFhNRlVHejNJLUhBalBkdVlBbHlzaUNvRHZtWEZTX2V4RUVzYU84V0t1R1pPaGU4a19oY2EyOGdWM05ReXhTcjRDYkFTZw?oc=5) |
-| Erin downgraded to formidable Category 4 hurricane, NHC says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPSENHZHdLTDVGWkJxY2wwUE82Ukp0Ujh3OVJOOHIwTVdVcXlLbUN6azJfUUxLaUlBRE5fdHRqeXNCaTZMT0owcDNTaFpwMEVFYWZiWEFNMXVwWDI4eUlVWDNzQWxwa25EWTVfd2dsSnZSSWdTSHFCaTJaUG5neVhwOFN4dW1ldTJhemExWWNNc2QzdjNva3R2Uk9BTjhBS2lDLTRnSlpEajFXOWYxcFpjNktNQQ?oc=5) |
+| Erin downgraded to Category 3 hurricane, NHC says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNYzVsVXdNQ3BPMDFtMW5MRmh1R2UyY25OeXJCZU9HVXZrVFJLa2xLLW5UU2FhZUlOOHhPc1R4dVFCS2RYN29lZS1UajkwZ2gzMTRWdGhDTnVWREJ1Q1RiQTRTVU5ZbHZtZGt3WnYyTjVXazFsaFJxRjJqeDAtZ1Jnc0k3UTdCYUNQMnl2WHdsQkVrSEpXdnVZWVJ2SUdFN01nZlY3UA?oc=5) |
 | Israel prepares to move Palestinians to southern Gaza as Israelis urge mass protest over war - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPaUpLUWhvb2hDNGl4RWc3RDA3XzFaMXlXekY3WUdlMGFfVTRZSGNwVmpVblVNRW5nQmhVWnFBYjQ3d29ScjNfdGd2aWlJQ19BUVZ6MDhCamZrTV92aGIzMDh1WHNJTzNOak0wU0pUQVNsRy1tMnBGZG9fd0d3NkZkdWNXSERCbkNGc2JLT2VxT19oR282NzFIVmF3?oc=5) |
 | Trump reportedly to back ceding of Ukrainian territory to Russia as part of peace deal - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQOGlWQzE3OW00akg5SGVPYWZMYUJrQkd6SkhQSncyYV9MakZmM3QzN3YybkVLQmFuNnRFOUVUampDay1KVkZ5N3NxRDF6ZkQtcUNNbndyejRqbUZWLXJma1FERXEtUTRRVzRpWDNwOE9QajBnaHNvOU1ON3FGLVVaZS1xZ0dpb0U4OVZLbGhGMno?oc=5) |
 | Bolivians go to polls in election that could end 20 years of socialism - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPWnJqQ3d3TVdSektLdGNqSWJKTHZmQXBDaVJBSVBZUDJJQnh0bjhIOWdxbXA5V2FZZFQ4ckZ4ektDR1d1VkFMRUxHQ2w1M2x5dWxzNWx3RnZQWGo3Y0R3SV9SN05NVWhvdWYwaHIzVXVRc2ZCQ2szcER1RE9pblF5QTBwMF9xdnlocElISEc0MTRZSzNHTXNhVlNtV290RWdsMThKc3BPQW1LaVdGVEJDdEJ4Y01SYTQ?oc=5) |
