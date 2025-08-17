@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月17日 16:09:05（北京时间）**
+🕒 更新时间：**2025年08月17日 16:16:23（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trump reportedly to back ceding of Ukrainian territory to Russia as part of peace deal - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQOGlWQzE3OW00akg5SGVPYWZMYUJrQkd6SkhQSncyYV9MakZmM3QzN3YybkVLQmFuNnRFOUVUampDay1KVkZ5N3NxRDF6ZkQtcUNNbndyejRqbUZWLXJma1FERXEtUTRRVzRpWDNwOE9QajBnaHNvOU1ON3FGLVVaZS1xZ0dpb0U4OVZLbGhGMno?oc=5) |
 | Immigration agent fires shots at vehicle with people inside in San Bernardino operation - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNUVh5R3JzVzRCbkxiVW5ZZnNBSkMwMHMweVd3dWZQVlloY0p0M25WaUpibDZxakk3WGpoOF9hdFN5bDc1TzFZaXg4dnV5WkVyNGY2SDVSdHMyZThFaThLZlpzU21lSUZLdFhWb2xIZ2czRUw0WEhkSEpFV3JzVExISE0xUW9TMmZUajNOaVFpYUFpcXpSNHR5a1p4M2wtemV5cm9Wb205c05OTnJPUHc?oc=5) |
 | Protesters Gather to Oppose Trump’s Push on Redistricting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPc3pFOXNNbW1FM2wtM0FfdTBZX3ByZDFVbWFzcWpJOEl2XzZmemZnd0dsc3lvelN2MUdUS05YVW5aSWtuSkVDMUY5Yko3ODltUDFKSDRDdEpQSm9YZC1Tb0NabF9zQi1LMUdya2RKNXFGaEdxVVZfcHpKa25oOEdmQ1FZTG1ENmJUemFRM1ZNclItblk5?oc=5) |
-| Ukraine war briefing: Zelenskyy says Russia refusing ceasefire ‘complicates the situation’ for ending war - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi4gFBVV95cUxOdkNYRDRtY2lPNnhzNDNucWI0X1ZIREZuYW9UeUN6VmI1MlVrU1RqUWFYelJZcGZwa1NNOUxhSTF4eG85X3Zqb2d1Vmw2TXBVdUd4MjRoMUJBQUZNSTRUUWNlY2VmdWxjY3U5OU8xUExwZVVyZ0h2OVpFYmNnOEZlQy01eVVZSThESVZFR1JVMzBEdl9jMjlJSmtNUHY5TU5iel95QmRTdi04QWZod0E5ODNkWEhLWUpGS1BtWlU1dFBqUThPc2ZJNV94VjVfVVVjY0dLY2dSa2hBVlhxWWFIUmp3?oc=5) |
-| Trump runs into the difficulty of Putin diplomacy and ending a long war - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxONHZYaU1YR21IbG9BdTlIUVE0VFpwRldDUWZPc0hCN2tmUEUtZDZDSWV0dFpZSWZDMTVWQTFDWUphandXMGVzYmpGa1BwUVhTTl9yZGFlUlFtSm9aV2xjbTR6TVlZSG1BX3I3OHhUcnZ0NWtWbXo0aGxkZTJjaWRaekZyMnlBbnJZQ1dpaVRMeHhBbnZGUEJoTDFLZ2VYWEZ1TW5kQmUzVQ?oc=5) |
+| Fear and dread of a new Oval Office fiasco over Ukraine - The Economist | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQQnI2d2ZIQlhfNk5VRVozY0drZXk1ZDdoWjcyTlNobXQ4b2gzV2NWSnNnMTBtZkw2aFNXNmhkaFFpblliamNlWXcxRVJ6SzFLTnoyV0J6LWNIU2ZuNTZJWUJQams5dVV2QmRNbmtaenRuM0RjcWN1QUFtN0hENGlVUmkzN0FEM1JVb1c3Slc2bkd4eDg2SHZ1LWFoSmtwejct?oc=5) |
 | ‘They’re in Wall Street, they’re in the White House’: Thousands protest Israel in NYC - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxObC1VVGtWUWFZVTQ1UHJWd01fbjNSVWh2WGtfeDZkb0R6QzZZOGF1MmZVcDdNdHFSaWxuQTlsZ05Ud0FTcWQwUXpPQkNLYTNkRXlnWHFfT09kaFBNZlhtcjF6Mk9WUXItdldTNi01S1lEVXhDTHpUTk5jekdlYXN3dG1tREY1bWZ1ZHpYTFRzX2tsdDY4ODljamZQNUdlTG9DaEY3S0tQakNZS0h0SW8w0gG0AUFVX3lxTE53U2x1Mm9hWlA2YUplZkZrb0xtRDd5WmQ5dW1vbGN3OUtFbXQ5Q180SVRiTkNfZ2x3SEI0VktsUHpmVFhGWE82aUNjZndJSFJXRjYyWlRESTZwcjBwaXNZUUpxTjBjTTR6SHJTaGJKTjAwdENfSXdQdkhJTmNzVlU3cUFab2hUYzdtYV9pTWh3dHJyVnhaQkpDcVl4cThRM2Z1TGlKaTZjeVlkTDhkX1BxY3dRTQ?oc=5) |
+| US suspends visas for Gaza residents after right-wing social media storm - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPR2JmUVNkNVVId2hYeWRGVnl5RTA2Y2s5Q3B3NU91V2g0QlRNdlVGY05QLTRhN1BmWTlvWGJRMnRqOXhJWkVTVXl4bktxdUhUQVR6SzR2NlozZFFmcGZVNGd5VGd1djlLZnVfeWliN2lLNXY3V0swMVlJT3FuTEFZS1g4c1VtZmpPb2w5RGkyTFNZcmRleng1eGlGVktSeUl6ZkMybmNNY19OQ0t3NEFmVDRDONIBuAFBVV95cUxPMjhDNmF6bmJLemR4UWN4WWxiZmNibkZpekNnRnluMUpPcGh5ODl2S0JzMTMxY1J0SmdZZWZqMzZjRXBpR3lNQk1meE9RcE1jZDNJTURwenFyb1pfYlhiblVjQmxJZUtCMS05V3h4NjU2QjJVcko4OXdGeE4xdWtIcmd4RlZQQ21lcWVveXNJb1FSQmJqX0pPSkI1S1VnbGZGODFBTkp0TUMzTDlSZk5jcElGY25pdkdS?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
