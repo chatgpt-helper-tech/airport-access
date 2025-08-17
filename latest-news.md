@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月17日 21:25:47（北京时间）**
+🕒 更新时间：**2025年08月17日 21:33:35（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Three Republican-led states to send hundreds of National Guard troops to Washington - NPR | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNWU9uWllLcDQ0eVJfLURRdGdmN0VhaEUzZWRCTGw4d3NjSzJkRTVJVHM5N1FRRmJTNTZrb0hHV3AtcTZfdERkdGFaVnNrZjdCMUFGOG9Mb19FUE9rME44cWdkUXZFZ192NHlBRWxHdmdWcXgxemhzd2JXS3BoOTdBS3prbWRxQXJTOTdwV0U3czA1aWw0cng1bUpXUHFTbGxKRzZEb2JRWnFDMTdPbjJjbzc0Vzh1NWd3TWpfYVBRd0VzLWpDOGRJ?oc=5) |
-| Trump Backs Off Cease-Fire Demand in Ukraine War, Aligning With Putin - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQUDlqY01BSzJUUXRoMDhIWlU4TUcxaWJtRWFrX01UbUhVUXFUTS1SQ3JNRVpnYmtBRThSOHdFRTZ2YU9DWWl1SW9ZaGRvNjlLTHVZVUJESlpGTGV5T0g0ZTZXekRZdXZJdXljTDRHWmROMV9wSWNFckRabW41S2tPWjFud0ZkbVZuSWV6dS0ydkw2Mnd5a2NGeQ?oc=5) |
 | Three Are Killed in Shooting at Crown Heights Bar - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOTW9GeVRWZU14TUNvakpRc1JrUE1FbXpsYVE4bXBxZk1ndzlZLVZyRnozbVJtUzJNcDVLaG1IazUtUEtOa2Q1WFVtenpqRGxJejhHMDZrbmU2Zjd3UDZDUU5qT3dIQVRRd1RKUUhIWlNfZm5IcGxIWWZENVBvaVl5dnBB?oc=5) |
+| Trump’s Push for Peace Shifts to Zelenskiy in Oval Office Again - Bloomberg | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNZXZkX055cGlSQ2EzTVI2YnJwcy1SZVYwd1dNYXF5WDZTMmk1WGhsVnhpb0VoUDMtV3pmdFpoV1FYRkpIZExCNEVCcnhINS01b1ZoVE1sSmtsYzZaZC0wZ0xuZ0xsbzBLaXV6bk81Sk5GWUJoWHRnNENrMlhSa1R1NHZhQjA5bTFuQmU3OXN0dUZINTBOek1MQ2hNMkFiY21oSFppTzFQYXJRemQ0?oc=5) |
 | Hurricane Erin is one of the fastest rapidly intensifying storms in Atlantic history - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNTl95bXBrN183dWoyQ0Q3R1JzVldqMFpjejcyVFhIakdMTWlIMC0wOUhHcG1iYm9XaTF2SW8xVTFZMEViS3dvQVRzTzQ4bzBISnJjRXY5OXZ0RjhvbExMY0xyQno0Vlc4THdaVmdoUU5BeHZIR2pmMnNoSzBucGZ1Mk83TjU2UdIBiwFBVV95cUxPbTZack8yRzlib3c2SDM3VkNSTUphQnFhRUR6RXp5WmhZQ2dTbmtuc0hKZ2tIUFY0ZG5zQmo0M2FoUW1VR3JmZFVzaGZnUUlSdTRha1lKUUEtTk1ZRC1meEJVS0YyZkV4SWxlQ2hJVjNkNVpVS0JRTE9TMU1FSjFRSnY4SEVlNWtCaXVJ?oc=5) |
 | No concessions, no ceasefire: how Putin outplayed Trump in Anchorage - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE14Y09IUjl1V2xVUGo2d21jYWJicHhUYzRLVExKYmhrc2wxUnhmakpkQURlNnlicnNGM3hBXzNUQVg2QU13Yzdra1VtR3NMYVlHSHRHaXlBVmxvYW11cUlQRWdKTjllQTg5MWFRakpCUmQ?oc=5) |
 | Israel prepares to move Palestinians to southern Gaza as Israelis urge mass protest over war - Politico | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE4zZjhyNXVJdEI3cFpPZTJEZmo2WlJnSV9fU3piM00zTlFlanAyMVZESEY0R3hPS3dwU1FLUHkya2JUeDB2ZF9fcmJhUkhzcHNIV1FJbjhzaG14b0FWV2J1WFc5ZXZ6THRWaXBiODNrcUZURndwc3JpblMySQ?oc=5) |
