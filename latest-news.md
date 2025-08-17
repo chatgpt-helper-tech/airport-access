@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月18日 07:24:29（北京时间）**
+🕒 更新时间：**2025年08月18日 07:33:02（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | National Guard says members patrolling D.C. 'may be armed' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPa1FEbHYyVE1nT1VfclpqN0txN01ONkNNTEJlb3FWZTZvcG01WVlMMWJRMUlsTWR2eGhPN2wyNEZmWHNJTUQ3bGxFZmFEdXA0Q1NYUVBLS2RaYV80N0ljWjNBYTFtNjljcmRaZlJmSjZmQlhoSmJYTmFUOW9sN1ZkOXJB?oc=5) |
 | After meeting Putin, Trump changes his position on the need for a ceasefire - NPR | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE56VDVmYW1HdFduWDBsZ3B4UDdNWGRNblFiTEtSM1pHbnJkRnpBNjRVZ1BNLTNGVnJtSGdDYUpFTG80UzBodVhEZ214eEhIS29jamwwNHhfTFZncHJtaVlIdDA4RTRGZ09STDJEVEhac2c?oc=5) |
 | Israeli plan to displace 1 million Palestinians spreads fear in Gaza - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQaF9lWUJWcllINHVXTklXMG8zNE0weVp2d19Hemp5UkZPRF9fWU9EZGxRbFhTX3dOT19ra2EtSW5oMGpFbjI4STB0TFJOUlBfek1ucm1laHE0TDJocXphbXBFQW15UGxSZkl1aHdBR0tqTEdVRlA3cXI1a3QxdFhTOHhmNWR5UVJtRDBReTVQUnh2VVpGRzZtdkJvcmhlR1QzLUd4Y3ItSFkyUGM?oc=5) |
-| Multiple shooters wanted after 3 killed, 9 wounded at Brooklyn lounge, NYPD says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNX3FLYXliRW95emszbnVrNUhRek9EM1NGSHJnM0ZUUEVrN2hDaDd3b2VlSHRjY0VEUmppc25DUEt4Qy0zZ29ZMTJGQlhQbFE5UDdxV0lKNXhTTUNjNHBiSnNnQmNxdF9GdjJ1bjZoZ21veUJ2b29SU0ZuSFRhUTBXS1BhQUg?oc=5) |
+| Three killed, eight injured in shooting in crowded New York club amid record-low gun violence year - ABC15 Arizona | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNanlFejFpTG0xdnQ2Y2F4aDZMcDVjTUVPOW9CWWRYa3hGaHkteVl0Q0MzdUNmcnhoRHI4TE1seEpFYnh2US1KaFpJTlV5V0hUZ05TOXBqZXhEQnFPcUk2V3BWclNfbWF0VF9fMkI0VXYwaU0zb3JSaFg3YXdscUJBVS1HUkxtbFA5RVpoOHVtMnB3el9mVHl6dk45VF9tWnFXUGQ2eXVBY3RXTVhOallGdFlGWmNFaExvbVNURE95RzFxRFM0OHNaeXFqTGdFdw?oc=5) |
 | Texas Democrats who fled the state to block GOP redistricting push begin returning - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1ZcnY2NjFYVXdIb0d2Yk8wOVBqdU8xeDJ1VVd1X1NFQWItVzdkRExLWGo5WXpBNTc4UnpnZ2t4cUFuWWo5Q1A4VWJIa1VLQjlBQ2tqajNRaVplQWstRTlxV0ItSW1OUHFjalkxandmRFlOQV9JWVVVUdIBfkFVX3lxTE45emVEbWR6UXhLT3pOZGhFVGx0RHdEVHJXbFpzTkczSWQweWFIZ21Qa1hhMzVtamt6RGdqOG9pWktRS0Npc2Y4MnVZWFVWQ0Fnc2U5d1hiSUN0SHBGRnR5RkNxNC1PTGttRVE4X0djb3E3N3RndDF1eHdjWTFMdw?oc=5) |
+| Rubio Desperately Tries to Spin Trump’s Putin Flop - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQLVREUTRqSzhrS0FVX2h5Z1AxZ3VpQmJfVUpnYWRqREc2UGZtck5pYmlHbUstVmlWM0lhaHR6cDQtTWZHTDlYWWI3QVgwZ1hLcTA3Rk51QlliN0liQ2stVThMUDVWRzQ1UWlMbVEwMktDYnJER1NCb0hUWHB6dFVvVDZEZTZhaDNjV09nOE9peVQycXFvX0NWQjR3?oc=5) |
 | US suspends visitor visas for Gazans - CNN | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBCU3NUN1lFdXAwLVZYQVcyRTFTYXBNcXdJWmRLWmg1andXOUhZMk82S01PU0xGMzNaWkZTbVI3VUpOZlZkcHFRU250akZ6RXBnYjhIeDl5Z1dVQW9PV280TW1CT0pLTExNaTZhOXctaHBLQ1HSAXhBVV95cUxQNnI4RGZ0cUV6RDVENEc5akhpMHl0eGROaDJYVHUwbFlOaWY5ckpFWEFwRUYzNUpoMWNZYnBET243M3VHLTh1VE5pa0l1NDRNTU93YTd5VERDa2U4WlBuMjJsN2RJNFI5clZBNEFKWkZsVi1lQWdnZGM?oc=5) |
-| Zelenskyy hails US security vow — but rules out sacrificing uncaptured land - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQNjRHbS1iVFlIQXE4anpDZG16a3YzZ2FzS2EydkVNby1Db1RJaF82RDBpSnJib1hLeXFJUThjN3A1cF9EZ056aDJpajB3NmFHWTJOU1ZvQUV1U3Y1aklzOUloTEJmUHdNdVhsOG4xYW1YcFphLXF5N0tBcng2TW03THlnMGpZWGZ3a3NCWnhGMG9Oc296dGhndlltR0k0NXYyRUU4VU45VQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
