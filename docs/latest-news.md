@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月17日 19:00:36（北京时间）**
+🕒 更新时间：**2025年08月17日 19:08:54（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | Cooper defends Palestine Action ban again as 60 more face charges | [阅读全文](https://www.bbc.com/news/articles/c4gj93j2r2go?at_medium=RSS&at_campaign=rss) |
 | Trump posted a photo of me sitting by my tent - then a bulldozer arrived | [阅读全文](https://www.bbc.com/news/articles/cx2x39d2jxvo?at_medium=RSS&at_campaign=rss) |
 | Serbia ruling party offices set on fire in protests | [阅读全文](https://www.bbc.com/news/articles/c9qye9qvxn5o?at_medium=RSS&at_campaign=rss) |
-| Derelict fortress transformed into £3m party island | [阅读全文](https://www.bbc.com/news/articles/crm4er70410o?at_medium=RSS&at_campaign=rss) |
+| Watch: Plane makes emergency landing on Australian golf course | [阅读全文](https://www.bbc.com/news/videos/cp892124ndqo?at_medium=RSS&at_campaign=rss) |
 | Trump's ceasefire pivot will cause dismay in Kyiv and Europe | [阅读全文](https://www.bbc.com/news/articles/clyvd2jpy1no?at_medium=RSS&at_campaign=rss) |
 | Five key takeaways after the Alaska summit | [阅读全文](https://www.bbc.com/news/articles/c4gj9er0x0zo?at_medium=RSS&at_campaign=rss) |
 | 'The world is behaving irrationally' - Putin's warm welcome gets cold reaction in Ukraine | [阅读全文](https://www.bbc.com/news/articles/ckg4mj4011lo?at_medium=RSS&at_campaign=rss) |
-| Nerd glasses and friendship necklaces: Claire's was heaven until Shein came along | [阅读全文](https://www.bbc.com/news/articles/c23pek275p5o?at_medium=RSS&at_campaign=rss) |
+| Claire's was shopping heaven until Shein came along | [阅读全文](https://www.bbc.com/news/articles/c23pek275p5o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | No concessions, no ceasefire: how Putin outplayed Trump in Anchorage - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE14Y09IUjl1V2xVUGo2d21jYWJicHhUYzRLVExKYmhrc2wxUnhmakpkQURlNnlicnNGM3hBXzNUQVg2QU13Yzdra1VtR3NMYVlHSHRHaXlBVmxvYW11cUlQRWdKTjllQTg5MWFRakpCUmQ?oc=5) |
 | Three Republican-led states to send hundreds of National Guard troops to Washington - NPR | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNWU9uWllLcDQ0eVJfLURRdGdmN0VhaEUzZWRCTGw4d3NjSzJkRTVJVHM5N1FRRmJTNTZrb0hHV3AtcTZfdERkdGFaVnNrZjdCMUFGOG9Mb19FUE9rME44cWdkUXZFZ192NHlBRWxHdmdWcXgxemhzd2JXS3BoOTdBS3prbWRxQXJTOTdwV0U3czA1aWw0cng1bUpXUHFTbGxKRzZEb2JRWnFDMTdPbjJjbzc0Vzh1NWd3TWpfYVBRd0VzLWpDOGRJ?oc=5) |
-| Hurricane Erin remains an extremely dangerous Category 4 cyclone north of Caribbean - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOS3V0TVhsYWktSm9tNFA2NG9OdUFHQWhCWi1MNDU0cHpxcE9DUEhnYjhxMG1LSzBWRU5DeGx2SkdSRXhneGt5M0RrUkllNU5OV0VlOFNMRUlidlVIb01WMFQ1Y2sydTlWOEg3a0VtWWxOM2UzQjc0TmxGOWUzNmxDSzNjM3FNZWNhQTBLWWktVWltbl9rRllCVTktX3JTdllkeDdQYlVDZGhQaTM5QTRwZ2wwN01zNUNENXdGQV9yOA?oc=5) |
+| Hurricane Erin, first of Atlantic season, weakens slightly to Category 4. Maps show its path and forecast. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiZkFVX3lxTE5yN3RTRHRvZlNFVGNvOTBOcjBqU2c2THdBbkpwdzFuUDJiMmZwT3M2U2ZuMzN6LU13cHJhMDFPYjJCMnItZ1RjdFZLUFhha2xBcjF2WEhSRzlJU0UwY3ZRTktMZ2xyd9IBa0FVX3lxTFBVb2xDOVZURkZKQkE4d2llblF6QXFSaGFBaDQtb1VfWDBrSURoRzFyS0hMMzVoT2pTdDZwVXQ3b05Tc0xnNWpSUDZCdG1yMDRuNE5jTWhGMW1ieGpqbmVkRWdOVm40cGxRLXp3?oc=5) |
 | Putin made maximalist claims to Ukrainian territory in Trump summit: Sources - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQTlZ5WER2cFBOMmFLdk9mSXg0dnd6MlB5ZG5UcjIxMXp4UENuMHd4bUhDZ2JHTHFRY29uYUtZeXg5T2lYckt5ajdOZHJIM3ZtcVNEQS1HYi1DdUpBQXpFR2NjUXBUdXFzRG1HWUY5UzlWc1c0OHgxd3dkX1JvM3J0YUd3?oc=5) |
 | Immigration agent fires shots at vehicle with people inside in San Bernardino operation - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNUVh5R3JzVzRCbkxiVW5ZZnNBSkMwMHMweVd3dWZQVlloY0p0M25WaUpibDZxakk3WGpoOF9hdFN5bDc1TzFZaXg4dnV5WkVyNGY2SDVSdHMyZThFaThLZlpzU21lSUZLdFhWb2xIZ2czRUw0WEhkSEpFV3JzVExISE0xUW9TMmZUajNOaVFpYUFpcXpSNHR5a1p4M2wtemV5cm9Wb205c05OTnJPUHc?oc=5) |
 | Carney voices support for Trump’s peace efforts — and encourages US security guarantees - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNUm5RbHZXVURjaS11anZqUWN4cERkS2xib0ZScldxQktlTU1mWGtuQ25nVHNSVVRnbTNNRnlmVFF6V014b1dLVHhrOGduOUV3bnJadDNYRFljdkdacW15SENHelN2V1JYSEdNdEVWZ0lYY3pBZGxxWlR2a1ZKc3JDYlM2TDl5OW9p?oc=5) |
