@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月18日 07:09:06（北京时间）**
+🕒 更新时间：**2025年08月18日 07:16:36（北京时间）**
 
 ---
 
@@ -12,11 +12,11 @@
 | Resignation and betrayal: What handing Donbas to Putin would mean for Ukraine | [阅读全文](https://www.bbc.com/news/articles/cvgv1pdkll8o?at_medium=RSS&at_campaign=rss) |
 | Huge crowds gather in Israel calling for hostage deal and end to Gaza war | [阅读全文](https://www.bbc.com/news/articles/ce93y2dxlg4o?at_medium=RSS&at_campaign=rss) |
 | Actor Terence Stamp, who starred as Superman villain, dies aged 87 | [阅读全文](https://www.bbc.com/news/articles/c39d41g7nmlo?at_medium=RSS&at_campaign=rss) |
-| Trump posted a photo of me sitting by my tent - then a bulldozer arrived | [阅读全文](https://www.bbc.com/news/articles/cx2x39d2jxvo?at_medium=RSS&at_campaign=rss) |
 | Novelist Sally Rooney says she will support Palestine Action despite ban | [阅读全文](https://www.bbc.com/news/articles/cp94jz0y7ygo?at_medium=RSS&at_campaign=rss) |
+| The Green Party is at a crossroads. Is it time they get angry? | [阅读全文](https://www.bbc.com/news/articles/cm2kzrr4375o?at_medium=RSS&at_campaign=rss) |
 | Police investigating Strictly 'drug use' claims | [阅读全文](https://www.bbc.com/news/articles/cx2px5r90x4o?at_medium=RSS&at_campaign=rss) |
+| Trump posted a photo of me sitting by my tent - then a bulldozer arrived | [阅读全文](https://www.bbc.com/news/articles/cx2x39d2jxvo?at_medium=RSS&at_campaign=rss) |
 | Watch: Plane makes emergency landing on Australian golf course | [阅读全文](https://www.bbc.com/news/videos/cp892124ndqo?at_medium=RSS&at_campaign=rss) |
-| Beyond chow mein: Can a new wave of restaurants help China win hearts? | [阅读全文](https://www.bbc.com/news/articles/cy4dk1z02w7o?at_medium=RSS&at_campaign=rss) |
 | Boy, 2, dies after car hits pedestrians | [阅读全文](https://www.bbc.com/news/articles/ckgylnwj79eo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -28,7 +28,7 @@
 | News Analysis: Newsom’s decision to fight fire with fire could have profound political consequences - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNY0pZeTZYaExwVV9WUGItdkF6MllGQVFhTE5zUVN6YzdKSVhHUVZGYS1URWpMVExQbVpwOTVoYXctdXVhVXA4c2RmaC1yUnF2aVRSX2d6d283cFpmUjR5YUFlY282OE5CZzRnTTRWd1JWU3ZkOVRudWZ3bWZoZXN5aWJHWEFxbVg0bWc1bFBCNGhWUzhMdHQwSnp4clh4c3hDTnRrRnNwbTZ6aEJUMmpSenRVS1I2UnpQSjdOckdHNmw1WkJ1RnhvNng3LVBaZ01K?oc=5) |
 | Three Republican-led states to send National Guard troops to DC - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1GS0FSVkFUZjlnYmZ0UGF2MkUtTWwxLUo3eEU3RTZyUURNUFU4S1ltSjVKNlM4a1Q4VF9qcVU1QXp0QnBXX0VDV0dWbmFHSDdZU3BrT0NJQy1iUdIBX0FVX3lxTE5RTHVTZVQtVV9sekRRMmRNXzhVS0UtY3ZQak5jRVVLX0FaVFBzWTE4cWg2eVQ0eWg5ZURDbzVQMmxUTThZMGFoNkp0ZUltMEh5SW9INUNJQ3pta0pWaTFZ?oc=5) |
 | Israeli plan to displace 1 million Palestinians spreads fear in Gaza - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQaF9lWUJWcllINHVXTklXMG8zNE0weVp2d19Hemp5UkZPRF9fWU9EZGxRbFhTX3dOT19ra2EtSW5oMGpFbjI4STB0TFJOUlBfek1ucm1laHE0TDJocXphbXBFQW15UGxSZkl1aHdBR0tqTEdVRlA3cXI1a3QxdFhTOHhmNWR5UVJtRDBReTVQUnh2VVpGRzZtdkJvcmhlR1QzLUd4Y3ItSFkyUGM?oc=5) |
-| Washington's hydropower has created a data center boom. Some are concerned about its future. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxONjItRFBOYmVUNDdwQzVWUjRuMzVUeXA3c2lYQ1VvWUtzbWRaOWdnQTRZdWFYbU9HUk16UTU4bEhmc3lxZ1FCSno5WDVrNUxFTkFrLXoyU082QUtCal8waTJoWFZxZy1TOEZ0M1VvUnhRX19OSjZEWlNmb2dySVhHNFA1alJlcmVFRG81eWZLZkswdHFhcmhnMFRTY2phRlZtQnQyMTRQVEI5R3pTZzZLdTlCZw?oc=5) |
+| Rubio Desperately Tries to Spin Trump’s Putin Flop - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQLVREUTRqSzhrS0FVX2h5Z1AxZ3VpQmJfVUpnYWRqREc2UGZtck5pYmlHbUstVmlWM0lhaHR6cDQtTWZHTDlYWWI3QVgwZ1hLcTA3Rk51QlliN0liQ2stVThMUDVWRzQ1UWlMbVEwMktDYnJER1NCb0hUWHB6dFVvVDZEZTZhaDNjV09nOE9peVQycXFvX0NWQjR3?oc=5) |
 | Multiple shooters wanted after 3 killed, 9 wounded at Brooklyn lounge, NYPD says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNX3FLYXliRW95emszbnVrNUhRek9EM1NGSHJnM0ZUUEVrN2hDaDd3b2VlSHRjY0VEUmppc25DUEt4Qy0zZ29ZMTJGQlhQbFE5UDdxV0lKNXhTTUNjNHBiSnNnQmNxdF9GdjJ1bjZoZ21veUJ2b29SU0ZuSFRhUTBXS1BhQUg?oc=5) |
 | After meeting Putin, Trump changes his position on the need for a ceasefire - NPR | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE56VDVmYW1HdFduWDBsZ3B4UDdNWGRNblFiTEtSM1pHbnJkRnpBNjRVZ1BNLTNGVnJtSGdDYUpFTG80UzBodVhEZ214eEhIS29jamwwNHhfTFZncHJtaVlIdDA4RTRGZ09STDJEVEhac2c?oc=5) |
 | Texas Democrats who fled the state to block GOP redistricting push begin returning - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1ZcnY2NjFYVXdIb0d2Yk8wOVBqdU8xeDJ1VVd1X1NFQWItVzdkRExLWGo5WXpBNTc4UnpnZ2t4cUFuWWo5Q1A4VWJIa1VLQjlBQ2tqajNRaVplQWstRTlxV0ItSW1OUHFjalkxandmRFlOQV9JWVVVUdIBfkFVX3lxTE45emVEbWR6UXhLT3pOZGhFVGx0RHdEVHJXbFpzTkczSWQweWFIZ21Qa1hhMzVtamt6RGdqOG9pWktRS0Npc2Y4MnVZWFVWQ0Fnc2U5d1hiSUN0SHBGRnR5RkNxNC1PTGttRVE4X0djb3E3N3RndDF1eHdjWTFMdw?oc=5) |

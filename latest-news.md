@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月18日 07:09:06（北京时间）**
+🕒 更新时间：**2025年08月18日 07:16:35（北京时间）**
 
 ---
 
@@ -12,11 +12,11 @@
 | Resignation and betrayal: What handing Donbas to Putin would mean for Ukraine | [阅读全文](https://www.bbc.com/news/articles/cvgv1pdkll8o?at_medium=RSS&at_campaign=rss) |
 | Huge crowds gather in Israel calling for hostage deal and end to Gaza war | [阅读全文](https://www.bbc.com/news/articles/ce93y2dxlg4o?at_medium=RSS&at_campaign=rss) |
 | Actor Terence Stamp, who starred as Superman villain, dies aged 87 | [阅读全文](https://www.bbc.com/news/articles/c39d41g7nmlo?at_medium=RSS&at_campaign=rss) |
-| Trump posted a photo of me sitting by my tent - then a bulldozer arrived | [阅读全文](https://www.bbc.com/news/articles/cx2x39d2jxvo?at_medium=RSS&at_campaign=rss) |
 | Novelist Sally Rooney says she will support Palestine Action despite ban | [阅读全文](https://www.bbc.com/news/articles/cp94jz0y7ygo?at_medium=RSS&at_campaign=rss) |
+| The Green Party is at a crossroads. Is it time they get angry? | [阅读全文](https://www.bbc.com/news/articles/cm2kzrr4375o?at_medium=RSS&at_campaign=rss) |
 | Police investigating Strictly 'drug use' claims | [阅读全文](https://www.bbc.com/news/articles/cx2px5r90x4o?at_medium=RSS&at_campaign=rss) |
+| Trump posted a photo of me sitting by my tent - then a bulldozer arrived | [阅读全文](https://www.bbc.com/news/articles/cx2x39d2jxvo?at_medium=RSS&at_campaign=rss) |
 | Watch: Plane makes emergency landing on Australian golf course | [阅读全文](https://www.bbc.com/news/videos/cp892124ndqo?at_medium=RSS&at_campaign=rss) |
-| Beyond chow mein: Can a new wave of restaurants help China win hearts? | [阅读全文](https://www.bbc.com/news/articles/cy4dk1z02w7o?at_medium=RSS&at_campaign=rss) |
 | Boy, 2, dies after car hits pedestrians | [阅读全文](https://www.bbc.com/news/articles/ckgylnwj79eo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
