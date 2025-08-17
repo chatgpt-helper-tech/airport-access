@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月18日 03:48:58（北京时间）**
+🕒 更新时间：**2025年08月18日 03:57:12（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | News Analysis: Newsom’s decision to fight fire with fire could have profound political consequences - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNY0pZeTZYaExwVV9WUGItdkF6MllGQVFhTE5zUVN6YzdKSVhHUVZGYS1URWpMVExQbVpwOTVoYXctdXVhVXA4c2RmaC1yUnF2aVRSX2d6d283cFpmUjR5YUFlY282OE5CZzRnTTRWd1JWU3ZkOVRudWZ3bWZoZXN5aWJHWEFxbVg0bWc1bFBCNGhWUzhMdHQwSnp4clh4c3hDTnRrRnNwbTZ6aEJUMmpSenRVS1I2UnpQSjdOckdHNmw1WkJ1RnhvNng3LVBaZ01K?oc=5) |
 | Washington's hydropower has created a data center boom. Some are concerned about its future. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxONjItRFBOYmVUNDdwQzVWUjRuMzVUeXA3c2lYQ1VvWUtzbWRaOWdnQTRZdWFYbU9HUk16UTU4bEhmc3lxZ1FCSno5WDVrNUxFTkFrLXoyU082QUtCal8waTJoWFZxZy1TOEZ0M1VvUnhRX19OSjZEWlNmb2dySVhHNFA1alJlcmVFRG81eWZLZkswdHFhcmhnMFRTY2phRlZtQnQyMTRQVEI5R3pTZzZLdTlCZw?oc=5) |
 | 3 dead, 9 wounded in shooting at Taste of the City in Crown Heights; Eric Adams says NYC will 'mobilize mass shooting plan' - ABC7 New York | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNTjZDSXVwam1zN2JubW5SZ28wM2pqQUpTY2hxQXh1Y0dsazZEczFSQ05tNE02TG9KYjlMd0pQdjE5QTJXXy1MQmg0TXg3b05ZdjBYYVcwUUdTUUVON1h4RHFYaGZKMm5IYS11M2UtOHllcmxZUmx2Qk9KUF9HUzh3NlpBT09KRjRpVmM4WWVkQUNLa1VLQlhPb9IBngFBVV95cUxQVDN4Zkstc3RKRlBYbmtVODZ1Tmd0Q1I4cHZwRVdpcEx6M0wySlFfYldDTjU4N2I4ekZUY3YxN1BpbVY3a2U5UzgtZHN1bW1sSTVyNndSZGFiTkl6cFJsNEMxTWJaYjNWZk5uUnBGYnpLcXBybEloVnVvYXN2SEtkMWZPakhSX3llV19TSC1WdXZ4bko4QUNobjdMeVV6dw?oc=5) |
-| Putin agreed to let U.S., Europe offer NATO-style protections for Ukraine, Trump envoy says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPYTZWVlpHOUpoRHdhbms0VFZoX0hGREx2c0xUNkpOakpZREZSc0VnZ0tBYjYtZE9sVDFPYzJqUzNDalc0eFlBZUFuMWJnc3hjek8zNVRnVERhSHhuMDQ1U29LUzF0d0hlS0gyVE5aMjdBVy1DRDZVdnV1NzBtdDV5NlpqQ1lDbE9NRk5Z0gGQAUFVX3lxTE5aYXNwcjNnVXBRSFdsUkN4Z3BHTXhiWDk3aHJldEJQTFlpaTNxQUJCUF9iZnVmc0otSXlPT2hoY2NQNURiblpnV1VPbXNaXy0zbm9TNE1ueUtRZmp0bktWSWZVSXlLaDhtOEI2X0NyX1pDMXZUaFBHVThXQVNiRG5TSkpKMF9LbUtQekVoNXViUw?oc=5) |
 | Ukraine won’t give up territory Russia hasn’t captured, Zelenskyy says - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQNjRHbS1iVFlIQXE4anpDZG16a3YzZ2FzS2EydkVNby1Db1RJaF82RDBpSnJib1hLeXFJUThjN3A1cF9EZ056aDJpajB3NmFHWTJOU1ZvQUV1U3Y1aklzOUloTEJmUHdNdVhsOG4xYW1YcFphLXF5N0tBcng2TW03THlnMGpZWGZ3a3NCWnhGMG9Oc296dGhndlltR0k0NXYyRUU4VU45VQ?oc=5) |
 | State Department Halts ‘Lifesaving’ Medical Visas For Palestinians From Gaza - Time Magazine | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE4zQlJmbXpsaUJhWkZCZnpnMDl6VUNjWDl1czQtdGZqY2QtbW5yYkhsX0czNzFmMzBoUEctTzZEdnkxdUxDTFluRzBUY2NjcjRhT0U5V2h5cHpTaDhkaDZsNnhiWGxpWTR1cnVHbg?oc=5) |
+| Oakland protestors cheer California’s efforts to counter GOP-led redistricting - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPQ1o0T2ZKbHNjTTFodnBIQy05UlktTmUyWURyVUVKY3RjMExZdmlqMy1wZ0dtclJFdFk1UzlhYjdUMHNYbDZjbkJzaXhQYmNpc29tUDl3VEdESkVoWGY4UUc2Um0wVlVEOXFMZTFRMmpKdU5UYTVKV2NiUUZQRVdZSXZ1QVdYUWJTZnRMX3pmdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
