@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月18日 06:56:50（北京时间）**
+🕒 更新时间：**2025年08月18日 07:00:55（北京时间）**
 
 ---
 
@@ -8,6 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Putin agreed to 'robust' security guarantees for Ukraine, US envoy says | [阅读全文](https://www.bbc.com/news/articles/crm4ln2ekg1o?at_medium=RSS&at_campaign=rss) |
+| Resignation and betrayal: What handing Donbas to Putin would mean for Ukraine | [阅读全文](https://www.bbc.com/news/articles/cvgv1pdkll8o?at_medium=RSS&at_campaign=rss) |
+| Huge crowds gather in Israel calling for hostage deal and end to Gaza war | [阅读全文](https://www.bbc.com/news/articles/ce93y2dxlg4o?at_medium=RSS&at_campaign=rss) |
+| Actor Terence Stamp, who starred as Superman villain, dies aged 87 | [阅读全文](https://www.bbc.com/news/articles/c39d41g7nmlo?at_medium=RSS&at_campaign=rss) |
+| Trump posted a photo of me sitting by my tent - then a bulldozer arrived | [阅读全文](https://www.bbc.com/news/articles/cx2x39d2jxvo?at_medium=RSS&at_campaign=rss) |
+| Novelist Sally Rooney says she will support Palestine Action despite ban | [阅读全文](https://www.bbc.com/news/articles/cp94jz0y7ygo?at_medium=RSS&at_campaign=rss) |
+| Police investigating Strictly 'drug use' claims | [阅读全文](https://www.bbc.com/news/articles/cx2px5r90x4o?at_medium=RSS&at_campaign=rss) |
+| Watch: Plane makes emergency landing on Australian golf course | [阅读全文](https://www.bbc.com/news/videos/cp892124ndqo?at_medium=RSS&at_campaign=rss) |
+| Beyond chow mein: Can a new wave of restaurants help China win hearts? | [阅读全文](https://www.bbc.com/news/articles/cy4dk1z02w7o?at_medium=RSS&at_campaign=rss) |
+| Boy, 2, dies after car hits pedestrians | [阅读全文](https://www.bbc.com/news/articles/ckgylnwj79eo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -22,7 +32,7 @@
 | Multiple shooters wanted after 3 killed, 9 wounded at Brooklyn lounge, NYPD says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNX3FLYXliRW95emszbnVrNUhRek9EM1NGSHJnM0ZUUEVrN2hDaDd3b2VlSHRjY0VEUmppc25DUEt4Qy0zZ29ZMTJGQlhQbFE5UDdxV0lKNXhTTUNjNHBiSnNnQmNxdF9GdjJ1bjZoZ21veUJ2b29SU0ZuSFRhUTBXS1BhQUg?oc=5) |
 | Texas Democrats who fled the state to block GOP redistricting push begin returning - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1ZcnY2NjFYVXdIb0d2Yk8wOVBqdU8xeDJ1VVd1X1NFQWItVzdkRExLWGo5WXpBNTc4UnpnZ2t4cUFuWWo5Q1A4VWJIa1VLQjlBQ2tqajNRaVplQWstRTlxV0ItSW1OUHFjalkxandmRFlOQV9JWVVVUdIBfkFVX3lxTE45emVEbWR6UXhLT3pOZGhFVGx0RHdEVHJXbFpzTkczSWQweWFIZ21Qa1hhMzVtamt6RGdqOG9pWktRS0Npc2Y4MnVZWFVWQ0Fnc2U5d1hiSUN0SHBGRnR5RkNxNC1PTGttRVE4X0djb3E3N3RndDF1eHdjWTFMdw?oc=5) |
 | US suspends visitor visas for Gazans - CNN | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBCU3NUN1lFdXAwLVZYQVcyRTFTYXBNcXdJWmRLWmg1andXOUhZMk82S01PU0xGMzNaWkZTbVI3VUpOZlZkcHFRU250akZ6RXBnYjhIeDl5Z1dVQW9PV280TW1CT0pLTExNaTZhOXctaHBLQ1HSAXhBVV95cUxQNnI4RGZ0cUV6RDVENEc5akhpMHl0eGROaDJYVHUwbFlOaWY5ckpFWEFwRUYzNUpoMWNZYnBET243M3VHLTh1VE5pa0l1NDRNTU93YTd5VERDa2U4WlBuMjJsN2RJNFI5clZBNEFKWkZsVi1lQWdnZGM?oc=5) |
-| State of Emergency Issued for Dare County - Mandatory Evacuation Issued for Hatteras Island - Dare County, NC (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiZ0FVX3lxTE5peVJ1cWJkbjZIV2I2RzlCV1EyV01oajRQVnNaQWlVYy0xcE1hSThMX2dmU0hMaFphQWtsUVJIMnc3X2d5ZEQyQURWYjhMczFWbVFnRktKd2NTZDlSRXp0YzAxM1JQR3c?oc=5) |
+| Zelenskyy hails US security vow — but rules out sacrificing uncaptured land - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQNjRHbS1iVFlIQXE4anpDZG16a3YzZ2FzS2EydkVNby1Db1RJaF82RDBpSnJib1hLeXFJUThjN3A1cF9EZ056aDJpajB3NmFHWTJOU1ZvQUV1U3Y1aklzOUloTEJmUHdNdVhsOG4xYW1YcFphLXF5N0tBcng2TW03THlnMGpZWGZ3a3NCWnhGMG9Oc296dGhndlltR0k0NXYyRUU4VU45VQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
