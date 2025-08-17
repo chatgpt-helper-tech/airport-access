@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月16日 21:40:21（北京时间）**
+🕒 更新时间：**2025年08月17日 14:13:43（北京时间）**
 
 ---
 
@@ -8,31 +8,31 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| 'The world is behaving irrationally' - Putin's warm welcome gets cold reaction in Ukraine | [阅读全文](https://www.bbc.com/news/articles/ckg4mj4011lo?at_medium=RSS&at_campaign=rss) |
+| Russia complicating end to war, says Zelensky, as Trump pursues peace deal | [阅读全文](https://www.bbc.com/news/articles/c04rv2p3936o?at_medium=RSS&at_campaign=rss) |
+| Trump's ceasefire pivot will cause dismay in Kyiv and Europe | [阅读全文](https://www.bbc.com/news/articles/clyvd2jpy1no?at_medium=RSS&at_campaign=rss) |
+| Malnourished Gazan woman flown to Italy dies in hospital | [阅读全文](https://www.bbc.com/news/articles/ce87n455dvxo?at_medium=RSS&at_campaign=rss) |
+| Trump posted a photo of me sitting by my tent - then a bulldozer arrived | [阅读全文](https://www.bbc.com/news/articles/cx2x39d2jxvo?at_medium=RSS&at_campaign=rss) |
+| Cooper defends Palestine Action ban again as 60 more face charges | [阅读全文](https://www.bbc.com/news/articles/c4gj93j2r2go?at_medium=RSS&at_campaign=rss) |
+| Gaza aid dropped into Israeli-designated danger zone, BBC Verify finds | [阅读全文](https://www.bbc.com/news/videos/cn851l607djo?at_medium=RSS&at_campaign=rss) |
+| 'A fresh start': William and Kate to move to new Windsor home | [阅读全文](https://www.bbc.com/news/articles/cpwyk1v0p8yo?at_medium=RSS&at_campaign=rss) |
 | Five key takeaways after the Alaska summit | [阅读全文](https://www.bbc.com/news/articles/c4gj9er0x0zo?at_medium=RSS&at_campaign=rss) |
-| Trump touts peace deal after leaving talks without ceasefire pact | [阅读全文](https://www.bbc.com/news/articles/ce836yz8r69o?at_medium=RSS&at_campaign=rss) |
-| No ceasefire, no deal: What summit means for Trump, Putin and Ukraine | [阅读全文](https://www.bbc.com/news/articles/clyvd3gkg1po?at_medium=RSS&at_campaign=rss) |
-| Afghans resettled in UK hit by new data breach | [阅读全文](https://www.bbc.com/news/articles/ce87nyr3evro?at_medium=RSS&at_campaign=rss) |
-| Trump bringing end of Ukraine war 'closer than ever', says Starmer | [阅读全文](https://www.bbc.com/news/articles/c78mve9209ro?at_medium=RSS&at_campaign=rss) |
-| Bring sick and injured children to UK from Gaza immediately, MPs say | [阅读全文](https://www.bbc.com/news/articles/c4gmk2yj5e9o?at_medium=RSS&at_campaign=rss) |
-| The 104-year-old WW2 veteran who moved the Queen to tears | [阅读全文](https://www.bbc.com/news/articles/c1kzwwk30wro?at_medium=RSS&at_campaign=rss) |
-| William and Kate set to move to new Windsor home | [阅读全文](https://www.bbc.com/news/articles/cpwyk1v0p8yo?at_medium=RSS&at_campaign=rss) |
-| Blackpink: K-pop band make 'epic Wembley dream' come true | [阅读全文](https://www.bbc.com/news/articles/c36jz730114o?at_medium=RSS&at_campaign=rss) |
+| 'The world is behaving irrationally' - Putin's warm welcome gets cold reaction in Ukraine | [阅读全文](https://www.bbc.com/news/articles/ckg4mj4011lo?at_medium=RSS&at_campaign=rss) |
+| Starmer to call European allies ahead of Zelensky White House visit | [阅读全文](https://www.bbc.com/news/articles/c78mve9209ro?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump-Putin summit starts on red carpet, ends in confusion - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQbW12V1lYcm5IcFhnbmpxUFVZUGlQdXdnbFdaQmZPZ2dWdDRCYmx2TFVUTVdyeEJqQVg1M2V0T1BCZUFjSEhBeUxGUHZ0UFV6WE12UnZEMUtKUk53UkE5ajZrZUp3YXhRcmc3N1BfaTNkWVFaV0Z4SHdvbHN4U29ZcVE1WQ?oc=5) |
-| Hurricane Erin becomes a Category 4 as it rapidly intensifies in the Atlantic - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPdXpCcVZFN28tLUdfN3lPcUQ5cGlZYmx6WGVEWXpIb2lxU1dKV3k3YllYRnpmYzhyNnlDZWdpakgycGNnc2tmSmZjaU5BYkxyc1pGTnNLMEhEMTU5UDhNUnpVNDNLNHYtcldpYmJmU1ZLZGhxQkM4bzAyTHVmMFFNZUR5WmZCYTdOWFo1bEt4clNtSmxS0gGaAUFVX3lxTE1PZGdpY2t2bGx1YkJzQVBQMlJCQVhDbVpVTWpVaU1MRHR0RDJvQkRQN3hRcml5YkVRWXR3bWV5YkFVMGxibzFRLTMzaWZ6cXpQbFctbHBVYXRMR2J3Z1BLbXhOV1ROQTZfMWN2N1hmZ0tFTzFnVTNZdDREZVpQdUNtUEk5MGJWQkpsazRxSGhTdWJyYWFJZ1VSMWc?oc=5) |
-| Trump to meet Zelenskyy as Europe urges US to offer security guarantees - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9XTU9lTjNCYTZTbk5mc25XclEtdEUtNlBqU05NOUhwaG5xUFF5WXpZdkRrbTV6cHFNNk1rQTdJODhfTnI3ZmM5b1F3Rl9yUGU1MW1aaFZEUlRrZXhyYU8ycUNPZzNsd040a0ZiWk1mU20?oc=5) |
-| DC police chief retains command after deal with Trump administration - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE0yY1h3dW9EVXlFOHBuOTF3VVRGeE1TbFFpOHJyWWs3TGUwY2dvQ1I3dFRNLXRvdHVYTER2N3cwVHhiVkJ5R0tBMEFTMThBZHZXaDQ2YldJc3hGQdIBX0FVX3lxTE9neTROQlQxMnBDZjUyb1l1NVZZQnpiOGpvaEFYdVlyak5Hb2ZRYS1VWWlybXZ6Ykh1amVxTXNubjhfYlRCTFNXVmdjMlc3VG96RUtUTTQtRFczSC1Ea3Rj?oc=5) |
-| 10 things you need to know about California Democrats' redistricting plan - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPZ1NxUmxPcTN6eEJYUmxxajhwOVQxU2dWSHF4aElyR2xtUi1GckYzejNzUjBreEE3b0dTc2lQNnJqYW1XOGN2Rkx4V1FWTDUxelk0b3JBYXFNU0RPbXNTbHFxT3NXMVRqMnEwcE1Uak1nTlBQVUNpZHpYSDU2Ml9QUXVjTFpvX1VwRnZIdENqeDNHdw?oc=5) |
-| Statement by President Macron, Prime Minister Meloni, Chancellor Merz, Prime Minister Starmer, President Stubb, Prime Minister Tusk, President Costa, President von der Leyen - consilium.europa.eu | [阅读全文](https://news.google.com/rss/articles/CBMi1AJBVV95cUxPRWtRRldXRHBmSlAybktsZ1hqblljanh3dnJHZXRYM2kyQVkzcE5wTGY5Rk5ScTlCb2ljZnNxUTNMVXpsc0d1V3RjN1pOZEN3b1poR25ZN2xPSzFjQ3ZldExFdmRhazZvczBxUGxoMHJXZkVfZGtvQjdfVmVqbFV1TzlPNjZNWWpSTVpjWVFjU1VLaTBrQWMxV1NCSV9uaGREMjJOM1o4UXFJSFdScHFXRUdTc05CMHc3RzJEU05keDJGcktEZUdlRl93YlhPb1hLanFkdEtTTEV5c1lId3FLRC1fajBvY1BQdXpHRGtoM0VRSDZJMEU0NTJpNVZGYzF3TUZ2NU5uSkxWWTZxbjJtV3AxZTZjcmRUa1dOTGFwZmtmUGhBODA3N2E3Nk1jZFFXUFV6R3R3Skoxc3ZCdExvelQyVFVRU2dnVy1tbzFoQlg5azBs?oc=5) |
-| New Orleans mayor indicted over allegations of trying to hide relationship with bodyguard - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPV3dXdTVjWFV1UndyNXJ5S2tRRG81cGxDUTJUd05BaUlWa191ZlJGNjhUSk9OWjlicFpfdExLRjJwd3dfeWhGQmNFOHZhV0M5aXJmU0VBcjNVVzR6TXJrMnZTaU5nWTRQYlVqT3lJNUU5WnZqUFE2bFFjMWdFS1hJMkVRRFgxSlhLaE9ZZjZ4V0tNUDVXak1INm0tUFh0SFI1bEtWZ3lheXZZdUZjSENabHR30gG3AUFVX3lxTFBTOWF1TUFkcmNUQ3VSdFdqaWRuOFJnaTFGUWlKbDlvX2g3dHkwTk1yaFZUYnFGeWVMYkdodVFIWWRSWjZodHVaRHFYaHhBdDFzNWVvVUhVUW1JZWxvTDY4VWRlVlE1X1hsaHFSTzhYLVR5SnlxMkhlZW1YUnZCR2tUZzg4ZkZRbjQ4WU5TYkNIUWVuMGl1S1ZDekhncnBWZVZlTlFYaXZmUlowaXlFTUxSN1BUQjFYdw?oc=5) |
-| Judge Rejects Trump’s Attempt to End Standards of Care for Detained Migrant Children - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNV1ZqbmRmYTF3eXR3Y2VjSG5raXdBSGNkLURHcV9CNjdHTDlCdnBKQW00VGJYTEVGbUZhYUFyeGx5LVFfcE9fbVRiLVU0MjdaeUJKeXk5RXJMVWdySGlKT1lvYWtvVHo1LVJxQTBuNGw5anpfbkVFX1d3ODVtVlU1bl96a2dnOUVKTmFF?oc=5) |
-| Where D.C. Crime Is Bad, Residents Question Trump’s Motives for Federal Takeover - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE91VW5uZElDUFB5ay1FUTlMSzBUMzBoQWh6Sm9YaFJUZmFjM2RnN1hTNTdzdDVvNV9aSFdNZ1hVdllVUG43b04zdURUTlpUWjdPQXNaNHNickdfNmJEbGUxc1dmX3ZISFhkS3A0eU0wb1JJOGRBSGRlWURFMXNaNnc?oc=5) |
-| Draft ‘MAHA’ plan to improve kids’ health leaked. Here’s what’s in it. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQLUsxcHY3TjdjZ3FNWVdwbU1lTGprT010R0lPRXJWRzlwaDh4MTJhd2ZDUW1WM1pGcXZCNW9GWGFOdjR2Z1AxbEduc3FwQVlYdGNKNndHRlIyaWZLcWxlenF3bEhiQ2x2UWQxUXNSNzFnVWNVeHZnX2xLNjVyUFBVMFV0cTJwc2M?oc=5) |
+| Russia sees victory as Trump adopts Putin’s approach to ending Ukraine war - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOMUM5Z1ZFSUdBUjVycWl5RjdMRmVaZU83eFkxUGN4MVhxMHo4UjdaVmpaYWFaRDREYVoxTmhkeFZNTFRtb0ZDNUVodmdUQzlzZDRMYVlWZmVpYVhsOFhTeXhfQml3QTMxUG85V0pXcU1aSG5lT0tGTGFEdmlRbFhTdEpUbkNoSG1FNUVrNFdPSQ?oc=5) |
+| Three Republican-led states to send hundreds of National Guard troops to Washington - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOaDJIOWNGVjVPT1JJRlI2YXY2Wlo2ZXdERThSNnFkWjdvSkFfRG5zcnA1SHBDWFNhck52dzd4NXZVWGtSR0hnUS1KM0wySUE1Wm9waUxia0VDQTRPNUpZaUc3ZFZmdk9tREhZY0hQc3FJeHBZRUYyVEJla3ViNV9HN0dYM2d3TVVBeFlZWC04Ti1RaUoyVWplNmdvSGFIallCblBBdVdTSHJxckNiNGpNRQ?oc=5) |
+| Hurricane Erin, first of Atlantic season, weakens slightly to Category 4. Maps show its path and forecast. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiZkFVX3lxTE5yN3RTRHRvZlNFVGNvOTBOcjBqU2c2THdBbkpwdzFuUDJiMmZwT3M2U2ZuMzN6LU13cHJhMDFPYjJCMnItZ1RjdFZLUFhha2xBcjF2WEhSRzlJU0UwY3ZRTktMZ2xyd9IBa0FVX3lxTFBVb2xDOVZURkZKQkE4d2llblF6QXFSaGFBaDQtb1VfWDBrSURoRzFyS0hMMzVoT2pTdDZwVXQ3b05Tc0xnNWpSUDZCdG1yMDRuNE5jTWhGMW1ieGpqbmVkRWdOVm40cGxRLXp3?oc=5) |
+| Israel prepares to move Palestinians to southern Gaza as Israelis urge mass protest over war - Politico | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE4zZjhyNXVJdEI3cFpPZTJEZmo2WlJnSV9fU3piM00zTlFlanAyMVZESEY0R3hPS3dwU1FLUHkya2JUeDB2ZF9fcmJhUkhzcHNIV1FJbjhzaG14b0FWV2J1WFc5ZXZ6THRWaXBiODNrcUZURndwc3JpblMySQ?oc=5) |
+| Trump reportedly to back ceding of Ukrainian territory to Russia as part of peace deal - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQOGlWQzE3OW00akg5SGVPYWZMYUJrQkd6SkhQSncyYV9MakZmM3QzN3YybkVLQmFuNnRFOUVUampDay1KVkZ5N3NxRDF6ZkQtcUNNbndyejRqbUZWLXJma1FERXEtUTRRVzRpWDNwOE9QajBnaHNvOU1ON3FGLVVaZS1xZ0dpb0U4OVZLbGhGMno?oc=5) |
+| Protesters Gather to Oppose Trump’s Push on Redistricting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPc3pFOXNNbW1FM2wtM0FfdTBZX3ByZDFVbWFzcWpJOEl2XzZmemZnd0dsc3lvelN2MUdUS05YVW5aSWtuSkVDMUY5Yko3ODltUDFKSDRDdEpQSm9YZC1Tb0NabF9zQi1LMUdya2RKNXFGaEdxVVZfcHpKa25oOEdmQ1FZTG1ENmJUemFRM1ZNclItblk5?oc=5) |
+| Ukraine war briefing: Zelenskyy says Russia refusing ceasefire ‘complicates the situation’ for ending war - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi4gFBVV95cUxOdkNYRDRtY2lPNnhzNDNucWI0X1ZIREZuYW9UeUN6VmI1MlVrU1RqUWFYelJZcGZwa1NNOUxhSTF4eG85X3Zqb2d1Vmw2TXBVdUd4MjRoMUJBQUZNSTRUUWNlY2VmdWxjY3U5OU8xUExwZVVyZ0h2OVpFYmNnOEZlQy01eVVZSThESVZFR1JVMzBEdl9jMjlJSmtNUHY5TU5iel95QmRTdi04QWZod0E5ODNkWEhLWUpGS1BtWlU1dFBqUThPc2ZJNV94VjVfVVVjY0dLY2dSa2hBVlhxWWFIUmp3?oc=5) |
+| ‘It was really bad’ — Journalists who have long covered DC reflect on crime over 30 years ago - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNVWo2ZmhFY3NERVcxbm44cEpSNUhNal9fX0JjLTlEQjJ6WDN6QWhtNzBIRUpnVmp0R1VCbEsyVUR3WDBJV1B3dTNic2VBOHpGdVFqUXNlN1RhU2hEYjVtTmpKUmh0UGdHWTBsaTB3QjlMZERoTzhZN2g5UzBtYzY2T0hEaHl4S0RLQ0k0NUZNTEJZWXJ4M3NPZmtXM3FmemVxQTlvdUZVajZydjd0MTI4U0RBWlVITTUwN2c?oc=5) |
+| In letter to Putin, US first lady asks him to consider the children in push to end war in Ukraine - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOakF5RTdiMnVjTGhTeFJtVVY4TndLSWdJdmhsX2l2RUVRN05OdXhMZ19HT2pjNTZLNzVUcXdXcjY0MElubnk5d2xDbzlLNWg1dnNnS21YelBMVnJwUzY2R01TblhVLWxpckxpdnBGZm5rU000YUpKTnlPZ3p6aEZCUER5cGktWjlYWFlibnBTSEI?oc=5) |
+| US state department stops issuing visas for Gaza’s children to get medical care after far-right campaign - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPbGNOaEJrMFhGaGFpRFdjaXkta0cwYTZCejN5Ul8tVUVqZDgzQ2lMTDR5SkkwMWI2cm5XVHFiNjRObElvdUVLRHljbTB5RTFEY3JHVElISzB2M0hvWlBOT1JVcFJTVkR0NTJsQU05QXZhdlJpNmFPalZDQ3RiR2wtUHIwOUFYbEJFZmtCcEFqRklSNEV3Q195aA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
