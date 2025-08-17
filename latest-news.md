@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月18日 00:40:49（北京时间）**
+🕒 更新时间：**2025年08月18日 00:49:16（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Rubio says Russia and Ukraine must make concessions for a peace deal - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQejVOVHNtenBEaEFJaXVYSHZfeXVVQXBjdEQ3UjMzdmdLTERsa0FpZnVfcFZ4Tk4yQU50YmwyRjJCZi03TC1Wa3VueXJLZ19vUHZIX1k3aWxJZmtGWkdhci1xaWZaVGFzaWx4YUxZdHltNEFnZmxTMXJPQmYwTGpMcUl3WGdKYnNjaHRZbFo3MHoxSGFUZ0lvaFRZNNIBoAFBVV95cUxPa0RXRDQ3enVyME1qLUV5cFFYeTljbUhkSnFWNXhtYk4zSnNjdnBGYjdPY2hEUUVGNTFLVll4RlAwMkFxblhibnhKZWdNTnNYbEhhVU1tZnpfbTdfb0hUN3VkNFBRZkJael8tNldLWTNCdnNxTzRxY1lmdTUzRC1BUTdOcE4xOWFybDlxUWQ5dXlTWEhXU1BvN2ZqLTVFOEhT?oc=5) |
 | 'Lamest of lame ducks.' Indicted Mayor LaToya Cantrell not expected to finish her agenda. - NOLA.com | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNM2IxWWJRdlJ2T2pkdzlPYVpSZDJKbFRpbVhwSzNwUlZCWGVRQUdkd05sSFFXT2EzY204Ui1zU1hhcldjZnN3elhEQXJWQjdDMUxFU1JlM29fZlg2QXAwbVdkMmFBTEJrVHEtZkU3ZHA0ZmVnbGNDaFNNbEtNZVkwWF9hU2ZQUUNoaXV2NW43QWljdW1oWk1TNjBIV3psSnc2cGdPQTJGajZ2cU91QW9HT3NaRnTSAboBQVVfeXFMUGppUGZiaXdnWHVzcFpfa3Z0RTMwcWR4S3U3Y1Q2LVliZ2sybGhoNG1lcFp4endZSk1RQTNzN3k4SUU1clVkT2NyMkhWVHljYWFFandDNUllTzNZblM2LVNjaWlqU25RNllmMzhLODIyVzJpZlJhWGwydEdzb3dLaXYtYjVsSWJfMkxjdFJIN2xqZlltazN2aUxENGk3ZS1NcC1ydFRrU0tid3hiUGsyVTBSaWxXNy12T1J3?oc=5) |
 | Oakland protestors cheer California’s efforts to counter GOP-led redistricting - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPQ1o0T2ZKbHNjTTFodnBIQy05UlktTmUyWURyVUVKY3RjMExZdmlqMy1wZ0dtclJFdFk1UzlhYjdUMHNYbDZjbkJzaXhQYmNpc29tUDl3VEdESkVoWGY4UUc2Um0wVlVEOXFMZTFRMmpKdU5UYTVKV2NiUUZQRVdZSXZ1QVdYUWJTZnRMX3pmdw?oc=5) |
-| Russia is quietly churning out fake content posing as US news - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOYnBaWjZkOU5pUHhVQUlwcGpFdDhXV1ZBVXhQcjBVUnhCNFkySWptcFlKV1VVanQ4ell5X3pfZWRFeTAxUUNBbktzZjdMVVRuYXg0czZMNy1fYnNILXQ0QW1nU3dxbmpOOGdaRzdfQWx4OTQ2cHR0NTROZlJfTmpmREVKSk01d3lDYldYa2p1WnFLdnhfbEhFZnlR?oc=5) |
+| Israelis Hold Nationwide Protests and Strike to End Gaza War - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPSHlLOWRuUEM0cDNUcUZHLW9vYjJvcnNRaUUycnVKZjdFcHBpWEU0V2ZiNmpjbEx1eFRJNFBEOXZpbkkxWnJHSFlNNjg3ZjV3MlJHTkg4V1phZDNSbEhxdmh2M2tPcmhEemFmR19ETnFteHl3V05ETGFTeGdIQ0pJbXhCN0pOc2R6Qkg2Q0ZSU29IQW5vbjE2SzEyUmtPclhWdzlEV01FWmdlcjdscUQxUg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
