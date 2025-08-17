@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月17日 15:48:17（北京时间）**
+🕒 更新时间：**2025年08月17日 15:56:12（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Protesters Gather to Oppose Trump’s Push on Redistricting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPc3pFOXNNbW1FM2wtM0FfdTBZX3ByZDFVbWFzcWpJOEl2XzZmemZnd0dsc3lvelN2MUdUS05YVW5aSWtuSkVDMUY5Yko3ODltUDFKSDRDdEpQSm9YZC1Tb0NabF9zQi1LMUdya2RKNXFGaEdxVVZfcHpKa25oOEdmQ1FZTG1ENmJUemFRM1ZNclItblk5?oc=5) |
 | Ukraine war briefing: Zelenskyy says Russia refusing ceasefire ‘complicates the situation’ for ending war - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi4gFBVV95cUxOdkNYRDRtY2lPNnhzNDNucWI0X1ZIREZuYW9UeUN6VmI1MlVrU1RqUWFYelJZcGZwa1NNOUxhSTF4eG85X3Zqb2d1Vmw2TXBVdUd4MjRoMUJBQUZNSTRUUWNlY2VmdWxjY3U5OU8xUExwZVVyZ0h2OVpFYmNnOEZlQy01eVVZSThESVZFR1JVMzBEdl9jMjlJSmtNUHY5TU5iel95QmRTdi04QWZod0E5ODNkWEhLWUpGS1BtWlU1dFBqUThPc2ZJNV94VjVfVVVjY0dLY2dSa2hBVlhxWWFIUmp3?oc=5) |
 | In letter to Putin, US first lady asks him to consider the children in push to end war in Ukraine - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOakF5RTdiMnVjTGhTeFJtVVY4TndLSWdJdmhsX2l2RUVRN05OdXhMZ19HT2pjNTZLNzVUcXdXcjY0MElubnk5d2xDbzlLNWg1dnNnS21YelBMVnJwUzY2R01TblhVLWxpckxpdnBGZm5rU000YUpKTnlPZ3p6aEZCUER5cGktWjlYWFlibnBTSEI?oc=5) |
-| New Orleans Mayor is a "no-show" at Amtrak event after grand jury indictment - wwltv.com | [阅读全文](https://news.google.com/rss/articles/CBMi-wJBVV95cUxPcW4ybTNsOC1oLVVuQ2YwMU5fMi1Bd2hsTmFsUHFDc3VoZDRCUWtfdENnR1hTQzBReGdtTVlpRXFGclpMaGx5clJ6NWtZdDRyN3RmbFdobTJxTjZlZUc5ODA4LVZDeUJhZ0M3SjhQVHNiRGNncnJtWmdlbnNxQnRfbG1sbFVPR3VGdHBBeDA5YjhHOTdYRUp6N2M0M1JLaWRXZ2lidHRIU0JLeDg2Tl9UMElTZDlaVlkwWHRYcktpVVdjZm9pZjRNcFVLdjZQMHI1QlZvLUhhYWpjNTlubWpZc3Ewdk55MUZiVnd0SV9jcTlXOXJacjlLdi1wcERuSzhMVW0zMzlfZnNSb0pxR3FNSkZmNUg3ZG9tcjNnOTlXVk1yc3VHV1FBbk1wdWFFdWFSbGVTbFo0N25zUmxLdm45VHpSY1RnV0Vwd1UzQko5TE5EdXgwZzh1WWlnUVRYRW9jS1NhY1RCeHkxcGFoY2VYTHBrbkM3Y2t4a1VB?oc=5) |
+| New Orleans Mayor is a "no-show" at Amtrak event after grand jury indictment - WWLTV.com | [阅读全文](https://news.google.com/rss/articles/CBMi-wJBVV95cUxPcW4ybTNsOC1oLVVuQ2YwMU5fMi1Bd2hsTmFsUHFDc3VoZDRCUWtfdENnR1hTQzBReGdtTVlpRXFGclpMaGx5clJ6NWtZdDRyN3RmbFdobTJxTjZlZUc5ODA4LVZDeUJhZ0M3SjhQVHNiRGNncnJtWmdlbnNxQnRfbG1sbFVPR3VGdHBBeDA5YjhHOTdYRUp6N2M0M1JLaWRXZ2lidHRIU0JLeDg2Tl9UMElTZDlaVlkwWHRYcktpVVdjZm9pZjRNcFVLdjZQMHI1QlZvLUhhYWpjNTlubWpZc3Ewdk55MUZiVnd0SV9jcTlXOXJacjlLdi1wcERuSzhMVW0zMzlfZnNSb0pxR3FNSkZmNUg3ZG9tcjNnOTlXVk1yc3VHV1FBbk1wdWFFdWFSbGVTbFo0N25zUmxLdm45VHpSY1RnV0Vwd1UzQko5TE5EdXgwZzh1WWlnUVRYRW9jS1NhY1RCeHkxcGFoY2VYTHBrbkM3Y2t4a1VB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
