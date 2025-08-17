@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月17日 14:32:16（北京时间）**
+🕒 更新时间：**2025年08月17日 14:40:15（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Israel prepares to move Palestinians to southern Gaza as Israelis urge mass protest over war - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPaUpLUWhvb2hDNGl4RWc3RDA3XzFaMXlXekY3WUdlMGFfVTRZSGNwVmpVblVNRW5nQmhVWnFBYjQ3d29ScjNfdGd2aWlJQ19BUVZ6MDhCamZrTV92aGIzMDh1WHNJTzNOak0wU0pUQVNsRy1tMnBGZG9fd0d3NkZkdWNXSERCbkNGc2JLT2VxT19oR282NzFIVmF3?oc=5) |
 | Trump reportedly to back ceding of Ukrainian territory to Russia as part of peace deal - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQOGlWQzE3OW00akg5SGVPYWZMYUJrQkd6SkhQSncyYV9MakZmM3QzN3YybkVLQmFuNnRFOUVUampDay1KVkZ5N3NxRDF6ZkQtcUNNbndyejRqbUZWLXJma1FERXEtUTRRVzRpWDNwOE9QajBnaHNvOU1ON3FGLVVaZS1xZ0dpb0U4OVZLbGhGMno?oc=5) |
 | Bolivians go to polls in election that could end 20 years of socialism - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPWnJqQ3d3TVdSektLdGNqSWJKTHZmQXBDaVJBSVBZUDJJQnh0bjhIOWdxbXA5V2FZZFQ4ckZ4ektDR1d1VkFMRUxHQ2w1M2x5dWxzNWx3RnZQWGo3Y0R3SV9SN05NVWhvdWYwaHIzVXVRc2ZCQ2szcER1RE9pblF5QTBwMF9xdnlocElISEc0MTRZSzNHTXNhVlNtV290RWdsMThKc3BPQW1LaVdGVEJDdEJ4Y01SYTQ?oc=5) |
-| Ukraine war briefing: Zelenskyy says Russia refusing ceasefire ‘complicates the situation’ for ending war - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi4gFBVV95cUxOdkNYRDRtY2lPNnhzNDNucWI0X1ZIREZuYW9UeUN6VmI1MlVrU1RqUWFYelJZcGZwa1NNOUxhSTF4eG85X3Zqb2d1Vmw2TXBVdUd4MjRoMUJBQUZNSTRUUWNlY2VmdWxjY3U5OU8xUExwZVVyZ0h2OVpFYmNnOEZlQy01eVVZSThESVZFR1JVMzBEdl9jMjlJSmtNUHY5TU5iel95QmRTdi04QWZod0E5ODNkWEhLWUpGS1BtWlU1dFBqUThPc2ZJNV94VjVfVVVjY0dLY2dSa2hBVlhxWWFIUmp3?oc=5) |
 | Protesters Gather to Oppose Trump’s Push on Redistricting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPc3pFOXNNbW1FM2wtM0FfdTBZX3ByZDFVbWFzcWpJOEl2XzZmemZnd0dsc3lvelN2MUdUS05YVW5aSWtuSkVDMUY5Yko3ODltUDFKSDRDdEpQSm9YZC1Tb0NabF9zQi1LMUdya2RKNXFGaEdxVVZfcHpKa25oOEdmQ1FZTG1ENmJUemFRM1ZNclItblk5?oc=5) |
-| ‘It was really bad’ — Journalists who have long covered DC reflect on crime over 30 years ago - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNVWo2ZmhFY3NERVcxbm44cEpSNUhNal9fX0JjLTlEQjJ6WDN6QWhtNzBIRUpnVmp0R1VCbEsyVUR3WDBJV1B3dTNic2VBOHpGdVFqUXNlN1RhU2hEYjVtTmpKUmh0UGdHWTBsaTB3QjlMZERoTzhZN2g5UzBtYzY2T0hEaHl4S0RLQ0k0NUZNTEJZWXJ4M3NPZmtXM3FmemVxQTlvdUZVajZydjd0MTI4U0RBWlVITTUwN2c?oc=5) |
+| Ukraine war briefing: Zelenskyy says Russia refusing ceasefire ‘complicates the situation’ for ending war - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi4gFBVV95cUxOdkNYRDRtY2lPNnhzNDNucWI0X1ZIREZuYW9UeUN6VmI1MlVrU1RqUWFYelJZcGZwa1NNOUxhSTF4eG85X3Zqb2d1Vmw2TXBVdUd4MjRoMUJBQUZNSTRUUWNlY2VmdWxjY3U5OU8xUExwZVVyZ0h2OVpFYmNnOEZlQy01eVVZSThESVZFR1JVMzBEdl9jMjlJSmtNUHY5TU5iel95QmRTdi04QWZod0E5ODNkWEhLWUpGS1BtWlU1dFBqUThPc2ZJNV94VjVfVVVjY0dLY2dSa2hBVlhxWWFIUmp3?oc=5) |
 | In letter to Putin, US first lady asks him to consider the children in push to end war in Ukraine - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOakF5RTdiMnVjTGhTeFJtVVY4TndLSWdJdmhsX2l2RUVRN05OdXhMZ19HT2pjNTZLNzVUcXdXcjY0MElubnk5d2xDbzlLNWg1dnNnS21YelBMVnJwUzY2R01TblhVLWxpckxpdnBGZm5rU000YUpKTnlPZ3p6aEZCUER5cGktWjlYWFlibnBTSEI?oc=5) |
+| ‘It was really bad’ — Journalists who have long covered DC reflect on crime over 30 years ago - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNVWo2ZmhFY3NERVcxbm44cEpSNUhNal9fX0JjLTlEQjJ6WDN6QWhtNzBIRUpnVmp0R1VCbEsyVUR3WDBJV1B3dTNic2VBOHpGdVFqUXNlN1RhU2hEYjVtTmpKUmh0UGdHWTBsaTB3QjlMZERoTzhZN2g5UzBtYzY2T0hEaHl4S0RLQ0k0NUZNTEJZWXJ4M3NPZmtXM3FmemVxQTlvdUZVajZydjd0MTI4U0RBWlVITTUwN2c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
