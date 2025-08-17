@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月18日 04:16:24（北京时间）**
+🕒 更新时间：**2025年08月18日 04:24:09（北京时间）**
 
 ---
 
@@ -23,16 +23,6 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump Administration Live Updates: European Leaders to Join Zelensky for White House Meeting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE1mTVlVMHR4QkM0WWx0VkJ5eEVweTlYd0hvOTJJOUQtTVdpNlV2MllTQ0pNaFNKQ05MV1Q4SXBUWEZIcFV2THFEbnYwZ1M2NnMxM29wZF9Rb29JdFBOY2JnWTNmbw?oc=5) |
-| Erin downgraded to Category 3 hurricane, NHC says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNYzVsVXdNQ3BPMDFtMW5MRmh1R2UyY25OeXJCZU9HVXZrVFJLa2xLLW5UU2FhZUlOOHhPc1R4dVFCS2RYN29lZS1UajkwZ2gzMTRWdGhDTnVWREJ1Q1RiQTRTVU5ZbHZtZGt3WnYyTjVXazFsaFJxRjJqeDAtZ1Jnc0k3UTdCYUNQMnl2WHdsQkVrSEpXdnVZWVJ2SUdFN01nZlY3UA?oc=5) |
-| Trump and Putin Find Common Ground on One Issue: Biden - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOWnM2TjVDMHBORTJmNHZIVloyTUViQURhSlVKZl9oUGZsZk1SOFpPU0xrMlJkNkZmVjVKelFpdVBrYWgxQUlEQk1RaUNFWENGVVdhdGpVTVdSYVVBZDJSaUxRc1VKZFNBbEpSeHRKeEJqWkh6Ujl5RVJZa1JNYml4NjZnVnZBS1BuN0c0?oc=5) |
-| Sen. Van Hollen says an armed National Guard in DC would be ‘troubling’ - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQa3VzX2llWXQxSE1SUzBlQmEtem1VYmlVWWFRS0dQdEhMYWhURlZNMGZxU2h1bXItSW1tTU15Rm15cnhVOTRlSXd1VEJ6eDczYTNDZWxjdkk1REpMMGdnbWxCNVppeFR0YlpnQ0MyOGdWSnNKWm5Oa25OdGQxTlNBSU1aaV9MSW5Id1BGQndsazNGdTY0aDFHVjNBRDRIdEMx0gGmAUFVX3lxTE5KaDEyQlRVX2Y3eWJqTzl6VUNtc29DZVEzcXpiNEE4MTd5MVhaby1adkg2dDEwbk9XSDlsUlh1OS1ZakozSl9ERlh0QjBMVHNFci1lM25lblVnZ3poZzlNalptUnRQZlpLMTFBSi05RVV4STJyRjRCZEluM01udDBvdHNQZ3pFOEswOTJiaDdwbXNCcEpRZkI5cldyQXlyOGhHZDdTamc?oc=5) |
-| Multiple shooters wanted after 3 killed, 9 wounded at Brooklyn lounge, NYPD says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNX3FLYXliRW95emszbnVrNUhRek9EM1NGSHJnM0ZUUEVrN2hDaDd3b2VlSHRjY0VEUmppc25DUEt4Qy0zZ29ZMTJGQlhQbFE5UDdxV0lKNXhTTUNjNHBiSnNnQmNxdF9GdjJ1bjZoZ21veUJ2b29SU0ZuSFRhUTBXS1BhQUg?oc=5) |
-| News Analysis: Newsom’s decision to fight fire with fire could have profound political consequences - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNY0pZeTZYaExwVV9WUGItdkF6MllGQVFhTE5zUVN6YzdKSVhHUVZGYS1URWpMVExQbVpwOTVoYXctdXVhVXA4c2RmaC1yUnF2aVRSX2d6d283cFpmUjR5YUFlY282OE5CZzRnTTRWd1JWU3ZkOVRudWZ3bWZoZXN5aWJHWEFxbVg0bWc1bFBCNGhWUzhMdHQwSnp4clh4c3hDTnRrRnNwbTZ6aEJUMmpSenRVS1I2UnpQSjdOckdHNmw1WkJ1RnhvNng3LVBaZ01K?oc=5) |
-| Putin agreed to let U.S., Europe offer NATO-style protections for Ukraine, Trump envoy says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPYTZWVlpHOUpoRHdhbms0VFZoX0hGREx2c0xUNkpOakpZREZSc0VnZ0tBYjYtZE9sVDFPYzJqUzNDalc0eFlBZUFuMWJnc3hjek8zNVRnVERhSHhuMDQ1U29LUzF0d0hlS0gyVE5aMjdBVy1DRDZVdnV1NzBtdDV5NlpqQ1lDbE9NRk5Z0gGQAUFVX3lxTE5aYXNwcjNnVXBRSFdsUkN4Z3BHTXhiWDk3aHJldEJQTFlpaTNxQUJCUF9iZnVmc0otSXlPT2hoY2NQNURiblpnV1VPbXNaXy0zbm9TNE1ueUtRZmp0bktWSWZVSXlLaDhtOEI2X0NyX1pDMXZUaFBHVThXQVNiRG5TSkpKMF9LbUtQekVoNXViUw?oc=5) |
-| Ukraine won’t give up territory Russia hasn’t captured, Zelenskyy says - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQNjRHbS1iVFlIQXE4anpDZG16a3YzZ2FzS2EydkVNby1Db1RJaF82RDBpSnJib1hLeXFJUThjN3A1cF9EZ056aDJpajB3NmFHWTJOU1ZvQUV1U3Y1aklzOUloTEJmUHdNdVhsOG4xYW1YcFphLXF5N0tBcng2TW03THlnMGpZWGZ3a3NCWnhGMG9Oc296dGhndlltR0k0NXYyRUU4VU45VQ?oc=5) |
-| Rubio says peace agreement "a long ways off" after Putin summit - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE95RC1fTFQ0UFNUbVBEZG02Q3lzR2VSR2ExaG9DRnFIUWZPeHdFdzg5VXdDTHFWSnVOc0Y3VHp1bGFzS0hWcTZ4TWVQQ3I2Vk1BamUyMTRPd24xTkNKd08ybnZkS181ZEZFRkh1NWYwQUZQWkdr?oc=5) |
-| State Department Halts ‘Lifesaving’ Medical Visas For Palestinians From Gaza - Time Magazine | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE4zQlJmbXpsaUJhWkZCZnpnMDl6VUNjWDl1czQtdGZqY2QtbW5yYkhsX0czNzFmMzBoUEctTzZEdnkxdUxDTFluRzBUY2NjcjRhT0U5V2h5cHpTaDhkaDZsNnhiWGxpWTR1cnVHbg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
