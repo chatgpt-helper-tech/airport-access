@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月17日 17:17:13（北京时间）**
+🕒 更新时间：**2025年08月17日 17:26:11（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Protesters Gather to Oppose Trump’s Push on Redistricting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPc3pFOXNNbW1FM2wtM0FfdTBZX3ByZDFVbWFzcWpJOEl2XzZmemZnd0dsc3lvelN2MUdUS05YVW5aSWtuSkVDMUY5Yko3ODltUDFKSDRDdEpQSm9YZC1Tb0NabF9zQi1LMUdya2RKNXFGaEdxVVZfcHpKa25oOEdmQ1FZTG1ENmJUemFRM1ZNclItblk5?oc=5) |
 | ‘They’re in Wall Street, they’re in the White House’: Thousands protest Israel in NYC - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxObC1VVGtWUWFZVTQ1UHJWd01fbjNSVWh2WGtfeDZkb0R6QzZZOGF1MmZVcDdNdHFSaWxuQTlsZ05Ud0FTcWQwUXpPQkNLYTNkRXlnWHFfT09kaFBNZlhtcjF6Mk9WUXItdldTNi01S1lEVXhDTHpUTk5jekdlYXN3dG1tREY1bWZ1ZHpYTFRzX2tsdDY4ODljamZQNUdlTG9DaEY3S0tQakNZS0h0SW8w0gG0AUFVX3lxTE53U2x1Mm9hWlA2YUplZkZrb0xtRDd5WmQ5dW1vbGN3OUtFbXQ5Q180SVRiTkNfZ2x3SEI0VktsUHpmVFhGWE82aUNjZndJSFJXRjYyWlRESTZwcjBwaXNZUUpxTjBjTTR6SHJTaGJKTjAwdENfSXdQdkhJTmNzVlU3cUFab2hUYzdtYV9pTWh3dHJyVnhaQkpDcVl4cThRM2Z1TGlKaTZjeVlkTDhkX1BxY3dRTQ?oc=5) |
 | US suspends visas for Gaza residents after right-wing social media storm - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPR2JmUVNkNVVId2hYeWRGVnl5RTA2Y2s5Q3B3NU91V2g0QlRNdlVGY05QLTRhN1BmWTlvWGJRMnRqOXhJWkVTVXl4bktxdUhUQVR6SzR2NlozZFFmcGZVNGd5VGd1djlLZnVfeWliN2lLNXY3V0swMVlJT3FuTEFZS1g4c1VtZmpPb2w5RGkyTFNZcmRleng1eGlGVktSeUl6ZkMybmNNY19OQ0t3NEFmVDRDONIBuAFBVV95cUxPMjhDNmF6bmJLemR4UWN4WWxiZmNibkZpekNnRnluMUpPcGh5ODl2S0JzMTMxY1J0SmdZZWZqMzZjRXBpR3lNQk1meE9RcE1jZDNJTURwenFyb1pfYlhiblVjQmxJZUtCMS05V3h4NjU2QjJVcko4OXdGeE4xdWtIcmd4RlZQQ21lcWVveXNJb1FSQmJqX0pPSkI1S1VnbGZGODFBTkp0TUMzTDlSZk5jcElGY25pdkdS?oc=5) |
-| D.C. Police Chief Retains Control of City Police After Court Hearing - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNVlFGNWpCSWE1TVE1OHBWQUxpYlhOdnRYSnVLdm1sUm9WVmFCb3Utd2lpdk5XNlFoSkVJSS1QVUFhZml2Skc0bWNPSFRhaG56T0xxelZFVXc3WXFKaDJoVVJzY2h1SlpuS1pkQm81czkzSm0xdVU2U2JfYTdKSFIwenRubzk?oc=5) |
+| Trump is deporting so many immigrants that it could cause inflation to hit 4% next year, top economist says - Yahoo Finance | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQb2pLWnJHMmt1N1ZseDI2cjVCU2lnU2s4UzFCTVFGT0pVX080OTFfZXQtVzktbHl0ODJYZktUU09WUjRiVEE0Y2Z1Q0s4LVN1Z3hDdUpxeGQ0R2NFT1l2SXctTnlwYUtxaEVRSUpndWJwT1pjVGlISjgxNEFtLXZWOFc4SC1BQjJvOFRZ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
