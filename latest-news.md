@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月17日 18:17:54（北京时间）**
+🕒 更新时间：**2025年08月17日 18:24:47（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | No concessions, no ceasefire: how Putin outplayed Trump in Anchorage - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE14Y09IUjl1V2xVUGo2d21jYWJicHhUYzRLVExKYmhrc2wxUnhmakpkQURlNnlicnNGM3hBXzNUQVg2QU13Yzdra1VtR3NMYVlHSHRHaXlBVmxvYW11cUlQRWdKTjllQTg5MWFRakpCUmQ?oc=5) |
-| Protesters Against National Guard Deployment Flood D.C. Streets - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOR0dkWkpjeEhLRlBMQkFPUlNwbGFULVVrTjdpbFU0WUlKYk5nZU9VbjJMYWpXLW9YQ1hOWFRjNDFqOFo3dDR2eFQzN3NodFhNRlVHejNJLUhBalBkdVlBbHlzaUNvRHZtWEZTX2V4RUVzYU84V0t1R1pPaGU4a19oY2EyOGdWM05ReXhTcjRDYkFTZw?oc=5) |
-| Hurricane Erin remains an extremely dangerous Category 4 cyclone north of Caribbean - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOS3V0TVhsYWktSm9tNFA2NG9OdUFHQWhCWi1MNDU0cHpxcE9DUEhnYjhxMG1LSzBWRU5DeGx2SkdSRXhneGt5M0RrUkllNU5OV0VlOFNMRUlidlVIb01WMFQ1Y2sydTlWOEg3a0VtWWxOM2UzQjc0TmxGOWUzNmxDSzNjM3FNZWNhQTBLWWktVWltbl9rRllCVTktX3JTdllkeDdQYlVDZGhQaTM5QTRwZ2wwN01zNUNENXdGQV9yOA?oc=5) |
+| Three Republican-led states to send hundreds of National Guard troops to Washington - NPR | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNWU9uWllLcDQ0eVJfLURRdGdmN0VhaEUzZWRCTGw4d3NjSzJkRTVJVHM5N1FRRmJTNTZrb0hHV3AtcTZfdERkdGFaVnNrZjdCMUFGOG9Mb19FUE9rME44cWdkUXZFZ192NHlBRWxHdmdWcXgxemhzd2JXS3BoOTdBS3prbWRxQXJTOTdwV0U3czA1aWw0cng1bUpXUHFTbGxKRzZEb2JRWnFDMTdPbjJjbzc0Vzh1NWd3TWpfYVBRd0VzLWpDOGRJ?oc=5) |
+| Erin downgraded to Category 3 hurricane, NHC says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNYzVsVXdNQ3BPMDFtMW5MRmh1R2UyY25OeXJCZU9HVXZrVFJLa2xLLW5UU2FhZUlOOHhPc1R4dVFCS2RYN29lZS1UajkwZ2gzMTRWdGhDTnVWREJ1Q1RiQTRTVU5ZbHZtZGt3WnYyTjVXazFsaFJxRjJqeDAtZ1Jnc0k3UTdCYUNQMnl2WHdsQkVrSEpXdnVZWVJ2SUdFN01nZlY3UA?oc=5) |
 | Israel prepares to move Palestinians to southern Gaza as Israelis urge mass protest over war - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPaUpLUWhvb2hDNGl4RWc3RDA3XzFaMXlXekY3WUdlMGFfVTRZSGNwVmpVblVNRW5nQmhVWnFBYjQ3d29ScjNfdGd2aWlJQ19BUVZ6MDhCamZrTV92aGIzMDh1WHNJTzNOak0wU0pUQVNsRy1tMnBGZG9fd0d3NkZkdWNXSERCbkNGc2JLT2VxT19oR282NzFIVmF3?oc=5) |
 | Trump reportedly to back ceding of Ukrainian territory to Russia as part of peace deal - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQOGlWQzE3OW00akg5SGVPYWZMYUJrQkd6SkhQSncyYV9MakZmM3QzN3YybkVLQmFuNnRFOUVUampDay1KVkZ5N3NxRDF6ZkQtcUNNbndyejRqbUZWLXJma1FERXEtUTRRVzRpWDNwOE9QajBnaHNvOU1ON3FGLVVaZS1xZ0dpb0U4OVZLbGhGMno?oc=5) |
 | Immigration agent fires shots at vehicle with people inside in San Bernardino operation - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNUVh5R3JzVzRCbkxiVW5ZZnNBSkMwMHMweVd3dWZQVlloY0p0M25WaUpibDZxakk3WGpoOF9hdFN5bDc1TzFZaXg4dnV5WkVyNGY2SDVSdHMyZThFaThLZlpzU21lSUZLdFhWb2xIZ2czRUw0WEhkSEpFV3JzVExISE0xUW9TMmZUajNOaVFpYUFpcXpSNHR5a1p4M2wtemV5cm9Wb205c05OTnJPUHc?oc=5) |
