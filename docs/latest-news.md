@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月18日 00:01:36（北京时间）**
+🕒 更新时间：**2025年08月18日 00:09:21（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | GOP-led states sending National Guard troops to D.C. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5XVVpjVFRlQk1weTZOcDZUbHp4TkJhVk51OE84X2hGRjZpU2hqcUpsclJrOW85RnNOMkZ6RFA5VER1ZlpBVC1jaHRKdzU3MUdyTmo5djZLejV2bjNuZGtsWjQ4Z0x2VTJJbzJ4MlhxVDVzcTNUZzc1VV8xNA?oc=5) |
 | Rubio says "both sides are going to have to make concessions" to end war in Ukraine - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPRXhucGlmaXVudmtrRVVzZUd2d1ZuVzNRaGVseDNzUkc1LXNzSnhXcUYzZzFDMXhaTnBtRW51bFZMcWY3OXJzdFRia09XNlR2a3FYRWZicVliMFpNODU0LTdHdnBoQVRFVVg1WENIVVgzRFZTZkVqbU9Hd1FoMDkzaXZMTTbSAYoBQVVfeXFMTUt6VHhhYV9OTXJ2MERuMlNxZUNSNkRMS2prdUt3WVZ4V2Jndkx6V1E1U0lYUkZnSHVSMU0zaklrVF9Ic2VXRUo3TDNUMW1WRjdxZmpnMHhyUVVweWkxNmYtNm5iTlRKMzFwZ2hZcEFqSzN0RVV4TnVfOVJVM3YyQmRtSE9pT01YM2Zn?oc=5) |
 | 'Lamest of lame ducks.' Indicted Mayor LaToya Cantrell not expected to finish her agenda. - NOLA.com | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNM2IxWWJRdlJ2T2pkdzlPYVpSZDJKbFRpbVhwSzNwUlZCWGVRQUdkd05sSFFXT2EzY204Ui1zU1hhcldjZnN3elhEQXJWQjdDMUxFU1JlM29fZlg2QXAwbVdkMmFBTEJrVHEtZkU3ZHA0ZmVnbGNDaFNNbEtNZVkwWF9hU2ZQUUNoaXV2NW43QWljdW1oWk1TNjBIV3psSnc2cGdPQTJGajZ2cU91QW9HT3NaRnTSAboBQVVfeXFMUGppUGZiaXdnWHVzcFpfa3Z0RTMwcWR4S3U3Y1Q2LVliZ2sybGhoNG1lcFp4endZSk1RQTNzN3k4SUU1clVkT2NyMkhWVHljYWFFandDNUllTzNZblM2LVNjaWlqU25RNllmMzhLODIyVzJpZlJhWGwydEdzb3dLaXYtYjVsSWJfMkxjdFJIN2xqZlltazN2aUxENGk3ZS1NcC1ydFRrU0tid3hiUGsyVTBSaWxXNy12T1J3?oc=5) |
-| Ukraine won’t give up territory Russia hasn’t captured, Zelenskyy says - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQNjRHbS1iVFlIQXE4anpDZG16a3YzZ2FzS2EydkVNby1Db1RJaF82RDBpSnJib1hLeXFJUThjN3A1cF9EZ056aDJpajB3NmFHWTJOU1ZvQUV1U3Y1aklzOUloTEJmUHdNdVhsOG4xYW1YcFphLXF5N0tBcng2TW03THlnMGpZWGZ3a3NCWnhGMG9Oc296dGhndlltR0k0NXYyRUU4VU45VQ?oc=5) |
 | Russia is quietly churning out fake content posing as US news - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOYnBaWjZkOU5pUHhVQUlwcGpFdDhXV1ZBVXhQcjBVUnhCNFkySWptcFlKV1VVanQ4ell5X3pfZWRFeTAxUUNBbktzZjdMVVRuYXg0czZMNy1fYnNILXQ0QW1nU3dxbmpOOGdaRzdfQWx4OTQ2cHR0NTROZlJfTmpmREVKSk01d3lDYldYa2p1WnFLdnhfbEhFZnlR?oc=5) |
+| Protesters Gather to Oppose Trump’s Push on Redistricting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPc3pFOXNNbW1FM2wtM0FfdTBZX3ByZDFVbWFzcWpJOEl2XzZmemZnd0dsc3lvelN2MUdUS05YVW5aSWtuSkVDMUY5Yko3ODltUDFKSDRDdEpQSm9YZC1Tb0NabF9zQi1LMUdya2RKNXFGaEdxVVZfcHpKa25oOEdmQ1FZTG1ENmJUemFRM1ZNclItblk5?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
