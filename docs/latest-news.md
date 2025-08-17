@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月17日 22:16:51（北京时间）**
+🕒 更新时间：**2025年08月17日 22:24:28（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | 3 dead, 8 wounded in shooting at Taste of the City in Crown Heights, Brooklyn - ABC7 New York | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNTjZDSXVwam1zN2JubW5SZ28wM2pqQUpTY2hxQXh1Y0dsazZEczFSQ05tNE02TG9KYjlMd0pQdjE5QTJXXy1MQmg0TXg3b05ZdjBYYVcwUUdTUUVON1h4RHFYaGZKMm5IYS11M2UtOHllcmxZUmx2Qk9KUF9HUzh3NlpBT09KRjRpVmM4WWVkQUNLa1VLQlhPb9IBngFBVV95cUxQVDN4Zkstc3RKRlBYbmtVODZ1Tmd0Q1I4cHZwRVdpcEx6M0wySlFfYldDTjU4N2I4ekZUY3YxN1BpbVY3a2U5UzgtZHN1bW1sSTVyNndSZGFiTkl6cFJsNEMxTWJaYjNWZk5uUnBGYnpLcXBybEloVnVvYXN2SEtkMWZPakhSX3llV19TSC1WdXZ4bko4QUNobjdMeVV6dw?oc=5) |
 | No concessions, no ceasefire: how Putin outplayed Trump in Anchorage - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE14Y09IUjl1V2xVUGo2d21jYWJicHhUYzRLVExKYmhrc2wxUnhmakpkQURlNnlicnNGM3hBXzNUQVg2QU13Yzdra1VtR3NMYVlHSHRHaXlBVmxvYW11cUlQRWdKTjllQTg5MWFRakpCUmQ?oc=5) |
 | Trump Backing Putin's Ukraine Land Plan – AFP Source, Reports - The Moscow Times | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOV1F0ZUZuUkttU09ILVhOZERNV1BqNGtHRFMwSngzMVVWWWhTc2s1aHVCYkhJdzFxdXk3QmM4MXJaRXVlMkVGV0VoMHVmMmFxaWt0ODJBQWo1MGxnM0NzdWh0bUJXdGVoWTF6UmExTVh3bjJKVGVaeDZXLUZJNEZtQjJ4OHBPOGVMUGV0S1piUkxMQm1KdUNFeXdGMHlVeHBoU3FCY3M2ZUZ0Zw?oc=5) |
-| Oakland protestors cheer California’s efforts to counter GOP-led redistricting - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPQ1o0T2ZKbHNjTTFodnBIQy05UlktTmUyWURyVUVKY3RjMExZdmlqMy1wZ0dtclJFdFk1UzlhYjdUMHNYbDZjbkJzaXhQYmNpc29tUDl3VEdESkVoWGY4UUc2Um0wVlVEOXFMZTFRMmpKdU5UYTVKV2NiUUZQRVdZSXZ1QVdYUWJTZnRMX3pmdw?oc=5) |
-| Fear of a new Oval Office fiasco over Ukraine - The Economist | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOeDJNeXFmdkR5dDFZb3hZdXZnbm4zTTdEUFR4Z0I5OWpCZ3hTWF9OZFdQaXFqV3IxblBJcThfem8xWlh3RDBxLW9raV9Ndm9SOHBsTVM5dUZPREVBSTBKZW9CZE9qbDB2QnlNWTR6WERabUhrVkVfczdDWUdHOUNtdG5ZSUxHLVZldmxGUTNtUEZUbWc?oc=5) |
-| ‘Stunning survival story’: Police rescue California man trapped behind waterfall for two days - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNam9wMF9jUzdaTzlEOVpsbnpuWERldFhuczFUcHFwaU11eGliYTVsUjRXR1Y1UjRRU19adWNTR0FHUnVvb2tNd202Z3R5X0EzYmJyb0ZTR0NoUVpuendwRjMyNEZzR3V3SE5ReWY0U0dxMnE3M2UyMklyRkFXZkJZUXgtY2psN3FLVTdMdnotV1ZnVGtnM2VCQW1POHE1Z0ticVVV?oc=5) |
+| Thousands rally at Texas Capitol against Republican-backed congressional redistricting plan - KUT | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOUjZwWkw5VHhVcGU0NDN1V1FPdWxXS1I3bUQ5T2RIdG1JQUNrOE5GOXZidjNPZ1VWUjEzWUFwdDZJcFVVcmpWODE4TTVDVUhGZC1IS3gxWDdVRlNqZExzWkxmWi1jZVBzZlBwOHNudVk3dlB4NVBhdEdFUW9MQWRISGRPd0phMklxeUYxQmRPcmYtd3J6SXlnQW1zemVheklHZ01oX3FDQzRVTEk?oc=5) |
+| Zelenskyy urges Europe to stay united against Russia's war in Ukraine - Euronews.com | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNSDFHMkZndVZQZVRFUERmV2hjSmJ0eWw4YnRrS3NYa0lBQzR3bjlSdG5velVjb0NFeFg2T2VUVEctQk1nTUw1Y0sxNko2VTN4bE1XR19oLW5XUU5vT3QyMlZ6Y0RqVExINGtfeEJYa0NsQWhERXBrZWtCZm15bTlKUG5pWDFIUHF3azliNDVmcDBVSlN3MjRMQV9EcXVGcUNwSm1tSFRiQWxZcnBHRXcxOHo0STVmYmdDQlZPTzlYaWJzVmxs?oc=5) |
+| Russia is quietly churning out fake content posing as US news - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOYnBaWjZkOU5pUHhVQUlwcGpFdDhXV1ZBVXhQcjBVUnhCNFkySWptcFlKV1VVanQ4ell5X3pfZWRFeTAxUUNBbktzZjdMVVRuYXg0czZMNy1fYnNILXQ0QW1nU3dxbmpOOGdaRzdfQWx4OTQ2cHR0NTROZlJfTmpmREVKSk01d3lDYldYa2p1WnFLdnhfbEhFZnlR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
