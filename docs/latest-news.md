@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月18日 05:08:58（北京时间）**
+🕒 更新时间：**2025年08月18日 05:17:39（北京时间）**
 
 ---
 
@@ -26,7 +26,7 @@
 | These European leaders will accompany Zelensky to meet with Trump - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5ZaUVBd2ZUTnd5TlJzT0hhcGxjUHRYSXhmX29uX0E5RG40SUlxc1JjVjhybnRmUEJ4QTRLaTlpZzZyenpnSDVPTlhTSmMyNnNMR0RHZVVaZ0tOblF6dmE3YVEyYmFWZWlmdUVKempWWUt6UDZ0MDFHQ0U5Mmo?oc=5) |
 | Erin downgraded to Category 3 hurricane, NHC says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNYzVsVXdNQ3BPMDFtMW5MRmh1R2UyY25OeXJCZU9HVXZrVFJLa2xLLW5UU2FhZUlOOHhPc1R4dVFCS2RYN29lZS1UajkwZ2gzMTRWdGhDTnVWREJ1Q1RiQTRTVU5ZbHZtZGt3WnYyTjVXazFsaFJxRjJqeDAtZ1Jnc0k3UTdCYUNQMnl2WHdsQkVrSEpXdnVZWVJ2SUdFN01nZlY3UA?oc=5) |
 | Trump Officials Hint at Possible Concessions by Putin - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNM0xBTXgzSl8yTWJqVUNzSDZ5NFdTQkdnTGJyT3J5c2JWLUU0dk8wc0JfZWs2Nl96R1AzWWxFMG9PbGZTMkJtR0Z2YV9pODByenA0MXdIeTVtMWd2OWJjMFdId3FvNFdKYkdUZ3cxNW1zLWs1QmVGRktTXzFVX0VaaGREd0xwbkhKd1hPREQ2bEk3NkdSSUE?oc=5) |
-| Three Republican-led states to send National Guard troops to DC - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1GS0FSVkFUZjlnYmZ0UGF2MkUtTWwxLUo3eEU3RTZyUURNUFU4S1ltSjVKNlM4a1Q4VF9qcVU1QXp0QnBXX0VDV0dWbmFHSDdZU3BrT0NJQy1iUdIBX0FVX3lxTE5RTHVTZVQtVV9sekRRMmRNXzhVS0UtY3ZQak5jRVVLX0FaVFBzWTE4cWg2eVQ0eWg5ZURDbzVQMmxUTThZMGFoNkp0ZUltMEh5SW9INUNJQ3pta0pWaTFZ?oc=5) |
+| Sen. Van Hollen says an armed National Guard in DC would be ‘troubling’ - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQa3VzX2llWXQxSE1SUzBlQmEtem1VYmlVWWFRS0dQdEhMYWhURlZNMGZxU2h1bXItSW1tTU15Rm15cnhVOTRlSXd1VEJ6eDczYTNDZWxjdkk1REpMMGdnbWxCNVppeFR0YlpnQ0MyOGdWSnNKWm5Oa25OdGQxTlNBSU1aaV9MSW5Id1BGQndsazNGdTY0aDFHVjNBRDRIdEMx0gGmAUFVX3lxTE5KaDEyQlRVX2Y3eWJqTzl6VUNtc29DZVEzcXpiNEE4MTd5MVhaby1adkg2dDEwbk9XSDlsUlh1OS1ZakozSl9ERlh0QjBMVHNFci1lM25lblVnZ3poZzlNalptUnRQZlpLMTFBSi05RVV4STJyRjRCZEluM01udDBvdHNQZ3pFOEswOTJiaDdwbXNCcEpRZkI5cldyQXlyOGhHZDdTamc?oc=5) |
 | News Analysis: Newsom’s decision to fight fire with fire could have profound political consequences - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNY0pZeTZYaExwVV9WUGItdkF6MllGQVFhTE5zUVN6YzdKSVhHUVZGYS1URWpMVExQbVpwOTVoYXctdXVhVXA4c2RmaC1yUnF2aVRSX2d6d283cFpmUjR5YUFlY282OE5CZzRnTTRWd1JWU3ZkOVRudWZ3bWZoZXN5aWJHWEFxbVg0bWc1bFBCNGhWUzhMdHQwSnp4clh4c3hDTnRrRnNwbTZ6aEJUMmpSenRVS1I2UnpQSjdOckdHNmw1WkJ1RnhvNng3LVBaZ01K?oc=5) |
 | Israeli plan to displace 1 million Palestinians spreads fear in Gaza - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQaF9lWUJWcllINHVXTklXMG8zNE0weVp2d19Hemp5UkZPRF9fWU9EZGxRbFhTX3dOT19ra2EtSW5oMGpFbjI4STB0TFJOUlBfek1ucm1laHE0TDJocXphbXBFQW15UGxSZkl1aHdBR0tqTEdVRlA3cXI1a3QxdFhTOHhmNWR5UVJtRDBReTVQUnh2VVpGRzZtdkJvcmhlR1QzLUd4Y3ItSFkyUGM?oc=5) |
 | Multiple shooters wanted after 3 killed, 9 wounded at Brooklyn lounge, NYPD says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNX3FLYXliRW95emszbnVrNUhRek9EM1NGSHJnM0ZUUEVrN2hDaDd3b2VlSHRjY0VEUmppc25DUEt4Qy0zZ29ZMTJGQlhQbFE5UDdxV0lKNXhTTUNjNHBiSnNnQmNxdF9GdjJ1bjZoZ21veUJ2b29SU0ZuSFRhUTBXS1BhQUg?oc=5) |
