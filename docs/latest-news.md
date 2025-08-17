@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月17日 22:01:29（北京时间）**
+🕒 更新时间：**2025年08月17日 22:08:54（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump Backs Off Cease-Fire Demand in Ukraine War, Aligning With Putin - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQUDlqY01BSzJUUXRoMDhIWlU4TUcxaWJtRWFrX01UbUhVUXFUTS1SQ3JNRVpnYmtBRThSOHdFRTZ2YU9DWWl1SW9ZaGRvNjlLTHVZVUJESlpGTGV5T0g0ZTZXekRZdXZJdXljTDRHWmROMV9wSWNFckRabW41S2tPWjFud0ZkbVZuSWV6dS0ydkw2Mnd5a2NGeQ?oc=5) |
 | Three Republican-led states to send hundreds of National Guard troops to Washington - NPR | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNWU9uWllLcDQ0eVJfLURRdGdmN0VhaEUzZWRCTGw4d3NjSzJkRTVJVHM5N1FRRmJTNTZrb0hHV3AtcTZfdERkdGFaVnNrZjdCMUFGOG9Mb19FUE9rME44cWdkUXZFZ192NHlBRWxHdmdWcXgxemhzd2JXS3BoOTdBS3prbWRxQXJTOTdwV0U3czA1aWw0cng1bUpXUHFTbGxKRzZEb2JRWnFDMTdPbjJjbzc0Vzh1NWd3TWpfYVBRd0VzLWpDOGRJ?oc=5) |
-| Hurricane Erin tracker: 1st hurricane of Atlantic season weakens to Category 3 - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOX29HbXh4eDNfTi1JUVJpd0xldTRLT2R6SXBDZXRKRUZKZUxUbkNTYTY0ZVFVRVo5T0VOZkd5RC1CZFN2ZFBBNGphSTBvV21yYmxCTEhoMTRrWlN6a3pSOTFVTmpJZjZKUThFaTVLenpHbXg2VHBrdXRMTnFldHdtY0tJTUs2SXo0VHdUMXg3WkR4bjZZNnJjN9IBngFBVV95cUxOWWJ5dE8wak10blZWSlBEeWJ5cG5BMXZtYzRWeFhwbVBtWkNyVTAtZmhGUzZERHU0S2JqRTdqaVJ1VFMxQ0Zscl92QXFlYWNrMXBuay0zR1h2eW1VYzRlSk91eU1ldVIwbF9WSWE3amJ5bG1PNTFfcC1DVXk2bGxnLXJKb080allwNnJyOWEzMGFiYzNaYWtUWHdxTnJJQQ?oc=5) |
+| Trump Backs Off Cease-Fire Demand in Ukraine War, Aligning With Putin - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQUDlqY01BSzJUUXRoMDhIWlU4TUcxaWJtRWFrX01UbUhVUXFUTS1SQ3JNRVpnYmtBRThSOHdFRTZ2YU9DWWl1SW9ZaGRvNjlLTHVZVUJESlpGTGV5T0g0ZTZXekRZdXZJdXljTDRHWmROMV9wSWNFckRabW41S2tPWjFud0ZkbVZuSWV6dS0ydkw2Mnd5a2NGeQ?oc=5) |
+| Erin downgraded to Category 3 hurricane, NHC says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNYzVsVXdNQ3BPMDFtMW5MRmh1R2UyY25OeXJCZU9HVXZrVFJLa2xLLW5UU2FhZUlOOHhPc1R4dVFCS2RYN29lZS1UajkwZ2gzMTRWdGhDTnVWREJ1Q1RiQTRTVU5ZbHZtZGt3WnYyTjVXazFsaFJxRjJqeDAtZ1Jnc0k3UTdCYUNQMnl2WHdsQkVrSEpXdnVZWVJ2SUdFN01nZlY3UA?oc=5) |
 | 3 dead, 8 wounded in shooting at Taste of the City in Crown Heights, Brooklyn - ABC7 New York | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNTjZDSXVwam1zN2JubW5SZ28wM2pqQUpTY2hxQXh1Y0dsazZEczFSQ05tNE02TG9KYjlMd0pQdjE5QTJXXy1MQmg0TXg3b05ZdjBYYVcwUUdTUUVON1h4RHFYaGZKMm5IYS11M2UtOHllcmxZUmx2Qk9KUF9HUzh3NlpBT09KRjRpVmM4WWVkQUNLa1VLQlhPb9IBngFBVV95cUxQVDN4Zkstc3RKRlBYbmtVODZ1Tmd0Q1I4cHZwRVdpcEx6M0wySlFfYldDTjU4N2I4ekZUY3YxN1BpbVY3a2U5UzgtZHN1bW1sSTVyNndSZGFiTkl6cFJsNEMxTWJaYjNWZk5uUnBGYnpLcXBybEloVnVvYXN2SEtkMWZPakhSX3llV19TSC1WdXZ4bko4QUNobjdMeVV6dw?oc=5) |
 | News Analysis: Newsom’s decision to fight fire with fire could have profound political consequences - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNY0pZeTZYaExwVV9WUGItdkF6MllGQVFhTE5zUVN6YzdKSVhHUVZGYS1URWpMVExQbVpwOTVoYXctdXVhVXA4c2RmaC1yUnF2aVRSX2d6d283cFpmUjR5YUFlY282OE5CZzRnTTRWd1JWU3ZkOVRudWZ3bWZoZXN5aWJHWEFxbVg0bWc1bFBCNGhWUzhMdHQwSnp4clh4c3hDTnRrRnNwbTZ6aEJUMmpSenRVS1I2UnpQSjdOckdHNmw1WkJ1RnhvNng3LVBaZ01K?oc=5) |
 | No concessions, no ceasefire: how Putin outplayed Trump in Anchorage - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE14Y09IUjl1V2xVUGo2d21jYWJicHhUYzRLVExKYmhrc2wxUnhmakpkQURlNnlicnNGM3hBXzNUQVg2QU13Yzdra1VtR3NMYVlHSHRHaXlBVmxvYW11cUlQRWdKTjllQTg5MWFRakpCUmQ?oc=5) |
