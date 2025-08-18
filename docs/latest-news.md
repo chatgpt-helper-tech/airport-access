@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 06:40:42（北京时间）**
+🕒 更新时间：**2025年08月19日 06:49:17（北京时间）**
 
 ---
 
@@ -24,10 +24,10 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump calls Putin during Ukraine summit at White House - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5pSUFsSW1PSkhUMzdfM0hnRERVaDkzXy00c0t1bmhIajR4RG1RY0NFN1FCeVhnWkJpU0ZPdURWSnFaVGgwZkdTTFVYRTZ3WnpuNGhqcHRFVGl4RGtfbWVqdEJrUHRFLWx3UGV0dTV3b0R3cmxINHh4cVBLODUtUQ?oc=5) |
-| Hurricane Erin: No direct hit forecast for U.S., but flood risks prompt evacuations - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNVk52T2FzM3laWllxajNIcnI0aDlTVU9tek95WkYtZE5OTFdEclJlMVBVeEZ3RFd5VkhZWXpnZjNnU1pIT2pqdDRSOXkyVzBQazBVc1JDLUh1WUFxNzFTbGZfeVNodTRiV3luTGJlRXNHM1NYZndIWWVwc0sxQldSN2FieENsbV9LbGJPcUFSMFkxbG0zOTZZZzNGUjg?oc=5) |
+| Hurricane Erin back at Category 4, will bring dangerous surf to East Coast - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPMmZCaWhmRDRGU1lVX1RWR1kyS1Z6NDFjaGk0VHVRX3ZudnlQRVl6LVhjaXgwdU9KTXZpTnQtX2Y1X2dZU1RsVlZ3QWZkN0lFWS1lN1NoMk9PNTh3cGZJV2xFMFk5dzdsMU1HR1dfbGVRbW9kWXVZemJWZ1VpUWZvVXo1UHhWUTJEY21iTDRlRW91MkNuSXc?oc=5) |
 | Texas Democrats End Walkout Over Redistricting, Allowing Redrawn Map to Pass - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPMkhfa3NYeElrNzVMSXl2cGowNkdYQkVBV1RwSGxwLWlidENkQlNmLXZEN1MzTk5udThFdWowMVptUnVrMm5yNHNXMl9ZVndVVHdWRnhWV2pLNXJ4NmZYX1dVdlhlRVJpYjN1T0t1RllJRzVPTTRjX1V2bXdEODRGQ0Fn?oc=5) |
 | Versant to rename MSNBC, drop famed peacock logos in Comcast separation - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQNFlEUWIyUFpXS2dNaEUyZEpFckQtYnhWRXlVWVNfcHRxMkZnSm5WUWJZVGVMSkVBMHRXTDEtcXV0QmtMcWdnQ1A0NzAzaG5NbmlZTnBMUlA5Vnh6YVdtTkpkSnE1MUVQa1pYVXNEY0ZyYW5sOFhWOXFKcTBoSVZlUzFyWmRjd9IBiwFBVV95cUxPeVZDcGpoOExQcE9wQ091X210RVV0TWN5MVBybkRhQ0NPYlBYaEI4bV9ROUR1UG13WHJWZUF6aTUzTXJRZy1RUURoTXc1bktDS0VqYWdDcGlZUGxFU0hkYmtoWjNUeHRBMjR6VTRhVDNrb3BSWE5lRXBLNGpQV0poMXRsVFFJQVF3Q0Fj?oc=5) |
-| DOJ to start turning over Epstein files to Capitol Hill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOcU5nMEt0aXN2R1NRRDBSSHh3ajhrMC1yUEZPSmVreWZrVF9wVGNzeXZKY1ZSeExMUXJDSWxKblQ0eHhBVmJUNklTaGZiTlJKUEQ1OGdzOFo4RWRZa0tndlpVX2tZWVJvVnlIUk1semFBU3BvSmhnalpqZXZaYzFRWjkzcG9EVTZYaW81N2I0Z19zTGtuQ3FDMg?oc=5) |
+| House Oversight Chair says Justice Department to start providing Epstein-related records on Friday - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE42c2FwSm9hREd4R1REeng1azhBbXNad2pFM1FwODdFcDZDeXpBdFQ1alRyWUdwNTNmcXc4TE1xVExIWjViRG1JYlN5RV9JazhDVzBHYS1fQWxiYi14QlZkeER4UTN1Z01SWE9pZ0RfX1M2ZkktNHl30gF8QVVfeXFMUC1jcTFiaWxCVnptVmZRT0xsZ0Iyemc5dENlNjlTQ1Q3SzRtNmFXd0JEenZabmVPS29CbUhzUXN5YTVhcWlNd05xdWdud0FLRnlQYlF6Snd6dHFCVzE0T1VuSjhCQnlBc0hSbzV6N245QVVwVDFYbkg0bHAxNA?oc=5) |
 | Ukraine offers $100bn weapons deal to Trump to win security guarantees - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1lVjNIS1hJTEZZWTJJZVh4dzJwY3FlQ0t5RERVdlRmdUNPZGd6NFB0MUpWQXV1dGlaQk1Na1psNHZDZFlndkNmdUd1OHZjaHRaVmU0WGw3OHRaUVoxNnRMZzJTNFU3VzU2Zkl6ME5wTHE?oc=5) |
 | On Putin’s advice, Trump launches assault on mail-in ballots and voting machines - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNN19LeGtwTHdYR2hKaXM5Z2dSSTEwbl9pejhIdnV5Nmp6RVZnY2ZGa0dyZGNoUmtfSWNLdnB6ejRhbUdOdFM4T2dkT2NhZmlVNUdTVk1pUFBIX1BGdklmRlQwanBWTm9SOEltRFU3MmhRdHcyWnJxdHhaeEFxN1JZR0gySXJxMG8xbkJ0eXY2dno1UVRjQkx0eE9ENTdxS2duaVdJOQ?oc=5) |
 | Newsmax to pay $67M to settle defamation lawsuit from voting machine company - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNZ01lOWQ1ajRfNVJWWkkzZU42NllXZ1RUNVRXLW94Q3JoMWE0aXdDcndsbDY3MTJ2cTh0d1hXdVNOS3E3ODBPWTduRE1Yc3BMQXFKY2RPQWlxYjNFLTRTNnd6S0pVM1BmV3JmLU4zQmlPQ0hvcnpRN1ZEZjJ6MHJ3RG1mVXd1RzhiQ3NWVVdGZWszVEM1UDV1Q3Z1S1NiM054czdoRjhsXy1wbFVwTGRPcTRB0gFWQVVfeXFMTmxycGFLRGJuSldsRVQ5bjlXZFg1SndfVElHN3p0VGdJZzZTQTRNbE5nMFlwUFE3cFBYdV9keVRDT2lPV0dGRmw3dkh5c0xMV3g2eDNhZUE?oc=5) |
