@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月18日 16:57:29（北京时间）**
+🕒 更新时间：**2025年08月18日 17:01:58（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Hyde County issues Mandatory Evacuation of Ocracoke and Flood Watch - Island Free Press | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNWVJuNE10T3V0a0hCQTFMdnhhUjVsdUFWUzczZkwzYkMydzdJR3RPSUp6R0UzSXZWdTZPMkV1ZEg0NEdWZ1ZLXzJxcXcxN2l3VUpQa00zWms1RnQ3SC03eEhRRDJsWVpIdGRKTHVJc0Q1MDJoTFhuUm1sV0NnLWdIVTJSeGptWTJXdjloUllIaWo5NzA3M2hyVmxGRjVNdGEtdkJkLVozUjNRTUM5T1lZ?oc=5) |
 | Trump puts onus on Zelenskyy to end conflict with Russia ahead of meeting - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxPOWNtMG1sNm5TSEFXWGplYS1WTG4ya2R0OWlOdHlQMmRsaW5yUDdnRTJBOGZPXzI1Y1BnR1A3cFJ0Q2FoNFZMckpXMnFLMURmRFV0cG9mNmVWLUQ2RVBrUlk1SC16VDgweHlJNXdhUmlyOWxtMkNCUy1qVmZHd2t3SkRtbVV6eE84SjFDb2FJMG1pMzhZMDROajB6QUJ0QllhOEI0MkNmX1dZM2cwSDN3OFZZaFgzdU5waGs1UU4wZURhZFFqTC10YXFVaXRMeE9OSUJr0gHYAUFVX3lxTE1uZUp0NWw2YXpfb2hNX0c4SGJuUF9WVnV3akMzZUhSWUZyMTJPQzE1UEZRUTg4R1BGTUlRX3BZbFJUWlViUkpnSnVxRERWSG1ITHBDYVdjdXg4aXY5V0xhVGVkdzE2R09XRjhCaExSYUVjNy13c3JhTVE1NUdwcHMxT3VSZzZVc2xlTEw0Nm9TcEdjWnBFUC1pdE1FbUtGeHl1RG9WTU1WNTdSOHpTVjI5M0tTODBlNlFjc0ZaYmJOVklzWEZ4RFZBejN2T3U0ZGcxeWRHdkZHWA?oc=5) |
 | 'It was a bloodbath': 3 dead in mass shooting at Brooklyn hookah bar - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNVmJiWXFnUzI4NmVFQXM5NHhYa2RiTWxjczEtVm9aZ3psUFR2U1h6S1E2YkRCcnJxbmtEZGJWdmtMYUI0T2c1dk1tM1prM01PTDFSbzFVQ1JnNVFUaGFYMWpSU0pTVjBpX3NMaVFYeFJXX25sbUg1eHlyWVp5VUYyaDJsbjc?oc=5) |
-| Rubio says Russia-Ukraine ceasefire possible, but not close - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOLXAwQzhVMDdUeElneUJ6NGMtTzNDbTFmRUhFVDVva1hoN3VBdFVWeDNzbFJKN2RWSEpBbkJyVTd4ZjVJVjRLdWJIV2lteWhicGtsYzVLS0RzczRLcksyZ2RkZFR5UEhETWtTQk5Qb3VpSFhRX0RmWGZORERRQU5uMmJjQjZhLTBEYnRUaWUyalI2Rm5JWXBVRWxJS2ZHLUU3d21SdDgyVkNONlJnWlE?oc=5) |
 | Texas Democrats who fled the state to block GOP redistricting push begin returning - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1ZcnY2NjFYVXdIb0d2Yk8wOVBqdU8xeDJ1VVd1X1NFQWItVzdkRExLWGo5WXpBNTc4UnpnZ2t4cUFuWWo5Q1A4VWJIa1VLQjlBQ2tqajNRaVplQWstRTlxV0ItSW1OUHFjalkxandmRFlOQV9JWVVVUdIBfkFVX3lxTE45emVEbWR6UXhLT3pOZGhFVGx0RHdEVHJXbFpzTkczSWQweWFIZ21Qa1hhMzVtamt6RGdqOG9pWktRS0Npc2Y4MnVZWFVWQ0Fnc2U5d1hiSUN0SHBGRnR5RkNxNC1PTGttRVE4X0djb3E3N3RndDF1eHdjWTFMdw?oc=5) |
+| Rubio says Russia-Ukraine ceasefire possible, but not close - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOLXAwQzhVMDdUeElneUJ6NGMtTzNDbTFmRUhFVDVva1hoN3VBdFVWeDNzbFJKN2RWSEpBbkJyVTd4ZjVJVjRLdWJIV2lteWhicGtsYzVLS0RzczRLcksyZ2RkZFR5UEhETWtTQk5Qb3VpSFhRX0RmWGZORERRQU5uMmJjQjZhLTBEYnRUaWUyalI2Rm5JWXBVRWxJS2ZHLUU3d21SdDgyVkNONlJnWlE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
