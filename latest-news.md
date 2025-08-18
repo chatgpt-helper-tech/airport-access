@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 04:48:22（北京时间）**
+🕒 更新时间：**2025年08月19日 04:56:34（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | Key takeaways so far from Ukraine talks in Washington | [阅读全文](https://www.bbc.com/news/articles/c5yp4jggrj2o?at_medium=RSS&at_campaign=rss) |
 | Man guilty over gangland shooting that left girl, 9, with bullet lodged in brain | [阅读全文](https://www.bbc.com/news/articles/c939v7gejlpo?at_medium=RSS&at_campaign=rss) |
-| Hamas agrees to latest Gaza ceasefire proposal, source in group says | [阅读全文](https://www.bbc.com/news/articles/ckgjye15zdlo?at_medium=RSS&at_campaign=rss) |
+| Hamas source says group agrees to latest Gaza ceasefire proposal | [阅读全文](https://www.bbc.com/news/articles/ckgjye15zdlo?at_medium=RSS&at_campaign=rss) |
 | Spain and Portugal fires kill two more as Spanish troops battle blazes | [阅读全文](https://www.bbc.com/news/articles/cz60y7npl32o?at_medium=RSS&at_campaign=rss) |
 | BBC postpones Ozzy Osbourne documentary | [阅读全文](https://www.bbc.com/news/articles/cly41jzxxmpo?at_medium=RSS&at_campaign=rss) |
 | Will UK feel the effect of Hurricane Erin? | [阅读全文](https://www.bbc.com/weather/articles/cg7jy3jk2e4o?at_medium=RSS&at_campaign=rss) |
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump-Zelenskyy meeting live updates as leaders hold Ukraine talks at White House - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNSGgzMXRXSVVLbENzQ0FMZ1laejN0bDNOWFRzMWFGR1NRbzRjdGZzNDkzYVVZdVdxLUdvalFuSkM2Y21lWXJ2bHJUTGV5S3NxWjVmZ2tBMHYwLTVxUjFhNmNJai1hZzdsWkJfZkQ4TUdPbWFCZTA5VFJvYngyUF9qRUZfSjd6RjdN0gGOAUFVX3lxTE52LThkNXJ3MGhlMFRCYlFOVmE1bGpUZGVkR3cxaXcweFhudTAyYUdFUmRxWURTOXctN0RVX1JHbzUwblBWbWoyWG5TWWNjMXFLUXhPMFgwOUwweVBRVEQ3am1ULWNZZ0RONDFXcVNDZjRzQjdZNTE3WGdqY0xGU1kxeGhzMVlQWkFBd2FJdEE?oc=5) |
-| Hurricane Erin: No direct hit forecast on U.S., but flood risks prompt evacuations - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNVk52T2FzM3laWllxajNIcnI0aDlTVU9tek95WkYtZE5OTFdEclJlMVBVeEZ3RFd5VkhZWXpnZjNnU1pIT2pqdDRSOXkyVzBQazBVc1JDLUh1WUFxNzFTbGZfeVNodTRiV3luTGJlRXNHM1NYZndIWWVwc0sxQldSN2FieENsbV9LbGJPcUFSMFkxbG0zOTZZZzNGUjg?oc=5) |
+| Security guarantees a key focus as Trump meets with Zelenskyy and European leaders - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQNHEwNEZXTXRrMFdvRkp0M3VlNUoyeWlUMlJXVWJ0WFR0SjFQdVV0cWN3d2ZxUHUyV1RqbUdiMXNvNGhWZjF6VUZaTDdQSG5GTmtTVmZIcGVucEZFV2dFR0M0R2FmX0pzdXJFdnU3dDk2Q01FTUt6cDJ4UTVhQWFtV2dDdDl3UzdxRnlvS3dLR2NQZ1loNDJia3Vfdw?oc=5) |
+| Hurricane Erin back at Category 4, will bring dangerous surf to East Coast - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPMmZCaWhmRDRGU1lVX1RWR1kyS1Z6NDFjaGk0VHVRX3ZudnlQRVl6LVhjaXgwdU9KTXZpTnQtX2Y1X2dZU1RsVlZ3QWZkN0lFWS1lN1NoMk9PNTh3cGZJV2xFMFk5dzdsMU1HR1dfbGVRbW9kWXVZemJWZ1VpUWZvVXo1UHhWUTJEY21iTDRlRW91MkNuSXc?oc=5) |
 | Trump vows to end use of mail-in ballots ahead of 2026 midterm election - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxORk5MZl9EUmp6MkxRVm1kVHRMb3R4bWxUX2tsTE9ZeXloZHpQX3E3dXVadG5OSEE0aTNneWF4MUJxNV81RVBuMGxHbGlQczNtVkNDNVRkMHNiSjFnTTY2dy1oMTJWTkhtejNKZHJkU20xN3RFMDFnSnA2RWJkeWhqQzNiNmZLMGxKMTdFV0wzTG5lNDBYbDljYTJSMzVPeGRZN2FEQTNMWGdpczQ?oc=5) |
-| Texas Democrats End Walkout, Allowing Redrawn Map to Pass - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPMkhfa3NYeElrNzVMSXl2cGowNkdYQkVBV1RwSGxwLWlidENkQlNmLXZEN1MzTk5udThFdWowMVptUnVrMm5yNHNXMl9ZVndVVHdWRnhWV2pLNXJ4NmZYX1dVdlhlRVJpYjN1T0t1RllJRzVPTTRjX1V2bXdEODRGQ0Fn?oc=5) |
+| Versant to rename MSNBC, drop famed peacock logos in Comcast separation - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQNFlEUWIyUFpXS2dNaEUyZEpFckQtYnhWRXlVWVNfcHRxMkZnSm5WUWJZVGVMSkVBMHRXTDEtcXV0QmtMcWdnQ1A0NzAzaG5NbmlZTnBMUlA5Vnh6YVdtTkpkSnE1MUVQa1pYVXNEY0ZyYW5sOFhWOXFKcTBoSVZlUzFyWmRjd9IBiwFBVV95cUxPeVZDcGpoOExQcE9wQ091X210RVV0TWN5MVBybkRhQ0NPYlBYaEI4bV9ROUR1UG13WHJWZUF6aTUzTXJRZy1RUURoTXc1bktDS0VqYWdDcGlZUGxFU0hkYmtoWjNUeHRBMjR6VTRhVDNrb3BSWE5lRXBLNGpQV0poMXRsVFFJQVF3Q0Fj?oc=5) |
+| Texas Democrats return to state as GOP presses on with redistricting - Axios | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOSDkzLU5waUhMOG9MUWZFZ1RFOXd4ejFCVTI2QzNUZTRmeGI5Q3VXa3lhVHM2eTZnT0dMNkhPZGRjSkRBUV92aXBZSUZKeFFXM1pyOGw2NldxRW40WVZUN053Sjlvbll2U0E2eGdrd3RhSUtsR05ZUWI5WEtZczd2SHRNSzVCRzJ6ek5OZXJYTENyNjRlQl9RUkZqdlViVVdFaURkVA?oc=5) |
 | Why is Donbas region becoming a defining faultline in Ukraine talks? - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQM2hzalRZU2U4RGdRcWJUYVBYVUhVeVZ4eFZULW1LcENXVkxZeUllZ005MnVqeTY3UHlEUExkZkFfbjJGZW1qTHRRWENRbVIxVWU4WTNvVk1BcndiMnVqd1JPbnlXazB2a00tT0cydENuLVJJWHVOa09VMUgyc0F1bk1CSEx3M1ZYZHZNWjBEdC1lWjdHUFlBWWYtYWRuUjVfaXJuT2p1OVc?oc=5) |
-| Republican Bid to Help Trump Move Past Epstein Falls Flat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQSDlFQ1pVTU0tVU4zeV96bHRWbWxjMXo5WWN5X3hhS29rT2ZBYnRLakpHRktEWVB6MmNBeURHa0NqcmxXazI4SHV1Z093dDZHT0NSaXJldHFPNHM4U2NpMTEtaVZfVUJ0T0k3bGJ3dXJLS3FtMjEtY2haSjMzYlJnY0E4UQ?oc=5) |
-| Zelensky Suits Up for Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE45cnB1SUwzM2d6UDBkdXJ3WE15WnVoQjUweVA3YVR3X05DdUF6UWs5ZEtmS3FCMk1kcXZoTmpTTHlQWUFaUEhxdU1QNS1SVGRqbmlKWG9jUDNEbE9HcmgtY3hnSmllbENGdDN0LXVKTWV6cVNCV2tSWjR3?oc=5) |
 | Conservative network Newsmax agrees to pay $67M in defamation case over bogus 2020 election claims - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPSHVDUTNRb1NjMGFzLXNMSXp6aUNQSzRTVm4wRHVwczI1N1ZncmFRZkJ1SUQ3dnpMa2xQRkN2Z0YycUNtVGtIelI1eWZuMFptNXZDQnZMTmRORnRpdzRCMUxGandiZ1pjVXE5dnZyZzIyZ3hTZXQ3WWpsMEdWYUtOSHV4dXRJbXlucDNSYXdPcWwwWDJ3bzBjb21iajkzS0tFRDU0TU00RjY?oc=5) |
-| ‘Ketamine Queen’ accused of selling fatal dose to Matthew Perry agrees to plead guilty - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE5CSnRBZm8tdk9raWhhTTFsTmZOR29mX25JVWphU3hNYzdCNWJmRTBRSGlhMmdZWkxWWjZjR3NQQjlDMDZyVWo2bVc1Q1FUblc2RFluaHdJVWNKeG1VYmFmbW9VVFgydzdHOU1HNDFrdUZZOTc5TlHSAXtBVV95cUxOc0FnekE0QW1kWUF0TjJXTkNfR21GSFl2LTh6dk00cGJpN0VSY2hQSmtiRkV6UFlUeGZ3d3N5V3VEc0VxdjJ1cTFianU5UEFBNS1RZUpjYlAteGZ3ZHpvMWVLWTFXVlJGeEI3V19oNU9NRFFoXzdBVWNzUVE?oc=5) |
+| Zelensky Suits Up for Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE45cnB1SUwzM2d6UDBkdXJ3WE15WnVoQjUweVA3YVR3X05DdUF6UWs5ZEtmS3FCMk1kcXZoTmpTTHlQWUFaUEhxdU1QNS1SVGRqbmlKWG9jUDNEbE9HcmgtY3hnSmllbENGdDN0LXVKTWV6cVNCV2tSWjR3?oc=5) |
 | Pa. Treasurer Stacy Garrity launches GOP challenge to Josh Shapiro for governor - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQSUJWbG1Lb1NQblU3OXdtU2d2aUJFeS1wc0RpbWNHME54VGN1TnBqejFqWENUakRwdDJjM0ZNck5VSUVKT0xESzd0bWRyd1pvZTdSRGQ2YTByd2Rxczl0SEYydFNPUnJwdEFTSlhocm5OME1meElhZWItb1B4TEJJQU9BanpDdkFNNjl1cVBGNHQ1cTNxRVRtT2dSNFhNLW9LX0U5b09n?oc=5) |
+| 2 officers killed and a 3rd is wounded in a Utah shooting, authorities say - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOY1dzOG9Kemlpd3I5RnZISXgxS0hNcnZxRF9LcDBFQkdXdWFJRUZXSDlUZGlvRjZEWkZPWU8tM3ZpN3UyNEFwb1NzQnpjMTlFckpkVjA4QVhLOXJPdTVtSVl2Z2tLVzF3SUtZU0NPNUpFaTRka25ERU1jUS04U3hzUVpkUmxnOF8wTFN0bXRFQm1Vd2IxZ3ZZc1RyaUF4T3B0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
