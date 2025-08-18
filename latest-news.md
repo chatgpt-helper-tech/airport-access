@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月18日 10:41:10（北京时间）**
+🕒 更新时间：**2025年08月18日 10:49:27（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | National Guard says members patrolling D.C. 'may be armed' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPa1FEbHYyVE1nT1VfclpqN0txN01ONkNNTEJlb3FWZTZvcG01WVlMMWJRMUlsTWR2eGhPN2wyNEZmWHNJTUQ3bGxFZmFEdXA0Q1NYUVBLS2RaYV80N0ljWjNBYTFtNjljcmRaZlJmSjZmQlhoSmJYTmFUOW9sN1ZkOXJB?oc=5) |
 | Three killed, eight injured in shooting in crowded New York club amid record-low gun violence year - ABC15 Arizona | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNanlFejFpTG0xdnQ2Y2F4aDZMcDVjTUVPOW9CWWRYa3hGaHkteVl0Q0MzdUNmcnhoRHI4TE1seEpFYnh2US1KaFpJTlV5V0hUZ05TOXBqZXhEQnFPcUk2V3BWclNfbWF0VF9fMkI0VXYwaU0zb3JSaFg3YXdscUJBVS1HUkxtbFA5RVpoOHVtMnB3el9mVHl6dk45VF9tWnFXUGQ2eXVBY3RXTVhOallGdFlGWmNFaExvbVNURE95RzFxRFM0OHNaeXFqTGdFdw?oc=5) |
 | Trump Officials Hint at Possible Concessions by Putin - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNM0xBTXgzSl8yTWJqVUNzSDZ5NFdTQkdnTGJyT3J5c2JWLUU0dk8wc0JfZWs2Nl96R1AzWWxFMG9PbGZTMkJtR0Z2YV9pODByenA0MXdIeTVtMWd2OWJjMFdId3FvNFdKYkdUZ3cxNW1zLWs1QmVGRktTXzFVX0VaaGREd0xwbkhKd1hPREQ2bEk3NkdSSUE?oc=5) |
+| 'She’s been living off of us': New Orleans residents react to indictment of Mayor LaToya Cantrell - NOLA.com | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxQbkNLOUEyemhyR3BQc1dqX1RjSnlVVUNvOGF3blFXRmNvQ0lLOHg1RlZPNGdSZGduajFvWC1rQWMwVVBTZjkySkdvSDg5SnpzTWVPNGpYTXRaa0pTdDE4M2NvN2FaeHNXSUtQNnNVU2RMSUgyTHJKeEFFRWJGYUZsdzlQcENTNXRTRlYtemRTQVV0ZlBKTVJpNm9LX3E5RHJaWTdtOThQckZ5RXU2bEFLcW14UlZRVXNpMHp4eTVMMlVmTVZ0LTBKb2lRU1lJd9IB0wFBVV95cUxNUHJBYW5rUVNfa0ZxZnkxSHBTakRNTTU5bDBzcVl3MC04bDkyZ1U4NEkxcExCb3YyNlRTNmVyaU04dHpwcVI3LURwWVdGTHJadDlZQVhNV1hQVmh1b1YzOXdHZlplLU4xbjZnQXEtb1V4Qnc0U0xkMzIzbDZkRXhaWm1mUi12Q1Z4UHVBU1loajJiOVZIZjZOVVY3dl81SXM2Z0NsQVRhMFJXYWJBQXJWUmZJSEktRjIxeDZXaXRjbEtmdURYY0taeFNqYjU5NGh1Yzln?oc=5) |
 | Texas Democrats who fled the state to block GOP redistricting push begin returning - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1ZcnY2NjFYVXdIb0d2Yk8wOVBqdU8xeDJ1VVd1X1NFQWItVzdkRExLWGo5WXpBNTc4UnpnZ2t4cUFuWWo5Q1A4VWJIa1VLQjlBQ2tqajNRaVplQWstRTlxV0ItSW1OUHFjalkxandmRFlOQV9JWVVVUdIBfkFVX3lxTE45emVEbWR6UXhLT3pOZGhFVGx0RHdEVHJXbFpzTkczSWQweWFIZ21Qa1hhMzVtamt6RGdqOG9pWktRS0Npc2Y4MnVZWFVWQ0Fnc2U5d1hiSUN0SHBGRnR5RkNxNC1PTGttRVE4X0djb3E3N3RndDF1eHdjWTFMdw?oc=5) |
-| US suspends visas for Gazans after far-right influencer posts - yahoo.com | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPOW1rSjN2M0QxUmVDcThkZWF2dVU0ajB6a2FRR3lVNVlNQ3J2ekdhTEZETjJwWHA0YlFnSk01VzZSN29wUHhHTGdvaERWYXFiWm1JcU9rQ2txbTZDSnFZWUtlTXA4eVZwd3ExRzN5Uzg5WElkS0lZdmMxTXBmNkFRNUdlVklidw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
