@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 00:09:22（北京时间）**
+🕒 更新时间：**2025年08月19日 00:16:36（北京时间）**
 
 ---
 
@@ -8,24 +8,14 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| 'No-one was expecting this': European leaders rush to US to help Ukraine avoid capitulation | [阅读全文](https://www.bbc.com/news/articles/c9d0v8ljw3no?at_medium=RSS&at_campaign=rss) |
-| Man guilty over gangland shooting that left girl, 9, with bullet lodged in brain | [阅读全文](https://www.bbc.com/news/articles/c939v7gejlpo?at_medium=RSS&at_campaign=rss) |
-| Hamas agrees to latest Gaza ceasefire proposal, source in group says | [阅读全文](https://www.bbc.com/news/articles/ckgjye15zdlo?at_medium=RSS&at_campaign=rss) |
-| Will UK feel the effect of Hurricane Erin? | [阅读全文](https://www.bbc.com/weather/articles/cg7jy3jk2e4o?at_medium=RSS&at_campaign=rss) |
-| Love Island will not be investigated by Ofcom despite 14,000 complaints | [阅读全文](https://www.bbc.com/news/articles/cj4wlpvdzjyo?at_medium=RSS&at_campaign=rss) |
-| BBC witnesses Israeli settlers' attack on Palestinian farm in West Bank | [阅读全文](https://www.bbc.com/news/articles/cewy88jle0eo?at_medium=RSS&at_campaign=rss) |
-| Stadium ban for man bailed in Semenyo racism probe | [阅读全文](https://www.bbc.com/news/articles/clyvdp2n205o?at_medium=RSS&at_campaign=rss) |
-| Spain and Portugal fires kill two more as Spanish troops battle blazes | [阅读全文](https://www.bbc.com/news/articles/cz60y7npl32o?at_medium=RSS&at_campaign=rss) |
-| Soho House bought for £2bn as Ashton Kutcher joins board | [阅读全文](https://www.bbc.com/news/articles/ckgjy4d01jwo?at_medium=RSS&at_campaign=rss) |
-| Two told to expect jail over asylum hotel disorder | [阅读全文](https://www.bbc.com/news/articles/cg7jy3drd85o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump-Zelenskyy meeting live updates as leaders head to the White House for Ukraine talks - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNSGgzMXRXSVVLbENzQ0FMZ1laejN0bDNOWFRzMWFGR1NRbzRjdGZzNDkzYVVZdVdxLUdvalFuSkM2Y21lWXJ2bHJUTGV5S3NxWjVmZ2tBMHYwLTVxUjFhNmNJai1hZzdsWkJfZkQ4TUdPbWFCZTA5VFJvYngyUF9qRUZfSjd6RjdN0gGOAUFVX3lxTE52LThkNXJ3MGhlMFRCYlFOVmE1bGpUZGVkR3cxaXcweFhudTAyYUdFUmRxWURTOXctN0RVX1JHbzUwblBWbWoyWG5TWWNjMXFLUXhPMFgwOUwweVBRVEQ3am1ULWNZZ0RONDFXcVNDZjRzQjdZNTE3WGdqY0xGU1kxeGhzMVlQWkFBd2FJdEE?oc=5) |
-| Texas Democrats return to the state, ending two-week standoff over redistricting - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxNbC1WT3FjbDUwNWh6SnVaTjM3eTFuMkxjeGctYXFROWFWX2FIMzlOWDkxdllkT1QxY2piQVBkaEExS3lBVV91aVRFaVJxZmk4azRrTHdjSlRsZXRheDl1VEdacEpJbUJSWUhiVklNSlN3S29ocFdqUDFRVzdNMFZIVDd3UjBna1I1cHJmUlVmMnJza3ZOVHF6TkZWZEJpSDJjMUFPRzRvRGFPUXQ1OGluWW5TR2h2N0xPTTRsLS130gFWQVVfeXFMUHNtUl93eDg1WDJ0VDdEY0gtelVBQ3hwZTR0a3dLRVFPdF95eUtQMHdRZmJ0UllNZWhDNWQ1eFRjQVl4TlNrbm0wRjVpa0FRTURlQmZYMEE?oc=5) |
-| Trump says he will lead 'movement' to end mail-in voting - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOZ0dIa1BZVk1OZ2VHM0c0V3JlYTRNRk9McjRRb3B0MVd1X0R1SGtpTmpWWVFuWkFJbG9KZ2JEVlppR0RtRFE1QjZzVUJ1R1RuaVl3YklYNi1EQnk1VlFrUlhaQ052aHBwcU1TTWJaRHJuSWRTVlBfUHcxei1DVGFRTlpCc0NPUlpuZ2hiZllMUdIBlAFBVV95cUxQNXNmZ1JkNkpGOUh2MjlHU0FVd2l4SS1Sd0h2OW9vbU1mUXNBNlp0LUtqTWJJeldHUHZOb3ZMdVJZdkM1MlJ4UHFzRTJQSkNZTHM3emo3b2dvUHpsbWhwWmZCMk5KT0lSNEdQRmpGamVLa0lKNUllbm9TdWliblZsRmE1OWpweFZCU2FQTjZQUkVpdktL?oc=5) |
+| Texas Dems return to Capitol for Republicans' US House map overhaul as California Democrats counter - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQRnJLbjdMZ3k3VTFRSGhPOUlTNFZyZUtkS3NhcWlEY3N6Mno5WlQyQ3JRU2NNT2FQZ2hZdi00amhFWC03ZjlHNngwS2pReWRaVnVwaHhrQ2YxTmRacVp1R2V3aGhRV1lYOTdJX1M5dXNpdmVpS2VaTnN2aEIzRUVNQ3N2YV9ZcnlhN3JoUGlrcEFGZzRfLTVFWUFMYzJydw?oc=5) |
+| Trump vows to target mail-in ballots ahead of 2026 midterm election - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOSU56ajV6RG9xV3hwczhvOW5DR1lLQ0pYZ2NHaTY0VFowUzY4aGhiVWxrYl9hWTBjUXh4NThZanZycHdUY0U2SkxCLXNpZkdacFYxV19vTFg1Q29JcWlwM3AzRGtGWmkyaVJCeDlwT25qUXNRZEs5N2JUWUhHUldmWVRRZDlWamlHTHZXV1hkb0pSZDJwZjU2anItc0E2OWFzTUtiNzdpa2ZBZw?oc=5) |
 | Hurricane Erin back at Category 4, will bring dangerous surf to East Coast - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPMmZCaWhmRDRGU1lVX1RWR1kyS1Z6NDFjaGk0VHVRX3ZudnlQRVl6LVhjaXgwdU9KTXZpTnQtX2Y1X2dZU1RsVlZ3QWZkN0lFWS1lN1NoMk9PNTh3cGZJV2xFMFk5dzdsMU1HR1dfbGVRbW9kWXVZemJWZ1VpUWZvVXo1UHhWUTJEY21iTDRlRW91MkNuSXc?oc=5) |
 | Newsmax pays $67 million to settle defamation case linked to 2020 election coverage - NPR | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxOUHNiWjVfRm50U2F1SUxEWGtVc3NZWWZXbVdkM25UcUoyU0Fkdmd4R1JTQnRWODVidHpnNmRqelJadVBlb1VBaFNVdEQxOTNYcHhGbk93YnhHOXNBQ1U1QWNDUGxfNnRlbEdiRDJwLWE2Z2RrTGszV21SVmpDRXh6N1puUXB2Q05wbGdfMHcyTGRMNkhXdWZZQ0gzd2JobmEzUUk5Tmo5STVMRUpoa3I1UjFMMldPQWlhYjlBUzNfVkhTelI4emc?oc=5) |
 | Trump's D.C. 'crisis' enters 2nd week with more soldiers — and no exit strategy - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPSW9JZ3ZUb1ZTSEl6MFRzOUQ3SXN5b0JQRHJVVExLYzJSNnh1bDNIQ3VhanZmaVJOQ25Ja3duZmw1eWhPWF85ZVE4bmY0TG1MMmZKZnhiQlRZY2pkT1BIVnpMb1J0TFVHQlBOS2hUcVBwV01hNUd5TXdhbW9KekphMDgzcWF0cTN1WVZBcnh2Yw?oc=5) |
