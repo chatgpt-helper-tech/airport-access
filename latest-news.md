@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月18日 15:57:44（北京时间）**
+🕒 更新时间：**2025年08月18日 16:00:27（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Why Putin smiled broadly as he left his Alaska encounter with Trump - Lowy Institute | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPODJfR0FNOE1hODJ0bURVUDRjRjhtR3h6eFRQWGcxQ0hPQmRQRlVtdEQycVlGTFdSNHBXOENIWnRjeU83d0R3VzF3YlNuS1djYllDa2NYWEtDbE50d2llZURORGlHeWVQMzNQSHdxajlIaGZfZ2Nnd2owVC1QYjNIRWJkYjhJR1JLWnhnRkdpWmJWcTNPSjFGMFZyN0ZpODFDaXdRd193SkU?oc=5) |
 | What to know as GOP governors plan to send National Guard units to D.C. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPRm56Q1hxRFFvajdOcFpSOUp4OUZkeXpaOFVwU0R4R2lpejczV19GczZYeUJ5WVQwRGVBX0F6WjF0cHVnbE1wUDdta3dJVVRYM0MtRXkzbHBGdWFMbTRkd2VEZzQ3ZnJCVHg4cjJ3SGZWNHFiMk91bHpkWWhNbkJDQnV0WUFxalJMblc4M0YtNUc4YU5raXNkRDc0ZHlOank0YXc?oc=5) |
 | Hurricane Erin prompts evacuation orders along N.C. Outer Banks - Axios | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9OTW1UVzFaTjhKRnN6dXJ5MlJudzJnMjVheHEyLWdKMDRQUk9MYzl0MldMMWJRRzljUXE4azNSSXo5elVfcFNlYlg4RXRQSHpqR3FhY0pmOS0tQVJ0Q3dUVGJScEJucmtLRFFQYmVRdw?oc=5) |
-| Israelis Join Nationwide Rallies to Call for Release of Hostages - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNOXJ1bFBXaU5FSWZUUW5VQk5OYWZmd3dJT3owMnU2eFc0VU96N2R0bUl2Zms4MWVJZm8tN1E1SjZPTThWQzZqR1h2VFJxUFdzS3VzUWNhWEJ5NDczVnZ6WnVadUJaQm9FTkhJN3FWMjZMZVRzQlVjLVFEMXBQVU10Y1lHTlZXU3VQYUxadw?oc=5) |
 | 'It was a bloodbath': 3 dead in mass shooting at Brooklyn hookah bar - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNVmJiWXFnUzI4NmVFQXM5NHhYa2RiTWxjczEtVm9aZ3psUFR2U1h6S1E2YkRCcnJxbmtEZGJWdmtMYUI0T2c1dk1tM1prM01PTDFSbzFVQ1JnNVFUaGFYMWpSU0pTVjBpX3NMaVFYeFJXX25sbUg1eHlyWVp5VUYyaDJsbjc?oc=5) |
 | Texas Democrats who fled the state to block GOP redistricting push begin returning - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1ZcnY2NjFYVXdIb0d2Yk8wOVBqdU8xeDJ1VVd1X1NFQWItVzdkRExLWGo5WXpBNTc4UnpnZ2t4cUFuWWo5Q1A4VWJIa1VLQjlBQ2tqajNRaVplQWstRTlxV0ItSW1OUHFjalkxandmRFlOQV9JWVVVUdIBfkFVX3lxTE45emVEbWR6UXhLT3pOZGhFVGx0RHdEVHJXbFpzTkczSWQweWFIZ21Qa1hhMzVtamt6RGdqOG9pWktRS0Npc2Y4MnVZWFVWQ0Fnc2U5d1hiSUN0SHBGRnR5RkNxNC1PTGttRVE4X0djb3E3N3RndDF1eHdjWTFMdw?oc=5) |
 | Rubio says Russia-Ukraine ceasefire possible, but not close - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOLXAwQzhVMDdUeElneUJ6NGMtTzNDbTFmRUhFVDVva1hoN3VBdFVWeDNzbFJKN2RWSEpBbkJyVTd4ZjVJVjRLdWJIV2lteWhicGtsYzVLS0RzczRLcksyZ2RkZFR5UEhETWtTQk5Qb3VpSFhRX0RmWGZORERRQU5uMmJjQjZhLTBEYnRUaWUyalI2Rm5JWXBVRWxJS2ZHLUU3d21SdDgyVkNONlJnWlE?oc=5) |
 | 'Potentially life-threatening' flooding risk in Twin Cities, southern Minnesota - Bring Me The News | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPbGEwRlZETGZyX0dXMl9xeVcwdFByUG11Q2lVU1M1aDVKWDYyaGtqQm93eUpIa0l2eFBYcThHTEZKelRSTDdpamZGaXE4Wm1EVnFoUjFWcC1ya2dzMVZrZWFhdkdNVUJKOTJBSlcyazZTVnBYTUdrVUJBX2FrcWJvU1V3Z2xEYm54N253T3NYR2pYYS1pajBwQlVjdHRTT3NqODNMUjJWR1hwb3FIdjEtdkdFRkxkVnFvc0Q1R3N3?oc=5) |
+| Louisiana Has a Long History of Political Corruption - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOOXVVZnVIMC1JMVB3SVphbVNqRkRPQTVqX0pfQ01nZkM3OWNEQkg2UHNxVTlrYWZCTTRUVTlrczR2NmR1VHp3R0xwS1FqME9XX05EQk1UakFTbTJ0QnNoUUZENUIyMHU2TnEtSDdNXzdrMWRUV2ctZEVaNFVUNWVNV05HNVh5dGRv?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
