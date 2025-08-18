@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月18日 20:08:19（北京时间）**
+🕒 更新时间：**2025年08月18日 20:17:07（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | Whirlwind day of White House talks could reshape Ukraine's future | [阅读全文](https://www.bbc.com/news/articles/ckglxlx5vldo?at_medium=RSS&at_campaign=rss) |
 | BBC witnesses Israeli settlers' attack on Palestinian farm in West Bank | [阅读全文](https://www.bbc.com/news/articles/cewy88jle0eo?at_medium=RSS&at_campaign=rss) |
-| Man guilty over gangland shooting that left girl, 9, with life-changing injuries | [阅读全文](https://www.bbc.com/news/articles/c939v7gejlpo?at_medium=RSS&at_campaign=rss) |
+| Man guilty over gangland shooting that left girl, 9, with bullet lodged in brain | [阅读全文](https://www.bbc.com/news/articles/c939v7gejlpo?at_medium=RSS&at_campaign=rss) |
 | I saw a kaleidoscopic light before going blind, says survivor of Laos methanol poisoning | [阅读全文](https://www.bbc.com/news/articles/czd0qlmjl05o?at_medium=RSS&at_campaign=rss) |
 | 'I'm such a feminist, but Bond has to be a guy,' says Dame Helen Mirren | [阅读全文](https://www.bbc.com/news/articles/c1jnen9zklpo?at_medium=RSS&at_campaign=rss) |
 | First group of Gaza children to be brought to UK 'in coming weeks' | [阅读全文](https://www.bbc.com/news/articles/c30z17376ego?at_medium=RSS&at_campaign=rss) |
@@ -23,16 +23,6 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump says Zelenskyy can end Russia war 'almost immediately' before White House meet - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOaTV2bXRuTDRfM1BZckNsWVhpT3VOTlNySXB3aGhiVFZRazRaczJ0WjJ6TUtlR1F5TGNGdS16eDNnZjBEWU03ZUd2bjBnX25TWnI3Z2FIR01UZ0tfYXd2Zi1kQmszV0FwYVBXUEFKYmhRbHpiRVhiYnloTHZ6aFZDVnhKY1d6VGdDa1RiX192MlhtTmExRktmWTlMWGFyOV9UMEZfeXVHb3FxX1V4Mi1F0gG0AUFVX3lxTE12cTlmandJWDB4MFZHYklPSHlMVEpFWm9Wbm5IX2hzU3pVUVJPc2oyTVNLSGtjVjVqak5kOEZGRm1YLUhNZF9XM3RTWFhMY0l0bmd6a3hpSVpqZXhTak5WMWVCQnFFc2NBSnpISXZHR2ZMX2RMZnpPWnp2a3dYbEZXM3RHeDBsVDFPOGhSdnNjNUxTQ2xudkh6MVlYZXhoYkpkVkNNbTljQkN2NHF5WDBFWmtBdQ?oc=5) |
-| Hurricane Erin to churn up life-threatening surf and rip currents along US East Coast and Bermuda - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPZVRpbW5idzBHR0xUZ3Rhb2g1VWVwSWFaSExVN2FSOG1qUG9nRllseVhxaklNZ1RqYUxaVWVGTVc5OTBVWjJTZGRZVVpjZ2xrR25OTU5FMzJZSjdseHBIQWZNdURhSC1nVmgxNUplNWZmVHFEMDlrZVRXQjRiS1hDd2ZIckh6RE95N0JWR3RQZ3pKa051Unc?oc=5) |
-| Why Putin smiled broadly as he left his Alaska encounter with Trump - Lowy Institute | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPODJfR0FNOE1hODJ0bURVUDRjRjhtR3h6eFRQWGcxQ0hPQmRQRlVtdEQycVlGTFdSNHBXOENIWnRjeU83d0R3VzF3YlNuS1djYllDa2NYWEtDbE50d2llZURORGlHeWVQMzNQSHdxajlIaGZfZ2Nnd2owVC1QYjNIRWJkYjhJR1JLWnhnRkdpWmJWcTNPSjFGMFZyN0ZpODFDaXdRd193SkU?oc=5) |
-| What to know as GOP governors plan to send National Guard units to D.C. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPRm56Q1hxRFFvajdOcFpSOUp4OUZkeXpaOFVwU0R4R2lpejczV19GczZYeUJ5WVQwRGVBX0F6WjF0cHVnbE1wUDdta3dJVVRYM0MtRXkzbHBGdWFMbTRkd2VEZzQ3ZnJCVHg4cjJ3SGZWNHFiMk91bHpkWWhNbkJDQnV0WUFxalJMblc4M0YtNUc4YU5raXNkRDc0ZHlOank0YXc?oc=5) |
-| Hundreds of thousands demonstrate in Tel Aviv at end of nationwide day of hostage protests - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxObHdvOU8yX2x3X1FEMzBGVjgwZmVacHpFeFpaMTBzR21kQWJtQmpiR0tnTDFHZVBWcDBySXd6SjBjUGFfdUZoRVoyQWI4bmlPNHQ3a3dUZmk4RFFHa1pLQmhzVDVGZ0JKQUpfWjlsWHhZbzN2U25CWjZlVGk5VllMeDEySzRKMEhHalhrUG1EdHhTZjU1VE1uWDJ0clRBRUFJZm9ISkxwWWpMQnRVVGdXRjVhcE9jQnlpX1Rqb05R0gHDAUFVX3lxTFBTRVpXZlEwam1fbEJhUUFMU2dFQ0lyenFMalpONlpZTHdrdU5fVnNpUDFrbFo1QVVvQ0ltbXJsNDFhNzY5MVRQTDdsU29fS0dXLXFuQjJYRDdPeko1XzZRWXVIRWdGMXNvRlEyc3dmbVFMS3RyMjVaZTVmb3VXaUgtNGhFdk9uU0VjbnhVNXowTWQ0Nlk5b1V6TTNzSEx3N2lpemcyTUpDNWQzT2VJU0ZmZ1Izd2R5d3BjNE5KRXN5NVY4TQ?oc=5) |
-| Cloudbursts are causing chaos in parts of India and Pakistan. Here’s what they are - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNT3ljejdwdzNISHlaZ1liZGttQUxYNzlZSlFyOTRsRlViTzEyblBhSndvdHhnWGNYWWJQWWFGWk1FMjRpeG03dEZZcUxROU5CZm9xNU9tcXcxbElwbUFMak9JUG52M1M3NkVBTjEtY2xhR3hXY3RhRU9Ick9kWFhTTnJrMTduY2MyYm15OWMzWnNPVlBEbkxiQ2FCU0dobG03ZEJobHNXeW1uNkRmUGxr?oc=5) |
-| 'It was a bloodbath': 3 dead in mass shooting at Brooklyn hookah bar - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNVmJiWXFnUzI4NmVFQXM5NHhYa2RiTWxjczEtVm9aZ3psUFR2U1h6S1E2YkRCcnJxbmtEZGJWdmtMYUI0T2c1dk1tM1prM01PTDFSbzFVQ1JnNVFUaGFYMWpSU0pTVjBpX3NMaVFYeFJXX25sbUg1eHlyWVp5VUYyaDJsbjc?oc=5) |
-| The unusual GOP alliance pushing earmarks in this fall’s funding fight - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPQzBySTZKVjJmSnd6eEkwTVFuWE1CeUt4NUk4N3g5TTlJc0NnaElfek0xRzBrNWt1aUl3SUNWay0zV09ibVJSaVY3MmxuWjRVWFU2RWNOaGNFMHdSSTlkWXphR2l2RExRYmVxc2lqWXNlSDBCZHF6NDNjSmltLVBpWUhqeDJ1VzVBNnE0WlVXVzN4b0hm?oc=5) |
-| Ohio Democrat Sherrod Brown makes it official. He'll vie to unseat Trump-backed Sen. Jon Husted - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQV0dFZjNKYVl0T1dlSmJoMlpxRUc0R0E2VjUtQ3dJc0U4Q2pRTHVPcHJtMXd4RjRDMzVVQmdsbnpDZ3p6clR0dlpOZVJMNkR6bVlSaVA4Zk4wVS1kbENvQ29MNlUzRG9XYUpfajgxMHlfSVRlRVRIV1hBWFRfZlBSLXBLQmlSeFZzRC1kSG5kd0tzbnRXVmFGaFVYbi1QS2dRRkhVcUFmOXo?oc=5) |
-| Putin agreed to let U.S., Europe offer NATO-style protections for Ukraine, Trump envoy says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPYTZWVlpHOUpoRHdhbms0VFZoX0hGREx2c0xUNkpOakpZREZSc0VnZ0tBYjYtZE9sVDFPYzJqUzNDalc0eFlBZUFuMWJnc3hjek8zNVRnVERhSHhuMDQ1U29LUzF0d0hlS0gyVE5aMjdBVy1DRDZVdnV1NzBtdDV5NlpqQ1lDbE9NRk5Z0gGQAUFVX3lxTE5aYXNwcjNnVXBRSFdsUkN4Z3BHTXhiWDk3aHJldEJQTFlpaTNxQUJCUF9iZnVmc0otSXlPT2hoY2NQNURiblpnV1VPbXNaXy0zbm9TNE1ueUtRZmp0bktWSWZVSXlLaDhtOEI2X0NyX1pDMXZUaFBHVThXQVNiRG5TSkpKMF9LbUtQekVoNXViUw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
