@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月18日 14:16:43（北京时间）**
+🕒 更新时间：**2025年08月18日 14:25:14（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What Zelensky's saying ahead of key Trump summit on Ukraine, Russia - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPUkN1dU14akVZakljcHNYNTA5d09vUDE2M0RDSGUzN3hkYW50RTY5VnJZdVVOZ2NfNEdCUk5aVE9EWGVubE53R2FTN1pQZ1R1dFJWa09jZDNBNDZmdlJtS0NGNHl6OU5JX1phbFZhQk51VDNha1plSHdDUGxNWVpCRUpnazhQR1RycGRVdVlPVQ?oc=5) |
+| Zelensky responds to Trump comments: "Russia must end" war it started ahead of key talks - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPUkN1dU14akVZakljcHNYNTA5d09vUDE2M0RDSGUzN3hkYW50RTY5VnJZdVVOZ2NfNEdCUk5aVE9EWGVubE53R2FTN1pQZ1R1dFJWa09jZDNBNDZmdlJtS0NGNHl6OU5JX1phbFZhQk51VDNha1plSHdDUGxNWVpCRUpnazhQR1RycGRVdVlPVQ?oc=5) |
 | Trump and Putin Find Common Ground on One Issue: Biden - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOWnM2TjVDMHBORTJmNHZIVloyTUViQURhSlVKZl9oUGZsZk1SOFpPU0xrMlJkNkZmVjVKelFpdVBrYWgxQUlEQk1RaUNFWENGVVdhdGpVTVdSYVVBZDJSaUxRc1VKZFNBbEpSeHRKeEJqWkh6Ujl5RVJZa1JNYml4NjZnVnZBS1BuN0c0?oc=5) |
 | Trump news at a glance: DC crackdown expands with national guard to be deployed by three more states - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOOGRSRXp4UFZ1ZmlNVG1xa2VRZDFpU2gyMm5GRU4tVXI1cVdZU01wdzJxcmJCdXAzY0YtTzJtODBRLVVRSDhEWlJ1MEtka3ZibWFXSGZRelJuTUpXaDhLaTRBVFA1UVhqUzFocEJGSEp5c0UxeXYyRmNROVN5OVNKUjZEUmxrQkNGSzNJZTBRa1NINUFoakhKYXAweFA0UQ?oc=5) |
 | Trump pressures Zelenskyy ahead of high-stakes meeting - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxONERKUnc0SkQzdmhTaGVjczRMdWpfM3MzLUs5SzNRUUlHUHBMQ1BtQ0p1NHdHMTBlM3plUFpDZVFVbEVJUnV4aFVpbnhqY19zeEVjOE92TmxqUi1WTjVPTk85a0RhaU9WOTR6WFEwWWdEMEEyanNVMmZkQnZaUDRMTGNYMEplWVVEaTIxd3RVRFlySTl0MmpVOC1n?oc=5) |
