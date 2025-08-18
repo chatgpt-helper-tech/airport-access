@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月18日 12:56:33（北京时间）**
+🕒 更新时间：**2025年08月18日 13:01:27（北京时间）**
 
 ---
 
@@ -26,8 +26,8 @@
 | Zelensky Brings Backup to the White House as Trump Aligns More Closely With Putin - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQOVIxUmhHWGl0dm5RalpSRTZzSWhJeHJsQkltMXh5YnNYMFB6UXJSSTJPcHlXRGtlQ05QT1lDazZ0Uk9COFJTZk9OYjNxYm5NVF95TWVzR0tSelctbzllN1M3NlppQ1RPNzdfLVBVZDAtd1NRZmhtMU5aZDQzb2ttcW1Xa1dUdw?oc=5) |
 | Trump news at a glance: DC crackdown expands with national guard to be deployed by three more states - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOOGRSRXp4UFZ1ZmlNVG1xa2VRZDFpU2gyMm5GRU4tVXI1cVdZU01wdzJxcmJCdXAzY0YtTzJtODBRLVVRSDhEWlJ1MEtka3ZibWFXSGZRelJuTUpXaDhLaTRBVFA1UVhqUzFocEJGSEp5c0UxeXYyRmNROVN5OVNKUjZEUmxrQkNGSzNJZTBRa1NINUFoakhKYXAweFA0UQ?oc=5) |
 | SUNDAY SHOWS: President Trump’s Pursuit of Peace - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOYjVQYkxJUWFwOTRDeV9vZXVjRU9KcmdvMVplZW9udDVRODJ1c0xJbk9nUkFwVnFGMHU1TzZLcERtdG1ySWxPX2cxRTVfd05MTkNQNWZRZ0JaTlg0bURlVHV6TVFiR2toY2sxUmhTTGp5dDNRWFhtbU9FMjhJY1JXZ0hzVEJpMlFHdmxRa1VMbUt4UVBtMHc?oc=5) |
-| Rubio says peace agreement "a long ways off" after Putin summit - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE95RC1fTFQ0UFNUbVBEZG02Q3lzR2VSR2ExaG9DRnFIUWZPeHdFdzg5VXdDTHFWSnVOc0Y3VHp1bGFzS0hWcTZ4TWVQQ3I2Vk1BamUyMTRPd24xTkNKd08ybnZkS181ZEZFRkh1NWYwQUZQWkdr?oc=5) |
 | Hamas rejects Israel's Gaza relocation plan - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOZzlUaFB6d1RiRXU4YWwzd05aY2xYdW8wUzZ6dmQtZVM3Rm5nUTN5TVRpQUs0SnhaLTk3VDhBVDB4Y3JGeEpkRDd3VkotRU1qVzI2ZmxRdU95dU5XNlZNeE1EeHJ4a1AyZFhPZ1VHUEZUYUVleTF0Um9IVkw0dHFhdnlCNEZndnNqakt6aE5fbzJnY3V3cm9rNEZMemk?oc=5) |
+| Rubio says peace agreement "a long ways off" after Putin summit - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE95RC1fTFQ0UFNUbVBEZG02Q3lzR2VSR2ExaG9DRnFIUWZPeHdFdzg5VXdDTHFWSnVOc0Y3VHp1bGFzS0hWcTZ4TWVQQ3I2Vk1BamUyMTRPd24xTkNKd08ybnZkS181ZEZFRkh1NWYwQUZQWkdr?oc=5) |
 | 'It was a bloodbath': 3 dead in mass shooting at Brooklyn hookah bar - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNVmJiWXFnUzI4NmVFQXM5NHhYa2RiTWxjczEtVm9aZ3psUFR2U1h6S1E2YkRCcnJxbmtEZGJWdmtMYUI0T2c1dk1tM1prM01PTDFSbzFVQ1JnNVFUaGFYMWpSU0pTVjBpX3NMaVFYeFJXX25sbUg1eHlyWVp5VUYyaDJsbjc?oc=5) |
 | Trump Officials Hint at Possible Concessions by Putin - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNM0xBTXgzSl8yTWJqVUNzSDZ5NFdTQkdnTGJyT3J5c2JWLUU0dk8wc0JfZWs2Nl96R1AzWWxFMG9PbGZTMkJtR0Z2YV9pODByenA0MXdIeTVtMWd2OWJjMFdId3FvNFdKYkdUZ3cxNW1zLWs1QmVGRktTXzFVX0VaaGREd0xwbkhKd1hPREQ2bEk3NkdSSUE?oc=5) |
 | Texas Democrats who fled the state to block GOP redistricting push begin returning - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1ZcnY2NjFYVXdIb0d2Yk8wOVBqdU8xeDJ1VVd1X1NFQWItVzdkRExLWGo5WXpBNTc4UnpnZ2t4cUFuWWo5Q1A4VWJIa1VLQjlBQ2tqajNRaVplQWstRTlxV0ItSW1OUHFjalkxandmRFlOQV9JWVVVUdIBfkFVX3lxTE45emVEbWR6UXhLT3pOZGhFVGx0RHdEVHJXbFpzTkczSWQweWFIZ21Qa1hhMzVtamt6RGdqOG9pWktRS0Npc2Y4MnVZWFVWQ0Fnc2U5d1hiSUN0SHBGRnR5RkNxNC1PTGttRVE4X0djb3E3N3RndDF1eHdjWTFMdw?oc=5) |
