@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月18日 22:57:32（北京时间）**
+🕒 更新时间：**2025年08月18日 23:00:09（北京时间）**
 
 ---
 
@@ -11,9 +11,9 @@
 | What each side wants from crunch talks in Washington | [阅读全文](https://www.bbc.com/news/articles/cy4dq2yve5lo?at_medium=RSS&at_campaign=rss) |
 | BBC witnesses Israeli settlers' attack on Palestinian farm in West Bank | [阅读全文](https://www.bbc.com/news/articles/cewy88jle0eo?at_medium=RSS&at_campaign=rss) |
 | Man guilty over gangland shooting that left girl, 9, with bullet lodged in brain | [阅读全文](https://www.bbc.com/news/articles/c939v7gejlpo?at_medium=RSS&at_campaign=rss) |
-| I saw a kaleidoscopic light before going blind, says survivor of Laos methanol poisoning | [阅读全文](https://www.bbc.com/news/articles/czd0qlmjl05o?at_medium=RSS&at_campaign=rss) |
 | Will UK feel the effect of Hurricane Erin? | [阅读全文](https://www.bbc.com/weather/articles/cg7jy3jk2e4o?at_medium=RSS&at_campaign=rss) |
 | Love Island will not be investigated by Ofcom despite 14,000 complaints | [阅读全文](https://www.bbc.com/news/articles/cj4wlpvdzjyo?at_medium=RSS&at_campaign=rss) |
+| I saw a kaleidoscopic light before going blind, says survivor of Laos methanol poisoning | [阅读全文](https://www.bbc.com/news/articles/czd0qlmjl05o?at_medium=RSS&at_campaign=rss) |
 | Stadium ban for man bailed in Semenyo racism probe | [阅读全文](https://www.bbc.com/news/articles/clyvdp2n205o?at_medium=RSS&at_campaign=rss) |
 | Spain and Portugal fires kill two more as Spanish troops battle blazes | [阅读全文](https://www.bbc.com/news/articles/cz60y7npl32o?at_medium=RSS&at_campaign=rss) |
 | First group of Gaza children to be brought to UK 'in coming weeks' | [阅读全文](https://www.bbc.com/news/articles/c30z17376ego?at_medium=RSS&at_campaign=rss) |
@@ -29,10 +29,10 @@
 | Trump vows to target mail-in ballots ahead of midterm election - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQUUJhb0hGQ0Znajd4RG5uMEw1SkNSaXBVb0tRVEJDeTNHYmlrZFpLekxON1VFaG5lLS03R19ZLXFlMkJsd0REMWlibUFpZnhfRVNCTjhXMG8wUGwxc2lLcWp1V0dVX09hcXBTSTVHNXVrX1NnYk5rZWVaT29JbXgxRGFGRXpoNVM3MWVhdGVROHdDTmNsZ3cxa1NoTlFTSW5KRE9B?oc=5) |
 | Hurricane Erin back at Category 4, will bring dangerous surf to East Coast - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPMmZCaWhmRDRGU1lVX1RWR1kyS1Z6NDFjaGk0VHVRX3ZudnlQRVl6LVhjaXgwdU9KTXZpTnQtX2Y1X2dZU1RsVlZ3QWZkN0lFWS1lN1NoMk9PNTh3cGZJV2xFMFk5dzdsMU1HR1dfbGVRbW9kWXVZemJWZ1VpUWZvVXo1UHhWUTJEY21iTDRlRW91MkNuSXc?oc=5) |
 | Trump's D.C. 'crisis' enters 2nd week with more soldiers — and no exit strategy - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPSW9JZ3ZUb1ZTSEl6MFRzOUQ3SXN5b0JQRHJVVExLYzJSNnh1bDNIQ3VhanZmaVJOQ25Ja3duZmw1eWhPWF85ZVE4bmY0TG1MMmZKZnhiQlRZY2pkT1BIVnpMb1J0TFVHQlBOS2hUcVBwV01hNUd5TXdhbW9KekphMDgzcWF0cTN1WVZBcnh2Yw?oc=5) |
+| Zelensky Calls for ‘Lasting’ Peace in Ukraine Ahead of Trump Meeting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOR3hGR2VTVkc0ZXpSRkRDWmJDYUJmQWV4M1ZfSkpBcWFYajhxbHJLajdFakJfYldTUl9KTGFNV0lFLXZBN2F0RkhPaS02Q1o1SzF2VHJwMXlzV3o5c3dQVk1iVVlSNWExZUpRcVVZZnpqOEQ0UnU5QkFoYVIwZjR4RzJLaXRvMjJ1?oc=5) |
 | Republican Stacy Garrity Announces Bid to Challenge Josh Shapiro in Pennsylvania - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPbHdQQ0pJRUdaUkNRUnQ2Q2EydjlvaXAwYkVSMXlad2VDRDdOMHZzT3duMXAxM3ZDSE9qajl2NEF2QWRvTTdkUFZvRjRRbzBYOTNZa1JGRmV5X0tYcFFPVjVQaXk3a1U0YTh0aF9KdUJKNU5XS01pNE41R3R5dWV3cU12YXgwcUY3Y1MweURRQmxJU0dzbGJUVE1yVzk0YXlCNHZXTA?oc=5) |
 | Former Sen. Sherrod Brown kicks off his bid for Vance's old Senate seat in Ohio - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQenJvNHJLY2thNG1aNVZrMnEzUmhhanhVSXZQTDZnb2cxWGhMY29MSjlZbGltQnlyT2hUY1NhUnd4RWxzLTRIdXRYWlFGU0I0Nll4NThOdDVrUDJCSzFFWFpSRmRtQlJ1T3lRQnZScGtoT0IzQUtJeVBfcmM5aDZadWl2MFNlbkZvS0xPbDBIMHh6d2toN0N1MkpXbGpSOXBpUUpiMElDYnROZkc0cU5r0gFWQVVfeXFMTkVMSTFZVjR5VksyTFpKRzkxczA0Z2hWVzBJZEo3eHNjQ2ZCcVNZQjJuYVN0UkE1UWZBUDJCb1V5TmI5c2ltVGlGNmxtSEpkb29kLUIzSXc?oc=5) |
 | Inside the DNC's money problems - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOWENZcGFNYWRNQXFwS1NMSFFYODZKbWJ6OUpfazJNX1VuOHZJTzRvaDl4cXR5dTNFeWNYcVE4VFFMVzVOamdwZ1dwZHV2bXJLUGJCc21LcGRBdUxIbHU2QXg0Mml1emJOUmt4bzloZkgwNXRHeHVZbHBseF9nYnZqMm8ycTNyYnZJNXQzTlUyMzJCM0U?oc=5) |
-| Air Canada suspends profit forecast as striking union defies back-to-work order - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxQcS1vMUd3Y3FkaXBMVE1jNTBzQ01SRmpkRUM5ZkdZc1ZQZU9XeGI1VGtuRGFhbUh6QjNjYjRhVjZnZWVXYnFRS1l6WnpiUVgtc3FzMlNHYmRvWExrVEozUHl3ajVqRExhMzZqRUljM1ZRaEVlU0VDa25BSldEVDczbjVneHZOeEJEZExaa29sanlIbXl2SkxRUUQtVVNYM3l4TVlsVTJ1bGt2bDRNektPZHd3d2xpOFFuR0hWdjZ6RW01ZEk4X2tNUGVuMHhDazZQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
