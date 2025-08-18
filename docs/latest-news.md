@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月18日 09:02:09（北京时间）**
+🕒 更新时间：**2025年08月18日 09:09:22（北京时间）**
 
 ---
 
@@ -8,16 +8,6 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Zelensky and allies head to White House for Ukraine talks | [阅读全文](https://www.bbc.com/news/articles/cm21j1ve817o?at_medium=RSS&at_campaign=rss) |
-| Frank Gardner: Talks could prove more vital for Kyiv's future than Trump-Putin summit | [阅读全文](https://www.bbc.com/news/articles/ckglxlx5vldo?at_medium=RSS&at_campaign=rss) |
-| Huge crowds gather in Israel calling for hostage deal and end to Gaza war | [阅读全文](https://www.bbc.com/news/articles/ce93y2dxlg4o?at_medium=RSS&at_campaign=rss) |
-| Terence Stamp: 1960s icon who was the 'master of the brooding silence' | [阅读全文](https://www.bbc.com/news/articles/cnkk4e8xqjwo?at_medium=RSS&at_campaign=rss) |
-| 'Skibidi' and 'tradwife' among words added to Cambridge Dictionary | [阅读全文](https://www.bbc.com/news/articles/ce93ygv4zzlo?at_medium=RSS&at_campaign=rss) |
-| Novelist Sally Rooney says she will support Palestine Action despite ban | [阅读全文](https://www.bbc.com/news/articles/cp94jz0y7ygo?at_medium=RSS&at_campaign=rss) |
-| The Green Party is at a crossroads. Is it time they get angry? | [阅读全文](https://www.bbc.com/news/articles/cm2kzrr4375o?at_medium=RSS&at_campaign=rss) |
-| Police investigating Strictly 'drug use' claims | [阅读全文](https://www.bbc.com/news/articles/cx2px5r90x4o?at_medium=RSS&at_campaign=rss) |
-| Trump posted a photo of me sitting by my tent - then a bulldozer arrived | [阅读全文](https://www.bbc.com/news/articles/cx2x39d2jxvo?at_medium=RSS&at_campaign=rss) |
-| Watch: Plane makes emergency landing on Australian golf course | [阅读全文](https://www.bbc.com/news/videos/cp892124ndqo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,7 +20,7 @@
 | Protests explode across Israel amid growing frustration over the war in Gaza - PBS | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOMzlBNEJNaXdDdURVeHJwRWZGYnBTcXZSU2FabDZJek5DNU5GaFI0Mmp5LUh2M3lQWXZrR2VPdW8tWE1QWkVKeUtMRFhrbzVENy1ja3JhVEdpWGdRTUlUc1hiX01CYkVtQVNBV2M3Y2VlVkJaMWtLS3FzNlcxN2FmdjAwOEFqZ04tTWRkYWIwX0swR0w3S3k2Yl9qVDNXVzd2SXJuSGxKblpGclJqSHZnddIBtgFBVV95cUxNN3p4eEktNi03MXlvRlZzYk9wTzJBeXVFeWd3aU1tU19od08zRkxscWFUdS1Yb1U5VHRIbHdNay1ONnJTNHVwdU8zV0t6aVpJd2FXR0xIWkllZGhxWVZfYUYtSUxaN0V1a0JDczFHWG5SbGh4dHlOa3RhOVAxTHM4THpDQ3doaHhYWFVGeE94ZzlYNXMycnl6bllQV2I0WUI4RUszSGpqWXNKZVE4M0hwa2JGSXpkUQ?oc=5) |
 | National Guard says members patrolling D.C. 'may be armed' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPa1FEbHYyVE1nT1VfclpqN0txN01ONkNNTEJlb3FWZTZvcG01WVlMMWJRMUlsTWR2eGhPN2wyNEZmWHNJTUQ3bGxFZmFEdXA0Q1NYUVBLS2RaYV80N0ljWjNBYTFtNjljcmRaZlJmSjZmQlhoSmJYTmFUOW9sN1ZkOXJB?oc=5) |
 | Multiple shooters wanted after 3 killed, 9 wounded at Brooklyn lounge, NYPD says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNX3FLYXliRW95emszbnVrNUhRek9EM1NGSHJnM0ZUUEVrN2hDaDd3b2VlSHRjY0VEUmppc25DUEt4Qy0zZ29ZMTJGQlhQbFE5UDdxV0lKNXhTTUNjNHBiSnNnQmNxdF9GdjJ1bjZoZ21veUJ2b29SU0ZuSFRhUTBXS1BhQUg?oc=5) |
-| Trump Officials Hint at Possible Concessions by Putin - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNM0xBTXgzSl8yTWJqVUNzSDZ5NFdTQkdnTGJyT3J5c2JWLUU0dk8wc0JfZWs2Nl96R1AzWWxFMG9PbGZTMkJtR0Z2YV9pODByenA0MXdIeTVtMWd2OWJjMFdId3FvNFdKYkdUZ3cxNW1zLWs1QmVGRktTXzFVX0VaaGREd0xwbkhKd1hPREQ2bEk3NkdSSUE?oc=5) |
+| Putin agreed to let U.S., Europe offer Ukraine NATO-like security protections, Trump envoy says - PBS | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxNZWlsVjFhYjFQWXUzb3R1eDVDSE5aTV9zYzZqUGd3SnR1VFBlUU5lN0RnT05obURyQ3FfalZaXzhvSGNsZHpzS255SV9sTXNucm83ajU5UUtwVUk2QVFWQjlSOHktUEtfRW1zVnNmVFJOTGluQVJDRHgzNUJzdmJRd0dCd2cycUZWbGdFb1F5bVR1R1oyakZWNWdOUlI2NXRpbWsyNVAtUlNXaVRLNmszUTF1RHNzLWlFR0RwZWdSSVF1d2NhZ1HSAcsBQVVfeXFMT2xkOWlkNzdaN0VURy1pNU5vckdTZ3ZfUEo4c3UtMEgtMHJWQXlFbnctYlY1bzZKWkpRMF8zN1g3Q0FtY05sQTdIbkRsUXV4ZV9odVg0MzhDcGVueGc0VVA5VXdzNmswX3dzV3EydlJtTVN0UjZPN1ozYzVlT0xneFZaQ081V3FwQXFXekxaOFRsMVhZTmZ0dGdaLVVzSnNKZDBldHBNWkFqaHhkMENkY0M0YXd0T242NVltb1dVeUQwRlpkSWtRbVRIdmM?oc=5) |
 | Texas Democrats who fled the state to block GOP redistricting push begin returning - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1ZcnY2NjFYVXdIb0d2Yk8wOVBqdU8xeDJ1VVd1X1NFQWItVzdkRExLWGo5WXpBNTc4UnpnZ2t4cUFuWWo5Q1A4VWJIa1VLQjlBQ2tqajNRaVplQWstRTlxV0ItSW1OUHFjalkxandmRFlOQV9JWVVVUdIBfkFVX3lxTE45emVEbWR6UXhLT3pOZGhFVGx0RHdEVHJXbFpzTkczSWQweWFIZ21Qa1hhMzVtamt6RGdqOG9pWktRS0Npc2Y4MnVZWFVWQ0Fnc2U5d1hiSUN0SHBGRnR5RkNxNC1PTGttRVE4X0djb3E3N3RndDF1eHdjWTFMdw?oc=5) |
 | US suspends visitor visas for Gazans - CNN | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBCU3NUN1lFdXAwLVZYQVcyRTFTYXBNcXdJWmRLWmg1andXOUhZMk82S01PU0xGMzNaWkZTbVI3VUpOZlZkcHFRU250akZ6RXBnYjhIeDl5Z1dVQW9PV280TW1CT0pLTExNaTZhOXctaHBLQ1HSAXhBVV95cUxQNnI4RGZ0cUV6RDVENEc5akhpMHl0eGROaDJYVHUwbFlOaWY5ckpFWEFwRUYzNUpoMWNZYnBET243M3VHLTh1VE5pa0l1NDRNTU93YTd5VERDa2U4WlBuMjJsN2RJNFI5clZBNEFKWkZsVi1lQWdnZGM?oc=5) |
 
