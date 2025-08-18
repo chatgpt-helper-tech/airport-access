@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月18日 14:57:03（北京时间）**
+🕒 更新时间：**2025年08月18日 15:01:56（北京时间）**
 
 ---
 
@@ -8,16 +8,6 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Washington talks could prove more vital for Ukraine's future than Trump-Putin summit | [阅读全文](https://www.bbc.com/news/articles/ckglxlx5vldo?at_medium=RSS&at_campaign=rss) |
-| First group of Gaza children to be brought to UK 'in coming weeks' | [阅读全文](https://www.bbc.com/news/articles/c30z17376ego?at_medium=RSS&at_campaign=rss) |
-| 'Skibidi' and 'tradwife' among words added to Cambridge Dictionary | [阅读全文](https://www.bbc.com/news/articles/ce93ygv4zzlo?at_medium=RSS&at_campaign=rss) |
-| 'I'm such a feminist, but Bond has to be a guy,' says Dame Helen Mirren | [阅读全文](https://www.bbc.com/news/articles/c1jnen9zklpo?at_medium=RSS&at_campaign=rss) |
-| The Green Party is at a crossroads. Is it time they get angry? | [阅读全文](https://www.bbc.com/news/articles/cm2kzrr4375o?at_medium=RSS&at_campaign=rss) |
-| I saw a kaleidoscopic light before going blind, says survivor of Laos methanol poisoning | [阅读全文](https://www.bbc.com/news/articles/czd0qlmjl05o?at_medium=RSS&at_campaign=rss) |
-| Huge crowds gather in Israel calling for hostage deal and end to Gaza war | [阅读全文](https://www.bbc.com/news/articles/ce93y2dxlg4o?at_medium=RSS&at_campaign=rss) |
-| Novelist Sally Rooney says she will support Palestine Action despite ban | [阅读全文](https://www.bbc.com/news/articles/cp94jz0y7ygo?at_medium=RSS&at_campaign=rss) |
-| Police investigating Strictly 'drug use' claims | [阅读全文](https://www.bbc.com/news/articles/cx2px5r90x4o?at_medium=RSS&at_campaign=rss) |
-| Croatian ultra-nationalist mega-gig exposes divided society | [阅读全文](https://www.bbc.com/news/articles/cz60nyp3714o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
