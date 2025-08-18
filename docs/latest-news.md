@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月18日 15:33:45（北京时间）**
+🕒 更新时间：**2025年08月18日 15:40:48（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | The Green Party is at a crossroads. Is it time they get angry? | [阅读全文](https://www.bbc.com/news/articles/cm2kzrr4375o?at_medium=RSS&at_campaign=rss) |
 | I saw a kaleidoscopic light before going blind, says survivor of Laos methanol poisoning | [阅读全文](https://www.bbc.com/news/articles/czd0qlmjl05o?at_medium=RSS&at_campaign=rss) |
 | Huge crowds gather in Israel calling for hostage deal and end to Gaza war | [阅读全文](https://www.bbc.com/news/articles/ce93y2dxlg4o?at_medium=RSS&at_campaign=rss) |
-| Novelist Sally Rooney says she will support Palestine Action despite ban | [阅读全文](https://www.bbc.com/news/articles/cp94jz0y7ygo?at_medium=RSS&at_campaign=rss) |
+| Broccoli harvest hit by heatwave and lack of water | [阅读全文](https://www.bbc.com/news/articles/c7541rxgez1o?at_medium=RSS&at_campaign=rss) |
+| How 'desperately unlucky' Man Utd showed signs of progress despite Arsenal defeat | [阅读全文](https://www.bbc.com/sport/football/articles/c5y0vpd756lo?at_medium=RSS&at_campaign=rss) |
 | Police investigating Strictly 'drug use' claims | [阅读全文](https://www.bbc.com/news/articles/cx2px5r90x4o?at_medium=RSS&at_campaign=rss) |
-| Croatian ultra-nationalist mega-gig exposes divided society | [阅读全文](https://www.bbc.com/news/articles/cz60nyp3714o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
