@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月18日 15:09:26（北京时间）**
+🕒 更新时间：**2025年08月18日 15:17:30（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | After Putin’s win in Alaska, Zelensky travels to Washington for his day of high stakes talks, how far can he push Trump? - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNaVVkc1MtSHY5cUdXaVNnTG9IVDdQRjQ5VVhneGFKV05PdVBqcWZaYW5XWm9NQ0dwUEIxM3kyX3o1eWZiOTBUenU3ZlJoV3BrdE1NRTUzdk5mRGFBNmZqc0V2QXVVUlpUVy1DUC10ZDhDRkZzUnBFekF4Tll2dG0xZ0ZoVHgxLW5IZ0RSQVpSSnVCaUJJbV8xc3pVYUFGNV93Z3Nn0gGoAUFVX3lxTE5OWmRaYzdNaHFKREhrb1RLeHJFZzRmcEl0QWVwQ1NJME5BUnc3ekhPNV90NE1XT2dyOUpIR0NsOUZuT2R2djNCQ28ySlcxTzJDaXpVV1d5dGhldFVGbGUzdVZZXzdpUjhtN1gxNXJwV0F4QUNycURCOGhjTTI1S19KTGZ1UF9Xd0gwQ0tESm54c01HaWpOd1dqdzA1Smg1c3NkTS04WFVfNA?oc=5) |
+| Why Putin smiled broadly as he left his Alaska encounter with Trump - Lowy Institute | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPODJfR0FNOE1hODJ0bURVUDRjRjhtR3h6eFRQWGcxQ0hPQmRQRlVtdEQycVlGTFdSNHBXOENIWnRjeU83d0R3VzF3YlNuS1djYllDa2NYWEtDbE50d2llZURORGlHeWVQMzNQSHdxajlIaGZfZ2Nnd2owVC1QYjNIRWJkYjhJR1JLWnhnRkdpWmJWcTNPSjFGMFZyN0ZpODFDaXdRd193SkU?oc=5) |
 | Trump rules out Ukraine reclaiming Crimea or joining Nato as European leaders gather in Washington - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNbExaVjhuQWZqYjl4QU83LUFMZXRDbkUtNzhrdllQQzNZSUptWVpuQms3eXVmX2szZmJfZVJEZU9ISG1uZ1NsUzZmZU1JNGNpR3l4aWZlV2xRM3F0dF9RREZxUGJSaWNaYlR0TlpVM0I4Skx0aHVnajJkUzJCWFJBdFlsV1NfZndiRm55WjlJRDBLU1R6bVFtSkRnZWFaaG5TeEE?oc=5) |
 | What to know as GOP governors plan to send National Guard units to D.C. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPRm56Q1hxRFFvajdOcFpSOUp4OUZkeXpaOFVwU0R4R2lpejczV19GczZYeUJ5WVQwRGVBX0F6WjF0cHVnbE1wUDdta3dJVVRYM0MtRXkzbHBGdWFMbTRkd2VEZzQ3ZnJCVHg4cjJ3SGZWNHFiMk91bHpkWWhNbkJDQnV0WUFxalJMblc4M0YtNUc4YU5raXNkRDc0ZHlOank0YXc?oc=5) |
-| Trump and Putin Find Common Ground on One Issue: Biden - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOWnM2TjVDMHBORTJmNHZIVloyTUViQURhSlVKZl9oUGZsZk1SOFpPU0xrMlJkNkZmVjVKelFpdVBrYWgxQUlEQk1RaUNFWENGVVdhdGpVTVdSYVVBZDJSaUxRc1VKZFNBbEpSeHRKeEJqWkh6Ujl5RVJZa1JNYml4NjZnVnZBS1BuN0c0?oc=5) |
 | Protests explode across Israel amid growing frustration over the war in Gaza - PBS | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOMzlBNEJNaXdDdURVeHJwRWZGYnBTcXZSU2FabDZJek5DNU5GaFI0Mmp5LUh2M3lQWXZrR2VPdW8tWE1QWkVKeUtMRFhrbzVENy1ja3JhVEdpWGdRTUlUc1hiX01CYkVtQVNBV2M3Y2VlVkJaMWtLS3FzNlcxN2FmdjAwOEFqZ04tTWRkYWIwX0swR0w3S3k2Yl9qVDNXVzd2SXJuSGxKblpGclJqSHZnddIBtgFBVV95cUxNN3p4eEktNi03MXlvRlZzYk9wTzJBeXVFeWd3aU1tU19od08zRkxscWFUdS1Yb1U5VHRIbHdNay1ONnJTNHVwdU8zV0t6aVpJd2FXR0xIWkllZGhxWVZfYUYtSUxaN0V1a0JDczFHWG5SbGh4dHlOa3RhOVAxTHM4THpDQ3doaHhYWFVGeE94ZzlYNXMycnl6bllQV2I0WUI4RUszSGpqWXNKZVE4M0hwa2JGSXpkUQ?oc=5) |
 | Hurricane Erin prompts evacuation orders along N.C. Outer Banks - Axios | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9OTW1UVzFaTjhKRnN6dXJ5MlJudzJnMjVheHEyLWdKMDRQUk9MYzl0MldMMWJRRzljUXE4azNSSXo5elVfcFNlYlg4RXRQSHpqR3FhY0pmOS0tQVJ0Q3dUVGJScEJucmtLRFFQYmVRdw?oc=5) |
 | Officials warn of retaliation risk after Brooklyn hookah bar mass shooting - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPbllQUHl1aDZZQmNQMGc1TDhaNFpodlRSeEtiU2RVY2llSHdhRFkwMm94VFdodTl5blkyTTUzY3VlbHh6ZEJZeDFpRGRJYThROThJeW5xWDFQdXhtSFNacGdkV0RpTkIyanZkYklIcG4xcVotX1FLcU1iZzFOQk4wdGRiTHhkLXZKamR2LVZTV3RmWktTZFhzVDhaQnh1cWpjTERj?oc=5) |
