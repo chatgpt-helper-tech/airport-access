@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月18日 10:25:50（北京时间）**
+🕒 更新时间：**2025年08月18日 10:34:13（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Zelensky and allies head to White House for Ukraine talks | [阅读全文](https://www.bbc.com/news/articles/cm21j1ve817o?at_medium=RSS&at_campaign=rss) |
+| 'No going into Nato by Ukraine,' says Trump as Zelensky prepares for White House talks | [阅读全文](https://www.bbc.com/news/articles/cm21j1ve817o?at_medium=RSS&at_campaign=rss) |
 | Frank Gardner: Talks could prove more vital for Kyiv's future than Trump-Putin summit | [阅读全文](https://www.bbc.com/news/articles/ckglxlx5vldo?at_medium=RSS&at_campaign=rss) |
 | Huge crowds gather in Israel calling for hostage deal and end to Gaza war | [阅读全文](https://www.bbc.com/news/articles/ce93y2dxlg4o?at_medium=RSS&at_campaign=rss) |
 | Terence Stamp: 1960s icon who was the 'master of the brooding silence' | [阅读全文](https://www.bbc.com/news/articles/cnkk4e8xqjwo?at_medium=RSS&at_campaign=rss) |
