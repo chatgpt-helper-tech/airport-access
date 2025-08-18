@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月18日 13:56:13（北京时间）**
+🕒 更新时间：**2025年08月18日 14:01:39（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | What Zelensky's saying ahead of key Trump summit on Ukraine, Russia - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPUkN1dU14akVZakljcHNYNTA5d09vUDE2M0RDSGUzN3hkYW50RTY5VnJZdVVOZ2NfNEdCUk5aVE9EWGVubE53R2FTN1pQZ1R1dFJWa09jZDNBNDZmdlJtS0NGNHl6OU5JX1phbFZhQk51VDNha1plSHdDUGxNWVpCRUpnazhQR1RycGRVdVlPVQ?oc=5) |
-| Trump and Putin Find Common Ground on One Issue: Biden - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOWnM2TjVDMHBORTJmNHZIVloyTUViQURhSlVKZl9oUGZsZk1SOFpPU0xrMlJkNkZmVjVKelFpdVBrYWgxQUlEQk1RaUNFWENGVVdhdGpVTVdSYVVBZDJSaUxRc1VKZFNBbEpSeHRKeEJqWkh6Ujl5RVJZa1JNYml4NjZnVnZBS1BuN0c0?oc=5) |
 | Trump news at a glance: DC crackdown expands with national guard to be deployed by three more states - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOOGRSRXp4UFZ1ZmlNVG1xa2VRZDFpU2gyMm5GRU4tVXI1cVdZU01wdzJxcmJCdXAzY0YtTzJtODBRLVVRSDhEWlJ1MEtka3ZibWFXSGZRelJuTUpXaDhLaTRBVFA1UVhqUzFocEJGSEp5c0UxeXYyRmNROVN5OVNKUjZEUmxrQkNGSzNJZTBRa1NINUFoakhKYXAweFA0UQ?oc=5) |
+| Trump and Putin Find Common Ground on One Issue: Biden - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOWnM2TjVDMHBORTJmNHZIVloyTUViQURhSlVKZl9oUGZsZk1SOFpPU0xrMlJkNkZmVjVKelFpdVBrYWgxQUlEQk1RaUNFWENGVVdhdGpVTVdSYVVBZDJSaUxRc1VKZFNBbEpSeHRKeEJqWkh6Ujl5RVJZa1JNYml4NjZnVnZBS1BuN0c0?oc=5) |
 | Hurricane Erin tracker: 1st hurricane of Atlantic season restrengthens to Category 4 - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOX29HbXh4eDNfTi1JUVJpd0xldTRLT2R6SXBDZXRKRUZKZUxUbkNTYTY0ZVFVRVo5T0VOZkd5RC1CZFN2ZFBBNGphSTBvV21yYmxCTEhoMTRrWlN6a3pSOTFVTmpJZjZKUThFaTVLenpHbXg2VHBrdXRMTnFldHdtY0tJTUs2SXo0VHdUMXg3WkR4bjZZNnJjN9IBngFBVV95cUxOWWJ5dE8wak10blZWSlBEeWJ5cG5BMXZtYzRWeFhwbVBtWkNyVTAtZmhGUzZERHU0S2JqRTdqaVJ1VFMxQ0Zscl92QXFlYWNrMXBuay0zR1h2eW1VYzRlSk91eU1ldVIwbF9WSWE3amJ5bG1PNTFfcC1DVXk2bGxnLXJKb080allwNnJyOWEzMGFiYzNaYWtUWHdxTnJJQQ?oc=5) |
 | SUNDAY SHOWS: President Trump’s Pursuit of Peace - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOYjVQYkxJUWFwOTRDeV9vZXVjRU9KcmdvMVplZW9udDVRODJ1c0xJbk9nUkFwVnFGMHU1TzZLcERtdG1ySWxPX2cxRTVfd05MTkNQNWZRZ0JaTlg0bURlVHV6TVFiR2toY2sxUmhTTGp5dDNRWFhtbU9FMjhJY1JXZ0hzVEJpMlFHdmxRa1VMbUt4UVBtMHc?oc=5) |
 | 'It was a bloodbath': 3 dead in mass shooting at Brooklyn hookah bar - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNVmJiWXFnUzI4NmVFQXM5NHhYa2RiTWxjczEtVm9aZ3psUFR2U1h6S1E2YkRCcnJxbmtEZGJWdmtMYUI0T2c1dk1tM1prM01PTDFSbzFVQ1JnNVFUaGFYMWpSU0pTVjBpX3NMaVFYeFJXX25sbUg1eHlyWVp5VUYyaDJsbjc?oc=5) |
