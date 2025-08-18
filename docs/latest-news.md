@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月18日 21:16:29（北京时间）**
+🕒 更新时间：**2025年08月18日 21:25:56（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | First group of Gaza children to be brought to UK 'in coming weeks' | [阅读全文](https://www.bbc.com/news/articles/c30z17376ego?at_medium=RSS&at_campaign=rss) |
 | 'I'm such a feminist, but Bond has to be a guy,' says Dame Helen Mirren | [阅读全文](https://www.bbc.com/news/articles/c1jnen9zklpo?at_medium=RSS&at_campaign=rss) |
 | Man told to expect jail over asylum hotel disorder | [阅读全文](https://www.bbc.com/news/articles/cg7jy3drd85o?at_medium=RSS&at_campaign=rss) |
-| Why the Green Party is at a crossroads - and some insiders think it's time to get angry | [阅读全文](https://www.bbc.com/news/articles/cm2kzrr4375o?at_medium=RSS&at_campaign=rss) |
+| The Green Party is at a crossroads. Is it time they get angry? | [阅读全文](https://www.bbc.com/news/articles/cm2kzrr4375o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -28,11 +28,11 @@
 | Ukraine's Zelenskiy accuses Russia of 'cynical' strikes ahead of Trump talks - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxPbk1uLTdCLUlxUUpmNkxjNUN4bFBuT1o4QzU0R3RXenYzMFlIZi0wYkxmNENfZk8xdWk4RkgzTHNlOXJrOTVlb0pyWklFdmRNak5DZUxhNU5ZZlU5NEZHcDVKMnUway1jd2lsYlppcXAxNS1jbnhuRWJLU0pYRWJXQjBSYmNBZjJYbHZaQ2d6U2JNY2dSdUREeEtjbXZRc3VDc3V3UGR2dmdmZDhYajNHNWlHRDJGVGt0X0M3bzJVb1hYQ2ZRVk05Q093?oc=5) |
 | Trump says he will sign order targeting mail-in ballots and voting machines ahead of 2026 midterm elections – live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi-AFBVV95cUxQV2xjNGd2WnhRV1JzeDZpcDQ1a3BrTjB1Wm9RdEdtbzJQVEpjT21WcnJ2blhLbTg0X1dEM3NlNFRkcGZJc19JUFIzNlFjWUd1NVhjMTFoZEptRklLdVo5OW82ZWJIejRCZzBCSmdrSnJHXzJCcFZsc1hKb2g0QkV5V2Y4QzZJZjVkcEJvN01nRVp3Mks1TFJwUHQzTjRjakNUUUg2NEQtTjFQbktlQkxOem16YWd1TXpyQmJXUm9oWFhVbkN5eno4NV9KX0hUZ19uWkFEdXRmcDNDQXFMREFkSkVsVUVaX3dOdkNBN1NxTkFzY2h5cWhuMA?oc=5) |
 | What's behind the Trump administration's immigration memes? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxObzZoamRhQlhOT2hJYllPdkhSNGl0ZmlibXUwSDI2WjJMNDhWTnByd0lWaV9TSG9EM1NMUDZrU1FxMTBoWlkyU3IxN2oyQ0Q0ZE85cDNfbS16cE93a0RxdG0taEx5STdhMnk3ZThWcjZ5LXQyMkF6cm90c2lzLVYwRElaUlktdUxtTzJzNUNn?oc=5) |
-| Why Putin smiled broadly as he left his Alaska encounter with Trump - Lowy Institute | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPODJfR0FNOE1hODJ0bURVUDRjRjhtR3h6eFRQWGcxQ0hPQmRQRlVtdEQycVlGTFdSNHBXOENIWnRjeU83d0R3VzF3YlNuS1djYllDa2NYWEtDbE50d2llZURORGlHeWVQMzNQSHdxajlIaGZfZ2Nnd2owVC1QYjNIRWJkYjhJR1JLWnhnRkdpWmJWcTNPSjFGMFZyN0ZpODFDaXdRd193SkU?oc=5) |
-| What to know as GOP governors plan to send National Guard units to D.C. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPRm56Q1hxRFFvajdOcFpSOUp4OUZkeXpaOFVwU0R4R2lpejczV19GczZYeUJ5WVQwRGVBX0F6WjF0cHVnbE1wUDdta3dJVVRYM0MtRXkzbHBGdWFMbTRkd2VEZzQ3ZnJCVHg4cjJ3SGZWNHFiMk91bHpkWWhNbkJDQnV0WUFxalJMblc4M0YtNUc4YU5raXNkRDc0ZHlOank0YXc?oc=5) |
-| Putin agreed to let U.S., Europe offer NATO-style protections for Ukraine, Trump envoy says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPYTZWVlpHOUpoRHdhbms0VFZoX0hGREx2c0xUNkpOakpZREZSc0VnZ0tBYjYtZE9sVDFPYzJqUzNDalc0eFlBZUFuMWJnc3hjek8zNVRnVERhSHhuMDQ1U29LUzF0d0hlS0gyVE5aMjdBVy1DRDZVdnV1NzBtdDV5NlpqQ1lDbE9NRk5Z0gGQAUFVX3lxTE5aYXNwcjNnVXBRSFdsUkN4Z3BHTXhiWDk3aHJldEJQTFlpaTNxQUJCUF9iZnVmc0otSXlPT2hoY2NQNURiblpnV1VPbXNaXy0zbm9TNE1ueUtRZmp0bktWSWZVSXlLaDhtOEI2X0NyX1pDMXZUaFBHVThXQVNiRG5TSkpKMF9LbUtQekVoNXViUw?oc=5) |
-| Republican Stacy Garrity Announces Bid to Challenge Josh Shapiro in Pennsylvania - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPbHdQQ0pJRUdaUkNRUnQ2Q2EydjlvaXAwYkVSMXlad2VDRDdOMHZzT3duMXAxM3ZDSE9qajl2NEF2QWRvTTdkUFZvRjRRbzBYOTNZa1JGRmV5X0tYcFFPVjVQaXk3a1U0YTh0aF9KdUJKNU5XS01pNE41R3R5dWV3cU12YXgwcUY3Y1MweURRQmxJU0dzbGJUVE1yVzk0YXlCNHZXTA?oc=5) |
-| Ohio Democrat Sherrod Brown makes it official. He'll vie to unseat Trump-backed Sen. Jon Husted - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQV0dFZjNKYVl0T1dlSmJoMlpxRUc0R0E2VjUtQ3dJc0U4Q2pRTHVPcHJtMXd4RjRDMzVVQmdsbnpDZ3p6clR0dlpOZVJMNkR6bVlSaVA4Zk4wVS1kbENvQ29MNlUzRG9XYUpfajgxMHlfSVRlRVRIV1hBWFRfZlBSLXBLQmlSeFZzRC1kSG5kd0tzbnRXVmFGaFVYbi1QS2dRRkhVcUFmOXo?oc=5) |
+| Texas Democrats who fled the state to block GOP redistricting push begin returning - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1ZcnY2NjFYVXdIb0d2Yk8wOVBqdU8xeDJ1VVd1X1NFQWItVzdkRExLWGo5WXpBNTc4UnpnZ2t4cUFuWWo5Q1A4VWJIa1VLQjlBQ2tqajNRaVplQWstRTlxV0ItSW1OUHFjalkxandmRFlOQV9JWVVVUdIBfkFVX3lxTE45emVEbWR6UXhLT3pOZGhFVGx0RHdEVHJXbFpzTkczSWQweWFIZ21Qa1hhMzVtamt6RGdqOG9pWktRS0Npc2Y4MnVZWFVWQ0Fnc2U5d1hiSUN0SHBGRnR5RkNxNC1PTGttRVE4X0djb3E3N3RndDF1eHdjWTFMdw?oc=5) |
+| Republican Stacy Garrity seeks to challenge Pennsylvania Gov. Josh Shapiro’s reelection bid - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOUlQ4c2pUODdSLTlCX3M3UnU3dlg5OWJEZ2RqQmUyZnp5NW5PdjZEQzZncm50VFgxVFY1UWtKeE4zc1Fjc0tMTkwtYVVkdTlvZ1ZaQTlTVEpTbldOQUlKYXc1SFpmYzVtaG92Q2ZTSXhzdmdNUHZZMzdtcjkwVk9CYWlWdGtnUUVYRVlTbTk3V1NObW55M1hSNUh6UWlhalZMSzdpb2RFZF9vUWxTandCcDhEQXZGNFN6?oc=5) |
+| 'It was a bloodbath': 3 dead in mass shooting at Brooklyn hookah bar - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNVmJiWXFnUzI4NmVFQXM5NHhYa2RiTWxjczEtVm9aZ3psUFR2U1h6S1E2YkRCcnJxbmtEZGJWdmtMYUI0T2c1dk1tM1prM01PTDFSbzFVQ1JnNVFUaGFYMWpSU0pTVjBpX3NMaVFYeFJXX25sbUg1eHlyWVp5VUYyaDJsbjc?oc=5) |
+| Former Sen. Sherrod Brown kicks off his bid for Vance's old Senate seat in Ohio - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQenJvNHJLY2thNG1aNVZrMnEzUmhhanhVSXZQTDZnb2cxWGhMY29MSjlZbGltQnlyT2hUY1NhUnd4RWxzLTRIdXRYWlFGU0I0Nll4NThOdDVrUDJCSzFFWFpSRmRtQlJ1T3lRQnZScGtoT0IzQUtJeVBfcmM5aDZadWl2MFNlbkZvS0xPbDBIMHh6d2toN0N1MkpXbGpSOXBpUUpiMElDYnROZkc0cU5r0gFWQVVfeXFMTkVMSTFZVjR5VksyTFpKRzkxczA0Z2hWVzBJZEo3eHNjQ2ZCcVNZQjJuYVN0UkE1UWZBUDJCb1V5TmI5c2ltVGlGNmxtSEpkb29kLUIzSXc?oc=5) |
+| The unusual GOP alliance pushing earmarks in this fall’s funding fight - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPQzBySTZKVjJmSnd6eEkwTVFuWE1CeUt4NUk4N3g5TTlJc0NnaElfek0xRzBrNWt1aUl3SUNWay0zV09ibVJSaVY3MmxuWjRVWFU2RWNOaGNFMHdSSTlkWXphR2l2RExRYmVxc2lqWXNlSDBCZHF6NDNjSmltLVBpWUhqeDJ1VzVBNnE0WlVXVzN4b0hm?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
