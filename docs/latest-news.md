@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 03:26:02（北京时间）**
+🕒 更新时间：**2025年08月19日 03:33:19（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump-Zelenskyy meeting live updates as leaders hold Ukraine talks at White House - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNSGgzMXRXSVVLbENzQ0FMZ1laejN0bDNOWFRzMWFGR1NRbzRjdGZzNDkzYVVZdVdxLUdvalFuSkM2Y21lWXJ2bHJUTGV5S3NxWjVmZ2tBMHYwLTVxUjFhNmNJai1hZzdsWkJfZkQ4TUdPbWFCZTA5VFJvYngyUF9qRUZfSjd6RjdN0gGOAUFVX3lxTE52LThkNXJ3MGhlMFRCYlFOVmE1bGpUZGVkR3cxaXcweFhudTAyYUdFUmRxWURTOXctN0RVX1JHbzUwblBWbWoyWG5TWWNjMXFLUXhPMFgwOUwweVBRVEQ3am1ULWNZZ0RONDFXcVNDZjRzQjdZNTE3WGdqY0xGU1kxeGhzMVlQWkFBd2FJdEE?oc=5) |
-| Trump vows to target mail-in ballots ahead of 2026 midterm election - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOSU56ajV6RG9xV3hwczhvOW5DR1lLQ0pYZ2NHaTY0VFowUzY4aGhiVWxrYl9hWTBjUXh4NThZanZycHdUY0U2SkxCLXNpZkdacFYxV19vTFg1Q29JcWlwM3AzRGtGWmkyaVJCeDlwT25qUXNRZEs5N2JUWUhHUldmWVRRZDlWamlHTHZXV1hkb0pSZDJwZjU2anItc0E2OWFzTUtiNzdpa2ZBZw?oc=5) |
+| Trump says he will lead 'movement' to end mail-in voting - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOZ0dIa1BZVk1OZ2VHM0c0V3JlYTRNRk9McjRRb3B0MVd1X0R1SGtpTmpWWVFuWkFJbG9KZ2JEVlppR0RtRFE1QjZzVUJ1R1RuaVl3YklYNi1EQnk1VlFrUlhaQ052aHBwcU1TTWJaRHJuSWRTVlBfUHcxei1DVGFRTlpCc0NPUlpuZ2hiZllMUdIBlAFBVV95cUxQNXNmZ1JkNkpGOUh2MjlHU0FVd2l4SS1Sd0h2OW9vbU1mUXNBNlp0LUtqTWJJeldHUHZOb3ZMdVJZdkM1MlJ4UHFzRTJQSkNZTHM3emo3b2dvUHpsbWhwWmZCMk5KT0lSNEdQRmpGamVLa0lKNUllbm9TdWliblZsRmE1OWpweFZCU2FQTjZQUkVpdktL?oc=5) |
 | Why Rip Currents From Hurricane Erin Are So Dangerous to the East Coast - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQVEJqMWhRV3FVX3VxbDZsQ2ZGMHNtaGFmcnRfSkhYNWVYMk8tY3BuYl91THdCREpOb2JKTGpWVUJVSWUtU0NmMFN1d3g3ZUpTcVk1QUZEZk9GX0dMNEEyaEdReGRMbFV5V1dpN2M4RWdtYVN3eDN5Qm94dnJic3FkTGlzRElKa3N1Vk9ERFhfeGxic2ROLUFIbG13?oc=5) |
 | Texas Democrats return to Capitol for Republicans' US House map overhaul as California counters - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQRnJLbjdMZ3k3VTFRSGhPOUlTNFZyZUtkS3NhcWlEY3N6Mno5WlQyQ3JRU2NNT2FQZ2hZdi00amhFWC03ZjlHNngwS2pReWRaVnVwaHhrQ2YxTmRacVp1R2V3aGhRV1lYOTdJX1M5dXNpdmVpS2VaTnN2aEIzRUVNQ3N2YV9ZcnlhN3JoUGlrcEFGZzRfLTVFWUFMYzJydw?oc=5) |
 | Versant to rename MSNBC, drop famed peacock logos in Comcast separation - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQNFlEUWIyUFpXS2dNaEUyZEpFckQtYnhWRXlVWVNfcHRxMkZnSm5WUWJZVGVMSkVBMHRXTDEtcXV0QmtMcWdnQ1A0NzAzaG5NbmlZTnBMUlA5Vnh6YVdtTkpkSnE1MUVQa1pYVXNEY0ZyYW5sOFhWOXFKcTBoSVZlUzFyWmRjd9IBiwFBVV95cUxPeVZDcGpoOExQcE9wQ091X210RVV0TWN5MVBybkRhQ0NPYlBYaEI4bV9ROUR1UG13WHJWZUF6aTUzTXJRZy1RUURoTXc1bktDS0VqYWdDcGlZUGxFU0hkYmtoWjNUeHRBMjR6VTRhVDNrb3BSWE5lRXBLNGpQV0poMXRsVFFJQVF3Q0Fj?oc=5) |
