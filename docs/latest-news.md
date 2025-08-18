@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 03:48:57（北京时间）**
+🕒 更新时间：**2025年08月19日 03:56:22（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | Texas Democrats End Walkout, Allowing Redrawn Map to Pass - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPMkhfa3NYeElrNzVMSXl2cGowNkdYQkVBV1RwSGxwLWlidENkQlNmLXZEN1MzTk5udThFdWowMVptUnVrMm5yNHNXMl9ZVndVVHdWRnhWV2pLNXJ4NmZYX1dVdlhlRVJpYjN1T0t1RllJRzVPTTRjX1V2bXdEODRGQ0Fn?oc=5) |
 | Trump pledges effort to eliminate mail-in voting - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPSnRFMXNwNzlLbXNJZTJjamVUQ0d1NGtOTXN6M3YxQlkxcWRDWFljb1dqOFNsZU5seWpEdkVnWFNnWnctZlcxSk5XSXZYUkdYTFJacjdlSVU4N2RqdG9IVWh2UXNtdUlwNVI2SDVSUmpXTk1GcnZMQ2F5VTBsREpLQlhyMU0tMXM?oc=5) |
 | Hurricane Erin: No direct hit forecast on U.S., but flood risks prompt evacuations - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNVk52T2FzM3laWllxajNIcnI0aDlTVU9tek95WkYtZE5OTFdEclJlMVBVeEZ3RFd5VkhZWXpnZjNnU1pIT2pqdDRSOXkyVzBQazBVc1JDLUh1WUFxNzFTbGZfeVNodTRiV3luTGJlRXNHM1NYZndIWWVwc0sxQldSN2FieENsbV9LbGJPcUFSMFkxbG0zOTZZZzNGUjg?oc=5) |
+| MSNBC Will Change Name to MS NOW After NBCUniversal Split - Variety | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE5GczFnRzlENmVoS2RzTkV3LW84ajFfSjV3WFQzQWxWcjdzXzc4aEF6UHZUYW5BUzhfdVNlQm1wZldrd3NEVFNndnluRjNJUmhneE5vS3VKa0RrQVFsa1g2RTBxVDNkcTlGTE42RU5ncm9JUHky?oc=5) |
 | Why is Donbas region becoming a defining faultline in Ukraine talks? - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQM2hzalRZU2U4RGdRcWJUYVBYVUhVeVZ4eFZULW1LcENXVkxZeUllZ005MnVqeTY3UHlEUExkZkFfbjJGZW1qTHRRWENRbVIxVWU4WTNvVk1BcndiMnVqd1JPbnlXazB2a00tT0cydENuLVJJWHVOa09VMUgyc0F1bk1CSEx3M1ZYZHZNWjBEdC1lWjdHUFlBWWYtYWRuUjVfaXJuT2p1OVc?oc=5) |
-| Cable’s MSNBC will change its name later this year as part of corporate divorce from NBC - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOZmQzMkNERWFIN0F4UHViUlBxSm9xMUtRUkc0WDlmNmNYM2hSYm1oakJKdzRFMjRuWUxUblBYWnRTM3V0WmN3ZV8zdFNQUVNLUmlSTVNCUWhXWTZRLV9QYUxIM3lhS19veVQydUpfZkhabm81RC1RcDJfWVVTRkpLY21uNVZZQmw0X2Jn?oc=5) |
 | Conservative network Newsmax agrees to pay $67M in defamation case over bogus 2020 election claims - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPSHVDUTNRb1NjMGFzLXNMSXp6aUNQSzRTVm4wRHVwczI1N1ZncmFRZkJ1SUQ3dnpMa2xQRkN2Z0YycUNtVGtIelI1eWZuMFptNXZDQnZMTmRORnRpdzRCMUxGandiZ1pjVXE5dnZyZzIyZ3hTZXQ3WWpsMEdWYUtOSHV4dXRJbXlucDNSYXdPcWwwWDJ3bzBjb21iajkzS0tFRDU0TU00RjY?oc=5) |
-| Mississippi becomes fourth state to send National Guard troops to DC in expanding federal crackdown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNY0d4MkdnZEs2bGVxVk92Z0tfWlpoMkE1MThIRWswREZSUk1fRTNyd2hjWTE0ZHNxblplRmt4R3NmYm9GTVpFdGx3ODlSeEwyOEdJNW1nN3V2TlNaZFdxaUs1endXendOeW41djVpbjFSbnhSTHo1cHJsaVN3ZVFpVTFJeDU1Nk1HSGZkMXkzdkE1MU9tS3V6dTBVdzFZNngwVnpMY1U0aWZVWWgwNVdNWk9B?oc=5) |
-| Pa. Treasurer Stacy Garrity launches GOP challenge to Josh Shapiro for governor - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQSUJWbG1Lb1NQblU3OXdtU2d2aUJFeS1wc0RpbWNHME54VGN1TnBqejFqWENUakRwdDJjM0ZNck5VSUVKT0xESzd0bWRyd1pvZTdSRGQ2YTByd2Rxczl0SEYydFNPUnJwdEFTSlhocm5OME1meElhZWItb1B4TEJJQU9BanpDdkFNNjl1cVBGNHQ1cTNxRVRtT2dSNFhNLW9LX0U5b09n?oc=5) |
+| Republican Stacy Garrity seeks to challenge Pennsylvania Gov. Josh Shapiro’s reelection bid - FOX43 | [阅读全文](https://news.google.com/rss/articles/CBMi_AFBVV95cUxOVzRFOG1iVkptY2NfRjRib3JxdlUtQzd4bXVaSDROZVRsNEt4RG1HaGNwUkxwZFV6NlNQd1E1eGNEdTc3WWN6VVhCRzU5aTliM3h0Z0NtVFJfM2lmaWZpemdHcHpOMjFuZ05qS0QxZ3hvRWhLb3lOZWFFT0hSVnRGNHpVQmEzS2FEeUVKMklJYkVkaktMS0hWbEZSbWFqekRPWTlzaFpKQnNOei1JY2NMeWZZY3ZtSDlXb29hUW1Rel9YNlJ4Ql9ORU1McjRCb3c1dDZQVldwMzh3aFp4UVdIZk1ZMWZoMFNyUkJoRnB1SmtWazdhbThndEdvd3E?oc=5) |
 | 3 Utah police officers shot, 2 killed in Tremonton - KSL.com | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNMDRpZTdsTFdEUlg5X3NmVXFFWVdDc3ZHZEd3NUhDWjZVNXFJeU5IcVotM3RlVUQxQ3FaRm8yMzRCTUR0Nk1FODlsMDdmRXFSZlgzYUxtR2VhSk9VMDk2N3pueFplRnl4YUxKeUFtNFRsR2pmWnNYRmNOdXZ5YldCZ0R1T1VMQV94Z2t6b3VrWQ?oc=5) |
+| Mississippi becomes fourth state to send National Guard troops to DC in expanding federal crackdown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNY0d4MkdnZEs2bGVxVk92Z0tfWlpoMkE1MThIRWswREZSUk1fRTNyd2hjWTE0ZHNxblplRmt4R3NmYm9GTVpFdGx3ODlSeEwyOEdJNW1nN3V2TlNaZFdxaUs1endXendOeW41djVpbjFSbnhSTHo1cHJsaVN3ZVFpVTFJeDU1Nk1HSGZkMXkzdkE1MU9tS3V6dTBVdzFZNngwVnpMY1U0aWZVWWgwNVdNWk9B?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
