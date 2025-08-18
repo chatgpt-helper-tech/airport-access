@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 00:56:24（北京时间）**
+🕒 更新时间：**2025年08月19日 01:01:03（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Newsmax Will Pay $67 Million to Settle Dominion Defamation Lawsuit - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPTkcxaDBYU0JGQUtCRVhYRzduamhzRWlVU2otMmdqUGRRWjRNcEQweW45WUFRTTNBa2VmWlNFQXE1RDJPUFBvYkVRNXY4LVNoWVVvU1R3UFM5dGxIZlMyMnFnZ3ZMR3k2c2JQWFpKbWkwc3FmS1BGVFh0QkdWUXdmQUZTUzdxR19KSGxCS0FEbEVub240cnpySEZhci1CYlRaSmxF?oc=5) |
 | What to know as GOP governors plan to send National Guard units to D.C. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPRm56Q1hxRFFvajdOcFpSOUp4OUZkeXpaOFVwU0R4R2lpejczV19GczZYeUJ5WVQwRGVBX0F6WjF0cHVnbE1wUDdta3dJVVRYM0MtRXkzbHBGdWFMbTRkd2VEZzQ3ZnJCVHg4cjJ3SGZWNHFiMk91bHpkWWhNbkJDQnV0WUFxalJMblc4M0YtNUc4YU5raXNkRDc0ZHlOank0YXc?oc=5) |
 | Ukraine: 'Russia must end' war it started, Zelenskyy says - DW | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNcWN0NEZENHhQb2M2X1hjUUZqekREaV9lVlh5NXZKUEdvNC15RERZQURkeU5RYXhrNFZyRHlWMlFSejg1QlRmSEdkZEpCcGlEVS1MTW5nODhuSjN5YUN5WW1TejExODFTQUExT2xqS19WVUFMaTJmZExsN2FVWkhJMFFUZ0JyWTRYWmZZRnN5YW8zWFE?oc=5) |
-| Former Sen. Sherrod Brown kicks off his bid for Vance's old Senate seat in Ohio - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQenJvNHJLY2thNG1aNVZrMnEzUmhhanhVSXZQTDZnb2cxWGhMY29MSjlZbGltQnlyT2hUY1NhUnd4RWxzLTRIdXRYWlFGU0I0Nll4NThOdDVrUDJCSzFFWFpSRmRtQlJ1T3lRQnZScGtoT0IzQUtJeVBfcmM5aDZadWl2MFNlbkZvS0xPbDBIMHh6d2toN0N1MkpXbGpSOXBpUUpiMElDYnROZkc0cU5r0gFWQVVfeXFMTkVMSTFZVjR5VksyTFpKRzkxczA0Z2hWVzBJZEo3eHNjQ2ZCcVNZQjJuYVN0UkE1UWZBUDJCb1V5TmI5c2ltVGlGNmxtSEpkb29kLUIzSXc?oc=5) |
+| Ohio Democrat Sherrod Brown makes it official. He'll vie to unseat Trump-backed Sen. Jon Husted - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQV0dFZjNKYVl0T1dlSmJoMlpxRUc0R0E2VjUtQ3dJc0U4Q2pRTHVPcHJtMXd4RjRDMzVVQmdsbnpDZ3p6clR0dlpOZVJMNkR6bVlSaVA4Zk4wVS1kbENvQ29MNlUzRG9XYUpfajgxMHlfSVRlRVRIV1hBWFRfZlBSLXBLQmlSeFZzRC1kSG5kd0tzbnRXVmFGaFVYbi1QS2dRRkhVcUFmOXo?oc=5) |
 | No arrests yet in Crown Heights mass shooting that killed 3, injured 10, police say - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPeDlRdE5CSC1nSl9VekNCTTc3YmwxQy1za2NzZTdmQTIxNExrekNiVGxNYkVWSDdOejgyZFJpVjFOVUxxSW1kNmppQXdPdmo4aXZCWTVUaEs5UktkQUI2SWZOblhTQktlQ3hpV3FyNmNEYmpwQi11NmVTejJNRlJYSDFJaGttNmZid1F5bUxlTmU2T1ZHWnJ5aF9MZHRUb2hhQnk5bHhVNlItNmFN?oc=5) |
 
 ---
