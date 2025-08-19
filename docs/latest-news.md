@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 13:01:49（北京时间）**
+🕒 更新时间：**2025年08月19日 13:09:28（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Texas Democrat says she's locked inside state Capitol after refusing mandatory DPS escort - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOSDhzX1FMSFpMd205OF9VVFpWdnlwdUZwc2ZrV3VmUndwbjl5cENFZDNndk52UkRXYVBGUm9oc1ByRzIxTmQ0cm03SV95blJkb1FYMDNyT3VCbFNLQmtDNjlDc2RSN1F4VTI5QzM0VURkVmItMlpJWV9qVUdXNnZJVGo2cU1GLTZJVTB2RkRhM1BVaEJvTVlRZk81Z19BbjFFelZaR29jUThpN0x3ZFE3NlZKNURBMkYx?oc=5) |
 | At White House Summit, a Master Class of Diplomacy. In Courting Trump. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNSzE5TTZCMjFWbEZtN1F0S2p5Sk50eFRWcGhrVkdGcHlxb1VQd2RQZUpBd2ozVkpQcVVKTFBKRlhmQ282ZmtJZXdGN1o0Vl9LQ05ZZEhGMXRYdkdGd2d2a1psbXJfcHJobEhWMUU3aEFSWGJKc29oVkxzT1AxYTZPX1d5SmtRQ1lSUzZNS3F6RV8zcUlKSFVRTTBhcw?oc=5) |
 | Security guarantees for Ukraine to be worked out within next 10 days, says Zelenskyy after meeting Trump: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOdDBEbThzME51N29RWDNyVUx3WEJFMlhHbllpejFMUE1ydWlhNnE0a2stUGlWRmtVY29fbjhWNi1oMy1BLVpVc0Nwd0Y1YjZTX3BEa1lfYUZ6dFNKT2xmWDM2aXh6d3pQeTFROHp3ZVZzNE5JVlBQOUt1UVhxNjViZy1qZ1hRd9IBiwFBVV95cUxOSWZFRFVsV0g0TVEzdHRGTGp1RjJZeXpxWk0zUjFTRk8xX1pYWFMwOTJ3RTZkd0lYdFVJa0dXYlpwNGZ6QThZSEVnUzhFSThSWjRoblVkYTBqd0g1V2pQTmpWUHBuMzBwRWZpajJLZVpiYWI4MFhEY3BpU185djR4NUhCNjJRTm1JQ2JJ?oc=5) |
-| Bryan Kohberger's behavior alarmed university faculty and students before Idaho murders, documents show - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPZTRBNmdfbEhFamR6N2xURXZ6Zkl1RlhGUW5ZMl9fRTFQRUVFMUgwQ0E1ekZBVVhLcFRBdUl2d0JxbWxnV19jXzdqOVdXSC1weEFNaUZ1T3BTbm5UUlpfenJ2ZjRQTW1DQlU2SmNzSHdDSlk1TEtoVkFHS094UEYxb1NKYnN6SjMxUXpZZTlqT2VJdVBVVGtTdWZNZEVSOVVpd0U1anhYTmlhZXRFSVFHOdIBtgFBVV95cUxOS0FsWE1aa2w4Qmk4WGNjeGw5V1pxWU9pSFdXRnZnWFN4M1VnVTk3cWNja29RYk52OEcxM0FWVEVtaEhLeFpJN3BaQWhGQWRxWkRyb2FhVlowQTEydmpwOFBPWGJwVGxNSzlFX3ZBb3FJQW9CRVRmYnROMmtrVGtlSWhpb2F5dWJVZ2VqMHRSalFMbkZMWW9mYmJRMm9RdWF4Zm1GVFd6eTgwWXNIQ3VMT2VqZHBGdw?oc=5) |
+| Kohberger's sexist, creepy behavior alarmed university faculty and students before Idaho murders - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPTTZSZ1oxSDNlX0k0b1dkd1lERXloM3VSYmFrRjJRZUE1TVF3UUcwLUNKRVdyNXpxaDBaS1ZudDViOTR2LUl2NHNQbUJBUGRLT0FvOUhrbF9CNnlVRFNLVU9iU0RhbWpQTGQtaktBV1AxeUpVM3lScmVGVzRyUTBPYl9iQWZrT1FRbHNGLU54Vkx2RWxVVHR0SXptSVl4N2lNTzdsYkNkQQ?oc=5) |
 | Newsmax Will Pay $67 Million to Settle Dominion Defamation Lawsuit - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPTkcxaDBYU0JGQUtCRVhYRzduamhzRWlVU2otMmdqUGRRWjRNcEQweW45WUFRTTNBa2VmWlNFQXE1RDJPUFBvYkVRNXY4LVNoWVVvU1R3UFM5dGxIZlMyMnFnZ3ZMR3k2c2JQWFpKbWkwc3FmS1BGVFh0QkdWUXdmQUZTUzdxR19KSGxCS0FEbEVub240cnpySEZhci1CYlRaSmxF?oc=5) |
-| 3 more GOP governors authorize deployment of National Guard troops as part of Trump show of force - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNY0d4MkdnZEs2bGVxVk92Z0tfWlpoMkE1MThIRWswREZSUk1fRTNyd2hjWTE0ZHNxblplRmt4R3NmYm9GTVpFdGx3ODlSeEwyOEdJNW1nN3V2TlNaZFdxaUs1endXendOeW41djVpbjFSbnhSTHo1cHJsaVN3ZVFpVTFJeDU1Nk1HSGZkMXkzdkE1MU9tS3V6dTBVdzFZNngwVnpMY1U0aWZVWWgwNVdNWk9B?oc=5) |
+| 3 more GOP governors authorize deployment of National Guard troops as part of Trump show of force - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxPQVBGUnFiVTJzYmo4Q2dyby1lc0d3UW5BSG91ZElVdWFIZ1NuSEtzMmY3WDhNVENvWUM0ci1YTnNBTDZ3WEJ6OHlHQ0x5dE1mQ1JvaHcxY2lsdjNfQnc4amoyaWlMOW0za1BUblhQcVlPR0JVSllDRF9NX2NPczQtQWZWNmUwM1ZtSnpna0liY1lpa2tHQUw0QVVFc2JGeU1UQmF1SXZoNmlrTlNCWnJ0UHhEMW8wVDdxZGQ0cmE4VXV2MHZQUVJJ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
