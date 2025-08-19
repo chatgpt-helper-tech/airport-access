@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月20日 05:01:35（北京时间）**
+🕒 更新时间：**2025年08月20日 05:08:39（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Justice Department is investigating whether D.C. police manipulated crime data - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxOR0w1VGhickZEb3ZtaGJtNGZZcDBpcF9pSXItZkVmQ1VxNXRRR2NYTllKVWZ1Z2otX2QtS2M4Ym4wbkJRT3FQX3g3OHNFZHVVUlB6cUw1NkM1aVZ0U01RMTNiNzcxMG1KeGItRWQyUTMzeC0xajh2YVRudmVzdkVlVlNKSjZMQmVsNDEzbG9HakJKamVsTk9KbTVBZTVqV21rUXdhS28wMGlpOUtTZ0xKZk1kbHlqVm1USmJBc3FxMUJQLXhBdVo2b19NQlBzZ9IBVkFVX3lxTE1zaUhEUFNiZG9faFZDWGJjZTJYUXRMRllUSURkZTdNWENnb3N2UzZ3dUpTMkRsQUlkRUNBN19CRFVlSklHRkVKOEtnY090d1VCOUZ6NURR?oc=5) |
 | Trump raises end to mail-in ballots after claiming Putin questioned their security - Axios | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTFBoNFkyZV9Sa3JBMkMyVjRLdEdMLUNDNENyMUVxdllCY2VwYnpDN3NWeGRzTEk2ZHFXNmpNOXlaM1BPWEJMbmFmemZRQmJ4cFpHZTVtemRvTWNra3NCSWhVVktReHNQQmhCT09r?oc=5) |
 | DC residents question troops’ focus on low-crime areas amid Trump takeover - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQUnlyYzFkT1ZZZFhSTGViVFdTT1ZrajJFMlVLRnlYeUpFT3JRdkowLWtCbGJrU2xHbEdsd01ISGdEUERIbldIUHRSXzRiMHpMc2VtUkRSWTBocUI0QkVlZGQ3OTdfMWltdjZPQ2x5QmNtQzFJc1hSNENRSVdmczM1bA?oc=5) |
-| White House eyes Budapest for peace talks with Zelenskyy and Putin - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxOU1RjblNyaVE2d1NRYzRJRElFRV9RUUFEeHQ3RWFrMXBFQ2RFc0RjY3B5bWlxN0FaNml6QjFNOW5DYWRGN085OGlRdE1qOWJ4UWd0WEJhRnY0OWU4LUhRV2E3WGw1WDExNXJXS0RIbEtnVXpQYlluaEhKTXdVSUNlTzNhcGE1R19FVWR5OUI1NTJUR1l0TmZMXzUtTnZhaFRFMXN0dUVzQ3BIOWRhbUtFZ191YmNnM0k0RkZSbE1BeGtWbUZW?oc=5) |
 | House panel to make Epstein files public after redactions to protect victim identities - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQdVBoU2k2SG1YbXdvRFM3aXdaSmhLanRSb3FyUlZzeTA1eDZNRGlKckRGcU5hakFLX3ZxN3pnSGtPRURzcEU1Ri10elFWT3lxc0otdjVuaEV6VWdPbEpvOEctc0ZVdnhESHhqVTBXV0NCSFRRSUU5V2tvNWlaY19iRE1EY9IBiAFBVV95cUxQUmY1ZzRHUFhNUkhsVGdaMkNqb2lhbjNJQ0djeTFpalg0RGdPMDBLTnNLVXU0WjRiZXdmdHA1aU5tR3JtUmRVaTBiWW16c3RwcFBualN1cThmRzFQSFJHMHl6cXVmeVRwS21fQXNfbDN4NGxpOGZEOGRPbVNOdzFYS1NjclMzN3Aw?oc=5) |
 | California Republicans File Suit Seeking to Block Newsom Redistricting Plan - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOeU5RaFFnejktU1NMWERLcmRsNGlCYW03N3dmSWVRZXQxMWtBNk5JM1FhbjB3S1RoNHc0bHlHazBsTHNmejM5Y2tkb2gxUzF0OW1vTDBSbzlUOTBNZzFQdjM1M1dIM3AyZndJMmk5QXNKRnpMdzJ6VjFKclc2OWZMVGYwdTk3dG4xcHI0d0lzOEI?oc=5) |
 | Rep. Nicole Collier spends night on Texas House floor after refusing police escort - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNZ2NyNXFMVnRJQldZNXRNUEtkR1ZpdEFlRENhZmEtRHBpc0Mwbi1ja28yMng3MzAxakpGSENmYlg5cUFtVnd6TDRhOVRpY2pvZExsMFhzeklLR3ZwVmVwVUhmSkZueUh6QVFMaUZzN2hmZ2t6bmlXeVNCNXowYklkaE5PNnZHUWswYVBFS3lRVzNfNjRxdjVDbTl6MGN2NDJE?oc=5) |
+| The Race to Rescue PBS and NPR Stations - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQTGlWNjBjVE9hWDhtSmJQVmk2bmVCUGVNTWk1VVN4cVF1WmUtanZxQTVFcjZOMzZ6NTRaUjI2aGpPeXlZNUxhY3lEWERYcF92N0NJeGcwOXdxMWlNYlZiaW8tTF9XUGhab2JFeUh5YXhlRkM1eXhlQ04xQ1RzYk1KTF9rckZGdHNMRVJyb1lvbERwQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
