@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 23:48:19（北京时间）**
+🕒 更新时间：**2025年08月19日 23:56:39（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | The War Room newsletter: Why Putin’s peace plan is more like poison - The Economist | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQdVNKcTFqQ3VOUnFYZHhKczVUSmNlQmlZNHRnSWY2Wjk1R1B2ZWNTMjZRSDV2ZFFpV2VneTYwcTY1bzJJOXRGY2Zqb0ZLd2N2R3NUeVNZeWJ5cXFzdlBMMjZQRnIxYVRvODlrVC1RV0dDRkxxZ3lDenltTE95TllrSGF3b0ZrUXVRMzFPM3hxOXhLWmFSbjlvdFNGblFKRFd5QkNHRFZXYXk1XzdsUmc?oc=5) |
 | Businesses face 'chaos' as EPA aims to repeal its authority over climate pollution - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOUUdXd2RCbllfcjRacVhJaHA5a25JX1ZWemI4RHBPaHBiUkhQbVJtS2toTUdwQk1ZWjdHS0prRTRsNE1jWGRTX1RYU0JpT0pqbENjV005YU1hYWFuel9TeDhBQ0ZvLTU4NjJmb3ZpOWx5MnlDZS1qbzN5bEo3bU82bVN6OUQ4RHlJckZsN0tIdFJVd1ZjRFhJNGlyV25USlE?oc=5) |
 | MSNBC’s Rebrand Invites Bemusement and Ridicule - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBfRXgwUXRGVG5Tb2FwMG45VGV4UlVCRnF1WXBJQVB0QnJQb0xvaXdMTHBTYktBVHdtTkZ4ZTBER3JpUzlsSzFUUUJXWENhMnRXOWxMOFJuLTB0OHRSX0J6NjZUVzZwUGF6aHNIajN1Uk5TdEp5cEZQckF3TF8?oc=5) |
-| Donald Trump says Ukraine security guarantee could include US air support - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1IaHhlaFFGSDI5WUdyZlZ2b0pteldqS20zamlmMlFYODdDVVpsM2RzU0htLXZsc0JLX2x2b1hOLWVXQWhOSjJ3SzEyQnVzT1B2ekhxdUpwTUszdUs0NjFQbTVVTDNPNHU0WEk4SGtrNjY?oc=5) |
+| Mediators await Israeli response to new Gaza ceasefire proposal - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5iZXI0WU55Z29vM2FfRkJZZ3BZY1Y4a19DMWg0RXMxc2RwUzFEclpjWjNoX2d5MlQ1dUNLNlJaLXdKcmdsQTR2UmVfNjZuVmJTazN5M2xTMi11QdIBX0FVX3lxTFA3c3JwQmdGSE54QUlRdnVrMWFyN1NqalluVHRIN0VfYVZ1RERQWTJxSWVuNEE3YmUybTVJUW9Qc3JqTEVIUHZpeFJ2T1JmTDE5TFRzcEQ4T3o1MGtmSm5n?oc=5) |
 | Powerball grows to $643 million jackpot after no one wins Monday - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOcFR1MloxUlA2dFBKY1pSSDFXU3JKb2ZBY01UdmQ1RFoxcUdqX0kwYl9TeVdidUFrbnlkVmMtZkFPNHRXcnRpbkdZVDE0UXhhMk1LQ0RRTkFYNlY4VzNKcFl2WEQ4NmIxdV9WY3V6bU5mV0Z0T0hfb29UcHlQd09mV0JkUVlMYU1PLThMcVp2S2VKQ0F3Slk3azRlQ2dtZ3fSAaQBQVVfeXFMT1dodm9HRFR0cUNtUVZsWWE2ckt4ekFpNFkzTEVfN0Z3bXdLM0xIc2ctY09aaW5qMGk0bGJGVldfUTRDaFFTVjdZUjBjZ3NzN0FZVmdzcTJKRzRtb3QxaWd1Y09keWNNdmhqSHQyVHRHYzBKc081Tm05aDJQUERNaWZTNlNibFhCUjBzRlRDT3hEblNidVpGWWQxcjVzUGhJcnhuZjM?oc=5) |
 | Texas Democrats return to state as GOP presses on with redistricting - Axios | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOSDkzLU5waUhMOG9MUWZFZ1RFOXd4ejFCVTI2QzNUZTRmeGI5Q3VXa3lhVHM2eTZnT0dMNkhPZGRjSkRBUV92aXBZSUZKeFFXM1pyOGw2NldxRW40WVZUN053Sjlvbll2U0E2eGdrd3RhSUtsR05ZUWI5WEtZczd2SHRNSzVCRzJ6ek5OZXJYTENyNjRlQl9RUkZqdlViVVdFaURkVA?oc=5) |
 | The Politics of Crime Are Perilous for Left and Right Alike - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxON1hkYXVHVW15RGpPMmZNT1hMU0NnLUwwam8zeGdSbWJKVjFKT0p6ZGFIRHM4OWo3Ym5kcWs3SHVjREV6VWtvUDFQRmVXbVp0eWZQZkZPeE9seWg3eFk3bGswWWJ0d2tUOWhVOTF4VlNnZFl1eFFpLWdQNnlpNjBOamhBV1g4UHR5UmpqVVhWWFRzWFJLNmZJSw?oc=5) |
