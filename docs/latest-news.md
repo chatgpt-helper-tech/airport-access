@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 12:25:56（北京时间）**
+🕒 更新时间：**2025年08月19日 12:33:26（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Donald Trump says US to ‘co-ordinate’ Ukraine’s security with Europe - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE0zekY0VjYta3BsbHI2LUlkQk91VGpGVktHblJ3U0xSTWJIOVJZY3daSmtLLXJlM3ZwU3JiRUdLLTJXSHc2ZklmSWtLOHZFU2k0WmtPLWF3R0FTRkh4WTYtcXprUjl2MGUwV28wckRyOWE?oc=5) |
 | 3 more GOP governors authorize deployment of National Guard troops as part of Trump show of force - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNY0d4MkdnZEs2bGVxVk92Z0tfWlpoMkE1MThIRWswREZSUk1fRTNyd2hjWTE0ZHNxblplRmt4R3NmYm9GTVpFdGx3ODlSeEwyOEdJNW1nN3V2TlNaZFdxaUs1endXendOeW41djVpbjFSbnhSTHo1cHJsaVN3ZVFpVTFJeDU1Nk1HSGZkMXkzdkE1MU9tS3V6dTBVdzFZNngwVnpMY1U0aWZVWWgwNVdNWk9B?oc=5) |
 | Kohberger's sexist, creepy behavior alarmed university faculty and students before Idaho murders - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPTTZSZ1oxSDNlX0k0b1dkd1lERXloM3VSYmFrRjJRZUE1TVF3UUcwLUNKRVdyNXpxaDBaS1ZudDViOTR2LUl2NHNQbUJBUGRLT0FvOUhrbF9CNnlVRFNLVU9iU0RhbWpQTGQtaktBV1AxeUpVM3lScmVGVzRyUTBPYl9iQWZrT1FRbHNGLU54Vkx2RWxVVHR0SXptSVl4N2lNTzdsYkNkQQ?oc=5) |
-| Newsmax to pay $67M to settle defamation lawsuit from voting machine company - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNZ01lOWQ1ajRfNVJWWkkzZU42NllXZ1RUNVRXLW94Q3JoMWE0aXdDcndsbDY3MTJ2cTh0d1hXdVNOS3E3ODBPWTduRE1Yc3BMQXFKY2RPQWlxYjNFLTRTNnd6S0pVM1BmV3JmLU4zQmlPQ0hvcnpRN1ZEZjJ6MHJ3RG1mVXd1RzhiQ3NWVVdGZWszVEM1UDV1Q3Z1S1NiM054czdoRjhsXy1wbFVwTGRPcTRB0gFWQVVfeXFMTmxycGFLRGJuSldsRVQ5bjlXZFg1SndfVElHN3p0VGdJZzZTQTRNbE5nMFlwUFE3cFBYdV9keVRDT2lPV0dGRmw3dkh5c0xMV3g2eDNhZUE?oc=5) |
-| The "6 wars" Trump says he ended and their current status - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE94ZlZlaEluYzNidDZadFdFS2ZUc0hXQzFZbnFrbFNqR3B3VFNzd1lLZmcwZjdCbjAtQ2pBX0kzMzFCX1g4Zmc3Z0R6X1hncEI5U1NJTEtEOEF1ODZpUWFtWUtBWVI4OWh4eGR6TjVuX3RqQUZnRlpBcUtmWDdVSG8?oc=5) |
+| Newsmax Will Pay $67 Million to Settle Dominion Defamation Lawsuit - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPTkcxaDBYU0JGQUtCRVhYRzduamhzRWlVU2otMmdqUGRRWjRNcEQweW45WUFRTTNBa2VmWlNFQXE1RDJPUFBvYkVRNXY4LVNoWVVvU1R3UFM5dGxIZlMyMnFnZ3ZMR3k2c2JQWFpKbWkwc3FmS1BGVFh0QkdWUXdmQUZTUzdxR19KSGxCS0FEbEVub240cnpySEZhci1CYlRaSmxF?oc=5) |
 | Why many Nevadans are contending with worsening food insecurity: "They have no choice at all" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE9lWWhWQWpBYnVjTG54cmFDQURaZWlDVVNmbWY1b2J1UV9yOVo2VDhjSkNiVnpTQWE0Y1JsSGpTVl82bkZodjBFQzBtbmY0T0gtcFNEZVUweUQ5bTVXVHZHNlhCM3BFTWx2ZGxB0gFwQVVfeXFMUDNtTmRobm1aenRSdTJRUUlkTWoydEttdEczRHFLZGY4REgxWE1EVEtfTGlnSWlZanZaZjFDQ1ozaklVQ1V3YUxlUjk2UWhlbWJ1TjhwaUcyVVdkWTBMZVBabDFwQWlhUkNIYklmdVlOWg?oc=5) |
+| Inside Week 1 of Trump’s ‘hostile takeover’ of D.C. police - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOM0w5cnV3eFZrYV94RllKTU82N2wxdGVianI0Sll0cjNYZUFJV2RqMWM1MHFtanFSSU5CcExiNlF2OXEzZXZVLXlqTXdCVWl6NEViWmZ1Q1NUdjFLOTZZc3lleUNoNnJmOTNsTTdLa0ZoUEw5T0R2dHQ1ZmwwMlpFb2dvWTl0eXpXOTZKNXp6RHE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
