@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 18:25:51（北京时间）**
+🕒 更新时间：**2025年08月19日 18:33:39（北京时间）**
 
 ---
 
@@ -13,9 +13,9 @@
 | I was sexually assaulted on a plane - now I'm fighting for compensation | [阅读全文](https://www.bbc.com/news/articles/cly6g2j67rko?at_medium=RSS&at_campaign=rss) |
 | Stop children using VPNs to watch porn, ministers told | [阅读全文](https://www.bbc.com/news/articles/cn438z3ejxyo?at_medium=RSS&at_campaign=rss) |
 | UK backs down in Apple privacy row, US says | [阅读全文](https://www.bbc.com/news/articles/cdj2m3rrk74o?at_medium=RSS&at_campaign=rss) |
-| BBC delayed Ozzy Osbourne film due to 'family's wishes' | [阅读全文](https://www.bbc.com/news/articles/c2kz8gvkjn5o?at_medium=RSS&at_campaign=rss) |
+| Son of Norway's crown princess charged with rape and abuse | [阅读全文](https://www.bbc.com/news/articles/cvg3ke05355o?at_medium=RSS&at_campaign=rss) |
 | Morecambe appoint first Sikh manager at professional football club | [阅读全文](https://www.bbc.com/sport/football/articles/cwygp4y1e81o?at_medium=RSS&at_campaign=rss) |
-| Hepworth sculpture to remain in UK after £3.8m raised | [阅读全文](https://www.bbc.com/news/articles/c3dpm2l4pkeo?at_medium=RSS&at_campaign=rss) |
+| BBC delayed Ozzy Osbourne film due to 'family's wishes' | [阅读全文](https://www.bbc.com/news/articles/c2kz8gvkjn5o?at_medium=RSS&at_campaign=rss) |
 | Entire church begins two-day journey across Swedish city | [阅读全文](https://www.bbc.com/news/articles/cde3xp4xlw9o?at_medium=RSS&at_campaign=rss) |
 | Starmer hails breakthrough on Ukraine - but anxiety over its future remains | [阅读全文](https://www.bbc.com/news/articles/cr5rl6y04z0o?at_medium=RSS&at_campaign=rss) |
 
