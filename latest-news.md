@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月20日 03:16:39（北京时间）**
+🕒 更新时间：**2025年08月20日 03:24:15（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | As DOJ threatens WA over sanctuary laws, state officials double down on protections - KUOW | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOenRsckI1RFVqTlFMaUFMMWgyaTZ6aFlEUnlodXgtZDFaWC1YcEpxMkpudTdhNkc3WmM1VW1EYks3NThMYm5qUzRibFVfek5qMEJQN0dHX2RLVG5EVUZ6N18wSGxiZVE4WGlaY1NpOUViVnFpcDZEdVRQWGhwaGJSWTJpRy11eDNwckctNmlwNng3eE9RUVRIbzQwWGh6eVpNNzk4NnQwNXU?oc=5) |
 | In Battle Over D.C. Police, Federal Prosecutors Open Inquiry Into Crime Data - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOVHNkajY0Rmp0dVpPUDZRaW4wbUR1bGsxTmpSMUt0RUZqYWRiY1JZckFMQkpOc0Y2QURjcVRYLUtiVUp6SndZNFRuUDZmQkM0UGpoamI2R2tzMVZkM2dNVjRHTmk1d0NRNlFiSzliekktUUdCTFdFUTRad3FDQkxnaEViS09QMmpfTWwwT2xwTQ?oc=5) |
 | White House eyes Budapest for peace talks with Zelenskyy and Putin - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxOU1RjblNyaVE2d1NRYzRJRElFRV9RUUFEeHQ3RWFrMXBFQ2RFc0RjY3B5bWlxN0FaNml6QjFNOW5DYWRGN085OGlRdE1qOWJ4UWd0WEJhRnY0OWU4LUhRV2E3WGw1WDExNXJXS0RIbEtnVXpQYlluaEhKTXdVSUNlTzNhcGE1R19FVWR5OUI1NTJUR1l0TmZMXzUtTnZhaFRFMXN0dUVzQ3BIOWRhbUtFZ191YmNnM0k0RkZSbE1BeGtWbUZW?oc=5) |
-| Trump Energy secretary: ‘We’re going to get blamed’ for rising power prices — but they’re Democrats’ fault - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOUmxqMEZ6VU92QUtsYkU0M3dvd2xDWTBEVG4xSkJxSG9iamd2UXhRVlVsako2WFJicnpqRGw4WFVhR0RGQ2x6dzBMWGRTdHZTWUhwUWFWQmhVUVU2eVFWZzBBMDlEV1FnQThTREFxcWthVTBia2Z3UnlmSWc0UjdSUg?oc=5) |
+| Trump tariffs and green energy rollbacks push household electricity bills up 10% - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQemtzdlhQcG1JY0dHUUYxNTRIQzRfYzQtc3dwVVZHMzJ3NlV1eVlHQVNDcXA1TG90LUQ2T2MyRUs4NDlWYTM3WFNsMVR4LUZaVzg2elhPYXhIbDJ0R1lEZWlJTVNLbmhlOF9faUNOaW1kZmNoNXVsdF9oS0hYQldiQnlNbXExOVk?oc=5) |
 | Air Force chief abruptly retires early in latest Pentagon shakeup - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQUmFCYTV5YzlvdDdJMGhwSkd4MjBwMDBqbmhjN3RRS0N0WFVja0tPN2NhUFd2VDZZQ1RqMzFGS29zUUt2ZklESDg1WElWUFY0WVZoVHJIdGwtU000eURXbm55U3RPOUtlNDRKWTJONVZGNDlycTMtSlpLRFpDc0tkRWVJM3I3ZDBfZHYw0gGQAUFVX3lxTE9MSktmWXJwNEN2UWR6bEk3SERCRmlJOUFSQ2RXU1AtZDEzTUNtTjFOSGs5XzZBNThXYXdMa1dkb19fNTVzMjdZZERHb1U2bnVKdGp2NW44aVpaRzdDODFfRVVDZFZNRE1aZW9fOUpBMEw2NnhyMkxPQXJCRm1HVTVERTlaeXF2Z0xWSDdFUjNVQg?oc=5) |
 
 ---
