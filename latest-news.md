@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月20日 02:32:01（北京时间）**
+🕒 更新时间：**2025年08月20日 02:41:44（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | People buying less fast food as grocery prices remain high | [阅读全文](https://www.bbc.com/news/articles/c5y042g11yvo?at_medium=RSS&at_campaign=rss) |
 | I was sexually assaulted on a plane - now I'm fighting for compensation | [阅读全文](https://www.bbc.com/news/articles/cly6g2j67rko?at_medium=RSS&at_campaign=rss) |
 | Watch: London Zoo's capybaras and tortoises on weigh-in day | [阅读全文](https://www.bbc.com/news/videos/c6267d6ng02o?at_medium=RSS&at_campaign=rss) |
-| Women's Rugby World Cup final at Twickenham sells out with record crowd expected | [阅读全文](https://www.bbc.com/sport/rugby-union/articles/cwy597y87dxo?at_medium=RSS&at_campaign=rss) |
+| Son of Norway's crown princess charged with rape and abuse | [阅读全文](https://www.bbc.com/news/articles/cvg3ke05355o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Hurricane Erin update: Forecast sees huge storm moving closer to U.S. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOeV81SmNfZGM2bnFCM1V3Vnk1RUhCUDNKdHdTN0xmRW1PYUpSUk9PVmxORElnSkhzbjdGLVMxei0yY1MzNkhpaWM1bzUyREs4U0pTQjc5QmJ6NlFlTmtWcFREM05rNDV2Q3NTTUZpSUZVVF9FdElDbC1RTExaZXZfYVl0ZWhfZ0ZycF9FLW55d2dkUHV5UlE?oc=5) |
 | Trump rules out sending US troops to Ukraine as part of security guarantees - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5xZG92aktaTUYyY1FVYnFCRXBHd2JzaHJlUkxOU3IyX1FKdmNPVVVkUlpSdHhtZnh0Rjg2aE5vOFA1eG91OGlDLWJ2N2dpWFNKdEs4aw?oc=5) |
-| White House eyes Budapest for peace talks with Zelenskyy and Putin - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxOU1RjblNyaVE2d1NRYzRJRElFRV9RUUFEeHQ3RWFrMXBFQ2RFc0RjY3B5bWlxN0FaNml6QjFNOW5DYWRGN085OGlRdE1qOWJ4UWd0WEJhRnY0OWU4LUhRV2E3WGw1WDExNXJXS0RIbEtnVXpQYlluaEhKTXdVSUNlTzNhcGE1R19FVWR5OUI1NTJUR1l0TmZMXzUtTnZhaFRFMXN0dUVzQ3BIOWRhbUtFZ191YmNnM0k0RkZSbE1BeGtWbUZW?oc=5) |
+| House panel to make Epstein files public after redactions to protect victim identities - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQdVBoU2k2SG1YbXdvRFM3aXdaSmhLanRSb3FyUlZzeTA1eDZNRGlKckRGcU5hakFLX3ZxN3pnSGtPRURzcEU1Ri10elFWT3lxc0otdjVuaEV6VWdPbEpvOEctc0ZVdnhESHhqVTBXV0NCSFRRSUU5V2tvNWlaY19iRE1EYw?oc=5) |
 | As DOJ threatens WA over sanctuary laws, state officials double down on protections - KUOW | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOenRsckI1RFVqTlFMaUFMMWgyaTZ6aFlEUnlodXgtZDFaWC1YcEpxMkpudTdhNkc3WmM1VW1EYks3NThMYm5qUzRibFVfek5qMEJQN0dHX2RLVG5EVUZ6N18wSGxiZVE4WGlaY1NpOUViVnFpcDZEdVRQWGhwaGJSWTJpRy11eDNwckctNmlwNng3eE9RUVRIbzQwWGh6eVpNNzk4NnQwNXU?oc=5) |
 | Rep. Nicole Collier spends night on Texas House floor after refusing police escort - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNZ2NyNXFMVnRJQldZNXRNUEtkR1ZpdEFlRENhZmEtRHBpc0Mwbi1ja28yMng3MzAxakpGSENmYlg5cUFtVnd6TDRhOVRpY2pvZExsMFhzeklLR3ZwVmVwVUhmSkZueUh6QVFMaUZzN2hmZ2t6bmlXeVNCNXowYklkaE5PNnZHUWswYVBFS3lRVzNfNjRxdjVDbTl6MGN2NDJE?oc=5) |
 | Trump administration says driver in Florida crash was in US illegally, faults California policy - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNclJUOUZJMDAtOXlrS3lFZUNlemFvXzJIV1UtSXhmQVRJZTJhVzlLMUcwS1NoSS1QMUZaOEJUT2sxTkVNWkJ3M0Vjd0pncUM2YnQ1Y2ZnVmxPMGFZVVdoR29ONUVNYnBoT3N5MnFxZTVtWnBGaHVtU0VLblpPVkNlVWRRazN5elpISEx5WEQ1bkRwVEJxN201N3VaQ0hqQUhzeFFyVVZ6M1I3a3PSAbABQVVfeXFMT3BxYnZ4ZFUxaWI1MWhiNEJkTFh2SXFwalNfbWRWaFNLaDlZSVJET3Znd1JTNUV0VWY1ZGhRR1J3MmNJZ2xzZUtXLTV4ZFlpS2hENnNNMlVteDRvRUQ3OEUwSHFMT1NiNGhSemszd1pKaFhNZmhQS2ItOXZVUmpWWFZYcm5vcTZtUmg2N1hOMm5XUkZaU1pmRDNEdm15VFdDY21ZczB5WFNIZTVlRzRGMnA?oc=5) |
