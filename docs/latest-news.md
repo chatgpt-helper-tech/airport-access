@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月20日 06:56:43（北京时间）**
+🕒 更新时间：**2025年08月20日 07:01:39（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | Asylum seekers to be removed from Epping hotel after council wins High Court injunction | [阅读全文](https://www.bbc.com/news/articles/cy98gdnrl7lo?at_medium=RSS&at_campaign=rss) |
 | Practical and political pain for Home Office after hotel ruling | [阅读全文](https://www.bbc.com/news/articles/cy40wx73mwzo?at_medium=RSS&at_campaign=rss) |
 | Kremlin plays down Zelensky talks as Trump warns Putin may not 'want to make deal' | [阅读全文](https://www.bbc.com/news/articles/cn92e52rpjxo?at_medium=RSS&at_campaign=rss) |
-| Two summits later, Trump still faces tough obstacles in quest for peace in Ukraine | [阅读全文](https://www.bbc.com/news/articles/c776edpr10eo?at_medium=RSS&at_campaign=rss) |
+| What 'security guarantees' for Ukraine would actually mean | [阅读全文](https://www.bbc.com/news/articles/cx2qr08l1yko?at_medium=RSS&at_campaign=rss) |
 | Israel demands release of all Gaza hostages, casting doubt on ceasefire proposal | [阅读全文](https://www.bbc.com/news/articles/cjeynvp409vo?at_medium=RSS&at_campaign=rss) |
 | Raducanu & Alcaraz out as polarising US Open event starts | [阅读全文](https://www.bbc.com/sport/tennis/articles/cd0d3497mlro?at_medium=RSS&at_campaign=rss) |
 | Oasis blown away by reunion, says Noel Gallagher | [阅读全文](https://www.bbc.com/news/articles/cdrk267ldy7o?at_medium=RSS&at_campaign=rss) |
@@ -31,8 +31,8 @@
 | Rep. Nicole Collier spends night on Texas House floor after refusing police escort - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNZ2NyNXFMVnRJQldZNXRNUEtkR1ZpdEFlRENhZmEtRHBpc0Mwbi1ja28yMng3MzAxakpGSENmYlg5cUFtVnd6TDRhOVRpY2pvZExsMFhzeklLR3ZwVmVwVUhmSkZueUh6QVFMaUZzN2hmZ2t6bmlXeVNCNXowYklkaE5PNnZHUWswYVBFS3lRVzNfNjRxdjVDbTl6MGN2NDJE?oc=5) |
 | Wu fires back at Bondi's demand to shed so-called 'sanctuary' policies, saying 'Boston will never back down' - WBUR | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPUEptdEFSa0ZnNFREYzZ6OTc4Q25USHNDd09HRk1pcmVKeVJFNzhiRmItQ2xhQnVsUjd1Rm5XcjMzX0pfdmpmMnFld3EwNDF3T2hPY09nWGkySFhHWXRoU3M2N1dhVDFaaDNYbkxYSWY4RW10SVg3NHM3WkNLX2ozU3Y0V1IzeDZqNGhpT01RU1JmdWZmbmRjcjBBQmh3WUlXcVdYRw?oc=5) |
 | USCIS to Consider Anti-Americanism in Immigrant Benefit Requests - USCIS (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOS01femZ2MGgyeUVVdDNzSjJmNDNDeEpvVHNDdDRTUjNOUHVhOHpjLTNQMGxNTXlGN1B1Q1NuU251ckNFQ1RwWWl3aFN3dm9QWC0yYkt0dzZYQlpMWm5xQXVRZHdVaGotakstRGdwLVRwRUhsZGFuRUpLMWRNdEFEOV9jWDltb3I0OHpZeFRRcnEzQWthNjJqT2FkUzZqNHUtb3RDYUNiN2FPNnozQmc?oc=5) |
-| Trump Administration Presses Idea of Potential Putin-Zelensky Meeting: Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1iVG1SdTk5bG1MNDhDVmlzR24ybGMtT19PZjNuc3o4djF6QUtZUjZSZU02Q2Q3SG1qZVFoX1pLa1ZPSFA5N0dnMXRzTGNCMHBldWpfd0ZZZDFjU3FlRm1Qb3U4b0tmTjAwZmJWd1dJcmZ6dkhGZm5zaXZtb0E?oc=5) |
 | House panel to make Epstein files public after redactions to protect victim identities - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQdVBoU2k2SG1YbXdvRFM3aXdaSmhLanRSb3FyUlZzeTA1eDZNRGlKckRGcU5hakFLX3ZxN3pnSGtPRURzcEU1Ri10elFWT3lxc0otdjVuaEV6VWdPbEpvOEctc0ZVdnhESHhqVTBXV0NCSFRRSUU5V2tvNWlaY19iRE1EY9IBiAFBVV95cUxQUmY1ZzRHUFhNUkhsVGdaMkNqb2lhbjNJQ0djeTFpalg0RGdPMDBLTnNLVXU0WjRiZXdmdHA1aU5tR3JtUmRVaTBiWW16c3RwcFBualN1cThmRzFQSFJHMHl6cXVmeVRwS21fQXNfbDN4NGxpOGZEOGRPbVNOdzFYS1NjclMzN3Aw?oc=5) |
+| California Republicans sue to pause Newsom's redistricting effort - Axios | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOeWVRNzhLQV9yS1ZRN0hTTzhuaTRzaHo0SkpqRm9leTlLeGVxWENVYTlLOGFsSjFNWWFITHRjTURCQzU1YUpUV1B2R0pfYmFiVF9uR0NtLUtrdjBHY0JEc0xrelN2b0NoNXJOSzcxeFNvRjFqMHEza0xYUm9ZXzZVRHFzdU9BcnJwNDJNcWdiRXQzSDFhUVVjT3Nad2JBMnpacEg1MW1wTQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。

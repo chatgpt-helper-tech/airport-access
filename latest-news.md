@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月20日 06:56:43（北京时间）**
+🕒 更新时间：**2025年08月20日 07:01:38（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | Asylum seekers to be removed from Epping hotel after council wins High Court injunction | [阅读全文](https://www.bbc.com/news/articles/cy98gdnrl7lo?at_medium=RSS&at_campaign=rss) |
 | Practical and political pain for Home Office after hotel ruling | [阅读全文](https://www.bbc.com/news/articles/cy40wx73mwzo?at_medium=RSS&at_campaign=rss) |
 | Kremlin plays down Zelensky talks as Trump warns Putin may not 'want to make deal' | [阅读全文](https://www.bbc.com/news/articles/cn92e52rpjxo?at_medium=RSS&at_campaign=rss) |
-| Two summits later, Trump still faces tough obstacles in quest for peace in Ukraine | [阅读全文](https://www.bbc.com/news/articles/c776edpr10eo?at_medium=RSS&at_campaign=rss) |
+| What 'security guarantees' for Ukraine would actually mean | [阅读全文](https://www.bbc.com/news/articles/cx2qr08l1yko?at_medium=RSS&at_campaign=rss) |
 | Israel demands release of all Gaza hostages, casting doubt on ceasefire proposal | [阅读全文](https://www.bbc.com/news/articles/cjeynvp409vo?at_medium=RSS&at_campaign=rss) |
 | Raducanu & Alcaraz out as polarising US Open event starts | [阅读全文](https://www.bbc.com/sport/tennis/articles/cd0d3497mlro?at_medium=RSS&at_campaign=rss) |
 | Oasis blown away by reunion, says Noel Gallagher | [阅读全文](https://www.bbc.com/news/articles/cdrk267ldy7o?at_medium=RSS&at_campaign=rss) |
