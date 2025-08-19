@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 18:17:42（北京时间）**
+🕒 更新时间：**2025年08月19日 18:25:50（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Zelensky Says He’s Ready to Meet Putin After Trump Talks - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1OdzNqdFppOUZkR2d0R0FpNHlKRHpoTVhwamlBY0V6X2JSYldLQ1hpZGpoQUZocDVnSUExWDVEeDBhb0p1SjUydXZEV1pJTklGTmtpTEF3eWNhQVpLbHotOEdaMGRhd1FLZzZZR21OMnZrSWV3SGNGa09VZw?oc=5) |
+| Trump calls Putin at White House summit to arrange talks with Zelensky - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5pSUFsSW1PSkhUMzdfM0hnRERVaDkzXy00c0t1bmhIajR4RG1RY0NFN1FCeVhnWkJpU0ZPdURWSnFaVGgwZkdTTFVYRTZ3WnpuNGhqcHRFVGl4RGtfbWVqdEJrUHRFLWx3UGV0dTV3b0R3cmxINHh4cVBLODUtUQ?oc=5) |
 | Hurricane Erin drives dangerous waves to East Coast as new tropical system brews in its wake - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQclVhZUFVV2tXdUl6ZFVjRUN6aVg0YUFEWU0tNkhablFvWWR1aEpZYUJWWjY5dDBGdXBaVmkwMG5kSFhYdklyTlBxMEdHSFlCRjZCY0wxTFlVN3lNUk05dVlCY0lEUUg0Ym1QN1RuTEhCQ2ZDQjcwY0M0TFRqb3lqeERuOTBTUTQ1b0JYTnhiakdKeVpD0gGaAUFVX3lxTE1qZGx5bDdnVnZzX2IxYkVQNFdLY01GN29kT0FkNThQUFBndmhxMjZVeExMMURHMkhka2FVLWg3WmRackFHTnp6ampSZjdBZjIzZmhrQ1VVcG16M2Q5RmtfWlpRSWhTOVZaLTFQR0xFZGh1TkxuZzRQNTJNWERINm9YZFlPNklBaGhZZlhfa1BEVnlGYjBxa0I3MXc?oc=5) |
-| FBI gets 2 co-deputy directors: Missouri AG tapped to serve alongside Bongino - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNMlZiOHM0WHZwdmVVYW1sd19TRU9qS1hWOEx0WFpUdldvQ3RZVkVhREpUenpYNjlsLVYyUUM0enBFWWJPNzZXcDBFZDREN2JnSWZsaXJhNWVaR1ZZZWlkcHFNZHFpVHpBVXV2SEU1VjFla3lESzlBS1lILW1jMmtKbQ?oc=5) |
 | The GOP spent millions supporting mail ballots. Now Trump’s attacking them again. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQRFV0U2VJMG1oX19TUGtfR1BNSUdzbjFDYmQwbWwtOG9VamJmRXFzUDVRM0NiMVhhYWRVYW9aUVo5QjNwMy1KUUhzRzM0ZEM3aHctc0pVVUxQYWhiaW1CRmVXRms2bU9pUTlBTGtiSi0zcVp1NGwwNldNelhld2s2SQ?oc=5) |
+| Andrew Bailey stepping down as Missouri attorney general for job in Trump administration - Missouri Independent | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxQbGtQMlhXdzlfU2Q0blFLb0hYQ3lrY1U0X3V6emZBV1lzT1ktU0Etd1FnSFpPYnQzdE1OVHZ5cFVMbWU0cE5iRmVIN2o2N1prM3JWdzBEZmd1ckQ0Xy1meldib3VsUktSQUlNeGxXSUdaVkJ1ZFl5WlFXQWVlTFpGV0ZVN2x2cEVTOEtWTVFRYkJZeWt0X0h5UWFhSGc1RjJPQjJObGszdzZRdU5WODFzbDlhaWJpdUo2RVM1Y2FUc2VnX3dlZjlPVlVVN1Q?oc=5) |
 | Putin’s “land swap” is really a grab for Ukraine’s fortress belt - The Economist | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPZHY0Q1pZMmZNVmRZX3Vyam9fdF9HVk9ob2tWeFRhZ2dJWkxPNl9YRjA3WmY0OWJJajRqUzd0WjdwTE1uS3I3WUFIeXQxVnp5eFNKWXdxbkZXQXZwbWRIdks4R0ZlTHozR1ItN1BfZ19nRkhDZ2tJdWs0amdxRW9EYlpWMnNPRXR6M3RSb3c3U2tnY0YyNVhsTjhDNkdQQWtoYnZjUjhsbw?oc=5) |
 | Fort Worth Rep. Nicole Collier remains on House floor after refusing escort: 'I refuse to sign away my dignity.' - WFAA | [阅读全文](https://news.google.com/rss/articles/CBMi7wFBVV95cUxQcS1ZODRaZ2F6VnFzUS1zSUYtbFdYYW4xT2ZIWWMyUU50WEJxNGVGOUdvdzhpV3puTHN1QlozWE9tY1puX0xKNUdib2lmckxhaE1iQ2szLTlfclotZWZBOG1lZmFNNVRyRFE4U2VlYXhCblJBVDlta0NYaDE0MGdvemtNWmNkNmMwcnRyZE1SMFRESmlyaEZUTlpqODBzNFVfYzZ5cnItTFpFc0kzS2tLbjZpVGR0a3ZocWV3Qno5Zk8zTEQ0X0FJQlo0bnZURmdPS3hYcjNKUGxYY2dPYVJWN2FmdXJ5UVdnSnM5WGxKSQ?oc=5) |
 | Bryan Kohberger's behavior alarmed university faculty and students before Idaho murders, documents show - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPZTRBNmdfbEhFamR6N2xURXZ6Zkl1RlhGUW5ZMl9fRTFQRUVFMUgwQ0E1ekZBVVhLcFRBdUl2d0JxbWxnV19jXzdqOVdXSC1weEFNaUZ1T3BTbm5UUlpfenJ2ZjRQTW1DQlU2SmNzSHdDSlk1TEtoVkFHS094UEYxb1NKYnN6SjMxUXpZZTlqT2VJdVBVVGtTdWZNZEVSOVVpd0U1anhYTmlhZXRFSVFHOdIBtgFBVV95cUxOS0FsWE1aa2w4Qmk4WGNjeGw5V1pxWU9pSFdXRnZnWFN4M1VnVTk3cWNja29RYk52OEcxM0FWVEVtaEhLeFpJN3BaQWhGQWRxWkRyb2FhVlowQTEydmpwOFBPWGJwVGxNSzlFX3ZBb3FJQW9CRVRmYnROMmtrVGtlSWhpb2F5dWJVZ2VqMHRSalFMbkZMWW9mYmJRMm9RdWF4Zm1GVFd6eTgwWXNIQ3VMT2VqZHBGdw?oc=5) |
