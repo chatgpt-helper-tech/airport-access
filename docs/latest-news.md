@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月20日 03:00:58（北京时间）**
+🕒 更新时间：**2025年08月20日 03:09:35（北京时间）**
 
 ---
 
@@ -25,9 +25,9 @@
 |--------|-------------|
 | Hurricane Erin update: Forecast sees huge storm moving closer to U.S. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOeV81SmNfZGM2bnFCM1V3Vnk1RUhCUDNKdHdTN0xmRW1PYUpSUk9PVmxORElnSkhzbjdGLVMxei0yY1MzNkhpaWM1bzUyREs4U0pTQjc5QmJ6NlFlTmtWcFREM05rNDV2Q3NTTUZpSUZVVF9FdElDbC1RTExaZXZfYVl0ZWhfZ0ZycF9FLW55d2dkUHV5UlE?oc=5) |
 | Trump rules out sending US troops to Ukraine as part of security guarantees - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5xZG92aktaTUYyY1FVYnFCRXBHd2JzaHJlUkxOU3IyX1FKdmNPVVVkUlpSdHhtZnh0Rjg2aE5vOFA1eG91OGlDLWJ2N2dpWFNKdEs4aw?oc=5) |
-| Rubio to lead Ukraine security guarantees talks, with Trump promising air support - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQdGxFQkY4cV9qNEFqU0ZjZ2ZQMV8wUF91cm11S3dBNUJZOGpSanptSVVFWWRfc3B6dElNWXBKUTk5ZVpldV9UdlA1NHAwekNlVXFFVHJ0LW0wUjBFdW1BZVpNa2pYZ1htcEk2TXNwZWtOelhvQk1LaE0wa2FiTEdSb2lVR2NqTVF3cEE?oc=5) |
-| House panel to make Epstein files public after redactions to protect victim identities - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQdVBoU2k2SG1YbXdvRFM3aXdaSmhLanRSb3FyUlZzeTA1eDZNRGlKckRGcU5hakFLX3ZxN3pnSGtPRURzcEU1Ri10elFWT3lxc0otdjVuaEV6VWdPbEpvOEctc0ZVdnhESHhqVTBXV0NCSFRRSUU5V2tvNWlaY19iRE1EYw?oc=5) |
+| Rep. Nicole Collier spends night on Texas House floor after refusing police escort - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNZ2NyNXFMVnRJQldZNXRNUEtkR1ZpdEFlRENhZmEtRHBpc0Mwbi1ja28yMng3MzAxakpGSENmYlg5cUFtVnd6TDRhOVRpY2pvZExsMFhzeklLR3ZwVmVwVUhmSkZueUh6QVFMaUZzN2hmZ2t6bmlXeVNCNXowYklkaE5PNnZHUWswYVBFS3lRVzNfNjRxdjVDbTl6MGN2NDJE?oc=5) |
 | President Trump Recaps Breakthroughs in Ukraine Peace Talks - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPbDhtYk5oNmRsVmpQYkFMYjNIMVlhVlBhOUhTTGhtRGxDLWRQX3FxT0ZpQ2w5X0hTMHFPLVNKTXhSeExjWUx6N01kQUpxUzJnbXVOUDAtekh0ZVFaZEVaWW9WMlQwU1NTdGZlMWRpWXZ5cnZTekxkdllyXzFJRXdPS05wOTl4amE5ZnVHQzAtbzVxQzFaTW94TVBJWmJhMUFkU2ZpeXVENA?oc=5) |
+| House panel to make Epstein files public after redactions to protect victim identities - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQdVBoU2k2SG1YbXdvRFM3aXdaSmhLanRSb3FyUlZzeTA1eDZNRGlKckRGcU5hakFLX3ZxN3pnSGtPRURzcEU1Ri10elFWT3lxc0otdjVuaEV6VWdPbEpvOEctc0ZVdnhESHhqVTBXV0NCSFRRSUU5V2tvNWlaY19iRE1EYw?oc=5) |
 | As DOJ threatens WA over sanctuary laws, state officials double down on protections - KUOW | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOenRsckI1RFVqTlFMaUFMMWgyaTZ6aFlEUnlodXgtZDFaWC1YcEpxMkpudTdhNkc3WmM1VW1EYks3NThMYm5qUzRibFVfek5qMEJQN0dHX2RLVG5EVUZ6N18wSGxiZVE4WGlaY1NpOUViVnFpcDZEdVRQWGhwaGJSWTJpRy11eDNwckctNmlwNng3eE9RUVRIbzQwWGh6eVpNNzk4NnQwNXU?oc=5) |
 | In Battle Over D.C. Police, Federal Prosecutors Open Inquiry Into Crime Data - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOVHNkajY0Rmp0dVpPUDZRaW4wbUR1bGsxTmpSMUt0RUZqYWRiY1JZckFMQkpOc0Y2QURjcVRYLUtiVUp6SndZNFRuUDZmQkM0UGpoamI2R2tzMVZkM2dNVjRHTmk1d0NRNlFiSzliekktUUdCTFdFUTRad3FDQkxnaEViS09QMmpfTWwwT2xwTQ?oc=5) |
 | Air Force chief abruptly retires early in latest Pentagon shakeup - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQUmFCYTV5YzlvdDdJMGhwSkd4MjBwMDBqbmhjN3RRS0N0WFVja0tPN2NhUFd2VDZZQ1RqMzFGS29zUUt2ZklESDg1WElWUFY0WVZoVHJIdGwtU000eURXbm55U3RPOUtlNDRKWTJONVZGNDlycTMtSlpLRFpDc0tkRWVJM3I3ZDBfZHYw0gGQAUFVX3lxTE9MSktmWXJwNEN2UWR6bEk3SERCRmlJOUFSQ2RXU1AtZDEzTUNtTjFOSGs5XzZBNThXYXdMa1dkb19fNTVzMjdZZERHb1U2bnVKdGp2NW44aVpaRzdDODFfRVVDZFZNRE1aZW9fOUpBMEw2NnhyMkxPQXJCRm1HVTVERTlaeXF2Z0xWSDdFUjNVQg?oc=5) |
