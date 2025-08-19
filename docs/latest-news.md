@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 10:56:17（北京时间）**
+🕒 更新时间：**2025年08月19日 11:00:40（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Donald Trump says US to ‘co-ordinate’ Ukraine’s security with Europe - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE0zekY0VjYta3BsbHI2LUlkQk91VGpGVktHblJ3U0xSTWJIOVJZY3daSmtLLXJlM3ZwU3JiRUdLLTJXSHc2ZklmSWtLOHZFU2k0WmtPLWF3R0FTRkh4WTYtcXprUjl2MGUwV28wckRyOWE?oc=5) |
 | Newsmax Will Pay $67 Million to Settle Dominion Defamation Lawsuit - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPTkcxaDBYU0JGQUtCRVhYRzduamhzRWlVU2otMmdqUGRRWjRNcEQweW45WUFRTTNBa2VmWlNFQXE1RDJPUFBvYkVRNXY4LVNoWVVvU1R3UFM5dGxIZlMyMnFnZ3ZMR3k2c2JQWFpKbWkwc3FmS1BGVFh0QkdWUXdmQUZTUzdxR19KSGxCS0FEbEVub240cnpySEZhci1CYlRaSmxF?oc=5) |
 | Inside Week 1 of Trump’s ‘hostile takeover’ of D.C. police - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOM0w5cnV3eFZrYV94RllKTU82N2wxdGVianI0Sll0cjNYZUFJV2RqMWM1MHFtanFSSU5CcExiNlF2OXEzZXZVLXlqTXdCVWl6NEViWmZ1Q1NUdjFLOTZZc3lleUNoNnJmOTNsTTdLa0ZoUEw5T0R2dHQ1ZmwwMlpFb2dvWTl0eXpXOTZKNXp6RHE?oc=5) |
-| Officials identify the two officers tragically killed in Tremonton shooting - KUTV | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOYkRYejg5Mmk0eDg1dkpGMGR4aHAwMmROZlkyWmdyd1lwZ2puWG5HR1JUdmhHeE5rOFlLSmxIbThndVhVSFJCN0RQdlhkVldhVlhGOEFNdWRXTk5DRWEtQVQ0S3hwdm42bzhKQUZfcmpGc2IwalZic0luUlFGQWhYLUlnRGJpa3FNSkF3dC1SeXlPRG5fbUJBZ0V5VFp4RFEzTWZ2a0hxd05DT245Umc?oc=5) |
+| 2 officers killed and a third is wounded in a Utah shooting, authorities say - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOY1dzOG9Kemlpd3I5RnZISXgxS0hNcnZxRF9LcDBFQkdXdWFJRUZXSDlUZGlvRjZEWkZPWU8tM3ZpN3UyNEFwb1NzQnpjMTlFckpkVjA4QVhLOXJPdTVtSVl2Z2tLVzF3SUtZU0NPNUpFaTRka25ERU1jUS04U3hzUVpkUmxnOF8wTFN0bXRFQm1Vd2IxZ3ZZc1RyaUF4T3B0?oc=5) |
 | In Surprise Move, Trump Taps Missouri Attorney General to Help Run F.B.I. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOY2ZWNmFDZUhPTmk0eUhOVE1CcFNrdlBralA2NFlBcndkWmluc1ZHV1NDRTBkSjRldy1zMGdXUFRzQkxna1ZOSlZfWUFVT0lOaUsySVdnbnF3MWQ3NmFMbHc1cU9VNEF0bWlXNVRjaHJrdnNpdVU3d3lOTG82R3A4ZDZOcno4emVY?oc=5) |
 
 ---
