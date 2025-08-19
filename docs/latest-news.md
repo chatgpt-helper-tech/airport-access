@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 17:00:41（北京时间）**
+🕒 更新时间：**2025年08月19日 17:09:51（北京时间）**
 
 ---
 
@@ -14,8 +14,8 @@
 | What results day is like when you're neurodivergent - and how parents can help | [阅读全文](https://www.bbc.com/news/articles/c99mn51ny02o?at_medium=RSS&at_campaign=rss) |
 | Stop children using VPNs to watch porn, ministers told | [阅读全文](https://www.bbc.com/news/articles/cn438z3ejxyo?at_medium=RSS&at_campaign=rss) |
 | UK backs down in Apple privacy row, US says | [阅读全文](https://www.bbc.com/news/articles/cdj2m3rrk74o?at_medium=RSS&at_campaign=rss) |
-| 'No-one comes for us': The women trapped in Afghanistan's mental health system | [阅读全文](https://www.bbc.com/news/articles/c80dg700dego?at_medium=RSS&at_campaign=rss) |
 | BBC delayed Ozzy Osbourne film due to 'family's wishes' | [阅读全文](https://www.bbc.com/news/articles/c2kz8gvkjn5o?at_medium=RSS&at_campaign=rss) |
+| Morecambe appoint first Sikh boss at professional club | [阅读全文](https://www.bbc.com/sport/football/articles/cwygp4y1e81o?at_medium=RSS&at_campaign=rss) |
 | Hepworth sculpture to remain in UK after £3.8m raised | [阅读全文](https://www.bbc.com/news/articles/c3dpm2l4pkeo?at_medium=RSS&at_campaign=rss) |
 | Entire church begins two-day journey across Swedish city | [阅读全文](https://www.bbc.com/news/articles/cde3xp4xlw9o?at_medium=RSS&at_campaign=rss) |
 
@@ -32,7 +32,7 @@
 | Zelenskyy wears military-style ‘suit’ to Trump summit - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNeGIxc2pBMDhjUU0wdjdfSHowRVRnZkZrYmlrbnZsTVpsR3FZWUJBMHgzckFiQXMwajRCcnNIX3Nwc1lnNW92SG1majJMd1dJRmRhdU1WbElDd2YtU2dULTBaQWFOc1NFdjI2NWJwWjF2b0FnVWo5TVNuTzVzXzF3dkNXeE5fMHRwMmtka2lPclI0YTdCNUNMYUpOTXJYdFA0NUE?oc=5) |
 | Security footage shows July 26 stabbing spree at Grand Traverse County Walmart - The Detroit News | [阅读全文](https://news.google.com/rss/articles/CBMi7AFBVV95cUxNNUNSdE5USF9YRE9DTE5OSkFHOXFSTnNoczhMb1ZOQU1lN2t1WFczMHJpV1ZITV9nazdDVlFSUlUyREZjQnFPeVR3SEJ0UFc1NUowRFlSV2g4cmp0c09EbzdzMHlQOEV1djhFdk1QNzhIMTkxV0s0ajI0RFB6QmpXZ1pMeU1QSkRQWE5nd0RpN1I0Znl2TWZoUHdtRlhUd09Mckl4dkFjblMwQWRTaW9ucnB1WTZpR05GdzQ0QkpFMlI2NndtVVNhWkd2Yk9Qc2RmeHpXbDNhNk1Ebjk1bkxLSFlwam85MGcxUHJjZw?oc=5) |
 | Why Donald Trump Is the World’s Worst Negotiator: Aide - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxON0s2V0NjdVNsbXdacGR0clcyZW9iZHdRajRXSElhNmNnWk1SZUxwRXZkVXpaUFR4QjNRNHhtN0w4UXNtWWdQaVdaSklxd2steWxHSmppOW01TGRaVnJKNVh3c1JtVG5OeWo3OXkyaHd3elQ2OFNfUjhoOEw2b3YwS0Zia21jQTFJbl9uTzU3aEVTb1dfNzU5aTlnQ2s3VDJjU0FyYVhjd2gtZVFiX1VsTGFR?oc=5) |
-| 3 more GOP governors authorize deployment of National Guard troops as part of Trump show of force - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNY0d4MkdnZEs2bGVxVk92Z0tfWlpoMkE1MThIRWswREZSUk1fRTNyd2hjWTE0ZHNxblplRmt4R3NmYm9GTVpFdGx3ODlSeEwyOEdJNW1nN3V2TlNaZFdxaUs1endXendOeW41djVpbjFSbnhSTHo1cHJsaVN3ZVFpVTFJeDU1Nk1HSGZkMXkzdkE1MU9tS3V6dTBVdzFZNngwVnpMY1U0aWZVWWgwNVdNWk9B?oc=5) |
+| Putin’s “land swap” is really a grab for Ukraine’s fortress belt - The Economist | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPZHY0Q1pZMmZNVmRZX3Vyam9fdF9HVk9ob2tWeFRhZ2dJWkxPNl9YRjA3WmY0OWJJajRqUzd0WjdwTE1uS3I3WUFIeXQxVnp5eFNKWXdxbkZXQXZwbWRIdks4R0ZlTHozR1ItN1BfZ19nRkhDZ2tJdWs0amdxRW9EYlpWMnNPRXR6M3RSb3c3U2tnY0YyNVhsTjhDNkdQQWtoYnZjUjhsbw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
