@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 09:24:52（北京时间）**
+🕒 更新时间：**2025年08月19日 09:33:57（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | Hurricane Erin: Storm surge watch is issued for North Carolina's Outer Banks - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNVk52T2FzM3laWllxajNIcnI0aDlTVU9tek95WkYtZE5OTFdEclJlMVBVeEZ3RFd5VkhZWXpnZjNnU1pIT2pqdDRSOXkyVzBQazBVc1JDLUh1WUFxNzFTbGZfeVNodTRiV3luTGJlRXNHM1NYZndIWWVwc0sxQldSN2FieENsbV9LbGJPcUFSMFkxbG0zOTZZZzNGUjg?oc=5) |
 | Trump says he will ‘lead a movement’ to eliminate mail-in voting - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPZnRhZGxuXzVzYTJRUG1rZ3FaeUNXZ2ZRNkJxc3hvb1JIN0VTdUlFRGxHVGhPeFdnOXExcXl2VF9GWFFiUVFrWHNJQWRGMVlHdE1Ja3cwUS1NdDB3VG9hd1BUaHVRU0hISFhkNi0xNXdfajlYdEo1Tzd3NEVZZ05kQWIxVE5NM3RBMVFPaGFNcnA5dw?oc=5) |
 | Versant to rename MSNBC, drop famed peacock logos in Comcast separation - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQNFlEUWIyUFpXS2dNaEUyZEpFckQtYnhWRXlVWVNfcHRxMkZnSm5WUWJZVGVMSkVBMHRXTDEtcXV0QmtMcWdnQ1A0NzAzaG5NbmlZTnBMUlA5Vnh6YVdtTkpkSnE1MUVQa1pYVXNEY0ZyYW5sOFhWOXFKcTBoSVZlUzFyWmRjd9IBiwFBVV95cUxPeVZDcGpoOExQcE9wQ091X210RVV0TWN5MVBybkRhQ0NPYlBYaEI4bV9ROUR1UG13WHJWZUF6aTUzTXJRZy1RUURoTXc1bktDS0VqYWdDcGlZUGxFU0hkYmtoWjNUeHRBMjR6VTRhVDNrb3BSWE5lRXBLNGpQV0poMXRsVFFJQVF3Q0Fj?oc=5) |
-| Republican Bid to Help Trump Move Past Epstein Falls Flat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQSDlFQ1pVTU0tVU4zeV96bHRWbWxjMXo5WWN5X3hhS29rT2ZBYnRLakpHRktEWVB6MmNBeURHa0NqcmxXazI4SHV1Z093dDZHT0NSaXJldHFPNHM4U2NpMTEtaVZfVUJ0T0k3bGJ3dXJLS3FtMjEtY2haSjMzYlJnY0E4UQ?oc=5) |
-| Ukraine offers $100bn weapons deal to Trump to win security guarantees - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1lVjNIS1hJTEZZWTJJZVh4dzJwY3FlQ0t5RERVdlRmdUNPZGd6NFB0MUpWQXV1dGlaQk1Na1psNHZDZFlndkNmdUd1OHZjaHRaVmU0WGw3OHRaUVoxNnRMZzJTNFU3VzU2Zkl6ME5wTHE?oc=5) |
+| Trump calls Putin at White House summit to arrange talks with Zelensky - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5pSUFsSW1PSkhUMzdfM0hnRERVaDkzXy00c0t1bmhIajR4RG1RY0NFN1FCeVhnWkJpU0ZPdURWSnFaVGgwZkdTTFVYRTZ3WnpuNGhqcHRFVGl4RGtfbWVqdEJrUHRFLWx3UGV0dTV3b0R3cmxINHh4cVBLODUtUQ?oc=5) |
+| Texas Democrats End Walkout Over Redistricting, Allowing Redrawn Map to Pass - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPMkhfa3NYeElrNzVMSXl2cGowNkdYQkVBV1RwSGxwLWlidENkQlNmLXZEN1MzTk5udThFdWowMVptUnVrMm5yNHNXMl9ZVndVVHdWRnhWV2pLNXJ4NmZYX1dVdlhlRVJpYjN1T0t1RllJRzVPTTRjX1V2bXdEODRGQ0Fn?oc=5) |
 | Newsmax Will Pay $67 Million to Settle Dominion Defamation Lawsuit - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPTkcxaDBYU0JGQUtCRVhYRzduamhzRWlVU2otMmdqUGRRWjRNcEQweW45WUFRTTNBa2VmWlNFQXE1RDJPUFBvYkVRNXY4LVNoWVVvU1R3UFM5dGxIZlMyMnFnZ3ZMR3k2c2JQWFpKbWkwc3FmS1BGVFh0QkdWUXdmQUZTUzdxR19KSGxCS0FEbEVub240cnpySEZhci1CYlRaSmxF?oc=5) |
-| Texas Republicans’ redistricting map: How the GOP could increase its stronghold. - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOa1lJZXphWlZxQ19WckwtaG5iYzJjQXNFQ01mM3BNTU9tS3hGTnhxUFppVTJ2N3oxN3ZCZHY2V1pfaHJNcXZzYjFFanVIWWxOamVnS2ItdzRqNHpnREN0SGVJYTUzeHV3dWJ2dGowZkhrT3E3UmZQT2VTcmhtOHpQbV9UNFp6WnJr?oc=5) |
+| The "6 wars" Trump says he ended and their current status - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE94ZlZlaEluYzNidDZadFdFS2ZUc0hXQzFZbnFrbFNqR3B3VFNzd1lLZmcwZjdCbjAtQ2pBX0kzMzFCX1g4Zmc3Z0R6X1hncEI5U1NJTEtEOEF1ODZpUWFtWUtBWVI4OWh4eGR6TjVuX3RqQUZnRlpBcUtmWDdVSG8?oc=5) |
+| 2 officers killed and a third is wounded in a Utah shooting, authorities say - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOY1dzOG9Kemlpd3I5RnZISXgxS0hNcnZxRF9LcDBFQkdXdWFJRUZXSDlUZGlvRjZEWkZPWU8tM3ZpN3UyNEFwb1NzQnpjMTlFckpkVjA4QVhLOXJPdTVtSVl2Z2tLVzF3SUtZU0NPNUpFaTRka25ERU1jUS04U3hzUVpkUmxnOF8wTFN0bXRFQm1Vd2IxZ3ZZc1RyaUF4T3B0?oc=5) |
 | Andrew Bailey stepping down as Missouri attorney general for job in Trump administration - Missouri Independent | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxQbGtQMlhXdzlfU2Q0blFLb0hYQ3lrY1U0X3V6emZBV1lzT1ktU0Etd1FnSFpPYnQzdE1OVHZ5cFVMbWU0cE5iRmVIN2o2N1prM3JWdzBEZmd1ckQ0Xy1meldib3VsUktSQUlNeGxXSUdaVkJ1ZFl5WlFXQWVlTFpGV0ZVN2x2cEVTOEtWTVFRYkJZeWt0X0h5UWFhSGc1RjJPQjJObGszdzZRdU5WODFzbDlhaWJpdUo2RVM1Y2FUc2VnX3dlZjlPVlVVN1Q?oc=5) |
-| Why is Donbas region becoming a defining faultline in Ukraine talks? - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQM2hzalRZU2U4RGdRcWJUYVBYVUhVeVZ4eFZULW1LcENXVkxZeUllZ005MnVqeTY3UHlEUExkZkFfbjJGZW1qTHRRWENRbVIxVWU4WTNvVk1BcndiMnVqd1JPbnlXazB2a00tT0cydENuLVJJWHVOa09VMUgyc0F1bk1CSEx3M1ZYZHZNWjBEdC1lWjdHUFlBWWYtYWRuUjVfaXJuT2p1OVc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
