@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 15:41:48（北京时间）**
+🕒 更新时间：**2025年08月19日 15:49:31（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Bryan Kohberger's behavior alarmed university faculty and students before Idaho murders, documents show - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPZTRBNmdfbEhFamR6N2xURXZ6Zkl1RlhGUW5ZMl9fRTFQRUVFMUgwQ0E1ekZBVVhLcFRBdUl2d0JxbWxnV19jXzdqOVdXSC1weEFNaUZ1T3BTbm5UUlpfenJ2ZjRQTW1DQlU2SmNzSHdDSlk1TEtoVkFHS094UEYxb1NKYnN6SjMxUXpZZTlqT2VJdVBVVGtTdWZNZEVSOVVpd0U1anhYTmlhZXRFSVFHOdIBtgFBVV95cUxOS0FsWE1aa2w4Qmk4WGNjeGw5V1pxWU9pSFdXRnZnWFN4M1VnVTk3cWNja29RYk52OEcxM0FWVEVtaEhLeFpJN3BaQWhGQWRxWkRyb2FhVlowQTEydmpwOFBPWGJwVGxNSzlFX3ZBb3FJQW9CRVRmYnROMmtrVGtlSWhpb2F5dWJVZ2VqMHRSalFMbkZMWW9mYmJRMm9RdWF4Zm1GVFd6eTgwWXNIQ3VMT2VqZHBGdw?oc=5) |
 | Zelensky Suits Up for Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE45cnB1SUwzM2d6UDBkdXJ3WE15WnVoQjUweVA3YVR3X05DdUF6UWs5ZEtmS3FCMk1kcXZoTmpTTHlQWUFaUEhxdU1QNS1SVGRqbmlKWG9jUDNEbE9HcmgtY3hnSmllbENGdDN0LXVKTWV6cVNCV2tSWjR3?oc=5) |
 | Security footage shows July 26 stabbing spree at Grand Traverse County Walmart - The Detroit News | [阅读全文](https://news.google.com/rss/articles/CBMi7AFBVV95cUxNNUNSdE5USF9YRE9DTE5OSkFHOXFSTnNoczhMb1ZOQU1lN2t1WFczMHJpV1ZITV9nazdDVlFSUlUyREZjQnFPeVR3SEJ0UFc1NUowRFlSV2g4cmp0c09EbzdzMHlQOEV1djhFdk1QNzhIMTkxV0s0ajI0RFB6QmpXZ1pMeU1QSkRQWE5nd0RpN1I0Znl2TWZoUHdtRlhUd09Mckl4dkFjblMwQWRTaW9ucnB1WTZpR05GdzQ0QkpFMlI2NndtVVNhWkd2Yk9Qc2RmeHpXbDNhNk1Ebjk1bkxLSFlwam85MGcxUHJjZw?oc=5) |
-| Donald Trump says US to ‘co-ordinate’ Ukraine’s security with Europe - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE0zekY0VjYta3BsbHI2LUlkQk91VGpGVktHblJ3U0xSTWJIOVJZY3daSmtLLXJlM3ZwU3JiRUdLLTJXSHc2ZklmSWtLOHZFU2k0WmtPLWF3R0FTRkh4WTYtcXprUjl2MGUwV28wckRyOWE?oc=5) |
+| Why Donald Trump Is the World’s Worst Negotiator: Aide - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxON0s2V0NjdVNsbXdacGR0clcyZW9iZHdRajRXSElhNmNnWk1SZUxwRXZkVXpaUFR4QjNRNHhtN0w4UXNtWWdQaVdaSklxd2steWxHSmppOW01TGRaVnJKNVh3c1JtVG5OeWo3OXkyaHd3elQ2OFNfUjhoOEw2b3YwS0Zia21jQTFJbl9uTzU3aEVTb1dfNzU5aTlnQ2s3VDJjU0FyYVhjd2gtZVFiX1VsTGFR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
