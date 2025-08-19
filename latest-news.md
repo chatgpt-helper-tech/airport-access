@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 16:49:14（北京时间）**
+🕒 更新时间：**2025年08月19日 16:57:43（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | Stop children using VPNs to watch porn, ministers told | [阅读全文](https://www.bbc.com/news/articles/cn438z3ejxyo?at_medium=RSS&at_campaign=rss) |
 | UK backs down in Apple privacy row, US says | [阅读全文](https://www.bbc.com/news/articles/cdj2m3rrk74o?at_medium=RSS&at_campaign=rss) |
 | 'No-one comes for us': The women trapped in Afghanistan's mental health system | [阅读全文](https://www.bbc.com/news/articles/c80dg700dego?at_medium=RSS&at_campaign=rss) |
-| 'Ketamine Queen' to plead guilty in Matthew Perry overdose case | [阅读全文](https://www.bbc.com/news/articles/c62wnp7622po?at_medium=RSS&at_campaign=rss) |
+| BBC delayed Ozzy Osbourne film due to 'family's wishes' | [阅读全文](https://www.bbc.com/news/articles/c2kz8gvkjn5o?at_medium=RSS&at_campaign=rss) |
 | Hepworth sculpture to remain in UK after £3.8m raised | [阅读全文](https://www.bbc.com/news/articles/c3dpm2l4pkeo?at_medium=RSS&at_campaign=rss) |
 | Entire church begins two-day journey across Swedish city | [阅读全文](https://www.bbc.com/news/articles/cde3xp4xlw9o?at_medium=RSS&at_campaign=rss) |
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump calls Putin at White House summit to arrange talks with Zelensky - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5pSUFsSW1PSkhUMzdfM0hnRERVaDkzXy00c0t1bmhIajR4RG1RY0NFN1FCeVhnWkJpU0ZPdURWSnFaVGgwZkdTTFVYRTZ3WnpuNGhqcHRFVGl4RGtfbWVqdEJrUHRFLWx3UGV0dTV3b0R3cmxINHh4cVBLODUtUQ?oc=5) |
+| Zelensky says he's ready for Putin talks as Europe welcomes Trump's security guarantees - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5xZG92aktaTUYyY1FVYnFCRXBHd2JzaHJlUkxOU3IyX1FKdmNPVVVkUlpSdHhtZnh0Rjg2aE5vOFA1eG91OGlDLWJ2N2dpWFNKdEs4aw?oc=5) |
 | The GOP spent millions supporting mail ballots. Now Trump’s attacking them again. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQRFV0U2VJMG1oX19TUGtfR1BNSUdzbjFDYmQwbWwtOG9VamJmRXFzUDVRM0NiMVhhYWRVYW9aUVo5QjNwMy1KUUhzRzM0ZEM3aHctc0pVVUxQYWhiaW1CRmVXRms2bU9pUTlBTGtiSi0zcVp1NGwwNldNelhld2s2SQ?oc=5) |
-| Hurricane Erin threatens US East Coast with life-threatening waves - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1tXzZzR3VvMTdGS2NpLXZkTTlVVDVaX1ZCTFpUQml4aVFZclBud1RWNTg5c2NxcktnUUtwcnFMSzBoazc0cDJFbklyVGRNMTZCWkpibnI0MEcxUdIBX0FVX3lxTE1DRThuRHJXQ3BYVzUtbTNIV1k5eWdZcjMyeVNHdVBIN1pPUlZocmRmbTZPLTRHVWJyTkpFeWFDOERtQUhWcmRlZEVfYmNoX0tmMko0RVpYeGs5OWo2V0g4?oc=5) |
+| U.S. East Coast faces "life-threatening" wave threats from Hurricane Erin - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPSGpra0RxNVlQMi1BaGJoRVp5TmZ0c0ZkR3MwNXRTXzJfTTVHZHcxQVN5akdXNTlrOEhtWk5GZDBremtVb2JnUzNBYU9aWk9GcFdYcTUwSTZKQk5KQWtfc3hWZllQYnlsNElMMFZ0eVZ4cG5vdDNYdVZfZlVTNzNZR1ZBRzBoOGt1RTZMNWJsNVFUdmc?oc=5) |
 | Fort Worth Rep. Nicole Collier remains on House floor after refusing escort: 'I refuse to sign away my dignity.' - WFAA | [阅读全文](https://news.google.com/rss/articles/CBMi7wFBVV95cUxQcS1ZODRaZ2F6VnFzUS1zSUYtbFdYYW4xT2ZIWWMyUU50WEJxNGVGOUdvdzhpV3puTHN1QlozWE9tY1puX0xKNUdib2lmckxhaE1iQ2szLTlfclotZWZBOG1lZmFNNVRyRFE4U2VlYXhCblJBVDlta0NYaDE0MGdvemtNWmNkNmMwcnRyZE1SMFRESmlyaEZUTlpqODBzNFVfYzZ5cnItTFpFc0kzS2tLbjZpVGR0a3ZocWV3Qno5Zk8zTEQ0X0FJQlo0bnZURmdPS3hYcjNKUGxYY2dPYVJWN2FmdXJ5UVdnSnM5WGxKSQ?oc=5) |
 | Bryan Kohberger's behavior alarmed university faculty and students before Idaho murders, documents show - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPZTRBNmdfbEhFamR6N2xURXZ6Zkl1RlhGUW5ZMl9fRTFQRUVFMUgwQ0E1ekZBVVhLcFRBdUl2d0JxbWxnV19jXzdqOVdXSC1weEFNaUZ1T3BTbm5UUlpfenJ2ZjRQTW1DQlU2SmNzSHdDSlk1TEtoVkFHS094UEYxb1NKYnN6SjMxUXpZZTlqT2VJdVBVVGtTdWZNZEVSOVVpd0U1anhYTmlhZXRFSVFHOdIBtgFBVV95cUxOS0FsWE1aa2w4Qmk4WGNjeGw5V1pxWU9pSFdXRnZnWFN4M1VnVTk3cWNja29RYk52OEcxM0FWVEVtaEhLeFpJN3BaQWhGQWRxWkRyb2FhVlowQTEydmpwOFBPWGJwVGxNSzlFX3ZBb3FJQW9CRVRmYnROMmtrVGtlSWhpb2F5dWJVZ2VqMHRSalFMbkZMWW9mYmJRMm9RdWF4Zm1GVFd6eTgwWXNIQ3VMT2VqZHBGdw?oc=5) |
 | Hamas Accepts New Gaza Cease-Fire Proposal, Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNMXhsVjlOcjJRcW1XZzRMMFhhWVZDNjg3TGNpMThyMUtUWWZwMjNXQnpBaHRkOW5yZ040Y3UzOHdBZUl5czNmQTQ4RVdxSGJqNGRwdlRNVDBRWmV0NGpUdTlCSDZxVzVfTUROTVZsNGJobUdHY2diZUpvMkFtX1VSVFVQSk9HOEtoeEJGVw?oc=5) |
