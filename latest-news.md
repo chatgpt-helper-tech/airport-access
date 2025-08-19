@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月20日 02:41:44（北京时间）**
+🕒 更新时间：**2025年08月20日 02:48:15（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | As DOJ threatens WA over sanctuary laws, state officials double down on protections - KUOW | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOenRsckI1RFVqTlFMaUFMMWgyaTZ6aFlEUnlodXgtZDFaWC1YcEpxMkpudTdhNkc3WmM1VW1EYks3NThMYm5qUzRibFVfek5qMEJQN0dHX2RLVG5EVUZ6N18wSGxiZVE4WGlaY1NpOUViVnFpcDZEdVRQWGhwaGJSWTJpRy11eDNwckctNmlwNng3eE9RUVRIbzQwWGh6eVpNNzk4NnQwNXU?oc=5) |
 | Rep. Nicole Collier spends night on Texas House floor after refusing police escort - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNZ2NyNXFMVnRJQldZNXRNUEtkR1ZpdEFlRENhZmEtRHBpc0Mwbi1ja28yMng3MzAxakpGSENmYlg5cUFtVnd6TDRhOVRpY2pvZExsMFhzeklLR3ZwVmVwVUhmSkZueUh6QVFMaUZzN2hmZ2t6bmlXeVNCNXowYklkaE5PNnZHUWswYVBFS3lRVzNfNjRxdjVDbTl6MGN2NDJE?oc=5) |
 | Trump administration says driver in Florida crash was in US illegally, faults California policy - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNclJUOUZJMDAtOXlrS3lFZUNlemFvXzJIV1UtSXhmQVRJZTJhVzlLMUcwS1NoSS1QMUZaOEJUT2sxTkVNWkJ3M0Vjd0pncUM2YnQ1Y2ZnVmxPMGFZVVdoR29ONUVNYnBoT3N5MnFxZTVtWnBGaHVtU0VLblpPVkNlVWRRazN5elpISEx5WEQ1bkRwVEJxN201N3VaQ0hqQUhzeFFyVVZ6M1I3a3PSAbABQVVfeXFMT3BxYnZ4ZFUxaWI1MWhiNEJkTFh2SXFwalNfbWRWaFNLaDlZSVJET3Znd1JTNUV0VWY1ZGhRR1J3MmNJZ2xzZUtXLTV4ZFlpS2hENnNNMlVteDRvRUQ3OEUwSHFMT1NiNGhSemszd1pKaFhNZmhQS2ItOXZVUmpWWFZYcm5vcTZtUmg2N1hOMm5XUkZaU1pmRDNEdm15VFdDY21ZczB5WFNIZTVlRzRGMnA?oc=5) |
-| Rubio to lead Ukraine security guarantees talks, with Trump promising air support - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQdGxFQkY4cV9qNEFqU0ZjZ2ZQMV8wUF91cm11S3dBNUJZOGpSanptSVVFWWRfc3B6dElNWXBKUTk5ZVpldV9UdlA1NHAwekNlVXFFVHJ0LW0wUjBFdW1BZVpNa2pYZ1htcEk2TXNwZWtOelhvQk1LaE0wa2FiTEdSb2lVR2NqTVF3cEE?oc=5) |
 | Air Force chief abruptly retires early in latest Pentagon shakeup - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQUmFCYTV5YzlvdDdJMGhwSkd4MjBwMDBqbmhjN3RRS0N0WFVja0tPN2NhUFd2VDZZQ1RqMzFGS29zUUt2ZklESDg1WElWUFY0WVZoVHJIdGwtU000eURXbm55U3RPOUtlNDRKWTJONVZGNDlycTMtSlpLRFpDc0tkRWVJM3I3ZDBfZHYw0gGQAUFVX3lxTE9MSktmWXJwNEN2UWR6bEk3SERCRmlJOUFSQ2RXU1AtZDEzTUNtTjFOSGs5XzZBNThXYXdMa1dkb19fNTVzMjdZZERHb1U2bnVKdGp2NW44aVpaRzdDODFfRVVDZFZNRE1aZW9fOUpBMEw2NnhyMkxPQXJCRm1HVTVERTlaeXF2Z0xWSDdFUjNVQg?oc=5) |
-| Trump Energy secretary: ‘We’re going to get blamed’ for rising power prices — but they’re Democrats’ fault - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOUmxqMEZ6VU92QUtsYkU0M3dvd2xDWTBEVG4xSkJxSG9iamd2UXhRVlVsako2WFJicnpqRGw4WFVhR0RGQ2x6dzBMWGRTdHZTWUhwUWFWQmhVUVU2eVFWZzBBMDlEV1FnQThTREFxcWthVTBia2Z3UnlmSWc0UjdSUg?oc=5) |
+| In Battle Over D.C. Police, Federal Prosecutors Open Inquiry Into Crime Data - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOVHNkajY0Rmp0dVpPUDZRaW4wbUR1bGsxTmpSMUt0RUZqYWRiY1JZckFMQkpOc0Y2QURjcVRYLUtiVUp6SndZNFRuUDZmQkM0UGpoamI2R2tzMVZkM2dNVjRHTmk1d0NRNlFiSzliekktUUdCTFdFUTRad3FDQkxnaEViS09QMmpfTWwwT2xwTQ?oc=5) |
+| Over 6,000 student visas revoked for crimes and overstays, U.S. says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNMmVUNjZROVE3U3Y2cHFpRHB3cnlwSVNHZXdFUXV4eDFLN2xBSm1wNDA3WkRCdVZ3VnhmT1dXZjVtVXRFSGNHOVFlSDFRdjRCTTU0SW00MXM2aE1saTFnWTJBazVoVVNQeVptMVl6aXhOaS1DeDZQeTBBaUxodTMwenc5MU9NQUhCbkk5bU9n?oc=5) |
 | Cuomo hopes Trump will help him beat Mamdani - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOelltbUdEOUZSZ0dqeEoxbjQxcHdybkg2SUVIQTZ4UjJnUGZ4SGlia1loSmI4YUVnWk9VZkd4TG5QQ2MySTNQc2x4QWw5ZW1ReXVrd3otTE1qMjBra19McFNuWjYzTXY1eVZvOHlTUUxnN2F6QnU5TmRORnpOaURSemthOF8?oc=5) |
 
 ---
