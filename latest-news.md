@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月20日 05:08:39（北京时间）**
+🕒 更新时间：**2025年08月20日 05:17:50（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trump raises end to mail-in ballots after claiming Putin questioned their security - Axios | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTFBoNFkyZV9Sa3JBMkMyVjRLdEdMLUNDNENyMUVxdllCY2VwYnpDN3NWeGRzTEk2ZHFXNmpNOXlaM1BPWEJMbmFmemZRQmJ4cFpHZTVtemRvTWNra3NCSWhVVktReHNQQmhCT09r?oc=5) |
 | DC residents question troops’ focus on low-crime areas amid Trump takeover - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQUnlyYzFkT1ZZZFhSTGViVFdTT1ZrajJFMlVLRnlYeUpFT3JRdkowLWtCbGJrU2xHbEdsd01ISGdEUERIbldIUHRSXzRiMHpMc2VtUkRSWTBocUI0QkVlZGQ3OTdfMWltdjZPQ2x5QmNtQzFJc1hSNENRSVdmczM1bA?oc=5) |
 | House panel to make Epstein files public after redactions to protect victim identities - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQdVBoU2k2SG1YbXdvRFM3aXdaSmhLanRSb3FyUlZzeTA1eDZNRGlKckRGcU5hakFLX3ZxN3pnSGtPRURzcEU1Ri10elFWT3lxc0otdjVuaEV6VWdPbEpvOEctc0ZVdnhESHhqVTBXV0NCSFRRSUU5V2tvNWlaY19iRE1EY9IBiAFBVV95cUxQUmY1ZzRHUFhNUkhsVGdaMkNqb2lhbjNJQ0djeTFpalg0RGdPMDBLTnNLVXU0WjRiZXdmdHA1aU5tR3JtUmRVaTBiWW16c3RwcFBualN1cThmRzFQSFJHMHl6cXVmeVRwS21fQXNfbDN4NGxpOGZEOGRPbVNOdzFYS1NjclMzN3Aw?oc=5) |
-| California Republicans File Suit Seeking to Block Newsom Redistricting Plan - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOeU5RaFFnejktU1NMWERLcmRsNGlCYW03N3dmSWVRZXQxMWtBNk5JM1FhbjB3S1RoNHc0bHlHazBsTHNmejM5Y2tkb2gxUzF0OW1vTDBSbzlUOTBNZzFQdjM1M1dIM3AyZndJMmk5QXNKRnpMdzJ6VjFKclc2OWZMVGYwdTk3dG4xcHI0d0lzOEI?oc=5) |
-| Rep. Nicole Collier spends night on Texas House floor after refusing police escort - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNZ2NyNXFMVnRJQldZNXRNUEtkR1ZpdEFlRENhZmEtRHBpc0Mwbi1ja28yMng3MzAxakpGSENmYlg5cUFtVnd6TDRhOVRpY2pvZExsMFhzeklLR3ZwVmVwVUhmSkZueUh6QVFMaUZzN2hmZ2t6bmlXeVNCNXowYklkaE5PNnZHUWswYVBFS3lRVzNfNjRxdjVDbTl6MGN2NDJE?oc=5) |
 | The Race to Rescue PBS and NPR Stations - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQTGlWNjBjVE9hWDhtSmJQVmk2bmVCUGVNTWk1VVN4cVF1WmUtanZxQTVFcjZOMzZ6NTRaUjI2aGpPeXlZNUxhY3lEWERYcF92N0NJeGcwOXdxMWlNYlZiaW8tTF9XUGhab2JFeUh5YXhlRkM1eXhlQ04xQ1RzYk1KTF9rckZGdHNMRVJyb1lvbERwQQ?oc=5) |
+| Commentary: Newsom's redistricting move isn't pretty. California GOP leaders are uglier - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxORXdBREgtc1RrdVRHTUFnbWVucVcxeklhRlVFQlNvTUxQT19CbGlSbG53SXJzOGdhVzVqaXFIOHRLcmt5N3hsUDRTaDE3eXNOS0JzNTlGQ3JzY2JoRnZBaGRaRVBkMVZXMDlBS2VYaVp0ZzV1QV9Kd3NSaVh1VWhDdVUtUlpXZjRaaHZ4R1ZPQ3J6OG9HakRBOGdldVZJZndWMmc?oc=5) |
+| Rep. Nicole Collier spends night on Texas House floor after refusing police escort - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNZ2NyNXFMVnRJQldZNXRNUEtkR1ZpdEFlRENhZmEtRHBpc0Mwbi1ja28yMng3MzAxakpGSENmYlg5cUFtVnd6TDRhOVRpY2pvZExsMFhzeklLR3ZwVmVwVUhmSkZueUh6QVFMaUZzN2hmZ2t6bmlXeVNCNXowYklkaE5PNnZHUWswYVBFS3lRVzNfNjRxdjVDbTl6MGN2NDJE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
