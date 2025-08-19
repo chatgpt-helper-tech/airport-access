@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 10:40:16（北京时间）**
+🕒 更新时间：**2025年08月19日 10:48:22（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Cable’s MSNBC will change its name later this year as part of corporate divorce from NBC - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOZmQzMkNERWFIN0F4UHViUlBxSm9xMUtRUkc0WDlmNmNYM2hSYm1oakJKdzRFMjRuWUxUblBYWnRTM3V0WmN3ZV8zdFNQUVNLUmlSTVNCUWhXWTZRLV9QYUxIM3lhS19veVQydUpfZkhabm81RC1RcDJfWVVTRkpLY21uNVZZQmw0X2Jn?oc=5) |
 | Donald Trump says US to ‘co-ordinate’ Ukraine’s security with Europe - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE0zekY0VjYta3BsbHI2LUlkQk91VGpGVktHblJ3U0xSTWJIOVJZY3daSmtLLXJlM3ZwU3JiRUdLLTJXSHc2ZklmSWtLOHZFU2k0WmtPLWF3R0FTRkh4WTYtcXprUjl2MGUwV28wckRyOWE?oc=5) |
 | Texas Democrat says she's locked inside state Capitol after refusing mandatory DPS escort - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOSDhzX1FMSFpMd205OF9VVFpWdnlwdUZwc2ZrV3VmUndwbjl5cENFZDNndk52UkRXYVBGUm9oc1ByRzIxTmQ0cm03SV95blJkb1FYMDNyT3VCbFNLQmtDNjlDc2RSN1F4VTI5QzM0VURkVmItMlpJWV9qVUdXNnZJVGo2cU1GLTZJVTB2RkRhM1BVaEJvTVlRZk81Z19BbjFFelZaR29jUThpN0x3ZFE3NlZKNURBMkYx?oc=5) |
-| Newsmax Will Pay $67 Million to Settle Dominion Defamation Lawsuit - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPTkcxaDBYU0JGQUtCRVhYRzduamhzRWlVU2otMmdqUGRRWjRNcEQweW45WUFRTTNBa2VmWlNFQXE1RDJPUFBvYkVRNXY4LVNoWVVvU1R3UFM5dGxIZlMyMnFnZ3ZMR3k2c2JQWFpKbWkwc3FmS1BGVFh0QkdWUXdmQUZTUzdxR19KSGxCS0FEbEVub240cnpySEZhci1CYlRaSmxF?oc=5) |
+| Newsmax settles Dominion election defamation case for $67m - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBtWDdJMUJEYXpYRFhkTFFPRDFUZ0lzaExTSDV1VThwNS1xRDJodWkxV1I5WE5iME1HejQxMkRRQ1RQbXZXV0FPQjZ3bjlIZnl0RUF4cDh6NEhsQdIBX0FVX3lxTFBHQUVmUzlCam9NNVpKRUxCbGxQN29INko1YTNUUE9TeVpKak5vWkJTZktMbk1MNnJEdTZZaDVMMzE0SG15NW52Mkpzd1Y1bEMtRUpKOGJ4MlhTMUM5bzhF?oc=5) |
 | The "6 wars" Trump says he ended and their current status - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE94ZlZlaEluYzNidDZadFdFS2ZUc0hXQzFZbnFrbFNqR3B3VFNzd1lLZmcwZjdCbjAtQ2pBX0kzMzFCX1g4Zmc3Z0R6X1hncEI5U1NJTEtEOEF1ODZpUWFtWUtBWVI4OWh4eGR6TjVuX3RqQUZnRlpBcUtmWDdVSG8?oc=5) |
-| 3 more GOP governors authorize deployment of National Guard troops as part of Trump show of force - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxPQVBGUnFiVTJzYmo4Q2dyby1lc0d3UW5BSG91ZElVdWFIZ1NuSEtzMmY3WDhNVENvWUM0ci1YTnNBTDZ3WEJ6OHlHQ0x5dE1mQ1JvaHcxY2lsdjNfQnc4amoyaWlMOW0za1BUblhQcVlPR0JVSllDRF9NX2NPczQtQWZWNmUwM1ZtSnpna0liY1lpa2tHQUw0QVVFc2JGeU1UQmF1SXZoNmlrTlNCWnJ0UHhEMW8wVDdxZGQ0cmE4VXV2MHZQUVJJ?oc=5) |
-| Trump taps Missouri attorney general to be No. 2 at FBI - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPV1M1MWtsZkoyV0FDUFFRcUJPSmhFRjB4dXpkWGZ4UW5PenpzU0F6Q01udFFYaVFTSm9CQUN6MnpkUzdCMlV5clFVeG9yVG9ndVVvZ2MyckFBdmFJckF1eGprVmlKZjc4Und6WFVIbGlMTzVHUi1aVmVRNVo3aDNjOVpuZURYNndYSXc?oc=5) |
+| Inside Week 1 of Trump’s ‘hostile takeover’ of D.C. police - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOM0w5cnV3eFZrYV94RllKTU82N2wxdGVianI0Sll0cjNYZUFJV2RqMWM1MHFtanFSSU5CcExiNlF2OXEzZXZVLXlqTXdCVWl6NEViWmZ1Q1NUdjFLOTZZc3lleUNoNnJmOTNsTTdLa0ZoUEw5T0R2dHQ1ZmwwMlpFb2dvWTl0eXpXOTZKNXp6RHE?oc=5) |
+| Officials identify the two officers tragically killed in Tremonton shooting - KUTV | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOYkRYejg5Mmk0eDg1dkpGMGR4aHAwMmROZlkyWmdyd1lwZ2puWG5HR1JUdmhHeE5rOFlLSmxIbThndVhVSFJCN0RQdlhkVldhVlhGOEFNdWRXTk5DRWEtQVQ0S3hwdm42bzhKQUZfcmpGc2IwalZic0luUlFGQWhYLUlnRGJpa3FNSkF3dC1SeXlPRG5fbUJBZ0V5VFp4RFEzTWZ2a0hxd05DT245Umc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
