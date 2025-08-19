@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 13:56:56（北京时间）**
+🕒 更新时间：**2025年08月19日 14:00:28（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | 3 more GOP governors authorize deployment of National Guard troops as part of Trump show of force - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNY0d4MkdnZEs2bGVxVk92Z0tfWlpoMkE1MThIRWswREZSUk1fRTNyd2hjWTE0ZHNxblplRmt4R3NmYm9GTVpFdGx3ODlSeEwyOEdJNW1nN3V2TlNaZFdxaUs1endXendOeW41djVpbjFSbnhSTHo1cHJsaVN3ZVFpVTFJeDU1Nk1HSGZkMXkzdkE1MU9tS3V6dTBVdzFZNngwVnpMY1U0aWZVWWgwNVdNWk9B?oc=5) |
 | Bryan Kohberger's behavior alarmed university faculty and students before Idaho murders, documents show - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPZTRBNmdfbEhFamR6N2xURXZ6Zkl1RlhGUW5ZMl9fRTFQRUVFMUgwQ0E1ekZBVVhLcFRBdUl2d0JxbWxnV19jXzdqOVdXSC1weEFNaUZ1T3BTbm5UUlpfenJ2ZjRQTW1DQlU2SmNzSHdDSlk1TEtoVkFHS094UEYxb1NKYnN6SjMxUXpZZTlqT2VJdVBVVGtTdWZNZEVSOVVpd0U1anhYTmlhZXRFSVFHOdIBtgFBVV95cUxOS0FsWE1aa2w4Qmk4WGNjeGw5V1pxWU9pSFdXRnZnWFN4M1VnVTk3cWNja29RYk52OEcxM0FWVEVtaEhLeFpJN3BaQWhGQWRxWkRyb2FhVlowQTEydmpwOFBPWGJwVGxNSzlFX3ZBb3FJQW9CRVRmYnROMmtrVGtlSWhpb2F5dWJVZ2VqMHRSalFMbkZMWW9mYmJRMm9RdWF4Zm1GVFd6eTgwWXNIQ3VMT2VqZHBGdw?oc=5) |
 | Security footage shows July 26 stabbing spree at Grand Traverse County Walmart - The Detroit News | [阅读全文](https://news.google.com/rss/articles/CBMi7AFBVV95cUxNNUNSdE5USF9YRE9DTE5OSkFHOXFSTnNoczhMb1ZOQU1lN2t1WFczMHJpV1ZITV9nazdDVlFSUlUyREZjQnFPeVR3SEJ0UFc1NUowRFlSV2g4cmp0c09EbzdzMHlQOEV1djhFdk1QNzhIMTkxV0s0ajI0RFB6QmpXZ1pMeU1QSkRQWE5nd0RpN1I0Znl2TWZoUHdtRlhUd09Mckl4dkFjblMwQWRTaW9ucnB1WTZpR05GdzQ0QkpFMlI2NndtVVNhWkd2Yk9Qc2RmeHpXbDNhNk1Ebjk1bkxLSFlwam85MGcxUHJjZw?oc=5) |
-| Justice Dept. Will Begin Sharing Epstein Files on Friday, Top Republican Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPM1pMX245ckJBVVRhYnUxelo5SFdMRXR1a24yZlN2YW1xLWFIQkVSUFJ2VUplR3VVekdFNnY2VTF6WllwaUhPUHhiWmZDMy1XU1VFbDdyWno5WUptSzVzb3pOWE9EYXVTbUxuUmZEcWZfaUNZYmtKVkQ0UjM1am8tQ0NRVTFydw?oc=5) |
-| Hamas Accepts New Gaza Cease-Fire Proposal, Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNMXhsVjlOcjJRcW1XZzRMMFhhWVZDNjg3TGNpMThyMUtUWWZwMjNXQnpBaHRkOW5yZ040Y3UzOHdBZUl5czNmQTQ4RVdxSGJqNGRwdlRNVDBRWmV0NGpUdTlCSDZxVzVfTUROTVZsNGJobUdHY2diZUpvMkFtX1VSVFVQSk9HOEtoeEJGVw?oc=5) |
+| What's really going on with the "6 wars" Trump says he ended - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE94ZlZlaEluYzNidDZadFdFS2ZUc0hXQzFZbnFrbFNqR3B3VFNzd1lLZmcwZjdCbjAtQ2pBX0kzMzFCX1g4Zmc3Z0R6X1hncEI5U1NJTEtEOEF1ODZpUWFtWUtBWVI4OWh4eGR6TjVuX3RqQUZnRlpBcUtmWDdVSG8?oc=5) |
+| 3 Utah police officers shot, 2 killed in Tremonton - KSL.com | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNMDRpZTdsTFdEUlg5X3NmVXFFWVdDc3ZHZEd3NUhDWjZVNXFJeU5IcVotM3RlVUQxQ3FaRm8yMzRCTUR0Nk1FODlsMDdmRXFSZlgzYUxtR2VhSk9VMDk2N3pueFplRnl4YUxKeUFtNFRsR2pmWnNYRmNOdXZ5YldCZ0R1T1VMQV94Z2t6b3VrWQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
