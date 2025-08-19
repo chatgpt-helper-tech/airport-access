@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 19:33:26（北京时间）**
+🕒 更新时间：**2025年08月19日 19:41:03（北京时间）**
 
 ---
 
@@ -10,11 +10,11 @@
 |--------|-------------|
 | Starmer hails breakthrough on Ukraine - but anxiety over its future remains | [阅读全文](https://www.bbc.com/news/articles/cr5rl6y04z0o?at_medium=RSS&at_campaign=rss) |
 | I was sexually assaulted on a plane - now I'm fighting for compensation | [阅读全文](https://www.bbc.com/news/articles/cly6g2j67rko?at_medium=RSS&at_campaign=rss) |
+| Mediators await Israeli response to new Gaza ceasefire proposal | [阅读全文](https://www.bbc.com/news/articles/cjeynvp409vo?at_medium=RSS&at_campaign=rss) |
 | People buying less fast food as grocery prices remain high | [阅读全文](https://www.bbc.com/news/articles/c5y042g11yvo?at_medium=RSS&at_campaign=rss) |
-| Hamas source says group agrees to latest Gaza ceasefire proposal | [阅读全文](https://www.bbc.com/news/articles/ckgjye15zdlo?at_medium=RSS&at_campaign=rss) |
-| Stop children using VPNs to watch porn, ministers told | [阅读全文](https://www.bbc.com/news/articles/cn438z3ejxyo?at_medium=RSS&at_campaign=rss) |
 | Son of Norway's crown princess charged with rape and abuse | [阅读全文](https://www.bbc.com/news/articles/cvg3ke05355o?at_medium=RSS&at_campaign=rss) |
 | Morecambe appoint first Sikh manager at professional football club | [阅读全文](https://www.bbc.com/sport/football/articles/cwygp4y1e81o?at_medium=RSS&at_campaign=rss) |
+| Stop children using VPNs to watch porn, ministers told | [阅读全文](https://www.bbc.com/news/articles/cn438z3ejxyo?at_medium=RSS&at_campaign=rss) |
 | UK backs down in Apple privacy row, US says | [阅读全文](https://www.bbc.com/news/articles/cdj2m3rrk74o?at_medium=RSS&at_campaign=rss) |
 | BBC delayed Ozzy Osbourne film due to 'family's wishes' | [阅读全文](https://www.bbc.com/news/articles/c2kz8gvkjn5o?at_medium=RSS&at_campaign=rss) |
 | Four key takeaways from Ukraine talks in Washington | [阅读全文](https://www.bbc.com/news/articles/c5yp4jggrj2o?at_medium=RSS&at_campaign=rss) |
@@ -29,10 +29,10 @@
 | Newspaper headlines: 'Suited not booted' and 'property tax shake-up' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9lTVN6M3BlUktvdFkwOXB4YzlqQ21kbzduU3I0eE5LT2RGUW5wSnV2Rjg5OFdpSlhnaHM1TDBJdnRmcE9HY0tuaG5xRkhIczV4SnVfTGdLbTRkZ9IBX0FVX3lxTE82dGN4X3NNOVRPaVRMeFMyN3JtRmFpVGVVVzhBME9oZWwwallxYVlXM3ctWEZUU0ZsQ21KYzFQaENQMXdaUTV3MmR3V2FWb2J6N0hwd2lmUTJZSUZsMFRr?oc=5) |
 | Ukraine war briefing: Zelenskyy entices Trump with $90bn arms buy in return for security - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxOZ0FJS056WFpDSVFRV005RkphY2R2Rmc2ZXBmcVRPS1NqS0cxQWh3VzloSzRkMzZFbGZoRk4zVnJzTEZTb3RvZWhmTkVGNE8xMFR6b1RzdzVCYk05WWZWb1k3ZXJJVEFMc19XZG9VRk9mRllRcmI1UFQyRnFQYzRoUFlNd1VkblBudFJDLUdtOWhCeV9sTUUyM0tkTl90bEIxWVVZQUlRZXlIclRkMzdXMjg3T3ByR29SdE50S0dPRXFJVFZpQXp5TmtRVkJOaUE?oc=5) |
 | Businesses face 'chaos' as EPA aims to repeal its authority over climate pollution - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOUUdXd2RCbllfcjRacVhJaHA5a25JX1ZWemI4RHBPaHBiUkhQbVJtS2toTUdwQk1ZWjdHS0prRTRsNE1jWGRTX1RYU0JpT0pqbENjV005YU1hYWFuel9TeDhBQ0ZvLTU4NjJmb3ZpOWx5MnlDZS1qbzN5bEo3bU82bVN6OUQ4RHlJckZsN0tIdFJVd1ZjRFhJNGlyV25USlE?oc=5) |
-| University colleagues warned of Bryan Kohberger’s sexist, creepy behavior before Idaho murders - The Independent | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNTVFRaXlfR3MyNzMxRDF5cmpuV0hyR2lLWUNEWDU0bUhYbVVrekJEek5CVEpkS2U1c0Z2N1F1bndDZG9kTXlSTnhzMHByTV9OdWNVZmJLY29GRUdZUF9XT29SMjFuSmZqMEVnbm80QTJtVWg4R2IzT2pmNVlLcl9aM2Q2eEUwM3VYRnJhbXhOYXcwcFAxR0k3eVBNQ2Fadkhva20zZHFCc1VxUkY4cVExYw?oc=5) |
-| Security footage shows July 26 stabbing spree at Grand Traverse County Walmart - The Detroit News | [阅读全文](https://news.google.com/rss/articles/CBMi7AFBVV95cUxNNUNSdE5USF9YRE9DTE5OSkFHOXFSTnNoczhMb1ZOQU1lN2t1WFczMHJpV1ZITV9nazdDVlFSUlUyREZjQnFPeVR3SEJ0UFc1NUowRFlSV2g4cmp0c09EbzdzMHlQOEV1djhFdk1QNzhIMTkxV0s0ajI0RFB6QmpXZ1pMeU1QSkRQWE5nd0RpN1I0Znl2TWZoUHdtRlhUd09Mckl4dkFjblMwQWRTaW9ucnB1WTZpR05GdzQ0QkpFMlI2NndtVVNhWkd2Yk9Qc2RmeHpXbDNhNk1Ebjk1bkxLSFlwam85MGcxUHJjZw?oc=5) |
-| Hurricane Erin Brings Rip Currents Closing Jersey Shore and Rehoboth Beaches - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNU1AybW1oblNtS2kzdFI1Vk1CU1E3RVlkaVk1UldPdXdzM0FNVGZxeGoxUmRxWG1wTjhFY0lnTWp5MU5HNHpYVUk5OE91LVNHSEo4T0psa1ZzdUdLclFISkNhUk5NTEJFSVFZdDZmaUw3SXlYdEpwOWFzVkI2WmJ3bDVPTUxFQ3FpeGw3RU9RNU04NGs?oc=5) |
+| Bryan Kohberger's behavior alarmed university faculty and students before Idaho murders, documents show - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPZTRBNmdfbEhFamR6N2xURXZ6Zkl1RlhGUW5ZMl9fRTFQRUVFMUgwQ0E1ekZBVVhLcFRBdUl2d0JxbWxnV19jXzdqOVdXSC1weEFNaUZ1T3BTbm5UUlpfenJ2ZjRQTW1DQlU2SmNzSHdDSlk1TEtoVkFHS094UEYxb1NKYnN6SjMxUXpZZTlqT2VJdVBVVGtTdWZNZEVSOVVpd0U1anhYTmlhZXRFSVFHOdIBtgFBVV95cUxOS0FsWE1aa2w4Qmk4WGNjeGw5V1pxWU9pSFdXRnZnWFN4M1VnVTk3cWNja29RYk52OEcxM0FWVEVtaEhLeFpJN3BaQWhGQWRxWkRyb2FhVlowQTEydmpwOFBPWGJwVGxNSzlFX3ZBb3FJQW9CRVRmYnROMmtrVGtlSWhpb2F5dWJVZ2VqMHRSalFMbkZMWW9mYmJRMm9RdWF4Zm1GVFd6eTgwWXNIQ3VMT2VqZHBGdw?oc=5) |
 | Fort Worth Rep. Nicole Collier remains on House floor after refusing escort: 'I refuse to sign away my dignity.' - WFAA | [阅读全文](https://news.google.com/rss/articles/CBMi7wFBVV95cUxQcS1ZODRaZ2F6VnFzUS1zSUYtbFdYYW4xT2ZIWWMyUU50WEJxNGVGOUdvdzhpV3puTHN1QlozWE9tY1puX0xKNUdib2lmckxhaE1iQ2szLTlfclotZWZBOG1lZmFNNVRyRFE4U2VlYXhCblJBVDlta0NYaDE0MGdvemtNWmNkNmMwcnRyZE1SMFRESmlyaEZUTlpqODBzNFVfYzZ5cnItTFpFc0kzS2tLbjZpVGR0a3ZocWV3Qno5Zk8zTEQ0X0FJQlo0bnZURmdPS3hYcjNKUGxYY2dPYVJWN2FmdXJ5UVdnSnM5WGxKSQ?oc=5) |
+| D.C. delivery driver detentions spark concern, fear among some in community - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPLVJlNWFpaU45M1FBamZMUkFUbzVyMzlwSGJ4VkFZTXZCWGxzTk9Jbi1adTVicXRnZVZDRDZqZUZGcFVkNEFfZHcwZlJrRmxyY21TTmFscVp5T1dZSlBlYlN2SHVmY2t0TlhlMk5aVXgzWDVNd3lVNVFFVEFGTU1FTmJ1dlFnT0dfMzFrSkczenhXZGR5QTdJSmxXbEF1andKY1M5N3ZjSEc3d9IBVkFVX3lxTE1BUE44aW5hUzNsZkJFWk5jNVY4TzFVaWZncUdSSFFhQ0E1YUR5UFFhcDFUd0xYLVJsOUpXdHNLVHkxREdpNTBfMC1LQjh4MnVXTkJQMm1R?oc=5) |
+| Trump administration says driver in Florida crash was in US illegally, faults California policy - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNclJUOUZJMDAtOXlrS3lFZUNlemFvXzJIV1UtSXhmQVRJZTJhVzlLMUcwS1NoSS1QMUZaOEJUT2sxTkVNWkJ3M0Vjd0pncUM2YnQ1Y2ZnVmxPMGFZVVdoR29ONUVNYnBoT3N5MnFxZTVtWnBGaHVtU0VLblpPVkNlVWRRazN5elpISEx5WEQ1bkRwVEJxN201N3VaQ0hqQUhzeFFyVVZ6M1I3a3PSAbABQVVfeXFMT3BxYnZ4ZFUxaWI1MWhiNEJkTFh2SXFwalNfbWRWaFNLaDlZSVJET3Znd1JTNUV0VWY1ZGhRR1J3MmNJZ2xzZUtXLTV4ZFlpS2hENnNNMlVteDRvRUQ3OEUwSHFMT1NiNGhSemszd1pKaFhNZmhQS2ItOXZVUmpWWFZYcm5vcTZtUmg2N1hOMm5XUkZaU1pmRDNEdm15VFdDY21ZczB5WFNIZTVlRzRGMnA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
