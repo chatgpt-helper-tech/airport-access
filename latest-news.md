@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 18:56:58（北京时间）**
+🕒 更新时间：**2025年08月19日 19:01:12（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump calls Putin at White House summit to arrange talks with Zelensky - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5pSUFsSW1PSkhUMzdfM0hnRERVaDkzXy00c0t1bmhIajR4RG1RY0NFN1FCeVhnWkJpU0ZPdURWSnFaVGgwZkdTTFVYRTZ3WnpuNGhqcHRFVGl4RGtfbWVqdEJrUHRFLWx3UGV0dTV3b0R3cmxINHh4cVBLODUtUQ?oc=5) |
-| Hurricane Erin drives dangerous waves to East Coast as new tropical system brews in its wake - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQclVhZUFVV2tXdUl6ZFVjRUN6aVg0YUFEWU0tNkhablFvWWR1aEpZYUJWWjY5dDBGdXBaVmkwMG5kSFhYdklyTlBxMEdHSFlCRjZCY0wxTFlVN3lNUk05dVlCY0lEUUg0Ym1QN1RuTEhCQ2ZDQjcwY0M0TFRqb3lqeERuOTBTUTQ1b0JYTnhiakdKeVpD0gGaAUFVX3lxTE1qZGx5bDdnVnZzX2IxYkVQNFdLY01GN29kT0FkNThQUFBndmhxMjZVeExMMURHMkhka2FVLWg3WmRackFHTnp6ampSZjdBZjIzZmhrQ1VVcG16M2Q5RmtfWlpRSWhTOVZaLTFQR0xFZGh1TkxuZzRQNTJNWERINm9YZFlPNklBaGhZZlhfa1BEVnlGYjBxa0I3MXc?oc=5) |
+| Hurricane Erin drives dangerous waves to East Coast as new tropical system brews in its wake - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQclVhZUFVV2tXdUl6ZFVjRUN6aVg0YUFEWU0tNkhablFvWWR1aEpZYUJWWjY5dDBGdXBaVmkwMG5kSFhYdklyTlBxMEdHSFlCRjZCY0wxTFlVN3lNUk05dVlCY0lEUUg0Ym1QN1RuTEhCQ2ZDQjcwY0M0TFRqb3lqeERuOTBTUTQ1b0JYTnhiakdKeVpD?oc=5) |
 | The GOP spent millions supporting mail ballots. Now Trump’s attacking them again. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQRFV0U2VJMG1oX19TUGtfR1BNSUdzbjFDYmQwbWwtOG9VamJmRXFzUDVRM0NiMVhhYWRVYW9aUVo5QjNwMy1KUUhzRzM0ZEM3aHctc0pVVUxQYWhiaW1CRmVXRms2bU9pUTlBTGtiSi0zcVp1NGwwNldNelhld2s2SQ?oc=5) |
 | Newspaper headlines: 'Suited not booted' and 'property tax shake-up' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9lTVN6M3BlUktvdFkwOXB4YzlqQ21kbzduU3I0eE5LT2RGUW5wSnV2Rjg5OFdpSlhnaHM1TDBJdnRmcE9HY0tuaG5xRkhIczV4SnVfTGdLbTRkZ9IBX0FVX3lxTE82dGN4X3NNOVRPaVRMeFMyN3JtRmFpVGVVVzhBME9oZWwwallxYVlXM3ctWEZUU0ZsQ21KYzFQaENQMXdaUTV3MmR3V2FWb2J6N0hwd2lmUTJZSUZsMFRr?oc=5) |
 | Fort Worth Rep. Nicole Collier remains on House floor after refusing escort: 'I refuse to sign away my dignity.' - WFAA | [阅读全文](https://news.google.com/rss/articles/CBMi7wFBVV95cUxQcS1ZODRaZ2F6VnFzUS1zSUYtbFdYYW4xT2ZIWWMyUU50WEJxNGVGOUdvdzhpV3puTHN1QlozWE9tY1puX0xKNUdib2lmckxhaE1iQ2szLTlfclotZWZBOG1lZmFNNVRyRFE4U2VlYXhCblJBVDlta0NYaDE0MGdvemtNWmNkNmMwcnRyZE1SMFRESmlyaEZUTlpqODBzNFVfYzZ5cnItTFpFc0kzS2tLbjZpVGR0a3ZocWV3Qno5Zk8zTEQ0X0FJQlo0bnZURmdPS3hYcjNKUGxYY2dPYVJWN2FmdXJ5UVdnSnM5WGxKSQ?oc=5) |
