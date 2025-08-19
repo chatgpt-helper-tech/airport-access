@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 12:08:19（北京时间）**
+🕒 更新时间：**2025年08月19日 12:17:14（北京时间）**
 
 ---
 
@@ -23,12 +23,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump begins planning for Putin-Zelenskyy meeting while affirming US help with security guarantees - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQVkxfTU5tQmZGVlVmTk9FOGY0WmlRZHcyVWlwZnNFUFNYV2NPZDljYWNETkVPTW9lR2k3YjJWN1FEb200SVpPME8yWkVnTURGNm04YklqYlBsRmlhQkdxbmNUcE83eUZHWW5XRl9DMzlyUTJLa3dpaDFoNDd0NC1DRmwwYjJQTGlYaFMyUjgwVmgwdVNXVDBZZWRnTklEdElXdmc?oc=5) |
+| 5 Takeaways From Trump’s Meeting With Zelensky and European Leaders - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPTUR3WWd5WW1iREkzcXN5dFFzckg4VFNBZWFGUi0zZzJkZXRqVGJXdHE1NjdualN5bDhXSy1TWG1odm93S3NqQ2IyR3FkMm5TdGlUVjBUYjg4OFBfN3VidWNlaXNvR2ZKbTRxSmNCYmNBOE9zbW84U0NoZlpMS3VDNjFscXA3cmNTZ3c?oc=5) |
 | Trump says he will ‘lead a movement’ to eliminate mail-in voting - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPZnRhZGxuXzVzYTJRUG1rZ3FaeUNXZ2ZRNkJxc3hvb1JIN0VTdUlFRGxHVGhPeFdnOXExcXl2VF9GWFFiUVFrWHNJQWRGMVlHdE1Ja3cwUS1NdDB3VG9hd1BUaHVRU0hISFhkNi0xNXdfajlYdEo1Tzd3NEVZZ05kQWIxVE5NM3RBMVFPaGFNcnA5dw?oc=5) |
-| Hurricane Erin: Storm surge watch is issued for North Carolina's Outer Banks - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNVk52T2FzM3laWllxajNIcnI0aDlTVU9tek95WkYtZE5OTFdEclJlMVBVeEZ3RFd5VkhZWXpnZjNnU1pIT2pqdDRSOXkyVzBQazBVc1JDLUh1WUFxNzFTbGZfeVNodTRiV3luTGJlRXNHM1NYZndIWWVwc0sxQldSN2FieENsbV9LbGJPcUFSMFkxbG0zOTZZZzNGUjg?oc=5) |
-| Zelensky Suits Up for Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE45cnB1SUwzM2d6UDBkdXJ3WE15WnVoQjUweVA3YVR3X05DdUF6UWs5ZEtmS3FCMk1kcXZoTmpTTHlQWUFaUEhxdU1QNS1SVGRqbmlKWG9jUDNEbE9HcmgtY3hnSmllbENGdDN0LXVKTWV6cVNCV2tSWjR3?oc=5) |
-| Texas Democrats return to state as GOP presses on with redistricting - Axios | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOSDkzLU5waUhMOG9MUWZFZ1RFOXd4ejFCVTI2QzNUZTRmeGI5Q3VXa3lhVHM2eTZnT0dMNkhPZGRjSkRBUV92aXBZSUZKeFFXM1pyOGw2NldxRW40WVZUN053Sjlvbll2U0E2eGdrd3RhSUtsR05ZUWI5WEtZczd2SHRNSzVCRzJ6ek5OZXJYTENyNjRlQl9RUkZqdlViVVdFaURkVA?oc=5) |
+| U.S. East Coast faces "life-threatening" wave threats from Hurricane Erin - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPSGpra0RxNVlQMi1BaGJoRVp5TmZ0c0ZkR3MwNXRTXzJfTTVHZHcxQVN5akdXNTlrOEhtWk5GZDBremtVb2JnUzNBYU9aWk9GcFdYcTUwSTZKQk5KQWtfc3hWZllQYnlsNElMMFZ0eVZ4cG5vdDNYdVZfZlVTNzNZR1ZBRzBoOGt1RTZMNWJsNVFUdmc?oc=5) |
+| Texas Democrat says she's locked inside state Capitol after refusing mandatory DPS escort - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOSDhzX1FMSFpMd205OF9VVFpWdnlwdUZwc2ZrV3VmUndwbjl5cENFZDNndk52UkRXYVBGUm9oc1ByRzIxTmQ0cm03SV95blJkb1FYMDNyT3VCbFNLQmtDNjlDc2RSN1F4VTI5QzM0VURkVmItMlpJWV9qVUdXNnZJVGo2cU1GLTZJVTB2RkRhM1BVaEJvTVlRZk81Z19BbjFFelZaR29jUThpN0x3ZFE3NlZKNURBMkYx?oc=5) |
 | Donald Trump says US to ‘co-ordinate’ Ukraine’s security with Europe - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE0zekY0VjYta3BsbHI2LUlkQk91VGpGVktHblJ3U0xSTWJIOVJZY3daSmtLLXJlM3ZwU3JiRUdLLTJXSHc2ZklmSWtLOHZFU2k0WmtPLWF3R0FTRkh4WTYtcXprUjl2MGUwV28wckRyOWE?oc=5) |
+| 3 more GOP governors authorize deployment of National Guard troops as part of Trump show of force - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNY0d4MkdnZEs2bGVxVk92Z0tfWlpoMkE1MThIRWswREZSUk1fRTNyd2hjWTE0ZHNxblplRmt4R3NmYm9GTVpFdGx3ODlSeEwyOEdJNW1nN3V2TlNaZFdxaUs1endXendOeW41djVpbjFSbnhSTHo1cHJsaVN3ZVFpVTFJeDU1Nk1HSGZkMXkzdkE1MU9tS3V6dTBVdzFZNngwVnpMY1U0aWZVWWgwNVdNWk9B?oc=5) |
 | Kohberger's sexist, creepy behavior alarmed university faculty and students before Idaho murders - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPTTZSZ1oxSDNlX0k0b1dkd1lERXloM3VSYmFrRjJRZUE1TVF3UUcwLUNKRVdyNXpxaDBaS1ZudDViOTR2LUl2NHNQbUJBUGRLT0FvOUhrbF9CNnlVRFNLVU9iU0RhbWpQTGQtaktBV1AxeUpVM3lScmVGVzRyUTBPYl9iQWZrT1FRbHNGLU54Vkx2RWxVVHR0SXptSVl4N2lNTzdsYkNkQQ?oc=5) |
 | Newsmax settles Dominion election defamation case for $67m - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBtWDdJMUJEYXpYRFhkTFFPRDFUZ0lzaExTSDV1VThwNS1xRDJodWkxV1I5WE5iME1HejQxMkRRQ1RQbXZXV0FPQjZ3bjlIZnl0RUF4cDh6NEhsQdIBX0FVX3lxTFBHQUVmUzlCam9NNVpKRUxCbGxQN29INko1YTNUUE9TeVpKak5vWkJTZktMbk1MNnJEdTZZaDVMMzE0SG15NW52Mkpzd1Y1bEMtRUpKOGJ4MlhTMUM5bzhF?oc=5) |
 | Why many Nevadans are contending with worsening food insecurity: "They have no choice at all" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE9lWWhWQWpBYnVjTG54cmFDQURaZWlDVVNmbWY1b2J1UV9yOVo2VDhjSkNiVnpTQWE0Y1JsSGpTVl82bkZodjBFQzBtbmY0T0gtcFNEZVUweUQ5bTVXVHZHNlhCM3BFTWx2ZGxB0gFwQVVfeXFMUDNtTmRobm1aenRSdTJRUUlkTWoydEttdEczRHFLZGY4REgxWE1EVEtfTGlnSWlZanZaZjFDQ1ozaklVQ1V3YUxlUjk2UWhlbWJ1TjhwaUcyVVdkWTBMZVBabDFwQWlhUkNIYklmdVlOWg?oc=5) |
