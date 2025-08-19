@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月20日 05:57:10（北京时间）**
+🕒 更新时间：**2025年08月20日 06:01:28（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Hurricane Erin update: Forecast sees huge storm moving closer to U.S. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOeV81SmNfZGM2bnFCM1V3Vnk1RUhCUDNKdHdTN0xmRW1PYUpSUk9PVmxORElnSkhzbjdGLVMxei0yY1MzNkhpaWM1bzUyREs4U0pTQjc5QmJ6NlFlTmtWcFREM05rNDV2Q3NTTUZpSUZVVF9FdElDbC1RTExaZXZfYVl0ZWhfZ0ZycF9FLW55d2dkUHV5UlE?oc=5) |
 | Trump rules out sending US troops to Ukraine as part of security guarantees - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5xZG92aktaTUYyY1FVYnFCRXBHd2JzaHJlUkxOU3IyX1FKdmNPVVVkUlpSdHhtZnh0Rjg2aE5vOFA1eG91OGlDLWJ2N2dpWFNKdEs4aw?oc=5) |
+| Hurricane Erin update: Forecast sees huge storm moving closer to U.S. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOeV81SmNfZGM2bnFCM1V3Vnk1RUhCUDNKdHdTN0xmRW1PYUpSUk9PVmxORElnSkhzbjdGLVMxei0yY1MzNkhpaWM1bzUyREs4U0pTQjc5QmJ6NlFlTmtWcFREM05rNDV2Q3NTTUZpSUZVVF9FdElDbC1RTExaZXZfYVl0ZWhfZ0ZycF9FLW55d2dkUHV5UlE?oc=5) |
 | Rubio to lead Ukraine security guarantees talks, with Trump promising air support - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQdGxFQkY4cV9qNEFqU0ZjZ2ZQMV8wUF91cm11S3dBNUJZOGpSanptSVVFWWRfc3B6dElNWXBKUTk5ZVpldV9UdlA1NHAwekNlVXFFVHJ0LW0wUjBFdW1BZVpNa2pYZ1htcEk2TXNwZWtOelhvQk1LaE0wa2FiTEdSb2lVR2NqTVF3cEE?oc=5) |
 | Trump Live Updates: More Republican-Led States Pledge National Guard Troops for D.C. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE9YQndxVUZWT3hUTFRfNGRjVE1WR0hkaHp4Xzl3Q29rSFlSMWVuSWRZMUdNb3Q3WkpTX2YzWkRoY0d0dldHUms1Q3BTb2luQ1RqM0VjS2VlNTdjZzhwbDU3QkJNUQ?oc=5) |
 | Trump calls White House talks 'very good' toward Russia-Ukraine peace and more top headlines - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQYWtpV3Bad3U5M05lTUI0Q0w5d05vWkNWLXlxTnZsMGwwTHVFVDRRUG1pMTF4bUp6SHdYVHp0ODc5V2MzTllabGRSenNvaFFDYWE2LWItQ3laSm90eG5LNW1oWjdYOEZMMEdCY01HbGFtb05kSUlXcmFZTDQtZmllamFTeFFDcGI0NW5BRGFqRUlaRWhKeFN1YzRIMmZFMGx4VFc4eDF5YlNVdDJKaVpEQlBnUQ?oc=5) |
