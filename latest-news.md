@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月19日 15:09:46（北京时间）**
+🕒 更新时间：**2025年08月19日 15:17:44（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | 3 more GOP governors authorize deployment of National Guard troops as part of Trump show of force - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNY0d4MkdnZEs2bGVxVk92Z0tfWlpoMkE1MThIRWswREZSUk1fRTNyd2hjWTE0ZHNxblplRmt4R3NmYm9GTVpFdGx3ODlSeEwyOEdJNW1nN3V2TlNaZFdxaUs1endXendOeW41djVpbjFSbnhSTHo1cHJsaVN3ZVFpVTFJeDU1Nk1HSGZkMXkzdkE1MU9tS3V6dTBVdzFZNngwVnpMY1U0aWZVWWgwNVdNWk9B?oc=5) |
 | Hamas Accepts New Gaza Cease-Fire Proposal, Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNMXhsVjlOcjJRcW1XZzRMMFhhWVZDNjg3TGNpMThyMUtUWWZwMjNXQnpBaHRkOW5yZ040Y3UzOHdBZUl5czNmQTQ4RVdxSGJqNGRwdlRNVDBRWmV0NGpUdTlCSDZxVzVfTUROTVZsNGJobUdHY2diZUpvMkFtX1VSVFVQSk9HOEtoeEJGVw?oc=5) |
 | Bryan Kohberger's behavior alarmed university faculty and students before Idaho murders, documents show - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPZTRBNmdfbEhFamR6N2xURXZ6Zkl1RlhGUW5ZMl9fRTFQRUVFMUgwQ0E1ekZBVVhLcFRBdUl2d0JxbWxnV19jXzdqOVdXSC1weEFNaUZ1T3BTbm5UUlpfenJ2ZjRQTW1DQlU2SmNzSHdDSlk1TEtoVkFHS094UEYxb1NKYnN6SjMxUXpZZTlqT2VJdVBVVGtTdWZNZEVSOVVpd0U1anhYTmlhZXRFSVFHOdIBtgFBVV95cUxOS0FsWE1aa2w4Qmk4WGNjeGw5V1pxWU9pSFdXRnZnWFN4M1VnVTk3cWNja29RYk52OEcxM0FWVEVtaEhLeFpJN3BaQWhGQWRxWkRyb2FhVlowQTEydmpwOFBPWGJwVGxNSzlFX3ZBb3FJQW9CRVRmYnROMmtrVGtlSWhpb2F5dWJVZ2VqMHRSalFMbkZMWW9mYmJRMm9RdWF4Zm1GVFd6eTgwWXNIQ3VMT2VqZHBGdw?oc=5) |
-| Trump-Zelenskyy meeting paves the way for Ukraine security guarantees, trilateral talks with Putin - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOdDBEbThzME51N29RWDNyVUx3WEJFMlhHbllpejFMUE1ydWlhNnE0a2stUGlWRmtVY29fbjhWNi1oMy1BLVpVc0Nwd0Y1YjZTX3BEa1lfYUZ6dFNKT2xmWDM2aXh6d3pQeTFROHp3ZVZzNE5JVlBQOUt1UVhxNjViZy1qZ1hRd9IBiwFBVV95cUxOSWZFRFVsV0g0TVEzdHRGTGp1RjJZeXpxWk0zUjFTRk8xX1pYWFMwOTJ3RTZkd0lYdFVJa0dXYlpwNGZ6QThZSEVnUzhFSThSWjRoblVkYTBqd0g1V2pQTmpWUHBuMzBwRWZpajJLZVpiYWI4MFhEY3BpU185djR4NUhCNjJRTm1JQ2JJ?oc=5) |
+| Security guarantees for Ukraine to be worked out within next 10 days, says Zelenskyy after meeting Trump: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOdDBEbThzME51N29RWDNyVUx3WEJFMlhHbllpejFMUE1ydWlhNnE0a2stUGlWRmtVY29fbjhWNi1oMy1BLVpVc0Nwd0Y1YjZTX3BEa1lfYUZ6dFNKT2xmWDM2aXh6d3pQeTFROHp3ZVZzNE5JVlBQOUt1UVhxNjViZy1qZ1hRd9IBiwFBVV95cUxOSWZFRFVsV0g0TVEzdHRGTGp1RjJZeXpxWk0zUjFTRk8xX1pYWFMwOTJ3RTZkd0lYdFVJa0dXYlpwNGZ6QThZSEVnUzhFSThSWjRoblVkYTBqd0g1V2pQTmpWUHBuMzBwRWZpajJLZVpiYWI4MFhEY3BpU185djR4NUhCNjJRTm1JQ2JJ?oc=5) |
 | Security footage shows July 26 stabbing spree at Grand Traverse County Walmart - The Detroit News | [阅读全文](https://news.google.com/rss/articles/CBMi7AFBVV95cUxNNUNSdE5USF9YRE9DTE5OSkFHOXFSTnNoczhMb1ZOQU1lN2t1WFczMHJpV1ZITV9nazdDVlFSUlUyREZjQnFPeVR3SEJ0UFc1NUowRFlSV2g4cmp0c09EbzdzMHlQOEV1djhFdk1QNzhIMTkxV0s0ajI0RFB6QmpXZ1pMeU1QSkRQWE5nd0RpN1I0Znl2TWZoUHdtRlhUd09Mckl4dkFjblMwQWRTaW9ucnB1WTZpR05GdzQ0QkpFMlI2NndtVVNhWkd2Yk9Qc2RmeHpXbDNhNk1Ebjk1bkxLSFlwam85MGcxUHJjZw?oc=5) |
-| The "6 wars" Trump says he ended and their current status - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE94ZlZlaEluYzNidDZadFdFS2ZUc0hXQzFZbnFrbFNqR3B3VFNzd1lLZmcwZjdCbjAtQ2pBX0kzMzFCX1g4Zmc3Z0R6X1hncEI5U1NJTEtEOEF1ODZpUWFtWUtBWVI4OWh4eGR6TjVuX3RqQUZnRlpBcUtmWDdVSG8?oc=5) |
+| Why is Donbas region becoming a defining faultline in Ukraine talks? - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQM2hzalRZU2U4RGdRcWJUYVBYVUhVeVZ4eFZULW1LcENXVkxZeUllZ005MnVqeTY3UHlEUExkZkFfbjJGZW1qTHRRWENRbVIxVWU4WTNvVk1BcndiMnVqd1JPbnlXazB2a00tT0cydENuLVJJWHVOa09VMUgyc0F1bk1CSEx3M1ZYZHZNWjBEdC1lWjdHUFlBWWYtYWRuUjVfaXJuT2p1OVc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
