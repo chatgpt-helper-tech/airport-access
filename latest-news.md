@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月20日 19:49:41（北京时间）**
+🕒 更新时间：**2025年08月20日 19:57:29（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Gov. Tina Kotek doubles down on Oregon’s sanctuary laws in response to U.S. AG - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPMEVieXlPRUd2emV6YjVuUXp5Wlc3ZU5RaWp6YkVFMXY3Q2NjV2VJdzNVUGFPTW8yRHpPYXFkemlBR1RvZzdrX2hkQlJaOUYwaVVtbVBSZThYZjVyS213NDJpaHBjZG93cGZ4dTRCUkRwQkZwZVI2UXFTLUg2TzZKZ2MwNVRid0I2d2ZaUXh0bmJkTnJhNEt0Vk5wZkE4RXdXbzRHQ3RDMFhPOGFSMEJUa3NUdHNNSi1NXzJrSHpXZjg?oc=5) |
 | Texas Democrats tear ‘permission slips’ imposed by Republican house speaker - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQZTFBVUpFWjdyZkxVdktwM3BMZW0tdXhIMkZ1UnZBSDF5NFNJa0V3TE1GYjYyc0p6WWg1S1hncllHblMxWmFlcTZyb0hYQWEwMzhTRVV4djdHS1dCWUt4NVJBeE1QaUtfLU42WGpFaXNqWVpHUHJoU3I1dTQtbWlOSUllemYwQzJlb1BSOVFBazM?oc=5) |
 | Exclusive: Newsom pollster sees big support for California redistricting - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE52c296cVkzdGs2dGR1T3dLcXJTczBiNEJucEQzQlYySU40NV93SC04ME16LUpaSHdLdGlWWWhrQWtldG1nbndLbGR0N2JZeUUwRmJSTjdhTFlMOEJfd0dUODNQU09TR0dRdUZaTWdzcWE3a1cyOVBsVQ?oc=5) |
-| Abrego Garcia’s lawyers urge judge to drop his criminal case, alleging ‘vindictive and selective prosecution’ - CNN | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNMTFHS0ZlUDVxTjBPMndtUjAtdGxIUmNVTkpTOTdZV0ZBUE5YaE9xQUVGRXhUb2RuZk10QVZVZlpXb0owdUR2ZmFjbzBJeXBiaGxmandIV1NVTHdOdDB6ay11TDZXeTh0dTVHb0tmX1RMck5jMDBFQU53cW1icjJDUVdlTFZZOWFSSnJhRFMtTGZoUk1PUDZ5WkthVHV4LWQ5eF96R2RtbjNwU2RLLUHSAbMBQVVfeXFMUEN6LURKNnVjaENaY0Q4Y2RkbWgzTTVzanhZUTNXcmp5RVE2OEhmU0hlUFJnb2NhOEU2aHAxWXl0Ym9wcXo2QThLUmhkdzZVWXRxYkhuX0U0ZmhHaWJfQThWVERWMlBGVzctOEVja3VKWFJ2M2NBUndJYkZDNTdmLVpPb1VtNEpQOW9qaklZM3lVWUtKV0czZ3ZzeWFBWk5OWXI5VmtfcnZ2dDJRQVRMRXVCdkU?oc=5) |
+| On Trump’s order, dozens arrested daily in D.C. The details are hidden. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOZml6OHIyYTdpSVMzeTVfbnZxcjVOQnZVWHJ0ZDd0M0VaZDltOVA2cjh5Y3RUQk9od2h4VWs5bkt2alFQLUpOZzViSFFVZ0ZhWktudjVERld3eHdjd2RaNi1XNTcybGJiZ2lWMGg3ZUVtRDFkR2JDUG43dDlkVWJTTU1wZXJrNlF2SGVyZE1B?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
