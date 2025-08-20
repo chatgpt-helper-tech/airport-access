@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月21日 02:57:06（北京时间）**
+🕒 更新时间：**2025年08月21日 03:01:19（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Swimmers are warned to avoid East Coast beaches as Hurricane Erin moves north - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOTHR1NlktOXVBUzhLNGhUelh1TTl1MWZqSjNvOERRQlFHNHRCUjY0bVRiN3dESzJMckt3NnV6OVdOWE83VjQyYjQzRVVERnFaeVFFVjBmc0R6VUJ5eHlTMDBiX2hBaGZ1ZjVCMHRDOHBadi0tZ3dYNHhHdjRfUkRWTkkyLVM4SFMxTi11Y1k4bEh6UVBzaFFYajBZTQ?oc=5) |
-| Federal judge blocks Texas law requiring Ten Commandments displayed in public school classrooms - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPaURCWkxXMkNJMVdOcnlQSGlKcW5CWXJoSXBmNXJjSzE4cDNRVTFrY1FPb1h1aTJhY2tvU0RaOWV4ZkFvRmlkNzFDT2FCcTZwOU5zVDgtRzFENXN3RnI4T2RHWU9VWTJDNFhSVGFYS1NHaDc4NlA4WjF6VFlieWluMGxENEdBOUJKLW8xRVQ5WmVEdDlIZ3c?oc=5) |
 | Protesters heckle Vance, Hegseth, Miller as they get photo op with DC National Guard - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPRk5OSjF0UWUtNFRnRl8tNFR4eVJUUEtTbzFJb1BCU0xDZnZzUHVXcEdJbmZ3ODVoTGE1SU9NNm9VRnVlT2sybDE2RGlZN3hKb1g1R3J0UG5PSHdJbnV4Rkt2RlBDTlNHdkRWUnd6aHJnY1NidmI5b0R2bGU3Wm9IRVVqQkdkWjA4dGJrbXNLamJsb1dnQWdQZjFzYnZzSWVjTVYw0gGoAUFVX3lxTFB4RWViMlltaE9wQmp2cFFybVM0VVJVV0FrUXBSVXVTVlN6eHRBQ21Cb3FQY2VPLW83cU81cVRxZXRmLWVId09nOHQzQ2ZuNEdZZVdwTVhwbUlRcHFScDF3ZlZaS2IteXVsVlhDWEhMMzZlRGVQdE1scE1BTGdWY1doR1puSTlTZ0tVSWc0WkVoNGxNeFVzSjJkNHMyeU1LNTlyd21XQUNyYw?oc=5) |
+| Federal judge blocks Texas law requiring Ten Commandments displayed in public school classrooms - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPaURCWkxXMkNJMVdOcnlQSGlKcW5CWXJoSXBmNXJjSzE4cDNRVTFrY1FPb1h1aTJhY2tvU0RaOWV4ZkFvRmlkNzFDT2FCcTZwOU5zVDgtRzFENXN3RnI4T2RHWU9VWTJDNFhSVGFYS1NHaDc4NlA4WjF6VFlieWluMGxENEdBOUJKLW8xRVQ5WmVEdDlIZ3c?oc=5) |
 | Israel calls up 60,000 reservists ahead of Gaza City offensive - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1wM2wwaU43TDdTSTg2Sl9lcmI2b0t0N25xMG1yUndlTUFaUENQVXJ6SlRrWS1LUmJ6TnpUZ2xfM1U2X1Nob2tzTWdxUUlVTF9oRmJ6djhGeGZid9IBX0FVX3lxTFBQckhNRFhkYUkzZ09FVTB4Z0lGbVVaXzg1MDNpYk5VQS1PcjdDMEp3SGJTdjVDR3BGN1dTMTJITExNVndtRll2Mm1QQUxIX21mLUJ5QVBFWG1EN194VFlv?oc=5) |
 | Supermajority of Washington residents oppose Trump’s police takeover, poll finds - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1tNkVadDU0QXV4ZHBNMnluMVVYeDh4NE9UbU1wdkRPSnRFVGptdDQwLXppVVlmRjZDcjRWN2VCWnJKd1BFdjJFY2pKZE5keGswY0QyMm1KclBjWm1BMjIwNEluTGQyY3RzRlNtdV9VakVITGZicGpfQ2dR?oc=5) |
 | N.S.A.’s Acting Director Tried to Save Top Scientist From Purge - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQRUJ5TWJHTlpWR2ZUWXg1eDRkcUxRRk13bkhvaE9xWE9zZXh2Rkx1RHJRVC1GSW5UMzRtaGxjS3hhVTJlVVdoQVlvZTNVRExXWVhScHVwd3FIYURheXlXT2daMWprNlhUbkQ5VjJ2bEFPdm5SZUZ2ejZWVkk1VU0xRTZUdDdOVUJOcTJIVGNKUDY?oc=5) |
