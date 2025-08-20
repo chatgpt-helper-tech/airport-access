@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月21日 01:56:09（北京时间）**
+🕒 更新时间：**2025年08月21日 02:01:51（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Texas Republicans Poised to Pass New Redistricting Maps, Just as Trump Wanted - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQcC1TcEhGS05BTjBtM1ViVm80cUFkaUc5YU5aaEpNY2tGSUVXZmhjVjQzeVMyd01rSmxMbE5XaWVucnBjVDFMQ3A5U19qbmtGVWNlU3ZtM1BMWDF4RkhIaFNBY0t0ck13cWVXN0stc0dlTkhNd2Y2M1hpb3F1SWlpMmdFTm94SFBGUkdwZTRIWW90UQ?oc=5) |
 | Poll: California Democrats like Gavin Newsom over Kamala Harris in 2028 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQcnNEdTZUSGttTE5lZDFReC1pdGN2V3JfazFxQ2VWQ0UzNDBHb0hGR0g5TldEVnhCRjlINHBtSnBCZ2ZEWldJbExDRUJURlRiUU1jbEhrdUlVMnJLaGNXWlQ2NlR6VkMzUUlJb3lXb2ZLVmxvRFFjUUI0eGtSX1gyQTA4akFGWUZJb0J2LQ?oc=5) |
 | DNA testing confirms Travis Decker is sole suspect in murder of his three daughters - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPbFhoTmR6MmpSR0lBOTFGeG14WjVhUXlFVE9RbDh3QmNjZGxfU2lXdU5Kb0VsWmstTVY1WmdLeWFDZDZ5c2wyOVR4TXhrNWZ1cXBITWt0blZac0QtYzk2dWJ6d2toemxjNGVUN3dGNkYtR3FrM1UxZi1vNGFOYzlaYTlSckcxWC1YdEQ4a1dmUFB0R0RRSWpfWXVCUG1aOTBhdHRJMGJBVl9aeWpZTEJpSlRtcWhYQmpTZ0HSAVZBVV95cUxQdkdJWTYya2N2OV9oWjdaNHZ1blJ2S2QzSzdDSklmSldKWU1mVUpaVGl2TjJUeV9zQlNpdmZQZkJzdGZZakVMZjhselBWQjg2VGlVb3FCZw?oc=5) |
+| Trump targets the Smithsonian again, says it focuses too much on how bad slavery was - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxONzI0RGZLckJFcHVJNm5JSGZ6YVV2QjRrTTdHUjBWTGpwdnY2SjY0T0k2azA3VV9JUlZBQU9oV2NYcVRNaFhyZnZaN1RfNG1oeWVyRlFHUm5reFJEQzk3dnc5b3J3OE9MTm1EVldaSlV6UlZwVDJING1wTk5JUXIya0tKZFMyNUZUWHFNTGllWUFVa3BCZHZMRkZ3eWNLU1NMbXMybjU1NGJoM0pYUEF2MHlZV0FRNGxQU2xzQ2tR?oc=5) |
 | Exclusive: Newsom pollster sees big support for California redistricting - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE52c296cVkzdGs2dGR1T3dLcXJTczBiNEJucEQzQlYySU40NV93SC04ME16LUpaSHdLdGlWWWhrQWtldG1nbndLbGR0N2JZeUUwRmJSTjdhTFlMOEJfd0dUODNQU09TR0dRdUZaTWdzcWE3a1cyOVBsVQ?oc=5) |
-| How Gavin Newsom trolled his way to the top of social media - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQMFIwQWpoVVpUUUY4d253c1JMbk5kT082TGV1c1lNMU1Nb1hfa2RYZkROT251NjYyWkRjcXR6ZlJkWEczeWIyVjJMaUJzaGFMcE43bWM2SUJLeUVkdXFqeURaY0JZaktXZDY0WWFoZEk4R0ZnNDI5MV9ONnBpSmNfVTlB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
