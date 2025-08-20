@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月20日 18:25:08（北京时间）**
+🕒 更新时间：**2025年08月20日 18:33:20（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Kremlin plays down Zelensky talks as Trump warns Putin may not want to make deal - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBWZ3RZdmRNMllqWEJlMmR1dWU0WEZ1NlRrTGRYWUk0TkxjeE51THNZY0JJY2tGNUxqRjk0dHVXZm5zeFhMUTE2QjFXdktlTnp2VXJ3SmtucTdjd9IBX0FVX3lxTE1ZYXVaakoyS0I5clRqRy1HX210bjY3c1o3U0NrSXMzYlk3V1BPM2xyOGlUTXRjckd2ZWg1VXhOZzROaUVXb0lsSENFSmJBVXB3Ni0tcnk3Tzh4WFhRTDE0?oc=5) |
-| MAGA isolationists brace for details of Ukraine security guarantees - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQWVl3WkF0ekN3Sk9Sdk1wNDRwT2pSZC0wVXh6UmN1UFctWnMtVU9pWXJFWUFyZmNMcmlncDRTY1ZPNHhvUmQxb2RKMlVBU1ltdmdDQTJ2TWZUczRoRWhESTF5QUI4di1lRjF0UjhZMmZUYWZEb3VDODhlMF9JcjhSbDItNmU?oc=5) |
 | Trump Says Smithsonian Focuses Too Much on ‘How Bad Slavery Was’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNR0JabkNpRGxsVjhsZFhGTmJ1SWZEeEo0RUJKdmlLSHMzRTd5clRoYmY1R0NMVGdDQ0V6UWlqcmZ0VmxlUzh3NTNyQldweEJsWXdhalJXRkFyUVRkaDVfTjV6Rl9RWWF0QVJoZlcydXcyLVk1Yzd5UGwxQlVFU0JkMjJxMA?oc=5) |
-| Hurricane Erin forces Outer Banks evacuations as beaches close along the East Coast - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOOXlfZ1ZTcGlWbDJYS3BaOHVCdFJKT29hNWdZXzZjSVN4c0NTcDdDczFNY2x1QzlsbDdLUl8yUTdYS1JLeWo3SExUcjg0aFdVMlJGVVNIT25rSXBIeHJ5N2loSjdoODVid0xSR0xrSDJ1c1ZKNUk5cjNJNVAzamNOcXYxemRKZUl3YjE40gGQAUFVX3lxTFBDT0xCU3hhZDN1R0ozWjRpdHkzRE13VE9mRHdMazVyQ0pqejZQZ204VWJZdlh1UFVIcTlZQWp0cGQ0M0hkZjJUX1F6OEdMcWJ1X01mc05xd0k5cGZ5MDZoVFAwMXNNeXVfX0t0X3dxWFRkM2hhbk5HS2IzeHZxemkwZ2dCREh0TEJZcFB6cDBSTw?oc=5) |
+| US, NATO planners start to craft Ukraine security guarantee options - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNSEF5RjBRNFNZeWl2OFhzdVIxWG5TS09FZGMtZVY5LXBPamI4Nm1qd3JnUDVmLUt5WjBfSllSLVhEY19laGtFMkNIbkhETzJnR0ZTdXlSVGNIX1RMZEh2SjRVMXQxNGlUOHRGQTZVaUhGWGdJdmsxVVkyOUY4aXdQSUhZUUNkWHhWNmJKRkFTaGl1U3FoYXA4NXFiX2RpRWhLX3U5U1dTUUs2UDVJSG84M01R?oc=5) |
+| Hurricane Erin triggers storm alerts in N.C., Virginia as some East Coast beaches shut - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNdElRUm0xVnFORlNlQmNaQW5KblJlSjd6c081N2t0eUpiUTcwNlpybUZMVlBNVXBLT3J4dWptQU02OF8zUm9NYVBhVEtjWFRHTzZ5WEliOEF1c2IxNlJRYkxlaTJjNlRBX1VJaTg2MDY1aUNyYTI1NEl1MF9jZ3dZX3Q1MTFFT3RRNkE?oc=5) |
 | Trump administration revokes security clearances of 37 current and former government officials - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPLXkta2sySHVjUmxrNENqZWVLUy0yWnVray01QzVDQm9ob1RRUGo2Mi16MTMxNS0tMmZaUDZ5V1lkUzBrNExqZEF0RThxRXJzMHpnSVBwTllRelk3NXJSZDJUYzVkU0x3M3BkTURFb1M3T01pSlZuS1pmZy1TZnNfb3ZmUHlKc04yY3RRTzBjUEtSWHVxTzd1Zg?oc=5) |
 | Texas Democrats tear ‘permission slips’ imposed by Republican house speaker - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQZTFBVUpFWjdyZkxVdktwM3BMZW0tdXhIMkZ1UnZBSDF5NFNJa0V3TE1GYjYyc0p6WWg1S1hncllHblMxWmFlcTZyb0hYQWEwMzhTRVV4djdHS1dCWUt4NVJBeE1QaUtfLU42WGpFaXNqWVpHUHJoU3I1dTQtbWlOSUllemYwQzJlb1BSOVFBazM?oc=5) |
 | Gov. Tina Kotek doubles down on Oregon’s sanctuary laws in response to U.S. AG - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPMEVieXlPRUd2emV6YjVuUXp5Wlc3ZU5RaWp6YkVFMXY3Q2NjV2VJdzNVUGFPTW8yRHpPYXFkemlBR1RvZzdrX2hkQlJaOUYwaVVtbVBSZThYZjVyS213NDJpaHBjZG93cGZ4dTRCUkRwQkZwZVI2UXFTLUg2TzZKZ2MwNVRid0I2d2ZaUXh0bmJkTnJhNEt0Vk5wZkE4RXdXbzRHQ3RDMFhPOGFSMEJUa3NUdHNNSi1NXzJrSHpXZjg?oc=5) |
