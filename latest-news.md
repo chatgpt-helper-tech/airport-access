@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月20日 12:56:51（北京时间）**
+🕒 更新时间：**2025年08月20日 13:01:15（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Sanex shower gel ad banned over racial stereotype | [阅读全文](https://www.bbc.com/news/articles/cn92znzx8zzo?at_medium=RSS&at_campaign=rss) |
 | Final £1 coins featuring late Queen enter circulation | [阅读全文](https://www.bbc.com/news/articles/cvgn3nv6g69o?at_medium=RSS&at_campaign=rss) |
 | Actor son of murder-suicide victim issues stepdad funeral plea | [阅读全文](https://www.bbc.com/news/articles/c4ge878r2vpo?at_medium=RSS&at_campaign=rss) |
-| Oasis blown away by reunion, says Noel Gallagher | [阅读全文](https://www.bbc.com/news/articles/cdrk267ldy7o?at_medium=RSS&at_campaign=rss) |
+| UK independent space agency scrapped to cut costs | [阅读全文](https://www.bbc.com/news/articles/c4gmjm8z47jo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
