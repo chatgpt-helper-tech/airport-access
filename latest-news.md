@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月20日 16:16:15（北京时间）**
+🕒 更新时间：**2025年08月20日 16:24:37（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump's redistricting war heats up as Texas, California feuds escalate - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQT1dXb0dtTkR6NDBfQW9YdHg4NHFFcGtraGNHc0tUc2RhSWsxMGhmQnUzX3dOSGtER18xZHlfeEhESzlHZTVrbWZkNThjUjRpbWtIclI5dGh0dGxoUDQ1cGlWRVVGYUk0eVlvWmZTWFVKOUJENTZid1cwTDRsZ3NKNUIzbFZfUmlKM3lHLWlZcw?oc=5) |
 | Gov. Bob Ferguson to U.S. AG Pam Bondi: WA won’t ‘bend the knee’ to Trump regime - The Olympian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5jaWxXekVXTUVZRlN2NXlmZmR4ZFJycXNBemNlUjhtekpuT0hOcGRTVnVkTDlUQmo1NFJ1Tm9oaXNSYUxzR09yS0o1MDlFc2tzZDdVZjhyZ2tJYUc2ZnpVb000aVBSSEhVQWMwSXJfUEd1UUUtWVNTY0ZnZGNISTTSAX9BVV95cUxPWUI3SWgzX2pwVTh0dnZaZEFKR1ZxYk1BbUd5Yk5UZktDWXNEa202ZExtZGtwbXBFV3d1S2FwOHVfQkdwVVUwMHZOa2QxeHVGaGdfbTF3c3lxbDJlZGFBOGNYZFVDVlpCYWxkekc5dm83T1cyeTAxTURYRktHTjFz?oc=5) |
 | Trump and Putin are both criticizing mail-in voting. Election officials are freaking out. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxPUV9PYTVFZ1F0MDEteUZQOXk4QzRWWi1ybDRwRklJVThmcmx4RVlhR3EwQ0R0eG0wWUNxYVZfUHlFQmFHV3Q1LXhPZ0g1VFhQREhpUHJKRU4zNDU0bnZ0V19HeldoQXpmeFdISkxSLXdCb3RwTGFjX0M4MHJpYUotMEhlb3RzOENqbHZ2NkU2dEhUbVhEeS0xSnlCRVdsUVFMUDhScGFFUjMtRHh2NzREYlVwYXQxeElIZ0I3UDk3dU5jM3RicFBJVUltZ09SYkJmN3l3?oc=5) |
-| ‘Cornhusker Clink’: DHS to open new ICE migrant detention facility in Nebraska - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxPUnVxeC1TYm9MS3E3akpUdTl3VWpMT2pXYTYtY2hSbzZIR3pHWGtZa0pxS1Q4ajBGRm5rTFBPOXFaX3ZESzYwdlhxcWx4aExlWXdtZjViQzhpRWZ2QkZQczR6WXBHRVFRWG9ELWZIRTlaemxaSzZFUWhFWEFnSEx6OGF0dE5jbVBKSkFxVndxZDRkM0hzYUpPbVZ2bnlXdmR2bVhOYWU4amJCeHRPdExQRnNuWnlBQWdqN0RSOXBoWHJRSjdzcV8w0gHMAUFVX3lxTE94NU1lUElkV1pTMDBKZzNld0c2bnN0TUp1Zjhuc19iWGtyeG5iX1NyS0x3ai1QQUF6UHRNNDNVcTZuaWdjaVNvbXdYZG00VjhubmJFckRDSTZoTGwzcGJQcTVzSjhBQ296N29BM2JjTGZVQWRIcGR3aGktS3U1RmlxcHNkbmt3YmpiN09QdVlqRVhERkxRcGRZUHdZNHVUTE1IVW9KUDR0NTE0OFFYazFYY3VuZTNlRXZZQXFvaE5XMDc4YlVFbFZ3ZjZTWQ?oc=5) |
+| Abrego Garcia’s Lawyers Accuse Trump Administration of Vindictive Prosecution - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxONklPTTJKeTM4MzN2Z3prYkIyS2tlMWREQzc4V2F5c0hNSV9ZYk9JbU8wazV6R05iMll2Rkk2QmNIdWMzQUI3YUxaOGxlSFA5THA3ZjJBV3Y2c3ZNWHIwMjFlazJIOVpSZXJwZXpvbEVPNmFZeWU1S0FrcmhBdVBzVTE2ckp5MVY5UDE1Uk1KWUI5dy1Y?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
