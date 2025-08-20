@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月21日 05:16:25（北京时间）**
+🕒 更新时间：**2025年08月21日 05:25:40（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Israel says it has taken first steps of military operation in Gaza City - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOdnFtNWg0UERQMTUwcnlNeUlrY0lvNU1LNTVQbG9pXzhCa2tReTVETlRGRGk5ZERucGZ2ek95ckVDdkZNSzVZM2lCTmFzc0xYMFhrODNyWDdmUzdNSTRLQlYySGF4eHVYaG9nNEdPU21idHVTcURZX1daZmh6c3I5VkNBQ3JDNlltY1M3OVlybGFuWTZzSlFaYS0wMXZ4d0ttc1RUWVJTTDBYeXdXTUxsaWFzcU5wZ1QtWGFr?oc=5) |
 | Protesters heckle Vance, Hegseth at photo op to thank DC National Guard - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPRk5OSjF0UWUtNFRnRl8tNFR4eVJUUEtTbzFJb1BCU0xDZnZzUHVXcEdJbmZ3ODVoTGE1SU9NNm9VRnVlT2sybDE2RGlZN3hKb1g1R3J0UG5PSHdJbnV4Rkt2RlBDTlNHdkRWUnd6aHJnY1NidmI5b0R2bGU3Wm9IRVVqQkdkWjA4dGJrbXNLamJsb1dnQWdQZjFzYnZzSWVjTVYw0gGoAUFVX3lxTFB4RWViMlltaE9wQmp2cFFybVM0VVJVV0FrUXBSVXVTVlN6eHRBQ21Cb3FQY2VPLW83cU81cVRxZXRmLWVId09nOHQzQ2ZuNEdZZVdwTVhwbUlRcHFScDF3ZlZaS2IteXVsVlhDWEhMMzZlRGVQdE1scE1BTGdWY1doR1puSTlTZ0tVSWc0WkVoNGxNeFVzSjJkNHMyeU1LNTlyd21XQUNyYw?oc=5) |
+| Israel says it has taken first steps of military operation in Gaza City - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOdnFtNWg0UERQMTUwcnlNeUlrY0lvNU1LNTVQbG9pXzhCa2tReTVETlRGRGk5ZERucGZ2ek95ckVDdkZNSzVZM2lCTmFzc0xYMFhrODNyWDdmUzdNSTRLQlYySGF4eHVYaG9nNEdPU21idHVTcURZX1daZmh6c3I5VkNBQ3JDNlltY1M3OVlybGFuWTZzSlFaYS0wMXZ4d0ttc1RUWVJTTDBYeXdXTUxsaWFzcU5wZ1QtWGFr?oc=5) |
 | Judge rejects Trump administration request to release Jeffrey Epstein grand jury documents - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPNXVRNWdVeU5PUXBFNVozUkUwOEdSU0ZzY25CaklRaUVzclVDMk10cEFySXk5VTVvSUkteEs2a3lDTHhfRXllRXJ0aUlfTGlLY1gzVy12V3hsVjJkZFh3cEtQZ0lHRzYwcUs4alpkNkZuV25tWjFKV3hWQS1rN183TElmeDB0czduWjZXLWJzTVhvMVFUTGplRdIBngFBVV95cUxOSW9zYzVyTFZFSXNaVnN6Y2pWN0hGS2NPM1lpdDZWV29VTWFockp2OEtQSHZVUEx0VXZMNktQTk1VaVh0RjRIUHItU0RBak1RTXoyZVB2N0ZXUkNneVRMVXdZNjJnRkVwRDh1Vm5fLThqUWZGLXMwaFljSUJTbzBaS21JSk01OWplQjlJMHBsTkNhaXd3QTZ3aHREdFE3dw?oc=5) |
 | Federal judge blocks Texas law requiring Ten Commandments displayed in public school classrooms - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPaURCWkxXMkNJMVdOcnlQSGlKcW5CWXJoSXBmNXJjSzE4cDNRVTFrY1FPb1h1aTJhY2tvU0RaOWV4ZkFvRmlkNzFDT2FCcTZwOU5zVDgtRzFENXN3RnI4T2RHWU9VWTJDNFhSVGFYS1NHaDc4NlA4WjF6VFlieWluMGxENEdBOUJKLW8xRVQ5WmVEdDlIZ3c?oc=5) |
+| Tulsi Gabbard revokes security clearances for 37 US intelligence officials - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBSb3podkw3TnZaYW1JWlFYVjkzS1MxdGtaWnJLTnVQV0RCaDVjX0lCcUJSZTJGLTZVWjF4cENweHpRclV4UFZBS0J6TXFWRDB4Q1diRVhnaHlRd9IBX0FVX3lxTE1HVk9UcjlHV0U0QXBwYTJSVW9UWUJ3TDFUV0dMY1BKOXBqZXJUd3Z0X3NsV1RJVFdqd2xrdkNKT2NwdmY4cFgtOFRYWHBfZHV2NXJZb05DbTBxcWgzSzU4?oc=5) |
 | Strengthening Hurricane Erin on course to recurve out to sea - Yale Climate Connections | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPdlVMb0VjTDZnQW1ZNy1XY3lNS0NrR0J3ZUlqRjR5MHl5Z1pHeUdOcUUxdFU0ekxLX0FXTjJkUDFoNjAxQmhuQkRSTS03aEFqQXRCc3FLMk84Ykl5MEduUUlNS2FQNUZSd0dzUjVGTnlxYk1nQUhWU29rdkYxb0phcHNJd3c1WFhmalJPR2pRdk5ESFdyaUhPUHVBY3cxTnQ4SGVwb3l0QQ?oc=5) |
-| One civilian injured in crash with D.C. National Guard military vehicle - NPR | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1mWFRvZzFDLWpHckFSRmotcUR1YjQzSXJobGF5eWQwWEtiTC1sclljaGsxcTRSU3BsREI2bnZnY0ZEc1UwSG5fQzBxb1gxaURPSVZRUjQ1TFAwMTNjaTA2UFdXSUxqdFJ2bkQwTEoyWEpYR3M?oc=5) |
 | Texas Democrats' plot to stall redistricting until Epstein files released fails - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQNGpPbTVPbk12MFhfNVJ0NjBQZVhRUGREU1RCWTVNU2xGSW9PdVA1bWk2ZnBWa1pWTkV5RnQ3Nm01R2Q1UWVoUG9ENmZ5dnpPejQxU2xUUmRjc0MyMkxMNC1tNVZhblktS3ZmRU9ab0J3eENJZXVza3hoLXFfSFRQMUh6amRpRlMzeC1jcnpoR0hxcXlKRzdjeHViOUhHcEhtTXc?oc=5) |
+| Security “guarantees” for Ukraine are dangerously hazy - The Economist | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOeVNZeW4tV2wtYzZnaENlT2podjctRkFJM2tGQzBqS3liRFFzaG9fSHBoT25qdnFmOXpydG5jVzR0Z1MyRjZCekZCbDE1ckpnNlJ0a3RIVk9kbndjRVlYWElQYUYzdHFMM29QeVZUVGZqYWxTeE9TR2hlRVZpcmxTU1lGSU1BbmVvRWZDSndVVjVqRXRKS3VrOUNTakc?oc=5) |
 | Obama applauds Newsom's California redistricting plan as 'responsible' as Texas GOP pushes new maps - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPbngyMHV1T05fUkJOeXVnUjd2NmpCZWptNmk4bVpHbWdFNEE1Y19hWVFlSTFCMkl0a3IyUnc4cWx0LXBZOHdlRkVva1p5bUgyTlpMdXBJLUtyYkdwZmJGNVRtT0FLV0MyUDZiRzVlTU5JXzFTdzcweXFsX3czeHhHZ0JjNGJieDF5eUdQakxZZnE3cm9MbmJmTXVreW01bnFkT09QNEdrQVVfM29CVmZ4QmN1RzRlME9a?oc=5) |
 | Trump targets the Smithsonian again, says it focuses too much on how bad slavery was - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxONzI0RGZLckJFcHVJNm5JSGZ6YVV2QjRrTTdHUjBWTGpwdnY2SjY0T0k2azA3VV9JUlZBQU9oV2NYcVRNaFhyZnZaN1RfNG1oeWVyRlFHUm5reFJEQzk3dnc5b3J3OE9MTm1EVldaSlV6UlZwVDJING1wTk5JUXIya0tKZFMyNUZUWHFNTGllWUFVa3BCZHZMRkZ3eWNLU1NMbXMybjU1NGJoM0pYUEF2MHlZV0FRNGxQU2xzQ2tR?oc=5) |
-| Poll: California Democrats like Gavin Newsom over Kamala Harris in 2028 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQcnNEdTZUSGttTE5lZDFReC1pdGN2V3JfazFxQ2VWQ0UzNDBHb0hGR0g5TldEVnhCRjlINHBtSnBCZ2ZEWldJbExDRUJURlRiUU1jbEhrdUlVMnJLaGNXWlQ2NlR6VkMzUUlJb3lXb2ZLVmxvRFFjUUI0eGtSX1gyQTA4akFGWUZJb0J2LQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
