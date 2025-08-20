@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月20日 11:17:22（北京时间）**
+🕒 更新时间：**2025年08月20日 11:24:58（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What’s next for Ukraine-Russia peace talks? 5 questions to ask heading into a potential trilateral - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOdm1EZURTNzFsYWlYMDZuUG40SnNLaXZndnZ0NUlLbElGS1dITXRrNUZsVllITEYwVWUwcW1tVjlhVXRwUkZRTUtkX1B3WXUzTEx4SEZjUGo3elY3ajRfSWJaWlR6c2hWOHZHdUNPMF9ZU1VBajgwQTJOUGVvMGNJb001TmUwako1V0JtbFBCbmp4QQ?oc=5) |
 | Trump administration revokes security clearances of 37 current and former government officials - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPLXkta2sySHVjUmxrNENqZWVLUy0yWnVray01QzVDQm9ob1RRUGo2Mi16MTMxNS0tMmZaUDZ5V1lkUzBrNExqZEF0RThxRXJzMHpnSVBwTllRelk3NXJSZDJUYzVkU0x3M3BkTURFb1M3T01pSlZuS1pmZy1TZnNfb3ZmUHlKc04yY3RRTzBjUEtSWHVxTzd1Zg?oc=5) |
+| What’s next for Ukraine-Russia peace talks? 5 questions to ask heading into a potential trilateral - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOdm1EZURTNzFsYWlYMDZuUG40SnNLaXZndnZ0NUlLbElGS1dITXRrNUZsVllITEYwVWUwcW1tVjlhVXRwUkZRTUtkX1B3WXUzTEx4SEZjUGo3elY3ajRfSWJaWlR6c2hWOHZHdUNPMF9ZU1VBajgwQTJOUGVvMGNJb001TmUwako1V0JtbFBCbmp4QQ?oc=5) |
 | MAGA isolationists brace for details of Ukraine security guarantees - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQWVl3WkF0ekN3Sk9Sdk1wNDRwT2pSZC0wVXh6UmN1UFctWnMtVU9pWXJFWUFyZmNMcmlncDRTY1ZPNHhvUmQxb2RKMlVBU1ltdmdDQTJ2TWZUczRoRWhESTF5QUI4di1lRjF0UjhZMmZUYWZEb3VDODhlMF9JcjhSbDItNmU?oc=5) |
 | Trump expands 'woke' criticism from Smithsonian to other museums - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOZXRKZUZIUTl1VUlRdzFRbnF1NFhfYkRQaUw5YlZlMGdua0RLU3dxSWw1WTRDemhLNnNuV1FRU29QSXdhQVFVNGhUdl9DV19IWDFOVlRMR3dvVmdaODV2QWtPckJJYU9HcnhmTDJRS0NRVkdEWmhQbm5ISXJ3bnI3dQ?oc=5) |
 | What Hurricane Erin will mean for Virginia, Maryland and Delaware beaches - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNR1FuaEMwYzNBOHM1ekZZdC1UU2xfcWdoNlVYTGlTQmVRWFVKQ3JmMWJFRzZjejFLWEU0Y3p2N0tWZEJhdDZUX3JaTDNNbUdZTGNYVEdZR0xPUDFtX1B5S0xWYUxhb1NyVUpfczFvZ2oxUkl3Ty1peERuZjZZTEF6emhjeWxnaHRZSE5RZ1hjWlJJRGw5Q0VSOUI5VWZWRGQxSkE?oc=5) |
@@ -32,7 +32,7 @@
 | Gov. Bob Ferguson to U.S. AG Pam Bondi: WA won’t ‘bend the knee’ to Trump regime - The Olympian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5jaWxXekVXTUVZRlN2NXlmZmR4ZFJycXNBemNlUjhtekpuT0hOcGRTVnVkTDlUQmo1NFJ1Tm9oaXNSYUxzR09yS0o1MDlFc2tzZDdVZjhyZ2tJYUc2ZnpVb000aVBSSEhVQWMwSXJfUEd1UUUtWVNTY0ZnZGNISTTSAX9BVV95cUxPWUI3SWgzX2pwVTh0dnZaZEFKR1ZxYk1BbUd5Yk5UZktDWXNEa202ZExtZGtwbXBFV3d1S2FwOHVfQkdwVVUwMHZOa2QxeHVGaGdfbTF3c3lxbDJlZGFBOGNYZFVDVlpCYWxkekc5dm83T1cyeTAxTURYRktHTjFz?oc=5) |
 | Texas Rep. Nicole Collier alleges "illegal confinement" by GOP after refusing police escort to leave Capitol - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxQVXVkYzV5SXBUaEE2OTRjUVdCUGJQaUtmMzlucXB4eFRUZGM0YVFTZ2pfZEFWbmdraXJpcEpVTHZqdjBMM0F5UGNTdERFT0ZPRzA3QWdqWG0tckZvbmdzUURpYW51dGd4TElIb1BqeGxVTzFTMjJhOE9TWkRXZHAtZ3ZleDQ4QUd3eG05cTRPOV92ekZ6ZnBlTUxYMFRNaFJneDM2cEdQbmtuQmRuUnpFVkIxdnU3NFdnVV9ON3g4a0VETV9Ra3lkUEdmZUNZTUdG0gHWAUFVX3lxTFBPM3Nway1LMkdxcEVqdERYQmFGV011bnpMRlpaVll1RVI3NFZtTXNJbld0SC1BcFdDcHNaZDRpTEM2d1FQSHg0d1puakZsYU5ld0VNbnByZzR6Rk52aElaM01xYXBOakd6TWloVjJWOHg5M3d1b3dYbDgtd1VzSGRkNE9IRjNZV25WaTBKSWFxWERwOTV5djZvMFNxeEtySENhMWtFQWx2SHVYeEdIOERiUW5kZ1ZpTEF4bkZaWDM4WTMycHVhSEFtR2ZXYVFJVUN3RUZrSmc?oc=5) |
 | Immigrants seeking lawful work and citizenship are now subject to 'anti-Americanism' screening - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQSmsxdnlJYURyN2pYQmRjZG1YUjUtdHlvT2RpTm54aHZOdy15RmxwR29FVjB1dFYtQzBpRnpjNHRjR3VXZnNuNWR0RnE4a2JfXzhWTENoN3lIWjhQdzJ6TlczVmZvYWRsZVZCbGxERHFiQjhHZ2NMdlNqZGpTRjZBMERzR0hSX3Q3WktIN2JFYmlMdndv?oc=5) |
-| Nebraska announces plan for immigration detention center dubbed the ‘Cornhusker Clink’ - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE15RXVrbEk2MGx0NVIxRm54Y0JudXU3bFpqbDU0eXpvNWNPSFpLYm1xUWxEbXVkdjQzbHloa0lUQUJIbC14dGpLM2F0QTA1NERYUHlwSjdUaEVJSGZ5ZXNzNFNxY0hybXJOenVvUjVuT0ktSmYtQ3RodzFVTdIBgAFBVV95cUxQQzRLYVh2cTgwLVFfQWNQUXdQWC1NOTRoWEs2aWFLMDZxdEY0cU9ReG0tb3ZJU2FzUjdfWFFkYldQT0NxeEFOalVOZDBPLTMyeXp2OWgtRThTSU5yMG5fU3pNaGNnYzlDVXRZdnZ4TEpwcS1WWFBFQmUxa0VYZHAxUA?oc=5) |
+| Cornhusker Clink: A New Partnership with DHS and the State of Nebraska to Expand Detention Space - Homeland Security (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPME5fTmU4TTZMZVBCckZmQUFVd1lBWUpvTlpKbGphaEgtaWkwT3JYVS1ET2s0eVNfVXRlak9YVXROSTJQUVFma3pmMnVtWW1LWU1kbGQ1cDU0cUJDZnU2MVhGdW5oemUyX0pxal9UTUdCMVFoYTBaR2Y2R2hTSEdEdGpKcnpjWk5ZZjFoSHRwM09RVEJKVDVleFVXRlI1Z3AyeG1wTHVTVnNDZ0Jld2E4dDBEMk4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
