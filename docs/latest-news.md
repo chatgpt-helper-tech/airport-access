@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月20日 17:56:51（北京时间）**
+🕒 更新时间：**2025年08月20日 18:00:38（北京时间）**
 
 ---
 
@@ -17,13 +17,13 @@
 | Kremlin plays down Zelensky talks as Trump warns Putin may not want to make deal | [阅读全文](https://www.bbc.com/news/articles/cn92e52rpjxo?at_medium=RSS&at_campaign=rss) |
 | Family of NZ fugitive on the run with children pleads for return | [阅读全文](https://www.bbc.com/news/articles/c3v37ye0l0ro?at_medium=RSS&at_campaign=rss) |
 | Leaked report shows 10,000 shortfall in probation staff to manage offenders | [阅读全文](https://www.bbc.com/news/articles/cy7yj0gkl3zo?at_medium=RSS&at_campaign=rss) |
-| Pine nuts and goat's milk among foods that should have allergy labels, experts say | [阅读全文](https://www.bbc.com/news/articles/c5ypgrzxx9go?at_medium=RSS&at_campaign=rss) |
+| Aubrey Plaza says grief is a 'giant ocean of awfulness' | [阅读全文](https://www.bbc.com/news/articles/c30z944q42do?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Why Putin is not ready to meet with Zelensky, and may never be - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOVGpfMmNOXzFDLWZKRVZGMUZSZzVaNkhUMlRkV2FmUkkzNU9zTlFGTFUtWE1uWG0xbUZqQkhfYjhrVTUzOFNDWXNVYjk2M0I0a0RUWUZXTDdaUDQwbkRvdjhORDlDSHFKLW1tTGN5X0pBaUt0ZWJKekl2dXNxZ2Y1S2M1RFdZSmN2WXRR0gGQAUFVX3lxTE1HLTNBMVJGclRPWFNZcUo1enQ0QmFuNk5rNnJpS3pXM19yOEF3YkpRTS1YTEp4eGdvb1lUTloyZ2ZiV2JnOFFsYmdlWVZ2dm5fQmlQRk80T2lNMFlmUldEY0pkTXN0b3lxWXdYLW5Lb3QyeHM4ZzI2QnJqUmtFaW1KaXc4WjZRekEtbU95Z08zOA?oc=5) |
+| Kremlin plays down Zelensky talks as Trump warns Putin may not want to make deal - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBWZ3RZdmRNMllqWEJlMmR1dWU0WEZ1NlRrTGRYWUk0TkxjeE51THNZY0JJY2tGNUxqRjk0dHVXZm5zeFhMUTE2QjFXdktlTnp2VXJ3SmtucTdjd9IBX0FVX3lxTE1ZYXVaakoyS0I5clRqRy1HX210bjY3c1o3U0NrSXMzYlk3V1BPM2xyOGlUTXRjckd2ZWg1VXhOZzROaUVXb0lsSENFSmJBVXB3Ni0tcnk3Tzh4WFhRTDE0?oc=5) |
 | "Politicizing intelligence": Trump admin revokes security clearances of 37 U.S. officials - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQTHlTSlhCS0VfMHlvQW5aLU5oS29FT0VnVENldGZfY1E4RXl6Ti1rem9kaXJUQ1NOZGJ4MnpWcTE0c1JGUzljdUQ0aGFjV2NTN1J5Mkl3MHJTQ0sxWEtRMlBuSnBCYXdLQ0I1X0tlN0VWNVlHN0FXMmlKMXRPbjEwdktYOHo?oc=5) |
 | US, NATO planners start to craft Ukraine security guarantee options - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNSEF5RjBRNFNZeWl2OFhzdVIxWG5TS09FZGMtZVY5LXBPamI4Nm1qd3JnUDVmLUt5WjBfSllSLVhEY19laGtFMkNIbkhETzJnR0ZTdXlSVGNIX1RMZEh2SjRVMXQxNGlUOHRGQTZVaUhGWGdJdmsxVVkyOUY4aXdQSUhZUUNkWHhWNmJKRkFTaGl1U3FoYXA4NXFiX2RpRWhLX3U5U1dTUUs2UDVJSG84M01R?oc=5) |
 | Trump Says Smithsonian Focuses Too Much on ‘How Bad Slavery Was’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNR0JabkNpRGxsVjhsZFhGTmJ1SWZEeEo0RUJKdmlLSHMzRTd5clRoYmY1R0NMVGdDQ0V6UWlqcmZ0VmxlUzh3NTNyQldweEJsWXdhalJXRkFyUVRkaDVfTjV6Rl9RWWF0QVJoZlcydXcyLVk1Yzd5UGwxQlVFU0JkMjJxMA?oc=5) |
