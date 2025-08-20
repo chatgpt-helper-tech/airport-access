@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月20日 17:17:33（北京时间）**
+🕒 更新时间：**2025年08月20日 17:24:11（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | President Trump’s Peace Summit Hailed as a Game-Changer - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPOWhiaE9wclBsMlludVdFUWxWY1V5UTRLZ1c4VmZRdmNWdTYxRE1qdzVuQ2oxVS1HMXJjNFh5eUtzOTJmZGNGYWVCRXJJZnFaRmxOYWFHQmp3THA4WE9DcG9aeTlxMjNnQTE4amFTeTBVM2lXUi1LWjNpQ1htLVAzMVdJS3Q4WFBta0ZuQzc5ZHlVVE96SUhCNmNMcl9VR0xa?oc=5) |
 | Texas Democrats tear ‘permission slips’ imposed by Republican house speaker - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQZTFBVUpFWjdyZkxVdktwM3BMZW0tdXhIMkZ1UnZBSDF5NFNJa0V3TE1GYjYyc0p6WWg1S1hncllHblMxWmFlcTZyb0hYQWEwMzhTRVV4djdHS1dCWUt4NVJBeE1QaUtfLU42WGpFaXNqWVpHUHJoU3I1dTQtbWlOSUllemYwQzJlb1BSOVFBazM?oc=5) |
 | Gov. Tina Kotek doubles down on Oregon’s sanctuary laws in response to U.S. AG - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPMEVieXlPRUd2emV6YjVuUXp5Wlc3ZU5RaWp6YkVFMXY3Q2NjV2VJdzNVUGFPTW8yRHpPYXFkemlBR1RvZzdrX2hkQlJaOUYwaVVtbVBSZThYZjVyS213NDJpaHBjZG93cGZ4dTRCUkRwQkZwZVI2UXFTLUg2TzZKZ2MwNVRid0I2d2ZaUXh0bmJkTnJhNEt0Vk5wZkE4RXdXbzRHQ3RDMFhPOGFSMEJUa3NUdHNNSi1NXzJrSHpXZjg?oc=5) |
-| California Republicans sue to block Democratic redistricting plan - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPREdmRkV6bzVZZnZjMWFfUXAxdnh2T085bF9LeUpZcHB2NHVYd0U5QXBpWGxnVHVYVTlPOFdrYzQ3UXd0aVdtRTdPWFNrU2ZKYUkwdXhkTTk1SDBQM0RqVDZVYXB6QlFyMU5vSjRqQmIxRzMxdjBCc3ZDM3VMTm50MXVUdHFGREJYakF1WFJENXptYWkxS3VranJaRnVBa0pHeGtfTU4wSzJYZTU4V1ZXanliQ0lwUQ?oc=5) |
-| Trump and Putin are both criticizing mail-in voting. Election officials are freaking out. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxPUV9PYTVFZ1F0MDEteUZQOXk4QzRWWi1ybDRwRklJVThmcmx4RVlhR3EwQ0R0eG0wWUNxYVZfUHlFQmFHV3Q1LXhPZ0g1VFhQREhpUHJKRU4zNDU0bnZ0V19HeldoQXpmeFdISkxSLXdCb3RwTGFjX0M4MHJpYUotMEhlb3RzOENqbHZ2NkU2dEhUbVhEeS0xSnlCRVdsUVFMUDhScGFFUjMtRHh2NzREYlVwYXQxeElIZ0I3UDk3dU5jM3RicFBJVUltZ09SYkJmN3l3?oc=5) |
+| A divine appointment? How Newsom's redistricting plan ran into busloads of opponents - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNM3JSYTk0dDg4ZmZCa3NVNDBrVHotV0JkOHdka1YxYlFwUWFjaUZkbVRCMy0zMVIyY2xmdlI5cm5RZ1A4cmlsNUhZc2FVMXRxV2xaOVYtcVpVWElGZEFsckhnb2lHQnk0RnZNMFp1bEZFU1ZUNWNNUU1YSTB3eDJoaENJcnpOb0tyMzhUVw?oc=5) |
+| Kilmar Abrego Garcia's lawyers ask judge to dismiss criminal charges, calling them "vindictive and selective" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPU3U2SVBjRGFCcnlqWDFJT2p1U2R6bXVFNUtmOW1wekVXcWNNMTM3Ty1tSktrRDZiU2xRWGg4djk3cFFkV25Qc0ZRYy1FZ1VpN0hJTkZSakM3LUlOWHl3a3pac0JBLXBBVXhDYlBDbENPMElUSW9WTzZVTzlKeE1qQm1tMkItdVhaSUNTdjNQVWZvb1hIa1R3M2lmUENQaW96VFJReUZzVkxieVFJWHNBdS01U1hKWXhKZE8waHA3cEJieDTSAcgBQVVfeXFMT0xFX2kwUEl5RTYtbkRNazB2dDVHRTJkRmNGcThuMEt0MFBXWWt5T2FhWURzT2w5T0V5b0R0VENjbmZvbGhvZG5ieEhJQWg0VzA4eThlZENmdW43R1p2bHFDVmNVcldYaTFpTEpxdmd6UVRxaWU4c1ppWUNLNjVmU0NTS0hCU2VOYVZHUDViODU0UHZ6SmpCLW9zQ2F3N1F4R1lmVGwtM1J4dUtxdmlpSEVsb19WWmhrbVo0ZFloVUpMdEZSS0Q4R2s?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
