@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月21日 00:40:49（北京时间）**
+🕒 更新时间：**2025年08月21日 00:50:00（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Texas Republicans Poised to Pass New Redistricting Maps, Just as Trump Wanted - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQcC1TcEhGS05BTjBtM1ViVm80cUFkaUc5YU5aaEpNY2tGSUVXZmhjVjQzeVMyd01rSmxMbE5XaWVucnBjVDFMQ3A5U19qbmtGVWNlU3ZtM1BMWDF4RkhIaFNBY0t0ck13cWVXN0stc0dlTkhNd2Y2M1hpb3F1SWlpMmdFTm94SFBGUkdwZTRIWW90UQ?oc=5) |
 | How Gavin Newsom trolled his way to the top of social media - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQMFIwQWpoVVpUUUY4d253c1JMbk5kT082TGV1c1lNMU1Nb1hfa2RYZkROT251NjYyWkRjcXR6ZlJkWEczeWIyVjJMaUJzaGFMcE43bWM2SUJLeUVkdXFqeURaY0JZaktXZDY0WWFoZEk4R0ZnNDI5MV9ONnBpSmNfVTlB?oc=5) |
 | Texas can't require the Ten Commandments in every public school classroom, judge says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNQ0t6ZDY4S0lzNmRhdjVqM2hfX0h5MmZKWmluT2F1TGFDVklGNWlPX2pxNWFOQ09EeVRFamltejVGT002WF9TY01oX3FDYUZrWS0tMVJjMnVZRXVqWUYwaVcxOHhfU09WNDdNM0Z2VVZvd1NfblJmTExLS2VIS194VFgtTkRuM1FndHJFYUNWT0JmcjJETmlITTNWLVdvb0tzT2ZsVVpvYnhOVUx5WVlvWTJlbWVkNG8tZGfSAVZBVV95cUxQbXF1a1c5SWxIRy1GWVI0T012b3AzbmxDNFk1emlic3BicFlsV3haVlVSUEdSaG1XeWoyY0hoNE1fWnFKSTJBQnZ1bGtxUEF3cnZfYzY3Zw?oc=5) |
-| Trump’s Tactics Mean Many International Students Won’t Make It to Campus - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNX3drbFIxamhVcjhuVjU4SWprR2pTcW4xLXh2MGRTTnoxaTdHbmVYQ2hrV2hqTnVrNURQOEIwSUZVTFBOcDZ2c1ItU2JGOXYtQ0l3UDBlX0V0YzcxdFZYcjZwX1Zjam93YTFqeW5FRUhKekt1ZWZSLWl4ajNUdXk0ZFZZUzduYWNZU0V0Rw?oc=5) |
+| Poll: California Democrats like Gavin Newsom over Kamala Harris in 2028 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQcnNEdTZUSGttTE5lZDFReC1pdGN2V3JfazFxQ2VWQ0UzNDBHb0hGR0g5TldEVnhCRjlINHBtSnBCZ2ZEWldJbExDRUJURlRiUU1jbEhrdUlVMnJLaGNXWlQ2NlR6VkMzUUlJb3lXb2ZLVmxvRFFjUUI0eGtSX1gyQTA4akFGWUZJb0J2LQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
