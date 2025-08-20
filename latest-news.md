@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月21日 06:25:36（北京时间）**
+🕒 更新时间：**2025年08月21日 06:33:25（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Judge denies DOJ's request to unseal Epstein grand jury records - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNc1dHVEdEd01MWWV3c3phX2hVTFJ4NE5walUwMFNIYWVkVDhfYUpFaldTbjNHN04tU1NPOUJKUjU3c3h0ckZtcExteFZSLVZsMVRpTFNYSktPQURFemVxN1JKd0FuOHJiR2VQdUhmUnRaUS01YWgtQkFRUkIzem5Ja3JZNlRhVzZpcmhnT1Nkeng5MjhkMW1HY0EyanBLUEFEZ0pFdNIBqgFBVV95cUxQbXhOeWx5UXJzRmF2RnRTNmpPUU41QjF0a284NVBScWRocmJPaUNiRjJkbS1NTEZIZzNJZVpxdWtvZTUxX2FWdmY1UDFfdGJIVVhhNWJYSHVwWDVvVWVUUXNaS2p3ZTVmbFljNzROQ3BpREQ2UnJuc2tvYUp6NFM5bTV2S3pDMGVTYU9Bc1lnaFlWYi16M0xxY2NlclBVM1c1dUZoMWZmNU13UQ?oc=5) |
 | Judge Halts Texas’ Law Mandating the Ten Commandments in School - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBBb2IzSXIyYTJhVTBBc0RKTE01a3BadXZxZzNiS2N5aEFwcXFWNkRUNEhWeUtwb2tIcUdsbDgxUi1wRGEzRTBhUTdvamhxTk1BUzlNeXE0c3FBM2J6b29NMXhWOG5oWUJDSVN4djVfNVFGU0h0QjBRM0hsaUc1cUU?oc=5) |
 | Texas Democrats' plot to stall redistricting until Epstein files released fails - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQNGpPbTVPbk12MFhfNVJ0NjBQZVhRUGREU1RCWTVNU2xGSW9PdVA1bWk2ZnBWa1pWTkV5RnQ3Nm01R2Q1UWVoUG9ENmZ5dnpPejQxU2xUUmRjc0MyMkxMNC1tNVZhblktS3ZmRU9ab0J3eENJZXVza3hoLXFfSFRQMUh6amRpRlMzeC1jcnpoR0hxcXlKRzdjeHViOUhHcEhtTXc?oc=5) |
-| Fighter jet crashes off Virginia coast; Navy pilot rescued from waters - 13newsnow.com | [阅读全文](https://news.google.com/rss/articles/CBMi-wFBVV95cUxPQ1hyT1A1SDcxRlVFZ2l1NkF0YUJ4b21jdG9VeDRpWVJKMXR4ejdNQ2EzQkZyQ0x2c3dkdG4yajQwZVdxT0xiNmJxMGxRX1ZvR255Wmc4WHlsekpiTk9UeW5aUkdwalA2ZGViTTBmY2FvLTJHczloR2kxLXpCVFktdGVzc05YSERpaVdjakF2cHZIYU1ISTIySGthZE9aZHJDUU1MUE1vNDZHSXVfNHlqNDMwQU53LVItNmtyWDNBMDdFQ1o4VDV5Y1NpOW1jVWNOTk56azV6RXVmMHNZSjZwRHI1cFdXUHJRSjJNSmJZMDExN21ZYVNVWkt4VQ?oc=5) |
 | Trump targets the Smithsonian again, says it focuses too much on how bad slavery was - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxONzI0RGZLckJFcHVJNm5JSGZ6YVV2QjRrTTdHUjBWTGpwdnY2SjY0T0k2azA3VV9JUlZBQU9oV2NYcVRNaFhyZnZaN1RfNG1oeWVyRlFHUm5reFJEQzk3dnc5b3J3OE9MTm1EVldaSlV6UlZwVDJING1wTk5JUXIya0tKZFMyNUZUWHFNTGllWUFVa3BCZHZMRkZ3eWNLU1NMbXMybjU1NGJoM0pYUEF2MHlZV0FRNGxQU2xzQ2tR?oc=5) |
 | Pentagon says US will play a minimal role in Ukraine’s security guarantee - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOaWo3Q2x0QU9PN01iLXFBeDIwTkNsZUZ2NTd1YU04X1h2OURXeG5ramNPQ2JJaDhNenZVSzJwVkhfdXFjcExHMDVUZFN5UFNpanF2Zl9faUlNU3JDb3NkZEJDcFBwMnBjOGI2RG1iU2pVY0RCRl9KZlZfQzk1STQybTJTVmowMnBjUWkyVUVTM0FhU1pPMGhQX1pn?oc=5) |
+| USCIS to Enforce Consequences for Aliens Who Falsify Information - USCIS (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOS18zcGxKV1NwTDdoQmZELXhrZkcyYklrV19XRS14MHE3dVBvZ2tkYTNIWGd5bmF4SUVOc2RGN1BSRFdKOF9yU3g3dUcta1dBY0pPLTA2blFYdHF1WGNDTnFzZld1YTVudWtCei1pWW9IcVpLbFRfNzRYUkliTXBwcklibnVJUTRMdlJTU1A2RnhaczJCeHFGMjBHbFlXMklHbWxZZA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
