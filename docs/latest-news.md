@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月21日 05:00:30（北京时间）**
+🕒 更新时间：**2025年08月21日 05:08:23（北京时间）**
 
 ---
 
@@ -9,8 +9,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Israeli military says first stages of assault on Gaza City have begun | [阅读全文](https://www.bbc.com/news/articles/clyr7l0z9edo?at_medium=RSS&at_campaign=rss) |
+| Badenoch encourages Tory councils to challenge asylum hotels | [阅读全文](https://www.bbc.com/news/articles/cwy0j9n4qzwo?at_medium=RSS&at_campaign=rss) |
 | Ex-priest found guilty of 17 indecent assaults | [阅读全文](https://www.bbc.com/news/articles/c20662dxl88o?at_medium=RSS&at_campaign=rss) |
-| Asylum hotel challenge doesn't end with Epping court ruling | [阅读全文](https://www.bbc.com/news/articles/cly4v3pllgko?at_medium=RSS&at_campaign=rss) |
 | Why are food prices still rising by so much? | [阅读全文](https://www.bbc.com/news/articles/cyvn9z3y78lo?at_medium=RSS&at_campaign=rss) |
 | Scientists make 'superfood' that could save honeybees | [阅读全文](https://www.bbc.com/news/articles/c776kynn771o?at_medium=RSS&at_campaign=rss) |
 | Students face nervous wait for GCSE and BTec results | [阅读全文](https://www.bbc.com/news/articles/c4g64qedynlo?at_medium=RSS&at_campaign=rss) |
