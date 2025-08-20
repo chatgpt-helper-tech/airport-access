@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月20日 13:01:16（北京时间）**
+🕒 更新时间：**2025年08月20日 13:09:12（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | What security guarantees for Ukraine would actually mean | [阅读全文](https://www.bbc.com/news/articles/cx2qr08l1yko?at_medium=RSS&at_campaign=rss) |
 | Empty homes are on the rise. So why aren't they being used to solve the housing shortage? | [阅读全文](https://www.bbc.com/news/articles/c3r413l5n57o?at_medium=RSS&at_campaign=rss) |
 | MND left her without a voice. Eight seconds of scratchy audio gave it back to her | [阅读全文](https://www.bbc.com/news/articles/c1ejvxne7elo?at_medium=RSS&at_campaign=rss) |
+| Leaked report shows 10,000 gap in probation staff | [阅读全文](https://www.bbc.com/news/articles/cy7yj0gkl3zo?at_medium=RSS&at_campaign=rss) |
 | Sanex shower gel ad banned over racial stereotype | [阅读全文](https://www.bbc.com/news/articles/cn92znzx8zzo?at_medium=RSS&at_campaign=rss) |
 | Final £1 coins featuring late Queen enter circulation | [阅读全文](https://www.bbc.com/news/articles/cvgn3nv6g69o?at_medium=RSS&at_campaign=rss) |
 | Actor son of murder-suicide victim issues stepdad funeral plea | [阅读全文](https://www.bbc.com/news/articles/c4ge878r2vpo?at_medium=RSS&at_campaign=rss) |
-| UK independent space agency scrapped to cut costs | [阅读全文](https://www.bbc.com/news/articles/c4gmjm8z47jo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
