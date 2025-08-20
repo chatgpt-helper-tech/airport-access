@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月20日 09:08:08（北京时间）**
+🕒 更新时间：**2025年08月20日 09:16:25（北京时间）**
 
 ---
 
@@ -23,11 +23,11 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| MAGA isolationists brace for details of Ukraine security guarantees - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQWVl3WkF0ekN3Sk9Sdk1wNDRwT2pSZC0wVXh6UmN1UFctWnMtVU9pWXJFWUFyZmNMcmlncDRTY1ZPNHhvUmQxb2RKMlVBU1ltdmdDQTJ2TWZUczRoRWhESTF5QUI4di1lRjF0UjhZMmZUYWZEb3VDODhlMF9JcjhSbDItNmU?oc=5) |
-| White House eyes Budapest for peace talks with Zelenskyy and Putin - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxOU1RjblNyaVE2d1NRYzRJRElFRV9RUUFEeHQ3RWFrMXBFQ2RFc0RjY3B5bWlxN0FaNml6QjFNOW5DYWRGN085OGlRdE1qOWJ4UWd0WEJhRnY0OWU4LUhRV2E3WGw1WDExNXJXS0RIbEtnVXpQYlluaEhKTXdVSUNlTzNhcGE1R19FVWR5OUI1NTJUR1l0TmZMXzUtTnZhaFRFMXN0dUVzQ3BIOWRhbUtFZ191YmNnM0k0RkZSbE1BeGtWbUZW?oc=5) |
+| US, NATO planners start to craft Ukraine security guarantee options - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNSEF5RjBRNFNZeWl2OFhzdVIxWG5TS09FZGMtZVY5LXBPamI4Nm1qd3JnUDVmLUt5WjBfSllSLVhEY19laGtFMkNIbkhETzJnR0ZTdXlSVGNIX1RMZEh2SjRVMXQxNGlUOHRGQTZVaUhGWGdJdmsxVVkyOUY4aXdQSUhZUUNkWHhWNmJKRkFTaGl1U3FoYXA4NXFiX2RpRWhLX3U5U1dTUUs2UDVJSG84M01R?oc=5) |
+| What’s next for Ukraine-Russia peace talks? 5 questions to ask heading into a potential trilateral - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOdm1EZURTNzFsYWlYMDZuUG40SnNLaXZndnZ0NUlLbElGS1dITXRrNUZsVllITEYwVWUwcW1tVjlhVXRwUkZRTUtkX1B3WXUzTEx4SEZjUGo3elY3ajRfSWJaWlR6c2hWOHZHdUNPMF9ZU1VBajgwQTJOUGVvMGNJb001TmUwako1V0JtbFBCbmp4QQ?oc=5) |
+| Trump expands 'woke' criticism from Smithsonian to other museums - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOZXRKZUZIUTl1VUlRdzFRbnF1NFhfYkRQaUw5YlZlMGdua0RLU3dxSWw1WTRDemhLNnNuV1FRU29QSXdhQVFVNGhUdl9DV19IWDFOVlRMR3dvVmdaODV2QWtPckJJYU9HcnhmTDJRS0NRVkdEWmhQbm5ISXJ3bnI3dQ?oc=5) |
 | Trump administration revokes security clearances of 37 current and former government officials - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPLXkta2sySHVjUmxrNENqZWVLUy0yWnVray01QzVDQm9ob1RRUGo2Mi16MTMxNS0tMmZaUDZ5V1lkUzBrNExqZEF0RThxRXJzMHpnSVBwTllRelk3NXJSZDJUYzVkU0x3M3BkTURFb1M3T01pSlZuS1pmZy1TZnNfb3ZmUHlKc04yY3RRTzBjUEtSWHVxTzd1Zg?oc=5) |
 | What Hurricane Erin will mean for Virginia, Maryland and Delaware beaches - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNR1FuaEMwYzNBOHM1ekZZdC1UU2xfcWdoNlVYTGlTQmVRWFVKQ3JmMWJFRzZjejFLWEU0Y3p2N0tWZEJhdDZUX3JaTDNNbUdZTGNYVEdZR0xPUDFtX1B5S0xWYUxhb1NyVUpfczFvZ2oxUkl3Ty1peERuZjZZTEF6emhjeWxnaHRZSE5RZ1hjWlJJRGw5Q0VSOUI5VWZWRGQxSkE?oc=5) |
-| Trump expands 'woke' criticism from Smithsonian to other museums - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOZXRKZUZIUTl1VUlRdzFRbnF1NFhfYkRQaUw5YlZlMGdua0RLU3dxSWw1WTRDemhLNnNuV1FRU29QSXdhQVFVNGhUdl9DV19IWDFOVlRMR3dvVmdaODV2QWtPckJJYU9HcnhmTDJRS0NRVkdEWmhQbm5ISXJ3bnI3dQ?oc=5) |
 | Pirro Orders Office to Maximize Criminal Charges on Street Arrests - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxQUVR6UnBzQW0zeDFRZ2x6anhDOXRVTV9OYW5meUwyMnR3NjRuNjkycUcyUFY4ZEl6b3JINE1xOG5tWDBYVGF0NjhfcHR6bjhjdzdOLUlXcEpBTkJVVHkxQzkwb1YteXpzMVpySE1GTG5DQTJDenZFMFRvWnV1dkVRUGxaUnBnbHFYRlU5Tm9RdXFhbEd3aHRxMjlSekFYRUJtRk1CZlFNdGFSVTRGTTBuNFM0dTg2TVJOUXl4OUQ2eEhMZjA5WkE?oc=5) |
 | ‘Boston will not back down’: mayor hits back at Trump officials’ sanctuary city threats - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPeFQxYkdPdV85Tm1pXzRQN0c2MWFCRzNhY2hDZzFRdVV4LUVSQzVhamhLVW1zMldCZnVUMzE4aFp5T0hmQ05zbHJTVDIwMExTRVZVTjBOcG5kTXFxM2I5U29nTGdnc3p2R2U3MmYzYS1QTGc0ZW1mSGRUYUt6Xzd6ZlFtZjRnOGxGdS1jM0RmN0JvZFRHMWhiU19sc2NYc0x2ekwwbkh2WQ?oc=5) |
 | Citizenship reviews now ask immigrants to show "positive contributions" to U.S. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNckJEM0pIQmF0elZTZDRnNGhxUllJWmprdkJmaVF1Q29ocllodE9qQm40bVBxN01lVEprVFB4eFh2VDFsTnhzeEhRa1lUVXZCQklvT0tFMXZzNDU3LVZobGdfN19UOEIwTGpobm1GUzhLTzJsdWJEQURUSWE5RTQ1RmhNVXBzMHd6WjJR?oc=5) |
