@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月20日 21:57:10（北京时间）**
+🕒 更新时间：**2025年08月20日 22:01:36（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | More asylum hotels face legal challenge after court ruling | [阅读全文](https://www.bbc.com/news/articles/cp3e221qgeeo?at_medium=RSS&at_campaign=rss) |
 | Empty homes are on the rise. So why aren't they being used to solve the housing shortage? | [阅读全文](https://www.bbc.com/news/articles/c3r413l5n57o?at_medium=RSS&at_campaign=rss) |
 | Israel calls up 60,000 reservists ahead of planned Gaza City offensive | [阅读全文](https://www.bbc.com/news/articles/c7417pl3ddpo?at_medium=RSS&at_campaign=rss) |
-| Decision over Kneecap rapper terror charge adjourned | [阅读全文](https://www.bbc.com/news/articles/c939v4kw2l4o?at_medium=RSS&at_campaign=rss) |
+| Decision over Kneecap rapper terror charge delayed | [阅读全文](https://www.bbc.com/news/articles/c939v4kw2l4o?at_medium=RSS&at_campaign=rss) |
 | Aerial footage shows final leg of Swedish church's move to new home | [阅读全文](https://www.bbc.com/news/videos/c4g0e1nj2pqo?at_medium=RSS&at_campaign=rss) |
 | Kremlin plays down Zelensky talks as Trump warns Putin may not want to make deal | [阅读全文](https://www.bbc.com/news/articles/cn92e52rpjxo?at_medium=RSS&at_campaign=rss) |
 | Is Bristol cooler than Berlin? Play BBC Weather’s new guessing game Cooler Than Me? | [阅读全文](https://www.bbc.com/weather/articles/cwy5r7xwq8xo?at_medium=RSS&at_campaign=rss) |
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Kremlin plays down Zelensky talks as Trump warns Putin may not want to make deal - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBWZ3RZdmRNMllqWEJlMmR1dWU0WEZ1NlRrTGRYWUk0TkxjeE51THNZY0JJY2tGNUxqRjk0dHVXZm5zeFhMUTE2QjFXdktlTnp2VXJ3SmtucTdjd9IBX0FVX3lxTE1ZYXVaakoyS0I5clRqRy1HX210bjY3c1o3U0NrSXMzYlk3V1BPM2xyOGlUTXRjckd2ZWg1VXhOZzROaUVXb0lsSENFSmJBVXB3Ni0tcnk3Tzh4WFhRTDE0?oc=5) |
 | N.C., Virginia under Hurricane Erin storm alerts, some East Coast beaches shut - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNdElRUm0xVnFORlNlQmNaQW5KblJlSjd6c081N2t0eUpiUTcwNlpybUZMVlBNVXBLT3J4dWptQU02OF8zUm9NYVBhVEtjWFRHTzZ5WEliOEF1c2IxNlJRYkxlaTJjNlRBX1VJaTg2MDY1aUNyYTI1NEl1MF9jZ3dZX3Q1MTFFT3RRNkE?oc=5) |
+| Kremlin plays down Zelensky talks as Trump warns Putin may not want to make deal - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBWZ3RZdmRNMllqWEJlMmR1dWU0WEZ1NlRrTGRYWUk0TkxjeE51THNZY0JJY2tGNUxqRjk0dHVXZm5zeFhMUTE2QjFXdktlTnp2VXJ3SmtucTdjd9IBX0FVX3lxTE1ZYXVaakoyS0I5clRqRy1HX210bjY3c1o3U0NrSXMzYlk3V1BPM2xyOGlUTXRjckd2ZWg1VXhOZzROaUVXb0lsSENFSmJBVXB3Ni0tcnk3Tzh4WFhRTDE0?oc=5) |
 | US, NATO planners start to craft Ukraine security guarantee options - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNSEF5RjBRNFNZeWl2OFhzdVIxWG5TS09FZGMtZVY5LXBPamI4Nm1qd3JnUDVmLUt5WjBfSllSLVhEY19laGtFMkNIbkhETzJnR0ZTdXlSVGNIX1RMZEh2SjRVMXQxNGlUOHRGQTZVaUhGWGdJdmsxVVkyOUY4aXdQSUhZUUNkWHhWNmJKRkFTaGl1U3FoYXA4NXFiX2RpRWhLX3U5U1dTUUs2UDVJSG84M01R?oc=5) |
 | Trump administration revokes security clearances of 37 current and former government officials - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPLXkta2sySHVjUmxrNENqZWVLUy0yWnVray01QzVDQm9ob1RRUGo2Mi16MTMxNS0tMmZaUDZ5V1lkUzBrNExqZEF0RThxRXJzMHpnSVBwTllRelk3NXJSZDJUYzVkU0x3M3BkTURFb1M3T01pSlZuS1pmZy1TZnNfb3ZmUHlKc04yY3RRTzBjUEtSWHVxTzd1Zg?oc=5) |
 | 5 Takeaways From the Times Analysis of Democratic Decline in Voter Registration - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQSU1vSkpvZENuSXczOFlodUlKZ190eGpOczdyU09JN3hQb1hpa1VETzd1LXZNNXVyN3Q4UENJeWdJalZ4cDljY25fclpBYzR3VkJZUjRYVlhjZzhQZDdSYVhSTHpxRzBLWDFFWG9GQUd1RmJCdkN0dWpsMmpfaFJVM2E3OGhMQ1k3LWdlLTM0aDY3R3N5dk1Zekhpek45YzFw?oc=5) |
