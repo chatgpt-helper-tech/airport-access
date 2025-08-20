@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月20日 18:00:38（北京时间）**
+🕒 更新时间：**2025年08月20日 18:09:29（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Air fares and food prices push up inflation in July | [阅读全文](https://www.bbc.com/news/articles/c741wkngndqo?at_medium=RSS&at_campaign=rss) |
+| Air fares and food prices push up inflation to 3.8% in July | [阅读全文](https://www.bbc.com/news/articles/c741wkngndqo?at_medium=RSS&at_campaign=rss) |
 | More asylum hotels face legal challenge after court ruling | [阅读全文](https://www.bbc.com/news/articles/cp3e221qgeeo?at_medium=RSS&at_campaign=rss) |
 | Asylum hotel ruling leaves ministers with major headache | [阅读全文](https://www.bbc.com/news/articles/cy40wx73mwzo?at_medium=RSS&at_campaign=rss) |
 | Empty homes are on the rise. So why aren't they being used to solve the housing shortage? | [阅读全文](https://www.bbc.com/news/articles/c3r413l5n57o?at_medium=RSS&at_campaign=rss) |
@@ -29,8 +29,8 @@
 | Trump Says Smithsonian Focuses Too Much on ‘How Bad Slavery Was’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNR0JabkNpRGxsVjhsZFhGTmJ1SWZEeEo0RUJKdmlLSHMzRTd5clRoYmY1R0NMVGdDQ0V6UWlqcmZ0VmxlUzh3NTNyQldweEJsWXdhalJXRkFyUVRkaDVfTjV6Rl9RWWF0QVJoZlcydXcyLVk1Yzd5UGwxQlVFU0JkMjJxMA?oc=5) |
 | What Hurricane Erin will mean for Virginia, Maryland and Delaware beaches - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNR1FuaEMwYzNBOHM1ekZZdC1UU2xfcWdoNlVYTGlTQmVRWFVKQ3JmMWJFRzZjejFLWEU0Y3p2N0tWZEJhdDZUX3JaTDNNbUdZTGNYVEdZR0xPUDFtX1B5S0xWYUxhb1NyVUpfczFvZ2oxUkl3Ty1peERuZjZZTEF6emhjeWxnaHRZSE5RZ1hjWlJJRGw5Q0VSOUI5VWZWRGQxSkE?oc=5) |
 | Modi Hails China Ties as Bessent Swipes at India’s Rich Families - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNY2JvWHBHYlE3bXViQWZOUUVLZmU2YlVTRldwZS1KOF8wSDVjOW9lTFJGRWtkX01VV19BenZCLTR1dzU2NE9rbENZNUREMG1HeTQ5cEVPUTZvUFJ3Ym1sUkV2MXQzc0Q1OHpNeUdaamFjT0FBTFlaZUtwMFpKVjMyTG4zSHJhOFZkYjFkTTdZZUZxTXJlU28xZmI4c0dIQks2MlQ4dXBSUTBpWFZnUWpJV2JuUHZIdw?oc=5) |
-| Texas Democrats tear ‘permission slips’ imposed by Republican house speaker - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQZTFBVUpFWjdyZkxVdktwM3BMZW0tdXhIMkZ1UnZBSDF5NFNJa0V3TE1GYjYyc0p6WWg1S1hncllHblMxWmFlcTZyb0hYQWEwMzhTRVV4djdHS1dCWUt4NVJBeE1QaUtfLU42WGpFaXNqWVpHUHJoU3I1dTQtbWlOSUllemYwQzJlb1BSOVFBazM?oc=5) |
 | Gov. Tina Kotek doubles down on Oregon’s sanctuary laws in response to U.S. AG - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPMEVieXlPRUd2emV6YjVuUXp5Wlc3ZU5RaWp6YkVFMXY3Q2NjV2VJdzNVUGFPTW8yRHpPYXFkemlBR1RvZzdrX2hkQlJaOUYwaVVtbVBSZThYZjVyS213NDJpaHBjZG93cGZ4dTRCUkRwQkZwZVI2UXFTLUg2TzZKZ2MwNVRid0I2d2ZaUXh0bmJkTnJhNEt0Vk5wZkE4RXdXbzRHQ3RDMFhPOGFSMEJUa3NUdHNNSi1NXzJrSHpXZjg?oc=5) |
+| Texas Democrats tear ‘permission slips’ imposed by Republican house speaker - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQZTFBVUpFWjdyZkxVdktwM3BMZW0tdXhIMkZ1UnZBSDF5NFNJa0V3TE1GYjYyc0p6WWg1S1hncllHblMxWmFlcTZyb0hYQWEwMzhTRVV4djdHS1dCWUt4NVJBeE1QaUtfLU42WGpFaXNqWVpHUHJoU3I1dTQtbWlOSUllemYwQzJlb1BSOVFBazM?oc=5) |
 | California Republicans sue to block Democratic redistricting plan - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPREdmRkV6bzVZZnZjMWFfUXAxdnh2T085bF9LeUpZcHB2NHVYd0U5QXBpWGxnVHVYVTlPOFdrYzQ3UXd0aVdtRTdPWFNrU2ZKYUkwdXhkTTk1SDBQM0RqVDZVYXB6QlFyMU5vSjRqQmIxRzMxdjBCc3ZDM3VMTm50MXVUdHFGREJYakF1WFJENXptYWkxS3VranJaRnVBa0pHeGtfTU4wSzJYZTU4V1ZXanliQ0lwUQ?oc=5) |
 | Kilmar Abrego Garcia's lawyers ask judge to dismiss criminal charges, calling them "vindictive and selective" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPU3U2SVBjRGFCcnlqWDFJT2p1U2R6bXVFNUtmOW1wekVXcWNNMTM3Ty1tSktrRDZiU2xRWGg4djk3cFFkV25Qc0ZRYy1FZ1VpN0hJTkZSakM3LUlOWHl3a3pac0JBLXBBVXhDYlBDbENPMElUSW9WTzZVTzlKeE1qQm1tMkItdVhaSUNTdjNQVWZvb1hIa1R3M2lmUENQaW96VFJReUZzVkxieVFJWHNBdS01U1hKWXhKZE8waHA3cEJieDTSAcgBQVVfeXFMT0xFX2kwUEl5RTYtbkRNazB2dDVHRTJkRmNGcThuMEt0MFBXWWt5T2FhWURzT2w5T0V5b0R0VENjbmZvbGhvZG5ieEhJQWg0VzA4eThlZENmdW43R1p2bHFDVmNVcldYaTFpTEpxdmd6UVRxaWU4c1ppWUNLNjVmU0NTS0hCU2VOYVZHUDViODU0UHZ6SmpCLW9zQ2F3N1F4R1lmVGwtM1J4dUtxdmlpSEVsb19WWmhrbVo0ZFloVUpMdEZSS0Q4R2s?oc=5) |
 
