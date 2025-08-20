@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月21日 04:16:13（北京时间）**
+🕒 更新时间：**2025年08月21日 04:24:33（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Protesters heckle Vance, Hegseth, Miller as they get photo op with DC National Guard - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPRk5OSjF0UWUtNFRnRl8tNFR4eVJUUEtTbzFJb1BCU0xDZnZzUHVXcEdJbmZ3ODVoTGE1SU9NNm9VRnVlT2sybDE2RGlZN3hKb1g1R3J0UG5PSHdJbnV4Rkt2RlBDTlNHdkRWUnd6aHJnY1NidmI5b0R2bGU3Wm9IRVVqQkdkWjA4dGJrbXNLamJsb1dnQWdQZjFzYnZzSWVjTVYw0gGoAUFVX3lxTFB4RWViMlltaE9wQmp2cFFybVM0VVJVV0FrUXBSVXVTVlN6eHRBQ21Cb3FQY2VPLW83cU81cVRxZXRmLWVId09nOHQzQ2ZuNEdZZVdwTVhwbUlRcHFScDF3ZlZaS2IteXVsVlhDWEhMMzZlRGVQdE1scE1BTGdWY1doR1puSTlTZ0tVSWc0WkVoNGxNeFVzSjJkNHMyeU1LNTlyd21XQUNyYw?oc=5) |
 | Israel calls up 60,000 reservists ahead of Gaza City offensive - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1wM2wwaU43TDdTSTg2Sl9lcmI2b0t0N25xMG1yUndlTUFaUENQVXJ6SlRrWS1LUmJ6TnpUZ2xfM1U2X1Nob2tzTWdxUUlVTF9oRmJ6djhGeGZid9IBX0FVX3lxTFBQckhNRFhkYUkzZ09FVTB4Z0lGbVVaXzg1MDNpYk5VQS1PcjdDMEp3SGJTdjVDR3BGN1dTMTJITExNVndtRll2Mm1QQUxIX21mLUJ5QVBFWG1EN194VFlv?oc=5) |
+| Protesters heckle Vance, Hegseth, Miller as they get photo op with DC National Guard - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPRk5OSjF0UWUtNFRnRl8tNFR4eVJUUEtTbzFJb1BCU0xDZnZzUHVXcEdJbmZ3ODVoTGE1SU9NNm9VRnVlT2sybDE2RGlZN3hKb1g1R3J0UG5PSHdJbnV4Rkt2RlBDTlNHdkRWUnd6aHJnY1NidmI5b0R2bGU3Wm9IRVVqQkdkWjA4dGJrbXNLamJsb1dnQWdQZjFzYnZzSWVjTVYw0gGoAUFVX3lxTFB4RWViMlltaE9wQmp2cFFybVM0VVJVV0FrUXBSVXVTVlN6eHRBQ21Cb3FQY2VPLW83cU81cVRxZXRmLWVId09nOHQzQ2ZuNEdZZVdwTVhwbUlRcHFScDF3ZlZaS2IteXVsVlhDWEhMMzZlRGVQdE1scE1BTGdWY1doR1puSTlTZ0tVSWc0WkVoNGxNeFVzSjJkNHMyeU1LNTlyd21XQUNyYw?oc=5) |
 | We asked 604 D.C. residents about Trump’s takeover. Here’s what they said. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNazVqcVhDcW8xWmF4eURMYUtEZUlJelY5c05WcU50cDBtSkxvRDh5U2M5TGRZNmlVZ1lacXNEbnZxUV9mb0JVcW5rWjU2SEM4bXpEdS1NOE1yZnRnUWU5YzNhTS1GcVRWcFcyZWJLanctbzd6VTNGVXNkSkRnZUJTeUQ5QWs?oc=5) |
 | Judge rejects Trump administration’s request to unseal Epstein grand jury transcripts - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQZ2FZSDhFSVMwZFk5ckFjbXNfSHlwSG5wdF93dzlfSHhZMlZJTFpDN3lnYlBfRHJacmRBT2FkSlhZLXNST2ZtNzZrOXFvOFI5Nk9NajlHc2xYaEFCNXJUZFRpYWp1Q0Fmd1Z3eFNjUkRhNDhpVVl2bl9INk56cFNnMTNvMjZZN1BsM1hfTkcxVQ?oc=5) |
 | Federal judge blocks Texas law requiring Ten Commandments displayed in public school classrooms - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPaURCWkxXMkNJMVdOcnlQSGlKcW5CWXJoSXBmNXJjSzE4cDNRVTFrY1FPb1h1aTJhY2tvU0RaOWV4ZkFvRmlkNzFDT2FCcTZwOU5zVDgtRzFENXN3RnI4T2RHWU9VWTJDNFhSVGFYS1NHaDc4NlA4WjF6VFlieWluMGxENEdBOUJKLW8xRVQ5WmVEdDlIZ3c?oc=5) |
