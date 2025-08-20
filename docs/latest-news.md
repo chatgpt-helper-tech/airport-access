@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月20日 22:01:37（北京时间）**
+🕒 更新时间：**2025年08月20日 22:10:02（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | N.C., Virginia under Hurricane Erin storm alerts, some East Coast beaches shut - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNdElRUm0xVnFORlNlQmNaQW5KblJlSjd6c081N2t0eUpiUTcwNlpybUZMVlBNVXBLT3J4dWptQU02OF8zUm9NYVBhVEtjWFRHTzZ5WEliOEF1c2IxNlJRYkxlaTJjNlRBX1VJaTg2MDY1aUNyYTI1NEl1MF9jZ3dZX3Q1MTFFT3RRNkE?oc=5) |
-| Kremlin plays down Zelensky talks as Trump warns Putin may not want to make deal - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBWZ3RZdmRNMllqWEJlMmR1dWU0WEZ1NlRrTGRYWUk0TkxjeE51THNZY0JJY2tGNUxqRjk0dHVXZm5zeFhMUTE2QjFXdktlTnp2VXJ3SmtucTdjd9IBX0FVX3lxTE1ZYXVaakoyS0I5clRqRy1HX210bjY3c1o3U0NrSXMzYlk3V1BPM2xyOGlUTXRjckd2ZWg1VXhOZzROaUVXb0lsSENFSmJBVXB3Ni0tcnk3Tzh4WFhRTDE0?oc=5) |
+| Why Putin is not ready to meet with Zelensky, and may never be - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOVGpfMmNOXzFDLWZKRVZGMUZSZzVaNkhUMlRkV2FmUkkzNU9zTlFGTFUtWE1uWG0xbUZqQkhfYjhrVTUzOFNDWXNVYjk2M0I0a0RUWUZXTDdaUDQwbkRvdjhORDlDSHFKLW1tTGN5X0pBaUt0ZWJKekl2dXNxZ2Y1S2M1RFdZSmN2WXRR0gGQAUFVX3lxTE1HLTNBMVJGclRPWFNZcUo1enQ0QmFuNk5rNnJpS3pXM19yOEF3YkpRTS1YTEp4eGdvb1lUTloyZ2ZiV2JnOFFsYmdlWVZ2dm5fQmlQRk80T2lNMFlmUldEY0pkTXN0b3lxWXdYLW5Lb3QyeHM4ZzI2QnJqUmtFaW1KaXc4WjZRekEtbU95Z08zOA?oc=5) |
 | US, NATO planners start to craft Ukraine security guarantee options - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNSEF5RjBRNFNZeWl2OFhzdVIxWG5TS09FZGMtZVY5LXBPamI4Nm1qd3JnUDVmLUt5WjBfSllSLVhEY19laGtFMkNIbkhETzJnR0ZTdXlSVGNIX1RMZEh2SjRVMXQxNGlUOHRGQTZVaUhGWGdJdmsxVVkyOUY4aXdQSUhZUUNkWHhWNmJKRkFTaGl1U3FoYXA4NXFiX2RpRWhLX3U5U1dTUUs2UDVJSG84M01R?oc=5) |
 | Trump administration revokes security clearances of 37 current and former government officials - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPLXkta2sySHVjUmxrNENqZWVLUy0yWnVray01QzVDQm9ob1RRUGo2Mi16MTMxNS0tMmZaUDZ5V1lkUzBrNExqZEF0RThxRXJzMHpnSVBwTllRelk3NXJSZDJUYzVkU0x3M3BkTURFb1M3T01pSlZuS1pmZy1TZnNfb3ZmUHlKc04yY3RRTzBjUEtSWHVxTzd1Zg?oc=5) |
 | 5 Takeaways From the Times Analysis of Democratic Decline in Voter Registration - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQSU1vSkpvZENuSXczOFlodUlKZ190eGpOczdyU09JN3hQb1hpa1VETzd1LXZNNXVyN3Q4UENJeWdJalZ4cDljY25fclpBYzR3VkJZUjRYVlhjZzhQZDdSYVhSTHpxRzBLWDFFWG9GQUd1RmJCdkN0dWpsMmpfaFJVM2E3OGhMQ1k3LWdlLTM0aDY3R3N5dk1Zekhpek45YzFw?oc=5) |
@@ -32,7 +32,7 @@
 | How Gavin Newsom trolled his way to the top of social media - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQMFIwQWpoVVpUUUY4d253c1JMbk5kT082TGV1c1lNMU1Nb1hfa2RYZkROT251NjYyWkRjcXR6ZlJkWEczeWIyVjJMaUJzaGFMcE43bWM2SUJLeUVkdXFqeURaY0JZaktXZDY0WWFoZEk4R0ZnNDI5MV9ONnBpSmNfVTlB?oc=5) |
 | DNA testing confirms Travis Decker is sole suspect in murder of his three daughters - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPbFhoTmR6MmpSR0lBOTFGeG14WjVhUXlFVE9RbDh3QmNjZGxfU2lXdU5Kb0VsWmstTVY1WmdLeWFDZDZ5c2wyOVR4TXhrNWZ1cXBITWt0blZac0QtYzk2dWJ6d2toemxjNGVUN3dGNkYtR3FrM1UxZi1vNGFOYzlaYTlSckcxWC1YdEQ4a1dmUFB0R0RRSWpfWXVCUG1aOTBhdHRJMGJBVl9aeWpZTEJpSlRtcWhYQmpTZ0HSAVZBVV95cUxQdkdJWTYya2N2OV9oWjdaNHZ1blJ2S2QzSzdDSklmSldKWU1mVUpaVGl2TjJUeV9zQlNpdmZQZkJzdGZZakVMZjhselBWQjg2VGlVb3FCZw?oc=5) |
 | Texas House to take up GOP congressional map delayed by Democrats’ walkout - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQajNyRTltY2VsTEU0MkVHUzN0VldBeTBnYzhjV0RVT2FmOU1wNm9VUEVZNHFYZGw4TkhjR0dTM2hpRmNvajlqc3FIbkFRdFJPdUN4cGVtTDdkZE9rMk9NMldaNXc4VmxSNkxqWlBJcmtpTng0Zk9lVV9vTElLYjRtM2kweTVlaXhXS2VWTXl4dFZ6cnc0RUxXYWdHRnJtMkdNSVdIMW54b1M?oc=5) |
-| A fire is burning one of the world's tallest trees near the Oregon coast - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNajkxTWM0cFRETzFURENaWl9RSVE0aS1yODF1cll3RDNpcGZINDUwOGtmbGExQW02OEt3WTZoazhueG83RVJLSFY1eEFKYVJ1LU9kem9XczZOT3Rpbk1EXzFaeXpSWFV4QlBlMUppc0xSQUM2SVJVNXd5LW5sWGROeHNfZ1hRY3Q4cFd3djVxajBhZExBWDJJ0gGcAUFVX3lxTE95ZHJXYzVuWXJoNzVOZXFDRExiVmY1S05jelpTMFp1d1hhYnpTNUw3cDRNZkpGa1VOaU1DRnBLc3ItUnkyOUpleVdvNVg1U184MklwMXNIaloyNFE2bjNjVUtpZ0VjVS1nNEdoR0pRZ3pSRnQ0R0o2S1VIVmNfZjFqdHF0UTYwY3NBY281Q0p0ZEl5M3RfSlRxTTFzcQ?oc=5) |
+| A fire is burning in one of the world's tallest trees. It may lower the tree's standing in global height rankings. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxNdkpYOXR0NVU1dHJmVFI5SXlNYmw0MlMxSVFneUY3YzVPOEtjRUFKdnNpU0hweEVpdzhSSWVmdWlqUXVKN3ExM2prM3djeEZHZ1I1RWs5eDdWeWY5ZzZvcHZud1hvTzhZd1lDbjFNSzJSdDBzaGpBdk1zWFZWRGZrcmhBUnJYam5EUDc5Uy15RVRKaS1LMjJfaFEtY2VsU2Z6SUdXYmc3TXd4ZVgwX1c4UExmN2wyVmtYSF9DbTZyQXdxNFRhd19zV0lYaWpHU3hKRzRHR2cwSdIB3AFBVV95cUxPazY3ekNvbGtXVnhEbWhwd0N4VlNLMHo5aGlheGZsckROZVpURGg5T3U3Smx2VzFmaDN4NWg4RWFpa0pkMERpZU5nVjNmVldpWV82bDF6U3NFbEUyY3pEcUNLdUVfLXpZeVhFSXBMck80emVDYzBUUHhIQ1p6QTU3UDJ4cklMR3VLRlM2Q2Z3QWRDai1WN1E2a1JDSi1UaVk2UW5Od1BxTk5nQzlKV2FEai1YQ0lvWnE2bFZod0hjVlZYNl9DUkpBT3JveVpPSklOb21zS3FRSXZUa3Bw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
