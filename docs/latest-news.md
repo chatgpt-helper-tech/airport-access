@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 03:17:13（北京时间）**
+🕒 更新时间：**2025年08月22日 03:25:01（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Joint Statement on a United States-European Union Framework on an Agreement on Reciprocal, Fair, and Balanced Trade - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMi_wFBVV95cUxNYmFWSGtzbXNPT0ZHVEdwTWotZEJJdGFiQUlHR3FWN0tjVnpEZTBSNWVFMHdVeTEtOEZwZWd3Tl91NzMzeEh4a3N0MXZ3ZThIUHBWX3hObTBPLXAydG9qQTFRRTk0cmFITFhBbzNPRktGemtWY25EWkZscHoxUnNiQ2tkQlo0bHpaNkNhQkhUN2xmS1I0Vl93dlQxYkRuY1E4dENDSmRCUzdLMmVQVkFBQjhvSEhkUlNNT1FVbHBDVnNjMnlaU1NMVTFfUUxUOWhXbWhfZ1lfNUpvZ2gyZDEwTlZsNUVRLXkxRDdibi1jdG1jX25kUldhQVJFbDBQSTA?oc=5) |
 | Illinois to Bondi: Sanctuary status stands firm - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOVW5UNlBxQndoUzV2YnZnVHltVEp1bGN4enF6N01wbTZxVUc2aUtKZGxYYXg2bHhmVXZpUnhoNkhNS1R5dGhUZWJsNlBUdDRkSXFrYnltVjE1alZxbDZMLWV1OWVUZHh3Uk45SGJ0Z1lfeDZMeVZfUHRXdmpYNEl0WEd1akJkX1BwWWNVV3hGeGg0eVVLNEFnVjZka3hMX2JTUEoyQ0ZBdDdXSG5sVXBxcFJkb2VjX3Q4ZmpBOTl3?oc=5) |
 | Texas Rep. Nicole Collier abruptly leaves call with Newsom after being told she’s committing a felony - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQVXFWVGhkU0NRYlVhbUxrekZCeVR0MW13blRMRm1zalNvcURtall3Vi1hNURGN0NBVXEzYXJ3U25BRlFIOUFmclJ2ZThSbVNSNzJlOWlnYzVKbjAwaFBJeUtIWjhraHpvZDFlTGQteWNCWjFCVjJYb1IxQ1l1VmhWMThZT21CZjV2b29sMkNPRU9qMlJuVUI1cnZ5MTNmeWZseVRXNjNNNFR0YjBhMVRHUlp3UWNtdTlJOWdvRTE5WGVvZmp0LTRIRzhGSFdVY3J1NWc?oc=5) |
-| Lyle and Erik Menendez Make Their Case for Parole - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1tR3FNZUtFbmZDRFlqYXYyc04yQXVYbVZabnoyc1JWQ1pGSmFnb0Rta2ZCckFjVkprMVFpaHBjdzRGdWFIemZadWctSkdvMHg1WjFqdC1zU0xXSXpFeDNsc0hUX2VaaDZsS0V4OGswaU4tMWx2RWc?oc=5) |
-| Focus on the Family Founder James Dobson dies at 89 - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQdXYwLTRsdy04S2FDS0pRdDlzbXFfTFE3cE5lWWtuWGlMM213ZzZIX01UR21RM1pDRTdJUmFILTFMclVURVlTVWhpVHJVVjNhcmRXTkU4WVU4S2NIUFEtam9HdzQxMnVScEVkZjNvOTZqdWQ3U3o2M1ZwRUxlX1F3dkZ6bHVuRndIdWlpSlVmV2lQTktMWU1wVzVBb2Q?oc=5) |
-| The potential next target of Trump’s bid to control DC: Local courts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNS1hNbXEzbWtkYnlRRklYTl9GMUNqYWJXOWZ4c3UzOXQ1V0pOX2txYXkzVWNDQjdnUnVYYkRmcXBOYjV3WkVueWxSR0Z4UlRvb2szcVU4WGlQSVR5RVlMVXZvUERCTTBLTWp0ZVY3ZjJHV0VTb2Y4WDN1VEljampQdFhsVXVLXzA?oc=5) |
+| What to know about the Menendez brothers' case as their parole hearings begin - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQbkFOUFFPdEpoakhSanExTTA1Nko2eEQyY0Iyb2NQbkRNSHQ3TzdlTk10VHZzbVlpLXZ0WGNkN1VZWFdrV0FIUjhaSkpDREgtMXBybVkzUWE4QnVSRnJZQ3ZFN1FNdE44dUVzbUpaelhGcWlHa3RhRWlNYVBuNHJyVUJrbEI?oc=5) |
+| James Dobson, influential founder of conservative Christian group Focus on the Family, dies age 89 - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNYVF3c3dSN2k3b2RlQWFxYmNDTzAtZWI0VDBYNm40Qmxtc0hOcUFUZWhJS0FzVzR0SWd3VUF6b01NSllYM1BpMEFVaFFZRTNMalNtZVAzT05yZ1RBMEowZDJNVFZlcVZWLTRjNE5PMHhpTzhvekRtMVBHMnoyVWZLNVJ5YUdOQnNQUDhmSNIBkgFBVV95cUxNa3dRek1qeFdQRHpmM3FOczJLUXhlRWlLQ3draXNYNjJsbDVJb191NTVQMWlvN2NjMXlvVWZ0OHpQN1ZYeVFzQ21QU0xGODQtSmk2VF9CLXBfQ0R0YXlRTXlrNDJWeGx4c3VyeTJackRFQU5rOWRKTEt1QkZFQkZNSW15aW1OTWZMZ0pkV2lwS255dw?oc=5) |
+| President Trump Is Right About the Smithsonian - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNSkJMbXRQODJRQmdSR2piQ3BsbFRJbVNIT3FxTVU2ekxoejJBYXBHN0RacWctUDNlSGhSd1NZelljVC1xUUxVTDRwMXRMc3lhNEJLMjcwUUxmR0k3LS1pZ2xrdEJKekpuWjZHbzZHREZ1Vy1zaFZ6MXcxSmNsR2xXUFNmVHI3bnhCX3ZENnczclp2OGhjMFE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
