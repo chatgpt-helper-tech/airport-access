@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 04:57:29（北京时间）**
+🕒 更新时间：**2025年08月22日 05:00:27（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | CA State Assembly approves Newsom's redistricting plan to counter Texas' new congressional map - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxPV1p2WW9oMzVEVllIVU9oazFaM0JLVVpNVE1CLWNVREhEaWFjdklVRzg5b2ZNS3pyOWFDVGlzV1ZfVkl6YlM5Z1hfNzhva0p3dDE1OTFuNXhXVTBXbTNBOE1taXVqMjlkZUQ1RFV4czk5N2RTTFhTaG5fNy0zcFA5YXZpU212c3Njem1lQS16Y2tsZDlMU212T2dsVW5EMjRYQkVzTHlPNlIzdU1HUDlBR2xWNUVYeGt3dldMUFdQMmxwdE5mTkttdklCeEc0YUlQWm9wVA?oc=5) |
 | Hurricane Erin brings flooding to parts of Outer Banks as it pivots from East Coast - NPR | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOc21zRDRCSTZ3UExuZXg1b0ZXS3Z2VmNfVk45MEhwN2xMZzVhNXpDTkhHUEJ6M3JXdlNidWpnamhISUdUNTRjVjIzZVI5M05NSnZCMHpuYzN4S0pVNVRMUUVCNHhnNjhoaVJxaTZoNVNjaFNsdzdqMlRnczhHaXNrTGZPdkp1bkZ4UDdIbzJUOHkzdGZ0YzIyYzVQSTBkUQ?oc=5) |
 | ICE chief threatens to 'flood' Boston with agents after mayor won't abandon sanctuary policy - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPRkZ4Qk9RMXk1VEpyYmJNVUw0bjRyOTBCMm04ZDM5Qjd6NUtNTUx6MWZqdUl6SkdURjMtbmtzVGhOSU5WTUVyZ2lwWlNUd2kwZi1ZaFZTdS1LVUowbXFIQ1Z0UXdSdEFFN1o0cE55OHlublpSMUFSb0N5aF9zYW1PamhoUHhZeHZwUVHSAVZBVV95cUxOcHpaQ1VST0YzSUgxMDZwaVZHWFhUM3Y1MXJWZmNlS2JkWXFHSEl2UUpnS3JpcnpfbmJnWkVKR2U3dzR4YTI2dDZrWlY1WjdScjBHcFBEUQ?oc=5) |
-| Texas, California legislatures gear up for major redistricting faceoff - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNZlRjN0VkbEZERU5qMnpObEs3dXAyeEZSdzQ4R1lRSUpNYl9GYVRqSGpXOW9lNGFwYXlEZm9rdjVvMjhBNWs1bjF4cndNa2JKWkVFUUhPSnlJTUlYOGJ3N2t3bnpXZUlIQ0tSZXo2MkRoUTdkQ3dkbGN3UUpOeWxEekxiYnp1VVlxMXpld3c0Y2h5VHJTb3BwM0lvZ0FuUXc0NTRQUUt3eUcyYVh5TW9vV2FjMk8?oc=5) |
-| Lyle and Erik Menendez Make Their Case for Parole - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1tR3FNZUtFbmZDRFlqYXYyc04yQXVYbVZabnoyc1JWQ1pGSmFnb0Rta2ZCckFjVkprMVFpaHBjdzRGdWFIemZadWctSkdvMHg1WjFqdC1zU0xXSXpFeDNsc0hUX2VaaDZsS0V4OGswaU4tMWx2RWc?oc=5) |
-| Ice’s detention of Atlanta reporter seeks to ‘silence him’, ACLU petition says - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQakRrV0RRTDFqbTVGM1dkaktZNlh1OThpTFJMcUREUnF2bFBMMk0xSUtYZnliZkNkbkl6YzdRSFdJWmZtZ3VCeXNUb2wxVDZ2MF8tanlJUmxWQUFWRkVDSHJWRGpqd3Mtb0VYTjBrN1hKTHhxcVo1dk04V282SUxzNzhtdGluTU56YmxNQzUzZEthSVgwVkc0?oc=5) |
+| Menendez brothers face parole hearings as they seek release after three decades - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPYVdlS0NtX0h0bWpnOUpscFhWc2JDNS1ncXEyX2VDVkFRN2R1ck5ma21uLXE4Yl9lbGd0bEwwdV9kTHRHZkZVaUFfZGROOUVjczlVZHI3RWZxaTU2MExTdjZoaktTdVRZRk5JTzdFX2dyVHZFVzJ2NTJUY2tZRm5meHctbmFoT3pu?oc=5) |
+| Journalist detained by ICE sues Noem, Bondi for his release - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNclB4WVY4WWpjbUM4NUhGZDZsanpzOFhoeS03cnFqRUx5MGJUdm1rby0tSmx5SUg2dFdfekRYQkc5Vm5RMGFoTTFpR1Y4M2tQUlZHNHY3NkZOWE92N0pIT002M2I5STBmOUxXUE9wUEV3c3hTbzZMdDFtRFR5aXozdTA1Nk5ud25V?oc=5) |
+| Lawmakers are debating GOP congressional maps. What does redistricting mean for Texans? - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQWk9wVkJHM3ROLV9SQzhaaUhzZDh2MlFSQkR4YUtxa1RoX21UWmt2cUNFVy1TQ3BlWnZSSlM0Y1dGNWdMRWdmNHZYSGx0bFFjanBSYUJpUXZrME5NVEtIbmhhTVg0SXZFVmpoS0FmWlpERXA2c1pkWkdnTUlmX2FlS196OXVkdFJ0S0toaEN3?oc=5) |
 | Russian airstrikes hit a U.S. factory in western Ukraine - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5vbjZ5NDY2R1FxbFNmWE9GVGl2OWFhV19pM0Z6RW5aVEVSamF5UVhiX2JHc0hxR2EzMWIwTXlsZTdDd1hPSExQbWhGYWZIeHdtbWpnUkFtb2p0cHhKS19DSURCcExZamdmUGZieU8tQ21BT2tBVkE0WllXbGJTdw?oc=5) |
 
 ---
