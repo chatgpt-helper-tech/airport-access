@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 03:32:06（北京时间）**
+🕒 更新时间：**2025年08月22日 03:41:23（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Appeals court throws out Trump's $500m civil fraud penalty - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE44RngzQWxqQTMyRzJGa2FBWTJmenRQZTlGbzVheFVKaVBuSnEzYURSek9rMWRWQUZKZEl6UFhrZ0p2b2dzWlUySXdjSHRiUUFDbUlwQVpLRk96QdIBX0FVX3lxTFBxSXNCREJoZzdVeDVBQ09OUE9xcXM3VGxvdzVGcERENGR0TXpqODF4TXBFTzhDTDJQMm9MZ2hiQ0dKQ3drRk9hamZfS0JlQ3FTbVN6ZlZpeEE2UmdtVWZF?oc=5) |
+| New York appeals court tosses $515m civil fraud penalty against Trump - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQbWpWbEJrUWtGRnJrVWM4dzhlandZUXBWSmNOZVFOQUduNUtoUmVDY3BJNXg0ZXlXMjFoVVR1ZkJDbHBHVkYwT080Uzc5aGZCOGdYZ19pNmZTQzlCY2tuU0lJZ2huVmltX21jSGVoY0JuOGVPZzgybjJxV2xWSlhET1ZMNnlLck1hVjVxNlZPTTNpcl93UU9hWVRJQlNQYVN6STBaeUl3aWxzeDB6M2fSAbMBQVVfeXFMUHhKNmtCaXJ4ZWFLY3JTamd1dFRmUEJvWnhGZ2JrQkVSbFdHZGdqOEhIUE82NkhqdUJDWjJCYjVYWGFBTF9oUm9QcjdES1d2SUtoaFhzZ2pPejZveVdKQmdRNmhfSkh3R3NzVy1kUHJoS0RURWM1djJINUFUTkZBakh5Qlk1dktXYWlHd1doMUdOZWNRbEVYWkU1Y2xrRi0zVmZEUGhaeldVcE1FQWVxbkU5OTQ?oc=5) |
 | Russian airstrikes hit a U.S. factory in western Ukraine - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5vbjZ5NDY2R1FxbFNmWE9GVGl2OWFhV19pM0Z6RW5aVEVSamF5UVhiX2JHc0hxR2EzMWIwTXlsZTdDd1hPSExQbWhGYWZIeHdtbWpnUkFtb2p0cHhKS19DSURCcExZamdmUGZieU8tQ21BT2tBVkE0WllXbGJTdw?oc=5) |
 | Trump says he's going to patrol D.C. Thursday night with police and National Guard - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE03aWZiS19NYklPeEZiLU9DNk40SnQ2VWhPT2tlZWNyLW1uSlFHTnYxcEIxV0Q5Rm80OVVwMU94VndoZTBXMGFfT2VCNmtNb09ENDNwcUl3YXNnMWIwZU1yWmNzdnFESnQwZjVJbWUtX2I5bVZoMXfSAXtBVV95cUxQSWFZLU15UVQ0OElRV0ZGeWhsSlFDdWVjR0NmMGsxVUVWMWJCTDNkb1NWUFNSVXdjUl9USU5GZG1jWjYteWZubUxQdjRSZTVaMGNDUzJQNG1uQmhSdHNyZG12TzZYNUxGbm9Yd0ROOVRTWjBXbVVTQlp3Um8?oc=5) |
 | CWG Live updates: Clouds and a gusty breeze are all Hurricane Erin brings - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQYXVacWdDY0R6VUVaYnBOdFl4UVFsdVFMcGcyVVEzVFVmeUpSTGg5MG43VGJucWE1QjJvakdpc2JFNHhIc1FXblFTaWtCa1pkbHlrYmhCQUFpUkpEME00YU9oWmlkdXFvZV9NWnFIWTJqNUctRXdneW9Mdi12MmtsUVJUZXhxRU84ZkUtTU5FbWQxUQ?oc=5) |
-| The US and EU release a bare-bones account of their trade deal, but it’s a work in progress - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOdEJLNXF6T2lSUGtBVlJyYUxPRjFKeWNEakJHQVJCbVZnTjVYSklUb0Ytd1hHRmVnTlZ0b05nMVlnMWVtV0xNdEl5V3hYbFFFWTM2VHJWdFl5WjdWQXJzT1B2Mnp6OFpXZDRVTUJ3dWE4dzZVUExNS1JqMjktSHNiZldfUUJOSzNKbkpPQUJxZV9qSTdyNHc?oc=5) |
+| Donald Trump backs down from 250% EU pharma tariff in deal - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5lWHBkLWprQWZWRTJWWHFGZGhUYWU5SDZRRlNIOVFOekVUYmJJNU00OS13RTdPZi0wbEdId1dnbHAwV2lYWlVQcnlhTk9aNFlReDhlMTRwQ3FNUdIBX0FVX3lxTE9SRkE1ckJ0VGlWbTQyaXlFLXBtMGxtYjk1NG5reGlDcGdpNWVubkdQekF1VUZiMU9XNF91S1NhNm93X0hxZFoycFJHLTRoMFp3alhGT3laTVpXeWYzU080?oc=5) |
 | Illinois to Bondi: Sanctuary status stands firm - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOVW5UNlBxQndoUzV2YnZnVHltVEp1bGN4enF6N01wbTZxVUc2aUtKZGxYYXg2bHhmVXZpUnhoNkhNS1R5dGhUZWJsNlBUdDRkSXFrYnltVjE1alZxbDZMLWV1OWVUZHh3Uk45SGJ0Z1lfeDZMeVZfUHRXdmpYNEl0WEd1akJkX1BwWWNVV3hGeGg0eVVLNEFnVjZka3hMX2JTUEoyQ0ZBdDdXSG5sVXBxcFJkb2VjX3Q4ZmpBOTl3?oc=5) |
 | Texas Rep. Nicole Collier abruptly leaves call with Newsom after being told she’s committing a felony - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQVXFWVGhkU0NRYlVhbUxrekZCeVR0MW13blRMRm1zalNvcURtall3Vi1hNURGN0NBVXEzYXJ3U25BRlFIOUFmclJ2ZThSbVNSNzJlOWlnYzVKbjAwaFBJeUtIWjhraHpvZDFlTGQteWNCWjFCVjJYb1IxQ1l1VmhWMThZT21CZjV2b29sMkNPRU9qMlJuVUI1cnZ5MTNmeWZseVRXNjNNNFR0YjBhMVRHUlp3UWNtdTlJOWdvRTE5WGVvZmp0LTRIRzhGSFdVY3J1NWc?oc=5) |
-| What to know about the Menendez brothers' case as their parole hearings begin - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQbkFOUFFPdEpoakhSanExTTA1Nko2eEQyY0Iyb2NQbkRNSHQ3TzdlTk10VHZzbVlpLXZ0WGNkN1VZWFdrV0FIUjhaSkpDREgtMXBybVkzUWE4QnVSRnJZQ3ZFN1FNdE44dUVzbUpaelhGcWlHa3RhRWlNYVBuNHJyVUJrbEI?oc=5) |
+| Lyle and Erik Menendez Make Their Case for Parole - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1tR3FNZUtFbmZDRFlqYXYyc04yQXVYbVZabnoyc1JWQ1pGSmFnb0Rta2ZCckFjVkprMVFpaHBjdzRGdWFIemZadWctSkdvMHg1WjFqdC1zU0xXSXpFeDNsc0hUX2VaaDZsS0V4OGswaU4tMWx2RWc?oc=5) |
 | James Dobson, influential founder of conservative Christian group Focus on the Family, dies age 89 - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNYVF3c3dSN2k3b2RlQWFxYmNDTzAtZWI0VDBYNm40Qmxtc0hOcUFUZWhJS0FzVzR0SWd3VUF6b01NSllYM1BpMEFVaFFZRTNMalNtZVAzT05yZ1RBMEowZDJNVFZlcVZWLTRjNE5PMHhpTzhvekRtMVBHMnoyVWZLNVJ5YUdOQnNQUDhmSNIBkgFBVV95cUxNa3dRek1qeFdQRHpmM3FOczJLUXhlRWlLQ3draXNYNjJsbDVJb191NTVQMWlvN2NjMXlvVWZ0OHpQN1ZYeVFzQ21QU0xGODQtSmk2VF9CLXBfQ0R0YXlRTXlrNDJWeGx4c3VyeTJackRFQU5rOWRKTEt1QkZFQkZNSW15aW1OTWZMZ0pkV2lwS255dw?oc=5) |
-| U.S. Navy Sailor Is Convicted of Spying for China - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxON09jNjllY1gtT2pEVUxKRkZPUnBTVVF0cUFVbnFDdTc5NnFQRlN1Y1ByTThmbGd5T053SVh5bEllWVlUa3VSX2FQWE51dFhQWDlaR3hocGVrYUJZNmRiUzhUckw3SlJESlp3dUQ4RXl6RkQ3QVdFZVNNbFFmZTVyai1oSQ?oc=5) |
+| Trump's next fight: "woke" museum interpretations of history - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOcVFqcWd4QTE1SmRNMFBXUzVGMjh3T3c4U0g5MmRqZkQyd3EtUWdJN1F2ZjJ1eVBlbnpQLVduX1cwSjRKTURTaXFyN1VWZDVxSDJFNDEyeE0zd1Jfbm9EQzB1ZHhTWG5Pa3MxZEk3c29sWG5aVEVVajcxZVZNUDU1Vw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
