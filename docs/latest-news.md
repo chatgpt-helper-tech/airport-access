@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 00:48:33（北京时间）**
+🕒 更新时间：**2025年08月22日 00:56:25（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | The National Guard has been deployed to enforce the law before. What's different now? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5yT0ZrTEVTVEJjMUlhM3hMQUdiOGNjeHUwOGNmMjNZOU96YmxSXzdJZzhvZXJEQmQ3UXNJYWlFWUc4N2J0bjBLZFpVNk9rQVJMSm5HWTJhX3Jud3o3ZTFRVTdzajBUaVRaYUEwcFNLVkVhVWpfQ3NV?oc=5) |
 | Lawmakers are debating GOP congressional maps. What does redistricting mean for Texans? - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQWk9wVkJHM3ROLV9SQzhaaUhzZDh2MlFSQkR4YUtxa1RoX21UWmt2cUNFVy1TQ3BlWnZSSlM0Y1dGNWdMRWdmNHZYSGx0bFFjanBSYUJpUXZrME5NVEtIbmhhTVg0SXZFVmpoS0FmWlpERXA2c1pkWkdnTUlmX2FlS196OXVkdFJ0S0toaEN3?oc=5) |
 | Focus on the Family Founder James Dobson dies at 89 - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQdXYwLTRsdy04S2FDS0pRdDlzbXFfTFE3cE5lWWtuWGlMM213ZzZIX01UR21RM1pDRTdJUmFILTFMclVURVlTVWhpVHJVVjNhcmRXTkU4WVU4S2NIUFEtam9HdzQxMnVScEVkZjNvOTZqdWQ3U3o2M1ZwRUxlX1F3dkZ6bHVuRndIdWlpSlVmV2lQTktMWU1wVzVBb2Q?oc=5) |
-| Lyle and Erik Menendez Make Their Case for Parole - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1tR3FNZUtFbmZDRFlqYXYyc04yQXVYbVZabnoyc1JWQ1pGSmFnb0Rta2ZCckFjVkprMVFpaHBjdzRGdWFIemZadWctSkdvMHg1WjFqdC1zU0xXSXpFeDNsc0hUX2VaaDZsS0V4OGswaU4tMWx2RWc?oc=5) |
-| Meme-lord Newsom riles Republicans with Trump-trolling posts - France 24 | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQaVpMa1UxMU40M0VLdG10WkZqaHJRVlFna1VJRDQ4S0RHMEVLalhnTnF1VWp4bDN4NlZ0NGkwS2w1cHlCbzFRLXhXXzVXN3BJcHJpU0prV0oxaThUTFhhTElfVGZyRDNVLTBLNURoT2ZwdjJ6QmMzZ25PZENlandFV25TQ2xHTG9oanFHUjE1dVlIT1VPb09qRURUbFZaY0diN2R5d202eUkxek0?oc=5) |
+| Menendez Brothers Parole Hearings: What to Expect and How to Follow - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE16SXhGU0ZNQWdFM3pXeDJZaG5CVTNxX0hoSTk5ZGVBLWs3QmxzejRBakRka3pPS3NZX1hvYTFXRnVvbmhTcWg1VXZsTDgwV18tcWswMFVGZ3VKZGY4SF9USllDN0hrUDY4ODI1Um5jQ3phdWR2LVZld19FSQ?oc=5) |
+| 'A wake-up call': Newsom's Trump trolling is riling Republicans - SFGATE | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOd2hRNHdQX2FpUHEwZ1ctQ2FYTUcyM3VobmxFNE1QX2h6S29jYzQ3ZUptMGpqQUZDUXhPUDVKUlJBNnNkT0d0UWh0M2d4ZGRuTzVIZHRiTWRVNVM1NnJXdVh2YUlmVFcyeDBzcDRLNVotNEpGLURCckNqb09HMXI3M1RBNDFIdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
