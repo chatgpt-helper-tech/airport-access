@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 02:49:44（北京时间）**
+🕒 更新时间：**2025年08月22日 02:57:26（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Texas Rep. Nicole Collier abruptly leaves call with Newsom after being told she’s committing a felony - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQVXFWVGhkU0NRYlVhbUxrekZCeVR0MW13blRMRm1zalNvcURtall3Vi1hNURGN0NBVXEzYXJ3U25BRlFIOUFmclJ2ZThSbVNSNzJlOWlnYzVKbjAwaFBJeUtIWjhraHpvZDFlTGQteWNCWjFCVjJYb1IxQ1l1VmhWMThZT21CZjV2b29sMkNPRU9qMlJuVUI1cnZ5MTNmeWZseVRXNjNNNFR0YjBhMVRHUlp3UWNtdTlJOWdvRTE5WGVvZmp0LTRIRzhGSFdVY3J1NWc?oc=5) |
 | Lyle and Erik Menendez Make Their Case for Parole - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1tR3FNZUtFbmZDRFlqYXYyc04yQXVYbVZabnoyc1JWQ1pGSmFnb0Rta2ZCckFjVkprMVFpaHBjdzRGdWFIemZadWctSkdvMHg1WjFqdC1zU0xXSXpFeDNsc0hUX2VaaDZsS0V4OGswaU4tMWx2RWc?oc=5) |
 | Focus on the Family Founder James Dobson dies at 89 - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQdXYwLTRsdy04S2FDS0pRdDlzbXFfTFE3cE5lWWtuWGlMM213ZzZIX01UR21RM1pDRTdJUmFILTFMclVURVlTVWhpVHJVVjNhcmRXTkU4WVU4S2NIUFEtam9HdzQxMnVScEVkZjNvOTZqdWQ3U3o2M1ZwRUxlX1F3dkZ6bHVuRndIdWlpSlVmV2lQTktMWU1wVzVBb2Q?oc=5) |
-| 'A wake-up call': Newsom's Trump trolling is riling Republicans - SFGATE | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOd2hRNHdQX2FpUHEwZ1ctQ2FYTUcyM3VobmxFNE1QX2h6S29jYzQ3ZUptMGpqQUZDUXhPUDVKUlJBNnNkT0d0UWh0M2d4ZGRuTzVIZHRiTWRVNVM1NnJXdVh2YUlmVFcyeDBzcDRLNVotNEpGLURCckNqb09HMXI3M1RBNDFIdw?oc=5) |
+| The potential next target of Trump’s bid to control DC: Local courts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNS1hNbXEzbWtkYnlRRklYTl9GMUNqYWJXOWZ4c3UzOXQ1V0pOX2txYXkzVWNDQjdnUnVYYkRmcXBOYjV3WkVueWxSR0Z4UlRvb2szcVU4WGlQSVR5RVlMVXZvUERCTTBLTWp0ZVY3ZjJHV0VTb2Y4WDN1VEljampQdFhsVXVLXzA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
