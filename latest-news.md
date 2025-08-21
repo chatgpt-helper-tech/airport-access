@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月21日 20:17:54（北京时间）**
+🕒 更新时间：**2025年08月21日 20:24:14（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Russia hits Ukraine with 'massive' drone, missile attack, Kyiv says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPYTVJSTdENkN6QTNLd0EwRWdFa0RVUW5oeVF2dXZuVkpURkxEY3MtVG9UeGVlMG90YXBYaWdRZFBMVDk0OEZWUGpGMGR5bjkzMjJEb0FvX2tic09VUVRpRGVrUktxMUE3eUpiYjZJWUczQjhhRFBNVUYzZThnMFMtVkNmekRCcEM3Q0NCZnl3VWgwOEpTakFhQ1RjbXZxb3A1Y1FmVFF5YlRpT1F5VlHSAbMBQVVfeXFMUEVvYnY0SGt5Yl8yMGxpanRHRllqRjVTeDZqQVlDdjBxU3R6dGRMSnBXUE5CUmNvejhGc19mcW9jY1RTbHVIQnpkX1A1S0dXMjdwbmd0LXZYSlBFTW8xZWpnQ1BTOElINFVKQkhieVYwbzdBRkRQTjNmYlpJWUt6RUdHN3RSU2doMU1FVmNwMlFJUWxpZDVfa25EQ2pmWElHUnQwd1R0X0FaYlFBNWZPcjQzY1U?oc=5) |
 | The National Guard has been deployed to enforce the law before. What's different now? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5yT0ZrTEVTVEJjMUlhM3hMQUdiOGNjeHUwOGNmMjNZOU96YmxSXzdJZzhvZXJEQmQ3UXNJYWlFWUc4N2J0bjBLZFpVNk9rQVJMSm5HWTJhX3Jud3o3ZTFRVTdzajBUaVRaYUEwcFNLVkVhVWpfQ3NV?oc=5) |
 | Israel says it has taken first steps of military operation in Gaza City - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOdnFtNWg0UERQMTUwcnlNeUlrY0lvNU1LNTVQbG9pXzhCa2tReTVETlRGRGk5ZERucGZ2ek95ckVDdkZNSzVZM2lCTmFzc0xYMFhrODNyWDdmUzdNSTRLQlYySGF4eHVYaG9nNEdPU21idHVTcURZX1daZmh6c3I5VkNBQ3JDNlltY1M3OVlybGFuWTZzSlFaYS0wMXZ4d0ttc1RUWVJTTDBYeXdXTUxsaWFzcU5wZ1QtWGFr?oc=5) |
+| Texas house passes redrawn electoral map aiming to help Republicans keep majority in 2026 midterms – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxNeEdNTm5iU3k1YXMwNWNTTkJpRGhOdkhRMnY4aHZUUG5laDc2ZUk0aTY0QUFfX25OdDE4QlY3U3BXd1l2d3dFMzFRb0REUzU0SHBRODBKY3UxWHFtMzFlT3lkSDdoY25MdkZzVnJMVUxNQm9ZR002dk9GTU1fMC1oc0dvaW8yNWh1RUpSLUZQeGdwSzY5WjdnM2JiUmxPOENac1p5UURfWnJuNjhLc0JvUVh3YzZxajBQRVptNERfeGt3M3dqaEpmaTF3?oc=5) |
 | California parole officials to decide if Menendez brothers should be released - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxORmVla1EtcFRmaXNGMFNNME9maWZxUndjX1lObmFIM2kwMDdVUmMzSjVQWk5kb3pHTE9UeFZSb0pqbmVqcmo4bEwyVnlzZ2lkZExKMUFKUlRDUERPQUlyOHd2SDNVRDFPcThOZ3c1NkdyZnF2aW9peVZCSmc2TVl0LWJibW1uVUxxdjliZW1VUVBWa1ZHU2NvenItSGlwSWNsbVBhVjVPRGQ5Z3lleW02U3RNWllCZ2PSAVZBVV95cUxOWkFmcHNZSE56TmxyVnlwOGZvc0l2WUxnUU5nVjZqckd0Qmpxa2R3am9XNDVkSjNKbWliVHdjR0o3OHFyWFFDVmlBRGxSVEFyNy1aNDhFUQ?oc=5) |
-| Judge Frank Caprio, known for his compassion in Rhode Island court, dies at 88 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTFBrX04yV01IcUp0Z3M1dmY2UFRCd1Rkb3pKbWNvOE14bGpjUm5rREFkWDBpWHhNM2I1LXBUMEphQ1h2ZEo0X0lwcGgxdFBVTHFBdGtwcmhKR2xGWkRlRDZQZjk0a3RFWEFJWjVn0gFwQVVfeXFMUDRLczNYQWlPZVkyTUktRE5ua2xDUEhxYmhSZnRDb2tEb1QwQTczUnVxdnRzMmExV2FUajRhTzFKZGsxRkNBb1ZieTluVEtmLUdBYWtaTFdtU2drSUQ5U05SNmQ2OXNjel9ldVpsMnJGNg?oc=5) |
 | Gabbard Plan Would Shrink Intelligence Center Focused on Election Threats - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOTHBpRnRaLWhJQVNFOGJGcF9PQkVfMXZvUDlXeGNuLWhVLWNYZjhWSDVfYk8yeDdUZHE1ZFotV1NqeUQtR2xJMmROWEZSekQ4S1JrUTJ0bTg1T2dFbk85LWdRZW11SkJSSmwwOENhN2tFTGo4Q3pSeUI5bzNPX0F0YkRReGFMdw?oc=5) |
-| “My daughter was stolen from me": Grieving parents point to Texas camp failures at Capitol hearing - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNUmdkUDhmb0tqcGp6VEQyeVlIMlB1QS1xNEd2ejZYOGQ0M1VmbVUzY3ZqektSVEN4N2tFaWhycWFIWWpiaGFBa050MVhvR2RDbkxVU0wwUUlqc0xZVjhGQ1RPRjh4dHRwbUtQclI3eW93aG5UZmEyNGxWdEI3NFdNTUs4ZGNhcGFCTTNxNw?oc=5) |
+| ‘This cannot be normalized’: Blue cities and states rebuff White House over immigration enforcement - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQMmY4elpZZXR6cDNOSFg4a3lhbDZUMmstOWlXcHNfaGI3NUlKWWQ4THhJTGhlbjBTeDZpTlFXLVdDRDdwSmdvN19rM1FMc1NXZUlmR01acGpCVlZlUjd5UDdQOVpseXdsVGt0ZmpHbUZBT2N4VDEzSng0U0t2NUxqUTJvX21pQTFUX25IRTVJUElhbkRpNnAzZ2FkS1ZSTVpvbUkydzIzSU1vTms3Y0YyRw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
