@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月21日 09:00:12（北京时间）**
+🕒 更新时间：**2025年08月21日 09:09:59（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Protesters heckle Vance, Hegseth at photo op to thank National Guard troops in DC - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPRk5OSjF0UWUtNFRnRl8tNFR4eVJUUEtTbzFJb1BCU0xDZnZzUHVXcEdJbmZ3ODVoTGE1SU9NNm9VRnVlT2sybDE2RGlZN3hKb1g1R3J0UG5PSHdJbnV4Rkt2RlBDTlNHdkRWUnd6aHJnY1NidmI5b0R2bGU3Wm9IRVVqQkdkWjA4dGJrbXNLamJsb1dnQWdQZjFzYnZzSWVjTVYw0gGoAUFVX3lxTFB4RWViMlltaE9wQmp2cFFybVM0VVJVV0FrUXBSVXVTVlN6eHRBQ21Cb3FQY2VPLW83cU81cVRxZXRmLWVId09nOHQzQ2ZuNEdZZVdwTVhwbUlRcHFScDF3ZlZaS2IteXVsVlhDWEhMMzZlRGVQdE1scE1BTGdWY1doR1puSTlTZ0tVSWc0WkVoNGxNeFVzSjJkNHMyeU1LNTlyd21XQUNyYw?oc=5) |
 | Judge blocks some Texas public schools from displaying Ten Commandments - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQTVJfNWdUbW9yMEh6Q1JXbU1WNFBJa2dYSkRlelhWbm5UdFNiVXdSN09BLVRXSEtwSGVoem9EYjdNWHlIT3EtbmIwMGFsSmNKLUZGVnBuajVRenZ2dkxuRjU0SmVoQ3FRSk1tcG1uZTQ0UFBWaktTLU50ZnZyWmQtUDBlLXJUb1JaeGJMNWpKT1J0RjNrT0E?oc=5) |
 | Camp Mystic Parents Demand Changes Before More Children Are Lost - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1qdDdHdjEwX25kTDNtTEVudnM4ZnpxaWp6X2NvVl9lamJyR1liYXlMOTZsNG9jNFJaUm1iNUxsRmQ1VVNENDJBa1NvZGZZZ0dSRHFDUTJCNTBYZWpzblQyWGRUaXZabVJZQWNmV0NIS0hCamh3ZTBkektlUQ?oc=5) |
-| US court allows Trump officials to end protected status for 60,000 migrants - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPUUw1clFXRDlTbl9YNkptU0lJdEZGWjl1X0VwakZLV2xBXzRCNlFnTmZkNUlSYzNubWYwaWZsTk1QRlFZNm9iVnV4ZFF2RGNZc09waHN6UHpmY3Y0UVpGRXZfc2JUYjR2Q0dlMERLcHdUNG9ZTTZPUzFBM2VkWllWcTk1QjRrLU1LTTZVa0NQSmEzRG5tb2QwQm1B?oc=5) |
-| Gabbard announces 40% cut to workforce at key U.S. intelligence office - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNZXR5ekRCX3RTbDRGWTFLY3ZWb2htZXV3MkluUDZTTTZsSkJNbDY4RjJ4c1lBM3ZPRVgzVk1vazhFMGpVQWJxdEFvYkRQVFR0bXNUOHN0V0t4NGhZb0g4TDYySHpORUZGUmhNdkZUcFA0OHdBWFNqVXBsQ09ZVHJhNWZwVS1kem5LZFFRRUZhWklsemhpUUR2ZmtmX0JEYzlBdk9aMFhTcEdrZ9IBrwFBVV95cUxPd2R5ZGZIdExLR3ROWFhiUGo3UUNnNWhnUmVwTTFqZ081MzhCR3JsWVhub3NDZnNCaFVTb19TWUFBM2NQQ0pyVUF1MTYzVnZCTkl2WGVYOXBlN3BIZzQ4cnpsUFRmWUlCSVJXcUJSdEZiQjNXVU90V1YxbFU1bUQ2NzBROFduTUprVWY2cDhKWTVkVzdoVzBMeVhwVnh3dEg4U0hhWGlld2RjbGJKU2pj?oc=5) |
+| Appeals court panel clears way for Trump admin to end TPS for Hondurans, Nepalis and Nicaraguans - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPVWxhU0ppUWxYOGVBNm9FX3NLbHFkSGtNaDA1WXJIemVYOHEzbVNsWEVwblo5ZFBTbXdTRndQOHRnTDdwbEREcnk2c0FCQXZUNl95YzEyLUh0a28zcFhIbjhjd0FxUzcya2t2S1QwVnU3TGczcmd0T1U1VWRtUDRHUTc3bGxmc1FnOWlQR0dVTWswX0lVdlFRV2ROZG80MGFqWHNVS1h2OXZvVVFS?oc=5) |
+| Gabbard slashing intelligence office workforce and cutting budget by over $700 million - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQOXZZbldRVTNPWTJfTC16WW5INVZuYnVtZ1dOeUcwanNoa1RqS0ZyZmZLSkdzc0RNSUpZSHBST25mdDg5eUlGRjl3S1ZCOVlwdWgyWlR4SFJPVE92aUdpazdjd3NIMEt2bUR1bHI2NG9NQ1hBNmNNb3NoQXI0T1BaUkxGazhCalZVWDhIY1FMcGoyaW55MWc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
