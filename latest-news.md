@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 00:24:23（北京时间）**
+🕒 更新时间：**2025年08月22日 00:33:53（北京时间）**
 
 ---
 
@@ -10,14 +10,14 @@
 |--------|-------------|
 | UK's third-largest steelworks collapses into government control | [阅读全文](https://www.bbc.com/news/articles/cy0818y4jdlo?at_medium=RSS&at_campaign=rss) |
 | Record 111,000 UK asylum applications in past year, figures show | [阅读全文](https://www.bbc.com/news/articles/cwy1kxv8xewo?at_medium=RSS&at_campaign=rss) |
-| Councillor's wife jailed for race hate social media post released from prison | [阅读全文](https://www.bbc.com/news/articles/c5yl7p4l11po?at_medium=RSS&at_campaign=rss) |
+| 'Slave-like' assistants and late-night massages: How a radical priest abused parishioners | [阅读全文](https://www.bbc.com/news/articles/cr4ezy313qwo?at_medium=RSS&at_campaign=rss) |
 | Appeals court throws out Trump's $500m civil fraud penalty | [阅读全文](https://www.bbc.com/news/articles/c5y09q1zgg8o?at_medium=RSS&at_campaign=rss) |
 | Game of Thrones star Kristian Nairn withdraws from Strictly with stress | [阅读全文](https://www.bbc.com/news/articles/c74d71j4433o?at_medium=RSS&at_campaign=rss) |
+| Councillor's wife jailed for race hate social media post released from prison | [阅读全文](https://www.bbc.com/news/articles/c5yl7p4l11po?at_medium=RSS&at_campaign=rss) |
 | Russia launches biggest wave of strikes on Ukraine for weeks | [阅读全文](https://www.bbc.com/news/articles/c62wj8yje2eo?at_medium=RSS&at_campaign=rss) |
 | Hundreds of thousands of Grok chats exposed in Google results | [阅读全文](https://www.bbc.com/news/articles/cdrkmk00jy0o?at_medium=RSS&at_campaign=rss) |
 | UK backs call for Israel to allow foreign media into Gaza | [阅读全文](https://www.bbc.com/news/articles/c05ed10zqj8o?at_medium=RSS&at_campaign=rss) |
 | Tube staff to strike over pay and work conditions | [阅读全文](https://www.bbc.com/news/articles/cn728er5p1mo?at_medium=RSS&at_campaign=rss) |
-| Average five-year mortgage at lowest level since 2023 | [阅读全文](https://www.bbc.com/news/articles/cdd3qm7ly8ro?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
