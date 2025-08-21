@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月21日 12:57:16（北京时间）**
+🕒 更新时间：**2025年08月21日 13:01:03（北京时间）**
 
 ---
 
@@ -14,9 +14,9 @@
 | ICC says it deplores new US sanctions on judges and prosecutors | [阅读全文](https://www.bbc.com/news/articles/c620l3y7ydro?at_medium=RSS&at_campaign=rss) |
 | Sony raises PlayStation 5 prices in US as tariff fears persist | [阅读全文](https://www.bbc.com/news/articles/cy081prg9jjo?at_medium=RSS&at_campaign=rss) |
 | Texas lawmakers approve redistricting map favouring Republicans | [阅读全文](https://www.bbc.com/news/articles/cp8z4nj17dno?at_medium=RSS&at_campaign=rss) |
-| 'Ice cream man' in fatal Wembley attack named | [阅读全文](https://www.bbc.com/news/articles/cx23g97vk9mo?at_medium=RSS&at_campaign=rss) |
 | China's Xi touts unity and development in rare Tibet visit | [阅读全文](https://www.bbc.com/news/articles/cjr19770x7lo?at_medium=RSS&at_campaign=rss) |
 | Delta and United sued for selling 'window seats' without windows | [阅读全文](https://www.bbc.com/news/articles/c754k7d0z51o?at_medium=RSS&at_campaign=rss) |
+| 'Ice cream man' in fatal Wembley attack named | [阅读全文](https://www.bbc.com/news/articles/cx23g97vk9mo?at_medium=RSS&at_campaign=rss) |
 | Hurricane Erin's high waves thrash coast of North Carolina | [阅读全文](https://www.bbc.com/news/articles/ce934e9gyryo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -30,7 +30,7 @@
 | Israel says it has taken first steps of military operation in Gaza City - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOdnFtNWg0UERQMTUwcnlNeUlrY0lvNU1LNTVQbG9pXzhCa2tReTVETlRGRGk5ZERucGZ2ek95ckVDdkZNSzVZM2lCTmFzc0xYMFhrODNyWDdmUzdNSTRLQlYySGF4eHVYaG9nNEdPU21idHVTcURZX1daZmh6c3I5VkNBQ3JDNlltY1M3OVlybGFuWTZzSlFaYS0wMXZ4d0ttc1RUWVJTTDBYeXdXTUxsaWFzcU5wZ1QtWGFr?oc=5) |
 | NH mother killed husband, 2 kids before fatally shooting herself, state AG says - WCVB | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5KZER5cFZkZG1OUldzSGhIbzJGaGo1YklMb05ZSTU3Xzg5aTZPNldhckFoa2g1UDRIMUVHX1BHMERJZmcxTnE4bFljaDRsVnlJcER5Z3VrdGdXV3ptUXhYWnhuYXAwQVBXU1Y4MUg5S0JOeHZGQ292THBR?oc=5) |
 | Judge blocks some Texas public schools from displaying Ten Commandments - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQTVJfNWdUbW9yMEh6Q1JXbU1WNFBJa2dYSkRlelhWbm5UdFNiVXdSN09BLVRXSEtwSGVoem9EYjdNWHlIT3EtbmIwMGFsSmNKLUZGVnBuajVRenZ2dkxuRjU0SmVoQ3FRSk1tcG1uZTQ0UFBWaktTLU50ZnZyWmQtUDBlLXJUb1JaeGJMNWpKT1J0RjNrT0E?oc=5) |
-| Frank Caprio, Rhode Island judge who drew a huge online audience with his compassion, dies at age 88 - CNN | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE9EU3RkcTZ5OXowRDdBZWNMcHJ2SDgwdGg1dllKdHRYRlpFRDdfM3piZ296VnBHYk9ZM0pDbWlHdC1jNVoycFB0OFJwRkR4WmxkbmQ2dEtnR0JEa2J6MGVfQUxPaE04RGNPVmpOQUNieVBKTGPSAXhBVV95cUxOYjJ2SjhuWmhkMXVxTG1OTU8yN1lOTGFNT1JuR0lCSDF6NUlVRG83cEpkZ3VETFh0US0wRzJzSU5tckctYXM0LVZPTmp5X1Jxd0NPaUxmeDZGdVhvMGViOThwcEZva2NIWk1ndVA5VzdvNl9sSFhha2U?oc=5) |
+| Judge Frank Caprio, beloved for viral court videos, dies at 88 from pancreatic cancer - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNTE9OQUpzRWpGdllQbmF4TW03VG9ybDJHZDlxd3VoRGZBeFFlQ0JEYjZ3TDllQ0U4dnFnU05ZV1NEZWhOZFFIUWZNU2RmRHZQWU0wd05NX1dVNzZqMDh4SVFINEFJa1lFRE4zMldEX0g5NkdwaGJza1gxRDZmdl9PODhCeGZJakZibTNkZG5PRXdVZmZiWVQzLTlaNFZ6Umx0QlhsSVltONIBrAFBVV95cUxPYi1iYnZWQ0Via0xLLWhRZGplSjk0djRvRXdNZlgxenFINzRjMWwwRWxQczZGLXJNa1VTNjNuSEZnMHBEUmcwSW02cmZoVVByOG9NT29ZMUZ2Q0FZVkQwdi1lM3F1alE3Q1NzYnp2dnhHNDc2ZmEtUjhyclZpSU1uSkVWOFBENl9Pb0EtbjluZWtJT09SYW5zcHByWDBwZUM4VW52M3k2TFlTQ09z?oc=5) |
 | Tulsi Gabbard announces plans to cut intelligence staff by half - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBSb3podkw3TnZaYW1JWlFYVjkzS1MxdGtaWnJLTnVQV0RCaDVjX0lCcUJSZTJGLTZVWjF4cENweHpRclV4UFZBS0J6TXFWRDB4Q1diRVhnaHlRd9IBX0FVX3lxTE1HVk9UcjlHV0U0QXBwYTJSVW9UWUJ3TDFUV0dMY1BKOXBqZXJUd3Z0X3NsV1RJVFdqd2xrdkNKT2NwdmY4cFgtOFRYWHBfZHV2NXJZb05DbTBxcWgzSzU4?oc=5) |
 | Camp Mystic Parents Demand Changes Before More Children Are Lost - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1qdDdHdjEwX25kTDNtTEVudnM4ZnpxaWp6X2NvVl9lamJyR1liYXlMOTZsNG9jNFJaUm1iNUxsRmQ1VVNENDJBa1NvZGZZZ0dSRHFDUTJCNTBYZWpzblQyWGRUaXZabVJZQWNmV0NIS0hCamh3ZTBkektlUQ?oc=5) |
 
