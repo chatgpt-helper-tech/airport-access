@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月21日 18:48:26（北京时间）**
+🕒 更新时间：**2025年08月21日 18:57:49（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Obama supports California redistricting, says GOP can’t ‘rig the game’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNdVc0SWxSRDFMVFZxbFFtTFdFYUdyeFdlanlmRk1vaEJQemFCNWZPbkplVWFYMnNFWlJ4Nk9wMHVfLWszYzc0S1IxTVNESHZTclFFNU9qdElZNDk1UUlwU3JZRjJLUGNlaERiT25oRVNFQmt4RWkxak5rbkEtWC0zc1NsQUZFamJCaWJySGQzRnJWLWNo?oc=5) |
 | Judge Frank Caprio, known for his compassion in Rhode Island court, dies at 88 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTFBrX04yV01IcUp0Z3M1dmY2UFRCd1Rkb3pKbWNvOE14bGpjUm5rREFkWDBpWHhNM2I1LXBUMEphQ1h2ZEo0X0lwcGgxdFBVTHFBdGtwcmhKR2xGWkRlRDZQZjk0a3RFWEFJWjVn0gFwQVVfeXFMUDRLczNYQWlPZVkyTUktRE5ua2xDUEhxYmhSZnRDb2tEb1QwQTczUnVxdnRzMmExV2FUajRhTzFKZGsxRkNBb1ZieTluVEtmLUdBYWtaTFdtU2drSUQ5U05SNmQ2OXNjel9ldVpsMnJGNg?oc=5) |
 | Federal judge blocks Texas law requiring Ten Commandments be displayed in classrooms - Houston Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQV2JndXlEMkI4Q3g2Y3ZTaV8xb2x1OEVmRUhLNmt6VWJ2Rnl0UVo1WjBTU3J3OE5OQXZ6RVJxajlBR1JIZjFpQnlCb3RZdjg1WWI5eGxRNDhwaHNucVA4clcwdzItYTFKN2tFYWxJYzEtT2Z3aWxBbV9oNGQtU2txM3p3eHBYcTE5em5Cck5BV2tzdzNIWHB5aDBmekR4TXZIUEQtYUdzUGFXYUU4bnpmYmJSVnBCU2c?oc=5) |
+| “My daughter was stolen from me": Grieving parents point to Texas camp failures at Capitol hearing - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNUmdkUDhmb0tqcGp6VEQyeVlIMlB1QS1xNEd2ejZYOGQ0M1VmbVUzY3ZqektSVEN4N2tFaWhycWFIWWpiaGFBa050MVhvR2RDbkxVU0wwUUlqc0xZVjhGQ1RPRjh4dHRwbUtQclI3eW93aG5UZmEyNGxWdEI3NFdNTUs4ZGNhcGFCTTNxNw?oc=5) |
 | Pentagon says US will play a minimal role in Ukraine’s security guarantee - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOaWo3Q2x0QU9PN01iLXFBeDIwTkNsZUZ2NTd1YU04X1h2OURXeG5ramNPQ2JJaDhNenZVSzJwVkhfdXFjcExHMDVUZFN5UFNpanF2Zl9faUlNU3JDb3NkZEJDcFBwMnBjOGI2RG1iU2pVY0RCRl9KZlZfQzk1STQybTJTVmowMnBjUWkyVUVTM0FhU1pPMGhQX1pn?oc=5) |
-| Camp Mystic Parents Demand Changes Before More Children Are Lost - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1qdDdHdjEwX25kTDNtTEVudnM4ZnpxaWp6X2NvVl9lamJyR1liYXlMOTZsNG9jNFJaUm1iNUxsRmQ1VVNENDJBa1NvZGZZZ0dSRHFDUTJCNTBYZWpzblQyWGRUaXZabVJZQWNmV0NIS0hCamh3ZTBkektlUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
