@@ -1,7 +1,7 @@
 ---
 layout: default
 title: 百变小樱机场测评｜ 持续更新
-description: 百变小樱机场是一款稳定高速的SSR专线翻墙服务，支持三网IEPL、UDP协议，解锁ChatGPT、Netflix、TikTok等热门平台，提供免费试用和丰富套餐选择，适合新手与高阶用户。本站实测百变小樱延迟、速度、稳定性、解锁能力。
+description: 百变小樱机场是一款稳定高速的SSR专线翻墙服务，支持三网IEPL、UDP协议，解锁ChatGPT、Netflix、TikTok等热门平台，提供免丰富套餐选择，适合新手与高阶用户。本站实测百变小樱延迟、速度、稳定性、解锁能力。
 permalink: /bbxy/
 ---
 
@@ -9,9 +9,9 @@ permalink: /bbxy/
 
 IEPL 专线机场，支持移动、电信、联通三网高速回程，小众稳定运营近5年。团队肉身海外，运营风格低调,客服响应快,TG群活跃，节点配置扎实，速度优秀，延迟低，稳定性强，晚高峰表现依旧流畅。
 
-支持 ShadowsocksR 协议，兼容主流客户端。流媒体解锁全面，ChatGPT / Netflix / TikTok / Disney+ 均支持多地区访问。还赠送 Disney+/Netflix 等共享账号，非常适合影视爱好者。
+支持 ShadowsocksR 协议，兼容主流客户端。流媒体解锁全面，ChatGPT / Netflix / TikTok / Disney+ 均支持多地区访问。还赠送 Disney+/Netflix 等共享账号，提供Emby服务器,海量高清视频免费观看,非常适合影视爱好者。
 
-该机场我观察超过三年了，稳定性在同类中名列前茅，适合长期主力使用。**新人注册即送免费体验，无需付费先用后选。**
+该机场我观察超过三年了，稳定性在同类中名列前茅，适合长期主力使用。
 
 三网通吃，IEPL 稳定专线，对不同运营商网络都非常友好，跨网访问无压力。
 

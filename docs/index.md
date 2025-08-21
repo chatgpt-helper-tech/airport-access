@@ -12,7 +12,7 @@ description: 机场推荐,实测2025年最稳定科学上网工具，评测 Clas
 内容包含机场推荐、流量套餐对比、科学上网教程、配置指南与节点导入方式，  
 无论你是初次科学上网、跨境办公、海外留学还是流媒体重度用户，都能在此找到最合适的机场解决方案。
 
-> 最近更新: 2025年8月15日
+> 最近更新: 2025年8月21日
 
 
 ---
@@ -145,15 +145,16 @@ description: 机场推荐,实测2025年最稳定科学上网工具，评测 Clas
 2. [TNTCloud 机场/85折优惠](https://tanu095.tntvipaff.cc/#/register?code=7MPbfr89):推荐理由: IPLC 专线、原生 IP、高速稳定，海外团队运营,适合 ChatGPT、TikTok、Netflix、海外开发者和重度流媒体用户。不限设备、不限速，性价比极高,**专属优惠码 `TNT85` 可享受 **85折优惠**！**
 >  👉 [TNTCloud 机场详细测评,如需了解更多测速、解锁、套餐信息、使用教程请前往](https://gptvpnhelper.com/airport-access/tntcloud/)
 
----
-3. [银河云机场 Trojan协议 IPLC专线](https://inv03.galaxyaff.cc/register?aff=tcOd0ob7):推荐理由:trojan 协议 IEPL 专线机场，新加坡海外团队大机房产品，性价比专线，支持退款,有不限时流量套餐(限流量),24h在线客服，专业且靠谱稳定，任何线路问题都是1h内修复处理。全天候任何时期都稳定不掉线 ,测试油管4k高峰期无压力，下载视频可以跑满带宽,超优质的流媒体和 ChatGPT 解锁能力。**- 月付 / 季付 / 半年付：使用 `gptvpnhelper85` 享 85 折优惠
-   年付及以上：使用 `gptvpnhelper80` 享 8 折优惠**
->  👉 [Galaxy 银河云 机场详细测评,如需了解更多测速、解锁、套餐信息、使用教程请前往](https://gptvpnhelper.com/airport-access/yinheyun/)
-
 
 ### 入门级
 
-1. [贝贝云机场](https://beibeilink.top/register?code=Oa86Fbs3),推荐理由:贝贝云属于入门级机场，价格非常亲民，适合轻度科学-上网用户，例如网页浏览、访问海外资料、使用 ChatGPT。对流媒体晚高峰需求不高的用户，是高性价比的起步之选。95折优惠码:**beibei.cloud**
+1. [百变小樱机场](https://bbxy.xn--cesw6hd3s99f.com/auth/register?code=FFHk),推荐理由:IEPL 专线机场，支持移动、电信、联通三网高速回程，小众稳定运营近5年。解锁能力强，高级版以上套餐提供可获免费 Netflix、Disney+、Prime Video 等会员账号，海外流媒视频党福音,4K 秒播！提供Emby服务器,海量高清视频免费观看
+
+>  👉 [百变小樱 机场详细测评,如需了解更多测速、解锁、套餐信息、使用教程请前往](https://gptvpnhelper.com/airport-access/bbxy/)
+
+---
+
+2. [贝贝云机场](https://beibeilink.top/register?code=Oa86Fbs3),推荐理由:贝贝云属于入门级机场，价格非常亲民，适合轻度科学-上网用户，例如网页浏览、访问海外资料、使用 ChatGPT。对流媒体晚高峰需求不高的用户，是高性价比的起步之选。95折优惠码:**beibei.cloud**
 
 >  👉 [贝贝云 机场详细测评,如需了解更多测速、解锁、套餐信息、使用教程请前往](https://gptvpnhelper.com/airport-access/bby/)
 
