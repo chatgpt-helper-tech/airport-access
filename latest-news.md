@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 01:32:49（北京时间）**
+🕒 更新时间：**2025年08月22日 01:40:35（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | Record 111,000 UK asylum applications in past year, figures show | [阅读全文](https://www.bbc.com/news/articles/cwy1kxv8xewo?at_medium=RSS&at_campaign=rss) |
 | 'Slave-like' assistants and late-night massages: How a radical priest abused his congregation | [阅读全文](https://www.bbc.com/news/articles/cr4ezy313qwo?at_medium=RSS&at_campaign=rss) |
 | Appeals court throws out Trump's $500m civil fraud penalty | [阅读全文](https://www.bbc.com/news/articles/c5y09q1zgg8o?at_medium=RSS&at_campaign=rss) |
-| Game of Thrones star Kristian Nairn withdraws from Strictly on medical grounds | [阅读全文](https://www.bbc.com/news/articles/c74d71j4433o?at_medium=RSS&at_campaign=rss) |
+| Game of Thrones star Kristian Nairn withdraws from Strictly due to stress-related illness | [阅读全文](https://www.bbc.com/news/articles/c74d71j4433o?at_medium=RSS&at_campaign=rss) |
 | Councillor's wife jailed for race hate social media post released from prison | [阅读全文](https://www.bbc.com/news/articles/c5yl7p4l11po?at_medium=RSS&at_campaign=rss) |
 | Russia launches biggest wave of strikes on Ukraine for weeks | [阅读全文](https://www.bbc.com/news/articles/c62wj8yje2eo?at_medium=RSS&at_campaign=rss) |
 | Hundreds of thousands of Grok chats exposed in Google results | [阅读全文](https://www.bbc.com/news/articles/cdrkmk00jy0o?at_medium=RSS&at_campaign=rss) |
@@ -31,8 +31,8 @@
 | James Dobson, influential founder of conservative Christian group Focus on the Family, dies age 89 - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNYVF3c3dSN2k3b2RlQWFxYmNDTzAtZWI0VDBYNm40Qmxtc0hOcUFUZWhJS0FzVzR0SWd3VUF6b01NSllYM1BpMEFVaFFZRTNMalNtZVAzT05yZ1RBMEowZDJNVFZlcVZWLTRjNE5PMHhpTzhvekRtMVBHMnoyVWZLNVJ5YUdOQnNQUDhmSNIBkgFBVV95cUxNa3dRek1qeFdQRHpmM3FOczJLUXhlRWlLQ3draXNYNjJsbDVJb191NTVQMWlvN2NjMXlvVWZ0OHpQN1ZYeVFzQ21QU0xGODQtSmk2VF9CLXBfQ0R0YXlRTXlrNDJWeGx4c3VyeTJackRFQU5rOWRKTEt1QkZFQkZNSW15aW1OTWZMZ0pkV2lwS255dw?oc=5) |
 | Lawmakers are debating GOP congressional maps. What does redistricting mean for Texans? - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQWk9wVkJHM3ROLV9SQzhaaUhzZDh2MlFSQkR4YUtxa1RoX21UWmt2cUNFVy1TQ3BlWnZSSlM0Y1dGNWdMRWdmNHZYSGx0bFFjanBSYUJpUXZrME5NVEtIbmhhTVg0SXZFVmpoS0FmWlpERXA2c1pkWkdnTUlmX2FlS196OXVkdFJ0S0toaEN3?oc=5) |
 | What to know about the Menendez brothers' case as their parole hearings begin - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQbkFOUFFPdEpoakhSanExTTA1Nko2eEQyY0Iyb2NQbkRNSHQ3TzdlTk10VHZzbVlpLXZ0WGNkN1VZWFdrV0FIUjhaSkpDREgtMXBybVkzUWE4QnVSRnJZQ3ZFN1FNdE44dUVzbUpaelhGcWlHa3RhRWlNYVBuNHJyVUJrbEI?oc=5) |
+| Trump plans to join law enforcement on streets of Washington, DC, Thursday night - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNMnc1ZjJrU0VQc2NObHJ0dnUydFFZTVlKLTlpaWRVaFVpZ1lqdElpdnNiYngtNWFiaDlJYzcyZGktOWhTUGZSVWQ2Ykp0dEhVV3poc0hIcmt4QlpFLXBKUFlVYzZvc2dnMHBGWENDdUlpekthZ3pZb1Z0R01QVFRiNdIBhgFBVV95cUxPUlVRbXAyN2p3WVptVTZkRGM2WGg1QldDdkJOU2tXUzh1ZFB5V0NWS3lKaWdUYjdrbkx6SFVXR213ZnhTUHFSQWtCMHVBdzM2UHV4ZFBsdFJReHYwVGRnWWJaeDYtV0w4MkxzYzhnN051UnNkaE55dXo4X0lRWkJPNkxFXzlxUQ?oc=5) |
 | The potential next target of Trump’s bid to control DC: Local courts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNS1hNbXEzbWtkYnlRRklYTl9GMUNqYWJXOWZ4c3UzOXQ1V0pOX2txYXkzVWNDQjdnUnVYYkRmcXBOYjV3WkVueWxSR0Z4UlRvb2szcVU4WGlQSVR5RVlMVXZvUERCTTBLTWp0ZVY3ZjJHV0VTb2Y4WDN1VEljampQdFhsVXVLXzA?oc=5) |
-| 'A wake-up call': Newsom's Trump trolling is riling Republicans - SFGATE | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOd2hRNHdQX2FpUHEwZ1ctQ2FYTUcyM3VobmxFNE1QX2h6S29jYzQ3ZUptMGpqQUZDUXhPUDVKUlJBNnNkT0d0UWh0M2d4ZGRuTzVIZHRiTWRVNVM1NnJXdVh2YUlmVFcyeDBzcDRLNVotNEpGLURCckNqb09HMXI3M1RBNDFIdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
