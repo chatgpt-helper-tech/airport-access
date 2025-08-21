@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月21日 22:57:46（北京时间）**
+🕒 更新时间：**2025年08月21日 23:00:06（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Menendez brothers face parole hearings as they seek release after three decades - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPYVdlS0NtX0h0bWpnOUpscFhWc2JDNS1ncXEyX2VDVkFRN2R1ck5ma21uLXE4Yl9lbGd0bEwwdV9kTHRHZkZVaUFfZGROOUVjczlVZHI3RWZxaTU2MExTdjZoaktTdVRZRk5JTzdFX2dyVHZFVzJ2NTJUY2tZRm5meHctbmFoT3pu?oc=5) |
 | Meme-lord Newsom riles Republicans with Trump-trolling posts - France 24 | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQaVpMa1UxMU40M0VLdG10WkZqaHJRVlFna1VJRDQ4S0RHMEVLalhnTnF1VWp4bDN4NlZ0NGkwS2w1cHlCbzFRLXhXXzVXN3BJcHJpU0prV0oxaThUTFhhTElfVGZyRDNVLTBLNURoT2ZwdjJ6QmMzZ25PZENlandFV25TQ2xHTG9oanFHUjE1dVlIT1VPb09qRURUbFZaY0diN2R5d202eUkxek0?oc=5) |
 | U.S. Navy Destroyers, Submarine, Amphibious Ships Being Sent Toward Venezuela - The War Zone | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQeE1vRkpyUFk4cGtuSnh6dVlfQUVneVVIRW9LQ1lJa1dRU1ROdzVxNm9Ebl9SZkxWZjc3N3d5UnlVNHVvMG9CaXlTdG9zY2l1dVVjTmgxcThHNlRnQjlCaEdGNkNzS1k2RFk1NkFLaFBTMkRCamhJQUFnN2tGcUZVaVNldWt6R3ZscTA5ZldCcW0wMG9INk1ybTZqZTFWazA?oc=5) |
-| Gabbard Unveils Plan to Slash Top Spy Agency by 40% This Year - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNck81VC1UY29JZUlxZkFXS1poU2k1T2pUdWJjRVZTZE11WERmdFhMMzhjVUt3TUlMZnVzMVQ3VjRzaTBDR3ByNzZZSGdJcUY5b3lpVWplRWtybWhHanBWSVlkdmRKLUdJdzBKM1VhNkVIbVF0blp5QjJmeUlKeXVCMXpYV2NvNE9Nb3JUel9CZmEyMlcwaFY3eFpHTVJmZFlFUGRXTTdLWUZIanZOV3RxUw?oc=5) |
+| Appeals court panel clears way for Trump admin to end TPS for Hondurans, Nepalis and Nicaraguans - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPVWxhU0ppUWxYOGVBNm9FX3NLbHFkSGtNaDA1WXJIemVYOHEzbVNsWEVwblo5ZFBTbXdTRndQOHRnTDdwbEREcnk2c0FCQXZUNl95YzEyLUh0a28zcFhIbjhjd0FxUzcya2t2S1QwVnU3TGczcmd0T1U1VWRtUDRHUTc3bGxmc1FnOWlQR0dVTWswX0lVdlFRV2ROZG80MGFqWHNVS1h2OXZvVVFS?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
