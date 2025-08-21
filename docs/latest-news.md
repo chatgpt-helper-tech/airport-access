@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月21日 12:00:02（北京时间）**
+🕒 更新时间：**2025年08月21日 12:09:50（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump administration’s anti-woke campaign targets Smithsonian museums - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOV01zT2d3SHllYU1pZUcwNlppMFV3RmFqN0J3OGwtNkpZZXYzMWFpVHhKTWdDaXhHN3RJOEdGUGlCUE5mQjVlVGxXQ2xqX0ZoaHhmS3JqRTJSNVE0UzVaQVEyR0lja1RYNDhYOUR4dVIyZXROMGFwQy1LSVByaEE0dXIyT044WnJFY3RJb2M3R283Q05yTW8zeDRR?oc=5) |
 | As Israel begins offensive on Gaza City, an exhausted military may face a manpower problem - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPSWdjUnc3MDVLQk9vT05rTWJvVlJPT09ybHFwcXl4MWdPUlVjM05xZ1dqcVJ4N1pTZ2h1MUY4U1dyMGhWVEdPQTl2MjVoWHBnenNnUG9vbkd1ZkVIRGtwTUNLVTR5YWlFOFREZTdEdTdKLXFkbllnQTAtRlNOX2Vmamh5S2ZKRXhYVUlIV2FCZENSdw?oc=5) |
 | Israel Approves Settlements, a Blow to Faded Hopes for a Palestinian State - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQQUlqemZkQ19nR0pvUE5nMFA2aC1TeW4xcGVZeDJuMlhzV1J5QzdVYW5VeXR6TldhWUVDMG1IZTZOaGk5UXl2UUZzQjdkX1Nld05kNnR2Wk9vVTg3M2pUNU5OenBqTlk3QXRzeEhjSFpnZW50cXhsNFBJOEZ6R2ZhR04yRnQzakZ0TE96dGIxV1Q?oc=5) |
-| Camp Mystic Parents Demand Changes Before More Children Are Lost - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1qdDdHdjEwX25kTDNtTEVudnM4ZnpxaWp6X2NvVl9lamJyR1liYXlMOTZsNG9jNFJaUm1iNUxsRmQ1VVNENDJBa1NvZGZZZ0dSRHFDUTJCNTBYZWpzblQyWGRUaXZabVJZQWNmV0NIS0hCamh3ZTBkektlUQ?oc=5) |
-| Seven months in, Trump’s revolving door reaching full swing - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPbjlrSjhKMFF0M2lRUUNvV21oclNIclJOWk9Vb1UxcGNVQUpxMy1vYk1sSEw4eDFfMVhvT1hVNjhFRF9JQXdDcEpIX09mWE53QXdqTFRTTlEtSkVGc0xmWlA5QzNfdTFicy05TW1GWkpkZDdDVjQtNDdwOWNQc0lwWi1Fd0RrN08xd0tMaEJwV2p4UzNIRzhUMDN2UDU5LW9pc29Ma0pGaE9fREJITWEyVm9aMA?oc=5) |
-| Ousted L.A. fire chief claims Bass ran a misinformation campaign, defamed her to save herself - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNdV9Kem93R0ROMDNLTElheXV5M29DSzB5dXJnOVgtTllEQ3R3aFdTbXZidTBkbnVTYXJlTFFwQklremI4VWVacTBDMW10cWtzcW9xcGlrYUdwd2NPUVI1ZVpNY0dCZVVCb2YxaFhWdjVIcFhIUURWc0NEaGFVYWs0Nnd6SzEzSktBNTgzbWVpZVA0XzhpdEhpN2lPVWdGcUQ2RTZ5Y3AyTHlRSGJjWV96TmRrVFk?oc=5) |
+| ‘This cannot be normalized’: Blue cities and states rebuff White House over immigration enforcement - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQMmY4elpZZXR6cDNOSFg4a3lhbDZUMmstOWlXcHNfaGI3NUlKWWQ4THhJTGhlbjBTeDZpTlFXLVdDRDdwSmdvN19rM1FMc1NXZUlmR01acGpCVlZlUjd5UDdQOVpseXdsVGt0ZmpHbUZBT2N4VDEzSng0U0t2NUxqUTJvX21pQTFUX25IRTVJUElhbkRpNnAzZ2FkS1ZSTVpvbUkydzIzSU1vTms3Y0YyRw?oc=5) |
 | Judge blocks some Texas public schools from displaying Ten Commandments - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQTVJfNWdUbW9yMEh6Q1JXbU1WNFBJa2dYSkRlelhWbm5UdFNiVXdSN09BLVRXSEtwSGVoem9EYjdNWHlIT3EtbmIwMGFsSmNKLUZGVnBuajVRenZ2dkxuRjU0SmVoQ3FRSk1tcG1uZTQ0UFBWaktTLU50ZnZyWmQtUDBlLXJUb1JaeGJMNWpKT1J0RjNrT0E?oc=5) |
+| Frank Caprio, Rhode Island judge who drew a huge online audience with his compassion, dies at age 88 - CNN | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE9EU3RkcTZ5OXowRDdBZWNMcHJ2SDgwdGg1dllKdHRYRlpFRDdfM3piZ296VnBHYk9ZM0pDbWlHdC1jNVoycFB0OFJwRkR4WmxkbmQ2dEtnR0JEa2J6MGVfQUxPaE04RGNPVmpOQUNieVBKTGPSAXhBVV95cUxOYjJ2SjhuWmhkMXVxTG1OTU8yN1lOTGFNT1JuR0lCSDF6NUlVRG83cEpkZ3VETFh0US0wRzJzSU5tckctYXM0LVZPTmp5X1Jxd0NPaUxmeDZGdVhvMGViOThwcEZva2NIWk1ndVA5VzdvNl9sSFhha2U?oc=5) |
+| Camp Mystic Parents Demand Changes Before More Children Are Lost - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1qdDdHdjEwX25kTDNtTEVudnM4ZnpxaWp6X2NvVl9lamJyR1liYXlMOTZsNG9jNFJaUm1iNUxsRmQ1VVNENDJBa1NvZGZZZ0dSRHFDUTJCNTBYZWpzblQyWGRUaXZabVJZQWNmV0NIS0hCamh3ZTBkektlUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
