@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 05:32:17（北京时间）**
+🕒 更新时间：**2025年08月22日 05:41:40（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Hurricane Erin brings strong waves to US east coast - watch live - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5ZczAtUElUcGFQNlUwdVU5aXdvV1FMX0NZRGc0SHVQODltaDFZYy1keENLcEFoUVNtMzBScDhKUlUzUUw0SUF0NnBEQVR3R0JZR2V1Rg?oc=5) |
 | ICE chief threatens to 'flood' Boston with agents after mayor won't abandon sanctuary policy - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPRkZ4Qk9RMXk1VEpyYmJNVUw0bjRyOTBCMm04ZDM5Qjd6NUtNTUx6MWZqdUl6SkdURjMtbmtzVGhOSU5WTUVyZ2lwWlNUd2kwZi1ZaFZTdS1LVUowbXFIQ1Z0UXdSdEFFN1o0cE55OHlublpSMUFSb0N5aF9zYW1PamhoUHhZeHZwUVHSAVZBVV95cUxOcHpaQ1VST0YzSUgxMDZwaVZHWFhUM3Y1MXJWZmNlS2JkWXFHSEl2UUpnS3JpcnpfbmJnWkVKR2U3dzR4YTI2dDZrWlY1WjdScjBHcFBEUQ?oc=5) |
 | The US and EU release a bare-bones account of their trade deal, but it’s a work in progress - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOdEJLNXF6T2lSUGtBVlJyYUxPRjFKeWNEakJHQVJCbVZnTjVYSklUb0Ytd1hHRmVnTlZ0b05nMVlnMWVtV0xNdEl5V3hYbFFFWTM2VHJWdFl5WjdWQXJzT1B2Mnp6OFpXZDRVTUJ3dWE4dzZVUExNS1JqMjktSHNiZldfUUJOSzNKbkpPQUJxZV9qSTdyNHc?oc=5) |
-| Judge Says Habba Has Served as U.S. Attorney Without Legal Authority - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNaFhqN0NKZG84cm91LWRtMndBZ0lFcFYxS2dYejBSRU9PWDN4VFJOVmxrekJUX09ROUdrSUNYRk1uMHFuM05xczBDdnRzRGxEUUpjVE9Bclo5cFMtcllienZaUzBULUpURDR3eDNGdHhHRDNTNWFsLWNQZ2ViM3lwd0ZyeER5Q2tCV2FV?oc=5) |
-| Menendez brothers face parole hearings as they seek release after three decades - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPYVdlS0NtX0h0bWpnOUpscFhWc2JDNS1ncXEyX2VDVkFRN2R1ck5ma21uLXE4Yl9lbGd0bEwwdV9kTHRHZkZVaUFfZGROOUVjczlVZHI3RWZxaTU2MExTdjZoaktTdVRZRk5JTzdFX2dyVHZFVzJ2NTJUY2tZRm5meHctbmFoT3pu?oc=5) |
+| Alina Habba's appointment as US attorney for New Jersey 'unlawful,' judge rules - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxPQTFaeUpKVW1QbVdlMlVBU25SMUZleUxiOHBlYVV2LVdOZ3poVEEzWHJuTWJmWGlVSDQ4dGVSalhGazItYjJjYTFrT0lYRzFkWlhHd19OVnBnMC1USnJLZkhGMnBXMGVETU1FNHowX0xsU21UV01RdnJBWW1PLVBubGlnZjNCREF4VHJuUGtHQWRxWE5JLXFRUjR4ejRGUVBkb21GQ3poOFRHdVJCSVBmU0tUdW1TOE1ZWmJZWGtHdll2ZXh60gFWQVVfeXFMT040VGJNcTdmNFZzSExGb215ckozQ1Q5YzN0SHdrWURiUGx4QWEyVnVLUnRBc3R6ZXM0ZERPNWc1S1lJaDctbUNtenBGZ25UVzA2WEhjR1E?oc=5) |
+| What to know about the Menendez brothers' case as their parole hearings begin - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQbkFOUFFPdEpoakhSanExTTA1Nko2eEQyY0Iyb2NQbkRNSHQ3TzdlTk10VHZzbVlpLXZ0WGNkN1VZWFdrV0FIUjhaSkpDREgtMXBybVkzUWE4QnVSRnJZQ3ZFN1FNdE44dUVzbUpaelhGcWlHa3RhRWlNYVBuNHJyVUJrbEI?oc=5) |
 | Trump administration says it’s reviewing all 55 million US visa holders - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPTjFpSDQ3SUNwekEzTHg1VXNkcE1ObEd5MkNvRFNuNFA4Qzdjc3I2YUFaVUR1Y2JVcVhfU1pqX2ZaT2d4c0ZCcDROUDRJYVVCWkt0bHd1R1hkcnZxYXJEMmt6WTRLT2U4RWR5S3hXZEI3Mjk3VDBIcGRJVVdwUGZwZkk0SXBjbGNjSmxFZ1ZSTzkyN1I0a3NYWFpNT2RRbzdUeDgtM1VVZWdGMUN5TnZoONIBtgFBVV95cUxPLWM0ckwwS2NLcndmN0s3QlllTjlVblAwczdic1JDd1NZSXI4Nk5hSXZuUUVEd0c5VkExQmRXUVFzWFBwZ28tamtDMW5QaTlva3o0RHVXOHBFSlhHTmZUNDdUZkFsSm1FdlR4eWtpY01MYlBuV1ctV3ZhLUtEdTE5Y054R3d3TVd1VXp5aC1FN1o2UG5zeWh0c3AtX05rb0labThDOEN1Zy1VdEFuRjVlTlhxUURGQQ?oc=5) |
 | Journalist detained by ICE sues Noem, Bondi for his release - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNclB4WVY4WWpjbUM4NUhGZDZsanpzOFhoeS03cnFqRUx5MGJUdm1rby0tSmx5SUg2dFdfekRYQkc5Vm5RMGFoTTFpR1Y4M2tQUlZHNHY3NkZOWE92N0pIT002M2I5STBmOUxXUE9wUEV3c3hTbzZMdDFtRFR5aXozdTA1Nk5ud25V?oc=5) |
 
