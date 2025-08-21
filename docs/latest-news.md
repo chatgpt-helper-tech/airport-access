@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 00:41:27（北京时间）**
+🕒 更新时间：**2025年08月22日 00:48:33（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | UK's third-largest steelworks collapses into government control | [阅读全文](https://www.bbc.com/news/articles/cy0818y4jdlo?at_medium=RSS&at_campaign=rss) |
 | Record 111,000 UK asylum applications in past year, figures show | [阅读全文](https://www.bbc.com/news/articles/cwy1kxv8xewo?at_medium=RSS&at_campaign=rss) |
-| 'Slave-like' assistants and late-night massages: How a radical priest abused parishioners | [阅读全文](https://www.bbc.com/news/articles/cr4ezy313qwo?at_medium=RSS&at_campaign=rss) |
+| 'Slave-like' assistants and late-night massages: How a radical priest abused his congregation | [阅读全文](https://www.bbc.com/news/articles/cr4ezy313qwo?at_medium=RSS&at_campaign=rss) |
 | Appeals court throws out Trump's $500m civil fraud penalty | [阅读全文](https://www.bbc.com/news/articles/c5y09q1zgg8o?at_medium=RSS&at_campaign=rss) |
 | Game of Thrones star Kristian Nairn withdraws from Strictly with stress | [阅读全文](https://www.bbc.com/news/articles/c74d71j4433o?at_medium=RSS&at_campaign=rss) |
 | Councillor's wife jailed for race hate social media post released from prison | [阅读全文](https://www.bbc.com/news/articles/c5yl7p4l11po?at_medium=RSS&at_campaign=rss) |
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump half-billion-dollar civil fraud penalty thrown out by appeals court - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1OMnVOWHdnQjhZMUh3dUN5RVctNDZtY3l2Zy1TUFUtMmYzUm1QY0VGZ2Q4YlA2VW9BU29IckY3V3N3eXd3MVZ0NVNtYW9CSWNtb19EcndFNVdOTHU2aEVncnBUYUZPdXJYRHBCM0tlOFFBaUHSAXhBVV95cUxQTjY0YVN2bjVrdERRRG5yNkMxX1R5UE1oaGxOb1ptV2VhMmVMYlUzOFFfQm1fUjQzYVRWQllpTzR1WE95RWhFS3VkRUlIQmVIa2NETzJqTzcwaGxUTzJ5ZFpKcjR1Ukx6b2lEQmgyTHptdjYyZVhLQnA?oc=5) |
+| Appeals court throws out Trump's $500m civil fraud penalty - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE44RngzQWxqQTMyRzJGa2FBWTJmenRQZTlGbzVheFVKaVBuSnEzYURSek9rMWRWQUZKZEl6UFhrZ0p2b2dzWlUySXdjSHRiUUFDbUlwQVpLRk96QdIBX0FVX3lxTFBxSXNCREJoZzdVeDVBQ09OUE9xcXM3VGxvdzVGcERENGR0TXpqODF4TXBFTzhDTDJQMm9MZ2hiQ0dKQ3drRk9hamZfS0JlQ3FTbVN6ZlZpeEE2UmdtVWZF?oc=5) |
 | CWG Live updates: Clouds and a gusty breeze are all Hurricane Erin brings - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQYXVacWdDY0R6VUVaYnBOdFl4UVFsdVFMcGcyVVEzVFVmeUpSTGg5MG43VGJucWE1QjJvakdpc2JFNHhIc1FXblFTaWtCa1pkbHlrYmhCQUFpUkpEME00YU9oWmlkdXFvZV9NWnFIWTJqNUctRXdneW9Mdi12MmtsUVJUZXhxRU84ZkUtTU5FbWQxUQ?oc=5) |
 | U.S. and EU flesh out trade commitments under new framework deal. Here's what is in the pact. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9wV2xMbmJnNE9xRHVKVGxVS2ZVYU9SVVFWbi01VzFUNE4wWWUzUkRmaUNyMFIxakNTcTRReDhwMjIzTzVVWGY1NGU2d1I5SVFsYzRyQl9sTXhjUUFOdTczNnIwd1Z5X1JRTHhfZtIBckFVX3lxTE5ydlNpZnBrM19JVzZXWFpXYU41U3ZLSE1hQUJYT05aVWF1WFREaVJSVHhrV2RYZkhoREVIaGlGeGVJQVlhbEl4N2FPZ25uR3BQYS1WY3U1T3JzckdWZC02WFBhMm9BYVNXaUpiaU4zZVdHQQ?oc=5) |
 | A Russian airstrike hits a U.S. factory in western Ukraine - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5vbjZ5NDY2R1FxbFNmWE9GVGl2OWFhV19pM0Z6RW5aVEVSamF5UVhiX2JHc0hxR2EzMWIwTXlsZTdDd1hPSExQbWhGYWZIeHdtbWpnUkFtb2p0cHhKS19DSURCcExZamdmUGZieU8tQ21BT2tBVkE0WllXbGJTdw?oc=5) |
 | What about Texas? California Republicans pressed for answers in redistricting fight - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOVWZBamZSQmVOVVQ2cXlDNndTbXpvMGtiRjQ3MGE0MF9QLVJURnFXbDdUX3NDYnlEeWN6NFVJVU9WVTNFWjE3a0UxVVhQbTR1NTQzbzI4WnI0UGd3QkE2WEdwY252Z0FzSERTSmFOODY2aDFMQXNCWDRFQW12dWpqVUU3cGtVajFYWTJsV2FyXzNjUDJz?oc=5) |
-| James Dobson, Influential Leader of the Religious Right, Dies at 89 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBwVHAtR1M2LXJ4c1FzMlRhdnlabU1HcHY2WVdDYU02T1F4Y1FHcnlKQm1Nd2pDUGR2TkdhTVJEMVpnT2J4d1dXMUd3RDRjRzQwUjVzN1hfMFEwZE4ySnVaTjdDel9DcHpuOVdRbm9vWmZSbHFJWUh1Sw?oc=5) |
+| The National Guard has been deployed to enforce the law before. What's different now? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5yT0ZrTEVTVEJjMUlhM3hMQUdiOGNjeHUwOGNmMjNZOU96YmxSXzdJZzhvZXJEQmQ3UXNJYWlFWUc4N2J0bjBLZFpVNk9rQVJMSm5HWTJhX3Jud3o3ZTFRVTdzajBUaVRaYUEwcFNLVkVhVWpfQ3NV?oc=5) |
 | Lawmakers are debating GOP congressional maps. What does redistricting mean for Texans? - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQWk9wVkJHM3ROLV9SQzhaaUhzZDh2MlFSQkR4YUtxa1RoX21UWmt2cUNFVy1TQ3BlWnZSSlM0Y1dGNWdMRWdmNHZYSGx0bFFjanBSYUJpUXZrME5NVEtIbmhhTVg0SXZFVmpoS0FmWlpERXA2c1pkWkdnTUlmX2FlS196OXVkdFJ0S0toaEN3?oc=5) |
-| Menendez brothers face parole hearings as they seek release after three decades - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPYVdlS0NtX0h0bWpnOUpscFhWc2JDNS1ncXEyX2VDVkFRN2R1ck5ma21uLXE4Yl9lbGd0bEwwdV9kTHRHZkZVaUFfZGROOUVjczlVZHI3RWZxaTU2MExTdjZoaktTdVRZRk5JTzdFX2dyVHZFVzJ2NTJUY2tZRm5meHctbmFoT3pu?oc=5) |
-| The potential next target of Trump’s bid to control DC: Local courts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNS1hNbXEzbWtkYnlRRklYTl9GMUNqYWJXOWZ4c3UzOXQ1V0pOX2txYXkzVWNDQjdnUnVYYkRmcXBOYjV3WkVueWxSR0Z4UlRvb2szcVU4WGlQSVR5RVlMVXZvUERCTTBLTWp0ZVY3ZjJHV0VTb2Y4WDN1VEljampQdFhsVXVLXzA?oc=5) |
-| President Trump Is Right About the Smithsonian - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNSkJMbXRQODJRQmdSR2piQ3BsbFRJbVNIT3FxTVU2ekxoejJBYXBHN0RacWctUDNlSGhSd1NZelljVC1xUUxVTDRwMXRMc3lhNEJLMjcwUUxmR0k3LS1pZ2xrdEJKekpuWjZHbzZHREZ1Vy1zaFZ6MXcxSmNsR2xXUFNmVHI3bnhCX3ZENnczclp2OGhjMFE?oc=5) |
+| Focus on the Family Founder James Dobson dies at 89 - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQdXYwLTRsdy04S2FDS0pRdDlzbXFfTFE3cE5lWWtuWGlMM213ZzZIX01UR21RM1pDRTdJUmFILTFMclVURVlTVWhpVHJVVjNhcmRXTkU4WVU4S2NIUFEtam9HdzQxMnVScEVkZjNvOTZqdWQ3U3o2M1ZwRUxlX1F3dkZ6bHVuRndIdWlpSlVmV2lQTktMWU1wVzVBb2Q?oc=5) |
+| Lyle and Erik Menendez Make Their Case for Parole - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1tR3FNZUtFbmZDRFlqYXYyc04yQXVYbVZabnoyc1JWQ1pGSmFnb0Rta2ZCckFjVkprMVFpaHBjdzRGdWFIemZadWctSkdvMHg1WjFqdC1zU0xXSXpFeDNsc0hUX2VaaDZsS0V4OGswaU4tMWx2RWc?oc=5) |
+| Meme-lord Newsom riles Republicans with Trump-trolling posts - France 24 | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQaVpMa1UxMU40M0VLdG10WkZqaHJRVlFna1VJRDQ4S0RHMEVLalhnTnF1VWp4bDN4NlZ0NGkwS2w1cHlCbzFRLXhXXzVXN3BJcHJpU0prV0oxaThUTFhhTElfVGZyRDNVLTBLNURoT2ZwdjJ6QmMzZ25PZENlandFV25TQ2xHTG9oanFHUjE1dVlIT1VPb09qRURUbFZaY0diN2R5d202eUkxek0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
