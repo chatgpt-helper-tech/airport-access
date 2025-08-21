@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月21日 21:41:47（北京时间）**
+🕒 更新时间：**2025年08月21日 21:48:18（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | NH mother killed husband, 2 kids before fatally shooting herself, state AG says - WCVB | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5KZER5cFZkZG1OUldzSGhIbzJGaGo1YklMb05ZSTU3Xzg5aTZPNldhckFoa2g1UDRIMUVHX1BHMERJZmcxTnE4bFljaDRsVnlJcER5Z3VrdGdXV3ptUXhYWnhuYXAwQVBXU1Y4MUg5S0JOeHZGQ292THBR?oc=5) |
 | Texas and California Race Forward With Rival Redistricting Efforts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPNHhTejliSnd3TS1tNnkyTi1hUjR6WHVnTFZxRlRIMVhMbU1ZZVFSbm1nRFIzYUIxaEpCVVJITjVnTXlBWFRUblJFU2ZPTGJoOXUzYzVkZ1NzNWRzWEthM2hFdzZkbTdDZU95TS1FX3hqYm1nMXp1NmJZRU1scEJMc2J0N0dfMkp1QkE?oc=5) |
 | Menendez brothers face parole hearings as they seek release after three decades - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPYVdlS0NtX0h0bWpnOUpscFhWc2JDNS1ncXEyX2VDVkFRN2R1ck5ma21uLXE4Yl9lbGd0bEwwdV9kTHRHZkZVaUFfZGROOUVjczlVZHI3RWZxaTU2MExTdjZoaktTdVRZRk5JTzdFX2dyVHZFVzJ2NTJUY2tZRm5meHctbmFoT3pu?oc=5) |
+| Tulsi Gabbard announces plans to cut intelligence staff by half - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBSb3podkw3TnZaYW1JWlFYVjkzS1MxdGtaWnJLTnVQV0RCaDVjX0lCcUJSZTJGLTZVWjF4cENweHpRclV4UFZBS0J6TXFWRDB4Q1diRVhnaHlRd9IBX0FVX3lxTE1HVk9UcjlHV0U0QXBwYTJSVW9UWUJ3TDFUV0dMY1BKOXBqZXJUd3Z0X3NsV1RJVFdqd2xrdkNKT2NwdmY4cFgtOFRYWHBfZHV2NXJZb05DbTBxcWgzSzU4?oc=5) |
 | Meme-lord Newsom riles Republicans with Trump-trolling posts - France 24 | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQaVpMa1UxMU40M0VLdG10WkZqaHJRVlFna1VJRDQ4S0RHMEVLalhnTnF1VWp4bDN4NlZ0NGkwS2w1cHlCbzFRLXhXXzVXN3BJcHJpU0prV0oxaThUTFhhTElfVGZyRDNVLTBLNURoT2ZwdjJ6QmMzZ25PZENlandFV25TQ2xHTG9oanFHUjE1dVlIT1VPb09qRURUbFZaY0diN2R5d202eUkxek0?oc=5) |
-| “My daughter was stolen from me": Grieving parents point to Texas camp failures at Capitol hearing - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNUmdkUDhmb0tqcGp6VEQyeVlIMlB1QS1xNEd2ejZYOGQ0M1VmbVUzY3ZqektSVEN4N2tFaWhycWFIWWpiaGFBa050MVhvR2RDbkxVU0wwUUlqc0xZVjhGQ1RPRjh4dHRwbUtQclI3eW93aG5UZmEyNGxWdEI3NFdNTUs4ZGNhcGFCTTNxNw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
