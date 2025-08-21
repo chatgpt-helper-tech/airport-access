@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月21日 12:25:19（北京时间）**
+🕒 更新时间：**2025年08月21日 12:33:30（北京时间）**
 
 ---
 
@@ -10,14 +10,14 @@
 |--------|-------------|
 | Badenoch encourages Tory councils to challenge asylum hotels | [阅读全文](https://www.bbc.com/news/articles/cwy0j9n4qzwo?at_medium=RSS&at_campaign=rss) |
 | Israeli military says first stages of assault on Gaza City have begun | [阅读全文](https://www.bbc.com/news/articles/clyr7l0z9edo?at_medium=RSS&at_campaign=rss) |
-| 'Ice cream man' in fatal Wembley attack named | [阅读全文](https://www.bbc.com/news/articles/cx23g97vk9mo?at_medium=RSS&at_campaign=rss) |
 | Students face nervous wait for GCSE and BTec results | [阅读全文](https://www.bbc.com/news/articles/c4g64qedynlo?at_medium=RSS&at_campaign=rss) |
-| ICC 'deplores' new US sanctions on judges and prosecutors | [阅读全文](https://www.bbc.com/news/articles/c620l3y7ydro?at_medium=RSS&at_campaign=rss) |
+| ICC says it deplores new US sanctions on judges and prosecutors | [阅读全文](https://www.bbc.com/news/articles/c620l3y7ydro?at_medium=RSS&at_campaign=rss) |
 | Sony raises PlayStation 5 prices in US as tariff fears persist | [阅读全文](https://www.bbc.com/news/articles/cy081prg9jjo?at_medium=RSS&at_campaign=rss) |
 | Texas lawmakers approve redistricting map favouring Republicans | [阅读全文](https://www.bbc.com/news/articles/cp8z4nj17dno?at_medium=RSS&at_campaign=rss) |
-| Scientists make 'superfood' that could save honeybees | [阅读全文](https://www.bbc.com/news/articles/c776kynn771o?at_medium=RSS&at_campaign=rss) |
+| 'Ice cream man' in fatal Wembley attack named | [阅读全文](https://www.bbc.com/news/articles/cx23g97vk9mo?at_medium=RSS&at_campaign=rss) |
 | Delta and United sued for selling 'window seats' without windows | [阅读全文](https://www.bbc.com/news/articles/c754k7d0z51o?at_medium=RSS&at_campaign=rss) |
 | Hurricane Erin's high waves thrash coast of North Carolina | [阅读全文](https://www.bbc.com/news/articles/ce934e9gyryo?at_medium=RSS&at_campaign=rss) |
+| Ex-priest found guilty of 17 indecent assaults | [阅读全文](https://www.bbc.com/news/articles/c20662dxl88o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,7 +31,7 @@
 | Israel Approves Settlements, a Blow to Faded Hopes for a Palestinian State - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQQUlqemZkQ19nR0pvUE5nMFA2aC1TeW4xcGVZeDJuMlhzV1J5QzdVYW5VeXR6TldhWUVDMG1IZTZOaGk5UXl2UUZzQjdkX1Nld05kNnR2Wk9vVTg3M2pUNU5OenBqTlk3QXRzeEhjSFpnZW50cXhsNFBJOEZ6R2ZhR04yRnQzakZ0TE96dGIxV1Q?oc=5) |
 | Judge blocks some Texas public schools from displaying Ten Commandments - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQTVJfNWdUbW9yMEh6Q1JXbU1WNFBJa2dYSkRlelhWbm5UdFNiVXdSN09BLVRXSEtwSGVoem9EYjdNWHlIT3EtbmIwMGFsSmNKLUZGVnBuajVRenZ2dkxuRjU0SmVoQ3FRSk1tcG1uZTQ0UFBWaktTLU50ZnZyWmQtUDBlLXJUb1JaeGJMNWpKT1J0RjNrT0E?oc=5) |
 | Frank Caprio, Rhode Island judge who drew a huge online audience with his compassion, dies at age 88 - CNN | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE9EU3RkcTZ5OXowRDdBZWNMcHJ2SDgwdGg1dllKdHRYRlpFRDdfM3piZ296VnBHYk9ZM0pDbWlHdC1jNVoycFB0OFJwRkR4WmxkbmQ2dEtnR0JEa2J6MGVfQUxPaE04RGNPVmpOQUNieVBKTGPSAXhBVV95cUxOYjJ2SjhuWmhkMXVxTG1OTU8yN1lOTGFNT1JuR0lCSDF6NUlVRG83cEpkZ3VETFh0US0wRzJzSU5tckctYXM0LVZPTmp5X1Jxd0NPaUxmeDZGdVhvMGViOThwcEZva2NIWk1ndVA5VzdvNl9sSFhha2U?oc=5) |
-| Camp Mystic Parents Demand Changes Before More Children Are Lost - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1qdDdHdjEwX25kTDNtTEVudnM4ZnpxaWp6X2NvVl9lamJyR1liYXlMOTZsNG9jNFJaUm1iNUxsRmQ1VVNENDJBa1NvZGZZZ0dSRHFDUTJCNTBYZWpzblQyWGRUaXZabVJZQWNmV0NIS0hCamh3ZTBkektlUQ?oc=5) |
+| 'My daughter was stolen from us': Texas parents who lost children in Camp Mystic flooding speak at hearing - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOSE53cmp4TnhyZjhiZGVuVUcwN3hMNGJwbDUzLUtiQURYY2F1Y3c4LU9YcE5HalNtTnRQallCSlZWSTdXRnNaS0QzbWNCMS1pR2xLdEtjRUp3d0RHTTBGR1pHLXRwbHB4X09La3pCUF9vZThYTlpnLTdhX3RIUGdwS0JQci1aZUhlczYyWjBFWnlxTmdqNmJMV1I0RkZPZlV30gGmAUFVX3lxTE9KWEpnSnMxRW1ObTZ4eVVvZjNBejQzaUVwalViVGN0NEZnV2c3TE16NERXeTZ4X0hJU241Q0VRdWs2TDFHTkxzc2pIay15dEsyMjVJemZxMXcyMko3UTdack5TTVp3SXd6NFczVGxDNlBrbXlUUGtEcXNLSVlucDlhWEpBTjNzM2YtdlBLMlpkMElRT3NMVE80MVVkZURNTy1aaC1mZVE?oc=5) |
 | Gabbard slashing intelligence office workforce and cutting budget by over $700 million - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQOXZZbldRVTNPWTJfTC16WW5INVZuYnVtZ1dOeUcwanNoa1RqS0ZyZmZLSkdzc0RNSUpZSHBST25mdDg5eUlGRjl3S1ZCOVlwdWgyWlR4SFJPVE92aUdpazdjd3NIMEt2bUR1bHI2NG9NQ1hBNmNNb3NoQXI0T1BaUkxGazhCalZVWDhIY1FMcGoyaW55MWc?oc=5) |
 
 ---
