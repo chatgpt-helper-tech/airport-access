@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 02:41:23（北京时间）**
+🕒 更新时间：**2025年08月22日 02:49:44（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Joint Statement on a United States-European Union Framework on an Agreement on Reciprocal, Fair, and Balanced Trade - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMi_wFBVV95cUxNYmFWSGtzbXNPT0ZHVEdwTWotZEJJdGFiQUlHR3FWN0tjVnpEZTBSNWVFMHdVeTEtOEZwZWd3Tl91NzMzeEh4a3N0MXZ3ZThIUHBWX3hObTBPLXAydG9qQTFRRTk0cmFITFhBbzNPRktGemtWY25EWkZscHoxUnNiQ2tkQlo0bHpaNkNhQkhUN2xmS1I0Vl93dlQxYkRuY1E4dENDSmRCUzdLMmVQVkFBQjhvSEhkUlNNT1FVbHBDVnNjMnlaU1NMVTFfUUxUOWhXbWhfZ1lfNUpvZ2gyZDEwTlZsNUVRLXkxRDdibi1jdG1jX25kUldhQVJFbDBQSTA?oc=5) |
 | Illinois to Bondi: Sanctuary status stands firm - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOVW5UNlBxQndoUzV2YnZnVHltVEp1bGN4enF6N01wbTZxVUc2aUtKZGxYYXg2bHhmVXZpUnhoNkhNS1R5dGhUZWJsNlBUdDRkSXFrYnltVjE1alZxbDZMLWV1OWVUZHh3Uk45SGJ0Z1lfeDZMeVZfUHRXdmpYNEl0WEd1akJkX1BwWWNVV3hGeGg0eVVLNEFnVjZka3hMX2JTUEoyQ0ZBdDdXSG5sVXBxcFJkb2VjX3Q4ZmpBOTl3?oc=5) |
 | Texas Rep. Nicole Collier abruptly leaves call with Newsom after being told she’s committing a felony - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQVXFWVGhkU0NRYlVhbUxrekZCeVR0MW13blRMRm1zalNvcURtall3Vi1hNURGN0NBVXEzYXJ3U25BRlFIOUFmclJ2ZThSbVNSNzJlOWlnYzVKbjAwaFBJeUtIWjhraHpvZDFlTGQteWNCWjFCVjJYb1IxQ1l1VmhWMThZT21CZjV2b29sMkNPRU9qMlJuVUI1cnZ5MTNmeWZseVRXNjNNNFR0YjBhMVRHUlp3UWNtdTlJOWdvRTE5WGVvZmp0LTRIRzhGSFdVY3J1NWc?oc=5) |
-| What to know about the Menendez brothers' case as their parole hearings begin - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQbkFOUFFPdEpoakhSanExTTA1Nko2eEQyY0Iyb2NQbkRNSHQ3TzdlTk10VHZzbVlpLXZ0WGNkN1VZWFdrV0FIUjhaSkpDREgtMXBybVkzUWE4QnVSRnJZQ3ZFN1FNdE44dUVzbUpaelhGcWlHa3RhRWlNYVBuNHJyVUJrbEI?oc=5) |
-| James Dobson, Influential Leader of the Religious Right, Dies at 89 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBwVHAtR1M2LXJ4c1FzMlRhdnlabU1HcHY2WVdDYU02T1F4Y1FHcnlKQm1Nd2pDUGR2TkdhTVJEMVpnT2J4d1dXMUd3RDRjRzQwUjVzN1hfMFEwZE4ySnVaTjdDel9DcHpuOVdRbm9vWmZSbHFJWUh1Sw?oc=5) |
-| Ice’s detention of Atlanta reporter seeks to ‘silence him’, ACLU petition says - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQakRrV0RRTDFqbTVGM1dkaktZNlh1OThpTFJMcUREUnF2bFBMMk0xSUtYZnliZkNkbkl6YzdRSFdJWmZtZ3VCeXNUb2wxVDZ2MF8tanlJUmxWQUFWRkVDSHJWRGpqd3Mtb0VYTjBrN1hKTHhxcVo1dk04V282SUxzNzhtdGluTU56YmxNQzUzZEthSVgwVkc0?oc=5) |
+| Lyle and Erik Menendez Make Their Case for Parole - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1tR3FNZUtFbmZDRFlqYXYyc04yQXVYbVZabnoyc1JWQ1pGSmFnb0Rta2ZCckFjVkprMVFpaHBjdzRGdWFIemZadWctSkdvMHg1WjFqdC1zU0xXSXpFeDNsc0hUX2VaaDZsS0V4OGswaU4tMWx2RWc?oc=5) |
+| Focus on the Family Founder James Dobson dies at 89 - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQdXYwLTRsdy04S2FDS0pRdDlzbXFfTFE3cE5lWWtuWGlMM213ZzZIX01UR21RM1pDRTdJUmFILTFMclVURVlTVWhpVHJVVjNhcmRXTkU4WVU4S2NIUFEtam9HdzQxMnVScEVkZjNvOTZqdWQ3U3o2M1ZwRUxlX1F3dkZ6bHVuRndIdWlpSlVmV2lQTktMWU1wVzVBb2Q?oc=5) |
+| 'A wake-up call': Newsom's Trump trolling is riling Republicans - SFGATE | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOd2hRNHdQX2FpUHEwZ1ctQ2FYTUcyM3VobmxFNE1QX2h6S29jYzQ3ZUptMGpqQUZDUXhPUDVKUlJBNnNkT0d0UWh0M2d4ZGRuTzVIZHRiTWRVNVM1NnJXdVh2YUlmVFcyeDBzcDRLNVotNEpGLURCckNqb09HMXI3M1RBNDFIdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
