@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月21日 16:17:28（北京时间）**
+🕒 更新时间：**2025年08月21日 16:24:38（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | Israel Approves Settlements, a Blow to Faded Hopes for a Palestinian State - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQQUlqemZkQ19nR0pvUE5nMFA2aC1TeW4xcGVZeDJuMlhzV1J5QzdVYW5VeXR6TldhWUVDMG1IZTZOaGk5UXl2UUZzQjdkX1Nld05kNnR2Wk9vVTg3M2pUNU5OenBqTlk3QXRzeEhjSFpnZW50cXhsNFBJOEZ6R2ZhR04yRnQzakZ0TE96dGIxV1Q?oc=5) |
 | Frank Caprio, Rhode Island judge who drew a huge online audience with his compassion, dies at age 88 - CNN | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE9EU3RkcTZ5OXowRDdBZWNMcHJ2SDgwdGg1dllKdHRYRlpFRDdfM3piZ296VnBHYk9ZM0pDbWlHdC1jNVoycFB0OFJwRkR4WmxkbmQ2dEtnR0JEa2J6MGVfQUxPaE04RGNPVmpOQUNieVBKTGPSAXhBVV95cUxOYjJ2SjhuWmhkMXVxTG1OTU8yN1lOTGFNT1JuR0lCSDF6NUlVRG83cEpkZ3VETFh0US0wRzJzSU5tckctYXM0LVZPTmp5X1Jxd0NPaUxmeDZGdVhvMGViOThwcEZva2NIWk1ndVA5VzdvNl9sSFhha2U?oc=5) |
 | US court blocks Texas law requiring Ten Commandments in school classrooms - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPOFdnQlZnUDFjV1J4WnFRWFBKc1ZLZDc3cEM3dVYzWmhrRV80TEl4cEphdjNNZEFtdlRoX2Q0X242bExXYjl3S1hKY05hNHZJTU9qTHFTUGNlSmEwUU5hd2swdm10WmgzdzVjamVSdnJ2Wnd0a0JBTVJvamNXaGp0cDhCd2dFY1hBeUVIM1VmdURyb2xGeHdFSmVrb1o2MHpxQmRQeFdTVEdhaGVLZ1YwNVliWXbSAboBQVVfeXFMUHpiWGhnb2IwOXo2TXhSYTBsWUZXVXBXalh4WHRXbTFDd192b2FhUllIV2RKNlRUNk5XdEpTWFQ5RElrR2s3UjRZMDR4SGlmcVZYU01KMXJuTkpNTGFtVDhQeFU3Ynhxd25FbUFzb0FUT2Fsdi1CWTBOYkxNNUQtb0tFaGtDczRaQzB3ZVJlZ1RCR3NFX1lKUzNpaGR4OGVRc2s2Wll3UDZJTFhRbldWczRtNVlWalZUZTJB?oc=5) |
-| California Supreme Court rejects GOP effort to halt Newsom’s redistricting push - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOUXh3c0VCblBhdkdpSldOOERrUDR6UGxMQS14c3RJZjZEcjc3Y2lFWXB2dVRSQS1YVkNwa0RPVldYUHNHTjFOanRaYkppT0FhWUROaFVfQ19CWnF3LWtTN1pNekpXbERRN2ItOGNBX2dtWFF0ZktZNGtJZVRaQld5YVRDNXhKOWh5aFNaanhsMXdpUHNWVGctQ25YU2FaNDFMNlhqVlMzSnFFbHM0QXMyYVRn0gG3AUFVX3lxTE1DQ21HQmtMeTFGNWxSX0hxUDVCNl9NV1NyTFJZdWtsb1dtT1ZtSkdBaEJpQVlUN2RtSXIyUy01QmFYTDN2TDNCVF9NTi1qOHY0a2RuYVBzR1A2ZEh0U3piblZwS0VfWkFVcUFMWUlzOXdsWERMWG8zemdwWTRXWGpzZ2xGVXNraXVzUUlMVUFYUEFOdUU3aXJpa1J2d2JTYjlodEZZbmNIdXFtZjhzMzZqdDdMdHpnZw?oc=5) |
+| California Supreme Court rejects GOP effort to halt Newsom’s redistricting push - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOUXh3c0VCblBhdkdpSldOOERrUDR6UGxMQS14c3RJZjZEcjc3Y2lFWXB2dVRSQS1YVkNwa0RPVldYUHNHTjFOanRaYkppT0FhWUROaFVfQ19CWnF3LWtTN1pNekpXbERRN2ItOGNBX2dtWFF0ZktZNGtJZVRaQld5YVRDNXhKOWh5aFNaanhsMXdpUHNWVGctQ25YU2FaNDFMNlhqVlMzSnFFbHM0QXMyYVRn?oc=5) |
 | Tulsi Gabbard announces plans to cut intelligence staff by half - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBSb3podkw3TnZaYW1JWlFYVjkzS1MxdGtaWnJLTnVQV0RCaDVjX0lCcUJSZTJGLTZVWjF4cENweHpRclV4UFZBS0J6TXFWRDB4Q1diRVhnaHlRd9IBX0FVX3lxTE1HVk9UcjlHV0U0QXBwYTJSVW9UWUJ3TDFUV0dMY1BKOXBqZXJUd3Z0X3NsV1RJVFdqd2xrdkNKT2NwdmY4cFgtOFRYWHBfZHV2NXJZb05DbTBxcWgzSzU4?oc=5) |
 | Camp Mystic Parents Demand Changes Before More Children Are Lost - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1qdDdHdjEwX25kTDNtTEVudnM4ZnpxaWp6X2NvVl9lamJyR1liYXlMOTZsNG9jNFJaUm1iNUxsRmQ1VVNENDJBa1NvZGZZZ0dSRHFDUTJCNTBYZWpzblQyWGRUaXZabVJZQWNmV0NIS0hCamh3ZTBkektlUQ?oc=5) |
 
