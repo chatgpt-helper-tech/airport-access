@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 00:56:25（北京时间）**
+🕒 更新时间：**2025年08月22日 01:01:17（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | U.S. and EU flesh out trade commitments under new framework deal. Here's what is in the pact. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9wV2xMbmJnNE9xRHVKVGxVS2ZVYU9SVVFWbi01VzFUNE4wWWUzUkRmaUNyMFIxakNTcTRReDhwMjIzTzVVWGY1NGU2d1I5SVFsYzRyQl9sTXhjUUFOdTczNnIwd1Z5X1JRTHhfZtIBckFVX3lxTE5ydlNpZnBrM19JVzZXWFpXYU41U3ZLSE1hQUJYT05aVWF1WFREaVJSVHhrV2RYZkhoREVIaGlGeGVJQVlhbEl4N2FPZ25uR3BQYS1WY3U1T3JzckdWZC02WFBhMm9BYVNXaUpiaU4zZVdHQQ?oc=5) |
 | A Russian airstrike hits a U.S. factory in western Ukraine - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5vbjZ5NDY2R1FxbFNmWE9GVGl2OWFhV19pM0Z6RW5aVEVSamF5UVhiX2JHc0hxR2EzMWIwTXlsZTdDd1hPSExQbWhGYWZIeHdtbWpnUkFtb2p0cHhKS19DSURCcExZamdmUGZieU8tQ21BT2tBVkE0WllXbGJTdw?oc=5) |
 | What about Texas? California Republicans pressed for answers in redistricting fight - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOVWZBamZSQmVOVVQ2cXlDNndTbXpvMGtiRjQ3MGE0MF9QLVJURnFXbDdUX3NDYnlEeWN6NFVJVU9WVTNFWjE3a0UxVVhQbTR1NTQzbzI4WnI0UGd3QkE2WEdwY252Z0FzSERTSmFOODY2aDFMQXNCWDRFQW12dWpqVUU3cGtVajFYWTJsV2FyXzNjUDJz?oc=5) |
-| The National Guard has been deployed to enforce the law before. What's different now? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5yT0ZrTEVTVEJjMUlhM3hMQUdiOGNjeHUwOGNmMjNZOU96YmxSXzdJZzhvZXJEQmQ3UXNJYWlFWUc4N2J0bjBLZFpVNk9rQVJMSm5HWTJhX3Jud3o3ZTFRVTdzajBUaVRaYUEwcFNLVkVhVWpfQ3NV?oc=5) |
+| James Dobson, Influential Leader of the Religious Right, Dies at 89 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBwVHAtR1M2LXJ4c1FzMlRhdnlabU1HcHY2WVdDYU02T1F4Y1FHcnlKQm1Nd2pDUGR2TkdhTVJEMVpnT2J4d1dXMUd3RDRjRzQwUjVzN1hfMFEwZE4ySnVaTjdDel9DcHpuOVdRbm9vWmZSbHFJWUh1Sw?oc=5) |
 | Lawmakers are debating GOP congressional maps. What does redistricting mean for Texans? - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQWk9wVkJHM3ROLV9SQzhaaUhzZDh2MlFSQkR4YUtxa1RoX21UWmt2cUNFVy1TQ3BlWnZSSlM0Y1dGNWdMRWdmNHZYSGx0bFFjanBSYUJpUXZrME5NVEtIbmhhTVg0SXZFVmpoS0FmWlpERXA2c1pkWkdnTUlmX2FlS196OXVkdFJ0S0toaEN3?oc=5) |
-| Focus on the Family Founder James Dobson dies at 89 - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQdXYwLTRsdy04S2FDS0pRdDlzbXFfTFE3cE5lWWtuWGlMM213ZzZIX01UR21RM1pDRTdJUmFILTFMclVURVlTVWhpVHJVVjNhcmRXTkU4WVU4S2NIUFEtam9HdzQxMnVScEVkZjNvOTZqdWQ3U3o2M1ZwRUxlX1F3dkZ6bHVuRndIdWlpSlVmV2lQTktMWU1wVzVBb2Q?oc=5) |
 | Menendez Brothers Parole Hearings: What to Expect and How to Follow - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE16SXhGU0ZNQWdFM3pXeDJZaG5CVTNxX0hoSTk5ZGVBLWs3QmxzejRBakRka3pPS3NZX1hvYTFXRnVvbmhTcWg1VXZsTDgwV18tcWswMFVGZ3VKZGY4SF9USllDN0hrUDY4ODI1Um5jQ3phdWR2LVZld19FSQ?oc=5) |
 | 'A wake-up call': Newsom's Trump trolling is riling Republicans - SFGATE | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOd2hRNHdQX2FpUHEwZ1ctQ2FYTUcyM3VobmxFNE1QX2h6S29jYzQ3ZUptMGpqQUZDUXhPUDVKUlJBNnNkT0d0UWh0M2d4ZGRuTzVIZHRiTWRVNVM1NnJXdVh2YUlmVFcyeDBzcDRLNVotNEpGLURCckNqb09HMXI3M1RBNDFIdw?oc=5) |
+| The potential next target of Trump’s bid to control DC: Local courts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNS1hNbXEzbWtkYnlRRklYTl9GMUNqYWJXOWZ4c3UzOXQ1V0pOX2txYXkzVWNDQjdnUnVYYkRmcXBOYjV3WkVueWxSR0Z4UlRvb2szcVU4WGlQSVR5RVlMVXZvUERCTTBLTWp0ZVY3ZjJHV0VTb2Y4WDN1VEljampQdFhsVXVLXzA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
