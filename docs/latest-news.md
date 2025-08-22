@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 11:25:48（北京时间）**
+🕒 更新时间：**2025年08月22日 11:33:27（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Israel says it will start talks to free all hostages as cabinet approves Gaza City assault | [阅读全文](https://www.bbc.com/news/articles/c754kknw2g2o?at_medium=RSS&at_campaign=rss) |
-| Five key takeaways from this year's GCSE results | [阅读全文](https://www.bbc.com/news/articles/c70x5j8z34do?at_medium=RSS&at_campaign=rss) |
-| Do asylum figures show if government's strategy is working? | [阅读全文](https://www.bbc.com/news/articles/cx2x371g2k8o?at_medium=RSS&at_campaign=rss) |
 | The race for the two miles-a-second super weapons that Putin says turn targets to dust | [阅读全文](https://www.bbc.com/news/articles/cgeqj1q8gj4o?at_medium=RSS&at_campaign=rss) |
 | Baby food firms told to cut sugar and stop promoting snacks for under-ones | [阅读全文](https://www.bbc.com/news/articles/cvgpld8p9rqo?at_medium=RSS&at_campaign=rss) |
-| UK's third-largest steelworks collapses into government control | [阅读全文](https://www.bbc.com/news/articles/cy0818y4jdlo?at_medium=RSS&at_campaign=rss) |
-| Appeals court throws out Trump's $500m civil fraud penalty | [阅读全文](https://www.bbc.com/news/articles/c5y09q1zgg8o?at_medium=RSS&at_campaign=rss) |
-| At least five dead and dozens injured in Colombia car bomb attack | [阅读全文](https://www.bbc.com/news/articles/cwypw0xvdk5o?at_medium=RSS&at_campaign=rss) |
-| Russia launches biggest wave of strikes on Ukraine for weeks | [阅读全文](https://www.bbc.com/news/articles/c62wj8yje2eo?at_medium=RSS&at_campaign=rss) |
 | Erik Menendez denied parole three decades after killing his parents | [阅读全文](https://www.bbc.com/news/articles/c3wnlldjp20o?at_medium=RSS&at_campaign=rss) |
+| Appeals court throws out Trump's $500m civil fraud penalty | [阅读全文](https://www.bbc.com/news/articles/c5y09q1zgg8o?at_medium=RSS&at_campaign=rss) |
+| Do asylum figures show if government's strategy is working? | [阅读全文](https://www.bbc.com/news/articles/cx2x371g2k8o?at_medium=RSS&at_campaign=rss) |
+| Five key takeaways from this year's GCSE results | [阅读全文](https://www.bbc.com/news/articles/c70x5j8z34do?at_medium=RSS&at_campaign=rss) |
+| UK's third-largest steelworks collapses into government control | [阅读全文](https://www.bbc.com/news/articles/cy0818y4jdlo?at_medium=RSS&at_campaign=rss) |
+| At least five dead and dozens injured in Colombia car bomb attack | [阅读全文](https://www.bbc.com/news/articles/cwypw0xvdk5o?at_medium=RSS&at_campaign=rss) |
+| Elon Musk and X reach settlement with axed Twitter workers | [阅读全文](https://www.bbc.com/news/articles/c1ejq154nqzo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -29,10 +29,10 @@
 | Trump thanks officers and National Guard troops in D.C. stop - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOaERzQkZBdkdqQjdMbG1aVnh4U2hyelhKYU1yVWp2Mld4SVQwbjhyUGk4QjhOS25tdWxXYlR6YUg1dUpheWgzWjQ1d25YTVh1ZzVNSUhsU0ltYWkwWWh0TzdBV3VfdEFJRGtPYXJMVEpyYmk5OUZNejdoV25VT2MtTDV0NA?oc=5) |
 | Supreme Court lets Trump administration cut $783 million of research funding in anti-DEI push - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNOE5kNDcwM1NUejdMMVVCSjZrLTZiYUNSV2xjeGtjQmJMc1liNm1RLUl0VkRpNXdubW54QndMZ3dPci1xSV9xZmFaLU1qMFJvRE4xQllOLXVRYm81aUtYd191YlcwdTNLRmoyRTA4Zko2NVJoZUlxTVgybUJvSmpPdi1GWE80WkZsaHVWTm0wSWE?oc=5) |
 | Appeals court throws out Trump's $500m civil fraud penalty - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE44RngzQWxqQTMyRzJGa2FBWTJmenRQZTlGbzVheFVKaVBuSnEzYURSek9rMWRWQUZKZEl6UFhrZ0p2b2dzWlUySXdjSHRiUUFDbUlwQVpLRk96QdIBX0FVX3lxTFBxSXNCREJoZzdVeDVBQ09OUE9xcXM3VGxvdzVGcERENGR0TXpqODF4TXBFTzhDTDJQMm9MZ2hiQ0dKQ3drRk9hamZfS0JlQ3FTbVN6ZlZpeEE2UmdtVWZF?oc=5) |
-| Judge says former Trump lawyer Alina Habba has been unlawfully serving as US attorney in New Jersey - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOREVOM3gzd1B2SjQ4aXhaZkUyZzk5Zi0xejAtM01rbDlmOElSY0xNSDg3eTNPYlNHc0tQTUNBN193SDlyRjVjdVEyZ3hoM2NSdVoycGRRNVFZMEVGbUtsckpBXzN4enhDVmRhOHQ4ZjZfNF9na2pSZnNKSjVMbVZ2TTJiTTdsMkFydXZJN2V6bTZOY0RpelFxbHdKZnduaEZn?oc=5) |
-| Active shooter report at Villanova was a 'cruel hoax,' university says; students describe chaotic scene - Inquirer.com | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOc2YxSmxMUFZSMHJsS0JKWWZXTlBIbk9TM3poRVNjbHRaaG9JUU93eTFuNDQzZXZhU1Vjdzhpd1JLYzY3ZmF4Q0VMQjA4RHVhWlZNR3dsS1hrR3RnTndFUnNJYS15T0I5SkNSZm1zbUQzYWVrM05rMG9UUlNVbjdWNFF3aTAzUllheUpvVzB2ZWl4enE2dm9n?oc=5) |
+| Judge rules Alina Habba serving ‘without lawful authority’ as New Jersey’s U.S. attorney - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNb0JHcU0waHdPN2tXbklSSjRJckJ0cjFsS0NDX0xIMlk5U2VGR1QyaEN5aDRUSklxY3FpMldDdVJ0Q0NqMEUwb0dWY0dtMFc0clc1M21mTUtFelZVbDl5Rmx5aGZ4TnZ3SVlvd1NkZVRnRHUyRllhN1BXTTVvX1JxX3NJMi13N1FiRkVDbFlXSjl5cHNFY2tTald5aUdCREx1anI5dU92UjUwTnh5M3BSYmRsSVpMUQ?oc=5) |
 | New visas paused for commercial truck drivers, Rubio says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE0wcFprXzBaS3Yxb0NRZmZ0ekZYV3VJcnpnak5IeWV5LVVVSTcwY1h5VmhJNFRZUVowa1FZV3pISFRIZURqN1VGd3ZERXRWMmFJZjJZa0hUSVhHaEMwVDZLcnVzNXZxSTRQZFdoZ082RGU5WTlZX2VDaDhn?oc=5) |
-| Trump administration to vet all 55 million foreigners with U.S. visas - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOUG8zTVgwSDI3YUYtbzQwRHBWR2NQTXhjT0tMSng0UEc2Yl9SWWJsTUdDXzBMazlXYkZ0T0dXdW9IMmNFNjVTaF9Rb1U2N3RMNGZGRWJQS2I1SEdMeWJiWk0xMHVBM0owT0RycG1ubWQ3REVRNzRRdEowYUVWalJNOHhKMWNvcUNOd29rV1lqU2x5TXBlb29qMDdwa2Z6dnI3M1pNS09TdkthcEU?oc=5) |
+| Active shooter report at Pa. university turns out to be fake - PennLive.com | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNa0djbzZzMEZXb3JiMTF1VmFVZDVRV3Y2NnZyWUNFa3Uyem9reFpyM0wxakRfZm9YYnBNMC01ajhVRm1ZVExqREtWWlpnMGJrM2QteW40NGozQzFPVm9ZT0pFcEUzOGIyX3BJeUtHb0xQX0d2OWk2MHVmMXF6RXBNblZwR0FwMEhGWHl4LXVQZmhZbWN6WGxmdDdtc9IBrwFBVV95cUxQd2N5aEJCazV6SDZLaFAxdV9ENEdSOTdEalRzV0diNEstMnBjMGRvNFpzUWxvR0ZVX0FUaUdDMk5QcGJ5dXZLVWdybWlrRW1qWXdTb09IRFJjbC1XMGE5bHhtMmd0aEJzRm1HNU84dkdBQXplSmVPTHpad19lUXB6UlFxRUd1dEktZGVLalRzNW10MXY1WjFFLVZrMFlQOUF3NWtfNURHNmJUZWdJN1Nn?oc=5) |
+| Trump news at a glance: 55m US visa holders in potential limbo in fresh immigration crackdown - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPSnNFRVh5YXFZRXJNUFM4ck1VcXNXeHVYMTcwQlRkX1hOSXpGYXZnLXhRTVN0dGdaWWVRZmpRdFEwREpXb3JJbnNBQlBFWXU2MzBuajdNYmltaVpGUFl4cXJRNXR3TEF5VFotUE11Szg3MmU0SFZnVjdleVJyVHZlTFg2ZkpVZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
