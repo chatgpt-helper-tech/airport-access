@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 21:56:15（北京时间）**
+🕒 更新时间：**2025年08月22日 22:00:41（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Erik Menendez denied parole after decades in prison - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQbjlHSW1obE9QNGhBT2tNeVV4T2pzQTBqZVhhRV9USnNQaGROQjFSQkI0cDhiX0lWODdOcmMzM3o0SEtrRzFWVkpmdkZDa0VGbzdUbDFNY0VaQXpkM2VNR1g0Y0NFamVmRGRVRmNzeVNOZXlRcWxXWHpKUmVUQVhiN0NZeXN3V3NENlpfTXBuZW8?oc=5) |
 | Trump administration to vet all 55 million foreigners with U.S. visas - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOUG8zTVgwSDI3YUYtbzQwRHBWR2NQTXhjT0tMSng0UEc2Yl9SWWJsTUdDXzBMazlXYkZ0T0dXdW9IMmNFNjVTaF9Rb1U2N3RMNGZGRWJQS2I1SEdMeWJiWk0xMHVBM0owT0RycG1ubWQ3REVRNzRRdEowYUVWalJNOHhKMWNvcUNOd29rV1lqU2x5TXBlb29qMDdwa2Z6dnI3M1pNS09TdkthcEU?oc=5) |
 | New visas paused for commercial truck drivers, Rubio says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE0wcFprXzBaS3Yxb0NRZmZ0ekZYV3VJcnpnak5IeWV5LVVVSTcwY1h5VmhJNFRZUVowa1FZV3pISFRIZURqN1VGd3ZERXRWMmFJZjJZa0hUSVhHaEMwVDZLcnVzNXZxSTRQZFdoZ082RGU5WTlZX2VDaDhn?oc=5) |
-| Judge rules former Trump lawyer Alina Habba was unlawfully appointed as US Attorney - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNZ0piZTZ1ck4wbGRjbGMtd0JON29CMm42V05TQ1ZLanVjQ3kyTzhSc2h6QmJLRE1TQ3d4cFNQUWotT0sxNnVUZFdlRGUyWjh6YWtIcXBIZWx5SnZNdUh2eHFTakVRYWZPWk1peGtlekQzZTdBeVFLdGstQndVX0R1d3Zzb2ZJUlJ5bVliYW5Ha3BiZWRJc2dMTHVHa1o0MDZIVTkweEdaV3VueUtXaXlubjNtWnZpcTFoT2NVZ2wwNGxvQWVVN0xRdDA5Y2RKQQ?oc=5) |
+| First wave of Epstein files is being sent to Congress, says Oversight Committee chair - NPR | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQc3Nac2pFNmVLb2E4YS1fdkd0REVhSkhIQldQaHNBc1lRSVhYeVF3WV9XRk1naTFBZ0c5RG9vSGN5UWoweklTV1RBOGVxVGV1ZVZ5Y183dVVYelV1a3l6YmMwVmF6ZmFZV0RnZjFJcTI0SG9HaWNJbUt4MHYzUWNRSVBNM1BEdlVmY0lRUU5Hekk0TGtvbDdkRUdlM0lSemFS?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
