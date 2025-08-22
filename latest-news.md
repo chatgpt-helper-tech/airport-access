@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 09:32:15（北京时间）**
+🕒 更新时间：**2025年08月22日 09:40:04（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Alina Habba's appointment as US attorney for New Jersey 'unlawful,' judge rules - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxPQTFaeUpKVW1QbVdlMlVBU25SMUZleUxiOHBlYVV2LVdOZ3poVEEzWHJuTWJmWGlVSDQ4dGVSalhGazItYjJjYTFrT0lYRzFkWlhHd19OVnBnMC1USnJLZkhGMnBXMGVETU1FNHowX0xsU21UV01RdnJBWW1PLVBubGlnZjNCREF4VHJuUGtHQWRxWE5JLXFRUjR4ejRGUVBkb21GQ3poOFRHdVJCSVBmU0tUdW1TOE1ZWmJZWGtHdll2ZXh60gFWQVVfeXFMT040VGJNcTdmNFZzSExGb215ckozQ1Q5YzN0SHdrWURiUGx4QWEyVnVLUnRBc3R6ZXM0ZERPNWc1S1lJaDctbUNtenBGZ25UVzA2WEhjR1E?oc=5) |
 | What to know about the Menendez brothers' case as their parole hearings begin - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQbkFOUFFPdEpoakhSanExTTA1Nko2eEQyY0Iyb2NQbkRNSHQ3TzdlTk10VHZzbVlpLXZ0WGNkN1VZWFdrV0FIUjhaSkpDREgtMXBybVkzUWE4QnVSRnJZQ3ZFN1FNdE44dUVzbUpaelhGcWlHa3RhRWlNYVBuNHJyVUJrbEI?oc=5) |
 | New visas paused for commercial truck drivers, Rubio says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE0wcFprXzBaS3Yxb0NRZmZ0ekZYV3VJcnpnak5IeWV5LVVVSTcwY1h5VmhJNFRZUVowa1FZV3pISFRIZURqN1VGd3ZERXRWMmFJZjJZa0hUSVhHaEMwVDZLcnVzNXZxSTRQZFdoZ082RGU5WTlZX2VDaDhn?oc=5) |
-| Trump administration is reviewing all 55 million foreigners with US visas for any violations - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPc2Q3X3RRUXlwd0dUZVJma0w4SV81TExfallVcFFIQ3MxZ3FyVTJjWDd3OE1rMlkyQk51VExoYjE3R3kzZlp0NzRueUJJYUdobTJmN0hNc2hhQ2xicFpqTWgydFBPWWxXbzczbms5dGFVRWE5VVF4MkNNdzV1RGxOejV0X1VsY1BHZVdNcQ?oc=5) |
+| Minnesota’s Democratic Party Revokes Endorsement of Mayoral Candidate - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPZDd6WlNSaGE3bWhqV3BKMGllZ0FJMlRCWlVFQ2F6c3c4UmI5WE12aVRBaUthWExqbnVOcTc0dE9nY2d2VklEM2tnbkxZSjB2Wjd5QVFiTEZNXzh6VmRwVW9WYm13aXVEYWFTWjBrSkxjV1VuOXFGSnJxSEVoZ0dwdW1xSjBCMjllWFE2TmdoZi1WTEVSVnBwNmRudC15X3Q4MDZNNEJXZlI5V3VuUmRjLQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
