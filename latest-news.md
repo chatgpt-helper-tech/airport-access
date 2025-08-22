@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 13:49:39（北京时间）**
+🕒 更新时间：**2025年08月22日 13:57:27（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | Baby food firms told to cut sugar and stop promoting snacks for under-ones | [阅读全文](https://www.bbc.com/news/articles/cvgpld8p9rqo?at_medium=RSS&at_campaign=rss) |
 | Erik Menendez denied parole three decades after killing his parents | [阅读全文](https://www.bbc.com/news/articles/c3wnlldjp20o?at_medium=RSS&at_campaign=rss) |
 | Proposed Ukraine land concessions are Putin's trap, EU's top diplomat tells BBC | [阅读全文](https://www.bbc.com/news/articles/cp8zdezm507o?at_medium=RSS&at_campaign=rss) |
-| Travellers warned of disruption ahead of bank holiday weekend | [阅读全文](https://www.bbc.com/news/articles/c1kzrxwjnryo?at_medium=RSS&at_campaign=rss) |
+| Travellers warned of bank holiday disruption | [阅读全文](https://www.bbc.com/news/articles/c1kzrxwjnryo?at_medium=RSS&at_campaign=rss) |
 | Five key takeaways from this year's GCSE results | [阅读全文](https://www.bbc.com/news/articles/c70x5j8z34do?at_medium=RSS&at_campaign=rss) |
 | US judge orders shutdown of Trump's 'Alligator Alcatraz' detention centre | [阅读全文](https://www.bbc.com/news/articles/c5y3lwze2njo?at_medium=RSS&at_campaign=rss) |
 | 4chan will refuse to pay daily online safety fines, lawyer tells BBC | [阅读全文](https://www.bbc.com/news/articles/cq68j5g2nr1o?at_medium=RSS&at_campaign=rss) |
@@ -31,8 +31,8 @@
 | Trump admin vetting 55 million U.S. visa holders for potential deportation violations - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFB4UWhwZEptOTRPbVRzMUlFdFVMejMwYTgyOE5SdWZKZUFJNjFzdUdzenM1T29uVWZQUXZ3WTlRaDF6SUZaajVvZnNGbFhsOTBoTDczNkVlbW5ZQk44T2g1bFlPQ3NUcWFBN29LalN3QmNBcWRQVGxOSG1ENjIwaUE?oc=5) |
 | U.S. halts issuing worker visas for commercial truck drivers - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOYmExcE9VMWhHQjNGODlSdXVFcVVkRk9WMFo1M3pPVHlfU2dIN3htQjZsb1d2WlZRaW9rUXl1Y3ExTzZydkpDTzRNNFhib2RPcTF0MXlhd3Jta2M5MWYwb1h6TGNwM21KWjdsUDJjaHZuYXdZUzktam1LQmx4NV83c0FNVlR1bTRrV0RuUVU3MlZBaFnSAZgBQVVfeXFMTS1vZGxsSDFvcWZRMVpVUmNHeXVvYjJKSFoxWGxLdmRySXVsaG5USHQ4TU90dTVLTEN2QUlQU2RVQVphbkRsY0xOeWRjWVduMzlLWHgwZVVMUk9GVFkteDdFeER2X2JiOFBLTGZ1eUVTOHVWY3ZFQmtiQjVaYUVVYW11bU9mSkNNbG5Na1ZzNU5nVW5IaGd4c1o?oc=5) |
 | Minnesota’s Democratic Party Revokes Endorsement of Mayoral Candidate - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPZDd6WlNSaGE3bWhqV3BKMGllZ0FJMlRCWlVFQ2F6c3c4UmI5WE12aVRBaUthWExqbnVOcTc0dE9nY2d2VklEM2tnbkxZSjB2Wjd5QVFiTEZNXzh6VmRwVW9WYm13aXVEYWFTWjBrSkxjV1VuOXFGSnJxSEVoZ0dwdW1xSjBCMjllWFE2TmdoZi1WTEVSVnBwNmRudC15X3Q4MDZNNEJXZlI5V3VuUmRjLQ?oc=5) |
-| Six dead in accident at Colorado dairy - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9ScnEtZC1lMG9Fazk5MnlNVGo2djZvU1dpWGxVdnZoVEZXelNVNnNYMUhKZEdkZEVmcXJ3NXkzYzZXbWU2Ylp5NGZIcURvTEtudEFESFdKcHdVRHhqcUJ0d3NYbUk0SjAxREJmSnR1a2IzUm11UkY2LdIBVkFVX3lxTE1qeVVmTU1yMXpaZ291WXhWUFRPVjlZamFRMDUwc0RFY1o3TjBTTEVXMlFVS3NWWFNtV3M3TnpTZ2FuR01OYVc5SkljcTJnR0hibUNOaUl3?oc=5) |
 | Judge rules former Trump lawyer Alina Habba was unlawfully appointed as US Attorney - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNZ0piZTZ1ck4wbGRjbGMtd0JON29CMm42V05TQ1ZLanVjQ3kyTzhSc2h6QmJLRE1TQ3d4cFNQUWotT0sxNnVUZFdlRGUyWjh6YWtIcXBIZWx5SnZNdUh2eHFTakVRYWZPWk1peGtlekQzZTdBeVFLdGstQndVX0R1d3Zzb2ZJUlJ5bVliYW5Ha3BiZWRJc2dMTHVHa1o0MDZIVTkweEdaV3VueUtXaXlubjNtWnZpcTFoT2NVZ2wwNGxvQWVVN0xRdDA5Y2RKQQ?oc=5) |
+| NYC mayoral hopefuls shrug off latest corruption allegations engulfing Adams team - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOek9ZU0dnUkRVdlBkcF83ZUxhWk5CcmUwblU0b3ozOTl3bWdWZWxKcEdzWS1yZ0dOSDEwV2pXbEZvY3hoTnZYc1hOaFpONHBJaVF3NXExZ2RrR0lBVVhhd09PNkdmNTdENWRpZmdjSzgwdkpOaXFha3UyMWJWMnc4R041eXNJTDR6NnIyckRVaHc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
