@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 04:40:12（北京时间）**
+🕒 更新时间：**2025年08月23日 04:49:00（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | National Guard troops on DC streets for Trump’s crackdown will start carrying guns - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPLUF1ZEQ1WnFqTGIwR1VqOTFnTkU1VS1LUlk3djgwTGU3SS1ZLWpuazBTa3A1V202S0ExdnFJNXhRRDRlRE5KNk1qWkwxZ3MycVg4M21YVk9lN3Q2OEFIMjJNdnFDTHlleTJtUVNGOTZCbWhUa0JCVHRQNkNIZzhXY3hyVnFLbG5Qck9rNnpkNmdDLTE5RjFmX1NvRmNtTmRHa1NncmZ6RERIOGJMMll3Zjl3?oc=5) |
 | California parole board denies release for Erik Menendez due to misbehavior in prison - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxNWmgxUGp2ejY5ZEQ1U3pZajVDVm9yaVpJb3VmVTJzOFBuWXBnMUR6VTVaRW1GbTBrSFBNVlFKU0wwcUFFTEZNbll1MDhYdzRMTUVnYW9mZDJOTlZ5MzdERzFOSXJrVE5HdFBDUU82eEpDVURzbjF5SmZSWHhadUxtSUQyY3NaUE14WjBsNFJGNmlMaVFpWDYwTmJGTmlhUXRxUTlNM010bV9fd3NqZlp5OFlOWmJZYWJ5d2NMclV30gHDAUFVX3lxTE91YVpFWWlZQWNRZk9WMGRaV0JmOGpMOTE1ZEZaU0ZOZHdBa0lWajJybFRkZlotOHJlQ1hJNy1QTXlyNUxQWUlDOThBZWhOU2FnUmVpVDMyOFFNblhLalFBajdTUUdqSGF6M25HUGcyQmhYTy1UNGlvWWdwN0NUVEU0Yk9Ca0s2NlZmNzRJT2ZGbF9JeE9MYV9CMnlJa1BSYUM1NGN0V3VDR3RCQWdqVUc0ay1RbzdzR2JheHh0QS1QUVljTQ?oc=5) |
 | Canada to remove many retaliatory tariffs on US, Carney says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOTUFBZmpMdWFnUDFZdU96SFFrcWhYSkJtOXlsZkxGQ0JST21JZXRGbG9uTTNXQ0d6YlVrcTFsYXFyeWVvUVVra1BzaG5VcmRxZFZNTDE5UXFOd0g2NDNlWWprZEZUek5HbGNpUFhEZWtSVFNXUWdkN0tnVy1waHBsS0hmWFhkRWdaOVJldmc3UjVvcFVZbUVPd3ZWVkx6TzRaV19CRVBfSQ?oc=5) |
+| Multiple Passengers Are Killed After Bus Crashes in Western New York - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5ZcmVqT3J6RjlOb01IRlhGLTIwQkNZTlh4TjBqM1ZjWUliWVRIU1hXX0h5c2Z1QUFsNTlTbFRteE00eVEydE1oZUxaSzlDSUJIMXdGQ0ZsaG9fT1E3aUJ3N1VrN2s3Qm5DaF9oci1TYzZzeHM2ZC1SWGhWY0I?oc=5) |
 | Hegseth fires head of Defense Intelligence Agency - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNdVMwdGx3Xy0yMTY5VUhwVzRSa0pVQmQ3X0hfWVRkSmc3Zmp1Z2dvbHgtSE9KOEJRQkVvNVRwYXhIVm9ZaGQySTFFTndzenJCeENZOFRaNFRwUHc1bUpNVWlTU3RGVXhlbVV2aU51MXZMVDVteEI1QWU2d0VORkc2bW5hSU1UTEk2dXVNMTlXSm5SWl8xeFowaUFoQmtaUFFFd2Q0b2hqQ1pHcXgw0gFWQVVfeXFMTTBfUlBYaHliZVZONTZQUUlPWExQVlFqeUpZQXlPNlUwTWs5ZngtVzlId2s1dUpadXRvVjBBaTh4UHlrSXRKZHlON3J0c3BQdm43OE4zd0E?oc=5) |
-| Democrats police their word police: Read the list - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPX3M0UFFYcF91UU5Md2Y1U3lTeE9qamdVNTFoZ3Nxak84Y3ZESi0wWGVpR09vc2t6aW9zWnZvLWpnSkwtdFRxY0FUU0p6ZV8xNDlOT1FSX3dvVmRqUkk5U0gtd0JrbEYxZTJZQW1qdEt3QnAwd0M5NVFzaDBQQ1EzVG51Uzhpdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
