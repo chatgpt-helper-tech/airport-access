@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 10:57:23（北京时间）**
+🕒 更新时间：**2025年08月22日 11:00:46（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | Supreme Court lets Trump administration cut $783 million of research funding in anti-DEI push - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNOE5kNDcwM1NUejdMMVVCSjZrLTZiYUNSV2xjeGtjQmJMc1liNm1RLUl0VkRpNXdubW54QndMZ3dPci1xSV9xZmFaLU1qMFJvRE4xQllOLXVRYm81aUtYd191YlcwdTNLRmoyRTA4Zko2NVJoZUlxTVgybUJvSmpPdi1GWE80WkZsaHVWTm0wSWE?oc=5) |
 | Appeals court throws out Trump's $500m civil fraud penalty - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE44RngzQWxqQTMyRzJGa2FBWTJmenRQZTlGbzVheFVKaVBuSnEzYURSek9rMWRWQUZKZEl6UFhrZ0p2b2dzWlUySXdjSHRiUUFDbUlwQVpLRk96QdIBX0FVX3lxTFBxSXNCREJoZzdVeDVBQ09OUE9xcXM3VGxvdzVGcERENGR0TXpqODF4TXBFTzhDTDJQMm9MZ2hiQ0dKQ3drRk9hamZfS0JlQ3FTbVN6ZlZpeEE2UmdtVWZF?oc=5) |
 | New visas paused for commercial truck drivers, Rubio says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE0wcFprXzBaS3Yxb0NRZmZ0ekZYV3VJcnpnak5IeWV5LVVVSTcwY1h5VmhJNFRZUVowa1FZV3pISFRIZURqN1VGd3ZERXRWMmFJZjJZa0hUSVhHaEMwVDZLcnVzNXZxSTRQZFdoZ082RGU5WTlZX2VDaDhn?oc=5) |
-| Report of active shooter at Villanova University a ‘cruel hoax,’ university president says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5CTkt5TGlIYTR1ckFnQ1dBcVR4M2RRdU9qRzllUm4wbFZTVHJnN19zSXY1YzVLTWQtTDZLeHY0MEFkb09zMjhxSnAtZ0dxV2JxVUJ3a0tfaDk0aWlaUjY1SjJUVkV4TkVXaFNZeHl6dULSAXZBVV95cUxNYm9FTnNfR3NWbUlUTThVMXltd1NjOEZ6bXJaRmNQYWExZm1jYWlOM3loTkRqWWZkbWV1TW5ockJ1RmVVM2tHZUxObmgybkp5Si0tTHZpTVh0dXdnckRiNlV5RV94SXlCODJhbmdYVGNyWE01MEFB?oc=5) |
+| Active shooter report at Villanova was a 'cruel hoax,' university says; no injuries reported - Inquirer.com | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOc2YxSmxMUFZSMHJsS0JKWWZXTlBIbk9TM3poRVNjbHRaaG9JUU93eTFuNDQzZXZhU1Vjdzhpd1JLYzY3ZmF4Q0VMQjA4RHVhWlZNR3dsS1hrR3RnTndFUnNJYS15T0I5SkNSZm1zbUQzYWVrM05rMG9UUlNVbjdWNFF3aTAzUllheUpvVzB2ZWl4enE2dm9n?oc=5) |
 | Judge says former Trump lawyer Alina Habba has been unlawfully serving as US attorney in New Jersey - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOREVOM3gzd1B2SjQ4aXhaZkUyZzk5Zi0xejAtM01rbDlmOElSY0xNSDg3eTNPYlNHc0tQTUNBN193SDlyRjVjdVEyZ3hoM2NSdVoycGRRNVFZMEVGbUtsckpBXzN4enhDVmRhOHQ4ZjZfNF9na2pSZnNKSjVMbVZ2TTJiTTdsMkFydXZJN2V6bTZOY0RpelFxbHdKZnduaEZn?oc=5) |
 | Trump administration to vet all 55 million foreigners with U.S. visas - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOUG8zTVgwSDI3YUYtbzQwRHBWR2NQTXhjT0tMSng0UEc2Yl9SWWJsTUdDXzBMazlXYkZ0T0dXdW9IMmNFNjVTaF9Rb1U2N3RMNGZGRWJQS2I1SEdMeWJiWk0xMHVBM0owT0RycG1ubWQ3REVRNzRRdEowYUVWalJNOHhKMWNvcUNOd29rV1lqU2x5TXBlb29qMDdwa2Z6dnI3M1pNS09TdkthcEU?oc=5) |
 
