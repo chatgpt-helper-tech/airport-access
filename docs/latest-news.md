@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 08:24:45（北京时间）**
+🕒 更新时间：**2025年08月22日 08:33:39（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Alina Habba's appointment as US attorney for New Jersey 'unlawful,' judge rules - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxPQTFaeUpKVW1QbVdlMlVBU25SMUZleUxiOHBlYVV2LVdOZ3poVEEzWHJuTWJmWGlVSDQ4dGVSalhGazItYjJjYTFrT0lYRzFkWlhHd19OVnBnMC1USnJLZkhGMnBXMGVETU1FNHowX0xsU21UV01RdnJBWW1PLVBubGlnZjNCREF4VHJuUGtHQWRxWE5JLXFRUjR4ejRGUVBkb21GQ3poOFRHdVJCSVBmU0tUdW1TOE1ZWmJZWGtHdll2ZXh60gFWQVVfeXFMT040VGJNcTdmNFZzSExGb215ckozQ1Q5YzN0SHdrWURiUGx4QWEyVnVLUnRBc3R6ZXM0ZERPNWc1S1lJaDctbUNtenBGZ25UVzA2WEhjR1E?oc=5) |
 | Trump administration says it’s reviewing all 55 million US visa holders - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPTjFpSDQ3SUNwekEzTHg1VXNkcE1ObEd5MkNvRFNuNFA4Qzdjc3I2YUFaVUR1Y2JVcVhfU1pqX2ZaT2d4c0ZCcDROUDRJYVVCWkt0bHd1R1hkcnZxYXJEMmt6WTRLT2U4RWR5S3hXZEI3Mjk3VDBIcGRJVVdwUGZwZkk0SXBjbGNjSmxFZ1ZSTzkyN1I0a3NYWFpNT2RRbzdUeDgtM1VVZWdGMUN5TnZoONIBtgFBVV95cUxPLWM0ckwwS2NLcndmN0s3QlllTjlVblAwczdic1JDd1NZSXI4Nk5hSXZuUUVEd0c5VkExQmRXUVFzWFBwZ28tamtDMW5QaTlva3o0RHVXOHBFSlhHTmZUNDdUZkFsSm1FdlR4eWtpY01MYlBuV1ctV3ZhLUtEdTE5Y054R3d3TVd1VXp5aC1FN1o2UG5zeWh0c3AtX05rb0labThDOEN1Zy1VdEFuRjVlTlhxUURGQQ?oc=5) |
 | What to know about the Menendez brothers' case as their parole hearings begin - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQbkFOUFFPdEpoakhSanExTTA1Nko2eEQyY0Iyb2NQbkRNSHQ3TzdlTk10VHZzbVlpLXZ0WGNkN1VZWFdrV0FIUjhaSkpDREgtMXBybVkzUWE4QnVSRnJZQ3ZFN1FNdE44dUVzbUpaelhGcWlHa3RhRWlNYVBuNHJyVUJrbEI?oc=5) |
-| Doggett won’t seek reelection to Congress if new district is upheld by courts, paving way for Casar - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOd1ViSjBkaWJNM3BXbVRIcnlaeWcyZWUydEwzNDFtY3A5RXVhRS1jR0hSQjhoRUxnVjlab2VFUlhwa1J4MmJyaGJQT3ZBMVA0aG5rbkUxU3NrT3ZPRmkzVFpZcl9JRVNpUjZUNEdmYnRSbXJPNEJmLTV1bkpZRjZPekJlTko0OUFOWUVISFp2VWdnYlZCNVMzYllZU05EVjlPdXNyYQ?oc=5) |
+| Photos show Outer Banks homes appearing near collapse in Hurricane Erin's high waves - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPYlFyZGVJQ25ua1FjdXp4WUQ5MWN3MDU3ZXVKdTRjMEZlWVZzOTZEMFpvMGNBamw1SzBETm9qOXJFRXg2UFA4YnR5dkNMYS1TeUVuQkEtMHNycEVKSS1TOWQ0S29zM2lJUVg1TmVtQUU0UlNVbDFqU3lQckg1S3BrNXBuQ0tBRmNobUpYbTUtT1FFZjdlMExR0gGcAUFVX3lxTE1Ca1ZEd1k0a0RURXpubndDT1BKWW5IS3hMcFVvM2Vqb3ptTDZSTUVTUlBCcDd4VnZJSUE5bWJ2Nmsxa05xMXdsM1pQT1FJQWpOdWhIU1pQNThTVFk4TE5BcUhlMl9IRU9sYjBjMUpyaERENG5DblhYSDNCc2FmbmZuMGJZWnlTbDZQNV9SUkNHUGJ0X3dDSWhCOTBIMQ?oc=5) |
 | Vance touts tax cuts, Trump's domestic agenda in Georgia - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxORTFhWDlTX1NxcWgxZFhkdjJtajlIRjNyUzAwd3B5ZTVfZkFNdWFzMFliOFotNGJYbUZ4c1dSM01wMDR5YndrZzNQeENJbTZyWWoxTGVWeHZXTUJDTUZvaG9QT1otc2ZvZnpwREt1akVPTjlNdk1QSXItZmpQTFdZRW1FMWYyOTZi?oc=5) |
-| Journalist detained by ICE sues Noem, Bondi for his release - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNclB4WVY4WWpjbUM4NUhGZDZsanpzOFhoeS03cnFqRUx5MGJUdm1rby0tSmx5SUg2dFdfekRYQkc5Vm5RMGFoTTFpR1Y4M2tQUlZHNHY3NkZOWE92N0pIT002M2I5STBmOUxXUE9wUEV3c3hTbzZMdDFtRFR5aXozdTA1Nk5ud25V?oc=5) |
+| Doggett won’t seek reelection to Congress if new district is upheld by courts, paving way for Casar - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOd1ViSjBkaWJNM3BXbVRIcnlaeWcyZWUydEwzNDFtY3A5RXVhRS1jR0hSQjhoRUxnVjlab2VFUlhwa1J4MmJyaGJQT3ZBMVA0aG5rbkUxU3NrT3ZPRmkzVFpZcl9JRVNpUjZUNEdmYnRSbXJPNEJmLTV1bkpZRjZPekJlTko0OUFOWUVISFp2VWdnYlZCNVMzYllZU05EVjlPdXNyYQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
