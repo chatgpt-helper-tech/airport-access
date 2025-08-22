@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 15:08:10（北京时间）**
+🕒 更新时间：**2025年08月22日 15:17:04（北京时间）**
 
 ---
 
@@ -8,15 +8,15 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Israel says it will start talks to free all hostages as cabinet approves Gaza City assault | [阅读全文](https://www.bbc.com/news/articles/c754kknw2g2o?at_medium=RSS&at_campaign=rss) |
+| Gaza City will be razed if Hamas does not agree our terms, Israel minister says | [阅读全文](https://www.bbc.com/news/articles/c754kknw2g2o?at_medium=RSS&at_campaign=rss) |
+| Proposed Ukraine land concessions are Putin's trap, EU's top diplomat tells BBC | [阅读全文](https://www.bbc.com/news/articles/cp8zdezm507o?at_medium=RSS&at_campaign=rss) |
 | The race for the two miles-a-second super weapons that Putin says turn targets to dust | [阅读全文](https://www.bbc.com/news/articles/cgeqj1q8gj4o?at_medium=RSS&at_campaign=rss) |
 | Baby food firms told to cut sugar and stop promoting snacks for under-ones | [阅读全文](https://www.bbc.com/news/articles/cvgpld8p9rqo?at_medium=RSS&at_campaign=rss) |
 | Erik Menendez denied parole three decades after killing his parents | [阅读全文](https://www.bbc.com/news/articles/c3wnlldjp20o?at_medium=RSS&at_campaign=rss) |
 | Crackdown planned on people wrongly claiming child benefit abroad | [阅读全文](https://www.bbc.com/news/articles/cr5r1zpl39jo?at_medium=RSS&at_campaign=rss) |
-| Proposed Ukraine land concessions are Putin's trap, EU's top diplomat tells BBC | [阅读全文](https://www.bbc.com/news/articles/cp8zdezm507o?at_medium=RSS&at_campaign=rss) |
 | Ticket sales triple as Women's Rugby World Cup 2025 aims to change game | [阅读全文](https://www.bbc.com/sport/rugby-union/articles/cx2983p0vqzo?at_medium=RSS&at_campaign=rss) |
 | Travellers warned of bank holiday disruption | [阅读全文](https://www.bbc.com/news/articles/c1kzrxwjnryo?at_medium=RSS&at_campaign=rss) |
-| US judge orders shutdown of Trump's 'Alligator Alcatraz' detention centre | [阅读全文](https://www.bbc.com/news/articles/c5y3lwze2njo?at_medium=RSS&at_campaign=rss) |
+| Record numbers of GCSE results were resits - are we in a 'resit crisis'? | [阅读全文](https://www.bbc.com/news/articles/cpdj5y98302o?at_medium=RSS&at_campaign=rss) |
 | 4chan will refuse to pay daily online safety fines, lawyer tells BBC | [阅读全文](https://www.bbc.com/news/articles/cq68j5g2nr1o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -30,9 +30,9 @@
 | Supreme Court Lets US Cut Millions of Dollars in NIH Grants - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPVk10M2VwRU9SaHMtNVNXZ2lfd19yZGpCYTRBSnYyRkpYLU5JS1FhSFFQNEhLalpCdGRTNkw5Z0FtQWNiTDlLQ0FpaVhaWU8wOGhlcmEwVVp1WjZxc2NKbW5nSlI2djlYUWszSmZzanBUanpUbXJ6MFN4eUR5ODBUdU50M3kxczlXWjdRdjRMWnBsa2JzNHBhUU5yX1BlUEJ5ZUVvX20yYi1lSjl5UUhCZ2NORQ?oc=5) |
 | Trump administration says it’s reviewing all 55 million US visa holders - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPTjFpSDQ3SUNwekEzTHg1VXNkcE1ObEd5MkNvRFNuNFA4Qzdjc3I2YUFaVUR1Y2JVcVhfU1pqX2ZaT2d4c0ZCcDROUDRJYVVCWkt0bHd1R1hkcnZxYXJEMmt6WTRLT2U4RWR5S3hXZEI3Mjk3VDBIcGRJVVdwUGZwZkk0SXBjbGNjSmxFZ1ZSTzkyN1I0a3NYWFpNT2RRbzdUeDgtM1VVZWdGMUN5TnZoONIBtgFBVV95cUxPLWM0ckwwS2NLcndmN0s3QlllTjlVblAwczdic1JDd1NZSXI4Nk5hSXZuUUVEd0c5VkExQmRXUVFzWFBwZ28tamtDMW5QaTlva3o0RHVXOHBFSlhHTmZUNDdUZkFsSm1FdlR4eWtpY01MYlBuV1ctV3ZhLUtEdTE5Y054R3d3TVd1VXp5aC1FN1o2UG5zeWh0c3AtX05rb0labThDOEN1Zy1VdEFuRjVlTlhxUURGQQ?oc=5) |
 | State Department halts employment visas for truck drivers - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOQW5NeklMRzFQVWZCR0gtOVlzM0VRdndLOW1kMWpCeUROLXBYeEhCRnRhd0FUWEZ6S1FCNzI0WnZfdTBQcFRCR2R0QS1XQ1NFRzE3S0hwdWZvc19vUDJuNlJIX1hJZ0s2aEdRSnRTdjBlRUgycExXbExhaUowaDIwRjNLcUhMa21ac0xocjJlNUZNRG9HOWwtaHFKSDVSUQ?oc=5) |
-| Colorado 'dairy accident': 6 bodies recovered from dairy in Weld County, authorities suspect accident involving gas exposure - ABC7 Chicago | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxQTjdSZjVUMzdLVC1vUnpPdVc2cEtMMFUwTjBiU0NVd19oRUVlcGtrSlZCRVNyVTh6ZVprd2VQSkRrSEkzWktmU25hdHFOQTFRWm9HRkNYSFlCbEdDby1ydjhCX0dwT0V6RUdwVlEzbXVsdkVnM3JOZnAyemtjbFB2dTlLRzV1UVJxbnc5cUlzQnZHSGQ2bDJlR3l5TEJUa0lsV2pNUUxYWWQxb0lub1FUdWxXUXFXOXl1dTR5MtIBwgFBVV95cUxPc0dQNHJ6MEhDdlhlSWd6bUxWN21xQmpEYW4tOGpuRm5yMlh3U0JZdElJYjk0a1dZRkVwRzZ3UEViMG95aTR4ZU4teW5yRks2TUhCTk9Yd09RZXI4QUNwN1FXNjlQRklId2dUSFdNUmI2RnVocGc5bnoyVkVveHRVNWNIR041Tzg0T2dFZG1YbVI3SzJ4c1RpbzFLYldsY2V6V0htTHVkbDB0bktXU1BOTWVOcEVDWVhiTDhKS1BoZEZQUQ?oc=5) |
+| 6 people are found dead at a Colorado dairy. Authorities suspect an accident involving gas exposure - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPQklhN3BCOWQzTUZXeEI2RVBQa0tWOVBUZ3JwWEtCNHhzWDI5VjlPSFBjai1Gc0o3QW1tT3NKT2lxZWhvWGNvVGhmQ19MQkkyZ1hLb01YRnp5UFY0Ri1iWFVsa0RRMmJ1NkF1OGdMNHg4VXFqOU44Mlh0bE9HdTdOWk8waWpNN2o1?oc=5) |
 | Judge rules former Trump lawyer Alina Habba is unlawfully serving as U.S. attorney in New Jersey - PBS | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPcWJ2LUUtQVBZR0lucXNKRm9GSlRoM3BPYlJGcGVMZXV1Rl85SGxtbmpWM2Rva01fQm91QWJkVERRS2N6QXVhRlRFTGt2dFZHZ0VkSXM4VklCQjZLbXlBWkxtSmg4WXJhVGNvNG9VSXlmUm0zdkdXS0t4LVkwSjNiZXZSYlVaZHhoSDhoc0dRQ2ltMURHbnBHQ1B3QlZGUEZGUlVNdFVvZFJTSmc5YnhsOUVjWDR6WjZLalFqNDd5QWdUYl9PSUFnQWRURzFGd9IB0wFBVV95cUxNb3FRalo1Yjl0bmUyY3h0ejNUSFRZc3BRX2h6bUJZQnYyVDBuUkttOFhSa2lhcDhJNFd0Wm1RLVRoX18yd3M5aWY0T2VJZTJ2TXBEN3p0NHFhc3NrLUZRX0tlelRBOGhtTWFWeDZvZ3dUajdBQ1ZIZU9MRm9aYVU3OXhnRDlKcFBZMlVNXzJadFhsOGc4eVA1UENLS0tVRDF2dFBPQU1WNElVV1FobWtBcHlya2wxX1A1NWNNaFBtd21sa1hONXF2TGFmd2VtT1hPQ3BJ?oc=5) |
-| Minnesota DFL revokes endorsement of Minneapolis mayoral candidate Omar Fateh - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNTWgzYTZuck9HZDc5S09VUWYwLURETkN1Uzd2SHdhZHVQME5KWEZGVC1paGpMYS1tUEtHUXllNldvaUt3VEtSZ0Vab0FjME9DdGJ0eXF1VDhPS012Sk9iTVRZV1p4UHlKTi0tTlNmREc2ZjE1blFjeGs4bmVRVUx1aXFOR3hpN2Fab210Z1V5NWZBYVFkSmd3Nk5qQzRFMmlLb2pJUmpBOVhzNE9XQm9ERzVZcw?oc=5) |
+| Minnesota’s Democratic Party Revokes Endorsement of Mayoral Candidate - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPZDd6WlNSaGE3bWhqV3BKMGllZ0FJMlRCWlVFQ2F6c3c4UmI5WE12aVRBaUthWExqbnVOcTc0dE9nY2d2VklEM2tnbkxZSjB2Wjd5QVFiTEZNXzh6VmRwVW9WYm13aXVEYWFTWjBrSkxjV1VuOXFGSnJxSEVoZ0dwdW1xSjBCMjllWFE2TmdoZi1WTEVSVnBwNmRudC15X3Q4MDZNNEJXZlI5V3VuUmRjLQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
