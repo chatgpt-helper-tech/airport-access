@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 12:41:20（北京时间）**
+🕒 更新时间：**2025年08月22日 12:48:31（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | New visas paused for commercial truck drivers, Rubio says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE0wcFprXzBaS3Yxb0NRZmZ0ekZYV3VJcnpnak5IeWV5LVVVSTcwY1h5VmhJNFRZUVowa1FZV3pISFRIZURqN1VGd3ZERXRWMmFJZjJZa0hUSVhHaEMwVDZLcnVzNXZxSTRQZFdoZ082RGU5WTlZX2VDaDhn?oc=5) |
 | Minnesota DFL revokes endorsement of Minneapolis mayoral candidate Omar Fateh - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNTWgzYTZuck9HZDc5S09VUWYwLURETkN1Uzd2SHdhZHVQME5KWEZGVC1paGpMYS1tUEtHUXllNldvaUt3VEtSZ0Vab0FjME9DdGJ0eXF1VDhPS012Sk9iTVRZV1p4UHlKTi0tTlNmREc2ZjE1blFjeGs4bmVRVUx1aXFOR3hpN2Fab210Z1V5NWZBYVFkSmd3Nk5qQzRFMmlLb2pJUmpBOVhzNE9XQm9ERzVZcw?oc=5) |
 | Judge rules former Trump lawyer Alina Habba was unlawfully appointed as US Attorney - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNZ0piZTZ1ck4wbGRjbGMtd0JON29CMm42V05TQ1ZLanVjQ3kyTzhSc2h6QmJLRE1TQ3d4cFNQUWotT0sxNnVUZFdlRGUyWjh6YWtIcXBIZWx5SnZNdUh2eHFTakVRYWZPWk1peGtlekQzZTdBeVFLdGstQndVX0R1d3Zzb2ZJUlJ5bVliYW5Ha3BiZWRJc2dMTHVHa1o0MDZIVTkweEdaV3VueUtXaXlubjNtWnZpcTFoT2NVZ2wwNGxvQWVVN0xRdDA5Y2RKQQ?oc=5) |
-| Six dead in accident at Colorado dairy - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9ScnEtZC1lMG9Fazk5MnlNVGo2djZvU1dpWGxVdnZoVEZXelNVNnNYMUhKZEdkZEVmcXJ3NXkzYzZXbWU2Ylp5NGZIcURvTEtudEFESFdKcHdVRHhqcUJ0d3NYbUk0SjAxREJmSnR1a2IzUm11UkY2LdIBVkFVX3lxTE1qeVVmTU1yMXpaZ291WXhWUFRPVjlZamFRMDUwc0RFY1o3TjBTTEVXMlFVS3NWWFNtV3M3TnpTZ2FuR01OYVc5SkljcTJnR0hibUNOaUl3?oc=5) |
+| Mayor Adams' former top adviser accused of 'wide-ranging' bribery schemes - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPM1V0YjFxazZHY2xSNjlYd1R0RklsMFRrVHNBSWFDdWtLc3pCVkVaT2t6YXBycnB0Rl9KVDVPTEl5Zld5VW1jb24tcTRiMU1wN1FxNDY5R1A0Y0JEelpISTVocktzaWlKSVEzM2duVmhCZExIZTBHMnUzV3FlN3dleDZqbWh5ejZ6M24ycDZGMkJXNUtsZzk0UXFibTltUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
