@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 02:57:47（北京时间）**
+🕒 更新时间：**2025年08月23日 03:00:34（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | California parole board denies release for Erik Menendez due to misbehavior in prison - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxNWmgxUGp2ejY5ZEQ1U3pZajVDVm9yaVpJb3VmVTJzOFBuWXBnMUR6VTVaRW1GbTBrSFBNVlFKU0wwcUFFTEZNbll1MDhYdzRMTUVnYW9mZDJOTlZ5MzdERzFOSXJrVE5HdFBDUU82eEpDVURzbjF5SmZSWHhadUxtSUQyY3NaUE14WjBsNFJGNmlMaVFpWDYwTmJGTmlhUXRxUTlNM010bV9fd3NqZlp5OFlOWmJZYWJ5d2NMclV30gHDAUFVX3lxTE91YVpFWWlZQWNRZk9WMGRaV0JmOGpMOTE1ZEZaU0ZOZHdBa0lWajJybFRkZlotOHJlQ1hJNy1QTXlyNUxQWUlDOThBZWhOU2FnUmVpVDMyOFFNblhLalFBajdTUUdqSGF6M25HUGcyQmhYTy1UNGlvWWdwN0NUVEU0Yk9Ca0s2NlZmNzRJT2ZGbF9JeE9MYV9CMnlJa1BSYUM1NGN0V3VDR3RCQWdqVUc0ay1RbzdzR2JheHh0QS1QUVljTQ?oc=5) |
 | Canada to remove many retaliatory tariffs on US goods, says Carney - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQTXVVMGdvZzFlVEtrRUZZMmZSS3cyS0xvUF9WMzdtSXZPd3ZxU3hBd3FIQ3ViUExsaWV5OXZQRF8xTW5tdjNLLTJQWU5IYUwzUi1DMnJXc0dhYjg0LXR0QlNNODBBZkZJZlJiby1zMldPUkN0ZTlQdkl4U0VZUjVfNEhtV2hzSTZLN3NNMTAzUWFHeWtBNUgzZjNVWE5XcEYxNE5xVEdlejFnbEFxQ1VZ?oc=5) |
 | The ‘woke’ words Democrats should cut from their vocabulary - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQb1RoejVRN3NGMm9vUGgyVU5laXQxVHpseVlMc0dmN1BTRnlwNDJhNHVUT0hWUVdiaS1rTXAxeXF4RlduVGdXQklVZGViaUI2WWxKWXRLVlFaYTRNY3ZFVEk4WU44YnRIblc1RU5SbUFYOXVXbGFRMkRlanpScDNzY2dqY0RNdFBJRnBJ?oc=5) |
-| Famine confirmed in Gaza City is 'failure of humanity', UN chief says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBhbEtwSmpVTm5xVHlOZkpQa1RhWGw3d2o2NGozUnBwWm9QLUNKbW41SGRaZVZiSHM5azZXNGt3bXAtVmhVbXBzdDZZSHpValFNMkwwZkpwTFNPd9IBX0FVX3lxTFBQcG9RcWQzeEt3ZVlNMVpIRlpNbGw4VDk1SlUtbGFINF84QURVN3dUdjI0bTY3NW9fRURnRmRvaUYyTm1iQlZDaGxSNi1rX1ZGVmVzejdPNU80WE9oZ3pJ?oc=5) |
+| Tour bus rolls over after crash on upstate New York highway in "serious mass casualty" accident - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPYkExcFpfZUp2LWozNWtaT1FTYlQ4eXhJcE1xTmNCUGlfYXllRWsyQ2pmRnpIVGc5c2xiUGFaMFhwWHFhMXVuLUY1S3BXeklBcG8yZW5QVl9VaHpDeThZT0pmVEpIR1ktdWxzeDk5QjJaVkp5cHB3ZFUzS3JDUTBlc0Eyc9IBiAFBVV95cUxPR3huNlZ0cVFoenVoUHhDa2lKNTJqWU52U2VjLXJrNTMxU3hXclVONUhMem9IWVlLb3lsTGtCYTBxMFFPZmJma1p3NFU2OUtsVlFzX2gxZ2Z6UHU4c1ZkRnh6QXNlSUFlaHdTUzhyQWpoelI1ZzlLcmxtbGhCamFMYWYzeGF6a0wx?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
