@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 07:33:27（北京时间）**
+🕒 更新时间：**2025年08月23日 07:41:25（北京时间）**
 
 ---
 
@@ -28,9 +28,9 @@
 | Wrongly deported migrant Abrego released, but he may be detained again - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQMVJHa3FBRm1SWGVZd09BYmd6Sm05eWZEaDFWb2VPN3p6NHBNWHlWOUNsMkFCQTVFbl9pX1AwaGVTQ19lLVhYTm9GUVEtWXRvbmluTGtzMnJFRVdUaFRfUWpLaHdDbDRxRU0zOTBKcnpXejZvc0pMeGJ1RWhMMzA3eHhGaG5PSVhibXYxdDFJalNOdDZYMG9lQXBzV3JOV05jUUlQWm1OTXRVTl9MMUY4?oc=5) |
 | Hegseth fires head of Defense Intelligence Agency - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNdVMwdGx3Xy0yMTY5VUhwVzRSa0pVQmQ3X0hfWVRkSmc3Zmp1Z2dvbHgtSE9KOEJRQkVvNVRwYXhIVm9ZaGQySTFFTndzenJCeENZOFRaNFRwUHc1bUpNVWlTU3RGVXhlbVV2aU51MXZMVDVteEI1QWU2d0VORkc2bW5hSU1UTEk2dXVNMTlXSm5SWl8xeFowaUFoQmtaUFFFd2Q0b2hqQ1pHcXgw0gFWQVVfeXFMTTBfUlBYaHliZVZONTZQUUlPWExQVlFqeUpZQXlPNlUwTWs5ZngtVzlId2s1dUpadXRvVjBBaTh4UHlrSXRKZHlON3J0c3BQdm43OE4zd0E?oc=5) |
 | Parents of missing baby Emmanuel Haro faked kidnapping, now accused of murder, officials say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOTGFYdkNzYjdfZmYzQzFQakp4R21VUG9QZG9zbDkwbkJoZjRDN29LMjhjQmF1QTBrWnlHZlV1VHluWVR2bEo5R2hqSjZSSUtoWmd1S2s4aGtSYzhrTkRQRzBPRkhoS0dkQ3VCbzJOQmwtZ0liTTVmVTFxRW1mSUl1ZTlPYjJSMURMcGo0eVhuQnEzS3c4WTN1THdTeXh5OUZ2cnlrbkVMSlZGNW5uRThla0NDR2t6UGVILVBzWHdR?oc=5) |
-| What Erik Menendez said in his hearing before being denied parole - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQUEI3SmJzY3pfREU3NTRtUjFsSDVncmdDR0g2bkl1UmdWeUlYN0JCbnRCV2NVYWFQbGVyZElmYmRVdUJNdEptZjAzU3FpaGdLbTJyZy1lYU5ZUk5ZaDRETUFvWE55dWU5ZXh1ZUtYRDgwZERlTGF2amtMMmVidXBodGQ1Q0EyM3BpbU93LVNUeXFZN0ZTWFRrMzRlYWZSVjFhVXVj0gGoAUFVX3lxTE1KbnBMZEQ2Qmhnd2h3a01ZS0UtQ1FFYm43ZjVNZWRncGhZNmstaG1ZTzF0NGE0TGZaZG9CQVg3dGVMek4tXzMwYmNqdzNsMzRtNkZ1NlZFSlV6QmlfMVlDaDBDb0FDMVZ3Mm1xMG5EMm1pLXZfUlBCd1dFdjdkQWo3ODA1dlVld2d4YkhnZGptb0ZvY1ZkUmViSVUzdUZjcTExcjFZa1paeA?oc=5) |
+| NY bus crash live updates: multiple dead and passengers trapped - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFAtbXRjN3NJY0pScUpaNGE5d1NJR3YzcXNBYW1uVjZxc2hiYk9Nc05yYUg1OEx2dVFwLXZaaUI0M3JGbVd5T09KeWxYdm90RVVYTDc5eQ?oc=5) |
+| Menendez family stunned after Erik denied parole; Lyle’s fate still uncertain - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxObHV5bTJwQ3JnQVpWUzB2bnF2d0xWLWVTczdXN0J0NVJETEI5OEtkM19PUVM5YmV1Wk1rb2FRajFIazAyaElmcHpKd3RwRmR2bTRHdWNFZkszXzVPcFRZVmdPalhwcGpraTNNT1VXazY0VFlvckZiazFTdW5zMGpGX2JjMzhKZFc4ZnhsUk1KTE1pckU?oc=5) |
 | Trump will appoint personnel chief Sergio Gor as ambassador to India - Politico | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9aYWM5YTZ5ZXd1RTlQaHdPeC16U2hDSkhUWDUxZWlGTmNONFR6MlVRMWJwbHFQQkZvOWpJdEUxdWxoZVdtWTZSTmlOM0VhMkFDVEFZb04zdTFpbDZVcXZzZ3FPbG8wYUJjSmUwVWttZzhueFkzQkkzZXFiNmg?oc=5) |
-| New York tour bus crash on interstate highway leaves multiple people dead and others injured - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNX1lEaE01U0hMRUl0dGYxcTl4MHFvNGRPcnNkV1V3OGlQOWhHam43NnR0emcxTW80bDQ4LWxaSkNCQjVKbUFxWl9tanNZUWJraURjWlQ5YzRvTkRCUEdOTFE1RnpsMHdqeFRZUVNuSVlaQTRUM2VOdXRQQlZWZzV4QXJxZ2VyMFQ2YnNJ?oc=5) |
 | Howard University President to Step Down This Month - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOLWVScDVmWmRhVm9QaUYzamlvOXRoSmtsdm5zYzFxb2phOElyblc2dU1xcVQ5TV84Ul8zV2c2VkM2cmVma0tiMjN0TTFIVkFuMGMtTGJQb2RhYlY0cDZrSTRfQXl5aURKWlBSbHpUWmYtclhEeWFPVUphSXRfVnZ4QjBQWWltNkF2U3c?oc=5) |
 | Canada to remove many retaliatory tariffs on US, Carney says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOTUFBZmpMdWFnUDFZdU96SFFrcWhYSkJtOXlsZkxGQ0JST21JZXRGbG9uTTNXQ0d6YlVrcTFsYXFyeWVvUVVra1BzaG5VcmRxZFZNTDE5UXFOd0g2NDNlWWprZEZUek5HbGNpUFhEZWtSVFNXUWdkN0tnVy1waHBsS0hmWFhkRWdaOVJldmc3UjVvcFVZbUVPd3ZWVkx6TzRaV19CRVBfSQ?oc=5) |
 
