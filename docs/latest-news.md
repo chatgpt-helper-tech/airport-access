@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 15:48:07（北京时间）**
+🕒 更新时间：**2025年08月22日 15:57:00（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Supreme Court Lets US Cut Millions of Dollars in NIH Grants - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPVk10M2VwRU9SaHMtNVNXZ2lfd19yZGpCYTRBSnYyRkpYLU5JS1FhSFFQNEhLalpCdGRTNkw5Z0FtQWNiTDlLQ0FpaVhaWU8wOGhlcmEwVVp1WjZxc2NKbW5nSlI2djlYUWszSmZzanBUanpUbXJ6MFN4eUR5ODBUdU50M3kxczlXWjdRdjRMWnBsa2JzNHBhUU5yX1BlUEJ5ZUVvX20yYi1lSjl5UUhCZ2NORQ?oc=5) |
 | U.S. halts issuing worker visas for commercial truck drivers - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOYmExcE9VMWhHQjNGODlSdXVFcVVkRk9WMFo1M3pPVHlfU2dIN3htQjZsb1d2WlZRaW9rUXl1Y3ExTzZydkpDTzRNNFhib2RPcTF0MXlhd3Jta2M5MWYwb1h6TGNwM21KWjdsUDJjaHZuYXdZUzktam1LQmx4NV83c0FNVlR1bTRrV0RuUVU3MlZBaFnSAZgBQVVfeXFMTS1vZGxsSDFvcWZRMVpVUmNHeXVvYjJKSFoxWGxLdmRySXVsaG5USHQ4TU90dTVLTEN2QUlQU2RVQVphbkRsY0xOeWRjWVduMzlLWHgwZVVMUk9GVFkteDdFeER2X2JiOFBLTGZ1eUVTOHVWY3ZFQmtiQjVaYUVVYW11bU9mSkNNbG5Na1ZzNU5nVW5IaGd4c1o?oc=5) |
 | Minnesota’s Democratic Party Revokes Endorsement of Mayoral Candidate - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPZDd6WlNSaGE3bWhqV3BKMGllZ0FJMlRCWlVFQ2F6c3c4UmI5WE12aVRBaUthWExqbnVOcTc0dE9nY2d2VklEM2tnbkxZSjB2Wjd5QVFiTEZNXzh6VmRwVW9WYm13aXVEYWFTWjBrSkxjV1VuOXFGSnJxSEVoZ0dwdW1xSjBCMjllWFE2TmdoZi1WTEVSVnBwNmRudC15X3Q4MDZNNEJXZlI5V3VuUmRjLQ?oc=5) |
+| 6 people are found dead at a Colorado dairy. Authorities suspect an accident involving gas exposure - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPQklhN3BCOWQzTUZXeEI2RVBQa0tWOVBUZ3JwWEtCNHhzWDI5VjlPSFBjai1Gc0o3QW1tT3NKT2lxZWhvWGNvVGhmQ19MQkkyZ1hLb01YRnp5UFY0Ri1iWFVsa0RRMmJ1NkF1OGdMNHg4VXFqOU44Mlh0bE9HdTdOWk8waWpNN2o1?oc=5) |
 | Judge rules former Trump lawyer Alina Habba was unlawfully appointed as US Attorney - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNZ0piZTZ1ck4wbGRjbGMtd0JON29CMm42V05TQ1ZLanVjQ3kyTzhSc2h6QmJLRE1TQ3d4cFNQUWotT0sxNnVUZFdlRGUyWjh6YWtIcXBIZWx5SnZNdUh2eHFTakVRYWZPWk1peGtlekQzZTdBeVFLdGstQndVX0R1d3Zzb2ZJUlJ5bVliYW5Ha3BiZWRJc2dMTHVHa1o0MDZIVTkweEdaV3VueUtXaXlubjNtWnZpcTFoT2NVZ2wwNGxvQWVVN0xRdDA5Y2RKQQ?oc=5) |
-| Mayor Adams' former top adviser accused of 'wide-ranging' bribery schemes - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPM1V0YjFxazZHY2xSNjlYd1R0RklsMFRrVHNBSWFDdWtLc3pCVkVaT2t6YXBycnB0Rl9KVDVPTEl5Zld5VW1jb24tcTRiMU1wN1FxNDY5R1A0Y0JEelpISTVocktzaWlKSVEzM2duVmhCZExIZTBHMnUzV3FlN3dleDZqbWh5ejZ6M24ycDZGMkJXNUtsZzk0UXFibTltUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
