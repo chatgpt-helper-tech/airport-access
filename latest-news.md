@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 22:09:11（北京时间）**
+🕒 更新时间：**2025年08月22日 22:17:38（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | FBI conducts search at John Bolton’s home - CNN | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9fREdXQ21TWTJkeURoQUZkblZXNThIOUNCM3JsR1IzeE9ZYnBCWDdrZjgzejhoU2liN2tSM2tUeU5fRTVFR0hJbDJDVDBlaVczaGtBWXVCWUNfdzR4RkdoRmROOGQ1ZENtbmpCUW83NA?oc=5) |
-| Gaza City and Surrounding Areas Officially Hit by Famine, Global Group Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNUFFRZXhrY1VyWl84SHVEdmFHcTNLVUJkRFAzUVZZUUNLa0tGMnJ6d3FReE5Sel9kbzJuUURpZDVLV3g2b2M3UDU3MVJrVjQ4UndxdDZxUWZYSzVzN29uSUlmZzU4ZmZLT29pRFN4SV9zWTZkYlgzRWRyM2c2NFFQMHIwREtxRUE?oc=5) |
 | Newsom signs California redistricting measures in response to Texas bill - Axios | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxONDZ0NXNMS1Z5aF9DM0hIN0ZIVnBxZWg5bjE0WjlST0I3SGljQVhuM0M5TXFtRGhUaTliLV9MUUFSUU0xRGFfNHpVcE1RdzVTQTVXUS02RFdJQjJoNzl3SWtrbWpJT3hycG9LUE52YTJWeGotWXF4U0toemNUU1Q0aGpTNG90eVJvV0tBUHR0NTIzZ2pDRmFv?oc=5) |
+| Gaza City and Surrounding Areas Officially Hit by Famine, Global Group Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNUFFRZXhrY1VyWl84SHVEdmFHcTNLVUJkRFAzUVZZUUNLa0tGMnJ6d3FReE5Sel9kbzJuUURpZDVLV3g2b2M3UDU3MVJrVjQ4UndxdDZxUWZYSzVzN29uSUlmZzU4ZmZLT29pRFN4SV9zWTZkYlgzRWRyM2c2NFFQMHIwREtxRUE?oc=5) |
 | Federal judge orders closure of Trump’s ‘Alligator Alcatraz’ immigration jail ｜ Florida - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOUC1sXzgwZk5FU1B0LUZ5X0xhVlREM0V6MTMzSDdnN1JFTHc0cVR2c0hnZDFEUXNtbEVrWkc5YlZWbkExOWxmVHNTbWJaeXZMVnh5VE96bTdabUppcUF0RkNrU0ROT2hjUko5VF9TSnBiMVI0ckVDVkE5TThhZ1dFV2tsUEhUTFZlWm9sOTlR?oc=5) |
 | Active shooter report at Pa. university turns out to be fake - PennLive.com | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNa0djbzZzMEZXb3JiMTF1VmFVZDVRV3Y2NnZyWUNFa3Uyem9reFpyM0wxakRfZm9YYnBNMC01ajhVRm1ZVExqREtWWlpnMGJrM2QteW40NGozQzFPVm9ZT0pFcEUzOGIyX3BJeUtHb0xQX0d2OWk2MHVmMXF6RXBNblZwR0FwMEhGWHl4LXVQZmhZbWN6WGxmdDdtc9IBrwFBVV95cUxQd2N5aEJCazV6SDZLaFAxdV9ENEdSOTdEalRzV0diNEstMnBjMGRvNFpzUWxvR0ZVX0FUaUdDMk5QcGJ5dXZLVWdybWlrRW1qWXdTb09IRFJjbC1XMGE5bHhtMmd0aEJzRm1HNU84dkdBQXplSmVPTHpad19lUXB6UlFxRUd1dEktZGVLalRzNW10MXY1WjFFLVZrMFlQOUF3NWtfNURHNmJUZWdJN1Nn?oc=5) |
 | No patrol but Trump visits police, military in DC as he touts anti-crime push - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNcGxkMDJMOWZhQTY1UUJ1enlaVVdZZkRRNE9tWk5qUUg4b3k4RTBsZUpKUWo4bmxoNGFkS1c4MGRFeWhCMmRxa3V0aUxvZlJiMnhuVkN1NVNyQk9IWXJEejVQd1JtQkg1RjlMbklZRmhRWmJicllqUlhiMHRIMmJ2ZlJkRldpb1hkZnZtQXZoQXVwcTlHdlV1Z201RUdWUdIBowFBVV95cUxQR2piNzFESjd1Nlh2QmlVWF94M2g0bktqTk1Pazd0ZWxCRFhnTHdWNV9YVkY2X0dnOUlUWlhUaXdNVWdWWkFUc01IVjgxNUtvdXppWjQ1dnlJejZTQUlxUktxWGRTeHNEWHJRcVpRYmlNeVA5UUtFRHVWZVNhZTBjRl8xdlU3SThzblp3Nm9uODhlVjFtUDZaSVEzZDRNajBhU0FR?oc=5) |
 | Erik Menendez denied parole after 35 years in prison for parents' murder - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQLWVGNTBkcjQ0cm8tUllmSzNvVldtMWpndVVfNThZeTBnT1dmcktnZTU1amNfLXZWYnlubGJPUm5iR09EdVVTR2F5ZkFVdVFCY1I1ZVdLS3kxaXRtQ1pQZ1ktWmVlX2ZRR254aEE2cnVXdmVlRmhab0R2c3ZEdGRFYXBId1c0TjdldENuMnNab1poUl9BVFFteUQ2Uzh5MHdNOEJGNVJLei1LcHB5aEE?oc=5) |
 | New visas paused for commercial truck drivers, Rubio says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE0wcFprXzBaS3Yxb0NRZmZ0ekZYV3VJcnpnak5IeWV5LVVVSTcwY1h5VmhJNFRZUVowa1FZV3pISFRIZURqN1VGd3ZERXRWMmFJZjJZa0hUSVhHaEMwVDZLcnVzNXZxSTRQZFdoZ082RGU5WTlZX2VDaDhn?oc=5) |
 | First wave of Epstein files is being sent to Congress, says Oversight Committee chair - NPR | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQc3Nac2pFNmVLb2E4YS1fdkd0REVhSkhIQldQaHNBc1lRSVhYeVF3WV9XRk1naTFBZ0c5RG9vSGN5UWoweklTV1RBOGVxVGV1ZVZ5Y183dVVYelV1a3l6YmMwVmF6ZmFZV0RnZjFJcTI0SG9HaWNJbUt4MHYzUWNRSVBNM1BEdlVmY0lRUU5Hekk0TGtvbDdkRUdlM0lSemFS?oc=5) |
-| Judge rules former Trump lawyer Alina Habba was unlawfully appointed as US Attorney - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNZ0piZTZ1ck4wbGRjbGMtd0JON29CMm42V05TQ1ZLanVjQ3kyTzhSc2h6QmJLRE1TQ3d4cFNQUWotT0sxNnVUZFdlRGUyWjh6YWtIcXBIZWx5SnZNdUh2eHFTakVRYWZPWk1peGtlekQzZTdBeVFLdGstQndVX0R1d3Zzb2ZJUlJ5bVliYW5Ha3BiZWRJc2dMTHVHa1o0MDZIVTkweEdaV3VueUtXaXlubjNtWnZpcTFoT2NVZ2wwNGxvQWVVN0xRdDA5Y2RKQQ?oc=5) |
+| Supreme Court Lets US Cut Millions of Dollars in NIH Grants - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPVk10M2VwRU9SaHMtNVNXZ2lfd19yZGpCYTRBSnYyRkpYLU5JS1FhSFFQNEhLalpCdGRTNkw5Z0FtQWNiTDlLQ0FpaVhaWU8wOGhlcmEwVVp1WjZxc2NKbW5nSlI2djlYUWszSmZzanBUanpUbXJ6MFN4eUR5ODBUdU50M3kxczlXWjdRdjRMWnBsa2JzNHBhUU5yX1BlUEJ5ZUVvX20yYi1lSjl5UUhCZ2NORQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
