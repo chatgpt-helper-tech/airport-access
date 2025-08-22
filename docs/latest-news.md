@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 00:56:29（北京时间）**
+🕒 更新时间：**2025年08月23日 01:01:14（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | After being denied parole, Erik Menendez still has other pathways to freedom. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNbnBzejRmdFVWWnM2anpEcURyb29zUVRuSFNyYjBnNUhCQmhRUDFDdmE4LVdJWVZXZFoxVG1BbEpock9wLUZrcWFjeldJY3FwUUlhUHduOFFDeXEyam1nSFhhSHgxTkpLYzROWHR1NDZONm95QUxZcGN0LVE5V0hjUHh1MjI?oc=5) |
 | Democrats police their word police: Read the list - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPX3M0UFFYcF91UU5Md2Y1U3lTeE9qamdVNTFoZ3Nxak84Y3ZESi0wWGVpR09vc2t6aW9zWnZvLWpnSkwtdFRxY0FUU0p6ZV8xNDlOT1FSX3dvVmRqUkk5U0gtd0JrbEYxZTJZQW1qdEt3QnAwd0M5NVFzaDBQQ1EzVG51Uzhpdw?oc=5) |
 | Minnesota DFL rescinds Minneapolis mayoral endorsement of Omar Fateh - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE4wbW9zTkpIdFFuSERUdTBUbk5CaWpaNmw4YVRqZUFNTEhQUTNHYkZOT3Ffa3RkbGlUZURxaW5oZGJHX0QzZ0RGTU9mV2dUWkk1Ny1ZNnN3Z09TNmI5WTFqaXpJS1U3T2phMlNURmhZWFJwZkNWODlYR3FMSWZfZw?oc=5) |
-| White House Lists Smithsonian Exhibits It Finds Objectionable - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9HWFFLMFI0YmFNcWVMUFRhdzVZbWtMTVBwUHpsTjRKLUp0ekZtZGJXMUFmRFBFdDd1ZXhRR3FDUllxczhDOUhNbVB0akJVWnlReGNvajF0YkU0UDNkclJRUGZyVGpqWmhaLTMxdnpwazI1MUZ2QXJhOQ?oc=5) |
+| A Critic of Universities Is Rallying to Defend Them in the Trump Era - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1iUlg4RXpxbHkxemFzZFJUdXpCLWwzR1FKX1FtRXczNVVhek1FcW90aWcwWkE1dE9QQXd4VzVVNk5RZ1ZnWXV1X3RZLTZkcmJDMk9FXzFxRlMtdUd2cWxvZmNtN0xBQ0c5OUdfeFVBMkxfaU5zbnFadzNjNUdMNGc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
