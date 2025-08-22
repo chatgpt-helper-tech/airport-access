@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 19:24:41（北京时间）**
+🕒 更新时间：**2025年08月22日 19:32:34（北京时间）**
 
 ---
 
@@ -13,8 +13,8 @@
 | The race for the two miles-a-second super weapons that Putin says turn targets to dust | [阅读全文](https://www.bbc.com/news/articles/cgeqj1q8gj4o?at_medium=RSS&at_campaign=rss) |
 | Crackdown on child benefit claims from abroad after £17m saved | [阅读全文](https://www.bbc.com/news/articles/cr5r1zpl39jo?at_medium=RSS&at_campaign=rss) |
 | Why this Women's Rugby World Cup is different - and will change the game | [阅读全文](https://www.bbc.com/sport/rugby-union/articles/cx2983p0vqzo?at_medium=RSS&at_campaign=rss) |
-| 'My dog was my ring bearer' - the pooches playing a starring role in weddings | [阅读全文](https://www.bbc.com/news/articles/cj3ly6e5xe8o?at_medium=RSS&at_campaign=rss) |
 | New dinosaur species unearthed on Isle of Wight named after world record sailor | [阅读全文](https://www.bbc.com/news/articles/c87ew7qq4wwo?at_medium=RSS&at_campaign=rss) |
+| 'My dog was my ring bearer' - the pooches playing a starring role in weddings | [阅读全文](https://www.bbc.com/news/articles/cj3ly6e5xe8o?at_medium=RSS&at_campaign=rss) |
 | Erik Menendez denied parole three decades after killing his parents | [阅读全文](https://www.bbc.com/news/articles/c3wnlldjp20o?at_medium=RSS&at_campaign=rss) |
 | 4chan will refuse to pay daily online safety fines, lawyer tells BBC | [阅读全文](https://www.bbc.com/news/articles/cq68j5g2nr1o?at_medium=RSS&at_campaign=rss) |
 | Karen Gillan joins the cast of Highlander reboot | [阅读全文](https://www.bbc.com/news/articles/cq87gn3q0yvo?at_medium=RSS&at_campaign=rss) |
@@ -31,7 +31,7 @@
 | Trump hands out burgers and pizza to federal law enforcement amid D.C. police surge - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE03aWZiS19NYklPeEZiLU9DNk40SnQ2VWhPT2tlZWNyLW1uSlFHTnYxcEIxV0Q5Rm80OVVwMU94VndoZTBXMGFfT2VCNmtNb09ENDNwcUl3YXNnMWIwZU1yWmNzdnFESnQwZjVJbWUtX2I5bVZoMXfSAXtBVV95cUxQSWFZLU15UVQ0OElRV0ZGeWhsSlFDdWVjR0NmMGsxVUVWMWJCTDNkb1NWUFNSVXdjUl9USU5GZG1jWjYteWZubUxQdjRSZTVaMGNDUzJQNG1uQmhSdHNyZG12TzZYNUxGbm9Yd0ROOVRTWjBXbVVTQlp3Um8?oc=5) |
 | U.S. halts issuing worker visas for commercial truck drivers - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOYmExcE9VMWhHQjNGODlSdXVFcVVkRk9WMFo1M3pPVHlfU2dIN3htQjZsb1d2WlZRaW9rUXl1Y3ExTzZydkpDTzRNNFhib2RPcTF0MXlhd3Jta2M5MWYwb1h6TGNwM21KWjdsUDJjaHZuYXdZUzktam1LQmx4NV83c0FNVlR1bTRrV0RuUVU3MlZBaFnSAZgBQVVfeXFMTS1vZGxsSDFvcWZRMVpVUmNHeXVvYjJKSFoxWGxLdmRySXVsaG5USHQ4TU90dTVLTEN2QUlQU2RVQVphbkRsY0xOeWRjWVduMzlLWHgwZVVMUk9GVFkteDdFeER2X2JiOFBLTGZ1eUVTOHVWY3ZFQmtiQjVaYUVVYW11bU9mSkNNbG5Na1ZzNU5nVW5IaGd4c1o?oc=5) |
 | 55 million US visa holders under review as Trump admin intensifies immigration crackdown - Hindustan Times - Hindustan Times | [阅读全文](https://news.google.com/rss/articles/CBMi8AFBVV95cUxNY2xoNy10U3Ayd1FRaUUwSDdQNldVX0FMQmV1NUxDd19mbEF4RG80NE9IUjMtMzd5X1p2cVpfOTk3bDBtUmsxY1Fnbm5HdTJUWGlNSVRlRUlsNWdJZm1xTVpJR0stOU5nSTlLOERvSjFMbG5fWU9UMml3SGtycG5jVmx6LW51c2JxRkFxbWFOcEJJSFFGRHJzelUtN0dBRmxUTGJtSk9zZnhZUm01elB4bFRmTy05Zk9taTRROGp4XzVucEw2VnRMa3YyeW02QXhOcGpYdTA1MHdtN0lQWm9QbWJhSGY3U0ZDMTdwZFFCcmrSAfYBQVVfeXFMTnl5M0NpUTNJMzFIVHlFaUhqTFBVTXJTT2NJclJIb1RnbTJNQW5lZDFSZEtaNXBSYjFuanBfVlVJVkZxTC1sUG5xWGdDRFdIYkd1aFphVE55VmQxWWtHbjVodUM2dlowekVZU1RFS3RDaWRmRnpUU3BUUTRWaWNCV1RWaE5aRjNHa090akpiSExtMFdMbWU0TzhHOHBmWE10LU52SHBrcEl2b1BiOTlDYUZLWnFvcTRxTXZjUlFKY2IycHRrOUs2ekJrUEFXX001WUJHQ1NUdmVWTGtuX09XdWZVSmlCQ0VjYnF2djFhR18tZWV6RWRB?oc=5) |
-| Congress is set to receive the first batch of Epstein files. It's not likely to quell the drama. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNeUVhblk3eDNqNlc4WTlsTXlZVVZDNUlRRmFKUzRxTER4N0taNGkxZE1yaXBOdDRDZmtaXzUxeHQteVgwZ1RERFI1eWllQ0lubEQzRlN5b2g1XzA0U1FtbEdod1dsNHBXNGVYR01OSnVPb0NLVHdfSDFtTVd0eFJVVE1GNnNBS1RRYWc?oc=5) |
+| First wave of Epstein files is being sent to Congress, says Oversight Committee chair - NPR | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQc3Nac2pFNmVLb2E4YS1fdkd0REVhSkhIQldQaHNBc1lRSVhYeVF3WV9XRk1naTFBZ0c5RG9vSGN5UWoweklTV1RBOGVxVGV1ZVZ5Y183dVVYelV1a3l6YmMwVmF6ZmFZV0RnZjFJcTI0SG9HaWNJbUt4MHYzUWNRSVBNM1BEdlVmY0lRUU5Hekk0TGtvbDdkRUdlM0lSemFS?oc=5) |
 | Judge rules former Trump lawyer Alina Habba was unlawfully appointed as US Attorney - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNZ0piZTZ1ck4wbGRjbGMtd0JON29CMm42V05TQ1ZLanVjQ3kyTzhSc2h6QmJLRE1TQ3d4cFNQUWotT0sxNnVUZFdlRGUyWjh6YWtIcXBIZWx5SnZNdUh2eHFTakVRYWZPWk1peGtlekQzZTdBeVFLdGstQndVX0R1d3Zzb2ZJUlJ5bVliYW5Ha3BiZWRJc2dMTHVHa1o0MDZIVTkweEdaV3VueUtXaXlubjNtWnZpcTFoT2NVZ2wwNGxvQWVVN0xRdDA5Y2RKQQ?oc=5) |
 
 ---
