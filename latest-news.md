@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 08:17:59（北京时间）**
+🕒 更新时间：**2025年08月22日 08:24:45（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Supreme Court allows NIH to stop making nearly $800M in research grants for now - NPR | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1uSHhkYmlvb1BJa0U5THRscldvTGhJMUlqejZKbnZPY2RXSDdfUEdGQmRPVGVVSHVGVGtCb21HTFljVlhLM0hmcExtVzhzZnh1UjFhcHdxbzRCVlMtd01rUnVPaWxRT0dzbUkxRGxZWkZMeGlL?oc=5) |
 | Report of active shooter at Villanova University a ‘cruel hoax,’ university president says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5CTkt5TGlIYTR1ckFnQ1dBcVR4M2RRdU9qRzllUm4wbFZTVHJnN19zSXY1YzVLTWQtTDZLeHY0MEFkb09zMjhxSnAtZ0dxV2JxVUJ3a0tfaDk0aWlaUjY1SjJUVkV4TkVXaFNZeHl6dULSAXZBVV95cUxNYm9FTnNfR3NWbUlUTThVMXltd1NjOEZ6bXJaRmNQYWExZm1jYWlOM3loTkRqWWZkbWV1TW5ockJ1RmVVM2tHZUxObmgybkp5Si0tTHZpTVh0dXdnckRiNlV5RV94SXlCODJhbmdYVGNyWE01MEFB?oc=5) |
 | Alina Habba's appointment as US attorney for New Jersey 'unlawful,' judge rules - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxPQTFaeUpKVW1QbVdlMlVBU25SMUZleUxiOHBlYVV2LVdOZ3poVEEzWHJuTWJmWGlVSDQ4dGVSalhGazItYjJjYTFrT0lYRzFkWlhHd19OVnBnMC1USnJLZkhGMnBXMGVETU1FNHowX0xsU21UV01RdnJBWW1PLVBubGlnZjNCREF4VHJuUGtHQWRxWE5JLXFRUjR4ejRGUVBkb21GQ3poOFRHdVJCSVBmU0tUdW1TOE1ZWmJZWGtHdll2ZXh60gFWQVVfeXFMT040VGJNcTdmNFZzSExGb215ckozQ1Q5YzN0SHdrWURiUGx4QWEyVnVLUnRBc3R6ZXM0ZERPNWc1S1lJaDctbUNtenBGZ25UVzA2WEhjR1E?oc=5) |
-| Illinois to Bondi: Sanctuary status stands firm - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOVW5UNlBxQndoUzV2YnZnVHltVEp1bGN4enF6N01wbTZxVUc2aUtKZGxYYXg2bHhmVXZpUnhoNkhNS1R5dGhUZWJsNlBUdDRkSXFrYnltVjE1alZxbDZMLWV1OWVUZHh3Uk45SGJ0Z1lfeDZMeVZfUHRXdmpYNEl0WEd1akJkX1BwWWNVV3hGeGg0eVVLNEFnVjZka3hMX2JTUEoyQ0ZBdDdXSG5sVXBxcFJkb2VjX3Q4ZmpBOTl3?oc=5) |
-| Vance touts tax cuts, Trump's domestic agenda in Georgia - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxORTFhWDlTX1NxcWgxZFhkdjJtajlIRjNyUzAwd3B5ZTVfZkFNdWFzMFliOFotNGJYbUZ4c1dSM01wMDR5YndrZzNQeENJbTZyWWoxTGVWeHZXTUJDTUZvaG9QT1otc2ZvZnpwREt1akVPTjlNdk1QSXItZmpQTFdZRW1FMWYyOTZi?oc=5) |
+| Trump administration says it’s reviewing all 55 million US visa holders - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPTjFpSDQ3SUNwekEzTHg1VXNkcE1ObEd5MkNvRFNuNFA4Qzdjc3I2YUFaVUR1Y2JVcVhfU1pqX2ZaT2d4c0ZCcDROUDRJYVVCWkt0bHd1R1hkcnZxYXJEMmt6WTRLT2U4RWR5S3hXZEI3Mjk3VDBIcGRJVVdwUGZwZkk0SXBjbGNjSmxFZ1ZSTzkyN1I0a3NYWFpNT2RRbzdUeDgtM1VVZWdGMUN5TnZoONIBtgFBVV95cUxPLWM0ckwwS2NLcndmN0s3QlllTjlVblAwczdic1JDd1NZSXI4Nk5hSXZuUUVEd0c5VkExQmRXUVFzWFBwZ28tamtDMW5QaTlva3o0RHVXOHBFSlhHTmZUNDdUZkFsSm1FdlR4eWtpY01MYlBuV1ctV3ZhLUtEdTE5Y054R3d3TVd1VXp5aC1FN1o2UG5zeWh0c3AtX05rb0labThDOEN1Zy1VdEFuRjVlTlhxUURGQQ?oc=5) |
 | What to know about the Menendez brothers' case as their parole hearings begin - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQbkFOUFFPdEpoakhSanExTTA1Nko2eEQyY0Iyb2NQbkRNSHQ3TzdlTk10VHZzbVlpLXZ0WGNkN1VZWFdrV0FIUjhaSkpDREgtMXBybVkzUWE4QnVSRnJZQ3ZFN1FNdE44dUVzbUpaelhGcWlHa3RhRWlNYVBuNHJyVUJrbEI?oc=5) |
-| Hurricane Erin updates: Storm pulls away from coast, but danger lurks - USA Today | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQTWdWSHBaNWZLUEVQRDVmVmRWbERkUDBDNDNGQnlxd2s5cFdRTG9YQnF6YWsxcHpFRXV4VFNaRjNlVWI4WlltUjR0a0YwbXNKSkY2MVBQeFVBRllIYU12eUczZkVULUc4YkNnZ1hsT3VlV2dad004NmRseGtKRlF5ZlFSQkY4cmt4T3l3OTljYlJ6X1pyamEtR2ZFTGZ5RlU2YzdhRHZR?oc=5) |
 | Doggett won’t seek reelection to Congress if new district is upheld by courts, paving way for Casar - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOd1ViSjBkaWJNM3BXbVRIcnlaeWcyZWUydEwzNDFtY3A5RXVhRS1jR0hSQjhoRUxnVjlab2VFUlhwa1J4MmJyaGJQT3ZBMVA0aG5rbkUxU3NrT3ZPRmkzVFpZcl9JRVNpUjZUNEdmYnRSbXJPNEJmLTV1bkpZRjZPekJlTko0OUFOWUVISFp2VWdnYlZCNVMzYllZU05EVjlPdXNyYQ?oc=5) |
+| Vance touts tax cuts, Trump's domestic agenda in Georgia - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxORTFhWDlTX1NxcWgxZFhkdjJtajlIRjNyUzAwd3B5ZTVfZkFNdWFzMFliOFotNGJYbUZ4c1dSM01wMDR5YndrZzNQeENJbTZyWWoxTGVWeHZXTUJDTUZvaG9QT1otc2ZvZnpwREt1akVPTjlNdk1QSXItZmpQTFdZRW1FMWYyOTZi?oc=5) |
+| Journalist detained by ICE sues Noem, Bondi for his release - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNclB4WVY4WWpjbUM4NUhGZDZsanpzOFhoeS03cnFqRUx5MGJUdm1rby0tSmx5SUg2dFdfekRYQkc5Vm5RMGFoTTFpR1Y4M2tQUlZHNHY3NkZOWE92N0pIT002M2I5STBmOUxXUE9wUEV3c3hTbzZMdDFtRFR5aXozdTA1Nk5ud25V?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
