@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 17:32:27（北京时间）**
+🕒 更新时间：**2025年08月22日 17:40:14（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Proposed Ukraine land concessions are Putin's trap, EU's top diplomat tells BBC | [阅读全文](https://www.bbc.com/news/articles/cp8zdezm507o?at_medium=RSS&at_campaign=rss) |
+| Noel Clarke loses libel case against the Guardian | [阅读全文](https://www.bbc.com/news/articles/cwy33g0lelno?at_medium=RSS&at_campaign=rss) |
 | The race for the two miles-a-second super weapons that Putin says turn targets to dust | [阅读全文](https://www.bbc.com/news/articles/cgeqj1q8gj4o?at_medium=RSS&at_campaign=rss) |
 | Crackdown on child benefit claims from abroad after £17m saved | [阅读全文](https://www.bbc.com/news/articles/cr5r1zpl39jo?at_medium=RSS&at_campaign=rss) |
-| Erik Menendez denied parole three decades after killing his parents | [阅读全文](https://www.bbc.com/news/articles/c3wnlldjp20o?at_medium=RSS&at_campaign=rss) |
-| Baby food firms told to cut sugar and stop promoting snacks for under-ones | [阅读全文](https://www.bbc.com/news/articles/cvgpld8p9rqo?at_medium=RSS&at_campaign=rss) |
 | Why this Women's Rugby World Cup is different - and will change the game | [阅读全文](https://www.bbc.com/sport/rugby-union/articles/cx2983p0vqzo?at_medium=RSS&at_campaign=rss) |
+| Erik Menendez denied parole three decades after killing his parents | [阅读全文](https://www.bbc.com/news/articles/c3wnlldjp20o?at_medium=RSS&at_campaign=rss) |
+| Baby food firms told to make products healthier or face action | [阅读全文](https://www.bbc.com/news/articles/cvgpld8p9rqo?at_medium=RSS&at_campaign=rss) |
 | Travellers warned of bank holiday disruption | [阅读全文](https://www.bbc.com/news/articles/c1kzrxwjnryo?at_medium=RSS&at_campaign=rss) |
-| Record numbers of GCSE results were resits - are we in a 'resit crisis'? | [阅读全文](https://www.bbc.com/news/articles/cpdj5y98302o?at_medium=RSS&at_campaign=rss) |
 | 4chan will refuse to pay daily online safety fines, lawyer tells BBC | [阅读全文](https://www.bbc.com/news/articles/cq68j5g2nr1o?at_medium=RSS&at_campaign=rss) |
-| Staff facing growing risks of extreme heat in workplaces, WHO warns | [阅读全文](https://www.bbc.com/news/articles/c5ylwxl5n01o?at_medium=RSS&at_campaign=rss) |
+| Former Mastodon guitarist Brent Hinds dies in motorcycle crash | [阅读全文](https://www.bbc.com/news/articles/cp8968vdlp0o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | U.S. halts issuing worker visas for commercial truck drivers - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOYmExcE9VMWhHQjNGODlSdXVFcVVkRk9WMFo1M3pPVHlfU2dIN3htQjZsb1d2WlZRaW9rUXl1Y3ExTzZydkpDTzRNNFhib2RPcTF0MXlhd3Jta2M5MWYwb1h6TGNwM21KWjdsUDJjaHZuYXdZUzktam1LQmx4NV83c0FNVlR1bTRrV0RuUVU3MlZBaFnSAZgBQVVfeXFMTS1vZGxsSDFvcWZRMVpVUmNHeXVvYjJKSFoxWGxLdmRySXVsaG5USHQ4TU90dTVLTEN2QUlQU2RVQVphbkRsY0xOeWRjWVduMzlLWHgwZVVMUk9GVFkteDdFeER2X2JiOFBLTGZ1eUVTOHVWY3ZFQmtiQjVaYUVVYW11bU9mSkNNbG5Na1ZzNU5nVW5IaGd4c1o?oc=5) |
 | Judge rules former Trump lawyer Alina Habba is unlawfully serving as U.S. attorney in New Jersey - PBS | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPcWJ2LUUtQVBZR0lucXNKRm9GSlRoM3BPYlJGcGVMZXV1Rl85SGxtbmpWM2Rva01fQm91QWJkVERRS2N6QXVhRlRFTGt2dFZHZ0VkSXM4VklCQjZLbXlBWkxtSmg4WXJhVGNvNG9VSXlmUm0zdkdXS0t4LVkwSjNiZXZSYlVaZHhoSDhoc0dRQ2ltMURHbnBHQ1B3QlZGUEZGUlVNdFVvZFJTSmc5YnhsOUVjWDR6WjZLalFqNDd5QWdUYl9PSUFnQWRURzFGd9IB0wFBVV95cUxNb3FRalo1Yjl0bmUyY3h0ejNUSFRZc3BRX2h6bUJZQnYyVDBuUkttOFhSa2lhcDhJNFd0Wm1RLVRoX18yd3M5aWY0T2VJZTJ2TXBEN3p0NHFhc3NrLUZRX0tlelRBOGhtTWFWeDZvZ3dUajdBQ1ZIZU9MRm9aYVU3OXhnRDlKcFBZMlVNXzJadFhsOGc4eVA1UENLS0tVRDF2dFBPQU1WNElVV1FobWtBcHlya2wxX1A1NWNNaFBtd21sa1hONXF2TGFmd2VtT1hPQ3BJ?oc=5) |
 | 6 people are found dead at a Colorado dairy. Authorities suspect an accident involving gas exposure - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPQklhN3BCOWQzTUZXeEI2RVBQa0tWOVBUZ3JwWEtCNHhzWDI5VjlPSFBjai1Gc0o3QW1tT3NKT2lxZWhvWGNvVGhmQ19MQkkyZ1hLb01YRnp5UFY0Ri1iWFVsa0RRMmJ1NkF1OGdMNHg4VXFqOU44Mlh0bE9HdTdOWk8waWpNN2o1?oc=5) |
-| DFL vacates Fateh's endorsement for Minneapolis mayor, citing 'substantial failures' in process - 5 EYEWITNESS NEWS | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxPX2c1RExCb1VjS0VVTzB4WXJhaHVpNERaTGw0LXpSX3ZSUnJ1M1laMTJzY3FNZzFxUzZBZDhSdUNyT0dNcTNOemV1T0lMaWo4bTdnNi04MHJFTXpBcnFZcG9ydWoybEVHajFFTHZ2VWRzamtqV2toZnpfR2xkam1iY2ZEMDRqVUxUdG9rb08tZm9EbjFYVDRQY1dNbEpjc2Y5MTlQbE5HRDYzc0ItU1d0cUZNQlBBZGw3clAxa21JSmh4TEZmaGhz?oc=5) |
+| Evacuations underway as Hurricane Erin causes flooding in N.J. town - NJ.com | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNOU9aT1NrbWlSaXowRjVrcmRzamh4dk9hV3lVOGM4RVBwSmViLXdiM29JREVFanlMM09KRkVSYmI4a3M1Q21OdzQ4c1BlSHd3QmlpZ3hnQk9GdU92amhIQXJ6UUNSbHVRU3JEUzV3WVNlckRoLTRZNGJjUkhzU0RKci1EWHVXbm92WDhxOERrSk1UV2ZuZEJ6ZWx4THUxV0tYNzNjbUJCaUrSAbwBQVVfeXFMUHdzZXNiZV9sN1Znc0t2YTFfU0JQejFqU29ycHVZazlNZXQyMUgyUlZ2NG5hdGYzeWVIT1JRY1N2cHNjRmN1Vm1lTlRlYjRycnpnOWFOREFZSTZHRzBoak14aEJvVWUwUWtWQkRPTFlqdlFxa0xpeTFtcTlRVUI1S1JmS2JaRFplb2lGTkpOWkFYTE14NW1kMnRDUTI2WnZId0JfNGp2VWRhYm5WcFlFZTY5ZUV1RGlXZ096VHI?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
