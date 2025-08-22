@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 06:57:19（北京时间）**
+🕒 更新时间：**2025年08月23日 07:01:38（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Menendez family stunned after Erik denied parole; Lyle’s fate still uncertain - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxObHV5bTJwQ3JnQVpWUzB2bnF2d0xWLWVTczdXN0J0NVJETEI5OEtkM19PUVM5YmV1Wk1rb2FRajFIazAyaElmcHpKd3RwRmR2bTRHdWNFZkszXzVPcFRZVmdPalhwcGpraTNNT1VXazY0VFlvckZiazFTdW5zMGpGX2JjMzhKZFc4ZnhsUk1KTE1pckU?oc=5) |
 | Trump says 'We want to be very good to Canada,' as its leader drops some tariffs - NPR | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9GZ0otOTNXVlpvVjRwbjdLM2Rxci1LN3FUMjRWZFdpQk9QWE40SlRRRklxLWdqUjZVN0o3VTE4YzVscm42c2ZtMFprdUxPSV84ZkVIRW01aFJXOHBRd0xma0hHcjlfTlI3VkEtcm9PNTd2T3VHUjRwLQ?oc=5) |
 | New York tour bus crash on interstate highway leaves multiple people dead and others injured - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNX1lEaE01U0hMRUl0dGYxcTl4MHFvNGRPcnNkV1V3OGlQOWhHam43NnR0emcxTW80bDQ4LWxaSkNCQjVKbUFxWl9tanNZUWJraURjWlQ5YzRvTkRCUEdOTFE1RnpsMHdqeFRZUVNuSVlaQTRUM2VOdXRQQlZWZzV4QXJxZ2VyMFQ2YnNJ?oc=5) |
-| Howard University President to Step Down This Month - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOLWVScDVmWmRhVm9QaUYzamlvOXRoSmtsdm5zYzFxb2phOElyblc2dU1xcVQ5TV84Ul8zV2c2VkM2cmVma0tiMjN0TTFIVkFuMGMtTGJQb2RhYlY0cDZrSTRfQXl5aURKWlBSbHpUWmYtclhEeWFPVUphSXRfVnZ4QjBQWWltNkF2U3c?oc=5) |
+| Trump will appoint personnel chief Sergio Gor as ambassador to India - Politico | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9aYWM5YTZ5ZXd1RTlQaHdPeC16U2hDSkhUWDUxZWlGTmNONFR6MlVRMWJwbHFQQkZvOWpJdEUxdWxoZVdtWTZSTmlOM0VhMkFDVEFZb04zdTFpbDZVcXZzZ3FPbG8wYUJjSmUwVWttZzhueFkzQkkzZXFiNmg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
