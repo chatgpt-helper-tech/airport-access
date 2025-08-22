@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 19:00:57（北京时间）**
+🕒 更新时间：**2025年08月22日 19:08:22（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Federal judge orders closure of Trump’s ‘Alligator Alcatraz’ immigration jail - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOUC1sXzgwZk5FU1B0LUZ5X0xhVlREM0V6MTMzSDdnN1JFTHc0cVR2c0hnZDFEUXNtbEVrWkc5YlZWbkExOWxmVHNTbWJaeXZMVnh5VE96bTdabUppcUF0RkNrU0ROT2hjUko5VF9TSnBiMVI0ckVDVkE5TThhZ1dFV2tsUEhUTFZlWm9sOTlR?oc=5) |
 | Erik Menendez, who was convicted of killing his parents, is denied parole - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPVkM2OTV5a2pzR2xjWmpScmpoZUVPeGVkRFR4aXpqWk5WT2dVV0pSdGxYZkdtbmRscUdHVXVrVW5ZX0cwZk5tMER1bVFiNjh5TXNLQWNnMHROSXlWTlFvei11aHpTX0lpanp2TlA2VVhGcjQ2TDdPNzBGNDNpdkhGb2l0NEpPMTh6eTZtdHFsMU8?oc=5) |
+| Federal judge orders closure of Trump’s ‘Alligator Alcatraz’ immigration jail - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOUC1sXzgwZk5FU1B0LUZ5X0xhVlREM0V6MTMzSDdnN1JFTHc0cVR2c0hnZDFEUXNtbEVrWkc5YlZWbkExOWxmVHNTbWJaeXZMVnh5VE96bTdabUppcUF0RkNrU0ROT2hjUko5VF9TSnBiMVI0ckVDVkE5TThhZ1dFV2tsUEhUTFZlWm9sOTlR?oc=5) |
 | Famine confirmed in Gaza City for first time, UN-backed report says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBhbEtwSmpVTm5xVHlOZkpQa1RhWGw3d2o2NGozUnBwWm9QLUNKbW41SGRaZVZiSHM5azZXNGt3bXAtVmhVbXBzdDZZSHpValFNMkwwZkpwTFNPd9IBX0FVX3lxTFBQcG9RcWQzeEt3ZVlNMVpIRlpNbGw4VDk1SlUtbGFINF84QURVN3dUdjI0bTY3NW9fRURnRmRvaUYyTm1iQlZDaGxSNi1rX1ZGVmVzejdPNU80WE9oZ3pJ?oc=5) |
 | Villanova University says active shooter report was a 'cruel hoax' - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOQ0o3MnpNZUZ6SElwWGppMHBzRlpDeGthU1hla1lnR2EtWlVRSTdwWWM4aEZWc1cwem85Z252cy1YODQ4S0NjV19wT3hSR1gwbVJpMTJKQVg5d2FydUV0bEtKcDVhbjFsRHlxdy1Xd2ZMRHhCbGczeThRQmJGQkpKVGJtdE1YVjQzUmVoZ3hEb9IBlAFBVV95cUxNdEEwenBwbVNDYjNFUTM5TEtGQ3hDM3Zqczg5ZG9pcmNEUWR6YUw1Mzl4TmI5M0RyMGJPZ0R2eDNsWjNBdXJYNjl6aXNOR0lBWmtKVFVRVnVQT2R1bXFSQ28waTdTYl9vcHJMbEFUMkd6d0xYNGhNZmRucmJKT1dadjFkMTMtOWRrVGNSTjlvSUhVRm1i?oc=5) |
 | Trump admin vetting 55 million U.S. visa holders for potential deportation violations - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFB4UWhwZEptOTRPbVRzMUlFdFVMejMwYTgyOE5SdWZKZUFJNjFzdUdzenM1T29uVWZQUXZ3WTlRaDF6SUZaajVvZnNGbFhsOTBoTDczNkVlbW5ZQk44T2g1bFlPQ3NUcWFBN29LalN3QmNBcWRQVGxOSG1ENjIwaUE?oc=5) |
