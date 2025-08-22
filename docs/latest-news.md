@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 23:09:32（北京时间）**
+🕒 更新时间：**2025年08月22日 23:17:24（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | FBI searches ex-national security adviser John Bolton’s house in Maryland - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNWW1PUTZ0bmhfTGpackU2WlJtVzNlWnpkUlZmV052UFJsZlBfTWllcTB4N3d1Q0VMcFZOdHZPZHJ1MktOM3g3aVpJcG10TWh6MmZDRlhhbFNTcS1FWlViTXRITktpbjU0U2xnMTFSNFY5c19IdnIwOWNyekY1SWJxM0VBRFY1amNLSWQ0TjV4eVROLTNodU5yZDJpSC13NVN2MEZTNDZUc0JMbkVMak0wNk9LRE9uRzFCazhQMllaSQ?oc=5) |
 | Florida ordered to dismantle Alligator Alcatraz over environmental impact - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPVHlZMmU4X3RpYUgtcmQzQ1RMOGo5alc1N25aWUJuLW9LTjNVNXR5OThpNkdQQVBZaEEtY3BDQTlISmJCQmNkX293SFpwREc1TGJGWGp4MlhKLXpzZ1FvbjBsVXJKVENBZW45SkpLaG4wWFNwOFhzSkJlNDVYYlphSktWWmdSR2tOd2FYTlBKYlJzNjduOHJMM2pUUUdOVm8?oc=5) |
 | Love it or hate it? Poll shows how Californians feel about Newsom's redistricting fight with Trump - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPcE03TllHQlVfbUc4MXQ0YmE4RTdpcnl6OXlPcVdENjIxZ2FjUjUwb0xxTWpJZHNKMGY3MDVWQjBFT3AyanptSy1xQmJHM1hDUlBqU2lVNE1Edm5OM3dCaF81UzRLQU9vSG9mYzJKRjNCX19UOHEzbElZNUpjdFItQXdrVDluOUlKcW9fT3hwMXhoSENHQWc?oc=5) |
-| Erik Menendez denied parole after decades in prison - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQbjlHSW1obE9QNGhBT2tNeVV4T2pzQTBqZVhhRV9USnNQaGROQjFSQkI0cDhiX0lWODdOcmMzM3o0SEtrRzFWVkpmdkZDa0VGbzdUbDFNY0VaQXpkM2VNR1g0Y0NFamVmRGRVRmNzeVNOZXlRcWxXWHpKUmVUQVhiN0NZeXN3V3NENlpfTXBuZW8?oc=5) |
 | Gaza residents: 'My youngest child doesn't know what fruit tastes like' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5yUXlSTkdnemV5WXZIcGE4ZGNCalpGS0w0Rmg3SXhaRk5sQW5GclNZVkI5Skp5anJXaEtGYVJrTEk5bmhJN3g5MmtHMEFNTEY4WEhSeXEzVXR0UdIBX0FVX3lxTE93Y3MxUkVpaXVjRm1UNjF1c0VMQ0dvUkFTNGtjZk1ycXFpRG41Wm13Q2xDLWpHdExsTHFtX0paLWstNm9nekMwczlsQUtYSnl4c0c4Uk5JZ28zWFFGVGMw?oc=5) |
-| FBI director says ‘no one is above the law’ amid raid on John Bolton’s home – live updates - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNVU5rREZuTXJfSjZNVFd5RkN6MFptajlrclRCUHA4eW5ibk9aU3UxYndTVmtLX2JpckRPY3pGamNpMmdaQ0FYOEdIZ1dUeEdjaU5GNjlLNEZlUjJaVWpmT1NkcmhXWGdVN2J5UDZiMW9Falh5UGpZSTMydDdOOVBXQUFWX293c1MwckRJcXNZb0xicEItczU5M2doME9WWTcyemFEOW1MUjl2NTJXZ1d5Zy1NRVlNNmlPckZNTjZ1NUIxZzVCalkzNVRJZ0I5SFpq?oc=5) |
+| Russia’s chief diplomat says no Putin-Zelenskyy meeting is planned, despite Trump’s efforts - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPVmFtczdmTHk0akJweHUyWE82VjhRZXhkd1BGNUEwYWZKSzVMLVRtMl9TLVVVZFhKV1RKWFd5UlpaNFM3b2Z6SkxUcnpiaVpWUEVjWXMzdko3Q2pkVUNWZVYtRlotbnN5UGdPd0txcmRlQzk0TUIxcDN3dkZqV3dxLW1SUk11RDd6UTVKN1l2Qi1PWmtkaloxY2RqeEtGWEk?oc=5) |
+| Lyle Menendez expected to have parole board hearing day after brother was denied - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQWDRJdmNEOFAtcWwxWXd3dS1DS0VjdDZNWXJLcVBlT0FERklZbDlFamUzQ3phNnV0TWpIOTFuWXNOcllyak1UTE5fQlBkVmJfZHlXNzFnb3JKMDFGQ3EtMU1GQ1JZclFLQmlYb1Z6dDJwOUF6Uy1DWW9CUzVGX2d0MmRybExaSDNEa0M0SmY5WExSR19nREpMeTN0SnE?oc=5) |
+| Trump administration accused of wanting to revoke visas ‘based on speech, not conduct’ – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNVU5rREZuTXJfSjZNVFd5RkN6MFptajlrclRCUHA4eW5ibk9aU3UxYndTVmtLX2JpckRPY3pGamNpMmdaQ0FYOEdIZ1dUeEdjaU5GNjlLNEZlUjJaVWpmT1NkcmhXWGdVN2J5UDZiMW9Falh5UGpZSTMydDdOOVBXQUFWX293c1MwckRJcXNZb0xicEItczU5M2doME9WWTcyemFEOW1MUjl2NTJXZ1d5Zy1NRVlNNmlPckZNTjZ1NUIxZzVCalkzNVRJZ0I5SFpq?oc=5) |
 | New visas paused for commercial truck drivers, Rubio says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE0wcFprXzBaS3Yxb0NRZmZ0ekZYV3VJcnpnak5IeWV5LVVVSTcwY1h5VmhJNFRZUVowa1FZV3pISFRIZURqN1VGd3ZERXRWMmFJZjJZa0hUSVhHaEMwVDZLcnVzNXZxSTRQZFdoZ082RGU5WTlZX2VDaDhn?oc=5) |
 | Minnesota DFL rescinds Minneapolis mayoral endorsement of Omar Fateh - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE4wbW9zTkpIdFFuSERUdTBUbk5CaWpaNmw4YVRqZUFNTEhQUTNHYkZOT3Ffa3RkbGlUZURxaW5oZGJHX0QzZ0RGTU9mV2dUWkk1Ny1ZNnN3Z09TNmI5WTFqaXpJS1U3T2phMlNURmhZWFJwZkNWODlYR3FMSWZfZw?oc=5) |
-| Shooting at Ingalls Shipbuilding, one victim reported, according to Jackson County Sheriff - WLOX | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNUlkyeVBqaXpoMG81a0VCTmxzY2ZFc3dic3Nfek92QTZrY2c2TU5IcnhBbVlSOUxoUi1nbkd4Ump0NHRBTzd5SHRoM0paSVptZ1hZT0M4YVFMa3JkYmJiU1JTeTN4WklJME54U1MxS0ItaklPenFoZjJaYVlza0lMbUFLVWhTTHRxVkZSV2owUmtqdERvcU16Nl9SeUdSc3hWVUM2Q0xLVnduajNleVZGSE0wZDFldw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
