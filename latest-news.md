@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 18:24:04（北京时间）**
+🕒 更新时间：**2025年08月22日 18:33:38（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Baby food firms told to make products healthier or face action | [阅读全文](https://www.bbc.com/news/articles/cvgpld8p9rqo?at_medium=RSS&at_campaign=rss) |
 | Travellers warned of bank holiday disruption | [阅读全文](https://www.bbc.com/news/articles/c1kzrxwjnryo?at_medium=RSS&at_campaign=rss) |
 | 4chan will refuse to pay daily online safety fines, lawyer tells BBC | [阅读全文](https://www.bbc.com/news/articles/cq68j5g2nr1o?at_medium=RSS&at_campaign=rss) |
-| Former Mastodon guitarist Brent Hinds dies in motorcycle crash | [阅读全文](https://www.bbc.com/news/articles/cp8968vdlp0o?at_medium=RSS&at_campaign=rss) |
+| Karen Gillan joins the cast of Highlander reboot | [阅读全文](https://www.bbc.com/news/articles/cq87gn3q0yvo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,9 +30,9 @@
 | No patrol but Trump visits police, military in DC as he touts anti-crime push - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNcGxkMDJMOWZhQTY1UUJ1enlaVVdZZkRRNE9tWk5qUUg4b3k4RTBsZUpKUWo4bmxoNGFkS1c4MGRFeWhCMmRxa3V0aUxvZlJiMnhuVkN1NVNyQk9IWXJEejVQd1JtQkg1RjlMbklZRmhRWmJicllqUlhiMHRIMmJ2ZlJkRldpb1hkZnZtQXZoQXVwcTlHdlV1Z201RUdWUdIBowFBVV95cUxQR2piNzFESjd1Nlh2QmlVWF94M2g0bktqTk1Pazd0ZWxCRFhnTHdWNV9YVkY2X0dnOUlUWlhUaXdNVWdWWkFUc01IVjgxNUtvdXppWjQ1dnlJejZTQUlxUktxWGRTeHNEWHJRcVpRYmlNeVA5UUtFRHVWZVNhZTBjRl8xdlU3SThzblp3Nm9uODhlVjFtUDZaSVEzZDRNajBhU0FR?oc=5) |
 | Newsom signs California redistricting measures in response to Texas bill - Axios | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxONDZ0NXNMS1Z5aF9DM0hIN0ZIVnBxZWg5bjE0WjlST0I3SGljQVhuM0M5TXFtRGhUaTliLV9MUUFSUU0xRGFfNHpVcE1RdzVTQTVXUS02RFdJQjJoNzl3SWtrbWpJT3hycG9LUE52YTJWeGotWXF4U0toemNUU1Q0aGpTNG90eVJvV0tBUHR0NTIzZ2pDRmFv?oc=5) |
 | U.S. halts issuing worker visas for commercial truck drivers - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOYmExcE9VMWhHQjNGODlSdXVFcVVkRk9WMFo1M3pPVHlfU2dIN3htQjZsb1d2WlZRaW9rUXl1Y3ExTzZydkpDTzRNNFhib2RPcTF0MXlhd3Jta2M5MWYwb1h6TGNwM21KWjdsUDJjaHZuYXdZUzktam1LQmx4NV83c0FNVlR1bTRrV0RuUVU3MlZBaFnSAZgBQVVfeXFMTS1vZGxsSDFvcWZRMVpVUmNHeXVvYjJKSFoxWGxLdmRySXVsaG5USHQ4TU90dTVLTEN2QUlQU2RVQVphbkRsY0xOeWRjWVduMzlLWHgwZVVMUk9GVFkteDdFeER2X2JiOFBLTGZ1eUVTOHVWY3ZFQmtiQjVaYUVVYW11bU9mSkNNbG5Na1ZzNU5nVW5IaGd4c1o?oc=5) |
+| DFL vacates Fateh's endorsement for Minneapolis mayor, citing 'substantial failures' in process - 5 EYEWITNESS NEWS | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxPX2c1RExCb1VjS0VVTzB4WXJhaHVpNERaTGw0LXpSX3ZSUnJ1M1laMTJzY3FNZzFxUzZBZDhSdUNyT0dNcTNOemV1T0lMaWo4bTdnNi04MHJFTXpBcnFZcG9ydWoybEVHajFFTHZ2VWRzamtqV2toZnpfR2xkam1iY2ZEMDRqVUxUdG9rb08tZm9EbjFYVDRQY1dNbEpjc2Y5MTlQbE5HRDYzc0ItU1d0cUZNQlBBZGw3clAxa21JSmh4TEZmaGhz?oc=5) |
 | Evacuations underway as Hurricane Erin causes flooding in N.J. town - NJ.com | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNOU9aT1NrbWlSaXowRjVrcmRzamh4dk9hV3lVOGM4RVBwSmViLXdiM29JREVFanlMM09KRkVSYmI4a3M1Q21OdzQ4c1BlSHd3QmlpZ3hnQk9GdU92amhIQXJ6UUNSbHVRU3JEUzV3WVNlckRoLTRZNGJjUkhzU0RKci1EWHVXbm92WDhxOERrSk1UV2ZuZEJ6ZWx4THUxV0tYNzNjbUJCaUrSAbwBQVVfeXFMUHdzZXNiZV9sN1Znc0t2YTFfU0JQejFqU29ycHVZazlNZXQyMUgyUlZ2NG5hdGYzeWVIT1JRY1N2cHNjRmN1Vm1lTlRlYjRycnpnOWFOREFZSTZHRzBoak14aEJvVWUwUWtWQkRPTFlqdlFxa0xpeTFtcTlRVUI1S1JmS2JaRFplb2lGTkpOWkFYTE14NW1kMnRDUTI2WnZId0JfNGp2VWRhYm5WcFlFZTY5ZUV1RGlXZ096VHI?oc=5) |
 | Judge rules former Trump lawyer Alina Habba was unlawfully appointed as US Attorney - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNZ0piZTZ1ck4wbGRjbGMtd0JON29CMm42V05TQ1ZLanVjQ3kyTzhSc2h6QmJLRE1TQ3d4cFNQUWotT0sxNnVUZFdlRGUyWjh6YWtIcXBIZWx5SnZNdUh2eHFTakVRYWZPWk1peGtlekQzZTdBeVFLdGstQndVX0R1d3Zzb2ZJUlJ5bVliYW5Ha3BiZWRJc2dMTHVHa1o0MDZIVTkweEdaV3VueUtXaXlubjNtWnZpcTFoT2NVZ2wwNGxvQWVVN0xRdDA5Y2RKQQ?oc=5) |
-| White House Lists Smithsonian Exhibits It Finds Objectionable - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9HWFFLMFI0YmFNcWVMUFRhdzVZbWtMTVBwUHpsTjRKLUp0ekZtZGJXMUFmRFBFdDd1ZXhRR3FDUllxczhDOUhNbVB0akJVWnlReGNvajF0YkU0UDNkclJRUGZyVGpqWmhaLTMxdnpwazI1MUZ2QXJhOQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
