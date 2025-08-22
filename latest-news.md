@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 11:17:19（北京时间）**
+🕒 更新时间：**2025年08月22日 11:25:47（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump thanks officers and National Guard troops in D.C. stop - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOaERzQkZBdkdqQjdMbG1aVnh4U2hyelhKYU1yVWp2Mld4SVQwbjhyUGk4QjhOS25tdWxXYlR6YUg1dUpheWgzWjQ1d25YTVh1ZzVNSUhsU0ltYWkwWWh0TzdBV3VfdEFJRGtPYXJMVEpyYmk5OUZNejdoV25VT2MtTDV0NA?oc=5) |
 | Supreme Court lets Trump administration cut $783 million of research funding in anti-DEI push - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNOE5kNDcwM1NUejdMMVVCSjZrLTZiYUNSV2xjeGtjQmJMc1liNm1RLUl0VkRpNXdubW54QndMZ3dPci1xSV9xZmFaLU1qMFJvRE4xQllOLXVRYm81aUtYd191YlcwdTNLRmoyRTA4Zko2NVJoZUlxTVgybUJvSmpPdi1GWE80WkZsaHVWTm0wSWE?oc=5) |
 | Appeals court throws out Trump's $500m civil fraud penalty - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE44RngzQWxqQTMyRzJGa2FBWTJmenRQZTlGbzVheFVKaVBuSnEzYURSek9rMWRWQUZKZEl6UFhrZ0p2b2dzWlUySXdjSHRiUUFDbUlwQVpLRk96QdIBX0FVX3lxTFBxSXNCREJoZzdVeDVBQ09OUE9xcXM3VGxvdzVGcERENGR0TXpqODF4TXBFTzhDTDJQMm9MZ2hiQ0dKQ3drRk9hamZfS0JlQ3FTbVN6ZlZpeEE2UmdtVWZF?oc=5) |
-| Judge rules former Trump lawyer Alina Habba was unlawfully appointed as US Attorney - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNZ0piZTZ1ck4wbGRjbGMtd0JON29CMm42V05TQ1ZLanVjQ3kyTzhSc2h6QmJLRE1TQ3d4cFNQUWotT0sxNnVUZFdlRGUyWjh6YWtIcXBIZWx5SnZNdUh2eHFTakVRYWZPWk1peGtlekQzZTdBeVFLdGstQndVX0R1d3Zzb2ZJUlJ5bVliYW5Ha3BiZWRJc2dMTHVHa1o0MDZIVTkweEdaV3VueUtXaXlubjNtWnZpcTFoT2NVZ2wwNGxvQWVVN0xRdDA5Y2RKQQ?oc=5) |
-| Villanova University says active shooter report was a 'cruel hoax' - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOQ0o3MnpNZUZ6SElwWGppMHBzRlpDeGthU1hla1lnR2EtWlVRSTdwWWM4aEZWc1cwem85Z252cy1YODQ4S0NjV19wT3hSR1gwbVJpMTJKQVg5d2FydUV0bEtKcDVhbjFsRHlxdy1Xd2ZMRHhCbGczeThRQmJGQkpKVGJtdE1YVjQzUmVoZ3hEb9IBlAFBVV95cUxNdEEwenBwbVNDYjNFUTM5TEtGQ3hDM3Zqczg5ZG9pcmNEUWR6YUw1Mzl4TmI5M0RyMGJPZ0R2eDNsWjNBdXJYNjl6aXNOR0lBWmtKVFVRVnVQT2R1bXFSQ28waTdTYl9vcHJMbEFUMkd6d0xYNGhNZmRucmJKT1dadjFkMTMtOWRrVGNSTjlvSUhVRm1i?oc=5) |
+| Judge says former Trump lawyer Alina Habba has been unlawfully serving as US attorney in New Jersey - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOREVOM3gzd1B2SjQ4aXhaZkUyZzk5Zi0xejAtM01rbDlmOElSY0xNSDg3eTNPYlNHc0tQTUNBN193SDlyRjVjdVEyZ3hoM2NSdVoycGRRNVFZMEVGbUtsckpBXzN4enhDVmRhOHQ4ZjZfNF9na2pSZnNKSjVMbVZ2TTJiTTdsMkFydXZJN2V6bTZOY0RpelFxbHdKZnduaEZn?oc=5) |
 | New visas paused for commercial truck drivers, Rubio says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE0wcFprXzBaS3Yxb0NRZmZ0ekZYV3VJcnpnak5IeWV5LVVVSTcwY1h5VmhJNFRZUVowa1FZV3pISFRIZURqN1VGd3ZERXRWMmFJZjJZa0hUSVhHaEMwVDZLcnVzNXZxSTRQZFdoZ082RGU5WTlZX2VDaDhn?oc=5) |
 | Trump administration to vet all 55 million foreigners with U.S. visas - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOUG8zTVgwSDI3YUYtbzQwRHBWR2NQTXhjT0tMSng0UEc2Yl9SWWJsTUdDXzBMazlXYkZ0T0dXdW9IMmNFNjVTaF9Rb1U2N3RMNGZGRWJQS2I1SEdMeWJiWk0xMHVBM0owT0RycG1ubWQ3REVRNzRRdEowYUVWalJNOHhKMWNvcUNOd29rV1lqU2x5TXBlb29qMDdwa2Z6dnI3M1pNS09TdkthcEU?oc=5) |
+| Minnesota Democrats revoke endorsement of democratic socialist candidate for Minneapolis mayor - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQUFZZZXBGNDQzQTFmYnlDV1J0QWdaRW8tSEt6NDdZYnlGRFY2R1NoazFHV0ZheFJ0VEFzcDRESUVsNzJELXFVcFlCY2hhVnJWSGNhRWd3d3ZiVzJFc1NuT0pmRDE1M0lweHQ2ekd0ZkpNRzZZdkN4OWVxNEZuWjN1eDVHNEYyLVdkdVpkTFRQb0ttMWZtNVpQQU10RdIBoAFBVV95cUxPcUREa0FqVnVOT0ZkbEttN3lFdTFqeXlTQ3JIMzYxLW1fNUN3VjRlUzB5eE1uNWlXdS1EcmJkWFJUckNqS05rWVloUnpCczNaQ2RfQ0Eya0p3Ri1tR0VJSl9wbjY1aVkyUXh1dzFXaG9kYlF1c0RvUjVXMmVWajdLTk9QR2UyMHNiSm45SE0zcTc1MThzNjFwNHRkeU9QVTdI?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
