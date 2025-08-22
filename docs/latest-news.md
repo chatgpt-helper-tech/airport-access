@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 12:09:48（北京时间）**
+🕒 更新时间：**2025年08月22日 12:16:19（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Appeals court throws out Trump's $500m civil fraud penalty - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE44RngzQWxqQTMyRzJGa2FBWTJmenRQZTlGbzVheFVKaVBuSnEzYURSek9rMWRWQUZKZEl6UFhrZ0p2b2dzWlUySXdjSHRiUUFDbUlwQVpLRk96QdIBX0FVX3lxTFBxSXNCREJoZzdVeDVBQ09OUE9xcXM3VGxvdzVGcERENGR0TXpqODF4TXBFTzhDTDJQMm9MZ2hiQ0dKQ3drRk9hamZfS0JlQ3FTbVN6ZlZpeEE2UmdtVWZF?oc=5) |
 | New visas paused for commercial truck drivers, Rubio says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE0wcFprXzBaS3Yxb0NRZmZ0ekZYV3VJcnpnak5IeWV5LVVVSTcwY1h5VmhJNFRZUVowa1FZV3pISFRIZURqN1VGd3ZERXRWMmFJZjJZa0hUSVhHaEMwVDZLcnVzNXZxSTRQZFdoZ082RGU5WTlZX2VDaDhn?oc=5) |
 | Trump news at a glance: 55m US visa holders in potential limbo in fresh immigration crackdown - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPSnNFRVh5YXFZRXJNUFM4ck1VcXNXeHVYMTcwQlRkX1hOSXpGYXZnLXhRTVN0dGdaWWVRZmpRdFEwREpXb3JJbnNBQlBFWXU2MzBuajdNYmltaVpGUFl4cXJRNXR3TEF5VFotUE11Szg3MmU0SFZnVjdleVJyVHZlTFg2ZkpVZw?oc=5) |
-| Judge rules former Trump lawyer Alina Habba was unlawfully appointed as US Attorney - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNZ0piZTZ1ck4wbGRjbGMtd0JON29CMm42V05TQ1ZLanVjQ3kyTzhSc2h6QmJLRE1TQ3d4cFNQUWotT0sxNnVUZFdlRGUyWjh6YWtIcXBIZWx5SnZNdUh2eHFTakVRYWZPWk1peGtlekQzZTdBeVFLdGstQndVX0R1d3Zzb2ZJUlJ5bVliYW5Ha3BiZWRJc2dMTHVHa1o0MDZIVTkweEdaV3VueUtXaXlubjNtWnZpcTFoT2NVZ2wwNGxvQWVVN0xRdDA5Y2RKQQ?oc=5) |
-| Active shooter report at Pa. university turns out to be fake - PennLive.com | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNa0djbzZzMEZXb3JiMTF1VmFVZDVRV3Y2NnZyWUNFa3Uyem9reFpyM0wxakRfZm9YYnBNMC01ajhVRm1ZVExqREtWWlpnMGJrM2QteW40NGozQzFPVm9ZT0pFcEUzOGIyX3BJeUtHb0xQX0d2OWk2MHVmMXF6RXBNblZwR0FwMEhGWHl4LXVQZmhZbWN6WGxmdDdtc9IBrwFBVV95cUxQd2N5aEJCazV6SDZLaFAxdV9ENEdSOTdEalRzV0diNEstMnBjMGRvNFpzUWxvR0ZVX0FUaUdDMk5QcGJ5dXZLVWdybWlrRW1qWXdTb09IRFJjbC1XMGE5bHhtMmd0aEJzRm1HNU84dkdBQXplSmVPTHpad19lUXB6UlFxRUd1dEktZGVLalRzNW10MXY1WjFFLVZrMFlQOUF3NWtfNURHNmJUZWdJN1Nn?oc=5) |
+| Minnesota DFL revokes endorsement of Minneapolis mayoral candidate Omar Fateh - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNTWgzYTZuck9HZDc5S09VUWYwLURETkN1Uzd2SHdhZHVQME5KWEZGVC1paGpMYS1tUEtHUXllNldvaUt3VEtSZ0Vab0FjME9DdGJ0eXF1VDhPS012Sk9iTVRZV1p4UHlKTi0tTlNmREc2ZjE1blFjeGs4bmVRVUx1aXFOR3hpN2Fab210Z1V5NWZBYVFkSmd3Nk5qQzRFMmlLb2pJUmpBOVhzNE9XQm9ERzVZcw?oc=5) |
+| Six dead in accident at Colorado dairy - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9ScnEtZC1lMG9Fazk5MnlNVGo2djZvU1dpWGxVdnZoVEZXelNVNnNYMUhKZEdkZEVmcXJ3NXkzYzZXbWU2Ylp5NGZIcURvTEtudEFESFdKcHdVRHhqcUJ0d3NYbUk0SjAxREJmSnR1a2IzUm11UkY2LdIBVkFVX3lxTE1qeVVmTU1yMXpaZ291WXhWUFRPVjlZamFRMDUwc0RFY1o3TjBTTEVXMlFVS3NWWFNtV3M3TnpTZ2FuR01OYVc5SkljcTJnR0hibUNOaUl3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
