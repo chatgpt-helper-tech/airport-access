@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 03:57:40（北京时间）**
+🕒 更新时间：**2025年08月23日 04:00:46（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Investigators search home of parents accused of killing missing baby Emmanuel Haro - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOTGFYdkNzYjdfZmYzQzFQakp4R21VUG9QZG9zbDkwbkJoZjRDN29LMjhjQmF1QTBrWnlHZlV1VHluWVR2bEo5R2hqSjZSSUtoWmd1S2s4aGtSYzhrTkRQRzBPRkhoS0dkQ3VCbzJOQmwtZ0liTTVmVTFxRW1mSUl1ZTlPYjJSMURMcGo0eVhuQnEzS3c4WTN1THdTeXh5OUZ2cnlrbkVMSlZGNW5uRThla0NDR2t6UGVILVBzWHdR?oc=5) |
 | California parole board denies release for Erik Menendez due to misbehavior in prison - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxNWmgxUGp2ejY5ZEQ1U3pZajVDVm9yaVpJb3VmVTJzOFBuWXBnMUR6VTVaRW1GbTBrSFBNVlFKU0wwcUFFTEZNbll1MDhYdzRMTUVnYW9mZDJOTlZ5MzdERzFOSXJrVE5HdFBDUU82eEpDVURzbjF5SmZSWHhadUxtSUQyY3NaUE14WjBsNFJGNmlMaVFpWDYwTmJGTmlhUXRxUTlNM010bV9fd3NqZlp5OFlOWmJZYWJ5d2NMclV30gHDAUFVX3lxTE91YVpFWWlZQWNRZk9WMGRaV0JmOGpMOTE1ZEZaU0ZOZHdBa0lWajJybFRkZlotOHJlQ1hJNy1QTXlyNUxQWUlDOThBZWhOU2FnUmVpVDMyOFFNblhLalFBajdTUUdqSGF6M25HUGcyQmhYTy1UNGlvWWdwN0NUVEU0Yk9Ca0s2NlZmNzRJT2ZGbF9JeE9MYV9CMnlJa1BSYUM1NGN0V3VDR3RCQWdqVUc0ay1RbzdzR2JheHh0QS1QUVljTQ?oc=5) |
 | Canada to remove many retaliatory tariffs on US, Carney says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOTUFBZmpMdWFnUDFZdU96SFFrcWhYSkJtOXlsZkxGQ0JST21JZXRGbG9uTTNXQ0d6YlVrcTFsYXFyeWVvUVVra1BzaG5VcmRxZFZNTDE5UXFOd0g2NDNlWWprZEZUek5HbGNpUFhEZWtSVFNXUWdkN0tnVy1waHBsS0hmWFhkRWdaOVJldmc3UjVvcFVZbUVPd3ZWVkx6TzRaV19CRVBfSQ?oc=5) |
+| DeSantis: 'Alligator Alcatraz' ruling won’t ‘deter’ Florida immigration enforcement - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxQMFVJZTB3d0xuTGJ6aGI1U1J1cjJmeUpMTVNjV1JEVW1kYktLM2ctQ3lpSmk2QTRpS1FrdkNwWU5jeEZkSTVJUDJwMzFfb21zd0hNOFl0U3hOd3BES2dqOF9RYWhnMEt3aExEUUQyb2k1MHZ3bk9qRVJmME1Wc1lDcU1FT0tvMEhZYnpOUFFhNHVTUGlxZGpNSXFYMURsNEszbTAxVVNwTG52QTdkTS1MdXZWZWk2cFZRVkpMdXFiTVVCSGFHaGc?oc=5) |
+| Democrats police their word police: Read the list - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPX3M0UFFYcF91UU5Md2Y1U3lTeE9qamdVNTFoZ3Nxak84Y3ZESi0wWGVpR09vc2t6aW9zWnZvLWpnSkwtdFRxY0FUU0p6ZV8xNDlOT1FSX3dvVmRqUkk5U0gtd0JrbEYxZTJZQW1qdEt3QnAwd0M5NVFzaDBQQ1EzVG51Uzhpdw?oc=5) |
 | Trump says Chicago next up for federal crime crackdown - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPbXhhYVdtSEx2eUdTS29GbFVzY0pVbFUwV09VZWhJMm5fRTFtWlh6MXUwQjVydldEcVphZ2hNaW9GWi1pTzBsNkN6YlYyb3VPS1JBSlhUVGtlNE9hY21NR0JHalZsLTZNdHZNZVQtbENqczFEa0F0cnpxeVVDSFV6ZUhWbVbSAYoBQVVfeXFMTVc2YkJzYmhDLU1MYVVjaXFYUHJja3lYY040dlZHekRORzVCYWdsUDV4Vi15LVRvYVhEd0dMZ3ktNTZpVjdNQVZncVNYRlpqWkVKbGxnNzZxRWduTG9aV1lQVFV0bExFcEt0ZTFiY3VURGl1S1BobU5tR1FfZlYzN3htbkxvNTZZc3FR?oc=5) |
-| Epstein files land on Capitol Hill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOZS1NSUs0ZllBLWw4LWJDM0FIanNqSTBkQzhDdmhIYm8tdXJVTHJKYVhoY2RWTUg0emlqNkFMQnB2ZmxSSElpMVNIdERqNTRLTFVvMDZaMkRxME12djB3eFhidmFmaDNyMm9mSEFCQU4tV1ZBMEF2ZUNEZnVQaVJiQ0hmbVZPbnNfUy02Nw?oc=5) |
-| Florida ordered to dismantle Alligator Alcatraz over environmental impact - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPVHlZMmU4X3RpYUgtcmQzQ1RMOGo5alc1N25aWUJuLW9LTjNVNXR5OThpNkdQQVBZaEEtY3BDQTlISmJCQmNkX293SFpwREc1TGJGWGp4MlhKLXpzZ1FvbjBsVXJKVENBZW45SkpLaG4wWFNwOFhzSkJlNDVYYlphSktWWmdSR2tOd2FYTlBKYlJzNjduOHJMM2pUUUdOVm8?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
