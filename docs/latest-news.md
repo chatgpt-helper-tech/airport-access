@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月22日 10:41:20（北京时间）**
+🕒 更新时间：**2025年08月22日 10:49:17（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Israel will begin talks to free all hostages, Netanyahu says | [阅读全文](https://www.bbc.com/news/articles/c754kknw2g2o?at_medium=RSS&at_campaign=rss) |
+| Israel says it will begin talks to free all hostages as cabinet approves Gaza City assault | [阅读全文](https://www.bbc.com/news/articles/c754kknw2g2o?at_medium=RSS&at_campaign=rss) |
 | Five key takeaways from this year's GCSE results | [阅读全文](https://www.bbc.com/news/articles/c70x5j8z34do?at_medium=RSS&at_campaign=rss) |
 | Do asylum figures show if government's strategy is working? | [阅读全文](https://www.bbc.com/news/articles/cx2x371g2k8o?at_medium=RSS&at_campaign=rss) |
 | The race for the two miles-a-second super weapons that Putin says turn targets to dust | [阅读全文](https://www.bbc.com/news/articles/cgeqj1q8gj4o?at_medium=RSS&at_campaign=rss) |
@@ -29,10 +29,10 @@
 | Supreme Court lets Trump administration cut $783 million of research funding in anti-DEI push - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNOE5kNDcwM1NUejdMMVVCSjZrLTZiYUNSV2xjeGtjQmJMc1liNm1RLUl0VkRpNXdubW54QndMZ3dPci1xSV9xZmFaLU1qMFJvRE4xQllOLXVRYm81aUtYd191YlcwdTNLRmoyRTA4Zko2NVJoZUlxTVgybUJvSmpPdi1GWE80WkZsaHVWTm0wSWE?oc=5) |
 | Appeals court throws out Trump's $500m civil fraud penalty - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE44RngzQWxqQTMyRzJGa2FBWTJmenRQZTlGbzVheFVKaVBuSnEzYURSek9rMWRWQUZKZEl6UFhrZ0p2b2dzWlUySXdjSHRiUUFDbUlwQVpLRk96QdIBX0FVX3lxTFBxSXNCREJoZzdVeDVBQ09OUE9xcXM3VGxvdzVGcERENGR0TXpqODF4TXBFTzhDTDJQMm9MZ2hiQ0dKQ3drRk9hamZfS0JlQ3FTbVN6ZlZpeEE2UmdtVWZF?oc=5) |
 | Judge bars Florida from bringing more detainees to ‘Alligator Alcatraz’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQbHZQTkEta2FCNmJZY3VWdmM0N2lqMmlaMkVZa1JVc2NIVXF0YXJPR0REaXFPVkFGX1g4Tm1zeGlweXhnMDF6c3dla0N6UnRRUEVGaUdkN3NjU2d1cEVoU1lhM1ZVUGI0M2dWcW43Q0hUVjFzeGxQLVRpVGZCWlFrc0YzY0RaV2duWUVLQkc5MElZTnJ1QlpBbnNfdm03dHNYaVZHVFYxRW9VTTdPTkp6MW9YVTNLNVlwSk5z?oc=5) |
-| Trump administration to review 55m US visa holders for potential rule violations - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOT3dyd1IzeFhDaVhsbDdzU2U1b1hkZ2s4N2I4T1UxOWhKcXdkUDhCcGlsQnlXdk1HTTdOZzhUVlFWLXdwaDYwaXdKMm9qbE5fSFhBSXlGYjEyVFJPV012VHpKQmlfNGF0OTdtanNhN1pCY3VQMEN5N0xrNmxxUnZZR1NBTE85WHp6?oc=5) |
-| MN DFL is revoking Omar Fateh’s endorsement for Minneapolis mayor - Star Tribune | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5ZNkgybXhqbzdxTXRhYVc4VXowQ2EwUTRSS1ZHZk5weDBidXVNbGpoNVBqQVdIemJGRW91ZjNuYk1oVUExX1IxcW04aGpJdC1NclZqTllQc3QtdUxGSXBROVNmamhCczBoRkRiSjRQdzlmRlU1MXBFRzR1dw?oc=5) |
-| US halts worker visas for commercial truck drivers, Rubio says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOWUVDYjlNYzlMc3hxUFJWLUZDRk50cXVNOUtXUUgzZGtIeGNvTU5zYldvbV9YUXRIbUFxcVhqRDFjSHgzbHFmdUd1MmJreWk5LV9rT0Etdkg3NnZNendEX3RJdzFFSFRjLTZPRlZMaXp2a00tcFM0dlZ1UWJmbjJwT0ZZODl1cmhfTnRvd3o5dFhaT2hfOURTNkNvTzQ3N3ZBMGFHVA?oc=5) |
 | Villanova University says active shooter report was a 'cruel hoax' - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOQ0o3MnpNZUZ6SElwWGppMHBzRlpDeGthU1hla1lnR2EtWlVRSTdwWWM4aEZWc1cwem85Z252cy1YODQ4S0NjV19wT3hSR1gwbVJpMTJKQVg5d2FydUV0bEtKcDVhbjFsRHlxdy1Xd2ZMRHhCbGczeThRQmJGQkpKVGJtdE1YVjQzUmVoZ3hEb9IBlAFBVV95cUxNdEEwenBwbVNDYjNFUTM5TEtGQ3hDM3Zqczg5ZG9pcmNEUWR6YUw1Mzl4TmI5M0RyMGJPZ0R2eDNsWjNBdXJYNjl6aXNOR0lBWmtKVFVRVnVQT2R1bXFSQ28waTdTYl9vcHJMbEFUMkd6d0xYNGhNZmRucmJKT1dadjFkMTMtOWRrVGNSTjlvSUhVRm1i?oc=5) |
+| Judge says former Trump lawyer Alina Habba has been unlawfully serving as US attorney in New Jersey - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOREVOM3gzd1B2SjQ4aXhaZkUyZzk5Zi0xejAtM01rbDlmOElSY0xNSDg3eTNPYlNHc0tQTUNBN193SDlyRjVjdVEyZ3hoM2NSdVoycGRRNVFZMEVGbUtsckpBXzN4enhDVmRhOHQ4ZjZfNF9na2pSZnNKSjVMbVZ2TTJiTTdsMkFydXZJN2V6bTZOY0RpelFxbHdKZnduaEZn?oc=5) |
+| Trump administration to vet all 55 million foreigners with U.S. visas - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOUG8zTVgwSDI3YUYtbzQwRHBWR2NQTXhjT0tMSng0UEc2Yl9SWWJsTUdDXzBMazlXYkZ0T0dXdW9IMmNFNjVTaF9Rb1U2N3RMNGZGRWJQS2I1SEdMeWJiWk0xMHVBM0owT0RycG1ubWQ3REVRNzRRdEowYUVWalJNOHhKMWNvcUNOd29rV1lqU2x5TXBlb29qMDdwa2Z6dnI3M1pNS09TdkthcEU?oc=5) |
+| MN DFL is revoking Omar Fateh’s endorsement for Minneapolis mayor - Star Tribune | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5ZNkgybXhqbzdxTXRhYVc4VXowQ2EwUTRSS1ZHZk5weDBidXVNbGpoNVBqQVdIemJGRW91ZjNuYk1oVUExX1IxcW04aGpJdC1NclZqTllQc3QtdUxGSXBROVNmamhCczBoRkRiSjRQdzlmRlU1MXBFRzR1dw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
