@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 09:40:10（北京时间）**
+🕒 更新时间：**2025年08月23日 09:49:36（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Tour bus rollover kills 5 on interstate highway in western New York - NPR | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFAtWkppUGExb0lTTFdLSW1FZXNDYkxwZGluWURtU3hFbklDNGNxTnVsWWxIaFVTUnNRYTZKbGsxeGF5TG1pTElldzhsOFV4Y2UtbXhTVWJNc3Z4eDhjMmRoa1dHUmFvNXVhT3FnQ2dlUC1kMTQ?oc=5) |
 | Trump says he may send National Guard to Chicago, New York - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUGJmWk1rbUxBMDQwWnkwcUswX1Z5RVRIQ09HaVo5RHBmcWZ5MUJDUkZuUlV1VnlvN1IzSTloX1pJVDJ0ZVNmTnZ0NEh3eGF2Mkd1bm5pSHhXendFaEtCWmM1T0pVUTdzS3d6QWdfSVJFQkJFR3FpQXpFQ3lqaXc3ZHZJSHVoX3RlbTAwU2FmMWM?oc=5) |
 | Menendez family stunned after Erik denied parole; Lyle’s fate still uncertain - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxObHV5bTJwQ3JnQVpWUzB2bnF2d0xWLWVTczdXN0J0NVJETEI5OEtkM19PUVM5YmV1Wk1rb2FRajFIazAyaElmcHpKd3RwRmR2bTRHdWNFZkszXzVPcFRZVmdPalhwcGpraTNNT1VXazY0VFlvckZiazFTdW5zMGpGX2JjMzhKZFc4ZnhsUk1KTE1pckU?oc=5) |
-| US to take 10% equity stake in Intel, in Trump's latest corporate move - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPYlI5bGJMdHByaDJzM0xPUFdmbWZQZV9lQlZrZEo4ZUowQ2hkTnJXLVBxb25EX2NvSzUtanRUYWFna1JmenVldEd1Z1pUdTlhOFF2TFN4ZTJ5OWxKaER2dDNiT3F4ZWxaanVaVFNfSjVTMktDMEpKVXJtWDM0WHdWaEtoMWNUZTc4VWhCUDRYSjFVUTMyZVROTnJ6d0xQUUZOR1pfWU1n?oc=5) |
-| F.B.I. Searches Home and Office of John Bolton, Ex-Trump Adviser - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOc0QxdHJoOVZSQ3FFZ3BQTER4SWdWM01hcGpUbWJ1cktjZG9NdTg3TVFtOE1mUm1pcElWc0FFUG5RbEh2b3BQNllaU0JxYjBpVm9ZczdMTl82Q3ZqdW5zVlNIZnkyWmxvZ1NFMVQ1TlJhbEk4c3Q2QWdUQmk2ZVRZWEE4MjE?oc=5) |
-| The fight over California redistricting enters new phase - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPcjIzQWdDTnBWVVotQW9qV3E4ck5lMElaVkhxY0szX2lDV0wzYW9nRUMtbFRqeW8yY19EY2N5Y3p0UlFuNUdjNnZCa2hFV1NQZ0wtTGtVTzIyRXVxZERlNWVWWDQ0WGdISjBVLVlTeVlhS3RZOWV3WnNsVlYyMWVmckdyNNIBiAFBVV95cUxObGVKNmd6VlQyajZna3kyaTBVVjdRa3lZbHJxN3FEaTdyR3RRSjJNQnlBVjBOdnBGR185a25CTnhPWnR4VWc2OGJISzAzVTJuQlBXMlpNbm9FRzVVSHZPSk43VjJSbk1mT0Q1U043ZnBfZjFQSzV3YW1Kd3pfX05DTzZfTURibDVM?oc=5) |
+| Trump makes deal giving U.S. government a 10% share of Intel - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQTjlqZW4yV0JCVzJQOXY2ZXlGWU1wTExTdllQWGc0VGJnQ0NkYmdBRkg1Z0RSQkdZSG9yamZMLUs5bUtFano3cTd2dkZoZWJGU1Zja2QxbkFSUW93RXhKR01yR2ViXzB4R2o3SmNteGRYekwyQzVQZl9FLVdmTXJYdlNBSXpxTi0tWVUyd2t3akNvV2JMSmlBNFkxZ09KeEluT2F3a2N0VHdGU2l2TVRWcg?oc=5) |
+| FBI Agents Exit John Bolton's Office With Boxes in Raid - Newsweek | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE90U28wbkFrVlBBLS1ibmV0X18ydHJiQW02aTBEQm1janQxWXdnWVN0TUppWF9KRXlPcUVfYlRlM19FckxBYmJxU1Z4MFNGR1htbno5NVdWSmlYNlZVTEwybndPTzkzencyVWY2dDNCVWhOMUdQMGZMZEFKUQ?oc=5) |
+| Love it or hate it? Poll shows how Californians feel about Newsom's redistricting fight with Trump - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPcE03TllHQlVfbUc4MXQ0YmE4RTdpcnl6OXlPcVdENjIxZ2FjUjUwb0xxTWpJZHNKMGY3MDVWQjBFT3AyanptSy1xQmJHM1hDUlBqU2lVNE1Edm5OM3dCaF81UzRLQU9vSG9mYzJKRjNCX19UOHEzbElZNUpjdFItQXdrVDluOUlKcW9fT3hwMXhoSENHQWc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
