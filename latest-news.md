@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 11:08:20（北京时间）**
+🕒 更新时间：**2025年08月23日 11:16:48（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Ghislaine Maxwell transcripts: Epstein associate says she ‘never’ saw Trump receive a massage – live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNVU5rREZuTXJfSjZNVFd5RkN6MFptajlrclRCUHA4eW5ibk9aU3UxYndTVmtLX2JpckRPY3pGamNpMmdaQ0FYOEdIZ1dUeEdjaU5GNjlLNEZlUjJaVWpmT1NkcmhXWGdVN2J5UDZiMW9Falh5UGpZSTMydDdOOVBXQUFWX293c1MwckRJcXNZb0xicEItczU5M2doME9WWTcyemFEOW1MUjl2NTJXZ1d5Zy1NRVlNNmlPckZNTjZ1NUIxZzVCalkzNVRJZ0I5SFpq?oc=5) |
+| Ghislaine Maxwell interview transcripts released by US justice department - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFB3cHlmY2ZUaWxleEM0MEg5MUN5ZTQ1bWoxS3dyb1BNZmxCeTc1cThPcmtvb2ZjZnd1dUpNQzZrRWZ5cmpGZUF3dy1MeWRWU1JnQ1VHajhrZG91d9IBX0FVX3lxTFBzZ3Uwejl3OXdIZTNqY3JXRlphRVlRVFZZSXE0NkRiaFJMQmhpSXc1OXVZQ2JjbXhKWTVVSGJ0TnR3WXMtUWxDVUY0ZW5YSFlNYmlPUFhWRk5QeW5lWmdJ?oc=5) |
 | Wrongly deported migrant Abrego released, may be detained again - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOZk1SaFNrNFpzVjdXV3ZJaTBQVDB1MjN5T3NVN2ZkVmN5MFZzWmtTb0xaV3JHd2J1SV9nQmh6SHJoU3lvX1hkZlNwUHdZM3Z1dVhSOGE0X3gzRktDX1VIby0tOEhEQ3MxU09DNnN4YUhwS0ItdURtWkpQUHdsTzRLU3V2ZmtaLWxXMTlEc0VOZmI1SFFhRy1HVFJkS0F6M080dWpmSko5MnF6SG8?oc=5) |
 | Hegseth fires head of Defense Intelligence Agency, Lt. Gen. Jeffrey Kruse - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNRjBkZDhrNGFtWmV6aHc4TkI1eFd0YjNhVHotTndaLTJtLXVSdEY1LWl1U1BpRG0zeDZzaWU0eGJIS2NPeU05NDh0RDJSdjI0WG15TFA5clNFUnduMjZWSmdOelpyUmsxZUF1SjQtaTJMbm5xYUUtUEY5bFBDOE43TzRjZFpjU0ZMR1loNnNIckliR21YMF9fME5SQTBHeFFnZGxZci0xcGh3S3Rx?oc=5) |
 | Parents of missing baby Emmanuel Haro faked kidnapping, now accused of murder, officials say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOTGFYdkNzYjdfZmYzQzFQakp4R21VUG9QZG9zbDkwbkJoZjRDN29LMjhjQmF1QTBrWnlHZlV1VHluWVR2bEo5R2hqSjZSSUtoWmd1S2s4aGtSYzhrTkRQRzBPRkhoS0dkQ3VCbzJOQmwtZ0liTTVmVTFxRW1mSUl1ZTlPYjJSMURMcGo0eVhuQnEzS3c4WTN1THdTeXh5OUZ2cnlrbkVMSlZGNW5uRThla0NDR2t6UGVILVBzWHdR?oc=5) |
@@ -32,7 +32,7 @@
 | Menendez family stunned after Erik denied parole; Lyle’s fate still uncertain - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxObHV5bTJwQ3JnQVpWUzB2bnF2d0xWLWVTczdXN0J0NVJETEI5OEtkM19PUVM5YmV1Wk1rb2FRajFIazAyaElmcHpKd3RwRmR2bTRHdWNFZkszXzVPcFRZVmdPalhwcGpraTNNT1VXazY0VFlvckZiazFTdW5zMGpGX2JjMzhKZFc4ZnhsUk1KTE1pckU?oc=5) |
 | Independent redistricting champion spends millions against California gerrymander - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQcGJsZnpSYjNOT3hwU1NjdHdSVGlYLWRDSExha2ZEMXZ2T0Fscm1mU2NSRlZSOFlXejg1VURiRm9UYS1RT3ZJNm5tTm5vbUgtSW9KU0R2WUFkaXNyTU5mTFA1S3VPaS1qaEE2eUJ1UDVYNERqbzdWaTVMVl9fWDFldnlDZG90ZGhOWnFEaHhEMEVpV0ltYXBUdW9lQUc?oc=5) |
 | Trump says U.S. government taking a 10% stake in tech giant Intel - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPWXlMOHo1OWFXZlJLbVRNNTBWdTE1b1VyS19HQXQwMWVKWUJXQlF5WmE3TTQ2WmNSSGczRzM3RWx2ZzdBOEU2N25CUEw5LUQwMEJkRmFYOXplYUcydGlLbUpJWTZBRmY5UmNoTk9jelFCdklxdFpuWkp2ZUhqVnVWLVZhbXphYkZDbWZ3SFY5a0dLVk1m0gGaAUFVX3lxTE14OTNCbmR4ZzJUVnFmN0dEdEhaR1RJeDZvT1NjeUk1UndIaHFLanVSenVGM2RLaEVYWURUbWxocFkyS1J2SUdHY3hadk9TZkNPeWVKdGVlSUozSnR1NTZacHNRLTZpVG5ndm1XYlU1bG9jSEhoeHNhdnJobVZNMFF4VFd2aVg0VHN0OUh2X18xRm5NbGRCaE4yZlE?oc=5) |
-| F.B.I. Searches Home and Office of John Bolton, Ex-Trump Adviser - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOc0QxdHJoOVZSQ3FFZ3BQTER4SWdWM01hcGpUbWJ1cktjZG9NdTg3TVFtOE1mUm1pcElWc0FFUG5RbEh2b3BQNllaU0JxYjBpVm9ZczdMTl82Q3ZqdW5zVlNIZnkyWmxvZ1NFMVQ1TlJhbEk4c3Q2QWdUQmk2ZVRZWEE4MjE?oc=5) |
+| ‘Militarization of politics’: How bucolic Bethesda woke up to FBI raid on John Bolton - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPaUZFSlVBdmVTelRBUkhpMEtLTFNHUEp4dXBrUjd2OG40U3ZicGpoVHMzTDh2WE5iV2lUSDJNQzBLSE9ZaHV5RFN5Zm5vb2hEbFZ6MkhmQjFZSGhzcXNlWHVCNExKUjVfOWo1SWswVm1SLXN4U0hTYzd6OXVNd0p0UkpSYncyNEFwRzdqd1lud1bSAZYBQVVfeXFMTk9SdWc4bUdaT1BLeTY4bHZaeEstWmJ5S0ViM2k3YTUxRVV1M0JRTzVFbzlEdTd2MFU0cXFod2tEQV9vUHBLWWRRRi02VUtRTXN4ZlBIUm1CRC0wT0tTMWFLbkdTcEIyV096LVNYU21OMW16eEJNZGNIeDUxTmRPSEFYLVhtRVdxbkFpTlU1dU0yRE1Va19R?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
