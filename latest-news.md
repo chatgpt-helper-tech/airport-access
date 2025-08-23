@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 13:49:15（北京时间）**
+🕒 更新时间：**2025年08月23日 13:56:37（北京时间）**
 
 ---
 
@@ -26,7 +26,7 @@
 | Ghislaine Maxwell interview transcripts released by US justice department - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFB3cHlmY2ZUaWxleEM0MEg5MUN5ZTQ1bWoxS3dyb1BNZmxCeTc1cThPcmtvb2ZjZnd1dUpNQzZrRWZ5cmpGZUF3dy1MeWRWU1JnQ1VHajhrZG91d9IBX0FVX3lxTFBzZ3Uwejl3OXdIZTNqY3JXRlphRVlRVFZZSXE0NkRiaFJMQmhpSXc1OXVZQ2JjbXhKWTVVSGJ0TnR3WXMtUWxDVUY0ZW5YSFlNYmlPUFhWRk5QeW5lWmdJ?oc=5) |
 | Lyle Menendez denied parole a day after brother Erik’s bid rejected - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5XcDhCb0VsNDhnZFNXYUxDR1JZZmxCd0ZuYUZfa1psMWVNRkgyc1UyY0hmb1djeVJPYTJYbDZORFBVYU90WHMyelZnZXUzY3FQNEZPcThfYVB4QkZuWktiaFRBV0M0NzBrNU1NRm1aVVZJdmxDN0pEejZnS1BmT2s?oc=5) |
 | Pentagon Fires the Defense Intelligence Agency Chief - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQWTNIcmg3cS05LTlPbVdvQndIeUZVM3FrN0pLdWhWU1gwNDBJcTE1cHE5VzRSY2dyS0Y1aUE4V1V5Q2d6OG96dEI5dFdQNHZtbGdtbDRGWlJ2eUlyLXR6OS11ODI5RU81WTlQaUREWk9KaGhGWjI3NjJkTHZlOTRkcnl1YzZwbkFZQnpzVy1kMURuVWxGdkE?oc=5) |
-| Tour bus rolls over on western New York highway, killing 5 people, police say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPbWV5X3dFYmE3dzExWnJwaEJQTnBSbzBUbHFnRHhGbUUtdW9WT1FtUkM4d041R2R2ZDdRYVBpdWVJSDlONW5PTUQxUDZvRF9SdGdQMFN1ckFwWnFYbzNsQjh3UUVXcnFvSGIzWlR4S1JqUThJQWxBZWpDUlVXaFd3WkxONNIBiAFBVV95cUxQcmt1d2hHQTZVRkRqZGNHRVlMdm1hZDhwRFZnUjc4WXJvVVU0bXBHaS1aVEo2c3VSVUNCVE9fbW52RzhMV3JnaGtDRUhlN1JtNU81OWVDMTc4OHJDZE8xSnFkVHYxREZvUmNMNF8zX05WVXhjX1hJWWZSX3RYN1hGUEVmeWZjdFNQ?oc=5) |
+| Tour bus rollover kills 5 on interstate highway in western New York - NPR | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFAtWkppUGExb0lTTFdLSW1FZXNDYkxwZGluWURtU3hFbklDNGNxTnVsWWxIaFVTUnNRYTZKbGsxeGF5TG1pTElldzhsOFV4Y2UtbXhTVWJNc3Z4eDhjMmRoa1dHUmFvNXVhT3FnQ2dlUC1kMTQ?oc=5) |
 | Parents of missing baby Emmanuel Haro faked kidnapping, now accused of murder, officials say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOTGFYdkNzYjdfZmYzQzFQakp4R21VUG9QZG9zbDkwbkJoZjRDN29LMjhjQmF1QTBrWnlHZlV1VHluWVR2bEo5R2hqSjZSSUtoWmd1S2s4aGtSYzhrTkRQRzBPRkhoS0dkQ3VCbzJOQmwtZ0liTTVmVTFxRW1mSUl1ZTlPYjJSMURMcGo0eVhuQnEzS3c4WTN1THdTeXh5OUZ2cnlrbkVMSlZGNW5uRThla0NDR2t6UGVILVBzWHdR?oc=5) |
 | Trump floats "regular military" tackling crime with crackdowns in Chicago, NY - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5qemhLQ2pVMFM2TnR3T3VaeVVEb2IxT3daSExyZmluaXc3UV9weE1Gbkx2NllTd0s0ZUlGUms0ejBHanA5czlGeFBLYWFJM1FKQ3JSYXRQOWZoSFMyR29tOGktQk5sQ0NyckpRdVdGNmNBb2hSYllxT093?oc=5) |
 | Independent redistricting champion spends millions against California gerrymander - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQcGJsZnpSYjNOT3hwU1NjdHdSVGlYLWRDSExha2ZEMXZ2T0Fscm1mU2NSRlZSOFlXejg1VURiRm9UYS1RT3ZJNm5tTm5vbUgtSW9KU0R2WUFkaXNyTU5mTFA1S3VPaS1qaEE2eUJ1UDVYNERqbzdWaTVMVl9fWDFldnlDZG90ZGhOWnFEaHhEMEVpV0ltYXBUdW9lQUc?oc=5) |
