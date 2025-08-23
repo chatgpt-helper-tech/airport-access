@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 22:24:12（北京时间）**
+🕒 更新时间：**2025年08月23日 22:33:17（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump’s DC takeover produces moderate drop in crime — and huge spike in immigration arrests - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1BaFlvdWt0dWQzaVBoaEt0QXlEcDZBUVdLQUdiblE3cVMweTRjWVhZN2l2OVBheVR3QWlraWdIbVR4T1ZkUFMxWk5KVUVMOW1DMkxUcDVnMnBUVDE4b2NIMk9tYnl6aHFZR3lGSzhKZHR2SUpFRy0wcDJLUE4tYzTSAYQBQVVfeXFMTVNodGZpZS1laFFCaUVoY1c4VGM2WGlJbVBBVmJ3QVFLWmlYMXYxbGZmMEJUT01hLVdXTmg0OEIzWnFoY3pSdGpkcUhPSnZTVEtJVzEzdjdlV2NGVW80RFRHbXpySXI3VFQ4SnVzNmFRR3dkYTZpN2RhN25lRDB3OHFKNEFN?oc=5) |
 | Trump repeatedly pointed finger at Bolton in the days before raids - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQZG94cnh6dkVHdHdEemFMaHltVUFrQzdrREV0NmZFWUZXRU0xSV9EOVlzVFhaQ0p5cXVTRlJxcWNXVXgtOVdoRzdEeFhvSTRfY1FqRGdta2RaSndfNjRtV0NiU1BsUm51TnlXaDhXeEZORVA3QTJWMHpmdTAwQUQ4S0lXU0VOdlV6UXBaX05OUFNSUU56?oc=5) |
 | National Guard in DC to carry M17 pistols, conduct law enforcement duties, task force says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNeHY0aHpTaTEyREc0bFI1NEFfXzNmb0FiTFhTSDNsaVBjdG90NVBKc1BmOU5lSEExS1BUWlUweUVpejNSSTJVNi1YMFpFVWdwajR5YTdtbjFCX0dTNzhqNmxheXJPcmlGYVpuQVljSWlqY0dwT05KVUVIclZVUXJvbUdwQnQwZHItWUl4Rm5vaXl1YjVSSDhMRlVkcnN1bVRSYVFFdGdENkgxRkpSOXp3UVB30gG3AUFVX3lxTFAwb0djVUZfTS1NT3o3NlBsa01nSV9ZaHFzRkhWS3lPLUtacnRLaGNfTnZ0QUh5QmFhNk9qQjdFS0tQOWt5U1c4N0ZZQ05MMWRWS2xBV0RmRlhLcGlXTTlZUzdGMGhGbVpzbEx1d1ZzVy0zQm9xcWtaTHBtd2VWaWlHUE5wU2llZFFSQjhBb0FmaWFpRGMwQkhDQ2VUNGgzRzUtd3JuQ2dVd1AtX2ctYVNZX3RaNHZvRQ?oc=5) |
-| Schwarzenegger’s mission: terminate partisan rigging of California’s electoral maps - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOVzFEbGpXYTNrd1pHRHBjcE1zR2FtZnVmOTNHSk5kSmljOTI0VTlpX3UxRldTazZUUks0TXdHdGw5dkFVRXpvOHpWc2VVYmYzUnJzOHc3Wm9WZm5YX1VtVGNYZF9SZTdNMDJaSW1senhXYjYwYm52NWF0akxheW5VMEZhNEoyY2JsY3EzRzJITzk0d0wyOGc?oc=5) |
 | Justice Department won't defend grants for Hispanic-serving colleges, calling them unconstitutional - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPWEh4WVlEWXg5aWRVbXJna0RuOFU5ODlBS095bE5UM1hQdVZFZzJ5MWM3b0VCMDZQYzBrbHphM0k1N2Z4bDdFbTZvQlc3YjRSV1JJYldscXRxc1RFcHVVMXFaMHRZTGpRSzFDb1R0d25ucC1wdlBxYzdyUWlGeFRXTFFrbVBOVHhXX3lWTi1WbG1JSmVVRFJCSVNXTUoyNXE4WHVuaHlqOE9lajA5cVpnVQ?oc=5) |
 | Wrongly deported migrant Abrego released, may be detained again - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOZk1SaFNrNFpzVjdXV3ZJaTBQVDB1MjN5T3NVN2ZkVmN5MFZzWmtTb0xaV3JHd2J1SV9nQmh6SHJoU3lvX1hkZlNwUHdZM3Z1dVhSOGE0X3gzRktDX1VIby0tOEhEQ3MxU09DNnN4YUhwS0ItdURtWkpQUHdsTzRLU3V2ZmtaLWxXMTlEc0VOZmI1SFFhRy1HVFJkS0F6M080dWpmSko5MnF6SG8?oc=5) |
 | Mercy Flight reflects on teamwork after following Thruway bus crash that killed 5 people - WGRZ | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxOMTZvaHlKYmhDT1kyOFpCcUNubnFfdXhkWVJiUTdVLTN2Q1RGdWhYa3dQREdrTUE5bFBvZ3RVOUVlUmNHMTJia3hMSjRYT0llQXZsYjZDaGY1RmhyYzNZTFhEbkNEOWFxUnZDSTZOel9tZHBndWNKeFg2MWRuTk5OQ200QnZTSmxwYzRSOG9uR0NFT3paTndlbkhUUGlkVlFLZ1VCaTl4a1Nvc1hkUmZlU0g1Rl9Tb2J5Z1oxQ1ZyRTZUX3RE?oc=5) |
+| Home Depots become prime locations for immigration enforcement - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxObHRBeHJSODNxNFYwLWFBOE1GVWx2UDB4dkNWbjQ0d1prWXo1RVpjUEdrTlJDdjc4a1FNdHpMVVFZRmI3bUl5cUxEbW5fYlR5MU1xX3o3T2tYdlhreGFpUkc5Y0stSWJZYmRHeEJuSThrOWNRX29nZURWQkhySzdkLVF3TnpFaTJjejg5aU5SRnliX1d3Zm9xdjZMUGwtNjM5U3RtQ09tdUp5Z9IBVkFVX3lxTE9LelctMG9WZlB2Qi15UzQ1Y2ktTFVYT29vc0xpcnNUbmY5SWE2ZkdFYnFnaGdxOWc5QzVzdC1BNFFPdXVFT3VOVU9QSHJCVTNSQkJhTGdB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
