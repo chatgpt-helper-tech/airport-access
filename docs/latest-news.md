@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 09:17:45（北京时间）**
+🕒 更新时间：**2025年08月23日 09:24:23（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Menendez family stunned after Erik denied parole; Lyle’s fate still uncertain - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxObHV5bTJwQ3JnQVpWUzB2bnF2d0xWLWVTczdXN0J0NVJETEI5OEtkM19PUVM5YmV1Wk1rb2FRajFIazAyaElmcHpKd3RwRmR2bTRHdWNFZkszXzVPcFRZVmdPalhwcGpraTNNT1VXazY0VFlvckZiazFTdW5zMGpGX2JjMzhKZFc4ZnhsUk1KTE1pckU?oc=5) |
 | FBI Agents Exit John Bolton's Office With Boxes in Raid: Live Updates - Newsweek | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE90U28wbkFrVlBBLS1ibmV0X18ydHJiQW02aTBEQm1janQxWXdnWVN0TUppWF9KRXlPcUVfYlRlM19FckxBYmJxU1Z4MFNGR1htbno5NVdWSmlYNlZVTEwybndPTzkzencyVWY2dDNCVWhOMUdQMGZMZEFKUQ?oc=5) |
 | The fight over California redistricting enters new phase - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPcjIzQWdDTnBWVVotQW9qV3E4ck5lMElaVkhxY0szX2lDV0wzYW9nRUMtbFRqeW8yY19EY2N5Y3p0UlFuNUdjNnZCa2hFV1NQZ0wtTGtVTzIyRXVxZERlNWVWWDQ0WGdISjBVLVlTeVlhS3RZOWV3WnNsVlYyMWVmckdyNNIBiAFBVV95cUxObGVKNmd6VlQyajZna3kyaTBVVjdRa3lZbHJxN3FEaTdyR3RRSjJNQnlBVjBOdnBGR185a25CTnhPWnR4VWc2OGJISzAzVTJuQlBXMlpNbm9FRzVVSHZPSk43VjJSbk1mT0Q1U043ZnBfZjFQSzV3YW1Kd3pfX05DTzZfTURibDVM?oc=5) |
-| Canada to remove many retaliatory tariffs on US, Carney says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOTUFBZmpMdWFnUDFZdU96SFFrcWhYSkJtOXlsZkxGQ0JST21JZXRGbG9uTTNXQ0d6YlVrcTFsYXFyeWVvUVVra1BzaG5VcmRxZFZNTDE5UXFOd0g2NDNlWWprZEZUek5HbGNpUFhEZWtSVFNXUWdkN0tnVy1waHBsS0hmWFhkRWdaOVJldmc3UjVvcFVZbUVPd3ZWVkx6TzRaV19CRVBfSQ?oc=5) |
+| Famine is declared in Gaza: What does it take to make this pronouncement? : Goats and Soda - NPR | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxORXotSTVJOHJaRkZGTjFNV01KanhJcUZQNlJDQjJlRUxZVTRFeHZvV3h5TU51dEVPWUdaNzREZlY3amhVTGRtcVpING1tOFBMbWMzLUlNem9LR1AzWFJYZUhDQTA2dDJ5ZzRYQlpUd2RCaEtFcndhcHluRGV3NE1SX2FSY1hZd0ZGWGxyNHF1YzBWMDgtRXRsQVU0Y19zMTJ0ckJNMng2czd4V08zVl9WNHNoZWk0VXdvcDNaUWpDOGxmMUgwV1Nyc1lTOENzelIyWE1r?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
