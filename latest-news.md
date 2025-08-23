@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 12:41:43（北京时间）**
+🕒 更新时间：**2025年08月23日 12:49:27（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Ghislaine Maxwell interview transcripts released by US justice department - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFB3cHlmY2ZUaWxleEM0MEg5MUN5ZTQ1bWoxS3dyb1BNZmxCeTc1cThPcmtvb2ZjZnd1dUpNQzZrRWZ5cmpGZUF3dy1MeWRWU1JnQ1VHajhrZG91d9IBX0FVX3lxTFBzZ3Uwejl3OXdIZTNqY3JXRlphRVlRVFZZSXE0NkRiaFJMQmhpSXc1OXVZQ2JjbXhKWTVVSGJ0TnR3WXMtUWxDVUY0ZW5YSFlNYmlPUFhWRk5QeW5lWmdJ?oc=5) |
-| Live Updates: Lyle Menendez Loses Bid for Parole Three Decades After Murdering Parents - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE9selNoMDd4S2tRMkZsWUJnQmRabkhLdmVlM2FCNVNLbG8wbG45V0xkQVJ1MHQ4aFJBRkJIa1ZPYV91ejlTOG42aGEtU1RhWlhjZ1BBMDFYM0dxdHZyQ25hMGRrQW5uLUZFNnFaejZHblhuT2hU?oc=5) |
+| Lyle Menendez denied parole a day after brother Erik’s bid rejected - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5XcDhCb0VsNDhnZFNXYUxDR1JZZmxCd0ZuYUZfa1psMWVNRkgyc1UyY0hmb1djeVJPYTJYbDZORFBVYU90WHMyelZnZXUzY3FQNEZPcThfYVB4QkZuWktiaFRBV0M0NzBrNU1NRm1aVVZJdmxDN0pEejZnS1BmT2s?oc=5) |
 | Hegseth fires head of Defense Intelligence Agency, Lt. Gen. Jeffrey Kruse - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNRjBkZDhrNGFtWmV6aHc4TkI1eFd0YjNhVHotTndaLTJtLXVSdEY1LWl1U1BpRG0zeDZzaWU0eGJIS2NPeU05NDh0RDJSdjI0WG15TFA5clNFUnduMjZWSmdOelpyUmsxZUF1SjQtaTJMbm5xYUUtUEY5bFBDOE43TzRjZFpjU0ZMR1loNnNIckliR21YMF9fME5SQTBHeFFnZGxZci0xcGh3S3Rx?oc=5) |
-| Tour bus rolls over on western New York highway, killing 5 people, police say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPbWV5X3dFYmE3dzExWnJwaEJQTnBSbzBUbHFnRHhGbUUtdW9WT1FtUkM4d041R2R2ZDdRYVBpdWVJSDlONW5PTUQxUDZvRF9SdGdQMFN1ckFwWnFYbzNsQjh3UUVXcnFvSGIzWlR4S1JqUThJQWxBZWpDUlVXaFd3WkxONNIBiAFBVV95cUxQcmt1d2hHQTZVRkRqZGNHRVlMdm1hZDhwRFZnUjc4WXJvVVU0bXBHaS1aVEo2c3VSVUNCVE9fbW52RzhMV3JnaGtDRUhlN1JtNU81OWVDMTc4OHJDZE8xSnFkVHYxREZvUmNMNF8zX05WVXhjX1hJWWZSX3RYN1hGUEVmeWZjdFNQ?oc=5) |
+| 5 Dead After Tour Bus Crashes on Western New York Highway - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5ZcmVqT3J6RjlOb01IRlhGLTIwQkNZTlh4TjBqM1ZjWUliWVRIU1hXX0h5c2Z1QUFsNTlTbFRteE00eVEydE1oZUxaSzlDSUJIMXdGQ0ZsaG9fT1E3aUJ3N1VrN2s3Qm5DaF9oci1TYzZzeHM2ZC1SWGhWY0I?oc=5) |
 | Parents of missing baby Emmanuel Haro faked kidnapping, now accused of murder, officials say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOTGFYdkNzYjdfZmYzQzFQakp4R21VUG9QZG9zbDkwbkJoZjRDN29LMjhjQmF1QTBrWnlHZlV1VHluWVR2bEo5R2hqSjZSSUtoWmd1S2s4aGtSYzhrTkRQRzBPRkhoS0dkQ3VCbzJOQmwtZ0liTTVmVTFxRW1mSUl1ZTlPYjJSMURMcGo0eVhuQnEzS3c4WTN1THdTeXh5OUZ2cnlrbkVMSlZGNW5uRThla0NDR2t6UGVILVBzWHdR?oc=5) |
 | Trump floats "regular military" tackling crime with crackdowns in Chicago, NY - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5qemhLQ2pVMFM2TnR3T3VaeVVEb2IxT3daSExyZmluaXc3UV9weE1Gbkx2NllTd0s0ZUlGUms0ejBHanA5czlGeFBLYWFJM1FKQ3JSYXRQOWZoSFMyR29tOGktQk5sQ0NyckpRdVdGNmNBb2hSYllxT093?oc=5) |
 | Independent redistricting champion spends millions against California gerrymander - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQcGJsZnpSYjNOT3hwU1NjdHdSVGlYLWRDSExha2ZEMXZ2T0Fscm1mU2NSRlZSOFlXejg1VURiRm9UYS1RT3ZJNm5tTm5vbUgtSW9KU0R2WUFkaXNyTU5mTFA1S3VPaS1qaEE2eUJ1UDVYNERqbzdWaTVMVl9fWDFldnlDZG90ZGhOWnFEaHhEMEVpV0ltYXBUdW9lQUc?oc=5) |
