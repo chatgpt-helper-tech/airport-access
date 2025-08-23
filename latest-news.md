@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 20:41:13（北京时间）**
+🕒 更新时间：**2025年08月23日 20:49:40（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Ghislaine Maxwell interview transcripts released by US justice department - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFB3cHlmY2ZUaWxleEM0MEg5MUN5ZTQ1bWoxS3dyb1BNZmxCeTc1cThPcmtvb2ZjZnd1dUpNQzZrRWZ5cmpGZUF3dy1MeWRWU1JnQ1VHajhrZG91d9IBX0FVX3lxTFBzZ3Uwejl3OXdIZTNqY3JXRlphRVlRVFZZSXE0NkRiaFJMQmhpSXc1OXVZQ2JjbXhKWTVVSGJ0TnR3WXMtUWxDVUY0ZW5YSFlNYmlPUFhWRk5QeW5lWmdJ?oc=5) |
-| Lyle Menendez also denied parole, will stay in prison with Erik Menendez - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNc3FYb1FoX2w0YTVFXzh1NEx0M0JVbzlpY1I4VHJiTWZ1eVNmSUJWdlQ2azJsQkcxWHlybDRidC16d2thZ0ZIbk53V3ZCNWNyYl9Pd3M0QnBNbzBtcGdmTWc3bjBkRTY1TEtHckw5ZGpRcXoyUVhxbHVmNDNtdEVLWGFSSlNILThYWlc2OU5CTURWbTd4UHZNbzA2OWJUOFXSAaQBQVVfeXFMTUI2UzNUSHNFSFNhbXlHYW1qYk9VVHlXUmkwdUgxZVdPQWxnMUwwODRlYWJyNjB0aGZFT2xkU0N1b3RXemRFSmM1QVBKb25Md0dNdk9VUWhDT3hFUlFUY0NVU1J5azZaNmxoeHpYcGhweHlBSFJQMndJT0pWcWZ0TTlQRUYzSmpnTzdZMEdKUkZZdmNNcDJCSmRVVWQtQ0ZZRHpWWk8?oc=5) |
-| Texas Legislature Gives Final Approval to Redistricting Map Favoring Republicans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTFBwekdMQ1g2NG5Id1JyNXZ0NUpTSEl2eWdsNjdkOG9CTFQ3eFVXaXJaUFdCRUdZMmRMLWxLRVNvMEFDck5ESllfSDdCem41dVJZWkZzQUpLV1ljaFdKVG5jZEpqZ2lSZDVkQ0E4dkJDTQ?oc=5) |
+| Live Updates: Lyle Menendez Loses Bid for Parole Three Decades After Murdering Parents - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE9selNoMDd4S2tRMkZsWUJnQmRabkhLdmVlM2FCNVNLbG8wbG45V0xkQVJ1MHQ4aFJBRkJIa1ZPYV91ejlTOG42aGEtU1RhWlhjZ1BBMDFYM0dxdHZyQ25hMGRrQW5uLUZFNnFaejZHblhuT2hU?oc=5) |
+| Texas redistricting fight shakes up battle lines for both parties in key US Senate race - AP News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNNy1JeURCdjBNTE5JdnJhb1lLS21sWWpkUURMMTQ1TnJjaWd1V3ktYzQ0Ym9Bbmowalhja0t4SW05SEZyTVR4d21hemFlcGwzMnQyVVVQdGhpa01udEdlb3FPa2RLZG9ROWFGUkw2Zl9zdTc3bEhXTDN1MzEtS2h3RklVN1ltZw?oc=5) |
 | Judge blocks Trump from cutting funding over 'sanctuary' policies - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOVkYzS1VQUnE2WnlJZWxfYUVQUlhtemhJd3Rxc1NTOEg5OURGc0l4OTlNbjFJQmNPeVlpaFR5cWVFbkNlQzAwRHE0SXJkR2JNc1lqQzdkVGxVX1I5c3h2TUJpX29kZFlTQmJTUnFxWUJ2Um50cm14cGgwaEVid3JhVHZQZlBGQTdpQUNweUtab29KRElEZTZ2OFdKUXRYS3c?oc=5) |
 | In latest purge, Hegseth removes head of Pentagon intelligence agency, other senior officials - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxQNEJuTzNIX0VZUmxTVDJJTVNieWRESkdfcUJQTW9YWTk3aHZjTFpMLW11STlXR1E5Vm1BQ3hEb0UyYTZxQzBqNkk2cTRrQ2gyZmN2UkRPVVRmb1R6a2p5ZFFDUWxQV0RIVUx6UnlnMUV0X21OOU9pbHRZOVViWG9yTTdSaEYzQkowS0lvMDVmd1l3S3ZVQVJoM3J4NF9hM2IySDZkTnIyWVo0WmJ4cUpZV2dqUmFZUHFwT3hfaw?oc=5) |
 | Trump floats "regular military" tackling crime with crackdowns in Chicago, NY - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5qemhLQ2pVMFM2TnR3T3VaeVVEb2IxT3daSExyZmluaXc3UV9weE1Gbkx2NllTd0s0ZUlGUms0ejBHanA5czlGeFBLYWFJM1FKQ3JSYXRQOWZoSFMyR29tOGktQk5sQ0NyckpRdVdGNmNBb2hSYllxT093?oc=5) |
