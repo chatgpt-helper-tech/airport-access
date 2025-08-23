@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 08:33:33（北京时间）**
+🕒 更新时间：**2025年08月23日 08:41:36（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Tour bus rolls over on upstate New York highway, killing 5 people, police say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPYkExcFpfZUp2LWozNWtaT1FTYlQ4eXhJcE1xTmNCUGlfYXllRWsyQ2pmRnpIVGc5c2xiUGFaMFhwWHFhMXVuLUY1S3BXeklBcG8yZW5QVl9VaHpDeThZT0pmVEpIR1ktdWxzeDk5QjJaVkp5cHB3ZFUzS3JDUTBlc0Eyc9IBiAFBVV95cUxPR3huNlZ0cVFoenVoUHhDa2lKNTJqWU52U2VjLXJrNTMxU3hXclVONUhMem9IWVlLb3lsTGtCYTBxMFFPZmJma1p3NFU2OUtsVlFzX2gxZ2Z6UHU4c1ZkRnh6QXNlSUFlaHdTUzhyQWpoelI1ZzlLcmxtbGhCamFMYWYzeGF6a0wx?oc=5) |
 | Trump says he may send National Guard to Chicago, New York - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUGJmWk1rbUxBMDQwWnkwcUswX1Z5RVRIQ09HaVo5RHBmcWZ5MUJDUkZuUlV1VnlvN1IzSTloX1pJVDJ0ZVNmTnZ0NEh3eGF2Mkd1bm5pSHhXendFaEtCWmM1T0pVUTdzS3d6QWdfSVJFQkJFR3FpQXpFQ3lqaXc3ZHZJSHVoX3RlbTAwU2FmMWM?oc=5) |
 | Menendez family stunned after Erik denied parole; Lyle’s fate still uncertain - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxObHV5bTJwQ3JnQVpWUzB2bnF2d0xWLWVTczdXN0J0NVJETEI5OEtkM19PUVM5YmV1Wk1rb2FRajFIazAyaElmcHpKd3RwRmR2bTRHdWNFZkszXzVPcFRZVmdPalhwcGpraTNNT1VXazY0VFlvckZiazFTdW5zMGpGX2JjMzhKZFc4ZnhsUk1KTE1pckU?oc=5) |
+| Poll: Nearly half of voters support Gavin Newsom’s redistricting counterpunch - Sacramento Bee | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNT3dzQXFvOVNoUXVCTDExY2pyWGtab3J2YjlNMkoteWh4UWJXNElZdmxLMVRYSC1IVXhKT3pBUXZPNGUwTzl5cGZGRlBBTTh4NzdMRHhnU0d2cVFNa0E1VjBfYTJrMnd2RHpPOHlrOGRUc1ZnVUVqYlRIYTdTWlhEYjZXeXUtMUJDYUlF0gGLAUFVX3lxTE5RaHlxZXY2OG1Vajg3MS1rNkhWZFpMNEdnMDVjdWd4M2VZV1gxaXBuRnZPWkxSWjlhb1RuZUZkV2MyemtlQ2IzdGxuU2xoTko0dUpJc2QxYkhhN1hocnY2TE9NRUIwWnlOdjYyX194X3FucGNXTERZVEFpU3E2QlRPUjhBSEszMGE1WXM?oc=5) |
 | John Bolton was not targeted for criticizing Trump, Vance claims after FBI raid - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOb1RibzhLbENXZmM0d19waUFrQ0doMG90Z2hFRjI1UkpYbzdTYkRNUGZiNkIteEp3eXZ3QUk0djhWUWdqM1pfdVdlUFpIZHRlWEVxVE1NRHZJVkk3UElReS12SkRzV0IxT3NCR2lCcE1KcVBrTVVlMTQ5V0w5bndUcHY3Snl3OUFlSTAw0gGQAUFVX3lxTE1RWGF4SENtRktSUWRWRnR4eVozYV9IcXNwa0RKZ0NBZU9jZUN3U0lVWGdhNGJLV1R3dzAyc2VRYUo3S0dqemdxZnlWWVo2Ny1fem1WdWIzRXJVQU0teGkzRW1veFd2Z0JQS0tRbi05d3pING03eU1DNjFDQ3g1bUtETnB2Sm5HUHROX3NGODRIVg?oc=5) |
 | Florida ordered to undo Alligator Alcatraz due to environmental risks - Axios | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPWUhCM2s4UW1VcWF1ZVRXeU1la1ZVeFM5dWFEOU42WkZkYzBKdUZhTHl4UzlxdXF5MXhqVU5NOXJPZ0NINHVRaWY2VXh6Z3k3ZmdDZUlTTjRBNm91VW1vaW93SXp6SG1EY1d6dURhQVdlOUYtbFRtckVCajZ1dENLejNFcU8xSWtKYUxlbHExMnF0MU96MzN6RA?oc=5) |
-| Canada to remove many retaliatory tariffs on US, Carney says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOTUFBZmpMdWFnUDFZdU96SFFrcWhYSkJtOXlsZkxGQ0JST21JZXRGbG9uTTNXQ0d6YlVrcTFsYXFyeWVvUVVra1BzaG5VcmRxZFZNTDE5UXFOd0g2NDNlWWprZEZUek5HbGNpUFhEZWtSVFNXUWdkN0tnVy1waHBsS0hmWFhkRWdaOVJldmc3UjVvcFVZbUVPd3ZWVkx6TzRaV19CRVBfSQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
