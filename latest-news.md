@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月24日 06:08:04（北京时间）**
+🕒 更新时间：**2025年08月24日 06:17:40（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | California’s governor has become an anti-Trump comedian. It’s 2017 all over again ｜ Dave Schilling - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPQmUtcjR5M0tYY3NJUlVYM2VfNHlnWGdRSkpUb0xjeTEweXBMZzM5TXg2bmVhNUNSdml2SGdKbndXdDYtUXgtbi13MldibVM5Y1ZZUFlha004bGRZTjJyVlc3bk45RUJtUEtFWW1PZDJvWHp0dnR2RHpnNDFmdGFwUWd0NXVaUQ?oc=5) |
 | The Menendez brothers were denied parole. They have to wait at least 18 months for their next chance - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPb1JVOEZOVDNFN1pGMk1zSnppeWpuWHBsZldVUkpFRlZWU2F5ZlFVb0dNWlZLM1RMekEzTGhJS0FCbTlqSUN0UXNwRzd3SGItNWd4RERYV0hZV29tX0hSTUpfbzMwTDhCcnhVc2p4ZzVEbERJazE0SzJRdG50b1hUSTdGa3o3czBIR3BKVGE4ejcwT2ZBakxFdmhfTDRfN2twLWZqQ3RtcmZYcGpQZVZF?oc=5) |
 | Frustrated, Trump signals pause in his Ukraine peace effort - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxONnozbXlVb1k1emZuS0VPVnR6RnJEYVBIek9CNjVabjZFUUhHUDBMUTRWS1F1bHpaM2ltU2t6dE9mUVh5WGhpVzlKTzNMZ2hzV1BleEgzRTZmcmZJdXVxWHg2UGl2MTQ0aWtSSWEyZzY4cGZaZjYxTTZqakVWY2dDODZWOA?oc=5) |
-| 5 Takeaways From Ghislaine Maxwell’s Interview About Jeffrey Epstein - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxON2FuaTZDajAyczVBNjh3MEZQemlhM1g3MkNTb3IzOEJQenlFZWZiN1RQWlUxOGdudkktV2N4a3ItZnFvUkFjN0lNZEhULWUzYzc5VmNIR2F4NGJTR0x6RjhBUmxfYTM3TTliQ3FjU3hjUkdrQ1U2cWJjczh1Z0daQ1piWUVwcVhZYUhFS2k1Wm1UQThD?oc=5) |
+| Trump Appeal in Fraud Case Likely Despite His ‘Total Victory’ - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOYmZ2c1F2RUd1MEdBd3JXRkc2WWFMczM3bmQ0alBxcFVSTlMxalVNSll2M0pfblhDYmVtUXRncXNuQkhCejY5eWNzMnZyd3Zjd0pzd0Z0UkJlbjNpcU51M25fNm4wM0VqalJ0NDh5bGlKTWNnelJUeTBUZGEwLUp3Qno3Ynd2SGpGbWd3OE01dUFadlhMVmw0ZkZWc0tNdGVCaUdfWVI3VmZSOGVyTTd6Nw?oc=5) |
 | The redistricting war between Texas and California is about to jolt the midterms - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNaUk3am5pZzJ3SjlYa0kwampkX1VpdWRRVmNTQy1CbGQxRjhTOWNZbDR6OTlra2hYalNPZ1FXTFliQTNvbkJkWW1TbS16ZENLQ0tpWExfZnBrOW9Fb3JmZE9kYW9JLUVCbTJSNXFNWll3d3ZFMVNoTzNRZ0lCdWprVVJkU0xtbjVhTW9fWVEtbU82WlBUVUVLYzlpZ1ZUVW8?oc=5) |
 | Judge blocks Trump from cutting funding over 'sanctuary' policies - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOVkYzS1VQUnE2WnlJZWxfYUVQUlhtemhJd3Rxc1NTOEg5OURGc0l4OTlNbjFJQmNPeVlpaFR5cWVFbkNlQzAwRHE0SXJkR2JNc1lqQzdkVGxVX1I5c3h2TUJpX29kZFlTQmJTUnFxWUJ2Um50cm14cGgwaEVid3JhVHZQZlBGQTdpQUNweUtab29KRElEZTZ2OFdKUXRYS3c?oc=5) |
 | Justice Department backs lawsuit seeking to end grants for Hispanic-serving colleges, calling them unconstitutional - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOR0p2aG9KM3diR2xWVFFfWGpJWGhsUEoxa18yb1F5M3pNTTgtLUw0QWxMLV9rbmdDU3NXNnRTVDNERVNTNUJhVlpVdW5tcXRXMHpQUTVSRUVaWHZzdFdIT0YyZ0hpZ1AwMmY4TEZmSE54WmtyUkJsM0JwMnRlbXhlWVZRREI0bGdYVFpkQmp2Mnh1WkFx0gGaAUFVX3lxTE5pTTV3YXl4MWdXbV9kSm96RDlnOU1zajVoMzBfaEY0VFp6OWxQSWVHb3JjZC1ybzFGR2l6Ym5paHhVbmYzc3NYOFQ2dHYzTFZScUJDSTRZWllqbU9YbE9ZNk1HZHI2cEtJY1otREpsWlVreENqeFppTV9QVVJQRDZVV0J0Tzh4QktDRXF4alBYYjNBRXBJcnpBT0E?oc=5) |
