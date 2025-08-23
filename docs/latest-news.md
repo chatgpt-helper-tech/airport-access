@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 19:40:28（北京时间）**
+🕒 更新时间：**2025年08月23日 19:49:22（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| 5 Takeaways From Ghislaine Maxwell’s Interview About Jeffrey Epstein - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxON2FuaTZDajAyczVBNjh3MEZQemlhM1g3MkNTb3IzOEJQenlFZWZiN1RQWlUxOGdudkktV2N4a3ItZnFvUkFjN0lNZEhULWUzYzc5VmNIR2F4NGJTR0x6RjhBUmxfYTM3TTliQ3FjU3hjUkdrQ1U2cWJjczh1Z0daQ1piWUVwcVhZYUhFS2k1Wm1UQThD?oc=5) |
+| Ghislaine Maxwell interview transcripts released by US justice department - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFB3cHlmY2ZUaWxleEM0MEg5MUN5ZTQ1bWoxS3dyb1BNZmxCeTc1cThPcmtvb2ZjZnd1dUpNQzZrRWZ5cmpGZUF3dy1MeWRWU1JnQ1VHajhrZG91d9IBX0FVX3lxTFBzZ3Uwejl3OXdIZTNqY3JXRlphRVlRVFZZSXE0NkRiaFJMQmhpSXc1OXVZQ2JjbXhKWTVVSGJ0TnR3WXMtUWxDVUY0ZW5YSFlNYmlPUFhWRk5QeW5lWmdJ?oc=5) |
 | Lyle Menendez also denied parole, will stay in prison with Erik Menendez - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNc3FYb1FoX2w0YTVFXzh1NEx0M0JVbzlpY1I4VHJiTWZ1eVNmSUJWdlQ2azJsQkcxWHlybDRidC16d2thZ0ZIbk53V3ZCNWNyYl9Pd3M0QnBNbzBtcGdmTWc3bjBkRTY1TEtHckw5ZGpRcXoyUVhxbHVmNDNtdEVLWGFSSlNILThYWlc2OU5CTURWbTd4UHZNbzA2OWJUOFXSAaQBQVVfeXFMTUI2UzNUSHNFSFNhbXlHYW1qYk9VVHlXUmkwdUgxZVdPQWxnMUwwODRlYWJyNjB0aGZFT2xkU0N1b3RXemRFSmM1QVBKb25Md0dNdk9VUWhDT3hFUlFUY0NVU1J5azZaNmxoeHpYcGhweHlBSFJQMndJT0pWcWZ0TTlQRUYzSmpnTzdZMEdKUkZZdmNNcDJCSmRVVWQtQ0ZZRHpWWk8?oc=5) |
-| Texas Senate passes new Republican-drawn congressional map - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxObEtuek9TdVZmNkYxQko2YVFKWGFta3VNazlvX2NLWlRHbkVFSkNra0Njemh1MlEtdXIzbFRUM1libzNmOEpReGZhSC1OTzNTa3YwbFdyVXcwSmpiODA0UTZQUTRvMDlYb2IwR1VWR0RIRmFLZTN6YVNVWkZXY0FCNnpCdk5XNHVGQW9YMFZzZmk1MFBHSUtZR3otblZJRzlOaDdiLWxySjZscVlLRFJRbVdn0gFWQVVfeXFMUDU0bFc1Y005ZS1ELWpsZF9SUEVWdG9TbmtMVi1lUXhYUm41Qks5aHZuZkU2aWJCSTFZWjFmVW5Gb2ZfZHlSbHlBY3ZvcDhXOVpaT1RQemc?oc=5) |
+| Texas Legislature Gives Final Approval to Redistricting Map Favoring Republicans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTFBwekdMQ1g2NG5Id1JyNXZ0NUpTSEl2eWdsNjdkOG9CTFQ3eFVXaXJaUFdCRUdZMmRMLWxLRVNvMEFDck5ESllfSDdCem41dVJZWkZzQUpLV1ljaFdKVG5jZEpqZ2lSZDVkQ0E4dkJDTQ?oc=5) |
 | Hegseth fires head of Defense Intelligence Agency, Lt. Gen. Jeffrey Kruse - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNRjBkZDhrNGFtWmV6aHc4TkI1eFd0YjNhVHotTndaLTJtLXVSdEY1LWl1U1BpRG0zeDZzaWU0eGJIS2NPeU05NDh0RDJSdjI0WG15TFA5clNFUnduMjZWSmdOelpyUmsxZUF1SjQtaTJMbm5xYUUtUEY5bFBDOE43TzRjZFpjU0ZMR1loNnNIckliR21YMF9fME5SQTBHeFFnZGxZci0xcGh3S3Rx?oc=5) |
 | Judge blocks Trump from cutting funding over 'sanctuary' policies - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOVkYzS1VQUnE2WnlJZWxfYUVQUlhtemhJd3Rxc1NTOEg5OURGc0l4OTlNbjFJQmNPeVlpaFR5cWVFbkNlQzAwRHE0SXJkR2JNc1lqQzdkVGxVX1I5c3h2TUJpX29kZFlTQmJTUnFxWUJ2Um50cm14cGgwaEVid3JhVHZQZlBGQTdpQUNweUtab29KRElEZTZ2OFdKUXRYS3c?oc=5) |
 | Trump floats "regular military" tackling crime with crackdowns in Chicago, NY - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5qemhLQ2pVMFM2TnR3T3VaeVVEb2IxT3daSExyZmluaXc3UV9weE1Gbkx2NllTd0s0ZUlGUms0ejBHanA5czlGeFBLYWFJM1FKQ3JSYXRQOWZoSFMyR29tOGktQk5sQ0NyckpRdVdGNmNBb2hSYllxT093?oc=5) |
