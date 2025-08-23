@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 20:49:40（北京时间）**
+🕒 更新时间：**2025年08月23日 20:56:29（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Kilauea's eruption is back as the Hawaii volcano shoots lava for the 31st time since December - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOandtNWlyUU0yX0VWeHc5SE9WbUFjQ2tYZTZPSWlua0RpN1ZMbnNFZW9wLUhRMGhsczFpVC1Mc1lCc0g1TWx4QkhaQVJLOE5vQzd3S3ZjTE1NM1Z1RHV3MWh3aGRRVGduNno3dkZDQkxHQ2swajF3ZFNlSWxMaEw3d2JnNWg3ZVRGc1BPWFFLdWlSenNPaFRCR2Q3QjZGaUxjakHSAacBQVVfeXFMT2RPNkE1YUxwWjNiQXJacmZUY25KU192V1ZZYlppMEFYMlpjS2xRSUE4TjQzLUhNS0E5TlExcVNSSU5MbklpN2ExdHRSMTh2SFBpLXdURlFrSkFjTlZxYURfRmdzU2p4dVU4Tk51M2lDZUJGUWpSUk1IQUNfWDBQc29UOFNLN1h5M3JyaGNzQXhNNmYzRmFnYVpzZjBrcWFnWjhMdDI4dkk?oc=5) |
 | Wrongly deported migrant Abrego released, may be detained again - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOZk1SaFNrNFpzVjdXV3ZJaTBQVDB1MjN5T3NVN2ZkVmN5MFZzWmtTb0xaV3JHd2J1SV9nQmh6SHJoU3lvX1hkZlNwUHdZM3Z1dVhSOGE0X3gzRktDX1VIby0tOEhEQ3MxU09DNnN4YUhwS0ItdURtWkpQUHdsTzRLU3V2ZmtaLWxXMTlEc0VOZmI1SFFhRy1HVFJkS0F6M080dWpmSko5MnF6SG8?oc=5) |
 | Independent redistricting champion spends millions against California gerrymander - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQcGJsZnpSYjNOT3hwU1NjdHdSVGlYLWRDSExha2ZEMXZ2T0Fscm1mU2NSRlZSOFlXejg1VURiRm9UYS1RT3ZJNm5tTm5vbUgtSW9KU0R2WUFkaXNyTU5mTFA1S3VPaS1qaEE2eUJ1UDVYNERqbzdWaTVMVl9fWDFldnlDZG90ZGhOWnFEaHhEMEVpV0ltYXBUdW9lQUc?oc=5) |
-| ‘Militarization of politics’: How bucolic Bethesda woke up to FBI search on John Bolton - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPaUZFSlVBdmVTelRBUkhpMEtLTFNHUEp4dXBrUjd2OG40U3ZicGpoVHMzTDh2WE5iV2lUSDJNQzBLSE9ZaHV5RFN5Zm5vb2hEbFZ6MkhmQjFZSGhzcXNlWHVCNExKUjVfOWo1SWswVm1SLXN4U0hTYzd6OXVNd0p0UkpSYncyNEFwRzdqd1lud1bSAZYBQVVfeXFMTk9SdWc4bUdaT1BLeTY4bHZaeEstWmJ5S0ViM2k3YTUxRVV1M0JRTzVFbzlEdTd2MFU0cXFod2tEQV9vUHBLWWRRRi02VUtRTXN4ZlBIUm1CRC0wT0tTMWFLbkdTcEIyV096LVNYU21OMW16eEJNZGNIeDUxTmRPSEFYLVhtRVdxbkFpTlU1dU0yRE1Va19R?oc=5) |
+| Justice Department won't defend grants for Hispanic-serving colleges, calling them unconstitutional - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPWEh4WVlEWXg5aWRVbXJna0RuOFU5ODlBS095bE5UM1hQdVZFZzJ5MWM3b0VCMDZQYzBrbHphM0k1N2Z4bDdFbTZvQlc3YjRSV1JJYldscXRxc1RFcHVVMXFaMHRZTGpRSzFDb1R0d25ucC1wdlBxYzdyUWlGeFRXTFFrbVBOVHhXX3lWTi1WbG1JSmVVRFJCSVNXTUoyNXE4WHVuaHlqOE9lajA5cVpnVQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
