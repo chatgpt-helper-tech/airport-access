@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 16:40:41（北京时间）**
+🕒 更新时间：**2025年08月23日 16:48:09（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Parents of missing 7-month-old child in California arrested for murder: Sheriff - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxONHhJaENscjJub2gwN3lLQlZfWVVBOGxBTTE5clZueUM1YzhnYk9KVVNoanFaVjd6d0hZekJfNGlZN2JUWW1OQjlvcXVQX2pMdXRpQmRub3UxODJYeW92LUpNdUtLVmM4TktVVGxQQ1UydEZOd19hWU5ndnNxeDVMYWpBVDQxdXlOMTdsRzdRa18tSGhHMmtib1ZNUTc2U2dp0gGmAUFVX3lxTE9MV1JsUWhmcEktZkFvZWhhMXVlTklfODd3S1FwbWlmbkkxN0c0WUJmU19Mamo3NHV1aFVsVmthMk85Tm1XOHJNR001dDFsYWtGRl9TTnJHUlprV1l1MjQwM1QwTHNHOXdoZ2tnTXVkNzRTdDlDc2NnMlFoSGNWUU1kTE5CNGlCZkZ0WG1BeWdQcVloS3pENTFTQ2swYWtNYWhXVXJsWWc?oc=5) |
 | ‘Militarization of politics’: How bucolic Bethesda woke up to FBI search on John Bolton - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPaUZFSlVBdmVTelRBUkhpMEtLTFNHUEp4dXBrUjd2OG40U3ZicGpoVHMzTDh2WE5iV2lUSDJNQzBLSE9ZaHV5RFN5Zm5vb2hEbFZ6MkhmQjFZSGhzcXNlWHVCNExKUjVfOWo1SWswVm1SLXN4U0hTYzd6OXVNd0p0UkpSYncyNEFwRzdqd1lud1Y?oc=5) |
 | Wrongly deported migrant Abrego released, may be detained again - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOZk1SaFNrNFpzVjdXV3ZJaTBQVDB1MjN5T3NVN2ZkVmN5MFZzWmtTb0xaV3JHd2J1SV9nQmh6SHJoU3lvX1hkZlNwUHdZM3Z1dVhSOGE0X3gzRktDX1VIby0tOEhEQ3MxU09DNnN4YUhwS0ItdURtWkpQUHdsTzRLU3V2ZmtaLWxXMTlEc0VOZmI1SFFhRy1HVFJkS0F6M080dWpmSko5MnF6SG8?oc=5) |
+| Tour bus rolls over on western New York highway, killing 5 people, police say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPbWV5X3dFYmE3dzExWnJwaEJQTnBSbzBUbHFnRHhGbUUtdW9WT1FtUkM4d041R2R2ZDdRYVBpdWVJSDlONW5PTUQxUDZvRF9SdGdQMFN1ckFwWnFYbzNsQjh3UUVXcnFvSGIzWlR4S1JqUThJQWxBZWpDUlVXaFd3WkxONNIBiAFBVV95cUxQcmt1d2hHQTZVRkRqZGNHRVlMdm1hZDhwRFZnUjc4WXJvVVU0bXBHaS1aVEo2c3VSVUNCVE9fbW52RzhMV3JnaGtDRUhlN1JtNU81OWVDMTc4OHJDZE8xSnFkVHYxREZvUmNMNF8zX05WVXhjX1hJWWZSX3RYN1hGUEVmeWZjdFNQ?oc=5) |
 | Independent redistricting champion spends millions against California gerrymander - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQcGJsZnpSYjNOT3hwU1NjdHdSVGlYLWRDSExha2ZEMXZ2T0Fscm1mU2NSRlZSOFlXejg1VURiRm9UYS1RT3ZJNm5tTm5vbUgtSW9KU0R2WUFkaXNyTU5mTFA1S3VPaS1qaEE2eUJ1UDVYNERqbzdWaTVMVl9fWDFldnlDZG90ZGhOWnFEaHhEMEVpV0ltYXBUdW9lQUc?oc=5) |
-| Tour bus rollover kills 5 on interstate highway in western New York - NPR | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFAtWkppUGExb0lTTFdLSW1FZXNDYkxwZGluWURtU3hFbklDNGNxTnVsWWxIaFVTUnNRYTZKbGsxeGF5TG1pTElldzhsOFV4Y2UtbXhTVWJNc3Z4eDhjMmRoa1dHUmFvNXVhT3FnQ2dlUC1kMTQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
