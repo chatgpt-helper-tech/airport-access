@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 14:01:13（北京时间）**
+🕒 更新时间：**2025年08月23日 14:08:30（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Ghislaine Maxwell claims in DOJ interview that Epstein list doesn't exist | [阅读全文](https://www.bbc.com/news/articles/cdd3pe6189go?at_medium=RSS&at_campaign=rss) |
+| Ghislaine Maxwell says Epstein list does not exist | [阅读全文](https://www.bbc.com/news/articles/cdd3pe6189go?at_medium=RSS&at_campaign=rss) |
 | How Israel's policies created famine in Gaza | [阅读全文](https://www.bbc.com/news/articles/ckg4p90z1kxo?at_medium=RSS&at_campaign=rss) |
 | Lyle Menendez joins brother in being denied parole in parents' LA murder | [阅读全文](https://www.bbc.com/news/articles/c4gq55evnlyo?at_medium=RSS&at_campaign=rss) |
 | Will Serena Williams's weight-loss admission help shed stigma of anti-obesity drugs? | [阅读全文](https://www.bbc.com/news/articles/c8de89lg21jo?at_medium=RSS&at_campaign=rss) |
@@ -30,8 +30,8 @@
 | 5 Dead After Tour Bus Crashes on Western New York Highway - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5ZcmVqT3J6RjlOb01IRlhGLTIwQkNZTlh4TjBqM1ZjWUliWVRIU1hXX0h5c2Z1QUFsNTlTbFRteE00eVEydE1oZUxaSzlDSUJIMXdGQ0ZsaG9fT1E3aUJ3N1VrN2s3Qm5DaF9oci1TYzZzeHM2ZC1SWGhWY0I?oc=5) |
 | Kilmar Abrego Garcia could be deported to Uganda, official says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPRFk1STVmeVQxNGFqS1E4UE1jRU5YU2wwaExUVmE2bGFrNF8yUjYxRnlNREhRanhwMEZtblEzdlBtN3dHVUVYU29aTmtBT3UwajZrUTk4WGxOVV96QVpCT0UwU0VFeEpZTEpFWENSU1dobFpvbTlRREdyYTlFMHZwYjh6R2_SAYoBQVVfeXFMTmlBUXgzMW9DdFdtMzFXdHpPUHctcmNiSmQ3N1ZGSXdJeU9OVlZUX0hJNjA0c1IyRDhwWFZSY0NhUlpmdmhzdUZWTWFwMmo2QWp4b2o3a19YUFVmTk1oamFXUDZVZEtwdzktQUZFbmtIcS1NYVVhQWZlTUF5UERweEpjd0Ywb0o3VTFn?oc=5) |
 | Independent redistricting champion spends millions against California gerrymander - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQcGJsZnpSYjNOT3hwU1NjdHdSVGlYLWRDSExha2ZEMXZ2T0Fscm1mU2NSRlZSOFlXejg1VURiRm9UYS1RT3ZJNm5tTm5vbUgtSW9KU0R2WUFkaXNyTU5mTFA1S3VPaS1qaEE2eUJ1UDVYNERqbzdWaTVMVl9fWDFldnlDZG90ZGhOWnFEaHhEMEVpV0ltYXBUdW9lQUc?oc=5) |
-| F.B.I. Searches Home and Office of John Bolton, Ex-Trump Adviser - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOc0QxdHJoOVZSQ3FFZ3BQTER4SWdWM01hcGpUbWJ1cktjZG9NdTg3TVFtOE1mUm1pcElWc0FFUG5RbEh2b3BQNllaU0JxYjBpVm9ZczdMTl82Q3ZqdW5zVlNIZnkyWmxvZ1NFMVQ1TlJhbEk4c3Q2QWdUQmk2ZVRZWEE4MjE?oc=5) |
 | See how new voting maps in Texas and California would shift the political landscape - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOQVpvN0t1alBjU3lYQWZaUXVlRl9lczA5OHU4Q1gydW1UYWx1ZmJmMmx0TmNjVXNyakQzRlNfN3U1aDlYMHoyNm1vcTFJTV9pdGpUa1BkRGhTVkNjTXFSQUtkWW9XYlJtTE5sZzA4TWxVSGhFOFNfclFLSGdjNmJ6Q2k2QVBFU2tyQXc?oc=5) |
+| F.B.I. Searches Home and Office of John Bolton, Ex-Trump Adviser - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOc0QxdHJoOVZSQ3FFZ3BQTER4SWdWM01hcGpUbWJ1cktjZG9NdTg3TVFtOE1mUm1pcElWc0FFUG5RbEh2b3BQNllaU0JxYjBpVm9ZczdMTl82Q3ZqdW5zVlNIZnkyWmxvZ1NFMVQ1TlJhbEk4c3Q2QWdUQmk2ZVRZWEE4MjE?oc=5) |
 | Carney says Canada will match U.S. tariff exemptions under USMCA trade pact - PBS | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPcENZT1hYRGNoRjJVMmJsa3pvQkthcFFfZDYzaWlnWlBqTmMyc01KSm8yTVRjOHg4ZWxtU3plZk5MaXZFcTBTbGp6eUhMcWFPWWhmcHlmUHNITDNmYlBBdF9qWnRnM2xqeGlicnI4Yko5M1NLTjFCSWN2S2o1VHE1N2hxdG93TDJWRUNJZUU3d2VtWHVhRVVCdTRDdDJBdzVGY1Ffem9ScW9mZm9LbGpKWNIBtgFBVV95cUxOejQ2U1VoWlpITGJwQ1F5Vm9BbFFIdm9nVl9hR3FhNGRrVWNGQUJadXdndl9qNjNiQWRuQUtjVGI4SzZNU0FWeko2dlhKdjVTMDVqczJ6ZEhjNm9kRF9STnpTZm4zT3JzdDd3c25ic2VNWGVLeE4xaGMyY213bldGcHNEalVOSDVvYmx0NFVpbUNiRmIwWDdJZTZZeW5HcUxiMTN4Y0xpTGtVdGFNTVVjRGdicWluUQ?oc=5) |
 
 ---
