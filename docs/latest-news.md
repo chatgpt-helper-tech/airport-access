@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 17:41:41（北京时间）**
+🕒 更新时间：**2025年08月23日 17:48:54（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Ghislaine Maxwell interview transcripts released by US justice department - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFB3cHlmY2ZUaWxleEM0MEg5MUN5ZTQ1bWoxS3dyb1BNZmxCeTc1cThPcmtvb2ZjZnd1dUpNQzZrRWZ5cmpGZUF3dy1MeWRWU1JnQ1VHajhrZG91d9IBX0FVX3lxTFBzZ3Uwejl3OXdIZTNqY3JXRlphRVlRVFZZSXE0NkRiaFJMQmhpSXc1OXVZQ2JjbXhKWTVVSGJ0TnR3WXMtUWxDVUY0ZW5YSFlNYmlPUFhWRk5QeW5lWmdJ?oc=5) |
-| Lyle Menendez denied parole, will remain in prison along with younger brother Erik - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOZnhIN28xZ2xEMExSeDRpVTRCNXI5bHhwaWNGekJKQnYyYWM4Zk96UDNYNU1wdzRUSW5MQXBXTjNpeExlMjRNZlBRVTZIRzgxd2pDSGpOYUhka256bi10X3BraGMtWUl0Z0YyR2JnbVRfcXFncldZQUxTZ3lnX2JNcnAtS2lDUmQzOW1ZTmlJci0?oc=5) |
+| Live Updates: Lyle Menendez Loses Bid for Parole Three Decades After Murdering Parents - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE9selNoMDd4S2tRMkZsWUJnQmRabkhLdmVlM2FCNVNLbG8wbG45V0xkQVJ1MHQ4aFJBRkJIa1ZPYV91ejlTOG42aGEtU1RhWlhjZ1BBMDFYM0dxdHZyQ25hMGRrQW5uLUZFNnFaejZHblhuT2hU?oc=5) |
 | Texas Senate passes new Republican-drawn congressional map - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxObEtuek9TdVZmNkYxQko2YVFKWGFta3VNazlvX2NLWlRHbkVFSkNra0Njemh1MlEtdXIzbFRUM1libzNmOEpReGZhSC1OTzNTa3YwbFdyVXcwSmpiODA0UTZQUTRvMDlYb2IwR1VWR0RIRmFLZTN6YVNVWkZXY0FCNnpCdk5XNHVGQW9YMFZzZmk1MFBHSUtZR3otblZJRzlOaDdiLWxySjZscVlLRFJRbVdn0gFWQVVfeXFMUDU0bFc1Y005ZS1ELWpsZF9SUEVWdG9TbmtMVi1lUXhYUm41Qks5aHZuZkU2aWJCSTFZWjFmVW5Gb2ZfZHlSbHlBY3ZvcDhXOVpaT1RQemc?oc=5) |
-| Pentagon Fires the Defense Intelligence Agency Chief - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQWTNIcmg3cS05LTlPbVdvQndIeUZVM3FrN0pLdWhWU1gwNDBJcTE1cHE5VzRSY2dyS0Y1aUE4V1V5Q2d6OG96dEI5dFdQNHZtbGdtbDRGWlJ2eUlyLXR6OS11ODI5RU81WTlQaUREWk9KaGhGWjI3NjJkTHZlOTRkcnl1YzZwbkFZQnpzVy1kMURuVWxGdkE?oc=5) |
+| In latest purge, Hegseth removes head of Pentagon intelligence agency, other senior officials - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxQNEJuTzNIX0VZUmxTVDJJTVNieWRESkdfcUJQTW9YWTk3aHZjTFpMLW11STlXR1E5Vm1BQ3hEb0UyYTZxQzBqNkk2cTRrQ2gyZmN2UkRPVVRmb1R6a2p5ZFFDUWxQV0RIVUx6UnlnMUV0X21OOU9pbHRZOVViWG9yTTdSaEYzQkowS0lvMDVmd1l3S3ZVQVJoM3J4NF9hM2IySDZkTnIyWVo0WmJ4cUpZV2dqUmFZUHFwT3hfaw?oc=5) |
 | Trump floats "regular military" tackling crime with crackdowns in Chicago, NY - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5qemhLQ2pVMFM2TnR3T3VaeVVEb2IxT3daSExyZmluaXc3UV9weE1Gbkx2NllTd0s0ZUlGUms0ejBHanA5czlGeFBLYWFJM1FKQ3JSYXRQOWZoSFMyR29tOGktQk5sQ0NyckpRdVdGNmNBb2hSYllxT093?oc=5) |
 | Parents of missing 7-month-old child in California arrested for murder: Sheriff - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxONHhJaENscjJub2gwN3lLQlZfWVVBOGxBTTE5clZueUM1YzhnYk9KVVNoanFaVjd6d0hZekJfNGlZN2JUWW1OQjlvcXVQX2pMdXRpQmRub3UxODJYeW92LUpNdUtLVmM4TktVVGxQQ1UydEZOd19hWU5ndnNxeDVMYWpBVDQxdXlOMTdsRzdRa18tSGhHMmtib1ZNUTc2U2dp0gGmAUFVX3lxTE9MV1JsUWhmcEktZkFvZWhhMXVlTklfODd3S1FwbWlmbkkxN0c0WUJmU19Mamo3NHV1aFVsVmthMk85Tm1XOHJNR001dDFsYWtGRl9TTnJHUlprV1l1MjQwM1QwTHNHOXdoZ2tnTXVkNzRTdDlDc2NnMlFoSGNWUU1kTE5CNGlCZkZ0WG1BeWdQcVloS3pENTFTQ2swYWtNYWhXVXJsWWc?oc=5) |
 | ‘Militarization of politics’: How bucolic Bethesda woke up to FBI search on John Bolton - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPaUZFSlVBdmVTelRBUkhpMEtLTFNHUEp4dXBrUjd2OG40U3ZicGpoVHMzTDh2WE5iV2lUSDJNQzBLSE9ZaHV5RFN5Zm5vb2hEbFZ6MkhmQjFZSGhzcXNlWHVCNExKUjVfOWo1SWswVm1SLXN4U0hTYzd6OXVNd0p0UkpSYncyNEFwRzdqd1lud1bSAZYBQVVfeXFMTk9SdWc4bUdaT1BLeTY4bHZaeEstWmJ5S0ViM2k3YTUxRVV1M0JRTzVFbzlEdTd2MFU0cXFod2tEQV9vUHBLWWRRRi02VUtRTXN4ZlBIUm1CRC0wT0tTMWFLbkdTcEIyV096LVNYU21OMW16eEJNZGNIeDUxTmRPSEFYLVhtRVdxbkFpTlU1dU0yRE1Va19R?oc=5) |
