@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月24日 07:17:59（北京时间）**
+🕒 更新时间：**2025年08月24日 07:24:34（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | European post offices to stop sending some parcels to US over tariffs - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPUEl3NmFwUW1nbU9YTDZabllTN3NBbUtUU2J2SU43a2NkT2Z3RXJfZndnZmZSUHZQZ21PSzIyN1FNRWhxd1JUcFdDdGZwelFfa2JUUDhTMElYMTNzZWtmZ2JwVXRLc3NVVUxKbEpnYWtjM3A0VGIzQVVSLUN2N3BPQnY0YXVYRlNnUHM2ZzRR?oc=5) |
 | The redistricting war between Texas and California is about to jolt the midterms - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNaUk3am5pZzJ3SjlYa0kwampkX1VpdWRRVmNTQy1CbGQxRjhTOWNZbDR6OTlra2hYalNPZ1FXTFliQTNvbkJkWW1TbS16ZENLQ0tpWExfZnBrOW9Fb3JmZE9kYW9JLUVCbTJSNXFNWll3d3ZFMVNoTzNRZ0lCdWprVVJkU0xtbjVhTW9fWVEtbU82WlBUVUVLYzlpZ1ZUVW8?oc=5) |
 | Judge blocks Trump from cutting funding over 'sanctuary' policies - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOVkYzS1VQUnE2WnlJZWxfYUVQUlhtemhJd3Rxc1NTOEg5OURGc0l4OTlNbjFJQmNPeVlpaFR5cWVFbkNlQzAwRHE0SXJkR2JNc1lqQzdkVGxVX1I5c3h2TUJpX29kZFlTQmJTUnFxWUJ2Um50cm14cGgwaEVid3JhVHZQZlBGQTdpQUNweUtab29KRElEZTZ2OFdKUXRYS3c?oc=5) |
-| Truck driver accused by the Trump administration of being in the US illegally is denied bond - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxONDFzbW42UDJ3eEQxM09lcngyZ1F1bFdXM2JES3hpTnFQeHRsUU1JSTVRdS1mNHc3NjQzTWR2cldtSkJVMEp2eEd5R3N3blhsNHFCTFk0SHhYb3hWTGIyTDFGejAxUmJiTHgzazBvN0h2REpXRVhYYjZIVjN3RkgxeGFZYjEycHhnTXBvWjE5OFhJVFZuUEJ0M0hRUkl4UkxNSHJoTlE3NDJmeFlmWnJZSjZR?oc=5) |
 | Fresh off Texas Senate’s approval, new congressional map is target of lawsuit - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1IYnloYUpTM1Y2bnFKV19PQVJHd2tMRUhYTnU3TUJkMi1pZ29tcXNHR3NWWTMybzRZaC1Jb3ZfaWF3czJSUnhLUE1QZE9iWWFOUkV0VFNoaGJEWGIzM25uckJ1RFU1SDdpWEVhUWw3R2RGWFFYc3BQa2dKTUE?oc=5) |
+| Truck driver accused by the Trump administration of being in the US illegally is denied bond - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxONDFzbW42UDJ3eEQxM09lcngyZ1F1bFdXM2JES3hpTnFQeHRsUU1JSTVRdS1mNHc3NjQzTWR2cldtSkJVMEp2eEd5R3N3blhsNHFCTFk0SHhYb3hWTGIyTDFGejAxUmJiTHgzazBvN0h2REpXRVhYYjZIVjN3RkgxeGFZYjEycHhnTXBvWjE5OFhJVFZuUEJ0M0hRUkl4UkxNSHJoTlE3NDJmeFlmWnJZSjZR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
