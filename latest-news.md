@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 08:48:41（北京时间）**
+🕒 更新时间：**2025年08月23日 08:57:59（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Menendez family stunned after Erik denied parole; Lyle’s fate still uncertain - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxObHV5bTJwQ3JnQVpWUzB2bnF2d0xWLWVTczdXN0J0NVJETEI5OEtkM19PUVM5YmV1Wk1rb2FRajFIazAyaElmcHpKd3RwRmR2bTRHdWNFZkszXzVPcFRZVmdPalhwcGpraTNNT1VXazY0VFlvckZiazFTdW5zMGpGX2JjMzhKZFc4ZnhsUk1KTE1pckU?oc=5) |
 | FBI Agents Exit John Bolton's Office With Boxes in Raid: Live Updates - Newsweek | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE90U28wbkFrVlBBLS1ibmV0X18ydHJiQW02aTBEQm1janQxWXdnWVN0TUppWF9KRXlPcUVfYlRlM19FckxBYmJxU1Z4MFNGR1htbno5NVdWSmlYNlZVTEwybndPTzkzencyVWY2dDNCVWhOMUdQMGZMZEFKUQ?oc=5) |
 | Newsom signs California redistricting measures in response to Texas bill - Axios | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxONDZ0NXNMS1Z5aF9DM0hIN0ZIVnBxZWg5bjE0WjlST0I3SGljQVhuM0M5TXFtRGhUaTliLV9MUUFSUU0xRGFfNHpVcE1RdzVTQTVXUS02RFdJQjJoNzl3SWtrbWpJT3hycG9LUE52YTJWeGotWXF4U0toemNUU1Q0aGpTNG90eVJvV0tBUHR0NTIzZ2pDRmFv?oc=5) |
-| Howard University President to Step Down This Month - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOLWVScDVmWmRhVm9QaUYzamlvOXRoSmtsdm5zYzFxb2phOElyblc2dU1xcVQ5TV84Ul8zV2c2VkM2cmVma0tiMjN0TTFIVkFuMGMtTGJQb2RhYlY0cDZrSTRfQXl5aURKWlBSbHpUWmYtclhEeWFPVUphSXRfVnZ4QjBQWWltNkF2U3c?oc=5) |
+| Florida ordered to undo Alligator Alcatraz due to environmental risks - Axios | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPWUhCM2s4UW1VcWF1ZVRXeU1la1ZVeFM5dWFEOU42WkZkYzBKdUZhTHl4UzlxdXF5MXhqVU5NOXJPZ0NINHVRaWY2VXh6Z3k3ZmdDZUlTTjRBNm91VW1vaW93SXp6SG1EY1d6dURhQVdlOUYtbFRtckVCajZ1dENLejNFcU8xSWtKYUxlbHExMnF0MU96MzN6RA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
