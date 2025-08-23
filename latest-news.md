@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 12:25:01（北京时间）**
+🕒 更新时间：**2025年08月23日 12:32:33（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Parents of missing baby Emmanuel Haro faked kidnapping, now accused of murder, officials say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOTGFYdkNzYjdfZmYzQzFQakp4R21VUG9QZG9zbDkwbkJoZjRDN29LMjhjQmF1QTBrWnlHZlV1VHluWVR2bEo5R2hqSjZSSUtoWmd1S2s4aGtSYzhrTkRQRzBPRkhoS0dkQ3VCbzJOQmwtZ0liTTVmVTFxRW1mSUl1ZTlPYjJSMURMcGo0eVhuQnEzS3c4WTN1THdTeXh5OUZ2cnlrbkVMSlZGNW5uRThla0NDR2t6UGVILVBzWHdR?oc=5) |
 | Independent redistricting champion spends millions against California gerrymander - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQcGJsZnpSYjNOT3hwU1NjdHdSVGlYLWRDSExha2ZEMXZ2T0Fscm1mU2NSRlZSOFlXejg1VURiRm9UYS1RT3ZJNm5tTm5vbUgtSW9KU0R2WUFkaXNyTU5mTFA1S3VPaS1qaEE2eUJ1UDVYNERqbzdWaTVMVl9fWDFldnlDZG90ZGhOWnFEaHhEMEVpV0ltYXBUdW9lQUc?oc=5) |
 | Trump makes deal giving U.S. government a 10% share of Intel - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQTjlqZW4yV0JCVzJQOXY2ZXlGWU1wTExTdllQWGc0VGJnQ0NkYmdBRkg1Z0RSQkdZSG9yamZMLUs5bUtFano3cTd2dkZoZWJGU1Zja2QxbkFSUW93RXhKR01yR2ViXzB4R2o3SmNteGRYekwyQzVQZl9FLVdmTXJYdlNBSXpxTi0tWVUyd2t3akNvV2JMSmlBNFkxZ09KeEluT2F3a2N0VHdGU2l2TVRWcg?oc=5) |
-| ‘Militarization of politics’: How bucolic Bethesda woke up to FBI raid on John Bolton - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPaUZFSlVBdmVTelRBUkhpMEtLTFNHUEp4dXBrUjd2OG40U3ZicGpoVHMzTDh2WE5iV2lUSDJNQzBLSE9ZaHV5RFN5Zm5vb2hEbFZ6MkhmQjFZSGhzcXNlWHVCNExKUjVfOWo1SWswVm1SLXN4U0hTYzd6OXVNd0p0UkpSYncyNEFwRzdqd1lud1bSAZYBQVVfeXFMTk9SdWc4bUdaT1BLeTY4bHZaeEstWmJ5S0ViM2k3YTUxRVV1M0JRTzVFbzlEdTd2MFU0cXFod2tEQV9vUHBLWWRRRi02VUtRTXN4ZlBIUm1CRC0wT0tTMWFLbkdTcEIyV096LVNYU21OMW16eEJNZGNIeDUxTmRPSEFYLVhtRVdxbkFpTlU1dU0yRE1Va19R?oc=5) |
+| F.B.I. Searches Home and Office of John Bolton, Ex-Trump Adviser - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOc0QxdHJoOVZSQ3FFZ3BQTER4SWdWM01hcGpUbWJ1cktjZG9NdTg3TVFtOE1mUm1pcElWc0FFUG5RbEh2b3BQNllaU0JxYjBpVm9ZczdMTl82Q3ZqdW5zVlNIZnkyWmxvZ1NFMVQ1TlJhbEk4c3Q2QWdUQmk2ZVRZWEE4MjE?oc=5) |
 | An Ohio man made a list of the 3,599 books he read in his lifetime. It has become an inspiration to book lovers everywhere. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOWnBHcXAzWjVKM0dzUzVQYUx2Wi04YVo1R3pLMndYeFcyVzd5Vy16eW9xQllEeENEMUxmRy1FYlM4cWhrOTgyT0tjOFpSOGtDSkxTRFd0NE5GTXd4eHFBQ28xazhkaDMtZTNOMElDZGJqcU8yTXM5UDVELVQyQl9ycTRWbGxRR29MNlJlejVzTG5VbGRNenJxOXBvRlF6RVlLLW1XdVQ5STd1bXpWTHfSAbMBQVVfeXFMTTFLUGhsWkJiLVVzQXVKUjVGcmlpSzlDWkdMZ2pDUWxYdTlRZGRQTlhWNnhPYnpubVkwTFRhbFdMNEI5QTlxeng2dkk5OExndjJzdld4Tm9XUVlQREJjVnJKNjExNUFsQkYtRDJwSkxlRTlHWnZ5bWlCZEwzTVZQTjZGSDRwazNQa01Cbi1pLTViVC1YSUlRakRpenVwRGdoY1VHWVdOLUQ4Nk9fLXVfSXZmSjA?oc=5) |
 
 ---
