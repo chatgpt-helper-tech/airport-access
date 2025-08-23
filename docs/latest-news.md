@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 21:40:33（北京时间）**
+🕒 更新时间：**2025年08月23日 21:48:40（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | National Guard on D.C. streets will soon be armed, Pentagon says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBrVHo1SzRlUi04Rk5OZ1B5aUF5dzFXOGVUeGNac05jTm9PajNSOVd1OVh6ZGoxdjlQbHR1Q2hRZTdpd21ra3V4QXdTTDN6ZWEwd3lnV084R3RqUVU1bXJkckVVRUpycEpCUVNjcDYtZFlVUdIBd0FVX3lxTE9KU0lmNm9vbGs4aFY2YU05NXNyLVVsdWt4TTBmaDJpSGZNWkJIZG9JRnVCNGRZOGdZWjgxOFRXdkpUcHo4NDh0WnVNYW9zcjRFRDRIbU9nbThVWFYydkpVSUVmWUhuUkpiTmU2UnNUQlVXS3RsdE9N?oc=5) |
 | Judge blocks Trump from cutting funding over 'sanctuary' policies - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOVkYzS1VQUnE2WnlJZWxfYUVQUlhtemhJd3Rxc1NTOEg5OURGc0l4OTlNbjFJQmNPeVlpaFR5cWVFbkNlQzAwRHE0SXJkR2JNc1lqQzdkVGxVX1I5c3h2TUJpX29kZFlTQmJTUnFxWUJ2Um50cm14cGgwaEVid3JhVHZQZlBGQTdpQUNweUtab29KRElEZTZ2OFdKUXRYS3c?oc=5) |
 | Wrongly deported migrant Abrego released, may be detained again - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOZk1SaFNrNFpzVjdXV3ZJaTBQVDB1MjN5T3NVN2ZkVmN5MFZzWmtTb0xaV3JHd2J1SV9nQmh6SHJoU3lvX1hkZlNwUHdZM3Z1dVhSOGE0X3gzRktDX1VIby0tOEhEQ3MxU09DNnN4YUhwS0ItdURtWkpQUHdsTzRLU3V2ZmtaLWxXMTlEc0VOZmI1SFFhRy1HVFJkS0F6M080dWpmSko5MnF6SG8?oc=5) |
-| Independent redistricting champion spends millions against California gerrymander - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQcGJsZnpSYjNOT3hwU1NjdHdSVGlYLWRDSExha2ZEMXZ2T0Fscm1mU2NSRlZSOFlXejg1VURiRm9UYS1RT3ZJNm5tTm5vbUgtSW9KU0R2WUFkaXNyTU5mTFA1S3VPaS1qaEE2eUJ1UDVYNERqbzdWaTVMVl9fWDFldnlDZG90ZGhOWnFEaHhEMEVpV0ltYXBUdW9lQUc?oc=5) |
+| Home Depots become prime locations for immigration enforcement - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxObHRBeHJSODNxNFYwLWFBOE1GVWx2UDB4dkNWbjQ0d1prWXo1RVpjUEdrTlJDdjc4a1FNdHpMVVFZRmI3bUl5cUxEbW5fYlR5MU1xX3o3T2tYdlhreGFpUkc5Y0stSWJZYmRHeEJuSThrOWNRX29nZURWQkhySzdkLVF3TnpFaTJjejg5aU5SRnliX1d3Zm9xdjZMUGwtNjM5U3RtQ09tdUp5Z9IBVkFVX3lxTE9LelctMG9WZlB2Qi15UzQ1Y2ktTFVYT29vc0xpcnNUbmY5SWE2ZkdFYnFnaGdxOWc5QzVzdC1BNFFPdXVFT3VOVU9QSHJCVTNSQkJhTGdB?oc=5) |
 | Justice Department won't defend grants for Hispanic-serving colleges, calling them unconstitutional - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPWEh4WVlEWXg5aWRVbXJna0RuOFU5ODlBS095bE5UM1hQdVZFZzJ5MWM3b0VCMDZQYzBrbHphM0k1N2Z4bDdFbTZvQlc3YjRSV1JJYldscXRxc1RFcHVVMXFaMHRZTGpRSzFDb1R0d25ucC1wdlBxYzdyUWlGeFRXTFFrbVBOVHhXX3lWTi1WbG1JSmVVRFJCSVNXTUoyNXE4WHVuaHlqOE9lajA5cVpnVQ?oc=5) |
 | Trump floats "regular military" tackling crime with crackdowns in Chicago, NY - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5qemhLQ2pVMFM2TnR3T3VaeVVEb2IxT3daSExyZmluaXc3UV9weE1Gbkx2NllTd0s0ZUlGUms0ejBHanA5czlGeFBLYWFJM1FKQ3JSYXRQOWZoSFMyR29tOGktQk5sQ0NyckpRdVdGNmNBb2hSYllxT093?oc=5) |
 
