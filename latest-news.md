@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 17:48:53（北京时间）**
+🕒 更新时间：**2025年08月23日 17:57:23（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | Ghislaine Maxwell says Epstein client list does not exist | [阅读全文](https://www.bbc.com/news/articles/cdd3pe6189go?at_medium=RSS&at_campaign=rss) |
 | How Israel's policies created famine in Gaza | [阅读全文](https://www.bbc.com/news/articles/ckg4p90z1kxo?at_medium=RSS&at_campaign=rss) |
 | Farage vows mass deportations to tackle small boats | [阅读全文](https://www.bbc.com/news/articles/c9vd3rx33g1o?at_medium=RSS&at_campaign=rss) |
-| Lyle Menendez joins brother in being denied parole in parents' LA murder | [阅读全文](https://www.bbc.com/news/articles/c4gq55evnlyo?at_medium=RSS&at_campaign=rss) |
+| What did Erik and Lyle Menendez do and when could they be released? | [阅读全文](https://www.bbc.com/news/articles/c5y2dgep4zzo?at_medium=RSS&at_campaign=rss) |
 | Chappell Roan slays Reading Festival with fairytale-themed set | [阅读全文](https://www.bbc.com/news/articles/cr74p245zdlo?at_medium=RSS&at_campaign=rss) |
 | Woman jailed for race hate post says she was political prisoner | [阅读全文](https://www.bbc.com/news/articles/ce83pj1ggmeo?at_medium=RSS&at_campaign=rss) |
 | Parking firm pays £10,240 after losing case, again | [阅读全文](https://www.bbc.com/news/articles/ce83n7j7p6po?at_medium=RSS&at_campaign=rss) |
@@ -28,11 +28,11 @@
 | Texas redistricting fight shakes up battle lines for both parties in key US Senate race - AP News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNNy1JeURCdjBNTE5JdnJhb1lLS21sWWpkUURMMTQ1TnJjaWd1V3ktYzQ0Ym9Bbmowalhja0t4SW05SEZyTVR4d21hemFlcGwzMnQyVVVQdGhpa01udEdlb3FPa2RLZG9ROWFGUkw2Zl9zdTc3bEhXTDN1MzEtS2h3RklVN1ltZw?oc=5) |
 | Pentagon Fires the Defense Intelligence Agency Chief - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQWTNIcmg3cS05LTlPbVdvQndIeUZVM3FrN0pLdWhWU1gwNDBJcTE1cHE5VzRSY2dyS0Y1aUE4V1V5Q2d6OG96dEI5dFdQNHZtbGdtbDRGWlJ2eUlyLXR6OS11ODI5RU81WTlQaUREWk9KaGhGWjI3NjJkTHZlOTRkcnl1YzZwbkFZQnpzVy1kMURuVWxGdkE?oc=5) |
 | Trump floats "regular military" tackling crime with crackdowns in Chicago, NY - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5qemhLQ2pVMFM2TnR3T3VaeVVEb2IxT3daSExyZmluaXc3UV9weE1Gbkx2NllTd0s0ZUlGUms0ejBHanA5czlGeFBLYWFJM1FKQ3JSYXRQOWZoSFMyR29tOGktQk5sQ0NyckpRdVdGNmNBb2hSYllxT093?oc=5) |
-| Parents of missing 7-month-old child in California arrested for murder: Sheriff - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxONHhJaENscjJub2gwN3lLQlZfWVVBOGxBTTE5clZueUM1YzhnYk9KVVNoanFaVjd6d0hZekJfNGlZN2JUWW1OQjlvcXVQX2pMdXRpQmRub3UxODJYeW92LUpNdUtLVmM4TktVVGxQQ1UydEZOd19hWU5ndnNxeDVMYWpBVDQxdXlOMTdsRzdRa18tSGhHMmtib1ZNUTc2U2dp0gGmAUFVX3lxTE9MV1JsUWhmcEktZkFvZWhhMXVlTklfODd3S1FwbWlmbkkxN0c0WUJmU19Mamo3NHV1aFVsVmthMk85Tm1XOHJNR001dDFsYWtGRl9TTnJHUlprV1l1MjQwM1QwTHNHOXdoZ2tnTXVkNzRTdDlDc2NnMlFoSGNWUU1kTE5CNGlCZkZ0WG1BeWdQcVloS3pENTFTQ2swYWtNYWhXVXJsWWc?oc=5) |
+| Judge blocks Trump from cutting funding over 'sanctuary' policies - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOVkYzS1VQUnE2WnlJZWxfYUVQUlhtemhJd3Rxc1NTOEg5OURGc0l4OTlNbjFJQmNPeVlpaFR5cWVFbkNlQzAwRHE0SXJkR2JNc1lqQzdkVGxVX1I5c3h2TUJpX29kZFlTQmJTUnFxWUJ2Um50cm14cGgwaEVid3JhVHZQZlBGQTdpQUNweUtab29KRElEZTZ2OFdKUXRYS3c?oc=5) |
+| ‘Militarization of politics’: How bucolic Bethesda woke up to FBI search on John Bolton - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPaUZFSlVBdmVTelRBUkhpMEtLTFNHUEp4dXBrUjd2OG40U3ZicGpoVHMzTDh2WE5iV2lUSDJNQzBLSE9ZaHV5RFN5Zm5vb2hEbFZ6MkhmQjFZSGhzcXNlWHVCNExKUjVfOWo1SWswVm1SLXN4U0hTYzd6OXVNd0p0UkpSYncyNEFwRzdqd1lud1bSAZYBQVVfeXFMTk9SdWc4bUdaT1BLeTY4bHZaeEstWmJ5S0ViM2k3YTUxRVV1M0JRTzVFbzlEdTd2MFU0cXFod2tEQV9vUHBLWWRRRi02VUtRTXN4ZlBIUm1CRC0wT0tTMWFLbkdTcEIyV096LVNYU21OMW16eEJNZGNIeDUxTmRPSEFYLVhtRVdxbkFpTlU1dU0yRE1Va19R?oc=5) |
 | Wrongly deported migrant Abrego released, may be detained again - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOZk1SaFNrNFpzVjdXV3ZJaTBQVDB1MjN5T3NVN2ZkVmN5MFZzWmtTb0xaV3JHd2J1SV9nQmh6SHJoU3lvX1hkZlNwUHdZM3Z1dVhSOGE0X3gzRktDX1VIby0tOEhEQ3MxU09DNnN4YUhwS0ItdURtWkpQUHdsTzRLU3V2ZmtaLWxXMTlEc0VOZmI1SFFhRy1HVFJkS0F6M080dWpmSko5MnF6SG8?oc=5) |
 | Tour bus rolls over on western New York highway, killing 5 people, police say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPbWV5X3dFYmE3dzExWnJwaEJQTnBSbzBUbHFnRHhGbUUtdW9WT1FtUkM4d041R2R2ZDdRYVBpdWVJSDlONW5PTUQxUDZvRF9SdGdQMFN1ckFwWnFYbzNsQjh3UUVXcnFvSGIzWlR4S1JqUThJQWxBZWpDUlVXaFd3WkxONNIBiAFBVV95cUxQcmt1d2hHQTZVRkRqZGNHRVlMdm1hZDhwRFZnUjc4WXJvVVU0bXBHaS1aVEo2c3VSVUNCVE9fbW52RzhMV3JnaGtDRUhlN1JtNU81OWVDMTc4OHJDZE8xSnFkVHYxREZvUmNMNF8zX05WVXhjX1hJWWZSX3RYN1hGUEVmeWZjdFNQ?oc=5) |
-| Carney says Canada will match U.S. tariff exemptions under USMCA trade pact - PBS | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPcENZT1hYRGNoRjJVMmJsa3pvQkthcFFfZDYzaWlnWlBqTmMyc01KSm8yTVRjOHg4ZWxtU3plZk5MaXZFcTBTbGp6eUhMcWFPWWhmcHlmUHNITDNmYlBBdF9qWnRnM2xqeGlicnI4Yko5M1NLTjFCSWN2S2o1VHE1N2hxdG93TDJWRUNJZUU3d2VtWHVhRVVCdTRDdDJBdzVGY1Ffem9ScW9mZm9LbGpKWNIBtgFBVV95cUxOejQ2U1VoWlpITGJwQ1F5Vm9BbFFIdm9nVl9hR3FhNGRrVWNGQUJadXdndl9qNjNiQWRuQUtjVGI4SzZNU0FWeko2dlhKdjVTMDVqczJ6ZEhjNm9kRF9STnpTZm4zT3JzdDd3c25ic2VNWGVLeE4xaGMyY213bldGcHNEalVOSDVvYmx0NFVpbUNiRmIwWDdJZTZZeW5HcUxiMTN4Y0xpTGtVdGFNTVVjRGdicWluUQ?oc=5) |
-| How Israel's policies created famine in Gaza - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1lRXR4R0V5T05rNEpoTHhNRnlBV3lSVjJoemdGaVVmVkFYN0RmdElHQTUzMnU4UW12LUxKLXlCMGdfdk0tWEdkVG1HbHRRLVFwa0VFajJreWRpZ9IBX0FVX3lxTE92LWpWZzMwVms2TS1sNnlfR2d6cnZ5RU53WmhxVVhpZDRSa0RDVzNRc1RQY1hZVW1UZ18wVTVvR09RSkMwNzM4ZXB1NEJET3dORjBKZnAzYmFZb0VONzBF?oc=5) |
+| Parents of missing 7-month-old child in California arrested for murder: Sheriff - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxONHhJaENscjJub2gwN3lLQlZfWVVBOGxBTTE5clZueUM1YzhnYk9KVVNoanFaVjd6d0hZekJfNGlZN2JUWW1OQjlvcXVQX2pMdXRpQmRub3UxODJYeW92LUpNdUtLVmM4TktVVGxQQ1UydEZOd19hWU5ndnNxeDVMYWpBVDQxdXlOMTdsRzdRa18tSGhHMmtib1ZNUTc2U2dp0gGmAUFVX3lxTE9MV1JsUWhmcEktZkFvZWhhMXVlTklfODd3S1FwbWlmbkkxN0c0WUJmU19Mamo3NHV1aFVsVmthMk85Tm1XOHJNR001dDFsYWtGRl9TTnJHUlprV1l1MjQwM1QwTHNHOXdoZ2tnTXVkNzRTdDlDc2NnMlFoSGNWUU1kTE5CNGlCZkZ0WG1BeWdQcVloS3pENTFTQ2swYWtNYWhXVXJsWWc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
