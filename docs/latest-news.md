@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 11:41:07（北京时间）**
+🕒 更新时间：**2025年08月23日 11:48:20（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | Will Serena Williams's weight-loss admission help shed stigma of anti-obesity drugs? | [阅读全文](https://www.bbc.com/news/articles/c8de89lg21jo?at_medium=RSS&at_campaign=rss) |
 | Chappell Roan slays Reading Festival with fairytale-themed set | [阅读全文](https://www.bbc.com/news/articles/cr74p245zdlo?at_medium=RSS&at_campaign=rss) |
 | England's appetite for destruction undimmed by thrashing of USA | [阅读全文](https://www.bbc.com/sport/rugby-union/articles/cp94p2y9rl3o?at_medium=RSS&at_campaign=rss) |
+| Farage vows mass deportations to tackle small boats | [阅读全文](https://www.bbc.com/news/articles/c9vd3rx33g1o?at_medium=RSS&at_campaign=rss) |
 | Woman jailed for race hate post says she was political prisoner | [阅读全文](https://www.bbc.com/news/articles/ce83pj1ggmeo?at_medium=RSS&at_campaign=rss) |
 | Five dead after tour bus crashes on New York highway | [阅读全文](https://www.bbc.com/news/articles/cm2kp312ryxo?at_medium=RSS&at_campaign=rss) |
-| Are girls being left behind in school? Experts are sounding the alarm | [阅读全文](https://www.bbc.com/news/articles/cx2q189kv7yo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
