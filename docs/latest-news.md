@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 13:41:03（北京时间）**
+🕒 更新时间：**2025年08月23日 13:49:15（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Famine is declared in Gaza: What does it take to make this pronouncement? : Goats and Soda - NPR | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxORXotSTVJOHJaRkZGTjFNV01KanhJcUZQNlJDQjJlRUxZVTRFeHZvV3h5TU51dEVPWUdaNzREZlY3amhVTGRtcVpING1tOFBMbWMzLUlNem9LR1AzWFJYZUhDQTA2dDJ5ZzRYQlpUd2RCaEtFcndhcHluRGV3NE1SX2FSY1hZd0ZGWGxyNHF1YzBWMDgtRXRsQVU0Y19zMTJ0ckJNMng2czd4V08zVl9WNHNoZWk0VXdvcDNaUWpDOGxmMUgwV1Nyc1lTOENzelIyWE1r?oc=5) |
 | 5 Dead After Tour Bus Crashes on Western New York Highway - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5ZcmVqT3J6RjlOb01IRlhGLTIwQkNZTlh4TjBqM1ZjWUliWVRIU1hXX0h5c2Z1QUFsNTlTbFRteE00eVEydE1oZUxaSzlDSUJIMXdGQ0ZsaG9fT1E3aUJ3N1VrN2s3Qm5DaF9oci1TYzZzeHM2ZC1SWGhWY0I?oc=5) |
 | Independent redistricting champion spends millions against California gerrymander - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQcGJsZnpSYjNOT3hwU1NjdHdSVGlYLWRDSExha2ZEMXZ2T0Fscm1mU2NSRlZSOFlXejg1VURiRm9UYS1RT3ZJNm5tTm5vbUgtSW9KU0R2WUFkaXNyTU5mTFA1S3VPaS1qaEE2eUJ1UDVYNERqbzdWaTVMVl9fWDFldnlDZG90ZGhOWnFEaHhEMEVpV0ltYXBUdW9lQUc?oc=5) |
-| F.B.I. Searches Home and Office of John Bolton, Ex-Trump Adviser - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOc0QxdHJoOVZSQ3FFZ3BQTER4SWdWM01hcGpUbWJ1cktjZG9NdTg3TVFtOE1mUm1pcElWc0FFUG5RbEh2b3BQNllaU0JxYjBpVm9ZczdMTl82Q3ZqdW5zVlNIZnkyWmxvZ1NFMVQ1TlJhbEk4c3Q2QWdUQmk2ZVRZWEE4MjE?oc=5) |
 | Wrongly deported migrant Abrego released, may be detained again - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOZk1SaFNrNFpzVjdXV3ZJaTBQVDB1MjN5T3NVN2ZkVmN5MFZzWmtTb0xaV3JHd2J1SV9nQmh6SHJoU3lvX1hkZlNwUHdZM3Z1dVhSOGE0X3gzRktDX1VIby0tOEhEQ3MxU09DNnN4YUhwS0ItdURtWkpQUHdsTzRLU3V2ZmtaLWxXMTlEc0VOZmI1SFFhRy1HVFJkS0F6M080dWpmSko5MnF6SG8?oc=5) |
+| F.B.I. Searches Home and Office of John Bolton, Ex-Trump Adviser - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOc0QxdHJoOVZSQ3FFZ3BQTER4SWdWM01hcGpUbWJ1cktjZG9NdTg3TVFtOE1mUm1pcElWc0FFUG5RbEh2b3BQNllaU0JxYjBpVm9ZczdMTl82Q3ZqdW5zVlNIZnkyWmxvZ1NFMVQ1TlJhbEk4c3Q2QWdUQmk2ZVRZWEE4MjE?oc=5) |
 | An Ohio man made a list of the 3,599 books he read in his lifetime. It has become an inspiration to book lovers everywhere. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOWnBHcXAzWjVKM0dzUzVQYUx2Wi04YVo1R3pLMndYeFcyVzd5Vy16eW9xQllEeENEMUxmRy1FYlM4cWhrOTgyT0tjOFpSOGtDSkxTRFd0NE5GTXd4eHFBQ28xazhkaDMtZTNOMElDZGJqcU8yTXM5UDVELVQyQl9ycTRWbGxRR29MNlJlejVzTG5VbGRNenJxOXBvRlF6RVlLLW1XdVQ5STd1bXpWTHfSAbMBQVVfeXFMTTFLUGhsWkJiLVVzQXVKUjVGcmlpSzlDWkdMZ2pDUWxYdTlRZGRQTlhWNnhPYnpubVkwTFRhbFdMNEI5QTlxeng2dkk5OExndjJzdld4Tm9XUVlQREJjVnJKNjExNUFsQkYtRDJwSkxlRTlHWnZ5bWlCZEwzTVZQTjZGSDRwazNQa01Cbi1pLTViVC1YSUlRakRpenVwRGdoY1VHWVdOLUQ4Nk9fLXVfSXZmSjA?oc=5) |
 
 ---
