@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 23:24:13（北京时间）**
+🕒 更新时间：**2025年08月23日 23:32:56（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Lyle Menendez denied parole, will remain in prison along with younger brother Erik - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOZnhIN28xZ2xEMExSeDRpVTRCNXI5bHhwaWNGekJKQnYyYWM4Zk96UDNYNU1wdzRUSW5MQXBXTjNpeExlMjRNZlBRVTZIRzgxd2pDSGpOYUhka256bi10X3BraGMtWUl0Z0YyR2JnbVRfcXFncldZQUxTZ3lnX2JNcnAtS2lDUmQzOW1ZTmlJci0?oc=5) |
-| Judge blocks Trump from cutting funding over 'sanctuary' policies - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOVkYzS1VQUnE2WnlJZWxfYUVQUlhtemhJd3Rxc1NTOEg5OURGc0l4OTlNbjFJQmNPeVlpaFR5cWVFbkNlQzAwRHE0SXJkR2JNc1lqQzdkVGxVX1I5c3h2TUJpX29kZFlTQmJTUnFxWUJ2Um50cm14cGgwaEVid3JhVHZQZlBGQTdpQUNweUtab29KRElEZTZ2OFdKUXRYS3c?oc=5) |
 | Ghislaine Maxwell interview transcripts released by US justice department - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFB3cHlmY2ZUaWxleEM0MEg5MUN5ZTQ1bWoxS3dyb1BNZmxCeTc1cThPcmtvb2ZjZnd1dUpNQzZrRWZ5cmpGZUF3dy1MeWRWU1JnQ1VHajhrZG91d9IBX0FVX3lxTFBzZ3Uwejl3OXdIZTNqY3JXRlphRVlRVFZZSXE0NkRiaFJMQmhpSXc1OXVZQ2JjbXhKWTVVSGJ0TnR3WXMtUWxDVUY0ZW5YSFlNYmlPUFhWRk5QeW5lWmdJ?oc=5) |
+| Judge blocks Trump from cutting funding over 'sanctuary' policies - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOVkYzS1VQUnE2WnlJZWxfYUVQUlhtemhJd3Rxc1NTOEg5OURGc0l4OTlNbjFJQmNPeVlpaFR5cWVFbkNlQzAwRHE0SXJkR2JNc1lqQzdkVGxVX1I5c3h2TUJpX29kZFlTQmJTUnFxWUJ2Um50cm14cGgwaEVid3JhVHZQZlBGQTdpQUNweUtab29KRElEZTZ2OFdKUXRYS3c?oc=5) |
+| Texas GOP passes the House gerrymander Trump asked for - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQdHBiYjRiOXJOTjQtUFJPODYtQ2dBQjdja3dwX2NyeE5BMGJJV0RieGpmSklYSHJiWWlwSWY0ek9vYk5VMDR4c2JEQTY4dzNWZU44d1ZUUEdlZ2N5WVVLUE9CbVZONGhmSm80TUFJRHI1MkU4VkRpRkhPWjMyWktKenEzRWpZWURDekJGT2EzTkpGOUNybWc0?oc=5) |
 | Wrongly deported migrant Abrego released, may be detained again - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOZk1SaFNrNFpzVjdXV3ZJaTBQVDB1MjN5T3NVN2ZkVmN5MFZzWmtTb0xaV3JHd2J1SV9nQmh6SHJoU3lvX1hkZlNwUHdZM3Z1dVhSOGE0X3gzRktDX1VIby0tOEhEQ3MxU09DNnN4YUhwS0ItdURtWkpQUHdsTzRLU3V2ZmtaLWxXMTlEc0VOZmI1SFFhRy1HVFJkS0F6M080dWpmSko5MnF6SG8?oc=5) |
 | Mercy Flight reflects on teamwork after following Thruway bus crash that killed 5 people - WGRZ | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxOMTZvaHlKYmhDT1kyOFpCcUNubnFfdXhkWVJiUTdVLTN2Q1RGdWhYa3dQREdrTUE5bFBvZ3RVOUVlUmNHMTJia3hMSjRYT0llQXZsYjZDaGY1RmhyYzNZTFhEbkNEOWFxUnZDSTZOel9tZHBndWNKeFg2MWRuTk5OQ200QnZTSmxwYzRSOG9uR0NFT3paTndlbkhUUGlkVlFLZ1VCaTl4a1Nvc1hkUmZlU0g1Rl9Tb2J5Z1oxQ1ZyRTZUX3RE?oc=5) |
-| Trump’s DC takeover produces moderate drop in crime — and huge spike in immigration arrests - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1BaFlvdWt0dWQzaVBoaEt0QXlEcDZBUVdLQUdiblE3cVMweTRjWVhZN2l2OVBheVR3QWlraWdIbVR4T1ZkUFMxWk5KVUVMOW1DMkxUcDVnMnBUVDE4b2NIMk9tYnl6aHFZR3lGSzhKZHR2SUpFRy0wcDJLUE4tYzTSAYQBQVVfeXFMTVNodGZpZS1laFFCaUVoY1c4VGM2WGlJbVBBVmJ3QVFLWmlYMXYxbGZmMEJUT01hLVdXTmg0OEIzWnFoY3pSdGpkcUhPSnZTVEtJVzEzdjdlV2NGVW80RFRHbXpySXI3VFQ4SnVzNmFRR3dkYTZpN2RhN25lRDB3OHFKNEFN?oc=5) |
-| Texas Legislature Gives Final Approval to Redistricting Map Favoring Republicans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTFBwekdMQ1g2NG5Id1JyNXZ0NUpTSEl2eWdsNjdkOG9CTFQ3eFVXaXJaUFdCRUdZMmRMLWxLRVNvMEFDck5ESllfSDdCem41dVJZWkZzQUpLV1ljaFdKVG5jZEpqZ2lSZDVkQ0E4dkJDTQ?oc=5) |
 | Justice Department won't defend grants for Hispanic-serving colleges, calling them unconstitutional - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPWEh4WVlEWXg5aWRVbXJna0RuOFU5ODlBS095bE5UM1hQdVZFZzJ5MWM3b0VCMDZQYzBrbHphM0k1N2Z4bDdFbTZvQlc3YjRSV1JJYldscXRxc1RFcHVVMXFaMHRZTGpRSzFDb1R0d25ucC1wdlBxYzdyUWlGeFRXTFFrbVBOVHhXX3lWTi1WbG1JSmVVRFJCSVNXTUoyNXE4WHVuaHlqOE9lajA5cVpnVQ?oc=5) |
-| Trump repeatedly pointed finger at Bolton in the days before raids - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQZG94cnh6dkVHdHdEemFMaHltVUFrQzdrREV0NmZFWUZXRU0xSV9EOVlzVFhaQ0p5cXVTRlJxcWNXVXgtOVdoRzdEeFhvSTRfY1FqRGdta2RaSndfNjRtV0NiU1BsUm51TnlXaDhXeEZORVA3QTJWMHpmdTAwQUQ4S0lXU0VOdlV6UXBaX05OUFNSUU56?oc=5) |
 | Home Depots become prime locations for immigration enforcement - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxObHRBeHJSODNxNFYwLWFBOE1GVWx2UDB4dkNWbjQ0d1prWXo1RVpjUEdrTlJDdjc4a1FNdHpMVVFZRmI3bUl5cUxEbW5fYlR5MU1xX3o3T2tYdlhreGFpUkc5Y0stSWJZYmRHeEJuSThrOWNRX29nZURWQkhySzdkLVF3TnpFaTJjejg5aU5SRnliX1d3Zm9xdjZMUGwtNjM5U3RtQ09tdUp5Z9IBVkFVX3lxTE9LelctMG9WZlB2Qi15UzQ1Y2ktTFVYT29vc0xpcnNUbmY5SWE2ZkdFYnFnaGdxOWc5QzVzdC1BNFFPdXVFT3VOVU9QSHJCVTNSQkJhTGdB?oc=5) |
+| F.B.I. Searches Home and Office of John Bolton, Ex-Trump Adviser - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOc0QxdHJoOVZSQ3FFZ3BQTER4SWdWM01hcGpUbWJ1cktjZG9NdTg3TVFtOE1mUm1pcElWc0FFUG5RbEh2b3BQNllaU0JxYjBpVm9ZczdMTl82Q3ZqdW5zVlNIZnkyWmxvZ1NFMVQ1TlJhbEk4c3Q2QWdUQmk2ZVRZWEE4MjE?oc=5) |
+| After Gaza Famine Report, U.S. Is Mostly Silent and Israel Is Defiant - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQNGRwUWU1dTI1S0FNVUNEclc2dGQtX0swZlZZT0JPWDByOVYwdERiVEhObG85YXJQb3pHaFE3TThCYkpSanNsTGZqMnI5bnBGNzFieU5neVMwT3pld0FzbFRFUFZCUlN3b1R2bkJRb0pOOUlCMTM4WEp2QUVXbE1jbnkzYnVYWHVyZUpySHRGMDk?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
