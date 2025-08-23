@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月24日 03:48:09（北京时间）**
+🕒 更新时间：**2025年08月24日 03:56:10（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Lyle Menendez denied parole, will remain in prison along with younger brother Erik - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOZnhIN28xZ2xEMExSeDRpVTRCNXI5bHhwaWNGekJKQnYyYWM4Zk96UDNYNU1wdzRUSW5MQXBXTjNpeExlMjRNZlBRVTZIRzgxd2pDSGpOYUhka256bi10X3BraGMtWUl0Z0YyR2JnbVRfcXFncldZQUxTZ3lnX2JNcnAtS2lDUmQzOW1ZTmlJci0?oc=5) |
 | Trump’s DC takeover produces moderate drop in crime — and huge spike in immigration arrests - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1BaFlvdWt0dWQzaVBoaEt0QXlEcDZBUVdLQUdiblE3cVMweTRjWVhZN2l2OVBheVR3QWlraWdIbVR4T1ZkUFMxWk5KVUVMOW1DMkxUcDVnMnBUVDE4b2NIMk9tYnl6aHFZR3lGSzhKZHR2SUpFRy0wcDJLUE4tYzTSAYQBQVVfeXFMTVNodGZpZS1laFFCaUVoY1c4VGM2WGlJbVBBVmJ3QVFLWmlYMXYxbGZmMEJUT01hLVdXTmg0OEIzWnFoY3pSdGpkcUhPSnZTVEtJVzEzdjdlV2NGVW80RFRHbXpySXI3VFQ4SnVzNmFRR3dkYTZpN2RhN25lRDB3OHFKNEFN?oc=5) |
 | The redistricting war between Texas and California is about to jolt the midterms - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNaUk3am5pZzJ3SjlYa0kwampkX1VpdWRRVmNTQy1CbGQxRjhTOWNZbDR6OTlra2hYalNPZ1FXTFliQTNvbkJkWW1TbS16ZENLQ0tpWExfZnBrOW9Fb3JmZE9kYW9JLUVCbTJSNXFNWll3d3ZFMVNoTzNRZ0lCdWprVVJkU0xtbjVhTW9fWVEtbU82WlBUVUVLYzlpZ1ZUVW8?oc=5) |
+| Texas Legislature Gives Final Approval to Redistricting Map Favoring Republicans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTFBwekdMQ1g2NG5Id1JyNXZ0NUpTSEl2eWdsNjdkOG9CTFQ3eFVXaXJaUFdCRUdZMmRMLWxLRVNvMEFDck5ESllfSDdCem41dVJZWkZzQUpLV1ljaFdKVG5jZEpqZ2lSZDVkQ0E4dkJDTQ?oc=5) |
 | Judge blocks Trump from cutting funding over 'sanctuary' policies - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOVkYzS1VQUnE2WnlJZWxfYUVQUlhtemhJd3Rxc1NTOEg5OURGc0l4OTlNbjFJQmNPeVlpaFR5cWVFbkNlQzAwRHE0SXJkR2JNc1lqQzdkVGxVX1I5c3h2TUJpX29kZFlTQmJTUnFxWUJ2Um50cm14cGgwaEVid3JhVHZQZlBGQTdpQUNweUtab29KRElEZTZ2OFdKUXRYS3c?oc=5) |
-| Texas redistricting fight shakes up battle lines for both parties in key US Senate race - AP News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNNy1JeURCdjBNTE5JdnJhb1lLS21sWWpkUURMMTQ1TnJjaWd1V3ktYzQ0Ym9Bbmowalhja0t4SW05SEZyTVR4d21hemFlcGwzMnQyVVVQdGhpa01udEdlb3FPa2RLZG9ROWFGUkw2Zl9zdTc3bEhXTDN1MzEtS2h3RklVN1ltZw?oc=5) |
 | Justice Department backs lawsuit seeking to end grants for Hispanic-serving colleges, calling them unconstitutional - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOR0p2aG9KM3diR2xWVFFfWGpJWGhsUEoxa18yb1F5M3pNTTgtLUw0QWxMLV9rbmdDU3NXNnRTVDNERVNTNUJhVlpVdW5tcXRXMHpQUTVSRUVaWHZzdFdIT0YyZ0hpZ1AwMmY4TEZmSE54WmtyUkJsM0JwMnRlbXhlWVZRREI0bGdYVFpkQmp2Mnh1WkFx0gGaAUFVX3lxTE5pTTV3YXl4MWdXbV9kSm96RDlnOU1zajVoMzBfaEY0VFp6OWxQSWVHb3JjZC1ybzFGR2l6Ym5paHhVbmYzc3NYOFQ2dHYzTFZScUJDSTRZWllqbU9YbE9ZNk1HZHI2cEtJY1otREpsWlVreENqeFppTV9QVVJQRDZVV0J0Tzh4QktDRXF4alBYYjNBRXBJcnpBT0E?oc=5) |
 
 ---
