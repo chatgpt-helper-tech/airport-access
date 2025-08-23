@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月23日 15:00:06（北京时间）**
+🕒 更新时间：**2025年08月23日 15:09:16（北京时间）**
 
 ---
 
@@ -10,10 +10,10 @@
 |--------|-------------|
 | Ghislaine Maxwell says Epstein list does not exist | [阅读全文](https://www.bbc.com/news/articles/cdd3pe6189go?at_medium=RSS&at_campaign=rss) |
 | How Israel's policies created famine in Gaza | [阅读全文](https://www.bbc.com/news/articles/ckg4p90z1kxo?at_medium=RSS&at_campaign=rss) |
-| Lyle Menendez joins brother in being denied parole in parents' LA murder | [阅读全文](https://www.bbc.com/news/articles/c4gq55evnlyo?at_medium=RSS&at_campaign=rss) |
-| Will Serena Williams's weight-loss admission help shed stigma of anti-obesity drugs? | [阅读全文](https://www.bbc.com/news/articles/c8de89lg21jo?at_medium=RSS&at_campaign=rss) |
 | Farage vows mass deportations to tackle small boats | [阅读全文](https://www.bbc.com/news/articles/c9vd3rx33g1o?at_medium=RSS&at_campaign=rss) |
+| Lyle Menendez joins brother in being denied parole in parents' LA murder | [阅读全文](https://www.bbc.com/news/articles/c4gq55evnlyo?at_medium=RSS&at_campaign=rss) |
 | Chappell Roan slays Reading Festival with fairytale-themed set | [阅读全文](https://www.bbc.com/news/articles/cr74p245zdlo?at_medium=RSS&at_campaign=rss) |
+| Woman jailed for race hate post says she was political prisoner | [阅读全文](https://www.bbc.com/news/articles/ce83pj1ggmeo?at_medium=RSS&at_campaign=rss) |
 | Parking firm pays £10,240 after losing case, again | [阅读全文](https://www.bbc.com/news/articles/ce83n7j7p6po?at_medium=RSS&at_campaign=rss) |
 | 'Two laptops, six plugs': The South Korean cafes grappling with students who don't leave | [阅读全文](https://www.bbc.com/news/articles/c80d9e8ep7do?at_medium=RSS&at_campaign=rss) |
 | Trump's plan for DC homeless is giving San Francisco deja vu | [阅读全文](https://www.bbc.com/news/articles/c2kz4d0vwlzo?at_medium=RSS&at_campaign=rss) |
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Ghislaine Maxwell interview transcripts released by US justice department - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFB3cHlmY2ZUaWxleEM0MEg5MUN5ZTQ1bWoxS3dyb1BNZmxCeTc1cThPcmtvb2ZjZnd1dUpNQzZrRWZ5cmpGZUF3dy1MeWRWU1JnQ1VHajhrZG91d9IBX0FVX3lxTFBzZ3Uwejl3OXdIZTNqY3JXRlphRVlRVFZZSXE0NkRiaFJMQmhpSXc1OXVZQ2JjbXhKWTVVSGJ0TnR3WXMtUWxDVUY0ZW5YSFlNYmlPUFhWRk5QeW5lWmdJ?oc=5) |
+| Ghislaine Maxwell provided no incriminating information during meetings with deputy AG on high-profile individuals who interacted with Jeffrey Epstein, transcript shows - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNdWR6U3ZhV2VUeWNRem5OcngycHMybUl6S1RJbm4teTNRZXY1ZWJjS0VuZUtZbUM0MGhzVUlZUHZqZjlveUNBUmFxUGlmc1pENWpBU3pSeEdCUjM3Y19POHBBZFdIaXd5UDhRdmI2cjdqMlBMbml2cC16ZGNGclktWW83c0I3TVhjYXlJVmZ1U3hzZEdKblVZV1RGcURxVlRELUhJbTVzekZJMnBORTlOdnlJamZ3eHdBZGVF0gHAAUFVX3lxTE5lOE9fTzlfbExRS2F1cnNvZDJ3MHc0a0F1NE9LSmdlOTlMT0p5LVZiMHpOdXM5b29GYWRHcVhObzZISFdCYzR4TWlBcHdqVGxySU1oZndZWUZUV2F5cGpwN0NmazBQMHFxUUszNG9Ienh4Zm9sQmxvcGw1U0tseDlOZXlvWTczYVNKRGpnOS1WLWVpdERQUklESE14SFZFVFpha0hSS1o4UGRkbng1WnR0S3F3OVlPamNlZlk5YVdkOA?oc=5) |
 | Lyle Menendez denied parole a day after brother Erik’s bid rejected - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5XcDhCb0VsNDhnZFNXYUxDR1JZZmxCd0ZuYUZfa1psMWVNRkgyc1UyY0hmb1djeVJPYTJYbDZORFBVYU90WHMyelZnZXUzY3FQNEZPcThfYVB4QkZuWktiaFRBV0M0NzBrNU1NRm1aVVZJdmxDN0pEejZnS1BmT2s?oc=5) |
 | See how new voting maps in Texas and California would shift the political landscape - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOQVpvN0t1alBjU3lYQWZaUXVlRl9lczA5OHU4Q1gydW1UYWx1ZmJmMmx0TmNjVXNyakQzRlNfN3U1aDlYMHoyNm1vcTFJTV9pdGpUa1BkRGhTVkNjTXFSQUtkWW9XYlJtTE5sZzA4TWxVSGhFOFNfclFLSGdjNmJ6Q2k2QVBFU2tyQXc?oc=5) |
 | Pentagon Fires the Defense Intelligence Agency Chief - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQWTNIcmg3cS05LTlPbVdvQndIeUZVM3FrN0pLdWhWU1gwNDBJcTE1cHE5VzRSY2dyS0Y1aUE4V1V5Q2d6OG96dEI5dFdQNHZtbGdtbDRGWlJ2eUlyLXR6OS11ODI5RU81WTlQaUREWk9KaGhGWjI3NjJkTHZlOTRkcnl1YzZwbkFZQnpzVy1kMURuVWxGdkE?oc=5) |
