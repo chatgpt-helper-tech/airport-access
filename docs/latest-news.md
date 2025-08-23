@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月24日 03:08:04（北京时间）**
+🕒 更新时间：**2025年08月24日 03:17:27（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Abrego Garcia's attorneys say government trying to coerce him to accept guilty plea or face deportation to Uganda - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPR284UmE3bWhGVC02WmE5b20wTjdXenZZMzBHek1JX3l6VHV3RWx5dTc2LW5tVDFibVdSekpVLUxENmwwZFltd0hzblFIZElrS2FEWmg0UnVtVzhnNmpJVnpNNUE5UVVoWEdORFN0b0E0V1hpVXY1d3JyQnUzbl9mQUdyeDhLWGp5cW5qTE56ZE1CWGFibnZyMjU1SXQ4SDlRNTdlRVRXaGxCZ9IBrwFBVV95cUxQc1ZaVXBMTDJFN243WEpuNi1YSFcxT3Y0SUMzVkpMcXhzT2Y0VlpDZXJ2bkUzM0QxcjFlWmI3Qll5REQ1Xy1kVTFMTWVoOUdzRWktekxzc2xIeG9fVDZ0czNaeDFYQzFyd2Z4RTR6RnpvbGRITlpEZTJqOGlTR25vemZ4dmlhSWpKVnZvcW1zSS16UVRvLXNwYU9ud0sxUmc5Tmd6aWRzY2FIM1loekpV?oc=5) |
-| Lyle Menendez denied parole, will remain in prison along with younger brother Erik - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOZnhIN28xZ2xEMExSeDRpVTRCNXI5bHhwaWNGekJKQnYyYWM4Zk96UDNYNU1wdzRUSW5MQXBXTjNpeExlMjRNZlBRVTZIRzgxd2pDSGpOYUhka256bi10X3BraGMtWUl0Z0YyR2JnbVRfcXFncldZQUxTZ3lnX2JNcnAtS2lDUmQzOW1ZTmlJci0?oc=5) |
 | California’s governor has become an anti-Trump comedian. It’s 2017 all over again ｜ Dave Schilling - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPQmUtcjR5M0tYY3NJUlVYM2VfNHlnWGdRSkpUb0xjeTEweXBMZzM5TXg2bmVhNUNSdml2SGdKbndXdDYtUXgtbi13MldibVM5Y1ZZUFlha004bGRZTjJyVlc3bk45RUJtUEtFWW1PZDJvWHp0dnR2RHpnNDFmdGFwUWd0NXVaUQ?oc=5) |
-| Frustrated, Trump signals pause in his Ukraine peace effort - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxONnozbXlVb1k1emZuS0VPVnR6RnJEYVBIek9CNjVabjZFUUhHUDBMUTRWS1F1bHpaM2ltU2t6dE9mUVh5WGhpVzlKTzNMZ2hzV1BleEgzRTZmcmZJdXVxWHg2UGl2MTQ0aWtSSWEyZzY4cGZaZjYxTTZqakVWY2dDODZWOA?oc=5) |
+| Lyle Menendez denied parole, will remain in prison along with younger brother Erik - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOZnhIN28xZ2xEMExSeDRpVTRCNXI5bHhwaWNGekJKQnYyYWM4Zk96UDNYNU1wdzRUSW5MQXBXTjNpeExlMjRNZlBRVTZIRzgxd2pDSGpOYUhka256bi10X3BraGMtWUl0Z0YyR2JnbVRfcXFncldZQUxTZ3lnX2JNcnAtS2lDUmQzOW1ZTmlJci0?oc=5) |
+| Frustrated, Trump’s confidence in Ukraine deal appears to be waning - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxONnozbXlVb1k1emZuS0VPVnR6RnJEYVBIek9CNjVabjZFUUhHUDBMUTRWS1F1bHpaM2ltU2t6dE9mUVh5WGhpVzlKTzNMZ2hzV1BleEgzRTZmcmZJdXVxWHg2UGl2MTQ0aWtSSWEyZzY4cGZaZjYxTTZqakVWY2dDODZWOA?oc=5) |
 | Trump’s DC takeover produces moderate drop in crime — and huge spike in immigration arrests - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1BaFlvdWt0dWQzaVBoaEt0QXlEcDZBUVdLQUdiblE3cVMweTRjWVhZN2l2OVBheVR3QWlraWdIbVR4T1ZkUFMxWk5KVUVMOW1DMkxUcDVnMnBUVDE4b2NIMk9tYnl6aHFZR3lGSzhKZHR2SUpFRy0wcDJLUE4tYzTSAYQBQVVfeXFMTVNodGZpZS1laFFCaUVoY1c4VGM2WGlJbVBBVmJ3QVFLWmlYMXYxbGZmMEJUT01hLVdXTmg0OEIzWnFoY3pSdGpkcUhPSnZTVEtJVzEzdjdlV2NGVW80RFRHbXpySXI3VFQ4SnVzNmFRR3dkYTZpN2RhN25lRDB3OHFKNEFN?oc=5) |
 | 5 Takeaways From Ghislaine Maxwell’s Interview About Jeffrey Epstein - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxON2FuaTZDajAyczVBNjh3MEZQemlhM1g3MkNTb3IzOEJQenlFZWZiN1RQWlUxOGdudkktV2N4a3ItZnFvUkFjN0lNZEhULWUzYzc5VmNIR2F4NGJTR0x6RjhBUmxfYTM3TTliQ3FjU3hjUkdrQ1U2cWJjczh1Z0daQ1piWUVwcVhZYUhFS2k1Wm1UQThD?oc=5) |
 | How California bluffed its way into a redistricting war with Trump - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNRjhGLUl1TjBFdUhpSEhUQ2tkcjVzNmZvT0l6VkVtMGpTLXBpd2d6azctVWoxOUZXM3BMLVhjZVQyRzJ3aEEzZ1NMQVRNX2FhcS1ZSERGV3k4YWljazA2cW1GTkhvUWJJMTJ3Nks4bFVkbWZESEtYanU4cl9GNklyaHBJNHAtZ2s?oc=5) |
