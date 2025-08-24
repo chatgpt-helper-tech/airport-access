@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 01:16:01（北京时间）**
+🕒 更新时间：**2025年08月25日 01:25:34（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | Zelensky vows to continue fighting as Ukraine marks independence day | [阅读全文](https://www.bbc.com/news/articles/czxy2v9dzgxo?at_medium=RSS&at_campaign=rss) |
 | Government plans to overhaul asylum appeals system | [阅读全文](https://www.bbc.com/news/articles/cg4xp4ywk47o?at_medium=RSS&at_campaign=rss) |
 | Israel pounds Gaza City in preparation for planned offensive | [阅读全文](https://www.bbc.com/news/articles/cvg478y8l09o?at_medium=RSS&at_campaign=rss) |
-| Worker killed at funfair 'will be loved endlessly' | [阅读全文](https://www.bbc.com/news/articles/c2djy596rezo?at_medium=RSS&at_campaign=rss) |
+| Worker who died at funfair 'will be loved endlessly' | [阅读全文](https://www.bbc.com/news/articles/c2djy596rezo?at_medium=RSS&at_campaign=rss) |
 | National flags have started lining some English streets. They may say something more | [阅读全文](https://www.bbc.com/news/articles/cx271162ee3o?at_medium=RSS&at_campaign=rss) |
 | UK could hit 30C on Monday - but strong winds and rain lie ahead | [阅读全文](https://www.bbc.com/news/articles/cj6yp0j7znxo?at_medium=RSS&at_campaign=rss) |
 | Boy, 15, and man held over restaurant 'arson attack' | [阅读全文](https://www.bbc.com/news/articles/c1dxy4e9q49o?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | Trump ‘manufactured crisis’ to justify plan to send national guard to Chicago, leading Democrat says - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxORHhJSGFEYTlwM3pYUmZ2Qm1mb0lOU18tRFQzVTY5aE5JVUQwM1h2RDlRNzFkMkxUMHA5bDgwMWRZX3U0WEpRbzhTY29RWmhSU3dQZ3dqQkx3VXB3Wnp6Y2phYV9NUXBkM2loLXpYdldkRUpib09BbExrZmx0YkFtVW5LWTBhWkFSVFVXQ1lOZ2xDSkNmckY0?oc=5) |
 | California’s lightning-fast push for partisan redistricting reflects Trump’s new America - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQbElfWGJwcUxpeFFXQ3VHQkhtS2FTQlNhaktpb3hiNTN6czRsU0gwY1NGQUd3cXNfU0FHcWloSTQwdzUwb0Q3cGRtdkxRRWNuWGxza2NZVFBreURSRlFrSGZQRkFYcHpmNmFHeXdieloyS0IyaTlYdE5rWmVPOF92R2x0VGQ4em1YVnhRbE81TlhJRk04cktUbnhiY3Z5N3RWQXJjVi1MaW45X3ZJdHJLOG5VbXVqSVNqQzlPVzBMeUc3Vmc5aW1KbE5jazJFUlJxTVE?oc=5) |
 | California board denies Lyle Menendez parole after rejecting his brother Erik’s appeal - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQSGtmSmtxa0dBVUFiTnc5RUJ6VHUzZ3dwQ0g1bE1OcmVDeXp1bjhSY0xWa3NRbDdTQkdrbmRYX1JNVTd5Z1I0TWt2OW9xRENMMFNNQXdIMzRrQlJoUjVQSE40NERRTE1RTzBxcXRaSnM4UGxPNVcybW5aVTd4YzRmUFUxeGU4eU9ZLWJqSHRRcHZxSi1xaVFtaHZpN254aklvdHFtaWY5djVfbC1oa3pReFN2WUxQby0yNDhDc0xn0gHDAUFVX3lxTFBXRGRlb1BFNkJKU1NfOWYwX1BhRDlnbTRfT1pUeWYyQTZ1VERFWW1IU3VrenZwUm1INDhNcjZiX1llMlhjZ1hOMlVsVk8xX3lOSmluc0FzM3NCazhKM3VYV3NlTXYzbTQ2OWl0VWlLYWlUUjZ3QTRPSmNyTGZqbkYzMkh4OEIxUkRMNGxCR2VvdlRXU1g4T0ItSGdfam8xTnRLUlozbHhMOGZNTEw1clhEZ2NoZ1ZNaFBaMlZQSXNrM3hINA?oc=5) |
-| Zelensky Marks Ukraine’s Independence Day With Diplomacy in Kyiv and a Plea for Peace - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPbl9jX3NKSGJQR211eUxDajAxRkVkaGtSdzRrcDBDbE55WFVxTDFHYU5TcXpPSlN6bklVZVNHUDRZNkcybUt0Tl9sNTNLbGJ0Y0l4MUlud090RmZHZEM4YUpNSGFKaG9abWQ0TE8wQ3l0ay1TZ2ZXQkhuc2k0WEgyeTFoZnlFQXRTZDBCd2czQQ?oc=5) |
+| US heat wave smothers Pacific Northwest, poses extreme risk in California and Arizona - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPdjFSMkFPVU5PMXMydXVxanBwVkJCSVJFNG9SYUlBbV9MNEV2MnNEcTFmOFhNY3VZZTFTQkxrZi10Q1B3NlBOYVU0TDBrZ0RnbzZTRTl6M2ozYUNpSVA3aUhudTRGR2lEWDBycG9kYWxxWW9GdEV4UGgxTTExVFdlN1BldHZUR1c3ay1ham5rclY4UWg1UUowQzhZU2xCcDlKbDNBYlpacTVyX2xhVm42Xw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
