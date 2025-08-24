@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 02:49:04（北京时间）**
+🕒 更新时间：**2025年08月25日 02:58:01（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump's redistricting push could bring decades of Republican rule to the US House - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNWjhra0pRc0FkM2pFYjRvRHJiQUtPdEVKRW1IM2gtSnpoTzBoQkpSSlhYdlAza291SHlYVnY3U2xPUzVWZkowOGNFXy1OV3YxU3Vibk4xUlp5SHVLcXYzYjJEVzN0bm4yQ2VwelFfX05meWNxWWd1Qjk0WlJ1Y1E3eExOLVlySHQ5TDZmNVpUN281Tmp0X3YtZzJpbEtYV3l4am9tMV9GN0Z1RU9BdXB5TW1salZBZw?oc=5) |
+| Vance expresses optimism that 'energetic diplomacy' will end the war in Ukraine - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPTzd5T1VEbm1zYVd4TlFCTFRGMGZzOHVvMVlFb1lTMEFDdzZQd2VpSFY0NDhXQ2JCenpSeTRuTmFXQmtFc19yTGFLS1BSTWNVTXlBaVZyOFBFZWo3dlkwWGFYYlFjNElkTjFBZlJEOVN2ZEx6LXNqeTdYbm5lZDFMVFVqY1U0NUIwdGw5dGF1QV9ucUtsaFg5bXlNS1c3d2xuN3N4RmszQjZ3VVp20gFWQVVfeXFMTms4Sl9MRUtGYmhPUWhLT21QdUJiWklQZ0stb1NIQk10dmlBZ0dpd0FoWl9HYVVyMHY5VEdvNHRHdWhSdjJ6S01tQTEwWV9Cak5pQms2cVE?oc=5) |
 | Trump ‘manufactured crisis’ to justify plan to send national guard to Chicago, leading Democrat says - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxORHhJSGFEYTlwM3pYUmZ2Qm1mb0lOU18tRFQzVTY5aE5JVUQwM1h2RDlRNzFkMkxUMHA5bDgwMWRZX3U0WEpRbzhTY29RWmhSU3dQZ3dqQkx3VXB3Wnp6Y2phYV9NUXBkM2loLXpYdldkRUpib09BbExrZmx0YkFtVW5LWTBhWkFSVFVXQ1lOZ2xDSkNmckY0?oc=5) |
 | Commentary: They worked hard to draw fair political maps. How do they feel about Newsom undoing them? - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPdmpiU0RKZHZSNTlWS2tpWkRzYzRjdVp0ZThEQnRpZ21Vc2tyV2d6Nk44aS0tSUlQaGUwWlFqUjhQX215ZmFGb2RIenZqZ3JhcXZ0RUFNMnlPWWZTUlRxWUxWZV9BYkNoUFlfZ08xNUtTYXJqbElaMWJfdFFEVkl4ZEVfRnYyUzNnVVhaclhtakZxWlZLLTRPSkRNWms4WFl4d29Tall0RDdUODRFWU14SXk2NA?oc=5) |
-| Vance expresses optimism that 'energetic diplomacy' will end the war in Ukraine - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPTzd5T1VEbm1zYVd4TlFCTFRGMGZzOHVvMVlFb1lTMEFDdzZQd2VpSFY0NDhXQ2JCenpSeTRuTmFXQmtFc19yTGFLS1BSTWNVTXlBaVZyOFBFZWo3dlkwWGFYYlFjNElkTjFBZlJEOVN2ZEx6LXNqeTdYbm5lZDFMVFVqY1U0NUIwdGw5dGF1QV9ucUtsaFg5bXlNS1c3d2xuN3N4RmszQjZ3VVp20gFWQVVfeXFMTms4Sl9MRUtGYmhPUWhLT21QdUJiWklQZ0stb1NIQk10dmlBZ0dpd0FoWl9HYVVyMHY5VEdvNHRHdWhSdjJ6S01tQTEwWV9Cak5pQms2cVE?oc=5) |
 | Ukraine drone hits Russian nuclear plant, sparks huge fire at Novatek's Ust-Luga terminal - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQSEpuOS1neERtejNWWUNHUmZwU3NrdE4zbnlwX2hKS3NhUFFhNTBJSENJSFc3blVHYWVMUjEyLW9weS1YMWhBaC1fR0tydTZMUExOcjhjUzJKUUhGcmx3MlAxY1BCVWFCQzhEdlBoVG4takE3MEp6ZC1pN1Z4SlJCQ2Q5LWpaVFlmQUstOE9zUy1kQUM5MW5paUxINGdXUEhDVnp6RVhGeXRUYm9GZUI3NGcydkhrYnJQbm5hSlVFSVdCZw?oc=5) |
 | It was the costliest hurricane in U.S. history: Have we forgotten Katrina's lessons? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPbEFtSjJaWG9md0U3TDVkbmhLM1JodDRaNF9tZWNTY19veU1MeW1fSVJDV3NMQUF0V3I3NzFmdGhLakVzVW8zQ3BPOUx6TE8yLU5PREVTUDlETjF5aGljNE9VMHV0SmN4UDJwcXZJVVhZUlAwUFpibVQxZ2tXWU5YVUM5Z2l3WTdhTUpv?oc=5) |
 | Kilmar Abrego Garcia’s Lawyers Says Prosecutors Offered Costa Rica Deportation Deal - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi_AFBVV95cUxNR2wxRkhxYzVvYk5TdzF1RGE3YThfWnVLZnhab21zVHBULWhCTUVSd1o5QnZQUU1UZ3JFOUFTN3U0bFZCeXIxYTcyQTF0RTZuNHhSdHdXdWZGdjMtWUpyQlBKOXd2dUhlalFvUDl5YmFlM0taSUNCWE40SUZ0V1NpTWxDckZUV3B4Y0plWUpNSUc1YnlrT3ZBWXRlMk4zLU9LZFNsWWhaWTNDcHVUNFBJVDdRelBLM05COFRsOWxZNGM0akV6WWhXYWNVNWxKa1BvS3ZseFZDd2Ytc0w1d2lkTHVZRkxXQ1VkNVg4ODVHZHlQWDZuS19zNndJRmI?oc=5) |
