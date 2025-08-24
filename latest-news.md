@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 03:24:11（北京时间）**
+🕒 更新时间：**2025年08月25日 03:32:50（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Trump's redistricting push could bring decades of Republican rule to the US House - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNWjhra0pRc0FkM2pFYjRvRHJiQUtPdEVKRW1IM2gtSnpoTzBoQkpSSlhYdlAza291SHlYVnY3U2xPUzVWZkowOGNFXy1OV3YxU3Vibk4xUlp5SHVLcXYzYjJEVzN0bm4yQ2VwelFfX05meWNxWWd1Qjk0WlJ1Y1E3eExOLVlySHQ5TDZmNVpUN281Tmp0X3YtZzJpbEtYV3l4am9tMV9GN0Z1RU9BdXB5TW1salZBZw?oc=5) |
 | Vance says Russia has made 'significant concessions' on Ukraine - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNLUZMZDYzMjc3bllNRGEwajI2N3NuMUZJaWFIcE9WQ3Q4b2pOblNjcEJxVnJpeldZWjNlbHJ3dktJZ3dydWlEc0ZyUzVmUUs5bklKaGJoQXd4YXNfVW13NjNTRVF0QnUyRVExZUplOF90ZlZtMV9md19uX1JPQmhtdmhjelRoQ2FHbXhNV1FxZWVjenZXbTR5cWxvQ1lWMnNTVnfSAacBQVVfeXFMTlZGdFdGaXJCWVFsSGcwaU9LaVNlV1VEdXlEQnFEcXdraUpPYnkza1NueXl6VzIxRXlwZzRmWG9GcUJRb2V6V0t6MDZPLXpobzNyWWdxLVhDT3l4YnpERlVNaEF3bVB0aG9LUDN3Y0t0RTg3N01ySW95Q3N4MDZYTnNWWXJTZWppbFBCZEc3M29UNFcxZEtGb0JRXy1EUlVMdWhfSUJiU2s?oc=5) |
-| Pentagon reportedly planning military deployment in Chicago; Pritzker accuses Trump of "attempting to manufacture a crisis" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOU2JFTm4yVkZ3MHdKOXpseEVnSFpOcnk0eGZXWWVxNDMtT1R4MWhKcVpwNGZwVldIYXN2aW1GZmZLWkVJM0J4QmM0eWpoSGVKZW9xTEdwUTFWQU1jWFN1M2IxMXFFaDcyRUpYX3dlOFNoVm04cUVsaXpyN2hFM2t4WXRjQUM3cktaQ0ZMZEdaNWdVanVzc0NBajJyWmtDNk5nams4Tw?oc=5) |
+| Illinois officials blast Trump's threat to deploy National Guard in Chicago - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQV2lGcVpJTVlhTTN3eDAxYkFSSEw2UWE1amQ5Sm1vcGxhUWRLUFI2bjVmUm9yYVlhMXdXc2MxQjQ1eTNMbE1DT0l5aWNCTTB6N25kS0lBM1E4S3BmbUdfNXY3WWozeHdaQ3MzZUZlSjhaa05XaW9MTG02akN4TDZfTURGdVZxUmNwVks2YnYwRmZQQ1NBdjQzd2tWb25QbUNwbzdiWnhLUzhpSHNQMmgzRFBsczk2QXZKbEM0?oc=5) |
 | Commentary: They worked hard to draw fair political maps. How do they feel about Newsom undoing them? - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPdmpiU0RKZHZSNTlWS2tpWkRzYzRjdVp0ZThEQnRpZ21Vc2tyV2d6Nk44aS0tSUlQaGUwWlFqUjhQX215ZmFGb2RIenZqZ3JhcXZ0RUFNMnlPWWZTUlRxWUxWZV9BYkNoUFlfZ08xNUtTYXJqbElaMWJfdFFEVkl4ZEVfRnYyUzNnVVhaclhtakZxWlZLLTRPSkRNWms4WFl4d29Tall0RDdUODRFWU14SXk2NA?oc=5) |
 | It was the costliest hurricane in U.S. history: Have we forgotten Katrina's lessons? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPbEFtSjJaWG9md0U3TDVkbmhLM1JodDRaNF9tZWNTY19veU1MeW1fSVJDV3NMQUF0V3I3NzFmdGhLakVzVW8zQ3BPOUx6TE8yLU5PREVTUDlETjF5aGljNE9VMHV0SmN4UDJwcXZJVVhZUlAwUFpibVQxZ2tXWU5YVUM5Z2l3WTdhTUpv?oc=5) |
 | Ukraine and Russia trade drone strikes on Kyiv’s independence day - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOQ2dTWjQtYkRmUEVvMUc2b2FjTlJ3bFNqTXlXMlB2UHpuSjJzOUtmTFM5VEZYeTNybkkzcks3YURfbUVsYm53bFBRblN2Qjc0a3hSVEl2dGU5M25vSUtoMTd0UjRQZjVZZ29iajd4VzBXTEZlNl9rckZZMUFjMGprdmZrOW5hZ2hJVm1BSUpvTGFKdDZpSm9uV2FVVnM5dw?oc=5) |
