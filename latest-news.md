@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月24日 09:01:57（北京时间）**
+🕒 更新时间：**2025年08月24日 09:08:31（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | Pub and travel bans proposed in sentencing overhaul | [阅读全文](https://www.bbc.com/news/articles/c5ypej14j2xo?at_medium=RSS&at_campaign=rss) |
 | My trip to North Korea's 'Benidorm' - flanked by guards and full of rules | [阅读全文](https://www.bbc.com/news/articles/c707d1ez0kno?at_medium=RSS&at_campaign=rss) |
 | Ghislaine Maxwell denies seeing 'inappropriate' conduct by Trump | [阅读全文](https://www.bbc.com/news/articles/cdd3pe6189go?at_medium=RSS&at_campaign=rss) |
-| Turkish first lady appeals to Melania Trump over Gaza children | [阅读全文](https://www.bbc.com/news/articles/cn47ppy382wo?at_medium=RSS&at_campaign=rss) |
+| US government wants to deport Kilmar Ábrego García to Uganda | [阅读全文](https://www.bbc.com/news/articles/cewyppww09jo?at_medium=RSS&at_campaign=rss) |
 | UK to bask in 30C heat on bank holiday Monday | [阅读全文](https://www.bbc.com/news/articles/cj6yp0j7znxo?at_medium=RSS&at_campaign=rss) |
 | Scotland stun Wales with record six-try show of solidarity | [阅读全文](https://www.bbc.com/sport/rugby-union/articles/c99ml5zmx9jo?at_medium=RSS&at_campaign=rss) |
 | Why I started getting anti-wrinkle injections at 23 | [阅读全文](https://www.bbc.com/news/articles/cr5r1qyrl78o?at_medium=RSS&at_campaign=rss) |
