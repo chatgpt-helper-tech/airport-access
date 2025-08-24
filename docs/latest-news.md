@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月24日 16:57:51（北京时间）**
+🕒 更新时间：**2025年08月24日 17:00:33（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Justice Department gave Ghislaine Maxwell 'a platform to rewrite history,' family of Epstein abuse survivor says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxOS2k4bkc3NVhMLUN2dVpGcnljTU5BbkZCcE5HMGEzV3dtRGFKa2xJYl84WktvdmppcWxzNF9OSEZTYklRTWpFdkxNbmEwQkUxM1dBSkt0b1ZkeTh0ZDM5RndUYUhvZ0E0Z1owbXdPT203VlR0b1FrRlc1OTRCSHh2cWlHLWJtamlYV1paak42aGs3b2NGMEVodXphb1I1WXFtcGFPelpiWVlKSVdxUWs3SXdVMVREcjNYUFdwcVZjeXR5UnVxZFdwUllEWlI0UdIBVkFVX3lxTFA3bk9SYmtGekNBU29PcEVpcW9MWlVGdzBYdWc5WjRfUU41T0Z2bTNBVTBxcWpuRUxoUDhvaTlYcWtCOFhHbnA1ajNSRHE1dXk4a0dNZWtB?oc=5) |
 | Illinois leaders speak out on Washington Post report President Donald Trump preparing to deploy National Guard troops to Chicago - ABC7 Chicago | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNOGthZ1NVeV9wUVNUNXNDdTJNdE8yNzFKZC1yV3h0V2hPam41bjg3MktLczE4NnBqTm1iMVVyeVN2VmpPXzdldGkwdm5uNzB3RHJFTldlSV9iSXJsd3B5V1E3aEVMR3F2WnJYTHBpdm9CRUF0T180ODhtekx2TkVfcjdvcEJzRGx3LTg2WE9URHlGS1dmTVFSZjFBZk1OOUZvLTI5emZqWmYyblhybU00RVh1SnJsTDdsV0U3NTFvcVFzSkI0bjg1eG5OUUtqd9IB0wFBVV95cUxNNENLNkpVMXVsbHRSR0hUTFBDMDhUdE43NXZsZDdIRnpZUjZ2YXY0b05SOVl2UVhrV21GZnhjc1ZNSlUwRzJEVFdSb2Y2ZmNNUVVuVGJSalFSZk1FNmJmMTdjVVIxTUE0WndQd3BKUXlsZkdkWFFDb1B4SEdtSXZOQUhBLUVXRjc2Z0x1WEpOb25HdjFYSEZWblN2V3NlTC1LU0JjYXhaSlZraVJQUGhSY3hNQ2gtR1F4TndYWllvLVNnZ2RDTHY5Yjc0d2lQTlVWRVU0?oc=5) |
+| Justice Department gave Ghislaine Maxwell 'a platform to rewrite history,' family of Epstein abuse survivor says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxOS2k4bkc3NVhMLUN2dVpGcnljTU5BbkZCcE5HMGEzV3dtRGFKa2xJYl84WktvdmppcWxzNF9OSEZTYklRTWpFdkxNbmEwQkUxM1dBSkt0b1ZkeTh0ZDM5RndUYUhvZ0E0Z1owbXdPT203VlR0b1FrRlc1OTRCSHh2cWlHLWJtamlYV1paak42aGs3b2NGMEVodXphb1I1WXFtcGFPelpiWVlKSVdxUWs3SXdVMVREcjNYUFdwcVZjeXR5UnVxZFdwUllEWlI0UdIBVkFVX3lxTFA3bk9SYmtGekNBU29PcEVpcW9MWlVGdzBYdWc5WjRfUU41T0Z2bTNBVTBxcWpuRUxoUDhvaTlYcWtCOFhHbnA1ajNSRHE1dXk4a0dNZWtB?oc=5) |
 | New York State Police have identified the five casualties in I-90 bus crash - WGRZ | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxQY0h3OU5IS0pXZlljbFJzcVBGR1VZcmlNdXBGbXFzTldGU3ZmTEFiY1NGc3llZUp4dU1uYkJRS0xtNHRoYm5hMmJSNW1yZGtDaGpacGlyRk1yNDJmTGFHcVdheExHcGxBZ1dTQmMtYVc0TzJJRTRlajRRTkFMbTYzeUVZUVFjRjBIM1V3LVJZVjZSamhZVjI2cG1IMW90bHJDb2VVMW1MMmIta2pHMDluUEs4STNnUXVKNnlGVm5jMzBMXzRnMnN4T2p0YVVCMWxtRHg0?oc=5) |
 | Wildfires spark across California as state is hit by heat wave, lightning storms - SFGATE | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOSFpEdEVRUXkwUU5QWVFHT2hzdndWaksxdTdYd0d4b1RGTVlubHVES3l0RTF5QXdQbTg5Q21Gb1BIM19FZGdHbFBHTEZzS2d3eFBrNWJtc2tqbXo1SGc2a3RoSV9ZREE2SnlsNFNMMjNDS2w2cS1aSmJ2TldJaUZvNGZrOHJGLTh1UVRzQVRMMFYwVFN4TWIxQ2ZfYw?oc=5) |
 | Boxed in by shifting tariff rules, European shippers pause some U.S.-bound parcels - NPR | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBpZl8wbnRzWjdnVW9YY2tCVGRHMEg3c19HLXY2cnRsTUYzRGgzenhYeWE3bk9zMGFLUUtMNjJ0SllHdkhBX0w4WkpUVFd6d0MwTlFmOUNwNXdZVkdON1BKWnBHSkh4NDV3Q3RDTmNCaGQ?oc=5) |
