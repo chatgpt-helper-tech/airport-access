@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 04:17:03（北京时间）**
+🕒 更新时间：**2025年08月25日 04:25:05（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Ukraine and Russia trade drone strikes on Kyiv’s independence day - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOQ2dTWjQtYkRmUEVvMUc2b2FjTlJ3bFNqTXlXMlB2UHpuSjJzOUtmTFM5VEZYeTNybkkzcks3YURfbUVsYm53bFBRblN2Qjc0a3hSVEl2dGU5M25vSUtoMTd0UjRQZjVZZ29iajd4VzBXTEZlNl9rckZZMUFjMGprdmZrOW5hZ2hJVm1BSUpvTGFKdDZpSm9uV2FVVnM5dw?oc=5) |
 | In Washington Crackdown, Making a Federal Case Out of Low-Level Arrests - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNcHNMb3NDV1M0MWswVEN2SzFNLWYwUTFrekFlUmRqaHNFZU9xeW5SWXprVW9oc0dHbkRzTmxnN1AyRkgzRW4zNHI4a0p3VWo2b2F2Q3lTU2IxbkFDSXM2SWx4Q0ZGSzJORlRSR3JlTjBKYjBKaEdVTkR3RXZvS09pX0lBUkhDbXVhUXFNXzM2VFdURE0?oc=5) |
 | At least 64 Palestinians killed in Israeli attacks across Gaza - Euronews.com | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxPMXFHcGdGNjFjcjJUU0c1LXJRTFNHYWVMVlduVUFGanJZWVZFZmE3dUhpYkN1THVFY2R0N0xVNjFMZWlKaWVhY1p0eHBxeU9ldjZoUVJfUkdkelNraDlnVWF6UUhlNXZoUEhRSWZjZVNqY1dxQWV1SGp5TmZ6Y2c3anVoNzFXU0JaSjBwanJYOWRvQkdKVHllQlpaQm9fNEdveGg1eEh6b1NseXVrS1hGcXJjUTdqcVhLV0c3c1VhbW9TWG16?oc=5) |
-| Trump expands cities targeted for possible military deployment to Baltimore in a spat with governor - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQS3JzZEI1TlM3WHRUX2xCYWx4RjF5SmNkSDlPaWxhWVc5RHNZM2otMnRBcWdkWTQzTFZFa0xWS1dkWkR1UEZmNXBNbkNGRXN5T0NDUDJWT0ZkOWVKcVMtaU52R3VRYVNTM09zd3JET3lzT2hsbWlPOWEza2Frd3p0RlJPY05xRUNMLXFTb0xwTjBTQkhtTHZuQTNzZEZOR2Rya2tNY0QzWUdqUDQ2UXc?oc=5) |
 | Kilmar Abrego Garcia’s Lawyers Says Prosecutors Offered Costa Rica Deportation Deal - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi_AFBVV95cUxNR2wxRkhxYzVvYk5TdzF1RGE3YThfWnVLZnhab21zVHBULWhCTUVSd1o5QnZQUU1UZ3JFOUFTN3U0bFZCeXIxYTcyQTF0RTZuNHhSdHdXdWZGdjMtWUpyQlBKOXd2dUhlalFvUDl5YmFlM0taSUNCWE40SUZ0V1NpTWxDckZUV3B4Y0plWUpNSUc1YnlrT3ZBWXRlMk4zLU9LZFNsWWhaWTNDcHVUNFBJVDdRelBLM05COFRsOWxZNGM0akV6WWhXYWNVNWxKa1BvS3ZseFZDd2Ytc0w1d2lkTHVZRkxXQ1VkNVg4ODVHZHlQWDZuS19zNndJRmI?oc=5) |
+| Trump expands cities targeted for possible military deployment to Baltimore in a spat with governor - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQS3JzZEI1TlM3WHRUX2xCYWx4RjF5SmNkSDlPaWxhWVc5RHNZM2otMnRBcWdkWTQzTFZFa0xWS1dkWkR1UEZmNXBNbkNGRXN5T0NDUDJWT0ZkOWVKcVMtaU52R3VRYVNTM09zd3JET3lzT2hsbWlPOWEza2Frd3p0RlJPY05xRUNMLXFTb0xwTjBTQkhtTHZuQTNzZEZOR2Rya2tNY0QzWUdqUDQ2UXc?oc=5) |
 | California’s lightning-fast push for partisan redistricting reflects Trump’s new America - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQbElfWGJwcUxpeFFXQ3VHQkhtS2FTQlNhaktpb3hiNTN6czRsU0gwY1NGQUd3cXNfU0FHcWloSTQwdzUwb0Q3cGRtdkxRRWNuWGxza2NZVFBreURSRlFrSGZQRkFYcHpmNmFHeXdieloyS0IyaTlYdE5rWmVPOF92R2x0VGQ4em1YVnhRbE81TlhJRk04cktUbnhiY3Z5N3RWQXJjVi1MaW45X3ZJdHJLOG5VbXVqSVNqQzlPVzBMeUc3Vmc5aW1KbE5jazJFUlJxTVE?oc=5) |
-| Trump crime crackdown deploys troops in Washington's safest sites - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQbmlsMFpYRkRtdVZneFNYQS1oRGtHY3ZUOEVMVW9tdF8zRzNKU2t6VkxRMHF6VG9pYVpMMDlieFZSSkZVTjZybnRsTUVoT25BcTVGOC1yZ0owWjdtZTlvQV9pOHF4WFdIZmItdE1TejY3UG8wWmRpSGw3ejQzUGVvVDU0OWN2ZjNib3kxMEMyTVM0Y05JSkFmR0doV3VueVNlRE02cU14QnZkdw?oc=5) |
+| URMC provides update on patients after deadly Thruway bus crash - 13wham.com | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQcUtNd3V5TzRMTFNMckhZcDJRRnlqOTBLa201VjNicnNuVUY4bklSWWdsNTZkYzVPaUF4cGNCQlVMR1BMRElBN1ZqMGp0RzQ1Q2lpTVVrTk1hX3NRQ0tjOEpud2Vfa0pDWDBjUWtQb29aX2VfMTlqNktiUnAtVlkxZnUwZWY2X0J2Nlg5NGttRVZoZ0RnNi1zUFNkVUJFR1k?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
