@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月24日 23:48:57（北京时间）**
+🕒 更新时间：**2025年08月24日 23:56:15（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Kilmar Abrego Garcia’s Lawyers Says Prosecutors Offered Costa Rica Deportation Deal - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi_AFBVV95cUxNR2wxRkhxYzVvYk5TdzF1RGE3YThfWnVLZnhab21zVHBULWhCTUVSd1o5QnZQUU1UZ3JFOUFTN3U0bFZCeXIxYTcyQTF0RTZuNHhSdHdXdWZGdjMtWUpyQlBKOXd2dUhlalFvUDl5YmFlM0taSUNCWE40SUZ0V1NpTWxDckZUV3B4Y0plWUpNSUc1YnlrT3ZBWXRlMk4zLU9LZFNsWWhaWTNDcHVUNFBJVDdRelBLM05COFRsOWxZNGM0akV6WWhXYWNVNWxKa1BvS3ZseFZDd2Ytc0w1d2lkTHVZRkxXQ1VkNVg4ODVHZHlQWDZuS19zNndJRmI?oc=5) |
 | California’s lightning-fast push for partisan redistricting reflects Trump’s new America - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQbElfWGJwcUxpeFFXQ3VHQkhtS2FTQlNhaktpb3hiNTN6czRsU0gwY1NGQUd3cXNfU0FHcWloSTQwdzUwb0Q3cGRtdkxRRWNuWGxza2NZVFBreURSRlFrSGZQRkFYcHpmNmFHeXdieloyS0IyaTlYdE5rWmVPOF92R2x0VGQ4em1YVnhRbE81TlhJRk04cktUbnhiY3Z5N3RWQXJjVi1MaW45X3ZJdHJLOG5VbXVqSVNqQzlPVzBMeUc3Vmc5aW1KbE5jazJFUlJxTVE?oc=5) |
 | California board denies Lyle Menendez parole after rejecting his brother Erik’s appeal - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQSGtmSmtxa0dBVUFiTnc5RUJ6VHUzZ3dwQ0g1bE1OcmVDeXp1bjhSY0xWa3NRbDdTQkdrbmRYX1JNVTd5Z1I0TWt2OW9xRENMMFNNQXdIMzRrQlJoUjVQSE40NERRTE1RTzBxcXRaSnM4UGxPNVcybW5aVTd4YzRmUFUxeGU4eU9ZLWJqSHRRcHZxSi1xaVFtaHZpN254aklvdHFtaWY5djVfbC1oa3pReFN2WUxQby0yNDhDc0xn0gHDAUFVX3lxTFBXRGRlb1BFNkJKU1NfOWYwX1BhRDlnbTRfT1pUeWYyQTZ1VERFWW1IU3VrenZwUm1INDhNcjZiX1llMlhjZ1hOMlVsVk8xX3lOSmluc0FzM3NCazhKM3VYV3NlTXYzbTQ2OWl0VWlLYWlUUjZ3QTRPSmNyTGZqbkYzMkh4OEIxUkRMNGxCR2VvdlRXU1g4T0ItSGdfam8xTnRLUlozbHhMOGZNTEw1clhEZ2NoZ1ZNaFBaMlZQSXNrM3hINA?oc=5) |
-| The key to the Trump administration’s rapid detention ramp-up? Republican governors. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNSjBGR2daR1lNQUVIQUtadVpyOTVYLXZEX19sWkxzY0VmU0FYU0didU5DTDZRR3h6V3RlSi1vX0xXZ0NiTWVqeklqZF9lM1ZKRnF1NHlQN0NvRDA4OFJvQmpDaElic3dpRlpLQlBpcVM1TzhXVmcyNkpzRk5kOTZab1BrMVdINE4t?oc=5) |
+| Jeffries hints at more Democratic redistricting if GOP presses on - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOT1ZrS19DTzQyRjVkbWs0aWgxWjZERzBZY3RjWmF5U3NNZl9wRDJJekRHcGRoR0NjR3gxQVl1SHFuTmZIdHJhc2JtMFJPSkl1ak1wamE2eXk0VllGYzJXSUhxRzFkbS1IM2UxdUlmV05pNEhTSWRNZ1BxZXgxS0NNOV9zbXMtYWhkOXlvY04wTVhRVGRGelBJNFF4ejdvZnBEWUE?oc=5) |
 | Carjacked in the capital: The 'crime of the pandemic' is still roiling D.C. - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPbzFuYTI2Y2g3RWRiNUxEVmduQnlCbzBMZ1pqbTNUTnU0SjBLbzYyaU9vN1prNDJFWG96eW1hNnNjTUEwVlF4bkFaU0cxLUFoYTZfcmxJZGMzRHlJMWpIUGJpb0pCY3AwUU1pN1NnbG5vUnZmam5aaDJCLWN2aUs4aEV1MDdkNHp0WTBMWnVmZTEzcmJlMklPUjhiejQ1QdIBVkFVX3lxTE5FSndvUy00NTNNQ3RPcWdQRmFRWUktekZUVGxXdExLY0JFT0R5aU9sb0R4TWkxb3ZCYVRBZVNFdWJQXzFMZENiUnBtUVBnVkNWeVUwRUJB?oc=5) |
 
 ---
