@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月24日 18:56:27（北京时间）**
+🕒 更新时间：**2025年08月24日 19:00:06（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Abrego Garcia's attorneys say government trying to coerce him to accept guilty plea or face deportation to Uganda - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPR284UmE3bWhGVC02WmE5b20wTjdXenZZMzBHek1JX3l6VHV3RWx5dTc2LW5tVDFibVdSekpVLUxENmwwZFltd0hzblFIZElrS2FEWmg0UnVtVzhnNmpJVnpNNUE5UVVoWEdORFN0b0E0V1hpVXY1d3JyQnUzbl9mQUdyeDhLWGp5cW5qTE56ZE1CWGFibnZyMjU1SXQ4SDlRNTdlRVRXaGxCZ9IBrwFBVV95cUxQc1ZaVXBMTDJFN243WEpuNi1YSFcxT3Y0SUMzVkpMcXhzT2Y0VlpDZXJ2bkUzM0QxcjFlWmI3Qll5REQ1Xy1kVTFMTWVoOUdzRWktekxzc2xIeG9fVDZ0czNaeDFYQzFyd2Z4RTR6RnpvbGRITlpEZTJqOGlTR25vemZ4dmlhSWpKVnZvcW1zSS16UVRvLXNwYU9ud0sxUmc5Tmd6aWRzY2FIM1loekpV?oc=5) |
 | Wildfires spark across California as state is hit by heat wave, lightning storms - SFGATE | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOSFpEdEVRUXkwUU5QWVFHT2hzdndWaksxdTdYd0d4b1RGTVlubHVES3l0RTF5QXdQbTg5Q21Gb1BIM19FZGdHbFBHTEZzS2d3eFBrNWJtc2tqbXo1SGc2a3RoSV9ZREE2SnlsNFNMMjNDS2w2cS1aSmJ2TldJaUZvNGZrOHJGLTh1UVRzQVRMMFYwVFN4TWIxQ2ZfYw?oc=5) |
 | Unexpected release of audio file causes drama as Menendez brothers are denied parole - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQaUpMZVl2bXlpcFYzWE15NTdVV0R5Y2FfQlk3c29IaDJQeXJNbk9tNjNMV1NtazVLdUJCLWtPbF9EMlJfanY1Q3FfLWZ2Yy1Ka0JWUnUyVWMwV1FOcXFIQTIyeU5BbFpuckphVm5GMUtWM3NieHZhbDRZelpGOENTNkF0ZE5CeEZtanlDWllVbzc?oc=5) |
+| Fresh off Texas Senate’s approval, new congressional map is target of lawsuit - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1IYnloYUpTM1Y2bnFKV19PQVJHd2tMRUhYTnU3TUJkMi1pZ29tcXNHR3NWWTMybzRZaC1Jb3ZfaWF3czJSUnhLUE1QZE9iWWFOUkV0VFNoaGJEWGIzM25uckJ1RFU1SDdpWEVhUWw3R2RGWFFYc3BQa2dKTUE?oc=5) |
 | Survivors of Bus Crash Near Buffalo Recount Harrowing Ordeal - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOQnZmV3gxY3Bid3M2OUQ1cWtqYjk3ZXp1N2JGM3F1WjZyeXl6eWQtUURwYXlPVlg3aUFDUVhjU0xQM3RJS2l3WlhyQmhlVFkyR1RwWWpkLUx5QVhvZGItQVRYOGc2UDloa3l4bGVZWVVjRkpraDc4aEItcVBGWW1ITQ?oc=5) |
 | Truck driver, accused in fatal Florida crash and by Trump administration of being in U.S. illegally, denied bond - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxOY1I2U0NDd0k2Ujl3OEdzWGNpQ0d0VGRURUw3MnFpU294dmV4VGFhRnVIcnNmdEVFQmpaRHBaSFd4YzkyNG9md0FUSlRmU3JER0hYWmN4WWpUOEJmMzRpekdOaWQ0Zk5JQjFOMkltSjJBOWsyVDNNWk9rRm53SUJUTThSX2IzZHlnNUVpT0Vxc0IzMUtqdkkzaGNyWHJzRU9RRXJpQVFoZFI0eXIxdEdobVlVMGZVUjltaUZNTjJkQkNvZ1JDaUlV?oc=5) |
 | Smithsonian artists and scholars respond to White House list of objectionable art - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5WS2tENks1dUtwQ3poaXJJQ3RjcXNCcXdabTlZSzg5M2JfOFI0bExSSWs4ZE9NQjlPSDlFZ1RscDVsdVdWMTNvZmRIQV9RdnpGNngwYmZaRXloTXRLRFpHVWxONjBVdU1aT3RpUXhfYWFBaG1KdzZ4MG54M04?oc=5) |
 | Gov. DeSantis' administration lacks authority to operate "Alligator Alcatraz," lawsuit alleges - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNQ1ZmN2d3TUMtTU9xcG1MQmRkZ1dkTDEtM2p5cWdfRmVXREhSN2poWjNqdzhDU1FkdV9wS3REcjBJQ3FNRFcyMGdlaER1VllNaDVwS0lCT2xOTjBXaVVaSzZkR08yRV9kSmZoM1E2VnRySl9tQmpQVTZzRWVEZ0N4bVctZFU0dEhnajl5b3lWOTR6TGl3Mm1OdHhRZw?oc=5) |
-| Fresh off Texas Senate’s approval, new congressional map is target of lawsuit - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1IYnloYUpTM1Y2bnFKV19PQVJHd2tMRUhYTnU3TUJkMi1pZ29tcXNHR3NWWTMybzRZaC1Jb3ZfaWF3czJSUnhLUE1QZE9iWWFOUkV0VFNoaGJEWGIzM25uckJ1RFU1SDdpWEVhUWw3R2RGWFFYc3BQa2dKTUE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
