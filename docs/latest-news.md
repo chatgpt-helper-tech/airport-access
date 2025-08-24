@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月24日 18:33:36（北京时间）**
+🕒 更新时间：**2025年08月24日 18:40:53（北京时间）**
 
 ---
 
@@ -29,7 +29,7 @@
 | Unexpected release of audio file causes drama as Menendez brothers are denied parole - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQaUpMZVl2bXlpcFYzWE15NTdVV0R5Y2FfQlk3c29IaDJQeXJNbk9tNjNMV1NtazVLdUJCLWtPbF9EMlJfanY1Q3FfLWZ2Yy1Ka0JWUnUyVWMwV1FOcXFIQTIyeU5BbFpuckphVm5GMUtWM3NieHZhbDRZelpGOENTNkF0ZE5CeEZtanlDWllVbzc?oc=5) |
 | Fresh off Texas Senate’s approval, new congressional map is target of lawsuit - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1IYnloYUpTM1Y2bnFKV19PQVJHd2tMRUhYTnU3TUJkMi1pZ29tcXNHR3NWWTMybzRZaC1Jb3ZfaWF3czJSUnhLUE1QZE9iWWFOUkV0VFNoaGJEWGIzM25uckJ1RFU1SDdpWEVhUWw3R2RGWFFYc3BQa2dKTUE?oc=5) |
 | Wildfires spark across California as state is hit by heat wave, lightning storms - SFGATE | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOSFpEdEVRUXkwUU5QWVFHT2hzdndWaksxdTdYd0d4b1RGTVlubHVES3l0RTF5QXdQbTg5Q21Gb1BIM19FZGdHbFBHTEZzS2d3eFBrNWJtc2tqbXo1SGc2a3RoSV9ZREE2SnlsNFNMMjNDS2w2cS1aSmJ2TldJaUZvNGZrOHJGLTh1UVRzQVRMMFYwVFN4TWIxQ2ZfYw?oc=5) |
-| Columbia student, NJ residents among those killed in upstate NY bus crash - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOdElaTUJXVFd0MjRKaVNseXRyTkljV0IxSnVqcGV0cHNmY0s4b1p3TllDMDN6RGZ5MFRIeG5ReklKdWhwOWN3ZURrd2ZLNjBCelJUeEJBb2dKT3cwX2dENGZIWFNkcEZveWtvcl9PUm9oQzR0U1NEZ2F3YWlGdFBkQ1dZUnhDQWgxQWlaN01tZzRLbkw1UG5HOUIxT0RpcUs4?oc=5) |
+| Survivors of Bus Crash Near Buffalo Recount Harrowing Ordeal - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOQnZmV3gxY3Bid3M2OUQ1cWtqYjk3ZXp1N2JGM3F1WjZyeXl6eWQtUURwYXlPVlg3aUFDUVhjU0xQM3RJS2l3WlhyQmhlVFkyR1RwWWpkLUx5QVhvZGItQVRYOGc2UDloa3l4bGVZWVVjRkpraDc4aEItcVBGWW1ITQ?oc=5) |
 | Truck driver, accused in fatal Florida crash and by Trump administration of being in U.S. illegally, denied bond - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxOY1I2U0NDd0k2Ujl3OEdzWGNpQ0d0VGRURUw3MnFpU294dmV4VGFhRnVIcnNmdEVFQmpaRHBaSFd4YzkyNG9md0FUSlRmU3JER0hYWmN4WWpUOEJmMzRpekdOaWQ0Zk5JQjFOMkltSjJBOWsyVDNNWk9rRm53SUJUTThSX2IzZHlnNUVpT0Vxc0IzMUtqdkkzaGNyWHJzRU9RRXJpQVFoZFI0eXIxdEdobVlVMGZVUjltaUZNTjJkQkNvZ1JDaUlV?oc=5) |
 | Gov. DeSantis' administration lacks authority to operate "Alligator Alcatraz," lawsuit alleges - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNQ1ZmN2d3TUMtTU9xcG1MQmRkZ1dkTDEtM2p5cWdfRmVXREhSN2poWjNqdzhDU1FkdV9wS3REcjBJQ3FNRFcyMGdlaER1VllNaDVwS0lCT2xOTjBXaVVaSzZkR08yRV9kSmZoM1E2VnRySl9tQmpQVTZzRWVEZ0N4bVctZFU0dEhnajl5b3lWOTR6TGl3Mm1OdHhRZw?oc=5) |
 | Smithsonian artists and scholars respond to White House list of objectionable art - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5WS2tENks1dUtwQ3poaXJJQ3RjcXNCcXdabTlZSzg5M2JfOFI0bExSSWs4ZE9NQjlPSDlFZ1RscDVsdVdWMTNvZmRIQV9RdnpGNngwYmZaRXloTXRLRFpHVWxONjBVdU1aT3RpUXhfYWFBaG1KdzZ4MG54M04?oc=5) |
