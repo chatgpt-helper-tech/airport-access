@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月24日 16:48:44（北京时间）**
+🕒 更新时间：**2025年08月24日 16:57:50（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | Trump's plan to send troops to Chicago is abuse of power, Illinois governor says | [阅读全文](https://www.bbc.com/news/articles/cd7yperjxneo?at_medium=RSS&at_campaign=rss) |
 | Man dies after 'workplace accident' at seaside funfair | [阅读全文](https://www.bbc.com/news/articles/c7vl9yn00g3o?at_medium=RSS&at_campaign=rss) |
 | Why I started getting anti-wrinkle injections at 23 | [阅读全文](https://www.bbc.com/news/articles/cr5r1qyrl78o?at_medium=RSS&at_campaign=rss) |
-| For orca left in limbo, zoo resorts to sexual stimulation to stop inbreeding | [阅读全文](https://www.bbc.com/news/articles/cedvp89jy4do?at_medium=RSS&at_campaign=rss) |
+| Orca 'sexually stimulated' by zoo staff to avoid inbreeding with mother | [阅读全文](https://www.bbc.com/news/articles/cedvp89jy4do?at_medium=RSS&at_campaign=rss) |
 | Pierce Brosnan felt 'huge responsibility' towards Thursday Murder Club fans | [阅读全文](https://www.bbc.com/news/articles/cn47gkpywk2o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -32,7 +32,7 @@
 | Trump administration seeks to deport Abrego Garcia to Uganda - DW | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQRjJrYjY4TEZYR19YS3ZfVFBzYlh4ckdleW5RTmtYUXdZX1FOZ2l2UjhQM01saC1QOEVwVFRHTkhqQzMzMkx1Njk4YjRVSGQ2dm1KeklnMmtYNEtpdTVUUzBBNnA2QXdHUUlVS1lvU2RlZDhCN1AyWkI0Z2dtVTQtMlg4eTVDVVJKd1dtamlIdy1sclpBZThCbtIBmAFBVV95cUxQMGgtMTdSQ2w1cmRyLUxvUF9zaklBQ3FCTjg4OVgzaW9hQ1VPZjQ2MUJVc2ItZzdCR0lyODA2YzB6WFVKZWNvdTN5M2tRN3lmTDhIRVlkZ3hVcm8yQmMydHl6aWRMeDNqemhRU1laTUp5OGU2V1F1aWVITDNZbzFHemVUbXNWbWo2YkhsMFpEdWdwT3VqSU9MZw?oc=5) |
 | Unexpected release of audio file causes drama as Menendez brothers are denied parole - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQaUpMZVl2bXlpcFYzWE15NTdVV0R5Y2FfQlk3c29IaDJQeXJNbk9tNjNMV1NtazVLdUJCLWtPbF9EMlJfanY1Q3FfLWZ2Yy1Ka0JWUnUyVWMwV1FOcXFIQTIyeU5BbFpuckphVm5GMUtWM3NieHZhbDRZelpGOENTNkF0ZE5CeEZtanlDWllVbzc?oc=5) |
 | Truck driver, accused in fatal Florida crash and by Trump administration of being in U.S. illegally, denied bond - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxOY1I2U0NDd0k2Ujl3OEdzWGNpQ0d0VGRURUw3MnFpU294dmV4VGFhRnVIcnNmdEVFQmpaRHBaSFd4YzkyNG9md0FUSlRmU3JER0hYWmN4WWpUOEJmMzRpekdOaWQ0Zk5JQjFOMkltSjJBOWsyVDNNWk9rRm53SUJUTThSX2IzZHlnNUVpT0Vxc0IzMUtqdkkzaGNyWHJzRU9RRXJpQVFoZFI0eXIxdEdobVlVMGZVUjltaUZNTjJkQkNvZ1JDaUlV?oc=5) |
-| ‘Alligator Alcatraz’ may be shut down before Halloween. Florida already has a backup plan - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOeDFfbGl2ODdVR0pSaFFkTEN6N1RrLVV3UzZHYzJJS25VTm9pcElialB6cGVZS3JhMzZmOUZYNkd6R1ZraTNERlNDV25GVDRpNEVNTHRSNzB5YkJxbzJVRFpvdEdmSENpUnJmS19EZUZYU0FScER4bC05VlA2Q0hZXzNR0gGHAUFVX3lxTE82UkZPZ2tiTFRHekJjUllmVS1QUVdRTGRmLVpwUHh4d1RVRDlFZU5LWTVCNWd2T2JTYzZ0Vzh4SHpEZDYxSkI1enJvWkhiVFUxRkRXc1AtUE81RHNhVERET0JuM3ptWkNUTXhmcE1VSllZYnIza1UxaXI4d21vV0J5eFZuT1ZfWQ?oc=5) |
+| Gov. DeSantis' administration lacks authority to operate "Alligator Alcatraz," lawsuit alleges - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNQ1ZmN2d3TUMtTU9xcG1MQmRkZ1dkTDEtM2p5cWdfRmVXREhSN2poWjNqdzhDU1FkdV9wS3REcjBJQ3FNRFcyMGdlaER1VllNaDVwS0lCT2xOTjBXaVVaSzZkR08yRV9kSmZoM1E2VnRySl9tQmpQVTZzRWVEZ0N4bVctZFU0dEhnajl5b3lWOTR6TGl3Mm1OdHhRZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
