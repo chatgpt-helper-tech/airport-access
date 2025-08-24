@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 01:33:23（北京时间）**
+🕒 更新时间：**2025年08月25日 01:41:24（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump's redistricting push could bring decades of Republican rule to the US House - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNWjhra0pRc0FkM2pFYjRvRHJiQUtPdEVKRW1IM2gtSnpoTzBoQkpSSlhYdlAza291SHlYVnY3U2xPUzVWZkowOGNFXy1OV3YxU3Vibk4xUlp5SHVLcXYzYjJEVzN0bm4yQ2VwelFfX05meWNxWWd1Qjk0WlJ1Y1E3eExOLVlySHQ5TDZmNVpUN281Tmp0X3YtZzJpbEtYV3l4am9tMV9GN0Z1RU9BdXB5TW1salZBZw?oc=5) |
-| Russia hits Ukraine with drones as Kyiv celebrates independence day - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQZDdpNExKYU9jUHlnSG5NLTY4aTJOODJTZ25UTmMtTGMxTHd0YllieFgwTzdzOU14ZDV5TWdqT3dFYWUwbmxNdWhxcVFoYVF4NmJxN0tGcWlFb0t2aE9abHlCNm5Hc3hKVmpPZFZueHBlRFRDOFVVZHl1bFNoM25lb0ZUbjJDTkkwRVRDVFJjQnFUYm51ZW1Ta2dtMzBKa0ttSlhzNUxUSHNmRGFFV0RpSjZCRzVjUdIBuwFBVV95cUxNTFIyQlNubFdQTXJ0OEVxMy1kRG5Ia3c4cXh0UllEWmJVZDF5WGlHZ3JkRVd1N2Z2eUtzTm1SOHJiMHJpUTBPMmcwdFR0VmFJSGJVbUpFTURDaXF3X2w2SEwyVnJ6dzNUc1plUWc4bjhLUm9keVJsakc3SkJ1SGROUklGaURzR2l2NC1nelVjT3RMTHBiTlpPaFNseWV2cHlHcmVKM0RSVXRUc3Y0eTlFWkZ4OHFnNUt4RVo4?oc=5) |
 | It was the costliest hurricane in U.S. history: Have we forgotten Katrina's lessons? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPbEFtSjJaWG9md0U3TDVkbmhLM1JodDRaNF9tZWNTY19veU1MeW1fSVJDV3NMQUF0V3I3NzFmdGhLakVzVW8zQ3BPOUx6TE8yLU5PREVTUDlETjF5aGljNE9VMHV0SmN4UDJwcXZJVVhZUlAwUFpibVQxZ2tXWU5YVUM5Z2l3WTdhTUpv?oc=5) |
+| Russia hits Ukraine with drones as Kyiv celebrates independence day - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQZDdpNExKYU9jUHlnSG5NLTY4aTJOODJTZ25UTmMtTGMxTHd0YllieFgwTzdzOU14ZDV5TWdqT3dFYWUwbmxNdWhxcVFoYVF4NmJxN0tGcWlFb0t2aE9abHlCNm5Hc3hKVmpPZFZueHBlRFRDOFVVZHl1bFNoM25lb0ZUbjJDTkkwRVRDVFJjQnFUYm51ZW1Ta2dtMzBKa0ttSlhzNUxUSHNmRGFFV0RpSjZCRzVjUdIBuwFBVV95cUxNTFIyQlNubFdQTXJ0OEVxMy1kRG5Ia3c4cXh0UllEWmJVZDF5WGlHZ3JkRVd1N2Z2eUtzTm1SOHJiMHJpUTBPMmcwdFR0VmFJSGJVbUpFTURDaXF3X2w2SEwyVnJ6dzNUc1plUWc4bjhLUm9keVJsakc3SkJ1SGROUklGaURzR2l2NC1nelVjT3RMTHBiTlpPaFNseWV2cHlHcmVKM0RSVXRUc3Y0eTlFWkZ4OHFnNUt4RVo4?oc=5) |
 | Justice Department gave Ghislaine Maxwell 'a platform to rewrite history,' family of Epstein abuse victim says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxOS2k4bkc3NVhMLUN2dVpGcnljTU5BbkZCcE5HMGEzV3dtRGFKa2xJYl84WktvdmppcWxzNF9OSEZTYklRTWpFdkxNbmEwQkUxM1dBSkt0b1ZkeTh0ZDM5RndUYUhvZ0E0Z1owbXdPT203VlR0b1FrRlc1OTRCSHh2cWlHLWJtamlYV1paak42aGs3b2NGMEVodXphb1I1WXFtcGFPelpiWVlKSVdxUWs3SXdVMVREcjNYUFdwcVZjeXR5UnVxZFdwUllEWlI0UdIBVkFVX3lxTFA3bk9SYmtGekNBU29PcEVpcW9MWlVGdzBYdWc5WjRfUU41T0Z2bTNBVTBxcWpuRUxoUDhvaTlYcWtCOFhHbnA1ajNSRHE1dXk4a0dNZWtB?oc=5) |
 | Jeffries hints at more Democratic redistricting if GOP presses on - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOT1ZrS19DTzQyRjVkbWs0aWgxWjZERzBZY3RjWmF5U3NNZl9wRDJJekRHcGRoR0NjR3gxQVl1SHFuTmZIdHJhc2JtMFJPSkl1ak1wamE2eXk0VllGYzJXSUhxRzFkbS1IM2UxdUlmV05pNEhTSWRNZ1BxZXgxS0NNOV9zbXMtYWhkOXlvY04wTVhRVGRGelBJNFF4ejdvZnBEWUE?oc=5) |
 | Smithsonian artists and scholars respond to White House list of objectionable art - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5WS2tENks1dUtwQ3poaXJJQ3RjcXNCcXdabTlZSzg5M2JfOFI0bExSSWs4ZE9NQjlPSDlFZ1RscDVsdVdWMTNvZmRIQV9RdnpGNngwYmZaRXloTXRLRFpHVWxONjBVdU1aT3RpUXhfYWFBaG1KdzZ4MG54M04?oc=5) |
