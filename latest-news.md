@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月24日 12:09:23（北京时间）**
+🕒 更新时间：**2025年08月24日 12:17:04（北京时间）**
 
 ---
 
@@ -12,9 +12,9 @@
 | National flags have started lining our streets. They may say something more | [阅读全文](https://www.bbc.com/news/articles/cx271162ee3o?at_medium=RSS&at_campaign=rss) |
 | Pub and travel bans proposed in sentencing overhaul | [阅读全文](https://www.bbc.com/news/articles/c5ypej14j2xo?at_medium=RSS&at_campaign=rss) |
 | My trip to North Korea's 'Benidorm' - flanked by guards and full of rules | [阅读全文](https://www.bbc.com/news/articles/c707d1ez0kno?at_medium=RSS&at_campaign=rss) |
-| Ghislaine Maxwell denies seeing 'inappropriate' conduct by Trump | [阅读全文](https://www.bbc.com/news/articles/cdd3pe6189go?at_medium=RSS&at_campaign=rss) |
-| US government wants to deport Kilmar Ábrego García to Uganda | [阅读全文](https://www.bbc.com/news/articles/cewyppww09jo?at_medium=RSS&at_campaign=rss) |
+| Ukraine hits Russian nuclear site as Kyiv marks independence day | [阅读全文](https://www.bbc.com/news/articles/czxy2v9dzgxo?at_medium=RSS&at_campaign=rss) |
 | UK to bask in 30C heat on bank holiday Monday | [阅读全文](https://www.bbc.com/news/articles/cj6yp0j7znxo?at_medium=RSS&at_campaign=rss) |
+| Ghislaine Maxwell denies seeing 'inappropriate' conduct by Trump | [阅读全文](https://www.bbc.com/news/articles/cdd3pe6189go?at_medium=RSS&at_campaign=rss) |
 | Why I started getting anti-wrinkle injections at 23 | [阅读全文](https://www.bbc.com/news/articles/cr5r1qyrl78o?at_medium=RSS&at_campaign=rss) |
 | For orca left in limbo, zoo resorts to sexual stimulation to stop inbreeding | [阅读全文](https://www.bbc.com/news/articles/cedvp89jy4do?at_medium=RSS&at_campaign=rss) |
 | Pierce Brosnan felt 'huge responsibility' towards Thursday Murder Club fans | [阅读全文](https://www.bbc.com/news/articles/cn47gkpywk2o?at_medium=RSS&at_campaign=rss) |
