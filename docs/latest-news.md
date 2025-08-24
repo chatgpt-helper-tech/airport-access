@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月24日 10:17:01（北京时间）**
+🕒 更新时间：**2025年08月24日 10:25:19（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Government to overhaul asylum appeals system | [阅读全文](https://www.bbc.com/news/articles/cg4xp4ywk47o?at_medium=RSS&at_campaign=rss) |
+| Government plans to overhaul asylum appeals system | [阅读全文](https://www.bbc.com/news/articles/cg4xp4ywk47o?at_medium=RSS&at_campaign=rss) |
 | National flags have started lining our streets. They may say something more | [阅读全文](https://www.bbc.com/news/articles/cx271162ee3o?at_medium=RSS&at_campaign=rss) |
 | Pub and travel bans proposed in sentencing overhaul | [阅读全文](https://www.bbc.com/news/articles/c5ypej14j2xo?at_medium=RSS&at_campaign=rss) |
 | My trip to North Korea's 'Benidorm' - flanked by guards and full of rules | [阅读全文](https://www.bbc.com/news/articles/c707d1ez0kno?at_medium=RSS&at_campaign=rss) |
