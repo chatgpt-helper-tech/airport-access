@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月24日 15:33:33（北京时间）**
+🕒 更新时间：**2025年08月24日 15:41:02（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Boxed in by shifting tariff rules, European shippers pause some U.S.-bound parcels - NPR | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBpZl8wbnRzWjdnVW9YY2tCVGRHMEg3c19HLXY2cnRsTUYzRGgzenhYeWE3bk9zMGFLUUtMNjJ0SllHdkhBX0w4WkpUVFd6d0MwTlFmOUNwNXdZVkdON1BKWnBHSkh4NDV3Q3RDTmNCaGQ?oc=5) |
 | Wildfires spark across California as state is hit by heat wave, lightning storms - SFGATE | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOSFpEdEVRUXkwUU5QWVFHT2hzdndWaksxdTdYd0d4b1RGTVlubHVES3l0RTF5QXdQbTg5Q21Gb1BIM19FZGdHbFBHTEZzS2d3eFBrNWJtc2tqbXo1SGc2a3RoSV9ZREE2SnlsNFNMMjNDS2w2cS1aSmJ2TldJaUZvNGZrOHJGLTh1UVRzQVRMMFYwVFN4TWIxQ2ZfYw?oc=5) |
 | Trump administration seeks to deport Abrego Garcia to Uganda - DW | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQRjJrYjY4TEZYR19YS3ZfVFBzYlh4ckdleW5RTmtYUXdZX1FOZ2l2UjhQM01saC1QOEVwVFRHTkhqQzMzMkx1Njk4YjRVSGQ2dm1KeklnMmtYNEtpdTVUUzBBNnA2QXdHUUlVS1lvU2RlZDhCN1AyWkI0Z2dtVTQtMlg4eTVDVVJKd1dtamlIdy1sclpBZThCbtIBmAFBVV95cUxQMGgtMTdSQ2w1cmRyLUxvUF9zaklBQ3FCTjg4OVgzaW9hQ1VPZjQ2MUJVc2ItZzdCR0lyODA2YzB6WFVKZWNvdTN5M2tRN3lmTDhIRVlkZ3hVcm8yQmMydHl6aWRMeDNqemhRU1laTUp5OGU2V1F1aWVITDNZbzFHemVUbXNWbWo2YkhsMFpEdWdwT3VqSU9MZw?oc=5) |
+| Fresh off Texas Senate’s approval, new congressional map is target of lawsuit - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1IYnloYUpTM1Y2bnFKV19PQVJHd2tMRUhYTnU3TUJkMi1pZ29tcXNHR3NWWTMybzRZaC1Jb3ZfaWF3czJSUnhLUE1QZE9iWWFOUkV0VFNoaGJEWGIzM25uckJ1RFU1SDdpWEVhUWw3R2RGWFFYc3BQa2dKTUE?oc=5) |
 | Gov. DeSantis' administration lacks authority to operate "Alligator Alcatraz," lawsuit alleges - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNQ1ZmN2d3TUMtTU9xcG1MQmRkZ1dkTDEtM2p5cWdfRmVXREhSN2poWjNqdzhDU1FkdV9wS3REcjBJQ3FNRFcyMGdlaER1VllNaDVwS0lCT2xOTjBXaVVaSzZkR08yRV9kSmZoM1E2VnRySl9tQmpQVTZzRWVEZ0N4bVctZFU0dEhnajl5b3lWOTR6TGl3Mm1OdHhRZw?oc=5) |
 | Truck driver accused by the Trump administration of being in the US illegally is denied bond - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxONDFzbW42UDJ3eEQxM09lcngyZ1F1bFdXM2JES3hpTnFQeHRsUU1JSTVRdS1mNHc3NjQzTWR2cldtSkJVMEp2eEd5R3N3blhsNHFCTFk0SHhYb3hWTGIyTDFGejAxUmJiTHgzazBvN0h2REpXRVhYYjZIVjN3RkgxeGFZYjEycHhnTXBvWjE5OFhJVFZuUEJ0M0hRUkl4UkxNSHJoTlE3NDJmeFlmWnJZSjZR?oc=5) |
-| Fresh off Texas Senate’s approval, new congressional map is target of lawsuit - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1IYnloYUpTM1Y2bnFKV19PQVJHd2tMRUhYTnU3TUJkMi1pZ29tcXNHR3NWWTMybzRZaC1Jb3ZfaWF3czJSUnhLUE1QZE9iWWFOUkV0VFNoaGJEWGIzM25uckJ1RFU1SDdpWEVhUWw3R2RGWFFYc3BQa2dKTUE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
