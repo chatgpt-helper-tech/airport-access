@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 00:56:41（北京时间）**
+🕒 更新时间：**2025年08月25日 01:01:55（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Smithsonian artists and scholars respond to White House list of objectionable art - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5WS2tENks1dUtwQ3poaXJJQ3RjcXNCcXdabTlZSzg5M2JfOFI0bExSSWs4ZE9NQjlPSDlFZ1RscDVsdVdWMTNvZmRIQV9RdnpGNngwYmZaRXloTXRLRFpHVWxONjBVdU1aT3RpUXhfYWFBaG1KdzZ4MG54M04?oc=5) |
 | Fresh off Texas Senate’s approval, new congressional map is target of lawsuit - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1IYnloYUpTM1Y2bnFKV19PQVJHd2tMRUhYTnU3TUJkMi1pZ29tcXNHR3NWWTMybzRZaC1Jb3ZfaWF3czJSUnhLUE1QZE9iWWFOUkV0VFNoaGJEWGIzM25uckJ1RFU1SDdpWEVhUWw3R2RGWFFYc3BQa2dKTUE?oc=5) |
 | California’s lightning-fast push for partisan redistricting reflects Trump’s new America - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQbElfWGJwcUxpeFFXQ3VHQkhtS2FTQlNhaktpb3hiNTN6czRsU0gwY1NGQUd3cXNfU0FHcWloSTQwdzUwb0Q3cGRtdkxRRWNuWGxza2NZVFBreURSRlFrSGZQRkFYcHpmNmFHeXdieloyS0IyaTlYdE5rWmVPOF92R2x0VGQ4em1YVnhRbE81TlhJRk04cktUbnhiY3Z5N3RWQXJjVi1MaW45X3ZJdHJLOG5VbXVqSVNqQzlPVzBMeUc3Vmc5aW1KbE5jazJFUlJxTVE?oc=5) |
+| Lyle Menendez denied parole a day after brother Erik’s bid rejected - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5XcDhCb0VsNDhnZFNXYUxDR1JZZmxCd0ZuYUZfa1psMWVNRkgyc1UyY0hmb1djeVJPYTJYbDZORFBVYU90WHMyelZnZXUzY3FQNEZPcThfYVB4QkZuWktiaFRBV0M0NzBrNU1NRm1aVVZJdmxDN0pEejZnS1BmT2s?oc=5) |
 | Kilmar Abrego Garcia’s Lawyers Says Prosecutors Offered Costa Rica Deportation Deal - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi_AFBVV95cUxNR2wxRkhxYzVvYk5TdzF1RGE3YThfWnVLZnhab21zVHBULWhCTUVSd1o5QnZQUU1UZ3JFOUFTN3U0bFZCeXIxYTcyQTF0RTZuNHhSdHdXdWZGdjMtWUpyQlBKOXd2dUhlalFvUDl5YmFlM0taSUNCWE40SUZ0V1NpTWxDckZUV3B4Y0plWUpNSUc1YnlrT3ZBWXRlMk4zLU9LZFNsWWhaWTNDcHVUNFBJVDdRelBLM05COFRsOWxZNGM0akV6WWhXYWNVNWxKa1BvS3ZseFZDd2Ytc0w1d2lkTHVZRkxXQ1VkNVg4ODVHZHlQWDZuS19zNndJRmI?oc=5) |
-| California board denies Lyle Menendez parole after rejecting his brother Erik’s appeal - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQSGtmSmtxa0dBVUFiTnc5RUJ6VHUzZ3dwQ0g1bE1OcmVDeXp1bjhSY0xWa3NRbDdTQkdrbmRYX1JNVTd5Z1I0TWt2OW9xRENMMFNNQXdIMzRrQlJoUjVQSE40NERRTE1RTzBxcXRaSnM4UGxPNVcybW5aVTd4YzRmUFUxeGU4eU9ZLWJqSHRRcHZxSi1xaVFtaHZpN254aklvdHFtaWY5djVfbC1oa3pReFN2WUxQby0yNDhDc0xn0gHDAUFVX3lxTFBXRGRlb1BFNkJKU1NfOWYwX1BhRDlnbTRfT1pUeWYyQTZ1VERFWW1IU3VrenZwUm1INDhNcjZiX1llMlhjZ1hOMlVsVk8xX3lOSmluc0FzM3NCazhKM3VYV3NlTXYzbTQ2OWl0VWlLYWlUUjZ3QTRPSmNyTGZqbkYzMkh4OEIxUkRMNGxCR2VvdlRXU1g4T0ItSGdfam8xTnRLUlozbHhMOGZNTEw1clhEZ2NoZ1ZNaFBaMlZQSXNrM3hINA?oc=5) |
 | Jeffries hints at more Democratic redistricting if GOP presses on - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOT1ZrS19DTzQyRjVkbWs0aWgxWjZERzBZY3RjWmF5U3NNZl9wRDJJekRHcGRoR0NjR3gxQVl1SHFuTmZIdHJhc2JtMFJPSkl1ak1wamE2eXk0VllGYzJXSUhxRzFkbS1IM2UxdUlmV05pNEhTSWRNZ1BxZXgxS0NNOV9zbXMtYWhkOXlvY04wTVhRVGRGelBJNFF4ejdvZnBEWUE?oc=5) |
 
 ---
