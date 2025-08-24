@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 03:00:44（北京时间）**
+🕒 更新时间：**2025年08月25日 03:08:15（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Trump ‘manufactured crisis’ to justify plan to send national guard to Chicago, leading Democrat says - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxORHhJSGFEYTlwM3pYUmZ2Qm1mb0lOU18tRFQzVTY5aE5JVUQwM1h2RDlRNzFkMkxUMHA5bDgwMWRZX3U0WEpRbzhTY29RWmhSU3dQZ3dqQkx3VXB3Wnp6Y2phYV9NUXBkM2loLXpYdldkRUpib09BbExrZmx0YkFtVW5LWTBhWkFSVFVXQ1lOZ2xDSkNmckY0?oc=5) |
 | Commentary: They worked hard to draw fair political maps. How do they feel about Newsom undoing them? - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPdmpiU0RKZHZSNTlWS2tpWkRzYzRjdVp0ZThEQnRpZ21Vc2tyV2d6Nk44aS0tSUlQaGUwWlFqUjhQX215ZmFGb2RIenZqZ3JhcXZ0RUFNMnlPWWZTUlRxWUxWZV9BYkNoUFlfZ08xNUtTYXJqbElaMWJfdFFEVkl4ZEVfRnYyUzNnVVhaclhtakZxWlZLLTRPSkRNWms4WFl4d29Tall0RDdUODRFWU14SXk2NA?oc=5) |
 | It was the costliest hurricane in U.S. history: Have we forgotten Katrina's lessons? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPbEFtSjJaWG9md0U3TDVkbmhLM1JodDRaNF9tZWNTY19veU1MeW1fSVJDV3NMQUF0V3I3NzFmdGhLakVzVW8zQ3BPOUx6TE8yLU5PREVTUDlETjF5aGljNE9VMHV0SmN4UDJwcXZJVVhZUlAwUFpibVQxZ2tXWU5YVUM5Z2l3WTdhTUpv?oc=5) |
-| Ukraine drone hits Russian nuclear plant, sparks huge fire at Novatek's Ust-Luga terminal - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQSEpuOS1neERtejNWWUNHUmZwU3NrdE4zbnlwX2hKS3NhUFFhNTBJSENJSFc3blVHYWVMUjEyLW9weS1YMWhBaC1fR0tydTZMUExOcjhjUzJKUUhGcmx3MlAxY1BCVWFCQzhEdlBoVG4takE3MEp6ZC1pN1Z4SlJCQ2Q5LWpaVFlmQUstOE9zUy1kQUM5MW5paUxINGdXUEhDVnp6RVhGeXRUYm9GZUI3NGcydkhrYnJQbm5hSlVFSVdCZw?oc=5) |
+| Ukraine and Russia trade drone strikes on Kyiv’s independence day - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOQ2dTWjQtYkRmUEVvMUc2b2FjTlJ3bFNqTXlXMlB2UHpuSjJzOUtmTFM5VEZYeTNybkkzcks3YURfbUVsYm53bFBRblN2Qjc0a3hSVEl2dGU5M25vSUtoMTd0UjRQZjVZZ29iajd4VzBXTEZlNl9rckZZMUFjMGprdmZrOW5hZ2hJVm1BSUpvTGFKdDZpSm9uV2FVVnM5dw?oc=5) |
 | Kilmar Abrego Garcia’s Lawyers Says Prosecutors Offered Costa Rica Deportation Deal - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi_AFBVV95cUxNR2wxRkhxYzVvYk5TdzF1RGE3YThfWnVLZnhab21zVHBULWhCTUVSd1o5QnZQUU1UZ3JFOUFTN3U0bFZCeXIxYTcyQTF0RTZuNHhSdHdXdWZGdjMtWUpyQlBKOXd2dUhlalFvUDl5YmFlM0taSUNCWE40SUZ0V1NpTWxDckZUV3B4Y0plWUpNSUc1YnlrT3ZBWXRlMk4zLU9LZFNsWWhaWTNDcHVUNFBJVDdRelBLM05COFRsOWxZNGM0akV6WWhXYWNVNWxKa1BvS3ZseFZDd2Ytc0w1d2lkTHVZRkxXQ1VkNVg4ODVHZHlQWDZuS19zNndJRmI?oc=5) |
 | Trump threatens to send National Guard troops to Baltimore - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOb3BRQUppM18wODVYTm5zTnJyOGRwXzkyR1d2dkgzYVFVZGRvX3lEV3dzM1JVaXYtWG4tb1dyLUZ0VUxvdWJRNHluZVFBQ1VjeF93N1g4ek9JN3J3Y2F1THFEc3Z4dHZ6ZnZYS0dUa3hZT293dnNsbEZiT0Q5dTJRdmxGeldwbnhfSGQ0WQ?oc=5) |
 | Jeffries hints at more Democratic redistricting if GOP presses on - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOT1ZrS19DTzQyRjVkbWs0aWgxWjZERzBZY3RjWmF5U3NNZl9wRDJJekRHcGRoR0NjR3gxQVl1SHFuTmZIdHJhc2JtMFJPSkl1ak1wamE2eXk0VllGYzJXSUhxRzFkbS1IM2UxdUlmV05pNEhTSWRNZ1BxZXgxS0NNOV9zbXMtYWhkOXlvY04wTVhRVGRGelBJNFF4ejdvZnBEWUE?oc=5) |
