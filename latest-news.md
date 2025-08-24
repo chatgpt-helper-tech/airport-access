@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月24日 17:16:37（北京时间）**
+🕒 更新时间：**2025年08月24日 17:24:50（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | New York State Police have identified the five casualties in I-90 bus crash - WGRZ | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxQY0h3OU5IS0pXZlljbFJzcVBGR1VZcmlNdXBGbXFzTldGU3ZmTEFiY1NGc3llZUp4dU1uYkJRS0xtNHRoYm5hMmJSNW1yZGtDaGpacGlyRk1yNDJmTGFHcVdheExHcGxBZ1dTQmMtYVc0TzJJRTRlajRRTkFMbTYzeUVZUVFjRjBIM1V3LVJZVjZSamhZVjI2cG1IMW90bHJDb2VVMW1MMmIta2pHMDluUEs4STNnUXVKNnlGVm5jMzBMXzRnMnN4T2p0YVVCMWxtRHg0?oc=5) |
 | Wildfires spark across California as state is hit by heat wave, lightning storms - SFGATE | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOSFpEdEVRUXkwUU5QWVFHT2hzdndWaksxdTdYd0d4b1RGTVlubHVES3l0RTF5QXdQbTg5Q21Gb1BIM19FZGdHbFBHTEZzS2d3eFBrNWJtc2tqbXo1SGc2a3RoSV9ZREE2SnlsNFNMMjNDS2w2cS1aSmJ2TldJaUZvNGZrOHJGLTh1UVRzQVRMMFYwVFN4TWIxQ2ZfYw?oc=5) |
 | Boxed in by shifting tariff rules, European shippers pause some U.S.-bound parcels - NPR | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBpZl8wbnRzWjdnVW9YY2tCVGRHMEg3c19HLXY2cnRsTUYzRGgzenhYeWE3bk9zMGFLUUtMNjJ0SllHdkhBX0w4WkpUVFd6d0MwTlFmOUNwNXdZVkdON1BKWnBHSkh4NDV3Q3RDTmNCaGQ?oc=5) |
-| Pentagon has blocked Ukraine from striking deep inside Russia – report - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNTy1uaVJJM1VRaGNsclZIRS1sNVVXWUFGaXpVb3RFUVpKMm1hdnVSWHJmQW9NZVRRVkFCQktpNnBud1hremdvMWJVT0dEUW1jNFVreU9MNEtOSWE4SEw5OUFXNkRCWldweTJ1aXJ3b0RCTk1SZzdLZW80WEJ0dmVNVWFzcmxLdEE?oc=5) |
+| Peace Talks in Ukraine All Lead to the Donbas - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQNURFYTllSmtNNGViT293OWltYzFxRDhBVkI0M2tQZk4zb0RWSTBEd0JaNVlPT1lJZEpOM0ZaMjZEcG5VYjIxTHNtLWtENVZncGRkMnY4TUI4dGpXVG1TaTVqb1Bqb2w1alNNbmJkaTFKUlVkbHcxSVdzdk5BN0pvdF9QYXVjX0NnNXNzTEJCdDBLazQ1YXRYcGpXd2xndG5PRy1aMUhlakZsUEk?oc=5) |
 | Trump administration seeks to deport Abrego Garcia to Uganda - DW | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQRjJrYjY4TEZYR19YS3ZfVFBzYlh4ckdleW5RTmtYUXdZX1FOZ2l2UjhQM01saC1QOEVwVFRHTkhqQzMzMkx1Njk4YjRVSGQ2dm1KeklnMmtYNEtpdTVUUzBBNnA2QXdHUUlVS1lvU2RlZDhCN1AyWkI0Z2dtVTQtMlg4eTVDVVJKd1dtamlIdy1sclpBZThCbtIBmAFBVV95cUxQMGgtMTdSQ2w1cmRyLUxvUF9zaklBQ3FCTjg4OVgzaW9hQ1VPZjQ2MUJVc2ItZzdCR0lyODA2YzB6WFVKZWNvdTN5M2tRN3lmTDhIRVlkZ3hVcm8yQmMydHl6aWRMeDNqemhRU1laTUp5OGU2V1F1aWVITDNZbzFHemVUbXNWbWo2YkhsMFpEdWdwT3VqSU9MZw?oc=5) |
 | Unexpected release of audio file causes drama as Menendez brothers are denied parole - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQaUpMZVl2bXlpcFYzWE15NTdVV0R5Y2FfQlk3c29IaDJQeXJNbk9tNjNMV1NtazVLdUJCLWtPbF9EMlJfanY1Q3FfLWZ2Yy1Ka0JWUnUyVWMwV1FOcXFIQTIyeU5BbFpuckphVm5GMUtWM3NieHZhbDRZelpGOENTNkF0ZE5CeEZtanlDWllVbzc?oc=5) |
 | Truck driver, accused in fatal Florida crash and by Trump administration of being in U.S. illegally, denied bond - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxOY1I2U0NDd0k2Ujl3OEdzWGNpQ0d0VGRURUw3MnFpU294dmV4VGFhRnVIcnNmdEVFQmpaRHBaSFd4YzkyNG9md0FUSlRmU3JER0hYWmN4WWpUOEJmMzRpekdOaWQ0Zk5JQjFOMkltSjJBOWsyVDNNWk9rRm53SUJUTThSX2IzZHlnNUVpT0Vxc0IzMUtqdkkzaGNyWHJzRU9RRXJpQVFoZFI0eXIxdEdobVlVMGZVUjltaUZNTjJkQkNvZ1JDaUlV?oc=5) |
