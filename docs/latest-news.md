@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月24日 09:56:07（北京时间）**
+🕒 更新时间：**2025年08月24日 10:00:59（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Pritzker Calls Trump’s Threat to Target Chicago Next ‘An Authoritarian Grab of Major Cities’ - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNcl94Y0lJWkxRXzBTTU5tNFdBV3B5SHp3bHVwSE5fNWFjVEVLTUJ2dmhMVUpZQUROZ2J3NlZDSmhWWjRXQzdJN0RQYTBkZUVUMmU1ZkZ4aHVnaWhLcl96WE1rblFlVHN4cF9YcTNBZHd2TWtvT3VlWDBtNEE5b2FCaDlJSmVTbHVMbXJQdEo2anI0YldhSTAwQXR1b3lHcFZyTExEbHFqNGotVURmbHRDWjVPelRHT0FpM29id2hScw?oc=5) |
 | Evacuations ordered as wildfire blazes California's famed Napa County - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOY2NHUTFTMEowal92SG40SjdTNjQ1emlNMzBkcVdMc2NkVDAzS2VlbG51Q0g0UDhJLU93TnpQbzN6aWpQSkRRMDhib3Y3YU9fN0g1SFdpUDFFUTRLZHN6dDZqanhlekZPVTJWbFNidkM3QmgyaDQ2TWxhcFVtQ3kyb3ZDOXVZbExQRVVnZGcxNU1tR05kWVU0V0pwbw?oc=5) |
 | Fresh off Texas Senate’s approval, new congressional map is target of lawsuit - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1IYnloYUpTM1Y2bnFKV19PQVJHd2tMRUhYTnU3TUJkMi1pZ29tcXNHR3NWWTMybzRZaC1Jb3ZfaWF3czJSUnhLUE1QZE9iWWFOUkV0VFNoaGJEWGIzM25uckJ1RFU1SDdpWEVhUWw3R2RGWFFYc3BQa2dKTUE?oc=5) |
+| Judge Blocks Trump From Pulling Funding to 34 More ‘Sanctuary Cities’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOeGJwR0pNcGtVdFlyODRkdUp1WFZYV2drcTQtc3lLNzZHekJMaXBKTjdIc2JKd1EzMGszR3BZNEFyVTlnWUotdG5KTnFiSDM4U01adlhXWldOa3hwdUxaS1U0OTdqMkVOQ2NtT2NGQWtjRXFsQ1NGQTlxemtYcEcyWTQyWVcxbmxQT2c?oc=5) |
 | The redistricting war between Texas and California is about to jolt the midterms - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNaUk3am5pZzJ3SjlYa0kwampkX1VpdWRRVmNTQy1CbGQxRjhTOWNZbDR6OTlra2hYalNPZ1FXTFliQTNvbkJkWW1TbS16ZENLQ0tpWExfZnBrOW9Fb3JmZE9kYW9JLUVCbTJSNXFNWll3d3ZFMVNoTzNRZ0lCdWprVVJkU0xtbjVhTW9fWVEtbU82WlBUVUVLYzlpZ1ZUVW8?oc=5) |
-| Judge blocks Trump admin from withholding funding to 34 cities and counties over 'sanctuary' policies - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPaGxpT2RaM3JWNllHUHdGWUw5cUpJcnFKV0szTDRab29JSDYyYTNQSE0tazZobG5EYU93NWtvd2xKOUt5M21QTzc0alJ4T3dhcGJQSlRzTmFIenV1bHh0aG1JUGdsYjdPUUhLTjFBTjB6NV9SSmRLbmV0ZGFaNFBMMVZKX0M1eDNSWV9RRFFnbTFSVDMtcU1nS0Z2clZqdjk20gGmAUFVX3lxTE9ackw0OW1GQVJhRnJuVnRwdkJLTmlhenhoS2NGUlNlY21xa1FqalVxX0lyRTRZb2F6RWFQZ3JhZldwVjJGME1HNHZmMnNWOVRqMlllOU9EeXlRYVV3dmlpZUdNNldsOHFQbXZFMXhzNjdROGJxei1oNXJ4bDZCLVRUaFBXLXVsTUNwcnFLU0QtNlY3dGtCUFJRMlhvTk1mX2NteTFva3c?oc=5) |
 | Truck driver accused by the Trump administration of being in the US illegally is denied bond - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxONDFzbW42UDJ3eEQxM09lcngyZ1F1bFdXM2JES3hpTnFQeHRsUU1JSTVRdS1mNHc3NjQzTWR2cldtSkJVMEp2eEd5R3N3blhsNHFCTFk0SHhYb3hWTGIyTDFGejAxUmJiTHgzazBvN0h2REpXRVhYYjZIVjN3RkgxeGFZYjEycHhnTXBvWjE5OFhJVFZuUEJ0M0hRUkl4UkxNSHJoTlE3NDJmeFlmWnJZSjZR?oc=5) |
 
 ---
