@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 05:49:06（北京时间）**
+🕒 更新时间：**2025年08月25日 05:56:26（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | In Washington Crackdown, Making a Federal Case Out of Low-Level Arrests - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNcHNMb3NDV1M0MWswVEN2SzFNLWYwUTFrekFlUmRqaHNFZU9xeW5SWXprVW9oc0dHbkRzTmxnN1AyRkgzRW4zNHI4a0p3VWo2b2F2Q3lTU2IxbkFDSXM2SWx4Q0ZGSzJORlRSR3JlTjBKYjBKaEdVTkR3RXZvS09pX0lBUkhDbXVhUXFNXzM2VFdURE0?oc=5) |
 | Smithsonian artists and scholars respond to White House list of objectionable art - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5WS2tENks1dUtwQ3poaXJJQ3RjcXNCcXdabTlZSzg5M2JfOFI0bExSSWs4ZE9NQjlPSDlFZ1RscDVsdVdWMTNvZmRIQV9RdnpGNngwYmZaRXloTXRLRFpHVWxONjBVdU1aT3RpUXhfYWFBaG1KdzZ4MG54M04?oc=5) |
 | Trump threatens to send National Guard troops to Baltimore - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOb3BRQUppM18wODVYTm5zTnJyOGRwXzkyR1d2dkgzYVFVZGRvX3lEV3dzM1JVaXYtWG4tb1dyLUZ0VUxvdWJRNHluZVFBQ1VjeF93N1g4ek9JN3J3Y2F1THFEc3Z4dHZ6ZnZYS0dUa3hZT293dnNsbEZiT0Q5dTJRdmxGeldwbnhfSGQ0WQ?oc=5) |
+| Floodwater engulfed a Tennessee hospital. Then came the megalaw. - yahoo.com | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOQThfemRMQS1TZjFuWFlOWWFqeEhVdklORlo3V2hNN0dqMF9GRjBNVUNUaHkzd1RxNXQyVTVHeEdpWm9fQlltR05UNXhLa3A1blZBOGZPQWp4dEc0WFR1ZkdzUkFfb1pYenVkRUlTdHhTNk05MlpmWlpNS2VFRndkNUZkT2taWHNBSWtNMURielFzR0dacEpIQUZn?oc=5) |
 | More than 30 million on alert for dangerous heat - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNMU1SRjl5RXV0ZVhmZUdhMXpHSFBKaDRqVnpSRXQzZW9zUExOc29jYzc3TjdRN3ZBMUlicXFNTGtKMWVUTllOTlQ2Z3Nwc3lSejFwbFdtS0hNTmV5YlpaOEV3d2VOdDdoaGFZSXlHZ1ZCcDhuYWFlZGhDOElVZG9qVU5n0gGHAUFVX3lxTE9XZVFYLVZYc0g4Yzd1RTRqMEM1YlpXS1UxeWhTT080V0hMeVVEcndoWDRvMV9NNUhPdjU0WWQtREFEdGpzdnd2a0FFejd5NjJ1VUs3Q1hMQ0RRbDZBQVpjVkhLaE1scm1DdWVVcXRiNkdsaGpORmYyUXZGYWVhZ3c2Zm5xT0dYZw?oc=5) |
-| Alina Habba slams Sens. Chuck Grassley, Thom Tillis over Senate's blue slips - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPQ3V3aTZ6X0swaUw4c0F4eER0UTM4RXZLZG04bnNCQnE3NmNlLVVOYlEtNlI4OE10S0VpdENjVGk2anpJNER0QldldzhMMXhId1Ezc1pJMkQ1V2hpX0s1OEE5Z2Z2RktiWWEzR2QySGEySk9KNzVBOGRKajJxSmpLUnBCY2t0NkFmM2lVSXFn?oc=5) |
-| Pickett Fire burning in Bay Area grows to 6,800 acres - SFGATE | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOSFpEdEVRUXkwUU5QWVFHT2hzdndWaksxdTdYd0d4b1RGTVlubHVES3l0RTF5QXdQbTg5Q21Gb1BIM19FZGdHbFBHTEZzS2d3eFBrNWJtc2tqbXo1SGc2a3RoSV9ZREE2SnlsNFNMMjNDS2w2cS1aSmJ2TldJaUZvNGZrOHJGLTh1UVRzQVRMMFYwVFN4TWIxQ2ZfYw?oc=5) |
+| Memoir of Epstein accuser to be released posthumously - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPUDlHR01QVzFCcG0yckFhMkxBcWZZWXhiam1fUWV6WlR6Z0VNTldWVl9sTXJYRHRYbUNia19HcDVhaktFVXA0NUd4SG1vdHJYUTZlOVRvVWdYVl9pdEIxTHhrQlM5emRIcXowTFlLZHV2dXZoRGJHYm9LYmI2eHlHdU9tRVVZQ01KVFJuRWVzNEMtcDBKWmwwS192S0JwVWVFN3hn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
