@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月24日 20:17:06（北京时间）**
+🕒 更新时间：**2025年08月24日 20:24:15（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | Pub and travel bans proposed under sentencing rule changes | [阅读全文](https://www.bbc.com/news/articles/c5ypej14j2xo?at_medium=RSS&at_campaign=rss) |
 | Seaside funfair worker dies in 'tragic accident' | [阅读全文](https://www.bbc.com/news/articles/c7vl9yn00g3o?at_medium=RSS&at_campaign=rss) |
 | My trip to North Korea's 'Benidorm' - flanked by guards and full of rules | [阅读全文](https://www.bbc.com/news/articles/c707d1ez0kno?at_medium=RSS&at_campaign=rss) |
-| Boy and man held over restaurant 'arson attack' | [阅读全文](https://www.bbc.com/news/articles/c1dxy4e9q49o?at_medium=RSS&at_campaign=rss) |
+| Boy, 15, and man held over restaurant 'arson attack' | [阅读全文](https://www.bbc.com/news/articles/c1dxy4e9q49o?at_medium=RSS&at_campaign=rss) |
 | Mum noticed my wrinkles at 23 - now she regularly gives me botox | [阅读全文](https://www.bbc.com/news/articles/cr5r1qyrl78o?at_medium=RSS&at_campaign=rss) |
 | Orca 'sexually stimulated' by zoo staff to avoid inbreeding with mother | [阅读全文](https://www.bbc.com/news/articles/cedvp89jy4do?at_medium=RSS&at_campaign=rss) |
 | How researchers recreated faces of 2,500-year-old skulls | [阅读全文](https://www.bbc.com/news/articles/c9d061dv36lo?at_medium=RSS&at_campaign=rss) |
