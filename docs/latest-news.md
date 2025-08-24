@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月24日 12:00:56（北京时间）**
+🕒 更新时间：**2025年08月24日 12:09:23（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | UK to bask in 30C heat on bank holiday Monday | [阅读全文](https://www.bbc.com/news/articles/cj6yp0j7znxo?at_medium=RSS&at_campaign=rss) |
 | Why I started getting anti-wrinkle injections at 23 | [阅读全文](https://www.bbc.com/news/articles/cr5r1qyrl78o?at_medium=RSS&at_campaign=rss) |
 | For orca left in limbo, zoo resorts to sexual stimulation to stop inbreeding | [阅读全文](https://www.bbc.com/news/articles/cedvp89jy4do?at_medium=RSS&at_campaign=rss) |
-| Clarkson for PM, attacks on police dogs: Do Parliament petitions make a difference? | [阅读全文](https://www.bbc.com/news/articles/cg4xqn91rwlo?at_medium=RSS&at_campaign=rss) |
+| Pierce Brosnan felt 'huge responsibility' towards Thursday Murder Club fans | [阅读全文](https://www.bbc.com/news/articles/cn47gkpywk2o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | Evacuations ordered as wildfire blazes California's famed Napa County - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOY2NHUTFTMEowal92SG40SjdTNjQ1emlNMzBkcVdMc2NkVDAzS2VlbG51Q0g0UDhJLU93TnpQbzN6aWpQSkRRMDhib3Y3YU9fN0g1SFdpUDFFUTRLZHN6dDZqanhlekZPVTJWbFNidkM3QmgyaDQ2TWxhcFVtQ3kyb3ZDOXVZbExQRVVnZGcxNU1tR05kWVU0V0pwbw?oc=5) |
 | Fresh off Texas Senate’s approval, new congressional map is target of lawsuit - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1IYnloYUpTM1Y2bnFKV19PQVJHd2tMRUhYTnU3TUJkMi1pZ29tcXNHR3NWWTMybzRZaC1Jb3ZfaWF3czJSUnhLUE1QZE9iWWFOUkV0VFNoaGJEWGIzM25uckJ1RFU1SDdpWEVhUWw3R2RGWFFYc3BQa2dKTUE?oc=5) |
 | Truck driver, accused in fatal Florida crash and by Trump administration of being in U.S. illegally, denied bond - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxOY1I2U0NDd0k2Ujl3OEdzWGNpQ0d0VGRURUw3MnFpU294dmV4VGFhRnVIcnNmdEVFQmpaRHBaSFd4YzkyNG9md0FUSlRmU3JER0hYWmN4WWpUOEJmMzRpekdOaWQ0Zk5JQjFOMkltSjJBOWsyVDNNWk9rRm53SUJUTThSX2IzZHlnNUVpT0Vxc0IzMUtqdkkzaGNyWHJzRU9RRXJpQVFoZFI0eXIxdEdobVlVMGZVUjltaUZNTjJkQkNvZ1JDaUlV?oc=5) |
+| Judge blocks Trump admin from withholding funding to 34 cities and counties over 'sanctuary' policies - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPaGxpT2RaM3JWNllHUHdGWUw5cUpJcnFKV0szTDRab29JSDYyYTNQSE0tazZobG5EYU93NWtvd2xKOUt5M21QTzc0alJ4T3dhcGJQSlRzTmFIenV1bHh0aG1JUGdsYjdPUUhLTjFBTjB6NV9SSmRLbmV0ZGFaNFBMMVZKX0M1eDNSWV9RRFFnbTFSVDMtcU1nS0Z2clZqdjk20gGmAUFVX3lxTE9ackw0OW1GQVJhRnJuVnRwdkJLTmlhenhoS2NGUlNlY21xa1FqalVxX0lyRTRZb2F6RWFQZ3JhZldwVjJGME1HNHZmMnNWOVRqMlllOU9EeXlRYVV3dmlpZUdNNldsOHFQbXZFMXhzNjdROGJxei1oNXJ4bDZCLVRUaFBXLXVsTUNwcnFLU0QtNlY3dGtCUFJRMlhvTk1mX2NteTFva3c?oc=5) |
 | The redistricting war between Texas and California is about to jolt the midterms - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNaUk3am5pZzJ3SjlYa0kwampkX1VpdWRRVmNTQy1CbGQxRjhTOWNZbDR6OTlra2hYalNPZ1FXTFliQTNvbkJkWW1TbS16ZENLQ0tpWExfZnBrOW9Fb3JmZE9kYW9JLUVCbTJSNXFNWll3d3ZFMVNoTzNRZ0lCdWprVVJkU0xtbjVhTW9fWVEtbU82WlBUVUVLYzlpZ1ZUVW8?oc=5) |
-| Judge Blocks Trump From Pulling Funding to 34 More ‘Sanctuary Cities’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOeGJwR0pNcGtVdFlyODRkdUp1WFZYV2drcTQtc3lLNzZHekJMaXBKTjdIc2JKd1EzMGszR3BZNEFyVTlnWUotdG5KTnFiSDM4U01adlhXWldOa3hwdUxaS1U0OTdqMkVOQ2NtT2NGQWtjRXFsQ1NGQTlxemtYcEcyWTQyWVcxbmxQT2c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
