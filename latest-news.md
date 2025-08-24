@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月24日 08:09:05（北京时间）**
+🕒 更新时间：**2025年08月24日 08:17:10（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | The redistricting war between Texas and California is about to jolt the midterms - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNaUk3am5pZzJ3SjlYa0kwampkX1VpdWRRVmNTQy1CbGQxRjhTOWNZbDR6OTlra2hYalNPZ1FXTFliQTNvbkJkWW1TbS16ZENLQ0tpWExfZnBrOW9Fb3JmZE9kYW9JLUVCbTJSNXFNWll3d3ZFMVNoTzNRZ0lCdWprVVJkU0xtbjVhTW9fWVEtbU82WlBUVUVLYzlpZ1ZUVW8?oc=5) |
 | Fresh off Texas Senate’s approval, new congressional map is target of lawsuit - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1IYnloYUpTM1Y2bnFKV19PQVJHd2tMRUhYTnU3TUJkMi1pZ29tcXNHR3NWWTMybzRZaC1Jb3ZfaWF3czJSUnhLUE1QZE9iWWFOUkV0VFNoaGJEWGIzM25uckJ1RFU1SDdpWEVhUWw3R2RGWFFYc3BQa2dKTUE?oc=5) |
 | Truck driver accused by the Trump administration of being in the US illegally is denied bond - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxONDFzbW42UDJ3eEQxM09lcngyZ1F1bFdXM2JES3hpTnFQeHRsUU1JSTVRdS1mNHc3NjQzTWR2cldtSkJVMEp2eEd5R3N3blhsNHFCTFk0SHhYb3hWTGIyTDFGejAxUmJiTHgzazBvN0h2REpXRVhYYjZIVjN3RkgxeGFZYjEycHhnTXBvWjE5OFhJVFZuUEJ0M0hRUkl4UkxNSHJoTlE3NDJmeFlmWnJZSjZR?oc=5) |
-| Trump Looks to Chicago Next in Federal Crackdown - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPMlRIVWFhRDdhN29EUGhZYlVZbFQtMlJSamVOMGppYkJROFcycHhXN25mam9yLTJFcHhPLVg1QWQ4R01fWTZzUnM2a3Z4cUcwYml6cEpNWG52bGF3OFItSDFuY0tkOV9JWlhRVVQza3Q1X1Nzd01ZTTdFWDM2YUxUQ2thRmJIQ01BTloyaVlhOHZTS0lZMm16V2ZJRVZRV1hOUTNaNA?oc=5) |
+| Judge Blocks Trump From Pulling Funding to 34 More ‘Sanctuary Cities’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOeGJwR0pNcGtVdFlyODRkdUp1WFZYV2drcTQtc3lLNzZHekJMaXBKTjdIc2JKd1EzMGszR3BZNEFyVTlnWUotdG5KTnFiSDM4U01adlhXWldOa3hwdUxaS1U0OTdqMkVOQ2NtT2NGQWtjRXFsQ1NGQTlxemtYcEcyWTQyWVcxbmxQT2c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
