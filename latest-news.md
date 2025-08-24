@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月24日 22:00:54（北京时间）**
+🕒 更新时间：**2025年08月24日 22:08:08（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Smithsonian artists and scholars respond to White House list of objectionable art - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5WS2tENks1dUtwQ3poaXJJQ3RjcXNCcXdabTlZSzg5M2JfOFI0bExSSWs4ZE9NQjlPSDlFZ1RscDVsdVdWMTNvZmRIQV9RdnpGNngwYmZaRXloTXRLRFpHVWxONjBVdU1aT3RpUXhfYWFBaG1KdzZ4MG54M04?oc=5) |
 | Russia hits Ukraine with drones as Kyiv celebrates independence day - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQZDdpNExKYU9jUHlnSG5NLTY4aTJOODJTZ25UTmMtTGMxTHd0YllieFgwTzdzOU14ZDV5TWdqT3dFYWUwbmxNdWhxcVFoYVF4NmJxN0tGcWlFb0t2aE9abHlCNm5Hc3hKVmpPZFZueHBlRFRDOFVVZHl1bFNoM25lb0ZUbjJDTkkwRVRDVFJjQnFUYm51ZW1Ta2dtMzBKa0ttSlhzNUxUSHNmRGFFV0RpSjZCRzVjUdIBuwFBVV95cUxNTFIyQlNubFdQTXJ0OEVxMy1kRG5Ia3c4cXh0UllEWmJVZDF5WGlHZ3JkRVd1N2Z2eUtzTm1SOHJiMHJpUTBPMmcwdFR0VmFJSGJVbUpFTURDaXF3X2w2SEwyVnJ6dzNUc1plUWc4bjhLUm9keVJsakc3SkJ1SGROUklGaURzR2l2NC1nelVjT3RMTHBiTlpPaFNseWV2cHlHcmVKM0RSVXRUc3Y0eTlFWkZ4OHFnNUt4RVo4?oc=5) |
 | Kilmar Abrego Garcia’s Lawyers Says Prosecutors Offered Costa Rica Deportation Deal - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi_AFBVV95cUxNR2wxRkhxYzVvYk5TdzF1RGE3YThfWnVLZnhab21zVHBULWhCTUVSd1o5QnZQUU1UZ3JFOUFTN3U0bFZCeXIxYTcyQTF0RTZuNHhSdHdXdWZGdjMtWUpyQlBKOXd2dUhlalFvUDl5YmFlM0taSUNCWE40SUZ0V1NpTWxDckZUV3B4Y0plWUpNSUc1YnlrT3ZBWXRlMk4zLU9LZFNsWWhaWTNDcHVUNFBJVDdRelBLM05COFRsOWxZNGM0akV6WWhXYWNVNWxKa1BvS3ZseFZDd2Ytc0w1d2lkTHVZRkxXQ1VkNVg4ODVHZHlQWDZuS19zNndJRmI?oc=5) |
-| Unexpected release of audio file causes drama as Menendez brothers are denied parole - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQaUpMZVl2bXlpcFYzWE15NTdVV0R5Y2FfQlk3c29IaDJQeXJNbk9tNjNMV1NtazVLdUJCLWtPbF9EMlJfanY1Q3FfLWZ2Yy1Ka0JWUnUyVWMwV1FOcXFIQTIyeU5BbFpuckphVm5GMUtWM3NieHZhbDRZelpGOENTNkF0ZE5CeEZtanlDWllVbzc?oc=5) |
 | The key to the Trump administration’s rapid detention ramp-up? Republican governors. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNSjBGR2daR1lNQUVIQUtadVpyOTVYLXZEX19sWkxzY0VmU0FYU0didU5DTDZRR3h6V3RlSi1vX0xXZ0NiTWVqeklqZF9lM1ZKRnF1NHlQN0NvRDA4OFJvQmpDaElic3dpRlpLQlBpcVM1TzhXVmcyNkpzRk5kOTZab1BrMVdINE4t?oc=5) |
+| Unexpected release of audio file causes drama as Menendez brothers are denied parole - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQaUpMZVl2bXlpcFYzWE15NTdVV0R5Y2FfQlk3c29IaDJQeXJNbk9tNjNMV1NtazVLdUJCLWtPbF9EMlJfanY1Q3FfLWZ2Yy1Ka0JWUnUyVWMwV1FOcXFIQTIyeU5BbFpuckphVm5GMUtWM3NieHZhbDRZelpGOENTNkF0ZE5CeEZtanlDWllVbzc?oc=5) |
+| Carjacked in the capital: The 'crime of the pandemic' is still roiling D.C. - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPbzFuYTI2Y2g3RWRiNUxEVmduQnlCbzBMZ1pqbTNUTnU0SjBLbzYyaU9vN1prNDJFWG96eW1hNnNjTUEwVlF4bkFaU0cxLUFoYTZfcmxJZGMzRHlJMWpIUGJpb0pCY3AwUU1pN1NnbG5vUnZmam5aaDJCLWN2aUs4aEV1MDdkNHp0WTBMWnVmZTEzcmJlMklPUjhiejQ1QdIBVkFVX3lxTE5FSndvUy00NTNNQ3RPcWdQRmFRWUktekZUVGxXdExLY0JFT0R5aU9sb0R4TWkxb3ZCYVRBZVNFdWJQXzFMZENiUnBtUVBnVkNWeVUwRUJB?oc=5) |
 | Redistricting war between Texas and California is about to jolt the midterms - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNaUk3am5pZzJ3SjlYa0kwampkX1VpdWRRVmNTQy1CbGQxRjhTOWNZbDR6OTlra2hYalNPZ1FXTFliQTNvbkJkWW1TbS16ZENLQ0tpWExfZnBrOW9Fb3JmZE9kYW9JLUVCbTJSNXFNWll3d3ZFMVNoTzNRZ0lCdWprVVJkU0xtbjVhTW9fWVEtbU82WlBUVUVLYzlpZ1ZUVW8?oc=5) |
-| European postal services pause U.S. deliveries amid tariff confusion - KOMO | [阅读全文](https://news.google.com/rss/articles/CBMikwJBVV95cUxOaTkwVEpkSEQ1cWstd1dhV1IyY3RfWHNiSjRrTmYxSkxWVUFiLWplMHJJdFhqeGplRi1Sc3VtLXc5X1JFRzBtSlozd3VGM2tIc2dBZXNWYWJ0am9hdklzZ0xMWDZJeTdZcFI3TFNPZ2lOWFZGOURha3FNTkZEeTQzZE5YT2RXYTRxT1pZU3dfQmJYU3k1dnk1Rzh1OUQ3WGtjR2toTWFBQzM4NEZhaHg2cGNfMUFkWDRuOWRkMlM4VWF5ek1iT090NDdld1dxU1hYaXhqTjFQZlp2dHIwcmQtb1JDbmRnUFNaWDhlN0pvNU9hZ1BtZFhZNkJFM1NSQnY4X19jU1Z3TlpZMXF1dlpiOU5ldw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
