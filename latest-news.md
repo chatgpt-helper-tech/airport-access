@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月24日 18:01:07（北京时间）**
+🕒 更新时间：**2025年08月24日 18:08:18（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Unexpected release of audio file causes drama as Menendez brothers are denied parole - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQaUpMZVl2bXlpcFYzWE15NTdVV0R5Y2FfQlk3c29IaDJQeXJNbk9tNjNMV1NtazVLdUJCLWtPbF9EMlJfanY1Q3FfLWZ2Yy1Ka0JWUnUyVWMwV1FOcXFIQTIyeU5BbFpuckphVm5GMUtWM3NieHZhbDRZelpGOENTNkF0ZE5CeEZtanlDWllVbzc?oc=5) |
 | Truck driver, accused in fatal Florida crash and by Trump administration of being in U.S. illegally, denied bond - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxOY1I2U0NDd0k2Ujl3OEdzWGNpQ0d0VGRURUw3MnFpU294dmV4VGFhRnVIcnNmdEVFQmpaRHBaSFd4YzkyNG9md0FUSlRmU3JER0hYWmN4WWpUOEJmMzRpekdOaWQ0Zk5JQjFOMkltSjJBOWsyVDNNWk9rRm53SUJUTThSX2IzZHlnNUVpT0Vxc0IzMUtqdkkzaGNyWHJzRU9RRXJpQVFoZFI0eXIxdEdobVlVMGZVUjltaUZNTjJkQkNvZ1JDaUlV?oc=5) |
 | ‘Alligator Alcatraz’ may be shut down before Halloween. Florida already has a backup plan - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOeDFfbGl2ODdVR0pSaFFkTEN6N1RrLVV3UzZHYzJJS25VTm9pcElialB6cGVZS3JhMzZmOUZYNkd6R1ZraTNERlNDV25GVDRpNEVNTHRSNzB5YkJxbzJVRFpvdEdmSENpUnJmS19EZUZYU0FScER4bC05VlA2Q0hZXzNR0gGHAUFVX3lxTE82UkZPZ2tiTFRHekJjUllmVS1QUVdRTGRmLVpwUHh4d1RVRDlFZU5LWTVCNWd2T2JTYzZ0Vzh4SHpEZDYxSkI1enJvWkhiVFUxRkRXc1AtUE81RHNhVERET0JuM3ptWkNUTXhmcE1VSllZYnIza1UxaXI4d21vV0J5eFZuT1ZfWQ?oc=5) |
-| Fresh off Texas Senate’s approval, new congressional map is target of lawsuit - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1IYnloYUpTM1Y2bnFKV19PQVJHd2tMRUhYTnU3TUJkMi1pZ29tcXNHR3NWWTMybzRZaC1Jb3ZfaWF3czJSUnhLUE1QZE9iWWFOUkV0VFNoaGJEWGIzM25uckJ1RFU1SDdpWEVhUWw3R2RGWFFYc3BQa2dKTUE?oc=5) |
+| Smithsonian artists and scholars respond to White House list of objectionable art - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5WS2tENks1dUtwQ3poaXJJQ3RjcXNCcXdabTlZSzg5M2JfOFI0bExSSWs4ZE9NQjlPSDlFZ1RscDVsdVdWMTNvZmRIQV9RdnpGNngwYmZaRXloTXRLRFpHVWxONjBVdU1aT3RpUXhfYWFBaG1KdzZ4MG54M04?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
