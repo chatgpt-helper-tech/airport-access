@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月24日 20:57:24（北京时间）**
+🕒 更新时间：**2025年08月24日 21:00:46（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Smithsonian artists and scholars respond to White House list of objectionable art - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5WS2tENks1dUtwQ3poaXJJQ3RjcXNCcXdabTlZSzg5M2JfOFI0bExSSWs4ZE9NQjlPSDlFZ1RscDVsdVdWMTNvZmRIQV9RdnpGNngwYmZaRXloTXRLRFpHVWxONjBVdU1aT3RpUXhfYWFBaG1KdzZ4MG54M04?oc=5) |
 | Russia hits Ukraine with drones as Kyiv celebrates independence day - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQZDdpNExKYU9jUHlnSG5NLTY4aTJOODJTZ25UTmMtTGMxTHd0YllieFgwTzdzOU14ZDV5TWdqT3dFYWUwbmxNdWhxcVFoYVF4NmJxN0tGcWlFb0t2aE9abHlCNm5Hc3hKVmpPZFZueHBlRFRDOFVVZHl1bFNoM25lb0ZUbjJDTkkwRVRDVFJjQnFUYm51ZW1Ta2dtMzBKa0ttSlhzNUxUSHNmRGFFV0RpSjZCRzVjUdIBuwFBVV95cUxNTFIyQlNubFdQTXJ0OEVxMy1kRG5Ia3c4cXh0UllEWmJVZDF5WGlHZ3JkRVd1N2Z2eUtzTm1SOHJiMHJpUTBPMmcwdFR0VmFJSGJVbUpFTURDaXF3X2w2SEwyVnJ6dzNUc1plUWc4bjhLUm9keVJsakc3SkJ1SGROUklGaURzR2l2NC1nelVjT3RMTHBiTlpPaFNseWV2cHlHcmVKM0RSVXRUc3Y0eTlFWkZ4OHFnNUt4RVo4?oc=5) |
 | The key to the Trump administration’s rapid detention ramp-up? Republican governors. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNSjBGR2daR1lNQUVIQUtadVpyOTVYLXZEX19sWkxzY0VmU0FYU0didU5DTDZRR3h6V3RlSi1vX0xXZ0NiTWVqeklqZF9lM1ZKRnF1NHlQN0NvRDA4OFJvQmpDaElic3dpRlpLQlBpcVM1TzhXVmcyNkpzRk5kOTZab1BrMVdINE4t?oc=5) |
-| What to know: Four ways ICE is training new agents and scaling up - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOZ3N0SnYwUGxjcDE2ZjhZWWozNDdTRFZULTF4MjdISlhfQkhTVlJhOVgxZzFicDdIX2ZCX09JQ1d5aWpGUHlqdThIR0sxSDZaUUYwUGU3c3VQYWFieG85M0JPRVFheXNIeTdwYWFKSTIwdnp4SmVkTy0zYzVKRVFDTF80N1dWTlAxM2dBMmJaOHJJVEkyUVFMcnoyWm5iamFuVVJON1ZITjE?oc=5) |
 | Redistricting war between Texas and California is about to jolt the midterms - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNaUk3am5pZzJ3SjlYa0kwampkX1VpdWRRVmNTQy1CbGQxRjhTOWNZbDR6OTlra2hYalNPZ1FXTFliQTNvbkJkWW1TbS16ZENLQ0tpWExfZnBrOW9Fb3JmZE9kYW9JLUVCbTJSNXFNWll3d3ZFMVNoTzNRZ0lCdWprVVJkU0xtbjVhTW9fWVEtbU82WlBUVUVLYzlpZ1ZUVW8?oc=5) |
 | Survivors of Bus Crash Near Buffalo Recount Harrowing Ordeal - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOQnZmV3gxY3Bid3M2OUQ1cWtqYjk3ZXp1N2JGM3F1WjZyeXl6eWQtUURwYXlPVlg3aUFDUVhjU0xQM3RJS2l3WlhyQmhlVFkyR1RwWWpkLUx5QVhvZGItQVRYOGc2UDloa3l4bGVZWVVjRkpraDc4aEItcVBGWW1ITQ?oc=5) |
+| Trump's redistricting push could bring decades of Republican rule to the US House - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNWjhra0pRc0FkM2pFYjRvRHJiQUtPdEVKRW1IM2gtSnpoTzBoQkpSSlhYdlAza291SHlYVnY3U2xPUzVWZkowOGNFXy1OV3YxU3Vibk4xUlp5SHVLcXYzYjJEVzN0bm4yQ2VwelFfX05meWNxWWd1Qjk0WlJ1Y1E3eExOLVlySHQ5TDZmNVpUN281Tmp0X3YtZzJpbEtYV3l4am9tMV9GN0Z1RU9BdXB5TW1salZBZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
