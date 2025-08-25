@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 20:56:01（北京时间）**
+🕒 更新时间：**2025年08月25日 21:01:48（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | France summons US Ambassador Kushner over 'unacceptable' letter about rising antisemitism - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNYWdsa0VaNEppeVFrcVhkTEJHVjlDZXpGa1B6bHR1WGh1ZXVwT0NxdTRtS2QyUnc5OThqb3RUZGQyYVh3Y3pzZzR5MkNwVDVBVXFibEFyRzc3VHFUTE5wWHFVOWJ0WTd2amk1eDBQSjB6UE80cHFMamU3TU1YdkVHaHJaUmtuLXhZMHI4czJMMHhsVENZV1dxMDlXcTNSN2VCWV91TldhN0VKSTZpLVHSAbMBQVVfeXFMTVNlSGVPdnNMQzlZWG1jVFp2YTFveS1XUk9lYjJkLTNYVVV0QWZLTDdld0x1bEZGNmF4Q2JRTkV4bFhIcElvZHdnWU8wRGVYQXoxSEhyZ1FHNk5CeTNtX0x3UXMtY1I3Z01NNTM2M3hDZnBubWFJT08ySkc1YUlHemp2Tk1CVTB5eW0zdWpmZFNMSWp6ME5UM3VsRS1ZWmgwZHZfcm51VEg1RlZ2aEotVTRzdlE?oc=5) |
 | Scoop: Trump plans order to end "cashless bail" in D.C. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFB0RFdkVEYxeG45anFfMHFNOWZTS2x0RVBsNFBRS1NrY25UbkpsSkI2U1FDX3dlX0FKSlQxSFVMd21LOXh0MUVVZHctOGN4UXhQQ2RvcmZKMVgzS2NpYjhRRXFKWUNrZXRYdk1DeWxQMmRTdjI5bXhTeVpzZw?oc=5) |
 | Trump threatens to send National Guard troops to Baltimore; D.C. troops now armed - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOb3BRQUppM18wODVYTm5zTnJyOGRwXzkyR1d2dkgzYVFVZGRvX3lEV3dzM1JVaXYtWG4tb1dyLUZ0VUxvdWJRNHluZVFBQ1VjeF93N1g4ek9JN3J3Y2F1THFEc3Z4dHZ6ZnZYS0dUa3hZT293dnNsbEZiT0Q5dTJRdmxGeldwbnhfSGQ0WQ?oc=5) |
-| Exclusive: U.S. confirms nation's first travel-associated human screwworm case connected to Central American outbreak - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxNb2ItYlJQbmRQS2NYWFctZlpfMFl0WE1GWm1pZ0N0UkxLQVZoVkFUTEhFclBJWDEtRkN3QVUxSjgxSFhQeFp5V0dYWExWWHdNT0Y4akc2WHBrei1QV3FYb3VqODBRR3R0aXdESjhHN2duQUpwY042bmljOVZXUGVEdjdKeHg0SkxXUEZoQ3lvUHppbjk5WXBDMkY2TjNkT19wZW5OdDQ4cWdvV2FyM212VHZYS1R5YTZabUpic3hHZk1MR0Zwa0Nld1hn?oc=5) |
 | Philadelphia Transit Cuts Take Hold, and Commuters Begin to Feel the Pain - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5ZaXQ4a0dva0ZlQUZNVWh4bUptUjNMczdGZWNWMVJpeE9jRGZvejdlRF9uYVcxUjZXYTNMWmJsd3ljZUFKNlIzbDhoMlYxUV9pUFp4MmtxSlJpVngta19xZS1wY1BBZDE4TnRCTC1yejBlZmExTDU0?oc=5) |
+| $2.4B of Harvard’s canceled research grants, visualized - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxObFhEdXlNWktDdHg1Z2dkdWRBUlN4LS1qZEZTa0NwQmdkZ3VURlZJbkwxRzhURWhHYzJGWkFmQS1rZTRHZEpzLUNMbE5nY2djV2FBcG9lTEtCMDBJQUtQUkp5SzdKbEt5anViXzVkeXRxRGpha1dLbXJIYUN3NHZPYk9B0gGHAUFVX3lxTFBPN1cwdmFPMjgtM0NPSW5jLXdDSVNFaEZRd2YwcWxTa0UzVDY0Rmg4bWtiZ3JfLWtOT0ZLSHd4Z1dFQzEtVy1aSGc5M254bEEyV3pqUVhyMzMtNjVSbUc0S3hrZFhDMXhmT0VOVzRXME41VnJiMFVTSFE2Q3ZMdVV6d0VwY1BQWQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
