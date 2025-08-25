@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 09:17:55（北京时间）**
+🕒 更新时间：**2025年08月25日 09:24:25（北京时间）**
 
 ---
 
@@ -14,9 +14,9 @@
 | Chinese property giant Evergrande delisted after spectacular fall | [阅读全文](https://www.bbc.com/news/articles/c14g7r44566o?at_medium=RSS&at_campaign=rss) |
 | How Russia is quietly trying to win over the world beyond the West | [阅读全文](https://www.bbc.com/news/articles/cm2vr37yd4no?at_medium=RSS&at_campaign=rss) |
 | Watch: Notting Hill Carnival kicks off with the children's parade | [阅读全文](https://www.bbc.com/news/videos/cm2krzrz2xgo?at_medium=RSS&at_campaign=rss) |
+| Fleetwood wins Tour Championship for first PGA Tour title | [阅读全文](https://www.bbc.com/sport/golf/articles/cx2xdjxwv4no?at_medium=RSS&at_campaign=rss) |
 | France summons US envoy over antisemitism claims | [阅读全文](https://www.bbc.com/news/articles/cq58102wz47o?at_medium=RSS&at_campaign=rss) |
 | Women aren't just 'cosy gamers' - I play horror games and 600,000 watch | [阅读全文](https://www.bbc.com/news/articles/cm21xy23npyo?at_medium=RSS&at_campaign=rss) |
-| Government plans to overhaul asylum appeals system | [阅读全文](https://www.bbc.com/news/articles/cg4xp4ywk47o?at_medium=RSS&at_campaign=rss) |
 | Boy, 15, and man held over restaurant 'arson attack' | [阅读全文](https://www.bbc.com/news/articles/c1dxy4e9q49o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -28,11 +28,11 @@
 | Russia "made significant concessions" to Trump on Ukraine talks, Vance says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE5XLXdrZU1naE1ocnhJZlhXSDREZG9CWTduTXRPVzhaNWUxMXBtSC16N1R2RTBwUGdyTW1HWDZ4eDc3cUI3em4wSTMtcE85VGo0M3F3WU8yS3B5OVZnS29TbjUtUmJlRU9nV19rbDBhbVJjNGM?oc=5) |
 | Appellate ruling on Trump’s $500M fine may not be last word on fraud case - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQOHZkVVFlZWxlQTlKU0tkWm14VjAzRGZwXzhXVnVlNDZoQXctUGQ1S1hGY25hVERDa05Kckd2Uk9rUG1qOXFMNnVWZXlHZlpiUDJIajZkTzBGVzlRaEhQSzRianFZTUd2OHNzbVMxX3pIN2tPZHpOc054MmR4SEZiZmpxZlB0Q1ctTUhqNklwLTgyR2UwMVRkNWFoMlIySzIyNmVBU0h6Uk9XVlN5VTZSRg?oc=5) |
 | National Guard troops in D.C. to begin carrying firearms - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPaVQ1NkdzSU1vazVIQlFtQ2pMcVppZHZfYmtFMGZVNXVkc09Ha09taTdrS3hJV3NqNWNNMVBZUkIzNXNGQXMtNzZ6UHJkWVN2N0tRMmJ1eGNHVGszSi13M2NXY1pIblhxdExTbGJxTTk4TG1KYU9fdFJpaExOd2NGRnBZZ0xDTmZnOFZDMTZaV0JzZ0VUeDFqY1BzRHZrSHpLLU1uVTExNHh1dw?oc=5) |
-| California’s lightning-fast push for partisan redistricting reflects Trump’s new America - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQbElfWGJwcUxpeFFXQ3VHQkhtS2FTQlNhaktpb3hiNTN6czRsU0gwY1NGQUd3cXNfU0FHcWloSTQwdzUwb0Q3cGRtdkxRRWNuWGxza2NZVFBreURSRlFrSGZQRkFYcHpmNmFHeXdieloyS0IyaTlYdE5rWmVPOF92R2x0VGQ4em1YVnhRbE81TlhJRk04cktUbnhiY3Z5N3RWQXJjVi1MaW45X3ZJdHJLOG5VbXVqSVNqQzlPVzBMeUc3Vmc5aW1KbE5jazJFUlJxTVE?oc=5) |
+| In Washington Crackdown, Making a Federal Case Out of Low-Level Arrests - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNcHNMb3NDV1M0MWswVEN2SzFNLWYwUTFrekFlUmRqaHNFZU9xeW5SWXprVW9oc0dHbkRzTmxnN1AyRkgzRW4zNHI4a0p3VWo2b2F2Q3lTU2IxbkFDSXM2SWx4Q0ZGSzJORlRSR3JlTjBKYjBKaEdVTkR3RXZvS09pX0lBUkhDbXVhUXFNXzM2VFdURE0?oc=5) |
 | Trump threatens to send National Guard troops to Baltimore; D.C. troops now armed - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOb3BRQUppM18wODVYTm5zTnJyOGRwXzkyR1d2dkgzYVFVZGRvX3lEV3dzM1JVaXYtWG4tb1dyLUZ0VUxvdWJRNHluZVFBQ1VjeF93N1g4ek9JN3J3Y2F1THFEc3Z4dHZ6ZnZYS0dUa3hZT293dnNsbEZiT0Q5dTJRdmxGeldwbnhfSGQ0WQ?oc=5) |
 | Pickett fire in Napa County grows, threatening homes and wineries - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQeDkwc0NxaEZDOEVpdWhnYjRkdnViZDUyRERXTl8wYmh2MkJmMGxZNER2a2hIbkFuQWhpQ3hONGpHYnExLVMtb0UxVTdFQTJlRUg4bEZkYloycjZWWnZiNUlXUHJ3enhhOGx6WDR3a2FXY2xDd05Iamx0UWxPVllvYkxR?oc=5) |
 | Release of audio recording interrupts Menendez hearing as brothers’ parole is denied - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9LY2UxaXQtNXlsSk9kQ2xyYUdhWkhNYVFhUjNRRUxaQXNCUUFEUFl3Uk9BTDdaXzg1VXlyZzh5cnlYbWJJeGFPQnYyZFFyMjFVZm9zU3gyb3BQdzE4VTFOd3ZORlYtYmhyQlhNdl9NRHJHMksxdm5GTg?oc=5) |
-| Floodwater engulfed a Tennessee hospital. Then came the megalaw. - yahoo.com | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOQThfemRMQS1TZjFuWFlOWWFqeEhVdklORlo3V2hNN0dqMF9GRjBNVUNUaHkzd1RxNXQyVTVHeEdpWm9fQlltR05UNXhLa3A1blZBOGZPQWp4dEc0WFR1ZkdzUkFfb1pYenVkRUlTdHhTNk05MlpmWlpNS2VFRndkNUZkT2taWHNBSWtNMURielFzR0dacEpIQUZn?oc=5) |
+| Trump's redistricting push could bring decades of Republican rule to the US House - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNWjhra0pRc0FkM2pFYjRvRHJiQUtPdEVKRW1IM2gtSnpoTzBoQkpSSlhYdlAza291SHlYVnY3U2xPUzVWZkowOGNFXy1OV3YxU3Vibk4xUlp5SHVLcXYzYjJEVzN0bm4yQ2VwelFfX05meWNxWWd1Qjk0WlJ1Y1E3eExOLVlySHQ5TDZmNVpUN281Tmp0X3YtZzJpbEtYV3l4am9tMV9GN0Z1RU9BdXB5TW1salZBZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
