@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 14:01:13（北京时间）**
+🕒 更新时间：**2025年08月25日 14:09:50（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Both Menendez brothers were denied parole. Here are 5 takeaways from their hearings - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOZlVoUnVfSS1XN1pFSkVucGlNQlZPamVIY3pIaTl0Q19qV0NfOWM1eXN1akdzanhKRnlreTc5ZXRfUW55MFQzaHRxeU1CblRaSzA4N0NzdEpiU2FSNW5VRDlaOExqZkwzM1EtU3dlZFFRZjcyRlZjZnBVT0lqME9VUW5nQkJvRGtmSzFiUGJ0bWtvWjZ6TTd2OUlLelpha2RwakRvVnJiZDBybVUyRkRTdGRWcHUwMmNRcGfSAb8BQVVfeXFMT09tR3ZqOERtOVlIbm9oUUlzUm1QSHM5WmN2SWMyQ0wzZXl5VW1yd0puR2VmUlJ5M1hvaGZ4bjFnMlhYc25wRWhyQXZnVkJWTkp4Z3B6elJnUGQtRy1qTFNScERJTDQ2Z2F6ek92ZU9peXNWaEJsemlJQ2FDUi1jbExEcFU5XzhlOXQxMWphSlFoTzlIbTU2Mkp5N0dXNlY0ZDhkMUlKOVZnWEs0UkcyVVJQR29Ec3poSVVlTnRFVU0?oc=5) |
 | Firefighters hold line on Pickett fire in Napa County even as ‘thermal belt’ adds to challenges - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQeDkwc0NxaEZDOEVpdWhnYjRkdnViZDUyRERXTl8wYmh2MkJmMGxZNER2a2hIbkFuQWhpQ3hONGpHYnExLVMtb0UxVTdFQTJlRUg4bEZkYloycjZWWnZiNUlXUHJ3enhhOGx6WDR3a2FXY2xDd05Iamx0UWxPVllvYkxR?oc=5) |
 | JD Vance defends federal investigation into former Trump adviser John Bolton - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE9uTVEwV0lYdTI3ZzdLZVZCRG9mc1VkTzlsLUJ3T2tlX2lpYlVqdXVEa2RHZG1nZVU3V0dSeWJqUEs2VTBaTzIzV3BDanpoUkRVRnlBaFFmVHZIbnNUVXAtc01uUGYtb0xKbjBBOVNMZjJJNVRtbHEtdjVn?oc=5) |
-| France summons US ambassador Charles Kushner over antisemitism allegations - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQaVhxb0pkZUdVNU5PendrUThSb0FLMXV6emptRE9zcE5XcndIWUVwaW1vbWlsSEJIZ0pGUFdUWkFJSDdia0diNkxWb1JCUTB6eHBzeTFZM3VqYXVuYUV5T2FXeWtFWUhfbHBMNUxXeElQRGRqTUFtVWxKeXV5N2pBOWRYem9CV3AzeWJXX2dCSHZXVE9PSVAyMlhrT2pJUzc1?oc=5) |
+| France summons US Ambassador Kushner over allegations concerning antisemitism - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQeDE4MWRTWFM5UGVaa1U2WERrcC1NUkNGWTlYb080UDBSMnpPS3prLS0yVlRlRjhYTnRZRVl1Y1ZVS2poQndLalF2MWhiVWtWUnpTSFhZUW9jeEdqcG02Q0pqOWdwbV8taW9WRkZ4TDFBQUtvcWg0WU4zdFdfUlp4ZWpoQWdQX0dubno3YWFn0gGTAUFVX3lxTE5FRkQ1MC02TlJ0OXJrbmExemsxemlBVXJRYXI3eXhnWjF5dFotcFZyaWZGMzdLeWZyal9hQkFzd0RtZUhmc1hXNE9pYlRRNG5YYUZFcnZFNEpvWjcwd1RZQ1RkNmtWNExMcGlVeG80UUZENU9CazRObzl1LXVaYnBvVEtkRkI3WVhqVEt4UXJzM3dQaw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
