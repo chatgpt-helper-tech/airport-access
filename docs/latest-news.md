@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 15:57:07（北京时间）**
+🕒 更新时间：**2025年08月25日 16:01:59（北京时间）**
 
 ---
 
@@ -11,21 +11,21 @@
 | Inside Donetsk as residents flee attacks on Ukrainian region Putin wants to control | [阅读全文](https://www.bbc.com/news/articles/c209yn1ygz6o?at_medium=RSS&at_campaign=rss) |
 | A cut-off finger ended her comfortable family life. Now she's hiding from US officials | [阅读全文](https://www.bbc.com/news/articles/cvg4kd385e4o?at_medium=RSS&at_campaign=rss) |
 | 'Once-in-a-lifetime chance': Gaza scholars await UK evacuation to pursue studies | [阅读全文](https://www.bbc.com/news/articles/cx2x16y2ppro?at_medium=RSS&at_campaign=rss) |
-| Lives torn apart by fatal crashes on Scotland's longest road | [阅读全文](https://www.bbc.com/news/articles/c70xn6pnx0go?at_medium=RSS&at_campaign=rss) |
+| Virginia Giuffre memoir to be published months after death | [阅读全文](https://www.bbc.com/news/articles/c2djy7048pdo?at_medium=RSS&at_campaign=rss) |
 | 'I feel half alive': Only survivor of toxic mushroom lunch tells court of murders' impact | [阅读全文](https://www.bbc.com/news/articles/cp8zr04wzz9o?at_medium=RSS&at_campaign=rss) |
 | Medvedev knocked out of US Open after photographer enters court | [阅读全文](https://www.bbc.com/sport/tennis/articles/c0qly4k97q0o?at_medium=RSS&at_campaign=rss) |
+| Lives torn apart by fatal crashes on Scotland's longest road | [阅读全文](https://www.bbc.com/news/articles/c70xn6pnx0go?at_medium=RSS&at_campaign=rss) |
 | Chinese property giant Evergrande delisted after spectacular fall | [阅读全文](https://www.bbc.com/news/articles/c14g7r44566o?at_medium=RSS&at_campaign=rss) |
 | Israel must take hostage deal, its military chief reportedly says | [阅读全文](https://www.bbc.com/news/articles/cx234dj9g45o?at_medium=RSS&at_campaign=rss) |
 | Get ready for fracking, Reform UK tells energy firms | [阅读全文](https://www.bbc.com/news/articles/c74172wlezwo?at_medium=RSS&at_campaign=rss) |
-| UK could hit 30C on bank holiday Monday ahead of rain | [阅读全文](https://www.bbc.com/news/articles/cj6yp0j7znxo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Chicago leaders denounce Pentagon plans for military deployment in city - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOTDJhZG1HZHdTZVhRLWZDbjlfVmp4ZDJMY1pDbnlmSzlkRTI3V3VjclZwUndNX1RwOWNLZmExWHY5d21mOFJoMjlzY3k0Z3V4NXlYUkJVNDlPZEp3Z3pSWVJ2dTFqWk9XcGpJamYxM1dpUjYxRWY3dElGZXFCblpUcW1DanF0MlJ4aThJ?oc=5) |
-| Trump's redistricting push could bring decades of Republican rule to the US House - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNWjhra0pRc0FkM2pFYjRvRHJiQUtPdEVKRW1IM2gtSnpoTzBoQkpSSlhYdlAza291SHlYVnY3U2xPUzVWZkowOGNFXy1OV3YxU3Vibk4xUlp5SHVLcXYzYjJEVzN0bm4yQ2VwelFfX05meWNxWWd1Qjk0WlJ1Y1E3eExOLVlySHQ5TDZmNVpUN281Tmp0X3YtZzJpbEtYV3l4am9tMV9GN0Z1RU9BdXB5TW1salZBZw?oc=5) |
 | Kilmar Abrego Garcia expects to be detained by ICE again, attorney says - NPR | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNQThWWmFRZkxfR3lhU2lNNFNCV0pxN3VKR3gzRkRKNzVINFpCRjM1WXpuZ010Y05SVDNtWVpSN1h3T2xNX052eTcyb0g0TGN2NFUxX1pmOVhtUXJNOGw1cG45UGVnMVNoNURPUENpN1VSc2JFOFEzR19JbEVzbUVLeU5yaWc3RlhNTm5vRnBWUUEzanVXUnN1SGpEcldMMHdLSUM2V2NZM09Kb1BJckpJ?oc=5) |
+| Trump's redistricting push could bring decades of Republican rule to the US House - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNWjhra0pRc0FkM2pFYjRvRHJiQUtPdEVKRW1IM2gtSnpoTzBoQkpSSlhYdlAza291SHlYVnY3U2xPUzVWZkowOGNFXy1OV3YxU3Vibk4xUlp5SHVLcXYzYjJEVzN0bm4yQ2VwelFfX05meWNxWWd1Qjk0WlJ1Y1E3eExOLVlySHQ5TDZmNVpUN281Tmp0X3YtZzJpbEtYV3l4am9tMV9GN0Z1RU9BdXB5TW1salZBZw?oc=5) |
 | Firefighters hold line on Pickett fire in Napa County even as ‘thermal belt’ adds to challenges - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQeDkwc0NxaEZDOEVpdWhnYjRkdnViZDUyRERXTl8wYmh2MkJmMGxZNER2a2hIbkFuQWhpQ3hONGpHYnExLVMtb0UxVTdFQTJlRUg4bEZkYloycjZWWnZiNUlXUHJ3enhhOGx6WDR3a2FXY2xDd05Iamx0UWxPVllvYkxR?oc=5) |
 | France summons US ambassador Charles Kushner over antisemitism allegations - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQaVhxb0pkZUdVNU5PendrUThSb0FLMXV6emptRE9zcE5XcndIWUVwaW1vbWlsSEJIZ0pGUFdUWkFJSDdia0diNkxWb1JCUTB6eHBzeTFZM3VqYXVuYUV5T2FXeWtFWUhfbHBMNUxXeElQRGRqTUFtVWxKeXV5N2pBOWRYem9CV3AzeWJXX2dCSHZXVE9PSVAyMlhrT2pJUzc1?oc=5) |
 | Ukraine marks Independence Day as JD Vance says "I think the Russians have made significant concessions" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPWndrZFJobzkyUlBlUExPdXhKSlNtenVPZHZaNU9jNlBDSjVwSkFOOXE4LW9RT3FYc3lxNEZDbEVaS2E3dmpCb2wtb0hOZF9CLUplMFZfTm1xZ1lJbDNRaXA1R2FJeklJQ1pBY1dpYkVzOHdKTXhDX2xRYVVxQ3pIVlBPNDFCVWQxanIzMV9Sa9IBlAFBVV95cUxNWFdoTU15bFpaSEVEV0xITFhQbG40NFdUbmJoUnNfYVZiaU9fQXN4MUVrQWZWeFZvTERicDJrdzNVelllMFBJcGZSTWdGNHdpXzg5S3MtT3BNT0JzMTI2VUZSWE1FZjlFQ1pFSUdTMjl1cWFpYkQ3YkRvM1c1TFJzWW5SYjlORTRXNUdESW5lYTl2UFNK?oc=5) |
