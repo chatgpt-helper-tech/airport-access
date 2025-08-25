@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 04:32:51（北京时间）**
+🕒 更新时间：**2025年08月26日 04:40:09（北京时间）**
 
 ---
 
@@ -27,7 +27,7 @@
 | Trump orders crackdown on US flag burning and desecration, raising free speech concern - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPTUlqczVacGVmZTRleWVYeDR1dVBpaU11N1VJVDNUREJFd3dENjdrUzZ0TnhDbDlzQnpFaTFSM2Z6WHFvOGs3dUNzaVdfYkVtZWtZN1JBVGZTd0FjUE9qY3htMjlCX0JzV25SalZRekRSdl9vdGw2Wmh6ZEdFbDhpcW9IOFNBS3JpajlYcEhTMXBSZnYtMjhDMzhOZXp4OXBqanh4YUkzd29mN1hoaWY4RFJORjd0SGtjcmNCajd0Y2s?oc=5) |
 | Trump says National Guard is at the ready but hedges on Chicago plans - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPX3VoVzlLS0NMRzRHU081OUV6RmxZZjZhSEoteVZvS1pSOXJyTHR5bHN3QldMTUtQcDcwN2gyTDMwdjVZRVFFTnRZQ3gtT1BxbGhNU1ZYUzc1ZkZuU3JUNmQxcnNBdnJac25tSm45TFV0anpJMS1EQy00c0EtVlUwSXdsYk5NS05WZG1xMWlfZExoX28?oc=5) |
 | AP freelancer among 5 journalists killed in Israeli strikes on Gaza hospital, health officials say - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNTDNRUGFPdmxPclVMZW5GU2l4YUJSZXBuckF2TEU2VkFBVjQyOWg2SmR6aC1sU0RvWG10a2h1QnU3cUdDVlFta3EtcTJqSmt5R2J6dUs1R1IyRXVTOFBrN1J0bEtCUWZUOE1pZS1kVzhDRzc2OUEyeElyR0poNmV2NWdNdEFtNnJpZVBGeEVDVV9pY2lIcVYyc0UtZkU?oc=5) |
-| Trump touts 'great relationship' with Kim Jong-un as he meets South Korea's president - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNY1M3VTVfaFpvY01uOW5aeHBDbld4ZzhldzJ2V2U1QXB5NU5KYm1PNXFfbVZxcUVERVpaeWhvemg1TGlCZTY4bGMwMHpyRTJxLTc4eW1CUkhiTTExNVhMY1llNExFMVdtTXMzMnZJVGM2TlZsem5FQTVWaVg2cXIyOE5yZnDSAYoBQVVfeXFMUGRxQ1hjai1WZkNiQktzUGVCSHFyOU0zUEFLa2o1NFRYckRYM1lrODZkOWJaY3NkbU1IQnp6X1k5azBuZVRnYnh0MEhLVWVPWHVBaFR6SDBBa1VKenZaTHE0bDBqYkVoc09PV05uTDc2QXdkT01ZcDJycWpEUlZDaV8yMmtMWGQ2anVn?oc=5) |
+| Trump ramps up criticism over Senate ‘blue slips’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQZ3pGOXBmby1GVGczSTQtTExhTkxnYjJIVDcxQ2pwZ0Vpa0EzVVhWLWJ4TzFwSHY2d0s5Si1yeVBDb3NsdmV3akZsZ2NPQU9IeTdGMmFvcEc0Vk54ZXlSWl8xTl9wRHJGeVVSQkdJenBPcWUwT1J1ZVR1YzV0TU80VTkxLU5pdnc5TDhSXw?oc=5) |
 | FEMA staff warn that Trump officials’ actions risk a Katrina-level disaster - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNWERwT3hGajNzaWRTS3RFOHBlVFZSR3dvdVVLM2loNmJyZjk4Y2I2clVSSWstenM3TFdUbUVITjlTUVBXVW1EVlozcWJHcVpBNkFIWjVvRF83R25QVXRieUhKakQ5YXFTYWFxb1ItTnFzdTEtVWxuSXdRRk96bWdCckNR?oc=5) |
 | The U.S. confirms its first human case of New World screwworm. What is it? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQTURQU2c0cFJ5TjBFMUpfWGRBZ3ltaFhZYk5hWnc5UlZMS0IwbUxpSzB5N2hFdnJxMWdiWkJxQl90MXljNFZuQnZlNWp6Sks4ay1tb01wWm1jei1lbWZialNhdXNocFBzaWlUbXNfeTlPWXc5d2EzMFFvaTR0emtqT1BFWjg?oc=5) |
 | Deep Transit Cuts in Philadelphia Set Commuters and Parents Scrambling - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5ZaXQ4a0dva0ZlQUZNVWh4bUptUjNMczdGZWNWMVJpeE9jRGZvejdlRF9uYVcxUjZXYTNMWmJsd3ljZUFKNlIzbDhoMlYxUV9pUFp4MmtxSlJpVngta19xZS1wY1BBZDE4TnRCTC1yejBlZmExTDU0?oc=5) |
