@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 16:57:29（北京时间）**
+🕒 更新时间：**2025年08月25日 17:01:05（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Wes Moore: Deployment of National Guard to DC ‘deeply disrespectful’ to guard members - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPSE9acklrUU5KMWN2ZzFTWm9QS1FjWnY2TktpaFNJamFZWXNKZWh6LUdRckl1UHh0bFN6Mjgyd2pwR3RBVlpaRXN0M0V4NGRLM05lcWJlNTdfd1Byd2VTYzY1cEtpbHZQNGVHN2RYNXJlX09oaFM2V0I2RmgwWnVtcjVqMXVMVFnSAYwBQVVfeXFMUFN3czFLTGlWUzNkSHgwMDVYSXBfVHNDRnZMUVRXcU54MWlMYzMtMEhRUFU5b2lkZXpDODFvVW5XdnNhN2QwVTZ2dldmZVBNWDVlbHhXVDRRRVE0Z2FEcE9kYk1QN3VqVUpmLTk1NGVGTEdYT3VKZlcxejRDZ1BJdXRxNGlFYWxTbzAyQmU?oc=5) |
 | Zelensky Marks Ukraine’s Independence Day With Diplomacy in Kyiv and a Plea for Peace - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPbl9jX3NKSGJQR211eUxDajAxRkVkaGtSdzRrcDBDbE55WFVxTDFHYU5TcXpPSlN6bklVZVNHUDRZNkcybUt0Tl9sNTNLbGJ0Y0l4MUlud090RmZHZEM4YUpNSGFKaG9abWQ0TE8wQ3l0ay1TZ2ZXQkhuc2k0WEgyeTFoZnlFQXRTZDBCd2czQQ?oc=5) |
 | JD Vance defends federal investigation into former Trump adviser John Bolton - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE9uTVEwV0lYdTI3ZzdLZVZCRG9mc1VkTzlsLUJ3T2tlX2lpYlVqdXVEa2RHZG1nZVU3V0dSeWJqUEs2VTBaTzIzV3BDanpoUkRVRnlBaFFmVHZIbnNUVXAtc01uUGYtb0xKbjBBOVNMZjJJNVRtbHEtdjVn?oc=5) |
-| Australia mushroom murderer Erin Patterson left me 'half alive', lone surviving victim says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxQWHg5SEFwcVZqMDZ5OWdUNDRlb3lza3VhUkMzMGFGeWdRcHA3LXJRbnFyQ1hZVXd3TTVMTlZfYjQyNVhCUFZub2U1Y3g2ai1sdmhINFQwMV81ZTc3NnRFNDQ3X0l4RkhSYVhkS1pHRTNQcERSdmI1cVNHRkFSY3dkcEZMZFg1NV9OM1N3VDhuNlFza0tsd09KUUpPNVZ4UzVrWU1sYkREaG91LWZvUFlfSlFFUHBWNmQ4aVBWREpVRWVwZ2F0Z0s4X3lobw?oc=5) |
+| Israel Strikes Houthi Military Sites in Retaliatory Attacks - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNQXBZdWdMakt2bDh5QnBnV09uTDJLR0V5SDNQRTI3N2w2STdJQWZsdEZva1UxbHNoRmQtWm0wVXZEUUF3SkkwTUdabVIzay16OHRPa0FuUGVxRGJTeW0tNnJPeDkyWGJidnlhaHZzRFBGd1BqNFE5NnRLaXVkRHhVX3FxSHdqWlhmek5Qa0N2ZmZUQmFkY09ZdS1PaFEtT1RaMlAyNkR0aF9Rc1otYUow?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
