@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 03:33:25（北京时间）**
+🕒 更新时间：**2025年08月26日 03:41:36（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump touts 'great relationship' with Kim Jong-un as he meets South Korea's president - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNY1M3VTVfaFpvY01uOW5aeHBDbld4ZzhldzJ2V2U1QXB5NU5KYm1PNXFfbVZxcUVERVpaeWhvemg1TGlCZTY4bGMwMHpyRTJxLTc4eW1CUkhiTTExNVhMY1llNExFMVdtTXMzMnZJVGM2TlZsem5FQTVWaVg2cXIyOE5yZnDSAYoBQVVfeXFMUGRxQ1hjai1WZkNiQktzUGVCSHFyOU0zUEFLa2o1NFRYckRYM1lrODZkOWJaY3NkbU1IQnp6X1k5azBuZVRnYnh0MEhLVWVPWHVBaFR6SDBBa1VKenZaTHE0bDBqYkVoc09PV05uTDc2QXdkT01ZcDJycWpEUlZDaV8yMmtMWGQ2anVn?oc=5) |
 | Trump says National Guard is at the ready but hedges on Chicago plans - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPX3VoVzlLS0NMRzRHU081OUV6RmxZZjZhSEoteVZvS1pSOXJyTHR5bHN3QldMTUtQcDcwN2gyTDMwdjVZRVFFTnRZQ3gtT1BxbGhNU1ZYUzc1ZkZuU3JUNmQxcnNBdnJac25tSm45TFV0anpJMS1EQy00c0EtVlUwSXdsYk5NS05WZG1xMWlfZExoX28?oc=5) |
 | Rare human case of flesh-eating parasite New World screwworm identified in US - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9uOEZZYTJhZTdXLUVveXM3cDVLUVI0Uk9oeWxXU1dCeFdvRmxhWi1zWHFEUi1leWIwSE55WVNoTlUzVWI1UFJZSkdhdVZyRDVCZjFQMmZxRHlCbV84a19udFQ4UWs0NkpKNU0wbWJIM0l5aUFrR1REZjNMONIBgAFBVV95cUxQWEoxT2t2azBrd29QRnoyUXRRMXVBSzJ2bThDS24tV3N4WENQZjZQVzAxM1BQSGdpNFBZUDBjQVRRUFVOZHpOY05KRVo4Y2tKN0o4M1ZuVWFoWC12Rlg3WTFsYkltTnJ2Z3NKTWR5M2tqSFhNUk9fVWdybFZ5NHUyYw?oc=5) |
-| Philadelphia's mass transit cuts foreshadow possible similar moves by other agencies across US - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPVURhZlVBVlpCazdTaDVTbDhtdjNsR3IxaHZaNlF3Ulhrc0ZjSXZFVElXcjBwUkNNOFVWSkxKaGppdEd4bzl0X0wyUDl4ZEYtYTVSLWpDOVFIWmhzazYwVkFTYTFVTHgxQUJaWWFTekh0ODhrY3JsZHlFeGQwR3h1SThiRktjMk0zTElSQW9vSThCYzF6UjRhMVpGbHVDQnc?oc=5) |
-| Sinaloa Cartel Founder Known as El Mayo Pleads Guilty to Drug Trafficking - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQYmlNbVpDWXl3RFFOdXRFN3NhNlFSUEpxRmUwNFdTaDJYTlJmalNxZ2ZxTkNfcFRveDMyUU8tdnZOY0tfRVVuZnFERnpxNjcwT1BEeVNENXFJNFZXWV9MRkxBTXF6QkdHX3BUS0UzMjhWdFVXdkptbDR5aENtcEd5bUJSYXhNaU05Q3dyU3FCVQ?oc=5) |
+| Philadelphia Transit Cuts Take Hold, and Commuters Begin to Feel the Pain - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5ZaXQ4a0dva0ZlQUZNVWh4bUptUjNMczdGZWNWMVJpeE9jRGZvejdlRF9uYVcxUjZXYTNMWmJsd3ljZUFKNlIzbDhoMlYxUV9pUFp4MmtxSlJpVngta19xZS1wY1BBZDE4TnRCTC1yejBlZmExTDU0?oc=5) |
+| Mexican drug lord ‘El Mayo’ pleads guilty to racketeering in New York - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxONFpLVVIwNVpZbEg4V0NrNnJOejdTemFmX0VTX2U2bDhHaXBkdVlZVmJJaUNlb0JTWDVuRVhsN1EwWjJDLTI2N2tobjhnX2hCOHJRamhtZ2ZUREU5OTdyLTRiUlhFNlIyNEk1N0U1NUdIV2ZyN1VDeEhuenRJYzdJbE5XN2JtWXkxN0czZg?oc=5) |
 | National Guard members now carrying weapons in D.C. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOaHVBbEtOQk0zOV9PaDJqLTExLU1QcG9Nc1FIaXpIQzhvZDcxVEw5YzRJSWR6V0lIbGtaeXBGNnpaRkVjbm5sckxoMTlWRF83VGltalRVN0djRUwxQUpqNkxVRDc0LTB0dXJhQ20yRlMtQUpkZDVEWDExX094VHRjSjVaUmZ1NjV6dE1N?oc=5) |
-| FEMA Employees Warn That Trump Is Gutting Disaster Response - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOcTRiWDFTSVpVVnhWNXJIYmppXzBRU1hUVkQzQU42Z0dGMGRtRjZwM3BFaFZhcTVPVG1vLUF1UW12WVc2SjVnZnZnR08zWE1fMjBZTk1JSUUtVTBraDRadWtZZFpEZy02UTBNa2JWLUdZNUVyZmlxdDhWYmNBbklSVndfQWxTd1VwZ0I0?oc=5) |
+| Some FEMA staff call out Trump cuts in public letter of dissent - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNNVFtTmk5Y0J1dFJQM2t3YUZIMW02ZnJnY0hlUXYzQWlya3d6dEE4bFZxeElIOGdsWUh1Y25abmxTdEtlZHlnb2NZQ2hPaUl3LWxHS1RlUTlsb21hR2ZTRmV6WEhHdlR6aHBwYU4xY1c2LXVxSEJpdXRfSmp1eGI3cGc3UDd0SHFQMzRWUGZ0bXB0NTg1bGlyWg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
