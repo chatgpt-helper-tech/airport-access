@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 05:56:02（北京时间）**
+🕒 更新时间：**2025年08月26日 06:01:18（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump wants to meet North Korea's Kim this year, he tells South Korea - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPbk5GSVhIUy1ScEFEdk5nbzNPbk85LXFSRmgtdU41VlBZNHJLdzM2eDRVYUpxbk9lTnpoRU91am9WTUlXRFNRZkk5b29VeGt6dHp3V3FGRkRpSW1DOWdPUVJ0c3ZIT0kzTHJwOVFCRmY4eThIMGUyc291UUY4T0NndjlNNDZCblg0MV9wVkd1RDg4bE9uWUN5QjFOVWlUMDY0R003X2hrMTZZVEYwdUdvM3BR?oc=5) |
 | House GOP Oversight panel subpoenas Epstein estate for ‘birthday book,’ other documents - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQdXZ5UkVQQmVnMXZaUmZ1LXZ6bXE2TFlOT0g3MS1idG1ocHB1YzA0N0xsajdteEFSdUEteDNJWEl2eUszM01ranF2YnZOMUlWMk9TeGlZNzJSbWdfTEJoMm1YQW5xZ0ptRkU2Z0hSN1Y5aWhLaUw5Vks4ZHUzaFhoNmhfLUZxQkJyeGNR0gGQAUFVX3lxTE5aa0xJWEtDYmRSQVcwSk9pRTdwZWtwblBNQkttOWh4bjJmWUl4YVByaXlyeWl1U0dpNFVocUdWVmJ4WDZCbzZGdnljTGM3SndFWU1WYmtoQXo0ODdQd1NPOUlIdGFCY3dkUnFVQ0xuYWxWLWNiMngyZTdXanFYRTZ3Skpoay13SHRENldYLUFhUA?oc=5) |
 | The U.S. confirms its first human case of New World screwworm. What is it? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQTURQU2c0cFJ5TjBFMUpfWGRBZ3ltaFhZYk5hWnc5UlZMS0IwbUxpSzB5N2hFdnJxMWdiWkJxQl90MXljNFZuQnZlNWp6Sks4ay1tb01wWm1jei1lbWZialNhdXNocFBzaWlUbXNfeTlPWXc5d2EzMFFvaTR0emtqT1BFWjg?oc=5) |
-| Philadelphia's mass transit cuts foreshadow possible similar moves by other agencies across US - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPVURhZlVBVlpCazdTaDVTbDhtdjNsR3IxaHZaNlF3Ulhrc0ZjSXZFVElXcjBwUkNNOFVWSkxKaGppdEd4bzl0X0wyUDl4ZEYtYTVSLWpDOVFIWmhzazYwVkFTYTFVTHgxQUJaWWFTekh0ODhrY3JsZHlFeGQwR3h1SThiRktjMk0zTElSQW9vSThCYzF6UjRhMVpGbHVDQnc?oc=5) |
-| Democrats are nixing about $150M in tax breaks to address Colorado’s $750M budget hole. They could be doing more. - The Colorado Sun | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQRTZjZGR4cWE4MHQzRnZQTEdGUWpCdXVrc3FyZVFCaGktN3d5RDRUeHFDcnZtQmprUzNFT180MlYwMVFNSmZZNnhRWERlZ2NHejB4WkpUTW93UDBBRHdrN2o1Yko2S3F5bHBkd3dTWEt1ZFdoVDhVT2RTbHFBZ0VTcg?oc=5) |
 | Mexican drug lord 'El Mayo' enters guilty plea - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBKSWNLQmtldnVKME9tSEFRRVRKbThaMEltc0VrX0NLa2ZIbTZsUG9sTTQxWHdTMmkxSV9YcHA2a1VmSUtpRnVmMWM5cTM2TEFvR2RtbmV6SThfQQ?oc=5) |
-| France summons U.S. Ambassador Kushner over antisemitism letter - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNM183dEJIZEc1X0VwWDlIcmV0Z0hCY2tsUW5EUDdIeUtVMmwyZnpDdXJmZXM5OWpobDRQekhHVlM5Yk10ZTliY1J1MFRRZUFVbTNVc1E3cFFRRjgtWXUwbnpkY0dnM1luWEt1WXFqMFhmNk1fWGhOa2EydnNGamRtaE9mLURWM3k5UVhBLUhZaEd0MHdOY1dPZUV4ck4tN1RjTDlRa1NvTdIBVkFVX3lxTFBuSG4zbzVCdGRsa2lsR3VFcENVcldYLWoxTW1lQ2U2Uk1WakJNSnlkTXl4RlRybnI4Sk56a0phNm9TdURVOS1XZDJ1V0xqeWVVdjF6WlJB?oc=5) |
+| Philadelphia's mass transit cuts foreshadow possible similar moves by other agencies across US - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPVURhZlVBVlpCazdTaDVTbDhtdjNsR3IxaHZaNlF3Ulhrc0ZjSXZFVElXcjBwUkNNOFVWSkxKaGppdEd4bzl0X0wyUDl4ZEYtYTVSLWpDOVFIWmhzazYwVkFTYTFVTHgxQUJaWWFTekh0ODhrY3JsZHlFeGQwR3h1SThiRktjMk0zTElSQW9vSThCYzF6UjRhMVpGbHVDQnc?oc=5) |
+| This blue state is the first to grapple with megabill response - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPcF9lRjlpd3J2Wm9oU2FJNkdFb3lQaWtUeWFlNDVNS2t4WFRXOTdsbWFOYXdSNG1wV24tSnowUXJZZ0ZmZG1TQXp4dkhXUlVETDNWSmFPNW5way0wdnN2SXZOMDRSUXp1N1QwNHFyUFc0UktmaXlfUU9EaG1XMnpJYnQ0TzRlTndyeWtfN3NleFZlLXhPbTdpeTlmZUM4MU5wU2xXaEd2NUcwemlTMHQzZ3h3?oc=5) |
+| France summons US Ambassador Kushner over 'unacceptable' letter about rising antisemitism - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPRHRSN3luMERndUVmZDNIWl9oWFF2RjNxUkI5Vzc4N3E0a09FRGZscTFVZlE0ZGJzd1dDSGFpLUpROEFmYW1reGduZDdmdTBIZWxNZ2ZBX3NmeFlFLVEyaUhwN0lBMGFQRUxLTG1XaVEtcUVlYkpDUmU4Nlc5SGJPVU9xSk12VkxWRjB3SHoxa3NpTUZieGp0dmR1bw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
