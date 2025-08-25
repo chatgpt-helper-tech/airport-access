@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 06:32:59（北京时间）**
+🕒 更新时间：**2025年08月26日 06:40:26（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Kilmar Abrego Garcia fights imminent deportation to Uganda - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQN0U3QmExeTRUTklEcXR5QmI1eWpnNXRxaVhHWG5Oem5tdFcxREU4TGJnUGJMeXZHZXlMUDREbmFodFdRUUdpeDh5VTc1dFpENVcyemJrREJ0MjZxeUhESWdMRTFxdVpMZW5mcDlwZ3hHS3o1WmNKeUFzSFh6NTlaWDNvZzN6SnU1MVNZenZHRFpvQ2NlX2p0SEFSaG9kbm43UFJURzdjdmRQUWto?oc=5) |
 | Trump says National Guard is at the ready but hedges on Chicago plans - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPX3VoVzlLS0NMRzRHU081OUV6RmxZZjZhSEoteVZvS1pSOXJyTHR5bHN3QldMTUtQcDcwN2gyTDMwdjVZRVFFTnRZQ3gtT1BxbGhNU1ZYUzc1ZkZuU3JUNmQxcnNBdnJac25tSm45TFV0anpJMS1EQy00c0EtVlUwSXdsYk5NS05WZG1xMWlfZExoX28?oc=5) |
-| Netanyahu says Israel regrets 'mishap' at Gaza hospital - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPa1VCZ0FtdEVzOGNxOXQ1UXp5SHVZVlBrbWRkSHNMMkdYZXNDODdzXzFxQ2ZyTjdLQlNvX1JhREJzLTVkSk8yWHJySTR6SmtCYWFFU3B2eE5OWjduMGllN0x6eUlkSnNrcC12cnNaaUdmc1U4XzdzNU9fbG9wNjhfcDg3MGZqM1NqV0s1TkRtTDUzTjV5Zkx0UVBYRTgtSTQ1RVU5UzVLZw?oc=5) |
-| Trump meets with South Korean leader after public blast - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPY3BmSHFta3hWVUc1QTFBVjRVY2U0YlNkdkRLeEpjdGxGa01nTjItTzJQUS0taEpWSVdrOUZGSGIxODZ3OWRTTUY0bHZXYWw0VXFEaXNEM1FJakt2TW1ldk5BT2paVXltZnRVNXg3SnVjVXBYNmpiQmtheHhhWHBLUEI1T1NCazVSaEh5MUdn?oc=5) |
+| AP freelancer among 5 journalists killed in Israeli strikes on Gaza hospital, health officials say - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNTDNRUGFPdmxPclVMZW5GU2l4YUJSZXBuckF2TEU2VkFBVjQyOWg2SmR6aC1sU0RvWG10a2h1QnU3cUdDVlFta3EtcTJqSmt5R2J6dUs1R1IyRXVTOFBrN1J0bEtCUWZUOE1pZS1kVzhDRzc2OUEyeElyR0poNmV2NWdNdEFtNnJpZVBGeEVDVV9pY2lIcVYyc0UtZkU?oc=5) |
+| Trump Repeatedly Praises North Korea’s Dictator in Meeting With South’s President - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOZk9pbVI4ZkxDV240NmYzTkQxN1V3MHZTMjRtMlJrcDNxTFBqYlNPM2g5ZkY1SjNmcW5UcjEzeGszVlMxUHIwbm1zVEdkTDNQXzk0dUJTUTdEbTRtcTdkQlhXVGdxbEhxNzBWWFB0aUhZY2dKcE00eG1RR3o1NHhzMg?oc=5) |
 | House Oversight subpoenas Jeffrey Epstein estate - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNVmZYeThuMW56YkMzZ2lwSTF3MEt2d1ZlVEwxVFYtcFRNb2R2MWJWdVJNZ0FvZ2FwQkFLdGEwbjhydFEyOWtPaG5jMEZfVHR5S0hjT2xHTDlsOWtBLVp4ck9ORlB5eElvYmxUM2JXaGFRYlU5Y0tzU1NSX1pJM1I3ZERlX2RrZkVJQURZR0RYX1JFU0VaTEI4REx2Q2dpSlp00gGmAUFVX3lxTFBsYkJBWFZGOVpSWmJ2bk5pV3lkN0Z6VGJXSnhYRktpbTdYOVM3MU02amg0TG9PRDduZWhtSlZxN2pDLUhZOHZsX2pnSy1OWEdST2N5cjJhU2FVRmk1c3JVdmU1YkFjejNMbE1aZWMwRDJEM21Ia2hZSHNxQTBYakRFSUZOakM3VG1HbW5PLU1hQWYtanE5UUZBYU02Q2pxWDRteF9GUGc?oc=5) |
 | Burning Man gates reopen; 6-9 hour wait to enter Black Rock City - KTVN | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxNeUstNmZkTmRoWFJmbGZVWjhVejFPVUdYU2daa0tleThsWVBEVWZiam5Kay1RNzBVR095b3Z1LWhFNkNfaTdOQm5HbkRreGQtd2NkeVlrSUlqWVNRWlc0YnJ1eVRQSVRwWjM3UXhWWUlIQno4bnN0YnNBUGQyN2pncGQ4NUpoQ2JMdUtWSlc3TDNOWmI2LTUwTGxZWEIxRFpYX0JHeFQ0WGpmczBIckFZdUR4VlRyZ2VPVXZabkNvemNFTGZiMHAzaHdGTlBESXdQNG5hNnFyMzdBOEJJQ09B?oc=5) |
 | Mexican drug lord 'El Mayo' enters guilty plea - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBKSWNLQmtldnVKME9tSEFRRVRKbThaMEltc0VrX0NLa2ZIbTZsUG9sTTQxWHdTMmkxSV9YcHA2a1VmSUtpRnVmMWM5cTM2TEFvR2RtbmV6SThfQdIBX0FVX3lxTE9DNUctSlRDd1lsaWtFVmpYUC15VHVNNU9qaEhuRGRrcmZ0SjkxbWFKWEhyeHNPb3hwMEdzS1M5RDNpNEJZTjhJX0tpUW4xcWNKTmlObkl6aThzWEExaF9F?oc=5) |
