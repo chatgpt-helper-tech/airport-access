@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 08:48:15（北京时间）**
+🕒 更新时间：**2025年08月25日 08:56:50（北京时间）**
 
 ---
 
@@ -23,12 +23,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Illinois officials blast Trump's threat to deploy National Guard in Chicago - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQV2lGcVpJTVlhTTN3eDAxYkFSSEw2UWE1amQ5Sm1vcGxhUWRLUFI2bjVmUm9yYVlhMXdXc2MxQjQ1eTNMbE1DT0l5aWNCTTB6N25kS0lBM1E4S3BmbUdfNXY3WWozeHdaQ3MzZUZlSjhaa05XaW9MTG02akN4TDZfTURGdVZxUmNwVks2YnYwRmZQQ1NBdjQzd2tWb25QbUNwbzdiWnhLUzhpSHNQMmgzRFBsczk2QXZKbEM0?oc=5) |
+| After Trump’s Threat to Send National Guard to Chicago, Democrats Push Back - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQNUxvV216YkdDbmhwcjVMd19qVEpwYjJHektybDBvVEIwcWVWUUFYODdPOGxjajh6NE1jMlpsTFltT204bkRTOUZIQmRhSmF5RmJLdmFIMUxhcldabkpRMFRfZnB5OFo1UDdMUHpObFZVS0p4MWZYYUhmb0piU1V2azlXVmtSdThPMHFBNkFzcw?oc=5) |
 | Kilmar Abrego Garcia expects to be detained by ICE again, attorney says - NPR | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNQThWWmFRZkxfR3lhU2lNNFNCV0pxN3VKR3gzRkRKNzVINFpCRjM1WXpuZ010Y05SVDNtWVpSN1h3T2xNX052eTcyb0g0TGN2NFUxX1pmOVhtUXJNOGw1cG45UGVnMVNoNURPUENpN1VSc2JFOFEzR19JbEVzbUVLeU5yaWc3RlhNTm5vRnBWUUEzanVXUnN1SGpEcldMMHdLSUM2V2NZM09Kb1BJckpJ?oc=5) |
 | Ukraine marks Independence Day as JD Vance says "I think the Russians have made significant concessions" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPWndrZFJobzkyUlBlUExPdXhKSlNtenVPZHZaNU9jNlBDSjVwSkFOOXE4LW9RT3FYc3lxNEZDbEVaS2E3dmpCb2wtb0hOZF9CLUplMFZfTm1xZ1lJbDNRaXA1R2FJeklJQ1pBY1dpYkVzOHdKTXhDX2xRYVVxQ3pIVlBPNDFCVWQxanIzMV9Saw?oc=5) |
 | Appellate ruling on Trump’s $500M fine may not be last word on fraud case - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQOHZkVVFlZWxlQTlKU0tkWm14VjAzRGZwXzhXVnVlNDZoQXctUGQ1S1hGY25hVERDa05Kckd2Uk9rUG1qOXFMNnVWZXlHZlpiUDJIajZkTzBGVzlRaEhQSzRianFZTUd2OHNzbVMxX3pIN2tPZHpOc054MmR4SEZiZmpxZlB0Q1ctTUhqNklwLTgyR2UwMVRkNWFoMlIySzIyNmVBU0h6Uk9XVlN5VTZSRg?oc=5) |
-| In Washington Crackdown, Making a Federal Case Out of Low-Level Arrests - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNcHNMb3NDV1M0MWswVEN2SzFNLWYwUTFrekFlUmRqaHNFZU9xeW5SWXprVW9oc0dHbkRzTmxnN1AyRkgzRW4zNHI4a0p3VWo2b2F2Q3lTU2IxbkFDSXM2SWx4Q0ZGSzJORlRSR3JlTjBKYjBKaEdVTkR3RXZvS09pX0lBUkhDbXVhUXFNXzM2VFdURE0?oc=5) |
 | National Guard troops in D.C. to begin carrying firearms - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPaVQ1NkdzSU1vazVIQlFtQ2pMcVppZHZfYmtFMGZVNXVkc09Ha09taTdrS3hJV3NqNWNNMVBZUkIzNXNGQXMtNzZ6UHJkWVN2N0tRMmJ1eGNHVGszSi13M2NXY1pIblhxdExTbGJxTTk4TG1KYU9fdFJpaExOd2NGRnBZZ0xDTmZnOFZDMTZaV0JzZ0VUeDFqY1BzRHZrSHpLLU1uVTExNHh1dw?oc=5) |
+| California’s lightning-fast push for partisan redistricting reflects Trump’s new America - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQbElfWGJwcUxpeFFXQ3VHQkhtS2FTQlNhaktpb3hiNTN6czRsU0gwY1NGQUd3cXNfU0FHcWloSTQwdzUwb0Q3cGRtdkxRRWNuWGxza2NZVFBreURSRlFrSGZQRkFYcHpmNmFHeXdieloyS0IyaTlYdE5rWmVPOF92R2x0VGQ4em1YVnhRbE81TlhJRk04cktUbnhiY3Z5N3RWQXJjVi1MaW45X3ZJdHJLOG5VbXVqSVNqQzlPVzBMeUc3Vmc5aW1KbE5jazJFUlJxTVE?oc=5) |
 | Floodwater engulfed a Tennessee hospital. Then came the megalaw. - yahoo.com | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOQThfemRMQS1TZjFuWFlOWWFqeEhVdklORlo3V2hNN0dqMF9GRjBNVUNUaHkzd1RxNXQyVTVHeEdpWm9fQlltR05UNXhLa3A1blZBOGZPQWp4dEc0WFR1ZkdzUkFfb1pYenVkRUlTdHhTNk05MlpmWlpNS2VFRndkNUZkT2taWHNBSWtNMURielFzR0dacEpIQUZn?oc=5) |
 | Pickett fire in Napa County grows, threatening homes and wineries - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQeDkwc0NxaEZDOEVpdWhnYjRkdnViZDUyRERXTl8wYmh2MkJmMGxZNER2a2hIbkFuQWhpQ3hONGpHYnExLVMtb0UxVTdFQTJlRUg4bEZkYloycjZWWnZiNUlXUHJ3enhhOGx6WDR3a2FXY2xDd05Iamx0UWxPVllvYkxR?oc=5) |
 | Release of audio recording interrupts Menendez hearing as brothers’ parole is denied - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9LY2UxaXQtNXlsSk9kQ2xyYUdhWkhNYVFhUjNRRUxaQXNCUUFEUFl3Uk9BTDdaXzg1VXlyZzh5cnlYbWJJeGFPQnYyZFFyMjFVZm9zU3gyb3BQdzE4VTFOd3ZORlYtYmhyQlhNdl9NRHJHMksxdm5GTg?oc=5) |
