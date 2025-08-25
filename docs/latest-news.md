@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 16:09:36（北京时间）**
+🕒 更新时间：**2025年08月25日 16:16:14（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Wes Moore: Deployment of National Guard to DC ‘deeply disrespectful’ to guard members - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPSE9acklrUU5KMWN2ZzFTWm9QS1FjWnY2TktpaFNJamFZWXNKZWh6LUdRckl1UHh0bFN6Mjgyd2pwR3RBVlpaRXN0M0V4NGRLM05lcWJlNTdfd1Byd2VTYzY1cEtpbHZQNGVHN2RYNXJlX09oaFM2V0I2RmgwWnVtcjVqMXVMVFnSAYwBQVVfeXFMUFN3czFLTGlWUzNkSHgwMDVYSXBfVHNDRnZMUVRXcU54MWlMYzMtMEhRUFU5b2lkZXpDODFvVW5XdnNhN2QwVTZ2dldmZVBNWDVlbHhXVDRRRVE0Z2FEcE9kYk1QN3VqVUpmLTk1NGVGTEdYT3VKZlcxejRDZ1BJdXRxNGlFYWxTbzAyQmU?oc=5) |
 | Both Menendez brothers were denied parole. Here are 5 takeaways from their hearings - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOZlVoUnVfSS1XN1pFSkVucGlNQlZPamVIY3pIaTl0Q19qV0NfOWM1eXN1akdzanhKRnlreTc5ZXRfUW55MFQzaHRxeU1CblRaSzA4N0NzdEpiU2FSNW5VRDlaOExqZkwzM1EtU3dlZFFRZjcyRlZjZnBVT0lqME9VUW5nQkJvRGtmSzFiUGJ0bWtvWjZ6TTd2OUlLelpha2RwakRvVnJiZDBybVUyRkRTdGRWcHUwMmNRcGfSAb8BQVVfeXFMT09tR3ZqOERtOVlIbm9oUUlzUm1QSHM5WmN2SWMyQ0wzZXl5VW1yd0puR2VmUlJ5M1hvaGZ4bjFnMlhYc25wRWhyQXZnVkJWTkp4Z3B6elJnUGQtRy1qTFNScERJTDQ2Z2F6ek92ZU9peXNWaEJsemlJQ2FDUi1jbExEcFU5XzhlOXQxMWphSlFoTzlIbTU2Mkp5N0dXNlY0ZDhkMUlKOVZnWEs0UkcyVVJQR29Ec3poSVVlTnRFVU0?oc=5) |
 | Zelensky Marks Ukraine’s Independence Day With Diplomacy in Kyiv and a Plea for Peace - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPbl9jX3NKSGJQR211eUxDajAxRkVkaGtSdzRrcDBDbE55WFVxTDFHYU5TcXpPSlN6bklVZVNHUDRZNkcybUt0Tl9sNTNLbGJ0Y0l4MUlud090RmZHZEM4YUpNSGFKaG9abWQ0TE8wQ3l0ay1TZ2ZXQkhuc2k0WEgyeTFoZnlFQXRTZDBCd2czQQ?oc=5) |
-| Putin and Zelenskyy have 'no meeting planned,' Russian official Lavrov says - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNXzFFQTVPT2dHS1ZiS3JSRlpocnFiZnhPLTNheW5JV2d5b0Q0dGJqUmpELWJ1X3ZpWjhGbjdOV3dndmU2blVaemxjeTJlbnZGMnduS1FJcFVleHpIUFJ5V253eUhYb2NOUVc2NUwzVE16T0VlYXBDTHJXcW9VaExjVTQ1X1A4Z9IBiwFBVV95cUxON2tUM0lsT2I5cHhOVjRXaFhBRmpkT1dpbnFVa0V5OS0zRi03WE91WUJJQ0FOWGNCQWZWbmZqRDJ5cl9fb2wtSFhFRWE4Uy1QRng0aU16RlFqVjkzaXBwQ083M1dJRFF6M3hNbkpPdnpId3J3LUlZZ24zR3h0NUhrckd0dzlwa2NBMzNB?oc=5) |
+| JD Vance defends federal investigation into former Trump adviser John Bolton - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE9uTVEwV0lYdTI3ZzdLZVZCRG9mc1VkTzlsLUJ3T2tlX2lpYlVqdXVEa2RHZG1nZVU3V0dSeWJqUEs2VTBaTzIzV3BDanpoUkRVRnlBaFFmVHZIbnNUVXAtc01uUGYtb0xKbjBBOVNMZjJJNVRtbHEtdjVn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
