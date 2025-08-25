@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 18:56:09（北京时间）**
+🕒 更新时间：**2025年08月25日 19:00:03（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | California wine country wildfire nears 7,000 acres, mandatory evacuations ordered - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNeFZsdzRUX2ttb3VMVE1XQzBITHRNNmJBeVBGZVUxckIzUDdzVTF4TVBvYnhBdVY5TFlLNGlFZkFEUUQ5bEkyUF9UNldpbHpRQVFqTjJ5Qy05Q2NMcXhEekxyNWVnWHh2T1NOMzBmemxiZjBtbENvd1dIeHpic3UtczF3TmJRQWt3TTBvQnd0MXdxNTcxN183Wkh2WmNIUdIBowFBVV95cUxOU2pUYUVSS2FYdHhkSU5uaV81UWYxbFFaYk80c01sSnJ5SkRhd0NVaFI1MTJ1UVpSeDFBUUxwaDY4TmNaMnBrN2JIYWJURG5DaUE3Y0lSYnJ5eDBDd1BDV1MwTXNZcko0QjVKVl9jdFlubW1DcVBaR3kzUUI3NGlmMFhNZHFtM21zRUdMWVhTY3YxcE00ZGZxZ2d5d1ZVRVZGOUdZ?oc=5) |
 | Wes Moore trades barbs with Trump over threat to send "troops" to Maryland - Axios | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBLZDd4MTV3YS1ldXoxSnBzc3ZXV1JzSlhDclhoVlc0MlFaa08tVEhVNGM0ckxUVHN5SlhDekd5cnI0XzBKQnZLSEJrZkVBdWhlVUhxY0J1dFRnR3p3YjhDWjhrMXRINlRGUkU3Nng5OFdkZw?oc=5) |
 | First human case of flesh-eating screwworm parasite detected in the U.S. - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPcHlyZURDc3hLNE16VnhfVDVXQ01RTlZfTnNJR2dOVkZ0MFJLLTVWYUNtMnp3SHVmMkVPRmE5U1NGWXN6bHZYeEZWM0FOb1B0enc5UFF2dF9zT0FmTVNyRVNsaUNoRkhEUFV5ZWQ5TVd0U2ZSbC10Qkp4S3o5RWJyeVVuOXdWb3hySV8tdm1EdlpTZFdNdmczMk5WYnhZNnpBZmJGYnZHSHEzdG5q0gFWQVVfeXFMUENrOXZEamhmeTBzb0NZanJyWElzQ3dURExQUm15N1Z6a0VMcXdSUU1hNTZGcTBmdWdkSHBNWkc0LU8yUEItNlhVMVpCYXYxVkhQUDVhWmc?oc=5) |
-| Turley Says Maxwell Transcript Exonerates Trump and Hits ‘Hard in Washington’ - The Daily Signal | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQQUpmc0FmQ3hLQ2dSUkJ5ejltdXl6ZVREYWFiS2FrN2R4Q1ZsT0EtQzJIaDlmbFltUm9EWGJHQlAxbUxOeUdBN19aWkZtWk4zVUR4dzB6MVBKcDFLNmYwYUJxZ19nbENWYUdFQkRWU2NnSUtwQ3hUYzdOSm9NUjVaMTJiSFc0RUlMc3dxTDBaVVZIU0U1anR4TQ?oc=5) |
 | Zelensky Marks Ukraine’s Independence Day With Diplomacy in Kyiv and a Plea for Peace - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPbl9jX3NKSGJQR211eUxDajAxRkVkaGtSdzRrcDBDbE55WFVxTDFHYU5TcXpPSlN6bklVZVNHUDRZNkcybUt0Tl9sNTNLbGJ0Y0l4MUlud090RmZHZEM4YUpNSGFKaG9abWQ0TE8wQ3l0ay1TZ2ZXQkhuc2k0WEgyeTFoZnlFQXRTZDBCd2czQQ?oc=5) |
+| Turley Says Maxwell Transcript Exonerates Trump and Hits ‘Hard in Washington’ - The Daily Signal | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQQUpmc0FmQ3hLQ2dSUkJ5ejltdXl6ZVREYWFiS2FrN2R4Q1ZsT0EtQzJIaDlmbFltUm9EWGJHQlAxbUxOeUdBN19aWkZtWk4zVUR4dzB6MVBKcDFLNmYwYUJxZ19nbENWYUdFQkRWU2NnSUtwQ3hUYzdOSm9NUjVaMTJiSFc0RUlMc3dxTDBaVVZIU0U1anR4TQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
