@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 10:33:11（北京时间）**
+🕒 更新时间：**2025年08月25日 10:40:09（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump threatens to send National Guard troops to Baltimore; D.C. troops now armed - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOb3BRQUppM18wODVYTm5zTnJyOGRwXzkyR1d2dkgzYVFVZGRvX3lEV3dzM1JVaXYtWG4tb1dyLUZ0VUxvdWJRNHluZVFBQ1VjeF93N1g4ek9JN3J3Y2F1THFEc3Z4dHZ6ZnZYS0dUa3hZT293dnNsbEZiT0Q5dTJRdmxGeldwbnhfSGQ0WQ?oc=5) |
 | Kilmar Abrego Garcia expects to be detained by ICE again, attorney says - NPR | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNQThWWmFRZkxfR3lhU2lNNFNCV0pxN3VKR3gzRkRKNzVINFpCRjM1WXpuZ010Y05SVDNtWVpSN1h3T2xNX052eTcyb0g0TGN2NFUxX1pmOVhtUXJNOGw1cG45UGVnMVNoNURPUENpN1VSc2JFOFEzR19JbEVzbUVLeU5yaWc3RlhNTm5vRnBWUUEzanVXUnN1SGpEcldMMHdLSUM2V2NZM09Kb1BJckpJ?oc=5) |
 | Release of audio recording interrupts Menendez hearing as brothers’ parole is denied - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9LY2UxaXQtNXlsSk9kQ2xyYUdhWkhNYVFhUjNRRUxaQXNCUUFEUFl3Uk9BTDdaXzg1VXlyZzh5cnlYbWJJeGFPQnYyZFFyMjFVZm9zU3gyb3BQdzE4VTFOd3ZORlYtYmhyQlhNdl9NRHJHMksxdm5GTtIBfkFVX3lxTFA0QVJJOFA1VjdPM1NjQ1FFZkFoR3F2REZ2Qk8weE5Ic3ItUDhOMFhqSTJEanY4cUdaQW5OYUJYcEhOclBKdDZ1MTAwUF9aUHNUT2R2ZXZ3NHFFSFktQm8tS3BqM3dvUy1mQk1oSm5LSi1DUWJrOV9ocnd6T1lVQQ?oc=5) |
-| Growing wildfires in Oregon and California threaten homes, prompt evacuations - PBS | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQd1hURTFKd3VkVDJ6bF83RWtUdXVGbWFGMlc3QmFQdm5majdfOUVjUy1kU2UtM3dHTEstS0RxUzlpNHlFUGJnUHZJdldzVFNJOGduLXBfdGx1a3lBdy0xSDk1ZzhWaGxnSzNUejI3Y3MxWUNRZW9EYnEzNHR4VG1XcGZ0SF84a2UwYjJyTHp4dW5ENGZzZHJLQkZXeHE5Zl85YVVucExsaUR4elc2UkxRd3Zn0gG3AUFVX3lxTFBOMHZ3SFA4SGJhYzhTLTlqYTFoWk9jTkJoRGs1cFdMbVdiQTJJUVVoa0R6RzRybWVHOUY3cTVMQWo4R3FjSS16QU5ROUUyXzltaFhMbWs2ME1YTGJ4N291R2ktYnFfWTFHT2pEdG96MjdGWEU3N1Z4UlRfZGg1MmltT1FFTFJiM1hXQ05Ba2pnWlM1X3dCbWxuNWpzSkh3YzJpaGxQdmZFUDZ6YmQ1b3puSURFbzRPUQ?oc=5) |
+| Firefighters hold line on Pickett fire in Napa County even as ‘thermal belt’ adds to challenges - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQeDkwc0NxaEZDOEVpdWhnYjRkdnViZDUyRERXTl8wYmh2MkJmMGxZNER2a2hIbkFuQWhpQ3hONGpHYnExLVMtb0UxVTdFQTJlRUg4bEZkYloycjZWWnZiNUlXUHJ3enhhOGx6WDR3a2FXY2xDd05Iamx0UWxPVllvYkxR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
