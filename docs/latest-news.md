@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 06:57:46（北京时间）**
+🕒 更新时间：**2025年08月26日 07:02:02（北京时间）**
 
 ---
 
@@ -25,14 +25,14 @@
 |--------|-------------|
 | Kilmar Abrego Garcia fights imminent deportation to Uganda - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQN0U3QmExeTRUTklEcXR5QmI1eWpnNXRxaVhHWG5Oem5tdFcxREU4TGJnUGJMeXZHZXlMUDREbmFodFdRUUdpeDh5VTc1dFpENVcyemJrREJ0MjZxeUhESWdMRTFxdVpMZW5mcDlwZ3hHS3o1WmNKeUFzSFh6NTlaWDNvZzN6SnU1MVNZenZHRFpvQ2NlX2p0SEFSaG9kbm43UFJURzdjdmRQUWto?oc=5) |
 | Full text of Illinois Gov. JB Pritkzer's speech at news conference on reported Trump military plan for Chicago - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQM2hTOTJ1b0JGWW9tNk9tRUN6VGZCU3JZR282SUhNbmhtenh3a1dXTTBPY3FXeXNSTjF1OG9zSjhIeXl5MmswdEl2eGtCTXBkUkMycDRnVzlxSDA0V3BjNGE5UjByVld5eDdpczZjZjFiY19zRmRqTGY5MWwwZnhiUTAzbkxrbW1tOGJ6VHhtT2xXYXRQMWNPaEh5MHZqT3Yxdm41RzN6aGZ4Zw?oc=5) |
-| Trump orders crackdown on US flag burning and desecration, raising free speech concern - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPTUlqczVacGVmZTRleWVYeDR1dVBpaU11N1VJVDNUREJFd3dENjdrUzZ0TnhDbDlzQnpFaTFSM2Z6WHFvOGs3dUNzaVdfYkVtZWtZN1JBVGZTd0FjUE9qY3htMjlCX0JzV25SalZRekRSdl9vdGw2Wmh6ZEdFbDhpcW9IOFNBS3JpajlYcEhTMXBSZnYtMjhDMzhOZXp4OXBqanh4YUkzd29mN1hoaWY4RFJORjd0SGtjcmNCajd0Y2s?oc=5) |
 | Israeli strikes kill 22, including 5 journalists, in a Gaza hospital - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxObm9aZm1XLUxqVWNBRFVFbHk4NWNJZWpzV3h3NTYycHFWZE42Q3ZhYml5alZ5UTg3alM1aU5pY3BvdmFSdnRPY29nSmdoRkliWTVXSTh1Y096UDBfVzhrcEQzRUxlbzd4YzAySVYzVVV3SmFWYS15aF9CSzZhcHY5Z3lKVmhUQmZUSzlxTg?oc=5) |
+| Trump Repeatedly Praises North Korea’s Dictator in Meeting With South’s President - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOZk9pbVI4ZkxDV240NmYzTkQxN1V3MHZTMjRtMlJrcDNxTFBqYlNPM2g5ZkY1SjNmcW5UcjEzeGszVlMxUHIwbm1zVEdkTDNQXzk0dUJTUTdEbTRtcTdkQlhXVGdxbEhxNzBWWFB0aUhZY2dKcE00eG1RR3o1NHhzMg?oc=5) |
 | Trump signs executive order establishing ‘specialized’ National Guard units to address crime in cities - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNYUJFZFBFbnEwQ04tY1M0dk1xbUVfUk43bTJxYW1za092ZzBkTUlrRDFBR29MN2FiQWRBSWh3TnlsQnpDRFV3YVRLMnFsNFppV1QzOEZFb0JoM1BjNG81bWx0YnJuVjFZUmlsYlEtdXkyU2ZVTVBkU19vWnpNeUZuMkJIVDhDZmdmNHJUU0FHMjFVUdIBlwFBVV95cUxPNFJndnUyM19heVNqMXhlZ1E3UXh2OUVleDkxZm5BaGJSSExKeUtHNnI2bG1idTdZUFhoYjZWZDVFTjZjRUxkSnJxTWhQY1Q0YmtHMTFqNl8wYjZ6Q0k0Q2F6UEZoYTRxRkJUQi1rZUo0OFBGU2IzdmNiZnRpMmE2dFpwVnBZZS1reVMxdmtseXZ2d3JwblhN?oc=5) |
 | The Three Bolton Problem - The Bulwark | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE45dkxZTHFmYTJWSEludUg5VXFXRUlSel9rY3A1a0I5TExnWHJYbXU0ZndKWmhaRWdyM1IySmFLanB0YVBuS28ySlJvV25xTk45TTlpcTZRNm1sc3RsRm56a19ZRQ?oc=5) |
-| Sinaloa drug cartel kingpin ‘El Mayo’ pleads guilty in US court - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1pR0kySTFuMnJNX2R5ZmNDVS1jQmFwOVAwS2dfbFV2R2xWTTRPTFlza1Zmb0JEWXNtRkU3MkpxdFI1OF9hZm9uVjRVd0M5b0VqaTV1Zi01b2c4OWRrb1JPMnI2UVNadTBHdDhxZlROd0E?oc=5) |
-| Republican-led committee subpoenas documents from Jeffrey Epstein estate - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPa2JpNElBMzZqdmY4TkxkWXoyYlRsSnRVNmUzS3Q3UERXZERPZ2kxVlczSlJrZmdqR0NrZmg3MS05SGwzY19FdEF3MnRxSHJJZnJQSWhlZ29JTDQyZTJKenhfTmVBMHJzQmh1ZnRNb3ZkNmRmVjBtWmszTVRvZWpROVEtV2RrUUF3eVFOVXpnY2s4aTFaVXc?oc=5) |
+| Mexican drug lord 'El Mayo' enters guilty plea - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBKSWNLQmtldnVKME9tSEFRRVRKbThaMEltc0VrX0NLa2ZIbTZsUG9sTTQxWHdTMmkxSV9YcHA2a1VmSUtpRnVmMWM5cTM2TEFvR2RtbmV6SThfQdIBX0FVX3lxTE9DNUctSlRDd1lsaWtFVmpYUC15VHVNNU9qaEhuRGRrcmZ0SjkxbWFKWEhyeHNPb3hwMEdzS1M5RDNpNEJZTjhJX0tpUW4xcWNKTmlObkl6aThzWEExaF9F?oc=5) |
 | Deep Transit Cuts in Philadelphia Set Commuters and Parents Scrambling - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5ZaXQ4a0dva0ZlQUZNVWh4bUptUjNMczdGZWNWMVJpeE9jRGZvejdlRF9uYVcxUjZXYTNMWmJsd3ljZUFKNlIzbDhoMlYxUV9pUFp4MmtxSlJpVngta19xZS1wY1BBZDE4TnRCTC1yejBlZmExTDU0?oc=5) |
-| This blue state is the first to grapple with megabill response - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPcF9lRjlpd3J2Wm9oU2FJNkdFb3lQaWtUeWFlNDVNS2t4WFRXOTdsbWFOYXdSNG1wV24tSnowUXJZZ0ZmZG1TQXp4dkhXUlVETDNWSmFPNW5way0wdnN2SXZOMDRSUXp1N1QwNHFyUFc0UktmaXlfUU9EaG1XMnpJYnQ0TzRlTndyeWtfN3NleFZlLXhPbTdpeTlmZUM4MU5wU2xXaEd2NUcwemlTMHQzZ3h3?oc=5) |
+| Democrats are nixing about $150M in tax breaks to address Colorado’s $750M budget hole. They could be doing more. - The Colorado Sun | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQRTZjZGR4cWE4MHQzRnZQTEdGUWpCdXVrc3FyZVFCaGktN3d5RDRUeHFDcnZtQmprUzNFT180MlYwMVFNSmZZNnhRWERlZ2NHejB4WkpUTW93UDBBRHdrN2o1Yko2S3F5bHBkd3dTWEt1ZFdoVDhVT2RTbHFBZ0VTcg?oc=5) |
+| Rare human screwworm case confirmed in Maryland - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBSZVVzallLblVYUG9NcjBkWUx0Ti1xMWFNWlo5VkZTUjZRQnRFaWxMRTh1cG5JNGQwTlBBdmxia2dCWm1rOTg2eEpzTEpwajVZbEo2SnFDbkk5UTMwZldTbVdNSFJWN1c0bjZiRWJxaWQ5MmJZNnN2MjBMaVhuUGM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
