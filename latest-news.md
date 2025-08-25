@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 20:24:05（北京时间）**
+🕒 更新时间：**2025年08月25日 20:32:55（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Fifteen killed in alleged Israeli Air Force air strike - The Jerusalem Post | [阅读全文](https://news.google.com/rss/articles/CBMiXEFVX3lxTE9SRWtqSW9ndm53TFRrbEF5SWdzdnRDNnhRWnlIZ1d6MFpIUGpjY2xFSU9WVDlZdFk5amhTNmdkczFPamwxUU8yUm1rQVBVZXBIWHp3WGVjN1ByME92?oc=5) |
 | Kilmar Abrego Garcia expects to be detained by ICE again, attorney says - NPR | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNQThWWmFRZkxfR3lhU2lNNFNCV0pxN3VKR3gzRkRKNzVINFpCRjM1WXpuZ010Y05SVDNtWVpSN1h3T2xNX052eTcyb0g0TGN2NFUxX1pmOVhtUXJNOGw1cG45UGVnMVNoNURPUENpN1VSc2JFOFEzR19JbEVzbUVLeU5yaWc3RlhNTm5vRnBWUUEzanVXUnN1SGpEcldMMHdLSUM2V2NZM09Kb1BJckpJ?oc=5) |
 | France summons US Ambassador Kushner over 'unacceptable' letter about rising antisemitism - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPRHRSN3luMERndUVmZDNIWl9oWFF2RjNxUkI5Vzc4N3E0a09FRGZscTFVZlE0ZGJzd1dDSGFpLUpROEFmYW1reGduZDdmdTBIZWxNZ2ZBX3NmeFlFLVEyaUhwN0lBMGFQRUxLTG1XaVEtcUVlYkpDUmU4Nlc5SGJPVU9xSk12VkxWRjB3SHoxa3NpTUZieGp0dmR1bw?oc=5) |
-| South Korea's Lee faces pivotal test at first summit with Trump - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNT0ZaTFRwZXZsRmFLSU5YbnpibHVBUVVkb0l3dmx5ZUNGNVJrQlp1a3BWdUQ2ckhJeWlEYWdBSTJuZGZuc0F3aHh5bDZ3RGVEZ2pMaUxjaGh1cWRRSUhJZXVKWjRwUTg3OEhiYXpTSG5zTnd5bXVialg5by1LMTVsOUEzVUthMENSMDlPcFc5Y3dLc2dwRGFwMUVzMmJFbnppNU1BNkNSVHYwbzA?oc=5) |
+| Wes Moore trades barbs with Trump over threat to send "troops" to Maryland - Axios | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBLZDd4MTV3YS1ldXoxSnBzc3ZXV1JzSlhDclhoVlc0MlFaa08tVEhVNGM0ckxUVHN5SlhDekd5cnI0XzBKQnZLSEJrZkVBdWhlVUhxY0J1dFRnR3p3YjhDWjhrMXRINlRGUkU3Nng5OFdkZw?oc=5) |
 | $2.4B of Harvard’s canceled research grants, visualized - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxObFhEdXlNWktDdHg1Z2dkdWRBUlN4LS1qZEZTa0NwQmdkZ3VURlZJbkwxRzhURWhHYzJGWkFmQS1rZTRHZEpzLUNMbE5nY2djV2FBcG9lTEtCMDBJQUtQUkp5SzdKbEt5anViXzVkeXRxRGpha1dLbXJIYUN3NHZPYk9B0gGHAUFVX3lxTFBPN1cwdmFPMjgtM0NPSW5jLXdDSVNFaEZRd2YwcWxTa0UzVDY0Rmg4bWtiZ3JfLWtOT0ZLSHd4Z1dFQzEtVy1aSGc5M254bEEyV3pqUVhyMzMtNjVSbUc0S3hrZFhDMXhmT0VOVzRXME41VnJiMFVTSFE2Q3ZMdVV6d0VwY1BQWQ?oc=5) |
 | As measles surged in Texas, Trump administration's actions hampered CDC's response - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNeTdUTDhQdVVOZWdqRGhPaGljWWVxc0tUZVdUdWJibU1nTkEtUHhfR1NYZmJJZ0pBcDJ1R0VZd3RpMzJDOERFU2dOSk1uNHRTUzREWFpaSnRzQThYTWQ4VC03REN4UnBGTWw5UkJQblNjRDZLakE4NXNzekQwd19YSUhTRdIBiAFBVV95cUxNT2V4NmFJYlI2Q2RIVmVsemdJdnVONEdvVl8xQmV6ZkRHaE8tcWN5b2xkM3h6cU93UlI4anl2UjQwMlJyMDZWNk5ibUJtSWdobWh2eFRmN1ljQkV1QTNheDNUdHRNdG1IWTc4TTdMV2xwcGk1V3Z3V2dTOWJSOE9Fc3FxWGpjQ0Vj?oc=5) |
-| First human case of flesh-eating screwworm parasite detected in the U.S. - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPcHlyZURDc3hLNE16VnhfVDVXQ01RTlZfTnNJR2dOVkZ0MFJLLTVWYUNtMnp3SHVmMkVPRmE5U1NGWXN6bHZYeEZWM0FOb1B0enc5UFF2dF9zT0FmTVNyRVNsaUNoRkhEUFV5ZWQ5TVd0U2ZSbC10Qkp4S3o5RWJyeVVuOXdWb3hySV8tdm1EdlpTZFdNdmczMk5WYnhZNnpBZmJGYnZHSHEzdG5q0gFWQVVfeXFMUENrOXZEamhmeTBzb0NZanJyWElzQ3dURExQUm15N1Z6a0VMcXdSUU1hNTZGcTBmdWdkSHBNWkc0LU8yUEItNlhVMVpCYXYxVkhQUDVhWmc?oc=5) |
+| When immigration shows up at daycare: crackdown in DC terrifies families and workers - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPa1dwMVhlNDJWTk5BMmdmQWdPbjhkd3hhRVdiOEcxOG9mRVk0UEhBY3ZqVHczdklFMXpHa0d4S0dZMXE0T2wwY2k0eEF0d1k3cHAwTFRndUQ0SGZJbGpzTFpwZXRZTzVQN0lYcGVHQ3FKSjY0dzFDU2c5N2I4NklIUmhWTnZranJQZDRkSVdvb3MwSDJOVjV2bnVYRDNIVEVBS25scHVn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
