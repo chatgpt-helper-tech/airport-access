@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 20:08:56（北京时间）**
+🕒 更新时间：**2025年08月25日 20:16:07（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| More than a dozen people killed in Israeli strikes on hospital in southern Gaza, including journalists - CNN | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNaV9QYzZVaTg0dEhLNzlRc1dSMVNKQlhVT05zWWgzeWYxUmY0X0RGWkctNkNGUnRWbkRucEp3MWE2Y1Y1aG1TcFpzWjBRRGpfS3h4RjFzRW5nMDE4eXpLQkY1eXd1NTBYS2xxY25STEc4aWlrdlNOU0kwSlFWREkyUFVCZnNiR0NVMTVqNUJCYjVEUDEteE1yZjl5aTZYbjZSTGVQQnVfVWhPS2YyZXN4NtIBtgFBVV95cUxPZnU1bkI0MU16UjVMX2JXczlPS25Yd2VWWm9PNVJ1VGpyb0FlWndTMlNCbTdYSi1EY3F3NF9CV2F0cjU4Y3NnUVpIRllMWC1OOXlkTkxxOGh2aTNMdk9fa3pQWEpIRFpvN1NhYm5OVWZqMnV0eHktc0R6SVZRQUU4NTdIOFpVbUtBY1RXN1luOGN1WlVaay1UZGVEUlhfVHJ0NHNYLVZuNmVBbXEzTmdvQ09EWjZkdw?oc=5) |
+| Journalists killed in Israeli strike on Gaza's Nasser hospital - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPeVdzV2x0czN1ekJHaHRVNXIyTnQzRHRvTnczZnlUNHdoQjh3LXVoMzJSSXJhbTFqUDNGM3RTMnhJU3pPOW53UHpCOXhkanlSUnNvUGFqX1JTUXZYMWVOSVZaM09TbFFNbWpESlpOcWRlYTZ2Yk9Sa1JCRWxMSjJVM3hXWWhpXzZDdUVQSXRoYThiNFVlYVVKOXFxTkdYM3pfVDc1WklfdHpVY1dtVGNlU3NSWFlHUdIBVkFVX3lxTE1ldHltYzVlYnVpMk1xZkpOYmxyR00zMVB1NUdheVVaMzRwUUZVam9DUUxMWS03X1RJQ1BndklOZmd6RmpSVFBvOTczVVhoM0NONEU1WFVB?oc=5) |
+| National Guard Patrols Begin to Carry Weapons in D.C. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQel9OejB5ME9uUk5fdVRZd1lHWVlfTjBSVzNrVTdhMHlBSUo2NzBnQ3UzWTh6UU5HM1RFRG5XRTVYcHZuRTF4S0YxSmZrZktUSmM0TGpJclBNU1NnODhhV2JRZnFqYmpMODA0al9KVU1kS3pKbGpfTnA2dXVsT2dPNUpuRmpzWloxUlE?oc=5) |
 | Chicago leaders denounce Pentagon plans for military deployment in city - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOTDJhZG1HZHdTZVhRLWZDbjlfVmp4ZDJMY1pDbnlmSzlkRTI3V3VjclZwUndNX1RwOWNLZmExWHY5d21mOFJoMjlzY3k0Z3V4NXlYUkJVNDlPZEp3Z3pSWVJ2dTFqWk9XcGpJamYxM1dpUjYxRWY3dElGZXFCblpUcW1DanF0MlJ4aThJ?oc=5) |
 | Fifteen killed in alleged Israeli Air Force air strike - The Jerusalem Post | [阅读全文](https://news.google.com/rss/articles/CBMiXEFVX3lxTE9SRWtqSW9ndm53TFRrbEF5SWdzdnRDNnhRWnlIZ1d6MFpIUGpjY2xFSU9WVDlZdFk5amhTNmdkczFPamwxUU8yUm1rQVBVZXBIWHp3WGVjN1ByME92?oc=5) |
-| National Guard troops in D.C. begin carrying firearms - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPaVQ1NkdzSU1vazVIQlFtQ2pMcVppZHZfYmtFMGZVNXVkc09Ha09taTdrS3hJV3NqNWNNMVBZUkIzNXNGQXMtNzZ6UHJkWVN2N0tRMmJ1eGNHVGszSi13M2NXY1pIblhxdExTbGJxTTk4TG1KYU9fdFJpaExOd2NGRnBZZ0xDTmZnOFZDMTZaV0JzZ0VUeDFqY1BzRHZrSHpLLU1uVTExNHh1d9IBVkFVX3lxTE5UaGxBTTR5M2VKSW50ODhjYU5QTTRxZVFkdTZ2UkpfZjl3S2NOZDNCclZqdmh5NUtaZXJPSFpNUmxnYmt3Q0Y1RVNtNkVjbFNZUUZKbkd3?oc=5) |
 | Kilmar Abrego Garcia expects to be detained by ICE again, attorney says - NPR | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNQThWWmFRZkxfR3lhU2lNNFNCV0pxN3VKR3gzRkRKNzVINFpCRjM1WXpuZ010Y05SVDNtWVpSN1h3T2xNX052eTcyb0g0TGN2NFUxX1pmOVhtUXJNOGw1cG45UGVnMVNoNURPUENpN1VSc2JFOFEzR19JbEVzbUVLeU5yaWc3RlhNTm5vRnBWUUEzanVXUnN1SGpEcldMMHdLSUM2V2NZM09Kb1BJckpJ?oc=5) |
 | France summons US Ambassador Kushner over 'unacceptable' letter about rising antisemitism - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPRHRSN3luMERndUVmZDNIWl9oWFF2RjNxUkI5Vzc4N3E0a09FRGZscTFVZlE0ZGJzd1dDSGFpLUpROEFmYW1reGduZDdmdTBIZWxNZ2ZBX3NmeFlFLVEyaUhwN0lBMGFQRUxLTG1XaVEtcUVlYkpDUmU4Nlc5SGJPVU9xSk12VkxWRjB3SHoxa3NpTUZieGp0dmR1bw?oc=5) |
 | Wes Moore trades barbs with Trump over threat to send "troops" to Maryland - Axios | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBLZDd4MTV3YS1ldXoxSnBzc3ZXV1JzSlhDclhoVlc0MlFaa08tVEhVNGM0ckxUVHN5SlhDekd5cnI0XzBKQnZLSEJrZkVBdWhlVUhxY0J1dFRnR3p3YjhDWjhrMXRINlRGUkU3Nng5OFdkZw?oc=5) |
