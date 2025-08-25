@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 17:48:40（北京时间）**
+🕒 更新时间：**2025年08月25日 17:56:40（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | Inside Donetsk as residents flee attacks on Ukrainian region Putin wants to control | [阅读全文](https://www.bbc.com/news/articles/c209yn1ygz6o?at_medium=RSS&at_campaign=rss) |
 | Virginia Giuffre memoir to be published months after death | [阅读全文](https://www.bbc.com/news/articles/c2djy7048pdo?at_medium=RSS&at_campaign=rss) |
 | A cut-off finger ended her comfortable family life. Now she's hiding from US officials | [阅读全文](https://www.bbc.com/news/articles/cvg4kd385e4o?at_medium=RSS&at_campaign=rss) |
-| Medvedev knocked out of US Open after photographer enters court | [阅读全文](https://www.bbc.com/sport/tennis/articles/c0qly4k97q0o?at_medium=RSS&at_campaign=rss) |
+| Medvedev has US Open meltdown after photographer interrupts play | [阅读全文](https://www.bbc.com/sport/tennis/articles/c0qly4k97q0o?at_medium=RSS&at_campaign=rss) |
 | Mushroom murderer left me half alive, only survivor of toxic lunch tells court | [阅读全文](https://www.bbc.com/news/articles/cp8zr04wzz9o?at_medium=RSS&at_campaign=rss) |
 | Lives torn apart by fatal crashes on Scotland's longest road | [阅读全文](https://www.bbc.com/news/articles/c70xn6pnx0go?at_medium=RSS&at_campaign=rss) |
 | Gaza students who won scholarships to UK face anxious wait for evacuation | [阅读全文](https://www.bbc.com/news/articles/cx2x16y2ppro?at_medium=RSS&at_campaign=rss) |
@@ -31,8 +31,8 @@
 | Kilmar Abrego Garcia expects to be detained by ICE again, attorney says - NPR | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNQThWWmFRZkxfR3lhU2lNNFNCV0pxN3VKR3gzRkRKNzVINFpCRjM1WXpuZ010Y05SVDNtWVpSN1h3T2xNX052eTcyb0g0TGN2NFUxX1pmOVhtUXJNOGw1cG45UGVnMVNoNURPUENpN1VSc2JFOFEzR19JbEVzbUVLeU5yaWc3RlhNTm5vRnBWUUEzanVXUnN1SGpEcldMMHdLSUM2V2NZM09Kb1BJckpJ?oc=5) |
 | Wes Moore: Deployment of National Guard to DC ‘deeply disrespectful’ to guard members - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPSE9acklrUU5KMWN2ZzFTWm9QS1FjWnY2TktpaFNJamFZWXNKZWh6LUdRckl1UHh0bFN6Mjgyd2pwR3RBVlpaRXN0M0V4NGRLM05lcWJlNTdfd1Byd2VTYzY1cEtpbHZQNGVHN2RYNXJlX09oaFM2V0I2RmgwWnVtcjVqMXVMVFnSAYwBQVVfeXFMUFN3czFLTGlWUzNkSHgwMDVYSXBfVHNDRnZMUVRXcU54MWlMYzMtMEhRUFU5b2lkZXpDODFvVW5XdnNhN2QwVTZ2dldmZVBNWDVlbHhXVDRRRVE0Z2FEcE9kYk1QN3VqVUpmLTk1NGVGTEdYT3VKZlcxejRDZ1BJdXRxNGlFYWxTbzAyQmU?oc=5) |
 | Zelensky Marks Ukraine’s Independence Day With Diplomacy in Kyiv and a Plea for Peace - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPbl9jX3NKSGJQR211eUxDajAxRkVkaGtSdzRrcDBDbE55WFVxTDFHYU5TcXpPSlN6bklVZVNHUDRZNkcybUt0Tl9sNTNLbGJ0Y0l4MUlud090RmZHZEM4YUpNSGFKaG9abWQ0TE8wQ3l0ay1TZ2ZXQkhuc2k0WEgyeTFoZnlFQXRTZDBCd2czQQ?oc=5) |
-| Turley Says Maxwell Transcript Exonerates Trump and Hits ‘Hard in Washington’ - The Daily Signal | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQQUpmc0FmQ3hLQ2dSUkJ5ejltdXl6ZVREYWFiS2FrN2R4Q1ZsT0EtQzJIaDlmbFltUm9EWGJHQlAxbUxOeUdBN19aWkZtWk4zVUR4dzB6MVBKcDFLNmYwYUJxZ19nbENWYUdFQkRWU2NnSUtwQ3hUYzdOSm9NUjVaMTJiSFc0RUlMc3dxTDBaVVZIU0U1anR4TQ?oc=5) |
 | The Rule of Law in the US Just Took Its Last Breath - Zeteo | [阅读全文](https://news.google.com/rss/articles/CBMiZkFVX3lxTE9lV3N2dDFYNzFWTUgyYWtBNTY4TXJ0Yk12MHY5X2NWVUFIT3dFSGVGSnhCLVZYUWozeHgxWHc2MVZGWm9Ra01XemcyR1dLR0NVaE1XZTZ2c0J4Rjd2MHBfU2xOQnRwQQ?oc=5) |
+| Israeli airstrikes targeting Iran-backed Houthis rock Yemen's capital - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxQc0dBZWl6QnFIOExscG95andaLXFCYmVtMkViSHBkemc5Y0FfdWFTM1FiZDgxTlZKcXd1bnRETThFWDVEd214cmFfTzFBTWoyNWNEdGhxZ3hZaFNYQURZdzYxWXptcjA1SzBMVWV5d05lMnhnRUl5RDgwNmw3d1ZYRGwzT2Rtdjk4QUk2OExKS3ItMmVoQUZwd1lRdnpGc1VBRWphQW9NN2JvekxJRk5fbS1RUHBtRXQ0SlVYNEFZUTFtZktwRHc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
