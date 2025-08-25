@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 10:16:05（北京时间）**
+🕒 更新时间：**2025年08月25日 10:25:25（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| After Trump’s Threat to Send National Guard to Chicago, Democrats Push Back - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQNUxvV216YkdDbmhwcjVMd19qVEpwYjJHektybDBvVEIwcWVWUUFYODdPOGxjajh6NE1jMlpsTFltT204bkRTOUZIQmRhSmF5RmJLdmFIMUxhcldabkpRMFRfZnB5OFo1UDdMUHpObFZVS0p4MWZYYUhmb0piU1V2azlXVmtSdThPMHFBNkFzcw?oc=5) |
-| Russia "made significant concessions" to Trump on Ukraine talks, Vance says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE5XLXdrZU1naE1ocnhJZlhXSDREZG9CWTduTXRPVzhaNWUxMXBtSC16N1R2RTBwUGdyTW1HWDZ4eDc3cUI3em4wSTMtcE85VGo0M3F3WU8yS3B5OVZnS29TbjUtUmJlRU9nV19rbDBhbVJjNGM?oc=5) |
+| US official confirms Pentagon, President Donald Trump planning National Guard deployment in Chicago, Mayor Brandon Johnson speaks - ABC7 Chicago | [阅读全文](https://news.google.com/rss/articles/CBMi9AFBVV95cUxNVVdCbVo1bkxHTTlSaDhyVVpYLTJMZ2hhdk8zOHZBT1RKLUc0Ul81a1RYcjNvcFNMakNkZm5uTElUVUpqa04yZk1MTEpNbE5hS0dpVW9QUm1RNFBvMldlUm0wS0lweS1rY2pqeTVEeGtPQTZFSXQtNUpKSGV5TFpBTjlJQWk3RnlqRFgzbENOUDhobGNkWDJhZ2JNSnVJdWs0ZXhlRFVLY2xvMW9tbjhVWjZBTEcxbWNIWVM1N1NfZlBZS3JrX1hnQmhyZlRuY0pfbTB6dFg5ZGk5Qno3VVMtdmJEMm9ydFQwQWVwdURjVjFJak5x0gH6AUFVX3lxTE1IZTkyUmdSMTNrU1lTc1E1NFo2cXkza09ZcnZKMXhpRXNMR0VWMTFlRUhyV1NNY2R1b3BVTThzU1VzcUZrSF9BVjFzWGRmX2ZxOTlXZDVoNUZ1bVhRSExaNGJZUlYwWkJRVHFoRGxiazY4amJ1UUltMnFVRmxGRTNJLXQyNHM3cklXSEgwRTVyVXhQWHFCN2ZYXzNRdE5WRUxrdmdWZVkzVmxweE9BTVhyaFZ6QllFVzUyMHA3VXFGeWZobXg3elRVT3BUbVgzbHVNSi01dE9PbHZVSVhkZkRrQTE4Qmx6dmFvWEl5Nlo0Sk5MT0hMaWNxU0E?oc=5) |
 | Trump's redistricting push could bring decades of Republican rule to the US House - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNWjhra0pRc0FkM2pFYjRvRHJiQUtPdEVKRW1IM2gtSnpoTzBoQkpSSlhYdlAza291SHlYVnY3U2xPUzVWZkowOGNFXy1OV3YxU3Vibk4xUlp5SHVLcXYzYjJEVzN0bm4yQ2VwelFfX05meWNxWWd1Qjk0WlJ1Y1E3eExOLVlySHQ5TDZmNVpUN281Tmp0X3YtZzJpbEtYV3l4am9tMV9GN0Z1RU9BdXB5TW1salZBZw?oc=5) |
+| Russia "made significant concessions" to Trump on Ukraine talks, Vance says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE5XLXdrZU1naE1ocnhJZlhXSDREZG9CWTduTXRPVzhaNWUxMXBtSC16N1R2RTBwUGdyTW1HWDZ4eDc3cUI3em4wSTMtcE85VGo0M3F3WU8yS3B5OVZnS29TbjUtUmJlRU9nV19rbDBhbVJjNGM?oc=5) |
 | Appellate ruling on Trump’s $500M fine may not be last word on fraud case - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQOHZkVVFlZWxlQTlKU0tkWm14VjAzRGZwXzhXVnVlNDZoQXctUGQ1S1hGY25hVERDa05Kckd2Uk9rUG1qOXFMNnVWZXlHZlpiUDJIajZkTzBGVzlRaEhQSzRianFZTUd2OHNzbVMxX3pIN2tPZHpOc054MmR4SEZiZmpxZlB0Q1ctTUhqNklwLTgyR2UwMVRkNWFoMlIySzIyNmVBU0h6Uk9XVlN5VTZSRg?oc=5) |
 | National Guard troops in D.C. to begin carrying firearms - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPaVQ1NkdzSU1vazVIQlFtQ2pMcVppZHZfYmtFMGZVNXVkc09Ha09taTdrS3hJV3NqNWNNMVBZUkIzNXNGQXMtNzZ6UHJkWVN2N0tRMmJ1eGNHVGszSi13M2NXY1pIblhxdExTbGJxTTk4TG1KYU9fdFJpaExOd2NGRnBZZ0xDTmZnOFZDMTZaV0JzZ0VUeDFqY1BzRHZrSHpLLU1uVTExNHh1d9IBVkFVX3lxTE5UaGxBTTR5M2VKSW50ODhjYU5QTTRxZVFkdTZ2UkpfZjl3S2NOZDNCclZqdmh5NUtaZXJPSFpNUmxnYmt3Q0Y1RVNtNkVjbFNZUUZKbkd3?oc=5) |
 | Jeffries hints at more Democratic redistricting if GOP presses on - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOT1ZrS19DTzQyRjVkbWs0aWgxWjZERzBZY3RjWmF5U3NNZl9wRDJJekRHcGRoR0NjR3gxQVl1SHFuTmZIdHJhc2JtMFJPSkl1ak1wamE2eXk0VllGYzJXSUhxRzFkbS1IM2UxdUlmV05pNEhTSWRNZ1BxZXgxS0NNOV9zbXMtYWhkOXlvY04wTVhRVGRGelBJNFF4ejdvZnBEWUE?oc=5) |
