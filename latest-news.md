@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 00:57:11（北京时间）**
+🕒 更新时间：**2025年08月26日 01:01:29（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | France summons U.S. Ambassador Kushner over antisemitism letter - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNM183dEJIZEc1X0VwWDlIcmV0Z0hCY2tsUW5EUDdIeUtVMmwyZnpDdXJmZXM5OWpobDRQekhHVlM5Yk10ZTliY1J1MFRRZUFVbTNVc1E3cFFRRjgtWXUwbnpkY0dnM1luWEt1WXFqMFhmNk1fWGhOa2EydnNGamRtaE9mLURWM3k5UVhBLUhZaEd0MHdOY1dPZUV4ck4tN1RjTDlRa1NvTdIBVkFVX3lxTFBuSG4zbzVCdGRsa2lsR3VFcENVcldYLWoxTW1lQ2U2Uk1WakJNSnlkTXl4RlRybnI4Sk56a0phNm9TdURVOS1XZDJ1V0xqeWVVdjF6WlJB?oc=5) |
 | Philadelphia Transit Cuts Take Hold, and Commuters Begin to Feel the Pain - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5ZaXQ4a0dva0ZlQUZNVWh4bUptUjNMczdGZWNWMVJpeE9jRGZvejdlRF9uYVcxUjZXYTNMWmJsd3ljZUFKNlIzbDhoMlYxUV9pUFp4MmtxSlJpVngta19xZS1wY1BBZDE4TnRCTC1yejBlZmExTDU0?oc=5) |
 | National guard start carrying firearms in DC as Trump says Chicago may be next - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOeTFaMU5Qa3JNTlhCb2pINlRPREdFdFdxdVpqak5xWUplaGpIN19haktVWXRnVTlacE1Zd0dXdnpwemtqRXVDbjREWkdLVlB1dEx5eW1sUkQxSnplQ0NWYnk0RlBvLVgxVTNhb3hXa0hEbl9EV3E4SnBTQmJoU3MtMVJaOGtxOHI2Mzc4VG9MN243dFRm?oc=5) |
-| Trump chides South Korea’s Lee before Washington trade talks - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5ibFo3Rkxwb25IcnlnNWJoTEhCWUJaV1AtOUtDbjJhVmhYLTRxdjNRM3dKZmZTTjRaTlMzWEJRY3A2R1NHMkJ0ck5PTXFqMmdCUURmODY2RF9BZXNObEZwTHhrUTFEODlOMktiS2dGTzM?oc=5) |
+| South Korea's Lee at White House for talks after Trump blasts the US ally - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOSHV4WkpuUEZ2RFNYXy1RczFMYkVNVnBrTnVXSW1zNkcwQkJ0MFhmeGs1alJWSzVDOUpaQ1dQX2ZTVkE1bXdvY0NvQ0swb2NuTkc3M0FRUno4NHZILW5TczdycVpfY2JVb2xJcW1ua0lob2ZEaU50ZDFidUpwOEdIQzdiM0xJREYtUUF4Rk9kdHRuTllRSHpMOTdSbkw1dTFRYnpnZy1PRTdzdXBfa3c?oc=5) |
 | Grassley defends ‘blue slips’ amid latest Trump criticism - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQZ3pGOXBmby1GVGczSTQtTExhTkxnYjJIVDcxQ2pwZ0Vpa0EzVVhWLWJ4TzFwSHY2d0s5Si1yeVBDb3NsdmV3akZsZ2NPQU9IeTdGMmFvcEc0Vk54ZXlSWl8xTl9wRHJGeVVSQkdJenBPcWUwT1J1ZVR1YzV0TU80VTkxLU5pdnc5TDhSXw?oc=5) |
 
 ---
