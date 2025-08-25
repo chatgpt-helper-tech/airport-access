@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 22:56:29（北京时间）**
+🕒 更新时间：**2025年08月25日 23:01:15（北京时间）**
 
 ---
 
@@ -8,7 +8,6 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Abrego Garcia detained by ICE as possible second deportation looms | [阅读全文](https://www.bbc.com/news/articles/c04ryk6ed5lo?at_medium=RSS&at_campaign=rss) |
 | Hospitality hit by half of all UK job losses since Budget, industry leaders warn | [阅读全文](https://www.bbc.com/news/articles/c05ey2ypp92o?at_medium=RSS&at_campaign=rss) |
 | Virginia Giuffre memoir to be published months after death | [阅读全文](https://www.bbc.com/news/articles/c2djy7048pdo?at_medium=RSS&at_campaign=rss) |
 | Medvedev has US Open meltdown after photographer interrupts play | [阅读全文](https://www.bbc.com/sport/tennis/articles/c0qly4k97q0o?at_medium=RSS&at_campaign=rss) |
@@ -18,6 +17,7 @@
 | Get ready for fracking, Reform UK tells energy firms | [阅读全文](https://www.bbc.com/news/articles/c74172wlezwo?at_medium=RSS&at_campaign=rss) |
 | Mushroom murderer left me half alive, only survivor of toxic lunch tells court | [阅读全文](https://www.bbc.com/news/articles/cp8zr04wzz9o?at_medium=RSS&at_campaign=rss) |
 | Women aren't just 'cosy gamers' - I play horror games and 600,000 watch | [阅读全文](https://www.bbc.com/news/articles/cm21xy23npyo?at_medium=RSS&at_campaign=rss) |
+| Lives torn apart by fatal crashes on one of UK's longest roads | [阅读全文](https://www.bbc.com/news/articles/c70xn6pnx0go?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
