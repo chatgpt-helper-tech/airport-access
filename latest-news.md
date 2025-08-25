@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 13:49:34（北京时间）**
+🕒 更新时间：**2025年08月25日 13:56:25（北京时间）**
 
 ---
 
@@ -12,12 +12,12 @@
 | A cut-off finger ended her comfortable family life. Now she's hiding from US officials | [阅读全文](https://www.bbc.com/news/articles/cvg4kd385e4o?at_medium=RSS&at_campaign=rss) |
 | 'Once-in-a-lifetime chance': Gaza scholars await UK evacuation to pursue studies | [阅读全文](https://www.bbc.com/news/articles/cx2x16y2ppro?at_medium=RSS&at_campaign=rss) |
 | Lives torn apart by fatal crashes on Scotland's longest road | [阅读全文](https://www.bbc.com/news/articles/c70xn6pnx0go?at_medium=RSS&at_campaign=rss) |
-| Fleetwood wins Tour Championship for first PGA Tour title | [阅读全文](https://www.bbc.com/sport/golf/articles/cx2xdjxwv4no?at_medium=RSS&at_campaign=rss) |
 | Chinese property giant Evergrande delisted after spectacular fall | [阅读全文](https://www.bbc.com/news/articles/c14g7r44566o?at_medium=RSS&at_campaign=rss) |
+| Women aren't just 'cosy gamers' - I play horror games and 600,000 watch | [阅读全文](https://www.bbc.com/news/articles/cm21xy23npyo?at_medium=RSS&at_campaign=rss) |
 | Watch: Notting Hill Carnival kicks off with the children's parade | [阅读全文](https://www.bbc.com/news/videos/cm2krzrz2xgo?at_medium=RSS&at_campaign=rss) |
 | Get ready for fracking, Reform UK tells energy firms | [阅读全文](https://www.bbc.com/news/articles/c74172wlezwo?at_medium=RSS&at_campaign=rss) |
 | Jerry Adler, who starred in The Sopranos, dies aged 96 | [阅读全文](https://www.bbc.com/news/articles/c36jyp6w32go?at_medium=RSS&at_campaign=rss) |
-| Women aren't just 'cosy gamers' - I play horror games and 600,000 watch | [阅读全文](https://www.bbc.com/news/articles/cm21xy23npyo?at_medium=RSS&at_campaign=rss) |
+| Fleetwood wins Tour Championship for first PGA Tour title | [阅读全文](https://www.bbc.com/sport/golf/articles/cx2xdjxwv4no?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
