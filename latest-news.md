@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 22:00:18（北京时间）**
+🕒 更新时间：**2025年08月25日 22:08:11（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Flesh-eating screwworm case detected in person in U.S. for 1st time in years - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOQ1lBOFdPdWphZ041M3BqTkZVR0dUV0YyUC1ybXFuOFVBdXhiVXB2NlVFZGtsbnZrZGxfVjVRcUFQQWpHd2lWMGlQbGpDS2d3dTQ2SGVJZGVUMldHX3plYmY4S2VhaVpJbWlRa212VjlTM3hQNkxUanZJZEpFdTlPNUFFdEVlblh0Q1NCTkZ6OA?oc=5) |
 | Trump responds to Maryland governor's invite to Baltimore: "Clean up this crime mess" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNMlpiSXFsZU9mSU1FWl8yNXI3WVJyQnIzX3VQMUpvcEMtZHF5TWxMS2pJa0lwX3hIc0dNVzlpZUFyUjRtWkFvanpxRG1nNjAtcHYwN01fbEM2bnRPcjMxaWtrLUZCd2FJTXJUTkFFcEtqU21nQnFwQ3B6R0lzSmJQdDNpV0h6S3VCS2FGZDlR?oc=5) |
 | Philadelphia Transit Cuts Take Hold, and Commuters Begin to Feel the Pain - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5ZaXQ4a0dva0ZlQUZNVWh4bUptUjNMczdGZWNWMVJpeE9jRGZvejdlRF9uYVcxUjZXYTNMWmJsd3ljZUFKNlIzbDhoMlYxUV9pUFp4MmtxSlJpVngta19xZS1wY1BBZDE4TnRCTC1yejBlZmExTDU0?oc=5) |
-| Florida Cops Turn Traffic Stops Into Deportations - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNSThWSW1Rcy1wQ21Ka29ud0ppT1k5YTVvY2swdkc2TUJlZXQtbW9XMDJRcmhhZmxyWjA3aFI1dndKa3EzRXRyT2ZUbDd4X2FzaE1ZR292UFpPTkF1VlcySDR2bkZMQmRDcDlESnpudWdLaEpSVGVNd2FWNmIxTzlXeGdWb2V4ZXpramc0?oc=5) |
 | $2.4B of Harvard’s canceled research grants, visualized - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxObFhEdXlNWktDdHg1Z2dkdWRBUlN4LS1qZEZTa0NwQmdkZ3VURlZJbkwxRzhURWhHYzJGWkFmQS1rZTRHZEpzLUNMbE5nY2djV2FBcG9lTEtCMDBJQUtQUkp5SzdKbEt5anViXzVkeXRxRGpha1dLbXJIYUN3NHZPYk9B0gGHAUFVX3lxTFBPN1cwdmFPMjgtM0NPSW5jLXdDSVNFaEZRd2YwcWxTa0UzVDY0Rmg4bWtiZ3JfLWtOT0ZLSHd4Z1dFQzEtVy1aSGc5M254bEEyV3pqUVhyMzMtNjVSbUc0S3hrZFhDMXhmT0VOVzRXME41VnJiMFVTSFE2Q3ZMdVV6d0VwY1BQWQ?oc=5) |
+| US fighters intercept Russian aircraft off Alaska for third time in a week - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNemVJQXd6YXZVY3VXZzM4UzFnOEQ4c1pHaUtlOFg5WTNlMEFzWVY3WDRuQUNDdmZCZVF2STR0UjVod0w0enJIOTlEVnhYSmZzaUgzZlBtWmNxMklnUVRVOEFRRXhIY1ZBSjRqeHJPNm9tYXJwZnBDVUR2bTZxejRIRXRQdjl2VVA2eFdscTZwTUkzcDlvRTVrSmE2M2JQM1MxeFY1Xy1JX0w1Mmxva2RB0gG0AUFVX3lxTFAwWHdsQVRSTDcybXJqUG5fQVBVOXRGaGI1V2pZcHdtbjBRUWh0bFVsVllRSXFjZ0JTWGNxSnIzQThRUDROMDlDMUhIRFFBRE1DWFNRR3pRUXJ1N291Q3pLdUl0VndZWUNteHBGX2VSZVVRS0FJSWpSb1ZsQVpITG9kb3RVOUV6UG56NlpzVUNSTUxBQW9GeDhmVGoyTHFmZmo0U3dfMU9GdG1LQzBUTEx3S0FDVQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。

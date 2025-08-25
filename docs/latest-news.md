@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 22:00:18（北京时间）**
+🕒 更新时间：**2025年08月25日 22:08:11（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Israeli strikes on southern Gaza hospital kill 19 people including journalists, hospital says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxObUxZZl9adi1kb2piazFYeUZrekFIZF9zUXpfNTZEZFF1SUZSNm93VDdTclBfN3VSU2MtYzF0OENCdHE2NzFWYjB0bG5tdjZLWkR1TV9McHUtVU5jRW5hRlpwWFZBeS1mQ2FNV3FCSkw0WERrQUkwODFKMWtiRTlJemh2eTJmbHdzM2dKcjY3Ymg3MkQxYXplUnJrcmpjYkhOQnhFdG5QWk4?oc=5) |
 | National Guard Patrols Begin to Carry Weapons in D.C. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQel9OejB5ME9uUk5fdVRZd1lHWVlfTjBSVzNrVTdhMHlBSUo2NzBnQ3UzWTh6UU5HM1RFRG5XRTVYcHZuRTF4S0YxSmZrZktUSmM0TGpJclBNU1NnODhhV2JRZnFqYmpMODA0al9KVU1kS3pKbGpfTnA2dXVsT2dPNUpuRmpzWloxUlE?oc=5) |
 | Trump to sign an executive order to end cashless bail in D.C. - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNUnE0RGVZSndJc2pLT2tHQ3Z0MWhOYUViYVVqTXFsMXJpT3Z3S3BFMUpjNzZUakxteGJ3Yy1TMmxMWS1SWUZtN3RPdWNQanJjWXpXZnMybzhOSGhGUlViZXNfc25yTEhRMzZGN21URDVJeTRlbzF4YzhzdV9pSm1SZVVZQVJqVVN1X1VlclF5dXNNN19ybDlUOWh2MUFLYkRiUFRIZEhB0gFWQVVfeXFMTlRWdmtWa1RaSkZuVnFPdDN3cXdLMFQ1NHZiMlRDb2RBaF9DZmFWWEZpak5UZnlEc1NJbklvR3JoLWk2Y01XWXFYTVNSSUZ4VWJwZDlXNVE?oc=5) |
-| Flesh-eating screwworm case detected in person in U.S. for 1st time in years - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOQ1lBOFdPdWphZ041M3BqTkZVR0dUV0YyUC1ybXFuOFVBdXhiVXB2NlVFZGtsbnZrZGxfVjVRcUFQQWpHd2lWMGlQbGpDS2d3dTQ2SGVJZGVUMldHX3plYmY4S2VhaVpJbWlRa212VjlTM3hQNkxUanZJZEpFdTlPNUFFdEVlblh0Q1NCTkZ6OA?oc=5) |
-| Trump responds to Maryland governor's invite to Baltimore: "Clean up this crime mess" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNMlpiSXFsZU9mSU1FWl8yNXI3WVJyQnIzX3VQMUpvcEMtZHF5TWxMS2pJa0lwX3hIc0dNVzlpZUFyUjRtWkFvanpxRG1nNjAtcHYwN01fbEM2bnRPcjMxaWtrLUZCd2FJTXJUTkFFcEtqU21nQnFwQ3B6R0lzSmJQdDNpV0h6S3VCS2FGZDlR?oc=5) |
+| How China Influences Elections in America’s Biggest City - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNT1F4dFRnOTZZTkozd2xOS0RPLU5LM0J6ZmprYU5DZGhfbnphVC1kR0x4VFdHTXc4Nm81NnN5N28xVzVrUmU2bFMxVE9qXzVSb1FSN3ZZV3d2b1ZNYjZ0MWc4UE9majZrN2tIa1pQQ2FRR0pjMjFReXJsYm9Kb3ZsMkx2NExJaWJHM0ow?oc=5) |
+| First human screwworm case in years confirmed in Maryland - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBSZVVzallLblVYUG9NcjBkWUx0Ti1xMWFNWlo5VkZTUjZRQnRFaWxMRTh1cG5JNGQwTlBBdmxia2dCWm1rOTg2eEpzTEpwajVZbEo2SnFDbkk5UTMwZldTbVdNSFJWN1c0bjZiRWJxaWQ5MmJZNnN2MjBMaVhuUGM?oc=5) |
 | Philadelphia Transit Cuts Take Hold, and Commuters Begin to Feel the Pain - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5ZaXQ4a0dva0ZlQUZNVWh4bUptUjNMczdGZWNWMVJpeE9jRGZvejdlRF9uYVcxUjZXYTNMWmJsd3ljZUFKNlIzbDhoMlYxUV9pUFp4MmtxSlJpVngta19xZS1wY1BBZDE4TnRCTC1yejBlZmExTDU0?oc=5) |
+| U.S. fighter jets scrambled multiple times to intercept Russian spy plane off Alaska - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQN0FSNFYwSnBhaDVXR180Z24zVE9GczJMZHFERHJnbGJCRlJxVGdqdXFCV0VCX09FblE5aTlGbzRVWXpPTDNSdmw2MnJtby03b0hIR0x3M2U0ejdPUnkwaVlVVTAtaVU0YndnOEVGQktCeERzc3NqME1DTkdOdHRjZ21oYURET0FD0gGOAUFVX3lxTE9raTR3amlaekhmQ2NwLWdmTDhRaFdaUXN0dDJJSDlSc1Z6UXBkYVc1UnVtOGlQbDlka0NkSmdfNGNhazBCZUg4Ql9OT3FZOGtvcE1CS01UZTZ1R29kQ2gwV0x4M3djS0ZKdVN0R2VadTBwUGprRF9pUGJrWjRBUzU5cXZ0am4zbUpUdWN3Qmc?oc=5) |
 | Florida Cops Turn Traffic Stops Into Deportations - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNSThWSW1Rcy1wQ21Ka29ud0ppT1k5YTVvY2swdkc2TUJlZXQtbW9XMDJRcmhhZmxyWjA3aFI1dndKa3EzRXRyT2ZUbDd4X2FzaE1ZR292UFpPTkF1VlcySDR2bkZMQmRDcDlESnpudWdLaEpSVGVNd2FWNmIxTzlXeGdWb2V4ZXpramc0?oc=5) |
-| $2.4B of Harvard’s canceled research grants, visualized - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxObFhEdXlNWktDdHg1Z2dkdWRBUlN4LS1qZEZTa0NwQmdkZ3VURlZJbkwxRzhURWhHYzJGWkFmQS1rZTRHZEpzLUNMbE5nY2djV2FBcG9lTEtCMDBJQUtQUkp5SzdKbEt5anViXzVkeXRxRGpha1dLbXJIYUN3NHZPYk9B0gGHAUFVX3lxTFBPN1cwdmFPMjgtM0NPSW5jLXdDSVNFaEZRd2YwcWxTa0UzVDY0Rmg4bWtiZ3JfLWtOT0ZLSHd4Z1dFQzEtVy1aSGc5M254bEEyV3pqUVhyMzMtNjVSbUc0S3hrZFhDMXhmT0VOVzRXME41VnJiMFVTSFE2Q3ZMdVV6d0VwY1BQWQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
