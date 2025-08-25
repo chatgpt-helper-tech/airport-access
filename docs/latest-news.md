@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月25日 20:16:07（北京时间）**
+🕒 更新时间：**2025年08月25日 20:24:05（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Journalists killed in Israeli strike on Gaza's Nasser hospital - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPeVdzV2x0czN1ekJHaHRVNXIyTnQzRHRvTnczZnlUNHdoQjh3LXVoMzJSSXJhbTFqUDNGM3RTMnhJU3pPOW53UHpCOXhkanlSUnNvUGFqX1JTUXZYMWVOSVZaM09TbFFNbWpESlpOcWRlYTZ2Yk9Sa1JCRWxMSjJVM3hXWWhpXzZDdUVQSXRoYThiNFVlYVVKOXFxTkdYM3pfVDc1WklfdHpVY1dtVGNlU3NSWFlHUdIBVkFVX3lxTE1ldHltYzVlYnVpMk1xZkpOYmxyR00zMVB1NUdheVVaMzRwUUZVam9DUUxMWS03X1RJQ1BndklOZmd6RmpSVFBvOTczVVhoM0NONEU1WFVB?oc=5) |
 | National Guard Patrols Begin to Carry Weapons in D.C. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQel9OejB5ME9uUk5fdVRZd1lHWVlfTjBSVzNrVTdhMHlBSUo2NzBnQ3UzWTh6UU5HM1RFRG5XRTVYcHZuRTF4S0YxSmZrZktUSmM0TGpJclBNU1NnODhhV2JRZnFqYmpMODA0al9KVU1kS3pKbGpfTnA2dXVsT2dPNUpuRmpzWloxUlE?oc=5) |
-| Chicago leaders denounce Pentagon plans for military deployment in city - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOTDJhZG1HZHdTZVhRLWZDbjlfVmp4ZDJMY1pDbnlmSzlkRTI3V3VjclZwUndNX1RwOWNLZmExWHY5d21mOFJoMjlzY3k0Z3V4NXlYUkJVNDlPZEp3Z3pSWVJ2dTFqWk9XcGpJamYxM1dpUjYxRWY3dElGZXFCblpUcW1DanF0MlJ4aThJ?oc=5) |
+| Governor JB Pritzker to speak Monday on President Donald Trump's plans for possible Chicago National Guard deployment - ABC7 Chicago | [阅读全文](https://news.google.com/rss/articles/CBMi3gFBVV95cUxNMlVnQ3lkNmNtSG9NMllWTUZHNGlwTU9MTU5zcll6bWo1VFdON0MzY081TFZ0X3JuQmNNSVQ2MjJzbHZ3Rkx3RFVZRjJZQ1RaSmNpclR6T1J4Q1B2ajJhWEtpWndyb29nN3pNOVd4TmstMEpiS3ZFNml4Zm55UWtObFFmUjRBOVFqNmZzY3VpMUFCOU5lZ1ZwdmRybFBqemo0bndYNGZ0eXNGOWdPbDJNbV85RzB0Y0FaUFpDSG5idVY4RUlWdTRUOHdpU2JnNzN3eEpQZkVOSnIyRWladHfSAeMBQVVfeXFMT29ROXB4STdQMVpGLUx4T2R5UEprckZuajZDVm42dzlXbHBvckEyMHAxZVQ5NFRzZkVxbk1qNV9CSHg2WUxwa3ZjblFmMkpVX21uVXVtOVZRcXJOMXo4Y0RfdXgySkJUUWFVOElfczJQbTFRQm5MYXVZLUN3UFRITWxqVGRPZUNMSHMxM1JKRFBRWGUyQXIxZU5aVm00T0VnNWhyVHVMYUwwb1d4ekotaXVlZG9mRVBRdXplSWl5X2ktQmZ1OXFTd1BhbjBIdDM2VzBjbkVDMDdkYnNUejU4VGZPUVE?oc=5) |
 | Fifteen killed in alleged Israeli Air Force air strike - The Jerusalem Post | [阅读全文](https://news.google.com/rss/articles/CBMiXEFVX3lxTE9SRWtqSW9ndm53TFRrbEF5SWdzdnRDNnhRWnlIZ1d6MFpIUGpjY2xFSU9WVDlZdFk5amhTNmdkczFPamwxUU8yUm1rQVBVZXBIWHp3WGVjN1ByME92?oc=5) |
 | Kilmar Abrego Garcia expects to be detained by ICE again, attorney says - NPR | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNQThWWmFRZkxfR3lhU2lNNFNCV0pxN3VKR3gzRkRKNzVINFpCRjM1WXpuZ010Y05SVDNtWVpSN1h3T2xNX052eTcyb0g0TGN2NFUxX1pmOVhtUXJNOGw1cG45UGVnMVNoNURPUENpN1VSc2JFOFEzR19JbEVzbUVLeU5yaWc3RlhNTm5vRnBWUUEzanVXUnN1SGpEcldMMHdLSUM2V2NZM09Kb1BJckpJ?oc=5) |
 | France summons US Ambassador Kushner over 'unacceptable' letter about rising antisemitism - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPRHRSN3luMERndUVmZDNIWl9oWFF2RjNxUkI5Vzc4N3E0a09FRGZscTFVZlE0ZGJzd1dDSGFpLUpROEFmYW1reGduZDdmdTBIZWxNZ2ZBX3NmeFlFLVEyaUhwN0lBMGFQRUxLTG1XaVEtcUVlYkpDUmU4Nlc5SGJPVU9xSk12VkxWRjB3SHoxa3NpTUZieGp0dmR1bw?oc=5) |
