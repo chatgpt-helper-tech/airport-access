@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 14:40:56（北京时间）**
+🕒 更新时间：**2025年08月26日 14:48:42（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Trump signs executive order targeting American flag burning - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE9ibENMX1ExaHlESXg3eXBPYlBGaGRfajZ0QkNOUjhBS3RyR0kxVTcyUU4wWEhFWTdQMzRVdjY4blBjSjQ4b2d5X19ScjM1LXdqZXZtR2RGel90eVJhOVhjWVU4cFE0RmlTS050SkhlbFhQenExMEE?oc=5) |
 | Israeli strikes kill 22, including 5 journalists, in a Gaza hospital - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxObm9aZm1XLUxqVWNBRFVFbHk4NWNJZWpzV3h3NTYycHFWZE42Q3ZhYml5alZ5UTg3alM1aU5pY3BvdmFSdnRPY29nSmdoRkliWTVXSTh1Y096UDBfVzhrcEQzRUxlbzd4YzAySVYzVVV3SmFWYS15aF9CSzZhcHY5Z3lKVmhUQmZUSzlxTg?oc=5) |
-| Pritzker responds to Trump’s weight comments: ‘It takes one to know one’ - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOd281dVVwNUc2WFhNTVFQaUhjZFVLSkNiV1BudU9OYXczNDMybk1nbGYwbjZjMmRnRjFiS2RfTVpTYjJBLXhHZU9xMXRRN3dxMTBuU002MUR5SDgwQTczdVN2X3JGa3pORVdXS3VtTmtXTVBfYTJJOXlObFhJSUE2SHhMZDFFRXJ60gGOAUFVX3lxTE9Qc2J0NldYSDFaemwwNG5LOXdrazRBUmxxRmxaMXhRSUZ5OXI3RnI1Z0t1eEpPbTBkdW0tUXFFSGhrZllyQldsU2FlLWZ3RUFyLWd4bDlGRU84NkRWMUYzLWVubnlBQk04eV9nLVhsU3kyQldvY2plU0dwNWdqdy1TTWlRdHRiRDdNRU56eVE?oc=5) |
 | South Korea's president says staff feared a ‘Zelenskyy moment’ at White House meeting - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPcmE3V0FXZWM0ODY5ekI3S3M0ekJyTDBmMUQ5eFlPeUFTMy1BSGZPakE5cU9renBDamJzVzRZMlN2YU94a20wVG10OWlwTHpfNHlIMzNDRTR6LTVtYWZJbW5yTW1uX3Z0TjZ5RGNZTEVMSGRFczB6QTY3SjNHbFJ2Y0FtNGNyd1l0?oc=5) |
+| Pritzker responds to Trump’s weight comments: ‘It takes one to know one’ - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOd281dVVwNUc2WFhNTVFQaUhjZFVLSkNiV1BudU9OYXczNDMybk1nbGYwbjZjMmRnRjFiS2RfTVpTYjJBLXhHZU9xMXRRN3dxMTBuU002MUR5SDgwQTczdVN2X3JGa3pORVdXS3VtTmtXTVBfYTJJOXlObFhJSUE2SHhMZDFFRXJ60gGOAUFVX3lxTE9Qc2J0NldYSDFaemwwNG5LOXdrazRBUmxxRmxaMXhRSUZ5OXI3RnI1Z0t1eEpPbTBkdW0tUXFFSGhrZllyQldsU2FlLWZ3RUFyLWd4bDlGRU84NkRWMUYzLWVubnlBQk04eV9nLVhsU3kyQldvY2plU0dwNWdqdy1TTWlRdHRiRDdNRU56eVE?oc=5) |
 | Republicans try again to block California redistricting plan from November ballot - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxPSzJEb2Z0RF9oWFlUMWtXOF84Q3hnd3dYc0JiMDRWR1FPcFJTb0VyU0ZrSnRPZGxlRHlFdlhOOEZLVUx3cEZzMWoya0ZPeDFBYVkwNXBSTGpKUVRaUW5PbDhieF8yUW5xVFpjdDNNeGVBY0QzTTdFMURHQjNwcUd0M0l4Q1dwWHI3MUNPUUFjNU0tNmQxVy1kUlJQXzEwZWYyellIXzZmUDlPVzFxRzlRc2lUQkk5NEp5WVhTM2hLMGtodXRyMUc5Vm5vNA?oc=5) |
 | Burning Man gates reopen; 6-9 hour wait to enter Black Rock City - KTVN | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxNeUstNmZkTmRoWFJmbGZVWjhVejFPVUdYU2daa0tleThsWVBEVWZiam5Kay1RNzBVR095b3Z1LWhFNkNfaTdOQm5HbkRreGQtd2NkeVlrSUlqWVNRWlc0YnJ1eVRQSVRwWjM3UXhWWUlIQno4bnN0YnNBUGQyN2pncGQ4NUpoQ2JMdUtWSlc3TDNOWmI2LTUwTGxZWEIxRFpYX0JHeFQ0WGpmczBIckFZdUR4VlRyZ2VPVXZabkNvemNFTGZiMHAzaHdGTlBESXdQNG5hNnFyMzdBOEJJQ09B?oc=5) |
 | Trump Admin Arrests Kilmar Abrego Garcia Again, Ready to Deport Him to Uganda - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQYmljMlczZW1ud3I0Qm1qeWhrX2VVTXFHa3hqNDZjb04ybVl3azVMMW9ONTlIclowYmZmYVdQQWpkbWViVmJNbnhDSGp6YkZ6WEdEOHlpeElpWUw0MGtnVk1tSkxXZ0FvVTFLM1RPSloxa1BUZ2ZUTGxFOTJaTUtVLXY4TFRUYmt6YUxKSklIeUFUVUlOS3FRanRQY0JLdUJOQm1tUkVVXzN3UQ?oc=5) |
