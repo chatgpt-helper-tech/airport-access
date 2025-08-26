@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 05:32:05（北京时间）**
+🕒 更新时间：**2025年08月27日 05:40:16（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | UN demands justice over Israeli double strike on Gaza hospital | [阅读全文](https://www.bbc.com/news/articles/cd6n97gj1nqo?at_medium=RSS&at_campaign=rss) |
 | Artwork looted by Nazis 80 years ago spotted in estate agent ad | [阅读全文](https://www.bbc.com/news/articles/cq68dze2l71o?at_medium=RSS&at_campaign=rss) |
 | Cook to sue Trump over order to fire her from Federal Reserve | [阅读全文](https://www.bbc.com/news/articles/cx275n8gx0ro?at_medium=RSS&at_campaign=rss) |
+| No investigation into 'cash for questions' former minister | [阅读全文](https://www.bbc.com/news/articles/c07pr54dxzxo?at_medium=RSS&at_campaign=rss) |
 | In The Style founder has 'no regrets' about leaving company | [阅读全文](https://www.bbc.com/news/articles/c890n19gyd3o?at_medium=RSS&at_campaign=rss) |
 | Man told girls in Epping he wanted to 'have a baby', court hears | [阅读全文](https://www.bbc.com/news/articles/ckgy00rdzk7o?at_medium=RSS&at_campaign=rss) |
-| No investigation into 'cash for questions' former minister | [阅读全文](https://www.bbc.com/news/articles/c07pr54dxzxo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | What is a haboob? Here's what causes the dust storm like the one in Arizona. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOY19MNU1CX3FfNWpsNUtObzZ3ZGtpU1RCVTdUemVTa1E5MThfVkJvcmpkREN3Y1dFU2NhY25oZUl1ajdKRURqNmczd3NoQ1RzZ3duTWRaVFBnV0h3cFkwLUJyRTlka1k4YlowaHUzSzNKc2V1UVhTYWlmSFBiN2ZnTG1B0gGHAUFVX3lxTFBTQ3Ezdk96TDZlZmdobWpEaVdEQ2F4b1FrYzV4Y2JIdlpOTTVhTmU0bVBJUGlLLWtNdk5tV2l5RHdNTTVHRGl4d0NmNXFvbWhyc3dwc3pkZGtOcnQxalk0S0ljQ19jbkQzdlNoSnByZGRBd0tPaXVMX3ByQkQxTzRNMGNUMGdaMA?oc=5) |
 | Trump's DOT threatens to withhold funds from states that don't enforce English requirements for truck drivers - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQSXA3R0FwREg1QmdyM2l6U3FZUnV2bG83SnlYTVpOdGxmY3k2NjRRd0FJeXJ6dWxuMWJyTTlOY010ZzUzVjVzTExndmtSTE5QNVYzM2ppMW9rajhscG92YlhnRTZxN3NQRHFwbUNKeWFPMTh3b2U4U0U0NTZjV0tIbEVIdWxPRkZ5cUZoWVc2TE5tUVZ6VWhPR0JpWlBrdGw1SkNKemtkS2Y0ejRhaTlUbE82TVBiQ3V1VW82aGV5TFdydFpT0gFWQVVfeXFMUG5MdlFsUmFHWGdoQmtZT2VkTHAzdWcxdUFfZzZFNnIycW8wWmRvaVl3Y2lHQUNTb2xLSHM3bXlpY3RXa3N5dDdfV0RhRmVJanBTeE4tdUE?oc=5) |
 | Steep US tariffs set to hit Indian exports from Wednesday - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNREI5OEZ1STJwa0FIeEJfaldmQ2lLRm90OU0yVjc4Nll0Tk95OF9veVpaak5yLTd0S0FhWHc3bnpwaEN1dnhpcTJrQXpFdlp5a3N1U081N1dzWVhOdEJOUUJ0UTVSaWY3N1laSU9YaTZxWTV2aUhFTHI2VGpGQjJIWnJUMVVXazVNSU84Ml9qNGxWdjlMR3JaanVvY1RNQQ?oc=5) |
-| US Coast Guard makes record seizure of illegal drugs off Florida coast - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQV3hTR0FDaXlCMHAtTXlzaGFmNjF0R0lUcGp0LVZ5T2FXSFBiLUNJNldYd2RfWk9yOERsamFRY09UM1RLdzY3bmJHUXo3ZWVlUkNDRGxpVkhhczBBdHgtT1BsTGM2VUUwYllqRFRNY1Jzbmt1YnJSYVFhaFBIMndvU3ZUNzdpa2gzQ0dfeU9YcFl6bm83UWloYUg3SGlpdERYYWxHRg?oc=5) |
+| Donald Trump says he wants to rebrand his 'big, beautiful bill' - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPTkl2UHo2WF9pNkxpclR2S0h5NlI3emNyUF9tRkN6LTlVd2lzTUV4bVBtSnF6Tm93YmYwQ24tSXh0N05EMzdyc3hVUEVYX2EwLVJXd0ZWSGJOVjFldzdIcTlEeExJLUVSWUpGSmo1YmRzOUtOTDUwdktYT2NNS3lzZ0hTbTY5T3hUVnQ3OUFjMFJhOEM3WXdERF83YTZrWm91WTk0UtIBVkFVX3lxTE1JaG5yN1dKWTJiLU8wR2Q3ZmlBX1EyRlBTWGw4dG5UbS1ld04tU1NzX3RPQ2ZVZmxSZ0VRZUxxd3lfT1E1bWZVdklMVXBPYkY0YldPcC13?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
