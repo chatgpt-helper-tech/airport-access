@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 21:01:26（北京时间）**
+🕒 更新时间：**2025年08月26日 21:08:47（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | Trump orders removal of Federal Reserve governor as he piles pressure on US central bank | [阅读全文](https://www.bbc.com/news/articles/cx275n8gx0ro?at_medium=RSS&at_campaign=rss) |
 | Domestic abuse screening tool doesn't work, minister says | [阅读全文](https://www.bbc.com/news/articles/cr4e7yrxkgvo?at_medium=RSS&at_campaign=rss) |
 | Meghan on who said 'I love you' first, and what she misses about UK | [阅读全文](https://www.bbc.com/news/articles/cp94ly9x9y4o?at_medium=RSS&at_campaign=rss) |
-| Child sex abuse victim begs Elon Musk to remove links to her images | [阅读全文](https://www.bbc.com/news/articles/cq587wv4d5go?at_medium=RSS&at_campaign=rss) |
+| Man told girls in Epping he wanted to 'have a baby', court hears | [阅读全文](https://www.bbc.com/news/articles/ckgy00rdzk7o?at_medium=RSS&at_campaign=rss) |
 | Schools, care homes and sports clubs sold off to pay spiralling council debt | [阅读全文](https://www.bbc.com/news/articles/cq87497v8ypo?at_medium=RSS&at_campaign=rss) |
 | Sitting up straight isn't the only secret to good posture - here are three more tips | [阅读全文](https://www.bbc.com/news/articles/c890kejpg34o?at_medium=RSS&at_campaign=rss) |
 | Manhunt under way after two police officers shot dead in rural Australian town | [阅读全文](https://www.bbc.com/news/articles/ckge4555vpxo?at_medium=RSS&at_campaign=rss) |
-| Man told girls in Epping he wanted to 'have a baby', court hears | [阅读全文](https://www.bbc.com/news/articles/ckgy00rdzk7o?at_medium=RSS&at_campaign=rss) |
+| Child sex abuse victim begs Elon Musk to remove links to her images | [阅读全文](https://www.bbc.com/news/articles/cq587wv4d5go?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
