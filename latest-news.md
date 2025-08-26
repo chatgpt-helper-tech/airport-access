@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 09:24:49（北京时间）**
+🕒 更新时间：**2025年08月26日 09:33:06（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump Live Updates: Latest News on Executive Orders, National Guard and More - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE5aVXNfVnNaWGNFN2I0d1NyWW1Qd1hFUlFhM2NlVWVNaGhra25NTWJ1N1U0Yl9pM2dRN1hVakJXWDVVZzhHQlFpMzFfQkpXQVdJZURoYWhlbV9fVUxHc2lrSG9lTQ?oc=5) |
 | AP freelancer among 5 journalists killed in Israeli strikes on Gaza hospital, health officials say - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNTDNRUGFPdmxPclVMZW5GU2l4YUJSZXBuckF2TEU2VkFBVjQyOWg2SmR6aC1sU0RvWG10a2h1QnU3cUdDVlFta3EtcTJqSmt5R2J6dUs1R1IyRXVTOFBrN1J0bEtCUWZUOE1pZS1kVzhDRzc2OUEyeElyR0poNmV2NWdNdEFtNnJpZVBGeEVDVV9pY2lIcVYyc0UtZkU?oc=5) |
 | Trump threatens to sue California over redistricting plan favoring Democrats - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPUWloYnBPR0l6MVVHQVNibi00VWp4eFNIZUY5ZFRGWHhRMGQtSjFEUGJrVG9nYW9JYTg3aXE4enhXTDN6Q0ZlRDl3RkFQUUl2R056RkJ5LTcwT0tJSTA0c0JGN05jYTRqbmxieEF5LVdHZTJXNUREa3pncnZvTU5LMEV3clgyRG9tVFVEMW1qay1fSDB3?oc=5) |
-| Mexican drug lord 'El Mayo' enters guilty plea - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBKSWNLQmtldnVKME9tSEFRRVRKbThaMEltc0VrX0NLa2ZIbTZsUG9sTTQxWHdTMmkxSV9YcHA2a1VmSUtpRnVmMWM5cTM2TEFvR2RtbmV6SThfQdIBX0FVX3lxTE9DNUctSlRDd1lsaWtFVmpYUC15VHVNNU9qaEhuRGRrcmZ0SjkxbWFKWEhyeHNPb3hwMEdzS1M5RDNpNEJZTjhJX0tpUW4xcWNKTmlObkl6aThzWEExaF9F?oc=5) |
+| Mexican drug lord 'El Mayo' enters guilty plea - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBKSWNLQmtldnVKME9tSEFRRVRKbThaMEltc0VrX0NLa2ZIbTZsUG9sTTQxWHdTMmkxSV9YcHA2a1VmSUtpRnVmMWM5cTM2TEFvR2RtbmV6SThfQQ?oc=5) |
 | Philly lawyer George Bochetto hired to sue SEPTA to stop service cuts - Inquirer.com | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOU2JVX212NkwwOEtua19qNmN1WnlhT3FuNHFUQnNTVTdrV0hMZWs4cUh5N3ZweXB0N05hTGk5ZDk1UF9JZ0RmVGFlSkVBOWRaS09jNTEyeDZ5VTlRMi1iYlhxUzNhbEVjMFlZbkZhbkNBclktLVZGLXhoMlJBVmtpbFpIb0gyN0pfNWoxUTBCZ25oWUplNGJSejNPM3VreDRQalV3Y0dJeHI0SjJYMEE?oc=5) |
-| Trump orders crackdown on US flag burning and desecration, raising free speech concern - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPTUlqczVacGVmZTRleWVYeDR1dVBpaU11N1VJVDNUREJFd3dENjdrUzZ0TnhDbDlzQnpFaTFSM2Z6WHFvOGs3dUNzaVdfYkVtZWtZN1JBVGZTd0FjUE9qY3htMjlCX0JzV25SalZRekRSdl9vdGw2Wmh6ZEdFbDhpcW9IOFNBS3JpajlYcEhTMXBSZnYtMjhDMzhOZXp4OXBqanh4YUkzd29mN1hoaWY4RFJORjd0SGtjcmNCajd0Y2s?oc=5) |
-| This blue state is the first to grapple with megabill response - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPcF9lRjlpd3J2Wm9oU2FJNkdFb3lQaWtUeWFlNDVNS2t4WFRXOTdsbWFOYXdSNG1wV24tSnowUXJZZ0ZmZG1TQXp4dkhXUlVETDNWSmFPNW5way0wdnN2SXZOMDRSUXp1N1QwNHFyUFc0UktmaXlfUU9EaG1XMnpJYnQ0TzRlTndyeWtfN3NleFZlLXhPbTdpeTlmZUM4MU5wU2xXaEd2NUcwemlTMHQzZ3h3?oc=5) |
+| FBI, sheriff's office focus Travis Decker search on quarter-mile near Rock Island Campground - KING5.com | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxQY2pxcUR5Tlk2VnhLaWRmcVhrMExmY3A5YnAtX0l3bDI5NG5FaUVSLWJPeGQwTlR2SUQwckhuTXU3Z2U5b1k1ODF2ZUppYUV4Qllpc3kwRzh0TGhYZU5WbU16dUJYMnNqaVI0NTFBU19zby10TWlTRGc4VXI3YkRncjk5Q3NiOFFId0FjRHg4SnRQc1doMjlYRHZYbjRub25vY2dYSnlhQ005TkZhLUJCZ0pCNTNCdjN0VEtuZms1czNEdHQ5OFZJaA?oc=5) |
+| Trump Seen With Bruised Right Hand Again—Here’s Everything We Know About The Condition - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxOd1A2Nlp5TE1YbUhWUXlBbTQwQ0Q2UHpCVnhGZ0FDTUtCbGVPakt0aXRsVjd6dHdwczVkVndxMVJYdm5vSDVlZm1nYkZFSXl4R3JleU5KQklyRUNFb2hDOUFVR0pXRUNEZlIxVzhSa1pSamxIWmM2cEtleFFDUTMwN2J0dk9odU1aMWZkZTVib1B5MnM1X2N6bTVfZzVTU282LVB2bk0tM05fZmxiZ01leEhWcEVuQVJ6VTRZR0J2aEdYSk1qY3FzNHkwZ0ZCQTF4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
