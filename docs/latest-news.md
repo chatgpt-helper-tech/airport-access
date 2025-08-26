@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 20:41:47（北京时间）**
+🕒 更新时间：**2025年08月26日 20:48:06（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Schools, care homes and sports clubs sold off to pay spiralling council debt | [阅读全文](https://www.bbc.com/news/articles/cq87497v8ypo?at_medium=RSS&at_campaign=rss) |
 | Sitting up straight isn't the only secret to good posture - here are three more tips | [阅读全文](https://www.bbc.com/news/articles/c890kejpg34o?at_medium=RSS&at_campaign=rss) |
 | Manhunt under way after two police officers shot dead in rural Australian town | [阅读全文](https://www.bbc.com/news/articles/ckge4555vpxo?at_medium=RSS&at_campaign=rss) |
-| Gazan students granted approval to study in UK | [阅读全文](https://www.bbc.com/news/articles/cgqnjqgp719o?at_medium=RSS&at_campaign=rss) |
+| Man told girls in Epping he wanted to 'have a baby', court hears | [阅读全文](https://www.bbc.com/news/articles/ckgy00rdzk7o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -26,13 +26,13 @@
 | Pritzker responds to Trump’s weight comments: ‘It takes one to know one’ - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOd281dVVwNUc2WFhNTVFQaUhjZFVLSkNiV1BudU9OYXczNDMybk1nbGYwbjZjMmRnRjFiS2RfTVpTYjJBLXhHZU9xMXRRN3dxMTBuU002MUR5SDgwQTczdVN2X3JGa3pORVdXS3VtTmtXTVBfYTJJOXlObFhJSUE2SHhMZDFFRXJ60gGOAUFVX3lxTE9Qc2J0NldYSDFaemwwNG5LOXdrazRBUmxxRmxaMXhRSUZ5OXI3RnI1Z0t1eEpPbTBkdW0tUXFFSGhrZllyQldsU2FlLWZ3RUFyLWd4bDlGRU84NkRWMUYzLWVubnlBQk04eV9nLVhsU3kyQldvY2plU0dwNWdqdy1TTWlRdHRiRDdNRU56eVE?oc=5) |
 | Trump says flag burning incites violence and riot. A Supreme Court ruling cast doubt on that claim. - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPZEFrX2JubUNGSFhPUlJlZHVHV0YyeTg2aFBOR2NZcGR5a2c0blg3Yl9fWVJLOC11Wm1WTEhsN1NuWUVaZjhETWlONGRkbGp0YWRkdUVZcmE1VlNNNU9EYzZTUlo4YlZnMGZteGNNOVpCUW5USlZZYVNCUk9FcnUtNFRycDVoSGpBY2ZMSmhrQ3FGX1k4RWRsQ1YtSWY3cEhveHZKTy1BMjjSAa4BQVVfeXFMTV9lT3lnWE52OThQZE1ab3dRRkRWdTB0ak9Gc2pCNm5LMmZ6VjVvYWNyRGE1bDY0SzB5czZYWWozbFo2c2prWkpGMG54QjNyZHNENDU5WWF0ajFLdlpVeDREeThjbWdvNzgwYUNMY2RUMHhDWUJiVjhHZ3J1OElDQ3otQ0d4SnJQMWd2RWtwc2RFelAtZnh6dDUxNUd4SDZsbGVybUdlaURMNUxIcVFn?oc=5) |
 | Israeli strikes kill 22, including 5 journalists, in a Gaza hospital - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxObm9aZm1XLUxqVWNBRFVFbHk4NWNJZWpzV3h3NTYycHFWZE42Q3ZhYml5alZ5UTg3alM1aU5pY3BvdmFSdnRPY29nSmdoRkliWTVXSTh1Y096UDBfVzhrcEQzRUxlbzd4YzAySVYzVVV3SmFWYS15aF9CSzZhcHY5Z3lKVmhUQmZUSzlxTg?oc=5) |
-| The weapons that National Guard troops now carry in Washington, D.C. - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPRHdpdWtwWjE4MHdHbFpfSXNWX2hHMnpKSzRDWlh0RThoVy1oUkhZUEw1SE04aUVqMjVTMHZ5cy1kRTZlRWZ2VXdSbUVYQ0lHVFRaSU9heVF5YmJsWHgtQVJCSmdqUEVuMWRxTlpPSE1IeEhURlk3OXpOX3lybkFyQ2M4NVMtRlVnMTNWakxqYmJpVlFyQzRtSGFwZzdWNUFBRUtES0ROQzdVNkdjbmR0R9IBVkFVX3lxTE5CTFZEX2FkNTZRQUNuTE4xR1FUZTdWRUdIVzZ0TjNReE9raG5qRHhfVHpiaEFxMmtubTlTc2RvYWZXTXNoN0dJMDU2a2lFTTJqd2hFMHNB?oc=5) |
 | 'The most illegal search': Judges push back against D.C. criminal charges - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPSFdGR3gwd2RkcFlyVF9vRk1ER3YwdW15QmxsTzJGWXF4VTgxRUZqVFdlMnFFT3pGQ0Q4ZzlBWnRfWVVYamxPaUljMXR6TUdDWUNNX01QNUlFM0p5SmZRNk1ySmFHcEZYMTlZM1RNeWFoamVCSXEzcGFsTkxoSmJ0OHl3?oc=5) |
+| The weapons that National Guard troops now carry in Washington, D.C. - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPRHdpdWtwWjE4MHdHbFpfSXNWX2hHMnpKSzRDWlh0RThoVy1oUkhZUEw1SE04aUVqMjVTMHZ5cy1kRTZlRWZ2VXdSbUVYQ0lHVFRaSU9heVF5YmJsWHgtQVJCSmdqUEVuMWRxTlpPSE1IeEhURlk3OXpOX3lybkFyQ2M4NVMtRlVnMTNWakxqYmJpVlFyQzRtSGFwZzdWNUFBRUtES0ROQzdVNkdjbmR0R9IBVkFVX3lxTE5CTFZEX2FkNTZRQUNuTE4xR1FUZTdWRUdIVzZ0TjNReE9raG5qRHhfVHpiaEFxMmtubTlTc2RvYWZXTXNoN0dJMDU2a2lFTTJqd2hFMHNB?oc=5) |
 | Judge rules Utah’s congressional map must be redrawn for the 2026 elections - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNVC1TbWxNYlNQZEhycC1ldkZ6bXBHUE82ZmNJVl9pVndoWnRLM3VyS1pXdV9EQm52X0dGazc1UXRvYlpxMnlzWHYxaDV5ZTBabzNoM21GeW4xT1NWSDRLMlBLS0JZVnhPYXRSbmtEZjFGRGxQMWxzNGFZTi1jclBtY3FING50bVF1MzlyZ3hOY0RpTzNfWDhra1l1TzR5ZmY3emJBdl9zZHVjRjQwYzNWNg?oc=5) |
 | Towering dust storm known as a haboob plunges Phoenix into darkness - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQbmNHXzRvcXhNVDBCNFZqdjFWeGlnaWJoQVpZTEMwOE9FQWxkS1pyQUM1Zk5iMF8zZUdIUUZtMXd2UGlDem1VNWlWZFhyYmZaeWtaYzNLdTczNEJpSEQ5LVlYTVhwWEZUQ1pFYTB2dmJ4VTE4YnJMclJyWDRXaG9OSG1Yb2wyYUVscDdJSEFoQ241VWQySTh5b0JVbTQ?oc=5) |
 | 20 years after Hurricane Katrina, a barrier island in Alabama is disappearing - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZjA1a25TX3BmVDFwX0cwMGltNENsa3Zkd2wxUFlOVUNVcEZNbTZrSFQyQ0lDamVPal8yLXp0bTZEdkN1Z1BNcjJ1clU3ODJ1NGZmaXBndzRqOFhJd0lDbGVVd3RERVludjZISHBXaGNKQTdDMGhXZnpwbUNURzFJd1F6a9IBiAFBVV95cUxQbjROaklrYngwaDZMeWlTOXBNckpjaFV4Tzc4RE1uRi0ycnItNmFOdlNpN1Z6endhRVRiUnFJbGFteW1PQUdIWlNqa3VySHktdjZYbHg4Qy1pemViNjA2Qms2RkVpdzdRZ2lrcG8yRXNpRGxQdHdlcmZuaEplVXVZQ1VaSHdaNDFN?oc=5) |
+| Firefighters union leader launches bid for battleground Pennsylvania House seat - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQMl82OGo3WXB0YVJfMG15NUZ1eXBqdXhzQXFDamxlT1RGX1E5X2NiOUs5MmFPdm5ZTnlHRDVnaGdoTThweVRwZTJKLXZnTEIxNTRpbVJ1cUNPeEVic3F4YWVDUnB5LVdwQkN3X0VsZnNnZUh0TldKQm4tMERNWWVGbkdpSENSQ2MzWUVnUFBpWFZ4Zw?oc=5) |
 | Mysterious deaths of 21 dogs at upstate New York boarding facility under investigation - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOa3BYVDYzbDc5UE55c3g2YWx5VXAxQTFqNGtlTGVVVFZiMzg2WXJlelpHVUxwRmdITi1kRTdtMWNkZ0twc2JQb0FDZ1hJRlZpODZ2aG94cjlya2k4a0x3Z1FfX1pIQUdVQjByWkxVVzZDYW9YbThmWTlYN1dkYTBtTU16TDJiNlBNdDlsU3pvLWxuOEpKc21Z0gGcAUFVX3lxTFB4Zng5ZXI4QkxKM29LTEFrX3haV2dQSENHSkZjVXBCNGJZQVV6U2pmdXNVbkNJQUtoTHRnRDdXQVVmZThSVFRDVnBjVzlNSDJwNzRhTkR0aFVvM2o0MWpqRmQtOUdfMjBnREx0Uy05STZfa3lKMDZKQXNZZG1iNG9XamtVSE9yMnVzV3NYM3dJVktlT2cwajduTDFNRQ?oc=5) |
-| Founder of Mexico's Sinaloa cartel 'El Mayo' enters guilty plea - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBKSWNLQmtldnVKME9tSEFRRVRKbThaMEltc0VrX0NLa2ZIbTZsUG9sTTQxWHdTMmkxSV9YcHA2a1VmSUtpRnVmMWM5cTM2TEFvR2RtbmV6SThfQdIBX0FVX3lxTE9DNUctSlRDd1lsaWtFVmpYUC15VHVNNU9qaEhuRGRrcmZ0SjkxbWFKWEhyeHNPb3hwMEdzS1M5RDNpNEJZTjhJX0tpUW4xcWNKTmlObkl6aThzWEExaF9F?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
