@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 15:08:29（北京时间）**
+🕒 更新时间：**2025年08月26日 15:17:06（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | 20 years after Hurricane Katrina, a barrier island in Alabama is disappearing - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZjA1a25TX3BmVDFwX0cwMGltNENsa3Zkd2wxUFlOVUNVcEZNbTZrSFQyQ0lDamVPal8yLXp0bTZEdkN1Z1BNcjJ1clU3ODJ1NGZmaXBndzRqOFhJd0lDbGVVd3RERVludjZISHBXaGNKQTdDMGhXZnpwbUNURzFJd1F6a9IBiAFBVV95cUxQbjROaklrYngwaDZMeWlTOXBNckpjaFV4Tzc4RE1uRi0ycnItNmFOdlNpN1Z6endhRVRiUnFJbGFteW1PQUdIWlNqa3VySHktdjZYbHg4Qy1pemViNjA2Qms2RkVpdzdRZ2lrcG8yRXNpRGxQdHdlcmZuaEplVXVZQ1VaSHdaNDFN?oc=5) |
 | Trump Admin Arrests Kilmar Abrego Garcia Again, Ready to Deport Him to Uganda - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQYmljMlczZW1ud3I0Qm1qeWhrX2VVTXFHa3hqNDZjb04ybVl3azVMMW9ONTlIclowYmZmYVdQQWpkbWViVmJNbnhDSGp6YkZ6WEdEOHlpeElpWUw0MGtnVk1tSkxXZ0FvVTFLM1RPSloxa1BUZ2ZUTGxFOTJaTUtVLXY4TFRUYmt6YUxKSklIeUFUVUlOS3FRanRQY0JLdUJOQm1tUkVVXzN3UQ?oc=5) |
 | Philadelphia's mass transit cuts foreshadow possible similar moves by other agencies across US - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPVURhZlVBVlpCazdTaDVTbDhtdjNsR3IxaHZaNlF3Ulhrc0ZjSXZFVElXcjBwUkNNOFVWSkxKaGppdEd4bzl0X0wyUDl4ZEYtYTVSLWpDOVFIWmhzazYwVkFTYTFVTHgxQUJaWWFTekh0ODhrY3JsZHlFeGQwR3h1SThiRktjMk0zTElSQW9vSThCYzF6UjRhMVpGbHVDQnc?oc=5) |
-| Utah judge tosses Legislature’s gerrymandered congressional maps, orders new ones be redrawn - The Salt Lake Tribune | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBoM3pvc09KU2FSM0VTTzR0V1N3TDdLXzJFbkZ5VnltbzZmbkZZRzdZQWhuTkZVUzhfeURMMG4tRFdXNXQxTUpYbThSdUNQZVV3Q2dLQ2V5TThwV0dybjJfZjNIcTkyV0tRemswS3ltOG9kck85SU45ODY4TzV0em8?oc=5) |
+| Colleges across the country deal with shooting hoaxes as classes resume - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1LSWxiNHVzRlN3ejBmZklmbGRmRnZFOS1INm44R3d5N1NDU3lMSDJ3LU9zN1hodTJ6YXY1VXE0N21QY0xlQzFocmFGRnRWb09GdmU5a3FFc0F4MTc5OTZmekZ3MEpZNG1ndS0zMF9zZ1FjSWMwUXdqcl9aQzDSAVZBVV95cUxPSUhzcElmTHRnSm56eHZ6NG1RQVNmQTBMajJJeXlEWUx6TVFjY3hWNWUzRi01c2phck9JYXE4WWQzSVliN0o5eW84bU96NUpEX0VPLUg3dw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
