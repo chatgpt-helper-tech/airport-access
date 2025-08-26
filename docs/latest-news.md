@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 19:56:20（北京时间）**
+🕒 更新时间：**2025年08月26日 20:00:57（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Pritzker responds to Trump’s weight comments: ‘It takes one to know one’ - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOd281dVVwNUc2WFhNTVFQaUhjZFVLSkNiV1BudU9OYXczNDMybk1nbGYwbjZjMmRnRjFiS2RfTVpTYjJBLXhHZU9xMXRRN3dxMTBuU002MUR5SDgwQTczdVN2X3JGa3pORVdXS3VtTmtXTVBfYTJJOXlObFhJSUE2SHhMZDFFRXJ60gGOAUFVX3lxTE9Qc2J0NldYSDFaemwwNG5LOXdrazRBUmxxRmxaMXhRSUZ5OXI3RnI1Z0t1eEpPbTBkdW0tUXFFSGhrZllyQldsU2FlLWZ3RUFyLWd4bDlGRU84NkRWMUYzLWVubnlBQk04eV9nLVhsU3kyQldvY2plU0dwNWdqdy1TTWlRdHRiRDdNRU56eVE?oc=5) |
+| Trump says flag burning incites violence and riot. A Supreme Court ruling cast doubt on that claim. - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPZEFrX2JubUNGSFhPUlJlZHVHV0YyeTg2aFBOR2NZcGR5a2c0blg3Yl9fWVJLOC11Wm1WTEhsN1NuWUVaZjhETWlONGRkbGp0YWRkdUVZcmE1VlNNNU9EYzZTUlo4YlZnMGZteGNNOVpCUW5USlZZYVNCUk9FcnUtNFRycDVoSGpBY2ZMSmhrQ3FGX1k4RWRsQ1YtSWY3cEhveHZKTy1BMjjSAa4BQVVfeXFMTV9lT3lnWE52OThQZE1ab3dRRkRWdTB0ak9Gc2pCNm5LMmZ6VjVvYWNyRGE1bDY0SzB5czZYWWozbFo2c2prWkpGMG54QjNyZHNENDU5WWF0ajFLdlpVeDREeThjbWdvNzgwYUNMY2RUMHhDWUJiVjhHZ3J1OElDQ3otQ0d4SnJQMWd2RWtwc2RFelAtZnh6dDUxNUd4SDZsbGVybUdlaURMNUxIcVFn?oc=5) |
 | Stocks Drop as Fed, French Turmoil Hit Sentiment: Markets Wrap - Bloomberg | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNYno2cFZONEtCamREZU1NMXhxcms2NFBSa2t5MDZRQTFtTWt1S0x4dXd5RGNzT0tpclRpY0pYVnJFTXBKUlo3cERWMHAtcGVvUVJBS25GSWZ3NVFaVklqbTQwaVVsbnZkVjBrVThhOGNhT0JoSktzbFlid2NISm1MWmFONG1nZkMtRTRwc1NEN1B3RlNr?oc=5) |
-| The weapons that National Guard troops now carry in Washington, D.C. - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPRHdpdWtwWjE4MHdHbFpfSXNWX2hHMnpKSzRDWlh0RThoVy1oUkhZUEw1SE04aUVqMjVTMHZ5cy1kRTZlRWZ2VXdSbUVYQ0lHVFRaSU9heVF5YmJsWHgtQVJCSmdqUEVuMWRxTlpPSE1IeEhURlk3OXpOX3lybkFyQ2M4NVMtRlVnMTNWakxqYmJpVlFyQzRtSGFwZzdWNUFBRUtES0ROQzdVNkdjbmR0R9IBVkFVX3lxTE5CTFZEX2FkNTZRQUNuTE4xR1FUZTdWRUdIVzZ0TjNReE9raG5qRHhfVHpiaEFxMmtubTlTc2RvYWZXTXNoN0dJMDU2a2lFTTJqd2hFMHNB?oc=5) |
 | 'The most illegal search': Judges push back against D.C. criminal charges - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPSFdGR3gwd2RkcFlyVF9vRk1ER3YwdW15QmxsTzJGWXF4VTgxRUZqVFdlMnFFT3pGQ0Q4ZzlBWnRfWVVYamxPaUljMXR6TUdDWUNNX01QNUlFM0p5SmZRNk1ySmFHcEZYMTlZM1RNeWFoamVCSXEzcGFsTkxoSmJ0OHl3?oc=5) |
 | South Korea's president says staff feared a ‘Zelenskyy moment’ at White House meeting - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPcmE3V0FXZWM0ODY5ekI3S3M0ekJyTDBmMUQ5eFlPeUFTMy1BSGZPakE5cU9renBDamJzVzRZMlN2YU94a20wVG10OWlwTHpfNHlIMzNDRTR6LTVtYWZJbW5yTW1uX3Z0TjZ5RGNZTEVMSGRFczB6QTY3SjNHbFJ2Y0FtNGNyd1l0?oc=5) |
 | Trump 'very angry' with Putin as Russia's strikes on Ukraine continue despite peace push - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNczJuWUlQaVhxUGpKS05nTkJLS0dDMWN0NzcyZnpKX2NfSGdtZTFpajdia21NakxSdlNhWk91TTlxMVRkSEZrNkNzUzNRbTZqb1QyVjhEV3ZDbEJOZTEtaGRBSGw4V3dIdTZTb3BhVE42Uk9tMm83d1dOVkd6TlVJZUJBLU0tcmVZUC1iMjBtN1Zfclh5LXJ0eUpzWHdhZDkwdFE1Nk5KOVd5aHJfYkNnYUpB0gG3AUFVX3lxTFB2aFoxTGtRSTRzLUJuNnczSDZ5QmlLTkVRUV91UkEzTnVyZlNoVmJpRzlidXA4czE0MllROC1mWFltTnUyY00tWTdXTFAySmF5QXluemU0RGF3bVdubGJfazZscXFVWEVoOEhMbHFOcDdmelRBcFp5eEw2ZnpYRXAyWEc5UW9sQUdSdTd6bExWR0dfalBpN0hOU2MxTDdtbGc2UU1YeURhcTZWazU0M2c2MEM0SFNZQQ?oc=5) |
