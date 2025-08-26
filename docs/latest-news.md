@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 12:32:16（北京时间）**
+🕒 更新时间：**2025年08月26日 12:41:21（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump meets with South Korean leader after public blast - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPY3BmSHFta3hWVUc1QTFBVjRVY2U0YlNkdkRLeEpjdGxGa01nTjItTzJQUS0taEpWSVdrOUZGSGIxODZ3OWRTTUY0bHZXYWw0VXFEaXNEM1FJakt2TW1ldk5BT2paVXltZnRVNXg3SnVjVXBYNmpiQmtheHhhWHBLUEI1T1NCazVSaEh5MUdn?oc=5) |
 | Trump signs executive order targeting American flag burning - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE9ibENMX1ExaHlESXg3eXBPYlBGaGRfajZ0QkNOUjhBS3RyR0kxVTcyUU4wWEhFWTdQMzRVdjY4blBjSjQ4b2d5X19ScjM1LXdqZXZtR2RGel90eVJhOVhjWVU4cFE0RmlTS050SkhlbFhQenExMEE?oc=5) |
 | Gov. Pritzker Challenges Trump’s Threat to Send National Guard to Chicago - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxONVVQczZSdk5yTWt1Ukk0RFdCdTFrY21OczlZV0lodkNSNmhZbW5kdng4MXBDQThQSV9xRE5ZTUV0R1llMzNQX0RCbmd1QVV4bVYtbjY5bGJSVTBZcllTc2RGLWR0TERvTDRTaHJ0NDdIQXQ5R192S0lScUhaY2JCWGI0QnBwaEVmaHpDNFYtYmxWcmM?oc=5) |
+| Trump meets with South Korean leader after public blast - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPY3BmSHFta3hWVUc1QTFBVjRVY2U0YlNkdkRLeEpjdGxGa01nTjItTzJQUS0taEpWSVdrOUZGSGIxODZ3OWRTTUY0bHZXYWw0VXFEaXNEM1FJakt2TW1ldk5BT2paVXltZnRVNXg3SnVjVXBYNmpiQmtheHhhWHBLUEI1T1NCazVSaEh5MUdn?oc=5) |
 | Israeli strikes kill 22, including 5 journalists, in a Gaza hospital - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxObm9aZm1XLUxqVWNBRFVFbHk4NWNJZWpzV3h3NTYycHFWZE42Q3ZhYml5alZ5UTg3alM1aU5pY3BvdmFSdnRPY29nSmdoRkliWTVXSTh1Y096UDBfVzhrcEQzRUxlbzd4YzAySVYzVVV3SmFWYS15aF9CSzZhcHY5Z3lKVmhUQmZUSzlxTg?oc=5) |
 | Republicans try again to block California redistricting plan from November ballot - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxPSzJEb2Z0RF9oWFlUMWtXOF84Q3hnd3dYc0JiMDRWR1FPcFJTb0VyU0ZrSnRPZGxlRHlFdlhOOEZLVUx3cEZzMWoya0ZPeDFBYVkwNXBSTGpKUVRaUW5PbDhieF8yUW5xVFpjdDNNeGVBY0QzTTdFMURHQjNwcUd0M0l4Q1dwWHI3MUNPUUFjNU0tNmQxVy1kUlJQXzEwZWYyellIXzZmUDlPVzFxRzlRc2lUQkk5NEp5WVhTM2hLMGtodXRyMUc5Vm5vNA?oc=5) |
 | Trump floats changing Defense Department to Department of War: "We want to be offensive, too, if we have to be" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQRjlwNFVfUk13dmJWZ25lVm9QV2w0V3RRS0x4ZG11OEVzcm02XzdDTG9VdWhEYzZNMDZDMU14X0hQZDRHMWhSblFIbW5QSzRPMmIzaFBwckE3ODNSWHRudFYyemRXQkNsUG1yRHJocUZwTTd4T3o5NjR1WHFEb0tWUdIBhgFBVV95cUxNQ25UYUdlalJydF9ONThGbnBDNWtiX3ZDVHRxMXNGUXg0RGlsZ1F6emJsY290WjIwXzhHZVNVMkE2NHRfdXdUODNjVm5uejBRVUY0R2RRYkVoN0w5M2xTdzdXcXloVzVUTEFzMnhvVXhpTWFrOUtLdkhIS0tDZC13MGV1ejVjUQ?oc=5) |
-| Trump says he's firing Fed Governor Lisa Cook, opening new front in fight for central bank control - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQbjJIWVI1WDA1YXFUby1fVlAwYm1zZkRydlRUMVVkSmE4RGJEWnd3VE1JSFZCcWNfcl9SeVBaUE55VUxsUFRrSmczclFtTUIzTXBQTTBYM3dLUTFxX3ZtTHJqU1RqYUczTGl6X2dCZjBnbEgyVVZadHpjYjN5aTZsRXZWYWV1Umo3a2VITmNYTmh3Tm5vOGc?oc=5) |
 | 20 years after Hurricane Katrina, a barrier island in Alabama is disappearing - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZjA1a25TX3BmVDFwX0cwMGltNENsa3Zkd2wxUFlOVUNVcEZNbTZrSFQyQ0lDamVPal8yLXp0bTZEdkN1Z1BNcjJ1clU3ODJ1NGZmaXBndzRqOFhJd0lDbGVVd3RERVludjZISHBXaGNKQTdDMGhXZnpwbUNURzFJd1F6a9IBiAFBVV95cUxQbjROaklrYngwaDZMeWlTOXBNckpjaFV4Tzc4RE1uRi0ycnItNmFOdlNpN1Z6endhRVRiUnFJbGFteW1PQUdIWlNqa3VySHktdjZYbHg4Qy1pemViNjA2Qms2RkVpdzdRZ2lrcG8yRXNpRGxQdHdlcmZuaEplVXVZQ1VaSHdaNDFN?oc=5) |
-| Philly lawyer George Bochetto hired to sue SEPTA to stop service cuts - Inquirer.com | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOU2JVX212NkwwOEtua19qNmN1WnlhT3FuNHFUQnNTVTdrV0hMZWs4cUh5N3ZweXB0N05hTGk5ZDk1UF9JZ0RmVGFlSkVBOWRaS09jNTEyeDZ5VTlRMi1iYlhxUzNhbEVjMFlZbkZhbkNBclktLVZGLXhoMlJBVmtpbFpIb0gyN0pfNWoxUTBCZ25oWUplNGJSejNPM3VreDRQalV3Y0dJeHI0SjJYMEE?oc=5) |
 | Trump Admin Arrests Kilmar Abrego Garcia Again, Ready to Deport Him to Uganda - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQYmljMlczZW1ud3I0Qm1qeWhrX2VVTXFHa3hqNDZjb04ybVl3azVMMW9ONTlIclowYmZmYVdQQWpkbWViVmJNbnhDSGp6YkZ6WEdEOHlpeElpWUw0MGtnVk1tSkxXZ0FvVTFLM1RPSloxa1BUZ2ZUTGxFOTJaTUtVLXY4TFRUYmt6YUxKSklIeUFUVUlOS3FRanRQY0JLdUJOQm1tUkVVXzN3UQ?oc=5) |
+| Utah judge orders state to draw new congressional maps before 2026 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNd1F5U2NhTndKajVLN0JKbVo5YkxzN282ZjBQZUFzS3lGXzZVVThWNmdleTFySVF4ZWdjRDV0Rmc2bUFVaGRrQnZOWEVIVnVTaDBjX3c4amlyQzZBVXRFczRROENBYlVXclZxUmZrZGREak5qbFlXT2N3Yld5bjNvLWJQdW4?oc=5) |
+| Mexican drug lord 'El Mayo' enters guilty plea - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBKSWNLQmtldnVKME9tSEFRRVRKbThaMEltc0VrX0NLa2ZIbTZsUG9sTTQxWHdTMmkxSV9YcHA2a1VmSUtpRnVmMWM5cTM2TEFvR2RtbmV6SThfQdIBX0FVX3lxTE9DNUctSlRDd1lsaWtFVmpYUC15VHVNNU9qaEhuRGRrcmZ0SjkxbWFKWEhyeHNPb3hwMEdzS1M5RDNpNEJZTjhJX0tpUW4xcWNKTmlObkl6aThzWEExaF9F?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
