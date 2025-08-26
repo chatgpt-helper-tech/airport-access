@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 02:17:38（北京时间）**
+🕒 更新时间：**2025年08月27日 02:25:09（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | Reform prepared to deport 600,000 under migration plans | [阅读全文](https://www.bbc.com/news/articles/c5yk4r5e514o?at_medium=RSS&at_campaign=rss) |
 | How Reform has changed the debate on migration | [阅读全文](https://www.bbc.com/news/articles/c707g9rj9wqo?at_medium=RSS&at_campaign=rss) |
-| Family 'heartbroken' over death of couple in helicopter crash | [阅读全文](https://www.bbc.com/news/articles/cdd3jzl31j8o?at_medium=RSS&at_campaign=rss) |
+| Tributes paid to three helicopter crash victims | [阅读全文](https://www.bbc.com/news/articles/cdd3jzl31j8o?at_medium=RSS&at_campaign=rss) |
 | Man told girls in Epping he wanted to 'have a baby', court hears | [阅读全文](https://www.bbc.com/news/articles/ckgy00rdzk7o?at_medium=RSS&at_campaign=rss) |
 | Ukraine admits Russia has entered key region of Dnipropetrovsk | [阅读全文](https://www.bbc.com/news/articles/c17n1p24yv9o?at_medium=RSS&at_campaign=rss) |
 | Summer 2025 'almost certainly' UK's hottest on record | [阅读全文](https://www.bbc.com/weather/articles/c1kz18d3wjro?at_medium=RSS&at_campaign=rss) |
@@ -30,9 +30,9 @@
 | Israeli strikes kill 22, including 5 journalists, in a Gaza hospital - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxObm9aZm1XLUxqVWNBRFVFbHk4NWNJZWpzV3h3NTYycHFWZE42Q3ZhYml5alZ5UTg3alM1aU5pY3BvdmFSdnRPY29nSmdoRkliWTVXSTh1Y096UDBfVzhrcEQzRUxlbzd4YzAySVYzVVV3SmFWYS15aF9CSzZhcHY5Z3lKVmhUQmZUSzlxTg?oc=5) |
 | EU resists Trump: Tech regulation is our ‘sovereign’ right - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNSnk1SFdJd21vWnFpQTZuQTBvTU8xRjl0WXFaYTZzRmhyMkwyQ2RVc2pYaVViNGxOVmFIcExJWEp0N0JGSGR0SHF5bWVNU202M1I5c2lxZ0ZiUU5TWExaREJqU1hCbGdGWWl5elgzN2pyQmRNYzBFSVMwdjZ4bm0zUjRfeGpocDFYUFJUSC0tbXFjZw?oc=5) |
 | Towering dust storm known as a haboob plunges Phoenix into darkness - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQbmNHXzRvcXhNVDBCNFZqdjFWeGlnaWJoQVpZTEMwOE9FQWxkS1pyQUM1Zk5iMF8zZUdIUUZtMXd2UGlDem1VNWlWZFhyYmZaeWtaYzNLdTczNEJpSEQ5LVlYTVhwWEZUQ1pFYTB2dmJ4VTE4YnJMclJyWDRXaG9OSG1Yb2wyYUVscDdJSEFoQ241VWQySTh5b0JVbTQ?oc=5) |
-| A Maryland resident is diagnosed with screwworm. Here's what to know about the flesh-eating parasite. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOMk9jNDZxdkJITV9UVFRGYTdJaThUdmJPaF9WekVNRldIVlYtdkRlRmp4N0lKMWNwbmx0UTRBUGdmbXJSdVRBRXh4QVBaNXhpOC15V05sQ0JORUVTbExMemx2Vks5WDJmeklVUmJQT21fSF9nUDYtOVptOWV4Smw0YUNDRnJId9IBiwFBVV95cUxNMXVRTE5xaDBNTVNEZDVtZHVhUGlxcTZuZ2Y0Qnd1SGQ4OS1nQm9sV05pMUJrcWJISUNMZ3NudlBmZXpxcmtzeTRsU0tobmpNT090eUFEQnZwZER4UXVXNjQxazJLMXJhdURTNlJCWmtwZUx5UUxLMngwbS1zelBPTS1ndTEzaU5TeS1r?oc=5) |
+| Judge Rules Utah Must Redraw Its Congressional Map, Frustrating Republicans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPanV0d2lKOGkwT2VsUUhwSFBtRUVCdGxnX296a2REQUJZdjU5cFpCSVhsZm9qQU1RSDJPYXllb291Y0hBZXVuYVJJam1ubG1LTjg4aXVKY1Y0NERaZHdyYTdXUm9jNG1fS2pNengwQTJGVUkwX0xTT1p5WURHc3F6Z2xuQXkwMm0xeVE?oc=5) |
 | Scoop: Dan Scavino takes over hiring in Trump's White House - Axios | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE0yTmJ2Mm54UkNLcUxTaHZfMlBQUG5zajdYcVdVS1F4Vk5kVmswSE8zdGk0NGlBRE4wOGhVZEM4UHJPSnVZcnVlUTNJN1FLd0NaWXdYQnRmNDA4MG5uUmFUanJkT3V4QjYxaXVxY1F2bm1hQVk?oc=5) |
-| The Coast Guard seized a record 76,000 pounds of drugs this summer off Central and South America - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNVi1KZ01Pd1lZaEsycGJXcmlOUEQwUjgxU2VQV1BxLS1sVGZRT1YzVWdzWUl5ZTI2cy1mWGtUcWh6UVZfYXVUTmh4Vk5SSjZuaG9kaW5EelhSN0lNNGRINHZuLWVWdzJjcEg3a0ktclJjXzhxaTg2aThpbEJFTVZQZ3BpOGttSzV5a0ZDQ19CQmx1Q2c5NV9tZDBmV0Rsd9IBowFBVV95cUxQdEdYb0hIajY2WGRqTkhPc0JPTk9DVDRWYXFTSXJxQ3VhMHR5ZHJfLUo4RmFWQzVUVkRjQjU0VWlqdUhEd2J0TU8wdkVwaVhvQnU5NkMyejJjUXRvQWJTVHptZFhvNlZ1bjdlZlFVUVFmQUlSSkk5czNHRU9kTjZwU0kxRDFKU3p3NXpPektOenplZmhINk5NQkItQnJwYnk3T2NR?oc=5) |
+| A Maryland resident is diagnosed with screwworm. Here's what to know about the flesh-eating parasite. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOMk9jNDZxdkJITV9UVFRGYTdJaThUdmJPaF9WekVNRldIVlYtdkRlRmp4N0lKMWNwbmx0UTRBUGdmbXJSdVRBRXh4QVBaNXhpOC15V05sQ0JORUVTbExMemx2Vks5WDJmeklVUmJQT21fSF9nUDYtOVptOWV4Smw0YUNDRnJId9IBiwFBVV95cUxNMXVRTE5xaDBNTVNEZDVtZHVhUGlxcTZuZ2Y0Qnd1SGQ4OS1nQm9sV05pMUJrcWJISUNMZ3NudlBmZXpxcmtzeTRsU0tobmpNT090eUFEQnZwZER4UXVXNjQxazJLMXJhdURTNlJCWmtwZUx5UUxLMngwbS1zelBPTS1ndTEzaU5TeS1r?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
