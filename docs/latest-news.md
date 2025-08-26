@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 02:40:50（北京时间）**
+🕒 更新时间：**2025年08月27日 02:49:07（北京时间）**
 
 ---
 
@@ -23,15 +23,15 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Taylor Swift and Travis Kelce engaged - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5lSGc2YmJwYmU0TUpYQ3lhV0U0bWxfQjBiS1dxVE82NUppbmZodmpzeV9LaE9vdVkyNDU5VXMzVzcweXkwT3BFRnJNazdRSWRRdnBYOTE4UzQ4UdIBX0FVX3lxTE1ReGtCOHJOU3djNkljTXdiR3lybEdZNGVWME9hbTAwQjRuQ18tbFlPTWJHU3J1NWJENm52MVVDeGlRLVZxQ2JFTVkzeWN4M3J3Q291WmhOUHE1WkxNNjFJ?oc=5) |
+| End Game: Travis Kelce and Taylor Swift reveal engagement - ESPN | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxNazBVaE1RaXFaRzJQaFQ4eDliVFZ3RUNvRl9yZ0c3bTNOM1p5WlI1RUVjeEVVY0NuQVN6Wk1fdDhDekI5V3p6YnRLMlZKSFAtSWxJY2pRNEhUNy1mdUJWMjZfbGktMUtvNHdlZlE1NjlNVE1hU1ZZU3VYQ0NXYm16cWFjVi1tVm5jVldUZTZIOEpzZy1WbU5LTjVhR2JJVXpIaHgtLXhfTGZCOGd4MTB2YVdBZHBILWd5NFMyUW9ub2wxS2lhb2R1aC1R?oc=5) |
 | Trump-appointed judge rebukes White House for ‘smear’ of judiciary - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPQ3VmdVlITFE0czBHcEQwY1Q4ZHE0UHdvUUt4NTc2MExtTnY0eHRTTzBfYm1ndVVLMDBKVzdIYzA4Y0tQeHlvLXRVdGhTOWdyV056S1RVOE0wTnN4Q215cWQwdWg0cjVoV1J6eWV2S1ZuZ2FvM3dWVlp5MzhEeWp4UWFaVm83MFB4dFVSMmRadG8?oc=5) |
 | DNC chair says he's tired of Democrats bringing 'pencil to a knife fight' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOWVMta2JZMWlXam8yUVBfMmUzOHVYXzFLQlFOSExtSTdMeFNoeHlINzFITWctQU9oTUc1R1ozRnlLQUZxZkJIdHVOTVpUdGZ1Vk5ocURVR1VFc2NNZjhDZTBoUnc4YUFLWGwtWmNzbkxVcWhUTVBzZjVoSVRvb2dhdE45Z21mTm1nbVE?oc=5) |
 | Trump seeks death penalty for D.C. murders - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOWlJldmxQQ08zU2hBaEVFcUl0eTZXbV9renEzMDhGWXdhRzBQaEhxa1dpa05selgyejdUUGxnUEVfSWpqaGMxeHFRMF9HZUlHT3NGRnVNbTRBV1pqV3hELXRQdS1CM01HbXQyR09CS05SVndVY1dWdHo0YVpYNlo0aTZtNUpTM3A4NVBTMG9pWDI?oc=5) |
 | Illinois governor hits back after Trump mocks his weight: ‘It takes one to know one’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQNF9sYzIzZWh6UjR2SEk0alpMS2paVE9ZSGlMZlYtUnp3UlM5aHF6V295Z3diazhSNkgzNFVMZUxsV1RFYUxRX1JxNTdqd0Jxc1dOREtkMDloVzVWTzQyY21RbjNQNWRZUERTNGhUeHJfUUZPalU0UnFTQTdiY19mSk9OWnk0ejNEbVJwaVFR?oc=5) |
 | Man burns U.S. flag near White House to protest Trump order - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxONV9lc3d0Q0JOQXlmV3FfTlJ3MVBrNGlCb1FUUFZtVGV3R3pacFoySzVVSjMxVmVGSXA2Y3NBXzNYV2pQZkhkU0FiTnNrWm02QzFnY1NIWm9GbFhWMm9qOEhUTW5HSzdXT3Uydm5QaEVEenFYTDVTNkpuamE0MWFvdmJEMkpNbzBy?oc=5) |
 | Towering dust storm known as a haboob plunges Phoenix into darkness - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQbmNHXzRvcXhNVDBCNFZqdjFWeGlnaWJoQVpZTEMwOE9FQWxkS1pyQUM1Zk5iMF8zZUdIUUZtMXd2UGlDem1VNWlWZFhyYmZaeWtaYzNLdTczNEJpSEQ5LVlYTVhwWEZUQ1pFYTB2dmJ4VTE4YnJMclJyWDRXaG9OSG1Yb2wyYUVscDdJSEFoQ241VWQySTh5b0JVbTQ?oc=5) |
-| Judge Rules Utah Must Redraw Its Congressional Map, Frustrating Republicans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPanV0d2lKOGkwT2VsUUhwSFBtRUVCdGxnX296a2REQUJZdjU5cFpCSVhsZm9qQU1RSDJPYXllb291Y0hBZXVuYVJJam1ubG1LTjg4aXVKY1Y0NERaZHdyYTdXUm9jNG1fS2pNengwQTJGVUkwX0xTT1p5WURHc3F6Z2xuQXkwMm0xeVE?oc=5) |
-| Trump to put Dan Scavino in charge of hiring at White House - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOdm00SjNSVUdNWXEzQTdvQVg5WmFSSV9KWWZwOWZ2eVN0bzY0TTcxeTNtclZfRE5OZ1ZkVGJ4NEoyVnVfNWhIUUliTWpUWFNzdU5FdW9mX0d5RzBmSzAyZ3FVSTVRYnYtQm5hYmVieC1EaEVhc3dwOEc0a3M3T1hSU3RLYjdvOG52bUxZWXBQWjdCY0ZPeEY4Nmx2b1dHektUeEozTlc5VQ?oc=5) |
+| The foreigners working for DOGE - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPZWJBbnR1S1NySnU5Rzg5M2hUV0FBQWEzTkM1Tk13NkNPSlJSWlNKQmk0b1ZFcnBWWkNGR0dZMHN1V0xlcER0c2hHX01idmVtRnZpU205eW5kcnQ0cklYeGNQUmRSRkw5WDRPU21QQjlyRkVnSDhNQ1hsekR2czRKUmlvOGRGMEI4?oc=5) |
+| Scoop: Dan Scavino takes over hiring in Trump's White House - Axios | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE0yTmJ2Mm54UkNLcUxTaHZfMlBQUG5zajdYcVdVS1F4Vk5kVmswSE8zdGk0NGlBRE4wOGhVZEM4UHJPSnVZcnVlUTNJN1FLd0NaWXdYQnRmNDA4MG5uUmFUanJkT3V4QjYxaXVxY1F2bm1hQVk?oc=5) |
 | A Maryland resident is diagnosed with screwworm. Here's what to know about the flesh-eating parasite. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOMk9jNDZxdkJITV9UVFRGYTdJaThUdmJPaF9WekVNRldIVlYtdkRlRmp4N0lKMWNwbmx0UTRBUGdmbXJSdVRBRXh4QVBaNXhpOC15V05sQ0JORUVTbExMemx2Vks5WDJmeklVUmJQT21fSF9nUDYtOVptOWV4Smw0YUNDRnJId9IBiwFBVV95cUxNMXVRTE5xaDBNTVNEZDVtZHVhUGlxcTZuZ2Y0Qnd1SGQ4OS1nQm9sV05pMUJrcWJISUNMZ3NudlBmZXpxcmtzeTRsU0tobmpNT090eUFEQnZwZER4UXVXNjQxazJLMXJhdURTNlJCWmtwZUx5UUxLMngwbS1zelBPTS1ndTEzaU5TeS1r?oc=5) |
 
 ---
