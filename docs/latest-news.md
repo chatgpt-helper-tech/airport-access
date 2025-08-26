@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 11:57:18（北京时间）**
+🕒 更新时间：**2025年08月26日 12:00:07（北京时间）**
 
 ---
 
@@ -27,8 +27,8 @@
 | Gov. Pritzker Challenges Trump’s Threat to Send National Guard to Chicago - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxONVVQczZSdk5yTWt1Ukk0RFdCdTFrY21OczlZV0lodkNSNmhZbW5kdng4MXBDQThQSV9xRE5ZTUV0R1llMzNQX0RCbmd1QVV4bVYtbjY5bGJSVTBZcllTc2RGLWR0TERvTDRTaHJ0NDdIQXQ5R192S0lScUhaY2JCWGI0QnBwaEVmaHpDNFYtYmxWcmM?oc=5) |
 | Trump signs executive order targeting American flag burning - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE9ibENMX1ExaHlESXg3eXBPYlBGaGRfajZ0QkNOUjhBS3RyR0kxVTcyUU4wWEhFWTdQMzRVdjY4blBjSjQ4b2d5X19ScjM1LXdqZXZtR2RGel90eVJhOVhjWVU4cFE0RmlTS050SkhlbFhQenExMEE?oc=5) |
 | Israeli strikes kill 22, including 5 journalists, in a Gaza hospital - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxObm9aZm1XLUxqVWNBRFVFbHk4NWNJZWpzV3h3NTYycHFWZE42Q3ZhYml5alZ5UTg3alM1aU5pY3BvdmFSdnRPY29nSmdoRkliWTVXSTh1Y096UDBfVzhrcEQzRUxlbzd4YzAySVYzVVV3SmFWYS15aF9CSzZhcHY5Z3lKVmhUQmZUSzlxTg?oc=5) |
-| Kilmar Abrego Garcia fights imminent deportation to Uganda - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQN0U3QmExeTRUTklEcXR5QmI1eWpnNXRxaVhHWG5Oem5tdFcxREU4TGJnUGJMeXZHZXlMUDREbmFodFdRUUdpeDh5VTc1dFpENVcyemJrREJ0MjZxeUhESWdMRTFxdVpMZW5mcDlwZ3hHS3o1WmNKeUFzSFh6NTlaWDNvZzN6SnU1MVNZenZHRFpvQ2NlX2p0SEFSaG9kbm43UFJURzdjdmRQUWto?oc=5) |
 | Republicans try again to block California redistricting plan from November ballot - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxPSzJEb2Z0RF9oWFlUMWtXOF84Q3hnd3dYc0JiMDRWR1FPcFJTb0VyU0ZrSnRPZGxlRHlFdlhOOEZLVUx3cEZzMWoya0ZPeDFBYVkwNXBSTGpKUVRaUW5PbDhieF8yUW5xVFpjdDNNeGVBY0QzTTdFMURHQjNwcUd0M0l4Q1dwWHI3MUNPUUFjNU0tNmQxVy1kUlJQXzEwZWYyellIXzZmUDlPVzFxRzlRc2lUQkk5NEp5WVhTM2hLMGtodXRyMUc5Vm5vNA?oc=5) |
+| Kilmar Abrego Garcia fights imminent deportation to Uganda - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQN0U3QmExeTRUTklEcXR5QmI1eWpnNXRxaVhHWG5Oem5tdFcxREU4TGJnUGJMeXZHZXlMUDREbmFodFdRUUdpeDh5VTc1dFpENVcyemJrREJ0MjZxeUhESWdMRTFxdVpMZW5mcDlwZ3hHS3o1WmNKeUFzSFh6NTlaWDNvZzN6SnU1MVNZenZHRFpvQ2NlX2p0SEFSaG9kbm43UFJURzdjdmRQUWto?oc=5) |
 | Trump fires Fed Governor Lisa Cook, opening new front in fight for control over central bank - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQbjJIWVI1WDA1YXFUby1fVlAwYm1zZkRydlRUMVVkSmE4RGJEWnd3VE1JSFZCcWNfcl9SeVBaUE55VUxsUFRrSmczclFtTUIzTXBQTTBYM3dLUTFxX3ZtTHJqU1RqYUczTGl6X2dCZjBnbEgyVVZadHpjYjN5aTZsRXZWYWV1Umo3a2VITmNYTmh3Tm5vOGc?oc=5) |
 | Philly lawyer George Bochetto hired to sue SEPTA to stop service cuts - Inquirer.com | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOU2JVX212NkwwOEtua19qNmN1WnlhT3FuNHFUQnNTVTdrV0hMZWs4cUh5N3ZweXB0N05hTGk5ZDk1UF9JZ0RmVGFlSkVBOWRaS09jNTEyeDZ5VTlRMi1iYlhxUzNhbEVjMFlZbkZhbkNBclktLVZGLXhoMlJBVmtpbFpIb0gyN0pfNWoxUTBCZ25oWUplNGJSejNPM3VreDRQalV3Y0dJeHI0SjJYMEE?oc=5) |
 | Utah judge orders state to draw new congressional maps before 2026 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNd1F5U2NhTndKajVLN0JKbVo5YkxzN282ZjBQZUFzS3lGXzZVVThWNmdleTFySVF4ZWdjRDV0Rmc2bUFVaGRrQnZOWEVIVnVTaDBjX3c4amlyQzZBVXRFczRROENBYlVXclZxUmZrZGREak5qbFlXT2N3Yld5bjNvLWJQdW4?oc=5) |
