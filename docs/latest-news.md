@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 09:00:40（北京时间）**
+🕒 更新时间：**2025年08月26日 09:08:20（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump says he's removing Fed Governor Lisa Cook, cites mortgage fraud allegations - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE83R2t4UUNWazQ3MVNUMkJsTkhWbUJPMl9tQmtJaXFlSGQzd180ZEozb255R196WlRBSTFOOW1qR3NWWXUxekNINEZaZU1fdUdGQUZoeERUYl9PMEVQWnZDT0FTNmpfR0hXSGdnLVE0Z3lzZTZ3R0UtedIBfkFVX3lxTE5fWGozaFlKRUtsU0lqX01RMzdTenppbjdndUUycXpmc1B2MEprZzdrdnM0RFp2S3VtSWFqRllpdHczRkd4Ykk3MVBGXzVNRktISF9TNlQyRDJyTVZFUFdfcURPalNRUjNCWlA3YVVja0pibV9jRTQzcnlJcjdtZw?oc=5) |
-| Full text of Illinois Gov. JB Pritkzer's speech at news conference on reported Trump military plan for Chicago - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQM2hTOTJ1b0JGWW9tNk9tRUN6VGZCU3JZR282SUhNbmhtenh3a1dXTTBPY3FXeXNSTjF1OG9zSjhIeXl5MmswdEl2eGtCTXBkUkMycDRnVzlxSDA0V3BjNGE5UjByVld5eDdpczZjZjFiY19zRmRqTGY5MWwwZnhiUTAzbkxrbW1tOGJ6VHhtT2xXYXRQMWNPaEh5MHZqT3Yxdm41RzN6aGZ4Zw?oc=5) |
+| As President Donald Trump appears to waffle on National Guard in Chicago, Gov. JB Pritzker says, ‘do not come’ - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxQSHE2cGVMNUlzZnJTTDk2NGJsOXJUVDVXYS1udGY0ZHVBRENZeGVMdDl1NUkyYkI3WVJVZlQ2UExvVmcwdVBUWDM1R2RWaXJBSUVKVE5MMFAzRzdncXVidERrczRpc3JGUGtnNUZ5Vk1QNFFxMWJQYi00TGlGblN4QXljV2E5dVhBZGtxVDM4TUNvaFV5ZGR5ZnB5c0FLUzFGdFVhNDlFVndPYXFOMGYzaWt6WTdXYTRBdTNGbUpMZEFqMFZhZGxzY1Zldw?oc=5) |
 | Kilmar Abrego Garcia fights imminent deportation to Uganda - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQN0U3QmExeTRUTklEcXR5QmI1eWpnNXRxaVhHWG5Oem5tdFcxREU4TGJnUGJMeXZHZXlMUDREbmFodFdRUUdpeDh5VTc1dFpENVcyemJrREJ0MjZxeUhESWdMRTFxdVpMZW5mcDlwZ3hHS3o1WmNKeUFzSFh6NTlaWDNvZzN6SnU1MVNZenZHRFpvQ2NlX2p0SEFSaG9kbm43UFJURzdjdmRQUWto?oc=5) |
 | Trump Live Updates: Latest News on Executive Orders, National Guard and More - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE5aVXNfVnNaWGNFN2I0d1NyWW1Qd1hFUlFhM2NlVWVNaGhra25NTWJ1N1U0Yl9pM2dRN1hVakJXWDVVZzhHQlFpMzFfQkpXQVdJZURoYWhlbV9fVUxHc2lrSG9lTQ?oc=5) |
 | AP freelancer among 5 journalists killed in Israeli strikes on Gaza hospital, health officials say - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNTDNRUGFPdmxPclVMZW5GU2l4YUJSZXBuckF2TEU2VkFBVjQyOWg2SmR6aC1sU0RvWG10a2h1QnU3cUdDVlFta3EtcTJqSmt5R2J6dUs1R1IyRXVTOFBrN1J0bEtCUWZUOE1pZS1kVzhDRzc2OUEyeElyR0poNmV2NWdNdEFtNnJpZVBGeEVDVV9pY2lIcVYyc0UtZkU?oc=5) |
