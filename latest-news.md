@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 06:08:58（北京时间）**
+🕒 更新时间：**2025年08月27日 06:16:43（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Towering dust storm known as a haboob plunges Phoenix into darkness - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQbmNHXzRvcXhNVDBCNFZqdjFWeGlnaWJoQVpZTEMwOE9FQWxkS1pyQUM1Zk5iMF8zZUdIUUZtMXd2UGlDem1VNWlWZFhyYmZaeWtaYzNLdTczNEJpSEQ5LVlYTVhwWEZUQ1pFYTB2dmJ4VTE4YnJMclJyWDRXaG9OSG1Yb2wyYUVscDdJSEFoQ241VWQySTh5b0JVbTQ?oc=5) |
 | Steep US tariffs set to hit Indian exports from Wednesday - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNREI5OEZ1STJwa0FIeEJfaldmQ2lLRm90OU0yVjc4Nll0Tk95OF9veVpaak5yLTd0S0FhWHc3bnpwaEN1dnhpcTJrQXpFdlp5a3N1U081N1dzWVhOdEJOUUJ0UTVSaWY3N1laSU9YaTZxWTV2aUhFTHI2VGpGQjJIWnJUMVVXazVNSU84Ml9qNGxWdjlMR3JaanVvY1RNQQ?oc=5) |
 | Federal Judge Allows Case to Proceed Against Wisconsin Jurist Accused of Obstructing ICE - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5YMnVBbTBRYlZYWmd2NDJHUHF3czh6aEt2RjkxdHV2LTQwX0FVQUNhWG04UGk1OHY2aDdsVHpoVFk5UTJfT241ODk0Rnhtakp3N19TVkZPV3ZEcWNTWHY1dURUcWJPSTNyMDFnakx1amNKVzFyQnpHbnFNbw?oc=5) |
-| Donald Trump says he wants to rebrand his 'big, beautiful bill' - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPTkl2UHo2WF9pNkxpclR2S0h5NlI3emNyUF9tRkN6LTlVd2lzTUV4bVBtSnF6Tm93YmYwQ24tSXh0N05EMzdyc3hVUEVYX2EwLVJXd0ZWSGJOVjFldzdIcTlEeExJLUVSWUpGSmo1YmRzOUtOTDUwdktYT2NNS3lzZ0hTbTY5T3hUVnQ3OUFjMFJhOEM3WXdERF83YTZrWm91WTk0UtIBVkFVX3lxTE1JaG5yN1dKWTJiLU8wR2Q3ZmlBX1EyRlBTWGw4dG5UbS1ld04tU1NzX3RPQ2ZVZmxSZ0VRZUxxd3lfT1E1bWZVdklMVXBPYkY0YldPcC13?oc=5) |
+| Trump's DOT threatens to withhold funds from states that don't enforce English requirements for truck drivers - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQSXA3R0FwREg1QmdyM2l6U3FZUnV2bG83SnlYTVpOdGxmY3k2NjRRd0FJeXJ6dWxuMWJyTTlOY010ZzUzVjVzTExndmtSTE5QNVYzM2ppMW9rajhscG92YlhnRTZxN3NQRHFwbUNKeWFPMTh3b2U4U0U0NTZjV0tIbEVIdWxPRkZ5cUZoWVc2TE5tUVZ6VWhPR0JpWlBrdGw1SkNKemtkS2Y0ejRhaTlUbE82TVBiQ3V1VW82aGV5TFdydFpT0gFWQVVfeXFMUG5MdlFsUmFHWGdoQmtZT2VkTHAzdWcxdUFfZzZFNnIycW8wWmRvaVl3Y2lHQUNTb2xLSHM3bXlpY3RXa3N5dDdfV0RhRmVJanBTeE4tdUE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
