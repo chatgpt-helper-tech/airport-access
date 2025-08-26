@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 04:09:16（北京时间）**
+🕒 更新时间：**2025年08月27日 04:17:51（北京时间）**
 
 ---
 
@@ -17,14 +17,14 @@
 | Man told girls in Epping he wanted to 'have a baby', court hears | [阅读全文](https://www.bbc.com/news/articles/ckgy00rdzk7o?at_medium=RSS&at_campaign=rss) |
 | In The Style founder has 'no regrets' about leaving company | [阅读全文](https://www.bbc.com/news/articles/c890n19gyd3o?at_medium=RSS&at_campaign=rss) |
 | Poundland avoids administration as restructure approved | [阅读全文](https://www.bbc.com/news/articles/cdd3j3g0e5no?at_medium=RSS&at_campaign=rss) |
-| Bruce Willis' wife Emma says he is in great health but brain is failing | [阅读全文](https://www.bbc.com/news/articles/c4gzkp8nzy0o?at_medium=RSS&at_campaign=rss) |
+| Bruce Willis' wife Emma says he's in great health but brain failing | [阅读全文](https://www.bbc.com/news/articles/c4gzkp8nzy0o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Taylor Swift and Travis Kelce announce engagement on social media - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOZ0gyam9RSHJkMDBwWWpGOFNSUnpaSk5KakNJUDJFMElGLUVYcUFmWTh3ZmRNUzc2LUNIZkxGY2N4eGlYWE5GZ2N3LVZxWjNuQmVRaFc4R05FSVl5TlpZamd2SjM3SlFfdnZSVExFUjRNQnJHM2JvT1hMRmRYbk1hYW9BRGxYdw?oc=5) |
-| Federal Reserve governor Lisa Cook says she’ll fight Trump’s move to fire her - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPR1pYYUJIeWJlVXo3ZFp5eGpQeWliR094R0gzb1Judk1ZS3NxWGJKdUg3UmJ2SjdUSkduQlJsTVlWcmwwek5IWEJnYmVlSVRTZjR3ZWR6dnFzSkVzYnBpMm1wZ1NGUy1RUXFtNC1GdWljSmlIeXdiemRlU1QydmtUa3phNDR6djdmMERr?oc=5) |
+| Fed responds to Trump effort to fire Lisa Cook - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBHZmxYMEhKMjhkSHF6TFRfczZQSHhDZWFGd09FZXQyZEg2eXNKdmVKVDN0T1dZZUlUY25VRGxKcjlIdWZQUHByOW5ick05QXhVSU1PSHlWc1JpM2VmTk5SemlLZDBVcDA1RmRUb2twcndydlHSAXhBVV95cUxPMGtwRmx1QnBfMV9BbTk0VS1YTG1xbVY0OFd4azA3cVVtc0lLM1FPdVB1S1dVQTZERzhEWWVnNUdhYzAtUmU4NGVLT3VfZ2ZJd3czV1d2a3dlVEF0aTJ0dm4tc0wya0I1OEJkVHFVZVQtSTZKNDVwaVQ?oc=5) |
 | Trump-appointed judge rebukes White House for ‘smear’ of judiciary - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPQ3VmdVlITFE0czBHcEQwY1Q4ZHE0UHdvUUt4NTc2MExtTnY0eHRTTzBfYm1ndVVLMDBKVzdIYzA4Y0tQeHlvLXRVdGhTOWdyV056S1RVOE0wTnN4Q215cWQwdWg0cjVoV1J6eWV2S1ZuZ2FvM3dWVlp5MzhEeWp4UWFaVm83MFB4dFVSMmRadG8?oc=5) |
 | Reuters and AP demand answers from Israeli officials after airstrikes kill journalists - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFA0VzlKUEJ4cHVPYTVuWk1ma1hfYk1DVG16bWNzNHBBX05oc3R1dkhvelBRblJkVllUaVhfWU1qaFJNMm85NjVSSGFIR1R3ZFlUaEZLSFNaX1ZqdFFhWjBrXzlLREVtV0kxdzYzQWJNZkxiQi1McHFiNHBGWU1vQQ?oc=5) |
 | Trump seeks death penalty for D.C. murders - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOWlJldmxQQ08zU2hBaEVFcUl0eTZXbV9renEzMDhGWXdhRzBQaEhxa1dpa05selgyejdUUGxnUEVfSWpqaGMxeHFRMF9HZUlHT3NGRnVNbTRBV1pqV3hELXRQdS1CM01HbXQyR09CS05SVndVY1dWdHo0YVpYNlo0aTZtNUpTM3A4NVBTMG9pWDI?oc=5) |

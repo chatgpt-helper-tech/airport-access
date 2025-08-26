@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 04:09:17（北京时间）**
+🕒 更新时间：**2025年08月27日 04:17:51（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Man told girls in Epping he wanted to 'have a baby', court hears | [阅读全文](https://www.bbc.com/news/articles/ckgy00rdzk7o?at_medium=RSS&at_campaign=rss) |
 | In The Style founder has 'no regrets' about leaving company | [阅读全文](https://www.bbc.com/news/articles/c890n19gyd3o?at_medium=RSS&at_campaign=rss) |
 | Poundland avoids administration as restructure approved | [阅读全文](https://www.bbc.com/news/articles/cdd3j3g0e5no?at_medium=RSS&at_campaign=rss) |
-| Bruce Willis' wife Emma says he is in great health but brain is failing | [阅读全文](https://www.bbc.com/news/articles/c4gzkp8nzy0o?at_medium=RSS&at_campaign=rss) |
+| Bruce Willis' wife Emma says he's in great health but brain failing | [阅读全文](https://www.bbc.com/news/articles/c4gzkp8nzy0o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
