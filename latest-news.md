@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 06:33:47（北京时间）**
+🕒 更新时间：**2025年08月27日 06:40:13（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Judge dismisses Trump lawsuit against Maryland-based judges over handling of immigration cases - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxPZEYzSTZYbWdaSllRRlJYMlFxU0JhRHYtYkJCT1hLY1QybU5oc2dLamVLa0RrX2hJaDJQXzRWTWE4dHk3eHk0NWdhdTBwOWhFUGF6MUhLSXdjbXQ4U3FEMnJCdVhzUzZ3cG9wSWE2eTBITGpKRXJIVGJrdlQzM2FwenBUOFo1NnFGcUpuT0R2c01jaEpsMlZEa24ySE1qRW91U0NNUUI2MFZNbFRJYWdqeERNNXlrWjZxelZ2REs5TzVSVWxsT2hF0gFWQVVfeXFMT29jbWQxbmI1TWFYYlZpUWpROEJtd3VSUk43ekFUVWdDNHdmemNiQzhmdUk2clR4SmRXbDhOZzFWdV9GWHMwQnFIdEdEdEVsLUVBam5LdkE?oc=5) |
 | Illinois governor hits back after Trump mocks his weight: ‘It takes one to know one’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQNF9sYzIzZWh6UjR2SEk0alpMS2paVE9ZSGlMZlYtUnp3UlM5aHF6V295Z3diazhSNkgzNFVMZUxsV1RFYUxRX1JxNTdqd0Jxc1dOREtkMDloVzVWTzQyY21RbjNQNWRZUERTNGhUeHJfUUZPalU0UnFTQTdiY19mSk9OWnk0ejNEbVJwaVFR?oc=5) |
-| Israel Links Deadly Hospital Attack in Gaza to Hamas Surveillance Camera - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNVFpGd0VoT3Nsd1BVMkpFYlhINjF3XzNMM1B2eUhnNzBUcGdGRTRLLU8xS3JSN09hQWJMOU9RaUoyNHJUNGlJc3VIdmR2NXhBb3Fsa3JHcERYb1ZQVVhQN2NJQlhiSkk1VXUxUFl1QXhZYnlzMldjSm9CQmkzQWEtVDNXM294UWpENC10dkxpWVBoQnBzc2UtcHotRGFGdw?oc=5) |
 | Trump seeks death penalty for D.C. murders - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOWlJldmxQQ08zU2hBaEVFcUl0eTZXbV9renEzMDhGWXdhRzBQaEhxa1dpa05selgyejdUUGxnUEVfSWpqaGMxeHFRMF9HZUlHT3NGRnVNbTRBV1pqV3hELXRQdS1CM01HbXQyR09CS05SVndVY1dWdHo0YVpYNlo0aTZtNUpTM3A4NVBTMG9pWDI?oc=5) |
+| Israel Links Deadly Hospital Attack in Gaza to Hamas Surveillance Camera - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNVFpGd0VoT3Nsd1BVMkpFYlhINjF3XzNMM1B2eUhnNzBUcGdGRTRLLU8xS3JSN09hQWJMOU9RaUoyNHJUNGlJc3VIdmR2NXhBb3Fsa3JHcERYb1ZQVVhQN2NJQlhiSkk1VXUxUFl1QXhZYnlzMldjSm9CQmkzQWEtVDNXM294UWpENC10dkxpWVBoQnBzc2UtcHotRGFGdw?oc=5) |
 | Whistleblower says Trump officials copied millions of Social Security numbers - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1RMWtUQXdmdUtjV1R3b3l0aTU0bGJOcGg2VzFKYVRITkZOTDBBRVJSMDUydUFOZl9BZzI5V2JtVDJaRnV1c2oydmF3M25TMnlxX2htSGpoMXdoWlR2QUZZT21EVmJDSERfOXJpMFJGVXRUeFAwR0VESndGZGpTdw?oc=5) |
 | Kilmar Abrego Garcia fights imminent deportation to Uganda - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQN0U3QmExeTRUTklEcXR5QmI1eWpnNXRxaVhHWG5Oem5tdFcxREU4TGJnUGJMeXZHZXlMUDREbmFodFdRUUdpeDh5VTc1dFpENVcyemJrREJ0MjZxeUhESWdMRTFxdVpMZW5mcDlwZ3hHS3o1WmNKeUFzSFh6NTlaWDNvZzN6SnU1MVNZenZHRFpvQ2NlX2p0SEFSaG9kbm43UFJURzdjdmRQUWto?oc=5) |
 | Steep US tariffs set to hit Indian exports from Wednesday - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNREI5OEZ1STJwa0FIeEJfaldmQ2lLRm90OU0yVjc4Nll0Tk95OF9veVpaak5yLTd0S0FhWHc3bnpwaEN1dnhpcTJrQXpFdlp5a3N1U081N1dzWVhOdEJOUUJ0UTVSaWY3N1laSU9YaTZxWTV2aUhFTHI2VGpGQjJIWnJUMVVXazVNSU84Ml9qNGxWdjlMR3JaanVvY1RNQQ?oc=5) |
