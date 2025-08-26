@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 11:49:27（北京时间）**
+🕒 更新时间：**2025年08月26日 11:57:18（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Republicans try again to block California redistricting plan from November ballot - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxPSzJEb2Z0RF9oWFlUMWtXOF84Q3hnd3dYc0JiMDRWR1FPcFJTb0VyU0ZrSnRPZGxlRHlFdlhOOEZLVUx3cEZzMWoya0ZPeDFBYVkwNXBSTGpKUVRaUW5PbDhieF8yUW5xVFpjdDNNeGVBY0QzTTdFMURHQjNwcUd0M0l4Q1dwWHI3MUNPUUFjNU0tNmQxVy1kUlJQXzEwZWYyellIXzZmUDlPVzFxRzlRc2lUQkk5NEp5WVhTM2hLMGtodXRyMUc5Vm5vNA?oc=5) |
 | Trump fires Fed Governor Lisa Cook, opening new front in fight for control over central bank - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQbjJIWVI1WDA1YXFUby1fVlAwYm1zZkRydlRUMVVkSmE4RGJEWnd3VE1JSFZCcWNfcl9SeVBaUE55VUxsUFRrSmczclFtTUIzTXBQTTBYM3dLUTFxX3ZtTHJqU1RqYUczTGl6X2dCZjBnbEgyVVZadHpjYjN5aTZsRXZWYWV1Umo3a2VITmNYTmh3Tm5vOGc?oc=5) |
 | Philly lawyer George Bochetto hired to sue SEPTA to stop service cuts - Inquirer.com | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOU2JVX212NkwwOEtua19qNmN1WnlhT3FuNHFUQnNTVTdrV0hMZWs4cUh5N3ZweXB0N05hTGk5ZDk1UF9JZ0RmVGFlSkVBOWRaS09jNTEyeDZ5VTlRMi1iYlhxUzNhbEVjMFlZbkZhbkNBclktLVZGLXhoMlJBVmtpbFpIb0gyN0pfNWoxUTBCZ25oWUplNGJSejNPM3VreDRQalV3Y0dJeHI0SjJYMEE?oc=5) |
+| Utah judge orders state to draw new congressional maps before 2026 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNd1F5U2NhTndKajVLN0JKbVo5YkxzN282ZjBQZUFzS3lGXzZVVThWNmdleTFySVF4ZWdjRDV0Rmc2bUFVaGRrQnZOWEVIVnVTaDBjX3c4amlyQzZBVXRFczRROENBYlVXclZxUmZrZGREak5qbFlXT2N3Yld5bjNvLWJQdW4?oc=5) |
 | Mexican drug lord 'El Mayo' enters guilty plea - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBKSWNLQmtldnVKME9tSEFRRVRKbThaMEltc0VrX0NLa2ZIbTZsUG9sTTQxWHdTMmkxSV9YcHA2a1VmSUtpRnVmMWM5cTM2TEFvR2RtbmV6SThfQdIBX0FVX3lxTE9DNUctSlRDd1lsaWtFVmpYUC15VHVNNU9qaEhuRGRrcmZ0SjkxbWFKWEhyeHNPb3hwMEdzS1M5RDNpNEJZTjhJX0tpUW4xcWNKTmlObkl6aThzWEExaF9F?oc=5) |
-| Judge rules Utah’s congressional map must be redrawn for the 2026 elections - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNVC1TbWxNYlNQZEhycC1ldkZ6bXBHUE82ZmNJVl9pVndoWnRLM3VyS1pXdV9EQm52X0dGazc1UXRvYlpxMnlzWHYxaDV5ZTBabzNoM21GeW4xT1NWSDRLMlBLS0JZVnhPYXRSbmtEZjFGRGxQMWxzNGFZTi1jclBtY3FING50bVF1MzlyZ3hOY0RpTzNfWDhra1l1TzR5ZmY3emJBdl9zZHVjRjQwYzNWNg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
