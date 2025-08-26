@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 07:09:01（北京时间）**
+🕒 更新时间：**2025年08月27日 07:17:54（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | Reform prepared to deport 600,000 under migration plans | [阅读全文](https://www.bbc.com/news/articles/c5yk4r5e514o?at_medium=RSS&at_campaign=rss) |
 | How deliverable is Reform's plan on migration? | [阅读全文](https://www.bbc.com/news/articles/cx29l0wqlgeo?at_medium=RSS&at_campaign=rss) |
 | Energy prices expected to rise ahead of winter | [阅读全文](https://www.bbc.com/news/articles/c78zgz7j576o?at_medium=RSS&at_campaign=rss) |
-| Tributes paid to three helicopter crash victims | [阅读全文](https://www.bbc.com/news/articles/cdd3jzl31j8o?at_medium=RSS&at_campaign=rss) |
+| 'Funeral director put my baby's body in bouncer in front of TV' | [阅读全文](https://www.bbc.com/news/articles/c4gjr0ylenzo?at_medium=RSS&at_campaign=rss) |
 | Ukraine admits Russia has entered key region of Dnipropetrovsk | [阅读全文](https://www.bbc.com/news/articles/c17n1p24yv9o?at_medium=RSS&at_campaign=rss) |
 | UN demands justice over Israeli double strike on Gaza hospital | [阅读全文](https://www.bbc.com/news/articles/cd6n97gj1nqo?at_medium=RSS&at_campaign=rss) |
 | Australia police shooting suspect named as manhunt continues | [阅读全文](https://www.bbc.com/news/articles/c4g6wlxd5kko?at_medium=RSS&at_campaign=rss) |
 | Artwork looted by Nazis 80 years ago spotted in estate agent ad | [阅读全文](https://www.bbc.com/news/articles/cq68dze2l71o?at_medium=RSS&at_campaign=rss) |
+| Tributes paid to three helicopter crash victims | [阅读全文](https://www.bbc.com/news/articles/cdd3jzl31j8o?at_medium=RSS&at_campaign=rss) |
 | Cook to sue Trump over order to fire her from Federal Reserve | [阅读全文](https://www.bbc.com/news/articles/cx275n8gx0ro?at_medium=RSS&at_campaign=rss) |
-| No 'cash for questions' investigation into former minister | [阅读全文](https://www.bbc.com/news/articles/c07pr54dxzxo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
