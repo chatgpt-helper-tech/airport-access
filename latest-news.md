@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 12:48:44（北京时间）**
+🕒 更新时间：**2025年08月26日 12:56:54（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump Repeatedly Praises North Korea’s Dictator in Meeting With South’s President - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOZk9pbVI4ZkxDV240NmYzTkQxN1V3MHZTMjRtMlJrcDNxTFBqYlNPM2g5ZkY1SjNmcW5UcjEzeGszVlMxUHIwbm1zVEdkTDNQXzk0dUJTUTdEbTRtcTdkQlhXVGdxbEhxNzBWWFB0aUhZY2dKcE00eG1RR3o1NHhzMg?oc=5) |
 | Trump signs executive order targeting American flag burning - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE9ibENMX1ExaHlESXg3eXBPYlBGaGRfajZ0QkNOUjhBS3RyR0kxVTcyUU4wWEhFWTdQMzRVdjY4blBjSjQ4b2d5X19ScjM1LXdqZXZtR2RGel90eVJhOVhjWVU4cFE0RmlTS050SkhlbFhQenExMEE?oc=5) |
+| Trump Repeatedly Praises North Korea’s Dictator in Meeting With South’s President - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOZk9pbVI4ZkxDV240NmYzTkQxN1V3MHZTMjRtMlJrcDNxTFBqYlNPM2g5ZkY1SjNmcW5UcjEzeGszVlMxUHIwbm1zVEdkTDNQXzk0dUJTUTdEbTRtcTdkQlhXVGdxbEhxNzBWWFB0aUhZY2dKcE00eG1RR3o1NHhzMg?oc=5) |
 | As President Donald Trump appears to waffle on National Guard in Chicago, Gov. JB Pritzker says, ‘do not come’ - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxQSHE2cGVMNUlzZnJTTDk2NGJsOXJUVDVXYS1udGY0ZHVBRENZeGVMdDl1NUkyYkI3WVJVZlQ2UExvVmcwdVBUWDM1R2RWaXJBSUVKVE5MMFAzRzdncXVidERrczRpc3JGUGtnNUZ5Vk1QNFFxMWJQYi00TGlGblN4QXljV2E5dVhBZGtxVDM4TUNvaFV5ZGR5ZnB5c0FLUzFGdFVhNDlFVndPYXFOMGYzaWt6WTdXYTRBdTNGbUpMZEFqMFZhZGxzY1Zldw?oc=5) |
 | Israeli strikes kill 22, including 5 journalists, in a Gaza hospital - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxObm9aZm1XLUxqVWNBRFVFbHk4NWNJZWpzV3h3NTYycHFWZE42Q3ZhYml5alZ5UTg3alM1aU5pY3BvdmFSdnRPY29nSmdoRkliWTVXSTh1Y096UDBfVzhrcEQzRUxlbzd4YzAySVYzVVV3SmFWYS15aF9CSzZhcHY5Z3lKVmhUQmZUSzlxTg?oc=5) |
 | Trump threatens to sue California over redistricting plan favoring Democrats - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPUWloYnBPR0l6MVVHQVNibi00VWp4eFNIZUY5ZFRGWHhRMGQtSjFEUGJrVG9nYW9JYTg3aXE4enhXTDN6Q0ZlRDl3RkFQUUl2R056RkJ5LTcwT0tJSTA0c0JGN05jYTRqbmxieEF5LVdHZTJXNUREa3pncnZvTU5LMEV3clgyRG9tVFVEMW1qay1fSDB3?oc=5) |
