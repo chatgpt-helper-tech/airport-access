@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 18:56:16（北京时间）**
+🕒 更新时间：**2025年08月26日 19:01:45（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | The weapons that National Guard troops now carry in Washington, D.C. - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPRHdpdWtwWjE4MHdHbFpfSXNWX2hHMnpKSzRDWlh0RThoVy1oUkhZUEw1SE04aUVqMjVTMHZ5cy1kRTZlRWZ2VXdSbUVYQ0lHVFRaSU9heVF5YmJsWHgtQVJCSmdqUEVuMWRxTlpPSE1IeEhURlk3OXpOX3lybkFyQ2M4NVMtRlVnMTNWakxqYmJpVlFyQzRtSGFwZzdWNUFBRUtES0ROQzdVNkdjbmR0R9IBVkFVX3lxTE5CTFZEX2FkNTZRQUNuTE4xR1FUZTdWRUdIVzZ0TjNReE9raG5qRHhfVHpiaEFxMmtubTlTc2RvYWZXTXNoN0dJMDU2a2lFTTJqd2hFMHNB?oc=5) |
 | 'The most illegal search': Judges push back against D.C. criminal charges - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPSFdGR3gwd2RkcFlyVF9vRk1ER3YwdW15QmxsTzJGWXF4VTgxRUZqVFdlMnFFT3pGQ0Q4ZzlBWnRfWVVYamxPaUljMXR6TUdDWUNNX01QNUlFM0p5SmZRNk1ySmFHcEZYMTlZM1RNeWFoamVCSXEzcGFsTkxoSmJ0OHl3?oc=5) |
 | 20 Palestinians, including 4 journalists, killed in IDF strike on Gaza hospital - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNWTdRTGJJN0lRdnRkZ3doYzJfSXp3MjY4c0lsS2RMUVY1a3I1eW5xQjNLT3pyZ1N0d05nRTlPczNPQ3RMQ0dvU0cwTFVCVHdZN2FKU0NoOTNmZkNXbmFvbGpUcGdrMjg4TWxGOTdyckVSWGIyV1k5MldFelZoc0FraG9WVkNSZw?oc=5) |
-| Epstein Accuser’s Family Takes Issue With Plans to Publish Her Memoir - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPVFFmTlNiT1NUa1haZmZybGJBX0RzZzJNaUZnbjdjZlZWVmZsX2taMDV4Q29Zdk1mRkZuRWtIcjJHbUxJM05xMWVoRWp3a0lQbnU3cmgtandZbUxPMDVNdjJJeE9QX0JraUxuNGIyTXNQeDM5VHE3a0M0S0hhWXZkUS05Rzd0T0E2QjNGS1ZVT244ZDZB?oc=5) |
+| Utah judge orders state to draw new congressional maps before 2026 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNd1F5U2NhTndKajVLN0JKbVo5YkxzN282ZjBQZUFzS3lGXzZVVThWNmdleTFySVF4ZWdjRDV0Rmc2bUFVaGRrQnZOWEVIVnVTaDBjX3c4amlyQzZBVXRFczRROENBYlVXclZxUmZrZGREak5qbFlXT2N3Yld5bjNvLWJQdW4?oc=5) |
 | Dust storm hits Phoenix area: Look at these wild photos - azcentral.com and The Arizona Republic | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxObUJWMlVoMUU0N3B2MjZEc3E1aGJNekR5X0JEUkRTc3JIcTd1WTFoSmZHNElvU1czRW9CdFhXQUs2R2s0TzliMmhXOXp6U2VNMVlPeGtyRnFEaE5pbFVBOGU1UW9ZMEVjYnZQTEsxd3JLdWVoajFGTW9VTTVYejgzRnYzZVpKazQ0RzljcmY2SGRGb3FNRVoyNmYtQTF1cXp6TDhmUWQ3SEpuVm1Bei1WeWg0T1dYMmQyaHM5TE1n?oc=5) |
 | 20 years after Hurricane Katrina, a barrier island in Alabama is disappearing - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZjA1a25TX3BmVDFwX0cwMGltNENsa3Zkd2wxUFlOVUNVcEZNbTZrSFQyQ0lDamVPal8yLXp0bTZEdkN1Z1BNcjJ1clU3ODJ1NGZmaXBndzRqOFhJd0lDbGVVd3RERVludjZISHBXaGNKQTdDMGhXZnpwbUNURzFJd1F6a9IBiAFBVV95cUxQbjROaklrYngwaDZMeWlTOXBNckpjaFV4Tzc4RE1uRi0ycnItNmFOdlNpN1Z6endhRVRiUnFJbGFteW1PQUdIWlNqa3VySHktdjZYbHg4Qy1pemViNjA2Qms2RkVpdzdRZ2lrcG8yRXNpRGxQdHdlcmZuaEplVXVZQ1VaSHdaNDFN?oc=5) |
-| Trump Admin Arrests Kilmar Abrego Garcia Again, Ready to Deport Him to Uganda - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQYmljMlczZW1ud3I0Qm1qeWhrX2VVTXFHa3hqNDZjb04ybVl3azVMMW9ONTlIclowYmZmYVdQQWpkbWViVmJNbnhDSGp6YkZ6WEdEOHlpeElpWUw0MGtnVk1tSkxXZ0FvVTFLM1RPSloxa1BUZ2ZUTGxFOTJaTUtVLXY4TFRUYmt6YUxKSklIeUFUVUlOS3FRanRQY0JLdUJOQm1tUkVVXzN3UQ?oc=5) |
 | Firefighters union leader launches bid for battleground Pennsylvania House seat - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQMl82OGo3WXB0YVJfMG15NUZ1eXBqdXhzQXFDamxlT1RGX1E5X2NiOUs5MmFPdm5ZTnlHRDVnaGdoTThweVRwZTJKLXZnTEIxNTRpbVJ1cUNPeEVic3F4YWVDUnB5LVdwQkN3X0VsZnNnZUh0TldKQm4tMERNWWVGbkdpSENSQ2MzWUVnUFBpWFZ4Zw?oc=5) |
+| Trump Admin Arrests Kilmar Abrego Garcia Again, Ready to Deport Him to Uganda - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQYmljMlczZW1ud3I0Qm1qeWhrX2VVTXFHa3hqNDZjb04ybVl3azVMMW9ONTlIclowYmZmYVdQQWpkbWViVmJNbnhDSGp6YkZ6WEdEOHlpeElpWUw0MGtnVk1tSkxXZ0FvVTFLM1RPSloxa1BUZ2ZUTGxFOTJaTUtVLXY4TFRUYmt6YUxKSklIeUFUVUlOS3FRanRQY0JLdUJOQm1tUkVVXzN3UQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
