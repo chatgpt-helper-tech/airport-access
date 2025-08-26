@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 05:56:32（北京时间）**
+🕒 更新时间：**2025年08月27日 06:00:17（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | UN demands justice over Israeli double strike on Gaza hospital | [阅读全文](https://www.bbc.com/news/articles/cd6n97gj1nqo?at_medium=RSS&at_campaign=rss) |
 | Artwork looted by Nazis 80 years ago spotted in estate agent ad | [阅读全文](https://www.bbc.com/news/articles/cq68dze2l71o?at_medium=RSS&at_campaign=rss) |
 | Cook to sue Trump over order to fire her from Federal Reserve | [阅读全文](https://www.bbc.com/news/articles/cx275n8gx0ro?at_medium=RSS&at_campaign=rss) |
-| No investigation into 'cash for questions' former minister | [阅读全文](https://www.bbc.com/news/articles/c07pr54dxzxo?at_medium=RSS&at_campaign=rss) |
+| No 'cash for questions' investigation into former minister | [阅读全文](https://www.bbc.com/news/articles/c07pr54dxzxo?at_medium=RSS&at_campaign=rss) |
 | In The Style founder has 'no regrets' about leaving company | [阅读全文](https://www.bbc.com/news/articles/c890n19gyd3o?at_medium=RSS&at_campaign=rss) |
 | Man told girls in Epping he wanted to 'have a baby', court hears | [阅读全文](https://www.bbc.com/news/articles/ckgy00rdzk7o?at_medium=RSS&at_campaign=rss) |
 
