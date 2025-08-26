@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 23:00:19（北京时间）**
+🕒 更新时间：**2025年08月26日 23:09:14（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Reform UK would pay countries for migrant return deals | [阅读全文](https://www.bbc.com/news/articles/c5yk4r5e514o?at_medium=RSS&at_campaign=rss) |
-| Family 'heartbroken' over fatal helicopter crash | [阅读全文](https://www.bbc.com/news/articles/cdd3jzl31j8o?at_medium=RSS&at_campaign=rss) |
+| Family 'heartbroken' over death of couple in helicopter crash | [阅读全文](https://www.bbc.com/news/articles/cdd3jzl31j8o?at_medium=RSS&at_campaign=rss) |
 | Man told girls in Epping he wanted to 'have a baby', court hears | [阅读全文](https://www.bbc.com/news/articles/ckgy00rdzk7o?at_medium=RSS&at_campaign=rss) |
 | Summer 2025 'almost certainly' UK's hottest on record | [阅读全文](https://www.bbc.com/weather/articles/c1kz18d3wjro?at_medium=RSS&at_campaign=rss) |
 | Meghan on who said 'I love you' first, and what she misses about UK | [阅读全文](https://www.bbc.com/news/articles/cp94ly9x9y4o?at_medium=RSS&at_campaign=rss) |
@@ -31,8 +31,8 @@
 | First human case of New World screwworm parasite confirmed in US - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBzOVQzeDBvMXgxcjZMRzJUSDRtendINUY5eEkxUDV2ZVppNVFXdGFOa3VKM1hOY2FEUTVDOEZoR0ZEWDVIOHVCaEpyOHlYc0x4X0lTQVBTNVdPUdIBX0FVX3lxTFBReGI5R1ZRejV5QkpFQkk5aGNoWVhwS3VEdHA2TE9fQUt1MnVjUmdnRnBpNXVmTnBkb2hMLXhCVUYwa0xrUnhkVzZyYjd6dDhhRnFnUkVZV3d2dlhQTktF?oc=5) |
 | Massive dust storm engulfs Phoenix, followed by monsoon, grounding hundreds of flights - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPd3RaQkcwTDdmRlZBZmJPbmo1bjF2Mnh3eTJCd3lLWDM0WlZkZC0tcFZSRm9sSjRiR1BLMURtaUpSbUdEN1VETWRRazVrMG9ISm8xR0VTTkhXdU9QVC12c2ZBR1kxSU9mYUhOQWlrTTBFRlUwWVFUMlFBVGlFS3VZS3psZDNfdld4bXZpQjVRNTnSAZYBQVVfeXFMT0dtUkxqX2cxWlBiX3hNdlZOUnRicnJ0cTRhVjFoN2hTXzEySWNQM3BJb09wUmlvM2hHUzhKOENxME5WQVVNa004T2hzT3JnM1lEM3BJYWp3TnFTeWYtcUJ4MUh2MmgwTENyaEFtdkxiYkwyYTRxNExnOENMemxKUmw1VjlzdXNNUVpid2NmV1lENUZ1cVhR?oc=5) |
 | A lesson learned after pets were left behind in Hurricane Katrina: Save the animals - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPWEFCLVZFZDVHOGxFMGYxMmlKQzZSa2FJVzRqSHBxc3N3dXZXXzFCSzVfaFNlc2RqSkZaSmthWWFNSzVfSzRUSDVGbFpZeFFab0tpS2hfRGxWaTlMRGVYY0ZjcE1MMGpUZG5mRTRMUVhWRUxpMUIzWHBOdmNydWtiV0lwMnpFcGVEcjRpV1lSaDRlT2Fn?oc=5) |
-| Co-Founder of the Sinaloa Cartel, Ismael ‘El Mayo’ Zambada Garcia, Pleads Guilty to Engaging in a Continuing Criminal Enterprise and Racketeering - Department of Justice (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxOeklpMFIxS1BjVnlpWk5nY1cwdzhDNVJTQ1JiNVpCdVZnT2NnOHBLNjV3bV80dGJ6WjJKMndLejUwZWluOVN0TzFrSG1ZTnRXWDRydDFoNkd0OGhFN0hfZUJIblNsNGt2WVhvNllUbWc4OTIxakZhSVRPQ3pGNTdIbVhtbjM2clY4Q3I3RGxianRZS0gtTDF3OEtKZEdnanp3V0dFbVNrc1doM2NnTnBBOURMNWpDODZEM3BzTA?oc=5) |
 | "Great relationship": Trump at South Korea summit says he wants to meet with Kim Jong-un - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQa01fMy1sRXA4bkdXaktxc2F2amFiRlN4VUpXSnV3NWdBX0tNZFk3LWRHc2J6Mm5QNWJBWlFIX3hSS184MXh1aU1aTmJuVjdiSU9OV2psREU5aGFhS0tMb0F3bXVhNmt0VDFjV0VlcmQzNVRfdlZDdVVkNGJlUTg3eERWZU9UclhPSmg4?oc=5) |
+| Co-Founder of the Sinaloa Cartel, Ismael ‘El Mayo’ Zambada Garcia, Pleads Guilty to Engaging in a Continuing Criminal Enterprise and Racketeering - Department of Justice (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxOeklpMFIxS1BjVnlpWk5nY1cwdzhDNVJTQ1JiNVpCdVZnT2NnOHBLNjV3bV80dGJ6WjJKMndLejUwZWluOVN0TzFrSG1ZTnRXWDRydDFoNkd0OGhFN0hfZUJIblNsNGt2WVhvNllUbWc4OTIxakZhSVRPQ3pGNTdIbVhtbjM2clY4Q3I3RGxianRZS0gtTDF3OEtKZEdnanp3V0dFbVNrc1doM2NnTnBBOURMNWpDODZEM3BzTA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
