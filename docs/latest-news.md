@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 18:25:18（北京时间）**
+🕒 更新时间：**2025年08月26日 18:33:50（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | 20 years after Hurricane Katrina, a barrier island in Alabama is disappearing - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZjA1a25TX3BmVDFwX0cwMGltNENsa3Zkd2wxUFlOVUNVcEZNbTZrSFQyQ0lDamVPal8yLXp0bTZEdkN1Z1BNcjJ1clU3ODJ1NGZmaXBndzRqOFhJd0lDbGVVd3RERVludjZISHBXaGNKQTdDMGhXZnpwbUNURzFJd1F6a9IBiAFBVV95cUxQbjROaklrYngwaDZMeWlTOXBNckpjaFV4Tzc4RE1uRi0ycnItNmFOdlNpN1Z6endhRVRiUnFJbGFteW1PQUdIWlNqa3VySHktdjZYbHg4Qy1pemViNjA2Qms2RkVpdzdRZ2lrcG8yRXNpRGxQdHdlcmZuaEplVXVZQ1VaSHdaNDFN?oc=5) |
 | Dust storm hits Phoenix area: Look at these wild photos - azcentral.com and The Arizona Republic | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxObUJWMlVoMUU0N3B2MjZEc3E1aGJNekR5X0JEUkRTc3JIcTd1WTFoSmZHNElvU1czRW9CdFhXQUs2R2s0TzliMmhXOXp6U2VNMVlPeGtyRnFEaE5pbFVBOGU1UW9ZMEVjYnZQTEsxd3JLdWVoajFGTW9VTTVYejgzRnYzZVpKazQ0RzljcmY2SGRGb3FNRVoyNmYtQTF1cXp6TDhmUWQ3SEpuVm1Bei1WeWg0T1dYMmQyaHM5TE1n?oc=5) |
 | Trump, with order on cashless bail, continues his focus on D.C. crime - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQUTIyeGhIWk9FWlNjSlpNTE04Nnh2b09VRkxLemRMN3pOb3lJeFNvN3pYd3ZUZVZscFBJUlFXUV9KVnhBUTBPanhvc0gtOW1WUENUalJwMzhFanJkNGZvaWNXSzJ4Mi1qcGpUTk1ZZDdob2FmcGNJTjJ0dzFadTdHY3RfQy1BUHMwZURFZlFBUE4xaVBUV3lsazNXdVg?oc=5) |
-| Colleges across the country deal with shooting hoaxes as classes resume - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1LSWxiNHVzRlN3ejBmZklmbGRmRnZFOS1INm44R3d5N1NDU3lMSDJ3LU9zN1hodTJ6YXY1VXE0N21QY0xlQzFocmFGRnRWb09GdmU5a3FFc0F4MTc5OTZmekZ3MEpZNG1ndS0zMF9zZ1FjSWMwUXdqcl9aQzDSAVZBVV95cUxPSUhzcElmTHRnSm56eHZ6NG1RQVNmQTBMajJJeXlEWUx6TVFjY3hWNWUzRi01c2phck9JYXE4WWQzSVliN0o5eW84bU96NUpEX0VPLUg3dw?oc=5) |
+| Firefighters union leader launches bid for battleground Pennsylvania House seat - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQMl82OGo3WXB0YVJfMG15NUZ1eXBqdXhzQXFDamxlT1RGX1E5X2NiOUs5MmFPdm5ZTnlHRDVnaGdoTThweVRwZTJKLXZnTEIxNTRpbVJ1cUNPeEVic3F4YWVDUnB5LVdwQkN3X0VsZnNnZUh0TldKQm4tMERNWWVGbkdpSENSQ2MzWUVnUFBpWFZ4Zw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。

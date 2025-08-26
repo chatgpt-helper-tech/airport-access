@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 18:25:18（北京时间）**
+🕒 更新时间：**2025年08月26日 18:33:50（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Judge rules Utah’s congressional map must be redrawn for the 2026 elections - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNVC1TbWxNYlNQZEhycC1ldkZ6bXBHUE82ZmNJVl9pVndoWnRLM3VyS1pXdV9EQm52X0dGazc1UXRvYlpxMnlzWHYxaDV5ZTBabzNoM21GeW4xT1NWSDRLMlBLS0JZVnhPYXRSbmtEZjFGRGxQMWxzNGFZTi1jclBtY3FING50bVF1MzlyZ3hOY0RpTzNfWDhra1l1TzR5ZmY3emJBdl9zZHVjRjQwYzNWNg?oc=5) |
 | Exclusive: Trump administration weighs sanctions on officials implementing EU tech law, sources say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPclpvaG5MWFJCMzJRLUdscGU5c1Y5d2lISlBDQjkzZlFLb2dIVHppaEZ3WExRUm9vZl9ScEhxVkJOcXk1S3NEQXl3N0VaaGV1UkU5SXl1dEF1akVWUlJpZGlJZ2k3OVlOdmhhYUgzLUR0RmxGMHkwT0gwWTFVeHBHZVEtdmM4WXJOeUlqcU5VMHg3NUQyZ01haFdia1B1Y3VqU09ZT1VsUHJKUDJZd1lIYkZjWXkxM24xUUpFSmhEVDFEaVU?oc=5) |
 | Trump 'very angry' with Putin as Ukraine strikes continue despite peace push - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNczJuWUlQaVhxUGpKS05nTkJLS0dDMWN0NzcyZnpKX2NfSGdtZTFpajdia21NakxSdlNhWk91TTlxMVRkSEZrNkNzUzNRbTZqb1QyVjhEV3ZDbEJOZTEtaGRBSGw4V3dIdTZTb3BhVE42Uk9tMm83d1dOVkd6TlVJZUJBLU0tcmVZUC1iMjBtN1Zfclh5LXJ0eUpzWHdhZDkwdFE1Nk5KOVd5aHJfYkNnYUpB0gG3AUFVX3lxTFB2aFoxTGtRSTRzLUJuNnczSDZ5QmlLTkVRUV91UkEzTnVyZlNoVmJpRzlidXA4czE0MllROC1mWFltTnUyY00tWTdXTFAySmF5QXluemU0RGF3bVdubGJfazZscXFVWEVoOEhMbHFOcDdmelRBcFp5eEw2ZnpYRXAyWEc5UW9sQUdSdTd6bExWR0dfalBpN0hOU2MxTDdtbGc2UU1YeURhcTZWazU0M2c2MEM0SFNZQQ?oc=5) |
-| Abrego Garcia shielded from deportation as judge questions legal process - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNUFNsXzJ5cDlXeTU5c0N5LTdiRkh2bG5fQXZURXZWc21ZSUdIU3ZLbHgtWXdPbl9LUV9GOXFUeW9Xb29Ebi1jMi1kWFNsWksxS0RYZll3ZmJnX0Q4c1BlemJwSHNELXBCa3oxUXJraFdHN3hlNzQtYjdRSnM2ZEJJYlBHaGpxOFVoai1mRg?oc=5) |
-| Trump, with order on cashless bail, continues his focus on D.C. crime - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQUTIyeGhIWk9FWlNjSlpNTE04Nnh2b09VRkxLemRMN3pOb3lJeFNvN3pYd3ZUZVZscFBJUlFXUV9KVnhBUTBPanhvc0gtOW1WUENUalJwMzhFanJkNGZvaWNXSzJ4Mi1qcGpUTk1ZZDdob2FmcGNJTjJ0dzFadTdHY3RfQy1BUHMwZURFZlFBUE4xaVBUV3lsazNXdVg?oc=5) |
 | 20 years after Hurricane Katrina, a barrier island in Alabama is disappearing - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZjA1a25TX3BmVDFwX0cwMGltNENsa3Zkd2wxUFlOVUNVcEZNbTZrSFQyQ0lDamVPal8yLXp0bTZEdkN1Z1BNcjJ1clU3ODJ1NGZmaXBndzRqOFhJd0lDbGVVd3RERVludjZISHBXaGNKQTdDMGhXZnpwbUNURzFJd1F6a9IBiAFBVV95cUxQbjROaklrYngwaDZMeWlTOXBNckpjaFV4Tzc4RE1uRi0ycnItNmFOdlNpN1Z6endhRVRiUnFJbGFteW1PQUdIWlNqa3VySHktdjZYbHg4Qy1pemViNjA2Qms2RkVpdzdRZ2lrcG8yRXNpRGxQdHdlcmZuaEplVXVZQ1VaSHdaNDFN?oc=5) |
 | Dust storm hits Phoenix area: Look at these wild photos - azcentral.com and The Arizona Republic | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxObUJWMlVoMUU0N3B2MjZEc3E1aGJNekR5X0JEUkRTc3JIcTd1WTFoSmZHNElvU1czRW9CdFhXQUs2R2s0TzliMmhXOXp6U2VNMVlPeGtyRnFEaE5pbFVBOGU1UW9ZMEVjYnZQTEsxd3JLdWVoajFGTW9VTTVYejgzRnYzZVpKazQ0RzljcmY2SGRGb3FNRVoyNmYtQTF1cXp6TDhmUWQ3SEpuVm1Bei1WeWg0T1dYMmQyaHM5TE1n?oc=5) |
+| Trump, with order on cashless bail, continues his focus on D.C. crime - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQUTIyeGhIWk9FWlNjSlpNTE04Nnh2b09VRkxLemRMN3pOb3lJeFNvN3pYd3ZUZVZscFBJUlFXUV9KVnhBUTBPanhvc0gtOW1WUENUalJwMzhFanJkNGZvaWNXSzJ4Mi1qcGpUTk1ZZDdob2FmcGNJTjJ0dzFadTdHY3RfQy1BUHMwZURFZlFBUE4xaVBUV3lsazNXdVg?oc=5) |
+| Firefighters union leader launches bid for battleground Pennsylvania House seat - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQMl82OGo3WXB0YVJfMG15NUZ1eXBqdXhzQXFDamxlT1RGX1E5X2NiOUs5MmFPdm5ZTnlHRDVnaGdoTThweVRwZTJKLXZnTEIxNTRpbVJ1cUNPeEVic3F4YWVDUnB5LVdwQkN3X0VsZnNnZUh0TldKQm4tMERNWWVGbkdpSENSQ2MzWUVnUFBpWFZ4Zw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
