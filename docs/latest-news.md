@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 13:00:13（北京时间）**
+🕒 更新时间：**2025年08月26日 13:08:46（北京时间）**
 
 ---
 
@@ -8,23 +8,23 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Minister admits domestic abuse screening tool doesn't work | [阅读全文](https://www.bbc.com/news/articles/cr4e7yrxkgvo?at_medium=RSS&at_campaign=rss) |
 | Three dead and one injured as helicopter crashes during flying lesson | [阅读全文](https://www.bbc.com/news/articles/c87e22ryerlo?at_medium=RSS&at_campaign=rss) |
 | Nigel Farage says illegal migration is a 'scourge' | [阅读全文](https://www.bbc.com/news/articles/c5yk4r5e514o?at_medium=RSS&at_campaign=rss) |
-| Child sex abuse victim begs Elon Musk to remove links to her images | [阅读全文](https://www.bbc.com/news/articles/cq587wv4d5go?at_medium=RSS&at_campaign=rss) |
 | Schools, care homes and sports clubs sold off to pay spiralling council debt | [阅读全文](https://www.bbc.com/news/articles/cq87497v8ypo?at_medium=RSS&at_campaign=rss) |
+| Child sex abuse victim begs Elon Musk to remove links to her images | [阅读全文](https://www.bbc.com/news/articles/cq587wv4d5go?at_medium=RSS&at_campaign=rss) |
+| How Taiwan is preparing for Chinese attack with acting, fake blood and mock missile strikes | [阅读全文](https://www.bbc.com/news/articles/cp94v42gmg9o?at_medium=RSS&at_campaign=rss) |
 | Trump orders removal of Federal Reserve governor Lisa Cook | [阅读全文](https://www.bbc.com/news/articles/cx275n8gx0ro?at_medium=RSS&at_campaign=rss) |
 | Five journalists among 20 killed in Israeli double strike on hospital | [阅读全文](https://www.bbc.com/news/articles/cp89rp48246o?at_medium=RSS&at_campaign=rss) |
-| How Taiwan is preparing for Chinese attack with acting, fake blood and mock missile strikes | [阅读全文](https://www.bbc.com/news/articles/cp94v42gmg9o?at_medium=RSS&at_campaign=rss) |
 | Chocolate and butter prices help drive food inflation to 18-month high | [阅读全文](https://www.bbc.com/news/articles/cly4eme0284o?at_medium=RSS&at_campaign=rss) |
 | Gazan students granted approval to study in UK | [阅读全文](https://www.bbc.com/news/articles/cgqnjqgp719o?at_medium=RSS&at_campaign=rss) |
-| Sitting up straight isn't the only secret to good posture - here are three more tips | [阅读全文](https://www.bbc.com/news/articles/c890kejpg34o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump signs executive order targeting American flag burning - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE9ibENMX1ExaHlESXg3eXBPYlBGaGRfajZ0QkNOUjhBS3RyR0kxVTcyUU4wWEhFWTdQMzRVdjY4blBjSjQ4b2d5X19ScjM1LXdqZXZtR2RGel90eVJhOVhjWVU4cFE0RmlTS050SkhlbFhQenExMEE?oc=5) |
 | Trump Repeatedly Praises North Korea’s Dictator in Meeting With South’s President - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOZk9pbVI4ZkxDV240NmYzTkQxN1V3MHZTMjRtMlJrcDNxTFBqYlNPM2g5ZkY1SjNmcW5UcjEzeGszVlMxUHIwbm1zVEdkTDNQXzk0dUJTUTdEbTRtcTdkQlhXVGdxbEhxNzBWWFB0aUhZY2dKcE00eG1RR3o1NHhzMg?oc=5) |
+| Trump signs executive order targeting American flag burning - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE9ibENMX1ExaHlESXg3eXBPYlBGaGRfajZ0QkNOUjhBS3RyR0kxVTcyUU4wWEhFWTdQMzRVdjY4blBjSjQ4b2d5X19ScjM1LXdqZXZtR2RGel90eVJhOVhjWVU4cFE0RmlTS050SkhlbFhQenExMEE?oc=5) |
 | As President Donald Trump appears to waffle on National Guard in Chicago, Gov. JB Pritzker says, ‘do not come’ - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxQSHE2cGVMNUlzZnJTTDk2NGJsOXJUVDVXYS1udGY0ZHVBRENZeGVMdDl1NUkyYkI3WVJVZlQ2UExvVmcwdVBUWDM1R2RWaXJBSUVKVE5MMFAzRzdncXVidERrczRpc3JGUGtnNUZ5Vk1QNFFxMWJQYi00TGlGblN4QXljV2E5dVhBZGtxVDM4TUNvaFV5ZGR5ZnB5c0FLUzFGdFVhNDlFVndPYXFOMGYzaWt6WTdXYTRBdTNGbUpMZEFqMFZhZGxzY1Zldw?oc=5) |
 | Israeli strikes kill 22, including 5 journalists, in a Gaza hospital - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxObm9aZm1XLUxqVWNBRFVFbHk4NWNJZWpzV3h3NTYycHFWZE42Q3ZhYml5alZ5UTg3alM1aU5pY3BvdmFSdnRPY29nSmdoRkliWTVXSTh1Y096UDBfVzhrcEQzRUxlbzd4YzAySVYzVVV3SmFWYS15aF9CSzZhcHY5Z3lKVmhUQmZUSzlxTg?oc=5) |
 | Trump threatens to sue California over redistricting plan favoring Democrats - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPUWloYnBPR0l6MVVHQVNibi00VWp4eFNIZUY5ZFRGWHhRMGQtSjFEUGJrVG9nYW9JYTg3aXE4enhXTDN6Q0ZlRDl3RkFQUUl2R056RkJ5LTcwT0tJSTA0c0JGN05jYTRqbmxieEF5LVdHZTJXNUREa3pncnZvTU5LMEV3clgyRG9tVFVEMW1qay1fSDB3?oc=5) |
