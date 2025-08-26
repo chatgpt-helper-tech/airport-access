@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 07:17:55（北京时间）**
+🕒 更新时间：**2025年08月27日 07:25:07（北京时间）**
 
 ---
 
@@ -8,9 +8,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Reform prepared to deport 600,000 under migration plans | [阅读全文](https://www.bbc.com/news/articles/c5yk4r5e514o?at_medium=RSS&at_campaign=rss) |
-| How deliverable is Reform's plan on migration? | [阅读全文](https://www.bbc.com/news/articles/cx29l0wqlgeo?at_medium=RSS&at_campaign=rss) |
 | Energy prices expected to rise ahead of winter | [阅读全文](https://www.bbc.com/news/articles/c78zgz7j576o?at_medium=RSS&at_campaign=rss) |
+| How deliverable is Reform's plan on migration? | [阅读全文](https://www.bbc.com/news/articles/cx29l0wqlgeo?at_medium=RSS&at_campaign=rss) |
 | 'Funeral director put my baby's body in bouncer in front of TV' | [阅读全文](https://www.bbc.com/news/articles/c4gjr0ylenzo?at_medium=RSS&at_campaign=rss) |
 | Ukraine admits Russia has entered key region of Dnipropetrovsk | [阅读全文](https://www.bbc.com/news/articles/c17n1p24yv9o?at_medium=RSS&at_campaign=rss) |
 | UN demands justice over Israeli double strike on Gaza hospital | [阅读全文](https://www.bbc.com/news/articles/cd6n97gj1nqo?at_medium=RSS&at_campaign=rss) |
@@ -18,6 +17,7 @@
 | Artwork looted by Nazis 80 years ago spotted in estate agent ad | [阅读全文](https://www.bbc.com/news/articles/cq68dze2l71o?at_medium=RSS&at_campaign=rss) |
 | Tributes paid to three helicopter crash victims | [阅读全文](https://www.bbc.com/news/articles/cdd3jzl31j8o?at_medium=RSS&at_campaign=rss) |
 | Cook to sue Trump over order to fire her from Federal Reserve | [阅读全文](https://www.bbc.com/news/articles/cx275n8gx0ro?at_medium=RSS&at_campaign=rss) |
+| How the double strike on Gaza's Nasser Hospital unfolded | [阅读全文](https://www.bbc.com/news/videos/c36jdze5r4ko?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,8 +30,8 @@
 | "Mind-bendingly ridiculous": MAGA rages over Trump's Chinese students announcement - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTFBwNGZrdV9sbVplandGVG1lNFlfRkwzbURVU09rMlJvOTJNc2t6c2JRNnN1dXlqTE1XeDRzeElEeTMzOVFtNWwyaW5HM2kzUVVzZTR0b1NMSk1RaUtEZTRNY1VVU3lOOThUVVZyaA?oc=5) |
 | A Maryland resident is diagnosed with screwworm. Here's what to know about the flesh-eating parasite. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOMk9jNDZxdkJITV9UVFRGYTdJaThUdmJPaF9WekVNRldIVlYtdkRlRmp4N0lKMWNwbmx0UTRBUGdmbXJSdVRBRXh4QVBaNXhpOC15V05sQ0JORUVTbExMemx2Vks5WDJmeklVUmJQT21fSF9nUDYtOVptOWV4Smw0YUNDRnJId9IBiwFBVV95cUxNMXVRTE5xaDBNTVNEZDVtZHVhUGlxcTZuZ2Y0Qnd1SGQ4OS1nQm9sV05pMUJrcWJISUNMZ3NudlBmZXpxcmtzeTRsU0tobmpNT090eUFEQnZwZER4UXVXNjQxazJLMXJhdURTNlJCWmtwZUx5UUxLMngwbS1zelBPTS1ndTEzaU5TeS1r?oc=5) |
 | Federal Judge Allows Case to Proceed Against Wisconsin Jurist Accused of Obstructing ICE - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5YMnVBbTBRYlZYWmd2NDJHUHF3czh6aEt2RjkxdHV2LTQwX0FVQUNhWG04UGk1OHY2aDdsVHpoVFk5UTJfT241ODk0Rnhtakp3N19TVkZPV3ZEcWNTWHY1dURUcWJPSTNyMDFnakx1amNKVzFyQnpHbnFNbw?oc=5) |
-| Steep US tariffs set to hit Indian exports from Wednesday - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNREI5OEZ1STJwa0FIeEJfaldmQ2lLRm90OU0yVjc4Nll0Tk95OF9veVpaak5yLTd0S0FhWHc3bnpwaEN1dnhpcTJrQXpFdlp5a3N1U081N1dzWVhOdEJOUUJ0UTVSaWY3N1laSU9YaTZxWTV2aUhFTHI2VGpGQjJIWnJUMVVXazVNSU84Ml9qNGxWdjlMR3JaanVvY1RNQQ?oc=5) |
-| Donald Trump says he wants to rebrand his 'big, beautiful bill' - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPTkl2UHo2WF9pNkxpclR2S0h5NlI3emNyUF9tRkN6LTlVd2lzTUV4bVBtSnF6Tm93YmYwQ24tSXh0N05EMzdyc3hVUEVYX2EwLVJXd0ZWSGJOVjFldzdIcTlEeExJLUVSWUpGSmo1YmRzOUtOTDUwdktYT2NNS3lzZ0hTbTY5T3hUVnQ3OUFjMFJhOEM3WXdERF83YTZrWm91WTk0UtIBVkFVX3lxTE1JaG5yN1dKWTJiLU8wR2Q3ZmlBX1EyRlBTWGw4dG5UbS1ld04tU1NzX3RPQ2ZVZmxSZ0VRZUxxd3lfT1E1bWZVdklMVXBPYkY0YldPcC13?oc=5) |
+| ‘Clearly a low moment’: US-India relationship sours as new tariffs kick in - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOOHUxdEJ2Sl9VdW9YRFZjc1FXSldnRm83aFdobi11OUlOTXY0OFlTejJxY0NwYlYwZTJ4bldoVjRIOGVfc2p4OGZDbW16c0JNOXRITG5lcGRJOTBwVzRGekNoTjB6Z05GMEljaTVtOGQycFdWQlYyX05SZUJFZ2ktSi1fRkdKNW82YTJUYWVEZFRpcGpIR1c5cGdFdjh4bmtVdlB2ejVjd29ROHgtLUR5eUQwcW5JVkJNbEQ2amZycw?oc=5) |
+| Trump's DOT threatens to withhold funds from states that don't enforce English requirements for truck drivers - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQSXA3R0FwREg1QmdyM2l6U3FZUnV2bG83SnlYTVpOdGxmY3k2NjRRd0FJeXJ6dWxuMWJyTTlOY010ZzUzVjVzTExndmtSTE5QNVYzM2ppMW9rajhscG92YlhnRTZxN3NQRHFwbUNKeWFPMTh3b2U4U0U0NTZjV0tIbEVIdWxPRkZ5cUZoWVc2TE5tUVZ6VWhPR0JpWlBrdGw1SkNKemtkS2Y0ejRhaTlUbE82TVBiQ3V1VW82aGV5TFdydFpT0gFWQVVfeXFMUG5MdlFsUmFHWGdoQmtZT2VkTHAzdWcxdUFfZzZFNnIycW8wWmRvaVl3Y2lHQUNTb2xLSHM3bXlpY3RXa3N5dDdfV0RhRmVJanBTeE4tdUE?oc=5) |
 | Towering dust storm known as a haboob plunges Phoenix into darkness - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQbmNHXzRvcXhNVDBCNFZqdjFWeGlnaWJoQVpZTEMwOE9FQWxkS1pyQUM1Zk5iMF8zZUdIUUZtMXd2UGlDem1VNWlWZFhyYmZaeWtaYzNLdTczNEJpSEQ5LVlYTVhwWEZUQ1pFYTB2dmJ4VTE4YnJMclJyWDRXaG9OSG1Yb2wyYUVscDdJSEFoQ241VWQySTh5b0JVbTQ?oc=5) |
 
 ---
