@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月26日 08:57:03（北京时间）**
+🕒 更新时间：**2025年08月26日 09:00:40（北京时间）**
 
 ---
 
@@ -12,12 +12,12 @@
 | Five journalists among 20 killed in Israeli double strike on hospital | [阅读全文](https://www.bbc.com/news/articles/cp89rp48246o?at_medium=RSS&at_campaign=rss) |
 | Child sex abuse victim begs Elon Musk to remove links to her images | [阅读全文](https://www.bbc.com/news/articles/cq587wv4d5go?at_medium=RSS&at_campaign=rss) |
 | Schools, care homes and sports clubs sold off to pay spiralling council debt | [阅读全文](https://www.bbc.com/news/articles/cq87497v8ypo?at_medium=RSS&at_campaign=rss) |
+| Trump orders removal of Federal Reserve governor Lisa Cook | [阅读全文](https://www.bbc.com/news/articles/cx275n8gx0ro?at_medium=RSS&at_campaign=rss) |
 | How Taiwan is preparing for Chinese attack with acting, fake blood and mock missile strikes | [阅读全文](https://www.bbc.com/news/articles/cp94v42gmg9o?at_medium=RSS&at_campaign=rss) |
 | Chocolate and butter prices help drive food inflation to 18-month high | [阅读全文](https://www.bbc.com/news/articles/cly4eme0284o?at_medium=RSS&at_campaign=rss) |
 | Gazan students granted approval to study in UK | [阅读全文](https://www.bbc.com/news/articles/cgqnjqgp719o?at_medium=RSS&at_campaign=rss) |
 | Sitting up straight isn't the only secret to good posture - here are three more tips | [阅读全文](https://www.bbc.com/news/articles/c890kejpg34o?at_medium=RSS&at_campaign=rss) |
 | Ukraine's naval band joins Scots Guards for joint performance | [阅读全文](https://www.bbc.com/news/videos/c627qgke3w3o?at_medium=RSS&at_campaign=rss) |
-| Draper 'almost happy' to drop a set on US Open return | [阅读全文](https://www.bbc.com/sport/tennis/articles/ce87j8md4djo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
