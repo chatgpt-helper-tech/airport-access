@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 05:41:13（北京时间）**
+🕒 更新时间：**2025年08月28日 05:49:29（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Grand jury declines to indict man who threw a sandwich at federal officer in D.C. - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNYXhpZ1gyUDBQY0RuM0YybTRzQTk2VnVWR0I1Q3JjY3E4ZDVfTUxBZExJeENJUmhoNUJQY3JMN1NHM2V0Vl9FbnVaMFREaUpyZlNSbVpaakF4bmRRczhPLXFWUVBpNUZvU0JFOU8zMjRXbHNjaTdLclBWTDA0Y0loNkpwMGFOcHhnUUctMC14ZDh0eVotZ3F2NlRYT3VfX2hBLXFiZ2VDYUJUb3JXLVNXVTdHMFZjblFCaV8zRGMwN25vSTlY0gFWQVVfeXFMUGNzTXBmM3BvMGU3X3puRGx3Tzl1THpwbXZrVk5fbm9SZXAxZEJSbmZ0UDhzZTFSeVh3SXNMVTB2OEZubC1zbi1iM0VnRTBXNUJCRVlyRXc?oc=5) |
 | D.C. mayor: "Masked ICE agents" and out-of-town National Guard are ineffective - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQbkFlOERkeXRscTBmd09TMVJGT002QkJEQ0FyaGctM3ZMTkxGdy01WmwtMWRuLWp3RWdubHQ4cGtvMHoyVGxCLV9Bc1NVMWFJa08tUGF0dGZ0NUhIQjd2aGMwY19xYm9SN0dBdVdQc3l0ZUVMQnoxaC1xcmNDMXhDQw?oc=5) |
 | Denmark summons US envoy over suspected influence operations in Greenland - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQWWM0WWlvdkNRRS1WZzU2bVNEN3FyVjI5VWNvdTBwS1VFcEpGTGE2dEctcGNKWU9QZF9GZlhlZXp0M25xcjNJdnhWY1lZSXowOGRRdEoyRVFxNG45SlQ1WHZTSEVYOGpaOEpsYUZqbmtlS0V5WVJNeUJaX0RJcHE0bE9mNFFoWUhSRVpsRzVjMDd0SDNXMzBiUmsyUEpxUzB4aTg2M05SaVllcXl6cVNUdFRYa2d2N2gydWNB?oc=5) |
-| Trump administration to take control of Washington's Union Station - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNUlNCT2lyT2VJYlJTa2hPdjNsZDdQRVBKbWxPQWpYckVtN3hHRjlOREJEa3RSQ3NDeHliTHkxOHh4RHlteERsVnR1aDQzTnZxX2N1eEhFNllfU1BXenA2X0x4SWlwckhyRmkyQTd6RlZIM3lYdGlkVjZ0cVFrZFAyckgtTURkZDk3bkZwajlIc2lLRGJTSXZtSXVNQTFsNUlVWFo2MTZR?oc=5) |
 | CDC Director Dr. Susan Monarez is being ousted just weeks into her tenure - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE43THJWX1lSZXl1NkdVUTlyQktCVFVfd3B4RW5DM3JFYnhUQVJoMzRYUDk2aEd3QTlJUVFOLVRJVktZQzBadERlNGFUeHVjYXZ0Mzg0LTFvcEtPcTA1dWpNcXp6d1J1NDlGb0E?oc=5) |
-| Kilmar Abrego Garcia files new bid to stay in the US - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPb1RNelR1MTlwYkRNc0J3Q3dKTGt2NVNZT1RLQUxDWFlHdWVjdU5GUFFSODBGaTBCYkQ5Z2pfWE05NnlpMndLandaLXJSMDA5QUlRNVdMNFdySkdRbGZJeEhEeTZDc09iYTdLa2RKUDBvYzhRa0pXelMwWWl3am9fZVlMbw?oc=5) |
+| Trump administration to take control of Washington's Union Station - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNUlNCT2lyT2VJYlJTa2hPdjNsZDdQRVBKbWxPQWpYckVtN3hHRjlOREJEa3RSQ3NDeHliTHkxOHh4RHlteERsVnR1aDQzTnZxX2N1eEhFNllfU1BXenA2X0x4SWlwckhyRmkyQTd6RlZIM3lYdGlkVjZ0cVFrZFAyckgtTURkZDk3bkZwajlIc2lLRGJTSXZtSXVNQTFsNUlVWFo2MTZR?oc=5) |
 | Top Trump State Department official Michael Anton to depart in the fall - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQV1BjbDVha01FNURSdjV4WFFicHRWaVVjOVNlOEh4dVNBMHN1NWhXVXZkTUdmWUJQNkVHeUZUcFVJd2ZlYVpVZWdINlZjS0JIdjVhMUljQ2RiRkhzMTNsb3Y4ZjNoRnd6cldNYnJpYWJDWWZfRGNCb2lJWFl4RDZqQjhCaWg0aHF6d0xWTE95bXA?oc=5) |
+| Kilmar Abrego Garcia files new bid to stay in the US - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPb1RNelR1MTlwYkRNc0J3Q3dKTGt2NVNZT1RLQUxDWFlHdWVjdU5GUFFSODBGaTBCYkQ5Z2pfWE05NnlpMndLandaLXJSMDA5QUlRNVdMNFdySkdRbGZJeEhEeTZDc09iYTdLa2RKUDBvYzhRa0pXelMwWWl3am9fZVlMbw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
