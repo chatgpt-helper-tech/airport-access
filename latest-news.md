@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 11:25:39（北京时间）**
+🕒 更新时间：**2025年08月27日 11:33:46（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Abrego Garcia's attorneys ask to reopen his immigration case to seek asylum - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQVWxrVG5TdDNFNEduVlJ3VGlhNHhoVVB3TEVwdnAwLVF5TG1peHNrZWZFcmplbHd3NGh3Qm1CbmtwaHhoS0t0WG1sTHVtbmM4Qndid2hLREdxcFFZb0NKQWI3eVpjUmRoR1VWeVdoV2xhcXdSalRTSVdtUHpRTHZmcTNYVnlvaEFOeVhVMDdJSDVDQmxhdUJ3d1BVT2hBLUNNN0VPcG1MZ2VuWHZIU0R2eNIBtgFBVV95cUxOeVJvZHROLVJvNHd6NGxqWUNieHdYTS1TUUFkSEgyeXR3R29KWlBickJzU0FYNmh6YmJnTmZtTzBqVjAwek1wRHVXZERWWlBNZWtESzREd2VjNk1rdThvUVdDWlZhNWhRN2RLUjVodGh2Um9FZ0hWcndPSlVwTkpMM0dSR1lfM285alhfbWxIZnJQTkxCcWxSLWdRV1pxelNLOEkwTWxJdVlmOTFpZ0l3R25ETHJhZw?oc=5) |
-| Court tosses lawsuit by Trump against Maryland federal judges, calling it 'potentially calamitous' - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQZkQ5NXJnVzFNdWYtMXFmWksya3VrdUZVRkhHNDJOWUhnUjU3ZDNzNlpBYk5lczNtRV8wOTVQcjVYbHkxOUNPWkJka2pLVE02NVJqNnFWeVdCanNzT1pBS2VET2N4amRCMmJReEROVXhRaWhLUVEzLVV4MlNxY0ZfRElKakpLaTlJVVV5MFB5SkdCRGM?oc=5) |
 | DOGE put Social Security numbers and other data on a risky server, whistleblower alleges - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOLTVsRXZrdllQd3BYZEVwcy1sWXpuUlNpWFRUdW8xUm9lMGdNcXVTb2VES3J2S1h6OUprZzE2NGctMVB0cUlsb2g2NEJjeEJYZkVtUUJzVDdkOVpvMjdBN0d5NFFsUHg0VDJEbW1uLTk2YmJrZTlnSUI3LUdkNHJpSmt0OHdWLUVMMDVLakxNdnpHWnpMS21EZmZwalBFTjkzV0N5X0RxLTBDZWw2cC1pTExuMy1NUDM2YWFF0gFWQVVfeXFMT0RxblhSRXdPb0NPM1N6S3Q3SEZXMVhwMnJiRnN5Ukl4aE12Q3J2UV9URms2YnIwYnJvWVByLUVqSVpLUm9TWkJsb3NpOGRmNS1qTGZZMUE?oc=5) |
+| Court tosses lawsuit by Trump against Maryland federal judges, calling it 'potentially calamitous' - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQZkQ5NXJnVzFNdWYtMXFmWksya3VrdUZVRkhHNDJOWUhnUjU3ZDNzNlpBYk5lczNtRV8wOTVQcjVYbHkxOUNPWkJka2pLVE02NVJqNnFWeVdCanNzT1pBS2VET2N4amRCMmJReEROVXhRaWhLUVEzLVV4MlNxY0ZfRElKakpLaTlJVVV5MFB5SkdCRGM?oc=5) |
 | Illinois governor hits back after Trump mocks his weight: ‘It takes one to know one’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQNF9sYzIzZWh6UjR2SEk0alpMS2paVE9ZSGlMZlYtUnp3UlM5aHF6V295Z3diazhSNkgzNFVMZUxsV1RFYUxRX1JxNTdqd0Jxc1dOREtkMDloVzVWTzQyY21RbjNQNWRZUERTNGhUeHJfUUZPalU0UnFTQTdiY19mSk9OWnk0ejNEbVJwaVFR?oc=5) |
 | A haboob covered central Arizona in dust. But what exactly is it? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZDlIQUNnbm5QLXpDaFIxQ3RtZW1JRGY0MU9OLXBIVk9sWGg1SUY2ckUwanpyU2l3ZzdocWU1MzRxd2dBd1BrR0N5Y2l4Zy1ubXJmSGVSdThoV3laY2cyQ0Jwb2YzejROUklnTnp0WWlDdEJLN2YzaFRSRldLMkhxbTlfVQ?oc=5) |
 | ‘Clearly a low moment’: US-India relationship sours as new tariffs kick in - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOOHUxdEJ2Sl9VdW9YRFZjc1FXSldnRm83aFdobi11OUlOTXY0OFlTejJxY0NwYlYwZTJ4bldoVjRIOGVfc2p4OGZDbW16c0JNOXRITG5lcGRJOTBwVzRGekNoTjB6Z05GMEljaTVtOGQycFdWQlYyX05SZUJFZ2ktSi1fRkdKNW82YTJUYWVEZFRpcGpIR1c5cGdFdjh4bmtVdlB2ejVjd29ROHgtLUR5eUQwcW5JVkJNbEQ2amZycw?oc=5) |
 | A kayaker faked his own death to meet a woman overseas. He’ll now spend 3 months in jail - CNN | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE1zYnNqamQyTU95cjRwVDBYRldUOXJpWk5ueVhNTXBoMFdWUnU5X0s1d1lFTHZCM1d6eV9jMy02T012dHNYbEZmREtSdmk5ZmVkOWM0WTFDcWhGM05xYTYycUlhVlZFMEptTU5J?oc=5) |
+| Jokey Names for Detention Centers Face Criticism for Insensitivity - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQMDV4MWVuNW5vd3lPWWRVTUFuZG41S1lQejBKMWdIQnowYkIzWFhVOW0yWnJVR3F6alNEY2VPenM3SUVmc0VIX013S21hb3dfUEhJY2tCY3BZUDVIdUdMZ21DcElxOGxqdktIbE1pZVFfcnFSRlQ2MmI1RGZxbmhjUW1sZjBpZndRMHFoTkc0R3pZVDRIY0pONWVwdHViNlVHZlFRNU1VX21KODdkOFE?oc=5) |
 | FEMA employees put on leave after criticizing Trump administration in open letter - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPbXRObUxKSFFyS3F0ZnRvVGxHWXhqcG5mdkFLOTl3VnIzbWk2bmtHLW8wdll1Ny1CWTlyZHU4ZENBNW1fNEpvQmd0UlZ5WnNqZnR0MDU0WDFJZE1uTlBhN1hJLWVMUjVubUIydE8xWnMyV0xfREV1bXBqcUgybl9wWm5TbFVjSVloUllmRWNaR3c1bUlLcVdubDA0azNyTUFiRHF3X2kyclJjTDVfaHBFOA?oc=5) |
-| Trump Calls for Death Penalty in All D.C. Murder Cases - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPeEJkQ0xtWDZCSUk1UTg3NHJ3SXV0VV9UYnhDQ0JZQ01mTHB6V3JRMzN1eEdOblAta3NzbURFOWR5amE5M21WeVAzTWU4Nk5vZHJPbnFDYUxCek9EMzd0QmI5MFlMZ002S2ZvQmJRM3VXZ2ZCR05aVkhqM3h6bzgxVllxM2gyNmda?oc=5) |
-| Justice Department asks Supreme Court to allow Trump to withhold foreign aid - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNRDh6Sm5uVW5WcjVhMmU5UW5PR21zRWt3V192X0MzYXBuTm1vY3NRNWRGMnhxR2JtbEQ3d0ZiNnRjeVJRYzRPM1p5aXdtaU5IckU5NnNGaUZoWFVOOHNSakQ2OGxJb0tQTHE1UGVIVGVHTk9naDc5TDlkZl9LOHQ5ZjZMdG1lUTZ4WnQ2M29uT1lFaXlxU3ZsV3lR?oc=5) |
+| Trump seeks death penalty for D.C. murders - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOWlJldmxQQ08zU2hBaEVFcUl0eTZXbV9renEzMDhGWXdhRzBQaEhxa1dpa05selgyejdUUGxnUEVfSWpqaGMxeHFRMF9HZUlHT3NGRnVNbTRBV1pqV3hELXRQdS1CM01HbXQyR09CS05SVndVY1dWdHo0YVpYNlo0aTZtNUpTM3A4NVBTMG9pWDI?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
