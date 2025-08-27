@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 01:01:40（北京时间）**
+🕒 更新时间：**2025年08月28日 01:08:11（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Judge blocks administration from deporting Kilmar Abrego Garcia until at least October - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPNVpoYTlBUGNiNmUyWURRMVlYU1hyLWk2N01aZnRJajk4SHIxWlJvd3Z4aXNHWm40MW02RUFtcHkybEFoaTdxaXlFRERocTgxNUN2a1lzN3FDazUyZHA5Q0Q1Ujhvd3ZIVjEzeVNIREZTWWhyN0xJb2g4aHFtOHRYX1lRdkRnUVh6UkdJdmdZRjEzRzFBZG9MSUdFZjNGTDBrbG0wMV9HOHd5N0pfU1dyeNIBtgFBVV95cUxPclVwVnZVSHI2eUZWZUZEdVJoZUdYSW5CLUF0azJaVzJKYXgzd280SFRXSndFMWhfUEFaQkh4UExBS1gxNW1TWU1uZmFUU0RtVkRtV0ExV1dlOGExTEZiek00MlM5NnVVSkU4YmhlOW15QjFsbFBsRlZCczg0RnVoU2JwaVpuXzM3MUwwLWtEM1hFb3ZlUm9OaklaMl9MZXhHdHFzQ1FRdE1Na21XcEFkblgwLVRKdw?oc=5) |
 | CBS News analyzed D.C. crime data amid National Guard deployments. Here's what the numbers show. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPeG9IaXZVc01xSS1FaDR0Z0FLeFV0THVXS1d1QnB4V1Y0S09ieFNFcGRibE5xTlgxNVNxcjFONWtDMFA0cGJiM0VLanFUb2Z1X2ZwLXBDQkJXcVNzY2FNS1AzRFpYU1BIUXk0Zzl5RWdnUmhTWldLTEVCRFJuaHFfUnVDM1NGd9IBiwFBVV95cUxQdjN2RG1JZzZHVHpoNzFSMjFydE1iWkxheDBVTDYwX3NGVlU2eS1tOVFEZlVsLUxEM3RNSmRtU1haOWVvYkpxVzZJdGo0bjktX1dfVUFxZzNfd24zZXpzYkpNdnhKSUNDTXp4NU9IMGg4WWlrVVZzbFE5VzR1MnVyb0JxSXpEYTNjQUxZ?oc=5) |
 | FEMA employees who signed letter Monday critical of admin placed on leave - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNSkFMVFdDcWFIS0lyT0VQTHpPSnZ5RDJqVlRrQmptYmVKRkd0UHJpajFDc3VIYXNSNURPcDdxT0I4cEdqaVRLSFVXS3g4Z24tWEpXSUl1VTRhdHV5Z0hXdm9DNWtFLXEteWo3QWl2QTFwSUsydFhPbGZZc2o1N2lYWjdZSlpPcmdPWFlhZXJDd19oakpoZ0l4SXZqbTMxajRPUy1lVmx2M21ld1XSAbABQVVfeXFMTWktTmtjVzhqUVk2clg2X2hWRWpETm1ESEZUYWE2NkhJQ2txMzFyOVI0QXNpUjhOQ0w5SWgzMHlTUkR2eUQwTzhReDR4STVmVjY2OVJ3TFV4UnJfbzZtNXFzNDFGWUR4Z3pQSFh0TVkxaS10Z2VYX0g2dVJ3LXhicWlXeDh1VnV4XzNQTkotOVdHMEo3dnRVYUpsNjVsc0dpVUxuODFJQWc1TmR5N1NNYk4?oc=5) |
-| Trump’s planned Chicago blitz would use naval base to house ICE agents, possibly National Guard - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxNd0tCUF9EM1ROMldtWHFSN2VtUEZxSlpVdzVLQUNZZE9rLTZDdnpLOEE3N0NwMlp5eTI0NnZrSnJsWWdvVHU1ZDdHQUdLWWU3azBaM2pkOHFhMktUclhaSUp1Vy1tV0lYZ2JzTmp2Mnl5LVJZdEpJWFhDLWljaG5oVFN1ZEdSWExpV2VBcFhrTWMyNDQyOG5EXzdBU2xjcDNSM0hmRUFrUnVzLV9uVm1uMExCYjVORUZKRnhWNDJpbGgxVVVsVVJjM3RiY2c3N3Z3aGJtNHlJXy04UQ?oc=5) |
+| Man who burned flag near the White House says ‘it was my right as a citizen’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQYm9mSi12UFFqbUpJNDFsNDM3OTlFVTRvTTJfbUhfelAwOVhPZHFhVE82ZHdOMWFncVh6d2hTQmZfZ2VPQldJazhJbHJNWWtBeFVfYUN3Mk9tZ2pyYWJtckdnRjN6YUlZSGllQUZQUnZwTW8td3BVanViR3R3cnVWbWVLOWNfd2c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
