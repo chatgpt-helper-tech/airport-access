@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 10:57:12（北京时间）**
+🕒 更新时间：**2025年08月27日 11:00:17（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | A kayaker faked his own death to meet a woman overseas. He’ll now spend 3 months in jail - CNN | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE1zYnNqamQyTU95cjRwVDBYRldUOXJpWk5ueVhNTXBoMFdWUnU5X0s1d1lFTHZCM1d6eV9jMy02T012dHNYbEZmREtSdmk5ZmVkOWM0WTFDcWhGM05xYTYycUlhVlZFMEptTU5J?oc=5) |
 | A haboob covered central Arizona in dust. But what exactly is it? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZDlIQUNnbm5QLXpDaFIxQ3RtZW1JRGY0MU9OLXBIVk9sWGg1SUY2ckUwanpyU2l3ZzdocWU1MzRxd2dBd1BrR0N5Y2l4Zy1ubXJmSGVSdThoV3laY2cyQ0Jwb2YzejROUklnTnp0WWlDdEJLN2YzaFRSRldLMkhxbTlfVQ?oc=5) |
 | Trump seeks death penalty for D.C. murders - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOWlJldmxQQ08zU2hBaEVFcUl0eTZXbV9renEzMDhGWXdhRzBQaEhxa1dpa05selgyejdUUGxnUEVfSWpqaGMxeHFRMF9HZUlHT3NGRnVNbTRBV1pqV3hELXRQdS1CM01HbXQyR09CS05SVndVY1dWdHo0YVpYNlo0aTZtNUpTM3A4NVBTMG9pWDI?oc=5) |
-| Trump administration asks US Supreme Court to halt foreign aid payments - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQNFB2UXpsU1NpQUZqNHBadEw1WnQwSkxublpkR0UzY3cyZnNLYTFSckp1VmpzZGw0c2NsdmswNnJPd0pKNFB0dG9QVExFWjZTVWN3ZkxJczE5WU9uNG4tdXFwa21VU1VocEVHVk1saWhjWGlPdTNGUXlxdEtHMFJsd3RKcHRuWWk1aU9hYk1hcV9PeTM0Z2hQUXZDaHhxMHdNMWgtc3R0eWY3QVZCTjFxZWVNdw?oc=5) |
+| FEMA employees put on leave after criticizing Trump administration in open letter - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPbXRObUxKSFFyS3F0ZnRvVGxHWXhqcG5mdkFLOTl3VnIzbWk2bmtHLW8wdll1Ny1CWTlyZHU4ZENBNW1fNEpvQmd0UlZ5WnNqZnR0MDU0WDFJZE1uTlBhN1hJLWVMUjVubUIydE8xWnMyV0xfREV1bXBqcUgybl9wWm5TbFVjSVloUllmRWNaR3c1bUlLcVdubDA0azNyTUFiRHF3X2kyclJjTDVfaHBFOA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
