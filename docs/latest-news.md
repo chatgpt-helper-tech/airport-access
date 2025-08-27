@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 07:33:09（北京时间）**
+🕒 更新时间：**2025年08月28日 07:41:18（北京时间）**
 
 ---
 
@@ -14,9 +14,9 @@
 | Blair joins White House meeting with Trump on post-war Gaza | [阅读全文](https://www.bbc.com/news/articles/c4gmrxd8ryno?at_medium=RSS&at_campaign=rss) |
 | Jacqueline Wilson on the 'easiest and hardest book I've ever written' | [阅读全文](https://www.bbc.com/news/articles/c7vl097jd8eo?at_medium=RSS&at_campaign=rss) |
 | MoD staff warned not to share hidden data before Afghan leak | [阅读全文](https://www.bbc.com/news/articles/cwy5e911j37o?at_medium=RSS&at_campaign=rss) |
+| Value of small parcels from China to UK doubles to £3bn as Shein sales soar | [阅读全文](https://www.bbc.com/news/articles/cnv78eey8plo?at_medium=RSS&at_campaign=rss) |
 | Reform rows back on possible child migrant deportations | [阅读全文](https://www.bbc.com/news/articles/ce83x1457lyo?at_medium=RSS&at_campaign=rss) |
 | Taylor Swift's engagement ring, and the celebrity trend for big rocks | [阅读全文](https://www.bbc.com/news/articles/cdj20v20r79o?at_medium=RSS&at_campaign=rss) |
-| Solar-powered postboxes with parcel drawer rolled out across UK | [阅读全文](https://www.bbc.com/news/articles/cgln72rgrero?at_medium=RSS&at_campaign=rss) |
 | Apple warns UK against introducing tougher tech regulation | [阅读全文](https://www.bbc.com/news/articles/ckgj9kjmvzzo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
