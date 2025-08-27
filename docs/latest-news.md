@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 16:24:35（北京时间）**
+🕒 更新时间：**2025年08月27日 16:32:33（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| US tariffs on India hit 50% as Donald Trump-Narendra Modi ties sour - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5OdTItTEVBdU5PNmtkMXRtUTA5azIyMVprZ3dDX0RTeGJmaUktdWF3ajA0cWU2clZya1kxRXdQaXhZOWFMWnk1YWhkc0JWVTloMExfcGlaZ2VrYndnTm5IR1NIQUNfY3hrZU9tX2JscHI?oc=5) |
+| Trump's doubling of tariffs on Indian imports takes effect, hiking tensions - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOeVpvMkc0dHYtY1ZSZzBZd1NwSXNFQ1VfbGJHeURVenZBOGhQZkVxU0tFREZVQlZ4NXA2TnhNVF8xZU1GMTJmOXN6RDBOaVpPRjZ4NHhhX3BNM25nVWktTkl3U2YzUl9DUzdXWld5TnBJRWQ0Vk9PZ0IwdTRpZ2tEQ0xvd0VKMnI1UWhsOTl6SzJBUHFCcmdzSmdKS2Q0Tk9CWnAzWXlFdnVPZzc1T3dkQzlnQWUtZw?oc=5) |
 | FEMA employees put on leave after criticizing Trump administration in open letter - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPbXRObUxKSFFyS3F0ZnRvVGxHWXhqcG5mdkFLOTl3VnIzbWk2bmtHLW8wdll1Ny1CWTlyZHU4ZENBNW1fNEpvQmd0UlZ5WnNqZnR0MDU0WDFJZE1uTlBhN1hJLWVMUjVubUIydE8xWnMyV0xfREV1bXBqcUgybl9wWm5TbFVjSVloUllmRWNaR3c1bUlLcVdubDA0azNyTUFiRHF3X2kyclJjTDVfaHBFOA?oc=5) |
 | Israel Links Deadly Hospital Attack in Gaza to Hamas Surveillance Camera - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNVFpGd0VoT3Nsd1BVMkpFYlhINjF3XzNMM1B2eUhnNzBUcGdGRTRLLU8xS3JSN09hQWJMOU9RaUoyNHJUNGlJc3VIdmR2NXhBb3Fsa3JHcERYb1ZQVVhQN2NJQlhiSkk1VXUxUFl1QXhZYnlzMldjSm9CQmkzQWEtVDNXM294UWpENC10dkxpWVBoQnBzc2UtcHotRGFGdw?oc=5) |
 | One dead, 6 hurt after shooter opens fire with high-powered rifle in Minneapolis - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPZVkxeUowSk1KendaaTBNVkRQM082QlBaa0p6TmdwMG9lVXpXclRYNG9vc3lpSzhuMTFwTl82amMtMFY1MERqX2VkVUlHVDcxd19lWFJEWmF0LVVST1hhaTJXY3BSc3c2XzhTMzh4ZkVxN01YUUpnaTMtX3VDUW9wcHNUSkVXQQ?oc=5) |
