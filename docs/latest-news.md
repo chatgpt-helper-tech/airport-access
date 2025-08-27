@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 11:48:28（北京时间）**
+🕒 更新时间：**2025年08月27日 11:56:32（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | ‘Clearly a low moment’: US-India relationship sours as new tariffs kick in - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOOHUxdEJ2Sl9VdW9YRFZjc1FXSldnRm83aFdobi11OUlOTXY0OFlTejJxY0NwYlYwZTJ4bldoVjRIOGVfc2p4OGZDbW16c0JNOXRITG5lcGRJOTBwVzRGekNoTjB6Z05GMEljaTVtOGQycFdWQlYyX05SZUJFZ2ktSi1fRkdKNW82YTJUYWVEZFRpcGpIR1c5cGdFdjh4bmtVdlB2ejVjd29ROHgtLUR5eUQwcW5JVkJNbEQ2amZycw?oc=5) |
 | Iowa Democrat Appears to Flip State Legislative Seat in Upset Victory - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPX1dKclBrc2JjRjdqdDQxRkE5dkE0ajV3Q1Fsa1Q3UFNTVkpmU1EyQkd3M1o2Wk9fUzNsNzBsQjF0VDc5Rk81TmpuMkNZazluNXZMbEZLUnZOd3hVUGpQV3N0Q01LQWQ4Qm5rWnZjMEViWXBXdzluSTRvZ0YyMW9uQnl2SVdUZ041LXc?oc=5) |
 | A kayaker faked his own death to meet a woman overseas. He’ll now spend 3 months in jail - CNN | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE1zYnNqamQyTU95cjRwVDBYRldUOXJpWk5ueVhNTXBoMFdWUnU5X0s1d1lFTHZCM1d6eV9jMy02T012dHNYbEZmREtSdmk5ZmVkOWM0WTFDcWhGM05xYTYycUlhVlZFMEptTU5J?oc=5) |
+| Jokey Names for Detention Centers Face Criticism for Insensitivity - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQMDV4MWVuNW5vd3lPWWRVTUFuZG41S1lQejBKMWdIQnowYkIzWFhVOW0yWnJVR3F6alNEY2VPenM3SUVmc0VIX013S21hb3dfUEhJY2tCY3BZUDVIdUdMZ21DcElxOGxqdktIbE1pZVFfcnFSRlQ2MmI1RGZxbmhjUW1sZjBpZndRMHFoTkc0R3pZVDRIY0pONWVwdHViNlVHZlFRNU1VX21KODdkOFE?oc=5) |
 | A haboob covered central Arizona in dust. But what exactly is it? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZDlIQUNnbm5QLXpDaFIxQ3RtZW1JRGY0MU9OLXBIVk9sWGg1SUY2ckUwanpyU2l3ZzdocWU1MzRxd2dBd1BrR0N5Y2l4Zy1ubXJmSGVSdThoV3laY2cyQ0Jwb2YzejROUklnTnp0WWlDdEJLN2YzaFRSRldLMkhxbTlfVQ?oc=5) |
-| FEMA employees put on leave after criticizing Trump administration in open letter - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPbXRObUxKSFFyS3F0ZnRvVGxHWXhqcG5mdkFLOTl3VnIzbWk2bmtHLW8wdll1Ny1CWTlyZHU4ZENBNW1fNEpvQmd0UlZ5WnNqZnR0MDU0WDFJZE1uTlBhN1hJLWVMUjVubUIydE8xWnMyV0xfREV1bXBqcUgybl9wWm5TbFVjSVloUllmRWNaR3c1bUlLcVdubDA0azNyTUFiRHF3X2kyclJjTDVfaHBFOA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
