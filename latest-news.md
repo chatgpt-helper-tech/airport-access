@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 21:48:05（北京时间）**
+🕒 更新时间：**2025年08月27日 21:57:13（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Deploy National Guard to Chicago? Trump Says He Has ‘The Right to Do Anything I Want to Do.’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPdUx0bEZEeUR0VXpLVTB1aER4WV9sVU14WHNFTndqM1h6OUMxUUx2elFjV2pZOTZFdnNSQ2lGeHNkNm9DREhhQThyeVM4LTJuSzBvSExmSVJiWjJXZnNhbU5kQkVJVVFJdFd4YlNnOGFYUFFQUW5iMUZkUXVHTzhlQl83aFpOZHpjMDE1LTFqN0VwTmM?oc=5) |
 | MoMA Film Series: Reclaiming New Orleans, 20 Years After Katrina - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNRUU5dFQxOXVQTmdZSGtVMWVXNUt6cGdkWGIxN0NOWDJLTjBDb3lNZDJJVVhjeHdERndKUGdQOXdieHJnUFRWX2l4eFhQX1plcG5Kb2U4bHdKcEpJME15bHFoYkdVOFBpcHdGSlV1Rk02Tk1aZ3V0RXMzN3BETnlfYlVLUk52WVZfTVV5QU1VZklHeDkyNnZ5RQ?oc=5) |
 | CBS News analyzed D.C. crime data amid National Guard deployments. Here's what the numbers show. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPeG9IaXZVc01xSS1FaDR0Z0FLeFV0THVXS1d1QnB4V1Y0S09ieFNFcGRibE5xTlgxNVNxcjFONWtDMFA0cGJiM0VLanFUb2Z1X2ZwLXBDQkJXcVNzY2FNS1AzRFpYU1BIUXk0Zzl5RWdnUmhTWldLTEVCRFJuaHFfUnVDM1NGd9IBiwFBVV95cUxQdjN2RG1JZzZHVHpoNzFSMjFydE1iWkxheDBVTDYwX3NGVlU2eS1tOVFEZlVsLUxEM3RNSmRtU1haOWVvYkpxVzZJdGo0bjktX1dfVUFxZzNfd24zZXpzYkpNdnhKSUNDTXp4NU9IMGg4WWlrVVZzbFE5VzR1MnVyb0JxSXpEYTNjQUxZ?oc=5) |
-| Man who faked death, fled US gets 89 days in jail for the 89 days he was missing - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQSWVaaWRpTWR4ZEE4eXQzeEhlNF9sWldiN0NUekI3OVoyN0MxaThFOVBjZ296SEdSZVBGX19ZSFhfUTNsUkJBeFRWNTA3TWxhYWJPRlZQTnJsVWlWcUhyOTRxWHJWTEVlai1EVGRieXM1RXZQNFBzTkI5cWU5SmY0c3FkcW9lYm1U0gGOAUFVX3lxTE1RS3gyRHoyUExhc2dlTUVoUmQ4SmU1VXdJUXU4UDVIMEd3c19lNnR1YnA2ZU5ta0I4N3pkZWZ0SjFKR0tvNldmZFJ0TTc5SG5LLXlqU2xRdXNmb2NTM1ZRdUtrajQ2THdJNzVXSnhJTUIwQUFCX2VueTB1Tk1ETVVvSS1kX1BGWXFuSEdOdHc?oc=5) |
 | FBI urges students to be vigilant amid wave of swatting hoaxes - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1JbjNFS0xvQXZCZDZsRVJEWWtBOXE1eWpld2FFalZfZUVHVmdieUFzVHlMNEZkajEtUzdkWjNhd3JfNlZFLXBUZlJOcWF0STZPSEVZQkVWeHRWUdIBX0FVX3lxTE5iRXhxVGRQV2lseERmVlJwQjE0SkhrcURfN3U2ZDdaa0d4UnkyOVVXWm01R0V5ZmEzSHYwQjZEMDJLZTZmc19oNXJXajJCZDY3bnRsQTNxN1RYUU5DNnFR?oc=5) |
+| Man who faked death, fled US gets 89 days in jail for the 89 days he was missing - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQSWVaaWRpTWR4ZEE4eXQzeEhlNF9sWldiN0NUekI3OVoyN0MxaThFOVBjZ296SEdSZVBGX19ZSFhfUTNsUkJBeFRWNTA3TWxhYWJPRlZQTnJsVWlWcUhyOTRxWHJWTEVlai1EVGRieXM1RXZQNFBzTkI5cWU5SmY0c3FkcW9lYm1U0gGOAUFVX3lxTE1RS3gyRHoyUExhc2dlTUVoUmQ4SmU1VXdJUXU4UDVIMEd3c19lNnR1YnA2ZU5ta0I4N3pkZWZ0SjFKR0tvNldmZFJ0TTc5SG5LLXlqU2xRdXNmb2NTM1ZRdUtrajQ2THdJNzVXSnhJTUIwQUFCX2VueTB1Tk1ETVVvSS1kX1BGWXFuSEdOdHc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
