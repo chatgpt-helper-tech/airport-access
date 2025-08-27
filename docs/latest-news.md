@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 12:49:55（北京时间）**
+🕒 更新时间：**2025年08月27日 12:56:14（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Multiple FEMA staff put on leave after letter criticizing Trump admin - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOaFVQSjhJUF9kdVBFODJMZEltaGhxblRBZWo3bW1ISHExN3RBYlZic2VSeFVnamN4NEdXSUZpWDhtX0MtM3NmcEgwMHpJNUNrUy1OMmxvNDRYZldCbjM5NklaVzZKQkNqUjRiaDFZRnVscUpOcXYyY1k3LXF5bm9fcV9mUGthaVUwZmc?oc=5) |
 | DOGE put Social Security numbers and other data on a risky server, whistleblower alleges - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOLTVsRXZrdllQd3BYZEVwcy1sWXpuUlNpWFRUdW8xUm9lMGdNcXVTb2VES3J2S1h6OUprZzE2NGctMVB0cUlsb2g2NEJjeEJYZkVtUUJzVDdkOVpvMjdBN0d5NFFsUHg0VDJEbW1uLTk2YmJrZTlnSUI3LUdkNHJpSmt0OHdWLUVMMDVLakxNdnpHWnpMS21EZmZwalBFTjkzV0N5X0RxLTBDZWw2cC1pTExuMy1NUDM2YWFF0gFWQVVfeXFMT0RxblhSRXdPb0NPM1N6S3Q3SEZXMVhwMnJiRnN5Ukl4aE12Q3J2UV9URms2YnIwYnJvWVByLUVqSVpLUm9TWkJsb3NpOGRmNS1qTGZZMUE?oc=5) |
 | Illinois governor hits back after Trump mocks his weight: ‘It takes one to know one’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQNF9sYzIzZWh6UjR2SEk0alpMS2paVE9ZSGlMZlYtUnp3UlM5aHF6V295Z3diazhSNkgzNFVMZUxsV1RFYUxRX1JxNTdqd0Jxc1dOREtkMDloVzVWTzQyY21RbjNQNWRZUERTNGhUeHJfUUZPalU0UnFTQTdiY19mSk9OWnk0ejNEbVJwaVFR?oc=5) |
-| Reuters and AP journalists killed in Gaza strike were not 'a target,' an Israeli military spokesperson says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPaEt3cTc4T2s5VXNvVnliVDRLV29fYTZzRGxwYVpnVGNoeGt3T0M5UTkxb2pab0VRZlhQNk0ybGZLNGtvb3hlMXVDLTkwS1JERUJwajFJb2ltWGhEVmxXT3lOUGVSLWdXMWhOUnJhci1yRHRFN1hiMFRrZkc5TmRfV0JzOTlkT0wtcG84VHZJODlHQlZ0VUFxcktZSjNoSzdZMFFlei1XalRZOU9reFZ2VU9XUndUQTkxN1VwXzlNN0hid2pGWUV6cmEyRWtDUQ?oc=5) |
+| IDF claims hospital strike was aimed at Hamas camera, as hundreds of thousands protest Gaza war in Israel - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxORnBzLUxmUEcxZXZmSjBuYWg2bmxERlJ2aU9kSDlHOTVOdnZWeThEZTloeVZJemg5ZjdBRU1nU0h5UXVGTjJQQ3pFOXR6VWpUVnZadzJadTBVT1B3dW5XeWdvNVdjMjVtMDd1QTlVQTAtbFVxU0pSSm9SQU81N05OTVN3U0tmQmFpUHZOSDFhWmV2MjQ?oc=5) |
 | Iowa Democrat Appears to Flip State Legislative Seat in Upset Victory - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPX1dKclBrc2JjRjdqdDQxRkE5dkE0ajV3Q1Fsa1Q3UFNTVkpmU1EyQkd3M1o2Wk9fUzNsNzBsQjF0VDc5Rk81TmpuMkNZazluNXZMbEZLUnZOd3hVUGpQV3N0Q01LQWQ4Qm5rWnZjMEViWXBXdzluSTRvZ0YyMW9uQnl2SVdUZ041LXc?oc=5) |
 | Man who faked death, fled US gets 89 days in jail for the 89 days he was missing - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQSWVaaWRpTWR4ZEE4eXQzeEhlNF9sWldiN0NUekI3OVoyN0MxaThFOVBjZ296SEdSZVBGX19ZSFhfUTNsUkJBeFRWNTA3TWxhYWJPRlZQTnJsVWlWcUhyOTRxWHJWTEVlai1EVGRieXM1RXZQNFBzTkI5cWU5SmY0c3FkcW9lYm1U0gGOAUFVX3lxTE1RS3gyRHoyUExhc2dlTUVoUmQ4SmU1VXdJUXU4UDVIMEd3c19lNnR1YnA2ZU5ta0I4N3pkZWZ0SjFKR0tvNldmZFJ0TTc5SG5LLXlqU2xRdXNmb2NTM1ZRdUtrajQ2THdJNzVXSnhJTUIwQUFCX2VueTB1Tk1ETVVvSS1kX1BGWXFuSEdOdHc?oc=5) |
 | A haboob covered central Arizona in dust. But what exactly is it? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZDlIQUNnbm5QLXpDaFIxQ3RtZW1JRGY0MU9OLXBIVk9sWGg1SUY2ckUwanpyU2l3ZzdocWU1MzRxd2dBd1BrR0N5Y2l4Zy1ubXJmSGVSdThoV3laY2cyQ0Jwb2YzejROUklnTnp0WWlDdEJLN2YzaFRSRldLMkhxbTlfVQ?oc=5) |
