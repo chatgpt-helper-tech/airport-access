@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 23:56:27（北京时间）**
+🕒 更新时间：**2025年08月28日 00:00:22（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Police say gunman is 'contained' after mass shooting at south Minneapolis church - kare11.com | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxQMHpJSVBxN2dscjFtVVI5dHpIY3ZGdTZDWlFrWTFacHoxNUNzYnA4eTJJdl9HR3c2bDNMRnlXc1FZME8xaXhuc2k5ZURWd3hjb2FGVWJhbnU3Q0VnZDJrcVZLODBGQVdtQTJqT3daR0Job1hIQ3hHMEU5M0ZVSTc0UVJsWEIteENKaVpDdkhKdU4tRXlVQ3BzZEI2aXMyc1F4LXpTZ055ajVNTVRuUGNYQm5iOW1OZ3lWdGVNb3dVc2ZURzBDSDRZTzRaZEhWV3JqUnhzQ1psSFR5T0NG?oc=5) |
+| Live updates: Two reported killed and at least 20 injured in Minneapolis school shooting - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFBJQWRESFR6QVh5OEo4TVBHUXllYktWR3Q3QzNJRjQ0NnhNaUhoMHNFU3F3a0VRTDZuc0lPNDdmcWRkaVdnZFljN2JVTzNTcEdpUG8tQg?oc=5) |
 | Trump extends control over Washington by taking management of Union Station away from Amtrak - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNQUNRVGV4LVNXeHE5RE41MF8tWVV3WVZWM09udnZkLVdBQ2dNZ3FPZmsxNHVyMllCa3kyTGJjVXlOSW5VS2RiV3I0OWtNeU94ZVVkZmY4RmJEdnVGSWx1Xy0xUlgtMlJDam9GYlpJT3NNbmhhbUhVLVRualMwQkpKVjdaV1dtbE1BZnpvVU1CeTcwZE8xWS1qejdMWkhOajJieDBxQjhR?oc=5) |
 | India, US to lose from Trump tariffs as Russia wins - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQd01KaHBsTmFXTjZ0WG81RDE0bDFDYndpbVl1d3dKTjEtMWJXOE1oQlJZWHJIQWlYMXBnYzNCNjlSZjRlMVEtNUZLckl3ZnByck1Wa2NTdUtlcG9hbi1OT0d2QnJsYXNHajlMR0xwYTZSdm1ZZlZ2X2JkUmZxajQ2aGpMbDBzUDZJbXdxZjgwdGE5eUMzeWFLaFFDbw?oc=5) |
 | Denmark summons US envoy over alleged influence operations in Greenland - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOVEk3dk5vQnFGVjZ5T1MtMTJ2VENrdFh4VFRVcXA4R1RZUWNuWWw0YVB1RmItV1o4ay1iOUdvbGVfTXRnNzZoZExKNDRfbnZNRUNDQy1UMHNKeVh1Z3ZfNjFnb3ZFdU1ub0U5THZTY2xvLTJINGxILW5zMlBFRjRJZ0lmVDE2Tml4QUtwdWtDOXZLa21CODhiZnFVREVwVUs0ak9GQ0twWDJ5cDYtaDJlYnFwMDRiTXRYeGNZ0gHAAUFVX3lxTE1RMXRQWEpweWNlWFdCS3JCRnhGNms2LWF5Rkt3aWdSeVplU2d3ZmYtanVCNk1iamdTZ1hVVVExaFl3N3h1SU53bUdXZ0tJbDlpNGEyVl91TWcyaXdPejhvNFhyOFNPcVRoZEREdGVZRHhlVzZLQ1NSQVhhOHBxemM2R1V3WFlhSXQ4SjhZcEZ1djlJbkhhbTVfcWhjaThOQ3NCU3liTG85QTZwckpJR1gwbW9iNFRMR25Gd0RUVkhPbg?oc=5) |
