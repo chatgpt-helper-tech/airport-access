@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 08:57:59（北京时间）**
+🕒 更新时间：**2025年08月27日 09:00:20（北京时间）**
 
 ---
 
@@ -10,14 +10,14 @@
 |--------|-------------|
 | Energy prices expected to rise ahead of winter | [阅读全文](https://www.bbc.com/news/articles/c78zgz7j576o?at_medium=RSS&at_campaign=rss) |
 | 'Funeral director put my baby's body in bouncer in front of TV' | [阅读全文](https://www.bbc.com/news/articles/c4gjr0ylenzo?at_medium=RSS&at_campaign=rss) |
-| How deliverable is Reform's plan on migration? | [阅读全文](https://www.bbc.com/news/articles/cx29l0wqlgeo?at_medium=RSS&at_campaign=rss) |
 | 'I thought it was the end of my life': Inside Israel's attack on Iran's Evin Prison | [阅读全文](https://www.bbc.com/news/articles/czd0e23j9q8o?at_medium=RSS&at_campaign=rss) |
 | Wasp 'riding a broomstick' wows photography judges | [阅读全文](https://www.bbc.com/news/articles/c70r7plrdndo?at_medium=RSS&at_campaign=rss) |
+| Watch: SpaceX Starship completes successful test flight | [阅读全文](https://www.bbc.com/news/videos/cd0dxg4kxg1o?at_medium=RSS&at_campaign=rss) |
+| How deliverable is Reform's plan on migration? | [阅读全文](https://www.bbc.com/news/articles/cx29l0wqlgeo?at_medium=RSS&at_campaign=rss) |
 | Australia police shooting suspect named as manhunt continues | [阅读全文](https://www.bbc.com/news/articles/c4g6wlxd5kko?at_medium=RSS&at_campaign=rss) |
 | Ukraine admits Russia has entered key region of Dnipropetrovsk | [阅读全文](https://www.bbc.com/news/articles/c17n1p24yv9o?at_medium=RSS&at_campaign=rss) |
 | UN demands justice over Israeli double strike on Gaza hospital | [阅读全文](https://www.bbc.com/news/articles/cd6n97gj1nqo?at_medium=RSS&at_campaign=rss) |
 | Artwork looted by Nazis 80 years ago spotted in estate agent ad | [阅读全文](https://www.bbc.com/news/articles/cq68dze2l71o?at_medium=RSS&at_campaign=rss) |
-| BBC Verify: How the double strike on Gaza's Nasser Hospital unfolded | [阅读全文](https://www.bbc.com/news/videos/c36jdze5r4ko?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
