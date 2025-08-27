@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 10:09:50（北京时间）**
+🕒 更新时间：**2025年08月27日 10:17:44（北京时间）**
 
 ---
 
@@ -10,14 +10,14 @@
 |--------|-------------|
 | Energy prices expected to rise ahead of winter | [阅读全文](https://www.bbc.com/news/articles/c78zgz7j576o?at_medium=RSS&at_campaign=rss) |
 | 'Funeral director put my baby's body in bouncer in front of TV' | [阅读全文](https://www.bbc.com/news/articles/c4gjr0ylenzo?at_medium=RSS&at_campaign=rss) |
-| 'I thought it was the end of my life': Inside Israel's attack on Iran's Evin Prison | [阅读全文](https://www.bbc.com/news/articles/czd0e23j9q8o?at_medium=RSS&at_campaign=rss) |
-| How deliverable is Reform's plan on migration? | [阅读全文](https://www.bbc.com/news/articles/cx29l0wqlgeo?at_medium=RSS&at_campaign=rss) |
-| 'I immediately freaked out' - Taylor Swift's engagement sends fans into frenzy | [阅读全文](https://www.bbc.com/news/articles/c4gzdpk3xwjo?at_medium=RSS&at_campaign=rss) |
-| Wasp 'riding a broomstick' wows photography judges | [阅读全文](https://www.bbc.com/news/articles/c70r7plrdndo?at_medium=RSS&at_campaign=rss) |
 | SpaceX pulls off Starship rocket launch in stunning comeback | [阅读全文](https://www.bbc.com/news/articles/cly69z9lwnno?at_medium=RSS&at_campaign=rss) |
+| 'I immediately freaked out' - Taylor Swift's engagement sends fans into frenzy | [阅读全文](https://www.bbc.com/news/articles/c4gzdpk3xwjo?at_medium=RSS&at_campaign=rss) |
+| How deliverable is Reform's plan on migration? | [阅读全文](https://www.bbc.com/news/articles/cx29l0wqlgeo?at_medium=RSS&at_campaign=rss) |
+| Wasp 'riding a broomstick' wows photography judges | [阅读全文](https://www.bbc.com/news/articles/c70r7plrdndo?at_medium=RSS&at_campaign=rss) |
+| 'I thought it was the end of my life': Inside Israel's attack on Iran's Evin Prison | [阅读全文](https://www.bbc.com/news/articles/czd0e23j9q8o?at_medium=RSS&at_campaign=rss) |
 | Australia police shooting suspect named as manhunt continues | [阅读全文](https://www.bbc.com/news/articles/c4g6wlxd5kko?at_medium=RSS&at_campaign=rss) |
 | Ukraine admits Russia has entered key region of Dnipropetrovsk | [阅读全文](https://www.bbc.com/news/articles/c17n1p24yv9o?at_medium=RSS&at_campaign=rss) |
-| UN demands justice over Israeli double strike on Gaza hospital | [阅读全文](https://www.bbc.com/news/articles/cd6n97gj1nqo?at_medium=RSS&at_campaign=rss) |
+| Tributes paid to three helicopter crash victims | [阅读全文](https://www.bbc.com/news/articles/cdd3jzl31j8o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | A kayaker faked his own death to meet a woman overseas. He’ll now spend 3 months in jail - CNN | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE1zYnNqamQyTU95cjRwVDBYRldUOXJpWk5ueVhNTXBoMFdWUnU5X0s1d1lFTHZCM1d6eV9jMy02T012dHNYbEZmREtSdmk5ZmVkOWM0WTFDcWhGM05xYTYycUlhVlZFMEptTU5J?oc=5) |
 | Spate of hoax calls about active shooters stir fear at college campuses around the US - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPMEl2SlBRUGJ5MmlSWE9sQmVvYkJOalRGRWd3WjRxZ3ZzZTN4ZWt3cFJURWVxZnFBN2ZrWkk4M0dWbTBSc3NCb01WQ3ptUXZfdTJLWkhUM2NqU29sa1NBMlgxRzNLMXppQXNJazNUYkkxbDBFYVZoQmNrRHhMMFA1aWpyUlpUczR4LXpKcjdJOHBRcmh5NzRiZWxjNk04VHEzV2ZjWVNQaXFIN1VwOGVBRQ?oc=5) |
 | Towering dust storm known as a haboob plunges Phoenix into darkness - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQbmNHXzRvcXhNVDBCNFZqdjFWeGlnaWJoQVpZTEMwOE9FQWxkS1pyQUM1Zk5iMF8zZUdIUUZtMXd2UGlDem1VNWlWZFhyYmZaeWtaYzNLdTczNEJpSEQ5LVlYTVhwWEZUQ1pFYTB2dmJ4VTE4YnJMclJyWDRXaG9OSG1Yb2wyYUVscDdJSEFoQ241VWQySTh5b0JVbTQ?oc=5) |
+| Federal Judge Allows Case to Proceed Against Wisconsin Jurist Accused of Obstructing ICE - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5YMnVBbTBRYlZYWmd2NDJHUHF3czh6aEt2RjkxdHV2LTQwX0FVQUNhWG04UGk1OHY2aDdsVHpoVFk5UTJfT241ODk0Rnhtakp3N19TVkZPV3ZEcWNTWHY1dURUcWJPSTNyMDFnakx1amNKVzFyQnpHbnFNbw?oc=5) |
 | Record drug haul seized by US Coast Guard was enough to ‘fatally overdose the entire population’ of Florida, official says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOOGdUZzlsWkgyTEp5LXBDbkRRekdQMjZpOWNhM3hHSnJCTFg2VnU0Q0pFUXBHNDM3WFRXRVVpYjJ4LU9mQl9maTdJYUd4SHJEYTNxS0Nrb1M3bHVXMEtLaHFKV19WQTBPWjkyNTFTdFNWcjI1N2tKZXRBRm9HLXhuYXBTRzU?oc=5) |
-| FEMA employees put on leave after criticizing Trump administration in open letter - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPbXRObUxKSFFyS3F0ZnRvVGxHWXhqcG5mdkFLOTl3VnIzbWk2bmtHLW8wdll1Ny1CWTlyZHU4ZENBNW1fNEpvQmd0UlZ5WnNqZnR0MDU0WDFJZE1uTlBhN1hJLWVMUjVubUIydE8xWnMyV0xfREV1bXBqcUgybl9wWm5TbFVjSVloUllmRWNaR3c1bUlLcVdubDA0azNyTUFiRHF3X2kyclJjTDVfaHBFOA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
