@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 16:41:50（北京时间）**
+🕒 更新时间：**2025年08月27日 16:49:47（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | A Spate of Fake Shooting Calls Disrupts College Campuses - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBMYkFTQmJpNm8xT0JiMk43VkhBY2NDbFAxWFFKcWlBLUtZSGtzdGV0TEJBdkg3N1RnVkE0UnZFejlrVTlleFlkaU8xNW5JMXI4X1pDaC1oYV94WnZ6SFpqdVBYeWZEMWUweGFIMS04OXUyaHpYU0E3N0FtWVg?oc=5) |
 | Democrats break GOP supermajority in Iowa Senate by flipping Republican seat in special election - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPRU1CUWZfakJGS2tQNzFwVXdQbWtpRTJXcUtPN2d3VDlTUFdhLTEzcFkwX0lYVXk4RG9lMmpGWlpHaUxXWkl5Y2Z3NUo2YS0wZFhxYWRqR0tVcDYtZEpFd2ZseVBuSTk1SmotUUNQRW9aS1VKNVk5ZlM5eWU5Vy1NdDlxVGMzdTB3NXN3WUNidDJ1aXNIdGxseWtTemZWZC1hcDliT2o3ZUE5LVJkaVpvMkN30gFWQVVfeXFMTjV1RUdIVUllVWpNaGc4OW95Y3ZOdG5Za0V2clhVdVNNNE9qamV3alA3akxRX1prRVlKUnlUVUYtekFITEJ2VTBsME9vQktQOUhrckJUZmc?oc=5) |
 | A haboob covered central Arizona in dust. But what exactly is it? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZDlIQUNnbm5QLXpDaFIxQ3RtZW1JRGY0MU9OLXBIVk9sWGg1SUY2ckUwanpyU2l3ZzdocWU1MzRxd2dBd1BrR0N5Y2l4Zy1ubXJmSGVSdThoV3laY2cyQ0Jwb2YzejROUklnTnp0WWlDdEJLN2YzaFRSRldLMkhxbTlfVQ?oc=5) |
-| 4 U.S. Army soldiers charged in connection with on-base sex assault of college student who's now an officer - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNdmtkRjZ4ZWx6TGdkaG1TZzRhb3dXMUY2M3V2TVZCSG5jeFJKYkJNSzREWGJPdVplS1JubGcySU8xUk9yUWZ5V0p0cDRoU0FuenVIUkY0eGMyVjNJTE1TTTN2TG5GbTJRbmVLOHM5VjYzV3R3X1lQa0V5RGJVeExLVTg5NTFEOWdweVNZREpNNC13TklJWVl2SEs3SlZWUGlKM1BtS0dVUWxDd0x4Wmhwc2ZLTk9vNE5tWFHSAVZBVV95cUxNVmtDdWw5QjZRYmNiRW1iT0o1dFpSQkN3SlRfYktxNDF5bGRQdzN6NUlfM21TdW9GREJrOW0yRnhJczB4X2tnc0NWd21Pdy1oVktFMHFqZw?oc=5) |
+| Nevada DMV closes offices indefinitely after cyber attack disrupts network services - KRNV | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQU2xTREhuNUE0RXBVSlB6MlI3YjFXV25XT285Q3hxTlJFWFJCc0Y4N0pURzVjUl9FNWVjQmxQRm1IOGJENU9WSWxKdnhPZXhyM3E2Y3V0VmhrMExiMjNfSjZ0YWFIYVMxeVoySzJ1QnlYSzl4dUVUcWJaMGtqSy1ELXZCMUt6R2ZyWUZhR2VFczNzU0lUUWc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
