@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 13:49:41（北京时间）**
+🕒 更新时间：**2025年08月27日 13:56:05（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | FEMA employees put on leave after criticizing Trump administration in open letter - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPbXRObUxKSFFyS3F0ZnRvVGxHWXhqcG5mdkFLOTl3VnIzbWk2bmtHLW8wdll1Ny1CWTlyZHU4ZENBNW1fNEpvQmd0UlZ5WnNqZnR0MDU0WDFJZE1uTlBhN1hJLWVMUjVubUIydE8xWnMyV0xfREV1bXBqcUgybl9wWm5TbFVjSVloUllmRWNaR3c1bUlLcVdubDA0azNyTUFiRHF3X2kyclJjTDVfaHBFOA?oc=5) |
 | DOGE put Social Security numbers and other data on a risky server, whistleblower alleges - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOLTVsRXZrdllQd3BYZEVwcy1sWXpuUlNpWFRUdW8xUm9lMGdNcXVTb2VES3J2S1h6OUprZzE2NGctMVB0cUlsb2g2NEJjeEJYZkVtUUJzVDdkOVpvMjdBN0d5NFFsUHg0VDJEbW1uLTk2YmJrZTlnSUI3LUdkNHJpSmt0OHdWLUVMMDVLakxNdnpHWnpMS21EZmZwalBFTjkzV0N5X0RxLTBDZWw2cC1pTExuMy1NUDM2YWFF0gFWQVVfeXFMT0RxblhSRXdPb0NPM1N6S3Q3SEZXMVhwMnJiRnN5Ukl4aE12Q3J2UV9URms2YnIwYnJvWVByLUVqSVpLUm9TWkJsb3NpOGRmNS1qTGZZMUE?oc=5) |
 | Illinois governor hits back after Trump mocks his weight: ‘It takes one to know one’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQNF9sYzIzZWh6UjR2SEk0alpMS2paVE9ZSGlMZlYtUnp3UlM5aHF6V295Z3diazhSNkgzNFVMZUxsV1RFYUxRX1JxNTdqd0Jxc1dOREtkMDloVzVWTzQyY21RbjNQNWRZUERTNGhUeHJfUUZPalU0UnFTQTdiY19mSk9OWnk0ejNEbVJwaVFR?oc=5) |
-| A haboob covered central Arizona in dust. But what exactly is it? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZDlIQUNnbm5QLXpDaFIxQ3RtZW1JRGY0MU9OLXBIVk9sWGg1SUY2ckUwanpyU2l3ZzdocWU1MzRxd2dBd1BrR0N5Y2l4Zy1ubXJmSGVSdThoV3laY2cyQ0Jwb2YzejROUklnTnp0WWlDdEJLN2YzaFRSRldLMkhxbTlfVQ?oc=5) |
+| Israel Links Deadly Hospital Attack in Gaza to Hamas Surveillance Camera - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNVFpGd0VoT3Nsd1BVMkpFYlhINjF3XzNMM1B2eUhnNzBUcGdGRTRLLU8xS3JSN09hQWJMOU9RaUoyNHJUNGlJc3VIdmR2NXhBb3Fsa3JHcERYb1ZQVVhQN2NJQlhiSkk1VXUxUFl1QXhZYnlzMldjSm9CQmkzQWEtVDNXM294UWpENC10dkxpWVBoQnBzc2UtcHotRGFGdw?oc=5) |
 | Iowa Democrat Appears to Flip State Legislative Seat in Upset Victory - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPX1dKclBrc2JjRjdqdDQxRkE5dkE0ajV3Q1Fsa1Q3UFNTVkpmU1EyQkd3M1o2Wk9fUzNsNzBsQjF0VDc5Rk81TmpuMkNZazluNXZMbEZLUnZOd3hVUGpQV3N0Q01LQWQ4Qm5rWnZjMEViWXBXdzluSTRvZ0YyMW9uQnl2SVdUZ041LXc?oc=5) |
 | Wisconsin missing kayaker who faked his own death and fled U.S. is sentenced to 89 days in jail - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPOGxvdVhKTzVONEFLVklQXzJieHh3V2xvbHA1Rl9vZWlMS2ZZaVF0MTR2OGVaUzhmMmRXcHVKZ0pBZXhHOVZLTERTLWhyaTdPbnBVT0hTc3lhWUU0a0FOdHA4VGc3d3d4bXFuaFY4MVRWNURpQ003amI1VnB3a3F5d21rak02QW_SAYwBQVVfeXFMUEtqWWFIdllvV045VFUzUWtsdE9ScFJ2aTg0dVVfaWJjN2NYOE16UHZycjAyckx4N3owdHBSVmlmbTF5bTJzOUtkOURqaW1WS1duWFROVUVfdE9VbFRlT0pDWVN1cGZNZ0tOaXVMZEVma251MVhYRXJRMUgtMGx6VC13eVFoY1J3Umw3QlU?oc=5) |
 | FBI urges students to be vigilant amid wave of swatting hoaxes - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1JbjNFS0xvQXZCZDZsRVJEWWtBOXE1eWpld2FFalZfZUVHVmdieUFzVHlMNEZkajEtUzdkWjNhd3JfNlZFLXBUZlJOcWF0STZPSEVZQkVWeHRWUdIBX0FVX3lxTE5iRXhxVGRQV2lseERmVlJwQjE0SkhrcURfN3U2ZDdaa0d4UnkyOVVXWm01R0V5ZmEzSHYwQjZEMDJLZTZmc19oNXJXajJCZDY3bnRsQTNxN1RYUU5DNnFR?oc=5) |
-| Nevada state offices close after wide-ranging 'network security incident' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNdEU1UmwyVDdXMmpjUTBxVnZ6c1ZVQTR4X0QzOU1iNXo0dE52VW5CYjZ4SDJEY1VKdGJSXy02ZDZQcDJjSWRjNzlzYVV0dXVLQ1hnbE9PWFBKTXV0bktQV0UyNzdPQWt4SkRIYlN5bjhvQThYa3MtbkhBYTlzRkIyV1RmVTNvd1BkbTFXdmp1dDhDREZ1bjR1eEM2ZEQtSlFfMVZvU3VqekVQSnZzU2RWMWhNVElKcDg?oc=5) |
+| A haboob covered central Arizona in dust. But what exactly is it? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZDlIQUNnbm5QLXpDaFIxQ3RtZW1JRGY0MU9OLXBIVk9sWGg1SUY2ckUwanpyU2l3ZzdocWU1MzRxd2dBd1BrR0N5Y2l4Zy1ubXJmSGVSdThoV3laY2cyQ0Jwb2YzejROUklnTnp0WWlDdEJLN2YzaFRSRldLMkhxbTlfVQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
