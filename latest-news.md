@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 10:25:33（北京时间）**
+🕒 更新时间：**2025年08月27日 10:32:12（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump Forgets He Hates Taylor Swift When He’s Told She’s Getting Married - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPX0tfUDNOYXVpYTdqTDVfTmRIdUJ2aDZFR3pzMXFMU2tGTXlGekdENFBzTE9WcnVQM0pKTDVCX1Nwek50WGt1cDdZYngxdUo5d3VjQlREQWZsYlBWeWYtbkx6MUNxN2ViYzk1TFdIR1ZldWdmNTMxUWhZVzMxNmYzRHR0QUZfS0lraHlQN0JNQWNUUEJ3MURfNjhtUkFsSHJxWlRNbzdDSzlMY00?oc=5) |
+| Taylor Swift engaged to Travis Kelce after 2 years of dating — see photos of the ring and proposal - yahoo.com | [阅读全文](https://news.google.com/rss/articles/CBMi-gFBVV95cUxNV25kdEt5YXo2SkJPZWViblFlRmozZ1pJWDR3N0EtYVNpM3o2QXM5Z180OGEzUTAxOFJqZHkzTTBQWDRuM0ZzdUF6d0h0OWpydUQ1NG9vZk5hOGhxMHJRRzRZOFBxWHIxMlI1MExHWUlhZXhiQzdxRkhQbFlMbXFMZFdZME9lcTFMOUhHMDJ4bDZ6WWNpR29JUWV5cE0zVHFPbktEbnA2X0U1VFcwZVQ3cTlyRllRX0VSckFzQlVUY1EyZ0ctbWNIdFMwZGxWOS1US1Fqd2ZhVUZZelY4ODU2TG9XUW9oMzZicXdBRWc2RjVoUjh4ZlpjaVZ3?oc=5) |
 | Abrego Garcia's attorneys ask to reopen his immigration case to seek asylum - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQVWxrVG5TdDNFNEduVlJ3VGlhNHhoVVB3TEVwdnAwLVF5TG1peHNrZWZFcmplbHd3NGh3Qm1CbmtwaHhoS0t0WG1sTHVtbmM4Qndid2hLREdxcFFZb0NKQWI3eVpjUmRoR1VWeVdoV2xhcXdSalRTSVdtUHpRTHZmcTNYVnlvaEFOeVhVMDdJSDVDQmxhdUJ3d1BVT2hBLUNNN0VPcG1MZ2VuWHZIU0R2eNIBtgFBVV95cUxOeVJvZHROLVJvNHd6NGxqWUNieHdYTS1TUUFkSEgyeXR3R29KWlBickJzU0FYNmh6YmJnTmZtTzBqVjAwek1wRHVXZERWWlBNZWtESzREd2VjNk1rdThvUVdDWlZhNWhRN2RLUjVodGh2Um9FZ0hWcndPSlVwTkpMM0dSR1lfM285alhfbWxIZnJQTkxCcWxSLWdRV1pxelNLOEkwTWxJdVlmOTFpZ0l3R25ETHJhZw?oc=5) |
 | DOGE put Social Security numbers and other data on a risky server, whistleblower alleges - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOLTVsRXZrdllQd3BYZEVwcy1sWXpuUlNpWFRUdW8xUm9lMGdNcXVTb2VES3J2S1h6OUprZzE2NGctMVB0cUlsb2g2NEJjeEJYZkVtUUJzVDdkOVpvMjdBN0d5NFFsUHg0VDJEbW1uLTk2YmJrZTlnSUI3LUdkNHJpSmt0OHdWLUVMMDVLakxNdnpHWnpMS21EZmZwalBFTjkzV0N5X0RxLTBDZWw2cC1pTExuMy1NUDM2YWFF0gFWQVVfeXFMT0RxblhSRXdPb0NPM1N6S3Q3SEZXMVhwMnJiRnN5Ukl4aE12Q3J2UV9URms2YnIwYnJvWVByLUVqSVpLUm9TWkJsb3NpOGRmNS1qTGZZMUE?oc=5) |
 | Illinois governor hits back after Trump mocks his weight: ‘It takes one to know one’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQNF9sYzIzZWh6UjR2SEk0alpMS2paVE9ZSGlMZlYtUnp3UlM5aHF6V295Z3diazhSNkgzNFVMZUxsV1RFYUxRX1JxNTdqd0Jxc1dOREtkMDloVzVWTzQyY21RbjNQNWRZUERTNGhUeHJfUUZPalU0UnFTQTdiY19mSk9OWnk0ejNEbVJwaVFR?oc=5) |
