@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 12:01:12（北京时间）**
+🕒 更新时间：**2025年08月27日 12:08:48（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Illinois governor hits back after Trump mocks his weight: ‘It takes one to know one’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQNF9sYzIzZWh6UjR2SEk0alpMS2paVE9ZSGlMZlYtUnp3UlM5aHF6V295Z3diazhSNkgzNFVMZUxsV1RFYUxRX1JxNTdqd0Jxc1dOREtkMDloVzVWTzQyY21RbjNQNWRZUERTNGhUeHJfUUZPalU0UnFTQTdiY19mSk9OWnk0ejNEbVJwaVFR?oc=5) |
 | Court tosses lawsuit by Trump against Maryland federal judges, calling it 'potentially calamitous' - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQZkQ5NXJnVzFNdWYtMXFmWksya3VrdUZVRkhHNDJOWUhnUjU3ZDNzNlpBYk5lczNtRV8wOTVQcjVYbHkxOUNPWkJka2pLVE02NVJqNnFWeVdCanNzT1pBS2VET2N4amRCMmJReEROVXhRaWhLUVEzLVV4MlNxY0ZfRElKakpLaTlJVVV5MFB5SkdCRGM?oc=5) |
 | ‘Clearly a low moment’: US-India relationship sours as new tariffs kick in - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOOHUxdEJ2Sl9VdW9YRFZjc1FXSldnRm83aFdobi11OUlOTXY0OFlTejJxY0NwYlYwZTJ4bldoVjRIOGVfc2p4OGZDbW16c0JNOXRITG5lcGRJOTBwVzRGekNoTjB6Z05GMEljaTVtOGQycFdWQlYyX05SZUJFZ2ktSi1fRkdKNW82YTJUYWVEZFRpcGpIR1c5cGdFdjh4bmtVdlB2ejVjd29ROHgtLUR5eUQwcW5JVkJNbEQ2amZycw?oc=5) |
-| Iowa Democrat Appears to Flip State Legislative Seat in Upset Victory - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPX1dKclBrc2JjRjdqdDQxRkE5dkE0ajV3Q1Fsa1Q3UFNTVkpmU1EyQkd3M1o2Wk9fUzNsNzBsQjF0VDc5Rk81TmpuMkNZazluNXZMbEZLUnZOd3hVUGpQV3N0Q01LQWQ4Qm5rWnZjMEViWXBXdzluSTRvZ0YyMW9uQnl2SVdUZ041LXc?oc=5) |
+| Catelin Drey wins Iowa Senate District 1 special election, breaking Republican supermajority - weareiowa.com | [阅读全文](https://news.google.com/rss/articles/CBMiywJBVV95cUxPZjRTNFBFNWoycW5lR1Z0YWl5WGVMTFFkUlpPcExTb2NZYmsybUlfQml0WnpoSjRuZ2otX0J3MU9udm84UzdBWVMySkNibXBrWTZTZ1I2MXJYTXlaSHItZ1NuUWgyd0lQYUlrYUVvRlQ5QmlBVzB6VWkwX1p3ZHBaUTRmYmdfXzhJSzRtTHE2ZTBGRVNmOXo2dVo2bE9Ha2hRQUFfemlhODVDY2twS2locWg4RnZOVXByVVd4R09Vb0MxQThCTTVlTlF2dWpkN1FoUG5uS1J1Z0E3d3NrWXlyNDNFRzJhaVI1dWtFTUlWdzVyZU40ZF9oejgwRENWTEE0eUM0aWVfYnVJOUJYRG1aeEtYekgtUEJHbGF3d2pJdHFPRnE1ckQxNF9SMncyOXFLR3R2QUVtVzh0Z0RaV0YtNFpvMkIwRzJoUnVz?oc=5) |
 | A kayaker faked his own death to meet a woman overseas. He’ll now spend 3 months in jail - CNN | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE1zYnNqamQyTU95cjRwVDBYRldUOXJpWk5ueVhNTXBoMFdWUnU5X0s1d1lFTHZCM1d6eV9jMy02T012dHNYbEZmREtSdmk5ZmVkOWM0WTFDcWhGM05xYTYycUlhVlZFMEptTU5J?oc=5) |
-| Jokey Names for Detention Centers Face Criticism for Insensitivity - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQMDV4MWVuNW5vd3lPWWRVTUFuZG41S1lQejBKMWdIQnowYkIzWFhVOW0yWnJVR3F6alNEY2VPenM3SUVmc0VIX013S21hb3dfUEhJY2tCY3BZUDVIdUdMZ21DcElxOGxqdktIbE1pZVFfcnFSRlQ2MmI1RGZxbmhjUW1sZjBpZndRMHFoTkc0R3pZVDRIY0pONWVwdHViNlVHZlFRNU1VX21KODdkOFE?oc=5) |
 | A haboob covered central Arizona in dust. But what exactly is it? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZDlIQUNnbm5QLXpDaFIxQ3RtZW1JRGY0MU9OLXBIVk9sWGg1SUY2ckUwanpyU2l3ZzdocWU1MzRxd2dBd1BrR0N5Y2l4Zy1ubXJmSGVSdThoV3laY2cyQ0Jwb2YzejROUklnTnp0WWlDdEJLN2YzaFRSRldLMkhxbTlfVQ?oc=5) |
+| Jokey Names for Detention Centers Face Criticism for Insensitivity - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQMDV4MWVuNW5vd3lPWWRVTUFuZG41S1lQejBKMWdIQnowYkIzWFhVOW0yWnJVR3F6alNEY2VPenM3SUVmc0VIX013S21hb3dfUEhJY2tCY3BZUDVIdUdMZ21DcElxOGxqdktIbE1pZVFfcnFSRlQ2MmI1RGZxbmhjUW1sZjBpZndRMHFoTkc0R3pZVDRIY0pONWVwdHViNlVHZlFRNU1VX21KODdkOFE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
