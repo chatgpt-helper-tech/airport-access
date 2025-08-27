@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 05:56:28（北京时间）**
+🕒 更新时间：**2025年08月28日 06:01:11（北京时间）**
 
 ---
 
@@ -8,6 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Two children dead and 17 others injured in Minneapolis school shooting | [阅读全文](https://www.bbc.com/news/articles/c7760x87r4po?at_medium=RSS&at_campaign=rss) |
 | What we know about the Minneapolis Catholic school shooting | [阅读全文](https://www.bbc.com/news/articles/cy40znde9eko?at_medium=RSS&at_campaign=rss) |
 | Blair joins White House meeting with Trump on post-war Gaza | [阅读全文](https://www.bbc.com/news/articles/c4gmrxd8ryno?at_medium=RSS&at_campaign=rss) |
 | Four ways to keep your energy bills down | [阅读全文](https://www.bbc.com/news/articles/crm4rygl4m3o?at_medium=RSS&at_campaign=rss) |
@@ -17,7 +18,6 @@
 | 'Punk rock' dinosaur with metre-long spikes discovered | [阅读全文](https://www.bbc.com/news/articles/c5y2emnnn4po?at_medium=RSS&at_campaign=rss) |
 | Apple warns UK against introducing tougher tech regulation | [阅读全文](https://www.bbc.com/news/articles/ckgj9kjmvzzo?at_medium=RSS&at_campaign=rss) |
 | Home Office set to halve time asylum seekers spend in hotels | [阅读全文](https://www.bbc.com/news/articles/cpqv0zvnj0eo?at_medium=RSS&at_campaign=rss) |
-| Patients struggle to get weight loss drug ahead of price rise | [阅读全文](https://www.bbc.com/news/articles/clyr8ynx41yo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,9 +30,9 @@
 | Trump’s planned Chicago blitz would use naval base to house ICE agents, possibly National Guard - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxNd0tCUF9EM1ROMldtWHFSN2VtUEZxSlpVdzVLQUNZZE9rLTZDdnpLOEE3N0NwMlp5eTI0NnZrSnJsWWdvVHU1ZDdHQUdLWWU3azBaM2pkOHFhMktUclhaSUp1Vy1tV0lYZ2JzTmp2Mnl5LVJZdEpJWFhDLWljaG5oVFN1ZEdSWExpV2VBcFhrTWMyNDQyOG5EXzdBU2xjcDNSM0hmRUFrUnVzLV9uVm1uMExCYjVORUZKRnhWNDJpbGgxVVVsVVJjM3RiY2c3N3Z3aGJtNHlJXy04UQ?oc=5) |
 | Denmark summons US envoy over suspected influence operations in Greenland - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQWWM0WWlvdkNRRS1WZzU2bVNEN3FyVjI5VWNvdTBwS1VFcEpGTGE2dEctcGNKWU9QZF9GZlhlZXp0M25xcjNJdnhWY1lZSXowOGRRdEoyRVFxNG45SlQ1WHZTSEVYOGpaOEpsYUZqbmtlS0V5WVJNeUJaX0RJcHE0bE9mNFFoWUhSRVpsRzVjMDd0SDNXMzBiUmsyUEpxUzB4aTg2M05SaVllcXl6cVNUdFRYa2d2N2gydWNB?oc=5) |
 | C.D.C. Director Departs After Just Weeks on the Job - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPNXgtS3JQb1pZYjhzY1d3aVdRLV9DTGRiWXE3RmlBZ3l6SFEySDZRRGExbUs1S0RDZ0U5R09TTmhFdzNncHo2SlhqaktiY2VyLXZkeUI4V1lwTk1aV056MW13UFFQbEFjMG5QNjJfNmtXWUdkUDRzbjFfalZ6U3JtSQ?oc=5) |
-| Trump administration to take control of Washington's Union Station - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNUlNCT2lyT2VJYlJTa2hPdjNsZDdQRVBKbWxPQWpYckVtN3hHRjlOREJEa3RSQ3NDeHliTHkxOHh4RHlteERsVnR1aDQzTnZxX2N1eEhFNllfU1BXenA2X0x4SWlwckhyRmkyQTd6RlZIM3lYdGlkVjZ0cVFrZFAyckgtTURkZDk3bkZwajlIc2lLRGJTSXZtSXVNQTFsNUlVWFo2MTZR?oc=5) |
 | Top Trump State Department official Michael Anton to depart in the fall - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQV1BjbDVha01FNURSdjV4WFFicHRWaVVjOVNlOEh4dVNBMHN1NWhXVXZkTUdmWUJQNkVHeUZUcFVJd2ZlYVpVZWdINlZjS0JIdjVhMUljQ2RiRkhzMTNsb3Y4ZjNoRnd6cldNYnJpYWJDWWZfRGNCb2lJWFl4RDZqQjhCaWg0aHF6d0xWTE95bXA?oc=5) |
 | Kilmar Abrego Garcia can’t be deported until at least early October, judge rules - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOdVpic3dKXzJ0NFh2Vkg1d0trb19SbGpINGpyc0h2LVNVS3RUWU5yQWxGVGxQbEo1R2RIZVRkQTB3VVhYUml3aFR3YXNLc2JjT3NNcGNqS2hYNGVqaVYzYW9HbU9sYzg3TUc5MFFMSmlEcnFWTUNpemJBX1JXQXdZdjU4bUdyUjJPMU16TmlB?oc=5) |
+| India hit by US doubling of tariffs, plans to cushion blow - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOSDlBX2ZxRHhETFRDUTVHU0hVNUpiVms0Nm05OXRhYUtvZXlCaEFvclpldTRuelhxSnhxVTRyMkdhbW1acm5vdFdPNlhKM0tVNDlIVGs1X2FEc3d0Z2EwbmlMUWRabE43TG0xMmljSU5rZkphSWVrVG9zbnNsdUt6aENCR0xPdkM0R1VQbHc2ZlFsZGt5TVctSlVqUVpESHRl?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
