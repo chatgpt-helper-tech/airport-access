@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 07:00:18（北京时间）**
+🕒 更新时间：**2025年08月28日 07:09:27（北京时间）**
 
 ---
 
@@ -10,6 +10,7 @@
 |--------|-------------|
 | Two children dead and 17 others injured in Minneapolis school shooting | [阅读全文](https://www.bbc.com/news/articles/c7760x87r4po?at_medium=RSS&at_campaign=rss) |
 | What we know about the Minneapolis Catholic school shooting | [阅读全文](https://www.bbc.com/news/articles/cy40znde9eko?at_medium=RSS&at_campaign=rss) |
+| Woman says Chinese student predator raped her hours before second attack | [阅读全文](https://www.bbc.com/news/articles/c79l4z3v3p3o?at_medium=RSS&at_campaign=rss) |
 | Blair joins White House meeting with Trump on post-war Gaza | [阅读全文](https://www.bbc.com/news/articles/c4gmrxd8ryno?at_medium=RSS&at_campaign=rss) |
 | Four ways to keep your energy bills down | [阅读全文](https://www.bbc.com/news/articles/crm4rygl4m3o?at_medium=RSS&at_campaign=rss) |
 | Reform rows back on possible child migrant deportations | [阅读全文](https://www.bbc.com/news/articles/ce83x1457lyo?at_medium=RSS&at_campaign=rss) |
@@ -17,18 +18,17 @@
 | Solar-powered postboxes with parcel drawer rolled out across UK | [阅读全文](https://www.bbc.com/news/articles/cgln72rgrero?at_medium=RSS&at_campaign=rss) |
 | 'Punk rock' dinosaur with metre-long spikes discovered | [阅读全文](https://www.bbc.com/news/articles/c5y2emnnn4po?at_medium=RSS&at_campaign=rss) |
 | Apple warns UK against introducing tougher tech regulation | [阅读全文](https://www.bbc.com/news/articles/ckgj9kjmvzzo?at_medium=RSS&at_campaign=rss) |
-| Home Office set to halve time asylum seekers spend in hotels | [阅读全文](https://www.bbc.com/news/articles/cpqv0zvnj0eo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | What we know about Minnesota school shooting suspect Robin Westman - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNWXpScE1IamJ3bHRqM2VoTmNoZXpIRDRjbDRRYlc2ZTZ0VGZ3X09OQTA2SkcyUHRCdXpTRmRPLVpXQ3IwRTZ6X0wyd2FDT3NfQzZGQnNBNFU1eUFVM01yWWVoLTRWaFY4VENOTnFkQXJqNS1mNThoWnJEazJvTEUzV19veWRteEpnekRhTDh4c3FSOW4yQjg00gGcAUFVX3lxTFBNcXo2d1YzNzlPeG9fVGpVX1BCQXY2UHpZclhHdllKTTBPNmZyOTFHWTJuLWdtWDFCMTlaVUJFTVh0Z3RtMXZYUkMyNVVhNEVFdEZEQzlLUlFNMGhnTnRZTldIUWN6RmF4b1VxcWNaQTAyeXExS2lHMElVSFBiNVRVa2RwYnlHTkZReGNzemxkZmVHMFRvdk5memJYeQ?oc=5) |
-| CDC Director Dr. Susan Monarez is being ousted just weeks into her tenure, sources say, and other officials follow - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE43THJWX1lSZXl1NkdVUTlyQktCVFVfd3B4RW5DM3JFYnhUQVJoMzRYUDk2aEd3QTlJUVFOLVRJVktZQzBadERlNGFUeHVjYXZ0Mzg0LTFvcEtPcTA1dWpNcXp6d1J1NDlGb0E?oc=5) |
 | Emmanuel Haro updates: Baby had been abused over time, succumbed to injuries, prosecutors say - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNZFR6NHNTeW1tOEc3V0Z6UThybHI0elBscVBLM3RNT2tVWnR2ZHN2YXM2ZEhQamVhNjRmQ0RXd3V4WkJnRlhTbVlLd3lLZ0xyaE1jTkN5Tng4UWJVNTZNTU15WFpkQVFCOFNmSU1yRHlBcGhjb0RxNldTUEhuOEpueHNRRi1VN0RBLWNlcWtPN0pCSmxaWlYyMC0wanZ6TkZFaExiNmtSaUpDTkpjbVZRZVNPZTPSAboBQVVfeXFMTzd3QzJtYkJDS3paMzBXcThPNWEtbUJtbkVUWjUzVENrT3pUTzRtMVBzNnR6aHIzSUFpMHpUaU1sOFBZNmN0WldwRGF4eWlsamtuMnhlWjFueUpZU3BIVFd3R0h1VUZBWDk3YllQUDhlSklaUzdHbE9zSlVET21OUHpsU2NnbDRRMmg2VjVuMzBteFVUN01vMDZ2ZUxrRFFnYndoSjFGYlprTHJiQ2ktZnhrc3hXbjFTOGp3?oc=5) |
+| CDC Director Susan Monarez ousted weeks after being sworn in - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE90ZnVFTXRWY0N3UWNMN2xCTlpLZ3RRbjRMNUMwM2p3MDdtby1DY3RlYW1XNVBvZVNoX0lrVjFVXzdvNXJxdVJQNVVJSFlHRU5JOTV3ektLTHF1eng0aFJWQnlIaHhoTWxUUG9ZbkZOV2ZqQdIBd0FVX3lxTFBfOGNMOE9vaW02Yk9KOGZhdHY2YUJzSkZfeEJYNm9fTnBwd1ZDR2lYUnpkSnNDdEk5aWw0RlRSZFpyV2NPWV8xN3RaMUljRklycl9kcVpwVDB4NXVYbGllZ2RkTURoWW9lTDl5bFdMU2p3SVZIM3dB?oc=5) |
 | D.C. judges and grand jurors push back on Trump policing surge - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQb1o4RUtvbnl6cnhoTXdjY3R0LWw1U0ZocllPXzJGNUhXRkhpQ3NJSXo4VkhYaklrS0hxVnpQbzJ5TVozbWl6NnVIYVJsdVRyN0llMWpnT21Jc1ZhX1RtSzVvaGxBbVRVNTRfaFRCRVZ4RVN4UFZLQTQtZDJST1BlYWk3dnB2M0pr?oc=5) |
 | Trump’s planned Chicago blitz would use naval base to house ICE agents, possibly National Guard - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxNd0tCUF9EM1ROMldtWHFSN2VtUEZxSlpVdzVLQUNZZE9rLTZDdnpLOEE3N0NwMlp5eTI0NnZrSnJsWWdvVHU1ZDdHQUdLWWU3azBaM2pkOHFhMktUclhaSUp1Vy1tV0lYZ2JzTmp2Mnl5LVJZdEpJWFhDLWljaG5oVFN1ZEdSWExpV2VBcFhrTWMyNDQyOG5EXzdBU2xjcDNSM0hmRUFrUnVzLV9uVm1uMExCYjVORUZKRnhWNDJpbGgxVVVsVVJjM3RiY2c3N3Z3aGJtNHlJXy04UQ?oc=5) |
-| Denmark Summons U.S. Envoy Over Greenland Espionage Allegations - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPNnNabTdYTTZkSUwydlNCZ3ZZRHQ2M0lIOEh4WUxTOWlUOHpmVmo2enhWZEtISnh4ZUwxMzR4OTdwdEhNZDFqOGdQQlZZRHBEamNlRXJFei1EV1luTDRja0V2S1NuYS1ZeXV0YlVxQjVRWHh3Z21OU2Y5ZE5Zc2pYMjl0YzlHSmFsdGR6bDdHUXE?oc=5) |
+| FEMA employees placed on leave after criticizing the Trump administration in open letter - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxQUFlnUXlMYnpmczJNY2xBS3dqS1JaXzNkd1h1d3NRN1Zpd1BsbGJjenMzTzRnc0lmdU5CVk1hRTdXQVNwUUhVY19vYl9xeWZDeFlCOUtHRUVFUUVYMjFrU3BTSmdZWEg0Vm5aV1FudUxwVEkyY1BMc1UwUjE3SVpvM2QxMmhsVzdWOXhudk1laFhlR0M2YXlzakp5RThpSHk2ZnlQTktNTklobGl1QkxXUzFndGxXa2o0d3FqY2tJX2xRaE9fZEFCNVhR0gFWQVVfeXFMTlhUWDJCb1hHOW1nSDJsSWtuYWFWeTBBZjVrOXluZ09icnVzWnhrZjdNYThEeXRCdm1FT2RHbTBQNWUwUXdhcWp0QU16aktYTTRhN3UwcUE?oc=5) |
 | Padilla for governor? California senator leaves the door open - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQdUNWZjR3WFhOeGF4M1BkbDVzeXhVZzVTeGhKMG5VQWpDRDJ2dHFacUV6NnU3S3g5Mm9adlpZSDMzeUZLZnpPUVRFWlF5UkJrMmREY3ZEUjNXTTFSVktXWnI2c3RVejN5blFFVnBUN2RsWFBEUVlwTnhGa2VWcmxTZlBvMHRTaE8yZ2l6eVphbTRpM0J5TUJSRnFoTnVKMFJYOHZYOHBXRGt6SXRwZXlN?oc=5) |
 | Democratic win in Iowa special election breaks GOP supermajority - PBS | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNMmNGR0lzVFpaWThTQVJzWThUMDBIbzZmeXdiRmhpTjY3ZkY2UXhsUjh6RXZKNWJNV1FXOHZUVG5jbGt3NFhqUjdrX3pqZXBJb2VZSjh4dFVtVmFycndTaWpERHg5SUdqTDFkRjZhX1lmUklqcjRhV1g0UXJKZkJqRmVWQUticTdzLU1pb0IxNVdYSXBGSGxCNTZVT1JUeWdTVGt3dNIBqgFBVV95cUxNUDdUMWJadEZjYU5QWnNjN29xZVNRYlJTN3JFMVI4cXVOdnVRS2ZLUk1uMDBDeHJNRHFuendIa3RaVTZNdTNUdUxEUWVoRWZnSUJsZlVEend6UU5wcEJnVUkta240dzFQbGFoX1FQSGtOdEdTOVkwcnhBaEZIQldGQkVUOFV6S21vOEdQeTZtVHpLaW50dzJ4blpOVUU1Z2tKdkRzeXZ4RkxWZw?oc=5) |
 | Kilmar Abrego Garcia can’t be deported until at least early October, judge rules - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOdVpic3dKXzJ0NFh2Vkg1d0trb19SbGpINGpyc0h2LVNVS3RUWU5yQWxGVGxQbEo1R2RIZVRkQTB3VVhYUml3aFR3YXNLc2JjT3NNcGNqS2hYNGVqaVYzYW9HbU9sYzg3TUc5MFFMSmlEcnFWTUNpemJBX1JXQXdZdjU4bUdyUjJPMU16TmlB?oc=5) |
