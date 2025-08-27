@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 05:32:47（北京时间）**
+🕒 更新时间：**2025年08月28日 05:41:13（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | D.C. mayor: "Masked ICE agents" and out-of-town National Guard are ineffective - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQbkFlOERkeXRscTBmd09TMVJGT002QkJEQ0FyaGctM3ZMTkxGdy01WmwtMWRuLWp3RWdubHQ4cGtvMHoyVGxCLV9Bc1NVMWFJa08tUGF0dGZ0NUhIQjd2aGMwY19xYm9SN0dBdVdQc3l0ZUVMQnoxaC1xcmNDMXhDQw?oc=5) |
 | Denmark summons U.S. envoy over claims of interference in Greenland - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOYldkSnBwTkhsUENJUHhsQS1wVmpqVmg3TXZqZDRoanZLS1VMRWNlMVIxMTNRUkw3LWhFdkpIcEhTVkdYWkRFVm9JX0pVMURDMTB3eVpoa0hCTUhzVEdiWmpUbHZkMmtzRGFwTlpkMGdRQnlrZ2swMzB0T0FoenljbDFDcmltdmhCelJadTFlbXZWRHlnQ0N2dDlvazRyd0RxQ3ZZ0gGoAUFVX3lxTFAzdTdNeUQ0MEh4WFNxVnJHSk9WdEY4ektEczJoeFBSaTE3MVFtUWdWQUtvUUxPVzB0bkdJUTFRczlpUjNORlVWX3NFd3hPSmdpelJ2TnU1VG9WNS16eGxTOXBTbUNQcEhmNlpFY0thM3VOTFRqRzV6MTgyazdLeUJwUzFzN3NhXzdyUTVNbU1XV0ZGb0RSX0Z5R2Z6S1NHd0tYUTZhUFBITw?oc=5) |
 | Trump administration to take control of Washington's Union Station - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNUlNCT2lyT2VJYlJTa2hPdjNsZDdQRVBKbWxPQWpYckVtN3hHRjlOREJEa3RSQ3NDeHliTHkxOHh4RHlteERsVnR1aDQzTnZxX2N1eEhFNllfU1BXenA2X0x4SWlwckhyRmkyQTd6RlZIM3lYdGlkVjZ0cVFrZFAyckgtTURkZDk3bkZwajlIc2lLRGJTSXZtSXVNQTFsNUlVWFo2MTZR?oc=5) |
+| CDC Director Dr. Susan Monarez is being ousted just weeks into her tenure - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE43THJWX1lSZXl1NkdVUTlyQktCVFVfd3B4RW5DM3JFYnhUQVJoMzRYUDk2aEd3QTlJUVFOLVRJVktZQzBadERlNGFUeHVjYXZ0Mzg0LTFvcEtPcTA1dWpNcXp6d1J1NDlGb0E?oc=5) |
 | Kilmar Abrego Garcia files new bid to stay in the US - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPb1RNelR1MTlwYkRNc0J3Q3dKTGt2NVNZT1RLQUxDWFlHdWVjdU5GUFFSODBGaTBCYkQ5Z2pfWE05NnlpMndLandaLXJSMDA5QUlRNVdMNFdySkdRbGZJeEhEeTZDc09iYTdLa2RKUDBvYzhRa0pXelMwWWl3am9fZVlMbw?oc=5) |
 | Top Trump State Department official Michael Anton to depart in the fall - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQV1BjbDVha01FNURSdjV4WFFicHRWaVVjOVNlOEh4dVNBMHN1NWhXVXZkTUdmWUJQNkVHeUZUcFVJd2ZlYVpVZWdINlZjS0JIdjVhMUljQ2RiRkhzMTNsb3Y4ZjNoRnd6cldNYnJpYWJDWWZfRGNCb2lJWFl4RDZqQjhCaWg0aHF6d0xWTE95bXA?oc=5) |
-| Democratic win in Iowa special election breaks GOP supermajority - PBS | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNMmNGR0lzVFpaWThTQVJzWThUMDBIbzZmeXdiRmhpTjY3ZkY2UXhsUjh6RXZKNWJNV1FXOHZUVG5jbGt3NFhqUjdrX3pqZXBJb2VZSjh4dFVtVmFycndTaWpERHg5SUdqTDFkRjZhX1lmUklqcjRhV1g0UXJKZkJqRmVWQUticTdzLU1pb0IxNVdYSXBGSGxCNTZVT1JUeWdTVGt3dNIBqgFBVV95cUxNUDdUMWJadEZjYU5QWnNjN29xZVNRYlJTN3JFMVI4cXVOdnVRS2ZLUk1uMDBDeHJNRHFuendIa3RaVTZNdTNUdUxEUWVoRWZnSUJsZlVEend6UU5wcEJnVUkta240dzFQbGFoX1FQSGtOdEdTOVkwcnhBaEZIQldGQkVUOFV6S21vOEdQeTZtVHpLaW50dzJ4blpOVUU1Z2tKdkRzeXZ4RkxWZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
