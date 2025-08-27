@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 02:49:36（北京时间）**
+🕒 更新时间：**2025年08月28日 02:56:28（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Trump extends control over Washington by taking management of Union Station away from Amtrak - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxPS0pRbzhRQmJPZHVvUmtVVnNLdHhfOTRUMmpqZnduV29zQThiZzB2RTBuZVBSanNNSW9oNk42WGtUTm0yaV96aVhmMDZNWFBJQ1VQbXBVdEVwb1kycUROUjJoSGZaWHd0MDB3djRrQlY2eG9YcHdQelROa29rakYtQXF5TmdPcEkzWk1BTDBQbVRaY1J1LWd2R1kwSmZlX0Fka3VLRFlEVWFKdHhNOFc2clZoR292TExiTnNYNFl6MUhBdGpRd3VzMGlqRQ?oc=5) |
 | Democrats celebrate special election victory in Iowa State Senate, ending GOP supermajority - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOMGdCQVkxVVZPcnpJUmluN0dOYVlwWmt0TnpoZ0hqT0JsaTFHenhJeE5wb0ptNUQ3RjNuLURPaUEteVNGdFVZaVZzZ1FQU3NmdjdPWi1raVJud3NNQWh6VzJ2d1A0OHpiTXEtcWt2T25QWEQ0UXdJYnFTb1pYcVJyNDBXbmdieGNlUzJSWW1BeUdkSS1sTEstV01IaDdwZEtrRFlNc1JJVFVYT2xqeDFsWmtmUdIBuAFBVV95cUxNZTlrSlRPVDhhWWhvMVhheUhod25fel9MYzFfZ25hSUgySXpwckZWYjZwbGExeEdCT0RSLXNWcmV0LWxsUWxWQWhFZXo5eVk1bm10LS1keWZTNE00WHhzNlZXUFVNczBhckk0bkZVWkxnNDloVDdfa1FSVmlYdmphOV9FTFBDVjRReWYtNlVoNVhtX2lEaWp0aUNVTWFCOW5KZDdEem43RUd4QkpNcWl6Y0lUZEFIZEVL?oc=5) |
 | Veteran burns American flag outside White House hours after executive order banning it - WUSA9 | [阅读全文](https://news.google.com/rss/articles/CBMigwJBVV95cUxOVDQtdzh3aUk3aWtfWVFLQW5vVGg2ekVjTlBncndSdEtfNlU0MzRzZGZFTHJsalBnYlBGVGtYYUI5Zl9ENG9mT0dTWVRJaVdlZ1lWaW5KczVXOHNuR1c2MU91cWtWUG1XU20zbHVTZW5zSUNaOVlNbEhIajJGeXlyOFl5OVFxNVlwLXlmZFpGXzVTbmlfV1pEQ0szVDdIeFFsLVV0SlBxdDV2MG9uY29FcFNiOGlGZ2ZiMnNmMTNBNlpyak04MzhmNmNrd3N1ejZRNUFUM291NkpBWllBM0Q3a3c2ektlYl9ycTZKb0xQU1FBNlBxSG9vV01Mb1NPSDh5Q3Yw?oc=5) |
-| Scoop: Tony Blair and Jared Kushner brief Trump on Gaza post-war plans - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFAwZk5MRnJieTBjZThTeXI1SnN4ZTljcUN1djE5WjBaeUtYQWJVTUVCNmRRcEI4MXB3bUwwbXA1TkUxRFpreXFfOVE0c1Njc1VVWHZ3X29XelRpRnZZeWtIRk1GS3MtQWRpaGl6aFhOXzhZYXpqX010T0tPTQ?oc=5) |
+| Scoop: Tony Blair and Jared Kushner to brief Trump on Gaza post-war plans - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFAwZk5MRnJieTBjZThTeXI1SnN4ZTljcUN1djE5WjBaeUtYQWJVTUVCNmRRcEI4MXB3bUwwbXA1TkUxRFpreXFfOVE0c1Njc1VVWHZ3X29XelRpRnZZeWtIRk1GS3MtQWRpaGl6aFhOXzhZYXpqX010T0tPTQ?oc=5) |
 | First Thing: UN demands justice over Israel’s double bombing of Gaza hospital - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOdGRxQkZoeU5iSXZkRmRZMnl0elFua19YVkFtazlNOXQtandYOGhiU3VoNHN0OWdwSmlKRmpKel9MNVEtYkR0YW1feEs5elNDVTNIWC1xdFliOThBMk5MLVJGRlZTa2tYdnZXc1E2dEtHNHd3dkpmcGRqZE5tQk9NSXBCck1rZHVJVFlHMUd2QTZoWmpKMHhDRE91VjhpWUlvZlhTRm1Eczd0TU5BVXIzakVHNWs?oc=5) |
 
 ---
