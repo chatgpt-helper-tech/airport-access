@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 16:01:08（北京时间）**
+🕒 更新时间：**2025年08月27日 16:08:48（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | Watch: SpaceX Starship completes successful test flight | [阅读全文](https://www.bbc.com/news/videos/cd0dxg4kxg1o?at_medium=RSS&at_campaign=rss) |
 | Wasp 'riding a broomstick' among top images entered for wildlife photography award | [阅读全文](https://www.bbc.com/news/articles/c70r7plrdndo?at_medium=RSS&at_campaign=rss) |
 | Ukraine admits Russia has entered key region of Dnipropetrovsk | [阅读全文](https://www.bbc.com/news/articles/c17n1p24yv9o?at_medium=RSS&at_campaign=rss) |
-| Tayvis are engaged - what we learned, and how fans reacted | [阅读全文](https://www.bbc.com/news/articles/c4gzdpk3xwjo?at_medium=RSS&at_campaign=rss) |
+| Taylor's engaged - what we learned and the new details revealed by Travis's dad | [阅读全文](https://www.bbc.com/news/articles/c4gzdpk3xwjo?at_medium=RSS&at_campaign=rss) |
 | How achievable is Reform's plan on migration? | [阅读全文](https://www.bbc.com/news/articles/cx29l0wqlgeo?at_medium=RSS&at_campaign=rss) |
 | Princess Diana 90s time capsule contains Kylie CD and pocket TV | [阅读全文](https://www.bbc.com/news/articles/cgqn5jzn2vgo?at_medium=RSS&at_campaign=rss) |
 | 'I thought it was the end of my life': Inside Israel's attack on Iran's Evin Prison | [阅读全文](https://www.bbc.com/news/articles/czd0e23j9q8o?at_medium=RSS&at_campaign=rss) |
