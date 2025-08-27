@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 18:09:55（北京时间）**
+🕒 更新时间：**2025年08月27日 18:16:34（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump's doubling of tariffs on Indian imports takes effect, hiking tensions - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOeVpvMkc0dHYtY1ZSZzBZd1NwSXNFQ1VfbGJHeURVenZBOGhQZkVxU0tFREZVQlZ4NXA2TnhNVF8xZU1GMTJmOXN6RDBOaVpPRjZ4NHhhX3BNM25nVWktTkl3U2YzUl9DUzdXWld5TnBJRWQ0Vk9PZ0IwdTRpZ2tEQ0xvd0VKMnI1UWhsOTl6SzJBUHFCcmdzSmdKS2Q0Tk9CWnAzWXlFdnVPZzc1T3dkQzlnQWUtZw?oc=5) |
+| Trump's doubling of tariffs hits India, damages relationship with US - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNN2hncmZBUmgtUHNnUUliUERpYUg2R3BGTmVaSzhhWWF5SEE0OUJGNWdLNnpOOE9mTmlyUElZRkhfdXFjMy1UQTRlbFBzdElRQVJ4TmlnTl96ZHFPakhEXzBmM05HVDdLYlBSQ2dxakdXWnAyV2UzWVdBRlBRem5CUjFMY0NXTUxSVGgweXpzM0tRWDdMSnpjVEM2aFhkN1ZSb2FkYlNKbjJsSTR1UUFfaw?oc=5) |
 | FEMA employees put on leave after criticizing Trump administration in open letter - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPbXRObUxKSFFyS3F0ZnRvVGxHWXhqcG5mdkFLOTl3VnIzbWk2bmtHLW8wdll1Ny1CWTlyZHU4ZENBNW1fNEpvQmd0UlZ5WnNqZnR0MDU0WDFJZE1uTlBhN1hJLWVMUjVubUIydE8xWnMyV0xfREV1bXBqcUgybl9wWm5TbFVjSVloUllmRWNaR3c1bUlLcVdubDA0azNyTUFiRHF3X2kyclJjTDVfaHBFOA?oc=5) |
 | Israel Links Deadly Hospital Attack in Gaza to Hamas Surveillance Camera - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNVFpGd0VoT3Nsd1BVMkpFYlhINjF3XzNMM1B2eUhnNzBUcGdGRTRLLU8xS3JSN09hQWJMOU9RaUoyNHJUNGlJc3VIdmR2NXhBb3Fsa3JHcERYb1ZQVVhQN2NJQlhiSkk1VXUxUFl1QXhZYnlzMldjSm9CQmkzQWEtVDNXM294UWpENC10dkxpWVBoQnBzc2UtcHotRGFGdw?oc=5) |
 | Trump Administration Celebrates Successes for America’s Workers - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNUmdMM2h6NXhWSlNMRUhpaTIya3YySkFyOFo4RGRkZWtzWmEzS0xadmlXaHprdUIxRzRjTlpqTTZGVmhMalBGWmttN2dHRXh0UHB5eTZ1SmNYNkdZa0tTSERTY3pzcWctc2VRc0s4alV2d0EyaExtSXFLajNSRVA1WnNTdmdVYnYtM0lVVjVLWGJybGJlZ09mQ2xyOWlfZ2pBaWhKdkRiRFJhcUE?oc=5) |
