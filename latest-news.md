@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 10:40:52（北京时间）**
+🕒 更新时间：**2025年08月27日 10:48:54（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | SSA whistleblower warns of major security risk following DOGE data access - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxQSUZjOTdtaDhLTFVjMFFNSXBHMHkyeHoyQUNCYWVZODNfOVpXaXU3NW4ydzlZQ1JsUlhMTGFSYzI5YkRQUTBLZE9EZnBpZ1ZveVJWS1NGQkFldGJISHBRMDVaLVNuTFZvdUNBbzhhYWxITGFYNzRDVG16MWlJcmh0T2FhOWk2dUZaSWpPTzM1dUxnV3Y3WDliMkgxQXJkaVhTd0dFcVVPbUJyNVpMWUlHQ2FGTXA1YXJZbFNyaThvV3hCSlZnWlE?oc=5) |
 | Illinois governor hits back after Trump mocks his weight: ‘It takes one to know one’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQNF9sYzIzZWh6UjR2SEk0alpMS2paVE9ZSGlMZlYtUnp3UlM5aHF6V295Z3diazhSNkgzNFVMZUxsV1RFYUxRX1JxNTdqd0Jxc1dOREtkMDloVzVWTzQyY21RbjNQNWRZUERTNGhUeHJfUUZPalU0UnFTQTdiY19mSk9OWnk0ejNEbVJwaVFR?oc=5) |
 | A kayaker faked his own death to meet a woman overseas. He’ll now spend 3 months in jail - CNN | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE1zYnNqamQyTU95cjRwVDBYRldUOXJpWk5ueVhNTXBoMFdWUnU5X0s1d1lFTHZCM1d6eV9jMy02T012dHNYbEZmREtSdmk5ZmVkOWM0WTFDcWhGM05xYTYycUlhVlZFMEptTU5J?oc=5) |
-| Spate of hoax calls about active shooters stir fear at college campuses around the US - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPMEl2SlBRUGJ5MmlSWE9sQmVvYkJOalRGRWd3WjRxZ3ZzZTN4ZWt3cFJURWVxZnFBN2ZrWkk4M0dWbTBSc3NCb01WQ3ptUXZfdTJLWkhUM2NqU29sa1NBMlgxRzNLMXppQXNJazNUYkkxbDBFYVZoQmNrRHhMMFA1aWpyUlpUczR4LXpKcjdJOHBRcmh5NzRiZWxjNk04VHEzV2ZjWVNQaXFIN1VwOGVBRQ?oc=5) |
 | A haboob covered central Arizona in dust. But what exactly is it? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZDlIQUNnbm5QLXpDaFIxQ3RtZW1JRGY0MU9OLXBIVk9sWGg1SUY2ckUwanpyU2l3ZzdocWU1MzRxd2dBd1BrR0N5Y2l4Zy1ubXJmSGVSdThoV3laY2cyQ0Jwb2YzejROUklnTnp0WWlDdEJLN2YzaFRSRldLMkhxbTlfVQ?oc=5) |
 | Justice Department asks Supreme Court to allow Trump to withhold foreign aid - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNRDh6Sm5uVW5WcjVhMmU5UW5PR21zRWt3V192X0MzYXBuTm1vY3NRNWRGMnhxR2JtbEQ3d0ZiNnRjeVJRYzRPM1p5aXdtaU5IckU5NnNGaUZoWFVOOHNSakQ2OGxJb0tQTHE1UGVIVGVHTk9naDc5TDlkZl9LOHQ5ZjZMdG1lUTZ4WnQ2M29uT1lFaXlxU3ZsV3lR?oc=5) |
+| FEMA employees put on leave after criticizing Trump administration in open letter - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPbXRObUxKSFFyS3F0ZnRvVGxHWXhqcG5mdkFLOTl3VnIzbWk2bmtHLW8wdll1Ny1CWTlyZHU4ZENBNW1fNEpvQmd0UlZ5WnNqZnR0MDU0WDFJZE1uTlBhN1hJLWVMUjVubUIydE8xWnMyV0xfREV1bXBqcUgybl9wWm5TbFVjSVloUllmRWNaR3c1bUlLcVdubDA0azNyTUFiRHF3X2kyclJjTDVfaHBFOA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
