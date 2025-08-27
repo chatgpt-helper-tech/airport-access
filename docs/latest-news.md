@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 22:24:43（北京时间）**
+🕒 更新时间：**2025年08月27日 22:33:45（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Democrats break GOP supermajority in Iowa Senate by flipping Republican seat in special election - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPRU1CUWZfakJGS2tQNzFwVXdQbWtpRTJXcUtPN2d3VDlTUFdhLTEzcFkwX0lYVXk4RG9lMmpGWlpHaUxXWkl5Y2Z3NUo2YS0wZFhxYWRqR0tVcDYtZEpFd2ZseVBuSTk1SmotUUNQRW9aS1VKNVk5ZlM5eWU5Vy1NdDlxVGMzdTB3NXN3WUNidDJ1aXNIdGxseWtTemZWZC1hcDliT2o3ZUE5LVJkaVpvMkN30gFWQVVfeXFMTjV1RUdIVUllVWpNaGc4OW95Y3ZOdG5Za0V2clhVdVNNNE9qamV3alA3akxRX1prRVlKUnlUVUYtekFITEJ2VTBsME9vQktQOUhrckJUZmc?oc=5) |
 | Hurricane Katrina forced changes at FEMA. Trump is rolling them back - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1qZTR0SlNvUHhXRV84c2J0V2lOTUZMcVU5S21CN0dRWnVpZDg1ZmlxSUgtd1hIeWQwaVcwVkhFa1VLQnpfaW1PcDUwQUpRYWJGSldlVnQ1WUJqOVF3UlZvRVVSSmZ2aGhLNFJ3QnVsTkJqck81U0h6X0g1cWhJUQ?oc=5) |
 | Deploy National Guard to Chicago? Trump Says He Has ‘The Right to Do Anything I Want to Do.’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPdUx0bEZEeUR0VXpLVTB1aER4WV9sVU14WHNFTndqM1h6OUMxUUx2elFjV2pZOTZFdnNSQ2lGeHNkNm9DREhhQThyeVM4LTJuSzBvSExmSVJiWjJXZnNhbU5kQkVJVVFJdFd4YlNnOGFYUFFQUW5iMUZkUXVHTzhlQl83aFpOZHpjMDE1LTFqN0VwTmM?oc=5) |
-| MoMA Film Series: Reclaiming New Orleans, 20 Years After Katrina - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNRUU5dFQxOXVQTmdZSGtVMWVXNUt6cGdkWGIxN0NOWDJLTjBDb3lNZDJJVVhjeHdERndKUGdQOXdieHJnUFRWX2l4eFhQX1plcG5Kb2U4bHdKcEpJME15bHFoYkdVOFBpcHdGSlV1Rk02Tk1aZ3V0RXMzN3BETnlfYlVLUk52WVZfTVV5QU1VZklHeDkyNnZ5RQ?oc=5) |
+| Active shooter situation unfolding at south Minneapolis church - kare11.com | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxQMHpJSVBxN2dscjFtVVI5dHpIY3ZGdTZDWlFrWTFacHoxNUNzYnA4eTJJdl9HR3c2bDNMRnlXc1FZME8xaXhuc2k5ZURWd3hjb2FGVWJhbnU3Q0VnZDJrcVZLODBGQVdtQTJqT3daR0Job1hIQ3hHMEU5M0ZVSTc0UVJsWEIteENKaVpDdkhKdU4tRXlVQ3BzZEI2aXMyc1F4LXpTZ055ajVNTVRuUGNYQm5iOW1OZ3lWdGVNb3dVc2ZURzBDSDRZTzRaZEhWV3JqUnhzQ1psSFR5T0NG?oc=5) |
 | CBS News analyzed D.C. crime data amid National Guard deployments. Here's what the numbers show. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPeG9IaXZVc01xSS1FaDR0Z0FLeFV0THVXS1d1QnB4V1Y0S09ieFNFcGRibE5xTlgxNVNxcjFONWtDMFA0cGJiM0VLanFUb2Z1X2ZwLXBDQkJXcVNzY2FNS1AzRFpYU1BIUXk0Zzl5RWdnUmhTWldLTEVCRFJuaHFfUnVDM1NGd9IBiwFBVV95cUxQdjN2RG1JZzZHVHpoNzFSMjFydE1iWkxheDBVTDYwX3NGVlU2eS1tOVFEZlVsLUxEM3RNSmRtU1haOWVvYkpxVzZJdGo0bjktX1dfVUFxZzNfd24zZXpzYkpNdnhKSUNDTXp4NU9IMGg4WWlrVVZzbFE5VzR1MnVyb0JxSXpEYTNjQUxZ?oc=5) |
 | FBI urges students to be vigilant amid wave of swatting hoaxes - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1JbjNFS0xvQXZCZDZsRVJEWWtBOXE1eWpld2FFalZfZUVHVmdieUFzVHlMNEZkajEtUzdkWjNhd3JfNlZFLXBUZlJOcWF0STZPSEVZQkVWeHRWUdIBX0FVX3lxTE5iRXhxVGRQV2lseERmVlJwQjE0SkhrcURfN3U2ZDdaa0d4UnkyOVVXWm01R0V5ZmEzSHYwQjZEMDJLZTZmc19oNXJXajJCZDY3bnRsQTNxN1RYUU5DNnFR?oc=5) |
-| Police investigating 3rd deadly shooting in 12 hours in Minneapolis - kare11.com | [阅读全文](https://news.google.com/rss/articles/CBMi4wFBVV95cUxQaDE1REF3Yl9IbENXTHZpNUNmZVd5ekpKSzBSV3hTVFVaVDBSdU5POE5NYkRwMWZhWkhQazZDYVZHbXRNQVRWdGxkVzF0LUFsRUptMmJSVTlJeXZKc1FJVVFkSzkxOFVkZ3h5RWVRQ1h4LVZZUHR3YVdGTmJVc0kyQnZ0cTFMRWY4UWdhQ2loWnRrNFlRVGh0b0lRQmNWZUlhUDB0U0NwNFgwLTFzR2tJNFlJai1WWUNobXJia2M0YlNMMXJNR2F1OHVwR0NTbUVIV2lBbDkyZnc2VnJrdnozV2lpQQ?oc=5) |
+| 20 years after Hurricane Katrina, the Lower Ninth Ward in New Orleans still lags behind - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOMFRGOHNVSUl6VzBMMElPNmJEOVRpSzlSWkxGSWhYTlBmV0htRnhaWm9melotTnQtNWg0QVpWZlZGOXIwdzRMOEQydGItVm9JLUFzdnlPQzMwbkFYa21kdWRwRlM1UTRpYllWY0dORTJwMUZ3NkRsRUtlSDlRTWJMVXF3cUFGN0hmQ1ZoQ1lHMHVPUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
