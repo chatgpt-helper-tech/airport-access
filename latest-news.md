@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 09:25:50（北京时间）**
+🕒 更新时间：**2025年08月27日 09:33:22（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Man Who Faked Kayaking Death and Fled U.S. Gets 89-Day Jail Sentence - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQVnByYVNlZ3NzRGdORGdCNTQ0YWlxazd0S3VSNnBiVnlGWk1QY3FKSGxIVTJGbmsyOHhvN0xuZElubDA1Mk82VFVPV2ZIMGR6cFpiWjFnNUE3dHFuSjdOTVZvb2NtbHRGTUJnLTNUbm5qaDVHd0VmWDhxTHRtQ1FmSUVzcU5PX2I0b2tRcVpn?oc=5) |
 | Massive dust storm rolls through metro Phoenix, leaving thousands without power - PBS | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNa1dWaVJOMWNDV1QxenI5Sk5HRlc5Si1Gb3dySGMzVWdiVlFmOW0yWnFFUkNLaVU4bi02MUtBaTV3bjdNanhaRWUwaHV2V1VnVXVxSlNqOHFURXVoVjNmbGxJYWdxeUxydHZvRXh0RWhlamo5VGhreEE2ekRycUR6VjE1X1dCb2Y5QnZCS0dabUFBaGRVYlJibURaTUhsc0FPR1VNX0FkczBTcGVLaW9SU2RMX0_SAboBQVVfeXFMUDRSYWlkRWpfbUZaSlYxc0ppVllTZXhMdkJ5QzE4Wmg3TEhGTGJOeEoxSWhWMnNzWGdVNmVrRlAweDRwZElkRVU2SkNDek1vX25taTFtWGVVSnBuaXJ3aDFQMXhhdmxhUU96VzVrbEFSWG1zOTVKRFBHTXNYMnJiRXlJSmk5bnJBeDhaaXJhS2JhNklGcTNvRFNCZDNNU2lkcWJKeTJ6blBUUWVLYVROMHgxcXlXTTI0X3FR?oc=5) |
 | Trump asks Supreme Court to step in and block billions in foreign aid spending - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPRnJRMUdOeVBkZXZwY3UtMTRJRG9wTlBvN09fc3pJdU1ISFF6dXJqSWxobFZoTkc2SDBmTTN2SmJwdk9GMUJNZFR6QUZiMlF3QmhRcVlhZ3FfTUdYdl9KTFVfRXkwN3lPVXZtYjVibGlzVXlkU3Q0ZHRqZzZidXBSUDB5RzBYaVE?oc=5) |
-| Steep US tariffs set to hit Indian exports from Wednesday - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNREI5OEZ1STJwa0FIeEJfaldmQ2lLRm90OU0yVjc4Nll0Tk95OF9veVpaak5yLTd0S0FhWHc3bnpwaEN1dnhpcTJrQXpFdlp5a3N1U081N1dzWVhOdEJOUUJ0UTVSaWY3N1laSU9YaTZxWTV2aUhFTHI2VGpGQjJIWnJUMVVXazVNSU84Ml9qNGxWdjlMR3JaanVvY1RNQQ?oc=5) |
 | Spate of hoax calls about active shooters stir fear at college campuses around the US - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPMEl2SlBRUGJ5MmlSWE9sQmVvYkJOalRGRWd3WjRxZ3ZzZTN4ZWt3cFJURWVxZnFBN2ZrWkk4M0dWbTBSc3NCb01WQ3ptUXZfdTJLWkhUM2NqU29sa1NBMlgxRzNLMXppQXNJazNUYkkxbDBFYVZoQmNrRHhMMFA1aWpyUlpUczR4LXpKcjdJOHBRcmh5NzRiZWxjNk04VHEzV2ZjWVNQaXFIN1VwOGVBRQ?oc=5) |
+| Steep US tariffs set to hit Indian exports from Wednesday - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNREI5OEZ1STJwa0FIeEJfaldmQ2lLRm90OU0yVjc4Nll0Tk95OF9veVpaak5yLTd0S0FhWHc3bnpwaEN1dnhpcTJrQXpFdlp5a3N1U081N1dzWVhOdEJOUUJ0UTVSaWY3N1laSU9YaTZxWTV2aUhFTHI2VGpGQjJIWnJUMVVXazVNSU84Ml9qNGxWdjlMR3JaanVvY1RNQQ?oc=5) |
 | Trump: Megabill’s name ‘not good for explaining’ what it does - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNSlhWb1Fnb1NOWm55dkRVR0gtU19hWjVFYlJkMFNNcWs3MzM0Nnd3eGZZb1ZpdlpwdllCS1MxOHZnYkZzb3pXZ0s3ZmhBMjNkRmp1VThWaWM3RFFPVmhxejgwMGNoRHhRWnMwc2dERDB6WkhhQzIwYkF0eU1VNlZaVnNyc2FhS1ZaWmxrOHBiME9BakZEMEdkWmNYeXJQZE5udWdDbm5Vd0tEa0U?oc=5) |
 
 ---
