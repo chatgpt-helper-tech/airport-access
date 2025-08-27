@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 12:56:14（北京时间）**
+🕒 更新时间：**2025年08月27日 13:00:16（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | IDF claims hospital strike was aimed at Hamas camera, as hundreds of thousands protest Gaza war in Israel - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxORnBzLUxmUEcxZXZmSjBuYWg2bmxERlJ2aU9kSDlHOTVOdnZWeThEZTloeVZJemg5ZjdBRU1nU0h5UXVGTjJQQ3pFOXR6VWpUVnZadzJadTBVT1B3dW5XeWdvNVdjMjVtMDd1QTlVQTAtbFVxU0pSSm9SQU81N05OTVN3U0tmQmFpUHZOSDFhWmV2MjQ?oc=5) |
 | Iowa Democrat Appears to Flip State Legislative Seat in Upset Victory - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPX1dKclBrc2JjRjdqdDQxRkE5dkE0ajV3Q1Fsa1Q3UFNTVkpmU1EyQkd3M1o2Wk9fUzNsNzBsQjF0VDc5Rk81TmpuMkNZazluNXZMbEZLUnZOd3hVUGpQV3N0Q01LQWQ4Qm5rWnZjMEViWXBXdzluSTRvZ0YyMW9uQnl2SVdUZ041LXc?oc=5) |
 | Man who faked death, fled US gets 89 days in jail for the 89 days he was missing - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQSWVaaWRpTWR4ZEE4eXQzeEhlNF9sWldiN0NUekI3OVoyN0MxaThFOVBjZ296SEdSZVBGX19ZSFhfUTNsUkJBeFRWNTA3TWxhYWJPRlZQTnJsVWlWcUhyOTRxWHJWTEVlai1EVGRieXM1RXZQNFBzTkI5cWU5SmY0c3FkcW9lYm1U0gGOAUFVX3lxTE1RS3gyRHoyUExhc2dlTUVoUmQ4SmU1VXdJUXU4UDVIMEd3c19lNnR1YnA2ZU5ta0I4N3pkZWZ0SjFKR0tvNldmZFJ0TTc5SG5LLXlqU2xRdXNmb2NTM1ZRdUtrajQ2THdJNzVXSnhJTUIwQUFCX2VueTB1Tk1ETVVvSS1kX1BGWXFuSEdOdHc?oc=5) |
+| Trump administration pulls another $175m from California’s high-speed rail - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOaGd2aEpYeXR2WUtBaEVwSi1IRS1GdTc3bE1pWFF6NEhqSjM5MVpvbk8xUVJPSVFmdGJiM293bFJhR3JsQzhOS3h1M1A4YnJKNEtWUC0yT3JrOU9HeXBTTUJ1NmFZWVUzNFVvbzZMMFIwN1dPWXNOMVhOc2h4WnA0S2p5ajZrckZQejNBeWVrOEQyZHN3Q1dsaDJJVQ?oc=5) |
 | A haboob covered central Arizona in dust. But what exactly is it? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZDlIQUNnbm5QLXpDaFIxQ3RtZW1JRGY0MU9OLXBIVk9sWGg1SUY2ckUwanpyU2l3ZzdocWU1MzRxd2dBd1BrR0N5Y2l4Zy1ubXJmSGVSdThoV3laY2cyQ0Jwb2YzejROUklnTnp0WWlDdEJLN2YzaFRSRldLMkhxbTlfVQ?oc=5) |
-| Nevada state offices close after wide-ranging 'network security incident' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNdEU1UmwyVDdXMmpjUTBxVnZ6c1ZVQTR4X0QzOU1iNXo0dE52VW5CYjZ4SDJEY1VKdGJSXy02ZDZQcDJjSWRjNzlzYVV0dXVLQ1hnbE9PWFBKTXV0bktQV0UyNzdPQWt4SkRIYlN5bjhvQThYa3MtbkhBYTlzRkIyV1RmVTNvd1BkbTFXdmp1dDhDREZ1bjR1eEM2ZEQtSlFfMVZvU3VqekVQSnZzU2RWMWhNVElKcDg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
