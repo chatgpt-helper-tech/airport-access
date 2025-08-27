@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 14:01:25（北京时间）**
+🕒 更新时间：**2025年08月27日 14:09:28（北京时间）**
 
 ---
 
@@ -8,11 +8,11 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Energy prices expected to rise ahead of winter | [阅读全文](https://www.bbc.com/news/articles/c78zgz7j576o?at_medium=RSS&at_campaign=rss) |
+| Energy prices to rise by 2% ahead of winter | [阅读全文](https://www.bbc.com/news/articles/c78zgz7j576o?at_medium=RSS&at_campaign=rss) |
 | 'Funeral director put my baby's body in bouncer in front of TV' | [阅读全文](https://www.bbc.com/news/articles/c4gjr0ylenzo?at_medium=RSS&at_campaign=rss) |
 | SpaceX pulls off Starship rocket launch in stunning comeback | [阅读全文](https://www.bbc.com/news/articles/cly69z9lwnno?at_medium=RSS&at_campaign=rss) |
 | 'I thought it was the end of my life': Inside Israel's attack on Iran's Evin Prison | [阅读全文](https://www.bbc.com/news/articles/czd0e23j9q8o?at_medium=RSS&at_campaign=rss) |
-| Wasp 'riding a broomstick' wows photography judges | [阅读全文](https://www.bbc.com/news/articles/c70r7plrdndo?at_medium=RSS&at_campaign=rss) |
+| Wasp 'riding a broomstick' among top images entered for wildlife photography award | [阅读全文](https://www.bbc.com/news/articles/c70r7plrdndo?at_medium=RSS&at_campaign=rss) |
 | Trump's 50% tariff on India kicks in as Modi urges self-reliance | [阅读全文](https://www.bbc.com/news/articles/c5ykznn158qo?at_medium=RSS&at_campaign=rss) |
 | Tayvis are engaged - what we learned, and how fans reacted | [阅读全文](https://www.bbc.com/news/articles/c4gzdpk3xwjo?at_medium=RSS&at_campaign=rss) |
 | Princess Diana 90s time capsule contains Kylie CD and pocket TV | [阅读全文](https://www.bbc.com/news/articles/cgqn5jzn2vgo?at_medium=RSS&at_campaign=rss) |
