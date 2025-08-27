@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 14:25:08（北京时间）**
+🕒 更新时间：**2025年08月27日 14:33:46（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | Tayvis are engaged - what we learned, and how fans reacted | [阅读全文](https://www.bbc.com/news/articles/c4gzdpk3xwjo?at_medium=RSS&at_campaign=rss) |
 | Watch: SpaceX Starship completes successful test flight | [阅读全文](https://www.bbc.com/news/videos/cd0dxg4kxg1o?at_medium=RSS&at_campaign=rss) |
 | Princess Diana 90s time capsule contains Kylie CD and pocket TV | [阅读全文](https://www.bbc.com/news/articles/cgqn5jzn2vgo?at_medium=RSS&at_campaign=rss) |
-| How deliverable is Reform's plan on migration? | [阅读全文](https://www.bbc.com/news/articles/cx29l0wqlgeo?at_medium=RSS&at_campaign=rss) |
+| How achievable is Reform's plan on migration? | [阅读全文](https://www.bbc.com/news/articles/cx29l0wqlgeo?at_medium=RSS&at_campaign=rss) |
 | Australia police shooting suspect named as manhunt continues | [阅读全文](https://www.bbc.com/news/articles/c4g6wlxd5kko?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News

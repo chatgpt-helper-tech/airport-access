@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 14:25:09（北京时间）**
+🕒 更新时间：**2025年08月27日 14:33:46（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | Tayvis are engaged - what we learned, and how fans reacted | [阅读全文](https://www.bbc.com/news/articles/c4gzdpk3xwjo?at_medium=RSS&at_campaign=rss) |
 | Watch: SpaceX Starship completes successful test flight | [阅读全文](https://www.bbc.com/news/videos/cd0dxg4kxg1o?at_medium=RSS&at_campaign=rss) |
 | Princess Diana 90s time capsule contains Kylie CD and pocket TV | [阅读全文](https://www.bbc.com/news/articles/cgqn5jzn2vgo?at_medium=RSS&at_campaign=rss) |
-| How deliverable is Reform's plan on migration? | [阅读全文](https://www.bbc.com/news/articles/cx29l0wqlgeo?at_medium=RSS&at_campaign=rss) |
+| How achievable is Reform's plan on migration? | [阅读全文](https://www.bbc.com/news/articles/cx29l0wqlgeo?at_medium=RSS&at_campaign=rss) |
 | Australia police shooting suspect named as manhunt continues | [阅读全文](https://www.bbc.com/news/articles/c4g6wlxd5kko?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -25,10 +25,10 @@
 |--------|-------------|
 | Abrego Garcia's attorneys ask to reopen his immigration case to seek asylum - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQVWxrVG5TdDNFNEduVlJ3VGlhNHhoVVB3TEVwdnAwLVF5TG1peHNrZWZFcmplbHd3NGh3Qm1CbmtwaHhoS0t0WG1sTHVtbmM4Qndid2hLREdxcFFZb0NKQWI3eVpjUmRoR1VWeVdoV2xhcXdSalRTSVdtUHpRTHZmcTNYVnlvaEFOeVhVMDdJSDVDQmxhdUJ3d1BVT2hBLUNNN0VPcG1MZ2VuWHZIU0R2eNIBtgFBVV95cUxOeVJvZHROLVJvNHd6NGxqWUNieHdYTS1TUUFkSEgyeXR3R29KWlBickJzU0FYNmh6YmJnTmZtTzBqVjAwek1wRHVXZERWWlBNZWtESzREd2VjNk1rdThvUVdDWlZhNWhRN2RLUjVodGh2Um9FZ0hWcndPSlVwTkpMM0dSR1lfM285alhfbWxIZnJQTkxCcWxSLWdRV1pxelNLOEkwTWxJdVlmOTFpZ0l3R25ETHJhZw?oc=5) |
 | Donald Trump's 50% tariff on India kicks in as PM Modi urges self-reliance - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9lcmd1Q25uVVVoSUZXS0o0RzFsQ0NVdDZDc2UxZnVmSTRLclpGZ2EycWNRVWxDV2FPOEdiWXRLTVYybU1kNTBkQ0JUeHBYa05uaGtHdHRvRlZUQdIBX0FVX3lxTE9sQjU4SkZLYzBRektSMTRsd2tIUEJGQV9zTTFKV0llNU5vMDN1Tl9wS2RXNEZ6cmdnWmx3aWc2NTlfa25DNmNmVmhjYWxORTNnNmtoNXJ3LU51QnBhNHJn?oc=5) |
-| FEMA employees put on leave after criticizing Trump administration in open letter - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPbXRObUxKSFFyS3F0ZnRvVGxHWXhqcG5mdkFLOTl3VnIzbWk2bmtHLW8wdll1Ny1CWTlyZHU4ZENBNW1fNEpvQmd0UlZ5WnNqZnR0MDU0WDFJZE1uTlBhN1hJLWVMUjVubUIydE8xWnMyV0xfREV1bXBqcUgybl9wWm5TbFVjSVloUllmRWNaR3c1bUlLcVdubDA0azNyTUFiRHF3X2kyclJjTDVfaHBFOA?oc=5) |
+| FEMA Suspends Staff Who Signed a Letter Criticizing Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNT0Nmd3o4Uk5GUDZRRTJFbDFOWnNTcU1vSWpCTGRjWmdMLUc2LTZrS05wTFhLMGZVcldmdWxEeUd0Unp3T1o3U3Nvb1V3eDNHVFlKeThmU19nM1Q3bVdfeWd1clJVTzdxTTZqT1lvYTRYX3JUc0J2X0E2NlFNdXY1YnlnTTJvSHJSZktleDdmNVRFbnFGTUZLQw?oc=5) |
 | DOGE put Social Security numbers and other data on a risky server, whistleblower alleges - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOLTVsRXZrdllQd3BYZEVwcy1sWXpuUlNpWFRUdW8xUm9lMGdNcXVTb2VES3J2S1h6OUprZzE2NGctMVB0cUlsb2g2NEJjeEJYZkVtUUJzVDdkOVpvMjdBN0d5NFFsUHg0VDJEbW1uLTk2YmJrZTlnSUI3LUdkNHJpSmt0OHdWLUVMMDVLakxNdnpHWnpMS21EZmZwalBFTjkzV0N5X0RxLTBDZWw2cC1pTExuMy1NUDM2YWFF0gFWQVVfeXFMT0RxblhSRXdPb0NPM1N6S3Q3SEZXMVhwMnJiRnN5Ukl4aE12Q3J2UV9URms2YnIwYnJvWVByLUVqSVpLUm9TWkJsb3NpOGRmNS1qTGZZMUE?oc=5) |
 | Illinois governor hits back after Trump mocks his weight: ‘It takes one to know one’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQNF9sYzIzZWh6UjR2SEk0alpMS2paVE9ZSGlMZlYtUnp3UlM5aHF6V295Z3diazhSNkgzNFVMZUxsV1RFYUxRX1JxNTdqd0Jxc1dOREtkMDloVzVWTzQyY21RbjNQNWRZUERTNGhUeHJfUUZPalU0UnFTQTdiY19mSk9OWnk0ejNEbVJwaVFR?oc=5) |
-| Israel Links Deadly Hospital Attack in Gaza to Hamas Surveillance Camera - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNVFpGd0VoT3Nsd1BVMkpFYlhINjF3XzNMM1B2eUhnNzBUcGdGRTRLLU8xS3JSN09hQWJMOU9RaUoyNHJUNGlJc3VIdmR2NXhBb3Fsa3JHcERYb1ZQVVhQN2NJQlhiSkk1VXUxUFl1QXhZYnlzMldjSm9CQmkzQWEtVDNXM294UWpENC10dkxpWVBoQnBzc2UtcHotRGFGdw?oc=5) |
+| Reuters and AP journalists killed in Gaza strike were not 'a target,' an Israeli military spokesperson says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPaEt3cTc4T2s5VXNvVnliVDRLV29fYTZzRGxwYVpnVGNoeGt3T0M5UTkxb2pab0VRZlhQNk0ybGZLNGtvb3hlMXVDLTkwS1JERUJwajFJb2ltWGhEVmxXT3lOUGVSLWdXMWhOUnJhci1yRHRFN1hiMFRrZkc5TmRfV0JzOTlkT0wtcG84VHZJODlHQlZ0VUFxcktZSjNoSzdZMFFlei1XalRZOU9reFZ2VU9XUndUQTkxN1VwXzlNN0hid2pGWUV6cmEyRWtDUQ?oc=5) |
 | Democrats break GOP supermajority in Iowa Senate by flipping Republican seat in special election - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPRU1CUWZfakJGS2tQNzFwVXdQbWtpRTJXcUtPN2d3VDlTUFdhLTEzcFkwX0lYVXk4RG9lMmpGWlpHaUxXWkl5Y2Z3NUo2YS0wZFhxYWRqR0tVcDYtZEpFd2ZseVBuSTk1SmotUUNQRW9aS1VKNVk5ZlM5eWU5Vy1NdDlxVGMzdTB3NXN3WUNidDJ1aXNIdGxseWtTemZWZC1hcDliT2o3ZUE5LVJkaVpvMkN3?oc=5) |
 | Wisconsin missing kayaker who faked his own death and fled U.S. is sentenced to 89 days in jail - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPOGxvdVhKTzVONEFLVklQXzJieHh3V2xvbHA1Rl9vZWlMS2ZZaVF0MTR2OGVaUzhmMmRXcHVKZ0pBZXhHOVZLTERTLWhyaTdPbnBVT0hTc3lhWUU0a0FOdHA4VGc3d3d4bXFuaFY4MVRWNURpQ003amI1VnB3a3F5d21rak02QW_SAYwBQVVfeXFMUEtqWWFIdllvV045VFUzUWtsdE9ScFJ2aTg0dVVfaWJjN2NYOE16UHZycjAyckx4N3owdHBSVmlmbTF5bTJzOUtkOURqaW1WS1duWFROVUVfdE9VbFRlT0pDWVN1cGZNZ0tOaXVMZEVma251MVhYRXJRMUgtMGx6VC13eVFoY1J3Umw3QlU?oc=5) |
 | FBI urges students to be vigilant amid wave of swatting hoaxes - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1JbjNFS0xvQXZCZDZsRVJEWWtBOXE1eWpld2FFalZfZUVHVmdieUFzVHlMNEZkajEtUzdkWjNhd3JfNlZFLXBUZlJOcWF0STZPSEVZQkVWeHRWUdIBX0FVX3lxTE5iRXhxVGRQV2lseERmVlJwQjE0SkhrcURfN3U2ZDdaa0d4UnkyOVVXWm01R0V5ZmEzSHYwQjZEMDJLZTZmc19oNXJXajJCZDY3bnRsQTNxN1RYUU5DNnFR?oc=5) |
