@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 08:16:39（北京时间）**
+🕒 更新时间：**2025年08月27日 08:25:42（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | "Mind-bendingly ridiculous": MAGA rages over Trump's Chinese students announcement - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTFBwNGZrdV9sbVplandGVG1lNFlfRkwzbURVU09rMlJvOTJNc2t6c2JRNnN1dXlqTE1XeDRzeElEeTMzOVFtNWwyaW5HM2kzUVVzZTR0b1NMSk1RaUtEZTRNY1VVU3lOOThUVVZyaA?oc=5) |
 | Federal Judge Allows Case to Proceed Against Wisconsin Jurist Accused of Obstructing ICE - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5YMnVBbTBRYlZYWmd2NDJHUHF3czh6aEt2RjkxdHV2LTQwX0FVQUNhWG04UGk1OHY2aDdsVHpoVFk5UTJfT241ODk0Rnhtakp3N19TVkZPV3ZEcWNTWHY1dURUcWJPSTNyMDFnakx1amNKVzFyQnpHbnFNbw?oc=5) |
 | ‘Clearly a low moment’: US-India relationship sours as new tariffs kick in - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOOHUxdEJ2Sl9VdW9YRFZjc1FXSldnRm83aFdobi11OUlOTXY0OFlTejJxY0NwYlYwZTJ4bldoVjRIOGVfc2p4OGZDbW16c0JNOXRITG5lcGRJOTBwVzRGekNoTjB6Z05GMEljaTVtOGQycFdWQlYyX05SZUJFZ2ktSi1fRkdKNW82YTJUYWVEZFRpcGpIR1c5cGdFdjh4bmtVdlB2ejVjd29ROHgtLUR5eUQwcW5JVkJNbEQ2amZycw?oc=5) |
-| Towering dust storm known as a haboob plunges Phoenix into darkness - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQbmNHXzRvcXhNVDBCNFZqdjFWeGlnaWJoQVpZTEMwOE9FQWxkS1pyQUM1Zk5iMF8zZUdIUUZtMXd2UGlDem1VNWlWZFhyYmZaeWtaYzNLdTczNEJpSEQ5LVlYTVhwWEZUQ1pFYTB2dmJ4VTE4YnJMclJyWDRXaG9OSG1Yb2wyYUVscDdJSEFoQ241VWQySTh5b0JVbTQ?oc=5) |
 | Donald Trump says he wants to rebrand his 'big, beautiful bill' - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPTkl2UHo2WF9pNkxpclR2S0h5NlI3emNyUF9tRkN6LTlVd2lzTUV4bVBtSnF6Tm93YmYwQ24tSXh0N05EMzdyc3hVUEVYX2EwLVJXd0ZWSGJOVjFldzdIcTlEeExJLUVSWUpGSmo1YmRzOUtOTDUwdktYT2NNS3lzZ0hTbTY5T3hUVnQ3OUFjMFJhOEM3WXdERF83YTZrWm91WTk0UtIBVkFVX3lxTE1JaG5yN1dKWTJiLU8wR2Q3ZmlBX1EyRlBTWGw4dG5UbS1ld04tU1NzX3RPQ2ZVZmxSZ0VRZUxxd3lfT1E1bWZVdklMVXBPYkY0YldPcC13?oc=5) |
+| Towering dust storm known as a haboob plunges Phoenix into darkness - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQbmNHXzRvcXhNVDBCNFZqdjFWeGlnaWJoQVpZTEMwOE9FQWxkS1pyQUM1Zk5iMF8zZUdIUUZtMXd2UGlDem1VNWlWZFhyYmZaeWtaYzNLdTczNEJpSEQ5LVlYTVhwWEZUQ1pFYTB2dmJ4VTE4YnJMclJyWDRXaG9OSG1Yb2wyYUVscDdJSEFoQ241VWQySTh5b0JVbTQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
