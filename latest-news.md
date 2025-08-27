@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 16:32:33（北京时间）**
+🕒 更新时间：**2025年08月27日 16:41:50（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump Raises Tariffs on India to 50% Over Russian Oil - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOXzZKamFoQzhZaHdZMFNyOFF5LTVGWGVuT2RiZGQ3ZVg4Uk0yVzY0TldzQkN6c2ltc3JsT2k2V2pjX195SmMwU2pqYlROU1hxZWJBdzZsV3ZrVUZBc01UZDMzOU8wb254eWROSFhZUkNIOHNaclhTazVtN1Q1ODZfcWJZQVprQQ?oc=5) |
+| Trump's doubling of tariffs on Indian imports takes effect, hiking tensions - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOeVpvMkc0dHYtY1ZSZzBZd1NwSXNFQ1VfbGJHeURVenZBOGhQZkVxU0tFREZVQlZ4NXA2TnhNVF8xZU1GMTJmOXN6RDBOaVpPRjZ4NHhhX3BNM25nVWktTkl3U2YzUl9DUzdXWld5TnBJRWQ0Vk9PZ0IwdTRpZ2tEQ0xvd0VKMnI1UWhsOTl6SzJBUHFCcmdzSmdKS2Q0Tk9CWnAzWXlFdnVPZzc1T3dkQzlnQWUtZw?oc=5) |
 | FEMA employees put on leave after criticizing Trump administration in open letter - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPbXRObUxKSFFyS3F0ZnRvVGxHWXhqcG5mdkFLOTl3VnIzbWk2bmtHLW8wdll1Ny1CWTlyZHU4ZENBNW1fNEpvQmd0UlZ5WnNqZnR0MDU0WDFJZE1uTlBhN1hJLWVMUjVubUIydE8xWnMyV0xfREV1bXBqcUgybl9wWm5TbFVjSVloUllmRWNaR3c1bUlLcVdubDA0azNyTUFiRHF3X2kyclJjTDVfaHBFOA?oc=5) |
-| Reuters and AP journalists killed in Gaza strike were not 'a target,' an Israeli military spokesperson says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPaEt3cTc4T2s5VXNvVnliVDRLV29fYTZzRGxwYVpnVGNoeGt3T0M5UTkxb2pab0VRZlhQNk0ybGZLNGtvb3hlMXVDLTkwS1JERUJwajFJb2ltWGhEVmxXT3lOUGVSLWdXMWhOUnJhci1yRHRFN1hiMFRrZkc5TmRfV0JzOTlkT0wtcG84VHZJODlHQlZ0VUFxcktZSjNoSzdZMFFlei1XalRZOU9reFZ2VU9XUndUQTkxN1VwXzlNN0hid2pGWUV6cmEyRWtDUQ?oc=5) |
+| Israel Links Deadly Hospital Attack in Gaza to Hamas Surveillance Camera - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNVFpGd0VoT3Nsd1BVMkpFYlhINjF3XzNMM1B2eUhnNzBUcGdGRTRLLU8xS3JSN09hQWJMOU9RaUoyNHJUNGlJc3VIdmR2NXhBb3Fsa3JHcERYb1ZQVVhQN2NJQlhiSkk1VXUxUFl1QXhZYnlzMldjSm9CQmkzQWEtVDNXM294UWpENC10dkxpWVBoQnBzc2UtcHotRGFGdw?oc=5) |
 | Wisconsin missing kayaker who faked his own death and fled U.S. is sentenced to 89 days in jail - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPOGxvdVhKTzVONEFLVklQXzJieHh3V2xvbHA1Rl9vZWlMS2ZZaVF0MTR2OGVaUzhmMmRXcHVKZ0pBZXhHOVZLTERTLWhyaTdPbnBVT0hTc3lhWUU0a0FOdHA4VGc3d3d4bXFuaFY4MVRWNURpQ003amI1VnB3a3F5d21rak02QW_SAYwBQVVfeXFMUEtqWWFIdllvV045VFUzUWtsdE9ScFJ2aTg0dVVfaWJjN2NYOE16UHZycjAyckx4N3owdHBSVmlmbTF5bTJzOUtkOURqaW1WS1duWFROVUVfdE9VbFRlT0pDWVN1cGZNZ0tOaXVMZEVma251MVhYRXJRMUgtMGx6VC13eVFoY1J3Umw3QlU?oc=5) |
 | One dead, 6 hurt after shooter opens fire with high-powered rifle in Minneapolis - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPZVkxeUowSk1KendaaTBNVkRQM082QlBaa0p6TmdwMG9lVXpXclRYNG9vc3lpSzhuMTFwTl82amMtMFY1MERqX2VkVUlHVDcxd19lWFJEWmF0LVVST1hhaTJXY3BSc3c2XzhTMzh4ZkVxN01YUUpnaTMtX3VDUW9wcHNUSkVXQQ?oc=5) |
 | Deploy National Guard to Chicago? Trump Says He Has ‘The Right to Do Anything I Want to Do.’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPdUx0bEZEeUR0VXpLVTB1aER4WV9sVU14WHNFTndqM1h6OUMxUUx2elFjV2pZOTZFdnNSQ2lGeHNkNm9DREhhQThyeVM4LTJuSzBvSExmSVJiWjJXZnNhbU5kQkVJVVFJdFd4YlNnOGFYUFFQUW5iMUZkUXVHTzhlQl83aFpOZHpjMDE1LTFqN0VwTmM?oc=5) |
