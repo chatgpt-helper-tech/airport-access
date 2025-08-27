@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 13:33:22（北京时间）**
+🕒 更新时间：**2025年08月27日 13:41:57（北京时间）**
 
 ---
 
@@ -14,8 +14,8 @@
 | 'I thought it was the end of my life': Inside Israel's attack on Iran's Evin Prison | [阅读全文](https://www.bbc.com/news/articles/czd0e23j9q8o?at_medium=RSS&at_campaign=rss) |
 | Wasp 'riding a broomstick' wows photography judges | [阅读全文](https://www.bbc.com/news/articles/c70r7plrdndo?at_medium=RSS&at_campaign=rss) |
 | Trump's 50% tariff on India kicks in as Modi urges self-reliance | [阅读全文](https://www.bbc.com/news/articles/c5ykznn158qo?at_medium=RSS&at_campaign=rss) |
-| Princess Diana 90s time capsule contains Kylie CD and pocket TV | [阅读全文](https://www.bbc.com/news/articles/cgqn5jzn2vgo?at_medium=RSS&at_campaign=rss) |
 | 'I immediately freaked out' - Taylor Swift's engagement sends fans into frenzy | [阅读全文](https://www.bbc.com/news/articles/c4gzdpk3xwjo?at_medium=RSS&at_campaign=rss) |
+| Princess Diana 90s time capsule contains Kylie CD and pocket TV | [阅读全文](https://www.bbc.com/news/articles/cgqn5jzn2vgo?at_medium=RSS&at_campaign=rss) |
 | How deliverable is Reform's plan on migration? | [阅读全文](https://www.bbc.com/news/articles/cx29l0wqlgeo?at_medium=RSS&at_campaign=rss) |
 | Australia police shooting suspect named as manhunt continues | [阅读全文](https://www.bbc.com/news/articles/c4g6wlxd5kko?at_medium=RSS&at_campaign=rss) |
 
