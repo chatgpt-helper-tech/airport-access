@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月27日 21:17:54（北京时间）**
+🕒 更新时间：**2025年08月27日 21:25:26（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | MoMA Film Series: Reclaiming New Orleans, 20 Years After Katrina - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNRUU5dFQxOXVQTmdZSGtVMWVXNUt6cGdkWGIxN0NOWDJLTjBDb3lNZDJJVVhjeHdERndKUGdQOXdieHJnUFRWX2l4eFhQX1plcG5Kb2U4bHdKcEpJME15bHFoYkdVOFBpcHdGSlV1Rk02Tk1aZ3V0RXMzN3BETnlfYlVLUk52WVZfTVV5QU1VZklHeDkyNnZ5RQ?oc=5) |
 | Man who faked death, fled US gets 89 days in jail for the 89 days he was missing - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQSWVaaWRpTWR4ZEE4eXQzeEhlNF9sWldiN0NUekI3OVoyN0MxaThFOVBjZ296SEdSZVBGX19ZSFhfUTNsUkJBeFRWNTA3TWxhYWJPRlZQTnJsVWlWcUhyOTRxWHJWTEVlai1EVGRieXM1RXZQNFBzTkI5cWU5SmY0c3FkcW9lYm1U0gGOAUFVX3lxTE1RS3gyRHoyUExhc2dlTUVoUmQ4SmU1VXdJUXU4UDVIMEd3c19lNnR1YnA2ZU5ta0I4N3pkZWZ0SjFKR0tvNldmZFJ0TTc5SG5LLXlqU2xRdXNmb2NTM1ZRdUtrajQ2THdJNzVXSnhJTUIwQUFCX2VueTB1Tk1ETVVvSS1kX1BGWXFuSEdOdHc?oc=5) |
 | FBI urges students to be vigilant amid wave of swatting hoaxes - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1JbjNFS0xvQXZCZDZsRVJEWWtBOXE1eWpld2FFalZfZUVHVmdieUFzVHlMNEZkajEtUzdkWjNhd3JfNlZFLXBUZlJOcWF0STZPSEVZQkVWeHRWUdIBX0FVX3lxTE5iRXhxVGRQV2lseERmVlJwQjE0SkhrcURfN3U2ZDdaa0d4UnkyOVVXWm01R0V5ZmEzSHYwQjZEMDJLZTZmc19oNXJXajJCZDY3bnRsQTNxN1RYUU5DNnFR?oc=5) |
-| Former Illinois National Guard general says troops can't act as law enforcement in Chicago - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQeVkzdGdQSE93azlfRnZEVm9fblkyT1p1a29WUWNJeGs0RXJid09ZR0F0aXZiREc4XzAtQzczNG1OV2VZWFZrZlNaSnVFQUZJYkZ4WmhIY25zSGRKZ1JCUVhUcVQ5RE1XZ0RvVHNfZk1hZzgwUEtsaHlycmVydzJocXNXMGNVcmh1QTJWZDRXb1BrRFM3WDVWLUJGaHd3Um5H?oc=5) |
+| Democratic governors look to derail Trump's plan to send National Guard to Chicago and other cities - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOdXNFTXZBNEtJbmZUSndEYmRERVhERVZoeWZEZnExVkxTd25BOWQtOTBRSjQ0azNhaFdGQ0s3SFBNb0NyZEI4VkxLLThNM29Zdi1NY2dQeWJwMFFvaWhKaU9LZlhKUmJscEZKUEF3cmR4VThYZThEWlFudTNsNDVPZ2V0Y3VRSjZ5aGJmd3RNNTE4TkREXzNrQmVScXpOQ0JZMUNxbzA5UTFzZDhnQVY1eE1R?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
