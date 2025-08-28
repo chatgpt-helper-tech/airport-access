@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 01:56:20（北京时间）**
+🕒 更新时间：**2025年08月29日 02:01:07（北京时间）**
 
 ---
 
@@ -8,6 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| European leaders outraged after Russian strikes kill 19 and damage EU's HQ | [阅读全文](https://www.bbc.com/news/articles/cvg3y7m2gz0o?at_medium=RSS&at_campaign=rss) |
 | Lives torn apart in Kyiv after Russia's heaviest bombardment for weeks | [阅读全文](https://www.bbc.com/news/articles/cj3ld2r2206o?at_medium=RSS&at_campaign=rss) |
 | British Tour de France winner Chris Froome airlifted to hospital after 'serious' crash | [阅读全文](https://www.bbc.com/sport/cycling/articles/c4glv348xjwo?at_medium=RSS&at_campaign=rss) |
 | Epping asylum seeker hotel order could spark more protests, court told | [阅读全文](https://www.bbc.com/news/articles/cpqv01lxvyro?at_medium=RSS&at_campaign=rss) |
@@ -17,7 +18,6 @@
 | 'The whole town is on a high': What Grimsby's dramatic win over Man Utd means to fans | [阅读全文](https://www.bbc.com/news/articles/cwy5zp1xg1vo?at_medium=RSS&at_campaign=rss) |
 | Electric cars eligible for £3,750 discount announced | [阅读全文](https://www.bbc.com/news/articles/cvgvywyev1do?at_medium=RSS&at_campaign=rss) |
 | Reform council boss bans local newspaper's reporters | [阅读全文](https://www.bbc.com/news/articles/cger45p0lv0o?at_medium=RSS&at_campaign=rss) |
-| Ariana Grande announces first tour for seven years | [阅读全文](https://www.bbc.com/news/articles/cr74d3k3358o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -29,8 +29,8 @@
 | Florida's 'Alligator Alcatraz' detention facility to be empty 'within a few days' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPWXNPSU1LSDl6eEhpSDZQSC1ZSDhLdWNFdVNhYWVwT0xLQ2o2SDN6a2dMX045eXlOcm1zSFUtLWpjc0lEWlpfREFVOXgwUk00X3JOWnVEWVJwdkQ1bkJka25IRjdKczAtYnRpLTI0d1hZb3AxU3dMd3RTSmF4UUxLWXpvREF4UWRYeGtTUjJZcmdhZw?oc=5) |
 | Chicago prepares for National Guard to come in - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPZXQxZmp3eW1LcnlwSGxKSTBEODkwa0J3eWp5WC1KRTEwTzMxVXk0Qm8yMEFHQlNEdE96VFI2a1BmdmV5QTZTN2xHc1lpRlRPTzlQVUtSNkJESUMwVU5DSkdsRmtZMmdWOF9aTXZfcjVxV2RTa1k2cm5mb1VyUWJMcHN2TkZhaXY5blVpb0NIYmVzUTZCNjg1cllXeFI?oc=5) |
 | This rule made many online purchases dirt cheap for U.S. consumers. Now it's ending - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOZEg1QllTdUZrNlFjVlBvU25nbXdxRE1IM1Y0Y0pFdTRnbi1vN0hWekc0UkFKa1g3YkIzT25xNk14UXBiWlhWbk5Sb19wc1NDMklRMlVLNE5Cc0ZDQWY2SG5IVlBaUjAyeHF5RVlwS2NKZVh6WlZNNEVvdi04NVFwM0JTS19xOXB2dFVjZGVJN1hSc2VqV0Yw?oc=5) |
-| D.C. Democrats rebuke Mayor Muriel Bowser's comments that Trump's surge reduced crime - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNYlhkZGlkUDJDcnVCcEllSTFZTjVCRWtnZjU5d2FtTjFyTFF3UnhqVEZ5WnVDZ3RUdk9tTC1COFd3eXhDVEd3SmdFTnpYNnFlbGQxcDc0Y25XUWZKanZLZmZQcmxnZnZOdTJhMFlZVXhmSW8tY0FKbnk2M1EzZTltaGV6cXVoM1k4eVl3YWR2Sm9rRUg3UjlVWjljenNJSmtuTHZqZno4cFNXeU5uc1dLR19hSk81cDR0d1ZFb2tWa0pMQ2FuU045YlR6U2hzVDd50gFWQVVfeXFMUHFCUkNfRzZPWU1GdmlSUEZuakZhYi1wdzRVNHAxRDMycnI3ZHRidVhxRTAwb2tIanY5Z3Fsb2oweGY3OXNwbVRHb3dDZ0V0YV9OX0k5Q0E?oc=5) |
 | Mississippi Museum Acquires Gun Linked to Emmett Till’s Murder - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNNTNIQ0pJb29MUFBvWHhqZUhZNWZWNGt3bUY5R1JuZW9QamoxNzdXaUUxQTZLaXdhNmphUmVUOTFqb2o4cnV6ZnA4N283YllPZlpBbmlGNFFzRV9FbzRHZDRPeGpUTzJ5bVV2eXhseXM0Tnc1UEtaTS0zOEZQc1VVcy13UQ?oc=5) |
+| D.C. mayor: "Masked ICE agents" and out-of-town National Guard are ineffective - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQbkFlOERkeXRscTBmd09TMVJGT002QkJEQ0FyaGctM3ZMTkxGdy01WmwtMWRuLWp3RWdubHQ4cGtvMHoyVGxCLV9Bc1NVMWFJa08tUGF0dGZ0NUhIQjd2aGMwY19xYm9SN0dBdVdQc3l0ZUVMQnoxaC1xcmNDMXhDQw?oc=5) |
 | ICE asks for access to Chicago-area Navy base to assist operations - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUURFaWhnMmlOUEtycE1tWWZpcXJpWnc1dnU0a3BzLWczZlJZYXNpY3pCbER5SGNxREFjaURuWjdiRThyODJ3dzlvS1kzRUtpZGlCTC14bWwzQXZlRTNTR3g3ZGxvNWNiNkJoa0tITlZoYWVrVDRfakdMUW9HVDl3ZS1xYWI4eURpT2JvODRkZDM?oc=5) |
 | ‘Evacuate NOW!’: What it was like to sound the alarm ahead of Hurricane Katrina - Yale Climate Connections | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNekE2V1AtNkU3U1FNSjQ0eEJNejdHYm4xaDVWbkZIR0tyeFhIc3d3TEV6emNueHBza2pVSm42MkJYR1M0WTZvLWE2am9xdFFMTjk0dGlOU3lac2pCVjAtQmtaQ3psUGVTcFh6TmpRWVRpM1g1ODM0T1NMR0g0dFFfY3B1RmpsUXM4QkdZLUN2SndwdXBWaUxuR3lOUTY1QThnRVBWV0dWeE05YTlhbm1uS1pYR0Y1Mzl4aDM4?oc=5) |
 
