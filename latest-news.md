@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 04:56:05（北京时间）**
+🕒 更新时间：**2025年08月29日 05:01:14（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trump administration plans big immigration enforcement operation in Chicago as soon as next week - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPTmp1TW9KODNvS0lHQnhhaEpBX0NZZ3IyRnE2U0dJNXlFVlhld2k2Z1lYeURhMGZoQ3E5MVFQcEZQODRmTWNrc1hNOVNZQ2RaS3ZKdzd2eUhPNk12SnE5dEhiQm40Z0pwYTdKRmZBbklKYUNyZmhRcWR0bHV6SEVhbGl5ZEZQV2xLV0Q1eHcxdw?oc=5) |
 | Democrats probe Trump administration's retreat from public corruption cases - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxPNGhyeExRdWlZUXhscFFaOGd5NFpMLTBjUW9zRVFHeUQ1TkswSjBGQ3BwVHRDcW1telFwZWU1cTJDQmVQcnEwSHZZMTVfcnlrRWltX2hnbmtoRDVCLU1yZFFWRjlINWNsZVRlRXlGOGtkTVFYSV9uelBYbXBHa1NIWFpmY0hWd2ZOTWtYTlIzOE1wV191cFFoTnRNZXlGZ0gxbVdLSnBHTDl6RGZvQWhnVktVQ2g3bFNDX0tBYVd3aGhfOHJiblFPX3JNY3nSAVZBVV95cUxQam5Sd2JKblk0Sm5XT040MUpXYUdBd3FUdTlSdFNuMmZuNldhSF9zWXVwcmdVY2k2RFBMUFgyaG03S0xuVWJ3cm5mb1RRaWxoakIxWHFPZw?oc=5) |
 | Bowser says Trump surge helps reduce crime, but hurts trust in police - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOVjZ1OXUxQ0F6V1oyS0hya1lNREVOV3ZHOFR5Z1MxRTN3WWZkTjFqVVdiUEM4UDM0RzZ3cXNsR3oyUmxOMUdHMW1UNDVDN2J6N2J1NWN1TDBtWXFTbFk2NTM4Y1l4Nk1MdElFUFM4RVNEVXNzWlFfcVJpQ0tIbDdqUHR1UXVoZnF3T2dIRTdTSzBZaEY5Wk5HdnMxQkJyOFJWZWc?oc=5) |
-| NC election official arrested after allegedly spiking granddaughters' ice cream with drugs - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOUklvUEtlLVZIMDNERGk2Nl9XdlF3ZG1HcUx4X2FIVDd1NU5UcFFiNlYzMk53V292dEZTRzQtcnM2VDN1N3h6cWhpcGxtcF9PVWJ3MjluX0lTQ1dxRzY5SlFGaTAwdHAtcmF4cHByYjNCRWRaUGJ2NXREQ3hqdGQxako0dms5OHllYVJOaTV3eE9nRVQwSnFYZE5pc9IBoAFBVV95cUxNR0pxUnBhQnlEZjAyaXNOZ3lkUnE4cHNLaTZINktoNFRORndlOXA0ckRGdGhEZy1CZy1JakJCNVNaZkVjVDFDVmxka2pXRW9vSm1wSWZWRXVvakFhN2ZGdFl5NnREcXd4eUZzN2tuNUNGMUJhbXBZS01qU1R4MDBSRi0yT1VaZnpZZm5ndlZPNnE2QkFHNEZDX2Z5N3RQRXk2?oc=5) |
 | Gun used in Emmett Till’s lynching is displayed in a museum 70 years after his murder - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQMFJ6Q2FnRTFqOUlHOTJkOWRKaFZkcGFya2lQMnJJNVpKdFR6MldHZUlYTm9iSzkyQTl3NjhPWXM3WVFiUlRKc3FuTXM4RENvNGdsVzRSdWlZaUZuZlVVRVp5Y0JNOEtWMXAtRUtRNFlBSy0wWm9TWHR3MWFVanlCYmFwb0dOOHlwckRVY0FodnVXZzE3UG53YldSb3VTSm1QU3drbnA0aw?oc=5) |
 | L.A. teen is moved to ICE detention center out of state without parents’ knowledge - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNSlp0Z181S1dBR205aWZtemJyTkRENkRVT1FtZGZqMnpQUjg0M0pzYXlsVXJxTVNzRm9sR2czUnhtNHhDYVh5VzlNX3A3d1gzTW9yTjV2ZGZHOTV2elNadWxKc2tGVHRsYmphRExKaWJqMjlzX0FUMS1UQmEyMjRhQUdUZ2hXVjluUmJFTU5XanNEREZZZFhoWlpOYnRIN0c0cTFYeS1BTFdqcjRjeFd3Tmc5LUN2UjhqNmQ1ZTE0R2FrcUxZY05qdDhnSno4Y0tQ?oc=5) |
+| Democrats press GOP leaders for meeting as shutdown looms - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOSjVhUnZ4TElLb2xBVFUwOUlwNDhnUFE0RE5wWVY5OVF0T0hoMTVIdi1FajhOQUV4M1JzZTh3MlUxdVA3bkdtcDI3STB2VDQwZ0RPQXF2ZjFHaWYzaVZSNXV0UEoxRlJiNjVDQXQ3ZFVSU2VmMk0xZ1ZMbk9ySGRIZFBvdWJWMEJNY0NMNjFIYjYzMEZRNUdMUlNDWXpOZU4waXkxYzE2UmlJejQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
