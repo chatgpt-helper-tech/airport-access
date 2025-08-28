@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 02:58:01（北京时间）**
+🕒 更新时间：**2025年08月29日 03:01:37（北京时间）**
 
 ---
 
@@ -10,14 +10,14 @@
 |--------|-------------|
 | European leaders outraged after Russian strikes kill 21 and damage EU's HQ | [阅读全文](https://www.bbc.com/news/articles/cvg3y7m2gz0o?at_medium=RSS&at_campaign=rss) |
 | Lives torn apart in Kyiv after Russia's heaviest bombardment for weeks | [阅读全文](https://www.bbc.com/news/articles/cj3ld2r2206o?at_medium=RSS&at_campaign=rss) |
-| British Tour de France winner Chris Froome airlifted to hospital after 'serious' crash | [阅读全文](https://www.bbc.com/sport/cycling/articles/c4glv348xjwo?at_medium=RSS&at_campaign=rss) |
 | Price of weight loss drug Mounjaro to be discounted in UK pharmacies | [阅读全文](https://www.bbc.com/news/articles/cvg3ykg4jrro?at_medium=RSS&at_campaign=rss) |
+| British Tour de France winner Chris Froome airlifted to hospital after 'serious' crash | [阅读全文](https://www.bbc.com/sport/cycling/articles/c4glv348xjwo?at_medium=RSS&at_campaign=rss) |
 | Epping asylum seeker hotel order could spark more protests, court told | [阅读全文](https://www.bbc.com/news/articles/cpqv01lxvyro?at_medium=RSS&at_campaign=rss) |
 | US Fed Governor Lisa Cook sues Trump over his attempt to fire her | [阅读全文](https://www.bbc.com/news/articles/c1dxl6ry4y3o?at_medium=RSS&at_campaign=rss) |
 | 'The whole town is on a high': What Grimsby's dramatic win over Man Utd means to fans | [阅读全文](https://www.bbc.com/news/articles/cwy5zp1xg1vo?at_medium=RSS&at_campaign=rss) |
 | Met special constable found guilty of child rape | [阅读全文](https://www.bbc.com/news/articles/c0ml30vgykro?at_medium=RSS&at_campaign=rss) |
-| Jessie J cancels tour dates to undergo surgery | [阅读全文](https://www.bbc.com/news/articles/cp3e0lr6x9yo?at_medium=RSS&at_campaign=rss) |
-| Electric cars eligible for £3,750 discount announced | [阅读全文](https://www.bbc.com/news/articles/cvgvywyev1do?at_medium=RSS&at_campaign=rss) |
+| Trump's 'Alligator Alcatraz' being emptied of immigrant detainees | [阅读全文](https://www.bbc.com/news/articles/c39dm3kv4exo?at_medium=RSS&at_campaign=rss) |
+| Reform council boss bans local newspaper's reporters | [阅读全文](https://www.bbc.com/news/articles/cger45p0lv0o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
