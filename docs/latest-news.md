@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 02:01:07（北京时间）**
+🕒 更新时间：**2025年08月29日 02:08:42（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Minneapolis Catholic school shooting: What we know so far - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNUE5jVFhSTE8tQWJHNF9aNXRjTEJFSUhqMThUU21GUmlId19mRnVJUUI3R3dubTBjajkwM256SGNGbWc2UWtwN2h5WTFSVVRiYWg4UzRoLV9DcUJoZHN2bWJxMUYzaHUxdW40d0I5WXB1NkJLQTI5eC13RGpoeTNxYzdxaTJSNE1ucGJPaDg4Q09hTGh4ejFB?oc=5) |
-| Trump’s border czar says there will be a ‘ramp up’ of Ice operations in Democratic-led cities – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNS1FLaU5uY191OWVLVlY2Si1TblNGX3pYZlh3TFl2WUxGWFg5WFR1XzdzVTB5MGRlSk00dG1WSmlISXBZN3hYbXNmQnd2V1VsNTVLT0wwaC1xSk5nTVdycERRM29tTHpUWWhfVWJlY29RcVFxbV9YUWR6b3lTUG9WVkExQ1BBUWc1VXpPa3c2M1lmb3lxZlpQSjQ1NXlLLTVSQm1acDItcW85dw?oc=5) |
+| CDC director ousted after COVID vaccine argument with RFK Jr.: Source - NewsNation | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNS2RwSGtiTEFIbTlkbEdwSGhMVVhBQ3IxQ0FLMFo2OGMwMFVYQi1ubFEweGFFd2J3OEdqRXB3c2FseHNGX1h3V2JhTUpOb1R2VDJlSm1GQS11eGNEbmxRTXcwNU1NTk41TUY2LW11eFNNVmtlTDVDd0p5T2daWVBLdHo2dzNRdTdhbklMMEtmQzZHMmF5dlEyRmVidzJQbVczWjQ3TVp5Z3NOYkNmSzd30gG0AUFVX3lxTE9hbjhMYWZyVnRxMmU0WGp6czZrWmh2Y1RTVE9qN2hmWkZyQTJKX05FWG9iSTJkU0ZQX1ZtVVVmbjhzSFkzdklEUGNDVTFuY2VnRC1IdFEyTms4c205RlZsbjRfZ3hWZGp2WjV5MWtTMVZSM1NMYldqN09QanlycUhEMUNDZHhsVUMyaDlJd0IwMkc5cy03bjRaVFkwQ2FBVDZobUNrRF8zMFlmWDhEOFNqOUxOYw?oc=5) |
 | Europe furious as deadly Russian attack damages prominent Kyiv offices - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQV1NiY1lOaHZ6RmdoQU51U1hHX0czai1EN19ValloOVptaVFkRHBJai0tYkJULVl0aWFKVmVjUWFyMFk3LXlnNms2UmhJTnJMY2RyQkxNcm53OTRFYk9EMUROYUhXMGtGQl9DNWtPQ2N6bnJEdDJuU1dyM2RBV29CbVVKWWRsQQ?oc=5) |
-| Florida's 'Alligator Alcatraz' detention facility to be empty 'within a few days' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPWXNPSU1LSDl6eEhpSDZQSC1ZSDhLdWNFdVNhYWVwT0xLQ2o2SDN6a2dMX045eXlOcm1zSFUtLWpjc0lEWlpfREFVOXgwUk00X3JOWnVEWVJwdkQ1bkJka25IRjdKczAtYnRpLTI0d1hZb3AxU3dMd3RTSmF4UUxLWXpvREF4UWRYeGtTUjJZcmdhZw?oc=5) |
+| Closure of Florida’s ‘Alligator Alcatraz’ immigration detention center can proceed, judge says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOeU1QenNsVmpYbUNBeWRPVHZ1T3ZDaXpvMERQSFRlVmdiWjJzN1BWNi1rdUhQSEw4aEU5UEhPZ0JocFpIN3VhRzZ3M2oxa3pXOVFWWXBhY1UxSWR1UlB1R1ZFMENTOFQybFR4R2J0NTN3anQ2WVpCOWExWmhhd1JqZ1ZQSk1YWjB1ZE8tTldaX3VQLTFWS2FCRERzSnVNdXh2TGJxVw?oc=5) |
 | Chicago prepares for National Guard to come in - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPZXQxZmp3eW1LcnlwSGxKSTBEODkwa0J3eWp5WC1KRTEwTzMxVXk0Qm8yMEFHQlNEdE96VFI2a1BmdmV5QTZTN2xHc1lpRlRPTzlQVUtSNkJESUMwVU5DSkdsRmtZMmdWOF9aTXZfcjVxV2RTa1k2cm5mb1VyUWJMcHN2TkZhaXY5blVpb0NIYmVzUTZCNjg1cllXeFI?oc=5) |
 | This rule made many online purchases dirt cheap for U.S. consumers. Now it's ending - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOZEg1QllTdUZrNlFjVlBvU25nbXdxRE1IM1Y0Y0pFdTRnbi1vN0hWekc0UkFKa1g3YkIzT25xNk14UXBiWlhWbk5Sb19wc1NDMklRMlVLNE5Cc0ZDQWY2SG5IVlBaUjAyeHF5RVlwS2NKZVh6WlZNNEVvdi04NVFwM0JTS19xOXB2dFVjZGVJN1hSc2VqV0Yw?oc=5) |
 | Mississippi Museum Acquires Gun Linked to Emmett Till’s Murder - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNNTNIQ0pJb29MUFBvWHhqZUhZNWZWNGt3bUY5R1JuZW9QamoxNzdXaUUxQTZLaXdhNmphUmVUOTFqb2o4cnV6ZnA4N283YllPZlpBbmlGNFFzRV9FbzRHZDRPeGpUTzJ5bVV2eXhseXM0Tnc1UEtaTS0zOEZQc1VVcy13UQ?oc=5) |
-| D.C. mayor: "Masked ICE agents" and out-of-town National Guard are ineffective - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQbkFlOERkeXRscTBmd09TMVJGT002QkJEQ0FyaGctM3ZMTkxGdy01WmwtMWRuLWp3RWdubHQ4cGtvMHoyVGxCLV9Bc1NVMWFJa08tUGF0dGZ0NUhIQjd2aGMwY19xYm9SN0dBdVdQc3l0ZUVMQnoxaC1xcmNDMXhDQw?oc=5) |
-| ICE asks for access to Chicago-area Navy base to assist operations - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUURFaWhnMmlOUEtycE1tWWZpcXJpWnc1dnU0a3BzLWczZlJZYXNpY3pCbER5SGNxREFjaURuWjdiRThyODJ3dzlvS1kzRUtpZGlCTC14bWwzQXZlRTNTR3g3ZGxvNWNiNkJoa0tITlZoYWVrVDRfakdMUW9HVDl3ZS1xYWI4eURpT2JvODRkZDM?oc=5) |
 | ‘Evacuate NOW!’: What it was like to sound the alarm ahead of Hurricane Katrina - Yale Climate Connections | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNekE2V1AtNkU3U1FNSjQ0eEJNejdHYm4xaDVWbkZIR0tyeFhIc3d3TEV6emNueHBza2pVSm42MkJYR1M0WTZvLWE2am9xdFFMTjk0dGlOU3lac2pCVjAtQmtaQ3psUGVTcFh6TmpRWVRpM1g1ODM0T1NMR0g0dFFfY3B1RmpsUXM4QkdZLUN2SndwdXBWaUxuR3lOUTY1QThnRVBWV0dWeE05YTlhbm1uS1pYR0Y1Mzl4aDM4?oc=5) |
+| What polling shows about Trump’s pivot from immigration to crime - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOQ240N2piT3JQVkVOOFBnQm1yd0pyMldkUjFqNkN2S0JndWotSjFVaG1rUEZhOUNGSXpzZ2o5OVQtREpCV2lhcWhpTHZrR0ZadDktclF5RUhHOUFhelZTbk5LVjlGM1hrT3VhOEZyakVyUnl3TkVORVRNeHp2ZFc3czRsU3RHN1g5d1N6Z1R6VQ?oc=5) |
+| How a grand jury acted as "sword" and "shield" for D.C. sandwich guy - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQTGtrdFpSb3VyallNVlNIXzltV3JMNzMwM0dkOTd4Wk8zRzJ2cElYMFFjMEZIUjZfcVlFcWtZeFJQYWV5SXJoZV8tRV9iMkVDRGhiMGxXZ1pxRW5LeFZQcnlqdUNvd2w1RHlWc0tpeVkxa0p3NTV3ZUxlbWE2TlBnMUJ0bw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
