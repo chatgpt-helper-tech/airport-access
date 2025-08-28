@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 10:24:14（北京时间）**
+🕒 更新时间：**2025年08月28日 10:33:06（北京时间）**
 
 ---
 
@@ -8,14 +8,14 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Two children dead and 17 others injured in Minneapolis school shooting | [阅读全文](https://www.bbc.com/news/articles/c7760x87r4po?at_medium=RSS&at_campaign=rss) |
+| FBI investigates Minneapolis school shooting as anti-Catholic hate crime | [阅读全文](https://www.bbc.com/news/articles/c7760x87r4po?at_medium=RSS&at_campaign=rss) |
 | Woman says Chinese student predator raped her hours before second attack | [阅读全文](https://www.bbc.com/news/articles/c79l4z3v3p3o?at_medium=RSS&at_campaign=rss) |
 | MoD staff warned not to share hidden data before Afghan leak | [阅读全文](https://www.bbc.com/news/articles/cwy5e911j37o?at_medium=RSS&at_campaign=rss) |
 | Jacqueline Wilson on the 'easiest and hardest book I've ever written' | [阅读全文](https://www.bbc.com/news/articles/c7vl097jd8eo?at_medium=RSS&at_campaign=rss) |
 | Blair joins White House meeting with Trump on post-war Gaza | [阅读全文](https://www.bbc.com/news/articles/c4gmrxd8ryno?at_medium=RSS&at_campaign=rss) |
-| Ed Davey to boycott Trump state banquet over Gaza | [阅读全文](https://www.bbc.com/news/articles/crlz6rp2ln8o?at_medium=RSS&at_campaign=rss) |
 | What next for Man Utd and Amorim after humiliation at Grimsby? | [阅读全文](https://www.bbc.com/sport/football/articles/cnv7lz9nlq5o?at_medium=RSS&at_campaign=rss) |
 | Value of small parcels from China to UK doubles to £3bn as Shein sales soar | [阅读全文](https://www.bbc.com/news/articles/cnv78eey8plo?at_medium=RSS&at_campaign=rss) |
+| Ed Davey to boycott Trump state banquet over Gaza | [阅读全文](https://www.bbc.com/news/articles/crlz6rp2ln8o?at_medium=RSS&at_campaign=rss) |
 | Apple warns UK against introducing tougher tech regulation | [阅读全文](https://www.bbc.com/news/articles/ckgj9kjmvzzo?at_medium=RSS&at_campaign=rss) |
 | Reform rows back on possible child migrant deportations | [阅读全文](https://www.bbc.com/news/articles/ce83x1457lyo?at_medium=RSS&at_campaign=rss) |
 
