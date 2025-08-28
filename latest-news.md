@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 11:09:15（北京时间）**
+🕒 更新时间：**2025年08月28日 11:16:34（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | FBI investigates Minneapolis school shooting as anti-Catholic hate crime | [阅读全文](https://www.bbc.com/news/articles/c7760x87r4po?at_medium=RSS&at_campaign=rss) |
 | Woman says Chinese student predator raped her hours before second attack | [阅读全文](https://www.bbc.com/news/articles/c79l4z3v3p3o?at_medium=RSS&at_campaign=rss) |
 | MoD staff warned not to share hidden data before Afghan leak | [阅读全文](https://www.bbc.com/news/articles/cwy5e911j37o?at_medium=RSS&at_campaign=rss) |
-| Kim Jong Un to join Putin and other leaders at China military parade | [阅读全文](https://www.bbc.com/news/articles/c17njr88ge4o?at_medium=RSS&at_campaign=rss) |
 | Jacqueline Wilson on the 'easiest and hardest book I've ever written' | [阅读全文](https://www.bbc.com/news/articles/c7vl097jd8eo?at_medium=RSS&at_campaign=rss) |
-| Blair joins White House meeting with Trump on post-war Gaza | [阅读全文](https://www.bbc.com/news/articles/c4gmrxd8ryno?at_medium=RSS&at_campaign=rss) |
+| Kim Jong Un to join Putin and other leaders at China military parade | [阅读全文](https://www.bbc.com/news/articles/c17njr88ge4o?at_medium=RSS&at_campaign=rss) |
+| EU faces worst wildfire season on record | [阅读全文](https://www.bbc.com/news/articles/cd6n8qqlj8go?at_medium=RSS&at_campaign=rss) |
 | What next for Man Utd and Amorim after humiliation at Grimsby? | [阅读全文](https://www.bbc.com/sport/football/articles/cnv7lz9nlq5o?at_medium=RSS&at_campaign=rss) |
+| Blair joins White House meeting with Trump on post-war Gaza | [阅读全文](https://www.bbc.com/news/articles/c4gmrxd8ryno?at_medium=RSS&at_campaign=rss) |
 | Value of small parcels from China to UK doubles to £3bn as Shein sales soar | [阅读全文](https://www.bbc.com/news/articles/cnv78eey8plo?at_medium=RSS&at_campaign=rss) |
 | Ed Davey to boycott Trump state banquet over Gaza | [阅读全文](https://www.bbc.com/news/articles/crlz6rp2ln8o?at_medium=RSS&at_campaign=rss) |
-| Apple warns UK against introducing tougher tech regulation | [阅读全文](https://www.bbc.com/news/articles/ckgj9kjmvzzo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | Missing New Orleans boy died from blunt force trauma from alligator, authorities say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOek5KQWFYc2tqaGtJTVFDcENVakRpdm1ObEVqZGlDTUFmdWhpelNCSVZ0RlhvZlFHM2FOQmhqZ19GQ2hrcUlKSXkwaEFleXVxenFhOGJlTWl4Yy1UbGJzQmFqMWlPdFdteFpmOTdUdjBjbUw4YUxTTUhKS3BWSUUyeFdSTjd5VmRlYnJDSDduQ1V1T2FDTnlQQklkck9RblJXWGw5NXBSbXZiZlJTMTNLSGRMMlpfeVJM0gFWQVVfeXFMTVpiMGtOT3R4S2RwbHg0S3Q1b1ZMeld1Rkk2ZFR3cjlMZVNPOHE4eEZEaUl5OEhacC0zRWE2SDBXSnR6akJpV1JPcmdhaW00cWloZ0VTR0E?oc=5) |
 | Trump’s D.C. Law Enforcement Takeover Has Black Parents on Edge - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPSERObnRWTklIRlVHX3BDaWNrZGZGcTUxQXA4Y015T21LZmNrV09TWU8wQmZhRjlQTlJydWlnVnp1T1hQNHJmU015VEk3amhKakxGWmV4cTlRczNsRzZGNlRxYzB5VHZZU205aXlfSVMwTmV1c2NzTkF5c0FUWDZuUmV2YTdOWGM1WUJCYWVCNHZncjgwYWZxMDhqSFJpTFV3Z0M2Vi01NA?oc=5) |
 | Gavin Newsom: 'I don't think Donald Trump wants another election' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPMmdBck44X1dQbDVtSDZpellMQ3ZxOHFycEs1X3pKMGpiRFowYTZmR1BLb2ZhUjRTbXdvNXJTYUtqSTQtcERwb0hKaWhoUk1QMFE0azNZaG9yWkE5aDl4enJmaVdMTzlOeXl5XzhjMFd5NnFRZUhUdjZfVnhrbXZLbzNfRW5PM0dwZTUzcGFIQQ?oc=5) |
-| How a grand jury acted as "sword" and "shield" for D.C. sandwich guy - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQTGtrdFpSb3VyallNVlNIXzltV3JMNzMwM0dkOTd4Wk8zRzJ2cElYMFFjMEZIUjZfcVlFcWtZeFJQYWV5SXJoZV8tRV9iMkVDRGhiMGxXZ1pxRW5LeFZQcnlqdUNvd2w1RHlWc0tpeVkxa0p3NTV3ZUxlbWE2TlBnMUJ0bw?oc=5) |
+| D.C. judges and grand jurors push back on Trump policing surge - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQb1o4RUtvbnl6cnhoTXdjY3R0LWw1U0ZocllPXzJGNUhXRkhpQ3NJSXo4VkhYaklrS0hxVnpQbzJ5TVozbWl6NnVIYVJsdVRyN0llMWpnT21Jc1ZhX1RtSzVvaGxBbVRVNTRfaFRCRVZ4RVN4UFZLQTQtZDJST1BlYWk3dnB2M0pr?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
