@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 14:25:31（北京时间）**
+🕒 更新时间：**2025年08月28日 14:32:09（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| All 14 injured children expected to survive after shooter at Minneapolis Catholic school kills 2 - AP News | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE9UWTEtMkFfTFRsVTFScFVqeGpOaDdoOUo5anpWcWgwQjJSYUc0dUhybFVLem5tYVZjdFF1VUh2Z0liOGlrQ0ppZEc0b3RUYUYyT3BRVXNWdk1YWkpFbVgzMThKcURtV2R5bi1YVlljRzZ3QQ?oc=5) |
-| "Unable to serve": CDC vaccine chief slams Kennedy in resignation post - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPU00zZlNHZDhzT1gwMWVNcnRwSjNKWngwMXRxTFpwbHRpaXVMNnRDeVB3bmd0Z0FBMzh6S2ZpdUZsQmVKSmxObjZDVUdsRHdmeTJZTnBvMWhBVWJTQnp4ZUgxUzRZckRUM0NrUXl6enRBNENGZmVINTRXMWtITlQ5cw?oc=5) |
+| What we know about the shooting at Annunciation Catholic Church in Minneapolis - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOUEV2OVAyTGMzTnF2a0pHc24yMnNmQUpoT2V4ZUJuQTNReVNINUhPX0p1WnlkbUtVa0VNTmdGVXZXOGlZY0FmaHotazNPVDdFV3Vjb3RkRUdoMkcyWkc1R1M0ZVF3UWhmVC1ydzFBOUtfQzBaUnNsUE5pNGo0ZnF6dlZ0aGRmanda?oc=5) |
+| White House fires CDC director who says RFK Jr. is ‘weaponizing public health’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQOEpkdkw4QWxqWHJJV0hHU0o3eTkzSnozVVJGcnZtTUFuSm1PYWw0ekZqYmp1REU2b25UZ2dRVlhJSEdTaEt4dkIzX2Rfb2xZV1E2X2o2S2IwNTZKV0JUWEtDMV8zQWFiOWpfWnJfWnpvZTBEYWdWUW1HeThhZGFhNEswbWg1LVNlb0Vz?oc=5) |
 | Mexico suspends postal shipments to United States over tariff confusion - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQRFhtVGNlWElaMVNhWVdYNnRqWTF0eUR1V21tWW9NYk9RS0x5a3MzdmttdXJYNDZQRXJwYTNfaVZkeEdERElwcGxrY0hjaVFlQUlzVGJuc3F2MVlaS0dCRHlCd0ViNVBOSTJMX2ZvVzNfdlR0dW5uVW1LV2Z3cWFmWU44LVhoUFBtczExRVlTTVd3ZDZEWFg5VVVNYm9aWGluMUJXemZ3cTluaVZGYmNKYmpLYTdYNk0xenJfSjlB?oc=5) |
 | Trump’s India tariffs take effect: Which sector will be hit, what’s exempt? - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNUks4WThFa1hNb1dsSjVzd2hGQ3NJb3dmZzJUQ3RXdTRfcGNQZUpHc1RJWi1TdjFTemdEZGF1WW5rQVZ6cER2QkpOLWtzSkkxVzJ4X0NRWHI3bjZNMDl5RnRCY2Z1WmJpY1B0bjZOOXA4OHJZRk9pTnlWeXpldHhnbmxTZVhna2xhakg3V1RNcV9zVVNiSS0weGpwVUpvVmk4NWt2VzJpWjByNzl3RUVZSGZYN0HSAboBQVVfeXFMTnBLcjAyUVNMZk05UndBMmRQZ3EzWWl5d2tTelluQ3l4NmF5MTBRdVNseWlVOTJqV3RSMXp1N0lRX3c5aXpyUVUzam5sOG54WGdSN3ZyRGVBeHBxc3hGX2kzYnoxYkpobFg0NHRVTjlmbUVhREp4cjdHTXNQZXJZMXQtaTJ3dTVFWXBEbFV2VGJlYnhpNkhTMDNSU0d2SUZBeVhfbmFaQmxWS3FVUXRKNHB2b3phNmxIV19B?oc=5) |
 | Search for missing 7-month-old: Officials have 'strong indication' on location of baby's remains - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQNXQyNm9LSzlvdV9XTnp3VnhfMjEzUlFpOEotZTRZc2dfTzAtWUhiZDRpbzdVSzZ1U1dkZ2htYmFLaFlGZkdCMU5ERFFlUmMydl9WQnE5WWdYdGNFdnc1d1BZcFhrbVdDMnJTTXpIeDlub3BmNWhQVXBtcjB6blhzVXAwRy16VXdTdWh2NGRPbTFvNS1wYTEwZGdVN2xXbENBQnVBQmpLNNIBrAFBVV95cUxOeEhaa1dCUmxvU3BteFZtemh0el82eHJjUVhTLWI0czY3d3lsQUlPaVp4c3c3UmFDRnU0RXRtNVNRLVNha1llTkRka0pfSExrLVFSRlJDVHNQeHNydVZTZWtXWFlPYl9nUUdqUnZ1MllYZTgzUEFlLUhkMGI0WXJXODRxNUZKSnhieDRtNi1VbXhtamdWM2JlQTRxM09oMDZXMGU5LWJTOWtlSGZH?oc=5) |
