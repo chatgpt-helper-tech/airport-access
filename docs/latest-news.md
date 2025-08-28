@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 18:56:50（北京时间）**
+🕒 更新时间：**2025年08月28日 19:00:05（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Denmark summons U.S. envoy over claims of interference in Greenland - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOMVZiamtCRE1tUHVVRkZSZDc5SEt4Y1IyR0czVHB6UEpyQVd4TmF5UlgtXzM3T3h5ckkyYVluYWdabXpqTEtfbUpXTlpuUmpWRGZHS3RwOEpNdjZKS0hzYjRJUXJXckNJQXZMMmZiU3h1dm0yX2RZMUh1TzRGdTdHOEprRGlxbS1HZ08zWA?oc=5) |
 | ‘Our president is listening’: Handful of Black MAGA activists in Chicago catch Trump’s eye - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQY0EtOE1ka0dydkVnXzNxRlRNdTZOM09ITnBLMWFTUjN5TTRTMHNZYVRra3RCVGsyRXR3MWtKNy1NSE8yclJkMGNYajJUN2cwb21mNFVHLTdrWTVnT1ZpZ2FfVkZob2pNNEFlM2Q2VDVUWU9xUzhseEptVl9NWnkzR0d4WW5wcVhtbTdWNXAtd0p3dw?oc=5) |
 | Trump's doubling of tariffs hits India, damaging ties - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxORzFEM3BfT05pbmhOTmd6cTNXWWwyMjNYa3dIWnlBVEcwcjBDc0JRMVFrOXZfVnFNb1RuRFJ4djV0WkljaERZejNxR1YwVjBLN2VWREFJUFlPMzFlV2Jpa0xvQ0lDcmU1VEVhU0p1b05TWFhkRDBOS0paUmlrRlA3bFU2b2dKMzdMMll6RmM3cTBwWVBoQVFZdXZPSVc?oc=5) |
-| Trump’s D.C. Law Enforcement Takeover Has Black Parents on Edge - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPSERObnRWTklIRlVHX3BDaWNrZGZGcTUxQXA4Y015T21LZmNrV09TWU8wQmZhRjlQTlJydWlnVnp1T1hQNHJmU015VEk3amhKakxGWmV4cTlRczNsRzZGNlRxYzB5VHZZU205aXlfSVMwTmV1c2NzTkF5c0FUWDZuUmV2YTdOWGM1WUJCYWVCNHZncjgwYWZxMDhqSFJpTFV3Z0M2Vi01NA?oc=5) |
 | Missing New Orleans boy killed in alligator attack, police say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPSFpKRGN0eUtWN3pYU2NfSVJFRFJIS0U5ZmJWUjhRNEtjLUJCYW1GLUpkY3ZoREt5el9MdUF6RU5vRmljMGRCaGRVMkpEN1RDTW5sRVVUdWNYZUN1b0FDX3ZsYUc1OHNlWTc0UkZYemJnVDNKd3pBekYtdGhBU1IwdGxBOGF4MHUwcExIQTlUUDJIbEsxQmNpSEVDNmtFWG9qSUZQWWthc0fSAa4BQVVfeXFMTkREc0VILWpZUGFqSVVvMXVGUXU5X3pDZS05Wm1qcFJHSWZ6Nk11V3hPaVBvZHpSTmNvNmFRT3UtaEtKaUVfQUdLbURrUC16bC1Id25KV19PQkU3TTRYREJkcURHZWItdllqd1B2LWV2U2NVb3NwR3BnMWRtd2NDNGJYTXNfWjRxTWZNVkd1bllmaENZdENVV2E0OVkzY3NvOTRvcGpTVXFORFdvWEFB?oc=5) |
+| Trump’s D.C. Law Enforcement Takeover Has Black Parents on Edge - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPSERObnRWTklIRlVHX3BDaWNrZGZGcTUxQXA4Y015T21LZmNrV09TWU8wQmZhRjlQTlJydWlnVnp1T1hQNHJmU015VEk3amhKakxGWmV4cTlRczNsRzZGNlRxYzB5VHZZU205aXlfSVMwTmV1c2NzTkF5c0FUWDZuUmV2YTdOWGM1WUJCYWVCNHZncjgwYWZxMDhqSFJpTFV3Z0M2Vi01NA?oc=5) |
 | Immigration facility 'Alligator Alcatraz' will have no detainees in the next few days, Florida official says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPTXB5bXMxZG1kWndTQlNCVkVvMTljeGFlTkJTb015UXpLdWRhakVmbWxiNHUyZU0xVU1qX3hRbzctaExpbGxTZVZfTW5wdWYwLTMzcDA3V05oZ0ZBQWF0ZUJtTS1mNTlKMUFQWEN1ZlZJYURTbW9ZSVlXLWhFQkNxWTZFNlFLZWtZdllrQm1tZ0QzUjR4UXplYXF5cG9vc2RFQ3gweHJISzBDTHpSZGQ0TTBZS21SbmfSAbwBQVVfeXFMTllPRzRsY0s0amhSWGY1WTdHS1c4ZFJQbjFJelVhUzMtS2ZNZFVBRHY4V05NLW5GbHlnbm8wbzMwbG8tMGp4Rm9kVkFSYnpnb0wwYXlVQXZzSEhVWlZ1dWJMcjRvZ3NJWWF3OVR6QjBYbUg3Z0VMTzQ0cFZfVzg3YUFSekJHcU5XSXRxY1RvbVFMZlVQNkxxWnRuYnNiaTZHaGNiRXJpNVRqV3J1MUp3NU1XOWlnZjBtb1VGaVA?oc=5) |
 
 ---
