@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 05:25:35（北京时间）**
+🕒 更新时间：**2025年08月29日 05:32:59（北京时间）**
 
 ---
 
@@ -12,11 +12,11 @@
 | Lives torn apart in Kyiv after Russia's heaviest bombardment for weeks | [阅读全文](https://www.bbc.com/news/articles/cj3ld2r2206o?at_medium=RSS&at_campaign=rss) |
 | Price of weight loss drug Mounjaro to be discounted in UK pharmacies | [阅读全文](https://www.bbc.com/news/articles/cvg3ykg4jrro?at_medium=RSS&at_campaign=rss) |
 | Epping hotel order could spark protests, court told | [阅读全文](https://www.bbc.com/news/articles/cpqv01lxvyro?at_medium=RSS&at_campaign=rss) |
+| MSP locked out of Scottish Parliament after toilet camera claims | [阅读全文](https://www.bbc.com/news/articles/c9wy40rxrvxo?at_medium=RSS&at_campaign=rss) |
 | Man Utd back Amorim as Rooney says club is 'broken' | [阅读全文](https://www.bbc.com/sport/football/articles/c3v3470zl3lo?at_medium=RSS&at_campaign=rss) |
 | US Fed Governor Lisa Cook sues Trump over his attempt to fire her | [阅读全文](https://www.bbc.com/news/articles/c1dxl6ry4y3o?at_medium=RSS&at_campaign=rss) |
 | British Tour de France winner Chris Froome airlifted to hospital after 'serious' crash | [阅读全文](https://www.bbc.com/sport/cycling/articles/c4glv348xjwo?at_medium=RSS&at_campaign=rss) |
 | Met special constable found guilty of child rape | [阅读全文](https://www.bbc.com/news/articles/c0ml30vgykro?at_medium=RSS&at_campaign=rss) |
-| Trump's 'Alligator Alcatraz' being emptied of immigrant detainees | [阅读全文](https://www.bbc.com/news/articles/c39dm3kv4exo?at_medium=RSS&at_campaign=rss) |
 | Reform council boss bans local newspaper's reporters | [阅读全文](https://www.bbc.com/news/articles/cger45p0lv0o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -27,7 +27,7 @@
 | CDC leaders who resigned said RFK Jr. undermined vaccine science, risking lives - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNMTBnMDVkVmxJU1Jlam5OYjB4VjVnY1E0d2ZBbUlqamYzWDcyY0Rxd2pFVk93emtWbjZVcnBON0RPdjQ4SEg2U2tHWXQ1a0V0Y25iYV9XRC1HbVJEN0p0MWJLTDZyWmpHSEhsUzlGX243aXNxbElOay13QUk2bE0zT2I3YjdqZWszeFhUZ2ZBdw?oc=5) |
 | The federal government is taking over D.C.'s Union Station. What does that mean? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNYXlCR3JZQmxGYy1DRTdtQTMyYlhJdWpsUTlQRVgtU0FHSXFveFd1bVc0eV9Rai10OWlDbkFiaXZmQ0JaeUFmX1VpN0tGel9EU2ktSDRWbEhmbU9rTWZTWkhHWUxBc2xDUUhIQUw4NV8yZnRBVUI2ZjJyaFRFU3NYREdDZklvNHM?oc=5) |
 | Trump administration plans big immigration enforcement operation in Chicago as soon as next week - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPTmp1TW9KODNvS0lHQnhhaEpBX0NZZ3IyRnE2U0dJNXlFVlhld2k2Z1lYeURhMGZoQ3E5MVFQcEZQODRmTWNrc1hNOVNZQ2RaS3ZKdzd2eUhPNk12SnE5dEhiQm40Z0pwYTdKRmZBbklKYUNyZmhRcWR0bHV6SEVhbGl5ZEZQV2xLV0Q1eHcxdw?oc=5) |
-| Trump admin. moving detainees out of "Alligator Alcatraz" after judge orders facility operations to wind down - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOTEp6eklqQVBVaFhsRE1RbHdDU1NYay1DdDdfaHR4UlVIUnVhZmRKeUNnSUNOT3lBZzlLOUFuZ3VGT2h2bTJTUy1Vd1RqQ0RJaWdmQzZTNVZWWEk2RWgzb3NKSkJyYVhqcVNjVHJwdk9ta05JaHNZMWN2WG9taWZhLTdhUlJrYzhYSExIUzF1V0lsLXViVWfSAZsBQVVfeXFMTzFyMWp3QldPNl9Ndnhldml0LWw2YVV5VTV2VXoteV9JeE5jWWxITnN4NkhqZF9jQ0JyUjF0UjVPWnRHWEMwRGxHdVc2ckNkYUs3YjRlSjd4eVY3MWVJcHNjeEYtRkdFSUdlczdIMTNjTjV1dFRaY1RxNTBqMmpKbDktd1RnNGFCQk5UUnhMLWYwOXFTM2RWVWFYSTA?oc=5) |
+| Florida taxpayers may lose $218M on ‘Alligator Alcatraz’ as judge orders shutdown - PBS | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQeWxNbU5lQ1M2V1QwUWRKbFB0VTlzdm9hYzJwNUdzbGRsdVRxMUhnb05DN0swd3RFM1dGTE5HNm1sVnhCMEE4X1ktMk1pRTdFYWhWZEhvX3VyMVY1YVJRVG0tS3dwNXdxaDBTNldQdkN3THZCemFXaE5MRXZaS0ZGUHNXS0dqOWk5MGs4Q1YwWVE0bVRVeTBKajBfSUhuQmpaX3dlc0R0STYtdUFXaHNQNnFiZ0HSAboBQVVfeXFMTklGRmFNaWE3Qmt3Z0dHSVd0aUo2QkluMmdZSl9abmZQazV5VjlMX2ZMTWdrc19WZXBlcDJ3d014OTVEaklqSlduTDZHNC04YlRXaWtoYWpZbzBNeTlvMXkzUUNBR0hnNEQ2bEZ1QWxQQ3lmUmFIbXYwb1g3VlYtOUVtVmJ3cjBDdVZ0NUg5Q1NjcXhndXJ3dGJJRXExRlVsTEJnOF80V3I0Tk5zZGhYTEpQdHBkNmZkMmpn?oc=5) |
 | Europe furious as deadly Russian attack damages prominent Kyiv offices - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQV1NiY1lOaHZ6RmdoQU51U1hHX0czai1EN19ValloOVptaVFkRHBJai0tYkJULVl0aWFKVmVjUWFyMFk3LXlnNms2UmhJTnJMY2RyQkxNcm53OTRFYk9EMUROYUhXMGtGQl9DNWtPQ2N6bnJEdDJuU1dyM2RBV29CbVVKWWRsQQ?oc=5) |
 | Mississippi Museum Acquires Gun Linked to Emmett Till’s Murder - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNNTNIQ0pJb29MUFBvWHhqZUhZNWZWNGt3bUY5R1JuZW9QamoxNzdXaUUxQTZLaXdhNmphUmVUOTFqb2o4cnV6ZnA4N283YllPZlpBbmlGNFFzRV9FbzRHZDRPeGpUTzJ5bVV2eXhseXM0Tnc1UEtaTS0zOEZQc1VVcy13UQ?oc=5) |
 | D.C. mayor: "Masked ICE agents" and out-of-town National Guard are ineffective - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQbkFlOERkeXRscTBmd09TMVJGT002QkJEQ0FyaGctM3ZMTkxGdy01WmwtMWRuLWp3RWdubHQ4cGtvMHoyVGxCLV9Bc1NVMWFJa08tUGF0dGZ0NUhIQjd2aGMwY19xYm9SN0dBdVdQc3l0ZUVMQnoxaC1xcmNDMXhDQw?oc=5) |
