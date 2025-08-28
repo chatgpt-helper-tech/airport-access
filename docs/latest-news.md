@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 10:01:07（北京时间）**
+🕒 更新时间：**2025年08月28日 10:08:52（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | Scoop: Tony Blair and Jared Kushner brief Trump on Gaza post-war plans - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFAwZk5MRnJieTBjZThTeXI1SnN4ZTljcUN1djE5WjBaeUtYQWJVTUVCNmRRcEI4MXB3bUwwbXA1TkUxRFpreXFfOVE0c1Njc1VVWHZ3X29XelRpRnZZeWtIRk1GS3MtQWRpaGl6aFhOXzhZYXpqX010T0tPTQ?oc=5) |
 | D.C. judges and grand jurors push back on Trump policing surge - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQb1o4RUtvbnl6cnhoTXdjY3R0LWw1U0ZocllPXzJGNUhXRkhpQ3NJSXo4VkhYaklrS0hxVnpQbzJ5TVozbWl6NnVIYVJsdVRyN0llMWpnT21Jc1ZhX1RtSzVvaGxBbVRVNTRfaFRCRVZ4RVN4UFZLQTQtZDJST1BlYWk3dnB2M0pr?oc=5) |
 | Trump’s D.C. Law Enforcement Takeover Has Black Parents on Edge - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPSERObnRWTklIRlVHX3BDaWNrZGZGcTUxQXA4Y015T21LZmNrV09TWU8wQmZhRjlQTlJydWlnVnp1T1hQNHJmU015VEk3amhKakxGWmV4cTlRczNsRzZGNlRxYzB5VHZZU205aXlfSVMwTmV1c2NzTkF5c0FUWDZuUmV2YTdOWGM1WUJCYWVCNHZncjgwYWZxMDhqSFJpTFV3Z0M2Vi01NA?oc=5) |
-| Trump administration to take control of Washington's Union Station - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNUlNCT2lyT2VJYlJTa2hPdjNsZDdQRVBKbWxPQWpYckVtN3hHRjlOREJEa3RSQ3NDeHliTHkxOHh4RHlteERsVnR1aDQzTnZxX2N1eEhFNllfU1BXenA2X0x4SWlwckhyRmkyQTd6RlZIM3lYdGlkVjZ0cVFrZFAyckgtTURkZDk3bkZwajlIc2lLRGJTSXZtSXVNQTFsNUlVWFo2MTZR?oc=5) |
+| Trump extends control over Washington by taking management of Union Station away from Amtrak - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxPS0pRbzhRQmJPZHVvUmtVVnNLdHhfOTRUMmpqZnduV29zQThiZzB2RTBuZVBSanNNSW9oNk42WGtUTm0yaV96aVhmMDZNWFBJQ1VQbXBVdEVwb1kycUROUjJoSGZaWHd0MDB3djRrQlY2eG9YcHdQelROa29rakYtQXF5TmdPcEkzWk1BTDBQbVRaY1J1LWd2R1kwSmZlX0Fka3VLRFlEVWFKdHhNOFc2clZoR292TExiTnNYNFl6MUhBdGpRd3VzMGlqRQ?oc=5) |
 | Gavin Newsom: 'I don't think Donald Trump wants another election' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPMmdBck44X1dQbDVtSDZpellMQ3ZxOHFycEs1X3pKMGpiRFowYTZmR1BLb2ZhUjRTbXdvNXJTYUtqSTQtcERwb0hKaWhoUk1QMFE0azNZaG9yWkE5aDl4enJmaVdMTzlOeXl5XzhjMFd5NnFRZUhUdjZfVnhrbXZLbzNfRW5PM0dwZTUzcGFIQQ?oc=5) |
 | IAEA chief says Iran’s cooperation with inspectors is a ‘work in progress’ as sanctions loom - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxObDItc3p4d2tqLWpkMWFiS3lsV3Bkd3p1VktYWUJLdWZBaklvSnFndG1Manl3NmlHSnBxbndBOEp2X2xpNGs3V0R3aUxNcjNIeTUxemo5amRZU3dhVE96MXdtR1FPdko3UDVqT2xybnJPdmhBNVdyYjZwUVAzSXcxekxENVpjMjBoSWUzQktQQTlmdjU5bnkyUw?oc=5) |
 
