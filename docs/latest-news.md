@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 15:24:20（北京时间）**
+🕒 更新时间：**2025年08月28日 15:33:17（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Padilla’s options, Porter’s brushback, and Newsom’s crusade: 7 takeaways from POLITICO’s California summit - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi6AFBVV95cUxNQzdmbVRHTTdVTVJvN2k1MHYzT2Y0NnVQNHpUTVhMc1dQLVN3d1ZFQUo0dDBFajdvQkludWdsRWN3bW1Xc2hpLUREbXg0REdmbUE0ZVpoZ0FRUnZhV2k1N1l6R1R0R2FLMjhXREttakJUYUZRNjZWblpfSVAtdTBYeWJHZ3h0R05nQXVBMDRzTk90NjUzcFBWYjh4SXdsbUpoWUwxV19VLW5udFNtQ1NWTzBQdDVfalZHYnl0Z2RkYXBlb0NOVHdaU19DRUJ5NDdvajgzd1lLOVJtZzhlZzZ5VjNVb0JhdFFk?oc=5) |
 | Missing New Orleans boy killed in alligator attack, police say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPSFpKRGN0eUtWN3pYU2NfSVJFRFJIS0U5ZmJWUjhRNEtjLUJCYW1GLUpkY3ZoREt5el9MdUF6RU5vRmljMGRCaGRVMkpEN1RDTW5sRVVUdWNYZUN1b0FDX3ZsYUc1OHNlWTc0UkZYemJnVDNKd3pBekYtdGhBU1IwdGxBOGF4MHUwcExIQTlUUDJIbEsxQmNpSEVDNmtFWG9qSUZQWWthc0fSAa4BQVVfeXFMTkREc0VILWpZUGFqSVVvMXVGUXU5X3pDZS05Wm1qcFJHSWZ6Nk11V3hPaVBvZHpSTmNvNmFRT3UtaEtKaUVfQUdLbURrUC16bC1Id25KV19PQkU3TTRYREJkcURHZWItdllqd1B2LWV2U2NVb3NwR3BnMWRtd2NDNGJYTXNfWjRxTWZNVkd1bllmaENZdENVV2E0OVkzY3NvOTRvcGpTVXFORFdvWEFB?oc=5) |
 | Immigration facility 'Alligator Alcatraz' will have no detainees in the next few days, Florida official says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPTXB5bXMxZG1kWndTQlNCVkVvMTljeGFlTkJTb015UXpLdWRhakVmbWxiNHUyZU0xVU1qX3hRbzctaExpbGxTZVZfTW5wdWYwLTMzcDA3V05oZ0ZBQWF0ZUJtTS1mNTlKMUFQWEN1ZlZJYURTbW9ZSVlXLWhFQkNxWTZFNlFLZWtZdllrQm1tZ0QzUjR4UXplYXF5cG9vc2RFQ3gweHJISzBDTHpSZGQ0TTBZS21SbmfSAbwBQVVfeXFMTllPRzRsY0s0amhSWGY1WTdHS1c4ZFJQbjFJelVhUzMtS2ZNZFVBRHY4V05NLW5GbHlnbm8wbzMwbG8tMGp4Rm9kVkFSYnpnb0wwYXlVQXZzSEhVWlZ1dWJMcjRvZ3NJWWF3OVR6QjBYbUg3Z0VMTzQ0cFZfVzg3YUFSekJHcU5XSXRxY1RvbVFMZlVQNkxxWnRuYnNiaTZHaGNiRXJpNVRqV3J1MUp3NU1XOWlnZjBtb1VGaVA?oc=5) |
-| Trump’s D.C. Law Enforcement Takeover Has Black Parents on Edge - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPSERObnRWTklIRlVHX3BDaWNrZGZGcTUxQXA4Y015T21LZmNrV09TWU8wQmZhRjlQTlJydWlnVnp1T1hQNHJmU015VEk3amhKakxGWmV4cTlRczNsRzZGNlRxYzB5VHZZU205aXlfSVMwTmV1c2NzTkF5c0FUWDZuUmV2YTdOWGM1WUJCYWVCNHZncjgwYWZxMDhqSFJpTFV3Z0M2Vi01NA?oc=5) |
+| Willie Wilson urges Trump to send National Guard to Chicago: 'I welcome it' - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOMVNia1paVnNCbmNNNWhOZlZvUElrME1iMkFxNEhLVGFleEtUUERDWnY2VGY3cy1fMVZJUThENzRQNm1TM3Z4RlNtaDI0b0pyZ0pYbzY5el9CbzRlbTJtbXpJdjVmTlVSc3RhSGRvTGtnUHJLaTVfU0hFTnZKcXVFb2ZpN2V3Q2VteS1J?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
