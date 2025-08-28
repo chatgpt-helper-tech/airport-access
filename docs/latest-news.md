@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 09:33:27（北京时间）**
+🕒 更新时间：**2025年08月28日 09:40:12（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trump's former FEMA chief opens up — and says administration is 'delaying' aid - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNNjJ0MTJnajV2QlprS2JPWVpQRTlQWWdHLXZvRGNJb3Axa0NmTVdfZ2xrMjFyNlpfRWRCSXBvdWhNajBpS0ItRThqUkxTTGwwbm9NanQ0emcxalg0WGdwc3pJaXhvZGI1dmhGOXJWVU9sTGJ6b09xRGdBcThuVkN4ZGE3cWdUWEYtVDRrLXM5clFKR0xIWGVHQlpiazI2ZWlTSExoVg?oc=5) |
 | Kilmar Abrego Garcia can’t be deported until at least early October, judge rules - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOdVpic3dKXzJ0NFh2Vkg1d0trb19SbGpINGpyc0h2LVNVS3RUWU5yQWxGVGxQbEo1R2RIZVRkQTB3VVhYUml3aFR3YXNLc2JjT3NNcGNqS2hYNGVqaVYzYW9HbU9sYzg3TUc5MFFMSmlEcnFWTUNpemJBX1JXQXdZdjU4bUdyUjJPMU16TmlB?oc=5) |
 | Trump’s D.C. Law Enforcement Takeover Has Black Parents on Edge - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPSERObnRWTklIRlVHX3BDaWNrZGZGcTUxQXA4Y015T21LZmNrV09TWU8wQmZhRjlQTlJydWlnVnp1T1hQNHJmU015VEk3amhKakxGWmV4cTlRczNsRzZGNlRxYzB5VHZZU205aXlfSVMwTmV1c2NzTkF5c0FUWDZuUmV2YTdOWGM1WUJCYWVCNHZncjgwYWZxMDhqSFJpTFV3Z0M2Vi01NA?oc=5) |
+| Gavin Newsom: 'I don't think Donald Trump wants another election' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPMmdBck44X1dQbDVtSDZpellMQ3ZxOHFycEs1X3pKMGpiRFowYTZmR1BLb2ZhUjRTbXdvNXJTYUtqSTQtcERwb0hKaWhoUk1QMFE0azNZaG9yWkE5aDl4enJmaVdMTzlOeXl5XzhjMFd5NnFRZUhUdjZfVnhrbXZLbzNfRW5PM0dwZTUzcGFIQQ?oc=5) |
 | Trump's doubling of tariffs hits India, damaging ties - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxORzFEM3BfT05pbmhOTmd6cTNXWWwyMjNYa3dIWnlBVEcwcjBDc0JRMVFrOXZfVnFNb1RuRFJ4djV0WkljaERZejNxR1YwVjBLN2VWREFJUFlPMzFlV2Jpa0xvQ0lDcmU1VEVhU0p1b05TWFhkRDBOS0paUmlrRlA3bFU2b2dKMzdMMll6RmM3cTBwWVBoQVFZdXZPSVc?oc=5) |
 | Department of Transportation will reclaim control of Washington's Union Station, Duffy announces - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNQlh2bEtoVm9VamlCVERzVVB1aTBXQmtpcEpwTktkblZRVUlTbzBLUFlKU1NJZHlQVkRVa3ZMclh3T0lTT3N5UWI0Y0NrZkR3QkQxeXVhcVJHUnFRMWdMTDZfMTVEMlR4bTcwSWVMOGtBS0JMU3l4Tl9aYVBGcFc4Mnp6WFZ6SUIwMnJiN1NNbE5VcVVtUnfSAZsBQVVfeXFMT2ZMWTZfaUM5S1oxc3pNWnlLSXBqY3lnU0VYU1JXRWs4cGh4Y295eVVfZG8yR0Z4Qjc5dG5kWEs4c0NsNWpFeVVWeEk1MmlaQU9WcUx1QWtaZEF0T0tHYlpzdUhzNXVXQ2JhV1BXejMtakFrX0dqSFcyZUdzNXlTTXNXMTJkLW85SjhScHlzWjZCa1VSYU44b3F6NWc?oc=5) |
-| Denmark Summons U.S. Envoy Over Greenland Espionage Allegations - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPNnNabTdYTTZkSUwydlNCZ3ZZRHQ2M0lIOEh4WUxTOWlUOHpmVmo2enhWZEtISnh4ZUwxMzR4OTdwdEhNZDFqOGdQQlZZRHBEamNlRXJFei1EV1luTDRja0V2S1NuYS1ZeXV0YlVxQjVRWHh3Z21OU2Y5ZE5Zc2pYMjl0YzlHSmFsdGR6bDdHUXE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
