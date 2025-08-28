@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 07:16:22（北京时间）**
+🕒 更新时间：**2025年08月29日 07:24:10（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | Fired CDC director clashed with Kennedy on vaccine policy - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOY1ZRUXdINS1rRTlONFlodkNieXVaWTJZNFNKdFBzMUxEc3dxS2ZiVzdqSThPcjZtWmpMLUlRQUNyTWhtZGI4QVdobDZDZVJDUGVYZlFLS3lDTmxVMnZhMG5xSEpfWWtCZ3JhRUd3VTU3STdGaXRod1kxRmlER1VwS245cnBxUHIyVm1uS0xIZVlmdV9UUVBHSV9hYlBoYXY5MFhXTDdWLWZncExQV3JJ?oc=5) |
 | The federal government is taking over D.C.'s Union Station. What does that mean? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNYXlCR3JZQmxGYy1DRTdtQTMyYlhJdWpsUTlQRVgtU0FHSXFveFd1bVc0eV9Rai10OWlDbkFiaXZmQ0JaeUFmX1VpN0tGel9EU2ktSDRWbEhmbU9rTWZTWkhHWUxBc2xDUUhIQUw4NV8yZnRBVUI2ZjJyaFRFU3NYREdDZklvNHM?oc=5) |
 | Florida taxpayers may lose $218M on ‘Alligator Alcatraz’ as judge orders shutdown - PBS | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQeWxNbU5lQ1M2V1QwUWRKbFB0VTlzdm9hYzJwNUdzbGRsdVRxMUhnb05DN0swd3RFM1dGTE5HNm1sVnhCMEE4X1ktMk1pRTdFYWhWZEhvX3VyMVY1YVJRVG0tS3dwNXdxaDBTNldQdkN3THZCemFXaE5MRXZaS0ZGUHNXS0dqOWk5MGs4Q1YwWVE0bVRVeTBKajBfSUhuQmpaX3dlc0R0STYtdUFXaHNQNnFiZ0HSAboBQVVfeXFMTklGRmFNaWE3Qmt3Z0dHSVd0aUo2QkluMmdZSl9abmZQazV5VjlMX2ZMTWdrc19WZXBlcDJ3d014OTVEaklqSlduTDZHNC04YlRXaWtoYWpZbzBNeTlvMXkzUUNBR0hnNEQ2bEZ1QWxQQ3lmUmFIbXYwb1g3VlYtOUVtVmJ3cjBDdVZ0NUg5Q1NjcXhndXJ3dGJJRXExRlVsTEJnOF80V3I0Tk5zZGhYTEpQdHBkNmZkMmpn?oc=5) |
-| Trump administration plans big immigration enforcement operation in Chicago as soon as next week - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPTmp1TW9KODNvS0lHQnhhaEpBX0NZZ3IyRnE2U0dJNXlFVlhld2k2Z1lYeURhMGZoQ3E5MVFQcEZQODRmTWNrc1hNOVNZQ2RaS3ZKdzd2eUhPNk12SnE5dEhiQm40Z0pwYTdKRmZBbklKYUNyZmhRcWR0bHV6SEVhbGl5ZEZQV2xLV0Q1eHcxdw?oc=5) |
 | Federal judge says Kari Lake can't fire Voice of America director - NPR | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOc3pIdFotczFmRTNxaXk3c0ZFUExPM3hTRlhqTGdkVm4tVGNad3FkSE5EOUdKOGtkYXZzUWh0dy1YTDBWU3RMUkJERS1jZC1FRC1XNVY4d3BrR2xtSkt6cTk4ekJOODJrQUtzVzd5Nkl4aVhybHN2dGtyb1V6eTk1a0p6ZTZZYVJQcXl2VUp2aFVQbEhJbFdlVXc1alhYdw?oc=5) |
-| Bowser says federal surge in DC is helping combat crime, but causing anxiety for some residents - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPWkp5RU4yWGJ6Q2dIM2hyS1VHcTdEaGpJd3VrQnR0SVgyZlVBeW1GUWlIQmJoWFlhb01Bck42dVhaY0hfNkgwa3BEV0hxYm4zX0VFdXNlM2hoNC15N1ZRTnZfbV80WWUzenNrcFZrY3Z0blpVZDRyWUoyLUZQb3FDb1VGXzQweV9KeDFUcTE5Skd6T2NjWHdjT2lfQklDYUgxR2ZUVmk3RTRMTXpTd09fcTdPalFHYWZmQXJpckRtR0k?oc=5) |
+| E.U. furious as deadly Russian attack damages its Kyiv offices - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQV1NiY1lOaHZ6RmdoQU51U1hHX0czai1EN19ValloOVptaVFkRHBJai0tYkJULVl0aWFKVmVjUWFyMFk3LXlnNms2UmhJTnJMY2RyQkxNcm53OTRFYk9EMUROYUhXMGtGQl9DNWtPQ2N6bnJEdDJuU1dyM2RBV29CbVVKWWRsQQ?oc=5) |
+| Trump Live Updates: News on Fed Governor, CDC and Chicago Immigration Crackdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTFAwakJoSWZWSGNMU3FNMlJXQnBrU0VId1hjQmhuaGR5Q3pjOEdiVmc5TDdZRVZpYzZWRVF0S2Y3ZHhkV0lkd29qLVRtYVRRUUlLd0toSGVYeWMxQkkyVlFCQ2dHUkxaWkR6QXpOY2Z3?oc=5) |
 | 70 years after Emmett Till's murder, Mississippi museum acquires gun used to kill him - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOZUNEZ0RhMkdUcjlMY0EyMURfOXMtWWhkQXQxWkFYQWJaV1ZwMVBUejFTUmZlYUFvbUxQY3BtajlRWWRDOWVGZ1NfMEpZakpiWHdhWDc0NHZkVFNuQjNHVXRtTDNMYzBLOE13c0dra2k4enJGSlRqUnV0bkRwNkNqbzY3ZVhzUTk4dWRoaFFZdw?oc=5) |
 | RFK Jr. shakes up COVID vaccine policy with new rules - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNQkRvSlBXa1lMeGo5LWpKZGU1bkRLZGdGakY3V3JkVk9oTDZzalBmbHBfbHVydGtPY1BnY3Y1WHpFcWxhMEdPVk41elJmcWRMX0x2eDVfZUdReG4tZG8xQnBxeGVnQ0lMNGNDNXliT1EybEcxeFFTb2VRcUUzMFpjNFhR?oc=5) |
-| E.U. furious as deadly Russian attack damages its Kyiv offices - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQV1NiY1lOaHZ6RmdoQU51U1hHX0czai1EN19ValloOVptaVFkRHBJai0tYkJULVl0aWFKVmVjUWFyMFk3LXlnNms2UmhJTnJMY2RyQkxNcm53OTRFYk9EMUROYUhXMGtGQl9DNWtPQ2N6bnJEdDJuU1dyM2RBV29CbVVKWWRsQQ?oc=5) |
+| Democrats seek ‘immediate answers’ after reported arrests of firefighters by US border agents - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxONE5XcHVWX0xkMkNMTjhUUzVWZEhldUE4RFlwdjN4SnVvSUtTZXRRWGd1VmtmNW9ITzFDOG52WEVjaVRsdk53d3ZIMVFfcWxONVpjcmwtaGNBS3NTdVNFVzVZSENMNkhqTWRneHJjRjVSS204cnM0dlRNZEdxczJSOS14QzNzWlhiUHBIdVBaTGVYdUt2anFaaGhUV0g?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
