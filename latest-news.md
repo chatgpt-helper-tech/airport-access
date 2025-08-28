@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 20:33:40（北京时间）**
+🕒 更新时间：**2025年08月28日 20:41:03（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | NFL owner secretly relapsed, got ketamine from private doctor before death - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNR3ViZ1k4ZmV0R1M0NnYxRHROYWZyTmRHZWlqdUU1am5seTNjaWRPbjZNTVlEZFk5TWtUT3lBaUptNlVjVTd4TlgwZGVWX0pqUmp6ajVJMlAxaXRoMmVQdkhZMW5CQy1DOTVQdHB2VERrSjZocGZuYjUxNlNORmktVnhoV25HR0tU?oc=5) |
 | Denmark summons US envoy over suspected influence operations in Greenland - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQWWM0WWlvdkNRRS1WZzU2bVNEN3FyVjI5VWNvdTBwS1VFcEpGTGE2dEctcGNKWU9QZF9GZlhlZXp0M25xcjNJdnhWY1lZSXowOGRRdEoyRVFxNG45SlQ1WHZTSEVYOGpaOEpsYUZqbmtlS0V5WVJNeUJaX0RJcHE0bE9mNFFoWUhSRVpsRzVjMDd0SDNXMzBiUmsyUEpxUzB4aTg2M05SaVllcXl6cVNUdFRYa2d2N2gydWNB?oc=5) |
 | ‘Living in this terror’: DC mayor shares message to anxious residents during law enforcement surge - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxQSjVkT3R1S29qeXdrNmpNeTVmeDZGNXlNZUkxRUd0bF9obXpSZF9WQkdRZlZGbFpXSDJqQTcwbXdWYkYybTI4M3J1ejFWUVp5aC1Ca1pWTlRoVTI4ZTRwRnRJdXBWTjVsQVpGQjNkRXFpb0FXUFl0dlNYTGFOS2p0TDhtbEdEM2VpVFRwXzJWWk5FZjZUenBNMVlWVlJrRnVRZ2NqZklhVDlrd29Yc1ZTTGEtLU44OXpIRjVLcHY1NzRmTDY1dHc?oc=5) |
-| ICE asks for access to Chicago-area Navy base to assist operations - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUURFaWhnMmlOUEtycE1tWWZpcXJpWnc1dnU0a3BzLWczZlJZYXNpY3pCbER5SGNxREFjaURuWjdiRThyODJ3dzlvS1kzRUtpZGlCTC14bWwzQXZlRTNTR3g3ZGxvNWNiNkJoa0tITlZoYWVrVDRfakdMUW9HVDl3ZS1xYWI4eURpT2JvODRkZDM?oc=5) |
-| How a grand jury acted as "sword" and "shield" for D.C. sandwich guy - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQTGtrdFpSb3VyallNVlNIXzltV3JMNzMwM0dkOTd4Wk8zRzJ2cElYMFFjMEZIUjZfcVlFcWtZeFJQYWV5SXJoZV8tRV9iMkVDRGhiMGxXZ1pxRW5LeFZQcnlqdUNvd2w1RHlWc0tpeVkxa0p3NTV3ZUxlbWE2TlBnMUJ0bw?oc=5) |
-| Trump’s India tariffs take effect: Which sector will be hit, what’s exempt? - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNUks4WThFa1hNb1dsSjVzd2hGQ3NJb3dmZzJUQ3RXdTRfcGNQZUpHc1RJWi1TdjFTemdEZGF1WW5rQVZ6cER2QkpOLWtzSkkxVzJ4X0NRWHI3bjZNMDl5RnRCY2Z1WmJpY1B0bjZOOXA4OHJZRk9pTnlWeXpldHhnbmxTZVhna2xhakg3V1RNcV9zVVNiSS0weGpwVUpvVmk4NWt2VzJpWjByNzl3RUVZSGZYN0HSAboBQVVfeXFMTnBLcjAyUVNMZk05UndBMmRQZ3EzWWl5d2tTelluQ3l4NmF5MTBRdVNseWlVOTJqV3RSMXp1N0lRX3c5aXpyUVUzam5sOG54WGdSN3ZyRGVBeHBxc3hGX2kzYnoxYkpobFg0NHRVTjlmbUVhREp4cjdHTXNQZXJZMXQtaTJ3dTVFWXBEbFV2VGJlYnhpNkhTMDNSU0d2SUZBeVhfbmFaQmxWS3FVUXRKNHB2b3phNmxIV19B?oc=5) |
+| ‘Our president is listening’: Handful of Black MAGA activists in Chicago catch Trump’s eye - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQY0EtOE1ka0dydkVnXzNxRlRNdTZOM09ITnBLMWFTUjN5TTRTMHNZYVRra3RCVGsyRXR3MWtKNy1NSE8yclJkMGNYajJUN2cwb21mNFVHLTdrWTVnT1ZpZ2FfVkZob2pNNEFlM2Q2VDVUWU9xUzhseEptVl9NWnkzR0d4WW5wcVhtbTdWNXAtd0p3dw?oc=5) |
+| Trump's doubling of tariffs hits India, damaging ties - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxORzFEM3BfT05pbmhOTmd6cTNXWWwyMjNYa3dIWnlBVEcwcjBDc0JRMVFrOXZfVnFNb1RuRFJ4djV0WkljaERZejNxR1YwVjBLN2VWREFJUFlPMzFlV2Jpa0xvQ0lDcmU1VEVhU0p1b05TWFhkRDBOS0paUmlrRlA3bFU2b2dKMzdMMll6RmM3cTBwWVBoQVFZdXZPSVc?oc=5) |
+| Trump’s D.C. Law Enforcement Takeover Has Black Parents on Edge - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPSERObnRWTklIRlVHX3BDaWNrZGZGcTUxQXA4Y015T21LZmNrV09TWU8wQmZhRjlQTlJydWlnVnp1T1hQNHJmU015VEk3amhKakxGWmV4cTlRczNsRzZGNlRxYzB5VHZZU205aXlfSVMwTmV1c2NzTkF5c0FUWDZuUmV2YTdOWGM1WUJCYWVCNHZncjgwYWZxMDhqSFJpTFV3Z0M2Vi01NA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
