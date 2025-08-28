@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 07:48:04（北京时间）**
+🕒 更新时间：**2025年08月29日 07:57:39（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | Minneapolis school attacker 'obsessed with idea of killing children', officials say | [阅读全文](https://www.bbc.com/news/articles/c4g0lyny7ydo?at_medium=RSS&at_campaign=rss) |
 | European leaders outraged after Russian strikes kill 23 and damage EU's HQ | [阅读全文](https://www.bbc.com/news/articles/cvg3y7m2gz0o?at_medium=RSS&at_campaign=rss) |
 | Lives torn apart in Kyiv after Russia's heaviest bombardment for weeks | [阅读全文](https://www.bbc.com/news/articles/cj3ld2r2206o?at_medium=RSS&at_campaign=rss) |
+| Ministers didn't do cost review of council mergers | [阅读全文](https://www.bbc.com/news/articles/cj9wxnlnrxdo?at_medium=RSS&at_campaign=rss) |
 | Price of weight loss drug Mounjaro to be discounted in UK pharmacies | [阅读全文](https://www.bbc.com/news/articles/cvg3ykg4jrro?at_medium=RSS&at_campaign=rss) |
 | MSP locked out of Scottish Parliament after toilet camera claims | [阅读全文](https://www.bbc.com/news/articles/c9wy40rxrvxo?at_medium=RSS&at_campaign=rss) |
-| We're in the dark about future, says asylum seeker in Epping hotel | [阅读全文](https://www.bbc.com/news/articles/cdxy0p9jx1qo?at_medium=RSS&at_campaign=rss) |
 | Man Utd back Amorim as Rooney says club is 'broken' | [阅读全文](https://www.bbc.com/sport/football/articles/c3v3470zl3lo?at_medium=RSS&at_campaign=rss) |
+| We're in the dark about future, says asylum seeker in Epping hotel | [阅读全文](https://www.bbc.com/news/articles/cdxy0p9jx1qo?at_medium=RSS&at_campaign=rss) |
 | US Fed Governor Lisa Cook sues Trump over his attempt to fire her | [阅读全文](https://www.bbc.com/news/articles/c1dxl6ry4y3o?at_medium=RSS&at_campaign=rss) |
 | British Tour de France winner Chris Froome airlifted to hospital after 'serious' crash | [阅读全文](https://www.bbc.com/sport/cycling/articles/c4glv348xjwo?at_medium=RSS&at_campaign=rss) |
-| Met special constable found guilty of child rape | [阅读全文](https://www.bbc.com/news/articles/c0ml30vgykro?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
