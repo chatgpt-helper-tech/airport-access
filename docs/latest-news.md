@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 00:50:00（北京时间）**
+🕒 更新时间：**2025年08月29日 00:56:39（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Minneapolis Catholic school shooting: What we know so far - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNUE5jVFhSTE8tQWJHNF9aNXRjTEJFSUhqMThUU21GUmlId19mRnVJUUI3R3dubTBjajkwM256SGNGbWc2UWtwN2h5WTFSVVRiYWg4UzRoLV9DcUJoZHN2bWJxMUYzaHUxdW40d0I5WXB1NkJLQTI5eC13RGpoeTNxYzdxaTJSNE1ucGJPaDg4Q09hTGh4ejFB?oc=5) |
-| Bernie Sanders condemns ousting of CDC chief Susan Monarez as ‘outrageous’ – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNS1FLaU5uY191OWVLVlY2Si1TblNGX3pYZlh3TFl2WUxGWFg5WFR1XzdzVTB5MGRlSk00dG1WSmlISXBZN3hYbXNmQnd2V1VsNTVLT0wwaC1xSk5nTVdycERRM29tTHpUWWhfVWJlY29RcVFxbV9YUWR6b3lTUG9WVkExQ1BBUWc1VXpPa3c2M1lmb3lxZlpQSjQ1NXlLLTVSQm1acDItcW85dw?oc=5) |
+| Trump’s border czar says there will be a ‘ramp up’ of Ice operations in Democratic-led cities – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNS1FLaU5uY191OWVLVlY2Si1TblNGX3pYZlh3TFl2WUxGWFg5WFR1XzdzVTB5MGRlSk00dG1WSmlISXBZN3hYbXNmQnd2V1VsNTVLT0wwaC1xSk5nTVdycERRM29tTHpUWWhfVWJlY29RcVFxbV9YUWR6b3lTUG9WVkExQ1BBUWc1VXpPa3c2M1lmb3lxZlpQSjQ1NXlLLTVSQm1acDItcW85dw?oc=5) |
 | Europe furious as deadly Russian attack damages prominent Kyiv offices - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQV1NiY1lOaHZ6RmdoQU51U1hHX0czai1EN19ValloOVptaVFkRHBJai0tYkJULVl0aWFKVmVjUWFyMFk3LXlnNms2UmhJTnJMY2RyQkxNcm53OTRFYk9EMUROYUhXMGtGQl9DNWtPQ2N6bnJEdDJuU1dyM2RBV29CbVVKWWRsQQ?oc=5) |
-| Florida's 'Alligator Alcatraz' detention facility to be empty 'within a few days' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPWXNPSU1LSDl6eEhpSDZQSC1ZSDhLdWNFdVNhYWVwT0xLQ2o2SDN6a2dMX045eXlOcm1zSFUtLWpjc0lEWlpfREFVOXgwUk00X3JOWnVEWVJwdkQ1bkJka25IRjdKczAtYnRpLTI0d1hZb3AxU3dMd3RTSmF4UUxLWXpvREF4UWRYeGtTUjJZcmdhZw?oc=5) |
+| 'Alligator Alcatraz' immigration facility will have no detainees in the next few days, Florida official says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPTXB5bXMxZG1kWndTQlNCVkVvMTljeGFlTkJTb015UXpLdWRhakVmbWxiNHUyZU0xVU1qX3hRbzctaExpbGxTZVZfTW5wdWYwLTMzcDA3V05oZ0ZBQWF0ZUJtTS1mNTlKMUFQWEN1ZlZJYURTbW9ZSVlXLWhFQkNxWTZFNlFLZWtZdllrQm1tZ0QzUjR4UXplYXF5cG9vc2RFQ3gweHJISzBDTHpSZGQ0TTBZS21SbmfSAbwBQVVfeXFMTllPRzRsY0s0amhSWGY1WTdHS1c4ZFJQbjFJelVhUzMtS2ZNZFVBRHY4V05NLW5GbHlnbm8wbzMwbG8tMGp4Rm9kVkFSYnpnb0wwYXlVQXZzSEhVWlZ1dWJMcjRvZ3NJWWF3OVR6QjBYbUg3Z0VMTzQ0cFZfVzg3YUFSekJHcU5XSXRxY1RvbVFMZlVQNkxxWnRuYnNiaTZHaGNiRXJpNVRqV3J1MUp3NU1XOWlnZjBtb1VGaVA?oc=5) |
 | Trump administration asks military base outside Chicago for support on immigration operations - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQa2wwZnZCcGdsODJaZ0QxdEh4c2ZxZzZWZkJvOTN3bUlBa0NKcW80UXFjbHo4VWF2a1ZJRXhuWm5uODZKNHZGcXVXUW0wdjhVa3ZySDdTQVN3UDRpZzRIN2RnUUF5MDl3ejJWZHA3S0ZFU1JoM1BzYnlUcFFxbkF0NHdIT2cwSnJuMHl4WFZvVWRWQzRPN2c?oc=5) |
 | 'We didn't do enough': How U.S. policy failed Palestinians in Gaza - NPR | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE83WmpFWEtTTWpGNXpKeXNYTjRzUENjT0xqVlBqbnhHT1lWY3VBSFFmQnpzTmw0b2NXU1lhd05xa0d0WF9yLTQ5STEtdUNTWDZPMWppVkZ2cHpXY2VNRHpiUzNhU3FNRV9jY3VjZjdIOEItTXY2TTRhSg?oc=5) |
 | Fed Governor Lisa Cook sues Trump to block her firing - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9Hd282OTY0dVlQVHdOYmNoUzJaMmczVFBud2VYbzhhNEZDb0pCUnU0SFVpQXVrTGJqNzVmOHRkQlRYeThSemdqV3c2ZlJ3OEZiUk53UlZ0ZmRNdGZxLVZOd2RORDEwVk9hQm5wal9sU3dEUDhGRktfa1Mzc9IBgAFBVV95cUxPU2c5UnhtRFdxOVVITFYtR1lBb21EdFRsUmZOSXo0M09yNWRNNmM3ZWpsQVM2ZHhQMUlqMDJielhOaXUtWVJGWjY3V2RRV0dSVE5PTE5zeWZ1ZXdtTHk3RGJuaGNZRzloWlNSZ2FUTE5tSElWZFQ3VDZoZzVkVUYtOQ?oc=5) |
