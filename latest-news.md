@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 01:25:55（北京时间）**
+🕒 更新时间：**2025年08月29日 01:33:44（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Florida's 'Alligator Alcatraz' detention facility to be empty 'within a few days' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPWXNPSU1LSDl6eEhpSDZQSC1ZSDhLdWNFdVNhYWVwT0xLQ2o2SDN6a2dMX045eXlOcm1zSFUtLWpjc0lEWlpfREFVOXgwUk00X3JOWnVEWVJwdkQ1bkJka25IRjdKczAtYnRpLTI0d1hZb3AxU3dMd3RTSmF4UUxLWXpvREF4UWRYeGtTUjJZcmdhZw?oc=5) |
 | Trump administration asks military base outside Chicago for support on immigration operations - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQa2wwZnZCcGdsODJaZ0QxdEh4c2ZxZzZWZkJvOTN3bUlBa0NKcW80UXFjbHo4VWF2a1ZJRXhuWm5uODZKNHZGcXVXUW0wdjhVa3ZySDdTQVN3UDRpZzRIN2RnUUF5MDl3ejJWZHA3S0ZFU1JoM1BzYnlUcFFxbkF0NHdIT2cwSnJuMHl4WFZvVWRWQzRPN2c?oc=5) |
 | 'We didn't do enough': How U.S. policy failed Palestinians in Gaza - NPR | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE83WmpFWEtTTWpGNXpKeXNYTjRzUENjT0xqVlBqbnhHT1lWY3VBSFFmQnpzTmw0b2NXU1lhd05xa0d0WF9yLTQ5STEtdUNTWDZPMWppVkZ2cHpXY2VNRHpiUzNhU3FNRV9jY3VjZjdIOEItTXY2TTRhSg?oc=5) |
-| Fed Governor Lisa Cook sues Trump to block her firing - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9Hd282OTY0dVlQVHdOYmNoUzJaMmczVFBud2VYbzhhNEZDb0pCUnU0SFVpQXVrTGJqNzVmOHRkQlRYeThSemdqV3c2ZlJ3OEZiUk53UlZ0ZmRNdGZxLVZOd2RORDEwVk9hQm5wal9sU3dEUDhGRktfa1Mzc9IBgAFBVV95cUxPU2c5UnhtRFdxOVVITFYtR1lBb21EdFRsUmZOSXo0M09yNWRNNmM3ZWpsQVM2ZHhQMUlqMDJielhOaXUtWVJGWjY3V2RRV0dSVE5PTE5zeWZ1ZXdtTHk3RGJuaGNZRzloWlNSZ2FUTE5tSElWZFQ3VDZoZzVkVUYtOQ?oc=5) |
-| D.C. mayor: "Masked ICE agents" and out-of-town National Guard are ineffective - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQbkFlOERkeXRscTBmd09TMVJGT002QkJEQ0FyaGctM3ZMTkxGdy01WmwtMWRuLWp3RWdubHQ4cGtvMHoyVGxCLV9Bc1NVMWFJa08tUGF0dGZ0NUhIQjd2aGMwY19xYm9SN0dBdVdQc3l0ZUVMQnoxaC1xcmNDMXhDQw?oc=5) |
+| D.C. Democrats rebuke Mayor Muriel Bowser's comments that Trump's surge reduced crime - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNYlhkZGlkUDJDcnVCcEllSTFZTjVCRWtnZjU5d2FtTjFyTFF3UnhqVEZ5WnVDZ3RUdk9tTC1COFd3eXhDVEd3SmdFTnpYNnFlbGQxcDc0Y25XUWZKanZLZmZQcmxnZnZOdTJhMFlZVXhmSW8tY0FKbnk2M1EzZTltaGV6cXVoM1k4eVl3YWR2Sm9rRUg3UjlVWjljenNJSmtuTHZqZno4cFNXeU5uc1dLR19hSk81cDR0d1ZFb2tWa0pMQ2FuU045YlR6U2hzVDd50gFWQVVfeXFMUHFCUkNfRzZPWU1GdmlSUEZuakZhYi1wdzRVNHAxRDMycnI3ZHRidVhxRTAwb2tIanY5Z3Fsb2oweGY3OXNwbVRHb3dDZ0V0YV9OX0k5Q0E?oc=5) |
+| White House seeks to use Chicago-area military base for ‘sanctuary cities’ crackdown - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPVDVObGNEYk4zTHhCUWM2Vzd2OWtYNk9JM05hdWRGUWVjYVdfS1R4dTVBN0VWckQxb1dmNWNtd0RWemtBV3l1ZW8tZkNCTWRybHVtdTBXWFlUS2l1emdBcjNzek5WVW91NHdZaUdJYjltaFc4N1RtOFpGa25DVDFFZGxiVUV6YzNzZEl5TW9FUnMxTGVI?oc=5) |
 | Mississippi Museum Acquires Gun Linked to Emmett Till’s Murder - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNNTNIQ0pJb29MUFBvWHhqZUhZNWZWNGt3bUY5R1JuZW9QamoxNzdXaUUxQTZLaXdhNmphUmVUOTFqb2o4cnV6ZnA4N283YllPZlpBbmlGNFFzRV9FbzRHZDRPeGpUTzJ5bVV2eXhseXM0Tnc1UEtaTS0zOEZQc1VVcy13UQ?oc=5) |
 | ‘Evacuate NOW!’: What it was like to sound the alarm ahead of Hurricane Katrina - Yale Climate Connections | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNekE2V1AtNkU3U1FNSjQ0eEJNejdHYm4xaDVWbkZIR0tyeFhIc3d3TEV6emNueHBza2pVSm42MkJYR1M0WTZvLWE2am9xdFFMTjk0dGlOU3lac2pCVjAtQmtaQ3psUGVTcFh6TmpRWVRpM1g1ODM0T1NMR0g0dFFfY3B1RmpsUXM4QkdZLUN2SndwdXBWaUxuR3lOUTY1QThnRVBWV0dWeE05YTlhbm1uS1pYR0Y1Mzl4aDM4?oc=5) |
 
