@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 02:17:37（北京时间）**
+🕒 更新时间：**2025年08月29日 02:25:45（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Florida's 'Alligator Alcatraz' detention facility to be empty 'within a few days' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPWXNPSU1LSDl6eEhpSDZQSC1ZSDhLdWNFdVNhYWVwT0xLQ2o2SDN6a2dMX045eXlOcm1zSFUtLWpjc0lEWlpfREFVOXgwUk00X3JOWnVEWVJwdkQ1bkJka25IRjdKczAtYnRpLTI0d1hZb3AxU3dMd3RTSmF4UUxLWXpvREF4UWRYeGtTUjJZcmdhZw?oc=5) |
 | Chicago prepares for National Guard to come in - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPZXQxZmp3eW1LcnlwSGxKSTBEODkwa0J3eWp5WC1KRTEwTzMxVXk0Qm8yMEFHQlNEdE96VFI2a1BmdmV5QTZTN2xHc1lpRlRPTzlQVUtSNkJESUMwVU5DSkdsRmtZMmdWOF9aTXZfcjVxV2RTa1k2cm5mb1VyUWJMcHN2TkZhaXY5blVpb0NIYmVzUTZCNjg1cllXeFI?oc=5) |
 | 'We didn't do enough': How U.S. policy failed Palestinians in Gaza - NPR | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE83WmpFWEtTTWpGNXpKeXNYTjRzUENjT0xqVlBqbnhHT1lWY3VBSFFmQnpzTmw0b2NXU1lhd05xa0d0WF9yLTQ5STEtdUNTWDZPMWppVkZ2cHpXY2VNRHpiUzNhU3FNRV9jY3VjZjdIOEItTXY2TTRhSg?oc=5) |
+| Bowser says federal police surge has reduced crime in DC, but ‘north star’ is protecting city’s autonomy - CNN | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE0zMW1yU1NwWXVhZThPbVBtQWtmYjNSd0prLVlXSS1hRFl4SHZVWWVRMmc3SGQwNlYyYjRUVVpSN2FGbUh0ZEZfZ0hBSUhKUi1aemJ3bVZRajFNeS1wZlpOMmJ1VWtWZThIbUJUNnFLTQ?oc=5) |
 | Mississippi Museum Acquires Gun Linked to Emmett Till’s Murder - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNNTNIQ0pJb29MUFBvWHhqZUhZNWZWNGt3bUY5R1JuZW9QamoxNzdXaUUxQTZLaXdhNmphUmVUOTFqb2o4cnV6ZnA4N283YllPZlpBbmlGNFFzRV9FbzRHZDRPeGpUTzJ5bVV2eXhseXM0Tnc1UEtaTS0zOEZQc1VVcy13UQ?oc=5) |
-| D.C. mayor: "Masked ICE agents" and out-of-town National Guard are ineffective - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQbkFlOERkeXRscTBmd09TMVJGT002QkJEQ0FyaGctM3ZMTkxGdy01WmwtMWRuLWp3RWdubHQ4cGtvMHoyVGxCLV9Bc1NVMWFJa08tUGF0dGZ0NUhIQjd2aGMwY19xYm9SN0dBdVdQc3l0ZUVMQnoxaC1xcmNDMXhDQw?oc=5) |
 | ICE asks for access to Chicago-area Navy base to assist operations - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUURFaWhnMmlOUEtycE1tWWZpcXJpWnc1dnU0a3BzLWczZlJZYXNpY3pCbER5SGNxREFjaURuWjdiRThyODJ3dzlvS1kzRUtpZGlCTC14bWwzQXZlRTNTR3g3ZGxvNWNiNkJoa0tITlZoYWVrVDRfakdMUW9HVDl3ZS1xYWI4eURpT2JvODRkZDM?oc=5) |
 | ‘Evacuate NOW!’: What it was like to sound the alarm ahead of Hurricane Katrina - Yale Climate Connections | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNekE2V1AtNkU3U1FNSjQ0eEJNejdHYm4xaDVWbkZIR0tyeFhIc3d3TEV6emNueHBza2pVSm42MkJYR1M0WTZvLWE2am9xdFFMTjk0dGlOU3lac2pCVjAtQmtaQ3psUGVTcFh6TmpRWVRpM1g1ODM0T1NMR0g0dFFfY3B1RmpsUXM4QkdZLUN2SndwdXBWaUxuR3lOUTY1QThnRVBWV0dWeE05YTlhbm1uS1pYR0Y1Mzl4aDM4?oc=5) |
 
