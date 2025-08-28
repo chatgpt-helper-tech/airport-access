@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 03:48:07（北京时间）**
+🕒 更新时间：**2025年08月29日 03:57:26（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | What we know about Minnesota school shooting suspect Robin Westman - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNWXpScE1IamJ3bHRqM2VoTmNoZXpIRDRjbDRRYlc2ZTZ0VGZ3X09OQTA2SkcyUHRCdXpTRmRPLVpXQ3IwRTZ6X0wyd2FDT3NfQzZGQnNBNFU1eUFVM01yWWVoLTRWaFY4VENOTnFkQXJqNS1mNThoWnJEazJvTEUzV19veWRteEpnekRhTDh4c3FSOW4yQjg00gGcAUFVX3lxTFBNcXo2d1YzNzlPeG9fVGpVX1BCQXY2UHpZclhHdllKTTBPNmZyOTFHWTJuLWdtWDFCMTlaVUJFTVh0Z3RtMXZYUkMyNVVhNEVFdEZEQzlLUlFNMGhnTnRZTldIUWN6RmF4b1VxcWNaQTAyeXExS2lHMElVSFBiNVRVa2RwYnlHTkZReGNzemxkZmVHMFRvdk5memJYeQ?oc=5) |
-| RFK Jr. bashes CDC after firing of director, resignation of key leaders - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNMTBnMDVkVmxJU1Jlam5OYjB4VjVnY1E0d2ZBbUlqamYzWDcyY0Rxd2pFVk93emtWbjZVcnBON0RPdjQ4SEg2U2tHWXQ1a0V0Y25iYV9XRC1HbVJEN0p0MWJLTDZyWmpHSEhsUzlGX243aXNxbElOay13QUk2bE0zT2I3YjdqZWszeFhUZ2ZBdw?oc=5) |
+| RFK Jr. will testify before Senate panel next week - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOZVRrVkNKb0xsTmJGazdFbEQyd3RVUDRtQmlySDFTMU1VSmpRZzdPOHlWTEhPd0treXRwNUJRUXZUOUdKMnQ1NGhGVWd0T092MXVJU1o0SjFWOFNmSjNiMktSVFpqMDBhazl6WFFYZmhVSmxJMDYwWkJtRGlfWURFVlExN1ktajV3WE1j?oc=5) |
 | Florida's 'Alligator Alcatraz' detention facility to be empty 'within a few days' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPWXNPSU1LSDl6eEhpSDZQSC1ZSDhLdWNFdVNhYWVwT0xLQ2o2SDN6a2dMX045eXlOcm1zSFUtLWpjc0lEWlpfREFVOXgwUk00X3JOWnVEWVJwdkQ1bkJka25IRjdKczAtYnRpLTI0d1hZb3AxU3dMd3RTSmF4UUxLWXpvREF4UWRYeGtTUjJZcmdhZw?oc=5) |
-| Chicago prepares for National Guard to come in - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPZXQxZmp3eW1LcnlwSGxKSTBEODkwa0J3eWp5WC1KRTEwTzMxVXk0Qm8yMEFHQlNEdE96VFI2a1BmdmV5QTZTN2xHc1lpRlRPTzlQVUtSNkJESUMwVU5DSkdsRmtZMmdWOF9aTXZfcjVxV2RTa1k2cm5mb1VyUWJMcHN2TkZhaXY5blVpb0NIYmVzUTZCNjg1cllXeFI?oc=5) |
-| Russia launches second-biggest air assault of Ukraine war, killing at least 21 and damaging EU building - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE40OF94eFhmOTJQUjd1dHdtMU52a0xIMWotbDkyY3FmYnZtQlBGQlh6eFJxMFl1RFdJYzV0Z2U0dDRhSFJxSWZOWWp5T3hwdmZBLXl4Y3VCZEcyNUJabzZKa2xqZUlPMHFyOHRhWUpRMTRvU184OFY0SS1RZkNLdw?oc=5) |
+| Trump administration plans big immigration enforcement operation in Chicago as soon as next week - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPTmp1TW9KODNvS0lHQnhhaEpBX0NZZ3IyRnE2U0dJNXlFVlhld2k2Z1lYeURhMGZoQ3E5MVFQcEZQODRmTWNrc1hNOVNZQ2RaS3ZKdzd2eUhPNk12SnE5dEhiQm40Z0pwYTdKRmZBbklKYUNyZmhRcWR0bHV6SEVhbGl5ZEZQV2xLV0Q1eHcxdw?oc=5) |
 | The 'land swap' that wasn't: Inside Trump's frantic dash for Ukraine peace - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPd0hUWVU4X29iOFROcVJtaGdyMnZUazEwUmR4TGFNQk9KeUpXN3hrY2dsbmxhSGZrc0FwWUViNEl6alhkOWdMTEtPY1VPTHhLcEVpcFhFTVZRQ2FlWFFxWmZKRGJJc0pWaXh1Wk00TThHV3lSNmcyQ3hwYTlveWdrem5nbnJUbk5yN01ZcnhHWmNyd21NUFEyUTF0bnVsTWZyVDNiYWExQWFWYXlVYzZF?oc=5) |
+| 'We didn't do enough': How U.S. policy failed Palestinians in Gaza - NPR | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE83WmpFWEtTTWpGNXpKeXNYTjRzUENjT0xqVlBqbnhHT1lWY3VBSFFmQnpzTmw0b2NXU1lhd05xa0d0WF9yLTQ5STEtdUNTWDZPMWppVkZ2cHpXY2VNRHpiUzNhU3FNRV9jY3VjZjdIOEItTXY2TTRhSg?oc=5) |
 | Mississippi Museum Acquires Gun Linked to Emmett Till’s Murder - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNNTNIQ0pJb29MUFBvWHhqZUhZNWZWNGt3bUY5R1JuZW9QamoxNzdXaUUxQTZLaXdhNmphUmVUOTFqb2o4cnV6ZnA4N283YllPZlpBbmlGNFFzRV9FbzRHZDRPeGpUTzJ5bVV2eXhseXM0Tnc1UEtaTS0zOEZQc1VVcy13UQ?oc=5) |
-| Democrats seek ‘immediate answers’ after reported arrests of firefighters by US border agents - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxONE5XcHVWX0xkMkNMTjhUUzVWZEhldUE4RFlwdjN4SnVvSUtTZXRRWGd1VmtmNW9ITzFDOG52WEVjaVRsdk53d3ZIMVFfcWxONVpjcmwtaGNBS3NTdVNFVzVZSENMNkhqTWRneHJjRjVSS204cnM0dlRNZEdxczJSOS14QzNzWlhiUHBIdVBaTGVYdUt2anFaaGhUV0g?oc=5) |
 | D.C. mayor: "Masked ICE agents" and out-of-town National Guard are ineffective - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQbkFlOERkeXRscTBmd09TMVJGT002QkJEQ0FyaGctM3ZMTkxGdy01WmwtMWRuLWp3RWdubHQ4cGtvMHoyVGxCLV9Bc1NVMWFJa08tUGF0dGZ0NUhIQjd2aGMwY19xYm9SN0dBdVdQc3l0ZUVMQnoxaC1xcmNDMXhDQw?oc=5) |
 | Trump administration asks military base outside Chicago for support on immigration operations - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQa2wwZnZCcGdsODJaZ0QxdEh4c2ZxZzZWZkJvOTN3bUlBa0NKcW80UXFjbHo4VWF2a1ZJRXhuWm5uODZKNHZGcXVXUW0wdjhVa3ZySDdTQVN3UDRpZzRIN2RnUUF5MDl3ejJWZHA3S0ZFU1JoM1BzYnlUcFFxbkF0NHdIT2cwSnJuMHl4WFZvVWRWQzRPN2c?oc=5) |
+| Russian Air Strikes on Kyiv Kill 18 as Putin Snubs US on War - Yahoo Finance | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNVldfaTJvREJkMzJxZlZPM3pSU1JlTHhEcWRWUnhwcUJReEhLMUd0OWQ4bjZkdm85VjNMZDI5V0ozczVsVnVEbFVPaUlPOGtJMndwY0tmZWdYNnpxYktkRkZCalJraUlvcjJuMGZQMlBDZXoxN1lJWWNISEFROHVFNk90WjFPSWYxRWc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
