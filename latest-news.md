@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 12:56:03（北京时间）**
+🕒 更新时间：**2025年08月28日 13:00:19（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | What we know about Minnesota school shooting suspect Robin Westman - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNWXpScE1IamJ3bHRqM2VoTmNoZXpIRDRjbDRRYlc2ZTZ0VGZ3X09OQTA2SkcyUHRCdXpTRmRPLVpXQ3IwRTZ6X0wyd2FDT3NfQzZGQnNBNFU1eUFVM01yWWVoLTRWaFY4VENOTnFkQXJqNS1mNThoWnJEazJvTEUzV19veWRteEpnekRhTDh4c3FSOW4yQjg00gGcAUFVX3lxTFBNcXo2d1YzNzlPeG9fVGpVX1BCQXY2UHpZclhHdllKTTBPNmZyOTFHWTJuLWdtWDFCMTlaVUJFTVh0Z3RtMXZYUkMyNVVhNEVFdEZEQzlLUlFNMGhnTnRZTldIUWN6RmF4b1VxcWNaQTAyeXExS2lHMElVSFBiNVRVa2RwYnlHTkZReGNzemxkZmVHMFRvdk5memJYeQ?oc=5) |
-| CDC director ousted, top officials resign after RFK Jr. push to change vaccine policy - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQOEpkdkw4QWxqWHJJV0hHU0o3eTkzSnozVVJGcnZtTUFuSm1PYWw0ekZqYmp1REU2b25UZ2dRVlhJSEdTaEt4dkIzX2Rfb2xZV1E2X2o2S2IwNTZKV0JUWEtDMV8zQWFiOWpfWnJfWnpvZTBEYWdWUW1HeThhZGFhNEswbWg1LVNlb0Vz?oc=5) |
+| CDC director is out after less than a month; other agency leaders resign - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxObVAtMU9SVE5BNWxKTG52VFg0REhEVmRhSUxHUnBGVTh0aXlfTU5yV0E4SjhtZmEzUkJoc0hHYXFOd09BQ3BCNGRJbGl6OFNRR0pGVTl6a2lIblJRNjU0R05Dd05zU3RLTWctOTE1eFF4SHZ2VUJiX0RLNU5kcmZKalk2SzNJdnRGU2lkZjRtdVJkQTlp?oc=5) |
 | Emmanuel Haro updates: Baby had been abused over time, succumbed to injuries, prosecutors say - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNZFR6NHNTeW1tOEc3V0Z6UThybHI0elBscVBLM3RNT2tVWnR2ZHN2YXM2ZEhQamVhNjRmQ0RXd3V4WkJnRlhTbVlLd3lLZ0xyaE1jTkN5Tng4UWJVNTZNTU15WFpkQVFCOFNmSU1yRHlBcGhjb0RxNldTUEhuOEpueHNRRi1VN0RBLWNlcWtPN0pCSmxaWlYyMC0wanZ6TkZFaExiNmtSaUpDTkpjbVZRZVNPZTPSAboBQVVfeXFMTzd3QzJtYkJDS3paMzBXcThPNWEtbUJtbkVUWjUzVENrT3pUTzRtMVBzNnR6aHIzSUFpMHpUaU1sOFBZNmN0WldwRGF4eWlsamtuMnhlWjFueUpZU3BIVFd3R0h1VUZBWDk3YllQUDhlSklaUzdHbE9zSlVET21OUHpsU2NnbDRRMmg2VjVuMzBteFVUN01vMDZ2ZUxrRFFnYndoSjFGYlprTHJiQ2ktZnhrc3hXbjFTOGp3?oc=5) |
 | John Bolton Inquiry Eyes Emails Obtained by Foreign Government - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPLWU1bnF5MzU0UUJhNk9SMFUxSjFXWE9yUXJRbS1vUmNCU1F0bnp4b1NFTzctd0pIb0ZDcHc5TW5hWm45eWl3dEF3MXR3b1hKQUlyWjhtZXc3ZVRsWXZ1WXlDVTR0Uk11NXpPR18teWFRMzlfWmJINklGT2pjel9RbVJPSnNiS0hBcVJab21razZUaWc?oc=5) |
 | Trump’s India tariffs take effect: Which sector will be hit, what’s exempt? - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNUks4WThFa1hNb1dsSjVzd2hGQ3NJb3dmZzJUQ3RXdTRfcGNQZUpHc1RJWi1TdjFTemdEZGF1WW5rQVZ6cER2QkpOLWtzSkkxVzJ4X0NRWHI3bjZNMDl5RnRCY2Z1WmJpY1B0bjZOOXA4OHJZRk9pTnlWeXpldHhnbmxTZVhna2xhakg3V1RNcV9zVVNiSS0weGpwVUpvVmk4NWt2VzJpWjByNzl3RUVZSGZYN0HSAboBQVVfeXFMTnBLcjAyUVNMZk05UndBMmRQZ3EzWWl5d2tTelluQ3l4NmF5MTBRdVNseWlVOTJqV3RSMXp1N0lRX3c5aXpyUVUzam5sOG54WGdSN3ZyRGVBeHBxc3hGX2kzYnoxYkpobFg0NHRVTjlmbUVhREp4cjdHTXNQZXJZMXQtaTJ3dTVFWXBEbFV2VGJlYnhpNkhTMDNSU0d2SUZBeVhfbmFaQmxWS3FVUXRKNHB2b3phNmxIV19B?oc=5) |
