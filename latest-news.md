@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 19:16:54（北京时间）**
+🕒 更新时间：**2025年08月28日 19:24:28（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| ‘God, come to our aid’: Community gathers to pray for victims of Minneapolis school shooting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxONVRYeTZmckhWTldpcHE2Vm1fejcwZnZZbTlldDNjNG9mZ1p4SDBmZy0wTlVLa1c5Vkt0cmUtNHNCcG54UXJ2eFRwaEs4RWJQaUhpSHVtTEw5aWlmVktDLTZjWE5aNnVhZ29vYUVmcVEzLUk2dHREUU1FR0k1d25nZzk1dWZoSGY1eFlIcGFoeDU0T2dtREVHektyNGx4Q2FzN29makpETzQ5Q2FNR3U4YWtxY0RIQkdZWHJscHlkTklRTXRRdzE0WkE3TjdhejQwWkE?oc=5) |
+| Minnneapolis wakes to aftermath of Catholic school shooting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPTzJhNjRfNFpkQkI4eTUzSi1uM0hoUU9rNXQ0MVFMN25wbkk4NWlWM0N0bW50MzdBaU10cTIxZXVQNDlOaFB6N2V3elVUa0VJa2xFUUkzWkdoNVA4a3Q1VFVuSjZhbExCa1pONUUxOWFEUmgtbURYUjVCYndHSERWR2pLQlFMbC1WWjRWWXFTRUNLZFYxb0lXQm5GTGxJeTBheHhZZ2lLR1BoNUE?oc=5) |
 | White House fires CDC director who says RFK Jr. is ‘weaponizing public health’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQOEpkdkw4QWxqWHJJV0hHU0o3eTkzSnozVVJGcnZtTUFuSm1PYWw0ekZqYmp1REU2b25UZ2dRVlhJSEdTaEt4dkIzX2Rfb2xZV1E2X2o2S2IwNTZKV0JUWEtDMV8zQWFiOWpfWnJfWnpvZTBEYWdWUW1HeThhZGFhNEswbWg1LVNlb0Vz?oc=5) |
 | Rescuers race to reach victims after Russian strikes pound Kyiv, killing at least 15, including four children - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE40OF94eFhmOTJQUjd1dHdtMU52a0xIMWotbDkyY3FmYnZtQlBGQlh6eFJxMFl1RFdJYzV0Z2U0dDRhSFJxSWZOWWp5T3hwdmZBLXl4Y3VCZEcyNUJabzZKa2xqZUlPMHFyOHRhWUpRMTRvU184OFY0SS1RZkNLdw?oc=5) |
 | Speaker Johnson slashed Medicaid. His constituents could lose health services - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPTzNFUnNkTzhuMFlrYjNzSEhmOVo2dzlJMlNSbVhRbThabEprZzN4Q1RhZkZkQ2l2ZjUtYmMyYTRPQk11OURVNVNPRkk1cHpPd1dmTElTUGExaWdyd1RNWVJEUlZJNnF0anBsY2FfeDVlemtjaVlhYnd0V2h1TlZVd21EdG5IQnl4aFlzVg?oc=5) |
@@ -32,7 +32,7 @@
 | Trump’s India tariffs take effect: Which sector will be hit, what’s exempt? - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNUks4WThFa1hNb1dsSjVzd2hGQ3NJb3dmZzJUQ3RXdTRfcGNQZUpHc1RJWi1TdjFTemdEZGF1WW5rQVZ6cER2QkpOLWtzSkkxVzJ4X0NRWHI3bjZNMDl5RnRCY2Z1WmJpY1B0bjZOOXA4OHJZRk9pTnlWeXpldHhnbmxTZVhna2xhakg3V1RNcV9zVVNiSS0weGpwVUpvVmk4NWt2VzJpWjByNzl3RUVZSGZYN0HSAboBQVVfeXFMTnBLcjAyUVNMZk05UndBMmRQZ3EzWWl5d2tTelluQ3l4NmF5MTBRdVNseWlVOTJqV3RSMXp1N0lRX3c5aXpyUVUzam5sOG54WGdSN3ZyRGVBeHBxc3hGX2kzYnoxYkpobFg0NHRVTjlmbUVhREp4cjdHTXNQZXJZMXQtaTJ3dTVFWXBEbFV2VGJlYnhpNkhTMDNSU0d2SUZBeVhfbmFaQmxWS3FVUXRKNHB2b3phNmxIV19B?oc=5) |
 | How a grand jury acted as "sword" and "shield" for D.C. sandwich guy - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQTGtrdFpSb3VyallNVlNIXzltV3JMNzMwM0dkOTd4Wk8zRzJ2cElYMFFjMEZIUjZfcVlFcWtZeFJQYWV5SXJoZV8tRV9iMkVDRGhiMGxXZ1pxRW5LeFZQcnlqdUNvd2w1RHlWc0tpeVkxa0p3NTV3ZUxlbWE2TlBnMUJ0bw?oc=5) |
 | Search for missing 7-month-old: Officials have 'strong indication' on location of baby's remains - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQNXQyNm9LSzlvdV9XTnp3VnhfMjEzUlFpOEotZTRZc2dfTzAtWUhiZDRpbzdVSzZ1U1dkZ2htYmFLaFlGZkdCMU5ERFFlUmMydl9WQnE5WWdYdGNFdnc1d1BZcFhrbVdDMnJTTXpIeDlub3BmNWhQVXBtcjB6blhzVXAwRy16VXdTdWh2NGRPbTFvNS1wYTEwZGdVN2xXbENBQnVBQmpLNNIBrAFBVV95cUxOeEhaa1dCUmxvU3BteFZtemh0el82eHJjUVhTLWI0czY3d3lsQUlPaVp4c3c3UmFDRnU0RXRtNVNRLVNha1llTkRka0pfSExrLVFSRlJDVHNQeHNydVZTZWtXWFlPYl9nUUdqUnZ1MllYZTgzUEFlLUhkMGI0WXJXODRxNUZKSnhieDRtNi1VbXhtamdWM2JlQTRxM09oMDZXMGU5LWJTOWtlSGZH?oc=5) |
-| Trump’s D.C. Law Enforcement Takeover Has Black Parents on Edge - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPSERObnRWTklIRlVHX3BDaWNrZGZGcTUxQXA4Y015T21LZmNrV09TWU8wQmZhRjlQTlJydWlnVnp1T1hQNHJmU015VEk3amhKakxGWmV4cTlRczNsRzZGNlRxYzB5VHZZU205aXlfSVMwTmV1c2NzTkF5c0FUWDZuUmV2YTdOWGM1WUJCYWVCNHZncjgwYWZxMDhqSFJpTFV3Z0M2Vi01NA?oc=5) |
+| Missing New Orleans boy died from blunt force trauma from alligator, authorities say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOek5KQWFYc2tqaGtJTVFDcENVakRpdm1ObEVqZGlDTUFmdWhpelNCSVZ0RlhvZlFHM2FOQmhqZ19GQ2hrcUlKSXkwaEFleXVxenFhOGJlTWl4Yy1UbGJzQmFqMWlPdFdteFpmOTdUdjBjbUw4YUxTTUhKS3BWSUUyeFdSTjd5VmRlYnJDSDduQ1V1T2FDTnlQQklkck9RblJXWGw5NXBSbXZiZlJTMTNLSGRMMlpfeVJM0gFWQVVfeXFMTVpiMGtOT3R4S2RwbHg0S3Q1b1ZMeld1Rkk2ZFR3cjlMZVNPOHE4eEZEaUl5OEhacC0zRWE2SDBXSnR6akJpV1JPcmdhaW00cWloZ0VTR0E?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
