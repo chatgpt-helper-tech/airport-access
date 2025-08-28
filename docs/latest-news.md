@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 12:24:34（北京时间）**
+🕒 更新时间：**2025年08月28日 12:33:47（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Padilla’s options, Porter’s brushback, and Newsom’s crusade: 7 takeaways from POLITICO’s California summit - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi6AFBVV95cUxNQzdmbVRHTTdVTVJvN2k1MHYzT2Y0NnVQNHpUTVhMc1dQLVN3d1ZFQUo0dDBFajdvQkludWdsRWN3bW1Xc2hpLUREbXg0REdmbUE0ZVpoZ0FRUnZhV2k1N1l6R1R0R2FLMjhXREttakJUYUZRNjZWblpfSVAtdTBYeWJHZ3h0R05nQXVBMDRzTk90NjUzcFBWYjh4SXdsbUpoWUwxV19VLW5udFNtQ1NWTzBQdDVfalZHYnl0Z2RkYXBlb0NOVHdaU19DRUJ5NDdvajgzd1lLOVJtZzhlZzZ5VjNVb0JhdFFk?oc=5) |
 | Missing New Orleans boy died from blunt force trauma from alligator, authorities say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOek5KQWFYc2tqaGtJTVFDcENVakRpdm1ObEVqZGlDTUFmdWhpelNCSVZ0RlhvZlFHM2FOQmhqZ19GQ2hrcUlKSXkwaEFleXVxenFhOGJlTWl4Yy1UbGJzQmFqMWlPdFdteFpmOTdUdjBjbUw4YUxTTUhKS3BWSUUyeFdSTjd5VmRlYnJDSDduQ1V1T2FDTnlQQklkck9RblJXWGw5NXBSbXZiZlJTMTNLSGRMMlpfeVJM0gFWQVVfeXFMTVpiMGtOT3R4S2RwbHg0S3Q1b1ZMeld1Rkk2ZFR3cjlMZVNPOHE4eEZEaUl5OEhacC0zRWE2SDBXSnR6akJpV1JPcmdhaW00cWloZ0VTR0E?oc=5) |
 | Gavin Newsom: 'I don't think Donald Trump wants another election' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPMmdBck44X1dQbDVtSDZpellMQ3ZxOHFycEs1X3pKMGpiRFowYTZmR1BLb2ZhUjRTbXdvNXJTYUtqSTQtcERwb0hKaWhoUk1QMFE0azNZaG9yWkE5aDl4enJmaVdMTzlOeXl5XzhjMFd5NnFRZUhUdjZfVnhrbXZLbzNfRW5PM0dwZTUzcGFIQQ?oc=5) |
-| Trump’s D.C. Law Enforcement Takeover Has Black Parents on Edge - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPSERObnRWTklIRlVHX3BDaWNrZGZGcTUxQXA4Y015T21LZmNrV09TWU8wQmZhRjlQTlJydWlnVnp1T1hQNHJmU015VEk3amhKakxGWmV4cTlRczNsRzZGNlRxYzB5VHZZU205aXlfSVMwTmV1c2NzTkF5c0FUWDZuUmV2YTdOWGM1WUJCYWVCNHZncjgwYWZxMDhqSFJpTFV3Z0M2Vi01NA?oc=5) |
+| Department of Transportation will reclaim control of Washington's Union Station, Duffy announces - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNQlh2bEtoVm9VamlCVERzVVB1aTBXQmtpcEpwTktkblZRVUlTbzBLUFlKU1NJZHlQVkRVa3ZMclh3T0lTT3N5UWI0Y0NrZkR3QkQxeXVhcVJHUnFRMWdMTDZfMTVEMlR4bTcwSWVMOGtBS0JMU3l4Tl9aYVBGcFc4Mnp6WFZ6SUIwMnJiN1NNbE5VcVVtUnfSAZsBQVVfeXFMT2ZMWTZfaUM5S1oxc3pNWnlLSXBqY3lnU0VYU1JXRWs4cGh4Y295eVVfZG8yR0Z4Qjc5dG5kWEs4c0NsNWpFeVVWeEk1MmlaQU9WcUx1QWtaZEF0T0tHYlpzdUhzNXVXQ2JhV1BXejMtakFrX0dqSFcyZUdzNXlTTXNXMTJkLW85SjhScHlzWjZCa1VSYU44b3F6NWc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
