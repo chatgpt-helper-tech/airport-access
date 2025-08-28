@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 22:16:19（北京时间）**
+🕒 更新时间：**2025年08月28日 22:25:16（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | 'We didn't do enough': How U.S. policy failed Palestinians in Gaza - NPR | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE83WmpFWEtTTWpGNXpKeXNYTjRzUENjT0xqVlBqbnhHT1lWY3VBSFFmQnpzTmw0b2NXU1lhd05xa0d0WF9yLTQ5STEtdUNTWDZPMWppVkZ2cHpXY2VNRHpiUzNhU3FNRV9jY3VjZjdIOEItTXY2TTRhSg?oc=5) |
 | Xi shows Trump who holds the cards as he sets up meeting with Kim and Putin - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE96OGlNX3BSeks0UWZIUzgzaFd4U3lJVkVSY3Vla3hkd3RHNUhOcE91TmZyMHVSTmUzN01mdGN3Q2NzdFBMdnhwUXd0YnlMVW45cTJ6ay1WM2FRZ9IBX0FVX3lxTE1YcEdyRldJQTEwR0d0UzVFS3dGMUNpM1FpTnliYzlTQTgzVnNGUmdEZU5UdlFiaW5xaWRReDJuUV9IQjhORmNhemdmTnVpNURoRUk3Wk80cFdxdjlRaTZZ?oc=5) |
 | D.C. mayor: "Masked ICE agents" and out-of-town National Guard are ineffective - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQbkFlOERkeXRscTBmd09TMVJGT002QkJEQ0FyaGctM3ZMTkxGdy01WmwtMWRuLWp3RWdubHQ4cGtvMHoyVGxCLV9Bc1NVMWFJa08tUGF0dGZ0NUhIQjd2aGMwY19xYm9SN0dBdVdQc3l0ZUVMQnoxaC1xcmNDMXhDQw?oc=5) |
-| Fed Governor Lisa Cook sues Trump to block her firing - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9Hd282OTY0dVlQVHdOYmNoUzJaMmczVFBud2VYbzhhNEZDb0pCUnU0SFVpQXVrTGJqNzVmOHRkQlRYeThSemdqV3c2ZlJ3OEZiUk53UlZ0ZmRNdGZxLVZOd2RORDEwVk9hQm5wal9sU3dEUDhGRktfa1Mzc9IBgAFBVV95cUxPU2c5UnhtRFdxOVVITFYtR1lBb21EdFRsUmZOSXo0M09yNWRNNmM3ZWpsQVM2ZHhQMUlqMDJielhOaXUtWVJGWjY3V2RRV0dSVE5PTE5zeWZ1ZXdtTHk3RGJuaGNZRzloWlNSZ2FUTE5tSElWZFQ3VDZoZzVkVUYtOQ?oc=5) |
 | ICE asks for access to Chicago-area Navy base to assist operations - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUURFaWhnMmlOUEtycE1tWWZpcXJpWnc1dnU0a3BzLWczZlJZYXNpY3pCbER5SGNxREFjaURuWjdiRThyODJ3dzlvS1kzRUtpZGlCTC14bWwzQXZlRTNTR3g3ZGxvNWNiNkJoa0tITlZoYWVrVDRfakdMUW9HVDl3ZS1xYWI4eURpT2JvODRkZDM?oc=5) |
-| Denmark summons U.S. envoy over claims of interference in Greenland - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOMVZiamtCRE1tUHVVRkZSZDc5SEt4Y1IyR0czVHB6UEpyQVd4TmF5UlgtXzM3T3h5ckkyYVluYWdabXpqTEtfbUpXTlpuUmpWRGZHS3RwOEpNdjZKS0hzYjRJUXJXckNJQXZMMmZiU3h1dm0yX2RZMUh1TzRGdTdHOEprRGlxbS1HZ08zWA?oc=5) |
+| Denmark summons US envoy over suspected influence operations in Greenland - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQWWM0WWlvdkNRRS1WZzU2bVNEN3FyVjI5VWNvdTBwS1VFcEpGTGE2dEctcGNKWU9QZF9GZlhlZXp0M25xcjNJdnhWY1lZSXowOGRRdEoyRVFxNG45SlQ1WHZTSEVYOGpaOEpsYUZqbmtlS0V5WVJNeUJaX0RJcHE0bE9mNFFoWUhSRVpsRzVjMDd0SDNXMzBiUmsyUEpxUzB4aTg2M05SaVllcXl6cVNUdFRYa2d2N2gydWNB?oc=5) |
 | Trump administration: Alabama, must remove ‘poison’ gender ideology from sex ed - AL.com | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPbi1UMDRHTXBVcjk4OXJUTnVBZnFEYWtsUFlHcWdCWXFnNFRIMWNTUk5fUndBVS03V3hBbk9NdnRFR3VpWjZZaEpYSlNvMHEtN1lXbGtPM3dIQU5UUTNBalE2cEppU21WWHllR2UwZzdMVnItbm9CYkVRdmp2WHhlVk9kUXJzQzRKbms1UzZDMHhyelJaZFZ2ZTA1eUVLY2JjNEZuYW9oQU9weVd3Smx6bElXbVRHYknSAcsBQVVfeXFMT1hONnNDcm85SFhNTWVFTTNMLXg1NGRyVXM0RG1peTl4Vnljd3dvRWZILU1ZMllGbWVtTnUwaUxUQXlDYTRUUERoT3ZXcU51dElfNkFQYmZpdE53WDJTeXRaSTQ2UERlZmE4NjRiRlA2bE9PM09zTF9LdEM3ZTZUVG5CWG8xLUdkNG5OQ0xVYWo4STd6bmZwMEtnZ21xVl9adzlnaWdmNzZ5TngzS1c5Y3N4TkhsMEJMc1A4eGtYUS1HX3BBYlZidzFVems?oc=5) |
+| How a grand jury acted as "sword" and "shield" for D.C. sandwich guy - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQTGtrdFpSb3VyallNVlNIXzltV3JMNzMwM0dkOTd4Wk8zRzJ2cElYMFFjMEZIUjZfcVlFcWtZeFJQYWV5SXJoZV8tRV9iMkVDRGhiMGxXZ1pxRW5LeFZQcnlqdUNvd2w1RHlWc0tpeVkxa0p3NTV3ZUxlbWE2TlBnMUJ0bw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
