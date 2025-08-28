@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 15:09:02（北京时间）**
+🕒 更新时间：**2025年08月28日 15:17:07（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Woman says Chinese student predator raped her hours before second attack | [阅读全文](https://www.bbc.com/news/articles/c79l4z3v3p3o?at_medium=RSS&at_campaign=rss) |
-| FBI investigates Minneapolis school shooting as anti-Catholic hate crime | [阅读全文](https://www.bbc.com/news/articles/c7760x87r4po?at_medium=RSS&at_campaign=rss) |
 | Starmer to replace third top aide in less than a year | [阅读全文](https://www.bbc.com/news/articles/czr6zmd5d0ro?at_medium=RSS&at_campaign=rss) |
+| FBI investigates Minneapolis school shooting as anti-Catholic hate crime | [阅读全文](https://www.bbc.com/news/articles/c7760x87r4po?at_medium=RSS&at_campaign=rss) |
 | Jacqueline Wilson on the 'easiest and hardest book I've ever written' | [阅读全文](https://www.bbc.com/news/articles/c7vl097jd8eo?at_medium=RSS&at_campaign=rss) |
 | What next for Man Utd and Amorim after humiliation at Grimsby? | [阅读全文](https://www.bbc.com/sport/football/articles/cnv7lz9nlq5o?at_medium=RSS&at_campaign=rss) |
 | A charity is giving people money to stop homelessness - and it says it's working | [阅读全文](https://www.bbc.com/news/articles/ce83716edj1o?at_medium=RSS&at_campaign=rss) |
 | Value of small parcels from China to UK doubles to £3bn as Shein sales soar | [阅读全文](https://www.bbc.com/news/articles/cnv78eey8plo?at_medium=RSS&at_campaign=rss) |
-| North Korea's Kim Jong Un to join Putin at China military parade | [阅读全文](https://www.bbc.com/news/articles/c17njr88ge4o?at_medium=RSS&at_campaign=rss) |
-| MoD staff warned not to share hidden data before Afghan leak | [阅读全文](https://www.bbc.com/news/articles/cwy5e911j37o?at_medium=RSS&at_campaign=rss) |
 | White House fires disease control director as other officials resign from health agency | [阅读全文](https://www.bbc.com/news/articles/cwy3zjxy3dwo?at_medium=RSS&at_campaign=rss) |
+| US tells Denmark to 'calm down' over alleged Greenland influence operation | [阅读全文](https://www.bbc.com/news/articles/c0j9l08902eo?at_medium=RSS&at_campaign=rss) |
+| MoD staff warned not to share hidden data before Afghan leak | [阅读全文](https://www.bbc.com/news/articles/cwy5e911j37o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
