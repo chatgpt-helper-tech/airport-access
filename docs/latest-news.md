@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 04:33:30（北京时间）**
+🕒 更新时间：**2025年08月29日 04:40:24（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | 2 Weeks After Trump Talks, Russia Bombards Kyiv, Killing at Least 18 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOWUVCeDJ1SDdtNGFjS3FNbk1VSjNxcnVPZnBIblRfQnQ4TFNDaTB4U2t6X0I0cmZLOXpuRWVKazNfU3duRVBaVm5mdmdlalB6TjhGV2c4Q2hiNVVWVUVzVllsNWcwWjJEd0ZFMEFYUlp1ZVYybTRtZVhNR3dPQlV6Zg?oc=5) |
 | Gun used in Emmett Till’s lynching is displayed in a museum 70 years after his murder - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQMFJ6Q2FnRTFqOUlHOTJkOWRKaFZkcGFya2lQMnJJNVpKdFR6MldHZUlYTm9iSzkyQTl3NjhPWXM3WVFiUlRKc3FuTXM4RENvNGdsVzRSdWlZaUZuZlVVRVp5Y0JNOEtWMXAtRUtRNFlBSy0wWm9TWHR3MWFVanlCYmFwb0dOOHlwckRVY0FodnVXZzE3UG53YldSb3VTSm1QU3drbnA0aw?oc=5) |
 | D.C. mayor: "Masked ICE agents" and out-of-town National Guard are ineffective - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQbkFlOERkeXRscTBmd09TMVJGT002QkJEQ0FyaGctM3ZMTkxGdy01WmwtMWRuLWp3RWdubHQ4cGtvMHoyVGxCLV9Bc1NVMWFJa08tUGF0dGZ0NUhIQjd2aGMwY19xYm9SN0dBdVdQc3l0ZUVMQnoxaC1xcmNDMXhDQw?oc=5) |
-| Trump administration asks military base outside Chicago for support on immigration operations - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQa2wwZnZCcGdsODJaZ0QxdEh4c2ZxZzZWZkJvOTN3bUlBa0NKcW80UXFjbHo4VWF2a1ZJRXhuWm5uODZKNHZGcXVXUW0wdjhVa3ZySDdTQVN3UDRpZzRIN2RnUUF5MDl3ejJWZHA3S0ZFU1JoM1BzYnlUcFFxbkF0NHdIT2cwSnJuMHl4WFZvVWRWQzRPN2c?oc=5) |
-| ‘Nightmare’: family in shock after Ice moves LA teen out of state without their knowledge - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOSHJOYmJZQlM1ZzJPWGM3THB3cWRQZjVSdHBBQ09tdm9FUW1ZYUhfRVE5bjVxeFVIOHFINGF0WEd2VWIzWWRld1BIOWxaYTNmTzN0MDJ3b3ppNmVRQ0dILV9SZkQ4NnUyOHpSLXFncGhJRWlXbENYeDV1MndSb21MQWtXOVRTQzYzcWdpdDJ3TF94YzJ0?oc=5) |
+| L.A. teen is moved to ICE detention center out of state without parents’ knowledge - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNSlp0Z181S1dBR205aWZtemJyTkRENkRVT1FtZGZqMnpQUjg0M0pzYXlsVXJxTVNzRm9sR2czUnhtNHhDYVh5VzlNX3A3d1gzTW9yTjV2ZGZHOTV2elNadWxKc2tGVHRsYmphRExKaWJqMjlzX0FUMS1UQmEyMjRhQUdUZ2hXVjluUmJFTU5XanNEREZZZFhoWlpOYnRIN0c0cTFYeS1BTFdqcjRjeFd3Tmc5LUN2UjhqNmQ1ZTE0R2FrcUxZY05qdDhnSno4Y0tQ?oc=5) |
+| ‘Evacuate NOW!’: What it was like to sound the alarm ahead of Hurricane Katrina - Yale Climate Connections | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNekE2V1AtNkU3U1FNSjQ0eEJNejdHYm4xaDVWbkZIR0tyeFhIc3d3TEV6emNueHBza2pVSm42MkJYR1M0WTZvLWE2am9xdFFMTjk0dGlOU3lac2pCVjAtQmtaQ3psUGVTcFh6TmpRWVRpM1g1ODM0T1NMR0g0dFFfY3B1RmpsUXM4QkdZLUN2SndwdXBWaUxuR3lOUTY1QThnRVBWV0dWeE05YTlhbm1uS1pYR0Y1Mzl4aDM4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
