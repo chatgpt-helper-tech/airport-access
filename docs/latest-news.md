@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 02:40:26（北京时间）**
+🕒 更新时间：**2025年08月29日 02:49:06（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Democrats probe Trump administration's retreat from public corruption cases - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxPNGhyeExRdWlZUXhscFFaOGd5NFpMLTBjUW9zRVFHeUQ1TkswSjBGQ3BwVHRDcW1telFwZWU1cTJDQmVQcnEwSHZZMTVfcnlrRWltX2hnbmtoRDVCLU1yZFFWRjlINWNsZVRlRXlGOGtkTVFYSV9uelBYbXBHa1NIWFpmY0hWd2ZOTWtYTlIzOE1wV191cFFoTnRNZXlGZ0gxbVdLSnBHTDl6RGZvQWhnVktVQ2g3bFNDX0tBYVd3aGhfOHJiblFPX3JNY3nSAVZBVV95cUxQam5Sd2JKblk0Sm5XT040MUpXYUdBd3FUdTlSdFNuMmZuNldhSF9zWXVwcmdVY2k2RFBMUFgyaG03S0xuVWJ3cm5mb1RRaWxoakIxWHFPZw?oc=5) |
 | D.C. mayor: "Masked ICE agents" and out-of-town National Guard are ineffective - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQbkFlOERkeXRscTBmd09TMVJGT002QkJEQ0FyaGctM3ZMTkxGdy01WmwtMWRuLWp3RWdubHQ4cGtvMHoyVGxCLV9Bc1NVMWFJa08tUGF0dGZ0NUhIQjd2aGMwY19xYm9SN0dBdVdQc3l0ZUVMQnoxaC1xcmNDMXhDQw?oc=5) |
 | Mississippi Museum Acquires Gun Linked to Emmett Till’s Murder - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNNTNIQ0pJb29MUFBvWHhqZUhZNWZWNGt3bUY5R1JuZW9QamoxNzdXaUUxQTZLaXdhNmphUmVUOTFqb2o4cnV6ZnA4N283YllPZlpBbmlGNFFzRV9FbzRHZDRPeGpUTzJ5bVV2eXhseXM0Tnc1UEtaTS0zOEZQc1VVcy13UQ?oc=5) |
-| ICE asks for access to Chicago-area Navy base to assist operations - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUURFaWhnMmlOUEtycE1tWWZpcXJpWnc1dnU0a3BzLWczZlJZYXNpY3pCbER5SGNxREFjaURuWjdiRThyODJ3dzlvS1kzRUtpZGlCTC14bWwzQXZlRTNTR3g3ZGxvNWNiNkJoa0tITlZoYWVrVDRfakdMUW9HVDl3ZS1xYWI4eURpT2JvODRkZDM?oc=5) |
+| Trump administration asks military base outside Chicago for support on immigration operations - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQa2wwZnZCcGdsODJaZ0QxdEh4c2ZxZzZWZkJvOTN3bUlBa0NKcW80UXFjbHo4VWF2a1ZJRXhuWm5uODZKNHZGcXVXUW0wdjhVa3ZySDdTQVN3UDRpZzRIN2RnUUF5MDl3ejJWZHA3S0ZFU1JoM1BzYnlUcFFxbkF0NHdIT2cwSnJuMHl4WFZvVWRWQzRPN2c?oc=5) |
 | ‘Evacuate NOW!’: What it was like to sound the alarm ahead of Hurricane Katrina - Yale Climate Connections | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNekE2V1AtNkU3U1FNSjQ0eEJNejdHYm4xaDVWbkZIR0tyeFhIc3d3TEV6emNueHBza2pVSm42MkJYR1M0WTZvLWE2am9xdFFMTjk0dGlOU3lac2pCVjAtQmtaQ3psUGVTcFh6TmpRWVRpM1g1ODM0T1NMR0g0dFFfY3B1RmpsUXM4QkdZLUN2SndwdXBWaUxuR3lOUTY1QThnRVBWV0dWeE05YTlhbm1uS1pYR0Y1Mzl4aDM4?oc=5) |
 
 ---
