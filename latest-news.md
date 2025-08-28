@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 06:48:19（北京时间）**
+🕒 更新时间：**2025年08月29日 06:56:10（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Bowser says federal police surge has reduced crime in DC, but ‘north star’ is protecting city’s autonomy - CNN | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE0zMW1yU1NwWXVhZThPbVBtQWtmYjNSd0prLVlXSS1hRFl4SHZVWWVRMmc3SGQwNlYyYjRUVVpSN2FGbUh0ZEZfZ0hBSUhKUi1aemJ3bVZRajFNeS1wZlpOMmJ1VWtWZThIbUJUNnFLTQ?oc=5) |
 | 70 years after Emmett Till's murder, Mississippi museum acquires gun used to kill him - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOZUNEZ0RhMkdUcjlMY0EyMURfOXMtWWhkQXQxWkFYQWJaV1ZwMVBUejFTUmZlYUFvbUxQY3BtajlRWWRDOWVGZ1NfMEpZakpiWHdhWDc0NHZkVFNuQjNHVXRtTDNMYzBLOE13c0dra2k4enJGSlRqUnV0bkRwNkNqbzY3ZVhzUTk4dWRoaFFZdw?oc=5) |
 | ‘Grasping for straws’: Europe floats Ukraine-Russia buffer zone in push for peace - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPN2ZLQmdZdFExZ3lqbjBqRG80RVNXM29hQldVWllwc01mZWsxazc2MXpRZjV0LXBLS2paOWtNcUY1YXpwZ0hWVm9JN3ZhQW13QXBwbTd4VzU4NkJFWWU0VXptS1QxVElJd1ZRLWxEMVNIelNpaUVRTVB5N2NlMEg4eE1aTlF4SFFJUnFraVh1cHNodjg0VWc1blV3?oc=5) |
-| Democrats seek ‘immediate answers’ after reported arrests of firefighters by US border agents - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxONE5XcHVWX0xkMkNMTjhUUzVWZEhldUE4RFlwdjN4SnVvSUtTZXRRWGd1VmtmNW9ITzFDOG52WEVjaVRsdk53d3ZIMVFfcWxONVpjcmwtaGNBS3NTdVNFVzVZSENMNkhqTWRneHJjRjVSS204cnM0dlRNZEdxczJSOS14QzNzWlhiUHBIdVBaTGVYdUt2anFaaGhUV0g?oc=5) |
+| RFK Jr. shakes up COVID vaccine policy with new rules - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNQkRvSlBXa1lMeGo5LWpKZGU1bkRLZGdGakY3V3JkVk9oTDZzalBmbHBfbHVydGtPY1BnY3Y1WHpFcWxhMEdPVk41elJmcWRMX0x2eDVfZUdReG4tZG8xQnBxeGVnQ0lMNGNDNXliT1EybEcxeFFTb2VRcUUzMFpjNFhR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
