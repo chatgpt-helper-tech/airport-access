@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 23:56:58（北京时间）**
+🕒 更新时间：**2025年08月29日 00:00:15（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Minneapolis mourns kids killed at Annunciation Catholic School as officials seek motive - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOSmNEVzZoM1JERVpOb09MejRSUjB5aV9iVHh0Y3R3allZMVpLZk83cnJPV3pHSUxHeklHdlhNeTIyRzZjX3hBbUtFRXo3blZlTnM5QldNMF83dkpoMGlCWm9Kd1JpYUdldEs3NHdULXpyeGxVTy1tY3JvUFdzbVdYNVRoZFFZWnVhdXhlS284eGdqR3FKMFlJOTlmU1JCX0U?oc=5) |
+| Minneapolis Catholic school shooting: What we know so far - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNUE5jVFhSTE8tQWJHNF9aNXRjTEJFSUhqMThUU21GUmlId19mRnVJUUI3R3dubTBjajkwM256SGNGbWc2UWtwN2h5WTFSVVRiYWg4UzRoLV9DcUJoZHN2bWJxMUYzaHUxdW40d0I5WXB1NkJLQTI5eC13RGpoeTNxYzdxaTJSNE1ucGJPaDg4Q09hTGh4ejFB?oc=5) |
 | Bernie Sanders condemns ousting of CDC chief Susan Monarez as ‘outrageous’ – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNS1FLaU5uY191OWVLVlY2Si1TblNGX3pYZlh3TFl2WUxGWFg5WFR1XzdzVTB5MGRlSk00dG1WSmlISXBZN3hYbXNmQnd2V1VsNTVLT0wwaC1xSk5nTVdycERRM29tTHpUWWhfVWJlY29RcVFxbV9YUWR6b3lTUG9WVkExQ1BBUWc1VXpPa3c2M1lmb3lxZlpQSjQ1NXlLLTVSQm1acDItcW85dw?oc=5) |
 | Europe furious as deadly Russian attack damages prominent Kyiv offices - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQV1NiY1lOaHZ6RmdoQU51U1hHX0czai1EN19ValloOVptaVFkRHBJai0tYkJULVl0aWFKVmVjUWFyMFk3LXlnNms2UmhJTnJMY2RyQkxNcm53OTRFYk9EMUROYUhXMGtGQl9DNWtPQ2N6bnJEdDJuU1dyM2RBV29CbVVKWWRsQQ?oc=5) |
 | 'We didn't do enough': How U.S. policy failed Palestinians in Gaza - NPR | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE83WmpFWEtTTWpGNXpKeXNYTjRzUENjT0xqVlBqbnhHT1lWY3VBSFFmQnpzTmw0b2NXU1lhd05xa0d0WF9yLTQ5STEtdUNTWDZPMWppVkZ2cHpXY2VNRHpiUzNhU3FNRV9jY3VjZjdIOEItTXY2TTRhSg?oc=5) |
 | Speaker Johnson slashed Medicaid. His constituents could lose health services - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPTzNFUnNkTzhuMFlrYjNzSEhmOVo2dzlJMlNSbVhRbThabEprZzN4Q1RhZkZkQ2l2ZjUtYmMyYTRPQk11OURVNVNPRkk1cHpPd1dmTElTUGExaWdyd1RNWVJEUlZJNnF0anBsY2FfeDVlemtjaVlhYnd0V2h1TlZVd21EdG5IQnl4aFlzVg?oc=5) |
-| The 'land swap' that wasn't: Inside Trump's frantic dash for Ukraine peace - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPd0hUWVU4X29iOFROcVJtaGdyMnZUazEwUmR4TGFNQk9KeUpXN3hrY2dsbmxhSGZrc0FwWUViNEl6alhkOWdMTEtPY1VPTHhLcEVpcFhFTVZRQ2FlWFFxWmZKRGJJc0pWaXh1Wk00TThHV3lSNmcyQ3hwYTlveWdrem5nbnJUbk5yN01ZcnhHWmNyd21NUFEyUTF0bnVsTWZyVDNiYWExQWFWYXlVYzZF?oc=5) |
+| European ministers tell Rubio they'll trigger "snapback" sanctions against Iran Thursday - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE9PczZoeHp1OVVESU1YQUtnMmoxX0ZPaklheEFUTUNEVUp1TzhfN2wwZ2tUa01zZUxYbzU1MWJJeHdNeXFIcUdTTjBiVkV4Yk1ELVA2OXhzanlYalZIRHZ0b0VIcEN4Zmc2M3dFSzJEV1JfelVXOWR4bTFB?oc=5) |
 | Fed Governor Lisa Cook sues Trump to block her firing - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9Hd282OTY0dVlQVHdOYmNoUzJaMmczVFBud2VYbzhhNEZDb0pCUnU0SFVpQXVrTGJqNzVmOHRkQlRYeThSemdqV3c2ZlJ3OEZiUk53UlZ0ZmRNdGZxLVZOd2RORDEwVk9hQm5wal9sU3dEUDhGRktfa1Mzc9IBgAFBVV95cUxPU2c5UnhtRFdxOVVITFYtR1lBb21EdFRsUmZOSXo0M09yNWRNNmM3ZWpsQVM2ZHhQMUlqMDJielhOaXUtWVJGWjY3V2RRV0dSVE5PTE5zeWZ1ZXdtTHk3RGJuaGNZRzloWlNSZ2FUTE5tSElWZFQ3VDZoZzVkVUYtOQ?oc=5) |
-| ‘Living in this terror’: DC mayor shares message to anxious residents during law enforcement surge - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxQSjVkT3R1S29qeXdrNmpNeTVmeDZGNXlNZUkxRUd0bF9obXpSZF9WQkdRZlZGbFpXSDJqQTcwbXdWYkYybTI4M3J1ejFWUVp5aC1Ca1pWTlRoVTI4ZTRwRnRJdXBWTjVsQVpGQjNkRXFpb0FXUFl0dlNYTGFOS2p0TDhtbEdEM2VpVFRwXzJWWk5FZjZUenBNMVlWVlJrRnVRZ2NqZklhVDlrd29Yc1ZTTGEtLU44OXpIRjVLcHY1NzRmTDY1dHc?oc=5) |
 | In Chicago, locals prepare for Trump's possible deployment of National Guard - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPUHM2QXVKdHQ4VkNVS2tOUFBLVGFZVzRxaHIzV21MT1h1aGR5THNnWGtoSmdwVXJkb0ROYndBVlFPTlZnY0tFQ3psV1BvYnRPX1BBY296U3dVZWZoZFVKeUJEeUVJRFhzcWZmRjRFWlJZVlRwX2UzdnMwdF9sRnQ4ZzR3Qnowc1lhbFBkT3M5Y194QXd1T0ptV1VWZk9GVFppdjgzeDZhQnNkRXM1REE?oc=5) |
-| How a grand jury acted as "sword" and "shield" for D.C. sandwich guy - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQTGtrdFpSb3VyallNVlNIXzltV3JMNzMwM0dkOTd4Wk8zRzJ2cElYMFFjMEZIUjZfcVlFcWtZeFJQYWV5SXJoZV8tRV9iMkVDRGhiMGxXZ1pxRW5LeFZQcnlqdUNvd2w1RHlWc0tpeVkxa0p3NTV3ZUxlbWE2TlBnMUJ0bw?oc=5) |
+| D.C. mayor: "Masked ICE agents" and out-of-town National Guard are ineffective - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQbkFlOERkeXRscTBmd09TMVJGT002QkJEQ0FyaGctM3ZMTkxGdy01WmwtMWRuLWp3RWdubHQ4cGtvMHoyVGxCLV9Bc1NVMWFJa08tUGF0dGZ0NUhIQjd2aGMwY19xYm9SN0dBdVdQc3l0ZUVMQnoxaC1xcmNDMXhDQw?oc=5) |
+| Trump administration: Alabama, must remove ‘poison’ gender ideology from sex ed - AL.com | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPbi1UMDRHTXBVcjk4OXJUTnVBZnFEYWtsUFlHcWdCWXFnNFRIMWNTUk5fUndBVS03V3hBbk9NdnRFR3VpWjZZaEpYSlNvMHEtN1lXbGtPM3dIQU5UUTNBalE2cEppU21WWHllR2UwZzdMVnItbm9CYkVRdmp2WHhlVk9kUXJzQzRKbms1UzZDMHhyelJaZFZ2ZTA1eUVLY2JjNEZuYW9oQU9weVd3Smx6bElXbVRHYknSAcsBQVVfeXFMT1hONnNDcm85SFhNTWVFTTNMLXg1NGRyVXM0RG1peTl4Vnljd3dvRWZILU1ZMllGbWVtTnUwaUxUQXlDYTRUUERoT3ZXcU51dElfNkFQYmZpdE53WDJTeXRaSTQ2UERlZmE4NjRiRlA2bE9PM09zTF9LdEM3ZTZUVG5CWG8xLUdkNG5OQ0xVYWo4STd6bmZwMEtnZ21xVl9adzlnaWdmNzZ5TngzS1c5Y3N4TkhsMEJMc1A4eGtYUS1HX3BBYlZidzFVems?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
