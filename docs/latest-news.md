@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 10:33:06（北京时间）**
+🕒 更新时间：**2025年08月28日 10:40:19（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump’s D.C. Law Enforcement Takeover Has Black Parents on Edge - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPSERObnRWTklIRlVHX3BDaWNrZGZGcTUxQXA4Y015T21LZmNrV09TWU8wQmZhRjlQTlJydWlnVnp1T1hQNHJmU015VEk3amhKakxGWmV4cTlRczNsRzZGNlRxYzB5VHZZU205aXlfSVMwTmV1c2NzTkF5c0FUWDZuUmV2YTdOWGM1WUJCYWVCNHZncjgwYWZxMDhqSFJpTFV3Z0M2Vi01NA?oc=5) |
 | Gavin Newsom: 'I don't think Donald Trump wants another election' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPMmdBck44X1dQbDVtSDZpellMQ3ZxOHFycEs1X3pKMGpiRFowYTZmR1BLb2ZhUjRTbXdvNXJTYUtqSTQtcERwb0hKaWhoUk1QMFE0azNZaG9yWkE5aDl4enJmaVdMTzlOeXl5XzhjMFd5NnFRZUhUdjZfVnhrbXZLbzNfRW5PM0dwZTUzcGFIQQ?oc=5) |
 | Department of Transportation will reclaim control of Washington's Union Station, Duffy announces - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNQlh2bEtoVm9VamlCVERzVVB1aTBXQmtpcEpwTktkblZRVUlTbzBLUFlKU1NJZHlQVkRVa3ZMclh3T0lTT3N5UWI0Y0NrZkR3QkQxeXVhcVJHUnFRMWdMTDZfMTVEMlR4bTcwSWVMOGtBS0JMU3l4Tl9aYVBGcFc4Mnp6WFZ6SUIwMnJiN1NNbE5VcVVtUnfSAZsBQVVfeXFMT2ZMWTZfaUM5S1oxc3pNWnlLSXBqY3lnU0VYU1JXRWs4cGh4Y295eVVfZG8yR0Z4Qjc5dG5kWEs4c0NsNWpFeVVWeEk1MmlaQU9WcUx1QWtaZEF0T0tHYlpzdUhzNXVXQ2JhV1BXejMtakFrX0dqSFcyZUdzNXlTTXNXMTJkLW85SjhScHlzWjZCa1VSYU44b3F6NWc?oc=5) |
-| Russian ballistic missile strikes Kyiv in large-scale attack on Ukraine - The Kyiv Independent | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPYUVneW1TXzB4eEZVREVYS2dwNnNJcGRKWnhGM3VFMHpzWjJHdmJOS08tNjJnNnRnaWpTcnYtSDhabkJfcUtTZkpoaUhRekR3MlQzV1VoYjczc3MtOFFMY1JFbWw4Mmk1NjB5d0JOUEVTRWNMUExpbE9jT0tMZjlhTkdOaFd5UGRaYTBrVnJkMF9XWGxrYzJMcA?oc=5) |
+| How Capitol Hill is addressing politically-motivated violence - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE04OUItTXZKMUc3cHBJWmM0bWU0Wjg1WldVUmRLUlkxcnNQeTM3NmlPM3IzZ1FuaTdFOTBrWV82WlZvVkJBcmlhUkFQOG1jalNONXk5SHc2aFdhcEhYSkc3bV9FS1NmQ0xDaHdaZDVMOXBtN1hUWHNvaTNUNVV6UdIBgwFBVV95cUxOQ2E4VEdEeWZLMm0xeEFhbGdIN2dFNjVxMlJ2UU5BNEMyZ1Azdzd5WURmcjl5QXlPRVdLOUpGTDc1RklKYWZHa1FFZDdYU2hHWXNJQmtET19xNk40aXBwNXRVcFNjX2ZkTGJibHAxNjUxY1VreUpUSzdkSXZ1SDdtU0h1NA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
