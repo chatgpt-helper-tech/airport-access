@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 01:41:16（北京时间）**
+🕒 更新时间：**2025年08月29日 01:49:55（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Minneapolis Catholic school shooting: What we know so far - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNUE5jVFhSTE8tQWJHNF9aNXRjTEJFSUhqMThUU21GUmlId19mRnVJUUI3R3dubTBjajkwM256SGNGbWc2UWtwN2h5WTFSVVRiYWg4UzRoLV9DcUJoZHN2bWJxMUYzaHUxdW40d0I5WXB1NkJLQTI5eC13RGpoeTNxYzdxaTJSNE1ucGJPaDg4Q09hTGh4ejFB?oc=5) |
-| Bernie Sanders condemns ousting of CDC chief Susan Monarez as ‘outrageous’ – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNS1FLaU5uY191OWVLVlY2Si1TblNGX3pYZlh3TFl2WUxGWFg5WFR1XzdzVTB5MGRlSk00dG1WSmlISXBZN3hYbXNmQnd2V1VsNTVLT0wwaC1xSk5nTVdycERRM29tTHpUWWhfVWJlY29RcVFxbV9YUWR6b3lTUG9WVkExQ1BBUWc1VXpPa3c2M1lmb3lxZlpQSjQ1NXlLLTVSQm1acDItcW85dw?oc=5) |
+| Trump’s border czar says there will be a ‘ramp up’ of Ice operations in Democratic-led cities – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNS1FLaU5uY191OWVLVlY2Si1TblNGX3pYZlh3TFl2WUxGWFg5WFR1XzdzVTB5MGRlSk00dG1WSmlISXBZN3hYbXNmQnd2V1VsNTVLT0wwaC1xSk5nTVdycERRM29tTHpUWWhfVWJlY29RcVFxbV9YUWR6b3lTUG9WVkExQ1BBUWc1VXpPa3c2M1lmb3lxZlpQSjQ1NXlLLTVSQm1acDItcW85dw?oc=5) |
 | Europe furious as deadly Russian attack damages prominent Kyiv offices - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQV1NiY1lOaHZ6RmdoQU51U1hHX0czai1EN19ValloOVptaVFkRHBJai0tYkJULVl0aWFKVmVjUWFyMFk3LXlnNms2UmhJTnJMY2RyQkxNcm53OTRFYk9EMUROYUhXMGtGQl9DNWtPQ2N6bnJEdDJuU1dyM2RBV29CbVVKWWRsQQ?oc=5) |
 | Florida's 'Alligator Alcatraz' detention facility to be empty 'within a few days' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPWXNPSU1LSDl6eEhpSDZQSC1ZSDhLdWNFdVNhYWVwT0xLQ2o2SDN6a2dMX045eXlOcm1zSFUtLWpjc0lEWlpfREFVOXgwUk00X3JOWnVEWVJwdkQ1bkJka25IRjdKczAtYnRpLTI0d1hZb3AxU3dMd3RTSmF4UUxLWXpvREF4UWRYeGtTUjJZcmdhZw?oc=5) |
-| Trump administration asks military base outside Chicago for support on immigration operations - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQa2wwZnZCcGdsODJaZ0QxdEh4c2ZxZzZWZkJvOTN3bUlBa0NKcW80UXFjbHo4VWF2a1ZJRXhuWm5uODZKNHZGcXVXUW0wdjhVa3ZySDdTQVN3UDRpZzRIN2RnUUF5MDl3ejJWZHA3S0ZFU1JoM1BzYnlUcFFxbkF0NHdIT2cwSnJuMHl4WFZvVWRWQzRPN2c?oc=5) |
-| Mexico suspends postal shipments to United States over tariff confusion - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQRFhtVGNlWElaMVNhWVdYNnRqWTF0eUR1V21tWW9NYk9RS0x5a3MzdmttdXJYNDZQRXJwYTNfaVZkeEdERElwcGxrY0hjaVFlQUlzVGJuc3F2MVlaS0dCRHlCd0ViNVBOSTJMX2ZvVzNfdlR0dW5uVW1LV2Z3cWFmWU44LVhoUFBtczExRVlTTVd3ZDZEWFg5VVVNYm9aWGluMUJXemZ3cTluaVZGYmNKYmpLYTdYNk0xenJfSjlB?oc=5) |
+| Chicago prepares for National Guard to come in - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPZXQxZmp3eW1LcnlwSGxKSTBEODkwa0J3eWp5WC1KRTEwTzMxVXk0Qm8yMEFHQlNEdE96VFI2a1BmdmV5QTZTN2xHc1lpRlRPTzlQVUtSNkJESUMwVU5DSkdsRmtZMmdWOF9aTXZfcjVxV2RTa1k2cm5mb1VyUWJMcHN2TkZhaXY5blVpb0NIYmVzUTZCNjg1cllXeFI?oc=5) |
+| This rule made many online purchases dirt cheap for U.S. consumers. Now it's ending - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOZEg1QllTdUZrNlFjVlBvU25nbXdxRE1IM1Y0Y0pFdTRnbi1vN0hWekc0UkFKa1g3YkIzT25xNk14UXBiWlhWbk5Sb19wc1NDMklRMlVLNE5Cc0ZDQWY2SG5IVlBaUjAyeHF5RVlwS2NKZVh6WlZNNEVvdi04NVFwM0JTS19xOXB2dFVjZGVJN1hSc2VqV0Yw?oc=5) |
 | D.C. Democrats rebuke Mayor Muriel Bowser's comments that Trump's surge reduced crime - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNYlhkZGlkUDJDcnVCcEllSTFZTjVCRWtnZjU5d2FtTjFyTFF3UnhqVEZ5WnVDZ3RUdk9tTC1COFd3eXhDVEd3SmdFTnpYNnFlbGQxcDc0Y25XUWZKanZLZmZQcmxnZnZOdTJhMFlZVXhmSW8tY0FKbnk2M1EzZTltaGV6cXVoM1k4eVl3YWR2Sm9rRUg3UjlVWjljenNJSmtuTHZqZno4cFNXeU5uc1dLR19hSk81cDR0d1ZFb2tWa0pMQ2FuU045YlR6U2hzVDd50gFWQVVfeXFMUHFCUkNfRzZPWU1GdmlSUEZuakZhYi1wdzRVNHAxRDMycnI3ZHRidVhxRTAwb2tIanY5Z3Fsb2oweGY3OXNwbVRHb3dDZ0V0YV9OX0k5Q0E?oc=5) |
 | Mississippi Museum Acquires Gun Linked to Emmett Till’s Murder - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNNTNIQ0pJb29MUFBvWHhqZUhZNWZWNGt3bUY5R1JuZW9QamoxNzdXaUUxQTZLaXdhNmphUmVUOTFqb2o4cnV6ZnA4N283YllPZlpBbmlGNFFzRV9FbzRHZDRPeGpUTzJ5bVV2eXhseXM0Tnc1UEtaTS0zOEZQc1VVcy13UQ?oc=5) |
+| ICE asks for access to Chicago-area Navy base to assist operations - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUURFaWhnMmlOUEtycE1tWWZpcXJpWnc1dnU0a3BzLWczZlJZYXNpY3pCbER5SGNxREFjaURuWjdiRThyODJ3dzlvS1kzRUtpZGlCTC14bWwzQXZlRTNTR3g3ZGxvNWNiNkJoa0tITlZoYWVrVDRfakdMUW9HVDl3ZS1xYWI4eURpT2JvODRkZDM?oc=5) |
 | ‘Evacuate NOW!’: What it was like to sound the alarm ahead of Hurricane Katrina - Yale Climate Connections | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNekE2V1AtNkU3U1FNSjQ0eEJNejdHYm4xaDVWbkZIR0tyeFhIc3d3TEV6emNueHBza2pVSm42MkJYR1M0WTZvLWE2am9xdFFMTjk0dGlOU3lac2pCVjAtQmtaQ3psUGVTcFh6TmpRWVRpM1g1ODM0T1NMR0g0dFFfY3B1RmpsUXM4QkdZLUN2SndwdXBWaUxuR3lOUTY1QThnRVBWV0dWeE05YTlhbm1uS1pYR0Y1Mzl4aDM4?oc=5) |
-| Europeans launch UN sanctions process against Iran, drawing Tehran ire - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOUjVwUDVFQmVyWnhOUmhiS3Q5YmNjM2JGZElVVHRFbTVPODBlcnpiOXl0NHZkTm9LZGEzVHZoTC1EZThmNkdVUDlCWjlBcFpHR0xoc3J0TllfUXYyMzhGbG9Md2xOSUN1dlR6ZUJBZDh3NUpLb1ZFejEzR1VvUGJvYkJkMUtEX0JBN0RMUGlNYndvVXIzbXlvY1RYSFlhV0F3U0Z3dDYtRjFSRkdDSUJzZTU3UnpPQ0JRZ1E?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
