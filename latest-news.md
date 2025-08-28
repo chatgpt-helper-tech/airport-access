@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月28日 22:57:06（北京时间）**
+🕒 更新时间：**2025年08月28日 23:01:20（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | Reform council boss bans local newspaper's reporters | [阅读全文](https://www.bbc.com/news/articles/cger45p0lv0o?at_medium=RSS&at_campaign=rss) |
 | Man, 59, arrested over racist abuse sent to England's Jess Carter | [阅读全文](https://www.bbc.com/news/articles/c07plxg1vl3o?at_medium=RSS&at_campaign=rss) |
 | 'My friend got hit in the back': Witnesses describe terror of Minneapolis school shooting | [阅读全文](https://www.bbc.com/news/articles/cev2w1elx7wo?at_medium=RSS&at_campaign=rss) |
-| Starmer to replace third top aide in less than a year | [阅读全文](https://www.bbc.com/news/articles/czr6zmd5d0ro?at_medium=RSS&at_campaign=rss) |
+| UK, France and Germany move to reimpose UN sanctions on Iran | [阅读全文](https://www.bbc.com/news/articles/c4gmr3z49lxo?at_medium=RSS&at_campaign=rss) |
 | AI firm says its technology weaponised by hackers | [阅读全文](https://www.bbc.com/news/articles/crr24eqnnq9o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -32,7 +32,7 @@
 | ‘Living in this terror’: DC mayor shares message to anxious residents during law enforcement surge - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxQSjVkT3R1S29qeXdrNmpNeTVmeDZGNXlNZUkxRUd0bF9obXpSZF9WQkdRZlZGbFpXSDJqQTcwbXdWYkYybTI4M3J1ejFWUVp5aC1Ca1pWTlRoVTI4ZTRwRnRJdXBWTjVsQVpGQjNkRXFpb0FXUFl0dlNYTGFOS2p0TDhtbEdEM2VpVFRwXzJWWk5FZjZUenBNMVlWVlJrRnVRZ2NqZklhVDlrd29Yc1ZTTGEtLU44OXpIRjVLcHY1NzRmTDY1dHc?oc=5) |
 | ICE asks for access to Chicago-area Navy base to assist operations - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUURFaWhnMmlOUEtycE1tWWZpcXJpWnc1dnU0a3BzLWczZlJZYXNpY3pCbER5SGNxREFjaURuWjdiRThyODJ3dzlvS1kzRUtpZGlCTC14bWwzQXZlRTNTR3g3ZGxvNWNiNkJoa0tITlZoYWVrVDRfakdMUW9HVDl3ZS1xYWI4eURpT2JvODRkZDM?oc=5) |
 | How a grand jury acted as "sword" and "shield" for D.C. sandwich guy - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQTGtrdFpSb3VyallNVlNIXzltV3JMNzMwM0dkOTd4Wk8zRzJ2cElYMFFjMEZIUjZfcVlFcWtZeFJQYWV5SXJoZV8tRV9iMkVDRGhiMGxXZ1pxRW5LeFZQcnlqdUNvd2w1RHlWc0tpeVkxa0p3NTV3ZUxlbWE2TlBnMUJ0bw?oc=5) |
-| Denmark summons US envoy over suspected influence operations in Greenland - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQWWM0WWlvdkNRRS1WZzU2bVNEN3FyVjI5VWNvdTBwS1VFcEpGTGE2dEctcGNKWU9QZF9GZlhlZXp0M25xcjNJdnhWY1lZSXowOGRRdEoyRVFxNG45SlQ1WHZTSEVYOGpaOEpsYUZqbmtlS0V5WVJNeUJaX0RJcHE0bE9mNFFoWUhSRVpsRzVjMDd0SDNXMzBiUmsyUEpxUzB4aTg2M05SaVllcXl6cVNUdFRYa2d2N2gydWNB?oc=5) |
+| Denmark summons U.S. envoy over claims of interference in Greenland - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOMVZiamtCRE1tUHVVRkZSZDc5SEt4Y1IyR0czVHB6UEpyQVd4TmF5UlgtXzM3T3h5ckkyYVluYWdabXpqTEtfbUpXTlpuUmpWRGZHS3RwOEpNdjZKS0hzYjRJUXJXckNJQXZMMmZiU3h1dm0yX2RZMUh1TzRGdTdHOEprRGlxbS1HZ08zWA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
