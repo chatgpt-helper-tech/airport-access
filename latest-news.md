@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 14:08:02（北京时间）**
+🕒 更新时间：**2025年08月29日 14:16:05（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump Administration Plans Immigration Crackdown in Chicago - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQaU5OMmo2dkJObWpkaHBQRFZicTIwX3NfeldDMHNaWkFSV2dEQlBvZUFZQ3ZSV0IxanYtS3dlX050V2J3MnJuVExCSGRjN2h2NEFmaFZJVzdQb25Hd09CZzlVYzlRZGpxam1zeF9EOTRrUGp2Q3JyRmJxSXFtMFhDSGFRaHVvQ2p5dENPcG9aRjl3UQ?oc=5) |
 | Officers found guilty in Tyre Nicholas case will have new trial - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE52VDNrYWRERU9IU1lweHQwZVh2UXNWekVTWDJkbFJYdjRyY2tHeXdTVWQzNkVKTGdYcmUwNVZvWUphcFdocGF5QV8yU3BycHluR2FnYWo0VEduUdIBX0FVX3lxTFAyUlI4NnVLQXo1eXItOEdVNWpKMWd3dFl6MWVhZmdPQU83ZlFlRVJjNXBPMUpleVJ4MDBfYUdZQ2ktQjktakg5dlFqUmV3LVFHVXQzVzJxQVY3ZTltOVZj?oc=5) |
 | Kilmar Abrego Garcia asks for gag order against Bondi, Noem - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNTU9lX1FSZk44ZmQ4bDBwdFB4S05fTU1Lb3JiLXBGbHRJQzB2OElCRWdnUFVjQXNZeWx1MmpyQVlJN25VaExwWEZWbVVGb1VyUFBXSkN6dms3WXNLVW1CWHFuS1pxbndkQUU4Z2JLYzU2Vjc1N05rRWE1WFFCdjdhcVdPSHM3cHRuMndYc19WZThkMkR2SGc?oc=5) |
-| Air Force offers military funeral honors to Ashli Babbitt - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPSlc3aFVzNEhjQWg3b3NKU0V4dHE3SVh3M1VVX3N2UU96YURDOVNHaDE5ZnB6RnpJM2w0Q1h3RnBRVDYwVG5ROFg2c2pKUk5fdjhEWkFaOFZTeHNNZWNWRDlOcWRKZi1VeTItbk1rMF9JYlFxazRmMnFfdGxWLS1RRXN5bmE5aDd4UjNYQndTQ2p3NVE?oc=5) |
+| US offers military funeral honors to Capitol rioter Ashli Babbitt - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPY1dwOTNwU2xTSTZwbENhNDJuOGVQQVNlaTZxeEdnZmZ3UWNPb1NUYkJuNC04X0JBSVRrcVZWZkdQR1hDT1NpUjFpS1dBR0RkQ1hQU01sN3owVEdOSHZsWlYxQWxmTXV6a1MzOXZzSS1qN2s5cldOTmlzNWFqcjZaWXBCdWlyckhvRVA1SVI4UXV3aTFTY2hocVpGbXpZbTVOTmZYQVVKNVVaaFE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
