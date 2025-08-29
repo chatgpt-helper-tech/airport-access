@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 10:24:29（北京时间）**
+🕒 更新时间：**2025年08月29日 10:33:26（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | New trial for 3 Memphis ex-officers convicted in connection with the beating death of Tyre Nichols - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5fQjlKQnJvcHIxVGdyX2Q3b21PY0lORy1LaEJOaTdsWS1iMFVseXlRa3hnTHloTDNYaXpZTzRYLXlNanBDZnV3LWMyZ2FlNmJhb0MtMEhENm45azFNdFlTMkdxbFRjUDkwNGZIRktjbHFHWHVGX3FQSQ?oc=5) |
 | Kilmar Abrego Garcia asks for gag order against Bondi, Noem - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNTU9lX1FSZk44ZmQ4bDBwdFB4S05fTU1Lb3JiLXBGbHRJQzB2OElCRWdnUFVjQXNZeWx1MmpyQVlJN25VaExwWEZWbVVGb1VyUFBXSkN6dms3WXNLVW1CWHFuS1pxbndkQUU4Z2JLYzU2Vjc1N05rRWE1WFFCdjdhcVdPSHM3cHRuMndYc19WZThkMkR2SGc?oc=5) |
 | D.C. Democrats rebuke Mayor Muriel Bowser's comments that Trump's surge reduced crime - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNYlhkZGlkUDJDcnVCcEllSTFZTjVCRWtnZjU5d2FtTjFyTFF3UnhqVEZ5WnVDZ3RUdk9tTC1COFd3eXhDVEd3SmdFTnpYNnFlbGQxcDc0Y25XUWZKanZLZmZQcmxnZnZOdTJhMFlZVXhmSW8tY0FKbnk2M1EzZTltaGV6cXVoM1k4eVl3YWR2Sm9rRUg3UjlVWjljenNJSmtuTHZqZno4cFNXeU5uc1dLR19hSk81cDR0d1ZFb2tWa0pMQ2FuU045YlR6U2hzVDd50gFWQVVfeXFMUHFCUkNfRzZPWU1GdmlSUEZuakZhYi1wdzRVNHAxRDMycnI3ZHRidVhxRTAwb2tIanY5Z3Fsb2oweGY3OXNwbVRHb3dDZ0V0YV9OX0k5Q0E?oc=5) |
-| Kyiv hit by 'massive' Russian missile, drone attack, officials say, with 22 killed - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNSjFpLUUwLVVteGRwcGRHaGlQaEZSREQxMTNIQlozQ0M3WF94NWFaUWt1S3FSckZGaXRDbzZVSWtEbi11SGxVRVc1WXR5bDA1bnp6eHF0eDJESlVPVUdtNVhxQnZ2T2FLc2p4b3l0X08tVUgtbW91dWlXVkE3ZGl3dHE2M0hRUVJQTTRCc1YzQ1VCdVdvSXppTU5mWjhReWVrR1gzTVRoZmZ4ZkpjRGtMeG9Ic9IBuAFBVV95cUxOaUl1R1RuNXo3QmVNMWtxc2lIdEl4LVdBVXlHajA5QXhibTlYQzBQb2NiYm9DSG92eFFiakF5T3V2WGVSdmpJMFRCa0lpS3JqRnVhZWRrVHhSdFNtNkNuTDFYQTFFRzdPTEVlWFkxZXltWkFVcF9TWFNxSHRhbHR4R3FGNUxWYTlDaUxDM0hscmdVN1hmY0FuMy1HdHA0REpxWkRZX2dmR01kYU1qQnVzTFQyWnhla3pY?oc=5) |
+| Prosecutors Reduce Felony Charge Against Man Who Threw Sandwich at Federal Agent - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPdE1rWTRQaDA2bi1UOFBUTHQzSVcwbzlHM0Z6cFVKdldmbUNlNjFLUTNyazJrX1JuUUJRLVhNUlRxVFVmMWFwNGJNT3AtSXJVT0N0djhWOWFtcWRRMEhLLXEtVnVHTnR6bGpmdUlNaEpiWEhZRWJYeUdlY0tlTTg1RFJiT0NrTDFqeXp2SE9B?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
