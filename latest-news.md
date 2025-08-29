@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 20:41:43（北京时间）**
+🕒 更新时间：**2025年08月29日 20:49:23（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | UK blocks Israeli government delegation from arms trade fair | [阅读全文](https://www.bbc.com/news/articles/cvgpxwy2lkwo?at_medium=RSS&at_campaign=rss) |
 | Thai court removes PM over leaked phone call with Cambodian leader | [阅读全文](https://www.bbc.com/news/articles/ckgeqlw05rzo?at_medium=RSS&at_campaign=rss) |
 | Ministers didn't do cost review of council mergers | [阅读全文](https://www.bbc.com/news/articles/cj9wxnlnrxdo?at_medium=RSS&at_campaign=rss) |
-| MSP accused of hiding camera in Scottish Parliament toilet | [阅读全文](https://www.bbc.com/news/articles/c9wy40rxrvxo?at_medium=RSS&at_campaign=rss) |
+| MSP denies hiding camera in Scottish Parliament toilet | [阅读全文](https://www.bbc.com/news/articles/c9qyzlqvjnwo?at_medium=RSS&at_campaign=rss) |
 | Trump ends Secret Service protection for Harris | [阅读全文](https://www.bbc.com/news/articles/c04r073nxz5o?at_medium=RSS&at_campaign=rss) |
 | 'Just terrible': Osaka hits out at Ostapenko over tennis star's US Open row | [阅读全文](https://www.bbc.com/sport/tennis/articles/c707lv5vxxdo?at_medium=RSS&at_campaign=rss) |
 | Kyiv in mourning after strikes as allies discuss military support | [阅读全文](https://www.bbc.com/news/articles/cy9834jp9qno?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | 2 Weeks, 1,000 Arrests: How a Surge of Feds Changed D.C. Policing - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNckRsR0NhNjJYTnJLTlNsaWhMdXhmNnZXY1RFR3RqVFkxMjhLeWVjTUJQZnllY2hpNDhkM0h2ZHpNbS04Yi1xMDl0MUhsT0t3TU0zUXYtN1VveVdNZXh1bkgxUGFKYXdnTFdqbW9FdGhtNm1hRjRvbkNlRURWbFZ2eG9SUFY0Sk5hckNQTnFVdw?oc=5) |
 | Trump preparing major immigration enforcement operations in Chicago next week similar to LA, DHS sources say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOcDRiNDJQNXhnZlllZ1NXMUpMaVk1TU1HS0F5ZHBPQXprZW1rOVFuMXVtOGF6ZmEzY0pJRVRNamJNNzYyUkZTMUc2cnNKbDRxWlpjeWl1NVFNLUc1WE44aDZhQ0tXRUNzT1hjZDdPYVZVTXp2dDFNN2tjSF9WM2VSVjQxRTFqMlNmb2swcG9B?oc=5) |
 | White House equates Russian, Ukrainian strikes after Moscow attack killed 23 in Kyiv - The Kyiv Independent | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOelJtdVl6X2NUZW0wRy1EMzF2R3EwUGhqV0JKVTJ5V2dGNlBBOE5BZ2YwQnNNWGlzTHFfVmpmck5CSThUY1JVLWxmdmxmMEE5MktBdGNENzhRYnFhd1cwcmo2RGEtaEJTVm1kZTFrMUliT0V3d0NmSUtpVmJNVDVSQUdpLWpmYTNLdzUydW1uOENoNWNZU2VfXzdkSl9paUs2LTlmd3VWaDRZaVBtRHFjUy1B?oc=5) |
-| Abrego Garcia's lawyers ask judge to order Trump administration to stop making inflammatory comments about him - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPMnpCSWQtZ1pyUG1yS0U4bjlva1piRW5pSmxUWEVodHQteXh2YmdvVUJhdWgybks4eXFEaTVMUjZkQlN1djB1dGlBVkx1WkxqSnc2MHl6SEpjd3pTdnRYY0V6RHY0aFJKck1aMW9YN014MGhlR3N4VU5ualYtSVRUcGNHOWJ0ZmVpS21LdVhQMnVGYVZmMFhWd3FkWEpGYS1NclVmYXFoM1HSAa4BQVVfeXFMTkhUbkdPdDB5akpIbG11N3ppS3RlMWw4TFoxV3BOY2pwTlpBbkt0SXlKYzFyU1ROdGJtX3FQZGFJYnY1YjVaTVZYYS1VbmowNzRyelJUOTBsLVY2VFYtS3BuVDgxZ1hieEU0czR1UFA2bXBPVVdqMVA1VndjREN2bGo5aFB3azZhMmVHTTcySFNGN1NTSURKbUh5OVBFcWltZHNVUHd1REZLYmo4TU53?oc=5) |
+| ‘His inexperience shines through’: Steve Witkoff struggles to manage Russia as Trump peace envoy - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNTTFqaDMtekp2elZtT20xVVFFVFdZSWNSVXBCSDlUNmtoak9lTk81QnZ2UndqQTJZWlp5WUZCRzNtUFBVSEZ2aklac0hhZkh2UDBuR0R0NTFlcGl0bVhMR1pqd0NWYWVGZ1hRZGVqWjhDdmg0bFcwdFNabVFNWXJWNU1sUHQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
