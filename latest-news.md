@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 22:57:17（北京时间）**
+🕒 更新时间：**2025年08月29日 23:01:24（北京时间）**
 
 ---
 
@@ -10,14 +10,14 @@
 |--------|-------------|
 | How a leaked phone call derailed the Thai PM's career - and the Shinawatra dynasty | [阅读全文](https://www.bbc.com/news/articles/cdrkvy2pn87o?at_medium=RSS&at_campaign=rss) |
 | UK blocks Israeli government delegation from arms trade fair | [阅读全文](https://www.bbc.com/news/articles/cvgpxwy2lkwo?at_medium=RSS&at_campaign=rss) |
-| Children to be offered chickenpox vaccine on NHS | [阅读全文](https://www.bbc.com/news/articles/c860n445vyxo?at_medium=RSS&at_campaign=rss) |
 | Trump ends Secret Service protection for Harris | [阅读全文](https://www.bbc.com/news/articles/c04r073nxz5o?at_medium=RSS&at_campaign=rss) |
+| Children to be offered chickenpox vaccine on NHS | [阅读全文](https://www.bbc.com/news/articles/c860n445vyxo?at_medium=RSS&at_campaign=rss) |
 | MSP denies hiding camera in Scottish Parliament toilet | [阅读全文](https://www.bbc.com/news/articles/c9qyzlqvjnwo?at_medium=RSS&at_campaign=rss) |
 | Ministers didn't do cost review of council mergers | [阅读全文](https://www.bbc.com/news/articles/cj9wxnlnrxdo?at_medium=RSS&at_campaign=rss) |
 | Kyiv in mourning after strikes as allies discuss military support | [阅读全文](https://www.bbc.com/news/articles/cy9834jp9qno?at_medium=RSS&at_campaign=rss) |
 | Protesters and police clash after death of taxi driver in Indonesia | [阅读全文](https://www.bbc.com/news/articles/cjw6el72xd4o?at_medium=RSS&at_campaign=rss) |
-| Home Office to pull job teaching migrants 'balloon craft' at detention centre | [阅读全文](https://www.bbc.com/news/articles/c0qlxxxpq35o?at_medium=RSS&at_campaign=rss) |
 | Sexist Italian image-sharing website forced to shut after political outcry | [阅读全文](https://www.bbc.com/news/articles/c04r07n7dqyo?at_medium=RSS&at_campaign=rss) |
+| Olivia Colman and Benedict Cumberbatch's secrets to successful marriages | [阅读全文](https://www.bbc.com/news/articles/cp894ed8m5qo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | End of "de minimis" exemption means new tariffs on millions of packages - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBPQU9UTGIxbTBvdzV1VnBWS3JKX3U1OWtQYlUxXzZNaEE1Q1NJazI2R2M4NEdKdjNRQWRKRGVEWWgzbzJyczM1aVV4Ylc1WWthc29Icnl5Rlk0aUFHTlZ1WFY3akx6NWt3ZFMyMDlOR1pyTnp4a09kUg?oc=5) |
 | 2 Weeks, 1,000 Arrests: How a Surge of Feds Changed D.C. Policing - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNckRsR0NhNjJYTnJLTlNsaWhMdXhmNnZXY1RFR3RqVFkxMjhLeWVjTUJQZnllY2hpNDhkM0h2ZHpNbS04Yi1xMDl0MUhsT0t3TU0zUXYtN1VveVdNZXh1bkgxUGFKYXdnTFdqbW9FdGhtNm1hRjRvbkNlRURWbFZ2eG9SUFY0Sk5hckNQTnFVdw?oc=5) |
 | Democrats zero in on a red state in the redistricting battle - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxORW44UnM5RThwSHVqc09fbUNoNW1xaVFfb2NXeDBXQ0Q5TGc2RmstTmo5NFp1cmVmdE9JWnBUR3NCQnZ3dlhHWE1uQk5hWlJGbXNJQUozV0U3VGpTYzcwWXpGTXBtYktLT0lEc1VGZDY0dnJNRFZZOWJyc3NvbXg4Y1lBdDZuTjZoR1hfNkRaWEduS2xJb0FUT3dB?oc=5) |
-| ‘His inexperience shines through’: Steve Witkoff struggles to manage Russia as Trump peace envoy - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNTTFqaDMtekp2elZtT20xVVFFVFdZSWNSVXBCSDlUNmtoak9lTk81QnZ2UndqQTJZWlp5WUZCRzNtUFBVSEZ2aklac0hhZkh2UDBuR0R0NTFlcGl0bVhMR1pqd0NWYWVGZ1hRZGVqWjhDdmg0bFcwdFNabVFNWXJWNU1sUHQ?oc=5) |
 | Residents of Chicago's most violent block don't want Trump to send the National Guard - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxOdnFtSGJ6S0E2YlZ5YU5DYldxZi1tdEIxeVlEWENlRG5qaE44V3Vhck5MMFRZX0Z1Ym5vT282SHdHczdKeXpoSEdHaENqcEhYTldkTTY0RVA0WktvUk1GRzNXeFNVdFFMLS1idWlhdEVPODdqcVNjS0F2emNTZ2FwQW1YMVVyYVl2OTIxMTN2eDZJdFo2N3UyRXR6YmJzVVRybWpHZ1lMak5YYjFGU0g3ZDdjQWs5OE1IMjJGano4RFA4YmdpN0syaGJEb1dCY1k?oc=5) |
+| ‘His inexperience shines through’: Steve Witkoff struggles to manage Russia as Trump peace envoy - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNTTFqaDMtekp2elZtT20xVVFFVFdZSWNSVXBCSDlUNmtoak9lTk81QnZ2UndqQTJZWlp5WUZCRzNtUFBVSEZ2aklac0hhZkh2UDBuR0R0NTFlcGl0bVhMR1pqd0NWYWVGZ1hRZGVqWjhDdmg0bFcwdFNabVFNWXJWNU1sUHQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
