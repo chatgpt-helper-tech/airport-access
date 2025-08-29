@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 15:18:01（北京时间）**
+🕒 更新时间：**2025年08月29日 15:24:14（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Can the 800-year-old Druids Oak help save tomorrow's forests? | [阅读全文](https://www.bbc.com/news/articles/cx2xz8r7egpo?at_medium=RSS&at_campaign=rss) |
 | 'India put us on the boat like captives - then threw us in the sea' | [阅读全文](https://www.bbc.com/news/articles/c4g0p0522zeo?at_medium=RSS&at_campaign=rss) |
 | White House names RFK Jr deputy as replacement CDC director | [阅读全文](https://www.bbc.com/news/articles/cwy3zjxy3dwo?at_medium=RSS&at_campaign=rss) |
-| Israel struck Gaza's Nasser Hospital four times, analysis finds | [阅读全文](https://www.bbc.com/news/articles/cly6lxn1l4po?at_medium=RSS&at_campaign=rss) |
+| Israel struck Gaza's Nasser hospital four times, BBC finds | [阅读全文](https://www.bbc.com/news/articles/cly6lxn1l4po?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
