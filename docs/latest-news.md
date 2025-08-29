@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 05:33:39（北京时间）**
+🕒 更新时间：**2025年08月30日 05:40:07（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Alabama town's first Black mayor reelected 4 years after he says White residents locked him out of office - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNaktGRjNPRHJLZF9TazdmYW5SNnp0a1h6ZWpiMDdPS2ZTeEFPYmdoSkN4aG1FQmdrMEI0a2JlbTVVcTVIOGpjSTlSLVhPLVotYm50QUhjZjQzeXFCUVZkZW9Kb0N2dURsN3N5YTByUHA4dGJNaVplay1WYkJnWjJldF9lTFl2NmFxWm800gGQAUFVX3lxTFBaSjN3RENQSnBQWGlmYzFlUTRvYnd6ZzZvcVRTZHZWaERNT1VLTGRyY19WaENJZS1SV29NS2s3R0ltUVhNazQ5QWhDNDdqVFo0Y1Q1ZW5QRVhaY0VLVTVJQWJCR2pTMXE2NWRPUm9ub29jbXBGakJkT3BjMHBCUk9lNHVKLWJZZFBhbGFjNEgzRA?oc=5) |
 | Arrest made in connection with violent robbery of Macklemore's Seattle home - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQa2o2SHF6eEdfazlmbmhKenJIaWxPaE9MT1hWemNrOHFZODVlS2RrOEFZVHhoZU1LVFVDc0VkMjBXeVRKM2IwNzlqY1g5X3NlVUFsOVVvTUtlV0tOcmd6WUZVOERlOW1fWGVsSzUyMjVzT1QtVXNIQVZLNGVYLVdhSWllcVNBNlBib1JGOGNFaDdoaTNjTlHSAVZBVV95cUxQQV91QjgwVGdQamRZYnZxeGRKTVJ2anZOdnQ3Mlo2ekM4WlgtQS1xZWpOUGR6OHFoR2ZoNG9PZ2h0NlJsZ18zZzhSZEFiN1hnUGVGWDRTQQ?oc=5) |
 | Trump admin plans immigration enforcement surge in Boston - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQOVhPRjUxOU1DaUFqY0ZvVGxGcGFNRlM2bjdoSUhWUEQ0cEhJd2EyNWc2TmNMT3ZvcVFPdmZSbmJzQzhadHFkaGxfNW45Uy1RNWJrRjZaanFZdG1IaVo0RUVqZFVvekFPWjFYUjJmTkNMUzNVQ0ZudlBHdWpxYVN6aVNDdE1laENNM0VrT0dQWmV2V1BCY0dWR3JIX1FqYXBVMUVQVFFod0tvdUk?oc=5) |
-| Appeals court blocks Trump administration from ending legal protections for 600,000 Venezuelans - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNc05BS0dOdERnOTYtaGMwdGhTbHJIVDQtRzBUUnV1Wjc0SGxBV1lXUTZHOGJtVVhMZFlHVWdKTjdjQXNyYXhjaDdwZXpUSmNJaDhVaTJmQ3p2b1NrbWFDZjBKVFZ6YlpRUFE5M2QySjF6aWNEWWlyd0ZEcUFVVmJGRTkxcw?oc=5) |
+| Appeals court blocks Trump administration from ending legal protections for 600,000 Venezuelans - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQckQxT3dDdE93bktKLUhNcTAxVjdxTzlXb1RTNnRDc0JxQ1RlRi1BUl9MeUtiazdrRktpRTJMSUlhMkJkRjZWRDNoSElHWUNDYXIwSDBnTFVvX1VKSi1CLWtxLXBxdmtmaGtGdi1NYWtscFl1RXJsQWhTM3FleWlVNUVCekVZQkM1R3QxOFpfMDNLZ1BJUkVUTTkxaWJ1ZGlBOVIta1BmOWlPUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
