@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 05:16:20（北京时间）**
+🕒 更新时间：**2025年08月30日 05:24:58（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Witnesses describe terror and courage during the Minneapolis school shooting - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNeHpXbGZ6VjgwMnBYbVZHZTJHeWw0X0FXRnFuem5EUENIM20yR1RNbGhUYUFsaFNRSlRzX3h3RUNqdWg0Y0VWb0ZseGhITjlFNDZzaHJBU0RrcGhOaVhRUkFFZVR2bWFacTdEM2RxTHFkSHJsaFdFUTdSUzFjVzBXZGJ1bG9oVWlNNFJMLUZza1VuREdraUZZbXBNUzRhWnNZbVVZ?oc=5) |
-| Trump moves to cut $5 billion in foreign aid, circumventing Congress - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE56SmgtaXlKMFlEYXVMdlEwWFoxWC05cVNOa0UtRjZ3UVQ4dlVGeVBTU3g1WWdoQWtRbE0zbEd0OE5vZ2VzbTZqaEk0SWx0V1M3Z1dWeldqR2VKZ9IBX0FVX3lxTFBNbmlpX0EzRkZhcnlObzIwOERXWWVKc1QydE1xRGJnQzF6WGFFR1VPeGVRU0FJdkNFb1cyY3lyMzh5Y0xnNlhiT2d1SVZ4dEN0U3Zpdm9rS1Z2cm9BazJJ?oc=5) |
+| Trump bypasses Congress to cancel nearly $5 billion in foreign aid - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQbC12anNMSkVwdVBxMEphc3ZNOW5iaWZtdmVaUzZkOEhIVF82dmwwaWhqSUdCZzJCbWk4c1ljRjJlOC04NF8yVVM5eFdHbldwcUdtRWY2N1M0d25VUTRZM3pNajd3bWJuOEpicFJBZV80S3lHU05hV0IwT29BaTZyenM3QVVoOFVTa01HMw?oc=5) |
 | Trump ends ex-Vice President Harris' Secret Service protection early after Biden had extended it - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOT2FuNks3bmdzWGdnUGd0NEVvNi1vNXNEOHRvSEdPMjZZOXN4RDNmYWRsYlZVSDAyaGJHczlNVHRIRXpYTXlJd21LODh6RE1BSnpReF9tSFRjZF9UNnJwSmZMMWIxRjhPYXM2NW1HUVBvNlhiUXRuT0pReEw0dXl5SVl5NXdfLXlGd1pSekZNOUJlYlFmUldRdk5qSG4tVWc?oc=5) |
 | Trump administration faces rare bipartisan pushback for firing CDC director - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQdC1yMTFkZDNicnZPSkhicUZGN0pQSGFfeE9KTG1WcW00djQzN0JZSDhyU0poNEJIZEdINmluQUV4VFVPeFVHRnJlVDZrS0FOLWM5N0RpV3lNSlp5VFk1T3NVSXI0bFZtYTcyYUNuY2x2b1ZPR0U0dU1KLThNajUyTWVoekktWTJtNXRPN09nOUU?oc=5) |
 | Katrina inspired a $3B wetlands rebuilding project. Louisiana just killed it. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxOYmtaeVVUTGJPWElFb0I0ZXl2NGZWNG5tMjEwNDYyTmE1akRNekJQbl9mSEhOLW1hX09vM2dhWl83WVEtTy1ONVVzTHdlNjhCaHFFWWN1aFFMUDdmSUFUeXpOS09hc29qTk4yWDRweHhXLUtZbzFRM2hMc3o1VzR0dXBYLU1JQ1ZyQ211SlE3ZTJpZURLbDdyYjQydmlQaFd0Sm16UEloRG9NZTNlck1JNGtnNjRuR2FiRHU5dDBXWjZidw?oc=5) |
