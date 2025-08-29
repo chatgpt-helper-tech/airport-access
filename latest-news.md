@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 02:09:31（北京时间）**
+🕒 更新时间：**2025年08月30日 02:17:13（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Residents of Chicago's most violent block don't want Trump to send the National Guard - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxOdnFtSGJ6S0E2YlZ5YU5DYldxZi1tdEIxeVlEWENlRG5qaE44V3Vhck5MMFRZX0Z1Ym5vT282SHdHczdKeXpoSEdHaENqcEhYTldkTTY0RVA0WktvUk1GRzNXeFNVdFFMLS1idWlhdEVPODdqcVNjS0F2emNTZ2FwQW1YMVVyYVl2OTIxMTN2eDZJdFo2N3UyRXR6YmJzVVRybWpHZ1lMak5YYjFGU0g3ZDdjQWs5OE1IMjJGano4RFA4YmdpN0syaGJEb1dCY1k?oc=5) |
 | Iowa Sen. Joni Ernst won’t seek reelection to third term, sources tell CNN - CNN | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE85cmUxenl0eHc5U1R3SFU5TlNtenhnZ3p3alRnVUM4T2FPUEVLZExzUkNBMkhtemRFT2pfdGxOUmNack5zMkRXS0MwVGlmTGlUVkN1Tld2RjlIMGhyVWJjNjY5NnlsSVVsTVZQc21Yaw?oc=5) |
 | Trump administration faces rare bipartisan pushback for firing CDC director - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQdC1yMTFkZDNicnZPSkhicUZGN0pQSGFfeE9KTG1WcW00djQzN0JZSDhyU0poNEJIZEdINmluQUV4VFVPeFVHRnJlVDZrS0FOLWM5N0RpV3lNSlp5VFk1T3NVSXI0bFZtYTcyYUNuY2x2b1ZPR0U0dU1KLThNajUyTWVoekktWTJtNXRPN09nOUU?oc=5) |
-| New trial ordered for 3 Memphis ex-officers in connection with death of Tyre Nichols - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPakUwQ2h3WG4zckJEcHhzSm9JZ0x4UlpBSUgxMC1KSTltcVFMM3Z3dU1lRG9fc0kzaFdwNW1Ec1diUU4zZzgwSlJvOThzU3RvVnpmZDhzYy1KWDd6bmFxRjJtc05UWnBsbWNOdno0Qk5BWkxwRk90dVptbGctQjBscU5ORWo?oc=5) |
+| New trial ordered for 3 Memphis ex-officers in connection with the beating death of Tyre Nichols - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOVUFYcm16b2thNjNQYWtyTlVIMkVBdWV6cFp0UnNOdENlWkxfZlZWbkpuR3pKcHhZd2JEY2dxeXVvcjYwbHgwSXpMQlhoN0JNdG42S2NqbWRPNFFoSnNueF9ad2JZb18zT3Z2NUtBRDNnTzNialBxMzctTFNuQVdnem1qc3RWQXpQc3VwQ2tuTVVDVmpNR1cwTUM3eTIwaFdh?oc=5) |
 | Abbott Signs Gerrymandered Map as Texas G.O.P. Moves Further Right - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNS1JSTUFpR0l5TVBhN3liOWRFc2tkM3hISXZrcXFRS1g0RFo0ekRaQkNBcnpfOFZnalRZT2RiNmhCWUZjWllWeGhYX2lEbjZhWGN3NmFZdUgyWWpBaXBQNmJDLThJNlE5NGM2bTBfcHFTR0EwWTlSQXc4X09OSlNxV3FKNzBuUEFtVno3eVFBT1dvVW1jSzZrc1lR?oc=5) |
 
 ---
