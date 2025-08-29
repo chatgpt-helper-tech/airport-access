@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 11:25:38（北京时间）**
+🕒 更新时间：**2025年08月29日 11:33:41（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Border Patrol agents arrest fire crew members at Washington wildfire - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPY2xIQW9HejVnUWtacmxOQlc0U1BwVUU3ZEV2NnpNTVBGYS01TWFXUEs2SnBfNlpiemxFT0ZHNjUyMkJfSUJmeC1qQng3Y2diX0MyamE4SVJJYlEzRV82Z0ZDd2FET3ZqN3pOLTlCaE9RV0w4N3dBdVotOFkyUUNmSURvdU9VS2pFUVMtbkVGcnlsOUwtRWtLUlItWEtqRkZJTFp6RkJxSFhvdVXSAVZBVV95cUxPQVNtdzhNWXVmUWdCeUx1ZmZ4bGVob2w0QV9QNHJzb19CMTdNRFQ4OG1XX1FDLWRsejljM3Fjb0piVWxZRld6SjNaQ1BCR0loZ1ZkUl91Zw?oc=5) |
 | Officers found guilty in Tyre Nicholas case will have new trial - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE52VDNrYWRERU9IU1lweHQwZVh2UXNWekVTWDJkbFJYdjRyY2tHeXdTVWQzNkVKTGdYcmUwNVZvWUphcFdocGF5QV8yU3BycHluR2FnYWo0VEduUdIBX0FVX3lxTFAyUlI4NnVLQXo1eXItOEdVNWpKMWd3dFl6MWVhZmdPQU83ZlFlRVJjNXBPMUpleVJ4MDBfYUdZQ2ktQjktakg5dlFqUmV3LVFHVXQzVzJxQVY3ZTltOVZj?oc=5) |
 | Abrego Garcia's lawyers ask judge to order Trump administration to stop making inflammatory comments about him - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPMnpCSWQtZ1pyUG1yS0U4bjlva1piRW5pSmxUWEVodHQteXh2YmdvVUJhdWgybks4eXFEaTVMUjZkQlN1djB1dGlBVkx1WkxqSnc2MHl6SEpjd3pTdnRYY0V6RHY0aFJKck1aMW9YN014MGhlR3N4VU5ualYtSVRUcGNHOWJ0ZmVpS21LdVhQMnVGYVZmMFhWd3FkWEpGYS1NclVmYXFoM1HSAa4BQVVfeXFMTkhUbkdPdDB5akpIbG11N3ppS3RlMWw4TFoxV3BOY2pwTlpBbkt0SXlKYzFyU1ROdGJtX3FQZGFJYnY1YjVaTVZYYS1VbmowNzRyelJUOTBsLVY2VFYtS3BuVDgxZ1hieEU0czR1UFA2bXBPVVdqMVA1VndjREN2bGo5aFB3azZhMmVHTTcySFNGN1NTSURKbUh5OVBFcWltZHNVUHd1REZLYmo4TU53?oc=5) |
-| Alleged DC sandwich thrower charged with a misdemeanor after grand jury rejects felony indictment - CNN | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOTjhObTdFVjVOUmJfUVJ4ZlRneFhwYmtCVi1WMnBNcUFGaC1LTV9EZEJrX3ZzMVdtS3hrdUNTQVR0R1BkaFFZT0pQb3ZaOFpfU1cwdF90eFJjT1dsbUZUaFZhbkl0bjVLM1FjSmMxWFdIeXBRdnFhQ1d0dnN3bTVHcmM5S0xuVjVsNmFXZzRtWjFPeGYxME9UaDFZYWJFVWpiY21rN2hDcG5sQjhT?oc=5) |
+| DC man seen throwing sandwich at agent charged with misdemeanor after grand jury declines indictment - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPZkwzSnh4NEJaYlJZY2Uxb0ItX2dBZXhsTGlTRWg3dU1SSGY1aUIwRDhxS21Vejg2WDdjTk5vT1plQXVVTHRvTncxb2VoOVVjZHNmdVNSbGgwNHMxLVJBRXc3bi10RFVGbGZMcnE0eEkxekdBOUx5MWR1d2FGNUVGVmZkWjNNWV9Cc0pQN0R2Z1BWby1wb2toaE1iR181c1dtcjVJdGVXeXRCQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
