@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 05:24:58（北京时间）**
+🕒 更新时间：**2025年08月30日 05:33:39（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Witnesses describe terror and courage during the Minneapolis school shooting - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNeHpXbGZ6VjgwMnBYbVZHZTJHeWw0X0FXRnFuem5EUENIM20yR1RNbGhUYUFsaFNRSlRzX3h3RUNqdWg0Y0VWb0ZseGhITjlFNDZzaHJBU0RrcGhOaVhRUkFFZVR2bWFacTdEM2RxTHFkSHJsaFdFUTdSUzFjVzBXZGJ1bG9oVWlNNFJMLUZza1VuREdraUZZbXBNUzRhWnNZbVVZ?oc=5) |
+| 'There is no message': The search for ideological motives in the Minneapolis shooting - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9wS1pLeDhTZDlEZm9YTlZocEhnM0R5cGt1Z3BOV3dCNWIyOFNQdVBSTFdfcEZUYjNzY3hfd001a1dTRFZ1TUpIZGdSVVk4MWNWNUs3M1BnYWVmSFQ0RzZUZFlLMGNUOFNGX2NJaWszRkxXNWNXQjViT21BTDE?oc=5) |
 | Trump bypasses Congress to cancel nearly $5 billion in foreign aid - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQbC12anNMSkVwdVBxMEphc3ZNOW5iaWZtdmVaUzZkOEhIVF82dmwwaWhqSUdCZzJCbWk4c1ljRjJlOC04NF8yVVM5eFdHbldwcUdtRWY2N1M0d25VUTRZM3pNajd3bWJuOEpicFJBZV80S3lHU05hV0IwT29BaTZyenM3QVVoOFVTa01HMw?oc=5) |
 | Trump ends ex-Vice President Harris' Secret Service protection early after Biden had extended it - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOT2FuNks3bmdzWGdnUGd0NEVvNi1vNXNEOHRvSEdPMjZZOXN4RDNmYWRsYlZVSDAyaGJHczlNVHRIRXpYTXlJd21LODh6RE1BSnpReF9tSFRjZF9UNnJwSmZMMWIxRjhPYXM2NW1HUVBvNlhiUXRuT0pReEw0dXl5SVl5NXdfLXlGd1pSekZNOUJlYlFmUldRdk5qSG4tVWc?oc=5) |
 | Trump administration faces rare bipartisan pushback for firing CDC director - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQdC1yMTFkZDNicnZPSkhicUZGN0pQSGFfeE9KTG1WcW00djQzN0JZSDhyU0poNEJIZEdINmluQUV4VFVPeFVHRnJlVDZrS0FOLWM5N0RpV3lNSlp5VFk1T3NVSXI0bFZtYTcyYUNuY2x2b1ZPR0U0dU1KLThNajUyTWVoekktWTJtNXRPN09nOUU?oc=5) |
