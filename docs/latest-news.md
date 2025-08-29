@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 02:40:42（北京时间）**
+🕒 更新时间：**2025年08月30日 02:48:27（北京时间）**
 
 ---
 
@@ -8,6 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Asylum seekers to stay at Epping hotel after government wins appeal | [阅读全文](https://www.bbc.com/news/articles/c8e1zd98k9no?at_medium=RSS&at_campaign=rss) |
 | Ruling won't feel like much of a victory at Home Office | [阅读全文](https://www.bbc.com/news/articles/c7vlpdqeg4qo?at_medium=RSS&at_campaign=rss) |
 | Zelensky rejects proposals for buffer zone to end Ukraine war | [阅读全文](https://www.bbc.com/news/articles/c04r0z1pr25o?at_medium=RSS&at_campaign=rss) |
 | US to stop Palestinians attending UN meeting in New York | [阅读全文](https://www.bbc.com/news/articles/cjdym32z9v7o?at_medium=RSS&at_campaign=rss) |
@@ -17,7 +18,6 @@
 | UK bank share prices tumble after calls for tax on profits | [阅读全文](https://www.bbc.com/news/articles/cm2v3700pvqo?at_medium=RSS&at_campaign=rss) |
 | Body of Israeli hostage recovered in Gaza, IDF says | [阅读全文](https://www.bbc.com/news/articles/crlzyne9jl2o?at_medium=RSS&at_campaign=rss) |
 | How a leaked phone call derailed the Thai PM's career - and the Shinawatra dynasty | [阅读全文](https://www.bbc.com/news/articles/cdrkvy2pn87o?at_medium=RSS&at_campaign=rss) |
-| Court documents shed new light on UK-Apple row over user data | [阅读全文](https://www.bbc.com/news/articles/cx293qg7z39o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | Trump administration faces rare bipartisan pushback for firing CDC director - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQdC1yMTFkZDNicnZPSkhicUZGN0pQSGFfeE9KTG1WcW00djQzN0JZSDhyU0poNEJIZEdINmluQUV4VFVPeFVHRnJlVDZrS0FOLWM5N0RpV3lNSlp5VFk1T3NVSXI0bFZtYTcyYUNuY2x2b1ZPR0U0dU1KLThNajUyTWVoekktWTJtNXRPN09nOUU?oc=5) |
 | Iowa Sen. Joni Ernst won’t seek reelection to third term, sources tell CNN - CNN | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE85cmUxenl0eHc5U1R3SFU5TlNtenhnZ3p3alRnVUM4T2FPUEVLZExzUkNBMkhtemRFT2pfdGxOUmNack5zMkRXS0MwVGlmTGlUVkN1Tld2RjlIMGhyVWJjNjY5NnlsSVVsTVZQc21Yaw?oc=5) |
 | Troops Could Hurt Recovery Downtown — While Ignoring South, West Sides, Chicagoans Say - Block Club Chicago | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxPVUpPRjE1eTZhU3JyUU9sVi1UcVJJT1lLeUczRmJ2SG9ERGdYMHhlNE50bjdodF9kVFlIWHVmbG92WHZPS3YybkdmeVRNR0Ztc1BsLTFydk1sUmdtRDRXMFRtV0JWWldpUDRDSEQ3azE0cWxqWUtISlItd2U0VFlBTVRFWWFleG81THRvU19NN3c5U0l4dE5PYzNGdjFhenNyR1Vfa3lMNEotSUhZV2xaLTRUSDd6S2FYekZtaQ?oc=5) |
-| Alabama Man Once Barred From Office by Rivals Is Elected Mayor - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQSkFlaC10VFVtSDltakVOZThNWkh2bUllV1RERy12Z3NhUGN1cXBGaF9JYkkzNjU3bTVVTi0yQVRyeUxxNHZrZ3VrRlFTODFZbENWclVfTkx1SnBfV1EwRWlCbFBoUVljMGdwMXlmdFJMLVFsOXNFSWVlTVRCMkVNMTBIRFBLZGpKRlZJSlVKakFDQWs?oc=5) |
 | Democrats zero in on a red state in the redistricting battle - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxORW44UnM5RThwSHVqc09fbUNoNW1xaVFfb2NXeDBXQ0Q5TGc2RmstTmo5NFp1cmVmdE9JWnBUR3NCQnZ3dlhHWE1uQk5hWlJGbXNJQUozV0U3VGpTYzcwWXpGTXBtYktLT0lEc1VGZDY0dnJNRFZZOWJyc3NvbXg4Y1lBdDZuTjZoR1hfNkRaWEduS2xJb0FUT3dB?oc=5) |
+| Moment feds descend on Minneapolis shooter Robin Westman mom’s Florida home before she hires criminal defense attorney - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMi-gFBVV95cUxPYTRrTDFmOURHNThSZTBPaU0xTEFPY0t2UGl2eHBVQTJGT0p5R3pLSFBOTjhybFZwcXBTd0t0c0NTQTZ1bElsdzlpUlp3bmJTWTJRQTJuZXZqOWlmQmFTLUlSbjlKS29hcUxpU3hfd0djVDdkcDNtZVdUd1NjSW9Lc0VDWWNPUUM4S043c2ZkZTVNMTRDbkZUUEItOEhyWldnaUdOemlnbUctVGVlcndZWUd4UEtlRER5MHVOdUtmOHlzT0h5b0hQV2dESUNZTmREcy11LWNSTHB6UkZOd2tKZmlocmg3dE1WNGJETXozTXoyNmFLVGQxV0V3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
