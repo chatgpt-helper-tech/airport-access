@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 16:09:18（北京时间）**
+🕒 更新时间：**2025年08月29日 16:16:26（北京时间）**
 
 ---
 
@@ -10,14 +10,14 @@
 |--------|-------------|
 | Children to be offered chickenpox vaccine on NHS | [阅读全文](https://www.bbc.com/news/articles/c860n445vyxo?at_medium=RSS&at_campaign=rss) |
 | Ministers didn't do cost review of council mergers | [阅读全文](https://www.bbc.com/news/articles/cj9wxnlnrxdo?at_medium=RSS&at_campaign=rss) |
-| Minneapolis school attacker 'obsessed with idea of killing children', officials say | [阅读全文](https://www.bbc.com/news/articles/c4g0lyny7ydo?at_medium=RSS&at_campaign=rss) |
-| MSP locked out of Scottish Parliament after claims he placed secret camera in toilet | [阅读全文](https://www.bbc.com/news/articles/c9wy40rxrvxo?at_medium=RSS&at_campaign=rss) |
 | 'India put us on the boat like captives - then threw us in the sea' | [阅读全文](https://www.bbc.com/news/articles/c4g0p0522zeo?at_medium=RSS&at_campaign=rss) |
+| MSP locked out of Scottish Parliament after claims he placed secret camera in toilet | [阅读全文](https://www.bbc.com/news/articles/c9wy40rxrvxo?at_medium=RSS&at_campaign=rss) |
+| Minneapolis school attacker 'obsessed with idea of killing children', officials say | [阅读全文](https://www.bbc.com/news/articles/c4g0lyny7ydo?at_medium=RSS&at_campaign=rss) |
 | New taxes on small US parcels could lead to price hikes, UK firms warn | [阅读全文](https://www.bbc.com/news/articles/cvg3yjnq5zeo?at_medium=RSS&at_campaign=rss) |
 | Can the 800-year-old Druids Oak help save tomorrow's forests? | [阅读全文](https://www.bbc.com/news/articles/cx2xz8r7egpo?at_medium=RSS&at_campaign=rss) |
 | European leaders outraged after Russian strikes kill 23 and damage EU's HQ | [阅读全文](https://www.bbc.com/news/articles/cvg3y7m2gz0o?at_medium=RSS&at_campaign=rss) |
 | Israel struck Gaza's Nasser hospital four times, BBC finds | [阅读全文](https://www.bbc.com/news/articles/cly6lxn1l4po?at_medium=RSS&at_campaign=rss) |
-| Ostapenko 'no education' comments terrible - Osaka | [阅读全文](https://www.bbc.com/sport/tennis/articles/c707lv5vxxdo?at_medium=RSS&at_campaign=rss) |
+| 'Just terrible': Osaka hits out at Ostapenko over tennis star's US Open row | [阅读全文](https://www.bbc.com/sport/tennis/articles/c707lv5vxxdo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
