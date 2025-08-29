@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 22:48:27（北京时间）**
+🕒 更新时间：**2025年08月29日 22:57:17（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | 2 Weeks, 1,000 Arrests: How a Surge of Feds Changed D.C. Policing - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNckRsR0NhNjJYTnJLTlNsaWhMdXhmNnZXY1RFR3RqVFkxMjhLeWVjTUJQZnllY2hpNDhkM0h2ZHpNbS04Yi1xMDl0MUhsT0t3TU0zUXYtN1VveVdNZXh1bkgxUGFKYXdnTFdqbW9FdGhtNm1hRjRvbkNlRURWbFZ2eG9SUFY0Sk5hckNQTnFVdw?oc=5) |
 | Democrats zero in on a red state in the redistricting battle - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxORW44UnM5RThwSHVqc09fbUNoNW1xaVFfb2NXeDBXQ0Q5TGc2RmstTmo5NFp1cmVmdE9JWnBUR3NCQnZ3dlhHWE1uQk5hWlJGbXNJQUozV0U3VGpTYzcwWXpGTXBtYktLT0lEc1VGZDY0dnJNRFZZOWJyc3NvbXg4Y1lBdDZuTjZoR1hfNkRaWEduS2xJb0FUT3dB?oc=5) |
 | ‘His inexperience shines through’: Steve Witkoff struggles to manage Russia as Trump peace envoy - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNTTFqaDMtekp2elZtT20xVVFFVFdZSWNSVXBCSDlUNmtoak9lTk81QnZ2UndqQTJZWlp5WUZCRzNtUFBVSEZ2aklac0hhZkh2UDBuR0R0NTFlcGl0bVhMR1pqd0NWYWVGZ1hRZGVqWjhDdmg0bFcwdFNabVFNWXJWNU1sUHQ?oc=5) |
-| Officers found guilty in Tyre Nicholas case will have new trial - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE52VDNrYWRERU9IU1lweHQwZVh2UXNWekVTWDJkbFJYdjRyY2tHeXdTVWQzNkVKTGdYcmUwNVZvWUphcFdocGF5QV8yU3BycHluR2FnYWo0VEduUdIBX0FVX3lxTFAyUlI4NnVLQXo1eXItOEdVNWpKMWd3dFl6MWVhZmdPQU83ZlFlRVJjNXBPMUpleVJ4MDBfYUdZQ2ktQjktakg5dlFqUmV3LVFHVXQzVzJxQVY3ZTltOVZj?oc=5) |
+| Residents of Chicago's most violent block don't want Trump to send the National Guard - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxOdnFtSGJ6S0E2YlZ5YU5DYldxZi1tdEIxeVlEWENlRG5qaE44V3Vhck5MMFRZX0Z1Ym5vT282SHdHczdKeXpoSEdHaENqcEhYTldkTTY0RVA0WktvUk1GRzNXeFNVdFFMLS1idWlhdEVPODdqcVNjS0F2emNTZ2FwQW1YMVVyYVl2OTIxMTN2eDZJdFo2N3UyRXR6YmJzVVRybWpHZ1lMak5YYjFGU0g3ZDdjQWs5OE1IMjJGano4RFA4YmdpN0syaGJEb1dCY1k?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
