@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 08:01:36（北京时间）**
+🕒 更新时间：**2025年08月29日 08:09:35（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | Minneapolis school attacker 'obsessed with idea of killing children', officials say | [阅读全文](https://www.bbc.com/news/articles/c4g0lyny7ydo?at_medium=RSS&at_campaign=rss) |
 | European leaders outraged after Russian strikes kill 23 and damage EU's HQ | [阅读全文](https://www.bbc.com/news/articles/cvg3y7m2gz0o?at_medium=RSS&at_campaign=rss) |
 | Lives torn apart in Kyiv after Russia's heaviest bombardment for weeks | [阅读全文](https://www.bbc.com/news/articles/cj3ld2r2206o?at_medium=RSS&at_campaign=rss) |
+| Children offered chickenpox vaccine on NHS | [阅读全文](https://www.bbc.com/news/articles/c860n445vyxo?at_medium=RSS&at_campaign=rss) |
 | Ministers didn't do cost review of council mergers | [阅读全文](https://www.bbc.com/news/articles/cj9wxnlnrxdo?at_medium=RSS&at_campaign=rss) |
-| Price of weight loss drug Mounjaro to be discounted in UK pharmacies | [阅读全文](https://www.bbc.com/news/articles/cvg3ykg4jrro?at_medium=RSS&at_campaign=rss) |
 | MSP locked out of Scottish Parliament after toilet camera claims | [阅读全文](https://www.bbc.com/news/articles/c9wy40rxrvxo?at_medium=RSS&at_campaign=rss) |
 | Man Utd back Amorim as Rooney says club is 'broken' | [阅读全文](https://www.bbc.com/sport/football/articles/c3v3470zl3lo?at_medium=RSS&at_campaign=rss) |
+| Price of weight loss drug Mounjaro to be discounted in UK pharmacies | [阅读全文](https://www.bbc.com/news/articles/cvg3ykg4jrro?at_medium=RSS&at_campaign=rss) |
 | We're in the dark about future, says asylum seeker in Epping hotel | [阅读全文](https://www.bbc.com/news/articles/cdxy0p9jx1qo?at_medium=RSS&at_campaign=rss) |
 | US Fed Governor Lisa Cook sues Trump over his attempt to fire her | [阅读全文](https://www.bbc.com/news/articles/c1dxl6ry4y3o?at_medium=RSS&at_campaign=rss) |
-| British Tour de France winner Chris Froome airlifted to hospital after 'serious' crash | [阅读全文](https://www.bbc.com/sport/cycling/articles/c4glv348xjwo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | D.C. Democrats rebuke Mayor Muriel Bowser's comments that Trump's surge reduced crime - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNYlhkZGlkUDJDcnVCcEllSTFZTjVCRWtnZjU5d2FtTjFyTFF3UnhqVEZ5WnVDZ3RUdk9tTC1COFd3eXhDVEd3SmdFTnpYNnFlbGQxcDc0Y25XUWZKanZLZmZQcmxnZnZOdTJhMFlZVXhmSW8tY0FKbnk2M1EzZTltaGV6cXVoM1k4eVl3YWR2Sm9rRUg3UjlVWjljenNJSmtuTHZqZno4cFNXeU5uc1dLR19hSk81cDR0d1ZFb2tWa0pMQ2FuU045YlR6U2hzVDd50gFWQVVfeXFMUHFCUkNfRzZPWU1GdmlSUEZuakZhYi1wdzRVNHAxRDMycnI3ZHRidVhxRTAwb2tIanY5Z3Fsb2oweGY3OXNwbVRHb3dDZ0V0YV9OX0k5Q0E?oc=5) |
 | Mississippi Museum Acquires Gun Linked to Emmett Till’s Murder - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNNTNIQ0pJb29MUFBvWHhqZUhZNWZWNGt3bUY5R1JuZW9QamoxNzdXaUUxQTZLaXdhNmphUmVUOTFqb2o4cnV6ZnA4N283YllPZlpBbmlGNFFzRV9FbzRHZDRPeGpUTzJ5bVV2eXhseXM0Tnc1UEtaTS0zOEZQc1VVcy13UQ?oc=5) |
 | ‘Grasping for straws’: Europe floats Ukraine-Russia buffer zone in push for peace - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPN2ZLQmdZdFExZ3lqbjBqRG80RVNXM29hQldVWllwc01mZWsxazc2MXpRZjV0LXBLS2paOWtNcUY1YXpwZ0hWVm9JN3ZhQW13QXBwbTd4VzU4NkJFWWU0VXptS1QxVElJd1ZRLWxEMVNIelNpaUVRTVB5N2NlMEg4eE1aTlF4SFFJUnFraVh1cHNodjg0VWc1blV3?oc=5) |
-| US Air Force to provide military funeral honors for rioter killed on January 6 - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFB0endWTU4zODM1RmdpQm9MVlJsUUJjS09LU3plMnI0TmxfazJMOTR2UEQ1ZE10bjNxclB4cVNZUnVDOS1qUUVDWUhrZGF0RlZ1TWw2ak5PUzhvWkhCbW5wVWZhTWFORU10UFVLay1faWpwVG1wbFpSMUJ0UVQ5TTA?oc=5) |
+| E.U. furious as deadly Russian attack damages its Kyiv offices - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQV1NiY1lOaHZ6RmdoQU51U1hHX0czai1EN19ValloOVptaVFkRHBJai0tYkJULVl0aWFKVmVjUWFyMFk3LXlnNms2UmhJTnJMY2RyQkxNcm53OTRFYk9EMUROYUhXMGtGQl9DNWtPQ2N6bnJEdDJuU1dyM2RBV29CbVVKWWRsQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
