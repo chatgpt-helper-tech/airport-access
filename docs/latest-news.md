@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 10:56:32（北京时间）**
+🕒 更新时间：**2025年08月29日 11:01:51（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Trump preparing major immigration enforcement operations in Chicago next week similar to LA, DHS sources say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOcDRiNDJQNXhnZlllZ1NXMUpMaVk1TU1HS0F5ZHBPQXprZW1rOVFuMXVtOGF6ZmEzY0pJRVRNamJNNzYyUkZTMUc2cnNKbDRxWlpjeWl1NVFNLUc1WE44aDZhQ0tXRUNzT1hjZDdPYVZVTXp2dDFNN2tjSF9WM2VSVjQxRTFqMlNmb2swcG9B?oc=5) |
 | The federal government is taking over D.C.'s Union Station. What does that mean? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNYXlCR3JZQmxGYy1DRTdtQTMyYlhJdWpsUTlQRVgtU0FHSXFveFd1bVc0eV9Rai10OWlDbkFiaXZmQ0JaeUFmX1VpN0tGel9EU2ktSDRWbEhmbU9rTWZTWkhHWUxBc2xDUUhIQUw4NV8yZnRBVUI2ZjJyaFRFU3NYREdDZklvNHM?oc=5) |
 | Florida taxpayers may lose $218M on ‘Alligator Alcatraz’ as judge orders shutdown - PBS | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQeWxNbU5lQ1M2V1QwUWRKbFB0VTlzdm9hYzJwNUdzbGRsdVRxMUhnb05DN0swd3RFM1dGTE5HNm1sVnhCMEE4X1ktMk1pRTdFYWhWZEhvX3VyMVY1YVJRVG0tS3dwNXdxaDBTNldQdkN3THZCemFXaE5MRXZaS0ZGUHNXS0dqOWk5MGs4Q1YwWVE0bVRVeTBKajBfSUhuQmpaX3dlc0R0STYtdUFXaHNQNnFiZ0HSAboBQVVfeXFMTklGRmFNaWE3Qmt3Z0dHSVd0aUo2QkluMmdZSl9abmZQazV5VjlMX2ZMTWdrc19WZXBlcDJ3d014OTVEaklqSlduTDZHNC04YlRXaWtoYWpZbzBNeTlvMXkzUUNBR0hnNEQ2bEZ1QWxQQ3lmUmFIbXYwb1g3VlYtOUVtVmJ3cjBDdVZ0NUg5Q1NjcXhndXJ3dGJJRXExRlVsTEJnOF80V3I0Tk5zZGhYTEpQdHBkNmZkMmpn?oc=5) |
-| Mexico suspends postal shipments to United States over tariff confusion - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQRFhtVGNlWElaMVNhWVdYNnRqWTF0eUR1V21tWW9NYk9RS0x5a3MzdmttdXJYNDZQRXJwYTNfaVZkeEdERElwcGxrY0hjaVFlQUlzVGJuc3F2MVlaS0dCRHlCd0ViNVBOSTJMX2ZvVzNfdlR0dW5uVW1LV2Z3cWFmWU44LVhoUFBtczExRVlTTVd3ZDZEWFg5VVVNYm9aWGluMUJXemZ3cTluaVZGYmNKYmpLYTdYNk0xenJfSjlB?oc=5) |
+| Federal judge says Kari Lake can't fire Voice of America director - NPR | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOc3pIdFotczFmRTNxaXk3c0ZFUExPM3hTRlhqTGdkVm4tVGNad3FkSE5EOUdKOGtkYXZzUWh0dy1YTDBWU3RMUkJERS1jZC1FRC1XNVY4d3BrR2xtSkt6cTk4ekJOODJrQUtzVzd5Nkl4aVhybHN2dGtyb1V6eTk1a0p6ZTZZYVJQcXl2VUp2aFVQbEhJbFdlVXc1alhYdw?oc=5) |
+| Border Patrol agents arrest fire crew members at Washington wildfire - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPY2xIQW9HejVnUWtacmxOQlc0U1BwVUU3ZEV2NnpNTVBGYS01TWFXUEs2SnBfNlpiemxFT0ZHNjUyMkJfSUJmeC1qQng3Y2diX0MyamE4SVJJYlEzRV82Z0ZDd2FET3ZqN3pOLTlCaE9RV0w4N3dBdVotOFkyUUNmSURvdU9VS2pFUVMtbkVGcnlsOUwtRWtLUlItWEtqRkZJTFp6RkJxSFhvdVXSAVZBVV95cUxPQVNtdzhNWXVmUWdCeUx1ZmZ4bGVob2w0QV9QNHJzb19CMTdNRFQ4OG1XX1FDLWRsejljM3Fjb0piVWxZRld6SjNaQ1BCR0loZ1ZkUl91Zw?oc=5) |
 | New trial for 3 Memphis ex-officers convicted in connection with the beating death of Tyre Nichols - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5fQjlKQnJvcHIxVGdyX2Q3b21PY0lORy1LaEJOaTdsWS1iMFVseXlRa3hnTHloTDNYaXpZTzRYLXlNanBDZnV3LWMyZ2FlNmJhb0MtMEhENm45azFNdFlTMkdxbFRjUDkwNGZIRktjbHFHWHVGX3FQSQ?oc=5) |
 | Kilmar Abrego Garcia asks for gag order against Bondi, Noem - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNTU9lX1FSZk44ZmQ4bDBwdFB4S05fTU1Lb3JiLXBGbHRJQzB2OElCRWdnUFVjQXNZeWx1MmpyQVlJN25VaExwWEZWbVVGb1VyUFBXSkN6dms3WXNLVW1CWHFuS1pxbndkQUU4Z2JLYzU2Vjc1N05rRWE1WFFCdjdhcVdPSHM3cHRuMndYc19WZThkMkR2SGc?oc=5) |
 | After failing to get felony indictment, feds charge DC sandwich thrower with a misdemeanor - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPT3VjZURtVVdmYTZ1S2wyMnpELUN2NmlMRWg0SVJzakZsc0RBSWtxSkwzdWx2TFlaZGZmcjlmSWJFVU5zUUtZcnJPMk1zYXJ1Y2t0eGw0UWREWVhCdXo2V3VCUG9DY0ktbFZKbThXaUJZeVR1RU5VQUJvNFpvc2lyOGRsSk5NQ3RaQVZNZ3lQQXQzbmVxOHhwU00xMTdpSzRqQTZ1MTRTYWRydw?oc=5) |
-| EU summons Russian envoy after strike damaged the bloc's delegation in Kyiv - Euronews.com | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxQTXZZX0dWQU1MS1g0aU5Tc2k2dFlwdDJKMFQzcWxueGROYllJZnVqVFhxRUoyWWFNRVVDR1J1Y1JTTHhuQTNtdUpZZ0c5c2NQVFl1SXNjOEZEUzNoNDdyZm53cFU2RGVsRE5zX0E0RndvNXc4SlYwYVlMV0Etd1JzaXFtQkZlVkx5ZWN0WTA4ZzREa1Fpd3ZTQWROUzFXZEl1d1pyNkVsUnU4cG9ZS3ZRcGc3aEpCZmppcXpmUw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
