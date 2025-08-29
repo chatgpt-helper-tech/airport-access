@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 21:00:05（北京时间）**
+🕒 更新时间：**2025年08月29日 21:08:12（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | How RFK Jr. could exploit the CDC's power vacuum - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiXEFVX3lxTFBVOTlmSjRESDBlMHl5dlpNekx2eHVJRE94T01oNFhuU0Q3SzZYODkyVzB4X3BwbkVTcTlrWnBzQUwwTkNJRXFvUDlwQlFsRzE2cFVFTk0xVUlTU2Fo?oc=5) |
-| Minneapolis grieves for young shooting victims as police investigate motive - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQaGVsVmd3UHZ2NzNqLW1BaGlqbWIwU2xPTWFMVkJEcENkeURYMUczYXZ1TFNKZTFQck5XMXdtT2FOU3hXZWdOczUtS21ZaXlvWEppR0JRZDhOLWNmQVhKemZlYng3dWxmaVB4OWs2N1A2d2NMSktENmYxblRvYmt4VjBoeW9fYU5LbjlaR0xwTFA5U1FJU2pGTFBBMkFaelhPNFcw?oc=5) |
 | Trump cancels Kamala Harris’ Secret Service detail that was extended by undisclosed Biden order - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxObUxSdUtsSVdvbmdyMDFwSm5JU2pmWjhLOS1pWGpUa2J4NTZjblhRajRJcER0b1BNVHNQZ0d5Zy1Fb0VKaHR1OHNvRm9sbkpSck5yVEp2WWM5d3JxMWxfQ25UMzNvTEpnLWNSOXlKeWhKZHRiYWVJRTZFdEp4MnBmZmcxZ3c4RmFILVdrRG9uNXRqLU0?oc=5) |
 | From devastation to determination: Hurricane Katrina's legacy in pictures - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNcTNyRm9YNW1JZWo3UWo2RHdXTmR5RFRmRll6ZUlPdlVYdzBQbkoyQzNYbVE2TEJVdVZFeXRXdVpzbVBEd21BYmZBSWJsQzhUTkZwOThHbEpzaTFmWlJMU2RXb3ExM1lnMzJ4a0FkMVItdDBhbF9wNmxfZFpWblZrMmxtYmljNGxpUnpMd2FSc1pxd3ZJT2hzMVFYUHJnWkdZNk1JdEVnaw?oc=5) |
+| Minneapolis grieves for young shooting victims as police investigate motive - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQaGVsVmd3UHZ2NzNqLW1BaGlqbWIwU2xPTWFMVkJEcENkeURYMUczYXZ1TFNKZTFQck5XMXdtT2FOU3hXZWdOczUtS21ZaXlvWEppR0JRZDhOLWNmQVhKemZlYng3dWxmaVB4OWs2N1A2d2NMSktENmYxblRvYmt4VjBoeW9fYU5LbjlaR0xwTFA5U1FJU2pGTFBBMkFaelhPNFcw?oc=5) |
 | 20 years after Katrina, a Mississippi town is still waiting on FEMA funding to rebuild - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQa1VfS0JUeVdFSmxRVjYwYlppal8tVndRVUxxMlEtRXRsbndzSDdBVGRCaUhmMUdZLUUxWThzZXdsYXlydnlTY2I2bFBBaVZ3YkVOcTltOHVubUxKMUxjdm9GRmhoUWNCMWpvWGs5Q29fX3V4dmVSSDZPUlhLeGU4QlZaZ9IBiAFBVV95cUxPamxBbTlwU0J4M0swX25sZnI5cWM5TjU0ZGtaZXVMUlN0elJVcTJJaXdwOEtKWVBGa3VwUjVlSnN4N0cySHZjaDU5eEdoa1NTUUo0Q0tiVWkzXzRZdUs2aHVZbUNLb3U5UWROTldQNGJoUkFjUFZrdDRETGQ5UVB3N2QzTk51akVf?oc=5) |
 | Thai court sacks PM Paetongtarn Shinawatra for ethics violation - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQNGtKbVMzSzBNUkIyN0Zia1M0NjN1RWxRRE1GYzh6UEk0dDZHbncyYU5tRTluRkludGxSalVoNWhlWnpzaWZXS25VV09sVUYzTW5ZSEktN1RQTTNrUHV2elZ0ZFBpTmlzVVlOdEFoTkptZmJUcXlJb2pjV1NiMVRMMTdVT1FwWjctMVF1X1JVZzlZUWZzdHU4Q0J4eXFWbVE4cVhJSllRTWN5N0Jlam0tT0Ezb2U?oc=5) |
 | 2 Weeks, 1,000 Arrests: How a Surge of Feds Changed D.C. Policing - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNckRsR0NhNjJYTnJLTlNsaWhMdXhmNnZXY1RFR3RqVFkxMjhLeWVjTUJQZnllY2hpNDhkM0h2ZHpNbS04Yi1xMDl0MUhsT0t3TU0zUXYtN1VveVdNZXh1bkgxUGFKYXdnTFdqbW9FdGhtNm1hRjRvbkNlRURWbFZ2eG9SUFY0Sk5hckNQTnFVdw?oc=5) |
