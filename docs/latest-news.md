@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 16:40:47（北京时间）**
+🕒 更新时间：**2025年08月29日 16:48:50（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Parents of children killed in Annunciation Catholic school shooting speak out - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOT2s0anZ6ZkxibEFTdkZKejMxQjRQZld6UmlrZG9kTEdwU2F0VmVHUjl5TWtnMkxLVTZ6SUtzRThkUV84VEJXQ0NoRk52RUhIWHo0NlVyVV9YeExkSFc3LVRCQ0lzSFBScXY0V0lyY3dQRnQ5SHd1cmNpOUJ3M1pBeTluTTFTMHPSAYwBQVVfeXFMTjZpM2J3NHd0Tkk3YUhEV2xXUTd3bXVXcXNkZUJqdk5kZ2dMcXdVbXhJdmRRZG9Hb1A2azZySUcyWVlQemRvWE9Zd2FhRXVXeEhlVGd4YS1tMENQdnpJbUh4M1RESWUtUlZ0NGtsUXNFdWhzRnVsRGlYSDBObTVQMnhoTnlINlBzZEwybmg?oc=5) |
 | White House taps top RFK Jr. deputy as acting CDC director - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPU3RlMUYzQzh6MzNTa0hPZnpRRVRudlJwZEE4RlZPV1JXOEVyUVVrVFVWZVJNN3VETmxBTnJ5WDBkcktCeFRFS2tHbHJHM3lVWkozUHlBQk1iaEdTQkc4am1fNmJIeXZxZjV5WTZ0eEhNYWRoczZWR2IzYWdzMjhyNw?oc=5) |
-| A Tariff Loophole on Cheap Imports Has Closed. How Will It Affect Shoppers? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9nUnkxTC1pQ0owMEJPTTRfNWVHcG9Hdm5oTUN5V0V3eEtHakh2SUVTajZCSEZaRXRpTlJrV0hiYWJjSGhmSmJQWFhQYVJfaXNCcWl1SGFSV2Z3X2dKN2ctWUFxZnZvTDA0aVA2N3N6cjZFdWR6OTNoNUFadXZFZw?oc=5) |
+| End of "de minimis" exemption means new tariffs on millions of packages - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBPQU9UTGIxbTBvdzV1VnBWS3JKX3U1OWtQYlUxXzZNaEE1Q1NJazI2R2M4NEdKdjNRQWRKRGVEWWgzbzJyczM1aVV4Ylc1WWthc29Icnl5Rlk0aUFHTlZ1WFY3akx6NWt3ZFMyMDlOR1pyTnp4a09kUg?oc=5) |
 | Firefighter from Oregon detained by Border Patrol while fighting wildfire - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOU0tzdVpEZ1FCamNEclpCc1lQYTNGODlJWDM2V3hUNHQtblM1M1NhRGpld0MwZjViUDZiZlVHcDZDcnQ2R29Ua1o2SWZfRmo1VmIxMWQ5VVhKdy1mR0cxNFV3VkN2d1NBejhVQjA3QnRYV0dZdGFRQTZ1VnJfSVloTGo0VkEyWUVKcWVKenJqSm9yYTRiMjljVnlKcFItWVljZGY5OWF2UQ?oc=5) |
 | The federal government is taking over D.C.'s Union Station. What does that mean? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNYXlCR3JZQmxGYy1DRTdtQTMyYlhJdWpsUTlQRVgtU0FHSXFveFd1bVc0eV9Rai10OWlDbkFiaXZmQ0JaeUFmX1VpN0tGel9EU2ktSDRWbEhmbU9rTWZTWkhHWUxBc2xDUUhIQUw4NV8yZnRBVUI2ZjJyaFRFU3NYREdDZklvNHM?oc=5) |
 | Florida taxpayers may lose $218M on ‘Alligator Alcatraz’ as judge orders shutdown - PBS | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQeWxNbU5lQ1M2V1QwUWRKbFB0VTlzdm9hYzJwNUdzbGRsdVRxMUhnb05DN0swd3RFM1dGTE5HNm1sVnhCMEE4X1ktMk1pRTdFYWhWZEhvX3VyMVY1YVJRVG0tS3dwNXdxaDBTNldQdkN3THZCemFXaE5MRXZaS0ZGUHNXS0dqOWk5MGs4Q1YwWVE0bVRVeTBKajBfSUhuQmpaX3dlc0R0STYtdUFXaHNQNnFiZ0HSAboBQVVfeXFMTklGRmFNaWE3Qmt3Z0dHSVd0aUo2QkluMmdZSl9abmZQazV5VjlMX2ZMTWdrc19WZXBlcDJ3d014OTVEaklqSlduTDZHNC04YlRXaWtoYWpZbzBNeTlvMXkzUUNBR0hnNEQ2bEZ1QWxQQ3lmUmFIbXYwb1g3VlYtOUVtVmJ3cjBDdVZ0NUg5Q1NjcXhndXJ3dGJJRXExRlVsTEJnOF80V3I0Tk5zZGhYTEpQdHBkNmZkMmpn?oc=5) |
