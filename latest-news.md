@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 17:24:57（北京时间）**
+🕒 更新时间：**2025年08月29日 17:33:44（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | Can the 800-year-old Druids Oak help save tomorrow's forests? | [阅读全文](https://www.bbc.com/news/articles/cx2xz8r7egpo?at_medium=RSS&at_campaign=rss) |
 | Kyiv in mourning after strikes as allies discuss military support | [阅读全文](https://www.bbc.com/news/articles/cy9834jp9qno?at_medium=RSS&at_campaign=rss) |
 | Minneapolis school attacker 'obsessed with idea of killing children', officials say | [阅读全文](https://www.bbc.com/news/articles/c4g0lyny7ydo?at_medium=RSS&at_campaign=rss) |
-| New footage shows Israel struck Gaza's Nasser Hospital four times | [阅读全文](https://www.bbc.com/news/articles/cly6lxn1l4po?at_medium=RSS&at_campaign=rss) |
 | 'Just terrible': Osaka hits out at Ostapenko over tennis star's US Open row | [阅读全文](https://www.bbc.com/sport/tennis/articles/c707lv5vxxdo?at_medium=RSS&at_campaign=rss) |
+| Home Office to pull job teaching migrants 'balloon craft' at detention centre | [阅读全文](https://www.bbc.com/news/articles/c0qlxxxpq35o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
