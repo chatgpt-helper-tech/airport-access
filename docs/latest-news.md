@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 21:58:00（北京时间）**
+🕒 更新时间：**2025年08月29日 22:02:00（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Ukraine war briefing: Thousands of cruise missiles for Kyiv in Europe-funded package - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNMWViLXlJUk1Rc2lwazllRXNhQTY0OTVRWjhFdDJvQVJiZTZORnYwYmxLaTd5OTZhTkVfejFIMU1pZnBHTDNqbnFtNXJfZmg3V0l0cDVqcHhNV0NKc1ZQWF9DZEpadFZHbXctQ09Hc1VJa2NadlBXS0xQYm4yMmx6ZmFObG9VTndTWTFkQm1Remg3d0dFVFg3SlM5VTFZdHk3bjhmVExWbXoyWDR1TjJsN25QZm9SSnFoWE1WZG1BdFNsYjJSTEFkeQ?oc=5) |
 | De minimis: How US shoppers will be hit as the tariff exemption ends - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE54dkt0X0F6Q2dRdWJwNzFtcTZwd1JZbW5wTjNKV3VILWkxVDNvVXFYa0d5a1U5UW5veEVXVUhCSkF1UExRU1I3ZG1mTjhaVTlQMEZDN1NIc0lWQdIBX0FVX3lxTE5tcDcxazROSTh4bGdLWHVWcFpTNDNvVnBsWHgxUHFoaDFzUTg3dzUtN0pCTjk1RTVIM1F0VlBuMTZLOUpFaHN3ckhsa05kS3F0cEFmQWZ0LU1TWlNEWUhr?oc=5) |
 | 2 Weeks, 1,000 Arrests: How a Surge of Feds Changed D.C. Policing - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNckRsR0NhNjJYTnJLTlNsaWhMdXhmNnZXY1RFR3RqVFkxMjhLeWVjTUJQZnllY2hpNDhkM0h2ZHpNbS04Yi1xMDl0MUhsT0t3TU0zUXYtN1VveVdNZXh1bkgxUGFKYXdnTFdqbW9FdGhtNm1hRjRvbkNlRURWbFZ2eG9SUFY0Sk5hckNQTnFVdw?oc=5) |
-| ‘His inexperience shines through’: Steve Witkoff struggles to manage Russia as Trump peace envoy - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNTTFqaDMtekp2elZtT20xVVFFVFdZSWNSVXBCSDlUNmtoak9lTk81QnZ2UndqQTJZWlp5WUZCRzNtUFBVSEZ2aklac0hhZkh2UDBuR0R0NTFlcGl0bVhMR1pqd0NWYWVGZ1hRZGVqWjhDdmg0bFcwdFNabVFNWXJWNU1sUHQ?oc=5) |
+| New trial ordered for 3 Memphis ex-officers in connection with death of Tyre Nichols - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPakUwQ2h3WG4zckJEcHhzSm9JZ0x4UlpBSUgxMC1KSTltcVFMM3Z3dU1lRG9fc0kzaFdwNW1Ec1diUU4zZzgwSlJvOThzU3RvVnpmZDhzYy1KWDd6bmFxRjJtc05UWnBsbWNOdno0Qk5BWkxwRk90dVptbGctQjBscU5ORWo?oc=5) |
 | White House equates Russian, Ukrainian strikes after Moscow attack killed 23 in Kyiv - The Kyiv Independent | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOelJtdVl6X2NUZW0wRy1EMzF2R3EwUGhqV0JKVTJ5V2dGNlBBOE5BZ2YwQnNNWGlzTHFfVmpmck5CSThUY1JVLWxmdmxmMEE5MktBdGNENzhRYnFhd1cwcmo2RGEtaEJTVm1kZTFrMUliT0V3d0NmSUtpVmJNVDVSQUdpLWpmYTNLdzUydW1uOENoNWNZU2VfXzdkSl9paUs2LTlmd3VWaDRZaVBtRHFjUy1B?oc=5) |
-| Officers found guilty in Tyre Nicholas case will have new trial - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE52VDNrYWRERU9IU1lweHQwZVh2UXNWekVTWDJkbFJYdjRyY2tHeXdTVWQzNkVKTGdYcmUwNVZvWUphcFdocGF5QV8yU3BycHluR2FnYWo0VEduUdIBX0FVX3lxTFAyUlI4NnVLQXo1eXItOEdVNWpKMWd3dFl6MWVhZmdPQU83ZlFlRVJjNXBPMUpleVJ4MDBfYUdZQ2ktQjktakg5dlFqUmV3LVFHVXQzVzJxQVY3ZTltOVZj?oc=5) |
+| Texas House Advances Anti-Abortion Bill - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOMXJNRXB1RFJXQXF3MW0zbUNlWWNPXzhjaG40WDJZLWpaQ25Fa3N0U3NhakJxa0IyRGpPMUc4c0tRQlJzMkt2M3J2ZzZEX2dteE8wZTE5eVF0Zml2QVdQd011ZFRTM0ZmaDd2b2xMa0FsOHVJYUxCTUdtRktKdXNrcDVncw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
