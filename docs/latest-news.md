@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 04:33:18（北京时间）**
+🕒 更新时间：**2025年08月30日 04:40:48（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump administration faces rare bipartisan pushback for firing CDC director - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQdC1yMTFkZDNicnZPSkhicUZGN0pQSGFfeE9KTG1WcW00djQzN0JZSDhyU0poNEJIZEdINmluQUV4VFVPeFVHRnJlVDZrS0FOLWM5N0RpV3lNSlp5VFk1T3NVSXI0bFZtYTcyYUNuY2x2b1ZPR0U0dU1KLThNajUyTWVoekktWTJtNXRPN09nOUU?oc=5) |
 | Gov. Greg Abbott Signs Controversial Redistricting Bill, Redrawing Congressional Map - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNS1JSTUFpR0l5TVBhN3liOWRFc2tkM3hISXZrcXFRS1g0RFo0ekRaQkNBcnpfOFZnalRZT2RiNmhCWUZjWllWeGhYX2lEbjZhWGN3NmFZdUgyWWpBaXBQNmJDLThJNlE5NGM2bTBfcHFTR0EwWTlSQXc4X09OSlNxV3FKNzBuUEFtVno3eVFBT1dvVW1jSzZrc1lR?oc=5) |
 | Appeals court blocks Trump administration from ending legal protections for 600,000 Venezuelans - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQbFhLU1ZHVjZNZDdBSWFiVWtOVE4yeHoyX2c5UnZQQ2NLOGRGWkZTRUN0Sk9ZVHdpMWY1dVJZTG8tb3BuSUhLVXp6THZ6ZTJ0cThzZ1lrcGtYUW9FV21xNVhhN3JCQ2pnZGQ3TkNkeVVTWlJVd19fV3FUdGt1SWQ1UGNqNGNRSlZLU1JJYlhvUkppQdIBlwFBVV95cUxPd2Q2S2xYM29NZDVRUEh0WmtxQXNKc2JkRHFGckpQWTVZQjdDLXpmd3dxZ3dvV2RMa3RYajlYakpEeXVPWDk5bFRLWU0tUF9TNUYzc1l0bmktbkpJNzJuRzFiRWZLNzBVWlRmOW1jVHhUREZFZHRZeHZWaHhFRmZTNkI4T1R6SUt3aTZOVzNOU3F1N3VWVUdN?oc=5) |
-| Alabama town’s first Black mayor wins election after being locked out of office - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQUU1nWFVjaGVqV3VrLXRYdmV0dTdic3pKeUw1TlhIQV9JQkRBSzNyQWdNZ2FEcGdPaWFuWV9seXNnRFNOa2ozN2VMa3BuWmpLWXprLTBOaXVVU3RIREpWRGZxbTFHYTVwSXBQUktRVF9ab0M1anhlblNNamRfbUdSSEJWOEdKQS0wTWNoeEFqcmZRbDZxeXVYZ1dXNkIwODlJdmE4amo4eTNxdy1fNGtsc0xYONIBVkFVX3lxTE10WVgwSVpwM0E5d2todndEaVkxRGl1dzV3THV4djMxXzJWTHhxUTJ6UF9rTWF1VnhGMHhoWVFiSDFGOFdyU0VjQmZUY3kzeTNfOGRBcUhR?oc=5) |
-| New trial ordered for 3 Memphis ex-officers in connection with death of Tyre Nichols - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPakUwQ2h3WG4zckJEcHhzSm9JZ0x4UlpBSUgxMC1KSTltcVFMM3Z3dU1lRG9fc0kzaFdwNW1Ec1diUU4zZzgwSlJvOThzU3RvVnpmZDhzYy1KWDd6bmFxRjJtc05UWnBsbWNOdno0Qk5BWkxwRk90dVptbGctQjBscU5ORWo?oc=5) |
+| Alabama Man Once Barred From Office by Rivals Is Elected Mayor - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQSkFlaC10VFVtSDltakVOZThNWkh2bUllV1RERy12Z3NhUGN1cXBGaF9JYkkzNjU3bTVVTi0yQVRyeUxxNHZrZ3VrRlFTODFZbENWclVfTkx1SnBfV1EwRWlCbFBoUVljMGdwMXlmdFJMLVFsOXNFSWVlTVRCMkVNMTBIRFBLZGpKRlZJSlVKakFDQWs?oc=5) |
+| An 'Alligator Alcatraz' shutdown could cost Florida $218 million - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNX3VhbkliMHVtWl9iZV9zUVA3VXBNOUs4eWNGUk9JT0ZxSXVsLVdiT0lvQTM3OGRZdGw1UUhtc2N1SnJ2aWJFNDBiVmk2NWE0NElOM2hfWUd0Y19Kemo5bFU0clU3dTVpWERyUDYzNHM3bFc4WExSTTJJTWxyUEZsNnpPRUhRampjRWczTUY0OVNSMmZkLWNweDNsbjJDMjBTZlHSAVZBVV95cUxOdjc1MG5ibDdQbGNpdDJ6bTBYZE9XS2dJWlc4RF9zUzF3WG91S1RLUmtIV28zZVZRR2Rzdkk2c3U0M0lXZE9ONTMzZV80MDJmVm9za2s2QQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
