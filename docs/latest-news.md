@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 21:32:59（北京时间）**
+🕒 更新时间：**2025年08月29日 21:40:54（北京时间）**
 
 ---
 
@@ -23,11 +23,11 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump cancels Kamala Harris’ Secret Service detail that was extended by undisclosed Biden order - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxObUxSdUtsSVdvbmdyMDFwSm5JU2pmWjhLOS1pWGpUa2J4NTZjblhRajRJcER0b1BNVHNQZ0d5Zy1Fb0VKaHR1OHNvRm9sbkpSck5yVEp2WWM5d3JxMWxfQ25UMzNvTEpnLWNSOXlKeWhKZHRiYWVJRTZFdEp4MnBmZmcxZ3c4RmFILVdrRG9uNXRqLU0?oc=5) |
-| Trump housing director Pulte lodges new criminal referral for Fed Governor Lisa Cook - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFAyVjBLVm9kUmtORUgta2ViVDRLc2NOWERwU3c0TEd0cldwOF9TYUs2cDJFa1hJM0RQbjYtWjJFaHFZaHZsdjh0cFJnRUctZlJOYnB5dzFPVkVra3F1QUdMZHYycVlUWHpJTjFMOVlnNzg4dWxvaGpWUmVR0gF_QVVfeXFMTW41UGcyQTllZU9JRWZpYzc4UDBGNFM4eExSX0FHckxvN2xrYXl4RGh0WXRFal95ODV5MWM1MnVDUThKNmc0TXlWUklTMjBaMllhSGtzWXdIQUJjVXNJelpDZGxYS2dHTC1hMGJVdU1KZ3ZFYS1tN2k2d0hjS2JNTQ?oc=5) |
+| Trump revokes Secret Service protection for former Vice President Kamala Harris - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxOYnNKc0pxUlVLTktOckE5N2J5Tndxa0pLS0NMeGNSMWVuVHFucmttWjY1R0dJalJjdFBfRmFpZS1rajdQRGstMTFuYjdQcm5GRVdnRW9RY0RNMDI5aGg5ejJsSUNrblBBMWwxbl9sR29kTlVjYU5SN21PajJrTGs4Smw4eWFwYUhsMm9pdkJVd0RPU2Vja1ZVZWJrUWhuakNvYmd2b0pYbWNwaVl1Rmo3T2dLS2VTN3RNZ1U2bm8wZ3NRVWFZ0gFWQVVfeXFMTWcxVDBPVm5mMzdFYmtVMDdJTUo0bHpIaGZrNVpKLUVMYjZLSkdFTjZBSXY5M0RIQUdKZS1XeGRfV3Iwa25QWW82Q2czNEVJdUNpazdmUkE?oc=5) |
 | RFK Jr. deputy Jim O'Neill chosen as acting CDC director - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE16WHRTQ2p5QnBibzNwLUV0NWhVSGY1UV9rbzFMMXVVOVZmNEtPYmNIUm5pWlhad1hCMkViZmJKSjdKdFM5RmpCRDFyYkdETVVIOUV4ektXb1E3ZVdqZ3lEaS1ncUxtaXZKa1hpcFhSLUk?oc=5) |
 | Hurricane Katrina in photos, 20 years after the "slow-motion catastrophe" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5sUl9NYzE4OUM5Mm9iR2xIcFJXTE02SVpKOTRCbGl4eThFbGFJZy11ZkNXcFZwMUJHSjBzbTNPaE90Y3VMZDhiOXhmR3RrMThsNXhXVXU1ODVyczh6Vk1JYmxZSkQta3ItRS1VVzJVYmxKX3o0bGtuVdIBfkFVX3lxTE95STFnczJ4eElCVUFjTmJRZU52M3E4RHBETF93LW9meG9FQkhIeUtMeG9VU2RDQVluUEVLRVFfckpVaUdHUlZZQ0ZzNFZkWTl6aFByN0t6cFI2bV9uREc2RWxjXzljX0w5a2Q2X0hReFNVNmJIU1dIUmhKNEIzdw?oc=5) |
 | Minneapolis grieves for young shooting victims as police investigate motive - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQaGVsVmd3UHZ2NzNqLW1BaGlqbWIwU2xPTWFMVkJEcENkeURYMUczYXZ1TFNKZTFQck5XMXdtT2FOU3hXZWdOczUtS21ZaXlvWEppR0JRZDhOLWNmQVhKemZlYng3dWxmaVB4OWs2N1A2d2NMSktENmYxblRvYmt4VjBoeW9fYU5LbjlaR0xwTFA5U1FJU2pGTFBBMkFaelhPNFcw?oc=5) |
+| Ukraine war briefing: Thousands of cruise missiles for Kyiv in Europe-funded package - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNMWViLXlJUk1Rc2lwazllRXNhQTY0OTVRWjhFdDJvQVJiZTZORnYwYmxLaTd5OTZhTkVfejFIMU1pZnBHTDNqbnFtNXJfZmg3V0l0cDVqcHhNV0NKc1ZQWF9DZEpadFZHbXctQ09Hc1VJa2NadlBXS0xQYm4yMmx6ZmFObG9VTndTWTFkQm1Remg3d0dFVFg3SlM5VTFZdHk3bjhmVExWbXoyWDR1TjJsN25QZm9SSnFoWE1WZG1BdFNsYjJSTEFkeQ?oc=5) |
 | US Ends Tariff Exemption for Small Packages, Upending Global E-Commerce - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOWkJ3ZDI0TnZCbEpDckJCVWFmRDNFbjliTFgwVFBnTlNRRGRKMkFlQV8wY0NubGlBTGFhZkt1TkNrTzluc2JTb2FONTc3TExaUVRBZHZJWk1KZjEweVJMTTByVGhmV1lHZXlET1Z4TzM0LWY0bTRNLUl2Si1zLWpVS2VPaUFtbWpXNXNZNVFDemdKR21VYXNtcExhUjZlc0VrZ1l3dDlWeldrV1pVMjFNQ0Vn?oc=5) |
 | 2 Weeks, 1,000 Arrests: How a Surge of Feds Changed D.C. Policing - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNckRsR0NhNjJYTnJLTlNsaWhMdXhmNnZXY1RFR3RqVFkxMjhLeWVjTUJQZnllY2hpNDhkM0h2ZHpNbS04Yi1xMDl0MUhsT0t3TU0zUXYtN1VveVdNZXh1bkgxUGFKYXdnTFdqbW9FdGhtNm1hRjRvbkNlRURWbFZ2eG9SUFY0Sk5hckNQTnFVdw?oc=5) |
 | White House equates Russian, Ukrainian strikes after Moscow attack killed 23 in Kyiv - The Kyiv Independent | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOelJtdVl6X2NUZW0wRy1EMzF2R3EwUGhqV0JKVTJ5V2dGNlBBOE5BZ2YwQnNNWGlzTHFfVmpmck5CSThUY1JVLWxmdmxmMEE5MktBdGNENzhRYnFhd1cwcmo2RGEtaEJTVm1kZTFrMUliT0V3d0NmSUtpVmJNVDVSQUdpLWpmYTNLdzUydW1uOENoNWNZU2VfXzdkSl9paUs2LTlmd3VWaDRZaVBtRHFjUy1B?oc=5) |
