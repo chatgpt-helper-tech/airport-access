@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 20:17:56（北京时间）**
+🕒 更新时间：**2025年08月29日 20:25:02（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | 2 firefighters battling Washington state wildfire arrested by Border Patrol - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOb1V3VGozX0dhTFdzTXlFWjZXb2x6M2VfeTdfbE11Yk1pN2FtU19PZDBPZGRqdXR6cVhFNzJXNXRiM1dWRVVvM1VrdzFGUzlFMDFzcDN0cUlzelN1SUtUN2xFb0tsdG9QNE14TXhZT0kxdFlGcWRLMzViUkVxTi13RS0xeWNLbTdyOVFZbXhhc0s3M3Nkb0wxLUFWYXlNS0doTllnNjhFOVhLQ0RSN3FN?oc=5) |
 | 2 Weeks, 1,000 Arrests: How a Surge of Feds Changed D.C. Policing - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNckRsR0NhNjJYTnJLTlNsaWhMdXhmNnZXY1RFR3RqVFkxMjhLeWVjTUJQZnllY2hpNDhkM0h2ZHpNbS04Yi1xMDl0MUhsT0t3TU0zUXYtN1VveVdNZXh1bkgxUGFKYXdnTFdqbW9FdGhtNm1hRjRvbkNlRURWbFZ2eG9SUFY0Sk5hckNQTnFVdw?oc=5) |
 | ‘His inexperience shines through’: Steve Witkoff struggles to manage Russia as Trump peace envoy - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNTTFqaDMtekp2elZtT20xVVFFVFdZSWNSVXBCSDlUNmtoak9lTk81QnZ2UndqQTJZWlp5WUZCRzNtUFBVSEZ2aklac0hhZkh2UDBuR0R0NTFlcGl0bVhMR1pqd0NWYWVGZ1hRZGVqWjhDdmg0bFcwdFNabVFNWXJWNU1sUHQ?oc=5) |
-| Trump preparing major immigration enforcement operations in Chicago next week similar to LA, DHS sources say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOcDRiNDJQNXhnZlllZ1NXMUpMaVk1TU1HS0F5ZHBPQXprZW1rOVFuMXVtOGF6ZmEzY0pJRVRNamJNNzYyUkZTMUc2cnNKbDRxWlpjeWl1NVFNLUc1WE44aDZhQ0tXRUNzT1hjZDdPYVZVTXp2dDFNN2tjSF9WM2VSVjQxRTFqMlNmb2swcG9B?oc=5) |
+| Texas House Advances Anti-Abortion Bill - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOMXJNRXB1RFJXQXF3MW0zbUNlWWNPXzhjaG40WDJZLWpaQ25Fa3N0U3NhakJxa0IyRGpPMUc4c0tRQlJzMkt2M3J2ZzZEX2dteE8wZTE5eVF0Zml2QVdQd011ZFRTM0ZmaDd2b2xMa0FsOHVJYUxCTUdtRktKdXNrcDVncw?oc=5) |
 | Officers found guilty in Tyre Nicholas case will have new trial - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE52VDNrYWRERU9IU1lweHQwZVh2UXNWekVTWDJkbFJYdjRyY2tHeXdTVWQzNkVKTGdYcmUwNVZvWUphcFdocGF5QV8yU3BycHluR2FnYWo0VEduUdIBX0FVX3lxTFAyUlI4NnVLQXo1eXItOEdVNWpKMWd3dFl6MWVhZmdPQU83ZlFlRVJjNXBPMUpleVJ4MDBfYUdZQ2ktQjktakg5dlFqUmV3LVFHVXQzVzJxQVY3ZTltOVZj?oc=5) |
 
 ---
