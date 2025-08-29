@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 23:16:13（北京时间）**
+🕒 更新时间：**2025年08月29日 23:24:16（北京时间）**
 
 ---
 
@@ -23,11 +23,11 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| White House taps top RFK Jr. deputy as acting CDC director - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPU3RlMUYzQzh6MzNTa0hPZnpRRVRudlJwZEE4RlZPV1JXOEVyUVVrVFVWZVJNN3VETmxBTnJ5WDBkcktCeFRFS2tHbHJHM3lVWkozUHlBQk1iaEdTQkc4am1fNmJIeXZxZjV5WTZ0eEhNYWRoczZWR2IzYWdzMjhyNw?oc=5) |
 | Trump Cancels Kamala Harris’s Secret Service Protection - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNRjRDUXAwbDUzNmduWWdwaUZpeTgydkp0a2U2MFpfaWdSMWVLZTdzVXMxcUtDeE5BTkd6NWtVemt3c0NhamNWa3h5LUc3UXZfSW5UOWR2dVRHWW1uTUJGQ1VybU42S0xackhBcUhBLUg5NG16M1BfSjVGNXlEcnlCYW9kcDZHZjg?oc=5) |
 | Families of children killed in Minneapolis church shooting call for healing, change - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPbGFzOWhiNG91amJ1Sm54Q0lZQVVpXzE5ZG1MYzRZWGR3MzNySjNwWXM3RVM0Rk9hQS11dENmeURndHFkRUhPSXlZSUZBRV9DT1ZVLUpFYkJOcnJhNVZtUVV0c2cxM0dsM2RPSzYxaEs1ckktVHpMRXdGb3hXVExqaDR2bHkxMmlRUTJxbTh2cWl2ci1qdHlrSVpuYWpZSEkzOHFRamV5NUZNa1B3Wnc?oc=5) |
-| Hurricane Katrina in photos, 20 years after the "slow-motion catastrophe" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5sUl9NYzE4OUM5Mm9iR2xIcFJXTE02SVpKOTRCbGl4eThFbGFJZy11ZkNXcFZwMUJHSjBzbTNPaE90Y3VMZDhiOXhmR3RrMThsNXhXVXU1ODVyczh6Vk1JYmxZSkQta3ItRS1VVzJVYmxKX3o0bGtuVdIBfkFVX3lxTE95STFnczJ4eElCVUFjTmJRZU52M3E4RHBETF93LW9meG9FQkhIeUtMeG9VU2RDQVluUEVLRVFfckpVaUdHUlZZQ0ZzNFZkWTl6aFByN0t6cFI2bV9uREc2RWxjXzljX0w5a2Q2X0hReFNVNmJIU1dIUmhKNEIzdw?oc=5) |
-| End of "de minimis" exemption means new tariffs on millions of packages - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBPQU9UTGIxbTBvdzV1VnBWS3JKX3U1OWtQYlUxXzZNaEE1Q1NJazI2R2M4NEdKdjNRQWRKRGVEWWgzbzJyczM1aVV4Ylc1WWthc29Icnl5Rlk0aUFHTlZ1WFY3akx6NWt3ZFMyMDlOR1pyTnp4a09kUg?oc=5) |
+| What has changed 20 years on from Hurricane Katrina? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiXkFVX3lxTE04bHZDdUVRUHp4eE1oMWppeXlYYkxfQmF2ajRya0pCcDVxUGJSRDlycUsyWmp0VWs5YUExVEdwM0F4YUtWSy1DcGxUV0o1UlpEb3B5U1Z4RjZzbTVzR0E?oc=5) |
+| "De minimis" U.S. tariffs exemption for low-value imports ends - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNNU1fZGNPQ2Y2QXhlYVoxUWVUVFhjQVJhVEFYRHA3XzV4MlVhN0xscXZUOG8xNWlORnJJczdlbGxaQnJLNm1ZRDhiNnZPeXNtME93MjBXcXROM2xxbWdDanFtT2JnRmJLUEJPN0kxQ2tfWFpEUXVPcUpkelVNLXlQUG9BWkRvRHZ0RzhnY9IBkgFBVV95cUxPMmVhM01GS2VDTWFIc0lHTDVhRUNFRy0zWFRtWFluOXpGazE4RWlnb3N2c2JZaGpTLTR4QUVqMEhyMHBHQy1Wem5QQ1dqOTByZGdXdmZKZTdseFhLRUZHemxsdnR0bFdtRFpyTTFHMkNzNGE4aGtWdVc1eWptTkpkOG9MM3ZnTDhfak9uNWg2YXFKZw?oc=5) |
+| White House taps top RFK Jr. deputy as acting CDC director - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPU3RlMUYzQzh6MzNTa0hPZnpRRVRudlJwZEE4RlZPV1JXOEVyUVVrVFVWZVJNN3VETmxBTnJ5WDBkcktCeFRFS2tHbHJHM3lVWkozUHlBQk1iaEdTQkc4am1fNmJIeXZxZjV5WTZ0eEhNYWRoczZWR2IzYWdzMjhyNw?oc=5) |
 | Ukraine war briefing: Thousands of cruise missiles for Kyiv in Europe-funded package - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNMWViLXlJUk1Rc2lwazllRXNhQTY0OTVRWjhFdDJvQVJiZTZORnYwYmxLaTd5OTZhTkVfejFIMU1pZnBHTDNqbnFtNXJfZmg3V0l0cDVqcHhNV0NKc1ZQWF9DZEpadFZHbXctQ09Hc1VJa2NadlBXS0xQYm4yMmx6ZmFObG9VTndTWTFkQm1Remg3d0dFVFg3SlM5VTFZdHk3bjhmVExWbXoyWDR1TjJsN25QZm9SSnFoWE1WZG1BdFNsYjJSTEFkeQ?oc=5) |
 | 2 Weeks, 1,000 Arrests: How a Surge of Feds Changed D.C. Policing - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNckRsR0NhNjJYTnJLTlNsaWhMdXhmNnZXY1RFR3RqVFkxMjhLeWVjTUJQZnllY2hpNDhkM0h2ZHpNbS04Yi1xMDl0MUhsT0t3TU0zUXYtN1VveVdNZXh1bkgxUGFKYXdnTFdqbW9FdGhtNm1hRjRvbkNlRURWbFZ2eG9SUFY0Sk5hckNQTnFVdw?oc=5) |
 | Democrats zero in on a red state in the redistricting battle - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxORW44UnM5RThwSHVqc09fbUNoNW1xaVFfb2NXeDBXQ0Q5TGc2RmstTmo5NFp1cmVmdE9JWnBUR3NCQnZ3dlhHWE1uQk5hWlJGbXNJQUozV0U3VGpTYzcwWXpGTXBtYktLT0lEc1VGZDY0dnJNRFZZOWJyc3NvbXg4Y1lBdDZuTjZoR1hfNkRaWEduS2xJb0FUT3dB?oc=5) |
