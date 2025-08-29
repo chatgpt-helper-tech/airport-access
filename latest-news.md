@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 09:25:35（北京时间）**
+🕒 更新时间：**2025年08月29日 09:33:21（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Minneapolis Catholic school shooter 'wanted to watch children suffer' - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPRG8xUmNkZGlIblJwUnRxWHhJbmg0dHE5d0dvbHhzTk1UNzR1VllEX3p1anVGSXRNRHE3S1pkM0Z6SnppekZ3dXdNT014c0dINUJNbXNwN01wdnExM2d0N1Z1RGtxemhFakN2RXVxRW5BTDZfcGh5d204ZlpHTlEyb1ozdjlNSGhaWUxMNXY0YXRGWGdpQ29BbEdTNFNDZE1qN0d1UFdZckw0ZWFtVnVadVlid2ZBRWNDaHNvRzFB?oc=5) |
+| Parents of children killed in Annunciation Catholic school shooting speak out - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOT2s0anZ6ZkxibEFTdkZKejMxQjRQZld6UmlrZG9kTEdwU2F0VmVHUjl5TWtnMkxLVTZ6SUtzRThkUV84VEJXQ0NoRk52RUhIWHo0NlVyVV9YeExkSFc3LVRCQ0lzSFBScXY0V0lyY3dQRnQ5SHd1cmNpOUJ3M1pBeTluTTFTMHPSAYwBQVVfeXFMTjZpM2J3NHd0Tkk3YUhEV2xXUTd3bXVXcXNkZUJqdk5kZ2dMcXdVbXhJdmRRZG9Hb1A2azZySUcyWVlQemRvWE9Zd2FhRXVXeEhlVGd4YS1tMENQdnpJbUh4M1RESWUtUlZ0NGtsUXNFdWhzRnVsRGlYSDBObTVQMnhoTnlINlBzZEwybmg?oc=5) |
 | RFK Jr. deputy Jim O'Neill picked to temporarily lead CDC after former head Susan Monarez's ouster - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQUGhhNTNaUWpXVXB0R1dZNjdWZWoxM1lod2hkWFpIazU3V0s1MkJGZDRzemQzOUFkdWNyM3V0UnBubVhuOFhLb2U2Q2dkSDlxM1gwWE5kbzVaSEpTOTJxUXh1amUxQU1DYkh6Sm5jSUUyT2dSMGJ0XzB1b1lIRF9vVUlNMTVZd0hwNU1YSkhhcHVqQnFIcnhvU0VOZ9IBoAFBVV95cUxNTG1rR2RzYmR4N05lQzcyLUIxSlhBOFNRTlVBU1Nhd0xBUXpQeEcxUUlOeG5FV0szZHBZLWlxVG4wQ1cwREpySC04LTZwMG00TjVBcG1pRE5jMGo2ZE9mdE1WUFN6QVFJWGZqQ29BZnZvYkg5RjVWdk14NjExRkhTVHFnQm9ZLV9ldzZzdzNpR0lyVVlRWTJyRWoxazJCTTNQ?oc=5) |
 | The federal government is taking over D.C.'s Union Station. What does that mean? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNYXlCR3JZQmxGYy1DRTdtQTMyYlhJdWpsUTlQRVgtU0FHSXFveFd1bVc0eV9Rai10OWlDbkFiaXZmQ0JaeUFmX1VpN0tGel9EU2ktSDRWbEhmbU9rTWZTWkhHWUxBc2xDUUhIQUw4NV8yZnRBVUI2ZjJyaFRFU3NYREdDZklvNHM?oc=5) |
 | 19 Democratic Governors Warn Trump Not to Send Troops to Their States - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNVnB1dDdFbWpUT25sQ3k3TTZDa3U2ekVYaWUtRnlFXzhUT1Z3ekpsako5cGQzckVLMWZKaC1qVExNeU5rUDhFSHU3RG5YS0RTZ3dMTmc5S1JyQzBLNW5WX0l4S0xOdmt4TlJGTkRNNl9ZY2RBQWRoZ3I2RWkyTmw4aDBlWmJCMGltOG8xaXNn?oc=5) |
