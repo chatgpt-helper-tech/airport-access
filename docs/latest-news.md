@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 12:24:35（北京时间）**
+🕒 更新时间：**2025年08月29日 12:33:13（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Donald Trump hits small packages with fresh tariffs as duty-free exemption ends - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFAxUXRzZmFHYlNpQk9fam5aOTRRVENHbUhZX3F0VzM2Ykd3enNNdUJpamtrV3pXbGZjWTl0Q1ZJc1c0S3lqOVc4c2lvQ0lQclhDR3pJMzVTRTRmaFBJcnYyMkFLVVp5N2p1TkI1WnFsajg?oc=5) |
 | The federal government is taking over D.C.'s Union Station. What does that mean? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNYXlCR3JZQmxGYy1DRTdtQTMyYlhJdWpsUTlQRVgtU0FHSXFveFd1bVc0eV9Rai10OWlDbkFiaXZmQ0JaeUFmX1VpN0tGel9EU2ktSDRWbEhmbU9rTWZTWkhHWUxBc2xDUUhIQUw4NV8yZnRBVUI2ZjJyaFRFU3NYREdDZklvNHM?oc=5) |
 | Florida taxpayers may lose $218M on ‘Alligator Alcatraz’ as judge orders shutdown - PBS | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQeWxNbU5lQ1M2V1QwUWRKbFB0VTlzdm9hYzJwNUdzbGRsdVRxMUhnb05DN0swd3RFM1dGTE5HNm1sVnhCMEE4X1ktMk1pRTdFYWhWZEhvX3VyMVY1YVJRVG0tS3dwNXdxaDBTNldQdkN3THZCemFXaE5MRXZaS0ZGUHNXS0dqOWk5MGs4Q1YwWVE0bVRVeTBKajBfSUhuQmpaX3dlc0R0STYtdUFXaHNQNnFiZ0HSAboBQVVfeXFMTklGRmFNaWE3Qmt3Z0dHSVd0aUo2QkluMmdZSl9abmZQazV5VjlMX2ZMTWdrc19WZXBlcDJ3d014OTVEaklqSlduTDZHNC04YlRXaWtoYWpZbzBNeTlvMXkzUUNBR0hnNEQ2bEZ1QWxQQ3lmUmFIbXYwb1g3VlYtOUVtVmJ3cjBDdVZ0NUg5Q1NjcXhndXJ3dGJJRXExRlVsTEJnOF80V3I0Tk5zZGhYTEpQdHBkNmZkMmpn?oc=5) |
-| Democrats seek ‘immediate answers’ after reported arrests of firefighters by US border agents - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxONE5XcHVWX0xkMkNMTjhUUzVWZEhldUE4RFlwdjN4SnVvSUtTZXRRWGd1VmtmNW9ITzFDOG52WEVjaVRsdk53d3ZIMVFfcWxONVpjcmwtaGNBS3NTdVNFVzVZSENMNkhqTWRneHJjRjVSS204cnM0dlRNZEdxczJSOS14QzNzWlhiUHBIdVBaTGVYdUt2anFaaGhUV0g?oc=5) |
+| Alleged DC sandwich thrower charged with a misdemeanor after grand jury rejects felony indictment - CNN | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOTjhObTdFVjVOUmJfUVJ4ZlRneFhwYmtCVi1WMnBNcUFGaC1LTV9EZEJrX3ZzMVdtS3hrdUNTQVR0R1BkaFFZT0pQb3ZaOFpfU1cwdF90eFJjT1dsbUZUaFZhbkl0bjVLM1FjSmMxWFdIeXBRdnFhQ1d0dnN3bTVHcmM5S0xuVjVsNmFXZzRtWjFPeGYxME9UaDFZYWJFVWpiY21rN2hDcG5sQjhT?oc=5) |
 | Trump Administration Plans Immigration Crackdown in Chicago - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQaU5OMmo2dkJObWpkaHBQRFZicTIwX3NfeldDMHNaWkFSV2dEQlBvZUFZQ3ZSV0IxanYtS3dlX050V2J3MnJuVExCSGRjN2h2NEFmaFZJVzdQb25Hd09CZzlVYzlRZGpxam1zeF9EOTRrUGp2Q3JyRmJxSXFtMFhDSGFRaHVvQ2p5dENPcG9aRjl3UQ?oc=5) |
+| Border Patrol agents arrest fire crew members at Washington wildfire - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPY2xIQW9HejVnUWtacmxOQlc0U1BwVUU3ZEV2NnpNTVBGYS01TWFXUEs2SnBfNlpiemxFT0ZHNjUyMkJfSUJmeC1qQng3Y2diX0MyamE4SVJJYlEzRV82Z0ZDd2FET3ZqN3pOLTlCaE9RV0w4N3dBdVotOFkyUUNmSURvdU9VS2pFUVMtbkVGcnlsOUwtRWtLUlItWEtqRkZJTFp6RkJxSFhvdVXSAVZBVV95cUxPQVNtdzhNWXVmUWdCeUx1ZmZ4bGVob2w0QV9QNHJzb19CMTdNRFQ4OG1XX1FDLWRsejljM3Fjb0piVWxZRld6SjNaQ1BCR0loZ1ZkUl91Zw?oc=5) |
 | Officers found guilty in Tyre Nicholas case will have new trial - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE52VDNrYWRERU9IU1lweHQwZVh2UXNWekVTWDJkbFJYdjRyY2tHeXdTVWQzNkVKTGdYcmUwNVZvWUphcFdocGF5QV8yU3BycHluR2FnYWo0VEduUdIBX0FVX3lxTFAyUlI4NnVLQXo1eXItOEdVNWpKMWd3dFl6MWVhZmdPQU83ZlFlRVJjNXBPMUpleVJ4MDBfYUdZQ2ktQjktakg5dlFqUmV3LVFHVXQzVzJxQVY3ZTltOVZj?oc=5) |
 | Kilmar Abrego Garcia asks for gag order against Bondi, Noem - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNTU9lX1FSZk44ZmQ4bDBwdFB4S05fTU1Lb3JiLXBGbHRJQzB2OElCRWdnUFVjQXNZeWx1MmpyQVlJN25VaExwWEZWbVVGb1VyUFBXSkN6dms3WXNLVW1CWHFuS1pxbndkQUU4Z2JLYzU2Vjc1N05rRWE1WFFCdjdhcVdPSHM3cHRuMndYc19WZThkMkR2SGc?oc=5) |
-| US offers military funeral honors to Capitol rioter Ashli Babbitt - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPY1dwOTNwU2xTSTZwbENhNDJuOGVQQVNlaTZxeEdnZmZ3UWNPb1NUYkJuNC04X0JBSVRrcVZWZkdQR1hDT1NpUjFpS1dBR0RkQ1hQU01sN3owVEdOSHZsWlYxQWxmTXV6a1MzOXZzSS1qN2s5cldOTmlzNWFqcjZaWXBCdWlyckhvRVA1SVI4UXV3aTFTY2hocVpGbXpZbTVOTmZYQVVKNVVaaFE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
