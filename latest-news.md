@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 13:01:56（北京时间）**
+🕒 更新时间：**2025年08月29日 13:09:32（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Florida taxpayers may lose $218M on ‘Alligator Alcatraz’ as judge orders shutdown - PBS | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQeWxNbU5lQ1M2V1QwUWRKbFB0VTlzdm9hYzJwNUdzbGRsdVRxMUhnb05DN0swd3RFM1dGTE5HNm1sVnhCMEE4X1ktMk1pRTdFYWhWZEhvX3VyMVY1YVJRVG0tS3dwNXdxaDBTNldQdkN3THZCemFXaE5MRXZaS0ZGUHNXS0dqOWk5MGs4Q1YwWVE0bVRVeTBKajBfSUhuQmpaX3dlc0R0STYtdUFXaHNQNnFiZ0HSAboBQVVfeXFMTklGRmFNaWE3Qmt3Z0dHSVd0aUo2QkluMmdZSl9abmZQazV5VjlMX2ZMTWdrc19WZXBlcDJ3d014OTVEaklqSlduTDZHNC04YlRXaWtoYWpZbzBNeTlvMXkzUUNBR0hnNEQ2bEZ1QWxQQ3lmUmFIbXYwb1g3VlYtOUVtVmJ3cjBDdVZ0NUg5Q1NjcXhndXJ3dGJJRXExRlVsTEJnOF80V3I0Tk5zZGhYTEpQdHBkNmZkMmpn?oc=5) |
 | Border Patrol agents arrest fire crew members at Washington wildfire - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPY2xIQW9HejVnUWtacmxOQlc0U1BwVUU3ZEV2NnpNTVBGYS01TWFXUEs2SnBfNlpiemxFT0ZHNjUyMkJfSUJmeC1qQng3Y2diX0MyamE4SVJJYlEzRV82Z0ZDd2FET3ZqN3pOLTlCaE9RV0w4N3dBdVotOFkyUUNmSURvdU9VS2pFUVMtbkVGcnlsOUwtRWtLUlItWEtqRkZJTFp6RkJxSFhvdVXSAVZBVV95cUxPQVNtdzhNWXVmUWdCeUx1ZmZ4bGVob2w0QV9QNHJzb19CMTdNRFQ4OG1XX1FDLWRsejljM3Fjb0piVWxZRld6SjNaQ1BCR0loZ1ZkUl91Zw?oc=5) |
 | Officers found guilty in Tyre Nicholas case will have new trial - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE52VDNrYWRERU9IU1lweHQwZVh2UXNWekVTWDJkbFJYdjRyY2tHeXdTVWQzNkVKTGdYcmUwNVZvWUphcFdocGF5QV8yU3BycHluR2FnYWo0VEduUdIBX0FVX3lxTFAyUlI4NnVLQXo1eXItOEdVNWpKMWd3dFl6MWVhZmdPQU83ZlFlRVJjNXBPMUpleVJ4MDBfYUdZQ2ktQjktakg5dlFqUmV3LVFHVXQzVzJxQVY3ZTltOVZj?oc=5) |
-| Kilmar Abrego Garcia asks for gag order against Bondi, Noem - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNTU9lX1FSZk44ZmQ4bDBwdFB4S05fTU1Lb3JiLXBGbHRJQzB2OElCRWdnUFVjQXNZeWx1MmpyQVlJN25VaExwWEZWbVVGb1VyUFBXSkN6dms3WXNLVW1CWHFuS1pxbndkQUU4Z2JLYzU2Vjc1N05rRWE1WFFCdjdhcVdPSHM3cHRuMndYc19WZThkMkR2SGc?oc=5) |
-| US Air Force to provide military funeral honors for rioter killed on January 6 - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFB0endWTU4zODM1RmdpQm9MVlJsUUJjS09LU3plMnI0TmxfazJMOTR2UEQ1ZE10bjNxclB4cVNZUnVDOS1qUUVDWUhrZGF0RlZ1TWw2ak5PUzhvWkhCbW5wVWZhTWFORU10UFVLay1faWpwVG1wbFpSMUJ0UVQ5TTA?oc=5) |
+| Abrego Garcia's lawyers ask judge to order Trump administration to stop making inflammatory comments about him - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPMnpCSWQtZ1pyUG1yS0U4bjlva1piRW5pSmxUWEVodHQteXh2YmdvVUJhdWgybks4eXFEaTVMUjZkQlN1djB1dGlBVkx1WkxqSnc2MHl6SEpjd3pTdnRYY0V6RHY0aFJKck1aMW9YN014MGhlR3N4VU5ualYtSVRUcGNHOWJ0ZmVpS21LdVhQMnVGYVZmMFhWd3FkWEpGYS1NclVmYXFoM1HSAa4BQVVfeXFMTkhUbkdPdDB5akpIbG11N3ppS3RlMWw4TFoxV3BOY2pwTlpBbkt0SXlKYzFyU1ROdGJtX3FQZGFJYnY1YjVaTVZYYS1VbmowNzRyelJUOTBsLVY2VFYtS3BuVDgxZ1hieEU0czR1UFA2bXBPVVdqMVA1VndjREN2bGo5aFB3azZhMmVHTTcySFNGN1NTSURKbUh5OVBFcWltZHNVUHd1REZLYmo4TU53?oc=5) |
+| Ashli Babbitt, Jan. 6 rioter killed in Capitol, offered military funeral honors - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPbnlCZjBBSWRmbk5KcjY5VzhLLU1yODB2NlI4SXVlcGkybmNkXy1valIyZWhzRm9feW41V2w3OG9Lc093a0ZvSUc1NWJvVDczOHNHbC1NWXRsb3laWDZsUmVUQVVhYXBJa0dlR3h4UjNEWTJ0SWFZcUpieXBNR2t1ZHFzY1pmRWc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
