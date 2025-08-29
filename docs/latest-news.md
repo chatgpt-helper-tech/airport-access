@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 13:16:40（北京时间）**
+🕒 更新时间：**2025年08月29日 13:25:02（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | European leaders outraged after Russian strikes kill 23 and damage EU's HQ | [阅读全文](https://www.bbc.com/news/articles/cvg3y7m2gz0o?at_medium=RSS&at_campaign=rss) |
 | 'It's a chaotic mess': UK firms warn over US small parcel tax | [阅读全文](https://www.bbc.com/news/articles/cvg3yjnq5zeo?at_medium=RSS&at_campaign=rss) |
 | BBC reveals web of spammers profiting from AI Holocaust images | [阅读全文](https://www.bbc.com/news/articles/ckg4xjk1g1xo?at_medium=RSS&at_campaign=rss) |
+| White House names RFK Jr deputy as replacement CDC director | [阅读全文](https://www.bbc.com/news/articles/cwy3zjxy3dwo?at_medium=RSS&at_campaign=rss) |
 | We're in the dark about future, says Epping asylum seeker | [阅读全文](https://www.bbc.com/news/articles/cdxy0p9jx1qo?at_medium=RSS&at_campaign=rss) |
-| MSP locked out of Scottish Parliament after toilet camera claims | [阅读全文](https://www.bbc.com/news/articles/c9wy40rxrvxo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
