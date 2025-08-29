@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 10:01:21（北京时间）**
+🕒 更新时间：**2025年08月29日 10:08:04（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Parents of children killed in Annunciation Catholic school shooting speak out - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOT2s0anZ6ZkxibEFTdkZKejMxQjRQZld6UmlrZG9kTEdwU2F0VmVHUjl5TWtnMkxLVTZ6SUtzRThkUV84VEJXQ0NoRk52RUhIWHo0NlVyVV9YeExkSFc3LVRCQ0lzSFBScXY0V0lyY3dQRnQ5SHd1cmNpOUJ3M1pBeTluTTFTMHPSAYwBQVVfeXFMTjZpM2J3NHd0Tkk3YUhEV2xXUTd3bXVXcXNkZUJqdk5kZ2dMcXdVbXhJdmRRZG9Hb1A2azZySUcyWVlQemRvWE9Zd2FhRXVXeEhlVGd4YS1tMENQdnpJbUh4M1RESWUtUlZ0NGtsUXNFdWhzRnVsRGlYSDBObTVQMnhoTnlINlBzZEwybmg?oc=5) |
-| RFK Jr. deputy Jim O'Neill picked to temporarily lead CDC after former head Susan Monarez's ouster - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQUGhhNTNaUWpXVXB0R1dZNjdWZWoxM1lod2hkWFpIazU3V0s1MkJGZDRzemQzOUFkdWNyM3V0UnBubVhuOFhLb2U2Q2dkSDlxM1gwWE5kbzVaSEpTOTJxUXh1amUxQU1DYkh6Sm5jSUUyT2dSMGJ0XzB1b1lIRF9vVUlNMTVZd0hwNU1YSkhhcHVqQnFIcnhvU0VOZ9IBoAFBVV95cUxNTG1rR2RzYmR4N05lQzcyLUIxSlhBOFNRTlVBU1Nhd0xBUXpQeEcxUUlOeG5FV0szZHBZLWlxVG4wQ1cwREpySC04LTZwMG00TjVBcG1pRE5jMGo2ZE9mdE1WUFN6QVFJWGZqQ29BZnZvYkg5RjVWdk14NjExRkhTVHFnQm9ZLV9ldzZzdzNpR0lyVVlRWTJyRWoxazJCTTNQ?oc=5) |
+| White House taps top RFK Jr. deputy as acting CDC director - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPU3RlMUYzQzh6MzNTa0hPZnpRRVRudlJwZEE4RlZPV1JXOEVyUVVrVFVWZVJNN3VETmxBTnJ5WDBkcktCeFRFS2tHbHJHM3lVWkozUHlBQk1iaEdTQkc4am1fNmJIeXZxZjV5WTZ0eEhNYWRoczZWR2IzYWdzMjhyNw?oc=5) |
+| Trump preparing major immigration enforcement operations in Chicago next week similar to LA, DHS sources say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOcDRiNDJQNXhnZlllZ1NXMUpMaVk1TU1HS0F5ZHBPQXprZW1rOVFuMXVtOGF6ZmEzY0pJRVRNamJNNzYyUkZTMUc2cnNKbDRxWlpjeWl1NVFNLUc1WE44aDZhQ0tXRUNzT1hjZDdPYVZVTXp2dDFNN2tjSF9WM2VSVjQxRTFqMlNmb2swcG9B?oc=5) |
 | The federal government is taking over D.C.'s Union Station. What does that mean? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNYXlCR3JZQmxGYy1DRTdtQTMyYlhJdWpsUTlQRVgtU0FHSXFveFd1bVc0eV9Rai10OWlDbkFiaXZmQ0JaeUFmX1VpN0tGel9EU2ktSDRWbEhmbU9rTWZTWkhHWUxBc2xDUUhIQUw4NV8yZnRBVUI2ZjJyaFRFU3NYREdDZklvNHM?oc=5) |
-| 19 Democratic Governors Warn Trump Not to Send Troops to Their States - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNVnB1dDdFbWpUT25sQ3k3TTZDa3U2ekVYaWUtRnlFXzhUT1Z3ekpsako5cGQzckVLMWZKaC1qVExNeU5rUDhFSHU3RG5YS0RTZ3dMTmc5S1JyQzBLNW5WX0l4S0xOdmt4TlJGTkRNNl9ZY2RBQWRoZ3I2RWkyTmw4aDBlWmJCMGltOG8xaXNn?oc=5) |
 | Federal judge says Kari Lake can't fire Voice of America director - NPR | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOc3pIdFotczFmRTNxaXk3c0ZFUExPM3hTRlhqTGdkVm4tVGNad3FkSE5EOUdKOGtkYXZzUWh0dy1YTDBWU3RMUkJERS1jZC1FRC1XNVY4d3BrR2xtSkt6cTk4ekJOODJrQUtzVzd5Nkl4aVhybHN2dGtyb1V6eTk1a0p6ZTZZYVJQcXl2VUp2aFVQbEhJbFdlVXc1alhYdw?oc=5) |
 | Alleged DC sandwich thrower charged with a misdemeanor after grand jury rejects felony indictment - CNN | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOTjhObTdFVjVOUmJfUVJ4ZlRneFhwYmtCVi1WMnBNcUFGaC1LTV9EZEJrX3ZzMVdtS3hrdUNTQVR0R1BkaFFZT0pQb3ZaOFpfU1cwdF90eFJjT1dsbUZUaFZhbkl0bjVLM1FjSmMxWFdIeXBRdnFhQ1d0dnN3bTVHcmM5S0xuVjVsNmFXZzRtWjFPeGYxME9UaDFZYWJFVWpiY21rN2hDcG5sQjhT?oc=5) |
 | New trial for 3 Memphis ex-officers convicted in connection with the beating death of Tyre Nichols - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5fQjlKQnJvcHIxVGdyX2Q3b21PY0lORy1LaEJOaTdsWS1iMFVseXlRa3hnTHloTDNYaXpZTzRYLXlNanBDZnV3LWMyZ2FlNmJhb0MtMEhENm45azFNdFlTMkdxbFRjUDkwNGZIRktjbHFHWHVGX3FQSQ?oc=5) |
