@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 18:08:31（北京时间）**
+🕒 更新时间：**2025年08月29日 18:17:40（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Minneapolis grieves for young shooting victims as police investigate motive - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQaGVsVmd3UHZ2NzNqLW1BaGlqbWIwU2xPTWFMVkJEcENkeURYMUczYXZ1TFNKZTFQck5XMXdtT2FOU3hXZWdOczUtS21ZaXlvWEppR0JRZDhOLWNmQVhKemZlYng3dWxmaVB4OWs2N1A2d2NMSktENmYxblRvYmt4VjBoeW9fYU5LbjlaR0xwTFA5U1FJU2pGTFBBMkFaelhPNFcw?oc=5) |
-| White House selects Kennedy deputy Jim O'Neill as acting CDC director - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE16WHRTQ2p5QnBibzNwLUV0NWhVSGY1UV9rbzFMMXVVOVZmNEtPYmNIUm5pWlhad1hCMkViZmJKSjdKdFM5RmpCRDFyYkdETVVIOUV4ektXb1E3ZVdqZ3lEaS1ncUxtaXZKa1hpcFhSLUk?oc=5) |
+| Minneapolis Catholic school shooter 'wanted to watch children suffer'; victims identified - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPRG8xUmNkZGlIblJwUnRxWHhJbmg0dHE5d0dvbHhzTk1UNzR1VllEX3p1anVGSXRNRHE3S1pkM0Z6SnppekZ3dXdNT014c0dINUJNbXNwN01wdnExM2d0N1Z1RGtxemhFakN2RXVxRW5BTDZfcGh5d204ZlpHTlEyb1ozdjlNSGhaWUxMNXY0YXRGWGdpQ29BbEdTNFNDZE1qN0d1UFdZckw0ZWFtVnVadVlid2ZBRWNDaHNvRzFB?oc=5) |
+| White House taps top RFK Jr. deputy as acting CDC director - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPU3RlMUYzQzh6MzNTa0hPZnpRRVRudlJwZEE4RlZPV1JXOEVyUVVrVFVWZVJNN3VETmxBTnJ5WDBkcktCeFRFS2tHbHJHM3lVWkozUHlBQk1iaEdTQkc4am1fNmJIeXZxZjV5WTZ0eEhNYWRoczZWR2IzYWdzMjhyNw?oc=5) |
 | US Ends Tariff Exemption for Small Packages, Upending Global E-Commerce - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOWkJ3ZDI0TnZCbEpDckJCVWFmRDNFbjliTFgwVFBnTlNRRGRKMkFlQV8wY0NubGlBTGFhZkt1TkNrTzluc2JTb2FONTc3TExaUVRBZHZJWk1KZjEweVJMTTByVGhmV1lHZXlET1Z4TzM0LWY0bTRNLUl2Si1zLWpVS2VPaUFtbWpXNXNZNVFDemdKR21VYXNtcExhUjZlc0VrZ1l3dDlWeldrV1pVMjFNQ0Vn?oc=5) |
 | 20 years after Katrina, a Mississippi town is still waiting on FEMA funding to rebuild - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQa1VfS0JUeVdFSmxRVjYwYlppal8tVndRVUxxMlEtRXRsbndzSDdBVGRCaUhmMUdZLUUxWThzZXdsYXlydnlTY2I2bFBBaVZ3YkVOcTltOHVubUxKMUxjdm9GRmhoUWNCMWpvWGs5Q29fX3V4dmVSSDZPUlhLeGU4QlZaZ9IBiAFBVV95cUxPamxBbTlwU0J4M0swX25sZnI5cWM5TjU0ZGtaZXVMUlN0elJVcTJJaXdwOEtKWVBGa3VwUjVlSnN4N0cySHZjaDU5eEdoa1NTUUo0Q0tiVWkzXzRZdUs2aHVZbUNLb3U5UWROTldQNGJoUkFjUFZrdDRETGQ5UVB3N2QzTk51akVf?oc=5) |
 | Chicago school board approves budget without controversial $200 million loan - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOal95S1VPUU1GQXdLbHpIR2xrQ3BFVXVpRUlGQThQTHFLSS12Zmk1Q050Rkx6aFRJSWZaQjlvemRyalp0eWtfNFdBMkdwSVV5SEgzV2VpYU5XdnYtTzZJMEVNdmN4SzhmVHlfZ095T2FJYlgyRDdYbDJxUFlzMERhdHdpRXQtbzR1b2c?oc=5) |
