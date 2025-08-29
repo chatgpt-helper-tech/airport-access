@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 06:17:04（北京时间）**
+🕒 更新时间：**2025年08月30日 06:25:00（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump blocks $4.9B in foreign aid Congress OK'd, using maneuver last seen nearly 50 years ago - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPQ253MjgwRklsNDZiRF9lektMUXpWRlFvVmVxMUJLcGRreTdMRDdxVHFFaFNnRllKaUVoR2FLRFRXdC1wSWNpWXIzbGNDTmNINjhzdzEwNUs4NFZhWndDWWN3bklzRi1tbERVSlZXX3h4XzM1MUZsWF81X1ZiVjBUX1VuVTU3dWdtUHNpaWVtX3BsVXpBbmpLTjduWQ?oc=5) |
+| Defying Congress, Trump Moves to Cut $4.9 Billion in Foreign Aid - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFAxam9zX283dHg5aWtsbFlIT0cydU55RnhRODlLX0hYVGd5MzJybG5RazByZXFlbkdvSXp0c2RLa0luclIyUldpU0FQUnpQTE9BTVdkZy1iaG5TbXZpMFQyYVpScmlrVGhlaGRaa0pxRkdtbkNaQVFIOA?oc=5) |
+| Federal appellate court upholds ruling striking down Trump's tariffs - Axios | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE5HMFZILXRDYmhJOE1TTUhwTjVJMWRUelI4WC1UU1ZHSS1VQm5XU0RKVmc1RzdrejZUcXEyN2tlQV9kekZ3V0UwOWtBbHNPelowX29hb01QY0I0VmE1Wjd2d2xvTll3cHVZZG80?oc=5) |
 | 'There is no message': The search for ideological motives in the Minneapolis shooting - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9wS1pLeDhTZDlEZm9YTlZocEhnM0R5cGt1Z3BOV3dCNWIyOFNQdVBSTFdfcEZUYjNzY3hfd001a1dTRFZ1TUpIZGdSVVk4MWNWNUs3M1BnYWVmSFQ0RzZUZFlLMGNUOFNGX2NJaWszRkxXNWNXQjViT21BTDE?oc=5) |
 | Trump administration faces rare bipartisan pushback for firing CDC director - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQdC1yMTFkZDNicnZPSkhicUZGN0pQSGFfeE9KTG1WcW00djQzN0JZSDhyU0poNEJIZEdINmluQUV4VFVPeFVHRnJlVDZrS0FOLWM5N0RpV3lNSlp5VFk1T3NVSXI0bFZtYTcyYUNuY2x2b1ZPR0U0dU1KLThNajUyTWVoekktWTJtNXRPN09nOUU?oc=5) |
-| Federal appellate court upholds ruling striking down Trump's tariffs - Axios | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE5HMFZILXRDYmhJOE1TTUhwTjVJMWRUelI4WC1UU1ZHSS1VQm5XU0RKVmc1RzdrejZUcXEyN2tlQV9kekZ3V0UwOWtBbHNPelowX29hb01QY0I0VmE1Wjd2d2xvTll3cHVZZG80?oc=5) |
 | Katrina inspired a $3B wetlands rebuilding project. Louisiana just killed it. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxOYmtaeVVUTGJPWElFb0I0ZXl2NGZWNG5tMjEwNDYyTmE1akRNekJQbl9mSEhOLW1hX09vM2dhWl83WVEtTy1ONVVzTHdlNjhCaHFFWWN1aFFMUDdmSUFUeXpOS09hc29qTk4yWDRweHhXLUtZbzFRM2hMc3o1VzR0dXBYLU1JQ1ZyQ211SlE3ZTJpZURLbDdyYjQydmlQaFd0Sm16UEloRG9NZTNlck1JNGtnNjRuR2FiRHU5dDBXWjZidw?oc=5) |
-| Iowa Sen. Joni Ernst won’t seek reelection to third term, sources tell CNN - CNN | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE85cmUxenl0eHc5U1R3SFU5TlNtenhnZ3p3alRnVUM4T2FPUEVLZExzUkNBMkhtemRFT2pfdGxOUmNack5zMkRXS0MwVGlmTGlUVkN1Tld2RjlIMGhyVWJjNjY5NnlsSVVsTVZQc21Yaw?oc=5) |
+| Retail panic: What the end of the 'de minimis' exemption means for brands across the globe - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPVmE1TWdqTDdlMEVkVUlVbnNhR1JybFdhVWo2NFVFVWo4T2RfMUZrWXJwbXMyQkdKZ0hYcXdZSTFnSkhjOHFsc3A5MFNJVDBRcmJmUm1UaDlON2htbHVDc2JrNGcyMHQ2ekVCMGluWUJYZTZhbWsxVFp5M0ZBWl9NV1E1SlZOc25LUXZOZTJ6cExWQnZZOXMwYXZGSjlpa2lVMEt0eTZoLTFkOWJxMWl6bzFmVlHSAVZBVV95cUxPZG1obmE5Tm9XQXRUeHVsQ2xPNEJxS0laR1RVTW1DeXVlT25nTlNTYWstNUNESFE5RWZraVBhNUJheE9XbDdJVmxCblhuS3RwMXVSeWdadw?oc=5) |
 | Gov. Greg Abbott Signs Controversial Redistricting Bill, Redrawing Congressional Map - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNS1JSTUFpR0l5TVBhN3liOWRFc2tkM3hISXZrcXFRS1g0RFo0ekRaQkNBcnpfOFZnalRZT2RiNmhCWUZjWllWeGhYX2lEbjZhWGN3NmFZdUgyWWpBaXBQNmJDLThJNlE5NGM2bTBfcHFTR0EwWTlSQXc4X09OSlNxV3FKNzBuUEFtVno3eVFBT1dvVW1jSzZrc1lR?oc=5) |
+| Republican Sen. Joni Ernst will not run for reelection in Iowa, sources say - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxORWZQZXVVM1V6Tzh6dUE5TkRQWkdJdjkta2l0XzIxeDZ2enBmS3F2YjIySGlHT3hHZHNfXzdqUlNOUWVXTHpYYkpGWFVJUEhsSFFRSzg2SmgzUzRLbVpxTU5Tc080RU1PLW9qTkVydVBRRlFwQTNGalFLVVhTMmppWDhR?oc=5) |
 | Alabama town's first Black mayor reelected 4 years after he says White residents locked him out of office - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNaktGRjNPRHJLZF9TazdmYW5SNnp0a1h6ZWpiMDdPS2ZTeEFPYmdoSkN4aG1FQmdrMEI0a2JlbTVVcTVIOGpjSTlSLVhPLVotYm50QUhjZjQzeXFCUVZkZW9Kb0N2dURsN3N5YTByUHA4dGJNaVplay1WYkJnWjJldF9lTFl2NmFxWm800gGQAUFVX3lxTFBaSjN3RENQSnBQWGlmYzFlUTRvYnd6ZzZvcVRTZHZWaERNT1VLTGRyY19WaENJZS1SV29NS2s3R0ltUVhNazQ5QWhDNDdqVFo0Y1Q1ZW5QRVhaY0VLVTVJQWJCR2pTMXE2NWRPUm9ub29jbXBGakJkT3BjMHBCUk9lNHVKLWJZZFBhbGFjNEgzRA?oc=5) |
 | Appeals court blocks Trump administration from ending legal protections for 600,000 Venezuelans - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQckQxT3dDdE93bktKLUhNcTAxVjdxTzlXb1RTNnRDc0JxQ1RlRi1BUl9MeUtiazdrRktpRTJMSUlhMkJkRjZWRDNoSElHWUNDYXIwSDBnTFVvX1VKSi1CLWtxLXBxdmtmaGtGdi1NYWtscFl1RXJsQWhTM3FleWlVNUVCekVZQkM1R3QxOFpfMDNLZ1BJUkVUTTkxaWJ1ZGlBOVIta1BmOWlPUQ?oc=5) |
-| Trump admin plans immigration enforcement surge in Boston - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQOVhPRjUxOU1DaUFqY0ZvVGxGcGFNRlM2bjdoSUhWUEQ0cEhJd2EyNWc2TmNMT3ZvcVFPdmZSbmJzQzhadHFkaGxfNW45Uy1RNWJrRjZaanFZdG1IaVo0RUVqZFVvekFPWjFYUjJmTkNMUzNVQ0ZudlBHdWpxYVN6aVNDdE1laENNM0VrT0dQWmV2V1BCY0dWR3JIX1FqYXBVMUVQVFFod0tvdUk?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
