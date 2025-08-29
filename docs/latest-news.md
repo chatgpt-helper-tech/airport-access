@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 02:01:00（北京时间）**
+🕒 更新时间：**2025年08月30日 02:09:31（北京时间）**
 
 ---
 
@@ -9,11 +9,11 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Ruling won't feel like much of a victory at Home Office | [阅读全文](https://www.bbc.com/news/articles/c7vlpdqeg4qo?at_medium=RSS&at_campaign=rss) |
-| How a leaked phone call derailed the Thai PM's career - and the Shinawatra dynasty | [阅读全文](https://www.bbc.com/news/articles/cdrkvy2pn87o?at_medium=RSS&at_campaign=rss) |
+| Zelensky rejects proposals for buffer zone to end Ukraine war | [阅读全文](https://www.bbc.com/news/articles/c04r0z1pr25o?at_medium=RSS&at_campaign=rss) |
 | US to stop Palestinians attending UN meeting in New York | [阅读全文](https://www.bbc.com/news/articles/cjdym32z9v7o?at_medium=RSS&at_campaign=rss) |
 | Madeleine McCann suspect to be released in less than three weeks | [阅读全文](https://www.bbc.com/news/articles/c2063n085d1o?at_medium=RSS&at_campaign=rss) |
-| Bank share prices tumble after calls for tax on profits | [阅读全文](https://www.bbc.com/news/articles/cm2v3700pvqo?at_medium=RSS&at_campaign=rss) |
-| Zelensky rejects proposals for buffer zone to end Ukraine war | [阅读全文](https://www.bbc.com/news/articles/c04r0z1pr25o?at_medium=RSS&at_campaign=rss) |
+| UK bank share prices tumble after calls for tax on profits | [阅读全文](https://www.bbc.com/news/articles/cm2v3700pvqo?at_medium=RSS&at_campaign=rss) |
+| How a leaked phone call derailed the Thai PM's career - and the Shinawatra dynasty | [阅读全文](https://www.bbc.com/news/articles/cdrkvy2pn87o?at_medium=RSS&at_campaign=rss) |
 | Trump ends Secret Service protection for Harris | [阅读全文](https://www.bbc.com/news/articles/c04r073nxz5o?at_medium=RSS&at_campaign=rss) |
 | Body of Israeli hostage recovered in Gaza, IDF says | [阅读全文](https://www.bbc.com/news/articles/crlzyne9jl2o?at_medium=RSS&at_campaign=rss) |
 | Ministers didn't do cost review of council mergers | [阅读全文](https://www.bbc.com/news/articles/cj9wxnlnrxdo?at_medium=RSS&at_campaign=rss) |
@@ -28,11 +28,11 @@
 | The long recovery on the Mississippi Gulf Coast, ‘ground zero’ for Hurricane Katrina - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOTzNGR09Ud1NZYVQ5enVqLTNUY21HeGRscGE3U3RKSFFyVUFCaVZtWWNEcm1VakhjT2JkWWVYVHVISWQ1dFlabVVfQTlXd1RERldKd0IyYWRTdUV0RXE1UTVubFhrdzRtT1B2TExYZ1o3cGE1TEZVQlNiS1FqLWo2SDZ3SXFrcUUwMlhyV1Fn?oc=5) |
 | Families of children killed in Minneapolis church shooting call for healing, change - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPbGFzOWhiNG91amJ1Sm54Q0lZQVVpXzE5ZG1MYzRZWGR3MzNySjNwWXM3RVM0Rk9hQS11dENmeURndHFkRUhPSXlZSUZBRV9DT1ZVLUpFYkJOcnJhNVZtUVV0c2cxM0dsM2RPSzYxaEs1ckktVHpMRXdGb3hXVExqaDR2bHkxMmlRUTJxbTh2cWl2ci1qdHlrSVpuYWpZSEkzOHFRamV5NUZNa1B3Wnc?oc=5) |
 | Residents of Chicago's most violent block don't want Trump to send the National Guard - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxOdnFtSGJ6S0E2YlZ5YU5DYldxZi1tdEIxeVlEWENlRG5qaE44V3Vhck5MMFRZX0Z1Ym5vT282SHdHczdKeXpoSEdHaENqcEhYTldkTTY0RVA0WktvUk1GRzNXeFNVdFFMLS1idWlhdEVPODdqcVNjS0F2emNTZ2FwQW1YMVVyYVl2OTIxMTN2eDZJdFo2N3UyRXR6YmJzVVRybWpHZ1lMak5YYjFGU0g3ZDdjQWs5OE1IMjJGano4RFA4YmdpN0syaGJEb1dCY1k?oc=5) |
-| Thai court dismisses prime minister over compromising phone call with Cambodian leader - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNYm0wVTlnYXQ2NkczZTRWVWM2enpCbDNLaFRxZEppQ0R0dXRMLWVxcEdTZW1qSUR0Nk56VlMtR3Nlc1VWX0txczVpTmstbGZBN3c0b2lRLVdfakpTOURQX09ZU0ZZOVI2WHZZYVUxc3dIenF4QXZhZmNjU01mVl9TRGVzN0FQRGxHcXJzd0xVeVdXRU1pOFdoMFZBOWMtYWEwY05zdw?oc=5) |
-| Iowa Sen. Joni Ernst won’t seek reelection to third term, sources tell CNN - CNN | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE85cmUxenl0eHc5U1R3SFU5TlNtenhnZ3p3alRnVUM4T2FPUEVLZExzUkNBMkhtemRFT2pfdGxOUmNack5zMkRXS0MwVGlmTGlUVkN1Tld2RjlIMGhyVWJjNjY5NnlsSVVsTVZQc21Yaw?oc=5) |
 | Trump administration faces rare bipartisan pushback for firing CDC director - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQdC1yMTFkZDNicnZPSkhicUZGN0pQSGFfeE9KTG1WcW00djQzN0JZSDhyU0poNEJIZEdINmluQUV4VFVPeFVHRnJlVDZrS0FOLWM5N0RpV3lNSlp5VFk1T3NVSXI0bFZtYTcyYUNuY2x2b1ZPR0U0dU1KLThNajUyTWVoekktWTJtNXRPN09nOUU?oc=5) |
+| Iowa Sen. Joni Ernst won’t seek reelection to third term, sources tell CNN - CNN | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE85cmUxenl0eHc5U1R3SFU5TlNtenhnZ3p3alRnVUM4T2FPUEVLZExzUkNBMkhtemRFT2pfdGxOUmNack5zMkRXS0MwVGlmTGlUVkN1Tld2RjlIMGhyVWJjNjY5NnlsSVVsTVZQc21Yaw?oc=5) |
 | New trial ordered for 3 Memphis ex-officers in connection with death of Tyre Nichols - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPakUwQ2h3WG4zckJEcHhzSm9JZ0x4UlpBSUgxMC1KSTltcVFMM3Z3dU1lRG9fc0kzaFdwNW1Ec1diUU4zZzgwSlJvOThzU3RvVnpmZDhzYy1KWDd6bmFxRjJtc05UWnBsbWNOdno0Qk5BWkxwRk90dVptbGctQjBscU5ORWo?oc=5) |
 | Abbott Signs Gerrymandered Map as Texas G.O.P. Moves Further Right - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNS1JSTUFpR0l5TVBhN3liOWRFc2tkM3hISXZrcXFRS1g0RFo0ekRaQkNBcnpfOFZnalRZT2RiNmhCWUZjWllWeGhYX2lEbjZhWGN3NmFZdUgyWWpBaXBQNmJDLThJNlE5NGM2bTBfcHFTR0EwWTlSQXc4X09OSlNxV3FKNzBuUEFtVno3eVFBT1dvVW1jSzZrc1lR?oc=5) |
+| Border Patrol arrests 2 firefighters battling wildfire in Washington state, drawing ire of senator - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxPUi1rZ2pWVTVmOFNqVWlFdVgxM0VZTjJvVHR5eUFORWpUd2ZTbW5lYVFwbzN5aE1aLVpyWldEcFUyT0xmalpuclFVWDhaZ2VtVUZBYmQ5X005dEdyRV9QT3NDaDUtNEdwWFBvMDBoVlc4MXNqR2lXWTNYUy1fNzExRlVkeVo5SEhEVUhkOUxpQ19UZDhaSFZGdHlqS21CYUR0MUlkaXdSQmNuWm1OZHNxVjk4MjZ3WjZBQnVGNdIBwgFBVV95cUxQSm5Nd3lWb1ZEckcwMDdTQ2FHY19yR05SN1JpTGRycmVJWjdXellJekRKdUFLaEhXTzZ2ZlkwbXV6dGhPMm1iWlRXa3JEdjFSbEN1OUtZSkxVSVdGWmJtcWJ0U09aeDBwUTFKeFhuMUhTalMwZmIzanRHdWlrNjJFck54QnlpMVNVc3R5YVNoeFNtSnlBSW9fYndzYzdfMHl1Z09qamxDbk82dU01dFEzZUo3OXo1bXFpMEc4STVPb2dGUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
