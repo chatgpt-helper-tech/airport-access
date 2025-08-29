@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 00:49:39（北京时间）**
+🕒 更新时间：**2025年08月30日 00:57:45（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | Sometimes I hate my players, admits Man Utd boss | [阅读全文](https://www.bbc.com/sport/football/articles/ckgley33q3ro?at_medium=RSS&at_campaign=rss) |
 | Body of Israeli hostage recovered in Gaza, IDF says | [阅读全文](https://www.bbc.com/news/articles/crlzyne9jl2o?at_medium=RSS&at_campaign=rss) |
 | Ministers didn't do cost review of council mergers | [阅读全文](https://www.bbc.com/news/articles/cj9wxnlnrxdo?at_medium=RSS&at_campaign=rss) |
+| US to stop Palestinians attending UN meeting in New York | [阅读全文](https://www.bbc.com/news/articles/cjdym32z9v7o?at_medium=RSS&at_campaign=rss) |
 | Cycling race website censors name of Welsh village | [阅读全文](https://www.bbc.com/news/articles/c62nyzz4eveo?at_medium=RSS&at_campaign=rss) |
-| Protesters and police clash after death of taxi driver in Indonesia | [阅读全文](https://www.bbc.com/news/articles/cjw6el72xd4o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | 2 Weeks, 1,000 Arrests: How a Surge of Feds Changed D.C. Policing - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNckRsR0NhNjJYTnJLTlNsaWhMdXhmNnZXY1RFR3RqVFkxMjhLeWVjTUJQZnllY2hpNDhkM0h2ZHpNbS04Yi1xMDl0MUhsT0t3TU0zUXYtN1VveVdNZXh1bkgxUGFKYXdnTFdqbW9FdGhtNm1hRjRvbkNlRURWbFZ2eG9SUFY0Sk5hckNQTnFVdw?oc=5) |
 | Democrats zero in on a red state in the redistricting battle - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxORW44UnM5RThwSHVqc09fbUNoNW1xaVFfb2NXeDBXQ0Q5TGc2RmstTmo5NFp1cmVmdE9JWnBUR3NCQnZ3dlhHWE1uQk5hWlJGbXNJQUozV0U3VGpTYzcwWXpGTXBtYktLT0lEc1VGZDY0dnJNRFZZOWJyc3NvbXg4Y1lBdDZuTjZoR1hfNkRaWEduS2xJb0FUT3dB?oc=5) |
 | Iowa Sen. Joni Ernst won’t seek reelection to third term, sources tell CNN - CNN | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE85cmUxenl0eHc5U1R3SFU5TlNtenhnZ3p3alRnVUM4T2FPUEVLZExzUkNBMkhtemRFT2pfdGxOUmNack5zMkRXS0MwVGlmTGlUVkN1Tld2RjlIMGhyVWJjNjY5NnlsSVVsTVZQc21Yaw?oc=5) |
-| Border Patrol arrests 2 firefighters battling wildfire in Washington state, drawing ire of senator - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxPUi1rZ2pWVTVmOFNqVWlFdVgxM0VZTjJvVHR5eUFORWpUd2ZTbW5lYVFwbzN5aE1aLVpyWldEcFUyT0xmalpuclFVWDhaZ2VtVUZBYmQ5X005dEdyRV9QT3NDaDUtNEdwWFBvMDBoVlc4MXNqR2lXWTNYUy1fNzExRlVkeVo5SEhEVUhkOUxpQ19UZDhaSFZGdHlqS21CYUR0MUlkaXdSQmNuWm1OZHNxVjk4MjZ3WjZBQnVGNdIBwgFBVV95cUxQSm5Nd3lWb1ZEckcwMDdTQ2FHY19yR05SN1JpTGRycmVJWjdXellJekRKdUFLaEhXTzZ2ZlkwbXV6dGhPMm1iWlRXa3JEdjFSbEN1OUtZSkxVSVdGWmJtcWJ0U09aeDBwUTFKeFhuMUhTalMwZmIzanRHdWlrNjJFck54QnlpMVNVc3R5YVNoeFNtSnlBSW9fYndzYzdfMHl1Z09qamxDbk82dU01dFEzZUo3OXo1bXFpMEc4STVPb2dGUQ?oc=5) |
+| Israel declares Gaza’s largest city a combat zone as death toll surpasses 63,000 - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNeEFWMHYtR1prcGpnTW0waFgzUTU4S3Rrc1hJZHVZeTNKMmU5ZXAyS21SaC1VY3hld2RBc2l1VlRydWszQ3U1TThONTFDUmZjVWx0T2dDaUNSUWF6Y2lXSFBleDZmYjJPY0FOWmQ1eTBfM2NMM1g3UlNBQzRZaURTY01SdlJfZ3l3blFZVnlaMA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
