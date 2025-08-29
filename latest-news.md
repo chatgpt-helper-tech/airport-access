@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 09:09:23（北京时间）**
+🕒 更新时间：**2025年08月29日 09:17:28（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Federal judge says Kari Lake can't fire Voice of America director - NPR | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOc3pIdFotczFmRTNxaXk3c0ZFUExPM3hTRlhqTGdkVm4tVGNad3FkSE5EOUdKOGtkYXZzUWh0dy1YTDBWU3RMUkJERS1jZC1FRC1XNVY4d3BrR2xtSkt6cTk4ekJOODJrQUtzVzd5Nkl4aVhybHN2dGtyb1V6eTk1a0p6ZTZZYVJQcXl2VUp2aFVQbEhJbFdlVXc1alhYdw?oc=5) |
 | D.C. Democrats rebuke Mayor Muriel Bowser's comments that Trump's surge reduced crime - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNYlhkZGlkUDJDcnVCcEllSTFZTjVCRWtnZjU5d2FtTjFyTFF3UnhqVEZ5WnVDZ3RUdk9tTC1COFd3eXhDVEd3SmdFTnpYNnFlbGQxcDc0Y25XUWZKanZLZmZQcmxnZnZOdTJhMFlZVXhmSW8tY0FKbnk2M1EzZTltaGV6cXVoM1k4eVl3YWR2Sm9rRUg3UjlVWjljenNJSmtuTHZqZno4cFNXeU5uc1dLR19hSk81cDR0d1ZFb2tWa0pMQ2FuU045YlR6U2hzVDd50gFWQVVfeXFMUHFCUkNfRzZPWU1GdmlSUEZuakZhYi1wdzRVNHAxRDMycnI3ZHRidVhxRTAwb2tIanY5Z3Fsb2oweGY3OXNwbVRHb3dDZ0V0YV9OX0k5Q0E?oc=5) |
 | New trial for 3 Memphis ex-officers convicted in connection with the beating death of Tyre Nichols - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5fQjlKQnJvcHIxVGdyX2Q3b21PY0lORy1LaEJOaTdsWS1iMFVseXlRa3hnTHloTDNYaXpZTzRYLXlNanBDZnV3LWMyZ2FlNmJhb0MtMEhENm45azFNdFlTMkdxbFRjUDkwNGZIRktjbHFHWHVGX3FQSQ?oc=5) |
-| Lisa Cook hints 'clerical error' to blame for any mortgage application discrepancy - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPZUFtdDZxbTRGRGxoVWQ4VUwybGlHbFNEN3Z2N2ZwQ3pQcTVzNFFwSHd5MXJMbVZwa1NFam40NWlMLXpXT2k1bWlGYWhJcm5OcVBUVVdubXZ6V0NBeHZXY3RsaEFhX193YnNaR3pIeDczUlU0czd1Z1VvVndOUC1ERmkzQ1pTc3BiOXJZVllnY0t4bF9YdkZJVmdBM01BVTZPcXFsb9IBqgFBVV95cUxNOHMwZERwTk56Y0oxdTN1TEJ5TFhEdGtvaUxtd2ZPcjVwWUNxTk1tVm1LaVRyOWk4R3czNnhVaV9RM25peFRzN3RPZlFJeWRUVW5JRzJtd3FZWW9HYzlzNVhYNTZPRnVwdWlYR0p6bG10SVF5VGtuMFdTNXl3WVdyVWg1ZFdKT0lRdGpZM0IzVGFzb3ZzLUdfRGJ1RTZkMEZhbjJncERvMDJvZw?oc=5) |
+| Fed governor Lisa Cook sues Trump over firing - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9NWHlNZVFBczJ4M3VJTFBicElMN0g2cXhBTVFYY0Z1cWZFTmdnNzdsZ3RpZWFNZUZFbnBvQVJkWVRFam9UWk9LeFFVTFFhTjhFTm1zUzE5ZVJLUGU2WTlvM3ZURjJPaHAwbk5CRlYzRkFBOE5TaGZZMEROdEE?oc=5) |
 | Prosecutors Reduce Felony Charge Against Man Who Threw Sandwich at Federal Agent - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPdE1rWTRQaDA2bi1UOFBUTHQzSVcwbzlHM0Z6cFVKdldmbUNlNjFLUTNyazJrX1JuUUJRLVhNUlRxVFVmMWFwNGJNT3AtSXJVT0N0djhWOWFtcWRRMEhLLXEtVnVHTnR6bGpmdUlNaEpiWEhZRWJYeUdlY0tlTTg1RFJiT0NrTDFqeXp2SE9B?oc=5) |
 
 ---
