@@ -20,7 +20,7 @@
 👉 [https://gptvpnhelper.com/airport-access/](https://gptvpnhelper.com/airport-access/)
 
 ⭐⭐ **觉得内容有用？欢迎 Star 收藏 + 分享给身边人，让更多人安全、稳定、自由地连接全球网络。**
-📅 最近更新：2025年8月21日 ｜ 来源：[ChatGPT 中文导航站](https://gptvpnhelper.com/airport-access/)
+📅 最近更新：2025年8月29日 ｜ 来源：[ChatGPT 中文导航站](https://gptvpnhelper.com/airport-access/)
 
 
 ---
@@ -29,6 +29,7 @@
 
 ### 📖 基础知识
 1. [什么是机场？科学-上网的原理与作用](#ssssr)
+2. [免费机场推荐](#free)
 
 ### 🎯 选购指南：如何挑选适合你的机场服务
 3. [如何挑选靠谱机场？](#choose)
@@ -82,7 +83,51 @@
 
 ---
 
-> 💡 提示：科学-上网的第一步是选择靠谱稳定的机场节点。**百变小樱作为新手推荐第一站，解决你“打不开 ChatGPT”的痛点**，是你通往自由互联网世界的起点。
+<a id="free"></a>
+## 🆓 限时免费高端机场推荐：<a href="https://bbxy.xn--cesw6hd3s99f.com/auth/register?code=FFHk" target="_blank" style="color:#1a73e8;text-decoration:underline;">百变小樱</a> —— 稳定实用科学上网方案
+
+### 🚀 无法访问 ChatGPT、YouTube、GitHub？先用这个免费机场恢复联网！
+
+如果你当前处于**完全无法翻墙**的状态 —— 无法打开 ChatGPT、YouTube、Google、GitHub 或 VPN 官网，那么这款 **限时免费高端IEPL专线机场「百变小樱」** 是你最佳的起点选择。
+
+📌 **强烈建议立即注册，恢复基础联网能力，体验顶级加速 IEPL 专线！**
+
+---
+
+### ✨ 为什么推荐「百变小樱」机场？
+
+- ✅ **提供免费试用期**：注册3天内免费使用,可自行体验稳定性与速度,试错成本为0
+- ✅ **稳定可靠**：运营超5年，团队位于海外，服务成熟稳定
+- ✅ **高速专线**：接入顶级公网 IEPL 专线，低延迟、高速大带宽，游戏、下载、视频通通流畅无卡顿
+- ✅ **灵活套餐**：支持免费试用，高中低档付费套餐灵活选择，按需升级更划算
+- ✅ **兼容主流工具**：全面支持 Clash、Shadowrocket、SSR 等翻墙主流客户端一键导入，导入简单便捷
+- ✅ **流媒体解锁能力强**：ChatGPT、YouTube、TikTok、Netflix、Disney+、HBO Max 等全解锁，支持 4K 串流
+- ✅ **专属会员福利**：LV3 以上用户可获免费 Netflix、Disney+、Prime Video 等会员账号，4K 秒播！
+- ✅ **影视党福音**：提供Emby服务器,海量高清视频免费观看
+
+---
+
+> 🧠 **作者实测使用超过3年，稳定性极高**。日常办公、AI 使用、高清观影、海外游戏、跨境电商访问，**全场景表现优秀，值得长期使用**！
+
+### 百变小樱2025年5月24日实测
+![百变小樱2025年5月24日实测](./assets/bbxyspeed.webp)
+![百变小樱2025年5月24日解锁实测](./assets/bbxyunlock.webp)
+
+---
+
+### 🔗 立即开启你的科学上网之路：
+
+<p style="margin-top: 12px;">
+  <a href="https://bbxy.xn--cesw6hd3s99f.com/auth/register?code=FFHk" target="_blank" style="display: inline-block; padding: 12px 20px; background-color: #1E88E5; color: white; font-size: 16px; font-weight: bold; border-radius: 8px; text-decoration: none;">
+    👉 免费注册百变小樱机场（限时开放中）
+  </a>
+</p>
+
+🎁 试用期到期之后,若想购买付费套餐,购买套餐时可使用我们申请到的**专属95折优惠码: bbxy-5th**
+
+---
+
+> 💡 提示：科学上网的第一步是选择靠谱稳定的机场节点。**百变小樱作为新手推荐第一站，解决你“打不开 ChatGPT”的痛点**，是你通往自由互联网世界的起点。
 
 ---
 
@@ -160,16 +205,18 @@
 2. [TNTCloud 机场/85折优惠](https://tanu095.tntvipaff.cc/#/register?code=7MPbfr89):推荐理由: IPLC 专线、原生 IP、高速稳定，海外团队运营,适合 ChatGPT、TikTok、Netflix、海外开发者和重度流媒体用户。不限设备、不限速，性价比极高,**专属优惠码 `TNT85` 可享受 **85折优惠**！**
 >  👉 [TNTCloud 机场详细测评,如需了解更多测速、解锁、套餐信息、使用教程请前往](https://gptvpnhelper.com/airport-access/tntcloud/)
 
+---
+
+3. [银河云机场 Trojan协议 IPLC专线](https://inv03.galaxyaff.cc/register?aff=tcOd0ob7):推荐理由:trojan 协议 IEPL 专线机场，新加坡海外团队大机房产品，性价比专线，支持退款,有不限时流量套餐(限流量),24h在线客服，专业且靠谱稳定，任何线路问题都是1h内修复处理。全天候任何时期都稳定不掉线 ,测试油管4k高峰期无压力，下载视频可以跑满带宽,超优质的流媒体和 ChatGPT 解锁能力。**- 月付 / 季付 / 半年付：使用 `gptvpnhelper85` 享 85 折优惠
+   年付及以上：使用 `gptvpnhelper80` 享 8 折优惠**，特别提供爆款98元年付小包（这个套餐不能使用优惠码）
+>  👉 [Galaxy 银河云 机场详细测评,如需了解更多测速、解锁、套餐信息、使用教程请前往](https://gptvpnhelper.com/airport-access/yinheyun/)
+
 
 ### 入门级
 
-1. [百变小樱机场](https://bbxy.xn--cesw6hd3s99f.com/auth/register?code=FFHk),推荐理由:IEPL 专线机场，支持移动、电信、联通三网高速回程，小众稳定运营近5年。解锁能力强，高级版以上套餐提供可获免费 Netflix、Disney+、Prime Video 等会员账号，海外流媒视频党福音,4K 秒播！提供Emby服务器,海量高清视频免费观看
-
->  👉 [百变小樱 机场详细测评,如需了解更多测速、解锁、套餐信息、使用教程请前往](https://gptvpnhelper.com/airport-access/bbxy/)
-
 ---
 
-2. [贝贝云机场](https://beibeilink.top/register?code=Oa86Fbs3),推荐理由:贝贝云属于入门级机场，价格非常亲民，适合轻度科学-上网用户，例如网页浏览、访问海外资料、使用 ChatGPT。对流媒体晚高峰需求不高的用户，是高性价比的起步之选。95折优惠码:**beibei.cloud**
+1. [贝贝云机场](https://beibeilink.top/register?code=Oa86Fbs3),推荐理由:贝贝云属于入门级机场，价格非常亲民，适合轻度科学-上网用户，例如网页浏览、访问海外资料、使用 ChatGPT。对流媒体晚高峰需求不高的用户，是高性价比的起步之选。95折优惠码:**beibei.cloud**
 
 >  👉 [贝贝云 机场详细测评,如需了解更多测速、解锁、套餐信息、使用教程请前往](https://gptvpnhelper.com/airport-access/bby/)
 
