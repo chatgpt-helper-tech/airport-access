@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 08:48:20（北京时间）**
+🕒 更新时间：**2025年08月29日 08:56:38（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Mexico suspends postal shipments to United States over tariff confusion - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQRFhtVGNlWElaMVNhWVdYNnRqWTF0eUR1V21tWW9NYk9RS0x5a3MzdmttdXJYNDZQRXJwYTNfaVZkeEdERElwcGxrY0hjaVFlQUlzVGJuc3F2MVlaS0dCRHlCd0ViNVBOSTJMX2ZvVzNfdlR0dW5uVW1LV2Z3cWFmWU44LVhoUFBtczExRVlTTVd3ZDZEWFg5VVVNYm9aWGluMUJXemZ3cTluaVZGYmNKYmpLYTdYNk0xenJfSjlB?oc=5) |
 | Federal judge says Kari Lake can't fire Voice of America director - NPR | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOc3pIdFotczFmRTNxaXk3c0ZFUExPM3hTRlhqTGdkVm4tVGNad3FkSE5EOUdKOGtkYXZzUWh0dy1YTDBWU3RMUkJERS1jZC1FRC1XNVY4d3BrR2xtSkt6cTk4ekJOODJrQUtzVzd5Nkl4aVhybHN2dGtyb1V6eTk1a0p6ZTZZYVJQcXl2VUp2aFVQbEhJbFdlVXc1alhYdw?oc=5) |
 | D.C. Democrats rebuke Mayor Muriel Bowser's comments that Trump's surge reduced crime - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNYlhkZGlkUDJDcnVCcEllSTFZTjVCRWtnZjU5d2FtTjFyTFF3UnhqVEZ5WnVDZ3RUdk9tTC1COFd3eXhDVEd3SmdFTnpYNnFlbGQxcDc0Y25XUWZKanZLZmZQcmxnZnZOdTJhMFlZVXhmSW8tY0FKbnk2M1EzZTltaGV6cXVoM1k4eVl3YWR2Sm9rRUg3UjlVWjljenNJSmtuTHZqZno4cFNXeU5uc1dLR19hSk81cDR0d1ZFb2tWa0pMQ2FuU045YlR6U2hzVDd50gFWQVVfeXFMUHFCUkNfRzZPWU1GdmlSUEZuakZhYi1wdzRVNHAxRDMycnI3ZHRidVhxRTAwb2tIanY5Z3Fsb2oweGY3OXNwbVRHb3dDZ0V0YV9OX0k5Q0E?oc=5) |
+| New trial for 3 Memphis ex-officers convicted in connection with the beating death of Tyre Nichols - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5fQjlKQnJvcHIxVGdyX2Q3b21PY0lORy1LaEJOaTdsWS1iMFVseXlRa3hnTHloTDNYaXpZTzRYLXlNanBDZnV3LWMyZ2FlNmJhb0MtMEhENm45azFNdFlTMkdxbFRjUDkwNGZIRktjbHFHWHVGX3FQSQ?oc=5) |
+| Lisa Cook hints 'clerical error' to blame for any mortgage application discrepancy - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPZUFtdDZxbTRGRGxoVWQ4VUwybGlHbFNEN3Z2N2ZwQ3pQcTVzNFFwSHd5MXJMbVZwa1NFam40NWlMLXpXT2k1bWlGYWhJcm5OcVBUVVdubXZ6V0NBeHZXY3RsaEFhX193YnNaR3pIeDczUlU0czd1Z1VvVndOUC1ERmkzQ1pTc3BiOXJZVllnY0t4bF9YdkZJVmdBM01BVTZPcXFsb9IBqgFBVV95cUxNOHMwZERwTk56Y0oxdTN1TEJ5TFhEdGtvaUxtd2ZPcjVwWUNxTk1tVm1LaVRyOWk4R3czNnhVaV9RM25peFRzN3RPZlFJeWRUVW5JRzJtd3FZWW9HYzlzNVhYNTZPRnVwdWlYR0p6bG10SVF5VGtuMFdTNXl3WVdyVWg1ZFdKT0lRdGpZM0IzVGFzb3ZzLUdfRGJ1RTZkMEZhbjJncERvMDJvZw?oc=5) |
 | Prosecutors Reduce Felony Charge Against Man Who Threw Sandwich at Federal Agent - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPdE1rWTRQaDA2bi1UOFBUTHQzSVcwbzlHM0Z6cFVKdldmbUNlNjFLUTNyazJrX1JuUUJRLVhNUlRxVFVmMWFwNGJNT3AtSXJVT0N0djhWOWFtcWRRMEhLLXEtVnVHTnR6bGpmdUlNaEpiWEhZRWJYeUdlY0tlTTg1RFJiT0NrTDFqeXp2SE9B?oc=5) |
-| Florida taxpayers may lose $218M on ‘Alligator Alcatraz’ as judge orders shutdown - PBS | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQeWxNbU5lQ1M2V1QwUWRKbFB0VTlzdm9hYzJwNUdzbGRsdVRxMUhnb05DN0swd3RFM1dGTE5HNm1sVnhCMEE4X1ktMk1pRTdFYWhWZEhvX3VyMVY1YVJRVG0tS3dwNXdxaDBTNldQdkN3THZCemFXaE5MRXZaS0ZGUHNXS0dqOWk5MGs4Q1YwWVE0bVRVeTBKajBfSUhuQmpaX3dlc0R0STYtdUFXaHNQNnFiZ0HSAboBQVVfeXFMTklGRmFNaWE3Qmt3Z0dHSVd0aUo2QkluMmdZSl9abmZQazV5VjlMX2ZMTWdrc19WZXBlcDJ3d014OTVEaklqSlduTDZHNC04YlRXaWtoYWpZbzBNeTlvMXkzUUNBR0hnNEQ2bEZ1QWxQQ3lmUmFIbXYwb1g3VlYtOUVtVmJ3cjBDdVZ0NUg5Q1NjcXhndXJ3dGJJRXExRlVsTEJnOF80V3I0Tk5zZGhYTEpQdHBkNmZkMmpn?oc=5) |
-| ‘Grasping for straws’: Europe floats Ukraine-Russia buffer zone in push for peace - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPN2ZLQmdZdFExZ3lqbjBqRG80RVNXM29hQldVWllwc01mZWsxazc2MXpRZjV0LXBLS2paOWtNcUY1YXpwZ0hWVm9JN3ZhQW13QXBwbTd4VzU4NkJFWWU0VXptS1QxVElJd1ZRLWxEMVNIelNpaUVRTVB5N2NlMEg4eE1aTlF4SFFJUnFraVh1cHNodjg0VWc1blV3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
