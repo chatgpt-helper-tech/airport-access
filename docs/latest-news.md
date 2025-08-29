@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 13:32:52（北京时间）**
+🕒 更新时间：**2025年08月29日 13:40:04（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | Ministers didn't do cost review of council mergers | [阅读全文](https://www.bbc.com/news/articles/cj9wxnlnrxdo?at_medium=RSS&at_campaign=rss) |
 | Minneapolis school attacker 'obsessed with idea of killing children', officials say | [阅读全文](https://www.bbc.com/news/articles/c4g0lyny7ydo?at_medium=RSS&at_campaign=rss) |
 | Israel struck Gaza's Nasser Hospital four times, analysis finds | [阅读全文](https://www.bbc.com/news/articles/cly6lxn1l4po?at_medium=RSS&at_campaign=rss) |
-| The Druids Oak is 800 years old - can it help save tomorrow's forests? | [阅读全文](https://www.bbc.com/news/articles/cx2xz8r7egpo?at_medium=RSS&at_campaign=rss) |
+| Can the 800-year-old Druids Oak help save tomorrow's forests? | [阅读全文](https://www.bbc.com/news/articles/cx2xz8r7egpo?at_medium=RSS&at_campaign=rss) |
 | European leaders outraged after Russian strikes kill 23 and damage EU's HQ | [阅读全文](https://www.bbc.com/news/articles/cvg3y7m2gz0o?at_medium=RSS&at_campaign=rss) |
 | 'It's a chaotic mess': UK firms warn over US small parcel tax | [阅读全文](https://www.bbc.com/news/articles/cvg3yjnq5zeo?at_medium=RSS&at_campaign=rss) |
 | BBC reveals web of spammers profiting from AI Holocaust images | [阅读全文](https://www.bbc.com/news/articles/ckg4xjk1g1xo?at_medium=RSS&at_campaign=rss) |
