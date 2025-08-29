@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 19:17:36（北京时间）**
+🕒 更新时间：**2025年08月29日 19:25:29（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Minneapolis Catholic school shooter 'wanted to watch children suffer'; victims identified - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPRG8xUmNkZGlIblJwUnRxWHhJbmg0dHE5d0dvbHhzTk1UNzR1VllEX3p1anVGSXRNRHE3S1pkM0Z6SnppekZ3dXdNT014c0dINUJNbXNwN01wdnExM2d0N1Z1RGtxemhFakN2RXVxRW5BTDZfcGh5d204ZlpHTlEyb1ozdjlNSGhaWUxMNXY0YXRGWGdpQ29BbEdTNFNDZE1qN0d1UFdZckw0ZWFtVnVadVlid2ZBRWNDaHNvRzFB?oc=5) |
+| Minneapolis grieves for young shooting victims as police investigate motive - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQaGVsVmd3UHZ2NzNqLW1BaGlqbWIwU2xPTWFMVkJEcENkeURYMUczYXZ1TFNKZTFQck5XMXdtT2FOU3hXZWdOczUtS21ZaXlvWEppR0JRZDhOLWNmQVhKemZlYng3dWxmaVB4OWs2N1A2d2NMSktENmYxblRvYmt4VjBoeW9fYU5LbjlaR0xwTFA5U1FJU2pGTFBBMkFaelhPNFcw?oc=5) |
 | RFK Jr. deputy Jim O'Neill chosen as acting CDC director - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE16WHRTQ2p5QnBibzNwLUV0NWhVSGY1UV9rbzFMMXVVOVZmNEtPYmNIUm5pWlhad1hCMkViZmJKSjdKdFM5RmpCRDFyYkdETVVIOUV4ektXb1E3ZVdqZ3lEaS1ncUxtaXZKa1hpcFhSLUk?oc=5) |
 | Thailand’s prime minister removed from office over leaked phone call scandal with Cambodian strongman - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQNWd5TG5CM2NKRWR4YnNiWm01ckJfNXplS2U4bU5GOUlwTW95U1NzNTBLZTE5ZGZXUGUwMk1IMEpaZTJKSlpkZ3Y2aXRrQ0JoU0RDYmlMS2dvbFAzcHp6SU9nYTk0VzJpSTdPQ0FySm5Gal9tbWxUNlFLMGMwX2dKY2R5c2dZOEJ2aFE?oc=5) |
 | 20 years after Katrina, a Mississippi town is still waiting on FEMA funding to rebuild - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQa1VfS0JUeVdFSmxRVjYwYlppal8tVndRVUxxMlEtRXRsbndzSDdBVGRCaUhmMUdZLUUxWThzZXdsYXlydnlTY2I2bFBBaVZ3YkVOcTltOHVubUxKMUxjdm9GRmhoUWNCMWpvWGs5Q29fX3V4dmVSSDZPUlhLeGU4QlZaZ9IBiAFBVV95cUxPamxBbTlwU0J4M0swX25sZnI5cWM5TjU0ZGtaZXVMUlN0elJVcTJJaXdwOEtKWVBGa3VwUjVlSnN4N0cySHZjaDU5eEdoa1NTUUo0Q0tiVWkzXzRZdUs2aHVZbUNLb3U5UWROTldQNGJoUkFjUFZrdDRETGQ5UVB3N2QzTk51akVf?oc=5) |
