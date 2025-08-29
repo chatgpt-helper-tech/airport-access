@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月29日 12:40:44（北京时间）**
+🕒 更新时间：**2025年08月29日 12:49:39（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | The Druids Oak is 800 years old - can it help save tomorrow's forests? | [阅读全文](https://www.bbc.com/news/articles/cx2xz8r7egpo?at_medium=RSS&at_campaign=rss) |
 | Israel struck Gaza's Nasser Hospital four times, analysis finds | [阅读全文](https://www.bbc.com/news/articles/cly6lxn1l4po?at_medium=RSS&at_campaign=rss) |
 | Man Utd back Amorim as Rooney says club is 'broken' | [阅读全文](https://www.bbc.com/sport/football/articles/c3v3470zl3lo?at_medium=RSS&at_campaign=rss) |
-| MSP locked out of Scottish Parliament after toilet camera claims | [阅读全文](https://www.bbc.com/news/articles/c9wy40rxrvxo?at_medium=RSS&at_campaign=rss) |
+| We're in the dark about future, says Epping asylum seeker | [阅读全文](https://www.bbc.com/news/articles/cdxy0p9jx1qo?at_medium=RSS&at_campaign=rss) |
 | BBC reveals web of spammers profiting from AI Holocaust images | [阅读全文](https://www.bbc.com/news/articles/ckg4xjk1g1xo?at_medium=RSS&at_campaign=rss) |
-| 'It's a chaotic mess': UK firms warn over US small parcel tax | [阅读全文](https://www.bbc.com/news/articles/cvg3yjnq5zeo?at_medium=RSS&at_campaign=rss) |
+| MSP locked out of Scottish Parliament after toilet camera claims | [阅读全文](https://www.bbc.com/news/articles/c9wy40rxrvxo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,7 +30,7 @@
 | Trump preparing major immigration enforcement operations in Chicago next week similar to LA, DHS sources say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOcDRiNDJQNXhnZlllZ1NXMUpMaVk1TU1HS0F5ZHBPQXprZW1rOVFuMXVtOGF6ZmEzY0pJRVRNamJNNzYyUkZTMUc2cnNKbDRxWlpjeWl1NVFNLUc1WE44aDZhQ0tXRUNzT1hjZDdPYVZVTXp2dDFNN2tjSF9WM2VSVjQxRTFqMlNmb2swcG9B?oc=5) |
 | Florida taxpayers may lose $218M on ‘Alligator Alcatraz’ as judge orders shutdown - PBS | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQeWxNbU5lQ1M2V1QwUWRKbFB0VTlzdm9hYzJwNUdzbGRsdVRxMUhnb05DN0swd3RFM1dGTE5HNm1sVnhCMEE4X1ktMk1pRTdFYWhWZEhvX3VyMVY1YVJRVG0tS3dwNXdxaDBTNldQdkN3THZCemFXaE5MRXZaS0ZGUHNXS0dqOWk5MGs4Q1YwWVE0bVRVeTBKajBfSUhuQmpaX3dlc0R0STYtdUFXaHNQNnFiZ0HSAboBQVVfeXFMTklGRmFNaWE3Qmt3Z0dHSVd0aUo2QkluMmdZSl9abmZQazV5VjlMX2ZMTWdrc19WZXBlcDJ3d014OTVEaklqSlduTDZHNC04YlRXaWtoYWpZbzBNeTlvMXkzUUNBR0hnNEQ2bEZ1QWxQQ3lmUmFIbXYwb1g3VlYtOUVtVmJ3cjBDdVZ0NUg5Q1NjcXhndXJ3dGJJRXExRlVsTEJnOF80V3I0Tk5zZGhYTEpQdHBkNmZkMmpn?oc=5) |
 | Officers found guilty in Tyre Nicholas case will have new trial - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE52VDNrYWRERU9IU1lweHQwZVh2UXNWekVTWDJkbFJYdjRyY2tHeXdTVWQzNkVKTGdYcmUwNVZvWUphcFdocGF5QV8yU3BycHluR2FnYWo0VEduUdIBX0FVX3lxTFAyUlI4NnVLQXo1eXItOEdVNWpKMWd3dFl6MWVhZmdPQU83ZlFlRVJjNXBPMUpleVJ4MDBfYUdZQ2ktQjktakg5dlFqUmV3LVFHVXQzVzJxQVY3ZTltOVZj?oc=5) |
-| Abrego Garcia's lawyers ask judge to order Trump administration to stop making inflammatory comments about him - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPMnpCSWQtZ1pyUG1yS0U4bjlva1piRW5pSmxUWEVodHQteXh2YmdvVUJhdWgybks4eXFEaTVMUjZkQlN1djB1dGlBVkx1WkxqSnc2MHl6SEpjd3pTdnRYY0V6RHY0aFJKck1aMW9YN014MGhlR3N4VU5ualYtSVRUcGNHOWJ0ZmVpS21LdVhQMnVGYVZmMFhWd3FkWEpGYS1NclVmYXFoM1HSAa4BQVVfeXFMTkhUbkdPdDB5akpIbG11N3ppS3RlMWw4TFoxV3BOY2pwTlpBbkt0SXlKYzFyU1ROdGJtX3FQZGFJYnY1YjVaTVZYYS1VbmowNzRyelJUOTBsLVY2VFYtS3BuVDgxZ1hieEU0czR1UFA2bXBPVVdqMVA1VndjREN2bGo5aFB3azZhMmVHTTcySFNGN1NTSURKbUh5OVBFcWltZHNVUHd1REZLYmo4TU53?oc=5) |
+| Kilmar Abrego Garcia asks for gag order against Bondi, Noem - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNTU9lX1FSZk44ZmQ4bDBwdFB4S05fTU1Lb3JiLXBGbHRJQzB2OElCRWdnUFVjQXNZeWx1MmpyQVlJN25VaExwWEZWbVVGb1VyUFBXSkN6dms3WXNLVW1CWHFuS1pxbndkQUU4Z2JLYzU2Vjc1N05rRWE1WFFCdjdhcVdPSHM3cHRuMndYc19WZThkMkR2SGc?oc=5) |
 | Jan. 6 rioter Ashli Babbitt offered full military funeral, Air Force confirms - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQT2VsQjQ5MElQMG4yQS1DeUY4WGlIUzFqemtJdVVNRDFwX2tJTTJtSWNxemdWTjdTVUtPU0ZlR2hCTTZ4WWE5MlZ5aFlOSF95c1VUSDhaXzYtaXZMa2JqSkdJNEFERmhQZklSTHFBVUFJODIyaDhEMHJwNTk0Vy0wWFBDcjQxcWVLYmNmeTBVVmVUeGZTRXJFMk9vSXhDUTFEbWVCaEUxRm1JVEVYWjBOa2xSSXRlcnoxZXfSAVZBVV95cUxNWXE1Vl9PWHhWQmxrdk1kMkVaVlVYSjY1VXdRVHU2N2pNS2MzNFJ6S29qS211RUVhQ1czZlVuSU1WRVFETjNOWWVoMW5qQUtJSk5NVWFBZw?oc=5) |
 | Alleged DC sandwich thrower charged with a misdemeanor after grand jury rejects felony indictment - CNN | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOTjhObTdFVjVOUmJfUVJ4ZlRneFhwYmtCVi1WMnBNcUFGaC1LTV9EZEJrX3ZzMVdtS3hrdUNTQVR0R1BkaFFZT0pQb3ZaOFpfU1cwdF90eFJjT1dsbUZUaFZhbkl0bjVLM1FjSmMxWFdIeXBRdnFhQ1d0dnN3bTVHcmM5S0xuVjVsNmFXZzRtWjFPeGYxME9UaDFZYWJFVWpiY21rN2hDcG5sQjhT?oc=5) |
 
