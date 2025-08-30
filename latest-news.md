@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 07:24:27（北京时间）**
+🕒 更新时间：**2025年08月31日 07:32:53（北京时间）**
 
 ---
 
@@ -9,9 +9,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Yemen's Houthi rebels say prime minister was killed in Israeli strike | [阅读全文](https://www.bbc.com/news/articles/c620ykrxedwo?at_medium=RSS&at_campaign=rss) |
-| Councils still plan asylum hotel legal action despite Epping ruling | [阅读全文](https://www.bbc.com/news/articles/cj9wkrykx94o?at_medium=RSS&at_campaign=rss) |
-| The trade in US body parts that's completely legal - but ripe for exploitation | [阅读全文](https://www.bbc.com/news/articles/ce83r56xwj7o?at_medium=RSS&at_campaign=rss) |
 | First week 'critical' to avoid children missing school later, parents told | [阅读全文](https://www.bbc.com/news/articles/cg7jk3rr225o?at_medium=RSS&at_campaign=rss) |
+| The trade in US body parts that's completely legal - but ripe for exploitation | [阅读全文](https://www.bbc.com/news/articles/ce83r56xwj7o?at_medium=RSS&at_campaign=rss) |
+| Councils still plan asylum hotel legal action despite Epping ruling | [阅读全文](https://www.bbc.com/news/articles/cj9wkrykx94o?at_medium=RSS&at_campaign=rss) |
 | Prominent Ukrainian politician Andriy Parubiy shot dead in Lviv | [阅读全文](https://www.bbc.com/news/articles/cjw6ep37469o?at_medium=RSS&at_campaign=rss) |
 | Breach scores hat-trick in record England World Cup win | [阅读全文](https://www.bbc.com/sport/rugby-union/articles/cqjynzvq0j0o?at_medium=RSS&at_campaign=rss) |
 | Watch: The best looks from the Venice red carpet so far | [阅读全文](https://www.bbc.com/news/videos/c9d0zz3145lo?at_medium=RSS&at_campaign=rss) |
