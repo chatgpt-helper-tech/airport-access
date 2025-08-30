@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 08:32:37（北京时间）**
+🕒 更新时间：**2025年08月30日 08:40:50（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | HCMC, Children's Minnesota share updates on Annunciation mass shooting victims - kare11.com | [阅读全文](https://news.google.com/rss/articles/CBMi6gFBVV95cUxOX2xxRkRrZFh1TkM5UmtYVTlDa1JXdUkySGRKTS10c3YxVXV0czczTmlaSHNTSkRrUjRBTWdQZzRGTDZSMnEtcmg3SS1RaTRJbk15ZE5QSXAyNVN3UzN2S3hsMFJncUdJMFdxRVJidFM4LVJVWnhvaEdCTllqY3pCRzAtdnVvYUhvLXQwTDdjUXU0QlJSdDA4dHNjUzQtMC04cDdDWmhzNE9nWTFPT0l2RFppWjZoMXlFZ0tucTZlZ19kdFJjSnppZWphcGZGNmJfSzRwQU5NcUVOd01jZE90YjQzTDh2SjJKSkE?oc=5) |
 | Trump cancels $4.9 billion in foreign aid, escalating spending fight with Congress - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNV0pZX1NVSnAzOGQxdk01c1VZLUp2Y2Y2U2lYTmxjcjdkWmpWUzRYVUJvaW5BYUhGN3FLeHBBNS1WeTFnZXJrRU0xMVRPZkh6SjR5LThwWUpwUjI2em9kdDNNRkZIYUFiUDVrNm1aQlJYekczWjFRQ3VCRXM0Znk1Nlp3b3NWWWdoYXQ2UkcyVmZ1bFdNMzJ4eVplVDQ2VVNqbFBtNGtwRklZNW55ZmlJbUJQQ1ZrN1Q3ZnJaU2VCUUxpMlpVUVI2WA?oc=5) |
 | Katrina inspired a $3B wetlands rebuilding project. Louisiana just killed it. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxOYmtaeVVUTGJPWElFb0I0ZXl2NGZWNG5tMjEwNDYyTmE1akRNekJQbl9mSEhOLW1hX09vM2dhWl83WVEtTy1ONVVzTHdlNjhCaHFFWWN1aFFMUDdmSUFUeXpOS09hc29qTk4yWDRweHhXLUtZbzFRM2hMc3o1VzR0dXBYLU1JQ1ZyQ211SlE3ZTJpZURLbDdyYjQydmlQaFd0Sm16UEloRG9NZTNlck1JNGtnNjRuR2FiRHU5dDBXWjZidw?oc=5) |
-| Trump administration plans to remove nearly 700 unaccompanied migrant children, senator says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQTFU3bk1XajlfdDFmU0dfY2kwdnJZT2RBRTVjVmp0blp4eXBoWWFYR084bHdSOFU1YmtGMnNMUHU3VVZUM05jcEl3Ukswc0M0eEZ4S3dwaFJjbFVvZ0YwTVF5VXRDSkxteXBxcTdBcEd6ZDBpWFQyOVQtLVhFREVjZ09qRHVvLTVHR2NtTUhUVWEwbmE5SDJqU0ptSVRCT1A3dUZSQjNNNy1GMzBaaFpvdlY0d3k5SzJPRVQyQXNZOFc?oc=5) |
-| Missouri governor calls special redistricting session amid Trump pressure - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeDZuN2Zta19hSmRHWVJyak5nOWtHY0RuZXFUeTdCbGJ2R2FVZEpWUTNiRmI2alEtUTE2OEZrSC1BeEJibU9yMGRTS1BJa3dNb2o0MEpWOTBuZzhmOVl0bVliXzBYQTVzTXE5TU1CNm1vWjhUYnk0SE5xTGRuOURsMG96b3pPV2tmM2lWSVBNVQ?oc=5) |
+| Missouri governor calls lawmakers back to Capitol to gerrymander congressional map - Missouri Independent | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxOTm5SWW5nNEtUdDVNMFluQzRpQmVDTHBhdXFQSndNS19JLVhELWcwVHhJRmdnOVNvajBLZTVHdmRVNUlsSGppV2N6ZC1wajd1NG52U1hVSmVQemF3RGw1X1N2RDI5cGd2SElnUTY2bm5VcDZxTGVtbTluajljNEdlS0tpM082ZVhFRTFRSldFQkVMNWRmaG1HT3RIekE1ZmdJT2pQb3RER0wwSnFyX0lHcUR0dVowSF8zdzZ5YXRPM2U4cnNv?oc=5) |
 | Trump administration faces rare bipartisan pushback for firing CDC director - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQdC1yMTFkZDNicnZPSkhicUZGN0pQSGFfeE9KTG1WcW00djQzN0JZSDhyU0poNEJIZEdINmluQUV4VFVPeFVHRnJlVDZrS0FOLWM5N0RpV3lNSlp5VFk1T3NVSXI0bFZtYTcyYUNuY2x2b1ZPR0U0dU1KLThNajUyTWVoekktWTJtNXRPN09nOUU?oc=5) |
 | Social Security whistleblower submits 'involuntary resignation,' citing 'intolerable' work conditions - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQclJsTFBKT21FSEt0LXE2Y094REZBcDdwT2taLUo0Y1NqNFVRcnNMZUNpX0lNOU53aU5ma3J5M2ltbWctNU9aeXp5S09TLTdLUUNPQnA3aXR0U2dEWXVDclZidXE0R0ROd2JYQTJrQU1vSzl4VC16YVBid3haRHVqRk04RmZ0RGhJaGlLYmlhcmdGbFBsMWlKUHNfMDRXalltYU9tQ0YwRHVDaWFIVGV4Uzl2WnBwWENhODBV0gFWQVVfeXFMTjVjeG45bmhSbnlHbHJqR0dadnlmenJDWlpjeWJIM0VQRmdrYjdpcmVUbGVtMHRvRzA1MFhiZmo2MkdscnFTS09pSW5oOFJzWlI2YkJ1M0E?oc=5) |
 | Conservatives Use Minneapolis Shooting in Anti-Transgender Campaigns - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNNTc5dThXRDR0VUIzMXVhWFljZVVfVy1hYVQ0VF9lX1ZjVGpjOHZMMVkzZEM2bW8wb0RNc29nZG1KdElVTmtieW9oN3M5SkRJYjhEX1VjZXNsOUJLR19oTGlCZ0hObW5EN1pyQ1NORkRDY2h6c3VvUEZFTGRKbTRyTEFrcmpiTmExOF9oV3FsVFRwNktjaExsN2ZMLTZFQUhhZExWQ050a3JsUHhyNUM2SVVXZG5WOWZQ?oc=5) |
+| Republican Sen. Joni Ernst will not run for reelection in Iowa, sources say - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxORWZQZXVVM1V6Tzh6dUE5TkRQWkdJdjkta2l0XzIxeDZ2enBmS3F2YjIySGlHT3hHZHNfXzdqUlNOUWVXTHpYYkpGWFVJUEhsSFFRSzg2SmgzUzRLbVpxTU5Tc080RU1PLW9qTkVydVBRRlFwQTNGalFLVVhTMmppWDhR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
