@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 19:57:48（北京时间）**
+🕒 更新时间：**2025年08月30日 20:01:01（北京时间）**
 
 ---
 
@@ -9,8 +9,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Councils still planning asylum hotel legal action despite Epping ruling | [阅读全文](https://www.bbc.com/news/articles/cj9wkrykx94o?at_medium=RSS&at_campaign=rss) |
-| US court rules many of Trump's global tariffs are illegal | [阅读全文](https://www.bbc.com/news/articles/ckgj7jxkq58o?at_medium=RSS&at_campaign=rss) |
 | Prominent Ukrainian politician Andriy Parubiy shot dead in Lviv | [阅读全文](https://www.bbc.com/news/articles/cjw6ep37469o?at_medium=RSS&at_campaign=rss) |
+| What happens next after Trump tariffs ruled illegal? | [阅读全文](https://www.bbc.com/news/articles/cy983g8jr5do?at_medium=RSS&at_campaign=rss) |
 | Gordon Ramsay says he had treatment to remove skin cancer | [阅读全文](https://www.bbc.com/news/articles/ce93lp8d9xro?at_medium=RSS&at_campaign=rss) |
 | Tories call for investigation into Rayner's tax affairs | [阅读全文](https://www.bbc.com/news/articles/cjw6evl4zy8o?at_medium=RSS&at_campaign=rss) |
 | Julia Roberts says sexual assault film is meant to provoke debate | [阅读全文](https://www.bbc.com/news/articles/c5yejdmgzg4o?at_medium=RSS&at_campaign=rss) |
