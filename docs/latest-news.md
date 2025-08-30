@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 14:16:16（北京时间）**
+🕒 更新时间：**2025年08月30日 14:25:03（北京时间）**
 
 ---
 
@@ -23,12 +23,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| US court rules many of Trump's global tariffs are illegal - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9JSUlUYldZT3F1U29adXBMdjctNzREeWktczNJOW1tay1jc29CYVkxcjBkWnZHVk9ydDBpUS10WTkxS1J4VjA2TE9YNlVUVHJVQzZ4SEJpcjNQQdIBX0FVX3lxTE1zLXozNkdxUWF2NHl4RVE4ZG1ESkFOSFVLVW96aTFxYlNtTVZvUFljSGs0b0pYb0JKaDFqb0RMOENzYWpNQkZQNVJwNHBLeXRjcHV6V2dVajFiRTd3SDVj?oc=5) |
+| Most of Trump's tariffs are not legal, court rules: what to know - Axios | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTFB6eVNBbldSM2ZPLUJieXJWNS1SRW5PbEtoN2pCOExfTnZKQUNvQVNLV1BSWUttLWtnekE2Sm81SnVLSi14dWdLTVZCbU5vMkRqZ3pCQmNFTnhfM1lGQ3FSNXppMnFsUlhURjhF?oc=5) |
 | 'There is no message': The search for ideological motives in the Minneapolis shooting - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9wS1pLeDhTZDlEZm9YTlZocEhnM0R5cGt1Z3BOV3dCNWIyOFNQdVBSTFdfcEZUYjNzY3hfd001a1dTRFZ1TUpIZGdSVVk4MWNWNUs3M1BnYWVmSFQ0RzZUZFlLMGNUOFNGX2NJaWszRkxXNWNXQjViT21BTDE?oc=5) |
-| CHP to protect ex-VP Kamala Harris after Trump pulls Secret Service detail, sources say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQSDNDVmxmWWk5dF85WUdoTkJSelBQdUhQLVFub0hBWXVfQlF6U3dDbzkzS2htdmJSMHlLdGIzUWV3dFJ5WXN0dWJZQlFuUzNMaHR1NkxNb1c5MVB2bmEycmN4c3lZRkZqaXpPRjZHUmM5WWI1UjZrLWlRbnJSaVo0SDZ0MG5FVWs?oc=5) |
+| Trump ends security protection for former Vice President Harris - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNR1Ruemk4c25ubm9WeEdsMkttaXlPT2hUTXBSQl9MXzNkZGpzMTNiSElabW9LT1N1SnQ2eWNFMmZQWnRUQWNwNVdnVktrYTU4ZkVleFRKSVN5ZXRqR1BsZy01ZWtCTnZiSXBQMVAwTm5XNWlXWkwyaWo0SEdQdGJjdW5GVzhZSEx6NGw4Q1RDXzBkZHRReElObDI3TVozNjN0SFdKa19BajZRSG1qbFVscmNB?oc=5) |
 | Judge says Trump effort to expand speedy deportations of migrants violates due process - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQdUNpeWt2Zm56WWJUaUJRYldVWjI5cW9fT3YxbTFJRzRVcklQUE55cGY0WXRJQnFGdFlhZmdiNWx4RW1DdHJuM2xNNnQta1ByRnZFVG1tWHNNX0RlaVpFcWlWSlJPOHZuTnpSNWNyR0VtZG41UHR0WTY2QTdNcDNfTUR5UjhZX3hI?oc=5) |
 | With CDC in chaos, scientists and physicians piece together replacements for agency's lost work - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPX3I3THJIdUtBVHNsNjZKM2ZYX2tveERUbUdJRV9VcDlncGdqU0h1enVnMTBZNFpHbW9KY3JURHlzc3ZxTXF3OUlwVUZHWXZoOGdRYy01R3RuMkpMaWl6SE1mZEdha3JEcjFtelN4N2Z4RWx2TWNKUkRZaEZsMkpBckEwQnpVVExMYUc1cW1DVUdnMXZQTXJR?oc=5) |
-| U.S. blocks Palestinian president from attending UN General Assembly - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOZGV4bUNVVGFaRWxOV3hYTVBrOFpPN0FMTjZEcV8yYmlyVlU0eEFFUUl5czBueGotR0ZHRnpTclpjRkVkcXJxWHVwUjhEX2VibWkwN3hZYkRjbFFiYUpoQlVGTnhyZFpmTTZSS1NrQWZGMDE1U204M3pJTUktVXpBbU1fdjh0Zw?oc=5) |
+| Trump Administration Bars Palestinian Officials From U.N. Meeting in New York - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5HZFBoRm5IejBfQjhiMzFyaGJzTWVhVmdCWjU1bmlITzJrREFPVE5Lc3k2YUhUVm01QkczYUplUEN3SWlCbWZwbm5TbGtvSkdGSXVCa2hlWjZBSlBlV0VSbC1fQzBuWnhBWVJ5MFFSN2J5ZGtvY2tvSFRGZk9wQQ?oc=5) |
 | Social Security whistleblower quits after saying Americans’ data was compromised - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQWUY0Q1RoLXpMZmp6YzlKcy1iTnNsQzZfM2ZYbWZ4YTBYM3BSM0JJdkJLdGdlaXNNYjFMS1ZpNExvU2hRNHRVQzEyRDgzWmhGdXZ4SDUwaUl1N1gyVDNLOGY3VzJjNDJWQkZtNGNKYWFMWlA4WGEzek1wLXpYY0xNenJIdw?oc=5) |
 | Trump cancels $4.9 billion in foreign aid, escalating spending fight with Congress - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNV0pZX1NVSnAzOGQxdk01c1VZLUp2Y2Y2U2lYTmxjcjdkWmpWUzRYVUJvaW5BYUhGN3FLeHBBNS1WeTFnZXJrRU0xMVRPZkh6SjR5LThwWUpwUjI2em9kdDNNRkZIYUFiUDVrNm1aQlJYekczWjFRQ3VCRXM0Znk1Nlp3b3NWWWdoYXQ2UkcyVmZ1bFdNMzJ4eVplVDQ2VVNqbFBtNGtwRklZNW55ZmlJbUJQQ1ZrN1Q3ZnJaU2VCUUxpMlpVUVI2WA?oc=5) |
 | Missouri's Republican governor calls special session on redistricting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPSE9rT19NbFJXN0JnQzhqUThSQTJtUzhxakllakFRN3E5bFhxZEs0TUN4bGt0MzFIUDNVSTlxUktJQjRxR3llSUMxcVZ0T1ZXUUN4OTRjUTFmdHFjbk91MGlHdF9SYVhRejZJelNUS0V0X3RNYkVHMHhwaXlhUWFaTUYxcjhGQk9wQXpqS1lFUElIZzVySmIya0dYcF95Z9IBowFBVV95cUxPNl95SnduRlBnek14eFZtb05fNm05OXNFS2ctTlh3aFotZS1PaHVWVklHZDVkRzVQaEhTWWljMzgzSFRoeHNlNGhmR0xweko0clFGeGdFUnNPc2ZSSnJCZ05xVUhqRWZoeWNqREZTTnNOSFdIelVfRHliLWZMcVYwUzlGMm1uazgwNVVTcW1WaVFHR29IM0hqblFxTUJ2NTVxZ3B3?oc=5) |
