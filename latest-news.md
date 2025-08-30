@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 10:00:16（北京时间）**
+🕒 更新时间：**2025年08月30日 10:08:20（北京时间）**
 
 ---
 
@@ -10,13 +10,13 @@
 |--------|-------------|
 | Police make three arrests during Epping protest | [阅读全文](https://www.bbc.com/news/articles/c24z0105m24o?at_medium=RSS&at_campaign=rss) |
 | US court rules many of Trump's global tariffs are illegal | [阅读全文](https://www.bbc.com/news/articles/ckgj7jxkq58o?at_medium=RSS&at_campaign=rss) |
+| Brothers set new record for 9,000-mile Pacific row | [阅读全文](https://www.bbc.com/news/articles/c9876y4z4rgo?at_medium=RSS&at_campaign=rss) |
 | US blocks Palestinian leader from attending UN meeting in New York | [阅读全文](https://www.bbc.com/news/articles/cjdym32z9v7o?at_medium=RSS&at_campaign=rss) |
 | Harry set for UK visit but will he see his father? | [阅读全文](https://www.bbc.com/news/articles/cwy0dgpyq35o?at_medium=RSS&at_campaign=rss) |
 | 'Our baby was robbed of dignity' says couple after funeral director kept body at home | [阅读全文](https://www.bbc.com/news/articles/cn85w4406g9o?at_medium=RSS&at_campaign=rss) |
 | BBC Proms performance interrupted by pro-Palestinian protesters | [阅读全文](https://www.bbc.com/news/articles/c4gl1kx1091o?at_medium=RSS&at_campaign=rss) |
 | Protesters and police clash after death of taxi driver in Indonesia | [阅读全文](https://www.bbc.com/news/articles/cjw6el72xd4o?at_medium=RSS&at_campaign=rss) |
 | Barrier being built around besieged Sudan city, satellite images show | [阅读全文](https://www.bbc.com/news/articles/c4gz1ekdee3o?at_medium=RSS&at_campaign=rss) |
-| Zelensky rejects proposals for buffer zone to end Ukraine war | [阅读全文](https://www.bbc.com/news/articles/c04r0z1pr25o?at_medium=RSS&at_campaign=rss) |
 | Tories call for investigation into Rayner's tax affairs | [阅读全文](https://www.bbc.com/news/articles/cjw6evl4zy8o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
