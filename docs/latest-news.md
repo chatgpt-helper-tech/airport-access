@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 21:01:03（北京时间）**
+🕒 更新时间：**2025年08月30日 21:08:49（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Appeals court strikes down Trump’s tariffs as illegal but leaves them in place - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeEtxOGJIS0ZmY0JQNW4tT2E5bTBCTnZsS09tTVNzTjRBeHdrYzdvNzlFRndNQUxFd0l4d2lVLUU0UDU3SGw5WWFvN3JtYXlqLUhvNHhkMXE4VDB0MlFOVVRlek9ZN3p5emZNUlF2Q0o2MFdqSjNDWkhqdV9MUGpwd2pTNFNHRmg3NWVYck5rQQ?oc=5) |
+| An appeals court said Trump couldn’t levy his tariffs. What happens now? - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQOHpkZFljWVFGcWNoVzB3RDV5T3BBUXJwQkhFTnFhVXVpeHpRaHVTOTl2SU9SRy1KT1pUWWR2aDNRd2VaZmU3eThJOXgwN3RycENDOXFnR0M2Y3FxVW5ubEFhR1Z5Wm1WYVlNS19UaVl5dVczRGJYYkJmb2FWUHdOeFhuZnd5MTRITmZCX3NlLU52dw?oc=5) |
 | Attorney General Pam Bondi fires DOJ staffer for alleged obscene gesture toward National Guard members - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPSjZETXJwdWVkTkJmempnNDJmYlo2bkJTRzFrallTUk1LRXRDbDNIOGIyOEV4WEdmcE5vVFNpMS1Zekhxek5RT0hkclNIMkJUUnhqUTRxVjAzYWNINGFkNjE2TEVCaUg3SVNTbjVhaEV0bG1kd0c5a3lfT2ZKTVVTZlN4WjF1MDJwWXFzb2FJb1VnMmdidlF2anBqTmhlZ1lLM1ZObjZtcVM4M0o4SEdPaXVHaWFLM0NzcEFQNS1CY0RrM3pNZnFKUDA4dm5jZ9IBVkFVX3lxTFBYRmlGOVNFQ1pMbmJvX2ZTQjJZSUJGUlh2aGVSS2VZSzVlNzcwMkVhSUFxLTdhU3BBekg0Z3o2THVqeGREdW1Sbk9LSW4wQzdTcGVkdkdn?oc=5) |
 | The new head of the CDC has no training in medicine and once helped Peter Thiel develop man-made islands floating outside U.S. territory - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOR2ZtMVN5SWpvTjVvb0x3aFF4WDVLSkRGZV9mbnV6ZjUyU2VoS1N2aGxBWUVvN2dLSElVM2hhaXc1aG1vUFg1TE5seXNsbFE4QjQ3ZXlIRmNoRXViWEtSTmFXMVQ3R3B5YTJ4YTNjRlJteGQzUUp1ZVlXYzBKVk90c2h1N3pfczVFUkZSZEdqTUQ1dkxZSmxB?oc=5) |
 | Andriy Parubiy: Ukrainian lawmaker shot dead in Lviv, officials say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9kcEhDc0NSS2dBaTU5ZUNrV2V3Z0NjVG96Y2VzeHk3dFR6NS1GN1I5bVY1VEt2SWQ5eTNldk9BLW04UlQzbGJoeXdkYmlIUW9YSEk1VHhkdmhLbi02dmpvdzJLc2czR19Tam11dzVKNVZWRW1mNUxmSVhTSlo1QQ?oc=5) |
