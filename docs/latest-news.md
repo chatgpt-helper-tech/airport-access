@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 12:25:47（北京时间）**
+🕒 更新时间：**2025年08月30日 12:33:21（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Most of Trump's tariffs are not legal, court rules: what to know - Axios | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTFB6eVNBbldSM2ZPLUJieXJWNS1SRW5PbEtoN2pCOExfTnZKQUNvQVNLV1BSWUttLWtnekE2Sm81SnVLSi14dWdLTVZCbU5vMkRqZ3pCQmNFTnhfM1lGQ3FSNXppMnFsUlhURjhF?oc=5) |
+| Trump’s global tariffs are unlawful, appeals court says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQbkRNVGc1UFREclNVQlUxMTV0Q0ZuVlczYzlXMVRMYlJJaE9nMFRHSHotYnZYaEhqVXZ5NkpNQklOWmR6WXk2R2xhbDZCTGh3NXNVUmdKY3RPdXM4eXV3c2FOcmFJWkFtSTk0ZVJQNEdQNWhaRE1hVHdsM3BISUtsN0E0WXo4Q29Dem5KZ2J6c0hGb2_SAZgBQVVfeXFMTUZTczBVOW9RbFVrY1dBZlJtWEZJLWpraTNHVmNucXVYbUZQV0tDdWNwZ2JWVllOWVl1b2UzS0g5bTBTdXhrc044amM4N21hQVE1SFZhc052em9EY283cEJTSU0tOU85UHprUk1mS0g0ZExWWkotMGtVWXJvcXJpdWpVQVR2MjB4Q3JpV3p1MG1GLWxhVGJLRDk?oc=5) |
 | CHP to protect ex-VP Kamala Harris after Trump pulls Secret Service detail, sources say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQSDNDVmxmWWk5dF85WUdoTkJSelBQdUhQLVFub0hBWXVfQlF6U3dDbzkzS2htdmJSMHlLdGIzUWV3dFJ5WXN0dWJZQlFuUzNMaHR1NkxNb1c5MVB2bmEycmN4c3lZRkZqaXpPRjZHUmM5WWI1UjZrLWlRbnJSaVo0SDZ0MG5FVWs?oc=5) |
 | 'There is no message': The search for ideological motives in the Minneapolis shooting - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9wS1pLeDhTZDlEZm9YTlZocEhnM0R5cGt1Z3BOV3dCNWIyOFNQdVBSTFdfcEZUYjNzY3hfd001a1dTRFZ1TUpIZGdSVVk4MWNWNUs3M1BnYWVmSFQ0RzZUZFlLMGNUOFNGX2NJaWszRkxXNWNXQjViT21BTDE?oc=5) |
 | Trump administration faces rare bipartisan pushback for firing CDC director - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQdC1yMTFkZDNicnZPSkhicUZGN0pQSGFfeE9KTG1WcW00djQzN0JZSDhyU0poNEJIZEdINmluQUV4VFVPeFVHRnJlVDZrS0FOLWM5N0RpV3lNSlp5VFk1T3NVSXI0bFZtYTcyYUNuY2x2b1ZPR0U0dU1KLThNajUyTWVoekktWTJtNXRPN09nOUU?oc=5) |
@@ -32,7 +32,7 @@
 | Social Security Admin.'s chief data officer resigns after filing whistleblower complaint - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQRjZaV1c5MGExOW8tXzU5SFRia3JMTWxSTV9TV243cE9pTDFsMWw3d1FoaXZsYmtoUEZhMC1udG1hWnl0c2FwYUtYQnFRcGQyU25oOXFkUUd5NGk0V2Y4eEZIVkRyT1lRM2FJdEpLS3huc2R4TVljdkhpeUJqbFBXVGhmSzBqdjY1Ynh1S1REZEktRmx2cGR0MzRpVC1ZV2lTS2dSZHB3ZWJnQlp6U1JDem1lNUJLd9IBuwFBVV95cUxQbzBwaUdFNFdKZWZhb0VTZDJtMW83V3A5LUlLWHdZRldzNnlQb2RSaFBuT0k4aFJ2RVFQclN1SnNHZ2szMk9WZFdOSUlnMHFNYjg4VTdHZ3l1T1ROQmt2ZG81bmJCM3ZLSDdLYWJ4NWJBVWtEYnFrSHpPd1JQZEYxMWZza2lOMkNEWVdXQ1BpRmx5TV95NnUxMnV3QkQyR3J4SlJxNFlOd184Z1Nxd3oyN1NPbG13WXpsNHNz?oc=5) |
 | Trump blocks $4.9B in foreign aid Congress OK'd, using maneuver last seen nearly 50 years ago - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPQ253MjgwRklsNDZiRF9lektMUXpWRlFvVmVxMUJLcGRreTdMRDdxVHFFaFNnRllKaUVoR2FLRFRXdC1wSWNpWXIzbGNDTmNINjhzdzEwNUs4NFZhWndDWWN3bklzRi1tbERVSlZXX3h4XzM1MUZsWF81X1ZiVjBUX1VuVTU3dWdtUHNpaWVtX3BsVXpBbmpLTjduWQ?oc=5) |
 | With newly approved maps in Texas, GOP puts its gains with Latinos to the test - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxOYzFSSjJOQ1NpaUZVTjJ1TVcwQzJyaXFNY1QxeVlSYkpoVGF3T0NYeTN6SDJFbU9XVWpSazZDRnQ5MEpIRjlHaldUNTJ3N0dCMklGeTJJNVV6a2N3LTJncWZHNWZXMWptV0JidnZ6VkRTek1wOFQ1YXVEcjQ0c2V1RGFEUDhzYjluUGNYOXF6bWl2OHZ6ekIya1hvcG45Z2lTcEduRnlFT280UjlSWnlWSDBoTGl5eG1ZQTJOeWt6ZXIwdw?oc=5) |
-| Missouri’s governor orders redrawing of U.S. House map in response to Trump’s urging - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPSThVUjZQYlBGLWZTLVN0dE5zWHZxSExyejJkd2s3VEhxU2laUWJCMzBYM3cySko1RGhNaDVGT1d3OEdWc05ZRldFaXZVcHVWWlRVbUtFZEJ0bHU5ZUo0eXNqS3pQOUJyZW9Ra1dMRk41U0l1cU1ENFlBbFZhMkZMdzNMNk9kZElra3Q4VkstRUpGTzZ4VGZUQnJ5UDN4a2tYR3p0VXFKQmx6SDZlajN2b2RQMnh6V3RpV2FZ0gHAAUFVX3lxTE80amRMMUxrOUFOOHpQZXJLVjRTSDNld0E0aVlpQV9OVzUwcW1CTDRXSjMwb214N0F6MlpId1ROaFBKTUlOOGtuQUV2elhvSTFRUUxiVUl2UlFremVPZTZYVXRuMlNzakUwZURFc1FUbVhkaXJ2eGdra1NXR1ZjVE9JS2F0VnNralpkZkgyMl9GTUdmOHg2MzVsWl93UVpzUm05UEJfMXNkQllBM2tIcnZacUI4RjA5ekEwRDNyTllXMA?oc=5) |
+| Missouri's Republican governor calls special session on redistricting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPSE9rT19NbFJXN0JnQzhqUThSQTJtUzhxakllakFRN3E5bFhxZEs0TUN4bGt0MzFIUDNVSTlxUktJQjRxR3llSUMxcVZ0T1ZXUUN4OTRjUTFmdHFjbk91MGlHdF9SYVhRejZJelNUS0V0X3RNYkVHMHhwaXlhUWFaTUYxcjhGQk9wQXpqS1lFUElIZzVySmIya0dYcF95Z9IBowFBVV95cUxPNl95SnduRlBnek14eFZtb05fNm05OXNFS2ctTlh3aFotZS1PaHVWVklHZDVkRzVQaEhTWWljMzgzSFRoeHNlNGhmR0xweko0clFGeGdFUnNPc2ZSSnJCZ05xVUhqRWZoeWNqREZTTnNOSFdIelVfRHliLWZMcVYwUzlGMm1uazgwNVVTcW1WaVFHR29IM0hqblFxTUJ2NTVxZ3B3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
