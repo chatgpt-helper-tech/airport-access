@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 17:56:41（北京时间）**
+🕒 更新时间：**2025年08月30日 18:01:25（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Federal appellate court upholds ruling striking down Trump's tariffs - Axios | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE5HMFZILXRDYmhJOE1TTUhwTjVJMWRUelI4WC1UU1ZHSS1VQm5XU0RKVmc1RzdrejZUcXEyN2tlQV9kekZ3V0UwOWtBbHNPelowX29hb01QY0I0VmE1Wjd2d2xvTll3cHVZZG80?oc=5) |
-| Search warrant reveals Annunciation shooter used AR-15-style rifle, standard military ammo - kare11.com | [阅读全文](https://news.google.com/rss/articles/CBMi6wFBVV95cUxOSXBCcms4TFV2bXp0dXNYVTRHRUJlNmF6Z2tra3A3NGstRk9ZeU54SzgtRFFNNWNSYnptbHNwVjM2ZkFabE9NWVpaaDQ0QjlBLXdJb2NNSHhtXzBSSWI0LWdvSzRnSVRLdDRXUnpqX2pmVHViOHZSY09TdjFZUGVrMHR2ejFRT1FPVDBrVnRJYl9JR1lEeUF1cFZJYjJFNmgzU0FUZmpGRHpISFI4U1oyQ215Q2dFRzBvRG5tampBdEZXaER6a216dEhOc0tPOGRLdzAzMDM4OWh0VGt6Ynk2MGJUck1JZUpUS2dR?oc=5) |
 | The new head of the CDC has no training in medicine and once helped Peter Thiel develop man-made islands floating outside U.S. territory - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOR2ZtMVN5SWpvTjVvb0x3aFF4WDVLSkRGZV9mbnV6ZjUyU2VoS1N2aGxBWUVvN2dLSElVM2hhaXc1aG1vUFg1TE5seXNsbFE4QjQ3ZXlIRmNoRXViWEtSTmFXMVQ3R3B5YTJ4YTNjRlJteGQzUUp1ZVlXYzBKVk90c2h1N3pfczVFUkZSZEdqTUQ1dkxZSmxB?oc=5) |
 | Judge Blocks Pillar of Trump’s Mass Deportation Campaign - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxONWwyYmVDMG5nNU9BM1A3Mjkya2JoRjFCMmdNLWRUNlU1eHBVZFIwUHBnd3RoVzl1Z2MzMTlmWllMb2RVMFJFMzEzZGFHTUsyTkhuaWQ0TFV5bURKc1pjcm9iWEh2WlRLbzN5N3g3R2FuSDl3TnNpZjhiOGhZLXFYaWJ5Wl9VbXpw?oc=5) |
+| Search warrant reveals Annunciation shooter used AR-15-style rifle, standard military ammo - kare11.com | [阅读全文](https://news.google.com/rss/articles/CBMi6wFBVV95cUxOSXBCcms4TFV2bXp0dXNYVTRHRUJlNmF6Z2tra3A3NGstRk9ZeU54SzgtRFFNNWNSYnptbHNwVjM2ZkFabE9NWVpaaDQ0QjlBLXdJb2NNSHhtXzBSSWI0LWdvSzRnSVRLdDRXUnpqX2pmVHViOHZSY09TdjFZUGVrMHR2ejFRT1FPVDBrVnRJYl9JR1lEeUF1cFZJYjJFNmgzU0FUZmpGRHpISFI4U1oyQ215Q2dFRzBvRG5tampBdEZXaER6a216dEhOc0tPOGRLdzAzMDM4OWh0VGt6Ynk2MGJUck1JZUpUS2dR?oc=5) |
 | Social Security whistleblower quits after saying Americans’ data was compromised - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQWUY0Q1RoLXpMZmp6YzlKcy1iTnNsQzZfM2ZYbWZ4YTBYM3BSM0JJdkJLdGdlaXNNYjFMS1ZpNExvU2hRNHRVQzEyRDgzWmhGdXZ4SDUwaUl1N1gyVDNLOGY3VzJjNDJWQkZtNGNKYWFMWlA4WGEzek1wLXpYY0xNenJIdw?oc=5) |
 | U.S. revokes visas of Palestinian president, other officials ahead of UN General Assembly - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQNlNvSkQ0WjhsNVRjNHIzY0xJUmZLbE1FQ2xzRUZ6a242UGl6cmV5aUhmNlJWdC1wNEFZUzFKclFSdUpMN0k0QjdOdWktSTlJMmF5cDg0SVloN0xSMTE0LVJScWpac1I5aWZUMkNYcHhfQzdXeTY2bGJZUmlSOGprdDdDdzd1WWNQV2huYnlGbXdvYkY2RGpBLWVJaXg4eEV0YTRXVzdNanJPMVFEMWg5ZC1HVWc5NzN3OF9jRzlfb9IBxAFBVV95cUxNR1Q5REE3RTVpVmRJaUp0bXdUX194NmhGbi1IcExibVRndVpOOUM3SWdHN2tNd2hMd2pJLVZHNm82THl1dktkM0M5ZXNWdVJuRFdaMVBrZEFkLWtBZ1VjMEljeFdOQTUyODZYdEN0OTBvYjdRSFBmeG5yckFVT1VteV9QQ2I5Qi1SZGJRTzNuTTJGdm1LMF9EcGwxeC1TQ05VeDlnajZvV21GZlZQZDFyOEUwMW1xNzk4U2RwQUVlU0pObDRt?oc=5) |
 | Missouri's Republican governor calls special session on redistricting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPSE9rT19NbFJXN0JnQzhqUThSQTJtUzhxakllakFRN3E5bFhxZEs0TUN4bGt0MzFIUDNVSTlxUktJQjRxR3llSUMxcVZ0T1ZXUUN4OTRjUTFmdHFjbk91MGlHdF9SYVhRejZJelNUS0V0X3RNYkVHMHhwaXlhUWFaTUYxcjhGQk9wQXpqS1lFUElIZzVySmIya0dYcF95Z9IBowFBVV95cUxPNl95SnduRlBnek14eFZtb05fNm05OXNFS2ctTlh3aFotZS1PaHVWVklHZDVkRzVQaEhTWWljMzgzSFRoeHNlNGhmR0xweko0clFGeGdFUnNPc2ZSSnJCZ05xVUhqRWZoeWNqREZTTnNOSFdIelVfRHliLWZMcVYwUzlGMm1uazgwNVVTcW1WaVFHR29IM0hqblFxTUJ2NTVxZ3B3?oc=5) |
