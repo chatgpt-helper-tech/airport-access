@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 23:25:50（北京时间）**
+🕒 更新时间：**2025年08月30日 23:33:48（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | The new head of the CDC has no training in medicine and once helped Peter Thiel develop man-made islands floating outside U.S. territory - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOR2ZtMVN5SWpvTjVvb0x3aFF4WDVLSkRGZV9mbnV6ZjUyU2VoS1N2aGxBWUVvN2dLSElVM2hhaXc1aG1vUFg1TE5seXNsbFE4QjQ3ZXlIRmNoRXViWEtSTmFXMVQ3R3B5YTJ4YTNjRlJteGQzUUp1ZVlXYzBKVk90c2h1N3pfczVFUkZSZEdqTUQ1dkxZSmxB?oc=5) |
 | US bars Palestinian leader Abbas from UN as allies back statehood - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNNGVRckNwU1l0N0U4WHI5Z3lEaEFrZUFWQ3hhaXdweDlWTEtqMXItNllmcWtGRmM3QkdJeEtXejRZWmd2Nnoxek9FWlVGbHpzLWZQdjE2RThHYU1obmx6Xzd3bnYza09qZVBPLUdJUmM5Q2FRNU80RzczZU9CUkpqYWJ3b2xQUDAtNTBNRmpRZzByNmVXMWdDQUd1X0I0VEg0T2Fib000ZVpGY184S3Q5Sg?oc=5) |
 | Firefighter arrested by US border agents was on track for legal status, lawyers say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNenV3YkQ5a0xBS1lULUFVTXJkcDE5dzR3SF83Yml3REFnSTdvR3JISjNFYm14N0R4VlJkbklyM2ZEX1J2X2pjSEh3Nkk1S2I5RjBtVUFYSjVBb2xWcXFmbU9hS2pIUml5R2ZNTnhNeTdKcGkxZkRxMTRpbEJBQUF0U2VWaUY3TldBaFNILQ?oc=5) |
-| Missouri’s governor orders redrawing of U.S. House map in response to Trump’s urging - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPSThVUjZQYlBGLWZTLVN0dE5zWHZxSExyejJkd2s3VEhxU2laUWJCMzBYM3cySko1RGhNaDVGT1d3OEdWc05ZRldFaXZVcHVWWlRVbUtFZEJ0bHU5ZUo0eXNqS3pQOUJyZW9Ra1dMRk41U0l1cU1ENFlBbFZhMkZMdzNMNk9kZElra3Q4VkstRUpGTzZ4VGZUQnJ5UDN4a2tYR3p0VXFKQmx6SDZlajN2b2RQMnh6V3RpV2FZ0gHAAUFVX3lxTE80amRMMUxrOUFOOHpQZXJLVjRTSDNld0E0aVlpQV9OVzUwcW1CTDRXSjMwb214N0F6MlpId1ROaFBKTUlOOGtuQUV2elhvSTFRUUxiVUl2UlFremVPZTZYVXRuMlNzakUwZURFc1FUbVhkaXJ2eGdra1NXR1ZjVE9JS2F0VnNralpkZkgyMl9GTUdmOHg2MzVsWl93UVpzUm05UEJfMXNkQllBM2tIcnZacUI4RjA5ekEwRDNyTllXMA?oc=5) |
 | Judge Blocks Pillar of Trump’s Mass Deportation Campaign - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxONWwyYmVDMG5nNU9BM1A3Mjkya2JoRjFCMmdNLWRUNlU1eHBVZFIwUHBnd3RoVzl1Z2MzMTlmWllMb2RVMFJFMzEzZGFHTUsyTkhuaWQ0TFV5bURKc1pjcm9iWEh2WlRLbzN5N3g3R2FuSDl3TnNpZjhiOGhZLXFYaWJ5Wl9VbXpw?oc=5) |
+| Missouri’s governor orders redrawing of U.S. House map in response to Trump’s urging - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPSThVUjZQYlBGLWZTLVN0dE5zWHZxSExyejJkd2s3VEhxU2laUWJCMzBYM3cySko1RGhNaDVGT1d3OEdWc05ZRldFaXZVcHVWWlRVbUtFZEJ0bHU5ZUo0eXNqS3pQOUJyZW9Ra1dMRk41U0l1cU1ENFlBbFZhMkZMdzNMNk9kZElra3Q4VkstRUpGTzZ4VGZUQnJ5UDN4a2tYR3p0VXFKQmx6SDZlajN2b2RQMnh6V3RpV2FZ0gHAAUFVX3lxTE80amRMMUxrOUFOOHpQZXJLVjRTSDNld0E0aVlpQV9OVzUwcW1CTDRXSjMwb214N0F6MlpId1ROaFBKTUlOOGtuQUV2elhvSTFRUUxiVUl2UlFremVPZTZYVXRuMlNzakUwZURFc1FUbVhkaXJ2eGdra1NXR1ZjVE9JS2F0VnNralpkZkgyMl9GTUdmOHg2MzVsWl93UVpzUm05UEJfMXNkQllBM2tIcnZacUI4RjA5ekEwRDNyTllXMA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
