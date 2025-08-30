@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 00:56:47（北京时间）**
+🕒 更新时间：**2025年08月31日 01:01:06（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | 20 Years After Katrina, New Orleans Is Still Home for Those Who Left - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE8wWm5ENXhWcXVZMk5EdWlTbWEzR2phWEpHOUlJQlVadnNaUzg3U0pVa3ZmemNGRlRWdUIwZ3ExbWdiUnhNTjlBUlVUWkpOa3NUQVJIZnJZc2VVX1dnZGZWQS1jbTQ2WDg1akxVZ3ZtdlZ0eHY3c2dmWUNjSQ?oc=5) |
 | US bars Palestinian leader Abbas from UN as allies back statehood - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNNGVRckNwU1l0N0U4WHI5Z3lEaEFrZUFWQ3hhaXdweDlWTEtqMXItNllmcWtGRmM3QkdJeEtXejRZWmd2Nnoxek9FWlVGbHpzLWZQdjE2RThHYU1obmx6Xzd3bnYza09qZVBPLUdJUmM5Q2FRNU80RzczZU9CUkpqYWJ3b2xQUDAtNTBNRmpRZzByNmVXMWdDQUd1X0I0VEg0T2Fib000ZVpGY184S3Q5Sg?oc=5) |
 | Border Patrol arrested firefighters as they were battling a wildfire - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNdjNjRkhicGlVWWZJeGRESlJjT2ptZW1qbF9zbUpaTUU1UXZXMl9ZRlRvT1Q4NTdwUTJXZG1KdzdHSF90bGZBM0JSc0hwMFZxTU5zZFRHQmlsWXIyemhFY0Z5MVlNZ1ZlMG8tNWllN3JySHNNWkR3QkdPYjlwVm11NUhmSXc1UkNYWFNJeVlnX0g3OTQ1NVNScVVwWWNuLWxGSTFoeXp3?oc=5) |
-| Generations celebrated weddings, baptisms and first communions at this Minneapolis church before it became a site of tragedy - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNMHJlOXdwOG9fWFA2SmVWS2F1NlRWNTFIT3AyNDM0cVZzN3pmd0paOUxETVdwU25zMDlCQVlwT29ZTDIyazRfY3NsMVo2VXVpbUMtRWZCNGZQamhwdVZqUjBwNlJ5WGQ3VUZLWEdReldmQ19hYzBoa20zMW4xc0pWb1ozejVjaWJHTFZ0Uw?oc=5) |
+| Federal judge blocks Trump effort to expand fast-track deportations - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQWjI4SUU3TEUxY1NIUVJUczh4ME0ySGtsM0FndWZ2RGI4TkJxMmpQYnI2WXRHN2tlUjJhdkVlN09VU19nVktWM2tibnd3WHEtcWtueERYX1VvZ2dEN3M0VURKQTNnWFhNbzI2LW5GeGc1cGcxbjFZV25WNjZIaHJYSjZtZnA2VUZzbWFV?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
