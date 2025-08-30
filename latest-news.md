@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 14:25:03（北京时间）**
+🕒 更新时间：**2025年08月30日 14:32:23（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Most of Trump's tariffs are not legal, court rules: what to know - Axios | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTFB6eVNBbldSM2ZPLUJieXJWNS1SRW5PbEtoN2pCOExfTnZKQUNvQVNLV1BSWUttLWtnekE2Sm81SnVLSi14dWdLTVZCbU5vMkRqZ3pCQmNFTnhfM1lGQ3FSNXppMnFsUlhURjhF?oc=5) |
 | 'There is no message': The search for ideological motives in the Minneapolis shooting - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9wS1pLeDhTZDlEZm9YTlZocEhnM0R5cGt1Z3BOV3dCNWIyOFNQdVBSTFdfcEZUYjNzY3hfd001a1dTRFZ1TUpIZGdSVVk4MWNWNUs3M1BnYWVmSFQ0RzZUZFlLMGNUOFNGX2NJaWszRkxXNWNXQjViT21BTDE?oc=5) |
-| CHP to protect ex-VP Kamala Harris after Trump pulls Secret Service detail, sources say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQSDNDVmxmWWk5dF85WUdoTkJSelBQdUhQLVFub0hBWXVfQlF6U3dDbzkzS2htdmJSMHlLdGIzUWV3dFJ5WXN0dWJZQlFuUzNMaHR1NkxNb1c5MVB2bmEycmN4c3lZRkZqaXpPRjZHUmM5WWI1UjZrLWlRbnJSaVo0SDZ0MG5FVWs?oc=5) |
+| Trump ends security protection for former Vice President Harris - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNR1Ruemk4c25ubm9WeEdsMkttaXlPT2hUTXBSQl9MXzNkZGpzMTNiSElabW9LT1N1SnQ2eWNFMmZQWnRUQWNwNVdnVktrYTU4ZkVleFRKSVN5ZXRqR1BsZy01ZWtCTnZiSXBQMVAwTm5XNWlXWkwyaWo0SEdQdGJjdW5GVzhZSEx6NGw4Q1RDXzBkZHRReElObDI3TVozNjN0SFdKa19BajZRSG1qbFVscmNB?oc=5) |
 | Judge says Trump effort to expand speedy deportations of migrants violates due process - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQdUNpeWt2Zm56WWJUaUJRYldVWjI5cW9fT3YxbTFJRzRVcklQUE55cGY0WXRJQnFGdFlhZmdiNWx4RW1DdHJuM2xNNnQta1ByRnZFVG1tWHNNX0RlaVpFcWlWSlJPOHZuTnpSNWNyR0VtZG41UHR0WTY2QTdNcDNfTUR5UjhZX3hI?oc=5) |
 | With CDC in chaos, scientists and physicians piece together replacements for agency's lost work - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPX3I3THJIdUtBVHNsNjZKM2ZYX2tveERUbUdJRV9VcDlncGdqU0h1enVnMTBZNFpHbW9KY3JURHlzc3ZxTXF3OUlwVUZHWXZoOGdRYy01R3RuMkpMaWl6SE1mZEdha3JEcjFtelN4N2Z4RWx2TWNKUkRZaEZsMkpBckEwQnpVVExMYUc1cW1DVUdnMXZQTXJR?oc=5) |
 | Trump Administration Bars Palestinian Officials From U.N. Meeting in New York - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5HZFBoRm5IejBfQjhiMzFyaGJzTWVhVmdCWjU1bmlITzJrREFPVE5Lc3k2YUhUVm01QkczYUplUEN3SWlCbWZwbm5TbGtvSkdGSXVCa2hlWjZBSlBlV0VSbC1fQzBuWnhBWVJ5MFFSN2J5ZGtvY2tvSFRGZk9wQQ?oc=5) |
