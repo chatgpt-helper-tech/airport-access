@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 15:49:00（北京时间）**
+🕒 更新时间：**2025年08月30日 15:57:02（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | Judge Blocks Pillar of Trump’s Mass Deportation Campaign - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxONWwyYmVDMG5nNU9BM1A3Mjkya2JoRjFCMmdNLWRUNlU1eHBVZFIwUHBnd3RoVzl1Z2MzMTlmWllMb2RVMFJFMzEzZGFHTUsyTkhuaWQ0TFV5bURKc1pjcm9iWEh2WlRLbzN5N3g3R2FuSDl3TnNpZjhiOGhZLXFYaWJ5Wl9VbXpw?oc=5) |
 | U.S. revokes visas of Palestinian president, other officials ahead of UN General Assembly - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQNlNvSkQ0WjhsNVRjNHIzY0xJUmZLbE1FQ2xzRUZ6a242UGl6cmV5aUhmNlJWdC1wNEFZUzFKclFSdUpMN0k0QjdOdWktSTlJMmF5cDg0SVloN0xSMTE0LVJScWpac1I5aWZUMkNYcHhfQzdXeTY2bGJZUmlSOGprdDdDdzd1WWNQV2huYnlGbXdvYkY2RGpBLWVJaXg4eEV0YTRXVzdNanJPMVFEMWg5ZC1HVWc5NzN3OF9jRzlfb9IBxAFBVV95cUxNR1Q5REE3RTVpVmRJaUp0bXdUX194NmhGbi1IcExibVRndVpOOUM3SWdHN2tNd2hMd2pJLVZHNm82THl1dktkM0M5ZXNWdVJuRFdaMVBrZEFkLWtBZ1VjMEljeFdOQTUyODZYdEN0OTBvYjdRSFBmeG5yckFVT1VteV9QQ2I5Qi1SZGJRTzNuTTJGdm1LMF9EcGwxeC1TQ05VeDlnajZvV21GZlZQZDFyOEUwMW1xNzk4U2RwQUVlU0pObDRt?oc=5) |
 | Social Security whistleblower quits after saying Americans’ data was compromised - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQWUY0Q1RoLXpMZmp6YzlKcy1iTnNsQzZfM2ZYbWZ4YTBYM3BSM0JJdkJLdGdlaXNNYjFMS1ZpNExvU2hRNHRVQzEyRDgzWmhGdXZ4SDUwaUl1N1gyVDNLOGY3VzJjNDJWQkZtNGNKYWFMWlA4WGEzek1wLXpYY0xNenJIdw?oc=5) |
-| Trump blocks $4.9B in foreign aid Congress OK'd, using maneuver last seen nearly 50 years ago - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPQ253MjgwRklsNDZiRF9lektMUXpWRlFvVmVxMUJLcGRreTdMRDdxVHFFaFNnRllKaUVoR2FLRFRXdC1wSWNpWXIzbGNDTmNINjhzdzEwNUs4NFZhWndDWWN3bklzRi1tbERVSlZXX3h4XzM1MUZsWF81X1ZiVjBUX1VuVTU3dWdtUHNpaWVtX3BsVXpBbmpLTjduWQ?oc=5) |
+| Trump cancels $4.9 billion in foreign aid, escalating spending fight with Congress - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNV0pZX1NVSnAzOGQxdk01c1VZLUp2Y2Y2U2lYTmxjcjdkWmpWUzRYVUJvaW5BYUhGN3FLeHBBNS1WeTFnZXJrRU0xMVRPZkh6SjR5LThwWUpwUjI2em9kdDNNRkZIYUFiUDVrNm1aQlJYekczWjFRQ3VCRXM0Znk1Nlp3b3NWWWdoYXQ2UkcyVmZ1bFdNMzJ4eVplVDQ2VVNqbFBtNGtwRklZNW55ZmlJbUJQQ1ZrN1Q3ZnJaU2VCUUxpMlpVUVI2WA?oc=5) |
 | Missouri's Republican governor calls special session on redistricting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPSE9rT19NbFJXN0JnQzhqUThSQTJtUzhxakllakFRN3E5bFhxZEs0TUN4bGt0MzFIUDNVSTlxUktJQjRxR3llSUMxcVZ0T1ZXUUN4OTRjUTFmdHFjbk91MGlHdF9SYVhRejZJelNUS0V0X3RNYkVHMHhwaXlhUWFaTUYxcjhGQk9wQXpqS1lFUElIZzVySmIya0dYcF95Z9IBowFBVV95cUxPNl95SnduRlBnek14eFZtb05fNm05OXNFS2ctTlh3aFotZS1PaHVWVklHZDVkRzVQaEhTWWljMzgzSFRoeHNlNGhmR0xweko0clFGeGdFUnNPc2ZSSnJCZ05xVUhqRWZoeWNqREZTTnNOSFdIelVfRHliLWZMcVYwUzlGMm1uazgwNVVTcW1WaVFHR29IM0hqblFxTUJ2NTVxZ3B3?oc=5) |
 | Democrats pounce in reliably red Iowa, fueled by special election hopium - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQaE9yM0VyTkFWYjlYSUFpNWJpODMtRkxKblRMaHAySnpZTmdjZVBpdmpON3g5SnZfZ1lOcGNKZFI2eW44cUNRdlR5U0JrTUpyMWpRNXA1OThJUHZwQ3k3bl8tMHgyTlFfcHMzN0U1VXAtbHQtNlBFd3M0d3hDN1ljYTUwaVI3UDBYc0p0UXlzcUk2d2ZUYWNjbEdjTlE0ZE5KZnktb01JZkowMFAxNVZWaEl5eFZDbXM3dWZjbFVR?oc=5) |
 
