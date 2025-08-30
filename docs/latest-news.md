@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 10:57:41（北京时间）**
+🕒 更新时间：**2025年08月30日 11:00:35（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Katrina inspired a $3B wetlands rebuilding project. Louisiana just killed it. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxOYmtaeVVUTGJPWElFb0I0ZXl2NGZWNG5tMjEwNDYyTmE1akRNekJQbl9mSEhOLW1hX09vM2dhWl83WVEtTy1ONVVzTHdlNjhCaHFFWWN1aFFMUDdmSUFUeXpOS09hc29qTk4yWDRweHhXLUtZbzFRM2hMc3o1VzR0dXBYLU1JQ1ZyQ211SlE3ZTJpZURLbDdyYjQydmlQaFd0Sm16UEloRG9NZTNlck1JNGtnNjRuR2FiRHU5dDBXWjZidw?oc=5) |
 | The new head of the CDC has no training in medicine and once helped Peter Thiel develop man-made islands floating outside U.S. territory - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOR2ZtMVN5SWpvTjVvb0x3aFF4WDVLSkRGZV9mbnV6ZjUyU2VoS1N2aGxBWUVvN2dLSElVM2hhaXc1aG1vUFg1TE5seXNsbFE4QjQ3ZXlIRmNoRXViWEtSTmFXMVQ3R3B5YTJ4YTNjRlJteGQzUUp1ZVlXYzBKVk90c2h1N3pfczVFUkZSZEdqTUQ1dkxZSmxB?oc=5) |
 | Social Security whistleblower resigns ‘involuntarily’ - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNd2JtSy1Dd2t0V3F0R1VDSXRJWko0TDl1UE1EeXpDaVNYR3RpRVphSEl1S3p4bWpRUmRqWUYxWjlJc3VHWUEwNXJzWV9BNldfQ19KUGxKZmV3VlBsaTBwQXI2V1hCWlEwRHpjWlJRS2ZvYTJmczl2cWM5X2JjV3JqbnZpSWZJSFRPZ25TZmNjOFA5UGU0N1E?oc=5) |
-| Trump tries to wrest spending power from Congress as government shutdown looms - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPRkRxdWprTzV0NUVhVlV0bFlWZEZMUE5GSHVmWVZKTjdydWhXNG9GTFkxcXRsY2R4d1lSUlZ4UlRHZjdhb0VDengtQXhfeDVWN0l0a0p4M1R5NmVvc0NDWFpYYjdJY0JxUzFLbFZUenNsdER3Q243SEZwNm85WUFvX2Z1WHlLRk1EVlow?oc=5) |
+| Trump cancels $4.9 billion in foreign aid, escalating spending fight with Congress - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNV0pZX1NVSnAzOGQxdk01c1VZLUp2Y2Y2U2lYTmxjcjdkWmpWUzRYVUJvaW5BYUhGN3FLeHBBNS1WeTFnZXJrRU0xMVRPZkh6SjR5LThwWUpwUjI2em9kdDNNRkZIYUFiUDVrNm1aQlJYekczWjFRQ3VCRXM0Znk1Nlp3b3NWWWdoYXQ2UkcyVmZ1bFdNMzJ4eVplVDQ2VVNqbFBtNGtwRklZNW55ZmlJbUJQQ1ZrN1Q3ZnJaU2VCUUxpMlpVUVI2WA?oc=5) |
 | With newly approved maps in Texas, GOP puts its gains with Latinos to the test - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxOYzFSSjJOQ1NpaUZVTjJ1TVcwQzJyaXFNY1QxeVlSYkpoVGF3T0NYeTN6SDJFbU9XVWpSazZDRnQ5MEpIRjlHaldUNTJ3N0dCMklGeTJJNVV6a2N3LTJncWZHNWZXMWptV0JidnZ6VkRTek1wOFQ1YXVEcjQ0c2V1RGFEUDhzYjluUGNYOXF6bWl2OHZ6ekIya1hvcG45Z2lTcEduRnlFT280UjlSWnlWSDBoTGl5eG1ZQTJOeWt6ZXIwdw?oc=5) |
 
 ---
