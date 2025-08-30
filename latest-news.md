@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 14:49:15（北京时间）**
+🕒 更新时间：**2025年08月30日 14:56:46（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Julia Roberts: We're losing the art of conversation | [阅读全文](https://www.bbc.com/news/articles/c5yejdmgzg4o?at_medium=RSS&at_campaign=rss) |
 | How coffee chains like Costa lost the matcha generation | [阅读全文](https://www.bbc.com/news/articles/c3dpjvy5em1o?at_medium=RSS&at_campaign=rss) |
 | Manhunt in Australian bush brings long-dismissed conspiracy theorists to the fore | [阅读全文](https://www.bbc.com/news/articles/ckgyk7ry8rdo?at_medium=RSS&at_campaign=rss) |
-| What Taylor Swift and Travis Kelce's wedding could look like | [阅读全文](https://www.bbc.com/news/articles/ckgyw2p9n68o?at_medium=RSS&at_campaign=rss) |
+| I asked a bus passenger to turn his phone down - he called me miserable | [阅读全文](https://www.bbc.com/news/articles/c2l74nq2pldo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,7 +30,7 @@
 | The new head of the CDC has no training in medicine and once helped Peter Thiel develop man-made islands floating outside U.S. territory - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOR2ZtMVN5SWpvTjVvb0x3aFF4WDVLSkRGZV9mbnV6ZjUyU2VoS1N2aGxBWUVvN2dLSElVM2hhaXc1aG1vUFg1TE5seXNsbFE4QjQ3ZXlIRmNoRXViWEtSTmFXMVQ3R3B5YTJ4YTNjRlJteGQzUUp1ZVlXYzBKVk90c2h1N3pfczVFUkZSZEdqTUQ1dkxZSmxB?oc=5) |
 | U.S. revokes visas of Palestinian president, other officials ahead of UN General Assembly - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQNlNvSkQ0WjhsNVRjNHIzY0xJUmZLbE1FQ2xzRUZ6a242UGl6cmV5aUhmNlJWdC1wNEFZUzFKclFSdUpMN0k0QjdOdWktSTlJMmF5cDg0SVloN0xSMTE0LVJScWpac1I5aWZUMkNYcHhfQzdXeTY2bGJZUmlSOGprdDdDdzd1WWNQV2huYnlGbXdvYkY2RGpBLWVJaXg4eEV0YTRXVzdNanJPMVFEMWg5ZC1HVWc5NzN3OF9jRzlfb9IBxAFBVV95cUxNR1Q5REE3RTVpVmRJaUp0bXdUX194NmhGbi1IcExibVRndVpOOUM3SWdHN2tNd2hMd2pJLVZHNm82THl1dktkM0M5ZXNWdVJuRFdaMVBrZEFkLWtBZ1VjMEljeFdOQTUyODZYdEN0OTBvYjdRSFBmeG5yckFVT1VteV9QQ2I5Qi1SZGJRTzNuTTJGdm1LMF9EcGwxeC1TQ05VeDlnajZvV21GZlZQZDFyOEUwMW1xNzk4U2RwQUVlU0pObDRt?oc=5) |
 | Social Security whistleblower quits after saying Americans’ data was compromised - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQWUY0Q1RoLXpMZmp6YzlKcy1iTnNsQzZfM2ZYbWZ4YTBYM3BSM0JJdkJLdGdlaXNNYjFMS1ZpNExvU2hRNHRVQzEyRDgzWmhGdXZ4SDUwaUl1N1gyVDNLOGY3VzJjNDJWQkZtNGNKYWFMWlA4WGEzek1wLXpYY0xNenJIdw?oc=5) |
-| Trump blocks $4.9B in foreign aid Congress OK'd, using maneuver last seen nearly 50 years ago - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPQ253MjgwRklsNDZiRF9lektMUXpWRlFvVmVxMUJLcGRreTdMRDdxVHFFaFNnRllKaUVoR2FLRFRXdC1wSWNpWXIzbGNDTmNINjhzdzEwNUs4NFZhWndDWWN3bklzRi1tbERVSlZXX3h4XzM1MUZsWF81X1ZiVjBUX1VuVTU3dWdtUHNpaWVtX3BsVXpBbmpLTjduWQ?oc=5) |
+| Trump cancels $4.9 billion in foreign aid, escalating spending fight with Congress - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNV0pZX1NVSnAzOGQxdk01c1VZLUp2Y2Y2U2lYTmxjcjdkWmpWUzRYVUJvaW5BYUhGN3FLeHBBNS1WeTFnZXJrRU0xMVRPZkh6SjR5LThwWUpwUjI2em9kdDNNRkZIYUFiUDVrNm1aQlJYekczWjFRQ3VCRXM0Znk1Nlp3b3NWWWdoYXQ2UkcyVmZ1bFdNMzJ4eVplVDQ2VVNqbFBtNGtwRklZNW55ZmlJbUJQQ1ZrN1Q3ZnJaU2VCUUxpMlpVUVI2WA?oc=5) |
 | Missouri's Republican governor calls special session on redistricting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPSE9rT19NbFJXN0JnQzhqUThSQTJtUzhxakllakFRN3E5bFhxZEs0TUN4bGt0MzFIUDNVSTlxUktJQjRxR3llSUMxcVZ0T1ZXUUN4OTRjUTFmdHFjbk91MGlHdF9SYVhRejZJelNUS0V0X3RNYkVHMHhwaXlhUWFaTUYxcjhGQk9wQXpqS1lFUElIZzVySmIya0dYcF95Z9IBowFBVV95cUxPNl95SnduRlBnek14eFZtb05fNm05OXNFS2ctTlh3aFotZS1PaHVWVklHZDVkRzVQaEhTWWljMzgzSFRoeHNlNGhmR0xweko0clFGeGdFUnNPc2ZSSnJCZ05xVUhqRWZoeWNqREZTTnNOSFdIelVfRHliLWZMcVYwUzlGMm1uazgwNVVTcW1WaVFHR29IM0hqblFxTUJ2NTVxZ3B3?oc=5) |
 | Democrats pounce in reliably red Iowa, fueled by special election hopium - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQaE9yM0VyTkFWYjlYSUFpNWJpODMtRkxKblRMaHAySnpZTmdjZVBpdmpON3g5SnZfZ1lOcGNKZFI2eW44cUNRdlR5U0JrTUpyMWpRNXA1OThJUHZwQ3k3bl8tMHgyTlFfcHMzN0U1VXAtbHQtNlBFd3M0d3hDN1ljYTUwaVI3UDBYc0p0UXlzcUk2d2ZUYWNjbEdjTlE0ZE5KZnktb01JZkowMFAxNVZWaEl5eFZDbXM3dWZjbFVR?oc=5) |
 
