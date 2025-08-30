@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 22:57:52（北京时间）**
+🕒 更新时间：**2025年08月30日 23:01:35（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Judge blocks Trump administration from expanding fast-track deportations nationwide, citing due process concerns - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNeGdWY0VHWHkxdDl1Q1RpWGhyS0VMTi1qeUFCb0VxdDVEWXdIRkhkd2luLVItbm5Iemwwb0pVT1U0VDlRWFpIdUJadjM3eEVYSlhSbEExUFlVWlY1Yl9aeThjWWdqYnBTblpMYXBvekNpSW1ZZThaaURUSVdCdHUtYkU3aUNLVmVWaFBDatIBkgFBVV95cUxPaUtwWmxSMWwzOEVoSXo5VHl3VkRKMmZNcU43MTAybHVqSUhTdU0zblhGNTUzSzNDMnp4Y2FkZTR1ZDh3Y3o2SEF1dmRXWXZzM094NjVCVU04ZG4weGlVYlhiVjhJRDBTNmZfaEZISVduSnA5QlNKVUNuZFB6dlRBU29CVDBILVhQanh0NUVwSWR2dw?oc=5) |
 | US bars Palestinian leader Abbas from UN as allies back statehood - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNNGVRckNwU1l0N0U4WHI5Z3lEaEFrZUFWQ3hhaXdweDlWTEtqMXItNllmcWtGRmM3QkdJeEtXejRZWmd2Nnoxek9FWlVGbHpzLWZQdjE2RThHYU1obmx6Xzd3bnYza09qZVBPLUdJUmM5Q2FRNU80RzczZU9CUkpqYWJ3b2xQUDAtNTBNRmpRZzByNmVXMWdDQUd1X0I0VEg0T2Fib000ZVpGY184S3Q5Sg?oc=5) |
 | Firefighter arrested by US border agents was on track for legal status, lawyers say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNenV3YkQ5a0xBS1lULUFVTXJkcDE5dzR3SF83Yml3REFnSTdvR3JISjNFYm14N0R4VlJkbklyM2ZEX1J2X2pjSEh3Nkk1S2I5RjBtVUFYSjVBb2xWcXFmbU9hS2pIUml5R2ZNTnhNeTdKcGkxZkRxMTRpbEJBQUF0U2VWaUY3TldBaFNILQ?oc=5) |
-| Venezuela's Maduro says "no way" U.S. can invade after Washington deploys warships to region - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQZTdVSS01NjZNM0oyR0ZPNWlfcm1FWGJXQnRYeGkzVkZTdmxzUHBhaW4xV0JLR20xRkh6dzFMdE5FQ2ZRNkVVbjZCQXI5QlZ1b2hwX2ZLV3RIa1R1emVXb1RxekhnMGpyY0t6RmlIanQ4YVZkcExVdF9nSHdrVjAyR2d5Q1NDSkFpWXNMX3p0YThsRzFo0gGaAUFVX3lxTE1INlpSR2V1QWxmcWV0YWJYdjdnVzhFaTVyekM1cm0wbHNqVWtXck93VXJya2huNDJ2akxBT2xGTFY1d2Ric21aVkVwdlVIWl9rTFRwTGJBQkxjNWFGYXdpamc4OVQydGhfUG40WHpTTFhKa1B5eTlQNlFocUl0SEczdjRvV0Npb0ZHSndJU3h6MW9GSHdNZ2NidHc?oc=5) |
-| Social Security data chief resigns after whistleblower complaint over DOGE data access - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPMkQyYUdhZkc2Q0dBSW9aUHFKSENuNUFDWlNNMEd2TWRzNEJHSjR6TmQtdUtCajNWYXpXVFlnSDdHa1NiNTI0bmJjaFNBVVpoNmFIWi14RlVueWtJclZOaG1mamN4M2NZcDNjWTJFVWk0VW5xaXMyTnlYaENqckNpWUNhMGpCbkRiaE9DTQ?oc=5) |
+| Missouri's Republican governor calls special session on redistricting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPSE9rT19NbFJXN0JnQzhqUThSQTJtUzhxakllakFRN3E5bFhxZEs0TUN4bGt0MzFIUDNVSTlxUktJQjRxR3llSUMxcVZ0T1ZXUUN4OTRjUTFmdHFjbk91MGlHdF9SYVhRejZJelNUS0V0X3RNYkVHMHhwaXlhUWFaTUYxcjhGQk9wQXpqS1lFUElIZzVySmIya0dYcF95Z9IBowFBVV95cUxPNl95SnduRlBnek14eFZtb05fNm05OXNFS2ctTlh3aFotZS1PaHVWVklHZDVkRzVQaEhTWWljMzgzSFRoeHNlNGhmR0xweko0clFGeGdFUnNPc2ZSSnJCZ05xVUhqRWZoeWNqREZTTnNOSFdIelVfRHliLWZMcVYwUzlGMm1uazgwNVVTcW1WaVFHR29IM0hqblFxTUJ2NTVxZ3B3?oc=5) |
+| The long recovery on the Mississippi Gulf Coast, ‘ground zero’ for Hurricane Katrina - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOTzNGR09Ud1NZYVQ5enVqLTNUY21HeGRscGE3U3RKSFFyVUFCaVZtWWNEcm1VakhjT2JkWWVYVHVISWQ1dFlabVVfQTlXd1RERldKd0IyYWRTdUV0RXE1UTVubFhrdzRtT1B2TExYZ1o3cGE1TEZVQlNiS1FqLWo2SDZ3SXFrcUUwMlhyV1Fn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
