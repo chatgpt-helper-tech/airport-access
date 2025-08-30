@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 05:48:46（北京时间）**
+🕒 更新时间：**2025年08月31日 05:57:26（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Houthi rebels say Israeli airstrike killed their prime minister in Yemen's capital - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOZnE5djk0UjRWXzZSLXl3YkU2cGFCeFB5XzN4ZnJqQ2dvc0VlT096RFJpZTVYMk83eDFKdVhyZmV6NkZVbW1EQmxjaXFObklQbTFVQ3czdV9HRk9odkotTGZJemxNTzdoZjFuQ1hsazhQcVB2ajNpaWw3UFR1UVRjU2xieHBoc3NDb3JlMGFOVGVza1hhRTRlN1Nn?oc=5) |
 | ‘Is Trump Dead?’ Rumors Debunked As Trump Seen Leaving For Golf - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQc1VMNmRFVGItQ01seWRvMzhNVUw5SWhQcU15UVhDZU5qZUd5MlZVM1J3TUFWWGhUWjZqMmRGQ0ZlSjA3VTFPay1KZk1IYThORjNGNFBnOF9zLVpPbjh0bVgyazRKenFjNG5sZ29iNW1kU2oxd1M5TGJwYVdXc0RWbHVKNEpWNHRtZnZDc2NKUHRMbVVYR1ZPZjdpYUdtS2VQNVhrRTczSXFremt0cEF1NkhR?oc=5) |
 | Federal judge issues order blocking Trump effort to expand speedy deportations of migrants - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNaVhsOHUzSURQU0lkUmVzUUowZ2FyWF84Q2w1Y2RSd0V2cGNvNVlZaWlKX0RLWklFMlVIc3JYUVFUUThEbDFFNkF6VzhFaWRqdHJJLXNuWFJmdXBxYUo5a0gyS0l0RG80Q3lnR3RGOVJmWk1OUmFjRWpiZDliQnR3bUEtemJrT0hPeEs5SzZ6M0VNRGNjWWNSOElXQTVvQ2d5eVRnZHM0dndNZGpG?oc=5) |
-| In New Orleans 20 years after Hurricane Katrina, a mother, a surgeon and a police chief look back and find hope - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQV3Z0azU3M3V5b2MxYVQtQmhlUkhwTE4zc2FET0YwSWc2VTkyZVd6NlNHZlcwLXZkVTdDSlRuZFFFLXFaeUVxMWE0Z2hvTFJPb1BuVFc2c3Qxb0kyTUpYME1GVWZXZ2J1aHQtVHJEUmpZeXBZblRWOHFNVGpLeUFZUk0xR2N5OU9YS2lCaUtzTjVQd9IBlwFBVV95cUxPOHJWNk9LMDMteUZvUTJ6Q0VkTFhMMnExNFlZQUVtQWlGWWVERFlfNGJ2RkptUUVQSWVkSXc1UlQxcWV6VkFIQkVyMDl2WWU5M3d5UU5jMzVvTDBkS0ZsLW9rQ0t2bDB6NmdoM2RvMFNEVl9CN0xlUkJHWXo5NV8ydzVDOHNtRnlOX2M1N3owVUpOZkt6X0dr?oc=5) |
 | Border Patrol arrested firefighters as they were battling a wildfire - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNdjNjRkhicGlVWWZJeGRESlJjT2ptZW1qbF9zbUpaTUU1UXZXMl9ZRlRvT1Q4NTdwUTJXZG1KdzdHSF90bGZBM0JSc0hwMFZxTU5zZFRHQmlsWXIyemhFY0Z5MVlNZ1ZlMG8tNWllN3JySHNNWkR3QkdPYjlwVm11NUhmSXc1UkNYWFNJeVlnX0g3OTQ1NVNScVVwWWNuLWxGSTFoeXp3?oc=5) |
+| In New Orleans 20 years after Hurricane Katrina, a mother, a surgeon and a police chief look back and find hope - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQV3Z0azU3M3V5b2MxYVQtQmhlUkhwTE4zc2FET0YwSWc2VTkyZVd6NlNHZlcwLXZkVTdDSlRuZFFFLXFaeUVxMWE0Z2hvTFJPb1BuVFc2c3Qxb0kyTUpYME1GVWZXZ2J1aHQtVHJEUmpZeXBZblRWOHFNVGpLeUFZUk0xR2N5OU9YS2lCaUtzTjVQd9IBlwFBVV95cUxPOHJWNk9LMDMteUZvUTJ6Q0VkTFhMMnExNFlZQUVtQWlGWWVERFlfNGJ2RkptUUVQSWVkSXc1UlQxcWV6VkFIQkVyMDl2WWU5M3d5UU5jMzVvTDBkS0ZsLW9rQ0t2bDB6NmdoM2RvMFNEVl9CN0xlUkJHWXo5NV8ydzVDOHNtRnlOX2M1N3owVUpOZkt6X0dr?oc=5) |
 | Palestine: Statement by the High Representative on behalf of the European Union - consilium.europa.eu | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxPOEV1SVZCZ05UYmViZ3AtaUdIWGt3VmhXYWNFVDQzVHZ4NTVSaVN4Nkc4a0JFNWE0QWZ3LW8tZkR6dWFlNmZHRUlGUlRaeFphSldIbElHWnBsUmlpOXdxb01iNk5DWFJIVk5qSXpRN0RjZTB0QlJ5SUVFT0I5OTd6ZWtqeDB4LU1zbkVCQkxaU3JuQ25JTnpKdXJraFJWNEpvSTZqc2E1QU9HQmlvZlhDdG1BSUlSQURIU1RnTXk5STdORFNBUXNiWnBlN202ZUxmQ1JaNGVWQVVQOE55RWRB?oc=5) |
 
 ---
