@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 20:08:31（北京时间）**
+🕒 更新时间：**2025年08月30日 20:16:13（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | CHP to protect ex-VP Kamala Harris after Trump pulls Secret Service detail, sources say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQSDNDVmxmWWk5dF85WUdoTkJSelBQdUhQLVFub0hBWXVfQlF6U3dDbzkzS2htdmJSMHlLdGIzUWV3dFJ5WXN0dWJZQlFuUzNMaHR1NkxNb1c5MVB2bmEycmN4c3lZRkZqaXpPRjZHUmM5WWI1UjZrLWlRbnJSaVo0SDZ0MG5FVWs?oc=5) |
 | Social Security Admin.'s chief data officer resigns after filing whistleblower complaint - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQRjZaV1c5MGExOW8tXzU5SFRia3JMTWxSTV9TV243cE9pTDFsMWw3d1FoaXZsYmtoUEZhMC1udG1hWnl0c2FwYUtYQnFRcGQyU25oOXFkUUd5NGk0V2Y4eEZIVkRyT1lRM2FJdEpLS3huc2R4TVljdkhpeUJqbFBXVGhmSzBqdjY1Ynh1S1REZEktRmx2cGR0MzRpVC1ZV2lTS2dSZHB3ZWJnQlp6U1JDem1lNUJLd9IBuwFBVV95cUxQbzBwaUdFNFdKZWZhb0VTZDJtMW83V3A5LUlLWHdZRldzNnlQb2RSaFBuT0k4aFJ2RVFQclN1SnNHZ2szMk9WZFdOSUlnMHFNYjg4VTdHZ3l1T1ROQmt2ZG81bmJCM3ZLSDdLYWJ4NWJBVWtEYnFrSHpPd1JQZEYxMWZza2lOMkNEWVdXQ1BpRmx5TV95NnUxMnV3QkQyR3J4SlJxNFlOd184Z1Nxd3oyN1NPbG13WXpsNHNz?oc=5) |
 | The long recovery on the Mississippi Gulf Coast, ‘ground zero’ for Hurricane Katrina - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOTzNGR09Ud1NZYVQ5enVqLTNUY21HeGRscGE3U3RKSFFyVUFCaVZtWWNEcm1VakhjT2JkWWVYVHVISWQ1dFlabVVfQTlXd1RERldKd0IyYWRTdUV0RXE1UTVubFhrdzRtT1B2TExYZ1o3cGE1TEZVQlNiS1FqLWo2SDZ3SXFrcUUwMlhyV1Fn?oc=5) |
-| Missouri's Republican governor calls special session on redistricting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPSE9rT19NbFJXN0JnQzhqUThSQTJtUzhxakllakFRN3E5bFhxZEs0TUN4bGt0MzFIUDNVSTlxUktJQjRxR3llSUMxcVZ0T1ZXUUN4OTRjUTFmdHFjbk91MGlHdF9SYVhRejZJelNUS0V0X3RNYkVHMHhwaXlhUWFaTUYxcjhGQk9wQXpqS1lFUElIZzVySmIya0dYcF95Z9IBowFBVV95cUxPNl95SnduRlBnek14eFZtb05fNm05OXNFS2ctTlh3aFotZS1PaHVWVklHZDVkRzVQaEhTWWljMzgzSFRoeHNlNGhmR0xweko0clFGeGdFUnNPc2ZSSnJCZ05xVUhqRWZoeWNqREZTTnNOSFdIelVfRHliLWZMcVYwUzlGMm1uazgwNVVTcW1WaVFHR29IM0hqblFxTUJ2NTVxZ3B3?oc=5) |
-| Ernst won’t seek reelection, giving Democrats opening in battle for Senate - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxORWZQZXVVM1V6Tzh6dUE5TkRQWkdJdjkta2l0XzIxeDZ2enBmS3F2YjIySGlHT3hHZHNfXzdqUlNOUWVXTHpYYkpGWFVJUEhsSFFRSzg2SmgzUzRLbVpxTU5Tc080RU1PLW9qTkVydVBRRlFwQTNGalFLVVhTMmppWDhR?oc=5) |
+| Detainees report alleged uprising at ‘Alligator Alcatraz’: ‘A lot of people have bled’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPNEJ4ZHpIejYxdDg3YlJRQUN2dG1kaE9ycHFPQkpza1VaV09NcWFlOGN3dlp3Vm1GRGNfMFFwejNHcEtWZ29vcV9HTy1ueC1Ha2Z6eUpSSUFwWEZnVGl5S0kybF9sR3I3Y2pYNDRma3pIMDhVNTZabGFvd2lucUJGTUNlYm5wQ0FhYnZFQzFuNGw4MzFYX1paZ05uRQ?oc=5) |
+| Sen. Ernst of Iowa is expected to announce next month she won’t run for reelection in 2026 - PBS | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNc1ZwZTZkaWYyUm13dTBUR3ZweDFjTDNOM3dOd09tc1VQdU9ENXhJNlRYNkNqVEhzNVhYeG9RSy1CczFCbXF3Y25QZV81WmZ0NHhXNVl4M2pVZGcyRE9nX2NiVDBpcU01MjRNUE8tcG90QUtWVEFGZHJFd3BoZ3hnX0p6WTVmcDRlUHIwVGxieERhZUVIak53SnVwcEJTY1BCOTBrN2dZWmNSVVZqbVIxa0VEMnJiUFQzbTBRbV9GMEZGU1Fk0gHKAUFVX3lxTFBsX0w0NVpnaWQ2eTAwVHZ5bmRxemRkbFVETE1rMVpUSC1BMlRYUzhzZmZ4ZTNLaDdSYnhoTVY3RHA3UXRrekJ4ZjJid1VoRmtrRWlzV29OYjhZaFplN2lwTHJ1VHF4SWtrUDJ0cGZaa2haZ3BMUHUwZHFtN083WlE0S1VBTkR6bzEyTVdyejMzeUhJazU5UnZXeV9ENGNEb3l3a2djWndrVDFuN3pBMGtHVVZSUFhFUGZXWmR1SzlXcmJrNDl6WTUtd0E?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
