@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 01:17:05（北京时间）**
+🕒 更新时间：**2025年08月31日 01:24:35（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | Russia launches massive attack on Ukraine, as Kyiv hits oil refineries | [阅读全文](https://www.bbc.com/news/articles/c4g614x9kqko?at_medium=RSS&at_campaign=rss) |
 | Prominent Ukrainian politician Andriy Parubiy shot dead in Lviv | [阅读全文](https://www.bbc.com/news/articles/cjw6ep37469o?at_medium=RSS&at_campaign=rss) |
 | What happens next after Trump tariffs ruled illegal? | [阅读全文](https://www.bbc.com/news/articles/cy983g8jr5do?at_medium=RSS&at_campaign=rss) |
-| Gordon Ramsay says he had treatment to remove skin cancer | [阅读全文](https://www.bbc.com/news/articles/ce93lp8d9xro?at_medium=RSS&at_campaign=rss) |
+| AI stethoscope could detect major heart conditions in seconds | [阅读全文](https://www.bbc.com/news/articles/c2l748k0y77o?at_medium=RSS&at_campaign=rss) |
 | Manhunt in Australian bush brings long-dismissed conspiracy theorists to the fore | [阅读全文](https://www.bbc.com/news/articles/ckgyk7ry8rdo?at_medium=RSS&at_campaign=rss) |
 | How coffee chains like Costa lost the matcha generation | [阅读全文](https://www.bbc.com/news/articles/c3dpjvy5em1o?at_medium=RSS&at_campaign=rss) |
 | Harry set for UK visit but will he see his father? | [阅读全文](https://www.bbc.com/news/articles/cwy0dgpyq35o?at_medium=RSS&at_campaign=rss) |
