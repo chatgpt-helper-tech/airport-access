@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 01:41:22（北京时间）**
+🕒 更新时间：**2025年08月31日 01:48:40（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Shoppers met with canceled orders, delays as de minimis exemption ends - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNRkIyakN5elVld25nMDNPcm5Pd1QweGRzTTYwS0xQc3dGVDk3WHM4czJfN2E4clVKSnlpYXRMc0tkYlhLNnh3LU9NYTc2Rzd1T21UVlYwTEZ2enUxdFBfalNuel9nckVRQUhQV1FVbGpfUHRsWVdPSVBrd0hkUlRJdGk1WWdkTHpkb2E1NEozc0wwdUE?oc=5) |
 | CHP to protect ex-VP Kamala Harris after Trump pulls Secret Service detail, sources say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQSDNDVmxmWWk5dF85WUdoTkJSelBQdUhQLVFub0hBWXVfQlF6U3dDbzkzS2htdmJSMHlLdGIzUWV3dFJ5WXN0dWJZQlFuUzNMaHR1NkxNb1c5MVB2bmEycmN4c3lZRkZqaXpPRjZHUmM5WWI1UjZrLWlRbnJSaVo0SDZ0MG5FVWs?oc=5) |
 | Generations celebrated weddings, baptisms and first communions at this Minneapolis church before it became a site of tragedy - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNMHJlOXdwOG9fWFA2SmVWS2F1NlRWNTFIT3AyNDM0cVZzN3pmd0paOUxETVdwU25zMDlCQVlwT29ZTDIyazRfY3NsMVo2VXVpbUMtRWZCNGZQamhwdVZqUjBwNlJ5WGQ3VUZLWEdReldmQ19hYzBoa20zMW4xc0pWb1ozejVjaWJHTFZ0Uw?oc=5) |
+| Chicago mayor to sign order aimed at resisting Trump’s planned immigration crackdown - CNN | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOeUd0Nkp3X2tYNGJZWndadGZoX192NUZPaExQSTF5blprbjZJX3NvOWpyVHA1cnU3R2s4T1NxRTMxUkZ4LWtHNmRUV1FiRTBIRk5vR09XVzRYbVFZaWEwWlVmd1Fvd2Jjc2p5M2NLc1VOTWVEYUFQWVRpX2FzQlNDenltekRtU29RNngwZnZhWWdXNVN6QVEtRzBxY3Y0enZCWVdIbnczbzNiY3FOWFJnZkZhQ1YxTUhKLUVhbWZ3?oc=5) |
 | In New Orleans 20 years after Hurricane Katrina, a mother, a surgeon and a police chief look back and find hope - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQV3Z0azU3M3V5b2MxYVQtQmhlUkhwTE4zc2FET0YwSWc2VTkyZVd6NlNHZlcwLXZkVTdDSlRuZFFFLXFaeUVxMWE0Z2hvTFJPb1BuVFc2c3Qxb0kyTUpYME1GVWZXZ2J1aHQtVHJEUmpZeXBZblRWOHFNVGpLeUFZUk0xR2N5OU9YS2lCaUtzTjVQd9IBlwFBVV95cUxPOHJWNk9LMDMteUZvUTJ6Q0VkTFhMMnExNFlZQUVtQWlGWWVERFlfNGJ2RkptUUVQSWVkSXc1UlQxcWV6VkFIQkVyMDl2WWU5M3d5UU5jMzVvTDBkS0ZsLW9rQ0t2bDB6NmdoM2RvMFNEVl9CN0xlUkJHWXo5NV8ydzVDOHNtRnlOX2M1N3owVUpOZkt6X0dr?oc=5) |
 | Firefighter arrested by US border agents was on track for legal status, lawyers say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNenV3YkQ5a0xBS1lULUFVTXJkcDE5dzR3SF83Yml3REFnSTdvR3JISjNFYm14N0R4VlJkbklyM2ZEX1J2X2pjSEh3Nkk1S2I5RjBtVUFYSjVBb2xWcXFmbU9hS2pIUml5R2ZNTnhNeTdKcGkxZkRxMTRpbEJBQUF0U2VWaUY3TldBaFNILQ?oc=5) |
-| Federal judge blocks Trump effort to expand fast-track deportations - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQWjI4SUU3TEUxY1NIUVJUczh4ME0ySGtsM0FndWZ2RGI4TkJxMmpQYnI2WXRHN2tlUjJhdkVlN09VU19nVktWM2tibnd3WHEtcWtueERYX1VvZ2dEN3M0VURKQTNnWFhNbzI2LW5GeGc1cGcxbjFZV25WNjZIaHJYSjZtZnA2VUZzbWFV?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
