@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 10:48:07（北京时间）**
+🕒 更新时间：**2025年08月30日 10:57:41（北京时间）**
 
 ---
 
@@ -23,11 +23,11 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Most of President Trump's tariffs are illegal, U.S. court rules - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNdTBZRjI4Q1JFYkJDNXlhNlMtX0FBcHNCSnZxcDZ3ZFBEdVhKYXZ3VExlSVdnNWk4aVJYMm1aNlpXdmpFZFYzMVg3X1V2c2dmdE5ReVhXNEd3ZEhzcWotakFheTZFS3Y3T1BKN1BfUzFmZlJBNmpBQW5OcW9ORzNFZ1BsZWc?oc=5) |
+| Most of Trump's tariffs are not legal, court rules: what to know - Axios | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTFB6eVNBbldSM2ZPLUJieXJWNS1SRW5PbEtoN2pCOExfTnZKQUNvQVNLV1BSWUttLWtnekE2Sm81SnVLSi14dWdLTVZCbU5vMkRqZ3pCQmNFTnhfM1lGQ3FSNXppMnFsUlhURjhF?oc=5) |
 | CHP to protect ex-VP Kamala Harris after Trump pulls Secret Service detail, sources say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQSDNDVmxmWWk5dF85WUdoTkJSelBQdUhQLVFub0hBWXVfQlF6U3dDbzkzS2htdmJSMHlLdGIzUWV3dFJ5WXN0dWJZQlFuUzNMaHR1NkxNb1c5MVB2bmEycmN4c3lZRkZqaXpPRjZHUmM5WWI1UjZrLWlRbnJSaVo0SDZ0MG5FVWs?oc=5) |
-| HCMC, Children's Minnesota share updates on Annunciation mass shooting victims - kare11.com | [阅读全文](https://news.google.com/rss/articles/CBMi6gFBVV95cUxOX2xxRkRrZFh1TkM5UmtYVTlDa1JXdUkySGRKTS10c3YxVXV0czczTmlaSHNTSkRrUjRBTWdQZzRGTDZSMnEtcmg3SS1RaTRJbk15ZE5QSXAyNVN3UzN2S3hsMFJncUdJMFdxRVJidFM4LVJVWnhvaEdCTllqY3pCRzAtdnVvYUhvLXQwTDdjUXU0QlJSdDA4dHNjUzQtMC04cDdDWmhzNE9nWTFPT0l2RFppWjZoMXlFZ0tucTZlZ19kdFJjSnppZWphcGZGNmJfSzRwQU5NcUVOd01jZE90YjQzTDh2SjJKSkE?oc=5) |
-| US tariff exemption for low-value packages ends with few hiccups but higher costs loom - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNSlZlWFZSWWtZREY5WkNld0JUWDg3NWc1NENEMXgyWTdzZGVMNy1DQW84aTA3Q29yUUowWGNKVlhYMXBucTNIOEFvVnN5Vm5IamhCRGxXZVcyajZOX3QtZnVEcGdBQWZkRWVYRG1pc0VhcGZxZzJ3ZVpjRV9oSzYzbHZ0XzZUUTRiXzBHYjBEcHdXS2x1eUU3cjhEdTg3eVJNT1RNanBWOVo5bnRwLVVZTjFBNzhxRTI5LVRHTzNCbEVvTmFi?oc=5) |
+| 'There is no message': The search for ideological motives in the Minneapolis shooting - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9wS1pLeDhTZDlEZm9YTlZocEhnM0R5cGt1Z3BOV3dCNWIyOFNQdVBSTFdfcEZUYjNzY3hfd001a1dTRFZ1TUpIZGdSVVk4MWNWNUs3M1BnYWVmSFQ0RzZUZFlLMGNUOFNGX2NJaWszRkxXNWNXQjViT21BTDE?oc=5) |
 | Missouri's Republican governor calls special session on redistricting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPSE9rT19NbFJXN0JnQzhqUThSQTJtUzhxakllakFRN3E5bFhxZEs0TUN4bGt0MzFIUDNVSTlxUktJQjRxR3llSUMxcVZ0T1ZXUUN4OTRjUTFmdHFjbk91MGlHdF9SYVhRejZJelNUS0V0X3RNYkVHMHhwaXlhUWFaTUYxcjhGQk9wQXpqS1lFUElIZzVySmIya0dYcF95Z9IBowFBVV95cUxPNl95SnduRlBnek14eFZtb05fNm05OXNFS2ctTlh3aFotZS1PaHVWVklHZDVkRzVQaEhTWWljMzgzSFRoeHNlNGhmR0xweko0clFGeGdFUnNPc2ZSSnJCZ05xVUhqRWZoeWNqREZTTnNOSFdIelVfRHliLWZMcVYwUzlGMm1uazgwNVVTcW1WaVFHR29IM0hqblFxTUJ2NTVxZ3B3?oc=5) |
+| US tariff exemption for low-value packages ends with few hiccups but higher costs loom - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNSlZlWFZSWWtZREY5WkNld0JUWDg3NWc1NENEMXgyWTdzZGVMNy1DQW84aTA3Q29yUUowWGNKVlhYMXBucTNIOEFvVnN5Vm5IamhCRGxXZVcyajZOX3QtZnVEcGdBQWZkRWVYRG1pc0VhcGZxZzJ3ZVpjRV9oSzYzbHZ0XzZUUTRiXzBHYjBEcHdXS2x1eUU3cjhEdTg3eVJNT1RNanBWOVo5bnRwLVVZTjFBNzhxRTI5LVRHTzNCbEVvTmFi?oc=5) |
 | Katrina inspired a $3B wetlands rebuilding project. Louisiana just killed it. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxOYmtaeVVUTGJPWElFb0I0ZXl2NGZWNG5tMjEwNDYyTmE1akRNekJQbl9mSEhOLW1hX09vM2dhWl83WVEtTy1ONVVzTHdlNjhCaHFFWWN1aFFMUDdmSUFUeXpOS09hc29qTk4yWDRweHhXLUtZbzFRM2hMc3o1VzR0dXBYLU1JQ1ZyQ211SlE3ZTJpZURLbDdyYjQydmlQaFd0Sm16UEloRG9NZTNlck1JNGtnNjRuR2FiRHU5dDBXWjZidw?oc=5) |
 | The new head of the CDC has no training in medicine and once helped Peter Thiel develop man-made islands floating outside U.S. territory - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOR2ZtMVN5SWpvTjVvb0x3aFF4WDVLSkRGZV9mbnV6ZjUyU2VoS1N2aGxBWUVvN2dLSElVM2hhaXc1aG1vUFg1TE5seXNsbFE4QjQ3ZXlIRmNoRXViWEtSTmFXMVQ3R3B5YTJ4YTNjRlJteGQzUUp1ZVlXYzBKVk90c2h1N3pfczVFUkZSZEdqTUQ1dkxZSmxB?oc=5) |
 | Social Security whistleblower resigns ‘involuntarily’ - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNd2JtSy1Dd2t0V3F0R1VDSXRJWko0TDl1UE1EeXpDaVNYR3RpRVphSEl1S3p4bWpRUmRqWUYxWjlJc3VHWUEwNXJzWV9BNldfQ19KUGxKZmV3VlBsaTBwQXI2V1hCWlEwRHpjWlJRS2ZvYTJmczl2cWM5X2JjV3JqbnZpSWZJSFRPZ25TZmNjOFA5UGU0N1E?oc=5) |
