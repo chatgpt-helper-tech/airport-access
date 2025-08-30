@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 15:32:01（北京时间）**
+🕒 更新时间：**2025年08月30日 15:41:07（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | Harry set for UK visit but will he see his father? | [阅读全文](https://www.bbc.com/news/articles/cwy0dgpyq35o?at_medium=RSS&at_campaign=rss) |
 | Tories call for investigation into Rayner's tax affairs | [阅读全文](https://www.bbc.com/news/articles/cjw6evl4zy8o?at_medium=RSS&at_campaign=rss) |
 | US blocks Palestinian leader from attending UN meeting in New York | [阅读全文](https://www.bbc.com/news/articles/cjdym32z9v7o?at_medium=RSS&at_campaign=rss) |
-| Norrie rues 'overconfidence' as chance to beat Djokovic disappears | [阅读全文](https://www.bbc.com/sport/tennis/articles/clyjk21gyw9o?at_medium=RSS&at_campaign=rss) |
 | Julia Roberts: We're losing the art of conversation | [阅读全文](https://www.bbc.com/news/articles/c5yejdmgzg4o?at_medium=RSS&at_campaign=rss) |
 | How coffee chains like Costa lost the matcha generation | [阅读全文](https://www.bbc.com/news/articles/c3dpjvy5em1o?at_medium=RSS&at_campaign=rss) |
 | Manhunt in Australian bush brings long-dismissed conspiracy theorists to the fore | [阅读全文](https://www.bbc.com/news/articles/ckgyk7ry8rdo?at_medium=RSS&at_campaign=rss) |
 | I asked a bus passenger to turn his phone down - he called me miserable | [阅读全文](https://www.bbc.com/news/articles/c2l74nq2pldo?at_medium=RSS&at_campaign=rss) |
+| What Taylor Swift and Travis Kelce's wedding could look like | [阅读全文](https://www.bbc.com/news/articles/ckgyw2p9n68o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
