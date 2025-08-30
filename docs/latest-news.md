@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月30日 13:24:47（北京时间）**
+🕒 更新时间：**2025年08月30日 13:32:02（北京时间）**
 
 ---
 
@@ -24,10 +24,10 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Most of Trump's tariffs are not legal, court rules: what to know - Axios | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTFB6eVNBbldSM2ZPLUJieXJWNS1SRW5PbEtoN2pCOExfTnZKQUNvQVNLV1BSWUttLWtnekE2Sm81SnVLSi14dWdLTVZCbU5vMkRqZ3pCQmNFTnhfM1lGQ3FSNXppMnFsUlhURjhF?oc=5) |
+| 'There is no message': The search for ideological motives in the Minneapolis shooting - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9wS1pLeDhTZDlEZm9YTlZocEhnM0R5cGt1Z3BOV3dCNWIyOFNQdVBSTFdfcEZUYjNzY3hfd001a1dTRFZ1TUpIZGdSVVk4MWNWNUs3M1BnYWVmSFQ0RzZUZFlLMGNUOFNGX2NJaWszRkxXNWNXQjViT21BTDE?oc=5) |
 | CHP to protect ex-VP Kamala Harris after Trump pulls Secret Service detail, sources say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQSDNDVmxmWWk5dF85WUdoTkJSelBQdUhQLVFub0hBWXVfQlF6U3dDbzkzS2htdmJSMHlLdGIzUWV3dFJ5WXN0dWJZQlFuUzNMaHR1NkxNb1c5MVB2bmEycmN4c3lZRkZqaXpPRjZHUmM5WWI1UjZrLWlRbnJSaVo0SDZ0MG5FVWs?oc=5) |
-| Grief turns to hope as Minneapolis rallies behind kids hurt in school shooting - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQT1lhUG9VQmZkRm9lWE9UQWlJY0pxZDRhQnM1UGRUbnFDSlRXS3dlVWNIdnlMdkxsZzJEcUFnTUo4TmE3ZTZxQlZ5aWVkVkp6eUpaOVBjUW1qb1VlTmVGdldXTVJ1d0ptb2M4QVpZcjQ2VFRsZnEyZW1XYUhZSXpMOWhXeENTNUFvakUxUi1GSmdjVENoQkstbjNIM0FtM1nSAaQBQVVfeXFMUFZ4UU1ON2F5VzRhd2tJcjgzdUp1UzFsUExlV0dwYlJ0amwyaHBRN2s3Y2JSYUk2NnRZc0doVFBFR3Ezazd4aW41VkgzX0VVTGZCSlcwYXJkdkZzLWYtR0N1VVVPMndGY1U2RldBRGVCZ3liRWZRbEpMdTFDd3dseU9kV0ZMaVdWVklPOFp1d2FmU0tDcGlKTjJERFo3N0FrcW9CeEM?oc=5) |
-| The new head of the CDC has no training in medicine and once helped Peter Thiel develop man-made islands floating outside U.S. territory - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOR2ZtMVN5SWpvTjVvb0x3aFF4WDVLSkRGZV9mbnV6ZjUyU2VoS1N2aGxBWUVvN2dLSElVM2hhaXc1aG1vUFg1TE5seXNsbFE4QjQ3ZXlIRmNoRXViWEtSTmFXMVQ3R3B5YTJ4YTNjRlJteGQzUUp1ZVlXYzBKVk90c2h1N3pfczVFUkZSZEdqTUQ1dkxZSmxB?oc=5) |
 | Judge says Trump effort to expand speedy deportations of migrants violates due process - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQdUNpeWt2Zm56WWJUaUJRYldVWjI5cW9fT3YxbTFJRzRVcklQUE55cGY0WXRJQnFGdFlhZmdiNWx4RW1DdHJuM2xNNnQta1ByRnZFVG1tWHNNX0RlaVpFcWlWSlJPOHZuTnpSNWNyR0VtZG41UHR0WTY2QTdNcDNfTUR5UjhZX3hI?oc=5) |
+| With CDC in chaos, scientists and physicians piece together replacements for agency's lost work - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPX3I3THJIdUtBVHNsNjZKM2ZYX2tveERUbUdJRV9VcDlncGdqU0h1enVnMTBZNFpHbW9KY3JURHlzc3ZxTXF3OUlwVUZHWXZoOGdRYy01R3RuMkpMaWl6SE1mZEdha3JEcjFtelN4N2Z4RWx2TWNKUkRZaEZsMkpBckEwQnpVVExMYUc1cW1DVUdnMXZQTXJR?oc=5) |
 | Missouri's Republican governor calls special session on redistricting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPSE9rT19NbFJXN0JnQzhqUThSQTJtUzhxakllakFRN3E5bFhxZEs0TUN4bGt0MzFIUDNVSTlxUktJQjRxR3llSUMxcVZ0T1ZXUUN4OTRjUTFmdHFjbk91MGlHdF9SYVhRejZJelNUS0V0X3RNYkVHMHhwaXlhUWFaTUYxcjhGQk9wQXpqS1lFUElIZzVySmIya0dYcF95Z9IBowFBVV95cUxPNl95SnduRlBnek14eFZtb05fNm05OXNFS2ctTlh3aFotZS1PaHVWVklHZDVkRzVQaEhTWWljMzgzSFRoeHNlNGhmR0xweko0clFGeGdFUnNPc2ZSSnJCZ05xVUhqRWZoeWNqREZTTnNOSFdIelVfRHliLWZMcVYwUzlGMm1uazgwNVVTcW1WaVFHR29IM0hqblFxTUJ2NTVxZ3B3?oc=5) |
 | Social Security whistleblower quits after saying Americans’ data was compromised - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQWUY0Q1RoLXpMZmp6YzlKcy1iTnNsQzZfM2ZYbWZ4YTBYM3BSM0JJdkJLdGdlaXNNYjFMS1ZpNExvU2hRNHRVQzEyRDgzWmhGdXZ4SDUwaUl1N1gyVDNLOGY3VzJjNDJWQkZtNGNKYWFMWlA4WGEzek1wLXpYY0xNenJIdw?oc=5) |
 | Trump blocks $4.9B in foreign aid Congress OK'd, using maneuver last seen nearly 50 years ago - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPQ253MjgwRklsNDZiRF9lektMUXpWRlFvVmVxMUJLcGRreTdMRDdxVHFFaFNnRllKaUVoR2FLRFRXdC1wSWNpWXIzbGNDTmNINjhzdzEwNUs4NFZhWndDWWN3bklzRi1tbERVSlZXX3h4XzM1MUZsWF81X1ZiVjBUX1VuVTU3dWdtUHNpaWVtX3BsVXpBbmpLTjduWQ?oc=5) |
