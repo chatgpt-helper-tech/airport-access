@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 08:08:51（北京时间）**
+🕒 更新时间：**2025年08月31日 08:16:36（北京时间）**
 
 ---
 
@@ -29,7 +29,7 @@
 | California Highway Patrol to protect Kamala Harris after Trump pulls Secret Service detail, sources say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQSDNDVmxmWWk5dF85WUdoTkJSelBQdUhQLVFub0hBWXVfQlF6U3dDbzkzS2htdmJSMHlLdGIzUWV3dFJ5WXN0dWJZQlFuUzNMaHR1NkxNb1c5MVB2bmEycmN4c3lZRkZqaXpPRjZHUmM5WWI1UjZrLWlRbnJSaVo0SDZ0MG5FVWs?oc=5) |
 | Houthi rebels say Israeli airstrike killed their prime minister in Yemen's capital - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOZnE5djk0UjRWXzZSLXl3YkU2cGFCeFB5XzN4ZnJqQ2dvc0VlT096RFJpZTVYMk83eDFKdVhyZmV6NkZVbW1EQmxjaXFObklQbTFVQ3czdV9HRk9odkotTGZJemxNTzdoZjFuQ1hsazhQcVB2ajNpaWw3UFR1UVRjU2xieHBoc3NDb3JlMGFOVGVza1hhRTRlN1Nn?oc=5) |
 | ‘Is Trump Dead?’ Rumors Debunked As Trump Seen Leaving For Golf - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQc1VMNmRFVGItQ01seWRvMzhNVUw5SWhQcU15UVhDZU5qZUd5MlZVM1J3TUFWWGhUWjZqMmRGQ0ZlSjA3VTFPay1KZk1IYThORjNGNFBnOF9zLVpPbjh0bVgyazRKenFjNG5sZ29iNW1kU2oxd1M5TGJwYVdXc0RWbHVKNEpWNHRtZnZDc2NKUHRMbVVYR1ZPZjdpYUdtS2VQNVhrRTczSXFremt0cEF1NkhR?oc=5) |
-| Shrinking post-Katrina levees need $1B in upgrades - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNSkFLTEVib3pmWEFuWDRKeVluQTJrSHhsLWlJcEpkcDRSWkhLcU1ISnlPa1V0RlZNVnQxa3lDVzJOMzZEaDR5VFcyV0V6RjNlUks0UHJWSWZOVldHSW9KMnloQzZ3TkdWdGJaWVdGSnZoZkFVMGwzZE8tOXhZcHdGS1RnUTBac1l1QTF6cDZXUW01T1pRWHVfNTB6TFM2alYx?oc=5) |
+| A Morbid Memory Lingers 20 Years After Hurricane Katrina - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE43YkNSbm1ObnRmelk2QlczSzV5NnRsdUJicmRmbmlvSmxyNTRvQ2dBM3BzeVFrb0RJUkNJbFRQa01jM193M3JEbWxSN1dKX1UwU0NnUUtzQ1V5X25IV20zZHBETDJRdExWX0o3d3VMOEY2cVVMRmc?oc=5) |
 | Federal judge issues order blocking Trump effort to expand speedy deportations of migrants - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNaVhsOHUzSURQU0lkUmVzUUowZ2FyWF84Q2w1Y2RSd0V2cGNvNVlZaWlKX0RLWklFMlVIc3JYUVFUUThEbDFFNkF6VzhFaWRqdHJJLXNuWFJmdXBxYUo5a0gyS0l0RG80Q3lnR3RGOVJmWk1OUmFjRWpiZDliQnR3bUEtemJrT0hPeEs5SzZ6M0VNRGNjWWNSOElXQTVvQ2d5eVRnZHM0dndNZGpG?oc=5) |
 | Kari Lake lays off more than 500 staff at Voice of America parent agency - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQdUN5dVF3VHNWaEFXYTQ0eVhnX2JKdkZ6cy16NzRHeDFMMXJ0Tm8wbE9SRzVzVWQ1bXhjS1k2RUpFUmdOVkVVdHpkNlFsS2x6R1owU1Y3Z3dueEt1Y29KTktZVFBCVXdyNmtpWm54S0l2aktSTnZhRlBQeEZfMmRTZU1IcGdNaWhmdnByY0c1QQ?oc=5) |
 | Palestinian president's visa to the U.S. revoked ahead of key meetings at United Nations - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNOHFTRUJzZUhaNk1CdWhHQWpnVzFUdC1Ma25DLVNtY1ZMc3U4T3ItSlFhMHpTNFBTNXBNWkw5cmlZejl5RXlwbjZ5Y3YtWHBKMnhqTm5fY1RaTkM1Z2FkS01fanM4cE94LTlRZ2lxRG9UWDZPVzBJOXU3MUtvTzl3V2MycThodVZjclJINVdPZFBMeTVCb0HSAZsBQVVfeXFMTVBqbjRWYVB0YVo3blppZTY1UW55WE5PU01PQnNPc1J5NG5QUEdLOTZyY1k4VHF3MFpycVRtWVNibDJ4ajJKTVE3LXYxU0VrSkl4enc3cmk4OEtFMXNMNVBzM0hBM2ZTSkJhNi1vTXNIc3FDZFlUVEQ3QUZndXlXVkw1NzlVRVFZbnBKbXFzRVZLTzN2bjVrVDJza0U?oc=5) |
