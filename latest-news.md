@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 19:24:04（北京时间）**
+🕒 更新时间：**2025年08月31日 19:33:12（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | India committed to improving ties with China, Modi tells Xi - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNc2V3eEN0M081VmVTaml3ZExsbkFDREhFc1owYUxCSEFjOXZCbWtWRFQwSE5CNGE4eFpsNmJnbTktRzFDQ3pzbmlvYjRjNi1jZ3JENWkzY1ZuSENwa1VPaDdRbkJYSkVodEY0aVlpYWo2RGVoZkJScjB0aWdOVGlONE12VW5CYy1vX0hpdk9PczlXQU9mZFlpaW1yWHBMZ01CN3ZZSnhR?oc=5) |
 | Trump news at a glance: Backlash in Chicago as mayor defies president’s immigration crackdown - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPRDBoWEhNaUJaSFlVMG9mUl9uSjNXbHFPcXdaaS0zMURydUJJZUdYU0k0Q0M4WTlESXVXYWF5T1F0eGxhdjVnUjdoOG00dTZxOVA5WkRnV0VqaGJEVHFuNURteU03TFExZnRRZUljMnV2Uzg3YjM0YnFIZGZobG55VDVVSVZ1d2trOFNJbUI1MngxeGhDY3RKNENldTFwUQ?oc=5) |
-| Trump Says He Will Sign Executive Order Mandating Voter I.D. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNTVNCZFFBdXhyUVRQcW01NXQzODZhRGpYT3d4eGNrUkFzR0dwWDA1cC1zWUJ0QWM1T3lJLWs4Q3Myb3dMWUdqSnNfSGItdjhKUDZFWlEzQmZaMFNhcUJvQlpVYnRBVGpfUU96SFhjQmhEYlFoMkd3ZWM5eFVnV3BDSm91UGlkRXp1UGc?oc=5) |
+| Trump to order voter ID for every vote, ‘no exceptions’ - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPR2pvZWJPYzlYNVJnMzFhbXB5aGJNVUpwalNjeVYwNnBmVFFxeXdIbGdUdU1jcVdtZFp6Rzl2c2hIR19PTFhDaHZrS2xtWHhqNjJEbFVpRzRmSm1GVF9qcGh6di1icjhCTWJfdEE3ZmltVUNjOG81MC1HRHJfNWV0aDIxVFY0bkNWcFdYMUZ5OFF6V2hlVjNzRdIBngFBVV95cUxPVEcyTEJObGNoYUx5aTJoWjNlRDJ4WjltTmotNkxPb1h2RTFQb3NObDdfQ2gzdU1OTnVzVjd3LS1uSEFJLUM0bWpqRFpySVBBSFhVa1ZXTl9GM2NveU8zS19qbk9sNTNJd2hOcnVsRHpZMm5JMEFKMUxqTGFRdm94eTlyY0Zac3RsU0FLVnZsT3NrTEZIdkc3ZnBRU2V5QQ?oc=5) |
 | Ruling on Trump’s tariffs is a major setback for the White House - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQWVhrTFFKY1hzS1VoLUI5Tm9FRkFQZ1MxS2FEUVdmWGFhcFk0N1lVYjU0Y01vZG5wNmFLMjBuZXRrYnNFLWtLSUl4bHRXdTZmYzdpQjhqdVBqTlJrZEpMYm1za24tM2MwVTZfV2V5Vml5ekw2c091V2xIUlpwalJQcUl6UUhQZzRwQjhN?oc=5) |
 | Sanders pressures RFK Jr. to resign as Health chief after CDC chaos - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQY0hILXJCXzE0VkZ2UUxiZ3cxeENFZmRjTTdoX3FwS1ZOS2JFZ1VJRDR6M09zNGc2cXRsS05DNEFBSHI5bk1yWDJ2NFdoYUhmNWlQRTJRUUxuUW90MDlkX1JrRkhXbHcwS1pDWF9nM3VpckF6dkJKbFg3bW5NdVF1d0M5aTNkQmJTUm90eVRRb0ZGLWRzZG5xbUJvZEdub0h4NVRv0gGoAUFVX3lxTE1sU3doTFZ2OUFGMzJNQk5TRUtsZ1hEb3YxMTlQRUNIMFA5a0VWWTNnS2YzLUZBakduYm9jY2JaajB0SEdyM25kMXlyTlV5Q0F2V2hsMEdjMjhjM0FscTF4c1BKMUM3X2ZxWHJkLWdGUThMNkF3RS0xVmQwbGlMS1VVeTFydWR4UklhZ1NoOS1DV2x6WDRLRGN2aGJ2TzZFS3NqLWtvT0ZIbQ?oc=5) |
 | Houthi prime minister killed in Israeli air strike on Yemen - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1EM0tNem90Q0d6ZmJhSmxGOHJqN0d0UEpXcXNqWDN0LVR1LXFySG1aM3A3T0UwU1I2d0tGV28tQ3piX0Q2a0pOWnY0WGFxWEpwWWY5czhVM0Ywc3NDcGRoX2RudUYyOUkwM1dBVloxcnQ?oc=5) |
