@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 10:40:29（北京时间）**
+🕒 更新时间：**2025年08月31日 10:49:15（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Xi Uses Summit, Parade and History to Flaunt China’s Global Pull - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOQ3FYd1lGckhSNWdIdUR5ekdlVTJPU1hjanNxM3ZYelc5U1MxZ0xNSFhNTENoY2xQMWxOZldCeVZRN0tYN0VkZkhsRmE4WURYTUFwNUJrQlRPWnFVX0JyMzI2eE5qamJfRE9HTktBdDktWUxlMHdjazlJX1BZa3BQd3lyZw?oc=5) |
 | 20 Years After Katrina, My Memories Still Wander the Streets of New Orleans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE43YkNSbm1ObnRmelk2QlczSzV5NnRsdUJicmRmbmlvSmxyNTRvQ2dBM3BzeVFrb0RJUkNJbFRQa01jM193M3JEbWxSN1dKX1UwU0NnUUtzQ1V5X25IV20zZHBETDJRdExWX0o3d3VMOEY2cVVMRmc?oc=5) |
 | Federal judge blocks Trump effort to expand fast-track deportations - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQWjI4SUU3TEUxY1NIUVJUczh4ME0ySGtsM0FndWZ2RGI4TkJxMmpQYnI2WXRHN2tlUjJhdkVlN09VU19nVktWM2tibnd3WHEtcWtueERYX1VvZ2dEN3M0VURKQTNnWFhNbzI2LW5GeGc1cGcxbjFZV25WNjZIaHJYSjZtZnA2VUZzbWFV?oc=5) |
-| Trump moves to cut more than 500 Voice of America employees despite court ruling - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQN0IxeWd2TWh3eTZ2aHdRTFExT1NRSVhJM24wRmZIVG41d0dJRU1WazFtaGdIMzJEbWc4Q1hKQ2xZZmEzbVBHSFpfaDVwZUE3SU9NVmhKeFYtU3A0aDJoNU9NQjBiQW5va2lDWk9FVGJHSFBVbF9nV1dGQnVBZVpzTHFKeWt0ZFd2UFlhVEduM0g4YXdOdzFPQkJYNVZMX2FiR2Y2ZjJCNkw4djhDZnNnRkc5Z2d4bGc?oc=5) |
 | Mark Knoller, longtime CBS News correspondent, dies at 73 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPTDBNOUdrUDJYRzQ0Z3Z3dGloX0J4VGxUQ1VlZDhCVl9vY091THNXampuSjZCcHlUQ0stbmtPaFJfaEZrU0NvaW04d3dueWVwZXc0eXI5STIwMHlTS1JMRmFGZXdYUzZ0Y2xaY2dIdlNzT0Q0clBOWWFyODFJR0JCMkt5QmZnSDhSQkJTRXF4c9IBlAFBVV95cUxOcXotUklUUXAtRUlwbzBtR1ZBUjM2ZG1NaDdrQkVmckZJOUlBWU5kTXBEQ1VucWItaUNXc3h2eTRfODNWeXhiRm9lTXBwZGtFbFF0M0hiRE15LXkwTmFiY0xDUnNtbkJCQ0dSWXRvVXY4cmlDV1U0TXowNWR1bFVCbEYtTFRWRXg4dUd0UUJxY1FrX1Rp?oc=5) |
+| 50 congressional members demand answers after Bear Gulch fire immigration arrests - The Seattle Times | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQdTEyeXJlRllHZlExUkd6dnM2SUptSTBiRG1VcVZfVW9KOFdOdWZGQ0hpejlYUVFDdmMzMHhYdkJtMFNKRHcySndnMGhXTXBUc3NMN29QZkl6RThaMF9zenNXY1FJTTF3WXRnclh6NjlLdGx2c3dkZ3VIYVp3WUdReE5WM3E3elpIMVNaY1VGTnQ5N1NuMmRZbnRScVJuRWFycHRvdndvbW5ieDF0dDBHZk50cE16dEpBa3o1ZHYweE9Gbk9x?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
