@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 20:08:13（北京时间）**
+🕒 更新时间：**2025年08月31日 20:17:34（北京时间）**
 
 ---
 
@@ -29,7 +29,7 @@
 | Ruling on Trump’s tariffs is a major setback for the White House - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQWVhrTFFKY1hzS1VoLUI5Tm9FRkFQZ1MxS2FEUVdmWGFhcFk0N1lVYjU0Y01vZG5wNmFLMjBuZXRrYnNFLWtLSUl4bHRXdTZmYzdpQjhqdVBqTlJrZEpMYm1za24tM2MwVTZfV2V5Vml5ekw2c091V2xIUlpwalJQcUl6UUhQZzRwQjhN?oc=5) |
 | Russian Strikes on Western Assets in Ukraine Send an Ominous Message - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOZ1ViWVRhR2RaWFdIZXQzbS1fODYzQzV3SWZWejNnYzFFX18tUE5wRlRlclJDUHpkR3hGcFQzTTlSMG15VEVPYzhOalE3VUNLaTNuanJ4S3RTa1QxMGhLWWdnM0RVeHdfdXpFcnRjN0xfRDEtU2dHc01SU0hJTXVuWDc5Vi1hRU5FRW5j?oc=5) |
 | Houthi prime minister killed in Israeli air strike on Yemen - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1EM0tNem90Q0d6ZmJhSmxGOHJqN0d0UEpXcXNqWDN0LVR1LXFySG1aM3A3T0UwU1I2d0tGV28tQ3piX0Q2a0pOWnY0WGFxWEpwWWY5czhVM0Ywc3NDcGRoX2RudUYyOUkwM1dBVloxcnQ?oc=5) |
-| Robin Westman displayed signs of self-harm at prep school, former teacher said - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNaGxwQ21uR2FVZ0F5a1VCM3dDUVBmTVJ6YXJweDJEaDg3dkNPb21fSm56TnQwaGtTUHh6LUdhd2MxYmpqNVhPSUsxWm91U18xdmlGT256UEx2WUlmVXJVd2szNi10bGI4cHBsLTVWRUR6alhtOTZVbmtHMFhaQlR0SmtmRWtZdXpKWjJaZDVaVTg4emtCSnfSAVZBVV95cUxPYU8wRTk0MW9fNy1RYS1BVXF6QnBETHNyY2ZGaVBtb0QySnY4bHAtTEZHZnJra0p0NkdFTkV4WjRxU01GWWpaNFNLTGtRdTItTkp3eWtsZw?oc=5) |
+| What Motivated the Minneapolis Church Shooter? We May Never Know. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPRnJ4TExMc0pDdnJoQkhnaVZVOFNCNTRqclZJeDJJTWlydzZxNWFOUEFTek5MR0RzWnhNbkU3RlJjb1pQbmJPajkwLW45NkI1M25Nc2NnS0ZUdTFKSWxCR2Y0ZDJfcGwxci15NkxxelRwSV9EeDNoYWRzV1FBcnczU09R?oc=5) |
 | Trump’s ‘Startling’ Rapid Deportation Policy Paused By US Judge - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQNTBqRW1Oek5SNzdSRm50VTgzd3RYcm5PaHFjMGpMVDU3ZzRTSllNRURiZm1GaXdxQTVRQmVYdXZCdUlxRTI4Q1NCZlJiVklHUlJfQVdWVDdfRVlUc1BSQWkzSE9tMkdFUGhZSjBmZ0o3Y1hwal9qT0xGUzJRSHo4WGRNcXphOUZzdXFYYjhSeDlYYndXbjNWNXAwUlZxVW5FQ2JreGFUYXpjRU5melRoZzVB?oc=5) |
 | Musicians show support for longtime Utah violinist detained by ICE - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPQTdkSGJ1cFV2Y3lvVnlURlB4UVJ5S3ZRODZuaFRrV0hrdWM1dXJDTWVmaVdmZHcyZkx1OHRjVFRCVFhGTVlnQjcxdXlOM2J4eWlHd1VPYU00OTI4Uzl5Y2cxem90aUdfSkd0UTd0SWcySS1CazU1cXlFdnREYmRra091NDRBZW5Henk0YTlFTjZwT1pNbVE?oc=5) |
 | Can the US legally ban Mahmoud Abbas and the PA from the UN General Assembly? - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOT0pVMVk0b0VJcm9ScWdWclFCMkZCVG9ZdFl0cVp4ZGt0MTBWeHI3Mmt0b0RVOWxrVnFORkZ0Mi1lMTBMb2hVWjJQeVFaWFhLbkwweUdjQmJWU3M2Q1J0cGpwbXNZWFY5MXo5TWg1WHpmUFZPTS0zMUVIbmdMeTd4Ql9iNTQ3TWUwLXh5eXZJVGlsMTl6UFRpV3BVbkYtdklMaV9CVDJyRjZqMzjSAbABQVVfeXFMTlE3cnI0ZmxlcEFuNGVCUFVrbVFoVzRwNVVQc2tSU3RMU2NnQUc5QTBfWThXMWRmOE9hZTFJOGFoQWs0VENMamQ3TDRDVXJWREkwenRwUnZIWHhCUHJzUGJqd2VfRm9OOEJnWlo0dTB5bEMtUWdEcFJnRkF2ZUtzMjFqS3hoajMxN0VvMFVUalVHMUhvRUQzSWxUMVFpME12NXZfcWtVQ3VVNzRzeXVRcDk?oc=5) |
