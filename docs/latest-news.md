@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 19:08:34（北京时间）**
+🕒 更新时间：**2025年08月31日 19:17:39（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Houthi prime minister killed in Israeli air strike on Yemen - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1EM0tNem90Q0d6ZmJhSmxGOHJqN0d0UEpXcXNqWDN0LVR1LXFySG1aM3A3T0UwU1I2d0tGV28tQ3piX0Q2a0pOWnY0WGFxWEpwWWY5czhVM0Ywc3NDcGRoX2RudUYyOUkwM1dBVloxcnQ?oc=5) |
 | ‘No going back.’ Minneapolis church shooter turned violent after sometimes turbulent upbringing. - Star Tribune | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxNelBOejZjODQ4NmVBZjFvUVpXSDRaMGMtV00yV2pMMmNFVGJpUTFNWGFqeWVRZzN6aUlrZzZyMmxpRk1BUXBndTBKQnZDemFIcTNMWVVxeVFWRmp3QUJRUWdmSHJFQ1ViajBLc3NnXzFCczdPTmhkTENHVHItNk9rdS1XcDdHdWEzR0UydGJpWUpYWG8zcllEbVR3aFBjSGdHaFBiQjhJanlkY2tuSGpjQV8zaGQtbEpndGw1OTVtU2NwYktTQzUzQ0gxeW1hMnhaTzhHRjdNMnBPTkd0?oc=5) |
 | Suspect in Montana Bar Shooting Faces 4 Murder Charges - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBRRFdYVWJwLXYxYWxlU2plblR3ZGt6cXREY0NONmp4SHV5alktTTNLZG1rX0lpZ19NMkc4TkhDLWFxcE5PVVQyUnJQdDltNHR3RGpRVk1ENUJNaHNSSmVRQVVRck92c0xjSTh3WVFzdjc?oc=5) |
-| Trump’s ‘Startling’ Rapid Deportation Policy Paused By US Judge - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQNTBqRW1Oek5SNzdSRm50VTgzd3RYcm5PaHFjMGpMVDU3ZzRTSllNRURiZm1GaXdxQTVRQmVYdXZCdUlxRTI4Q1NCZlJiVklHUlJfQVdWVDdfRVlUc1BSQWkzSE9tMkdFUGhZSjBmZ0o3Y1hwal9qT0xGUzJRSHo4WGRNcXphOUZzdXFYYjhSeDlYYndXbjNWNXAwUlZxVW5FQ2JreGFUYXpjRU5melRoZzVB?oc=5) |
 | Musicians show support for longtime Utah violinist detained by ICE - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPQTdkSGJ1cFV2Y3lvVnlURlB4UVJ5S3ZRODZuaFRrV0hrdWM1dXJDTWVmaVdmZHcyZkx1OHRjVFRCVFhGTVlnQjcxdXlOM2J4eWlHd1VPYU00OTI4Uzl5Y2cxem90aUdfSkd0UTd0SWcySS1CazU1cXlFdnREYmRra091NDRBZW5Henk0YTlFTjZwT1pNbVE?oc=5) |
+| Trump’s ‘Startling’ Rapid Deportation Policy Paused By US Judge - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQNTBqRW1Oek5SNzdSRm50VTgzd3RYcm5PaHFjMGpMVDU3ZzRTSllNRURiZm1GaXdxQTVRQmVYdXZCdUlxRTI4Q1NCZlJiVklHUlJfQVdWVDdfRVlUc1BSQWkzSE9tMkdFUGhZSjBmZ0o3Y1hwal9qT0xGUzJRSHo4WGRNcXphOUZzdXFYYjhSeDlYYndXbjNWNXAwUlZxVW5FQ2JreGFUYXpjRU5melRoZzVB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
