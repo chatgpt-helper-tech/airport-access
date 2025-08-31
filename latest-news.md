@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 20:41:44（北京时间）**
+🕒 更新时间：**2025年08月31日 20:49:04（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | What Motivated the Minneapolis Church Shooter? We May Never Know. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPRnJ4TExMc0pDdnJoQkhnaVZVOFNCNTRqclZJeDJJTWlydzZxNWFOUEFTek5MR0RzWnhNbkU3RlJjb1pQbmJPajkwLW45NkI1M25Nc2NnS0ZUdTFKSWxCR2Y0ZDJfcGwxci15NkxxelRwSV9EeDNoYWRzV1FBcnczU09R?oc=5) |
 | Musicians show support for longtime Utah violinist detained by ICE - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPQTdkSGJ1cFV2Y3lvVnlURlB4UVJ5S3ZRODZuaFRrV0hrdWM1dXJDTWVmaVdmZHcyZkx1OHRjVFRCVFhGTVlnQjcxdXlOM2J4eWlHd1VPYU00OTI4Uzl5Y2cxem90aUdfSkd0UTd0SWcySS1CazU1cXlFdnREYmRra091NDRBZW5Henk0YTlFTjZwT1pNbVE?oc=5) |
 | Sanders pressures RFK Jr. to resign as Health chief after CDC chaos - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQY0hILXJCXzE0VkZ2UUxiZ3cxeENFZmRjTTdoX3FwS1ZOS2JFZ1VJRDR6M09zNGc2cXRsS05DNEFBSHI5bk1yWDJ2NFdoYUhmNWlQRTJRUUxuUW90MDlkX1JrRkhXbHcwS1pDWF9nM3VpckF6dkJKbFg3bW5NdVF1d0M5aTNkQmJTUm90eVRRb0ZGLWRzZG5xbUJvZEdub0h4NVRv0gGoAUFVX3lxTE1sU3doTFZ2OUFGMzJNQk5TRUtsZ1hEb3YxMTlQRUNIMFA5a0VWWTNnS2YzLUZBakduYm9jY2JaajB0SEdyM25kMXlyTlV5Q0F2V2hsMEdjMjhjM0FscTF4c1BKMUM3X2ZxWHJkLWdGUThMNkF3RS0xVmQwbGlMS1VVeTFydWR4UklhZ1NoOS1DV2x6WDRLRGN2aGJ2TzZFS3NqLWtvT0ZIbQ?oc=5) |
-| Russian Strikes on Western Assets in Ukraine Send an Ominous Message - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOZ1ViWVRhR2RaWFdIZXQzbS1fODYzQzV3SWZWejNnYzFFX18tUE5wRlRlclJDUHpkR3hGcFQzTTlSMG15VEVPYzhOalE3VUNLaTNuanJ4S3RTa1QxMGhLWWdnM0RVeHdfdXpFcnRjN0xfRDEtU2dHc01SU0hJTXVuWDc5Vi1hRU5FRW5j?oc=5) |
+| Trump’s ‘Startling’ Rapid Deportation Policy Paused By US Judge - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQNTBqRW1Oek5SNzdSRm50VTgzd3RYcm5PaHFjMGpMVDU3ZzRTSllNRURiZm1GaXdxQTVRQmVYdXZCdUlxRTI4Q1NCZlJiVklHUlJfQVdWVDdfRVlUc1BSQWkzSE9tMkdFUGhZSjBmZ0o3Y1hwal9qT0xGUzJRSHo4WGRNcXphOUZzdXFYYjhSeDlYYndXbjNWNXAwUlZxVW5FQ2JreGFUYXpjRU5melRoZzVB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
