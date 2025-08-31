@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 00:09:20（北京时间）**
+🕒 更新时间：**2025年09月01日 00:18:01（北京时间）**
 
 ---
 
@@ -9,9 +9,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | UK secures £10bn deal to supply Norway with warships | [阅读全文](https://www.bbc.com/news/articles/cr5rgdpvn63o?at_medium=RSS&at_campaign=rss) |
+| Hamas spokesman Abu Obeida killed in Gaza, Israel says | [阅读全文](https://www.bbc.com/news/articles/cm214r5rd29o?at_medium=RSS&at_campaign=rss) |
 | Minister warns parents on school attendance ahead of new term | [阅读全文](https://www.bbc.com/news/articles/cg7jk3rr225o?at_medium=RSS&at_campaign=rss) |
 | Tories pledge to get all oil and gas out of North Sea | [阅读全文](https://www.bbc.com/news/articles/cp890n51684o?at_medium=RSS&at_campaign=rss) |
-| Hamas spokesman Abu Obeida killed in Gaza, Israel says | [阅读全文](https://www.bbc.com/news/articles/cm214r5rd29o?at_medium=RSS&at_campaign=rss) |
 | Boy who died in playground fall 'so full of life' | [阅读全文](https://www.bbc.com/news/articles/cg4x6re1zwro?at_medium=RSS&at_campaign=rss) |
 | Britain is hotting up - but is home air-con the answer? | [阅读全文](https://www.bbc.com/news/articles/c5yl5v4elgno?at_medium=RSS&at_campaign=rss) |
 | Life inside notorious immigration centre 'Alligator Alcatraz' as it enters final days | [阅读全文](https://www.bbc.com/news/articles/cwy3zel0r3go?at_medium=RSS&at_campaign=rss) |
