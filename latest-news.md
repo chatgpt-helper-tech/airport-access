@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 01:09:39（北京时间）**
+🕒 更新时间：**2025年09月01日 01:17:58（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | Boy who died in playground fall 'so full of life' | [阅读全文](https://www.bbc.com/news/articles/cg4x6re1zwro?at_medium=RSS&at_campaign=rss) |
 | Britain is hotting up - but is home air-con the answer? | [阅读全文](https://www.bbc.com/news/articles/c5yl5v4elgno?at_medium=RSS&at_campaign=rss) |
 | Baby dies of whooping cough after mother not vaccinated while pregnant | [阅读全文](https://www.bbc.com/news/articles/cx2xe5l4mn5o?at_medium=RSS&at_campaign=rss) |
-| Tennis star meets fan after US Open hat snatching viral video | [阅读全文](https://www.bbc.com/news/articles/cx298wd85d9o?at_medium=RSS&at_campaign=rss) |
-| Norris retires as Piastri wins chaotic Dutch GP | [阅读全文](https://www.bbc.com/sport/formula1/articles/c2dj95035kpo?at_medium=RSS&at_campaign=rss) |
+| US Open star gives boy cap after viral snatching video | [阅读全文](https://www.bbc.com/news/articles/cx298wd85d9o?at_medium=RSS&at_campaign=rss) |
 | China and India pledge to be 'partners not rivals' | [阅读全文](https://www.bbc.com/news/articles/clyrwv0egzro?at_medium=RSS&at_campaign=rss) |
+| Two arrested over 'racial assault' in park after video circulates online | [阅读全文](https://www.bbc.com/news/articles/cx27xj85y5lo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,9 +30,9 @@
 | As U.S. fleet steams toward coast, Venezuelans face uncertainty, fear and, for some, hope - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQNlFIYkVnRzFwUHVIWDV0ZWFLY2ZGYXdST0tRYXZUanZ4TmNjNDY1V0dLZnVOMHZKdHJEaXp1dG9GWC1uWkc2bmpuRElDZ0I4ZWh1VnZsMmdNYThBY3ZXQjNYUGlOVVE3d0hvZGpKTDM0WHowRXFyMEJOQkhDd0FXVVZkREZVUjZpVXVPYzJFZlFFQ0RRdEdKQ20wNE90QWpTUk5oNVV5SXdjS3o0WHVFaF9QaVpHNzhSN3J6czJvS2hIRVg4a21RNGhmOFI0bWhDanc?oc=5) |
 | Moore: ‘I have no interest in fighting with the president, but I have an interest in fighting for my communities’ - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPUGRFMnoyUm02TWRlRHdrLV9sNlB1OEtVNWYwcTF4WEt4ZEwzT0NvTEVQMmgxYXBzTjBDaFN4NGxOcWpCYmJtcVN5eVYtTHB5Q3ZMeWp5YWM0WGlkb3E1NjZOVXczQjc4SnNFck5zVzNNTTJDWHEwRXR0RXNmMG1VV19WRVRZMnU5RlN1Y29vN2s5TzRGUWNJdHMzSXozdUZkWW1LeUFFMkxaeGNqTS1heEI3UUnSAboBQVVfeXFMTXM0dzVyV2FMdUhjU0lqbnZlQ0Y2WEpCZnJjVXZDQ0xpM1REOFRkRkJZaEZuUmQ1SHd1UWphT3ZITklKMGp3VDE2RV81VmIxcHBwR3dYc09CUFlVRHdfdVNZN0lKRWhBR3FzelI1LXZVRXlXRXFVdVg5Vy1sUnl6RGNlbHR6bnNuYmoySVFZSGlpa3ZjYWV5MnBmdmM0RFhQVTFMelZKTUZQSzRXdm80bXhHemJ3My0tZjR3?oc=5) |
 | Pope Leo demands end to ‘pandemic of arms’ after Minnesota school shooting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxORlg2MVZTUHZkVDZLeG94bUVtX3dOLU83ajMyRnM1bDBDY3JXREVlcFpuN00xU2FaOHV5TlhOYTBhR2psQU1SR05Nbl9zSkI1MmxDUVRtMnJNdFRNRUxUREg0dS1BZ1RSQ0RVNVI1amJtOHk2NnM0OW4xMUJsZmxDLXliQnNoRnJLdWc?oc=5) |
-| ‘We’re trapped’: Trump’s tariffs lock US businesses in China - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPcmloNGNRcnQ4MTRKNjZKQ3loVmJRSUdKQ0V5aFIxVlZVZGtQLWFqaVdsZFRPWlRucTdSTF9sVV9TdHRIaDRlNHZGdXRhU1FXalpOdm5HcUZKUUZWbzZIWWhhWmppQjNVZXY1OEEzZHNaSjZPX1drckRrUzJmazFnQzdPRzZYTlJqTkxyTE1zRmw4RVdLQmppYk1KRnRwQk4wUGhMMm9oc20?oc=5) |
 | Blocking tariffs would be "end of the United States," top Trump adviser says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE56VXlPeFpocjN5d1Z1VThKUF9oY3RQOVRNQWQ5RlgxWWdaOTBMbWY2Yjd1WTFvTG5CX2ZXUHc3NzlvYnIxbzBjdWZ1aWxOMXlZNzJGV2VnbnhFMjM4Z1Z4ZXFyTmVMZWViSEE4cQ?oc=5) |
 | Government shutdown looms as Congress returns after monthlong August recess - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQYWhlNENqeVJwUUdoUFNkZEpzSjZSdzZManFVSHBiTnFBYkhvT25LU1o1aV82S0dzTE90cl9NSW9YZEZETjhNdElDZTZ6Q3hKTjlZUVVQZUxCdDREbXhQSFpCdHR5SHV3MDB0cUdWbjNLc3UtQ2VUbDg3NllET0c0cVFJVmxFX09CbkhwUV9uazlQeFZneFdNcGluYml3QQ?oc=5) |
+| Mark Knoller, longtime CBS News correspondent, dies at 73 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPTDBNOUdrUDJYRzQ0Z3Z3dGloX0J4VGxUQ1VlZDhCVl9vY091THNXampuSjZCcHlUQ0stbmtPaFJfaEZrU0NvaW04d3dueWVwZXc0eXI5STIwMHlTS1JMRmFGZXdYUzZ0Y2xaY2dIdlNzT0Q0clBOWWFyODFJR0JCMkt5QmZnSDhSQkJTRXF4c9IBlAFBVV95cUxOcXotUklUUXAtRUlwbzBtR1ZBUjM2ZG1NaDdrQkVmckZJOUlBWU5kTXBEQ1VucWItaUNXc3h2eTRfODNWeXhiRm9lTXBwZGtFbFF0M0hiRE15LXkwTmFiY0xDUnNtbkJCQ0dSWXRvVXY4cmlDV1U0TXowNWR1bFVCbEYtTFRWRXg4dUd0UUJxY1FrX1Rp?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
