@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 22:08:52（北京时间）**
+🕒 更新时间：**2025年08月31日 22:17:44（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | In Trump’s Federal Work Force Cuts, Black Women Are Among the Hardest Hit - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOb1I3dGo4QkR3V2ltQ2lkSFQ0NldTQlRlUV90d1J4Z1l4NXNNd0lUVy1Za2JrU0JBamVBRmpaTm44RFFkUWN4cjdaeWdMSWhHN1BOU2sybDNiam55djZNTGRsM0c1ZFgtc0J0Tm1xRTdwSXVGVno2REZsdmotakpvRS16WW5zSndlaDZ4QWNKQVk5UQ?oc=5) |
 | US Trading Partners ‘Dazed and Confused’ After Tariff Court Loss - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQMTZhcl9HcmFacFZ3WERrbE56TmlTVEZZOWNQdEZZOFZ4Y2tadldFZVpWalVacUNod3FiMXpwd19lZUFOa1p0bDJ3RXpLZEtyNEZud0ljWjVzeG1TaDVET1lXYUp4SG9QaEo5Q1NBQUJaZW9EdnRfVnF2VEdkd2N0bE5CczgyQUJVMzNSMXJIa3B3UF9OZjhGQTNvRU9GRk1KSUFZdjNjcTR0QjNYQzJBenF6VQ?oc=5) |
 | Pope Leo XIV denounces "pandemic of arms" after Minnesota school shooting that killed 2 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNQi1PU2xqZHhzTVI3MW02RmFWYW1ERDFxLUkzZUlYZnZ5M01CMmVjZENCMmxrbWdDazlkQUNJZTE5WS1mbldNbW5LNE5SZFJrd2hvck9VaEF0MEQzTlhmaFdXdXdvSGpMdTlFOUttazJkV3kyV1FZdTFHdi1kd3FXUzBOTEJ2TlpFUDNuZG9jcEZ5ZDY4TkV30gGcAUFVX3lxTE1XOUx4U0lGajNXMFg3bVhyUVBndjctUFNRejJPTHpEVmpiQXp3ZllTZFpHVjNORkljZDJLcnZTVFo4YUR6dENBUGhjNlNEZjluTTl6Y0dlTXlkUVV6SUJJZmt1THJIU1E4RV9rdUlURlRPRVZKVElpQWY1REI4Q2hHdHkwRDE0XzBSbjBoWV80ak1sX0FJcHBkWXgxdg?oc=5) |
+| Mark Knoller Dies: Longtime CBS News White House Correspondent Was 73 - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNcEJTbU82M3gydWxTRC1NV0plYmxlNTEyRV9FOWtIWDlBZi1rcXFtaFlRRkROUWdCbGxyY0R3R21iTHJ1endHNXVvdFgyN21sV2YtejV0aGFrN0pLOExBTGhiY1VaelhTZHdfaU5mb1pJaGpOZlJHdDU3cVFPZl8yQVdWZWc1ZlAwenJENkxOQ3pGQ1pLWUJ6WQ?oc=5) |
 | RFK Jr says he’ll ‘fix’ a vaccine program - by canceling compensation for people with vaccine injuries - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxObHZzaTRENmhVU3F3WXVBOWZaR2pGWWhnMmVJZE5UUVp5bm5OczBILXhXNzFpOG1LbEwyQ0FpVmtXWnRhV3VqQzctWE5xblJ5dWJwT19HbkJTdGl6RFM3YUtGb0prVVdQT0dCUWNSczJhYURneW5aTWdCSXlCWnNrZkVKeGRxVGVLSHc?oc=5) |
-| Sanders pressures RFK Jr. to resign as Health chief after CDC chaos - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQY0hILXJCXzE0VkZ2UUxiZ3cxeENFZmRjTTdoX3FwS1ZOS2JFZ1VJRDR6M09zNGc2cXRsS05DNEFBSHI5bk1yWDJ2NFdoYUhmNWlQRTJRUUxuUW90MDlkX1JrRkhXbHcwS1pDWF9nM3VpckF6dkJKbFg3bW5NdVF1d0M5aTNkQmJTUm90eVRRb0ZGLWRzZG5xbUJvZEdub0h4NVRv0gGoAUFVX3lxTE1sU3doTFZ2OUFGMzJNQk5TRUtsZ1hEb3YxMTlQRUNIMFA5a0VWWTNnS2YzLUZBakduYm9jY2JaajB0SEdyM25kMXlyTlV5Q0F2V2hsMEdjMjhjM0FscTF4c1BKMUM3X2ZxWHJkLWdGUThMNkF3RS0xVmQwbGlMS1VVeTFydWR4UklhZ1NoOS1DV2x6WDRLRGN2aGJ2TzZFS3NqLWtvT0ZIbQ?oc=5) |
 | Russian Strikes on Western Assets in Ukraine Send an Ominous Message - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOZ1ViWVRhR2RaWFdIZXQzbS1fODYzQzV3SWZWejNnYzFFX18tUE5wRlRlclJDUHpkR3hGcFQzTTlSMG15VEVPYzhOalE3VUNLaTNuanJ4S3RTa1QxMGhLWWdnM0RVeHdfdXpFcnRjN0xfRDEtU2dHc01SU0hJTXVuWDc5Vi1hRU5FRW5j?oc=5) |
 
 ---

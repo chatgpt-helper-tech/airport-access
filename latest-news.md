@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 22:08:52（北京时间）**
+🕒 更新时间：**2025年08月31日 22:17:44（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | India committed to improving ties with China, Modi tells Xi - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNc2V3eEN0M081VmVTaml3ZExsbkFDREhFc1owYUxCSEFjOXZCbWtWRFQwSE5CNGE4eFpsNmJnbTktRzFDQ3pzbmlvYjRjNi1jZ3JENWkzY1ZuSENwa1VPaDdRbkJYSkVodEY0aVlpYWo2RGVoZkJScjB0aWdOVGlONE12VW5CYy1vX0hpdk9PczlXQU9mZFlpaW1yWHBMZ01CN3ZZSnhR?oc=5) |
-| Chicago mayor signs order to resist potential Trump crackdown - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBKdXhwRTFobDE1ejZZeHpkdU5UVElvSkFmQnJucGs1UjBUVktPZkJacjRPcjNaR2VpQkp0eXo2Q0d5MXJBYWJqdV83cGZ5TkpFOURmbE5UTFlYQdIBX0FVX3lxTFBsY0liYlN2a0Y1Mm5wbDV0eUR4NGdqcjN0YnJDdnhxempVcXdQa014MGxmVDJHeXh5bDFYeUc0Q1Y4bGpKR0ZxLXlZZHFPTUNULXV4dkQ1ckRHMnlIM0xB?oc=5) |
+| Trump news at a glance: Backlash in Chicago as mayor defies president’s immigration crackdown - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPRDBoWEhNaUJaSFlVMG9mUl9uSjNXbHFPcXdaaS0zMURydUJJZUdYU0k0Q0M4WTlESXVXYWF5T1F0eGxhdjVnUjdoOG00dTZxOVA5WkRnV0VqaGJEVHFuNURteU03TFExZnRRZUljMnV2Uzg3YjM0YnFIZGZobG55VDVVSVZ1d2trOFNJbUI1MngxeGhDY3RKNENldTFwUQ?oc=5) |
 | Trump to order voter ID for every vote, ‘no exceptions’ - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPR2pvZWJPYzlYNVJnMzFhbXB5aGJNVUpwalNjeVYwNnBmVFFxeXdIbGdUdU1jcVdtZFp6Rzl2c2hIR19PTFhDaHZrS2xtWHhqNjJEbFVpRzRmSm1GVF9qcGh6di1icjhCTWJfdEE3ZmltVUNjOG81MC1HRHJfNWV0aDIxVFY0bkNWcFdYMUZ5OFF6V2hlVjNzRdIBngFBVV95cUxPVEcyTEJObGNoYUx5aTJoWjNlRDJ4WjltTmotNkxPb1h2RTFQb3NObDdfQ2gzdU1OTnVzVjd3LS1uSEFJLUM0bWpqRFpySVBBSFhVa1ZXTl9GM2NveU8zS19qbk9sNTNJd2hOcnVsRHpZMm5JMEFKMUxqTGFRdm94eTlyY0Zac3RsU0FLVnZsT3NrTEZIdkc3ZnBRU2V5QQ?oc=5) |
 | Indonesian finance minister’s home looted as unrest spreads - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9KVWRzMENqd0tpcVhrcWZLSmpPTE1CcnBVdjFpZGtZUjExOFhHckloZElfZTdZRWNhVV9seEUwVDBwWUtKYjR1Q3AyaE1FdlU1SG9XbFd5Y2paWU5DSkFEQmxnQ1pfY1B5VkNkTzJGdVA?oc=5) |
+| In Trump’s Federal Work Force Cuts, Black Women Are Among the Hardest Hit - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOb1I3dGo4QkR3V2ltQ2lkSFQ0NldTQlRlUV90d1J4Z1l4NXNNd0lUVy1Za2JrU0JBamVBRmpaTm44RFFkUWN4cjdaeWdMSWhHN1BOU2sybDNiam55djZNTGRsM0c1ZFgtc0J0Tm1xRTdwSXVGVno2REZsdmotakpvRS16WW5zSndlaDZ4QWNKQVk5UQ?oc=5) |
 | US Trading Partners ‘Dazed and Confused’ After Tariff Court Loss - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQMTZhcl9HcmFacFZ3WERrbE56TmlTVEZZOWNQdEZZOFZ4Y2tadldFZVpWalVacUNod3FiMXpwd19lZUFOa1p0bDJ3RXpLZEtyNEZud0ljWjVzeG1TaDVET1lXYUp4SG9QaEo5Q1NBQUJaZW9EdnRfVnF2VEdkd2N0bE5CczgyQUJVMzNSMXJIa3B3UF9OZjhGQTNvRU9GRk1KSUFZdjNjcTR0QjNYQzJBenF6VQ?oc=5) |
-| What to Know About Jim O’Neill, the New Acting C.D.C. Director - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE84RXpDNWNpM3VtdWx6Tm1fZHJ2Wk5NRGdDdXZZcEx5NXRMdkdhVndVVEZxcjExRXo2bk1TeHRmQlNmdFoyeTZrb0dwSXhiMlRybE9Qc1BZeEgyLURpejR5SG55TVhjaVNYajlOckg1YnE?oc=5) |
 | Pope Leo XIV denounces "pandemic of arms" after Minnesota school shooting that killed 2 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNQi1PU2xqZHhzTVI3MW02RmFWYW1ERDFxLUkzZUlYZnZ5M01CMmVjZENCMmxrbWdDazlkQUNJZTE5WS1mbldNbW5LNE5SZFJrd2hvck9VaEF0MEQzTlhmaFdXdXdvSGpMdTlFOUttazJkV3kyV1FZdTFHdi1kd3FXUzBOTEJ2TlpFUDNuZG9jcEZ5ZDY4TkV30gGcAUFVX3lxTE1XOUx4U0lGajNXMFg3bVhyUVBndjctUFNRejJPTHpEVmpiQXp3ZllTZFpHVjNORkljZDJLcnZTVFo4YUR6dENBUGhjNlNEZjluTTl6Y0dlTXlkUVV6SUJJZmt1THJIU1E4RV9rdUlURlRPRVZKVElpQWY1REI4Q2hHdHkwRDE0XzBSbjBoWV80ak1sX0FJcHBkWXgxdg?oc=5) |
-| Trump’s ‘Startling’ Rapid Deportation Policy Paused By US Judge - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQNTBqRW1Oek5SNzdSRm50VTgzd3RYcm5PaHFjMGpMVDU3ZzRTSllNRURiZm1GaXdxQTVRQmVYdXZCdUlxRTI4Q1NCZlJiVklHUlJfQVdWVDdfRVlUc1BSQWkzSE9tMkdFUGhZSjBmZ0o3Y1hwal9qT0xGUzJRSHo4WGRNcXphOUZzdXFYYjhSeDlYYndXbjNWNXAwUlZxVW5FQ2JreGFUYXpjRU5melRoZzVB?oc=5) |
 | Mark Knoller Dies: Longtime CBS News White House Correspondent Was 73 - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNcEJTbU82M3gydWxTRC1NV0plYmxlNTEyRV9FOWtIWDlBZi1rcXFtaFlRRkROUWdCbGxyY0R3R21iTHJ1endHNXVvdFgyN21sV2YtejV0aGFrN0pLOExBTGhiY1VaelhTZHdfaU5mb1pJaGpOZlJHdDU3cVFPZl8yQVdWZWc1ZlAwenJENkxOQ3pGQ1pLWUJ6WQ?oc=5) |
 | RFK Jr says he’ll ‘fix’ a vaccine program - by canceling compensation for people with vaccine injuries - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxObHZzaTRENmhVU3F3WXVBOWZaR2pGWWhnMmVJZE5UUVp5bm5OczBILXhXNzFpOG1LbEwyQ0FpVmtXWnRhV3VqQzctWE5xblJ5dWJwT19HbkJTdGl6RFM3YUtGb0prVVdQT0dCUWNSczJhYURneW5aTWdCSXlCWnNrZkVKeGRxVGVLSHc?oc=5) |
+| Russian Strikes on Western Assets in Ukraine Send an Ominous Message - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOZ1ViWVRhR2RaWFdIZXQzbS1fODYzQzV3SWZWejNnYzFFX18tUE5wRlRlclJDUHpkR3hGcFQzTTlSMG15VEVPYzhOalE3VUNLaTNuanJ4S3RTa1QxMGhLWWdnM0RVeHdfdXpFcnRjN0xfRDEtU2dHc01SU0hJTXVuWDc5Vi1hRU5FRW5j?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
