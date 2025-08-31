@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 08:01:33（北京时间）**
+🕒 更新时间：**2025年08月31日 08:08:51（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Shrinking post-Katrina levees need $1B in upgrades - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNSkFLTEVib3pmWEFuWDRKeVluQTJrSHhsLWlJcEpkcDRSWkhLcU1ISnlPa1V0RlZNVnQxa3lDVzJOMzZEaDR5VFcyV0V6RjNlUks0UHJWSWZOVldHSW9KMnloQzZ3TkdWdGJaWVdGSnZoZkFVMGwzZE8tOXhZcHdGS1RnUTBac1l1QTF6cDZXUW01T1pRWHVfNTB6TFM2alYx?oc=5) |
 | Federal judge issues order blocking Trump effort to expand speedy deportations of migrants - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNaVhsOHUzSURQU0lkUmVzUUowZ2FyWF84Q2w1Y2RSd0V2cGNvNVlZaWlKX0RLWklFMlVIc3JYUVFUUThEbDFFNkF6VzhFaWRqdHJJLXNuWFJmdXBxYUo5a0gyS0l0RG80Q3lnR3RGOVJmWk1OUmFjRWpiZDliQnR3bUEtemJrT0hPeEs5SzZ6M0VNRGNjWWNSOElXQTVvQ2d5eVRnZHM0dndNZGpG?oc=5) |
 | Kari Lake lays off more than 500 staff at Voice of America parent agency - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQdUN5dVF3VHNWaEFXYTQ0eVhnX2JKdkZ6cy16NzRHeDFMMXJ0Tm8wbE9SRzVzVWQ1bXhjS1k2RUpFUmdOVkVVdHpkNlFsS2x6R1owU1Y3Z3dueEt1Y29KTktZVFBCVXdyNmtpWm54S0l2aktSTnZhRlBQeEZfMmRTZU1IcGdNaWhmdnByY0c1QQ?oc=5) |
-| Firefighter arrested by US border agents was on track for legal status, lawyers say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNenV3YkQ5a0xBS1lULUFVTXJkcDE5dzR3SF83Yml3REFnSTdvR3JISjNFYm14N0R4VlJkbklyM2ZEX1J2X2pjSEh3Nkk1S2I5RjBtVUFYSjVBb2xWcXFmbU9hS2pIUml5R2ZNTnhNeTdKcGkxZkRxMTRpbEJBQUF0U2VWaUY3TldBaFNILQ?oc=5) |
+| Palestinian president's visa to the U.S. revoked ahead of key meetings at United Nations - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNOHFTRUJzZUhaNk1CdWhHQWpnVzFUdC1Ma25DLVNtY1ZMc3U4T3ItSlFhMHpTNFBTNXBNWkw5cmlZejl5RXlwbjZ5Y3YtWHBKMnhqTm5fY1RaTkM1Z2FkS01fanM4cE94LTlRZ2lxRG9UWDZPVzBJOXU3MUtvTzl3V2MycThodVZjclJINVdPZFBMeTVCb0HSAZsBQVVfeXFMTVBqbjRWYVB0YVo3blppZTY1UW55WE5PU01PQnNPc1J5NG5QUEdLOTZyY1k4VHF3MFpycVRtWVNibDJ4ajJKTVE3LXYxU0VrSkl4enc3cmk4OEtFMXNMNVBzM0hBM2ZTSkJhNi1vTXNIc3FDZFlUVEQ3QUZndXlXVkw1NzlVRVFZbnBKbXFzRVZLTzN2bjVrVDJza0U?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
