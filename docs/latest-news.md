@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 06:41:33（北京时间）**
+🕒 更新时间：**2025年09月01日 06:48:51（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | US still working on trade deals despite court ruling, USTR says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQRDRkNXZlVVVRWlU1dGhNWUxmQUJfZ1FqTVUyRnNfX0NGek8xajZ0X0sybjRGc0x6b1ZaUWpnbEJKWmtiNWNsaTFTZUhZZm1oV0Y1RmZXTTlCcWNUazctUDNjcG1kbkU3enhrX0NCWE4zSTkyWnRTNktQT05LcFJaeXRLU19uWWFsR2w4ZGs0RVZKRXFzalV5Tk96bGVaZkt2QW5qUGxTZw?oc=5) |
 | JB Pritzker calls for ‘all to stand up’ to Trump’s immigration crackdown in Chicago - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQRDZCWTM1UVlZdmRnQ0RRLTNLSmFLSWw5Q2lEUWhnRW0xMjFVZGwzLW5sbWVxVmlsbFRUT2ltcjBrN2VmR2tZVVJ3dXNwQUNQTzE2ZXYzVmpacFozOWhzbXJKODNjZTFRcWNINUFIaGZ1Q0ZpRWdkcDZuam1RYjkwNW9BMzMtZGRqUUE?oc=5) |
 | Trump's Gaza plan sees digital land tokens, mass relocation - The Jerusalem Post | [阅读全文](https://news.google.com/rss/articles/CBMiXEFVX3lxTE1hdXdiRDJLb2FSY1JCbG9ibXJtY0RTS0lXWTlQMllRbEIwSFhQYjUtMzNZVWFPNG0tTDQ4VnE1ZVltczdyeXRpSXQwbFVWV284azg4dFpHSDZ1QWdC?oc=5) |
-| ‘No going back.’ Minneapolis church shooter turned violent after sometimes turbulent upbringing. - Star Tribune | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxNelBOejZjODQ4NmVBZjFvUVpXSDRaMGMtV00yV2pMMmNFVGJpUTFNWGFqeWVRZzN6aUlrZzZyMmxpRk1BUXBndTBKQnZDemFIcTNMWVVxeVFWRmp3QUJRUWdmSHJFQ1ViajBLc3NnXzFCczdPTmhkTENHVHItNk9rdS1XcDdHdWEzR0UydGJpWUpYWG8zcllEbVR3aFBjSGdHaFBiQjhJanlkY2tuSGpjQV8zaGQtbEpndGw1OTVtU2NwYktTQzUzQ0gxeW1hMnhaTzhHRjdNMnBPTkd0?oc=5) |
-| Kristi Noem confirms plan to expand ICE operations in major cities - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPam9RV3BkOTItMTI0aEFEN3hjdksxMjlaTlVSWWZQd0dicTcxMEI1UFZmS0hLZEhqQm90UllFcElmcGVXLXEyTmR5Vno3LWxMVVJlRUJhRVNBcThWMHAzU1BnM2NqX3NKSE95SFdYOGNhRmxaeloxZlIyUUYtODgxM0Z4cmNDUjl4U1NXYnNGMFBKcnZ5WUhFRks0QjFYU1lFc1c5RTlfdTlNa2dNU0R6eXRzSHR4YlBQXzZtc0QzUk1GdVk?oc=5) |
-| Former CDC immunizations chief: ‘I only see harm coming’ with RFK Jr. leading HHS - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNWU9sb0tLTHBaeDlsNHVEaFlmaXUtSDFkcW1OQlpiWEJ4emtLanV5R1FSd3Y0WFhpdy1sRVNUREVYZmh2cmlKMGVhWUllUS1SRWlaZElDOTBoeVMxaUh3aHF2emVsdEJnZ3ZZLVNST3JjQzVMeTJDU3ZTZlhfTUl1VVJ6cGphdGw2Tzh0WVRZQWRWcmdETVBnbl8ybXFUWUNmaEHSAacBQVVfeXFMTVMwRVNEYTNhU2VFUW5CMHNNekgwRGtBdUpJamhZd2s5eWN5cFlOR3U4UUZvRzczQmpub1ByZC1TejFBNzhqaDUxVFFGT1RSd1JYU0V3amNGLTRZZ1A2aVJDTFBBdkFZdk96d3l3NTdzZ0diMEZQd2dpZmQ1MHUzbHBQbTZqZV91NlpxMmpURDh6aE44ckIwa3RPZGxOZnczbmVpVFJnNVE?oc=5) |
+| Pope demands end to the 'pandemic of arms' as he prays for victims of Minnesota school shooting - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPdERzaUVPVGl1VHpmT0ZOSFpRdS0xMXhpN0R1ZEYzb0Zva0ZuYVlTSUZXT1FPeU9vNHA2Y1RiazVUVE5UTG8wZ0k0dXEzNENCVTNCYm96eXZCQk84SXdzd1lEcVhmZ2VGOFA1TEtwZUhFamFFQUJ2MkJlbi01WDZVRHNURXdPSjRUTHdEQzk0TQ?oc=5) |
+| Kristi Noem confirms plan to expand ICE operations in major cities - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPam9RV3BkOTItMTI0aEFEN3hjdksxMjlaTlVSWWZQd0dicTcxMEI1UFZmS0hLZEhqQm90UllFcElmcGVXLXEyTmR5Vno3LWxMVVJlRUJhRVNBcThWMHAzU1BnM2NqX3NKSE95SFdYOGNhRmxaeloxZlIyUUYtODgxM0Z4cmNDUjl4U1NXYnNGMFBKcnZ5WUhFRks0QjFYU1lFc1c5RTlfdTlNa2dNU0R6eXRzSHR4YlBQXzZtc0QzUk1GdVnSAVZBVV95cUxPbXVxdlpVaVo3ajVFaVhUN2lmNDM2Z2tVSWtWUGUzWXNHeDVZTmxsU0hkVG90djE0MnRXXzllMU1nd2pIZ0piYTROTVVjTEFqdXRmVzlmdw?oc=5) |
+| Resigned health official: 'I only see harm coming' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOaG95QkEwNHU2a1N4RnFZbVdVcTR3TFNsVWRJNEZiYnRzbVZlOURhWVZpOVZsSXVDMDdoVncyT05Tc1BLZVdDTk1TbXlPUGNOYXJyMHQxRGdTUEtfZFZnLTJja284RmNMZmpjNW8yV3hwa3R3czNuSjVUNUhDMko3UWgtLXBIZGpwckNKVHJ3SFE4QQ?oc=5) |
 | Montana man who evaded authorities for a week after bar shooting faces 4 counts of murder - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPNmZKeERIY1ZjTGZBWXc1NkNGU0toQ1Y5SW94c2dLSVhLS0owc19DTmRmZ1U5X1pkMUdING11QVRQNG1wc2JveDZ5anBhVkJjaGwyU1pWOEt2SWVPd0lGX1dwSTN6ZnoyY1U3Qy00NjJUNDNQczFXcTZVdzVVMDBSYlpTRQ?oc=5) |
 
 ---
