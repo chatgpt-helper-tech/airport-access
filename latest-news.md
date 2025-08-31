@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 09:16:38（北京时间）**
+🕒 更新时间：**2025年08月31日 09:24:07（北京时间）**
 
 ---
 
@@ -28,10 +28,10 @@
 | Robin Westman displayed signs of self-harm at prep school, former teacher said - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNaGxwQ21uR2FVZ0F5a1VCM3dDUVBmTVJ6YXJweDJEaDg3dkNPb21fSm56TnQwaGtTUHh6LUdhd2MxYmpqNVhPSUsxWm91U18xdmlGT256UEx2WUlmVXJVd2szNi10bGI4cHBsLTVWRUR6alhtOTZVbmtHMFhaQlR0SmtmRWtZdXpKWjJaZDVaVTg4emtCSnfSAVZBVV95cUxPYU8wRTk0MW9fNy1RYS1BVXF6QnBETHNyY2ZGaVBtb0QySnY4bHAtTEZHZnJra0p0NkdFTkV4WjRxU01GWWpaNFNLTGtRdTItTkp3eWtsZw?oc=5) |
 | Bernie Sanders demands that RFK Jr step down as health secretary - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQbURJVXhzaHhiVFhXYUs3Z0UyZ0xJbGthX3B4SHloTVlvZjVHV21PbThUVWxOcVB1MWl5N3B3TnB2dWN3ZWR6MWdXU04yX3hWcnhJQkhvelhfR2hnU3pxd2xBZTBremZWVG1QNmMxMzdWaVhnZnJkOVJNZk5KSGhXZHl3?oc=5) |
 | ‘Is Trump Dead?’ Rumors Debunked As Trump Seen Leaving For Golf - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQc1VMNmRFVGItQ01seWRvMzhNVUw5SWhQcU15UVhDZU5qZUd5MlZVM1J3TUFWWGhUWjZqMmRGQ0ZlSjA3VTFPay1KZk1IYThORjNGNFBnOF9zLVpPbjh0bVgyazRKenFjNG5sZ29iNW1kU2oxd1M5TGJwYVdXc0RWbHVKNEpWNHRtZnZDc2NKUHRMbVVYR1ZPZjdpYUdtS2VQNVhrRTczSXFremt0cEF1NkhR?oc=5) |
-| 'A different shock to the system': De minimis tariff dodge ending means less purchasing power for Americans - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPV1AwVl9XSmZRRVJFYUJ5UEQwcW1PaDZKeUZJMDYtcllPdGU2azRNX2FtTVpwYkZ4SXk2MkI2VFZPNk91SVBBdUdCUHBvdnRPTWIzNnB1eUdCNDI3VzlRY1I4cTl5aVZhd2lKNnRiMm5wV2dhUzUtZDktVmFFanpIQk1jYTBDMi11VThaLW83RkN5eXlUaWdKa0w3cG96bmdsaV9WX3VKc3ZfUF94WWJfSl9KS19yXzhz?oc=5) |
+| Xi Uses Summit, Parade and History to Flaunt China’s Global Pull - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOQ3FYd1lGckhSNWdIdUR5ekdlVTJPU1hjanNxM3ZYelc5U1MxZ0xNSFhNTENoY2xQMWxOZldCeVZRN0tYN0VkZkhsRmE4WURYTUFwNUJrQlRPWnFVX0JyMzI2eE5qamJfRE9HTktBdDktWUxlMHdjazlJX1BZa3BQd3lyZw?oc=5) |
 | 20 Years After Katrina, My Memories Still Wander the Streets of New Orleans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE43YkNSbm1ObnRmelk2QlczSzV5NnRsdUJicmRmbmlvSmxyNTRvQ2dBM3BzeVFrb0RJUkNJbFRQa01jM193M3JEbWxSN1dKX1UwU0NnUUtzQ1V5X25IV20zZHBETDJRdExWX0o3d3VMOEY2cVVMRmc?oc=5) |
-| Federal judge issues order blocking Trump effort to expand speedy deportations of migrants - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNaVhsOHUzSURQU0lkUmVzUUowZ2FyWF84Q2w1Y2RSd0V2cGNvNVlZaWlKX0RLWklFMlVIc3JYUVFUUThEbDFFNkF6VzhFaWRqdHJJLXNuWFJmdXBxYUo5a0gyS0l0RG80Q3lnR3RGOVJmWk1OUmFjRWpiZDliQnR3bUEtemJrT0hPeEs5SzZ6M0VNRGNjWWNSOElXQTVvQ2d5eVRnZHM0dndNZGpG?oc=5) |
 | Border Patrol arrested firefighters as they were battling a wildfire - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNdjNjRkhicGlVWWZJeGRESlJjT2ptZW1qbF9zbUpaTUU1UXZXMl9ZRlRvT1Q4NTdwUTJXZG1KdzdHSF90bGZBM0JSc0hwMFZxTU5zZFRHQmlsWXIyemhFY0Z5MVlNZ1ZlMG8tNWllN3JySHNNWkR3QkdPYjlwVm11NUhmSXc1UkNYWFNJeVlnX0g3OTQ1NVNScVVwWWNuLWxGSTFoeXp3?oc=5) |
+| Federal judge issues order blocking Trump effort to expand speedy deportations of migrants - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNaVhsOHUzSURQU0lkUmVzUUowZ2FyWF84Q2w1Y2RSd0V2cGNvNVlZaWlKX0RLWklFMlVIc3JYUVFUUThEbDFFNkF6VzhFaWRqdHJJLXNuWFJmdXBxYUo5a0gyS0l0RG80Q3lnR3RGOVJmWk1OUmFjRWpiZDliQnR3bUEtemJrT0hPeEs5SzZ6M0VNRGNjWWNSOElXQTVvQ2d5eVRnZHM0dndNZGpG?oc=5) |
 | Trump moves to cut more than 500 Voice of America employees despite court ruling - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQN0IxeWd2TWh3eTZ2aHdRTFExT1NRSVhJM24wRmZIVG41d0dJRU1WazFtaGdIMzJEbWc4Q1hKQ2xZZmEzbVBHSFpfaDVwZUE3SU9NVmhKeFYtU3A0aDJoNU9NQjBiQW5va2lDWk9FVGJHSFBVbF9nV1dGQnVBZVpzTHFKeWt0ZFd2UFlhVEduM0g4YXdOdzFPQkJYNVZMX2FiR2Y2ZjJCNkw4djhDZnNnRkc5Z2d4bGc?oc=5) |
 
 ---
