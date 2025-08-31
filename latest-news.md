@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 23:26:01（北京时间）**
+🕒 更新时间：**2025年08月31日 23:33:01（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Indonesian politicians to have perks cut in bid to quell unrest - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE92UmszTFozS0dlLTNmTDU1WmstLVowaUIxekZYUENReHVhU3A3Z0ctMXpvY3BqVTNaVTRYY1NyT29NMEN3YzRTaXEtMVJWM2RVNmpvb2l0YW1UZ9IBX0FVX3lxTFB0bnM0RHNVWFY1S2JoMmxEVzVndkdHajBiRHBOaUwxLXdBUDl0TkpSNTRLZmU2Y1FIM29qaWxaQWJXbVphSGZ3TFcxRHJCbXN1YzBxcEdmTldHV0NXdXRr?oc=5) |
 | Pope Leo demands end to ‘pandemic of arms’ after Minnesota school shooting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxORlg2MVZTUHZkVDZLeG94bUVtX3dOLU83ajMyRnM1bDBDY3JXREVlcFpuN00xU2FaOHV5TlhOYTBhR2psQU1SR05Nbl9zSkI1MmxDUVRtMnJNdFRNRUxUREg0dS1BZ1RSQ0RVNVI1amJtOHk2NnM0OW4xMUJsZmxDLXliQnNoRnJLdWc?oc=5) |
 | RFK Jr says he’ll ‘fix’ a vaccine program - by canceling compensation for people with vaccine injuries - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxObHZzaTRENmhVU3F3WXVBOWZaR2pGWWhnMmVJZE5UUVp5bm5OczBILXhXNzFpOG1LbEwyQ0FpVmtXWnRhV3VqQzctWE5xblJ5dWJwT19HbkJTdGl6RFM3YUtGb0prVVdQT0dCUWNSczJhYURneW5aTWdCSXlCWnNrZkVKeGRxVGVLSHc?oc=5) |
-| Mark Knoller Dies: Longtime CBS News White House Correspondent Was 73 - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNcEJTbU82M3gydWxTRC1NV0plYmxlNTEyRV9FOWtIWDlBZi1rcXFtaFlRRkROUWdCbGxyY0R3R21iTHJ1endHNXVvdFgyN21sV2YtejV0aGFrN0pLOExBTGhiY1VaelhTZHdfaU5mb1pJaGpOZlJHdDU3cVFPZl8yQVdWZWc1ZlAwenJENkxOQ3pGQ1pLWUJ6WQ?oc=5) |
 | Sanders pressures RFK Jr. to resign as Health chief after CDC chaos - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQY0hILXJCXzE0VkZ2UUxiZ3cxeENFZmRjTTdoX3FwS1ZOS2JFZ1VJRDR6M09zNGc2cXRsS05DNEFBSHI5bk1yWDJ2NFdoYUhmNWlQRTJRUUxuUW90MDlkX1JrRkhXbHcwS1pDWF9nM3VpckF6dkJKbFg3bW5NdVF1d0M5aTNkQmJTUm90eVRRb0ZGLWRzZG5xbUJvZEdub0h4NVRv0gGoAUFVX3lxTE1sU3doTFZ2OUFGMzJNQk5TRUtsZ1hEb3YxMTlQRUNIMFA5a0VWWTNnS2YzLUZBakduYm9jY2JaajB0SEdyM25kMXlyTlV5Q0F2V2hsMEdjMjhjM0FscTF4c1BKMUM3X2ZxWHJkLWdGUThMNkF3RS0xVmQwbGlMS1VVeTFydWR4UklhZ1NoOS1DV2x6WDRLRGN2aGJ2TzZFS3NqLWtvT0ZIbQ?oc=5) |
 | Russian Strikes on Western Assets in Ukraine Send an Ominous Message - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOZ1ViWVRhR2RaWFdIZXQzbS1fODYzQzV3SWZWejNnYzFFX18tUE5wRlRlclJDUHpkR3hGcFQzTTlSMG15VEVPYzhOalE3VUNLaTNuanJ4S3RTa1QxMGhLWWdnM0RVeHdfdXpFcnRjN0xfRDEtU2dHc01SU0hJTXVuWDc5Vi1hRU5FRW5j?oc=5) |
+| As U.S. fleet steams toward coast, Venezuelans face uncertainty, fear and, for some, hope - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQNlFIYkVnRzFwUHVIWDV0ZWFLY2ZGYXdST0tRYXZUanZ4TmNjNDY1V0dLZnVOMHZKdHJEaXp1dG9GWC1uWkc2bmpuRElDZ0I4ZWh1VnZsMmdNYThBY3ZXQjNYUGlOVVE3d0hvZGpKTDM0WHowRXFyMEJOQkhDd0FXVVZkREZVUjZpVXVPYzJFZlFFQ0RRdEdKQ20wNE90QWpTUk5oNVV5SXdjS3o0WHVFaF9QaVpHNzhSN3J6czJvS2hIRVg4a21RNGhmOFI0bWhDanc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
