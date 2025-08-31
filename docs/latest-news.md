@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 20:49:04（北京时间）**
+🕒 更新时间：**2025年08月31日 20:56:33（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | Ruling on Trump’s tariffs is a major setback for the White House - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQWVhrTFFKY1hzS1VoLUI5Tm9FRkFQZ1MxS2FEUVdmWGFhcFk0N1lVYjU0Y01vZG5wNmFLMjBuZXRrYnNFLWtLSUl4bHRXdTZmYzdpQjhqdVBqTlJrZEpMYm1za24tM2MwVTZfV2V5Vml5ekw2c091V2xIUlpwalJQcUl6UUhQZzRwQjhN?oc=5) |
 | Historians See Autocratic Playbook in Trump’s Attacks on Science - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBidFlKbVl5REwzU2o0ZlNIVDg4SnhsVTBIUE94LVJKby1TbHIwc3lqVkZoXzFyeVd1UnlYMU9rYzlGOWFTUm0yNFlObTlmOFpfWURzNlV2alZKU3JTYjVFMDF0ZXJsdnZseEpTUWhqR0ttLU9TS1k5aTBIMA?oc=5) |
 | Ten car chases. Six crashes. Park Police have new rules in Trump’s D.C. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5RT1BScGV3M2ZFZXgzYUc2bm5JX3RzMUR4STVMc2I4cmg1M1h5cGNtMVlSZFk4SE8tX1RZVkdfT041dEFmeVVhdUxSZWwySlJZUnJxelVrUWY2UzdQUlhsczZuSUhCa3Nic3dPcEx2ZkZHeW1OazF1NHBFclpOR0k?oc=5) |
-| What Motivated the Minneapolis Church Shooter? We May Never Know. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPRnJ4TExMc0pDdnJoQkhnaVZVOFNCNTRqclZJeDJJTWlydzZxNWFOUEFTek5MR0RzWnhNbkU3RlJjb1pQbmJPajkwLW45NkI1M25Nc2NnS0ZUdTFKSWxCR2Y0ZDJfcGwxci15NkxxelRwSV9EeDNoYWRzV1FBcnczU09R?oc=5) |
-| Musicians show support for longtime Utah violinist detained by ICE - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPQTdkSGJ1cFV2Y3lvVnlURlB4UVJ5S3ZRODZuaFRrV0hrdWM1dXJDTWVmaVdmZHcyZkx1OHRjVFRCVFhGTVlnQjcxdXlOM2J4eWlHd1VPYU00OTI4Uzl5Y2cxem90aUdfSkd0UTd0SWcySS1CazU1cXlFdnREYmRra091NDRBZW5Henk0YTlFTjZwT1pNbVE?oc=5) |
+| Robin Westman displayed signs of self-harm at prep school, former teacher said - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNaGxwQ21uR2FVZ0F5a1VCM3dDUVBmTVJ6YXJweDJEaDg3dkNPb21fSm56TnQwaGtTUHh6LUdhd2MxYmpqNVhPSUsxWm91U18xdmlGT256UEx2WUlmVXJVd2szNi10bGI4cHBsLTVWRUR6alhtOTZVbmtHMFhaQlR0SmtmRWtZdXpKWjJaZDVaVTg4emtCSnfSAVZBVV95cUxPYU8wRTk0MW9fNy1RYS1BVXF6QnBETHNyY2ZGaVBtb0QySnY4bHAtTEZHZnJra0p0NkdFTkV4WjRxU01GWWpaNFNLTGtRdTItTkp3eWtsZw?oc=5) |
 | Sanders pressures RFK Jr. to resign as Health chief after CDC chaos - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQY0hILXJCXzE0VkZ2UUxiZ3cxeENFZmRjTTdoX3FwS1ZOS2JFZ1VJRDR6M09zNGc2cXRsS05DNEFBSHI5bk1yWDJ2NFdoYUhmNWlQRTJRUUxuUW90MDlkX1JrRkhXbHcwS1pDWF9nM3VpckF6dkJKbFg3bW5NdVF1d0M5aTNkQmJTUm90eVRRb0ZGLWRzZG5xbUJvZEdub0h4NVRv0gGoAUFVX3lxTE1sU3doTFZ2OUFGMzJNQk5TRUtsZ1hEb3YxMTlQRUNIMFA5a0VWWTNnS2YzLUZBakduYm9jY2JaajB0SEdyM25kMXlyTlV5Q0F2V2hsMEdjMjhjM0FscTF4c1BKMUM3X2ZxWHJkLWdGUThMNkF3RS0xVmQwbGlMS1VVeTFydWR4UklhZ1NoOS1DV2x6WDRLRGN2aGJ2TzZFS3NqLWtvT0ZIbQ?oc=5) |
+| Musicians show support for longtime Utah violinist detained by ICE - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPQTdkSGJ1cFV2Y3lvVnlURlB4UVJ5S3ZRODZuaFRrV0hrdWM1dXJDTWVmaVdmZHcyZkx1OHRjVFRCVFhGTVlnQjcxdXlOM2J4eWlHd1VPYU00OTI4Uzl5Y2cxem90aUdfSkd0UTd0SWcySS1CazU1cXlFdnREYmRra091NDRBZW5Henk0YTlFTjZwT1pNbVE?oc=5) |
 | Trump’s ‘Startling’ Rapid Deportation Policy Paused By US Judge - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQNTBqRW1Oek5SNzdSRm50VTgzd3RYcm5PaHFjMGpMVDU3ZzRTSllNRURiZm1GaXdxQTVRQmVYdXZCdUlxRTI4Q1NCZlJiVklHUlJfQVdWVDdfRVlUc1BSQWkzSE9tMkdFUGhZSjBmZ0o3Y1hwal9qT0xGUzJRSHo4WGRNcXphOUZzdXFYYjhSeDlYYndXbjNWNXAwUlZxVW5FQ2JreGFUYXpjRU5melRoZzVB?oc=5) |
 
 ---
