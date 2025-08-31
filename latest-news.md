@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 17:16:41（北京时间）**
+🕒 更新时间：**2025年08月31日 17:24:11（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Musicians show support for longtime Utah violinist detained by ICE - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPQTdkSGJ1cFV2Y3lvVnlURlB4UVJ5S3ZRODZuaFRrV0hrdWM1dXJDTWVmaVdmZHcyZkx1OHRjVFRCVFhGTVlnQjcxdXlOM2J4eWlHd1VPYU00OTI4Uzl5Y2cxem90aUdfSkd0UTd0SWcySS1CazU1cXlFdnREYmRra091NDRBZW5Henk0YTlFTjZwT1pNbVE?oc=5) |
 | Trump’s ‘Startling’ Rapid Deportation Policy Paused By US Judge - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQNTBqRW1Oek5SNzdSRm50VTgzd3RYcm5PaHFjMGpMVDU3ZzRTSllNRURiZm1GaXdxQTVRQmVYdXZCdUlxRTI4Q1NCZlJiVklHUlJfQVdWVDdfRVlUc1BSQWkzSE9tMkdFUGhZSjBmZ0o3Y1hwal9qT0xGUzJRSHo4WGRNcXphOUZzdXFYYjhSeDlYYndXbjNWNXAwUlZxVW5FQ2JreGFUYXpjRU5melRoZzVB?oc=5) |
 | Missouri's Republican governor calls special session on redistricting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPSE9rT19NbFJXN0JnQzhqUThSQTJtUzhxakllakFRN3E5bFhxZEs0TUN4bGt0MzFIUDNVSTlxUktJQjRxR3llSUMxcVZ0T1ZXUUN4OTRjUTFmdHFjbk91MGlHdF9SYVhRejZJelNUS0V0X3RNYkVHMHhwaXlhUWFaTUYxcjhGQk9wQXpqS1lFUElIZzVySmIya0dYcF95Z9IBowFBVV95cUxPNl95SnduRlBnek14eFZtb05fNm05OXNFS2ctTlh3aFotZS1PaHVWVklHZDVkRzVQaEhTWWljMzgzSFRoeHNlNGhmR0xweko0clFGeGdFUnNPc2ZSSnJCZ05xVUhqRWZoeWNqREZTTnNOSFdIelVfRHliLWZMcVYwUzlGMm1uazgwNVVTcW1WaVFHR29IM0hqblFxTUJ2NTVxZ3B3?oc=5) |
-| Hundreds at Voice of America and parent agency to lose jobs - DW | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNcVFxOHRISGpzOTRkMkdUZXhXdzlSMk9Pb0N5MWdNc0d0Mmh4eTVSY3Viam5UcmJPSTZLU2lETjFWTE0yUXdkQ1ZSVi1mQ3VDam0wNWdsZlhLeHVuVTFXcE5EYUFGYzcwcnRrcXpOLVFVT01reC1qbnFaYnhKdENCZ2hpSFhvRm04UkkyaF94VGtYZ2hWdGpv0gGXAUFVX3lxTFBwZmJLNXozcU1MdGg0c3R2WFAtWVc0RmU1WGVqTkJHLXN4WEZ5dmNnNTN6VTJrMkJvRkNUSDBCenVSQzRNSGFRUjE3LTdtU01vZ3czMEltdHhDTFBsNXRfZEwxZUNTVlU2VXV5VUdBUXRLS0JnZ3dnMlRSSE1lQ3JvcGlGOFhhVTV2Z3c3RV9jUWhNZkdpbU0?oc=5) |
+| Can the US legally ban Mahmoud Abbas and the PA from the UN General Assembly? - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOT0pVMVk0b0VJcm9ScWdWclFCMkZCVG9ZdFl0cVp4ZGt0MTBWeHI3Mmt0b0RVOWxrVnFORkZ0Mi1lMTBMb2hVWjJQeVFaWFhLbkwweUdjQmJWU3M2Q1J0cGpwbXNZWFY5MXo5TWg1WHpmUFZPTS0zMUVIbmdMeTd4Ql9iNTQ3TWUwLXh5eXZJVGlsMTl6UFRpV3BVbkYtdklMaV9CVDJyRjZqMzjSAbABQVVfeXFMTlE3cnI0ZmxlcEFuNGVCUFVrbVFoVzRwNVVQc2tSU3RMU2NnQUc5QTBfWThXMWRmOE9hZTFJOGFoQWs0VENMamQ3TDRDVXJWREkwenRwUnZIWHhCUHJzUGJqd2VfRm9OOEJnWlo0dTB5bEMtUWdEcFJnRkF2ZUtzMjFqS3hoajMxN0VvMFVUalVHMUhvRUQzSWxUMVFpME12NXZfcWtVQ3VVNzRzeXVRcDk?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
