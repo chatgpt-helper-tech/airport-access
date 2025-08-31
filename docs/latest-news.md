@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 09:50:00（北京时间）**
+🕒 更新时间：**2025年08月31日 09:56:47（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | 20 Years After Katrina, My Memories Still Wander the Streets of New Orleans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE43YkNSbm1ObnRmelk2QlczSzV5NnRsdUJicmRmbmlvSmxyNTRvQ2dBM3BzeVFrb0RJUkNJbFRQa01jM193M3JEbWxSN1dKX1UwU0NnUUtzQ1V5X25IV20zZHBETDJRdExWX0o3d3VMOEY2cVVMRmc?oc=5) |
 | Federal judge issues order blocking Trump effort to expand speedy deportations of migrants - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNaVhsOHUzSURQU0lkUmVzUUowZ2FyWF84Q2w1Y2RSd0V2cGNvNVlZaWlKX0RLWklFMlVIc3JYUVFUUThEbDFFNkF6VzhFaWRqdHJJLXNuWFJmdXBxYUo5a0gyS0l0RG80Q3lnR3RGOVJmWk1OUmFjRWpiZDliQnR3bUEtemJrT0hPeEs5SzZ6M0VNRGNjWWNSOElXQTVvQ2d5eVRnZHM0dndNZGpG?oc=5) |
 | Border Patrol arrested firefighters as they were battling a wildfire - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNdjNjRkhicGlVWWZJeGRESlJjT2ptZW1qbF9zbUpaTUU1UXZXMl9ZRlRvT1Q4NTdwUTJXZG1KdzdHSF90bGZBM0JSc0hwMFZxTU5zZFRHQmlsWXIyemhFY0Z5MVlNZ1ZlMG8tNWllN3JySHNNWkR3QkdPYjlwVm11NUhmSXc1UkNYWFNJeVlnX0g3OTQ1NVNScVVwWWNuLWxGSTFoeXp3?oc=5) |
-| Trump moves to cut more than 500 Voice of America employees despite court ruling - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQN0IxeWd2TWh3eTZ2aHdRTFExT1NRSVhJM24wRmZIVG41d0dJRU1WazFtaGdIMzJEbWc4Q1hKQ2xZZmEzbVBHSFpfaDVwZUE3SU9NVmhKeFYtU3A0aDJoNU9NQjBiQW5va2lDWk9FVGJHSFBVbF9nV1dGQnVBZVpzTHFKeWt0ZFd2UFlhVEduM0g4YXdOdzFPQkJYNVZMX2FiR2Y2ZjJCNkw4djhDZnNnRkc5Z2d4bGc?oc=5) |
+| More than 500 workers at Voice of America and other broadcasters to be laid off - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE02amt2aEQ5dG52N1BHLUw3VmlMdTdKRnd2Wk14bGZ3UXA5STFONGk3aDBjTjVXTUY5Slh2VVgwOUp0U2J4eDg0MDVfRzRqbUp0bEZoa2RqTUk1UTZzSnFMc2xOZkNQN19wRmJfY2k2WG8tT3ZxXy1YckIwd1JKdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
