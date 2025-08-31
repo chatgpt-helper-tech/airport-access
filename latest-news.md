@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 17:49:17（北京时间）**
+🕒 更新时间：**2025年08月31日 17:57:49（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | French voice fears over Bayeux Tapestry move to UK | [阅读全文](https://www.bbc.com/news/articles/cev23vrzx0ro?at_medium=RSS&at_campaign=rss) |
 | Baby dies of whooping cough after mother not vaccinated while pregnant | [阅读全文](https://www.bbc.com/news/articles/cx2xe5l4mn5o?at_medium=RSS&at_campaign=rss) |
 | ‘Public enemy number one’: The battle against an eight-toothed beetle threatening UK forests | [阅读全文](https://www.bbc.com/news/articles/clyr8yml9rro?at_medium=RSS&at_campaign=rss) |
+| Britain is hotting up - but is home air-con the answer? | [阅读全文](https://www.bbc.com/news/articles/c5yl5v4elgno?at_medium=RSS&at_campaign=rss) |
 | Life inside notorious immigration centre 'Alligator Alcatraz' as it enters final days | [阅读全文](https://www.bbc.com/news/articles/cwy3zel0r3go?at_medium=RSS&at_campaign=rss) |
 | They just met - now they're honeymooning in 'hell' | [阅读全文](https://www.bbc.com/news/articles/c9870nzz50eo?at_medium=RSS&at_campaign=rss) |
-| Reeling from Trump's tariffs, India and China seek a business reboot | [阅读全文](https://www.bbc.com/news/articles/c0mlen3grx7o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
