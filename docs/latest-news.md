@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 04:56:31（北京时间）**
+🕒 更新时间：**2025年09月01日 05:01:25（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | President Trump’s takeover of Washington, D.C., offers insights on what could be in store for Chicago - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5HSUkyVW5KR0lZaTZOLS1XNXZnRmdWMXZ2clJHWE9zVE1NQ0x5TGc4WnF4SUtpVkZ3M3lFN2JQQ2kyMkNORWl2Ym9RWXJ0eXZ5N3RiN0JVb0lSaERpVmFxRFZrSjczRHVjUjRBWndEc2cydGxvcXZZ?oc=5) |
 | Blocking tariffs would be "end of the United States," top Trump adviser says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE56VXlPeFpocjN5d1Z1VThKUF9oY3RQOVRNQWQ5RlgxWWdaOTBMbWY2Yjd1WTFvTG5CX2ZXUHc3NzlvYnIxbzBjdWZ1aWxOMXlZNzJGV2VnbnhFMjM4Z1Z4ZXFyTmVMZWViSEE4cQ?oc=5) |
 | Resigned health official: 'I only see harm coming' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOaG95QkEwNHU2a1N4RnFZbVdVcTR3TFNsVWRJNEZiYnRzbVZlOURhWVZpOVZsSXVDMDdoVncyT05Tc1BLZVdDTk1TbXlPUGNOYXJyMHQxRGdTUEtfZFZnLTJja284RmNMZmpjNW8yV3hwa3R3czNuSjVUNUhDMko3UWgtLXBIZGpwckNKVHJ3SFE4QQ?oc=5) |
-| Noem: More cities could see federal law enforcement on streets, even in red states - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFB6b1JsZUdCRDlIOHE4X25xdWxhYlNWVzIxYXlsS09vbnZGdUpyU2NCSEdlcjc4WHVvMFV0ME5YRElvYlU1enBJcEg3M19ocWU5Mkc5UTB2SGsxODI3Ull6TE42aVVLUDk4dGY4cWVSVjVBZmNST2NjM2dEd29HMWs?oc=5) |
-| Pope Leo demands end to ‘pandemic of arms’ after Minnesota school shooting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxORlg2MVZTUHZkVDZLeG94bUVtX3dOLU83ajMyRnM1bDBDY3JXREVlcFpuN00xU2FaOHV5TlhOYTBhR2psQU1SR05Nbl9zSkI1MmxDUVRtMnJNdFRNRUxUREg0dS1BZ1RSQ0RVNVI1amJtOHk2NnM0OW4xMUJsZmxDLXliQnNoRnJLdWc?oc=5) |
+| Kristi Noem confirms plan to expand ICE operations in major cities - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPam9RV3BkOTItMTI0aEFEN3hjdksxMjlaTlVSWWZQd0dicTcxMEI1UFZmS0hLZEhqQm90UllFcElmcGVXLXEyTmR5Vno3LWxMVVJlRUJhRVNBcThWMHAzU1BnM2NqX3NKSE95SFdYOGNhRmxaeloxZlIyUUYtODgxM0Z4cmNDUjl4U1NXYnNGMFBKcnZ5WUhFRks0QjFYU1lFc1c5RTlfdTlNa2dNU0R6eXRzSHR4YlBQXzZtc0QzUk1GdVk?oc=5) |
+| Pope demands end to the 'pandemic of arms' as he prays for victims of Minnesota school shooting - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPdERzaUVPVGl1VHpmT0ZOSFpRdS0xMXhpN0R1ZEYzb0Zva0ZuYVlTSUZXT1FPeU9vNHA2Y1RiazVUVE5UTG8wZ0k0dXEzNENCVTNCYm96eXZCQk84SXdzd1lEcVhmZ2VGOFA1TEtwZUhFamFFQUJ2MkJlbi01WDZVRHNURXdPSjRUTHdEQzk0TQ?oc=5) |
 | Montana man who evaded authorities for a week after bar shooting faces 4 counts of murder - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPNmZKeERIY1ZjTGZBWXc1NkNGU0toQ1Y5SW94c2dLSVhLS0owc19DTmRmZ1U5X1pkMUdING11QVRQNG1wc2JveDZ5anBhVkJjaGwyU1pWOEt2SWVPd0lGX1dwSTN6ZnoyY1U3Qy00NjJUNDNQczFXcTZVdzVVMDBSYlpTRQ?oc=5) |
 | Trump’s attempts to lure companies away from China are backfiring - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPcmloNGNRcnQ4MTRKNjZKQ3loVmJRSUdKQ0V5aFIxVlZVZGtQLWFqaVdsZFRPWlRucTdSTF9sVV9TdHRIaDRlNHZGdXRhU1FXalpOdm5HcUZKUUZWbzZIWWhhWmppQjNVZXY1OEEzZHNaSjZPX1drckRrUzJmazFnQzdPRzZYTlJqTkxyTE1zRmw4RVdLQmppYk1KRnRwQk4wUGhMMm9oc20?oc=5) |
 
