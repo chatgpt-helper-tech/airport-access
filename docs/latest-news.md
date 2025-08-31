@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 08:48:42（北京时间）**
+🕒 更新时间：**2025年08月31日 08:57:12（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | Watch: The best looks from the Venice red carpet so far | [阅读全文](https://www.bbc.com/news/videos/c9d0zz3145lo?at_medium=RSS&at_campaign=rss) |
 | ‘Public enemy number one’: The battle against an eight-toothed beetle threatening UK forests | [阅读全文](https://www.bbc.com/news/articles/clyr8yml9rro?at_medium=RSS&at_campaign=rss) |
 | Life inside notorious 'Alligator Alcatraz'  in its final days | [阅读全文](https://www.bbc.com/news/articles/cwy3zel0r3go?at_medium=RSS&at_campaign=rss) |
-| What happens next after Trump tariffs ruled illegal? | [阅读全文](https://www.bbc.com/news/articles/cy983g8jr5do?at_medium=RSS&at_campaign=rss) |
-| Manhunt in Australian bush brings long-dismissed conspiracy theorists to the fore | [阅读全文](https://www.bbc.com/news/articles/ckgyk7ry8rdo?at_medium=RSS&at_campaign=rss) |
+| They just met - now they're honeymooning in 'hell' on 'BBC's answer to Love Island' | [阅读全文](https://www.bbc.com/news/articles/c9870nzz50eo?at_medium=RSS&at_campaign=rss) |
+| Reeling from Trump's tariffs, India and China seek a business reboot | [阅读全文](https://www.bbc.com/news/articles/c0mlen3grx7o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
