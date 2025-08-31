@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 04:49:49（北京时间）**
+🕒 更新时间：**2025年09月01日 04:56:31（北京时间）**
 
 ---
 
@@ -23,11 +23,11 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Judge blocks deportation of Guatemalan migrant children as flights were ready to take off - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBad0hZdDRKT1FzNlhLUU9PZ2dxNk15TGVfMnFxYUtMUHlTS2F1R3VGWlRaSVRZcUhUNzBPX3FuR2xzWTNUZEc1Nlp4akhvdEd0dTVENGJ3aXJSY1kwakhzZk11bDZoNlFtUUk1UWFEZ3h6OGtYQTBwQnNsR0d4QdIBgwFBVV95cUxOZmhza240d1NnSjI5emdOR1g5ZlpQaXZJdlhVR2V3dlBXS0V5VkRiYUdNYW1UcV8wTHFWUDFQYWF0NXdRVGtkak54MERodG01SUc2T0h3bTRKQm9tOFNnQ05pN2NYWnJLQ0hXQmlSN2hDcnRaVnA1d2Z0MFpqZmJfUndwWQ?oc=5) |
-| Trump Says He Will Sign Executive Order Mandating Voter I.D. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNTVNCZFFBdXhyUVRQcW01NXQzODZhRGpYT3d4eGNrUkFzR0dwWDA1cC1zWUJ0QWM1T3lJLWs4Q3Myb3dMWUdqSnNfSGItdjhKUDZFWlEzQmZaMFNhcUJvQlpVYnRBVGpfUU96SFhjQmhEYlFoMkd3ZWM5eFVnV3BDSm91UGlkRXp1UGc?oc=5) |
+| Rudy Giuliani hospitalized after his "vehicle was struck from behind at high speed" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9DejR4V19idlA3aUVQU1ZSSkFqVmJGWlRtQnNXSFpDNzgyUGJ4bGhlQUVza0JTZ1NtUzJ3UzAwZzlsbGp1RnVoa1NXU2RDNmhzVWtaTHVOeVNmcXQ3VTVwTEFuR04tT0tlSzkwYWM5ONIBdEFVX3lxTFBmWm5mMWNSRktSaTJTbWx0bGhLbkJxZ2l5TVk3WFJlczhvaTdNZEJIYWhMXzZ3NDVBdGk3b3lpYVRNOEVkTzJaWGgxbTJGT1Y2Y2VnLUFWM3RJNEZMUndYR2toQ0lsQ3ZJLVM2cjEtQ2dDcFJq?oc=5) |
+| Judge Halts U.S. Effort to Deport Guatemalan Children as Planes Sit on Tarmac - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPc3YweUpLUGY3Q3AxN2N5emJTUE5lRlRuaEN5RkxKdnlGMGo3ZGJ1eFBFMGpXRlpEZGo1QnlJMWFrbnpveGhwNkZZSWJMVGhmcm81SnVDN3l3NEVXLUtCUGxhMnQ1bHA4RHp1UE9kbU1yOFJZOG9mVHUwTHRRLTJ0VGFTOVdNekxnMld0dDBNMWpmNnMtemRTX0xLRQ?oc=5) |
+| Trump says he plans unconstitutional executive order to mandate ID for voters - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQSnZJbk5xRjkySFlKX2YzTjhuTlh1MmZZVkFYSzRUUVpnOFJtMEtwNkJONVU5ZHZqT3E0MDZ1OUdyMXc1SkxIb3Ayc2Nxd1VfLWFSX1BGaF9VRDBWU0daMXR2QUdFSW5VZm15MUd4ZWFKaUtfNXNzQ2d5Qk45ZHdtQW9GS1VaLWs?oc=5) |
 | President Trump’s takeover of Washington, D.C., offers insights on what could be in store for Chicago - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5HSUkyVW5KR0lZaTZOLS1XNXZnRmdWMXZ2clJHWE9zVE1NQ0x5TGc4WnF4SUtpVkZ3M3lFN2JQQ2kyMkNORWl2Ym9RWXJ0eXZ5N3RiN0JVb0lSaERpVmFxRFZrSjczRHVjUjRBWndEc2cydGxvcXZZ?oc=5) |
 | Blocking tariffs would be "end of the United States," top Trump adviser says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE56VXlPeFpocjN5d1Z1VThKUF9oY3RQOVRNQWQ5RlgxWWdaOTBMbWY2Yjd1WTFvTG5CX2ZXUHc3NzlvYnIxbzBjdWZ1aWxOMXlZNzJGV2VnbnhFMjM4Z1Z4ZXFyTmVMZWViSEE4cQ?oc=5) |
-| Rudy Giuliani hospitalized after his "vehicle was struck from behind at high speed" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9DejR4V19idlA3aUVQU1ZSSkFqVmJGWlRtQnNXSFpDNzgyUGJ4bGhlQUVza0JTZ1NtUzJ3UzAwZzlsbGp1RnVoa1NXU2RDNmhzVWtaTHVOeVNmcXQ3VTVwTEFuR04tT0tlSzkwYWM5ONIBdEFVX3lxTFBmWm5mMWNSRktSaTJTbWx0bGhLbkJxZ2l5TVk3WFJlczhvaTdNZEJIYWhMXzZ3NDVBdGk3b3lpYVRNOEVkTzJaWGgxbTJGT1Y2Y2VnLUFWM3RJNEZMUndYR2toQ0lsQ3ZJLVM2cjEtQ2dDcFJq?oc=5) |
 | Resigned health official: 'I only see harm coming' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOaG95QkEwNHU2a1N4RnFZbVdVcTR3TFNsVWRJNEZiYnRzbVZlOURhWVZpOVZsSXVDMDdoVncyT05Tc1BLZVdDTk1TbXlPUGNOYXJyMHQxRGdTUEtfZFZnLTJja284RmNMZmpjNW8yV3hwa3R3czNuSjVUNUhDMko3UWgtLXBIZGpwckNKVHJ3SFE4QQ?oc=5) |
 | Noem: More cities could see federal law enforcement on streets, even in red states - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFB6b1JsZUdCRDlIOHE4X25xdWxhYlNWVzIxYXlsS09vbnZGdUpyU2NCSEdlcjc4WHVvMFV0ME5YRElvYlU1enBJcEg3M19ocWU5Mkc5UTB2SGsxODI3Ull6TE42aVVLUDk4dGY4cWVSVjVBZmNST2NjM2dEd29HMWs?oc=5) |
 | Pope Leo demands end to ‘pandemic of arms’ after Minnesota school shooting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxORlg2MVZTUHZkVDZLeG94bUVtX3dOLU83ajMyRnM1bDBDY3JXREVlcFpuN00xU2FaOHV5TlhOYTBhR2psQU1SR05Nbl9zSkI1MmxDUVRtMnJNdFRNRUxUREg0dS1BZ1RSQ0RVNVI1amJtOHk2NnM0OW4xMUJsZmxDLXliQnNoRnJLdWc?oc=5) |
