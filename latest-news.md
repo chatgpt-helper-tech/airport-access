@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 21:48:06（北京时间）**
+🕒 更新时间：**2025年08月31日 21:58:02（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | What to Know About Jim O’Neill, the New Acting C.D.C. Director - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE84RXpDNWNpM3VtdWx6Tm1fZHJ2Wk5NRGdDdXZZcEx5NXRMdkdhVndVVEZxcjExRXo2bk1TeHRmQlNmdFoyeTZrb0dwSXhiMlRybE9Qc1BZeEgyLURpejR5SG55TVhjaVNYajlOckg1YnE?oc=5) |
 | Pope Leo XIV denounces "pandemic of arms" after Minnesota school shooting that killed 2 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNQi1PU2xqZHhzTVI3MW02RmFWYW1ERDFxLUkzZUlYZnZ5M01CMmVjZENCMmxrbWdDazlkQUNJZTE5WS1mbldNbW5LNE5SZFJrd2hvck9VaEF0MEQzTlhmaFdXdXdvSGpMdTlFOUttazJkV3kyV1FZdTFHdi1kd3FXUzBOTEJ2TlpFUDNuZG9jcEZ5ZDY4TkV30gGcAUFVX3lxTE1XOUx4U0lGajNXMFg3bVhyUVBndjctUFNRejJPTHpEVmpiQXp3ZllTZFpHVjNORkljZDJLcnZTVFo4YUR6dENBUGhjNlNEZjluTTl6Y0dlTXlkUVV6SUJJZmt1THJIU1E4RV9rdUlURlRPRVZKVElpQWY1REI4Q2hHdHkwRDE0XzBSbjBoWV80ak1sX0FJcHBkWXgxdg?oc=5) |
 | Sanders pressures RFK Jr. to resign as Health chief after CDC chaos - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQY0hILXJCXzE0VkZ2UUxiZ3cxeENFZmRjTTdoX3FwS1ZOS2JFZ1VJRDR6M09zNGc2cXRsS05DNEFBSHI5bk1yWDJ2NFdoYUhmNWlQRTJRUUxuUW90MDlkX1JrRkhXbHcwS1pDWF9nM3VpckF6dkJKbFg3bW5NdVF1d0M5aTNkQmJTUm90eVRRb0ZGLWRzZG5xbUJvZEdub0h4NVRv0gGoAUFVX3lxTE1sU3doTFZ2OUFGMzJNQk5TRUtsZ1hEb3YxMTlQRUNIMFA5a0VWWTNnS2YzLUZBakduYm9jY2JaajB0SEdyM25kMXlyTlV5Q0F2V2hsMEdjMjhjM0FscTF4c1BKMUM3X2ZxWHJkLWdGUThMNkF3RS0xVmQwbGlMS1VVeTFydWR4UklhZ1NoOS1DV2x6WDRLRGN2aGJ2TzZFS3NqLWtvT0ZIbQ?oc=5) |
-| Musicians show support for longtime Utah violinist detained by ICE - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPQTdkSGJ1cFV2Y3lvVnlURlB4UVJ5S3ZRODZuaFRrV0hrdWM1dXJDTWVmaVdmZHcyZkx1OHRjVFRCVFhGTVlnQjcxdXlOM2J4eWlHd1VPYU00OTI4Uzl5Y2cxem90aUdfSkd0UTd0SWcySS1CazU1cXlFdnREYmRra091NDRBZW5Henk0YTlFTjZwT1pNbVE?oc=5) |
 | Russian Strikes on Western Assets in Ukraine Send an Ominous Message - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOZ1ViWVRhR2RaWFdIZXQzbS1fODYzQzV3SWZWejNnYzFFX18tUE5wRlRlclJDUHpkR3hGcFQzTTlSMG15VEVPYzhOalE3VUNLaTNuanJ4S3RTa1QxMGhLWWdnM0RVeHdfdXpFcnRjN0xfRDEtU2dHc01SU0hJTXVuWDc5Vi1hRU5FRW5j?oc=5) |
+| Push for a ‘Traditional Marriage Parade’ Rocks Small Iowa Town - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNTWJuMkdGeDhTcjl5VEdkU0tKYWdGY3hNVW9jTUM3ZUQ3bU1RbWVyN0tFY0tqWlg2LW03dmFRSnhNVjczTXBwMzJVRE40VU53LVB0ZnFYbHJWMjdKR2ZSLTFSRFdJQXVFZTlHa09WRmdQNXBEWEZoU09WYm1HX2x5RFNLSEc2TEJLSjdtS3VYMXU2UlFBTlNnRjBTb09rdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
