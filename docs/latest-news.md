@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 17:09:55（北京时间）**
+🕒 更新时间：**2025年08月31日 17:16:42（北京时间）**
 
 ---
 
@@ -11,9 +11,9 @@
 | First week 'critical' to avoid children missing school later, parents told | [阅读全文](https://www.bbc.com/news/articles/cg7jk3rr225o?at_medium=RSS&at_campaign=rss) |
 | The trade in US body parts that's completely legal - but ripe for exploitation | [阅读全文](https://www.bbc.com/news/articles/ce83r56xwj7o?at_medium=RSS&at_campaign=rss) |
 | Tories pledge to get all oil and gas out of North Sea | [阅读全文](https://www.bbc.com/news/articles/cp890n51684o?at_medium=RSS&at_campaign=rss) |
-| Putin and Modi in China for summit overshadowed by trade wars with US | [阅读全文](https://www.bbc.com/news/articles/clyrwv0egzro?at_medium=RSS&at_campaign=rss) |
+| China and India pledge to be 'partners not rivals' | [阅读全文](https://www.bbc.com/news/articles/clyrwv0egzro?at_medium=RSS&at_campaign=rss) |
 | French voice fears over Bayeux Tapestry move to UK | [阅读全文](https://www.bbc.com/news/articles/cev23vrzx0ro?at_medium=RSS&at_campaign=rss) |
-| Watch: The best looks from the Venice red carpet so far | [阅读全文](https://www.bbc.com/news/videos/c9d0zz3145lo?at_medium=RSS&at_campaign=rss) |
+| Baby dies of whooping cough after mother not vaccinated while pregnant | [阅读全文](https://www.bbc.com/news/articles/cx2xe5l4mn5o?at_medium=RSS&at_campaign=rss) |
 | ‘Public enemy number one’: The battle against an eight-toothed beetle threatening UK forests | [阅读全文](https://www.bbc.com/news/articles/clyr8yml9rro?at_medium=RSS&at_campaign=rss) |
 | Life inside notorious immigration centre 'Alligator Alcatraz' as it enters final days | [阅读全文](https://www.bbc.com/news/articles/cwy3zel0r3go?at_medium=RSS&at_campaign=rss) |
 | They just met - now they're honeymooning in 'hell' | [阅读全文](https://www.bbc.com/news/articles/c9870nzz50eo?at_medium=RSS&at_campaign=rss) |
