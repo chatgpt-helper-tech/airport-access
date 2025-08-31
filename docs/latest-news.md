@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 11:41:50（北京时间）**
+🕒 更新时间：**2025年08月31日 11:48:45（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Ruling on Trump’s tariffs is a major setback for the White House - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQWVhrTFFKY1hzS1VoLUI5Tm9FRkFQZ1MxS2FEUVdmWGFhcFk0N1lVYjU0Y01vZG5wNmFLMjBuZXRrYnNFLWtLSUl4bHRXdTZmYzdpQjhqdVBqTlJrZEpMYm1za24tM2MwVTZfV2V5Vml5ekw2c091V2xIUlpwalJQcUl6UUhQZzRwQjhN?oc=5) |
 | Chicago mayor signs order to resist potential Trump crackdown - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBKdXhwRTFobDE1ejZZeHpkdU5UVElvSkFmQnJucGs1UjBUVktPZkJacjRPcjNaR2VpQkp0eXo2Q0d5MXJBYWJqdV83cGZ5TkpFOURmbE5UTFlYQdIBX0FVX3lxTFBsY0liYlN2a0Y1Mm5wbDV0eUR4NGdqcjN0YnJDdnhxempVcXdQa014MGxmVDJHeXh5bDFYeUc0Q1Y4bGpKR0ZxLXlZZHFPTUNULXV4dkQ1ckRHMnlIM0xB?oc=5) |
+| Ruling on Trump’s tariffs is a major setback for the White House - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQWVhrTFFKY1hzS1VoLUI5Tm9FRkFQZ1MxS2FEUVdmWGFhcFk0N1lVYjU0Y01vZG5wNmFLMjBuZXRrYnNFLWtLSUl4bHRXdTZmYzdpQjhqdVBqTlJrZEpMYm1za24tM2MwVTZfV2V5Vml5ekw2c091V2xIUlpwalJQcUl6UUhQZzRwQjhN?oc=5) |
 | Bernie Sanders demands that RFK Jr step down as health secretary - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQbURJVXhzaHhiVFhXYUs3Z0UyZ0xJbGthX3B4SHloTVlvZjVHV21PbThUVWxOcVB1MWl5N3B3TnB2dWN3ZWR6MWdXU04yX3hWcnhJQkhvelhfR2hnU3pxd2xBZTBremZWVG1QNmMxMzdWaVhnZnJkOVJNZk5KSGhXZHl3?oc=5) |
 | Robin Westman displayed signs of self-harm at prep school, former teacher said - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNaGxwQ21uR2FVZ0F5a1VCM3dDUVBmTVJ6YXJweDJEaDg3dkNPb21fSm56TnQwaGtTUHh6LUdhd2MxYmpqNVhPSUsxWm91U18xdmlGT256UEx2WUlmVXJVd2szNi10bGI4cHBsLTVWRUR6alhtOTZVbmtHMFhaQlR0SmtmRWtZdXpKWjJaZDVaVTg4emtCSnfSAVZBVV95cUxPYU8wRTk0MW9fNy1RYS1BVXF6QnBETHNyY2ZGaVBtb0QySnY4bHAtTEZHZnJra0p0NkdFTkV4WjRxU01GWWpaNFNLTGtRdTItTkp3eWtsZw?oc=5) |
 | Famed Tennessee sheriff who inspired Hollywood movie 'Walking Tall' implicated in wife's murder - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNc25GSWpXWkNmTVBLTW5FdG9KeVZ6TVA4b053VFBwMHB4bGxtazBZVTQ5akxQRWVSTVdwd1RKcjhhVjBGTERqTXJKSXkzbmdFQVlpSTZlRXVtQTZ6RENFMHd1aXIwN1NXbjY3YmVJQkpHLXJKMi1IUkc4Ti1fYVBNVU8yV0VKUXhWOHhnVWZ6ZGt0WlRoQkZ0WloxYWNBY2VteVJ0M3pR0gGrAUFVX3lxTFBxU1RCLV9EUUVSbzZoSnVQV0Z5YUQ1RG1CdTlpbGxqSk9EYWZtYkVQTlNHbVg1RUd2SGJRVVRNNi11dXZlV0I0eEhDdDVBS2VoYWF4RFVGazU0enQ3OXFxYzlhSE9vZlowdTBuVXV4QkpRVHFqWkNPTjFOT2lDZk9peVJMQl9saFhyallJOTd2Z0duZ25rLUpPeFBwMG55d0dHbVh4R18tR3BDUQ?oc=5) |
