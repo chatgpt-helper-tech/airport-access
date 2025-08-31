@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 00:56:12（北京时间）**
+🕒 更新时间：**2025年09月01日 01:00:13（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Trump Says He Will Sign Executive Order Mandating Voter I.D. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNTVNCZFFBdXhyUVRQcW01NXQzODZhRGpYT3d4eGNrUkFzR0dwWDA1cC1zWUJ0QWM1T3lJLWs4Q3Myb3dMWUdqSnNfSGItdjhKUDZFWlEzQmZaMFNhcUJvQlpVYnRBVGpfUU96SFhjQmhEYlFoMkd3ZWM5eFVnV3BDSm91UGlkRXp1UGc?oc=5) |
 | Removal of Guatemalan children in US custody expected to begin Sunday - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNX3RNdjJMTHhlczQ1Q3pKdXNsc1lHdUM0aTZvZzZMQU9PSENuS1A3Zmp6VkJLUHJRVFBWQkViQXo5OGRUR09SWUxzbkdOdU5fLWdpZFp2WGctSmNjV0lTTDFDcG8zLW54NU42a3V6UWNMb2w5cm5SQ2N4ZDJYWGtEWXplMEY?oc=5) |
 | As U.S. fleet steams toward coast, Venezuelans face uncertainty, fear and, for some, hope - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQNlFIYkVnRzFwUHVIWDV0ZWFLY2ZGYXdST0tRYXZUanZ4TmNjNDY1V0dLZnVOMHZKdHJEaXp1dG9GWC1uWkc2bmpuRElDZ0I4ZWh1VnZsMmdNYThBY3ZXQjNYUGlOVVE3d0hvZGpKTDM0WHowRXFyMEJOQkhDd0FXVVZkREZVUjZpVXVPYzJFZlFFQ0RRdEdKQ20wNE90QWpTUk5oNVV5SXdjS3o0WHVFaF9QaVpHNzhSN3J6czJvS2hIRVg4a21RNGhmOFI0bWhDanc?oc=5) |
-| India and China are partners, not rivals, Modi and Xi say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPS2Z5NldDeTJRb1ZPSVhhdXJvLWJaUnRCbzdCeE55RjNlVkJKUjhnQV9VV0RJMi02eTN3MmM3aW9FbFBybThXVk4wLXVsNjVtY1F6RTRjdFk2LWkxM09XRVRZUm83WkNQQWI1ZmhLVDJETGlmN3hMWjgxZnhFb0wtaHIzZGZVVmFjdWN4MmhkY3FMdUVGa0VENms3MA?oc=5) |
+| Moore: ‘I have no interest in fighting with the president, but I have an interest in fighting for my communities’ - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPUGRFMnoyUm02TWRlRHdrLV9sNlB1OEtVNWYwcTF4WEt4ZEwzT0NvTEVQMmgxYXBzTjBDaFN4NGxOcWpCYmJtcVN5eVYtTHB5Q3ZMeWp5YWM0WGlkb3E1NjZOVXczQjc4SnNFck5zVzNNTTJDWHEwRXR0RXNmMG1VV19WRVRZMnU5RlN1Y29vN2s5TzRGUWNJdHMzSXozdUZkWW1LeUFFMkxaeGNqTS1heEI3UUnSAboBQVVfeXFMTXM0dzVyV2FMdUhjU0lqbnZlQ0Y2WEpCZnJjVXZDQ0xpM1REOFRkRkJZaEZuUmQ1SHd1UWphT3ZITklKMGp3VDE2RV81VmIxcHBwR3dYc09CUFlVRHdfdVNZN0lKRWhBR3FzelI1LXZVRXlXRXFVdVg5Vy1sUnl6RGNlbHR6bnNuYmoySVFZSGlpa3ZjYWV5MnBmdmM0RFhQVTFMelZKTUZQSzRXdm80bXhHemJ3My0tZjR3?oc=5) |
 | Pope Leo demands end to ‘pandemic of arms’ after Minnesota school shooting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxORlg2MVZTUHZkVDZLeG94bUVtX3dOLU83ajMyRnM1bDBDY3JXREVlcFpuN00xU2FaOHV5TlhOYTBhR2psQU1SR05Nbl9zSkI1MmxDUVRtMnJNdFRNRUxUREg0dS1BZ1RSQ0RVNVI1amJtOHk2NnM0OW4xMUJsZmxDLXliQnNoRnJLdWc?oc=5) |
 | ‘We’re trapped’: Trump’s tariffs lock US businesses in China - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPcmloNGNRcnQ4MTRKNjZKQ3loVmJRSUdKQ0V5aFIxVlZVZGtQLWFqaVdsZFRPWlRucTdSTF9sVV9TdHRIaDRlNHZGdXRhU1FXalpOdm5HcUZKUUZWbzZIWWhhWmppQjNVZXY1OEEzZHNaSjZPX1drckRrUzJmazFnQzdPRzZYTlJqTkxyTE1zRmw4RVdLQmppYk1KRnRwQk4wUGhMMm9oc20?oc=5) |
 | Blocking tariffs would be "end of the United States," top Trump adviser says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE56VXlPeFpocjN5d1Z1VThKUF9oY3RQOVRNQWQ5RlgxWWdaOTBMbWY2Yjd1WTFvTG5CX2ZXUHc3NzlvYnIxbzBjdWZ1aWxOMXlZNzJGV2VnbnhFMjM4Z1Z4ZXFyTmVMZWViSEE4cQ?oc=5) |
-| RFK Jr says he’ll ‘fix’ a vaccine program - by canceling compensation for people with vaccine injuries - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxObHZzaTRENmhVU3F3WXVBOWZaR2pGWWhnMmVJZE5UUVp5bm5OczBILXhXNzFpOG1LbEwyQ0FpVmtXWnRhV3VqQzctWE5xblJ5dWJwT19HbkJTdGl6RFM3YUtGb0prVVdQT0dCUWNSczJhYURneW5aTWdCSXlCWnNrZkVKeGRxVGVLSHc?oc=5) |
+| Government shutdown looms as Congress returns after monthlong August recess - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQYWhlNENqeVJwUUdoUFNkZEpzSjZSdzZManFVSHBiTnFBYkhvT25LU1o1aV82S0dzTE90cl9NSW9YZEZETjhNdElDZTZ6Q3hKTjlZUVVQZUxCdDREbXhQSFpCdHR5SHV3MDB0cUdWbjNLc3UtQ2VUbDg3NllET0c0cVFJVmxFX09CbkhwUV9uazlQeFZneFdNcGluYml3QQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
