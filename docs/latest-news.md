@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 13:49:27（北京时间）**
+🕒 更新时间：**2025年08月31日 13:56:05（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | The trade in US body parts that's completely legal - but ripe for exploitation | [阅读全文](https://www.bbc.com/news/articles/ce83r56xwj7o?at_medium=RSS&at_campaign=rss) |
 | Tories pledge to get all oil and gas out of North Sea | [阅读全文](https://www.bbc.com/news/articles/cp890n51684o?at_medium=RSS&at_campaign=rss) |
 | Thousands demonstrate across Mexico for the 130,000 missing | [阅读全文](https://www.bbc.com/news/articles/ckg4rnr720yo?at_medium=RSS&at_campaign=rss) |
-| Yemen's Houthi rebels say prime minister was killed in Israeli strike | [阅读全文](https://www.bbc.com/news/articles/c620ykrxedwo?at_medium=RSS&at_campaign=rss) |
+| French voice fears over Bayeux Tapestry move to UK | [阅读全文](https://www.bbc.com/news/articles/cev23vrzx0ro?at_medium=RSS&at_campaign=rss) |
 | Watch: The best looks from the Venice red carpet so far | [阅读全文](https://www.bbc.com/news/videos/c9d0zz3145lo?at_medium=RSS&at_campaign=rss) |
 | ‘Public enemy number one’: The battle against an eight-toothed beetle threatening UK forests | [阅读全文](https://www.bbc.com/news/articles/clyr8yml9rro?at_medium=RSS&at_campaign=rss) |
 | Life inside notorious 'Alligator Alcatraz'  in its final days | [阅读全文](https://www.bbc.com/news/articles/cwy3zel0r3go?at_medium=RSS&at_campaign=rss) |
