@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年08月31日 13:56:04（北京时间）**
+🕒 更新时间：**2025年08月31日 14:00:41（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Chicago mayor signs order to resist potential Trump crackdown - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBKdXhwRTFobDE1ejZZeHpkdU5UVElvSkFmQnJucGs1UjBUVktPZkJacjRPcjNaR2VpQkp0eXo2Q0d5MXJBYWJqdV83cGZ5TkpFOURmbE5UTFlYQdIBX0FVX3lxTFBsY0liYlN2a0Y1Mm5wbDV0eUR4NGdqcjN0YnJDdnhxempVcXdQa014MGxmVDJHeXh5bDFYeUc0Q1Y4bGpKR0ZxLXlZZHFPTUNULXV4dkQ1ckRHMnlIM0xB?oc=5) |
 | Ruling on Trump’s tariffs is a major setback for the White House - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQWVhrTFFKY1hzS1VoLUI5Tm9FRkFQZ1MxS2FEUVdmWGFhcFk0N1lVYjU0Y01vZG5wNmFLMjBuZXRrYnNFLWtLSUl4bHRXdTZmYzdpQjhqdVBqTlJrZEpMYm1za24tM2MwVTZfV2V5Vml5ekw2c091V2xIUlpwalJQcUl6UUhQZzRwQjhN?oc=5) |
-| Prime minister of Yemen's Houthi government killed in Israeli strike - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPUHBZNjU1TVVhNEpnYUdBQzV5ZzFCcmx0SnN2Wl9FcVA4czNIYWV0VjNQekdHSE4xb1RrRmdPQkZvTzFJQjFWZE1Zc2t1eG41a1ZQX0F4S0piZklHVTd0MXNmQnR2aVhhalp6SGFTVkdWZXFYa1Zfc0JXaUM4Z1pDdm5QdXJCUGo4TF9RaWE1OUEtTmR4Zzl5RlphVVlFOEE0TFZsSGROS3pRTUJzRWFJMjQzeFZudw?oc=5) |
+| Prime minister of Yemen's Houthi-run government killed in Israeli strike - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOaE5FQkVBd1ZBOXNMNDBaRmI2c0tjZUhSN1hzR3EzQnlmcWd3NWRJSTJfYU5BSEtLRTYyOGhCUU5iMmV4SXZyekxwUmlfOGpmTzZBeEVHQmFjVGJpb0VqX3Z5TEpoaWNmNVRyeW1vczVEci13U0c1TXNUV2ZEd1FreXpyckZ4cW8wZzFLU1QtU1RvYkJJd1lROThJTDZreHhzblRoVl92cmZ0VWkzUzJpeHp1UG05bWctMElr?oc=5) |
 | Robin Westman displayed signs of self-harm at prep school, former teacher said - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNaGxwQ21uR2FVZ0F5a1VCM3dDUVBmTVJ6YXJweDJEaDg3dkNPb21fSm56TnQwaGtTUHh6LUdhd2MxYmpqNVhPSUsxWm91U18xdmlGT256UEx2WUlmVXJVd2szNi10bGI4cHBsLTVWRUR6alhtOTZVbmtHMFhaQlR0SmtmRWtZdXpKWjJaZDVaVTg4emtCSnfSAVZBVV95cUxPYU8wRTk0MW9fNy1RYS1BVXF6QnBETHNyY2ZGaVBtb0QySnY4bHAtTEZHZnJra0p0NkdFTkV4WjRxU01GWWpaNFNLTGtRdTItTkp3eWtsZw?oc=5) |
 | California Highway Patrol to protect Kamala Harris after Trump pulls Secret Service detail, sources say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQSDNDVmxmWWk5dF85WUdoTkJSelBQdUhQLVFub0hBWXVfQlF6U3dDbzkzS2htdmJSMHlLdGIzUWV3dFJ5WXN0dWJZQlFuUzNMaHR1NkxNb1c5MVB2bmEycmN4c3lZRkZqaXpPRjZHUmM5WWI1UjZrLWlRbnJSaVo0SDZ0MG5FVWs?oc=5) |
 | Bernie Sanders demands that RFK Jr step down as health secretary - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQbURJVXhzaHhiVFhXYUs3Z0UyZ0xJbGthX3B4SHloTVlvZjVHV21PbThUVWxOcVB1MWl5N3B3TnB2dWN3ZWR6MWdXU04yX3hWcnhJQkhvelhfR2hnU3pxd2xBZTBremZWVG1QNmMxMzdWaVhnZnJkOVJNZk5KSGhXZHl3?oc=5) |
