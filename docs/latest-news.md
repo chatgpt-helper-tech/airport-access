@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 23:56:07（北京时间）**
+🕒 更新时间：**2025年09月02日 00:00:29（北京时间）**
 
 ---
 
@@ -11,9 +11,9 @@
 | Starmer shakes up No 10 team - but what is he hoping to achieve? | [阅读全文](https://www.bbc.com/news/articles/cd0d195md5eo?at_medium=RSS&at_campaign=rss) |
 | More than 800 killed after strong quake hits Afghanistan | [阅读全文](https://www.bbc.com/news/articles/c3ezgy1zlvwo?at_medium=RSS&at_campaign=rss) |
 | EU chief von der Leyen's plane hit by suspected Russian GPS jamming | [阅读全文](https://www.bbc.com/news/articles/c9d07z1439zo?at_medium=RSS&at_campaign=rss) |
-| CEO who snatched boy's hat at US Open says he made 'huge mistake' | [阅读全文](https://www.bbc.com/news/articles/ce93klk0jpzo?at_medium=RSS&at_campaign=rss) |
 | Summer 2025 confirmed as UK's hottest on record | [阅读全文](https://www.bbc.com/weather/articles/c1kz18d3wjro?at_medium=RSS&at_campaign=rss) |
 | Starmer backs Rayner amid row over Hove flat | [阅读全文](https://www.bbc.com/news/articles/cy850l982v0o?at_medium=RSS&at_campaign=rss) |
+| CEO who snatched boy's hat at US Open says he made 'huge mistake' | [阅读全文](https://www.bbc.com/news/articles/ce93klk0jpzo?at_medium=RSS&at_campaign=rss) |
 | Putin says he reached 'understandings' with Trump over end of Ukraine war | [阅读全文](https://www.bbc.com/news/articles/c0qljy44553o?at_medium=RSS&at_campaign=rss) |
 | House price growth slows as calls for property tax reform mount | [阅读全文](https://www.bbc.com/news/articles/cdrk1411ygdo?at_medium=RSS&at_campaign=rss) |
 | Children at risk of identity theft by parents posting pictures, research suggests | [阅读全文](https://www.bbc.com/news/articles/c8904njvy03o?at_medium=RSS&at_campaign=rss) |
