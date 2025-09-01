@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 07:33:01（北京时间）**
+🕒 更新时间：**2025年09月02日 07:40:30（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | Scotland scraps peak rail fares - will the rest of the UK follow? | [阅读全文](https://www.bbc.com/news/articles/czxp9zl0k90o?at_medium=RSS&at_campaign=rss) |
 | Watch: BBC analyses the warmth and hand-holding at Xi, Modi and Putin's summit | [阅读全文](https://www.bbc.com/news/videos/cn0r02zgjj4o?at_medium=RSS&at_campaign=rss) |
 | Northern Lights potentially visible across much of the UK | [阅读全文](https://www.bbc.com/news/articles/c5yey8l59p1o?at_medium=RSS&at_campaign=rss) |
-| CEO who snatched boy's hat at US Open says he made 'huge mistake' | [阅读全文](https://www.bbc.com/news/articles/ce93klk0jpzo?at_medium=RSS&at_campaign=rss) |
+| Justice secretary to get power to veto sentencing guidance | [阅读全文](https://www.bbc.com/news/articles/cn848g3ll09o?at_medium=RSS&at_campaign=rss) |
 | Israel committing genocide in Gaza, world's leading experts say | [阅读全文](https://www.bbc.com/news/articles/cde3eyzdr63o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
