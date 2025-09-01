@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 03:48:57（北京时间）**
+🕒 更新时间：**2025年09月02日 03:57:31（北京时间）**
 
 ---
 
@@ -8,8 +8,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Jones gets new role as Starmer revamps No 10 team | [阅读全文](https://www.bbc.com/news/articles/ce93k7l0zpro?at_medium=RSS&at_campaign=rss) |
 | UK suspends refugee family reunion applications | [阅读全文](https://www.bbc.com/news/articles/c626p66d6jxo?at_medium=RSS&at_campaign=rss) |
+| Starmer shakes up No 10 team - but what is he hoping to achieve? | [阅读全文](https://www.bbc.com/news/articles/cd0d195md5eo?at_medium=RSS&at_campaign=rss) |
 | 'Covered in dust and too shocked to speak': Afghan villagers reel at scale of quake's devastation | [阅读全文](https://www.bbc.com/news/articles/cm2vm2r6dzdo?at_medium=RSS&at_campaign=rss) |
 | EU chief von der Leyen's plane hit by suspected Russian GPS jamming | [阅读全文](https://www.bbc.com/news/articles/c9d07z1439zo?at_medium=RSS&at_campaign=rss) |
 | Scotland scraps peak rail fares - will the rest of the UK follow? | [阅读全文](https://www.bbc.com/news/articles/czxp9zl0k90o?at_medium=RSS&at_campaign=rss) |
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | More than 800 dead after earthquake hits eastern Afghanistan, Taliban say - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNdml0NTAyWWJMMEpwaW5sMk40MGM0ZDN4RTU0MnM0U0lPc0JhLW1TcnRuZXJyRG91ekdyWGZycUlsNWgzdHJuWG55RUNNVEFBYkhZXy10MzJSVjVDREd3LWlubmRVbFhkbUVwUmRWazFOVWVkN3B6b1JVSkVNWWlPc1ZNeVltQU42T3c?oc=5) |
-| How Trump is decimating federal employee unions one step at a time - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNZUdZSml1SFpIdHJnbmUwalJqZFJaYmRaaFYtMUlibWo5dDM1QkNXVFJIMTlWdzNud29Bd2dCY0x2QVdoU2ZDczVvd3M1dUdybG1ZemNBMm5TbXdodHB4SklRYXJzSnFOVkNrbEFPZFBJcUhOX3ZVTWtGXzY1MWxFU2RyX1hYamFYZUE?oc=5) |
+| Trump orders more agencies to nix collective bargaining agreements - Maryland Matters | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNcXJ4ckhQOEJZdGlwMEhnNVVQWndic0dDc05yUlRLaGVoRERVRnZwaG5BNXRUanEtbjhLcXIzMzVGQUx6VGJ2ZFlBTUhFZjNoeDJwX0k3aW9sd1Q4TmMwbXFnYzVNOHVteVUtUGV5MElmcUtqd3RiVTVObUoyOHk1ZG9pTm5oT0FnTG5IVUdpVUFvTTNjV1gzM3hIOFVUT01SUW5OWlRWcXdnZw?oc=5) |
 | "This is unacceptable": Former CDC directors condemn RFK's upheaval - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1VMkNqVUN2dG1uWHkyWmxCNGVCNWhBQzhlZmtfWXJrbWdaTTdYRjU0ZVFKWlhpM2JoOXJ2cmFtdDN1ZDJkYlpZUEh4QTYxWnhtczlQSXRQZHlOX08tMUtpRVAwUUE3Z01SZlJldkpNSDFoTUs4?oc=5) |
 | Trump tells drugmakers to 'justify the success' of Covid meds after FDA limits vaccine approval - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1BOWxHYXc5am43QVo2VmxydWN1Q3lfYUlWMWdxQnRsSVRCMEVBdDB3OVdBM0VmWHpKdEw3N3JDd1BTWVpvbWM0b3Exam5FQmxxWFUzaUFRM016dUt3WmR6Z3VRdU51WkFtZ2Y5Y1NmUnlfaTDSAXhBVV95cUxNTmg1RjNpZEc4eVpIUmNPeC1oaHZLUUdMZXJ0SE9Ndmw2U3BQYmFkLTdrSjZocEp2UW9rQWxwTjdJUGNkM2Q1V1NpdldWcEF3RUpKcElHQnJVTHpuWGk4OWJmVWh4UmpLMHVmTFVCOHFiTHRnSnpNOVU?oc=5) |
 | President Trump Is Delivering for American Workers - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPU21POE5TSUQ5aExjanlHeGJyMUYyblBkRjBMNmx1dDFCN2RRZk9jVGZsM21KRUQwbE9tcTlhMW1WQjF2Q3lCRXlyV21mRkNXQ05NX2pMVHVqUkFlVG1BNXlES1NWNXY3X095b09pNWxPSlBTQ2xQRmh3RUE2SkFfakxyYV9jLXMzZ2ZCUXR6bm5MUDNiQmhSd2w1QQ?oc=5) |
