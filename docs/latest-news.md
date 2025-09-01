@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 19:25:30（北京时间）**
+🕒 更新时间：**2025年09月01日 19:33:10（北京时间）**
 
 ---
 
@@ -13,9 +13,9 @@
 | Putin says he reached 'understandings' with Trump over end of Ukraine war | [阅读全文](https://www.bbc.com/news/articles/c0qljy44553o?at_medium=RSS&at_campaign=rss) |
 | I chose my Caesarean date to be eligible for 30 hours of funded childcare | [阅读全文](https://www.bbc.com/news/articles/c5yeldz568jo?at_medium=RSS&at_campaign=rss) |
 | Jewellery boss in £170m scam told shop staff to pretend to be customers | [阅读全文](https://www.bbc.com/news/articles/cp37k8ev9glo?at_medium=RSS&at_campaign=rss) |
-| Liverpool agree British record £125m fee for Isak | [阅读全文](https://www.bbc.com/sport/football/articles/c8904kw17j0o?at_medium=RSS&at_campaign=rss) |
 | UK to tighten family member rules for asylum cases | [阅读全文](https://www.bbc.com/news/articles/c626p66d6jxo?at_medium=RSS&at_campaign=rss) |
-| Royal Mail returns to profit for first time in three years | [阅读全文](https://www.bbc.com/news/articles/cger3w129l0o?at_medium=RSS&at_campaign=rss) |
+| EU chief von der Leyen's plane hit by suspected Russian GPS jamming | [阅读全文](https://www.bbc.com/news/articles/c9d07z1439zo?at_medium=RSS&at_campaign=rss) |
+| Liverpool agree British record £125m fee for Isak | [阅读全文](https://www.bbc.com/sport/football/articles/c8904kw17j0o?at_medium=RSS&at_campaign=rss) |
 | China's navy is expanding at breakneck speed - and catching up with the US | [阅读全文](https://www.bbc.com/news/articles/c4gmnpg31xlo?at_medium=RSS&at_campaign=rss) |
 | How sheer luck made this tiny Caribbean island millions from its web address | [阅读全文](https://www.bbc.com/news/articles/cn5xdp427veo?at_medium=RSS&at_campaign=rss) |
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Hundreds Dead After 6.0-Magnitude Earthquake Hits Afghanistan - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQb01ubjRvMnJ5VldzUHdVeF9OM2hZaDdLQnVDV18wVjlJVnVfZWp5U3o1cWVMc3h5cWNBcjkzUGpCMHo2dDZxOG1XaktXN2VGck5IYXBXcmh5WnRfcFZ2UDMxb3hfTTRKWUwxUXNSTTVVRkhyWkhTZkxqWktZRVJLaEVRSTdHYm5GZ1pJ?oc=5) |
 | Judge blocks Trump administration move to deport Guatemalan children - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1BVWxLaEZuc0NkNHhBdE9LbFJSU1lxNTNBT0hjYjVpNXE0cWVLQlRoQWN1a0dXWndob3ZSR2JGMVNIUUZZLVNoZVFyc0ZFbUY3b3F3Q3UtX0s1QdIBX0FVX3lxTE1SLWVtT0kzWU9kQ3lOWE9wMnBJLW9iZXc0X01YS3JId0E4OS1zanlQYjA3UXg4aDJpRE42cEdVMVpRMDJwNHNTdVh1NXZoQzdhVWJRS3VFSXhHa2FOX2VF?oc=5) |
-| Rudy Giuliani hospitalized with multiple injuries after car crash - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQWExPdWc2aFNrekhrcGVINHRSQ2RWcC1nUlppV3l1eFBsMVdBR2EwQ0lISnNlTVJRNjh2YUlPNmthTHhWSE4wUEFFeWs1Z2ltRW9GOWdZeVFjYlRuZG5yNEJGRXFKSWVCWktlV1pxTkJrbU4xWE90WlRxaVFGSkNxRDVFM0Q?oc=5) |
 | House Oversight has withdrawn subpoena for Robert Mueller; new report says he has Parkinson's disease - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOeDIwUjIxRTQ4U3lVSlBCRzYwV243dVZxWDlxeEpZMFExNWRaRjM4R0k5Z3ZGcjMtQjctVTA1NDJGVGM5V245akpwX3F4YWdORjJ4TjNFZGw5eUMzUXBIbmRhT2xLM1hwa1U1djJ0bDFURUxHQWlOR2hWUjVOSU1ER1hBQ1JxZ2N1Z1dWY1VDSnMxRjlveERFaVNPZUdaRjl6WDZhNWQ0LWFKNzVhc29sR9IBtgFBVV95cUxQUjRGZTYzVHZVeF9GUHU5YTc0QVN5czBxd1NXZmpBd3I2cGptT1dNOFA1czJtU0w3dVg5QUlSeS1qalNLTGxjMEFudEhYZ3hIR2hHMk1vVVBnQnB4Mi11c25UN0N6bWVjOHM0UEE0dVIyN0xpYUpkVE94MkI0dVBNTWxnR0dyYU8wdi1Rc2FwS0pubk4wZDNnaFRfMS16QlNfSVRsUWRUd3VlQ1VWc25hWnpvMGJ3QQ?oc=5) |
+| Rudy Giuliani hospitalized with multiple injuries after car crash - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQWExPdWc2aFNrekhrcGVINHRSQ2RWcC1nUlppV3l1eFBsMVdBR2EwQ0lISnNlTVJRNjh2YUlPNmthTHhWSE4wUEFFeWs1Z2ltRW9GOWdZeVFjYlRuZG5yNEJGRXFKSWVCWktlV1pxTkJrbU4xWE90WlRxaVFGSkNxRDVFM0Q?oc=5) |
 | Plane carrying EU’s top leader targeted by alleged Russian GPS jamming - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5Ta2pTZ0FqaUxLdnhmZm9qdzE4R3ZoMHVkNzlzcjd3WEJ1SWlQVVhxdDlQd0RBczhkN180NHVCNDcybFF1Y3ZNeXZENGpmZFBJNmtkMWYyMjFXNVY5ZlFrQ0NEZk9JYmtWNWxDZm54clYydUY3dG93?oc=5) |
 | Trump aides scramble to defend tariffs after bombshell court ruling – and as crucial jobs report looms - The Independent | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPeTRBNTBVRVdVRTdjVUg4d25iLTh5REJiMVNpY05zWEZTa0dRSjFSaHM2dGJPS3ZYLTdOQUJjVV9tN0wzVHpLZ1pNV2JJb2wtbWdvem5VWmh0dFVReXJUVmxOVFNoUm1OZDMybUVTWlVSTU5jR0xKRUI2R1BUZ3lDd3NlOFRJM2dMZnpxSEtSYWlvdlRldlpEV3I4UWhqT2lDcUVBajctWlVzbFk?oc=5) |
 | Burning Man death prompts homicide investigation - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPdEQtZEFLcVBXRDR3N0tIeXM1aUtpMmlERS10RXZTb1I3VGQ0UmE1azJNUk0xZDhxZzZMelM1RXR3czl2YUxYU2V3dEpnVE5YM3Z2a0E3OHNoNXZGWVlfM0U2TkxBcFZUZlNtbW9reHcyc2tHTVVLRjhZektLLWY2NFZSVzhmRklFa1A00gGQAUFVX3lxTE94RVJXcVFrQ1ptWm42R0Uxb0x0VjVrSWhCWVE2SzQzOFBaTVV6cWlDdV91VjBaQ0MxUnFtQ2l1Z1o0UWEwb3hMVW96dUtDWkZiVWljQUZKQS1YTm5rcFB0VnotMlVyRnIwREZPaS02MkxsS0VQa2tKU0UyMlRWM0ktSzc2a2FKRFlwY2ZzYVVFbA?oc=5) |
