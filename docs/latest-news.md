@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 18:24:25（北京时间）**
+🕒 更新时间：**2025年09月01日 18:33:39（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | House price growth slows as calls for property tax reform mount | [阅读全文](https://www.bbc.com/news/articles/cdrk1411ygdo?at_medium=RSS&at_campaign=rss) |
 | Liverpool agree British record £125m fee for Isak | [阅读全文](https://www.bbc.com/sport/football/articles/c8904kw17j0o?at_medium=RSS&at_campaign=rss) |
 | UK to tighten family member rules for asylum cases | [阅读全文](https://www.bbc.com/news/articles/c626p66d6jxo?at_medium=RSS&at_campaign=rss) |
-| Camilla fought off attacker with shoe as teenager, book says | [阅读全文](https://www.bbc.com/news/articles/c209ql9z2d1o?at_medium=RSS&at_campaign=rss) |
+| Queen Camilla fought off attacker with shoe as teenager, book says | [阅读全文](https://www.bbc.com/news/articles/c209ql9z2d1o?at_medium=RSS&at_campaign=rss) |
 | China's navy is expanding at breakneck speed - and catching up with the US | [阅读全文](https://www.bbc.com/news/articles/c4gmnpg31xlo?at_medium=RSS&at_campaign=rss) |
 | New storm names chosen by the public - which ones are on the list? | [阅读全文](https://www.bbc.com/weather/articles/cwy54xllpyno?at_medium=RSS&at_campaign=rss) |
 | How sheer luck made this tiny Caribbean island millions from its web address | [阅读全文](https://www.bbc.com/news/articles/cn5xdp427veo?at_medium=RSS&at_campaign=rss) |
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Powerful earthquake rocks Afghanistan, killing more than 800 and destroying villages, officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9xZVJqcVEyNTZHbGZMUmF2SWVBdHl5VGNiZzA2NXZqVlRtSWxpNUUwcGJaWlFIS2hQNlVMczJxWnVkS283dFg3bEpsckMwNFNJSHBZSDlnRWk2NXlZRUd5Mk5fM3lWbFlZcjJuNExEdExrS0tiLU1V0gF8QVVfeXFMUC14TDJNR1N6OFB2XzNXRFpROFEtUkZ4dWVYVXpqZm1CcWZzekdaNkEzcmNDNFE4THNxSFVaN1g1V3pfclRULVd4cW1lQmNIWTZwaGlteXhmNHNId1F1bHRoMWJQRUlsaFYzdzg0RmQyUDc4OGE2LWM3TUpZdg?oc=5) |
-| Judge orders administration to halt deportation of hundreds of Guatemalan children - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPb05CQy1OVnJvVnZFYzduMGlpdHd3VldlUVJQaTM3WWpseV9Mc1drSWI5UXNOQnFRR3hRbGFtd09TUXlfTzFWck9nZnNSSFdub0lBRGtGOWtzcGZxclpRX0UzQWVKV3NTNXBsNm9xUjRQbTRtQ0xiRHlwTEFaN05ubmZqaHlfZ0lfZE5lekhKcFNTR2NGZ01jY1gwUlJJV3RjaU9NS0ln?oc=5) |
+| Hundreds Dead After 6.0-Magnitude Earthquake Hits Afghanistan - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQb01ubjRvMnJ5VldzUHdVeF9OM2hZaDdLQnVDV18wVjlJVnVfZWp5U3o1cWVMc3h5cWNBcjkzUGpCMHo2dDZxOG1XaktXN2VGck5IYXBXcmh5WnRfcFZ2UDMxb3hfTTRKWUwxUXNSTTVVRkhyWkhTZkxqWktZRVJLaEVRSTdHYm5GZ1pJ?oc=5) |
+| Judge blocks Trump administration move to deport Guatemalan children - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1BVWxLaEZuc0NkNHhBdE9LbFJSU1lxNTNBT0hjYjVpNXE0cWVLQlRoQWN1a0dXWndob3ZSR2JGMVNIUUZZLVNoZVFyc0ZFbUY3b3F3Q3UtX0s1QdIBX0FVX3lxTE1SLWVtT0kzWU9kQ3lOWE9wMnBJLW9iZXc0X01YS3JId0E4OS1zanlQYjA3UXg4aDJpRE42cEdVMVpRMDJwNHNTdVh1NXZoQzdhVWJRS3VFSXhHa2FOX2VF?oc=5) |
 | House Oversight has withdrawn subpoena for Robert Mueller; new report says he has Parkinson's disease - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOeDIwUjIxRTQ4U3lVSlBCRzYwV243dVZxWDlxeEpZMFExNWRaRjM4R0k5Z3ZGcjMtQjctVTA1NDJGVGM5V245akpwX3F4YWdORjJ4TjNFZGw5eUMzUXBIbmRhT2xLM1hwa1U1djJ0bDFURUxHQWlOR2hWUjVOSU1ER1hBQ1JxZ2N1Z1dWY1VDSnMxRjlveERFaVNPZUdaRjl6WDZhNWQ0LWFKNzVhc29sR9IBtgFBVV95cUxQUjRGZTYzVHZVeF9GUHU5YTc0QVN5czBxd1NXZmpBd3I2cGptT1dNOFA1czJtU0w3dVg5QUlSeS1qalNLTGxjMEFudEhYZ3hIR2hHMk1vVVBnQnB4Mi11c25UN0N6bWVjOHM0UEE0dVIyN0xpYUpkVE94MkI0dVBNTWxnR0dyYU8wdi1Rc2FwS0pubk4wZDNnaFRfMS16QlNfSVRsUWRUd3VlQ1VWc25hWnpvMGJ3QQ?oc=5) |
-| Giuliani hurt in crash after helping domestic violence victim, spokesperson says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiZkFVX3lxTFBTZW42TmFmY3pfcFp5T1dRUW1wUmt2QzZLZ0liaDdqZmphclhoSWYtSVRBbHNFSERCTjZvRTRFS05OY3NCUTVDMlpJWHZJQVNHS0FjeExNbUJDMGhtY2Vsb2hwcHo4dw?oc=5) |
-| India Was the Economic Alternative to China. Trump Ended That. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFAzb08zRjAyMFZoZVlpcXRRSllfcFBBRF9JNTZWWkdpUERGRFJmOWQ5U0Y2UlpNclFwVFphVjM3dG1ZaHVLU3BGNWxkVTItWmdzRWEtOHk0dEM0MU1NVVV0UUx4V3lJbHdMcHZpWHNEUE5oa2xoSk14UW53dDhSNEk?oc=5) |
+| Rudy Giuliani hospitalized with multiple injuries after car crash - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQWExPdWc2aFNrekhrcGVINHRSQ2RWcC1nUlppV3l1eFBsMVdBR2EwQ0lISnNlTVJRNjh2YUlPNmthTHhWSE4wUEFFeWs1Z2ltRW9GOWdZeVFjYlRuZG5yNEJGRXFKSWVCWktlV1pxTkJrbU4xWE90WlRxaVFGSkNxRDVFM0Q?oc=5) |
+| India and China are partners, not rivals, Modi and Xi say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPS2Z5NldDeTJRb1ZPSVhhdXJvLWJaUnRCbzdCeE55RjNlVkJKUjhnQV9VV0RJMi02eTN3MmM3aW9FbFBybThXVk4wLXVsNjVtY1F6RTRjdFk2LWkxM09XRVRZUm83WkNQQWI1ZmhLVDJETGlmN3hMWjgxZnhFb0wtaHIzZGZVVmFjdWN4MmhkY3FMdUVGa0VENms3MA?oc=5) |
 | These American mercenaries are revered in China. Their relatives are among the few US invitees to Xi’s WWII parade - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNVEJ5V3RKYkN4WlNfMTFMSFpUS01uZHZTNFd0Nk1taV9HcFltWHRDTDhpRkZDWkRNOUVfT3JHXzVfOW02akhpRnowdGY2cWFBeEprbm42bkdiWFp5ZWxxQVBCdjFBR3hETU9PaFhnVk1Za0lYU0dRb2ljMmVfeEI2QldWNmZGQ2xRVEkzSEZhTnkwM2dIRlcw?oc=5) |
 | Burning Man death prompts homicide investigation - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPdEQtZEFLcVBXRDR3N0tIeXM1aUtpMmlERS10RXZTb1I3VGQ0UmE1azJNUk0xZDhxZzZMelM1RXR3czl2YUxYU2V3dEpnVE5YM3Z2a0E3OHNoNXZGWVlfM0U2TkxBcFZUZlNtbW9reHcyc2tHTVVLRjhZektLLWY2NFZSVzhmRklFa1A00gGQAUFVX3lxTE94RVJXcVFrQ1ptWm42R0Uxb0x0VjVrSWhCWVE2SzQzOFBaTVV6cWlDdV91VjBaQ0MxUnFtQ2l1Z1o0UWEwb3hMVW96dUtDWkZiVWljQUZKQS1YTm5rcFB0VnotMlVyRnIwREZPaS02MkxsS0VQa2tKU0UyMlRWM0ktSzc2a2FKRFlwY2ZzYVVFbA?oc=5) |
 | DHS Secretary Kristi Noem acknowledges ICE surge in Chicago; says National Guard deployment up to Trump - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE0xNUN6SkNmcEZMYmRPa3VkazIwV3JZQ1NWR1NNRWxVTUh1NlNmcUpTeHVqWDQyX1kzVk5MaFNYOWoxems4VmQxcEEtVG5zenRGcVYydUFKdWVvUXp6dG5wVE9WYXE3T0RFTGNPX3lseFZHaE5BeFFmTW9zcDJ1UWs?oc=5) |
 | Trump news at a glance: US president issues threat to mandate voter ID - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPcUZtY1NiM2xnYXlOMW9GOUEzOU4tcmY0Wi1udWxlZmlScWJvY3drMU1rdEdCb0wweFdHTXJXZlNIRU1VOHJCRXI3RjZoRTlTUVB4RkFzeHBfZDF2cy00ZDRHemQ2ZHZUN0U4TjUyOVJUa1ZUODNkdDZnVE9jS0c0VjJkMDkxOHpVRS1GWUt6cDd6RmFGLXJGdWJmUXNydw?oc=5) |
-| Trump aides scramble to defend tariffs after bombshell court ruling – and as crucial jobs report looms - The Independent | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPeTRBNTBVRVdVRTdjVUg4d25iLTh5REJiMVNpY05zWEZTa0dRSjFSaHM2dGJPS3ZYLTdOQUJjVV9tN0wzVHpLZ1pNV2JJb2wtbWdvem5VWmh0dFVReXJUVmxOVFNoUm1OZDMybUVTWlVSTU5jR0xKRUI2R1BUZ3lDd3NlOFRJM2dMZnpxSEtSYWlvdlRldlpEV3I4UWhqT2lDcUVBajctWlVzbFk?oc=5) |
+| Blocking tariffs would be "end of the United States," top Trump adviser says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE56VXlPeFpocjN5d1Z1VThKUF9oY3RQOVRNQWQ5RlgxWWdaOTBMbWY2Yjd1WTFvTG5CX2ZXUHc3NzlvYnIxbzBjdWZ1aWxOMXlZNzJGV2VnbnhFMjM4Z1Z4ZXFyTmVMZWViSEE4cQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
