@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 12:25:49（北京时间）**
+🕒 更新时间：**2025年09月01日 12:32:14（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump news at a glance: US president issues threat to mandate voter ID - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPcUZtY1NiM2xnYXlOMW9GOUEzOU4tcmY0Wi1udWxlZmlScWJvY3drMU1rdEdCb0wweFdHTXJXZlNIRU1VOHJCRXI3RjZoRTlTUVB4RkFzeHBfZDF2cy00ZDRHemQ2ZHZUN0U4TjUyOVJUa1ZUODNkdDZnVE9jS0c0VjJkMDkxOHpVRS1GWUt6cDd6RmFGLXJGdWJmUXNydw?oc=5) |
 | Burning Man death prompts homicide investigation - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPdEQtZEFLcVBXRDR3N0tIeXM1aUtpMmlERS10RXZTb1I3VGQ0UmE1azJNUk0xZDhxZzZMelM1RXR3czl2YUxYU2V3dEpnVE5YM3Z2a0E3OHNoNXZGWVlfM0U2TkxBcFZUZlNtbW9reHcyc2tHTVVLRjhZektLLWY2NFZSVzhmRklFa1A00gGQAUFVX3lxTE94RVJXcVFrQ1ptWm42R0Uxb0x0VjVrSWhCWVE2SzQzOFBaTVV6cWlDdV91VjBaQ0MxUnFtQ2l1Z1o0UWEwb3hMVW96dUtDWkZiVWljQUZKQS1YTm5rcFB0VnotMlVyRnIwREZPaS02MkxsS0VQa2tKU0UyMlRWM0ktSzc2a2FKRFlwY2ZzYVVFbA?oc=5) |
 | Pope demands end to the 'pandemic of arms' as he prays for victims of Minnesota school shooting - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPdERzaUVPVGl1VHpmT0ZOSFpRdS0xMXhpN0R1ZEYzb0Zva0ZuYVlTSUZXT1FPeU9vNHA2Y1RiazVUVE5UTG8wZ0k0dXEzNENCVTNCYm96eXZCQk84SXdzd1lEcVhmZ2VGOFA1TEtwZUhFamFFQUJ2MkJlbi01WDZVRHNURXdPSjRUTHdEQzk0TQ?oc=5) |
-| Former CDC immunizations chief: ‘I only see harm coming’ with RFK Jr. leading HHS - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNWU9sb0tLTHBaeDlsNHVEaFlmaXUtSDFkcW1OQlpiWEJ4emtLanV5R1FSd3Y0WFhpdy1sRVNUREVYZmh2cmlKMGVhWUllUS1SRWlaZElDOTBoeVMxaUh3aHF2emVsdEJnZ3ZZLVNST3JjQzVMeTJDU3ZTZlhfTUl1VVJ6cGphdGw2Tzh0WVRZQWRWcmdETVBnbl8ybXFUWUNmaEHSAacBQVVfeXFMTVMwRVNEYTNhU2VFUW5CMHNNekgwRGtBdUpJamhZd2s5eWN5cFlOR3U4UUZvRzczQmpub1ByZC1TejFBNzhqaDUxVFFGT1RSd1JYU0V3amNGLTRZZ1A2aVJDTFBBdkFZdk96d3l3NTdzZ0diMEZQd2dpZmQ1MHUzbHBQbTZqZV91NlpxMmpURDh6aE44ckIwa3RPZGxOZnczbmVpVFJnNVE?oc=5) |
+| Young boy rescued from Hersheypark elevated monorail track - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNYndxXzF0TnNNb0xlZm5fRG53VTgtQmlQY21MUzN0TV9HV2hxNFg0R1FPeFNOd01JbXhENHFmd3B4TmRQUXdtUzNmQTlEMm11cjRZWHdnUFV0VGRJend2cjhPRWxNTXZMSmdHeUlXYWpnRUp0ZXlrenMyY01NZ0FiU2FBbVlvaXVGTEg0NHlXeHNManVoNEtvc3lrV2tyNHPSAaQBQVVfeXFMUENtQk9PN2phcUxVU3YxVGl6cElKOU1OTzZwblZ4UTZwU1VUOTJqWkU3Y0RsbDE4Q0VLbVVURFZraS14MDE3eDluXzRDR3MxMHN4cjFMdG94T2J3aFF1cUh2Vkc5czBXSnhWTy1xZ0FMcTd5eWdTbE03QjZNRDE3ckppcy01T3VUOEZQbmVJU0M1cjRWaVVSNllXTjViYmJfdURKYkk?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
