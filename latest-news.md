@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 09:33:59（北京时间）**
+🕒 更新时间：**2025年09月01日 09:41:05（北京时间）**
 
 ---
 
@@ -23,11 +23,11 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Judge orders administration to halt deportation of hundreds of Guatemalan children - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPb05CQy1OVnJvVnZFYzduMGlpdHd3VldlUVJQaTM3WWpseV9Mc1drSWI5UXNOQnFRR3hRbGFtd09TUXlfTzFWck9nZnNSSFdub0lBRGtGOWtzcGZxclpRX0UzQWVKV3NTNXBsNm9xUjRQbTRtQ0xiRHlwTEFaN05ubmZqaHlfZ0lfZE5lekhKcFNTR2NGZ01jY1gwUlJJV3RjaU9NS0ln?oc=5) |
+| Judge blocks Trump administration move to deport Guatemalan children - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1BVWxLaEZuc0NkNHhBdE9LbFJSU1lxNTNBT0hjYjVpNXE0cWVLQlRoQWN1a0dXWndob3ZSR2JGMVNIUUZZLVNoZVFyc0ZFbUY3b3F3Q3UtX0s1QdIBX0FVX3lxTE1SLWVtT0kzWU9kQ3lOWE9wMnBJLW9iZXc0X01YS3JId0E4OS1zanlQYjA3UXg4aDJpRE42cEdVMVpRMDJwNHNTdVh1NXZoQzdhVWJRS3VFSXhHa2FOX2VF?oc=5) |
 | Rudy Giuliani Is Hurt in Car Crash in New Hampshire - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPc0NTaTBJc1RxdVk4d1RJQi1STC1yMFZQdlpYTThZUEtNRl9YcFhjVUotaUJMSUhPMWxhc1VQWHBiWU5ZVC1fTFNXVnBmRWlMZU5FTWVGRkJNb1VYOTAtVkN4UFNPV0FSXzVmbk9NXy1vbG0ycGd1VDNIb2h4UFFVWGt0VmlDckI3Y2N1eDBhTTdoR0xRdWJ2aHVpZ0paWVU?oc=5) |
-| Trump Tariff Case Ups Ante at Supreme Court - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPcGFzSmFyVFByTmV6ZWhiem5Oc2U0TW1lNUtUel82a0NSaUdZODlzUXNqUG1TZF9OQnQ0d094MHllRjFCaXZib2tDVUJHdUJzMWFNS0RYYlRRNEw4VS1UcTg2cUxvc1JWUUx1MzJSUTlGaGZjbU0yenpVTVF0U0ViRXlxQ1R2RGFYSGtxRzVMdndpZw?oc=5) |
 | India and China are partners, not rivals, Modi and Xi say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPS2Z5NldDeTJRb1ZPSVhhdXJvLWJaUnRCbzdCeE55RjNlVkJKUjhnQV9VV0RJMi02eTN3MmM3aW9FbFBybThXVk4wLXVsNjVtY1F6RTRjdFk2LWkxM09XRVRZUm83WkNQQWI1ZmhLVDJETGlmN3hMWjgxZnhFb0wtaHIzZGZVVmFjdWN4MmhkY3FMdUVGa0VENms3MA?oc=5) |
 | Trump Calls for Voter Identification for All U.S. Elections - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNb3gzSE8xWDFxbzZ3WDNlckVURVlZbzZ6OVUyNDJZMHNuWVBLZkdXenJrekxNdEh3UVpCSDV2ek1fNFA0dHJveVpCTER3RWlGWVUwWTY1dHdEcHpwblpoTk8yN3lwdzBuWkMtdHI5VFBjV2UtdF9INVpGSUJSMFFKaTFGRzdUVkVZUU00SV91cVo5b0FFYnJma0hRMlRzZ2UyZDd5Nm13?oc=5) |
+| Trump trade adviser blasts tariff ruling, calling it 'weaponized partisan injustice' - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQQlJEUFNyeW1hX2RCZXk3dDIxZV8xUDhvSTF1LTNGaUo4ajRCVDBGWUlMQnN2NDVjdXN6VXdYNU1rcFZzNjJxZHA2Nm5rc0RfSUt4M0Y2dGl3dHBMMEV2d2E4T2RpNkRDOUp2aGVPSERTZVZOcENmRDc1bHJyTHJYb2xzNzlOaC0xQUtHcmp30gGTAUFVX3lxTE9CTXlXZHJTR2NESFZwV0RjVnZqOVlMY0RHOEFVWF8wNUN0OTRWTWRmenRVYnBxOG1xaUdZTDgzSVFBT0I3TUprRHVhOUppc3FJVk1CdnJNX1B6SFZsN2pTQXRpR3JQeEdEMVJQN2J2cE5seE92QmpOQmtOcXJnd0lLOFVGR2owVUxfOEZ0WGtVZFE2bw?oc=5) |
 | JB Pritzker calls for ‘all to stand up’ to Trump’s immigration crackdown in Chicago - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQRDZCWTM1UVlZdmRnQ0RRLTNLSmFLSWw5Q2lEUWhnRW0xMjFVZGwzLW5sbWVxVmlsbFRUT2ltcjBrN2VmR2tZVVJ3dXNwQUNQTzE2ZXYzVmpacFozOWhzbXJKODNjZTFRcWNINUFIaGZ1Q0ZpRWdkcDZuam1RYjkwNW9BMzMtZGRqUUE?oc=5) |
 | Homeland Security Secretary Kristi Noem says "we haven't taken anything off the table" on expanding immigration operations to other cities - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQb1ZuSWtMRXFyMWh2Z1Rjb3J1dThxdnlUdU04dG9jS1RxR3o5YVV6M2NBMXhyVTQzWXZITmYyQkpuUzBzUFhnQzdhbVNMMHpXdkRNMGE2dzFaVWEyb0JzRnJEMHVHa3VrWnRWVDZWRHNnQXk0MmdvZlhKSU9iNEtwUHVNOXVUUHQySXJoVVB5U3VSYmxEcVh4Vy1OakjSAaIBQVVfeXFMT2tKWDU2V3AxOEVrY0tCVFpPcTdsVmdpbThIVmd5R0FtVGdoS05vM3BRVHNqekRfLUs3ZzNRWDlzbHBCZnFNWUw2TUlYOTdjNWFoYktlc3VoYWE2QTFiV3BJTmltX0pYT2R1Qi01SzMwTExkaWljQUNWbndVeUNPR3BXSU9RRVlLZTZISmkzUHczUjZqNWxyNjE1M09vd1FaU3dB?oc=5) |
 | Pope demands end to the 'pandemic of arms' as he prays for victims of Minnesota school shooting - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPdERzaUVPVGl1VHpmT0ZOSFpRdS0xMXhpN0R1ZEYzb0Zva0ZuYVlTSUZXT1FPeU9vNHA2Y1RiazVUVE5UTG8wZ0k0dXEzNENCVTNCYm96eXZCQk84SXdzd1lEcVhmZ2VGOFA1TEtwZUhFamFFQUJ2MkJlbi01WDZVRHNURXdPSjRUTHdEQzk0TQ?oc=5) |
