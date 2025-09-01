@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 01:41:53（北京时间）**
+🕒 更新时间：**2025年09月02日 01:49:13（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Narendra Modi hails India’s energy ties with Russia despite US anger - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1GV3ZuNkVBRnJNdkttZkJIbkJMQ2JmSFFEd0VFT29wVWxfOWk3cXYwMExBX1dsTTZjUXNpLUZlaHgyVzRjR0RCa1FodElxMGwtOGRHX2I2UHl4LXBGdDk5Yk95dXd2VkJiTDBXcnJKdHQ?oc=5) |
 | Trump tells drugmakers to 'justify the success' of Covid meds after FDA limits vaccine approval - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1BOWxHYXc5am43QVo2VmxydWN1Q3lfYUlWMWdxQnRsSVRCMEVBdDB3OVdBM0VmWHpKdEw3N3JDd1BTWVpvbWM0b3Exam5FQmxxWFUzaUFRM016dUt3WmR6Z3VRdU51WkFtZ2Y5Y1NmUnlfaTDSAXhBVV95cUxNTmg1RjNpZEc4eVpIUmNPeC1oaHZLUUdMZXJ0SE9Ndmw2U3BQYmFkLTdrSjZocEp2UW9rQWxwTjdJUGNkM2Q1V1NpdldWcEF3RUpKcElHQnJVTHpuWGk4OWJmVWh4UmpLMHVmTFVCOHFiTHRnSnpNOVU?oc=5) |
 | Has Trump kept his campaign promises to American workers? Here's what some say. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNdjU3WEZoaUdFeDJJeGZXeTl5bDV3MnRwWHB2NFBSdzd6VWZHa0tYRnVralNJcUNxS29vNXh4ZkVKX0ZPZXRMZjJCXzhaSmhmZ2o1c1ZfYTBvTVhFLUYyYUpvdnFVdGV0QndXSWFvejRvOHhxR2M3ZWJiOUtpRzQxeGJoc2JhRW80?oc=5) |
-| Government shutdown looms as Congress returns after monthlong August recess - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQYWhlNENqeVJwUUdoUFNkZEpzSjZSdzZManFVSHBiTnFBYkhvT25LU1o1aV82S0dzTE90cl9NSW9YZEZETjhNdElDZTZ6Q3hKTjlZUVVQZUxCdDREbXhQSFpCdHR5SHV3MDB0cUdWbjNLc3UtQ2VUbDg3NllET0c0cVFJVmxFX09CbkhwUV9uazlQeFZneFdNcGluYml3QQ?oc=5) |
 | Family in disbelief after father's death in Alabama ATV accident: 'Still waiting for him to come through the door' - 11Alive.com | [阅读全文](https://news.google.com/rss/articles/CBMi7wFBVV95cUxNY1d4M01JdTZJQV9yZnFiVm10M3dzOHpmOUNTOVh0QjFqcU0xUjRaUm1pRkthd2RYOVNkeVYza1dDanByRG1sZFVQQ3RjWGlHdmdZdXNpeUdpQWZham1TRnU4ZHpzWnhuN190SjZCSFFfQVlpTmVEejFYX2RvczB6bHBKWWFlVmlDMGtXWjhsVzIzUEJuZUVCOVpPMzR6REZZcFJiQ3dHYUJnQ1lfcEV5WTJpMDFBTDBJOXBRRFh6MjF3Y0EwLU13TlFiQjFRZHUwcWp6b0xSUWxhSEkxTC1ZQ0ZMTS1ZWklvTlBKUmFrNA?oc=5) |
-| Rudy Giuliani hospitalized with multiple injuries after car crash - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQWExPdWc2aFNrekhrcGVINHRSQ2RWcC1nUlppV3l1eFBsMVdBR2EwQ0lISnNlTVJRNjh2YUlPNmthTHhWSE4wUEFFeWs1Z2ltRW9GOWdZeVFjYlRuZG5yNEJGRXFKSWVCWktlV1pxTkJrbU4xWE90WlRxaVFGSkNxRDVFM0Q?oc=5) |
+| Government shutdown looms as Congress returns after monthlong August recess - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQYWhlNENqeVJwUUdoUFNkZEpzSjZSdzZManFVSHBiTnFBYkhvT25LU1o1aV82S0dzTE90cl9NSW9YZEZETjhNdElDZTZ6Q3hKTjlZUVVQZUxCdDREbXhQSFpCdHR5SHV3MDB0cUdWbjNLc3UtQ2VUbDg3NllET0c0cVFJVmxFX09CbkhwUV9uazlQeFZneFdNcGluYml3QQ?oc=5) |
 | Great Lakes ghost ships emerge, courtesy of the quagga mussel - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5TRTFpdmlHWDlFN0lieGRfSDI5MVlJdlVPU3BjaDhEVXZaU0s1QTYwVlNSMUFPNDZFZGhxRFd1OWZxWEoxSkd4dkdwQUhoa2hSVUs1cFJJLTd2QjFkMExNT1dzMkRnQnRIRHltSUpfN1E?oc=5) |
+| Solar storm could bring the Northern Lights to Western New York for Labor Day - WGRZ | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxQMk05dUNjNVNTazNENXpJNDROMERRR1A3WERmdWxQMDhFNWt4S19lMjNDUmpqenpwbGR3YnM4ZGE2aEMyR2MteENkZWpQUlhYcFpHNjYwbEtyQWpJbTRUS2dfdDBSdkI3LUl6UGgtZkIzbDhyN1htVFJsR2VqRVZLc0xsMk10NDZ6QUdvY2dteTlBVU5XV214TERXTURTZmwyai1GeDdWSk1lVnRtNEJxNDNEZU5uLTY2c2xIWldFYy0wRzhwVVFnU3VwU182Zw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
