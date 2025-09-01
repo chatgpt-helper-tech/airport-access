@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 14:16:32（北京时间）**
+🕒 更新时间：**2025年09月01日 14:25:35（北京时间）**
 
 ---
 
@@ -13,8 +13,8 @@
 | Jewellery boss in £170m scam told shop staff to pretend to be customers | [阅读全文](https://www.bbc.com/news/articles/cp37k8ev9glo?at_medium=RSS&at_campaign=rss) |
 | China's huge navy is expanding at breakneck speed - will it rule the waves? | [阅读全文](https://www.bbc.com/news/articles/c4gmnpg31xlo?at_medium=RSS&at_campaign=rss) |
 | Camilla fought off attacker with shoe as teenager, book says | [阅读全文](https://www.bbc.com/news/articles/c209ql9z2d1o?at_medium=RSS&at_campaign=rss) |
-| The public have chosen the next storm names - get ready for Amy, Bram and Chandra | [阅读全文](https://www.bbc.com/weather/articles/cwy54xllpyno?at_medium=RSS&at_campaign=rss) |
 | Liverpool agree British record £125m fee for Isak | [阅读全文](https://www.bbc.com/sport/football/articles/c8904kw17j0o?at_medium=RSS&at_campaign=rss) |
+| The public have chosen the next storm names - get ready for Amy, Bram and Chandra | [阅读全文](https://www.bbc.com/weather/articles/cwy54xllpyno?at_medium=RSS&at_campaign=rss) |
 | British woman stabbed to death in Cambodia, police say | [阅读全文](https://www.bbc.com/news/articles/c15le021yzpo?at_medium=RSS&at_campaign=rss) |
 | UK secures £10bn deal to supply Norway with warships | [阅读全文](https://www.bbc.com/news/articles/cr5rgdpvn63o?at_medium=RSS&at_campaign=rss) |
 | Peak rail fares scrapped on ScotRail trains | [阅读全文](https://www.bbc.com/news/articles/c98lzygd5vjo?at_medium=RSS&at_campaign=rss) |
