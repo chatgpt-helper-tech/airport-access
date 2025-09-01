@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 03:09:05（北京时间）**
+🕒 更新时间：**2025年09月02日 03:16:39（北京时间）**
 
 ---
 
@@ -8,6 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| UK suspends refugee family reunion applications | [阅读全文](https://www.bbc.com/news/articles/c626p66d6jxo?at_medium=RSS&at_campaign=rss) |
 | Starmer shakes up No 10 team - but what is he hoping to achieve? | [阅读全文](https://www.bbc.com/news/articles/cd0d195md5eo?at_medium=RSS&at_campaign=rss) |
 | 'Covered in dust and too shocked to speak': Afghan villagers reel at scale of quake's devastation | [阅读全文](https://www.bbc.com/news/articles/cm2vm2r6dzdo?at_medium=RSS&at_campaign=rss) |
 | EU chief von der Leyen's plane hit by suspected Russian GPS jamming | [阅读全文](https://www.bbc.com/news/articles/c9d07z1439zo?at_medium=RSS&at_campaign=rss) |
@@ -17,7 +18,6 @@
 | CEO who snatched boy's hat at US Open says he made 'huge mistake' | [阅读全文](https://www.bbc.com/news/articles/ce93klk0jpzo?at_medium=RSS&at_campaign=rss) |
 | Israel committing genocide in Gaza, world's leading experts say | [阅读全文](https://www.bbc.com/news/articles/cde3eyzdr63o?at_medium=RSS&at_campaign=rss) |
 | Weight loss jab Mounjaro gave me my life back - the price hike is worrying | [阅读全文](https://www.bbc.com/news/articles/cwyp9e1vyr6o?at_medium=RSS&at_campaign=rss) |
-| Scandal-hit ex-MP dies suddenly in London flat at 59 | [阅读全文](https://www.bbc.com/news/articles/cp8908jd3n1o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
