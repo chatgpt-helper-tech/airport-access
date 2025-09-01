@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 22:32:12（北京时间）**
+🕒 更新时间：**2025年09月01日 22:41:00（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | An earthquake devastates eastern Afghanistan, killing more than 800 people - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPMlB2YzV5M2YyTmxmTXE1aVFrOGpRekdIYVc5bmxlOW5qOGprMnBJNlZsSjhWRVhKY3VSdVFnRlJZcEFpNXk3cmpZa2pEUnEtYzJiN29KTkE4ZGZ4Y2xYd1l5R2RxdU10ZXRKZEdleWo2UENFZTdKN2NhZnhWZlQtSTlUck9IcDV4QVRPc1VMUQ?oc=5) |
 | Xi and Putin stand shoulder to shoulder as China casts itself an alternative global leader - yahoo.com | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQLU1BTWRYZ0lRTWdXd2dLYl9GdkJYR0xBUFBSaEs3bGRweDVSTTc0QzhKMlEtSHZqZVRaZVBNS1RGM0ZKSk5fNEVkZjE2eW1WRU1HY2NucWhDTDZFdlcxczQtQ05aTUwxWHRiWTVsNldZZWhXSnEtNk1DMkdfRFhyaVNpVlVHdWZ1TEZz?oc=5) |
-| Has Trump kept his campaign promises to American workers? Here's what some say. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNdjU3WEZoaUdFeDJJeGZXeTl5bDV3MnRwWHB2NFBSdzd6VWZHa0tYRnVralNJcUNxS29vNXh4ZkVKX0ZPZXRMZjJCXzhaSmhmZ2o1c1ZfYTBvTVhFLUYyYUpvdnFVdGV0QndXSWFvejRvOHhxR2M3ZWJiOUtpRzQxeGJoc2JhRW80?oc=5) |
 | Narendra Modi hails India’s energy ties with Russia despite US anger - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1GV3ZuNkVBRnJNdkttZkJIbkJMQ2JmSFFEd0VFT29wVWxfOWk3cXYwMExBX1dsTTZjUXNpLUZlaHgyVzRjR0RCa1FodElxMGwtOGRHX2I2UHl4LXBGdDk5Yk95dXd2VkJiTDBXcnJKdHQ?oc=5) |
+| Has Trump kept his campaign promises to American workers? Here's what some say. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNdjU3WEZoaUdFeDJJeGZXeTl5bDV3MnRwWHB2NFBSdzd6VWZHa0tYRnVralNJcUNxS29vNXh4ZkVKX0ZPZXRMZjJCXzhaSmhmZ2o1c1ZfYTBvTVhFLUYyYUpvdnFVdGV0QndXSWFvejRvOHhxR2M3ZWJiOUtpRzQxeGJoc2JhRW80?oc=5) |
 | Plane carrying EU’s top leader targeted by alleged Russian GPS jamming - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5Ta2pTZ0FqaUxLdnhmZm9qdzE4R3ZoMHVkNzlzcjd3WEJ1SWlQVVhxdDlQd0RBczhkN180NHVCNDcybFF1Y3ZNeXZENGpmZFBJNmtkMWYyMjFXNVY5ZlFrQ0NEZk9JYmtWNWxDZm54clYydUY3dG93?oc=5) |
 | Former NYC Mayor Rudy Giuliani seriously injured in crash on I-93 in NH - WCVB | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQVHRrb2x0WHUwNUxNZ0RLeG9MYjdkUXBxcDBESWdNYUhaYXo1Z3dtcFJzNzdwX0xuNWRnd3RwR3QwcUF4S0NwODdFdHZibW1scnhVcFdzZFJDSFVaeXBSZkpTN2h5Z0FQU0xWZV9nX2JycEl0ZFBFZ2JSaHc0M1IxNURMZ2tvYXhhYzFCYkxDVGxkXzRZRjVMM3F1NUYzOHRCNDFWSV9NNzNBMklDYUh4YUpzZEtzdVFJYTRGOE5MRmM3Vnc2V2pNVE5aVi1ORHhyY0E?oc=5) |
 | Judge blocks Trump administration move to deport Guatemalan children - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1BVWxLaEZuc0NkNHhBdE9LbFJSU1lxNTNBT0hjYjVpNXE0cWVLQlRoQWN1a0dXWndob3ZSR2JGMVNIUUZZLVNoZVFyc0ZFbUY3b3F3Q3UtX0s1QdIBX0FVX3lxTE1SLWVtT0kzWU9kQ3lOWE9wMnBJLW9iZXc0X01YS3JId0E4OS1zanlQYjA3UXg4aDJpRE42cEdVMVpRMDJwNHNTdVh1NXZoQzdhVWJRS3VFSXhHa2FOX2VF?oc=5) |
