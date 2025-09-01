@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 16:56:55（北京时间）**
+🕒 更新时间：**2025年09月01日 17:01:17（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | 1.2M immigrants are gone from the US labor force under Trump, preliminary data shows - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOdW5WOGVKaWhoZFFnQ2Nrd2JycTV1bkxkNUNIWEZRX3ZLWUFsanMtZWJzRlBxcnVndHhwODR2Tng5Z2JvLVZtSk95VEVDUWZNWjRrQVdlRERkaEx4R0Z3aDJPX3Vhcy10azdhTlltbFZCeVZJRHhrSXhveTFWSndoSDFXVVRGamwzcHRwRWtDMnA?oc=5) |
 | Trump aides scramble to defend tariffs after bombshell court ruling – and as crucial jobs report looms - The Independent | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPeTRBNTBVRVdVRTdjVUg4d25iLTh5REJiMVNpY05zWEZTa0dRSjFSaHM2dGJPS3ZYLTdOQUJjVV9tN0wzVHpLZ1pNV2JJb2wtbWdvem5VWmh0dFVReXJUVmxOVFNoUm1OZDMybUVTWlVSTU5jR0xKRUI2R1BUZ3lDd3NlOFRJM2dMZnpxSEtSYWlvdlRldlpEV3I4UWhqT2lDcUVBajctWlVzbFk?oc=5) |
 | DHS Secretary Kristi Noem acknowledges ICE surge in Chicago; says National Guard deployment up to Trump - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE0xNUN6SkNmcEZMYmRPa3VkazIwV3JZQ1NWR1NNRWxVTUh1NlNmcUpTeHVqWDQyX1kzVk5MaFNYOWoxems4VmQxcEEtVG5zenRGcVYydUFKdWVvUXp6dG5wVE9WYXE3T0RFTGNPX3lseFZHaE5BeFFmTW9zcDJ1UWs?oc=5) |
-| Burning Man death prompts homicide investigation - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPdEQtZEFLcVBXRDR3N0tIeXM1aUtpMmlERS10RXZTb1I3VGQ0UmE1azJNUk0xZDhxZzZMelM1RXR3czl2YUxYU2V3dEpnVE5YM3Z2a0E3OHNoNXZGWVlfM0U2TkxBcFZUZlNtbW9reHcyc2tHTVVLRjhZektLLWY2NFZSVzhmRklFa1A00gGQAUFVX3lxTE94RVJXcVFrQ1ptWm42R0Uxb0x0VjVrSWhCWVE2SzQzOFBaTVV6cWlDdV91VjBaQ0MxUnFtQ2l1Z1o0UWEwb3hMVW96dUtDWkZiVWljQUZKQS1YTm5rcFB0VnotMlVyRnIwREZPaS02MkxsS0VQa2tKU0UyMlRWM0ktSzc2a2FKRFlwY2ZzYVVFbA?oc=5) |
 | Trump news at a glance: US president issues threat to mandate voter ID - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPcUZtY1NiM2xnYXlOMW9GOUEzOU4tcmY0Wi1udWxlZmlScWJvY3drMU1rdEdCb0wweFdHTXJXZlNIRU1VOHJCRXI3RjZoRTlTUVB4RkFzeHBfZDF2cy00ZDRHemQ2ZHZUN0U4TjUyOVJUa1ZUODNkdDZnVE9jS0c0VjJkMDkxOHpVRS1GWUt6cDd6RmFGLXJGdWJmUXNydw?oc=5) |
+| Burning Man death prompts homicide investigation - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPdEQtZEFLcVBXRDR3N0tIeXM1aUtpMmlERS10RXZTb1I3VGQ0UmE1azJNUk0xZDhxZzZMelM1RXR3czl2YUxYU2V3dEpnVE5YM3Z2a0E3OHNoNXZGWVlfM0U2TkxBcFZUZlNtbW9reHcyc2tHTVVLRjhZektLLWY2NFZSVzhmRklFa1A00gGQAUFVX3lxTE94RVJXcVFrQ1ptWm42R0Uxb0x0VjVrSWhCWVE2SzQzOFBaTVV6cWlDdV91VjBaQ0MxUnFtQ2l1Z1o0UWEwb3hMVW96dUtDWkZiVWljQUZKQS1YTm5rcFB0VnotMlVyRnIwREZPaS02MkxsS0VQa2tKU0UyMlRWM0ktSzc2a2FKRFlwY2ZzYVVFbA?oc=5) |
 | 11-year-old dies after being shot while ‘ding dong ditching’ in Houston, police say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5pcGZLdnJkdElqY2d0QndzNVFVeTROVUxvVzB2U0R5SUxOZFdKOTM4eFBYLXJZSDdYRkxVc3dmOGVOTm1zckNIY1YyMXNNSGI3MzZfc0FQblpacFVBbXIzeHl6TXB5bFVreGtxU2pzN2VKYUpfYjd3WXFn?oc=5) |
 
 ---
