@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 15:33:47（北京时间）**
+🕒 更新时间：**2025年09月01日 15:41:31（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| India's Modi Shores Up Ties With China, Russia in Defiance of Trump - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQR0JuRVVoWEJra3RCeDF3ZE1EQkFBV01IcHdmTUxNYVgxWkpkNVZoQzdzS0Yzc2hONlZCRGNCdVZScFVoSDlDX0d4NHhYQmphYmpVVjhuUmdVckVhdlFDMnVJR1JHRDVjVjd3MkM0TUliclY4TzdwX1A4OTdCVEtGZmEydUFvakh3bEp3bndaWHItbHh1OERiaTJScmk3SEM2aktFeVZMaDVwckRBQXc?oc=5) |
-| Judge blocks Trump administration move to deport Guatemalan children - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1BVWxLaEZuc0NkNHhBdE9LbFJSU1lxNTNBT0hjYjVpNXE0cWVLQlRoQWN1a0dXWndob3ZSR2JGMVNIUUZZLVNoZVFyc0ZFbUY3b3F3Q3UtX0s1QdIBX0FVX3lxTE1SLWVtT0kzWU9kQ3lOWE9wMnBJLW9iZXc0X01YS3JId0E4OS1zanlQYjA3UXg4aDJpRE42cEdVMVpRMDJwNHNTdVh1NXZoQzdhVWJRS3VFSXhHa2FOX2VF?oc=5) |
+| Narendra Modi and Xi Jinping meet: Donald Trump as the wildcard and other takeaways for India-China relationship - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1xY2E1UEdDWWlwQ2NGN3pYUFFWWXhtTDVBZ3R0V00wY2ZQWnNFVVQwTXdYOGdZRXFKcUlPNGU0SG9SYU1WdmxmWS1CR2w1U1VERFpSd081dTJHZ9IBX0FVX3lxTE9HSkhqaGd5alNPMjNxdldfSURpTGNBaXVtY2V1M3lKUEc0RTFHUTRKX0JoZFIzZU1BbXN1QWZCcGxxWTNRN3VRclY2NHdOSVJ4T1N2NWZTZTNZWERBNllN?oc=5) |
+| Judge halts deportation of hundreds of Guatemalan children - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQTjhWc3lTc0cwU09qZDl0WWxENWFtbXlwdUwxVEZWeWk3dW5CemVJTjhfQXRjNllNeFBGb1lrTlhIM3VCbU9rbkNaNXVTeEZwYXlyTTJYWFlESUY2WVE1SndXVGpiZTdQeEpHVldKdHQyLVBmUGFhVGs5cTkybkh2Wjd6czdBYlBSZHc0RjUtbkk?oc=5) |
 | Hundreds Dead After 6.0-Magnitude Earthquake Hits Afghanistan - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQb01ubjRvMnJ5VldzUHdVeF9OM2hZaDdLQnVDV18wVjlJVnVfZWp5U3o1cWVMc3h5cWNBcjkzUGpCMHo2dDZxOG1XaktXN2VGck5IYXBXcmh5WnRfcFZ2UDMxb3hfTTRKWUwxUXNSTTVVRkhyWkhTZkxqWktZRVJLaEVRSTdHYm5GZ1pJ?oc=5) |
 | Rudy Giuliani hospitalized with multiple injuries after car crash - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQWExPdWc2aFNrekhrcGVINHRSQ2RWcC1nUlppV3l1eFBsMVdBR2EwQ0lISnNlTVJRNjh2YUlPNmthTHhWSE4wUEFFeWs1Z2ltRW9GOWdZeVFjYlRuZG5yNEJGRXFKSWVCWktlV1pxTkJrbU4xWE90WlRxaVFGSkNxRDVFM0Q?oc=5) |
 | Mueller's family tells NYT he has Parkinson's disease - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUkN6ZXFwWWdpckZvaEJLdGJkeGxPdno5VllTRFBWekVDSVE5eXlqZ0hzM1BYemNFNU5NUkRWSG5kdWpwOGVWUFNPc1hrQm1kdjBGMXdNdUxxelJJMnNDQTRyRlFCVUI3NHkzamN2NEJIcFY2OW10VWF3aUVOYVVNaldZak1hN0tPdlRxWU50SEg?oc=5) |
@@ -32,7 +32,7 @@
 | Burning Man death prompts homicide investigation - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPdEQtZEFLcVBXRDR3N0tIeXM1aUtpMmlERS10RXZTb1I3VGQ0UmE1azJNUk0xZDhxZzZMelM1RXR3czl2YUxYU2V3dEpnVE5YM3Z2a0E3OHNoNXZGWVlfM0U2TkxBcFZUZlNtbW9reHcyc2tHTVVLRjhZektLLWY2NFZSVzhmRklFa1A00gGQAUFVX3lxTE94RVJXcVFrQ1ptWm42R0Uxb0x0VjVrSWhCWVE2SzQzOFBaTVV6cWlDdV91VjBaQ0MxUnFtQ2l1Z1o0UWEwb3hMVW96dUtDWkZiVWljQUZKQS1YTm5rcFB0VnotMlVyRnIwREZPaS02MkxsS0VQa2tKU0UyMlRWM0ktSzc2a2FKRFlwY2ZzYVVFbA?oc=5) |
 | Trump news at a glance: US president issues threat to mandate voter ID - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPcUZtY1NiM2xnYXlOMW9GOUEzOU4tcmY0Wi1udWxlZmlScWJvY3drMU1rdEdCb0wweFdHTXJXZlNIRU1VOHJCRXI3RjZoRTlTUVB4RkFzeHBfZDF2cy00ZDRHemQ2ZHZUN0U4TjUyOVJUa1ZUODNkdDZnVE9jS0c0VjJkMDkxOHpVRS1GWUt6cDd6RmFGLXJGdWJmUXNydw?oc=5) |
 | 11-year-old shot dead after ringing doorbell and running from Houston home, officials say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQV1NRaE5jLU9nX01UNzVtYTVjSWg3cFdobXVkVEtNZl8zNmZVTTFOeUJNNUtJVkNfZzlEVXRWQWhaa2RJTlhwZy05Qi1BZUZBY0FYMDNvT2x6NkRHSS1aeWd5cWZCMFFHa1E4dW5KTHRsdndjZGZYb2JFWkN3akl1T3pvekw4RnpzNlU0SkNYcl9ZbExLWTQ1eHJxcTJDQ3RrX0lHMkF1NWZqaGPSAVZBVV95cUxOejlUQkRGb0QwTkxJSzI4ZEtoQjhKRVFMZUtIZi1WNjBkaG00eFJneEphVUtaOWtuQWx2ZFdWbzY0TnVrM21RenlqYUFYZGFRQ2x0YjNHUQ?oc=5) |
-| DHS Secretary Noem confirms more ICE resources are heading to Chicago for immigration crackdown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOa21pZ0V6YTUzMXRKRlE0UmJVS3kxeWlveGZDd29hdFFzZkF3ZjgzWll2S1N0dFFpc1h2RlVPUmxGNUtLemVOeTRrNnBmaV9sRTgwbmxkS2FPYmY0N3RSSzkwZU9aUWQ3VmRFV3lLcDJHYXprcERGc0RlOXo0ZjNOMWVPYk0zWUtiSjdybGltUVNDTDRzWUZwMjhvSDhad1kzQ09j?oc=5) |
+| Chicago's mayor pushes back as Trump administration readies immigration crackdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQTGQxZTl2UzEyOUNwQVROcXNPWmF5Ml8yMDRma3Z6akVQWlNFdWdpWWhZV2RDQ0k5ZURNUUdBZ0tUaTZGdXBEcWxfdjBJTWlybHVLaGhZaXVxRmk2NkpucndpekF2aEZKSTB3anU2Tm9jQ0ZEbW9SYkdOSHdjYmVBZTE0TTM5MEJJMUw5Vzc1TkRoVUpkLWM5LXBJVmpzRWNIS3MyTWp2bC1tNkY1RW5IQ2wzLVpvLTlhel91NTB6d0h3b3M?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
