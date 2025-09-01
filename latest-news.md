@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 03:24:13（北京时间）**
+🕒 更新时间：**2025年09月02日 03:32:04（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | More than 800 dead after earthquake hits eastern Afghanistan, Taliban say - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNdml0NTAyWWJMMEpwaW5sMk40MGM0ZDN4RTU0MnM0U0lPc0JhLW1TcnRuZXJyRG91ekdyWGZycUlsNWgzdHJuWG55RUNNVEFBYkhZXy10MzJSVjVDREd3LWlubmRVbFhkbUVwUmRWazFOVWVkN3B6b1JVSkVNWWlPc1ZNeVltQU42T3c?oc=5) |
 | Trump orders more agencies to nix collective bargaining agreements - Maryland Matters | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNcXJ4ckhQOEJZdGlwMEhnNVVQWndic0dDc05yUlRLaGVoRERVRnZwaG5BNXRUanEtbjhLcXIzMzVGQUx6VGJ2ZFlBTUhFZjNoeDJwX0k3aW9sd1Q4TmMwbXFnYzVNOHVteVUtUGV5MElmcUtqd3RiVTVObUoyOHk1ZG9pTm5oT0FnTG5IVUdpVUFvTTNjV1gzM3hIOFVUT01SUW5OWlRWcXdnZw?oc=5) |
-| Trump tells drugmakers to 'justify the success' of Covid meds after FDA limits vaccine approval - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1BOWxHYXc5am43QVo2VmxydWN1Q3lfYUlWMWdxQnRsSVRCMEVBdDB3OVdBM0VmWHpKdEw3N3JDd1BTWVpvbWM0b3Exam5FQmxxWFUzaUFRM016dUt3WmR6Z3VRdU51WkFtZ2Y5Y1NmUnlfaTDSAXhBVV95cUxNTmg1RjNpZEc4eVpIUmNPeC1oaHZLUUdMZXJ0SE9Ndmw2U3BQYmFkLTdrSjZocEp2UW9rQWxwTjdJUGNkM2Q1V1NpdldWcEF3RUpKcElHQnJVTHpuWGk4OWJmVWh4UmpLMHVmTFVCOHFiTHRnSnpNOVU?oc=5) |
 | "This is unacceptable": Former CDC directors condemn RFK's upheaval - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1VMkNqVUN2dG1uWHkyWmxCNGVCNWhBQzhlZmtfWXJrbWdaTTdYRjU0ZVFKWlhpM2JoOXJ2cmFtdDN1ZDJkYlpZUEh4QTYxWnhtczlQSXRQZHlOX08tMUtpRVAwUUE3Z01SZlJldkpNSDFoTUs4?oc=5) |
+| Trump tells drugmakers to 'justify the success' of Covid meds after FDA limits vaccine approval - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1BOWxHYXc5am43QVo2VmxydWN1Q3lfYUlWMWdxQnRsSVRCMEVBdDB3OVdBM0VmWHpKdEw3N3JDd1BTWVpvbWM0b3Exam5FQmxxWFUzaUFRM016dUt3WmR6Z3VRdU51WkFtZ2Y5Y1NmUnlfaTDSAXhBVV95cUxNTmg1RjNpZEc4eVpIUmNPeC1oaHZLUUdMZXJ0SE9Ndmw2U3BQYmFkLTdrSjZocEp2UW9rQWxwTjdJUGNkM2Q1V1NpdldWcEF3RUpKcElHQnJVTHpuWGk4OWJmVWh4UmpLMHVmTFVCOHFiTHRnSnpNOVU?oc=5) |
 | What to Know About Rudy Giuliani’s Car Crash - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOaGRhUmd2WHNpaVNLQkFiT1FRQ3pTaFJEZnZ3UjNJaElfV1p4anVvQXV2TE9ZZVZEam1TZWUwTDNEcmZwTGJXX2h2dGY5aEx5QmFDTEx0V3p2bUxTQ1BxakpIZXY1NDBJRFFQb1p4bzhHX3J4QVRmeXJoWGNsSEFvcDRqSkE3aTg5?oc=5) |
 | President Trump Is Delivering for American Workers - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPU21POE5TSUQ5aExjanlHeGJyMUYyblBkRjBMNmx1dDFCN2RRZk9jVGZsM21KRUQwbE9tcTlhMW1WQjF2Q3lCRXlyV21mRkNXQ05NX2pMVHVqUkFlVG1BNXlES1NWNXY3X095b09pNWxPSlBTQ2xQRmh3RUE2SkFfakxyYV9jLXMzZ2ZCUXR6bm5MUDNiQmhSd2w1QQ?oc=5) |
 | 1.2 million immigrants are gone from the US labor force under Trump, preliminary data shows - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOdW5WOGVKaWhoZFFnQ2Nrd2JycTV1bkxkNUNIWEZRX3ZLWUFsanMtZWJzRlBxcnVndHhwODR2Tng5Z2JvLVZtSk95VEVDUWZNWjRrQVdlRERkaEx4R0Z3aDJPX3Vhcy10azdhTlltbFZCeVZJRHhrSXhveTFWSndoSDFXVVRGamwzcHRwRWtDMnA?oc=5) |
