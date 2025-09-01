@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 05:32:46（北京时间）**
+🕒 更新时间：**2025年09月02日 05:40:09（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Former CDC directors say RFK Jr. is endangering Americans' health - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNbHBwdGF5dExucmVLVjBubldhcnQ4NXJIMWhaWUJUMFpxSmFxellMNkg4dG9LTHZxWTIwTmlMVEhnekR0bzRNUlJFYlBRYVl3S2hLenBkdkpiWi14YUQ5VlBVVUhmMF9hZkFWdVdVWnY0N0ZvWE9vd1c4N0R4dTlnVmpMQzRaUllDbHBVSThGanRmbEtKZHpQdWFfWldNM0lpOHNHU0N3V2zSAa4BQVVfeXFMUExKYnRjUENMN1RfOUc0R2plc1J2T2RuVjFWR3A0V2I1Y3BNU0FGX1cxQkxnNU13ODU4QjZmUGR4ZExfdFZqWjlYRnRxX085UGMxMFZKTnIyVjBYT2ZCc3QwT2p2dWZ0VUxmeDVXYjNKZkc1cTlWeTl1aUVXUVEzNTJoYkxNRUh4eXZSeVRWNkk5a3NNbXpwd0hqb2RrT1lVUmdmQTJ1SmFwUWdCcURR?oc=5) |
 | Judge blocks Trump administration move to deport Guatemalan children - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1BVWxLaEZuc0NkNHhBdE9LbFJSU1lxNTNBT0hjYjVpNXE0cWVLQlRoQWN1a0dXWndob3ZSR2JGMVNIUUZZLVNoZVFyc0ZFbUY3b3F3Q3UtX0s1QdIBX0FVX3lxTE1SLWVtT0kzWU9kQ3lOWE9wMnBJLW9iZXc0X01YS3JId0E4OS1zanlQYjA3UXg4aDJpRE42cEdVMVpRMDJwNHNTdVh1NXZoQzdhVWJRS3VFSXhHa2FOX2VF?oc=5) |
 | Unions, community groups join forces for Labor Day protests against Trump and billionaires - USA Today | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOemE2VC05amJYYkNCZ01SREFEdlg2Q05Ia1NCZ2tBRDlyODMzUEJxaEZ6Ynkzdk9IYkpoSVdibE5YcGVWZno2V1ZUN1RZVXdjV0c5ZjUwaEtkaWdOQUlGMndlNS15WktGMkdvMVphWXMzMUpoNTk1SXA0RERZTENDWE13alRfUXlSNDlVOVlHeXhjRUJfMEg5WjlNeFE3RXMt?oc=5) |
-| Federal data reveals 1.2 million drop in immigrant workers under Trump - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOQjFIWUp3VWMxV0dTRGtPX2dhZ1BweTVwNk1HaGh1akZfak4xMHJYeTR0UzZMV2UzeUl3VHdLVDl0QlZGakhvUFVGdXpHYnVqQ2dacl9IalotbXg5TVlITUM0Z19GZFA1ZXlCc2lHQTQwaDQ4STFhb0tBM0piYmVjUnZJd1RXVzQ?oc=5) |
-| Rudy Giuliani hospitalized with multiple injuries after car crash - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQWExPdWc2aFNrekhrcGVINHRSQ2RWcC1nUlppV3l1eFBsMVdBR2EwQ0lISnNlTVJRNjh2YUlPNmthTHhWSE4wUEFFeWs1Z2ltRW9GOWdZeVFjYlRuZG5yNEJGRXFKSWVCWktlV1pxTkJrbU4xWE90WlRxaVFGSkNxRDVFM0Q?oc=5) |
+| Rudy Giuliani Released From Hospital After Car Crash - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNb3RsbFNzQmx4SS1FT2doT09UOEkyc3ZtWDdLdnFaVlNRRnIzNVd6Qy1acDZSLWtEZHlXOEtsT0I1WTVxTEdlTTF5MzItRkJYeDhmejk1YjJfWnAtdnUtYVZud1AtNDBHdWd2cWQyX3h6RU9rd2V6cldUd0tVUEt6TDZINGItQjV6?oc=5) |
+| 1.2 million immigrants are gone from the US labor force under Trump, preliminary data shows - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOdW5WOGVKaWhoZFFnQ2Nrd2JycTV1bkxkNUNIWEZRX3ZLWUFsanMtZWJzRlBxcnVndHhwODR2Tng5Z2JvLVZtSk95VEVDUWZNWjRrQVdlRERkaEx4R0Z3aDJPX3Vhcy10azdhTlltbFZCeVZJRHhrSXhveTFWSndoSDFXVVRGamwzcHRwRWtDMnA?oc=5) |
 | Great Lakes ghost ships emerge, courtesy of the quagga mussel - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5TRTFpdmlHWDlFN0lieGRfSDI5MVlJdlVPU3BjaDhEVXZaU0s1QTYwVlNSMUFPNDZFZGhxRFd1OWZxWEoxSkd4dkdwQUhoa2hSVUs1cFJJLTd2QjFkMExNT1dzMkRnQnRIRHltSUpfN1E?oc=5) |
 | Interviewed student to undergo surgery after Annunciation Church mass shooting - kare11.com | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxQVURXdm5vNDVlRTlGUWZWblR3Rm1zWkhncEQ2dlFoZXFiWDM0WDkzblhoempRM3Vkdk5PSTJsRENJOUhJSjJRaVlYbTRYVFdxOVdkMTRoNTRjdW05LTdNajVJb0hyazB3Vmpvei02WVBpUU8zd2N3NDV3RnVQV2llRDBtNGhwYUFHaTBqUDh5N1NxRTBQYm5NbTNYcUV5NVBPWHJ1aHRUXzM0WHNmb1FaRnlvcXNGNFdaOEVsdS1ScXcweXJMcnI1UXd3Qmc1cWt2R1BFVDY2RkRkaUh2dnZnaHNXTXp4S1RYRzl6anZ6OUc5UQ?oc=5) |
 
