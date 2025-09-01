@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 01:56:47（北京时间）**
+🕒 更新时间：**2025年09月02日 02:01:26（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trump tells drugmakers to 'justify the success' of Covid meds after FDA limits vaccine approval - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1BOWxHYXc5am43QVo2VmxydWN1Q3lfYUlWMWdxQnRsSVRCMEVBdDB3OVdBM0VmWHpKdEw3N3JDd1BTWVpvbWM0b3Exam5FQmxxWFUzaUFRM016dUt3WmR6Z3VRdU51WkFtZ2Y5Y1NmUnlfaTDSAXhBVV95cUxNTmg1RjNpZEc4eVpIUmNPeC1oaHZLUUdMZXJ0SE9Ndmw2U3BQYmFkLTdrSjZocEp2UW9rQWxwTjdJUGNkM2Q1V1NpdldWcEF3RUpKcElHQnJVTHpuWGk4OWJmVWh4UmpLMHVmTFVCOHFiTHRnSnpNOVU?oc=5) |
 | China’s Xi slams ‘bullying practices’ in thinly veiled snipe at Trump - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNVXQ3ZHdZeGFFQWRKVTQ0SFdseVZaSkJUWk44SHloZnNJZzB6QnFSOVBlRjhmakItdW5HV1M0UnBOSFBvdUNKS2FxVjlZVjhqZ0FJT2xrQVlrVEdJblRoSFpER1h6b1laU0REN29kcmlMaUUzZTNPNmVBSnZVQ2FXVi0xd2tPRWFvMUVMT2lvTlVDWkp1dzE5UXZKbHVvanR5MHRQWnlJcmRSUQ?oc=5) |
 | Family in disbelief after father's death in Alabama ATV accident: 'Still waiting for him to come through the door' - 11Alive.com | [阅读全文](https://news.google.com/rss/articles/CBMi7wFBVV95cUxNY1d4M01JdTZJQV9yZnFiVm10M3dzOHpmOUNTOVh0QjFqcU0xUjRaUm1pRkthd2RYOVNkeVYza1dDanByRG1sZFVQQ3RjWGlHdmdZdXNpeUdpQWZham1TRnU4ZHpzWnhuN190SjZCSFFfQVlpTmVEejFYX2RvczB6bHBKWWFlVmlDMGtXWjhsVzIzUEJuZUVCOVpPMzR6REZZcFJiQ3dHYUJnQ1lfcEV5WTJpMDFBTDBJOXBRRFh6MjF3Y0EwLU13TlFiQjFRZHUwcWp6b0xSUWxhSEkxTC1ZQ0ZMTS1ZWklvTlBKUmFrNA?oc=5) |
-| Government shutdown looms as Congress returns after monthlong August recess - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQYWhlNENqeVJwUUdoUFNkZEpzSjZSdzZManFVSHBiTnFBYkhvT25LU1o1aV82S0dzTE90cl9NSW9YZEZETjhNdElDZTZ6Q3hKTjlZUVVQZUxCdDREbXhQSFpCdHR5SHV3MDB0cUdWbjNLc3UtQ2VUbDg3NllET0c0cVFJVmxFX09CbkhwUV9uazlQeFZneFdNcGluYml3QQ?oc=5) |
 | Great Lakes ghost ships emerge, courtesy of the quagga mussel - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5TRTFpdmlHWDlFN0lieGRfSDI5MVlJdlVPU3BjaDhEVXZaU0s1QTYwVlNSMUFPNDZFZGhxRFd1OWZxWEoxSkd4dkdwQUhoa2hSVUs1cFJJLTd2QjFkMExNT1dzMkRnQnRIRHltSUpfN1E?oc=5) |
-| Solar storm could bring the Northern Lights to Western New York for Labor Day - WGRZ | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxQMk05dUNjNVNTazNENXpJNDROMERRR1A3WERmdWxQMDhFNWt4S19lMjNDUmpqenpwbGR3YnM4ZGE2aEMyR2MteENkZWpQUlhYcFpHNjYwbEtyQWpJbTRUS2dfdDBSdkI3LUl6UGgtZkIzbDhyN1htVFJsR2VqRVZLc0xsMk10NDZ6QUdvY2dteTlBVU5XV214TERXTURTZmwyai1GeDdWSk1lVnRtNEJxNDNEZU5uLTY2c2xIWldFYy0wRzhwVVFnU3VwU182Zw?oc=5) |
+| Government shutdown looms as Congress returns after monthlong August recess - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQYWhlNENqeVJwUUdoUFNkZEpzSjZSdzZManFVSHBiTnFBYkhvT25LU1o1aV82S0dzTE90cl9NSW9YZEZETjhNdElDZTZ6Q3hKTjlZUVVQZUxCdDREbXhQSFpCdHR5SHV3MDB0cUdWbjNLc3UtQ2VUbDg3NllET0c0cVFJVmxFX09CbkhwUV9uazlQeFZneFdNcGluYml3QQ?oc=5) |
+| Boy, 11, shot dead after playing doorbell-ringing prank in Houston, police say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNNnVZQjVsc2FOZlF0cWdMeFBHX1NKemZSNWJoV1NQZjE4RjJveFR1THVXTmIzTGNrUlVvR3ExMmdfS3hfVW5Pa3FYcEtrUFNpR2QzbEFfRUktTTBBbkRpN1luVUU4STJmTDg3VmZTMHZfLXNmSThJM09jRnIwYU9PejJhTEVfUzJnOWo3aXJrcUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
