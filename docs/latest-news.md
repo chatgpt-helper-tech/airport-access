@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 08:33:25（北京时间）**
+🕒 更新时间：**2025年09月01日 08:41:48（北京时间）**
 
 ---
 
@@ -27,8 +27,8 @@
 | Judge halts deportation of hundreds of Guatemalan children - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQTjhWc3lTc0cwU09qZDl0WWxENWFtbXlwdUwxVEZWeWk3dW5CemVJTjhfQXRjNllNeFBGb1lrTlhIM3VCbU9rbkNaNXVTeEZwYXlyTTJYWFlESUY2WVE1SndXVGpiZTdQeEpHVldKdHQyLVBmUGFhVGs5cTkybkh2Wjd6czdBYlBSZHc0RjUtbkk?oc=5) |
 | Trump Tariff Case Ups Ante at Supreme Court - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPcGFzSmFyVFByTmV6ZWhiem5Oc2U0TW1lNUtUel82a0NSaUdZODlzUXNqUG1TZF9OQnQ0d094MHllRjFCaXZib2tDVUJHdUJzMWFNS0RYYlRRNEw4VS1UcTg2cUxvc1JWUUx1MzJSUTlGaGZjbU0yenpVTVF0U0ViRXlxQ1R2RGFYSGtxRzVMdndpZw?oc=5) |
 | India and China are partners, not rivals, Modi and Xi say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPS2Z5NldDeTJRb1ZPSVhhdXJvLWJaUnRCbzdCeE55RjNlVkJKUjhnQV9VV0RJMi02eTN3MmM3aW9FbFBybThXVk4wLXVsNjVtY1F6RTRjdFk2LWkxM09XRVRZUm83WkNQQWI1ZmhLVDJETGlmN3hMWjgxZnhFb0wtaHIzZGZVVmFjdWN4MmhkY3FMdUVGa0VENms3MA?oc=5) |
-| Trump Calls for Voter Identification for All U.S. Elections - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNb3gzSE8xWDFxbzZ3WDNlckVURVlZbzZ6OVUyNDJZMHNuWVBLZkdXenJrekxNdEh3UVpCSDV2ek1fNFA0dHJveVpCTER3RWlGWVUwWTY1dHdEcHpwblpoTk8yN3lwdzBuWkMtdHI5VFBjV2UtdF9INVpGSUJSMFFKaTFGRzdUVkVZUU00SV91cVo5b0FFYnJma0hRMlRzZ2UyZDd5Nm13?oc=5) |
 | JB Pritzker calls for ‘all to stand up’ to Trump’s immigration crackdown in Chicago - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQRDZCWTM1UVlZdmRnQ0RRLTNLSmFLSWw5Q2lEUWhnRW0xMjFVZGwzLW5sbWVxVmlsbFRUT2ltcjBrN2VmR2tZVVJ3dXNwQUNQTzE2ZXYzVmpacFozOWhzbXJKODNjZTFRcWNINUFIaGZ1Q0ZpRWdkcDZuam1RYjkwNW9BMzMtZGRqUUE?oc=5) |
+| Trump Calls for Voter Identification for All U.S. Elections - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNb3gzSE8xWDFxbzZ3WDNlckVURVlZbzZ6OVUyNDJZMHNuWVBLZkdXenJrekxNdEh3UVpCSDV2ek1fNFA0dHJveVpCTER3RWlGWVUwWTY1dHdEcHpwblpoTk8yN3lwdzBuWkMtdHI5VFBjV2UtdF9INVpGSUJSMFFKaTFGRzdUVkVZUU00SV91cVo5b0FFYnJma0hRMlRzZ2UyZDd5Nm13?oc=5) |
 | Homeland Security Secretary Kristi Noem says "we haven't taken anything off the table" on expanding immigration operations to other cities - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQb1ZuSWtMRXFyMWh2Z1Rjb3J1dThxdnlUdU04dG9jS1RxR3o5YVV6M2NBMXhyVTQzWXZITmYyQkpuUzBzUFhnQzdhbVNMMHpXdkRNMGE2dzFaVWEyb0JzRnJEMHVHa3VrWnRWVDZWRHNnQXk0MmdvZlhKSU9iNEtwUHVNOXVUUHQySXJoVVB5U3VSYmxEcVh4Vy1OakjSAaIBQVVfeXFMT2tKWDU2V3AxOEVrY0tCVFpPcTdsVmdpbThIVmd5R0FtVGdoS05vM3BRVHNqekRfLUs3ZzNRWDlzbHBCZnFNWUw2TUlYOTdjNWFoYktlc3VoYWE2QTFiV3BJTmltX0pYT2R1Qi01SzMwTExkaWljQUNWbndVeUNPR3BXSU9RRVlLZTZISmkzUHczUjZqNWxyNjE1M09vd1FaU3dB?oc=5) |
 | Pope demands end to the 'pandemic of arms' as he prays for victims of Minnesota school shooting - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPdERzaUVPVGl1VHpmT0ZOSFpRdS0xMXhpN0R1ZEYzb0Zva0ZuYVlTSUZXT1FPeU9vNHA2Y1RiazVUVE5UTG8wZ0k0dXEzNENCVTNCYm96eXZCQk84SXdzd1lEcVhmZ2VGOFA1TEtwZUhFamFFQUJ2MkJlbi01WDZVRHNURXdPSjRUTHdEQzk0TQ?oc=5) |
 | Montana man who evaded authorities for a week after bar shooting faces 4 counts of murder - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPNmZKeERIY1ZjTGZBWXc1NkNGU0toQ1Y5SW94c2dLSVhLS0owc19DTmRmZ1U5X1pkMUdING11QVRQNG1wc2JveDZ5anBhVkJjaGwyU1pWOEt2SWVPd0lGX1dwSTN6ZnoyY1U3Qy00NjJUNDNQczFXcTZVdzVVMDBSYlpTRQ?oc=5) |
