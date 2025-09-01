@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 00:09:18（北京时间）**
+🕒 更新时间：**2025年09月02日 00:17:30（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | What Are Trump’s Options If His Tariffs Are Ruled Unlawful? - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNalRuNUxmZXZnZkpISmtOdGRlcGFUQ0ZQSG84S0dVVWdDZXozeDYzdi0wLTJsaFpqZUo5cHhneFlTbkRRT2xxdkxRcV9VdHFOX19aaXgyWG1mYWhFTUpPLUp6UVE2TnZsV2hiUUs2MDhrZFZBQ1d5LUxzNFphUVVDZ3JfQUlfdS1qUVBwcFQ0a1lfajVIX1J0ZVczMXJjYnRPZ1FCb0dIXzlUMWlBeEVHb2VR?oc=5) |
 | How Trump is decimating federal employee unions one step at a time - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNZUdZSml1SFpIdHJnbmUwalJqZFJaYmRaaFYtMUlibWo5dDM1QkNXVFJIMTlWdzNud29Bd2dCY0x2QVdoU2ZDczVvd3M1dUdybG1ZemNBMm5TbXdodHB4SklRYXJzSnFOVkNrbEFPZFBJcUhOX3ZVTWtGXzY1MWxFU2RyX1hYamFYZUE?oc=5) |
 | Narendra Modi hails India’s energy ties with Russia despite US anger - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1GV3ZuNkVBRnJNdkttZkJIbkJMQ2JmSFFEd0VFT29wVWxfOWk3cXYwMExBX1dsTTZjUXNpLUZlaHgyVzRjR0RCa1FodElxMGwtOGRHX2I2UHl4LXBGdDk5Yk95dXd2VkJiTDBXcnJKdHQ?oc=5) |
-| Trump calls for more Covid vaccine data to stop CDC ‘being ripped apart’ - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9WVi1Fc0x6RzdhclMyX3cwQV9vdWFoblQwNWt4alN1bHRJMk9SeWNhbVhSbEhtODlFMDc1M21xQkZTZ1VwWDVSMmpCQXpJNVdCZVBTa2tiQ1FKOFBfdEhBWXdSUlgzN0JnRFg4SHR6UlI?oc=5) |
+| Trump tells drugmakers to 'justify the success' of Covid meds after FDA limits vaccine approval - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1BOWxHYXc5am43QVo2VmxydWN1Q3lfYUlWMWdxQnRsSVRCMEVBdDB3OVdBM0VmWHpKdEw3N3JDd1BTWVpvbWM0b3Exam5FQmxxWFUzaUFRM016dUt3WmR6Z3VRdU51WkFtZ2Y5Y1NmUnlfaTDSAXhBVV95cUxNTmg1RjNpZEc4eVpIUmNPeC1oaHZLUUdMZXJ0SE9Ndmw2U3BQYmFkLTdrSjZocEp2UW9rQWxwTjdJUGNkM2Q1V1NpdldWcEF3RUpKcElHQnJVTHpuWGk4OWJmVWh4UmpLMHVmTFVCOHFiTHRnSnpNOVU?oc=5) |
 | India and China are partners, not rivals, Modi and Xi say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPS2Z5NldDeTJRb1ZPSVhhdXJvLWJaUnRCbzdCeE55RjNlVkJKUjhnQV9VV0RJMi02eTN3MmM3aW9FbFBybThXVk4wLXVsNjVtY1F6RTRjdFk2LWkxM09XRVRZUm83WkNQQWI1ZmhLVDJETGlmN3hMWjgxZnhFb0wtaHIzZGZVVmFjdWN4MmhkY3FMdUVGa0VENms3MA?oc=5) |
 | Government shutdown looms as Congress returns after monthlong August recess - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQYWhlNENqeVJwUUdoUFNkZEpzSjZSdzZManFVSHBiTnFBYkhvT25LU1o1aV82S0dzTE90cl9NSW9YZEZETjhNdElDZTZ6Q3hKTjlZUVVQZUxCdDREbXhQSFpCdHR5SHV3MDB0cUdWbjNLc3UtQ2VUbDg3NllET0c0cVFJVmxFX09CbkhwUV9uazlQeFZneFdNcGluYml3QQ?oc=5) |
 | Doctors find bullet fragment in neck of 10-year-old Minnesota school shooting survivor - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOVlJXVHNMbG5XelFlYTMxeHlzZ3FoeU9WS3dfRXBQWlpxVzVlZVZLbW5DOHF0MTNyQWRZLWNsc3BLd1NUemJuSERtV3ljaC0xRXVYOTFVSkVDaVVHczJ3dXhocndvZlhOWnEyTXduazJRTXNDSWQzNTNWM3QxY2xKaXVaZEgzVUhodzdhWl9IdTlYSFoxQm5WVnZEZkxaM00xdTVkTw?oc=5) |
-| Burning Man festival death investigated as homicide - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBpSC1NeDB0bWJBWmJoMFh0Z2tyWjBVdUNhRk1FX3hTeHVRamt5Z1RhSTF2QnVRZUZNNWRlSzhSZXp1WjdZQ0ZSM3I5QVFVN05LWl90YTBJbUNWd9IBX0FVX3lxTE1lVW9pcWZTSUd3V3NiaXhtZzZYVGU0WkV4V21ZUVlCTTRhc3RMcG9CQk1xdWdlZF80aklfTEV6Rmp3MDZTam5MTFlRV1hWYjJHb2pINmdzLTRFeXZJZjdr?oc=5) |
 | 11-year-old boy shot and killed while playing "ding dong ditch" doorbell prank in Houston - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPY3RfWmlzT293YldIMFBLZUwtUFJLb2tUTUcwTVZVdWdfTG1ZRnA0QlJEakFSYWtjVWhZM0NjZHNQNnp3Rl9TdHJzVWtPS1p3ZW5selJLTy1QNE5JMmNFMXJXQTJ1dHpmNHpyVWRBWGpPRDc4bjJjdzlNS2xJMmtsQVZXRFNNODNQXzdEZEd0U0cyb3g0WUo5UFRuV2RWU0IxeXVoY3ByNNIBrAFBVV95cUxOV3BTMkN2anBGUGNheER5ajF5bG14dmFIeWdtQXA0WjlsRkJkTERvdWlqaTBObkhubE96bGgwOW5seGtCVnZqQ21tallCZHRkUC0xUGFubGk2d3RSUTRvTFhGMXcteDZkbTNhTG9FZzM4NzlTQzhpaW45WVJ2VEdOUkVsT29KS01Xd1hhRjV2X2czWllQY0ZHQi0tel9JUkEwMmJxZkY2dHlsYzdx?oc=5) |
+| Great Lakes ghost ships emerge, courtesy of the quagga mussel - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5TRTFpdmlHWDlFN0lieGRfSDI5MVlJdlVPU3BjaDhEVXZaU0s1QTYwVlNSMUFPNDZFZGhxRFd1OWZxWEoxSkd4dkdwQUhoa2hSVUs1cFJJLTd2QjFkMExNT1dzMkRnQnRIRHltSUpfN1E?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
