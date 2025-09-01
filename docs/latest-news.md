@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 11:25:51（北京时间）**
+🕒 更新时间：**2025年09月01日 11:32:38（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Rudy Giuliani Is Hurt in Car Crash in New Hampshire - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPc0NTaTBJc1RxdVk4d1RJQi1STC1yMFZQdlpYTThZUEtNRl9YcFhjVUotaUJMSUhPMWxhc1VQWHBiWU5ZVC1fTFNXVnBmRWlMZU5FTWVGRkJNb1VYOTAtVkN4UFNPV0FSXzVmbk9NXy1vbG0ycGd1VDNIb2h4UFFVWGt0VmlDckI3Y2N1eDBhTTdoR0xRdWJ2aHVpZ0paWVU?oc=5) |
 | Judge orders administration to halt deportation of hundreds of Guatemalan children - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPb05CQy1OVnJvVnZFYzduMGlpdHd3VldlUVJQaTM3WWpseV9Mc1drSWI5UXNOQnFRR3hRbGFtd09TUXlfTzFWck9nZnNSSFdub0lBRGtGOWtzcGZxclpRX0UzQWVKV3NTNXBsNm9xUjRQbTRtQ0xiRHlwTEFaN05ubmZqaHlfZ0lfZE5lekhKcFNTR2NGZ01jY1gwUlJJV3RjaU9NS0ln?oc=5) |
-| Trump's trade adviser says tariffs aren't permanent after appeals court strikes down reciprocal duties - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQaG5hTmFaZWIydjF6MnhDQUhnWEE1NTdjbjlaTEdxTUFtNXo4TlhITnllajNEYTA1OEJ4cDJHNmp6MjJnX2JSd2NSRW0wclZjbzA3dXRkZmYwbFo3WFYtekQtR3A2bEZDcHcybE94bVl1cE0tdmlGU19LWFZ1Uy02VXZPVE9qQzlaYmtMbGh2T290TEFHWHdGUjRNdG52aTluVHFz?oc=5) |
 | India and China are partners, not rivals, Modi and Xi say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPS2Z5NldDeTJRb1ZPSVhhdXJvLWJaUnRCbzdCeE55RjNlVkJKUjhnQV9VV0RJMi02eTN3MmM3aW9FbFBybThXVk4wLXVsNjVtY1F6RTRjdFk2LWkxM09XRVRZUm83WkNQQWI1ZmhLVDJETGlmN3hMWjgxZnhFb0wtaHIzZGZVVmFjdWN4MmhkY3FMdUVGa0VENms3MA?oc=5) |
+| Trump's trade adviser says tariffs aren't permanent after appeals court strikes down reciprocal duties - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQaG5hTmFaZWIydjF6MnhDQUhnWEE1NTdjbjlaTEdxTUFtNXo4TlhITnllajNEYTA1OEJ4cDJHNmp6MjJnX2JSd2NSRW0wclZjbzA3dXRkZmYwbFo3WFYtekQtR3A2bEZDcHcybE94bVl1cE0tdmlGU19LWFZ1Uy02VXZPVE9qQzlaYmtMbGh2T290TEFHWHdGUjRNdG52aTluVHFz?oc=5) |
 | Mueller's family tells NYT he has Parkinson's disease - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUkN6ZXFwWWdpckZvaEJLdGJkeGxPdno5VllTRFBWekVDSVE5eXlqZ0hzM1BYemNFNU5NUkRWSG5kdWpwOGVWUFNPc1hrQm1kdjBGMXdNdUxxelJJMnNDQTRyRlFCVUI3NHkzamN2NEJIcFY2OW10VWF3aUVOYVVNaldZak1hN0tPdlRxWU50SEg?oc=5) |
 | Trump Calls for Voter Identification for All U.S. Elections - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNb3gzSE8xWDFxbzZ3WDNlckVURVlZbzZ6OVUyNDJZMHNuWVBLZkdXenJrekxNdEh3UVpCSDV2ek1fNFA0dHJveVpCTER3RWlGWVUwWTY1dHdEcHpwblpoTk8yN3lwdzBuWkMtdHI5VFBjV2UtdF9INVpGSUJSMFFKaTFGRzdUVkVZUU00SV91cVo5b0FFYnJma0hRMlRzZ2UyZDd5Nm13?oc=5) |
 | Man Found Dead in Suspected Homicide at Burning Man, Attendees Told to ‘Be Vigilant’ - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPR25rUjRoSDl5YWN4T09TYi1LS0FGWS13RFJiQldsQ01DSWV5Z2VnQUN4YkRpUEEtNVRHOExvSFEyR1hla2J2c25pczFsSXQ2UTBSWkxtcFNLZVI3Mzk4eW5QM2FBNHI2ckU0VVphMHB2NHNOb2Z4QnJDLVBsbVpKaDN0bE84YlBZRXN3dllmNFdqMHBSWno3V3VjWHBxbVpTX3Ztd2o3UQ?oc=5) |
