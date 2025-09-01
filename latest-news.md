@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 14:41:50（北京时间）**
+🕒 更新时间：**2025年09月01日 14:49:12（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Judge blocks Trump administration move to deport Guatemalan children - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1BVWxLaEZuc0NkNHhBdE9LbFJSU1lxNTNBT0hjYjVpNXE0cWVLQlRoQWN1a0dXWndob3ZSR2JGMVNIUUZZLVNoZVFyc0ZFbUY3b3F3Q3UtX0s1QdIBX0FVX3lxTE1SLWVtT0kzWU9kQ3lOWE9wMnBJLW9iZXc0X01YS3JId0E4OS1zanlQYjA3UXg4aDJpRE42cEdVMVpRMDJwNHNTdVh1NXZoQzdhVWJRS3VFSXhHa2FOX2VF?oc=5) |
 | India's Modi Shores Up Ties With China, Russia in Defiance of Trump - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQR0JuRVVoWEJra3RCeDF3ZE1EQkFBV01IcHdmTUxNYVgxWkpkNVZoQzdzS0Yzc2hONlZCRGNCdVZScFVoSDlDX0d4NHhYQmphYmpVVjhuUmdVckVhdlFDMnVJR1JHRDVjVjd3MkM0TUliclY4TzdwX1A4OTdCVEtGZmEydUFvakh3bEp3bndaWHItbHh1OERiaTJScmk3SEM2aktFeVZMaDVwckRBQXc?oc=5) |
-| Hundreds Dead After 6.0-Magnitude Earthquake Hits Afghanistan - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQb01ubjRvMnJ5VldzUHdVeF9OM2hZaDdLQnVDV18wVjlJVnVfZWp5U3o1cWVMc3h5cWNBcjkzUGpCMHo2dDZxOG1XaktXN2VGck5IYXBXcmh5WnRfcFZ2UDMxb3hfTTRKWUwxUXNSTTVVRkhyWkhTZkxqWktZRVJLaEVRSTdHYm5GZ1pJ?oc=5) |
 | Rudy Giuliani hospitalized with multiple injuries after car crash - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQWExPdWc2aFNrekhrcGVINHRSQ2RWcC1nUlppV3l1eFBsMVdBR2EwQ0lISnNlTVJRNjh2YUlPNmthTHhWSE4wUEFFeWs1Z2ltRW9GOWdZeVFjYlRuZG5yNEJGRXFKSWVCWktlV1pxTkJrbU4xWE90WlRxaVFGSkNxRDVFM0Q?oc=5) |
+| Hundreds Dead After 6.0-Magnitude Earthquake Hits Afghanistan - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQb01ubjRvMnJ5VldzUHdVeF9OM2hZaDdLQnVDV18wVjlJVnVfZWp5U3o1cWVMc3h5cWNBcjkzUGpCMHo2dDZxOG1XaktXN2VGck5IYXBXcmh5WnRfcFZ2UDMxb3hfTTRKWUwxUXNSTTVVRkhyWkhTZkxqWktZRVJLaEVRSTdHYm5GZ1pJ?oc=5) |
 | CNBC Daily Open: Tariff uncertainty intensifies with the U.S. court's ruling - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQM3cwOV91cXFKVk9YcEh4YWR3T3U3WDRFWVNiVlhvSXRYZFpueWZjUHRlMU9LTW1UYngtN0Ryb3F1RjUwNHNLcHVyRW9sVVZycktZVm1CWnlaQlVqTkhTbkxyLW4zWHhqSnRmSTVsRXNCQ3Q0TkZWenIzTk9tMFpDRG1jM1lfQnYzSDlkelNEd3JIa2FBUzNOUzZHczdXdlVoU09nZ19uR3IyVkxSVFHSAbMBQVVfeXFMUDdQc3dROWhJMzYzMTdsbXduRnVwY1VpVWg3R3c3RktTNG4yUXh6cEVYeHFCS2EzbEJCMDlva3d4RDhHSGhmZzYwVElnZGx4cmVtRDJyazV3WjZGb1BFb3k2bUFDNzBrZ0R3MUR4Qm56aUoxZ1pkOTNRN0Z3ZWhKOUdjQjNYNExBUmxGTm5GbFVTZV9Da0dPRjZYdFpCejR2TXNDSFhaNFBvd2lNVDZud3RqdWs?oc=5) |
 | Mueller's family tells NYT he has Parkinson's disease - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUkN6ZXFwWWdpckZvaEJLdGJkeGxPdno5VllTRFBWekVDSVE5eXlqZ0hzM1BYemNFNU5NUkRWSG5kdWpwOGVWUFNPc1hrQm1kdjBGMXdNdUxxelJJMnNDQTRyRlFCVUI3NHkzamN2NEJIcFY2OW10VWF3aUVOYVVNaldZak1hN0tPdlRxWU50SEg?oc=5) |
 | Trump news at a glance: US president issues threat to mandate voter ID - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPcUZtY1NiM2xnYXlOMW9GOUEzOU4tcmY0Wi1udWxlZmlScWJvY3drMU1rdEdCb0wweFdHTXJXZlNIRU1VOHJCRXI3RjZoRTlTUVB4RkFzeHBfZDF2cy00ZDRHemQ2ZHZUN0U4TjUyOVJUa1ZUODNkdDZnVE9jS0c0VjJkMDkxOHpVRS1GWUt6cDd6RmFGLXJGdWJmUXNydw?oc=5) |
