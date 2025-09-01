@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 11:16:51（北京时间）**
+🕒 更新时间：**2025年09月01日 11:25:51（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Man Found Dead in Suspected Homicide at Burning Man, Attendees Told to ‘Be Vigilant’ - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPR25rUjRoSDl5YWN4T09TYi1LS0FGWS13RFJiQldsQ01DSWV5Z2VnQUN4YkRpUEEtNVRHOExvSFEyR1hla2J2c25pczFsSXQ2UTBSWkxtcFNLZVI3Mzk4eW5QM2FBNHI2ckU0VVphMHB2NHNOb2Z4QnJDLVBsbVpKaDN0bE84YlBZRXN3dllmNFdqMHBSWno3V3VjWHBxbVpTX3Ztd2o3UQ?oc=5) |
 | DHS Secretary Kristi Noem acknowledges ICE surge in Chicago; says National Guard deployment up to Trump - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE0xNUN6SkNmcEZMYmRPa3VkazIwV3JZQ1NWR1NNRWxVTUh1NlNmcUpTeHVqWDQyX1kzVk5MaFNYOWoxems4VmQxcEEtVG5zenRGcVYydUFKdWVvUXp6dG5wVE9WYXE3T0RFTGNPX3lseFZHaE5BeFFmTW9zcDJ1UWs?oc=5) |
 | Cleveland’s mayor wants Democrats to know millennials like him are impatient and ready to lead - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi2wFBVV95cUxOc28ycHZhSm83dWhQNi1FSmlWRWhXYnZISHlEeUZjeVB3YXk2cGdIMDd1NW9McEEycS1WSVhYZXRmS0NqZEFaWDB2bDBSa1pTbTlwUFp3RnlBV2hGZ1BsNFEtUEJFeS1oejBNTjMyTnE5UU5RWGtia3J5MWd2VjZFbV9WejRGSVN4bEtuRkxMdlFHbXQzaXEwZHB6S1VPVFhKRUNtSjNESzdLWUNmRlAyc2pnVHNMSUljRHRkX1BiLTJOTHZVWEluc0d3c0RHRUtrQU1rbXdzU010c1k?oc=5) |
-| Pope demands end to the 'pandemic of arms' as he prays for victims of Minnesota school shooting - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPdERzaUVPVGl1VHpmT0ZOSFpRdS0xMXhpN0R1ZEYzb0Zva0ZuYVlTSUZXT1FPeU9vNHA2Y1RiazVUVE5UTG8wZ0k0dXEzNENCVTNCYm96eXZCQk84SXdzd1lEcVhmZ2VGOFA1TEtwZUhFamFFQUJ2MkJlbi01WDZVRHNURXdPSjRUTHdEQzk0TQ?oc=5) |
+| Former CDC immunizations chief: ‘I only see harm coming’ with RFK Jr. leading HHS - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNWU9sb0tLTHBaeDlsNHVEaFlmaXUtSDFkcW1OQlpiWEJ4emtLanV5R1FSd3Y0WFhpdy1sRVNUREVYZmh2cmlKMGVhWUllUS1SRWlaZElDOTBoeVMxaUh3aHF2emVsdEJnZ3ZZLVNST3JjQzVMeTJDU3ZTZlhfTUl1VVJ6cGphdGw2Tzh0WVRZQWRWcmdETVBnbl8ybXFUWUNmaEHSAacBQVVfeXFMTVMwRVNEYTNhU2VFUW5CMHNNekgwRGtBdUpJamhZd2s5eWN5cFlOR3U4UUZvRzczQmpub1ByZC1TejFBNzhqaDUxVFFGT1RSd1JYU0V3amNGLTRZZ1A2aVJDTFBBdkFZdk96d3l3NTdzZ0diMEZQd2dpZmQ1MHUzbHBQbTZqZV91NlpxMmpURDh6aE44ckIwa3RPZGxOZnczbmVpVFJnNVE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
