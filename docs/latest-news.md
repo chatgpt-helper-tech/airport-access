@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 08:24:54（北京时间）**
+🕒 更新时间：**2025年09月01日 08:33:25（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Rudy Giuliani Is Hurt in Car Crash in New Hampshire - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPc0NTaTBJc1RxdVk4d1RJQi1STC1yMFZQdlpYTThZUEtNRl9YcFhjVUotaUJMSUhPMWxhc1VQWHBiWU5ZVC1fTFNXVnBmRWlMZU5FTWVGRkJNb1VYOTAtVkN4UFNPV0FSXzVmbk9NXy1vbG0ycGd1VDNIb2h4UFFVWGt0VmlDckI3Y2N1eDBhTTdoR0xRdWJ2aHVpZ0paWVU?oc=5) |
 | Judge halts deportation of hundreds of Guatemalan children - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQTjhWc3lTc0cwU09qZDl0WWxENWFtbXlwdUwxVEZWeWk3dW5CemVJTjhfQXRjNllNeFBGb1lrTlhIM3VCbU9rbkNaNXVTeEZwYXlyTTJYWFlESUY2WVE1SndXVGpiZTdQeEpHVldKdHQyLVBmUGFhVGs5cTkybkh2Wjd6czdBYlBSZHc0RjUtbkk?oc=5) |
-| US still working on trade deals despite court ruling, USTR says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQRDRkNXZlVVVRWlU1dGhNWUxmQUJfZ1FqTVUyRnNfX0NGek8xajZ0X0sybjRGc0x6b1ZaUWpnbEJKWmtiNWNsaTFTZUhZZm1oV0Y1RmZXTTlCcWNUazctUDNjcG1kbkU3enhrX0NCWE4zSTkyWnRTNktQT05LcFJaeXRLU19uWWFsR2w4ZGs0RVZKRXFzalV5Tk96bGVaZkt2QW5qUGxTZw?oc=5) |
-| China’s Xi welcomes Putin and Modi as Trump roils global order - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQaU1yRngwQmJlNWdDN3lGUVNqWDM5bEtQVUQ1d0RLTVZBUHZxTlM3MG1KOFFRZ0RTLWRmWnZHUm1Md0dwV2xlNXN2dTVicmF3d0h6S19CZ3NEUG1vaU53UzJqZTk4anlaaHBwM3ByTWFheU5QcjVTc19hc05yLUNJdGw0X2RlekpVcENaZm82aW1WM1ZVT1E?oc=5) |
+| Trump Tariff Case Ups Ante at Supreme Court - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPcGFzSmFyVFByTmV6ZWhiem5Oc2U0TW1lNUtUel82a0NSaUdZODlzUXNqUG1TZF9OQnQ0d094MHllRjFCaXZib2tDVUJHdUJzMWFNS0RYYlRRNEw4VS1UcTg2cUxvc1JWUUx1MzJSUTlGaGZjbU0yenpVTVF0U0ViRXlxQ1R2RGFYSGtxRzVMdndpZw?oc=5) |
+| India and China are partners, not rivals, Modi and Xi say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPS2Z5NldDeTJRb1ZPSVhhdXJvLWJaUnRCbzdCeE55RjNlVkJKUjhnQV9VV0RJMi02eTN3MmM3aW9FbFBybThXVk4wLXVsNjVtY1F6RTRjdFk2LWkxM09XRVRZUm83WkNQQWI1ZmhLVDJETGlmN3hMWjgxZnhFb0wtaHIzZGZVVmFjdWN4MmhkY3FMdUVGa0VENms3MA?oc=5) |
 | Trump Calls for Voter Identification for All U.S. Elections - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNb3gzSE8xWDFxbzZ3WDNlckVURVlZbzZ6OVUyNDJZMHNuWVBLZkdXenJrekxNdEh3UVpCSDV2ek1fNFA0dHJveVpCTER3RWlGWVUwWTY1dHdEcHpwblpoTk8yN3lwdzBuWkMtdHI5VFBjV2UtdF9INVpGSUJSMFFKaTFGRzdUVkVZUU00SV91cVo5b0FFYnJma0hRMlRzZ2UyZDd5Nm13?oc=5) |
 | JB Pritzker calls for ‘all to stand up’ to Trump’s immigration crackdown in Chicago - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQRDZCWTM1UVlZdmRnQ0RRLTNLSmFLSWw5Q2lEUWhnRW0xMjFVZGwzLW5sbWVxVmlsbFRUT2ltcjBrN2VmR2tZVVJ3dXNwQUNQTzE2ZXYzVmpacFozOWhzbXJKODNjZTFRcWNINUFIaGZ1Q0ZpRWdkcDZuam1RYjkwNW9BMzMtZGRqUUE?oc=5) |
 | Homeland Security Secretary Kristi Noem says "we haven't taken anything off the table" on expanding immigration operations to other cities - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQb1ZuSWtMRXFyMWh2Z1Rjb3J1dThxdnlUdU04dG9jS1RxR3o5YVV6M2NBMXhyVTQzWXZITmYyQkpuUzBzUFhnQzdhbVNMMHpXdkRNMGE2dzFaVWEyb0JzRnJEMHVHa3VrWnRWVDZWRHNnQXk0MmdvZlhKSU9iNEtwUHVNOXVUUHQySXJoVVB5U3VSYmxEcVh4Vy1OakjSAaIBQVVfeXFMT2tKWDU2V3AxOEVrY0tCVFpPcTdsVmdpbThIVmd5R0FtVGdoS05vM3BRVHNqekRfLUs3ZzNRWDlzbHBCZnFNWUw2TUlYOTdjNWFoYktlc3VoYWE2QTFiV3BJTmltX0pYT2R1Qi01SzMwTExkaWljQUNWbndVeUNPR3BXSU9RRVlLZTZISmkzUHczUjZqNWxyNjE1M09vd1FaU3dB?oc=5) |
