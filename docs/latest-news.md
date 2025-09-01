@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 09:25:26（北京时间）**
+🕒 更新时间：**2025年09月01日 09:33:59（北京时间）**
 
 ---
 
@@ -8,13 +8,13 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| UK secures £10bn deal to supply Norway with warships | [阅读全文](https://www.bbc.com/news/articles/cr5rgdpvn63o?at_medium=RSS&at_campaign=rss) |
+| Family reunion rules to be tightened in asylum cases | [阅读全文](https://www.bbc.com/news/articles/c626p66d6jxo?at_medium=RSS&at_campaign=rss) |
 | More parents to get childcare funding as nurseries struggle with demand | [阅读全文](https://www.bbc.com/news/articles/c5yeldz568jo?at_medium=RSS&at_campaign=rss) |
 | China's huge navy is expanding at breakneck speed - will it rule the waves? | [阅读全文](https://www.bbc.com/news/articles/c4gmnpg31xlo?at_medium=RSS&at_campaign=rss) |
 | British woman stabbed to death in Cambodia - police | [阅读全文](https://www.bbc.com/news/articles/c15le021yzpo?at_medium=RSS&at_campaign=rss) |
 | Hamas spokesman Abu Obeida killed in Gaza, Israel says | [阅读全文](https://www.bbc.com/news/articles/cm214r5rd29o?at_medium=RSS&at_campaign=rss) |
 | The public have chosen the next storm names - get ready for Amy, Bram and Chandra | [阅读全文](https://www.bbc.com/weather/articles/cwy54xllpyno?at_medium=RSS&at_campaign=rss) |
-| Three arrests as Epping protesters clash with police | [阅读全文](https://www.bbc.com/news/articles/cx2970686qzo?at_medium=RSS&at_campaign=rss) |
+| UK secures £10bn deal to supply Norway with warships | [阅读全文](https://www.bbc.com/news/articles/cr5rgdpvn63o?at_medium=RSS&at_campaign=rss) |
 | Former NYC mayor Rudy Giuliani injured in car accident, security guard says | [阅读全文](https://www.bbc.com/news/articles/crm4gdwerj3o?at_medium=RSS&at_campaign=rss) |
 | Boy who died in playground fall 'so full of life' | [阅读全文](https://www.bbc.com/news/articles/cg4x6re1zwro?at_medium=RSS&at_campaign=rss) |
 | Arrest after fatal shooting of Ukrainian politician Andriy Parubiy | [阅读全文](https://www.bbc.com/news/articles/cvgn2ry9510o?at_medium=RSS&at_campaign=rss) |
