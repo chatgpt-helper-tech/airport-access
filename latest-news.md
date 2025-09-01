@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 03:16:39（北京时间）**
+🕒 更新时间：**2025年09月02日 03:24:13（北京时间）**
 
 ---
 
@@ -8,8 +8,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Jones gets new role as Starmer revamps No 10 team | [阅读全文](https://www.bbc.com/news/articles/ce93k7l0zpro?at_medium=RSS&at_campaign=rss) |
 | UK suspends refugee family reunion applications | [阅读全文](https://www.bbc.com/news/articles/c626p66d6jxo?at_medium=RSS&at_campaign=rss) |
-| Starmer shakes up No 10 team - but what is he hoping to achieve? | [阅读全文](https://www.bbc.com/news/articles/cd0d195md5eo?at_medium=RSS&at_campaign=rss) |
 | 'Covered in dust and too shocked to speak': Afghan villagers reel at scale of quake's devastation | [阅读全文](https://www.bbc.com/news/articles/cm2vm2r6dzdo?at_medium=RSS&at_campaign=rss) |
 | EU chief von der Leyen's plane hit by suspected Russian GPS jamming | [阅读全文](https://www.bbc.com/news/articles/c9d07z1439zo?at_medium=RSS&at_campaign=rss) |
 | Scotland scraps peak rail fares - will the rest of the UK follow? | [阅读全文](https://www.bbc.com/news/articles/czxp9zl0k90o?at_medium=RSS&at_campaign=rss) |
