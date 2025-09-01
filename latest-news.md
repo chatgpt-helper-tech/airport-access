@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 03:57:31（北京时间）**
+🕒 更新时间：**2025年09月02日 04:01:24（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | A federal appeals court ruled against Trump's tariffs. Here's what could happen next. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNTEJhTGhaR1dRa19SOHFlOVBSMTdBRUJUWG9VMU1DaW5yeHZyN0lJN25RLU1jaEFxZU83R1RLc25VeFh2dlpaeUhXZWxEWFNCNGZJMmQ2TW0tME9Wei1pc2tXcnRsOXJ0OThyVV9nRjVSaHVVd1YwSnRFNmtrRWJuVkhlc0UzanRaSzV3b0J5azltdmNWM01qTkI2V0FZUdIBowFBVV95cUxNLWlDM1ZQZDFLbEdBNUs1MEQwakwtLU01SzR4M0JDa0tXRXZKU1VRS1RVSVphTTdKNTFXN2lrTHhVMUpRWkdEcEJwZDNZLW9vVWo1NVh3Wld2YlRTNDg0VlEtS29jVFdiTlBfV3hHVl9GSHdzZ1RYZkNNbFhta1NXdkhUcEVaZE5jV3BjbU5Sbm4walpaNUFVa1ZQLTJ4SVB6Uk53?oc=5) |
 | Trump tells drugmakers to 'justify the success' of Covid meds after FDA limits vaccine approval - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1BOWxHYXc5am43QVo2VmxydWN1Q3lfYUlWMWdxQnRsSVRCMEVBdDB3OVdBM0VmWHpKdEw3N3JDd1BTWVpvbWM0b3Exam5FQmxxWFUzaUFRM016dUt3WmR6Z3VRdU51WkFtZ2Y5Y1NmUnlfaTDSAXhBVV95cUxNTmg1RjNpZEc4eVpIUmNPeC1oaHZLUUdMZXJ0SE9Ndmw2U3BQYmFkLTdrSjZocEp2UW9rQWxwTjdJUGNkM2Q1V1NpdldWcEF3RUpKcElHQnJVTHpuWGk4OWJmVWh4UmpLMHVmTFVCOHFiTHRnSnpNOVU?oc=5) |
 | 1.2 million immigrants are gone from the US labor force under Trump, preliminary data shows - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOdW5WOGVKaWhoZFFnQ2Nrd2JycTV1bkxkNUNIWEZRX3ZLWUFsanMtZWJzRlBxcnVndHhwODR2Tng5Z2JvLVZtSk95VEVDUWZNWjRrQVdlRERkaEx4R0Z3aDJPX3Vhcy10azdhTlltbFZCeVZJRHhrSXhveTFWSndoSDFXVVRGamwzcHRwRWtDMnA?oc=5) |
-| Government shutdown looms as Congress returns after monthlong August recess - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQYWhlNENqeVJwUUdoUFNkZEpzSjZSdzZManFVSHBiTnFBYkhvT25LU1o1aV82S0dzTE90cl9NSW9YZEZETjhNdElDZTZ6Q3hKTjlZUVVQZUxCdDREbXhQSFpCdHR5SHV3MDB0cUdWbjNLc3UtQ2VUbDg3NllET0c0cVFJVmxFX09CbkhwUV9uazlQeFZneFdNcGluYml3QQ?oc=5) |
 | Great Lakes ghost ships emerge, courtesy of the quagga mussel - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5TRTFpdmlHWDlFN0lieGRfSDI5MVlJdlVPU3BjaDhEVXZaU0s1QTYwVlNSMUFPNDZFZGhxRFd1OWZxWEoxSkd4dkdwQUhoa2hSVUs1cFJJLTd2QjFkMExNT1dzMkRnQnRIRHltSUpfN1E?oc=5) |
-| Family in disbelief after father's death in Alabama ATV accident: 'Still waiting for him to come through the door' - 11Alive.com | [阅读全文](https://news.google.com/rss/articles/CBMi7wFBVV95cUxNY1d4M01JdTZJQV9yZnFiVm10M3dzOHpmOUNTOVh0QjFqcU0xUjRaUm1pRkthd2RYOVNkeVYza1dDanByRG1sZFVQQ3RjWGlHdmdZdXNpeUdpQWZham1TRnU4ZHpzWnhuN190SjZCSFFfQVlpTmVEejFYX2RvczB6bHBKWWFlVmlDMGtXWjhsVzIzUEJuZUVCOVpPMzR6REZZcFJiQ3dHYUJnQ1lfcEV5WTJpMDFBTDBJOXBRRFh6MjF3Y0EwLU13TlFiQjFRZHUwcWp6b0xSUWxhSEkxTC1ZQ0ZMTS1ZWklvTlBKUmFrNA?oc=5) |
+| Government shutdown looms as Congress returns after monthlong August recess - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQYWhlNENqeVJwUUdoUFNkZEpzSjZSdzZManFVSHBiTnFBYkhvT25LU1o1aV82S0dzTE90cl9NSW9YZEZETjhNdElDZTZ6Q3hKTjlZUVVQZUxCdDREbXhQSFpCdHR5SHV3MDB0cUdWbjNLc3UtQ2VUbDg3NllET0c0cVFJVmxFX09CbkhwUV9uazlQeFZneFdNcGluYml3QQ?oc=5) |
+| Interviewed student to undergo surgery after Annunciation Church mass shooting - kare11.com | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxQVURXdm5vNDVlRTlGUWZWblR3Rm1zWkhncEQ2dlFoZXFiWDM0WDkzblhoempRM3Vkdk5PSTJsRENJOUhJSjJRaVlYbTRYVFdxOVdkMTRoNTRjdW05LTdNajVJb0hyazB3Vmpvei02WVBpUU8zd2N3NDV3RnVQV2llRDBtNGhwYUFHaTBqUDh5N1NxRTBQYm5NbTNYcUV5NVBPWHJ1aHRUXzM0WHNmb1FaRnlvcXNGNFdaOEVsdS1ScXcweXJMcnI1UXd3Qmc1cWt2R1BFVDY2RkRkaUh2dnZnaHNXTXp4S1RYRzl6anZ6OUc5UQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
