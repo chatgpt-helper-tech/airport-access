@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 11:57:29（北京时间）**
+🕒 更新时间：**2025年09月01日 12:01:11（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | Family reunion rules to be tightened in asylum cases | [阅读全文](https://www.bbc.com/news/articles/c626p66d6jxo?at_medium=RSS&at_campaign=rss) |
 | More parents to get childcare funding as nurseries struggle with demand | [阅读全文](https://www.bbc.com/news/articles/c5yeldz568jo?at_medium=RSS&at_campaign=rss) |
 | China's huge navy is expanding at breakneck speed - will it rule the waves? | [阅读全文](https://www.bbc.com/news/articles/c4gmnpg31xlo?at_medium=RSS&at_campaign=rss) |
-| British woman stabbed to death in Cambodia - police | [阅读全文](https://www.bbc.com/news/articles/c15le021yzpo?at_medium=RSS&at_campaign=rss) |
+| British woman stabbed to death in Cambodia, police say | [阅读全文](https://www.bbc.com/news/articles/c15le021yzpo?at_medium=RSS&at_campaign=rss) |
 | Camilla fought off attacker with shoe as teenager, book says | [阅读全文](https://www.bbc.com/news/articles/c209ql9z2d1o?at_medium=RSS&at_campaign=rss) |
 | The public have chosen the next storm names - get ready for Amy, Bram and Chandra | [阅读全文](https://www.bbc.com/weather/articles/cwy54xllpyno?at_medium=RSS&at_campaign=rss) |
 | UK secures £10bn deal to supply Norway with warships | [阅读全文](https://www.bbc.com/news/articles/cr5rgdpvn63o?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | Trump news at a glance: US president issues threat to mandate voter ID - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPcUZtY1NiM2xnYXlOMW9GOUEzOU4tcmY0Wi1udWxlZmlScWJvY3drMU1rdEdCb0wweFdHTXJXZlNIRU1VOHJCRXI3RjZoRTlTUVB4RkFzeHBfZDF2cy00ZDRHemQ2ZHZUN0U4TjUyOVJUa1ZUODNkdDZnVE9jS0c0VjJkMDkxOHpVRS1GWUt6cDd6RmFGLXJGdWJmUXNydw?oc=5) |
 | Man is found dead at annual Burning Man festival in Nevada, a sheriff’s office says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPTVA1TlFhd3RDbkJHeDdvTUFmb2MzME12SzFEdU1ZdW0tdnp0blpqblVPd2RxTWJMbFpvZGducUUzNTk3RnhCX1A1OUwzTnlXRGNDaDgzdVZ2eHpsU3NwNDB5ZExVOTNwSHZmYWpJTjlHSDdDa2RnX2JOY0NBcndlSVVDek54ZmhLdkdoRE11ZU12Y1BPZHpfQw?oc=5) |
 | ‘No going back.’ Minneapolis church shooter turned violent after sometimes turbulent upbringing. - Star Tribune | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxNelBOejZjODQ4NmVBZjFvUVpXSDRaMGMtV00yV2pMMmNFVGJpUTFNWGFqeWVRZzN6aUlrZzZyMmxpRk1BUXBndTBKQnZDemFIcTNMWVVxeVFWRmp3QUJRUWdmSHJFQ1ViajBLc3NnXzFCczdPTmhkTENHVHItNk9rdS1XcDdHdWEzR0UydGJpWUpYWG8zcllEbVR3aFBjSGdHaFBiQjhJanlkY2tuSGpjQV8zaGQtbEpndGw1OTVtU2NwYktTQzUzQ0gxeW1hMnhaTzhHRjdNMnBPTkd0?oc=5) |
-| Cleveland’s mayor wants Democrats to know millennials like him are impatient and ready to lead - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi2wFBVV95cUxOc28ycHZhSm83dWhQNi1FSmlWRWhXYnZISHlEeUZjeVB3YXk2cGdIMDd1NW9McEEycS1WSVhYZXRmS0NqZEFaWDB2bDBSa1pTbTlwUFp3RnlBV2hGZ1BsNFEtUEJFeS1oejBNTjMyTnE5UU5RWGtia3J5MWd2VjZFbV9WejRGSVN4bEtuRkxMdlFHbXQzaXEwZHB6S1VPVFhKRUNtSjNESzdLWUNmRlAyc2pnVHNMSUljRHRkX1BiLTJOTHZVWEluc0d3c0RHRUtrQU1rbXdzU010c1k?oc=5) |
+| Former CDC immunizations chief: ‘I only see harm coming’ with RFK Jr. leading HHS - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNWU9sb0tLTHBaeDlsNHVEaFlmaXUtSDFkcW1OQlpiWEJ4emtLanV5R1FSd3Y0WFhpdy1sRVNUREVYZmh2cmlKMGVhWUllUS1SRWlaZElDOTBoeVMxaUh3aHF2emVsdEJnZ3ZZLVNST3JjQzVMeTJDU3ZTZlhfTUl1VVJ6cGphdGw2Tzh0WVRZQWRWcmdETVBnbl8ybXFUWUNmaEHSAacBQVVfeXFMTVMwRVNEYTNhU2VFUW5CMHNNekgwRGtBdUpJamhZd2s5eWN5cFlOR3U4UUZvRzczQmpub1ByZC1TejFBNzhqaDUxVFFGT1RSd1JYU0V3amNGLTRZZ1A2aVJDTFBBdkFZdk96d3l3NTdzZ0diMEZQd2dpZmQ1MHUzbHBQbTZqZV91NlpxMmpURDh6aE44ckIwa3RPZGxOZnczbmVpVFJnNVE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
