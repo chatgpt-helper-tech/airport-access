@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 10:09:04（北京时间）**
+🕒 更新时间：**2025年09月01日 10:16:44（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Judge orders administration to halt deportation of hundreds of Guatemalan children - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPb05CQy1OVnJvVnZFYzduMGlpdHd3VldlUVJQaTM3WWpseV9Mc1drSWI5UXNOQnFRR3hRbGFtd09TUXlfTzFWck9nZnNSSFdub0lBRGtGOWtzcGZxclpRX0UzQWVKV3NTNXBsNm9xUjRQbTRtQ0xiRHlwTEFaN05ubmZqaHlfZ0lfZE5lekhKcFNTR2NGZ01jY1gwUlJJV3RjaU9NS0ln?oc=5) |
 | Rudy Giuliani hospitalized with broken vertebra after car accident, spokesperson says - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNeFppb1NVdk55UFNwd1o5czhvU3F1bjJnZmFvYjRsZ3VwNGZPVDhWV0FiZjZpV095LUZSdVdXQUY3WC1maGE3UE5IckZ2V0h0T201MnVpcmRfYmhMVlFIeERFaF9UbEpneV8tNmppTVBnZloyVFRXSi1iVmV5NENhNHFVZTUzMF9uaXloMVJ6eVMyQ3k5aEVSN3g4WTNIb29uWGc?oc=5) |
+| Judge orders administration to halt deportation of hundreds of Guatemalan children - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPb05CQy1OVnJvVnZFYzduMGlpdHd3VldlUVJQaTM3WWpseV9Mc1drSWI5UXNOQnFRR3hRbGFtd09TUXlfTzFWck9nZnNSSFdub0lBRGtGOWtzcGZxclpRX0UzQWVKV3NTNXBsNm9xUjRQbTRtQ0xiRHlwTEFaN05ubmZqaHlfZ0lfZE5lekhKcFNTR2NGZ01jY1gwUlJJV3RjaU9NS0ln?oc=5) |
 | Trump Tariff Case Ups Ante at Supreme Court - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPcGFzSmFyVFByTmV6ZWhiem5Oc2U0TW1lNUtUel82a0NSaUdZODlzUXNqUG1TZF9OQnQ0d094MHllRjFCaXZib2tDVUJHdUJzMWFNS0RYYlRRNEw4VS1UcTg2cUxvc1JWUUx1MzJSUTlGaGZjbU0yenpVTVF0U0ViRXlxQ1R2RGFYSGtxRzVMdndpZw?oc=5) |
 | India and China are partners, not rivals, Modi and Xi say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPS2Z5NldDeTJRb1ZPSVhhdXJvLWJaUnRCbzdCeE55RjNlVkJKUjhnQV9VV0RJMi02eTN3MmM3aW9FbFBybThXVk4wLXVsNjVtY1F6RTRjdFk2LWkxM09XRVRZUm83WkNQQWI1ZmhLVDJETGlmN3hMWjgxZnhFb0wtaHIzZGZVVmFjdWN4MmhkY3FMdUVGa0VENms3MA?oc=5) |
 | Trump Says He Will Sign Executive Order Mandating Voter I.D. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNTVNCZFFBdXhyUVRQcW01NXQzODZhRGpYT3d4eGNrUkFzR0dwWDA1cC1zWUJ0QWM1T3lJLWs4Q3Myb3dMWUdqSnNfSGItdjhKUDZFWlEzQmZaMFNhcUJvQlpVYnRBVGpfUU96SFhjQmhEYlFoMkd3ZWM5eFVnV3BDSm91UGlkRXp1UGc?oc=5) |
