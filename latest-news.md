@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月01日 11:01:32（北京时间）**
+🕒 更新时间：**2025年09月01日 11:09:59（北京时间）**
 
 ---
 
@@ -27,8 +27,8 @@
 | Judge orders administration to halt deportation of hundreds of Guatemalan children - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPb05CQy1OVnJvVnZFYzduMGlpdHd3VldlUVJQaTM3WWpseV9Mc1drSWI5UXNOQnFRR3hRbGFtd09TUXlfTzFWck9nZnNSSFdub0lBRGtGOWtzcGZxclpRX0UzQWVKV3NTNXBsNm9xUjRQbTRtQ0xiRHlwTEFaN05ubmZqaHlfZ0lfZE5lekhKcFNTR2NGZ01jY1gwUlJJV3RjaU9NS0ln?oc=5) |
 | Trump says US would be 'destroyed' without tariff cash - Fox Business | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQeVBxbnh0d0xHa3dWMXVFTkhJU0hGcHlFdkJHMGVLUkxCTGRXbmk5WDJRVkxHckxYNGFKYmJRN05yYWZrZ1VoTjN5cjdQTXdveUJ0NllKQWlsWGFlS3VZQ0hjN3VsYndTVFA2dEVGMDdWbWNJcWMtbExoUGVIeE9pVkd0cExnZ1pYWGdXRVA3RXZrU3FLRDU4TG9XVC1WWHlTT2c?oc=5) |
 | India and China are partners, not rivals, Modi and Xi say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPS2Z5NldDeTJRb1ZPSVhhdXJvLWJaUnRCbzdCeE55RjNlVkJKUjhnQV9VV0RJMi02eTN3MmM3aW9FbFBybThXVk4wLXVsNjVtY1F6RTRjdFk2LWkxM09XRVRZUm83WkNQQWI1ZmhLVDJETGlmN3hMWjgxZnhFb0wtaHIzZGZVVmFjdWN4MmhkY3FMdUVGa0VENms3MA?oc=5) |
-| Trump Calls for Voter Identification for All U.S. Elections - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNb3gzSE8xWDFxbzZ3WDNlckVURVlZbzZ6OVUyNDJZMHNuWVBLZkdXenJrekxNdEh3UVpCSDV2ek1fNFA0dHJveVpCTER3RWlGWVUwWTY1dHdEcHpwblpoTk8yN3lwdzBuWkMtdHI5VFBjV2UtdF9INVpGSUJSMFFKaTFGRzdUVkVZUU00SV91cVo5b0FFYnJma0hRMlRzZ2UyZDd5Nm13?oc=5) |
 | Mueller's family tells NYT he has Parkinson's disease - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUkN6ZXFwWWdpckZvaEJLdGJkeGxPdno5VllTRFBWekVDSVE5eXlqZ0hzM1BYemNFNU5NUkRWSG5kdWpwOGVWUFNPc1hrQm1kdjBGMXdNdUxxelJJMnNDQTRyRlFCVUI3NHkzamN2NEJIcFY2OW10VWF3aUVOYVVNaldZak1hN0tPdlRxWU50SEg?oc=5) |
+| Trump Calls for Voter Identification for All U.S. Elections - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNb3gzSE8xWDFxbzZ3WDNlckVURVlZbzZ6OVUyNDJZMHNuWVBLZkdXenJrekxNdEh3UVpCSDV2ek1fNFA0dHJveVpCTER3RWlGWVUwWTY1dHdEcHpwblpoTk8yN3lwdzBuWkMtdHI5VFBjV2UtdF9INVpGSUJSMFFKaTFGRzdUVkVZUU00SV91cVo5b0FFYnJma0hRMlRzZ2UyZDd5Nm13?oc=5) |
 | Man Found Dead in Suspected Homicide at Burning Man, Attendees Told to ‘Be Vigilant’ - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPR25rUjRoSDl5YWN4T09TYi1LS0FGWS13RFJiQldsQ01DSWV5Z2VnQUN4YkRpUEEtNVRHOExvSFEyR1hla2J2c25pczFsSXQ2UTBSWkxtcFNLZVI3Mzk4eW5QM2FBNHI2ckU0VVphMHB2NHNOb2Z4QnJDLVBsbVpKaDN0bE84YlBZRXN3dllmNFdqMHBSWno3V3VjWHBxbVpTX3Ztd2o3UQ?oc=5) |
 | DHS Secretary Kristi Noem acknowledges ICE surge in Chicago; says National Guard deployment up to Trump - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE0xNUN6SkNmcEZMYmRPa3VkazIwV3JZQ1NWR1NNRWxVTUh1NlNmcUpTeHVqWDQyX1kzVk5MaFNYOWoxems4VmQxcEEtVG5zenRGcVYydUFKdWVvUXp6dG5wVE9WYXE3T0RFTGNPX3lseFZHaE5BeFFmTW9zcDJ1UWs?oc=5) |
 | Pope demands end to the 'pandemic of arms' as he prays for victims of Minnesota school shooting - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPdERzaUVPVGl1VHpmT0ZOSFpRdS0xMXhpN0R1ZEYzb0Zva0ZuYVlTSUZXT1FPeU9vNHA2Y1RiazVUVE5UTG8wZ0k0dXEzNENCVTNCYm96eXZCQk84SXdzd1lEcVhmZ2VGOFA1TEtwZUhFamFFQUJ2MkJlbi01WDZVRHNURXdPSjRUTHdEQzk0TQ?oc=5) |
