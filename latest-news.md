@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 22:33:22（北京时间）**
+🕒 更新时间：**2025年09月02日 22:40:33（北京时间）**
 
 ---
 
@@ -28,10 +28,10 @@
 | Man charged with murder after ‘ding dong ditch’ shooting - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE40UHU0WC0zMEw4UkdzNzR1ZlliY2dsdjQxWFdSMVRWY1k5Q1MyTnJrVUVqRjNndE00WlFEY2ZzTmplNzA5RzRhWk56aENQTjJzQzJqNXVMTXc5U2F0NW44NEhWcDBOdi1JYnpYRXJMMHdHMWtYNEhQUjQxZ3R3QQ?oc=5) |
 | Giuliani Finds a Home Away From Home in New Hampshire - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNRDlCVDlkVkFVak8xYUp2LVByYmowa0g1aWJhRXZGY2RaZUdhWW1yc21xMmpMdnZpRmZlek1ZbkwyTUF2YjZlMG5pT1N2RkZVZERMTXlTcEF0czgwRzZZSGFqVFhuSjJQWEdTdEt4VzkxYnFtX0tDTFMycm11WDNrM2xn?oc=5) |
 | The slow train from North Korea: How Kim Jong Un travels to China - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPTk90NXBQMjBCQW5BQWktOVJVcHdJTzZZSGsyQTFfV0NxTko3dzhvYWRET2NzaUdRT0VnMFY2TVNWS2pjME1fVnJfZWcxOERtRU1CSG9CTEhfSVRaLTFxX2ZHaWFGejZhTGtoaHk0YkRVMjN0aDBvY21CUnVOeUIteF9iVDdyUWhVeDZ6TDJMOVNEbTAzWkFYUXNWd1MySlVWSkE?oc=5) |
-| Jair Bolsonaro faces justice over alleged attempt to usurp Brazilian democracy - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQQVhDR1lJQkc4d2J0QVRUUjc0dVByRWRNYVR2a1NSeHBGTjZBS0ZvYVNNMS11Ry02NUpqQThSLWk2Zkc2UW1ORFowa0NEVlMzM1hvbWNZOXVTdjhsSFhTcDVBaHZxS2IwNGRlTUU2ZVZtc2d1RjU1T0lmT0VOdzAwdVNJZG1NNGxEbm1zMFFwbEtiako5djlNajRfaEVLdUFwNjFkZllvQVlIVE5wbG5ZV0dWYm5uS3pPQWRjRkw0SkhuUQ?oc=5) |
+| Trump admin live updates: Trump to make Oval Office announcement, White House says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPMmQ0cGtQMW5VMElldVRlX283cnVucnFIMjBvTDZJLU9ZcDFZSkpYbzdmQTVyUkh3cW9zY2xMNGNaVFE1TXh5OUFRa0FleG0zSFZZS2d1NjUtSkh2OEswUVRncHFmQ2wzT0l0WWIwWnA2aUFHX19CN3Z4aVJtdFM0UHlpRVJtdTdvX240?oc=5) |
 | Longtime Democratic Rep. Jerry Nadler to retire from Congress - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNaXc3cmRNdDdwV2RYOC1aUkdFZW14LXlDaE50d2RxU0Q3cWx3U1BSMFFITHkwN25nYWRLYUxkeERYWlktX1FHeEdacFhqeXBmWDJFN3BuYkhCRWpmVGlOWnpaaDZHTnBEZk5JUElIeDZLQXRZX0dybU43eGYtU1FGUm1BX1VmWU0?oc=5) |
 | University of Kentucky athlete charged after dead infant found hidden in closet - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOUFUtaEo1ZFIxU1RxdXFKbVZpUUQ5YkhnSUhHaGM4UHVhUUprWHR4NjA0cWFiNkJjYlVUeTFDNEstOE44bkhJaDRSMDhmc0V4Z2lZNDVHa3Y5VjF1Ymp6TGtyQW9XNTJLSmRVRjMwdWZ1c2VxWTJoajl1ZVl3SGc4N0JTSVRyUXFXdUJoVElDOE5NV05wdEJfS2Fndmd0TXdGUnc?oc=5) |
-| Trump’s ‘exciting announcement’ related to the Pentagon, White House says – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi4gFBVV95cUxOS0Zwbjh5ZlYwckRndFJQMDNHTkN3WXV5TnBWdVJLTG9odld2UVd5OU1yNFViR3Qtc19PdTRScFlyT21QcEk5Mm9yaFVpMncwSXF1My1MOUpJck50NVVPYXBLR2RNNkFzYWJoY3RsSVJ0VkFvb2IyNm9QMndEWDJfM2ZNWHg2NEtORHZxRFJ5N1hEQnJxMGNKaGtBeEh3cm94QkpIdTJDd2pZV0llQ3MyZWFlT0V5OUJLRkhMVDZsRFFpZllkbjU5ZGlNUFZsWV9uYlQ0ZlZPaVVDaFBLZWlmZkJ3?oc=5) |
+| "This is unacceptable": Former CDC directors condemn RFK's upheaval - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1VMkNqVUN2dG1uWHkyWmxCNGVCNWhBQzhlZmtfWXJrbWdaTTdYRjU0ZVFKWlhpM2JoOXJ2cmFtdDN1ZDJkYlpZUEh4QTYxWnhtczlQSXRQZHlOX08tMUtpRVAwUUE3Z01SZlJldkpNSDFoTUs4?oc=5) |
 | Alarm after FBI arrests US army veteran for ‘conspiracy’ over protest against Ice - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPYkJUbzZUY01QWlBvYUN6OTBZUzFFQmlxLWpLQk0tYnVITWgzNF9UOW5FVHJLYmY0Zm93VVlSeWh6VWtkcFJFbmxVRHJvdkNrTk16QWdlN3F5dHlrWWU1bjFvR1I0WWk1MllRQW43R2xGMEY5SE5KUjItak5MV2g2WWdMREtzc3c1cG12WW1wTQ?oc=5) |
 
 ---
