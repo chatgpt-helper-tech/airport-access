@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月03日 02:16:13（北京时间）**
+🕒 更新时间：**2025年09月03日 02:25:59（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump’s use of National Guard during Los Angeles immigration protests is illegal, a judge rules - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPVEMyVzNtRWNsQnkxeE0yZ1hmM295UGU1NVN3cDZOc2ZiZUZZcE5oNnZvT1lJLWhNNVZhY1pCSkpTYllBLTJWSERnOHJiYUZ3S1JTcFUzMlh3UFlIR0VpdWMtWWdkakNfZTNGY3E2VzFMbmRoZWwxbU9HT0ZZVl90UlVGVjlqZmNucngxNVNpWjZCdENxdm9XeFdqWmZrOVNl?oc=5) |
+| Trump illegally deployed national guard during LA Ice protests, judge rules - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPclItM0lXUEFvdUJRbXhBVl9XVFdsZHY1c0ZkbFVYSlM1SWtHZmhTN0o4cFZJcWtDTXgzYm16aDdaX1dzRHNXcUsyT3pYRE9vdklZdGljX3JyMk5CWlEzWG5pU3l4TEZPN09yczlpd0Fjd2RjOVVzczg0eWFhSUZRZ0dZc0w4TzF6dEhBZFVYWTdHTWo1UHdaUWN2TmE?oc=5) |
 | Trump will move Space Command from Colorado to Alabama - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOWWdOdnhkUEZkMW1aZWhfbkxtVGt1aGJQZEp1WllVRGZPQ1hrbktEY3E5S1JlVFhOU09yUDRoSUF5NW42bUV4Y3J0VkdvTXdjd0xXdmRNSEhXOFBIZHhueHAyMlFoLUZDeDNxRy02dDVuTmxoWTRlbnRObHlDenVoU2dyWQ?oc=5) |
 | Death toll climbs to over 1,400 after Afghanistan earthquake, official says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNQmxhOFhSMEwwaW40c1ZDalpPUmx0Z3lkWTRFR1pOSGplRmZYcmRNQTNzZE83T1BxMk9FNUVMald6STNVMVdIZDhhamtuVF9BYXZhWm42Z091d1Zud2dWemhBVTRaMjg4bTJLWEVJdkcxR082SUNoTzROTWdEZnhRXy1fMGxVVnVnRFlEQTdralVwUEdTZFhMLXZlONIBoAFBVV95cUxNYXg0UV9FMHp0UHFfUl9YY1ZyUFJmLVgwWGE5YVhYMzJaWXZxQWVaUHVPU29QUktJeWxRWElwS0tEaVFLcFBaMVdIU1h5YXg2SUVMNlU3emlkaXY4cXpvcmpZejFCa1UybVA3VUxoeUhjcE8xN0ZONk5yaEpwLThLZzZvMUszY19SdTl3Q1dzSGM1dHpGXzdOMUVNVlpieHZX?oc=5) |
 | Texas man charged with murder in shooting of child playing doorbell prank - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE45YkM3Q1ZXUms5Vjl3OVQzREpBakZtNHZJUjZmZkhMSWdhRWJERzVCamtkY1lzbGZrNGZ0Mm1DVzNSRnB3WE9UVzNSSzBEMTRWc3FEYlFUMG1yQdIBX0FVX3lxTE9rWWZia0J0WG9uV0puNWd2UG9rbmJxSnlkRG4zQkFUVW1rVTNiM19hV1liRzBQR0d2UER0UFFLbTZXVTRjYmtkS3hEN0VSWTBEV0VwcHpYV3lJLXJLaEdF?oc=5) |
 | Trump’s ‘exciting announcement’ related to the Pentagon, White House says – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi4gFBVV95cUxOS0Zwbjh5ZlYwckRndFJQMDNHTkN3WXV5TnBWdVJLTG9odld2UVd5OU1yNFViR3Qtc19PdTRScFlyT21QcEk5Mm9yaFVpMncwSXF1My1MOUpJck50NVVPYXBLR2RNNkFzYWJoY3RsSVJ0VkFvb2IyNm9QMndEWDJfM2ZNWHg2NEtORHZxRFJ5N1hEQnJxMGNKaGtBeEh3cm94QkpIdTJDd2pZV0llQ3MyZWFlT0V5OUJLRkhMVDZsRFFpZllkbjU5ZGlNUFZsWV9uYlQ0ZlZPaVVDaFBLZWlmZkJ3?oc=5) |
-| Plea for help after landslide wipes out Sudan village, kills 1,000 - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxPbWoxd0tDdDdyOGxyZDl5NnVpT3ZsdUlOcjVUcGtYUFdWZ1dlcHZnWkVjV2ZzT3h4VEx5WWtkbGlXWEljRmdEZ3RBQkZMN3VjVGhuMHRKQjZmMkt1U0FlTHgzS0hXVWpNYUpBTGZvbU5ucGZING9iTzNyOGZSTEZSVkR3VEJYbV90YlFlWTRFdFduZjZwSDE4QTlXNlNUMnlwbWUtYk1hRVRxam1vM2RrOGpjN0tLd0JzOFphTGl4S2RwaVFT?oc=5) |
+| Scientists Denounce Trump Administration’s Climate Report - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOazdVZmNOUmpaSm1WLWZhNnRVTXhjUGx0Y1BsUmJQV05EMlpDbmh5S29lNWx1MVJoaUYyaEdjRzlDNjR2NmJJbHNWUGhrZkxGRHJBMHhIN0Y0WGNTdlVQV3pyd1VrLW9IaHV3NVpzNVA2ai1MTjZTRTF5cXlDNGp4Tk94MVc2bnhjb1hHQ2FZQjJWQQ?oc=5) |
 | University of Kentucky athlete charged after dead infant found hidden in closet - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOUFUtaEo1ZFIxU1RxdXFKbVZpUUQ5YkhnSUhHaGM4UHVhUUprWHR4NjA0cWFiNkJjYlVUeTFDNEstOE44bkhJaDRSMDhmc0V4Z2lZNDVHa3Y5VjF1Ymp6TGtyQW9XNTJLSmRVRjMwdWZ1c2VxWTJoajl1ZVl3SGc4N0JTSVRyUXFXdUJoVElDOE5NV05wdEJfS2Fndmd0TXdGUnc?oc=5) |
 | Sen. Joni Ernst of Iowa confirms she will not run for reelection in 2026 - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOZ3dVajVFeVhPcndFZG5CLVJINjVqbU9pT0ZBNWdLOUtEeExlYXZKSFFLRTlEaUZaYU9jQkhPYlFsYnNRRVY1VEVfd2FwS1dEWjQyZ0ZtU0w3T2RheDhaNTJBeFAxSVp2VnQ1VFlzSnZId00zN205XzNWNS1IWlI2ZmZTSVR3c2NZbHU0NV9TaFBjSEplVHc?oc=5) |
 | Newsom rolls out ‘shock and awe’ ad campaign for redistricting measure - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNeFJtbmZPanMtX21XY0xMM0ptUUR3WldGTHNpdW4zYi1mWUhuM0JqRk0wRFNIT2Zob0hmdmtRRmR2dWFCemxPN2VFWVYyZlY1cENTeFppSUhhc3NDWE9Fb0ZyMnJSb05ZcUkzVV95VWR3X3RDZzFqY1E4RUd1Qmp6RFQtUnJPbTF2ckg1Sl9uekZPaVJTUkVVMW00OE9JY1hWeGZ3ZnVFV2I2U21sUHB0Tm5KTkJ4TlFhblE?oc=5) |
-| Grand jury refuses charges against woman accused of threatening President Trump, attorney says - WUSA9 | [阅读全文](https://news.google.com/rss/articles/CBMiwgJBVV95cUxObjF4YjZfWl9nb3hXcDZjRFdiazdIM2VfZzZ2OXNiSG1VWTB0bWx0Y09tajlMUzJ0NGpIOV85MmNVTEY4c0tWQlM2WTItM0RoWVl5WDg0ajBhMnhwM3BQcy16dWJHa1JUQXY0ZmZQVnVOXzVaMnNPeU16MmdJM2VLZEE5U3hGOWctZjU1S0FLU0k2blZqMzQzM0Q2TXJOamhYMlJRQ3VydG1WcjROenVLYTBoRkc0X2hBSEZXRS11U2cyUUNlN0NmT2tzWVNXRDVxM2F5ampNSEo2VHUxTV8tTDdGRWpvc1R6dlAzdWM2ZGs3MHJtWUFLVlVGOWFDR0JWVXA4cTh0VkllVjJUeXl4SENCQU5YcWZUNDNWM1Z1a0x5YXM0aVVlTzFpRmItOUhXOUItc3pNRWRGMjVSaWVpdmdB?oc=5) |
+| US court ruling on Trump's tariffs fuels market uncertainty - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNUkVtTEpBUk5QWkNGdFhGSUFycXZrWXZ6WlZxWnFHWUs3ZzRwX01pNnUxeVhjTkVXdXhsXzNTQW1adFRNU3o5NENsbXpCR2p0YjBpQ0xmNmtUazlYYTNXZXZ0REVPZW1aeFVXSXE3cDlPdzZzVTdld1JQZDNiZDBWcU1iSVdHTUxuUldmX3ZMNFVtVnc0dVNDM2h4V0p5al9SNnc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
