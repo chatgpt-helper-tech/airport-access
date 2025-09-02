@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 14:49:15（北京时间）**
+🕒 更新时间：**2025年09月02日 14:57:25（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Labor Day Protests Denounce Trump While Supporting Workers - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFAweGdBSjRaYTdBZExwdTItRmZDSTFXT0VPYjZOZzRhOG56TjBFRGJwdFp6RjkwQ2NuVnkxQjloaEJid21MVGJjZjBMdW1IcWc1QTczOGZEZ3JyaU54MHJ5Q0Q3MFhGc18zY2p2ZXRNNzVJSW80ZFE?oc=5) |
 | Rudy Giuliani Released From Hospital After Car Crash - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNb3RsbFNzQmx4SS1FT2doT09UOEkyc3ZtWDdLdnFaVlNRRnIzNVd6Qy1acDZSLWtEZHlXOEtsT0I1WTVxTEdlTTF5MzItRkJYeDhmejk1YjJfWnAtdnUtYVZud1AtNDBHdWd2cWQyX3h6RU9rd2V6cldUd0tVUEt6TDZINGItQjV6?oc=5) |
 | Democratic Rep. Jerry Nadler to retire from Congress, citing need for "generational change" in interview with The New York Times - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1hUWNNT0RpM2h2YXJFSklPYjdDRnhvUXRZYlZfWHV2cjdEbHQxQXBYVXFiVFpkUWs2c1lBeUpYeEpmOUZocVg5XzU3bXUtUUxNNENMYzFVQWNrMDhYS3N6Y3FlR1QxdkZWbkFXY1UxODBKU1dOTHZKT0xTNEZYQdIBgwFBVV95cUxON3I5Z0R3cUNWWVNpZE1LVlVoYXNwMG5ZZTY3bnQ5R01oUHpnRDJxLV9IUTZHa1VfU2Y5bFBwbFhFN1hTRFZpbmpzZUZKbWN6YU81dkR2TW9uTVg3b0R6ajU1TUJIY2VPdjE3WWt4UlNYM2I0dXdzY0JOYWdOMTFpcXBlYw?oc=5) |
-| What to know about Guatemalan migrant children and efforts to send them home - PBS | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOWXRrZmcwVmlYMHl0ZGpmb2JxNGREMEZfbk91RkpSZmxLUWdXMnlCU2Jlc0xqQ0NLUkdVbVF2R0hjcGd3NWhMR1dkYmh3TTJIWHhZSlI5OHNHLXdtZXFBdW5pTGdsVTI0MkxtS0tuYUxoVVpHQUE0b1BVak5ScldhUTFrNEFRdXIzUFlVT0dhRE5PSnBkWWNPTEhLbHNjNWo1Z2FGRXJpNUhFNHhRMld0ctIBtgFBVV95cUxQRkF3ZU9icXowaXBIUUZjLVRlWTM2a0VLNFN5c000Ry1GcXZnV21kRUdmckRTcS11ZHNQbkMxSXJfYy1zdWxBT0w0cXV6dndra3JHcHk3VEhRNHV5NFRKb2dzTVRadDMta2pDcGI0X3R5cHhiWmVVNEw0Ql9JOF9kWVFveHFPcUlaYmo1bDRsbk1ZVXBHM01GSUk4ZUZOeHRLY0pJY0NoQlZOR19MbzdSWEk2Z2ZVdw?oc=5) |
 | CNBC Daily Open: Even if the U.S. Supreme Court rules tariffs illegal, the case for them might not be closed - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQV0I4OF9jcmhUSk9yZHlGd2h1X0ZMR0tDeGIzQnlSUkRtSkhMRzFCWmlrN3dwTTNMQUkzOTBMNnB1d3dKU1RUdEtUbi10V1dPS3lMZTVoLTgtTkg0RTlUcGctYXNkSW1JRU02eFZYLVpua21FaF85clQwQUtKRjRWLTNad3RYSXdyeWd3Yk5CcmdmVGozV2dNNC0yaUViNWZhbnVsZdIBqgFBVV95cUxPMUlkM0owNnRLYmJXMTc5VDlfUzhodG9QMkxVRTNrdm1VZGhXUDJQLVdLMzdIWVJUNmYwbVJOOGdkSkE5dDV4V0ZHRXpXamlLSkpmTnNQeHNFa25XVWxncldWd0NiVnMzMmRJc0EyblBQQ2s3SGRzMUs2QXBSeHJuM1hRekVEaFE5cHRzZ3FVeGo1c3hPRG5abEZ1eFhyRWZSVTlnbE16U052UQ?oc=5) |
+| What to know about Guatemalan migrant children and efforts to send them home - PBS | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOWXRrZmcwVmlYMHl0ZGpmb2JxNGREMEZfbk91RkpSZmxLUWdXMnlCU2Jlc0xqQ0NLUkdVbVF2R0hjcGd3NWhMR1dkYmh3TTJIWHhZSlI5OHNHLXdtZXFBdW5pTGdsVTI0MkxtS0tuYUxoVVpHQUE0b1BVak5ScldhUTFrNEFRdXIzUFlVT0dhRE5PSnBkWWNPTEhLbHNjNWo1Z2FGRXJpNUhFNHhRMld0ctIBtgFBVV95cUxQRkF3ZU9icXowaXBIUUZjLVRlWTM2a0VLNFN5c000Ry1GcXZnV21kRUdmckRTcS11ZHNQbkMxSXJfYy1zdWxBT0w0cXV6dndra3JHcHk3VEhRNHV5NFRKb2dzTVRadDMta2pDcGI0X3R5cHhiWmVVNEw0Ql9JOF9kWVFveHFPcUlaYmo1bDRsbk1ZVXBHM01GSUk4ZUZOeHRLY0pJY0NoQlZOR19MbzdSWEk2Z2ZVdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
