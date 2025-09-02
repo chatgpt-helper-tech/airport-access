@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 18:33:56（北京时间）**
+🕒 更新时间：**2025年09月02日 18:40:11（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | North Korea's Kim Jong Un travels to Beijing to watch military parade alongside Putin and Xi Jinping - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOZm4tQTRCa0wwcUFDalhlUE9SNWZTVVhWVUJoOEdWZ0E0THZhOUF3T29DbURrSlZWWUlZSGFfcmFxWUlSXzZuRkpOUFhWOEJ0NGdsaXVVb3JkQ29rMUVlM2g1VkxRZ3E1OEJxbjRlMzdkbTkwV2RJdl9VWS14WEMzdkl4VlFtamUtNzE2NHA5ZktLaGtUbGxSTk9qMXVOQQ?oc=5) |
 | Rudy Giuliani Released From Hospital After Car Crash - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNb3RsbFNzQmx4SS1FT2doT09UOEkyc3ZtWDdLdnFaVlNRRnIzNVd6Qy1acDZSLWtEZHlXOEtsT0I1WTVxTEdlTTF5MzItRkJYeDhmejk1YjJfWnAtdnUtYVZud1AtNDBHdWd2cWQyX3h6RU9rd2V6cldUd0tVUEt6TDZINGItQjV6?oc=5) |
 | Trump says he'll honor Giuliani with Presidential Medal of Freedom - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE0xLTZwZG9xRnIzQURiakQxa3gwaTlEbEtVR2tHRUxtWlNTN19hZm5XTTFmbGtwQ3k1VC1ES0tzc0lKZjhoRWIyYlJ5VGtYdlZ3elR0SGt6MlM0ZTA3dHdNSUJhQTNxV3VwX0hXRW84V1F0Z2NIVUY5dzFKYUtodUU?oc=5) |
-| Stock futures fall at start of September amid new uncertainty about tariffs after court decision: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9KdDVBdFNUMk5nNEF2UnAyYWpySmNmTGk3WDJRc1VEWUhXNnd2OGlYcWdqeHJBbkxEbkVSMGVHSU15aTdTQzRHWGIzYmFEWHhFN1BNWklpZVdnYmNrTGhrNVY4Uk9TSEZQZGVMWmcxSFhlOGw1RTN30gF8QVVfeXFMUElFV0tQeUZtOTlNREU1RVk3OHRJeVd1NGtOUUtfZjhpR1lUN1hsUFA2LXNsZGg3eGlfcDV0ZlNvT3N2djFQeFpwc1VkeWFrR19NWF9zRlBkRldMT01mWG40emNldXlFaDA2NEl2amVJbmpCQjBLVFZ5RDJ5MQ?oc=5) |
-| Interviewed student to undergo surgery after Annunciation Church mass shooting - kare11.com | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxQVURXdm5vNDVlRTlGUWZWblR3Rm1zWkhncEQ2dlFoZXFiWDM0WDkzblhoempRM3Vkdk5PSTJsRENJOUhJSjJRaVlYbTRYVFdxOVdkMTRoNTRjdW05LTdNajVJb0hyazB3Vmpvei02WVBpUU8zd2N3NDV3RnVQV2llRDBtNGhwYUFHaTBqUDh5N1NxRTBQYm5NbTNYcUV5NVBPWHJ1aHRUXzM0WHNmb1FaRnlvcXNGNFdaOEVsdS1ScXcweXJMcnI1UXd3Qmc1cWt2R1BFVDY2RkRkaUh2dnZnaHNXTXp4S1RYRzl6anZ6OUc5UQ?oc=5) |
+| Bessent expects Supreme Court to uphold legality of Trump's tariffs but eyes Plan B - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxNV25hQkRadmZDZmhKM1pmY2liczg5YnNpUXJHVjhOSFcwOHc2WnM1VjlBTTBram1jNFVKbnlvTXpkaTQyMTRESnREN3FieGotdEpyT2ZaTVhvQjFMczF6dmJzcnFKTnQ5UGtybWRrd0NFZjhXOU1Nb0NUUFBBZXppX3duT09GSnFYbDFtODd4MzdPaXprMHF6RFNXTFpNUHd2ejY4ZkVhNDlYbTFjV3gybXUwTEdTYWc3LXVDWDNENDlXLUE?oc=5) |
+| Venezuela accuses the US of seeking 'regime change' - DW | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPLWozRUR0dExUYUd1Rl9OUGJRd0VWcEZnWkYwY0luOUpMU2xxX19WNXUybTk4RjR4YUtmRl9TQ000VGNDblAtM2Fybi1Lcmo3TmlXM21nQjkyQ2ZSLWhrUGhTd3I1TmZFWGM4TDdTUHpSV2I1X0UyaS1KZHJ6bll5VXgwUkU0ZjQ5TlHSAYoBQVVfeXFMTmFlQUI2T2REZTVrVzMxMzdNZ184dndVX0VNZUtOdWVXenJLeHBlRFBtcENMckx1UC1pUmF2OTVXbTlwcXpobkpTVTRIVTFiYm1MSlVyUUxRLWFYUTZIZFZITE9rSlJ1Q2ltdWpjYW1lWnVyVmdVU1RQai1BR0VYQXFUUFdJZC01dHBB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
