@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 12:01:16（北京时间）**
+🕒 更新时间：**2025年09月02日 12:08:56（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Afghanistan: Rescue efforts resume after earthquake kills more than 800 - follow live - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFA3VEx3UUZxR1htNE5uYm83bmIwZlpQMzlaZVlLbl83SWtTUmlZSTgxZHRIelZxNkxOeDluSlY5UUxrOUdvWWUtYmp5ei0zTkpSWjNMWA?oc=5) |
-| Labor Day Protests Denounce Trump While Supporting Workers - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFAweGdBSjRaYTdBZExwdTItRmZDSTFXT0VPYjZOZzRhOG56TjBFRGJwdFp6RjkwQ2NuVnkxQjloaEJid21MVGJjZjBMdW1IcWc1QTczOGZEZ3JyaU54MHJ5Q0Q3MFhGc18zY2p2ZXRNNzVJSW80ZFE?oc=5) |
+| Hundreds of ‘Workers Over Billionaires’ Labor Day rallies take place across US - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOYmptcU1FTjFYVnE3U3p1T0FfeENuM0hqU1FKQmRhb1Z6N3U0aDRMZC1HT2hGYnJENFV2WW5SNDhlOGM1YnhfWW5DNmh5MGNTcURnQUlaQ0Q3bWM3NHZ3UjgxLWRMVURyamtTMkEwZmQ1N01pLVdyTk5GSHRnRW9kVGVRbi1rZU1BZ0gtZm1oVW13M2ZEWVE?oc=5) |
 | Maduro vows to declare a "republic in arms" if U.S. forces in the Caribbean attack Venezuela - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1ha0ttZDlaU3dYVWJaS0Q0c1NfN21Ra0QtOFFCaTZmZ0hSekgzVmh2aXl4bHdNaTRrMmpuUXcxZlBpX3VjM19xOXluR2h3MjA2V21YbU1ZSTNmMm5IbnMyZUFWNWhDMXdJZnd6Wjd5ZzB1TWgx0gF6QVVfeXFMUHhrbk1oX2RCd3lldi1ZQW0zMlYxaXVxcW5Sc2pYR2NwbjBSYXgtbWJkVG1JT3dMYUotbVhNblI0WURkMTdTa3IyOVBZRHh3LWE4N096QUtTYUlJczdlUldraU9INjlkLUlRVktWWm5nUnNfbFNJYXVoR0E?oc=5) |
 | Trump says he'll honor Giuliani with Presidential Medal of Freedom - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE0xLTZwZG9xRnIzQURiakQxa3gwaTlEbEtVR2tHRUxtWlNTN19hZm5XTTFmbGtwQ3k1VC1ES0tzc0lKZjhoRWIyYlJ5VGtYdlZ3elR0SGt6MlM0ZTA3dHdNSUJhQTNxV3VwX0hXRW84V1F0Z2NIVUY5dzFKYUtodUU?oc=5) |
 | Trump raises fresh questions about Covid-19 vaccines that he says have ‘ripped apart’ CDC - CNN | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBUZmE5U0loMmNBUmt5TWdqS2E2b2Y1TVZsQVM1MTNkdFRtSkJqQ3JWMkdPOVZ3TWtKTGY0ODBJWDRSelFNNlNRU1lCdVAzeHlzY3VuS0gtclRtdzI4a29kV0tGcVpKeXFqWmZXNFBYdEo3Zw?oc=5) |
