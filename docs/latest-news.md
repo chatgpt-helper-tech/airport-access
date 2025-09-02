@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 13:32:39（北京时间）**
+🕒 更新时间：**2025年09月02日 13:40:12（北京时间）**
 
 ---
 
@@ -10,14 +10,14 @@
 |--------|-------------|
 | International students warned to not overstay visas | [阅读全文](https://www.bbc.com/news/articles/cn858lx34vvo?at_medium=RSS&at_campaign=rss) |
 | Body seen in secret mortuary could solve 50-year mystery of vanished religious leader | [阅读全文](https://www.bbc.com/news/articles/clyr1qr529xo?at_medium=RSS&at_campaign=rss) |
-| Justice secretary to get power to veto sentencing guidance | [阅读全文](https://www.bbc.com/news/articles/cn848g3ll09o?at_medium=RSS&at_campaign=rss) |
 | Chris Mason: Starmer faces pressure to deliver as he tries to strike contrast with Reform | [阅读全文](https://www.bbc.com/news/articles/c8jpj8knvn8o?at_medium=RSS&at_campaign=rss) |
-| Northern Lights potentially visible across much of the UK | [阅读全文](https://www.bbc.com/news/articles/c5yey8l59p1o?at_medium=RSS&at_campaign=rss) |
-| Dwayne Johnson: I was pigeon-holed as box office star | [阅读全文](https://www.bbc.com/news/articles/c626k017je2o?at_medium=RSS&at_campaign=rss) |
 | Russia's Putin hails 'unprecedented' ties with China as talks begin | [阅读全文](https://www.bbc.com/news/articles/cr4e4ngvvnro?at_medium=RSS&at_campaign=rss) |
+| Dwayne Johnson: I was pigeon-holed as box office star | [阅读全文](https://www.bbc.com/news/articles/c626k017je2o?at_medium=RSS&at_campaign=rss) |
+| Justice secretary to get power to veto sentencing guidance | [阅读全文](https://www.bbc.com/news/articles/cn848g3ll09o?at_medium=RSS&at_campaign=rss) |
+| Northern Lights potentially visible across much of the UK | [阅读全文](https://www.bbc.com/news/articles/c5yey8l59p1o?at_medium=RSS&at_campaign=rss) |
 | Scotland's drug deaths expected to remain worst in Europe | [阅读全文](https://www.bbc.com/news/articles/cvgn2gnkk93o?at_medium=RSS&at_campaign=rss) |
-| Dances With Wolves star Graham Greene dies aged 73 | [阅读全文](https://www.bbc.com/news/articles/c8606pdx23go?at_medium=RSS&at_campaign=rss) |
 | At least 1,000 killed in Sudan landslide, rebel group says | [阅读全文](https://www.bbc.com/news/articles/cdj2jygzzk9o?at_medium=RSS&at_campaign=rss) |
+| Dances With Wolves star Graham Greene dies aged 73 | [阅读全文](https://www.bbc.com/news/articles/c8606pdx23go?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | Rudy Giuliani Released From Hospital After Car Crash - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNb3RsbFNzQmx4SS1FT2doT09UOEkyc3ZtWDdLdnFaVlNRRnIzNVd6Qy1acDZSLWtEZHlXOEtsT0I1WTVxTEdlTTF5MzItRkJYeDhmejk1YjJfWnAtdnUtYVZud1AtNDBHdWd2cWQyX3h6RU9rd2V6cldUd0tVUEt6TDZINGItQjV6?oc=5) |
 | CNBC Daily Open: Even if the U.S. Supreme Court rules tariffs illegal, the case for them might not be closed - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQV0I4OF9jcmhUSk9yZHlGd2h1X0ZMR0tDeGIzQnlSUkRtSkhMRzFCWmlrN3dwTTNMQUkzOTBMNnB1d3dKU1RUdEtUbi10V1dPS3lMZTVoLTgtTkg0RTlUcGctYXNkSW1JRU02eFZYLVpua21FaF85clQwQUtKRjRWLTNad3RYSXdyeWd3Yk5CcmdmVGozV2dNNC0yaUViNWZhbnVsZdIBqgFBVV95cUxPMUlkM0owNnRLYmJXMTc5VDlfUzhodG9QMkxVRTNrdm1VZGhXUDJQLVdLMzdIWVJUNmYwbVJOOGdkSkE5dDV4V0ZHRXpXamlLSkpmTnNQeHNFa25XVWxncldWd0NiVnMzMmRJc0EyblBQQ2s3SGRzMUs2QXBSeHJuM1hRekVEaFE5cHRzZ3FVeGo1c3hPRG5abEZ1eFhyRWZSVTlnbE16U052UQ?oc=5) |
 | Former CDC directors say RFK Jr. is endangering Americans' health - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNbHBwdGF5dExucmVLVjBubldhcnQ4NXJIMWhaWUJUMFpxSmFxellMNkg4dG9LTHZxWTIwTmlMVEhnekR0bzRNUlJFYlBRYVl3S2hLenBkdkpiWi14YUQ5VlBVVUhmMF9hZkFWdVdVWnY0N0ZvWE9vd1c4N0R4dTlnVmpMQzRaUllDbHBVSThGanRmbEtKZHpQdWFfWldNM0lpOHNHU0N3V2zSAa4BQVVfeXFMUExKYnRjUENMN1RfOUc0R2plc1J2T2RuVjFWR3A0V2I1Y3BNU0FGX1cxQkxnNU13ODU4QjZmUGR4ZExfdFZqWjlYRnRxX085UGMxMFZKTnIyVjBYT2ZCc3QwT2p2dWZ0VUxmeDVXYjNKZkc1cTlWeTl1aUVXUVEzNTJoYkxNRUh4eXZSeVRWNkk5a3NNbXpwd0hqb2RrT1lVUmdmQTJ1SmFwUWdCcURR?oc=5) |
-| In windy Iowa, a GOP lawmaker faces a reckoning over Trump’s clean energy war - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxOaUpJRHZXSk56bGs0aUNVSzZuLVpFM2k2dW1WOWNkbkktc1ltaG9ucXRIZHRkYjdGd3JvbFRSQ1U1VS1DY2p3X2R1RnRjTmxnZ1VIVmg3T3dmbnZMYjVqb05BU2VkVXBVRnpacWwycm1KdThUZm00YmQzbjB0VEJRc0hqd0UwaERNdlJKUmE1aUlXMjFQUkwwejltbS1QM3pBOEFPckVZLTRRT2V2RmdIMUdvY0stMmEyUDVhMGdDWUdtR1N5YVViRGNSQXF6VnhMVHc?oc=5) |
+| Burning Man Homicide: Police Seek Help Identifying Victim - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOS0hIbWFoN0RYaDNPeF9GM2lrMnNaWktFOXdmNU9JbTI4cVhYN0JISnZjQWJYVmRDZS1UdlFEalgzdHVXQXZxQ2VDbkVWZzVzY3RDbm1vYlRlN2JNRGRYbkZpNWY5cmVmaFhqemR6TUkteDhPajdlUkgzNEQ1eVRaRC1LdUJreEJ2WmhDZ01JbjBsV3BLUWM5Z3hieXZ6cE9oNW1HZWpSR0tHSEJFMndUSGZZQVU1MVJURkE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
