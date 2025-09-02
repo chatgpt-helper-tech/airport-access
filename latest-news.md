@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 22:57:17（北京时间）**
+🕒 更新时间：**2025年09月02日 23:00:16（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | The slow train from North Korea: How Kim Jong Un travels to China - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPTk90NXBQMjBCQW5BQWktOVJVcHdJTzZZSGsyQTFfV0NxTko3dzhvYWRET2NzaUdRT0VnMFY2TVNWS2pjME1fVnJfZWcxOERtRU1CSG9CTEhfSVRaLTFxX2ZHaWFGejZhTGtoaHk0YkRVMjN0aDBvY21CUnVOeUIteF9iVDdyUWhVeDZ6TDJMOVNEbTAzWkFYUXNWd1MySlVWSkE?oc=5) |
 | Longtime Democratic Rep. Jerry Nadler to retire from Congress - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNaXc3cmRNdDdwV2RYOC1aUkdFZW14LXlDaE50d2RxU0Q3cWx3U1BSMFFITHkwN25nYWRLYUxkeERYWlktX1FHeEdacFhqeXBmWDJFN3BuYkhCRWpmVGlOWnpaaDZHTnBEZk5JUElIeDZLQXRZX0dybU43eGYtU1FGUm1BX1VmWU0?oc=5) |
 | Former CDC directors say RFK Jr. is endangering Americans' health - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNbHBwdGF5dExucmVLVjBubldhcnQ4NXJIMWhaWUJUMFpxSmFxellMNkg4dG9LTHZxWTIwTmlMVEhnekR0bzRNUlJFYlBRYVl3S2hLenBkdkpiWi14YUQ5VlBVVUhmMF9hZkFWdVdVWnY0N0ZvWE9vd1c4N0R4dTlnVmpMQzRaUllDbHBVSThGanRmbEtKZHpQdWFfWldNM0lpOHNHU0N3V2zSAa4BQVVfeXFMUExKYnRjUENMN1RfOUc0R2plc1J2T2RuVjFWR3A0V2I1Y3BNU0FGX1cxQkxnNU13ODU4QjZmUGR4ZExfdFZqWjlYRnRxX085UGMxMFZKTnIyVjBYT2ZCc3QwT2p2dWZ0VUxmeDVXYjNKZkc1cTlWeTl1aUVXUVEzNTJoYkxNRUh4eXZSeVRWNkk5a3NNbXpwd0hqb2RrT1lVUmdmQTJ1SmFwUWdCcURR?oc=5) |
-| Trump says he'll honor "patriot" Giuliani with Presidential Medal of Freedom - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE0xLTZwZG9xRnIzQURiakQxa3gwaTlEbEtVR2tHRUxtWlNTN19hZm5XTTFmbGtwQ3k1VC1ES0tzc0lKZjhoRWIyYlJ5VGtYdlZ3elR0SGt6MlM0ZTA3dHdNSUJhQTNxV3VwX0hXRW84V1F0Z2NIVUY5dzFKYUtodUU?oc=5) |
 | Alarm after FBI arrests US army veteran for ‘conspiracy’ over protest against Ice - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPYkJUbzZUY01QWlBvYUN6OTBZUzFFQmlxLWpLQk0tYnVITWgzNF9UOW5FVHJLYmY0Zm93VVlSeWh6VWtkcFJFbmxVRHJvdkNrTk16QWdlN3F5dHlrWWU1bjFvR1I0WWk1MllRQW43R2xGMEY5SE5KUjItak5MV2g2WWdMREtzc3c1cG12WW1wTQ?oc=5) |
+| Trump says he'll honor "patriot" Giuliani with Presidential Medal of Freedom - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE0xLTZwZG9xRnIzQURiakQxa3gwaTlEbEtVR2tHRUxtWlNTN19hZm5XTTFmbGtwQ3k1VC1ES0tzc0lKZjhoRWIyYlJ5VGtYdlZ3elR0SGt6MlM0ZTA3dHdNSUJhQTNxV3VwX0hXRW84V1F0Z2NIVUY5dzFKYUtodUU?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
