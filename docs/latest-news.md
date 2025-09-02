@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 15:09:34（北京时间）**
+🕒 更新时间：**2025年09月02日 15:17:34（北京时间）**
 
 ---
 
@@ -9,13 +9,13 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Chris Mason: Starmer faces pressure to deliver as he tries to strike contrast with Reform | [阅读全文](https://www.bbc.com/news/articles/c8jpj8knvn8o?at_medium=RSS&at_campaign=rss) |
-| International students warned to not overstay visas | [阅读全文](https://www.bbc.com/news/articles/cn858lx34vvo?at_medium=RSS&at_campaign=rss) |
 | Body seen in secret mortuary could solve 50-year mystery of vanished religious leader | [阅读全文](https://www.bbc.com/news/articles/clyr1qr529xo?at_medium=RSS&at_campaign=rss) |
 | Russia's Putin hails 'unprecedented' ties with China as talks begin | [阅读全文](https://www.bbc.com/news/articles/cr4e4ngvvnro?at_medium=RSS&at_campaign=rss) |
+| Power and a touch of paranoia as China prepares to host grand military parade | [阅读全文](https://www.bbc.com/news/articles/cn020wrnw78o?at_medium=RSS&at_campaign=rss) |
 | I was pigeon-holed as box office star, says Dwayne Johnson | [阅读全文](https://www.bbc.com/news/articles/c626k017je2o?at_medium=RSS&at_campaign=rss) |
-| Former Premier League footballers lost millions in investments | [阅读全文](https://www.bbc.com/sport/football/articles/cg7jn722rkeo?at_medium=RSS&at_campaign=rss) |
-| Justice secretary to get power to veto sentencing guidance | [阅读全文](https://www.bbc.com/news/articles/cn848g3ll09o?at_medium=RSS&at_campaign=rss) |
 | Northern Lights shine bright across much of the UK | [阅读全文](https://www.bbc.com/news/articles/c5yey8l59p1o?at_medium=RSS&at_campaign=rss) |
+| These ex-Premier League stars lost millions in investments. Now they are being chased by HMRC | [阅读全文](https://www.bbc.com/sport/football/articles/cg7jn722rkeo?at_medium=RSS&at_campaign=rss) |
+| Justice secretary to get power to veto sentencing guidance | [阅读全文](https://www.bbc.com/news/articles/cn848g3ll09o?at_medium=RSS&at_campaign=rss) |
 | Scotland's drug deaths expected to remain worst in Europe | [阅读全文](https://www.bbc.com/news/articles/cvgn2gnkk93o?at_medium=RSS&at_campaign=rss) |
 | At least 1,000 killed in Sudan landslide, armed group says | [阅读全文](https://www.bbc.com/news/articles/cdj2jygzzk9o?at_medium=RSS&at_campaign=rss) |
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Afghanistan: Rescue efforts resume after earthquake kills more than 800 - follow live - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFA3VEx3UUZxR1htNE5uYm83bmIwZlpQMzlaZVlLbl83SWtTUmlZSTgxZHRIelZxNkxOeDluSlY5UUxrOUdvWWUtYmp5ei0zTkpSWjNMWA?oc=5) |
 | China's Xi rolls out carpet for Ukraine war aggressors, sidelining Trump - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNcDZLdmdnNVBjT19VNUFLeXh6YnpscVRvTkZyY3J2V2pja2xsM1ZpeWVrVDhTUldFUE5SczlHcTRZT1dIMHZUVkVuQ0NIWTd4UWIzdDAzQVFfcENaZzQybXJTMjduaTBGMVNFWkRsa1duTWFJWC1URVNweXNYMld0N1pIdmxGejB0aUk0QWxIZy1vYXFITXRCMl85c0dmcnNMMzB3UC1uR2k3Ti02eTZNZFVsUHc1cjBjX1VYM3A4SF81TEZHaTRsQQ?oc=5) |
-| Maduro vows to declare a ‘republic in arms’ if US forces in the Caribbean attack Venezuela - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNcXU0X0c0WEM1bmhxTXRHRjJLR2JYUFVGRTBtZjNzRi1mcEd5UFNoM0NwcTdSWHE4aUh0el9tVjhXcF8xbWRGSFRTX2d5OGtNYU5DcUEtLVlRbUpEQUVkQ1RObUo1cDRsNnktOGlzcXQ0aEtWQk54eXdZanYxYm9hVzJ1bkd5WjRrU2dhYzVTT1RQVkpsR2tJbFlNQ2g1eDE4Rl9MOWI5SWJVZw?oc=5) |
+| Afghanistan: Rescue efforts resume after earthquake kills more than 800 - follow live - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFA3VEx3UUZxR1htNE5uYm83bmIwZlpQMzlaZVlLbl83SWtTUmlZSTgxZHRIelZxNkxOeDluSlY5UUxrOUdvWWUtYmp5ei0zTkpSWjNMWA?oc=5) |
 | Trump says he'll honor Giuliani with Presidential Medal of Freedom - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE0xLTZwZG9xRnIzQURiakQxa3gwaTlEbEtVR2tHRUxtWlNTN19hZm5XTTFmbGtwQ3k1VC1ES0tzc0lKZjhoRWIyYlJ5VGtYdlZ3elR0SGt6MlM0ZTA3dHdNSUJhQTNxV3VwX0hXRW84V1F0Z2NIVUY5dzFKYUtodUU?oc=5) |
+| Maduro vows to declare a ‘republic in arms’ if US forces in the Caribbean attack Venezuela - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNcXU0X0c0WEM1bmhxTXRHRjJLR2JYUFVGRTBtZjNzRi1mcEd5UFNoM0NwcTdSWHE4aUh0el9tVjhXcF8xbWRGSFRTX2d5OGtNYU5DcUEtLVlRbUpEQUVkQ1RObUo1cDRsNnktOGlzcXQ0aEtWQk54eXdZanYxYm9hVzJ1bkd5WjRrU2dhYzVTT1RQVkpsR2tJbFlNQ2g1eDE4Rl9MOWI5SWJVZw?oc=5) |
 | Trump raises fresh questions about Covid-19 vaccines that he says have ‘ripped apart’ CDC - CNN | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBUZmE5U0loMmNBUmt5TWdqS2E2b2Y1TVZsQVM1MTNkdFRtSkJqQ3JWMkdPOVZ3TWtKTGY0ODBJWDRSelFNNlNRU1lCdVAzeHlzY3VuS0gtclRtdzI4a29kV0tGcVpKeXFqWmZXNFBYdEo3Zw?oc=5) |
 | Labor Day Protests Denounce Trump While Supporting Workers - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFAweGdBSjRaYTdBZExwdTItRmZDSTFXT0VPYjZOZzRhOG56TjBFRGJwdFp6RjkwQ2NuVnkxQjloaEJid21MVGJjZjBMdW1IcWc1QTczOGZEZ3JyaU54MHJ5Q0Q3MFhGc18zY2p2ZXRNNzVJSW80ZFE?oc=5) |
 | Rudy Giuliani Released From Hospital After Car Crash - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNb3RsbFNzQmx4SS1FT2doT09UOEkyc3ZtWDdLdnFaVlNRRnIzNVd6Qy1acDZSLWtEZHlXOEtsT0I1WTVxTEdlTTF5MzItRkJYeDhmejk1YjJfWnAtdnUtYVZud1AtNDBHdWd2cWQyX3h6RU9rd2V6cldUd0tVUEt6TDZINGItQjV6?oc=5) |
