@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 08:33:01（北京时间）**
+🕒 更新时间：**2025年09月02日 08:41:20（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | Scotland scraps peak rail fares - will the rest of the UK follow? | [阅读全文](https://www.bbc.com/news/articles/czxp9zl0k90o?at_medium=RSS&at_campaign=rss) |
 | Watch: BBC analyses the warmth and hand-holding at Xi, Modi and Putin's summit | [阅读全文](https://www.bbc.com/news/videos/cn0r02zgjj4o?at_medium=RSS&at_campaign=rss) |
 | EU chief von der Leyen's plane hit by suspected Russian GPS jamming | [阅读全文](https://www.bbc.com/news/articles/c9d07z1439zo?at_medium=RSS&at_campaign=rss) |
-| Northern Lights potentially visible across much of the UK | [阅读全文](https://www.bbc.com/news/articles/c5yey8l59p1o?at_medium=RSS&at_campaign=rss) |
 | Justice secretary to get power to veto sentencing guidance | [阅读全文](https://www.bbc.com/news/articles/cn848g3ll09o?at_medium=RSS&at_campaign=rss) |
+| Northern Lights potentially visible across much of the UK | [阅读全文](https://www.bbc.com/news/articles/c5yey8l59p1o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | Von der Leyen’s plane hit by suspected Russian GPS jamming - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNX19SX1FpV3JOU1RoMjlXUzl3dWp3MDI4X1MtT3Jod2MySjFwQVBablFGMGVrMjVZcEhfeUEwMUdfZ0V6NmNuUkNPTzJHMy1wbGh0bk1ISVdoaGZnMWFkeF9tX1RFY2huNDVIaTlfWWJMQjJoQ09Jc2NLUElyRXFMZTllUmFnM2ZaNERQTHJB?oc=5) |
 | 1.2 million immigrants are gone from the U.S. workforce under Trump, preliminary data shows - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPM1lUMGZNWTZUTWdsLVBoTXBranFQOE5ZYkR0ckc5YmZGWVBZczdSaTRBTEw3VWNXSVBlYmtFTWE5VVpJQy1ZUHREVTVkUjhGRkZXOE0xakptNVpKQ3FoX3Ntc21vWS10TFM5R29LUjFyaURPZjdPY0FNZmhYbkJJWThaUWxMOEdzX1AxbVRxemU3NnVEdXR6c3c3Wm4zYUEwUmU2Y2VTMGV0cDFlXzlDVVhKMWdCeUNoNGJKZkdjZGxUcTjSAcgBQVVfeXFMTUNObEN6Qm1kUW1Rdm9PWHh0Q2ZHUTdXdnpyeTVXNXUySjJ3NWNZcjNiZ1g3aFF4WWlkcEF2RWhRN3Y1eUZRNFJIWjBiWFVyeHJBandkM2Y3Y0c5c29WZ3Z2d1RSZWZLNjgtdDZGRTVzN1Y2RnYzQ2duTDZsZG4tLXBnNm04a3MwN0M0QUUtNUd6Ylh2aGtaWlNrSER3ZlpGSUs0V0VCaXY0NlY4eUZCN2VZNDZRUEg0SUI2S0Rsbl9ScE1BTWxydnQ?oc=5) |
 | Stock futures are little changed to start September with new uncertainty about tariffs after court decision: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9KdDVBdFNUMk5nNEF2UnAyYWpySmNmTGk3WDJRc1VEWUhXNnd2OGlYcWdqeHJBbkxEbkVSMGVHSU15aTdTQzRHWGIzYmFEWHhFN1BNWklpZVdnYmNrTGhrNVY4Uk9TSEZQZGVMWmcxSFhlOGw1RTN30gF8QVVfeXFMUElFV0tQeUZtOTlNREU1RVk3OHRJeVd1NGtOUUtfZjhpR1lUN1hsUFA2LXNsZGg3eGlfcDV0ZlNvT3N2djFQeFpwc1VkeWFrR19NWF9zRlBkRldMT01mWG40emNldXlFaDA2NEl2amVJbmpCQjBLVFZ5RDJ5MQ?oc=5) |
-| Maduro vows to declare a "republic in arms" if U.S. forces in the Caribbean attack Venezuela - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1ha0ttZDlaU3dYVWJaS0Q0c1NfN21Ra0QtOFFCaTZmZ0hSekgzVmh2aXl4bHdNaTRrMmpuUXcxZlBpX3VjM19xOXluR2h3MjA2V21YbU1ZSTNmMm5IbnMyZUFWNWhDMXdJZnd6Wjd5ZzB1TWgx0gF6QVVfeXFMUHhrbk1oX2RCd3lldi1ZQW0zMlYxaXVxcW5Sc2pYR2NwbjBSYXgtbWJkVG1JT3dMYUotbVhNblI0WURkMTdTa3IyOVBZRHh3LWE4N096QUtTYUlJczdlUldraU9INjlkLUlRVktWWm5nUnNfbFNJYXVoR0E?oc=5) |
-| Interviewed student to undergo surgery after Annunciation Church mass shooting - kare11.com | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxQVURXdm5vNDVlRTlGUWZWblR3Rm1zWkhncEQ2dlFoZXFiWDM0WDkzblhoempRM3Vkdk5PSTJsRENJOUhJSjJRaVlYbTRYVFdxOVdkMTRoNTRjdW05LTdNajVJb0hyazB3Vmpvei02WVBpUU8zd2N3NDV3RnVQV2llRDBtNGhwYUFHaTBqUDh5N1NxRTBQYm5NbTNYcUV5NVBPWHJ1aHRUXzM0WHNmb1FaRnlvcXNGNFdaOEVsdS1ScXcweXJMcnI1UXd3Qmc1cWt2R1BFVDY2RkRkaUh2dnZnaHNXTXp4S1RYRzl6anZ6OUc5UQ?oc=5) |
+| 11-year-old boy shot and killed while playing "ding dong ditch" doorbell prank in Houston - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPY3RfWmlzT293YldIMFBLZUwtUFJLb2tUTUcwTVZVdWdfTG1ZRnA0QlJEakFSYWtjVWhZM0NjZHNQNnp3Rl9TdHJzVWtPS1p3ZW5selJLTy1QNE5JMmNFMXJXQTJ1dHpmNHpyVWRBWGpPRDc4bjJjdzlNS2xJMmtsQVZXRFNNODNQXzdEZEd0U0cyb3g0WUo5UFRuV2RWU0IxeXVoY3ByNNIBrAFBVV95cUxOV3BTMkN2anBGUGNheER5ajF5bG14dmFIeWdtQXA0WjlsRkJkTERvdWlqaTBObkhubE96bGgwOW5seGtCVnZqQ21tallCZHRkUC0xUGFubGk2d3RSUTRvTFhGMXcteDZkbTNhTG9FZzM4NzlTQzhpaW45WVJ2VEdOUkVsT29KS01Xd1hhRjV2X2czWllQY0ZHQi0tel9JUkEwMmJxZkY2dHlsYzdx?oc=5) |
+| Maduro vows to declare a 'republic in arms' if US forces in the Caribbean attack Venezuela - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOc2syTUJFdzJpWEl6N1g3R3JDYzNKZElDSktlN2o2ZGlfb3A2NTVrQ1R6QjdheFVWSEFNRkJxZk5sRm1FX0hRdHlicldyYjhjRzdzY2lzVkxxWTdTSlRNM0dGaDh1VVlIdk5SQlZRWk5MWkprQWQtMU1FY085ZnpYRDlsLTFQS2hqUGF5X1RNWDhIcHRpdVJyRU9PbG1qazBOeFdoZW5OdkIxWGlvRmFhT1lJcWthdl9rZ0UwVjR30gFWQVVfeXFMTlMxM3JHbm9FSUV3U0RwNzl6Y2Z6cXM3Sk9nbkxsQ2MycElRYk5DSUp1eFl2VzlMYnRqblZtV0Y4OWdrRUJna3dMUDZ6cHRXV2RLd2MyaGc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
