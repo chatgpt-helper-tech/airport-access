@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 11:57:06（北京时间）**
+🕒 更新时间：**2025年09月02日 12:01:16（北京时间）**
 
 ---
 
@@ -12,9 +12,9 @@
 | Body seen in secret mortuary could solve 50-year mystery of vanished religious leader | [阅读全文](https://www.bbc.com/news/articles/clyr1qr529xo?at_medium=RSS&at_campaign=rss) |
 | Scotland scraps peak rail fares - will the rest of the UK follow? | [阅读全文](https://www.bbc.com/news/articles/czxp9zl0k90o?at_medium=RSS&at_campaign=rss) |
 | At least 1,000 killed in Sudan landslide, rebel group says | [阅读全文](https://www.bbc.com/news/articles/cdj2jygzzk9o?at_medium=RSS&at_campaign=rss) |
-| Dwayne Johnson: I was pigeon-holed as box office star | [阅读全文](https://www.bbc.com/news/articles/c626k017je2o?at_medium=RSS&at_campaign=rss) |
-| Northern Lights potentially visible across much of the UK | [阅读全文](https://www.bbc.com/news/articles/c5yey8l59p1o?at_medium=RSS&at_campaign=rss) |
 | Justice secretary to get power to veto sentencing guidance | [阅读全文](https://www.bbc.com/news/articles/cn848g3ll09o?at_medium=RSS&at_campaign=rss) |
+| Northern Lights potentially visible across much of the UK | [阅读全文](https://www.bbc.com/news/articles/c5yey8l59p1o?at_medium=RSS&at_campaign=rss) |
+| Dwayne Johnson: I was pigeon-holed as box office star | [阅读全文](https://www.bbc.com/news/articles/c626k017je2o?at_medium=RSS&at_campaign=rss) |
 | Dances With Wolves star Graham Greene dies aged 73 | [阅读全文](https://www.bbc.com/news/articles/c8606pdx23go?at_medium=RSS&at_campaign=rss) |
 | Gaza flotilla with Greta Thunberg on board departs Barcelona | [阅读全文](https://www.bbc.com/news/articles/cn727mjn73lo?at_medium=RSS&at_campaign=rss) |
 | Isak joins Liverpool in £125m British record deal | [阅读全文](https://www.bbc.com/sport/football/articles/cly4my21lz7o?at_medium=RSS&at_campaign=rss) |
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Afghanistan: Rescue efforts resume after earthquake kills more than 800 - follow live - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFA3VEx3UUZxR1htNE5uYm83bmIwZlpQMzlaZVlLbl83SWtTUmlZSTgxZHRIelZxNkxOeDluSlY5UUxrOUdvWWUtYmp5ei0zTkpSWjNMWA?oc=5) |
-| Nationwide Labor Day protests denounce billionaires in Trump’s orbit - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOOVVQUEdPZU5na3RtNXZfaEZNME5mX25OeUNNQ3BDZ0taaTNpNHBLZG8wOG9hU2Q4UnhvNmQ0RXpoYS1CMzRyYzlCdDJEcE9ZLWR6YldRVTZabVhpcklxUnk1aEk1NFpiaExqZzdIcllZZGpTbFRDMlB6My1BNVdOaUJWRWlwa3ExNGdRZzJUNHpwMEY2T1h1R21GR2hHVk9TeDFoTVJDT3ZEbmstVUxTMVlER1U?oc=5) |
+| Labor Day Protests Denounce Trump While Supporting Workers - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFAweGdBSjRaYTdBZExwdTItRmZDSTFXT0VPYjZOZzRhOG56TjBFRGJwdFp6RjkwQ2NuVnkxQjloaEJid21MVGJjZjBMdW1IcWc1QTczOGZEZ3JyaU54MHJ5Q0Q3MFhGc18zY2p2ZXRNNzVJSW80ZFE?oc=5) |
 | Maduro vows to declare a "republic in arms" if U.S. forces in the Caribbean attack Venezuela - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1ha0ttZDlaU3dYVWJaS0Q0c1NfN21Ra0QtOFFCaTZmZ0hSekgzVmh2aXl4bHdNaTRrMmpuUXcxZlBpX3VjM19xOXluR2h3MjA2V21YbU1ZSTNmMm5IbnMyZUFWNWhDMXdJZnd6Wjd5ZzB1TWgx0gF6QVVfeXFMUHhrbk1oX2RCd3lldi1ZQW0zMlYxaXVxcW5Sc2pYR2NwbjBSYXgtbWJkVG1JT3dMYUotbVhNblI0WURkMTdTa3IyOVBZRHh3LWE4N096QUtTYUlJczdlUldraU9INjlkLUlRVktWWm5nUnNfbFNJYXVoR0E?oc=5) |
 | Trump says he'll honor Giuliani with Presidential Medal of Freedom - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE0xLTZwZG9xRnIzQURiakQxa3gwaTlEbEtVR2tHRUxtWlNTN19hZm5XTTFmbGtwQ3k1VC1ES0tzc0lKZjhoRWIyYlJ5VGtYdlZ3elR0SGt6MlM0ZTA3dHdNSUJhQTNxV3VwX0hXRW84V1F0Z2NIVUY5dzFKYUtodUU?oc=5) |
 | Trump raises fresh questions about Covid-19 vaccines that he says have ‘ripped apart’ CDC - CNN | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBUZmE5U0loMmNBUmt5TWdqS2E2b2Y1TVZsQVM1MTNkdFRtSkJqQ3JWMkdPOVZ3TWtKTGY0ODBJWDRSelFNNlNRU1lCdVAzeHlzY3VuS0gtclRtdzI4a29kV0tGcVpKeXFqWmZXNFBYdEo3Zw?oc=5) |
