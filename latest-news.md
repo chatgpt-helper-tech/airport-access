@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 17:56:40（北京时间）**
+🕒 更新时间：**2025年09月02日 18:01:29（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | Body seen in secret mortuary could solve 50-year mystery of vanished religious leader | [阅读全文](https://www.bbc.com/news/articles/clyr1qr529xo?at_medium=RSS&at_campaign=rss) |
 | Beijing tightens control ahead of Xi's big moment on world stage | [阅读全文](https://www.bbc.com/news/articles/cn020wrnw78o?at_medium=RSS&at_campaign=rss) |
-| Scottish drug deaths fall but remain worst in Europe | [阅读全文](https://www.bbc.com/news/articles/cvgn2gnkk93o?at_medium=RSS&at_campaign=rss) |
+| Scottish drug deaths fall but remain worst in Europe. Why are they still so high? | [阅读全文](https://www.bbc.com/news/articles/cvgn2gnkk93o?at_medium=RSS&at_campaign=rss) |
 | These ex-Premier League stars lost millions in investments. Now they are being chased by HMRC | [阅读全文](https://www.bbc.com/sport/football/articles/cg7jn722rkeo?at_medium=RSS&at_campaign=rss) |
 | Dwayne Johnson: I was pigeon-holed as blockbuster star | [阅读全文](https://www.bbc.com/news/articles/c626k017je2o?at_medium=RSS&at_campaign=rss) |
 | UK could see second night of dazzling Northern Lights | [阅读全文](https://www.bbc.com/news/articles/c5yey8l59p1o?at_medium=RSS&at_campaign=rss) |
