@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月03日 02:41:40（北京时间）**
+🕒 更新时间：**2025年09月03日 02:49:45（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Texas man charged with murder in shooting of child playing doorbell prank - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE45YkM3Q1ZXUms5Vjl3OVQzREpBakZtNHZJUjZmZkhMSWdhRWJERzVCamtkY1lzbGZrNGZ0Mm1DVzNSRnB3WE9UVzNSSzBEMTRWc3FEYlFUMG1yQdIBX0FVX3lxTE9rWWZia0J0WG9uV0puNWd2UG9rbmJxSnlkRG4zQkFUVW1rVTNiM19hV1liRzBQR0d2UER0UFFLbTZXVTRjYmtkS3hEN0VSWTBEV0VwcHpYV3lJLXJLaEdF?oc=5) |
 | Trump to make Oval Office announcement today, White House says - 6abc Philadelphia | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQeUZ2NUttakZST21PRWNSWHBpdV9WdUQ3WjBVRlBIMTNTRmp4QUV4ZHBpUldkSF9DbE5MdUVOWXBNcGZsbmtMRkRlTTJkd01FUVhrakpyM3ZPUmRwSEViaGlTQXFhTmQ1TEJsckI2TWNGSnFzOTFtOWE2cDhIbzJiWVRmb1Jzemgtb19DODdJR2FBZzJIUHFiMUZ3?oc=5) |
 | Sen. Joni Ernst of Iowa confirms she will not run for reelection in 2026 - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOZ3dVajVFeVhPcndFZG5CLVJINjVqbU9pT0ZBNWdLOUtEeExlYXZKSFFLRTlEaUZaYU9jQkhPYlFsYnNRRVY1VEVfd2FwS1dEWjQyZ0ZtU0w3T2RheDhaNTJBeFAxSVp2VnQ1VFlzSnZId00zN205XzNWNS1IWlI2ZmZTSVR3c2NZbHU0NV9TaFBjSEplVHc?oc=5) |
+| University of Kentucky athlete charged after dead infant found hidden in closet - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOUFUtaEo1ZFIxU1RxdXFKbVZpUUQ5YkhnSUhHaGM4UHVhUUprWHR4NjA0cWFiNkJjYlVUeTFDNEstOE44bkhJaDRSMDhmc0V4Z2lZNDVHa3Y5VjF1Ymp6TGtyQW9XNTJLSmRVRjMwdWZ1c2VxWTJoajl1ZVl3SGc4N0JTSVRyUXFXdUJoVElDOE5NV05wdEJfS2Fndmd0TXdGUnc?oc=5) |
 | Newsom rolls out ‘shock and awe’ ad campaign for redistricting measure - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNeFJtbmZPanMtX21XY0xMM0ptUUR3WldGTHNpdW4zYi1mWUhuM0JqRk0wRFNIT2Zob0hmdmtRRmR2dWFCemxPN2VFWVYyZlY1cENTeFppSUhhc3NDWE9Fb0ZyMnJSb05ZcUkzVV95VWR3X3RDZzFqY1E4RUd1Qmp6RFQtUnJPbTF2ckg1Sl9uekZPaVJTUkVVMW00OE9JY1hWeGZ3ZnVFV2I2U21sUHB0Tm5KTkJ4TlFhblE?oc=5) |
-| After Court Defeat, Trump Warns of Economic Chaos From Loss of Tariffs - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOTjc3Ti1VMFljb0JyczlaOGNNQW83XzV3YnFtSGxrQXhPSlV2cm9ZVW51QXN1SWJvb1VsRTZDSWdyNlYtLV8wU0xZZE9WTldhMm5iVk9RMDFteDFXOExDQzd6U2FiSnRfWks3OWt1aVNHUFp4S0dUQklFcTFFM2J6UVE0ZnptTGg3VkhPaUoxWjJiSDhOM21fMmxB?oc=5) |
-| Proud Boys members call for Pam Bondi's resignation for seeking to dismiss their $100 million lawsuit - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNU0FSTm1GX1cwSVBsM1RRcmVVOXNVOHdPUmpUYmh4UjZGT2RUdGxHYW8yQ2loSWVXbVNPbnh5dS05b3ZERkxieEtiNFJFM2czRGltNER5VVByRU9QTFk3WUtsNnRjRzJKOHRsRmtoR3I3T0Y4QTlIYXJndkpmV1FScmNkMVQ1UdIBiwFBVV95cUxNbnBKWUxoUzRxUVpwUnRPbjhUWXh6R2ZBaWNOTHo1Z2NWeXl2ckJoN3NnUDdtajhFV2Z3ZlZSNlBubWp3RFRlMmJhR2VJRGR0cEItd1RFbkJvdnRjaDdDT1JhMEdsZnI0b2Z5ZS1tRWZ4YVNJVWZ2aGoxRld2MTVwUVRma25XNTVSVnpZ?oc=5) |
+| Murkowski slams White House pocket rescission proposal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQRlRYd1czVXJudzU4dFRmenBDam10VnFWN2dKYzNxd0xUNXNYVndmaFB6VERSREM0ZHktcW83Q2R5Zk5yZ3R3RnJ4RW9FX2NHMkkzQ2pBZkdaWkpqZkFqcXBfOXJKMlhnbXRyY05rNXg5NFhiVHgxei13ZG1DcTFtZW5vUmJYUGxsQmNBRElZTThYUDE1TlhvWnVNdlJFOXZLdFRjd21QVWZBeXBITzgzTXB1bVFlZGs5OEJwb013?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
