@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 17:17:42（北京时间）**
+🕒 更新时间：**2025年09月02日 17:25:00（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Rudy Giuliani Released From Hospital After Car Crash - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNb3RsbFNzQmx4SS1FT2doT09UOEkyc3ZtWDdLdnFaVlNRRnIzNVd6Qy1acDZSLWtEZHlXOEtsT0I1WTVxTEdlTTF5MzItRkJYeDhmejk1YjJfWnAtdnUtYVZud1AtNDBHdWd2cWQyX3h6RU9rd2V6cldUd0tVUEt6TDZINGItQjV6?oc=5) |
 | Interviewed student to undergo surgery after Annunciation Church mass shooting - kare11.com | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxQVURXdm5vNDVlRTlGUWZWblR3Rm1zWkhncEQ2dlFoZXFiWDM0WDkzblhoempRM3Vkdk5PSTJsRENJOUhJSjJRaVlYbTRYVFdxOVdkMTRoNTRjdW05LTdNajVJb0hyazB3Vmpvei02WVBpUU8zd2N3NDV3RnVQV2llRDBtNGhwYUFHaTBqUDh5N1NxRTBQYm5NbTNYcUV5NVBPWHJ1aHRUXzM0WHNmb1FaRnlvcXNGNFdaOEVsdS1ScXcweXJMcnI1UXd3Qmc1cWt2R1BFVDY2RkRkaUh2dnZnaHNXTXp4S1RYRzl6anZ6OUc5UQ?oc=5) |
 | Stock futures fall at start of September amid new uncertainty about tariffs after court decision: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9KdDVBdFNUMk5nNEF2UnAyYWpySmNmTGk3WDJRc1VEWUhXNnd2OGlYcWdqeHJBbkxEbkVSMGVHSU15aTdTQzRHWGIzYmFEWHhFN1BNWklpZVdnYmNrTGhrNVY4Uk9TSEZQZGVMWmcxSFhlOGw1RTN30gF8QVVfeXFMUElFV0tQeUZtOTlNREU1RVk3OHRJeVd1NGtOUUtfZjhpR1lUN1hsUFA2LXNsZGg3eGlfcDV0ZlNvT3N2djFQeFpwc1VkeWFrR19NWF9zRlBkRldMT01mWG40emNldXlFaDA2NEl2amVJbmpCQjBLVFZ5RDJ5MQ?oc=5) |
-| Maduro says Venezuela ready to respond to US military presence in the Caribbean - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNcXU0X0c0WEM1bmhxTXRHRjJLR2JYUFVGRTBtZjNzRi1mcEd5UFNoM0NwcTdSWHE4aUh0el9tVjhXcF8xbWRGSFRTX2d5OGtNYU5DcUEtLVlRbUpEQUVkQ1RObUo1cDRsNnktOGlzcXQ0aEtWQk54eXdZanYxYm9hVzJ1bkd5WjRrU2dhYzVTT1RQVkpsR2tJbFlNQ2g1eDE4Rl9MOWI5SWJVZw?oc=5) |
+| Former CDC directors say RFK Jr. is endangering Americans' health - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNbHBwdGF5dExucmVLVjBubldhcnQ4NXJIMWhaWUJUMFpxSmFxellMNkg4dG9LTHZxWTIwTmlMVEhnekR0bzRNUlJFYlBRYVl3S2hLenBkdkpiWi14YUQ5VlBVVUhmMF9hZkFWdVdVWnY0N0ZvWE9vd1c4N0R4dTlnVmpMQzRaUllDbHBVSThGanRmbEtKZHpQdWFfWldNM0lpOHNHU0N3V2zSAa4BQVVfeXFMUExKYnRjUENMN1RfOUc0R2plc1J2T2RuVjFWR3A0V2I1Y3BNU0FGX1cxQkxnNU13ODU4QjZmUGR4ZExfdFZqWjlYRnRxX085UGMxMFZKTnIyVjBYT2ZCc3QwT2p2dWZ0VUxmeDVXYjNKZkc1cTlWeTl1aUVXUVEzNTJoYkxNRUh4eXZSeVRWNkk5a3NNbXpwd0hqb2RrT1lVUmdmQTJ1SmFwUWdCcURR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
