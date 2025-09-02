@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月03日 04:33:39（北京时间）**
+🕒 更新时间：**2025年09月03日 04:40:16（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump will ask Supreme Court for 'expedited ruling' on tariffs appeal - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOSG14NTVqWEhjbVNPNDlUdmozUE1DS2pENkRVWVZVbV9xVDAtNWRGWDlZQ1BWeGFsU2l6bmFBU2NFam43aGVXRmRxM2hFWmxTd3VTUHRvT1k2VjVYZm04MkZ6akFhRzhPM2tnanFUZzlFbXViSXBMamZmUEdMZlFuRTdsY9IBiAFBVV95cUxPT2trLUVCUVJkWE0zUnVfT3VZeGdyMHh0WEFXNDRRTWhBRXJZZDdjd09YQV8xUmtJQjVuNzAycWltN0VEWFY2Vnl4SW1TeWtqcmEydUFBdDMzamVNQlNkcjA2VlhvSnM0V2p2U2cyMmlDTGViVzFGcHJsek8tczR0VUdDX3JIcFBs?oc=5) |
 | Burning Man 2025: Murder investigation, baby delivery and massive dust storm - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxPT2ZSXzlycks4ZXZidHNyX1RKSENRNm5STThzSlNoXzFkSkYtczF2RDkzVGJnTmZ3clZ6Sy1SbkNpRktRQUZXV04yX3dtMnY0RVFaTFdUUi1lSEh0aHBpeTNkUGphMHJnVU9YdXZ0bE5YU0FjNU9hblRDMkZ3QUNnM2tVdHVKR0NxNW5CdjNZS1RFYUxHSExsMEw2Y18yQmtSTFdFbWROVnhyQjdwaFBfQmxseEFtVkpfdFJNMG5LYUlKdkJJbjl0V2tDdFYzZ2fSAVZBVV95cUxOUVRieFFrbHJFX1hCNDZCUW9rVTNlWGJpZjZ4VVlQOTJVUE9SckNSazdPdWpDNmNqejd2b2FWcW5fR28tLVhlZmsxdlhOaGFWSndHdlBkdw?oc=5) |
 | Newsom rolls out ‘shock and awe’ ad campaign for redistricting measure - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNeFJtbmZPanMtX21XY0xMM0ptUUR3WldGTHNpdW4zYi1mWUhuM0JqRk0wRFNIT2Zob0hmdmtRRmR2dWFCemxPN2VFWVYyZlY1cENTeFppSUhhc3NDWE9Fb0ZyMnJSb05ZcUkzVV95VWR3X3RDZzFqY1E4RUd1Qmp6RFQtUnJPbTF2ckg1Sl9uekZPaVJTUkVVMW00OE9JY1hWeGZ3ZnVFV2I2U21sUHB0Tm5KTkJ4TlFhblE?oc=5) |
-| University of Kentucky athlete charged after dead infant found hidden in closet - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOUFUtaEo1ZFIxU1RxdXFKbVZpUUQ5YkhnSUhHaGM4UHVhUUprWHR4NjA0cWFiNkJjYlVUeTFDNEstOE44bkhJaDRSMDhmc0V4Z2lZNDVHa3Y5VjF1Ymp6TGtyQW9XNTJLSmRVRjMwdWZ1c2VxWTJoajl1ZVl3SGc4N0JTSVRyUXFXdUJoVElDOE5NV05wdEJfS2Fndmd0TXdGUnc?oc=5) |
-| Donald Trump To Make Announcement on Department of Defense Today: Live Updates - Newsweek | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPTHJsZnI4OTlqdWRMRDhUSmsxT2xScjJ0TG92Vk01SnlUa04yNlFZR3padG5GU3g2Z1RlN2JNRU9FN1VTNUF5b2xIQzZPQ1I5eGpaNUJIUFlrMTVNRWJVT2w2aVoyc3BJcVRyOWszaU9FWHUtT3ptRXl4bFlfRmFzY3luVldyT3ZiU2pwTVhfQVFpUFRBOVcwdnozRQ?oc=5) |
+| WATCH LIVE: Donald Trump To Make Announcement on Department of Defense—Updates - Newsweek | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPTHJsZnI4OTlqdWRMRDhUSmsxT2xScjJ0TG92Vk01SnlUa04yNlFZR3padG5GU3g2Z1RlN2JNRU9FN1VTNUF5b2xIQzZPQ1I5eGpaNUJIUFlrMTVNRWJVT2w2aVoyc3BJcVRyOWszaU9FWHUtT3ptRXl4bFlfRmFzY3luVldyT3ZiU2pwTVhfQVFpUFRBOVcwdnozRQ?oc=5) |
+| Taliban call for international aid as Afghan earthquake toll tops 1,400 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQQXdNc2h5N2F5d01fZW05d2VfZWRHTndPdDNDaTc4NkExVjJoMGlZU0dKX2Zpd0hBSjk2Sk43b1RGQ21PU2xHbGZVSGFZX0VpcjVkWERwb29OZ1hfV3NWS0lqSGdIRkZoR3RPVi10d1BTV1RMdnBwTWF5bi1HN3RnZjNVVFptZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
