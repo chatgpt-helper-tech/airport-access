@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 12:41:19（北京时间）**
+🕒 更新时间：**2025年09月02日 12:48:41（北京时间）**
 
 ---
 
@@ -16,14 +16,14 @@
 | Northern Lights potentially visible across much of the UK | [阅读全文](https://www.bbc.com/news/articles/c5yey8l59p1o?at_medium=RSS&at_campaign=rss) |
 | Dwayne Johnson: I was pigeon-holed as box office star | [阅读全文](https://www.bbc.com/news/articles/c626k017je2o?at_medium=RSS&at_campaign=rss) |
 | Dances With Wolves star Graham Greene dies aged 73 | [阅读全文](https://www.bbc.com/news/articles/c8606pdx23go?at_medium=RSS&at_campaign=rss) |
+| Premier League summer spending surpasses record £3bn | [阅读全文](https://www.bbc.com/sport/football/articles/c20755y05ydo?at_medium=RSS&at_campaign=rss) |
 | Gaza flotilla with Greta Thunberg on board departs Barcelona | [阅读全文](https://www.bbc.com/news/articles/cn727mjn73lo?at_medium=RSS&at_campaign=rss) |
-| Isak joins Liverpool in £125m British record deal | [阅读全文](https://www.bbc.com/sport/football/articles/cly4my21lz7o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Afghanistan: Rescue efforts resume after earthquake kills more than 800 - follow live - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFA3VEx3UUZxR1htNE5uYm83bmIwZlpQMzlaZVlLbl83SWtTUmlZSTgxZHRIelZxNkxOeDluSlY5UUxrOUdvWWUtYmp5ei0zTkpSWjNMWA?oc=5) |
+| Afghanistan: Helicopter teams lead rescue after earthquake kills more than 800 - follow live - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFA3VEx3UUZxR1htNE5uYm83bmIwZlpQMzlaZVlLbl83SWtTUmlZSTgxZHRIelZxNkxOeDluSlY5UUxrOUdvWWUtYmp5ei0zTkpSWjNMWA?oc=5) |
 | Labor Day Protests Denounce Trump While Supporting Workers - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFAweGdBSjRaYTdBZExwdTItRmZDSTFXT0VPYjZOZzRhOG56TjBFRGJwdFp6RjkwQ2NuVnkxQjloaEJid21MVGJjZjBMdW1IcWc1QTczOGZEZ3JyaU54MHJ5Q0Q3MFhGc18zY2p2ZXRNNzVJSW80ZFE?oc=5) |
 | Maduro vows to declare a ‘republic in arms’ if US forces in the Caribbean attack Venezuela - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNcXU0X0c0WEM1bmhxTXRHRjJLR2JYUFVGRTBtZjNzRi1mcEd5UFNoM0NwcTdSWHE4aUh0el9tVjhXcF8xbWRGSFRTX2d5OGtNYU5DcUEtLVlRbUpEQUVkQ1RObUo1cDRsNnktOGlzcXQ0aEtWQk54eXdZanYxYm9hVzJ1bkd5WjRrU2dhYzVTT1RQVkpsR2tJbFlNQ2g1eDE4Rl9MOWI5SWJVZw?oc=5) |
 | Trump says he'll honor Giuliani with Presidential Medal of Freedom - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE0xLTZwZG9xRnIzQURiakQxa3gwaTlEbEtVR2tHRUxtWlNTN19hZm5XTTFmbGtwQ3k1VC1ES0tzc0lKZjhoRWIyYlJ5VGtYdlZ3elR0SGt6MlM0ZTA3dHdNSUJhQTNxV3VwX0hXRW84V1F0Z2NIVUY5dzFKYUtodUU?oc=5) |
@@ -31,7 +31,7 @@
 | Democratic Rep. Jerry Nadler to retire from Congress, citing need for "generational change" in interview with The New York Times - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1hUWNNT0RpM2h2YXJFSklPYjdDRnhvUXRZYlZfWHV2cjdEbHQxQXBYVXFiVFpkUWs2c1lBeUpYeEpmOUZocVg5XzU3bXUtUUxNNENMYzFVQWNrMDhYS3N6Y3FlR1QxdkZWbkFXY1UxODBKU1dOTHZKT0xTNEZYQdIBgwFBVV95cUxON3I5Z0R3cUNWWVNpZE1LVlVoYXNwMG5ZZTY3bnQ5R01oUHpnRDJxLV9IUTZHa1VfU2Y5bFBwbFhFN1hTRFZpbmpzZUZKbWN6YU81dkR2TW9uTVg3b0R6ajU1TUJIY2VPdjE3WWt4UlNYM2I0dXdzY0JOYWdOMTFpcXBlYw?oc=5) |
 | Rudy Giuliani Released From Hospital After Car Crash - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNb3RsbFNzQmx4SS1FT2doT09UOEkyc3ZtWDdLdnFaVlNRRnIzNVd6Qy1acDZSLWtEZHlXOEtsT0I1WTVxTEdlTTF5MzItRkJYeDhmejk1YjJfWnAtdnUtYVZud1AtNDBHdWd2cWQyX3h6RU9rd2V6cldUd0tVUEt6TDZINGItQjV6?oc=5) |
 | Former CDC directors say RFK Jr. is endangering Americans' health - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNbHBwdGF5dExucmVLVjBubldhcnQ4NXJIMWhaWUJUMFpxSmFxellMNkg4dG9LTHZxWTIwTmlMVEhnekR0bzRNUlJFYlBRYVl3S2hLenBkdkpiWi14YUQ5VlBVVUhmMF9hZkFWdVdVWnY0N0ZvWE9vd1c4N0R4dTlnVmpMQzRaUllDbHBVSThGanRmbEtKZHpQdWFfWldNM0lpOHNHU0N3V2zSAa4BQVVfeXFMUExKYnRjUENMN1RfOUc0R2plc1J2T2RuVjFWR3A0V2I1Y3BNU0FGX1cxQkxnNU13ODU4QjZmUGR4ZExfdFZqWjlYRnRxX085UGMxMFZKTnIyVjBYT2ZCc3QwT2p2dWZ0VUxmeDVXYjNKZkc1cTlWeTl1aUVXUVEzNTJoYkxNRUh4eXZSeVRWNkk5a3NNbXpwd0hqb2RrT1lVUmdmQTJ1SmFwUWdCcURR?oc=5) |
-| Bessent expects Supreme Court to uphold legality of Trump's tariffs but eyes Plan B - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxNV25hQkRadmZDZmhKM1pmY2liczg5YnNpUXJHVjhOSFcwOHc2WnM1VjlBTTBram1jNFVKbnlvTXpkaTQyMTRESnREN3FieGotdEpyT2ZaTVhvQjFMczF6dmJzcnFKTnQ5UGtybWRrd0NFZjhXOU1Nb0NUUFBBZXppX3duT09GSnFYbDFtODd4MzdPaXprMHF6RFNXTFpNUHd2ejY4ZkVhNDlYbTFjV3gybXUwTEdTYWc3LXVDWDNENDlXLUE?oc=5) |
+| CNBC Daily Open: Even if the U.S. Supreme Court rules tariffs illegal, the case for them might not be closed - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQV0I4OF9jcmhUSk9yZHlGd2h1X0ZMR0tDeGIzQnlSUkRtSkhMRzFCWmlrN3dwTTNMQUkzOTBMNnB1d3dKU1RUdEtUbi10V1dPS3lMZTVoLTgtTkg0RTlUcGctYXNkSW1JRU02eFZYLVpua21FaF85clQwQUtKRjRWLTNad3RYSXdyeWd3Yk5CcmdmVGozV2dNNC0yaUViNWZhbnVsZdIBqgFBVV95cUxPMUlkM0owNnRLYmJXMTc5VDlfUzhodG9QMkxVRTNrdm1VZGhXUDJQLVdLMzdIWVJUNmYwbVJOOGdkSkE5dDV4V0ZHRXpXamlLSkpmTnNQeHNFa25XVWxncldWd0NiVnMzMmRJc0EyblBQQ2s3SGRzMUs2QXBSeHJuM1hRekVEaFE5cHRzZ3FVeGo1c3hPRG5abEZ1eFhyRWZSVTlnbE16U052UQ?oc=5) |
 | In windy Iowa, a GOP lawmaker faces a reckoning over Trump’s clean energy war - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxOaUpJRHZXSk56bGs0aUNVSzZuLVpFM2k2dW1WOWNkbkktc1ltaG9ucXRIZHRkYjdGd3JvbFRSQ1U1VS1DY2p3X2R1RnRjTmxnZ1VIVmg3T3dmbnZMYjVqb05BU2VkVXBVRnpacWwycm1KdThUZm00YmQzbjB0VEJRc0hqd0UwaERNdlJKUmE1aUlXMjFQUkwwejltbS1QM3pBOEFPckVZLTRRT2V2RmdIMUdvY0stMmEyUDVhMGdDWUdtR1N5YVViRGNSQXF6VnhMVHc?oc=5) |
 
 ---
