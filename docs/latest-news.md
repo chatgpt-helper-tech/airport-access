@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 12:57:07（北京时间）**
+🕒 更新时间：**2025年09月02日 13:01:35（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Rudy Giuliani Released From Hospital After Car Crash - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNb3RsbFNzQmx4SS1FT2doT09UOEkyc3ZtWDdLdnFaVlNRRnIzNVd6Qy1acDZSLWtEZHlXOEtsT0I1WTVxTEdlTTF5MzItRkJYeDhmejk1YjJfWnAtdnUtYVZud1AtNDBHdWd2cWQyX3h6RU9rd2V6cldUd0tVUEt6TDZINGItQjV6?oc=5) |
 | CNBC Daily Open: Even if the U.S. Supreme Court rules tariffs illegal, the case for them might not be closed - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQV0I4OF9jcmhUSk9yZHlGd2h1X0ZMR0tDeGIzQnlSUkRtSkhMRzFCWmlrN3dwTTNMQUkzOTBMNnB1d3dKU1RUdEtUbi10V1dPS3lMZTVoLTgtTkg0RTlUcGctYXNkSW1JRU02eFZYLVpua21FaF85clQwQUtKRjRWLTNad3RYSXdyeWd3Yk5CcmdmVGozV2dNNC0yaUViNWZhbnVsZdIBqgFBVV95cUxPMUlkM0owNnRLYmJXMTc5VDlfUzhodG9QMkxVRTNrdm1VZGhXUDJQLVdLMzdIWVJUNmYwbVJOOGdkSkE5dDV4V0ZHRXpXamlLSkpmTnNQeHNFa25XVWxncldWd0NiVnMzMmRJc0EyblBQQ2s3SGRzMUs2QXBSeHJuM1hRekVEaFE5cHRzZ3FVeGo1c3hPRG5abEZ1eFhyRWZSVTlnbE16U052UQ?oc=5) |
 | In windy Iowa, a GOP lawmaker faces a reckoning over Trump’s clean energy war - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxOaUpJRHZXSk56bGs0aUNVSzZuLVpFM2k2dW1WOWNkbkktc1ltaG9ucXRIZHRkYjdGd3JvbFRSQ1U1VS1DY2p3X2R1RnRjTmxnZ1VIVmg3T3dmbnZMYjVqb05BU2VkVXBVRnpacWwycm1KdThUZm00YmQzbjB0VEJRc0hqd0UwaERNdlJKUmE1aUlXMjFQUkwwejltbS1QM3pBOEFPckVZLTRRT2V2RmdIMUdvY0stMmEyUDVhMGdDWUdtR1N5YVViRGNSQXF6VnhMVHc?oc=5) |
-| Former CDC directors say RFK Jr. is endangering Americans' health - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNbHBwdGF5dExucmVLVjBubldhcnQ4NXJIMWhaWUJUMFpxSmFxellMNkg4dG9LTHZxWTIwTmlMVEhnekR0bzRNUlJFYlBRYVl3S2hLenBkdkpiWi14YUQ5VlBVVUhmMF9hZkFWdVdVWnY0N0ZvWE9vd1c4N0R4dTlnVmpMQzRaUllDbHBVSThGanRmbEtKZHpQdWFfWldNM0lpOHNHU0N3V2zSAa4BQVVfeXFMUExKYnRjUENMN1RfOUc0R2plc1J2T2RuVjFWR3A0V2I1Y3BNU0FGX1cxQkxnNU13ODU4QjZmUGR4ZExfdFZqWjlYRnRxX085UGMxMFZKTnIyVjBYT2ZCc3QwT2p2dWZ0VUxmeDVXYjNKZkc1cTlWeTl1aUVXUVEzNTJoYkxNRUh4eXZSeVRWNkk5a3NNbXpwd0hqb2RrT1lVUmdmQTJ1SmFwUWdCcURR?oc=5) |
+| A look at the Old Faithful Inn, a human-made treasure inside Yellowstone National Park - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9PSTlhWHRtSHlGY3FMVHB6bS16TFFxMHFtS3JZR0tkZWpEMDFWZUJUOFBxdEpWZDdJNzB2d18zUUhDbzZVOVZiY05ObS1nVXRoRXN5LVF6UW5JQy16YzJ6WjFhQWg2dW5jSWxNaHpTYzlGN2htSE9jc2g1QzfSAYIBQVVfeXFMTmZFTVpSZEFEZlYtcnFYcU1uMUxrcFlfak5TcDN3UjF4ZVBtU2xlckJaZXB4N3RHN1dvQXdTbklHZFVlVkwzdFk5QzB6TXZFRTAwZno4Sk5ZVWtjV2hUclVUM2NGcHB1ajl6b295XzQtTWtvdXdoMHVWV1lpdnQ1blRiUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
