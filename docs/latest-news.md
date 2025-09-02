@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 19:48:11（北京时间）**
+🕒 更新时间：**2025年09月02日 19:56:48（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | Former actor Zack Polanski elected leader of the Green Party | [阅读全文](https://www.bbc.com/news/articles/cd0d0d08jnjo?at_medium=RSS&at_campaign=rss) |
 | UK borrowing costs hit 27-year high adding to pressure on Reeves | [阅读全文](https://www.bbc.com/news/articles/cy989njnq2wo?at_medium=RSS&at_campaign=rss) |
 | Beijing tightens control ahead of Xi's big moment on world stage | [阅读全文](https://www.bbc.com/news/articles/cn020wrnw78o?at_medium=RSS&at_campaign=rss) |
+| International students warned not to overstay visas | [阅读全文](https://www.bbc.com/news/articles/cn858lx34vvo?at_medium=RSS&at_campaign=rss) |
 | Dwayne Johnson: I was pigeon-holed as blockbuster star | [阅读全文](https://www.bbc.com/news/articles/c626k017je2o?at_medium=RSS&at_campaign=rss) |
 | These ex-Premier League stars lost millions in investments. Now they are being chased by HMRC | [阅读全文](https://www.bbc.com/sport/football/articles/cg7jn722rkeo?at_medium=RSS&at_campaign=rss) |
 | Gold price hits record high as investors seek safety | [阅读全文](https://www.bbc.com/news/articles/ceqyq7r8703o?at_medium=RSS&at_campaign=rss) |
 | Scottish drug deaths fall but remain worst in Europe. Why are they still so high? | [阅读全文](https://www.bbc.com/news/articles/cvgn2gnkk93o?at_medium=RSS&at_campaign=rss) |
 | UK could see second night of dazzling Northern Lights | [阅读全文](https://www.bbc.com/news/articles/c5yey8l59p1o?at_medium=RSS&at_campaign=rss) |
 | Aerial search for survivors after Afghan quake kills 800 people | [阅读全文](https://www.bbc.com/news/articles/cpqvqeg3nz5o?at_medium=RSS&at_campaign=rss) |
-| How real is Love Is Blind? Behind the pods, edits and drama | [阅读全文](https://www.bbc.com/news/articles/c939edkn4j4o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
