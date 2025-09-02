@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 16:17:20（北京时间）**
+🕒 更新时间：**2025年09月02日 16:25:58（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Afghanistan: Helicopter teams lead rescue after earthquake kills more than 800 - follow live - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFA3VEx3UUZxR1htNE5uYm83bmIwZlpQMzlaZVlLbl83SWtTUmlZSTgxZHRIelZxNkxOeDluSlY5UUxrOUdvWWUtYmp5ei0zTkpSWjNMWA?oc=5) |
 | Photos: Labor Day "Workers Over Billionaires" protests held across U.S. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOWVhYaEdrR1ZoX21LLVVzNWZVaW9uMjFVRmx2TXQtY20wSHJxM0NXbU4xS2hPanVobDBxWjh3eGxERU1hYkkzYXJVbWVsNk9rM2U0RmVNM2VES0NWbTNDalNPelBfMmVSZm0wRW1pMUVqODFqRHp3TjA2dWFIdFZEbUxCWHJULU1sV21fTWFJRlI5OWFf?oc=5) |
-| Trump raises fresh questions about Covid-19 vaccines that he says have ‘ripped apart’ CDC - CNN | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBUZmE5U0loMmNBUmt5TWdqS2E2b2Y1TVZsQVM1MTNkdFRtSkJqQ3JWMkdPOVZ3TWtKTGY0ODBJWDRSelFNNlNRU1lCdVAzeHlzY3VuS0gtclRtdzI4a29kV0tGcVpKeXFqWmZXNFBYdEo3Zw?oc=5) |
 | North Korea's Kim Jong Un travels to Beijing to watch military parade alongside Putin and Xi Jinping - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOZm4tQTRCa0wwcUFDalhlUE9SNWZTVVhWVUJoOEdWZ0E0THZhOUF3T29DbURrSlZWWUlZSGFfcmFxWUlSXzZuRkpOUFhWOEJ0NGdsaXVVb3JkQ29rMUVlM2g1VkxRZ3E1OEJxbjRlMzdkbTkwV2RJdl9VWS14WEMzdkl4VlFtamUtNzE2NHA5ZktLaGtUbGxSTk9qMXVOQQ?oc=5) |
+| Trump raises fresh questions about Covid-19 vaccines that he says have ‘ripped apart’ CDC - CNN | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBUZmE5U0loMmNBUmt5TWdqS2E2b2Y1TVZsQVM1MTNkdFRtSkJqQ3JWMkdPOVZ3TWtKTGY0ODBJWDRSelFNNlNRU1lCdVAzeHlzY3VuS0gtclRtdzI4a29kV0tGcVpKeXFqWmZXNFBYdEo3Zw?oc=5) |
 | Democratic Rep. Jerry Nadler to retire from Congress, citing need for "generational change" in interview with The New York Times - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1hUWNNT0RpM2h2YXJFSklPYjdDRnhvUXRZYlZfWHV2cjdEbHQxQXBYVXFiVFpkUWs2c1lBeUpYeEpmOUZocVg5XzU3bXUtUUxNNENMYzFVQWNrMDhYS3N6Y3FlR1QxdkZWbkFXY1UxODBKU1dOTHZKT0xTNEZYQdIBgwFBVV95cUxON3I5Z0R3cUNWWVNpZE1LVlVoYXNwMG5ZZTY3bnQ5R01oUHpnRDJxLV9IUTZHa1VfU2Y5bFBwbFhFN1hTRFZpbmpzZUZKbWN6YU81dkR2TW9uTVg3b0R6ajU1TUJIY2VPdjE3WWt4UlNYM2I0dXdzY0JOYWdOMTFpcXBlYw?oc=5) |
 | Rudy Giuliani Released From Hospital After Car Crash - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNb3RsbFNzQmx4SS1FT2doT09UOEkyc3ZtWDdLdnFaVlNRRnIzNVd6Qy1acDZSLWtEZHlXOEtsT0I1WTVxTEdlTTF5MzItRkJYeDhmejk1YjJfWnAtdnUtYVZud1AtNDBHdWd2cWQyX3h6RU9rd2V6cldUd0tVUEt6TDZINGItQjV6?oc=5) |
 | Trump says he will award Rudy Giuliani the Presidential Medal of Freedom - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNdEc0N1BQWHlKeVNRM2pxOEZnTzB6Z2cwSjBuRmp6Q0FRZ1lKaVNKN055Y2RQcmpvTHN1MjViMHBUbzg5MlVDZ1EyMkVkUFg4OUt0M0RXbnYyTTRDejFoQzJrdHNydlU3bHFLZjhxV1pjLUFlX3VBNlN1VlZLQXZ2c3E4WVdRM3I1MXE0S2VVMU1ZZlhSd3RIUDcwNVZuUQ?oc=5) |
