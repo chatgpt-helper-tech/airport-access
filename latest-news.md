@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月02日 20:01:08（北京时间）**
+🕒 更新时间：**2025年09月02日 20:09:16（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | The slow train from North Korea: How Kim Jong Un travels to China - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPWVlpMFA5ZkdZRnFFcnpnd2l0OHI5MFV4VWlfSUNLN3FSYnR3NlJueVJmX0d5WlItVjJja3BHYnk5b2VuR0xnRE01c3A1Z21LYmhWT0IydlZEU20xamk0OFc5alktNm5NdGpzeW80VXJrUElrb01YbXJRRFl1M29xY2x4UXJuZko3dTEydl8yZDJOUGgyR25Fc2F6dWtaeE5WLWc?oc=5) |
 | Trump says he'll honor Giuliani with Presidential Medal of Freedom - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE0xLTZwZG9xRnIzQURiakQxa3gwaTlEbEtVR2tHRUxtWlNTN19hZm5XTTFmbGtwQ3k1VC1ES0tzc0lKZjhoRWIyYlJ5VGtYdlZ3elR0SGt6MlM0ZTA3dHdNSUJhQTNxV3VwX0hXRW84V1F0Z2NIVUY5dzFKYUtodUU?oc=5) |
 | Giuliani Finds a Home Away From Home in New Hampshire - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNRDlCVDlkVkFVak8xYUp2LVByYmowa0g1aWJhRXZGY2RaZUdhWW1yc21xMmpMdnZpRmZlek1ZbkwyTUF2YjZlMG5pT1N2RkZVZERMTXlTcEF0czgwRzZZSGFqVFhuSjJQWEdTdEt4VzkxYnFtX0tDTFMycm11WDNrM2xn?oc=5) |
-| Stock futures fall at start of September amid new uncertainty about tariffs after court decision: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9KdDVBdFNUMk5nNEF2UnAyYWpySmNmTGk3WDJRc1VEWUhXNnd2OGlYcWdqeHJBbkxEbkVSMGVHSU15aTdTQzRHWGIzYmFEWHhFN1BNWklpZVdnYmNrTGhrNVY4Uk9TSEZQZGVMWmcxSFhlOGw1RTN3?oc=5) |
+| Stock futures fall to start September trading amid new uncertainty about tariffs after court decision: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9KdDVBdFNUMk5nNEF2UnAyYWpySmNmTGk3WDJRc1VEWUhXNnd2OGlYcWdqeHJBbkxEbkVSMGVHSU15aTdTQzRHWGIzYmFEWHhFN1BNWklpZVdnYmNrTGhrNVY4Uk9TSEZQZGVMWmcxSFhlOGw1RTN3?oc=5) |
 | Trump to make surprise announcement amid health rumors; internet asks, 'Is he resigning?' - Hindustan Times - Hindustan Times | [阅读全文](https://news.google.com/rss/articles/CBMi6wFBVV95cUxOeno1U1NELUZoQXhiOEpuTVlGVkFFTFB6VTZOZGxqZE9jb0NGa1BvUHJxb3BPNzllSjA3Zmx0dk1BdzFfLW5CelY4RkdseFhXWEJ2cjBobEpDamFENFJ4LWRlaWZrRUNBcDJnT0s5Q3BmMHV2WEJjUTZiT21OVllpa3J2UG8xbUJXOG1MMzgteS10M2pkUHNHT0RNazhIWUl6QjNfaV9GalMxU0stRXRtSWZJS3dkSzVLT1ZtLXRWVEY4YWFJMkd2ZkRLeUZsX0R2SE1sYUF4Vmt6UHg5T2FYemhpcWhyZjEweS1j0gHwAUFVX3lxTE9GMkNsamQ1UGJBSV8yVWNfQUdtdlBXYXJScUR1VDBIVGpYNVZjOGxjRVoxSUFBQXhpNXU1a2wzMFJTZ3JrNl9EMURkdWJZbEFWSENsWkNBbFJxeXFTTm1ZbnJrbHVqNjk3dldKSGdjaVhnc2hVQ25Sb25nemh1Q3gyRldQcVpwdGd0eU5ST0EzMEZ3enBLVEltYnVMNWlKQjlWR1R3VWdqWk9adFBJbVVrSGZhVkZvR0hVYUNibVpPeW4xOURacmRFckljVnlOQkRQT1k0SEw2cGtNM0VKUEdqbUdsYklIUkJIbUxCTU9jdg?oc=5) |
 
 ---
