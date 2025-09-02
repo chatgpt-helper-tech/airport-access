@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月03日 05:57:38（北京时间）**
+🕒 更新时间：**2025年09月03日 06:01:00（北京时间）**
 
 ---
 
@@ -27,8 +27,8 @@
 | Trump on Chicago: ‘We’re going in’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPeG5BWWpMdkwydnZZUF9CT1F2cEpzRmstVE9sRjNmRWxFVDFVQWduWm5JMHYzYVhQMFNuQndQamFEakRRWmtvVnhfZW5XWnctcUFLSjdvTDhVMWhQMU55Nm9GVHdfLW9qU1h4cmFsQ2p6TllZdE1US25Da0VFOXB0MFZnT00?oc=5) |
 | US military ‘conducted a lethal strike’ on alleged ‘drug vessel’ in southern Caribbean, Rubio says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFB2SVk1d2F4emxLTWh0Z2w1azVQejgxRDdUQy1WREhPRjduU2ItcUFTZk9FaXpFTzA3S2ZMR1U3U2cyaHZ6YUhjX2xTbmpjYUItYm5NNGxrWWljTi1CeGNaZVBXMEhtdi1lZUNrQmg5TS1hal9fYkFB?oc=5) |
 | Over 85 scientists say Energy Dept. climate report lacks merit - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQdlI2UTVvUGVEOHNLa2REdmZRTkJ6V1l1enotbTFhM2xOLUxCYlNEb1BGYmxNd3VUU0JZLTFFVmRtRlN4WWVneHZULUphSUhDMlV5dFoyeEc0YjRBYUhvOEFLVTNLejhMOWFDMjExTGxEYnRiMzFjZm16aTd1Q0pEQlA4TXl4S3E5dmFLYzFybndLbW5BSzBHdEg0WnNzb1gzM0p1NENxQXNITHNDOHp0bHc0eEsxbmM?oc=5) |
-| Texas man charged with murder in shooting of child playing doorbell prank - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE45YkM3Q1ZXUms5Vjl3OVQzREpBakZtNHZJUjZmZkhMSWdhRWJERzVCamtkY1lzbGZrNGZ0Mm1DVzNSRnB3WE9UVzNSSzBEMTRWc3FEYlFUMG1yQdIBX0FVX3lxTE9rWWZia0J0WG9uV0puNWd2UG9rbmJxSnlkRG4zQkFUVW1rVTNiM19hV1liRzBQR0d2UER0UFFLbTZXVTRjYmtkS3hEN0VSWTBEV0VwcHpYV3lJLXJLaEdF?oc=5) |
 | Trump’s use of the National Guard during Los Angeles immigration protests is illegal, a judge says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPVEMyVzNtRWNsQnkxeE0yZ1hmM295UGU1NVN3cDZOc2ZiZUZZcE5oNnZvT1lJLWhNNVZhY1pCSkpTYllBLTJWSERnOHJiYUZ3S1JTcFUzMlh3UFlIR0VpdWMtWWdkakNfZTNGY3E2VzFMbmRoZWwxbU9HT0ZZVl90UlVGVjlqZmNucngxNVNpWjZCdENxdm9XeFdqWmZrOVNl?oc=5) |
+| Texas man charged with murder in shooting of child playing doorbell prank - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE45YkM3Q1ZXUms5Vjl3OVQzREpBakZtNHZJUjZmZkhMSWdhRWJERzVCamtkY1lzbGZrNGZ0Mm1DVzNSRnB3WE9UVzNSSzBEMTRWc3FEYlFUMG1yQdIBX0FVX3lxTE9rWWZia0J0WG9uV0puNWd2UG9rbmJxSnlkRG4zQkFUVW1rVTNiM19hV1liRzBQR0d2UER0UFFLbTZXVTRjYmtkS3hEN0VSWTBEV0VwcHpYV3lJLXJLaEdF?oc=5) |
 | Burning Man 2025: Murder investigation, baby delivery and massive dust storm - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxPT2ZSXzlycks4ZXZidHNyX1RKSENRNm5STThzSlNoXzFkSkYtczF2RDkzVGJnTmZ3clZ6Sy1SbkNpRktRQUZXV04yX3dtMnY0RVFaTFdUUi1lSEh0aHBpeTNkUGphMHJnVU9YdXZ0bE5YU0FjNU9hblRDMkZ3QUNnM2tVdHVKR0NxNW5CdjNZS1RFYUxHSExsMEw2Y18yQmtSTFdFbWROVnhyQjdwaFBfQmxseEFtVkpfdFJNMG5LYUlKdkJJbjl0V2tDdFYzZ2fSAVZBVV95cUxOUVRieFFrbHJFX1hCNDZCUW9rVTNlWGJpZjZ4VVlQOTJVUE9SckNSazdPdWpDNmNqejd2b2FWcW5fR28tLVhlZmsxdlhOaGFWSndHdlBkdw?oc=5) |
 | Sen. Joni Ernst of Iowa confirms she will not run for reelection in 2026 - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOZ3dVajVFeVhPcndFZG5CLVJINjVqbU9pT0ZBNWdLOUtEeExlYXZKSFFLRTlEaUZaYU9jQkhPYlFsYnNRRVY1VEVfd2FwS1dEWjQyZ0ZtU0w3T2RheDhaNTJBeFAxSVp2VnQ1VFlzSnZId00zN205XzNWNS1IWlI2ZmZTSVR3c2NZbHU0NV9TaFBjSEplVHc?oc=5) |
 | University of Kentucky athlete charged after dead infant found hidden in closet - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOUFUtaEo1ZFIxU1RxdXFKbVZpUUQ5YkhnSUhHaGM4UHVhUUprWHR4NjA0cWFiNkJjYlVUeTFDNEstOE44bkhJaDRSMDhmc0V4Z2lZNDVHa3Y5VjF1Ymp6TGtyQW9XNTJLSmRVRjMwdWZ1c2VxWTJoajl1ZVl3SGc4N0JTSVRyUXFXdUJoVElDOE5NV05wdEJfS2Fndmd0TXdGUnc?oc=5) |
