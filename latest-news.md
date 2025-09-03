@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 00:09:24（北京时间）**
+🕒 更新时间：**2025年09月04日 00:17:38（北京时间）**
 
 ---
 
@@ -23,12 +23,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Jeffrey Epstein survivors speak on Capitol Hill demanding all files be released - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNaWVsRzRRVkt6bFdFYVRwQmtRMXc4WG5ja3Zhd3Y1MzhIeVdlTW1WaURRaXpPMTJDaDIweVlGMmpod0xQXzd5QlVQWFhETU9ibmxrd1JfNDRUUEJ3TnozMFpLZ28tUE9ELWszYzk1anlUSmRKU1M1NGtPb1ZpNEc0ay1JaTAtd2FDWmlCTkJGSjBreUN4XzhOZDFPQmhLWlBa0gGmAUFVX3lxTFBQQ1daUHdnMXZyRk9xSHRDUEsxblV3R1RIYXFxVmkwSS1DQjFhTUdJN3p1VS14N1NIZS1kZjdrTTItU1FTTTIwb0QySFQzUHA2aEtjZ0dUelg2Qjd1QTY0WWxoWU9udFJFYVBJT2tlMUxiWURpT19UR3JPZGZaLUxxWHN3VlFvcjlXTDE3SUs1YXlMeWZ6eGpOMm9TenpmTUhCVXNTYUE?oc=5) |
+| Epstein accusers put pressure on Congress to release the files - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQMlhyMWNYZnI3X3lpZ1pOX2N5NnZDelM0TklaS2o0QVR3TjFnT0hvLXc5NFNrdGU5MHNwSUtNaTNrY19TV19NNF94bTF1YkVmSkJ0TXZVdEh4RWZiUlA3ZVE0b1YyMXJzQ3FPN2tCVlNGRU5GZldGaVVIQXlHRXBPSWhBZ0dnWkdqQkQ2Mjdyenl2bmgzcko0OVZuWVFJcEt5UV9VUjB0SkzSAVZBVV95cUxPUWx0V0tFdUVPcUliNExac2pGd2lLSDlvN3owX3JhN3NuWHNDOUxZWDV2U2lJME5IWFdsLWRIYWU0Wld4WjE1NEt4R18wclVrbFpTckpzQQ?oc=5) |
 | China’s Latest Missiles, Drones and Submarines, Up Close - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNYnRsSXlXTmU1T2NWOU9vTkFuemo0N0VlYldTQjlTcjRsVDllMHZwb2xMZzBUekJvdlJScjRPYklweG1ZaTFocEV3MzE3UW9CLXFFdkRVUlk2TmVINllZWVNMWmg1MmdSZmt4QkxENFhuN0ZrbGFHQkN2Z1NpSmZ1eEhNX21pN2NvSTV6bnFzNTU2X3owMFgw?oc=5) |
-| Polish president’s meeting with Trump prompts fresh tensions with Tusk - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPTWVKUmtMalBqSzcxbE5heHV4d256dHpxZXpHSng1d0cwSTBOV3VfT1d0SFZzS3F1dXZudzNWcUNsYUhmVkVha21NdHhielNkQkh3ZTR0cjAtRXNqMWU3OE11Z1gyXzAwaVZORlFjWXVaaDd6OUdPdmRpRUxuZW5wR2RNZU1pSUxKV251WUJqNEJHWV93NEpwYWlPN1VaS1c1eTM1Q0hja2g?oc=5) |
+| More than 1,000 HHS workers demand RFK Jr.'s resignation in new letter - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQbFExdkJRcFlVU3FFQ2F5aEpXVEM1dm1RczlFa1p4RWNKOXdCYU90NGk3dUtrTGVyVXpKSG5YVjVSTlFNV0Etdll3aW0yNEg2YzNyMzFtM0UwMVJ1eG0wUWw4enZHOVJJTmlwdUxzTmFIU0NCM1NLeUtiM3QwV1hRN0tRTQ?oc=5) |
 | If Trump loses his tariff lawsuit, America may have to refund businesses more than $200 billion - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTFBGTmdITlRhczdzYlFIaDFXRVJRU2ZmeExUVDFqUFc4dEtDRnI1WEhRc0wyMWZXUTJTMkNveXdhTHRwS2ZfNktzU3dGRmxwVm1BUzJCNHlXQUJJXy1HMmhfNFRjbW56OWJkSEE?oc=5) |
+| Trump Accuses Xi of ‘Conspiring Against US’ With Putin, Kim - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPS05qUzhJRGI1X1dFX0QyNlJPN1RUXzVBZGJwWHlHTUM2MzhuSTUxNzdoLW43bWtJOHlFbFlIU3N6Z2xMOXdTRGdEdm96MC1fZVA5TW50NlFIZW95YzdJOWhfOEFKZVdCT0pqUkROZUd4OW95UWY5bnROclIyZEZvSC10VDBRLUxPT2pGTGJucU1aMTdHMVplaXQ2X3hlT1VxOEJ3S1FfWUhFTG52RUtGSG5KUQ?oc=5) |
 | Trump says 11 killed in US strike on drug-carrying vessel from Venezuela - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1fcm9jNDJTeGhaczhWTERVakoyQ1UzSlhDakh5aXhDMzF3Wl8zQW1jZUY4cU42dlN5aER4X1NoNUYyMDM1anJfeG5sQWtfTThTdEpielRxSFpJd9IBX0FVX3lxTFBOSmV1RmVpVFJpOXB4aWxubUhmc29CN1FnVUFEck5keURrUzJwWmpKemZzR0xXbVI5NElGV0tuUGYwdXV4d3daNkJJZFVNUWpXRWdWeElVcmtIc0xkbDhB?oc=5) |
-| Snubbing Kennedy, States Announce Plans to Coordinate on Vaccines - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTFA4eTVxM2JtMWg3WGsyMHdHYTNCWlMxcWVfcGx1YjdTX3Etc3M1THpUb3dFQ2QyTEFxakhYLWJsR3NFbnRhT1dnUGJTbllLaHZyM1NCTlRMR3dFRlNhY21aSkJ3TDRIQWNxYVM2ZjJfb0tRMDRm?oc=5) |
 | Survivors of Maine mass shooting and victims’ relatives sue US government alleging negligence - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNMXExZjF4N2FNY1dBeldLZEdVNmlnR0N1b054V0R1QnBzZUdqVXZLd3pNdkdubEhDeDZoREUyNzd3bmhWZzJITmtCWVY3RWd0TU9mdEh5azhIeUItV0pTSThLdmlTUzVCTXNVMnhMNUJNbFpQQTBpTVp5TGRiakEweg?oc=5) |
 | Quick-moving wildfire scorches historic California gold mining town, burning multiple homes - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQWEt0Y09iMlctaXFNRmtraERmNGZsaVIwOUVrWG9mSGxYa1IzdDJxRzBEUVd5YW5Zdk95MVJ1Q0xMczVkSEJwNFhXYjZmU1ZGb2YweUJqelFpRlZQM2FaMTJxR3pabUlXQ0E0VlRyTnJVeFVGYjR2ZjNIRGFxeWRMcTVQdS1HbkpHdlE4YVV4M00wLVliUTVMdEtsUXJSeUhNbGJRUFRxbnAxcElzQ3c?oc=5) |
 | Federal appellate panel rejects Trump’s deportations under wartime law - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPUGRXRWlTdlh2RTlCNGwzWGJGWWJBUWV0TWlXdnFWZnJ2c29KVmhsd0h2eDVIRWRRRVdPOWlJSVlYSHVVQy1xZU5jYXo0RHNFT2I5OThBdzc1WEp2ZE0zd2l3TGVJMTZKZ2FvTk54c1J3ZlF3b09YVnR6T2RkNFY5eU9lQTVGLVQxMUI5RHMxOHBKdmhSR0VpU1Z1aGZSUQ?oc=5) |
