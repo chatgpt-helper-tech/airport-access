@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月03日 23:16:51（北京时间）**
+🕒 更新时间：**2025年09月03日 23:25:10（北京时间）**
 
 ---
 
@@ -23,15 +23,15 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Jeffrey Epstein survivors set to speak on Capitol Hill - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNaWVsRzRRVkt6bFdFYVRwQmtRMXc4WG5ja3Zhd3Y1MzhIeVdlTW1WaURRaXpPMTJDaDIweVlGMmpod0xQXzd5QlVQWFhETU9ibmxrd1JfNDRUUEJ3TnozMFpLZ28tUE9ELWszYzk1anlUSmRKU1M1NGtPb1ZpNEc0ay1JaTAtd2FDWmlCTkJGSjBreUN4XzhOZDFPQmhLWlBa?oc=5) |
+| Victims of Jeffrey Epstein giving news conference - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5VNTFYdXZKVlBjZjh3ZkQ4bnRZUkp0d0piOFktUUpUT3c5UFotaXlPNXp2WGQycC0xRHdoV19WemR5TFlwSG01S2M1eHB4RFhBQ2xETA?oc=5) |
 | China’s Latest Missiles, Drones and Submarines, Up Close - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNYnRsSXlXTmU1T2NWOU9vTkFuemo0N0VlYldTQjlTcjRsVDllMHZwb2xMZzBUekJvdlJScjRPYklweG1ZaTFocEV3MzE3UW9CLXFFdkRVUlk2TmVINllZWVNMWmg1MmdSZmt4QkxENFhuN0ZrbGFHQkN2Z1NpSmZ1eEhNX21pN2NvSTV6bnFzNTU2X3owMFgw?oc=5) |
 | Appeals court blocks Trump from deporting members of Tren de Aragua gang and more top headlines - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQZkFZdzJvajJJcmc0UFdNSHZYQjRBbWRiTndWLXVXbWxEX2pObWVvRHVadUJybXpnUFRKWVQ3bFB4S1dZblFtaW9nNVdmTm93OUNtMlN5X3BqZWhuNjJUbTVLTEdvd1hsYmUwemZsQkVCUzBCNHlYWDhBREtsR080SzRybkxrYWw4Vm54MGxocXZ2VzZqYXVVVEVQSQ?oc=5) |
-| North Korea: Kim Jong-un’s daughter makes international debut fuelling succession speculation - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxNMnVKSldvWmJaaEdPc05YLWxJeF9MTWp4U280WHQzT09odWNoakd3Z1RySnFMZ1Q1Um1sS2FRbVYwbkVqeGM0c1VNand6b0dMNFR4dDZoeEk4eE80aXo5M3BWdXBfalo0ZjhKWGprM05SenJoRnk0cHZETFhUQmc1bjZOQnpoa3ZhcGhjZW5WOXpYUlhNZzlkQnR2M21ndy1GeXB5d2wxLUxNSVdobGpuZENVWXhqOVhvUWpLOGxlRF9QWDVrb3hVS1FXVVdCYWxuV0Qw?oc=5) |
 | More than 1,000 HHS workers demand RFK Jr.'s resignation in new letter - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQbFExdkJRcFlVU3FFQ2F5aEpXVEM1dm1RczlFa1p4RWNKOXdCYU90NGk3dUtrTGVyVXpKSG5YVjVSTlFNV0Etdll3aW0yNEg2YzNyMzFtM0UwMVJ1eG0wUWw4enZHOVJJTmlwdUxzTmFIU0NCM1NLeUtiM3QwV1hRN0tRTQ?oc=5) |
 | What we know about the White House push for federal troops in Chicago – and the pushback from local politicians - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE40LVlseHpncnFjM1kxbE1vWVAtenpObTRoU1NSSWdKblFoOHBzc0NsSmtYN0ZvMFZtSEhpb0s0Q3lQX1pGWkx4SnlzaE9hSXpSaVEtNzlXYW5ReGdVQmlNR1d1TVF4dWpsekZEOTZnYVVVX0ZwS2J4ZnFxbw?oc=5) |
+| US media quickly forced to revisit a thorny question: How should a president's health be covered? - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPSklOUy1Oa2VLV3ZoVDZGSVFMSVRkUUxTZVJZRzl4WDVROWxabGg1RFFVVTE0U3I3bzhIeUhBNTl6Sk92WFpxR3VCRWNUTXNkVk9zTUNRclB3MTA3R1E4anZQUjBxN2pJUVUteXZFaHc3SlV3MmFFanQ4OGw1d1NkUHdOWmhsOXZXU1lpVTRnd28?oc=5) |
+| US judge blocks Trump from using troops to fight crime in California - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOU001VndHemVtWmpma0syd3BwNFowLVBtSkFPV1BpUmhjd3VhWUY0aFFldW5MYUhGYUdPX3lwTkREQ282XzRMWk95QVRSTjhISHRNdlU2ZnUxdjFGUHA3a2RoRjBoaGdDWkcwcHpTazZjaHM5WnhLdlFhVnd2aVFkdk0ybjlOczB4T2xULVpzWjhuNDgzSDNxNTRkMlpvcVE0aEE4emlhRm9NcDJRbjNZ?oc=5) |
 | Survivors of Maine mass shooting and victims' relatives sue US government alleging negligence - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQX2xNclFkM0h6YnVpb2FSWDMyVm9WcjRvam00Skd3TmQ4blhxOVpmejJNRDdHOUxWRFhlME1OU2JRNk9UREhHSk9kbmFtcEQxWWxyTWh1SEx3VW5nQUVZQWZDdEdCU2RGaWdfcVRMMG9PZ0FWYWptVzl3LVdocWw4QmoyQm11ak9jYTgwWg?oc=5) |
 | TCU September Lightning Complex fires force evacuations in 3 counties in California's Central Valley - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNWWVYeUVVUVc1Q3IzNFhuSWw3TGZRRzVUamtQYzktek82YklGXzdOR241bnlUaXEtM19VVm5PMFBOUU1fTksxdWNHbTZ3QThlVXY2cW5yZDdsckI2M1UyMTdkMGNMY3N2dE9JZ3hNeXVpWFhRTk0yZzlwR0RuQXlLUmRfNVdlVGxSMkFuQQ?oc=5) |
-| US judge blocks Trump from using troops to fight crime in California - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOU001VndHemVtWmpma0syd3BwNFowLVBtSkFPV1BpUmhjd3VhWUY0aFFldW5MYUhGYUdPX3lwTkREQ282XzRMWk95QVRSTjhISHRNdlU2ZnUxdjFGUHA3a2RoRjBoaGdDWkcwcHpTazZjaHM5WnhLdlFhVnd2aVFkdk0ybjlOczB4T2xULVpzWjhuNDgzSDNxNTRkMlpvcVE0aEE4emlhRm9NcDJRbjNZ?oc=5) |
 | Grand jury refuses to indict second person accused of threatening President Trump - WUSA9 | [阅读全文](https://news.google.com/rss/articles/CBMihwJBVV95cUxOOVFDQ1RTZFZFY0JoWWJLdnl5dXRyTk5XU3JqN3JPaEtuZjUxQ3h1cy1rSWN3VHVfQ3J0cGV5ODdxTk44cGxiSGtTa1h5XzBxeEhFUE1CdGYzVGIyX25WSUM4UWhER0lCdUdod3lZMUNRVVQ1cTBCbkpUQ2xiWF9oU0gxRzV2RDVYa3h6UHN0UlI3aWRIQ3V0MzdrMkdQR3haOXduLWdjak1Tc2gwa0RRNWRqRzYzRi1lY0ltMXctaWNoaExtLWNweFNNRUF3R0E5TW5xUURFcGdEYldzcE02czE2UU9zUGpNWkVfM2VraFRVUEFtc2R2ZllHQ00zZVY1S2U0bG43cw?oc=5) |
 
 ---
