@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月03日 21:09:27（北京时间）**
+🕒 更新时间：**2025年09月03日 21:17:32（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trump Says U.S. Attacked Boat Carrying Venezuelan Gang Members, Killing 11 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNSXRKaWFsVmZLRFNmTkc4c0ZTUGh4MUFtZjZVNEFucjl2ekc1UzdfQzBha2o2UEZPeFBJQlp4b015VmN3OWNSTHNVUGlyTkpUQTZFUk8tYzkwVVVHaGV4cmJtb1dwNG5fY3Fmcll0SDRZMUJDcWMydkJlMlZkckxmbGVVaVMwcHpzMzVuQTJn?oc=5) |
 | North Korea: Kim Jong-un’s daughter makes international debut fuelling succession speculation - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxNMnVKSldvWmJaaEdPc05YLWxJeF9MTWp4U280WHQzT09odWNoakd3Z1RySnFMZ1Q1Um1sS2FRbVYwbkVqeGM0c1VNand6b0dMNFR4dDZoeEk4eE80aXo5M3BWdXBfalo0ZjhKWGprM05SenJoRnk0cHZETFhUQmc1bjZOQnpoa3ZhcGhjZW5WOXpYUlhNZzlkQnR2M21ndy1GeXB5d2wxLUxNSVdobGpuZENVWXhqOVhvUWpLOGxlRF9QWDVrb3hVS1FXVVdCYWxuV0Qw?oc=5) |
 | D.C. grand jurors reject latest wave of Justice Dept. indictment requests - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNSmNYektacElxX0QwaDdOZ3gwS0swUGVUMXlOYWlHVWdYTldVci1ZelZ1VFlPdm4yNEN6SGgySDNxRTNJbkZvM2pUSTZUdlFpZTI0MENtUUZKN3c0MVN3bllRcHpjbTBpYWpLQjhJdEQ0VkFsaURBem9selV2RzljTkIwMUdZN1J1OW1hd9IBkgFBVV95cUxPS2NwZ2VRbDJqWFpfb1NxbHZ4MmJBV1VpZWNMaGdhYUpPOXFmcFRLMi1jSWR1VllCTmVReEIwWmQ1eThVenlSSFJyTWU2NGhmTENwZWFOWDdHYjhIaE4weHVIWVRQbzVGNGNUeVNJNUhJcmIyYlE3WFZ2eG9hZUZENVNQcTdySHFmSDhpTUIta2JHdw?oc=5) |
-| US judge blocks Trump from using troops to fight crime in California - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOU001VndHemVtWmpma0syd3BwNFowLVBtSkFPV1BpUmhjd3VhWUY0aFFldW5MYUhGYUdPX3lwTkREQ282XzRMWk95QVRSTjhISHRNdlU2ZnUxdjFGUHA3a2RoRjBoaGdDWkcwcHpTazZjaHM5WnhLdlFhVnd2aVFkdk0ybjlOczB4T2xULVpzWjhuNDgzSDNxNTRkMlpvcVE0aEE4emlhRm9NcDJRbjNZ?oc=5) |
 | 1 killed, 3 injured in Wyoming mountains plane crash - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOLWRZUTgxVkZhbHM5Z1Jaa1lzbVRhWVhtUFJaOHBfcFRpb1JMZWFfOUdxZkVMckMwcnFuajZCQ2lSWEw1LTZTOTIzWng1UHhXMkdKZkhkbzN6eC1kaFRFRXJCTG05Qkw5c3hqMFI2RVV1TEV0YkRjbGF4ZE5PVDVjU01WcVBBa2ZCel9xR2dFWGxLWC13bW9oTdIBngFBVV95cUxNZUtrVU5FaWktelZZa1BQcURNOW5fb182U1J6Yzl2cW56OGhaZHB5NUVGdmcwMUdqdTBjaXBZdDFaekt4Q2ZLcTJvaTdSU19Tejhsenh6a0ZJN1lEN2FTUlJOVERIUkV4N1J1bWE3M0VTTzJoWXllV3hKT2Jyb2pCUVNZRTEwMWlTTEVsTWp0NkdNM215T2VLdDNWeXR0QQ?oc=5) |
 | Survivors of Maine mass shooting and victims’ relatives sue US government alleging negligence - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNMXExZjF4N2FNY1dBeldLZEdVNmlnR0N1b054V0R1QnBzZUdqVXZLd3pNdkdubEhDeDZoREUyNzd3bmhWZzJITmtCWVY3RWd0TU9mdEh5azhIeUItV0pTSThLdmlTUzVCTXNVMnhMNUJNbFpQQTBpTVp5TGRiakEweg?oc=5) |
+| ‘It’s just devastating’: Wildfire destroys buildings in historic Gold Rush town of Chinese Camp - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNa3FJT1E1YnVYUi1tYncybG9wVTdEcDFJc0wxVlRURFRkby1QR1QwT01qMEdBSzZYYkxvLVpOU0tMMWlvSDdHUlZXQmU5ODFldFR5dTZHbk5UNnBqeFY1X2FOZC1oRjhMY0UwWWVzXzRTSGpxTXpCdm1lc0pHY01UMzNrRVZsNW5HRzFrTUhld1RsV1lGSEV0RW9R?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
