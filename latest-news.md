@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 04:25:16（北京时间）**
+🕒 更新时间：**2025年09月04日 04:32:03（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Oregon, Washington, California form health care alliance to protect vaccine access - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNQWRJd2t3WlhjT3pMMi01VjAtVzg5YU1zc1BUTkZoSXpRNVo0TG9iRlpDUjdUWU9YZXg1YXlCNnNEUHhZZ3NzeGhnV014TkhCTWFteHlubW40dXZpeWNoOHdWNlRaWEJOZXp5cWtyTENKeGh1SWdvWnpaMlhQMFdEWHNOc000dW1Z?oc=5) |
 | Trump floats federal troops to New Orleans, not Chicago - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNaHRXRHRMOFhWdlN4NG16ekRLSFQ4SEdicG92SE5RQnBIRlJGSHFzU1ZjT3c3S3NIbk53bDk1dWN0TzhhVmlIRGlSVTh0VW8zLXBJeHl2M0pIVWV5UDVxNmt4RnBpU2h3VElXMWZ4cm5ybzUtdWZ5TzIxRC1aa240V242cFQxTmplR0NTeE1yN1I4RDRp?oc=5) |
 | Nadler’s retirement reignites debate over advanced age of many in Congress - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQTHAyZ3BYSUtRWWJMRk9kcEV6TVFvT2VLS0xvNktMcGdlUlZBRk15VjVyZVYzUlBuTlRPdGlGUndBcHp2TWhOdjVfLUNRY2tuamVrSzVVSldKbWNEdVBaY1oyZi04ZUVIcjM5ODY5S2RXSHEwUk9sT2M4d2hiTGc5d2VTN25Bb3JNb3JSQlFNUXhhanpheUNwMUFqZV8?oc=5) |
-| Wildfire near Yosemite National Park tears through historic Gold Rush town - SFGATE | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQSjM0Um5RSW5RQzBzSEhueWI0di1mYmhiS29xQTFwRkxHaUhXTVFZaFNHTkVZeklsYmFOaW5PVUdGb3lrUWVROTRmUlRTQ1NtLWVnaUtKYkRsZmlteV9tbmJ1d1g2OUZlMDdYOWNNZC04TXVpejRzOFBYOGNQWW1wdFItZGZJYkJVX3c?oc=5) |
 | More than 1,000 current, former HHS employees sign letter calling on RFK Jr. to resign - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPdnc3SHZBU0J2NXhIQlRwUlhNMTV0bHBIZThfd0RKR3VuN3hpWHdSUjJ0MFlZM0Q5SXJ3Q3dmYkFMeW9yVmtUUmptVVpmUTd4WGxURkZZMllXNHhoMVdBRGU2THA0SHN1MlZFM0dqZGNweUVibEp4cUZJQzhyeG51WllIZ2I2VTBuM1RhdmNrd240YUhmOTNzbkhhc2JkVEhXOHRJbNIBqgFBVV95cUxQb1ZwZUhHMnV1SHRSSWxvbVhWOXQwQzJDbXd2MGpvVWJoQlVlU3BYdkF1NjA0RmxKZGhhYTkxb2k2cGluNnhfV0diQzBCdU04Y1FBTmttSmp1aW1raWIxdjhfdG54UkdzekhmN2pBQzVDMVdqaEV2WnpiakhRdFpvMm9nbzZqUEJzVjRIWXVibUhXUHJfeVZrSHB1UTVrT0JoZWZBSG85MkdyZw?oc=5) |
 | Democrats confront limited options to block GOP's spreading redistricting efforts - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOaEp6eE5ENWJlODE1N3ppc3JoSm1MbkFvLVZFd3hUSjFrNlBwLXdJSzd6ZmQzYVdzUEVEcU5fUzU1UE5NYUREOE01RnBwVm1nS1hhQURrYnpFVEgza1NpNng1Ull2Z1owQWhVRmlPeGJEM244M0c1c3J1QURYVFhvY3k2dS04VkRRZ2U0YlBZenV4UHc3eUNMMlEwQzBUU1hEWW05YVN30gFWQVVfeXFMUDYxZWUtT3V6Zm5WdmVtVGl4cld2aHZRRkhvQk1GREVPdXFieGRPUzZhQ0t6bDdTSzZzaUpMYlZiSktfTURIMDFPelZTMXNqYThnVEo0UUE?oc=5) |
+| ‘We don’t need a presidential emergency’: Bowser pushes back against DC takeover after Trump praise - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQT3hrUnZ1S0VMNEprMnhsSHRuRm1wY082WnpWMjNMVVVRcHBoWjdpMG10MmJPS0xaQVhpZkllMGQ2S3dseWt3SGNTUURHWHZ6bDh6ODhmQkhfVVR5SmdoTWFLM2J0V3BBQkN0VEVzMGk1Q3AyV2xJT25OVWxqTFprTnJvSHQ0LW85NmZZVjB2b3BpQmlWTjZPYzduaw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
