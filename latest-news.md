@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 01:41:04（北京时间）**
+🕒 更新时间：**2025年09月04日 01:49:38（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | What we know about the White House push for federal troops in Chicago – and the pushback from local politicians - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE40LVlseHpncnFjM1kxbE1vWVAtenpObTRoU1NSSWdKblFoOHBzc0NsSmtYN0ZvMFZtSEhpb0s0Q3lQX1pGWkx4SnlzaE9hSXpSaVEtNzlXYW5ReGdVQmlNR1d1TVF4dWpsekZEOTZnYVVVX0ZwS2J4ZnFxbw?oc=5) |
 | Wildfire scorches historic California gold mining town, burning multiple homes - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQWEt0Y09iMlctaXFNRmtraERmNGZsaVIwOUVrWG9mSGxYa1IzdDJxRzBEUVd5YW5Zdk95MVJ1Q0xMczVkSEJwNFhXYjZmU1ZGb2YweUJqelFpRlZQM2FaMTJxR3pabUlXQ0E0VlRyTnJVeFVGYjR2ZjNIRGFxeWRMcTVQdS1HbkpHdlE4YVV4M00wLVliUTVMdEtsUXJSeUhNbGJRUFRxbnAxcElzQ3c?oc=5) |
 | Maine shooting survivors, families sue U.S. government over massacre - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPMm1kR3ZqSmpWNnp0UGVib2l1RU82Wm52dE1WejBsU01jQ1N5VGpzY0pmdzNhN2tPM1l3QmhpR0JYSWdRZVFSN19VLUtMdU8zOHd6aTZydDVFQktPT2p6dWUwVnU5TGVCVmpsaGlBcDg2aHlNR2FyZ1pVeDJVTzJjTG53R0llUWpEa1lyX1FVclB2VUE2N2g4WA?oc=5) |
-| Trump Team Urges G.O.P. to Rebrand Signature Policy Law - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNYlhENzA0R3BTV0VvVFNnd25rSFdMR1FwN01HdURSd0JQbkxIWGhlWkV3b3hqNmNfNDlpMlBEMmVPOFRVUHFRMWJTcVBHbEluMDhDbW4tcUsyRnpYY2M1WEVKSkhfby02OVpBdUx1eG1qdV9DalQxOC1mcFQxazI1ZkdjR2dHUFE?oc=5) |
-| Appeals court blocks Trump's use of Alien Enemies Act to deport Venezuelans - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNYVdxRU5saDY4X2lIUkRnUGh4RWNXTEN6YU9fQU5rbER6V0xTS3VLVWlQRlFfSThYSXdNYU1SUWJqbmxSUDJ4akFMSWhNeVRQLUNDRno3eUJwcy10NzJqVk5HZVVJN3E1S2toWE8xUjVLSVlmam5DTm5VaHhFVV9HNTdXLTc2RUpTSnFmcWgwT0VwdlZfNWc?oc=5) |
+| Trump aides push a megabill rebrand as some House Republicans bristle - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPSmxFa1ZGcl9nanVaWVZpRHZrTTJQWFVnSThBZjJjcEtobUp2S3d4SUdxZUZjNXZCZzBlblFRalRqMzNHbFdaWWg4WlpEUVN4dDVmdHZJWkN3UVl1bElqam0wa0ZURkVyUllNbTJHM3E1TW5ha2ZxZ1R4MVV6MVJDQVU4dHNrM2RJakpXY3ZpSWh0Ql9xLVQ0QjJZcFJkWDg?oc=5) |
+| TV writer Graham Linehan's arrest over posts on X sparks debate over free speech and its limits - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPNTJJYmlHVmJralIzU0hkWTBpaFpEOVNaOEF0RW54Umc1VlRDOHJSanc4QnpMZS1GSTdGRUtnV2VYQkJpTlhHLVRmdjVySS0tWEJJSjJQYmxGQ1ktMjF4ZFp4V19mNHVtamVsNWJxYl9fcWUtSVoyeDA5alNwUjl5OXV2eF92QzlkcDlKOGNqcFJla2FIekZDek1SR0c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
