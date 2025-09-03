@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月03日 18:08:06（北京时间）**
+🕒 更新时间：**2025年09月03日 18:17:17（北京时间）**
 
 ---
 
@@ -28,10 +28,10 @@
 | Appeals court rejects Trump’s bid to deport Venezuelan immigrants he deems ‘alien enemies’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPRG5pVThRc3VOdzhyT1RoZk1pNWhFbDhIRmdzSWwxRW5hQ1ozX0p1ZG4yVHRBYXBkRmk1Yk1relJJanh4TmFMbVJEbnptcGZoZlF3c3dDblRpOUtOaUtrN05VOUVuQ2EzZEIwSnpqSkRkamd3MG93ZnJhN0gwOUpvc2x1LW05Q1R4YW5ZRDhFWWl6TFd1?oc=5) |
 | US judge blocks Trump from using troops to fight crime in California - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOU001VndHemVtWmpma0syd3BwNFowLVBtSkFPV1BpUmhjd3VhWUY0aFFldW5MYUhGYUdPX3lwTkREQ282XzRMWk95QVRSTjhISHRNdlU2ZnUxdjFGUHA3a2RoRjBoaGdDWkcwcHpTazZjaHM5WnhLdlFhVnd2aVFkdk0ybjlOczB4T2xULVpzWjhuNDgzSDNxNTRkMlpvcVE0aEE4emlhRm9NcDJRbjNZ?oc=5) |
 | How Trump's quiet holiday weekend fueled a viral death hoax - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE50OUE1ZFF2ZVlmYkR4MncxeVBiazAxUlUxNUhlZFo4ZEV5ampFMzR0bXNBbzdFNVNWRElNV3I5aHVVM0tYVTZIaG1fSnNobTByNi02a01PaHJleG9MSzFoNlBMNnBBY3M5WnM3azFiajZ2VExXa1ZfWFIwdw?oc=5) |
-| What we know about the White House push for federal troops in Chicago – and the pushback from local politicians - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE40LVlseHpncnFjM1kxbE1vWVAtenpObTRoU1NSSWdKblFoOHBzc0NsSmtYN0ZvMFZtSEhpb0s0Q3lQX1pGWkx4SnlzaE9hSXpSaVEtNzlXYW5ReGdVQmlNR1d1TVF4dWpsekZEOTZnYVVVX0ZwS2J4ZnFxbw?oc=5) |
+| Military lawyers called up to relieve a shortfall in immigration judges - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNV25LcnRiYUpJUkRRdUhpMDhkZ013X2IwZ1luTUhjNHBSRXhDX21mc0t0ZkJleUE1Z0VLUjI3QTlHdUxvVnhzTGJMQzR3S0QzdTd2alo0cDkxY2tNUmZDZDN6QTFiQ3hqZjVMZmttUmNmR2dlWkxaZGE0Y3ZTTmhZQmwwMllMeElt?oc=5) |
+| Trump to move U.S. Space Command headquarters from Colorado to Alabama - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOYTJERXFfRmJyS0NBS25ua3VBTFlwRElKaFYzODFidkZYRmRnSW1IbGhWTW14d0lVNWtVbHN0RXFlaTRYZnBhVkdnR2ZxclNLSkZYdC1WOXpBSG1qM1FOTHJsWnlpVXFMaF9GYVhQOXFNVFA4YkcybDlodnZhY0xJSHU2ZUZtaFFRYUhCUkNhTGNHdw?oc=5) |
 | ‘Exmo’ Influencers Mount a TikTok War Against the Mormon Church - MSN | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQV0ZGMm5UbHhjQjRuUXNIcjVqLUt6dWF3azdMLTl2STdwSWM2YkladzI3MktxNmZjZTl4WXJ3N1pXSjh6dUtQNEJNb2pDXzVMZWFTOTRXZkZkdnF3Y1dDcGpCVlhRX3pNMlNiX2g4eDE4Q0daUEJWdGJNM1h2dmtOSHBJS29yZnRITV9FNE5RQTRoYU9KSU1iNDVfRkNGZTV2NjdXa1dCdTU3bnM?oc=5) |
-| U.S. kills 11 in strike on alleged drug vessel from Venezuela, Trump says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOLVdRNzBpNTRJck80SnBQd1RET3dnd2FDRFBkaTltelhYRi1GUmpvQ1ZFYWVLWDktLXhsNUk0cXBVa2pWejFQcVVlTkZrYU80QzRSR0RQM3puZ05NaUJ0YnVBSXU5T2N2RHNySzVDcnhGZ2xybVcxVFdJSm9yX1VaaU42UnJKRmtBZGpSWk92YVZ2dw?oc=5) |
-| Trump Relocates Space Command to Alabama, Reviving a First-Term Plan - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPdGkxQ3BwbFRGS3pWSmpXdGZRd3F4QWY0SzFSRFRZQm13RFNrQWRSOW9mdlN3MmgzaDRQZmMycXdYT0hZdHBWNC1YYXNZVW5BRVN2U3RUUmYyUnZtTmhyczBWeV95R0dKbXdqNTE3dkFjRWoyTE9QOVlxRFc3QkJDZFQ5ZlBtSjN2LXk0Tjlwa0dldw?oc=5) |
+| Trump says 11 killed in US strike on drug-carrying vessel from Venezuela - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1fcm9jNDJTeGhaczhWTERVakoyQ1UzSlhDakh5aXhDMzF3Wl8zQW1jZUY4cU42dlN5aER4X1NoNUYyMDM1anJfeG5sQWtfTThTdEpielRxSFpJd9IBX0FVX3lxTFBOSmV1RmVpVFJpOXB4aWxubUhmc29CN1FnVUFEck5keURrUzJwWmpKemZzR0xXbVI5NElGV0tuUGYwdXV4d3daNkJJZFVNUWpXRWdWeElVcmtIc0xkbDhB?oc=5) |
 | ‘It’s just devastating’: Wildfire destroys buildings in historic Gold Rush town of Chinese Camp - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNa3FJT1E1YnVYUi1tYncybG9wVTdEcDFJc0wxVlRURFRkby1QR1QwT01qMEdBSzZYYkxvLVpOU0tMMWlvSDdHUlZXQmU5ODFldFR5dTZHbk5UNnBqeFY1X2FOZC1oRjhMY0UwWWVzXzRTSGpxTXpCdm1lc0pHY01UMzNrRVZsNW5HRzFrTUhld1RsV1lGSEV0RW9R?oc=5) |
 
 ---
