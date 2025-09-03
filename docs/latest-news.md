@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月03日 22:24:27（北京时间）**
+🕒 更新时间：**2025年09月03日 22:33:47（北京时间）**
 
 ---
 
@@ -11,10 +11,10 @@
 | Henry Zeffman: Rayner's political future under threat after stamp duty admission | [阅读全文](https://www.bbc.com/news/articles/c2lx1999ez8o?at_medium=RSS&at_campaign=rss) |
 | Met chief calls for law change after Graham Linehan arrest | [阅读全文](https://www.bbc.com/news/articles/c1mx09l5297o?at_medium=RSS&at_campaign=rss) |
 | China's Xi steals the limelight in a defiant push against US-led world order | [阅读全文](https://www.bbc.com/news/articles/cn0rllxld8go?at_medium=RSS&at_campaign=rss) |
-| Ministers favour merging all UK steel companies into one | [阅读全文](https://www.bbc.com/news/articles/c4gqe91kp57o?at_medium=RSS&at_campaign=rss) |
 | Topshop will return to High Street in 2026 | [阅读全文](https://www.bbc.com/news/articles/c1l854prl9vo?at_medium=RSS&at_campaign=rss) |
 | Energy drinks to be banned for under-16s in England | [阅读全文](https://www.bbc.com/news/articles/c707074qdnko?at_medium=RSS&at_campaign=rss) |
 | Budget to be held on 26 November, Reeves confirms | [阅读全文](https://www.bbc.com/news/articles/c7545yz0171o?at_medium=RSS&at_campaign=rss) |
+| Ministers favour merging all UK steel companies into one | [阅读全文](https://www.bbc.com/news/articles/c4gqe91kp57o?at_medium=RSS&at_campaign=rss) |
 | Ex-Premier League stars who lost millions in investments were failed, MPs say | [阅读全文](https://www.bbc.com/sport/football/articles/c5ypyyj3xlro?at_medium=RSS&at_campaign=rss) |
 | Luigi Mangione's likeness used to model shirt on Shein | [阅读全文](https://www.bbc.com/news/articles/c4g5vr4vzpzo?at_medium=RSS&at_campaign=rss) |
 | Xi, Putin and Kim show united front at huge parade | [阅读全文](https://www.bbc.com/news/articles/cp8z83np4xjo?at_medium=RSS&at_campaign=rss) |
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Johnson faces escalating pressure as House GOP prepares for Epstein vote - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFBpVTJuYVR5dHY4RjJGMDgybjhHUENmY3FfbTMtcnlheVVpYVlQWm56SlItRDNCVjFKS0wzMXR1M0ZyeXRFcUd3aHJNZnVrTXRNZ2d6SnhtRmxCRk9EZExxbHJ5QXFWZ0MyZGEzVEJ5czBzQ1RsMEFV?oc=5) |
-| China’s Latest Missiles, Drones and Submarines, Up Close - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNYnRsSXlXTmU1T2NWOU9vTkFuemo0N0VlYldTQjlTcjRsVDllMHZwb2xMZzBUekJvdlJScjRPYklweG1ZaTFocEV3MzE3UW9CLXFFdkRVUlk2TmVINllZWVNMWmg1MmdSZmt4QkxENFhuN0ZrbGFHQkN2Z1NpSmZ1eEhNX21pN2NvSTV6bnFzNTU2X3owMFgw?oc=5) |
+| Victims of Jeffrey Epstein giving news conference - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5VNTFYdXZKVlBjZjh3ZkQ4bnRZUkp0d0piOFktUUpUT3c5UFotaXlPNXp2WGQycC0xRHdoV19WemR5TFlwSG01S2M1eHB4RFhBQ2xETA?oc=5) |
+| What weapons China showed off in its military parade as Xi Jinping, Vladimir Putin and Kim Jong Un watched - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNWjFmVkk5clpBMnN2bThBWW9RM19WUDlTZmZDdjQyd0VLbmdqNUVHR0Y0Rm1MV0Nobnh4Ym1pTGcxczVIdGFjWEdKN3dCTFBoeHJ1WFBTTlFCRkM4cXlXaWItMm9WMTAtaXN1WnJ0VXd4bTNOVFRuZUpJcVZ5LWdBRnRjcHRBSXJCT19lMkhsbmliNjVDTFdlZnVlYVRvZGs0aUNWOWx5cDBTTXA2MjFtZEc1WdIBuAFBVV95cUxOWDFFY3lVcmpxTVMxemwzdXNYNEtyRlNaY3ZlZWl0TWNibjFmRldOb2ZCMGtnb21UOTktN0tCMWZEUWhaOFEtcnhEMlJjR2paeHoxeEtacHVZTVVpYVVQQVcxQXNFV0swZEhnUEVBRXpvT3Fld0lfUXFzUGUtMVNOa0VEdElpdkpoTGZMWmFTRi1aeFRmYnZhdC1ESG9pRjQ4VzEyWW5yTDhOd3JGa1VSckNjXzAzUG1k?oc=5) |
 | Federal appellate panel rejects Trump’s deportations under wartime law - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPUGRXRWlTdlh2RTlCNGwzWGJGWWJBUWV0TWlXdnFWZnJ2c29KVmhsd0h2eDVIRWRRRVdPOWlJSVlYSHVVQy1xZU5jYXo0RHNFT2I5OThBdzc1WEp2ZE0zd2l3TGVJMTZKZ2FvTk54c1J3ZlF3b09YVnR6T2RkNFY5eU9lQTVGLVQxMUI5RHMxOHBKdmhSR0VpU1Z1aGZSUQ?oc=5) |
-| Trump says 11 killed in US strike on drug-carrying vessel from Venezuela - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1fcm9jNDJTeGhaczhWTERVakoyQ1UzSlhDakh5aXhDMzF3Wl8zQW1jZUY4cU42dlN5aER4X1NoNUYyMDM1anJfeG5sQWtfTThTdEpielRxSFpJd9IBX0FVX3lxTFBOSmV1RmVpVFJpOXB4aWxubUhmc29CN1FnVUFEck5keURrUzJwWmpKemZzR0xXbVI5NElGV0tuUGYwdXV4d3daNkJJZFVNUWpXRWdWeElVcmtIc0xkbDhB?oc=5) |
-| Trump Accuses Xi of ‘Conspiring Against US’ With Putin, Kim - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPS05qUzhJRGI1X1dFX0QyNlJPN1RUXzVBZGJwWHlHTUM2MzhuSTUxNzdoLW43bWtJOHlFbFlIU3N6Z2xMOXdTRGdEdm96MC1fZVA5TW50NlFIZW95YzdJOWhfOEFKZVdCT0pqUkROZUd4OW95UWY5bnROclIyZEZvSC10VDBRLUxPT2pGTGJucU1aMTdHMVplaXQ2X3hlT1VxOEJ3S1FfWUhFTG52RUtGSG5KUQ?oc=5) |
-| 'We need the Epstein files to be out': Central witness in Epstein case speaks publicly for 1st time - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQTGNxbmJrQVNNQVhBSTdkMGNrSE1wNlByLV8zVDNmbzU3N1JFUkdwSVR2X3MtWUtSRVl6TUpDYkFFMEhRemR6QXF2UWY0dVlYUURWOWxzdVA1MlNHVlZXaUVVb1l3c2NQalhBMG80TDhELUhEZWptajRBM0t4NmpRbVFGV3NVYUlFdlhyY1d1NmV1OUZKcC1ROWxfSTQ2eEc0X0lPNmdR0gGrAUFVX3lxTFAzN0Z4QTRZRVJEWV9wb0lCbDdzWTY5Q2JobmZXbG94SEZzczJqNHYyUEdRbU5xVk5yWDZ5cXdCSGhzelhyYlhJZFFNaWI4amktcU92SXZRaUhTLVdkNUlTRy1ZeklRdkRZQWF3ZjRjdmpiM3ZodUtWNEV4WU9VWERkaW5jRkhYSlJOakhoU1hhZ0xlX3lYSlJKMGltVjg2UzNaUWZfUlRBN2ZOZw?oc=5) |
+| Trump Says U.S. Attacked Boat Carrying Venezuelan Gang Members, Killing 11 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNSXRKaWFsVmZLRFNmTkc4c0ZTUGh4MUFtZjZVNEFucjl2ekc1UzdfQzBha2o2UEZPeFBJQlp4b015VmN3OWNSTHNVUGlyTkpUQTZFUk8tYzkwVVVHaGV4cmJtb1dwNG5fY3Fmcll0SDRZMUJDcWMydkJlMlZkckxmbGVVaVMwcHpzMzVuQTJn?oc=5) |
+| The Push to Revise American History at the Smithsonian - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOeHhmcndWTGFHLXFhZEZvcHZOS1RiYW1pS3JLV2l6RGY2cDdreFItamhFQzZ0VHR6LXVVeE92enlBd08tZkJkeE9HTXQ4TzFsWldaeFM4cWxTdmhKSkUxVGZTcURvbTlYMmpQekpCVXRwMXVIaUhsRkh5dW44amJKNWl3?oc=5) |
+| North Korea: Kim Jong-un’s daughter makes international debut fuelling succession speculation - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxNMnVKSldvWmJaaEdPc05YLWxJeF9MTWp4U280WHQzT09odWNoakd3Z1RySnFMZ1Q1Um1sS2FRbVYwbkVqeGM0c1VNand6b0dMNFR4dDZoeEk4eE80aXo5M3BWdXBfalo0ZjhKWGprM05SenJoRnk0cHZETFhUQmc1bjZOQnpoa3ZhcGhjZW5WOXpYUlhNZzlkQnR2M21ndy1GeXB5d2wxLUxNSVdobGpuZENVWXhqOVhvUWpLOGxlRF9QWDVrb3hVS1FXVVdCYWxuV0Qw?oc=5) |
 | Survivors of Maine mass shooting and victims' relatives sue US government alleging negligence - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQX2xNclFkM0h6YnVpb2FSWDMyVm9WcjRvam00Skd3TmQ4blhxOVpmejJNRDdHOUxWRFhlME1OU2JRNk9UREhHSk9kbmFtcEQxWWxyTWh1SEx3VW5nQUVZQWZDdEdCU2RGaWdfcVRMMG9PZ0FWYWptVzl3LVdocWw4QmoyQm11ak9jYTgwWg?oc=5) |
 | Wildfire Destroys Buildings in Gold Rush Town of Chinese Camp - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOWjZrUFB6dU82bFljZlBqN1drX1RmaDRXMlY1eEJtWGlBZ2VVZHdFMS1IV2p6ZmYxSjh3a0hqdENRVnV0TC1heThraTFnUlZ0WXJ3Q1p4WUo1WWk0UWwxWjNyVExMcFRMMktBNktTODhwR0o0YXNTMEpFWEI5YjRodQ?oc=5) |
 | What we know about the White House push for federal troops in Chicago – and the pushback from local politicians - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE40LVlseHpncnFjM1kxbE1vWVAtenpObTRoU1NSSWdKblFoOHBzc0NsSmtYN0ZvMFZtSEhpb0s0Q3lQX1pGWkx4SnlzaE9hSXpSaVEtNzlXYW5ReGdVQmlNR1d1TVF4dWpsekZEOTZnYVVVX0ZwS2J4ZnFxbw?oc=5) |
-| Capitol agenda: White House pitches megabill marketing reboot - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOTG1KYXNsdGc3UmdhN3hGMGUxMWYxQ2tkZXhpdVRZY3lvYVV3TWxUNnZkUjEzaVpFVVpWR2xsVEdad3RSN3FmQVlEQlBqMEpRNm1ObFAtUVBUQ09SWHROdjIyMTdqM1RDUW8xOWdkdTNNRnFJeHpTMDFVUHhKZmZZbmJyOWFFQ2FhY3FKOFFPQUU1OEVuUHAzaGllMi1zT2dZRF9VRG04Q2hicmQxSno5Z1oxVkM1T05URVI4LUlvZUFwU00?oc=5) |
+| More than 1,000 HHS workers demand RFK Jr.'s resignation in new letter - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQbFExdkJRcFlVU3FFQ2F5aEpXVEM1dm1RczlFa1p4RWNKOXdCYU90NGk3dUtrTGVyVXpKSG5YVjVSTlFNV0Etdll3aW0yNEg2YzNyMzFtM0UwMVJ1eG0wUWw4enZHOVJJTmlwdUxzTmFIU0NCM1NLeUtiM3QwV1hRN0tRTQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
