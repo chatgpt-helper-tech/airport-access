@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月03日 20:01:04（北京时间）**
+🕒 更新时间：**2025年09月03日 20:08:32（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | US judge blocks Trump from using troops to fight crime in California - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOU001VndHemVtWmpma0syd3BwNFowLVBtSkFPV1BpUmhjd3VhWUY0aFFldW5MYUhGYUdPX3lwTkREQ282XzRMWk95QVRSTjhISHRNdlU2ZnUxdjFGUHA3a2RoRjBoaGdDWkcwcHpTazZjaHM5WnhLdlFhVnd2aVFkdk0ybjlOczB4T2xULVpzWjhuNDgzSDNxNTRkMlpvcVE0aEE4emlhRm9NcDJRbjNZ?oc=5) |
 | D.C. grand jurors reject latest wave of Justice Dept. indictment requests - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNSmNYektacElxX0QwaDdOZ3gwS0swUGVUMXlOYWlHVWdYTldVci1ZelZ1VFlPdm4yNEN6SGgySDNxRTNJbkZvM2pUSTZUdlFpZTI0MENtUUZKN3c0MVN3bllRcHpjbTBpYWpLQjhJdEQ0VkFsaURBem9selV2RzljTkIwMUdZN1J1OW1hd9IBkgFBVV95cUxPS2NwZ2VRbDJqWFpfb1NxbHZ4MmJBV1VpZWNMaGdhYUpPOXFmcFRLMi1jSWR1VllCTmVReEIwWmQ1eThVenlSSFJyTWU2NGhmTENwZWFOWDdHYjhIaE4weHVIWVRQbzVGNGNUeVNJNUhJcmIyYlE3WFZ2eG9hZUZENVNQcTdySHFmSDhpTUIta2JHdw?oc=5) |
 | 1 killed, 3 injured in Wyoming mountains plane crash - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOLWRZUTgxVkZhbHM5Z1Jaa1lzbVRhWVhtUFJaOHBfcFRpb1JMZWFfOUdxZkVMckMwcnFuajZCQ2lSWEw1LTZTOTIzWng1UHhXMkdKZkhkbzN6eC1kaFRFRXJCTG05Qkw5c3hqMFI2RVV1TEV0YkRjbGF4ZE5PVDVjU01WcVBBa2ZCel9xR2dFWGxLWC13bW9oTdIBngFBVV95cUxNZUtrVU5FaWktelZZa1BQcURNOW5fb182U1J6Yzl2cW56OGhaZHB5NUVGdmcwMUdqdTBjaXBZdDFaekt4Q2ZLcTJvaTdSU19Tejhsenh6a0ZJN1lEN2FTUlJOVERIUkV4N1J1bWE3M0VTTzJoWXllV3hKT2Jyb2pCUVNZRTEwMWlTTEVsTWp0NkdNM215T2VLdDNWeXR0QQ?oc=5) |
-| Trump aides plan megabill marketing reboot for GOP lawmakers - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNcXN1aDhwb2ltejhjaE1WRGtPLWpMck4weVY2Z25USEVLWUtYUDRqa093NEExRjB0WlBSNW1xOGRVZ2o4WHZuY0ZsYmxybXRhNzRKLW9fTWdHQjF0Mi1VZ0tPclhNVmdHV2hOQjhSTW14ZWtLRTl5aUNnYnlDeHV2Zk9B?oc=5) |
+| Survivors of Maine mass shooting and victims' relatives sue US government alleging negligence - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQX2xNclFkM0h6YnVpb2FSWDMyVm9WcjRvam00Skd3TmQ4blhxOVpmejJNRDdHOUxWRFhlME1OU2JRNk9UREhHSk9kbmFtcEQxWWxyTWh1SEx3VW5nQUVZQWZDdEdCU2RGaWdfcVRMMG9PZ0FWYWptVzl3LVdocWw4QmoyQm11ak9jYTgwWg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
