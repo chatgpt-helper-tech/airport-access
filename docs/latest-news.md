@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月03日 08:41:31（北京时间）**
+🕒 更新时间：**2025年09月03日 08:48:53（北京时间）**
 
 ---
 
@@ -11,10 +11,10 @@
 | Asylum protests putting police under chronic pressure, chief says | [阅读全文](https://www.bbc.com/news/articles/c6272r550w3o?at_medium=RSS&at_campaign=rss) |
 | Energy drinks to be banned for under 16s | [阅读全文](https://www.bbc.com/news/articles/c707074qdnko?at_medium=RSS&at_campaign=rss) |
 | Don't pay a fake parking fine – four ways to protect yourself from scams | [阅读全文](https://www.bbc.com/news/articles/cn8438ngpe1o?at_medium=RSS&at_campaign=rss) |
-| Government unable to calculate Afghan data breach cost, watchdog says | [阅读全文](https://www.bbc.com/news/articles/cm2k25dx1z3o?at_medium=RSS&at_campaign=rss) |
-| A scheme helped prevent sex offenders committing more crimes - then it closed. Why? | [阅读全文](https://www.bbc.com/news/articles/cgqnqzkg83jo?at_medium=RSS&at_campaign=rss) |
 | Watch: Trump addresses online health rumours in Oval Office | [阅读全文](https://www.bbc.com/news/videos/c62724wdxzwo?at_medium=RSS&at_campaign=rss) |
+| A scheme helped prevent sex offenders committing more crimes - then it closed. Why? | [阅读全文](https://www.bbc.com/news/articles/cgqnqzkg83jo?at_medium=RSS&at_campaign=rss) |
 | Clegg accuses Vance of 'hypocrisy' over free speech criticism | [阅读全文](https://www.bbc.com/news/articles/c2l7lg84780o?at_medium=RSS&at_campaign=rss) |
+| Government unable to calculate Afghan data breach cost, watchdog says | [阅读全文](https://www.bbc.com/news/articles/cm2k25dx1z3o?at_medium=RSS&at_campaign=rss) |
 | Chris Mason: How Polanski's Green leadership could impact UK politics | [阅读全文](https://www.bbc.com/news/articles/c9d0d32q0eno?at_medium=RSS&at_campaign=rss) |
 | Watch: Captain Scott’s famous polar shipwreck as never seen before | [阅读全文](https://www.bbc.com/news/articles/cpwyvyqkx9yo?at_medium=RSS&at_campaign=rss) |
 | US filmmaker in legal battle over 'Downton Shabby' | [阅读全文](https://www.bbc.com/news/articles/cr4ey262365o?at_medium=RSS&at_campaign=rss) |
