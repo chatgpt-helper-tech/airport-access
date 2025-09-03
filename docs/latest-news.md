@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月03日 10:57:18（北京时间）**
+🕒 更新时间：**2025年09月03日 11:01:11（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | House Oversight Panel Releases Some Epstein Files as Pressure Mounts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNc2VkQWtKYXRUa282WWFEZmxlM0FabHBnS1M1YXotcEFISHNHTVlLTDVFMHlvWjhNb1BXOG5MQnBVNHFmUmUwVUtsNldOYVhwRHhZMjR3bGthY3NaeTJ6aHBrYWNQNG93QmhSdWtzSVFmOU9HcXdXb1d2VnJkRXdXRWJSdFdCN1k2angzdXJSRENpQU0?oc=5) |
 | Trump confirms U.S. strike on alleged Venezuelan drug boat - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNeFRDMkFnWlBENGZJNG0weU1oeG1taUJwWGpmWkNpSWF0cmJiRTRYbUs2SzVSWnNCbXZSbGZDeHd3Ym1XeXcyaVJhTDBOeGJqVDczR29OUzN4T3ppNTVxb2xXc1EzcWp3aUhDS2pGU2I2TkxtTDgtRHdXd2w0Z1lNZktB?oc=5) |
-| Xi Jinping shows solidarity with Vladimir Putin and Kim Jong Un at lavish China parade - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBhVlJNS2RKNWtXeGQ3cTdSQk5FaEZUX2NNVkhSZm9GTHE2UHlMOWdiOHFkeS1Gc0RyV2FUNzJvS01sS19GZ3A5clRmRnB1UGhRbXR1Z0Y5cmVwZTF1eEdiTl85UjVHWDdvU213M09hT0k?oc=5) |
+| Xi Jinping to show solidarity with Vladimir Putin and Kim Jong Un at lavish China parade - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBhVlJNS2RKNWtXeGQ3cTdSQk5FaEZUX2NNVkhSZm9GTHE2UHlMOWdiOHFkeS1Gc0RyV2FUNzJvS01sS19GZ3A5clRmRnB1UGhRbXR1Z0Y5cmVwZTF1eEdiTl85UjVHWDdvU213M09hT0k?oc=5) |
 | Kim Jong-un and His Daughter Take a Slow Train to China - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5mRktWMDR1Z0dyRDFPNmxRM1ZYUXBTRXRwZWVQNzZsSGVkaDAwaE5JOHZMaW13bDJpc0lMQXhESncweG16ODhoM0JKTkV1QTJmdmRScXVJOWppWTRPZktpc0RoNzBRc2t4QlBoVXpTZUs4QWxheXk2UERldS0?oc=5) |
 | Trump says he will deploy National Guard to Chicago but doesn't say when - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQQk5Wd3NveFJSSzA2c2pOZ0Z3UU9qNVVIb0xpb05TWVNXVmZ0cnoxR3hUZEtTZzZtS3AzTzdWaDRPYXJic3VCWUtnUUdEWHlnZ3VrTVdkNlFWb2kxeE05Uk5fMUwtNWk5OG9FVlA3TzZuc1d2T2ViLUtTZk93RnkwRlJCeGRTTDZ1bHhQVzZjUjRBQnMtUUREVHQ2Z1FFdGZvMEHSAacBQVVfeXFMTjU0bHhzVzlqMG1wNkZEb1M0R2RTSEE0ZnFXakZESmdRVG1xeXZUbnFnZkZlTUtOekZUMG5ncF9KUGxCcGlEZWlsaXJ4RnBnODQtbUV0ek1VNkFUckJoc2s2R0xNTHFCT0NUa0FzX29ITnFWV05acHNKY3VIVjJhV1p4bEdtMGo5b3F6V3pxSkJJcTNraWc5WXdMQTZzN01EenpRTWdhWVU?oc=5) |
 | Bowser to provide indefinite coordination with federal law enforcement - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOSlliT2lnaVlVRmZnLXp2dW5PM2toaThsdmFSYUQ2emltLTN1bDhIdVFCeEc5NXRZa09acUQ3bkhxUzVTYVVzZlBqYWNJNi0tSU5hRjYtMExkQlBKRXdiX3FvX2VGbVZLcHRCV0tJMm9fUUUzWFFqX3VwOHo2N3RnTUZZVHBzNTljcEFoMER1VGN2bVlnQnVEeS1CTEExakpSWXc?oc=5) |
