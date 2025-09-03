@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 04:49:48（北京时间）**
+🕒 更新时间：**2025年09月04日 04:56:35（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | China parade: What new weapons on show say about Beijing's military strength - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE50cnZzY0RoMi1WWjdrb0NJWDAtaGlMUHBRdWk3NEVkQW44cGpIVnFWdDl0SzJOYy0yeHYzZHZrSUZUWnNwbWRxZzNwRWNPa3FNdXljR0kzVkVvZ9IBX0FVX3lxTE9UTnpxNDdhTG1ZcmRFRUF4aUR2TVl3RnpGbG54QXl2Um03MFF3U0VsclFJODNRQ2UtTWNuQ2FKRG1WU1JLS2VGdUY5NjJ5U1pfaUhKcHh0bmVYU3ExMU9V?oc=5) |
 | More than 1,000 health workers urge Kennedy to quit over anti-vax policies - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOSUNkeG15VGlBcDVlSHVjM24tNnJQUmt0Y3pVODdZNmhxc0dnak5kU0w2LW5xNDZLZ0l2S1IzQWZrUklvempCai1ubEk5VE1GNFBNWW1ZVUd1LXB2Z2MxcXQxQ2Z0bjhjUklVdXBxOWtodmdnQ1R1UzBaTnFmVDFIWk8tLUc?oc=5) |
 | Nadler’s retirement reignites debate over advanced age of many in Congress - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQTHAyZ3BYSUtRWWJMRk9kcEV6TVFvT2VLS0xvNktMcGdlUlZBRk15VjVyZVYzUlBuTlRPdGlGUndBcHp2TWhOdjVfLUNRY2tuamVrSzVVSldKbWNEdVBaY1oyZi04ZUVIcjM5ODY5S2RXSHEwUk9sT2M4d2hiTGc5d2VTN25Bb3JNb3JSQlFNUXhhanpheUNwMUFqZV8?oc=5) |
-| Wildfire scorches historic California gold mining town, burning multiple homes - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQWEt0Y09iMlctaXFNRmtraERmNGZsaVIwOUVrWG9mSGxYa1IzdDJxRzBEUVd5YW5Zdk95MVJ1Q0xMczVkSEJwNFhXYjZmU1ZGb2YweUJqelFpRlZQM2FaMTJxR3pabUlXQ0E0VlRyTnJVeFVGYjR2ZjNIRGFxeWRMcTVQdS1HbkpHdlE4YVV4M00wLVliUTVMdEtsUXJSeUhNbGJRUFRxbnAxcElzQ3c?oc=5) |
 | Democrats confront limited options to block GOP's spreading redistricting efforts - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOaEp6eE5ENWJlODE1N3ppc3JoSm1MbkFvLVZFd3hUSjFrNlBwLXdJSzd6ZmQzYVdzUEVEcU5fUzU1UE5NYUREOE01RnBwVm1nS1hhQURrYnpFVEgza1NpNng1Ull2Z1owQWhVRmlPeGJEM244M0c1c3J1QURYVFhvY3k2dS04VkRRZ2U0YlBZenV4UHc3eUNMMlEwQzBUU1hEWW05YVN30gFWQVVfeXFMUDYxZWUtT3V6Zm5WdmVtVGl4cld2aHZRRkhvQk1GREVPdXFieGRPUzZhQ0t6bDdTSzZzaUpMYlZiSktfTURIMDFPelZTMXNqYThnVEo0UUE?oc=5) |
+| Wildfire near Yosemite National Park tears through historic Gold Rush town - SFGATE | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQSjM0Um5RSW5RQzBzSEhueWI0di1mYmhiS29xQTFwRkxHaUhXTVFZaFNHTkVZeklsYmFOaW5PVUdGb3lrUWVROTRmUlRTQ1NtLWVnaUtKYkRsZmlteV9tbmJ1d1g2OUZlMDdYOWNNZC04TXVpejRzOFBYOGNQWW1wdFItZGZJYkJVX3c?oc=5) |
 | Trump officials defend lethal strike on alleged Venezuelan drug boat - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUF9PQXJVWTF2RWFYR2JhTUlkeUpHdDdfcHo4cHppaUtERjRfZE04SGowdTdfNVdPRVp5ZDBtMEVJLXd1YlZpSlJJUkJWSkk0RW5qTnJ2WndkOEM3ZkJGNTZiSWViYTRCcnVlZk9leUNmQWw2SndKM0JsOWtnY2k3V1gtc25JbnpUT0tvQTkyT2k?oc=5) |
 
 ---
