@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月03日 22:00:54（北京时间）**
+🕒 更新时间：**2025年09月03日 22:08:49（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | Henry Zeffman: Rayner's political future under threat after stamp duty admission | [阅读全文](https://www.bbc.com/news/articles/c2lx1999ez8o?at_medium=RSS&at_campaign=rss) |
 | Met chief calls for law change after Graham Linehan arrest | [阅读全文](https://www.bbc.com/news/articles/c1mx09l5297o?at_medium=RSS&at_campaign=rss) |
-| China parade shows Xi as global leader, with military to rival US | [阅读全文](https://www.bbc.com/news/articles/cn0rllxld8go?at_medium=RSS&at_campaign=rss) |
+| China's Xi steals the limelight in a defiant push against US-led world order | [阅读全文](https://www.bbc.com/news/articles/cn0rllxld8go?at_medium=RSS&at_campaign=rss) |
 | Ministers favour merging all UK steel companies into one | [阅读全文](https://www.bbc.com/news/articles/c4gqe91kp57o?at_medium=RSS&at_campaign=rss) |
 | Topshop will return to High Street in 2026 | [阅读全文](https://www.bbc.com/news/articles/c1l854prl9vo?at_medium=RSS&at_campaign=rss) |
 | Energy drinks to be banned for under-16s in England | [阅读全文](https://www.bbc.com/news/articles/c707074qdnko?at_medium=RSS&at_campaign=rss) |
