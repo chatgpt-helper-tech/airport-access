@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月03日 22:57:56（北京时间）**
+🕒 更新时间：**2025年09月03日 23:01:47（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Appeals court blocks Trump from deporting members of Tren de Aragua gang and more top headlines - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQZkFZdzJvajJJcmc0UFdNSHZYQjRBbWRiTndWLXVXbWxEX2pObWVvRHVadUJybXpnUFRKWVQ3bFB4S1dZblFtaW9nNVdmTm93OUNtMlN5X3BqZWhuNjJUbTVLTEdvd1hsYmUwemZsQkVCUzBCNHlYWDhBREtsR080SzRybkxrYWw4Vm54MGxocXZ2VzZqYXVVVEVQSQ?oc=5) |
 | Trump Says U.S. Attacked Boat Carrying Venezuelan Gang Members, Killing 11 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNSXRKaWFsVmZLRFNmTkc4c0ZTUGh4MUFtZjZVNEFucjl2ekc1UzdfQzBha2o2UEZPeFBJQlp4b015VmN3OWNSTHNVUGlyTkpUQTZFUk8tYzkwVVVHaGV4cmJtb1dwNG5fY3Fmcll0SDRZMUJDcWMydkJlMlZkckxmbGVVaVMwcHpzMzVuQTJn?oc=5) |
 | North Korea: Kim Jong-un’s daughter makes international debut fuelling succession speculation - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxNMnVKSldvWmJaaEdPc05YLWxJeF9MTWp4U280WHQzT09odWNoakd3Z1RySnFMZ1Q1Um1sS2FRbVYwbkVqeGM0c1VNand6b0dMNFR4dDZoeEk4eE80aXo5M3BWdXBfalo0ZjhKWGprM05SenJoRnk0cHZETFhUQmc1bjZOQnpoa3ZhcGhjZW5WOXpYUlhNZzlkQnR2M21ndy1GeXB5d2wxLUxNSVdobGpuZENVWXhqOVhvUWpLOGxlRF9QWDVrb3hVS1FXVVdCYWxuV0Qw?oc=5) |
-| More than 1,000 HHS workers demand RFK Jr.'s resignation in new letter - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQbFExdkJRcFlVU3FFQ2F5aEpXVEM1dm1RczlFa1p4RWNKOXdCYU90NGk3dUtrTGVyVXpKSG5YVjVSTlFNV0Etdll3aW0yNEg2YzNyMzFtM0UwMVJ1eG0wUWw4enZHOVJJTmlwdUxzTmFIU0NCM1NLeUtiM3QwV1hRN0tRTQ?oc=5) |
+| Snubbing Kennedy, States Announce Plans to Coordinate on Vaccines - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTFA4eTVxM2JtMWg3WGsyMHdHYTNCWlMxcWVfcGx1YjdTX3Etc3M1THpUb3dFQ2QyTEFxakhYLWJsR3NFbnRhT1dnUGJTbllLaHZyM1NCTlRMR3dFRlNhY21aSkJ3TDRIQWNxYVM2ZjJfb0tRMDRm?oc=5) |
 | Survivors of Maine mass shooting and victims' relatives sue US government alleging negligence - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQX2xNclFkM0h6YnVpb2FSWDMyVm9WcjRvam00Skd3TmQ4blhxOVpmejJNRDdHOUxWRFhlME1OU2JRNk9UREhHSk9kbmFtcEQxWWxyTWh1SEx3VW5nQUVZQWZDdEdCU2RGaWdfcVRMMG9PZ0FWYWptVzl3LVdocWw4QmoyQm11ak9jYTgwWg?oc=5) |
 | Wildfire Destroys Buildings in Gold Rush Town of Chinese Camp - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOWjZrUFB6dU82bFljZlBqN1drX1RmaDRXMlY1eEJtWGlBZ2VVZHdFMS1IV2p6ZmYxSjh3a0hqdENRVnV0TC1heThraTFnUlZ0WXJ3Q1p4WUo1WWk0UWwxWjNyVExMcFRMMktBNktTODhwR0o0YXNTMEpFWEI5YjRodQ?oc=5) |
 | US judge blocks Trump from using troops to fight crime in California - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOU001VndHemVtWmpma0syd3BwNFowLVBtSkFPV1BpUmhjd3VhWUY0aFFldW5MYUhGYUdPX3lwTkREQ282XzRMWk95QVRSTjhISHRNdlU2ZnUxdjFGUHA3a2RoRjBoaGdDWkcwcHpTazZjaHM5WnhLdlFhVnd2aVFkdk0ybjlOczB4T2xULVpzWjhuNDgzSDNxNTRkMlpvcVE0aEE4emlhRm9NcDJRbjNZ?oc=5) |
