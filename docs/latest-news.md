@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月03日 22:41:47（北京时间）**
+🕒 更新时间：**2025年09月03日 22:49:50（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| First Thing: US House committee releases more than 33,000 pages of Jeffrey Epstein files - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPZTFrel83RzJyWHBxMWRWQXRVV0NsMHJ4QzBnaEZaNW03SEpFWjMwQnhybHdCMUQ0aXFIWDQ0aUVaaU1PZXNsSmZnY2FnSXVWY0txbG1Rb2lJWlNkcjNzS05YSmt4RmFxR1RFSE9vODFwWDh2OXdNYUF6R2pWUFAzUzJoU3BMN0NXWXlfUXJORkFmZnlySVpwNk14Z3FkZzI2NTFHeXVwb1ljOGZaV2dXY0ltZ0wxTDVzMWdKejBn?oc=5) |
+| Victims of Jeffrey Epstein giving news conference - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5VNTFYdXZKVlBjZjh3ZkQ4bnRZUkp0d0piOFktUUpUT3c5UFotaXlPNXp2WGQycC0xRHdoV19WemR5TFlwSG01S2M1eHB4RFhBQ2xETA?oc=5) |
 | China’s Latest Missiles, Drones and Submarines, Up Close - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNYnRsSXlXTmU1T2NWOU9vTkFuemo0N0VlYldTQjlTcjRsVDllMHZwb2xMZzBUekJvdlJScjRPYklweG1ZaTFocEV3MzE3UW9CLXFFdkRVUlk2TmVINllZWVNMWmg1MmdSZmt4QkxENFhuN0ZrbGFHQkN2Z1NpSmZ1eEhNX21pN2NvSTV6bnFzNTU2X3owMFgw?oc=5) |
 | Appeals court blocks Trump from deporting members of Tren de Aragua gang and more top headlines - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQZkFZdzJvajJJcmc0UFdNSHZYQjRBbWRiTndWLXVXbWxEX2pObWVvRHVadUJybXpnUFRKWVQ3bFB4S1dZblFtaW9nNVdmTm93OUNtMlN5X3BqZWhuNjJUbTVLTEdvd1hsYmUwemZsQkVCUzBCNHlYWDhBREtsR080SzRybkxrYWw4Vm54MGxocXZ2VzZqYXVVVEVQSQ?oc=5) |
-| Trump says 11 killed in US strike on drug-carrying vessel from Venezuela - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1fcm9jNDJTeGhaczhWTERVakoyQ1UzSlhDakh5aXhDMzF3Wl8zQW1jZUY4cU42dlN5aER4X1NoNUYyMDM1anJfeG5sQWtfTThTdEpielRxSFpJd9IBX0FVX3lxTFBOSmV1RmVpVFJpOXB4aWxubUhmc29CN1FnVUFEck5keURrUzJwWmpKemZzR0xXbVI5NElGV0tuUGYwdXV4d3daNkJJZFVNUWpXRWdWeElVcmtIc0xkbDhB?oc=5) |
+| US military strikes alleged drug boat, Trump says, '11 terrorists killed' - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNV2RsV1JpMGtobm82Tmc0Qk1ueUdBX3FYOGVHZkJNMG1CSllnQ01STndjNGsxQUVuMV80aXFEWWo0OHRBUzZ5TkNKbnZEUFpmS1YtOXIzbEo2UDFtTVdmWkhNMG9UdzZIMW9VMUhIQzFNRnJpSzgtVUdhWW9ieS1GRnJvQVJrQlRsNVNVVVhrMUE3d3hmb1dwTEN30gGfAUFVX3lxTE9HVUp0RWV0bWFnb2RuU3NNejh1TjY5NFVha3hjTXlkRlFFTlN1Yl9pOW5qelZvZ2lDWGVsWkRPUEtiVkpJc09OX3pmdUxvZEg1eHB6RlhFMWQ0bC1jdHRIMzMwNzc5amNENkRlRjd1SkZ4MllJR1Jxb29BOTJJVkd2MEE4bmhrekRxOUZ4QkkwWEpUd2VqLTZRQnhQWC1jcw?oc=5) |
 | Trump Accuses Xi of ‘Conspiring Against US’ With Putin, Kim - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPS05qUzhJRGI1X1dFX0QyNlJPN1RUXzVBZGJwWHlHTUM2MzhuSTUxNzdoLW43bWtJOHlFbFlIU3N6Z2xMOXdTRGdEdm96MC1fZVA5TW50NlFIZW95YzdJOWhfOEFKZVdCT0pqUkROZUd4OW95UWY5bnROclIyZEZvSC10VDBRLUxPT2pGTGJucU1aMTdHMVplaXQ2X3hlT1VxOEJ3S1FfWUhFTG52RUtGSG5KUQ?oc=5) |
-| Companies could be owed billions of dollars if tariff ruling sticks - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE56ZXBMZzllbGdlbkRVX2VtaUhmZUp3V3RfXzBCMHZuR1RucDUzS3NyLTNnLUpNQ0FIekpqci1zcU8yRy13dmRiQy11dldqeGlDY3ZiYmVXLUdJYWI2MFkwYXdCYzAyclVkTDdoeVFXWUc1Yl9tQzRPZQ?oc=5) |
+| The Push to Revise American History at the Smithsonian - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOeHhmcndWTGFHLXFhZEZvcHZOS1RiYW1pS3JLV2l6RGY2cDdreFItamhFQzZ0VHR6LXVVeE92enlBd08tZkJkeE9HTXQ4TzFsWldaeFM4cWxTdmhKSkUxVGZTcURvbTlYMmpQekpCVXRwMXVIaUhsRkh5dW44amJKNWl3?oc=5) |
 | Survivors of Maine mass shooting and victims' relatives sue US government alleging negligence - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQX2xNclFkM0h6YnVpb2FSWDMyVm9WcjRvam00Skd3TmQ4blhxOVpmejJNRDdHOUxWRFhlME1OU2JRNk9UREhHSk9kbmFtcEQxWWxyTWh1SEx3VW5nQUVZQWZDdEdCU2RGaWdfcVRMMG9PZ0FWYWptVzl3LVdocWw4QmoyQm11ak9jYTgwWg?oc=5) |
 | Wildfire Destroys Buildings in Gold Rush Town of Chinese Camp - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOWjZrUFB6dU82bFljZlBqN1drX1RmaDRXMlY1eEJtWGlBZ2VVZHdFMS1IV2p6ZmYxSjh3a0hqdENRVnV0TC1heThraTFnUlZ0WXJ3Q1p4WUo1WWk0UWwxWjNyVExMcFRMMktBNktTODhwR0o0YXNTMEpFWEI5YjRodQ?oc=5) |
-| D.C. grand jurors reject latest wave of Justice Dept. indictment requests - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNSmNYektacElxX0QwaDdOZ3gwS0swUGVUMXlOYWlHVWdYTldVci1ZelZ1VFlPdm4yNEN6SGgySDNxRTNJbkZvM2pUSTZUdlFpZTI0MENtUUZKN3c0MVN3bllRcHpjbTBpYWpLQjhJdEQ0VkFsaURBem9selV2RzljTkIwMUdZN1J1OW1hd9IBkgFBVV95cUxPS2NwZ2VRbDJqWFpfb1NxbHZ4MmJBV1VpZWNMaGdhYUpPOXFmcFRLMi1jSWR1VllCTmVReEIwWmQ1eThVenlSSFJyTWU2NGhmTENwZWFOWDdHYjhIaE4weHVIWVRQbzVGNGNUeVNJNUhJcmIyYlE3WFZ2eG9hZUZENVNQcTdySHFmSDhpTUIta2JHdw?oc=5) |
 | US judge blocks Trump from using troops to fight crime in California - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOU001VndHemVtWmpma0syd3BwNFowLVBtSkFPV1BpUmhjd3VhWUY0aFFldW5MYUhGYUdPX3lwTkREQ282XzRMWk95QVRSTjhISHRNdlU2ZnUxdjFGUHA3a2RoRjBoaGdDWkcwcHpTazZjaHM5WnhLdlFhVnd2aVFkdk0ybjlOczB4T2xULVpzWjhuNDgzSDNxNTRkMlpvcVE0aEE4emlhRm9NcDJRbjNZ?oc=5) |
+| D.C. grand jurors reject latest wave of Justice Dept. indictment requests - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNSmNYektacElxX0QwaDdOZ3gwS0swUGVUMXlOYWlHVWdYTldVci1ZelZ1VFlPdm4yNEN6SGgySDNxRTNJbkZvM2pUSTZUdlFpZTI0MENtUUZKN3c0MVN3bllRcHpjbTBpYWpLQjhJdEQ0VkFsaURBem9selV2RzljTkIwMUdZN1J1OW1hd9IBkgFBVV95cUxPS2NwZ2VRbDJqWFpfb1NxbHZ4MmJBV1VpZWNMaGdhYUpPOXFmcFRLMi1jSWR1VllCTmVReEIwWmQ1eThVenlSSFJyTWU2NGhmTENwZWFOWDdHYjhIaE4weHVIWVRQbzVGNGNUeVNJNUhJcmIyYlE3WFZ2eG9hZUZENVNQcTdySHFmSDhpTUIta2JHdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
