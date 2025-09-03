@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月03日 19:25:47（北京时间）**
+🕒 更新时间：**2025年09月03日 19:33:21（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | Appeals Court Blocks Trump’s Use of Alien Enemies Act to Deport Venezuelans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOclpjZzVLenFiRmFyNFZncnh0aG80VThDV1BxOGlIbGtRWnJaNnJZckxSRGhxNDJhN2NmcWRWdEw5R2RNWGg4R1BUNXo3LWFWTVAySHUzZHdrVHA4RkdsbnZoUzRaZmhGOFdrRGc4Z0l0WGN0X3JLYUN6bzVyMFdoZV80UzhTdXZk?oc=5) |
 | US House committee releases more than 33,000 pages of Epstein files - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5VNTFYdXZKVlBjZjh3ZkQ4bnRZUkp0d0piOFktUUpUT3c5UFotaXlPNXp2WGQycC0xRHdoV19WemR5TFlwSG01S2M1eHB4RFhBQ2xETA?oc=5) |
 | How Trump's quiet holiday weekend fueled a viral death hoax - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE50OUE1ZFF2ZVlmYkR4MncxeVBiazAxUlUxNUhlZFo4ZEV5ampFMzR0bXNBbzdFNVNWRElNV3I5aHVVM0tYVTZIaG1fSnNobTByNi02a01PaHJleG9MSzFoNlBMNnBBY3M5WnM3azFiajZ2VExXa1ZfWFIwdw?oc=5) |
-| What we know about the White House push for federal troops in Chicago – and the pushback from local politicians - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE40LVlseHpncnFjM1kxbE1vWVAtenpObTRoU1NSSWdKblFoOHBzc0NsSmtYN0ZvMFZtSEhpb0s0Q3lQX1pGWkx4SnlzaE9hSXpSaVEtNzlXYW5ReGdVQmlNR1d1TVF4dWpsekZEOTZnYVVVX0ZwS2J4ZnFxbw?oc=5) |
-| U.S. kills 11 in strike on alleged drug vessel from Venezuela, Trump says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOLVdRNzBpNTRJck80SnBQd1RET3dnd2FDRFBkaTltelhYRi1GUmpvQ1ZFYWVLWDktLXhsNUk0cXBVa2pWejFQcVVlTkZrYU80QzRSR0RQM3puZ05NaUJ0YnVBSXU5T2N2RHNySzVDcnhGZ2xybVcxVFdJSm9yX1VaaU42UnJKRmtBZGpSWk92YVZ2dw?oc=5) |
+| US judge blocks Trump from using troops to fight crime in California - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOU001VndHemVtWmpma0syd3BwNFowLVBtSkFPV1BpUmhjd3VhWUY0aFFldW5MYUhGYUdPX3lwTkREQ282XzRMWk95QVRSTjhISHRNdlU2ZnUxdjFGUHA3a2RoRjBoaGdDWkcwcHpTazZjaHM5WnhLdlFhVnd2aVFkdk0ybjlOczB4T2xULVpzWjhuNDgzSDNxNTRkMlpvcVE0aEE4emlhRm9NcDJRbjNZ?oc=5) |
+| Death toll climbs to over 1,400 after Afghanistan earthquake, official says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNQmxhOFhSMEwwaW40c1ZDalpPUmx0Z3lkWTRFR1pOSGplRmZYcmRNQTNzZE83T1BxMk9FNUVMald6STNVMVdIZDhhamtuVF9BYXZhWm42Z091d1Zud2dWemhBVTRaMjg4bTJLWEVJdkcxR082SUNoTzROTWdEZnhRXy1fMGxVVnVnRFlEQTdralVwUEdTZFhMLXZlONIBoAFBVV95cUxNYXg0UV9FMHp0UHFfUl9YY1ZyUFJmLVgwWGE5YVhYMzJaWXZxQWVaUHVPU29QUktJeWxRWElwS0tEaVFLcFBaMVdIU1h5YXg2SUVMNlU3emlkaXY4cXpvcmpZejFCa1UybVA3VUxoeUhjcE8xN0ZONk5yaEpwLThLZzZvMUszY19SdTl3Q1dzSGM1dHpGXzdOMUVNVlpieHZX?oc=5) |
 | 1 killed, 3 injured in Wyoming mountains plane crash - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOLWRZUTgxVkZhbHM5Z1Jaa1lzbVRhWVhtUFJaOHBfcFRpb1JMZWFfOUdxZkVMckMwcnFuajZCQ2lSWEw1LTZTOTIzWng1UHhXMkdKZkhkbzN6eC1kaFRFRXJCTG05Qkw5c3hqMFI2RVV1TEV0YkRjbGF4ZE5PVDVjU01WcVBBa2ZCel9xR2dFWGxLWC13bW9oTdIBngFBVV95cUxNZUtrVU5FaWktelZZa1BQcURNOW5fb182U1J6Yzl2cW56OGhaZHB5NUVGdmcwMUdqdTBjaXBZdDFaekt4Q2ZLcTJvaTdSU19Tejhsenh6a0ZJN1lEN2FTUlJOVERIUkV4N1J1bWE3M0VTTzJoWXllV3hKT2Jyb2pCUVNZRTEwMWlTTEVsTWp0NkdNM215T2VLdDNWeXR0QQ?oc=5) |
 | Chinese Camp: Quick-moving wildfire scorches historic California gold mining town, burning multiple homes - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQX3hVSDRHdDZZQ3hhalRXdThZTmNUeGwzOGZVTkRJRmRtQTZRNmdYSndVQkR4MVpfLVhyRk9jY2NHcU9CRkV0OEZfaEtITFdLVVYta2ZmMU5QUmlXOXk5WmNzbzdWSTJqUTBqR1J0WTFwdWhzTGVpVjI4LUpEMDg4ZWxZc1dGNE91QmM0VDczeWc?oc=5) |
+| U.S. kills 11 in strike on alleged drug vessel from Venezuela, Trump says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOLVdRNzBpNTRJck80SnBQd1RET3dnd2FDRFBkaTltelhYRi1GUmpvQ1ZFYWVLWDktLXhsNUk0cXBVa2pWejFQcVVlTkZrYU80QzRSR0RQM3puZ05NaUJ0YnVBSXU5T2N2RHNySzVDcnhGZ2xybVcxVFdJSm9yX1VaaU42UnJKRmtBZGpSWk92YVZ2dw?oc=5) |
 | ‘Exmo’ Influencers Mount a TikTok War Against the Mormon Church - MSN | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQV0ZGMm5UbHhjQjRuUXNIcjVqLUt6dWF3azdMLTl2STdwSWM2YkladzI3MktxNmZjZTl4WXJ3N1pXSjh6dUtQNEJNb2pDXzVMZWFTOTRXZkZkdnF3Y1dDcGpCVlhRX3pNMlNiX2g4eDE4Q0daUEJWdGJNM1h2dmtOSHBJS29yZnRITV9FNE5RQTRoYU9KSU1iNDVfRkNGZTV2NjdXa1dCdTU3bnM?oc=5) |
-| Trump aides plan megabill marketing reboot for GOP lawmakers - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNcXN1aDhwb2ltejhjaE1WRGtPLWpMck4weVY2Z25USEVLWUtYUDRqa093NEExRjB0WlBSNW1xOGRVZ2o4WHZuY0ZsYmxybXRhNzRKLW9fTWdHQjF0Mi1VZ0tPclhNVmdHV2hOQjhSTW14ZWtLRTl5aUNnYnlDeHV2Zk9B?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
