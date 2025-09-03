@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月03日 14:33:16（北京时间）**
+🕒 更新时间：**2025年09月03日 14:41:33（北京时间）**
 
 ---
 
@@ -15,8 +15,8 @@
 | Watch: Captain Scott’s famous polar shipwreck as never seen before | [阅读全文](https://www.bbc.com/news/articles/cpwyvyqkx9yo?at_medium=RSS&at_campaign=rss) |
 | Don't pay a fake parking fine – four ways to protect yourself from scams | [阅读全文](https://www.bbc.com/news/articles/cn8438ngpe1o?at_medium=RSS&at_campaign=rss) |
 | Asylum protests putting police under chronic pressure, chief says | [阅读全文](https://www.bbc.com/news/articles/c6272r550w3o?at_medium=RSS&at_campaign=rss) |
-| Seven claims made in new royal book from Brexit to Coronation | [阅读全文](https://www.bbc.com/news/articles/c78z84d3gdgo?at_medium=RSS&at_campaign=rss) |
 | Thames Water bidders ready to clear out top managers | [阅读全文](https://www.bbc.com/news/articles/cp8z8djjml5o?at_medium=RSS&at_campaign=rss) |
+| Seven claims made in new royal book from Brexit to Coronation | [阅读全文](https://www.bbc.com/news/articles/c78z84d3gdgo?at_medium=RSS&at_campaign=rss) |
 | US House panel releases 33,000 pages of Epstein files | [阅读全文](https://www.bbc.com/news/articles/cp949lrj373o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
