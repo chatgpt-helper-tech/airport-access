@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 05:40:38（北京时间）**
+🕒 更新时间：**2025年09月04日 05:49:20（北京时间）**
 
 ---
 
@@ -23,11 +23,11 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Florida plans to become first state to ban all vaccine requirements - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1BTUtQYkV0YnQxc2RlZHNacW1RaFA4OVpPNzJUMGF4dWh4dzI5UEFob2VVMUowMlJjeGdUTE5KaEtYVXUxbGxwYjdDNktIQ1J1XzZxZzNlV0Rxd9IBX0FVX3lxTFA0OGNmWm5Va0pzOW51M1RoalVFOU00VWlaWkRwczg0VFJXUVd0UE53WXJsNlRtSjBlQWstQk5fdU5SUkNPN3VzTVRrU3JiMG5VSkpxbXg0UklCd09TOE80?oc=5) |
 | Harvard Secures a Court Victory in Its Fight With Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1TV09FM0pxb3N5RnZ2MjhBVkhjMWV2M1otNHNDcjViWTEwVk5PXzJFa080NW1CbHJ2U3BybUJSdXEyLTFfRlNzYzNzZC1FX2tSVUduaWRhbWNxZzk1T2hDcUpNdldMTjM1QmhEVmtwUVlVSVIzNDVrU2Vldw?oc=5) |
+| Florida surgeon general says state is moving to 'end all vaccine mandates' - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQakpDSnFobWtCb01xS3hoTXM2ODRxdkVWeGxVVzEzbFNCTzY1dzc4QjdkRmxuSW9ZZk9UbFBBV2FDcUltM3E1ZjlnVzZOSmlacFVzckJmLU1XZWc1MzZlRlNKaTQ1SGVLUDZaVTJ0N3pqV1VFci1qU2xrN3dxUUROa0lUR0tPWEYzUEJTMmFBYkw3WFMzX2pxVE05bV92dFZtaTJYaGwxdmV6UdIBrwFBVV95cUxNSlRpUmhTZklmSVZpS1dRMGZTWF9GSlNOcDRtcnN1QmZ6UmEySlExejU1UUVqdVFjdEMxeVphNTVWN3o5aFZ0dEdlNGszV0RlbnRVTmp0RGQxX21sY1pYOUpqenlWakVDYm5fVlkxTWpzSUJNTjkzZWdxam1Vb0N6TGdnTngzREZLSXV6NWZ6ZVFMMHJzMmZaRWdrNDBOeTRpS2hUZjFUVFA2XzMtSEJB?oc=5) |
 | Epstein files push hits a ‘boiling point’ in Congress as Trump dismisses it as a hoax - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNa1lSbFJuY0ZLVENHZ0g4bzktUVdleThFS3ZKTGJuUzJQVjEtN1Bpd205RU1vajY4Y2puZTJzTEFxdVlkWXhCRGpVZ1JpNVJnRUNsWnpkNlpBUVJpczZXczNlSUFqY2FhM3EtUmd5Zm9jSXN4bUhNODdKWjkzUklZTFZEZU5OakFJ?oc=5) |
+| Trump sets New Orleans as next federal crime target, not Chicago - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1MaUFycmpFTGJSZ29PcEpLSG9vdVJmZ0FHNFBuVjFxMjlGYnczd0V6ZWE1cDF5TktWSU0xNFEzWmEzb2JzcU9DYnBLdmhOTHRUWnVuRHhmeUcwcVpMSE5IUGNWTmUyZHJta2ptXzI1eFQ3b2hNandrazlFVFIzVFk?oc=5) |
 | Oregon, Washington, California form health care alliance to protect vaccine access - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNQWRJd2t3WlhjT3pMMi01VjAtVzg5YU1zc1BUTkZoSXpRNVo0TG9iRlpDUjdUWU9YZXg1YXlCNnNEUHhZZ3NzeGhnV014TkhCTWFteHlubW40dXZpeWNoOHdWNlRaWEJOZXp5cWtyTENKeGh1SWdvWnpaMlhQMFdEWHNOc000dW1Z?oc=5) |
-| Trump floats federal troops to New Orleans, not Chicago - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNaHRXRHRMOFhWdlN4NG16ekRLSFQ4SEdicG92SE5RQnBIRlJGSHFzU1ZjT3c3S3NIbk53bDk1dWN0TzhhVmlIRGlSVTh0VW8zLXBJeHl2M0pIVWV5UDVxNmt4RnBpU2h3VElXMWZ4cm5ybzUtdWZ5TzIxRC1aa240V242cFQxTmplR0NTeE1yN1I4RDRp?oc=5) |
 | Landmark streetcar in Lisbon derails, killing 15 people - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNV0lCQU9YMDhKSUpvTERBYjZlMGdvRUYyMEhNRlNFQkJjTGZXSmZTaEZxZDB3LUM5VFJaZEoyTDByTmplVzYzaTFMeGQ2QXB1dE12LW1hUzRRZXhfcEJrZ29sRUJyRmczUUM5bkxEU1dqLTUtUVUydkhwLUFGVkhjZlllRC1FOVFpVnByZWh1OXpOZFdHYm9Ec2NOWW5fVUxlcmVGMXVSX3Nscm830gGyAUFVX3lxTFBKb1B0MW85SlFTVC1vQ3hBMk85NzZKVkJnS2VNRlVZOE9fTzU4RGk2eEdTWHUzR3pTX1FlSVdxV01YTk1nNkFBNUp1SlV0dHlhX2Z4cklHdGxSdFh4SFdLTnBpMmVlNEt6XzdhMGt0VThHZm5PNmtYZGtIN2xPbGFUM3JSRmVkOGpGM3lPLVI0QWhGZzVrNDRsWEZvaGVmZjV3MzZaaXJzUkpOOE9qR0ZSSUE?oc=5) |
 | More than 1,000 current, former HHS employees sign letter calling on RFK Jr. to resign - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPdnc3SHZBU0J2NXhIQlRwUlhNMTV0bHBIZThfd0RKR3VuN3hpWHdSUjJ0MFlZM0Q5SXJ3Q3dmYkFMeW9yVmtUUmptVVpmUTd4WGxURkZZMllXNHhoMVdBRGU2THA0SHN1MlZFM0dqZGNweUVibEp4cUZJQzhyeG51WllIZ2I2VTBuM1RhdmNrd240YUhmOTNzbkhhc2JkVEhXOHRJbNIBqgFBVV95cUxQb1ZwZUhHMnV1SHRSSWxvbVhWOXQwQzJDbXd2MGpvVWJoQlVlU3BYdkF1NjA0RmxKZGhhYTkxb2k2cGluNnhfV0diQzBCdU04Y1FBTmttSmp1aW1raWIxdjhfdG54UkdzekhmN2pBQzVDMVdqaEV2WnpiakhRdFpvMm9nbzZqUEJzVjRIWXVibUhXUHJfeVZrSHB1UTVrT0JoZWZBSG85MkdyZw?oc=5) |
 | A trend of acknowledging Democrats' age problem is emerging - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQTHAyZ3BYSUtRWWJMRk9kcEV6TVFvT2VLS0xvNktMcGdlUlZBRk15VjVyZVYzUlBuTlRPdGlGUndBcHp2TWhOdjVfLUNRY2tuamVrSzVVSldKbWNEdVBaY1oyZi04ZUVIcjM5ODY5S2RXSHEwUk9sT2M4d2hiTGc5d2VTN25Bb3JNb3JSQlFNUXhhanpheUNwMUFqZV8?oc=5) |
