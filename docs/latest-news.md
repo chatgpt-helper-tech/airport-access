@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月03日 18:24:23（北京时间）**
+🕒 更新时间：**2025年09月03日 18:32:57（北京时间）**
 
 ---
 
@@ -23,15 +23,15 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| China parade: What new weapons on show say about Beijing's military strength - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE50cnZzY0RoMi1WWjdrb0NJWDAtaGlMUHBRdWk3NEVkQW44cGpIVnFWdDl0SzJOYy0yeHYzZHZrSUZUWnNwbWRxZzNwRWNPa3FNdXljR0kzVkVvZ9IBX0FVX3lxTE9UTnpxNDdhTG1ZcmRFRUF4aUR2TVl3RnpGbG54QXl2Um03MFF3U0VsclFJODNRQ2UtTWNuQ2FKRG1WU1JLS2VGdUY5NjJ5U1pfaUhKcHh0bmVYU3ExMU9V?oc=5) |
+| China's Xi projects power at military parade with Putin and Kim - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOcHo5N0tHM3MyV2VTT3pNYWR4Y3VOamkxUzNJcWhNbkhKNngzODBoSGpvQmZpNmk5ZzVmOUJWb2xOdHBqQjRfR19lekdkTmptbWsxXzJEdGJ6cTBVbDQtN0tUVTI1MkVhV1dhMVNzX0hjd25UWENfemZGOGFOVGlFQmh0V29BY1pua2RWT3dDczhlMUw5LWZzeU5wLVFUZHVqR1Y0ZGtn?oc=5) |
 | Appeals Court Blocks Trump’s Use of Alien Enemies Act to Deport Venezuelans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOclpjZzVLenFiRmFyNFZncnh0aG80VThDV1BxOGlIbGtRWnJaNnJZckxSRGhxNDJhN2NmcWRWdEw5R2RNWGg4R1BUNXo3LWFWTVAySHUzZHdrVHA4RkdsbnZoUzRaZmhGOFdrRGc4Z0l0WGN0X3JLYUN6bzVyMFdoZV80UzhTdXZk?oc=5) |
-| Trump faces new Epstein headache as Congress returns from recess - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQMDU4TWFQa25WVHFjZkhnNW5Sb3ZVOUYwVUhocDZlRTlQTE02amQyMkUtaS1YQVZuUkZ4dmZyTjJZWm5rMS1mb1gtZDVEVTZoRGxZRGdwWThUQVFjbENVaXZyakJ2LW5pMXlEMWVHb0FZWGFYazB2VU1BWjQ1N0h2cnR5bVU?oc=5) |
-| US judge blocks Trump from using troops to fight crime in California - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOU001VndHemVtWmpma0syd3BwNFowLVBtSkFPV1BpUmhjd3VhWUY0aFFldW5MYUhGYUdPX3lwTkREQ282XzRMWk95QVRSTjhISHRNdlU2ZnUxdjFGUHA3a2RoRjBoaGdDWkcwcHpTazZjaHM5WnhLdlFhVnd2aVFkdk0ybjlOczB4T2xULVpzWjhuNDgzSDNxNTRkMlpvcVE0aEE4emlhRm9NcDJRbjNZ?oc=5) |
+| US House committee releases more than 33,000 pages of Epstein files - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5VNTFYdXZKVlBjZjh3ZkQ4bnRZUkp0d0piOFktUUpUT3c5UFotaXlPNXp2WGQycC0xRHdoV19WemR5TFlwSG01S2M1eHB4RFhBQ2xETA?oc=5) |
 | How Trump's quiet holiday weekend fueled a viral death hoax - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE50OUE1ZFF2ZVlmYkR4MncxeVBiazAxUlUxNUhlZFo4ZEV5ampFMzR0bXNBbzdFNVNWRElNV3I5aHVVM0tYVTZIaG1fSnNobTByNi02a01PaHJleG9MSzFoNlBMNnBBY3M5WnM3azFiajZ2VExXa1ZfWFIwdw?oc=5) |
+| U.S. kills 11 in strike on alleged drug vessel from Venezuela, Trump says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOLVdRNzBpNTRJck80SnBQd1RET3dnd2FDRFBkaTltelhYRi1GUmpvQ1ZFYWVLWDktLXhsNUk0cXBVa2pWejFQcVVlTkZrYU80QzRSR0RQM3puZ05NaUJ0YnVBSXU5T2N2RHNySzVDcnhGZ2xybVcxVFdJSm9yX1VaaU42UnJKRmtBZGpSWk92YVZ2dw?oc=5) |
 | Military lawyers called up to relieve a shortfall in immigration judges - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNV25LcnRiYUpJUkRRdUhpMDhkZ013X2IwZ1luTUhjNHBSRXhDX21mc0t0ZkJleUE1Z0VLUjI3QTlHdUxvVnhzTGJMQzR3S0QzdTd2alo0cDkxY2tNUmZDZDN6QTFiQ3hqZjVMZmttUmNmR2dlWkxaZGE0Y3ZTTmhZQmwwMllMeElt?oc=5) |
 | Grand jury refuses to indict second person accused of threatening President Trump - WUSA9 | [阅读全文](https://news.google.com/rss/articles/CBMihwJBVV95cUxOOVFDQ1RTZFZFY0JoWWJLdnl5dXRyTk5XU3JqN3JPaEtuZjUxQ3h1cy1rSWN3VHVfQ3J0cGV5ODdxTk44cGxiSGtTa1h5XzBxeEhFUE1CdGYzVGIyX25WSUM4UWhER0lCdUdod3lZMUNRVVQ1cTBCbkpUQ2xiWF9oU0gxRzV2RDVYa3h6UHN0UlI3aWRIQ3V0MzdrMkdQR3haOXduLWdjak1Tc2gwa0RRNWRqRzYzRi1lY0ltMXctaWNoaExtLWNweFNNRUF3R0E5TW5xUURFcGdEYldzcE02czE2UU9zUGpNWkVfM2VraFRVUEFtc2R2ZllHQ00zZVY1S2U0bG43cw?oc=5) |
-| Trump to move U.S. Space Command headquarters from Colorado to Alabama - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOYTJERXFfRmJyS0NBS25ua3VBTFlwRElKaFYzODFidkZYRmRnSW1IbGhWTW14d0lVNWtVbHN0RXFlaTRYZnBhVkdnR2ZxclNLSkZYdC1WOXpBSG1qM1FOTHJsWnlpVXFMaF9GYVhQOXFNVFA4YkcybDlodnZhY0xJSHU2ZUZtaFFRYUhCUkNhTGNHdw?oc=5) |
-| Trump says 11 killed in US strike on drug-carrying vessel from Venezuela - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1fcm9jNDJTeGhaczhWTERVakoyQ1UzSlhDakh5aXhDMzF3Wl8zQW1jZUY4cU42dlN5aER4X1NoNUYyMDM1anJfeG5sQWtfTThTdEpielRxSFpJd9IBX0FVX3lxTFBOSmV1RmVpVFJpOXB4aWxubUhmc29CN1FnVUFEck5keURrUzJwWmpKemZzR0xXbVI5NElGV0tuUGYwdXV4d3daNkJJZFVNUWpXRWdWeElVcmtIc0xkbDhB?oc=5) |
+| Trump Relocates Space Command to Alabama, Reviving a First-Term Plan - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPdGkxQ3BwbFRGS3pWSmpXdGZRd3F4QWY0SzFSRFRZQm13RFNrQWRSOW9mdlN3MmgzaDRQZmMycXdYT0hZdHBWNC1YYXNZVW5BRVN2U3RUUmYyUnZtTmhyczBWeV95R0dKbXdqNTE3dkFjRWoyTE9QOVlxRFc3QkJDZFQ5ZlBtSjN2LXk0Tjlwa0dldw?oc=5) |
+| Trump Plans to Send Texas National Guard, ‘Armed Military Personnel’ to Chicago: Pritzker - WTTW | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQT0U5Sm9kSFFVSlRHWWt0c04zdk1wM2VJUmdWVVBrdWxuLTlKNGRfczQtZndpSVdQVG5CeTBkTnJnRFZ6b0JDU0sxRFB5eW1QMVpnbFRNRnhjTnZQWklEUmo0ZFNFOWxtcUtYY280dmdiMDFMSVRhRVZOWUlOMU85cEduRlRGY3pVeDZjb3llcGhfa3JYWUMwLWNCZXJ4YTZ6emk4cTZaVkFCSXlya1lQSVJ3?oc=5) |
 | ‘Exmo’ Influencers Mount a TikTok War Against the Mormon Church - MSN | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQV0ZGMm5UbHhjQjRuUXNIcjVqLUt6dWF3azdMLTl2STdwSWM2YkladzI3MktxNmZjZTl4WXJ3N1pXSjh6dUtQNEJNb2pDXzVMZWFTOTRXZkZkdnF3Y1dDcGpCVlhRX3pNMlNiX2g4eDE4Q0daUEJWdGJNM1h2dmtOSHBJS29yZnRITV9FNE5RQTRoYU9KSU1iNDVfRkNGZTV2NjdXa1dCdTU3bnM?oc=5) |
 
 ---
