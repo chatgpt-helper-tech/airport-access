@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 02:32:51（北京时间）**
+🕒 更新时间：**2025年09月04日 02:41:55（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | 'Ketamine Queen' pleads guilty in Matthew Perry overdose case | [阅读全文](https://www.bbc.com/news/articles/c2dng3rrzjdo?at_medium=RSS&at_campaign=rss) |
 | Putin says Russia will achieve all aims militarily if Ukraine does not agree deal | [阅读全文](https://www.bbc.com/news/articles/c4g7dze5n1vo?at_medium=RSS&at_campaign=rss) |
 | M&S hackers claim to be behind Jaguar Land Rover cyber attack | [阅读全文](https://www.bbc.com/news/articles/c4gqepe5355o?at_medium=RSS&at_campaign=rss) |
-| Radiohead to tour for first time in seven years | [阅读全文](https://www.bbc.com/news/articles/cedvddjnd08o?at_medium=RSS&at_campaign=rss) |
+| Search for painting looted by Nazis may have found more stolen art | [阅读全文](https://www.bbc.com/news/articles/cdx26z142vko?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -27,8 +27,8 @@
 | China’s military parade reveals new hypersonic missiles, drone submarines and ICBMs - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQNHl0MF9FQmhZajhkNkpqZURZV0Exa1MxMU9Cb3ZoeDNBVngxaWZqQi1sdkJibWhQNWxueXJVWHgxWDRydW5WYll6bFpQMzF2dkRkdnhYX2QxN3Z4aS1xT2FHRHVjMUVJdTBtT0trZUk4Q2lFXzQwaWQtTGpUcGNVLVItZDdJOEZZNUplalQzaEJuVGpzNjZldXpIaXlEdGhLVVRkVWVpd2ttZE42T08yeGFFNnBoUQ?oc=5) |
 | Florida plans to end all state vaccine mandates, including for schools - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxOT28yVlp4d2w4YXZ4YjFEMGl6bzhRVjBTUUNLWEtkWnhGa0JURkotQ0pJcV9RdlQtM2laM09UdEhRWnJKd0ZtUlJSNmNsWDlHeUpWVHpuMWF3Sk9sVVRqQWJmd3pNd0RKQW8tQ2NZdUdhZzRmSS0tVWtxMXc5VWZKYkFJeF9fdWRzM2ZCaVRwZzIwY1pGNVlqZVROemYzS3FVMzZESDRNRTl1aU5BYncxWmZsc1BmdWJYOURXRU45ZTlOWEwwMDNmN0JyeC0xOEU?oc=5) |
 | Snubbing Kennedy, States Announce Plans to Coordinate on Vaccines - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQYUZzaDZ2TE85SmFMLVhkYWxhRDM1SjBDMmhPZ1NWSnh4SkF3V0hRVm1yNVBpaHFzRkdkN2V1U1lfc2ZMZUNSWXFWZ0lOWF9zNVFEODN4amNURTFrVl9LU19qMXg5cHJhMDAzTjI1ZTJvU2pzdUtmNm9sLVlaS1c1SkdiS2E3S0hQcHc?oc=5) |
-| Trump floats federal troops to New Orleans, not Chicago - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNaHRXRHRMOFhWdlN4NG16ekRLSFQ4SEdicG92SE5RQnBIRlJGSHFzU1ZjT3c3S3NIbk53bDk1dWN0TzhhVmlIRGlSVTh0VW8zLXBJeHl2M0pIVWV5UDVxNmt4RnBpU2h3VElXMWZ4cm5ybzUtdWZ5TzIxRC1aa240V242cFQxTmplR0NTeE1yN1I4RDRp?oc=5) |
 | More than 1,000 HHS workers demand RFK Jr.'s resignation in new letter - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQbFExdkJRcFlVU3FFQ2F5aEpXVEM1dm1RczlFa1p4RWNKOXdCYU90NGk3dUtrTGVyVXpKSG5YVjVSTlFNV0Etdll3aW0yNEg2YzNyMzFtM0UwMVJ1eG0wUWw4enZHOVJJTmlwdUxzTmFIU0NCM1NLeUtiM3QwV1hRN0tRTQ?oc=5) |
+| Release of ‘missing minute’ of Epstein video contradicts Bondi claim cameras stopped recording - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPNG91eVUyMjhvRlBtOVdsSnU4QndDRWNac3NkMTRJRWJNVEhTYTJ2X1EwZ3hSSFE2UWpISjJWWnlHQi0xQ2RVcEp5Sjd4ZGJWSGxKQWVDNXVPNWNOeWpfcWk2SUt2V1hwNk5Balk2c0hPd1lqWGJPQ1pWMnVzTDU5MllfSldqeWFYR0JfU2dn?oc=5) |
 | Wildfire scorches historic California gold mining town, burning multiple homes - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQWEt0Y09iMlctaXFNRmtraERmNGZsaVIwOUVrWG9mSGxYa1IzdDJxRzBEUVd5YW5Zdk95MVJ1Q0xMczVkSEJwNFhXYjZmU1ZGb2YweUJqelFpRlZQM2FaMTJxR3pabUlXQ0E0VlRyTnJVeFVGYjR2ZjNIRGFxeWRMcTVQdS1HbkpHdlE4YVV4M00wLVliUTVMdEtsUXJSeUhNbGJRUFRxbnAxcElzQ3c?oc=5) |
 | Trump appeals ruling that National Guard deployment to LA broke the law - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQdVdiaHNpUzJtM1g2UjROVVZYMFZkUVFRT05aNkVaamRVcXBkUDRXcjhlSXpYNTBBMUlfcC1McE1KZ1NZNGh6NjF5b3NLcXJLOVRqOFkxVHJFdnVrOThrNjQyMGhfVkFVTjJjTnh6TFJTbFJGNlg4OTE1a0hWSUs5Y0pFYkkzU181bW5YTXVDNi3SAZYBQVVfeXFMUGtiRi1vM3ZWZnFJNk9EUXNmVFlDcXVHT0U2VjBMTlJuaGh2VVhCUktpMzRMWXZraklJclBldnRhbW1VaTZ5bm9IZUJtRE5jZFVnZUxkR0JQZ29fNUxFUVlWcnoyQlJTaUFZalhNQWRqWVFxX2VwTld3TVlxUHFMeXRQejN6Qi1YTjZTUGk0N01HWnozZElB?oc=5) |
 | Democrats confront limited options to block GOP's spreading redistricting efforts - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOaEp6eE5ENWJlODE1N3ppc3JoSm1MbkFvLVZFd3hUSjFrNlBwLXdJSzd6ZmQzYVdzUEVEcU5fUzU1UE5NYUREOE01RnBwVm1nS1hhQURrYnpFVEgza1NpNng1Ull2Z1owQWhVRmlPeGJEM244M0c1c3J1QURYVFhvY3k2dS04VkRRZ2U0YlBZenV4UHc3eUNMMlEwQzBUU1hEWW05YVN30gFWQVVfeXFMUDYxZWUtT3V6Zm5WdmVtVGl4cld2aHZRRkhvQk1GREVPdXFieGRPUzZhQ0t6bDdTSzZzaUpMYlZiSktfTURIMDFPelZTMXNqYThnVEo0UUE?oc=5) |
