@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月03日 14:08:05（北京时间）**
+🕒 更新时间：**2025年09月03日 14:17:47（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Xi Jinping says world faces ‘peace or war’, as Vladimir Putin and Kim Jong-un join him for military parade - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOUUFNRHhoMGFKSFFPZjhUZVR0VFUtT1o0em1WdWVBMjJxdkl1RXA5NHVjTDgxcU8wc3pSd1Y0M0tFZnpub2dabG15aEd3RkxiM01IS1Ftc29XdHlpYXJNQkZzWFE2NVEwMUdyNFdwUC1OWFlXSmlGUmZ4bjBlNkJvVTZuNFNBbnQ4X3RhOW1uRXJRdVR6VG9aSUtVRjhWQ0U1bno1T290RWp5a2N2SmFldEdzMWVRN3J2UkE?oc=5) |
+| China parade as it happened: Xi Jinping presides over show of military might attended by Vladimir Putin and Kim Jong Un - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9haTFDYlJxbmEzX1BEdUFVY0RDNjd2R254WGdPMU9aYjNrNGJoaWVyS3FtVzYtVWx4TXFjbFYwaDRrRTBQYlVvWkYzY3BCN2lieVlyX01GTEtHaC1scmxBSWpKc1lnR0xXQ1MtQW42WF8?oc=5) |
 | House Oversight Panel Releases Some Epstein Files as Pressure Mounts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNc2VkQWtKYXRUa282WWFEZmxlM0FabHBnS1M1YXotcEFISHNHTVlLTDVFMHlvWjhNb1BXOG5MQnBVNHFmUmUwVUtsNldOYVhwRHhZMjR3bGthY3NaeTJ6aHBrYWNQNG93QmhSdWtzSVFmOU9HcXdXb1d2VnJkRXdXRWJSdFdCN1k2angzdXJSRENpQU0?oc=5) |
-| US military kills 11 people in strike on alleged drug boat from Venezuela, Trump says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxNUUJUanRkbEc1Vk9rQzh6Q2JLVEtWU2ExcWt1QzJDdXFpNFRsZUtqYW04WURyQ0FFQWV1d1l6Y1NhVGRtVlNiUGZraXJ2cXIwTExTM0VqVTFSdG54dy1LMC1aNGxSWmRyY0NrTTR1MEZTRFVnTlJEZkhaekoyb2hPSDlFb1dRZHVlOUtMNXVweWJjQkZuR3k3N29vN19JbUlVSklrY1lHZTk2elBPWGpFdlFCSGVlaEh5a3R3eTIxeUt3dw?oc=5) |
 | How Trump's quiet holiday weekend fueled a viral death hoax - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE50OUE1ZFF2ZVlmYkR4MncxeVBiazAxUlUxNUhlZFo4ZEV5ampFMzR0bXNBbzdFNVNWRElNV3I5aHVVM0tYVTZIaG1fSnNobTByNi02a01PaHJleG9MSzFoNlBMNnBBY3M5WnM3azFiajZ2VExXa1ZfWFIwdw?oc=5) |
+| US military kills 11 people in strike on alleged drug boat from Venezuela, Trump says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxNUUJUanRkbEc1Vk9rQzh6Q2JLVEtWU2ExcWt1QzJDdXFpNFRsZUtqYW04WURyQ0FFQWV1d1l6Y1NhVGRtVlNiUGZraXJ2cXIwTExTM0VqVTFSdG54dy1LMC1aNGxSWmRyY0NrTTR1MEZTRFVnTlJEZkhaekoyb2hPSDlFb1dRZHVlOUtMNXVweWJjQkZuR3k3N29vN19JbUlVSklrY1lHZTk2elBPWGpFdlFCSGVlaEh5a3R3eTIxeUt3dw?oc=5) |
 | Trump broke the law by sending National Guard to L.A., federal judge rules - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNaWlPNDZ3aElJcjZYNHhpVnNlOEQzVTcxVlRMVEw5M3g0RnBIenZrRlR3eHBpM3Y2WG5YckJEaEZiZVVzcWg5X0daRXZqOExBbHlVZER3V0k2YlVMQnJTOThMeDlyNElodDAwTDlPMWh5bFZ6dWw4Yk1yT2o4WnlBYlRR?oc=5) |
 | Federal appeals court says Trump unlawfully invoked the Alien Enemies Act for deportations - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNZTAxR0RBMjhnLUZ1My15OHdLMk9KbGpOdnNYa1JyTS0wYzZqck5WMUo5NWZOeFNubGFiWjliMUkwV3E5UGQ4VjZGUXVHeklBa0lUaHlqblNSeThPQmZ0S0cxcnNZa1ZETmlqWUVxZG16R052Y3ZxckpPOVJ1SXZsbWlhRTJoV09XZ2xFMlBFOTV3ZzY0cUs5dGxfdzZIOUszMThNbElXZHgwZw?oc=5) |
 | Trump to move U.S. Space Command headquarters from Colorado to Alabama - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOYTJERXFfRmJyS0NBS25ua3VBTFlwRElKaFYzODFidkZYRmRnSW1IbGhWTW14d0lVNWtVbHN0RXFlaTRYZnBhVkdnR2ZxclNLSkZYdC1WOXpBSG1qM1FOTHJsWnlpVXFMaF9GYVhQOXFNVFA4YkcybDlodnZhY0xJSHU2ZUZtaFFRYUhCUkNhTGNHdw?oc=5) |
