@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月03日 17:56:26（北京时间）**
+🕒 更新时间：**2025年09月03日 18:01:14（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Appeals court rejects Trump’s bid to deport Venezuelan immigrants he deems ‘alien enemies’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPRG5pVThRc3VOdzhyT1RoZk1pNWhFbDhIRmdzSWwxRW5hQ1ozX0p1ZG4yVHRBYXBkRmk1Yk1relJJanh4TmFMbVJEbnptcGZoZlF3c3dDblRpOUtOaUtrN05VOUVuQ2EzZEIwSnpqSkRkamd3MG93ZnJhN0gwOUpvc2x1LW05Q1R4YW5ZRDhFWWl6TFd1?oc=5) |
 | Trump broke the law by sending National Guard to L.A., federal judge rules - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNaWlPNDZ3aElJcjZYNHhpVnNlOEQzVTcxVlRMVEw5M3g0RnBIenZrRlR3eHBpM3Y2WG5YckJEaEZiZVVzcWg5X0daRXZqOExBbHlVZER3V0k2YlVMQnJTOThMeDlyNElodDAwTDlPMWh5bFZ6dWw4Yk1yT2o4WnlBYlRR?oc=5) |
 | How Trump's quiet holiday weekend fueled a viral death hoax - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE50OUE1ZFF2ZVlmYkR4MncxeVBiazAxUlUxNUhlZFo4ZEV5ampFMzR0bXNBbzdFNVNWRElNV3I5aHVVM0tYVTZIaG1fSnNobTByNi02a01PaHJleG9MSzFoNlBMNnBBY3M5WnM3azFiajZ2VExXa1ZfWFIwdw?oc=5) |
-| What we know about the White House push for federal troops in Chicago – and the pushback from local politicians - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE40LVlseHpncnFjM1kxbE1vWVAtenpObTRoU1NSSWdKblFoOHBzc0NsSmtYN0ZvMFZtSEhpb0s0Q3lQX1pGWkx4SnlzaE9hSXpSaVEtNzlXYW5ReGdVQmlNR1d1TVF4dWpsekZEOTZnYVVVX0ZwS2J4ZnFxbw?oc=5) |
-| Trump to move U.S. Space Command headquarters from Colorado to Alabama - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOYTJERXFfRmJyS0NBS25ua3VBTFlwRElKaFYzODFidkZYRmRnSW1IbGhWTW14d0lVNWtVbHN0RXFlaTRYZnBhVkdnR2ZxclNLSkZYdC1WOXpBSG1qM1FOTHJsWnlpVXFMaF9GYVhQOXFNVFA4YkcybDlodnZhY0xJSHU2ZUZtaFFRYUhCUkNhTGNHdw?oc=5) |
+| Trump Announces Relocation of U.S. Space Command - U.S. Department of Defense (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxONUpCQ3NkYTRLZUtSWTRyMXN3OXVtaFRfUXY3dGRxWHJya0FLWkpnZzNYc3p2Qy10VDVJRno0THBpRG5pTm9ROTVNRUppb0h4MEQtLVFCekhZczJWYkV6TU5POUZ3OFBUbjVycTB6TGIzQ05yU3RJNVhtN1FRVmZpTmJNX1dOZTFIdkl3OU8ycF9aVkI2SjFOVDNhcXBMQ2dNc2JMY201N2VGbTJZV3dUaU12VQ?oc=5) |
 | Trump says 11 killed in US strike on drug-carrying vessel from Venezuela - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1fcm9jNDJTeGhaczhWTERVakoyQ1UzSlhDakh5aXhDMzF3Wl8zQW1jZUY4cU42dlN5aER4X1NoNUYyMDM1anJfeG5sQWtfTThTdEpielRxSFpJd9IBX0FVX3lxTFBOSmV1RmVpVFJpOXB4aWxubUhmc29CN1FnVUFEck5keURrUzJwWmpKemZzR0xXbVI5NElGV0tuUGYwdXV4d3daNkJJZFVNUWpXRWdWeElVcmtIc0xkbDhB?oc=5) |
 | Wildfire Destroys Buildings in Gold Rush Town of Chinese Camp - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOWjZrUFB6dU82bFljZlBqN1drX1RmaDRXMlY1eEJtWGlBZ2VVZHdFMS1IV2p6ZmYxSjh3a0hqdENRVnV0TC1heThraTFnUlZ0WXJ3Q1p4WUo1WWk0UWwxWjNyVExMcFRMMktBNktTODhwR0o0YXNTMEpFWEI5YjRodQ?oc=5) |
 | Appeals court rejects Trump’s bid to fire Biden-appointed FTC member - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNNGVxeDlPUGpyR3ZZMHAzQWgwS0Z0WjZVSkoyaEtUeGEzcmtXbnFBZkVHYVR5YVg4R3FCLVB1NkljX2VUUEVhbGQyMHhxUGdsT1k0bENkNHpkeHVudTA5VlZpRE1ROE1la0xXLTV5TlZGX1owRVozSUpWa0QzWWdUVW92TUZET3hVOVloRFNPZzBnWjg1bHc?oc=5) |
+| Trump Plans to Send Texas National Guard, ‘Armed Military Personnel’ to Chicago: Pritzker - WTTW News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQT0U5Sm9kSFFVSlRHWWt0c04zdk1wM2VJUmdWVVBrdWxuLTlKNGRfczQtZndpSVdQVG5CeTBkTnJnRFZ6b0JDU0sxRFB5eW1QMVpnbFRNRnhjTnZQWklEUmo0ZFNFOWxtcUtYY280dmdiMDFMSVRhRVZOWUlOMU85cEduRlRGY3pVeDZjb3llcGhfa3JYWUMwLWNCZXJ4YTZ6emk4cTZaVkFCSXlya1lQSVJ3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
