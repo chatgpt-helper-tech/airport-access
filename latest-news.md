@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 05:58:00（北京时间）**
+🕒 更新时间：**2025年09月04日 06:00:23（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Oregon, Washington, California form health care alliance to protect vaccine access - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNQWRJd2t3WlhjT3pMMi01VjAtVzg5YU1zc1BUTkZoSXpRNVo0TG9iRlpDUjdUWU9YZXg1YXlCNnNEUHhZZ3NzeGhnV014TkhCTWFteHlubW40dXZpeWNoOHdWNlRaWEJOZXp5cWtyTENKeGh1SWdvWnpaMlhQMFdEWHNOc000dW1Z?oc=5) |
 | Landmark streetcar in Lisbon derails, killing 15 people - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNV0lCQU9YMDhKSUpvTERBYjZlMGdvRUYyMEhNRlNFQkJjTGZXSmZTaEZxZDB3LUM5VFJaZEoyTDByTmplVzYzaTFMeGQ2QXB1dE12LW1hUzRRZXhfcEJrZ29sRUJyRmczUUM5bkxEU1dqLTUtUVUydkhwLUFGVkhjZlllRC1FOVFpVnByZWh1OXpOZFdHYm9Ec2NOWW5fVUxlcmVGMXVSX3Nscm830gGyAUFVX3lxTFBKb1B0MW85SlFTVC1vQ3hBMk85NzZKVkJnS2VNRlVZOE9fTzU4RGk2eEdTWHUzR3pTX1FlSVdxV01YTk1nNkFBNUp1SlV0dHlhX2Z4cklHdGxSdFh4SFdLTnBpMmVlNEt6XzdhMGt0VThHZm5PNmtYZGtIN2xPbGFUM3JSRmVkOGpGM3lPLVI0QWhGZzVrNDRsWEZvaGVmZjV3MzZaaXJzUkpOOE9qR0ZSSUE?oc=5) |
 | More than 1,000 health workers urge Kennedy to quit over anti-vax policies - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOSUNkeG15VGlBcDVlSHVjM24tNnJQUmt0Y3pVODdZNmhxc0dnak5kU0w2LW5xNDZLZ0l2S1IzQWZrUklvempCai1ubEk5VE1GNFBNWW1ZVUd1LXB2Z2MxcXQxQ2Z0bjhjUklVdXBxOWtodmdnQ1R1UzBaTnFmVDFIWk8tLUc?oc=5) |
+| NYC Mayor Eric Adams faces a decision: A Trump administration post to drop his reelection campaign - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxPaUJjMjVpTUkyM3BBczhUWDJSd2RDblpEZThHRmZEQmxJbnNJeko4XzBCa3hKTGY5SFVoWGdwa0N0OEg4d3hTdm03TVJwUk5jN2E0aVA0TXZGWWdUVkRTTGpTOERMZmsxVHpCQUM0LTBwNEpPYlg2aDFabWxaTTlkX0EzSWdGY0s3TWpDUWJ2RGhrUjhXaVdtRkR3ak1iWHNXSk1HUFdueV9zYUdiajJWTGZQamgwRDFaSFZwMVRId05QMmVPNV8tdkNMY2xQRTNsRk1V?oc=5) |
 | A trend of acknowledging Democrats' age problem is emerging - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQTHAyZ3BYSUtRWWJMRk9kcEV6TVFvT2VLS0xvNktMcGdlUlZBRk15VjVyZVYzUlBuTlRPdGlGUndBcHp2TWhOdjVfLUNRY2tuamVrSzVVSldKbWNEdVBaY1oyZi04ZUVIcjM5ODY5S2RXSHEwUk9sT2M4d2hiTGc5d2VTN25Bb3JNb3JSQlFNUXhhanpheUNwMUFqZV8?oc=5) |
-| Trump Advisers Have Discussed a Job for Adams if He Quits Mayor’s Race - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOZzBpdGpmOUtydXVGOC1OamhkRHB0bk1lSjZMUzBCRXlfd3diVC11Vy1OeTlGMkdPMW1PQTJ5Tm9ZV2ZabWJtSHNsbGtuSFVUcHQ2U0pIUzhzWUlOWTVsQ0RiSHpQQW9wc3VQeXJiVWZzN2RxY1hjZWkzSGpvaXBDNUQtWjNfdHVL?oc=5) |
 | Democrats confront limited options to block GOP's spreading redistricting efforts - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOaEp6eE5ENWJlODE1N3ppc3JoSm1MbkFvLVZFd3hUSjFrNlBwLXdJSzd6ZmQzYVdzUEVEcU5fUzU1UE5NYUREOE01RnBwVm1nS1hhQURrYnpFVEgza1NpNng1Ull2Z1owQWhVRmlPeGJEM244M0c1c3J1QURYVFhvY3k2dS04VkRRZ2U0YlBZenV4UHc3eUNMMlEwQzBUU1hEWW05YVN30gFWQVVfeXFMUDYxZWUtT3V6Zm5WdmVtVGl4cld2aHZRRkhvQk1GREVPdXFieGRPUzZhQ0t6bDdTSzZzaUpMYlZiSktfTURIMDFPelZTMXNqYThnVEo0UUE?oc=5) |
 
 ---
