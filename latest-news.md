@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 00:17:38（北京时间）**
+🕒 更新时间：**2025年09月04日 00:24:18（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump says 11 killed in US strike on drug-carrying vessel from Venezuela - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1fcm9jNDJTeGhaczhWTERVakoyQ1UzSlhDakh5aXhDMzF3Wl8zQW1jZUY4cU42dlN5aER4X1NoNUYyMDM1anJfeG5sQWtfTThTdEpielRxSFpJd9IBX0FVX3lxTFBOSmV1RmVpVFJpOXB4aWxubUhmc29CN1FnVUFEck5keURrUzJwWmpKemZzR0xXbVI5NElGV0tuUGYwdXV4d3daNkJJZFVNUWpXRWdWeElVcmtIc0xkbDhB?oc=5) |
 | Survivors of Maine mass shooting and victims’ relatives sue US government alleging negligence - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNMXExZjF4N2FNY1dBeldLZEdVNmlnR0N1b054V0R1QnBzZUdqVXZLd3pNdkdubEhDeDZoREUyNzd3bmhWZzJITmtCWVY3RWd0TU9mdEh5azhIeUItV0pTSThLdmlTUzVCTXNVMnhMNUJNbFpQQTBpTVp5TGRiakEweg?oc=5) |
 | Quick-moving wildfire scorches historic California gold mining town, burning multiple homes - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQWEt0Y09iMlctaXFNRmtraERmNGZsaVIwOUVrWG9mSGxYa1IzdDJxRzBEUVd5YW5Zdk95MVJ1Q0xMczVkSEJwNFhXYjZmU1ZGb2YweUJqelFpRlZQM2FaMTJxR3pabUlXQ0E0VlRyTnJVeFVGYjR2ZjNIRGFxeWRMcTVQdS1HbkpHdlE4YVV4M00wLVliUTVMdEtsUXJSeUhNbGJRUFRxbnAxcElzQ3c?oc=5) |
-| Federal appellate panel rejects Trump’s deportations under wartime law - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPUGRXRWlTdlh2RTlCNGwzWGJGWWJBUWV0TWlXdnFWZnJ2c29KVmhsd0h2eDVIRWRRRVdPOWlJSVlYSHVVQy1xZU5jYXo0RHNFT2I5OThBdzc1WEp2ZE0zd2l3TGVJMTZKZ2FvTk54c1J3ZlF3b09YVnR6T2RkNFY5eU9lQTVGLVQxMUI5RHMxOHBKdmhSR0VpU1Z1aGZSUQ?oc=5) |
 | Democrat and brewery owner joins race for Sen. Collins’ seat - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQYlBnZ2c2WHFVdTc1aVZqR1VtQTRpUGlxNE9POE04YjBuTFM5MXljd3FfNHBvVVZVVFJzNExFeHozWWpZZnhOMGxiYnI1VzIxUDlQRnFtU0lxRy1Cdl92YjJPbUZZSFhLWlZlXy00b0RVa3U5MmhaN0dBSEtSNFdhUF9wbEppaXlNMGlOa0EzTXl6WkstSmFtU3BEN0gyVDl4cUVlQ25GY2ZPOHBQSndlTXQ0d19hQQ?oc=5) |
+| D.C. grand jurors reject latest wave of Justice Dept. indictment requests - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNSmNYektacElxX0QwaDdOZ3gwS0swUGVUMXlOYWlHVWdYTldVci1ZelZ1VFlPdm4yNEN6SGgySDNxRTNJbkZvM2pUSTZUdlFpZTI0MENtUUZKN3c0MVN3bllRcHpjbTBpYWpLQjhJdEQ0VkFsaURBem9selV2RzljTkIwMUdZN1J1OW1hd9IBkgFBVV95cUxPS2NwZ2VRbDJqWFpfb1NxbHZ4MmJBV1VpZWNMaGdhYUpPOXFmcFRLMi1jSWR1VllCTmVReEIwWmQ1eThVenlSSFJyTWU2NGhmTENwZWFOWDdHYjhIaE4weHVIWVRQbzVGNGNUeVNJNUhJcmIyYlE3WFZ2eG9hZUZENVNQcTdySHFmSDhpTUIta2JHdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
