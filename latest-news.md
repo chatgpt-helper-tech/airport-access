@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月03日 21:17:31（北京时间）**
+🕒 更新时间：**2025年09月03日 21:25:18（北京时间）**
 
 ---
 
@@ -8,16 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Rayner's political future under threat after stamp duty admission | [阅读全文](https://www.bbc.com/news/articles/c2lx1999ez8o?at_medium=RSS&at_campaign=rss) |
 | Met chief calls for law change after Graham Linehan arrest | [阅读全文](https://www.bbc.com/news/articles/c1mx09l5297o?at_medium=RSS&at_campaign=rss) |
-| Budget to be held on 26 November, Reeves confirms | [阅读全文](https://www.bbc.com/news/articles/c7545yz0171o?at_medium=RSS&at_campaign=rss) |
 | Xi, Putin and Kim show united front at huge Chinese military parade | [阅读全文](https://www.bbc.com/news/articles/cp8z83np4xjo?at_medium=RSS&at_campaign=rss) |
 | Energy drinks to be banned for under-16s in England | [阅读全文](https://www.bbc.com/news/articles/c707074qdnko?at_medium=RSS&at_campaign=rss) |
 | Topshop will return to High Street in 2026 | [阅读全文](https://www.bbc.com/news/articles/c1l854prl9vo?at_medium=RSS&at_campaign=rss) |
+| Budget to be held on 26 November, Reeves confirms | [阅读全文](https://www.bbc.com/news/articles/c7545yz0171o?at_medium=RSS&at_campaign=rss) |
 | Watch: Mother of Brianna Ghey calls for smartphone ban in schools | [阅读全文](https://www.bbc.com/news/videos/c0ez818rqrro?at_medium=RSS&at_campaign=rss) |
 | MPs want action for footballers who lost millions | [阅读全文](https://www.bbc.com/sport/football/articles/c5ypyyj3xlro?at_medium=RSS&at_campaign=rss) |
 | Man accused of stealing Ozzy Osbourne floral tribute has case dropped | [阅读全文](https://www.bbc.com/news/articles/cy9nee9pzl0o?at_medium=RSS&at_campaign=rss) |
 | Luigi Mangione's likeness used to model shirt on Shein | [阅读全文](https://www.bbc.com/news/articles/c4g5vr4vzpzo?at_medium=RSS&at_campaign=rss) |
-| Four ways to stay safe from car park scammers | [阅读全文](https://www.bbc.com/news/articles/cn8438ngpe1o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -26,8 +26,8 @@
 | Johnson faces escalating pressure as House GOP prepares for Epstein vote - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFBpVTJuYVR5dHY4RjJGMDgybjhHUENmY3FfbTMtcnlheVVpYVlQWm56SlItRDNCVjFKS0wzMXR1M0ZyeXRFcUd3aHJNZnVrTXRNZ2d6SnhtRmxCRk9EZExxbHJ5QXFWZ0MyZGEzVEJ5czBzQ1RsMEFV?oc=5) |
 | China military parade sees Xi Jinping joined by Putin and Kim Jong Un for huge display of anti-U.S. unity - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQSjRaMFZlZGNpWk51TzBWdzRtal80UmFlRHdMV3hXWm9mNGdzNzZlVk5kYWVoV2tIMTAySUwzdnpaenFRbmJqaDBPRndPUTM3Q3N0T2pTa2FWQjhCek43aDR3YVczVlJqUzFuM2F4OE9jZUpKbWd3aFpocWpvdmFzTElhbVlRSFNnVVZJU2dRZndteVnSAZgBQVVfeXFMTzU5cGNFVjZlaTlWVGdLTklOWGV4UmFVQjEtQjVKc0tFM19ib2trV0lPeWlKdHhlUWplN0VpNlRiR1lkZ1lMWlJrN1JiaWt1VHpIR1B6a2J3cGY1cFd5dGZFWllrVElDZFd1QmpYQmwzZmY4bHB1WkNTc19uU2JiVGNiNlREZzAydlRrUVQyWEdRVmYzdDNFNFA?oc=5) |
 | Federal appellate panel rejects Trump’s deportations under wartime law - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPUGRXRWlTdlh2RTlCNGwzWGJGWWJBUWV0TWlXdnFWZnJ2c29KVmhsd0h2eDVIRWRRRVdPOWlJSVlYSHVVQy1xZU5jYXo0RHNFT2I5OThBdzc1WEp2ZE0zd2l3TGVJMTZKZ2FvTk54c1J3ZlF3b09YVnR6T2RkNFY5eU9lQTVGLVQxMUI5RHMxOHBKdmhSR0VpU1Z1aGZSUQ?oc=5) |
-| 'We need the Epstein files to be out': Central witness in Epstein case speaks publicly for 1st time - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQTGNxbmJrQVNNQVhBSTdkMGNrSE1wNlByLV8zVDNmbzU3N1JFUkdwSVR2X3MtWUtSRVl6TUpDYkFFMEhRemR6QXF2UWY0dVlYUURWOWxzdVA1MlNHVlZXaUVVb1l3c2NQalhBMG80TDhELUhEZWptajRBM0t4NmpRbVFGV3NVYUlFdlhyY1d1NmV1OUZKcC1ROWxfSTQ2eEc0X0lPNmdR0gGrAUFVX3lxTFAzN0Z4QTRZRVJEWV9wb0lCbDdzWTY5Q2JobmZXbG94SEZzczJqNHYyUEdRbU5xVk5yWDZ5cXdCSGhzelhyYlhJZFFNaWI4amktcU92SXZRaUhTLVdkNUlTRy1ZeklRdkRZQWF3ZjRjdmpiM3ZodUtWNEV4WU9VWERkaW5jRkhYSlJOakhoU1hhZ0xlX3lYSlJKMGltVjg2UzNaUWZfUlRBN2ZOZw?oc=5) |
 | Trump Says U.S. Attacked Boat Carrying Venezuelan Gang Members, Killing 11 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNSXRKaWFsVmZLRFNmTkc4c0ZTUGh4MUFtZjZVNEFucjl2ekc1UzdfQzBha2o2UEZPeFBJQlp4b015VmN3OWNSTHNVUGlyTkpUQTZFUk8tYzkwVVVHaGV4cmJtb1dwNG5fY3Fmcll0SDRZMUJDcWMydkJlMlZkckxmbGVVaVMwcHpzMzVuQTJn?oc=5) |
+| 'We need the Epstein files to be out': Central witness in Epstein case speaks publicly for 1st time - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQTGNxbmJrQVNNQVhBSTdkMGNrSE1wNlByLV8zVDNmbzU3N1JFUkdwSVR2X3MtWUtSRVl6TUpDYkFFMEhRemR6QXF2UWY0dVlYUURWOWxzdVA1MlNHVlZXaUVVb1l3c2NQalhBMG80TDhELUhEZWptajRBM0t4NmpRbVFGV3NVYUlFdlhyY1d1NmV1OUZKcC1ROWxfSTQ2eEc0X0lPNmdR0gGrAUFVX3lxTFAzN0Z4QTRZRVJEWV9wb0lCbDdzWTY5Q2JobmZXbG94SEZzczJqNHYyUEdRbU5xVk5yWDZ5cXdCSGhzelhyYlhJZFFNaWI4amktcU92SXZRaUhTLVdkNUlTRy1ZeklRdkRZQWF3ZjRjdmpiM3ZodUtWNEV4WU9VWERkaW5jRkhYSlJOakhoU1hhZ0xlX3lYSlJKMGltVjg2UzNaUWZfUlRBN2ZOZw?oc=5) |
 | North Korea: Kim Jong-un’s daughter makes international debut fuelling succession speculation - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxNMnVKSldvWmJaaEdPc05YLWxJeF9MTWp4U280WHQzT09odWNoakd3Z1RySnFMZ1Q1Um1sS2FRbVYwbkVqeGM0c1VNand6b0dMNFR4dDZoeEk4eE80aXo5M3BWdXBfalo0ZjhKWGprM05SenJoRnk0cHZETFhUQmc1bjZOQnpoa3ZhcGhjZW5WOXpYUlhNZzlkQnR2M21ndy1GeXB5d2wxLUxNSVdobGpuZENVWXhqOVhvUWpLOGxlRF9QWDVrb3hVS1FXVVdCYWxuV0Qw?oc=5) |
 | D.C. grand jurors reject latest wave of Justice Dept. indictment requests - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNSmNYektacElxX0QwaDdOZ3gwS0swUGVUMXlOYWlHVWdYTldVci1ZelZ1VFlPdm4yNEN6SGgySDNxRTNJbkZvM2pUSTZUdlFpZTI0MENtUUZKN3c0MVN3bllRcHpjbTBpYWpLQjhJdEQ0VkFsaURBem9selV2RzljTkIwMUdZN1J1OW1hd9IBkgFBVV95cUxPS2NwZ2VRbDJqWFpfb1NxbHZ4MmJBV1VpZWNMaGdhYUpPOXFmcFRLMi1jSWR1VllCTmVReEIwWmQ1eThVenlSSFJyTWU2NGhmTENwZWFOWDdHYjhIaE4weHVIWVRQbzVGNGNUeVNJNUhJcmIyYlE3WFZ2eG9hZUZENVNQcTdySHFmSDhpTUIta2JHdw?oc=5) |
 | 1 killed, 3 injured in Wyoming mountains plane crash - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOLWRZUTgxVkZhbHM5Z1Jaa1lzbVRhWVhtUFJaOHBfcFRpb1JMZWFfOUdxZkVMckMwcnFuajZCQ2lSWEw1LTZTOTIzWng1UHhXMkdKZkhkbzN6eC1kaFRFRXJCTG05Qkw5c3hqMFI2RVV1TEV0YkRjbGF4ZE5PVDVjU01WcVBBa2ZCel9xR2dFWGxLWC13bW9oTdIBngFBVV95cUxNZUtrVU5FaWktelZZa1BQcURNOW5fb182U1J6Yzl2cW56OGhaZHB5NUVGdmcwMUdqdTBjaXBZdDFaekt4Q2ZLcTJvaTdSU19Tejhsenh6a0ZJN1lEN2FTUlJOVERIUkV4N1J1bWE3M0VTTzJoWXllV3hKT2Jyb2pCUVNZRTEwMWlTTEVsTWp0NkdNM215T2VLdDNWeXR0QQ?oc=5) |
