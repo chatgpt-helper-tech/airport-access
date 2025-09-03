@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月03日 12:17:23（北京时间）**
+🕒 更新时间：**2025年09月03日 12:25:44（北京时间）**
 
 ---
 
@@ -29,7 +29,7 @@
 | CA court rules against guard in LA. and Trump vows to send them to Chicago - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOdEN6S2pWc01qSUxZYzc4NVRqbXpnZFpmaW1YNEVvSDBtTG1lWmltb2FBZlg2ZG9sN0RoQ292QzRiRl9FakxXbkF5ejAyQkZoZzJKZ21EZHc1c3A0Q1ExdHJTZ2NIbWZDN1dFZXAwa0ZpZ01Ncldya3E5ZDZJWmdhTm9WN05lalZKckl2RFdyNHBNR21LeU40Q3hzbm85OVA0aE5URm5fcXdnRWxzTkxWekZuNVJsbEVCVDFsZ2t3ejM?oc=5) |
 | How Trump's quiet holiday weekend fueled a viral death hoax - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE50OUE1ZFF2ZVlmYkR4MncxeVBiazAxUlUxNUhlZFo4ZEV5ampFMzR0bXNBbzdFNVNWRElNV3I5aHVVM0tYVTZIaG1fSnNobTByNi02a01PaHJleG9MSzFoNlBMNnBBY3M5WnM3azFiajZ2VExXa1ZfWFIwdw?oc=5) |
 | Trump to move U.S. Space Command headquarters from Colorado to Alabama - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOYTJERXFfRmJyS0NBS25ua3VBTFlwRElKaFYzODFidkZYRmRnSW1IbGhWTW14d0lVNWtVbHN0RXFlaTRYZnBhVkdnR2ZxclNLSkZYdC1WOXpBSG1qM1FOTHJsWnlpVXFMaF9GYVhQOXFNVFA4YkcybDlodnZhY0xJSHU2ZUZtaFFRYUhCUkNhTGNHdw?oc=5) |
-| "Ding-dong ditch" shooting suspect was "waiting in the shadows," police say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPM2lvV1pWcWNwM3kzX2pBMFFOd1h6MjcyRTVuYnVXczdySXNucF9YUFV2enN4WXhPbU52STNBMkQwcmY0WTFEX3pSdkN4d3JiNkJhVzdibDY3UktYSkJEcEdxWk5LOGpIV0xSeWpxYlpPTjJhcWpQM3o5cHNSU1hNR1NjQW1teHJjRE5SSjZreVBCblUtQXlz0gGcAUFVX3lxTE5NYWtCaUc0dTNYX1doaWFTQkFuTmJkY3NXRElfVkRGOVJxXzJhRlpZd2FZdWpILU5DcjFhbzVWaG0zQW82RThBZ1dXcElXOGdFRVpvb1V0YUNISmdYWmthVmNRbUQ2VlNNOGwxMkRPSVgtZGNFWmlnS29qTXFuTUlnWldGZW9KZDhWNUVtYzhFVDBvSUw4TmhHNERlSQ?oc=5) |
+| Houston man charged with murder after boy killed playing ding dong ditch - Houston Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPNEZiMTY2SGNsTDNVUXJxQ2pVVEl2cE42T0VqVmNwd3g3bWFnSWloRE9nNmtQNXl4c09mZWpUMlZvQ3NUcFhJUmJiNnliejZNMy1tS2FEbDBhR1V5WXpzUlJRalp4OGxEQks4ZTd6VktUT0thM1J4QzlTNGZfY2NQNDJjbUZ0YV96ZlRGbnk0cXVzUGJzR3NoYjRtV240dUVLR3hGZ0txUjJHNjgydzQ5ZmF3?oc=5) |
 | A Burning Man crazier than usual: A murder mystery, ‘demonic’ claims and a surprise birth - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxOV0ZwS2tLc3BiN04zYzBsYXNfVzRycU14VVNobGlpMHo1M3NwNWpUNVRYRmttUEs5TV8xTzZMU0FzUG14a3JHVXpQNHJMZE5tZ0MzSFdVYmF2OTllOVhhWEVVNFI0WEw1R0JtNDYxc0MyaTZKY01LV3FkVGZjcVFGX3RCS3JXNDRNQXM2SUtoWEVfcnNrR04xNDNjRFY1WHpmUlpJSERPTnFzWXdRMkE5T3FHQlRER3ZjTGRKOXFBLUJlRXRLZDYtRlY3VlFLOUpkaXc?oc=5) |
 | GOP congresswoman joins 2026 Iowa Senate race after Sen. Joni Ernst confirms she won't run - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOZ3dVajVFeVhPcndFZG5CLVJINjVqbU9pT0ZBNWdLOUtEeExlYXZKSFFLRTlEaUZaYU9jQkhPYlFsYnNRRVY1VEVfd2FwS1dEWjQyZ0ZtU0w3T2RheDhaNTJBeFAxSVp2VnQ1VFlzSnZId00zN205XzNWNS1IWlI2ZmZTSVR3c2NZbHU0NV9TaFBjSEplVHc?oc=5) |
 | Federal Appeals Court Reinstates an F.T.C. Commissioner Fired by Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPenVtVU9VSjRVTUdzd2p1QzhmRTdiaGt6cWRnUFlhUWFTeC1XdEswNHhpRjJWNjJFV2xiLTJLSXEwX3FwNVZMZkpjQ09NQ2NTb3hCRURheS1zWE84VjVMSnlNTWtpZjVfaFJKM2FiZC1GT055VlE4Z3BJWmZIRXBWTnpoZVY2ejhWeExQdQ?oc=5) |
