@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月03日 20:32:31（北京时间）**
+🕒 更新时间：**2025年09月03日 20:40:11（北京时间）**
 
 ---
 
@@ -8,14 +8,14 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Online speech laws need to be reviewed after Linehan arrest, says Streeting | [阅读全文](https://www.bbc.com/news/articles/cx2922w73e1o?at_medium=RSS&at_campaign=rss) |
+| Met chief calls for law change after Linehan arrest | [阅读全文](https://www.bbc.com/news/articles/c1mx09l5297o?at_medium=RSS&at_campaign=rss) |
 | Budget to be held on 26 November, Reeves confirms | [阅读全文](https://www.bbc.com/news/articles/c7545yz0171o?at_medium=RSS&at_campaign=rss) |
 | Xi, Putin and Kim show united front at huge Chinese military parade | [阅读全文](https://www.bbc.com/news/articles/cp8z83np4xjo?at_medium=RSS&at_campaign=rss) |
 | Energy drinks to be banned for under-16s in England | [阅读全文](https://www.bbc.com/news/articles/c707074qdnko?at_medium=RSS&at_campaign=rss) |
 | Topshop will return to High Street in 2026 | [阅读全文](https://www.bbc.com/news/articles/c1l854prl9vo?at_medium=RSS&at_campaign=rss) |
 | Watch: Mother of Brianna Ghey calls for smartphone ban in schools | [阅读全文](https://www.bbc.com/news/videos/c0ez818rqrro?at_medium=RSS&at_campaign=rss) |
 | MPs want action for footballers who lost millions | [阅读全文](https://www.bbc.com/sport/football/articles/c5ypyyj3xlro?at_medium=RSS&at_campaign=rss) |
-| Ozzy Osbourne floral tribute theft case dropped | [阅读全文](https://www.bbc.com/news/articles/cy9nee9pzl0o?at_medium=RSS&at_campaign=rss) |
+| Man accused of stealing Ozzy Osbourne floral tribute has case dropped | [阅读全文](https://www.bbc.com/news/articles/cy9nee9pzl0o?at_medium=RSS&at_campaign=rss) |
 | Luigi Mangione's likeness used to model shirt on Shein | [阅读全文](https://www.bbc.com/news/articles/c4g5vr4vzpzo?at_medium=RSS&at_campaign=rss) |
 | Four ways to stay safe from car park scammers | [阅读全文](https://www.bbc.com/news/articles/cn8438ngpe1o?at_medium=RSS&at_campaign=rss) |
 
