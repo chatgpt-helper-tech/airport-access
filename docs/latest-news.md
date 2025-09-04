@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 09:09:32（北京时间）**
+🕒 更新时间：**2025年09月04日 09:17:28（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | Hot mic catches Xi and Putin discussing organ transplants and immortality | [阅读全文](https://www.bbc.com/news/articles/cr70rvrd41ko?at_medium=RSS&at_campaign=rss) |
 | 'My son's constipation wasn't taken seriously until he reached crisis point' | [阅读全文](https://www.bbc.com/news/articles/cgr9zg17n5yo?at_medium=RSS&at_campaign=rss) |
 | Restored Big Ben tower up for architecture award | [阅读全文](https://www.bbc.com/news/articles/cx27nmj77xzo?at_medium=RSS&at_campaign=rss) |
+| UK and allies ready to back Ukraine before and after peace deal | [阅读全文](https://www.bbc.com/news/articles/c5y85x58nj4o?at_medium=RSS&at_campaign=rss) |
 | Faisal Islam: Reeves has a bumpy road up to the Budget | [阅读全文](https://www.bbc.com/news/articles/cn76ly476x6o?at_medium=RSS&at_campaign=rss) |
-| Putin says Russia will achieve all aims militarily if Ukraine does not agree deal | [阅读全文](https://www.bbc.com/news/articles/c4g7dze5n1vo?at_medium=RSS&at_campaign=rss) |
-| Israel intensifies Gaza City attacks as UN warns of 'horrific' consequences for displaced families | [阅读全文](https://www.bbc.com/news/articles/c740lm33wyeo?at_medium=RSS&at_campaign=rss) |
+| Don't say sorry - the six things you should do if you're in a car accident | [阅读全文](https://www.bbc.com/news/articles/c5ypypy2jk2o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -29,8 +29,8 @@
 | Lisbon funicular crash kills at least 15 people when popular streetcar derails - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQTmk0VkgtSEtuS0x2ZWpFekp2WjJ1TW9tWF9wSXo1OFFKdjF4QzI2bTg4SzVxWnJNd0psUzJnck5TckJxMi1SWldVN1ZFcElEdlgwS0FVZ0RuRms0eUNzeUNpd3pWdlZacVdjeHp4M3lmNHRDRWx6dmMtUG9zTXVRNFZ2T2dBSmPSAYwBQVVfeXFMTVQ4a3doeFJuLUdETzNMYzFQNjB5SHIyQWhQUXM4R18xRndiNVhZRXVYQUNnSkNPUGt1bThKYUNaTkNIQ2QxSmZWWmtzTTlGX1p1YktKTERXSGhVMlB3SU5YMGgwdjFvX05aQlVGbGdfdVJwOFZlYUhTNndXR3BETVE2MW9RZmN4RWRjV0Y?oc=5) |
 | Trump ordered strike on suspected drug boat to send a message, Rubio says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUF9PQXJVWTF2RWFYR2JhTUlkeUpHdDdfcHo4cHppaUtERjRfZE04SGowdTdfNVdPRVp5ZDBtMEVJLXd1YlZpSlJJUkJWSkk0RW5qTnJ2WndkOEM3ZkJGNTZiSWViYTRCcnVlZk9leUNmQWw2SndKM0JsOWtnY2k3V1gtc25JbnpUT0tvQTkyT2k?oc=5) |
 | Trump sets New Orleans as next federal crime target, not Chicago - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1MaUFycmpFTGJSZ29PcEpLSG9vdVJmZ0FHNFBuVjFxMjlGYnczd0V6ZWE1cDF5TktWSU0xNFEzWmEzb2JzcU9DYnBLdmhOTHRUWnVuRHhmeUcwcVpMSE5IUGNWTmUyZHJta2ptXzI1eFQ3b2hNandrazlFVFIzVFk?oc=5) |
-| Trump’s Immigration Crackdown In Chicago Expected To Last More Than A Month - Block Club Chicago | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOMGlsQ092Zzc0dEtyQnRNWkUzU1Q4b2Q3XzlmcWVJbkk1XzBXLVNFSXZSM1d5dkdxcVhadEFyX29hZ1Bmd1FiUFd2cnRsWi1qNDVkSkZlOFFjcGlrNk9hLUdQQ1ZFbTN0OFdQNkw3Y3NEcHJyNFVUU1lmUVo5VHVWenJEa3NscUdxM29kZzk3blZ4Y2cxcHJ2cWVhTXM5aEM5ZE0xajBOV3BMLUp6eFZaajBxYnpkZw?oc=5) |
-| NYC Mayor Eric Adams faces a decision: A Trump administration post to drop his reelection campaign - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxPaUJjMjVpTUkyM3BBczhUWDJSd2RDblpEZThHRmZEQmxJbnNJeko4XzBCa3hKTGY5SFVoWGdwa0N0OEg4d3hTdm03TVJwUk5jN2E0aVA0TXZGWWdUVkRTTGpTOERMZmsxVHpCQUM0LTBwNEpPYlg2aDFabWxaTTlkX0EzSWdGY0s3TWpDUWJ2RGhrUjhXaVdtRkR3ak1iWHNXSk1HUFdueV9zYUdiajJWTGZQamgwRDFaSFZwMVRId05QMmVPNV8tdkNMY2xQRTNsRk1V?oc=5) |
+| Flash-bang grenades and early morning raids: How Trump is planning to target Chicago - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxPSDRWb1Z0OVZXQ3dfVGM4cGVTZVNkMmNub1RpeFFFczNRSkViN0pTWjZVbGlvN1lMSWRsZXFJalUtSjlBdXI5aU5FZVZJOFRHRHdoRXQ4ZHdHLWtTTVMtSjBXVHh0VzJRVHNKcEplREJkZmpnWHl3c053cm81NXBhc3pELVExS0pnZWtub2ItSmRUaklkTGJuNVZHQ05sNFNKWHNSd1BvclcwZzRmOEQySUR1blV5NWFjUXhvZVBROTRiR2dkV2NYd1N2RWM?oc=5) |
+| Trump Advisers Have Discussed a Job for Adams if He Quits Mayor’s Race - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOZzBpdGpmOUtydXVGOC1OamhkRHB0bk1lSjZMUzBCRXlfd3diVC11Vy1OeTlGMkdPMW1PQTJ5Tm9ZV2ZabWJtSHNsbGtuSFVUcHQ2U0pIUzhzWUlOWTVsQ0RiSHpQQW9wc3VQeXJiVWZzN2RxY1hjZWkzSGpvaXBDNUQtWjNfdHVL?oc=5) |
 | The U.S. is headed toward two very different vaccination realities - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQbWQ5QmNXYk82UjE5V2dSRDBnQnY1Q1pBdm5sV3dyNmR6bmJOYk9jdE5LRDZCNVJjaW1yZFg5OXUwWFA4Z2RHNnJGckpHRUlfTXhCSkxOTlhOQXJaS3VJWjVKd0Fmbi1ZOWEwNXY3OFF3OWVXYmdVbG00T1V5SjRHN2NRUGRMV2fSAVZBVV95cUxQWjZaS0VCSlpRNTM0ZWFPMXFwNHRNanpCYTZKd2UzenJHSG1jU1lha2cyMnJvYjZGOVZDRUJGNmU1OUdlLXd2Um9LUG5sZ3NuWUFLR1g5dw?oc=5) |
 | Over 1,000 HHS staffers call on Trump to fire RFK Jr. for "endangering the nation's health" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5DbURMSFBWcmFYWHgwcXozdHpEQmpkZV9namhVakN1MWwxWl9td1d0cmJCcXE4RW9BSDZNLV94TmZLb1JUdGRib1UwZnU5dWtHc0xxRGRoQ0hGbHU4X1ZlWHp0Y2gwUDFGYWdPYVg1a1pyQ0hNLVM40gF8QVVfeXFMTVJLa3RCZzU0UXd6Y3ptamtsT0hIYk5uSDA1LXgwaWF3djg5aUJwUktjVVBIVzg4Z0FGRTRNaXJ4Yk9wSHEyeEFOVFN2d0xnWGYzUFBhTFZpbUE4SDloVGxCWk0zSFNSY0tqUUZYSGdBSEk0dHg2Uk1NRktCMg?oc=5) |
 
