@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 22:41:22（北京时间）**
+🕒 更新时间：**2025年09月04日 22:48:23（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | Graham Linehan 'relentlessly' harassed trans activist, court told | [阅读全文](https://www.bbc.com/news/articles/cn0x2kx08wdo?at_medium=RSS&at_campaign=rss) |
 | 'Erotic' Wuthering Heights revealed in film's first trailer | [阅读全文](https://www.bbc.com/news/articles/c5yel29rvy8o?at_medium=RSS&at_campaign=rss) |
 | Surgeon admits fraud over amputation of own legs | [阅读全文](https://www.bbc.com/news/articles/c5yvpx20le2o?at_medium=RSS&at_campaign=rss) |
-| Grandfather accidentally takes home wrong child from Sydney daycare | [阅读全文](https://www.bbc.com/news/articles/c4g5v4z13l6o?at_medium=RSS&at_campaign=rss) |
+| PM refuses to say if he will sack Rayner if she broke rules | [阅读全文](https://www.bbc.com/news/articles/ce321d2n45vo?at_medium=RSS&at_campaign=rss) |
 | 'It collapsed like a cardboard box': Witnesses describe fatal Lisbon crash | [阅读全文](https://www.bbc.com/news/articles/c20v4g71zrpo?at_medium=RSS&at_campaign=rss) |
 | Who are the victims? | [阅读全文](https://www.bbc.com/news/articles/cnvryg271ymo?at_medium=RSS&at_campaign=rss) |
 
