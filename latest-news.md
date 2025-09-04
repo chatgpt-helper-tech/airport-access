@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 22:01:21（北京时间）**
+🕒 更新时间：**2025年09月04日 22:08:17（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| RFK Jr. to face questions about chaos at the CDC - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNOUxjZDM4U0ZaUGY1aWJua0VKTHdWbVROV2NMeS1qRzlyOEZJWlc5UEhIMDN0TEF5RUY0MWZZdjA5Y2xFcmU4b0dnaHhUTWVNVEdEby1XWFNtbjQ4ZHFJMkJVU01fWTdULUhzNVozVm1rYVFMWHVYbmlTV2RwcEI4VGlZWmpqeGx4VFlKb2g2YnJxRldaNWRRbGxLeWFQdFk?oc=5) |
+| Italian fashion designer Giorgio Armani has died - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPNlMyOWJrQzYydkN4QWs4V1pDN2Ywem1WUE1STGhYZU9jd0VqM05ydzhfQUg4VFBfY3BCOHZLZkdibnV1M3Z5YWItYVdNaDZ1aGpBTmcwa2FjeEwwT1NuYVBlZGxiTzRIOVNpYS1vYUJTdFhSRkdQQzBDbl9nVmpMVVlUbEFPVUZOM05zMTRkR3pxeF9vNkRLMS1QRWFnTU9yUHRYeXd0UkRTdFU5V05vYkVOTVRPNnlwLTlr?oc=5) |
+| Republicans grow impatient with RFK Jr. after CDC turmoil - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBSUW0yTldqTmZQUzhTdHhWd3RmdmN3M1hFRDhIUjc3TmdpalNFUkd1TlAwUDVoUU9JUzRWNDRIWElSbmJaczlTR0owNUcwWkp2MDVQMlAtR2oybzlzdFpKRjNqcEZXa29wNDhZYjVYdldfSDFHdE9CTHpKWjFuZw?oc=5) |
 | Trump asks US supreme court to overturn trade tariffs ruling - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQbUZ6XzB6ZkJicjhqcC12RGY4RTVKcHhWVEFLN2plSk9xMjFhWFpHWEp3N241MmdqZXpwdHMyaGdvZmpyMFRzRnlzTVgxWUFqOGFnUDlhMkRpMEkzakJvVF9EN3puTlBHVmhQVmJ3a3pnSVhRU01pZTdnTkJTaE50WnhiaDdOVTZCeVlzNHN4TFJ3NHNXSGRncW43ZWpRVDd3ZTlHaEJMWlhVZnBM?oc=5) |
-| Trump says US strike targeting Venezuelan gang will cause cartels to think twice - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOaVpBNXl4T0tOQ1RyUklGWnRqWTE1eE5vMUw5WDEybHlkSHBrWEVzc0xseDVVbXNfYlBzeEwxbG9jQVNCeTUwQmtyRmpEWnNXWlN1OS11dXVqM2JIcFdLT0RqZ054emszcmx6bzBIVmgzektmZ0Q0ZkZwZGtuTGFqUFV3aW5VUDUxcW1wRnVfRVl3d01xTmtvS3N4eFQ4RGFQdFRpOWg2R3JZVWRhUDV0Zw?oc=5) |
+| Trump ordered strike on suspected drug boat to send a message, Rubio says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUF9PQXJVWTF2RWFYR2JhTUlkeUpHdDdfcHo4cHppaUtERjRfZE04SGowdTdfNVdPRVp5ZDBtMEVJLXd1YlZpSlJJUkJWSkk0RW5qTnJ2WndkOEM3ZkJGNTZiSWViYTRCcnVlZk9leUNmQWw2SndKM0JsOWtnY2k3V1gtc25JbnpUT0tvQTkyT2k?oc=5) |
 | Here’s how Chicago is preparing as possible National Guard deployment looms - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNbEI4bXRVdGQ1ZUNCZy1QNTVPOUl3Q0U3N2lLdXJRaTNoQVlWa3NZR2M5VlQwMGpuNVd0VmtPMEphb19GM3FCVDB4VDVtVDRxZUlJejJSMFJ5NmVXN285MjlYbnJidVVsQ2VnY3JVQjZIdjZ0VlY0bWpWUFE1UXljd3U1eFJxT2s?oc=5) |
 | 10 federal judges criticize Supreme Court's handling of Trump cases in rare interviews - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQbDJmT3BTa3BZMkJaaExPRzdLMzZVSGdQVHk1QUk3VDNfQVptTExuelV4Njd5VVJNai1icGNpRlRnSS13OW05NlY4bUpDcU5ncXdzeDJhWU1BOGgxdlBmd3plMDdMcldCVnpVcDRuS3ZRUU5sZVZkLTBETnllb2J4QWI3YUo2S2wtTjdFc3RxQmo3b05aXzQ2eUIyaGhkM2hoak43YXA0YW15NWR00gFWQVVfeXFMUExqR3ExaDVRTmg2UF9ZYnNOY29wbnF6Rk5INEdPdDZZYmI4bmgxVkI0X0RrOWtFSXZZMGIwWTFFd0xPR2VkUmdES0xVaVoyRElRS1V1Qmc?oc=5) |
-| Harvard secures win in fight with Trump over federal research funding - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQN3ctVUd5YWY5XzdsaVkzVmplZXNkbTIza0YzazdWSXZGbWFoTzhXUDlVbWNJa2p0NXBTc19mUENDaXhFMGZNUWxiR3hzd1pjUmplS0VGRHFwXzlkOTk4OEZiUHctbnA5SzBlTEpJQW55XzMyTUtUcndKNVppUmhocTMyc0pIQThOOUQxLWlZcmRHYi1oanNENUFR?oc=5) |
+| Judge Hands Victory to Harvard in Funding Lawsuit, Ruling Trump Administration’s Freeze Unconstitutional - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1UYkplcFZ2dl9VbnI3WmlENFppYjZiN2FvQ3E0djljTVYzWkNJVjNudEl3aFBlVXpmR2ExRXNiWTd2cDhmREpvN09JTHItaWFuVTRheWZ6NXlCakF3ckdtTGlUVXdXNkQ2YnJ4RUh4aElOdFJz?oc=5) |
 | California, Oregon and Washington form health alliance amid federal vaccine tensions - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi5gFBVV95cUxPV1ZLMUo2NEYyY25FWVcxTXZoa21DQVotaUF1TWt3Yy05SVlhMFFObE4wMGdzZnpha2FmdXc1MmhaUWs3QlctaFR2b1B3TFpGdy1NUDVJQmo5NE9ISWo1elBxdlNZTk16d0pmSlF0U2FpRFA0S1RNS2YtdF94SXo0a1RBbEJnaGgtbi1wUXhkRV9wYkhQSUxBbGdaSEh2ZDZaM2UyWlJheHdEcmJHOW5LZEE1SUllcUd6NVhQS2dQaXlkV0cwckI3cGtCSVF3LXd1MWgxbTNVR1RfR3VJdzhjdkZjOFltQQ?oc=5) |
-| ICE Opens Immigrant Detention Center in Louisiana’s Angola Prison - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQanhZNlU1SnJXQUFadlNKSXZ2RTdIbHA2ZkNMWllMNE92WDlHNjEwTHdObTh0MU9ZYXZKVnM4LXE3c0pJUzlPNktDQkc2YWQyZmM5Wmo0YXVPck9FOE85eDRsd3JvQ01wTnJhWnhyZGZrUTRoeHhrdlZVVkpQQzBLclg2M1FaWEk?oc=5) |
+| Seattle Police Conclude 13 Years of Federal Oversight - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1VNU9MV3dFd2oyV1pveGVaTnR6a1hvMW85OVNUSldKdVFtVXRHVS1zYVExQmZRNHNEMnpFbTVkbnFidXlUWFMtNl9aVGhLQmFIMDh2YjVFdW5oXy1ITTltNktMcXpWRG1EUncxUlBtLVFFWGZOdnlSd3ZrZ3M?oc=5) |
 | Hurricane Kiko intensifies to Category 4 storm over the Pacific Ocean - PBS | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOT2E5eDQ2YU9lcTVrT2VDcmg1eVdSZ2tIcmh1RllDanBnd2ZQN3E2Y0VrSE9RbFdMdUc4NWVIajJiTWJJblZIeENfUGxST3JTXzk2ek5pSi1FaGRlTjU5cTVBX3pKRjlJZ3Q0RzVhdzJ0bnkyUVpNcFBxSy0wRkVfcTRiLWhhcjlsX1BXX3ZiMWFPZ1Z5SGpGT3pqei1CUV9PV0RYdWRCb9IBrAFBVV95cUxQYWF4OHFFTzlua1ZpdTI3V1hHZ1dBY1BGX1NlWEswWUJ2a1UxLTJLME5fNWJVNXIwTXNwTlp6eHdJRkZIaXFUR05vNWdJUHVreGk2bWo4Z0dlb2JoVnlzSDhsdDdMZDJTc1RHd3ZKUkRVTnNUX3NLYWxtY1Z1Y0ZmUGVfNGRFdW9JSVZhLWJNWEE3QVZrWHNTeF9oX0lZcXBTMGp3ejhLUXlaTk5Q?oc=5) |
-| Portugal investigates crash on historic Lisbon funicular that killed 16 - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOazQ0NGtEZW80MDdHay1MUjRNTk5sTjRYY2hCYUltQTQzZmRTRkhsdF9renRrR19vSHB1VVpTbV9BMFBZUDNnbWJxZnhrcU43SzhTZ1BLMG9GT3NobEVRZkFURS1kaHdGcWx1TFBCR0FlSjBwM21Mamg3ck1XOExTN0xHd3ZpWThEOVNrbTYtbTZJa2huZTB3UDVBZDVEQldic1Jic0RHemhCZGZyYlJLSFd1dkNlUkZ1?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
