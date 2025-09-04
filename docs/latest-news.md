@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 04:41:41（北京时间）**
+🕒 更新时间：**2025年09月05日 04:48:46（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | D.C. Sues Trump Administration Over Deployment of National Guard - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5sR2d0ckpLVndfN1lneEI3WGMtaFVmc0tYa0d5XzNPY2tndDFmeHBROTdKTDN3LUVhSGJSVUlta294anFNLWp6bHlLRVFaZTc1UnQ5M1FaZEZNVzhFMDBpWC0zV0dDWkN6TTBEYjB6Q3NCTXMyaTRXUVhBUQ?oc=5) |
 | Jeffrey Epstein discharge petition will fail, Mike Johnson predicts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOZkUtSGlYU3VvZ1IxTDVTTlhUcXpTdkxiOXRDR3N0T0xVQVdIZFNRMVJCejhuQVZPd3J0S1FnNExWRTdDZm0tdkltVFFOaEJFQ3BVZVNyMDYzSk1CbHFLa2Z1Rjd0blIzZjJkNVI0d1dGWmNvSkFLbmpONTVMOFhwVVcwSlRVb01Sd3llb29uZkpFei1fVmlIUlZfQ1ZTRHBHbGkwb3h1MHctRUN2ZnpR?oc=5) |
 | Lisbon funicular crash: Portugal’s PM vows swift and thorough investigation - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNamZNSFk1dHJTeVFyV2FNM29lUDUyYm5WTjRjWGJsbUZBVTRSeFZ1WDhqalFDX0oyaWhZYVAya0huRG1uamFNR3R0ZXluZG04bHI2ZUZ0UVFhX2pGUjJxYWlwbXB1clV3bVRBRmZia3RaVDBQWWZhRy0wd0NIV1J5WXl1X0I2UFpQa2tLVUJnV2Z5UWdRbEE1MjE5SUp0UXlfaUNyVHQ5amVsYm1NZWc?oc=5) |
-| Judge orders Trump administration to release billions in foreign aid approved by Congress - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQV0NiOHhKeUttMDNTZXFnM1VmUEdJRm5ILTRpeHd3RGZQMFVaeGRKVTF6ZTZ6T3FJU0VRazg0a1BBaXVfMW8wMzFHcjE4Wlk5NGhLa2VwTTljc2xnZlhocENZR1JsREpvZGttY1FleVpsTkZsWHNJaFdWbFNiT3Jzc3RDemF5Zw?oc=5) |
-| House Republicans launch bill to extend health subsidies past midterms - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPUXdRUmdMaERKZjJ5Z3MyeXlPNkNNTTl2QTBuWnNaMURYamx4enF5Z2h2U3BnZFoxWURveUtaaTFoUG5KOTlMZUZycU9LWWRJZkpvaTFMVC1tRUFicmVpMmNVckxCSC1FWEhfRWdPdGFNNkRXaGdfYXI4ZVM4TUlIdW9xUVp4RklTMzB0MQ?oc=5) |
-| What polls show about Americans’ views on childhood vaccine mandates - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNcGlyZDIzQ2otcjNkUjR0OXNVSlpNQ3NrYl9DTlp5M2tMMkdqTXBnNmgzTG1jXzEwUF95NVY1UkZpdnktemd0d1N5c2FRNGt6QlgtbldINXVaam4wMUVSRy1mTFhOajl4MUd3MHZPZDFxSzNDWGNrTUJ5aFo5eFpqampFYUVuZ1JYQ1JMa09USFF0d0tpcUlGSUxGX2pBREJJSVcxQmRYZFVEa3BMVzc3Y3dZeExMZw?oc=5) |
-| Trump warns he would 'have to unwind' trade deals if Supreme Court doesn't uphold his tariffs - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQSF9XOEpDN2NEeThLUFpobGdSQVhPUENWZTdheDlydFBYR2RUTDYyUXp5TmxSVDdoc2p1ZG93aF9udXh4YU1zYlJlRk9jNW1uV3VxM295T09KX2hMdmxTRjFkLWNRcDBVQ00zUS1wUHZfazZsdTNuVG9WZ0oxSUFWNGM0Z1EwLWVBS1l2NnlR?oc=5) |
+| Judge rules White House ‘pocket rescission’ gambit is illegal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxOenRfQzBmNVJvZlNjODV0UmRzcnBhX0NGV2NWQ2VIcmlFYWtkNnJiZ2oxQi00VnRxR2Y2RDVJTXhYNUpmVWR4Y1h3Y2dsVy1FVzZUQnoxcG96SmlZX2djNFNRYjFkSGlEeGExLUFCQWpUaENmb1g3Nkt5aWdDRUxmTklzMEpHdEQtN2kybXVCbnkwZXZoQUZOQnd2TkNzbFJEMjlETk9hY1g4VFI5QTJiZjlGYXNsT2w1am5OMzdOUFpuS3BG?oc=5) |
+| Judge upbraids prosecutors for handling of DC surge cases, saying they have 'no credibility left' - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQVThpUDJ4WXZ3ZkJyRlIyUUpCUlF6c291elpDOThKa04xOTRiR2hxUk9OVmIxTWlKRTNJalR1QW1RU1NCUWN2T3ZiUnFJb1Q4NDVQMUo3R0RQelJLc09QMWdRT2oxbkdpLVNpc3FoRi0ybjBhNjhJa3poa2NlYm10SW0ta1ZCQjJ6NWMtVVNRMG9JaThuanBXSg?oc=5) |
+| Medical groups call on US Health Secretary Kennedy to step down - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNQnZCRnJNUGJnVm9rWXJRM09vOVJmckdBUDBnLVNmS2pEem12andnalpHN1FWMVg3Q2pydHRjMDFKWjlNRUlWelJGQlVERlg3ZVczOUZsQ0RBeVlqWkZLVnFxTU01UXRRejJKajV6ajJOMWJIdzM3Y0k2TW9MRjBjcHdDY3hPZHNvX2JCcmhsSnQxTVlKSE9TWDFyeHk1S0lreFYtdFZpSW54VEVjWGdxVUpmclZUY2c5VDl4ZEZXSFBtN1d3RXpYYg?oc=5) |
+| Who is Joseph Ladapo, the Florida health official who opposes vaccine mandates? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9UalY3WFdKYXI5ZUNWLTVOWVhLVkRlZGwyLTdBSXg5Zk0tMF8yOVBBLUJvM1VwRU9FNjRfODNtX2h5Q050Tk9uQ2lZYkJIcUV0RER6YzBIVWFLZ9IBX0FVX3lxTE5DQVpIUmxIX2tEYmluRE9kQmJOaWkwTHF3MUFvbW5CRnVzbFFQY25sRk43RDRKaHBVc1FCWm1OdFdGbTFaSldQV0tnR2hYcmo5RzJIdE5JakJQNm9pVzIw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
