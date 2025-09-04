@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 04:33:18（北京时间）**
+🕒 更新时间：**2025年09月05日 04:41:41（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Jeffrey Epstein discharge petition will fail, Mike Johnson predicts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOZkUtSGlYU3VvZ1IxTDVTTlhUcXpTdkxiOXRDR3N0T0xVQVdIZFNRMVJCejhuQVZPd3J0S1FnNExWRTdDZm0tdkltVFFOaEJFQ3BVZVNyMDYzSk1CbHFLa2Z1Rjd0blIzZjJkNVI0d1dGWmNvSkFLbmpONTVMOFhwVVcwSlRVb01Sd3llb29uZkpFei1fVmlIUlZfQ1ZTRHBHbGkwb3h1MHctRUN2ZnpR?oc=5) |
 | Lisbon funicular crash: Portugal’s PM vows swift and thorough investigation - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNamZNSFk1dHJTeVFyV2FNM29lUDUyYm5WTjRjWGJsbUZBVTRSeFZ1WDhqalFDX0oyaWhZYVAya0huRG1uamFNR3R0ZXluZG04bHI2ZUZ0UVFhX2pGUjJxYWlwbXB1clV3bVRBRmZia3RaVDBQWWZhRy0wd0NIV1J5WXl1X0I2UFpQa2tLVUJnV2Z5UWdRbEE1MjE5SUp0UXlfaUNyVHQ5amVsYm1NZWc?oc=5) |
 | Judge orders Trump administration to release billions in foreign aid approved by Congress - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQV0NiOHhKeUttMDNTZXFnM1VmUEdJRm5ILTRpeHd3RGZQMFVaeGRKVTF6ZTZ6T3FJU0VRazg0a1BBaXVfMW8wMzFHcjE4Wlk5NGhLa2VwTTljc2xnZlhocENZR1JsREpvZGttY1FleVpsTkZsWHNJaFdWbFNiT3Jzc3RDemF5Zw?oc=5) |
-| New York AG appeals reversal of Trump's $500 million fraud penalty - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5uX2pWQkc1bG1VMFZiR0lnMk1xQUJlWTJyZ3FqX2Ixa191Nl9fTXk2LTBxQlVYeU8yMjJUTjFlYkFNQ1FYOXRteEV2OW1Ma1JUc0hXNi1rdFFzRnFNZDgxSDZOaG10clNLbXhMUE1YNnRzeVVIY3FwNXR30gF_QVVfeXFMTUtCQkVHS3BTalA3R0R4VEY2bUc2V2hqR3BLaERxMHVTRWpfR2lRS0ZKMnlaYWZuQ1QzSWxQY0lZdzI5OFY3UHh2Z0tVUFloOHd0dlJOeGJKdVo1Nmp1b19ld3RpMG9NbURxS2tRdjBpbDZsUlRod3U1Q2tqbTJKRQ?oc=5) |
-| DOJ sues SoCal Edison over Eaton Fire, seeking more than $40 million in damages - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQbmE5a1MxS1ItWlhMbzlWOFpLVU9wWHlVOEM1X2VjeXdINGxFcVpzYzFJRlpWWHVScGhFMTFsUXNpYmtaWEUzZGs3d2dPQ3VfZzI5MFBIcWpGZ0dnODFkbkxBQk1heWROcFA2Q0NENW1IMkx5NFRocWoyVTl2eC1oXzN5Z9IBiAFBVV95cUxPaUpEbERtZlRFRXFEMWdmQklUaTg1SFROc0ZCdEFEbEw0a2lQNVNzdkotSW5RWG1HX0JOLUFyRmsxOTFoWE1oY1ZzYUFFcDJHNU5mRWVfeE1tZl96WE1RelYwN3dPbDJBSE9FM0RsNFJPNW1TVGV2dndDdVQ5aUNRQU5ySjBsUlRM?oc=5) |
 | House Republicans launch bill to extend health subsidies past midterms - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPUXdRUmdMaERKZjJ5Z3MyeXlPNkNNTTl2QTBuWnNaMURYamx4enF5Z2h2U3BnZFoxWURveUtaaTFoUG5KOTlMZUZycU9LWWRJZkpvaTFMVC1tRUFicmVpMmNVckxCSC1FWEhfRWdPdGFNNkRXaGdfYXI4ZVM4TUlIdW9xUVp4RklTMzB0MQ?oc=5) |
+| What polls show about Americans’ views on childhood vaccine mandates - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNcGlyZDIzQ2otcjNkUjR0OXNVSlpNQ3NrYl9DTlp5M2tMMkdqTXBnNmgzTG1jXzEwUF95NVY1UkZpdnktemd0d1N5c2FRNGt6QlgtbldINXVaam4wMUVSRy1mTFhOajl4MUd3MHZPZDFxSzNDWGNrTUJ5aFo5eFpqampFYUVuZ1JYQ1JMa09USFF0d0tpcUlGSUxGX2pBREJJSVcxQmRYZFVEa3BMVzc3Y3dZeExMZw?oc=5) |
+| Trump warns he would 'have to unwind' trade deals if Supreme Court doesn't uphold his tariffs - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQSF9XOEpDN2NEeThLUFpobGdSQVhPUENWZTdheDlydFBYR2RUTDYyUXp5TmxSVDdoc2p1ZG93aF9udXh4YU1zYlJlRk9jNW1uV3VxM295T09KX2hMdmxTRjFkLWNRcDBVQ00zUS1wUHZfazZsdTNuVG9WZ0oxSUFWNGM0Z1EwLWVBS1l2NnlR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
