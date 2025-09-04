@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 23:57:07（北京时间）**
+🕒 更新时间：**2025年09月05日 00:00:21（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Jeffrey Epstein discharge petition will fail , Mike Johnson predicts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOZkUtSGlYU3VvZ1IxTDVTTlhUcXpTdkxiOXRDR3N0T0xVQVdIZFNRMVJCejhuQVZPd3J0S1FnNExWRTdDZm0tdkltVFFOaEJFQ3BVZVNyMDYzSk1CbHFLa2Z1Rjd0blIzZjJkNVI0d1dGWmNvSkFLbmpONTVMOFhwVVcwSlRVb01Sd3llb29uZkpFei1fVmlIUlZfQ1ZTRHBHbGkwb3h1MHctRUN2ZnpR?oc=5) |
 | These 3 states are teaming up to counter the CDC's vaccine recommendations - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOUkhMUXktTWd5YzNmbURWajBoaWRKNjRUdWdFem03S3pKNV9wR3hWdHBySnhZZXlaSXpiV0t1amJhZmY1eFZhWlhzZC1kUjFIZ3VIcnNPMU1PUGlQWG5lT0VGdGFWWHkzUDBJc0tuZFo0bkxjLTQtN3NPMDRtbHFOVmp2eTZidGdmWTlHekNoMXJmTDctYWVpNTFyZEYwb25mTUE?oc=5) |
 | DC sues Trump administration over National Guard deployment - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQbVNwQlNGa3d3Y1pHMk1hTXVwaGd6MHhyN3p0UGlpeDJ3TDgxZks3WXpDUGx6Z1ZOSHo3ZGxnQWNBZmkwUS1iRS1vMFNfT2RyU0FZUlN3V2pIazZvSUgxNHNVcGNVMTBUcGtOSU5henNRYWFEQUVrOGVjV1NTNDNOMVhHNklJQQ?oc=5) |
-| Harvard Judge Blasts Justice Gorsuch’s ‘Unhelpful’ Criticism - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNS1J0LUhGZnBqVGg5R2V3ZFFaTGdmQkZUTW5XeVNkOTRrQWM0ejhXcE1QUlhLNmwzUjBEc1VNeXFDUWpHa0F4dWVCbXlKYmdWc0ppZXFxRjB4Wm80REc0RlJQZHg3TlhtTGdiWS1NZFJtQ0tYUXZDUXlBb0ZDZmJoR1lKUjcxcERuTk5ZZU1KTFA0TVVzMkJnczFERk9jU1NMMVJvMXlnZklYT1RwcHc?oc=5) |
-| Man missing after meltwater pushed him into Alaska glacier shaft - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQQm1VWlJ1ZWxXRHMxQjZTc3djbHFxM1ZxV2NhV3M0Xzc3T1hTS1dnZ3Z3Z3c3Mk4zbXh3UWVYWUM2NHdQUU5vOXdOXzlCUlo4Q1liSWdENjIwR1NqRDE1eGxWMGFER3ctTkUwNzJsR1pMLWtOVm5LOEV1S1JOZnVfXzdzSkpaeUI2VUUzYUEwX3ExYWZNLXg1ZWh2VGVBUdIBVkFVX3lxTE41QTNfc1Qyc0lSYVg5dUN6ck1aX0VGUGhfVzJNczdOWE9TZG9HemwzZ1FwbHlqSV8wdlZIeUMyekd5U2ZNcnVPU1NiZmJuLWlTRFRjb2t3?oc=5) |
-| DHS opens new immigration detention facility inside Louisiana's Angola prison - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQRVkwVk51V1hTUmdUMGJhNHBTTjBJZW51bXRFVWdqdjMxbDU5OXBLNW9OaVZiYllMaVlBMFlEOEdjUEo4d2pZWHJoN3otOVpDTFlxVEozN3hOVUhqRlFjVkV4M3RmS2RhbkJ6c1Q4RmVRM1JMdjFkUHFfVEN3N0ktTEFSNHRBV05ERlkxZmdESTlOWkFwZkM0WExrSXpKM3lWcWFLb3lVVGp3Nk5xaWN3c0g2ZjNoUEtHZlE?oc=5) |
+| Trump administration unlawfully cut Harvard's funding, US judge rules - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPUE1tcDBtcUwxRlZFU21fLTl4VnBQSWlqYXdmTk54VTJEMEJiUzB0VWV1UE43T0ltZlg3N0RYRGN3R19nTzV5RF9jWk9jNTRCY1BhOFBwX0JOZWFQRWRFTmdLbVJuay1YM0I2MVpEd2tydk82bkV0eVE3Mk0zTHRIemZTYVJXc0x0aEJkWmFpdU5tckNZY0lheDVGRmlHUXFVWFlXUmV4UmhMRG5WVHduUTVB?oc=5) |
+| 10 federal judges criticize Supreme Court's handling of Trump cases in rare interviews - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQbDJmT3BTa3BZMkJaaExPRzdLMzZVSGdQVHk1QUk3VDNfQVptTExuelV4Njd5VVJNai1icGNpRlRnSS13OW05NlY4bUpDcU5ncXdzeDJhWU1BOGgxdlBmd3plMDdMcldCVnpVcDRuS3ZRUU5sZVZkLTBETnllb2J4QWI3YUo2S2wtTjdFc3RxQmo3b05aXzQ2eUIyaGhkM2hoak43YXA0YW15NWR00gFWQVVfeXFMUExqR3ExaDVRTmg2UF9ZYnNOY29wbnF6Rk5INEdPdDZZYmI4bmgxVkI0X0RrOWtFSXZZMGIwWTFFd0xPR2VkUmdES0xVaVoyRElRS1V1Qmc?oc=5) |
+| Researcher missing after falling into stream on Alaska’s Mendenhall Glacier - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOZXNqVkttNUtERUNKWWktMHFoalQ2ay10M0JSQWhDN1M2Y3Y4a3cyS25QS2JEay1jUmg2c2JDMjFBSlVxTjRuRVZ0c3JrNnI2Rll0S1hVS0pkcUNMdVV3YVB4ZlFvbHFZem4zQUtIRndUQVR3cXRHRmFpZHBvVXJLeEhuQ0NsWXdZM0s3TWxB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
