@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 16:56:14（北京时间）**
+🕒 更新时间：**2025年09月04日 17:01:51（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Texas moves to allow anyone to sue abortion pill prescribers, distributors - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNd0tIclNCeWVRZV9yZWVfcnYxczlnczYyWXZNcmJJa0pENGdFbzJVT29GZHJETmZnVlpmYWgxOUljUVdZUVJXWWt0WXNMdmQyOVR6Qk1BcUFpdlNabjZ2aXJEaFlLV25ya3c3R3hPMXllUmVpV2VfLVFaeEtLMjEzMUh1YjBLVFZVZWsxdQ?oc=5) |
 | Trump calls Epstein files 'irrelevant' as Massie petition picks up steam - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQVVZiT2NwOUdOWnFNX3czMmJyRmZDcWxZT19JbUJpRm5TUng3UDdBMTFOWHBwLXZfT3NDVGlXalBqSllwaWFHMlJNZ0x6Q050SFBHR3dycWVYUktkcVJpRXBINE9lZ1NsQWJveXpIdGI2WWVoRG1hU3NVakVNa2VBVmVTekVJVkJNbExXdWtuWEtoY1lONm5WZzN0MXRXM2VFVWhMX1g3VTBYZ9IBrwFBVV95cUxOUV9OcUtmMVdXd3ZFaEI2dXBpeVFNdjQzOW5CODFkOEsxc3lfNmQ1MzNnQjhVN0dnZEoyMUEzeXBDV2MzVTU0X0VBUUJPLU1rUWVYYnpIMzQybE9jQ2ZLYmpnZnRsMnBERG5qbXJ2Qk44Z01CelZXazM2Rzlrc2I3cFlVOWZhbnF4OU9INXFKelNEQjJUWnREYkJoYkZPWDZSbkJjNmdqZnF5eE1Bajc0?oc=5) |
 | Florida plans to become first state to ban all vaccine requirements - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1BTUtQYkV0YnQxc2RlZHNacW1RaFA4OVpPNzJUMGF4dWh4dzI5UEFob2VVMUowMlJjeGdUTE5KaEtYVXUxbGxwYjdDNktIQ1J1XzZxZzNlV0Rxd9IBX0FVX3lxTFA0OGNmWm5Va0pzOW51M1RoalVFOU00VWlaWkRwczg0VFJXUVd0UE53WXJsNlRtSjBlQWstQk5fdU5SUkNPN3VzTVRrU3JiMG5VSkpxbXg0UklCd09TOE80?oc=5) |
-| California, Oregon and Washington form health alliance amid federal vaccine tensions - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi5gFBVV95cUxPV1ZLMUo2NEYyY25FWVcxTXZoa21DQVotaUF1TWt3Yy05SVlhMFFObE4wMGdzZnpha2FmdXc1MmhaUWs3QlctaFR2b1B3TFpGdy1NUDVJQmo5NE9ISWo1elBxdlNZTk16d0pmSlF0U2FpRFA0S1RNS2YtdF94SXo0a1RBbEJnaGgtbi1wUXhkRV9wYkhQSUxBbGdaSEh2ZDZaM2UyWlJheHdEcmJHOW5LZEE1SUllcUd6NVhQS2dQaXlkV0cwckI3cGtCSVF3LXd1MWgxbTNVR1RfR3VJdzhjdkZjOFltQQ?oc=5) |
-| Louisiana prison chosen for immigration detainees due to its notoriety, says Noem - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxOYjA3N0QySVpSOWRMbWFmOTJja3oweHlqWHRqT2FUYkE1YV8wdDd6RDZwS3dBa3lKcGFpN0VaRjg1VFJVM2s4al9XNXpzMk5pdmJVNHRWSzNOUXFPSUNTUlJGMDJPNnhNN3I0SlVUZ2hoamNTaWhDMnJYZFo3aVRjRDV3VUU2TE5XNDRiX2tKVjNYVWNaa0dkLW1PMEJ2d2xxRmlJM2NTVkVUR05KNHBpVG1TX1pRVnJSUVhIbm9kajhhQ3JSTVE?oc=5) |
+| California, Oregon and Washington ally on vaccines in rebuke to Trump’s CDC - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQcVNNQ1BUQjkwY2RvUG93RUpOai1OV3BKZkpENVRIV2c2ZUtuNVJfTnM4U3I5bnJ1amFDanBNeWdmdUM5cEZSRzEzV2V1M0FTTUVXV000ZGRLeEFleUNtX3V2cE5wQ0JwOFRJVHRYYjQydnRrSDR4WWV2UFFRZDdPWnV5dUZhZ2JJbTZkRFBfdw?oc=5) |
+| Trump administration to open new ICE facility at notorious Louisiana prison - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPSWFodFJOX1pxN2diODI1VmstaENXUWJpZEVYbXltWHpJbUlDTFp3N0swcFlPelk2ckZJNHljZHhZaTdZRDJtejhUU1VYN18xWHI0RS0zaVVSclMzeEZiR2M2RjBTVlBIZXBRdkpEVzZIU1U1d3Z6bzBGSEtDc3g3dkdjT2pfNWc?oc=5) |
 | Top Democrat says intel visit canceled after Laura Loomer attacked him online - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQNExGQzBtd0RXWkUzUS11c25RbldsQUZQQVpMZDBkZFpTUFV5VTBBQ21YSlJYREdmcXFTMWo1eGtXcWtVRE5GZWE0X2VFSlZLNTR1ZjdlMjdlTXd4OEZtZFRhNXhjcHU3VE5HWGdvZ1Z0cVlpRDFnV1JLelBadi0zUFdKRXJjS3FSc3l5Wg?oc=5) |
 
 ---
