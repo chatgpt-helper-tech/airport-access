@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 13:32:05（北京时间）**
+🕒 更新时间：**2025年09月04日 13:41:18（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Lisbon in shock after funicular crash leaves 15 dead | [阅读全文](https://www.bbc.com/news/articles/c1jzlgj915no?at_medium=RSS&at_campaign=rss) |
-| 'My son's constipation wasn't taken seriously until he reached crisis point' | [阅读全文](https://www.bbc.com/news/articles/cgr9zg17n5yo?at_medium=RSS&at_campaign=rss) |
+| Rayner admits underpaying tax on £800,000 Hove flat as Starmer backs her | [阅读全文](https://www.bbc.com/news/articles/cy50446rq73o?at_medium=RSS&at_campaign=rss) |
 | It's 4,000 miles from Ukraine - but even this Asian city is part of Russia's war | [阅读全文](https://www.bbc.com/news/articles/cvg0e54z7x8o?at_medium=RSS&at_campaign=rss) |
 | Martha's rule expanded across England after hundreds of lives saved | [阅读全文](https://www.bbc.com/news/articles/c8e1zw28766o?at_medium=RSS&at_campaign=rss) |
-| Rayner admits underpaying tax on £800,000 Hove flat as Starmer backs her | [阅读全文](https://www.bbc.com/news/articles/cy50446rq73o?at_medium=RSS&at_campaign=rss) |
-| What we know about Rayner's tax admission - and the unanswered questions | [阅读全文](https://www.bbc.com/news/articles/c62n366q306o?at_medium=RSS&at_campaign=rss) |
-| 'Systemic failure': Botched insulation fitted in 30,000 homes | [阅读全文](https://www.bbc.com/news/articles/c8606gp4711o?at_medium=RSS&at_campaign=rss) |
+| Migrant crisis: How Europe went from Merkel's 'We can do it' ten years ago to pulling up the drawbridge | [阅读全文](https://www.bbc.com/news/articles/cn5e5q7w41eo?at_medium=RSS&at_campaign=rss) |
+| 'My son's constipation wasn't taken seriously until he reached crisis point' | [阅读全文](https://www.bbc.com/news/articles/cgr9zg17n5yo?at_medium=RSS&at_campaign=rss) |
+| 30,000 homes fitted with botched insulation under government schemes, ministers admit | [阅读全文](https://www.bbc.com/news/articles/c8606gp4711o?at_medium=RSS&at_campaign=rss) |
 | Big Ben tower, home extension and science lab up for prestigious architecture award | [阅读全文](https://www.bbc.com/news/articles/cx27nmj77xzo?at_medium=RSS&at_campaign=rss) |
-| UK and allies ready to back Ukraine before and after peace deal | [阅读全文](https://www.bbc.com/news/articles/c5y85x58nj4o?at_medium=RSS&at_campaign=rss) |
 | Union group urges Reeves to consider wealth taxes | [阅读全文](https://www.bbc.com/news/articles/cx27nxex9dlo?at_medium=RSS&at_campaign=rss) |
+| Don't say sorry - the six things you should do if you're in a car accident | [阅读全文](https://www.bbc.com/news/articles/c5ypypy2jk2o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
