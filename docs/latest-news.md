@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 07:01:18（北京时间）**
+🕒 更新时间：**2025年09月05日 07:08:28（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | Boy, 3, pulled from funicular crash that has shocked Portugal | [阅读全文](https://www.bbc.com/news/articles/cgrqj7ydr0ko?at_medium=RSS&at_campaign=rss) |
 | A style guru who revolutionised fashion - Giorgio Armani dies aged 91 | [阅读全文](https://www.bbc.com/news/articles/c90z02n04nwo?at_medium=RSS&at_campaign=rss) |
 | Ex-Tory minister Nadine Dorries defects to Reform UK | [阅读全文](https://www.bbc.com/news/articles/cj9zld87y1go?at_medium=RSS&at_campaign=rss) |
+| Error leaves 55,000 diabetes patients needing new tests | [阅读全文](https://www.bbc.com/news/articles/c4g7d3w7gdlo?at_medium=RSS&at_campaign=rss) |
 | Daniel Levy steps down as Tottenham executive chairman after 24 years | [阅读全文](https://www.bbc.com/sport/football/articles/c9qng2rj38do?at_medium=RSS&at_campaign=rss) |
+| Bella Culley's lawyer criticises British embassy | [阅读全文](https://www.bbc.com/news/articles/cvg43xxerlvo?at_medium=RSS&at_campaign=rss) |
 | Surgeon jailed after amputation of own legs | [阅读全文](https://www.bbc.com/news/articles/c5yvpx20le2o?at_medium=RSS&at_campaign=rss) |
-| RFK Jr defends leadership as lawmakers grill him on vaccines | [阅读全文](https://www.bbc.com/news/articles/cn4l7p771m4o?at_medium=RSS&at_campaign=rss) |
 | Starmer considering digital ID scheme to tackle illegal migration | [阅读全文](https://www.bbc.com/news/articles/c5y5379djl3o?at_medium=RSS&at_campaign=rss) |
-| Macron says 26 countries ready to send troops for Ukraine ceasefire | [阅读全文](https://www.bbc.com/news/articles/czxwl15w2qko?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
