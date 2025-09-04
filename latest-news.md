@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 08:16:26（北京时间）**
+🕒 更新时间：**2025年09月04日 08:24:14（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | At least 15 people killed as funicular railway popular with tourists derails in Lisbon - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9kcVBKSWVPRVZZMV9DV184bkpIY3p6R2l1WHdYU1NqazdZMTdUWGZnbFIyVnc0V0d6ZzdpMDM4NVpsVFdSVVExNl9qZWEyT1lVdWFSVTZDSjBRWFV2RUVsTUs3Y1dWTFYwS295NWhmMzZzQkd4Snh5bEtzSQ?oc=5) |
 | Trump officials defend lethal strike on alleged Venezuelan drug boat - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUF9PQXJVWTF2RWFYR2JhTUlkeUpHdDdfcHo4cHppaUtERjRfZE04SGowdTdfNVdPRVp5ZDBtMEVJLXd1YlZpSlJJUkJWSkk0RW5qTnJ2WndkOEM3ZkJGNTZiSWViYTRCcnVlZk9leUNmQWw2SndKM0JsOWtnY2k3V1gtc25JbnpUT0tvQTkyT2k?oc=5) |
 | Washington, Oregon and California governors form alliance in rebuke of Trump administration - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNb2lad1F6ZmhHWFQ2a3JNWGE5azFZSVFhWlg3dWxudERoRDdWdVdVd216TWFxYXd6OHdRTlFveC1SUHZHWXQ5S2V0cEFWcE9xbHJZLVVvWkZTcEFLMzlSXzl3dzBsTGlXeEp1Zkk2d2NOZjJFeFRGaENBLVE0MllRUENVTnRBVTlaeEFNSlg4REgwRkE?oc=5) |
-| Over 1,000 HHS staffers call on Trump to fire RFK Jr. for "endangering the nation's health" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5DbURMSFBWcmFYWHgwcXozdHpEQmpkZV9namhVakN1MWwxWl9td1d0cmJCcXE4RW9BSDZNLV94TmZLb1JUdGRib1UwZnU5dWtHc0xxRGRoQ0hGbHU4X1ZlWHp0Y2gwUDFGYWdPYVg1a1pyQ0hNLVM40gF8QVVfeXFMTVJLa3RCZzU0UXd6Y3ptamtsT0hIYk5uSDA1LXgwaWF3djg5aUJwUktjVVBIVzg4Z0FGRTRNaXJ4Yk9wSHEyeEFOVFN2d0xnWGYzUFBhTFZpbUE4SDloVGxCWk0zSFNSY0tqUUZYSGdBSEk0dHg2Uk1NRktCMg?oc=5) |
 | Trump Advisers Have Discussed a Job for Adams if He Quits Mayor’s Race - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOZzBpdGpmOUtydXVGOC1OamhkRHB0bk1lSjZMUzBCRXlfd3diVC11Vy1OeTlGMkdPMW1PQTJ5Tm9ZV2ZabWJtSHNsbGtuSFVUcHQ2U0pIUzhzWUlOWTVsQ0RiSHpQQW9wc3VQeXJiVWZzN2RxY1hjZWkzSGpvaXBDNUQtWjNfdHVL?oc=5) |
+| Over 1,000 HHS staffers call on Trump to fire RFK Jr. for "endangering the nation's health" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5DbURMSFBWcmFYWHgwcXozdHpEQmpkZV9namhVakN1MWwxWl9td1d0cmJCcXE4RW9BSDZNLV94TmZLb1JUdGRib1UwZnU5dWtHc0xxRGRoQ0hGbHU4X1ZlWHp0Y2gwUDFGYWdPYVg1a1pyQ0hNLVM40gF8QVVfeXFMTVJLa3RCZzU0UXd6Y3ptamtsT0hIYk5uSDA1LXgwaWF3djg5aUJwUktjVVBIVzg4Z0FGRTRNaXJ4Yk9wSHEyeEFOVFN2d0xnWGYzUFBhTFZpbUE4SDloVGxCWk0zSFNSY0tqUUZYSGdBSEk0dHg2Uk1NRktCMg?oc=5) |
 | Trump’s redistricting war spreads to Missouri and Maryland - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPcVRaWTFvTUI2UUFZY2NKUmhnUGtlcUJ2NDhtUkVhT182NzJWbFJSX2drVERfVjdUcHBiNmxVMU1la1hXR3A2dmhZbzliSTdIVElxZlZhV2txNXJCellaRVZJQ1BtdUlLZndUSENHZFhlNUxVQzk3ZnpkcERhUWZhWGtyXzF2aC1jcVB6NWlQUVZqYkE?oc=5) |
 | Appeals court blocks Trump deportations under Alien Enemies Act - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQamIzWGlocnFkdjgtdnlJTXYyUjNzVmpqX24tdnRZODI5TlNtR01KbEJOVkNVWTR3QnVQdDhUeE15MnFGa1FKeEFwbE41NEpwX19DS1ljMlNvRF9nMDA2YkhMTDBxeXRzbmktNUhpbnBJS1JNVTFQcU1ZamFpUFoxX1VRQVFDUlhsc3hmTDVxUQ?oc=5) |
 
