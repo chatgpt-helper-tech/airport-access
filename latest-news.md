@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 07:40:03（北京时间）**
+🕒 更新时间：**2025年09月05日 07:49:48（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Medical groups call on US Health Secretary Kennedy to step down - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNQnZCRnJNUGJnVm9rWXJRM09vOVJmckdBUDBnLVNmS2pEem12andnalpHN1FWMVg3Q2pydHRjMDFKWjlNRUlWelJGQlVERlg3ZVczOUZsQ0RBeVlqWkZLVnFxTU01UXRRejJKajV6ajJOMWJIdzM3Y0k2TW9MRjBjcHdDY3hPZHNvX2JCcmhsSnQxTVlKSE9TWDFyeHk1S0lreFYtdFZpSW54VEVjWGdxVUpmclZUY2c5VDl4ZEZXSFBtN1d3RXpYYg?oc=5) |
 | President of Northwestern, a School Attacked by the G.O.P., Will Resign - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBhZlVzVjBpLUxXRWV6RTZwRHBzLWgydWEwX1pBY3VlaVUtVVdUYnFKM0ZtTjh5b3VDR1A1bmE3MHJJb3NqWGhrYW9kMVl2WDV4SVhsd3prbjMzM0QtNjFxUTd3Yk45dWZQZmRRYmZ2QXdLNTUxV3hyeDQ0QjA3dw?oc=5) |
 | Trump will host top tech CEOs except Musk at a White House dinner - PBS | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQSEpSWUZScE9CY0VpbDk4Q2ZKOGMyRzJoc2JXN2cwUlphaFRsV1Vha1B0MzFtY1Fjdjd5Y1RERm5MQmNCVDBjamN2Vmk2Zl9LQmYwWHpLZS1scThpN0kzSldaZXlITE94Z09QU0R0OFY3Q0xpVTBpRXA3cmNLWk12aVo3UW1DamVGXzBEV2pEek9IM3V6TnRmQ083Yy0tQmU3ZDdEZkln0gGrAUFVX3lxTFBlWS10T3BJNHdJQ1d5cWFZUDBCUEhqalB1VTVDd3lRQUt0YjA4Q3pfcjFMd0dRY19ZN1JWWHdBaUtIazR0cHRtYUREYmlRYllEMzNGa18wc2t1V2kyc1FXemRINW9udGw3UTNJZmZ5TW0tNHRnSWw4end2T29VcGxSTnRXSUFuM1dNNG5GdURBbE4yak0zWVJjWW9aM3hlOGduLVVrZkRoZmx5TQ?oc=5) |
-| DC sues Trump over National Guard deployment - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQM0pTVzVOVWhaSnZGN1ZBQWdTcXdVQUNFS2hIcU9HenpHcXJxMFoyaC1JaldaUU1ZSkJtNjNyVWtrTENCT1JhWldMN2xuVllXN1pLQVY1S1FwcHNsLUQtM09CVmFRQ1dqYXRLZGpKdHhyQ05peWVEUTNvbk5mb0xUYTg0MzBqU05helR4Q3FkazgxSjYwd1pR?oc=5) |
 | Harvard Won Its Money Back, but Will It Actually Get It? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOc2U1OTJrcEVVQnhyN29EQ1J4OXdQTFNjMzdfMnZSWGt2NkVYVXBmNkhvM0FLU09DUFBQdVFUTkQ0ZkV5blhZa2RWVGhJTGl0d0tJbDZONThhNUVhamppeTk0SjBrLVQ1T09yTGU3dHNIUEpfbExpOVRyai1RMmF4MU1vOVIwZHZKZUYtLVFrMnY0ZlRRQ3U4dUUzVTY0VWJi?oc=5) |
+| DC sues Trump over National Guard deployment - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQM0pTVzVOVWhaSnZGN1ZBQWdTcXdVQUNFS2hIcU9HenpHcXJxMFoyaC1JaldaUU1ZSkJtNjNyVWtrTENCT1JhWldMN2xuVllXN1pLQVY1S1FwcHNsLUQtM09CVmFRQ1dqYXRLZGpKdHhyQ05peWVEUTNvbk5mb0xUYTg0MzBqU05helR4Q3FkazgxSjYwd1pR?oc=5) |
 | Who is Joseph Ladapo, the Florida health official who opposes vaccine mandates? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9UalY3WFdKYXI5ZUNWLTVOWVhLVkRlZGwyLTdBSXg5Zk0tMF8yOVBBLUJvM1VwRU9FNjRfODNtX2h5Q050Tk9uQ2lZYkJIcUV0RER6YzBIVWFLZ9IBX0FVX3lxTE5DQVpIUmxIX2tEYmluRE9kQmJOaWkwTHF3MUFvbW5CRnVzbFFQY25sRk43RDRKaHBVc1FCWm1OdFdGbTFaSldQV0tnR2hYcmo5RzJIdE5JakJQNm9pVzIw?oc=5) |
 | RFK Jr. says former CDC director Susan Monarez lied to Americans - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE00SzF6VmVIOUt4dTFmTzNhcHJwVWNPcGdKNjIxeGJ4d0NUWkpac21vOVptX2lWT0ZYSmprM3BBVWxZZVZJeTg0bm9qOUcyT0JydjBTR3BJRk55Yi1rUHFfWW83RGxqVnNvY29SV091TWRQMEE4ZXdZd0xyUQ?oc=5) |
 
