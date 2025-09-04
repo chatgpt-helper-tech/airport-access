@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 20:41:02（北京时间）**
+🕒 更新时间：**2025年09月04日 20:49:15（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | William and Kate visit museum in first engagement since summer | [阅读全文](https://www.bbc.com/news/articles/c7845x720y6o?at_medium=RSS&at_campaign=rss) |
 | Second arrest over racist abuse sent to England footballer Jess Carter | [阅读全文](https://www.bbc.com/news/articles/cp8j1r4glzxo?at_medium=RSS&at_campaign=rss) |
 | Martha's rule rolled out to all acute hospitals in England after hundreds of lives saved | [阅读全文](https://www.bbc.com/news/articles/c8e1zw28766o?at_medium=RSS&at_campaign=rss) |
+| Injuries as bus mounts pavement in central London | [阅读全文](https://www.bbc.com/news/articles/c79vwrxn47eo?at_medium=RSS&at_campaign=rss) |
 | Graham Linehan goes on trial over alleged harassment of trans woman | [阅读全文](https://www.bbc.com/news/articles/cn0x2kx08wdo?at_medium=RSS&at_campaign=rss) |
 | Grandfather accidentally takes home wrong child from Sydney daycare centre | [阅读全文](https://www.bbc.com/news/articles/c4g5v4z13l6o?at_medium=RSS&at_campaign=rss) |
 | 'It collapsed like a cardboard box': Witnesses describe fatal Lisbon crash | [阅读全文](https://www.bbc.com/news/articles/c20v4g71zrpo?at_medium=RSS&at_campaign=rss) |
 | Who are the victims? | [阅读全文](https://www.bbc.com/news/articles/cnvryg271ymo?at_medium=RSS&at_campaign=rss) |
-| Watch: BBC correspondent at scene of Lisbon funicular crash | [阅读全文](https://www.bbc.com/news/videos/c7v15j8ydreo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
