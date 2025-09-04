@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 14:48:09（北京时间）**
+🕒 更新时间：**2025年09月04日 14:56:41（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Trump asks US Supreme Court to uphold his tariffs after lower court defeat - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5jNmFqNFhtX1RabUJ4WUx0Nm5jQ0h2UF9YQ3BKTjVWT0hCQkxiSHBlLURNd1dhRzNqdXRYamJCUm14RnZ1M3hYejcyRncxS1plVEl5ajAyNm9RQQ?oc=5) |
 | Trump ordered strike on suspected drug boat to send a message, Rubio says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUF9PQXJVWTF2RWFYR2JhTUlkeUpHdDdfcHo4cHppaUtERjRfZE04SGowdTdfNVdPRVp5ZDBtMEVJLXd1YlZpSlJJUkJWSkk0RW5qTnJ2WndkOEM3ZkJGNTZiSWViYTRCcnVlZk9leUNmQWw2SndKM0JsOWtnY2k3V1gtc25JbnpUT0tvQTkyT2k?oc=5) |
 | Old master painting looted by Nazis recovered a week after being spotted in Argentinian property listing - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxOeEpCZmsxODFpMG85blJkSXVRQlVxT0s3VFBiWi03ci14elptVWZoeFNCZWU0MVlmdXlFTDhfdHVtLVR6YlhpYVZmVDUwS0VZVGpsVlY1OVZKREZUMkhNaDJfTFozeDZoTG5lSWNvWFBTLXU1eTlIWUViUnA4LXllMnlWTjVfWHFMRVlISGlKcl9mVVlvbEM4SkdDM1FnRHF5bjBDU0pRMU1FTEhnNjk5cXZBRndFVmVkN3ltaUk2OG5pTDJXcWRIUTBpdG5nUlJkV1YxQW9Ycw?oc=5) |
-| Texas lawmakers approve letting private citizens sue abortion pill providers, send bill to governor - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOTlVvTGhCWEhmaGhaeVcxd3c3bTVLY3JqeS1KRjdoa2dGaXI0eFNESWxKSHZzZllIM3VTZURjNG51S09PNzZWSjNMZnJDQy1SSUFTUHJnWC1fZXROcVZjbnRKU0V3QzVGSUJSTjZEZEh0a1RiemxZOG9jeHhFUkxVaTUxS0JScTF2RjA4SFdaNVdnY1lGSXRqSVhXRU9ZZWdISE5CZEVyWlUxUWhN?oc=5) |
+| Texas lawmakers approve letting private citizens sue abortion pill providers - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOTlVvTGhCWEhmaGhaeVcxd3c3bTVLY3JqeS1KRjdoa2dGaXI0eFNESWxKSHZzZllIM3VTZURjNG51S09PNzZWSjNMZnJDQy1SSUFTUHJnWC1fZXROcVZjbnRKU0V3QzVGSUJSTjZEZEh0a1RiemxZOG9jeHhFUkxVaTUxS0JScTF2RjA4SFdaNVdnY1lGSXRqSVhXRU9ZZWdISE5CZEVyWlUxUWhN?oc=5) |
 | Florida moves to end all school vaccine mandates, first in nation to do so - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPSFBVdk1la2xpcXhmNFZiMHgxRUhKS09jTzVYSVl6NjRPMWtTXzcwS3pPQVNnT0ZjT1RhckJJejFKc3Y3aW13NDVET2VDaUxCZmQwaUZRdnF5S200UTJkR1hzQjBTbHZCZTJUTUFKX3pLajZmTHAxNWFrMVFmOVBoeW91VWtmR0k?oc=5) |
 | California, Oregon and Washington form health alliance amid federal vaccine tensions - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi5gFBVV95cUxPV1ZLMUo2NEYyY25FWVcxTXZoa21DQVotaUF1TWt3Yy05SVlhMFFObE4wMGdzZnpha2FmdXc1MmhaUWs3QlctaFR2b1B3TFpGdy1NUDVJQmo5NE9ISWo1elBxdlNZTk16d0pmSlF0U2FpRFA0S1RNS2YtdF94SXo0a1RBbEJnaGgtbi1wUXhkRV9wYkhQSUxBbGdaSEh2ZDZaM2UyWlJheHdEcmJHOW5LZEE1SUllcUd6NVhQS2dQaXlkV0cwckI3cGtCSVF3LXd1MWgxbTNVR1RfR3VJdzhjdkZjOFltQQ?oc=5) |
 | Trump administration to open new ICE facility at notorious Louisiana prison - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPSWFodFJOX1pxN2diODI1VmstaENXUWJpZEVYbXltWHpJbUlDTFp3N0swcFlPelk2ckZJNHljZHhZaTdZRDJtejhUU1VYN18xWHI0RS0zaVVSclMzeEZiR2M2RjBTVlBIZXBRdkpEVzZIU1U1d3Z6bzBGSEtDc3g3dkdjT2pfNWc?oc=5) |
