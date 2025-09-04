@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 06:49:33（北京时间）**
+🕒 更新时间：**2025年09月05日 06:57:20（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Senators from both parties grilled RFK Jr. on vaccines and more - NPR | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPMGNBS0ZDUWgyT3BiV0RhMjFZWmNHNzJQYS1ZYXFLY0Vhdnp4VzJuN2ZmZFdVT0tZUi05cUY5cGNBLVNXVGM4YUNPUVgyNXA5eE9Ub3R6ZUoyYTRidUVBQjFudXFoZzVYa2tXaVo0Qzd6ZVlwSXhPcy0xSzJ3VGpsRDdpTXZXeDk5Vk0wQW15YUpiVFZrVk1lc24zM2ZtczN3WDJ2c0FWVkRRYkZHNVdR?oc=5) |
-| Trump says the U.S. military destroyed a boat operated by Tren de Aragua off Venezuela. Here's what to know about the gang. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE83ZVpnZ1d6U1RrZEt0TlRYUlpxSHQyM3c5eF9TdTdJMGZQNGtNbDBSbzJnWkdoOWQ3ek5fMDdwQmhlMVU2b2RBVWdsY19yUlhZTFV2ci05czhoUTdacTBTQ0xPUzYtM3g2QkFZTUR6NExJOEpWLWhIbUhR0gF_QVVfeXFMTllucTdCeGVIeXZzUlFEcHdZMnRhSktFdlJoZjg0b1hTUWkyVmNiMERyUXRkS2x5TzhIVHlPUmhGT3ZVTmVTbkotcVZxWE5QUm0wcUxRRXV0Q3FDQ0hHQldCM3YtMURxZm11Wjg0NFB0ZHVoRkNQZEFJamxXclNiaw?oc=5) |
+| White House to defend its drug boat strike to Congress - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOYzJvbTNIdW1TbXFBdGhTdDUwb1g4Tkowc05QbmEwdlVtTDg5Y2ZCM29LZVpRVXJRMWtMZ0JIcHdpbjNiVkxOSU1VRk9BVzJVWUQzSUxSNGt0RTF1Ym9pNXVCbm0zak1BQWd1YkMyeHZWRUV5eVNxeUc1Y0k5ek82MjUwczA2bHo1REtSZWttV25ob1BS?oc=5) |
 | Medical groups call on US Health Secretary Kennedy to step down - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNQnZCRnJNUGJnVm9rWXJRM09vOVJmckdBUDBnLVNmS2pEem12andnalpHN1FWMVg3Q2pydHRjMDFKWjlNRUlWelJGQlVERlg3ZVczOUZsQ0RBeVlqWkZLVnFxTU01UXRRejJKajV6ajJOMWJIdzM3Y0k2TW9MRjBjcHdDY3hPZHNvX2JCcmhsSnQxTVlKSE9TWDFyeHk1S0lreFYtdFZpSW54VEVjWGdxVUpmclZUY2c5VDl4ZEZXSFBtN1d3RXpYYg?oc=5) |
 | Northwestern University president steps down following federal funding freeze - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOS0FHaGdLV0dhdDZVMW5QNk5kYlZldkE2SnJPQkhmSW1URUFuT1h0WEtsTi1PT25WMTU3TkREVmVVVU1EU1BfMV9yTGh4UUd3QklQMVE4RElIdGQ0T3NpdTJ4TW5uZkhCblFQTGtONjFFOUNnX2lPaTdraFBHamhsOG9La0Q?oc=5) |
 | Trump asks Supreme Court to let him fire FTC Commissioner Rebecca Slaughter - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOYU52UDRJYUxEQTVrbEJGd3VpR1RiMWpIM2RFcnBkNTdlX3R1dlIyYVlscGNrOG5Hb1VtMHI0eElTVjIxZ3V3bnlMQUh4OHFpUDd2aWJuV2Y1dGNYTl92TmM3anN6cGpld2FaUVlVS1l5Zl92TVBFNDFKS0xnVzM3TlNWTEtIUFBPMVJlUzNZUGxWYmduVXfSAZsBQVVfeXFMTVJiNFp2RUJhWWpJRjNMMG04cERVVl9WU25xV1hGYjF6ZTJwdjhxbHl4dk5zbG55RHFaVmJrbVMzWGZtQXhTNGhEZGtDbTlqUlFvWEhBYmRZZHJ4RFR4bGRpT3R6Q1RocTFqb0lDdUtfZ3FIR1dpMTdxeWdlbkQtYUtCdGstNEdEMmVGWEVsbmtkSnlJNEozVG8ydlU?oc=5) |
