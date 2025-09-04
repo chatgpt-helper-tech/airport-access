@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 02:33:20（北京时间）**
+🕒 更新时间：**2025年09月05日 02:40:31（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Here’s how Chicago is preparing as possible National Guard deployment looms - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNbEI4bXRVdGQ1ZUNCZy1QNTVPOUl3Q0U3N2lLdXJRaTNoQVlWa3NZR2M5VlQwMGpuNVd0VmtPMEphb19GM3FCVDB4VDVtVDRxZUlJejJSMFJ5NmVXN285MjlYbnJidVVsQ2VnY3JVQjZIdjZ0VlY0bWpWUFE1UXljd3U1eFJxT2s?oc=5) |
 | Jeffrey Epstein discharge petition will fail , Mike Johnson predicts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOZkUtSGlYU3VvZ1IxTDVTTlhUcXpTdkxiOXRDR3N0T0xVQVdIZFNRMVJCejhuQVZPd3J0S1FnNExWRTdDZm0tdkltVFFOaEJFQ3BVZVNyMDYzSk1CbHFLa2Z1Rjd0blIzZjJkNVI0d1dGWmNvSkFLbmpONTVMOFhwVVcwSlRVb01Sd3llb29uZkpFei1fVmlIUlZfQ1ZTRHBHbGkwb3h1MHctRUN2ZnpR?oc=5) |
 | What does Trump want in the Caribbean as US deploys warships? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFAtUU5Ga3U5U3NNdVdfUk5YRTBuMlFxZmkyOHVUSHBZbDF0TElxbDNKbjlwMVQ4eDlTLTk0WEZfQWRWSFZOLTZfN09QR1JoM21KUkw0RzZ1MDhhQdIBX0FVX3lxTE8zWmtDNFI4THhYU0hMLVVuZlRqeUplRFNpNlRXbk1fN0VaSUQ4cExIdmd0ZnJxRkZTRWdkNVlxOE5MaWRnOUYwc3NKNWRmUmZHcTk5bzN1Wmx6dTAxYldZ?oc=5) |
-| D.C. Sues Trump Administration Over Deployment of National Guard - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5sR2d0ckpLVndfN1lneEI3WGMtaFVmc0tYa0d5XzNPY2tndDFmeHBROTdKTDN3LUVhSGJSVUlta294anFNLWp6bHlLRVFaZTc1UnQ5M1FaZEZNVzhFMDBpWC0zV0dDWkN6TTBEYjB6Q3NCTXMyaTRXUVhBUQ?oc=5) |
+| DC lawsuit challenges Trump’s National Guard deployment as a forced ‘military occupation’ - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPcWhRQmxLRjhXQ0VzUTRxTGpPdmRkTnJXUm5LQm9qdzhKcDhDeUZVeW0welg3VkJqZzctTDV4dmFZbDV4Wk1yeHFHM0plcWdsNTlTeGpXcXQwb01velY1SlQyZ0hsSXM0U1BZTXF6MFRpQkVlZkt2cEdweTFubmJZanFMSnladDVPMlUyRFMzbi11UGp1RTVvTTBWalZFbWNhaVk5bVhLbnBZVDZMR3VwaUhnWU1hNU9UWHJz?oc=5) |
+| What’s next after WA joins West Coast alliance to fight ‘destruction’ of CDC - The Seattle Times | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOLV8xZ2J5WkhvSUpQSlFDMjNmOHVidGVPcTVXa2xCR0dvclRtWTlVX2hlWHRfRVNPQUl5UnE1SEpDSjJoM29TNmJXaC16WWR5ZTEzczM5emRISVVCNXpjbnFfWk5md3BsT0VqS25uU1BJSTlRZ0M4Q3AweGl0cV9oRkhXc3YxYThneHVZVG9tcGF5YXl4T1JyY09YUFY5T296eVc5STJxcDlQMnVGUXZJdnQ4d3ZGMDRTVHVF?oc=5) |
 | 2 tourists fall to their deaths in separate incidents near Alaska glacier - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE5sRFEtNXlDMW9CajFjSGc2RU5qMmJRM195aFFlMzRQa2thRUdpRnZFOEd4aVBSb3d1OGhoV3pEMFNiUHhMZ3RtMEQwWjhlXzFGclp6THhxNzUzQWhIMUZ2eFhGQVQyWjBhRkxLZTQ2VGFsc2fSAXhBVV95cUxNNzJ5dUpsT3hVbDRCSHFtNVdzd2xLWGpWdENmcmpGYnFSdlFtRnJ0M1FWVzFRMnktY29NQmEzNkhBWHU0b2w0Q3N3LTd6Zml0Mk9QeHJJbTZqRTNieW5MNXB4RW1iUVNhTmR0WUt4T0FYVndPTUx3a1E?oc=5) |
-| Justice Amy Coney Barrett says the law isn't an "opinion poll" as Supreme Court faces longshot bid to revisit same-sex marriage - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPb1VnbDc3aW9ITzNwb21uZVlqZnMtQ2lYRVJSb0R6RlM0aGRXY0o1RHBrcEk4ZURDQlVtVnV3V3FNUXJoNkx5dlJfdk91T25uZ3docXhSQm9aemNKR3NnRWhoVllSeGFoQ21jazBOYlJxN3VBWU43WXlsVkJLaTFHV1pncmNTWlBfUGMtNW1uYmVjT3pNX0pidWppUmdfZ2RWUnEzdXRaNzJ1a2JSRHowX3BEaHbSAboBQVVfeXFMTkdZdDM1X1dvU0hHOFp3X1lwdkNyUWlraHNzY1AwRXpTelRROFdqaDlqLXBZMGRkR0kyZmJHRTZOSDlwMUlHNHNMWjRTV3poV1lEamlCdFFlN3c3aXM3SFpFVnQwYm16Qm1MV2xZdkJIdFRwSHEzVlNFdmExRzFQZjF3dGxlbDNSZXltMmJpRXlfNXVNU0k2cUV4dlUzVmZvQ01laGJZUm5LTHE4a0s5eVFKbWdoZVd4TFV3?oc=5) |
-| Trump says US would be on 'brink of economic catastrophe' unless justices rule his tariffs are legal - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPcFdXc1pnd2k0Y3JNVXNhWTlwc2gxWWNmNVlMRkl2MG9OX0NINGx0ci1jMFJ0VXRSX3pxa2hrT010NnJnb0NVZm9xS1p2bkM5YlA3M2Zqa1BmcXdyczJFQXBRREpldTY1RXdndmlJbVpnejVzeldycDZIVm9kbVFjTVd5QzlvNUZrZm9sQW1nNXdtMlVaTUsyNWZLM2djNWdMYjZ5OTQ1bw?oc=5) |
+| Trump officials ask Supreme Court to quickly allow sweeping tariffs - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQeUxSdzczaHRralVjLU91TXg1bEJfbEhsUHlxRlh4dmM1eWd0enRqMzFxMFFiMU1xckFWR2ZMal9pNjFkdlJlTHJIZEpzc0xiNmtTNWtqMk1ianJGaUF3eEVFNHk2ZWxlY3l3ZmNuaE41eVFfVDBRT3ZzalYyTkJWa1dveGI3UFhFNTloN25YSQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
