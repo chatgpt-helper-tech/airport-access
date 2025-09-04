@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 19:57:11（北京时间）**
+🕒 更新时间：**2025年09月04日 20:00:41（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump asks Supreme Court to reverse tariffs ruling finding them illegal - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPNF9kOFJUM3J4OXA4SnRyRF9LUTJMMUZPN3E3Q2YzSU1NX3ZyX0EyNXJ2dHFRZmJMa0ZfaWdrSVFHTlRkbWlGTElJRzdHV0RkcDBTNXczVWlpM1ppODFJa2gwdE1PTFl1dXplXzdBd09haGRFMl85eHFudU9NVkpBUzJWOXYzQQ?oc=5) |
 | RFK Jr. to face questions about chaos at the CDC - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNOUxjZDM4U0ZaUGY1aWJua0VKTHdWbVROV2NMeS1qRzlyOEZJWlc5UEhIMDN0TEF5RUY0MWZZdjA5Y2xFcmU4b0dnaHhUTWVNVEdEby1XWFNtbjQ4ZHFJMkJVU01fWTdULUhzNVozVm1rYVFMWHVYbmlTV2RwcEI4VGlZWmpqeGx4VFlKb2g2YnJxRldaNWRRbGxLeWFQdFk?oc=5) |
-| Judge Hands Victory to Harvard in Funding Lawsuit, Ruling Trump Administration’s Freeze Unconstitutional - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1UYkplcFZ2dl9VbnI3WmlENFppYjZiN2FvQ3E0djljTVYzWkNJVjNudEl3aFBlVXpmR2ExRXNiWTd2cDhmREpvN09JTHItaWFuVTRheWZ6NXlCakF3ckdtTGlUVXdXNkQ2YnJ4RUh4aElOdFJz?oc=5) |
+| Trump Asks US Supreme Court to Uphold His Global Tariffs - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQby1FcHhkOV82alNDQmtBS0lNUjZDSEhDcmhVWXpGRnoxRy01Zm1oNnRZRTh6Y19uUExuUXYyRjFrTTBYdmxHYkVzRk9ocFdEYTNfTmYydnZIcjc5NktTdXdsY1hGQmNJWlcwTldFM0JkNWhLMUlkcHk4Ymx5N0hMdHdkZTZodW1RYWxhQkxBcmx0b3pobVZncnVTbjc1V1U5UWF3R3VHTjVvNGM?oc=5) |
 | Trump says US strike targeting Venezuelan gang will cause cartels to think twice - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOaVpBNXl4T0tOQ1RyUklGWnRqWTE1eE5vMUw5WDEybHlkSHBrWEVzc0xseDVVbXNfYlBzeEwxbG9jQVNCeTUwQmtyRmpEWnNXWlN1OS11dXVqM2JIcFdLT0RqZ054emszcmx6bzBIVmgzektmZ0Q0ZkZwZGtuTGFqUFV3aW5VUDUxcW1wRnVfRVl3d01xTmtvS3N4eFQ4RGFQdFRpOWg2R3JZVWRhUDV0Zw?oc=5) |
+| Judge Hands Victory to Harvard in Funding Lawsuit, Ruling Trump Administration’s Freeze Unconstitutional - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1UYkplcFZ2dl9VbnI3WmlENFppYjZiN2FvQ3E0djljTVYzWkNJVjNudEl3aFBlVXpmR2ExRXNiWTd2cDhmREpvN09JTHItaWFuVTRheWZ6NXlCakF3ckdtTGlUVXdXNkQ2YnJ4RUh4aElOdFJz?oc=5) |
 | Residents of Chicago’s most violent block don’t want Trump to send the National Guard - WBEZ Chicago | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxPZ1p5andCbnR6NTJlZ1cybVVoUXY3ZXlhRUlZcnl6UlRsWlhfb1VndDgxSU1oX1Fab3B1T1dkcjlrT1N5dlNiRVk3QVB2WXlvZjZ3TUZuZW5HeGNwOEZydmFKOUktTmVDb2l1dFdtTks0VTd1MUhkU0dhSldxMGZuTUtlYl9waHFvWjhDd2o4UjJLWFZiVjJ0N21fMEJsZmJXRjRHZVVUVUFZdVhUME1RaVlOQ3dBbGprb3N6NWJYTTZRQkpaV3c?oc=5) |
 | Russia issues warning as European leaders, Zelenskyy gather in Paris before Trump call - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPeGlwQ0hrUVZEQmlwS0NwVnAycGRLclF0VmVEMzgyOHJyVE96ei1wS1ctTEtsWm9rWC1JQVpoVmFWcXlwTFduenQ1eW1VTlVWcGhxZUZHNVlmeDRzZ2l5Q3pVNk93ejdkQmtJMmVOdlQ4cldCTlF2M1FuenRhWFBLVE40Vjd4ZjJKR2JwSzFFWDd5WWJPcXZPU09fUC1uQld2UzRGUmRCNkMtSW9wVnFxQ3NvbEw0QUlE0gG-AUFVX3lxTE56MjVhQW1QUHBJN096MUdGbFNEOFJJcnRLV2dCdVdSN0lWbVNTT3l5czZqQlFkdDFhRXNrdHRyUWstcDVRQUdBeTRRcXB2MVh0NnJvOHdReVQ0RkhwOVZzcDhVU0ZHeTBaOUljSV9CY0dGSWU1N0hiRGhsSWswaTI4TlhuX0ZLQS00RnFEQ0tUeklQQWNzRzRQcm9xVW80NXpNTXpxMUxoNGx6TkhpVGRVdmt5VnlCRXV3cDIxWUE?oc=5) |
 | DHS opens new immigration detention facility inside Louisiana's Angola prison - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQRVkwVk51V1hTUmdUMGJhNHBTTjBJZW51bXRFVWdqdjMxbDU5OXBLNW9OaVZiYllMaVlBMFlEOEdjUEo4d2pZWHJoN3otOVpDTFlxVEozN3hOVUhqRlFjVkV4M3RmS2RhbkJ6c1Q4RmVRM1JMdjFkUHFfVEN3N0ktTEFSNHRBV05ERlkxZmdESTlOWkFwZkM0WExrSXpKM3lWcWFLb3lVVGp3Nk5xaWN3c0g2ZjNoUEtHZlHSAb8BQVVfeXFMTmJaLTMwTlU1VDA2RFdhMGVrWmtFUi12eE5wNDdlMTdWSlRwZU5YV2c0N204NGJQMFUzNkVJd2E3ZzR0elRGMUhhVHF2QXJScmN6cWIzTGhGTXZyakFMcGR4RVlHVHdZTmpRbjVFVDJmdFJoOW9oUVRiU3VXMXVmTjRsdld2MEZlR1ljbkg1R01iVzRabS1KNzBPR2Mzd0hnQTlvd0N4WFc0N1BFS05GQ3ZqSUNOQ2JUZUtxUy12eGs?oc=5) |
