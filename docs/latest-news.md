@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 11:01:12（北京时间）**
+🕒 更新时间：**2025年09月04日 11:09:13（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | US strike on 'Venezuela drug boat': What do we know, and was it legal? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBJU21BdXRHelhPNlFuWGE3eHFqd3V5SXBlQlJyY0oxSjczOFJsdHEwRWZpNmE3NS00MTg5N2I1d2FLWjA5ZVYyT3gxSlhFS1VOcmhwSjB2NUNnd9IBX0FVX3lxTE5wRGFjcEJpS2dzSlhfWkF4MHc0TUtQcGlrQXhMcUhOeWMyeHl2MHlmU3FYQXUxYkNjM01ZQ2hFcS11X2NBcmVSTzFoRUh6ekpWTXhUajFYaVItMDZiLU1J?oc=5) |
 | Flash-bang grenades and early morning raids: How Trump is planning to target Chicago - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxPSDRWb1Z0OVZXQ3dfVGM4cGVTZVNkMmNub1RpeFFFczNRSkViN0pTWjZVbGlvN1lMSWRsZXFJalUtSjlBdXI5aU5FZVZJOFRHRHdoRXQ4ZHdHLWtTTVMtSjBXVHh0VzJRVHNKcEplREJkZmpnWHl3c053cm81NXBhc3pELVExS0pnZWtub2ItSmRUaklkTGJuNVZHQ05sNFNKWHNSd1BvclcwZzRmOEQySUR1blV5NWFjUXhvZVBROTRiR2dkV2NYd1N2RWM?oc=5) |
 | Mamdani calls reports of White House meddling in NYC mayor's race an 'affront to our democracy' - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOLUtLVjl5dW93OEtTQWVuSE4tQXZvcVhfNVdrV21HUWQ0b09POW9wV2ExandidTFIOEVwXzN2Um4wX2ljUUk5amJ6MkJRb2s5WkV4Q2M0aEZ3cWdreG5LVFRvd244M3JBam1xREtIWnlyRkpkZVYzQThsZUFJZXZoWVdhRTBnS2hnU0daYlZORzc5NUpiZjRnVEt2SEVRVmp4a0JpOWttMNIBrAFBVV95cUxQT2QwQ0dOMHZnM3h5WVBoX1FKUUVoMTNLLTN0eXhnVGZ6UUpOYVM5Y0gtc25IS0c2NTUtUXFXY0c3S3NNNWQ2VHRnN1pFV183UlprUGRwRUd6Wm5KMWd4V2dvbGJZVVVYUGNEUG0wS2JCZmFJV1hNWWs3T1VyVWVDZTlBQ2NyUFBxOTlxZlZGanQ1TER1WVliNEZFMm5jZHRBMWRnYnp6dERBaG9Z?oc=5) |
-| The U.S. is headed toward two very different vaccination realities - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQbWQ5QmNXYk82UjE5V2dSRDBnQnY1Q1pBdm5sV3dyNmR6bmJOYk9jdE5LRDZCNVJjaW1yZFg5OXUwWFA4Z2RHNnJGckpHRUlfTXhCSkxOTlhOQXJaS3VJWjVKd0Fmbi1ZOWEwNXY3OFF3OWVXYmdVbG00T1V5SjRHN2NRUGRMV2fSAVZBVV95cUxQWjZaS0VCSlpRNTM0ZWFPMXFwNHRNanpCYTZKd2UzenJHSG1jU1lha2cyMnJvYjZGOVZDRUJGNmU1OUdlLXd2Um9LUG5sZ3NuWUFLR1g5dw?oc=5) |
+| Washington, Oregon and California governors form alliance in rebuke of Trump administration - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNb2lad1F6ZmhHWFQ2a3JNWGE5azFZSVFhWlg3dWxudERoRDdWdVdVd216TWFxYXd6OHdRTlFveC1SUHZHWXQ5S2V0cEFWcE9xbHJZLVVvWkZTcEFLMzlSXzl3dzBsTGlXeEp1Zkk2d2NOZjJFeFRGaENBLVE0MllRUENVTnRBVTlaeEFNSlg4REgwRkE?oc=5) |
 | Top Democrat says intelligence briefing cancelled after attacks by far-right Laura Loomer - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNQXgtNEJIZ1lxQXJFU2J3VExOa2FLVTR4Q2gwOFI4VjZucXQ0bTRkTG12X2VSN0JoamlHMC1ZaWlqLVZVQU16RldRaDlBRGpLRmtTVzFKbXp2VHRjdkVZcjZDcHRWU3hISTRHa19pRDQwQkFaTkYxQmppWkNMMWpnMDhaZ2xNSkRN?oc=5) |
 | Over 1,000 HHS staffers call on Trump to fire RFK Jr. for "endangering the nation's health" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5DbURMSFBWcmFYWHgwcXozdHpEQmpkZV9namhVakN1MWwxWl9td1d0cmJCcXE4RW9BSDZNLV94TmZLb1JUdGRib1UwZnU5dWtHc0xxRGRoQ0hGbHU4X1ZlWHp0Y2gwUDFGYWdPYVg1a1pyQ0hNLVM40gF8QVVfeXFMTVJLa3RCZzU0UXd6Y3ptamtsT0hIYk5uSDA1LXgwaWF3djg5aUJwUktjVVBIVzg4Z0FGRTRNaXJ4Yk9wSHEyeEFOVFN2d0xnWGYzUFBhTFZpbUE4SDloVGxCWk0zSFNSY0tqUUZYSGdBSEk0dHg2Uk1NRktCMg?oc=5) |
 
