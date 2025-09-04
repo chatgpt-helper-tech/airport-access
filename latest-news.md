@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 20:56:16（北京时间）**
+🕒 更新时间：**2025年09月04日 21:01:48（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump asks Supreme Court to reverse tariffs ruling finding them illegal - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPNF9kOFJUM3J4OXA4SnRyRF9LUTJMMUZPN3E3Q2YzSU1NX3ZyX0EyNXJ2dHFRZmJMa0ZfaWdrSVFHTlRkbWlGTElJRzdHV0RkcDBTNXczVWlpM1ppODFJa2gwdE1PTFl1dXplXzdBd09haGRFMl85eHFudU9NVkpBUzJWOXYzQQ?oc=5) |
-| Trump ordered strike on suspected drug boat to send a message, Rubio says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUF9PQXJVWTF2RWFYR2JhTUlkeUpHdDdfcHo4cHppaUtERjRfZE04SGowdTdfNVdPRVp5ZDBtMEVJLXd1YlZpSlJJUkJWSkk0RW5qTnJ2WndkOEM3ZkJGNTZiSWViYTRCcnVlZk9leUNmQWw2SndKM0JsOWtnY2k3V1gtc25JbnpUT0tvQTkyT2k?oc=5) |
 | Republicans grow impatient with RFK Jr. after CDC firing - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBSUW0yTldqTmZQUzhTdHhWd3RmdmN3M1hFRDhIUjc3TmdpalNFUkd1TlAwUDVoUU9JUzRWNDRIWElSbmJaczlTR0owNUcwWkp2MDVQMlAtR2oybzlzdFpKRjNqcEZXa29wNDhZYjVYdldfSDFHdE9CTHpKWjFuZw?oc=5) |
 | Trump administration unlawfully cut Harvard's funding, US judge rules - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPUE1tcDBtcUwxRlZFU21fLTl4VnBQSWlqYXdmTk54VTJEMEJiUzB0VWV1UE43T0ltZlg3N0RYRGN3R19nTzV5RF9jWk9jNTRCY1BhOFBwX0JOZWFQRWRFTmdLbVJuay1YM0I2MVpEd2tydk82bkV0eVE3Mk0zTHRIemZTYVJXc0x0aEJkWmFpdU5tckNZY0lheDVGRmlHUXFVWFlXUmV4UmhMRG5WVHduUTVB?oc=5) |
+| Trump ordered strike on suspected drug boat to send a message, Rubio says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUF9PQXJVWTF2RWFYR2JhTUlkeUpHdDdfcHo4cHppaUtERjRfZE04SGowdTdfNVdPRVp5ZDBtMEVJLXd1YlZpSlJJUkJWSkk0RW5qTnJ2WndkOEM3ZkJGNTZiSWViYTRCcnVlZk9leUNmQWw2SndKM0JsOWtnY2k3V1gtc25JbnpUT0tvQTkyT2k?oc=5) |
 | Washington, Oregon and California will issue their own vaccine recommendations, separate from CDC - KING5.com | [阅读全文](https://news.google.com/rss/articles/CBMijwJBVV95cUxPQXZCNmdWTk0zU0pfNGplb2tILWE1alVRa3BuOU9TblhvNFdnc1NENFhTV0hSclFiU1FybUJDa3EzZ2VQY0tZcnhiN1Q2N0hLUTN4a3Y1TXJZSnJ5VHliZFlYNF82QnJlcFVBNkdNOGRzZjg2dHcwWE5YOFF5THhTTml2YVdMNVY3bkdZblFOVklWZGs0YmkwcDhEWjUyWHJTRTROaXJIbmlvZ3dka1pxeFoySUJoVzVvb0U5SDlrRDFVNFowRUdWWDZmWEFwbXZYSkZnT2hSUkduY1NCUjBTRTNGR2c5N2k0dGxwMTVRdTF1RjFNMWlaQmwtWnhGWHp0ckR0TUJ0b254a1Utb2JZ?oc=5) |
 | Russia issues warning as European leaders, Zelenskyy gather in Paris before Trump call - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPeGlwQ0hrUVZEQmlwS0NwVnAycGRLclF0VmVEMzgyOHJyVE96ei1wS1ctTEtsWm9rWC1JQVpoVmFWcXlwTFduenQ1eW1VTlVWcGhxZUZHNVlmeDRzZ2l5Q3pVNk93ejdkQmtJMmVOdlQ4cldCTlF2M1FuenRhWFBLVE40Vjd4ZjJKR2JwSzFFWDd5WWJPcXZPU09fUC1uQld2UzRGUmRCNkMtSW9wVnFxQ3NvbEw0QUlE0gG-AUFVX3lxTE56MjVhQW1QUHBJN096MUdGbFNEOFJJcnRLV2dCdVdSN0lWbVNTT3l5czZqQlFkdDFhRXNrdHRyUWstcDVRQUdBeTRRcXB2MVh0NnJvOHdReVQ0RkhwOVZzcDhVU0ZHeTBaOUljSV9CY0dGSWU1N0hiRGhsSWswaTI4TlhuX0ZLQS00RnFEQ0tUeklQQWNzRzRQcm9xVW80NXpNTXpxMUxoNGx6TkhpVGRVdmt5VnlCRXV3cDIxWUE?oc=5) |
 | ICE Opens Immigrant Detention Center in Louisiana’s Angola Prison - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQanhZNlU1SnJXQUFadlNKSXZ2RTdIbHA2ZkNMWllMNE92WDlHNjEwTHdObTh0MU9ZYXZKVnM4LXE3c0pJUzlPNktDQkc2YWQyZmM5Wmo0YXVPck9FOE85eDRsd3JvQ01wTnJhWnhyZGZrUTRoeHhrdlZVVkpQQzBLclg2M1FaWEk?oc=5) |
