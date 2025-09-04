@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 03:48:11（北京时间）**
+🕒 更新时间：**2025年09月05日 03:56:01（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Harvard Judge Blasts Justice Gorsuch’s ‘Unhelpful’ Criticism - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNS1J0LUhGZnBqVGg5R2V3ZFFaTGdmQkZUTW5XeVNkOTRrQWM0ejhXcE1QUlhLNmwzUjBEc1VNeXFDUWpHa0F4dWVCbXlKYmdWc0ppZXFxRjB4Wm80REc0RlJQZHg3TlhtTGdiWS1NZFJtQ0tYUXZDUXlBb0ZDZmJoR1lKUjcxcERuTk5ZZU1KTFA0TVVzMkJnczFERk9jU1NMMVJvMXlnZklYT1RwcHc?oc=5) |
 | Jeffrey Epstein discharge petition will fail, Mike Johnson predicts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOZkUtSGlYU3VvZ1IxTDVTTlhUcXpTdkxiOXRDR3N0T0xVQVdIZFNRMVJCejhuQVZPd3J0S1FnNExWRTdDZm0tdkltVFFOaEJFQ3BVZVNyMDYzSk1CbHFLa2Z1Rjd0blIzZjJkNVI0d1dGWmNvSkFLbmpONTVMOFhwVVcwSlRVb01Sd3llb29uZkpFei1fVmlIUlZfQ1ZTRHBHbGkwb3h1MHctRUN2ZnpR?oc=5) |
 | If Trump’s biggest tariffs get thrown out, companies could get a refund - but not consumers - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNdW5JZXVHaG0zWHJXUFZxLThtczdROEktU2hvNEpTT1FkcTBTQTZIaXMwYmd0c3BFTTRuNHNydFczZmlJZHhMM0F5eWlOUUVhdlBkMFlVNDNCRnlDMnRZMFhSM0xqOHJKTkxVYzhBNDdYd1BQZy11TmNudjlqeVVYRGZSOENqS1g4Z3pBUm9NamZEZUMtTDg2a3E5aw?oc=5) |
-| Man missing after meltwater pushed him into Alaska glacier shaft - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQQm1VWlJ1ZWxXRHMxQjZTc3djbHFxM1ZxV2NhV3M0Xzc3T1hTS1dnZ3Z3Z3c3Mk4zbXh3UWVYWUM2NHdQUU5vOXdOXzlCUlo4Q1liSWdENjIwR1NqRDE1eGxWMGFER3ctTkUwNzJsR1pMLWtOVm5LOEV1S1JOZnVfXzdzSkpaeUI2VUUzYUEwX3ExYWZNLXg1ZWh2VGVBUdIBVkFVX3lxTE41QTNfc1Qyc0lSYVg5dUN6ck1aX0VGUGhfVzJNczdOWE9TZG9HemwzZ1FwbHlqSV8wdlZIeUMyekd5U2ZNcnVPU1NiZmJuLWlTRFRjb2t3?oc=5) |
-| Who is Joseph Ladapo, the Florida health official who opposes vaccine mandates? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9UalY3WFdKYXI5ZUNWLTVOWVhLVkRlZGwyLTdBSXg5Zk0tMF8yOVBBLUJvM1VwRU9FNjRfODNtX2h5Q050Tk9uQ2lZYkJIcUV0RER6YzBIVWFLZ9IBX0FVX3lxTE5DQVpIUmxIX2tEYmluRE9kQmJOaWkwTHF3MUFvbW5CRnVzbFFQY25sRk43RDRKaHBVc1FCWm1OdFdGbTFaSldQV0tnR2hYcmo5RzJIdE5JakJQNm9pVzIw?oc=5) |
 | What’s next after WA joins West Coast alliance to fight ‘destruction’ of CDC - The Seattle Times | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOLV8xZ2J5WkhvSUpQSlFDMjNmOHVidGVPcTVXa2xCR0dvclRtWTlVX2hlWHRfRVNPQUl5UnE1SEpDSjJoM29TNmJXaC16WWR5ZTEzczM5emRISVVCNXpjbnFfWk5md3BsT0VqS25uU1BJSTlRZ0M4Q3AweGl0cV9oRkhXc3YxYThneHVZVG9tcGF5YXl4T1JyY09YUFY5T296eVc5STJxcDlQMnVGUXZJdnQ4d3ZGMDRTVHVF?oc=5) |
+| New York AG appeals reversal of Trump's $500 million fraud penalty - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5uX2pWQkc1bG1VMFZiR0lnMk1xQUJlWTJyZ3FqX2Ixa191Nl9fTXk2LTBxQlVYeU8yMjJUTjFlYkFNQ1FYOXRteEV2OW1Ma1JUc0hXNi1rdFFzRnFNZDgxSDZOaG10clNLbXhMUE1YNnRzeVVIY3FwNXR30gF_QVVfeXFMTUtCQkVHS3BTalA3R0R4VEY2bUc2V2hqR3BLaERxMHVTRWpfR2lRS0ZKMnlaYWZuQ1QzSWxQY0lZdzI5OFY3UHh2Z0tVUFloOHd0dlJOeGJKdVo1Nmp1b19ld3RpMG9NbURxS2tRdjBpbDZsUlRod3U1Q2tqbTJKRQ?oc=5) |
+| Judge orders Trump administration to release billions in foreign aid approved by Congress - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQV0NiOHhKeUttMDNTZXFnM1VmUEdJRm5ILTRpeHd3RGZQMFVaeGRKVTF6ZTZ6T3FJU0VRazg0a1BBaXVfMW8wMzFHcjE4Wlk5NGhLa2VwTTljc2xnZlhocENZR1JsREpvZGttY1FleVpsTkZsWHNJaFdWbFNiT3Jzc3RDemF5Zw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
