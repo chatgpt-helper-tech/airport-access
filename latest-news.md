@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 00:10:00（北京时间）**
+🕒 更新时间：**2025年09月05日 00:17:33（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| RFK Jr. testifies before Senate Finance Committee amid CDC turmoil, vaccine changes - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNeUZvLTZ6MExzWndQcXZTQmFKTlQtUmZOVlRLckR5d21GdHZ1cC1rc2pYclc5bVNERDNySkJITFQzUFJKVm94V3h6cUhvUU1RSlBZOEQwV0lSQlU2UTNOTmJ1M0pZdWloYkJGZG1Bajl4VFcyeEpMbG5qZjF1Z2cxcWhXcXkyS1ltS1I3NDhZTVRyeF9CVzhNSm1UVDYzcmQx0gGmAUFVX3lxTE9Ial8xSnRxMGFSVmtlcUN6T3dDNUctVUN2LWpDLVM0T014WmhVS0tTMlZ4bW1JX2lfYVFvaExmUzhaUlBXYzZTRVZMc3duaUtkVzVKMVoyRnlMRi1jazdKZERUUFJFZ0lTQ085TXVvaVFrTS1KSWFudFVqaDNFU1dyRkZLYjRUMkNmTUQzVDZTVTVfcVVodlYwOUNKdWpKbGswNzd3VFE?oc=5) |
+| Watch as RFK Jr pressed on vaccines and CDC turmoil at Senate hearing - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5ma3ZROGV4MUNGZVNKYUNwcE1qSVZmcGU0U2VsTmxNODZCeFBqYTdzRHJMNUVQMF9xN0dFc2dsNzIwU2NRdHBrSnQxYU1LZ1N0alJiMw?oc=5) |
 | Trump asks US supreme court to overturn trade tariffs ruling - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQbUZ6XzB6ZkJicjhqcC12RGY4RTVKcHhWVEFLN2plSk9xMjFhWFpHWEp3N241MmdqZXpwdHMyaGdvZmpyMFRzRnlzTVgxWUFqOGFnUDlhMkRpMEkzakJvVF9EN3puTlBHVmhQVmJ3a3pnSVhRU01pZTdnTkJTaE50WnhiaDdOVTZCeVlzNHN4TFJ3NHNXSGRncW43ZWpRVDd3ZTlHaEJMWlhVZnBM?oc=5) |
-| What does Trump want in the Caribbean as US deploys warships? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFAtUU5Ga3U5U3NNdVdfUk5YRTBuMlFxZmkyOHVUSHBZbDF0TElxbDNKbjlwMVQ4eDlTLTk0WEZfQWRWSFZOLTZfN09QR1JoM21KUkw0RzZ1MDhhQdIBX0FVX3lxTE8zWmtDNFI4THhYU0hMLVVuZlRqeUplRFNpNlRXbk1fN0VaSUQ4cExIdmd0ZnJxRkZTRWdkNVlxOE5MaWRnOUYwc3NKNWRmUmZHcTk5bzN1Wmx6dTAxYldZ?oc=5) |
+| Jeffrey Epstein discharge petition will fail, Mike Johnson predicts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOZkUtSGlYU3VvZ1IxTDVTTlhUcXpTdkxiOXRDR3N0T0xVQVdIZFNRMVJCejhuQVZPd3J0S1FnNExWRTdDZm0tdkltVFFOaEJFQ3BVZVNyMDYzSk1CbHFLa2Z1Rjd0blIzZjJkNVI0d1dGWmNvSkFLbmpONTVMOFhwVVcwSlRVb01Sd3llb29uZkpFei1fVmlIUlZfQ1ZTRHBHbGkwb3h1MHctRUN2ZnpR?oc=5) |
 | 10 federal judges criticize Supreme Court's handling of Trump cases in rare interviews - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQbDJmT3BTa3BZMkJaaExPRzdLMzZVSGdQVHk1QUk3VDNfQVptTExuelV4Njd5VVJNai1icGNpRlRnSS13OW05NlY4bUpDcU5ncXdzeDJhWU1BOGgxdlBmd3plMDdMcldCVnpVcDRuS3ZRUU5sZVZkLTBETnllb2J4QWI3YUo2S2wtTjdFc3RxQmo3b05aXzQ2eUIyaGhkM2hoak43YXA0YW15NWR00gFWQVVfeXFMUExqR3ExaDVRTmg2UF9ZYnNOY29wbnF6Rk5INEdPdDZZYmI4bmgxVkI0X0RrOWtFSXZZMGIwWTFFd0xPR2VkUmdES0xVaVoyRElRS1V1Qmc?oc=5) |
 | Here’s how Chicago is preparing as possible National Guard deployment looms - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNbEI4bXRVdGQ1ZUNCZy1QNTVPOUl3Q0U3N2lLdXJRaTNoQVlWa3NZR2M5VlQwMGpuNVd0VmtPMEphb19GM3FCVDB4VDVtVDRxZUlJejJSMFJ5NmVXN285MjlYbnJidVVsQ2VnY3JVQjZIdjZ0VlY0bWpWUFE1UXljd3U1eFJxT2s?oc=5) |
 | As national consensus on vaccines unravels, Mass. and other states chart disparate paths - The Boston Globe | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOSlp4QWNJa2dPcTlscEpqMjNLOVFlNDBvS1EyRnA0c3RhcXJxMnpYbXhGRE9xWFBMNWJjd0JJV3RiWlhzdHBmUEtfRUo2elgwS29IMklGVGZTNThtUko5NkN3aVRBYmtEUENtZi1PLXFzMjNwb1FHWTgzemZSSTZpVzB1ZzBIMHhDb1NJbHNPSTRUU3hleTh1bVYxbWtIWW5zd3RQTnoxTQ?oc=5) |
