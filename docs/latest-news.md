@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 15:41:57（北京时间）**
+🕒 更新时间：**2025年09月04日 15:49:23（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | Trump administration files appeal to Supreme Court to keep tariffs in place - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBXaGhIRjRzdmgtOEIxSW9EZ2tUX0VaaEJwaUlGWVl1SUpaVHI3WHNlVXJjOTk5dDIzbGpnWWRzLUNPMzdSUElCQWtvLThfeXhNbjcyeVM0VFFRT2Q4dmtNaDdNZExhdTdSX1lobGhPT01hTWJSZUE?oc=5) |
 | Epstein survivors urge action on Capitol Hill as GOP leadership faces pressure - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQRzNlQTc1bmlBa3drQlc1aEpWYmthMGhyQWFzQU8yZHBTNldQbVVYRFN4T21OTW5acjhpWVVpa1dkVFc2LXZ1WGR2Q2puUVgyaXZ6b0R4S3BHbDNaUzVmWXZQV0kydFRSeW5zbHhWQ25uTEZPT29XSDg3QTdBX05Ud3NUdjNXendtMWc?oc=5) |
 | Trump ordered strike on suspected drug boat to send a message, Rubio says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUF9PQXJVWTF2RWFYR2JhTUlkeUpHdDdfcHo4cHppaUtERjRfZE04SGowdTdfNVdPRVp5ZDBtMEVJLXd1YlZpSlJJUkJWSkk0RW5qTnJ2WndkOEM3ZkJGNTZiSWViYTRCcnVlZk9leUNmQWw2SndKM0JsOWtnY2k3V1gtc25JbnpUT0tvQTkyT2k?oc=5) |
-| Texas lawmakers approve letting private citizens sue abortion pill providers - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOTlVvTGhCWEhmaGhaeVcxd3c3bTVLY3JqeS1KRjdoa2dGaXI0eFNESWxKSHZzZllIM3VTZURjNG51S09PNzZWSjNMZnJDQy1SSUFTUHJnWC1fZXROcVZjbnRKU0V3QzVGSUJSTjZEZEh0a1RiemxZOG9jeHhFUkxVaTUxS0JScTF2RjA4SFdaNVdnY1lGSXRqSVhXRU9ZZWdISE5CZEVyWlUxUWhN?oc=5) |
-| House Republicans approve new panel to ‘uncover all the facts’ of January 6 attack - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQTnNwWkt6a0k2QnJwYmhkdU5kQTZCR3FJOVFZOE5VUzY5Y0JUMWZCSHVHWUJkOF81dnVBRlR6a0NIN2EybGdWNTYzaFEyNTVOUGtINVFJN01BUE1Ra2hWaXpUWTc4TnRrLXhqRl9jOXZRQjcwYVhMVmhMcnc4YWxUeWRMQjJQQXNDcFpRVQ?oc=5) |
+| Old master painting looted by Nazis recovered a week after being spotted in Argentinian property listing - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxOeEpCZmsxODFpMG85blJkSXVRQlVxT0s3VFBiWi03ci14elptVWZoeFNCZWU0MVlmdXlFTDhfdHVtLVR6YlhpYVZmVDUwS0VZVGpsVlY1OVZKREZUMkhNaDJfTFozeDZoTG5lSWNvWFBTLXU1eTlIWUViUnA4LXllMnlWTjVfWHFMRVlISGlKcl9mVVlvbEM4SkdDM1FnRHF5bjBDU0pRMU1FTEhnNjk5cXZBRndFVmVkN3ltaUk2OG5pTDJXcWRIUTBpdG5nUlJkV1YxQW9Ycw?oc=5) |
+| The U.S. is headed toward two very different vaccination realities - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQbWQ5QmNXYk82UjE5V2dSRDBnQnY1Q1pBdm5sV3dyNmR6bmJOYk9jdE5LRDZCNVJjaW1yZFg5OXUwWFA4Z2RHNnJGckpHRUlfTXhCSkxOTlhOQXJaS3VJWjVKd0Fmbi1ZOWEwNXY3OFF3OWVXYmdVbG00T1V5SjRHN2NRUGRMV2fSAVZBVV95cUxQWjZaS0VCSlpRNTM0ZWFPMXFwNHRNanpCYTZKd2UzenJHSG1jU1lha2cyMnJvYjZGOVZDRUJGNmU1OUdlLXd2Um9LUG5sZ3NuWUFLR1g5dw?oc=5) |
 | Florida moves to end all school vaccine mandates, first in nation to do so - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPSFBVdk1la2xpcXhmNFZiMHgxRUhKS09jTzVYSVl6NjRPMWtTXzcwS3pPQVNnT0ZjT1RhckJJejFKc3Y3aW13NDVET2VDaUxCZmQwaUZRdnF5S200UTJkR1hzQjBTbHZCZTJUTUFKX3pLajZmTHAxNWFrMVFmOVBoeW91VWtmR0k?oc=5) |
-| California, Oregon and Washington form health alliance amid federal vaccine tensions - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi5gFBVV95cUxPV1ZLMUo2NEYyY25FWVcxTXZoa21DQVotaUF1TWt3Yy05SVlhMFFObE4wMGdzZnpha2FmdXc1MmhaUWs3QlctaFR2b1B3TFpGdy1NUDVJQmo5NE9ISWo1elBxdlNZTk16d0pmSlF0U2FpRFA0S1RNS2YtdF94SXo0a1RBbEJnaGgtbi1wUXhkRV9wYkhQSUxBbGdaSEh2ZDZaM2UyWlJheHdEcmJHOW5LZEE1SUllcUd6NVhQS2dQaXlkV0cwckI3cGtCSVF3LXd1MWgxbTNVR1RfR3VJdzhjdkZjOFltQQ?oc=5) |
 | Trump administration to open new ICE facility at notorious Louisiana prison - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPSWFodFJOX1pxN2diODI1VmstaENXUWJpZEVYbXltWHpJbUlDTFp3N0swcFlPelk2ckZJNHljZHhZaTdZRDJtejhUU1VYN18xWHI0RS0zaVVSclMzeEZiR2M2RjBTVlBIZXBRdkpEVzZIU1U1d3Z6bzBGSEtDc3g3dkdjT2pfNWc?oc=5) |
 | Top Democrat says intel visit canceled after Laura Loomer attacked him online - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQNExGQzBtd0RXWkUzUS11c25RbldsQUZQQVpMZDBkZFpTUFV5VTBBQ21YSlJYREdmcXFTMWo1eGtXcWtVRE5GZWE0X2VFSlZLNTR1ZjdlMjdlTXd4OEZtZFRhNXhjcHU3VE5HWGdvZ1Z0cVlpRDFnV1JLelBadi0zUFdKRXJjS3FSc3l5Wg?oc=5) |
+| Annunciation parents to Vice President Vance: ‘Move your feet’ - Minnesota Reformer | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPYzNwbWVRWldCWWRJLWY2R1JqeVVjeVhoVjU3V2c4dzFlUDdiRnZpd3N4M1JodzBraS1ERG5uWWplMk9NX3VGN0M2ckJBNDFvc2ZaSUFLUG5fSUJyOFE4WVNVd05sSGVWQTBLNFFhRm53Nm5Wc3psem9jT0pxR0lhdVRaajI1akVIeWE4SlRFSFRuSUI4R3R3VlVuTml1ZDhfREkw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
