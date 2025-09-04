@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 21:56:31（北京时间）**
+🕒 更新时间：**2025年09月04日 22:01:21（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Judge Hands Victory to Harvard in Funding Lawsuit, Ruling Trump Administration’s Freeze Unconstitutional - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1UYkplcFZ2dl9VbnI3WmlENFppYjZiN2FvQ3E0djljTVYzWkNJVjNudEl3aFBlVXpmR2ExRXNiWTd2cDhmREpvN09JTHItaWFuVTRheWZ6NXlCakF3ckdtTGlUVXdXNkQ2YnJ4RUh4aElOdFJz?oc=5) |
 | ICE Opens Immigrant Detention Center in Louisiana’s Angola Prison - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQanhZNlU1SnJXQUFadlNKSXZ2RTdIbHA2ZkNMWllMNE92WDlHNjEwTHdObTh0MU9ZYXZKVnM4LXE3c0pJUzlPNktDQkc2YWQyZmM5Wmo0YXVPck9FOE85eDRsd3JvQ01wTnJhWnhyZGZrUTRoeHhrdlZVVkpQQzBLclg2M1FaWEk?oc=5) |
 | Hurricane Kiko intensifies to Category 4 storm over the Pacific Ocean - PBS | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOT2E5eDQ2YU9lcTVrT2VDcmg1eVdSZ2tIcmh1RllDanBnd2ZQN3E2Y0VrSE9RbFdMdUc4NWVIajJiTWJJblZIeENfUGxST3JTXzk2ek5pSi1FaGRlTjU5cTVBX3pKRjlJZ3Q0RzVhdzJ0bnkyUVpNcFBxSy0wRkVfcTRiLWhhcjlsX1BXX3ZiMWFPZ1Z5SGpGT3pqei1CUV9PV0RYdWRCb9IBrAFBVV95cUxQYWF4OHFFTzlua1ZpdTI3V1hHZ1dBY1BGX1NlWEswWUJ2a1UxLTJLME5fNWJVNXIwTXNwTlp6eHdJRkZIaXFUR05vNWdJUHVreGk2bWo4Z0dlb2JoVnlzSDhsdDdMZDJTc1RHd3ZKUkRVTnNUX3NLYWxtY1Z1Y0ZmUGVfNGRFdW9JSVZhLWJNWEE3QVZrWHNTeF9oX0lZcXBTMGp3ejhLUXlaTk5Q?oc=5) |
-| Lisbon funicular crash death toll climbs to 17 as Elevador da Gloria disaster leaves Portugal reeling - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQeVo3WEFWX3MybXotUk5Dc1ZvdjhTMk5iQ2Y2SVhUMnpFMVJWV3ROMXc3MHJKMEhpc0kyQzd1MlNSdDhpZlBNaUVvWEtMNmVOS19VTGE4b0RkeDFXcnM5TnJJcGJ3Z2RTbVE3b1NZU1dDRmotVE9mWDlGMjNhRjFrcEQ2Ymx6VHlJWVhsR3A1UGtZdUprR1NoVGZ6SdIBoAFBVV95cUxPOU9DNUNUZ2JmYXNPTGZES25Gbk01aHFVdGJyTTJpMUZWRlpYR0s3UUotOG5rd3R1SFhXZkh0ekhrTEdYd2p3ak9memtyR0JpVTlQbFVUaXZYdDFQQnBVdFRVcFVMcGlYTkFwN19uZHh5YzI5aGczYU13djZmakJVS1VOTUhVZjlpMzZscHk4R21ULTBVLVdJT3RRcGpQbnM2?oc=5) |
+| Portugal investigates crash on historic Lisbon funicular that killed 16 - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOazQ0NGtEZW80MDdHay1MUjRNTk5sTjRYY2hCYUltQTQzZmRTRkhsdF9renRrR19vSHB1VVpTbV9BMFBZUDNnbWJxZnhrcU43SzhTZ1BLMG9GT3NobEVRZkFURS1kaHdGcWx1TFBCR0FlSjBwM21Mamg3ck1XOExTN0xHd3ZpWThEOVNrbTYtbTZJa2huZTB3UDVBZDVEQldic1Jic0RHemhCZGZyYlJLSFd1dkNlUkZ1?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
