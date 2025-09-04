@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 05:17:42（北京时间）**
+🕒 更新时间：**2025年09月05日 05:25:10（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Jeffrey Epstein discharge petition will fail , Mike Johnson predicts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOZkUtSGlYU3VvZ1IxTDVTTlhUcXpTdkxiOXRDR3N0T0xVQVdIZFNRMVJCejhuQVZPd3J0S1FnNExWRTdDZm0tdkltVFFOaEJFQ3BVZVNyMDYzSk1CbHFLa2Z1Rjd0blIzZjJkNVI0d1dGWmNvSkFLbmpONTVMOFhwVVcwSlRVb01Sd3llb29uZkpFei1fVmlIUlZfQ1ZTRHBHbGkwb3h1MHctRUN2ZnpR?oc=5) |
 | ‘Someone needs to answer for what happened’: Lisbon reacts to streetcar crash that killed 16 - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNT21SNXQ5bkZ0Zzk0Qm5HMThCeTJNWWZxeDMyNkF4VGVjb19pdEpRLTVQdWJMZGRQSG9Ed0lEaDUwSFpCRnp5cjk5dnZxRVh3ZGNEc1l5YnQ2dnlxYVgxbGlSbVpuM0VTTWNadmlUdk5vd0ZiYkFXd3EtZVpsdlNVaC1PRU1CN2M1aHJtd2lUYXA1ejJJSUhjZmk5Mmd5NDdTdVk3RlVXdGlsQTFWMmdyRkt2T2ZScHNub0d5eU5nZ3B0N3NpSjh5bHp0LThMV1VC?oc=5) |
 | "Calvinball": Judges give rare public rebuke of Supreme Court - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOV1FjSkh0NjFscHZkTjV2X3lTeWp0b3llOEtIS2l2Z09kdE5VTEdHY0k4cEg0MWZyRDgzVENiZkRxOUFFNUIybzRpdURzcENlWG1pYktOX0FNTEtCX3NRUFpOZ1pYeFFsbXM5MUpGR1F0NVMxNTBqRURSVm5XcEJ2emRaNjdPclFIYS1XUnZzTjlKZw?oc=5) |
-| DC lawsuit challenges Trump’s National Guard deployment as a forced ‘military occupation’ - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPcWhRQmxLRjhXQ0VzUTRxTGpPdmRkTnJXUm5LQm9qdzhKcDhDeUZVeW0welg3VkJqZzctTDV4dmFZbDV4Wk1yeHFHM0plcWdsNTlTeGpXcXQwb01velY1SlQyZ0hsSXM0U1BZTXF6MFRpQkVlZkt2cEdweTFubmJZanFMSnladDVPMlUyRFMzbi11UGp1RTVvTTBWalZFbWNhaVk5bVhLbnBZVDZMR3VwaUhnWU1hNU9UWHJz?oc=5) |
+| D.C. Sues Trump Administration Over Deployment of National Guard - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5sR2d0ckpLVndfN1lneEI3WGMtaFVmc0tYa0d5XzNPY2tndDFmeHBROTdKTDN3LUVhSGJSVUlta294anFNLWp6bHlLRVFaZTc1UnQ5M1FaZEZNVzhFMDBpWC0zV0dDWkN6TTBEYjB6Q3NCTXMyaTRXUVhBUQ?oc=5) |
 | Who is Joseph Ladapo, the Florida health official who opposes vaccine mandates? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9UalY3WFdKYXI5ZUNWLTVOWVhLVkRlZGwyLTdBSXg5Zk0tMF8yOVBBLUJvM1VwRU9FNjRfODNtX2h5Q050Tk9uQ2lZYkJIcUV0RER6YzBIVWFLZ9IBX0FVX3lxTE5DQVpIUmxIX2tEYmluRE9kQmJOaWkwTHF3MUFvbW5CRnVzbFFQY25sRk43RDRKaHBVc1FCWm1OdFdGbTFaSldQV0tnR2hYcmo5RzJIdE5JakJQNm9pVzIw?oc=5) |
-| Justice Dept. Accuses California Utility of Negligence in Deadly Eaton Fire - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5aZHhneXRvamx1MW9UV3QyNTdkWXRURTJGSHdkZWo3RlRsVFB4NUxkYmg0MF9qT0xaVHY0czN2VUk4VzhqQ1ZKbmx3TDNwRnB2X1lxQTR0RVV5ZXlkQm5HTlY4clhISGV3TTdSN1RkUHljRjZtYk93b1h3?oc=5) |
-| Judge rules White House ‘pocket rescission’ gambit is illegal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxOenRfQzBmNVJvZlNjODV0UmRzcnBhX0NGV2NWQ2VIcmlFYWtkNnJiZ2oxQi00VnRxR2Y2RDVJTXhYNUpmVWR4Y1h3Y2dsVy1FVzZUQnoxcG96SmlZX2djNFNRYjFkSGlEeGExLUFCQWpUaENmb1g3Nkt5aWdDRUxmTklzMEpHdEQtN2kybXVCbnkwZXZoQUZOQnd2TkNzbFJEMjlETk9hY1g4VFI5QTJiZjlGYXNsT2w1am5OMzdOUFpuS3BG?oc=5) |
+| Trump says US would be on 'brink of economic catastrophe' unless justices rule his tariffs are legal - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPcFdXc1pnd2k0Y3JNVXNhWTlwc2gxWWNmNVlMRkl2MG9OX0NINGx0ci1jMFJ0VXRSX3pxa2hrT010NnJnb0NVZm9xS1p2bkM5YlA3M2Zqa1BmcXdyczJFQXBRREpldTY1RXdndmlJbVpnejVzeldycDZIVm9kbVFjTVd5QzlvNUZrZm9sQW1nNXdtMlVaTUsyNWZLM2djNWdMYjZ5OTQ1bw?oc=5) |
+| Appeals court blocks judge’s order to dismantle ‘Alligator Alcatraz’ - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE85UVZ4THh6bEZuMEtia2FHczh3bTFPbGlUenBPekpITm5mZjVPaUp1ckZrdVFQUWdVNDNKNVdZd0h6S2pFMnd4Zk91UHJNZUlYYWx5TnpVbWVsOGlCOVBndXgtZ3FZRUUwSmlRT1lqQ1pldVhaV2J2cy1ZUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
