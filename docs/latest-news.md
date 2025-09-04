@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 05:49:05（北京时间）**
+🕒 更新时间：**2025年09月05日 05:56:49（北京时间）**
 
 ---
 
@@ -28,10 +28,10 @@
 | Northwestern’s President Will Resign After University Faced Republican Pressure - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBhZlVzVjBpLUxXRWV6RTZwRHBzLWgydWEwX1pBY3VlaVUtVVdUYnFKM0ZtTjh5b3VDR1A1bmE3MHJJb3NqWGhrYW9kMVl2WDV4SVhsd3prbjMzM0QtNjFxUTd3Yk45dWZQZmRRYmZ2QXdLNTUxV3hyeDQ0QjA3dw?oc=5) |
 | Jeffrey Epstein discharge petition will fail, Mike Johnson predicts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOZkUtSGlYU3VvZ1IxTDVTTlhUcXpTdkxiOXRDR3N0T0xVQVdIZFNRMVJCejhuQVZPd3J0S1FnNExWRTdDZm0tdkltVFFOaEJFQ3BVZVNyMDYzSk1CbHFLa2Z1Rjd0blIzZjJkNVI0d1dGWmNvSkFLbmpONTVMOFhwVVcwSlRVb01Sd3llb29uZkpFei1fVmlIUlZfQ1ZTRHBHbGkwb3h1MHctRUN2ZnpR?oc=5) |
 | What to know about the deadly Lisbon funicular crash - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1IMnlPc3lnMHRkQkhZX0dvRV9CNkJnQkxFLVdTdmJKbUlyOVcyUGpydzVDM3g3LVFLTnkyTHJTSnR0Vkx5dG8xY3ctQW5nMVB4eVRzSVpSWHBNSHVWdFZLV20teHVHcXNIZGlMMDNOWktFR2M0WUxIV3cyaUlTaDA?oc=5) |
-| Who is Joseph Ladapo, the Florida health official who opposes vaccine mandates? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9UalY3WFdKYXI5ZUNWLTVOWVhLVkRlZGwyLTdBSXg5Zk0tMF8yOVBBLUJvM1VwRU9FNjRfODNtX2h5Q050Tk9uQ2lZYkJIcUV0RER6YzBIVWFLZ9IBX0FVX3lxTE5DQVpIUmxIX2tEYmluRE9kQmJOaWkwTHF3MUFvbW5CRnVzbFFQY25sRk43RDRKaHBVc1FCWm1OdFdGbTFaSldQV0tnR2hYcmo5RzJIdE5JakJQNm9pVzIw?oc=5) |
-| D.C. Sues Trump Administration Over Deployment of National Guard - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5sR2d0ckpLVndfN1lneEI3WGMtaFVmc0tYa0d5XzNPY2tndDFmeHBROTdKTDN3LUVhSGJSVUlta294anFNLWp6bHlLRVFaZTc1UnQ5M1FaZEZNVzhFMDBpWC0zV0dDWkN6TTBEYjB6Q3NCTXMyaTRXUVhBUQ?oc=5) |
+| DC lawsuit challenges Trump’s National Guard deployment as a forced ‘military occupation’ - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPcWhRQmxLRjhXQ0VzUTRxTGpPdmRkTnJXUm5LQm9qdzhKcDhDeUZVeW0welg3VkJqZzctTDV4dmFZbDV4Wk1yeHFHM0plcWdsNTlTeGpXcXQwb01velY1SlQyZ0hsSXM0U1BZTXF6MFRpQkVlZkt2cEdweTFubmJZanFMSnladDVPMlUyRFMzbi11UGp1RTVvTTBWalZFbWNhaVk5bVhLbnBZVDZMR3VwaUhnWU1hNU9UWHJz?oc=5) |
 | Deadly Eaton fire ignited by Southern California Edison, feds allege in lawsuit - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPTUs0eHJLV1BISUtfUDFhZE9rYmdCbFBaSmx6M1dyRmlILUpLdkc5SDRZZkIyU3MwNWVoeWtac3Boa19JVlYxMDU4b3A4UERWWnpRZTlsRFlzdlk3anhuMmxTamNfMHJwYUtGOGNYQ1h5UE12WVdLRzF6RzZ3b09oX2UwVFZ0c0FhNWMtRXZFSWFrUzhTNmwtdTVGWHRLUHJTNGo3ZjFGbW0wNmNzbkNj?oc=5) |
 | House Republicans launch bill to extend health subsidies past midterms - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPUXdRUmdMaERKZjJ5Z3MyeXlPNkNNTTl2QTBuWnNaMURYamx4enF5Z2h2U3BnZFoxWURveUtaaTFoUG5KOTlMZUZycU9LWWRJZkpvaTFMVC1tRUFicmVpMmNVckxCSC1FWEhfRWdPdGFNNkRXaGdfYXI4ZVM4TUlIdW9xUVp4RklTMzB0MQ?oc=5) |
+| Who is Joseph Ladapo, the Florida health official who opposes vaccine mandates? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9UalY3WFdKYXI5ZUNWLTVOWVhLVkRlZGwyLTdBSXg5Zk0tMF8yOVBBLUJvM1VwRU9FNjRfODNtX2h5Q050Tk9uQ2lZYkJIcUV0RER6YzBIVWFLZ9IBX0FVX3lxTE5DQVpIUmxIX2tEYmluRE9kQmJOaWkwTHF3MUFvbW5CRnVzbFFQY25sRk43RDRKaHBVc1FCWm1OdFdGbTFaSldQV0tnR2hYcmo5RzJIdE5JakJQNm9pVzIw?oc=5) |
 | Trump says US would be on 'brink of economic catastrophe' unless justices rule his tariffs are legal - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPcFdXc1pnd2k0Y3JNVXNhWTlwc2gxWWNmNVlMRkl2MG9OX0NINGx0ci1jMFJ0VXRSX3pxa2hrT010NnJnb0NVZm9xS1p2bkM5YlA3M2Zqa1BmcXdyczJFQXBRREpldTY1RXdndmlJbVpnejVzeldycDZIVm9kbVFjTVd5QzlvNUZrZm9sQW1nNXdtMlVaTUsyNWZLM2djNWdMYjZ5OTQ1bw?oc=5) |
 
 ---
