@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 17:09:36（北京时间）**
+🕒 更新时间：**2025年09月04日 17:16:53（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump asks US Supreme Court to uphold his tariffs after lower court defeat - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5jNmFqNFhtX1RabUJ4WUx0Nm5jQ0h2UF9YQ3BKTjVWT0hCQkxiSHBlLURNd1dhRzNqdXRYamJCUm14RnZ1M3hYejcyRncxS1plVEl5ajAyNm9RQdIBX0FVX3lxTE5qRzllenNaV3Z0YlJDNEJiT2x2clNuVTdRWTlXX1JMdC1YODIzWEVxWWw4UkszT21PUzhKUE1WTEF0QkRycXNiTWgzc0s1UWlUMXpWa3dvWW0tbUdSMllZ?oc=5) |
+| Trump asks US Supreme Court to uphold his tariffs after lower court defeat - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5jNmFqNFhtX1RabUJ4WUx0Nm5jQ0h2UF9YQ3BKTjVWT0hCQkxiSHBlLURNd1dhRzNqdXRYamJCUm14RnZ1M3hYejcyRncxS1plVEl5ajAyNm9RQQ?oc=5) |
 | Judge rules Trump administration cannot withhold funding from Harvard - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPNE5OalJtVzdvMW5vVlRUY05EaFdVMEpfcUlKSXhZR0xPcm9RbkRiaThXVW9PVG5HN1Nuam1mc1I5Q1NMYmUtcGthZkh6WXA0WGU5WjY5ek1pb2lWbFdlVzZEc3BWYmctYVN2b3A5a0ZxVEt1aFVJTldNUDIwU0R6bllTbFFuQzhaRGFsZUJaQzM1Yjg?oc=5) |
 | Trump Administration Says Boat Strike Is Start of Campaign Against Venezuelan Cartels - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQeU8wYmJOMjc4dFFHSXFzdE85TzQ1NFliTTlrZUJISDNwOG8yV3hxUzZ2REhTa2pDRTJUdG5zaHBOcGg1a3VWa1FGbGFVLVFETE1iYUowdTdsNHZfVV9zdHdyLTJjWTk2WXYzSk9oMlEzTDJPNnZDNGNJZzJ2ZjVDbmxqVFdSN1FY?oc=5) |
 | Texas lawmakers approve letting private citizens sue abortion pill providers - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOTlVvTGhCWEhmaGhaeVcxd3c3bTVLY3JqeS1KRjdoa2dGaXI0eFNESWxKSHZzZllIM3VTZURjNG51S09PNzZWSjNMZnJDQy1SSUFTUHJnWC1fZXROcVZjbnRKU0V3QzVGSUJSTjZEZEh0a1RiemxZOG9jeHhFUkxVaTUxS0JScTF2RjA4SFdaNVdnY1lGSXRqSVhXRU9ZZWdISE5CZEVyWlUxUWhN?oc=5) |
