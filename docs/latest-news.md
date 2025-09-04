@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 16:40:30（北京时间）**
+🕒 更新时间：**2025年09月04日 16:48:31（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Texas lawmakers approve letting private citizens sue abortion pill providers - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOTlVvTGhCWEhmaGhaeVcxd3c3bTVLY3JqeS1KRjdoa2dGaXI0eFNESWxKSHZzZllIM3VTZURjNG51S09PNzZWSjNMZnJDQy1SSUFTUHJnWC1fZXROcVZjbnRKU0V3QzVGSUJSTjZEZEh0a1RiemxZOG9jeHhFUkxVaTUxS0JScTF2RjA4SFdaNVdnY1lGSXRqSVhXRU9ZZWdISE5CZEVyWlUxUWhN?oc=5) |
 | Trump calls Epstein files 'irrelevant' as Massie petition picks up steam - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQVVZiT2NwOUdOWnFNX3czMmJyRmZDcWxZT19JbUJpRm5TUng3UDdBMTFOWHBwLXZfT3NDVGlXalBqSllwaWFHMlJNZ0x6Q050SFBHR3dycWVYUktkcVJpRXBINE9lZ1NsQWJveXpIdGI2WWVoRG1hU3NVakVNa2VBVmVTekVJVkJNbExXdWtuWEtoY1lONm5WZzN0MXRXM2VFVWhMX1g3VTBYZ9IBrwFBVV95cUxOUV9OcUtmMVdXd3ZFaEI2dXBpeVFNdjQzOW5CODFkOEsxc3lfNmQ1MzNnQjhVN0dnZEoyMUEzeXBDV2MzVTU0X0VBUUJPLU1rUWVYYnpIMzQybE9jQ2ZLYmpnZnRsMnBERG5qbXJ2Qk44Z01CelZXazM2Rzlrc2I3cFlVOWZhbnF4OU9INXFKelNEQjJUWnREYkJoYkZPWDZSbkJjNmdqZnF5eE1Bajc0?oc=5) |
 | As national consensus on vaccines unravels, Mass. and other states chart disparate paths - The Boston Globe | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOSlp4QWNJa2dPcTlscEpqMjNLOVFlNDBvS1EyRnA0c3RhcXJxMnpYbXhGRE9xWFBMNWJjd0JJV3RiWlhzdHBmUEtfRUo2elgwS29IMklGVGZTNThtUko5NkN3aVRBYmtEUENtZi1PLXFzMjNwb1FHWTgzemZSSTZpVzB1ZzBIMHhDb1NJbHNPSTRUU3hleTh1bVYxbWtIWW5zd3RQTnoxTQ?oc=5) |
-| Florida moves to end all school vaccine mandates, first in nation to do so - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPSFBVdk1la2xpcXhmNFZiMHgxRUhKS09jTzVYSVl6NjRPMWtTXzcwS3pPQVNnT0ZjT1RhckJJejFKc3Y3aW13NDVET2VDaUxCZmQwaUZRdnF5S200UTJkR1hzQjBTbHZCZTJUTUFKX3pLajZmTHAxNWFrMVFmOVBoeW91VWtmR0k?oc=5) |
-| Trump administration to open new ICE facility at notorious Louisiana prison - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPSWFodFJOX1pxN2diODI1VmstaENXUWJpZEVYbXltWHpJbUlDTFp3N0swcFlPelk2ckZJNHljZHhZaTdZRDJtejhUU1VYN18xWHI0RS0zaVVSclMzeEZiR2M2RjBTVlBIZXBRdkpEVzZIU1U1d3Z6bzBGSEtDc3g3dkdjT2pfNWc?oc=5) |
+| Florida plans to become first state to ban all vaccine requirements - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1BTUtQYkV0YnQxc2RlZHNacW1RaFA4OVpPNzJUMGF4dWh4dzI5UEFob2VVMUowMlJjeGdUTE5KaEtYVXUxbGxwYjdDNktIQ1J1XzZxZzNlV0Rxd9IBX0FVX3lxTFA0OGNmWm5Va0pzOW51M1RoalVFOU00VWlaWkRwczg0VFJXUVd0UE53WXJsNlRtSjBlQWstQk5fdU5SUkNPN3VzTVRrU3JiMG5VSkpxbXg0UklCd09TOE80?oc=5) |
+| Louisiana prison chosen for immigration detainees due to its notoriety, says Noem - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxOYjA3N0QySVpSOWRMbWFmOTJja3oweHlqWHRqT2FUYkE1YV8wdDd6RDZwS3dBa3lKcGFpN0VaRjg1VFJVM2s4al9XNXpzMk5pdmJVNHRWSzNOUXFPSUNTUlJGMDJPNnhNN3I0SlVUZ2hoamNTaWhDMnJYZFo3aVRjRDV3VUU2TE5XNDRiX2tKVjNYVWNaa0dkLW1PMEJ2d2xxRmlJM2NTVkVUR05KNHBpVG1TX1pRVnJSUVhIbm9kajhhQ3JSTVE?oc=5) |
 | Top Democrat says intel visit canceled after Laura Loomer attacked him online - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQNExGQzBtd0RXWkUzUS11c25RbldsQUZQQVpMZDBkZFpTUFV5VTBBQ21YSlJYREdmcXFTMWo1eGtXcWtVRE5GZWE0X2VFSlZLNTR1ZjdlMjdlTXd4OEZtZFRhNXhjcHU3VE5HWGdvZ1Z0cVlpRDFnV1JLelBadi0zUFdKRXJjS3FSc3l5Wg?oc=5) |
 | Residents of Chicago’s most violent block don’t want Trump to send the National Guard - WBEZ Chicago | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxPZ1p5andCbnR6NTJlZ1cybVVoUXY3ZXlhRUlZcnl6UlRsWlhfb1VndDgxSU1oX1Fab3B1T1dkcjlrT1N5dlNiRVk3QVB2WXlvZjZ3TUZuZW5HeGNwOEZydmFKOUktTmVDb2l1dFdtTks0VTd1MUhkU0dhSldxMGZuTUtlYl9waHFvWjhDd2o4UjJLWFZiVjJ0N21fMEJsZmJXRjRHZVVUVUFZdVhUME1RaVlOQ3dBbGprb3N6NWJYTTZRQkpaV3c?oc=5) |
 
