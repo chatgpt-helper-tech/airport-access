@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 03:41:33（北京时间）**
+🕒 更新时间：**2025年09月05日 03:48:11（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | PM refuses to say if he will sack Rayner if she broke rules | [阅读全文](https://www.bbc.com/news/articles/ce321d2n45vo?at_medium=RSS&at_campaign=rss) |
 | Epping hotel resident guilty of sex assault of girl | [阅读全文](https://www.bbc.com/news/articles/cde3w04jwjzo?at_medium=RSS&at_campaign=rss) |
 | Boy, 3, pulled from funicular crash that has shocked Portugal | [阅读全文](https://www.bbc.com/news/articles/cgrqj7ydr0ko?at_medium=RSS&at_campaign=rss) |
-| Giorgio Armani, legendary Italian designer, dies aged 91 | [阅读全文](https://www.bbc.com/news/articles/ceq25w34lv4o?at_medium=RSS&at_campaign=rss) |
+| A style guru who revolutionised fashion - Giorgio Armani dies aged 91 | [阅读全文](https://www.bbc.com/news/articles/c90z02n04nwo?at_medium=RSS&at_campaign=rss) |
 | Ex-Tory minister Nadine Dorries defects to Reform UK | [阅读全文](https://www.bbc.com/news/articles/cj9zld87y1go?at_medium=RSS&at_campaign=rss) |
 | Daniel Levy steps down as Tottenham executive chairman after 24 years | [阅读全文](https://www.bbc.com/sport/football/articles/c9qng2rj38do?at_medium=RSS&at_campaign=rss) |
 | Surgeon jailed after amputation of own legs | [阅读全文](https://www.bbc.com/news/articles/c5yvpx20le2o?at_medium=RSS&at_campaign=rss) |
@@ -30,9 +30,9 @@
 | Harvard Judge Blasts Justice Gorsuch’s ‘Unhelpful’ Criticism - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNS1J0LUhGZnBqVGg5R2V3ZFFaTGdmQkZUTW5XeVNkOTRrQWM0ejhXcE1QUlhLNmwzUjBEc1VNeXFDUWpHa0F4dWVCbXlKYmdWc0ppZXFxRjB4Wm80REc0RlJQZHg3TlhtTGdiWS1NZFJtQ0tYUXZDUXlBb0ZDZmJoR1lKUjcxcERuTk5ZZU1KTFA0TVVzMkJnczFERk9jU1NMMVJvMXlnZklYT1RwcHc?oc=5) |
 | Jeffrey Epstein discharge petition will fail, Mike Johnson predicts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOZkUtSGlYU3VvZ1IxTDVTTlhUcXpTdkxiOXRDR3N0T0xVQVdIZFNRMVJCejhuQVZPd3J0S1FnNExWRTdDZm0tdkltVFFOaEJFQ3BVZVNyMDYzSk1CbHFLa2Z1Rjd0blIzZjJkNVI0d1dGWmNvSkFLbmpONTVMOFhwVVcwSlRVb01Sd3llb29uZkpFei1fVmlIUlZfQ1ZTRHBHbGkwb3h1MHctRUN2ZnpR?oc=5) |
 | If Trump’s biggest tariffs get thrown out, companies could get a refund - but not consumers - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNdW5JZXVHaG0zWHJXUFZxLThtczdROEktU2hvNEpTT1FkcTBTQTZIaXMwYmd0c3BFTTRuNHNydFczZmlJZHhMM0F5eWlOUUVhdlBkMFlVNDNCRnlDMnRZMFhSM0xqOHJKTkxVYzhBNDdYd1BQZy11TmNudjlqeVVYRGZSOENqS1g4Z3pBUm9NamZEZUMtTDg2a3E5aw?oc=5) |
-| What’s next after WA joins West Coast alliance to fight ‘destruction’ of CDC - The Seattle Times | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOLV8xZ2J5WkhvSUpQSlFDMjNmOHVidGVPcTVXa2xCR0dvclRtWTlVX2hlWHRfRVNPQUl5UnE1SEpDSjJoM29TNmJXaC16WWR5ZTEzczM5emRISVVCNXpjbnFfWk5md3BsT0VqS25uU1BJSTlRZ0M4Q3AweGl0cV9oRkhXc3YxYThneHVZVG9tcGF5YXl4T1JyY09YUFY5T296eVc5STJxcDlQMnVGUXZJdnQ4d3ZGMDRTVHVF?oc=5) |
-| 2 tourists fall to their deaths in separate incidents near Alaska glacier - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE5sRFEtNXlDMW9CajFjSGc2RU5qMmJRM195aFFlMzRQa2thRUdpRnZFOEd4aVBSb3d1OGhoV3pEMFNiUHhMZ3RtMEQwWjhlXzFGclp6THhxNzUzQWhIMUZ2eFhGQVQyWjBhRkxLZTQ2VGFsc2fSAXhBVV95cUxNNzJ5dUpsT3hVbDRCSHFtNVdzd2xLWGpWdENmcmpGYnFSdlFtRnJ0M1FWVzFRMnktY29NQmEzNkhBWHU0b2w0Q3N3LTd6Zml0Mk9QeHJJbTZqRTNieW5MNXB4RW1iUVNhTmR0WUt4T0FYVndPTUx3a1E?oc=5) |
+| Man missing after meltwater pushed him into Alaska glacier shaft - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQQm1VWlJ1ZWxXRHMxQjZTc3djbHFxM1ZxV2NhV3M0Xzc3T1hTS1dnZ3Z3Z3c3Mk4zbXh3UWVYWUM2NHdQUU5vOXdOXzlCUlo4Q1liSWdENjIwR1NqRDE1eGxWMGFER3ctTkUwNzJsR1pMLWtOVm5LOEV1S1JOZnVfXzdzSkpaeUI2VUUzYUEwX3ExYWZNLXg1ZWh2VGVBUdIBVkFVX3lxTE41QTNfc1Qyc0lSYVg5dUN6ck1aX0VGUGhfVzJNczdOWE9TZG9HemwzZ1FwbHlqSV8wdlZIeUMyekd5U2ZNcnVPU1NiZmJuLWlTRFRjb2t3?oc=5) |
 | Who is Joseph Ladapo, the Florida health official who opposes vaccine mandates? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9UalY3WFdKYXI5ZUNWLTVOWVhLVkRlZGwyLTdBSXg5Zk0tMF8yOVBBLUJvM1VwRU9FNjRfODNtX2h5Q050Tk9uQ2lZYkJIcUV0RER6YzBIVWFLZ9IBX0FVX3lxTE5DQVpIUmxIX2tEYmluRE9kQmJOaWkwTHF3MUFvbW5CRnVzbFFQY25sRk43RDRKaHBVc1FCWm1OdFdGbTFaSldQV0tnR2hYcmo5RzJIdE5JakJQNm9pVzIw?oc=5) |
+| What’s next after WA joins West Coast alliance to fight ‘destruction’ of CDC - The Seattle Times | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOLV8xZ2J5WkhvSUpQSlFDMjNmOHVidGVPcTVXa2xCR0dvclRtWTlVX2hlWHRfRVNPQUl5UnE1SEpDSjJoM29TNmJXaC16WWR5ZTEzczM5emRISVVCNXpjbnFfWk5md3BsT0VqS25uU1BJSTlRZ0M4Q3AweGl0cV9oRkhXc3YxYThneHVZVG9tcGF5YXl4T1JyY09YUFY5T296eVc5STJxcDlQMnVGUXZJdnQ4d3ZGMDRTVHVF?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
