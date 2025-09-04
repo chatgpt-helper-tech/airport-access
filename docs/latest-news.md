@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月04日 12:16:23（北京时间）**
+🕒 更新时间：**2025年09月04日 12:25:26（北京时间）**
 
 ---
 
@@ -25,14 +25,14 @@
 |--------|-------------|
 | Judge Rules Trump Administration Illegally Canceled Harvard Funding - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1TV09FM0pxb3N5RnZ2MjhBVkhjMWV2M1otNHNDcjViWTEwVk5PXzJFa080NW1CbHJ2U3BybUJSdXEyLTFfRlNzYzNzZC1FX2tSVUduaWRhbWNxZzk1T2hDcUpNdldMTjM1QmhEVmtwUVlVSVIzNDVrU2Vldw?oc=5) |
 | Trump calls Epstein files 'irrelevant' as Massie petition picks up steam - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQVVZiT2NwOUdOWnFNX3czMmJyRmZDcWxZT19JbUJpRm5TUng3UDdBMTFOWHBwLXZfT3NDVGlXalBqSllwaWFHMlJNZ0x6Q050SFBHR3dycWVYUktkcVJpRXBINE9lZ1NsQWJveXpIdGI2WWVoRG1hU3NVakVNa2VBVmVTekVJVkJNbExXdWtuWEtoY1lONm5WZzN0MXRXM2VFVWhMX1g3VTBYZ9IBrwFBVV95cUxOUV9OcUtmMVdXd3ZFaEI2dXBpeVFNdjQzOW5CODFkOEsxc3lfNmQ1MzNnQjhVN0dnZEoyMUEzeXBDV2MzVTU0X0VBUUJPLU1rUWVYYnpIMzQybE9jQ2ZLYmpnZnRsMnBERG5qbXJ2Qk44Z01CelZXazM2Rzlrc2I3cFlVOWZhbnF4OU9INXFKelNEQjJUWnREYkJoYkZPWDZSbkJjNmdqZnF5eE1Bajc0?oc=5) |
-| Trump asks Supreme Court to save his emergency tariffs - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE9BaExOOU9rcmRyWkwweTJ6dEhqaFR0UVpzVTQ2RHcyVmN0NG5remtZZlNoSk0yMDR0eng2dHdxX05IS0NpNUxER0RoTjJ5TFotN0tnMllQUzVra1dTWXU5dGVmUHJ1aklibTBGN0dKZHVoS3FRUWc?oc=5) |
+| Trump asks US Supreme Court to uphold his tariffs after lower court defeat - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5jNmFqNFhtX1RabUJ4WUx0Nm5jQ0h2UF9YQ3BKTjVWT0hCQkxiSHBlLURNd1dhRzNqdXRYamJCUm14RnZ1M3hYejcyRncxS1plVEl5ajAyNm9RQdIBX0FVX3lxTE5qRzllenNaV3Z0YlJDNEJiT2x2clNuVTdRWTlXX1JMdC1YODIzWEVxWWw4UkszT21PUzhKUE1WTEF0QkRycXNiTWgzc0s1UWlUMXpWa3dvWW0tbUdSMllZ?oc=5) |
 | Trump ordered strike on suspected drug boat to send a message, Rubio says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUF9PQXJVWTF2RWFYR2JhTUlkeUpHdDdfcHo4cHppaUtERjRfZE04SGowdTdfNVdPRVp5ZDBtMEVJLXd1YlZpSlJJUkJWSkk0RW5qTnJ2WndkOEM3ZkJGNTZiSWViYTRCcnVlZk9leUNmQWw2SndKM0JsOWtnY2k3V1gtc25JbnpUT0tvQTkyT2k?oc=5) |
 | Texas moves to allow anyone to sue abortion pill prescribers, distributors - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNd0tIclNCeWVRZV9yZWVfcnYxczlnczYyWXZNcmJJa0pENGdFbzJVT29GZHJETmZnVlpmYWgxOUljUVdZUVJXWWt0WXNMdmQyOVR6Qk1BcUFpdlNabjZ2aXJEaFlLV25ya3c3R3hPMXllUmVpV2VfLVFaeEtLMjEzMUh1YjBLVFZVZWsxdQ?oc=5) |
 | Putin tells Xi organ transplants could offer immortality - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1rWjRTeThFV2tKNlpqdF8zNUhyRkFmay00dHhZZkR2c2NuVHJJempONTF2bEtDV1ZFRk1wTmR5d1RkaDlqQzdRaUhVTVRvWnN2bzNHbEx2QkVfeEMxZmFPXzliclM5Nno2UDg3d1JBQnY?oc=5) |
 | Florida moves to end all school vaccine mandates, first in nation to do so - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPSFBVdk1la2xpcXhmNFZiMHgxRUhKS09jTzVYSVl6NjRPMWtTXzcwS3pPQVNnT0ZjT1RhckJJejFKc3Y3aW13NDVET2VDaUxCZmQwaUZRdnF5S200UTJkR1hzQjBTbHZCZTJUTUFKX3pLajZmTHAxNWFrMVFmOVBoeW91VWtmR0k?oc=5) |
+| California, Oregon and Washington form health alliance amid federal vaccine tensions - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi5gFBVV95cUxPV1ZLMUo2NEYyY25FWVcxTXZoa21DQVotaUF1TWt3Yy05SVlhMFFObE4wMGdzZnpha2FmdXc1MmhaUWs3QlctaFR2b1B3TFpGdy1NUDVJQmo5NE9ISWo1elBxdlNZTk16d0pmSlF0U2FpRFA0S1RNS2YtdF94SXo0a1RBbEJnaGgtbi1wUXhkRV9wYkhQSUxBbGdaSEh2ZDZaM2UyWlJheHdEcmJHOW5LZEE1SUllcUd6NVhQS2dQaXlkV0cwckI3cGtCSVF3LXd1MWgxbTNVR1RfR3VJdzhjdkZjOFltQQ?oc=5) |
 | Trump administration to open new ICE facility at notorious Louisiana prison - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPSWFodFJOX1pxN2diODI1VmstaENXUWJpZEVYbXltWHpJbUlDTFp3N0swcFlPelk2ckZJNHljZHhZaTdZRDJtejhUU1VYN18xWHI0RS0zaVVSclMzeEZiR2M2RjBTVlBIZXBRdkpEVzZIU1U1d3Z6bzBGSEtDc3g3dkdjT2pfNWc?oc=5) |
 | Top Democrat says intelligence briefing cancelled after attacks by far-right Laura Loomer - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNQXgtNEJIZ1lxQXJFU2J3VExOa2FLVTR4Q2gwOFI4VjZucXQ0bTRkTG12X2VSN0JoamlHMC1ZaWlqLVZVQU16RldRaDlBRGpLRmtTVzFKbXp2VHRjdkVZcjZDcHRWU3hISTRHa19pRDQwQkFaTkYxQmppWkNMMWpnMDhaZ2xNSkRN?oc=5) |
-| California, Oregon and Washington form health alliance amid federal vaccine tensions - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi5gFBVV95cUxPV1ZLMUo2NEYyY25FWVcxTXZoa21DQVotaUF1TWt3Yy05SVlhMFFObE4wMGdzZnpha2FmdXc1MmhaUWs3QlctaFR2b1B3TFpGdy1NUDVJQmo5NE9ISWo1elBxdlNZTk16d0pmSlF0U2FpRFA0S1RNS2YtdF94SXo0a1RBbEJnaGgtbi1wUXhkRV9wYkhQSUxBbGdaSEh2ZDZaM2UyWlJheHdEcmJHOW5LZEE1SUllcUd6NVhQS2dQaXlkV0cwckI3cGtCSVF3LXd1MWgxbTNVR1RfR3VJdzhjdkZjOFltQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
