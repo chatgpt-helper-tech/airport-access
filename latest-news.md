@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 20:24:01（北京时间）**
+🕒 更新时间：**2025年09月05日 20:33:04（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Sam Altman, Tim Cook, and other tech leaders lauded Trump at a White House AI dinner - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOQ0ttbEZHbGt3Z2NYcUNycjNiampKMUJhSTh4cEs1LW8yQTZsZGpXOGdVV05fMU1kMXpnanpPVDdIdXJGaGdiY0djWVk1MXVHdXRSMTl1RmM0LW81NFZqMnFPbUJxdEdpS1N3LTdwR25LZXIyaTBUNHFxZzZNSnVyQzFTU3g2Sk9Rd2w3VEcyRzdELVFlMlo4YmdhbzdWMmpzcFItRg?oc=5) |
 | Trump to rebrand Defense Department as War Department - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOanlVd1Zmcm5HS2FhZWhJckRQaWRlcktORGo5aTJWc2wxN0dDU0ZBckJoYkhiZ2NuTHUzZmpxX1d6ZmhNcTJFN0ZjTEhsVW5jSklBZkJkck5xaF8tZFMyZDdPU2RmWnBnV003NXhBMWdwUGs1ME9aREJHUEIydGpabE42SzJUWTct?oc=5) |
 | Russia issues warning as European leaders, Zelenskyy speak to Trump from Paris - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPeGlwQ0hrUVZEQmlwS0NwVnAycGRLclF0VmVEMzgyOHJyVE96ei1wS1ctTEtsWm9rWC1JQVpoVmFWcXlwTFduenQ1eW1VTlVWcGhxZUZHNVlmeDRzZ2l5Q3pVNk93ejdkQmtJMmVOdlQ4cldCTlF2M1FuenRhWFBLVE40Vjd4ZjJKR2JwSzFFWDd5WWJPcXZPU09fUC1uQld2UzRGUmRCNkMtSW9wVnFxQ3NvbEw0QUlE0gG-AUFVX3lxTE56MjVhQW1QUHBJN096MUdGbFNEOFJJcnRLV2dCdVdSN0lWbVNTT3l5czZqQlFkdDFhRXNrdHRyUWstcDVRQUdBeTRRcXB2MVh0NnJvOHdReVQ0RkhwOVZzcDhVU0ZHeTBaOUljSV9CY0dGSWU1N0hiRGhsSWswaTI4TlhuX0ZLQS00RnFEQ0tUeklQQWNzRzRQcm9xVW80NXpNTXpxMUxoNGx6TkhpVGRVdmt5VnlCRXV3cDIxWUE?oc=5) |
-| Democrats say they were left in the dark on Trump's drug boat strike - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFB5cjByY05XbTJGU0NwbHp6YTJMSE12RldmOGUtRzY0UE1LTDBJQjE2elJVSHYwZXQwZDQtQkowWXBSX0dlR2YxWVc3VEt6VS1nS0tTdFc2NS1CRV94MjY5VDJ5V1BmeTJ0bEtXTGxkQ0RRN3lNdkI4?oc=5) |
+| Questions Focus on Cable in Lisbon Funicular Crash - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNUFhWVmRuampYdVFuWWViaUtkb0l6WG52eXdydlA2RzR0RHk0aFJYNkVWQUd0NU1iLVZqMXRGdk5GMmV6dGFMbWJEVnVOOTgwV1BrV1JEWG9XaUJwbDRic2MwR2pZR0JhVjNpTTNPMUFod05fOUktMUpxZ0FWME5aY1NpLUVMdVJycEZ3Rw?oc=5) |
 | Trump faces criticism over to order to rebrand Pentagon as ‘Department of War’ – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxQYjRIVWtSNTlnVTFKQzZ3WlU0WlRwQnRrMUlDY0ljUDIzZVpaYTNEZWRJU2o0ODJEeW80dng3T2dEWldOTW04OUJ0RHZUWDdfNDFfeTZBV1VTcWk3RDM2enNpNWVsS1VYRUp4U25sQWRoUEp3ZjdobmpRMGxKXzJsQzdEQTBIUkpmNFRJd1ZKb1pJdlN4eDlMOTFTNTFOT1Z5VW1uTnlMelFZN1FrMXpEbEJEdU51eERZZ2VDVU1haHlIdThQcWhndGh4dGM1ZWRvdjVWaTZ6RkFYQQ?oc=5) |
 | Trump’s maneuvering in NYC mayor’s race fuels push for Democrats to unite behind Mamdani - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQNGZUU2ZBMHFlb1Z1cTNIMldQX2xJb0pIQmxUWXR6VElYdmpnWjFoX2NWRmdFU1lXWEdNekxWS3NjLU1Cdl8zSjZRd2JXZVVGZHJRNTVPSGNTZU1RdTUyOXlod1h5WDhfQnAxNmNnQ0kxakNLaFlQckRTb2JqckhxU2dROWJONlUyODFPelRGNWJZM0JYNzZhTWh3UDR5MnRrNnpQb0hrYk91X1lBcXN5X0Q3M3I5cDVva3NoZ3lNRjJFODNsYVlBU1ZYblhzOTF1V0E?oc=5) |
 | Jury convicts Florida matriarch in murder-for-hire killing of her former son-in-law - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNNmtJX0I1ZjhDaTZaZTNpVFcyWXZPdFpnYWx3VXcxajd4UkRFUjlLY2tiUnc1c1otTWhVSGVneVZWaEpkVWFnalVRYWdPeVpXeEFWUjFHM2NOUmEtYnNjMmp3VWdCRU5qVWl0ZGhDNXJCa1UtYnowaDlLSDRKOGZMNlFscUlwU19kZzQ1RGtyUWlwb2lOQjc1N1VGUFpNY1Q5SmNnRGV3akxIZ3M2YnpEdlUxSG_SAVZBVV95cUxNNTZ6Y2U4TUFEbld1VFd3aW9CbWxOMWNuZjdRS1lUSnNLMndZOVZ1SEpVWGtVa2xocHdlMWM4QUpKWWpJcmJReXBqYmVncHFlN2g0VTZfdw?oc=5) |
-| How a Top Secret SEAL Team 6 Mission Into North Korea Fell Apart - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOd0puUVh6M2lZVjdROTE4T3A5cEE4QmxNcjNHSEdFVmYzb3EyQkJTNE9GckNnV05RZVg2cEVQWHRTY3BBRUVXazR0b1ZzX1QybzloOFBhQTJ4UHFhRHgtRGJuWF9fdF9UYXFYbG5OYnFyeXlxcFF5VmpXMGVhbjgxbg?oc=5) |
+| Democrats say they were left in the dark on Trump's drug boat strike - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFB5cjByY05XbTJGU0NwbHp6YTJMSE12RldmOGUtRzY0UE1LTDBJQjE2elJVSHYwZXQwZDQtQkowWXBSX0dlR2YxWVc3VEt6VS1nS0tTdFc2NS1CRV94MjY5VDJ5V1BmeTJ0bEtXTGxkQ0RRN3lNdkI4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
