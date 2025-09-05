@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 11:41:59（北京时间）**
+🕒 更新时间：**2025年09月05日 11:48:44（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trump Will Host Host Tech Billionaires Bill Gates, Tim Cook And Mark Zuckerberg At Rose Garden Event Tonight - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi7gFBVV95cUxOb3l6VnhHM0NQdDhKelJUSjZ6MC0xMzdtaU9WdFZzSFZBWUZJYm5UeDR1cU8yZWdzVFhXbmp2b19qcHExdTJFLWZ0TVc3cDRiLXdkZ1M5QXdkU05jX2RORDA5cUpOTGNuUE5TMGhHRjJ2YnlFcnRxcVlNZWZSS3ZUdGttaVAwRXBZMXZQT1dKejdFRVZCNHhhQmg4d0M5bXpsZTFuYVRXYkNhVktNZEpQUXFiSGtqSGVWZHZ2ZFVyU2dfWWFiS2RReHplMWJ6RXNTSkhrZXFYS0pxMzZrMTVYUzVfd2QxbkgyTHJuMjZ3?oc=5) |
 | GOP support erodes for Epstein files petition - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1XemhCQkdGdHpzaWlybGV0S185MXRMRFNrY1pyT291Rkk0LVFsOUZKRGtJSmZXMW1oZGZpa2owSUFCZjByWVdpaHY3QzZteFJmNkJrTFVCRWdVY3hjOGpuNVMyQ2Z4aEFOVjgwQ0xFZjZIV3RfRXY5VUxKd3g3dw?oc=5) |
 | At Harvard, Judge’s Ruling on Funding Gives Students One More Thing to Ponder - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNUGRPUkFKOE1oVnUxLUpCWnRYdGx5b2YteEVmUXVZNGtvaXp1TnBiSWxFa3N6Yi1NYlJTZkY1RHFoejR4V0lCVEJCOEMxYWZ6clQ3SnAwVElZZUR5U3lQODBURy1WWkpnVEVOTEFmcnpqVnVDVHpFWGNHOU1ISEtFVlZ0eEdJM3A1YmxoMW9n?oc=5) |
+| DC lawsuit challenges Trump’s National Guard deployment as a forced ‘military occupation’ - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPcWhRQmxLRjhXQ0VzUTRxTGpPdmRkTnJXUm5LQm9qdzhKcDhDeUZVeW0welg3VkJqZzctTDV4dmFZbDV4Wk1yeHFHM0plcWdsNTlTeGpXcXQwb01velY1SlQyZ0hsSXM0U1BZTXF6MFRpQkVlZkt2cEdweTFubmJZanFMSnladDVPMlUyRFMzbi11UGp1RTVvTTBWalZFbWNhaVk5bVhLbnBZVDZMR3VwaUhnWU1hNU9UWHJz?oc=5) |
 | Northwestern University President Michael Schill resigns amid funding freeze - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQOURLVEs3My1nTGhVU002djFGX0dXQ090UWI4T0NXOUxOcGNkQk01TGNJMlh2QWU2cldBcURjUTNZRVoxdmp3eEdnaDhLaVJBT2gxSDU4dFFKVGdfc0VsUGJJMzdjc3VmZEZuMmpSX2N0bkMzR3J6enlTNTVtYkRyZlVGdlAycDhKbXlSXw?oc=5) |
 | Missouri voters against redistricting effort, Democratic poll finds - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQX1lGZHVCOUtfZlhDNjUxajVMeWZUZmJzRW1TWWJTUjRmaDhyYnlfLU9zZG9uOHJuVUo0TER1UmVjQmF4NVNfZFhHWVU2MFZTVUtzY2NYYTFpTDhwOURsVVhDeGtrZVJtUkhMdnlSdTRyQXZWa2UzMGdwVFpuLWd5MmdCMldoWXdWTHE2a3U0X1pZM3ZqUFpESVppX05ZQmpQVm81aGhscw?oc=5) |
-| Trump's DOJ sues Boston over immigration enforcement policy - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQaEhPVE1oVXBiSk1KaEVub1FZOWJMaWo3Mk93cm1zb3lTaVdIOEU3NUtGWnhpSDYxdE9oNmtXWndfSEZWRGhDLVJMT3V2ZTIzY1ZTRzUtekpJUXZ0UEV0TG9ibjYzSzJwQ2lFbzRjaUUycFk3X28xaUNZajlGc1hFQVRwbXNhWmdVQm9kdDJvV1BFTHRncW8yZWgxZjIzQ3ZuM2RMY1lwNGRmdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
