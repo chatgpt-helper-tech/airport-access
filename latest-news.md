@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 00:56:54（北京时间）**
+🕒 更新时间：**2025年09月06日 01:00:44（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump to sign order renaming Pentagon 'Department of War': Sources - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQempuLVExSEhpcmJlaXc3MFVpajFFYUhYNE4tczhWWXlpQkJtVnVIbE5PTUgwM2VXd2F0andjV1RiYzl4eWlsdnpCeHpsRUFkaElicWMyRE9DeFBXa01DeVgzSkNPdXNxMmxMQ3VOeXlpT0g1d2JRclpCd2JEMW95Nm1VdV9GSjBsbkFvR2YyaHZMTjJQSXg3NC0xMlRrUGtxdEHSAacBQVVfeXFMT3RDdGpzdnQ0MmxJX3pOeEo2MDNveW1lWHppVi00dzBJVHlpeHUxUjZ5bXFzaVEzOTVHWmtJc2RMOEFUVkpMeU1pSDlzS0J6TWRUMHcyWHBGejRKUXJwWmxxdy1QWUFiQkI4LW5UdUt5T204NTcxV3ZHTlJCSksxSUpUdFhtMDBxc3U0TDQxcTM5SzFpVjFvaUpNVld6b25BSV8yRmpOUjA?oc=5) |
 | Pentagon: 2 Venezuelan planes flew near U.S. Navy ships in "provocative move" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNWFJVclI3ekxiUTZmaTdqSFQzOVVQTlFkaWt2TUpySFYxSnJtSUpvZXdLNDk3UkhBOHR3UVJjN3M0eWdvVmhkX3F5NDNhYm93dUNxM2tjQ0ozNUVpaGZpUjF6RTI0SWhkZFF2M2lEUG9iZTFuLXR5RHhUS012cE0yY3NzT2c2TEE?oc=5) |
 | Navy base to serve as hub for up to 250 federal agents for Chicago immigration crackdown, memo indicates - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQSUdzNUdxMGVRUXk3QzJVQlE0djFybnp2ZHBFTHVheERHdktKTjFrOERLTjJpN2dzLWFuZnpDSWlFaHMweGx6Q3VKMkE3aVZVMjBwdUR1UjJBUzNPVl8zdmgtZkY1NFpYUmRKeFVpUDZhaHZ0S1hleXNWTjVlWlA5UnFJZzdCb0Utb3B2ZXZYNTlRQdIBlwFBVV95cUxQNEl2SFhrREVFall1aW5TVldiNjhEd19nSFFLOTlwaHNja3JYN1BEcy1QeEVJd2Q3RWNoWTJROWhfVFp4NERkSWdZUklkMEdYdHRQQThHdllGUEhHZGhKV3pYcVJXeFBsM3JMUUxRNDdEems0RkpCN0N6Ylk3Tm1DYmc0dnB0NHMzMXJsZWhidWJkQ0xIOF9r?oc=5) |
-| Florida grandma accused of masterminding family murder-for-hire plot found guilty - The Independent | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPSWh6U2pvdWhzMDdpRmRReWF1RVBUM3l3bHg3dWRQcVpmN1IyeHozYnB6MndSYUpLQ0Y0VFUwRHVSenA4eEs5QXZVXzFYRVg4OFh4TEVVUmgyVElhT1RReE1vMWQ0UkZzRU9WUkEtSHpMUWpWSFBVN0hFOXJ0VkRZZGJhVG5kLXdkdS1iNXEyaGNiRDRudEVLSmhvQlQzV1hITjh2WndZNDVKQmxLTzRndg?oc=5) |
-| Trump backs RFK Jr. following tense Senate hearing - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQQ0dNank5S3M0UjkzSzctV1o4dGJOU2huLXRKMFkxVUdxZ2xIRDF6YTFmYjNKaUFqbmZNalBJX3pDQy1TVHQtWDZ3bDR3ZUo1c0lYdnR5UjJFMmtSRzNZdTRhQU9nSUx5OFJqVEVuejRyMTN3VTRPckZsMDZXNGNrT1cyUEJvT3gwQU5kS1BR?oc=5) |
+| Donna Adelson Convicted in Murder of Dan Markel, a Florida Law Professor - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPSzBzWHFSdWRpM1ZQWVRzdGpqd1NpNVVuVnZmYTNtRmk1MGJiNUtqWlVRQklBRlVpcnROb00wajMzRXB0OVROR1RrY091TW8zTnI1V21uVGVIVndhQVlWeTFrLXRwZzZFa2M4WGlYeWR2eU03bV9FQnFQdDBsNFR1RlN3?oc=5) |
 | PBS Undergoes Round Of Job Cuts Following Loss Of Federal Funding - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPNjZlNG95TWExSU1sckgyNUhPY2ctV3c1RjYzTmdlSWJVbVJuTW5CTnpBN3k2RzRxY0VCZEJtZVNNU1cxNDEwel9qdFlLenE4Rm4yYU9PSjd6T21vMzgwb1pxY0dyRkU0bTlRR0F0UjA3WWJpZldPWWt4Y3pRLU84bw?oc=5) |
 | Republicans move quickly to support Ashley Hinson’s Senate bid - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOQ2c4LW5Nei1iaHBJWGw1ZnNLTXMzell4VjAxWmNwTDY1ZTMyeVZjdllQdXN3NzBYbWkwNldzWGVUWDUtNjhYbXZVb0hJMF9DZzlROG8ydDJwaERRQm5tVTZyT3ZPRWZiSG1sVzBicG9LeHJhNXpqVDZPcms5N2JFMkRR?oc=5) |
+| RFK Jr.’s alarming Senate hearing, briefly explained - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOQXRYeHZOT1oxcTRzaUk0TkE2S1JKWWZ3SDE0TFY2bVQ2Y09OWFRTTTBJbVY5TnZralRkckMwZXhiY1NRRjB2Sl9WcEpwNV9LREptQkpCQU5rcDR6cGlfYTljRW1xVldEeXRqUnYxVGlZSGp2bkM2N0R4TTdvcUVVeUN0Yk9FVWRuR0h5UlNmUjhTVmhHUzZBZGZiX2hHSENrUDhVbENR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
