@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 18:49:55（北京时间）**
+🕒 更新时间：**2025年09月05日 18:56:57（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | South Korean nationals detained in ICE raid on Hyundai facility in Georgia - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOd3BNWVlyRDdPRERQRGR0X2VqNEtMUTVqWElXNnpqNDBvVkdZX1JFOTlHWnV2T3I3R2dlQzdFa05xNGxaZzJwakRYanhvb3M1eUZfcnpXRjlEcFo2OGNKbzJRWkszMmNnQU1wcnhfVGxZTWZwWjF0NVVIMVJKV0VxVHBmempjOVF0QlFSb0dabEY3a1IyaDhN0gFWQVVfeXFMTmRqNTl0WFdQM2ZHOHhMaDBQcFZmMVlMY3dFTGtOXzVmUTdOejgtdm9udmNJLTRBeld5T0tZSUc5X1RQTm1kRmN0Z2E2WFFacm1KYzE4Znc?oc=5) |
 | Trump news at a glance: RFK Jr made ‘false’ claims in Senate testimony, says fired CDC director - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQSXNYakRVMmJEai0yWldwbzAzcVZyeUJuTGVTaEdJdVhlZGZFVVRabmNoSEpZRmdfUkxrUWF6MHZyYnJZdXBpcUgtc2RWazdMMkRvbmtNNjhRbmVYU2xrc3BMVFA4dlBzZWtCU05UOHEzejZHclFoNklNTy0ybDRJMlprYndRYmRKd2Z5QXpjUzRvd20zc01qemNn?oc=5) |
 | Trump’s maneuvering in NYC mayor’s race fuels push for Democrats to unite behind Mamdani - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQNGZUU2ZBMHFlb1Z1cTNIMldQX2xJb0pIQmxUWXR6VElYdmpnWjFoX2NWRmdFU1lXWEdNekxWS3NjLU1Cdl8zSjZRd2JXZVVGZHJRNTVPSGNTZU1RdTUyOXlod1h5WDhfQnAxNmNnQ0kxakNLaFlQckRTb2JqckhxU2dROWJONlUyODFPelRGNWJZM0JYNzZhTWh3UDR5MnRrNnpQb0hrYk91X1lBcXN5X0Q3M3I5cDVva3NoZ3lNRjJFODNsYVlBU1ZYblhzOTF1V0E?oc=5) |
-| Northwestern University President Michael Schill resigns amid funding freeze - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQOURLVEs3My1nTGhVU002djFGX0dXQ090UWI4T0NXOUxOcGNkQk01TGNJMlh2QWU2cldBcURjUTNZRVoxdmp3eEdnaDhLaVJBT2gxSDU4dFFKVGdfc0VsUGJJMzdjc3VmZEZuMmpSX2N0bkMzR3J6enlTNTVtYkRyZlVGdlAycDhKbXlSXw?oc=5) |
 | Missouri Republicans begin redistricting to erase one Democratic seat in US House - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9VdWpScl9xZnUzVHUydTBDaWZFSnF4Tkd2YUJzR09ORklIaEM5eGc1TG5pYmRJaHY5Sm9Cd2RBU2RTR0JwSVNNVXc3ZnV2ckpvRkFxVlFCbXdNZEdQRzY2M1V4SXNLNzJuUG9KSG9HZS1uZkVWb2h2cXdUZkdCRUk?oc=5) |
-| DOJ mulling rule that could restrict transgender individuals from owning guns: Sources - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPUnRMVXRvVmpmOTFNaExfVlNkVThUQTRuTk5vaUZLOWtYYm5GRHNVWUlVanV2Sm8wYW4wd25XRUxKYWpMR1BVcWgxRlBSYkh3ZGg4ZUYyaFVJeV9lTW9iX19fTHU5R1ByQXMzdF9jV0Z5SUNtMjNHUlp4eDJuY09Yb1BET3RGeXVEVGdud1lDZGsxYldNUHRXbklmcmNudFJ1ODBDLVVWYUx6UdIBrwFBVV95cUxQVDlCSzNiUHhIekFvRkJnM2Qyalp4cDZveDBfOHdPdHRaSnRnYnlqWjZ2eWs5Q2JyeGxjbFVYWnBaLVJvbkNSeGNjTEc2aC1ZcFlkOFNEVFRYanlFbVphVnhTVU9yejBmRGlGbjRnVmNlOTMzVHpiR0RXcGxBcUYwdnBUdkhaRTBSQmk5MmtvZ1E0R3dwQms3R0Z3dVFDZVNMcGFQQWptWWpLTERWbzFR?oc=5) |
+| Justice Dept. Accuses California Utility of Starting Deadly Eaton Fire - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5aZHhneXRvamx1MW9UV3QyNTdkWXRURTJGSHdkZWo3RlRsVFB4NUxkYmg0MF9qT0xaVHY0czN2VUk4VzhqQ1ZKbmx3TDNwRnB2X1lxQTR0RVV5ZXlkQm5HTlY4clhISGV3TTdSN1RkUHljRjZtYk93b1h3?oc=5) |
+| A deadly strike marks a moment in Rubio’s long desire to confront Venezuela - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQR1dtYkM3TDJ3NmVNbWR4aElhQTc1cnlnZFpXNUJVZGc1bGVnZEZwaDN1cVg3S3NKOTNpNWM2WlR1R2VseW5GMmJONU1mUG9sR3JlWEh6bHFRUE0wVldBc3hRQWF1MUFuRW1kZkM3eHBTY01JbFgwNjJDek5kZUhCT3ByZFZSdS1BcG5COWdwM0hCU1VyTWVkdmh6Zw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
