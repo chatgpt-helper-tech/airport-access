@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 13:32:28（北京时间）**
+🕒 更新时间：**2025年09月05日 13:41:28（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | A style guru who revolutionised fashion - Giorgio Armani dies aged 91 | [阅读全文](https://www.bbc.com/news/articles/c90z02n04nwo?at_medium=RSS&at_campaign=rss) |
 | US prepared to 'blow up' foreign crime groups if needed, US secretary of state says | [阅读全文](https://www.bbc.com/news/articles/cx23nzwjnwwo?at_medium=RSS&at_campaign=rss) |
 | Boy, 3, pulled from funicular crash that has shocked Portugal | [阅读全文](https://www.bbc.com/news/articles/cgrqj7ydr0ko?at_medium=RSS&at_campaign=rss) |
-| Lawyer of British teenager held in Georgia jail criticises British embassy | [阅读全文](https://www.bbc.com/news/articles/cvg43xxerlvo?at_medium=RSS&at_campaign=rss) |
+| Moscow rejects Western security guarantees for Ukraine | [阅读全文](https://www.bbc.com/news/articles/czxwl15w2qko?at_medium=RSS&at_campaign=rss) |
 | Third quake strikes Afghanistan as deaths rise | [阅读全文](https://www.bbc.com/news/articles/cly1wy7v9yyo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
