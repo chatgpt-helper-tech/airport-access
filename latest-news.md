@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 05:32:26（北京时间）**
+🕒 更新时间：**2025年09月06日 05:40:15（北京时间）**
 
 ---
 
@@ -27,8 +27,8 @@
 | Trump signs executive order rebranding Pentagon as ‘Department of War’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQVmFJY1hzNVJkdzFob0pWbDR2LXc2LVdJMS1IX0xKSFRjcTNZTTd5MTJ6aWJRcmtkZjB1SkwzczhQbWhiSTNMU0JlT2dNb2dnN0RaVXhjSGtBd1kxSE1qUnRIcU95QUQ2TjZ2c2JlNlFLTWRKXzQ5NWV5X19ha25zMF84MnZjV2ZqbW56T1J6eUl2NjQydlI3bEtiYVYtRlM1b293?oc=5) |
 | Chicago gears up as Trump troop deployment looms: ‘We aren’t helpless’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOMWlJVzJIVE5oM0tIYTc0Y0Q4b2w3OUk1SDV2NWF3RmdpTmtzN0ZaQjAtaFJVTXh1enJIay1pSlZFZnQtQXVNQXpUOHZvYkJZdkRPRVo1NktFaEFlTjg5NU9ka3IyUzhWV0hWcDVwMV9sMDZYYlU2OWZCZUh1UnYxSDl2bjhFVVdVSWFRTmY4VW5sU1hvTEFB?oc=5) |
 | Putin threatens any troops sent to Ukraine as Europe readies postwar force - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQc1hnMHk3SlpPd1dnWkd1QVoxT1MyU1FLZUdhYTM4ajh3MnNPOUlhWDFOZmwwUS03MlMwcDdIS1o2TE5neE8xa2d1d0d1RXRtTEQ3b04tMzVQM2E3TDNtcHMzQUFlNFI3RktVSXN0NWthX2U3dEFNUkloZEg4eGdJc1EwcVF5U1hTSjFndTN1OVQxd2hrYURYLUdKbU04Zw?oc=5) |
+| Trump decries Epstein "hoax" despite Republicans demanding transparency - Axios | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE0yWG4zWGZ6MndTMWlZYzZveExCVWVLdDBBUVllNnoyUk96a2l1NlNhbjYxSy1JUnB3a2Vvc3dUczdnZ0c3YkxHdElwaVdsUmhJS0h4ZlpZSHBkcEtKeTF1QjU3RjR3VEQxYlFaODBoZngwMVk?oc=5) |
 | New York Times: Unsuccessful 2019 Navy SEAL mission left unarmed North Koreans dead - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE84cjdmY0d0UGxqalhuTFo4elBOSDFDSGpORlVqdWNIS28zRUcwblp4RVIxY1pDaHlsU2I1SFV1S2hiWHZMNzRILVNkTXp6REZTREdqLWl4X2xjV0pnS2dETUxOTVBpLTdMQlo5VmxsT3lZRF93aE1Pc3VlelljUQ?oc=5) |
-| 2 teens arrested, 3rd suspect at large in DC murder of congressional intern - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxORElDNXdPV1RZdXVseG9JeU5hdDdGQl9ENXVLQXpNaHNjdU9JSFJ4TmpwS0Y3TVV3bFJYSTBFcmlfRkdOTWc2N0RlTUh5eXBRQ05XdlRvZTd1VXcwNlphSGtuT2ZNSHlPQ2RJM0lieHh2M2h4Mm9rbk4xeUdEcDl3TWplZUNnTzBiWDY5eExOQWh0OTDSAZgBQVVfeXFMT3FsSDJMcDNZRXhPbTJRMGlLVWt3ZGFCQTFTb0VKdjl5eXJRMmo0c0dYaGV5TzdHY3ltZF9Sd0lPNTJwZGF1YS0zeUpqODE0dFF4Vy0yRnV6MTZiaWphM0I1d3B2b2JUNlJnMy0yUnJKWlktd0trdzRmX3NDOGw4VGNXYlJ1SjlkMmJNSkRxNTN4eUNXR2dLR24?oc=5) |
 | Judge blocks Trump administration’s ending of legal protections for 1.1 million Venezuelans and Haitians - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBLMnpaWk1tYW5wcDZzQ18zSkNhSzV4YmEteDZEV2VyOTlxQ0thSlAtNmxEeEtvMkp3eG9SbEthdV9ITmJ1OENTU2N5OWdRV3A1WTU3RGM5MC02U3NCWm5ROFJwTWFqWHppTEZNR0REemE0TmMyQTFtbQ?oc=5) |
 | Donna Adelson Convicted in Murder of Dan Markel, a Florida Law Professor - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPSzBzWHFSdWRpM1ZQWVRzdGpqd1NpNVVuVnZmYTNtRmk1MGJiNUtqWlVRQklBRlVpcnROb00wajMzRXB0OVROR1RrY091TW8zTnI1V21uVGVIVndhQVlWeTFrLXRwZzZFa2M4WGlYeWR2eU03bV9FQnFQdDBsNFR1RlN3?oc=5) |
 | State Rep. James Talarico to jump in Texas Senate race - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPXzdMUnFBLW5sb21ndnVkYkNPWW9yZ0w1bDkwdWJabG84YzhzUkoxTzVTSG5TcU9xNVlGX3V6NVJoWElHeDdsWE9Odk50MjJ0OGE4Mmd1Y3hMOVBGUW4xOWt1cmI5Uk9FVzhtWWdueHcyeTNrWWk0dVUzQzlwdmNZTHlKTE9yT3M?oc=5) |
