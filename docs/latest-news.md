@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 05:57:16（北京时间）**
+🕒 更新时间：**2025年09月06日 06:01:15（北京时间）**
 
 ---
 
@@ -8,6 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Starmer carries out major reshuffle after Rayner resignation | [阅读全文](https://www.bbc.com/news/articles/cgmzgjywr8wo?at_medium=RSS&at_campaign=rss) |
 | Chris Mason: Faced with an almighty mess PM opts for big shake-up | [阅读全文](https://www.bbc.com/news/articles/cn4lz331gxdo?at_medium=RSS&at_campaign=rss) |
 | 'I missed Lisbon funicular commute that killed my friend' | [阅读全文](https://www.bbc.com/news/articles/c98eyp69018o?at_medium=RSS&at_campaign=rss) |
 | Three British nationals among 16 killed in Lisbon crash | [阅读全文](https://www.bbc.com/news/articles/c62lmed42p1o?at_medium=RSS&at_campaign=rss) |
@@ -17,7 +18,6 @@
 | Israel destroys dozens of buildings in Gaza City as new offensive intensifies | [阅读全文](https://www.bbc.com/news/articles/czx0d71gryzo?at_medium=RSS&at_campaign=rss) |
 | Putin rejects Western security in Ukraine, warning troops would be target | [阅读全文](https://www.bbc.com/news/articles/czxwl15w2qko?at_medium=RSS&at_campaign=rss) |
 | The music-loving royal who became a teacher - Duchess of Kent dies at 92 | [阅读全文](https://www.bbc.com/news/articles/c3gjyl7xvymo?at_medium=RSS&at_campaign=rss) |
-| Angela Rayner resigns after underpaying tax on Hove flat | [阅读全文](https://www.bbc.com/news/articles/c80gr5emk43o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
