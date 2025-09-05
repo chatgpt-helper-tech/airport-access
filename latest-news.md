@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 19:33:31（北京时间）**
+🕒 更新时间：**2025年09月05日 19:40:02（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Trump to rebrand Defense Department as War Department - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOanlVd1Zmcm5HS2FhZWhJckRQaWRlcktORGo5aTJWc2wxN0dDU0ZBckJoYkhiZ2NuTHUzZmpxX1d6ZmhNcTJFN0ZjTEhsVW5jSklBZkJkck5xaF8tZFMyZDdPU2RmWnBnV003NXhBMWdwUGs1ME9aREJHUEIydGpabE42SzJUWTct?oc=5) |
 | 450 detained in raid by ICE, other agencies at huge Hyundai site in Georgia, officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPdVlTNUxnZTlpOE0yQVRPdjZyQ244MTk0QURVMDAyN1BuYmJiSVhuQjF3S09uY2hLc2h5UkExbmt5aUlmZWctV3VKZWpuWGdLWERiWXBCM2VNR2gyUlBfdTV0S082T3ZlM05TTVNlV2p3UHI3ZU01YkRaUjg1YnlUUVVFUUY3bWdPWk1UUHY0N2x5WGlMWDJOOWg0QmfSAaIBQVVfeXFMUG94TWhCaF9Xc19YbVNmZFJUdS1GelBaVkFBLVBFY1I3cmptWVZ1czJlTG5QY3dOMzZoLTVoRXVUSXdJOWxiZnBMZGpvUzlqQU9ucnRtV3J1RGVpREFrMVZrT0d1aGRKbGhOeHN1bUxxOHFoOEpVZlY1OTVZQXJWb3VvTlpBazhMVHVqWnA0YkIzRVYzSlM0U3QzNmJlTVdSS1pR?oc=5) |
 | 2 Venezuelan military aircraft flew near US Navy vessel in 'highly provocative move,' Pentagon says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQYlJzSDN4emNKb3MwM05MZXJHNEJNYmxxeXVHLV9VOHhoeGhkVDhVNjhnVlJpakp5bTQ1bkxYeU02NmdTdU5hLTdicWIyUTdFLVREXzJUVDJ2ZU55YURleG1rc1ZueU40NU5sQXlGb2lLNDNvd0tPM2E3T0xqTElPUzY5cW9tSnlDeDVJS2d1N3FWNHNtMW5WVlk4R0Jjcmp2U0pkcV9IWG9kQdIBrwFBVV95cUxQWU5BYXNzeXBQN0hRQTF0MzRVLTM3YjNqUXZmajBGb05FM1NjazktX3hkT3hCbVVHNGpqeUhRN0ZIdkNid3MxNkpfNl9wLVJ3RE1NY1N2LWtlWDZVck9fWmRpdFhES0tGNnZSWV9IS0VRekUwZUxsX0hMUHp3Wlh4QzVITmd4VTdtd3pJbTdGV0VXdzJ6b1NXNG9iLXNoNWpzXzdYV1lQbEdkV0NjUUQw?oc=5) |
-| A deadly strike marks a moment in Rubio’s long desire to confront Venezuela - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQR1dtYkM3TDJ3NmVNbWR4aElhQTc1cnlnZFpXNUJVZGc1bGVnZEZwaDN1cVg3S3NKOTNpNWM2WlR1R2VseW5GMmJONU1mUG9sR3JlWEh6bHFRUE0wVldBc3hRQWF1MUFuRW1kZkM3eHBTY01JbFgwNjJDek5kZUhCT3ByZFZSdS1BcG5COWdwM0hCU1VyTWVkdmh6Zw?oc=5) |
+| GOP support erodes for Epstein files petition - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1XemhCQkdGdHpzaWlybGV0S185MXRMRFNrY1pyT291Rkk0LVFsOUZKRGtJSmZXMW1oZGZpa2owSUFCZjByWVdpaHY3QzZteFJmNkJrTFVCRWdVY3hjOGpuNVMyQ2Z4aEFOVjgwQ0xFZjZIV3RfRXY5VUxKd3g3dw?oc=5) |
 | Trump’s maneuvering in NYC mayor’s race fuels push for Democrats to unite behind Mamdani - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQNGZUU2ZBMHFlb1Z1cTNIMldQX2xJb0pIQmxUWXR6VElYdmpnWjFoX2NWRmdFU1lXWEdNekxWS3NjLU1Cdl8zSjZRd2JXZVVGZHJRNTVPSGNTZU1RdTUyOXlod1h5WDhfQnAxNmNnQ0kxakNLaFlQckRTb2JqckhxU2dROWJONlUyODFPelRGNWJZM0JYNzZhTWh3UDR5MnRrNnpQb0hrYk91X1lBcXN5X0Q3M3I5cDVva3NoZ3lNRjJFODNsYVlBU1ZYblhzOTF1V0E?oc=5) |
 | Stephen Colbert Sounds the Alarm on ‘Death by Florida’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOMVcxR09jS19QMnVIWkRuc2FBTDExVEhBaXB4cXJGMzJlMTNvMFZEWXFLamdyNzhYMVVtZHZ6WU1CVlhRWTl1bmtOVEc2b2JGZWZCTndRek5KNkNsYVlaeWU0cWtySWRXODNpV0NoM21EUUZ2YXBIbDFZOWVnSXZldjNrM0FfYi10cmwzTjRaZlNWUQ?oc=5) |
+| A deadly strike marks a moment in Rubio’s long desire to confront Venezuela - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQR1dtYkM3TDJ3NmVNbWR4aElhQTc1cnlnZFpXNUJVZGc1bGVnZEZwaDN1cVg3S3NKOTNpNWM2WlR1R2VseW5GMmJONU1mUG9sR3JlWEh6bHFRUE0wVldBc3hRQWF1MUFuRW1kZkM3eHBTY01JbFgwNjJDek5kZUhCT3ByZFZSdS1BcG5COWdwM0hCU1VyTWVkdmh6Zw?oc=5) |
 | Jewish judge overturns Harvard funding freeze, saying antisemitism allegations were a 'smokescreen' - The Forward | [阅读全文](https://news.google.com/rss/articles/CBMi2AFBVV95cUxOZzRyOXpzXzN5S2M4N01KNmVmT3ZJdWFuRE4tNkVlZklYNXlXcmNXcUtLLUtWM3AzVnBuOXBhUGJyRy1tWFFwZzVtOXA2SEI1Ymp4RnhUdWxQVmpyZGM4RmFlM2N3ZGVSRXhqRzZMSkdZY3ZlTHBNR3h5M0F0M2Joa3RXSDhmOFNjUWdlaTRlbEp6RzJ2eUkwVzNrVlJnUmRIalRXUVZaQnlucDY4TGlTMjJ1Zk40QVM4Njh0dmZabWlyTHJuaUFvNnlEbDc4QjQ4YV9SNmRNRTY?oc=5) |
-| Deadly Eaton fire ignited by Southern California Edison, feds allege in lawsuit - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPTUs0eHJLV1BISUtfUDFhZE9rYmdCbFBaSmx6M1dyRmlILUpLdkc5SDRZZkIyU3MwNWVoeWtac3Boa19JVlYxMDU4b3A4UERWWnpRZTlsRFlzdlk3anhuMmxTamNfMHJwYUtGOGNYQ1h5UE12WVdLRzF6RzZ3b09oX2UwVFZ0c0FhNWMtRXZFSWFrUzhTNmwtdTVGWHRLUHJTNGo3ZjFGbW0wNmNzbkNj?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
