@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 07:00:06（北京时间）**
+🕒 更新时间：**2025年09月06日 07:08:30（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | South Koreans Are Swept Up in Immigration Raid at Hyundai Plant in Georgia - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQb0xPQ2g1Y1c5ODRWOWNWR2NrVEVycUp3OEhMMzU5STBBRWpDOU4wSUVuS0pUWW85X2lhYlpxMjFmYWZ1TDJWWDRJUC1HNzN3VjZ0WW1pZDhXcWJZTGZhRTVhYTIzRVAxX0NKaHBGb1Q4NHN3WGhwd2JON0hmb29KMWJJMEhCLVAya1VzaA?oc=5) |
-| Fact Sheet: President Donald J. Trump Restores the United States Department of War - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQUGtvcDIzNUNmQ1lwRWgyVC1WeERrRDFxd0pzdUlnLU94SVFuR0M3UVUxSXJpbU5qMHY3ZUZnVWNRN1YxaTJZeTVyb3hLWUs4b2pWaXhSODg4Z3hWS0N5dnNVNDFxSnpoanVXanZZLXhnbTZJUTlBZi1xOTA1eTVHYXpxS0VPM0cxY0VLcGlEZHpLc1pkTmItczM4clJWUVRZZWxvRGNaS3dveXZRSFNpdlVpUkRXOGszVVMtOUZHazI4SkxxY0dJ?oc=5) |
+| Trump signs executive order rebranding Pentagon as Department of War - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQVmFJY1hzNVJkdzFob0pWbDR2LXc2LVdJMS1IX0xKSFRjcTNZTTd5MTJ6aWJRcmtkZjB1SkwzczhQbWhiSTNMU0JlT2dNb2dnN0RaVXhjSGtBd1kxSE1qUnRIcU95QUQ2TjZ2c2JlNlFLTWRKXzQ5NWV5X19ha25zMF84MnZjV2ZqbW56T1J6eUl2NjQydlI3bEtiYVYtRlM1b293?oc=5) |
 | Judge blocks Trump administration's ending of legal protections for 1.1M Venezuelans and Haitians - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNNkJvMHZZY1QybmR1bmpkZlZUd0hkTUc3SWdCd0liWDhnbTdRcnJhNVpBc2hIa29BOENqck5ib1hBdlJSVlB6TkViNE0yTEhPVExyRGdiLV9TLTUxWUpFeWxqd3VfLXhBUWhyblRoVkF5eXNPZ084TWJwblR0X3ZwbFZFQWJrRXY2eVExUWRuNDFwZ3dNRGNxUEl1NG1fdHFzdWxDSExBWWpwT0pVcWE1bEgwVXk?oc=5) |
 | Angela Rayner resigns over tax as UK deputy PM in damaging blow to Keir Starmer - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPd3p0aldobVVMaGV6MW1WLWtsSm5Xam81cHd4ck9NWDBsWnBaZUhsem10R05SeXNlN3U0X2staGdzWmlBaEpBbFhQMThWMFBPenNlWkpzR3o2N0UtUE40SllXUWdXeDd6WWxjVUctLXhmUnJVQVJ0Z0xFQzZvQ0xCa3NpTDkyWllzQnRjR2FhNFR5TGJsVEZMQ19kV1RzNzhyTlFiZ0MwWllBVkNmZm9yQjRn?oc=5) |
 | Former Alaska Airlines pilot who tried to shut down engines midflight pleads guilty - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQOEo2SVpTaTZTOXdHdDNOZ2JnVElmUTJ6amtOcnR5ZXg4SVZ5M3dfdW9uM19wWEd0WGlCeTNPZWxYUHFBX0Iyek1QZnRodmZEV3dzZGwyb09aVDFUSTJXdjQ2V2JBTE9fbVZfNk5DNlNEM0FWNXNQWlU1TkJmcmtOVnp4aktMSDBJMUpldDZfd0lCQmFzUDJpYXpEUGxQVGx2MmVoRGp30gGrAUFVX3lxTE1PckRzcTBvLTdfb3Zsb3EyZklreU16dEhab0c1eG9ib1hUTF9CVHUxQkh5b2lLa3VXc3BMSVc2OFJQQUxJekstVEswQzRSbmlzcWlKUzZ3N1BXYlJTZHpad1B0NG9kMGxUYy1pM25MdXVxTnNJMnlTMVl1RFNiNFBzeGViVDVGRTNCem1TcGRQb3J5MHBnMDROM1JaZi1QcXkxeW1TZ1ZQRU51dw?oc=5) |
