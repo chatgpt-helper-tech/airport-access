@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 13:41:28（北京时间）**
+🕒 更新时间：**2025年09月05日 13:48:59（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Pentagon approves use of Navy base for Chicago ICE operations - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxObFlucFJXRjFVNXBKczNOS2FxNTBFTXhZeU5rYUsxZDJzbjNEMUprUmc3OFJBR041dzB5WWxzWlNzQ3dpdVNfZVBfM2pIOHFJRmtGNUJtbmI3V3J0bUx4ckswXzk5YmYwUlpZaXZXR0ZSc05DaHJWZkl3aHQ4SVE1QUVQZTUyYV9LV1VmenQzUWRZcVNld1MyRWI2LWVIeE1NOEgycmxWM3RWZDEydUE?oc=5) |
 | Hawaii to join West Coast Health Alliance with California, Oregon, and Washington - Governor of California (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOWmNRbHpuSWZGQ09JS3Y4TTNKQlMxdnBfQXphLXVHczFCT2ZmdDB5OGQ2Y3RWZi14b2dwSFlSWGpHYW1DNmdrUTczUzFhbjJLVkFaOXZRcDRRX0hrRk5Da3Q1VWljNUQwN0kxcE9udnNNVnRULThhWWxNSnlSWjMweEZuNUx5cjJlRkpOSTZZQ04za0xvN0JOSFI0QlRpcEJmX1V0NVlGeVVCV043TTg5OG4tUzI?oc=5) |
 | New Congressional Map Clears First Hurdle in Missouri - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOelFrWWxXM094Ty12UEZFYjRmRmZpNEZzVy1kU2VoOEtJb2MwLUgzbXNEWHZiZmRCRTVOVGdMQl9URHQ5OVNZd19uVERfMWhvQm0wUEx1cS05OU9XeThqLTA0MmVORFVvaW40aDVVNjJGVHg2RUhab0xkTk0xOThHaUJiMFRvTmc2SC1hd2NuWk1EU0djNlRrZVVrUUw?oc=5) |
-| Trump administration unlawfully cut Harvard's funding, US judge rules - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPUE1tcDBtcUwxRlZFU21fLTl4VnBQSWlqYXdmTk54VTJEMEJiUzB0VWV1UE43T0ltZlg3N0RYRGN3R19nTzV5RF9jWk9jNTRCY1BhOFBwX0JOZWFQRWRFTmdLbVJuay1YM0I2MVpEd2tydk82bkV0eVE3Mk0zTHRIemZTYVJXc0x0aEJkWmFpdU5tckNZY0lheDVGRmlHUXFVWFlXUmV4UmhMRG5WVHduUTVB?oc=5) |
 | Northwestern University President Michael Schill resigns amid funding freeze - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQOURLVEs3My1nTGhVU002djFGX0dXQ090UWI4T0NXOUxOcGNkQk01TGNJMlh2QWU2cldBcURjUTNZRVoxdmp3eEdnaDhLaVJBT2gxSDU4dFFKVGdfc0VsUGJJMzdjc3VmZEZuMmpSX2N0bkMzR3J6enlTNTVtYkRyZlVGdlAycDhKbXlSXw?oc=5) |
+| Trump administration unlawfully cut Harvard's funding, US judge rules - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPUE1tcDBtcUwxRlZFU21fLTl4VnBQSWlqYXdmTk54VTJEMEJiUzB0VWV1UE43T0ltZlg3N0RYRGN3R19nTzV5RF9jWk9jNTRCY1BhOFBwX0JOZWFQRWRFTmdLbVJuay1YM0I2MVpEd2tydk82bkV0eVE3Mk0zTHRIemZTYVJXc0x0aEJkWmFpdU5tckNZY0lheDVGRmlHUXFVWFlXUmV4UmhMRG5WVHduUTVB?oc=5) |
 | Trump's DOJ sues Boston over immigration enforcement policy - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQaEhPVE1oVXBiSk1KaEVub1FZOWJMaWo3Mk93cm1zb3lTaVdIOEU3NUtGWnhpSDYxdE9oNmtXWndfSEZWRGhDLVJMT3V2ZTIzY1ZTRzUtekpJUXZ0UEV0TG9ibjYzSzJwQ2lFbzRjaUUycFk3X28xaUNZajlGc1hFQVRwbXNhWmdVQm9kdDJvV1BFTHRncW8yZWgxZjIzQ3ZuM2RMY1lwNGRmdw?oc=5) |
 
 ---
