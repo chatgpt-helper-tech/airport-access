@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 01:48:46（北京时间）**
+🕒 更新时间：**2025年09月06日 01:56:54（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Florida grandma accused of masterminding family murder-for-hire plot found guilty - The Independent | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPSWh6U2pvdWhzMDdpRmRReWF1RVBUM3l3bHg3dWRQcVpmN1IyeHozYnB6MndSYUpLQ0Y0VFUwRHVSenA4eEs5QXZVXzFYRVg4OFh4TEVVUmgyVElhT1RReE1vMWQ0UkZzRU9WUkEtSHpMUWpWSFBVN0hFOXJ0VkRZZGJhVG5kLXdkdS1iNXEyaGNiRDRudEVLSmhvQlQzV1hITjh2WndZNDVKQmxLTzRndg?oc=5) |
 | Republicans move quickly to support Ashley Hinson’s Senate bid - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOQ2c4LW5Nei1iaHBJWGw1ZnNLTXMzell4VjAxWmNwTDY1ZTMyeVZjdllQdXN3NzBYbWkwNldzWGVUWDUtNjhYbXZVb0hJMF9DZzlROG8ydDJwaERRQm5tVTZyT3ZPRWZiSG1sVzBicG9LeHJhNXpqVDZPcms5N2JFMkRR?oc=5) |
 | Fact-checking RFK Jr.’s claim that ‘everybody can get’ the COVID-19 vaccine - PBS | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOYVRocUVDWU03YTA1RjdpbnlUZzVDdGNKcXFTdjVNMzJxcHQ1ZVNmX0VFdmdwTUttR3RKOTQtWTZHSkU1WTZSeFU0RENnMnNUU0dDYkRGQjV3MENjQzlnNXgxNWo0NzdQbjBxdi1DUW5JMFVuYTE1Q0FybzR6YmEzOVMyZ08xR0ZncVdRV0gwMUNIXzlIRnp2YnZWMWZGMVo5d1UyQTJ4NFdDOGZk0gGyAUFVX3lxTFBRVHJFU21zSmxtcVNCbllVeGZLX3F6THh0RXBBUzI1OV9qbkRxY093cXlURkNhU0VvMjNOb0VEQXQzb3FWUDUtUkI3R2lJUEFzdWFINWVFUzZtZ1lKTHIwTEpGODQtZXdybmpRTWlVbTNSWmFNdGpuZWxJdjFYbm5vb0pYcFdIWFc2a1I1MXFobWhZbTFqcG9vbUd5NFpManNCZ3hpZDQ5bEhqTHNNRWpvZkE?oc=5) |
-| Defense Dept. warns Venezuela after ‘provocative’ jets fly near Navy ship - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNN0pzUHBrdzllSHVnLWl4bGJoTTBtN194cDFsd3cwbGtxaklkZU8wOWxNa1BIUmFOWVV0SzZfN0VEVG1mTGdNTHQ1RTIxTThXaThTajBGenUtRzJDT2ZlOUNXRzlOM09RcEFCQWtMUDZEM0hQcmEwTUJ2ajg3bVc0MDEwNnYweWhrNEpB?oc=5) |
+| PBS slashes 15% of its staff after federal funding cuts - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNVlJlZVc3UUVXVGUxMzkwUzM3OVpIcjNDOGlCTGQ5WTZrUXV1bDBqVDlhT2dOX0pUUm80UVdZRGNjZS1DbU1BWlNHZ0t3MzF4bWhoQktIWGE2ejlWb0VjS3FNVldWVkNzelhkdG5wOVZLUUZXUTA1V01NMVRMYmpuUg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
