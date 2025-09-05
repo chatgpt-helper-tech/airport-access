@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 22:49:29（北京时间）**
+🕒 更新时间：**2025年09月05日 22:57:46（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Putin says any Western troops in Ukraine would be fair targets - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOcFlTTE94NFNILTFDNzhKZmEwZ3VZdjB6ZU5XdHBCOXNYWTRvWG9vYnlUZHhMNU5xS0pQemVra0hTU2FsLWpaZlN6TUNTeC1UN004TzZWUmhDdWVvbzdNVHZpRnJyWndtQzZvZkpBRlFjb09faUdTZ01BLUNjM2ltWXNYQVRwRGlmdENQeXB0em9NYWJpVWpNNDhFaWRyZld5Rmp1bG1LclNfUm5oX1ZkanpxVUtRQlUzQ19WMS1RTQ?oc=5) |
 | Trump seeks to rename Department of Defense to Department of War - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5ENDJYTUxaT3Y3VXNfdWxGXzM0VlF0dnlubDdzbGtXTi1VWlVSdmtKYl9TV3o3WGpXc0JUOXozV2c4VWFZbDhYY3pUeHYyYW01Z3RzeUVMNk04MkJ3Ni1obkhGOWtCS3ZCekpZVEdwd0U3XzZTQVIw?oc=5) |
 | Trump's D.C. takeover has led to more arrests. NPR looks at cases of those swept up - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOdVZKZlhkdnNWcTNzZE9VRHBfelVxNWlnVlFzeHRnQU9yMkhud1pxeE9BRUY3ZjMyOWEyazJDcVRuYXRzTzBUZUgzXzlWTHdxbE02V2lzTEMybUpYMHpCTFR4SlRnMlU4bWlfMlBDTGl1X0dyTG5KZFgzOEJNZmtiRkZudDYyQjNvbWt5M21zdkF2VFU5a1lr?oc=5) |
-| Why Trump is targeting Boston and its Democratic mayor as part of his ‘immigration enforcement blitz’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxON0sxWlZzSkFLMGpqUXR3aE9yQ0s4Nm5GTVlRZGVyb0pINzNWZ1QxOVhSckZwMHFUQWM5Tm04eUlHODI1c1VDSGNLY1JpNEhqLUNWcEtKSUZ6eEt6NlJyZFVUOEpOZUpvSUdQX24xVUVXcUY1RWt0Q2dwYTU0ZzNpVV9n?oc=5) |
-| Donna Adelson Convicted in Murder of Dan Markel, a Florida Law Professor - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPSzBzWHFSdWRpM1ZQWVRzdGpqd1NpNVVuVnZmYTNtRmk1MGJiNUtqWlVRQklBRlVpcnROb00wajMzRXB0OVROR1RrY091TW8zTnI1V21uVGVIVndhQVlWeTFrLXRwZzZFa2M4WGlYeWR2eU03bV9FQnFQdDBsNFR1RlN3?oc=5) |
+| Carlo Acutis, a Saint for the Modern Age - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPMU5BYjAxZmFmSDA0WUpYUHJ0bTgyREpXSWV5WDNXMmE5OG1TdnQ1VFB4akZWWXp4ZERZNk92MV83N21QVjdnMHNHcFFBZUpkdE0zRVlvOUhjcUhHNjI1TW5mWUZaRlNTb2J3cG5VNjltRTRZc3ppNGhyVnFIRFRaNTkzNmZJUlFOTGFj?oc=5) |
+| Talks Between Adams and Trump Adviser Center on Saudi Ambassadorship - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPQzE1VU1PWUpHOWkxUWxBM0hvZzZ3R0VvWUtIdkpMaXBzbTduWi1sMS1zZzFfTG1aNzZBTTJ5RmFub2t1ejJCZVhaYmFOSE1aWVhXTVJBUktDR1VLX3dBMmw1a3JOS29mTzc1S21MeDRqdW4tZ0RUOXctOC1XVUxMYUxGYWFqTE5wTlVz?oc=5) |
+| Trump faces criticism over to order to rebrand Pentagon as ‘Department of War’ – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxQYjRIVWtSNTlnVTFKQzZ3WlU0WlRwQnRrMUlDY0ljUDIzZVpaYTNEZWRJU2o0ODJEeW80dng3T2dEWldOTW04OUJ0RHZUWDdfNDFfeTZBV1VTcWk3RDM2enNpNWVsS1VYRUp4U25sQWRoUEp3ZjdobmpRMGxKXzJsQzdEQTBIUkpmNFRJd1ZKb1pJdlN4eDlMOTFTNTFOT1Z5VW1uTnlMelFZN1FrMXpEbEJEdU51eERZZ2VDVU1haHlIdThQcWhndGh4dGM1ZWRvdjVWaTZ6RkFYQQ?oc=5) |
 | There Are More Unemployed People than Jobs Available in Trump’s America - splinter.com | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPbE13ZTlFMlZScWlROHNXOTBhVnM1NmZsSTZXWWdjaGdPTlVmMUR2dFMxTHZQTi1hdGZGX0ROa25iTUxLZllHMllTVHRkQWhCY0I4ZnlxclgwNFVleTNEbWlrMldpdDFidDB5aktCUWcwZlNFZ2plZEpUbXJQbUZTUVRhMklNcUxHSnNndUh0eE82OE05M3lTaF9EVQ?oc=5) |
 | US commandos killed North Korean civilians in botched 2019 mission, NYT says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxOOEUwN1VmUkE4QldyZ1lFQzAtUEp5SURhdXlEQlNmYVEyUVMzTzRHSjBtb3RTUFU2NVdJeGVpeG9ILVZ6NHJrWnhxclhlclJwNlhHdHhOc2xrX3RySG5qeEIwVlVsdFRjVDBFTlhBZHdQdzJhMjlZQU5rdW1mWjJCbDAwS3BDTXJ0Q2JfY09remxxY0hvUkhWaTVyUlU4RjJnSXphWjE4RnJHYjJDVlhCWHZ1Q1N6WEYySGxwNGpqS2tYTVU2YmRVRjVn?oc=5) |
-| Plans for second GOP megabill face growing skepticism - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNdGhrT0JGTXE2UVV4OHpKN0ZLbkgxMFp1WGVneXJnSFVZcEJNVGlQSDNIdUZEOEJPbDJSMDdrUExDc1B4QzJ6bGt6ZFJSVXR0cHJrTGltUjluMDAxZUtOYkxLNkkzY2dUWWxKdFZTTWdoRG9wcEowSTBSbE5IcHlqMG1MNS1lMWlqSm96ZA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
