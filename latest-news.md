@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 07:33:30（北京时间）**
+🕒 更新时间：**2025年09月06日 07:41:47（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Angela Rayner resigns over tax as UK deputy PM in damaging blow to Keir Starmer - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPd3p0aldobVVMaGV6MW1WLWtsSm5Xam81cHd4ck9NWDBsWnBaZUhsem10R05SeXNlN3U0X2staGdzWmlBaEpBbFhQMThWMFBPenNlWkpzR3o2N0UtUE40SllXUWdXeDd6WWxjVUctLXhmUnJVQVJ0Z0xFQzZvQ0xCa3NpTDkyWllzQnRjR2FhNFR5TGJsVEZMQ19kV1RzNzhyTlFiZ0MwWllBVkNmZm9yQjRn?oc=5) |
 | New York Mayor Eric Adams refuses to drop out of race after Trump nomination floated - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxOaV96UjZLcmtrMWE5UXRSRDl0VkNkc2NRLTUzSHBHeDhEOThmN0tSVEZVdlA1U0d1RGpiX19TQ3RvRURadWJIT29JSFI1VjJvb3lRNUdUY2dMTm9DZUpsTkc0aVZvZEVmZ2VRdWN2Y25uM1VndnVlMGs5bXY0SVlCOFMwdzFOUTY0N2N5emJ0ejZHUFFQU3NPOGI5bDFxb1l6SEZqM2Jkank1QlpNVExwZElmY1hpZnJSMDNBZEF0RXc3dkV2dkxHekxR0gHPAUFVX3lxTFBEQmMyLVVMcTdQU1VZQUd6YXlRZXFXanZ5bGhPQVZmSTNYOE42UVFCVmVQT0taNDdsN0hzLTdwZHVfM3JJalQxN3E0X2Y5emQ5aU5zbHV0b3JiMnU1cXVYYWRoTWI0ODFvQ2MyR1BsdHFhYU1hUk1TTDZmbThUXzBoWmJGcThYaFVqR2MxZURUN3czdWV4N3VIa1JsQ3JBbkpaME9uUkFIcGZXcTBUcDdjX1VUWUNnX09CTF9BQkRFVUdyekpnd20xU1BGZ24zVQ?oc=5) |
 | Trump's economic doom loop poses new danger for Republicans - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1NMVVkMkVJMnRXdjlqUXdDd0ZiN3ZNb01PUTZtc2R1OTRScnJHV0FKcm96eTNFam5za2V2NWQ0Nzk0aTdLeF92aGRvY0d6emlQcnFxVzgzZWRsSFZKNEQxT0MyMHZEVDJtUklBbmFpSFR0VVl4Mi1MZnR0ZnFPUQ?oc=5) |
-| Trump says US must be ‘very careful’ in removing mandates for ‘vaccines that are so amazing’ – live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxQYjRIVWtSNTlnVTFKQzZ3WlU0WlRwQnRrMUlDY0ljUDIzZVpaYTNEZWRJU2o0ODJEeW80dng3T2dEWldOTW04OUJ0RHZUWDdfNDFfeTZBV1VTcWk3RDM2enNpNWVsS1VYRUp4U25sQWRoUEp3ZjdobmpRMGxKXzJsQzdEQTBIUkpmNFRJd1ZKb1pJdlN4eDlMOTFTNTFOT1Z5VW1uTnlMelFZN1FrMXpEbEJEdU51eERZZ2VDVU1haHlIdThQcWhndGh4dGM1ZWRvdjVWaTZ6RkFYQQ?oc=5) |
 | State Rep. James Talarico to jump in Texas Senate race - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPXzdMUnFBLW5sb21ndnVkYkNPWW9yZ0w1bDkwdWJabG84YzhzUkoxTzVTSG5TcU9xNVlGX3V6NVJoWElHeDdsWE9Odk50MjJ0OGE4Mmd1Y3hMOVBGUW4xOWt1cmI5Uk9FVzhtWWdueHcyeTNrWWk0dVUzQzlwdmNZTHlKTE9yT3M?oc=5) |
+| Trump says US must be ‘very careful’ in removing mandates for ‘vaccines that are so amazing’ – live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxQYjRIVWtSNTlnVTFKQzZ3WlU0WlRwQnRrMUlDY0ljUDIzZVpaYTNEZWRJU2o0ODJEeW80dng3T2dEWldOTW04OUJ0RHZUWDdfNDFfeTZBV1VTcWk3RDM2enNpNWVsS1VYRUp4U25sQWRoUEp3ZjdobmpRMGxKXzJsQzdEQTBIUkpmNFRJd1ZKb1pJdlN4eDlMOTFTNTFOT1Z5VW1uTnlMelFZN1FrMXpEbEJEdU51eERZZ2VDVU1haHlIdThQcWhndGh4dGM1ZWRvdjVWaTZ6RkFYQQ?oc=5) |
 | Democrat who called RFK Jr. a 'charlatan' says U.S. is vulnerable to next pandemic - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNUzZaLUhOdW55ZGdWVFdxY21QVGVrOFVkZHZWWWZaY1QyMWtsU0RnREE5YjZYblF3X1JQLXdQOEhIMUtKMk5kTWhIVzdERnMyYlNhUHFVLUhzWVg2OU9rSFNBdURCRnhoT2Rlb2sxaWt5Y3VEWmhPZk9fRlp1SkJ1X3pvNl9WWEVrMWRyTFRsLUtwNWRkWjZpelk3VlgyT09idzRCTA?oc=5) |
 | California man found to be living secretly in condominium crawl space - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOUDN3TWtTc0ZPZlBRaTZrLVd1amlrUHRFOHMwYklVWEtQWFIwZEpiQWpGS2IybGVEZFhTeXRQSU1CSVdpOXpYWl9Ub0x1eDhwNVFsQ2dNWUpXQ2hvSDVXSUxhdTRIb1dSWXJFXzRvRzFTX1ZaSHQ0dmRhQUdpdGJyRTdmNE51dFlIV2c2ajlSN0hmblBJaDc5Y0p3SnNYYklXN3BIYXU5WC1pdw?oc=5) |
 
