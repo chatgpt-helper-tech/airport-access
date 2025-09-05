@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 17:56:25（北京时间）**
+🕒 更新时间：**2025年09月05日 18:01:58（北京时间）**
 
 ---
 
@@ -8,6 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Three British nationals among Lisbon crash dead, say Portuguese police | [阅读全文](https://www.bbc.com/news/articles/c62lmed42p1o?at_medium=RSS&at_campaign=rss) |
 | Errors by machines leave 55,000 diabetes patients needing new tests | [阅读全文](https://www.bbc.com/news/articles/c4g7d3w7gdlo?at_medium=RSS&at_campaign=rss) |
 | David Bowie’s secret final project discovered locked in his study | [阅读全文](https://www.bbc.com/news/articles/c3dpdpvj083o?at_medium=RSS&at_campaign=rss) |
 | Sir John Curtice: How Reform's capture of the Brexit vote could be enough to win an election | [阅读全文](https://www.bbc.com/news/articles/cwy853rj2kzo?at_medium=RSS&at_campaign=rss) |
@@ -17,7 +18,6 @@
 | Trump seeks to rebrand Department of Defense as Department of War | [阅读全文](https://www.bbc.com/news/articles/cgr9r4qr0ppo?at_medium=RSS&at_campaign=rss) |
 | Ex-Tory minister Nadine Dorries defects to Reform UK | [阅读全文](https://www.bbc.com/news/articles/cj9zld87y1go?at_medium=RSS&at_campaign=rss) |
 | US prepared to 'blow up' foreign crime groups if needed, US secretary of state says | [阅读全文](https://www.bbc.com/news/articles/cx23nzwjnwwo?at_medium=RSS&at_campaign=rss) |
-| Chris Mason: Heads it's awkward, tails it's awkward for PM | [阅读全文](https://www.bbc.com/news/articles/cly92v6dln9o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
