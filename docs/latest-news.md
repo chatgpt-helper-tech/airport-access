@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 23:48:11（北京时间）**
+🕒 更新时间：**2025年09月05日 23:56:34（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump's D.C. takeover has led to more arrests. NPR looks at cases of those swept up - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOdVZKZlhkdnNWcTNzZE9VRHBfelVxNWlnVlFzeHRnQU9yMkhud1pxeE9BRUY3ZjMyOWEyazJDcVRuYXRzTzBUZUgzXzlWTHdxbE02V2lzTEMybUpYMHpCTFR4SlRnMlU4bWlfMlBDTGl1X0dyTG5KZFgzOEJNZmtiRkZudDYyQjNvbWt5M21zdkF2VFU5a1lr?oc=5) |
 | Talks Between Adams and Trump Adviser Center on Saudi Ambassadorship - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPQzE1VU1PWUpHOWkxUWxBM0hvZzZ3R0VvWUtIdkpMaXBzbTduWi1sMS1zZzFfTG1aNzZBTTJ5RmFub2t1ejJCZVhaYmFOSE1aWVhXTVJBUktDR1VLX3dBMmw1a3JOS29mTzc1S21MeDRqdW4tZ0RUOXctOC1XVUxMYUxGYWFqTE5wTlVz?oc=5) |
 | Supreme Court's Barrett says US not in constitutional crisis - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNNjNpa1ZCbF81XzQ2ZllrMmJJYVJLRjVDd2hXWXVLZDNKcFlaQzEtWllZZF9VZGhSTFNMaUp5dHFITWRsMlhaRWlqWlloWW9vUkhpV2MxamhLSGwtb2pQMERKc0xqbzdkMThJZUltaWhlX3BocFpjckJmaFpQWmY2bERKdGxaR2lKUzNYOVY0VzY0OVJjWW9zZzc2VXpudWU5b1NN?oc=5) |
-| Trump sends 10 stealth fighter planes to Puerto Rico amid war on Caribbean drug cartels - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOajNDV1AzTTNWQlU3R0ZUWEcwWlUtRnhEMmRHZ3duTk5EblFNVjJhc3NaUE11NFVUR1NGNi1STjVMM1llN2tzanlmOG42bmI0RndsOXFyck5TMFNWeDdPU00xZWJrMGM5eVpRWDBGX0FvcWN4TUdIeUJCTVFrZmxOak1kN2xCUUl4akh3OWhlTEEzWUdpbnYteE9vaU5tN2tBbEplMw?oc=5) |
-| How a Top Secret SEAL Team 6 Mission Into North Korea Fell Apart - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOd0puUVh6M2lZVjdROTE4T3A5cEE4QmxNcjNHSEdFVmYzb3EyQkJTNE9GckNnV05RZVg2cEVQWHRTY3BBRUVXazR0b1ZzX1QybzloOFBhQTJ4UHFhRHgtRGJuWF9fdF9UYXFYbG5OYnFyeXlxcFF5VmpXMGVhbjgxbg?oc=5) |
+| Jury convicts Florida matriarch in murder-for-hire killing of her former son-in-law - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNNmtJX0I1ZjhDaTZaZTNpVFcyWXZPdFpnYWx3VXcxajd4UkRFUjlLY2tiUnc1c1otTWhVSGVneVZWaEpkVWFnalVRYWdPeVpXeEFWUjFHM2NOUmEtYnNjMmp3VWdCRU5qVWl0ZGhDNXJCa1UtYnowaDlLSDRKOGZMNlFscUlwU19kZzQ1RGtyUWlwb2lOQjc1N1VGUFpNY1Q5SmNnRGV3akxIZ3M2YnpEdlUxSG_SAVZBVV95cUxNNTZ6Y2U4TUFEbld1VFd3aW9CbWxOMWNuZjdRS1lUSnNLMndZOVZ1SEpVWGtVa2xocHdlMWM4QUpKWWpJcmJReXBqYmVncHFlN2g0VTZfdw?oc=5) |
+| New York Times: Unsuccessful 2019 Navy SEAL mission left unarmed North Koreans dead - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE84cjdmY0d0UGxqalhuTFo4elBOSDFDSGpORlVqdWNIS28zRUcwblp4RVIxY1pDaHlsU2I1SFV1S2hiWHZMNzRILVNkTXp6REZTREdqLWl4X2xjV0pnS2dETUxOTVBpLTdMQlo5VmxsT3lZRF93aE1Pc3VlelljUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
