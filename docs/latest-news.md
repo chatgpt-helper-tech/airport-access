@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 02:00:15（北京时间）**
+🕒 更新时间：**2025年09月06日 02:08:26（北京时间）**
 
 ---
 
@@ -8,6 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Who's in Keir Starmer's new cabinet? | [阅读全文](https://www.bbc.com/news/articles/c0veg88g7jyo?at_medium=RSS&at_campaign=rss) |
 | Angela Rayner resigns after underpaying tax on Hove flat | [阅读全文](https://www.bbc.com/news/articles/c80gr5emk43o?at_medium=RSS&at_campaign=rss) |
 | Labour's working-class warrior who fell from power | [阅读全文](https://www.bbc.com/news/articles/cqlz3p0ryylo?at_medium=RSS&at_campaign=rss) |
 | The letters written by Rayner, the PM and the ethics adviser - in full | [阅读全文](https://www.bbc.com/news/articles/ckgyn051990o?at_medium=RSS&at_campaign=rss) |
@@ -17,7 +18,6 @@
 | We must be ready for early election, Nigel Farage tells party | [阅读全文](https://www.bbc.com/news/articles/c4g75we8jk9o?at_medium=RSS&at_campaign=rss) |
 | Do Reform's economic plans add up? | [阅读全文](https://www.bbc.com/news/articles/clyx4v44438o?at_medium=RSS&at_campaign=rss) |
 | Hamas releases video of two Israeli hostages held in Gaza | [阅读全文](https://www.bbc.com/news/articles/cy0vly9zyl2o?at_medium=RSS&at_campaign=rss) |
-| Israel destroys dozens of buildings in Gaza City as new offensive intensifies | [阅读全文](https://www.bbc.com/news/articles/czx0d71gryzo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | Florida grandma accused of masterminding family murder-for-hire plot found guilty - The Independent | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPSWh6U2pvdWhzMDdpRmRReWF1RVBUM3l3bHg3dWRQcVpmN1IyeHozYnB6MndSYUpLQ0Y0VFUwRHVSenA4eEs5QXZVXzFYRVg4OFh4TEVVUmgyVElhT1RReE1vMWQ0UkZzRU9WUkEtSHpMUWpWSFBVN0hFOXJ0VkRZZGJhVG5kLXdkdS1iNXEyaGNiRDRudEVLSmhvQlQzV1hITjh2WndZNDVKQmxLTzRndg?oc=5) |
 | Republicans move quickly to support Ashley Hinson’s Senate bid - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOQ2c4LW5Nei1iaHBJWGw1ZnNLTXMzell4VjAxWmNwTDY1ZTMyeVZjdllQdXN3NzBYbWkwNldzWGVUWDUtNjhYbXZVb0hJMF9DZzlROG8ydDJwaERRQm5tVTZyT3ZPRWZiSG1sVzBicG9LeHJhNXpqVDZPcms5N2JFMkRR?oc=5) |
 | PBS slashes 15% of its staff after federal funding cuts - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNVlJlZVc3UUVXVGUxMzkwUzM3OVpIcjNDOGlCTGQ5WTZrUXV1bDBqVDlhT2dOX0pUUm80UVdZRGNjZS1DbU1BWlNHZ0t3MzF4bWhoQktIWGE2ejlWb0VjS3FNVldWVkNzelhkdG5wOVZLUUZXUTA1V01NMVRMYmpuUg?oc=5) |
-| Defense Dept. warns Venezuela after ‘provocative’ jets fly near Navy ship - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNN0pzUHBrdzllSHVnLWl4bGJoTTBtN194cDFsd3cwbGtxaklkZU8wOWxNa1BIUmFOWVV0SzZfN0VEVG1mTGdNTHQ1RTIxTThXaThTajBGenUtRzJDT2ZlOUNXRzlOM09RcEFCQWtMUDZEM0hQcmEwTUJ2ajg3bVc0MDEwNnYweWhrNEpB?oc=5) |
+| Defense Dept. warns Venezuela after ‘provocative’ flyby near Navy ship - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNN0pzUHBrdzllSHVnLWl4bGJoTTBtN194cDFsd3cwbGtxaklkZU8wOWxNa1BIUmFOWVV0SzZfN0VEVG1mTGdNTHQ1RTIxTThXaThTajBGenUtRzJDT2ZlOUNXRzlOM09RcEFCQWtMUDZEM0hQcmEwTUJ2ajg3bVc0MDEwNnYweWhrNEpB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
