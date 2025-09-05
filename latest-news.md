@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 19:09:32（北京时间）**
+🕒 更新时间：**2025年09月05日 19:16:14（北京时间）**
 
 ---
 
@@ -11,11 +11,11 @@
 | Three British nationals among 16 killed in Lisbon crash, say Portuguese police | [阅读全文](https://www.bbc.com/news/articles/c62lmed42p1o?at_medium=RSS&at_campaign=rss) |
 | Errors by machines leave 55,000 diabetes patients needing new tests | [阅读全文](https://www.bbc.com/news/articles/c4g7d3w7gdlo?at_medium=RSS&at_campaign=rss) |
 | Sir John Curtice: How Reform's capture of the Brexit vote could be enough to win an election | [阅读全文](https://www.bbc.com/news/articles/cwy853rj2kzo?at_medium=RSS&at_campaign=rss) |
+| Putin rejects Western security in Ukraine, warning troops would be target | [阅读全文](https://www.bbc.com/news/articles/czxwl15w2qko?at_medium=RSS&at_campaign=rss) |
 | The Duchess of Kent dies aged 92 | [阅读全文](https://www.bbc.com/news/articles/cwy5v4lgkqpo?at_medium=RSS&at_campaign=rss) |
 | 'I'll try to kick his ass' - Sabalenka wants 'battle of the sexes' game against Kyrgios | [阅读全文](https://www.bbc.com/sport/tennis/articles/c0m40npwezko?at_medium=RSS&at_campaign=rss) |
 | 'I feared I'd find her dead in bed' - teens harmed by spice-laced vapes | [阅读全文](https://www.bbc.com/news/articles/cj3l231xz5ko?at_medium=RSS&at_campaign=rss) |
 | David Bowie’s secret final project discovered locked in his study | [阅读全文](https://www.bbc.com/news/articles/c3dpdpvj083o?at_medium=RSS&at_campaign=rss) |
-| Putin rejects Western security in Ukraine, warning troops would be target | [阅读全文](https://www.bbc.com/news/articles/czxwl15w2qko?at_medium=RSS&at_campaign=rss) |
 | Sunny weather and football boosted retail sales in July | [阅读全文](https://www.bbc.com/news/articles/c5yjd7v9xj0o?at_medium=RSS&at_campaign=rss) |
 | Trump seeks to rebrand Department of Defense as Department of War | [阅读全文](https://www.bbc.com/news/articles/cgr9r4qr0ppo?at_medium=RSS&at_campaign=rss) |
 
