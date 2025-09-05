@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 01:00:44（北京时间）**
+🕒 更新时间：**2025年09月06日 01:08:23（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | We must be ready for early election, Nigel Farage tells party | [阅读全文](https://www.bbc.com/news/articles/c4g75we8jk9o?at_medium=RSS&at_campaign=rss) |
 | Do Reform's economic plans add up? | [阅读全文](https://www.bbc.com/news/articles/clyx4v44438o?at_medium=RSS&at_campaign=rss) |
 | Hamas releases video of two Israeli hostages held in Gaza | [阅读全文](https://www.bbc.com/news/articles/cy0vly9zyl2o?at_medium=RSS&at_campaign=rss) |
-| Troubled beauty chain Bodycare to close 32 stores | [阅读全文](https://www.bbc.com/news/articles/cpd9qezjej1o?at_medium=RSS&at_campaign=rss) |
 | The music-loving royal who became a teacher - Duchess of Kent dies at 92 | [阅读全文](https://www.bbc.com/news/articles/c3gjyl7xvymo?at_medium=RSS&at_campaign=rss) |
+| Israel destroys dozens of buildings in Gaza City as new offensive intensifies | [阅读全文](https://www.bbc.com/news/articles/czx0d71gryzo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,9 +30,9 @@
 | Pentagon: 2 Venezuelan planes flew near U.S. Navy ships in "provocative move" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNWFJVclI3ekxiUTZmaTdqSFQzOVVQTlFkaWt2TUpySFYxSnJtSUpvZXdLNDk3UkhBOHR3UVJjN3M0eWdvVmhkX3F5NDNhYm93dUNxM2tjQ0ozNUVpaGZpUjF6RTI0SWhkZFF2M2lEUG9iZTFuLXR5RHhUS012cE0yY3NzT2c2TEE?oc=5) |
 | Navy base to serve as hub for up to 250 federal agents for Chicago immigration crackdown, memo indicates - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQSUdzNUdxMGVRUXk3QzJVQlE0djFybnp2ZHBFTHVheERHdktKTjFrOERLTjJpN2dzLWFuZnpDSWlFaHMweGx6Q3VKMkE3aVZVMjBwdUR1UjJBUzNPVl8zdmgtZkY1NFpYUmRKeFVpUDZhaHZ0S1hleXNWTjVlWlA5UnFJZzdCb0Utb3B2ZXZYNTlRQdIBlwFBVV95cUxQNEl2SFhrREVFall1aW5TVldiNjhEd19nSFFLOTlwaHNja3JYN1BEcy1QeEVJd2Q3RWNoWTJROWhfVFp4NERkSWdZUklkMEdYdHRQQThHdllGUEhHZGhKV3pYcVJXeFBsM3JMUUxRNDdEems0RkpCN0N6Ylk3Tm1DYmc0dnB0NHMzMXJsZWhidWJkQ0xIOF9r?oc=5) |
 | Donna Adelson Convicted in Murder of Dan Markel, a Florida Law Professor - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPSzBzWHFSdWRpM1ZQWVRzdGpqd1NpNVVuVnZmYTNtRmk1MGJiNUtqWlVRQklBRlVpcnROb00wajMzRXB0OVROR1RrY091TW8zTnI1V21uVGVIVndhQVlWeTFrLXRwZzZFa2M4WGlYeWR2eU03bV9FQnFQdDBsNFR1RlN3?oc=5) |
-| PBS Undergoes Round Of Job Cuts Following Loss Of Federal Funding - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPNjZlNG95TWExSU1sckgyNUhPY2ctV3c1RjYzTmdlSWJVbVJuTW5CTnpBN3k2RzRxY0VCZEJtZVNNU1cxNDEwel9qdFlLenE4Rm4yYU9PSjd6T21vMzgwb1pxY0dyRkU0bTlRR0F0UjA3WWJpZldPWWt4Y3pRLU84bw?oc=5) |
 | Republicans move quickly to support Ashley Hinson’s Senate bid - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOQ2c4LW5Nei1iaHBJWGw1ZnNLTXMzell4VjAxWmNwTDY1ZTMyeVZjdllQdXN3NzBYbWkwNldzWGVUWDUtNjhYbXZVb0hJMF9DZzlROG8ydDJwaERRQm5tVTZyT3ZPRWZiSG1sVzBicG9LeHJhNXpqVDZPcms5N2JFMkRR?oc=5) |
 | RFK Jr.’s alarming Senate hearing, briefly explained - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOQXRYeHZOT1oxcTRzaUk0TkE2S1JKWWZ3SDE0TFY2bVQ2Y09OWFRTTTBJbVY5TnZralRkckMwZXhiY1NRRjB2Sl9WcEpwNV9LREptQkpCQU5rcDR6cGlfYTljRW1xVldEeXRqUnYxVGlZSGp2bkM2N0R4TTdvcUVVeUN0Yk9FVWRuR0h5UlNmUjhTVmhHUzZBZGZiX2hHSENrUDhVbENR?oc=5) |
+| PBS cuts 15% of jobs in wake of federal funding cut - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNRU41VkZCektHazRwZm9BaGFNRm5laFJ0SFBDU21peERpTXRNN3RnOUp2dDZPTWpENHR4OFN5ak53M3FiWDhiOE8xS2laUERxZG4xNUFjYTVMTG5mRjF5cVl4VjhpTXJfOGVkWFNuWGhyd0tjejZVcWJCcW9vdzRxVlZocFdNTk5RQ3dUMThWTGxZTXluMVY3Zmx6UQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
