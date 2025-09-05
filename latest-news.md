@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 04:56:24（北京时间）**
+🕒 更新时间：**2025年09月06日 05:01:15（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Republicans move quickly to support Ashley Hinson’s Senate bid - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOQ2c4LW5Nei1iaHBJWGw1ZnNLTXMzell4VjAxWmNwTDY1ZTMyeVZjdllQdXN3NzBYbWkwNldzWGVUWDUtNjhYbXZVb0hJMF9DZzlROG8ydDJwaERRQm5tVTZyT3ZPRWZiSG1sVzBicG9LeHJhNXpqVDZPcms5N2JFMkRR?oc=5) |
 | Texas Rep. James Talarico will launch a Democratic bid for US Senate, sources tell CNN - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1TVjFaTTI1ZXdfMlRlN1V6cXBpSllOX1NQUzBJMHUwQlBybk9yY0VjMTZEcHFDclkwV3RmaGR1OUVTOHdIWldtdExOdktUSFR2ZmhzQm9nOTFoLWhXX3FlYjZrcnVpdHNvQUl2MlQ1RUZPRmtQLVE?oc=5) |
 | Navy diver is linked to decades-old rape cases in California, Indiana, Michigan and Ohio - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQZnV2SGtESlJ1NTJwenU5aFlzY0FyNk02aGp2b05GV3pwSnlXMnpkZllCdDFvZklJNW9hbHJSb1RfaFFOZC1QU1RhWW5ua1lFazhCOERWV0ZHblJWLTZPRDhSSzNsUS1LQktMdkJPc2YwRS1NRlRUdlUySDM2N09kb1hOUEtfQjluSk90Ujk3NUlqVU9nN3FIRGNreDk1bXo1anhfeDk5cVV0b3dGejc3c0lhZmpCYVVRdUHSAVZBVV95cUxOSU1pZS1KdVBIT3dJNFhjV3I4VC02WTZWaXR1ZEdEbmtCaVZHMjVmdUtDeThUV1NGaHZlNS1NRS1VakdTTDk4cGVXVldkdjczSExLdk5wUQ?oc=5) |
-| South Florida matriarch convicted in murder-for-hire plot of son-in-law FSU professor - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxNSVJLMVhReUkyd0FpeWJObTk0V3BMZ1MwZC15Z2lUamZLSWxIS3diZlYyVm1uaWpuMGpQSE15YndYZ21EVUp5SXU4c05BUDdOU3VPOUxnTHNMMUNmeGpSdHlDWTdsNk90NjNFOFA3Q2g0Nm41X01YTDJaRk91MHRtajV3bktaZ2ROelpfQ1FlbkY3SmhCaG9fTzRiYnNIUjBnVTRUZFV5NWoxNUR0ZFdWZWNtdnpvUHRfZGN5TGNn?oc=5) |
+| 4 takeaways after RFK Jr.'s fiery Senate hearing over CDC turmoil, vaccines - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQbDZPSlFLbFpnaDJhTmxmdFdJWkdfcU4wRlNpcVFCYTBpQW5MZU5qbHc1RGE3ZEc2ckxEQzdES0p2VkdSYlp4UHA5dEJSZWkySGlfMUh2NlNWVkU3YjB5U2VkdmVONV9LMlFNN1NwdzBpQ3dqTllXdVUybnk2WHJZalM5R2RrV19kZHl0Q0pWbHh6MmdFWENsLUFCNXQ2Z9IBowFBVV95cUxNVTQ0cFhwa2NxM2ZpREZGMXdsYzNoSzFXTXdJam8wMkZMaVpMX3ZPSXVoYWR1VDY3R1ZDSnFYY2tvMHRYaXYtd1d2M1huRUZnRWxGNEY4Y3JYMVVSYXFmemtIZFB3RzllQl9aTERVRVo3SlYzMXpTckYzd3NHbG1STkM1cVBzdFJkMjliaGxELS1MWldhV2VRMlZ3UE1HUkNLOXBB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
