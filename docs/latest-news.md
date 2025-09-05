@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 12:57:17（北京时间）**
+🕒 更新时间：**2025年09月05日 13:01:27（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | China’s JL-1 Air Launched Ballistic Missile’s Official Debut Is A Big Deal - The War Zone | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQNXJrLXVxb05LcTZlUU9YRHNHZVJCSThvSmR2SHZDUTZfRWlvaUUtYWF4dWg5aFd6UldSQi1BOGcyeXg5UU94ckx3YUJzRjR1dXVXVXlQSjk4T3J2cHlnNFZFcy1qUG9tUnNNRkJwQ3VRMGcwYl9ibzVEejdJUzlnWGhSWktqRDAxN1lxTlBuOGJGZEJXbnhQeEdaUV8?oc=5) |
 | Jeffrey Epstein discharge petition will fail, Mike Johnson predicts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOZkUtSGlYU3VvZ1IxTDVTTlhUcXpTdkxiOXRDR3N0T0xVQVdIZFNRMVJCejhuQVZPd3J0S1FnNExWRTdDZm0tdkltVFFOaEJFQ3BVZVNyMDYzSk1CbHFLa2Z1Rjd0blIzZjJkNVI0d1dGWmNvSkFLbmpONTVMOFhwVVcwSlRVb01Sd3llb29uZkpFei1fVmlIUlZfQ1ZTRHBHbGkwb3h1MHctRUN2ZnpR?oc=5) |
 | At Harvard, Judge’s Ruling on Funding Gives Students One More Thing to Ponder - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNUGRPUkFKOE1oVnUxLUpCWnRYdGx5b2YteEVmUXVZNGtvaXp1TnBiSWxFa3N6Yi1NYlJTZkY1RHFoejR4V0lCVEJCOEMxYWZ6clQ3SnAwVElZZUR5U3lQODBURy1WWkpnVEVOTEFmcnpqVnVDVHpFWGNHOU1ISEtFVlZ0eEdJM3A1YmxoMW9n?oc=5) |
-| DC lawsuit challenges Trump’s National Guard deployment as a forced ‘military occupation’ - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPcWhRQmxLRjhXQ0VzUTRxTGpPdmRkTnJXUm5LQm9qdzhKcDhDeUZVeW0welg3VkJqZzctTDV4dmFZbDV4Wk1yeHFHM0plcWdsNTlTeGpXcXQwb01velY1SlQyZ0hsSXM0U1BZTXF6MFRpQkVlZkt2cEdweTFubmJZanFMSnladDVPMlUyRFMzbi11UGp1RTVvTTBWalZFbWNhaVk5bVhLbnBZVDZMR3VwaUhnWU1hNU9UWHJz?oc=5) |
 | Northwestern University President Michael Schill resigns amid funding freeze - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQOURLVEs3My1nTGhVU002djFGX0dXQ090UWI4T0NXOUxOcGNkQk01TGNJMlh2QWU2cldBcURjUTNZRVoxdmp3eEdnaDhLaVJBT2gxSDU4dFFKVGdfc0VsUGJJMzdjc3VmZEZuMmpSX2N0bkMzR3J6enlTNTVtYkRyZlVGdlAycDhKbXlSXw?oc=5) |
 | Missouri voters against redistricting effort, Democratic poll finds - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQX1lGZHVCOUtfZlhDNjUxajVMeWZUZmJzRW1TWWJTUjRmaDhyYnlfLU9zZG9uOHJuVUo0TER1UmVjQmF4NVNfZFhHWVU2MFZTVUtzY2NYYTFpTDhwOURsVVhDeGtrZVJtUkhMdnlSdTRyQXZWa2UzMGdwVFpuLWd5MmdCMldoWXdWTHE2a3U0X1pZM3ZqUFpESVppX05ZQmpQVm81aGhscw?oc=5) |
+| DC lawsuit challenges Trump’s National Guard deployment as a forced ‘military occupation’ - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPcWhRQmxLRjhXQ0VzUTRxTGpPdmRkTnJXUm5LQm9qdzhKcDhDeUZVeW0welg3VkJqZzctTDV4dmFZbDV4Wk1yeHFHM0plcWdsNTlTeGpXcXQwb01velY1SlQyZ0hsSXM0U1BZTXF6MFRpQkVlZkt2cEdweTFubmJZanFMSnladDVPMlUyRFMzbi11UGp1RTVvTTBWalZFbWNhaVk5bVhLbnBZVDZMR3VwaUhnWU1hNU9UWHJz?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
