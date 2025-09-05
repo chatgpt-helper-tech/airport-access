@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月05日 09:25:51（北京时间）**
+🕒 更新时间：**2025年09月05日 09:33:27（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | 4 takeaways after RFK Jr.'s fiery Senate hearing over CDC turmoil, vaccines - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQbDZPSlFLbFpnaDJhTmxmdFdJWkdfcU4wRlNpcVFCYTBpQW5MZU5qbHc1RGE3ZEc2ckxEQzdES0p2VkdSYlp4UHA5dEJSZWkySGlfMUh2NlNWVkU3YjB5U2VkdmVONV9LMlFNN1NwdzBpQ3dqTllXdVUybnk2WHJZalM5R2RrV19kZHl0Q0pWbHh6MmdFWENsLUFCNXQ2Z9IBowFBVV95cUxNVTQ0cFhwa2NxM2ZpREZGMXdsYzNoSzFXTXdJam8wMkZMaVpMX3ZPSXVoYWR1VDY3R1ZDSnFYY2tvMHRYaXYtd1d2M1huRUZnRWxGNEY4Y3JYMVVSYXFmemtIZFB3RzllQl9aTERVRVo3SlYzMXpTckYzd3NHbG1STkM1cVBzdFJkMjliaGxELS1MWldhV2VRMlZ3UE1HUkNLOXBB?oc=5) |
-| Trump Is Renaming the Defense Department the Department of War - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPQVcxN3d0LXAzRV9lQUFPUHlBVjY1WHdMM2JmR1lRYVhFSGJfTVhmSkFLaG95bFYwcHhpVzF0VWk1RGtWZkpvakFFZ0Fkcl92R2JLdmR5U2hHWHNqVnluVUZINWYtNTdFM251UkRRNkhiT1pTQzhPczVzaVZHam5zZ2RVWldYbS1mUUdZ?oc=5) |
+| Trump to rebrand Pentagon as Department of War - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1ONnBHX3dFaTlQNE1wT1ptR0VuV19NV3RJRWZjeVYtbVFRYUlTeEdHSmltcEFCOVZsamlNZi02dl81cW1pdVA2MzVCNkp2VllKM3ZXeHgwaDIxZ9IBX0FVX3lxTE4tTUhlLTNDZDRtR3hPakJBLVB6cTJPMnhieGFpdGRRY3R5eHAxUFpmVldNdVdoYUEyYnJkRm5SaENselVkRkhGOVBHNS1jcWZuRUJjYWo0Y3NKbUFvU3lF?oc=5) |
 | Trump says the U.S. military destroyed a boat operated by Tren de Aragua off Venezuela. Here's what to know about the gang. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE83ZVpnZ1d6U1RrZEt0TlRYUlpxSHQyM3c5eF9TdTdJMGZQNGtNbDBSbzJnWkdoOWQ3ek5fMDdwQmhlMVU2b2RBVWdsY19yUlhZTFV2ci05czhoUTdacTBTQ0xPUzYtM3g2QkFZTUR6NExJOEpWLWhIbUhR0gF_QVVfeXFMTllucTdCeGVIeXZzUlFEcHdZMnRhSktFdlJoZjg0b1hTUWkyVmNiMERyUXRkS2x5TzhIVHlPUmhGT3ZVTmVTbkotcVZxWE5QUm0wcUxRRXV0Q3FDQ0hHQldCM3YtMURxZm11Wjg0NFB0ZHVoRkNQZEFJamxXclNiaw?oc=5) |
 | Northwestern University President Michael Schill resigns amid funding freeze - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQOURLVEs3My1nTGhVU002djFGX0dXQ090UWI4T0NXOUxOcGNkQk01TGNJMlh2QWU2cldBcURjUTNZRVoxdmp3eEdnaDhLaVJBT2gxSDU4dFFKVGdfc0VsUGJJMzdjc3VmZEZuMmpSX2N0bkMzR3J6enlTNTVtYkRyZlVGdlAycDhKbXlSXw?oc=5) |
 | Trump will host top tech CEOs except Musk at a White House dinner - PBS | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQSEpSWUZScE9CY0VpbDk4Q2ZKOGMyRzJoc2JXN2cwUlphaFRsV1Vha1B0MzFtY1Fjdjd5Y1RERm5MQmNCVDBjamN2Vmk2Zl9LQmYwWHpLZS1scThpN0kzSldaZXlITE94Z09QU0R0OFY3Q0xpVTBpRXA3cmNLWk12aVo3UW1DamVGXzBEV2pEek9IM3V6TnRmQ083Yy0tQmU3ZDdEZkln0gGrAUFVX3lxTFBlWS10T3BJNHdJQ1d5cWFZUDBCUEhqalB1VTVDd3lRQUt0YjA4Q3pfcjFMd0dRY19ZN1JWWHdBaUtIazR0cHRtYUREYmlRYllEMzNGa18wc2t1V2kyc1FXemRINW9udGw3UTNJZmZ5TW0tNHRnSWw4end2T29VcGxSTnRXSUFuM1dNNG5GdURBbE4yak0zWVJjWW9aM3hlOGduLVVrZkRoZmx5TQ?oc=5) |
