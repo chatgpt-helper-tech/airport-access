@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 05:48:18（北京时间）**
+🕒 更新时间：**2025年09月07日 05:57:46（北京时间）**
 
 ---
 
@@ -25,13 +25,13 @@
 |--------|-------------|
 | US Hyundai raid: South Korea vows support for citizens detained by ICE - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1ZVEFOc1E5aGQ1cmhwRTRRN09tcW5YbmFqSmVtWklVa3BpbUQwSF8wLXlwYVlNRUNxUTdPS1dEU1FDYUJkWWNycXJBVjEwR09aX04waGtvOHNHQdIBX0FVX3lxTE1lQ05jSFhwSlhjX2RJVFg2RlpTRjVGTkplN3hHX0VvaWV0TF80c3l5bm93cC1iQzItYzFUTzdyQk9NUDFBbENWdnhScjU2UGFkbi1fek40NV9fY1ZtRGVR?oc=5) |
 | Trump says Chicago ‘will find out why it’s called the Department of WAR’ ahead of planned crackdown - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE5TWms1UEtZMkF3TXB3bERLekc3THUwSzJzT3BKak9MYTNua3B0ZjB4Mm5acVZLMTR1S1lHckI3QVFvRWpEZE5LRTJUYXBmbmRDN0VlZGx1VGVManY0VkhtVUdPcTVvbHVBY1RIMnBqaEh1cnZjZVE?oc=5) |
+| Resistance to Trump’s D.C. crackdown is taking many forms - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQMlBuVlpDT3BqcUlJaGgzNXhKZS1lazVoMVJzVERXYWE5MVdTTTRkYXZkXzZ1T3RleDd1dHlMd1FrSHhZYmxLTDgxQ3lZckxGUzFPRl85b0VyUi1HWDlSdlRvWVJRYXNfckdhUHhxVWFzeEtBRGVSZGZxcEdfaE1kb09xUmI5MkhvZ0k5U3dEelRtZU5Ib1NoVkVqMTlHZw?oc=5) |
 | Israel destroys second high-rise as assault on Gaza City intensifies - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9YV0FUeFZBRDBKNFRwdXk2a1YzYnIxdnVyenBJT2NNYjY0NFFqc0dweC11Vm8xcDdJYUgyUklCdVpqZEtDRkdfYzU5a1IzcUtvMlJXb21CSV9QUdIBX0FVX3lxTFBFVHFPemlHVGVYZ3Utc19VYmFCcHd0NFBmRUVKdzF3OFVZZDhhSjNoVkQ2RmF1SFBUcUVlTUNnOVFldkNRSkt6Q0ZYQmtWUEJwdUFVbmFVSmczLUU4Mmhj?oc=5) |
 | Trump backs Kennedy on vaccines despite health, political risks - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxQTDlvM1VpYnVfUmdkdEpDNkNLU284amFqUk9IaEZRTUJvZ19KMWxCMVZxM1lwUkJDUHJjYWE1Q09nZnd6QzEzQUVndUt6V0o3ZWlXZEs0MzZ3MWtNVHlZXzd3OE9ZTVVvYTJfb2FzQWtlVVZVWERfWUFlWDRxb2tfV3p1ZlVkbnQ3VGx5NXM1Mm9OeVVjWjBfMGJFMWp5Y09PN2Y4X3B1UlBUenZWdTRyN1JuTGstdUpRbkNUV3lNTVhwM1RUNjlaMFdJNA?oc=5) |
-| ICE Is Said to Have Begun Operation in the Boston Area - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBldU5yZ2c0OWhTMjlCM2NJMDRCc0hLamQzbkpDdmRLdTRZVXNpS2hXdU9QRUxmN1BFODdMZklJcm1hSzZvTGVvU1dWVHpxbEU1QkJKTzZZUFhHbzBSempzckF5OFpqYnhkNEZjaW03MkhZcFUwajJBTnN3TFo?oc=5) |
 | Vance defends strike on alleged drug boat: ‘Highest and best use of our military’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNRk9hSWFHdXdkWE1MYU5zbWcwLTdnMHZmQ0l6eTNVWVJOSnQxYUplMnI0N1dMc1hrWWZDbUF4cndlSUNfT0dtZ09EejNQR0QtYUpQekZqSWxqclVRdmJVNlVHZFpzcEJMU0Q0WnIwTHJUYVNhSEh5aXFBWWpWVXhFR1F0RQ?oc=5) |
 | Mexican festivals in Chicago canceled amid Trump plans to deploy troops - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPUEJMVzBrR2dieC01T3dIdEYtcVdmcXBtVEZhZG9YR0JEUXFRaGtma2VoejVFMDZpbGtQQmVmenVsRl95TWlxMWxJNEI0bzNNODFqaS1nelBRUktEQzBMV05EVlB1ZkNQeTJ0MGw3aTdpMjJGTE1FWjg2TkNvVXJud1ZzU0wzS2hwQk9rX3VCWQ?oc=5) |
 | Robert F. Kennedy Jr.'s family calls for his resignation - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFB4WXhFRXlJckQ3X0U1ajQ5QVdKLTcxanlMZkdyeWVmWWg4ZERRV0lOTlVrbENRR2FfdUg3NHhIMHA4OUZfRndNZFdsRFJfdUVVRS1Yd2lvTmlJSXR1czF5WFBFQm04NjJoSGg1VEZZMkQ1RE9HN2ludTB3?oc=5) |
-| Adams refuses to leave NYC mayor race after reports of Trump job offer - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9MVW45UzJCVXJ5YUZJNTUwSFNNdVBRMTAxakgxVFdHZi1uWGRvZ2lzYjFJR052ZTBiRmFqbWZ3WHEyb2tiejZfUTRuNWNmNHVNN0VUX1dVNDlPVVVjeGxpUVRpeUtiTXgyNGYxZkNuYWFHQXl0Vk9z?oc=5) |
+| Eric Adams refuses to exit NYC mayor race after reports of Trump job offer - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9MVW45UzJCVXJ5YUZJNTUwSFNNdVBRMTAxakgxVFdHZi1uWGRvZ2lzYjFJR052ZTBiRmFqbWZ3WHEyb2tiejZfUTRuNWNmNHVNN0VUX1dVNDlPVVVjeGxpUVRpeUtiTXgyNGYxZkNuYWFHQXl0Vk9z?oc=5) |
 | U.S. says it will deport Kilmar Abrego Garcia to Eswatini because he fears deportation to Uganda - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNaEN1RDNGMnBoMU9IeDAtLUF6blF3Vm00c3pwd2hyZW9JLWdsdmhndTh2aDM5aXlDUGlDQ1NNMVFZWFFfMm85RmthZlBSWnJNdVFSQUFwRlkyS3I1LXBwZFFuT2JsanZmMDNjMnNUWW1HWXR2Mk9tRzNwRFpycWFGR3NtN1JTckc0TEJocW9FQmxWa2JNajVWSlZHMDhiOGxqS190cVBLNWJqdnc1?oc=5) |
 
 ---
