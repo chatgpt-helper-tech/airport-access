@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 09:48:30（北京时间）**
+🕒 更新时间：**2025年09月06日 09:56:51（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump breaks from RFK on vaccines: "Pure and simple, they work" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1GV053cnhUSGNmS2EzZ01VMHhoNzFuWExTZ09QX2l3NnlEUkVQUFNrbWY4LTgyRmczSFZyUXpCMS1qQ3daQjVBbTBqUmZCay1zM1dRYXVIWjBOZnlqenJiQ2dKd2hqYmhzbmtKeXdJSHg?oc=5) |
 | US special forces killed North Korean civilians in botched 2019 mission, NYT says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxPSTRia3VzOTVCYUNaWU1VaDEzYTVDVWhKdkRhMHFOcjN4NnJrbUp0ZVhpVl90X3lFQ2MwY2xsR0k0aHA0R0wyVEhHdnVCOXNoNWU4WkpaRHNBcEJOU094OE4zaDhVa2hZZ3BSVmYyaWNDakQxSVpEUFJUaTFNbWpFYWNwVzRjbkpxeG1iVHZVaDhxZk5KaV9IdS1KTTFJa3ZybzhEMG9zUkttLW9iS1pWSGxxSDlkbDdvdm14cUhBaG9hV0EwMmYxN3NxdWlWaE95?oc=5) |
 | What to Know About a Rapid U.S. Military Buildup in the Caribbean - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPTVhWamhFbDZFY1ktMkFfaGVBMUtNTk9jT1hrMXNVeExtNGJ1XzYzX01KNk5iMno4bzM4RXE0bEROY0NtbU54S3RudnFJaURyaFVoT2ZMNFpJVVJkOFhPam1sdWtmN0tuM2V0anNMdzVxaV9MM2sxLU5vY0dOUGpfZlV6QzRfLVRfWlNR?oc=5) |
-| California man found to be living secretly in condominium crawl space - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOUDN3TWtTc0ZPZlBRaTZrLVd1amlrUHRFOHMwYklVWEtQWFIwZEpiQWpGS2IybGVEZFhTeXRQSU1CSVdpOXpYWl9Ub0x1eDhwNVFsQ2dNWUpXQ2hvSDVXSUxhdTRIb1dSWXJFXzRvRzFTX1ZaSHQ0dmRhQUdpdGJyRTdmNE51dFlIV2c2ajlSN0hmblBJaDc5Y0p3SnNYYklXN3BIYXU5WC1pdw?oc=5) |
+| Pentagon Official: Trump Boat Strike Was a Criminal Attack on Civilians - The Intercept | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOb2hEam9OdzNaUGQxcTltNU4xdG9mN2Q3Q1h5eElIMzdpNEhwWUM0Tk04aTdjTlVOdmlmcWM2Q0NOb1lwNXBlZkpXWHBnT2lqTzBlMkFWLWZncDFkVWdBMGk1TF9pUmVNUThaa3pFbGtVRk1pZ1pHLTZqTFRBN1ZQME9JaW1uWDNONVkwa2tTaVlMVC1PWExmRzBoMVoteDdsc1k5WFdMZlFjemM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
