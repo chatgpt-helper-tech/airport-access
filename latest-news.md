@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 09:00:27（北京时间）**
+🕒 更新时间：**2025年09月06日 09:09:42（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | New York Mayor Eric Adams refuses to drop out of race after Trump nomination floated - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxOaV96UjZLcmtrMWE5UXRSRDl0VkNkc2NRLTUzSHBHeDhEOThmN0tSVEZVdlA1U0d1RGpiX19TQ3RvRURadWJIT29JSFI1VjJvb3lRNUdUY2dMTm9DZUpsTkc0aVZvZEVmZ2VRdWN2Y25uM1VndnVlMGs5bXY0SVlCOFMwdzFOUTY0N2N5emJ0ejZHUFFQU3NPOGI5bDFxb1l6SEZqM2Jkank1QlpNVExwZElmY1hpZnJSMDNBZEF0RXc3dkV2dkxHekxR0gHPAUFVX3lxTFBEQmMyLVVMcTdQU1VZQUd6YXlRZXFXanZ5bGhPQVZmSTNYOE42UVFCVmVQT0taNDdsN0hzLTdwZHVfM3JJalQxN3E0X2Y5emQ5aU5zbHV0b3JiMnU1cXVYYWRoTWI0ODFvQ2MyR1BsdHFhYU1hUk1TTDZmbThUXzBoWmJGcThYaFVqR2MxZURUN3czdWV4N3VIa1JsQ3JBbkpaME9uUkFIcGZXcTBUcDdjX1VUWUNnX09CTF9BQkRFVUdyekpnd20xU1BGZ24zVQ?oc=5) |
 | Trump administration tells Abrego Garcia he now faces deportation to African country of Eswatini - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPRDZlaXRaNmotdldiY3hoWktjeEpQLTlGcFhEX3hFVDl2RlZBdWp6c25KMTYxZm1wbjVyc0ZDMjNua3hFN2l5eFhkV1ZwOVJ4R0E0bVBseFN6UjB6TjBrNmluQ2tDQ1ZkTDQxS0xyM1VEdFdiblN4Y0ZFSTBZY0ROTnpJd9IBiAFBVV95cUxPU1BlTFRpeTZadEdEcVBzMkpnVGMyYUZZTllCMHFSMGFQQk1IRV8yc2JUa2hhMHdaMy1fdDRvQVIwSmtxOEV4aG5ObTFjOEtDZUdhNUIyTThxTnZjaWZyTG9tY1psMkhQVXBveld0Q0p3azlKdTBwR0xtMjNqc3NFYVFlSjdhWkJW?oc=5) |
 | Texas Rep. James Talarico launches Democratic primary bid for U.S. Senate - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNc296UTBQTTVDOE8wMWRTejJhZFIzUWxRYm9jVjdNUC1ETVhVUHVaQktPd3RZQ0tBMFZZZWptaHJ2Vk9jSHY3aHJ6QUQ2NXpnYm9oX09QQVhEczNDdngxbk1vQ0ViTFFfNTJFUmNoZTh2RjNDeXdvQ1B3N1RqTkZhX3ZPbWpJUFE2ckE?oc=5) |
-| Man found living in decked-out crawl space of Oregon condo without owner's knowledge, deputies say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPeVI1SWRwR0Y0WVdwYmpaOXo5c3dHMEpFbUVTaGQtMVJER1FqVmpOa0tyWmNnX2tHMlBTTldSYV83QUlVWUl6WG1rNEt6dGlsTFBOY1dDeGZPb1RXQzlZOWdrYkZDUkxCWlJqbHA2M1pCaGo3R0h2cEdCVW5nNF95QXY5UlhCWVZaazVVdNIBkgFBVV95cUxNWkdiZ0locjRiT2xSNVA5N0pDc1RQX21MY1FNanp5MVBQVGo0cDZVVURrU1h1Mkdhdm02UkZZbkJnUnM2a0EyaXNJWnNjaEZ2Qi1aSVBNbWlCaWI4em9zTDJrZkVwVGRUbUFnc3NjMUJUekhVUnZZUFdJVDdycU8welZwSjNLX3djc1pFQ3IxbUVGdw?oc=5) |
 | Trump breaks from RFK on vaccines: "Pure and simple, they work" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1GV053cnhUSGNmS2EzZ01VMHhoNzFuWExTZ09QX2l3NnlEUkVQUFNrbWY4LTgyRmczSFZyUXpCMS1qQ3daQjVBbTBqUmZCay1zM1dRYXVIWjBOZnlqenJiQ2dKd2hqYmhzbmtKeXdJSHg?oc=5) |
-| Defense Dept. warns Venezuela after its jets buzz U.S. Navy destroyer - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNN0pzUHBrdzllSHVnLWl4bGJoTTBtN194cDFsd3cwbGtxaklkZU8wOWxNa1BIUmFOWVV0SzZfN0VEVG1mTGdNTHQ1RTIxTThXaThTajBGenUtRzJDT2ZlOUNXRzlOM09RcEFCQWtMUDZEM0hQcmEwTUJ2ajg3bVc0MDEwNnYweWhrNEpB?oc=5) |
+| California man found to be living secretly in condominium crawl space - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOUDN3TWtTc0ZPZlBRaTZrLVd1amlrUHRFOHMwYklVWEtQWFIwZEpiQWpGS2IybGVEZFhTeXRQSU1CSVdpOXpYWl9Ub0x1eDhwNVFsQ2dNWUpXQ2hvSDVXSUxhdTRIb1dSWXJFXzRvRzFTX1ZaSHQ0dmRhQUdpdGJyRTdmNE51dFlIV2c2ajlSN0hmblBJaDc5Y0p3SnNYYklXN3BIYXU5WC1pdw?oc=5) |
+| What to Know About a Rapid U.S. Military Buildup in the Caribbean - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPTVhWamhFbDZFY1ktMkFfaGVBMUtNTk9jT1hrMXNVeExtNGJ1XzYzX01KNk5iMno4bzM4RXE0bEROY0NtbU54S3RudnFJaURyaFVoT2ZMNFpJVVJkOFhPam1sdWtmN0tuM2V0anNMdzVxaV9MM2sxLU5vY0dOUGpfZlV6QzRfLVRfWlNR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
