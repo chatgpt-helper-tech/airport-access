@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 01:32:37（北京时间）**
+🕒 更新时间：**2025年09月07日 01:40:07（北京时间）**
 
 ---
 
@@ -26,8 +26,8 @@
 | Hyundai raid: South Korea mounts swift response to deal with raid on US facility - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1ZVEFOc1E5aGQ1cmhwRTRRN09tcW5YbmFqSmVtWklVa3BpbUQwSF8wLXlwYVlNRUNxUTdPS1dEU1FDYUJkWWNycXJBVjEwR09aX04waGtvOHNHQdIBX0FVX3lxTE1lQ05jSFhwSlhjX2RJVFg2RlpTRjVGTkplN3hHX0VvaWV0TF80c3l5bm93cC1iQzItYzFUTzdyQk9NUDFBbENWdnhScjU2UGFkbi1fek40NV9fY1ZtRGVR?oc=5) |
 | Trump backs Kennedy on vaccines despite health, political risks - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxQTDlvM1VpYnVfUmdkdEpDNkNLU284amFqUk9IaEZRTUJvZ19KMWxCMVZxM1lwUkJDUHJjYWE1Q09nZnd6QzEzQUVndUt6V0o3ZWlXZEs0MzZ3MWtNVHlZXzd3OE9ZTVVvYTJfb2FzQWtlVVZVWERfWUFlWDRxb2tfV3p1ZlVkbnQ3VGx5NXM1Mm9OeVVjWjBfMGJFMWp5Y09PN2Y4X3B1UlBUenZWdTRyN1JuTGstdUpRbkNUV3lNTVhwM1RUNjlaMFdJNA?oc=5) |
 | Trumps says Venezuelan jets will be 'shot down' if they endanger US ships - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE02eHpLczdTUFVLb3RhQUJWSWVJYThDWkZCbWEzTUVWclJ5elVweW1PQkhqRTNGdGFLanJFdFFlOVZCbW1ZZlY1ZG91TVNfcmlNSFVQbXVUdnVXd9IBX0FVX3lxTE1iLUVQN1NELXNGV29NcUtEb1dnb1hkcld3dVpUNkNrUUNMS21MU0MzWjZfY0w0Ym5TZGZSdWEyUmtIei03bHRlTi1IdzV6M3AtQTVmMmFhdW1WczRUaUdj?oc=5) |
-| RFK Jr. allies claim momentum as Florida targets vaccines: ‘Fight is coming’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOSF9SY1U1ZXF0bmdaS2VMQWpRNlQwbXhtcDlrRVJOaGlEV0QwSzNsb3g5OWhISXk4dGhEV0RuNWpLdFd6emNpeWtTR1hxY3N1X2dmbUxuTTAtNTlpZ0VrRVhyQ0xZOUIwaklLcGFucXN4MzRyeU5ZOE1mSTYyWHlST0RXSHVtU3RzQVIzeHJnMllLZjRLdDNJQ19Hanc?oc=5) |
 | Where things stand with Trump's National Guard threats in Chicago and other cities - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQcFk0dGdKNmhJMm5kWnVpSEtSaFV0YlpFUThEclFmMS0zal9uR2FSTVZiMWR4bHhMMzZwdnZvcWdUOVNpcEtwRk45dDdSRGpYaFJ3dHJiYUdMQ21aczVDNHZ2bDdVcDFHNUVSV0NYTEUxejNEYUJOMU90WU9sc250QzVsNldtcmNBWjlNRDRMSk1ta2c?oc=5) |
+| RFK Jr. allies claim momentum as Florida targets vaccines: ‘Fight is coming’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOSF9SY1U1ZXF0bmdaS2VMQWpRNlQwbXhtcDlrRVJOaGlEV0QwSzNsb3g5OWhISXk4dGhEV0RuNWpLdFd6emNpeWtTR1hxY3N1X2dmbUxuTTAtNTlpZ0VrRVhyQ0xZOUIwaklLcGFucXN4MzRyeU5ZOE1mSTYyWHlST0RXSHVtU3RzQVIzeHJnMllLZjRLdDNJQ19Hanc?oc=5) |
 | Eric Adams refuses to exit NYC mayor race after reports of Trump job offer - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9MVW45UzJCVXJ5YUZJNTUwSFNNdVBRMTAxakgxVFdHZi1uWGRvZ2lzYjFJR052ZTBiRmFqbWZ3WHEyb2tiejZfUTRuNWNmNHVNN0VUX1dVNDlPVVVjeGxpUVRpeUtiTXgyNGYxZkNuYWFHQXl0Vk9z?oc=5) |
 | Amy Coney Barrett says supreme court rulings are ‘not opinion polls’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPX1R6M3VoR2tyaUVaX0UzanY2SE1JRkFULVhaX0pVY3dxSEw4bnNDc1lWVXRaSFdSNTQ4b1FLcmMxQmxEb1dWZF9ubVB0Z2RnZ19oMTFHTmxYcGRGcGl5V1RzZUdlX1FjWFpzR0lwWXZtWkVrSHNnakdvNjVQVnlHNHI2X2JsRGx4dG11ZnR0U2E?oc=5) |
 | Experts skeptical of legality of Trump’s strike on alleged drug boat - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNeGU0Z1BGZUdvVU1nWmNCZnA2TGxxbU5yX3VJOFBwTF93b2p0VXc1dkwxYmhiM09faTZhc3AtVWxReDh2MDF1UUhubVhiTHFKTEpDMzI4YmwwVlpTU2RjZ1ZoTldZZ1JlVG5wd1NnRzNFZGtkM2tMbXN3azFyVDZqbW1B?oc=5) |
