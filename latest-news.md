@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 23:17:57（北京时间）**
+🕒 更新时间：**2025年09月06日 23:24:48（北京时间）**
 
 ---
 
@@ -26,7 +26,7 @@
 | Immigration Raid on Hyundai-LG Plant in Georgia Rattles South Korea - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNWGxHamVLTXNURklMNUVVZGEtUkZpWTlSbktIOUJIMUJCSTJmZnFBSm5ieGczVnRYT3NHUWNqSElJNmR2ZDl1MUd2NzFXMjY2dWwwdXVpXy05MmJhd2RTQlFRa2hteXJFcWVOeGxaNEtzclZ3VHd3b2RaMU5NY21ZS25TUHM2eVIwVzVjR3p5WEhsaFJZSGI3RTQtSm1OMGc?oc=5) |
 | Trump backs Kennedy on vaccines despite health, political risks - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxQTDlvM1VpYnVfUmdkdEpDNkNLU284amFqUk9IaEZRTUJvZ19KMWxCMVZxM1lwUkJDUHJjYWE1Q09nZnd6QzEzQUVndUt6V0o3ZWlXZEs0MzZ3MWtNVHlZXzd3OE9ZTVVvYTJfb2FzQWtlVVZVWERfWUFlWDRxb2tfV3p1ZlVkbnQ3VGx5NXM1Mm9OeVVjWjBfMGJFMWp5Y09PN2Y4X3B1UlBUenZWdTRyN1JuTGstdUpRbkNUV3lNTVhwM1RUNjlaMFdJNA?oc=5) |
 | Where things stand with Trump's National Guard threats in Chicago and other cities - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQcFk0dGdKNmhJMm5kWnVpSEtSaFV0YlpFUThEclFmMS0zal9uR2FSTVZiMWR4bHhMMzZwdnZvcWdUOVNpcEtwRk45dDdSRGpYaFJ3dHJiYUdMQ21aczVDNHZ2bDdVcDFHNUVSV0NYTEUxejNEYUJOMU90WU9sc250QzVsNldtcmNBWjlNRDRMSk1ta2c?oc=5) |
-| Putin: Western troops in Ukraine would be fair 'targets' - DW | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQSWZCaXcwTEVHbVpJYlBRX3YtRENteTVFbG83X0tpR0dsTnUzdlhvZzQxb0V4YUhHTGx5YjBrVEdySjFRRWRIM0R5eDBGeDVHellLdUgtYlF1VnJxUDNMYWdZY25TUlBWTkUxYWpTazk3elMteEIyQy0yZDZNaUh5UEpMSHptWERGWWstUjlUb0d3a00?oc=5) |
+| Putin: Western troops in Ukraine would be fair 'targets' - dw.com | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQSWZCaXcwTEVHbVpJYlBRX3YtRENteTVFbG83X0tpR0dsTnUzdlhvZzQxb0V4YUhHTGx5YjBrVEdySjFRRWRIM0R5eDBGeDVHellLdUgtYlF1VnJxUDNMYWdZY25TUlBWTkUxYWpTazk3elMteEIyQy0yZDZNaUh5UEpMSHptWERGWWstUjlUb0d3a00?oc=5) |
 | Surfer dead after mauling by large shark off Australia beach - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBrem0yZWhaNU9WU2dIckZVVl9OMTNKQ1lzYjA1bUdSTmplMnd5a1pHdTJOcWxXZEdHazdtM2VjTFRUaHJRbnRXSFc5dHlrUUJDcFFzZEJkZTZtRG5CaTFyM0drRDJaOXNXLWctaVpodllrT2RlODJjRXY0d9IBgAFBVV95cUxQdWlJLU02V3pRLTI5eVlSMFdqNXZBQXRzTm43bG5Bc2ZZdUJ4NXRzSDhwZzV5XzFNUXJOTjhuS2JidkIxOWw1QWxhU3A2SlBDTmhha0JhOUVndV85OVRGd1FKN045SHJYenVUMzVxZXZSMkRmNFhpeUFwMjNwSDZKSA?oc=5) |
 | Judge halts Trump officials from ending special status for Venezuelans, Haitians - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOQ1dOVDhDSXR0OUVEbmlaV0lvTVpwNVA1d3pkQ05VLXc1LXROZUlMd0lCLUtlQ292Rzh4UnVSakVyTy04VVhUa1g3X19maTFueEt2MlNPVkxabmV0REs1emVMb2Q0UmFjYXR2bGY5LXJYM2ZPM3FDS1JCM2JLQ2FYRzQ1UE81VFFSQjlDZFFJemlxR0lBWWVYMjZvNFFSY3F3UVUtZnhn?oc=5) |
 | Trumps says Venezuelan jets will be 'shot down' if they endanger US ships - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE02eHpLczdTUFVLb3RhQUJWSWVJYThDWkZCbWEzTUVWclJ5elVweW1PQkhqRTNGdGFLanJFdFFlOVZCbW1ZZlY1ZG91TVNfcmlNSFVQbXVUdnVXdw?oc=5) |
