@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 11:00:45（北京时间）**
+🕒 更新时间：**2025年09月06日 11:09:49（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | How Chicago, Baltimore and New Orleans are reacting to Trump's National Guard threats - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPTFpoVXhCNDRDWXhERnZvV1dneGVvNG43RUo0TWRiZmNzTWpOeUFldWVBWVczV01fV3NoOEdzNVFVeE11OGdDTTdUU3l3azZhamJlNHRldThSak5aMU5FY2pUV2hRdWw4VUpSdC05OGR5NWlLWjlPSWVnZzc2SDdxVHVSRzY1elVDQWRLVFNXQU5Od3R6VlZKcEVrWQ?oc=5) |
 | Eric Adams refuses to exit NYC mayor race after reports of Trump job offer - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9MVW45UzJCVXJ5YUZJNTUwSFNNdVBRMTAxakgxVFdHZi1uWGRvZ2lzYjFJR052ZTBiRmFqbWZ3WHEyb2tiejZfUTRuNWNmNHVNN0VUX1dVNDlPVVVjeGxpUVRpeUtiTXgyNGYxZkNuYWFHQXl0Vk9z?oc=5) |
 | Democrat who called RFK Jr. a 'charlatan' says U.S. is vulnerable to next pandemic - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNUzZaLUhOdW55ZGdWVFdxY21QVGVrOFVkZHZWWWZaY1QyMWtsU0RnREE5YjZYblF3X1JQLXdQOEhIMUtKMk5kTWhIVzdERnMyYlNhUHFVLUhzWVg2OU9rSFNBdURCRnhoT2Rlb2sxaWt5Y3VEWmhPZk9fRlp1SkJ1X3pvNl9WWEVrMWRyTFRsLUtwNWRkWjZpelk3VlgyT09idzRCTA?oc=5) |
-| What to Know About a Rapid U.S. Military Buildup in the Caribbean - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPTVhWamhFbDZFY1ktMkFfaGVBMUtNTk9jT1hrMXNVeExtNGJ1XzYzX01KNk5iMno4bzM4RXE0bEROY0NtbU54S3RudnFJaURyaFVoT2ZMNFpJVVJkOFhPam1sdWtmN0tuM2V0anNMdzVxaV9MM2sxLU5vY0dOUGpfZlV6QzRfLVRfWlNR?oc=5) |
-| US special forces killed North Korean civilians in botched 2019 mission, NYT says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxPSTRia3VzOTVCYUNaWU1VaDEzYTVDVWhKdkRhMHFOcjN4NnJrbUp0ZVhpVl90X3lFQ2MwY2xsR0k0aHA0R0wyVEhHdnVCOXNoNWU4WkpaRHNBcEJOU094OE4zaDhVa2hZZ3BSVmYyaWNDakQxSVpEUFJUaTFNbWpFYWNwVzRjbkpxeG1iVHZVaDhxZk5KaV9IdS1KTTFJa3ZybzhEMG9zUkttLW9iS1pWSGxxSDlkbDdvdm14cUhBaG9hV0EwMmYxN3NxdWlWaE95?oc=5) |
+| Venezuela flies military aircraft over U.S. Navy ship for a second time, Pentagon officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPU3A4NnNISnRXNHhEZWh1VmRSV3BWQlVPd1ZHNjB1Smt0YkRLclo4Z2w1ekJDUjlEb01KWXk4dDhOYlg2ZEQzOXB2T3c1UEFZaVZLNHAtLWdXLU9ybFFwNG41RGc0SjJsal8wOEFtU093ckZab3B5eTdBdTZqRDdhR0FadVZuZGsta3hJZDljU2xZbHFfeGV1b0N2ckNtRkl2ZTlxMXE0czJ0WkZoWWdQclJNWnktUdIBuwFBVV95cUxNVjZmc3hGV19Ic1NGXzgzdEJlUnh2YmFjWV9SMmk5SWZNZjFKenZ1ZVVhWmFRaGI0LVE1Vl9UYkdKbVhUOHd1T1RySGE5ZUdCT0lfS0dZbGt3TGt4MEFjVEd6TksxNEE4S1JUTTFsdDB6QmRDWlB1bDdJeHpRVUJ3M250M1N1V203MWdhU1o4QXBnbWFmWFR1cXcwcWdaaWVjUVMyQ3F5VlE3N2V6Y3FpX2l6R3c3cS1ULVJB?oc=5) |
+| Trump says he doesn't know 'anything' about reported violent, failed SEAL Team 6 mission in North Korea - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQWTR6b3FBUjRhdXByNnJIN1FrLTR2Y20xc3FOSjhrMks2Wnh4dlBCRXJmXzZ3Vng0Y2NGa2hlbHpQRmNjUGtMMS1hY283M2s4N3NyOTE4V201a1ZkVTFDTk1kWXJvbnp6TWxsc2NxZTAxVTE2aWVhb1B5cVlXVjRsMnJSMms1c1JPcTN6RDZiMVRqMlFjVWlBaGROU1hBdjR6eGfSAacBQVVfeXFMTXJiUk5RRVliUTZtZ3hoVnY2WmxCZnJ3TEotXzNiN0xzVFFEY2xEX1cxbm1Fb0d3cFNrUUdvVWhhTWVIVEd1NWNES3dEaHpLUEpVZlRKX2VuTUZRR0FyRkJjMDJ5OHBRWk5TZ0xMay1IZG9nNVVmMG5fN3pIWkhPTmwteEMzd2x5ZFdMQXloWUFTUGhYVjZiVURHODdVM1NGVUp0LWYwNEU?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
