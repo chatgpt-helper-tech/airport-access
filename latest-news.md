@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 16:57:17（北京时间）**
+🕒 更新时间：**2025年09月06日 17:00:58（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump breaks from RFK on vaccines: "Pure and simple, they work" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1GV053cnhUSGNmS2EzZ01VMHhoNzFuWExTZ09QX2l3NnlEUkVQUFNrbWY4LTgyRmczSFZyUXpCMS1qQ3daQjVBbTBqUmZCay1zM1dRYXVIWjBOZnlqenJiQ2dKd2hqYmhzbmtKeXdJSHg?oc=5) |
 | Fact Sheet: President Donald J. Trump Restores the United States Department of War - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQUGtvcDIzNUNmQ1lwRWgyVC1WeERrRDFxd0pzdUlnLU94SVFuR0M3UVUxSXJpbU5qMHY3ZUZnVWNRN1YxaTJZeTVyb3hLWUs4b2pWaXhSODg4Z3hWS0N5dnNVNDFxSnpoanVXanZZLXhnbTZJUTlBZi1xOTA1eTVHYXpxS0VPM0cxY0VLcGlEZHpLc1pkTmItczM4clJWUVRZZWxvRGNaS3dveXZRSFNpdlVpUkRXOGszVVMtOUZHazI4SkxxY0dJ?oc=5) |
 | New Summer Camp Safety Laws Follow Texas’ Tragic Floods - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOOEtaUjdPZnVISzFPY2tyclNfS2xySHo0bDd2WllnNDJyMUZIZkM5OEw0OW8wMTVnRXVLT2FSRGlPWnJVUUlRMjlvX25ZeU8zcnotb0tmbmtvZGRxZzdEVEUzY1R5bmxzdkdERnNLcTc0Q1hHaDZaTkZiZ1VMaDVMVUNWTUlxSGpFaFE?oc=5) |
+| Eric Adams stays in NYC mayor's race after Trump aides tease ambassadorship - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQQWVRRDN0N1ZCYWFlTDNHLWZjVVNobmJKV3VmTFA1M3NZV29mTExtV0pRQzlvdVBIQ1JxeGV6TVRrY2liVHZyaHF2SkN5RDN6OURpeWFEZm1TbVA2cnd1WFZQS0E0a1BXcl9xZ3g0SGlTZ3VEdWpkZmV5c3hLUVhNcnN0MUdxbzNSVEZIcHVSakc5RzJZSXJYMTFjNU1KbW1tRUHSAacBQVVfeXFMTzU3UGFXc19WRW41aGQ5Snd5M2lNQzA4eXRWMFotVEJUNV82REpGX1JUaUxwdlVtMEhsSmZ4SF9IV090eG1Sd3pYU0o5cUFIVHpHYUlzNE85NFFPSnF3bVFXU3daNUJubjNqR0taUDFITGRQY0NLV0dEUFh6eUZhYWJkeTNUTEYzWGF2b3JGTVVGVkhzb2VWOTBvMDh6SjJiaWVYaEhtS2s?oc=5) |
 | US Navy SEALs killed North Korean civilians during botched mission: Report - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQVU4zenZwTkFGdENiQjhDM09SWjBVR0REM3QyNmhvNVVDN1BsS2tqRWl0MzNJaHhrdEpxQ2xLcVVpV2NfRExHT2pncUVTQTlReng5OGIwRGY0a09meEpVS3RpNzVGaDd1ejdqbXQ1REtYLUZSUEFLbXlWOVFEcE9qV0tLaGRsS0J1cFViOUQwbElkZnVJQVNqRVFHWlRfTWNtX2pnck9ibUd0M0Y4V3RqNktGZ9IBuAFBVV95cUxOQ0MtbG9BSDR2MDRpdmp4NktUVjV4am55b0NkODhIXzRnTUZFb1NCcEpCV3FJaGh3cE9LSnhDQ3U2OTdpb012aHhnOWhZY3BiYWlaS3kyY2lrcUhPYURmczRNenJSZDVyeDRmUUZCQ1pXNjN0Nk44ZzJnNm5WSXotQkZIQVhzUUZINHFLMVBHWkZpS0xUNE5CRVM5cDBXOHhoTm43QUdZWlp1TUxSdXo5Ukludnlaekdj?oc=5) |
-| NYC Mayor Eric Adams to Make ‘Important’ Campaign Announcement - Bloomberg | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOdUV5RFd4b1VJS1Z6Uk1va1hXT2lmQ2Y0bzdweU1NeUdiT3E3WExBWm94cEg1MkZIQmFsQVM0SmNGbEs3WXMxZkV5SkRncHVpTnNoZDlaTS0xWEJvU3ZRTE9DVjNQbTc0U1VsSWN0RDdsQmFhcHpKT05UX3ljVHpjdG1fem8wSklvSUxpZk5lcUlkTk5Sc3Jwbi1mQ3BMMVJ2M0RCbU55dm5wRW5WN3F5VQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
