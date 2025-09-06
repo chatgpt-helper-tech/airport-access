@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 23:40:53（北京时间）**
+🕒 更新时间：**2025年09月06日 23:48:59（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | Arrests made at rally against Palestine Action ban in London | [阅读全文](https://www.bbc.com/news/articles/c62qrmpd7l5o?at_medium=RSS&at_campaign=rss) |
 | Starmer resets after Rayner row, but Labour turmoil is a gift for Reform | [阅读全文](https://www.bbc.com/news/articles/c39rk4jlpw7o?at_medium=RSS&at_campaign=rss) |
 | Farage shifts on two-week small boats pledge | [阅读全文](https://www.bbc.com/news/articles/c237k55y90ko?at_medium=RSS&at_campaign=rss) |
-| Matt Tebbutt to replace Gregg Wallace on MasterChef: The Professionals | [阅读全文](https://www.bbc.com/news/articles/cn4wydg4212o?at_medium=RSS&at_campaign=rss) |
 | Royal Catholic funeral announced for Duchess of Kent | [阅读全文](https://www.bbc.com/news/articles/c1mx9vzmjy3o?at_medium=RSS&at_campaign=rss) |
 | When is the emergency alert test on mobile phones and can you opt out? | [阅读全文](https://www.bbc.com/news/articles/c8e1n4d14kro?at_medium=RSS&at_campaign=rss) |
 | Chris Mason: Faced with an almighty mess PM opts for big shake-up | [阅读全文](https://www.bbc.com/news/articles/cn4lz331gxdo?at_medium=RSS&at_campaign=rss) |
 | Watch: The dramatic day the government had... in under two minutes | [阅读全文](https://www.bbc.com/news/videos/cr4qx3ex13eo?at_medium=RSS&at_campaign=rss) |
 | Who's in Keir Starmer's new cabinet? | [阅读全文](https://www.bbc.com/news/articles/c0veg88g7jyo?at_medium=RSS&at_campaign=rss) |
 | He was a respected surgeon so I believed him, but he had a secret about his amputations | [阅读全文](https://www.bbc.com/news/articles/cy0vr20gxvno?at_medium=RSS&at_campaign=rss) |
+| The sunscreen scandal shocking Australia - the world's skin cancer hotspot | [阅读全文](https://www.bbc.com/news/articles/c4gzl41rpdqo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
