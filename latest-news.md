@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 05:25:57（北京时间）**
+🕒 更新时间：**2025年09月07日 05:32:49（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | What to Know About a Rapid U.S. Military Buildup in the Caribbean - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPTVhWamhFbDZFY1ktMkFfaGVBMUtNTk9jT1hrMXNVeExtNGJ1XzYzX01KNk5iMno4bzM4RXE0bEROY0NtbU54S3RudnFJaURyaFVoT2ZMNFpJVVJkOFhPam1sdWtmN0tuM2V0anNMdzVxaV9MM2sxLU5vY0dOUGpfZlV6QzRfLVRfWlNR?oc=5) |
 | Vance defends strike on alleged drug boat: ‘Highest and best use of our military’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNRk9hSWFHdXdkWE1MYU5zbWcwLTdnMHZmQ0l6eTNVWVJOSnQxYUplMnI0N1dMc1hrWWZDbUF4cndlSUNfT0dtZ09EejNQR0QtYUpQekZqSWxqclVRdmJVNlVHZFpzcEJMU0Q0WnIwTHJUYVNhSEh5aXFBWWpWVXhFR1F0RQ?oc=5) |
 | Mexican festivals in Chicago canceled amid Trump plans to deploy troops - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPUEJMVzBrR2dieC01T3dIdEYtcVdmcXBtVEZhZG9YR0JEUXFRaGtma2VoejVFMDZpbGtQQmVmenVsRl95TWlxMWxJNEI0bzNNODFqaS1nelBRUktEQzBMV05EVlB1ZkNQeTJ0MGw3aTdpMjJGTE1FWjg2TkNvVXJud1ZzU0wzS2hwQk9rX3VCWQ?oc=5) |
+| Robert F. Kennedy Jr.'s family calls for his resignation - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFB4WXhFRXlJckQ3X0U1ajQ5QVdKLTcxanlMZkdyeWVmWWg4ZERRV0lOTlVrbENRR2FfdUg3NHhIMHA4OUZfRndNZFdsRFJfdUVVRS1Yd2lvTmlJSXR1czF5WFBFQm04NjJoSGg1VEZZMkQ1RE9HN2ludTB3?oc=5) |
 | Adams refuses to leave NYC mayor race after reports of Trump job offer - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9MVW45UzJCVXJ5YUZJNTUwSFNNdVBRMTAxakgxVFdHZi1uWGRvZ2lzYjFJR052ZTBiRmFqbWZ3WHEyb2tiejZfUTRuNWNmNHVNN0VUX1dVNDlPVVVjeGxpUVRpeUtiTXgyNGYxZkNuYWFHQXl0Vk9z?oc=5) |
-| RFK. Jr’s family members say he is a ‘threat’ to Americans’ health and call for his resignation - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNeHBtUFVPV3hFN0VOMUY0S2NPSV95VDZDX1NLNTF6dExCX3lsUl9nWTZQVVdPSXk4TjlfR1JMeUxvdnBYSHF3ZFNCLTVFOWpKdElpSzdzSGcyWV9mek1yWGJ1U1NnYkUwMXdVT0FudTRvbjY0bllUQnBwVUFDRWdaSklENm14b1hoR0NxTGVkOFZ4aXBxQ2QwRnJ4bWFIRms3WnhUXzdnMWd3TzJU?oc=5) |
-| ‘It’s bad politics’: Why California Republicans are avoiding Donald Trump — and muscling in behind Arnold Schwarzenegger - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPajN4RDUxeDJEd01tekktTV83QlpZbzNvbTVzbEdxRUU4Z3ZDdDR1OU52enhSM1FMS1BkUVlUcVBpLWFLSldWa25LOXVFNkZnN0g3U29Zem1lclZ0VHhPa1NHaVdRV3J3TkxtR1p3U2ItTndxd211WURoQVRsYUtwY190RHUyeGl1bVFNckh4eXdCYlA5R1kyOVItQktkdm9VOFFBbnRR?oc=5) |
+| U.S. says it will deport Kilmar Abrego Garcia to Eswatini because he fears deportation to Uganda - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNaEN1RDNGMnBoMU9IeDAtLUF6blF3Vm00c3pwd2hyZW9JLWdsdmhndTh2aDM5aXlDUGlDQ1NNMVFZWFFfMm85RmthZlBSWnJNdVFSQUFwRlkyS3I1LXBwZFFuT2JsanZmMDNjMnNUWW1HWXR2Mk9tRzNwRFpycWFGR3NtN1JTckc0TEJocW9FQmxWa2JNajVWSlZHMDhiOGxqS190cVBLNWJqdnc1?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
