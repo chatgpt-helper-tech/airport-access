@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 11:24:07（北京时间）**
+🕒 更新时间：**2025年09月06日 11:33:10（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | Three British nationals among 16 killed in Lisbon crash | [阅读全文](https://www.bbc.com/news/articles/c62lmed42p1o?at_medium=RSS&at_campaign=rss) |
 | 'I missed Lisbon funicular commute that killed my friend' | [阅读全文](https://www.bbc.com/news/articles/c98eyp69018o?at_medium=RSS&at_campaign=rss) |
 | Do Reform's economic plans add up? | [阅读全文](https://www.bbc.com/news/articles/clyx4v44438o?at_medium=RSS&at_campaign=rss) |
+| Sinner wins to set up Alcaraz final at US Open | [阅读全文](https://www.bbc.com/sport/tennis/articles/ce84d4xpe4xo?at_medium=RSS&at_campaign=rss) |
 | Farage puts spotlight on Labour woes at Reform UK conference | [阅读全文](https://www.bbc.com/news/articles/c9wdkd581z0o?at_medium=RSS&at_campaign=rss) |
 | Darth Vader's lightsaber sells for £2.7m at auction | [阅读全文](https://www.bbc.com/news/articles/cy4rdywp34vo?at_medium=RSS&at_campaign=rss) |
 | Hamas releases video of two Israeli hostages held in Gaza | [阅读全文](https://www.bbc.com/news/articles/cy0vly9zyl2o?at_medium=RSS&at_campaign=rss) |
 | Israel destroys dozens of buildings in Gaza City as new offensive intensifies | [阅读全文](https://www.bbc.com/news/articles/czx0d71gryzo?at_medium=RSS&at_campaign=rss) |
-| Putin rejects Western security in Ukraine, warning troops would be target | [阅读全文](https://www.bbc.com/news/articles/czxwl15w2qko?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | Trump decries Epstein "hoax" despite Republicans demanding transparency - Axios | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE0yWG4zWGZ6MndTMWlZYzZveExCVWVLdDBBUVllNnoyUk96a2l1NlNhbjYxSy1JUnB3a2Vvc3dUczdnZ0c3YkxHdElwaVdsUmhJS0h4ZlpZSHBkcEtKeTF1QjU3RjR3VEQxYlFaODBoZngwMVk?oc=5) |
 | Eric Adams refuses to exit NYC mayor race after reports of Trump job offer - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9MVW45UzJCVXJ5YUZJNTUwSFNNdVBRMTAxakgxVFdHZi1uWGRvZ2lzYjFJR052ZTBiRmFqbWZ3WHEyb2tiejZfUTRuNWNmNHVNN0VUX1dVNDlPVVVjeGxpUVRpeUtiTXgyNGYxZkNuYWFHQXl0Vk9z?oc=5) |
 | Democrat who called RFK Jr. a 'charlatan' says U.S. is vulnerable to next pandemic - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNUzZaLUhOdW55ZGdWVFdxY21QVGVrOFVkZHZWWWZaY1QyMWtsU0RnREE5YjZYblF3X1JQLXdQOEhIMUtKMk5kTWhIVzdERnMyYlNhUHFVLUhzWVg2OU9rSFNBdURCRnhoT2Rlb2sxaWt5Y3VEWmhPZk9fRlp1SkJ1X3pvNl9WWEVrMWRyTFRsLUtwNWRkWjZpelk3VlgyT09idzRCTA?oc=5) |
+| US special forces killed N Korean civilians during botched mission: Report - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQVU4zenZwTkFGdENiQjhDM09SWjBVR0REM3QyNmhvNVVDN1BsS2tqRWl0MzNJaHhrdEpxQ2xLcVVpV2NfRExHT2pncUVTQTlReng5OGIwRGY0a09meEpVS3RpNzVGaDd1ejdqbXQ1REtYLUZSUEFLbXlWOVFEcE9qV0tLaGRsS0J1cFViOUQwbElkZnVJQVNqRVFHWlRfTWNtX2pnck9ibUd0M0Y4V3RqNktGZw?oc=5) |
 | What to Know About a Rapid U.S. Military Buildup in the Caribbean - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPTVhWamhFbDZFY1ktMkFfaGVBMUtNTk9jT1hrMXNVeExtNGJ1XzYzX01KNk5iMno4bzM4RXE0bEROY0NtbU54S3RudnFJaURyaFVoT2ZMNFpJVVJkOFhPam1sdWtmN0tuM2V0anNMdzVxaV9MM2sxLU5vY0dOUGpfZlV6QzRfLVRfWlNR?oc=5) |
-| Trump says he doesn't know 'anything' about reported violent, failed SEAL Team 6 mission in North Korea - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQWTR6b3FBUjRhdXByNnJIN1FrLTR2Y20xc3FOSjhrMks2Wnh4dlBCRXJmXzZ3Vng0Y2NGa2hlbHpQRmNjUGtMMS1hY283M2s4N3NyOTE4V201a1ZkVTFDTk1kWXJvbnp6TWxsc2NxZTAxVTE2aWVhb1B5cVlXVjRsMnJSMms1c1JPcTN6RDZiMVRqMlFjVWlBaGROU1hBdjR6eGfSAacBQVVfeXFMTXJiUk5RRVliUTZtZ3hoVnY2WmxCZnJ3TEotXzNiN0xzVFFEY2xEX1cxbm1Fb0d3cFNrUUdvVWhhTWVIVEd1NWNES3dEaHpLUEpVZlRKX2VuTUZRR0FyRkJjMDJ5OHBRWk5TZ0xMay1IZG9nNVVmMG5fN3pIWkhPTmwteEMzd2x5ZFdMQXloWUFTUGhYVjZiVURHODdVM1NGVUp0LWYwNEU?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
