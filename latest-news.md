@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 00:48:17（北京时间）**
+🕒 更新时间：**2025年09月07日 00:57:17（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Where things stand with Trump's National Guard threats in Chicago and other cities - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQcFk0dGdKNmhJMm5kWnVpSEtSaFV0YlpFUThEclFmMS0zal9uR2FSTVZiMWR4bHhMMzZwdnZvcWdUOVNpcEtwRk45dDdSRGpYaFJ3dHJiYUdMQ21aczVDNHZ2bDdVcDFHNUVSV0NYTEUxejNEYUJOMU90WU9sc250QzVsNldtcmNBWjlNRDRMSk1ta2c?oc=5) |
 | Putin: Western troops in Ukraine would be fair 'targets' - dw.com | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQSWZCaXcwTEVHbVpJYlBRX3YtRENteTVFbG83X0tpR0dsTnUzdlhvZzQxb0V4YUhHTGx5YjBrVEdySjFRRWRIM0R5eDBGeDVHellLdUgtYlF1VnJxUDNMYWdZY25TUlBWTkUxYWpTazk3elMteEIyQy0yZDZNaUh5UEpMSHptWERGWWstUjlUb0d3a00?oc=5) |
 | Eric Adams refuses to exit NYC mayor race after reports of Trump job offer - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9MVW45UzJCVXJ5YUZJNTUwSFNNdVBRMTAxakgxVFdHZi1uWGRvZ2lzYjFJR052ZTBiRmFqbWZ3WHEyb2tiejZfUTRuNWNmNHVNN0VUX1dVNDlPVVVjeGxpUVRpeUtiTXgyNGYxZkNuYWFHQXl0Vk9z?oc=5) |
-| The Political Upset That Should Haunt Zohran Mamdani - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOOUZiSHVOSUJNZzJWWmZiQTh6RnNIbW9EbWpRR0NxSTVkc0FGY0YwZERuNndYWXNIbDIxWGNZdzctSUcyM0lteHc5czFoRUpNY2hlbzZ1ZTFXUC1LTHZhWElpZmhNcVZmd1pkd3pyb0lmaXFKVmRHM2JDUFZ3ZWNBM2NaT1haT3VtNFQ3Z0JOVGhfLUxkU2NqSWpRR1dPYjNLTk83YVFIZ1IzUQ?oc=5) |
 | RFK Jr. allies claim momentum as Florida targets vaccines: ‘Fight is coming’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOSF9SY1U1ZXF0bmdaS2VMQWpRNlQwbXhtcDlrRVJOaGlEV0QwSzNsb3g5OWhISXk4dGhEV0RuNWpLdFd6emNpeWtTR1hxY3N1X2dmbUxuTTAtNTlpZ0VrRVhyQ0xZOUIwaklLcGFucXN4MzRyeU5ZOE1mSTYyWHlST0RXSHVtU3RzQVIzeHJnMllLZjRLdDNJQ19Hanc?oc=5) |
+| Amy Coney Barrett says supreme court rulings are ‘not opinion polls’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPX1R6M3VoR2tyaUVaX0UzanY2SE1JRkFULVhaX0pVY3dxSEw4bnNDc1lWVXRaSFdSNTQ4b1FLcmMxQmxEb1dWZF9ubVB0Z2RnZ19oMTFHTmxYcGRGcGl5V1RzZUdlX1FjWFpzR0lwWXZtWkVrSHNnakdvNjVQVnlHNHI2X2JsRGx4dG11ZnR0U2E?oc=5) |
 | Experts skeptical of legality of Trump’s strike on alleged drug boat - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNeGU0Z1BGZUdvVU1nWmNCZnA2TGxxbU5yX3VJOFBwTF93b2p0VXc1dkwxYmhiM09faTZhc3AtVWxReDh2MDF1UUhubVhiTHFKTEpDMzI4YmwwVlpTU2RjZ1ZoTldZZ1JlVG5wd1NnRzNFZGtkM2tMbXN3azFyVDZqbW1B?oc=5) |
-| Owners of Central NY factory raided by federal agents shocked: ‘We feel terrorized’ - Syracuse.com | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPdUVLZkx1X1ptWTVySWdXLWwwakxXbVJUbUs5RTBXZmtRQk5pbUhqSm9uOGEtTHVLLU5zMTI2cWdobG1QMnFyRVdKN1NXNkdvWW02aUc0Y192a3RLUzVpdGZxSVhCUmhvZlU3MjdDLUZCWklfM3B1M0JnX2RjMy1qaDZwZzFENHhTNXdlYzF1UVdBTnp2Tjg4cEVSaUp1UExXemFCMElMQUFDOW1WR1dJMDZmMU1nSUYxUXh6alg5YzlsQdIB1gFBVV95cUxQOFFYSG1xbjl1OXFwRFp2N3FXa3ZGcXp5M25NdWVYdm5xNWRLeS01NGd5NVpuY0wtMm5vTjNrcXpaTExRSFBiZThxWHpKZGVFSUEweXJ6eU5KeFRJR0F5dmJxQXNXVExHZEs5ejU0M3lSd0ZvSWo4UUxnZkFndTNtejR0aEJVMXA4aW1vZ3M1d05OZFp4UmxYcWRjMFNDZ1YxckFLLXJwTG5KeUFYVWYyRmhZNXU0R0MzYmszd2l4anMyN2dBUjNwX1hjZEo2M252aXZzUXhn?oc=5) |
+| Robert F. Kennedy Jr.'s family calls for his resignation - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFB4WXhFRXlJckQ3X0U1ajQ5QVdKLTcxanlMZkdyeWVmWWg4ZERRV0lOTlVrbENRR2FfdUg3NHhIMHA4OUZfRndNZFdsRFJfdUVVRS1Yd2lvTmlJSXR1czF5WFBFQm04NjJoSGg1VEZZMkQ1RE9HN2ludTB3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
