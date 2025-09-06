@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 12:32:45（北京时间）**
+🕒 更新时间：**2025年09月06日 12:40:13（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Eric Adams refuses to exit NYC mayor race after reports of Trump job offer - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9MVW45UzJCVXJ5YUZJNTUwSFNNdVBRMTAxakgxVFdHZi1uWGRvZ2lzYjFJR052ZTBiRmFqbWZ3WHEyb2tiejZfUTRuNWNmNHVNN0VUX1dVNDlPVVVjeGxpUVRpeUtiTXgyNGYxZkNuYWFHQXl0Vk9z?oc=5) |
 | Democrat who called RFK Jr. a 'charlatan' says U.S. is vulnerable to next pandemic - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNUzZaLUhOdW55ZGdWVFdxY21QVGVrOFVkZHZWWWZaY1QyMWtsU0RnREE5YjZYblF3X1JQLXdQOEhIMUtKMk5kTWhIVzdERnMyYlNhUHFVLUhzWVg2OU9rSFNBdURCRnhoT2Rlb2sxaWt5Y3VEWmhPZk9fRlp1SkJ1X3pvNl9WWEVrMWRyTFRsLUtwNWRkWjZpelk3VlgyT09idzRCTA?oc=5) |
 | Two Minnesota Men Arrested for Funding and Directing Kidnappings, Bombings, and Killings Overseas - Department of Justice (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNMWFPd0h3Zi1JNHBOUUVXYTNYb1YyVHg2bjJHUlU5N3NOb0Zyb1I4RHhEOURNeDhnRU1KNld5WjE2WTl0RmxfY09XNlQ4WUZBbDBqSTRqa09odFVrcjhLN1NLdUp5YWlZX0dfTS1mN1NRbTBtZEhzWkdua2U0UW5LQWJ2YkRpYUNodk9JOF9nbE1tRnlwR2NUeG5KeWhqS3FObWlITFhybEszMFRyMFVtRktnVW9qWWk5TzNsTThESQ?oc=5) |
-| Next year’s G20 summit will take place at Trump property in Miami - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPbU9NbmRqc2hST1BJZU1Ncnd5MUJiV2J4Q3cxY0w0VGVHRlF1UXpQdFRPYUgzeVFfQjFKTGVmSUZ4d3hwQ1M5SExyZjRySFVQLUdZMTNxNHNfVFlyZVJpb1dxZElvVWVpYXdwSjJ1dGg3RjZRU2Y5U1d0dWtLNGRQdDFiTmJ0S1NpazBTdmdGT0RnTkFRZFVwX21iWC05YlFzejhGRmRsS1NKOW1EcjJKOTh1cW0?oc=5) |
+| Trump Will Host G20 Summit in 2026 at His Doral Resort - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBBV0tWR1VubklYRUxHRFY5Xzl4aGs3ckw5SHNvczQxQ1RGSDV4WTlCNGd1NG1icGNiN1BTTDV4dHZ2c3MwZE5DN29nWElleFJfall5aXhBemdfMTNzdzNRWTVXRG43RlRNOFF4ajZIT0RZM1g0Q2pKV0ktQUVPRDg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
