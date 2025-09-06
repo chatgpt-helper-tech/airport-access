@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 04:57:59（北京时间）**
+🕒 更新时间：**2025年09月07日 05:00:09（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Arrests made at rally against Palestine Action ban in London | [阅读全文](https://www.bbc.com/news/articles/c62qrmpd7l5o?at_medium=RSS&at_campaign=rss) |
+| More than 425 arrested at rally against Palestine Action ban in London | [阅读全文](https://www.bbc.com/news/articles/c62qrmpd7l5o?at_medium=RSS&at_campaign=rss) |
 | Home Office clearout as Starmer reshuffles top team | [阅读全文](https://www.bbc.com/news/articles/cj4ydgr0nwpo?at_medium=RSS&at_campaign=rss) |
 | Starmer resets after Rayner row, but Labour turmoil is a gift for Reform | [阅读全文](https://www.bbc.com/news/articles/c39rk4jlpw7o?at_medium=RSS&at_campaign=rss) |
 | Snapped cable caused Lisbon funicular crash, investigators say | [阅读全文](https://www.bbc.com/news/articles/c2dnp9pre2lo?at_medium=RSS&at_campaign=rss) |
