@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 06:48:50（北京时间）**
+🕒 更新时间：**2025年09月07日 06:56:38（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| US Hyundai raid: South Korea vows support for citizens detained by ICE - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1ZVEFOc1E5aGQ1cmhwRTRRN09tcW5YbmFqSmVtWklVa3BpbUQwSF8wLXlwYVlNRUNxUTdPS1dEU1FDYUJkWWNycXJBVjEwR09aX04waGtvOHNHQQ?oc=5) |
-| Trump says Chicago ‘will find out why it’s called the Department of WAR’ ahead of planned crackdown - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE5TWms1UEtZMkF3TXB3bERLekc3THUwSzJzT3BKak9MYTNua3B0ZjB4Mm5acVZLMTR1S1lHckI3QVFvRWpEZE5LRTJUYXBmbmRDN0VlZGx1VGVManY0VkhtVUdPcTVvbHVBY1RIMnBqaEh1cnZjZVE?oc=5) |
+| 'We are the troops': Chicago braces for Trump's National Guard plan - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5FeVVYcVY1N09LYTBMWTNBLTVKbHloYjFyakktOEZlTk5mOUlvcHR6MS03TWltOHBnbTFjRlV6ZTg4cHNPR01mLW1HZEMwNl9kdDF2dDZNM2ozd9IBX0FVX3lxTE15TDE1bUI4Y2phbG9JRTk5VDUyb1BNVU5sczJOLW9Fb0RFRVY0enF4eDJXQmk4dUN0b01tZWhiX2xaZW9zd0l5TnJuMmU2YXpETnBEbTRsWHNMcFA1UThv?oc=5) |
+| What to know about a large-scale immigration raid at a Georgia manufacturing plant - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQNnh2Yk93R09GZEF6aEYyV2pfR1RwRC1ZUDVOSnZiU0JSZGpHaWxnMGZja3NJa0lPSkVYNmFBZmdfVDVLN0t5X1liV1R5RkkyQUtIdE00LXMwVDZCcXFQUm1rMUQwN3lUajJtb2NhSERWWkJrQUtDdU9NY3NBRVdSSGU4cEYxd1JFN19PSm41STVoRkVW?oc=5) |
 | Washington, DC, residents protest against Trump's troop deployment to the city - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQTm8tWTFubVRnQ0pxSnFST3Z1RW9GT1ZGVGJKZDBFRlBuSlhBRXZFNDBEcm5EV2pJdUVtQTYwaWJhdmloTlNUUng4dGowdnpsM1JMLThMM1V0UjFjVklUSV83c3FwSlBicmtHaGZ0ZnNkbU0tb2h1QlRjWHgyaFI3MVZpeWxGTFFENDNDWDVkZUdRdHE2Um1yVG5BWUl0VzNWMUpieENMa1RwWVVZaUFDUTRrMA?oc=5) |
 | Israel destroys second high-rise as assault on Gaza City intensifies - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9YV0FUeFZBRDBKNFRwdXk2a1YzYnIxdnVyenBJT2NNYjY0NFFqc0dweC11Vm8xcDdJYUgyUklCdVpqZEtDRkdfYzU5a1IzcUtvMlJXb21CSV9QUdIBX0FVX3lxTFBFVHFPemlHVGVYZ3Utc19VYmFCcHd0NFBmRUVKdzF3OFVZZDhhSjNoVkQ2RmF1SFBUcUVlTUNnOVFldkNRSkt6Q0ZYQmtWUEJwdUFVbmFVSmczLUU4Mmhj?oc=5) |
 | RFK Jr. challenged to square COVID vaccine skepticism with Trump's Operation Warp Speed - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPX0F2cTBBSnpNd2NzV0RRam0tcGo3VS1VM3I3NGE5bWgxX2NXSGlZLWVYR2JZWVVRd0xXUkNMUEpYQ2V1QTMxZUlBNDh4VjJOOEJEZHJiQ3lDYjktZ2NHMzV4SUdqbHRBYXdxczdyNnBrSHNVMzVjM0FROEFsV3E1a3VBTjRWcW1aTVlXaFNnNUpIN2FteTF6LXFqR05MQ0otbEswMldrZ2NuY3M?oc=5) |
