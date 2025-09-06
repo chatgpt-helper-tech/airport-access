@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 21:49:06（北京时间）**
+🕒 更新时间：**2025年09月06日 21:56:49（北京时间）**
 
 ---
 
@@ -9,14 +9,14 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Starmer resets after Rayner row, but Labour turmoil is a gift for Reform | [阅读全文](https://www.bbc.com/news/articles/c39rk4jlpw7o?at_medium=RSS&at_campaign=rss) |
-| Theatre director and lecturer named as British nationals killed in Lisbon crash | [阅读全文](https://www.bbc.com/news/articles/c62lmed42p1o?at_medium=RSS&at_campaign=rss) |
-| Matt Tebbutt to replace Gregg Wallace on MasterChef: The Professionals | [阅读全文](https://www.bbc.com/news/articles/cn4wydg4212o?at_medium=RSS&at_campaign=rss) |
-| Farage shifts on two-week small boats pledge | [阅读全文](https://www.bbc.com/news/articles/c237k55y90ko?at_medium=RSS&at_campaign=rss) |
 | The sunscreen scandal shocking Australia - the world's skin cancer hotspot | [阅读全文](https://www.bbc.com/news/articles/c4gzl41rpdqo?at_medium=RSS&at_campaign=rss) |
+| Farage shifts on two-week small boats pledge | [阅读全文](https://www.bbc.com/news/articles/c237k55y90ko?at_medium=RSS&at_campaign=rss) |
+| Matt Tebbutt to replace Gregg Wallace on MasterChef: The Professionals | [阅读全文](https://www.bbc.com/news/articles/cn4wydg4212o?at_medium=RSS&at_campaign=rss) |
+| He was a respected surgeon so I believed him, but he had a secret about his amputations | [阅读全文](https://www.bbc.com/news/articles/cy0vr20gxvno?at_medium=RSS&at_campaign=rss) |
+| When is the emergency alert test on mobile phones and can you opt out? | [阅读全文](https://www.bbc.com/news/articles/c8e1n4d14kro?at_medium=RSS&at_campaign=rss) |
 | Chris Mason: Faced with an almighty mess PM opts for big shake-up | [阅读全文](https://www.bbc.com/news/articles/cn4lz331gxdo?at_medium=RSS&at_campaign=rss) |
 | Watch: The dramatic day the government had... in under two minutes | [阅读全文](https://www.bbc.com/news/videos/cr4qx3ex13eo?at_medium=RSS&at_campaign=rss) |
 | Who's in Keir Starmer's new cabinet? | [阅读全文](https://www.bbc.com/news/articles/c0veg88g7jyo?at_medium=RSS&at_campaign=rss) |
-| He was a respected surgeon so I believed him, but he had a secret about his amputations | [阅读全文](https://www.bbc.com/news/articles/cy0vr20gxvno?at_medium=RSS&at_campaign=rss) |
 | Humble & sweet, but a lion - the story of the first female £1m player | [阅读全文](https://www.bbc.com/sport/football/articles/cn82lx29558o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -30,8 +30,8 @@
 | Venezuela flies military aircraft near U.S. Navy ship for a second time, Pentagon officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPU09CWDBCQUJyRWpBWXV2TE5CQnVqdktWVUxheUdWdlF3RTB2MXE1TXlybm5Sd25JU0JIMEZkdlU0V01qV1FOdkE4UW5CeDlwbUpEU0ZDUC0xZERuN3dmZmVWdWQ5VV9HMUxLNEtEOGxhVllYOXpnSUpUbVlDZURPWld2VnI5Tk9zUl8wNXRjTWpRLWh5UGZ6Rm5FdUcwOHdmdjZsZnFiUnFTcEVkcFlvOGlJMFhqZ9IBuwFBVV95cUxOU0xyYVNYWG1YR1ZyYWV1RFhyemdXdWd3aWlzanNWcmxTRHY5X0llNXJEMTAzd1NOQlF1WlRZT053MmFISXRqcVJJbnJWaURHNERiX1VVcHYxWnNuMHUtMEFGaWhROTVJd01aLWlWQWowd3ZKNGhhdGlxcnVkNUdzWUtEZkRoamJzbG40TUFWN2dPNTdIVy1ReTR3RXFJUEZrNjZpdlc4UEtlRkZtY21ZZXV0TV9JQWMzOVI0?oc=5) |
 | Eric Adams refuses to exit NYC mayor race after reports of Trump job offer - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9MVW45UzJCVXJ5YUZJNTUwSFNNdVBRMTAxakgxVFdHZi1uWGRvZ2lzYjFJR052ZTBiRmFqbWZ3WHEyb2tiejZfUTRuNWNmNHVNN0VUX1dVNDlPVVVjeGxpUVRpeUtiTXgyNGYxZkNuYWFHQXl0Vk9z?oc=5) |
 | Experts skeptical of legality of Trump’s strike on alleged drug boat - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNeGU0Z1BGZUdvVU1nWmNCZnA2TGxxbU5yX3VJOFBwTF93b2p0VXc1dkwxYmhiM09faTZhc3AtVWxReDh2MDF1UUhubVhiTHFKTEpDMzI4YmwwVlpTU2RjZ1ZoTldZZ1JlVG5wd1NnRzNFZGtkM2tMbXN3azFyVDZqbW1B?oc=5) |
+| US Navy SEALs killed North Korean civilians during botched mission: Report - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQVU4zenZwTkFGdENiQjhDM09SWjBVR0REM3QyNmhvNVVDN1BsS2tqRWl0MzNJaHhrdEpxQ2xLcVVpV2NfRExHT2pncUVTQTlReng5OGIwRGY0a09meEpVS3RpNzVGaDd1ejdqbXQ1REtYLUZSUEFLbXlWOVFEcE9qV0tLaGRsS0J1cFViOUQwbElkZnVJQVNqRVFHWlRfTWNtX2pnck9ibUd0M0Y4V3RqNktGZ9IBuAFBVV95cUxOQ0MtbG9BSDR2MDRpdmp4NktUVjV4am55b0NkODhIXzRnTUZFb1NCcEpCV3FJaGh3cE9LSnhDQ3U2OTdpb012aHhnOWhZY3BiYWlaS3kyY2lrcUhPYURmczRNenJSZDVyeDRmUUZCQ1pXNjN0Nk44ZzJnNm5WSXotQkZIQVhzUUZINHFLMVBHWkZpS0xUNE5CRVM5cDBXOHhoTm43QUdZWlp1TUxSdXo5Ukludnlaekdj?oc=5) |
 | Trump administration tells Abrego Garcia he now faces deportation to African country of Eswatini - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPRDZlaXRaNmotdldiY3hoWktjeEpQLTlGcFhEX3hFVDl2RlZBdWp6c25KMTYxZm1wbjVyc0ZDMjNua3hFN2l5eFhkV1ZwOVJ4R0E0bVBseFN6UjB6TjBrNmluQ2tDQ1ZkTDQxS0xyM1VEdFdiblN4Y0ZFSTBZY0ROTnpJd9IBiAFBVV95cUxPU1BlTFRpeTZadEdEcVBzMkpnVGMyYUZZTllCMHFSMGFQQk1IRV8yc2JUa2hhMHdaMy1fdDRvQVIwSmtxOEV4aG5ObTFjOEtDZUdhNUIyTThxTnZjaWZyTG9tY1psMkhQVXBveld0Q0p3azlKdTBwR0xtMjNqc3NFYVFlSjdhWkJW?oc=5) |
-| Fact Sheet: President Donald J. Trump Restores the United States Department of War - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQUGtvcDIzNUNmQ1lwRWgyVC1WeERrRDFxd0pzdUlnLU94SVFuR0M3UVUxSXJpbU5qMHY3ZUZnVWNRN1YxaTJZeTVyb3hLWUs4b2pWaXhSODg4Z3hWS0N5dnNVNDFxSnpoanVXanZZLXhnbTZJUTlBZi1xOTA1eTVHYXpxS0VPM0cxY0VLcGlEZHpLc1pkTmItczM4clJWUVRZZWxvRGNaS3dveXZRSFNpdlVpUkRXOGszVVMtOUZHazI4SkxxY0dJ?oc=5) |
 | Israeli military urges Gaza City residents to leave - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQWl9LZ2VCNHg5TXYzSmJXdWZMTFh2VEN1alpaRnZzRVIyeWcwMUVzYWdLT0tHSlNHdWVIazlYV3JjM0ctOFg3ZDg4UG5zWXZFLTZ4NTI1blN0S0F5QnM2Z2x3Zkd1eVNDYzNUTlVJbUdwdE10Ukw0aVhqNTZwTTMtbVQ5UGpzQm5RWWJTSXd2LWJsY2IzYzhSSDMxQ3g1NDZmMUJrNQ?oc=5) |
 
 ---
