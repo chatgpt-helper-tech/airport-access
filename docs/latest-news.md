@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 02:40:47（北京时间）**
+🕒 更新时间：**2025年09月07日 02:49:07（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Amy Coney Barrett says supreme court rulings are ‘not opinion polls’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPX1R6M3VoR2tyaUVaX0UzanY2SE1JRkFULVhaX0pVY3dxSEw4bnNDc1lWVXRaSFdSNTQ4b1FLcmMxQmxEb1dWZF9ubVB0Z2RnZ19oMTFHTmxYcGRGcGl5V1RzZUdlX1FjWFpzR0lwWXZtWkVrSHNnakdvNjVQVnlHNHI2X2JsRGx4dG11ZnR0U2E?oc=5) |
 | Mayor Eric Adams insists he's not quitting reelection campaign - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPVV9meF9Bbk9jOTQ4cl8yN0drV3hrRnRZQU9mMUJrS043NXg1Qm13cWp4aE16MGFFS1JYSTJMMjFTTmtjY2dpOTcxV1MzbVd3amw1RjA4ZTg3TkkyVE9PNnd0amFSV29ZdHpGSy1wS19Fa2RCWGZwenV4QXVjbHBoa1dEVjUwRXBiN21nMU9BMmxKbTYtRWdFM1dxZXAwck4wUVFzRHZ1TmMzelFaWjlHWg?oc=5) |
 | Judge halts Trump officials from ending special status for Venezuelans, Haitians - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOQ1dOVDhDSXR0OUVEbmlaV0lvTVpwNVA1d3pkQ05VLXc1LXROZUlMd0lCLUtlQ292Rzh4UnVSakVyTy04VVhUa1g3X19maTFueEt2MlNPVkxabmV0REs1emVMb2Q0UmFjYXR2bGY5LXJYM2ZPM3FDS1JCM2JLQ2FYRzQ1UE81VFFSQjlDZFFJemlxR0lBWWVYMjZvNFFSY3F3UVUtZnhn?oc=5) |
-| Trump administration plans to deport Kilmar Abrego Garcia to Eswatini - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQUVA3R0dxcW05am1BdDhBR1FaQmg0cTgyeU55TUZUSGdDS3dDUkpHcEgxbnpCV3dUSF9VcHlXajFaeHNVTk9YVGFkRFFpWm5OSXdRZHdVVWhfdGdabUJibGswN2xOd2dnTDdWOGpEOGxTUUZsSy0zdDdVTTZsVHFiNV93?oc=5) |
+| US tells Kilmar Ábrego García he faces deportation to Eswatini - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5xa25QNmJnNGtwU3hkOHhnMDFscTVxSmlEZ3dXSnJiSHU1ekN1dUNSd2xvQlUzNkpmcEJhZXZyWFV0eEM4d1VELUxrYkM3NW5CVzRnRUpLT2p1UdIBX0FVX3lxTE1YbExILWhSYXZNYmRjSmxYbVFRUjV1X1RXNThRNFJRbHdxT3JRWUFNSU9BU0puTXZtTVU2bFJVMEdtdTk2cUlUenhyUm5LbFU1RzFqUGhxb0l3cGZkRHRF?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
