@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 02:49:06（北京时间）**
+🕒 更新时间：**2025年09月07日 02:57:32（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | US Navy SEALs killed North Korean civilians during botched mission: Report - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQVU4zenZwTkFGdENiQjhDM09SWjBVR0REM3QyNmhvNVVDN1BsS2tqRWl0MzNJaHhrdEpxQ2xLcVVpV2NfRExHT2pncUVTQTlReng5OGIwRGY0a09meEpVS3RpNzVGaDd1ejdqbXQ1REtYLUZSUEFLbXlWOVFEcE9qV0tLaGRsS0J1cFViOUQwbElkZnVJQVNqRVFHWlRfTWNtX2pnck9ibUd0M0Y4V3RqNktGZ9IBuAFBVV95cUxOQ0MtbG9BSDR2MDRpdmp4NktUVjV4am55b0NkODhIXzRnTUZFb1NCcEpCV3FJaGh3cE9LSnhDQ3U2OTdpb012aHhnOWhZY3BiYWlaS3kyY2lrcUhPYURmczRNenJSZDVyeDRmUUZCQ1pXNjN0Nk44ZzJnNm5WSXotQkZIQVhzUUZINHFLMVBHWkZpS0xUNE5CRVM5cDBXOHhoTm43QUdZWlp1TUxSdXo5Ukludnlaekdj?oc=5) |
 | Amy Coney Barrett says supreme court rulings are ‘not opinion polls’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPX1R6M3VoR2tyaUVaX0UzanY2SE1JRkFULVhaX0pVY3dxSEw4bnNDc1lWVXRaSFdSNTQ4b1FLcmMxQmxEb1dWZF9ubVB0Z2RnZ19oMTFHTmxYcGRGcGl5V1RzZUdlX1FjWFpzR0lwWXZtWkVrSHNnakdvNjVQVnlHNHI2X2JsRGx4dG11ZnR0U2E?oc=5) |
 | Mayor Eric Adams insists he's not quitting reelection campaign - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPVV9meF9Bbk9jOTQ4cl8yN0drV3hrRnRZQU9mMUJrS043NXg1Qm13cWp4aE16MGFFS1JYSTJMMjFTTmtjY2dpOTcxV1MzbVd3amw1RjA4ZTg3TkkyVE9PNnd0amFSV29ZdHpGSy1wS19Fa2RCWGZwenV4QXVjbHBoa1dEVjUwRXBiN21nMU9BMmxKbTYtRWdFM1dxZXAwck4wUVFzRHZ1TmMzelFaWjlHWg?oc=5) |
+| U.S. says it will deport Kilmar Abrego Garcia to Eswatini because he fears deportation to Uganda - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNaEN1RDNGMnBoMU9IeDAtLUF6blF3Vm00c3pwd2hyZW9JLWdsdmhndTh2aDM5aXlDUGlDQ1NNMVFZWFFfMm85RmthZlBSWnJNdVFSQUFwRlkyS3I1LXBwZFFuT2JsanZmMDNjMnNUWW1HWXR2Mk9tRzNwRFpycWFGR3NtN1JTckc0TEJocW9FQmxWa2JNajVWSlZHMDhiOGxqS190cVBLNWJqdnc1?oc=5) |
 | Judge halts Trump officials from ending special status for Venezuelans, Haitians - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOQ1dOVDhDSXR0OUVEbmlaV0lvTVpwNVA1d3pkQ05VLXc1LXROZUlMd0lCLUtlQ292Rzh4UnVSakVyTy04VVhUa1g3X19maTFueEt2MlNPVkxabmV0REs1emVMb2Q0UmFjYXR2bGY5LXJYM2ZPM3FDS1JCM2JLQ2FYRzQ1UE81VFFSQjlDZFFJemlxR0lBWWVYMjZvNFFSY3F3UVUtZnhn?oc=5) |
-| US tells Kilmar Ábrego García he faces deportation to Eswatini - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5xa25QNmJnNGtwU3hkOHhnMDFscTVxSmlEZ3dXSnJiSHU1ekN1dUNSd2xvQlUzNkpmcEJhZXZyWFV0eEM4d1VELUxrYkM3NW5CVzRnRUpLT2p1UdIBX0FVX3lxTE1YbExILWhSYXZNYmRjSmxYbVFRUjV1X1RXNThRNFJRbHdxT3JRWUFNSU9BU0puTXZtTVU2bFJVMEdtdTk2cUlUenhyUm5LbFU1RzFqUGhxb0l3cGZkRHRF?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
