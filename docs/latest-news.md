@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 17:40:53（北京时间）**
+🕒 更新时间：**2025年09月06日 17:48:46（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | Watch: The dramatic day the government had... in under two minutes | [阅读全文](https://www.bbc.com/news/videos/cr4qx3ex13eo?at_medium=RSS&at_campaign=rss) |
 | Who's in Keir Starmer's new cabinet? | [阅读全文](https://www.bbc.com/news/articles/c0veg88g7jyo?at_medium=RSS&at_campaign=rss) |
 | Angela Rayner: Labour's working-class warrior who fell from power | [阅读全文](https://www.bbc.com/news/articles/cqlz3p0ryylo?at_medium=RSS&at_campaign=rss) |
-| How I fell for jailed amputee surgeon's sepsis lie | [阅读全文](https://www.bbc.com/news/articles/cy0vr20gxvno?at_medium=RSS&at_campaign=rss) |
+| He was a respected surgeon so I believed him, but he had a secret about his amputations | [阅读全文](https://www.bbc.com/news/articles/cy0vr20gxvno?at_medium=RSS&at_campaign=rss) |
 | The sunscreen scandal shocking Australia - the world's skin cancer hotspot | [阅读全文](https://www.bbc.com/news/articles/c4gzl41rpdqo?at_medium=RSS&at_campaign=rss) |
 | Humble & sweet, but a lion - the story of the first female £1m player | [阅读全文](https://www.bbc.com/sport/football/articles/cn82lx29558o?at_medium=RSS&at_campaign=rss) |
 
