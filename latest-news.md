@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 14:08:31（北京时间）**
+🕒 更新时间：**2025年09月06日 14:17:36（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Raid at Hyundai factory in Georgia is Trump administration’s largest yet - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQZURRYmhUV3p2clN5TkJKQzBQQWo4OVlRNFdITnd3LXc3MHRleGY2T2taWEh2Z2U1cWw0Zmk2SFRnSXUwdjdnVjBIcEhnV0ZUOWppUnhSY3hsaVVOUTJzeF9sYkRaUDFOd1YxalRYSkxGNEtHY2tCMl9xZTkwdmQ4cDFEdEVfbXNKZ3ZrTXdoZzc4WktaX0RDMHpTUV9rZw?oc=5) |
 | Trump administration tells Abrego Garcia he now faces deportation to African country of Eswatini - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPRDZlaXRaNmotdldiY3hoWktjeEpQLTlGcFhEX3hFVDl2RlZBdWp6c25KMTYxZm1wbjVyc0ZDMjNua3hFN2l5eFhkV1ZwOVJ4R0E0bVBseFN6UjB6TjBrNmluQ2tDQ1ZkTDQxS0xyM1VEdFdiblN4Y0ZFSTBZY0ROTnpJd9IBiAFBVV95cUxPU1BlTFRpeTZadEdEcVBzMkpnVGMyYUZZTllCMHFSMGFQQk1IRV8yc2JUa2hhMHdaMy1fdDRvQVIwSmtxOEV4aG5ObTFjOEtDZUdhNUIyTThxTnZjaWZyTG9tY1psMkhQVXBveld0Q0p3azlKdTBwR0xtMjNqc3NFYVFlSjdhWkJW?oc=5) |
+| Raid at Hyundai factory in Georgia is Trump administration’s largest yet - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQZURRYmhUV3p2clN5TkJKQzBQQWo4OVlRNFdITnd3LXc3MHRleGY2T2taWEh2Z2U1cWw0Zmk2SFRnSXUwdjdnVjBIcEhnV0ZUOWppUnhSY3hsaVVOUTJzeF9sYkRaUDFOd1YxalRYSkxGNEtHY2tCMl9xZTkwdmQ4cDFEdEVfbXNKZ3ZrTXdoZzc4WktaX0RDMHpTUV9rZw?oc=5) |
 | Foreign troops in Ukraine would be considered 'legitimate targets' to Russia, Putin says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQZU5SaGVkMW53QmJJSlVQMkJyRGtReC1hSGlTSFVUX1NYOXhfVXowYW1lN0hHcEdVX05kMW5WbnozUG1QRm5tbEZFaGRXdlhHRGdGWFljRXNnZnEyZ3FVd0JaZXk1b08xSnhHOURvWEd2Y3p2MWJaUnR0ZWQzQnlmbHN1WmNiMnZkLUlWQXFNRllvVVAyMVFwQU0ySEpvV05EOWJHUzNrZTZrOVNCUUd3ZEFyVWF5NGhkRW1yWExB0gHDAUFVX3lxTE1XV0ZaWEFpY1FESnYxQTNfZVRjbWhwUVNZSkJPaFJZTGx1TEgwYTFtUjFxcHFiTnBiQ1B1RHpud3pIZTJQM3pqaGliNjZ0SnR6VGFrZDFGNUpOdkJNQ19uLWplY2NZaGxBQzBqd2VReHJCUkFUeHlmMS1SU3d0R1BTdTdpcDhRV1NzYTgwS3QwekVpNmdKNzNQamtYbWdyM1dxUGE4VEY3X2wyenBySjNIbnYzOU0wNjFrenI3SVRCU1pKdw?oc=5) |
 | Judge rules ending protections for Venezuelan and Haitian migrants is unlawful - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1KZG5OUi1COVFfRldJcTB3OGVINHIyNWZYTkp2Zm5uWlVibWI4SEFlM0lHcml2d0lGc1lxTWRGWkl1YmFVRUxFYVdNdFRYVVJ1dmR2dnkzYk5oQdIBX0FVX3lxTE9CYkRzZEhjYkp4WlNfUHpLQklfVkZYb2k3RkFsNm9XdHVyeGxKY3p3M1RyNlZPZmFsSVA5aXMta2tmVEhYeF9vY0R6ZUQtOVBDRUFDeEhVcVpaR1hKNGhN?oc=5) |
 | Fact Sheet: President Donald J. Trump Restores the United States Department of War - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQUGtvcDIzNUNmQ1lwRWgyVC1WeERrRDFxd0pzdUlnLU94SVFuR0M3UVUxSXJpbU5qMHY3ZUZnVWNRN1YxaTJZeTVyb3hLWUs4b2pWaXhSODg4Z3hWS0N5dnNVNDFxSnpoanVXanZZLXhnbTZJUTlBZi1xOTA1eTVHYXpxS0VPM0cxY0VLcGlEZHpLc1pkTmItczM4clJWUVRZZWxvRGNaS3dveXZRSFNpdlVpUkRXOGszVVMtOUZHazI4SkxxY0dJ?oc=5) |
@@ -32,7 +32,7 @@
 | New Summer Camp Safety Laws Follow Texas’ Tragic Floods - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOOEtaUjdPZnVISzFPY2tyclNfS2xySHo0bDd2WllnNDJyMUZIZkM5OEw0OW8wMTVnRXVLT2FSRGlPWnJVUUlRMjlvX25ZeU8zcnotb0tmbmtvZGRxZzdEVEUzY1R5bmxzdkdERnNLcTc0Q1hHaDZaTkZiZ1VMaDVMVUNWTUlxSGpFaFE?oc=5) |
 | Eric Adams refuses to exit NYC mayor race after reports of Trump job offer - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9MVW45UzJCVXJ5YUZJNTUwSFNNdVBRMTAxakgxVFdHZi1uWGRvZ2lzYjFJR052ZTBiRmFqbWZ3WHEyb2tiejZfUTRuNWNmNHVNN0VUX1dVNDlPVVVjeGxpUVRpeUtiTXgyNGYxZkNuYWFHQXl0Vk9z?oc=5) |
 | Democrat who called RFK Jr. a 'charlatan' says U.S. is vulnerable to next pandemic - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNUzZaLUhOdW55ZGdWVFdxY21QVGVrOFVkZHZWWWZaY1QyMWtsU0RnREE5YjZYblF3X1JQLXdQOEhIMUtKMk5kTWhIVzdERnMyYlNhUHFVLUhzWVg2OU9rSFNBdURCRnhoT2Rlb2sxaWt5Y3VEWmhPZk9fRlp1SkJ1X3pvNl9WWEVrMWRyTFRsLUtwNWRkWjZpelk3VlgyT09idzRCTA?oc=5) |
-| Two Minnesota Men Arrested for Funding and Directing Kidnappings, Bombings, and Killings Overseas - Department of Justice (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNMWFPd0h3Zi1JNHBOUUVXYTNYb1YyVHg2bjJHUlU5N3NOb0Zyb1I4RHhEOURNeDhnRU1KNld5WjE2WTl0RmxfY09XNlQ4WUZBbDBqSTRqa09odFVrcjhLN1NLdUp5YWlZX0dfTS1mN1NRbTBtZEhzWkdua2U0UW5LQWJ2YkRpYUNodk9JOF9nbE1tRnlwR2NUeG5KeWhqS3FObWlITFhybEszMFRyMFVtRktnVW9qWWk5TzNsTThESQ?oc=5) |
+| Venezuela flies military aircraft near U.S. Navy ship for a second time, Pentagon officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPU09CWDBCQUJyRWpBWXV2TE5CQnVqdktWVUxheUdWdlF3RTB2MXE1TXlybm5Sd25JU0JIMEZkdlU0V01qV1FOdkE4UW5CeDlwbUpEU0ZDUC0xZERuN3dmZmVWdWQ5VV9HMUxLNEtEOGxhVllYOXpnSUpUbVlDZURPWld2VnI5Tk9zUl8wNXRjTWpRLWh5UGZ6Rm5FdUcwOHdmdjZsZnFiUnFTcEVkcFlvOGlJMFhqZ9IBuwFBVV95cUxOU0xyYVNYWG1YR1ZyYWV1RFhyemdXdWd3aWlzanNWcmxTRHY5X0llNXJEMTAzd1NOQlF1WlRZT053MmFISXRqcVJJbnJWaURHNERiX1VVcHYxWnNuMHUtMEFGaWhROTVJd01aLWlWQWowd3ZKNGhhdGlxcnVkNUdzWUtEZkRoamJzbG40TUFWN2dPNTdIVy1ReTR3RXFJUEZrNjZpdlc4UEtlRkZtY21ZZXV0TV9JQWMzOVI0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
