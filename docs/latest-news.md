@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 19:09:33（北京时间）**
+🕒 更新时间：**2025年09月06日 19:16:02（北京时间）**
 
 ---
 
@@ -10,6 +10,7 @@
 |--------|-------------|
 | Chris Mason: Faced with an almighty mess PM opts for big shake-up | [阅读全文](https://www.bbc.com/news/articles/cn4lz331gxdo?at_medium=RSS&at_campaign=rss) |
 | Theatre director and lecturer named as British nationals killed in Lisbon crash | [阅读全文](https://www.bbc.com/news/articles/c62lmed42p1o?at_medium=RSS&at_campaign=rss) |
+| Matt Tebbutt to replace Gregg Wallace on MasterChef: The Professionals | [阅读全文](https://www.bbc.com/news/articles/cn4wydg4212o?at_medium=RSS&at_campaign=rss) |
 | Rosenberg: What's behind Putin's uncompromising stance on Ukraine? | [阅读全文](https://www.bbc.com/news/articles/c0m40pv44kgo?at_medium=RSS&at_campaign=rss) |
 | The sunscreen scandal shocking Australia - the world's skin cancer hotspot | [阅读全文](https://www.bbc.com/news/articles/c4gzl41rpdqo?at_medium=RSS&at_campaign=rss) |
 | Watch: The dramatic day the government had... in under two minutes | [阅读全文](https://www.bbc.com/news/videos/cr4qx3ex13eo?at_medium=RSS&at_campaign=rss) |
@@ -17,7 +18,6 @@
 | Angela Rayner: Labour's working-class warrior who fell from power | [阅读全文](https://www.bbc.com/news/articles/cqlz3p0ryylo?at_medium=RSS&at_campaign=rss) |
 | He was a respected surgeon so I believed him, but he had a secret about his amputations | [阅读全文](https://www.bbc.com/news/articles/cy0vr20gxvno?at_medium=RSS&at_campaign=rss) |
 | Humble & sweet, but a lion - the story of the first female £1m player | [阅读全文](https://www.bbc.com/sport/football/articles/cn82lx29558o?at_medium=RSS&at_campaign=rss) |
-| Russia targets WhatsApp and pushes new 'super-app' as internet blackouts grow | [阅读全文](https://www.bbc.com/news/articles/ce9rj2145jgo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
