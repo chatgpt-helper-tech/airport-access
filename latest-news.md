@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 05:40:10（北京时间）**
+🕒 更新时间：**2025年09月07日 05:48:18（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Israel destroys second high-rise as assault on Gaza City intensifies - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9YV0FUeFZBRDBKNFRwdXk2a1YzYnIxdnVyenBJT2NNYjY0NFFqc0dweC11Vm8xcDdJYUgyUklCdVpqZEtDRkdfYzU5a1IzcUtvMlJXb21CSV9QUdIBX0FVX3lxTFBFVHFPemlHVGVYZ3Utc19VYmFCcHd0NFBmRUVKdzF3OFVZZDhhSjNoVkQ2RmF1SFBUcUVlTUNnOVFldkNRSkt6Q0ZYQmtWUEJwdUFVbmFVSmczLUU4Mmhj?oc=5) |
 | Trump backs Kennedy on vaccines despite health, political risks - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxQTDlvM1VpYnVfUmdkdEpDNkNLU284amFqUk9IaEZRTUJvZ19KMWxCMVZxM1lwUkJDUHJjYWE1Q09nZnd6QzEzQUVndUt6V0o3ZWlXZEs0MzZ3MWtNVHlZXzd3OE9ZTVVvYTJfb2FzQWtlVVZVWERfWUFlWDRxb2tfV3p1ZlVkbnQ3VGx5NXM1Mm9OeVVjWjBfMGJFMWp5Y09PN2Y4X3B1UlBUenZWdTRyN1JuTGstdUpRbkNUV3lNTVhwM1RUNjlaMFdJNA?oc=5) |
 | ICE Is Said to Have Begun Operation in the Boston Area - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBldU5yZ2c0OWhTMjlCM2NJMDRCc0hLamQzbkpDdmRLdTRZVXNpS2hXdU9QRUxmN1BFODdMZklJcm1hSzZvTGVvU1dWVHpxbEU1QkJKTzZZUFhHbzBSempzckF5OFpqYnhkNEZjaW03MkhZcFUwajJBTnN3TFo?oc=5) |
-| Venezuela flies military aircraft near U.S. Navy ship for a second time, Pentagon officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPU09CWDBCQUJyRWpBWXV2TE5CQnVqdktWVUxheUdWdlF3RTB2MXE1TXlybm5Sd25JU0JIMEZkdlU0V01qV1FOdkE4UW5CeDlwbUpEU0ZDUC0xZERuN3dmZmVWdWQ5VV9HMUxLNEtEOGxhVllYOXpnSUpUbVlDZURPWld2VnI5Tk9zUl8wNXRjTWpRLWh5UGZ6Rm5FdUcwOHdmdjZsZnFiUnFTcEVkcFlvOGlJMFhqZ9IBuwFBVV95cUxOU0xyYVNYWG1YR1ZyYWV1RFhyemdXdWd3aWlzanNWcmxTRHY5X0llNXJEMTAzd1NOQlF1WlRZT053MmFISXRqcVJJbnJWaURHNERiX1VVcHYxWnNuMHUtMEFGaWhROTVJd01aLWlWQWowd3ZKNGhhdGlxcnVkNUdzWUtEZkRoamJzbG40TUFWN2dPNTdIVy1ReTR3RXFJUEZrNjZpdlc4UEtlRkZtY21ZZXV0TV9JQWMzOVI0?oc=5) |
+| Vance defends strike on alleged drug boat: ‘Highest and best use of our military’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNRk9hSWFHdXdkWE1MYU5zbWcwLTdnMHZmQ0l6eTNVWVJOSnQxYUplMnI0N1dMc1hrWWZDbUF4cndlSUNfT0dtZ09EejNQR0QtYUpQekZqSWxqclVRdmJVNlVHZFpzcEJMU0Q0WnIwTHJUYVNhSEh5aXFBWWpWVXhFR1F0RQ?oc=5) |
 | Mexican festivals in Chicago canceled amid Trump plans to deploy troops - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPUEJMVzBrR2dieC01T3dIdEYtcVdmcXBtVEZhZG9YR0JEUXFRaGtma2VoejVFMDZpbGtQQmVmenVsRl95TWlxMWxJNEI0bzNNODFqaS1nelBRUktEQzBMV05EVlB1ZkNQeTJ0MGw3aTdpMjJGTE1FWjg2TkNvVXJud1ZzU0wzS2hwQk9rX3VCWQ?oc=5) |
 | Robert F. Kennedy Jr.'s family calls for his resignation - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFB4WXhFRXlJckQ3X0U1ajQ5QVdKLTcxanlMZkdyeWVmWWg4ZERRV0lOTlVrbENRR2FfdUg3NHhIMHA4OUZfRndNZFdsRFJfdUVVRS1Yd2lvTmlJSXR1czF5WFBFQm04NjJoSGg1VEZZMkQ1RE9HN2ludTB3?oc=5) |
 | Adams refuses to leave NYC mayor race after reports of Trump job offer - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9MVW45UzJCVXJ5YUZJNTUwSFNNdVBRMTAxakgxVFdHZi1uWGRvZ2lzYjFJR052ZTBiRmFqbWZ3WHEyb2tiejZfUTRuNWNmNHVNN0VUX1dVNDlPVVVjeGxpUVRpeUtiTXgyNGYxZkNuYWFHQXl0Vk9z?oc=5) |
