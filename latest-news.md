@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月06日 13:41:49（北京时间）**
+🕒 更新时间：**2025年09月06日 13:49:52（北京时间）**
 
 ---
 
@@ -8,7 +8,6 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Starmer carries out major reshuffle after Rayner resignation | [阅读全文](https://www.bbc.com/news/articles/cgmzgjywr8wo?at_medium=RSS&at_campaign=rss) |
 | Chris Mason: Faced with an almighty mess PM opts for big shake-up | [阅读全文](https://www.bbc.com/news/articles/cn4lz331gxdo?at_medium=RSS&at_campaign=rss) |
 | Three British nationals among 16 killed in Lisbon crash | [阅读全文](https://www.bbc.com/news/articles/c62lmed42p1o?at_medium=RSS&at_campaign=rss) |
 | Do Reform's economic plans add up? | [阅读全文](https://www.bbc.com/news/articles/clyx4v44438o?at_medium=RSS&at_campaign=rss) |
@@ -18,6 +17,7 @@
 | Man dies after suspected shark attack in Sydney | [阅读全文](https://www.bbc.com/news/articles/cy8r9p28yp7o?at_medium=RSS&at_campaign=rss) |
 | ICE raid on Hyundai plant in Georgia swept up workers on visitor visas | [阅读全文](https://www.bbc.com/news/articles/cy50yge052xo?at_medium=RSS&at_campaign=rss) |
 | Hamas releases video of two Israeli hostages held in Gaza | [阅读全文](https://www.bbc.com/news/articles/cy0vly9zyl2o?at_medium=RSS&at_campaign=rss) |
+| Watch: The dramatic day the government had... in under two minutes | [阅读全文](https://www.bbc.com/news/videos/cr4qx3ex13eo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | Will Trump Have to Run From the Economy? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPR18wemlkX3M2S2d6TTllZFV2YU1MZ0lObmJaOU5RSXFzN2FMdzU1czRGVS05azFRbjFlTElNU3c4NGJudWRLdEhoT216NHM4MGR2ZU9IZTB4WjRkLTl5TVVMZWVndTBqc3hETDFpTy1TaVNmUE0xZ0sybXQ1MWZlcTAzb0Fxdw?oc=5) |
 | Eric Adams refuses to exit NYC mayor race after reports of Trump job offer - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9MVW45UzJCVXJ5YUZJNTUwSFNNdVBRMTAxakgxVFdHZi1uWGRvZ2lzYjFJR052ZTBiRmFqbWZ3WHEyb2tiejZfUTRuNWNmNHVNN0VUX1dVNDlPVVVjeGxpUVRpeUtiTXgyNGYxZkNuYWFHQXl0Vk9z?oc=5) |
 | Democrat who called RFK Jr. a 'charlatan' says U.S. is vulnerable to next pandemic - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNUzZaLUhOdW55ZGdWVFdxY21QVGVrOFVkZHZWWWZaY1QyMWtsU0RnREE5YjZYblF3X1JQLXdQOEhIMUtKMk5kTWhIVzdERnMyYlNhUHFVLUhzWVg2OU9rSFNBdURCRnhoT2Rlb2sxaWt5Y3VEWmhPZk9fRlp1SkJ1X3pvNl9WWEVrMWRyTFRsLUtwNWRkWjZpelk3VlgyT09idzRCTA?oc=5) |
-| ‘Like living in hell’: Trump hints Portland could be next city to see National Guard on streets - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE96SXUxaVFvZ3JraktYUVotM2lIc2I4WUtTUUJfM1FsX3VrcVp1QVFYQmhpWl9mUzZCVkNUOUNDTlQyYmpYTWwzWFFjdVEyX1U4NTVIWFRnd1lINDRGNFVEQ2ZGWjBrZTg0ajdrV0tfTWJhTHozRHVtWg?oc=5) |
 | Two Minnesota Men Arrested for Funding and Directing Kidnappings, Bombings, and Killings Overseas - Department of Justice (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNMWFPd0h3Zi1JNHBOUUVXYTNYb1YyVHg2bjJHUlU5N3NOb0Zyb1I4RHhEOURNeDhnRU1KNld5WjE2WTl0RmxfY09XNlQ4WUZBbDBqSTRqa09odFVrcjhLN1NLdUp5YWlZX0dfTS1mN1NRbTBtZEhzWkdua2U0UW5LQWJ2YkRpYUNodk9JOF9nbE1tRnlwR2NUeG5KeWhqS3FObWlITFhybEszMFRyMFVtRktnVW9qWWk5TzNsTThESQ?oc=5) |
+| Trump Will Host G20 Summit in 2026 at His Doral Resort - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBBV0tWR1VubklYRUxHRFY5Xzl4aGs3ckw5SHNvczQxQ1RGSDV4WTlCNGd1NG1icGNiN1BTTDV4dHZ2c3MwZE5DN29nWElleFJfall5aXhBemdfMTNzdzNRWTVXRG43RlRNOFF4ajZIT0RZM1g0Q2pKV0ktQUVPRDg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
