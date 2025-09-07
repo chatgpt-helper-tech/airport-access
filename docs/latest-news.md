@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 09:00:44（北京时间）**
+🕒 更新时间：**2025年09月07日 09:09:46（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump administration begins new Ice operation in Massachusetts - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPTkZMS3pkeTJiR3pPeDhOZmJaQlllMVNCalRDaFV4Uk1lSnJta0QxT25Va05PdVJPWkRLT3E3cHZNbzJndWI3RkxOTkNKUTdYVGEzdDUyQm05TVFFVlluaFVxdlNEbW9vQ1ZWcXY1Q1lYdm50ZzNJNDlaNUlnTTJGY25JVlRpZENhYlpVaG1BekdRYVd0WWNKUlBENEZhRUZwekRCLVVpTQ?oc=5) |
 | In Chicago, ICE fears turn Mexican parade into a ghost town - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPYXplSlRCVzdWMGwtOUQ0b0JEdk1CQVUwQy1hYktzNDk0RFVkd0V5blBfVXVJNjQxdlhZbTNvVUJlbXlOQkVkZWctTk84RWxRZUYwQVltb1BGTzZ1NjdIdzRYa3V2dkVXVXZpUkpEaDZnbFpLNHdXaVNfQTNEdmlSTkNiSzdlQjVfZ0tUVEJrMzFTbktwbWg4dkNIWk9Bc2c?oc=5) |
 | Maduro vows to defend Venezuela’s sovereignty as tensions with U.S. escalate - PBS | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPengtZ3ppSExPNmc1M2JlZGpYN2NoNWd6LW85eDdvQkpmU011dExqcFFLbXJlMDdfS3pRSElaOHQxMDR4MjJ6S18wcXVGVlBVTGJ2NC1IeXVwc29aUzdwa0hGbHZlUURnQ3R5ZzdTdm1MN3dVbjJmWmd0RXdnbFpDWEc0YnZiaW9RRjQ3ZnRCNFN5TU5uN3phN2JzUmRScG5RSGdYZmV0dE1tZmhPR3fSAbMBQVVfeXFMT24xb1QtWXNMSmJpb1FrSjUxaGhQcGZxeWZRUnFxdS15V1RZSFg4SG1aZ2t1TEh6aURaM3ItOXljd0d4OWp4SXVkbElYNVdrLXJ2X2FQQkRTREdPUXBocFQ5YmlSVGFmdlJZemNSbUpBeDBFSlpualY0aFdxQ2ctcUVxOXl0SlF2ZXc0dFltWTdsNnh0MzNXVlpFYjlLX1FRcEtwbGhsZWNWTGhvN0UyckpHYWc?oc=5) |
-| RFK. Jr’s family members say he is a ‘threat’ to Americans’ health and call for his resignation - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNeHBtUFVPV3hFN0VOMUY0S2NPSV95VDZDX1NLNTF6dExCX3lsUl9nWTZQVVdPSXk4TjlfR1JMeUxvdnBYSHF3ZFNCLTVFOWpKdElpSzdzSGcyWV9mek1yWGJ1U1NnYkUwMXdVT0FudTRvbjY0bllUQnBwVUFDRWdaSklENm14b1hoR0NxTGVkOFZ4aXBxQ2QwRnJ4bWFIRms3WnhUXzdnMWd3TzJU?oc=5) |
+| President of Peace, Department of War. A New Name Sends Mixed Signals. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNemVDb29uMDU4c1lBaG9lSW5GdGl0bVpZMm41QTl1WHliZkNxTW1oVjlROF9vTDc1VmFXUXlmZDNrMVFPMlJwc2hxSDlpb2RDamhmVlBJdWRmVGswOXpObTJaRFVoMG1NeFdDTTlfcTR4MjNTVThHd3M4RkpFSjFWYw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
