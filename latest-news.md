@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 23:56:23（北京时间）**
+🕒 更新时间：**2025年09月08日 00:00:54（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | 300 South Koreans detained at Hyundai plant in US to be released, says Seoul - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPckUxSnNhbVRFVE1GUFo0QkdBR1JUaVB3NDh3blN1LWo2UEcxVjFlUlYxby1ReWp6QnJiMGZTcnEwNEpyNzNYcGZQLUtrRGlEUTlUSFdFR213NF9KRWZZdXhENFJKN21rOUlzNHRZWUtJMXhDZ3lMdFVCbXZhN0VLUGNYV0RrdW1jQ2tHQjBBX2JxbkEycVhYQjVTZGo0SkczX28wSzJBRmQ5VXQ1MnV3U1dFNmZQSTMzWUdnYld2T28?oc=5) |
-| Ukraine cabinet building hit in largest Russian strike of war, Zelenskyy says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOTmotOTU1dVhqSkpaNGcxODFzNHNQbVhISVVHV3djQjBEVnk4azFPR0k3ejNuZGdRTmpvVmhjd09HU3pJbTlxbVhzN0wwNHB2SnlVSXJydjFqWHVvcmcwSXZWSUl3Zi1pRFduUUlSdk40WDg5XzhNYzFRczY5Rk9xWS0tVG1GeDlQNFlDaVZ1SGhjYkRIUDRmQnBhZUU4VFVVNW1wdVNEU1JHbWhiTlh4bdIBtgFBVV95cUxPb05IaUFZUUNZNG5FQlpiVEdlRy1scTg5WnNlYTRfT2d3aTluTkpiR2dxUHBuNXJ3Y3g3S0RvRGJwQVBCNGdkdWswT3pSNnE1VjRKSGh4dE10a3B3d05mSlUteHBQUXdLdkwtQUd0dzJQYXhzLUlnazl0eTJ6SUhJbFhWMDJEbVBEU0ZGbWNiLVMtNjEtbjF5aTlEeEg0cEZlUjN4ZzVEN2txTi13SGlpQjBBdV9kUQ?oc=5) |
 | CBS News poll: On Trump deploying National Guard, divisions over impact on crime, rights - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5VRjktOTE1WkNWUU9tOUhqa2xfMGFUcGpWdzVXZkVuT3BIZmhGSE1jb1pvY1NWMFpaRnZJRHZMdmdndWNhZURXaXNGOVhzWEFEWk9zTzNPaXllaDBNQ3J4ZDlDS3F1endhN1RRYVY1eGpnS1B1RnFoNTR3?oc=5) |
+| Ukraine cabinet building hit in largest Russian strike of war, Zelenskyy says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOTmotOTU1dVhqSkpaNGcxODFzNHNQbVhISVVHV3djQjBEVnk4azFPR0k3ejNuZGdRTmpvVmhjd09HU3pJbTlxbVhzN0wwNHB2SnlVSXJydjFqWHVvcmcwSXZWSUl3Zi1pRFduUUlSdk40WDg5XzhNYzFRczY5Rk9xWS0tVG1GeDlQNFlDaVZ1SGhjYkRIUDRmQnBhZUU4VFVVNW1wdVNEU1JHbWhiTlh4bdIBtgFBVV95cUxPb05IaUFZUUNZNG5FQlpiVEdlRy1scTg5WnNlYTRfT2d3aTluTkpiR2dxUHBuNXJ3Y3g3S0RvRGJwQVBCNGdkdWswT3pSNnE1VjRKSGh4dE10a3B3d05mSlUteHBQUXdLdkwtQUd0dzJQYXhzLUlnazl0eTJ6SUhJbFhWMDJEbVBEU0ZGbWNiLVMtNjEtbjF5aTlEeEg0cEZlUjN4ZzVEN2txTi13SGlpQjBBdV9kUQ?oc=5) |
 | Japan's Prime Minister Shigeru Ishiba resigns after election defeats - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5tWWxMU0M2MS1vYktadnlPVFV2V1BmSlN3ejdwMURrV29mdWlzYlhfN2Z4eFdzZXdGWnJLT3VSOHZaTzFVX05zWXVqdWZBZ1pVMkIxQzdrUVJDdw?oc=5) |
 | A teen nicknamed 'God's influencer' has become the first millennial saint - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNLUJZbzRtRlZkUlR2eTJDZXJKUk9PTkRJSGtaNFNlT1IwRXFQdk1KM2RhSEYxNzhEZmxPUlpNMDQ4elY2aUFudGFXcS1MTVlLZm9NcXYtSS1aTDlRYmJEZGszOW9PNGhrNmNCRTNrbVNFSGtIN2xTY0l0ZHlfOXZSZHBwYmpPeFI1YW56cmFhVlM0VllLMlJDaGtwS2tOa0FUVzlObURB?oc=5) |
 | Trump administration launches immigration crackdown in Massachusetts, reports say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxPNTY5cWF5Xzc1MzQtemhXTW80ZlU3MmcyanJ0aldsSGkyZ0xPX01RTEVtWDdMR3l2cFhmTEFJZU1jdi1NUm1oOV83RGsyaDhpODh3bTVKUm1PRUlPT1daM1VJbmx3YXlWeFNQZzhEZzRENGlvdHN1QnZfUThmQ0l5WUxYR0pVTEo3YXc1dEZWdWczYmwwcDNwSEljRWhDLWh0UGZhWjdxVUpTc2Nyc2lNYTcyMndGdXY1V1k1dXRtMA?oc=5) |
