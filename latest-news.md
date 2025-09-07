@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 23:01:34（北京时间）**
+🕒 更新时间：**2025年09月07日 23:09:36（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| 300 South Koreans detained at Hyundai plant in US to be released, says Seoul - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPckUxSnNhbVRFVE1GUFo0QkdBR1JUaVB3NDh3blN1LWo2UEcxVjFlUlYxby1ReWp6QnJiMGZTcnEwNEpyNzNYcGZQLUtrRGlEUTlUSFdFR213NF9KRWZZdXhENFJKN21rOUlzNHRZWUtJMXhDZ3lMdFVCbXZhN0VLUGNYV0RrdW1jQ2tHQjBBX2JxbkEycVhYQjVTZGo0SkczX28wSzJBRmQ5VXQ1MnV3U1dFNmZQSTMzWUdnYld2T28?oc=5) |
+| South Korea to bring home 300 workers detained in massive Hyundai plant raid in Georgia - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPV0JYUVpxNndhdEJEN3ZZTms0N1BST1RFY0dCXzFxQ09GY2xwUm42RXgzVTlVUXR0a2M1X2RDZkwtb0xlcGhBbUliNTBJS3JNdG1DdURtRDZZU1AxZHlkLXpoeUdpb3RDaHVxamJGbTVQYXZ1TmVhWHdQLXRHajQ1dVVOOWpybUVrUDdxS3QtZXlFM0FsRFFqYXpGVmJsTVNu?oc=5) |
 | Ukraine cabinet building hit in largest Russian strike of war, Zelenskyy says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOTmotOTU1dVhqSkpaNGcxODFzNHNQbVhISVVHV3djQjBEVnk4azFPR0k3ejNuZGdRTmpvVmhjd09HU3pJbTlxbVhzN0wwNHB2SnlVSXJydjFqWHVvcmcwSXZWSUl3Zi1pRFduUUlSdk40WDg5XzhNYzFRczY5Rk9xWS0tVG1GeDlQNFlDaVZ1SGhjYkRIUDRmQnBhZUU4VFVVNW1wdVNEU1JHbWhiTlh4bdIBtgFBVV95cUxPb05IaUFZUUNZNG5FQlpiVEdlRy1scTg5WnNlYTRfT2d3aTluTkpiR2dxUHBuNXJ3Y3g3S0RvRGJwQVBCNGdkdWswT3pSNnE1VjRKSGh4dE10a3B3d05mSlUteHBQUXdLdkwtQUd0dzJQYXhzLUlnazl0eTJ6SUhJbFhWMDJEbVBEU0ZGbWNiLVMtNjEtbjF5aTlEeEg0cEZlUjN4ZzVEN2txTi13SGlpQjBBdV9kUQ?oc=5) |
 | CBS News poll: On Trump deploying National Guard, divisions over impact on crime, rights - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5VRjktOTE1WkNWUU9tOUhqa2xfMGFUcGpWdzVXZkVuT3BIZmhGSE1jb1pvY1NWMFpaRnZJRHZMdmdndWNhZURXaXNGOVhzWEFEWk9zTzNPaXllaDBNQ3J4ZDlDS3F1endhN1RRYVY1eGpnS1B1RnFoNTR3?oc=5) |
 | Japan's Prime Minister Shigeru Ishiba resigns - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5tWWxMU0M2MS1vYktadnlPVFV2V1BmSlN3ejdwMURrV29mdWlzYlhfN2Z4eFdzZXdGWnJLT3VSOHZaTzFVX05zWXVqdWZBZ1pVMkIxQzdrUVJDd9IBX0FVX3lxTFBSYl9xMERSOHhXN185NFl4RHRkTEdjR1c0UkR5RUJqOUhhLU1kb3RDdnN5aF9DenBJQ2N2M1VQcngyZU9JLUJMc2RISmM5a1JpeU1FeFZkZFRvZmctbWVF?oc=5) |
@@ -32,7 +32,7 @@
 | Rand Paul clashes with JD Vance over US strike on boat leaving Venezuela - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPZHlnXzlZcHRySS1wb1BhZjEyNlZ2NHBrbzZGbHdKdTNNOG16Mkg0RkkxLVVHU0tyRllrUm9DaFkxNmZXMmZXbE9VRU1fcjJGM3lFZXd1NF9qTFhJTWIxV0xfaDRFNXRsUWNadXZ3aVZWdHdPUFVYYXRQSmd3RXYxTGZpYXR3bFNncnRQQnBVM0VmWE8yRUxFYkh6aVhyNG56NmVCOXNsV0VXVlFKbkVBd3RLdDRxUQ?oc=5) |
 | Justice Amy Coney Barrett responds to criticism that the Supreme Court is allowing Trump to expand his power - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOT2JTWWZrdVQwcWg0ZTVJNHlPNlJ4Q2ZiTUhET1BadFZEMTN4Z3p0VjZmb2lSbmFNeEE0bXRMeUxrZWV2OUhUOFdTOEROWFV3RmhSWVBSdm1RbXZaaERKNTdTc2t0enlsU3N6ODhTMGltdmlfTVBGZmhoWkR0bTNQLUthZUY3YjVCTEctbm5sN1LSAZYBQVVfeXFMT2FyRzhPX1RyNklEOExLZVNaQ1F6b3hBeVhJV1QwVTZmY0prQVZ4WFdMWHBoMjhzRE5jRTJjMEtkU2R1eVdxd3BwQ3drYjdSdDRlVmFXdS1ibmN0TWFXdy1IY0NjVy1wa1FtOFhudWl5d19fckt3dFNzZDgyMmN2ZWRSaUxLNWR2NnFMSVAySFRyRUdMaXln?oc=5) |
 | Conservatives have a message for Trump: We want more babies - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxQTmMwbk43bVN6MG0wMWJJeTN6dGNOYkpkdjhqaXRLU00yZHBEcEtjVTl3MFNIQ2lFV0lOUS1xemNodGFEX3ZqamtxZlNSSG5hVzlaVHA0RHhaaUt2Y3pJYjcxYWVhdDV3UXQzYkV5eGVVdnM4Wjc0U1FtakVTY0NlSXMzX2JCb01OWW1KYmR0Wk5FOVhrNmlFOW9BQUFKa1dFQXdQaExIUXBobEszQTF1Mm80TWYxUVRPaXpFQXRSV0dQY0c0OHdpR0hiMDA?oc=5) |
-| ICE begins immigration crackdown in Massachusetts, DHS says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQUjAwWjZwUWhGTEZoWDluUFZld09YbUFCU0cyZTJkbk8tcWRROTFtckFyOE4yUHhuOEMyTDRGT01JNnZiX2RtM0JuOHpRNV85XzN5VlFMTlBudDNfRC1FYlBxMU9WV3d5NVJ0VEVIWmNZZlY5N3FFMUFMZDRPUDJkSWwxbXdVZHF2UEkzaXNvVmF1d2U2ZkNj?oc=5) |
+| Why some Republicans are newly worried about RFK Jr. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdzlHcGVhdWowQ01LX2xuRFE5ajUyRHMxVjlsaTdHQW92NmtJYWxyeW4wd0pyT1J1TDlCTjl1cU9GNGZqdjhNVnRyd1hlLUl6S2pTSVkybVhJN0U0c3VJc09VTnpkUkozbmh0WWI1YXZpWGhBMUo4SEctRDJnRWxJMVNqQ2o?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
