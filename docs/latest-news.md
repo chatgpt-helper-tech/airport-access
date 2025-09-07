@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 12:40:39（北京时间）**
+🕒 更新时间：**2025年09月07日 12:49:46（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump says Chicago ‘will find out why it’s called the Department of WAR’ ahead of planned crackdown - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE5TWms1UEtZMkF3TXB3bERLekc3THUwSzJzT3BKak9MYTNua3B0ZjB4Mm5acVZLMTR1S1lHckI3QVFvRWpEZE5LRTJUYXBmbmRDN0VlZGx1VGVManY0VkhtVUdPcTVvbHVBY1RIMnBqaEh1cnZjZVE?oc=5) |
-| Thousands protest for a 'Free DC' on the fourth week of federal control in Washington - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOOWhIV20xcllkUUNNN1RyY0JRQXdDMWhDS3IzN3FVRkRUREhIbkhQemRpejcyT3l2Y0RxbFBpeTNhQTZtMGppVjI2NTBWSXZwamQzOUVncEZOZ0RJVEZuZmJtbXlxMW16SWkteXg2TVFadWlkMS1Fd1ZJT25WWDdWbUxYRlNXRVlSSTBaWjg0ZHdCXzdJeG5McU8zNGRiazdNZzdhRlNXWGNqQkNKZUo3d1lHUzhfU3RwMHpSRlJiNNIBVkFVX3lxTE50S05rT3BqYTRjTU51OHZyT2pyU0dhZXZyM0RWLTFKSGRRWDE5YUpocXhGWG1NMHRXWGdmUlc1ZWZmSlZrUmJDS1lHUk9OcVA1SGVGNi1R?oc=5) |
-| Immigration Raid Exposes Tensions From Seoul to Washington to Rural Georgia - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1QVVpwdWprWG5NYzczTm0xcjU2Vi1NaUM4VlB3TlgxNUdkMmRNX0dOdDY1Y2dnYklxUGxveV9KN3hrV0tOalZrU2poTUppSDZCV2s4OGFja0lCQVo5ZVlGSGRiTzFIZ3FZWDE0VVVuRmxnbWxzZnc?oc=5) |
+| Tensions Mount as Trump Administration Threatens Federal Crackdown in Chicago - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQemtPMngtblhpQkpBU2FoS2QzdHAxV0h3M0VnbS1LWFh6anBuM3R1SWJUTEhGOC1YN3JnYTVnU0ZiVjhkdjR5SXpVVUJpdlVtX0ZkUTlVMm9BdTdsYUJ4RWV5b0x5aDBQMnJQWmlyNWh5aG54eXhmZWtxWjM4YU5ndG9Eb04?oc=5) |
+| Thousands protest for a ‘Free DC’ on the fourth week of federal control in Washington - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPREFRWmgyZm5YcmdvWDVPaTByY0twWXJ6dnFxaGl0blB4U196ZVBkUE5HcmFYdW5WWHhwb3VMT3Jic0RrWXBMV3BfZ3FZQ0JqS2ZLR1l6Q0lPMkNHQWxJWjl4VE84dHJsTnhjaUNsd0NtbXRwdDBCVEhTT18wUkE1Vl82WEhtanB0VDV6R2tMUlo5TGdGMG5QUl9KM1RNNy1RNThwUFV6NVUySG9ocnc?oc=5) |
+| ICE arrests at a Georgia Hyundai plant create new tension with South Korea - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNYWxOMHJFTGxlNlhGcnRKdGVaNGJBN1RaVUpvQ1VrNXJGVGFRTGlOZl9kRFFNOUY5VVlUaXNHblpyX2x2NDNYSXlWWXZ5VEJGc3RHZ2p3aW9RZ2VZbFdwUG9NbkhOZllsV3lFY1ZIazhaNkJaLUdYMWo3eGpoRDZVMlg5eTRlOUtqQmwyOTM3VXB4dDg?oc=5) |
 | Israel destroys second high-rise as assault on Gaza City intensifies - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9YV0FUeFZBRDBKNFRwdXk2a1YzYnIxdnVyenBJT2NNYjY0NFFqc0dweC11Vm8xcDdJYUgyUklCdVpqZEtDRkdfYzU5a1IzcUtvMlJXb21CSV9QUdIBX0FVX3lxTFBFVHFPemlHVGVYZ3Utc19VYmFCcHd0NFBmRUVKdzF3OFVZZDhhSjNoVkQ2RmF1SFBUcUVlTUNnOVFldkNRSkt6Q0ZYQmtWUEJwdUFVbmFVSmczLUU4Mmhj?oc=5) |
 | LAPD ends protection of former Vice President Kamala Harris amid criticism over diverting cops, sources say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi5wFBVV95cUxPNUNoWWNfeUlOdmJ3bnRKaWh3RWdQa2hnU2Q5bUFlYTRjRGo0MHp5ZVk4WmljMXdfTDNzR3F2c3ktTWtDUTMyLWtLMktlRFhGdUhQaFFNUksteFFCQ1RpR0o2M1ZYci1ZM2xZb1MxUmwtd2pIbDZ1Rjd1MFF5RENRY0dqY1hUeElXMDNKWXFhQWlkajBFdnZlejFNYUUtRmpzOW5SeWRpOGZRaUxFRWRKMG1mckV6RHU1YkJWVU1Bbmx5cS1RM3phd1BySFF0Y21YcWZSd1BwY0ZSbXNzbnVadWJrcHZQOFE?oc=5) |
 | Hawaii under state of emergency ahead of Hurricane Kiko - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNakFpdk1TUjhBeUUybUdpZ0UxYWgtcHUwcGdQUmdIWU9Sa0E3dzBHaDZmZ3o1a2ZmYURzUTZYbFB1VlMxSFBZU1BOenh5QUNhVVhiOFRzbUJTdWZJS29KSjBJdldYRWNVRDQ0UGptZFkzQ0Mzbzh2eVItYV9RVFA5RmxvQkgxaFQ4LXB1XzBhVkFPZ9IBlwFBVV95cUxQRUk0YjFPampjOVREa1plMFMxQTZUU0lZdzdaY0REZUtVUGRNSmJSVGRtaXBycEc0dDZGTWZZZG5vcTJCTWRuUG53MTFRWUEwTS1lekxnWXlKWXNWU3ZYR2pUMjBOZ3ZNMjlOZWhxcHRINjlZaDQwSVJ3NmZSR3BfZ2tOS2UybnE2MzN6a3Q4ZTM2UG9jWFBB?oc=5) |
