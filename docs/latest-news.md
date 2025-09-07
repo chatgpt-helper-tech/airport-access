@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 04:08:59（北京时间）**
+🕒 更新时间：**2025年09月08日 04:17:51（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | Unions warn government not to water down workers' rights bill | [阅读全文](https://www.bbc.com/news/articles/cq65l5epl3eo?at_medium=RSS&at_campaign=rss) |
 | Sirens blare from millions of phones in national test of emergency alerts | [阅读全文](https://www.bbc.com/news/articles/c2lx9x251xgo?at_medium=RSS&at_campaign=rss) |
 | Teen gamer who 'performed miracles' becomes  first millennial saint | [阅读全文](https://www.bbc.com/news/articles/c5yg5me8dvlo?at_medium=RSS&at_campaign=rss) |
+| In pictures: Blood Moon captivates sky-gazers around the world | [阅读全文](https://www.bbc.com/news/articles/cx25nyjl4pdo?at_medium=RSS&at_campaign=rss) |
 | Healey says more military sites could house asylum seekers | [阅读全文](https://www.bbc.com/news/articles/c5yvxergw4xo?at_medium=RSS&at_campaign=rss) |
 | Five-day London Underground strike under way | [阅读全文](https://www.bbc.com/news/articles/cx2rg128l68o?at_medium=RSS&at_campaign=rss) |
 | Thousands throng Jerusalem to press Netanyahu to make hostage release deal | [阅读全文](https://www.bbc.com/news/articles/cn95x2vlv8ro?at_medium=RSS&at_campaign=rss) |
 | Microsoft cloud services disrupted by Red Sea cable cuts | [阅读全文](https://www.bbc.com/news/articles/c3rvx470yg8o?at_medium=RSS&at_campaign=rss) |
-| Czech police finally catch up with 'phantom racing car driver' | [阅读全文](https://www.bbc.com/news/articles/c4g7xl4p53ko?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -26,8 +26,8 @@
 | Seoul concludes US talks to release South Koreans detained in Hyundai raid - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5oWTRLYTNwUUItaFNtbC1JMVZmMm0xVHJ6MmNsU1RlSzBjaFUzb2Z3Vk5ScGtTZ2wzY3IwbDlZTXlIbm01UkJ3VUV3QWMtUTFtc3dkZEx1YkVUd9IBX0FVX3lxTE1od0pvOWVqOXc1UEh0SXl1RUc4em9ESDloaERmbm5oWG1YU2hfOUlaYjQzNWF1RFc2YWtWZnZNM0JiUURURERNM1cyT1ZlZDgzcUFvZEw3aVlGVV9XVFFN?oc=5) |
 | Ukraine cabinet building hit in largest Russian strike of war, Zelenskyy says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOTmotOTU1dVhqSkpaNGcxODFzNHNQbVhISVVHV3djQjBEVnk4azFPR0k3ejNuZGdRTmpvVmhjd09HU3pJbTlxbVhzN0wwNHB2SnlVSXJydjFqWHVvcmcwSXZWSUl3Zi1pRFduUUlSdk40WDg5XzhNYzFRczY5Rk9xWS0tVG1GeDlQNFlDaVZ1SGhjYkRIUDRmQnBhZUU4VFVVNW1wdVNEU1JHbWhiTlh4bdIBtgFBVV95cUxPb05IaUFZUUNZNG5FQlpiVEdlRy1scTg5WnNlYTRfT2d3aTluTkpiR2dxUHBuNXJ3Y3g3S0RvRGJwQVBCNGdkdWswT3pSNnE1VjRKSGh4dE10a3B3d05mSlUteHBQUXdLdkwtQUd0dzJQYXhzLUlnazl0eTJ6SUhJbFhWMDJEbVBEU0ZGbWNiLVMtNjEtbjF5aTlEeEg0cEZlUjN4ZzVEN2txTi13SGlpQjBBdV9kUQ?oc=5) |
 | CBS News poll: On Trump deploying National Guard, divisions over impact on crime, rights - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5VRjktOTE1WkNWUU9tOUhqa2xfMGFUcGpWdzVXZkVuT3BIZmhGSE1jb1pvY1NWMFpaRnZJRHZMdmdndWNhZURXaXNGOVhzWEFEWk9zTzNPaXllaDBNQ3J4ZDlDS3F1endhN1RRYVY1eGpnS1B1RnFoNTR30gF_QVVfeXFMT1RYY0NRY3pacWt1blhRLWhjTlVjdzRLTlZ3bC1ablpKRVZsMzhzWWZnUUlXcFRSSXdMSTV1SmFOb1Nla1hCVlNuaXdreGt0aU95dXNCdnNXZElPYmMyQzZSMmN0ZG8wUGpTZ2lBNWd2cnVjWUx6QlVLdnhJdl9YRQ?oc=5) |
-| Japan’s Prime Minister to Resign After Clinching Tariff Deal - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9OM0F4WlU5b0gtUmdJbndRSW5RM1VXNjRQODVTMVk1UW9vMDR1TkRvVndsX1VPTGFIckhNR3lVcW1Nd2VoQmtxdHYtaDc0X2ZtZ2tlbTZoTG83WmhlcVc4aUJRUFJ1Z3FYbml2U3ZoNFd2RmZ3VDhCVHUtNA?oc=5) |
 | Pope Leo declares two new saints - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPQWJlMTlncVJMTDJTUDh1VkNSMS1ybkx2Wmt2cmgwQlpzcTBrTlBCOUN4NzZIQ2dTMmg3ZGcwVjVVWEJKSE04ZkJUYjdhTjNVS0o2UEJyU3NnVUozRzBkZFhpekhDdmJQSUFNdmxuNTZRRkVIa1pfSG1acmdSZi1wTF9XTnF4bEhKYTRSS1ZQWmFjSlhWcW5Ua1JwVnpOT25UQldXY2FNSXQzY3JZ0gGyAUFVX3lxTE1WcEMxV3RKbVIxTURuQWhKemdFWU9ZeVgwVFFZQTg2b1J5NHVON2FMQkE4RlU1THpVY0xfRDVHUVhKZThvdXlFMzNPTUxTTVlqQXpYbko0cE1KS1RWa2RfM3JaSDZmTXluQ3dyVFIyWDZ6d0pzdGxET2dvMTdkSDhNYnVBQkRWelR0Sk9Mb2JjbEpoMkx2eFRuMkM0Yk42UWJQd2lrYzkycDN0UEdwUXh2OEE?oc=5) |
+| Japan PM Shigeru Ishiba to resign amid fallout from disastrous elections - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQalZWQ21hTlA0ZFRFVDNxclVmUG9JdUV3eU1XZFFoLTVLWTRXbmJMUUUya3NDSHNpMDZwRDRwd3R0dHhCY3ZhelhZUy1PQURFWjJHMlVHTzFOZHNpNnQwLVdxWWhialZabkRBRE9CMjAwMWdaR0M2TjhyYnJmZi1RLU53?oc=5) |
 | Why some Republicans are newly worried about RFK Jr. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdzlHcGVhdWowQ01LX2xuRFE5ajUyRHMxVjlsaTdHQW92NmtJYWxyeW4wd0pyT1J1TDlCTjl1cU9GNGZqdjhNVnRyd1hlLUl6S2pTSVkybVhJN0U0c3VJc09VTnpkUkozbmh0WWI1YXZpWGhBMUo4SEctRDJnRWxJMVNqQ2o?oc=5) |
 | Republican condemns Vance for ‘despicable’ comments on Venezuelan boat strike - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNVUxtNzF4dUZyQmJxOS10ODRqYmhWZUtud3NOWG9QS1ZweTc1R3RVckRfdkRhVFVaZUFCYjh1MjdkajF2UFRMRU4xOUpRMEx5NmxpLXA0QTg1SEgtbFh4Q0Z6QkZRMlpzeFdKeHFoLV9yNXY1RWZRejNyWFpaS2dBVXVGaXc4MzJaa3VWZUE1cUN5bTQ?oc=5) |
 | Florida’s plan to drop school vaccine rule won’t start for 90 days, won’t cover all diseases - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPcFNDUXpYMjg2dDNrSjdhTkRwcmZ3ZjJ5V1Vpdmw1QUlfOUtaWFZORm43bS1yejRYZUdyLXN3eWdTeXFCSnVzN2tDTTA5QTE1QWpXbzdGQ3FMdFd0dkM3VFd1ak1uTU5kQzZSUGxfUFdZX3I5WFlRVWFOMWh3SmxvRGRyQWxINmF0cC1VLWRRUTFwMGNoOHJ2Yg?oc=5) |
