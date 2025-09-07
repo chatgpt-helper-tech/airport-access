@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 08:08:07（北京时间）**
+🕒 更新时间：**2025年09月07日 08:17:19（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Israel destroys second high-rise as assault on Gaza City intensifies - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9YV0FUeFZBRDBKNFRwdXk2a1YzYnIxdnVyenBJT2NNYjY0NFFqc0dweC11Vm8xcDdJYUgyUklCdVpqZEtDRkdfYzU5a1IzcUtvMlJXb21CSV9QUdIBX0FVX3lxTFBFVHFPemlHVGVYZ3Utc19VYmFCcHd0NFBmRUVKdzF3OFVZZDhhSjNoVkQ2RmF1SFBUcUVlTUNnOVFldkNRSkt6Q0ZYQmtWUEJwdUFVbmFVSmczLUU4Mmhj?oc=5) |
 | Hawaii under state of emergency ahead of Hurricane Kiko - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNakFpdk1TUjhBeUUybUdpZ0UxYWgtcHUwcGdQUmdIWU9Sa0E3dzBHaDZmZ3o1a2ZmYURzUTZYbFB1VlMxSFBZU1BOenh5QUNhVVhiOFRzbUJTdWZJS29KSjBJdldYRWNVRDQ0UGptZFkzQ0Mzbzh2eVItYV9RVFA5RmxvQkgxaFQ4LXB1XzBhVkFPZ9IBlwFBVV95cUxQRUk0YjFPampjOVREa1plMFMxQTZUU0lZdzdaY0REZUtVUGRNSmJSVGRtaXBycEc0dDZGTWZZZG5vcTJCTWRuUG53MTFRWUEwTS1lekxnWXlKWXNWU3ZYR2pUMjBOZ3ZNMjlOZWhxcHRINjlZaDQwSVJ3NmZSR3BfZ2tOS2UybnE2MzN6a3Q4ZTM2UG9jWFBB?oc=5) |
 | Trump backs Kennedy on vaccines despite health, political risks - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxQTDlvM1VpYnVfUmdkdEpDNkNLU284amFqUk9IaEZRTUJvZ19KMWxCMVZxM1lwUkJDUHJjYWE1Q09nZnd6QzEzQUVndUt6V0o3ZWlXZEs0MzZ3MWtNVHlZXzd3OE9ZTVVvYTJfb2FzQWtlVVZVWERfWUFlWDRxb2tfV3p1ZlVkbnQ3VGx5NXM1Mm9OeVVjWjBfMGJFMWp5Y09PN2Y4X3B1UlBUenZWdTRyN1JuTGstdUpRbkNUV3lNTVhwM1RUNjlaMFdJNA?oc=5) |
+| ICE Has Begun Immigration Crackdown in Massachusetts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBldU5yZ2c0OWhTMjlCM2NJMDRCc0hLamQzbkpDdmRLdTRZVXNpS2hXdU9QRUxmN1BFODdMZklJcm1hSzZvTGVvU1dWVHpxbEU1QkJKTzZZUFhHbzBSempzckF5OFpqYnhkNEZjaW03MkhZcFUwajJBTnN3TFo?oc=5) |
 | Chicago federal intervention: Tracking surge in immigration enforcement operations ｜ Live updates - ABC7 Chicago | [阅读全文](https://news.google.com/rss/articles/CBMigAJBVV95cUxPZmtfT19XMEcySGw3bUlucl9KdU1CUkNRY0dxa3prMHdPbDJOVnE2WkFBMTZ1UzBZRndDSWVJeG1zRHJqRWxEZTRGYWltc0VremRXb2N4TWttRXFIaE4zWW01NC1fNEtFVnZVZzctODgyenFib3hqaTlRZm5PTEtXVk9rQ2FqQmg0T0NOYV9aLXFkVFZzbk1nT0tJbmFhQjNpbTdGdE5oSUNCMk9GdUhfV2JXYTlSWm1sVXZGZldxWEt0dkZxdzJyakIwUDZ1Q1o4RzVwSW94UjZxV09LVE0zN0l2Y1JnUnBkTUxYZmtBTEZwR1ZZMGJtaUlaU29RYlN0?oc=5) |
-| Mexican festivals in Chicago canceled amid Trump plans to deploy troops - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPUEJMVzBrR2dieC01T3dIdEYtcVdmcXBtVEZhZG9YR0JEUXFRaGtma2VoejVFMDZpbGtQQmVmenVsRl95TWlxMWxJNEI0bzNNODFqaS1nelBRUktEQzBMV05EVlB1ZkNQeTJ0MGw3aTdpMjJGTE1FWjg2TkNvVXJud1ZzU0wzS2hwQk9rX3VCWQ?oc=5) |
-| Trump Sends Mixed Messages With His Newly Rebranded Department of War - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNemVDb29uMDU4c1lBaG9lSW5GdGl0bVpZMm41QTl1WHliZkNxTW1oVjlROF9vTDc1VmFXUXlmZDNrMVFPMlJwc2hxSDlpb2RDamhmVlBJdWRmVGswOXpObTJaRFVoMG1NeFdDTTlfcTR4MjNTVThHd3M4RkpFSjFWYw?oc=5) |
 | Maduro vows to defend Venezuela’s sovereignty as tensions with U.S. escalate - PBS | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPengtZ3ppSExPNmc1M2JlZGpYN2NoNWd6LW85eDdvQkpmU011dExqcFFLbXJlMDdfS3pRSElaOHQxMDR4MjJ6S18wcXVGVlBVTGJ2NC1IeXVwc29aUzdwa0hGbHZlUURnQ3R5ZzdTdm1MN3dVbjJmWmd0RXdnbFpDWEc0YnZiaW9RRjQ3ZnRCNFN5TU5uN3phN2JzUmRScG5RSGdYZmV0dE1tZmhPR3fSAbMBQVVfeXFMT24xb1QtWXNMSmJpb1FrSjUxaGhQcGZxeWZRUnFxdS15V1RZSFg4SG1aZ2t1TEh6aURaM3ItOXljd0d4OWp4SXVkbElYNVdrLXJ2X2FQQkRTREdPUXBocFQ5YmlSVGFmdlJZemNSbUpBeDBFSlpualY0aFdxQ2ctcUVxOXl0SlF2ZXc0dFltWTdsNnh0MzNXVlpFYjlLX1FRcEtwbGhsZWNWTGhvN0UyckpHYWc?oc=5) |
+| Trump Sends Mixed Messages With His Newly Rebranded Department of War - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNemVDb29uMDU4c1lBaG9lSW5GdGl0bVpZMm41QTl1WHliZkNxTW1oVjlROF9vTDc1VmFXUXlmZDNrMVFPMlJwc2hxSDlpb2RDamhmVlBJdWRmVGswOXpObTJaRFVoMG1NeFdDTTlfcTR4MjNTVThHd3M4RkpFSjFWYw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
