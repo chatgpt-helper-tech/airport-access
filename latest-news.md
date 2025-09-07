@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 05:00:31（北京时间）**
+🕒 更新时间：**2025年09月08日 05:09:42（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | Playbook: Trump’s ‘Apocalypse Now’ moment - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQbWVsU3hDdEJxcnJsWGZzdkxUWksxZ1hSTWt2aWQyMUQxWkRjUU1EbS1oZXVGZFp3ZDlKajl4RkdEOVExd3lTU0kxNUNWNUYwUDlMWlljTEFxV0JUUzNUbXNtTnZ1cDMzWlFSVldvMVl2LWVGU3dISXp3WmlsblRhaTNfTDhoaXVtUWdGelB2eGV2Rkxwa3BXLVV3?oc=5) |
 | Pope Leo XIV proclaims Carlo Acutis the first millennial saint - Euronews.com | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPaUFOMlVSZkRqRTNxZkxQUS1TUVJZYVFyYVlUdC1sMXB0MkxFRnZIbEtfYktOZlhrQVA1TnNFVUxRWWhVd1d0RW5IQUhVdlJHRThrem8wbDBaMUtaUzRZNGRnSk51eGptMUZDZ29hdkxGU1BSYjcwZ2cwdHU4SmFrTjRqT1RjeGpsV1R5dnRscm11TUQtVG01cA?oc=5) |
 | Why some Republicans are newly worried about RFK Jr. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdzlHcGVhdWowQ01LX2xuRFE5ajUyRHMxVjlsaTdHQW92NmtJYWxyeW4wd0pyT1J1TDlCTjl1cU9GNGZqdjhNVnRyd1hlLUl6S2pTSVkybVhJN0U0c3VJc09VTnpkUkozbmh0WWI1YXZpWGhBMUo4SEctRDJnRWxJMVNqQ2o?oc=5) |
-| Republican condemns Vance for ‘despicable’ comments on Venezuelan boat strike - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNVUxtNzF4dUZyQmJxOS10ODRqYmhWZUtud3NOWG9QS1ZweTc1R3RVckRfdkRhVFVaZUFCYjh1MjdkajF2UFRMRU4xOUpRMEx5NmxpLXA0QTg1SEgtbFh4Q0Z6QkZRMlpzeFdKeHFoLV9yNXY1RWZRejNyWFpaS2dBVXVGaXc4MzJaa3VWZUE1cUN5bTQ?oc=5) |
 | Florida’s plan to drop school vaccine rule won’t start for 90 days, won’t cover all diseases - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPcFNDUXpYMjg2dDNrSjdhTkRwcmZ3ZjJ5V1Vpdmw1QUlfOUtaWFZORm43bS1yejRYZUdyLXN3eWdTeXFCSnVzN2tDTTA5QTE1QWpXbzdGQ3FMdFd0dkM3VFd1ak1uTU5kQzZSUGxfUFdZX3I5WFlRVWFOMWh3SmxvRGRyQWxINmF0cC1VLWRRUTFwMGNoOHJ2Yg?oc=5) |
 | In Chicago, residents celebrate Mexican Independence Day amid threats of heightened immigration enforcement - CNN | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBjbTYxbnZzTEVTb1VGdW9Ibk5sdGtTOVNxRFVoV2ZOajR3NFNiZTZOdTJfNWFZbHdNbWEwX01kQUlwZk1pSEh3S0xDSFhSVlQ1ODJMLU5VNUtRSG5yY1lqT0ZWc0xUQmt4Qlc4NTFBX0toamM?oc=5) |
+| Republican condemns Vance for ‘despicable’ comments on Venezuelan boat strike - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNVUxtNzF4dUZyQmJxOS10ODRqYmhWZUtud3NOWG9QS1ZweTc1R3RVckRfdkRhVFVaZUFCYjh1MjdkajF2UFRMRU4xOUpRMEx5NmxpLXA0QTg1SEgtbFh4Q0Z6QkZRMlpzeFdKeHFoLV9yNXY1RWZRejNyWFpaS2dBVXVGaXc4MzJaa3VWZUE1cUN5bTQ?oc=5) |
 | ICE Raids Unfold in Boston as Trump Signals Crackdown in Chicago - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPRUtJdXpacUphb21WckROU3pYQXA4TFpWU2hXMGhoYjNDbEVuVWFjVmdkcjBlTUJFdU53Tm1wdlcxMTJYanhJbTlyZ1F1SlNpTmhxUUU3VkRicHpVQ004MVY3UEF0TjgzR1VsNXc0THFXaHRER2gtZW9YYTNVc284aU11cC1lVUtGS19aYlBnT09nOEVxcWZTWUwycFMtdVozSnprSmhQd1RYQ0hSSDcxT0JKV3NKQQ?oc=5) |
 
 ---
