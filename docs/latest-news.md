@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 12:49:46（北京时间）**
+🕒 更新时间：**2025年09月07日 12:57:06（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump administration begins new Ice operation in Massachusetts - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPTkZMS3pkeTJiR3pPeDhOZmJaQlllMVNCalRDaFV4Uk1lSnJta0QxT25Va05PdVJPWkRLT3E3cHZNbzJndWI3RkxOTkNKUTdYVGEzdDUyQm05TVFFVlluaFVxdlNEbW9vQ1ZWcXY1Q1lYdm50ZzNJNDlaNUlnTTJGY25JVlRpZENhYlpVaG1BekdRYVd0WWNKUlBENEZhRUZwekRCLVVpTQ?oc=5) |
 | Matriarch in murder-for-hire trial decided not to testify after clashing with judge. The jury found her guilty the next day - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE5MWndYUVlIMzVQS0QyQ2VDdTMwSXJqWWJ0MG1VbmI3VTEzaTFzeWtVNUpJNEFiLTZHMnBWWDRfaW9tUnhjM2ZsZ0VxQ0xxV2NGOG5QQU9QZ21KWXpTQWRjUDFxMEtHX3lkc3lUWnMtbkVGRWVH?oc=5) |
 | RFK. Jr’s family members call for his resignation, say he is a ‘threat’ to Americans’ health - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQcnF6Y0syYXRsMjgxZnhfQjQzenNrN2hWeGRzV09tbjQ1QXhzbjdxYzNUcFk5TGc1ZEtYTUZNLW44SFQ0RmdhT0o3MG1MWDVaWFRoaEticzJFUko1NHlKUVFpRDVmakl6WnFoMEZqMnM1V2NId0ptSHNiR1AyT1RES2gxQWE1bnp3aUhDbk50Tm1zWENubXpQYm5FT2k4XzFVcU5YbGdlVVFwYWFieVBSRjdFbkVKSHJpekhfeXNFTjZuZ9IBxwFBVV95cUxNMHI5b1puM2pJcU9BV21TZHI2c3lrUDNCdmNrS2hCVGd4THJMWWtUT29oUkxwSUNwczBYOE1FVmpEZ2hQVjZSX2dYZ0NyZFVpTG1weUZUZjNzSmtna2s0enIwMkRLQkVycElhbEt2Tk9CTHVLWTJOY1Vtd0JEcHVPWGU3SlkxYll4Z0RWOFBUMEk2c0pEdTg0Z0FGdnZZS19iSGZGQlpkV3RhaW9FeWpFcVNnZGlodFpHS0NRVi1NcVBtMmlRZmdj?oc=5) |
-| Carlo Acutis: From a baptism in London to the first millennial saint - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1KQVpOY0pyVGdBVmtNNmZUN2d0THUxdzNKT0NuVmtMNmVlNXhDZ3ZVRC1BVDhqcXJwZnpVMXdQS3Z6RHF1RmdPX01NQkZKQ1pEaEhORHQ5SGp4UQ?oc=5) |
+| Carlo Acutis: From London baptism to first millennial saint - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1KQVpOY0pyVGdBVmtNNmZUN2d0THUxdzNKT0NuVmtMNmVlNXhDZ3ZVRC1BVDhqcXJwZnpVMXdQS3Z6RHF1RmdPX01NQkZKQ1pEaEhORHQ5SGp4UdIBX0FVX3lxTE02dVY5SGpTSWpxY2NQZWtnZ1drLW5iVmh1c3JkTTdaSEdyUWJlSGZIRmFqRWkzX2MzX01HMWhLNHhVaVBHQjdTNURGRXI3LTFneXBFRVNRZFBVWVVtZkNV?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
