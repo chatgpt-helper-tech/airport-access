@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 07:25:15（北京时间）**
+🕒 更新时间：**2025年09月08日 07:33:57（北京时间）**
 
 ---
 
@@ -9,8 +9,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Zelensky condemns 'ruthless attack' after Russia hits main government building in Kyiv | [阅读全文](https://www.bbc.com/news/articles/cpq5dl5y4nlo?at_medium=RSS&at_campaign=rss) |
-| Arrests at rally against Palestine Action ban rise to 890 | [阅读全文](https://www.bbc.com/news/articles/c8rvly00440o?at_medium=RSS&at_campaign=rss) |
 | Unions warn government not to water down workers' rights bill | [阅读全文](https://www.bbc.com/news/articles/cq65l5epl3eo?at_medium=RSS&at_campaign=rss) |
+| Arrests at rally against Palestine Action ban rise to 890 | [阅读全文](https://www.bbc.com/news/articles/c8rvly00440o?at_medium=RSS&at_campaign=rss) |
 | Sirens blare from millions of phones in national test of emergency alerts | [阅读全文](https://www.bbc.com/news/articles/c2lx9x251xgo?at_medium=RSS&at_campaign=rss) |
 | Teen gamer who 'performed miracles' becomes  first millennial saint | [阅读全文](https://www.bbc.com/news/articles/c5yg5me8dvlo?at_medium=RSS&at_campaign=rss) |
 | In pictures: Blood Moon captivates sky-gazers around the world | [阅读全文](https://www.bbc.com/news/articles/cx25nyjl4pdo?at_medium=RSS&at_campaign=rss) |
