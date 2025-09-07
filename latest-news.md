@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 23:40:29（北京时间）**
+🕒 更新时间：**2025年09月07日 23:48:43（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | Sirens blare from millions of phones in national test of emergency alerts | [阅读全文](https://www.bbc.com/news/articles/c2lx9x251xgo?at_medium=RSS&at_campaign=rss) |
 | Teen gamer who 'performed miracles' becomes  first millennial saint | [阅读全文](https://www.bbc.com/news/articles/c5yg5me8dvlo?at_medium=RSS&at_campaign=rss) |
 | Piastri told to let Norris past as Verstappen wins | [阅读全文](https://www.bbc.com/sport/formula1/articles/cx2rn7y5r36o?at_medium=RSS&at_campaign=rss) |
-| Tube strike begins with reduced services as five days of major disruption looms | [阅读全文](https://www.bbc.com/news/articles/cx2rg128l68o?at_medium=RSS&at_campaign=rss) |
+| Five-day London Underground strike under way | [阅读全文](https://www.bbc.com/news/articles/cx2rg128l68o?at_medium=RSS&at_campaign=rss) |
 | One of the world's most sacred places is being turned into a luxury mega-resort | [阅读全文](https://www.bbc.com/news/articles/c707kx2nk7go?at_medium=RSS&at_campaign=rss) |
 | My clothes wouldn't fit in my new flat - so I invented Vinted | [阅读全文](https://www.bbc.co.uk/bitesize/articles/zttrp9q?at_medium=RSS&at_campaign=rss) |
 | How will the EU's new border system work? | [阅读全文](https://www.bbc.com/news/articles/c39rkpe8mj2o?at_medium=RSS&at_campaign=rss) |
@@ -27,7 +27,7 @@
 | Ukraine cabinet building hit in largest Russian strike of war, Zelenskyy says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOTmotOTU1dVhqSkpaNGcxODFzNHNQbVhISVVHV3djQjBEVnk4azFPR0k3ejNuZGdRTmpvVmhjd09HU3pJbTlxbVhzN0wwNHB2SnlVSXJydjFqWHVvcmcwSXZWSUl3Zi1pRFduUUlSdk40WDg5XzhNYzFRczY5Rk9xWS0tVG1GeDlQNFlDaVZ1SGhjYkRIUDRmQnBhZUU4VFVVNW1wdVNEU1JHbWhiTlh4bdIBtgFBVV95cUxPb05IaUFZUUNZNG5FQlpiVEdlRy1scTg5WnNlYTRfT2d3aTluTkpiR2dxUHBuNXJ3Y3g3S0RvRGJwQVBCNGdkdWswT3pSNnE1VjRKSGh4dE10a3B3d05mSlUteHBQUXdLdkwtQUd0dzJQYXhzLUlnazl0eTJ6SUhJbFhWMDJEbVBEU0ZGbWNiLVMtNjEtbjF5aTlEeEg0cEZlUjN4ZzVEN2txTi13SGlpQjBBdV9kUQ?oc=5) |
 | CBS News poll: On Trump deploying National Guard, divisions over impact on crime, rights - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5VRjktOTE1WkNWUU9tOUhqa2xfMGFUcGpWdzVXZkVuT3BIZmhGSE1jb1pvY1NWMFpaRnZJRHZMdmdndWNhZURXaXNGOVhzWEFEWk9zTzNPaXllaDBNQ3J4ZDlDS3F1endhN1RRYVY1eGpnS1B1RnFoNTR3?oc=5) |
 | Japan's Prime Minister Shigeru Ishiba resigns - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5tWWxMU0M2MS1vYktadnlPVFV2V1BmSlN3ejdwMURrV29mdWlzYlhfN2Z4eFdzZXdGWnJLT3VSOHZaTzFVX05zWXVqdWZBZ1pVMkIxQzdrUVJDd9IBX0FVX3lxTFBSYl9xMERSOHhXN185NFl4RHRkTEdjR1c0UkR5RUJqOUhhLU1kb3RDdnN5aF9DenBJQ2N2M1VQcngyZU9JLUJMc2RISmM5a1JpeU1FeFZkZFRvZmctbWVF?oc=5) |
-| Teen coder made first millennial Catholic saint at youthful Vatican event - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPcnVNNzM5WHc5czNlVG90dHJRa3BUVFh3RFpBTWc3dXpmZGhYNjFVaG9lTmNNMmo1QklsLTZwbkQ4WjdHS0pvTXZQdnJSamZsNlFTdFRBejM0UkFud1U4ZkpET1RPSk9XcExLV1c1d1JreUpCdktTUGFPZ3FTd1ZLNGhGcE5PQWNFd0c1MzdvemVVNUdleEVjNUJKQWZPa2RTZ1VsX2ZORFZFSC1sbHR1Vl93?oc=5) |
+| A teen nicknamed 'God's influencer' has become the first millennial saint - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNLUJZbzRtRlZkUlR2eTJDZXJKUk9PTkRJSGtaNFNlT1IwRXFQdk1KM2RhSEYxNzhEZmxPUlpNMDQ4elY2aUFudGFXcS1MTVlLZm9NcXYtSS1aTDlRYmJEZGszOW9PNGhrNmNCRTNrbVNFSGtIN2xTY0l0ZHlfOXZSZHBwYmpPeFI1YW56cmFhVlM0VllLMlJDaGtwS2tOa0FUVzlObURB?oc=5) |
 | Trump administration begins new Ice operation in Massachusetts - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPTkZMS3pkeTJiR3pPeDhOZmJaQlllMVNCalRDaFV4Uk1lSnJta0QxT25Va05PdVJPWkRLT3E3cHZNbzJndWI3RkxOTkNKUTdYVGEzdDUyQm05TVFFVlluaFVxdlNEbW9vQ1ZWcXY1Q1lYdm50ZzNJNDlaNUlnTTJGY25JVlRpZENhYlpVaG1BekdRYVd0WWNKUlBENEZhRUZwekRCLVVpTQ?oc=5) |
 | In Chicago, residents celebrate Mexican Independence Day amid threats of heightened immigration enforcement - CNN | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBjbTYxbnZzTEVTb1VGdW9Ibk5sdGtTOVNxRFVoV2ZOajR3NFNiZTZOdTJfNWFZbHdNbWEwX01kQUlwZk1pSEh3S0xDSFhSVlQ1ODJMLU5VNUtRSG5yY1lqT0ZWc0xUQmt4Qlc4NTFBX0toamM?oc=5) |
 | Rand Paul clashes with JD Vance over US strike on boat leaving Venezuela - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPZHlnXzlZcHRySS1wb1BhZjEyNlZ2NHBrbzZGbHdKdTNNOG16Mkg0RkkxLVVHU0tyRllrUm9DaFkxNmZXMmZXbE9VRU1fcjJGM3lFZXd1NF9qTFhJTWIxV0xfaDRFNXRsUWNadXZ3aVZWdHdPUFVYYXRQSmd3RXYxTGZpYXR3bFNncnRQQnBVM0VmWE8yRUxFYkh6aVhyNG56NmVCOXNsV0VXVlFKbkVBd3RLdDRxUQ?oc=5) |
