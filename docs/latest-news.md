@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 07:17:07（北京时间）**
+🕒 更新时间：**2025年09月08日 07:25:15（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Playbook: Trump’s ‘Apocalypse Now’ moment - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQbWVsU3hDdEJxcnJsWGZzdkxUWksxZ1hSTWt2aWQyMUQxWkRjUU1EbS1oZXVGZFp3ZDlKajl4RkdEOVExd3lTU0kxNUNWNUYwUDlMWlljTEFxV0JUUzNUbXNtTnZ1cDMzWlFSVldvMVl2LWVGU3dISXp3WmlsblRhaTNfTDhoaXVtUWdGelB2eGV2Rkxwa3BXLVV3?oc=5) |
 | Sen. Tammy Duckworth says Trump "essentially just declared war" on Chicago, but there's no "indications" of deployment - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE80WkhpS0Flek1CSnBuM2JOYjQ0Yy00Zm9vb2JzdlI3ZkMtejJ6X09ZS1VkMy1nbjlkNldDTzU2TC12ZGpJWmRzdGp2OC13bE1GbEl0ZVRoTmFxT0VPMHJsSjBwbVUzTWh6V0RUWktNc2pLelZBbUJaTFJYaTRkMlHSAYQBQVVfeXFMTk5VMzg5a09KVDhYQXlNYmRKV0YyMDJkLXozajh0Q2o1SHRabWxtMU93cTlWSXdTbThUOVdYOWxDclFDRXBOc014YW9ySENROXEyUXVGUm05T2R6YkVJSjRxa3p1c3BKTUFzN2ZQMzl3NVRUeFZyT05haDE3NU1YQ2lGTlFR?oc=5) |
 | Why some Republicans are newly worried about RFK Jr. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdzlHcGVhdWowQ01LX2xuRFE5ajUyRHMxVjlsaTdHQW92NmtJYWxyeW4wd0pyT1J1TDlCTjl1cU9GNGZqdjhNVnRyd1hlLUl6S2pTSVkybVhJN0U0c3VJc09VTnpkUkozbmh0WWI1YXZpWGhBMUo4SEctRDJnRWxJMVNqQ2o?oc=5) |
-| ICE Raids Unfold in Boston as Trump Signals Chicago Is Next - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPRUtJdXpacUphb21WckROU3pYQXA4TFpWU2hXMGhoYjNDbEVuVWFjVmdkcjBlTUJFdU53Tm1wdlcxMTJYanhJbTlyZ1F1SlNpTmhxUUU3VkRicHpVQ004MVY3UEF0TjgzR1VsNXc0THFXaHRER2gtZW9YYTNVc284aU11cC1lVUtGS19aYlBnT09nOEVxcWZTWUwycFMtdVozSnprSmhQd1RYQ0hSSDcxT0JKV3NKQQ?oc=5) |
 | Republican condemns Vance for ‘despicable’ comments on Venezuelan boat strike - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNVUxtNzF4dUZyQmJxOS10ODRqYmhWZUtud3NOWG9QS1ZweTc1R3RVckRfdkRhVFVaZUFCYjh1MjdkajF2UFRMRU4xOUpRMEx5NmxpLXA0QTg1SEgtbFh4Q0Z6QkZRMlpzeFdKeHFoLV9yNXY1RWZRejNyWFpaS2dBVXVGaXc4MzJaa3VWZUE1cUN5bTQ?oc=5) |
+| ICE Raids Unfold in Boston as Trump Signals Chicago Is Next - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPRUtJdXpacUphb21WckROU3pYQXA4TFpWU2hXMGhoYjNDbEVuVWFjVmdkcjBlTUJFdU53Tm1wdlcxMTJYanhJbTlyZ1F1SlNpTmhxUUU3VkRicHpVQ004MVY3UEF0TjgzR1VsNXc0THFXaHRER2gtZW9YYTNVc284aU11cC1lVUtGS19aYlBnT09nOEVxcWZTWUwycFMtdVozSnprSmhQd1RYQ0hSSDcxT0JKV3NKQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
