@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 12:02:00（北京时间）**
+🕒 更新时间：**2025年09月07日 12:08:48（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump threatens Chicago with apocalyptic force and Pritzker calls him a ‘wannabe dictator’ - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOV1JkcWRqMlRZSEJqQklPMDJSQkpMMENpTmQtU0h2Szc0ejhvVzN6VlBhX2FBSjdLV2lqY2JvMmI2WWZfc1VNbjZvZk13elNTX2VwREVMeGE2YXVjMExldl84blI1VVZvOWNyRGNpMG9XMlBlR2Z0MzA5eUpYTDJMa1hpdlBwdkduQ2Mta0pybWdtLTBZeVl5aTVVZTVtZVpOYjVuSmNuOE9TR0lzYUE?oc=5) |
-| Thousands protest for a 'Free DC' on the fourth week of federal control in Washington - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOOWhIV20xcllkUUNNN1RyY0JRQXdDMWhDS3IzN3FVRkRUREhIbkhQemRpejcyT3l2Y0RxbFBpeTNhQTZtMGppVjI2NTBWSXZwamQzOUVncEZOZ0RJVEZuZmJtbXlxMW16SWkteXg2TVFadWlkMS1Fd1ZJT25WWDdWbUxYRlNXRVlSSTBaWjg0ZHdCXzdJeG5McU8zNGRiazdNZzdhRlNXWGNqQkNKZUo3d1lHUzhfU3RwMHpSRlJiNNIBVkFVX3lxTE50S05rT3BqYTRjTU51OHZyT2pyU0dhZXZyM0RWLTFKSGRRWDE5YUpocXhGWG1NMHRXWGdmUlc1ZWZmSlZrUmJDS1lHUk9OcVA1SGVGNi1R?oc=5) |
+| Thousands march in D.C. against Trump’s law enforcement takeover - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBaTjN4aUt5TlZBclZmbEkyRzE4bWFLeXo5YUdsa1EtUER0SndQR3R3dnBRc1I5UW9IbEwxRzJzQndHaVU2YUpzdk8zeWJSNlRDV2dKSHgwXy1QTHR5RTFnS1ZCTWhuTEJ3Z1NqOEh5eEJOaHRRSDh5Vjhpbw?oc=5) |
 | Immigration Raid on Hyundai-LG Plant in Georgia Rattles South Korea - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNWGxHamVLTXNURklMNUVVZGEtUkZpWTlSbktIOUJIMUJCSTJmZnFBSm5ieGczVnRYT3NHUWNqSElJNmR2ZDl1MUd2NzFXMjY2dWwwdXVpXy05MmJhd2RTQlFRa2hteXJFcWVOeGxaNEtzclZ3VHd3b2RaMU5NY21ZS25TUHM2eVIwVzVjR3p5WEhsaFJZSGI3RTQtSm1OMGc?oc=5) |
 | Israel destroys second high-rise as assault on Gaza City intensifies - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9YV0FUeFZBRDBKNFRwdXk2a1YzYnIxdnVyenBJT2NNYjY0NFFqc0dweC11Vm8xcDdJYUgyUklCdVpqZEtDRkdfYzU5a1IzcUtvMlJXb21CSV9QUdIBX0FVX3lxTFBFVHFPemlHVGVYZ3Utc19VYmFCcHd0NFBmRUVKdzF3OFVZZDhhSjNoVkQ2RmF1SFBUcUVlTUNnOVFldkNRSkt6Q0ZYQmtWUEJwdUFVbmFVSmczLUU4Mmhj?oc=5) |
 | Trump administration launches immigration crackdown in Massachusetts, reports say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxPNTY5cWF5Xzc1MzQtemhXTW80ZlU3MmcyanJ0aldsSGkyZ0xPX01RTEVtWDdMR3l2cFhmTEFJZU1jdi1NUm1oOV83RGsyaDhpODh3bTVKUm1PRUlPT1daM1VJbmx3YXlWeFNQZzhEZzRENGlvdHN1QnZfUThmQ0l5WUxYR0pVTEo3YXc1dEZWdWczYmwwcDNwSEljRWhDLWh0UGZhWjdxVUpTc2Nyc2lNYTcyMndGdXY1V1k1dXRtMA?oc=5) |
