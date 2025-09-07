@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 23:09:36（北京时间）**
+🕒 更新时间：**2025年09月07日 23:17:29（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| South Korea to bring home 300 workers detained in massive Hyundai plant raid in Georgia - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPV0JYUVpxNndhdEJEN3ZZTms0N1BST1RFY0dCXzFxQ09GY2xwUm42RXgzVTlVUXR0a2M1X2RDZkwtb0xlcGhBbUliNTBJS3JNdG1DdURtRDZZU1AxZHlkLXpoeUdpb3RDaHVxamJGbTVQYXZ1TmVhWHdQLXRHajQ1dVVOOWpybUVrUDdxS3QtZXlFM0FsRFFqYXpGVmJsTVNu?oc=5) |
-| Ukraine cabinet building hit in largest Russian strike of war, Zelenskyy says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOTmotOTU1dVhqSkpaNGcxODFzNHNQbVhISVVHV3djQjBEVnk4azFPR0k3ejNuZGdRTmpvVmhjd09HU3pJbTlxbVhzN0wwNHB2SnlVSXJydjFqWHVvcmcwSXZWSUl3Zi1pRFduUUlSdk40WDg5XzhNYzFRczY5Rk9xWS0tVG1GeDlQNFlDaVZ1SGhjYkRIUDRmQnBhZUU4VFVVNW1wdVNEU1JHbWhiTlh4bdIBtgFBVV95cUxPb05IaUFZUUNZNG5FQlpiVEdlRy1scTg5WnNlYTRfT2d3aTluTkpiR2dxUHBuNXJ3Y3g3S0RvRGJwQVBCNGdkdWswT3pSNnE1VjRKSGh4dE10a3B3d05mSlUteHBQUXdLdkwtQUd0dzJQYXhzLUlnazl0eTJ6SUhJbFhWMDJEbVBEU0ZGbWNiLVMtNjEtbjF5aTlEeEg0cEZlUjN4ZzVEN2txTi13SGlpQjBBdV9kUQ?oc=5) |
+| 300 South Koreans detained at Hyundai plant in US to be released, says Seoul - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPckUxSnNhbVRFVE1GUFo0QkdBR1JUaVB3NDh3blN1LWo2UEcxVjFlUlYxby1ReWp6QnJiMGZTcnEwNEpyNzNYcGZQLUtrRGlEUTlUSFdFR213NF9KRWZZdXhENFJKN21rOUlzNHRZWUtJMXhDZ3lMdFVCbXZhN0VLUGNYV0RrdW1jQ2tHQjBBX2JxbkEycVhYQjVTZGo0SkczX28wSzJBRmQ5VXQ1MnV3U1dFNmZQSTMzWUdnYld2T28?oc=5) |
 | CBS News poll: On Trump deploying National Guard, divisions over impact on crime, rights - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5VRjktOTE1WkNWUU9tOUhqa2xfMGFUcGpWdzVXZkVuT3BIZmhGSE1jb1pvY1NWMFpaRnZJRHZMdmdndWNhZURXaXNGOVhzWEFEWk9zTzNPaXllaDBNQ3J4ZDlDS3F1endhN1RRYVY1eGpnS1B1RnFoNTR3?oc=5) |
+| Ukraine cabinet building hit in largest Russian strike of war, Zelenskyy says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOTmotOTU1dVhqSkpaNGcxODFzNHNQbVhISVVHV3djQjBEVnk4azFPR0k3ejNuZGdRTmpvVmhjd09HU3pJbTlxbVhzN0wwNHB2SnlVSXJydjFqWHVvcmcwSXZWSUl3Zi1pRFduUUlSdk40WDg5XzhNYzFRczY5Rk9xWS0tVG1GeDlQNFlDaVZ1SGhjYkRIUDRmQnBhZUU4VFVVNW1wdVNEU1JHbWhiTlh4bdIBtgFBVV95cUxPb05IaUFZUUNZNG5FQlpiVEdlRy1scTg5WnNlYTRfT2d3aTluTkpiR2dxUHBuNXJ3Y3g3S0RvRGJwQVBCNGdkdWswT3pSNnE1VjRKSGh4dE10a3B3d05mSlUteHBQUXdLdkwtQUd0dzJQYXhzLUlnazl0eTJ6SUhJbFhWMDJEbVBEU0ZGbWNiLVMtNjEtbjF5aTlEeEg0cEZlUjN4ZzVEN2txTi13SGlpQjBBdV9kUQ?oc=5) |
 | Japan's Prime Minister Shigeru Ishiba resigns - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5tWWxMU0M2MS1vYktadnlPVFV2V1BmSlN3ejdwMURrV29mdWlzYlhfN2Z4eFdzZXdGWnJLT3VSOHZaTzFVX05zWXVqdWZBZ1pVMkIxQzdrUVJDd9IBX0FVX3lxTFBSYl9xMERSOHhXN185NFl4RHRkTEdjR1c0UkR5RUJqOUhhLU1kb3RDdnN5aF9DenBJQ2N2M1VQcngyZU9JLUJMc2RISmM5a1JpeU1FeFZkZFRvZmctbWVF?oc=5) |
 | Teen coder made first millennial Catholic saint at youthful Vatican event - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPcnVNNzM5WHc5czNlVG90dHJRa3BUVFh3RFpBTWc3dXpmZGhYNjFVaG9lTmNNMmo1QklsLTZwbkQ4WjdHS0pvTXZQdnJSamZsNlFTdFRBejM0UkFud1U4ZkpET1RPSk9XcExLV1c1d1JreUpCdktTUGFPZ3FTd1ZLNGhGcE5PQWNFd0c1MzdvemVVNUdleEVjNUJKQWZPa2RTZ1VsX2ZORFZFSC1sbHR1Vl93?oc=5) |
 | Trump Tramples Congress’s Power, With Little Challenge From G.O.P. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1YeVlCV1puMzlvTTJZU0NWLVJnMlBfWm51Z3V2U3l1eTdOcTl1WG0tWlJrSElOU0k4WEdSTGJSaUpoYjJJVTNmUnp2MUFvdnJKazM5bGFVdGJOTG4yNExaQXA4RV9SVEF2My10ZS1yeTBoVTMzZEhlTHBlWlNDZw?oc=5) |
