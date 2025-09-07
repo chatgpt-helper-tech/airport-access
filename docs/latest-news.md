@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 03:33:34（北京时间）**
+🕒 更新时间：**2025年09月08日 03:40:51（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Republican condemns Vance for ‘despicable’ comments on Venezuelan boat strike - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNVUxtNzF4dUZyQmJxOS10ODRqYmhWZUtud3NOWG9QS1ZweTc1R3RVckRfdkRhVFVaZUFCYjh1MjdkajF2UFRMRU4xOUpRMEx5NmxpLXA0QTg1SEgtbFh4Q0Z6QkZRMlpzeFdKeHFoLV9yNXY1RWZRejNyWFpaS2dBVXVGaXc4MzJaa3VWZUE1cUN5bTQ?oc=5) |
 | In Chicago, residents celebrate Mexican Independence Day amid threats of heightened immigration enforcement - CNN | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBjbTYxbnZzTEVTb1VGdW9Ibk5sdGtTOVNxRFVoV2ZOajR3NFNiZTZOdTJfNWFZbHdNbWEwX01kQUlwZk1pSEh3S0xDSFhSVlQ1ODJMLU5VNUtRSG5yY1lqT0ZWc0xUQmt4Qlc4NTFBX0toamM?oc=5) |
 | Florida surgeon general denies need for study ahead of end to vaccine mandates in the state - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQQ0VuTDF4NGJpS3FZOWgwdkJYTG1Kdk5SbkRLTTFWNFllNmxNMlZwaGhRWFZvVnhzRlJpMzduLVB6WXY3WHdXeGJTSFA2bUlJZnE0cHNFakJUNnlDUnNKYWFrRjljZlU0Q3BhX0Y3WXNhQUE3TEZ5TDItYjA2LUJQWlR2bnRJZmN5OXc?oc=5) |
-| Conservatives have a message for Trump: We want more babies - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxQTmMwbk43bVN6MG0wMWJJeTN6dGNOYkpkdjhqaXRLU00yZHBEcEtjVTl3MFNIQ2lFV0lOUS1xemNodGFEX3ZqamtxZlNSSG5hVzlaVHA0RHhaaUt2Y3pJYjcxYWVhdDV3UXQzYkV5eGVVdnM4Wjc0U1FtakVTY0NlSXMzX2JCb01OWW1KYmR0Wk5FOVhrNmlFOW9BQUFKa1dFQXdQaExIUXBobEszQTF1Mm80TWYxUVRPaXpFQXRSV0dQY0c0OHdpR0hiMDA?oc=5) |
+| ICE Raids Unfold in Boston as Trump Signals Crackdown in Chicago - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPRUtJdXpacUphb21WckROU3pYQXA4TFpWU2hXMGhoYjNDbEVuVWFjVmdkcjBlTUJFdU53Tm1wdlcxMTJYanhJbTlyZ1F1SlNpTmhxUUU3VkRicHpVQ004MVY3UEF0TjgzR1VsNXc0THFXaHRER2gtZW9YYTNVc284aU11cC1lVUtGS19aYlBnT09nOEVxcWZTWUwycFMtdVozSnprSmhQd1RYQ0hSSDcxT0JKV3NKQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
