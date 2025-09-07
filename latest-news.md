@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 12:57:06（北京时间）**
+🕒 更新时间：**2025年09月07日 13:00:37（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Israel destroys second high-rise as assault on Gaza City intensifies - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9YV0FUeFZBRDBKNFRwdXk2a1YzYnIxdnVyenBJT2NNYjY0NFFqc0dweC11Vm8xcDdJYUgyUklCdVpqZEtDRkdfYzU5a1IzcUtvMlJXb21CSV9QUdIBX0FVX3lxTFBFVHFPemlHVGVYZ3Utc19VYmFCcHd0NFBmRUVKdzF3OFVZZDhhSjNoVkQ2RmF1SFBUcUVlTUNnOVFldkNRSkt6Q0ZYQmtWUEJwdUFVbmFVSmczLUU4Mmhj?oc=5) |
 | LAPD ends protection of former Vice President Kamala Harris amid criticism over diverting cops, sources say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi5wFBVV95cUxPNUNoWWNfeUlOdmJ3bnRKaWh3RWdQa2hnU2Q5bUFlYTRjRGo0MHp5ZVk4WmljMXdfTDNzR3F2c3ktTWtDUTMyLWtLMktlRFhGdUhQaFFNUksteFFCQ1RpR0o2M1ZYci1ZM2xZb1MxUmwtd2pIbDZ1Rjd1MFF5RENRY0dqY1hUeElXMDNKWXFhQWlkajBFdnZlejFNYUUtRmpzOW5SeWRpOGZRaUxFRWRKMG1mckV6RHU1YkJWVU1Bbmx5cS1RM3phd1BySFF0Y21YcWZSd1BwY0ZSbXNzbnVadWJrcHZQOFE?oc=5) |
 | Hawaii under state of emergency ahead of Hurricane Kiko - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNakFpdk1TUjhBeUUybUdpZ0UxYWgtcHUwcGdQUmdIWU9Sa0E3dzBHaDZmZ3o1a2ZmYURzUTZYbFB1VlMxSFBZU1BOenh5QUNhVVhiOFRzbUJTdWZJS29KSjBJdldYRWNVRDQ0UGptZFkzQ0Mzbzh2eVItYV9RVFA5RmxvQkgxaFQ4LXB1XzBhVkFPZ9IBlwFBVV95cUxQRUk0YjFPampjOVREa1plMFMxQTZUU0lZdzdaY0REZUtVUGRNSmJSVGRtaXBycEc0dDZGTWZZZG5vcTJCTWRuUG53MTFRWUEwTS1lekxnWXlKWXNWU3ZYR2pUMjBOZ3ZNMjlOZWhxcHRINjlZaDQwSVJ3NmZSR3BfZ2tOS2UybnE2MzN6a3Q4ZTM2UG9jWFBB?oc=5) |
+| Pilsen’s Mexican Independence Day Carries On Amid Trump’s Threats: ‘Joy Is Resistance’ - Block Club Chicago | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOVzBMcHhtNnJiVkF1QUFnUzFxdHBsSXdwTVhOZDNNVjA5SWFKMjJiWGlRVF9WMXVhTTczSHdNbEh4cUhqajVweWJ3ZU9lMGYteC10RXFpRDF0MnN3N19iRmJGeTJtbTBqVDNHLVM5ZV9vdWU3WnJRNDM0eU5DZnBOMlpONlROTzEyd1RXWlFmeGJaa0RHaUUtb2lxMlQwcEg2QkRoNlpKNmVhZWprSTRxT3R1bHVyM09FTHdYWktXMA?oc=5) |
 | Trump administration begins new Ice operation in Massachusetts - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPTkZMS3pkeTJiR3pPeDhOZmJaQlllMVNCalRDaFV4Uk1lSnJta0QxT25Va05PdVJPWkRLT3E3cHZNbzJndWI3RkxOTkNKUTdYVGEzdDUyQm05TVFFVlluaFVxdlNEbW9vQ1ZWcXY1Q1lYdm50ZzNJNDlaNUlnTTJGY25JVlRpZENhYlpVaG1BekdRYVd0WWNKUlBENEZhRUZwekRCLVVpTQ?oc=5) |
 | Matriarch in murder-for-hire trial decided not to testify after clashing with judge. The jury found her guilty the next day - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE5MWndYUVlIMzVQS0QyQ2VDdTMwSXJqWWJ0MG1VbmI3VTEzaTFzeWtVNUpJNEFiLTZHMnBWWDRfaW9tUnhjM2ZsZ0VxQ0xxV2NGOG5QQU9QZ21KWXpTQWRjUDFxMEtHX3lkc3lUWnMtbkVGRWVH?oc=5) |
 | RFK. Jr’s family members call for his resignation, say he is a ‘threat’ to Americans’ health - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQcnF6Y0syYXRsMjgxZnhfQjQzenNrN2hWeGRzV09tbjQ1QXhzbjdxYzNUcFk5TGc1ZEtYTUZNLW44SFQ0RmdhT0o3MG1MWDVaWFRoaEticzJFUko1NHlKUVFpRDVmakl6WnFoMEZqMnM1V2NId0ptSHNiR1AyT1RES2gxQWE1bnp3aUhDbk50Tm1zWENubXpQYm5FT2k4XzFVcU5YbGdlVVFwYWFieVBSRjdFbkVKSHJpekhfeXNFTjZuZ9IBxwFBVV95cUxNMHI5b1puM2pJcU9BV21TZHI2c3lrUDNCdmNrS2hCVGd4THJMWWtUT29oUkxwSUNwczBYOE1FVmpEZ2hQVjZSX2dYZ0NyZFVpTG1weUZUZjNzSmtna2s0enIwMkRLQkVycElhbEt2Tk9CTHVLWTJOY1Vtd0JEcHVPWGU3SlkxYll4Z0RWOFBUMEk2c0pEdTg0Z0FGdnZZS19iSGZGQlpkV3RhaW9FeWpFcVNnZGlodFpHS0NRVi1NcVBtMmlRZmdj?oc=5) |
-| Carlo Acutis: From London baptism to first millennial saint - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1KQVpOY0pyVGdBVmtNNmZUN2d0THUxdzNKT0NuVmtMNmVlNXhDZ3ZVRC1BVDhqcXJwZnpVMXdQS3Z6RHF1RmdPX01NQkZKQ1pEaEhORHQ5SGp4UdIBX0FVX3lxTE02dVY5SGpTSWpxY2NQZWtnZ1drLW5iVmh1c3JkTTdaSEdyUWJlSGZIRmFqRWkzX2MzX01HMWhLNHhVaVBHQjdTNURGRXI3LTFneXBFRVNRZFBVWVVtZkNV?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
