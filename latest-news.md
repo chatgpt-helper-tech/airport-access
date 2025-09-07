@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 08:41:22（北京时间）**
+🕒 更新时间：**2025年09月07日 08:48:16（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Over 25 million under alert for severe weather, possible flash flooding in Northeast - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPVWx1bFlrYkoyNGZ6MXBRN2VhLUxPdzY3b3AzeVlzNVlSMk5DSjYyQVd6aXkwMHdVeWRuWjVXTTlhQnRFVHdJMmplck82MU9ZTDJQOFBsWnFocG9FSGd3b0hta3JtazlpRXlaZEVZX3RlNEFnemtDV1ctcWhjdXktRzRmRVRVZFh1cldGUzJtRTRyMi1ObnUtR1RvdGZ1WTNDc2N30gGoAUFVX3lxTE9RQnhkOERlTTZ0Z2REVUxLbXBCdDQwcmpjRXhXU0xWS29lYzlQdWV4bFIzd1hJcFJ5YWJIZkpHRzFFU3pZclRlZVZZZlJWWS1tZHFWSUdlSHplalA3aVZiZ1Z5TTdJZnRWMGgySDdhU2RyRmFWM2s3MndzaUpOdHN3SG9Zc0VTQ0dpSXJUM29jejBlYTVQY0hqS2FJNGJPQjV6THZHXzRBNg?oc=5) |
 | Office of the Governor – News Release – Emergency Proclamation Issued Ahead of Hurricane Kiko - Hawaii.gov | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxQWVdveDJTeHgzdmFyUm1lT0JvMjNIV05uZUxRSXZ1dmFwM2c3MGMyNGg3RmdUbnZxdEdjNkhXUnRyNmkwUkt5UTVyWWlRVmIyMEFqdG1pQ1dwNzRjUXg3R0xqZ0ZNMzFnNVpDQ25YUWNWeGx6WkNyeEJyVHdmVWg4b0lPVEctbnJ6ODBnbDBJWXFkRmVncHZidnA0eW9fUVp5MTlENk41c055Ykd0LUZHMGs4QkswWW9uNWNkdll2MnNUNDdYNlE?oc=5) |
 | ICE Has Begun Immigration Crackdown in Massachusetts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBldU5yZ2c0OWhTMjlCM2NJMDRCc0hLamQzbkpDdmRLdTRZVXNpS2hXdU9QRUxmN1BFODdMZklJcm1hSzZvTGVvU1dWVHpxbEU1QkJKTzZZUFhHbzBSempzckF5OFpqYnhkNEZjaW03MkhZcFUwajJBTnN3TFo?oc=5) |
-| Mexican Independence Day events canceled amid looming ICE surge - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQcmFpOUs4TE1XLTJ0VExGZzNyOVgzLWNjRDA0R2NXSXVVbWVVU1Y4NmUxajJ0cFNPNk9rdTBHV2lqUHpFbGhhR0JYeHVmWEhrTm85QTZ0c0Y1cHpRZ3JBNW03Z1dSclJ1UE5xQTBOMFk3R1dFMUVITWpRdEZwZlhmemxMNXl1b25mdVNHQTUxbTdIVkhMTzBTLVZtZk1kT00?oc=5) |
-| Maduro vows to defend Venezuela’s sovereignty as tensions with U.S. escalate - PBS | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPengtZ3ppSExPNmc1M2JlZGpYN2NoNWd6LW85eDdvQkpmU011dExqcFFLbXJlMDdfS3pRSElaOHQxMDR4MjJ6S18wcXVGVlBVTGJ2NC1IeXVwc29aUzdwa0hGbHZlUURnQ3R5ZzdTdm1MN3dVbjJmWmd0RXdnbFpDWEc0YnZiaW9RRjQ3ZnRCNFN5TU5uN3phN2JzUmRScG5RSGdYZmV0dE1tZmhPR3fSAbMBQVVfeXFMT24xb1QtWXNMSmJpb1FrSjUxaGhQcGZxeWZRUnFxdS15V1RZSFg4SG1aZ2t1TEh6aURaM3ItOXljd0d4OWp4SXVkbElYNVdrLXJ2X2FQQkRTREdPUXBocFQ5YmlSVGFmdlJZemNSbUpBeDBFSlpualY0aFdxQ2ctcUVxOXl0SlF2ZXc0dFltWTdsNnh0MzNXVlpFYjlLX1FRcEtwbGhsZWNWTGhvN0UyckpHYWc?oc=5) |
+| Mexican festivals in Chicago canceled amid Trump plans to deploy troops - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPUEJMVzBrR2dieC01T3dIdEYtcVdmcXBtVEZhZG9YR0JEUXFRaGtma2VoejVFMDZpbGtQQmVmenVsRl95TWlxMWxJNEI0bzNNODFqaS1nelBRUktEQzBMV05EVlB1ZkNQeTJ0MGw3aTdpMjJGTE1FWjg2TkNvVXJud1ZzU0wzS2hwQk9rX3VCWQ?oc=5) |
 | President of Peace, Department of War. A New Name Sends Mixed Signals. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNemVDb29uMDU4c1lBaG9lSW5GdGl0bVpZMm41QTl1WHliZkNxTW1oVjlROF9vTDc1VmFXUXlmZDNrMVFPMlJwc2hxSDlpb2RDamhmVlBJdWRmVGswOXpObTJaRFVoMG1NeFdDTTlfcTR4MjNTVThHd3M4RkpFSjFWYw?oc=5) |
+| Maduro vows to defend Venezuela’s sovereignty as tensions with U.S. escalate - PBS | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPengtZ3ppSExPNmc1M2JlZGpYN2NoNWd6LW85eDdvQkpmU011dExqcFFLbXJlMDdfS3pRSElaOHQxMDR4MjJ6S18wcXVGVlBVTGJ2NC1IeXVwc29aUzdwa0hGbHZlUURnQ3R5ZzdTdm1MN3dVbjJmWmd0RXdnbFpDWEc0YnZiaW9RRjQ3ZnRCNFN5TU5uN3phN2JzUmRScG5RSGdYZmV0dE1tZmhPR3fSAbMBQVVfeXFMT24xb1QtWXNMSmJpb1FrSjUxaGhQcGZxeWZRUnFxdS15V1RZSFg4SG1aZ2t1TEh6aURaM3ItOXljd0d4OWp4SXVkbElYNVdrLXJ2X2FQQkRTREdPUXBocFQ5YmlSVGFmdlJZemNSbUpBeDBFSlpualY0aFdxQ2ctcUVxOXl0SlF2ZXc0dFltWTdsNnh0MzNXVlpFYjlLX1FRcEtwbGhsZWNWTGhvN0UyckpHYWc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
