@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 02:24:04（北京时间）**
+🕒 更新时间：**2025年09月08日 02:32:27（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Zelensky condemns 'ruthless attack' after Russia hits main government building in Kyiv | [阅读全文](https://www.bbc.com/news/articles/cpq5dl5y4nlo?at_medium=RSS&at_campaign=rss) |
-| Healey says more military sites could house asylum seekers | [阅读全文](https://www.bbc.com/news/articles/c5yvxergw4xo?at_medium=RSS&at_campaign=rss) |
 | Arrests at rally against Palestine Action ban rise to 890 | [阅读全文](https://www.bbc.com/news/articles/c8rvly00440o?at_medium=RSS&at_campaign=rss) |
+| Unions warn government not to water down workers' rights bill | [阅读全文](https://www.bbc.com/news/articles/cq65l5epl3eo?at_medium=RSS&at_campaign=rss) |
 | Sirens blare from millions of phones in national test of emergency alerts | [阅读全文](https://www.bbc.com/news/articles/c2lx9x251xgo?at_medium=RSS&at_campaign=rss) |
 | Teen gamer who 'performed miracles' becomes  first millennial saint | [阅读全文](https://www.bbc.com/news/articles/c5yg5me8dvlo?at_medium=RSS&at_campaign=rss) |
+| Healey says more military sites could house asylum seekers | [阅读全文](https://www.bbc.com/news/articles/c5yvxergw4xo?at_medium=RSS&at_campaign=rss) |
 | Five-day London Underground strike under way | [阅读全文](https://www.bbc.com/news/articles/cx2rg128l68o?at_medium=RSS&at_campaign=rss) |
 | Thousands throng Jerusalem to press Netanyahu to make hostage release deal | [阅读全文](https://www.bbc.com/news/articles/cn95x2vlv8ro?at_medium=RSS&at_campaign=rss) |
 | Microsoft cloud services disrupted by Red Sea cable cuts | [阅读全文](https://www.bbc.com/news/articles/c3rvx470yg8o?at_medium=RSS&at_campaign=rss) |
 | Czech police finally catch up with 'phantom racing car driver' | [阅读全文](https://www.bbc.com/news/articles/c4g7xl4p53ko?at_medium=RSS&at_campaign=rss) |
-| Thousands flock to Vatican as teenager made first millennial saint | [阅读全文](https://www.bbc.com/news/videos/cy9njpyp09do?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
