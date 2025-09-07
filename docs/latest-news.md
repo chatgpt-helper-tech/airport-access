@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 12:25:08（北京时间）**
+🕒 更新时间：**2025年09月07日 12:33:22（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | President of Peace, Department of War. A New Name Sends Mixed Signals. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNemVDb29uMDU4c1lBaG9lSW5GdGl0bVpZMm41QTl1WHliZkNxTW1oVjlROF9vTDc1VmFXUXlmZDNrMVFPMlJwc2hxSDlpb2RDamhmVlBJdWRmVGswOXpObTJaRFVoMG1NeFdDTTlfcTR4MjNTVThHd3M4RkpFSjFWYw?oc=5) |
 | LAPD ends protection of former Vice President Kamala Harris amid criticism over diverting cops, sources say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi5wFBVV95cUxPNUNoWWNfeUlOdmJ3bnRKaWh3RWdQa2hnU2Q5bUFlYTRjRGo0MHp5ZVk4WmljMXdfTDNzR3F2c3ktTWtDUTMyLWtLMktlRFhGdUhQaFFNUksteFFCQ1RpR0o2M1ZYci1ZM2xZb1MxUmwtd2pIbDZ1Rjd1MFF5RENRY0dqY1hUeElXMDNKWXFhQWlkajBFdnZlejFNYUUtRmpzOW5SeWRpOGZRaUxFRWRKMG1mckV6RHU1YkJWVU1Bbmx5cS1RM3phd1BySFF0Y21YcWZSd1BwY0ZSbXNzbnVadWJrcHZQOFE?oc=5) |
 | Trump administration launches immigration crackdown in Massachusetts, reports say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxPNTY5cWF5Xzc1MzQtemhXTW80ZlU3MmcyanJ0aldsSGkyZ0xPX01RTEVtWDdMR3l2cFhmTEFJZU1jdi1NUm1oOV83RGsyaDhpODh3bTVKUm1PRUlPT1daM1VJbmx3YXlWeFNQZzhEZzRENGlvdHN1QnZfUThmQ0l5WUxYR0pVTEo3YXc1dEZWdWczYmwwcDNwSEljRWhDLWh0UGZhWjdxVUpTc2Nyc2lNYTcyMndGdXY1V1k1dXRtMA?oc=5) |
-| RFK. Jr’s family members call for his resignation, say he is a ‘threat’ to Americans’ health - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQcnF6Y0syYXRsMjgxZnhfQjQzenNrN2hWeGRzV09tbjQ1QXhzbjdxYzNUcFk5TGc1ZEtYTUZNLW44SFQ0RmdhT0o3MG1MWDVaWFRoaEticzJFUko1NHlKUVFpRDVmakl6WnFoMEZqMnM1V2NId0ptSHNiR1AyT1RES2gxQWE1bnp3aUhDbk50Tm1zWENubXpQYm5FT2k4XzFVcU5YbGdlVVFwYWFieVBSRjdFbkVKSHJpekhfeXNFTjZuZ9IBxwFBVV95cUxNMHI5b1puM2pJcU9BV21TZHI2c3lrUDNCdmNrS2hCVGd4THJMWWtUT29oUkxwSUNwczBYOE1FVmpEZ2hQVjZSX2dYZ0NyZFVpTG1weUZUZjNzSmtna2s0enIwMkRLQkVycElhbEt2Tk9CTHVLWTJOY1Vtd0JEcHVPWGU3SlkxYll4Z0RWOFBUMEk2c0pEdTg0Z0FGdnZZS19iSGZGQlpkV3RhaW9FeWpFcVNnZGlodFpHS0NRVi1NcVBtMmlRZmdj?oc=5) |
 | Matriarch in murder-for-hire trial decided not to testify after clashing with judge. The jury found her guilty the next day - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE5MWndYUVlIMzVQS0QyQ2VDdTMwSXJqWWJ0MG1VbmI3VTEzaTFzeWtVNUpJNEFiLTZHMnBWWDRfaW9tUnhjM2ZsZ0VxQ0xxV2NGOG5QQU9QZ21KWXpTQWRjUDFxMEtHX3lkc3lUWnMtbkVGRWVH?oc=5) |
+| RFK. Jr’s family members call for his resignation, say he is a ‘threat’ to Americans’ health - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQcnF6Y0syYXRsMjgxZnhfQjQzenNrN2hWeGRzV09tbjQ1QXhzbjdxYzNUcFk5TGc1ZEtYTUZNLW44SFQ0RmdhT0o3MG1MWDVaWFRoaEticzJFUko1NHlKUVFpRDVmakl6WnFoMEZqMnM1V2NId0ptSHNiR1AyT1RES2gxQWE1bnp3aUhDbk50Tm1zWENubXpQYm5FT2k4XzFVcU5YbGdlVVFwYWFieVBSRjdFbkVKSHJpekhfeXNFTjZuZ9IBxwFBVV95cUxNMHI5b1puM2pJcU9BV21TZHI2c3lrUDNCdmNrS2hCVGd4THJMWWtUT29oUkxwSUNwczBYOE1FVmpEZ2hQVjZSX2dYZ0NyZFVpTG1weUZUZjNzSmtna2s0enIwMkRLQkVycElhbEt2Tk9CTHVLWTJOY1Vtd0JEcHVPWGU3SlkxYll4Z0RWOFBUMEk2c0pEdTg0Z0FGdnZZS19iSGZGQlpkV3RhaW9FeWpFcVNnZGlodFpHS0NRVi1NcVBtMmlRZmdj?oc=5) |
 | After militarizing U.S. streets, Trump turns guns on the drug trade - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPSzVYaWxBaVl2MnhvS19oLTVNSkktVU5IZi1SX1dTNVpSRjNHWGJ3aTVoTlBuOUFFTVp2OHN2Q0xESTBEWXlXSWxxelUyak1jdVNkSG85TzlpSFFXS0Y4bkx2WGpoSFB5TmVoUjRRX292N0tndE9hTmo0dnh1S2dOM3NKQV92MWZJRTluY01CUDU5MFl4aUdF?oc=5) |
 
 ---
