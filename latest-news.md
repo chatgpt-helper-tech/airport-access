@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 21:09:40（北京时间）**
+🕒 更新时间：**2025年09月07日 21:18:00（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Healey says more military sites could house asylum seekers | [阅读全文](https://www.bbc.com/news/articles/c5yvxergw4xo?at_medium=RSS&at_campaign=rss) |
-| Arrests at pro-Palestine Action protest rise to 890 | [阅读全文](https://www.bbc.com/news/articles/c8rvly00440o?at_medium=RSS&at_campaign=rss) |
+| Arrests at rally against Palestine Action ban rise to 890 | [阅读全文](https://www.bbc.com/news/articles/c8rvly00440o?at_medium=RSS&at_campaign=rss) |
 | Teen gamer who 'performed miracles' becomes  first millennial saint | [阅读全文](https://www.bbc.com/news/articles/c5yg5me8dvlo?at_medium=RSS&at_campaign=rss) |
 | Tube strike begins with reduced services as five days of major disruption looms | [阅读全文](https://www.bbc.com/news/articles/cx2rg128l68o?at_medium=RSS&at_campaign=rss) |
 | One of the world's most sacred places is being turned into a luxury mega-resort | [阅读全文](https://www.bbc.com/news/articles/c707kx2nk7go?at_medium=RSS&at_campaign=rss) |
@@ -30,8 +30,8 @@
 | Teen coder made first millennial Catholic saint at youthful Vatican event - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPcnVNNzM5WHc5czNlVG90dHJRa3BUVFh3RFpBTWc3dXpmZGhYNjFVaG9lTmNNMmo1QklsLTZwbkQ4WjdHS0pvTXZQdnJSamZsNlFTdFRBejM0UkFud1U4ZkpET1RPSk9XcExLV1c1d1JreUpCdktTUGFPZ3FTd1ZLNGhGcE5PQWNFd0c1MzdvemVVNUdleEVjNUJKQWZPa2RTZ1VsX2ZORFZFSC1sbHR1Vl93?oc=5) |
 | Thousands march in D.C. against Trump’s law enforcement takeover - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBaTjN4aUt5TlZBclZmbEkyRzE4bWFLeXo5YUdsa1EtUER0SndQR3R3dnBRc1I5UW9IbEwxRzJzQndHaVU2YUpzdk8zeWJSNlRDV2dKSHgwXy1QTHR5RTFnS1ZCTWhuTEJ3Z1NqOEh5eEJOaHRRSDh5Vjhpbw?oc=5) |
 | 2 tickets -- sold in Missouri, Texas -- win massive $1.8B Powerball jackpot - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOWGE2LTRDMVV4d0dJVjdpWWxSLXpYMlhqOU13MlJGN3JIYmR4d2JXVFRzMWdhZnBMZTJzUERNZ01wb3QyZ0k4SWFCZ1lsblZEako3NGowNFhMa3RaWXJpeGFHNVZ4bTlZU2NjMUR6Z0pmeVAwemlNdVFFamJoZDlpZVR2QUJaZThyOG9nTFBCOEpyZDBERWhsQWxCU1fSAaIBQVVfeXFMTXlQM08ySUdRM1RjVFNjeXpDU21mcFdsOGpUZHJfQjhMX3hjZ1U1azgzaVA1QU1xR1BhVHFnb3AzMFNQOVFUeFF6WFdGTkx5NUNBeVd3eGU4LXFxb0FjN3VvVGZvT2dNWFkyWDRiTXFvWTFXQ2hHS3UwOFp4ZG52QnFNZHhSOHdpU3Zqck5yYWdCeU85MEl3eGpNN3ZVaTB5dktB?oc=5) |
-| ICE begins immigration crackdown in Massachusetts, DHS says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQUjAwWjZwUWhGTEZoWDluUFZld09YbUFCU0cyZTJkbk8tcWRROTFtckFyOE4yUHhuOEMyTDRGT01JNnZiX2RtM0JuOHpRNV85XzN5VlFMTlBudDNfRC1FYlBxMU9WV3d5NVJ0VEVIWmNZZlY5N3FFMUFMZDRPUDJkSWwxbXdVZHF2UEkzaXNvVmF1d2U2ZkNj?oc=5) |
 | In Chicago, residents celebrate Mexican Independence Day amid threats of heightened immigration enforcement - CNN | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBjbTYxbnZzTEVTb1VGdW9Ibk5sdGtTOVNxRFVoV2ZOajR3NFNiZTZOdTJfNWFZbHdNbWEwX01kQUlwZk1pSEh3S0xDSFhSVlQ1ODJMLU5VNUtRSG5yY1lqT0ZWc0xUQmt4Qlc4NTFBX0toamM?oc=5) |
+| Trump administration launches immigration crackdown in Massachusetts, reports say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxPNTY5cWF5Xzc1MzQtemhXTW80ZlU3MmcyanJ0aldsSGkyZ0xPX01RTEVtWDdMR3l2cFhmTEFJZU1jdi1NUm1oOV83RGsyaDhpODh3bTVKUm1PRUlPT1daM1VJbmx3YXlWeFNQZzhEZzRENGlvdHN1QnZfUThmQ0l5WUxYR0pVTEo3YXc1dEZWdWczYmwwcDNwSEljRWhDLWh0UGZhWjdxVUpTc2Nyc2lNYTcyMndGdXY1V1k1dXRtMA?oc=5) |
 | Conservatives have a message for Trump: We want more babies - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxQTmMwbk43bVN6MG0wMWJJeTN6dGNOYkpkdjhqaXRLU00yZHBEcEtjVTl3MFNIQ2lFV0lOUS1xemNodGFEX3ZqamtxZlNSSG5hVzlaVHA0RHhaaUt2Y3pJYjcxYWVhdDV3UXQzYkV5eGVVdnM4Wjc0U1FtakVTY0NlSXMzX2JCb01OWW1KYmR0Wk5FOVhrNmlFOW9BQUFKa1dFQXdQaExIUXBobEszQTF1Mm80TWYxUVRPaXpFQXRSV0dQY0c0OHdpR0hiMDA?oc=5) |
 
 ---
