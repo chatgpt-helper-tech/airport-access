@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 18:56:19（北京时间）**
+🕒 更新时间：**2025年09月07日 19:00:56（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | ICE Has Begun Immigration Crackdown in Massachusetts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBldU5yZ2c0OWhTMjlCM2NJMDRCc0hLamQzbkpDdmRLdTRZVXNpS2hXdU9QRUxmN1BFODdMZklJcm1hSzZvTGVvU1dWVHpxbEU1QkJKTzZZUFhHbzBSempzckF5OFpqYnhkNEZjaW03MkhZcFUwajJBTnN3TFo?oc=5) |
 | 2 tickets -- sold in Missouri, Texas -- win massive $1.8B Powerball jackpot - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOWGE2LTRDMVV4d0dJVjdpWWxSLXpYMlhqOU13MlJGN3JIYmR4d2JXVFRzMWdhZnBMZTJzUERNZ01wb3QyZ0k4SWFCZ1lsblZEako3NGowNFhMa3RaWXJpeGFHNVZ4bTlZU2NjMUR6Z0pmeVAwemlNdVFFamJoZDlpZVR2QUJaZThyOG9nTFBCOEpyZDBERWhsQWxCU1fSAaIBQVVfeXFMTXlQM08ySUdRM1RjVFNjeXpDU21mcFdsOGpUZHJfQjhMX3hjZ1U1azgzaVA1QU1xR1BhVHFnb3AzMFNQOVFUeFF6WFdGTkx5NUNBeVd3eGU4LXFxb0FjN3VvVGZvT2dNWFkyWDRiTXFvWTFXQ2hHS3UwOFp4ZG52QnFNZHhSOHdpU3Zqck5yYWdCeU85MEl3eGpNN3ZVaTB5dktB?oc=5) |
 | LAPD ends protection of former Vice President Kamala Harris amid criticism over diverting cops, sources say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi5wFBVV95cUxPNUNoWWNfeUlOdmJ3bnRKaWh3RWdQa2hnU2Q5bUFlYTRjRGo0MHp5ZVk4WmljMXdfTDNzR3F2c3ktTWtDUTMyLWtLMktlRFhGdUhQaFFNUksteFFCQ1RpR0o2M1ZYci1ZM2xZb1MxUmwtd2pIbDZ1Rjd1MFF5RENRY0dqY1hUeElXMDNKWXFhQWlkajBFdnZlejFNYUUtRmpzOW5SeWRpOGZRaUxFRWRKMG1mckV6RHU1YkJWVU1Bbmx5cS1RM3phd1BySFF0Y21YcWZSd1BwY0ZSbXNzbnVadWJrcHZQOFE?oc=5) |
-| ​​Trump Tried to Kill the Infrastructure Law. Now He’s Getting Credit for Its Projects. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBWRjMwZUFEOUJMN1VRVUJvZXAwN3ZQby1FM0ZiZjhIMUtza0lTYmJBNm1GWXlNanN6WFhBSnhad0Z1Mko3ZWk1Qnc4cVJXRVJtclFacXAzbVpqU0pGNGd4U18xX2FiNTJaU0p1c19tbjJxS3JHaXlrSw?oc=5) |
 | Thousands march in D.C. against Trump’s law enforcement takeover - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBaTjN4aUt5TlZBclZmbEkyRzE4bWFLeXo5YUdsa1EtUER0SndQR3R3dnBRc1I5UW9IbEwxRzJzQndHaVU2YUpzdk8zeWJSNlRDV2dKSHgwXy1QTHR5RTFnS1ZCTWhuTEJ3Z1NqOEh5eEJOaHRRSDh5Vjhpbw?oc=5) |
+| RFK. Jr’s family members call for his resignation, say he is a ‘threat’ to Americans’ health - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQcnF6Y0syYXRsMjgxZnhfQjQzenNrN2hWeGRzV09tbjQ1QXhzbjdxYzNUcFk5TGc1ZEtYTUZNLW44SFQ0RmdhT0o3MG1MWDVaWFRoaEticzJFUko1NHlKUVFpRDVmakl6WnFoMEZqMnM1V2NId0ptSHNiR1AyT1RES2gxQWE1bnp3aUhDbk50Tm1zWENubXpQYm5FT2k4XzFVcU5YbGdlVVFwYWFieVBSRjdFbkVKSHJpekhfeXNFTjZuZ9IBxwFBVV95cUxNMHI5b1puM2pJcU9BV21TZHI2c3lrUDNCdmNrS2hCVGd4THJMWWtUT29oUkxwSUNwczBYOE1FVmpEZ2hQVjZSX2dYZ0NyZFVpTG1weUZUZjNzSmtna2s0enIwMkRLQkVycElhbEt2Tk9CTHVLWTJOY1Vtd0JEcHVPWGU3SlkxYll4Z0RWOFBUMEk2c0pEdTg0Z0FGdnZZS19iSGZGQlpkV3RhaW9FeWpFcVNnZGlodFpHS0NRVi1NcVBtMmlRZmdj?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
