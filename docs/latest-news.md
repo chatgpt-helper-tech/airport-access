@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 20:08:59（北京时间）**
+🕒 更新时间：**2025年09月07日 20:16:16（北京时间）**
 
 ---
 
@@ -10,7 +10,6 @@
 |--------|-------------|
 | Watch: BBC at the scene of Ukrainian government building strike | [阅读全文](https://www.bbc.com/news/videos/cy04lx67e1eo?at_medium=RSS&at_campaign=rss) |
 | Healey says more military sites could house asylum seekers | [阅读全文](https://www.bbc.com/news/articles/c5yvxergw4xo?at_medium=RSS&at_campaign=rss) |
-| Prince Harry to visit UK for first time since security court hearing | [阅读全文](https://www.bbc.com/news/articles/cz9jpdq1k04o?at_medium=RSS&at_campaign=rss) |
 | Tube strike begins with reduced services as five days of major disruption looms | [阅读全文](https://www.bbc.com/news/articles/cx2rg128l68o?at_medium=RSS&at_campaign=rss) |
 | Teen gamer who 'performed miracles' becomes  first millennial saint | [阅读全文](https://www.bbc.com/news/articles/c5yg5me8dvlo?at_medium=RSS&at_campaign=rss) |
 | 'Keep your cool' during emergency alert test, government says | [阅读全文](https://www.bbc.com/news/articles/cpw15l5n78jo?at_medium=RSS&at_campaign=rss) |
@@ -18,6 +17,7 @@
 | One of the world's most sacred places is being turned into a luxury mega-resort | [阅读全文](https://www.bbc.com/news/articles/c707kx2nk7go?at_medium=RSS&at_campaign=rss) |
 | My clothes wouldn't fit in my new flat - so I invented Vinted | [阅读全文](https://www.bbc.co.uk/bitesize/articles/zttrp9q?at_medium=RSS&at_campaign=rss) |
 | He evaded the FBI for 21 years. Only to be found in a Welsh cottage | [阅读全文](https://www.bbc.com/news/articles/ckgjpn8gl97o?at_medium=RSS&at_campaign=rss) |
+| Inflatable tanks and flat-pack guns - inside Ukraine's decoy war | [阅读全文](https://www.bbc.com/news/articles/cr4e435x4kqo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
