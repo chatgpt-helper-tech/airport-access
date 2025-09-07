@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 16:56:54（北京时间）**
+🕒 更新时间：**2025年09月07日 17:00:43（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | Watch: BBC at the scene of Ukrainian government building strike | [阅读全文](https://www.bbc.com/news/videos/cy04lx67e1eo?at_medium=RSS&at_campaign=rss) |
 | Prince Harry to visit UK for first time since security court hearing | [阅读全文](https://www.bbc.com/news/articles/cz9jpdq1k04o?at_medium=RSS&at_campaign=rss) |
 | Tube strike begins with reduced services as five days of major disruption looms | [阅读全文](https://www.bbc.com/news/articles/cx2rg128l68o?at_medium=RSS&at_campaign=rss) |
-| Teen gamer who 'performed miracles' set to become first millennial saint | [阅读全文](https://www.bbc.com/news/articles/c5yg5me8dvlo?at_medium=RSS&at_campaign=rss) |
+| Teen gamer who 'performed miracles' becomes  first millennial saint | [阅读全文](https://www.bbc.com/news/articles/c5yg5me8dvlo?at_medium=RSS&at_campaign=rss) |
 | 'Keep your cool' during emergency alert test, government says | [阅读全文](https://www.bbc.com/news/articles/cpw15l5n78jo?at_medium=RSS&at_campaign=rss) |
 | Anna Wintour was Vogue. Now she's gone, can the magazine stay relevant? | [阅读全文](https://www.bbc.com/news/articles/c04q91q3zvpo?at_medium=RSS&at_campaign=rss) |
 | One of the world's most sacred places is being turned into a luxury mega-resort | [阅读全文](https://www.bbc.com/news/articles/c707kx2nk7go?at_medium=RSS&at_campaign=rss) |
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | President Trump portends immigration actions with ‘Chipocalypse Now’ post; Gov. Pritzker calls it ‘not normal’ - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPM1dSdHlPYXZpMDFfaVliTFFlblMtQWVjdk5VTEZ3MWlxVllVbUdhWlJQZUIwcEZkWWhST1FXZHJxVTJuOFJfOXFBbG5YNVRyZWxlNF9xc2VSbFdlaDY1YkNxZVFDUThEQVBZRTBVN1VFaHFPQmZCREl1eWhOdkU1WFZqM2ljQUE3RnVIMHdLdk5IQnI2dVVuMlBmVQ?oc=5) |
-| Russia's largest air attack on Ukraine sets fire to main government building - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNcFVmR2U5N0V2VWFwWkhqSGV4SXlSeER3Vm1jcEk1LVlvTGVPNGtrM1JmQk9LNXNOMWNJRXVXQlJQRnRXY1E4a2x0RHI1d2xaUXlQNWg3REd6RU0zOHVLVGo2UFdTaklfaFdtUlRPUlYtemRxYWFYd0UzMXZjLWlkQnlNMDRMUnNyZTVmNE4xRHRVblJEOHZoMXZzbXFISlIxdDRPVTlJXzZKTWZzSzdLR3QzOXJpTWo5YXc?oc=5) |
 | Immigration Raid Exposes Tensions From Seoul to Washington to Rural Georgia - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1QVVpwdWprWG5NYzczTm0xcjU2Vi1NaUM4VlB3TlgxNUdkMmRNX0dOdDY1Y2dnYklxUGxveV9KN3hrV0tOalZrU2poTUppSDZCV2s4OGFja0lCQVo5ZVlGSGRiTzFIZ3FZWDE0VVVuRmxnbWxzZnc?oc=5) |
+| Russia's largest air attack on Ukraine sets fire to main government building - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNcFVmR2U5N0V2VWFwWkhqSGV4SXlSeER3Vm1jcEk1LVlvTGVPNGtrM1JmQk9LNXNOMWNJRXVXQlJQRnRXY1E4a2x0RHI1d2xaUXlQNWg3REd6RU0zOHVLVGo2UFdTaklfaFdtUlRPUlYtemRxYWFYd0UzMXZjLWlkQnlNMDRMUnNyZTVmNE4xRHRVblJEOHZoMXZzbXFISlIxdDRPVTlJXzZKTWZzSzdLR3QzOXJpTWo5YXc?oc=5) |
 | Japan Prime Minister Ishiba to resign: reports - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQem1IU3MxWW4zdUhwTUVOeER5UDVBR0FWWUpyUmxPN1lsUFFtQWtEaXcwSTZLZFR1amFWOGVGVFVTYXRrUjcyNWRBNWtxNHhkd0NxODdpNmFuUWp4MkluMl9qeE5iVm5ITWlEa181OTRvZmcwUk9TQ3huNTBhWUU4cDhMZkFPUQ?oc=5) |
 | Thousands march in D.C. against Trump’s law enforcement takeover - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBaTjN4aUt5TlZBclZmbEkyRzE4bWFLeXo5YUdsa1EtUER0SndQR3R3dnBRc1I5UW9IbEwxRzJzQndHaVU2YUpzdk8zeWJSNlRDV2dKSHgwXy1QTHR5RTFnS1ZCTWhuTEJ3Z1NqOEh5eEJOaHRRSDh5Vjhpbw?oc=5) |
 | Trump administration begins new Ice operation in Massachusetts - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPTkZMS3pkeTJiR3pPeDhOZmJaQlllMVNCalRDaFV4Uk1lSnJta0QxT25Va05PdVJPWkRLT3E3cHZNbzJndWI3RkxOTkNKUTdYVGEzdDUyQm05TVFFVlluaFVxdlNEbW9vQ1ZWcXY1Q1lYdm50ZzNJNDlaNUlnTTJGY25JVlRpZENhYlpVaG1BekdRYVd0WWNKUlBENEZhRUZwekRCLVVpTQ?oc=5) |
