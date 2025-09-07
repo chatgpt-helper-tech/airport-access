@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 22:16:09（北京时间）**
+🕒 更新时间：**2025年09月07日 22:25:23（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Teen coder made first millennial Catholic saint at youthful Vatican event - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPcnVNNzM5WHc5czNlVG90dHJRa3BUVFh3RFpBTWc3dXpmZGhYNjFVaG9lTmNNMmo1QklsLTZwbkQ4WjdHS0pvTXZQdnJSamZsNlFTdFRBejM0UkFud1U4ZkpET1RPSk9XcExLV1c1d1JreUpCdktTUGFPZ3FTd1ZLNGhGcE5PQWNFd0c1MzdvemVVNUdleEVjNUJKQWZPa2RTZ1VsX2ZORFZFSC1sbHR1Vl93?oc=5) |
 | Poll: Trump's job ratings stay negative; Americans express strong support for vaccines - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxOVWotbloyTllmTFBzUmpDNzZ4WTZaekw5Mi1zTXBEdko0VWJOd1lqcUtMWU5sMk11d1lxZzIyZGI5RVlyeWZNb29kQW10elh0QWhoRWxjclVfaWR1WWJ2SjV0TnFybUliT3I4YTZxYm5SbW5lSjJDT19RVGdCQkZ4SVREMUJkbWZQTzJtalV5bEZEY2xqWXZ1WTZGR2IyMVBRcE1tSVV6TDN4cnRRd1QwZDFFRzBCVUlwOXgtV25IUFppMElFZ1dxVkNfQ25mc0x40gFWQVVfeXFMTlBoM3ZHU0tELURpb1Z0MUJObDROdWdQOXo1Smp1M0FtVnVid1N2Mm9sYzFYdmlrS3paOVFSbHl0U1ExUzBGMjcyZGYxS0xlSFZ4Y29lSEE?oc=5) |
 | Winning tickets sold in two states for massive Powerball jackpot of nearly $1.8 billion - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQRm5KSDlNSFBtY09nM0xBbnAzT01mbWZDeFlxMGtPc2hHNTIxT1NYZnA1Q1o1czZZZDZXdTF0d1JGRHpmQjY5STZKOXF1bjVGZkhMMnR5ZFdpdDdib19Sb1R4UmkxR3RWeUUyNm9PRXFhWkFNOEhwdjdmOTRGcWZJZXpJMA?oc=5) |
+| Rand Paul clashes with JD Vance over US strike on boat leaving Venezuela - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPZHlnXzlZcHRySS1wb1BhZjEyNlZ2NHBrbzZGbHdKdTNNOG16Mkg0RkkxLVVHU0tyRllrUm9DaFkxNmZXMmZXbE9VRU1fcjJGM3lFZXd1NF9qTFhJTWIxV0xfaDRFNXRsUWNadXZ3aVZWdHdPUFVYYXRQSmd3RXYxTGZpYXR3bFNncnRQQnBVM0VmWE8yRUxFYkh6aVhyNG56NmVCOXNsV0VXVlFKbkVBd3RLdDRxUQ?oc=5) |
 | ​​Trump Tried to Kill the Infrastructure Law. Now He’s Getting Credit for Its Projects. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBWRjMwZUFEOUJMN1VRVUJvZXAwN3ZQby1FM0ZiZjhIMUtza0lTYmJBNm1GWXlNanN6WFhBSnhad0Z1Mko3ZWk1Qnc4cVJXRVJtclFacXAzbVpqU0pGNGd4U18xX2FiNTJaU0p1c19tbjJxS3JHaXlrSw?oc=5) |
-| ICE begins immigration crackdown in Massachusetts, DHS says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQUjAwWjZwUWhGTEZoWDluUFZld09YbUFCU0cyZTJkbk8tcWRROTFtckFyOE4yUHhuOEMyTDRGT01JNnZiX2RtM0JuOHpRNV85XzN5VlFMTlBudDNfRC1FYlBxMU9WV3d5NVJ0VEVIWmNZZlY5N3FFMUFMZDRPUDJkSWwxbXdVZHF2UEkzaXNvVmF1d2U2ZkNj?oc=5) |
 | Conservatives have a message for Trump: We want more babies - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxQTmMwbk43bVN6MG0wMWJJeTN6dGNOYkpkdjhqaXRLU00yZHBEcEtjVTl3MFNIQ2lFV0lOUS1xemNodGFEX3ZqamtxZlNSSG5hVzlaVHA0RHhaaUt2Y3pJYjcxYWVhdDV3UXQzYkV5eGVVdnM4Wjc0U1FtakVTY0NlSXMzX2JCb01OWW1KYmR0Wk5FOVhrNmlFOW9BQUFKa1dFQXdQaExIUXBobEszQTF1Mm80TWYxUVRPaXpFQXRSV0dQY0c0OHdpR0hiMDA?oc=5) |
 
 ---
