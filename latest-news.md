@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 10:08:19（北京时间）**
+🕒 更新时间：**2025年09月07日 10:17:52（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump says Chicago ‘will find out why it’s called the Department of WAR’ ahead of planned crackdown - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE5TWms1UEtZMkF3TXB3bERLekc3THUwSzJzT3BKak9MYTNua3B0ZjB4Mm5acVZLMTR1S1lHckI3QVFvRWpEZE5LRTJUYXBmbmRDN0VlZGx1VGVManY0VkhtVUdPcTVvbHVBY1RIMnBqaEh1cnZjZVE?oc=5) |
-| What to know about a large-scale immigration raid at a Georgia manufacturing plant - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQNnh2Yk93R09GZEF6aEYyV2pfR1RwRC1ZUDVOSnZiU0JSZGpHaWxnMGZja3NJa0lPSkVYNmFBZmdfVDVLN0t5X1liV1R5RkkyQUtIdE00LXMwVDZCcXFQUm1rMUQwN3lUajJtb2NhSERWWkJrQUtDdU9NY3NBRVdSSGU4cEYxd1JFN19PSm41STVoRkVW?oc=5) |
-| Thousands protest for a 'Free DC' on the fourth week of federal control in Washington - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOOWhIV20xcllkUUNNN1RyY0JRQXdDMWhDS3IzN3FVRkRUREhIbkhQemRpejcyT3l2Y0RxbFBpeTNhQTZtMGppVjI2NTBWSXZwamQzOUVncEZOZ0RJVEZuZmJtbXlxMW16SWkteXg2TVFadWlkMS1Fd1ZJT25WWDdWbUxYRlNXRVlSSTBaWjg0ZHdCXzdJeG5McU8zNGRiazdNZzdhRlNXWGNqQkNKZUo3d1lHUzhfU3RwMHpSRlJiNNIBVkFVX3lxTE50S05rT3BqYTRjTU51OHZyT2pyU0dhZXZyM0RWLTFKSGRRWDE5YUpocXhGWG1NMHRXWGdmUlc1ZWZmSlZrUmJDS1lHUk9OcVA1SGVGNi1R?oc=5) |
+| ICE arrests at a Georgia Hyundai plant create new tension with South Korea - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNYWxOMHJFTGxlNlhGcnRKdGVaNGJBN1RaVUpvQ1VrNXJGVGFRTGlOZl9kRFFNOUY5VVlUaXNHblpyX2x2NDNYSXlWWXZ5VEJGc3RHZ2p3aW9RZ2VZbFdwUG9NbkhOZllsV3lFY1ZIazhaNkJaLUdYMWo3eGpoRDZVMlg5eTRlOUtqQmwyOTM3VXB4dDg?oc=5) |
+| Thousands march in D.C. against Trump’s law enforcement takeover - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBaTjN4aUt5TlZBclZmbEkyRzE4bWFLeXo5YUdsa1EtUER0SndQR3R3dnBRc1I5UW9IbEwxRzJzQndHaVU2YUpzdk8zeWJSNlRDV2dKSHgwXy1QTHR5RTFnS1ZCTWhuTEJ3Z1NqOEh5eEJOaHRRSDh5Vjhpbw?oc=5) |
 | Israel destroys second high-rise as assault on Gaza City intensifies - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9YV0FUeFZBRDBKNFRwdXk2a1YzYnIxdnVyenBJT2NNYjY0NFFqc0dweC11Vm8xcDdJYUgyUklCdVpqZEtDRkdfYzU5a1IzcUtvMlJXb21CSV9QUdIBX0FVX3lxTFBFVHFPemlHVGVYZ3Utc19VYmFCcHd0NFBmRUVKdzF3OFVZZDhhSjNoVkQ2RmF1SFBUcUVlTUNnOVFldkNRSkt6Q0ZYQmtWUEJwdUFVbmFVSmczLUU4Mmhj?oc=5) |
 | Trump backs Kennedy on vaccines despite health, political risks - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxQTDlvM1VpYnVfUmdkdEpDNkNLU284amFqUk9IaEZRTUJvZ19KMWxCMVZxM1lwUkJDUHJjYWE1Q09nZnd6QzEzQUVndUt6V0o3ZWlXZEs0MzZ3MWtNVHlZXzd3OE9ZTVVvYTJfb2FzQWtlVVZVWERfWUFlWDRxb2tfV3p1ZlVkbnQ3VGx5NXM1Mm9OeVVjWjBfMGJFMWp5Y09PN2Y4X3B1UlBUenZWdTRyN1JuTGstdUpRbkNUV3lNTVhwM1RUNjlaMFdJNA?oc=5) |
 | ICE Has Begun Immigration Crackdown in Massachusetts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBldU5yZ2c0OWhTMjlCM2NJMDRCc0hLamQzbkpDdmRLdTRZVXNpS2hXdU9QRUxmN1BFODdMZklJcm1hSzZvTGVvU1dWVHpxbEU1QkJKTzZZUFhHbzBSempzckF5OFpqYnhkNEZjaW03MkhZcFUwajJBTnN3TFo?oc=5) |
