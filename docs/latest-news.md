@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 00:32:04（北京时间）**
+🕒 更新时间：**2025年09月08日 00:40:55（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | Alcaraz & Sinner set for Grand Slam trilogy in New York | [阅读全文](https://www.bbc.com/sport/tennis/articles/cy9n479xz2ro?at_medium=RSS&at_campaign=rss) |
 | Five-day London Underground strike under way | [阅读全文](https://www.bbc.com/news/articles/cx2rg128l68o?at_medium=RSS&at_campaign=rss) |
 | Thousands throng Jerusalem to press Netanyahu to make hostage release deal | [阅读全文](https://www.bbc.com/news/articles/cn95x2vlv8ro?at_medium=RSS&at_campaign=rss) |
+| Gregoire wins Tour of Britain as Thomas retires | [阅读全文](https://www.bbc.com/sport/cycling/articles/c931p0q72wqo?at_medium=RSS&at_campaign=rss) |
 | Microsoft cloud services disrupted by Red Sea cable cuts | [阅读全文](https://www.bbc.com/news/articles/c3rvx470yg8o?at_medium=RSS&at_campaign=rss) |
-| Czech police finally catch up with 'phantom racing car driver' | [阅读全文](https://www.bbc.com/news/articles/c4g7xl4p53ko?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | In Chicago, residents celebrate Mexican Independence Day amid threats of heightened immigration enforcement - CNN | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBjbTYxbnZzTEVTb1VGdW9Ibk5sdGtTOVNxRFVoV2ZOajR3NFNiZTZOdTJfNWFZbHdNbWEwX01kQUlwZk1pSEh3S0xDSFhSVlQ1ODJMLU5VNUtRSG5yY1lqT0ZWc0xUQmt4Qlc4NTFBX0toamM?oc=5) |
 | Rand Paul clashes with JD Vance over US strike on boat leaving Venezuela - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPZHlnXzlZcHRySS1wb1BhZjEyNlZ2NHBrbzZGbHdKdTNNOG16Mkg0RkkxLVVHU0tyRllrUm9DaFkxNmZXMmZXbE9VRU1fcjJGM3lFZXd1NF9qTFhJTWIxV0xfaDRFNXRsUWNadXZ3aVZWdHdPUFVYYXRQSmd3RXYxTGZpYXR3bFNncnRQQnBVM0VmWE8yRUxFYkh6aVhyNG56NmVCOXNsV0VXVlFKbkVBd3RLdDRxUQ?oc=5) |
 | Conservatives have a message for Trump: We want more babies - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxQTmMwbk43bVN6MG0wMWJJeTN6dGNOYkpkdjhqaXRLU00yZHBEcEtjVTl3MFNIQ2lFV0lOUS1xemNodGFEX3ZqamtxZlNSSG5hVzlaVHA0RHhaaUt2Y3pJYjcxYWVhdDV3UXQzYkV5eGVVdnM4Wjc0U1FtakVTY0NlSXMzX2JCb01OWW1KYmR0Wk5FOVhrNmlFOW9BQUFKa1dFQXdQaExIUXBobEszQTF1Mm80TWYxUVRPaXpFQXRSV0dQY0c0OHdpR0hiMDA?oc=5) |
-| Justice Amy Coney Barrett responds to criticism that the Supreme Court is allowing Trump to expand his power - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOT2JTWWZrdVQwcWg0ZTVJNHlPNlJ4Q2ZiTUhET1BadFZEMTN4Z3p0VjZmb2lSbmFNeEE0bXRMeUxrZWV2OUhUOFdTOEROWFV3RmhSWVBSdm1RbXZaaERKNTdTc2t0enlsU3N6ODhTMGltdmlfTVBGZmhoWkR0bTNQLUthZUY3YjVCTEctbm5sN1LSAZYBQVVfeXFMT2FyRzhPX1RyNklEOExLZVNaQ1F6b3hBeVhJV1QwVTZmY0prQVZ4WFdMWHBoMjhzRE5jRTJjMEtkU2R1eVdxd3BwQ3drYjdSdDRlVmFXdS1ibmN0TWFXdy1IY0NjVy1wa1FtOFhudWl5d19fckt3dFNzZDgyMmN2ZWRSaUxLNWR2NnFMSVAySFRyRUdMaXln?oc=5) |
+| Republicans brace for redistricting ‘catastrophe’ in California - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOWkJxQ1RZWU4wNG1qM3l0YkZnR3pSV0dyR3BPZ1NOTk5scC10N0dpMzlhN1BUaGhjbjIzc3dzYl9NWkdEbkl2N2hRRmN5YW9pV25ES3ZaUkpRWE8wR05FRU5BOXZEempURVBjcmUxMDVxWFdzMGcwUmUwWks3enFyVmJyeE1TYXkzNkMzNjFVM0k3SUVGR2t2aWpzRkk3RTFVTmNR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
