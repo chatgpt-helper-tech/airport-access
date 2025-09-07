@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 06:00:11（北京时间）**
+🕒 更新时间：**2025年09月08日 06:09:22（北京时间）**
 
 ---
 
@@ -23,12 +23,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Seoul concludes US talks to release South Koreans detained in Hyundai raid - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5oWTRLYTNwUUItaFNtbC1JMVZmMm0xVHJ6MmNsU1RlSzBjaFUzb2Z3Vk5ScGtTZ2wzY3IwbDlZTXlIbm01UkJ3VUV3QWMtUTFtc3dkZEx1YkVUd9IBX0FVX3lxTE1od0pvOWVqOXc1UEh0SXl1RUc4em9ESDloaERmbm5oWG1YU2hfOUlaYjQzNWF1RFc2YWtWZnZNM0JiUURURERNM1cyT1ZlZDgzcUFvZEw3aVlGVV9XVFFN?oc=5) |
+| South Korea will bring home 300 workers detained in massive Hyundai plant raid in Georgia - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPV0JYUVpxNndhdEJEN3ZZTms0N1BST1RFY0dCXzFxQ09GY2xwUm42RXgzVTlVUXR0a2M1X2RDZkwtb0xlcGhBbUliNTBJS3JNdG1DdURtRDZZU1AxZHlkLXpoeUdpb3RDaHVxamJGbTVQYXZ1TmVhWHdQLXRHajQ1dVVOOWpybUVrUDdxS3QtZXlFM0FsRFFqYXpGVmJsTVNu?oc=5) |
 | Russia’s largest-ever air attack on Ukraine burns Kyiv government building - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOWG8yb0R0MzhhbmNnX1dHdDVvX1pvMkVJSWFSY3gyVHRaa2ZWR0Z1a2VBbm1OZmpoaVYwejFjaEFZT1czZ2Z4OG1TSUZXcVRtSkpxcVoxeUgwM3RKX3lSTlBRZjJKSW9ZX2tOZHlBNXJmaVU5Q1hYaDg2aEpQVENnUnRKRnJMZ1pJc1RqTA?oc=5) |
+| Trump ready for 'phase two' of Russia sanctions over Ukraine conflict - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPUjd2V3JnRmpua3lqVFNyY2ZtY0ZINGZIbkdQV3JqSDRMemFFeHU5QUpYSTBHZWszdmNRRmlGMU5TSVJkU2tTUmM4d0g5Rk5BbE1KSThhNU8yZ3VNcGVjbmhySU8zajU2TkJNQk5vQXduamNQRUd3QWVWVjJRRS1qVHBiYzhHMG0xa3BjWHBwUndNdVZuNnRWTXZPd3ZiTkZ0ZDVLU2JCVUxza0IxQnc?oc=5) |
 | White House envoy sends new proposal to Hamas through Israeli peace activist - Axios | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE45M0E0V2pSWDdQWk9lZnlKSHdKVWpzdnNSb01zT0dNdUk4Y3FpN0pwSm5LSWctMTR6Q25fNnJwZENDMndDV0RZYWFJa2ZQdE9ZNE42SlNVbHoyX3dhS3hWSDhxdDB1aVVIR0twcWIxancxUQ?oc=5) |
 | Massie on Epstein files: ‘We can't avoid justice to avoid embarrassment for some very powerful men’ - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNVkd2Zk1FaUFXNFRJN0lubXRPMWc4UVdLYjl3M2tldUpBMlVjZl9RU3Y3bk50Y25paElQa1M3aDlOcGs0d2t1VGhtdVdhSWkybmRzSjNmQW4zcDFjbk1kY1RXT0lYZkVEMGVMTmlTQmg4SENfZFJHaEJSNVA3VE9tT3FVeE1VdXY2QjMtYi0tT1I4VldpNkkxajROMEZWa2Zvd3pFbldMM19jNjNDNmZ2cGNwWFnSAboBQVVfeXFMTnhURzFXOFQ1WDNLZHZqZnpfSFZyQ0J2dUlMRGQzMnZOMV9SZGRHb18taHRfWGpia2FNN0ZuaG8tWjhPa09qeUVCSk1VRVNCNld6Y1dFakZ1NVZFZDhWNWlyOVZfYTEzTHlUaWk5TExTTm56Q3FYRlhfZ29zeGYtTGd2eTFiOTZScDlJN1E1OWM2cjVhYkZkUGxMY1Y1R2pYY3FNanJWR3A5cFdUTlBLTUg1ODhiOHg2YmRn?oc=5) |
 | Playbook: Trump’s ‘Apocalypse Now’ moment - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQbWVsU3hDdEJxcnJsWGZzdkxUWksxZ1hSTWt2aWQyMUQxWkRjUU1EbS1oZXVGZFp3ZDlKajl4RkdEOVExd3lTU0kxNUNWNUYwUDlMWlljTEFxV0JUUzNUbXNtTnZ1cDMzWlFSVldvMVl2LWVGU3dISXp3WmlsblRhaTNfTDhoaXVtUWdGelB2eGV2Rkxwa3BXLVV3?oc=5) |
-| Zelenskyy says Trump’s Alaska summit ‘gave Putin what he wanted’ - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQZXFuWXY5Uy1fNzNFbVhiQXdqQ2JMdjdnMFU0MG1kTDhYU0JscGRyMHZwZ1Zya0I4TkZ2bVFnSWl0bjJWMDlVdER2UzU5dk0yUF8zaVVXY3o3cmpDenFNWlM3cGdvMmVnd1A0RlJlSW5pRy1seXZmLXUyQWNwbmxKZ3ZsbWVPOE5nb0g0S2lscUVJTUpOX3lzT3hONGJUMTcw0gGmAUFVX3lxTE8zZXlXSXdhUUtfVWFDOVdUNDdad2hrYXlRbEFwVGRoZ21KOTVRVEJLN1gzVzNsSVE0VUhtWHh6SERGMzBHbnFySTVOSG9vbXBId2Q5N0FNVks1OUZaYTFmWkVzZ0lwOXdpNTdjbDNyZFZNOXRpMG1XRWVVakFwdmtnMWRTdnNjQlRXNEMtN3dtaEVtTGhPZlBJaHRfSWpqbW4yR0hnMnc?oc=5) |
 | Republican condemns Vance for ‘despicable’ comments on Venezuelan boat strike - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNVUxtNzF4dUZyQmJxOS10ODRqYmhWZUtud3NOWG9QS1ZweTc1R3RVckRfdkRhVFVaZUFCYjh1MjdkajF2UFRMRU4xOUpRMEx5NmxpLXA0QTg1SEgtbFh4Q0Z6QkZRMlpzeFdKeHFoLV9yNXY1RWZRejNyWFpaS2dBVXVGaXc4MzJaa3VWZUE1cUN5bTQ?oc=5) |
 | In Chicago, residents celebrate Mexican Independence Day amid threats of heightened immigration enforcement - CNN | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBjbTYxbnZzTEVTb1VGdW9Ibk5sdGtTOVNxRFVoV2ZOajR3NFNiZTZOdTJfNWFZbHdNbWEwX01kQUlwZk1pSEh3S0xDSFhSVlQ1ODJMLU5VNUtRSG5yY1lqT0ZWc0xUQmt4Qlc4NTFBX0toamM?oc=5) |
 | Why some Republicans are newly worried about RFK Jr. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdzlHcGVhdWowQ01LX2xuRFE5ajUyRHMxVjlsaTdHQW92NmtJYWxyeW4wd0pyT1J1TDlCTjl1cU9GNGZqdjhNVnRyd1hlLUl6S2pTSVkybVhJN0U0c3VJc09VTnpkUkozbmh0WWI1YXZpWGhBMUo4SEctRDJnRWxJMVNqQ2o?oc=5) |
