@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 15:18:01（北京时间）**
+🕒 更新时间：**2025年09月07日 15:25:25（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Tensions Mount as Trump Administration Threatens Federal Crackdown in Chicago - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQemtPMngtblhpQkpBU2FoS2QzdHAxV0h3M0VnbS1LWFh6anBuM3R1SWJUTEhGOC1YN3JnYTVnU0ZiVjhkdjR5SXpVVUJpdlVtX0ZkUTlVMm9BdTdsYUJ4RWV5b0x5aDBQMnJQWmlyNWh5aG54eXhmZWtxWjM4YU5ndG9Eb04?oc=5) |
-| At least 2 killed, including infant, 17 injured in Kyiv amid Russian drone, missile attacks on residential buildings - The Kyiv Independent | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPM3hkZ19CQ3BlRjNMYkxJNWxTOTFPcVFnbktWMENIa3E5Ri10TlFJbTY1VXpjc2Y1Q1lLajlsY191WEFUTklIQV96TjF1NkN2emx6UERHMlVjN0xjSHFJeEdhd3pjYmh4dU12UUg2bHR1cGpNdkZnUWpka3BBY0d6TVdlMnVzVU1RaHU0TmVhZWFQNTZReGswcmhiWldLT3FwOUNuQUdtcWxVYzVT?oc=5) |
-| South Korea says US release of video showing workers' arrest was regrettable - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxOY0lqWmRua29Pd3pyNlNEWWNxeU1XaDhscXRlRzFoSV9ESzY3WGtENGpFbmRDY0tFMEdOR0lRR01OWTQyVVIxMkFLVzRjRWFqWmJrak9QcXVVMTQyTktRWjNhNVB5UnVaZEFmamlUSlhsa2hmZFI5LVdlSnl4SjFMMWNZMFU3cE5DbDZ1b21uT0lrVXlDdl8xRWRZTmdfVXhrX2FuQWFFdVZ6NEl3ckx0QjFKZEtvQkZ4RnhIS21samw0Z0VKdXZIaWcxYmMxTy1laFhMZw?oc=5) |
+| Infant among three killed in Russian attack that sets ablaze seat of Ukraine government - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPOWlKYm1IbXVXaklFRGNXNUF5Y21zV3VXUTFzRkVGcDNOTVJxTWd1VlFCUTdidWg1VWpTeGtfOFVUVFUtRnMtWC1XQkJuczNrTVZMZGJySExQZlFUNFlnYllZUWVsSHdoZWcwUWpPaHZNTG44SVpXZ01LY0gwbDJ0Y01oSmlnLTl4Ym9yeGlHWkF2Mk51YVh5OHJ1V2E2R0VBMW5yNzhwanhLSUxWdUtBNURja1J1cWUtZ0NB?oc=5) |
+| ICE arrests at a Georgia Hyundai plant create new tension with South Korea - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNYWxOMHJFTGxlNlhGcnRKdGVaNGJBN1RaVUpvQ1VrNXJGVGFRTGlOZl9kRFFNOUY5VVlUaXNHblpyX2x2NDNYSXlWWXZ5VEJGc3RHZ2p3aW9RZ2VZbFdwUG9NbkhOZllsV3lFY1ZIazhaNkJaLUdYMWo3eGpoRDZVMlg5eTRlOUtqQmwyOTM3VXB4dDg?oc=5) |
 | Thousands march in D.C. against Trump’s law enforcement takeover - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBaTjN4aUt5TlZBclZmbEkyRzE4bWFLeXo5YUdsa1EtUER0SndQR3R3dnBRc1I5UW9IbEwxRzJzQndHaVU2YUpzdk8zeWJSNlRDV2dKSHgwXy1QTHR5RTFnS1ZCTWhuTEJ3Z1NqOEh5eEJOaHRRSDh5Vjhpbw?oc=5) |
 | LAPD ends protection of former Vice President Kamala Harris amid criticism over diverting cops, sources say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi5wFBVV95cUxPNUNoWWNfeUlOdmJ3bnRKaWh3RWdQa2hnU2Q5bUFlYTRjRGo0MHp5ZVk4WmljMXdfTDNzR3F2c3ktTWtDUTMyLWtLMktlRFhGdUhQaFFNUksteFFCQ1RpR0o2M1ZYci1ZM2xZb1MxUmwtd2pIbDZ1Rjd1MFF5RENRY0dqY1hUeElXMDNKWXFhQWlkajBFdnZlejFNYUUtRmpzOW5SeWRpOGZRaUxFRWRKMG1mckV6RHU1YkJWVU1Bbmx5cS1RM3phd1BySFF0Y21YcWZSd1BwY0ZSbXNzbnVadWJrcHZQOFE?oc=5) |
 | Israel destroys second high-rise as assault on Gaza City intensifies - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9YV0FUeFZBRDBKNFRwdXk2a1YzYnIxdnVyenBJT2NNYjY0NFFqc0dweC11Vm8xcDdJYUgyUklCdVpqZEtDRkdfYzU5a1IzcUtvMlJXb21CSV9QUdIBX0FVX3lxTFBFVHFPemlHVGVYZ3Utc19VYmFCcHd0NFBmRUVKdzF3OFVZZDhhSjNoVkQ2RmF1SFBUcUVlTUNnOVFldkNRSkt6Q0ZYQmtWUEJwdUFVbmFVSmczLUU4Mmhj?oc=5) |
