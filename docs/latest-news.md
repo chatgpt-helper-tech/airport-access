@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月07日 17:08:08（北京时间）**
+🕒 更新时间：**2025年09月07日 17:17:45（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Thousands march in D.C. against Trump’s law enforcement takeover - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBaTjN4aUt5TlZBclZmbEkyRzE4bWFLeXo5YUdsa1EtUER0SndQR3R3dnBRc1I5UW9IbEwxRzJzQndHaVU2YUpzdk8zeWJSNlRDV2dKSHgwXy1QTHR5RTFnS1ZCTWhuTEJ3Z1NqOEh5eEJOaHRRSDh5Vjhpbw?oc=5) |
 | 2 tickets -- sold in Missouri, Texas -- win massive $1.8B Powerball jackpot - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOWGE2LTRDMVV4d0dJVjdpWWxSLXpYMlhqOU13MlJGN3JIYmR4d2JXVFRzMWdhZnBMZTJzUERNZ01wb3QyZ0k4SWFCZ1lsblZEako3NGowNFhMa3RaWXJpeGFHNVZ4bTlZU2NjMUR6Z0pmeVAwemlNdVFFamJoZDlpZVR2QUJaZThyOG9nTFBCOEpyZDBERWhsQWxCU1fSAaIBQVVfeXFMTXlQM08ySUdRM1RjVFNjeXpDU21mcFdsOGpUZHJfQjhMX3hjZ1U1azgzaVA1QU1xR1BhVHFnb3AzMFNQOVFUeFF6WFdGTkx5NUNBeVd3eGU4LXFxb0FjN3VvVGZvT2dNWFkyWDRiTXFvWTFXQ2hHS3UwOFp4ZG52QnFNZHhSOHdpU3Zqck5yYWdCeU85MEl3eGpNN3ZVaTB5dktB?oc=5) |
 | Trump news at a glance: Anxiety in Chicago as Trump plans to send troops; postal traffic into US drops 80% - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNVTcwX1RUQWZiX3NEaVBieERUbURLbi1RY2x0TEUtZExoRF9lRW1sODFpbTQyS1lfQVp6RXdpODFBYjdhT2M3MlpWZWlhVXU2UFM4aGswcUJ1SEJpel9WSWJYQjlFYWJHZU5sY2FTVVdaYUxseU1Da194dzNHd1pRc25KRHBuV1ZkdUE3bXBpVEU?oc=5) |
-| L.A.P.D. Stops Security Services for Kamala Harris - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE01bVVYY1lXSE5UVUlCUk5mcWFXMTVGemgtdzN5dVoxU09FVnl6ZWlyRXBrdEhmVXJuZTFIeFpSTDlqcnRPRXU3c0dKSkJKOFFpaHpERHJ1X01XTW9iMUNRNXBob2I5cU10cGVvN3R0MEJJQWxjU1NCUHZB?oc=5) |
+| LAPD ends protection of former VP Harris amid criticism, sources say - The Seattle Times | [阅读全文](https://news.google.com/rss/articles/CBMi4wFBVV95cUxNekFKal9UdWJBQmEyZXd3UWRUNVA1QnY1RWRBUWdIeEJNTjJub0loUF8tVzhGajZ3ZTRmRzFKNmd5c3NpMU54SGlwNG1vZXRYVGdNSnNqQ09zX1lSZmh4Ym85V1dLSTRkR3hEVUdpbzluc3prYW9sWnZGV3hrakJMTFFYODZKRGF3VkdiS0wxR2szLWpEc3Y0ckNnZGYzazU1VEpSNHkzNmdkeF9zdy1jek94dmZpaUxwX2FnYnlQUkRRUjFwY09RbEo4ejRoWS1SSGszS3p1S3pSbGJibjBmZ3NMdw?oc=5) |
 | Carlo Acutis: From London baptism to first millennial saint - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1KQVpOY0pyVGdBVmtNNmZUN2d0THUxdzNKT0NuVmtMNmVlNXhDZ3ZVRC1BVDhqcXJwZnpVMXdQS3Z6RHF1RmdPX01NQkZKQ1pEaEhORHQ5SGp4UdIBX0FVX3lxTE02dVY5SGpTSWpxY2NQZWtnZ1drLW5iVmh1c3JkTTdaSEdyUWJlSGZIRmFqRWkzX2MzX01HMWhLNHhVaVBHQjdTNURGRXI3LTFneXBFRVNRZFBVWVVtZkNV?oc=5) |
 
 ---
