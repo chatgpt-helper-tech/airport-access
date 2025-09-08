@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 12:33:18（北京时间）**
+🕒 更新时间：**2025年09月08日 12:40:16（北京时间）**
 
 ---
 
@@ -10,9 +10,9 @@
 |--------|-------------|
 | Ex-sergeant major admits sexually assaulting soldier who took her own life | [阅读全文](https://www.bbc.com/news/articles/ckgqzxq0z55o?at_medium=RSS&at_campaign=rss) |
 | Unions warn government not to water down workers' rights bill | [阅读全文](https://www.bbc.com/news/articles/cq65l5epl3eo?at_medium=RSS&at_campaign=rss) |
-| European leaders to visit US to discuss war in Ukraine, Trump says | [阅读全文](https://www.bbc.com/news/articles/cwyrx205dj2o?at_medium=RSS&at_campaign=rss) |
 | France is set to vote out another PM. Can anything break its political deadlock? | [阅读全文](https://www.bbc.com/news/articles/cm2z8xyz68mo?at_medium=RSS&at_campaign=rss) |
 | Mahmood to host security allies for talks on tackling people smuggling | [阅读全文](https://www.bbc.com/news/articles/c4g7xyn03yno?at_medium=RSS&at_campaign=rss) |
+| European leaders to visit US to discuss war in Ukraine, Trump says | [阅读全文](https://www.bbc.com/news/articles/cwyrx205dj2o?at_medium=RSS&at_campaign=rss) |
 | I live in a different country from my husband but we're still happily married | [阅读全文](https://www.bbc.com/news/articles/c5y21nvd56ko?at_medium=RSS&at_campaign=rss) |
 | TUC chief calls on ministers to show 'whose side' they are on | [阅读全文](https://www.bbc.com/news/articles/cge2j0rrwvjo?at_medium=RSS&at_campaign=rss) |
 | Five-day London Underground strike under way | [阅读全文](https://www.bbc.com/news/articles/cx2rg128l68o?at_medium=RSS&at_campaign=rss) |
