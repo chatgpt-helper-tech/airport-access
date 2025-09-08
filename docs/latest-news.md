@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月09日 07:09:27（北京时间）**
+🕒 更新时间：**2025年09月09日 07:16:26（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| House Oversight receives Epstein estate files, including 'birthday book' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQOXdMX0x1TFQ0ZzRZNFRwMVM2enZ6Z3lmX3ZTVURoa04tUGZTUlgteDJpYko2UWpTd01HOWE2Um5nYVh3YWRwU1o4cUdzS2xKSlRrbmFZYVBxdS14b0VINlJzQlBlT0JLNmhNOXZPUTlSYkxNb3RkanhwMFB0RlZtQTl5dGp5VlNDbzdQNHlFNXBtSFlwNlZYc3hUdw?oc=5) |
+| Democrats in Congress release alleged Trump birthday note to Epstein - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5vYmRkeGg1c2ptdWJaTWVjaWlmbkRpdHlCZVRvZkVuZERLRTlIYnJFNTk3NklOUWd1V1ZuQUUtTkkzVEJncWlQU1Q4RE12cUxxM3o0dDVjLVppZ9IBX0FVX3lxTE4xUVN1aE05cG9JblBrYS15OXp2azF3Z3Z2X210ak95M2hidExWdHZKcVBvVi1aOFVpcWlza19SOFFudXlSQ0JOX01GYVUyLTRwbVlkdU1TV1M1QzFNa0J3?oc=5) |
 | Supreme Court lifts limits on immigration raids in the Los Angeles area - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQdzRHVHVHSjJzYlUyQW5ENHRtSUlOVGx1Q1Ryc0ZEVkYydmpJbHZ5Wm9MSnduWWQ3VDR3dGJUeXJuSW5wVkNkbWNsYmNZMTNSRDR1SWphS29SdTFNREJBZnpFQmxJdHVCT1FfQmJGVFhNYWlucUIxX25VTjc2TGJEQmRWcVB5MXgzYmJZaTJFZlA1WGNNSVdTVk1iWG9tWlczY0VyR1ZTSHY4S1hYaWw1ZXlLUQ?oc=5) |
 | ICE Launches Operation Midway Blitz in Honor of Katie Abraham to Target Criminal Illegal Aliens Terrorizing Americans in Sanctuary Illinois - Homeland Security (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOeHVId2RWSnFVa3BrYmdNOGVYVy1jUnU3clpOcFpZUFpZVWJMSWh4ZjJsTW14TFlVMlpvbUJIdjU3NkZ2OEFGWVd1ci0wOWIzNl9uNmh5RkJESTFIbnNNTjNVMm1NZWdmVjRnRjlXYWEwc2F5R0F2WHFHRXhBbFdyVDNpWGNRaGhRcHRFbjJvSzFZYmJtWjI5eG0yZjhpeHBDVGZBR1FXZDVkcURRa3pITDJEUWtkUQ?oc=5) |
 | Ukrainian woman stabbed to death in unprovoked attack while riding train in North Carolina: Police - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNN1U5Wl84QU8tYzZQTDNNV2w4elpabjBZR0ZlcTdQeTE5ZjBfcUVmN29vQ0g2MUhhNUlfdFhHNW1SUTBNcnZaNHljMF9DV0xHajI0emNIanQ3QjRHYlNadk5YU1A0dXNnMlM3OUxzcjZsMm1LbWx0dVlPWnZYeUNrcVZaUHhiUGF2c255NXdSd0fSAZYBQVVfeXFMTXotWkx6aVMxVlBZaHJNeUtwZlc2WWFfSjBmTy1yT0pNUjNJQUV2bTE1eUhzOHJlUDhHM2FOSXFocFRZRk5qWjRFaGlUQlZfeGdvQ1FOc1p0eDdoQUY1MXNkRHdaNFhjNmRFcEJaRGxiNW5KbGtFVEFnUHBocXR1bHdUa2dUcmllSzBsUVQzQlBOVVZoYURn?oc=5) |
