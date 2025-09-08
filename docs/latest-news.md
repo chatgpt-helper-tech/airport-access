@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月09日 07:48:23（北京时间）**
+🕒 更新时间：**2025年09月09日 07:56:52（北京时间）**
 
 ---
 
@@ -14,19 +14,19 @@
 | Democrats in Congress release alleged Trump birthday note to Epstein | [阅读全文](https://www.bbc.com/news/articles/cvgqnn4ngvdo?at_medium=RSS&at_campaign=rss) |
 | Murdochs reach deal in succession battle over media empire | [阅读全文](https://www.bbc.com/news/articles/cn825x71g4do?at_medium=RSS&at_campaign=rss) |
 | Graham Linehan: I don't regret my online posts | [阅读全文](https://www.bbc.com/news/articles/c7v13v3z6lgo?at_medium=RSS&at_campaign=rss) |
-| How a shoot-out ended a four-year search for a NZ bushman and his three children | [阅读全文](https://www.bbc.com/news/articles/cly0279yervo?at_medium=RSS&at_campaign=rss) |
+| Nottingham Forest sack boss Nuno | [阅读全文](https://www.bbc.com/sport/football/articles/c2en2xnpvlno?at_medium=RSS&at_campaign=rss) |
 | Heathrow reopens after 'hazardous materials' scare | [阅读全文](https://www.bbc.com/news/articles/cp8jnx3l82yo?at_medium=RSS&at_campaign=rss) |
+| How a shoot-out ended a four-year search for a NZ bushman and his three children | [阅读全文](https://www.bbc.com/news/articles/cly0279yervo?at_medium=RSS&at_campaign=rss) |
 | New MasterChef hosts revealed after Wallace and Torode axed | [阅读全文](https://www.bbc.com/news/articles/ckgy2e73j4ro?at_medium=RSS&at_campaign=rss) |
-| Hamas discussing US 'ideas' for Gaza ceasefire after Trump's 'last warning' | [阅读全文](https://www.bbc.com/news/articles/cn0rxl7jwwpo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| House Oversight receives Epstein estate files, including 'birthday book' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQOXdMX0x1TFQ0ZzRZNFRwMVM2enZ6Z3lmX3ZTVURoa04tUGZTUlgteDJpYko2UWpTd01HOWE2Um5nYVh3YWRwU1o4cUdzS2xKSlRrbmFZYVBxdS14b0VINlJzQlBlT0JLNmhNOXZPUTlSYkxNb3RkanhwMFB0RlZtQTl5dGp5VlNDbzdQNHlFNXBtSFlwNlZYc3hUdw?oc=5) |
-| Supreme Court lifts limits on immigration raids in the Los Angeles area - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQdzRHVHVHSjJzYlUyQW5ENHRtSUlOVGx1Q1Ryc0ZEVkYydmpJbHZ5Wm9MSnduWWQ3VDR3dGJUeXJuSW5wVkNkbWNsYmNZMTNSRDR1SWphS29SdTFNREJBZnpFQmxJdHVCT1FfQmJGVFhNYWlucUIxX25VTjc2TGJEQmRWcVB5MXgzYmJZaTJFZlA1WGNNSVdTVk1iWG9tWlczY0VyR1ZTSHY4S1hYaWw1ZXlLUQ?oc=5) |
+| GOP-led House Oversight Committee says it has Epstein estate documents, 'birthday book' - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxORTFpMDlqRjNDdzVSY0VlMVV3ZXMxNHNET21uTVJqenY5VzhzWmRTS2ZES3BVcnlsUDhMZU9YNGZWSVlrczM3M0lNNjNJTW5oN2lmOGY3U2s3Y0dVSDZhUXdFY1dTTFp1ZnBxOWxsNjNmNkxQQXZTb2R4VDRjSDhWUm1YODJhb0dfSl84SzFXaVlmQ0pLU2x0a0tjZFBoV1liLXNRNnhHVFpGc2h6YkHSAbMBQVVfeXFMT2VBUDVWVE9KV3VOSTdHZnNqMkYzYTZSLU5WcG43S3pqU3BleXYxTExOVzhvM0poLW1IT1RsWnEydGE4YWk1bktVMHJvTks5aUEwYXVidHlUWTJCUF9mRHJwa245blh2SHBQV0kzUTl3UlBmY3poOVBUYXJqOWpFbUxPeHNGMXpRU0VWdHJhSXdPSkRxLU1JLWFXcmFMbk5HTlRTOXdpRTlFbVJmck9NNWRxVzg?oc=5) |
+| Supreme Court lifts restrictions on ‘roving’ ICE raids in Los Angeles - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQWUEyMkIyLVdVMXoyTHVXdzBTdExtMk9JVnZWcHNOUnlFTzU3UEVUc0NybkhEX1VabzFsMWZXUHI5N3RVU1dUcWFmX3NGTzZEcHRNck5HYXpUM3pxY0RFRmZza18tVk1GVjZRT28xLUtlQ05RU2t0ZlhuV3lSYm15QXVuUzZWTlU?oc=5) |
 | ICE Launches Operation Midway Blitz in Honor of Katie Abraham to Target Criminal Illegal Aliens Terrorizing Americans in Sanctuary Illinois - Homeland Security (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOeHVId2RWSnFVa3BrYmdNOGVYVy1jUnU3clpOcFpZUFpZVWJMSWh4ZjJsTW14TFlVMlpvbUJIdjU3NkZ2OEFGWVd1ci0wOWIzNl9uNmh5RkJESTFIbnNNTjNVMm1NZWdmVjRnRjlXYWEwc2F5R0F2WHFHRXhBbFdyVDNpWGNRaGhRcHRFbjJvSzFZYmJtWjI5eG0yZjhpeHBDVGZBR1FXZDVkcURRa3pITDJEUWtkUQ?oc=5) |
-| Ukrainian woman stabbed to death in unprovoked attack while riding train in North Carolina: Police - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNN1U5Wl84QU8tYzZQTDNNV2w4elpabjBZR0ZlcTdQeTE5ZjBfcUVmN29vQ0g2MUhhNUlfdFhHNW1SUTBNcnZaNHljMF9DV0xHajI0emNIanQ3QjRHYlNadk5YU1A0dXNnMlM3OUxzcjZsMm1LbWx0dVlPWnZYeUNrcVZaUHhiUGF2c255NXdSd0fSAZYBQVVfeXFMTXotWkx6aVMxVlBZaHJNeUtwZlc2WWFfSjBmTy1yT0pNUjNJQUV2bTE1eUhzOHJlUDhHM2FOSXFocFRZRk5qWjRFaGlUQlZfeGdvQ1FOc1p0eDdoQUY1MXNkRHdaNFhjNmRFcEJaRGxiNW5KbGtFVEFnUHBocXR1bHdUa2dUcmllSzBsUVQzQlBOVVZoYURn?oc=5) |
+| Charlotte Murder Exposes Democrat Failures After Career Criminal Freed by Woke Policies - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxPcWtPV0cwVTV6VEdkRzFHSlFoSWRSNkNTNE1lbGo1bVdsMGlPRi1kZFl5MlBvYXNpLTRMS0NOOFZlUlVRM2JyMHlfZlNmaWxDei1BcGg5MDRPUUZPd2VaLUVmMFpReEtsNlhJWmo1WW5IOG1XbjVPSEFSX0hhMmQxTFRhRzA4aE9ySTIwSEFYcE1PLTdfQWJlTjExZ0piQ3hoaVZJWE0yQjVPakFDY0puQW9wbVR1REZtSTR4OFNxTDNJeDk4bFdHMHQ1ZXM?oc=5) |
 | François Bayrou ousted as French PM after losing confidence vote - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNU3Q3MnFXZ1FSSmNBTUs0WnZPNGNlMU1zUU8zMFhwNmV3MERHMmVZVHBTZGpfd3F2TUt4a0JlTmhLWUpYR0QwODRPWnVWeE85S3MwREJiZHE0WG1MYzZQYlhPVWVMOFpsR0FiUElMaE14UVpyS08wOERaZVlUb3loR281OG44bkxtSnIyZ2VHUEktV2RRdXg5b3ZHWFNOYzFtV1NYc1lxbG5YMjFCTW8w?oc=5) |
 | Trump trade, immigration agendas collide in Hyundai raid - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOcWFRMHQ2dWlQTnBNQTRqRlloRm9kM0lpQ0ZfaWFha0toeXB3aktBQ3E0VVBQSlNUNmZiSS1KRm5KWWw1UVpxcXRWSjZqdmozdDMwOHFIZFVxQjRyZE9GOXd0d0x0Ri05aUFiSl80QUFRTjVQQ0JOWnNsMVdEcDBSOHVLUHRJTEVYckRSNTEyWXRnYkJmNXZ0NVpLQ0RhWGpVMVJXbHJCUdIBVkFVX3lxTE1UbVdCZThtOFc0SVV5R0lOZTNVYkpRUVhleUdQMkl5cndJenlMdUdVOFh0MHdGNkhud2hTM1ZCTVN5d0xnRTl4TDRCdU5pemEyQUd0RmVB?oc=5) |
 | Jury selection begins in case of man who allegedly tried to kill Trump on golf course - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOaENCUzFBSm5OdjBRUU1fS1hmQ2IzUDVNTUN4LU5pWEZnd3ZDLXhWc0xBeFl2anU1THdZRVdwQWlzZEZVazRhQTBOWG95SGEzcFpvY1NyRk1KdldTb1lHNVZrYkcxOHFocEliUXhhWGZmWE1raFF4bHJzS1lsMmYwMzZidGRueUExOWtFU1VRS3NrZ1Y0?oc=5) |
