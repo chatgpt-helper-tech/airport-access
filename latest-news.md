@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月09日 00:25:20（北京时间）**
+🕒 更新时间：**2025年09月09日 00:32:12（北京时间）**
 
 ---
 
@@ -11,8 +11,8 @@
 | UK could suspend visas for countries with no migrant return deals, new home secretary says | [阅读全文](https://www.bbc.com/news/articles/c4g7xyn03yno?at_medium=RSS&at_campaign=rss) |
 | Six killed by Palestinian gunmen at Jerusalem bus stop | [阅读全文](https://www.bbc.com/news/articles/cr70ny0l7vgo?at_medium=RSS&at_campaign=rss) |
 | How a shoot-out ended a four-year search for a NZ bushman and his three children | [阅读全文](https://www.bbc.com/news/articles/cly0279yervo?at_medium=RSS&at_campaign=rss) |
-| New Banksy mural appears at Royal Courts of Justice | [阅读全文](https://www.bbc.com/news/articles/cgrq0r0y878o?at_medium=RSS&at_campaign=rss) |
 | Harry returns to UK and lays wreath as William remembers late Queen | [阅读全文](https://www.bbc.com/news/articles/c2378j5154jo?at_medium=RSS&at_campaign=rss) |
+| New Banksy mural appears at Royal Courts of Justice | [阅读全文](https://www.bbc.com/news/articles/cgrq0r0y878o?at_medium=RSS&at_campaign=rss) |
 | Great North Run medals show wrong city and river | [阅读全文](https://www.bbc.com/news/articles/c4gq2gdlnygo?at_medium=RSS&at_campaign=rss) |
 | Labour's new deputy leader must be a woman, says Harriet Harman | [阅读全文](https://www.bbc.com/news/articles/c059z4g836eo?at_medium=RSS&at_campaign=rss) |
 | New MasterChef hosts revealed after Wallace and Torode axed | [阅读全文](https://www.bbc.com/news/articles/ckgy2e73j4ro?at_medium=RSS&at_campaign=rss) |
@@ -27,8 +27,8 @@
 | Appeals court upholds E. Jean Carroll's $83 million judgment against Trump - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxNT28xRnUtNWZpdGZzUDZnZVp5SkxodzkxMzBpNnlBQkd0YlNsa2duRmRZWjRFQUFmaENrYzBIdFRkRkduY3A1cElOWmVxY1Iya2tsSG9QUXBjYmEteDZqNmRuWWFXdlhEelYxZjF5b1YzanY5X2RiaG80Z3NObmgtNDZUSEszRm1CaFJ0WkpvRjhwdFJCWnZ1WGxzQWhRMmphVW9SMXJ3Q2dfMDFpR2JNVERvcFVvTEs0WHNUeNIBVkFVX3lxTFBMOER6ZjFaYUVXeUdWOFI3SmRvRnVFM09ZaGZtNVRBZFh3V0lZLVd3bnVkYnVKY0loTXBMVUdrOThxUkVPSURTQlA0cjd0a1hiOVpvSTdn?oc=5) |
 | US Supreme Court backs Trump on aggressive immigration raids - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNNzdOaGdqQVU1c2pYT0x1Z21ZWF9sQS1mWGNMT3BCVlBhSVZydTBtX0lUVzNfZTYzcEZjSm1KbE9yQ0d4Z2JjU3lrSVJrblpIcHB3Q2M4OGZzRUphOFJ6aUxpUWhDNnBQaWlZOWFSTTd1emhmdm50dy15YlBTSV82RkdqR1FaSzFwYVBFckYyVkFzMGN2QTdRamVhU2dWV1FKbXZqMA?oc=5) |
 | Trump Downplays Post Threatening Chicago, Saying He Wants to ‘Clean Up’ City - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNZkVadGVnZmIzRGRjd3Q4clI3V0xadHc1U3A1aTBWaUNDT3lZNHVHSDZVNi10ekJSWUJBeEhiN3ZrTmltbWpDQ2FzTHJ2aUF0YkNPRmhhRjZ5akh2NklmWVJVbWJJeVN5OFNhd210N09TYThMamYyaHhkaXFlSEJNNlZ5MA?oc=5) |
-| Supreme Court allows Trump to fire FTC commissioner - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPUU9ORVFILVp0aVl2UjNDeHpWYlkxUW1kcGlsX2FzYkR5Nm9HQldCSnBXb2xaMDV1WVhXakxBMHMzcTVIaGRfT0o5TmN1Zl9KMkwzMG85aUpoUXJPSDQzVFN2MTh5cS05X2k5ZWg4emd6SC1LRTBUdGJnY3BwUGpuUTFiYzZ5eUI5bjV0YkVtQlplSWtIZHhDWDBJVVJPQkRnVlg4VVR6UHZXZ9IBVkFVX3lxTE43WC1FaVU3Rzg0akNLTTB1ajFpSktDcmdBVWExZU1mQUJheUU5Mm8yUzNoZS1hd0xlNk5mR3hDYUlLd2hiN1VjcjF0bUhDN1V4WjQtSFZR?oc=5) |
-| Japan could get its first woman prime minister as Sanae Takaichi leads the polls. But it's far from a done deal - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQU2JiNHhBREJsXzFHVjZTUmRaeDF2b1RNaUNvME5tcDJTaC15NEJuZWFlT1pJZjNBRk9tTW9TTWRlelBIbzVRZXRPaG0zOS11eWdFMlhsR1lfTUx6NVNfVDNXZloxOU1BM1FDemNVYlVZWlAwRVoxX1BkaDc1ZGxldnlsdHFGQdIBiwFBVV95cUxNcGVsT2NZR3NiU3g0dHljbjk2eWIyV2JLbFpFTVF6SWZ1amRWWU5LRlNoN00xR01GVkJ3YmdVSTVidUlfRXBva3c1YkJNeHpfaEJVWlBaUGp5M2pxMUh3U0RRdUJzblBtR00tVmtmbEpRVzFRVWFjOTU1OHNRTkZGR0JDY3ZYMTFuMk9Z?oc=5) |
+| Korean companies admit cutting corners on US visas but say they have little choice - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE45aC03Z1B4SlBteVJRZHQtUUdDZFdMa2hYdk8tWWhKck5SNDNLNWRQOVYwZWFxSjhqLWZubzlpX05VOHFLYWpaYktDZWR2TG9pSXBmV3VjRFVIbWVCTzFRMVVBLUlROEI3ODROc0F3RVM?oc=5) |
+| Supreme Court allows Trump to keep FTC commissioner off payroll for now - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOOTc1X0pEYVd1U1B2OXdLVW42VHRZOVQzZW53bnRUM1ZCVmRMMHNweUpZblNibEh6U0JWbUFNRXp6OFY3Y1kwQU1HeEE1SmJoMEh1a2FNN0VKejVaM1YyY2s5WEE1YS0yZmx4R2FtVVU0aUZFZUM1aDMzU2l1VXljS2V4UQ?oc=5) |
 | Jury selection off to rocky start in case of man who allegedly tried to kill Trump on golf course - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOaENCUzFBSm5OdjBRUU1fS1hmQ2IzUDVNTUN4LU5pWEZnd3ZDLXhWc0xBeFl2anU1THdZRVdwQWlzZEZVazRhQTBOWG95SGEzcFpvY1NyRk1KdldTb1lHNVZrYkcxOHFocEliUXhhWGZmWE1raFF4bHJzS1lsMmYwMzZidGRueUExOWtFU1VRS3NrZ1Y00gGaAUFVX3lxTE14anhMV1JmYTBxOXhLckNYX1JUdk4wVWlHbVNSNjc0UU9wdmhvZC1SVnFhcmlTdnk2ZC1NTkx4ZDhXX1JQamJpVzNvRGF4UHhRdVJvUGNCUjZWQTVxcDBlZ2dHY2dPa2Q1WVRoVklxcXV1cGhmZ3pWdFVFdmdFSTJKSUd5SFZkdHhaY2REY29xVDRnQ2N2dDJ1Tmc?oc=5) |
 | Grisly Charlotte stabbing video fuels MAGA's crime message - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNWlRvLUJ4VmJyR05BcC1lV21HTHRZQ3dveG9lWl9Wc2E3OE44LVZReWNkU0JNWmZfY3VUNzVBMEYzVHVudWZsYnZ0MV95emtuVlk1aTVxeVZwLVp1dGxGa1Q4T2xRNnJBbTJOYlJNVUJCVHBsSjE0UDJrQjBTbkRQYTNGNWQtQQ?oc=5) |
 | Fired FEMA chief recounts ‘hostile relationship’ with Trump officials - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPSmVRYkk4UFR2cE9aTjh2WC1Wa1hQRDMwT25WSU9LUU1DNHFxanVyOXRMVU1ZWlhYTWc1NXhacTZfRHJHSmpPaFBWcXNZMTZnOHpSb2pYejROWXV2RTFJUFhjTndtZ2NBMjk2Tkd4cV9LTDBERXhtYkhhcHMtUGxwcTRZc0xncU1IS2pENU9iaGFNbmdtSGxvU3l2VQ?oc=5) |
