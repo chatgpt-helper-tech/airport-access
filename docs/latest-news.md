@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 22:34:02（北京时间）**
+🕒 更新时间：**2025年09月08日 22:41:28（北京时间）**
 
 ---
 
@@ -24,6 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Palestinian gunmen kill six people in attack on Jerusalem bus stop - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPRlhValFFc3lNTTRSMzZRVTZ1QVFJZnpYZnpCNHF5Q3k2cFB5SVBZbWNYR3IxZVliMWJaTHpCUDFQUEJXam9lR2VrT3RfYmVLNVNFQUE5ajNwQ2N5VU9oYkd0Zzh1MUFqZDdzQ1VPczVPS1I5R1NHMThRUkdGYzZ0TXp4RGk5T1FINkNtM2hNNzV2YnlwSEJvd0pZSlV0UG9ZWXlla9IBqgFBVV95cUxORDRmcERYb3JfdVZya1paNENwY0VpQkxVbDJzaDRxUUk3Z2lUWnVDRUNheU9YWWFDWUJZZk1VUjY3a2RibHBNS1BvakxSdWVkZVlMaGxFNUc2a01uZWhsekFHQmM4U2hhVW1vRW10X0JrRXF5MnNnb0ZObFFwczFWYkdDaEtjX0VDaEU2WUZXNnJGczNneUlBWEtvUnRRUHJlTTlMRkNVNWJGdw?oc=5) |
+| Jeffrey Epstein’s Bankers - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOZUdCMU5ENzZmSUxTX2ZDRVdWT3FJVHlBN19CbW5vdjJHazhqOVBGdlpTbkJ3VVRSQlMyMlFCSjlTZHZYS0xiMUhCWjdmMUZ1dDhMWXRhcjBEemo1dGxzVk5QdkZIYWRZVS02NmI0cGF6RlZmSDZPeXNNNy11anowUVA1d0g?oc=5) |
 | Trump Downplays Post Threatening Chicago, Saying He Wants to ‘Clean Up’ City - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNZkVadGVnZmIzRGRjd3Q4clI3V0xadHc1U3A1aTBWaUNDT3lZNHVHSDZVNi10ekJSWUJBeEhiN3ZrTmltbWpDQ2FzTHJ2aUF0YkNPRmhhRjZ5akh2NklmWVJVbWJJeVN5OFNhd210N09TYThMamYyaHhkaXFlSEJNNlZ5MA?oc=5) |
 | What we know about the agreement for detained South Korean workers to return home - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOdTJ3WW00VUV1NkI0Y3lQVGNBWG0xU1dxZmxHaDFVQjNsSDA5WDhWcGVHZ3FYNXBSWmRyU2pYVkF1V0tnYjlLX1duSlVzSUcwU05qR3dDSDRGN1dhNG1RaHJTam9rWjY1ZUNxTkpvTFplNWI4dUxBR1p0MnJBZVlVLQ?oc=5) |
 | Fed rate cut optimism lifts stocks, as investors watch politics across continents - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE4tU0lNcl9sWEk4OC1TeGJydDlyZjlDNHFGb25ZbllBS2c0SHFONGNsZGxDLVBWdXRmZ2RaNmZmV1g3ZnNnQVNCU3Vud2RublFmM1dfOVRURDB2dWFSQmctSEJ0VUl5UjNZTGNpTl93MlN4Z2V2LTRHQ25lMA?oc=5) |
@@ -32,7 +33,6 @@
 | Doubts about RFK Jr. grow for some Republicans - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdzlHcGVhdWowQ01LX2xuRFE5ajUyRHMxVjlsaTdHQW92NmtJYWxyeW4wd0pyT1J1TDlCTjl1cU9GNGZqdjhNVnRyd1hlLUl6S2pTSVkybVhJN0U0c3VJc09VTnpkUkozbmh0WWI1YXZpWGhBMUo4SEctRDJnRWxJMVNqQ2o?oc=5) |
 | Video shows fatal stabbing of Ukrainian refugee on Charlotte light rail – stirring debate on crime in major US cities - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE96RmFrTmlpUnFoS2lHdlJ0Y0RwX2llYndQbF9fLUlHYjJvcUNLSHJhX2FrNkdmb0hLcXhvVk83V2RpLWt5NTdVY1U0RFZJM1FqaklNdmJYNDYyVS1Ub0dkVHM1ZG84ZEFnckRVSFJxZUdVZzdOdHZRRlNaaw?oc=5) |
 | "Despicable and thoughtless": Vance's drug vessel strike praise slammed by senator - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE9qdUJYbzdXcktoUVIyamRnZEdUMGlsa0pYYlcwWk1ZTDg4bGJLZkY0elJ5aWZHQ19pWlVsS2N3WkN0SS1LX0NwOTZrRzlFWmt0NW9sWnpseF9YeExrWnJPbkRndHpRanhIVE9aUDZ5OVhoLWxfZmc?oc=5) |
-| Pete Hegseth Reads From Notes in Awkward ‘Department of War’ Promo Video - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPc2JLVTY2R1J2c0JqQ3VoNU1wVlN4VmJIbXh3M3RTZE1mLXkyVnJSYmFUVlJqR2M0aE00Z2g2UEdiMHZtU1ZLSzU0YkxVTGl3YnhIa0dVWXFocDMxQXdoSHA0X251WEVzdmYtRDB4RzJsWDZVTlFpX2xDeHFITWp1UXVXSUJ2MERxZEk0OHBFblhCaEJxUFNmd0gxODFKM3k2UnA0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
