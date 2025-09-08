@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 09:48:20（北京时间）**
+🕒 更新时间：**2025年09月08日 09:56:40（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | Trump ready for 'phase two' of Russia sanctions over Ukraine conflict - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPUjd2V3JnRmpua3lqVFNyY2ZtY0ZINGZIbkdQV3JqSDRMemFFeHU5QUpYSTBHZWszdmNRRmlGMU5TSVJkU2tTUmM4d0g5Rk5BbE1KSThhNU8yZ3VNcGVjbmhySU8zajU2TkJNQk5vQXduamNQRUd3QWVWVjJRRS1qVHBiYzhHMG0xa3BjWHBwUndNdVZuNnRWTXZPd3ZiTkZ0ZDVLU2JCVUxza0IxQnc?oc=5) |
 | Why some Republicans are newly worried about RFK Jr. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdzlHcGVhdWowQ01LX2xuRFE5ajUyRHMxVjlsaTdHQW92NmtJYWxyeW4wd0pyT1J1TDlCTjl1cU9GNGZqdjhNVnRyd1hlLUl6S2pTSVkybVhJN0U0c3VJc09VTnpkUkozbmh0WWI1YXZpWGhBMUo4SEctRDJnRWxJMVNqQ2o?oc=5) |
 | Sen. Tammy Duckworth says Trump "essentially just declared war" on Chicago, but there's no "indications" of deployment - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE80WkhpS0Flek1CSnBuM2JOYjQ0Yy00Zm9vb2JzdlI3ZkMtejJ6X09ZS1VkMy1nbjlkNldDTzU2TC12ZGpJWmRzdGp2OC13bE1GbEl0ZVRoTmFxT0VPMHJsSjBwbVUzTWh6V0RUWktNc2pLelZBbUJaTFJYaTRkMlHSAYQBQVVfeXFMTk5VMzg5a09KVDhYQXlNYmRKV0YyMDJkLXozajh0Q2o1SHRabWxtMU93cTlWSXdTbThUOVdYOWxDclFDRXBOc014YW9ySENROXEyUXVGUm05T2R6YkVJSjRxa3p1c3BKTUFzN2ZQMzl3NVRUeFZyT05haDE3NU1YQ2lGTlFR?oc=5) |
-| Trump Is Met With Mostly Boos at U.S. Open as Security Delays a Match - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNT1EzR2l4dFFZUEhJeV9ZY2NHT2w0bmlxN043ZGxSaGg5U3daTkpjQTNrQkMteHdrZGFLeWVpek1EM25Qc3pfQ2xWV1ZDNjFCeVlFTDRxVHI5OWJsYnp4OG8wTFFmRGlRcm9sdkd2bmpQYWJUbnA3dndnWk1KcEpiVkJJdlMtWXMwamszaw?oc=5) |
+| The USTA’s censorship of Trump dissent at the US Open is cowardly, hypocritical and un-American - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPUUpBY082dmN2anpOdFhuRWFmdmhER0l4Q0NwVEV2S3JjY0djY2NLRlRKRG1RS0ZxbndXY0wxVFRfTHMwWUs0YmNrT2JuVFJENWdYTjJSSndUbmpnTDJPbV82SXhPR0FhZVhWbkR0eVJtWFRyMkxXT3FnMk4zamJmLU93VjN2N2dzZmc?oc=5) |
 | Trump administration launches immigration enforcement surge in Massachusetts - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPNDEzV0xfbklKMDMwc0xMandwLVQ5c1NpLWNibXMxR1poSjlOcGFqU1lPY194Wm9IZV81RTR0dWtPVHIwd3dhQkFBNDhwYkNPMmtZZUY1OS1PZF9FSVFseTlFelEtZkFRaG9rSHczekJnV1k4Z0lZRlB6U3dFMDk3MXhBQktCWnFtdFgxQmNqaw?oc=5) |
-| Republican condemns Vance for ‘despicable’ comments on Venezuelan boat strike - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNVUxtNzF4dUZyQmJxOS10ODRqYmhWZUtud3NOWG9QS1ZweTc1R3RVckRfdkRhVFVaZUFCYjh1MjdkajF2UFRMRU4xOUpRMEx5NmxpLXA0QTg1SEgtbFh4Q0Z6QkZRMlpzeFdKeHFoLV9yNXY1RWZRejNyWFpaS2dBVXVGaXc4MzJaa3VWZUE1cUN5bTQ?oc=5) |
+| Rand Paul clashes with JD Vance over US strike on boat leaving Venezuela - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPZHlnXzlZcHRySS1wb1BhZjEyNlZ2NHBrbzZGbHdKdTNNOG16Mkg0RkkxLVVHU0tyRllrUm9DaFkxNmZXMmZXbE9VRU1fcjJGM3lFZXd1NF9qTFhJTWIxV0xfaDRFNXRsUWNadXZ3aVZWdHdPUFVYYXRQSmd3RXYxTGZpYXR3bFNncnRQQnBVM0VmWE8yRUxFYkh6aVhyNG56NmVCOXNsV0VXVlFKbkVBd3RLdDRxUQ?oc=5) |
 | Florida’s plan to drop school vaccine rule won’t start for 90 days, won’t cover all diseases - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPcFNDUXpYMjg2dDNrSjdhTkRwcmZ3ZjJ5V1Vpdmw1QUlfOUtaWFZORm43bS1yejRYZUdyLXN3eWdTeXFCSnVzN2tDTTA5QTE1QWpXbzdGQ3FMdFd0dkM3VFd1ak1uTU5kQzZSUGxfUFdZX3I5WFlRVWFOMWh3SmxvRGRyQWxINmF0cC1VLWRRUTFwMGNoOHJ2Yg?oc=5) |
 
 ---
