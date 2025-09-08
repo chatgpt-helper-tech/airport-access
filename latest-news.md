@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月09日 02:01:52（北京时间）**
+🕒 更新时间：**2025年09月09日 02:09:30（北京时间）**
 
 ---
 
@@ -25,9 +25,9 @@
 |--------|-------------|
 | Korean companies admit cutting corners on US visas but say they have little choice - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE45aC03Z1B4SlBteVJRZHQtUUdDZFdMa2hYdk8tWWhKck5SNDNLNWRQOVYwZWFxSjhqLWZubzlpX05VOHFLYWpaYktDZWR2TG9pSXBmV3VjRFVIbWVCTzFRMVVBLUlROEI3ODROc0F3RVM?oc=5) |
 | US Supreme Court backs Trump on aggressive immigration raids - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNNzdOaGdqQVU1c2pYT0x1Z21ZWF9sQS1mWGNMT3BCVlBhSVZydTBtX0lUVzNfZTYzcEZjSm1KbE9yQ0d4Z2JjU3lrSVJrblpIcHB3Q2M4OGZzRUphOFJ6aUxpUWhDNnBQaWlZOWFSTTd1emhmdm50dy15YlBTSV82RkdqR1FaSzFwYVBFckYyVkFzMGN2QTdRamVhU2dWV1FKbXZqMA?oc=5) |
-| French government collapses after prime minister loses confidence vote - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQZkc2WHVmQWg3Nm9ObWtfc0tQUUtRS1ZpWXF0alE0cml4ekJTQVdhZDByaTI5ekhBRjVYa0VReDZMd0dsUklvRU5IT1NxN3ZEdWN3T1pmNlJFdTJsYjVudjdUQ1MzZkdyTXBKOW1wSUlyLThEdWFEZTZ4ZjNfTjBTYl9XM2NOdDlZSFRVVFk5Yw?oc=5) |
 | Several killed in Jerusalem bus station shooting, police say - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOX1U2QXM5dkp1aU9ReDgxZk5pLWhPWTdZaVVBbDRwYWZJelZoR2RQM05LYW9jS0dZNzh0SnM4WDczajVUc1llcmU3cEVGWlJoU1RZdFVESlJEMTVNWmtDZUZtV2tqeXptM29ubjBfd2dCRjYzbWNVd0Raa0pJZlZkSXJYNzFEQXdGTEdWNTdQdFFSUHV5S0xPTzFnX29KdTYtd3fSAacBQVVfeXFMTkZMcm45Q3lBQzN1TXJ1TUdxMWxMcWJyYjJwcGxoZ2I5SjlmcUtROWEwNnNKMENBOVRyRUItdDFhdjRZNnJXaTh2SUhhRnpjbXB6a0JkU0x4LU1TVXpsLVA3cDFEOUpna0MwZllOUGFNRHNvajhkVUlyTVZOVC1fRHpRZlZDTnN5SThNckt4am5GSXNBbmNmYVpKUjM1alI2Y3JpUF92QWs?oc=5) |
 | Appeals Court Upholds Carroll’s $83 Million Judgment Against Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOUExTRmRLdjJhRDZYMEoyZDJSa1FXNDlZSk14OEdZd3FJc1c5ZjAzU3NlYk9HMFFBcVFXbUhsWlU0ZDlGdXlVVmVHZjJZa1pqdGI3Z1pReE8yeW0xODVDR3NsMlJvcnhJWE55bkY2dGtsdFZQYlc2RGh5UmVTQ09keEU3SlZHa2c?oc=5) |
+| French government collapses as PM François Bayrou loses confidence vote - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5KM2RwRkJRX2J2VEJNVldyS3JHOGkzTDFPU0o0cGlZbGVVbGJuUTdaRmoxOV9CeVlrdVdTLUdwa3pJZTVCbDd0c0p6RnhpMThpeU5hS0NhbW1nalE5ZUx2eUdWTEc4aTQ1UjFTdHVSY2k?oc=5) |
 | Supreme Court allows Trump to fire FTC commissioner - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPUU9ORVFILVp0aVl2UjNDeHpWYlkxUW1kcGlsX2FzYkR5Nm9HQldCSnBXb2xaMDV1WVhXakxBMHMzcTVIaGRfT0o5TmN1Zl9KMkwzMG85aUpoUXJPSDQzVFN2MTh5cS05X2k5ZWg4emd6SC1LRTBUdGJnY3BwUGpuUTFiYzZ5eUI5bjV0YkVtQlplSWtIZHhDWDBJVVJPQkRnVlg4VVR6UHZXZ9IBVkFVX3lxTE43WC1FaVU3Rzg0akNLTTB1ajFpSktDcmdBVWExZU1mQUJheUU5Mm8yUzNoZS1hd0xlNk5mR3hDYUlLd2hiN1VjcjF0bUhDN1V4WjQtSFZR?oc=5) |
 | Decarlos Brown Latest: Trump To Be Briefed on Iryna Zarutska Stabbing, MAGA Anger Grows - Newsweek | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNcEhUaHNTRTEtMTlrM2ZUdkZRMWhGNVlsWmpvSUdSZE5kTjBxd1h2Yy12RURmbzNEZTg2b3JmcWtvQzd6YzNqZTFveU54UFFuUmZPZVVJTWxXY2JhWTNvcmhwSURYY1h1eEs0di0wX0ktaUFyeEZWak1hcklzZHRjY0tWQ1Fub2dpNXB1UURSRTdsQjJ4My11eWh3OUdjemdieWc?oc=5) |
 | Trump says he’ll direct Education Department to protect praying in public school - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPa05nbUZ4ZjlFOTZoSUhMdUZSRjF5Um5ybG13NkJyaGZkT1RVZDIwUVlWSlFwNzJaZ1dGU3hMQXJkdFcybDU1Y2VTZTZCankxa1BxVDZ2dWE0N29aOTVHenBscWo5NEJtVmVyTFVkUGJPZFdURU5ZeWVVUzRPTXRiSC1Ud3BVLWJyc0dYYXV2Vnl1Q2RGaklOVjV6TklOVGVzV2ZVOHF3MU5rdnZ2V1E4dG14b0lZcWJKTDN3aGdHbmdoOHRFbUwxMw?oc=5) |
