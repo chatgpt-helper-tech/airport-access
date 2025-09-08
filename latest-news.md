@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 14:16:30（北京时间）**
+🕒 更新时间：**2025年09月08日 14:25:05（北京时间）**
 
 ---
 
@@ -14,8 +14,8 @@
 | Alcaraz edges Sinner trilogy to win US Open | [阅读全文](https://www.bbc.com/sport/tennis/articles/c8xrpd5jeveo?at_medium=RSS&at_campaign=rss) |
 | 'He put his hand down my tights': Sexual harassment widespread among barristers, review finds | [阅读全文](https://www.bbc.com/news/articles/c8xrejzk0edo?at_medium=RSS&at_campaign=rss) |
 | France is set to vote out another PM. Can anything break its political deadlock? | [阅读全文](https://www.bbc.com/news/articles/cm2z8xyz68mo?at_medium=RSS&at_campaign=rss) |
-| European leaders to visit US to discuss war in Ukraine, Trump says | [阅读全文](https://www.bbc.com/news/articles/cwyrx205dj2o?at_medium=RSS&at_campaign=rss) |
 | I live in a different country from my husband but we're still happily married | [阅读全文](https://www.bbc.com/news/articles/c5y21nvd56ko?at_medium=RSS&at_campaign=rss) |
+| European leaders to visit US to discuss war in Ukraine, Trump says | [阅读全文](https://www.bbc.com/news/articles/cwyrx205dj2o?at_medium=RSS&at_campaign=rss) |
 | Palestinian prisoners not being given adequate food, Israel top court says | [阅读全文](https://www.bbc.com/news/articles/c1mxlk518vko?at_medium=RSS&at_campaign=rss) |
 | What it was like inside court as mushroom murderer was jailed for life | [阅读全文](https://www.bbc.com/news/videos/c15k4y5nwz7o?at_medium=RSS&at_campaign=rss) |
 
@@ -27,7 +27,7 @@
 | Trump Downplays Post Threatening Chicago, Saying He Wants to ‘Clean Up’ City - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNZkVadGVnZmIzRGRjd3Q4clI3V0xadHc1U3A1aTBWaUNDT3lZNHVHSDZVNi10ekJSWUJBeEhiN3ZrTmltbWpDQ2FzTHJ2aUF0YkNPRmhhRjZ5akh2NklmWVJVbWJJeVN5OFNhd210N09TYThMamYyaHhkaXFlSEJNNlZ5MA?oc=5) |
 | Trump administration launches immigration enforcement surge in Massachusetts - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPNDEzV0xfbklKMDMwc0xMandwLVQ5c1NpLWNibXMxR1poSjlOcGFqU1lPY194Wm9IZV81RTR0dWtPVHIwd3dhQkFBNDhwYkNPMmtZZUY1OS1PZF9FSVFseTlFelEtZkFRaG9rSHczekJnV1k4Z0lZRlB6U3dFMDk3MXhBQktCWnFtdFgxQmNqaw?oc=5) |
 | Doubts about RFK Jr. grow for some Republicans - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdzlHcGVhdWowQ01LX2xuRFE5ajUyRHMxVjlsaTdHQW92NmtJYWxyeW4wd0pyT1J1TDlCTjl1cU9GNGZqdjhNVnRyd1hlLUl6S2pTSVkybVhJN0U0c3VJc09VTnpkUkozbmh0WWI1YXZpWGhBMUo4SEctRDJnRWxJMVNqQ2o?oc=5) |
-| White House envoy sends new proposal to Hamas through Israeli peace activist - Axios | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE45M0E0V2pSWDdQWk9lZnlKSHdKVWpzdnNSb01zT0dNdUk4Y3FpN0pwSm5LSWctMTR6Q25fNnJwZENDMndDV0RZYWFJa2ZQdE9ZNE42SlNVbHoyX3dhS3hWSDhxdDB1aVVIR0twcWIxancxUQ?oc=5) |
+| Pope Leo XIV canonizes ‘God’s influencer’ Carlo Acutis as the first millennial saint - PBS | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQUUlzU2p6aHRlcUtlN0FnR2d5djJBOUtUSV9ZUV9vZGpVY0x1WFpBZzVaTUdQOWNuR1QydXVGS2ZEblJpYnpESDNicDN4bURrSVNSMU9rTVVWTll4aGlKRXpicjlFMHc0b2ZzRTdMbGloRHZMc2ZnRE0wVnJwdEtLQ2tmbjVGTm9IRUVWRzcyTUNqaTRBeWNnUUgyVFQ4NjNycy1RTzZrSU44QVZNVFYtZzd1ZVZqdzTSAbwBQVVfeXFMUEgwZkphWUJGN0VsOXVYV2VWRVlZNGVWT0xOSVFUOHpYZTJWRHlVZDdlTVFrdnlUN2dHZ3JSbDV4Y1l0QW5EMDdOMEdablFmNU9yTzJ1TUpMUDBTeXdCLTktYTdWME5wSFBoQkRCZVAxMGFyMUJNaVlVNk5qYzhneTFtX3M1Tk9NaU9iRG81WjhhYnM5Vy04MnM0UEY1OW5mTC1mal9uOUhOZkVqc0U2NjU4czRmTk9Yck90R3I?oc=5) |
 | Ukraine cabinet building hit in largest Russian strike of war, Zelenskyy says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOTmotOTU1dVhqSkpaNGcxODFzNHNQbVhISVVHV3djQjBEVnk4azFPR0k3ejNuZGdRTmpvVmhjd09HU3pJbTlxbVhzN0wwNHB2SnlVSXJydjFqWHVvcmcwSXZWSUl3Zi1pRFduUUlSdk40WDg5XzhNYzFRczY5Rk9xWS0tVG1GeDlQNFlDaVZ1SGhjYkRIUDRmQnBhZUU4VFVVNW1wdVNEU1JHbWhiTlh4bdIBtgFBVV95cUxPb05IaUFZUUNZNG5FQlpiVEdlRy1scTg5WnNlYTRfT2d3aTluTkpiR2dxUHBuNXJ3Y3g3S0RvRGJwQVBCNGdkdWswT3pSNnE1VjRKSGh4dE10a3B3d05mSlUteHBQUXdLdkwtQUd0dzJQYXhzLUlnazl0eTJ6SUhJbFhWMDJEbVBEU0ZGbWNiLVMtNjEtbjF5aTlEeEg0cEZlUjN4ZzVEN2txTi13SGlpQjBBdV9kUQ?oc=5) |
 | Fans remain stuck in line as US Open final begins because of extra security with Trump attending - AP News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPWXVTdWNJZm8wS081YW9pVGUwMzN5ZU5WVldZTVpwSks4RlptdDhnY3N1ZC1pSFlRUGxEeGplclBqck9tUk9BVW1RcmpfSGJ5emxETE9KU3ZVR0hLNjBwODNYTmlPSXRLSnRTeUw5a01DS3JidDUyaHhBN18wQVo2RXJTbWk?oc=5) |
 | Florida surgeon general denies need for study ahead of end to vaccine mandates in the state - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQQ0VuTDF4NGJpS3FZOWgwdkJYTG1Kdk5SbkRLTTFWNFllNmxNMlZwaGhRWFZvVnhzRlJpMzduLVB6WXY3WHdXeGJTSFA2bUlJZnE0cHNFakJUNnlDUnNKYWFrRjljZlU0Q3BhX0Y3WXNhQUE3TEZ5TDItYjA2LUJQWlR2bnRJZmN5OXc?oc=5) |
