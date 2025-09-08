@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 21:08:50（北京时间）**
+🕒 更新时间：**2025年09月08日 21:17:02（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | UK could suspend visas for countries with no migrant return deals, new home secretary says | [阅读全文](https://www.bbc.com/news/articles/c4g7xyn03yno?at_medium=RSS&at_campaign=rss) |
-| Six killed in shooting attack at bus stop in Jerusalem | [阅读全文](https://www.bbc.com/news/articles/cr70ny0l7vgo?at_medium=RSS&at_campaign=rss) |
+| Six killed by Palestinian gunmen at Jerusalem bus stop | [阅读全文](https://www.bbc.com/news/articles/cr70ny0l7vgo?at_medium=RSS&at_campaign=rss) |
 | New Zealand dad shot dead by police after years on the run with children | [阅读全文](https://www.bbc.com/news/articles/c75qlerp2e5o?at_medium=RSS&at_campaign=rss) |
 | New Banksy mural appears at Royal Courts of Justice | [阅读全文](https://www.bbc.com/news/articles/cgrq0r0y878o?at_medium=RSS&at_campaign=rss) |
 | Great North Run medals show wrong city and river | [阅读全文](https://www.bbc.com/news/articles/c4gq2gdlnygo?at_medium=RSS&at_campaign=rss) |
