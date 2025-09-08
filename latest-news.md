@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 15:01:59（北京时间）**
+🕒 更新时间：**2025年09月08日 15:09:27（北京时间）**
 
 ---
 
@@ -8,9 +8,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Australian triple murderer jailed for life over toxic mushroom lunch | [阅读全文](https://www.bbc.com/news/articles/c1jzr1d5xk9o?at_medium=RSS&at_campaign=rss) |
 | Huge drugs bust reveals battles on cocaine 'superhighway' | [阅读全文](https://www.bbc.com/news/articles/c5yvplyrrwno?at_medium=RSS&at_campaign=rss) |
 | Ex-sergeant major admits sexually assaulting soldier who took her own life | [阅读全文](https://www.bbc.com/news/articles/ckgqzxq0z55o?at_medium=RSS&at_campaign=rss) |
+| Australian triple murderer jailed for life over toxic mushroom lunch | [阅读全文](https://www.bbc.com/news/articles/c1jzr1d5xk9o?at_medium=RSS&at_campaign=rss) |
 | Unions warn government not to water down workers' rights bill | [阅读全文](https://www.bbc.com/news/articles/cq65l5epl3eo?at_medium=RSS&at_campaign=rss) |
 | Alcaraz edges Sinner trilogy to win US Open | [阅读全文](https://www.bbc.com/sport/tennis/articles/c8xrpd5jeveo?at_medium=RSS&at_campaign=rss) |
 | 'He put his hand down my tights': Sexual harassment widespread among barristers, review finds | [阅读全文](https://www.bbc.com/news/articles/c8xrejzk0edo?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | Florida’s plan to drop school vaccine rule won’t start for 90 days, won’t cover all diseases - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPcFNDUXpYMjg2dDNrSjdhTkRwcmZ3ZjJ5V1Vpdmw1QUlfOUtaWFZORm43bS1yejRYZUdyLXN3eWdTeXFCSnVzN2tDTTA5QTE1QWpXbzdGQ3FMdFd0dkM3VFd1ak1uTU5kQzZSUGxfUFdZX3I5WFlRVWFOMWh3SmxvRGRyQWxINmF0cC1VLWRRUTFwMGNoOHJ2Yg?oc=5) |
 | Treasury Secretary Bessent warns of massive refunds if the Supreme Court voids Trump tariffs - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxORnJkVjdLVlN1U2h0b1hBVlFvTkE4ZldveVljallIN1VLdW40bjhSemlpQzg4dmMzdXc4eEN1TTRTdHNnZVNCUkNKQTlFVHFiZGUwS3dZUzc3eDFNRzNRWlFPVGpiLUduY1hQM2ZhQmt5VE43bHdGOVc1VFVYR2RScmNGREvSAYoBQVVfeXFMUDNYTnFneWNPb09qcnJtZllfMnhHUnhaWHprTGVRei1WaF9xbHVNR21aR1A4UDR0cXN6dmpOVnNydVVodmpnem1wX3Qwb3J4Q2V3SUMyYVZQZkJLUF9hd1lpOUcwY3YtYllYRy05RmJJSVp2eVNEQ2lOZnltZjViUDZ6SHRldy1lM0F3?oc=5) |
 | Republican condemns Vance for ‘despicable’ comments on Venezuelan boat strike - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNVUxtNzF4dUZyQmJxOS10ODRqYmhWZUtud3NOWG9QS1ZweTc1R3RVckRfdkRhVFVaZUFCYjh1MjdkajF2UFRMRU4xOUpRMEx5NmxpLXA0QTg1SEgtbFh4Q0Z6QkZRMlpzeFdKeHFoLV9yNXY1RWZRejNyWFpaS2dBVXVGaXc4MzJaa3VWZUE1cUN5bTQ?oc=5) |
-| Trump ready for 'phase two' of Russia sanctions over Ukraine conflict - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPUjd2V3JnRmpua3lqVFNyY2ZtY0ZINGZIbkdQV3JqSDRMemFFeHU5QUpYSTBHZWszdmNRRmlGMU5TSVJkU2tTUmM4d0g5Rk5BbE1KSThhNU8yZ3VNcGVjbmhySU8zajU2TkJNQk5vQXduamNQRUd3QWVWVjJRRS1qVHBiYzhHMG0xa3BjWHBwUndNdVZuNnRWTXZPd3ZiTkZ0ZDVLU2JCVUxza0IxQnc?oc=5) |
+| Pete Hegseth Reads From Notes in Awkward ‘Department of War’ Promo Video - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPc2JLVTY2R1J2c0JqQ3VoNU1wVlN4VmJIbXh3M3RTZE1mLXkyVnJSYmFUVlJqR2M0aE00Z2g2UEdiMHZtU1ZLSzU0YkxVTGl3YnhIa0dVWXFocDMxQXdoSHA0X251WEVzdmYtRDB4RzJsWDZVTlFpX2xDeHFITWp1UXVXSUJ2MERxZEk0OHBFblhCaEJxUFNmd0gxODFKM3k2UnA0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
