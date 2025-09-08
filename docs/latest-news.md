@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 08:09:30（北京时间）**
+🕒 更新时间：**2025年09月08日 08:16:48（北京时间）**
 
 ---
 
@@ -12,12 +12,12 @@
 | Unions warn government not to water down workers' rights bill | [阅读全文](https://www.bbc.com/news/articles/cq65l5epl3eo?at_medium=RSS&at_campaign=rss) |
 | I live in a different country to my husband but we're still happily married | [阅读全文](https://www.bbc.com/news/articles/c5y21nvd56ko?at_medium=RSS&at_campaign=rss) |
 | Arrests at rally against Palestine Action ban rise to 890 | [阅读全文](https://www.bbc.com/news/articles/c8rvly00440o?at_medium=RSS&at_campaign=rss) |
+| TUC chief calls on ministers to show 'whose side' they are on | [阅读全文](https://www.bbc.com/news/articles/cge2j0rrwvjo?at_medium=RSS&at_campaign=rss) |
 | Sirens blare from millions of phones in national test of emergency alerts | [阅读全文](https://www.bbc.com/news/articles/c2lx9x251xgo?at_medium=RSS&at_campaign=rss) |
-| Teen gamer who 'performed miracles' becomes  first millennial saint | [阅读全文](https://www.bbc.com/news/articles/c5yg5me8dvlo?at_medium=RSS&at_campaign=rss) |
 | In pictures: Blood Moon captivates sky-gazers around the world | [阅读全文](https://www.bbc.com/news/articles/cx25nyjl4pdo?at_medium=RSS&at_campaign=rss) |
+| Five-day London Underground strike under way | [阅读全文](https://www.bbc.com/news/articles/cx2rg128l68o?at_medium=RSS&at_campaign=rss) |
 | Alcaraz edges Sinner trilogy to win US Open | [阅读全文](https://www.bbc.com/sport/tennis/articles/c8xrpd5jeveo?at_medium=RSS&at_campaign=rss) |
 | UK launches £250m defence strategy to boost jobs | [阅读全文](https://www.bbc.com/news/articles/cm2dzlrm0jno?at_medium=RSS&at_campaign=rss) |
-| Five-day London Underground strike under way | [阅读全文](https://www.bbc.com/news/articles/cx2rg128l68o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
