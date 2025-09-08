@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 21:17:01（北京时间）**
+🕒 更新时间：**2025年09月08日 21:25:34（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Palestinian gunmen kill six people in attack on Jerusalem bus stop - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPRlhValFFc3lNTTRSMzZRVTZ1QVFJZnpYZnpCNHF5Q3k2cFB5SVBZbWNYR3IxZVliMWJaTHpCUDFQUEJXam9lR2VrT3RfYmVLNVNFQUE5ajNwQ2N5VU9oYkd0Zzh1MUFqZDdzQ1VPczVPS1I5R1NHMThRUkdGYzZ0TXp4RGk5T1FINkNtM2hNNzV2YnlwSEJvd0pZSlV0UG9ZWXlla9IBqgFBVV95cUxORDRmcERYb3JfdVZya1paNENwY0VpQkxVbDJzaDRxUUk3Z2lUWnVDRUNheU9YWWFDWUJZZk1VUjY3a2RibHBNS1BvakxSdWVkZVlMaGxFNUc2a01uZWhsekFHQmM4U2hhVW1vRW10X0JrRXF5MnNnb0ZObFFwczFWYkdDaEtjX0VDaEU2WUZXNnJGczNneUlBWEtvUnRRUHJlTTlMRkNVNWJGdw?oc=5) |
+| Palestinian gunmen kill 6 people in attack on Jerusalem bus stop - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPRlhValFFc3lNTTRSMzZRVTZ1QVFJZnpYZnpCNHF5Q3k2cFB5SVBZbWNYR3IxZVliMWJaTHpCUDFQUEJXam9lR2VrT3RfYmVLNVNFQUE5ajNwQ2N5VU9oYkd0Zzh1MUFqZDdzQ1VPczVPS1I5R1NHMThRUkdGYzZ0TXp4RGk5T1FINkNtM2hNNzV2YnlwSEJvd0pZSlV0UG9ZWXlla9IBqgFBVV95cUxORDRmcERYb3JfdVZya1paNENwY0VpQkxVbDJzaDRxUUk3Z2lUWnVDRUNheU9YWWFDWUJZZk1VUjY3a2RibHBNS1BvakxSdWVkZVlMaGxFNUc2a01uZWhsekFHQmM4U2hhVW1vRW10X0JrRXF5MnNnb0ZObFFwczFWYkdDaEtjX0VDaEU2WUZXNnJGczNneUlBWEtvUnRRUHJlTTlMRkNVNWJGdw?oc=5) |
 | What we know about the agreement for detained South Korean workers to return home - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOdTJ3WW00VUV1NkI0Y3lQVGNBWG0xU1dxZmxHaDFVQjNsSDA5WDhWcGVHZ3FYNXBSWmRyU2pYVkF1V0tnYjlLX1duSlVzSUcwU05qR3dDSDRGN1dhNG1RaHJTam9rWjY1ZUNxTkpvTFplNWI4dUxBR1p0MnJBZVlVLQ?oc=5) |
 | Fed rate cut optimism lifts stocks, as investors watch politics across continents - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE4tU0lNcl9sWEk4OC1TeGJydDlyZjlDNHFGb25ZbllBS2c0SHFONGNsZGxDLVBWdXRmZ2RaNmZmV1g3ZnNnQVNCU3Vud2RublFmM1dfOVRURDB2dWFSQmctSEJ0VUl5UjNZTGNpTl93MlN4Z2V2LTRHQ25lMA?oc=5) |
 | Trump Downplays Post Threatening Chicago, Saying He Wants to ‘Clean Up’ City - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNZkVadGVnZmIzRGRjd3Q4clI3V0xadHc1U3A1aTBWaUNDT3lZNHVHSDZVNi10ekJSWUJBeEhiN3ZrTmltbWpDQ2FzTHJ2aUF0YkNPRmhhRjZ5akh2NklmWVJVbWJJeVN5OFNhd210N09TYThMamYyaHhkaXFlSEJNNlZ5MA?oc=5) |
