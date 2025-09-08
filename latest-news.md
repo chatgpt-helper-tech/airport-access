@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 13:24:28（北京时间）**
+🕒 更新时间：**2025年09月08日 13:32:08（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | Unions warn government not to water down workers' rights bill | [阅读全文](https://www.bbc.com/news/articles/cq65l5epl3eo?at_medium=RSS&at_campaign=rss) |
 | Little to no service as Tube strike continues | [阅读全文](https://www.bbc.com/news/articles/c931px90z48o?at_medium=RSS&at_campaign=rss) |
 | Alcaraz edges Sinner trilogy to win US Open | [阅读全文](https://www.bbc.com/sport/tennis/articles/c8xrpd5jeveo?at_medium=RSS&at_campaign=rss) |
-| France is set to vote out another PM. Can anything break its political deadlock? | [阅读全文](https://www.bbc.com/news/articles/cm2z8xyz68mo?at_medium=RSS&at_campaign=rss) |
 | 'He put his hand down my tights': Sexual harassment widespread among barristers, review finds | [阅读全文](https://www.bbc.com/news/articles/c8xrejzk0edo?at_medium=RSS&at_campaign=rss) |
 | European leaders to visit US to discuss war in Ukraine, Trump says | [阅读全文](https://www.bbc.com/news/articles/cwyrx205dj2o?at_medium=RSS&at_campaign=rss) |
 | I live in a different country from my husband but we're still happily married | [阅读全文](https://www.bbc.com/news/articles/c5y21nvd56ko?at_medium=RSS&at_campaign=rss) |
-| TUC chief calls on ministers to show 'whose side' they are on | [阅读全文](https://www.bbc.com/news/articles/cge2j0rrwvjo?at_medium=RSS&at_campaign=rss) |
+| Palestinian prisoners not being given adequate food, Israel top court says | [阅读全文](https://www.bbc.com/news/articles/c1mxlk518vko?at_medium=RSS&at_campaign=rss) |
+| France is set to vote out another PM. Can anything break its political deadlock? | [阅读全文](https://www.bbc.com/news/articles/cm2z8xyz68mo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
