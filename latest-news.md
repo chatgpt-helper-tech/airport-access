@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月09日 06:17:42（北京时间）**
+🕒 更新时间：**2025年09月09日 06:24:57（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Noem says immigration raid at Hyundai plant in Georgia won’t deter investment in the U.S. - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOLVZodXRfMWdKQkRDc2tKazBQSHVSUG9rV3BjREIwbHRUa3VZRUlhVTM2alFESzNwREItaV9jOUVVUkQ0a2ZEQnVHZjVZVzV2SEE4UUZyZnFmVUlXX0lHZFVRUnBhNlY2SV9VYVc4UU9vd1JnbXNIcFRuUWRhbHZXMVhEMkJWN2RlendLQThHSmZKOVVmU0tUZHF5RTd3NnUyYWJaUEIyMXZob0kya3ZzZzJiOExjYWlTOE5WdTRnNThaUnfSAcgBQVVfeXFMT05DUGg2RUlCZURsbUd1Sk10ZUxwNFpBbWIybl91U1g5TXBUSUJzWXBRWlFETXRoSXdPRHVfUHZRNV84eHB1eS1sbDMxM1hWU2JvYUllSjlCVXQ0cGxTcGs0eWZoQTRKYnNoZVd1LUdIWlF3NWJldUdEdlR5UklzQm1XNmdoM0x6dE1ZSUtYQnRfcjFBYnZSQ1Y5Sm1VRTR5Wk1sakhxb3FheWJTZDQtcTEtS0JROVR4U09tZ2pPZUFjelEtMVh0SV8?oc=5) |
 | 'Best I walk alone:' Man accused of trying to kill Trump prepares to defend himself at trial - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxNZHhUZU0ySEtwRU9GNE9XQkwza0hiSEhzUWtWUWFITm1IdjhBUWhob1I1VF9BczF1NmtORllrUnZ0UDBvd0lMQ2NENGp1d1hNaHhXT3lhclE5SzNjcGg4M1h4N19XMHB6MFhfbWtqUXBLOEI4UzJ3aGRaM2w5b281MTczOFJpUXY2c1FPdmZwaUZPd21MRFRyZXZDa1FjS01nbW5UX2Z5UnZWNFBuWTItSkZnT2VRam14eld2bVdMQUE5eHdBQ2dzaXpB?oc=5) |
 | Chicago residents warned federal agents may be about to arrive - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOVVZNV2N1V1RYVEd1M09MRmVqWkRmODRtTEY5czdSY3QzWXgzeXNBa1J1Um5oN09ldFJEbWhNbHhPeXhkMDd3djZoamNZTU9PTTBhZHBpUWNtTTduMHBCa1I3WFVsR0hRMFNPbG01dWluTHNndWV1MndCNFFzT2hNN1hnc3JFN2EzNmM2OGhVaw?oc=5) |
+| Trump loses bid to overturn $83.3 million judgment in E. Jean Carroll defamation case - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE1pVlFXSmd0TmRqZ2RFWlBXR19SZ1JHUnFpRnNKYU9RS0FSWVQxQ1BWY191eVR3Z1Z5M2tZZmw5TUxSU0NaTFJlTkt6aUliXzZyVzZDNl9MT0NnUkNDZk1FT0Z1cHJ3VS1aRkw4UU5rYXlkTjN1N1A00gF8QVVfeXFMTTN3NjV1aFJieGtxZVVMeTE2TDhab1RzNGRlQVRVNVNpYllDLWhYNlJ3OEF5MVRhN0Y0QXJpVmF0SE9wai0zTUtlYk1iUTdIc1NHenlTVEE5SnZUN25vQVlYZ3lmYmNJdnhtVWFvSXd3WVprYnN0cnFOaUl1TQ?oc=5) |
 | President Trump Champions Religious Freedom, Unveils America Prays - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNSlhBZXZfQUtYLVVPZVNHQXJvQmdzYnpRcnlGRVpodndCM2U0dzlrcmtkdHBFWU95TEZNX0phU0dvNkZOUlpYMXY3VnhMZ2J0eXF3VXBwRlZGeHkyWm9nQmM0N0pGaUg5TXR3ejZPWjh0c2VRLWZ1M2hnSk1MV3NrZExsU3c1RGdHQTI1a01oektqS3FQaENkdE5DbjFidnkwazhrSUhmY1Zlamx2Wmxn?oc=5) |
-| Appeals court denies Trump effort to toss $83 million judgment in E. Jean Carroll case - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOR0l1YzcyOFFBMW45UTRZdU8wdzM3MXJwNE10OG9TZ0xBWm1ScHJtTU1MbDgyRUV2RW5weWRyM0xiSjh4Q0c2UlM3aU5ZaVZ3LVNSNFRSUjlLeEtSRXZTcTY5c0Nwc0tFb3ZqQjh1cWNRZk9KeGVGMGp2N3d0YlJMelltQ05mNGRWMmpjQUpIZFR1YmJl?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
