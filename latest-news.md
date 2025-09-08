@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 12:09:54（北京时间）**
+🕒 更新时间：**2025年09月08日 12:16:35（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | White House envoy sends new proposal to Hamas through Israeli peace activist - Axios | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE45M0E0V2pSWDdQWk9lZnlKSHdKVWpzdnNSb01zT0dNdUk4Y3FpN0pwSm5LSWctMTR6Q25fNnJwZENDMndDV0RZYWFJa2ZQdE9ZNE42SlNVbHoyX3dhS3hWSDhxdDB1aVVIR0twcWIxancxUQ?oc=5) |
 | Trump administration launches immigration enforcement surge in Massachusetts - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPNDEzV0xfbklKMDMwc0xMandwLVQ5c1NpLWNibXMxR1poSjlOcGFqU1lPY194Wm9IZV81RTR0dWtPVHIwd3dhQkFBNDhwYkNPMmtZZUY1OS1PZF9FSVFseTlFelEtZkFRaG9rSHczekJnV1k4Z0lZRlB6U3dFMDk3MXhBQktCWnFtdFgxQmNqaw?oc=5) |
 | Japan PM Shigeru Ishiba to resign amid fallout from disastrous elections - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQalZWQ21hTlA0ZFRFVDNxclVmUG9JdUV3eU1XZFFoLTVLWTRXbmJMUUUya3NDSHNpMDZwRDRwd3R0dHhCY3ZhelhZUy1PQURFWjJHMlVHTzFOZHNpNnQwLVdxWWhialZabkRBRE9CMjAwMWdaR0M2TjhyYnJmZi1RLU53?oc=5) |
-| Playbook: Trump’s ‘Apocalypse Now’ moment - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQbWVsU3hDdEJxcnJsWGZzdkxUWksxZ1hSTWt2aWQyMUQxWkRjUU1EbS1oZXVGZFp3ZDlKajl4RkdEOVExd3lTU0kxNUNWNUYwUDlMWlljTEFxV0JUUzNUbXNtTnZ1cDMzWlFSVldvMVl2LWVGU3dISXp3WmlsblRhaTNfTDhoaXVtUWdGelB2eGV2Rkxwa3BXLVV3?oc=5) |
+| Doubts about RFK Jr. grow for some Republicans - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdzlHcGVhdWowQ01LX2xuRFE5ajUyRHMxVjlsaTdHQW92NmtJYWxyeW4wd0pyT1J1TDlCTjl1cU9GNGZqdjhNVnRyd1hlLUl6S2pTSVkybVhJN0U0c3VJc09VTnpkUkozbmh0WWI1YXZpWGhBMUo4SEctRDJnRWxJMVNqQ2o?oc=5) |
 | Adversaries Bruce Springsteen and Donald Trump Both Attend U.S. Open - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOU1BvZ0x3dnM3bzhQYlhjd1Z1OFlxVDVka1YtekwtUDdna0ladjA0RHZrVzlUOC1qczRKdjZ2cDlvbHBLSnNOSFk4UHEtdWMya0tobWIzOVptTjAzZzJ1MUw1Y1lCVGcyZWpFeVZYa1pHSGVLdDNacXdBU0p0T2ZYbUoxWUZLMlJCdC14bDl1b3M1TTUzUUVWVkNCcTc?oc=5) |
 | President Says He’s Not Declaring ‘War’ on Chicago - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE41WjlpVnkyaGJvOUNCMHFkUTlqc3ZVWV9ldFRreDJtek1ZWGxRZFNNXzZfMWZoRDJqR3ZOWU1oY3B1NDkxNnhFU0puR01aVnhpWnRZcGw5bmV0RFRLb2NUSGNiWQ?oc=5) |
-| Doubts about RFK Jr. grow for some Republicans - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdzlHcGVhdWowQ01LX2xuRFE5ajUyRHMxVjlsaTdHQW92NmtJYWxyeW4wd0pyT1J1TDlCTjl1cU9GNGZqdjhNVnRyd1hlLUl6S2pTSVkybVhJN0U0c3VJc09VTnpkUkozbmh0WWI1YXZpWGhBMUo4SEctRDJnRWxJMVNqQ2o?oc=5) |
 | Florida’s plan to drop school vaccine rule won’t start for 90 days, won’t cover all diseases - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPcFNDUXpYMjg2dDNrSjdhTkRwcmZ3ZjJ5V1Vpdmw1QUlfOUtaWFZORm43bS1yejRYZUdyLXN3eWdTeXFCSnVzN2tDTTA5QTE1QWpXbzdGQ3FMdFd0dkM3VFd1ak1uTU5kQzZSUGxfUFdZX3I5WFlRVWFOMWh3SmxvRGRyQWxINmF0cC1VLWRRUTFwMGNoOHJ2Yg?oc=5) |
+| Republican condemns Vance for ‘despicable’ comments on Venezuelan boat strike - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNVUxtNzF4dUZyQmJxOS10ODRqYmhWZUtud3NOWG9QS1ZweTc1R3RVckRfdkRhVFVaZUFCYjh1MjdkajF2UFRMRU4xOUpRMEx5NmxpLXA0QTg1SEgtbFh4Q0Z6QkZRMlpzeFdKeHFoLV9yNXY1RWZRejNyWFpaS2dBVXVGaXc4MzJaa3VWZUE1cUN5bTQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
