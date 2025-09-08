@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 23:41:52（北京时间）**
+🕒 更新时间：**2025年09月08日 23:48:24（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | South Koreans feel betrayed after hundreds of workers were detained in a plant raid in Georgia - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOcjJSZElwSDJ5cFBreVBZOEltMEtqR24xVGhLYTEwLWFsRWJ3LWd5QmJVWU5DV2Q0SjVRRDN5dFVqS1p6dlNpS3p0NDRqZ1h1c19kTWZVN0s5UjZ4UGhUa050X1VhQ09DeW5mc2MybmIxNjBLQ0gwSXRtTUZaSndGVHgtU21IVi13RUsxMmJhZjFESUhnRjdwQzB4cw?oc=5) |
 | Trump Downplays Post Threatening Chicago, Saying He Wants to ‘Clean Up’ City - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNZkVadGVnZmIzRGRjd3Q4clI3V0xadHc1U3A1aTBWaUNDT3lZNHVHSDZVNi10ekJSWUJBeEhiN3ZrTmltbWpDQ2FzTHJ2aUF0YkNPRmhhRjZ5akh2NklmWVJVbWJJeVN5OFNhd210N09TYThMamYyaHhkaXFlSEJNNlZ5MA?oc=5) |
 | Fed rate cut optimism lifts stocks, as investors watch politics across continents - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE4tU0lNcl9sWEk4OC1TeGJydDlyZjlDNHFGb25ZbllBS2c0SHFONGNsZGxDLVBWdXRmZ2RaNmZmV1g3ZnNnQVNCU3Vud2RublFmM1dfOVRURDB2dWFSQmctSEJ0VUl5UjNZTGNpTl93MlN4Z2V2LTRHQ25lMA?oc=5) |
-| EU weighs sanctions on China for Russian energy imports - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1WN29vUDlBV0NPd3BUenJ5T0FscXZqUU12SE1MRFVYSnp0U05Ka0NYX3A1NV9COTllM3FHaDlMQ3QtbmFXUmtOLU41MW16cHZLc2FXX1l6ZmRaWWt6OVVZVHk1S2pJOUZaS2lkaHl0a2Q?oc=5) |
+| Javier Milei suffers stinging setback in Buenos Aires polls - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE01MUlYWlVnTDktdXR4c0xNNndObUZwREI1LUZJQzlxZF9zZ2EwcjF0UUJoaTB2WFFVQWFQcloxRzh5M05jVW41TFdDZVdTR2dPcXgzbmFuS0lmSV85UldHdFpEaUNwWjU5Z1o2UVJfU0I?oc=5) |
 | Video shows fatal stabbing of Ukrainian refugee on Charlotte light rail – stirring debate on crime in major US cities - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE96RmFrTmlpUnFoS2lHdlJ0Y0RwX2llYndQbF9fLUlHYjJvcUNLSHJhX2FrNkdmb0hLcXhvVk83V2RpLWt5NTdVY1U0RFZJM1FqaklNdmJYNDYyVS1Ub0dkVHM1ZG84ZEFnckRVSFJxZUdVZzdOdHZRRlNaaw?oc=5) |
 | Venezuela to boost troops to tackle drug trafficking as US strengthens military in Caribbean - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi2wFBVV95cUxQYTBTS0NTdzJoS0g2OHRHY2tfRm5KcmgtM0pwM29wNGdmX3VnWGlkY1R6LTlUMkdnNWVXblVVdkJGOHRQQWE0eXlXVkl4VTZCUE9pQ1ZrdTl6cmJGQklvbEFjcDhVV2NyMW4ycmh4SlVoZ21RclZ0bXpCUThBVHNGeWxUNU5QaVBoTm1uUWdDNGRkcG9oU0hLSjc1VU8yemJCTVE2MDZscFJzT29DemJTWEZmVzdiNVp6VG00UXg3azdYTnhTLTIyNnlRUEZsc0xHX21wSzBrR2FvS28?oc=5) |
+| 'Will have to refund...': What US Treasury Secretary said after Trump admin moves SC over 'illegal' ruling ｜ Hindustan Times - Hindustan Times | [阅读全文](https://news.google.com/rss/articles/CBMikAJBVV95cUxNT012TXhMejNBRzk4M2lwVFBZZEdFZ09lVEJnVWR6cElLbEE2LWRhcGVkaFBmRE05Q2I4dURnN0NKZ201bzdZM1JyTFptQ3FJYUwxMEhqN0Q5ZnRMWllYdFhQdk5JVllRalYzODE1MllWNEdsMFRSUDUxOXc3M3NDQ0VUYmVFejJwLXl0eENqdXVVOTdLNkhMTnM5WFJjdWkxZ2sxRmRza2J2UVNUWUE2S1dleUJxd3NmRjN5SmhsRlFxajZBWmt6MXpiRUdSWGZ3SEJzeEtlSGlWZ3FhZFV2XzAtS0pDVks5OGZNWW5GbVY4Zm9lLU1aSmNBWkpQcWp6WFdVZldVYkNnaEFMdEs0NtIBlgJBVV95cUxQZFRtenU0SkVjTTNndi1BNzhTZlFsZ0h5cFlEek5mMFRsRkpKUXRWbi1UWFdRbFdfT2ZzMTU1Ry1pNlpZdF80ellZRno1eWlQZ2NidURTOHZtd09sUDA1aGpxdTMweE8xYVhjRHRMejNubkZadFBUNTJYSWp0UEwzTFcySzNIZ2lHV3FCY2VkMURvVVNUeHJEclN3WmUtSnNmNENQenU4WEpXeDhLS2VKdExwZmZNS3JWNUdGdE91Y1l3OVZIck5BQ3FMekozVWU0Rll0NVBYcHFGX3VyVzZuQmdsbG5VQ0JYdTVVeHRNc2NkakRmUk1jc1NxWUhnRmhMRkQ1VWpxU0RLRFpCNnZjTUhKMkZJZw?oc=5) |
 | Doubts about RFK Jr. grow for some Republicans - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdzlHcGVhdWowQ01LX2xuRFE5ajUyRHMxVjlsaTdHQW92NmtJYWxyeW4wd0pyT1J1TDlCTjl1cU9GNGZqdjhNVnRyd1hlLUl6S2pTSVkybVhJN0U0c3VJc09VTnpkUkozbmh0WWI1YXZpWGhBMUo4SEctRDJnRWxJMVNqQ2o?oc=5) |
-| Pete Hegseth Reads From Notes in Awkward ‘Department of War’ Promo Video - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPc2JLVTY2R1J2c0JqQ3VoNU1wVlN4VmJIbXh3M3RTZE1mLXkyVnJSYmFUVlJqR2M0aE00Z2g2UEdiMHZtU1ZLSzU0YkxVTGl3YnhIa0dVWXFocDMxQXdoSHA0X251WEVzdmYtRDB4RzJsWDZVTlFpX2xDeHFITWp1UXVXSUJ2MERxZEk0OHBFblhCaEJxUFNmd0gxODFKM3k2UnA0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
