@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月09日 06:32:02（北京时间）**
+🕒 更新时间：**2025年09月09日 06:41:41（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | French government collapses as MPs vote to oust prime minister - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1nM1lQQ2N1MjRjbVgyY2IzalFiZGNFeVpaOVpzQXlDV1ZhZlNkSzVreGN5cGQ3dnY5dVp6THlmajM2cXhoMFNuREJ2bWdpRXc4TUFqQw?oc=5) |
 | Chief justice allows Trump to fire a Democratic FTC commissioner for now - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNT2Z1VHpZM09xTDFQUF9kODNKWllJZlVTamwyMTJqaE1jdWpGVWduU2JTQ2MzbERQRVdMWGNfTWhla0gwX1hndEFDNklQWXdhZTl6ZlFDaVdRQUFRWGNfb1dnMVVRdmtyb25OSEdIZzl5a1ZWT2Q3Z1o1TWNOOEd2MnJyc1RXTnhMd2JLaUtZZWE1WDFiTi1wbk5yV1k?oc=5) |
 | Trial Begins for Ryan Routh, Man Charged in Trump Assassination Attempt in Florida - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPaHlLYl9hU2hsendXYmkybTZUZmRlMTU1Nkg5TjFWN0VUQ2ZzQWxndm5qd1E1RmluNHdaUmxud2hlNV80WkRyejZwU1J6cEd3dFQ3ZmltLWpEVHdSa1lTekdIM2tpclpaM2tfLWNLVEFuaWJiRVBZVGJfbjYtQkYwVENxTDRhU2wyTWhFclZhN1Q?oc=5) |
+| Florida surgeon general says decision to end school vaccine requirements wasn't based on data - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOX3A1OGk3MTJMZGU5d1NONTV3Z1cyalVTU0pxbWp4dWxwUkJ1X2pVenp5N1B1SmY3bnZ4WXRwVks1SnRJanFOZm5nbVJnNDMzVjZfcDlrZmp5bXhDNXBmc2U0ZG9mWS0wQ2IyelIyZUNia1B1dzhtSjNwOHo4bmhYMVhtUnprdHNl0gGOAUFVX3lxTE9oY1IwdkF3WXh5djl4RXlaZXBmNV8xcFJUbGpwSk9BZWlsekJWQk1kcTFoczhNNW52eHRUdjRyd2NWNlJUUER6SW5wTjNRUl9HMzhkS2pXUkE2TkMzaHBBR3c4ZDJNbjVSd0pPMHV5VXdpeFBVZlo0elg3UU40Qkx6Q3NZQjlVeXBrc005TUE?oc=5) |
 | Noem says immigration raid at Hyundai plant in Georgia won’t deter investment in the U.S. - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOLVZodXRfMWdKQkRDc2tKazBQSHVSUG9rV3BjREIwbHRUa3VZRUlhVTM2alFESzNwREItaV9jOUVVUkQ0a2ZEQnVHZjVZVzV2SEE4UUZyZnFmVUlXX0lHZFVRUnBhNlY2SV9VYVc4UU9vd1JnbXNIcFRuUWRhbHZXMVhEMkJWN2RlendLQThHSmZKOVVmU0tUZHF5RTd3NnUyYWJaUEIyMXZob0kya3ZzZzJiOExjYWlTOE5WdTRnNThaUnfSAcgBQVVfeXFMT05DUGg2RUlCZURsbUd1Sk10ZUxwNFpBbWIybl91U1g5TXBUSUJzWXBRWlFETXRoSXdPRHVfUHZRNV84eHB1eS1sbDMxM1hWU2JvYUllSjlCVXQ0cGxTcGs0eWZoQTRKYnNoZVd1LUdIWlF3NWJldUdEdlR5UklzQm1XNmdoM0x6dE1ZSUtYQnRfcjFBYnZSQ1Y5Sm1VRTR5Wk1sakhxb3FheWJTZDQtcTEtS0JROVR4U09tZ2pPZUFjelEtMVh0SV8?oc=5) |
 | Trump loses bid to overturn $83.3 million judgment in E. Jean Carroll defamation case - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE1pVlFXSmd0TmRqZ2RFWlBXR19SZ1JHUnFpRnNKYU9RS0FSWVQxQ1BWY191eVR3Z1Z5M2tZZmw5TUxSU0NaTFJlTkt6aUliXzZyVzZDNl9MT0NnUkNDZk1FT0Z1cHJ3VS1aRkw4UU5rYXlkTjN1N1A00gF8QVVfeXFMTTN3NjV1aFJieGtxZVVMeTE2TDhab1RzNGRlQVRVNVNpYllDLWhYNlJ3OEF5MVRhN0Y0QXJpVmF0SE9wai0zTUtlYk1iUTdIc1NHenlTVEE5SnZUN25vQVlYZ3lmYmNJdnhtVWFvSXd3WVprYnN0cnFOaUl1TQ?oc=5) |
-| President Trump Champions Religious Freedom, Unveils America Prays - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNSlhBZXZfQUtYLVVPZVNHQXJvQmdzYnpRcnlGRVpodndCM2U0dzlrcmtkdHBFWU95TEZNX0phU0dvNkZOUlpYMXY3VnhMZ2J0eXF3VXBwRlZGeHkyWm9nQmM0N0pGaUg5TXR3ejZPWjh0c2VRLWZ1M2hnSk1MV3NrZExsU3c1RGdHQTI1a01oektqS3FQaENkdE5DbjFidnkwazhrSUhmY1Zlamx2Wmxn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
