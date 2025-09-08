@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月09日 04:40:23（北京时间）**
+🕒 更新时间：**2025年09月09日 04:49:48（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Supreme Court allows Trump to fire FTC commissioner - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPUU9ORVFILVp0aVl2UjNDeHpWYlkxUW1kcGlsX2FzYkR5Nm9HQldCSnBXb2xaMDV1WVhXakxBMHMzcTVIaGRfT0o5TmN1Zl9KMkwzMG85aUpoUXJPSDQzVFN2MTh5cS05X2k5ZWg4emd6SC1LRTBUdGJnY3BwUGpuUTFiYzZ5eUI5bjV0YkVtQlplSWtIZHhDWDBJVVJPQkRnVlg4VVR6UHZXZ9IBVkFVX3lxTE43WC1FaVU3Rzg0akNLTTB1ajFpSktDcmdBVWExZU1mQUJheUU5Mm8yUzNoZS1hd0xlNk5mR3hDYUlLd2hiN1VjcjF0bUhDN1V4WjQtSFZR?oc=5) |
 | Decarlos Brown Latest: Trump Calls Charlotte Train Murder 'Evil, Horrible' - Newsweek | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNcEhUaHNTRTEtMTlrM2ZUdkZRMWhGNVlsWmpvSUdSZE5kTjBxd1h2Yy12RURmbzNEZTg2b3JmcWtvQzd6YzNqZTFveU54UFFuUmZPZVVJTWxXY2JhWTNvcmhwSURYY1h1eEs0di0wX0ktaUFyeEZWak1hcklzZHRjY0tWQ1Fub2dpNXB1UURSRTdsQjJ4My11eWh3OUdjemdieWc?oc=5) |
 | 'Best I walk alone:' Man accused of trying to kill Trump prepares to defend himself at trial - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxNZHhUZU0ySEtwRU9GNE9XQkwza0hiSEhzUWtWUWFITm1IdjhBUWhob1I1VF9BczF1NmtORllrUnZ0UDBvd0lMQ2NENGp1d1hNaHhXT3lhclE5SzNjcGg4M1h4N19XMHB6MFhfbWtqUXBLOEI4UzJ3aGRaM2w5b281MTczOFJpUXY2c1FPdmZwaUZPd21MRFRyZXZDa1FjS01nbW5UX2Z5UnZWNFBuWTItSkZnT2VRam14eld2bVdMQUE5eHdBQ2dzaXpB?oc=5) |
-| Trump Administration Says It Has Begun Immigration Crackdown in Chicago - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxONHQwZ1BXY0Y2SHhPWEgta3FnbU42eENFaHpJY05Bb2hUY3k4aklLT0JrUEdRdTFWYW5uaTkwcm5HZDNRSmFVOGlJR3NKOGVxRUstcDRQT1htTnh4SWhYZDUzT0lPWkVIRlNsVmpRTHZMb1FFSEV5R3FucHY5dlFhU3M1SVNnY2pNdklSYlVzOXRaWk9OaDJmQg?oc=5) |
+| ICE Launches Operation Midway Blitz in Honor of Katie Abraham to Target Criminal Illegal Aliens Terrorizing Americans in Sanctuary Illinois - Homeland Security (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOeHVId2RWSnFVa3BrYmdNOGVYVy1jUnU3clpOcFpZUFpZVWJMSWh4ZjJsTW14TFlVMlpvbUJIdjU3NkZ2OEFGWVd1ci0wOWIzNl9uNmh5RkJESTFIbnNNTjNVMm1NZWdmVjRnRjlXYWEwc2F5R0F2WHFHRXhBbFdyVDNpWGNRaGhRcHRFbjJvSzFZYmJtWjI5eG0yZjhpeHBDVGZBR1FXZDVkcURRa3pITDJEUWtkUQ?oc=5) |
 | Auburn professor stabbed to death while walking her dog in Alabama park; man charged with murder - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNWVFpU19BQjNua01zMUZqaHoxNGZLU1JQUUhnOGxlcUM0SlpjSkhiZlpZSnRuLVAyQUlkMll1QXkzM2FGdGRWUDNNUmQ5WlVPOFkzTjlITzVUaURqZks0ZkxfM1hTdWNobWxLbkdQZjJ2dDNJQWtrLUpHckpEWF9CazVZWkVfTEhLdjFOQi1wODUtRkFh0gGaAUFVX3lxTE1hVlg4NEQ4NE9IcmJ6QWYwRlkxVGdUeG11MFBnTHNLdnBsNC0teG55TmkzOGswREFIVnZqREd5aWotdVAzMDhuN3dPUTBmQmhEZEUwWEVDckxZOF9tNGNlbl9QTktVQmtFUGpNYmF5MlpUZFNXRnJyQXVSV3BXajljTW90QTcwUmdPSHhWeXExRFdXXzBnRm9jZmc?oc=5) |
-| Trump vows to 'clean up our cities' as Chicago weekend violence escalates and more top headlines - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQMjlkT0pYRXhOb0R5cUR2TDlobl9fbUE3SmFNRjlDNV9lTjZtQnY1X3ZjdUVmV205ZUY5RXMwMU8wM3ctbmREUlQtYk1NRmJvbHdfQ3htZ1hPSnZVS1lrR2d2WXNvRlZ6SXJmX21OV05YeHBrdGR3TElhVDE0dGJlM3R5OGNVWUhUY0lDZW5TY0NOUlRjb1Bid05JRkxLZ0tYUkdQWlJBbV9hbTYwSGFQSw?oc=5) |
+| Trump says he’ll direct Education Department to protect praying in public school - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPa05nbUZ4ZjlFOTZoSUhMdUZSRjF5Um5ybG13NkJyaGZkT1RVZDIwUVlWSlFwNzJaZ1dGU3hMQXJkdFcybDU1Y2VTZTZCankxa1BxVDZ2dWE0N29aOTVHenBscWo5NEJtVmVyTFVkUGJPZFdURU5ZeWVVUzRPTXRiSC1Ud3BVLWJyc0dYYXV2Vnl1Q2RGaklOVjV6TklOVGVzV2ZVOHF3MU5rdnZ2V1E4dG14b0lZcWJKTDN3aGdHbmdoOHRFbUwxMw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
