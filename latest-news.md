@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月09日 05:56:24（北京时间）**
+🕒 更新时间：**2025年09月09日 06:02:01（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | French government collapses after prime minister loses confidence vote - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQZkc2WHVmQWg3Nm9ObWtfc0tQUUtRS1ZpWXF0alE0cml4ekJTQVdhZDByaTI5ekhBRjVYa0VReDZMd0dsUklvRU5IT1NxN3ZEdWN3T1pmNlJFdTJsYjVudjdUQ1MzZkdyTXBKOW1wSUlyLThEdWFEZTZ4ZjNfTjBTYl9XM2NOdDlZSFRVVFk5Yw?oc=5) |
 | Noem says immigration raid at Hyundai plant in Georgia won’t deter investment in the U.S. - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOLVZodXRfMWdKQkRDc2tKazBQSHVSUG9rV3BjREIwbHRUa3VZRUlhVTM2alFESzNwREItaV9jOUVVUkQ0a2ZEQnVHZjVZVzV2SEE4UUZyZnFmVUlXX0lHZFVRUnBhNlY2SV9VYVc4UU9vd1JnbXNIcFRuUWRhbHZXMVhEMkJWN2RlendLQThHSmZKOVVmU0tUZHF5RTd3NnUyYWJaUEIyMXZob0kya3ZzZzJiOExjYWlTOE5WdTRnNThaUnfSAcgBQVVfeXFMT05DUGg2RUlCZURsbUd1Sk10ZUxwNFpBbWIybl91U1g5TXBUSUJzWXBRWlFETXRoSXdPRHVfUHZRNV84eHB1eS1sbDMxM1hWU2JvYUllSjlCVXQ0cGxTcGs0eWZoQTRKYnNoZVd1LUdIWlF3NWJldUdEdlR5UklzQm1XNmdoM0x6dE1ZSUtYQnRfcjFBYnZSQ1Y5Sm1VRTR5Wk1sakhxb3FheWJTZDQtcTEtS0JROVR4U09tZ2pPZUFjelEtMVh0SV8?oc=5) |
 | 'Best I walk alone:' Man accused of trying to kill Trump prepares to defend himself at trial - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxNZHhUZU0ySEtwRU9GNE9XQkwza0hiSEhzUWtWUWFITm1IdjhBUWhob1I1VF9BczF1NmtORllrUnZ0UDBvd0lMQ2NENGp1d1hNaHhXT3lhclE5SzNjcGg4M1h4N19XMHB6MFhfbWtqUXBLOEI4UzJ3aGRaM2w5b281MTczOFJpUXY2c1FPdmZwaUZPd21MRFRyZXZDa1FjS01nbW5UX2Z5UnZWNFBuWTItSkZnT2VRam14eld2bVdMQUE5eHdBQ2dzaXpB?oc=5) |
+| Chicago residents warned federal agents may be about to arrive - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOVVZNV2N1V1RYVEd1M09MRmVqWkRmODRtTEY5czdSY3QzWXgzeXNBa1J1Um5oN09ldFJEbWhNbHhPeXhkMDd3djZoamNZTU9PTTBhZHBpUWNtTTduMHBCa1I3WFVsR0hRMFNPbG01dWluTHNndWV1MndCNFFzT2hNN1hnc3JFN2EzNmM2OGhVaw?oc=5) |
 | Auburn professor stabbed to death while walking her dog in Alabama park; man charged with murder - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNWVFpU19BQjNua01zMUZqaHoxNGZLU1JQUUhnOGxlcUM0SlpjSkhiZlpZSnRuLVAyQUlkMll1QXkzM2FGdGRWUDNNUmQ5WlVPOFkzTjlITzVUaURqZks0ZkxfM1hTdWNobWxLbkdQZjJ2dDNJQWtrLUpHckpEWF9CazVZWkVfTEhLdjFOQi1wODUtRkFh0gGaAUFVX3lxTE1hVlg4NEQ4NE9IcmJ6QWYwRlkxVGdUeG11MFBnTHNLdnBsNC0teG55TmkzOGswREFIVnZqREd5aWotdVAzMDhuN3dPUTBmQmhEZEUwWEVDckxZOF9tNGNlbl9QTktVQmtFUGpNYmF5MlpUZFNXRnJyQXVSV3BXajljTW90QTcwUmdPSHhWeXExRFdXXzBnRm9jZmc?oc=5) |
-| Chicago suburb warns residents that federal agents may be about to arrive - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOVVZNV2N1V1RYVEd1M09MRmVqWkRmODRtTEY5czdSY3QzWXgzeXNBa1J1Um5oN09ldFJEbWhNbHhPeXhkMDd3djZoamNZTU9PTTBhZHBpUWNtTTduMHBCa1I3WFVsR0hRMFNPbG01dWluTHNndWV1MndCNFFzT2hNN1hnc3JFN2EzNmM2OGhVaw?oc=5) |
 | President Trump Champions Religious Freedom, Unveils America Prays - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNSlhBZXZfQUtYLVVPZVNHQXJvQmdzYnpRcnlGRVpodndCM2U0dzlrcmtkdHBFWU95TEZNX0phU0dvNkZOUlpYMXY3VnhMZ2J0eXF3VXBwRlZGeHkyWm9nQmM0N0pGaUg5TXR3ejZPWjh0c2VRLWZ1M2hnSk1MV3NrZExsU3c1RGdHQTI1a01oektqS3FQaENkdE5DbjFidnkwazhrSUhmY1Zlamx2Wmxn?oc=5) |
 
 ---
