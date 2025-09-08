@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 14:25:06（北京时间）**
+🕒 更新时间：**2025年09月08日 14:32:50（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Immigration Raid Exposes Tensions From Seoul to Washington to Rural Georgia - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1QVVpwdWprWG5NYzczTm0xcjU2Vi1NaUM4VlB3TlgxNUdkMmRNX0dOdDY1Y2dnYklxUGxveV9KN3hrV0tOalZrU2poTUppSDZCV2s4OGFja0lCQVo5ZVlGSGRiTzFIZ3FZWDE0VVVuRmxnbWxzZnc?oc=5) |
-| Sen. Tammy Duckworth says Trump "essentially just declared war" on Chicago, but there's no "indications" of deployment - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE80WkhpS0Flek1CSnBuM2JOYjQ0Yy00Zm9vb2JzdlI3ZkMtejJ6X09ZS1VkMy1nbjlkNldDTzU2TC12ZGpJWmRzdGp2OC13bE1GbEl0ZVRoTmFxT0VPMHJsSjBwbVUzTWh6V0RUWktNc2pLelZBbUJaTFJYaTRkMlHSAYQBQVVfeXFMTk5VMzg5a09KVDhYQXlNYmRKV0YyMDJkLXozajh0Q2o1SHRabWxtMU93cTlWSXdTbThUOVdYOWxDclFDRXBOc014YW9ySENROXEyUXVGUm05T2R6YkVJSjRxa3p1c3BKTUFzN2ZQMzl3NVRUeFZyT05haDE3NU1YQ2lGTlFR?oc=5) |
+| South Korea, irked at U.S. raid at Hyundai plant, announces deal for detainees’ release - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxPeUVsbGFvdGVtVmp3NTFvZzdJd1NmMU1Wcm1ZWXdFN2FXUW44TnZiY3hRRzRkY0xUVW1ScnlteFBtUnFPQTFFNDVGd2tOWU9CS0g2ZmhlN2xIazlJaUx3RjI3My1GMjN4YUJ0dERiTEJoc3VTZ2I5aTN2WXNYOVpqNUxZd2R3RW0tTXpPdktzTUpmN1NVbXBNNEN4THN1SHNSOVcySXpzUG9JeWlYRnVVSVNoVHJtNk9SUGVtR2k2VG9kdURXZVhld0pQOS16ZmNRUUE?oc=5) |
+| Trump Downplays Post Threatening Chicago, Saying He Wants to ‘Clean Up’ City - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNZkVadGVnZmIzRGRjd3Q4clI3V0xadHc1U3A1aTBWaUNDT3lZNHVHSDZVNi10ekJSWUJBeEhiN3ZrTmltbWpDQ2FzTHJ2aUF0YkNPRmhhRjZ5akh2NklmWVJVbWJJeVN5OFNhd210N09TYThMamYyaHhkaXFlSEJNNlZ5MA?oc=5) |
 | Trump administration launches immigration enforcement surge in Massachusetts - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPNDEzV0xfbklKMDMwc0xMandwLVQ5c1NpLWNibXMxR1poSjlOcGFqU1lPY194Wm9IZV81RTR0dWtPVHIwd3dhQkFBNDhwYkNPMmtZZUY1OS1PZF9FSVFseTlFelEtZkFRaG9rSHczekJnV1k4Z0lZRlB6U3dFMDk3MXhBQktCWnFtdFgxQmNqaw?oc=5) |
 | Doubts about RFK Jr. grow for some Republicans - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdzlHcGVhdWowQ01LX2xuRFE5ajUyRHMxVjlsaTdHQW92NmtJYWxyeW4wd0pyT1J1TDlCTjl1cU9GNGZqdjhNVnRyd1hlLUl6S2pTSVkybVhJN0U0c3VJc09VTnpkUkozbmh0WWI1YXZpWGhBMUo4SEctRDJnRWxJMVNqQ2o?oc=5) |
 | Pope Leo XIV canonizes ‘God’s influencer’ Carlo Acutis as the first millennial saint - PBS | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQUUlzU2p6aHRlcUtlN0FnR2d5djJBOUtUSV9ZUV9vZGpVY0x1WFpBZzVaTUdQOWNuR1QydXVGS2ZEblJpYnpESDNicDN4bURrSVNSMU9rTVVWTll4aGlKRXpicjlFMHc0b2ZzRTdMbGloRHZMc2ZnRE0wVnJwdEtLQ2tmbjVGTm9IRUVWRzcyTUNqaTRBeWNnUUgyVFQ4NjNycy1RTzZrSU44QVZNVFYtZzd1ZVZqdzTSAbwBQVVfeXFMUEgwZkphWUJGN0VsOXVYV2VWRVlZNGVWT0xOSVFUOHpYZTJWRHlVZDdlTVFrdnlUN2dHZ3JSbDV4Y1l0QW5EMDdOMEdablFmNU9yTzJ1TUpMUDBTeXdCLTktYTdWME5wSFBoQkRCZVAxMGFyMUJNaVlVNk5qYzhneTFtX3M1Tk9NaU9iRG81WjhhYnM5Vy04MnM0UEY1OW5mTC1mal9uOUhOZkVqc0U2NjU4czRmTk9Yck90R3I?oc=5) |
