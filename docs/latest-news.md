@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 12:56:10（北京时间）**
+🕒 更新时间：**2025年09月08日 13:01:26（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| South Korea, irked at U.S. raid at Hyundai plant, announces deal for detainees’ release - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxPeUVsbGFvdGVtVmp3NTFvZzdJd1NmMU1Wcm1ZWXdFN2FXUW44TnZiY3hRRzRkY0xUVW1ScnlteFBtUnFPQTFFNDVGd2tOWU9CS0g2ZmhlN2xIazlJaUx3RjI3My1GMjN4YUJ0dERiTEJoc3VTZ2I5aTN2WXNYOVpqNUxZd2R3RW0tTXpPdktzTUpmN1NVbXBNNEN4THN1SHNSOVcySXpzUG9JeWlYRnVVSVNoVHJtNk9SUGVtR2k2VG9kdURXZVhld0pQOS16ZmNRUUE?oc=5) |
+| Immigration Raid Exposes Tensions From Seoul to Washington to Rural Georgia - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1QVVpwdWprWG5NYzczTm0xcjU2Vi1NaUM4VlB3TlgxNUdkMmRNX0dOdDY1Y2dnYklxUGxveV9KN3hrV0tOalZrU2poTUppSDZCV2s4OGFja0lCQVo5ZVlGSGRiTzFIZ3FZWDE0VVVuRmxnbWxzZnc?oc=5) |
 | White House envoy sends new proposal to Hamas through Israeli peace activist - Axios | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE45M0E0V2pSWDdQWk9lZnlKSHdKVWpzdnNSb01zT0dNdUk4Y3FpN0pwSm5LSWctMTR6Q25fNnJwZENDMndDV0RZYWFJa2ZQdE9ZNE42SlNVbHoyX3dhS3hWSDhxdDB1aVVIR0twcWIxancxUQ?oc=5) |
 | Trump administration launches immigration enforcement surge in Massachusetts - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPNDEzV0xfbklKMDMwc0xMandwLVQ5c1NpLWNibXMxR1poSjlOcGFqU1lPY194Wm9IZV81RTR0dWtPVHIwd3dhQkFBNDhwYkNPMmtZZUY1OS1PZF9FSVFseTlFelEtZkFRaG9rSHczekJnV1k4Z0lZRlB6U3dFMDk3MXhBQktCWnFtdFgxQmNqaw?oc=5) |
 | Japan PM Shigeru Ishiba to resign amid fallout from disastrous elections - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQalZWQ21hTlA0ZFRFVDNxclVmUG9JdUV3eU1XZFFoLTVLWTRXbmJMUUUya3NDSHNpMDZwRDRwd3R0dHhCY3ZhelhZUy1PQURFWjJHMlVHTzFOZHNpNnQwLVdxWWhialZabkRBRE9CMjAwMWdaR0M2TjhyYnJmZi1RLU53?oc=5) |
