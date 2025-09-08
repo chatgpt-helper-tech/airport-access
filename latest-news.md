@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 18:49:23（北京时间）**
+🕒 更新时间：**2025年09月08日 18:56:48（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Russia launches record mass drone attack on Ukraine - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9YVXpka1dmM2RUNUVIQjl2YjB5U25FQXI1azB3QnItVkppN2VBbDBjVEg4VDRqczVybndKbUJkeGwxczZWWmhvbVhRd3VFb09CdnFrclV6aXd2NXIxaEdMRGpjUnVlYy1ndTl0MzNrbWE?oc=5) |
 | Doubts about RFK Jr. grow for some Republicans - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdzlHcGVhdWowQ01LX2xuRFE5ajUyRHMxVjlsaTdHQW92NmtJYWxyeW4wd0pyT1J1TDlCTjl1cU9GNGZqdjhNVnRyd1hlLUl6S2pTSVkybVhJN0U0c3VJc09VTnpkUkozbmh0WWI1YXZpWGhBMUo4SEctRDJnRWxJMVNqQ2o?oc=5) |
 | Pete Hegseth Reads From Notes in Awkward ‘Department of War’ Promo Video - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPc2JLVTY2R1J2c0JqQ3VoNU1wVlN4VmJIbXh3M3RTZE1mLXkyVnJSYmFUVlJqR2M0aE00Z2g2UEdiMHZtU1ZLSzU0YkxVTGl3YnhIa0dVWXFocDMxQXdoSHA0X251WEVzdmYtRDB4RzJsWDZVTlFpX2xDeHFITWp1UXVXSUJ2MERxZEk0OHBFblhCaEJxUFNmd0gxODFKM3k2UnA0?oc=5) |
-| Trump administration launches immigration enforcement surge in Massachusetts - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPNDEzV0xfbklKMDMwc0xMandwLVQ5c1NpLWNibXMxR1poSjlOcGFqU1lPY194Wm9IZV81RTR0dWtPVHIwd3dhQkFBNDhwYkNPMmtZZUY1OS1PZF9FSVFseTlFelEtZkFRaG9rSHczekJnV1k4Z0lZRlB6U3dFMDk3MXhBQktCWnFtdFgxQmNqaw?oc=5) |
-| Bessent Says Russian Economic Woes Can Bring Putin to Table - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQVWl1Y0FGQ3hUM0dRUW1tY1UzdG01QURGSnRrVlZxZFpvc2FXMVE0LUM5LTM4RUdHejJBdTNBZ0RBRUt5SW50UmdIb1pEM05sTVdSSktNTEhIaWJ3ZkFpV1NqaWl3QlF4U1F4OWp1MEtpSWNuYWRWNkMyQWVPLW1sVUdQUXRaZkhyQ21EYVhnOTQ1Yi13MUZJVVFKY3lRS2hVT2tnQjZDWjFPQ3U0d1BQNE1yVGI?oc=5) |
+| ICE Raids Unfold in Boston as Trump Signals Chicago Is Next - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPRUtJdXpacUphb21WckROU3pYQXA4TFpWU2hXMGhoYjNDbEVuVWFjVmdkcjBlTUJFdU53Tm1wdlcxMTJYanhJbTlyZ1F1SlNpTmhxUUU3VkRicHpVQ004MVY3UEF0TjgzR1VsNXc0THFXaHRER2gtZW9YYTNVc284aU11cC1lVUtGS19aYlBnT09nOEVxcWZTWUwycFMtdVozSnprSmhQd1RYQ0hSSDcxT0JKV3NKQQ?oc=5) |
+| ‘Russian economy will be in total collapse’: Trump official wants more tariffs on countries buying Russia - Times of India | [阅读全文](https://news.google.com/rss/articles/CBMiyAJBVV95cUxNbDJuUnk5X0FYWEQwZ3FuUkRiM1oyazhGUzJyUm1iRXR0SWdyNUhoQnRITWFPcU9mZ3NjMUtqLXJFcy1MMkt0NmpfLW1CWHVhb3hUYUUxU2F3YnBLYmZfdkFsd2xIdWxzU01kM0stT2lqcEVPc1dGWVpIcVBvWnRrcmdjY3M1X3NJTEtMXzMwXzIzM3I4V1BFd2ZXaWNibGdDSWpyOXNDZ2tHdTVaMFo0ZjM2RVpEWk02dDByN2JyRTgtQi1aYVBWZE12azNFUWpESms5RDg3MVY3R3JDOTBWMXJyWlFFOFFPOEp4U2taQU9MMzdPSThBQy16RmI5V1dHTUFjT1h1OFh3S0ZPNHNsaVhGSnVBeUtCaEdJOWN2a2ZISWk1blg4a1FBUWJSUUs5M2o0RmN0YkFsOUV0X3YyNE40cURlenlX?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
