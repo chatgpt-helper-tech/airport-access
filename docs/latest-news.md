@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 13:01:26（北京时间）**
+🕒 更新时间：**2025年09月08日 13:08:37（北京时间）**
 
 ---
 
@@ -8,6 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Huge drugs bust reveals battles on cocaine 'superhighway' | [阅读全文](https://www.bbc.com/news/articles/c5yvplyrrwno?at_medium=RSS&at_campaign=rss) |
 | Ex-sergeant major admits sexually assaulting soldier who took her own life | [阅读全文](https://www.bbc.com/news/articles/ckgqzxq0z55o?at_medium=RSS&at_campaign=rss) |
 | Unions warn government not to water down workers' rights bill | [阅读全文](https://www.bbc.com/news/articles/cq65l5epl3eo?at_medium=RSS&at_campaign=rss) |
 | 'He put his hand down my tights': Sexual harassment widespread among barristers, review finds | [阅读全文](https://www.bbc.com/news/articles/c8xrejzk0edo?at_medium=RSS&at_campaign=rss) |
@@ -17,7 +18,6 @@
 | I live in a different country from my husband but we're still happily married | [阅读全文](https://www.bbc.com/news/articles/c5y21nvd56ko?at_medium=RSS&at_campaign=rss) |
 | TUC chief calls on ministers to show 'whose side' they are on | [阅读全文](https://www.bbc.com/news/articles/cge2j0rrwvjo?at_medium=RSS&at_campaign=rss) |
 | Five-day London Underground strike under way | [阅读全文](https://www.bbc.com/news/articles/cx2rg128l68o?at_medium=RSS&at_campaign=rss) |
-| UK launches £250m defence strategy to boost jobs | [阅读全文](https://www.bbc.com/news/articles/cm2dzlrm0jno?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -27,8 +27,8 @@
 | White House envoy sends new proposal to Hamas through Israeli peace activist - Axios | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE45M0E0V2pSWDdQWk9lZnlKSHdKVWpzdnNSb01zT0dNdUk4Y3FpN0pwSm5LSWctMTR6Q25fNnJwZENDMndDV0RZYWFJa2ZQdE9ZNE42SlNVbHoyX3dhS3hWSDhxdDB1aVVIR0twcWIxancxUQ?oc=5) |
 | Trump administration launches immigration enforcement surge in Massachusetts - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPNDEzV0xfbklKMDMwc0xMandwLVQ5c1NpLWNibXMxR1poSjlOcGFqU1lPY194Wm9IZV81RTR0dWtPVHIwd3dhQkFBNDhwYkNPMmtZZUY1OS1PZF9FSVFseTlFelEtZkFRaG9rSHczekJnV1k4Z0lZRlB6U3dFMDk3MXhBQktCWnFtdFgxQmNqaw?oc=5) |
 | Japan PM Shigeru Ishiba to resign amid fallout from disastrous elections - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQalZWQ21hTlA0ZFRFVDNxclVmUG9JdUV3eU1XZFFoLTVLWTRXbmJMUUUya3NDSHNpMDZwRDRwd3R0dHhCY3ZhelhZUy1PQURFWjJHMlVHTzFOZHNpNnQwLVdxWWhialZabkRBRE9CMjAwMWdaR0M2TjhyYnJmZi1RLU53?oc=5) |
+| Playbook: Trump’s ‘Apocalypse Now’ moment - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQbWVsU3hDdEJxcnJsWGZzdkxUWksxZ1hSTWt2aWQyMUQxWkRjUU1EbS1oZXVGZFp3ZDlKajl4RkdEOVExd3lTU0kxNUNWNUYwUDlMWlljTEFxV0JUUzNUbXNtTnZ1cDMzWlFSVldvMVl2LWVGU3dISXp3WmlsblRhaTNfTDhoaXVtUWdGelB2eGV2Rkxwa3BXLVV3?oc=5) |
 | Doubts about RFK Jr. grow for some Republicans - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdzlHcGVhdWowQ01LX2xuRFE5ajUyRHMxVjlsaTdHQW92NmtJYWxyeW4wd0pyT1J1TDlCTjl1cU9GNGZqdjhNVnRyd1hlLUl6S2pTSVkybVhJN0U0c3VJc09VTnpkUkozbmh0WWI1YXZpWGhBMUo4SEctRDJnRWxJMVNqQ2o?oc=5) |
-| Ukraine cabinet building hit in largest Russian strike of war, Zelenskyy says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOTmotOTU1dVhqSkpaNGcxODFzNHNQbVhISVVHV3djQjBEVnk4azFPR0k3ejNuZGdRTmpvVmhjd09HU3pJbTlxbVhzN0wwNHB2SnlVSXJydjFqWHVvcmcwSXZWSUl3Zi1pRFduUUlSdk40WDg5XzhNYzFRczY5Rk9xWS0tVG1GeDlQNFlDaVZ1SGhjYkRIUDRmQnBhZUU4VFVVNW1wdVNEU1JHbWhiTlh4bdIBtgFBVV95cUxPb05IaUFZUUNZNG5FQlpiVEdlRy1scTg5WnNlYTRfT2d3aTluTkpiR2dxUHBuNXJ3Y3g3S0RvRGJwQVBCNGdkdWswT3pSNnE1VjRKSGh4dE10a3B3d05mSlUteHBQUXdLdkwtQUd0dzJQYXhzLUlnazl0eTJ6SUhJbFhWMDJEbVBEU0ZGbWNiLVMtNjEtbjF5aTlEeEg0cEZlUjN4ZzVEN2txTi13SGlpQjBBdV9kUQ?oc=5) |
 | Donald Trump drew boos and some cheers at the U.S. Open. Here’s what wasn’t shown on TV - The Athletic - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNb3R6VThVb3Jyb1RNZ3F3aFl0NVZicDdLZGRYY1N2eEc0YkdCckQtZmdTRXQ3MjlqVW9pdEtLSmFFQ1hxWmIyS2k0Vl81eVBFU2c3Q09NQjhpaGFMMVNOUnVCMElPX1pyazhyaXdQckJLOWFOV2ZLbTdCbXFRUmQteC00R211Rzl0VVoxYWpVeEpNWlcw?oc=5) |
 | Sen. Tammy Duckworth says Trump "essentially just declared war" on Chicago, but there's no "indications" of deployment - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE80WkhpS0Flek1CSnBuM2JOYjQ0Yy00Zm9vb2JzdlI3ZkMtejJ6X09ZS1VkMy1nbjlkNldDTzU2TC12ZGpJWmRzdGp2OC13bE1GbEl0ZVRoTmFxT0VPMHJsSjBwbVUzTWh6V0RUWktNc2pLelZBbUJaTFJYaTRkMlHSAYQBQVVfeXFMTk5VMzg5a09KVDhYQXlNYmRKV0YyMDJkLXozajh0Q2o1SHRabWxtMU93cTlWSXdTbThUOVdYOWxDclFDRXBOc014YW9ySENROXEyUXVGUm05T2R6YkVJSjRxa3p1c3BKTUFzN2ZQMzl3NVRUeFZyT05haDE3NU1YQ2lGTlFR?oc=5) |
 | Florida’s plan to drop school vaccine rule won’t start for 90 days, won’t cover all diseases - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPcFNDUXpYMjg2dDNrSjdhTkRwcmZ3ZjJ5V1Vpdmw1QUlfOUtaWFZORm43bS1yejRYZUdyLXN3eWdTeXFCSnVzN2tDTTA5QTE1QWpXbzdGQ3FMdFd0dkM3VFd1ak1uTU5kQzZSUGxfUFdZX3I5WFlRVWFOMWh3SmxvRGRyQWxINmF0cC1VLWRRUTFwMGNoOHJ2Yg?oc=5) |
