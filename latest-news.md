@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月08日 17:49:05（北京时间）**
+🕒 更新时间：**2025年09月08日 17:57:51（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | Huge drugs bust reveals battles on cocaine 'superhighway' | [阅读全文](https://www.bbc.com/news/articles/c5yvplyrrwno?at_medium=RSS&at_campaign=rss) |
 | New Zealand dad shot dead by police after years on the run with children | [阅读全文](https://www.bbc.com/news/articles/c75qlerp2e5o?at_medium=RSS&at_campaign=rss) |
 | 'He put his hand down my tights': Sexual harassment widespread among barristers, review finds | [阅读全文](https://www.bbc.com/news/articles/c8xrejzk0edo?at_medium=RSS&at_campaign=rss) |
+| Lady Gaga and Ariana Grande win big at MTV VMAs | [阅读全文](https://www.bbc.com/news/articles/c5yk5jw6w5ro?at_medium=RSS&at_campaign=rss) |
 | 'Don't be afraid': The self-written note that inspired Alcaraz to latest US Open triumph | [阅读全文](https://www.bbc.com/sport/tennis/articles/c9v7nld4we2o?at_medium=RSS&at_campaign=rss) |
 | Australian triple murderer jailed for life over toxic mushroom lunch | [阅读全文](https://www.bbc.com/news/articles/c1jzr1d5xk9o?at_medium=RSS&at_campaign=rss) |
-| Watch: Glitz, glamour and emotional speeches at VMAs 2025 | [阅读全文](https://www.bbc.com/news/videos/crl5ngr2069o?at_medium=RSS&at_campaign=rss) |
 | Supertramp singer and co-writer Rick Davies dies at 81 | [阅读全文](https://www.bbc.com/news/articles/cp98zg2k2xko?at_medium=RSS&at_campaign=rss) |
 | Ex-sergeant major admits sexually assaulting soldier who took her own life | [阅读全文](https://www.bbc.com/news/articles/ckgqzxq0z55o?at_medium=RSS&at_campaign=rss) |
-| Unions warn government not to water down workers' rights bill | [阅读全文](https://www.bbc.com/news/articles/cq65l5epl3eo?at_medium=RSS&at_campaign=rss) |
 | A survivor's plea for kindness: How Australia's mushroom murder case ended | [阅读全文](https://www.bbc.com/news/articles/cly1v06xz7qo?at_medium=RSS&at_campaign=rss) |
+| I haven't lived with my husband for 15 years - we're still happily married | [阅读全文](https://www.bbc.com/news/articles/c5y21nvd56ko?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
