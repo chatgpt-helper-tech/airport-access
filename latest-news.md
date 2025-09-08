@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月09日 01:00:45（北京时间）**
+🕒 更新时间：**2025年09月09日 01:08:36（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| South Koreans feel betrayed after hundreds of workers were detained in a plant raid in Georgia - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOcjJSZElwSDJ5cFBreVBZOEltMEtqR24xVGhLYTEwLWFsRWJ3LWd5QmJVWU5DV2Q0SjVRRDN5dFVqS1p6dlNpS3p0NDRqZ1h1c19kTWZVN0s5UjZ4UGhUa050X1VhQ09DeW5mc2MybmIxNjBLQ0gwSXRtTUZaSndGVHgtU21IVi13RUsxMmJhZjFESUhnRjdwQzB4cw?oc=5) |
+| Korean companies admit cutting corners on US visas but say they have little choice - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE45aC03Z1B4SlBteVJRZHQtUUdDZFdMa2hYdk8tWWhKck5SNDNLNWRQOVYwZWFxSjhqLWZubzlpX05VOHFLYWpaYktDZWR2TG9pSXBmV3VjRFVIbWVCTzFRMVVBLUlROEI3ODROc0F3RVM?oc=5) |
 | Appeals Court Upholds Carroll’s $83 Million Judgment Against Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOUExTRmRLdjJhRDZYMEoyZDJSa1FXNDlZSk14OEdZd3FJc1c5ZjAzU3NlYk9HMFFBcVFXbUhsWlU0ZDlGdXlVVmVHZjJZa1pqdGI3Z1pReE8yeW0xODVDR3NsMlJvcnhJWE55bkY2dGtsdFZQYlc2RGh5UmVTQ09keEU3SlZHa2c?oc=5) |
 | Several killed in Jerusalem bus station shooting, police say - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOX1U2QXM5dkp1aU9ReDgxZk5pLWhPWTdZaVVBbDRwYWZJelZoR2RQM05LYW9jS0dZNzh0SnM4WDczajVUc1llcmU3cEVGWlJoU1RZdFVESlJEMTVNWmtDZUZtV2tqeXptM29ubjBfd2dCRjYzbWNVd0Raa0pJZlZkSXJYNzFEQXdGTEdWNTdQdFFSUHV5S0xPTzFnX29KdTYtd3fSAacBQVVfeXFMTkZMcm45Q3lBQzN1TXJ1TUdxMWxMcWJyYjJwcGxoZ2I5SjlmcUtROWEwNnNKMENBOVRyRUItdDFhdjRZNnJXaTh2SUhhRnpjbXB6a0JkU0x4LU1TVXpsLVA3cDFEOUpna0MwZllOUGFNRHNvajhkVUlyTVZOVC1fRHpRZlZDTnN5SThNckt4am5GSXNBbmNmYVpKUjM1alI2Y3JpUF92QWs?oc=5) |
 | US Supreme Court backs Trump on aggressive immigration raids - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNNzdOaGdqQVU1c2pYT0x1Z21ZWF9sQS1mWGNMT3BCVlBhSVZydTBtX0lUVzNfZTYzcEZjSm1KbE9yQ0d4Z2JjU3lrSVJrblpIcHB3Q2M4OGZzRUphOFJ6aUxpUWhDNnBQaWlZOWFSTTd1emhmdm50dy15YlBTSV82RkdqR1FaSzFwYVBFckYyVkFzMGN2QTdRamVhU2dWV1FKbXZqMA?oc=5) |
-| Trump Downplays Post Threatening Chicago, Saying He Wants to ‘Clean Up’ City - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNZkVadGVnZmIzRGRjd3Q4clI3V0xadHc1U3A1aTBWaUNDT3lZNHVHSDZVNi10ekJSWUJBeEhiN3ZrTmltbWpDQ2FzTHJ2aUF0YkNPRmhhRjZ5akh2NklmWVJVbWJJeVN5OFNhd210N09TYThMamYyaHhkaXFlSEJNNlZ5MA?oc=5) |
 | Federal immigration raids planned for Chicago and other sanctuary cities in coming days after a weekend of warnings - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPSWY2dldOQmZuV25SeW5xUFhiSlBHZU9XdHdSbURVUmRjdENYTEhsel9qOFhVeVdmWEtfYTlNUWNWSDJuZ2h4QklGaFYyd1lVcnpGdkVPQ3J0cmJnNWlKMGtZM3EtempLVzNDTENHQ3VKSmF6X21mc0wyelFheThCQk9B?oc=5) |
+| Supreme Court allows Trump to fire FTC commissioner - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPUU9ORVFILVp0aVl2UjNDeHpWYlkxUW1kcGlsX2FzYkR5Nm9HQldCSnBXb2xaMDV1WVhXakxBMHMzcTVIaGRfT0o5TmN1Zl9KMkwzMG85aUpoUXJPSDQzVFN2MTh5cS05X2k5ZWg4emd6SC1LRTBUdGJnY3BwUGpuUTFiYzZ5eUI5bjV0YkVtQlplSWtIZHhDWDBJVVJPQkRnVlg4VVR6UHZXZ9IBVkFVX3lxTE43WC1FaVU3Rzg0akNLTTB1ajFpSktDcmdBVWExZU1mQUJheUU5Mm8yUzNoZS1hd0xlNk5mR3hDYUlLd2hiN1VjcjF0bUhDN1V4WjQtSFZR?oc=5) |
 | Jury selection off to rocky start in case of man who allegedly tried to kill Trump on golf course - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOaENCUzFBSm5OdjBRUU1fS1hmQ2IzUDVNTUN4LU5pWEZnd3ZDLXhWc0xBeFl2anU1THdZRVdwQWlzZEZVazRhQTBOWG95SGEzcFpvY1NyRk1KdldTb1lHNVZrYkcxOHFocEliUXhhWGZmWE1raFF4bHJzS1lsMmYwMzZidGRueUExOWtFU1VRS3NrZ1Y00gGaAUFVX3lxTE14anhMV1JmYTBxOXhLckNYX1JUdk4wVWlHbVNSNjc0UU9wdmhvZC1SVnFhcmlTdnk2ZC1NTkx4ZDhXX1JQamJpVzNvRGF4UHhRdVJvUGNCUjZWQTVxcDBlZ2dHY2dPa2Q1WVRoVklxcXV1cGhmZ3pWdFVFdmdFSTJKSUd5SFZkdHhaY2REY29xVDRnQ2N2dDJ1Tmc?oc=5) |
+| In new memoir, Supreme Court Justice Barrett reflects on historic cases, is largely silent on Trump - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPaGFvUnNOS21CamhKQ0FsVV9jUnEwYTNGZFR5UmRMU0VuZ0NlVDE1SEFaYVFjVUpVTE9IUDJmelVsdnE5TFlxMGc4MXJOTnV0V2paY1NDZXk3SVJTa3FER3cxd3J6MzZaOWZFdWRneVc1bzRsLXp0b09YN2hsdmFHd1lZUEJiRlZvandyOS0zT0RPRWtFckJSclFiOU5BMjZ2UnI0?oc=5) |
+| Trump Downplays Post Threatening Chicago, Saying He Wants to ‘Clean Up’ City - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNZkVadGVnZmIzRGRjd3Q4clI3V0xadHc1U3A1aTBWaUNDT3lZNHVHSDZVNi10ekJSWUJBeEhiN3ZrTmltbWpDQ2FzTHJ2aUF0YkNPRmhhRjZ5akh2NklmWVJVbWJJeVN5OFNhd210N09TYThMamYyaHhkaXFlSEJNNlZ5MA?oc=5) |
 | RFK Jr. says he sees no successes in the agency he leads - CNN | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBDdVZ5alB0bllsRkJhTnFNVWk1RlhIbUZzTzlBZXRUN0dCVW9SNm1INDZYbW5NUHBPaFNlLXdJd3JSSFZaQVdTQWJjdnJqVG9RaTJsTnppTHJvTVZtaVRQMnRyeGdjQTFpTlZ4RGZaSDg?oc=5) |
-| Grisly Charlotte stabbing video fuels MAGA's crime message - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNWlRvLUJ4VmJyR05BcC1lV21HTHRZQ3dveG9lWl9Wc2E3OE44LVZReWNkU0JNWmZfY3VUNzVBMEYzVHVudWZsYnZ0MV95emtuVlk1aTVxeVZwLVp1dGxGa1Q4T2xRNnJBbTJOYlJNVUJCVHBsSjE0UDJrQjBTbkRQYTNGNWQtQQ?oc=5) |
-| Fired FEMA chief recounts ‘hostile relationship’ with Trump officials - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPSmVRYkk4UFR2cE9aTjh2WC1Wa1hQRDMwT25WSU9LUU1DNHFxanVyOXRMVU1ZWlhYTWc1NXhacTZfRHJHSmpPaFBWcXNZMTZnOHpSb2pYejROWXV2RTFJUFhjTndtZ2NBMjk2Tkd4cV9LTDBERXhtYkhhcHMtUGxwcTRZc0xncU1IS2pENU9iaGFNbmdtSGxvU3l2VQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
