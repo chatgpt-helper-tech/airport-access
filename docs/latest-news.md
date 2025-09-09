@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 04:41:18（北京时间）**
+🕒 更新时间：**2025年09月10日 04:48:43（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Man faces a federal charge in the fatal stabbing of Ukrainian refugee on a Charlotte train - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNSzhFblVKYXpreW5QLU9yVER5QXcyVEJZYnJ2dmF2NFdpWnFGX0FHcG9IRmlLMEtaZDg0WXkwX1JuVjhyMW9VVVE0T3hUM1E1WkE4UjRkMVhXcFFMN3BIVUpnRlYyUEI3eTdXOEZYbmtudGlGUDRaZEtWbFp4b1NodzVHNk9OUUli?oc=5) |
 | Israel attacks Hamas leaders in Doha, drawing condemnation from Qatar over "cowardly strike" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5GRzU2TGxWMjhESHF6SVJyVWxVZUJQN2liSGt4ZVRqb2tzVU41b1RZbXRxZ2VmNy1yTl9fTTR0NkhtQVAtZXpKR2ZGTUpDNkVrcHFNWGgyNkpsZVB2TGlfM0ljQml2eGNvUW1OV0ZMVmM5NlhQc2oxRFJDb9IBgAFBVV95cUxQdTR0RmNZMFdLNzdzV0sycEhTYUw4cmpaaFJQMmU3VXg2ZHJXUVVIT0RoT094UDBNZkRJeDdEX2dGZUVwSTVPekxYOWdMT1dTbjZvOEJvMDRHREtXZktiWW44M1N4endheGlMbE1MZTMwMWxFeFpOQ0tfbENEajRXRw?oc=5) |
-| Inside Epstein’s ‘Birthday Book’ Apparently Signed by Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOdjEzb2J5UTQ0dWxwWGp5by1kRm9qVFF4aHdjeUJ5RDVtNkVIa3VSSmF0M2x3M1RQMGlzMk5MWlY2N1VXMVJ6c3BLbV8zLXpzMnE4a0ZHN1RpSDg0OUR3WDg4YUI4YTliTldBYktCTl85dHVxZEhmUXFwczF6RXdRZG1SSEI?oc=5) |
-| Trump administration lays out its ‘Make America Healthy Again’ strategy - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE15bnJ4emxuYm1Qb2xMNFhzY25ueURiMm4zUEJXT2VuRTM4bzFaMFBMemRId0xmUFBPU3J4Z0Q4YlpBZ2N5UUQ2NDlpTU56a3BDQXBCZXYtZV9kVVlTck5SbFdBZmtjSkpwNlU1b05lTGU?oc=5) |
+| RFK Jr. Releases Childhood Health Report - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBCU2ZZdThkNUZxU2w3ZnZWdzBoT1ltdW84X0p0M2dpdjFuQlVhWUFDY1lBTlVTVllId0Nya3lTS1FUX3laNHJWMXlyaDBkMFROX3hEYUVHNFdUVGdCeENLVmsxTHU1RFNRVU13NEhWN25od0ZXeTF5Vg?oc=5) |
+| 'It's a dead issue': Trump declines to comment on alleged Epstein 'birthday book' letter - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxONFc4SVgtbmJjc0QwZ2NTNWd6bzhFUUxGMURMd3BqNzdGZlJMR3lZYXJhRUdGQk5CWnBNMFgtSGR2c0l1VjZLNVQ5eTUyMWVFdzc4TUhSRDZ4YlNfVkc4Y0VIdXQ5ejJFc1VBSnRwYXBTS1c0azN0YW1fZlV6OGxBUlBsUGFuTjZSN09oX0g3aUc0NjlCeXlwUDlReVRtWTBMYktyVmJLc2pMVzlCLVHSAbMBQVVfeXFMUFUyUU9ER1NrN1FLTWhRazV5akpxZ05SY0tpVFBtaFhDQy1QT1ZFUXNIVE9NbDFQa2I0SEtFaHlDVGFDNzdDLXBNQlV3a3FxVmdQaFU0TFR4aVlYeVlqemRwQ1VFQk5PZnpJQ3BHMHVDYUFhUGt0R1NRZUZmUmNIemdUdWhaRTliSHBTcUVIVWFNTndBYnEzd2xsRUJGLVpNb3pTdHgzelhMQ3E2ODZfOGJnNlU?oc=5) |
+| Man faces a federal charge in the fatal stabbing of Ukrainian refugee on a Charlotte train - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNSzhFblVKYXpreW5QLU9yVER5QXcyVEJZYnJ2dmF2NFdpWnFGX0FHcG9IRmlLMEtaZDg0WXkwX1JuVjhyMW9VVVE0T3hUM1E1WkE4UjRkMVhXcFFMN3BIVUpnRlYyUEI3eTdXOEZYbmtudGlGUDRaZEtWbFp4b1NodzVHNk9OUUli?oc=5) |
 | Wife of Ex-Nepali Prime Minister Burnt Alive, Parliament Set on Fire: Live Updates - Newsweek | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOOExIaFJlUmpMa1MtOWRoMHZ2NTU4aVB4WEZsdjc1ZlVTZ0Qwdzk1eVlCdHFaQUdwUHBMOFl1RXU5ejFDQWcwWjBMTWpTTy1jb1VBckpUeGFzWXFBdzQyZGl6UmpKN1ZiVlU2UEpXOWo2NWRDUWVMVElSS0tSZDcwTmI4aHlnWUFGS0hfQkpkaXBqYzVHS3lVdElpTVFJN05IY1c0TjFWTkQ5VXM?oc=5) |
 | Trump's ICE targets Chicago amid objections from mayor, Illinois governor - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOWXBxLWdwOGV3ZlBaUlJ0QVRHbndtYjkwN0QzRlNPZGptVnJTT0lXcThGUUdLT1JFVU1jM0pfYzlYSk1saHJBT2dPV203di01dmcxaW45UXhwS1RNaExXa0JSU1BuTG9GQTJnWlNhRHc4VkFySW1vUHNaTmdEekNlZ01BUGpGQQ?oc=5) |
 | Supreme Court temporarily allows Trump to pause billions in foreign aid - CNN | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOS29SQWtVcDFTalk5YXVsb0daQ2gyY3pNWEZleVB5cXlENGd0c1hDNVJDZUZibzhOUUVQYUd2VTdKdU9RNWk0QmxsdlV0XzNwUXFyRTQyUjRrRzNTZ3RQX0xLTXRTYXc3b2ZaU3RSSXg3ZjRSTV9hc1h5WGZQdTVYOVEzZmNkWDZyUHFwTVdkVjBqUVlQMHUwTzRianZlWkR5d193NFFnZ1V6a0RmeWdqaA?oc=5) |
