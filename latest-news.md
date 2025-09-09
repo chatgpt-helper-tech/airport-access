@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月09日 20:49:18（北京时间）**
+🕒 更新时间：**2025年09月09日 20:56:42（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | 'I'm angry. It's not right' - locals want asylum hotels shut, but are shared houses the answer? | [阅读全文](https://www.bbc.com/news/articles/c07vn1y2jz2o?at_medium=RSS&at_campaign=rss) |
 | Best and worst-performing NHS hospital trusts in England named | [阅读全文](https://www.bbc.com/news/articles/cq8eqxlypv7o?at_medium=RSS&at_campaign=rss) |
-| US lawmakers release Epstein 'birthday book' with alleged Trump note | [阅读全文](https://www.bbc.com/news/articles/cvgqnn4ngvdo?at_medium=RSS&at_campaign=rss) |
+| White House denies Trump's alleged birthday message to Epstein is authentic | [阅读全文](https://www.bbc.com/news/articles/cvgqnn4ngvdo?at_medium=RSS&at_campaign=rss) |
 | Mandelson called Epstein 'best pal' in birthday message | [阅读全文](https://www.bbc.com/news/articles/cwy9dwe50leo?at_medium=RSS&at_campaign=rss) |
 | Bridget Phillipson and Emily Thornberry join Labour deputy leader race | [阅读全文](https://www.bbc.com/news/articles/c3rvqv9yg4eo?at_medium=RSS&at_campaign=rss) |
 | Mystery donor offers £100k to find student who went missing after house party | [阅读全文](https://www.bbc.com/news/articles/c04qpd7y9k0o?at_medium=RSS&at_campaign=rss) |
