@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 04:09:33（北京时间）**
+🕒 更新时间：**2025年09月10日 04:17:48（北京时间）**
 
 ---
 
@@ -11,19 +11,19 @@
 | Bowen: Diplomacy in ruins after Israel strikes Hamas leaders in Qatar | [阅读全文](https://www.bbc.com/news/articles/cm2zepgp5neo?at_medium=RSS&at_campaign=rss) |
 | CCTV captures attack in Doha | [阅读全文](https://www.bbc.com/news/videos/c1dq39204wro?at_medium=RSS&at_campaign=rss) |
 | What do we know about the strike? | [阅读全文](https://www.bbc.com/news/articles/cq5jl77ygv4o?at_medium=RSS&at_campaign=rss) |
+| US says strike on Doha 'does not advance Israel's goals' | [阅读全文](https://www.bbc.com/news/articles/cx25711r8jxo?at_medium=RSS&at_campaign=rss) |
 | England's NHS trust league tables revealed - find out where yours ranks | [阅读全文](https://www.bbc.com/news/articles/cq8eqxlypv7o?at_medium=RSS&at_campaign=rss) |
 | Starmer to meet Israel's president in Downing Street | [阅读全文](https://www.bbc.com/news/articles/cly9jgmgqe8o?at_medium=RSS&at_campaign=rss) |
 | Mandelson called Epstein 'best pal' in birthday message | [阅读全文](https://www.bbc.com/news/articles/cwy9dwe50leo?at_medium=RSS&at_campaign=rss) |
 | Phillipson and Thornberry among six Labour deputy hopefuls | [阅读全文](https://www.bbc.com/news/articles/c3rvqv9yg4eo?at_medium=RSS&at_campaign=rss) |
 | Gregg Wallace launches legal action against BBC | [阅读全文](https://www.bbc.com/news/articles/cdr60nvd4y2o?at_medium=RSS&at_campaign=rss) |
 | Macron names ally Sébastien Lecornu as new French PM | [阅读全文](https://www.bbc.com/news/articles/crmenp1k0mjo?at_medium=RSS&at_campaign=rss) |
-| Heavy rain and wind forecast as unsettled weather returns to UK | [阅读全文](https://www.bbc.com/weather/articles/cy4r7p93r42o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Apple launches 'game changer' slimmer iPhone Air for $999 with denser battery - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPLUhuU1JTT016c1FpdjJxbFAyXzR4LUlhMlZReXM2UDdhaTVxbUpJenZpV2NoR050bXZJcjFWTHdlUkFkTEk4RmZNM3FTR1FmNkhhNzNnZUE3TnNYdS1HeXFaNjlmbVMtMnFvWXR4ZzRhVmpXUXVBSUNKRFNfR0QwY0ozc3JnMHZlYlBhZy1PaFc2MW80ZTUyczRBVkZyRVZWQzNkTzBTc01KSVNZUGtiUFUwOWxpdw?oc=5) |
+| Apple unveils iPhone 17, including first-ever iPhone Air - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOS2JoTDY1cHlrVGp1UGxyM2ZYMlgzWmdUZUxCekZrSVlyZzJ3ZmJsdTh4ZEVyN3BjaXQxWS01dXdwZ2xRNGFPQnAyZHBYdFlrX3Y3TEctaVI2TUJneE9HWGpUSVZFeUlKVGZ6aE5NdG5yUDR4WWMtd0RScGtjUDlJa29sc3BHbThYUkM0YVE0anM4bzE5Z1kzSzByMNIBoAFBVV95cUxPR2c1UWhhejh6SC11aWVuRGI4UFpzZVhWczRDcUNpck5sWlEzd2NiR2lidWs1RHRaaVVCN0I4Rk1uOWFrQ2FjR2N0NW1CQ1RFcVVHVmk5V0tGU2FabU1uQ21Nak1OeGphWXNDRjhVUTJXOUt2VTBtVVp3RWVMblozN2VoUEw0blpSRW9HM0NSbVljaG42MWl0ZkdwTzl6c1lo?oc=5) |
 | Man faces a federal charge in the fatal stabbing of Ukrainian refugee on a Charlotte train - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNSzhFblVKYXpreW5QLU9yVER5QXcyVEJZYnJ2dmF2NFdpWnFGX0FHcG9IRmlLMEtaZDg0WXkwX1JuVjhyMW9VVVE0T3hUM1E1WkE4UjRkMVhXcFFMN3BIVUpnRlYyUEI3eTdXOEZYbmtudGlGUDRaZEtWbFp4b1NodzVHNk9OUUli?oc=5) |
 | Hamas claims leadership survived Israeli strike on Doha, but confirms six deaths - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE91TDZzTE9wemZyQXlLVFVTS0NCQzJfRTQ2QkdTM2VLVkVYSG5hcThaUjF5bUstaUx5RDBJZ1pNUV8yb2V5ZW9PMk5IWHFibWFZaHY3eg?oc=5) |
 | Inside Epstein’s ‘Birthday Book’ Apparently Signed by Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOdjEzb2J5UTQ0dWxwWGp5by1kRm9qVFF4aHdjeUJ5RDVtNkVIa3VSSmF0M2x3M1RQMGlzMk5MWlY2N1VXMVJ6c3BLbV8zLXpzMnE4a0ZHN1RpSDg0OUR3WDg4YUI4YTliTldBYktCTl85dHVxZEhmUXFwczF6RXdRZG1SSEI?oc=5) |
