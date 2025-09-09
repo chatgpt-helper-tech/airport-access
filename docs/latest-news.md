@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月09日 15:48:37（北京时间）**
+🕒 更新时间：**2025年09月09日 15:57:40（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Thailand’s top court orders former prime minister Thaksin Shinawatra to spend one year in jail - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQa0c5RmkwU3NIU0pSd0VJMnI3elVXaWEzcHdha1VGd1k5cENGUmh3N3NEdngtbUpkemRUaFpScUxQMGxqVGdzVTkxNkJJcWZXNnJSc3YxSC1qVkUzRzVZdE5mMHNkNDVQd0FsUlQ5QkpIcWF0U19EbGlyNWJoRUk0b0ladmlwMzBEVXEyY1BQYTh1dw?oc=5) |
 | Fatal stabbing of Ukrainian refugee in North Carolina ignites crime debate - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9NRUhTdEJtYUF2MWNaU1pvM3ZYZXdHREphR3BiZEgyXy1aeHd5aldtN0hhRHhrZ0xobXBsQWNTRUF0aHZQRXBkWmpsOWViWE1fZTdUbDNjaHpfZ9IBX0FVX3lxTE4xSUtYeUtkWnJvRzhqUUNyc3A4aVpxNEF0WEtOM0o0OG81SmZYWVQwMTFRRS12b2RvOURjTi1XSk9GUHhwZXJHdUd5a0lWN0VURnQ4WE16THlTY08tcXN3?oc=5) |
 | Student test scores are sliding, reaching new lows - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQX3g1TTMtMXkwaGxyVkpuUldSZkoxQkp2SXdjbEFWZXNRaGtYLXU1RlN3Q3dWWDRfRzlnanhlanZ5YXJGeURZdEZXTEtJTU9nX1NSX1FxM1Vvd3gxNDBtZjBVczd1VGdES3hHQU5tSkkxY2gyQjdSa2pTNzNEQ1ctX0NB?oc=5) |
-| Speaker Johnson walks backs comment that Trump was an ‘FBI informant’ in Epstein case - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPa0M3aHpnYjktR2ZjZHBUVGdjNXh1eF91Y0swcWpQOFgxU2hFZWtGejJDT1EwRVkyUXNfaWhCUUVkSG9zenlLempfWnB2XzJXVzJHbjZuZUZuYkJoVjNIQzFFYk4xbHo2MUI1ekpQMVhualZqOWp4Z1VJZU4zV2VvYQ?oc=5) |
+| Johnson says he didn’t use ‘right terminology’ in calling Trump an Epstein ‘informant‘ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQZkRoelMxVmtsLWRmenJDNlMzcG9EU1FiUS1neDZFdFBMTzhVMWhlYU1OMTNCQXBXTWRFOHRyZVpjR3FoeTRXRk9VS09OdkRkcUxTbF9Ja1VCME9BOFNCdmk5ejdWY3JfX041NTlQQ05pV1Z4RlhpZ2I3REZvbWp3NkR0R3hhV0dPQnhhbWFKdFlkX0lpcEw0djFDN1UwYTFWR00yWTNsY29WTHh4cmhF?oc=5) |
 | Firefighters Race to Save a Treasured Sequoia Grove in California - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNUTJGeGgyQUpnWjBNdmJuWlhteFpCTmc3ZHlhSnJQMWo4NzNUZTBraUkzV0pEMFUzd1R0MEhMX1Q4ZnpacUdXWW5GNFJvMHlHcmtTTmNTUmxnN3BXZWxJMS1QQWhqYjVLdEg3RXNUcFFHSzJIcWV1SFlLMXJkUjVLMXBn?oc=5) |
 
 ---
