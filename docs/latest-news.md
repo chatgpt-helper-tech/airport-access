@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 02:00:07（北京时间）**
+🕒 更新时间：**2025年09月10日 02:08:41（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Greta Thunberg's Gaza flotilla hit by drone, organisers claim - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE8yUjI3OFFSU2dUVERWM2VlTGxjM3VKNEx1cTQ3QnNjV2Y1VEE3eVpKSFFzY29tTUNNQzQyNDJyWHRORHR6WUVPMHV3blhHS3UtbXR6M0dOeVBhUdIBX0FVX3lxTE4ySHVFcHRqY0pBdVBIQUhIUTI0VUJyY0tlRzVWZG01MnFLRW14ZjI2Z1N0UHo2Y2xQYjg3V3EtcWxhMjlnOTR4NmJqbE10SjU3RjZNVnhoY0c3dkxrNkpV?oc=5) |
 | Israel orders full evacuation of Gaza City as Netanyahu warns ‘this is only the beginning’ - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNWWgzX0kxczczZzd2RGVvLVEzU1AydWJmYlhVenY0cU5DeWdiQTl3dlhXdFhPVTduMmFMMFgtdXd1SEExeXFXMzNrZ1ZJUlFhY3hWdWpUbEM1bHgzcFMzWWpYeUZHWFo0Z3BrSFlpZDVsTEl2MlBzNXdSZ1ZvVkFoUmNRYW51YkJ1VWdVR2djU1NlX2xKXzZV?oc=5) |
 | US high school students lose ground in math and reading, continuing yearslong decline - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQYXVNSmtzdkoyU2F3Zm1KNUx5LW5nUDFpSVplYlNQUjVqc1dWczNwZjlibW1ZLVlzU2pkdjZPTXJBQkdTblVab1FHYnF2dE9tVnUxcVN2ZTk0SHZ1bFNBMkdNYWgyUU92YlAwRlJOSGZzLWx2ZzJBSUNraExpV2FNdU1aYWhwNUZYSlg5ejZfakhYNUhRZUJXdXJzMA?oc=5) |
-| Missouri House Set to Vote on Map That Boosts Republicans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNbVNRdzJZZzdaVURtbEhBcXdQa3N0emFHUGxrU09KSjVHUTdBVDdkSXVoWEo4TVBtaDdPMXprYWRaYXNmcHBac3pqdUtqS29EdTRjakRBaHhnYUlZOVdjZkdHdTNOQmI2SzVkbnNIOUJmajBHalphUFJKNEI4TThFRWxjUmlSMUktclVubFFBSGZROXBCbHc?oc=5) |
-| Mamdani takes big lead in NYC mayoral race, new poll shows - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNZXhXekZxTVdJRlBxTzdZY0lRRFFrOHN1MkE0VnVHSEhHcVZaZFZmMkdWV2hzOFlGX1pIdDZDRjJzd082clBsc0l3UC00eDFCUERHeDBmZUUzMkFGNEQ1Zk1vUkRhR0NtcnhGNkZpWkVTUTJpSS11U2p2YW83Z2VFTDJRZUVhTnNmOTU0?oc=5) |
-| House GOP waiting on Trump for spending cues, Johnson says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOYXhQblBfb21YQ0N2ak5xSjNlTU42SmU0UDZzQzRSSG5tNDRnS3lWOUZ0eVd3aHRVVVl2S2xMU3pEeF9hMHFuTl9jSXl1eXR0RU5jUy1kRzZuMG9LSmt5dlA5VDhIeGVkaWVxTExlUG9wMUxSemtXS29taHRmRFo3WmRBV002bE9mdTlSSktoMC00UnRYd1laakIyS3BDTmRZa1Rj?oc=5) |
+| Missouri House is about to enact new US House maps that erase a Democratic seat - CNN | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE0zMnFkZFZ3d0VoZ09LMG1CUzltOHlFa205bHV3VDRYTWhncjZ6ZGI5a0JKOEJjNDN0d2xoc1ktcFhNSWRmYjk3aXZSM3hnTmJjYkI1d3Z4WDBOMGJkU2xYT2Mzdk1BRUU1MzZqazA5QQ?oc=5) |
+| Firefighters guard California sequoias as wildfire threatens ancient trees - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPZk5VR2REU1ZGWE5MaGhZWk05TlB6Yjc4Rm52aFhvQWhCTW8yc2M5TDdtSkthS0lIYU1SbTN2b0lIMzI5dEUzcUJhampnZ2tfb3J4M245RFNiWERyUjhRTzBVYjJSdl80dTZ2V29yUHR5YlJvY2RyLWpaYzR2U1hNYmh3OXJWNlRIRXRZX1BxbFJRWnliYVJLa2VoVzZWUVU?oc=5) |
+| Trump sends Congress his ‘anomaly’ wish list ahead of shutdown deadline - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPcHh6X3l0a2lHaUp6dVI5cGRlckpDREtCREROeXAtZkd5NVBDdUs0VmIxdlBFYTFJTGU2akpyZDJmcmEwa1pTUW5waC00QVZCdGlXUzdUdWdDZTFxZjZiOEI3QVJCLVNTVklUVEJ6UlVmN2k3bjYwTWgyTG9nSEEyaUI3OGZnTmJaRHp0U1RreU9iVUxoS05JQVVBNXFIMkVFY1E?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
