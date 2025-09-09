@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月09日 20:25:28（北京时间）**
+🕒 更新时间：**2025年09月09日 20:32:13（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Missouri Republicans advance plan to draw Rep. Cleaver into Republican-leaning seat - STLPR | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPQjhpay1VYU03N1J5RVk1WE5PZWppTXlPOGg4VnFTQlBhWWNqb1RDcUUyVVBkNEVPOTRxdGhqVldvQl8td2M2bkdJTDFzVVpfOHRQaW9uYnc2Z0ttZWNKYkt5N0VjNTdqd2xuOE5CbXNtVVVEQ1lLanJmUU5IRmxMclB2SUVQOVg4cUxqRXhmUUU5S3VGN2pLZU1hRUV1eTJXeVFPNEdmbUZGRldvZ0c0YnpSSkpFb0xNYWl3?oc=5) |
 | Workers say Korea Inc was warned about questionable US visas before Hyundai raid - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxNeHYzc09oYkttMkdWX0lad2psVmQzU2x0dTdyZDFPNzZTYXRoaG5pZGt3RzJNY3RNOVEyNE1MaEk1OWxQSm92akstQ3Y0eURwLVE5UW1UQS01YUhZa1hQSjEzU2NqR1BlZ2NXNFRoOVhOc283Vl9MUXRsdFBPT0pvVkY4eHZDMkJRVTctY3FCLUlybDd4VU5JRkhxZ3FnTXdwQUF1b2x3bmVRWldJYUhDbUl2UzBZU1BaVGZrVWI0WVlxU1c3MUY5TFJtLXJ1R2tDN25zVVlR?oc=5) |
 | Democrats pin their hopes on the courts in uphill redistricting fight - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNR0xQRGgxYjFZMXMwdTA4ekczb2ZnNGtjTW56VUNjRGJMRGxJTm1wajRpcmhfaXp0a0V2Ml9tR1U0VzZTVGRETHR4NkFXUkg4NFVKcDE2OURuVXZBX3JCeWVIM2EtX2NMM3FtWFhRSjdlY0N4RWpjTVJId3V4YTZIdlRxOEZzbUNCMS1qb3F3NEtndU5TMmpN?oc=5) |
-| Wealthy N.Y. Developers Call Meeting to Plot Mamdani’s Defeat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE90Z0swelN1LWdrVmlVWFZYSEt3b1BJMXIxTWFkUVUyc09oSy1hU01hckc5dTNtVTJwcXQ5WjZZLXMzSGlzenBzbm9wT1hRWEFKSDI1ODl0Sy1yaGtNRUJ4Uk9lcEtIaWc3S043Wmoxb1JfdGoxNHhoRVNjT2Q?oc=5) |
+| Supreme Court lifts limits on immigration raids in the Los Angeles area - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQdzRHVHVHSjJzYlUyQW5ENHRtSUlOVGx1Q1Ryc0ZEVkYydmpJbHZ5Wm9MSnduWWQ3VDR3dGJUeXJuSW5wVkNkbWNsYmNZMTNSRDR1SWphS29SdTFNREJBZnpFQmxJdHVCT1FfQmJGVFhNYWlucUIxX25VTjc2TGJEQmRWcVB5MXgzYmJZaTJFZlA1WGNNSVdTVk1iWG9tWlczY0VyR1ZTSHY4S1hYaWw1ZXlLUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
