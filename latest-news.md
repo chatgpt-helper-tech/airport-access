@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月09日 14:56:32（北京时间）**
+🕒 更新时间：**2025年09月09日 15:01:36（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | Best and worst-performing NHS Trusts in England named | [阅读全文](https://www.bbc.com/news/articles/cq8eqxlypv7o?at_medium=RSS&at_campaign=rss) |
 | France in fresh political crisis after MPs oust prime minister | [阅读全文](https://www.bbc.com/news/articles/c2dnxxekyezo?at_medium=RSS&at_campaign=rss) |
 | Graham Linehan: I don't regret my online posts | [阅读全文](https://www.bbc.com/news/articles/c7v13v3z6lgo?at_medium=RSS&at_campaign=rss) |
-| Millions of vapes still being thrown away despite disposables ban, says waste firm boss | [阅读全文](https://www.bbc.com/news/articles/c5y8563rjkdo?at_medium=RSS&at_campaign=rss) |
+| Disposable vape ban not working for us, says waste firm boss | [阅读全文](https://www.bbc.com/news/articles/c5y8563rjkdo?at_medium=RSS&at_campaign=rss) |
 | Ofsted to bring in 'report card' school inspections despite criticism | [阅读全文](https://www.bbc.com/news/articles/cx2jnlj3e0yo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -25,10 +25,10 @@
 |--------|-------------|
 | Mandelson 'called Epstein best pal' in birthday message - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFA3ZTZoTnlSaDQ5eng4dm8yVmpXYlBtOHZhR2FCWUhwZUxwMGlmdlBDTW5uM3lPWVhzQXNTU2htdnJrcEVrYUI0YW1KZnVMMi1tTWtCN3hxdkVvQdIBX0FVX3lxTE1GQ1pjZjZpeTJ2OGZ5WndUSlNyWExnMnpzc2RJTmhab0VQTkQ4ZjJoV3VoNnBoXzRYYTdhUGZ1ZkdqLTlBR3FPQ2RMd1pUbkd1aUFqLWRDRnhlV3V5SU5j?oc=5) |
 | Supreme Court lifts limits on immigration raids in the Los Angeles area - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQdzRHVHVHSjJzYlUyQW5ENHRtSUlOVGx1Q1Ryc0ZEVkYydmpJbHZ5Wm9MSnduWWQ3VDR3dGJUeXJuSW5wVkNkbWNsYmNZMTNSRDR1SWphS29SdTFNREJBZnpFQmxJdHVCT1FfQmJGVFhNYWlucUIxX25VTjc2TGJEQmRWcVB5MXgzYmJZaTJFZlA1WGNNSVdTVk1iWG9tWlczY0VyR1ZTSHY4S1hYaWw1ZXlLUQ?oc=5) |
-| Nepal lifts social media ban after anti-corruption protests leave 19 dead, curfew imposed - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxPY1JrTklZN2pUZlVSYnIxRDM3ZXI0LVo0RVROd0Jrcld2NVF5ajhhbmlYbnhYWUR6VFVlLWl3ZFZLU1ZCUFVlQzJkUEw2cVpldkJzaVdIcTZPUzZvdEhCaTFHajN1bGFMMm02c2QzUzVPbERMVF9teDQxaGhQOXFlR2JIMlNxLVNxZ19IS0JBaTJyQ1ZCUE9IalhpdlZPMTVWMHczSTFHVnByRFp6MUNXbXE3WUlRUmk3U1BzNy05XzVtakRxb2J2NFRUY3lGeUpj?oc=5) |
+| Nepal lifts social media ban after protests leave 19 dead, minister says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNT3docm1wd1kzaTY3Um10VF96b1FjSzJtSUpGYV81MEJPN083QVR6M0ZnTWkxTWd6SklvNWJZZS1Nekc0eEFHY2pZOVhHR252YjlKOFVRR05LVHBRSWVkT3czV3hiVm84VmlvX1paT1ZMVVBXcmJTSXFrZjFnQkliOC1TM2gxS2VDb2hYMlk4b3EwamFPejc1VDlPUkwyZGJEdC1pb3FUM2NSV2k0eFF6Skg0c0l4UXBNbnF0b04yeHE3R3U2?oc=5) |
 | Attorney says detained Korean Hyundai workers had special skills for short-term jobs - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxOd2VsczFSQVY5ckNNR2ZRbmlRZkh6RjdNdXU3Nks2ZmVqaTduaGMwWFBCRVpNUk9wNVd5M3RtMnBjdlFjcVdGYXZlN2JpM1FORDBrMjJEVmxSY2RZUDNKTnF5MG5CbDRkamRZQVFFQ1pBUVhzSmo4NTVLQnQ4WnpWMFZMNm14RUhCRkdsSmFLcjJIcWE4UE5RSHFpYjdyZ01LNHdFWFhpLVlLR2duTDU4NnZGOTJrQm4zdFd3cdIBwgFBVV95cUxPSzhpLWl5eUY3ZGFyOTg0MzZGRm03NDI1U3FabmlNb3kwTFNVMVdpbUl1TFFaLWdDbVNmbXFEaC1oRXhHT1FfVDloNzhfQkV2NFdSYmJmNU0zN18tSXNWcUZzNFJpVFF1OGhQOFdWVkhmYVM2STZCb01YZ0Z0TW9uYzZtNG5jV3h3X3RNODJDUjR5enZQRzgyU0dZSmwwbHJMTkdhbXhTNi1WdmN0OU5GZXNxN2lBM1UzV1Bjc2NBRGVCdw?oc=5) |
+| Oversight Committee Releases Records Provided by the Epstein Estate, Chairman Comer Provides Statement - House.gov | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxQV281cEJRZHBwY0xqN2lTOS1Tcy00RmUwVjdoS1hnd0ktZVFQLUdtT0FwRjRqYzllQmNoSmEySjZCZnk2dE91bjRkb0szMUpmSWx5cjduNWNJS1oyZ3dpWlREVThuMzBFMEduemRNVldOaU51MTlJUFQyOXRlVDBOMGtkSGR2eXN5RmctTXBFckl3d1hhRmNSN09nemxqRXMzZXFnUm9HTTdLaFhKdDVrM3hoZUhwN19ld01PTjVmM0VXOU01WjJkYzlMa3hvNHhodWZOUg?oc=5) |
 | Thailand’s top court orders former prime minister Thaksin Shinawatra to spend one year in jail - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQa0c5RmkwU3NIU0pSd0VJMnI3elVXaWEzcHdha1VGd1k5cENGUmh3N3NEdngtbUpkemRUaFpScUxQMGxqVGdzVTkxNkJJcWZXNnJSc3YxSC1qVkUzRzVZdE5mMHNkNDVQd0FsUlQ5QkpIcWF0U19EbGlyNWJoRUk0b0ladmlwMzBEVXEyY1BQYTh1dw?oc=5) |
-| House panel releases birthday book and other records from Epstein estate - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPYWtsR2xIUW1aaVE0QkVDVUF1VkdodnFHTC1nY2xBdnUydlh2WUFoYjdKLVh2WGhBemJQSUI0ZWJwLWJoV0hEUUxpZzlIQU15TmFXcE5KaThDQVg2clBZM0tyaTlzOTJac3Z2R2pHRmhxaUZpUlA3Qm5EYUViRHVQMWVfYw?oc=5) |
 | Fatal stabbing of Ukrainian refugee in North Carolina ignites crime debate - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9NRUhTdEJtYUF2MWNaU1pvM3ZYZXdHREphR3BiZEgyXy1aeHd5aldtN0hhRHhrZ0xobXBsQWNTRUF0aHZQRXBkWmpsOWViWE1fZTdUbDNjaHpfZ9IBX0FVX3lxTE4xSUtYeUtkWnJvRzhqUUNyc3A4aVpxNEF0WEtOM0o0OG81SmZYWVQwMTFRRS12b2RvOURjTi1XSk9GUHhwZXJHdUd5a0lWN0VURnQ4WE16THlTY08tcXN3?oc=5) |
 | 12th Grade Reading Skills Hit a New Low - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPWUl3OFR5QmhOZHJxN2hqUG1LUjNETm5ES2lLNWhheFZUSlpEUEwxNFN1Vm1MSkpmTG9rNEZYZnE5NnNtc2thdV9jNjN1UDVJanNpeGNhaGV6clZHX0l2dElhbWg0MF9VLWd5dXM5bEFpZnZWZmppNUFKTGtxME5pM2kwVQ?oc=5) |
 | ICE launches ‘Operation Midway Blitz’ targeting immigrants in Chicago - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOZE5ycUppbE1ZUlA5UVotLUVTRkZza0szV3J0eHF4Um1nOGVpVktxbDZKQ0g2OVlFRjBCcE0zNHhuc0xTVWRTc2d3MEhKQUZpN2RfR0tFTDFBZXlEaFoyT3pJLThLcTg0QjNWLXgwMEFKVXlRVWZLdGYzSXpMczNNQkxCcDRCUzhfNUlCQUtB?oc=5) |
