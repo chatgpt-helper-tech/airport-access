@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 04:56:57（北京时间）**
+🕒 更新时间：**2025年09月10日 05:00:53（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Supreme Court to hear arguments over Trump’s ‘Liberation Day’ tariffs - CNN | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE9SUHFnZGZtb0lYTzBGVlpKV2FfeDJsODJVNzk4cnFrZ2NEUVYtU2JVcFBVLThYZ1FwSDN4VzM0Sm80WU4xMGVfWmMxTEVjLWc1c2k0SGVDT2xmc1EtaVRocWcyblpRa2ppODRaS0JR?oc=5) |
 | Mamdani Holds Huge Lead in Mayor’s Race, Times/Siena Poll Finds - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1XaGZtSlVZQ0U4blVlZXMydFJ1elJucXhfMmw1Y3lBLUZqVDBQUndSSVh0OVRMbHNpenVXbUVxeU9ORXF0LWlkeWZ0YVpmUWozbkpNMU1USF9YdXVSa0FabkEzdlhuR21tbURDMUdtTGJYYkROS01nd2FHamtWZw?oc=5) |
 | Missouri House approves new US House maps that seek to erase a Democratic seat - CNN | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE0zMnFkZFZ3d0VoZ09LMG1CUzltOHlFa205bHV3VDRYTWhncjZ6ZGI5a0JKOEJjNDN0d2xoc1ktcFhNSWRmYjk3aXZSM3hnTmJjYkI1d3Z4WDBOMGJkU2xYT2Mzdk1BRUU1MzZqazA5QQ?oc=5) |
-| Supreme Court temporarily allows Trump to pause billions in foreign aid - CNN | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOS29SQWtVcDFTalk5YXVsb0daQ2gyY3pNWEZleVB5cXlENGd0c1hDNVJDZUZibzhOUUVQYUd2VTdKdU9RNWk0QmxsdlV0XzNwUXFyRTQyUjRrRzNTZ3RQX0xLTXRTYXc3b2ZaU3RSSXg3ZjRSTV9hc1h5WGZQdTVYOVEzZmNkWDZyUHFwTVdkVjBqUVlQMHUwTzRianZlWkR5d193NFFnZ1V6a0RmeWdqaA?oc=5) |
+| US high school students lose ground in math and reading, continuing yearslong decline - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQYXVNSmtzdkoyU2F3Zm1KNUx5LW5nUDFpSVplYlNQUjVqc1dWczNwZjlibW1ZLVlzU2pkdjZPTXJBQkdTblVab1FHYnF2dE9tVnUxcVN2ZTk0SHZ1bFNBMkdNYWgyUU92YlAwRlJOSGZzLWx2ZzJBSUNraExpV2FNdU1aYWhwNUZYSlg5ejZfakhYNUhRZUJXdXJzMA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
