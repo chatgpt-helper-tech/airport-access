@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月09日 19:49:35（北京时间）**
+🕒 更新时间：**2025年09月09日 19:57:55（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | How the lives of a Ukrainian refugee and a Charlotte man with a criminal history converged in a fatal stabbing - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPZXRRWTV6RUc3R0NSNWFRVEhXMWZSTjZyUDlTZWlUcXJHbXJyN1NEWjVmSlRSd2FUZmplUTdFNHRpaGJWSlBHcjg2U2x4aTM0Rml1XzRnNC1aRVcwc2FCaVdXZEY1andvQnFMWGRvWVdlRG9PZFdXRUt1MkYyQW1SMg?oc=5) |
 | Workers say Korea Inc was warned about questionable US visas before Hyundai raid - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxNeHYzc09oYkttMkdWX0lad2psVmQzU2x0dTdyZDFPNzZTYXRoaG5pZGt3RzJNY3RNOVEyNE1MaEk1OWxQSm92akstQ3Y0eURwLVE5UW1UQS01YUhZa1hQSjEzU2NqR1BlZ2NXNFRoOVhOc283Vl9MUXRsdFBPT0pvVkY4eHZDMkJRVTctY3FCLUlybDd4VU5JRkhxZ3FnTXdwQUF1b2x3bmVRWldJYUhDbUl2UzBZU1BaVGZrVWI0WVlxU1c3MUY5TFJtLXJ1R2tDN25zVVlR?oc=5) |
 | Wealthy N.Y. Developers Call Meeting to Plot Mamdani’s Defeat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE90Z0swelN1LWdrVmlVWFZYSEt3b1BJMXIxTWFkUVUyc09oSy1hU01hckc5dTNtVTJwcXQ5WjZZLXMzSGlzenBzbm9wT1hRWEFKSDI1ODl0Sy1yaGtNRUJ4Uk9lcEtIaWc3S043Wmoxb1JfdGoxNHhoRVNjT2Q?oc=5) |
-| Firefighters Race to Save a Treasured Sequoia Grove in California - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNUTJGeGgyQUpnWjBNdmJuWlhteFpCTmc3ZHlhSnJQMWo4NzNUZTBraUkzV0pEMFUzd1R0MEhMX1Q4ZnpacUdXWW5GNFJvMHlHcmtTTmNTUmxnN3BXZWxJMS1QQWhqYjVLdEg3RXNUcFFHSzJIcWV1SFlLMXJkUjVLMXBn?oc=5) |
+| Democrats pin their hopes on the courts in uphill redistricting fight - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNR0xQRGgxYjFZMXMwdTA4ekczb2ZnNGtjTW56VUNjRGJMRGxJTm1wajRpcmhfaXp0a0V2Ml9tR1U0VzZTVGRETHR4NkFXUkg4NFVKcDE2OURuVXZBX3JCeWVIM2EtX2NMM3FtWFhRSjdlY0N4RWpjTVJId3V4YTZIdlRxOEZzbUNCMS1qb3F3NEtndU5TMmpN?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
