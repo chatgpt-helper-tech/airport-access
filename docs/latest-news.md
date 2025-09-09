@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月09日 09:48:16（北京时间）**
+🕒 更新时间：**2025年09月09日 09:56:34（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Jury selection begins in case of man who allegedly tried to kill Trump on golf course - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOaENCUzFBSm5OdjBRUU1fS1hmQ2IzUDVNTUN4LU5pWEZnd3ZDLXhWc0xBeFl2anU1THdZRVdwQWlzZEZVazRhQTBOWG95SGEzcFpvY1NyRk1KdldTb1lHNVZrYkcxOHFocEliUXhhWGZmWE1raFF4bHJzS1lsMmYwMzZidGRueUExOWtFU1VRS3NrZ1Y00gGaAUFVX3lxTE14anhMV1JmYTBxOXhLckNYX1JUdk4wVWlHbVNSNjc0UU9wdmhvZC1SVnFhcmlTdnk2ZC1NTkx4ZDhXX1JQamJpVzNvRGF4UHhRdVJvUGNCUjZWQTVxcDBlZ2dHY2dPa2Q1WVRoVklxcXV1cGhmZ3pWdFVFdmdFSTJKSUd5SFZkdHhaY2REY29xVDRnQ2N2dDJ1Tmc?oc=5) |
 | Speaker Johnson says he misspoke about Trump being an FBI informant in the Epstein case - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxNOVJnaERhME1YN1NINTIwaU9WejZlZ2pMMmluQ2JZQkJzZ3VENlNuTkctWkhLdnJ6aHY2TWVENW14bGtiYzBFa3Zob3FjUzNpcUM0OHRKQ25lS1ZWTWxMRDFva1ZqWlh4eUY4SEE1OC1LU3JVeGJVd0pjb0ZYWEczX1NmZTBWY21uUV9HVkctM2s2eTJyS2RLLTFRT0MtNUhFVWFWRFNVUnVuMnAzaXRiNUlEVTF3VUJxbW1oQjM0X0szTWvSAcgBQVVfeXFMTXlwVGVDU2xZUXJRVlFaTW02SGY0Sl9qODNRSkhUTEJzb2ZoM1MzWXZ2Nm1fV1duaUhTSWFEd1EyamlNS1dwMHpqdzRhS0s4Q3MxWDlIc2JLMTJHcGNQVGFQQXNhWlVjdEhRYWl5UWJHSUhHdmZvNW5aWGk1V3ppcGswTmV2TTVXV3RiRVcxcTBUZzQ4VXg5NjJLZ2wtWXN4VlFrZmpEd0pTY2xYY2ZaUFRwX1ZlNElMY1NWbFBvLW03clNHSUdadFI?oc=5) |
 | Vance post on boat strike ‘really ticked me off,’ Rand Paul says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNSm1GenRIOWhXZmM5NGJKZ0FqVDFZUjRIU0NoTVkxSFJYalZOQ1lFQmk4YlpkTFEyQ1hLM3pFUU84alhVZ2ltZGtsLVRGelNVVDZ1VllxZ1F2VTdWc2lDSHh0ZDlvOXdHMVVoZmdwRWhQdGtTc09fdGk5SW9NSUNpYXBxVk5FRHVCRzFUczhJYVM0LXhNb1V1aWc2a25YUQ?oc=5) |
-| Thune says Senate will change the rules to push through Trump’s blocked nominees - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNMnBpU1RFZkFQV29NcFlGamZ6cW1SQXYtRDhwM3g5OFZicU5tTk5WQnZwXzBSdlFLeG1ZbXlPOTVNSVliMnZ0MzVRanEtLVVVWHFKM3dqSEtIcWxORFVxaGR6d3lnTlhTQ2N5N1BqZWtkbld6c1ZzU3Z5WmJSWEFJeGRyVlc4Zldvc0l4NWNGbTF6Q1F1ZEozZjhLQ0JOc0ZhVnFyV3Rn?oc=5) |
+| Florida surgeon general says decision to end school vaccine requirements wasn't based on data - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOX3A1OGk3MTJMZGU5d1NONTV3Z1cyalVTU0pxbWp4dWxwUkJ1X2pVenp5N1B1SmY3bnZ4WXRwVks1SnRJanFOZm5nbVJnNDMzVjZfcDlrZmp5bXhDNXBmc2U0ZG9mWS0wQ2IyelIyZUNia1B1dzhtSjNwOHo4bmhYMVhtUnprdHNl0gGOAUFVX3lxTE9oY1IwdkF3WXh5djl4RXlaZXBmNV8xcFJUbGpwSk9BZWlsekJWQk1kcTFoczhNNW52eHRUdjRyd2NWNlJUUER6SW5wTjNRUl9HMzhkS2pXUkE2TkMzaHBBR3c4ZDJNbjVSd0pPMHV5VXdpeFBVZlo0elg3UU40Qkx6Q3NZQjlVeXBrc005TUE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
