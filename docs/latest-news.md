@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月09日 22:56:08（北京时间）**
+🕒 更新时间：**2025年09月09日 23:00:23（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | President Donald Trump’s administration announces immigration ‘blitz’ beginning in Chicago - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxOeV9WU3hUTkVoVjhNU3Z0MTBJTVU1VjYySUM0S0xZWk5tVDBZLXlZUjFLVjhZZ0c0N3h6ZmNsTF9SWUhZOFNWUFF2OVAxRk92SVdwVHFOdkJGR1E2OWxpVC1CYmxzVFBnc2d0Tmp4cmpUMmdCbE5MVWplSkozRE0wZ1dhNVJpN29Cd2F0bXp4RW15S2FmSzBleDlhYWtvTUtwNnZUbmFwRjdwNDVUbnhtaU1pTllxOFEwTFdKY1dQdHc2T0QzWU5ydg?oc=5) |
 | Attorney says detained Korean Hyundai workers had special skills for short-term jobs - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxOd2VsczFSQVY5ckNNR2ZRbmlRZkh6RjdNdXU3Nks2ZmVqaTduaGMwWFBCRVpNUk9wNVd5M3RtMnBjdlFjcVdGYXZlN2JpM1FORDBrMjJEVmxSY2RZUDNKTnF5MG5CbDRkamRZQVFFQ1pBUVhzSmo4NTVLQnQ4WnpWMFZMNm14RUhCRkdsSmFLcjJIcWE4UE5RSHFpYjdyZ01LNHdFWFhpLVlLR2duTDU4NnZGOTJrQm4zdFd3cdIBwgFBVV95cUxPSzhpLWl5eUY3ZGFyOTg0MzZGRm03NDI1U3FabmlNb3kwTFNVMVdpbUl1TFFaLWdDbVNmbXFEaC1oRXhHT1FfVDloNzhfQkV2NFdSYmJmNU0zN18tSXNWcUZzNFJpVFF1OGhQOFdWVkhmYVM2STZCb01YZ0Z0TW9uYzZtNG5jV3h3X3RNODJDUjR5enZQRzgyU0dZSmwwbHJMTkdhbXhTNi1WdmN0OU5GZXNxN2lBM1UzV1Bjc2NBRGVCdw?oc=5) |
 | Missouri House is about to enact new US House maps that erase a Democratic seat - CNN | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE0zMnFkZFZ3d0VoZ09LMG1CUzltOHlFa205bHV3VDRYTWhncjZ6ZGI5a0JKOEJjNDN0d2xoc1ktcFhNSWRmYjk3aXZSM3hnTmJjYkI1d3Z4WDBOMGJkU2xYT2Mzdk1BRUU1MzZqazA5QQ?oc=5) |
+| Michigan 'fake electors' will not face a criminal trial, judge rules - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOMjBkWHZrR2NqcHNVci05WktZaDVaRDJzWThVbWQzcGw1cEdyNjhwY0dvcG1pZ0NNaDdZdl9tRkYwSjJUUE1QTW9oT0w4b2RmVlhsRTlhMm05LXJZTEJCblZtbkRtNlZGTEloUGFmdFVjV19aUUlfR25BUU9zSUlsZjY3bWN5dlVmMjZCRjhMVm5qWm1nbVd1aTc1SzRjZ2NjdElPdXUtWVpFZ21HQnJCbVNfTXdHYWZyeVMtMmdB0gFWQVVfeXFMTjJ3QkNoT3d0b3BiZXdzVTFwZmtJRmVQdF9qenptYXF0VXRtbTB2OGt6Z2t1OTVMaVJDblFRMGhQeGRicG4yNkZjaW1pX1p3MnRDc2tRU2c?oc=5) |
 | Fatal stabbing of Ukrainian refugee in North Carolina ignites crime debate - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9NRUhTdEJtYUF2MWNaU1pvM3ZYZXdHREphR3BiZEgyXy1aeHd5aldtN0hhRHhrZ0xobXBsQWNTRUF0aHZQRXBkWmpsOWViWE1fZTdUbDNjaHpfZ9IBX0FVX3lxTE4xSUtYeUtkWnJvRzhqUUNyc3A4aVpxNEF0WEtOM0o0OG81SmZYWVQwMTFRRS12b2RvOURjTi1XSk9GUHhwZXJHdUd5a0lWN0VURnQ4WE16THlTY08tcXN3?oc=5) |
 | Wealthy New York Developers Hold Meeting to Plot Mamdani’s Defeat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE90Z0swelN1LWdrVmlVWFZYSEt3b1BJMXIxTWFkUVUyc09oSy1hU01hckc5dTNtVTJwcXQ5WjZZLXMzSGlzenBzbm9wT1hRWEFKSDI1ODl0Sy1yaGtNRUJ4Uk9lcEtIaWc3S043Wmoxb1JfdGoxNHhoRVNjT2Q?oc=5) |
-| Democrats pin their hopes on the courts in uphill redistricting fight - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNR0xQRGgxYjFZMXMwdTA4ekczb2ZnNGtjTW56VUNjRGJMRGxJTm1wajRpcmhfaXp0a0V2Ml9tR1U0VzZTVGRETHR4NkFXUkg4NFVKcDE2OURuVXZBX3JCeWVIM2EtX2NMM3FtWFhRSjdlY0N4RWpjTVJId3V4YTZIdlRxOEZzbUNCMS1qb3F3NEtndU5TMmpN?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
