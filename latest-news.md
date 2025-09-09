@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 06:33:01（北京时间）**
+🕒 更新时间：**2025年09月10日 06:41:27（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Qatar strikes: What we know of Israel's attack on Hamas leaders in Doha - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1iLWZodTRUZ0VBeXo3R0FrTnJScEJJVHlveXRDSXlyYjE5S0NXZUttYjlFejYxS2poa2kwaXg4NDlldFd5Nm0wWEE1OC1tTnpBZGFNN0doMmNiQQ?oc=5) |
+| Trump "feels very badly" about location of Israeli's Doha strike: WH press secretary - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQUU9FOFNhemNveWM2dWZwU3Q5MXpNN1hUalRKVzRUT2xSUjZYOWh6OXJDQldlV21XaTRuLTRtVlZOXzZ2TU9wNEJGa2Rkb0tVa2NYbEd6WTQwd3pqd2lzaS1ZTmV2NkNrT1Nyb3JBUkM4eEhuaTFGZ0I1NDNQb1NSVWR3VzVxQQ?oc=5) |
 | 'It's a dead issue': Trump declines to comment on alleged Epstein 'birthday book' letter - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxONFc4SVgtbmJjc0QwZ2NTNWd6bzhFUUxGMURMd3BqNzdGZlJMR3lZYXJhRUdGQk5CWnBNMFgtSGR2c0l1VjZLNVQ5eTUyMWVFdzc4TUhSRDZ4YlNfVkc4Y0VIdXQ5ejJFc1VBSnRwYXBTS1c0azN0YW1fZlV6OGxBUlBsUGFuTjZSN09oX0g3aUc0NjlCeXlwUDlReVRtWTBMYktyVmJLc2pMVzlCLVHSAbMBQVVfeXFMUFUyUU9ER1NrN1FLTWhRazV5akpxZ05SY0tpVFBtaFhDQy1QT1ZFUXNIVE9NbDFQa2I0SEtFaHlDVGFDNzdDLXBNQlV3a3FxVmdQaFU0TFR4aVlYeVlqemRwQ1VFQk5PZnpJQ3BHMHVDYUFhUGt0R1NRZUZmUmNIemdUdWhaRTliSHBTcUVIVWFNTndBYnEzd2xsRUJGLVpNb3pTdHgzelhMQ3E2ODZfOGJnNlU?oc=5) |
 | Supreme Court takes up legal battle over Trump tariffs, setting stage for major showdown - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE5SajNJcHd6c1NvMENkMVU4SWFvdUU2aFdhRGN4TEVzWWxPTnh3d2Nab1JEYjhudjJVR3R5NmFVVWJtSFBQVGRfcldnOEdQVXdLZ1hNUVlxd2NkYWViQTlSR0NGR05BcE9uSHlrYUM0RdIBdEFVX3lxTFB5d25Qako4MmhFd25kTThJTkROVkYtVnNrOUhvMFJHZmRxLVRfdUhNS2c3bWtkeHdvUTRlOVlqcHNmVjZuTm8tUDNNSmd5WXBuRWwwLUFuRnRvekZjUGRYeWZ6bFo2NFRoSlNLOXRWdEozSThX?oc=5) |
 | Man faces a federal charge in the fatal stabbing of Ukrainian refugee on a Charlotte train - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNSzhFblVKYXpreW5QLU9yVER5QXcyVEJZYnJ2dmF2NFdpWnFGX0FHcG9IRmlLMEtaZDg0WXkwX1JuVjhyMW9VVVE0T3hUM1E1WkE4UjRkMVhXcFFMN3BIVUpnRlYyUEI3eTdXOEZYbmtudGlGUDRaZEtWbFp4b1NodzVHNk9OUUli?oc=5) |
