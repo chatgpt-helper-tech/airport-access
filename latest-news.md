@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月09日 12:01:37（北京时间）**
+🕒 更新时间：**2025年09月09日 12:09:39（北京时间）**
 
 ---
 
@@ -29,7 +29,7 @@
 | Trump trade, immigration agendas collide in Hyundai raid - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOcWFRMHQ2dWlQTnBNQTRqRlloRm9kM0lpQ0ZfaWFha0toeXB3aktBQ3E0VVBQSlNUNmZiSS1KRm5KWWw1UVpxcXRWSjZqdmozdDMwOHFIZFVxQjRyZE9GOXd0d0x0Ri05aUFiSl80QUFRTjVQQ0JOWnNsMVdEcDBSOHVLUHRJTEVYckRSNTEyWXRnYkJmNXZ0NVpLQ0RhWGpVMVJXbHJCUdIBVkFVX3lxTE1UbVdCZThtOFc0SVV5R0lOZTNVYkpRUVhleUdQMkl5cndJenlMdUdVOFh0MHdGNkhud2hTM1ZCTVN5d0xnRTl4TDRCdU5pemEyQUd0RmVB?oc=5) |
 | Fatal stabbing of Ukrainian refugee in North Carolina ignites crime debate - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9NRUhTdEJtYUF2MWNaU1pvM3ZYZXdHREphR3BiZEgyXy1aeHd5aldtN0hhRHhrZ0xobXBsQWNTRUF0aHZQRXBkWmpsOWViWE1fZTdUbDNjaHpfZ9IBX0FVX3lxTE4xSUtYeUtkWnJvRzhqUUNyc3A4aVpxNEF0WEtOM0o0OG81SmZYWVQwMTFRRS12b2RvOURjTi1XSk9GUHhwZXJHdUd5a0lWN0VURnQ4WE16THlTY08tcXN3?oc=5) |
 | Government downfall tests Macron like never before - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNSUVOM3cxWkF1XzNQeWdtN0UtVmJETXZFcEFWcmtaZ0ZMcDdfV3kwcm1ZUU1PYTNRcjJyMHJGeS1vSFZKbEtiMFBoN250V2FOUnlTQ3JOV2EtdnRFaGRvTGZabGR0cFpWa0pFOEZENU5rQ3FtT3BLUjN1a29fcWQ5Z1hkR3lyRWdMUHhWMWM0bVFHUTFKUFpwY0VoY2E0ZU5GcmJjLWRaOHRXdkpfY2hSVFd0dlVJdw?oc=5) |
-| Trial Begins for Ryan Routh, Man Charged in Trump Assassination Attempt in Florida - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPaHlLYl9hU2hsendXYmkybTZUZmRlMTU1Nkg5TjFWN0VUQ2ZzQWxndm5qd1E1RmluNHdaUmxud2hlNV80WkRyejZwU1J6cEd3dFQ3ZmltLWpEVHdSa1lTekdIM2tpclpaM2tfLWNLVEFuaWJiRVBZVGJfbjYtQkYwVENxTDRhU2wyTWhFclZhN1Q?oc=5) |
+| Ryan Routh trial begins for Trump assassination attempt - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBzS29zZ0tJekxpUWJNRHhwVm5aTTdFaVZ4YXhzUFNfUmJwN3ZHQTBHc1dnVjRmU0hUUVFKdGl2ME5SV1gyZXY4Q3prbmlkRWwwdWJlV0tVTzdPUQ?oc=5) |
 | Johnson says he didn’t use ‘right terminology’ in calling Trump an Epstein ‘informant‘ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQZkRoelMxVmtsLWRmenJDNlMzcG9EU1FiUS1neDZFdFBMTzhVMWhlYU1OMTNCQXBXTWRFOHRyZVpjR3FoeTRXRk9VS09OdkRkcUxTbF9Ja1VCME9BOFNCdmk5ejdWY3JfX041NTlQQ05pV1Z4RlhpZ2I3REZvbWp3NkR0R3hhV0dPQnhhbWFKdFlkX0lpcEw0djFDN1UwYTFWR00yWTNsY29WTHh4cmhF?oc=5) |
 | Venezuela Says ‘Everything’s Fair Game’ After US Attack on Boat - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOZWN5Z3MxV3VSb3pnamo5QVYwcFJnTHZUY21mZHowUWc4bl9GTFhrNXZXU3FxYUduUFZ1VmlQdjFjTGN4RklQanZ5eGdWanJ2Y2VIc3V2UEN6TWdvcm1vNkRuNlJwRzNuLVNkTFhRQkd1eU9GRzVyajhnQS1IWDlENmx5TlV0R2dNVWdvdGVpNng0TTNWNEZoNms0dEJmNUs2d3BCYmZXSWptRzQ3Sm9Xc0Fn?oc=5) |
 | 'We'd love to go into Chicago,' Trump says after controversy over 'war' meme - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNbXFVNEpOR3lmQ1pfTV93SHpBVnRaUkpGUWJvTG9URVhqQTFMUy1qTGhodS1UY3FhdWV1bU1INFluakppeUpURWhNdkxCS1lCLTNWZlp5Z2xYU2FXNFlmRnN3VUdVR0lESXNMZkRjWHFwR3pQZTdnNW5jTFo3bEFWaDUyVmVwdG43LWJ1YjBqNUd0T1FzM1ZteWp3VXI1NmQ0TEHSAacBQVVfeXFMUFBLU1BCMWVhVlV5OTdISWRPZEIxYVhtSmtyWXlGdmVKMkN3dlFSY3ROdU9TUTRSdkxGT2RUZm9BdGNVYkN0aWxDMmRQdXd2UkY3WnJmYXdMYUNzd3pRdDhLcHNiYW5uZ0ZndVkzeVVWdG9IN1A4WUJ3ZTJ5LTR0S1hacURCSzZlUHhGaEpETHEyTVBuZUxoRUh6UVhVOTJsMFRTc0Q2dkU?oc=5) |
