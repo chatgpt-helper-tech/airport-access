@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 01:00:14（北京时间）**
+🕒 更新时间：**2025年09月10日 01:08:48（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Michigan judge tosses case against 15 accused fake electors for President Donald Trump in 2020 - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPcWtzZFpObjJUSWoyYjBOMHBzbFFDVFVJTGxwa2gtcVB3dTdFZDFnTFVVTkpJcDdSbG9XbnBkOFczTWV2Y3RaOW80SG5QbWZGQ2NvazI4ZnVQZWRIc0hNMVBxM2NoX2d1Mm5ZdjJ4SDI0TjNzVmlYd3pPN1dFMFFPYkgtRzktSHoxbi1fTk5LWG1YUU0wbDVkRTZWOFN5YkhXNGc?oc=5) |
 | Missouri House Set to Vote on Map That Boosts Republicans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNbVNRdzJZZzdaVURtbEhBcXdQa3N0emFHUGxrU09KSjVHUTdBVDdkSXVoWEo4TVBtaDdPMXprYWRaYXNmcHBac3pqdUtqS29EdTRjakRBaHhnYUlZOVdjZkdHdTNOQmI2SzVkbnNIOUJmajBHalphUFJKNEI4TThFRWxjUmlSMUktclVubFFBSGZROXBCbHc?oc=5) |
 | Over 600 people arrested in operations targeting Sinaloa drug cartel, DEA says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE4xYl9kZ3V2ZFBjQUlJczlxX1BtOWhqWURiTU9TXzE0blBOZzk1ZW5oUG5ic29SUGItbmRoTWRZWS1XN2dUZlJzd1UtVlU0SWJURGgyWVliNTRXTHJqX1JaV0JKdHhnR1pCTVExeGlScmpoY1A5cDlocURkQ2TSAYIBQVVfeXFMT1o0RlBSWWhaQy1WSmp6dkNqZURCX1prZUd6SzZ1NzczakdJSTRKLS1BMjZfSFVyclZxOHlRUEx4MTRyeFJ6cEFrVG12eU9OR3BZdDlHNUVhUzJKSnFQTkpPV1llODdnWG5TVkVqcDdObDhsajFrdkpydE8zdWNXX25qQQ?oc=5) |
-| Firefighters guard California sequoias as wildfire threatens ancient trees - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPZk5VR2REU1ZGWE5MaGhZWk05TlB6Yjc4Rm52aFhvQWhCTW8yc2M5TDdtSkthS0lIYU1SbTN2b0lIMzI5dEUzcUJhampnZ2tfb3J4M245RFNiWERyUjhRTzBVYjJSdl80dTZ2V29yUHR5YlJvY2RyLWpaYzR2U1hNYmh3OXJWNlRIRXRZX1BxbFJRWnliYVJLa2VoVzZWUVU?oc=5) |
+| House GOP waiting on Trump for spending cues, Johnson says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOYXhQblBfb21YQ0N2ak5xSjNlTU42SmU0UDZzQzRSSG5tNDRnS3lWOUZ0eVd3aHRVVVl2S2xMU3pEeF9hMHFuTl9jSXl1eXR0RU5jUy1kRzZuMG9LSmt5dlA5VDhIeGVkaWVxTExlUG9wMUxSemtXS29taHRmRFo3WmRBV002bE9mdTlSSktoMC00UnRYd1laakIyS3BDTmRZa1Rj?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
