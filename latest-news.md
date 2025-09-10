@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 19:08:29（北京时间）**
+🕒 更新时间：**2025年09月10日 19:16:36（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | TV presenter Jay Blades denies rape charges | [阅读全文](https://www.bbc.com/news/articles/c9318dj1q22o?at_medium=RSS&at_campaign=rss) |
 | US influencer investigated over wild croc wrestling videos | [阅读全文](https://www.bbc.com/news/articles/cn953l9e3gjo?at_medium=RSS&at_campaign=rss) |
 | Police should stop logging non-crime hate incidents, watchdog says | [阅读全文](https://www.bbc.com/news/articles/c0kn54vj55xo?at_medium=RSS&at_campaign=rss) |
-| Bowen: Diplomacy in ruins after Israel strikes Hamas leaders in Qatar | [阅读全文](https://www.bbc.com/news/articles/cm2zepgp5neo?at_medium=RSS&at_campaign=rss) |
-| CCTV captures moment of attack in Doha | [阅读全文](https://www.bbc.com/news/videos/c1dq39204wro?at_medium=RSS&at_campaign=rss) |
+| Jeremy Bowen: Diplomacy in ruins after Doha strike | [阅读全文](https://www.bbc.com/news/articles/cm2zepgp5neo?at_medium=RSS&at_campaign=rss) |
+| CCTV captures moment of attack | [阅读全文](https://www.bbc.com/news/videos/c1dq39204wro?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -27,8 +27,8 @@
 | NATO member Poland's military says it shot down Russian drones in its airspace - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOUFd1dlpHZ1BCMWNTYU84TVNLOHFnM0I2NjcwN0JJQnExNmxONzJNZldXVnpjX0FmUHhRSHpFdGJWN3BRcTJQa29PMEVQbVpvemNIdWtoMU5Oa1dUY1QwU1JiUGZreXV3OFVIc3BrS3pGNk9UanZucWtVSnkwT0VSejdzMlY?oc=5) |
 | Army tries to restore order in Nepal after protest violence intensifies - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOdGhCM2tTNjhMbllfdTd3WkU1NEtIdEE2RHZRamtNUUR0LWk1b1AxZkZyUVJYU3cxU0NyaVIwa1JldnJ5blJ1cEtfdXpTQ3MxRHU4TW1nbjNYSHJOZWJDMXlMZ1JXcnlIZDNkTnJ1aDQ3TVVPX1BoTm5ianpLMFZrUEdwQ3EyS1BTSWUtZDAwNkVmZ291QXl6MmpJRFE4bDQxX1J0b2lCR3lIc0MyVHBXQWtoVUpIdENpM2NrNk93?oc=5) |
 | Suspect in stabbing of Ukrainian woman in North Carolina charged with federal crime - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQbnhLaGRvSkZGRFBQVlJzVFJLV0xYazhHUFJDdEdrR3hyRjM4SFozV244VTVFcWN5VzltSFMzb3dFOG5xX3JWOW5wZnh1SU5uakV5NGE0Q2xEWGRvVzFyd19wTFV0VmlTOW44X1VTVHI4akVQVnZFQi0tdDB6OUsyNzFNTTJ2MFhMQUM0ZEln?oc=5) |
+| 'Block Everything' protests sweep France, intensifying pressure on Macron - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNak4tOHpJQ2g2REVHTUZOdjNGU1ZEMWdPY011dFVDenpFMGF4NHlFaldJaVBXZHF5aXJPX0x3cFc1cHM0T0M1QjBxSGZBRmhFOFhGZnVkWU9yWjlFYkdTenQ1b05HRDJ6dTJqMHFOWnVVSE5EM0J1NkUxWGQxSVR0LTQyRTdLLThUVXNtMk1Kb1dpcnlrM1RoRzBqT3A3dWtu?oc=5) |
 | Trump Moves to Crack Down on Drug Advertising - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNWHBNSmVCMmo1elJ3Yi1PMmx2Y0I5V3hlX1F5VmlzdnVOSm90b3VOdTVYQVFDQ3JqVzYtTTZWeFF6aWVNYmtyaFJGN1g5bHlCTi1ZeWF6ZjllVlRSX0owaXNDRjNMMkF3LUpJaEpTZTlldUE3RDAtckUyZUxiWkZMOWszd1VaYi1TeWd3?oc=5) |
-| 'Block everything' protests sweep France, intensifying pressure on Macron - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNak4tOHpJQ2g2REVHTUZOdjNGU1ZEMWdPY011dFVDenpFMGF4NHlFaldJaVBXZHF5aXJPX0x3cFc1cHM0T0M1QjBxSGZBRmhFOFhGZnVkWU9yWjlFYkdTenQ1b05HRDJ6dTJqMHFOWnVVSE5EM0J1NkUxWGQxSVR0LTQyRTdLLThUVXNtMk1Kb1dpcnlrM1RoRzBqT3A3dWtu?oc=5) |
 | Federal judge blocks Trump from firing Fed Governor Lisa Cook, for now - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQUVZHMnUyYVh5NU9feDM0SkxUNTB6YUV3RWNXUEVOZUVvaHFlelppZmFaVjEtc0NpdkliYXgwUmZJYjFBS0R1ZGxJVElEa1dUUi1LLXFlVVh4UGZLSDRneTRndW9LUTB6dUZVN1J6N05JQ0RXc0w4alo2WWZKZEpUd1VVUHJXSnRhLXlCU2NhRUYzSzl5V3VaWVJwZjZaRWpfMUd4Q2pB?oc=5) |
 | Chicago immigration enforcement surge begins with 3 arrests: ICE - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNeWMtSzg5dUhiWnJNNmhKVlF5RTQzX1FpeEdVWFNhNVhLRGZxaW5ENjZwZlBzZHgwVFdGTVBYcHlORTB3NURtZHpTeHVONmRCTnZwVXlWSENXR1dtSGpzQ0NjWDVVZ1FtRV9VSlp5VTBBZzdTLWlGMEViUWpOXzltU2JRVmxHQ1RpZ1Q3X2xWRlRMY0xOWW5FVEdfb091TzNHZGhDOTVR0gGrAUFVX3lxTE4zTGxWNEFYaUFrS1dORmQ3blNKMU9RNDNvRzVUejM0RHIybGV5Ynk4MWNOMjU1bkhzTUh1cnBsRTAtbTRBQXZWSnZ0a3dNN29lc0t5cDdPWFNZN3libFpBaHE1NGc1OElKUTFzY21rUnVsamdMNEprVVlTQ2xrVGhnT2tRUXRlUmtQRFJuZi1tOF81eEI1RGRhOGc2VlQ3VVNnT25xbHh6dHhMYw?oc=5) |
 | This deal could avert a shutdown — if Congress decides to take it - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNQzVtaktEdHcwSDd4UjFGR29rclZMcUFJcXhUMDkzMW9jZUdoWWRvcHlxRDd2N19LRk9WdkFZcmhhTnlSaDhyTVUwanF2U0JYMzhqWE5GajV1cm9Wc2FRM1pVNEdJUi1OS09XTzlUaG5lUTBnUllySmNLZlFiVFVnXzVtbUxjbFJNSFJzaHBR?oc=5) |
