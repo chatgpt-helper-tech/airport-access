@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 08:01:43（北京时间）**
+🕒 更新时间：**2025年09月10日 08:09:58（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Memorandum for the Secretary of Health and Human Services the Commissioner of Food and Drugs - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMi4wFBVV95cUxNeG9uM2xBdklUMlVJX1RtOFp1aTEzOUQ2OXFXRDJpb3ExbDVZc0ZmU1JGYndzYW82b2o3RjJnUEI3TDdUZzgySktKcnVpZ3E4U3R0c3ZBUzVIUjkyUVE0SEx4ZF9wRWRRMlNqLXcxX25FWktyanlUX3JfNzF5UzZRdXpiWUdjUXhkaTdFVHJCd2ZUclg5WWpIVEF1WE9NY2hsdjI3MlJnelhiNW9Xcm15cDFGTWhMbmFyb21OOVVUR1lJeHZCSXQ2Mnh3RHZyVHRJY1pZRUZLaGRkd1ZuN1BrZTcxSQ?oc=5) |
 | Business chiefs urge Trump to ease up on immigration crackdown after Georgia raid - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5fblk1MGJvYWtsUHJXd3RhOGhQVWtuTW9aTHVkY3NzSlA4a0tPVXZZV2hPREdEZWhOZi1UTmFLWkt6NkNXS1VpX3gtSHBLRklVRFVMWUpQN3hSQdIBX0FVX3lxTE16NUcyMTBsVVZMV3FvZnY5UVFkaWVFZ1V2a1NOOTRmclFvUkhiRWVvVkh4S2w5RzNHeW9lNnRVS1lFZEh4MzZSREdxTHgxd3dQVFJNWTcwamYzSDNsOU53?oc=5) |
 | Democrat wins Virginia special election to replace deceased Rep. Gerry Connolly - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNbldLNXdOUnBuN2lRSE12eHhfVTFXZEsxS250SG5ZVk5aV09IQXZ1anhDbl9PSkNjbU9RdkZJZXNTTlpFb0VoNm1sWGpvZXk3Q0t4UmF1OVI5N3Y2NEdwV3o5OHFPQ3lPTDVpQVQ4Yko3QVNBV2pFMDNsY0MtdkZhaElvWFJsc0ZhSlpz0gGQAUFVX3lxTE92U2dqSzVtOVFJSWhOYmpVMmxLVVotaVpxX2ZKR1NLenZ6c1JBbXVQdVRiZWxOcVpqMWxNZkZKa2JOOExkMTdrYkdVaEFoWmQzX0dUREZkQmw5MU9tSmE1Vm5sNnFkbWozbTd5YlR4cGV4eXZIWFJTeUJiQ1hVU0lxbTYxUXZvanVfWlR1bGNnRA?oc=5) |
-| RFK Jr. releases report on children's health - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1TYXQ2RXpyeGJ3dWVfMGpsZUtySlgzdmJ0YkV5VmJBR2V3cC1zS2hYcGpwVU9KcENlcVUxQ2pHNDZrVnlSdG5Ha2JYNE00UlVmT0ZST3Fpb3lGd3pQTC1qWFpGU3doU0YxdF9qcjZSYzVrY1pnalBIOE5n0gF_QVVfeXFMT1VScVdRXy1xSlpxQlo0UVJ2ZkIzSE9Gdm5weDl1NGhFa1ZDM2laaTR0R01EU3ItSUZUTkJmR3Qwa3ZjenFFT2FIWVV1R24yS09yUmpTRE9sM1ZhUm10dWN0NXVJbFFETWNfOExwUEhnaExhd2FxN1JnQjlBRW5BWQ?oc=5) |
+| ‘Make Our Children Healthy Again’: How RFK Jr. plans to do it - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPRnBxVm1MUWZZNVJlUk9FYkRWRF9oSVQ0eVNIcHRqTEVhU295ZzVLNm5lc2ZIOFZxYWs2a2xWZW42RnIwc1FrV1NkMDg1ZlpEdUNoSU1rU1VUYjNrQy1PX01Lbk1weDJZaXduVkgydnBEX3J6T1hlZHVLTkZRVnp1MFVB?oc=5) |
 | Missouri House passes gerrymandered congressional map, limits on initiative petitions - Missouri Independent | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQYUhqNmR2ODdxekJsWDRLcDhlU2VpY0lIT1dFV3I2R1lVSDVZakVWcmlyRTJMdkphSWM5M0k2RkRCWHZHbHJnWTB0Q1pReHYxVVhIVnBfT3hQMDVLSjFhZlloYjNSVGd4ekFCSTVWdUI5YmRjaEh5YzJEbXh2SGl3aXJIaW9FOE1vVUNmRE5tZVFvbkRsUC12TGtjUV9BanluQTREd3hXUm1zMTBwbmRCUVVNVDBsY0lTcnlrNzRPQzR4RW9HRWtn?oc=5) |
-| Democratic Sen. Ruben Gallego seeks to block Ashli Babbitt from military funeral honors - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNTEJSa3dzaG55WUpmZlFsZHQxUUpxUVpYUjZhUVFlOTI4OWRmOVRfQUdSQlFPN3VaSlc1UkREVjE1bDhFY0JXMkNxZEJTcHp3SlN2bkNiRkF3STJScExaN2MwcXpNaER2V1VOSzNoSGxVV0V1aVJQN0dpZXpucU11VDdRdzdlX2VkZXB3SlNpejVzcjl2TF96amJlTENTbnp3d2dka2Y5NnJOUdIBrwFBVV95cUxPYUFWdlo2YS04cVNsT0JSRGVEQmI0NE9KZmI1d3RuZURxVGNoemtCUTZuMFNnZ1l5R21RMFozZmJaRHFZd3FGNVA3XzV3QU9JRjRQU0kwLTlPSWZSdmZ6VXFiMHJjRlhxbVZ3cE55ZVlnWk9SR2p5UnJsc18wRmpyOHZmRGpKR0dXUHhPSFVxdkpYMVBJM2ZTdXcySnRDU2d2SnJVZkJQbjRsZmVXRmlN?oc=5) |
+| US high school students lose ground in math and reading, continuing yearslong decline - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQYXVNSmtzdkoyU2F3Zm1KNUx5LW5nUDFpSVplYlNQUjVqc1dWczNwZjlibW1ZLVlzU2pkdjZPTXJBQkdTblVab1FHYnF2dE9tVnUxcVN2ZTk0SHZ1bFNBMkdNYWgyUU92YlAwRlJOSGZzLWx2ZzJBSUNraExpV2FNdU1aYWhwNUZYSlg5ejZfakhYNUhRZUJXdXJzMA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
