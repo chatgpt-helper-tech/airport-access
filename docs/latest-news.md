@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 11:56:14（北京时间）**
+🕒 更新时间：**2025年09月10日 12:01:20（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | 3 things to know about RFK Jr.’s MAHA report on children’s health - PBS | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxONVVUUzMzVGQxY29laHlTMkxfc3JJdG00SlVXSDdrVG45d1NCaHdWeFEzVGNRbEFXcHk3Y1dETHRjaVVjVzdxSFVtTmw5UmsxcnU0OUIzd0NxeUt2NXd0TU1oSEVIT0IxQ2tBRnJfVFRuQmhnMzd4bGw2MkxsWUFmb1Aydk5BU2VaeFF1S0tfQUV4Q0puZW9iV1V4VVBXLTk00gGmAUFVX3lxTE9uLVZqUHl3OTRMRDNnOE5jcUkzQUlyRTZPQU5ESDRtV3VqMzRsX2lveDNIeUY3R0V6ZUt4UEpxazN3WThNeXFsRkdxT1c2Q1BfbWhXanVEdVNXSkFRNnVkY0pLMjJ1Sk9JQlRJdlNSa0NTNzBtdVg3RExueVF1UHNmREljZlltU3hLRXpWT0ZrMkJPTGZSc1AzcGJGb3k5NjdCQjY5dWc?oc=5) |
 | US Supreme Court pauses judge's order that Trump spend foreign aid - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQQ3AwbGU2dnFwdlVNa0tCdWYzMy1lbnBBTTlhSXpZdEFMa0RyMUFiWWlWZXo3MzNOLVZIQTkwMS01Q3pod1BscE9PS2xzVEhwNzR3WElGeDh3MHd5OXlIVWNoX1kxX2ZZY2hNaG1EZTV5eDAtNGM0WXRwcTJnQUE3RUJHbl9wRXlNVU1EM21jc19yYzlSX1UwTUg2cGRTVGdZV243VFRrVnlZcXVfRFRlMjJHVXk1UlJoVHc?oc=5) |
 | Suspect in Charlotte train stabbing facing federal charges, possible death penalty: DOJ - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOV181S3gtUmZqajRQUGRnTVk1U0RyQ1h2YWJPb0FBOFdiSldkVE1fanFpM1VHdWlRQkJMR1BNQWUwZ1k1UkpwdmVaS0Zpd3FPVGJlZ3N6T3pXZnBDUmxHWm4wTDBkZmk4YXJyZnpKaXhUQVFYcXRXX05hZmlndWo2UncxY1ZaXzFCVkVYYUQxUk1EUmF6bEQ4VGdyYUNZclRUSm4xTdIBqgFBVV95cUxPSWtBaTBaa0xCNDlvX09TNk9ERHRWNkJxZXE4MXpQSno5UEZpN1NwUlA5X29FODJ3U3ctVDNySnV5aXU1WDQ1aXdydmdWbzloQUREdGdidFZqVFk2VDFQYXJxMkZFdnZNV01VX2pja2RfZUlNZDlLYmQ5cDNaSUtyWE5uY1B2RnNIdERsYmpzX0hDUUVmLTU1SEZpZVE4U1FzMVV4aEttbUtrUQ?oc=5) |
-| James Walkinshaw, Democrat of Virginia, Wins House Special Election - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNT0xGYkk0d1QzZ3ZSQTByY083LXd3dHRWbldNY1EtZlB0ZUo0MHlJa3NwREhkaFNrNTBKMEM2YjJfMDVyaGZnQWZfNGxVUmwwMGhDMUpZT0RlZTNFRDZIaFNFcnZvcXptbWI2VkRXYmthQVZHREZEak5IamMyV3NjTFJDNEt3UVlPN3dF?oc=5) |
 | ICE operations ramp up in Chicago ahead of Mexican Independence Day - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNeVpjM3ZDaS1faUptY25nZm9aUUhCM1Y2aFpMQlVIaDJYR1JlRk5uTG93dGZEbnpsZmlySjdSNjE5bWkwV3pVMTBLXzJFUmR4WEMyQWhFTFN5cWpNMVRkeDdWMmxVZ08wVno0ZEVSQkRNZlBGVXFJdXM4VEoza1VWeDA1V2VqelpTeWpqUjFVampKdw?oc=5) |
+| James Walkinshaw, Democrat of Virginia, Wins House Special Election - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNT0xGYkk0d1QzZ3ZSQTByY083LXd3dHRWbldNY1EtZlB0ZUo0MHlJa3NwREhkaFNrNTBKMEM2YjJfMDVyaGZnQWZfNGxVUmwwMGhDMUpZT0RlZTNFRDZIaFNFcnZvcXptbWI2VkRXYmthQVZHREZEak5IamMyV3NjTFJDNEt3UVlPN3dF?oc=5) |
 | Missouri House passes gerrymandered congressional map, limits on initiative petitions - Missouri Independent | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQYUhqNmR2ODdxekJsWDRLcDhlU2VpY0lIT1dFV3I2R1lVSDVZakVWcmlyRTJMdkphSWM5M0k2RkRCWHZHbHJnWTB0Q1pReHYxVVhIVnBfT3hQMDVLSjFhZlloYjNSVGd4ekFCSTVWdUI5YmRjaEh5YzJEbXh2SGl3aXJIaW9FOE1vVUNmRE5tZVFvbkRsUC12TGtjUV9BanluQTREd3hXUm1zMTBwbmRCUVVNVDBsY0lTcnlrNzRPQzR4RW9HRWtn?oc=5) |
 
 ---
