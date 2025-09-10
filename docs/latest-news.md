@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 07:01:17（北京时间）**
+🕒 更新时间：**2025年09月11日 07:08:34（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Charlie Kirk Is Killed in Shooting at Utah Valley University: Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFA4bjhmRW5SdFowbzBybXE2VFZfdnBaNS1TOUZwQWNYUVZfeEJxUEFtdEJzOFFDZzVpS1FJOGdDTEZ3Y05WMW1uYlQzMTJLSlpWUDBwQ0UzY255dWpCNDdnN3ZqUHFwcEo5b1JzTGpaQjNYRDQ?oc=5) |
+| Charlie Kirk, Close Trump Ally, Is Shot Dead at University in Utah: Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFA4bjhmRW5SdFowbzBybXE2VFZfdnBaNS1TOUZwQWNYUVZfeEJxUEFtdEJzOFFDZzVpS1FJOGdDTEZ3Y05WMW1uYlQzMTJLSlpWUDBwQ0UzY255dWpCNDdnN3ZqUHFwcEo5b1JzTGpaQjNYRDQ?oc=5) |
 | What to know as Poland invokes NATO Article 4, citing Russian drone violation - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPTXBwRjNrZ0Y0a25CVUFXMldQbEJudDB4djMxZWZ0b2RDTTFkT1hsWmdsak1ieEg1TUZNdmplVjhFYklOMXRqdmt6UnFhaHZUWlFxZWV5ZW9fY2U1MGhzTkJWV3NabURkNDRCNUZhVmozMU1MM3Ywd2cyMDM2T0pIbjdqMkZscGlmc0hmdS1oUW1IaDVnS0E?oc=5) |
 | Former top FBI officials sue, say Kash Patel fired them to stay in Trump's good graces - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPNVhON1gxay1iSHByWEFoejhEeDFweFh1cUh4RUQ1b1ZmTUl5OXJNYjh2R2x4SThZTEpPVDV3MzB2aENhN2ZvYzZXMUR4Q1pVNlJjMGo3bzVTOGljUkota3U4cHdaMzBIUEZNNU1YNjVWMnMwV21WNXh6aTNTWUQ5RVFUUWd1ZnhwTXUzbTJUdmZlcmQ5ZEhRLW5VU0RabnJERVFzYzY3a0cwb1c5ZEFzUFl4Y1hnYTBrOWkwQXFyVEotdHhBaHN0QjBSY0d3d9IBVkFVX3lxTE4tZmhIb21UcDExQ204T0xJeS1HQnh1ck9XQ3RxZXFFeHk3ZUZLdThNdEw2ejgxUjQ0RVo4dWJ5N0U3RVlBdWRmUThWTHJHNVdlZTNLb293?oc=5) |
-| Harris writes Biden decision to run again shouldn't have been "left to an individual's ego" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNc2lCa0dkVUQ1ZWN0VWR0dUVhelRtYW5BUjM2NDluVlBCNkFzVlcyTWMxeHhJVHBPQjdTMzFhMDQzcFBsUDBPVVlTVVFhUFFQSmtjOGd4bW9iMmN5VFFLN29HWXdDQ1k2NG9QbVY1eEtCcUtxa2lNb19tV3NqQmJxbkJ0RUQydWdndDRqc0c4SEpvWjjSAZgBQVVfeXFMTmFkemhHUmRqYWZERV83NzZGUFhVcGNBcURhQjdlRm5TQVRnNEFKV0VrSnp5Sm9IMWFWUk9TOUdPX2oyRzZ1U19Zcjg0Zi1aUXYwQ1hBMnJmdnJIa1A4ODRDLWhmMmEzekQ0eW80dHdzV3NJYVZOQUNheTRldmlGdUNBTFlQRjIwSEJ0VDhnaW85azkxemFlRGg?oc=5) |
+| Kamala Harris: Joe Biden's re-election bid was 'recklessness' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5SVUJPSWtWdFNnMk0zV3lPYUFhZENsRTQwaXkwcnZ0Mk5nYUFvWkpWY1JNa3AtNUJMaXRreXdRcWVmRU5JUk9ZcmdHUnphS2RXMG5hVnVsem95d9IBX0FVX3lxTE94bDZTcU4xd2F3Y1ZFc2hVczlBc3NIVy1ScmNFNXNKMlVxcy10dDJfTmtBS002am1jQXRlS1p0a2lNRU1xZkdDM19ncThCelNLQlpuc0pBMmRwb0tyR1JJ?oc=5) |
 | Trump’s Economic Agenda Hinges on the Supreme Court’s Tariff Ruling - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOellXLTBIRHVuY2FfbkRqVVdDcldJMXpIQWF6dXFiQVFOWlpkaUVXVG56SjVrc2oyTGVFQkVKek5jSzhHU21VMnlIUjJ3NUwxVWtGM1ZvcnhlbDgtdWVoSlhxX3MxWTl4SmlOMEhJaHFNVUlHZFR2TlJpNnlOM3JTOENUNjEyZw?oc=5) |
 | President Donald Trump seems to pump brakes on deploying National Guard troops to Chicago - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQaHBKOEU1blJIS3haR2w1WkgtNW1vOEZNLW9hUkdKQTJ3ZHdmU1Q4RmxNY0MzeVdPb19WUkI3QjVVX2RYdC1kRDdISnN2YmxRLUIweFFfTWNNZkwzNVV6M1JHWXZVV0xCcFZQZnEzdXJNX0NlU1l5V0VjTkZKVkk0STViSGhwalZnbGN3X3RqQk9fcE4wOS1FQ1FUb1MtZ1BYd09wUWRCcG4yOU0?oc=5) |
 | Supreme Court allows transgender student to use boys' restrooms at S.C. school - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQaDRoZS03SW1vLTNKZlp4MlRZOVNUaGk1cTYydmg3TFVVR3dJOGpJNld0MFl3WXNpLXdMdGM0Q1NGaElUZDd1aG50a1ZMVlJmOTRWRlptWjc3Mk10Ml92ZmwwWlhwYjNnMFd5Mm9WbUJPQUNISnhKNzlIZUwxdkdnUkZvS2h3ZHVzTVE3WTJEZ0ZMNEZyWHdUMEpJLV9IdWM5QUFsaVBDeGFzdDZsQzBvTVFLVEJoM1JZNURwSW9pNWJDa2fSAVZBVV95cUxPVENYQ3Znc1J6NUp3aDloelVpTHVBNmw0UHlLUGk3THEycllNOXFzVWc0Qkw3QnZsQzZqcUx0cXBiWVljbTEtb0tnU2ZaZmlpNEVIRHd3Zw?oc=5) |
