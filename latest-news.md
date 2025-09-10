@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 16:00:09（北京时间）**
+🕒 更新时间：**2025年09月10日 16:09:34（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump calls on EU to impose 100% tariff on China and India to pressure Putin - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5YUS02RGRyWno0RDNpQ1NLY19vSW9lYzhTdGVnZHJUeGRpdFZGSXFHRm1BZXVJRExIa0hFUjRranZCSUNxOFRCN0dtRV93WE5tb2JlUHdieHVyUdIBX0FVX3lxTE1QUWhrZFRhUEVSRGdDX3FNN0paSG5tVXpfcXB5SEVaMnFFVlhKOGgwQXItYVlEUFh4ZnplTWU5ZjFyVHYxU2U3OVNjbC1qNTR6cTc0TEtKQlF0SnRoNVIw?oc=5) |
 | Federal judge blocks Trump from firing Fed Governor Lisa Cook, for now - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQUVZHMnUyYVh5NU9feDM0SkxUNTB6YUV3RWNXUEVOZUVvaHFlelppZmFaVjEtc0NpdkliYXgwUmZJYjFBS0R1ZGxJVElEa1dUUi1LLXFlVVh4UGZLSDRneTRndW9LUTB6dUZVN1J6N05JQ0RXc0w4alo2WWZKZEpUd1VVUHJXSnRhLXlCU2NhRUYzSzl5V3VaWVJwZjZaRWpfMUd4Q2pB?oc=5) |
 | ICE operations ramp up in Chicago ahead of Mexican Independence Day - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNeVpjM3ZDaS1faUptY25nZm9aUUhCM1Y2aFpMQlVIaDJYR1JlRk5uTG93dGZEbnpsZmlySjdSNjE5bWkwV3pVMTBLXzJFUmR4WEMyQWhFTFN5cWpNMVRkeDdWMmxVZ08wVno0ZEVSQkRNZlBGVXFJdXM4VEoza1VWeDA1V2VqelpTeWpqUjFVampKdw?oc=5) |
+| Critics fault Supreme Court for allowing immigration stops that consider race and ethnicity - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxNNG5TRXpWMXRMakNxX01qQmlaYzBweUFSY3czSzdHNWpMOUNGbXltQTBvZkpreFNGT0pFWHpXeXJTX0FsdUVwaXpfWmluODVRN2hocmg4RjlxYWRnTUR1c3RiTGNVeHo1MXlWMG5VaG1vOWljZmc2OFJuUDhNSEFJQUJMX1VuOXAtelV2QWRVTDdtc2JJdHJDWmpLU29sRVViRE9LcXJYLTJ5bVYwUkRqazh2WkM1NkswcTV0Q3lPZml3aXJPSW55Y2F4SDlrMDFXWUs4?oc=5) |
 | Pushing Democratic ‘reset,’ a religious Texas lawmaker runs for Senate - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNdklZYzdOdUZQQXlXQ2pLQjJXdkJTM01BaU1HWU1OdHRGTkhMWUJPS3NuZ2xFNFg3blFUdWhyS1Z2XzZ0QXh1WXA2b3ptQmJIUERoelg4NFdYc0FKUk5IeElaUkhfbUJBc3VDbEVtX1h5V05nc19Qazc3VmY5cFNSay16LXpiUGNTX3R5S0lVOFR1MmxHbWpfbEh4cm0zUUk?oc=5) |
-| 3 things to know about RFK Jr.’s MAHA report on children’s health - PBS | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxONVVUUzMzVGQxY29laHlTMkxfc3JJdG00SlVXSDdrVG45d1NCaHdWeFEzVGNRbEFXcHk3Y1dETHRjaVVjVzdxSFVtTmw5UmsxcnU0OUIzd0NxeUt2NXd0TU1oSEVIT0IxQ2tBRnJfVFRuQmhnMzd4bGw2MkxsWUFmb1Aydk5BU2VaeFF1S0tfQUV4Q0puZW9iV1V4VVBXLTk00gGmAUFVX3lxTE9uLVZqUHl3OTRMRDNnOE5jcUkzQUlyRTZPQU5ESDRtV3VqMzRsX2lveDNIeUY3R0V6ZUt4UEpxazN3WThNeXFsRkdxT1c2Q1BfbWhXanVEdVNXSkFRNnVkY0pLMjJ1Sk9JQlRJdlNSa0NTNzBtdVg3RExueVF1UHNmREljZlltU3hLRXpWT0ZrMkJPTGZSc1AzcGJGb3k5NjdCQjY5dWc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
