@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 08:16:58（北京时间）**
+🕒 更新时间：**2025年09月10日 08:24:07（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Suspect in Charlotte train stabbing facing federal charges, possible death penalty: DOJ - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOV181S3gtUmZqajRQUGRnTVk1U0RyQ1h2YWJPb0FBOFdiSldkVE1fanFpM1VHdWlRQkJMR1BNQWUwZ1k1UkpwdmVaS0Zpd3FPVGJlZ3N6T3pXZnBDUmxHWm4wTDBkZmk4YXJyZnpKaXhUQVFYcXRXX05hZmlndWo2UncxY1ZaXzFCVkVYYUQxUk1EUmF6bEQ4VGdyYUNZclRUSm4xTdIBqgFBVV95cUxPSWtBaTBaa0xCNDlvX09TNk9ERHRWNkJxZXE4MXpQSno5UEZpN1NwUlA5X29FODJ3U3ctVDNySnV5aXU1WDQ1aXdydmdWbzloQUREdGdidFZqVFk2VDFQYXJxMkZFdnZNV01VX2pja2RfZUlNZDlLYmQ5cDNaSUtyWE5uY1B2RnNIdERsYmpzX0hDUUVmLTU1SEZpZVE4U1FzMVV4aEttbUtrUQ?oc=5) |
 | Business chiefs urge Trump to ease up on immigration crackdown after Georgia raid - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5fblk1MGJvYWtsUHJXd3RhOGhQVWtuTW9aTHVkY3NzSlA4a0tPVXZZV2hPREdEZWhOZi1UTmFLWkt6NkNXS1VpX3gtSHBLRklVRFVMWUpQN3hSQdIBX0FVX3lxTE16NUcyMTBsVVZMV3FvZnY5UVFkaWVFZ1V2a1NOOTRmclFvUkhiRWVvVkh4S2w5RzNHeW9lNnRVS1lFZEh4MzZSREdxTHgxd3dQVFJNWTcwamYzSDNsOU53?oc=5) |
 | Democrats add 1 more vote in Congress after Virginia special election - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPMFk1aGFROHpqal9fMmRDdS1rMWgtVzlPSHhSNWotSlVrOG1feGhBbGNSY3k5Mm1TanQwOFdGSjdQMFNMZWNRSjVPU1I4bmNjYkxBNXJqdkxfZ3NmVXFXbXFDcndvNGt5Q2RQVVJ4c2NMN2tBbDE0QVNscGNfN1ByMUpfbFFUR3JPajJjaGY3amJjUQ?oc=5) |
-| ‘Make Our Children Healthy Again’: How RFK Jr. plans to do it - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPRnBxVm1MUWZZNVJlUk9FYkRWRF9oSVQ0eVNIcHRqTEVhU295ZzVLNm5lc2ZIOFZxYWs2a2xWZW42RnIwc1FrV1NkMDg1ZlpEdUNoSU1rU1VUYjNrQy1PX01Lbk1weDJZaXduVkgydnBEX3J6T1hlZHVLTkZRVnp1MFVB?oc=5) |
+| RFK Jr.'s latest 'Make America Healthy Again' report calls for more scrutiny of vaccines and autism - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNWlJXUms0ZmMtR2c3eEh4MTZGYlRyVm01TVo4bS1kZjkxcVdiN3VZOEVMWmdwVHpERV9LTnBfb2ZkNDVBU0tKbzdXUjlwVU1scDE4dzluYU1NSFhnZlpISEhoWHJEWE9PSG4zTFptZ2o1ZnJBYnA2U0ZYcVdScFZSQnlsWkFoTFctaUxUVEZnRU9wMWgtaXM4cUJxZ2FxX00?oc=5) |
 | Missouri House passes gerrymandered congressional map, limits on initiative petitions - Missouri Independent | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQYUhqNmR2ODdxekJsWDRLcDhlU2VpY0lIT1dFV3I2R1lVSDVZakVWcmlyRTJMdkphSWM5M0k2RkRCWHZHbHJnWTB0Q1pReHYxVVhIVnBfT3hQMDVLSjFhZlloYjNSVGd4ekFCSTVWdUI5YmRjaEh5YzJEbXh2SGl3aXJIaW9FOE1vVUNmRE5tZVFvbkRsUC12TGtjUV9BanluQTREd3hXUm1zMTBwbmRCUVVNVDBsY0lTcnlrNzRPQzR4RW9HRWtn?oc=5) |
-| US high school students lose ground in math and reading, continuing yearslong decline - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQYXVNSmtzdkoyU2F3Zm1KNUx5LW5nUDFpSVplYlNQUjVqc1dWczNwZjlibW1ZLVlzU2pkdjZPTXJBQkdTblVab1FHYnF2dE9tVnUxcVN2ZTk0SHZ1bFNBMkdNYWgyUU92YlAwRlJOSGZzLWx2ZzJBSUNraExpV2FNdU1aYWhwNUZYSlg5ejZfakhYNUhRZUJXdXJzMA?oc=5) |
+| New Report Card Data Confirms We Can, And Must, Do Better on Education - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOLWtNb2RQelFNX212aHJvTENtUmoyYlhERDNSbXFfU3hDUnZnV2FldWpLSHZNakJ3SXo4cVhpNG15ZUNkWW1LMjdnX3JSdy1ROGJFQVJRUjZZMVdNT09hUzg0OURQTFlNamNCelFUcm92cVBCalg1bkNBcnZHN0JRYnZ1SGdOYWRDNzc0cnlRUWxNZjBDZzRiemNKbVBkanlUVi1JbFdwWUc4ZXZueHFLMDFJQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
