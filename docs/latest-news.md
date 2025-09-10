@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 23:56:50（北京时间）**
+🕒 更新时间：**2025年09月11日 00:01:40（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | It is now peak hurricane season: What to expect for storms in the Atlantic - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQdm1XWUFtZTRvLUpiaDdVbEpqcllNaWNwcWZRYVRVeHZTelpsLWZFX1VwSlJEMW9tMnFLYjZEbmZCdkFLWkIyVk5uRVdGQjNLblN0RmM3UEFqeUV4ekhad1B6ZXVrWVlpMmp5THE4WnVwWTQ0QWd4ZUVfalh4bTktcWF1NHRldG9DbjBxUENyYzRPeXhQSDduc9IBngFBVV95cUxOS25wZGtGekZxVEtpR0UxQ1p1SmpWZ0ptODRjM3E4dGlHTXdrTE5KWGVqV0JIQ0h3V1Vqc1RMNmgxRDhXV1BQMWphV0ZmR3NGaktMV1RNbHdaYUZfU2V6OFlWbEpGQjVlTGJ1bjhMMVhfNFh3SzNQV19jdXZxdlcybU5RYlR4WU05RG1ESkpYV1phTTF6U28yTl80cWhhUQ?oc=5) |
 | One of Trump’s Powers Over D.C. Reaches a Time Limit. Many Remain. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQZkx5b0R1MXhMNVpjM2lTQWotZnhtZldQZWdYYThGMlJmUHl0WVB6b2hKdWZfSHJtVzIwR0ZnMDQ2NE15TnpDdDRZV3JCZVk5VEYwZXpjMVB2NGFrdDJXXzFxNERLb3Z2ZGFwY05FLWUtYmdRcXJoc2dldWV5RGpMOUFWcHFnaS1ITkhwdmJ4cVhoLW85VWxIYWNqUGdpYjJheTY3d1NyZw?oc=5) |
 | Appeals court, weighing Trump’s Library of Congress takeover, reinstates copyright chief - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOY3RkYmV5UDdJU0h3VDg4Y1BWbHZTTjdWUVZrTDlBSDIzcFBrakRyYmxraXVkSW5fbDhDdHZ6eGg4U1BtQ1h3YnVsVDdDcFVJZEtuZUFQUktvejBueDNoa1ZQVnl5cDVoSzFxVGM3eGdCVmhwWFFGRkItZXZDU3Fyc2tGbE5NOFVwTHFlSV9Db055RXBXb1U0YkRVdXIzS1BnMzIxNHpaVERYVVk?oc=5) |
-| Plans in the works for Korean workers detained in raid to go home while fear lingers for residents - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNUGEyZjJNbUpxTlFYN09BNlBJQndZNDlsWkt5SXp0R3lwQWVMR1h4bVZSZnJyTC1TSFB4dGVhQkFrRTdMUzdVejdWUFVXdjZFY28yLWJDcngtT2hWdUhnaXRHdFlDR2V4RFlRMDNnYXRKNDZ4ZFBXZzdyTU96UlZzblNTdE5BdDVlTFBTaWdwYWNnN2lVLVZNS3hUeXpYdDRqQ0Y2UU5fcw?oc=5) |
-| Supreme Court seeks to avoid being cornered on Trump tariffs - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPbDEydWZXWUNkYjVsVUNSbWJOV1E4WXJ3U0t3eDJLbnE5eTNEeUFPRjkzQWw1UWFjN05OenNaTDZqaGl4YjBUNTA4TXd2U29zYndmNlFPSmtHMXlSNldzNklZUkZMQl9IeXE5Sk9uQWxuTVJVNlAwc05lZXJNUzFDanNZclfSAYoBQVVfeXFMTTZvQ1gtV3dqa3JEYXNTbkpFMWdqY29XbWxmSzlRVm96ZVdDRDBqNWlrSkxtdkFsM1pFd19rMlp0LWtiZ2s0RG1HcWp4ME1KUTg5ekxRSzNkTG5FR1BrYXdMeVNOVHQxeHFNV0NtNDZ1eXFTNVduTl9iY3ZiM1RpWjFBS05UNi1SdktB?oc=5) |
+| Democrats embrace government shutdowns in Trump 2.0 - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxON0VJNVRLdGxQQW5fU3ZsZ3BYX0paQkVZbm9fZ3BfVy1xeTM1MTA3VXdwYkFxbWQtblhzak4tdjgteHlMOFZ4THFrOHJOX25mOHhnSnZnZ1BwRVNqcThrTWJnTU1mTHlvUllxUUt2d1pLSUVIVm14R05LVFlCbVpwM3N3?oc=5) |
+| Why Trump Immigration Raid Snared South Korea Workers Over Visas - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNbXRYS2dxTUluZEtJVnVPZlY0ZnVUal8xTE1qTmJKOTdhd3NRbWtxUHE1UkJsb0ZleU1NemhjSmNSUjNES1pNRURmbXlYVWlCNzVrRzFsWEo5cUZjRnZYU01ZSWs4UG1hamdyQzVpVU5pMUFmYWdSZVN3TkZkLW9BaWFUNk91RENrbDM1al9SRl82ZF9RaDBJUk1XdWZMSlY5Qnh3T0dFWU9kdVdqTFNPSjlVYTFSZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
