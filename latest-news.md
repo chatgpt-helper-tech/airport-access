@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 01:25:28（北京时间）**
+🕒 更新时间：**2025年09月11日 01:33:16（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Harry enters Clarence House after reports he will meet King | [阅读全文](https://www.bbc.com/news/articles/cly14jq42djo?at_medium=RSS&at_campaign=rss) |
+| Prince Harry meets King Charles for first time in more than a year | [阅读全文](https://www.bbc.com/news/articles/cly14jq42djo?at_medium=RSS&at_campaign=rss) |
 | More embarrassing Epstein exchanges to come, says Mandelson, as Starmer pressed at PMQs | [阅读全文](https://www.bbc.com/news/articles/c5yevwvvneyo?at_medium=RSS&at_campaign=rss) |
 | Teacher who hid with child from Southport killer feels 'crushing guilt' | [阅读全文](https://www.bbc.com/news/articles/ckg3xnv1lq2o?at_medium=RSS&at_campaign=rss) |
 | Life on Mars? 'Leopard-spot' rocks could be biggest clue yet | [阅读全文](https://www.bbc.com/news/articles/cd725pj0g9ro?at_medium=RSS&at_campaign=rss) |
