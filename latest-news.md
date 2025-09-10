@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 16:09:34（北京时间）**
+🕒 更新时间：**2025年09月10日 16:16:35（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Suspect in stabbing of Ukrainian woman in North Carolina charged with federal crime - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQbnhLaGRvSkZGRFBQVlJzVFJLV0xYazhHUFJDdEdrR3hyRjM4SFozV244VTVFcWN5VzltSFMzb3dFOG5xX3JWOW5wZnh1SU5uakV5NGE0Q2xEWGRvVzFyd19wTFV0VmlTOW44X1VTVHI4akVQVnZFQi0tdDB6OUsyNzFNTTJ2MFhMQUM0ZEln?oc=5) |
 | Protesters Call Out Trump as He Dines Out in Washington - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQZ2JqaFZNTUZ6bTRUbkZkdzNOQU5zU1laVl91QWMtUXFHN0JobHFrazlvaUlXbVdrNWxhQVhHQUN4OG5felNXOUVkVmZlZEpBOVF3eHVwQ2l1TGdhYnR0SXJEQjNnVEZUdDg1QUlYOEd5Ry1SOEJSdzE4UHBCNXRxT1I5TEVtZEs3UzFhWg?oc=5) |
 | Supreme Court lets Trump freeze $4 billion in foreign aid, for now - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBQN1hoZE9fd0hfWVRIYllZNFdpYU5KcHRDQ2pYNGRoejl2X3BfMHVmaTNrTktLOHFFcUQ2T05JUFRiTlc0eGxrY1F4eVR0NFFXMFQzSTBuY09PemhjQXBqb3JOVHVLbFNzTGtxV1ROZU5GeldJbTZXNFZiNHU?oc=5) |
-| Trump calls on EU to impose 100% tariff on China and India to pressure Putin - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5YUS02RGRyWno0RDNpQ1NLY19vSW9lYzhTdGVnZHJUeGRpdFZGSXFHRm1BZXVJRExIa0hFUjRranZCSUNxOFRCN0dtRV93WE5tb2JlUHdieHVyUdIBX0FVX3lxTE1QUWhrZFRhUEVSRGdDX3FNN0paSG5tVXpfcXB5SEVaMnFFVlhKOGgwQXItYVlEUFh4ZnplTWU5ZjFyVHYxU2U3OVNjbC1qNTR6cTc0TEtKQlF0SnRoNVIw?oc=5) |
+| Macron names ally Sébastien Lecornu as new French PM - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5aZFNOblI3SHhXcDJmckM4QVZEbWIzWGlRbTdET0w2Rk14RnR5T3pNaHM3V25XQ3J6dFdNZzNKeUFmeDE4cm81SDBDeGZ6bm9Fa1U5TlhrZkh1UdIBX0FVX3lxTE5jbjl4bXVfWk5FSk5tc3o0NTU3d0ktTWlaMFlucUhxaEZTbWFsZnIwLXpacHpOWlljaDBZMjFZc3dTcjdvTS1fc2xyYjZUWW5TbXprRHZvUThGM3RMQzBR?oc=5) |
 | Federal judge blocks Trump from firing Fed Governor Lisa Cook, for now - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQUVZHMnUyYVh5NU9feDM0SkxUNTB6YUV3RWNXUEVOZUVvaHFlelppZmFaVjEtc0NpdkliYXgwUmZJYjFBS0R1ZGxJVElEa1dUUi1LLXFlVVh4UGZLSDRneTRndW9LUTB6dUZVN1J6N05JQ0RXc0w4alo2WWZKZEpUd1VVUHJXSnRhLXlCU2NhRUYzSzl5V3VaWVJwZjZaRWpfMUd4Q2pB?oc=5) |
 | ICE operations ramp up in Chicago ahead of Mexican Independence Day - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNeVpjM3ZDaS1faUptY25nZm9aUUhCM1Y2aFpMQlVIaDJYR1JlRk5uTG93dGZEbnpsZmlySjdSNjE5bWkwV3pVMTBLXzJFUmR4WEMyQWhFTFN5cWpNMVRkeDdWMmxVZ08wVno0ZEVSQkRNZlBGVXFJdXM4VEoza1VWeDA1V2VqelpTeWpqUjFVampKdw?oc=5) |
 | Critics fault Supreme Court for allowing immigration stops that consider race and ethnicity - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxNNG5TRXpWMXRMakNxX01qQmlaYzBweUFSY3czSzdHNWpMOUNGbXltQTBvZkpreFNGT0pFWHpXeXJTX0FsdUVwaXpfWmluODVRN2hocmg4RjlxYWRnTUR1c3RiTGNVeHo1MXlWMG5VaG1vOWljZmc2OFJuUDhNSEFJQUJMX1VuOXAtelV2QWRVTDdtc2JJdHJDWmpLU29sRVViRE9LcXJYLTJ5bVYwUkRqazh2WkM1NkswcTV0Q3lPZml3aXJPSW55Y2F4SDlrMDFXWUs4?oc=5) |
