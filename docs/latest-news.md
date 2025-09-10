@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 01:01:32（北京时间）**
+🕒 更新时间：**2025年09月11日 01:08:36（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Kamala Harris: Joe Biden's re-election bid was 'recklessness' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5SVUJPSWtWdFNnMk0zV3lPYUFhZENsRTQwaXkwcnZ0Mk5nYUFvWkpWY1JNa3AtNUJMaXRreXdRcWVmRU5JUk9ZcmdHUnphS2RXMG5hVnVsem95d9IBX0FVX3lxTE94bDZTcU4xd2F3Y1ZFc2hVczlBc3NIVy1ScmNFNXNKMlVxcy10dDJfTmtBS002am1jQXRlS1p0a2lNRU1xZkdDM19ncThCelNLQlpuc0pBMmRwb0tyR1JJ?oc=5) |
 | Trump blames Democrats for Charlotte stabbing. Records complicate the story. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPaHNrNVdPbzZSTjI3TTQ4blpnS2FPeTdSX3pGblZSYUZsZGc5WVpJRk5yOElQam43ckdocVd5MkViQmV3d2Jwd1V4Smlrd19xdE1TSk5CUG9iOFhPbHA3VXVKYnNTVG1yYTk3eDBVR0FyQTUyWkV1M2VQR05XVEJmS1hXV1dGY29VTEx1U3Vn?oc=5) |
 | Vance defends strike on suspected smugglers off Venezuela but concedes 'due process concerns' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNTXctVkVxUUNvWGpIUXBxbXhWSURQdzRuNnFxV2JQMU5uazBTR0dEMkY2a1VUZThINm5saFlhdG5QcWlScjhVSGF2RWV6NUJJcnRkTjBMUUtyWWdvQ18zdlg3bzRkOUtyeHp2V0RfWVlJVFFjV0VpSnpuaDBpSW0tTkUxS29YX1cwdzlGVmxCNUxRTXVtUFp2RlVYb1Z6VEU?oc=5) |
-| Oil prices up $1 after Israeli attacks, but oversupply caps gains - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPclVTRUlPdzREMVVVRDFvek1vRnlQQnBMVnpQbjk3eFgwU3Aybk1nR2trcmFraHZIanhIaWQwa0RXRFpqZmVPX3MxSV9QOXFiQzV3Uk1wcjNRb09McC1OdzVMbVRmLUx6cUR0OHNWTjd2QjlHOTgxTGFYOWFsNUMzNjZzRzFkWDVWTS1LT1U5NjJUYXhHbkJRUFIySnRiRWx0UjJnaFB1MGVLLV9nNDk4ZQ?oc=5) |
+| On Chicago's first full day of 'Operation Midway Blitz,' fear, tension and a 'reality show' - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxNMFprRmpsSmk0eWJIS29KR2xTQ2RVV2JfRFNEMExJYzhabHlqb1ZISi1GeVA5azBGcUZ3endqZmowN2k4d2ROcFJlQl9kSnROQ1ZjclNwMy1oczQtWklnNHVURnJBaEFyYzA0QUVOLUxzVVhlaDlvRVRBbHdtOVNzb2pfVFByN0tLb2pnczB5dTZCYkRFQjVLOEg3ajYwanNBTEFuSGhHWHBlMmdCbERwd2QxQjZLbEdNWnRWSDJvNDczQmllYi10alA1UQ?oc=5) |
 | Trump is fine with letting his DC police takeover lapse, White House officials say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQMDFtQUtMSk9uQkV2UFVUbG5rXzhZSnZrZk5FLThDTVNGVld0emVDS0k4d3RlNnQwVEtLY3J4WDdjMUlaX3BONkZtMDRzckFMdlJSNGJucDhOZmFvaFFiYkkzb2t3a0lVb1R5LV9LMndPRWkzZmNZaGZVeHFsOHp6ZQ?oc=5) |
-| Delayed Release of Workers Detained in Georgia Raid Fuels Anger in Korea - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNOUMzNUZvRUlqcVFKYThRUTNUeG0wbkRzaDRlZFlhYlBQQ1RlRE4yTWxncUEwYnl2V2k1cW9Va3FtRHh3M2kzc01RWV9iUVBibm1pRndVZ05lUk4xblBKanlGQmFTUnFGNWp2RGNyeE5wLTNTSHhzQ3JLVXhiMFFiVEVBbWZRa1E2OGhSRlZIa1I1NWRVM2NyN0VEWXN0Y0tPSmdPX05R?oc=5) |
 | Johnson backs Virginia wind project in break with Trump - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQc3p1WHp2OHQ3RUo4TDlzZUtVd0R4TmFMWlBhSnRhTU9IMzVzUUIwVFJJMFk2c0RSeXlWVlQwVVNzdmEwZmR3M3hmdUU2dTl1NFRqQUk0ZHlYLTJzaDJCT2k5eUo4VktLZmh1LUpDUjZMd05ldmRGM280UXpuOGN3b2pzNXFVZzhBNWpKZ0hJblpBMHVXN1NrVVZwU0ZTbUJHaFNsWWVScEZpYjd3VEtIZXRFVmE3cVNfYi1hSWJYSnNrSzQ?oc=5) |
-| Democrats retake Connolly’s seat in Virginia’s 11th Congressional District special election - Virginia Mercury | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxOSlJoUkxRQUxhZzdNMVBrN2NjNGdzTHhRMFNuNzQwZ2xNT3dicVJReWRZRFdUcHYxTnN3a255VTM4M3M0RHhPT1NTRXRiU1BDN3l4bFYxdklYWE5DbmN4Z1B1YU9nN19BTms5OC05cmNxcWxWZzlmcVYxTDUtVHFWc29QWnRGQjZuMjdmZnM0QjhqWlRTSllPZ1NOZTRpd18tejBJSHFnWng4MVdSQTdRYmE5VHF4NGd1RHZlckFGcElWRmk3SEtPbw?oc=5) |
+| Delayed Release of Workers Detained in Georgia Raid Fuels Anger in Korea - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNOUMzNUZvRUlqcVFKYThRUTNUeG0wbkRzaDRlZFlhYlBQQ1RlRE4yTWxncUEwYnl2V2k1cW9Va3FtRHh3M2kzc01RWV9iUVBibm1pRndVZ05lUk4xblBKanlGQmFTUnFGNWp2RGNyeE5wLTNTSHhzQ3JLVXhiMFFiVEVBbWZRa1E2OGhSRlZIa1I1NWRVM2NyN0VEWXN0Y0tPSmdPX05R?oc=5) |
+| Top Democratic leaders will meet Wednesday afternoon to plot shutdown strategy - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNbzM0ejBSRWl1OXZmMkVZMzYwSk9FNGlQU2dLUTV1YnhlQ1M2OENYUC1adHVwUVNINFM0alNvRWowS3VvaFNvMmVQQ2cyd2ctMWY1eUhaQnF0eW95VXlDRzNsbWhKSUdma1dHLVZJN1FJUzRDVUhWc3oyZU0yZW5OajhDS005blgtWFlPRGJ5Qy1yMFh1OFBKNjVyTy1xWXQyb0RneVhsMA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
