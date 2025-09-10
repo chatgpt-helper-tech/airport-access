@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 05:17:56（北京时间）**
+🕒 更新时间：**2025年09月11日 05:24:03（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Texas A&M professor fired after video shows classroom confrontation over gender identity coursework - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQbzd2Mkp0bUJ6SWYxcDR4MllPZ29vUGNyX0tTc21RWXh5NGxJVU9ZVVhmMlZhQmVkdHlhV2tpRFRhbU4wQkVlYkpMeFQxczVIZ0RKc2pvOXBoTWNwaWMydjBmQ1UyeGJUVnU2UUxfRkpiOTFkbEdScXZSU0FJalhrVnNNWkF2NjhhVkZFYlpYbFNZQS1qSEtDWkF5Rnh6VG5QWnc?oc=5) |
 | 1.6M fewer US immigrants expected this year amid Trump, GOP policies, CBO predicts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi4AFBVV95cUxORzJQdUd1U1hsU3djYlBOTGV6WmxKVV9jUU5URkJ0SWs4MTJ2VzBhckpZMDNvM2RUSWpCdGxPLVZDcy1lY3NqeEhfeVJpNjdqZnpfSTUybzU0ZXF6SGZvWVZHWGdGMGRDcURycmo0blhGaW9nWG5yaENnajZIeFBTeWhYdTFrSWNzVzB0dG5zN19lOXlJY3EwNFdCYUZweEpZLVphb1ZiT3BlenUtT2NhNENCX2VrNXd0X055emc2LUEyU1Vyc1JXdlFuQjgyTC13M0FaWUR2dHc3QkFIVjJwaw?oc=5) |
 | Shooting at Evergreen High School in Colorado leaves 3 students hurt; first responders "not certain how many shooters" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQb0RpbTlmTFFSQlNEdF9iekpKSEJDWWxJRmtXNVpuazhHeVVDWk5TYnBseEtYcUNweE5JVUhSbGpfVzdFREx2enJBYzdabHRjenFiSUxKRW5nUDVsTmNiVzl1WmRSV2dDQjBpbTlOWE10dXA5eW1zV3dTekdUTTlfSlVwbjcyNlBXM1FrMUlxaFE?oc=5) |
-| Leaked Ice document shows worker detained in Hyundai raid had valid visa - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxObFVYSkJneFJ3dWJmNEg3Y0w0My1zZ041QTRuSTVUZjNGTkt0ZVJ5YUExZXZzdVVFR2s3cHZqTldnbjZRblhGY05HNWtIYjhHWVpFZVZXZXBOclp4VUJsc3FsREE5bzhCbm5OaFFPeVFLRFc2SkcyVHdCb1FjMDBHU2VaVmEyRWhqN3ZZ?oc=5) |
+| Trump makes a rare D.C. restaurant visit to tout his federal crackdown on crime - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNdDIySnRZMnQ1Z3FXNU1WcVVXVV9QX1JuaDQ3LUxrMHI2LXBmSUthM0FEd2hQaDB0OENVZnAyREZpdDhFVTJjODY5QzNjbUN4WEdXdzV3TUVIc045Qy1Gdk1wcVFWUXo5bTE2Z2J5dC03aHlydVlYUHF4XzJhVjhaNXdQOHRQRU5SVm5jSFBtOA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
