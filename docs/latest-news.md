@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 20:24:23（北京时间）**
+🕒 更新时间：**2025年09月10日 20:34:01（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | More embarrassing Epstein exchanges to come, says Mandelson | [阅读全文](https://www.bbc.com/news/articles/c5yevwvvneyo?at_medium=RSS&at_campaign=rss) |
-| Sacked ref accused of making indecent image of child | [阅读全文](https://www.bbc.com/news/articles/c80g5v1lg0eo?at_medium=RSS&at_campaign=rss) |
+| Sacked referee David Coote accused of making indecent image of child | [阅读全文](https://www.bbc.com/news/articles/c80g5v1lg0eo?at_medium=RSS&at_campaign=rss) |
 | Banksy mural scrubbed from Royal Courts of Justice | [阅读全文](https://www.bbc.com/news/articles/cm2z30p033ro?at_medium=RSS&at_campaign=rss) |
 | Anti-Islamic US biker gang members run security at deadly Gaza aid sites | [阅读全文](https://www.bbc.com/news/articles/cm2zy4l8jgeo?at_medium=RSS&at_campaign=rss) |
 | See stunning shots of Chappell Roan, Charli XCX and Doja Cat up for music photo award | [阅读全文](https://www.bbc.com/news/articles/c306n1ve8y5o?at_medium=RSS&at_campaign=rss) |
