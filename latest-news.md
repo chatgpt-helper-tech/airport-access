@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 18:56:55（北京时间）**
+🕒 更新时间：**2025年09月10日 19:00:21（北京时间）**
 
 ---
 
@@ -8,8 +8,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| UK's first 'super-university' to be created as two merge from 2026 | [阅读全文](https://www.bbc.com/news/articles/cy85905dj2wo?at_medium=RSS&at_campaign=rss) |
 | More embarrassing Epstein exchanges to come, says Mandelson | [阅读全文](https://www.bbc.com/news/articles/c5yevwvvneyo?at_medium=RSS&at_campaign=rss) |
+| UK's first 'super-university' to be created as two merge from 2026 | [阅读全文](https://www.bbc.com/news/articles/cy85905dj2wo?at_medium=RSS&at_campaign=rss) |
 | Anti-Islamic US biker gang members run security at deadly Gaza aid sites | [阅读全文](https://www.bbc.com/news/articles/cm2zy4l8jgeo?at_medium=RSS&at_campaign=rss) |
 | Contactless card payments could become unlimited | [阅读全文](https://www.bbc.com/news/articles/czjv7jy2r9vo?at_medium=RSS&at_campaign=rss) |
 | Ozempic maker to cut 9,000 jobs as it warns 'knock-off' jabs hit profits | [阅读全文](https://www.bbc.com/news/articles/c8d79pez6g2o?at_medium=RSS&at_campaign=rss) |
