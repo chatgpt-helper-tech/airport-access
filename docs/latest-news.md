@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 17:40:01（北京时间）**
+🕒 更新时间：**2025年09月10日 17:48:56（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Suspect in stabbing of Ukrainian woman in North Carolina charged with federal crime - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQbnhLaGRvSkZGRFBQVlJzVFJLV0xYazhHUFJDdEdrR3hyRjM4SFozV244VTVFcWN5VzltSFMzb3dFOG5xX3JWOW5wZnh1SU5uakV5NGE0Q2xEWGRvVzFyd19wTFV0VmlTOW44X1VTVHI4akVQVnZFQi0tdDB6OUsyNzFNTTJ2MFhMQUM0ZEln?oc=5) |
 | Trump calls on EU to impose 100% tariff on China and India to pressure Putin - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5YUS02RGRyWno0RDNpQ1NLY19vSW9lYzhTdGVnZHJUeGRpdFZGSXFHRm1BZXVJRExIa0hFUjRranZCSUNxOFRCN0dtRV93WE5tb2JlUHdieHVyUdIBX0FVX3lxTE1QUWhrZFRhUEVSRGdDX3FNN0paSG5tVXpfcXB5SEVaMnFFVlhKOGgwQXItYVlEUFh4ZnplTWU5ZjFyVHYxU2U3OVNjbC1qNTR6cTc0TEtKQlF0SnRoNVIw?oc=5) |
 | Boston Mayor Michelle Wu and challenger Josh Kraft advance to one-on-one general election - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPVXc5M1pMWTE1dEw5Qm43dHIxaWc5cUQ4M01nOFhtbWZEVWxlS3c4T3hfZzgwRkREMGtxVFRuWWFDRTF5QVZBa3Vud04tZlBwMWtVMXFDVEhwYlZEMXl3OEEzTXBsZml0LWh2RXlzLUdXVk5OLVAzdDlMd2lYODdvMjhrbzJ3WFF3RGtILVZlMVhpLUN2UUVsZnQ4S3FqOTV2SUZ2a2FVcVVldDU3aWxXTW4tVHZpU1c5NkMxVERfNk52Z9IBVkFVX3lxTE1mdFlsOFFkZUNRU2Z4bC0wX25vcmtnU1hyNnVma1dRbVBuQmhCMmJaYmU2b2RRNlRXcnNycVNTaHNGMTVzOUFic25PTFRUOG9TbUVBeUdB?oc=5) |
-| Congressman shows never-before-seen video at military UFO hearing - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNRFVBRm45THpkTWRFdk51c04xekVTRnotYzVnSnNyczNCNE0wQnhYZDdDa3dnNDhkNHBHZ3lxQ0dlUjZwY0syMzlFR29Rc0NvY3JxRnV4YkZCejdWQjRjMnROcGp1dlNFMERYTXFxWGJLY19WVHc3SUhVYmZqc2Vsa1Zld1piSHBRczZqZW9pRXVMRGNuSlM3eVl1RdIBoAFBVV95cUxOR0xOdUJSTUpkeXQ3SzgwNXIzSFBtVFgzazZlbV80TkVqUkZfcUFZMDZxd1BRLXEyUGJKT1BfVjJpc0lkOFduQ1lLRkx6YmtDd0VmbkxFU2R6MmhTTExIVWhRTjl0SUV6ZE1CcGozdHZZV2wtZ2k3MHp4R3NzSGtWVE1NLUN1TXk3S2dwQUd4Qnh3czNwM0tiay0yT2VKUE51?oc=5) |
+| Trump dines at a restaurant near the White House to promote his federal law enforcement surge in DC - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxObUZUamp6Ykx2dHJ4NHc3ZVlYd08wZXJITWpGWGc3TjEtSFBXTW9fWVcxdHZXTDVyUjBVc1BsWmNLajh3X01jWjNjWGVkZ0JmSDZrWEh3M0pha0tvS00xdUZnaVZqdnNNbzFDU2FrWE55ZE9RNnhqcjBtT1JJYjJXSEd2dUhSalJJSEhyV1R5bWJsR0Frdlh4aUN3ZWw?oc=5) |
 | Federal judge blocks Trump from firing Fed Governor Lisa Cook, for now - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQUVZHMnUyYVh5NU9feDM0SkxUNTB6YUV3RWNXUEVOZUVvaHFlelppZmFaVjEtc0NpdkliYXgwUmZJYjFBS0R1ZGxJVElEa1dUUi1LLXFlVVh4UGZLSDRneTRndW9LUTB6dUZVN1J6N05JQ0RXc0w4alo2WWZKZEpUd1VVUHJXSnRhLXlCU2NhRUYzSzl5V3VaWVJwZjZaRWpfMUd4Q2pB?oc=5) |
 | ICE operations ramp up in Chicago ahead of Mexican Independence Day - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNeVpjM3ZDaS1faUptY25nZm9aUUhCM1Y2aFpMQlVIaDJYR1JlRk5uTG93dGZEbnpsZmlySjdSNjE5bWkwV3pVMTBLXzJFUmR4WEMyQWhFTFN5cWpNMVRkeDdWMmxVZ08wVno0ZEVSQkRNZlBGVXFJdXM4VEoza1VWeDA1V2VqelpTeWpqUjFVampKdw?oc=5) |
+| Supreme Court to weigh legality of Trump’s tariffs in key economic case - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNSTd1VTNnaGZhekxyaFpaUW9sLWF0SDgyZFM4dFBzNmw4WWlhb0pvODVtT01sVVhfNnNUelNZZ2JoTHduZTB5ZHNrWVFEVEVDdmQxd3RkbDFkU0xOa1VHek1rSVA4MWtWMG0tYndJQlV3Um9NQkJwcnZRSHM0MWl2VHYxcDRkdm5kTEgtSDN5bzZpMWgzLWJZb3poV1E?oc=5) |
 | Missouri House passes gerrymandered congressional map, limits on initiative petitions - Missouri Independent | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQYUhqNmR2ODdxekJsWDRLcDhlU2VpY0lIT1dFV3I2R1lVSDVZakVWcmlyRTJMdkphSWM5M0k2RkRCWHZHbHJnWTB0Q1pReHYxVVhIVnBfT3hQMDVLSjFhZlloYjNSVGd4ekFCSTVWdUI5YmRjaEh5YzJEbXh2SGl3aXJIaW9FOE1vVUNmRE5tZVFvbkRsUC12TGtjUV9BanluQTREd3hXUm1zMTBwbmRCUVVNVDBsY0lTcnlrNzRPQzR4RW9HRWtn?oc=5) |
-| Pushing Democratic ‘reset,’ a religious Texas lawmaker runs for Senate - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNdklZYzdOdUZQQXlXQ2pLQjJXdkJTM01BaU1HWU1OdHRGTkhMWUJPS3NuZ2xFNFg3blFUdWhyS1Z2XzZ0QXh1WXA2b3ptQmJIUERoelg4NFdYc0FKUk5IeElaUkhfbUJBc3VDbEVtX1h5V05nc19Qazc3VmY5cFNSay16LXpiUGNTX3R5S0lVOFR1MmxHbWpfbEh4cm0zUUk?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
