@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 16:16:35（北京时间）**
+🕒 更新时间：**2025年09月10日 16:24:59（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | Anti-Islamic US biker gang members run security at deadly Gaza aid sites | [阅读全文](https://www.bbc.com/news/articles/cm2zy4l8jgeo?at_medium=RSS&at_campaign=rss) |
 | Alzheimer's blood test could 'revolutionise' diagnosis | [阅读全文](https://www.bbc.com/news/articles/cm2ze84e8p1o?at_medium=RSS&at_campaign=rss) |
 | Contactless card payments could become unlimited | [阅读全文](https://www.bbc.com/news/articles/czjv7jy2r9vo?at_medium=RSS&at_campaign=rss) |
+| Police should stop logging non-crime hate incidents, watchdog says | [阅读全文](https://www.bbc.com/news/articles/c0kn54vj55xo?at_medium=RSS&at_campaign=rss) |
+| Ozempic-maker Novo Nordisk to cut 9,000 jobs | [阅读全文](https://www.bbc.com/news/articles/c8d79pez6g2o?at_medium=RSS&at_campaign=rss) |
 | England's 5-0 win in Serbia gives Tuchel selection dilemmas for World Cup bid | [阅读全文](https://www.bbc.com/sport/football/articles/ckg3ne08kk7o?at_medium=RSS&at_campaign=rss) |
-| Reeves limits ministers requesting emergency funding ahead of Budget | [阅读全文](https://www.bbc.com/news/articles/cyv63l3395zo?at_medium=RSS&at_campaign=rss) |
 | Nepal protests 'hijacked', Gen Z claim, as army patrols the streets | [阅读全文](https://www.bbc.com/news/articles/cjd1ndmrej0o?at_medium=RSS&at_campaign=rss) |
-| This 'tough guy' president says he's tackling corruption. Rivals say he's silencing opposition | [阅读全文](https://www.bbc.com/news/articles/ckgqzk31qyzo?at_medium=RSS&at_campaign=rss) |
-| Approving China 'mega' embassy would be unlawful, UK government told | [阅读全文](https://www.bbc.com/news/articles/c864w2942vdo?at_medium=RSS&at_campaign=rss) |
+| Reeves limits ministers requesting emergency funding ahead of Budget | [阅读全文](https://www.bbc.com/news/articles/cyv63l3395zo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -28,11 +28,11 @@
 | Suspect in stabbing of Ukrainian woman in North Carolina charged with federal crime - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQbnhLaGRvSkZGRFBQVlJzVFJLV0xYazhHUFJDdEdrR3hyRjM4SFozV244VTVFcWN5VzltSFMzb3dFOG5xX3JWOW5wZnh1SU5uakV5NGE0Q2xEWGRvVzFyd19wTFV0VmlTOW44X1VTVHI4akVQVnZFQi0tdDB6OUsyNzFNTTJ2MFhMQUM0ZEln?oc=5) |
 | Protesters Call Out Trump as He Dines Out in Washington - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQZ2JqaFZNTUZ6bTRUbkZkdzNOQU5zU1laVl91QWMtUXFHN0JobHFrazlvaUlXbVdrNWxhQVhHQUN4OG5felNXOUVkVmZlZEpBOVF3eHVwQ2l1TGdhYnR0SXJEQjNnVEZUdDg1QUlYOEd5Ry1SOEJSdzE4UHBCNXRxT1I5TEVtZEs3UzFhWg?oc=5) |
 | Supreme Court lets Trump freeze $4 billion in foreign aid, for now - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBQN1hoZE9fd0hfWVRIYllZNFdpYU5KcHRDQ2pYNGRoejl2X3BfMHVmaTNrTktLOHFFcUQ2T05JUFRiTlc0eGxrY1F4eVR0NFFXMFQzSTBuY09PemhjQXBqb3JOVHVLbFNzTGtxV1ROZU5GeldJbTZXNFZiNHU?oc=5) |
-| Macron names ally Sébastien Lecornu as new French PM - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5aZFNOblI3SHhXcDJmckM4QVZEbWIzWGlRbTdET0w2Rk14RnR5T3pNaHM3V25XQ3J6dFdNZzNKeUFmeDE4cm81SDBDeGZ6bm9Fa1U5TlhrZkh1UdIBX0FVX3lxTE5jbjl4bXVfWk5FSk5tc3o0NTU3d0ktTWlaMFlucUhxaEZTbWFsZnIwLXpacHpOWlljaDBZMjFZc3dTcjdvTS1fc2xyYjZUWW5TbXprRHZvUThGM3RMQzBR?oc=5) |
+| Trump Floats New Tariffs on China, India to Squeeze Russia - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPYkNKeHFoUENXenRYY2JhSUs4RFlzSjU3YV9CZE84Mm9lNGVwTFd1UVQxQ1pyUW82dFViN1lhZWExaEx5SG1ZS1JpTl9SZEhsZUdRNi1sY2tWZEhnMzNRc1k2S05TMkE5YU02cEpGdnBYS2NZTGRSWU9wcFlQR3M2aDAyLWhIdzN1Y3ZZUWpGU0RlUDBkc0h1X054eVhMdU04VTcyazk4bVEtTjdGUXJjNVBPQQ?oc=5) |
 | Federal judge blocks Trump from firing Fed Governor Lisa Cook, for now - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQUVZHMnUyYVh5NU9feDM0SkxUNTB6YUV3RWNXUEVOZUVvaHFlelppZmFaVjEtc0NpdkliYXgwUmZJYjFBS0R1ZGxJVElEa1dUUi1LLXFlVVh4UGZLSDRneTRndW9LUTB6dUZVN1J6N05JQ0RXc0w4alo2WWZKZEpUd1VVUHJXSnRhLXlCU2NhRUYzSzl5V3VaWVJwZjZaRWpfMUd4Q2pB?oc=5) |
 | ICE operations ramp up in Chicago ahead of Mexican Independence Day - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNeVpjM3ZDaS1faUptY25nZm9aUUhCM1Y2aFpMQlVIaDJYR1JlRk5uTG93dGZEbnpsZmlySjdSNjE5bWkwV3pVMTBLXzJFUmR4WEMyQWhFTFN5cWpNMVRkeDdWMmxVZ08wVno0ZEVSQkRNZlBGVXFJdXM4VEoza1VWeDA1V2VqelpTeWpqUjFVampKdw?oc=5) |
-| Critics fault Supreme Court for allowing immigration stops that consider race and ethnicity - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxNNG5TRXpWMXRMakNxX01qQmlaYzBweUFSY3czSzdHNWpMOUNGbXltQTBvZkpreFNGT0pFWHpXeXJTX0FsdUVwaXpfWmluODVRN2hocmg4RjlxYWRnTUR1c3RiTGNVeHo1MXlWMG5VaG1vOWljZmc2OFJuUDhNSEFJQUJMX1VuOXAtelV2QWRVTDdtc2JJdHJDWmpLU29sRVViRE9LcXJYLTJ5bVYwUkRqazh2WkM1NkswcTV0Q3lPZml3aXJPSW55Y2F4SDlrMDFXWUs4?oc=5) |
-| Pushing Democratic ‘reset,’ a religious Texas lawmaker runs for Senate - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNdklZYzdOdUZQQXlXQ2pLQjJXdkJTM01BaU1HWU1OdHRGTkhMWUJPS3NuZ2xFNFg3blFUdWhyS1Z2XzZ0QXh1WXA2b3ptQmJIUERoelg4NFdYc0FKUk5IeElaUkhfbUJBc3VDbEVtX1h5V05nc19Qazc3VmY5cFNSay16LXpiUGNTX3R5S0lVOFR1MmxHbWpfbEh4cm0zUUk?oc=5) |
+| 3 things to know about RFK Jr.’s MAHA report on children’s health - PBS | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxONVVUUzMzVGQxY29laHlTMkxfc3JJdG00SlVXSDdrVG45d1NCaHdWeFEzVGNRbEFXcHk3Y1dETHRjaVVjVzdxSFVtTmw5UmsxcnU0OUIzd0NxeUt2NXd0TU1oSEVIT0IxQ2tBRnJfVFRuQmhnMzd4bGw2MkxsWUFmb1Aydk5BU2VaeFF1S0tfQUV4Q0puZW9iV1V4VVBXLTk00gGmAUFVX3lxTE9uLVZqUHl3OTRMRDNnOE5jcUkzQUlyRTZPQU5ESDRtV3VqMzRsX2lveDNIeUY3R0V6ZUt4UEpxazN3WThNeXFsRkdxT1c2Q1BfbWhXanVEdVNXSkFRNnVkY0pLMjJ1Sk9JQlRJdlNSa0NTNzBtdVg3RExueVF1UHNmREljZlltU3hLRXpWT0ZrMkJPTGZSc1AzcGJGb3k5NjdCQjY5dWc?oc=5) |
+| Supreme Court to weigh legality of Trump’s tariffs in key economic case - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNSTd1VTNnaGZhekxyaFpaUW9sLWF0SDgyZFM4dFBzNmw4WWlhb0pvODVtT01sVVhfNnNUelNZZ2JoTHduZTB5ZHNrWVFEVEVDdmQxd3RkbDFkU0xOa1VHek1rSVA4MWtWMG0tYndJQlV3Um9NQkJwcnZRSHM0MWl2VHYxcDRkdm5kTEgtSDN5bzZpMWgzLWJZb3poV1E?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
