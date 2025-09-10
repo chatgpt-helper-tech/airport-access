@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 04:48:30（北京时间）**
+🕒 更新时间：**2025年09月11日 04:56:16（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | 'Recklessness': Kamala Harris turns on Joe Biden in new book - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQV3hsbFlfQVhQMllOTWRCVlh3Qi1kU0tBdmdPMXRWRTE0UXQ1eVNFRzZGVmJkanE1V3FKVHpPTDNLdFBUNVh0VDhRb0N6NlNfUl8wODF1amlrYTFOMkowaUZMWXM3Q0RybENKc1VlaU1GMnA4UFBiWVJlMGFtM3cyWWN4WW9OZ09POGVDeWk3b0RjRHRsTG1wM0cxYnI4ZWRmazJTUdIBqgFBVV95cUxPWW5yWUZTSjlKMHlYby1hdE9LbFR5cDQ0cDVsRDdDbDgxaktfbjluUzhCTjN5YXBLaHJSNzhQQmh6eWdGcXNLb1dxOHc1Y1UzVElfWkpaM0VhZHdSVkZaRlltVFlCaWgtR2VlQzNVVGk1aWxubVNDT2NmNkJqSG53bHhpSm10X1JmZDdzZ3NqakU4eWxwZEZOd24xczJ3bWZnd0JVUFdtTnNYdw?oc=5) |
 | Trump demands death penalty for Charlotte stabbing suspect - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOWkdaWXhQMnRGVGhLM1FlNDA0N2RyMXV1SVE0ZGo4ai04aXNvektSanNfYklCTThKLTBQbGFZLW9aSTBPVlhVeTB1OTJJRkc0eXdKVDdRX2hNTDgwc1lUVlRTeVIxVUNUM0hCVXRxMi1KaFhrQU1Xb2lWTkZMX2NtN1dOMy1xSTFsOVE?oc=5) |
 | Trump greeted by protesters in D.C. restaurant where he had dinner but cheers outside - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPbXc5NjJONFc5Mm1NQXlsQTZOUDlTYnpMbENFQVlSa1NWSkZManhYNG51QW9QcXA4SmhRNzRkSUx4djl2djNxTDBmWVplcDNLeTltbjBJWEwxdEZmRS1ZRmZsbXZOTkRvd2gxcVpXTEQ3Q1VpWWhmSC1HYU81Nk96b9IBhgFBVV95cUxOV3JBNnBJUy1GRkdFRVBObDI5SWNfUk9fclpLOU5uN2JSekRxRE1PRXlMdE5HeS1VMGpPUVBUTXlwSkxxVGN2MEw0Yy04eGYxenUyRzh4YUdXQ2pOd2gwN24wV1ZZVElpRGY5MWdoT3pvdy1NemxudmJhVDdQWkppam1YVGIyZw?oc=5) |
-| Trump is fine with letting his DC police takeover lapse, White House officials say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQMDFtQUtMSk9uQkV2UFVUbG5rXzhZSnZrZk5FLThDTVNGVld0emVDS0k4d3RlNnQwVEtLY3J4WDdjMUlaX3BONkZtMDRzckFMdlJSNGJucDhOZmFvaFFiYkkzb2t3a0lVb1R5LV9LMndPRWkzZmNZaGZVeHFsOHp6ZQ?oc=5) |
-| Texas Professor Fired After Accusations of Teaching ‘Gender Ideology’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNLWs4SmRFNHZSQ3FzNVY2Ri11M1NudHlXVUk5eVdneFlJOU1yVG9ucU9KQ0sxdjB2dVFPVXhaNHdyZmxUTzQ0NWhmRktva1BRd3ZJYjQtNUZTNFJDb2FLcjU2dk9MMlRkY0E3WE9qT1NBNnU3aTdsTmVrNjliWXB1dFU3QXJHd3M?oc=5) |
+| Shooting at Evergreen High School in Colorado leaves 3 students hurt; first responders "not certain how many shooters" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQb0RpbTlmTFFSQlNEdF9iekpKSEJDWWxJRmtXNVpuazhHeVVDWk5TYnBseEtYcUNweE5JVUhSbGpfVzdFREx2enJBYzdabHRjenFiSUxKRW5nUDVsTmNiVzl1WmRSV2dDQjBpbTlOWE10dXA5eW1zV3dTekdUTTlfSlVwbjcyNlBXM1FrMUlxaFE?oc=5) |
+| Children’s literature professor fired by Texas university over ‘gender’ content - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQR0Q4T2t1REdaS1hpaWdKRHRQcW8wYl9mZTdyUWswa2NzLTV2WjZ3anl0TTNRVmd0bTkzb1hHVEJxYWtibzlOMDlWN1lTVFV1QkxtNTJrSXB4UUxzV01NMGN1Y3hKTXM2QUw3b2w0Um1yRlQ4bGsybE8zdWVzU1IwRTBBbW9LWVJhUThFblhFdE5ZRWdQNjQtRlo2UXo?oc=5) |
 | 1.6M fewer US immigrants expected this year amid Trump, GOP policies, CBO predicts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi4AFBVV95cUxORzJQdUd1U1hsU3djYlBOTGV6WmxKVV9jUU5URkJ0SWs4MTJ2VzBhckpZMDNvM2RUSWpCdGxPLVZDcy1lY3NqeEhfeVJpNjdqZnpfSTUybzU0ZXF6SGZvWVZHWGdGMGRDcURycmo0blhGaW9nWG5yaENnajZIeFBTeWhYdTFrSWNzVzB0dG5zN19lOXlJY3EwNFdCYUZweEpZLVphb1ZiT3BlenUtT2NhNENCX2VrNXd0X055emc2LUEyU1Vyc1JXdlFuQjgyTC13M0FaWUR2dHc3QkFIVjJwaw?oc=5) |
-| The Democratic Minister-in-Training Who Just Entered the Texas Senate Race - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNemphUHVBNEpESFNuQ254QndiSTJrTm9raXZsUUZQcC1Hb0dsVEVZZ1hoUW81VUlRbm1wTTJXam5mMEEtUWU4SWFqZkFNSHJGM2M4X3FNVnMxaFNNV2dRVVN2aExQNjVkRXdVajY5SjVZZ0R2LWY1b092WEI5SHZQcHdwcS15WllxZVVWdTRTRmZzUTVheW1zcmJUSHQ1bURhUWo2STRodmhSX0FPVHFUVlYtS0V2WnlhXzdQMnZpMA?oc=5) |
+| Johnson backs Virginia wind project in break with Trump - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQc3p1WHp2OHQ3RUo4TDlzZUtVd0R4TmFMWlBhSnRhTU9IMzVzUUIwVFJJMFk2c0RSeXlWVlQwVVNzdmEwZmR3M3hmdUU2dTl1NFRqQUk0ZHlYLTJzaDJCT2k5eUo4VktLZmh1LUpDUjZMd05ldmRGM280UXpuOGN3b2pzNXFVZzhBNWpKZ0hJblpBMHVXN1NrVVZwU0ZTbUJHaFNsWWVScEZpYjd3VEtIZXRFVmE3cVNfYi1hSWJYSnNrSzQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
