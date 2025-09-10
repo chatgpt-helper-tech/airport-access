@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 12:57:10（北京时间）**
+🕒 更新时间：**2025年09月10日 13:00:13（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | US Supreme Court pauses judge's order that Trump spend foreign aid - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQQ3AwbGU2dnFwdlVNa0tCdWYzMy1lbnBBTTlhSXpZdEFMa0RyMUFiWWlWZXo3MzNOLVZIQTkwMS01Q3pod1BscE9PS2xzVEhwNzR3WElGeDh3MHd5OXlIVWNoX1kxX2ZZY2hNaG1EZTV5eDAtNGM0WXRwcTJnQUE3RUJHbl9wRXlNVU1EM21jc19yYzlSX1UwTUg2cGRTVGdZV243VFRrVnlZcXVfRFRlMjJHVXk1UlJoVHc?oc=5) |
 | Judge blocks Trump from firing Fed Governor Lisa Cook while her lawsuit plays out - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPQzd6cS1vLW0xd19xNDBvcE9IeWFhNmRaZlZQLXJHSW9rSVVybTdnYnlORjk1SkFhOEFMSlRjeGswQWtKNlQwa2JUUFZORUU3M2FVcm9VdE1jUWVaa2ZEbTgxbGRLWjkyYjVmQTNWc3dBU1JERnVpU3NqMllNZ25wWGNmb0ZURjJOaFk2VNIBkgFBVV95cUxQQ3Uta1cyT3o5VFR6WWd5ZVdlSUtJcGx2LTZqVlJRNndDeUlRWDNseGY2dmFUVWtzZjYxdGo3Qk16NEg3R0lfVF9QdkdBNFNKZjd3S04tMTRYdTlsQWI2U2c5Vm43NUEzeTBwTFQ3ZmpVVjBkdEZMTW1FcllaN21PajN1R0VXODJ2aE10UWpudlBUUQ?oc=5) |
 | Suspect in Charlotte train stabbing facing federal charges, possible death penalty: DOJ - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOV181S3gtUmZqajRQUGRnTVk1U0RyQ1h2YWJPb0FBOFdiSldkVE1fanFpM1VHdWlRQkJMR1BNQWUwZ1k1UkpwdmVaS0Zpd3FPVGJlZ3N6T3pXZnBDUmxHWm4wTDBkZmk4YXJyZnpKaXhUQVFYcXRXX05hZmlndWo2UncxY1ZaXzFCVkVYYUQxUk1EUmF6bEQ4VGdyYUNZclRUSm4xTdIBqgFBVV95cUxPSWtBaTBaa0xCNDlvX09TNk9ERHRWNkJxZXE4MXpQSno5UEZpN1NwUlA5X29FODJ3U3ctVDNySnV5aXU1WDQ1aXdydmdWbzloQUREdGdidFZqVFk2VDFQYXJxMkZFdnZNV01VX2pja2RfZUlNZDlLYmQ5cDNaSUtyWE5uY1B2RnNIdERsYmpzX0hDUUVmLTU1SEZpZVE4U1FzMVV4aEttbUtrUQ?oc=5) |
-| ICE operations ramp up in Chicago ahead of Mexican Independence Day - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNeVpjM3ZDaS1faUptY25nZm9aUUhCM1Y2aFpMQlVIaDJYR1JlRk5uTG93dGZEbnpsZmlySjdSNjE5bWkwV3pVMTBLXzJFUmR4WEMyQWhFTFN5cWpNMVRkeDdWMmxVZ08wVno0ZEVSQkRNZlBGVXFJdXM4VEoza1VWeDA1V2VqelpTeWpqUjFVampKdw?oc=5) |
 | Critics fault Supreme Court for allowing immigration stops that consider race and ethnicity - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxNNG5TRXpWMXRMakNxX01qQmlaYzBweUFSY3czSzdHNWpMOUNGbXltQTBvZkpreFNGT0pFWHpXeXJTX0FsdUVwaXpfWmluODVRN2hocmg4RjlxYWRnTUR1c3RiTGNVeHo1MXlWMG5VaG1vOWljZmc2OFJuUDhNSEFJQUJMX1VuOXAtelV2QWRVTDdtc2JJdHJDWmpLU29sRVViRE9LcXJYLTJ5bVYwUkRqazh2WkM1NkswcTV0Q3lPZml3aXJPSW55Y2F4SDlrMDFXWUs4?oc=5) |
+| ICE operations ramp up in Chicago ahead of Mexican Independence Day - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNeVpjM3ZDaS1faUptY25nZm9aUUhCM1Y2aFpMQlVIaDJYR1JlRk5uTG93dGZEbnpsZmlySjdSNjE5bWkwV3pVMTBLXzJFUmR4WEMyQWhFTFN5cWpNMVRkeDdWMmxVZ08wVno0ZEVSQkRNZlBGVXFJdXM4VEoza1VWeDA1V2VqelpTeWpqUjFVampKdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
