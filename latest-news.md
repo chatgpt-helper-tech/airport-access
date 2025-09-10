@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 04:25:22（北京时间）**
+🕒 更新时间：**2025年09月11日 04:33:34（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | More embarrassing Epstein exchanges to come, says Mandelson, as Starmer pressed at PMQs | [阅读全文](https://www.bbc.com/news/articles/c5yevwvvneyo?at_medium=RSS&at_campaign=rss) |
 | 'Netanyahu, we're not leaving': Defiance in Gaza City as Israel shows aid sites planned for evacuees | [阅读全文](https://www.bbc.com/news/articles/c0lkz0l4x51o?at_medium=RSS&at_campaign=rss) |
 | Life on Mars? 'Leopard-spot' rocks could be biggest clue yet | [阅读全文](https://www.bbc.com/news/articles/cd725pj0g9ro?at_medium=RSS&at_campaign=rss) |
+| Gary Lineker ends Ant and Dec's 23-year winning streak at TV awards | [阅读全文](https://www.bbc.com/news/articles/cg7dgd394kno?at_medium=RSS&at_campaign=rss) |
 | No 10 files raise questions over whether Tory donations were legal | [阅读全文](https://www.bbc.com/news/articles/cp3qww29146o?at_medium=RSS&at_campaign=rss) |
 | Harris calls Biden's re-election bid reckless in new memoir | [阅读全文](https://www.bbc.com/news/articles/cq5jgg1491do?at_medium=RSS&at_campaign=rss) |
 | Phillipson cements status as Labour deputy frontrunner | [阅读全文](https://www.bbc.com/news/articles/c5yvdxvx449o?at_medium=RSS&at_campaign=rss) |
 | 'I didn't know I could ask for help': Bruce Willis's wife on caring for Hollywood actor | [阅读全文](https://www.bbc.com/news/videos/cp8j2v458z8o?at_medium=RSS&at_campaign=rss) |
-| Teacher who hid with child from Southport killer feels 'crushing guilt' | [阅读全文](https://www.bbc.com/news/articles/ckg3xnv1lq2o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | Trump demands death penalty for Charlotte stabbing suspect - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOWkdaWXhQMnRGVGhLM1FlNDA0N2RyMXV1SVE0ZGo4ai04aXNvektSanNfYklCTThKLTBQbGFZLW9aSTBPVlhVeTB1OTJJRkc0eXdKVDdRX2hNTDgwc1lUVlRTeVIxVUNUM0hCVXRxMi1KaFhrQU1Xb2lWTkZMX2NtN1dOMy1xSTFsOVE?oc=5) |
 | Children’s literature professor fired by Texas university over ‘gender’ content - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQR0Q4T2t1REdaS1hpaWdKRHRQcW8wYl9mZTdyUWswa2NzLTV2WjZ3anl0TTNRVmd0bTkzb1hHVEJxYWtibzlOMDlWN1lTVFV1QkxtNTJrSXB4UUxzV01NMGN1Y3hKTXM2QUw3b2w0Um1yRlQ4bGsybE8zdWVzU1IwRTBBbW9LWVJhUThFblhFdE5ZRWdQNjQtRlo2UXo?oc=5) |
 | Johnson backs Virginia wind project in break with Trump - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQc3p1WHp2OHQ3RUo4TDlzZUtVd0R4TmFMWlBhSnRhTU9IMzVzUUIwVFJJMFk2c0RSeXlWVlQwVVNzdmEwZmR3M3hmdUU2dTl1NFRqQUk0ZHlYLTJzaDJCT2k5eUo4VktLZmh1LUpDUjZMd05ldmRGM280UXpuOGN3b2pzNXFVZzhBNWpKZ0hJblpBMHVXN1NrVVZwU0ZTbUJHaFNsWWVScEZpYjd3VEtIZXRFVmE3cVNfYi1hSWJYSnNrSzQ?oc=5) |
-| Top Democratic leaders will meet Wednesday afternoon to plot shutdown strategy - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNbzM0ejBSRWl1OXZmMkVZMzYwSk9FNGlQU2dLUTV1YnhlQ1M2OENYUC1adHVwUVNINFM0alNvRWowS3VvaFNvMmVQQ2cyd2ctMWY1eUhaQnF0eW95VXlDRzNsbWhKSUdma1dHLVZJN1FJUzRDVUhWc3oyZU0yZW5OajhDS005blgtWFlPRGJ5Qy1yMFh1OFBKNjVyTy1xWXQyb0RneVhsMA?oc=5) |
 | Shooting at Evergreen High School in Colorado leaves 3 students hurt; first responders "not certain how many shooters" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQb0RpbTlmTFFSQlNEdF9iekpKSEJDWWxJRmtXNVpuazhHeVVDWk5TYnBseEtYcUNweE5JVUhSbGpfVzdFREx2enJBYzdabHRjenFiSUxKRW5nUDVsTmNiVzl1WmRSV2dDQjBpbTlOWE10dXA5eW1zV3dTekdUTTlfSlVwbjcyNlBXM1FrMUlxaFE?oc=5) |
+| Leaked Ice document shows worker detained in Hyundai raid had valid visa - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxObFVYSkJneFJ3dWJmNEg3Y0w0My1zZ041QTRuSTVUZjNGTkt0ZVJ5YUExZXZzdVVFR2s3cHZqTldnbjZRblhGY05HNWtIYjhHWVpFZVZXZXBOclp4VUJsc3FsREE5bzhCbm5OaFFPeVFLRFc2SkcyVHdCb1FjMDBHU2VaVmEyRWhqN3ZZ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
