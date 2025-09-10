@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 17:16:46（北京时间）**
+🕒 更新时间：**2025年09月10日 17:24:39（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Poland downs Russian drones as 'huge number' violate airspace, prime minister says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPM2szSkh0SXVhUmlhaXpkZW1MeHpGNjJCNWpkSGd4VFE4QV90X1F1Y2Zvb1FvQ1puYTlvTEVkNjY4RXpqb1UyekUxYXpSX3NoVGV6NEV1dS1rVGpkWXNYbGwycFVRdF9mbkhNMUFOZHY1b3IwNmFrOEpCblZQUkF6OEpLYU8xZlFKZnVVbU40LXQ1eWk3M1l1dS1qRmlMZGpDQXo0YXFXQTRYNkdwMWpDYmhMWVY0UdIBuwFBVV95cUxQRXVaMzBXN01PSTljcFZIaXVkWmU4RldWQUpNbk00d201d0plMDJuTUY2RjVvVF8wNXd2SmxNQzNWT1JaaFd1a29KS2dPbHYxRndvcG54VVFLM29Dd01BUlB0dGhCbW5BVk9ZUnpvUjl3WVE3ZFlpbWdnaVprZkxMNk0zc0tDZmdWWWV3by1PREhvazJ6WVV4S2R4V25KSmI5aml1N2gwQlFCRnVQR3ZlUElwR3hpWExkbnJn?oc=5) |
 | Israeli airstrike targets top Hamas leaders, upending ceasefire talks - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPeDlrbHR4Y0JyejdBd3RqSDNaOHRKdlNyZjNEcWRhQ0RIdjdBamVrMGo4WFZjWXBsU2JsUEdhTHJpbU51WDlHZ0hvbnpzZnJfcXNtTkFadDRCMG1Wdm1OSmFtcWZheS1CU3N4YjlKQ3NkSWtYSm1HX3loWkxkeFZXTnFJRQ?oc=5) |
-| NATO member Poland shoots down drones in its airspace during Russia’s Ukraine attack - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi2wFBVV95cUxObkNTTk4tcTlaVEJ6RVQxNHpldXRFbGRicWp5UzdkcjlOOGFLZERDR0pvd1dZNDVXaUNrYm9rcjJpZ19oTW03X0RQdHdqSnN1TEFBbHNWdkVnalk5NGIxNmFuZi1hcjFwTTAxTWtBQlplSEZsUlZVZ3R0dEtMdXhrbTJ1UkxuVEM1UmZTWWVrNXE3c0I1X0gwZkJvWm5LX1NnQ2VLcVZrVW9NUzJtMkZsT1dmRm14OEV1SmNDUEk5ZFpqSlNhNUIzMVpzOS1XN19rYkZVT25SQUU4MzA?oc=5) |
 | Suspect in stabbing of Ukrainian woman in North Carolina charged with federal crime - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQbnhLaGRvSkZGRFBQVlJzVFJLV0xYazhHUFJDdEdrR3hyRjM4SFozV244VTVFcWN5VzltSFMzb3dFOG5xX3JWOW5wZnh1SU5uakV5NGE0Q2xEWGRvVzFyd19wTFV0VmlTOW44X1VTVHI4akVQVnZFQi0tdDB6OUsyNzFNTTJ2MFhMQUM0ZEln?oc=5) |
 | Trump warns thousands of pharma companies over "deceptive ads" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1vZ213YWswbVdPN1RnYU83bGdna0lCVGJzUEhOTXBVTEJzZnpEZTRtWjQ2azNhT0JKcEVLZGdUZVgtNHQtYVRUV3FndTVBc3phZVVQanlKNHN6VVBBaWNZTmRuQjBQaUdIckd2MXBVZTlidHhsaWxFX0g0dw?oc=5) |
 | Chief Justice Roberts keeps in place Trump funding freeze that threatens billions in foreign aid - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOZ3RzZUo4OFFjWTNFMEU0QjM0VGl3M1hFaFk0cnBoMGt5U1E2Q1o2aEFZODl4MGhTQ2o2dVRocUdmXzREYWpXVTVqZElWUGxYbGdOUVJ3YTNtbzhTYnFhb3lWRTFzOWVVNFFUQ29EY3ZYWGRrVHlwbkJpZk5Kb20wTWhoZ2tMUlV1WlRkUUk4V2FXMExUQzZnWGhvVmxvZHc?oc=5) |
