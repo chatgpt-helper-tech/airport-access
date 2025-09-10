@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 01:56:42（北京时间）**
+🕒 更新时间：**2025年09月11日 02:01:50（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump jeered by protesters as he dines at Washington DC restaurant - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQSXduMW5TV19zNW5yT01BUzI1aTJfU0JBNExXdGcxRG9mY2hPOWtKeU5DR2FPMGZ0QS1hWWNzdnVQRER4NDJibXJic1VLTzJFZDhPcG1ZTHpLMkM5a1BHTVlISkplOGVIV25MQlB0QklTZElGcnRoNFdkMXlGQ3M4UEgtcG5iMm5BNDJhYUdacTBoVFk?oc=5) |
 | Politics, retribution behind FBI purge, agents allege in new lawsuit against Patel, Bondi - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOOWlDOU5pak5SS1RjQ3pkRk9lQkVWQU9KMmRGWGZqZ0JPb2kxZkZiMjdJQThJMFNGX0k4YUFIenZNdUNPb1VTTHZaRllWV1lGSG1hVXlhX2FyN1lIU00tM3NFQUp0OVIwLUlrc1NOUmp6dzZjT1g1dDVROW1IZFJndUtTckhzcVRLVDU0NnFtc0pyX2vSAZgBQVVfeXFMTjAxMnVFdlU4OVRVU0YwOVB1dFByX2JIeEl6NWo3NkxLUFRMN3dESzdLaGxCUUJIeVhFaXR5SXU1RXI4QlBIS2xYck1JWEsxY3lyenZab0kyLTBydzd6NjdQWk1PUUVyM1Bya1dFZkRzOXRPLUdmcTRGeHFGdms0cnlIS2hPZUZjYWxrUzAyVUxTMHQ1RnZ5dVU?oc=5) |
 | Trump's control of the D.C. police is due to expire tonight. Then what? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNY2Z2aTh1eUo4NFZVTXdjNm1iU05JRHU3dFNJV050ODUtZWt5aWdNOFIySENwbFQ0RVEwdFZfMHRsdV9xZlNtYkdvSnZadmJUS2RlVDBkTnl3ckE3bWkxTU94eHJGalhXV05tUE9SYUdEVDZBZ3d3aEhhRHYtc1pMbA?oc=5) |
+| Longtime head of Mexican megachurch is indicted in New York on federal sex trafficking charges - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOWGgwWEI0b25hN0xmTmNtMEFuaTFrSHR0SjdNWmh6ZEQxcW9vNnlGX1lNY1FPcmFwMlNHVWlTVVFxOHdnMEl6R1lubUtIeHpBNXVzZVdTb2lWQk11amJIeVlJcG1XdmFKYzFONWU2S3ZBVmNoaGs3SVF4WDAtMS1GWnRWQ0RiV3VuODNZWEpaZGo0MDB3OTQ5WExDdEY?oc=5) |
 | Johnson backs Virginia wind project in break with Trump - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQc3p1WHp2OHQ3RUo4TDlzZUtVd0R4TmFMWlBhSnRhTU9IMzVzUUIwVFJJMFk2c0RSeXlWVlQwVVNzdmEwZmR3M3hmdUU2dTl1NFRqQUk0ZHlYLTJzaDJCT2k5eUo4VktLZmh1LUpDUjZMd05ldmRGM280UXpuOGN3b2pzNXFVZzhBNWpKZ0hJblpBMHVXN1NrVVZwU0ZTbUJHaFNsWWVScEZpYjd3VEtIZXRFVmE3cVNfYi1hSWJYSnNrSzQ?oc=5) |
 | Top Democratic leaders will meet Wednesday afternoon to plot shutdown strategy - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNbzM0ejBSRWl1OXZmMkVZMzYwSk9FNGlQU2dLUTV1YnhlQ1M2OENYUC1adHVwUVNINFM0alNvRWowS3VvaFNvMmVQQ2cyd2ctMWY1eUhaQnF0eW95VXlDRzNsbWhKSUdma1dHLVZJN1FJUzRDVUhWc3oyZU0yZW5OajhDS005blgtWFlPRGJ5Qy1yMFh1OFBKNjVyTy1xWXQyb0RneVhsMA?oc=5) |
 | Delayed Release of Workers Detained in Georgia Raid Fuels Anger in Korea - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNOUMzNUZvRUlqcVFKYThRUTNUeG0wbkRzaDRlZFlhYlBQQ1RlRE4yTWxncUEwYnl2V2k1cW9Va3FtRHh3M2kzc01RWV9iUVBibm1pRndVZ05lUk4xblBKanlGQmFTUnFGNWp2RGNyeE5wLTNTSHhzQ3JLVXhiMFFiVEVBbWZRa1E2OGhSRlZIa1I1NWRVM2NyN0VEWXN0Y0tPSmdPX05R?oc=5) |
-| Appeals court says Trump can’t fire official who prepared AI report he allegedly didn’t like - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPR0M5OGJiZ3RDSTJ6a3VMQWNMZklDdGVISm9kZ2l6cnRUcWdyV1p5Uk5Yd0pUWXc3VmZMcU52VDBnTldhUS1icnBGaGNJOXBNSm1VbDFKeGpQRVBQV283N0U0d19KSmlnVE5kazJPWmZFOWtrN0x6ZUVoZXJmWFhBdGIyVl9mZHQ1STFYNlRpbVp3RlFvamhjRg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
