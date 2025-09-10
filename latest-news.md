@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 12:48:11（北京时间）**
+🕒 更新时间：**2025年09月10日 12:57:10（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | White House rebukes Israel over strike on Hamas in Qatar - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPSW1YWHpDd3Q5b2VjeDVmaFN6SE9EdjdsWTVFOTZhR0YyWUU3VnZKaXhYaHMzRWRwVnN0RlJ3QlFmLThhMElrR0NtYU1Hd3hHLWZJeHlXSVNIem9xVzdOY3V6aExjZ1hGbldlOWp4NzdJZTNUUXlHZldFNVBDcU9EcnFjaUo3cGktVHdDXzJ3?oc=5) |
-| Polish armed forces say Russian drones shot down in its airspace - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFBVNF9GUmM3d1NJVG5qV1QzZWdmX2VoRnQtQmtrX3JMdFktTE43LXczTW1FS2FoR2RlOXo4ZE9pSUZJNXIzbjJON2Y1QjlYQXJSUUFMcg?oc=5) |
+| Poland shoots down Russian drones after 'unprecedented airspace violation' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFBVNF9GUmM3d1NJVG5qV1QzZWdmX2VoRnQtQmtrX3JMdFktTE43LXczTW1FS2FoR2RlOXo4ZE9pSUZJNXIzbjJON2Y1QjlYQXJSUUFMcg?oc=5) |
 | Trump Moves to Crack Down on Drug Advertising - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNWHBNSmVCMmo1elJ3Yi1PMmx2Y0I5V3hlX1F5VmlzdnVOSm90b3VOdTVYQVFDQ3JqVzYtTTZWeFF6aWVNYmtyaFJGN1g5bHlCTi1ZeWF6ZjllVlRSX0owaXNDRjNMMkF3LUpJaEpTZTlldUE3RDAtckUyZUxiWkZMOWszd1VaYi1TeWd3?oc=5) |
 | 'It's not my signature': Trump says about alleged Epstein 'birthday book' letter - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxONFc4SVgtbmJjc0QwZ2NTNWd6bzhFUUxGMURMd3BqNzdGZlJMR3lZYXJhRUdGQk5CWnBNMFgtSGR2c0l1VjZLNVQ5eTUyMWVFdzc4TUhSRDZ4YlNfVkc4Y0VIdXQ5ejJFc1VBSnRwYXBTS1c0azN0YW1fZlV6OGxBUlBsUGFuTjZSN09oX0g3aUc0NjlCeXlwUDlReVRtWTBMYktyVmJLc2pMVzlCLVHSAbMBQVVfeXFMUFUyUU9ER1NrN1FLTWhRazV5akpxZ05SY0tpVFBtaFhDQy1QT1ZFUXNIVE9NbDFQa2I0SEtFaHlDVGFDNzdDLXBNQlV3a3FxVmdQaFU0TFR4aVlYeVlqemRwQ1VFQk5PZnpJQ3BHMHVDYUFhUGt0R1NRZUZmUmNIemdUdWhaRTliSHBTcUVIVWFNTndBYnEzd2xsRUJGLVpNb3pTdHgzelhMQ3E2ODZfOGJnNlU?oc=5) |
 | 3 things to know about RFK Jr.’s MAHA report on children’s health - PBS | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxONVVUUzMzVGQxY29laHlTMkxfc3JJdG00SlVXSDdrVG45d1NCaHdWeFEzVGNRbEFXcHk3Y1dETHRjaVVjVzdxSFVtTmw5UmsxcnU0OUIzd0NxeUt2NXd0TU1oSEVIT0IxQ2tBRnJfVFRuQmhnMzd4bGw2MkxsWUFmb1Aydk5BU2VaeFF1S0tfQUV4Q0puZW9iV1V4VVBXLTk00gGmAUFVX3lxTE9uLVZqUHl3OTRMRDNnOE5jcUkzQUlyRTZPQU5ESDRtV3VqMzRsX2lveDNIeUY3R0V6ZUt4UEpxazN3WThNeXFsRkdxT1c2Q1BfbWhXanVEdVNXSkFRNnVkY0pLMjJ1Sk9JQlRJdlNSa0NTNzBtdVg3RExueVF1UHNmREljZlltU3hLRXpWT0ZrMkJPTGZSc1AzcGJGb3k5NjdCQjY5dWc?oc=5) |
