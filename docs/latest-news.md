@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 00:41:12（北京时间）**
+🕒 更新时间：**2025年09月11日 00:49:31（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump is fine with letting his DC police takeover lapse, White House officials say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQMDFtQUtMSk9uQkV2UFVUbG5rXzhZSnZrZk5FLThDTVNGVld0emVDS0k4d3RlNnQwVEtLY3J4WDdjMUlaX3BONkZtMDRzckFMdlJSNGJucDhOZmFvaFFiYkkzb2t3a0lVb1R5LV9LMndPRWkzZmNZaGZVeHFsOHp6ZQ?oc=5) |
 | Delayed Release of Workers Detained in Georgia Raid Fuels Anger in Korea - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNOUMzNUZvRUlqcVFKYThRUTNUeG0wbkRzaDRlZFlhYlBQQ1RlRE4yTWxncUEwYnl2V2k1cW9Va3FtRHh3M2kzc01RWV9iUVBibm1pRndVZ05lUk4xblBKanlGQmFTUnFGNWp2RGNyeE5wLTNTSHhzQ3JLVXhiMFFiVEVBbWZRa1E2OGhSRlZIa1I1NWRVM2NyN0VEWXN0Y0tPSmdPX05R?oc=5) |
 | Johnson backs Virginia wind project in break with Trump - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQc3p1WHp2OHQ3RUo4TDlzZUtVd0R4TmFMWlBhSnRhTU9IMzVzUUIwVFJJMFk2c0RSeXlWVlQwVVNzdmEwZmR3M3hmdUU2dTl1NFRqQUk0ZHlYLTJzaDJCT2k5eUo4VktLZmh1LUpDUjZMd05ldmRGM280UXpuOGN3b2pzNXFVZzhBNWpKZ0hJblpBMHVXN1NrVVZwU0ZTbUJHaFNsWWVScEZpYjd3VEtIZXRFVmE3cVNfYi1hSWJYSnNrSzQ?oc=5) |
-| Supreme Court seeks to avoid being cornered on Trump tariffs - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPbDEydWZXWUNkYjVsVUNSbWJOV1E4WXJ3U0t3eDJLbnE5eTNEeUFPRjkzQWw1UWFjN05OenNaTDZqaGl4YjBUNTA4TXd2U29zYndmNlFPSmtHMXlSNldzNklZUkZMQl9IeXE5Sk9uQWxuTVJVNlAwc05lZXJNUzFDanNZclfSAYoBQVVfeXFMTTZvQ1gtV3dqa3JEYXNTbkpFMWdqY29XbWxmSzlRVm96ZVdDRDBqNWlrSkxtdkFsM1pFd19rMlp0LWtiZ2s0RG1HcWp4ME1KUTg5ekxRSzNkTG5FR1BrYXdMeVNOVHQxeHFNV0NtNDZ1eXFTNVduTl9iY3ZiM1RpWjFBS05UNi1SdktB?oc=5) |
+| Democrats embrace government shutdowns in Trump 2.0 - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxON0VJNVRLdGxQQW5fU3ZsZ3BYX0paQkVZbm9fZ3BfVy1xeTM1MTA3VXdwYkFxbWQtblhzak4tdjgteHlMOFZ4THFrOHJOX25mOHhnSnZnZ1BwRVNqcThrTWJnTU1mTHlvUllxUUt2d1pLSUVIVm14R05LVFlCbVpwM3N3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
