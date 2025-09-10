@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 20:49:41（北京时间）**
+🕒 更新时间：**2025年09月10日 20:57:24（北京时间）**
 
 ---
 
@@ -8,16 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| More embarrassing Epstein exchanges to come, says Mandelson | [阅读全文](https://www.bbc.com/news/articles/c5yevwvvneyo?at_medium=RSS&at_campaign=rss) |
+| More embarrassing Epstein exchanges to come, says Mandelson as Starmer backs him at PMQs | [阅读全文](https://www.bbc.com/news/articles/c5yevwvvneyo?at_medium=RSS&at_campaign=rss) |
 | Sacked referee David Coote accused of making indecent image of child | [阅读全文](https://www.bbc.com/news/articles/c80g5v1lg0eo?at_medium=RSS&at_campaign=rss) |
 | Banksy mural scrubbed from Royal Courts of Justice | [阅读全文](https://www.bbc.com/news/articles/cm2z30p033ro?at_medium=RSS&at_campaign=rss) |
+| Protests hit France as new PM takes office | [阅读全文](https://www.bbc.com/news/articles/c8643qg252lo?at_medium=RSS&at_campaign=rss) |
 | Anti-Islamic US biker gang members run security at deadly Gaza aid sites | [阅读全文](https://www.bbc.com/news/articles/cm2zy4l8jgeo?at_medium=RSS&at_campaign=rss) |
 | See stunning shots of Chappell Roan, Charli XCX and Doja Cat up for music photo award | [阅读全文](https://www.bbc.com/news/articles/c306n1ve8y5o?at_medium=RSS&at_campaign=rss) |
 | Weleda launches inquiry into Nazi camp skin test claims | [阅读全文](https://www.bbc.com/news/articles/cy7pgd5nkr6o?at_medium=RSS&at_campaign=rss) |
 | Trump is used to shaking off criticism - but the Epstein story is different | [阅读全文](https://www.bbc.com/news/articles/cp8j3e5g74no?at_medium=RSS&at_campaign=rss) |
 | TV presenter Jay Blades denies rape charges | [阅读全文](https://www.bbc.com/news/articles/c9318dj1q22o?at_medium=RSS&at_campaign=rss) |
 | UK's first 'super-university' to be created as two merge from 2026 | [阅读全文](https://www.bbc.com/news/articles/cy85905dj2wo?at_medium=RSS&at_campaign=rss) |
-| Contactless card payments could become unlimited | [阅读全文](https://www.bbc.com/news/articles/czjv7jy2r9vo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | Trump's control of the D.C. police is due to expire tonight. Then what? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNY2Z2aTh1eUo4NFZVTXdjNm1iU05JRHU3dFNJV050ODUtZWt5aWdNOFIySENwbFQ0RVEwdFZfMHRsdV9xZlNtYkdvSnZadmJUS2RlVDBkTnl3ckE3bWkxTU94eHJGalhXV05tUE9SYUdEVDZBZ3d3aEhhRHYtc1pMbA?oc=5) |
 | Democrats embrace government shutdowns in Trump 2.0 - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxON0VJNVRLdGxQQW5fU3ZsZ3BYX0paQkVZbm9fZ3BfVy1xeTM1MTA3VXdwYkFxbWQtblhzak4tdjgteHlMOFZ4THFrOHJOX25mOHhnSnZnZ1BwRVNqcThrTWJnTU1mTHlvUllxUUt2d1pLSUVIVm14R05LVFlCbVpwM3N3?oc=5) |
 | Supreme Court to weigh legality of Trump’s tariffs in key economic case - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNSTd1VTNnaGZhekxyaFpaUW9sLWF0SDgyZFM4dFBzNmw4WWlhb0pvODVtT01sVVhfNnNUelNZZ2JoTHduZTB5ZHNrWVFEVEVDdmQxd3RkbDFkU0xOa1VHek1rSVA4MWtWMG0tYndJQlV3Um9NQkJwcnZRSHM0MWl2VHYxcDRkdm5kTEgtSDN5bzZpMWgzLWJZb3poV1E?oc=5) |
-| Boston Mayor Michelle Wu and challenger Josh Kraft advance to one-on-one general election - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPVXc5M1pMWTE1dEw5Qm43dHIxaWc5cUQ4M01nOFhtbWZEVWxlS3c4T3hfZzgwRkREMGtxVFRuWWFDRTF5QVZBa3Vud04tZlBwMWtVMXFDVEhwYlZEMXl3OEEzTXBsZml0LWh2RXlzLUdXVk5OLVAzdDlMd2lYODdvMjhrbzJ3WFF3RGtILVZlMVhpLUN2UUVsZnQ4S3FqOTV2SUZ2a2FVcVVldDU3aWxXTW4tVHZpU1c5NkMxVERfNk52Z9IBVkFVX3lxTE1mdFlsOFFkZUNRU2Z4bC0wX25vcmtnU1hyNnVma1dRbVBuQmhCMmJaYmU2b2RRNlRXcnNycVNTaHNGMTVzOUFic25PTFRUOG9TbUVBeUdB?oc=5) |
+| Democratic governors build vaccine firewall against RFK Jr. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBHSk9Kb3ItSXU3Sm5aMEMyQ1RQSzV5UjliLVppbld6cGVkTDVzOU0xdFlzZ19NbU9kdHJwdkUyMk4xOWZwclZFWGx0b3J3RXJsVWtLeTF0dU1wZGVLRlZZRHhiaW1RVnh6dzJ4RlllNWE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
