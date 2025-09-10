@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月10日 22:25:31（北京时间）**
+🕒 更新时间：**2025年09月10日 22:32:51（北京时间）**
 
 ---
 
@@ -10,14 +10,14 @@
 |--------|-------------|
 | More embarrassing Epstein exchanges to come, says Mandelson, as Starmer pressed at PMQs | [阅读全文](https://www.bbc.com/news/articles/c5yevwvvneyo?at_medium=RSS&at_campaign=rss) |
 | Sacked referee David Coote accused of making indecent image of child | [阅读全文](https://www.bbc.com/news/articles/c80g5v1lg0eo?at_medium=RSS&at_campaign=rss) |
-| Banksy mural scrubbed from Royal Courts of Justice | [阅读全文](https://www.bbc.com/news/articles/cm2z30p033ro?at_medium=RSS&at_campaign=rss) |
-| Weleda launches inquiry into Nazi camp skin test claims | [阅读全文](https://www.bbc.com/news/articles/cy7pgd5nkr6o?at_medium=RSS&at_campaign=rss) |
-| Anti-Islamic US biker gang members run security at deadly Gaza aid sites | [阅读全文](https://www.bbc.com/news/articles/cm2zy4l8jgeo?at_medium=RSS&at_campaign=rss) |
-| Jaguar Land Rover admits hackers may have taken data | [阅读全文](https://www.bbc.com/news/articles/cp8wk7rdz8yo?at_medium=RSS&at_campaign=rss) |
-| See stunning shots of Chappell Roan, Charli XCX and Doja Cat up for music photo award | [阅读全文](https://www.bbc.com/news/articles/c306n1ve8y5o?at_medium=RSS&at_campaign=rss) |
 | Trump is used to shaking off criticism - but the Epstein story is different | [阅读全文](https://www.bbc.com/news/articles/cp8j3e5g74no?at_medium=RSS&at_campaign=rss) |
+| Banksy mural scrubbed from Royal Courts of Justice | [阅读全文](https://www.bbc.com/news/articles/cm2z30p033ro?at_medium=RSS&at_campaign=rss) |
+| Anti-Islamic US biker gang members run security at deadly Gaza aid sites | [阅读全文](https://www.bbc.com/news/articles/cm2zy4l8jgeo?at_medium=RSS&at_campaign=rss) |
+| Weleda launches inquiry into Nazi camp skin test claims | [阅读全文](https://www.bbc.com/news/articles/cy7pgd5nkr6o?at_medium=RSS&at_campaign=rss) |
+| Jaguar Land Rover admits hackers may have taken data | [阅读全文](https://www.bbc.com/news/articles/cp8wk7rdz8yo?at_medium=RSS&at_campaign=rss) |
+| Fertility clinics must stop unproven treatments, watchdog warns | [阅读全文](https://www.bbc.com/news/articles/cyv64377z91o?at_medium=RSS&at_campaign=rss) |
+| See stunning shots of Chappell Roan, Charli XCX and Doja Cat up for music photo award | [阅读全文](https://www.bbc.com/news/articles/c306n1ve8y5o?at_medium=RSS&at_campaign=rss) |
 | Protests hit France as new PM takes office | [阅读全文](https://www.bbc.com/news/articles/c8643qg252lo?at_medium=RSS&at_campaign=rss) |
-| TV presenter Jay Blades denies rape charges | [阅读全文](https://www.bbc.com/news/articles/c9318dj1q22o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | Soldiers guard Nepal's parliament, patrol streets after two days of deadly protests - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPVXlFOGJvMkJ5cGo0Uk56Tk9rRWlXT2FHdlVpRFNLTFBZUGh6Y0hSeTVUU1RJQ1pYOVM3TEtRWmRUOFhUdzlJTUx4b3hmNUo4d0kxWUpRUXdOWGgzbTlkaThyd0FuUlh2NVNQTkRTU1JRY0xHbFEta3lhSGk3T3NwMVNPUTRfbkRCY1FCbWpLV3h1MG1rck5oY1ZyTndDVkR0THdqOVdYRHFMeE4zcVJQMDVlLThScHk1dmM4czRETU1QbkN4dWNJN2FwekFJZw?oc=5) |
 | Trump's control of the D.C. police is due to expire tonight. Then what? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNY2Z2aTh1eUo4NFZVTXdjNm1iU05JRHU3dFNJV050ODUtZWt5aWdNOFIySENwbFQ0RVEwdFZfMHRsdV9xZlNtYkdvSnZadmJUS2RlVDBkTnl3ckE3bWkxTU94eHJGalhXV05tUE9SYUdEVDZBZ3d3aEhhRHYtc1pMbA?oc=5) |
 | Delayed Release of Workers Detained in Georgia Raid Fuels Anger in Korea - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNOUMzNUZvRUlqcVFKYThRUTNUeG0wbkRzaDRlZFlhYlBQQ1RlRE4yTWxncUEwYnl2V2k1cW9Va3FtRHh3M2kzc01RWV9iUVBibm1pRndVZ05lUk4xblBKanlGQmFTUnFGNWp2RGNyeE5wLTNTSHhzQ3JLVXhiMFFiVEVBbWZRa1E2OGhSRlZIa1I1NWRVM2NyN0VEWXN0Y0tPSmdPX05R?oc=5) |
+| This deal could avert a shutdown — if Congress decides to take it - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNQzVtaktEdHcwSDd4UjFGR29rclZMcUFJcXhUMDkzMW9jZUdoWWRvcHlxRDd2N19LRk9WdkFZcmhhTnlSaDhyTVUwanF2U0JYMzhqWE5GajV1cm9Wc2FRM1pVNEdJUi1OS09XTzlUaG5lUTBnUllySmNLZlFiVFVnXzVtbUxjbFJNSFJzaHBR?oc=5) |
 | Boston Mayor Michelle Wu and challenger Josh Kraft advance to one-on-one general election - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPVXc5M1pMWTE1dEw5Qm43dHIxaWc5cUQ4M01nOFhtbWZEVWxlS3c4T3hfZzgwRkREMGtxVFRuWWFDRTF5QVZBa3Vud04tZlBwMWtVMXFDVEhwYlZEMXl3OEEzTXBsZml0LWh2RXlzLUdXVk5OLVAzdDlMd2lYODdvMjhrbzJ3WFF3RGtILVZlMVhpLUN2UUVsZnQ4S3FqOTV2SUZ2a2FVcVVldDU3aWxXTW4tVHZpU1c5NkMxVERfNk52Z9IBVkFVX3lxTE1mdFlsOFFkZUNRU2Z4bC0wX25vcmtnU1hyNnVma1dRbVBuQmhCMmJaYmU2b2RRNlRXcnNycVNTaHNGMTVzOUFic25PTFRUOG9TbUVBeUdB?oc=5) |
-| US Supreme Court to decide legality of Trump's tariffs - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOSkdDNS03cy1xd3BNb2UtUlpqUXhQTkhRVENFX2FiaG1XYWxEckkxYWxJYXJmQ2V5NUhZWEljNHh3MS1yaTdIQ1daUU5Vem5uSjhIV0FmdFhlMThmNFdTZ1pYa0RndVFFNjI2bExXVXBoZ19XcE15eVpUdkFPdnlzX05pVElaeGJXem9uVEVwRUtxZXlELU9OZGFTZGJkU2ZtdGc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
