@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 00:08:22（北京时间）**
+🕒 更新时间：**2025年09月11日 00:17:21（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump jeered by protesters as he dines at Washington DC restaurant - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQSXduMW5TV19zNW5yT01BUzI1aTJfU0JBNExXdGcxRG9mY2hPOWtKeU5DR2FPMGZ0QS1hWWNzdnVQRER4NDJibXJic1VLTzJFZDhPcG1ZTHpLMkM5a1BHTVlISkplOGVIV25MQlB0QklTZElGcnRoNFdkMXlGQ3M4UEgtcG5iMm5BNDJhYUdacTBoVFk?oc=5) |
 | Vance defends strike on suspected smugglers off Venezuela but concedes 'due process concerns' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNTXctVkVxUUNvWGpIUXBxbXhWSURQdzRuNnFxV2JQMU5uazBTR0dEMkY2a1VUZThINm5saFlhdG5QcWlScjhVSGF2RWV6NUJJcnRkTjBMUUtyWWdvQ18zdlg3bzRkOUtyeHp2V0RfWVlJVFFjV0VpSnpuaDBpSW0tTkUxS29YX1cwdzlGVmxCNUxRTXVtUFp2RlVYb1Z6VEU?oc=5) |
 | Israel attacks Hamas leadership in Qatar: What we know - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPa29RaldkSzkwcUNwRkRtc01mWUtRRWVEdWdOZDRhSi13UE5KT2ZEa040eXBvMmhLRXpQV1RNMXNpb2JXOTk4MWEwYy1ObDJzaV9NbDF4MDBCSG5VZHFKLW5xSTdCUmstTE5NbXZpRTRvZHJ5NldXeTRndWpFNVk4OXRvX1VqSW90VDhMakprWElPdlZDMU1Z0gGcAUFVX3lxTE1UeUJRX0JjeTFCNnBkY2hzclU2VWhOcW1oZ0RsYWZTVThVQmZLZHlTYVdnUkY0VzBVQzl4YmNjdEQtVy1JVW9XWlBlNDVCZTRZYnk1dk5INjFYU05hLTRNLW1Jd0hEX0IyMUVDUDY3aVczRWJnemp2YTdMMkdFY0s4QkgweDU2Z1R3dF9EWElXbF92SmstQWZ5ekI2Vw?oc=5) |
-| One of Trump’s Powers Over D.C. Reaches a Time Limit. Many Remain. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQZkx5b0R1MXhMNVpjM2lTQWotZnhtZldQZWdYYThGMlJmUHl0WVB6b2hKdWZfSHJtVzIwR0ZnMDQ2NE15TnpDdDRZV3JCZVk5VEYwZXpjMVB2NGFrdDJXXzFxNERLb3Z2ZGFwY05FLWUtYmdRcXJoc2dldWV5RGpMOUFWcHFnaS1ITkhwdmJ4cVhoLW85VWxIYWNqUGdpYjJheTY3d1NyZw?oc=5) |
-| Plans in the works for Korean workers detained in raid to go home while fear lingers for residents - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNUGEyZjJNbUpxTlFYN09BNlBJQndZNDlsWkt5SXp0R3lwQWVMR1h4bVZSZnJyTC1TSFB4dGVhQkFrRTdMUzdVejdWUFVXdjZFY28yLWJDcngtT2hWdUhnaXRHdFlDR2V4RFlRMDNnYXRKNDZ4ZFBXZzdyTU96UlZzblNTdE5BdDVlTFBTaWdwYWNnN2lVLVZNS3hUeXpYdDRqQ0Y2UU5fcw?oc=5) |
+| One of Trump’s Powers Over D.C. Reaches a Time Limit. Many Remain. - nytimes.com | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQZkx5b0R1MXhMNVpjM2lTQWotZnhtZldQZWdYYThGMlJmUHl0WVB6b2hKdWZfSHJtVzIwR0ZnMDQ2NE15TnpDdDRZV3JCZVk5VEYwZXpjMVB2NGFrdDJXXzFxNERLb3Z2ZGFwY05FLWUtYmdRcXJoc2dldWV5RGpMOUFWcHFnaS1ITkhwdmJ4cVhoLW85VWxIYWNqUGdpYjJheTY3d1NyZw?oc=5) |
+| Leaked Ice document shows worker detained in Hyundai raid had valid visa - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxObFVYSkJneFJ3dWJmNEg3Y0w0My1zZ041QTRuSTVUZjNGTkt0ZVJ5YUExZXZzdVVFR2s3cHZqTldnbjZRblhGY05HNWtIYjhHWVpFZVZXZXBOclp4VUJsc3FsREE5bzhCbm5OaFFPeVFLRFc2SkcyVHdCb1FjMDBHU2VaVmEyRWhqN3ZZ?oc=5) |
 | Democrats embrace government shutdowns in Trump 2.0 - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxON0VJNVRLdGxQQW5fU3ZsZ3BYX0paQkVZbm9fZ3BfVy1xeTM1MTA3VXdwYkFxbWQtblhzak4tdjgteHlMOFZ4THFrOHJOX25mOHhnSnZnZ1BwRVNqcThrTWJnTU1mTHlvUllxUUt2d1pLSUVIVm14R05LVFlCbVpwM3N3?oc=5) |
-| Appeals court, weighing Trump’s Library of Congress takeover, reinstates copyright chief - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOY3RkYmV5UDdJU0h3VDg4Y1BWbHZTTjdWUVZrTDlBSDIzcFBrakRyYmxraXVkSW5fbDhDdHZ6eGg4U1BtQ1h3YnVsVDdDcFVJZEtuZUFQUktvejBueDNoa1ZQVnl5cDVoSzFxVGM3eGdCVmhwWFFGRkItZXZDU3Fyc2tGbE5NOFVwTHFlSV9Db055RXBXb1U0YkRVdXIzS1BnMzIxNHpaVERYVVk?oc=5) |
+| Top Democratic leaders will meet Wednesday afternoon to plot shutdown strategy - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNbzM0ejBSRWl1OXZmMkVZMzYwSk9FNGlQU2dLUTV1YnhlQ1M2OENYUC1adHVwUVNINFM0alNvRWowS3VvaFNvMmVQQ2cyd2ctMWY1eUhaQnF0eW95VXlDRzNsbWhKSUdma1dHLVZJN1FJUzRDVUhWc3oyZU0yZW5OajhDS005blgtWFlPRGJ5Qy1yMFh1OFBKNjVyTy1xWXQyb0RneVhsMA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
