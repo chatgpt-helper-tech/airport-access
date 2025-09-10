@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 06:56:42（北京时间）**
+🕒 更新时间：**2025年09月11日 07:01:16（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trump’s Economic Agenda Hinges on the Supreme Court’s Tariff Ruling - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOellXLTBIRHVuY2FfbkRqVVdDcldJMXpIQWF6dXFiQVFOWlpkaUVXVG56SjVrc2oyTGVFQkVKek5jSzhHU21VMnlIUjJ3NUwxVWtGM1ZvcnhlbDgtdWVoSlhxX3MxWTl4SmlOMEhJaHFNVUlHZFR2TlJpNnlOM3JTOENUNjEyZw?oc=5) |
 | President Donald Trump seems to pump brakes on deploying National Guard troops to Chicago - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQaHBKOEU1blJIS3haR2w1WkgtNW1vOEZNLW9hUkdKQTJ3ZHdmU1Q4RmxNY0MzeVdPb19WUkI3QjVVX2RYdC1kRDdISnN2YmxRLUIweFFfTWNNZkwzNVV6M1JHWXZVV0xCcFZQZnEzdXJNX0NlU1l5V0VjTkZKVkk0STViSGhwalZnbGN3X3RqQk9fcE4wOS1FQ1FUb1MtZ1BYd09wUWRCcG4yOU0?oc=5) |
 | Supreme Court allows transgender student to use boys' restrooms at S.C. school - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQaDRoZS03SW1vLTNKZlp4MlRZOVNUaGk1cTYydmg3TFVVR3dJOGpJNld0MFl3WXNpLXdMdGM0Q1NGaElUZDd1aG50a1ZMVlJmOTRWRlptWjc3Mk10Ml92ZmwwWlhwYjNnMFd5Mm9WbUJPQUNISnhKNzlIZUwxdkdnUkZvS2h3ZHVzTVE3WTJEZ0ZMNEZyWHdUMEpJLV9IdWM5QUFsaVBDeGFzdDZsQzBvTVFLVEJoM1JZNURwSW9pNWJDa2fSAVZBVV95cUxPVENYQ3Znc1J6NUp3aDloelVpTHVBNmw0UHlLUGk3THEycllNOXFzVWc0Qkw3QnZsQzZqcUx0cXBiWVljbTEtb0tnU2ZaZmlpNEVIRHd3Zw?oc=5) |
-| 1.6M fewer US immigrants expected this year amid Trump, GOP policies, CBO predicts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi4AFBVV95cUxORzJQdUd1U1hsU3djYlBOTGV6WmxKVV9jUU5URkJ0SWs4MTJ2VzBhckpZMDNvM2RUSWpCdGxPLVZDcy1lY3NqeEhfeVJpNjdqZnpfSTUybzU0ZXF6SGZvWVZHWGdGMGRDcURycmo0blhGaW9nWG5yaENnajZIeFBTeWhYdTFrSWNzVzB0dG5zN19lOXlJY3EwNFdCYUZweEpZLVphb1ZiT3BlenUtT2NhNENCX2VrNXd0X055emc2LUEyU1Vyc1JXdlFuQjgyTC13M0FaWUR2dHc3QkFIVjJwaw?oc=5) |
 | Texas A&M professor fired after video shows classroom confrontation over gender identity coursework - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQbzd2Mkp0bUJ6SWYxcDR4MllPZ29vUGNyX0tTc21RWXh5NGxJVU9ZVVhmMlZhQmVkdHlhV2tpRFRhbU4wQkVlYkpMeFQxczVIZ0RKc2pvOXBoTWNwaWMydjBmQ1UyeGJUVnU2UUxfRkpiOTFkbEdScXZSU0FJalhrVnNNWkF2NjhhVkZFYlpYbFNZQS1qSEtDWkF5Rnh6VG5QWnc?oc=5) |
-| Harvard Is Told Research Money Could Flow Again, for Now - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE8zMlVtbTVhdFdnSXNuNU1mRGFqMF9uSkdEaTBtc1hZbnRGSUdLR3k0dDVtRDFNbjVudjZEcGttY25JVFcyYUZWMWxPOEpadWgtQmloMXhhT3RBaWtSakRWdDdqSmtUTG1QRHdYejFQdzJiMkI0ZnNtRFFUaDlnQQ?oc=5) |
+| Trump's control of the D.C. police is due to expire tonight. Then what? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNY2Z2aTh1eUo4NFZVTXdjNm1iU05JRHU3dFNJV050ODUtZWt5aWdNOFIySENwbFQ0RVEwdFZfMHRsdV9xZlNtYkdvSnZadmJUS2RlVDBkTnl3ckE3bWkxTU94eHJGalhXV05tUE9SYUdEVDZBZ3d3aEhhRHYtc1pMbA?oc=5) |
+| Shooting at Evergreen High School in Colorado leaves several students hurt; suspect among those injured - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQb0RpbTlmTFFSQlNEdF9iekpKSEJDWWxJRmtXNVpuazhHeVVDWk5TYnBseEtYcUNweE5JVUhSbGpfVzdFREx2enJBYzdabHRjenFiSUxKRW5nUDVsTmNiVzl1WmRSV2dDQjBpbTlOWE10dXA5eW1zV3dTekdUTTlfSlVwbjcyNlBXM1FrMUlxaFE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
