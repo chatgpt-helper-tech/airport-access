@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 08:40:15（北京时间）**
+🕒 更新时间：**2025年09月11日 08:48:45（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Charlie Kirk: Trump ally shot dead at campus event in Utah - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFAwRkllRTNpOWlRU3ZFMVdLbjhSSkRfOGNILUdEcUtNUi13eWx4QTRqY0VGam5Ka2xJZzNRUlVpTHpzV2Vqd21rQkVzV0lDdE1rV2NMNA?oc=5) |
-| What to know as Poland invokes NATO Article 4, citing Russian drone violation - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPTXBwRjNrZ0Y0a25CVUFXMldQbEJudDB4djMxZWZ0b2RDTTFkT1hsWmdsak1ieEg1TUZNdmplVjhFYklOMXRqdmt6UnFhaHZUWlFxZWV5ZW9fY2U1MGhzTkJWV3NabURkNDRCNUZhVmozMU1MM3Ywd2cyMDM2T0pIbjdqMkZscGlmc0hmdS1oUW1IaDVnS0E?oc=5) |
+| Poland responds to Russian drones incursion by invoking Article 4 of the NATO treaty − what happens next? - The Conversation | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxQSUNKc2h2eGtNa292TWM3emJzMll2NldNVE9vRHZTdHhDbGlQalBFZUdRQWhrSGhoczhkRGJNcHRGSW1JOE9XS0lpTF9ZQXViQ2pXU0V4eHY3UkgxTEJrWjcxVzdZVnRfTVM2U012RHZtZWh1cWJ0ZmxwcnRxdWJjZlQySVVYTjNUSVVYejhEdTNhSTVCYzMtaHJDS1JIU2ExSWlYXzVqajZCdnVYUUR2ZE4yWDIyRXFlWWJxejV0cWJGT0dHN3ZucURSX0VaQVN4djU0?oc=5) |
 | Former top FBI officials sue, say Kash Patel fired them to stay in Trump's good graces - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPNVhON1gxay1iSHByWEFoejhEeDFweFh1cUh4RUQ1b1ZmTUl5OXJNYjh2R2x4SThZTEpPVDV3MzB2aENhN2ZvYzZXMUR4Q1pVNlJjMGo3bzVTOGljUkota3U4cHdaMzBIUEZNNU1YNjVWMnMwV21WNXh6aTNTWUQ5RVFUUWd1ZnhwTXUzbTJUdmZlcmQ5ZEhRLW5VU0RabnJERVFzYzY3a0cwb1c5ZEFzUFl4Y1hnYTBrOWkwQXFyVEotdHhBaHN0QjBSY0d3d9IBVkFVX3lxTE4tZmhIb21UcDExQ204T0xJeS1HQnh1ck9XQ3RxZXFFeHk3ZUZLdThNdEw2ejgxUjQ0RVo4dWJ5N0U3RVlBdWRmUThWTHJHNVdlZTNLb293?oc=5) |
 | See Epstein’s full ‘birthday book,’ with alleged personal messages from Trump, Clinton and others - PBS | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNUlFCam9nTmdaV1VGR2RqZ3NjZ1VOX1JOR3BMTHhQT1VHUHdPSG90S1lINTFhQkFqRUtpVjF6NGFaeF9pU1cyWVMwLVNHQkVrcDFfYlZrdWJQWEppTVRNU2Z0bGQteE01ZXlUR1VqaHFHcE5iZGxGa2staGZyNmFnczVNdEExOEY5X2V5aWNXUXRQOGl0VGVuMEthWkNXVkR2LVBQQkZlQUptYS1TcVFOTkg2WU9rNmRuS0cwQWxsNEtLUGUxV2ln0gHMAUFVX3lxTE1rR2x5SjBOSlhhbjFORWVxdTd3T3hSTlhVUHRLSF9fUlZWZlN3VFE5XzZqT1NORV9yUU85QUMxRHJrT19mNGIwZWtDbkZCMGQyRTE0bW5mRkZJZm11czlsYVRtdVJxek1DMTRMTzE0Vkl0c1RlUzJVcnFaRDY3WTFkOVJxbmpFQmxYcHlOcmhoWE0zVFpKeU1BRlo2OUZXU2NPRWJtQXg5R1JfMmZXdmVwbzJvYmtDLUFJSzJsdC1WWVplcEpqdUpnN1pKRA?oc=5) |
 | Shooting at Evergreen High School in Colorado leaves several students hurt; suspect among those injured - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQb0RpbTlmTFFSQlNEdF9iekpKSEJDWWxJRmtXNVpuazhHeVVDWk5TYnBseEtYcUNweE5JVUhSbGpfVzdFREx2enJBYzdabHRjenFiSUxKRW5nUDVsTmNiVzl1WmRSV2dDQjBpbTlOWE10dXA5eW1zV3dTekdUTTlfSlVwbjcyNlBXM1FrMUlxaFE?oc=5) |
