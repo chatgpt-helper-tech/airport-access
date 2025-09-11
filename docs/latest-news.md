@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 18:01:03（北京时间）**
+🕒 更新时间：**2025年09月11日 18:08:02（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | 'Everyone hit the deck and scattered' - witnesses describe moment of shooting | [阅读全文](https://www.bbc.com/news/articles/c8d7900yl3zo?at_medium=RSS&at_campaign=rss) |
 | TV cooking shows are dying out - the cronut holds the secret to why | [阅读全文](https://www.bbc.com/news/articles/c0jq1d63l7lo?at_medium=RSS&at_campaign=rss) |
-| Emily Thornberry pulls out of deputy Labour leader race as nomination deadline nears | [阅读全文](https://www.bbc.com/news/articles/cg7dzejkz4ro?at_medium=RSS&at_campaign=rss) |
+| Thornberry and Barker pull out of deputy Labour leader race | [阅读全文](https://www.bbc.com/news/articles/cg7dzejkz4ro?at_medium=RSS&at_campaign=rss) |
 | Dr Xand: Stress is normal. Here's how to manage it better | [阅读全文](https://www.bbc.com/news/articles/cg42zq7nqxwo?at_medium=RSS&at_campaign=rss) |
 | Mothers and staff tell of global charity's role in child disappearances under Assad regime | [阅读全文](https://www.bbc.com/news/articles/c4g53e4zdjpo?at_medium=RSS&at_campaign=rss) |
 | Harry's tea with Charles could be small but significant step to reconciliation | [阅读全文](https://www.bbc.com/news/articles/cly0e0e7p0jo?at_medium=RSS&at_campaign=rss) |
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| In Trump’s White House, Charlie Kirk’s killing is deeply personal - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPS2hfNHZFa3ZsbHlxQnpMeUY5YU5CaHNjWHk1NEcxOEJzYXJhWlBmWi1ZUUpCLVRWaExUdEpMcHV6QnBNb3VwQW5kaXJ5T2FNbUhMUmtTT3RUVXdReFpiRUZLUGtoem42dE9Ra2J5RmRwSVR4R2JkWlJhM2xSN0U3b1NDUU5XUS1kSlE?oc=5) |
+| Trump ally Charlie Kirk gunned down in brazen act of public violence - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQbEd1bG5GRlBhN1dTYkVDQ2IxaGJPX2Fla2NqX0t3YTBQMGppSklFd09yVWNxenpiZUlYMk1Ia0p4S1JxZE4tX0dVaXhkbnljcnIzaUVIM1ctekhGNkxyUGFOeE1hSGNqWUxvMTE0VFBHY3I2LW9KVFRLSjJ2dlNXdUdGUTVEREVYUmQyTmlXQTRBX1Vjc0xHYw?oc=5) |
 | Poland responds to Russian drones incursion by invoking Article 4 of the NATO treaty − what happens next? - The Conversation | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxQSUNKc2h2eGtNa292TWM3emJzMll2NldNVE9vRHZTdHhDbGlQalBFZUdRQWhrSGhoczhkRGJNcHRGSW1JOE9XS0lpTF9ZQXViQ2pXU0V4eHY3UkgxTEJrWjcxVzdZVnRfTVM2U012RHZtZWh1cWJ0ZmxwcnRxdWJjZlQySVVYTjNUSVVYejhEdTNhSTVCYzMtaHJDS1JIU2ExSWlYXzVqajZCdnVYUUR2ZE4yWDIyRXFlWWJxejV0cWJGT0dHN3ZucURSX0VaQVN4djU0?oc=5) |
 | Handcuff row delays flight repatriating Korean workers - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1YczNrTU4yVjhCRXNHQTV5cUtnUUdPU1NVTWN0SGRMM1E4aGhnajRDUzIxTzlMVjRjU0hHVVh6dTMwVHY5V0pGVUVvTElXTDlCeVFVUi1qdjRCR2ZWTFpfX3F2LXc5SnFaSlAzWkN0LU4?oc=5) |
 | Trump demanded Netanyahu commit not to strike Qatar again - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBRLTZ1cFdIQjQwSmVNbVNhcTFZNDZaOHg5aHk0d0lOZ2VCVXRjWEhBYUhCQkFoQzF5bHZMUlE0WHRDU0FDMjBpelpLbnJvalRSZkRtbENoSkRjdUlla2pBMUtDekR6bkVTMkx5R09rUTc5cXgwa2FLLTl2alNsX2s?oc=5) |
