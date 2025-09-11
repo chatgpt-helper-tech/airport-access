@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 04:09:15（北京时间）**
+🕒 更新时间：**2025年09月12日 04:17:34（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | Jury trial of Ryan Routh, man accused of trying to kill Trump, begins in Florida - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOa1Zod3dHMWRDTG14em1xYy05cjlOZ2lRUXltRS1kT1hnVEZNcWNZUy1uem9UWDJKbnF1WDBETW9LWXNmdl9haFp4N01HaHUzR1Q5RnZ5bENtZEZWOUZ0T1BabXNqbFdrRXl3SGkxWm9wS09HcVpGcXJKRmRfQXJ1Y2pSQldFZmpKeURpM1pqd3FNQkZwYmc?oc=5) |
 | Student Who Shot 2 Others at Colorado School Was ‘Radicalized,’ Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOa1hISkpiRWZZR2tVSzVSNHFaeXBxeG5UeXVUeWhMc09LZGlwZFExYzNTVktiN0cxMjRHYWVyYWdpTjh6TkxqSy1QaE1tTWZ3QU5mQzdXQXk2NlQ2SkdEejQ5a3g4WnQwRVdjLTYtTUdsVmVMajRFT1RRV3VoUFVtaGZXaE9xSHhzTlE?oc=5) |
 | Nadine Menendez, Wife of a Senator, Will Be Sentenced in Bribery Scheme - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQWlZJYVZmWU42NjBpa2F6UkJEX2VrVE9QUEt3WU1pVUJhSU5MYV9FNzZhWVRTWksxN1R0Y2hKaXczT3g3V2tLQWdxU3J6a1ZnUGh1RXgxTm1aXzB1SWdMdFZwb0Y0UUYzZGhZZkhYT0V5NnI4UmlCUndZOHJmS3J1Wngxd3VCZmM0VFc0?oc=5) |
-| Plane carrying Hyundai, LG workers detained in immigration raid departs for South Korea - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1CWFhlVzIzb0JUUkN2WENMWG41R1VLeEJDYXN6ejNqZU9ZT3g1My02a1U2U1pDV0pVeTJaZ3c1RmcxTWFYb0pSZGdDTW5Bd2x3NnZ0eGFNdDVaNlUzVHhsR2lBZXBvNUtpNDVFb1BnY3BsNnp2czVBNHp5NDlJZ9IBgwFBVV95cUxNQkczN3lkc3IzVlhfWmwzbzhsb3MzdU1lQkNGcGYyejJOUlY0M0R4MngtcDVyUWF4LXM5bzdFblczQ0o1Qm1oUWVtOEZEOWtLaDc5bXNDa2VvaklJQW1DVjU0VHBucTNhLU5EUVlsX192YlRIUVJwOFM2RTJvQ0hNWDlIUQ?oc=5) |
+| South Korean workers detained in immigration raid leave Atlanta and head home - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNblZ3RTRKMU5zczY0M3ZRVkNXQVZoM3EtU3c5bHBPY2NGeUlaSWRRZkgwbGw4emNKalN3SnRZZ1FpVnY2eFZKaW1GV050NEo5N2FraExzb1VFU09nT2xYcVhKYVkxR3pMNDYwVDRHelgzYUFpc2JzVUt1aVdLSDY4c2JydlRQbmQ4ZUZfNElvWktVQWtXc25qSDR5T3ZQUVMwM0h4aGxn?oc=5) |
 | U.K. fires its ambassador to Washington over emails to Jeffrey Epstein - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxONm5BdXZ6eTJFWHhOWnFRWFZzMjR0YnlTMENVRHZCRDhkZkFWa2JKajQ3emdkTURGSFFPUlluNzBiZjZVN3paSWFqOUZPNURyYVRTTjhPRnlSMnNNT3R4RnVsbnFIMVQzbWJsNnphQjRDay16WnBrNWs5ZXhRQ3FEcmtaeU14c0gzdmxXNQ?oc=5) |
 | Scoop: Biden world explodes at Kamala Harris' new book - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE1NVmdfZXRkMmZxZlozRV9fdlBFUnE2ZzBnZ1BGcUxSUG1mdkdtVGtHRWVmM2VFNEltNy1oSS1VaW9Gc25BbGtBbHVrS0FQN0tHZnhLbVFxa20ySDc3V3NFdV9HX2RuVkptd0dEbi1n?oc=5) |
 
