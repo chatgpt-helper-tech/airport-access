@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 03:17:57（北京时间）**
+🕒 更新时间：**2025年09月12日 03:24:36（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Charlie Kirk shot and killed at Utah event; manhunt for shooter still ongoing - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQMGJxRkNYazNmbWRFR0xrT2V4ajF4V015MDF3RWRwSXRnS25XZlc3TUk0aXBXcU5GcjVBdXlveGJoSm9wQjA0S0JGUDZzTkdxaVY5OTJLdktXczRVYTZNRGJrQWxrUXlOOXFrQ1NOYVNIZ3FRS1BoREx0eUNWMFRDWnhuQjjSAYoBQVVfeXFMTTJHUGZUcG9ZLUd6VWd6NU5RMEhQQ2lBUjV6X29FVU9BNVQxVlBmaHpaYzA5aHFYaFBnSG9LQmw5dHZvRzZUdlAyenBsdG1LTjBadEdidzJLc0JobEF1MExZY3QtSExBcFJlYmllMklOdktNSW9mVlBQLU9MMlgzc0xoaWpJTTBiTWxR?oc=5) |
+| How the Charlie Kirk shooting unfolded – in maps, videos and images - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPcWRBR3ppX0I2bkN3S25DamRMczRSZUxGeTBfN3dNLU90bWVBQjJlMWp1d1g5eWhHcWl0cmNyS3BHbEMxdFZEMUQ4SjVPaERzeGpsX29YUDZVV3hBQ2QwNjNQS2xaN3JVNmdtRjB6YXozTHg2a1hzZXdCNHhwbkRDZWdjS2lZbzB6WVJoTm43Vi1kQQ?oc=5) |
 | U.K. fires its ambassador to Washington over emails to Jeffrey Epstein - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxONm5BdXZ6eTJFWHhOWnFRWFZzMjR0YnlTMENVRHZCRDhkZkFWa2JKajQ3emdkTURGSFFPUlluNzBiZjZVN3paSWFqOUZPNURyYVRTTjhPRnlSMnNNT3R4RnVsbnFIMVQzbWJsNnphQjRDay16WnBrNWs5ZXhRQ3FEcmtaeU14c0gzdmxXNQ?oc=5) |
 | Multiple HBCUs under lockdown after receiving threats amid rising campus security concerns - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPTUNzRVBfSW5Ea2pacWtSQ1o4cmV2NmVTNTU3V3dZbWM4N0FfWmtjN2xaeGt2ZnZRYUhqMjBQbDhmOUxlbGV1WjNnWTJhWFQyZU9jY1RhNjZhUlVHX18tdVI1dFZPbUtsTzRGQ2t1UUpJVTllamV1b2JHSk5oTjVUcUNzR2NvdktuWE5DZUV6ZVVMbGNFWHluTmxSMzBPb0Z6eDB6cWtfZ9IBrAFBVV95cUxPcUFnVWlEdXZZaFhLQzJ5QUFjWkhjajY5VWR6MldEbjYxc1lvN05Xd1JQR1RqdWhIeE5OOFJHMUhKNThYNmwtQ2VEell1eFZsSkh5NVUzUGdzMkxTeXlKMTBGLWMxNUU1dHg4RnBCSzdEa3lxWWlaN1E1NWpORFlIMUdmNG4xVVFyQklheF9tTlVNa2xSbW81a3VpWEhkZFRuRmxrcTNiS0hYZ2Zf?oc=5) |
 | Nato strengthens defences after Russian drones shot down over Poland - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9HRXo4dVRWd095UWtic0lTaXBFVVJmZDJzc3hGSDh4LXhweElUd1RDTVF0czhPek1mbFlaZGhoTEpnOUNHUHJqQy04ZEpGaTFneWlzeHpwREJFd9IBX0FVX3lxTFBGelAzY0g5bXhmeUtfak92V1NhTDhONG9wTDc3NHRMQ3VPWTc2UkVJSzhoTi1ObTFZb2lvYjU3RkVWc1JUd3pIUno4V1htSDlYVnY3QTNHNVQtcjF2dy1J?oc=5) |
