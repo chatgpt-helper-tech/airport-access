@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 12:48:38（北京时间）**
+🕒 更新时间：**2025年09月11日 12:56:16（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Evergreen High School shooting leaves suspect dead, 3 injured - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPTVExZ0RTbzFhdWd1cmgwWG5QeU5UR3luMnpaN0NQQUxha0NmQ2lTbXRDWDRNSFlPSGI2Z2pFdmpzaGlwMkpfb2JoN0RGM2lrNVpBVk50Y0VhNlp6QWFvb0xLdm5zcDk0RlhfLXJqRHJXR1JVa3BubHplU2traFQxLTB3?oc=5) |
 | Netanyahu pledges to target opponents abroad after strike in Qatar - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNVHhrMzktREl6MklSdUNXRzdydUNFVGdkVDl1aFhKcHNteFdMVUFITWZ3OU9hU0ZqZElYWVVadnBfVHFZbmRhb2FaU1FrdzV3ZUpSRG1rdFhnQ2xkWDhuUTJ6Wkp6blJOcVdGR1EtQW5IR2d4eDN4ejdLQV9YMDFJX2RMQXhFTmd3eXJVU2QyUV9ZMXBwZk1XcTZ5bmM1d1FIbDM5QmprSdIBrAFBVV95cUxORTdtYmtMbzAwT1ZINVZKb0pFa1FHMkxrWkNLeXNVcE54T3o2WTRLTDBEblItUDVqT1RkLXpyakdRSi1nNmxjRzc0VmREb2ZPMUhpbjhiOWlYcVpKSWx2VWIzYTFHbFpiS1lHVUozanJndkxzTmhYVXQ4aWt2TjNCVXFSSXh6N3NRMVF0VWdQNm8tbGE3MVlSX3lDelV3ajdzLVFOeEJnQ251SktJ?oc=5) |
 | Texas A&M professor fired after viral video disputes termination - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNbUtVckNkbUt0QUxHVEtBWm04V1ZLTGlKUVZTVi1tYVNRX2tHOVdzZS1JVzNMWXNHWm8tT2tUN2lMWjdmZmZHWFEwRm9tQktGbGtqT3ctbXJhQWxMN05iSUdNbmFJSVM4Mlg4T2s4TFBOZE4wbnJ1NThvZ184T1FPaUw1M3FISlJGT1otelJMNDNqNVFS?oc=5) |
-| After 18 Months, Prince Harry and King Charles Meet in Person - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNYXl3bE8wMzZ0UVZjNU94d0h6dnV0LVc4aTh4N2tmNllaTVJ1VWp4QU1UaGZhSzJRQjV4YzNLSm1DNnFrV1VzUDgyWkF0NUs0SWtCeVcxS083ZjZfRXlIT3loZktRV1JuR0F4SzRRYXN5ekJlc215WEg1NHlfRWFIdEc4NzdlZDlXNzJDOEhsZGh6dEcxSHBxTHRXbmRMR0k?oc=5) |
-| France welcomes new prime minister with ‘block everything’ protests - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNTWlxMXJXS21CRlkwNFd2OTlSbEg5OTFuSUxJOFJZVUVJV2VTTDVpODBaZHNWbWRod00xMnROWjNTNWh5UkZ5WUxERHhNUFdFZmNRZmVxRldQaDdtanNTVFhfclp6a1dKdnFwZnA0YTdxT3dDUl9qcGNVdEtNMjFqelNVV3lQdkNaZUVXN3FzcWtNenhoS1FrVlRvMA?oc=5) |
-| Incendiary Munitions Strike Gaza-bound Flotilla Two Nights in a Row - Bellingcat | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQX3NsVHFkeG9BSnFuR21Sbjl0YjdsdTN6bWNYTTMtQU9OYmNOUlRqUUt6bnVkMmk0NVBFb2NDVmc1UnBIaXBKWk50NE1mTmJxeHF6Q2tQWjFqR1JIOUpNNkJtbmFoejZ3S0I3bzhyM2wzNWRVVWlKYUFGN2NHaHZFUlFON0ljcjRpZG96TnJTQ0h3ZjY4RXhPeU1iZzg2dHFlODNocVFkQzdEM3JJVG82Ug?oc=5) |
+| 'Block Everything' protests sweep France, intensifying pressure on Macron - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNak4tOHpJQ2g2REVHTUZOdjNGU1ZEMWdPY011dFVDenpFMGF4NHlFaldJaVBXZHF5aXJPX0x3cFc1cHM0T0M1QjBxSGZBRmhFOFhGZnVkWU9yWjlFYkdTenQ1b05HRDJ6dTJqMHFOWnVVSE5EM0J1NkUxWGQxSVR0LTQyRTdLLThUVXNtMk1Kb1dpcnlrM1RoRzBqT3A3dWtu0gFWQVVfeXFMUGZpMTAtYkxmeEJMRHVEWUc4MGZSblZDaV96SEUwUjZlV3FvellnV0U2OWlNOUFNUUlYLVYxbFRwTFZ1YTR4eEFrQ210bUItWkE5dTdIbFE?oc=5) |
+| Prince Harry Reunites With King Charles for First Time in Over a Year - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPMmhSX3R0eUwxbjg2MGdDRWZmbmFNb2JWbzZSd195elJQTU0taS1nUXl2ZlBLODlzTGNjNy1nUW9UOWdCTUFPRHZlck5tV0NnVUpqMllHY0k2RVFpV0R6aUl4VmVGLVRBU3pueHpZYUN3NEU5N0x0NzM0RXpQa2Y5dEMzeXlwOElkMzRiNXRRVQ?oc=5) |
+| Youthful anger at political ‘nepo babies’ drives Nepal protests - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9nQW1ISEN2Wl9fSTZYU3dCRnZkZTFLSHhKS0lia3ZDOXBxaXFZT1hwTUUtZ083dzI0Ni1lZC1WQ1JTcUZGQjN2Z1h6U0xMQUhVeGtjOWFDd2FWT3pRS0ZkYjk3d19kbnBXc1JiTTdWbUc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
