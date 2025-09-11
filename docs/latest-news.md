@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 07:01:25（北京时间）**
+🕒 更新时间：**2025年09月12日 07:08:26（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | South Korean workers detained in immigration raid leave Atlanta and head home - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNblZ3RTRKMU5zczY0M3ZRVkNXQVZoM3EtU3c5bHBPY2NGeUlaSWRRZkgwbGw4emNKalN3SnRZZ1FpVnY2eFZKaW1GV050NEo5N2FraExzb1VFU09nT2xYcVhKYVkxR3pMNDYwVDRHelgzYUFpc2JzVUt1aVdLSDY4c2JydlRQbmQ4ZUZfNElvWktVQWtXc25qSDR5T3ZQUVMwM0h4aGxn?oc=5) |
 | Trump tries to distance U.S. from Israel’s strike on Qatar amid fury from Arab leaders - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOc2pRcTlwa0tZOUY4anFxaFpiMHg4Z2JRVG5xelJwWUt4YU5KNHduZnQxSEVYNVhzVVQzTW9OdTRwZWtiS2s1Rnd5N1dQUHk4TEJDTmptRUM1b2FWZWxFQ3piallBWVBUV21jZk1pWmVUX1A2VUkya0hscDZYRnEycDV2VzhZb2NzVVRGLXNSY25yZzFMcUo2SEd1SDNGeWhEVS1nZTBSU0JGcXlOWG9KUGItejNBLVF5dFRzYmVaVdIBxAFBVV95cUxPUFRBOHJfNVBpaV9RU0xxYUZRUGhDWjdOV3FFb2t2bXVpNERYemFQbXpjMWtOS3NjZy1MZzIta3dRVXMycXFYc2QzUjh5T3Rab1p5X0kyc0FGWFl2eTc5azRYMTFwWUo1dlNYNmExV0V2QUxVX1JFUGxmVE1xek5pYkpNZFJYOWxwSmRTSVNfNnp0TU5Jd0lfOFJkSUlVT29SRVlRczZtWTh3X0NuNkZBbzlTVGZadS02aDlCQTVhZjN4bW5x?oc=5) |
 | Jury trial of Ryan Routh, man accused of trying to kill Trump, begins in Florida - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOa1Zod3dHMWRDTG14em1xYy05cjlOZ2lRUXltRS1kT1hnVEZNcWNZUy1uem9UWDJKbnF1WDBETW9LWXNmdl9haFp4N01HaHUzR1Q5RnZ5bENtZEZWOUZ0T1BabXNqbFdrRXl3SGkxWm9wS09HcVpGcXJKRmRfQXJ1Y2pSQldFZmpKeURpM1pqd3FNQkZwYmc?oc=5) |
-| Disgraced former Sen. Bob Menendez's wife gets 4½ years in prison for her role in a bribery scheme - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNV2J0bVpQNTBXdXA2WG54dmhpa3lnQUZENHZJNXI2STl1RVNzdnF6dG1TX1hLam54ZERGS0xuZFpseHNFc1lKMWNPc2t0eGZQZW40dThDay1pZmtjbTBmcE12Wm1RR0RidDlLSXFFcnR4YWZ2QjFPUlBLbDE5ajVJOHFZQk5aWnhDamxzMUgwU0NIeldWVWFrWXk4U2VhY0XSAaQBQVVfeXFMUHVtbTZKRjBXM3UxQmx4UXZ0ZHE4RG9KQ3hzOTFxMjZZRnlxQVY4eVlUcGI0VGRpV1RhM05qcER6bUpFWG9OdnZ5SXo0bHhZaUpEb3BtUkNNbGpaczBnOWJ6bmYzSi04TUtHc0szWU9femtHWnkyZGtqME5pZFp6VEpuNk1FXzZPc1lyS1EtUWZyYVVZS3FmUHJ5OHR5T3phbjJZcGs?oc=5) |
+| Nadine Menendez, wife of ex-senator, sentenced to 4½ years - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNTGo2ZFhOYjZya2JyM1JQTlF3RXJJREM1LTRmNWxFS1VuejQyQV8tbk5TR2RBeWxRcUJxaGhUR1prVHRNX3d2MzN1dEJIcGJ1U3JzMkFGdzZrbTcwVGFXMzl4Yk1QcTdaNnBZWklGT2luazc0a3pLQm1sbFFSM1A4ak1NYXptYXB4eXBheXhDZjFuNG14a0k3S1hUd3htOExGbFVaNjA5cWF1WEFC?oc=5) |
 | "Terroristic threats" disrupt life at HBCUs across the U.S. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5DWGlhLW4xVTF6c1NvRU1ybEtIOFhzV21NbzZIVUg5RnAzNjdvWEpnZG1wTkx4c3lWR3Z5QmdXR1FURWJGRkhaNXYxaERjWTNSalZmRnY5Q1JBSXVROWlRLWZBOHBUZlRMZ2FfbXl5bnZ6amNkRVNoTUFndw?oc=5) |
 | President Trump, First Lady Mark 9/11 with Solemn Vow to Never Forget - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPRXVGY1o1bDFleGIxelRhOFlUQmJ2MW1CZXNqNnd2RmJnalV5S0U4dW92eFdNeFdMZXJxWFJLYTBIV1lmblI4Z1Rrb1lXMTU1X2x2UG5NTXVfQmVLTzBIOTlTNXE5QUZycFlaOVdFS19zSVowamZLdVNzLV8wb2huejJOZGtRNXVucDVBRU11eWNUMXlXTWp6WXM5Q21YREo2UF82VEJHUG0yNkV6MjEzSll1RQ?oc=5) |
 
