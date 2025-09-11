@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 22:40:13（北京时间）**
+🕒 更新时间：**2025年09月11日 22:48:42（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Harris goes there on the Biden question — and Biden world isn’t having it - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPMTJjSjAtWFVqa0ItTVZlUFBPSHE2ZkIwOEVRNncxeklYNUxRMzREb3JHcFpkZURySTJnWU13bDQtcm1uU2Y2cWItbTNkTnVGV0s0Uy1xVVhCa3FlT2pvNF9EbTRKZjFjLXRxVG5tOGpwSlFjVWVQSWt6M3VRdHpoZ200bkF4dw?oc=5) |
 | Drone Barrage Over Poland Was a Test for NATO, and the U.S. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxObkszclJvcGxBaEtmdkJQZHJ3cHNGN0FmRV96V0xOdDdpT1NNMW1HVGJWcnh0Q0tvVGFqR1Z6NGV2cjFUanAyM1J4bllRcDRFMmVQXzF3cGowa3RJYlVKMjJHODdFZlJzemEwVDBGU0FCRjFGaUlOUzRJcmwweTRFZ2R6Y2w0UQ?oc=5) |
 | Trump demanded Netanyahu commit not to strike Qatar again - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBRLTZ1cFdIQjQwSmVNbVNhcTFZNDZaOHg5aHk0d0lOZ2VCVXRjWEhBYUhCQkFoQzF5bHZMUlE0WHRDU0FDMjBpelpLbnJvalRSZkRtbENoSkRjdUlla2pBMUtDekR6bkVTMkx5R09rUTc5cXgwa2FLLTl2alNsX2s?oc=5) |
-| South Koreans arrested in U.S. immigration raid being sent home - NPR | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOcnFiNGxvUUh0Qk8zLW9qaVJPWklNektoYVMwQ0JKSTR2bFY3X2ZsNVNuTUtWSktlSTdlS3JZdWhpZ2QxMXBzR0xqMnhlRF95Qkg5MkJlQWo2a1J4RDN6WjByZGJCQk1maTVqY2poQk9NSmFkUHd6S2l5Q0stVXJIQktRLVJkVmZXZDJpZ1dSUlZwcUhhVkZ6NHJqM09ZZw?oc=5) |
+| Trump offered to let S. Korean detainees stay, train U.S. workers, Seoul says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNU0RpMENTV3RlaDJOaUc2d1dDZHl3SUduTG9qM20zdTltNE8zSE9MYTZUUzFsSUc1TXVBYUFMcUUxNzRLY0FraGFZS2JBQ2FfM0UtM2huUUZZQm5ocDl0SURQbU5xZVlSVzFUNzhGSkpoMXlUVVNFZ2hRNXVITU9OZDViUzZRM2lwazY5WHN3?oc=5) |
+| Where Will Everyone in Gaza City Go? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOOU5pM05IQ29EU24waGw2blNxWVVwUkFIZnJHWUE0ZjVPTEsxTDdXSlRKY2x4Q0IxU19tZDdjZGVreXpLd2Z3ekMyRmxnUjZpa2l6ZEZnQ2ZLTWYydVpyMnV3ejZxYmZpSGEtNll2TENfTTZLUnlrY1NHNW1jdW8yOElkTEZtRXJ1dnNXQU1Sa0FLUHA5a2xGV3pucnBlRDRIdG40?oc=5) |
 | Belarus frees 52 political prisoners as US lifts sanctions on its national air airline - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPY1hqUXA3R2lzZVJmUDQ2a2dSSzNoWjVydElJSzVDNkczUFZzS3pvblV1aHlsVXE2NkxUM3JTbGxoTnF2dWM1QkdXdTk1QXJQRExnN3dSMGVxYnJHWWtVY083emh4VmpIdnB0M1BQMlZucFd3S1o3WEY2ZGJEN0tONEpIcm9iWG12UFY4Z003STRCSUhX?oc=5) |
-| Nepal’s Young Protesters Find an Unlikely Partner: The Army - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQa2NFQnNvQVpIUnQ3TklWWEdHVUhhd25UTXp5dkZDaDZtNzhDWk4yZnlkT01NeTgwdjZHYnhBcWIxU3FQRzkzS3NaS3MyVElNNjI4MWhwc1ZGUEpTaEdCM2xSdjYyN0w0YU94QV9DOUhQOC1lemVsNGxoT2pHOVNpb0dMYkQ?oc=5) |
-| Israeli strikes in Yemen kill 35 people, Houthis say - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1jVFlWUFc3RERQWjRKZm9jQWdlYlptSlgtNzR6a3hibzVwc3FvdUtWZTFZUVluWU9LLTdfNVVxRjFRZndFay1sMG90NE14N3BwN2lyUXJKanhjd9IBX0FVX3lxTE9oZWFLZC1lN2RHQVJoajhiY0dBSGg3T0lCaEZaQS1ialZCOW5waEFuUml0ajUwTm4zNm5oQkhKc19Ca0FqalZmUC1WYk05bmpfR1o1S2tjNElKRDRjR0ln?oc=5) |
+| Gazans face new dilemma as Israeli forces advance - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOTDhmeC1KLVJzRy14UnlwNkV6OGhFSkRxcG55WmZvUnN3b19oeTdCejl0ZG1zSkxxOWVJYlh0X191aHVlZVNnNkJIV0NGakpPQWJvT2VzNk0xZ3dSc29aRlZyQ1hvOHBSRmtWczJxTmdFcjRtZUd0Y1J1bTQ4RWNYWk1fb3pBeVl0bWRkU1M2RVFLMXFjZng3ZVR2SnZKWWs0ZFE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
