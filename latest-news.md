@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 23:01:44（北京时间）**
+🕒 更新时间：**2025年09月11日 23:08:53（北京时间）**
 
 ---
 
@@ -23,12 +23,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Charlie Kirk shot and killed at Utah event; manhunt for shooter still ongoing - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQMGJxRkNYazNmbWRFR0xrT2V4ajF4V015MDF3RWRwSXRnS25XZlc3TUk0aXBXcU5GcjVBdXlveGJoSm9wQjA0S0JGUDZzTkdxaVY5OTJLdktXczRVYTZNRGJrQWxrUXlOOXFrQ1NOYVNIZ3FRS1BoREx0eUNWMFRDWnhuQjjSAYoBQVVfeXFMTTJHUGZUcG9ZLUd6VWd6NU5RMEhQQ2lBUjV6X29FVU9BNVQxVlBmaHpaYzA5aHFYaFBnSG9LQmw5dHZvRzZUdlAyenBsdG1LTjBadEdidzJLc0JobEF1MExZY3QtSExBcFJlYmllMklOdktNSW9mVlBQLU9MMlgzc0xoaWpJTTBiTWxR?oc=5) |
+| High-powered rifle recovered amid manhunt for Charlie Kirk's killer, FBI says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQNG1TZ2pib1pNRzhwdEU1SlpXQkFlUndlRnJ5VEo3RDlEVHplSDF6M0x6OVg5aEZNT2ZnM2x0Tm51SXFyOWhaQUYzSF9NZmtxYWxjRFhOV0cxS1VWdVBYUlNBeFBlRFJja0RHd2lWZi1zV1lUMnJEbDUyOC1vMzhWcTFQOVRZSk9hRWgxaUFzTzA2czN3M2prNDVhTWVOMXkteURv0gGoAUFVX3lxTE9HMU1neEN3OVNNNndJeVVkUUxFVURwaFhPN1hDNkgwUVdTaXJKUk9QdkZKc3ZyYzJBd0lYUkd6bVhMdF81SV9keFk2ZllyRFV6TjUwcVFsQmowbFZjSzlhNGY5NWZESlNhdVo1MFBCU0N1bDhBemZJb1lqemtDSGJfUUZaaG9zWlJ2eVFsWVNnc01Sa1RfME4yREF3a1BGcFJDUnNtMHBtMw?oc=5) |
 | Suspect in US school shooting dies of self-inflicted wounds: Police - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPekpVa2ZseEJ2d3FxV0FpZ1pERVBjNkpZa2ZqNzMzMWE0eFUzbGN6M0NGU2l5SlNYbzd2YkFubll6dHZ5dm5yVG5iQUVmNXczV1phUkNiXzRNUEFNM3ZHNzMxbTNPdGlNc1ZwZDJyOGtZNnZvdGJscmp1b05nMEVEejNXVzVNNEFVVHc2d2VZOWhyd0p0aVVjb21iNnVIQ3FDODJNVUZvWi0wREHSAbABQVVfeXFMUF9vclpLMklOOWFCTHlPZWhITkJyNVd6UmRUbTJzX3pOcExqSnl6cWVCUDF3d1FLM3FiUUY4SURaTmJRWUVmaUwyaHBxWDNNLTR2RDdSTmlHY2FQQWlEcUhXQzNyTENzUDNVYWZzNWtPRGNSbklnZm1ReXMzVU9TMkRUQ25NaVJNcHVoZk9qNm5BQmFUYkk5R3UtaXUyYU9vemFBVEVHcFNUX25zaUwzV3k?oc=5) |
 | U.K. fires ambassador to the U.S. over Epstein revelations - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOMGE3clNfTVROTmlZRzRLeEZSeExTYUFvN1FoTENuckdGRlR5UWJYM1Q5RHk2TXBYR1V1bnJ1SzVuSVpPVlQtOUhyUVdSYlBid2tkLTl6UlZuVVZQUVlRZ284cjJ6NEF2VXFzaUJTbVZ0UFRJMmZya0hhRkVaM1ZnWWJTUGc1UQ?oc=5) |
 | Harris goes there on the Biden question — and Biden world isn’t having it - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPMTJjSjAtWFVqa0ItTVZlUFBPSHE2ZkIwOEVRNncxeklYNUxRMzREb3JHcFpkZURySTJnWU13bDQtcm1uU2Y2cWItbTNkTnVGV0s0Uy1xVVhCa3FlT2pvNF9EbTRKZjFjLXRxVG5tOGpwSlFjVWVQSWt6M3VRdHpoZ200bkF4dw?oc=5) |
 | Drone Barrage Over Poland Was a Test for NATO, and the U.S. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxObkszclJvcGxBaEtmdkJQZHJ3cHNGN0FmRV96V0xOdDdpT1NNMW1HVGJWcnh0Q0tvVGFqR1Z6NGV2cjFUanAyM1J4bllRcDRFMmVQXzF3cGowa3RJYlVKMjJHODdFZlJzemEwVDBGU0FCRjFGaUlOUzRJcmwweTRFZ2R6Y2w0UQ?oc=5) |
-| Trump demanded Netanyahu commit not to strike Qatar again - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBRLTZ1cFdIQjQwSmVNbVNhcTFZNDZaOHg5aHk0d0lOZ2VCVXRjWEhBYUhCQkFoQzF5bHZMUlE0WHRDU0FDMjBpelpLbnJvalRSZkRtbENoSkRjdUlla2pBMUtDekR6bkVTMkx5R09rUTc5cXgwa2FLLTl2alNsX2s?oc=5) |
+| Israel's attacks on Hamas in Qatar stun the Gulf and dash chances for a Gaza ceasefire - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPS0JDb1hFMFRWaU1GSE5GX0c4NkllVVlmbkVnQjhNSTh1dlFOZGNEcU13dDEtMWg2alZOVndBeklKYmZHU2szdUNFRVROaGd0R1FWZkJrX1YySGhLS254dDQ0bmVBWkNfRnpvTkJmZUN0aHBMZUM3MDdTWlRxSG5MbTV6dXB4WjkzenlnYQ?oc=5) |
 | Trump offered to let S. Korean detainees stay, train U.S. workers, Seoul says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNU0RpMENTV3RlaDJOaUc2d1dDZHl3SUduTG9qM20zdTltNE8zSE9MYTZUUzFsSUc1TXVBYUFMcUUxNzRLY0FraGFZS2JBQ2FfM0UtM2huUUZZQm5ocDl0SURQbU5xZVlSVzFUNzhGSkpoMXlUVVNFZ2hRNXVITU9OZDViUzZRM2lwazY5WHN3?oc=5) |
 | MSNBC fires analyst Matthew Dowd over Charlie Kirk shooting remarks - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOQW1EWV96R0ZPZjVMNWFrQkRPZFc5c0dJaUVnUGZsdHlBdDZOMEUzME5Ual82UE81MmFQNERVS294WlNGaU40VW1WZHFUam9vRTFlMUlMMkEzRGtMM0xPS09nY3RiSGVGOVZVTkVXS0lhRE5vODVER083dzNqcEVWb0VrNjI4RU5KcEJnMnJFeUxTVGMwZkFod0VR?oc=5) |
 | Where Will Everyone in Gaza City Go? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOOU5pM05IQ29EU24waGw2blNxWVVwUkFIZnJHWUE0ZjVPTEsxTDdXSlRKY2x4Q0IxU19tZDdjZGVreXpLd2Z3ekMyRmxnUjZpa2l6ZEZnQ2ZLTWYydVpyMnV3ejZxYmZpSGEtNll2TENfTTZLUnlrY1NHNW1jdW8yOElkTEZtRXJ1dnNXQU1Sa0FLUHA5a2xGV3pucnBlRDRIdG40?oc=5) |
