@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 21:25:52（北京时间）**
+🕒 更新时间：**2025年09月11日 21:33:46（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | Evergreen High School shooter dead from self-inflicted gunshot wound, one student remains in critical condition - Colorado Public Radio | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE85cDdVTTBjZl9PYlBiUFpla1FtYldXZE84VHRUR0NGUlpwR3VIckRzem42M2NTUGxuVTBBU3hXWk5RQ3lkdmJtTVB1VUo5Zjd1NkpqZno3akNBWnNuVlZjVXphalBPQm5MRGVzUEFvWQ?oc=5) |
 | Trump demanded Netanyahu commit not to strike Qatar again - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBRLTZ1cFdIQjQwSmVNbVNhcTFZNDZaOHg5aHk0d0lOZ2VCVXRjWEhBYUhCQkFoQzF5bHZMUlE0WHRDU0FDMjBpelpLbnJvalRSZkRtbENoSkRjdUlla2pBMUtDekR6bkVTMkx5R09rUTc5cXgwa2FLLTl2alNsX2s?oc=5) |
 | South Korea says detained Korean workers released from Georgia facility before flight home - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPam9SV04zV25FdkNOZ0NrWjJMcnJaOEUwYldUQlJoX2wydGVsem84VEJkUTBfSk4yTkJqOE1Fc2Zqdnk0ck95VlJYTjJjNVZUU3FWNTlSRDgyMm5VUXRTR2gzQWtYTGZFenQ2cDJqT254WjhDZVY3dkZKN2RUQXJhSmtJQTBMRGQ3aVI4RVNKVkV0NVduNy1VY1hlYTFFdVh1ODlGZWw1dFV5SlptQmNDLXVXSXE?oc=5) |
-| Polish PM Tusk vows to press ahead with military modernization after Russian drone incursion - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNMGJwc1V3UFJOVFBrMGVJVzlJYXlfOEJ0VGlvRUlWVG1VNkVSaEVuV2ZxNkJiXzBhMm96U2N3UHpaUkpzNjhpZ25kcGt6LVd0XzdhbFlHX3k2S2Z1TWVfbjgtTzE2QW5YSmc0ektCQTV4cmZkWmJDNHZMNWFKSHFweHBsQmI4akUxVDBPRDBGWndvb3oyYXVUMnJ5Q2ZXMUljVFdCTE0yQ2tObHhTd2NFWdIBtgFBVV95cUxOTjBJZWhiRVhJWG02TE55UXdYZDdlQW0xaTdDV2tyQVM2ZFMxWGlqMjVOQlBiWW1Jb1FNOHYtd3RadVJoTnVsdENJUUZLUWVqU1VSdlNjblJRck1iVUFnVXRTRUtYZmo4c01reE8zZmM5NmRZOHM2SWdWdXVMbkJIRE0wMXNjRDNVaUJoYWdhbEhsRjNWMkI4alY2NWtTY25lVmRBWElfRHBRUHN5RFNfNmFsUjZHQQ?oc=5) |
+| Suspected Russian incursion in Poland raises drone defence questions for NATO - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPdUI4ZmlMQzRHaGl6enpwMEg1aWlteWtfbmQ5dTY3UmFiRmg2dy12Y0NYTTYtcEx2NGp2NlN6bkNjZkVRTUFHS1JyanNVNERudkFBUGR1Y3lvdjFPUEtfOUhsaWdmZEMwM2ZuZWtqTUNDMzMya3FCaFBXMDhWdUJ5NTBTZm9GMHp2d211dmZjVUN2OVRaSDJxMXdkNm44NG5DQ0YyWEk1RjYtVHowVlhOTGZsLTAwN0VTdFFN?oc=5) |
 | Russia’s Strategy Against the West: Escalate Slowly and See if It Responds - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPbEZURzVJUjRiOV93UW5SZWN6bTJReHNrT25BQzIwdEdSZGRVZzFQMkpvQkgxV3A1TmEwYkNYYWZ2SEgtVTVlYjRoSHBYRjh0Si1NVnNDVzY0UThZZTFVSFkzcGU4QndidGhZVXlSWlhkYVoyMkVLRzlQYUNXemVJbFA1NzFOdEFSaVVDeHFoMWpadw?oc=5) |
 | France welcomes new prime minister with ‘block everything’ protests - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNTWlxMXJXS21CRlkwNFd2OTlSbEg5OTFuSUxJOFJZVUVJV2VTTDVpODBaZHNWbWRod00xMnROWjNTNWh5UkZ5WUxERHhNUFdFZmNRZmVxRldQaDdtanNTVFhfclp6a1dKdnFwZnA0YTdxT3dDUl9qcGNVdEtNMjFqelNVV3lQdkNaZUVXN3FzcWtNenhoS1FrVlRvMA?oc=5) |
 
