@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 05:08:32（北京时间）**
+🕒 更新时间：**2025年09月12日 05:16:21（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Starmer facing fresh questions after Mandelson sacking - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE00Q1BYSGU0eDhLSUJGLW96M0tHeS1DT1NtYXhwTEpDcmtoc2dQTHVLdWNPOUl0NmhweDlrRmw1TXdIeWJiTjRXRU1RemduRGxKQXJCTWNYZGIzd9IBX0FVX3lxTE5Ca2NkYnJRM2pfbDBNV1F2YUdaZXoydTg2WUxRbTZWbzZMdDRVU1kwbFdLb0trQW5GTnFwTlNoRmlHcXlKOU9CUWYwaTNGRGFFTEdySDRGV2VOUWxCR3dv?oc=5) |
 | Student Who Shot 2 Others at Colorado School Was ‘Radicalized,’ Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOa1hISkpiRWZZR2tVSzVSNHFaeXBxeG5UeXVUeWhMc09LZGlwZFExYzNTVktiN0cxMjRHYWVyYWdpTjh6TkxqSy1QaE1tTWZ3QU5mQzdXQXk2NlQ2SkdEejQ5a3g4WnQwRVdjLTYtTUdsVmVMajRFT1RRV3VoUFVtaGZXaE9xSHhzTlE?oc=5) |
 | Nato strengthens defences after Russian drones shot down over Poland - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9HRXo4dVRWd095UWtic0lTaXBFVVJmZDJzc3hGSDh4LXhweElUd1RDTVF0czhPek1mbFlaZGhoTEpnOUNHUHJqQy04ZEpGaTFneWlzeHpwREJFd9IBX0FVX3lxTFBGelAzY0g5bXhmeUtfak92V1NhTDhONG9wTDc3NHRMQ3VPWTc2UkVJSzhoTi1ObTFZb2lvYjU3RkVWc1JUd3pIUno4V1htSDlYVnY3QTNHNVQtcjF2dy1J?oc=5) |
-| Nadine Menendez: Ex-senator's wife sentenced to 4.5 years in prison - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1VT0p1MlRQRmRPQ3lReS1YLW9wYzBJR2JGLXV2ODNYamVaZl9yOTJMeE5BU0g3OS14d2RqTEl1eWhDWk55ZTBTTk5jWWt0clJXM1p4cjNiak9NZw?oc=5) |
-| South Korean workers detained in immigration raid leave Atlanta and head home - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNblZ3RTRKMU5zczY0M3ZRVkNXQVZoM3EtU3c5bHBPY2NGeUlaSWRRZkgwbGw4emNKalN3SnRZZ1FpVnY2eFZKaW1GV050NEo5N2FraExzb1VFU09nT2xYcVhKYVkxR3pMNDYwVDRHelgzYUFpc2JzVUt1aVdLSDY4c2JydlRQbmQ4ZUZfNElvWktVQWtXc25qSDR5T3ZQUVMwM0h4aGxn?oc=5) |
-| President Trump, First Lady Mark 9/11 with Solemn Vow to Never Forget - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPRXVGY1o1bDFleGIxelRhOFlUQmJ2MW1CZXNqNnd2RmJnalV5S0U4dW92eFdNeFdMZXJxWFJLYTBIV1lmblI4Z1Rrb1lXMTU1X2x2UG5NTXVfQmVLTzBIOTlTNXE5QUZycFlaOVdFS19zSVowamZLdVNzLV8wb2huejJOZGtRNXVucDVBRU11eWNUMXlXTWp6WXM5Q21YREo2UF82VEJHUG0yNkV6MjEzSll1RQ?oc=5) |
 | Jury trial of Ryan Routh, man accused of trying to kill Trump, begins in Florida - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOa1Zod3dHMWRDTG14em1xYy05cjlOZ2lRUXltRS1kT1hnVEZNcWNZUy1uem9UWDJKbnF1WDBETW9LWXNmdl9haFp4N01HaHUzR1Q5RnZ5bENtZEZWOUZ0T1BabXNqbFdrRXl3SGkxWm9wS09HcVpGcXJKRmRfQXJ1Y2pSQldFZmpKeURpM1pqd3FNQkZwYmc?oc=5) |
+| Nadine Menendez: Ex-senator's wife sentenced to 4.5 years in prison - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1VT0p1MlRQRmRPQ3lReS1YLW9wYzBJR2JGLXV2ODNYamVaZl9yOTJMeE5BU0g3OS14d2RqTEl1eWhDWk55ZTBTTk5jWWt0clJXM1p4cjNiak9NZw?oc=5) |
+| Plane carrying Hyundai, LG workers detained in immigration raid departs for South Korea - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1CWFhlVzIzb0JUUkN2WENMWG41R1VLeEJDYXN6ejNqZU9ZT3g1My02a1U2U1pDV0pVeTJaZ3c1RmcxTWFYb0pSZGdDTW5Bd2x3NnZ0eGFNdDVaNlUzVHhsR2lBZXBvNUtpNDVFb1BnY3BsNnp2czVBNHp5NDlJZ9IBgwFBVV95cUxNQkczN3lkc3IzVlhfWmwzbzhsb3MzdU1lQkNGcGYyejJOUlY0M0R4MngtcDVyUWF4LXM5bzdFblczQ0o1Qm1oUWVtOEZEOWtLaDc5bXNDa2VvaklJQW1DVjU0VHBucTNhLU5EUVlsX192YlRIUVJwOFM2RTJvQ0hNWDlIUQ?oc=5) |
+| Qatar bombing tests the limits of the Trump-Netanyahu alliance - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOeVM1eTBjMDhOZHotblhLWml1c2JRSHhnQnBTeTJRVlFGcUpsYVNyU3lDc2xTblRZU3VRNDBfSE5jT3hTalRFb0FBSWl2R1hzNW1STVhWSS1sU0M1VUppTTQtaTRDcGZiejBpRl9KUEZoa0VKQVN5ZzQ3Z0NfU2t6SGlTZWIxRTRLLTZRTmRFQmQ5QmlWVG1wY0IzY2ZlY3hEdUY2eXVhZ0M?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
