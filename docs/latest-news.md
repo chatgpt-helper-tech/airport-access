@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 02:48:08（北京时间）**
+🕒 更新时间：**2025年09月12日 02:57:24（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| FBI releases images of person of interest, announces $100K reward amid manhunt for Charlie Kirk's killer - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQNG1TZ2pib1pNRzhwdEU1SlpXQkFlUndlRnJ5VEo3RDlEVHplSDF6M0x6OVg5aEZNT2ZnM2x0Tm51SXFyOWhaQUYzSF9NZmtxYWxjRFhOV0cxS1VWdVBYUlNBeFBlRFJja0RHd2lWZi1zV1lUMnJEbDUyOC1vMzhWcTFQOVRZSk9hRWgxaUFzTzA2czN3M2prNDVhTWVOMXkteURv0gGoAUFVX3lxTE9HMU1neEN3OVNNNndJeVVkUUxFVURwaFhPN1hDNkgwUVdTaXJKUk9QdkZKc3ZyYzJBd0lYUkd6bVhMdF81SV9keFk2ZllyRFV6TjUwcVFsQmowbFZjSzlhNGY5NWZESlNhdVo1MFBCU0N1bDhBemZJb1lqemtDSGJfUUZaaG9zWlJ2eVFsWVNnc01Sa1RfME4yREF3a1BGcFJDUnNtMHBtMw?oc=5) |
+| How the Charlie Kirk shooting unfolded – in maps, videos and images - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPcWRBR3ppX0I2bkN3S25DamRMczRSZUxGeTBfN3dNLU90bWVBQjJlMWp1d1g5eWhHcWl0cmNyS3BHbEMxdFZEMUQ4SjVPaERzeGpsX29YUDZVV3hBQ2QwNjNQS2xaN3JVNmdtRjB6YXozTHg2a1hzZXdCNHhwbkRDZWdjS2lZbzB6WVJoTm43Vi1kQQ?oc=5) |
 | U.K. fires its ambassador to Washington over emails to Jeffrey Epstein - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxONm5BdXZ6eTJFWHhOWnFRWFZzMjR0YnlTMENVRHZCRDhkZkFWa2JKajQ3emdkTURGSFFPUlluNzBiZjZVN3paSWFqOUZPNURyYVRTTjhPRnlSMnNNT3R4RnVsbnFIMVQzbWJsNnphQjRDay16WnBrNWs5ZXhRQ3FEcmtaeU14c0gzdmxXNQ?oc=5) |
 | Multiple HBCUs under lockdown after receiving threats amid rising campus security concerns - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPTUNzRVBfSW5Ea2pacWtSQ1o4cmV2NmVTNTU3V3dZbWM4N0FfWmtjN2xaeGt2ZnZRYUhqMjBQbDhmOUxlbGV1WjNnWTJhWFQyZU9jY1RhNjZhUlVHX18tdVI1dFZPbUtsTzRGQ2t1UUpJVTllamV1b2JHSk5oTjVUcUNzR2NvdktuWE5DZUV6ZVVMbGNFWHluTmxSMzBPb0Z6eDB6cWtfZ9IBrAFBVV95cUxPcUFnVWlEdXZZaFhLQzJ5QUFjWkhjajY5VWR6MldEbjYxc1lvN05Xd1JQR1RqdWhIeE5OOFJHMUhKNThYNmwtQ2VEell1eFZsSkh5NVUzUGdzMkxTeXlKMTBGLWMxNUU1dHg4RnBCSzdEa3lxWWlaN1E1NWpORFlIMUdmNG4xVVFyQklheF9tTlVNa2xSbW81a3VpWEhkZFRuRmxrcTNiS0hYZ2Zf?oc=5) |
 | Nato strengthens defences after Russian drones shot down over Poland - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9HRXo4dVRWd095UWtic0lTaXBFVVJmZDJzc3hGSDh4LXhweElUd1RDTVF0czhPek1mbFlaZGhoTEpnOUNHUHJqQy04ZEpGaTFneWlzeHpwREJFd9IBX0FVX3lxTFBGelAzY0g5bXhmeUtfak92V1NhTDhONG9wTDc3NHRMQ3VPWTc2UkVJSzhoTi1ObTFZb2lvYjU3RkVWc1JUd3pIUno4V1htSDlYVnY3QTNHNVQtcjF2dy1J?oc=5) |
