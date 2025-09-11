@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 06:24:24（北京时间）**
+🕒 更新时间：**2025年09月12日 06:32:18（北京时间）**
 
 ---
 
@@ -17,14 +17,14 @@
 | Nato strengthens defences after Russian drones shot down over Poland | [阅读全文](https://www.bbc.com/news/articles/c0lkz2n34z6o?at_medium=RSS&at_campaign=rss) |
 | Phillipson and Powell set for Labour deputy showdown | [阅读全文](https://www.bbc.com/news/articles/c20v3l4qy11o?at_medium=RSS&at_campaign=rss) |
 | Ireland threatens to withdraw from Eurovision if Israel participates | [阅读全文](https://www.bbc.com/news/articles/c5yvd8158ywo?at_medium=RSS&at_campaign=rss) |
-| John Lewis losses nearly triple to £88m | [阅读全文](https://www.bbc.com/news/articles/cx2jm4pgejjo?at_medium=RSS&at_campaign=rss) |
+| Warner Bros Discovery shares surge on buyout reports | [阅读全文](https://www.bbc.com/news/articles/cz9jed2qpq1o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | FBI releases images of person of interest, announces $100K reward amid manhunt for Charlie Kirk's killer - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQNG1TZ2pib1pNRzhwdEU1SlpXQkFlUndlRnJ5VEo3RDlEVHplSDF6M0x6OVg5aEZNT2ZnM2x0Tm51SXFyOWhaQUYzSF9NZmtxYWxjRFhOV0cxS1VWdVBYUlNBeFBlRFJja0RHd2lWZi1zV1lUMnJEbDUyOC1vMzhWcTFQOVRZSk9hRWgxaUFzTzA2czN3M2prNDVhTWVOMXkteURv0gGoAUFVX3lxTE9HMU1neEN3OVNNNndJeVVkUUxFVURwaFhPN1hDNkgwUVdTaXJKUk9QdkZKc3ZyYzJBd0lYUkd6bVhMdF81SV9keFk2ZllyRFV6TjUwcVFsQmowbFZjSzlhNGY5NWZESlNhdVo1MFBCU0N1bDhBemZJb1lqemtDSGJfUUZaaG9zWlJ2eVFsWVNnc01Sa1RfME4yREF3a1BGcFJDUnNtMHBtMw?oc=5) |
-| Brazil’s supreme court finds Bolsonaro guilty of plotting military coup - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPSzJEN2VaYWlJSktlTk8zMjF1NkJIamhkS0tDd1Y5cXFIMEowVmY2LU5IcUMxWXhFRUpCZWlDdkVJci1CTURieXd5WnREY0l6d3FSWVVzbThyYzQtS1AwWXVheVI3S19UTjY2U2x2b2RGU09lcmY2OUFTamxxcnI2M005cTdWSUVpN3RzVHRNems0Zw?oc=5) |
+| Brazil's former President Bolsonaro found guilty of coup plot - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE4zWkVvX1JqdW9YVmpTZzhiTVBsMVhHT01JdDFYbHktSTdQUm94M2JXVG9HT3gxb3Y3dTB6ZEMyd09HbkkybzR6ejRwQklQeE5pbkhvYlNhRlF1Z9IBX0FVX3lxTFBsaHBJSDR5OUFCdXVHSWVNdUpnZDgyM1JSOG9VNDZqZDMtNVY5eGdvRVhpQ1lpLTRBcTBLT2Z4RFhfY2dkcXctTVV1ejZIQ3RRRV92YmlkWU9PdXJ5clp3?oc=5) |
 | Student Who Shot 2 Others at Colorado School Was ‘Radicalized,’ Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOa1hISkpiRWZZR2tVSzVSNHFaeXBxeG5UeXVUeWhMc09LZGlwZFExYzNTVktiN0cxMjRHYWVyYWdpTjh6TkxqSy1QaE1tTWZ3QU5mQzdXQXk2NlQ2SkdEejQ5a3g4WnQwRVdjLTYtTUdsVmVMajRFT1RRV3VoUFVtaGZXaE9xSHhzTlE?oc=5) |
 | Senate Republicans trigger 'nuclear option,' changing rules to speed up Trump nominees - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNa09vZ3ExQUR2VGJOVmpnRXhfdkxfSDI3R1FOejRndEhRV0VaaTlzYl9BX0NuUEYxOWVYdUJtWncxNnhwcVdhZjhycWVCZFJGTXBTZ1g4cXpacnpNLW9vZ2xJQXNVUFRSaUlmaFdONUs1ZDI2UHNkWmRBYTktWGdCMHRrMmo0N19neUdLTEZGMkN3bFByblByaHhZR3l5Y0FaSE9TYlg5Q1hpLUY5YVZrQ2tuRW7SAVZBVV95cUxPazFEQzVEMW9VdUZEanVqMlNnTUFOb2xwQ212ZVBfRFgycktqNE9CTnQ1OEwxM3FNWjJQQkFxeUhlZjh4bG51NEdwejJ0VTNkY0RCY3VEZw?oc=5) |
 | South Korean workers detained in immigration raid leave Atlanta and head home - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNblZ3RTRKMU5zczY0M3ZRVkNXQVZoM3EtU3c5bHBPY2NGeUlaSWRRZkgwbGw4emNKalN3SnRZZ1FpVnY2eFZKaW1GV050NEo5N2FraExzb1VFU09nT2xYcVhKYVkxR3pMNDYwVDRHelgzYUFpc2JzVUt1aVdLSDY4c2JydlRQbmQ4ZUZfNElvWktVQWtXc25qSDR5T3ZQUVMwM0h4aGxn?oc=5) |
