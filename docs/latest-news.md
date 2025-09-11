@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 16:57:05（北京时间）**
+🕒 更新时间：**2025年09月11日 17:01:41（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Charlie Kirk shot and killed at Utah event; manhunt for shooter still ongoing - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQMGJxRkNYazNmbWRFR0xrT2V4ajF4V015MDF3RWRwSXRnS25XZlc3TUk0aXBXcU5GcjVBdXlveGJoSm9wQjA0S0JGUDZzTkdxaVY5OTJLdktXczRVYTZNRGJrQWxrUXlOOXFrQ1NOYVNIZ3FRS1BoREx0eUNWMFRDWnhuQjjSAYoBQVVfeXFMTTJHUGZUcG9ZLUd6VWd6NU5RMEhQQ2lBUjV6X29FVU9BNVQxVlBmaHpaYzA5aHFYaFBnSG9LQmw5dHZvRzZUdlAyenBsdG1LTjBadEdidzJLc0JobEF1MExZY3QtSExBcFJlYmllMklOdktNSW9mVlBQLU9MMlgzc0xoaWpJTTBiTWxR?oc=5) |
+| In Trump’s White House, Charlie Kirk’s killing is deeply personal - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPS2hfNHZFa3ZsbHlxQnpMeUY5YU5CaHNjWHk1NEcxOEJzYXJhWlBmWi1ZUUpCLVRWaExUdEpMcHV6QnBNb3VwQW5kaXJ5T2FNbUhMUmtTT3RUVXdReFpiRUZLUGtoem42dE9Ra2J5RmRwSVR4R2JkWlJhM2xSN0U3b1NDUU5XUS1kSlE?oc=5) |
 | Poland responds to Russian drones incursion by invoking Article 4 of the NATO treaty − what happens next? - The Conversation | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxQSUNKc2h2eGtNa292TWM3emJzMll2NldNVE9vRHZTdHhDbGlQalBFZUdRQWhrSGhoczhkRGJNcHRGSW1JOE9XS0lpTF9ZQXViQ2pXU0V4eHY3UkgxTEJrWjcxVzdZVnRfTVM2U012RHZtZWh1cWJ0ZmxwcnRxdWJjZlQySVVYTjNUSVVYejhEdTNhSTVCYzMtaHJDS1JIU2ExSWlYXzVqajZCdnVYUUR2ZE4yWDIyRXFlWWJxejV0cWJGT0dHN3ZucURSX0VaQVN4djU0?oc=5) |
 | Comer rejects calls for handwriting expert to analyze alleged Trump signature on Epstein birthday letter - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPS0lUbHEzTUhJbllZVHlGOWdkN041RnZnWFFJMWVsZEZIampYdUsyblI1RlNSZG5aUEYyV2Zwc0FXNjdjNnkxQ0ZIcEdQZzhMeHFETHV5akdpVkQ5S2dITk4xazlNem5ObEx6RFZLMkFJbWNUZmFyZjBEejJFMl85OFJvUFNtekUtVGNZbFlzR0FSWGctSXRLNVh1UUtqNU5pVDB0d0lPdTBucDE0RFhDbdIBtgFBVV95cUxOQlVCdWFqMHdQSUNIc2c1aG9oeXFJVWw5QWEydEVSYldoclJRdXRqOHpSbHV4NTFfQzZHblpMcFhETlFEeXlfODFDT2Z6RXRsRGpBYlpUNFZQaHBIQzNfYzBEMTJyOXEtYUYxQWZMbnBzNUY4SGpDTzAwQUtaXzFpNHl5TWpiZzd3ZVVxcVhQeVZabF9PaEpLNXB5SUhfeGo4N1psVVlvX2RHcTlScmtxSno5bkhGUQ?oc=5) |
 | Mother, sister of Charlotte stabbing suspect describe history of mental illness - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNTkY5WFh6VmVOREI5c2hqS1ZDVWZPamI0c2J5NUIyWDc3S2JfZXlpcEhQWWY1SmtRcVZVNXY2eDJGQ0x2QVp2V3h3bXBuMDJ5b0FpTzlFMXI0REtRaDNCTmQwdVRVQzNCang5V0NTR1NhMHlHMmdQZU1pekI1blp0VjVtcUdDYzdLalZrcnZlMlZsT3VOY0NjVXk1b0ZmOVFIYnlZV25MVFpkblBhUUE?oc=5) |
@@ -32,7 +32,7 @@
 | South Korea president says Korean companies will hesitate to invest in US without better visa system - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPam9SV04zV25FdkNOZ0NrWjJMcnJaOEUwYldUQlJoX2wydGVsem84VEJkUTBfSk4yTkJqOE1Fc2Zqdnk0ck95VlJYTjJjNVZUU3FWNTlSRDgyMm5VUXRTR2gzQWtYTGZFenQ2cDJqT254WjhDZVY3dkZKN2RUQXJhSmtJQTBMRGQ3aVI4RVNKVkV0NVduNy1VY1hlYTFFdVh1ODlGZWw1dFV5SlptQmNDLXVXSXE?oc=5) |
 | Israel threatens ‘enemies everywhere’ after strike against Hamas in Qatar - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9NbkNjZnFrZENQZFZ3MkNaWHg0bVdsMkFfSDUwYVBJcnJaM0Zha1VGVE5WUWRtRTk5TFJ5b1FDOE5pR3VnTWNySlg4RnE5c2Z2RjhGc1VlLVpza1F0dmRvWkcxUlRJUkhxVlhyQ1N3cVNiSXpYem5kejU2NDB3TWs?oc=5) |
 | 'Block Everything' protests sweep France, intensifying pressure on Macron - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNak4tOHpJQ2g2REVHTUZOdjNGU1ZEMWdPY011dFVDenpFMGF4NHlFaldJaVBXZHF5aXJPX0x3cFc1cHM0T0M1QjBxSGZBRmhFOFhGZnVkWU9yWjlFYkdTenQ1b05HRDJ6dTJqMHFOWnVVSE5EM0J1NkUxWGQxSVR0LTQyRTdLLThUVXNtMk1Kb1dpcnlrM1RoRzBqT3A3dWtu0gFWQVVfeXFMUGZpMTAtYkxmeEJMRHVEWUc4MGZSblZDaV96SEUwUjZlV3FvellnV0U2OWlNOUFNUUlYLVYxbFRwTFZ1YTR4eEFrQ210bUItWkE5dTdIbFE?oc=5) |
-| After 18 Months, Prince Harry and King Charles Meet in Person - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNYXl3bE8wMzZ0UVZjNU94d0h6dnV0LVc4aTh4N2tmNllaTVJ1VWp4QU1UaGZhSzJRQjV4YzNLSm1DNnFrV1VzUDgyWkF0NUs0SWtCeVcxS083ZjZfRXlIT3loZktRV1JuR0F4SzRRYXN5ekJlc215WEg1NHlfRWFIdEc4NzdlZDlXNzJDOEhsZGh6dEcxSHBxTHRXbmRMR0k?oc=5) |
+| Tunisia investigates Sumud Flotilla alleged drone strike - The Jerusalem Post | [阅读全文](https://news.google.com/rss/articles/CBMiX0FVX3lxTE9VVHRhejhvZmhwaVl1NUVSalBhaHo0YnlBM2d4SURQa1BRajJKeVZoTUVQdTBUT05LSGtjNDlkZTBqTncyN0xQUF8wOHFVZTlDLWpqS0tXS1Q5TF94ZFhR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。

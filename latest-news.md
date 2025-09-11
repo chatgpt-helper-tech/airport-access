@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 16:57:05（北京时间）**
+🕒 更新时间：**2025年09月11日 17:01:41（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Charlie Kirk, Close Trump Ally, Is Shot Dead at University in Utah: Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFA4bjhmRW5SdFowbzBybXE2VFZfdnBaNS1TOUZwQWNYUVZfeEJxUEFtdEJzOFFDZzVpS1FJOGdDTEZ3Y05WMW1uYlQzMTJLSlpWUDBwQ0UzY255dWpCNDdnN3ZqUHFwcEo5b1JzTGpaQjNYRDQ?oc=5) |
+| In Trump’s White House, Charlie Kirk’s killing is deeply personal - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPS2hfNHZFa3ZsbHlxQnpMeUY5YU5CaHNjWHk1NEcxOEJzYXJhWlBmWi1ZUUpCLVRWaExUdEpMcHV6QnBNb3VwQW5kaXJ5T2FNbUhMUmtTT3RUVXdReFpiRUZLUGtoem42dE9Ra2J5RmRwSVR4R2JkWlJhM2xSN0U3b1NDUU5XUS1kSlE?oc=5) |
 | Poland responds to Russian drones incursion by invoking Article 4 of the NATO treaty − what happens next? - The Conversation | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxQSUNKc2h2eGtNa292TWM3emJzMll2NldNVE9vRHZTdHhDbGlQalBFZUdRQWhrSGhoczhkRGJNcHRGSW1JOE9XS0lpTF9ZQXViQ2pXU0V4eHY3UkgxTEJrWjcxVzdZVnRfTVM2U012RHZtZWh1cWJ0ZmxwcnRxdWJjZlQySVVYTjNUSVVYejhEdTNhSTVCYzMtaHJDS1JIU2ExSWlYXzVqajZCdnVYUUR2ZE4yWDIyRXFlWWJxejV0cWJGT0dHN3ZucURSX0VaQVN4djU0?oc=5) |
 | Comer rejects calls for handwriting expert to analyze alleged Trump signature on Epstein birthday letter - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPS0lUbHEzTUhJbllZVHlGOWdkN041RnZnWFFJMWVsZEZIampYdUsyblI1RlNSZG5aUEYyV2Zwc0FXNjdjNnkxQ0ZIcEdQZzhMeHFETHV5akdpVkQ5S2dITk4xazlNem5ObEx6RFZLMkFJbWNUZmFyZjBEejJFMl85OFJvUFNtekUtVGNZbFlzR0FSWGctSXRLNVh1UUtqNU5pVDB0d0lPdTBucDE0RFhDbdIBtgFBVV95cUxOQlVCdWFqMHdQSUNIc2c1aG9oeXFJVWw5QWEydEVSYldoclJRdXRqOHpSbHV4NTFfQzZHblpMcFhETlFEeXlfODFDT2Z6RXRsRGpBYlpUNFZQaHBIQzNfYzBEMTJyOXEtYUYxQWZMbnBzNUY4SGpDTzAwQUtaXzFpNHl5TWpiZzd3ZVVxcVhQeVZabF9PaEpLNXB5SUhfeGo4N1psVVlvX2RHcTlScmtxSno5bkhGUQ?oc=5) |
 | Mother, sister of Charlotte stabbing suspect describe history of mental illness - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNTkY5WFh6VmVOREI5c2hqS1ZDVWZPamI0c2J5NUIyWDc3S2JfZXlpcEhQWWY1SmtRcVZVNXY2eDJGQ0x2QVp2V3h3bXBuMDJ5b0FpTzlFMXI0REtRaDNCTmQwdVRVQzNCang5V0NTR1NhMHlHMmdQZU1pekI1blp0VjVtcUdDYzdLalZrcnZlMlZsT3VOY0NjVXk1b0ZmOVFIYnlZV25MVFpkblBhUUE?oc=5) |
