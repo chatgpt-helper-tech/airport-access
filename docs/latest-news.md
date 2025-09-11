@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 23:41:40（北京时间）**
+🕒 更新时间：**2025年09月11日 23:49:57（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | Watch: Videos show how Charlie Kirk shooting unfolded | [阅读全文](https://www.bbc.com/news/videos/ckg3xp9g9zwo?at_medium=RSS&at_campaign=rss) |
 | Why did Starmer take the risk of appointing Peter Mandelson? | [阅读全文](https://www.bbc.com/news/articles/cjd1egrlj0mo?at_medium=RSS&at_campaign=rss) |
 | Farage faces questions over who funded £885,000 Clacton constituency home | [阅读全文](https://www.bbc.com/news/articles/ce845w70g0yo?at_medium=RSS&at_campaign=rss) |
-| Feeling stressed? Here's five ways to manage it better | [阅读全文](https://www.bbc.com/news/articles/cg42zq7nqxwo?at_medium=RSS&at_campaign=rss) |
+| Stressed about feeling stressed? Five ways to manage it better | [阅读全文](https://www.bbc.com/news/articles/cg42zq7nqxwo?at_medium=RSS&at_campaign=rss) |
 | Nato strengthens defences after Russian drones shot down over Poland | [阅读全文](https://www.bbc.com/news/articles/c0lkz2n34z6o?at_medium=RSS&at_campaign=rss) |
 | Barker and Thornberry pull out of deputy Labour leader race | [阅读全文](https://www.bbc.com/news/articles/cg7dzejkz4ro?at_medium=RSS&at_campaign=rss) |
 | John Lewis losses nearly triple to £88m | [阅读全文](https://www.bbc.com/news/articles/cx2jm4pgejjo?at_medium=RSS&at_campaign=rss) |
@@ -31,8 +31,8 @@
 | Trump offered to let S. Korean detainees stay, train U.S. workers, Seoul says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNU0RpMENTV3RlaDJOaUc2d1dDZHl3SUduTG9qM20zdTltNE8zSE9MYTZUUzFsSUc1TXVBYUFMcUUxNzRLY0FraGFZS2JBQ2FfM0UtM2huUUZZQm5ocDl0SURQbU5xZVlSVzFUNzhGSkpoMXlUVVNFZ2hRNXVITU9OZDViUzZRM2lwazY5WHN3?oc=5) |
 | Trump demanded Netanyahu commit not to strike Qatar again - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBRLTZ1cFdIQjQwSmVNbVNhcTFZNDZaOHg5aHk0d0lOZ2VCVXRjWEhBYUhCQkFoQzF5bHZMUlE0WHRDU0FDMjBpelpLbnJvalRSZkRtbENoSkRjdUlla2pBMUtDekR6bkVTMkx5R09rUTc5cXgwa2FLLTl2alNsX2s?oc=5) |
 | Where Will Everyone in Gaza City Go? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOOU5pM05IQ29EU24waGw2blNxWVVwUkFIZnJHWUE0ZjVPTEsxTDdXSlRKY2x4Q0IxU19tZDdjZGVreXpLd2Z3ekMyRmxnUjZpa2l6ZEZnQ2ZLTWYydVpyMnV3ejZxYmZpSGEtNll2TENfTTZLUnlrY1NHNW1jdW8yOElkTEZtRXJ1dnNXQU1Sa0FLUHA5a2xGV3pucnBlRDRIdG40?oc=5) |
-| Belarus pardons scores of prisoners ‘at the request’ of Trump, Lukashenko says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNS213enJjREMwU1R5bkRIVXpyREdRSFhlUE9Za0pUdHA0eGltb1ZXX0U2WEYwaGs1SFpHU18yZHNnTGNtVXluSHh2Q2Q2cWg2bFZyQUZkbUtMQ0tSemZQZ29BZl93N1RGaC1jOW1Qd2FTdWcwSm5TeXZObTFRRWxEaGwxcjBnM0NWcnNXNDJ3?oc=5) |
-| Nepal Gen Z unrest: Who is Kulman Ghising; new frontrunner for next PM studied in India - 10 things to kn - Times of India | [阅读全文](https://news.google.com/rss/articles/CBMiiwJBVV95cUxPNXRrUjJlTm8wRVlXMjd3TFNBSFU5cElwS24xWEVGbnR4TW1DRUpqdGt2a2lqTi1YZHpQRGpHZWFMd1VDM1dBWmNvRzVBTF9PT2ZXdmxGVmVRLVRuREg3azVjeGktWkpMRWdVZjJnQmpCUm9YV05LRHdqQi1WbDlzLXpTMTVrbEhUUnBXTjUzOV9ZSEg1U0Qzb01UdFJvMDBZbFJ5NjEtYVlnNUJVTko2a3BVbkZiQ2tRTnMtTXFhSHM5ZUJLVFFLYXBEQlpyN05mYTFJeGRuMzJxaVVMMDJsaFRYb3JBbUlRWmpxWGYwOUJJM1MzNDAyc3hEWFhEMUliWjRUVHg1VHJ6b1k?oc=5) |
+| Belarus frees 52 political prisoners as US lifts sanctions on its national airline - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPY1hqUXA3R2lzZVJmUDQ2a2dSSzNoWjVydElJSzVDNkczUFZzS3pvblV1aHlsVXE2NkxUM3JTbGxoTnF2dWM1QkdXdTk1QXJQRExnN3dSMGVxYnJHWWtVY083emh4VmpIdnB0M1BQMlZucFd3S1o3WEY2ZGJEN0tONEpIcm9iWG12UFY4Z003STRCSUhX?oc=5) |
+| Nepal Gen Z unrest: Who is Kulman Ghising; new frontrunner for next PM studied in India - 10 things to kn - The Times of India | [阅读全文](https://news.google.com/rss/articles/CBMiiwJBVV95cUxPNXRrUjJlTm8wRVlXMjd3TFNBSFU5cElwS24xWEVGbnR4TW1DRUpqdGt2a2lqTi1YZHpQRGpHZWFMd1VDM1dBWmNvRzVBTF9PT2ZXdmxGVmVRLVRuREg3azVjeGktWkpMRWdVZjJnQmpCUm9YV05LRHdqQi1WbDlzLXpTMTVrbEhUUnBXTjUzOV9ZSEg1U0Qzb01UdFJvMDBZbFJ5NjEtYVlnNUJVTko2a3BVbkZiQ2tRTnMtTXFhSHM5ZUJLVFFLYXBEQlpyN05mYTFJeGRuMzJxaVVMMDJsaFRYb3JBbUlRWmpxWGYwOUJJM1MzNDAyc3hEWFhEMUliWjRUVHg1VHJ6b1k?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
