@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 11:08:07（北京时间）**
+🕒 更新时间：**2025年09月11日 11:17:19（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Charlie Kirk shooting: Trump calls killing 'dark moment' for US as manhunt continues for suspect - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFAwRkllRTNpOWlRU3ZFMVdLbjhSSkRfOGNILUdEcUtNUi13eWx4QTRqY0VGam5Ka2xJZzNRUlVpTHpzV2Vqd21rQkVzV0lDdE1rV2NMNA?oc=5) |
+| Charlie Kirk, Close Trump Ally, Is Shot Dead at University in Utah: Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFA4bjhmRW5SdFowbzBybXE2VFZfdnBaNS1TOUZwQWNYUVZfeEJxUEFtdEJzOFFDZzVpS1FJOGdDTEZ3Y05WMW1uYlQzMTJLSlpWUDBwQ0UzY255dWpCNDdnN3ZqUHFwcEo5b1JzTGpaQjNYRDQ?oc=5) |
 | 'Here we go': Trump reacts after Russian drones shot down over Poland - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPalFCa1p0b0hoU3RadzVwLXlXbTJ3MU82ZHpTWVZxaW9wOVRpOXdJNXpjV2ltcUtpNjdsQ3oydDViVDVjVVp1QTEzanlJRDJSRnc2d1FIVGpCWG9NVDl3d25YNzN1Nl9rTkhIVkFRX0xyWVlnQXBENGRlcFJObVlBdS01SnNNWFlvRVV2ek9LT000NElfc3Q2OFFweHV4R1h1U3Q0X29wUDRPVTlF0gGyAUFVX3lxTE15YVI0UmE5TjV1VjA2emJSc21ERms0aF9mNXZROWEtOE1UalR4Rm5seEM3cTI3eFE5U3dPdmM0WWh1dC1vQVNwN1FfZHNSNFRJSUZWS2tqRDBUS3AwREV6dDgxOW1qYk83bVdNR3VNb01CbjgxU0FsTTBPdTBoNjdIeTNydjFkRUg2Rk5rbWtHNmMwT0xPdzlFanJZbXNsRi1mb1k3T2ZCOUpRc2psUm5VQ0E?oc=5) |
 | Former top FBI officials sue, say Kash Patel fired them to stay in Trump's good graces - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPNVhON1gxay1iSHByWEFoejhEeDFweFh1cUh4RUQ1b1ZmTUl5OXJNYjh2R2x4SThZTEpPVDV3MzB2aENhN2ZvYzZXMUR4Q1pVNlJjMGo3bzVTOGljUkota3U4cHdaMzBIUEZNNU1YNjVWMnMwV21WNXh6aTNTWUQ5RVFUUWd1ZnhwTXUzbTJUdmZlcmQ5ZEhRLW5VU0RabnJERVFzYzY3a0cwb1c5ZEFzUFl4Y1hnYTBrOWkwQXFyVEotdHhBaHN0QjBSY0d3d9IBVkFVX3lxTE4tZmhIb21UcDExQ204T0xJeS1HQnh1ck9XQ3RxZXFFeHk3ZUZLdThNdEw2ejgxUjQ0RVo4dWJ5N0U3RVlBdWRmUThWTHJHNVdlZTNLb293?oc=5) |
 | Shooting at Evergreen High School leaves three students with gunshot wounds, including the suspected shooter - Colorado Public Radio | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE85cDdVTTBjZl9PYlBiUFpla1FtYldXZE84VHRUR0NGUlpwR3VIckRzem42M2NTUGxuVTBBU3hXWk5RQ3lkdmJtTVB1VUo5Zjd1NkpqZno3akNBWnNuVlZjVXphalBPQm5MRGVzUEFvWQ?oc=5) |
@@ -31,8 +31,8 @@
 | Netanyahu pledges to target opponents abroad after strike in Qatar - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNVHhrMzktREl6MklSdUNXRzdydUNFVGdkVDl1aFhKcHNteFdMVUFITWZ3OU9hU0ZqZElYWVVadnBfVHFZbmRhb2FaU1FrdzV3ZUpSRG1rdFhnQ2xkWDhuUTJ6Wkp6blJOcVdGR1EtQW5IR2d4eDN4ejdLQV9YMDFJX2RMQXhFTmd3eXJVU2QyUV9ZMXBwZk1XcTZ5bmM1d1FIbDM5QmprSdIBrAFBVV95cUxORTdtYmtMbzAwT1ZINVZKb0pFa1FHMkxrWkNLeXNVcE54T3o2WTRLTDBEblItUDVqT1RkLXpyakdRSi1nNmxjRzc0VmREb2ZPMUhpbjhiOWlYcVpKSWx2VWIzYTFHbFpiS1lHVUozanJndkxzTmhYVXQ4aWt2TjNCVXFSSXh6N3NRMVF0VWdQNm8tbGE3MVlSX3lDelV3ajdzLVFOeEJnQ251SktJ?oc=5) |
 | Texas A&M professor fired after viral video disputes termination - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNbUtVckNkbUt0QUxHVEtBWm04V1ZLTGlKUVZTVi1tYVNRX2tHOVdzZS1JVzNMWXNHWm8tT2tUN2lMWjdmZmZHWFEwRm9tQktGbGtqT3ctbXJhQWxMN05iSUdNbmFJSVM4Mlg4T2s4TFBOZE4wbnJ1NThvZ184T1FPaUw1M3FISlJGT1otelJMNDNqNVFS?oc=5) |
 | Harris goes there on the Biden question — and Biden world isn’t having it - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPMTJjSjAtWFVqa0ItTVZlUFBPSHE2ZkIwOEVRNncxeklYNUxRMzREb3JHcFpkZURySTJnWU13bDQtcm1uU2Y2cWItbTNkTnVGV0s0Uy1xVVhCa3FlT2pvNF9EbTRKZjFjLXRxVG5tOGpwSlFjVWVQSWt6M3VRdHpoZ200bkF4dw?oc=5) |
-| Supreme Court won’t block transgender student’s use of school bathroom - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNOHM2TExLV3RwcGFKMHpvWW9uM0NxN0xsM0JVUk1ieURCdk4wSlVFbk1iQUEySk1QazNFMWs3NG8tOTROalo4V3NPRkd5ZWFoT3BsczhLRy1ETlNFUUg2aDJ4d0Y1M3RyLUZmOXpPdU81SXdobENENU4yUTNSYTVUbmhhT01hWkZVM1h2eUlGTjhUNzVNRlBmMi1WVEwxaTE0?oc=5) |
-| Prince Harry meets King Charles for first time in more than a year - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE95dWlwMGtVb2VpUWxnYms0S0FnSEJvbzI3RjVjcjI5MEw1NEQ4eW81SlQ2NFM4Rk12WlU4M2ZwN2pyYVUyclRzVVlZclVOUTg0VHM5cXV2WjMtQQ?oc=5) |
+| Supreme Court allows transgender student to use boys' restrooms at S.C. school - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQaDRoZS03SW1vLTNKZlp4MlRZOVNUaGk1cTYydmg3TFVVR3dJOGpJNld0MFl3WXNpLXdMdGM0Q1NGaElUZDd1aG50a1ZMVlJmOTRWRlptWjc3Mk10Ml92ZmwwWlhwYjNnMFd5Mm9WbUJPQUNISnhKNzlIZUwxdkdnUkZvS2h3ZHVzTVE3WTJEZ0ZMNEZyWHdUMEpJLV9IdWM5QUFsaVBDeGFzdDZsQzBvTVFLVEJoM1JZNURwSW9pNWJDa2fSAVZBVV95cUxPVENYQ3Znc1J6NUp3aDloelVpTHVBNmw0UHlLUGk3THEycllNOXFzVWc0Qkw3QnZsQzZqcUx0cXBiWVljbTEtb0tnU2ZaZmlpNEVIRHd3Zw?oc=5) |
+| Harvard Is Told Research Money Could Flow Again, for Now - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE8zMlVtbTVhdFdnSXNuNU1mRGFqMF9uSkdEaTBtc1hZbnRGSUdLR3k0dDVtRDFNbjVudjZEcGttY25JVFcyYUZWMWxPOEpadWgtQmloMXhhT3RBaWtSakRWdDdqSmtUTG1QRHdYejFQdzJiMkI0ZnNtRFFUaDlnQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
