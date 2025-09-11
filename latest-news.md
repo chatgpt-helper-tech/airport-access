@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 19:57:09（北京时间）**
+🕒 更新时间：**2025年09月11日 20:00:54（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | 'Everyone hit the deck and scattered': Witnesses describe moment of Utah shooting | [阅读全文](https://www.bbc.com/news/articles/c8d7900yl3zo?at_medium=RSS&at_campaign=rss) |
 | TV cooking shows are dying out - the cronut holds the secret to why | [阅读全文](https://www.bbc.com/news/articles/c0jq1d63l7lo?at_medium=RSS&at_campaign=rss) |
 | Chelsea face 74 FA charges over payments to football agents | [阅读全文](https://www.bbc.com/sport/football/articles/c8643dp5043o?at_medium=RSS&at_campaign=rss) |
-| Thornberry and Barker pull out of deputy Labour leader race | [阅读全文](https://www.bbc.com/news/articles/cg7dzejkz4ro?at_medium=RSS&at_campaign=rss) |
+| Barker and Thornberry pull out of deputy Labour leader race | [阅读全文](https://www.bbc.com/news/articles/cg7dzejkz4ro?at_medium=RSS&at_campaign=rss) |
 | Dr Xand: Stress is normal. Here's how to manage it better | [阅读全文](https://www.bbc.com/news/articles/cg42zq7nqxwo?at_medium=RSS&at_campaign=rss) |
 | How Syria's dictatorship used a global child welfare charity to 'disappear' children | [阅读全文](https://www.bbc.com/news/articles/c4g53e4zdjpo?at_medium=RSS&at_campaign=rss) |
 | Harry's tea with Charles could be small but significant step to reconciliation | [阅读全文](https://www.bbc.com/news/articles/cly0e0e7p0jo?at_medium=RSS&at_campaign=rss) |
@@ -30,9 +30,9 @@
 | Poland responds to Russian drones incursion by invoking Article 4 of the NATO treaty − what happens next? - The Conversation | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxQSUNKc2h2eGtNa292TWM3emJzMll2NldNVE9vRHZTdHhDbGlQalBFZUdRQWhrSGhoczhkRGJNcHRGSW1JOE9XS0lpTF9ZQXViQ2pXU0V4eHY3UkgxTEJrWjcxVzdZVnRfTVM2U012RHZtZWh1cWJ0ZmxwcnRxdWJjZlQySVVYTjNUSVVYejhEdTNhSTVCYzMtaHJDS1JIU2ExSWlYXzVqajZCdnVYUUR2ZE4yWDIyRXFlWWJxejV0cWJGT0dHN3ZucURSX0VaQVN4djU0?oc=5) |
 | South Korea says detained Korean workers released from Georgia facility before flight home - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPam9SV04zV25FdkNOZ0NrWjJMcnJaOEUwYldUQlJoX2wydGVsem84VEJkUTBfSk4yTkJqOE1Fc2Zqdnk0ck95VlJYTjJjNVZUU3FWNTlSRDgyMm5VUXRTR2gzQWtYTGZFenQ2cDJqT254WjhDZVY3dkZKN2RUQXJhSmtJQTBMRGQ3aVI4RVNKVkV0NVduNy1VY1hlYTFFdVh1ODlGZWw1dFV5SlptQmNDLXVXSXE?oc=5) |
 | There have been 13 school shootings in Colorado since Columbine - KUSA.com | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxNd2Fjc1pJRUQ5eHB3MXRWVHFNaGNlekNJSE5Wa1FwUFZBeUwzaVZNb1g5MXF3VXpDTjNYcS04eV95SVpMdmQxOHR3UlMxcDc4ZjdGeXVBc2M2NVV3aVJ4WGlpaVFLY0VVM1hLbHdrN0s1SlpXM2pwSWJGQWxoc2pnMENUN0NzSXBfUzR1R1oza0JKU2kxQi12VUFVdUhMSzJtaGt5SnVnbWZ2QjhvVTJneEstZXdqT3NRVEt4TTNnYUdINzQ?oc=5) |
+| Philippines protests China's plan for nature reserve in disputed shoal - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQNWVtV0lHWGZEOWEwbGtnZS1WZGNyY3d2SXNtMUNIbEl0ZlJWRjV3VUlDckl3bVhBNnpXSVFDc051eVpjdjAyZzdYUTFhTTVJLTBtQW5LU0lINmNiSm5xODRSWXhYbHVEQl9ha0lrZXlzSkpTY3VLUzQyN0tqR2xuZEdVYUpKb29tM21Ic0xaa2twTFl4c2EzbkxsVjhwN1lndVY0SDdMNHRMWnp3U25B?oc=5) |
 | Russia’s Strategy Against the West: Escalate Slowly and See if It Responds - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPbEZURzVJUjRiOV93UW5SZWN6bTJReHNrT25BQzIwdEdSZGRVZzFQMkpvQkgxV3A1TmEwYkNYYWZ2SEgtVTVlYjRoSHBYRjh0Si1NVnNDVzY0UThZZTFVSFkzcGU4QndidGhZVXlSWlhkYVoyMkVLRzlQYUNXemVJbFA1NzFOdEFSaVVDeHFoMWpadw?oc=5) |
 | France welcomes new prime minister with ‘block everything’ protests - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNTWlxMXJXS21CRlkwNFd2OTlSbEg5OTFuSUxJOFJZVUVJV2VTTDVpODBaZHNWbWRod00xMnROWjNTNWh5UkZ5WUxERHhNUFdFZmNRZmVxRldQaDdtanNTVFhfclp6a1dKdnFwZnA0YTdxT3dDUl9qcGNVdEtNMjFqelNVV3lQdkNaZUVXN3FzcWtNenhoS1FrVlRvMA?oc=5) |
-| Army tries to restore order in Nepal after protest violence intensifies - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOdGhCM2tTNjhMbllfdTd3WkU1NEtIdEE2RHZRamtNUUR0LWk1b1AxZkZyUVJYU3cxU0NyaVIwa1JldnJ5blJ1cEtfdXpTQ3MxRHU4TW1nbjNYSHJOZWJDMXlMZ1JXcnlIZDNkTnJ1aDQ3TVVPX1BoTm5ianpLMFZrUEdwQ3EyS1BTSWUtZDAwNkVmZ291QXl6MmpJRFE4bDQxX1J0b2lCR3lIc0MyVHBXQWtoVUpIdENpM2NrNk93?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
