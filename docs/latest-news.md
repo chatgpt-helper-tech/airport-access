@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 23:16:08（北京时间）**
+🕒 更新时间：**2025年09月11日 23:25:16（北京时间）**
 
 ---
 
@@ -12,11 +12,11 @@
 | Why did Starmer take the risk of appointing Peter Mandelson? | [阅读全文](https://www.bbc.com/news/articles/cjd1egrlj0mo?at_medium=RSS&at_campaign=rss) |
 | Farage faces questions over who funded £885,000 Clacton constituency home | [阅读全文](https://www.bbc.com/news/articles/ce845w70g0yo?at_medium=RSS&at_campaign=rss) |
 | Feeling stressed? Here's five ways to manage it better | [阅读全文](https://www.bbc.com/news/articles/cg42zq7nqxwo?at_medium=RSS&at_campaign=rss) |
+| Nato strengthens defences after Russian drones shot down over Poland | [阅读全文](https://www.bbc.com/news/articles/c0lkz2n34z6o?at_medium=RSS&at_campaign=rss) |
 | Barker and Thornberry pull out of deputy Labour leader race | [阅读全文](https://www.bbc.com/news/articles/cg7dzejkz4ro?at_medium=RSS&at_campaign=rss) |
+| John Lewis losses nearly triple to £88m | [阅读全文](https://www.bbc.com/news/articles/cx2jm4pgejjo?at_medium=RSS&at_campaign=rss) |
 | TV cooking shows are dying out - the cronut holds the secret to why | [阅读全文](https://www.bbc.com/news/articles/c0jq1d63l7lo?at_medium=RSS&at_campaign=rss) |
 | Ireland threatens to withdraw from Eurovision if Israel participates | [阅读全文](https://www.bbc.com/news/articles/c5yvd8158ywo?at_medium=RSS&at_campaign=rss) |
-| Nato strengthens defences after Russian drones shot down over Poland | [阅读全文](https://www.bbc.com/news/articles/c0lkz2n34z6o?at_medium=RSS&at_campaign=rss) |
-| Children hacking their own schools for 'fun', watchdog warns | [阅读全文](https://www.bbc.com/news/articles/c203pedz58go?at_medium=RSS&at_campaign=rss) |
 | A figure on the roof and a single bullet - what we know about Charlie Kirk shooting | [阅读全文](https://www.bbc.com/news/articles/cy04p4x21e5o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
