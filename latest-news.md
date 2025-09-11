@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 04:40:33（北京时间）**
+🕒 更新时间：**2025年09月12日 04:48:54（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Nadine Menendez: Ex-senator's wife sentenced to 4.5 years in prison - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1VT0p1MlRQRmRPQ3lReS1YLW9wYzBJR2JGLXV2ODNYamVaZl9yOTJMeE5BU0g3OS14d2RqTEl1eWhDWk55ZTBTTk5jWWt0clJXM1p4cjNiak9NZw?oc=5) |
 | President Trump, First Lady Mark 9/11 with Solemn Vow to Never Forget - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPRXVGY1o1bDFleGIxelRhOFlUQmJ2MW1CZXNqNnd2RmJnalV5S0U4dW92eFdNeFdMZXJxWFJLYTBIV1lmblI4Z1Rrb1lXMTU1X2x2UG5NTXVfQmVLTzBIOTlTNXE5QUZycFlaOVdFS19zSVowamZLdVNzLV8wb2huejJOZGtRNXVucDVBRU11eWNUMXlXTWp6WXM5Q21YREo2UF82VEJHUG0yNkV6MjEzSll1RQ?oc=5) |
 | Ryan Routh begins self-defense in attempted Trump assassination trial - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1SUG55a2pCeGtTVHR0U2E4eC0tTnlfQ3BaWVU1NlhMSGxjZzlrb3g2blZxVDlUYUdEQjVoRDhlY2I4NVFfR21uM1ZJdFl6aDdueDdCNWFWY0NlUdIBX0FVX3lxTE9US1poVFVSS19LSzRJOHBJNkFMUnQzTktUSm5CNFpHOGFGT0FQcm82c3daNjRnXzVWT3c2UkdqbThfQ2QzU3did0RaSnlSOWNjN2V4LWJNVHlNMFNoYWZJ?oc=5) |
-| Scoop: Biden world explodes at Kamala Harris' new book - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE1NVmdfZXRkMmZxZlozRV9fdlBFUnE2ZzBnZ1BGcUxSUG1mdkdtVGtHRWVmM2VFNEltNy1oSS1VaW9Gc25BbGtBbHVrS0FQN0tHZnhLbVFxa20ySDc3V3NFdV9HX2RuVkptd0dEbi1n?oc=5) |
+| Qatar bombing tests the limits of the Trump-Netanyahu alliance - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOeVM1eTBjMDhOZHotblhLWml1c2JRSHhnQnBTeTJRVlFGcUpsYVNyU3lDc2xTblRZU3VRNDBfSE5jT3hTalRFb0FBSWl2R1hzNW1STVhWSS1sU0M1VUppTTQtaTRDcGZiejBpRl9KUEZoa0VKQVN5ZzQ3Z0NfU2t6SGlTZWIxRTRLLTZRTmRFQmQ5QmlWVG1wY0IzY2ZlY3hEdUY2eXVhZ0M?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
