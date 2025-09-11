@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 03:57:00（北京时间）**
+🕒 更新时间：**2025年09月12日 04:00:20（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Nadine Menendez, Wife of a Senator, Will Be Sentenced in Bribery Scheme - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQWlZJYVZmWU42NjBpa2F6UkJEX2VrVE9QUEt3WU1pVUJhSU5MYV9FNzZhWVRTWksxN1R0Y2hKaXczT3g3V2tLQWdxU3J6a1ZnUGh1RXgxTm1aXzB1SWdMdFZwb0Y0UUYzZGhZZkhYT0V5NnI4UmlCUndZOHJmS3J1Wngxd3VCZmM0VFc0?oc=5) |
 | Plane carrying Hyundai, LG workers detained in immigration raid departs for South Korea - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1CWFhlVzIzb0JUUkN2WENMWG41R1VLeEJDYXN6ejNqZU9ZT3g1My02a1U2U1pDV0pVeTJaZ3c1RmcxTWFYb0pSZGdDTW5Bd2x3NnZ0eGFNdDVaNlUzVHhsR2lBZXBvNUtpNDVFb1BnY3BsNnp2czVBNHp5NDlJZ9IBgwFBVV95cUxNQkczN3lkc3IzVlhfWmwzbzhsb3MzdU1lQkNGcGYyejJOUlY0M0R4MngtcDVyUWF4LXM5bzdFblczQ0o1Qm1oUWVtOEZEOWtLaDc5bXNDa2VvaklJQW1DVjU0VHBucTNhLU5EUVlsX192YlRIUVJwOFM2RTJvQ0hNWDlIUQ?oc=5) |
 | U.K. fires its ambassador to Washington over emails to Jeffrey Epstein - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxONm5BdXZ6eTJFWHhOWnFRWFZzMjR0YnlTMENVRHZCRDhkZkFWa2JKajQ3emdkTURGSFFPUlluNzBiZjZVN3paSWFqOUZPNURyYVRTTjhPRnlSMnNNT3R4RnVsbnFIMVQzbWJsNnphQjRDay16WnBrNWs5ZXhRQ3FEcmtaeU14c0gzdmxXNQ?oc=5) |
-| Scoop: Biden world explodes at Kamala Harris' new book - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE1NVmdfZXRkMmZxZlozRV9fdlBFUnE2ZzBnZ1BGcUxSUG1mdkdtVGtHRWVmM2VFNEltNy1oSS1VaW9Gc25BbGtBbHVrS0FQN0tHZnhLbVFxa20ySDc3V3NFdV9HX2RuVkptd0dEbi1n?oc=5) |
+| Texas Rep. Morgan Luttrell will not seek reelection in 2026 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQeDlNQ0J2T0M3SHgySXRGZzRkWXlHRXVRVTByVzY0YjB0bEdRSHM4RUg2ZDlpaWFmbXU4ZlBWbUZDS2RHVFNvX3RFeWpxMU1HalgzNV9udEFYeGl1a25RMTVPaGZzMkx5UDh6UVRMVlFmRlF0d3E0R0ZtMS1FQzFvYXVLQVdFcGp1cjd4RmNDYWk2bTBzX0JmYm04MA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
