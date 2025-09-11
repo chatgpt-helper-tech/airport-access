@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 21:33:46（北京时间）**
+🕒 更新时间：**2025年09月11日 21:40:06（北京时间）**
 
 ---
 
@@ -9,21 +9,21 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Watch: How the Charlie Kirk shooting unfolded | [阅读全文](https://www.bbc.com/news/videos/ckg3xp9g9zwo?at_medium=RSS&at_campaign=rss) |
+| Why did Starmer take the risk of appointing Peter Mandelson? | [阅读全文](https://www.bbc.com/news/articles/cjd1egrlj0mo?at_medium=RSS&at_campaign=rss) |
 | TV cooking shows are dying out - the cronut holds the secret to why | [阅读全文](https://www.bbc.com/news/articles/c0jq1d63l7lo?at_medium=RSS&at_campaign=rss) |
 | Farage faces questions over who funded £885,000 Clacton constituency home | [阅读全文](https://www.bbc.com/news/articles/ce845w70g0yo?at_medium=RSS&at_campaign=rss) |
-| The rise and fall of Mandelson: Labour's political fixer and 'Trump whisperer' | [阅读全文](https://www.bbc.com/news/articles/cr4q61y399xo?at_medium=RSS&at_campaign=rss) |
 | Dr Xand: Stress is normal. Here's how to manage it better | [阅读全文](https://www.bbc.com/news/articles/cg42zq7nqxwo?at_medium=RSS&at_campaign=rss) |
 | Barker and Thornberry pull out of deputy Labour leader race | [阅读全文](https://www.bbc.com/news/articles/cg7dzejkz4ro?at_medium=RSS&at_campaign=rss) |
 | Chelsea face 74 FA charges over payments to football agents | [阅读全文](https://www.bbc.com/sport/football/articles/c8643dp5043o?at_medium=RSS&at_campaign=rss) |
 | Ireland threatens to withdraw from Eurovision if Israel participates | [阅读全文](https://www.bbc.com/news/articles/c5yvd8158ywo?at_medium=RSS&at_campaign=rss) |
 | Southport killer didn't look human, says teenager stabbed by killer | [阅读全文](https://www.bbc.com/news/articles/cn0ry8dy320o?at_medium=RSS&at_campaign=rss) |
-| Children hacking their own schools for 'fun', watchdog warns | [阅读全文](https://www.bbc.com/news/articles/c203pedz58go?at_medium=RSS&at_campaign=rss) |
+| A figure on the roof and a single bullet - what we know about Charlie Kirk shooting | [阅读全文](https://www.bbc.com/news/articles/cy04p4x21e5o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Stock futures gain as traders bet August inflation increase won't derail Fed rate cut next week: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFBXR0tNd3VQRGRGbXRveFVMUEg5dW1hSWpLN1hsZzdNZ21wWTJVZDU3WmgwR0xlUXBXVkdVQWhzUEwxem9xZGJXMVZuQ2tsZWcwNjR4MlR1UmJrVHJJQ2NDUzl1Uk9zOXNsTEJTLU5CdDU5R2FoYzRR0gF8QVVfeXFMTzAzdXRGVHd4SEExZjZTNUcxaW45MmU1UWg2b2xaUm9TbnJUYTBJSkdlMlh5T1hXdzlRX1NUWGZPR0NaaWxYTmdkLWtHMUJJTy1ZdE5zaEdtSXlRVkVtQldPd2dUNXVSSG0wM1p3RjlGeWZSZ28xcmxBMWJLSw?oc=5) |
+| S&P 500 rises to record as traders bet August inflation increase won't derail Fed rate cut next week: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFBXR0tNd3VQRGRGbXRveFVMUEg5dW1hSWpLN1hsZzdNZ21wWTJVZDU3WmgwR0xlUXBXVkdVQWhzUEwxem9xZGJXMVZuQ2tsZWcwNjR4MlR1UmJrVHJJQ2NDUzl1Uk9zOXNsTEJTLU5CdDU5R2FoYzRR0gF8QVVfeXFMTzAzdXRGVHd4SEExZjZTNUcxaW45MmU1UWg2b2xaUm9TbnJUYTBJSkdlMlh5T1hXdzlRX1NUWGZPR0NaaWxYTmdkLWtHMUJJTy1ZdE5zaEdtSXlRVkVtQldPd2dUNXVSSG0wM1p3RjlGeWZSZ28xcmxBMWJLSw?oc=5) |
 | Charlie Kirk, Close Trump Ally, Is Shot Dead at University in Utah: Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFA4bjhmRW5SdFowbzBybXE2VFZfdnBaNS1TOUZwQWNYUVZfeEJxUEFtdEJzOFFDZzVpS1FJOGdDTEZ3Y05WMW1uYlQzMTJLSlpWUDBwQ0UzY255dWpCNDdnN3ZqUHFwcEo5b1JzTGpaQjNYRDQ?oc=5) |
 | U.K. fires ambassador to the U.S. over Epstein revelations - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOMGE3clNfTVROTmlZRzRLeEZSeExTYUFvN1FoTENuckdGRlR5UWJYM1Q5RHk2TXBYR1V1bnJ1SzVuSVpPVlQtOUhyUVdSYlBid2tkLTl6UlZuVVZQUVlRZ284cjJ6NEF2VXFzaUJTbVZ0UFRJMmZya0hhRkVaM1ZnWWJTUGc1UQ?oc=5) |
 | Harris goes there on the Biden question — and Biden world isn’t having it - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPMTJjSjAtWFVqa0ItTVZlUFBPSHE2ZkIwOEVRNncxeklYNUxRMzREb3JHcFpkZURySTJnWU13bDQtcm1uU2Y2cWItbTNkTnVGV0s0Uy1xVVhCa3FlT2pvNF9EbTRKZjFjLXRxVG5tOGpwSlFjVWVQSWt6M3VRdHpoZ200bkF4dw?oc=5) |
