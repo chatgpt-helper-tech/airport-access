@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 11:01:10（北京时间）**
+🕒 更新时间：**2025年09月11日 11:08:07（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Shooting at Evergreen High School leaves three students with gunshot wounds, including the suspected shooter - Colorado Public Radio | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE85cDdVTTBjZl9PYlBiUFpla1FtYldXZE84VHRUR0NGUlpwR3VIckRzem42M2NTUGxuVTBBU3hXWk5RQ3lkdmJtTVB1VUo5Zjd1NkpqZno3akNBWnNuVlZjVXphalBPQm5MRGVzUEFvWQ?oc=5) |
 | See Epstein’s full ‘birthday book,’ with alleged personal messages from Trump, Clinton and others - PBS | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNUlFCam9nTmdaV1VGR2RqZ3NjZ1VOX1JOR3BMTHhQT1VHUHdPSG90S1lINTFhQkFqRUtpVjF6NGFaeF9pU1cyWVMwLVNHQkVrcDFfYlZrdWJQWEppTVRNU2Z0bGQteE01ZXlUR1VqaHFHcE5iZGxGa2staGZyNmFnczVNdEExOEY5X2V5aWNXUXRQOGl0VGVuMEthWkNXVkR2LVBQQkZlQUptYS1TcVFOTkg2WU9rNmRuS0cwQWxsNEtLUGUxV2ln0gHMAUFVX3lxTE1rR2x5SjBOSlhhbjFORWVxdTd3T3hSTlhVUHRLSF9fUlZWZlN3VFE5XzZqT1NORV9yUU85QUMxRHJrT19mNGIwZWtDbkZCMGQyRTE0bW5mRkZJZm11czlsYVRtdVJxek1DMTRMTzE0Vkl0c1RlUzJVcnFaRDY3WTFkOVJxbmpFQmxYcHlOcmhoWE0zVFpKeU1BRlo2OUZXU2NPRWJtQXg5R1JfMmZXdmVwbzJvYmtDLUFJSzJsdC1WWVplcEpqdUpnN1pKRA?oc=5) |
 | Netanyahu pledges to target opponents abroad after strike in Qatar - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNVHhrMzktREl6MklSdUNXRzdydUNFVGdkVDl1aFhKcHNteFdMVUFITWZ3OU9hU0ZqZElYWVVadnBfVHFZbmRhb2FaU1FrdzV3ZUpSRG1rdFhnQ2xkWDhuUTJ6Wkp6blJOcVdGR1EtQW5IR2d4eDN4ejdLQV9YMDFJX2RMQXhFTmd3eXJVU2QyUV9ZMXBwZk1XcTZ5bmM1d1FIbDM5QmprSdIBrAFBVV95cUxORTdtYmtMbzAwT1ZINVZKb0pFa1FHMkxrWkNLeXNVcE54T3o2WTRLTDBEblItUDVqT1RkLXpyakdRSi1nNmxjRzc0VmREb2ZPMUhpbjhiOWlYcVpKSWx2VWIzYTFHbFpiS1lHVUozanJndkxzTmhYVXQ4aWt2TjNCVXFSSXh6N3NRMVF0VWdQNm8tbGE3MVlSX3lDelV3ajdzLVFOeEJnQ251SktJ?oc=5) |
-| Supreme Court won’t block transgender student’s use of school bathroom - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNOHM2TExLV3RwcGFKMHpvWW9uM0NxN0xsM0JVUk1ieURCdk4wSlVFbk1iQUEySk1QazNFMWs3NG8tOTROalo4V3NPRkd5ZWFoT3BsczhLRy1ETlNFUUg2aDJ4d0Y1M3RyLUZmOXpPdU81SXdobENENU4yUTNSYTVUbmhhT01hWkZVM1h2eUlGTjhUNzVNRlBmMi1WVEwxaTE0?oc=5) |
+| Texas A&M professor fired after viral video disputes termination - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNbUtVckNkbUt0QUxHVEtBWm04V1ZLTGlKUVZTVi1tYVNRX2tHOVdzZS1JVzNMWXNHWm8tT2tUN2lMWjdmZmZHWFEwRm9tQktGbGtqT3ctbXJhQWxMN05iSUdNbmFJSVM4Mlg4T2s4TFBOZE4wbnJ1NThvZ184T1FPaUw1M3FISlJGT1otelJMNDNqNVFS?oc=5) |
 | Harris goes there on the Biden question — and Biden world isn’t having it - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPMTJjSjAtWFVqa0ItTVZlUFBPSHE2ZkIwOEVRNncxeklYNUxRMzREb3JHcFpkZURySTJnWU13bDQtcm1uU2Y2cWItbTNkTnVGV0s0Uy1xVVhCa3FlT2pvNF9EbTRKZjFjLXRxVG5tOGpwSlFjVWVQSWt6M3VRdHpoZ200bkF4dw?oc=5) |
-| Texas Professor Fired After Accusations of Teaching ‘Gender Ideology’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNLWs4SmRFNHZSQ3FzNVY2Ri11M1NudHlXVUk5eVdneFlJOU1yVG9ucU9KQ0sxdjB2dVFPVXhaNHdyZmxUTzQ0NWhmRktva1BRd3ZJYjQtNUZTNFJDb2FLcjU2dk9MMlRkY0E3WE9qT1NBNnU3aTdsTmVrNjliWXB1dFU3QXJHd3M?oc=5) |
-| Prince Harry meets King Charles for first time in over a year - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE95dWlwMGtVb2VpUWxnYms0S0FnSEJvbzI3RjVjcjI5MEw1NEQ4eW81SlQ2NFM4Rk12WlU4M2ZwN2pyYVUyclRzVVlZclVOUTg0VHM5cXV2WjMtQdIBX0FVX3lxTFBpeW0wRk1oRlVxUXlxREloek9udF8zUmRRZzFPcFVEYkVxSWZEbXZsTURiU1UyaHh3MUxDNDdmdHBZcW56VkQ1SDBVTnMzQThiVWN2TklSU1BsMzZDU2lr?oc=5) |
+| Supreme Court won’t block transgender student’s use of school bathroom - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNOHM2TExLV3RwcGFKMHpvWW9uM0NxN0xsM0JVUk1ieURCdk4wSlVFbk1iQUEySk1QazNFMWs3NG8tOTROalo4V3NPRkd5ZWFoT3BsczhLRy1ETlNFUUg2aDJ4d0Y1M3RyLUZmOXpPdU81SXdobENENU4yUTNSYTVUbmhhT01hWkZVM1h2eUlGTjhUNzVNRlBmMi1WVEwxaTE0?oc=5) |
+| Prince Harry meets King Charles for first time in more than a year - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE95dWlwMGtVb2VpUWxnYms0S0FnSEJvbzI3RjVjcjI5MEw1NEQ4eW81SlQ2NFM4Rk12WlU4M2ZwN2pyYVUyclRzVVlZclVOUTg0VHM5cXV2WjMtQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
