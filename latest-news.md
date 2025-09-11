@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 20:41:31（北京时间）**
+🕒 更新时间：**2025年09月11日 20:49:13（北京时间）**
 
 ---
 
@@ -16,20 +16,20 @@
 | Barker and Thornberry pull out of deputy Labour leader race | [阅读全文](https://www.bbc.com/news/articles/cg7dzejkz4ro?at_medium=RSS&at_campaign=rss) |
 | Chelsea face 74 FA charges over payments to football agents | [阅读全文](https://www.bbc.com/sport/football/articles/c8643dp5043o?at_medium=RSS&at_campaign=rss) |
 | Ireland threatens to withdraw from Eurovision if Israel participates | [阅读全文](https://www.bbc.com/news/articles/c5yvd8158ywo?at_medium=RSS&at_campaign=rss) |
+| Southport killer didn't look human, says teenager stabbed by killer | [阅读全文](https://www.bbc.com/news/articles/cn0ry8dy320o?at_medium=RSS&at_campaign=rss) |
 | Children hacking their own schools for 'fun', watchdog warns | [阅读全文](https://www.bbc.com/news/articles/c203pedz58go?at_medium=RSS&at_campaign=rss) |
-| Sacked referee David Coote denies indecent child image charge | [阅读全文](https://www.bbc.com/news/articles/cdr6y2rzk3no?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Who was Charlie Kirk, Trump ally and conservative activist? - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPR2tyOGl0MjNRSXRtcFppOWgzdHJ4YmdXcnBnTC1xVUxQMDhZTWxwLVc2eEo2Y0luMnJfOGxXakRaUjVIcWl6dEZRb0VDTjNtb1BLUl9sMlJwamF6QkVwNzV6MG5HbFRZejN6TTBfLWZaZ0Rfb1RUVzEzOE5nbDl2ZTJIZHpVcEFsSmMxYnpPbFFkejd2a2QzdmZpRWLSAaIBQVVfeXFMTnlXUHo1MUc1WmFjQVlsVnhNd1lySVBsS0pONDJCOUpjR3lIQ3R0eWxnRHNVdjhDbVVHQVcwT1NOMkFod1BYQXRieE5HS0dTejBXZDBwd2pUQ3pkVl84THlFdkZJVU4ybld1ckRTODBIV2xVR2Iwc183YmxOSVNlYXVGdDlYXzZRVjJoSlVUVzZKV1UtV0FIVmNlSHFzcUZCSGdn?oc=5) |
+| Manhunt Continues for Killer of Charlie Kirk, Charismatic Right-Wing Activist - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFA4bjhmRW5SdFowbzBybXE2VFZfdnBaNS1TOUZwQWNYUVZfeEJxUEFtdEJzOFFDZzVpS1FJOGdDTEZ3Y05WMW1uYlQzMTJLSlpWUDBwQ0UzY255dWpCNDdnN3ZqUHFwcEo5b1JzTGpaQjNYRDQ?oc=5) |
 | Scoop: Biden world explodes at Kamala Harris' new book - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE1NVmdfZXRkMmZxZlozRV9fdlBFUnE2ZzBnZ1BGcUxSUG1mdkdtVGtHRWVmM2VFNEltNy1oSS1VaW9Gc25BbGtBbHVrS0FQN0tHZnhLbVFxa20ySDc3V3NFdV9HX2RuVkptd0dEbi1n?oc=5) |
+| Suspect in US school shooting dies of self-inflicted wounds: Police - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPekpVa2ZseEJ2d3FxV0FpZ1pERVBjNkpZa2ZqNzMzMWE0eFUzbGN6M0NGU2l5SlNYbzd2YkFubll6dHZ5dm5yVG5iQUVmNXczV1phUkNiXzRNUEFNM3ZHNzMxbTNPdGlNc1ZwZDJyOGtZNnZvdGJscmp1b05nMEVEejNXVzVNNEFVVHc2d2VZOWhyd0p0aVVjb21iNnVIQ3FDODJNVUZvWi0wREHSAbABQVVfeXFMUF9vclpLMklOOWFCTHlPZWhITkJyNVd6UmRUbTJzX3pOcExqSnl6cWVCUDF3d1FLM3FiUUY4SURaTmJRWUVmaUwyaHBxWDNNLTR2RDdSTmlHY2FQQWlEcUhXQzNyTENzUDNVYWZzNWtPRGNSbklnZm1ReXMzVU9TMkRUQ25NaVJNcHVoZk9qNm5BQmFUYkk5R3UtaXUyYU9vemFBVEVHcFNUX25zaUwzV3k?oc=5) |
 | Trump demanded Netanyahu commit not to strike Qatar again - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBRLTZ1cFdIQjQwSmVNbVNhcTFZNDZaOHg5aHk0d0lOZ2VCVXRjWEhBYUhCQkFoQzF5bHZMUlE0WHRDU0FDMjBpelpLbnJvalRSZkRtbENoSkRjdUlla2pBMUtDekR6bkVTMkx5R09rUTc5cXgwa2FLLTl2alNsX2s?oc=5) |
 | 'Widespread revulsion' in Labour at Mandelson's Epstein links, says MP - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE05MlVMQXNaUVN4R2luX3BQVDZHZFo0aUxmdTNaZnJqc3p0cGgxLWttbXFzUEcwcTNmM1oyOWZ3bkM5ZVVIUkJvZU1xeUtoamh4WDJwZGwzSU4zUdIBX0FVX3lxTE80ZDNEOTh6OEoxYzBXVXktdGsxendHV19mU3M1aGZQNHg2MG5pQTB3QVVMd2JaRUFzc29qRG02Um1EUlR2b0J3Y3JfMGdNQVFnTkJENGJlWDNsWENLSzhz?oc=5) |
-| Donald Trump offered workers in Georgia raid chance to stay, says South Korean president - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1YczNrTU4yVjhCRXNHQTV5cUtnUUdPU1NVTWN0SGRMM1E4aGhnajRDUzIxTzlMVjRjU0hHVVh6dTMwVHY5V0pGVUVvTElXTDlCeVFVUi1qdjRCR2ZWTFpfX3F2LXc5SnFaSlAzWkN0LU4?oc=5) |
-| Poland responds to Russian drones incursion by invoking Article 4 of the NATO treaty − what happens next? - The Conversation | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxQSUNKc2h2eGtNa292TWM3emJzMll2NldNVE9vRHZTdHhDbGlQalBFZUdRQWhrSGhoczhkRGJNcHRGSW1JOE9XS0lpTF9ZQXViQ2pXU0V4eHY3UkgxTEJrWjcxVzdZVnRfTVM2U012RHZtZWh1cWJ0ZmxwcnRxdWJjZlQySVVYTjNUSVVYejhEdTNhSTVCYzMtaHJDS1JIU2ExSWlYXzVqajZCdnVYUUR2ZE4yWDIyRXFlWWJxejV0cWJGT0dHN3ZucURSX0VaQVN4djU0?oc=5) |
-| 'We comforted them' ｜ Neighbor sheltered students fleeing Evergreen High School shooting - KUSA.com | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxQYTMzQUZ5QXJIclN3MnlPbkZEbmhGMGdoRlZScFNud05uR1NwRFNoTUVhVVVjT2dDY2p1aVBlbjZLanRyS010M3gzXzU0ZHdtZmx4TUFUR1hWaWl1VVI4RllISW1LZTUwOXV2VkxLa280V0JkTjJhcUtXT3paSURWODNvblN1aDNnUEtvaEU4VU5ZWmwwTm5tSUp4YVlwSmxhZ0s3eDN6T3lxOFBPd0cxeGxtTDA3Q2tuaDBxSkZXZ042am0xZlZBd0NiNmZmS2ZWVjlmeVR3?oc=5) |
+| Trump wanted detained South Koreans to stay, train U.S. workers, Seoul says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNU0RpMENTV3RlaDJOaUc2d1dDZHl3SUduTG9qM20zdTltNE8zSE9MYTZUUzFsSUc1TXVBYUFMcUUxNzRLY0FraGFZS2JBQ2FfM0UtM2huUUZZQm5ocDl0SURQbU5xZVlSVzFUNzhGSkpoMXlUVVNFZ2hRNXVITU9OZDViUzZRM2lwazY5WHN3?oc=5) |
+| Suspected Russian incursion in Poland raises drone defence questions for NATO - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPdUI4ZmlMQzRHaGl6enpwMEg1aWlteWtfbmQ5dTY3UmFiRmg2dy12Y0NYTTYtcEx2NGp2NlN6bkNjZkVRTUFHS1JyanNVNERudkFBUGR1Y3lvdjFPUEtfOUhsaWdmZEMwM2ZuZWtqTUNDMzMya3FCaFBXMDhWdUJ5NTBTZm9GMHp2d211dmZjVUN2OVRaSDJxMXdkNm44NG5DQ0YyWEk1RjYtVHowVlhOTGZsLTAwN0VTdFFN?oc=5) |
 | Russia’s Strategy Against the West: Escalate Slowly and See if It Responds - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPbEZURzVJUjRiOV93UW5SZWN6bTJReHNrT25BQzIwdEdSZGRVZzFQMkpvQkgxV3A1TmEwYkNYYWZ2SEgtVTVlYjRoSHBYRjh0Si1NVnNDVzY0UThZZTFVSFkzcGU4QndidGhZVXlSWlhkYVoyMkVLRzlQYUNXemVJbFA1NzFOdEFSaVVDeHFoMWpadw?oc=5) |
 | France welcomes new prime minister with ‘block everything’ protests - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNTWlxMXJXS21CRlkwNFd2OTlSbEg5OTFuSUxJOFJZVUVJV2VTTDVpODBaZHNWbWRod00xMnROWjNTNWh5UkZ5WUxERHhNUFdFZmNRZmVxRldQaDdtanNTVFhfclp6a1dKdnFwZnA0YTdxT3dDUl9qcGNVdEtNMjFqelNVV3lQdkNaZUVXN3FzcWtNenhoS1FrVlRvMA?oc=5) |
 | Nepal’s Young Protesters Find an Unlikely Partner: The Army - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQa2NFQnNvQVpIUnQ3TklWWEdHVUhhd25UTXp5dkZDaDZtNzhDWk4yZnlkT01NeTgwdjZHYnhBcWIxU3FQRzkzS3NaS3MyVElNNjI4MWhwc1ZGUEpTaEdCM2xSdjYyN0w0YU94QV9DOUhQOC1lemVsNGxoT2pHOVNpb0dMYkQ?oc=5) |
