@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 21:56:34（北京时间）**
+🕒 更新时间：**2025年09月11日 22:01:04（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | Suspect in US school shooting dies of self-inflicted wounds: Police - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPekpVa2ZseEJ2d3FxV0FpZ1pERVBjNkpZa2ZqNzMzMWE0eFUzbGN6M0NGU2l5SlNYbzd2YkFubll6dHZ5dm5yVG5iQUVmNXczV1phUkNiXzRNUEFNM3ZHNzMxbTNPdGlNc1ZwZDJyOGtZNnZvdGJscmp1b05nMEVEejNXVzVNNEFVVHc2d2VZOWhyd0p0aVVjb21iNnVIQ3FDODJNVUZvWi0wREHSAbABQVVfeXFMUF9vclpLMklOOWFCTHlPZWhITkJyNVd6UmRUbTJzX3pOcExqSnl6cWVCUDF3d1FLM3FiUUY4SURaTmJRWUVmaUwyaHBxWDNNLTR2RDdSTmlHY2FQQWlEcUhXQzNyTENzUDNVYWZzNWtPRGNSbklnZm1ReXMzVU9TMkRUQ25NaVJNcHVoZk9qNm5BQmFUYkk5R3UtaXUyYU9vemFBVEVHcFNUX25zaUwzV3k?oc=5) |
 | Harris goes there on the Biden question — and Biden world isn’t having it - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPMTJjSjAtWFVqa0ItTVZlUFBPSHE2ZkIwOEVRNncxeklYNUxRMzREb3JHcFpkZURySTJnWU13bDQtcm1uU2Y2cWItbTNkTnVGV0s0Uy1xVVhCa3FlT2pvNF9EbTRKZjFjLXRxVG5tOGpwSlFjVWVQSWt6M3VRdHpoZ200bkF4dw?oc=5) |
 | Israel's attacks on Hamas in Qatar stun the Gulf and dash chances for a Gaza ceasefire - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPS0JDb1hFMFRWaU1GSE5GX0c4NkllVVlmbkVnQjhNSTh1dlFOZGNEcU13dDEtMWg2alZOVndBeklKYmZHU2szdUNFRVROaGd0R1FWZkJrX1YySGhLS254dDQ0bmVBWkNfRnpvTkJmZUN0aHBMZUM3MDdTWlRxSG5MbTV6dXB4WjkzenlnYQ?oc=5) |
-| Donald Trump offered workers in Georgia raid chance to stay, says South Korean president - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1YczNrTU4yVjhCRXNHQTV5cUtnUUdPU1NVTWN0SGRMM1E4aGhnajRDUzIxTzlMVjRjU0hHVVh6dTMwVHY5V0pGVUVvTElXTDlCeVFVUi1qdjRCR2ZWTFpfX3F2LXc5SnFaSlAzWkN0LU4?oc=5) |
+| South Korea says detained Korean workers released from Georgia facility before flight home - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPam9SV04zV25FdkNOZ0NrWjJMcnJaOEUwYldUQlJoX2wydGVsem84VEJkUTBfSk4yTkJqOE1Fc2Zqdnk0ck95VlJYTjJjNVZUU3FWNTlSRDgyMm5VUXRTR2gzQWtYTGZFenQ2cDJqT254WjhDZVY3dkZKN2RUQXJhSmtJQTBMRGQ3aVI4RVNKVkV0NVduNy1VY1hlYTFFdVh1ODlGZWw1dFV5SlptQmNDLXVXSXE?oc=5) |
 | Suspected Russian incursion in Poland raises drone defence questions for NATO - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPdUI4ZmlMQzRHaGl6enpwMEg1aWlteWtfbmQ5dTY3UmFiRmg2dy12Y0NYTTYtcEx2NGp2NlN6bkNjZkVRTUFHS1JyanNVNERudkFBUGR1Y3lvdjFPUEtfOUhsaWdmZEMwM2ZuZWtqTUNDMzMya3FCaFBXMDhWdUJ5NTBTZm9GMHp2d211dmZjVUN2OVRaSDJxMXdkNm44NG5DQ0YyWEk1RjYtVHowVlhOTGZsLTAwN0VTdFFN?oc=5) |
-| Belarus frees 52 prisoners, Lithuanian president says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPY1hqUXA3R2lzZVJmUDQ2a2dSSzNoWjVydElJSzVDNkczUFZzS3pvblV1aHlsVXE2NkxUM3JTbGxoTnF2dWM1QkdXdTk1QXJQRExnN3dSMGVxYnJHWWtVY083emh4VmpIdnB0M1BQMlZucFd3S1o3WEY2ZGJEN0tONEpIcm9iWG12UFY4Z003STRCSUhX?oc=5) |
+| Belarus pardons scores of prisoners ‘at the request’ of Trump, Lukashenko says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNS213enJjREMwU1R5bkRIVXpyREdRSFhlUE9Za0pUdHA0eGltb1ZXX0U2WEYwaGs1SFpHU18yZHNnTGNtVXluSHh2Q2Q2cWg2bFZyQUZkbUtMQ0tSemZQZ29BZl93N1RGaC1jOW1Qd2FTdWcwSm5TeXZObTFRRWxEaGwxcjBnM0NWcnNXNDJ3?oc=5) |
 | Russia’s Strategy Against the West: Escalate Slowly and See if It Responds - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPbEZURzVJUjRiOV93UW5SZWN6bTJReHNrT25BQzIwdEdSZGRVZzFQMkpvQkgxV3A1TmEwYkNYYWZ2SEgtVTVlYjRoSHBYRjh0Si1NVnNDVzY0UThZZTFVSFkzcGU4QndidGhZVXlSWlhkYVoyMkVLRzlQYUNXemVJbFA1NzFOdEFSaVVDeHFoMWpadw?oc=5) |
 
 ---
