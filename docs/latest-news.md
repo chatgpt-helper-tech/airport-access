@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 10:57:00（北京时间）**
+🕒 更新时间：**2025年09月11日 11:01:11（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Charlie Kirk: Trump calls killing dark moment for America' as manhunt continues for suspect - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFAwRkllRTNpOWlRU3ZFMVdLbjhSSkRfOGNILUdEcUtNUi13eWx4QTRqY0VGam5Ka2xJZzNRUlVpTHpzV2Vqd21rQkVzV0lDdE1rV2NMNA?oc=5) |
+| Charlie Kirk shooting: Trump calls killing 'dark moment' for US as manhunt continues for suspect - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFAwRkllRTNpOWlRU3ZFMVdLbjhSSkRfOGNILUdEcUtNUi13eWx4QTRqY0VGam5Ka2xJZzNRUlVpTHpzV2Vqd21rQkVzV0lDdE1rV2NMNA?oc=5) |
 | 'Here we go': Trump reacts after Russian drones shot down over Poland - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPalFCa1p0b0hoU3RadzVwLXlXbTJ3MU82ZHpTWVZxaW9wOVRpOXdJNXpjV2ltcUtpNjdsQ3oydDViVDVjVVp1QTEzanlJRDJSRnc2d1FIVGpCWG9NVDl3d25YNzN1Nl9rTkhIVkFRX0xyWVlnQXBENGRlcFJObVlBdS01SnNNWFlvRVV2ek9LT000NElfc3Q2OFFweHV4R1h1U3Q0X29wUDRPVTlF0gGyAUFVX3lxTE15YVI0UmE5TjV1VjA2emJSc21ERms0aF9mNXZROWEtOE1UalR4Rm5seEM3cTI3eFE5U3dPdmM0WWh1dC1vQVNwN1FfZHNSNFRJSUZWS2tqRDBUS3AwREV6dDgxOW1qYk83bVdNR3VNb01CbjgxU0FsTTBPdTBoNjdIeTNydjFkRUg2Rk5rbWtHNmMwT0xPdzlFanJZbXNsRi1mb1k3T2ZCOUpRc2psUm5VQ0E?oc=5) |
 | Former top FBI officials sue, say Kash Patel fired them to stay in Trump's good graces - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPNVhON1gxay1iSHByWEFoejhEeDFweFh1cUh4RUQ1b1ZmTUl5OXJNYjh2R2x4SThZTEpPVDV3MzB2aENhN2ZvYzZXMUR4Q1pVNlJjMGo3bzVTOGljUkota3U4cHdaMzBIUEZNNU1YNjVWMnMwV21WNXh6aTNTWUQ5RVFUUWd1ZnhwTXUzbTJUdmZlcmQ5ZEhRLW5VU0RabnJERVFzYzY3a0cwb1c5ZEFzUFl4Y1hnYTBrOWkwQXFyVEotdHhBaHN0QjBSY0d3d9IBVkFVX3lxTE4tZmhIb21UcDExQ204T0xJeS1HQnh1ck9XQ3RxZXFFeHk3ZUZLdThNdEw2ejgxUjQ0RVo4dWJ5N0U3RVlBdWRmUThWTHJHNVdlZTNLb293?oc=5) |
 | Shooting at Evergreen High School leaves three students with gunshot wounds, including the suspected shooter - Colorado Public Radio | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE85cDdVTTBjZl9PYlBiUFpla1FtYldXZE84VHRUR0NGUlpwR3VIckRzem42M2NTUGxuVTBBU3hXWk5RQ3lkdmJtTVB1VUo5Zjd1NkpqZno3akNBWnNuVlZjVXphalBPQm5MRGVzUEFvWQ?oc=5) |
