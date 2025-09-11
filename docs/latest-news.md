@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 09:48:55（北京时间）**
+🕒 更新时间：**2025年09月11日 09:57:22（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Texas A&M professor fired after video shows classroom confrontation over gender identity coursework - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQbzd2Mkp0bUJ6SWYxcDR4MllPZ29vUGNyX0tTc21RWXh5NGxJVU9ZVVhmMlZhQmVkdHlhV2tpRFRhbU4wQkVlYkpMeFQxczVIZ0RKc2pvOXBoTWNwaWMydjBmQ1UyeGJUVnU2UUxfRkpiOTFkbEdScXZSU0FJalhrVnNNWkF2NjhhVkZFYlpYbFNZQS1qSEtDWkF5Rnh6VG5QWnc?oc=5) |
 | Supreme Court denies South Carolina’s emergency request to enforce anti-transgender school bathroom policy - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNWkpsYmhwX29xYjlDTG5abHRXLWhwYk05OURHdUx6bldBcWlybVAwVmFwcjFhYnBwZ29HRzBaSmFLeWJ3R19QMkJ5akN3R3V0amptWV9FUXBLU0U2RGtVblZxME9QLWl1by1CV1QtV2pkZS1Kc0xBWE5FUU5JUDNobjRRTldjU19mNkZHTXZENFVVNzdwX2Fjamx2bFVGUQ?oc=5) |
 | Netanyahu pledges to target opponents abroad after strike in Qatar - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNVHhrMzktREl6MklSdUNXRzdydUNFVGdkVDl1aFhKcHNteFdMVUFITWZ3OU9hU0ZqZElYWVVadnBfVHFZbmRhb2FaU1FrdzV3ZUpSRG1rdFhnQ2xkWDhuUTJ6Wkp6blJOcVdGR1EtQW5IR2d4eDN4ejdLQV9YMDFJX2RMQXhFTmd3eXJVU2QyUV9ZMXBwZk1XcTZ5bmM1d1FIbDM5QmprSdIBrAFBVV95cUxORTdtYmtMbzAwT1ZINVZKb0pFa1FHMkxrWkNLeXNVcE54T3o2WTRLTDBEblItUDVqT1RkLXpyakdRSi1nNmxjRzc0VmREb2ZPMUhpbjhiOWlYcVpKSWx2VWIzYTFHbFpiS1lHVUozanJndkxzTmhYVXQ4aWt2TjNCVXFSSXh6N3NRMVF0VWdQNm8tbGE3MVlSX3lDelV3ajdzLVFOeEJnQ251SktJ?oc=5) |
-| Prince Harry meets King Charles for first time in more than a year - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE95dWlwMGtVb2VpUWxnYms0S0FnSEJvbzI3RjVjcjI5MEw1NEQ4eW81SlQ2NFM4Rk12WlU4M2ZwN2pyYVUyclRzVVlZclVOUTg0VHM5cXV2WjMtQQ?oc=5) |
+| Prince Harry Reunites With King Charles for First Time in Over a Year - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPMmhSX3R0eUwxbjg2MGdDRWZmbmFNb2JWbzZSd195elJQTU0taS1nUXl2ZlBLODlzTGNjNy1nUW9UOWdCTUFPRHZlck5tV0NnVUpqMllHY0k2RVFpV0R6aUl4VmVGLVRBU3pueHpZYUN3NEU5N0x0NzM0RXpQa2Y5dEMzeXlwOElkMzRiNXRRVQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
