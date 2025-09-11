@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 07:25:23（北京时间）**
+🕒 更新时间：**2025年09月12日 07:33:20（北京时间）**
 
 ---
 
@@ -11,20 +11,20 @@
 | A rooftop figure, gunfire, then panic - how Charlie Kirk shooting unfolded | [阅读全文](https://www.bbc.com/news/videos/ckg3xp9g9zwo?at_medium=RSS&at_campaign=rss) |
 | Starmer facing fresh questions after Mandelson sacking | [阅读全文](https://www.bbc.com/news/articles/cy0v81zeggko?at_medium=RSS&at_campaign=rss) |
 | Chris Mason: Starmer is losing senior figures at the rate of one a week | [阅读全文](https://www.bbc.com/news/articles/cvgvexelmkgo?at_medium=RSS&at_campaign=rss) |
-| Bolsonaro sentenced to 27 years in prison for plotting Brazil coup | [阅读全文](https://www.bbc.com/news/articles/c8xrqxk9p4xo?at_medium=RSS&at_campaign=rss) |
+| Former president Bolsonaro sentenced to 27 years in prison for plotting Brazil coup | [阅读全文](https://www.bbc.com/news/articles/c8xrqxk9p4xo?at_medium=RSS&at_campaign=rss) |
 | The wedding crasher mystery solved after four years | [阅读全文](https://www.bbc.com/news/articles/c7v1d3r6y8mo?at_medium=RSS&at_campaign=rss) |
-| UK could see first named storm of the season amid weather warnings | [阅读全文](https://www.bbc.com/weather/articles/cpd9x525653o?at_medium=RSS&at_campaign=rss) |
-| Farage faces questions over who funded £885,000 Clacton constituency home | [阅读全文](https://www.bbc.com/news/articles/ce845w70g0yo?at_medium=RSS&at_campaign=rss) |
+| Water firm bans tankers from transporting water for billionaire's lake | [阅读全文](https://www.bbc.com/news/articles/cq5jg9vy1n0o?at_medium=RSS&at_campaign=rss) |
 | Nato strengthens defences after Russian drones shot down over Poland | [阅读全文](https://www.bbc.com/news/articles/c0lkz2n34z6o?at_medium=RSS&at_campaign=rss) |
 | Phillipson and Powell set for Labour deputy showdown | [阅读全文](https://www.bbc.com/news/articles/c20v3l4qy11o?at_medium=RSS&at_campaign=rss) |
+| Farage faces questions over who funded £885,000 Clacton constituency home | [阅读全文](https://www.bbc.com/news/articles/ce845w70g0yo?at_medium=RSS&at_campaign=rss) |
 | Ireland threatens to withdraw from Eurovision if Israel participates | [阅读全文](https://www.bbc.com/news/articles/c5yvd8158ywo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| "I'm f**king sick of it": Charlie Kirk shooting sends Congress' civility crisis into overdrive - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOcm9UcWtpTS1SRlBLek52ZVhlSEprWkJUaS0xaHVuTnEwdktEYjhfNGVaSlNmVF8xLTVBYlR2cEZ0WkJCcnY3MHZ2U2taUDhqQVhLbURuSGlLbUtyZDJHUlJOQ3NETk5FT1EzY1FZTzVaV21hY0JHY21WdTR3aEphMnp0Z3M?oc=5) |
-| Brazil's former President Bolsonaro found guilty of coup plot - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE4zWkVvX1JqdW9YVmpTZzhiTVBsMVhHT01JdDFYbHktSTdQUm94M2JXVG9HT3gxb3Y3dTB6ZEMyd09HbkkybzR6ejRwQklQeE5pbkhvYlNhRlF1Z9IBX0FVX3lxTFBsaHBJSDR5OUFCdXVHSWVNdUpnZDgyM1JSOG9VNDZqZDMtNVY5eGdvRVhpQ1lpLTRBcTBLT2Z4RFhfY2dkcXctTVV1ejZIQ3RRRV92YmlkWU9PdXJ5clp3?oc=5) |
+| What we know about Charlie Kirk's shooter as the manhunt continues - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOTjNJNlZvbUQxUDZQVnB2cDdXai1HV09GcWNfZFhIX1FaQm5tRWU1cDFkQlRnbEhrV3B0YThTVWs5WHllU01nTGpjbExndzl5TzNkcTlNQTNSS3BJTndnaHM3RmEwTENCeGEyNkxGckxmOEo2Z1BJNTZ5c3M3akJVNk1LRjRjS2VQQk1udNIBkgFBVV95cUxQbi1iUXRjRXF4enR4TEJocWtKaTEwelBNVTljSWdCTWFUUGNKeTlEQUFZUlhIcm1lNFAwWUs3Rl9BOWpyUUhMVDJQaWZ2NkVVQXVqejFSV2FTQkdLZVgyTVhBWElxdDh5QlJaMzRWd1hTTTEwQy1jQkdMbnh4UktLdXFfWUdQZ2RSQjlSd2VrYmp1UQ?oc=5) |
+| Brazil's Bolsonaro guilty of coup plot, Supreme Court decides in landmark trial - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxORXJsakN4WW5UUGNWbS1TZGd0OTlnNmJaT3BkZGN0czg5RlBXaTRVZ0plc2VhckVaekF0RlRZTlI4ZWRvUHJVNG5OeVNYOFJwWnczVnMwRHJQaVNaSlFSNnppMVhfU2gxdTdLR2JBalRueDJmVU4zRUNBM2FLZGxCcHBwcFhWZHB3aU9IRnlJSHBLcjlTQmRzNUdMUkxwbHNGOVRNeV9vRjU0WGRxOGo0Nnl2RzN4RWoxZjg2b3dicw?oc=5) |
 | Student Who Shot 2 Others at Colorado School Was ‘Radicalized,’ Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOa1hISkpiRWZZR2tVSzVSNHFaeXBxeG5UeXVUeWhMc09LZGlwZFExYzNTVktiN0cxMjRHYWVyYWdpTjh6TkxqSy1QaE1tTWZ3QU5mQzdXQXk2NlQ2SkdEejQ5a3g4WnQwRVdjLTYtTUdsVmVMajRFT1RRV3VoUFVtaGZXaE9xSHhzTlE?oc=5) |
 | Senate Republicans trigger 'nuclear option,' changing rules to speed up Trump nominees - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNa09vZ3ExQUR2VGJOVmpnRXhfdkxfSDI3R1FOejRndEhRV0VaaTlzYl9BX0NuUEYxOWVYdUJtWncxNnhwcVdhZjhycWVCZFJGTXBTZ1g4cXpacnpNLW9vZ2xJQXNVUFRSaUlmaFdONUs1ZDI2UHNkWmRBYTktWGdCMHRrMmo0N19neUdLTEZGMkN3bFByblByaHhZR3l5Y0FaSE9TYlg5Q1hpLUY5YVZrQ2tuRW7SAVZBVV95cUxPazFEQzVEMW9VdUZEanVqMlNnTUFOb2xwQ212ZVBfRFgycktqNE9CTnQ1OEwxM3FNWjJQQkFxeUhlZjh4bG51NEdwejJ0VTNkY0RCY3VEZw?oc=5) |
 | Trump tries to distance U.S. from Israel’s strike on Qatar amid fury from Arab leaders - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOc2pRcTlwa0tZOUY4anFxaFpiMHg4Z2JRVG5xelJwWUt4YU5KNHduZnQxSEVYNVhzVVQzTW9OdTRwZWtiS2s1Rnd5N1dQUHk4TEJDTmptRUM1b2FWZWxFQ3piallBWVBUV21jZk1pWmVUX1A2VUkya0hscDZYRnEycDV2VzhZb2NzVVRGLXNSY25yZzFMcUo2SEd1SDNGeWhEVS1nZTBSU0JGcXlOWG9KUGItejNBLVF5dFRzYmVaVdIBxAFBVV95cUxPUFRBOHJfNVBpaV9RU0xxYUZRUGhDWjdOV3FFb2t2bXVpNERYemFQbXpjMWtOS3NjZy1MZzIta3dRVXMycXFYc2QzUjh5T3Rab1p5X0kyc0FGWFl2eTc5azRYMTFwWUo1dlNYNmExV0V2QUxVX1JFUGxmVE1xek5pYkpNZFJYOWxwSmRTSVNfNnp0TU5Jd0lfOFJkSUlVT29SRVlRczZtWTh3X0NuNkZBbzlTVGZadS02aDlCQTVhZjN4bW5x?oc=5) |
