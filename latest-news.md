@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 18:56:07（北京时间）**
+🕒 更新时间：**2025年09月11日 19:01:05（北京时间）**
 
 ---
 
@@ -10,6 +10,7 @@
 |--------|-------------|
 | 'Everyone hit the deck and scattered': Witnesses describe moment of Utah shooting | [阅读全文](https://www.bbc.com/news/articles/c8d7900yl3zo?at_medium=RSS&at_campaign=rss) |
 | TV cooking shows are dying out - the cronut holds the secret to why | [阅读全文](https://www.bbc.com/news/articles/c0jq1d63l7lo?at_medium=RSS&at_campaign=rss) |
+| Chelsea face 74 FA charges over payments to football agents | [阅读全文](https://www.bbc.com/sport/football/articles/c8643dp5043o?at_medium=RSS&at_campaign=rss) |
 | Thornberry and Barker pull out of deputy Labour leader race | [阅读全文](https://www.bbc.com/news/articles/cg7dzejkz4ro?at_medium=RSS&at_campaign=rss) |
 | Dr Xand: Stress is normal. Here's how to manage it better | [阅读全文](https://www.bbc.com/news/articles/cg42zq7nqxwo?at_medium=RSS&at_campaign=rss) |
 | How Syria's dictatorship used a global child welfare charity to 'disappear' children | [阅读全文](https://www.bbc.com/news/articles/c4g53e4zdjpo?at_medium=RSS&at_campaign=rss) |
@@ -17,13 +18,12 @@
 | South African court rules that men can take wife's surname | [阅读全文](https://www.bbc.com/news/articles/cm2z351l6jxo?at_medium=RSS&at_campaign=rss) |
 | Qatar says search continues at site of Israeli strike targeting Hamas leaders | [阅读全文](https://www.bbc.com/news/articles/crme74p9gn2o?at_medium=RSS&at_campaign=rss) |
 | Sacked referee denies indecent child image charge | [阅读全文](https://www.bbc.com/news/articles/cdr6y2rzk3no?at_medium=RSS&at_campaign=rss) |
-| Gary Lineker ends Ant and Dec's 23-year winning streak at TV awards | [阅读全文](https://www.bbc.com/news/articles/cg7dgd394kno?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Charlie Kirk shot and killed at Utah event; manhunt for shooter still ongoing - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQMGJxRkNYazNmbWRFR0xrT2V4ajF4V015MDF3RWRwSXRnS25XZlc3TUk0aXBXcU5GcjVBdXlveGJoSm9wQjA0S0JGUDZzTkdxaVY5OTJLdktXczRVYTZNRGJrQWxrUXlOOXFrQ1NOYVNIZ3FRS1BoREx0eUNWMFRDWnhuQjjSAYoBQVVfeXFMTTJHUGZUcG9ZLUd6VWd6NU5RMEhQQ2lBUjV6X29FVU9BNVQxVlBmaHpaYzA5aHFYaFBnSG9LQmw5dHZvRzZUdlAyenBsdG1LTjBadEdidzJLc0JobEF1MExZY3QtSExBcFJlYmllMklOdktNSW9mVlBQLU9MMlgzc0xoaWpJTTBiTWxR?oc=5) |
+| Manhunt for Charlie Kirk's killer continues as Trump blames Democrats - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQNG1TZ2pib1pNRzhwdEU1SlpXQkFlUndlRnJ5VEo3RDlEVHplSDF6M0x6OVg5aEZNT2ZnM2x0Tm51SXFyOWhaQUYzSF9NZmtxYWxjRFhOV0cxS1VWdVBYUlNBeFBlRFJja0RHd2lWZi1zV1lUMnJEbDUyOC1vMzhWcTFQOVRZSk9hRWgxaUFzTzA2czN3M2prNDVhTWVOMXkteURv0gGoAUFVX3lxTE9HMU1neEN3OVNNNndJeVVkUUxFVURwaFhPN1hDNkgwUVdTaXJKUk9QdkZKc3ZyYzJBd0lYUkd6bVhMdF81SV9keFk2ZllyRFV6TjUwcVFsQmowbFZjSzlhNGY5NWZESlNhdVo1MFBCU0N1bDhBemZJb1lqemtDSGJfUUZaaG9zWlJ2eVFsWVNnc01Sa1RfME4yREF3a1BGcFJDUnNtMHBtMw?oc=5) |
 | Peter Mandelson sacked as US ambassador by Keir Starmer over emails to Jeffrey Epstein - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1OdmZjZlVFWlAxS2NORERrakdGRVdWNFZKYVVFTG55YVhEazhiSFV2d2F4QVk4dlpFTWx0NTM2bERDRDhnTERXR0REaUFQSEV1ZEpDVA?oc=5) |
 | South Korea says detained Korean workers released from Georgia facility before flight home - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPam9SV04zV25FdkNOZ0NrWjJMcnJaOEUwYldUQlJoX2wydGVsem84VEJkUTBfSk4yTkJqOE1Fc2Zqdnk0ck95VlJYTjJjNVZUU3FWNTlSRDgyMm5VUXRTR2gzQWtYTGZFenQ2cDJqT254WjhDZVY3dkZKN2RUQXJhSmtJQTBMRGQ3aVI4RVNKVkV0NVduNy1VY1hlYTFFdVh1ODlGZWw1dFV5SlptQmNDLXVXSXE?oc=5) |
 | Poland responds to Russian drones incursion by invoking Article 4 of the NATO treaty − what happens next? - The Conversation | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxQSUNKc2h2eGtNa292TWM3emJzMll2NldNVE9vRHZTdHhDbGlQalBFZUdRQWhrSGhoczhkRGJNcHRGSW1JOE9XS0lpTF9ZQXViQ2pXU0V4eHY3UkgxTEJrWjcxVzdZVnRfTVM2U012RHZtZWh1cWJ0ZmxwcnRxdWJjZlQySVVYTjNUSVVYejhEdTNhSTVCYzMtaHJDS1JIU2ExSWlYXzVqajZCdnVYUUR2ZE4yWDIyRXFlWWJxejV0cWJGT0dHN3ZucURSX0VaQVN4djU0?oc=5) |
