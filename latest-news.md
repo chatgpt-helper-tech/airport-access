@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月11日 13:16:34（北京时间）**
+🕒 更新时间：**2025年09月11日 13:24:45（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Newspaper headlines: 'Harry's tea with the King' and 'Mandelson on brink' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9JOEhxb1JyMkpKa1liaTI1cDlaWUVmcV83WjZCMk40WW5jNmRqN1lSeW5tcUlmV051aFlCRFJ1RHh2NHJaMHlvWkRzdm9tNklieDJvMDlycHRZUdIBX0FVX3lxTE0wM3U5Q0RKcVhEaXdjc1pjbEphRkMxbzBybjg0NVBadlc4OFU1My0yalFPS1d4MWJnM1psUHNFNjByaTlqanZkZ1VIeHlsMFNnWHpseVRyNk04Wjc3czFF?oc=5) |
 | 'Block Everything' protests sweep France, intensifying pressure on Macron - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNak4tOHpJQ2g2REVHTUZOdjNGU1ZEMWdPY011dFVDenpFMGF4NHlFaldJaVBXZHF5aXJPX0x3cFc1cHM0T0M1QjBxSGZBRmhFOFhGZnVkWU9yWjlFYkdTenQ1b05HRDJ6dTJqMHFOWnVVSE5EM0J1NkUxWGQxSVR0LTQyRTdLLThUVXNtMk1Kb1dpcnlrM1RoRzBqT3A3dWtu0gFWQVVfeXFMUGZpMTAtYkxmeEJMRHVEWUc4MGZSblZDaV96SEUwUjZlV3FvellnV0U2OWlNOUFNUUlYLVYxbFRwTFZ1YTR4eEFrQ210bUItWkE5dTdIbFE?oc=5) |
 | Incendiary Munitions Strike Gaza-bound Flotilla Two Nights in a Row - Bellingcat | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQX3NsVHFkeG9BSnFuR21Sbjl0YjdsdTN6bWNYTTMtQU9OYmNOUlRqUUt6bnVkMmk0NVBFb2NDVmc1UnBIaXBKWk50NE1mTmJxeHF6Q2tQWjFqR1JIOUpNNkJtbmFoejZ3S0I3bzhyM2wzNWRVVWlKYUFGN2NHaHZFUlFON0ljcjRpZG96TnJTQ0h3ZjY4RXhPeU1iZzg2dHFlODNocVFkQzdEM3JJVG82Ug?oc=5) |
-| ‘This is our revolution. It’s our turn now’: Nepal’s ‘gen Z protesters’ speak out against corruption - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOT3JYTmZJZ1NPRXY1Z3dYOGNKSDZqaXEydTVFem1BYTNhemp1VmJ3Y1BvNzdtYUZGQU8za3NDazRkRGxBOUJtekwyTzlNeHlfZ2J4UjVFRTJqOHBKUXZwckVPMkJ1SXpfSTUwN0Q0dzNKcUxnUzRpMDlpcHUxR3VONlJpYw?oc=5) |
+| Gas tanker truck explodes under a highway overpass in Mexico City, leaving 18 injured - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPRDBpV1IyYkVVazQ2LVFQUXA4SzM1QTZqV2tiWHNLeTFqcHBRdXp2aEtCX2hXcTBiazlMd3VQUzhfcTFaM08tNWM2cktnel9rRm5NY1kyRGlVM2VlNVpFY1JFTVhTMDVoN3dMQWRJOFFINlFtdGJKcjJZOVRnV2YtY3JHOXBsSWJTTVV5VWlsUUh3NEFsb0FmcWJHci13UlF1UnUxaE9MMDhteWQzYkRhcdIBtgFBVV95cUxNOExBTHljLWx1NW5QelZkZzRSYkVmRXhuQm1pd0tWbmtiMTVmb0tBRzF6clRMSU1oVEYyM2FVcy1Fcl9zTVhBcFRvc0Zuc0VxQUtRMlN6ckJBOHFqTXZLVXY4QUxjR2VSX3ZVUnFLWFYzVUFuaVNaZ0t4M3hLeFZmWHJoYmN0VFdmSFZWMUMxSWxHM0t2ZkpWUW5ZMGRfSkk0VkE0d0Z0aEdqV3RUQzhBd09LS0xXdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
