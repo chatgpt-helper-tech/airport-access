@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 07:08:06（北京时间）**
+🕒 更新时间：**2025年09月13日 07:18:00（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | News: NATO launches “Eastern Sentry” to bolster posture along eastern flank, 12-Sep.-2025 - NATO | [阅读全文](https://news.google.com/rss/articles/CBMiX0FVX3lxTE8zdHdBOXFkUW1QTFM1dlZJX28wSjYtbWFSd09COHZmZEhqdGdFRmtXaW1TVF9SX3N1czFtRWJDN2JXcERWa2l6cXFKNTV2VFpVTGo4RVRZbFRYSlVQNGtR?oc=5) |
 | California passes ICE mask ban in closing days of legislative session - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBrTC1kMU5OeUxJM183bVZ1T0ZfXzExamlZb0lHRGhNd0pMUEJKSVJMQTRLemYxMkhGek1iQzU4Yl9ldFU1bC1BMlBidWxOdnhIV1VTUDIyXzA5blRKajgyT0lxbW9jSlEzS25uNGs2YTNoMFVTd0E?oc=5) |
 | After Charlie Kirk's killing, MAGA world mourns, but some say 'we're at war' - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQOHNuSXZhdmR1RnVFeFh1aEpmcnd5RUVSdFNxci1fVC1qbEd2akw5a3p1V3NsUnFVcWNuMDhxUkxzOC1YbGoyVVFZVkxRQ3loS1AyS2FxWThPeG1xaHV6YjZWOUZKQkFONEFpeHU2ZXVnVlZYdjg0cTB0SWhhUlJtQjBUbExGdng3ZVh6X1NRSXBrYm5kalpiaUxFOXl6SkJObFHSAacBQVVfeXFMUDFMTFBmVGRDNVllLTYwU25nSGxYY1I4SUdLdk1mZ2k1d2pGTU1Pd09Gd3poem03VG9xTjFmVlVMWnU0akVUd3FEY1pUSXY5Y0EzSUhnV0dNb1pvVE9PMFJzalR3TTFYVDMwQm5uSVU1SmNPUC05OVk1SUVnSURTbDJ0V3l5NzJiS1NMNXRCMndWNFJ0Q3dnYVgzMFVQWDZrNjNqNWltcXM?oc=5) |
-| GOP nets 1 more House seat as Missouri passes gerrymandered map - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQcEpqYWtfVUV0eGV4LXdFRXFZem0tWHFfNTdWaUZuMFRpOFpEMnowTTVvNGZLSElreGNiWUhYeFpaWEloNG9MNHIwbGwzbTU2U08wWmhPa2o3WkgxYlZrcDJCY2lQZEY0dnRXOFFselAzZVIwZGgwczh4b3VQVjhyY21qaFVROFVIOGhwZjFB?oc=5) |
-| Mixed messaging: Adams now says polling won’t affect fate of his campaign - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQY1I2QTF2UFYzTkhwV2ZpRmM2N2pCZnE5UDZQOHRSdHdYZFR2dTc3SF9yVE1Ybk93UEhCTUJaWTRqSUV6M3JyOHVnVVpleU0wMkYtY0NRci1sOTFNa1gwVElDRW5OSXdXeVllY3czamhMOTM4N05KV25pSjJCeTZyVUhjM0Vub19kTHctWEhIeThhR2tnRnJQOXBkc04zYjJDcFVhQ0pYc2MtUTAzelJrT2czVV8za19mRmtpaV9B?oc=5) |
+| Missouri passes Trump-backed redistricting plan to help the GOP in the midterms - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPMmxBZk9GWVlDX0NhMGUxVzdPOF9GT3lQUnFUbGJOYnM5b05yc1ZkbTZIZ1JfeENUWWw0Tlp1c002WXRwelI1d05YS2RjM3BoOTQwcmVVQWlSVk95YUdOT0g0TXdHSS13dG5semt2TXB1TmxMWlVwSEdMSDhfZERQbFZtTEk2WkUzY1E?oc=5) |
 | Rubio vows US response following conviction of Brazil's Bolsonaro - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQSmUtTFJoMnFGSUI4b01pOTdmM3JMLUpKOG1QaWozc3NSMXhOUDk3WTVYN0FlSTRaVXRIeEFXYzMzUlVvakRBYklFZUZ6a0ZsOEhzTTVteTE3dWQ1UGV0dThfY01YMlAyLWtKNmpUeXJQZnRGdi1VTGpXc2FpbmRldHNRTFdscFJ6Y1JMMVBsR0ZfR3lXVjVza0tiVFo0aWsyLS1zb3p0Q2VZaXVrNVlLSkVB?oc=5) |
-| Trump declines to call for unity after Charlie Kirk killing in stunning move - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOOXlqdVo1S3g3LU04ZUtPNGZVbGZVMWpCOWM3ZWFldVpUb2xacTNveS1GenZ1T013LUNET0NyNGJkMlRyWk9jdy1vZm1oN0JYamxvX3hMT0E2b2l1OXAxcFA5VjNuMzNRb3lIaWt3NTN2OTRNM3VrLUNFMkNOcTBsaWtqZnZsYUdXbUVWNmE2dVQ?oc=5) |
+| U.S. Secret Service puts agent on leave who wrote negative Facebook post about Charlie Kirk, officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQWmp4Q3FHNC1Xb2E0SnVuQ2ZjY0txLTEzbFZZbjF4WWVQSkdBb3BnZUFnRHRuaDFKOExLdHFrS0xNU3A2cy1hOHc1NXU5R2tVSU1UaGpzNEFiNXpYUy1Kd29lSXRoSWdReGtfNWI0d1dSYTYzZms5QWstVTA3bWFidDlSbFk4QmJuZlgta2VyT0U2b0w40gGaAUFVX3lxTE1rdU1QZ3FPclhCeHA3eUh6ZTdvTXdRWEZycGlkWnJIOHp3Rm5yaFVNQTMxSDNrcWcwU2kzYXNMSDRKUGR1TWVHd0NvOG1hWUs2RUwyV0xxOEVpaXN2eWRFM24wTkJiZUNMTm5iZ2hMeDU1TGJJRXh0UGZzalNudmRXMzE3MWNFMWlfY3pDR3o3UmR4bldRaV8ySnc?oc=5) |
+| Update on U.S. Naval Academy Security Concern - navy.mil | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxOLS11a3F4V3FWbzJGVENJdV95WmpiaFhnSzdKZ2hwUkNSTzA0a2NGYVR2dEJNaV9VWHNLLXJQakFCVFJDM284UzRRTHZjekZBY3BRUEk1VDV2XzFiZHNQRG9ncFBlOWMzdThtQk5INW5pdE53Q0g3Ny1mRWRLRE84dklraEY2RG94NWhONFh4czdvb2hjbkdvSGdOeER5ekJSTjRUNU5mWFQ1TmJEQzhGSjc2T3ptUnpUNW0wNQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
