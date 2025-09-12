@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 17:25:05（北京时间）**
+🕒 更新时间：**2025年09月12日 17:33:35（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | Ros Atkins on... Israel's war in Gaza and proportionality | [阅读全文](https://www.bbc.com/news/articles/cr5r76e127do?at_medium=RSS&at_campaign=rss) |
 | UK economy saw zero growth in July | [阅读全文](https://www.bbc.com/news/articles/c203edl1zq3o?at_medium=RSS&at_campaign=rss) |
 | What the NHS can learn from the European country that helped more people survive cancer | [阅读全文](https://www.bbc.com/news/articles/c701kw519lpo?at_medium=RSS&at_campaign=rss) |
-| Is your child a fussy eater? Try these five tips | [阅读全文](https://www.bbc.com/news/articles/c3e712j3gq5o?at_medium=RSS&at_campaign=rss) |
+| Five tips to try if your child is a fussy eater | [阅读全文](https://www.bbc.com/news/articles/c3e712j3gq5o?at_medium=RSS&at_campaign=rss) |
 | Former president Bolsonaro sentenced to 27 years in prison for plotting Brazil coup | [阅读全文](https://www.bbc.com/news/articles/c8xrqxk9p4xo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
