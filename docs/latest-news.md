@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 13:17:09（北京时间）**
+🕒 更新时间：**2025年09月12日 13:25:32（北京时间）**
 
 ---
 
@@ -11,11 +11,11 @@
 | New clues in hunt for Charlie Kirk's killer | [阅读全文](https://www.bbc.com/news/videos/ce84y9ep1z8o?at_medium=RSS&at_campaign=rss) |
 | Chris Mason: Starmer is losing senior figures at the rate of one a week | [阅读全文](https://www.bbc.com/news/articles/cvgvexelmkgo?at_medium=RSS&at_campaign=rss) |
 | 'Please come forward,' Stephen Lawrence's mum says to witnesses as review begins | [阅读全文](https://www.bbc.com/news/articles/cgrqnp09zl5o?at_medium=RSS&at_campaign=rss) |
-| Ros Atkins on... Israel's war in Gaza and proportionality | [阅读全文](https://www.bbc.com/news/articles/cr5r76e127do?at_medium=RSS&at_campaign=rss) |
 | The wedding crasher mystery solved after four years | [阅读全文](https://www.bbc.com/news/articles/c7v1d3r6y8mo?at_medium=RSS&at_campaign=rss) |
 | Watch: 'Looks like a toy, but it's real': BBC examines a downed Russian drone | [阅读全文](https://www.bbc.com/news/videos/czewd31724lo?at_medium=RSS&at_campaign=rss) |
 | What the NHS can learn from the European country that boosted cancer survival rates | [阅读全文](https://www.bbc.com/news/articles/c701kw519lpo?at_medium=RSS&at_campaign=rss) |
 | Former president Bolsonaro sentenced to 27 years in prison for plotting Brazil coup | [阅读全文](https://www.bbc.com/news/articles/c8xrqxk9p4xo?at_medium=RSS&at_campaign=rss) |
+| Ros Atkins on... Israel's war in Gaza and proportionality | [阅读全文](https://www.bbc.com/news/articles/cr5r76e127do?at_medium=RSS&at_campaign=rss) |
 | More school-starters missing key skills like toilet training, teachers say | [阅读全文](https://www.bbc.com/news/articles/cy85pwg3dyjo?at_medium=RSS&at_campaign=rss) |
 | Water firm bans tankers from transporting water for billionaire's lake | [阅读全文](https://www.bbc.com/news/articles/cq5jg9vy1n0o?at_medium=RSS&at_campaign=rss) |
 
