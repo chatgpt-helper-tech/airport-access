@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 00:01:53（北京时间）**
+🕒 更新时间：**2025年09月13日 00:09:32（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | 'We got him': Utah governor on how suspect was caught | [阅读全文](https://www.bbc.com/news/videos/c98e17y455yo?at_medium=RSS&at_campaign=rss) |
 | Labour MP says PM not up to the job, as Mandelson backlash grows | [阅读全文](https://www.bbc.com/news/articles/cx238pwwqg6o?at_medium=RSS&at_campaign=rss) |
-| 'Please come forward,' Stephen Lawrence's mum says as review into murder investigation begins | [阅读全文](https://www.bbc.com/news/articles/cgrqnp09zl5o?at_medium=RSS&at_campaign=rss) |
+| 'Prince Harry told me I was being hacked', says Stephen Lawrence's mum | [阅读全文](https://www.bbc.com/news/articles/c4g70271ndlo?at_medium=RSS&at_campaign=rss) |
 | Court orders 'tribe' to be evicted from Scottish woodland | [阅读全文](https://www.bbc.com/news/articles/c62zxjy0j91o?at_medium=RSS&at_campaign=rss) |
 | Oxford Union president-elect condemned for Charlie Kirk comments | [阅读全文](https://www.bbc.com/news/articles/c04qz5lk6ggo?at_medium=RSS&at_campaign=rss) |
 | US joins UN Security Council condemnation of Israeli strikes on Qatar | [阅读全文](https://www.bbc.com/news/articles/c740kk7vxkdo?at_medium=RSS&at_campaign=rss) |
