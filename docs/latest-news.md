@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 22:48:49（北京时间）**
+🕒 更新时间：**2025年09月12日 22:56:08（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Josh Kraft bows out of Boston race for mayor - WBUR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQbXRtWGVYTF9aTjNPdnFFOUljMmtVNU1odjllZGNNUTdkMl9Qb0ZqbkNuZnlSNWJUa1IzTlFpRVM2ZzhueURpc2xvWjZwNWYxZnlfQ2JHaldscWYyM3V0dXJKQnNsMDF4S1J5RDQtTW1aWThnV3lhYWQzeWJyMUtfeEUwUEJPU0xI?oc=5) |
 | No shooter threat found at US Naval Academy in Maryland, official says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPc0hJYjk2bnBEbWNYUWltUTUyYk5FcGM0by13T19mZUdyUFdDdC1BcWowN0dVejNhdW1lSWdJOU9QNWREaGpad0FlazJmTS0wZXptUkdaR0Z4bm51SC0tT1RWaWpYMUZ4VExsa1RQRHZ1T1NwYVJiVFVoM1ZodFJLSkttRXlYRjBQRERKTm5BU3RnX3NhdjI5MXpoYTVxOVAyV21yWFljUTlaZFc3?oc=5) |
 | Exclusive: "Silly" to worry about SCOTUS overturning tariffs, Lutnick says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE01VDZVSV95ZDI2cTA0YjhINkdvVWVjUEFmdmZJMGNNX1BQUEhrWEIwRkp3emY1c25RWXBwdmJ4SGpxUXFZY0V6X096bjFFMllBYmtldXd6dU5qUUhPcFBBenlQbTRZRnhuQThVWGJFb0M2RUhDTnJ3?oc=5) |
-| Suspect in Murder of Queens Couple Told Police That He Burned Them - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE83NEs5dFlyUmRpcUVHNUFTMUxDak9iTGVBa3NtU0ZxM3F0aG5jV1B1VWtGMUd5cXdtSTF3V3R1MHhvekVqMW92Y3lsWk5OS0hIamF2eS1McWpVd29HY1NpUVlXbmtheU1BMzY2MmxBdTdralgyN2NR?oc=5) |
+| Brazil's Bolsonaro gets 27-year jail sentence for coup plot - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNcjU5cFFFU0QwWlBWSENibWZGNzlRZVVNc2JqR2VOOHNCRGZ5NmZBNlVqSmt2MzFsZUdqbmhjZDlUOUhwNTdScVpNRU9YQjIzZmNxbE91RG1wa3lUY1BMNUJRbS1hV21TMXRKR0NNZk55SXotX3NYTVp5NFY3WHZhSA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
