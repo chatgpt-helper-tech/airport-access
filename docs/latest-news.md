@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 09:40:55（北京时间）**
+🕒 更新时间：**2025年09月12日 09:48:31（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Is your child a fussy eater? Try these five tips | [阅读全文](https://www.bbc.com/news/articles/c3e712j3gq5o?at_medium=RSS&at_campaign=rss) |
 | Nato strengthens defences after Russian drones shot down over Poland | [阅读全文](https://www.bbc.com/news/articles/c0lkz2n34z6o?at_medium=RSS&at_campaign=rss) |
 | More school-starters missing key skills like toilet training, teachers say | [阅读全文](https://www.bbc.com/news/articles/cy85pwg3dyjo?at_medium=RSS&at_campaign=rss) |
-| Phillipson and Powell set for Labour deputy showdown | [阅读全文](https://www.bbc.com/news/articles/c20v3l4qy11o?at_medium=RSS&at_campaign=rss) |
+| Ryan Routh cut off by judge as trial over attempted Trump assassination begins | [阅读全文](https://www.bbc.com/news/articles/c8d793z4mzgo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,9 +30,9 @@
 | Trump tries to distance U.S. from Israel’s strike on Qatar amid fury from Arab leaders - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOc2pRcTlwa0tZOUY4anFxaFpiMHg4Z2JRVG5xelJwWUt4YU5KNHduZnQxSEVYNVhzVVQzTW9OdTRwZWtiS2s1Rnd5N1dQUHk4TEJDTmptRUM1b2FWZWxFQ3piallBWVBUV21jZk1pWmVUX1A2VUkya0hscDZYRnEycDV2VzhZb2NzVVRGLXNSY25yZzFMcUo2SEd1SDNGeWhEVS1nZTBSU0JGcXlOWG9KUGItejNBLVF5dFRzYmVaVdIBxAFBVV95cUxPUFRBOHJfNVBpaV9RU0xxYUZRUGhDWjdOV3FFb2t2bXVpNERYemFQbXpjMWtOS3NjZy1MZzIta3dRVXMycXFYc2QzUjh5T3Rab1p5X0kyc0FGWFl2eTc5azRYMTFwWUo1dlNYNmExV0V2QUxVX1JFUGxmVE1xek5pYkpNZFJYOWxwSmRTSVNfNnp0TU5Jd0lfOFJkSUlVT29SRVlRczZtWTh3X0NuNkZBbzlTVGZadS02aDlCQTVhZjN4bW5x?oc=5) |
 | Hyundai CEO says immigration raid will delay Georgia battery plant's construction - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOWlNTaEpqaDVhT3FZVDRiUWVwR3c4cnllMURONGdNcHFLM2ZISFpiaXctbTM4UlpWd0RvbWtldFNMX3VxSmhFcVpVRFY0VGU0Z3ZsMzF5cHZQLTdmaVl1cGdZNzNudG5uNU1TbzhkX2U0empLRWkyMmE3b3NrdHA3bGtiZG1MRER1bDZsVU1WZl_SAZYBQVVfeXFMTkR2UXYxUWRST0x4V3l2UzhoYk5WclU1MjBaNFhMa3NJbWRUQWI2X3FLRXR5YlBLNUNEUlZYUUtaZ0JfdkszWUFibEJBRHQ3d2U0UXBlbm1tZnBDLURTbUx0UURteGZRQVE3cTY4eTRKTXlDUVRMb0JBYlh3RVNIT2JVcWEyN3Q3eWR3LXVBODZCc2NhN1VR?oc=5) |
 | Jury trial of Ryan Routh, man accused of trying to kill Trump, begins in Florida - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOa1Zod3dHMWRDTG14em1xYy05cjlOZ2lRUXltRS1kT1hnVEZNcWNZUy1uem9UWDJKbnF1WDBETW9LWXNmdl9haFp4N01HaHUzR1Q5RnZ5bENtZEZWOUZ0T1BabXNqbFdrRXl3SGkxWm9wS09HcVpGcXJKRmRfQXJ1Y2pSQldFZmpKeURpM1pqd3FNQkZwYmc?oc=5) |
-| U.S. Naval Academy Placed Under Lockdown Amid Threats, Authorities Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE9nNzRNRWtzdThfaFJvMHk1NnRNRjQwTWJRd0diS0RVd2R1c2EzaGtDSTl4T25BWG0tRktFUjc2Q3RrTGxGbGl5c09hSFhza3VQYnppTXNwTDNZMFkwTVl2VGJXc1lySjdRRE1jTlNHbnRXQWtC?oc=5) |
+| California Lawmakers Pass a Mask Ban for Law Enforcement - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQeFVQWmJhNGVVa3NNR05oWlVCQkRpN25tZFl2SXBTMm55VXF5dEFRMnVibEVwRGFrMHF4am03Q2NqMjBxTFBRM1JTc2Fzenl6dDk5MXlqNmRjZnhyWi1GME5yTlJKYzR0WkMwbVZrOFdlMWZJVmZwY1F1X3o3SUVVMjJjQks0dw?oc=5) |
+| U.S. Naval Academy on lockdown following reports of threats, officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPSnVsQVRYUmVtMHk1enRYVFp4TlBGUGgxX2VFMFJFT2w3U1RSbU8td3p4djl3WU4zaFd0MG9fbHdqV2pGbXpybmJyTzNGWUR3ZTdTSk8zRzY5TXlqWl9QT0FmTDlPTDNFS2xVXzZ6UjRpX1RwNl82VHotcFd1Z044Y0N0RzVXZTBCdWc?oc=5) |
 | Josh Kraft ends campaign for Boston mayor: ﻿Exclusive NewsCenter 5 interview - WCVB | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1Wc2xlamhGRjd6SUlBMFEtbndJUXFUSENOQ3c3MC1Da0RtZmZxQ3FISmdrT0ozcmV5NUdtOHQ0TlpYbGFEanQ3el9fSFpXMUlWOWZOZVc3S2c1RE1QdDdvdWlqX29YdUR3T3p6MUZnMXp5bHh5RmVsLXdHVDlZZzg?oc=5) |
-| Alleged drug-smuggling boat from Venezuela was turning back when hit, sources say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBMdlVwQURFekRadTJqRHBqNUxpVGJkWE5oUG9sb0xlaElDenZSZ1lteGo1Rktlekt4bHNpR0tFTWl1RXJxdTVVcm9aRkVWaFZfTnpiSkx5Q2dXc2p3Ym5ib0R0Z1RuMGlDbGNCaDBmZzJGMV81TUt2czV2SkwxU3PSAYQBQVVfeXFMUE5FNDc5eXAzdzhJZUtCZms0b3JoUk1DdzEwdmRkTEtKSFYxaTJPSWJseTNIbDhiNkpQQ3owU0I0T2NQSWc2SEUzaC1KNDdVSkxTSHJiN2IwMmFsaWJtV2NNbzl1b0F0b2piOHFHNmcwaGtDR0YwOUNmbGtNY3pOVURDQ1BW?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
