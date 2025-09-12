@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 04:41:03（北京时间）**
+🕒 更新时间：**2025年09月13日 04:49:18（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Charlie Kirk assassination suspect Tyler Robinson named, mugshots released - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOR3ZHNVU2Rjg4dmpsTzRXczBtRVRYNGhnMDRWd3RaOW1yNWtOOVh1bjJKSXAzdF9VVzljVHA3WFlDcFhwMXN5enNjRVRuOGNmd0lqNmw3cGlOcExjVVRIbDVuRG9jRjYxcE1vSXJFYXpQZmk3TjBiV1RhZVd5RTFFU3BWY09VNkgxYjVNV1BkNWQ0d9IBlwFBVV95cUxQXzZ1MEVwa0NKMUc2X3lkZFJ5VzMwRmx1cTIxT21SOThqRHVXUzJxNzZkNjlQbGVEcHpNbnpXTXcweW8zWjJhYlFtYWZReFl5ZzBRRkZNOEFidjZLTWxNdjBxUWs1QWFxX1lsTi1veG1pR2M2clV4MFFfWUdJTndQdDJSRUdVVE1VYVpPX25CWk85a21DLXJB?oc=5) |
+| What we know about Charlie Kirk shooting suspect Tyler Robinson - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNbnJOc1BxXzk0TFNpcnhiMWlrOWE2X0V0WVJXNEhwclIwNnJQN29HUlNVci0tN3VOS2ZEWmVIbzRkeml1OVUzb00xLWFzLU00eFJrR3p2ZWNySmtqLTdhZXV0ZE1ybnBfRnhZaEgxQ1J1bjZ1UGNlX1ktZjFmYmRyaXl1eXBoT0JuQXlR?oc=5) |
 | Man killed, ICE agent injured at Chicago immigration arrest - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPdXBWM3JpdUtiS2hCSzdLUTlQOU95NzZuRktnS2xhOE92WnlLM1Y4WFRDblplSHRrVjJUQ0N3ajZpZDVpR2xqbjBlbzVCcHRncHEyVzdZMUoxdUFiZ05SSzhDUHBuaTRSMklSOGRKcmJ5bW80b2Ztd2kwODN0UFhxa2NUbV9RTkVSbVdaMUdrbUl4clR5Nkk0QmxjbHVkS2ZzcHVOQUpzM2bSAVZBVV95cUxQdFBjNTZzYm8wOVhqRDhJTlZYNHZjV19sRnJxSmh2Rk9VYl9FRExtVEZDUmdoZFlsbkhzTGVuWkpYNmtfVUlPMkdzQ0dXUlRsM0luSlVGdw?oc=5) |
 | News: NATO launches “Eastern Sentry” to bolster posture along eastern flank, 12-Sep.-2025 - NATO | [阅读全文](https://news.google.com/rss/articles/CBMiX0FVX3lxTE8zdHdBOXFkUW1QTFM1dlZJX28wSjYtbWFSd09COHZmZEhqdGdFRmtXaW1TVF9SX3N1czFtRWJDN2JXcERWa2l6cXFKNTV2VFpVTGo4RVRZbFRYSlVQNGtR?oc=5) |
 | US joins UN Security Council condemnation of Israeli strikes on Qatar - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9yYjN4aFFlODVvVHBNQURUYTNjNDQydk5MNEwtYy02VmZST09qNDVkNTk3QjdDWEtxMWtWb0VuM3RpblRxZkFpUmJrREJpRXc1WWRaNFhObHdkZ9IBX0FVX3lxTE14aFpUX3FiYWZMQkJWSmtFUGFfc213dEJ0SUlKM2Q5eDJEak1sZVRFa05GRzlrUW9EX2F2VEJHYkNIM0JRZ19BWHBSZ1dIWUxFODZrX3lncEt3ZWtXbkZn?oc=5) |
