@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 14:57:32（北京时间）**
+🕒 更新时间：**2025年09月12日 15:00:03（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | ‘Every time they’re making progress, it seems like he bombs someone’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQaG1vYWpMUHBkQXVoU1pXSS0zVFQ1OG5DZUc0enp0SFloc0dPRXVYdzhtVmFWTE10UXBHUE1wemMyZjNCWHpibkZ2LXNNVlpjRlREUm9tVGl1c3VtLUc4UWZ0U0F4cGFub1JMQlhaVC1ual9CTXdwTlhmeERsQ05tX1ZDejBVUXc?oc=5) |
 | Evergreen High School shooter identified by authorities - Colorado Public Radio | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE80eWEwMU5Sd2h0WFVScndBOFJld0Nsbkk0UmljdXhGczV2bnFGekRoZ2RDUkF6RFhvenNPb2FKR1BaUUR2M2NMbzRDdFpCS0RBY2hlNmVvalR1SjJudjBwVmkyT01Kd0ZldnMtWXhBWG54d3JzR3hIaEZxRzk?oc=5) |
 | 1 injured while U.S. Naval Academy building was cleared after reported threat - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPSnVsQVRYUmVtMHk1enRYVFp4TlBGUGgxX2VFMFJFT2w3U1RSbU8td3p4djl3WU4zaFd0MG9fbHdqV2pGbXpybmJyTzNGWUR3ZTdTSk8zRzY5TXlqWl9QT0FmTDlPTDNFS2xVXzZ6UjRpX1RwNl82VHotcFd1Z044Y0N0RzVXZTBCdWc?oc=5) |
-| Senate GOP invokes "nuclear option" to confirm batches of Trump nominees - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQcTZvSkptdE5hY0cyOVVOU3V1c0hGTjQ5TmwtaUhiVUc4T1htcXdrU2tFcFNHU0RuSl9sTnZaaXcwY3A5bFpjd2tpSkloQ1NrdnhZOGRGdXUtQnpuamIzYUI1XzJkWXdrMWFvQkdSTDBNN0FIbXpjZTlHbHlBVEVGdjVJYjlLM0gx?oc=5) |
+| Jim VandeHei: What you can do to break our national fever - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBtZ1RFVW9xZ2lSU1FFcnBRZERSRDhPbURWUWJ1SXg0SG1IZjR3NXc3VkNES0dmTTZFaGV5MFhsWk16Q0hkQlBxQmJkOGRVQ1VuN1R0Zld6MDBfMGs2QVJ0VUJZdG9VdHUwa2ZPeDBBUGRNSDd2Vi1tdnBIV24?oc=5) |
 | Ryan Routh begins self-defense in attempted Trump assassination trial - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1SUG55a2pCeGtTVHR0U2E4eC0tTnlfQ3BaWVU1NlhMSGxjZzlrb3g2blZxVDlUYUdEQjVoRDhlY2I4NVFfR21uM1ZJdFl6aDdueDdCNWFWY0NlUdIBX0FVX3lxTE9US1poVFVSS19LSzRJOHBJNkFMUnQzTktUSm5CNFpHOGFGT0FQcm82c3daNjRnXzVWT3c2UkdqbThfQ2QzU3did0RaSnlSOWNjN2V4LWJNVHlNMFNoYWZJ?oc=5) |
 | ICE Agents Can’t Wear Masks Under Bill Passed in California - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQeFVQWmJhNGVVa3NNR05oWlVCQkRpN25tZFl2SXBTMm55VXF5dEFRMnVibEVwRGFrMHF4am03Q2NqMjBxTFBRM1JTc2Fzenl6dDk5MXlqNmRjZnhyWi1GME5yTlJKYzR0WkMwbVZrOFdlMWZJVmZwY1F1X3o3SUVVMjJjQks0dw?oc=5) |
 | South Korean workers detained in immigration raid leave Atlanta and head home - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNblZ3RTRKMU5zczY0M3ZRVkNXQVZoM3EtU3c5bHBPY2NGeUlaSWRRZkgwbGw4emNKalN3SnRZZ1FpVnY2eFZKaW1GV050NEo5N2FraExzb1VFU09nT2xYcVhKYVkxR3pMNDYwVDRHelgzYUFpc2JzVUt1aVdLSDY4c2JydlRQbmQ4ZUZfNElvWktVQWtXc25qSDR5T3ZQUVMwM0h4aGxn?oc=5) |
-| Alleged drug-smuggling boat from Venezuela was turning back when hit, sources say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBMdlVwQURFekRadTJqRHBqNUxpVGJkWE5oUG9sb0xlaElDenZSZ1lteGo1Rktlekt4bHNpR0tFTWl1RXJxdTVVcm9aRkVWaFZfTnpiSkx5Q2dXc2p3Ym5ib0R0Z1RuMGlDbGNCaDBmZzJGMV81TUt2czV2SkwxU3PSAYQBQVVfeXFMUE5FNDc5eXAzdzhJZUtCZms0b3JoUk1DdzEwdmRkTEtKSFYxaTJPSWJseTNIbDhiNkpQQ3owU0I0T2NQSWc2SEUzaC1KNDdVSkxTSHJiN2IwMmFsaWJtV2NNbzl1b0F0b2piOHFHNmcwaGtDR0YwOUNmbGtNY3pOVURDQ1BW?oc=5) |
+| Senate GOP invokes "nuclear option" to confirm batches of Trump nominees - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQcTZvSkptdE5hY0cyOVVOU3V1c0hGTjQ5TmwtaUhiVUc4T1htcXdrU2tFcFNHU0RuSl9sTnZaaXcwY3A5bFpjd2tpSkloQ1NrdnhZOGRGdXUtQnpuamIzYUI1XzJkWXdrMWFvQkdSTDBNN0FIbXpjZTlHbHlBVEVGdjVJYjlLM0gx?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
