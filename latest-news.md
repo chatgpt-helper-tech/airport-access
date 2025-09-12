@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 09:25:13（北京时间）**
+🕒 更新时间：**2025年09月12日 09:33:00（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Trump tries to distance U.S. from Israel’s strike on Qatar amid fury from Arab leaders - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOc2pRcTlwa0tZOUY4anFxaFpiMHg4Z2JRVG5xelJwWUt4YU5KNHduZnQxSEVYNVhzVVQzTW9OdTRwZWtiS2s1Rnd5N1dQUHk4TEJDTmptRUM1b2FWZWxFQ3piallBWVBUV21jZk1pWmVUX1A2VUkya0hscDZYRnEycDV2VzhZb2NzVVRGLXNSY25yZzFMcUo2SEd1SDNGeWhEVS1nZTBSU0JGcXlOWG9KUGItejNBLVF5dFRzYmVaVdIBxAFBVV95cUxPUFRBOHJfNVBpaV9RU0xxYUZRUGhDWjdOV3FFb2t2bXVpNERYemFQbXpjMWtOS3NjZy1MZzIta3dRVXMycXFYc2QzUjh5T3Rab1p5X0kyc0FGWFl2eTc5azRYMTFwWUo1dlNYNmExV0V2QUxVX1JFUGxmVE1xek5pYkpNZFJYOWxwSmRTSVNfNnp0TU5Jd0lfOFJkSUlVT29SRVlRczZtWTh3X0NuNkZBbzlTVGZadS02aDlCQTVhZjN4bW5x?oc=5) |
 | Jury trial of Ryan Routh, man accused of trying to kill Trump, begins in Florida - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOa1Zod3dHMWRDTG14em1xYy05cjlOZ2lRUXltRS1kT1hnVEZNcWNZUy1uem9UWDJKbnF1WDBETW9LWXNmdl9haFp4N01HaHUzR1Q5RnZ5bENtZEZWOUZ0T1BabXNqbFdrRXl3SGkxWm9wS09HcVpGcXJKRmRfQXJ1Y2pSQldFZmpKeURpM1pqd3FNQkZwYmc?oc=5) |
 | 'Chilling reminder': Multiple historically Black universities under lockdown after receiving threats - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPTUNzRVBfSW5Ea2pacWtSQ1o4cmV2NmVTNTU3V3dZbWM4N0FfWmtjN2xaeGt2ZnZRYUhqMjBQbDhmOUxlbGV1WjNnWTJhWFQyZU9jY1RhNjZhUlVHX18tdVI1dFZPbUtsTzRGQ2t1UUpJVTllamV1b2JHSk5oTjVUcUNzR2NvdktuWE5DZUV6ZVVMbGNFWHluTmxSMzBPb0Z6eDB6cWtfZ9IBrAFBVV95cUxPcUFnVWlEdXZZaFhLQzJ5QUFjWkhjajY5VWR6MldEbjYxc1lvN05Xd1JQR1RqdWhIeE5OOFJHMUhKNThYNmwtQ2VEell1eFZsSkh5NVUzUGdzMkxTeXlKMTBGLWMxNUU1dHg4RnBCSzdEa3lxWWlaN1E1NWpORFlIMUdmNG4xVVFyQklheF9tTlVNa2xSbW81a3VpWEhkZFRuRmxrcTNiS0hYZ2Zf?oc=5) |
-| South Korean workers detained in immigration raid leave Atlanta and head home - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNblZ3RTRKMU5zczY0M3ZRVkNXQVZoM3EtU3c5bHBPY2NGeUlaSWRRZkgwbGw4emNKalN3SnRZZ1FpVnY2eFZKaW1GV050NEo5N2FraExzb1VFU09nT2xYcVhKYVkxR3pMNDYwVDRHelgzYUFpc2JzVUt1aVdLSDY4c2JydlRQbmQ4ZUZfNElvWktVQWtXc25qSDR5T3ZQUVMwM0h4aGxn?oc=5) |
+| Hyundai says opening of raided plant to be delayed - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5Ca0IyeVpRYWZPTVJJM3ZRZFhNNG1KN0VrazNjSlF1TW9jb2JEV09RbjZIUmlJb3NJeWQxUHV3TTNiX282MmcwUU1XMEFqRl9ocmJEUXNXdDNRUdIBX0FVX3lxTE9SZmUxb1FtUXA3dG9aNVktME0zRGMwM3NoWHFrSm1OcHdUNDFPOHkwcG5McC01NHJXRmp6alZuY0REcU56MENfa29ldGJSN0VWQ1dBVHk1OHRzbDF6Z1pv?oc=5) |
 | U.S. Naval Academy Placed Under Lockdown Amid Threats, Authorities Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE9nNzRNRWtzdThfaFJvMHk1NnRNRjQwTWJRd0diS0RVd2R1c2EzaGtDSTl4T25BWG0tRktFUjc2Q3RrTGxGbGl5c09hSFhza3VQYnppTXNwTDNZMFkwTVl2VGJXc1lySjdRRE1jTlNHbnRXQWtC?oc=5) |
 
 ---
