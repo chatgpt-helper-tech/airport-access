@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 11:57:59（北京时间）**
+🕒 更新时间：**2025年09月12日 12:01:22（北京时间）**
 
 ---
 
@@ -12,18 +12,18 @@
 | Starmer facing fresh questions after Mandelson sacking | [阅读全文](https://www.bbc.com/news/articles/cy0v81zeggko?at_medium=RSS&at_campaign=rss) |
 | Chris Mason: Starmer is losing senior figures at the rate of one a week | [阅读全文](https://www.bbc.com/news/articles/cvgvexelmkgo?at_medium=RSS&at_campaign=rss) |
 | Former president Bolsonaro sentenced to 27 years in prison for plotting Brazil coup | [阅读全文](https://www.bbc.com/news/articles/c8xrqxk9p4xo?at_medium=RSS&at_campaign=rss) |
-| What the NHS can learn from the European country that boosted cancer survival rates | [阅读全文](https://www.bbc.com/news/articles/c701kw519lpo?at_medium=RSS&at_campaign=rss) |
 | The wedding crasher mystery solved after four years | [阅读全文](https://www.bbc.com/news/articles/c7v1d3r6y8mo?at_medium=RSS&at_campaign=rss) |
+| What the NHS can learn from the European country that boosted cancer survival rates | [阅读全文](https://www.bbc.com/news/articles/c701kw519lpo?at_medium=RSS&at_campaign=rss) |
 | Is your child a fussy eater? Try these five tips | [阅读全文](https://www.bbc.com/news/articles/c3e712j3gq5o?at_medium=RSS&at_campaign=rss) |
-| South Korea workers detained in US raid head home | [阅读全文](https://www.bbc.com/news/articles/cn0r434g5k1o?at_medium=RSS&at_campaign=rss) |
-| More school-starters missing key skills like toilet training, teachers say | [阅读全文](https://www.bbc.com/news/articles/cy85pwg3dyjo?at_medium=RSS&at_campaign=rss) |
 | Watch: 'Looks like a toy, but it's real': BBC examines a downed Russian drone | [阅读全文](https://www.bbc.com/news/videos/czewd31724lo?at_medium=RSS&at_campaign=rss) |
+| More school-starters missing key skills like toilet training, teachers say | [阅读全文](https://www.bbc.com/news/articles/cy85pwg3dyjo?at_medium=RSS&at_campaign=rss) |
+| South Korea workers detained in US raid head home | [阅读全文](https://www.bbc.com/news/articles/cn0r434g5k1o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Police release photo of person of interest in Charlie Kirk shooting death - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNRWpQY3RqQ0VJa0RjMExFOFpNN3N1aEsyQjZRb0otNlFxVUJxdHRwZUVwaHZwazFDcnRhMHNjdV93amJmbElIclBxYUdXQWJfSXhDNHhTQXd3bllzdTl2ZDA3dTQ1TmYwUzQtYkNTWlpoTk1pbVJqVE1oSW1IOVR4SjVWYzBpaWM4Rk5CeWdGaw?oc=5) |
+| Charlie Kirk's body flown on Air Force Two to his home in Arizona - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE94Um1mdGF5QnZwaTc4SVk2bkQ3Q2ZvSndJSWx3b1NYOFNkWnJJYmZ6NVRSNC1pbDlMRVk4ajZSVFRmYlNrdkt0ZWpYZWtRQXRENmRRelZmMUd1Rko5UzNGV0NWNjBHU29kVXUxWC0tVTYtWHpuSDdWYll30gF_QVVfeXFMTzVoaERjcklYTGJqa3B6QVlkbVVqanJlN1ltb3JWbUx1aG9XUFZSQkVyUVZYeU9ybVF0dkZFOUxybjhGMDRESklNanNtUmVRVHRXNlRQZnRNR2wxM2FVZV9SNVh6YjhnLTQ4dm50T0xMRGJqbnJhdlVfbUR3RU5xdw?oc=5) |
 | Student Who Shot 2 Others at Colorado School Was ‘Radicalized,’ Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOa1hISkpiRWZZR2tVSzVSNHFaeXBxeG5UeXVUeWhMc09LZGlwZFExYzNTVktiN0cxMjRHYWVyYWdpTjh6TkxqSy1QaE1tTWZ3QU5mQzdXQXk2NlQ2SkdEejQ5a3g4WnQwRVdjLTYtTUdsVmVMajRFT1RRV3VoUFVtaGZXaE9xSHhzTlE?oc=5) |
 | Jair Bolsonaro sentenced to 27 years in prison for plotting Brazil coup - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBPRnFtMEYzU1BwSTFfaW1JdGhUYVdNVmNhemdzY2hmYXZLNTd5OWpTS1NkMDhteFotSGVMZWNqZHYzMy1jYXZmcHdaQl9VMjFDa0tWd2dQOVQ1d9IBX0FVX3lxTE1Ud3FkMDVfajFEbm5MRlJ5eU10Uk9xV253M3FaUEwzdWJfSHd3UG83dERlSmtubXA4OWNfRHFFZjExYlZ3VjlDUG5jS2J5Mm0zMkRTYm5WYjdPVHhXOFRF?oc=5) |
 | 2 Massachusetts teachers placed on leave over Charlie Kirk social media posts, superintendents say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNc3o0NlBVTHlvYmw1b052bjBsQ3l4MW1HTGF6bnctd0Z3RmdINlFzOXVWbEtlNjRYQm0yMmNvUzluUlpzWF91RWxXZFFPa3pVWEFFTjQ4dC1CcXBoV3cycktzUjFRYVR6RlhzUjBkUFpueVp5elRqZUp2dXhzOUFKdnV2eng?oc=5) |
