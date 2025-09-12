@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 10:57:21（北京时间）**
+🕒 更新时间：**2025年09月12日 11:01:32（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Jury trial of Ryan Routh, man accused of trying to kill Trump, begins in Florida - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOa1Zod3dHMWRDTG14em1xYy05cjlOZ2lRUXltRS1kT1hnVEZNcWNZUy1uem9UWDJKbnF1WDBETW9LWXNmdl9haFp4N01HaHUzR1Q5RnZ5bENtZEZWOUZ0T1BabXNqbFdrRXl3SGkxWm9wS09HcVpGcXJKRmRfQXJ1Y2pSQldFZmpKeURpM1pqd3FNQkZwYmc?oc=5) |
 | No shooter threat found at US Naval Academy in Maryland, official says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPc0hJYjk2bnBEbWNYUWltUTUyYk5FcGM0by13T19mZUdyUFdDdC1BcWowN0dVejNhdW1lSWdJOU9QNWREaGpad0FlazJmTS0wZXptUkdaR0Z4bm51SC0tT1RWaWpYMUZ4VExsa1RQRHZ1T1NwYVJiVFVoM1ZodFJLSkttRXlYRjBQRERKTm5BU3RnX3NhdjI5MXpoYTVxOVAyV21yWFljUTlaZFc3?oc=5) |
 | With Hyundai raid, Trump’s immigration crackdown runs into his push for foreign investment - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQSDl6Vkl6V3ZRMHZNWTYyUVFJMjhUWUd5N2h1NnY3SE5vS2Rvc2dhcHhyM1FBZmlZb1hrTFJuN3ZpUUdmQjV4MVNTclM0cGhyZTNzMGxfRjB4Z3UwZlUyUko5Z0d5VWVaa2ljQmtOWHVIdWlOVWtuRVk3ZUxBNzdidUdrV1NQWmlZNGE4RV8zcFY5X3h0bG9uTXdoQlBYT3VsUnhqeC1WVkJ3VEdxSERoOXpaQQ?oc=5) |
-| 'Chilling reminder': Multiple historically Black universities under lockdown after receiving threats - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPTUNzRVBfSW5Ea2pacWtSQ1o4cmV2NmVTNTU3V3dZbWM4N0FfWmtjN2xaeGt2ZnZRYUhqMjBQbDhmOUxlbGV1WjNnWTJhWFQyZU9jY1RhNjZhUlVHX18tdVI1dFZPbUtsTzRGQ2t1UUpJVTllamV1b2JHSk5oTjVUcUNzR2NvdktuWE5DZUV6ZVVMbGNFWHluTmxSMzBPb0Z6eDB6cWtfZ9IBrAFBVV95cUxPcUFnVWlEdXZZaFhLQzJ5QUFjWkhjajY5VWR6MldEbjYxc1lvN05Xd1JQR1RqdWhIeE5OOFJHMUhKNThYNmwtQ2VEell1eFZsSkh5NVUzUGdzMkxTeXlKMTBGLWMxNUU1dHg4RnBCSzdEa3lxWWlaN1E1NWpORFlIMUdmNG4xVVFyQklheF9tTlVNa2xSbW81a3VpWEhkZFRuRmxrcTNiS0hYZ2Zf?oc=5) |
+| Potential threats trigger lockdowns at several HBCUs across the South - CNN | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE5Hb0JNLUl2LW4tcWRGaGFoUmtxQ0JzS2RmVTFMN2FOemg4cU5EUzBUQVpzVWhqNzF0T0tfNHZjUkJWaDB3MGFwYTkzR1I1cVhyTFFfNTVIcEJkTHNfYTBfOXo3Q0tyWUYzVmxVZjlkRXhVbU0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
