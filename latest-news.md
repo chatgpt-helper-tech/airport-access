@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 18:01:45（北京时间）**
+🕒 更新时间：**2025年09月12日 18:10:00（北京时间）**
 
 ---
 
@@ -17,22 +17,22 @@
 | North Korea executing more people for watching foreign films and TV, UN finds | [阅读全文](https://www.bbc.com/news/articles/ckgqdz17ye3o?at_medium=RSS&at_campaign=rss) |
 | What the NHS can learn from the European country that helped more people survive cancer | [阅读全文](https://www.bbc.com/news/articles/c701kw519lpo?at_medium=RSS&at_campaign=rss) |
 | Five tips to try if your child is a fussy eater | [阅读全文](https://www.bbc.com/news/articles/c3e712j3gq5o?at_medium=RSS&at_campaign=rss) |
-| Former president Bolsonaro sentenced to 27 years in prison for plotting Brazil coup | [阅读全文](https://www.bbc.com/news/articles/c8xrqxk9p4xo?at_medium=RSS&at_campaign=rss) |
+| Water firm bans tankers from transporting water for billionaire's lake | [阅读全文](https://www.bbc.com/news/articles/cq5jg9vy1n0o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Searching for Charlie Kirk shooter, officials still lack suspect name or location - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxONVhtcm53amRxaE16YS1WZkhxdEJhRHBkS2lfR1FjcmlCV2x4Z3Buc1BtYWZ2RXN0Q0xvRmNUUDNNSjhxY2VYOXJWeUZueDBzMXpmRFV5a0pyd2lNWkIydlVoVzNxYk1nM0Rtb0VIcGJiemRSV3F3M19lcjUwaHlYVVVHVEdnZUdWekJpVzh2WWhXN3lR?oc=5) |
+| Charlie Kirk shooting: new video of suspect released by FBI amid urgent appeal for help from the public - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi5wFBVV95cUxQd29uLTJ2bjVEOTRSZ1ZfRUd4WERWMjJsQWg1UHd0U01BLWVFbW81TUZsYUd3a3ZKeTF1S1pFMnZfbERSdzR3NXBjRFVaUTZkaUFjdFlBbjhhcDJsYWRiUUFVTjhZVGRYbG9rcjVhM1J5YnNmWDRrZzFpVU92NWpNSU9ERFh3NlQtLVQtLWhjSWtyQjg4SEFxMWM0MW1jYkhPemQwNURWZ2Fvb1F0LVZtNHczT2ZXYzRvY0djcjFkLWhLQ0sxblpBbFo5akczYUphRWZHZGViTEpQTllwWEZzcnJwY1QzVkE?oc=5) |
 | Brazilian Supreme Court panel sentences Bolsonaro to more than 27 years in prison for coup attempt - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQcEI3V2djNC05RXZUTkZrd3QxU29nME8xMGpyZDMtLVpLd2k3aGlNXy1nTzY5Uk9LLWtzY1VvclNxMzZiZ013LXFjd0ZmUWRXUlNOTnQ1aDdGSkR1eXJMQXBhNGpDeE1rZHQzSnQ5c2UxaTE0aUNrU3JPbU43R0ZDYjhJQVZFaVQ2NVlNcExmRlQ0aUc2M1hXa2lqQXRqakRVbGF2dTRSMGttMllHR2oxQjlYaHpSSU3SAbwBQVVfeXFMTkZhTGhRcXJGZDd4RVJUYWJsbi1IanV0TjFodzFsbVk2TW1rOTUxUXNBSnRLYndqb242YzlKVFJqdnpyZE9pWG8yZHMxZ0N4QS1DS2pudGxqSjZoQk9zaWRvUFdwZUdqV1Q2ZWVjQkRsa3BMdU5jRFpxMFlGdW0ydk1xODVrdWlYZS1nNHExODZ6WktzUzM1X3IzUjlrMUlmbXI4VkZ4OUp5YzZsNTdOVEo3UUo5ZUxfWV9QLU4?oc=5) |
-| Patel and F.B.I. Face Scrutiny as Kirk’s Killer Remains at Large - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQSGxMTDc4S29lUmZPNzhtTnY1YnljQmxwX3VYN095a0g4MmVfSWlsTEtkNkdZV0NGRFRHaHQtalVLc0RfUC1UekM2NWFiaU1CZVVlRHVGeHRFVnVXdVFhb2hvOHFiWTJETUZrWUN1MTE1eUpPSnMxcXk3R0tabjNLOQ?oc=5) |
 | Trump to meet Qatar's PM Friday in aftermath of Israeli strike in Doha - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE00M1B1RXVSQWRQS080b0dfa2hxUzNfX2tvVWtlMEJhYkRiZDdERkJNZFUxdnRqU0xaU29oM2pQaDc0Q2tEdTZYTVpsMjVRWG9iUGtnZG9OYTY1MjNfbV9MaHMybXd6QWdQTnFlS1FvSGlVQ29kUXZ4dmRpZw?oc=5) |
-| Evergreen High School shooter identified by authorities - Colorado Public Radio | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE80eWEwMU5Sd2h0WFVScndBOFJld0Nsbkk0UmljdXhGczV2bnFGekRoZ2RDUkF6RFhvenNPb2FKR1BaUUR2M2NMbzRDdFpCS0RBY2hlNmVvalR1SjJudjBwVmkyT01Kd0ZldnMtWXhBWG54d3JzR3hIaEZxRzk?oc=5) |
 | After Russian drones were downed in Poland, what does triggering NATO Article 4 mean? - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBXbDh3b1FHaDR0Y09qOWVEZ0tjRkpwZk1tYXgzTlZRTy04a2VUaWtvODk5UTRENDhTNU9CWTFPbmtwc0xLcGVlN0VzWGpzdGZCbEFnTFVmOGV2bXotbU9yWFBlYUF5RC16MUR0cGpYTWxKXzJOMVppMDNvOXg0X0E?oc=5) |
 | 1 injured while U.S. Naval Academy building was cleared after reported threat - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPSnVsQVRYUmVtMHk1enRYVFp4TlBGUGgxX2VFMFJFT2w3U1RSbU8td3p4djl3WU4zaFd0MG9fbHdqV2pGbXpybmJyTzNGWUR3ZTdTSk8zRzY5TXlqWl9QT0FmTDlPTDNFS2xVXzZ6UjRpX1RwNl82VHotcFd1Z044Y0N0RzVXZTBCdWc?oc=5) |
+| U.K. fires ambassador to the U.S. over Epstein revelations - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOMGE3clNfTVROTmlZRzRLeEZSeExTYUFvN1FoTENuckdGRlR5UWJYM1Q5RHk2TXBYR1V1bnJ1SzVuSVpPVlQtOUhyUVdSYlBid2tkLTl6UlZuVVZQUVlRZ284cjJ6NEF2VXFzaUJTbVZ0UFRJMmZya0hhRkVaM1ZnWWJTUGc1UQ?oc=5) |
+| Josh Kraft bows out of Boston race for mayor - WBUR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQbXRtWGVYTF9aTjNPdnFFOUljMmtVNU1odjllZGNNUTdkMl9Qb0ZqbkNuZnlSNWJUa1IzTlFpRVM2ZzhueURpc2xvWjZwNWYxZnlfQ2JHaldscWYyM3V0dXJKQnNsMDF4S1J5RDQtTW1aWThnV3lhYWQzeWJyMUtfeEUwUEJPU0xI?oc=5) |
 | Ryan Routh begins self-defense in attempted Trump assassination trial - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1SUG55a2pCeGtTVHR0U2E4eC0tTnlfQ3BaWVU1NlhMSGxjZzlrb3g2blZxVDlUYUdEQjVoRDhlY2I4NVFfR21uM1ZJdFl6aDdueDdCNWFWY0NlUdIBX0FVX3lxTE9US1poVFVSS19LSzRJOHBJNkFMUnQzTktUSm5CNFpHOGFGT0FQcm82c3daNjRnXzVWT3c2UkdqbThfQ2QzU3did0RaSnlSOWNjN2V4LWJNVHlNMFNoYWZJ?oc=5) |
 | ICE Agents Can’t Wear Masks Under Bill Passed in California - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQeFVQWmJhNGVVa3NNR05oWlVCQkRpN25tZFl2SXBTMm55VXF5dEFRMnVibEVwRGFrMHF4am03Q2NqMjBxTFBRM1JTc2Fzenl6dDk5MXlqNmRjZnhyWi1GME5yTlJKYzR0WkMwbVZrOFdlMWZJVmZwY1F1X3o3SUVVMjJjQks0dw?oc=5) |
-| Josh Kraft bows out of Boston race for mayor - WBUR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQbXRtWGVYTF9aTjNPdnFFOUljMmtVNU1odjllZGNNUTdkMl9Qb0ZqbkNuZnlSNWJUa1IzTlFpRVM2ZzhueURpc2xvWjZwNWYxZnlfQ2JHaldscWYyM3V0dXJKQnNsMDF4S1J5RDQtTW1aWThnV3lhYWQzeWJyMUtfeEUwUEJPU0xI?oc=5) |
+| Evergreen High School shooter posted photo of handgun to social media shortly before shooting - KUSA.com | [阅读全文](https://news.google.com/rss/articles/CBMi6gFBVV95cUxPVl81OVdNTHJQUUNRUWdKdUJQSzdlUDZWNVI4T1c0dUc0Mlo0WUZJT2FMZU9zZjhMOXhQcVVXMS15cFBlVVF4WnJXNW9EYTVLRnBLZTdCU0ZsZ1ZDN1hFZFZFbmVwcVU4bjFSNXNaanNYdGRBeEVwNzVKeGk5NGhIYkJvQ3R6X0pGMzhxNl9zZ1pldDc0V2ZLVHE4ZUxYMTlmWVlaQnI0TUV4d1VVUWtoMkRkakNqRGROMTZuZlFsSUg3cVAydVExbXIxQVMxcnFfVmhUSmxveHEyMVBJSEl1RGhlbU9RNHJXcUE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
