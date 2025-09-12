@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 21:57:19（北京时间）**
+🕒 更新时间：**2025年09月12日 22:00:26（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | California lawmakers pass bill to ban ICE agents from wearing masks - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPSVI1dGt1clRHeS1yOXJ2aDZkNEpMVHhzZFE0Qk1fenZuTUVFN0hhdTg2MmQtcmlIdm1pYW1MVDJ1Mmk1NTBIWnBPd0ptU1E2dDAxOWMzNUl1Nms0R3NRakxaVUEtLXFXUzBJRG5oT3NQZFY1Nk5DbnBBU0FpZHZ4T0QtMHl0OERtVFkxUDlTXzNfalczWXBYa1drSkx5WmhIdk1hdXhXSjRSUUFaRmc?oc=5) |
 | Hyundai I.C.E. Raid Detained Workers With Short-Term Business Visas - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPVVp2MkJPUUpJMms2ek5oR09IUkUzUkMwb3VERlJNX2ZybGlQMFQ2YmE4YTQxTHlJeWt5NURuenJHT1NWV2FnMDEwS0NUNlZrQ3VWQmplZExXUkFQeThyUzBDVzM1MDhBN3BPNDRUSzRVZXluX2REV09VQnRHcUs0ODdLVkotZDhSUkE?oc=5) |
 | Trump says he's sending the National Guard into Memphis to 'fix' crime like D.C. - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPalktbDM1Z1NBRmNkWFZPLXFTbmw4UW12RjhGam5IeGFoNUZuNkhiLVhHRDhfc0ZxbEVmWXliZlZ4bkVWM2NFSnFfSGhEWFhLcFR2Ukg2OEZwNVdURkp6Tno4ZWc0cjh1NkVudnN1RFBPYkQweGRIQ1ZVVUpxUjRtV3lWeWxGczA4Q2FhbjZPRUFIWTJOeXNwQi14SzdiQzJPRHZYZ2hXT2NqQTlpOVE40gFWQVVfeXFMUFozcUhTMVc1SV9BVG8tU2RjS0ZBU05HTzVtRk1pS1plb2xfRGZCTVN5V2FUeTNFVkxBaGJxdGdRQXliRFUxdlFfTld6MjRGVFJYYXZfV2c?oc=5) |
+| Josh Kraft bows out of Boston race for mayor - WBUR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQbXRtWGVYTF9aTjNPdnFFOUljMmtVNU1odjllZGNNUTdkMl9Qb0ZqbkNuZnlSNWJUa1IzTlFpRVM2ZzhueURpc2xvWjZwNWYxZnlfQ2JHaldscWYyM3V0dXJKQnNsMDF4S1J5RDQtTW1aWThnV3lhYWQzeWJyMUtfeEUwUEJPU0xI?oc=5) |
 | No shooter threat found at US Naval Academy in Maryland, official says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPc0hJYjk2bnBEbWNYUWltUTUyYk5FcGM0by13T19mZUdyUFdDdC1BcWowN0dVejNhdW1lSWdJOU9QNWREaGpad0FlazJmTS0wZXptUkdaR0Z4bm51SC0tT1RWaWpYMUZ4VExsa1RQRHZ1T1NwYVJiVFVoM1ZodFJLSkttRXlYRjBQRERKTm5BU3RnX3NhdjI5MXpoYTVxOVAyV21yWFljUTlaZFc3?oc=5) |
-| Senate GOP invokes "nuclear option" to confirm batches of Trump nominees - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQcTZvSkptdE5hY0cyOVVOU3V1c0hGTjQ5TmwtaUhiVUc4T1htcXdrU2tFcFNHU0RuSl9sTnZaaXcwY3A5bFpjd2tpSkloQ1NrdnhZOGRGdXUtQnpuamIzYUI1XzJkWXdrMWFvQkdSTDBNN0FIbXpjZTlHbHlBVEVGdjVJYjlLM0gx?oc=5) |
 | Exclusive: "Silly" to worry about SCOTUS overturning tariffs, Lutnick says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE01VDZVSV95ZDI2cTA0YjhINkdvVWVjUEFmdmZJMGNNX1BQUEhrWEIwRkp3emY1c25RWXBwdmJ4SGpxUXFZY0V6X096bjFFMllBYmtldXd6dU5qUUhPcFBBenlQbTRZRnhuQThVWGJFb0M2RUhDTnJ3?oc=5) |
 
 ---
