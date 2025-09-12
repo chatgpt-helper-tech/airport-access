@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 05:01:47（北京时间）**
+🕒 更新时间：**2025年09月13日 05:08:59（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | President Trump Announces Bold Action to Crush Violent Crime in Memphis - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOWGpLem9TalBpb1BxT0NCeUhEaVBrQ3Q2czk0M0pNb0hJQVBmTjBnWkFzbGJxMm43eGJoWGY0blhmcTZ3NE12bTRxaVFQRGFqQklJcjMzZG4zM0NwRkJpWjgySHFSUXN1Q3VoZjl0RjFFZWJZaFpOMC1XU2t3WVQ5UzRRN0tUWFlacUNVTVhDQzZZU01XLUhxTF9hSVZ6X3FrbG5qRDJwMWN3Xy1COXFwQmZNR1FiU2s?oc=5) |
 | California passes ICE mask ban in closing days of legislative session - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBrTC1kMU5OeUxJM183bVZ1T0ZfXzExamlZb0lHRGhNd0pMUEJKSVJMQTRLemYxMkhGek1iQzU4Yl9ldFU1bC1BMlBidWxOdnhIV1VTUDIyXzA5blRKajgyT0lxbW9jSlEzS25uNGs2YTNoMFVTd0E?oc=5) |
 | Rubio vows US response following conviction of Brazil's Bolsonaro - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQSmUtTFJoMnFGSUI4b01pOTdmM3JMLUpKOG1QaWozc3NSMXhOUDk3WTVYN0FlSTRaVXRIeEFXYzMzUlVvakRBYklFZUZ6a0ZsOEhzTTVteTE3dWQ1UGV0dThfY01YMlAyLWtKNmpUeXJQZnRGdi1VTGpXc2FpbmRldHNRTFdscFJ6Y1JMMVBsR0ZfR3lXVjVza0tiVFo0aWsyLS1zb3p0Q2VZaXVrNVlLSkVB?oc=5) |
-| Hoaxes Target Black Colleges, Shutting Classes as Anxiety Mounts in U.S. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNVW9IdlhSOFJxSEN0ZWVULUJmdHNaTzBjR1htZDBCSlJXVTBSZWhMdi1PbWRxZlVpZzB6bnIwbmxvQUM2QW4tbVo1MTF3bUVFWWNMVkI3WTRSMW5CUWpBSmEwdnJhYlgwX25VT1R4V2hhOHhtZGNpcGxobUE0QnBZb3VtUU0tdXpxQkQwR2lObw?oc=5) |
+| Black students and colleges across US targeted with racist threats day after Charlie Kirk killing - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPVlEyMlBmNmxES2JvYzBRc0theHltZ1IydmRsem8wRHlsaUhrYTcwR1djTjBDSmloR2JXeHJWODVTUFlsTVF1dk1VMXNCLWdFdktUdHhpMnB5bmJqbTVIZ3N0MXFmRENNYzFva1NsV2VJUWxKVTNhSTNXbDRubm5WbVlJdFlCS0JHQlBKUG9uRQ?oc=5) |
 | Update on U.S. Naval Academy Security Concern - navy.mil | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxOLS11a3F4V3FWbzJGVENJdV95WmpiaFhnSzdKZ2hwUkNSTzA0a2NGYVR2dEJNaV9VWHNLLXJQakFCVFJDM284UzRRTHZjekZBY3BRUEk1VDV2XzFiZHNQRG9ncFBlOWMzdThtQk5INW5pdE53Q0g3Ny1mRWRLRE84dklraEY2RG94NWhONFh4czdvb2hjbkdvSGdOeER5ekJSTjRUNU5mWFQ1TmJEQzhGSjc2T3ptUnpUNW0wNQ?oc=5) |
 
 ---
