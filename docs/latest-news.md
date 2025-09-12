@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 07:57:45（北京时间）**
+🕒 更新时间：**2025年09月12日 08:00:05（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Capitol agenda: Charlie Kirk’s killing sends a chill through Congress - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxOTEJCcVlpUFo0c0ZQNFIxbF8wVlIzN3BUTl85OXdKZmE0ejlQUVB1UnFJNDU2OFFybTBjcmg5SDBXcERZTW96V0ZMcFdLeUotT2p6eHY1VGJRTjh4MUpwV3BSRVctREVxZ3ZFdkRLYVRQa0FxMU4tbkl1eUQ4LXZ5cFdORXFqWGJEbXV2c3RVeE93OFhJMEVSeUp6WElpRmV6SUVUS3NJTVl2TjJYVkdKdGlrOV9lX0pjTnlaUnB3YTdhZkNka1E?oc=5) |
+| To Vance, Charlie Kirk was not just a political ally. He was a friend. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNUzJ1VmRDanE5SDA2blExX2JCOGxLd2JrMjI0alB5ZTZpSDdfNWhsSTJ4NENsa0JBeTc4aExXeF8wMThZYjhPV25xQjdDX3kyT21xRk4yX2VHdnVKWXZFRm9TcFdMNGwyUDBzd3VNUENGbFJMSEs5ZDRjSVozd2R0TXdR?oc=5) |
 | Bolsonaro sentenced to 27 years in prison for plotting Brazil coup - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBPRnFtMEYzU1BwSTFfaW1JdGhUYVdNVmNhemdzY2hmYXZLNTd5OWpTS1NkMDhteFotSGVMZWNqZHYzMy1jYXZmcHdaQl9VMjFDa0tWd2dQOVQ1d9IBX0FVX3lxTE1Ud3FkMDVfajFEbm5MRlJ5eU10Uk9xV253M3FaUEwzdWJfSHd3UG83dERlSmtubXA4OWNfRHFFZjExYlZ3VjlDUG5jS2J5Mm0zMkRTYm5WYjdPVHhXOFRF?oc=5) |
 | Evergreen High School shooter identified by authorities - Colorado Public Radio | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE80eWEwMU5Sd2h0WFVScndBOFJld0Nsbkk0UmljdXhGczV2bnFGekRoZ2RDUkF6RFhvenNPb2FKR1BaUUR2M2NMbzRDdFpCS0RBY2hlNmVvalR1SjJudjBwVmkyT01Kd0ZldnMtWXhBWG54d3JzR3hIaEZxRzk?oc=5) |
 | Trump Live Updates: Latest News on 9/11 Memorials, Lisa Cook and More - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE5GLXdYVWRjU2F4UDFLR1JRX1FIN2V5cUlENnpnbU1GU2tnb1JtdERYNl9qV09TZTlNR3pkeHVGNmRiUl9xel9UQVBDUjl1Yy1BUGZfekZvbFF6UEdYMk1UcmRHcw?oc=5) |
 | Trump tries to distance U.S. from Israel’s strike on Qatar amid fury from Arab leaders - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOc2pRcTlwa0tZOUY4anFxaFpiMHg4Z2JRVG5xelJwWUt4YU5KNHduZnQxSEVYNVhzVVQzTW9OdTRwZWtiS2s1Rnd5N1dQUHk4TEJDTmptRUM1b2FWZWxFQ3piallBWVBUV21jZk1pWmVUX1A2VUkya0hscDZYRnEycDV2VzhZb2NzVVRGLXNSY25yZzFMcUo2SEd1SDNGeWhEVS1nZTBSU0JGcXlOWG9KUGItejNBLVF5dFRzYmVaVdIBxAFBVV95cUxPUFRBOHJfNVBpaV9RU0xxYUZRUGhDWjdOV3FFb2t2bXVpNERYemFQbXpjMWtOS3NjZy1MZzIta3dRVXMycXFYc2QzUjh5T3Rab1p5X0kyc0FGWFl2eTc5azRYMTFwWUo1dlNYNmExV0V2QUxVX1JFUGxmVE1xek5pYkpNZFJYOWxwSmRTSVNfNnp0TU5Jd0lfOFJkSUlVT29SRVlRczZtWTh3X0NuNkZBbzlTVGZadS02aDlCQTVhZjN4bW5x?oc=5) |
 | Hyundai CEO says immigration raid will delay Georgia battery plant's construction - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOWlNTaEpqaDVhT3FZVDRiUWVwR3c4cnllMURONGdNcHFLM2ZISFpiaXctbTM4UlpWd0RvbWtldFNMX3VxSmhFcVpVRFY0VGU0Z3ZsMzF5cHZQLTdmaVl1cGdZNzNudG5uNU1TbzhkX2U0empLRWkyMmE3b3NrdHA3bGtiZG1MRER1bDZsVU1WZl_SAZYBQVVfeXFMTkR2UXYxUWRST0x4V3l2UzhoYk5WclU1MjBaNFhMa3NJbWRUQWI2X3FLRXR5YlBLNUNEUlZYUUtaZ0JfdkszWUFibEJBRHQ3d2U0UXBlbm1tZnBDLURTbUx0UURteGZRQVE3cTY4eTRKTXlDUVRMb0JBYlh3RVNIT2JVcWEyN3Q3eWR3LXVBODZCc2NhN1VR?oc=5) |
 | Jury trial of Ryan Routh, man accused of trying to kill Trump, begins in Florida - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOa1Zod3dHMWRDTG14em1xYy05cjlOZ2lRUXltRS1kT1hnVEZNcWNZUy1uem9UWDJKbnF1WDBETW9LWXNmdl9haFp4N01HaHUzR1Q5RnZ5bENtZEZWOUZ0T1BabXNqbFdrRXl3SGkxWm9wS09HcVpGcXJKRmRfQXJ1Y2pSQldFZmpKeURpM1pqd3FNQkZwYmc?oc=5) |
-| Nadine Menendez, wife of ex-senator, sentenced to 4½ years - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNTGo2ZFhOYjZya2JyM1JQTlF3RXJJREM1LTRmNWxFS1VuejQyQV8tbk5TR2RBeWxRcUJxaGhUR1prVHRNX3d2MzN1dEJIcGJ1U3JzMkFGdzZrbTcwVGFXMzl4Yk1QcTdaNnBZWklGT2luazc0a3pLQm1sbFFSM1A4ak1NYXptYXB4eXBheXhDZjFuNG14a0k3S1hUd3htOExGbFVaNjA5cWF1WEFC?oc=5) |
+| 'Chilling reminder': Multiple historically Black universities under lockdown after receiving threats - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPTUNzRVBfSW5Ea2pacWtSQ1o4cmV2NmVTNTU3V3dZbWM4N0FfWmtjN2xaeGt2ZnZRYUhqMjBQbDhmOUxlbGV1WjNnWTJhWFQyZU9jY1RhNjZhUlVHX18tdVI1dFZPbUtsTzRGQ2t1UUpJVTllamV1b2JHSk5oTjVUcUNzR2NvdktuWE5DZUV6ZVVMbGNFWHluTmxSMzBPb0Z6eDB6cWtfZw?oc=5) |
+| Nadine Menendez: Ex-senator's wife sentenced to 4.5 years in prison - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1VT0p1MlRQRmRPQ3lReS1YLW9wYzBJR2JGLXV2ODNYamVaZl9yOTJMeE5BU0g3OS14d2RqTEl1eWhDWk55ZTBTTk5jWWt0clJXM1p4cjNiak9NZ9IBX0FVX3lxTE9YVVpJT29hbDJvaXltRUVWNGJCa2kxZ2htS3ZzaDdEZ1lqTlljNVpheVQ5ZVVKODlLUlo2SnY5ZHJQbDd0MVU3QWdBZVM1SldpS05KVU5CcVlNQVVqX0pF?oc=5) |
 | President Trump, First Lady Mark 9/11 with Solemn Vow to Never Forget - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPRXVGY1o1bDFleGIxelRhOFlUQmJ2MW1CZXNqNnd2RmJnalV5S0U4dW92eFdNeFdMZXJxWFJLYTBIV1lmblI4Z1Rrb1lXMTU1X2x2UG5NTXVfQmVLTzBIOTlTNXE5QUZycFlaOVdFS19zSVowamZLdVNzLV8wb2huejJOZGtRNXVucDVBRU11eWNUMXlXTWp6WXM5Q21YREo2UF82VEJHUG0yNkV6MjEzSll1RQ?oc=5) |
-| Potential threats trigger lockdowns at several HBCUs across the South - CNN | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE5Hb0JNLUl2LW4tcWRGaGFoUmtxQ0JzS2RmVTFMN2FOemg4cU5EUzBUQVpzVWhqNzF0T0tfNHZjUkJWaDB3MGFwYTkzR1I1cVhyTFFfNTVIcEJkTHNfYTBfOXo3Q0tyWUYzVmxVZjlkRXhVbU0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
