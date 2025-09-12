@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 17:17:32（北京时间）**
+🕒 更新时间：**2025年09月12日 17:25:05（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Student Who Shot 2 Others at Colorado School Was ‘Radicalized,’ Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOa1hISkpiRWZZR2tVSzVSNHFaeXBxeG5UeXVUeWhMc09LZGlwZFExYzNTVktiN0cxMjRHYWVyYWdpTjh6TkxqSy1QaE1tTWZ3QU5mQzdXQXk2NlQ2SkdEejQ5a3g4WnQwRVdjLTYtTUdsVmVMajRFT1RRV3VoUFVtaGZXaE9xSHhzTlE?oc=5) |
 | After Russian drones were downed in Poland, what does triggering NATO Article 4 mean? - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBXbDh3b1FHaDR0Y09qOWVEZ0tjRkpwZk1tYXgzTlZRTy04a2VUaWtvODk5UTRENDhTNU9CWTFPbmtwc0xLcGVlN0VzWGpzdGZCbEFnTFVmOGV2bXotbU9yWFBlYUF5RC16MUR0cGpYTWxKXzJOMVppMDNvOXg0X0E?oc=5) |
 | Midshipman at US Naval Academy was shot by security forces during lockdown - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPZ2h6aVhKdFRINHBHQ2JmTWFkblFua2FPa3JtcGRyMTVfcXBKRE9WSUVRV1lSMFQ0NW1aTVJNdTk1NW01OW42TkwwOGgyeHpwNHdWWjZSUjkzWTJxVEpNbVF2N2s2UTNFZjBTWWdmeXdJU01yMGZPaXhUTGZWcXJsck5wVGdPbXlPMXh4bDRVOC16TnkxUUNEaVJzNDBDeVXSAaQBQVVfeXFMUEVwTUpXVzMwZk5yNGtXRU9STWJLYkxNQXlBV0dpU2JMOG9jT1pPRjRJZmZhNlFCdC1RLTdxTFFNVThSWGczWEZITFdfcGN0Y3FEQU1fcmN4WTIzbmNrSFNuOWRuSEFqdmpMRlI5ZlhfMXcxODVXaWpjMml0U3FBYmhmRXE3VUczR0dad3pHcEx3cm5PN3J6UlFRMUZOTmVvNUxTY0w?oc=5) |
-| A look at recent acts of political violence in the U.S. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOWWVodGY3X05yQ25iTndHVU5URWFCbTVNaGxLVmpfbDZrVW02TzdmWTExcFBVZG5SMmlrN2FjRlc3cENwUHNvYW1nTXUwY2JaRjAyTENEUnJDMTdHOXpSSFNmaUNhamJNb1BGWVhodXJ5WFdPbkR4ZWZfUVgxSzhBV0ZiTzRIcUM4MXZPQmJYeXMyYXBaVHFlckpHMlUtZHRl?oc=5) |
 | Ryan Routh begins self-defense in attempted Trump assassination trial - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1SUG55a2pCeGtTVHR0U2E4eC0tTnlfQ3BaWVU1NlhMSGxjZzlrb3g2blZxVDlUYUdEQjVoRDhlY2I4NVFfR21uM1ZJdFl6aDdueDdCNWFWY0NlUdIBX0FVX3lxTE9US1poVFVSS19LSzRJOHBJNkFMUnQzTktUSm5CNFpHOGFGT0FQcm82c3daNjRnXzVWT3c2UkdqbThfQ2QzU3did0RaSnlSOWNjN2V4LWJNVHlNMFNoYWZJ?oc=5) |
-| Josh Kraft bows out of Boston race for mayor - WBUR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQbXRtWGVYTF9aTjNPdnFFOUljMmtVNU1odjllZGNNUTdkMl9Qb0ZqbkNuZnlSNWJUa1IzTlFpRVM2ZzhueURpc2xvWjZwNWYxZnlfQ2JHaldscWYyM3V0dXJKQnNsMDF4S1J5RDQtTW1aWThnV3lhYWQzeWJyMUtfeEUwUEJPU0xI?oc=5) |
 | ICE Agents Can’t Wear Masks Under Bill Passed in California - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQeFVQWmJhNGVVa3NNR05oWlVCQkRpN25tZFl2SXBTMm55VXF5dEFRMnVibEVwRGFrMHF4am03Q2NqMjBxTFBRM1JTc2Fzenl6dDk5MXlqNmRjZnhyWi1GME5yTlJKYzR0WkMwbVZrOFdlMWZJVmZwY1F1X3o3SUVVMjJjQks0dw?oc=5) |
+| Josh Kraft bows out of Boston race for mayor - WBUR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQbXRtWGVYTF9aTjNPdnFFOUljMmtVNU1odjllZGNNUTdkMl9Qb0ZqbkNuZnlSNWJUa1IzTlFpRVM2ZzhueURpc2xvWjZwNWYxZnlfQ2JHaldscWYyM3V0dXJKQnNsMDF4S1J5RDQtTW1aWThnV3lhYWQzeWJyMUtfeEUwUEJPU0xI?oc=5) |
+| Political violence in US mirrors 1960s turmoil, historian warns after Charlie Kirk shooting - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNYW9iM29SUkJrRmxnVG9wQ2lzU2d2ai1sZzZMZG1RaEx1VWdkWXVJNmtpRlBuVG5tdEI1QWswUW1JQWJyVE5feUJOa0RYMDdqSy00MGtlLXhrVmtmdGRpU2xEWmd5SG1kLWx3MUVYSEFHSzdlSEJYZENCaFBqRXdWT1Rnak9HQjZqZE5oeTloTW9ZZmpmcHMwTE14UXZYUUlDTXR0bkJCWdIBrAFBVV95cUxNS2JQbk4xeWx0bGtpemM2Z2dPZjFvTE5nQ0c1RllWRnhLdFp5SXhEUXJpNk9YNlpJcFhzYW04SjVNWmtvOU1INm9WXzltTFFFcVVLRE9mX3pLMkd0S1I1T2l1Z2lYQy1NT1pacjQtNG5BeHBmNVdFNTU2S3BiWUlrZTZjQ2ZaYjRuV0JvUFVVeEgzODVzWFVacEtpQjdGb1N4TTJfTmhMbkU0SkY0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
