@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 18:48:27（北京时间）**
+🕒 更新时间：**2025年09月12日 18:56:14（北京时间）**
 
 ---
 
@@ -9,13 +9,13 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | What CCTV and drone footage tell us about the hunt for Kirk's killer | [阅读全文](https://www.bbc.com/news/videos/ce84y9ep1z8o?at_medium=RSS&at_campaign=rss) |
-| Labour MPs despondent, says minister after Mandelson and Rayner chaos | [阅读全文](https://www.bbc.com/news/articles/cx238pwwqg6o?at_medium=RSS&at_campaign=rss) |
+| Labour MPs' growing fury over Mandelson appointment | [阅读全文](https://www.bbc.com/news/articles/cx238pwwqg6o?at_medium=RSS&at_campaign=rss) |
 | Prince Harry makes surprise Ukraine visit to support war wounded | [阅读全文](https://www.bbc.com/news/articles/c3dr859vxxjo?at_medium=RSS&at_campaign=rss) |
 | Stephen Lawrence's mum appeals to witnesses as review into murder investigation begins | [阅读全文](https://www.bbc.com/news/articles/cgrqnp09zl5o?at_medium=RSS&at_campaign=rss) |
 | 'Who's that?!' Couple track down their wedding crasher, four years later | [阅读全文](https://www.bbc.com/news/articles/c7v1d3r6y8mo?at_medium=RSS&at_campaign=rss) |
 | Ros Atkins on... Israel's war in Gaza and proportionality | [阅读全文](https://www.bbc.com/news/articles/cr5r76e127do?at_medium=RSS&at_campaign=rss) |
+| Man jailed over shooting of 9-year-old girl | [阅读全文](https://www.bbc.com/news/articles/cgknmmnje17o?at_medium=RSS&at_campaign=rss) |
 | North Korea executing more people for watching foreign films and TV, UN finds | [阅读全文](https://www.bbc.com/news/articles/ckgqdz17ye3o?at_medium=RSS&at_campaign=rss) |
-| What the NHS can learn from the European country that helped more people survive cancer | [阅读全文](https://www.bbc.com/news/articles/c701kw519lpo?at_medium=RSS&at_campaign=rss) |
 | The secrets to tackling fussy eating habits | [阅读全文](https://www.bbc.com/news/articles/c3e712j3gq5o?at_medium=RSS&at_campaign=rss) |
 | Water firm bans tankers from transporting water for billionaire's lake | [阅读全文](https://www.bbc.com/news/articles/cq5jg9vy1n0o?at_medium=RSS&at_campaign=rss) |
 
@@ -31,8 +31,8 @@
 | 1 injured while U.S. Naval Academy building was cleared after reported threat - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPSnVsQVRYUmVtMHk1enRYVFp4TlBGUGgxX2VFMFJFT2w3U1RSbU8td3p4djl3WU4zaFd0MG9fbHdqV2pGbXpybmJyTzNGWUR3ZTdTSk8zRzY5TXlqWl9QT0FmTDlPTDNFS2xVXzZ6UjRpX1RwNl82VHotcFd1Z044Y0N0RzVXZTBCdWc?oc=5) |
 | Josh Kraft bows out of Boston race for mayor - WBUR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQbXRtWGVYTF9aTjNPdnFFOUljMmtVNU1odjllZGNNUTdkMl9Qb0ZqbkNuZnlSNWJUa1IzTlFpRVM2ZzhueURpc2xvWjZwNWYxZnlfQ2JHaldscWYyM3V0dXJKQnNsMDF4S1J5RDQtTW1aWThnV3lhYWQzeWJyMUtfeEUwUEJPU0xI?oc=5) |
 | Ryan Routh begins self-defense in attempted Trump assassination trial - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1SUG55a2pCeGtTVHR0U2E4eC0tTnlfQ3BaWVU1NlhMSGxjZzlrb3g2blZxVDlUYUdEQjVoRDhlY2I4NVFfR21uM1ZJdFl6aDdueDdCNWFWY0NlUdIBX0FVX3lxTE9US1poVFVSS19LSzRJOHBJNkFMUnQzTktUSm5CNFpHOGFGT0FQcm82c3daNjRnXzVWT3c2UkdqbThfQ2QzU3did0RaSnlSOWNjN2V4LWJNVHlNMFNoYWZJ?oc=5) |
+| ICE Agents Can’t Wear Masks Under Bill Passed in California - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQeFVQWmJhNGVVa3NNR05oWlVCQkRpN25tZFl2SXBTMm55VXF5dEFRMnVibEVwRGFrMHF4am03Q2NqMjBxTFBRM1JTc2Fzenl6dDk5MXlqNmRjZnhyWi1GME5yTlJKYzR0WkMwbVZrOFdlMWZJVmZwY1F1X3o3SUVVMjJjQks0dw?oc=5) |
 | Evergreen High School shooter posted photo of handgun to social media shortly before shooting - KUSA.com | [阅读全文](https://news.google.com/rss/articles/CBMi6gFBVV95cUxPVl81OVdNTHJQUUNRUWdKdUJQSzdlUDZWNVI4T1c0dUc0Mlo0WUZJT2FMZU9zZjhMOXhQcVVXMS15cFBlVVF4WnJXNW9EYTVLRnBLZTdCU0ZsZ1ZDN1hFZFZFbmVwcVU4bjFSNXNaanNYdGRBeEVwNzVKeGk5NGhIYkJvQ3R6X0pGMzhxNl9zZ1pldDc0V2ZLVHE4ZUxYMTlmWVlaQnI0TUV4d1VVUWtoMkRkakNqRGROMTZuZlFsSUg3cVAydVExbXIxQVMxcnFfVmhUSmxveHEyMVBJSEl1RGhlbU9RNHJXcUE?oc=5) |
-| California lawmakers pass bill to ban ICE agents from wearing masks - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPSVI1dGt1clRHeS1yOXJ2aDZkNEpMVHhzZFE0Qk1fenZuTUVFN0hhdTg2MmQtcmlIdm1pYW1MVDJ1Mmk1NTBIWnBPd0ptU1E2dDAxOWMzNUl1Nms0R3NRakxaVUEtLXFXUzBJRG5oT3NQZFY1Nk5DbnBBU0FpZHZ4T0QtMHl0OERtVFkxUDlTXzNfalczWXBYa1drSkx5WmhIdk1hdXhXSjRSUUFaRmc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
