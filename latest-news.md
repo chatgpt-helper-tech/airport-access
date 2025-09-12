@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 15:09:29（北京时间）**
+🕒 更新时间：**2025年09月12日 15:16:46（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| New clues in hunt for Charlie Kirk's killer | [阅读全文](https://www.bbc.com/news/videos/ce84y9ep1z8o?at_medium=RSS&at_campaign=rss) |
+| What new footage tells us about Kirk shooting suspect | [阅读全文](https://www.bbc.com/news/videos/ce84y9ep1z8o?at_medium=RSS&at_campaign=rss) |
 | Starmer facing fresh questions after Mandelson sacking | [阅读全文](https://www.bbc.com/news/articles/cy0v81zeggko?at_medium=RSS&at_campaign=rss) |
 | What the NHS can learn from the European country that boosted cancer survival rates | [阅读全文](https://www.bbc.com/news/articles/c701kw519lpo?at_medium=RSS&at_campaign=rss) |
 | The wedding crasher mystery solved after four years | [阅读全文](https://www.bbc.com/news/articles/c7v1d3r6y8mo?at_medium=RSS&at_campaign=rss) |
