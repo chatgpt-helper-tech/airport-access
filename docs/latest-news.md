@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 20:57:49（北京时间）**
+🕒 更新时间：**2025年09月12日 21:00:35（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | Oxford Union president-elect condemned for Charlie Kirk comments | [阅读全文](https://www.bbc.com/news/articles/c04qz5lk6ggo?at_medium=RSS&at_campaign=rss) |
 | Ros Atkins on... Israel's war in Gaza and proportionality | [阅读全文](https://www.bbc.com/news/articles/cr5r76e127do?at_medium=RSS&at_campaign=rss) |
 | Dutch broadcaster says it will join Eurovision boycott over Israel | [阅读全文](https://www.bbc.com/news/articles/c5yg0ly2nlko?at_medium=RSS&at_campaign=rss) |
-| Man jailed for gangland shooting that left girl, 9, with bullet in brain | [阅读全文](https://www.bbc.com/news/articles/cgknmmnje17o?at_medium=RSS&at_campaign=rss) |
+| Jay Wynne, former BBC weather presenter, dies aged 56 | [阅读全文](https://www.bbc.com/news/articles/ceq2jrwzv9wo?at_medium=RSS&at_campaign=rss) |
 | North Korea executing more people for watching foreign films and TV, UN finds | [阅读全文](https://www.bbc.com/news/articles/ckgqdz17ye3o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
