@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 09:56:27（北京时间）**
+🕒 更新时间：**2025年09月12日 10:00:19（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | 'Chilling reminder': Multiple historically Black universities under lockdown after receiving threats - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPTUNzRVBfSW5Ea2pacWtSQ1o4cmV2NmVTNTU3V3dZbWM4N0FfWmtjN2xaeGt2ZnZRYUhqMjBQbDhmOUxlbGV1WjNnWTJhWFQyZU9jY1RhNjZhUlVHX18tdVI1dFZPbUtsTzRGQ2t1UUpJVTllamV1b2JHSk5oTjVUcUNzR2NvdktuWE5DZUV6ZVVMbGNFWHluTmxSMzBPb0Z6eDB6cWtfZ9IBrAFBVV95cUxPcUFnVWlEdXZZaFhLQzJ5QUFjWkhjajY5VWR6MldEbjYxc1lvN05Xd1JQR1RqdWhIeE5OOFJHMUhKNThYNmwtQ2VEell1eFZsSkh5NVUzUGdzMkxTeXlKMTBGLWMxNUU1dHg4RnBCSzdEa3lxWWlaN1E1NWpORFlIMUdmNG4xVVFyQklheF9tTlVNa2xSbW81a3VpWEhkZFRuRmxrcTNiS0hYZ2Zf?oc=5) |
 | Jury trial of Ryan Routh, man accused of trying to kill Trump, begins in Florida - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOa1Zod3dHMWRDTG14em1xYy05cjlOZ2lRUXltRS1kT1hnVEZNcWNZUy1uem9UWDJKbnF1WDBETW9LWXNmdl9haFp4N01HaHUzR1Q5RnZ5bENtZEZWOUZ0T1BabXNqbFdrRXl3SGkxWm9wS09HcVpGcXJKRmRfQXJ1Y2pSQldFZmpKeURpM1pqd3FNQkZwYmc?oc=5) |
 | Hyundai says opening of raided plant to be delayed - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5Ca0IyeVpRYWZPTVJJM3ZRZFhNNG1KN0VrazNjSlF1TW9jb2JEV09RbjZIUmlJb3NJeWQxUHV3TTNiX282MmcwUU1XMEFqRl9ocmJEUXNXdDNRUdIBX0FVX3lxTE9SZmUxb1FtUXA3dG9aNVktME0zRGMwM3NoWHFrSm1OcHdUNDFPOHkwcG5McC01NHJXRmp6alZuY0REcU56MENfa29ldGJSN0VWQ1dBVHk1OHRzbDF6Z1pv?oc=5) |
-| U.S. Naval Academy on lockdown following reports of threats, officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPSnVsQVRYUmVtMHk1enRYVFp4TlBGUGgxX2VFMFJFT2w3U1RSbU8td3p4djl3WU4zaFd0MG9fbHdqV2pGbXpybmJyTzNGWUR3ZTdTSk8zRzY5TXlqWl9QT0FmTDlPTDNFS2xVXzZ6UjRpX1RwNl82VHotcFd1Z044Y0N0RzVXZTBCdWc?oc=5) |
+| U.S. Naval Academy Placed Under Lockdown Amid Threats, Authorities Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE9nNzRNRWtzdThfaFJvMHk1NnRNRjQwTWJRd0diS0RVd2R1c2EzaGtDSTl4T25BWG0tRktFUjc2Q3RrTGxGbGl5c09hSFhza3VQYnppTXNwTDNZMFkwTVl2VGJXc1lySjdRRE1jTlNHbnRXQWtC?oc=5) |
 | Josh Kraft ends campaign for Boston mayor: ﻿Exclusive NewsCenter 5 interview - WCVB | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1Wc2xlamhGRjd6SUlBMFEtbndJUXFUSENOQ3c3MC1Da0RtZmZxQ3FISmdrT0ozcmV5NUdtOHQ0TlpYbGFEanQ3el9fSFpXMUlWOWZOZVc3S2c1RE1QdDdvdWlqX29YdUR3T3p6MUZnMXp5bHh5RmVsLXdHVDlZZzg?oc=5) |
 
 ---
