@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 01:08:23（北京时间）**
+🕒 更新时间：**2025年09月13日 01:16:38（北京时间）**
 
 ---
 
@@ -9,9 +9,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | An unlikely end to a 48-hour hunt for Kirk murder suspect | [阅读全文](https://www.bbc.com/news/articles/c784end1wxvo?at_medium=RSS&at_campaign=rss) |
+| Nine Met Police officers suspended after BBC investigation | [阅读全文](https://www.bbc.com/news/articles/cn839398xzpo?at_medium=RSS&at_campaign=rss) |
 | Labour MP says PM not up to the job, as Mandelson backlash grows | [阅读全文](https://www.bbc.com/news/articles/cx238pwwqg6o?at_medium=RSS&at_campaign=rss) |
 | As Russian army inches closer, Ukrainians must decide to stay or go | [阅读全文](https://www.bbc.com/news/articles/cy50kk14y00o?at_medium=RSS&at_campaign=rss) |
-| Ukraine strikes key Russian oil terminal in massive drone attack | [阅读全文](https://www.bbc.com/news/articles/cderllgw84ro?at_medium=RSS&at_campaign=rss) |
 | Prince Harry told me I was being hacked, says Stephen Lawrence's mum | [阅读全文](https://www.bbc.com/news/articles/c4g70271ndlo?at_medium=RSS&at_campaign=rss) |
 | Court orders 'tribe' to be evicted from Scottish woodland | [阅读全文](https://www.bbc.com/news/articles/c62zxjy0j91o?at_medium=RSS&at_campaign=rss) |
 | Oxford Union president-elect condemned for Charlie Kirk comments | [阅读全文](https://www.bbc.com/news/articles/c04qz5lk6ggo?at_medium=RSS&at_campaign=rss) |
