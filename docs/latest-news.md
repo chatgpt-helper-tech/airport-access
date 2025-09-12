@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 13:48:05（北京时间）**
+🕒 更新时间：**2025年09月12日 13:56:27（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | ‘Every time they’re making progress, it seems like he bombs someone’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQaG1vYWpMUHBkQXVoU1pXSS0zVFQ1OG5DZUc0enp0SFloc0dPRXVYdzhtVmFWTE10UXBHUE1wemMyZjNCWHpibkZ2LXNNVlpjRlREUm9tVGl1c3VtLUc4UWZ0U0F4cGFub1JMQlhaVC1ual9CTXdwTlhmeERsQ05tX1ZDejBVUXc?oc=5) |
 | 2 Massachusetts teachers placed on leave over Charlie Kirk social media posts, superintendents say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNc3o0NlBVTHlvYmw1b052bjBsQ3l4MW1HTGF6bnctd0Z3RmdINlFzOXVWbEtlNjRYQm0yMmNvUzluUlpzWF91RWxXZFFPa3pVWEFFTjQ4dC1CcXBoV3cycktzUjFRYVR6RlhzUjBkUFpueVp5elRqZUp2dXhzOUFKdnV2eng?oc=5) |
 | Student Who Shot 2 Others at Colorado School Was ‘Radicalized,’ Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOa1hISkpiRWZZR2tVSzVSNHFaeXBxeG5UeXVUeWhMc09LZGlwZFExYzNTVktiN0cxMjRHYWVyYWdpTjh6TkxqSy1QaE1tTWZ3QU5mQzdXQXk2NlQ2SkdEejQ5a3g4WnQwRVdjLTYtTUdsVmVMajRFT1RRV3VoUFVtaGZXaE9xSHhzTlE?oc=5) |
-| Midshipman at US Naval Academy was shot by security forces during lockdown - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPZ2h6aVhKdFRINHBHQ2JmTWFkblFua2FPa3JtcGRyMTVfcXBKRE9WSUVRV1lSMFQ0NW1aTVJNdTk1NW01OW42TkwwOGgyeHpwNHdWWjZSUjkzWTJxVEpNbVF2N2s2UTNFZjBTWWdmeXdJU01yMGZPaXhUTGZWcXJsck5wVGdPbXlPMXh4bDRVOC16TnkxUUNEaVJzNDBDeVXSAaQBQVVfeXFMUEVwTUpXVzMwZk5yNGtXRU9STWJLYkxNQXlBV0dpU2JMOG9jT1pPRjRJZmZhNlFCdC1RLTdxTFFNVThSWGczWEZITFdfcGN0Y3FEQU1fcmN4WTIzbmNrSFNuOWRuSEFqdmpMRlI5ZlhfMXcxODVXaWpjMml0U3FBYmhmRXE3VUczR0dad3pHcEx3cm5PN3J6UlFRMUZOTmVvNUxTY0w?oc=5) |
+| UPDATED: 1 Injured Following Lockdown at U.S. Naval Academy - USNI News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQU2JmTmFZZnRSWUZ4dFRWek93Sm1TYlNwQUdIT0lXdV9IVHh6RVhvZkdRWmVUVHBLQ0FVbmktZjNybkdVSm5COTZNWEQ1UG9lZTR2R1Vqa2RHcngxRDVkdUNMOGxIX2MyY0ZoZFBRWjk0SF9tVUpXRkI1UTdTRXM0ZnB3?oc=5) |
 | Ryan Routh begins self-defense in attempted Trump assassination trial - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1SUG55a2pCeGtTVHR0U2E4eC0tTnlfQ3BaWVU1NlhMSGxjZzlrb3g2blZxVDlUYUdEQjVoRDhlY2I4NVFfR21uM1ZJdFl6aDdueDdCNWFWY0NlUdIBX0FVX3lxTE9US1poVFVSS19LSzRJOHBJNkFMUnQzTktUSm5CNFpHOGFGT0FQcm82c3daNjRnXzVWT3c2UkdqbThfQ2QzU3did0RaSnlSOWNjN2V4LWJNVHlNMFNoYWZJ?oc=5) |
 | ICE Agents Can’t Wear Masks Under Bill Passed in California - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQeFVQWmJhNGVVa3NNR05oWlVCQkRpN25tZFl2SXBTMm55VXF5dEFRMnVibEVwRGFrMHF4am03Q2NqMjBxTFBRM1JTc2Fzenl6dDk5MXlqNmRjZnhyWi1GME5yTlJKYzR0WkMwbVZrOFdlMWZJVmZwY1F1X3o3SUVVMjJjQks0dw?oc=5) |
 | Senate GOP invokes "nuclear option" to confirm batches of Trump nominees - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQcTZvSkptdE5hY0cyOVVOU3V1c0hGTjQ5TmwtaUhiVUc4T1htcXdrU2tFcFNHU0RuSl9sTnZaaXcwY3A5bFpjd2tpSkloQ1NrdnhZOGRGdXUtQnpuamIzYUI1XzJkWXdrMWFvQkdSTDBNN0FIbXpjZTlHbHlBVEVGdjVJYjlLM0gx?oc=5) |
