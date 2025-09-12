@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 15:57:51（北京时间）**
+🕒 更新时间：**2025年09月12日 16:00:02（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | What new footage tells us about Kirk shooting suspect | [阅读全文](https://www.bbc.com/news/videos/ce84y9ep1z8o?at_medium=RSS&at_campaign=rss) |
-| Labour MPs despondent, says minister, as Mandelson follows Rayner out the door | [阅读全文](https://www.bbc.com/news/articles/cx238pwwqg6o?at_medium=RSS&at_campaign=rss) |
+| Labour MPs despondent, says minister after Mandelson and Rayner chaos | [阅读全文](https://www.bbc.com/news/articles/cx238pwwqg6o?at_medium=RSS&at_campaign=rss) |
 | Prince Harry vows to help war injured during surprise visit to Ukraine | [阅读全文](https://www.bbc.com/news/articles/c3dr859vxxjo?at_medium=RSS&at_campaign=rss) |
 | 'Please come forward,' Stephen Lawrence's mum says to witnesses as review begins | [阅读全文](https://www.bbc.com/news/articles/cgrqnp09zl5o?at_medium=RSS&at_campaign=rss) |
 | 'We tracked down our mystery wedding crasher four years later' | [阅读全文](https://www.bbc.com/news/articles/c7v1d3r6y8mo?at_medium=RSS&at_campaign=rss) |
