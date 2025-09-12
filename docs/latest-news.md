@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 20:41:13（北京时间）**
+🕒 更新时间：**2025年09月12日 20:50:00（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | 'Who's that?!' Couple track down their wedding crasher, four years later | [阅读全文](https://www.bbc.com/news/articles/c7v1d3r6y8mo?at_medium=RSS&at_campaign=rss) |
 | Oxford Union president-elect condemned for Charlie Kirk comments | [阅读全文](https://www.bbc.com/news/articles/c04qz5lk6ggo?at_medium=RSS&at_campaign=rss) |
 | Ros Atkins on... Israel's war in Gaza and proportionality | [阅读全文](https://www.bbc.com/news/articles/cr5r76e127do?at_medium=RSS&at_campaign=rss) |
+| Dutch broadcaster says it will join Eurovision boycott if Israel takes part | [阅读全文](https://www.bbc.com/news/articles/c5yg0ly2nlko?at_medium=RSS&at_campaign=rss) |
 | Man jailed for gangland shooting that left girl, 9, with bullet in brain | [阅读全文](https://www.bbc.com/news/articles/cgknmmnje17o?at_medium=RSS&at_campaign=rss) |
 | North Korea executing more people for watching foreign films and TV, UN finds | [阅读全文](https://www.bbc.com/news/articles/ckgqdz17ye3o?at_medium=RSS&at_campaign=rss) |
-| The secrets to tackling fussy eating habits | [阅读全文](https://www.bbc.com/news/articles/c3e712j3gq5o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | Georgia ICE Raid Netted Workers With Short-Term Business Visas - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPVVp2MkJPUUpJMms2ek5oR09IUkUzUkMwb3VERlJNX2ZybGlQMFQ2YmE4YTQxTHlJeWt5NURuenJHT1NWV2FnMDEwS0NUNlZrQ3VWQmplZExXUkFQeThyUzBDVzM1MDhBN3BPNDRUSzRVZXluX2REV09VQnRHcUs0ODdLVkotZDhSUkE?oc=5) |
 | Josh Kraft bows out of Boston race for mayor - WBUR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQbXRtWGVYTF9aTjNPdnFFOUljMmtVNU1odjllZGNNUTdkMl9Qb0ZqbkNuZnlSNWJUa1IzTlFpRVM2ZzhueURpc2xvWjZwNWYxZnlfQ2JHaldscWYyM3V0dXJKQnNsMDF4S1J5RDQtTW1aWThnV3lhYWQzeWJyMUtfeEUwUEJPU0xI?oc=5) |
 | Midshipman at US Naval Academy was shot by security forces during lockdown - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPZ2h6aVhKdFRINHBHQ2JmTWFkblFua2FPa3JtcGRyMTVfcXBKRE9WSUVRV1lSMFQ0NW1aTVJNdTk1NW01OW42TkwwOGgyeHpwNHdWWjZSUjkzWTJxVEpNbVF2N2s2UTNFZjBTWWdmeXdJU01yMGZPaXhUTGZWcXJsck5wVGdPbXlPMXh4bDRVOC16TnkxUUNEaVJzNDBDeVXSAaQBQVVfeXFMUEVwTUpXVzMwZk5yNGtXRU9STWJLYkxNQXlBV0dpU2JMOG9jT1pPRjRJZmZhNlFCdC1RLTdxTFFNVThSWGczWEZITFdfcGN0Y3FEQU1fcmN4WTIzbmNrSFNuOWRuSEFqdmpMRlI5ZlhfMXcxODVXaWpjMml0U3FBYmhmRXE3VUczR0dad3pHcEx3cm5PN3J6UlFRMUZOTmVvNUxTY0w?oc=5) |
+| Patel and F.B.I. Face Scrutiny as Kirk’s Killer Remains at Large - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQSGxMTDc4S29lUmZPNzhtTnY1YnljQmxwX3VYN095a0g4MmVfSWlsTEtkNkdZV0NGRFRHaHQtalVLc0RfUC1UekM2NWFiaU1CZVVlRHVGeHRFVnVXdVFhb2hvOHFiWTJETUZrWUN1MTE1eUpPSnMxcXk3R0tabjNLOQ?oc=5) |
 | Ryan Routh begins self-defense in attempted Trump assassination trial - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1SUG55a2pCeGtTVHR0U2E4eC0tTnlfQ3BaWVU1NlhMSGxjZzlrb3g2blZxVDlUYUdEQjVoRDhlY2I4NVFfR21uM1ZJdFl6aDdueDdCNWFWY0NlUdIBX0FVX3lxTE9US1poVFVSS19LSzRJOHBJNkFMUnQzTktUSm5CNFpHOGFGT0FQcm82c3daNjRnXzVWT3c2UkdqbThfQ2QzU3did0RaSnlSOWNjN2V4LWJNVHlNMFNoYWZJ?oc=5) |
-| Brazil's Bolsonaro gets 27-year jail sentence for coup plot - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNcjU5cFFFU0QwWlBWSENibWZGNzlRZVVNc2JqR2VOOHNCRGZ5NmZBNlVqSmt2MzFsZUdqbmhjZDlUOUhwNTdScVpNRU9YQjIzZmNxbE91RG1wa3lUY1BMNUJRbS1hV21TMXRKR0NNZk55SXotX3NYTVp5NFY3WHZhSA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
