@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 16:00:02（北京时间）**
+🕒 更新时间：**2025年09月12日 16:08:36（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What new footage tells us about Kirk shooting suspect | [阅读全文](https://www.bbc.com/news/videos/ce84y9ep1z8o?at_medium=RSS&at_campaign=rss) |
+| What CCTV and drone footage tell us about the hunt for Kirk's killer | [阅读全文](https://www.bbc.com/news/videos/ce84y9ep1z8o?at_medium=RSS&at_campaign=rss) |
 | Labour MPs despondent, says minister after Mandelson and Rayner chaos | [阅读全文](https://www.bbc.com/news/articles/cx238pwwqg6o?at_medium=RSS&at_campaign=rss) |
 | Prince Harry vows to help war injured during surprise visit to Ukraine | [阅读全文](https://www.bbc.com/news/articles/c3dr859vxxjo?at_medium=RSS&at_campaign=rss) |
 | 'Please come forward,' Stephen Lawrence's mum says to witnesses as review begins | [阅读全文](https://www.bbc.com/news/articles/cgrqnp09zl5o?at_medium=RSS&at_campaign=rss) |
@@ -26,8 +26,8 @@
 | Charlie Kirk shooting: new video of suspect released by FBI amid urgent appeal for help from the public - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi5wFBVV95cUxQd29uLTJ2bjVEOTRSZ1ZfRUd4WERWMjJsQWg1UHd0U01BLWVFbW81TUZsYUd3a3ZKeTF1S1pFMnZfbERSdzR3NXBjRFVaUTZkaUFjdFlBbjhhcDJsYWRiUUFVTjhZVGRYbG9rcjVhM1J5YnNmWDRrZzFpVU92NWpNSU9ERFh3NlQtLVQtLWhjSWtyQjg4SEFxMWM0MW1jYkhPemQwNURWZ2Fvb1F0LVZtNHczT2ZXYzRvY0djcjFkLWhLQ0sxblpBbFo5akczYUphRWZHZGViTEpQTllwWEZzcnJwY1QzVkE?oc=5) |
 | Rubio vows US response following conviction of Brazil's Bolsonaro - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOX01Oakx5am85anhmR0lLNU5CN3kzby1VUjhpZEp2YWdaSnJuRjZiUkpRVUs0YmZVTVo1SlRZXzZYQlh5RHhPU1BKYzZRYVNsUDQ1emMyOHZrMEwwMWszTmc3Z3lTR2djNVM0ZUg3c2x4eTdYbm9jRmZmLUJhLWIzTHZDQVlDbmpldlZObUFSWHhfWVZqRWtMbUt5emdOSWE1czFHTEl6THZjd3pMRXV6aVJR?oc=5) |
 | Trump to meet Qatar's PM Friday in aftermath of Israeli strike in Doha - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE00M1B1RXVSQWRQS080b0dfa2hxUzNfX2tvVWtlMEJhYkRiZDdERkJNZFUxdnRqU0xaU29oM2pQaDc0Q2tEdTZYTVpsMjVRWG9iUGtnZG9OYTY1MjNfbV9MaHMybXd6QWdQTnFlS1FvSGlVQ29kUXZ4dmRpZw?oc=5) |
-| Evergreen High School shooter identified by authorities - Colorado Public Radio | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE80eWEwMU5Sd2h0WFVScndBOFJld0Nsbkk0UmljdXhGczV2bnFGekRoZ2RDUkF6RFhvenNPb2FKR1BaUUR2M2NMbzRDdFpCS0RBY2hlNmVvalR1SjJudjBwVmkyT01Kd0ZldnMtWXhBWG54d3JzR3hIaEZxRzk?oc=5) |
 | GOP goes nuclear in Senate, changing rules to speed confirmation of Trump nominees after negotiations with Democrats collapse - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxORlNwcUp1TGVha3o4LTNacjRrbHpReGt4ZXlhQlN5LVE4THRyY3hESlhmeGRnQVQ5U1dPcG44R3BfekJXYzlzNkl4T2V6d1FibXdfcVZYS24tRWhTUmRxSkJUb1NoVGZQQjdkUzVvUDRocFZtSTAyRHJkY2VfcUZJdEln?oc=5) |
+| Evergreen High School shooter identified by authorities - Colorado Public Radio | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE80eWEwMU5Sd2h0WFVScndBOFJld0Nsbkk0UmljdXhGczV2bnFGekRoZ2RDUkF6RFhvenNPb2FKR1BaUUR2M2NMbzRDdFpCS0RBY2hlNmVvalR1SjJudjBwVmkyT01Kd0ZldnMtWXhBWG54d3JzR3hIaEZxRzk?oc=5) |
 | 1 injured while U.S. Naval Academy building was cleared after reported threat - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPSnVsQVRYUmVtMHk1enRYVFp4TlBGUGgxX2VFMFJFT2w3U1RSbU8td3p4djl3WU4zaFd0MG9fbHdqV2pGbXpybmJyTzNGWUR3ZTdTSk8zRzY5TXlqWl9QT0FmTDlPTDNFS2xVXzZ6UjRpX1RwNl82VHotcFd1Z044Y0N0RzVXZTBCdWc?oc=5) |
 | Ryan Routh begins self-defense in attempted Trump assassination trial - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1SUG55a2pCeGtTVHR0U2E4eC0tTnlfQ3BaWVU1NlhMSGxjZzlrb3g2blZxVDlUYUdEQjVoRDhlY2I4NVFfR21uM1ZJdFl6aDdueDdCNWFWY0NlUdIBX0FVX3lxTE9US1poVFVSS19LSzRJOHBJNkFMUnQzTktUSm5CNFpHOGFGT0FQcm82c3daNjRnXzVWT3c2UkdqbThfQ2QzU3did0RaSnlSOWNjN2V4LWJNVHlNMFNoYWZJ?oc=5) |
 | Josh Kraft bows out of Boston race for mayor - WBUR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQbXRtWGVYTF9aTjNPdnFFOUljMmtVNU1odjllZGNNUTdkMl9Qb0ZqbkNuZnlSNWJUa1IzTlFpRVM2ZzhueURpc2xvWjZwNWYxZnlfQ2JHaldscWYyM3V0dXJKQnNsMDF4S1J5RDQtTW1aWThnV3lhYWQzeWJyMUtfeEUwUEJPU0xI?oc=5) |
