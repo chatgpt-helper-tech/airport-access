@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月12日 22:40:16（北京时间）**
+🕒 更新时间：**2025年09月12日 22:48:49（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | California lawmakers pass bill to ban ICE agents from wearing masks - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPSVI1dGt1clRHeS1yOXJ2aDZkNEpMVHhzZFE0Qk1fenZuTUVFN0hhdTg2MmQtcmlIdm1pYW1MVDJ1Mmk1NTBIWnBPd0ptU1E2dDAxOWMzNUl1Nms0R3NRakxaVUEtLXFXUzBJRG5oT3NQZFY1Nk5DbnBBU0FpZHZ4T0QtMHl0OERtVFkxUDlTXzNfalczWXBYa1drSkx5WmhIdk1hdXhXSjRSUUFaRmc?oc=5) |
 | Senate GOP invokes "nuclear option" to confirm batches of Trump nominees - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQcTZvSkptdE5hY0cyOVVOU3V1c0hGTjQ5TmwtaUhiVUc4T1htcXdrU2tFcFNHU0RuSl9sTnZaaXcwY3A5bFpjd2tpSkloQ1NrdnhZOGRGdXUtQnpuamIzYUI1XzJkWXdrMWFvQkdSTDBNN0FIbXpjZTlHbHlBVEVGdjVJYjlLM0gx?oc=5) |
 | Josh Kraft bows out of Boston race for mayor - WBUR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQbXRtWGVYTF9aTjNPdnFFOUljMmtVNU1odjllZGNNUTdkMl9Qb0ZqbkNuZnlSNWJUa1IzTlFpRVM2ZzhueURpc2xvWjZwNWYxZnlfQ2JHaldscWYyM3V0dXJKQnNsMDF4S1J5RDQtTW1aWThnV3lhYWQzeWJyMUtfeEUwUEJPU0xI?oc=5) |
-| Midshipman at US Naval Academy was shot by security forces during lockdown - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPZ2h6aVhKdFRINHBHQ2JmTWFkblFua2FPa3JtcGRyMTVfcXBKRE9WSUVRV1lSMFQ0NW1aTVJNdTk1NW01OW42TkwwOGgyeHpwNHdWWjZSUjkzWTJxVEpNbVF2N2s2UTNFZjBTWWdmeXdJU01yMGZPaXhUTGZWcXJsck5wVGdPbXlPMXh4bDRVOC16TnkxUUNEaVJzNDBDeVXSAaQBQVVfeXFMUEVwTUpXVzMwZk5yNGtXRU9STWJLYkxNQXlBV0dpU2JMOG9jT1pPRjRJZmZhNlFCdC1RLTdxTFFNVThSWGczWEZITFdfcGN0Y3FEQU1fcmN4WTIzbmNrSFNuOWRuSEFqdmpMRlI5ZlhfMXcxODVXaWpjMml0U3FBYmhmRXE3VUczR0dad3pHcEx3cm5PN3J6UlFRMUZOTmVvNUxTY0w?oc=5) |
+| No shooter threat found at US Naval Academy in Maryland, official says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPc0hJYjk2bnBEbWNYUWltUTUyYk5FcGM0by13T19mZUdyUFdDdC1BcWowN0dVejNhdW1lSWdJOU9QNWREaGpad0FlazJmTS0wZXptUkdaR0Z4bm51SC0tT1RWaWpYMUZ4VExsa1RQRHZ1T1NwYVJiVFVoM1ZodFJLSkttRXlYRjBQRERKTm5BU3RnX3NhdjI5MXpoYTVxOVAyV21yWFljUTlaZFc3?oc=5) |
 | Exclusive: "Silly" to worry about SCOTUS overturning tariffs, Lutnick says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE01VDZVSV95ZDI2cTA0YjhINkdvVWVjUEFmdmZJMGNNX1BQUEhrWEIwRkp3emY1c25RWXBwdmJ4SGpxUXFZY0V6X096bjFFMllBYmtldXd6dU5qUUhPcFBBenlQbTRZRnhuQThVWGJFb0M2RUhDTnJ3?oc=5) |
 | Suspect in Murder of Queens Couple Told Police That He Burned Them - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE83NEs5dFlyUmRpcUVHNUFTMUxDak9iTGVBa3NtU0ZxM3F0aG5jV1B1VWtGMUd5cXdtSTF3V3R1MHhvekVqMW92Y3lsWk5OS0hIamF2eS1McWpVd29HY1NpUVlXbmtheU1BMzY2MmxBdTdralgyN2NR?oc=5) |
 
