@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 05:25:47（北京时间）**
+🕒 更新时间：**2025年09月13日 05:32:23（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | California passes ICE mask ban in closing days of legislative session - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBrTC1kMU5OeUxJM183bVZ1T0ZfXzExamlZb0lHRGhNd0pMUEJKSVJMQTRLemYxMkhGek1iQzU4Yl9ldFU1bC1BMlBidWxOdnhIV1VTUDIyXzA5blRKajgyT0lxbW9jSlEzS25uNGs2YTNoMFVTd0E?oc=5) |
 | Trump Says It Looks Like Mamdani Is ‘Going to Win’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE82X1djLXd4dE1xLWl1dEdDTmFRTXFoem1FQndzQkMwbE5wb2ozTFJUbU8wdDRKMjdvdTliUzdZYTlLSTdFWTJyVDV5QXAwbm5hV01BQ1l1a1ZpRTRET0xQZmp3QUQxSEtDYnE5WHJpWHphVjh3d19lTjlUaGY?oc=5) |
 | Rubio vows US response following conviction of Brazil's Bolsonaro - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQSmUtTFJoMnFGSUI4b01pOTdmM3JMLUpKOG1QaWozc3NSMXhOUDk3WTVYN0FlSTRaVXRIeEFXYzMzUlVvakRBYklFZUZ6a0ZsOEhzTTVteTE3dWQ1UGV0dThfY01YMlAyLWtKNmpUeXJQZnRGdi1VTGpXc2FpbmRldHNRTFdscFJ6Y1JMMVBsR0ZfR3lXVjVza0tiVFo0aWsyLS1zb3p0Q2VZaXVrNVlLSkVB?oc=5) |
-| Trump declines to call for unity after Charlie Kirk killing in stunning move - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOOXlqdVo1S3g3LU04ZUtPNGZVbGZVMWpCOWM3ZWFldVpUb2xacTNveS1GenZ1T013LUNET0NyNGJkMlRyWk9jdy1vZm1oN0JYamxvX3hMT0E2b2l1OXAxcFA5VjNuMzNRb3lIaWt3NTN2OTRNM3VrLUNFMkNOcTBsaWtqZnZsYUdXbUVWNmE2dVQ?oc=5) |
+| Widespread availability of graphic Charlie Kirk shooting video shows content moderation challenges - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNQWpiYzN3YXJyU3F0Zm5oeEtnV2tBMnZMa1AydFFTelFVd1RLTjIzMnFDUUg0WWE2SDB3N0lnTWFrUnIzX1l6My1uWWwtYzlxb2dqSnRjU0hUdzVFcGZ6WFROVGtQemJJSm9lUjdnNW1UcVFUY0dTUmxrcUxELXlBRXZpYk16WGMzckRVMjlYbEFmVkowTG90Y253T0R3X25Wa2tleG5paHBPZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
