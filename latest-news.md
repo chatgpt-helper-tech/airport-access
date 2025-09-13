@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 19:57:14（北京时间）**
+🕒 更新时间：**2025年09月13日 20:00:26（北京时间）**
 
 ---
 
@@ -8,8 +8,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Shooting throws Utah students into heart of US political divide | [阅读全文](https://www.bbc.com/news/articles/c9dxexl7glvo?at_medium=RSS&at_campaign=rss) |
 | Thousands gather for 'Unite the Kingdom' rally and counter protests | [阅读全文](https://www.bbc.com/news/articles/cwydezxl0xlo?at_medium=RSS&at_campaign=rss) |
+| Shooting throws Utah students into heart of US political divide | [阅读全文](https://www.bbc.com/news/articles/c9dxexl7glvo?at_medium=RSS&at_campaign=rss) |
 | Starmer defended Mandelson after officials knew about Epstein emails, BBC understands | [阅读全文](https://www.bbc.com/news/articles/c5yq455w36vo?at_medium=RSS&at_campaign=rss) |
 | Woman held by Taliban warns British couple 'dying' in prison | [阅读全文](https://www.bbc.com/news/articles/cm28jd2enz5o?at_medium=RSS&at_campaign=rss) |
 | Mystery of British woman who disappeared from a luxury Caribbean yacht | [阅读全文](https://www.bbc.com/news/articles/c4g2zv1px7jo?at_medium=RSS&at_campaign=rss) |
