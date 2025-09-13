@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 17:25:00（北京时间）**
+🕒 更新时间：**2025年09月13日 17:33:56（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Update on U.S. Naval Academy Security Concern - navy.mil | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxOLS11a3F4V3FWbzJGVENJdV95WmpiaFhnSzdKZ2hwUkNSTzA0a2NGYVR2dEJNaV9VWHNLLXJQakFCVFJDM284UzRRTHZjekZBY3BRUEk1VDV2XzFiZHNQRG9ncFBlOWMzdThtQk5INW5pdE53Q0g3Ny1mRWRLRE84dklraEY2RG94NWhONFh4czdvb2hjbkdvSGdOeER5ekJSTjRUNU5mWFQ1TmJEQzhGSjc2T3ptUnpUNW0wNQ?oc=5) |
 | California’s $23 Billion Plan to Restore Federal Cuts to Scientific Research - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOOC1nZ1RGYlQ3NlMxdmt4VWtjZ2t0WnBSZEd2eFk3NzFrMVBBajVQVnBhYU00ckI1LVQ3bUxPUWFMOUJYakFIWUtUTFpYdUtabjFMaGV0TDZCbXFleW85S2czQzNnN0d5bVN0dER1dks5OFZCMnBPTGVudHZvZEpGU1U1U1c?oc=5) |
 | Trump news at a glance: president urges death penalty in Charlie Kirk killing, as widow says: ‘we’ll never surrender’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNUXBReVlTX2RWLTZ2d0dqV0JDLXMyenRUQTNSaFZ0c3l5dFpoMmJ1RG1TRmRvU1oxR1ZITncxSWZ0Nm5UT212WENrcHJ3Qll4TVpXOV9ZWC1fczhKdnVhZ2dEdUgtQ0JpTERyWjhSU3lBVjJ6TFppS0hua09uV2lqMjRzcWYyRzdzeEEzS0xNbzFSa1gzZzF6Q3hsTXY0S3htbEM4?oc=5) |
-| Federal agencies threaten, discipline employees for criticizing or mocking Charlie Kirk - Government Executive | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxQczBYU014bWJaLTVibU1wX214LXRKaHQ2ZG5QOXl4SEIwdEwyZ1dJMmZJYnE3aUxtYzctT1V0UUUtdUdLc3dIdWlZSjNyMnFyRTA2OHVldkQ5WmdHVTg4bXZPakNjamZsWloxSlgycWc2R1RDdm1fQXJPa1kzazczbWRSd1I3VS0tSHk0Y0M4S1o0V0RtbC1WMlZ2eG5EdGRMUjBGb2lVTEtMZjRLSHB2bVkwT1V4cmo5RXJNei1KOFVldExpZldjNDdQREJSZw?oc=5) |
-| Ukraine war briefing: Poland’s allies decry ‘flagrant violation’; Warsaw sends troops to border to monitor Belarus drills - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi9AFBVV95cUxNZG9RLVRMNzExRHFrcWZTWDBNX2ZvWFVfY2xRbno1cG5kTlFHVUlNbWRwTDRIM0tmZHBhWmR5QU4yT09BUlVPd085Q0JwZXl6M3cySUFULS11RjlyUkZQb0dqRjNBRlVKODR5RWZOLXlYazhHRmo0UE9TRGZIaEIyZUI1SXRKTGw0NWtfQ2o1V1Y5d282S1E0X19lUEZFV0lXNUdJb2s0Ql9iYzk3Y1dnbXMxeF9qZ3ZObDNZOG9Bcm1tSURLOU5FWWt5bEF0R2R4T3Y0ZUJheEdwc1M2X2hBNmtvMFJjMDliNUMyMTYtaDNyU0ZK?oc=5) |
+| AI fuels false claims after Charlie Kirk's death, CBS News analysis reveals - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE9HTW5PcGdmLUdLSlowc3QxNUJFcDVtSXhSRmNCY0ZuaEpsUldEUEN6RjdrUERHbjlyTEVXbUlOSkI0V2N4bUhVa0VqdzU5SXFuaWUtVDB3X2s2YlppR1NwbFNGbzdrSnNUbF9Ld0tpTXZDQdIBd0FVX3lxTFBrelNhRTAxLWEzNHdQdWhQSzlfWTdsc21waEVyVGEzdjBPM3otTTdrc0JJN29VU1hkemlyajc3eno4RG5oUWZrVnpvNGYwUVNuYWVsZVRVZHFmSlYyeDJGVWUtTlFyWXB3QnJGbDgwOHlISWtJTWFN?oc=5) |
+| Trump doubles down on blaming 'radical left' after vow to go after political violence - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNcHdLVVJPdmlRY0JOTG1oejQtMHNnYWhQT0Q3ZlpsQ0t5NEh6MTZFLThFMllmcWhSMUt6c1RJcWh1WmFVNkp1S2o0ckpNdDhaamg1SUsycXJURjB5SGdON25lVzl6T0dDa280bGtkVWlERm55bWtKbmpQSFk1aG1wdXYzZmNUOTN5cFVxRHpEWk1uRUFlQ3JmcldTNVA1c3E3bTIw0gGoAUFVX3lxTE45dWZlakdYRUljTEhWTEhuYW5xa1EtV3hPNExYLWF0VXlHRk0tRk5TZmhWelJaN1NxdTFfaDF6OTQ3UGNuZDdvOHRoZmVlb1V2SDFvT1hZdy04d0YxQTRkY1Q2VjNNMEVNV3BBanpNdEtVbEF1N0dQVjYtMXhRbloxWFdOMmVlQXkzYTRGYkpJOG5COGoxUWp6MldKNmlHVHFRSDB6ZmtXRg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
