@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 08:57:05（北京时间）**
+🕒 更新时间：**2025年09月13日 09:01:29（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Tyler Robinson named suspect in Charlie Kirk shooting: What to know about him and how he was apprehended - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQQWYtdTVXWC03bDJQTVV6SXFRcVlwaGVzeFJDNmdLTUtEM3BXajVBazUwYktmZTdDUkNwcGFyeWhtSG14NHhkT214cXpfdk1OMF9RMDZjWGxQeXl0b0YyM19oMzd3ODhDUUFVbE9VM1R5ME9CeUdTZlBtdGRzYXVyU2JyZ1Bkd0Zpem9jUU51TDBUSWhRNnRacdIBngFBVV95cUxPMU5sbWNpUWxsMWNYcXBmNnpyZWxZVlJUTmY2ZXQxRGJsdGlzeHV3UHlDZHlEWUY4NWFSSTNMQ0ZreFdndEZmRUJxX2lUSk95cTBxem96RDZ4eTBFTWVWQ2piREVZTjZyMy16ODBfXzlJa0l6U0I2Ui0tN0JNdGhHd2pOOUFTdmNlMVRKSGhwOFMzOEpkNFc1MUpkRlZTQQ?oc=5) |
 | Man in Chicago fatally shot by ICE officer after allegedly resisting arrest - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPQ29UV3I3ZzRETHYxYzlRVlJwd1VTc0lDX3NhTFlZQy1lLUYwR244M3FYbmdoSkVXeWJIbm9wV2hWU09BT180QTJVTENvS0VhblFuWGhhWGpqUzJaVVMxSmN6aGtMbVFSb29vYVAtN3JyODNiUHdBTlBJTWYwWDZ2cTFDbzlFLWdPOWlYNWF0aw?oc=5) |
-| Right-Wing Activists Urge Followers to Expose Those Celebrating Kirk Killing - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQMkp5cGlEaHduNE9lcjBubFZkQTAyeHNKTlByYnBYOVczUjU5M1BLamtTSHBPOUNhQTR6ckU1SzdDeDBXNTI3SW0tNGNxMFJVNkZaR3ZkdGduS0M3bldZRXR3S1Z0amtyQ3MzV09WakI5YjI3VWVodGZMR3ZUdnVnOHc5akZDb2NocTVSbWZOXzhUQkZqNnBoVw?oc=5) |
+| Amid quiet mourning, some are calling Charlie Kirk a ‘martyr’ and want vengeance - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOS3BIV0RtbkpRUkZncXNJXzN0YUIxS3hmWEIyd0lST2FWT1NkM3NCVWozUm9Nam5VX3hBcEJ3XzVUWW9CT3pPUjBGZ3ozS2EyWXR0R2NVV21YeGVidWp3MzBwZTFkNjdVc2o3SVM4d1RRRVN3bGFwYVRXVlp1SmpqUFZFVzFiamZuckI5WThOaXR6dXFLNlA4VnpMYWkyZw?oc=5) |
 | CEO whose comments sparked Trump’s Memphis action also pitched him on a big rail merger - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOQlZTX2lxMU16bzVYU1AzYzlJSHJHSEdIRG1lLXFKWDZZSGMzVzJ5S1JRMThoQ2J4ZW53YzIwNUFRLU1LbGEwZk9lX0pWRnhjVnlnd2QxZFF4Yi04bVd1Uzh3NEg5V2lIQ1NqSTEwOFJ5NF82Mi1QVnIwT1dfdGU0RWdlaw?oc=5) |
 | Missouri Senate passes Trump-backed plan that could help Republicans win an additional US House seat - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPR1RzODU0OWc3TUxfblJ3RkJyQVhmMk5FQmFKN3Y2QjNOMGtYVWJCREJueWlKZzc3NU84Sm9PUVFWSFU3VGZaNTlaWmRxWmRiY3RicUNRd3JKRUxzbXFlenVIY002Sk5lcTNFTkw0bENucWUwdFI4TDJwYWJwajZSV1FGazc3OU1CalJLUW1FV25ieVdlRjZob2JtM0s0aVNqTHc?oc=5) |
 | US joins UN Security Council condemnation of Israeli strikes on Qatar - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9yYjN4aFFlODVvVHBNQURUYTNjNDQydk5MNEwtYy02VmZST09qNDVkNTk3QjdDWEtxMWtWb0VuM3RpblRxZkFpUmJrREJpRXc1WWRaNFhObHdkZ9IBX0FVX3lxTE14aFpUX3FiYWZMQkJWSmtFUGFfc213dEJ0SUlKM2Q5eDJEak1sZVRFa05GRzlrUW9EX2F2VEJHYkNIM0JRZ19BWHBSZ1dIWUxFODZrX3lncEt3ZWtXbkZn?oc=5) |
