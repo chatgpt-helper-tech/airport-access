@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 16:09:44（北京时间）**
+🕒 更新时间：**2025年09月13日 16:17:38（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Update on U.S. Naval Academy Security Concern - navy.mil | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxOLS11a3F4V3FWbzJGVENJdV95WmpiaFhnSzdKZ2hwUkNSTzA0a2NGYVR2dEJNaV9VWHNLLXJQakFCVFJDM284UzRRTHZjekZBY3BRUEk1VDV2XzFiZHNQRG9ncFBlOWMzdThtQk5INW5pdE53Q0g3Ny1mRWRLRE84dklraEY2RG94NWhONFh4czdvb2hjbkdvSGdOeER5ekJSTjRUNU5mWFQ1TmJEQzhGSjc2T3ptUnpUNW0wNQ?oc=5) |
 | Trump says he’ll send the National Guard to Memphis to address crime, 'would have preferred' Chicago - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNLVRhUzdqczU2WHZwMGxUYjNVdlBFczNFYnpKYk5CUjBzbU53anphcmZ2b3hNRjF6NS1Xd0ZoNTROZFEtRmhTVHhuZkZScjFLeks4NWFhYnRkTXRXbk5KWXdfNzRjWFdMREdOblBSMFk2T1hxU0x1U2M2Y1NEVTBYUmdPaUlUaTBQZ3lUOExxNmFOcUpnX2kxT1ZWU3lKUDE5RkphZUJ5NFY3S25MX3Y4bnNER3NRU1lZ?oc=5) |
 | California’s $23 Billion Plan to Restore Federal Cuts to Scientific Research - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOOC1nZ1RGYlQ3NlMxdmt4VWtjZ2t0WnBSZEd2eFk3NzFrMVBBajVQVnBhYU00ckI1LVQ3bUxPUWFMOUJYakFIWUtUTFpYdUtabjFMaGV0TDZCbXFleW85S2czQzNnN0d5bVN0dER1dks5OFZCMnBPTGVudHZvZEpGU1U1U1c?oc=5) |
-| Federal agencies threaten, discipline employees for criticizing or mocking Charlie Kirk - Government Executive | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxQczBYU014bWJaLTVibU1wX214LXRKaHQ2ZG5QOXl4SEIwdEwyZ1dJMmZJYnE3aUxtYzctT1V0UUUtdUdLc3dIdWlZSjNyMnFyRTA2OHVldkQ5WmdHVTg4bXZPakNjamZsWloxSlgycWc2R1RDdm1fQXJPa1kzazczbWRSd1I3VS0tSHk0Y0M4S1o0V0RtbC1WMlZ2eG5EdGRMUjBGb2lVTEtMZjRLSHB2bVkwT1V4cmo5RXJNei1KOFVldExpZldjNDdQREJSZw?oc=5) |
 | Trump declines to call for unity after Charlie Kirk killing in stunning move - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOOXlqdVo1S3g3LU04ZUtPNGZVbGZVMWpCOWM3ZWFldVpUb2xacTNveS1GenZ1T013LUNET0NyNGJkMlRyWk9jdy1vZm1oN0JYamxvX3hMT0E2b2l1OXAxcFA5VjNuMzNRb3lIaWt3NTN2OTRNM3VrLUNFMkNOcTBsaWtqZnZsYUdXbUVWNmE2dVQ?oc=5) |
+| Federal agencies threaten, discipline employees for criticizing or mocking Charlie Kirk - Government Executive | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxQczBYU014bWJaLTVibU1wX214LXRKaHQ2ZG5QOXl4SEIwdEwyZ1dJMmZJYnE3aUxtYzctT1V0UUUtdUdLc3dIdWlZSjNyMnFyRTA2OHVldkQ5WmdHVTg4bXZPakNjamZsWloxSlgycWc2R1RDdm1fQXJPa1kzazczbWRSd1I3VS0tSHk0Y0M4S1o0V0RtbC1WMlZ2eG5EdGRMUjBGb2lVTEtMZjRLSHB2bVkwT1V4cmo5RXJNei1KOFVldExpZldjNDdQREJSZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
