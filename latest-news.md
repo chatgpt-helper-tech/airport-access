@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 11:01:04（北京时间）**
+🕒 更新时间：**2025年09月13日 11:09:37（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Contentious housing bill narrowly clears California statehouse - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNOFJVYkZ6VG1fVVVBUlBaS0I3RF94dXhnSTRZOTk4Z1pScVUyNjRWRXFud1FNdkFmWjRyMzItMklTYU04NnJaeE9ZdFRrc1N4Z3N1bGFlMFBaN1IxWml3aTkyQll2LW5fWGs5ZDg3dDN2dzA3dG42S1AwNkhlbzhOSnlhZ3pqS2dYcVlzZ1dfczFteS1fYjQ0?oc=5) |
 | Missouri Senate passes Trump-backed plan that could help Republicans win an additional US House seat - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPR1RzODU0OWc3TUxfblJ3RkJyQVhmMk5FQmFKN3Y2QjNOMGtYVWJCREJueWlKZzc3NU84Sm9PUVFWSFU3VGZaNTlaWmRxWmRiY3RicUNRd3JKRUxzbXFlenVIY002Sk5lcTNFTkw0bENucWUwdFI4TDJwYWJwajZSV1FGazc3OU1CalJLUW1FV25ieVdlRjZob2JtM0s0aVNqTHc?oc=5) |
 | Trump declines to call for unity after Charlie Kirk killing in stunning move - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOOXlqdVo1S3g3LU04ZUtPNGZVbGZVMWpCOWM3ZWFldVpUb2xacTNveS1GenZ1T013LUNET0NyNGJkMlRyWk9jdy1vZm1oN0JYamxvX3hMT0E2b2l1OXAxcFA5VjNuMzNRb3lIaWt3NTN2OTRNM3VrLUNFMkNOcTBsaWtqZnZsYUdXbUVWNmE2dVQ?oc=5) |
-| Trump Says It Looks Like Mamdani Is ‘Going to Win’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE82X1djLXd4dE1xLWl1dEdDTmFRTXFoem1FQndzQkMwbE5wb2ozTFJUbU8wdDRKMjdvdTliUzdZYTlLSTdFWTJyVDV5QXAwbm5hV01BQ1l1a1ZpRTRET0xQZmp3QUQxSEtDYnE5WHJpWHphVjh3d19lTjlUaGY?oc=5) |
-| Uncle of Charlotte stabbing victim speaks out - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNQnpnVVlFUzFGUTU5R0hnMlN1RXc2cFo5cHhPS0doaWtOOEJpS3J5WEtTSEpnU05rbUNiNXVBSUU2T2lsRjFGUmU5Tmh5OGRUWFhnYlBCNFNLNFZoNFZkOEJrUk16X0d4YXhvVlBYUVJRVEM4X3B3MjNaeTVGVVZyS0F4OG10bW02NGRXNmpCaEhoLVpwNHY00gGcAUFVX3lxTE1MamMycHNzaW93c0d2N3ozNDlqWVNNdUUzcG5oaDd5dldmeVFFVDBNSG56a3M4Y2JrdjlFNnQtcWg1NE9HdklGTXd0V2p5N0hNZDVqQVZPdmNnQWtpc1BiWnVTYWp6MFBfNEh5Q1pFWnZOWC1zdF92SjY4WWRnMXYzUjVISWpubzdJNmZZTjVzeUkyVE5xSzMzaVlRQg?oc=5) |
+| Former Judge Sushila Karki Named Nepal’s Leader After Gen Z Protests - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOUVhfeGFqRzExWDRjWDJPUnBVdWlTS09LS0IybUhWWG1zb25hS2UyMW4tWllkUXUtemtINkstVnpySEZ6TFlVd3g2Zm05SlZtdkZnWWoxcmJmajIwYnNfQXJsV2F6TVo5OXhRQWhxek9qUUFhOFZjSUQ3Rk5qeGxCbXR5c3hVazRzMmFEMQ?oc=5) |
+| ‘It wasn’t’ — Poland rebuffs Trump on Russian drone incident as maybe a mistake - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMjQzZmx1SV9fQ2lrUFhDN1NhY2ppQ3hCMktUbVlYX2VwcEl6c2k0dzg0WEJNdEtsQzd5OTN2a1dKd2gwMWJBaWQxbHJxNFgzLWJIR3c2cTNPLTFsZXQxenZqZjBMcDZISmNOR1gtZzNrbTlkVnNuUjgtbFJJRk5CejFLWE00eTA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
