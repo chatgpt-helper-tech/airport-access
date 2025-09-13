@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 10:01:43（北京时间）**
+🕒 更新时间：**2025年09月13日 10:09:53（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Tyler Robinson named suspect in Charlie Kirk shooting: What to know about him and how he was apprehended - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQQWYtdTVXWC03bDJQTVV6SXFRcVlwaGVzeFJDNmdLTUtEM3BXajVBazUwYktmZTdDUkNwcGFyeWhtSG14NHhkT214cXpfdk1OMF9RMDZjWGxQeXl0b0YyM19oMzd3ODhDUUFVbE9VM1R5ME9CeUdTZlBtdGRzYXVyU2JyZ1Bkd0Zpem9jUU51TDBUSWhRNnRacdIBngFBVV95cUxPMU5sbWNpUWxsMWNYcXBmNnpyZWxZVlJUTmY2ZXQxRGJsdGlzeHV3UHlDZHlEWUY4NWFSSTNMQ0ZreFdndEZmRUJxX2lUSk95cTBxem96RDZ4eTBFTWVWQ2piREVZTjZyMy16ODBfXzlJa0l6U0I2Ui0tN0JNdGhHd2pOOUFTdmNlMVRKSGhwOFMzOEpkNFc1MUpkRlZTQQ?oc=5) |
-| Federal agencies threaten, discipline employees for criticizing or mocking Charlie Kirk - Government Executive | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxQczBYU014bWJaLTVibU1wX214LXRKaHQ2ZG5QOXl4SEIwdEwyZ1dJMmZJYnE3aUxtYzctT1V0UUUtdUdLc3dIdWlZSjNyMnFyRTA2OHVldkQ5WmdHVTg4bXZPakNjamZsWloxSlgycWc2R1RDdm1fQXJPa1kzazczbWRSd1I3VS0tSHk0Y0M4S1o0V0RtbC1WMlZ2eG5EdGRMUjBGb2lVTEtMZjRLSHB2bVkwT1V4cmo5RXJNei1KOFVldExpZldjNDdQREJSZw?oc=5) |
 | Man in Chicago fatally shot by ICE officer after allegedly resisting arrest - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPQ29UV3I3ZzRETHYxYzlRVlJwd1VTc0lDX3NhTFlZQy1lLUYwR244M3FYbmdoSkVXeWJIbm9wV2hWU09BT180QTJVTENvS0VhblFuWGhhWGpqUzJaVVMxSmN6aGtMbVFSb29vYVAtN3JyODNiUHdBTlBJTWYwWDZ2cTFDbzlFLWdPOWlYNWF0aw?oc=5) |
 | CEO whose comments sparked Trump’s Memphis action also pitched him on a big rail merger - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOQlZTX2lxMU16bzVYU1AzYzlJSHJHSEdIRG1lLXFKWDZZSGMzVzJ5S1JRMThoQ2J4ZW53YzIwNUFRLU1LbGEwZk9lX0pWRnhjVnlnd2QxZFF4Yi04bVd1Uzh3NEg5V2lIQ1NqSTEwOFJ5NF82Mi1QVnIwT1dfdGU0RWdlaw?oc=5) |
+| Contentious housing bill narrowly clears California statehouse - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNOFJVYkZ6VG1fVVVBUlBaS0I3RF94dXhnSTRZOTk4Z1pScVUyNjRWRXFud1FNdkFmWjRyMzItMklTYU04NnJaeE9ZdFRrc1N4Z3N1bGFlMFBaN1IxWml3aTkyQll2LW5fWGs5ZDg3dDN2dzA3dG42S1AwNkhlbzhOSnlhZ3pqS2dYcVlzZ1dfczFteS1fYjQ0?oc=5) |
 | Missouri Senate passes Trump-backed plan that could help Republicans win an additional US House seat - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPR1RzODU0OWc3TUxfblJ3RkJyQVhmMk5FQmFKN3Y2QjNOMGtYVWJCREJueWlKZzc3NU84Sm9PUVFWSFU3VGZaNTlaWmRxWmRiY3RicUNRd3JKRUxzbXFlenVIY002Sk5lcTNFTkw0bENucWUwdFI4TDJwYWJwajZSV1FGazc3OU1CalJLUW1FV25ieVdlRjZob2JtM0s0aVNqTHc?oc=5) |
 | Charlie Kirk shooting: A timeline of recent political violence in America - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOaEJmR1pLZWc0U1MtSFR0Wldtdnc3Q1hWMVhoQXhYNks2dWVROF9DVUtMSHZWWGE4Y3VQUDRUT1hTby1PQWhHaER4SmxBYUdmaUJ2QWl5bDRYVTVxZlJXSHJUS3JrLUJXYkcybGdLRy1fbGlOSHBhZ3VxSGFUU214ZWFxYUJZV1FwYmxFaXZmNkxmQkpIVFRTd29rcHdlUzlxNU1WeVVXUjg4aTFSdDNfT3ZoSXlId9IBuwFBVV95cUxPVnhXbUZOT1puX0hzMlY2RWRMT2FCZjZjTGtnYUVZTFpvdm1wbjNZQ0RCWWh3TkNGWk5HT082WEJ4VlhIdjBoZjFBNUsxbDdKcEhDNmdEM1R0RFZxbklZcWJEMk1EQjNjbjFpVnZYa3d0eVhDdm5vQmR0eGVfWGRsOFFUQndBamZocDBNYWlWaWx0TWYtaEVRcVE4UGpQem4wZDM3MWNTYl93WkZndDZtQWM2b3NTYjZQYTc4?oc=5) |
-| California lawmakers pass SB 79, housing bill that brings dense housing to transit hubs - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxQTWJwamM4SHZWZ2RFX0VfRzZfZW1NZE0xajR5M1pMWGUxeTAxT0Y5SW9pbWlIU0NKWXljaDZkaXZqT0g3dl9EQlV2V0owNlN0T3VLRUVCN2NKVmpLQ3J0WklZbENhck40ZHB3dm05NjJ6aXBEVHBHMFBVcHdXbWNGQUVFNHZVWVJoWjFEQmY3U2RuY2J0YkFxbXZrRFQ2cmVhb0w3YTgwbS1PYWFqRlI4YkpMWFFtZmFlN19nMUo1cWkzYXh6ZmRXVDAtc3pGWFpBTjl5VA?oc=5) |
 | Trump declines to call for unity after Charlie Kirk killing in stunning move - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOOXlqdVo1S3g3LU04ZUtPNGZVbGZVMWpCOWM3ZWFldVpUb2xacTNveS1GenZ1T013LUNET0NyNGJkMlRyWk9jdy1vZm1oN0JYamxvX3hMT0E2b2l1OXAxcFA5VjNuMzNRb3lIaWt3NTN2OTRNM3VrLUNFMkNOcTBsaWtqZnZsYUdXbUVWNmE2dVQ?oc=5) |
 | Trump Says It Looks Like Mamdani Is ‘Going to Win’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE82X1djLXd4dE1xLWl1dEdDTmFRTXFoem1FQndzQkMwbE5wb2ozTFJUbU8wdDRKMjdvdTliUzdZYTlLSTdFWTJyVDV5QXAwbm5hV01BQ1l1a1ZpRTRET0xQZmp3QUQxSEtDYnE5WHJpWHphVjh3d19lTjlUaGY?oc=5) |
 | NATO Steps Up Defenses After Russian Drones Violate Polish Airspace - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNRHp5MmlUTUtSQkowS21JZFJhWkh3TnVfNkowVnNPbTZ2NWh3MU01QmxUcERKZkpfSDBSYm1mWHFEYVQ0aUU1Q3Jaby1TX3hZUHhZQi15NGtIU0lIdEFPSG05eWFyc1ZIQTRFUnpESW55QXZfSzlWbUtjLVJrZ1YyUUlKSUJ6RlU1RlpMNjQwWnk?oc=5) |
+| Nepal gets first female PM after deadly unrest - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9aUmI2QU1CSFAza2stVlBMbWFrX0pCUEpRRGhCSFhNMk9oN09uVGlXT0NPZFFIamFiQkNyNVljWVNldV9DRmxiVXY2RDVRcFJrM1VjNHlfOG52Z9IBX0FVX3lxTE0wYlh5SEdYU0xEUk5Rcmlucmc4NWJDZ0E5LXdBVVlOaWoySG1KaExNd0xnMEZ2LTQ1bkZ4aDRSN2ZZclM4UjFJUWs0TWtvekk3bEdSRXF3RjBVYlN4VHNn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
