@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 22:57:28（北京时间）**
+🕒 更新时间：**2025年09月13日 23:01:53（北京时间）**
 
 ---
 
@@ -27,8 +27,8 @@
 | Workers are getting fired, placed on leave over Charlie Kirk posts - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQQUdSTTdqQzYxZjRWclpnRFVHYmhPRHRmU0pCWG56Z0lRQTVja18wblRaeE9lNHQ0OHdBdUtrV0lIWWRNZFFUbmNYRDhBYkFNV1ZhbHZhdzlLQXF0SzZmNkFsRDN3cHhSajVsSlNFeEhBT185QVBFOThORjUxQ1JJU1czdUNMSUxYMmkxTHJ6MmtYT0Z1VU10WXFn?oc=5) |
 | How Law Enforcement Got the Man Suspected of Killing Charlie Kirk - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPdlBDOE1tZGVjU1NfWHpnVGd5VlJFVUduRDRRUjI0RldVNm5fYVlDUVY0OVg5dE5KZFhtd09lbWczeEZUXzFlQUl2T0YwbUpieERMVXA3VUw5V040cHQ2aDdrTXN5SGNGV09GSmUtNWdoMWFQUGZZVFVoUV9PUGE1blZ0dWQwTFhmM0hF?oc=5) |
 | Trump ties new Russia sanctions to NATO tariffs on China - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1DTmpwX3h6SnRxN3BEMGNNWm9ZcU5ucVJzZ1MtUHZ4bzJLV3dDMFhQTkh0emdSeV9zV1hRdlBrelFkTE81Q2ZpMXZOWTNFaFJQYXYtY21lM3BKaldER1RtOXNpdHN3ay11aTVzYjA0TEF6bkd2QmVUbmRxdjBOSVE?oc=5) |
-| Megachurch leader and his mother indicted on sex trafficking and racketeering charges - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxOVnpfajI1eGU2S251ODY1aVlIX1RVZllMWENTaEZ4Y3ZxRE5ZVE5SYzVnWl9CdVRLYXVlR2dzOFJtRUN2bHEzLW85STgyNkQxTTF4c0NlU3hydUJmaW1VQklmY2lhTkQwNU9iYnZLeUZ0ajFjSThPeDdhbXN3N1V6ZXBPZWpIMWFvU091MDg1dkRmcFZRUnFaLTNya2t0OGJzd0IyTGJnZTM3Sm1SNEgyMnpJdjhuTmZUYU1UNmpJZHdqbFA1MDFHdlhn?oc=5) |
 | Illinois Democrats call for investigation into fatal shooting of Franklin Park man by ICE agent - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOSHN5UVAwMG40WEcwSXpCbWJuYnJ6UlRBQzRERkdOelh2S1VOVTZDcXE1bWtUbHNFXzR3TGJmYk5TM1BmRWU1SEZzM1gxMEpqb2FpNDFLY2pnWF90aHNqLTJ1bGZWbzR4WlUtWVROY01ZbG1KZldJWHBpVEl2bzFlUG9ramFUTVFvOTVib1NCVnk1Zw?oc=5) |
+| Megachurch leader and his mother indicted on sex trafficking and racketeering charges - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxOVnpfajI1eGU2S251ODY1aVlIX1RVZllMWENTaEZ4Y3ZxRE5ZVE5SYzVnWl9CdVRLYXVlR2dzOFJtRUN2bHEzLW85STgyNkQxTTF4c0NlU3hydUJmaW1VQklmY2lhTkQwNU9iYnZLeUZ0ajFjSThPeDdhbXN3N1V6ZXBPZWpIMWFvU091MDg1dkRmcFZRUnFaLTNya2t0OGJzd0IyTGJnZTM3Sm1SNEgyMnpJdjhuTmZUYU1UNmpJZHdqbFA1MDFHdlhn?oc=5) |
 | Meth burn by FBI smokes out Montana animal shelter - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPYkJGcGhZbDhEZlR2VGt5MHlEMUpzUTRDcEJhbWFfdkFXbTRPR0xOall2YTNjV1M2Nk9GRzdQT0lGbld2REQxUWNTTGgxZVJ3SUcxdFJnWUJNSllZdWtVaUtMRFo0V3V6LU10bWR1dGVFT2xra0NWZkNPRF9TR2NtYlBLYWNneWFzQ1hIVGMwMjRnc1JGMjRtX09YVXhuck1ZTVV1SG1QbkQ3UVZ4UTBv?oc=5) |
 | Families on Obamacare brace for higher health care premiums next year - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOcFl5blZpSXBlb3djNzhUbHB6QWFvQWlGRDhqaDNhYmZidE56Uml5OTR6VkY0ZTJqZURzdG1qdnZlTlhIcGFRSmR0OXRpVko3dUZaRFFreGRUMzNjRmMtWS1veFRwcXByeEN2YkdfU2d2TklNQVd1RnF0MFFzdnpZN0ZuUWcwSFEwSjFtaTJUTXowM0pFRTZhXy1uTDcxT2toUHBTZVVWONIBVkFVX3lxTE1zMUNfTnF1S29fY2tITlFObjZDeTVvYlhRQTRKRk40Y0RHbmwwTVJQcWd5dzB4YlBGQ0tWTDh5OGZHNlEyTjA5TF9QRHNDQThjUDlCQU93?oc=5) |
 | Nepal’s New Government Calls Elections. Its Critics Cry Foul. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQQ1dFRDdnNjlJSTBzeFY4V3JMUDFtS214SUFYZXFycEw5ZmFqX19oNEpjZ0hKb1NTVWJwZnRjV2xyZ3dHclRSUjh6cDFwTXdicEpuZ3VZdjUyem51MEhMcTU2WmlHbFk5M2hoYjNGdE1WS2g5WVl4ZGVkeHhmX0lrVFpBQnQzSVNnTGJBME00UklGLUtGUlB1SA?oc=5) |
