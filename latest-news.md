@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月14日 04:41:06（北京时间）**
+🕒 更新时间：**2025年09月14日 04:49:07（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| More than 100,000 join Tommy Robinson rally, as counter-protesters demonstrate | [阅读全文](https://www.bbc.com/news/articles/cwydezxl0xlo?at_medium=RSS&at_campaign=rss) |
+| Dozens of officers injured as up to 150,000 join Tommy Robinson rally | [阅读全文](https://www.bbc.com/news/articles/cwydezxl0xlo?at_medium=RSS&at_campaign=rss) |
 | With Trump's state visit days away, blame game begins over Mandelson scandal | [阅读全文](https://www.bbc.com/news/articles/cp8j2d5xm78o?at_medium=RSS&at_campaign=rss) |
 | No 10 questioned Mandelson on Epstein links before appointment | [阅读全文](https://www.bbc.com/news/articles/cn82rdmzr20o?at_medium=RSS&at_campaign=rss) |
 | 'I will never let your legacy die' - Charlie Kirk's widow gives tearful address after shooting | [阅读全文](https://www.bbc.com/news/articles/cz9je8lxge4o?at_medium=RSS&at_campaign=rss) |
@@ -31,8 +31,8 @@
 | Several people fired after clampdown on speech over Charlie Kirk shooting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPVGEyQVpEWlE2LUdDdWFzZk9yZlFTTTB4QXVrZXBuU1NJSThjbmRWTzRZUEJNbGpJM2RILTktOHIwR0w2WnE4ellRNVZTQUdKTklvS0pCU2tOQXB6dmZRVFpmbDh0WjRVbElkYkdHTzZ0MzhORDVZSHRDNlF3M3NiWFoyVGZNZmdRcDhfeXRPbGtZQm83V3pEZHV5VQ?oc=5) |
 | ICE agent shoots dead man who tried to drive at agents, officials say - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE54T1JCQXlOeDZCZEdZT3RUYkhHbm5ZN0NKQk9tYkdJM0x5M0hxN2hJckFHV05IZ0F1ZUtpRmxxZUNTT05wc2VIMnZmZC1QOEtCNHFNV3hnYXdBdw?oc=5) |
 | Trump is selling a strong economy. Voters aren’t buying it. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPZ041ZTlWRTR3Z0xrRWlEUmIyY0c5UW8yMHdRSDZrWTNRSmp5Zm1zRHdQNjlwa1ZaaFEzTzZmY2VDTXhHbEhJcHh1WmxxRm9raWIzdldOZW5ndU1ZbFhjSHRsNU14M3hLQkVEUnVJbkJjcTJkNnFIb01Za2czNnhWY29vSnRpcjZvY3B5eXN6X2xkLXFnYldaS0NFRXhNWEk0dk5PMTVwTHpQUQ?oc=5) |
-| Families in crisis after massive immigration raid at Hyundai plant in Georgia - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQYV9nSUtPYWRXTGxoLXIxamt4c2hoVDVRM1M5c0pUaWRNMUZkc2s0ZnFyVXYzeGlSWmh1d0l2c2NHSHl4SzJERWFXaGxBeEh0UF9CTGl3emJmQm12UE1aRzIyRjhJV3hLTktCSjdhdE5CNWk5OWFjWEluZnp0VjlqVzV0eFhDUFRDOUJkSWZiSmQtX2stdnpNX2lmZzlrTnVxWXdR?oc=5) |
 | University of Minnesota, Teamsters reach deal to end strike that threatened Farm Aid concert - Star Tribune | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxOOTBaLWdKb2czYnJJUm5RVG9OODlYVVZ2U2lnYlRjR2NRejBNaTJGZlJtREtuTXozVUhUX01IZ1dua3lDam1EU21tSkF2NTBvRlBseWFqaXl4cmpqZ182RFZvOG9wZXBScm51Xzk0eVBaN0NHbm9vOHRMVXZ4NFdNbWw5NUMxcUFraXFvUFJUS2d4d1NVSUtWN010LWYtUmFXN1VzRjQydHZIdlQtSWkzVVp5eEJlUy13ZVVleWZpZEtZTS12?oc=5) |
+| Families in crisis after massive immigration raid at Hyundai plant in Georgia - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQYV9nSUtPYWRXTGxoLXIxamt4c2hoVDVRM1M5c0pUaWRNMUZkc2s0ZnFyVXYzeGlSWmh1d0l2c2NHSHl4SzJERWFXaGxBeEh0UF9CTGl3emJmQm12UE1aRzIyRjhJV3hLTktCSjdhdE5CNWk5OWFjWEluZnp0VjlqVzV0eFhDUFRDOUJkSWZiSmQtX2stdnpNX2lmZzlrTnVxWXdR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
