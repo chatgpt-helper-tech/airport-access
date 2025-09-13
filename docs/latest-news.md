@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 15:24:41（北京时间）**
+🕒 更新时间：**2025年09月13日 15:33:47（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | ‘It’s unacceptable’: Inside growing concerns about Patel’s FBI leadership - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBLWnpyQlM1QXpQOHF1Y1hLcTJicnV3S2w1RG1IdWMxekRscVhBZ0ZXOTlUay1RUnBILUxuVTB5YkJyay01OG9WVlFMSnBQUV9yRzgzZGtjTmctWUJyNHhuSzZWMGp6TE5wRHpocXpwSmMxVV9Wd2NwQjVyWkZ0UVk?oc=5) |
 | UN assembly votes overwhelmingly to back two-state solution to Israel-Palestinian conflict - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPVUlaY1lzclo4Z1hEWl9UdTRvQ2tBSHp0LUlacE5VUE5MM01RVEN5aUZ6TU42a09ZTHo1T0lpQ0FpekFlOHZfT0dtLW9yRlRiWWNZX0FMTWphdGFzYWJNLU5uZFJkWEpEUUZHZk1uQXU1SzhJdUthYzNnZjNXeXIxdzVhOG1icEQ3OVp5TlN6UnZfS0p6STNHblZReFVscnFsRlR5VFlzMTNfRkMzNXFGaDd6cnBtNkQ5UUHSAVZBVV95cUxPeVpyWlV1Ty12MUljWFdpQXBIdWZ4X295RV8yTTBSS25PbnNaZkVmSzFxWG11b1cxLWwwMFhZa0RrOGZSYTlnTllGb1ZRcHBFMFBITURxdw?oc=5) |
 | Trump backs off Chicago National Guard threats - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOTkxqS3lhSTRmMW10REdRVWRQRUtMYm1jeThOMTZRbEZxLVBqaFZMenFLVWtVeTJYbFhEdERpSzJaTkNHWm0ybE5OWEhCTmFHS3ZVeldOY3Q1XzFBYlluYWNQenctNkxTU3JYMnB1VVRXYmVWcXYtU3lpR09kQUR2Tl9jdXVvZFU5eEZfWg?oc=5) |
-| California lawmakers pass SB 79, housing bill that brings dense housing to transit hubs - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxQTWJwamM4SHZWZ2RFX0VfRzZfZW1NZE0xajR5M1pMWGUxeTAxT0Y5SW9pbWlIU0NKWXljaDZkaXZqT0g3dl9EQlV2V0owNlN0T3VLRUVCN2NKVmpLQ3J0WklZbENhck40ZHB3dm05NjJ6aXBEVHBHMFBVcHdXbWNGQUVFNHZVWVJoWjFEQmY3U2RuY2J0YkFxbXZrRFQ2cmVhb0w3YTgwbS1PYWFqRlI4YkpMWFFtZmFlN19nMUo1cWkzYXh6ZmRXVDAtc3pGWFpBTjl5VA?oc=5) |
+| California Legislature passes bill banning most law enforcement from wearing face masks - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQanJ1RlZkeXRrWlJnRFhtUEItMG9lanBxQ3dnZGxQRVVJLTk1QmhoZW5zckJmbkwwRXBqQXlheUtSVi02UEpHRlktVmZhUGFISFJNRGVPTk1ucUgzRkdXSWNEMkF2WXkxSlZ6QnpPc2VTaTN1NHJCTDEtN0tXMV9yMkttckRKVXduTm5KQjVIVFUtd2E1OUVrQm5ESkJiTXpt?oc=5) |
 | Trump says he’ll send the National Guard to Memphis to address crime, 'would have preferred' Chicago - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNLVRhUzdqczU2WHZwMGxUYjNVdlBFczNFYnpKYk5CUjBzbU53anphcmZ2b3hNRjF6NS1Xd0ZoNTROZFEtRmhTVHhuZkZScjFLeks4NWFhYnRkTXRXbk5KWXdfNzRjWFdMREdOblBSMFk2T1hxU0x1U2M2Y1NEVTBYUmdPaUlUaTBQZ3lUOExxNmFOcUpnX2kxT1ZWU3lKUDE5RkphZUJ5NFY3S25MX3Y4bnNER3NRU1lZ?oc=5) |
 | Trump declines to call for unity after Charlie Kirk killing in stunning move - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOOXlqdVo1S3g3LU04ZUtPNGZVbGZVMWpCOWM3ZWFldVpUb2xacTNveS1GenZ1T013LUNET0NyNGJkMlRyWk9jdy1vZm1oN0JYamxvX3hMT0E2b2l1OXAxcFA5VjNuMzNRb3lIaWt3NTN2OTRNM3VrLUNFMkNOcTBsaWtqZnZsYUdXbUVWNmE2dVQ?oc=5) |
 | Missouri Senate passes Trump-backed plan that could help Republicans win an additional US House seat - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPR1RzODU0OWc3TUxfblJ3RkJyQVhmMk5FQmFKN3Y2QjNOMGtYVWJCREJueWlKZzc3NU84Sm9PUVFWSFU3VGZaNTlaWmRxWmRiY3RicUNRd3JKRUxzbXFlenVIY002Sk5lcTNFTkw0bENucWUwdFI4TDJwYWJwajZSV1FGazc3OU1CalJLUW1FV25ieVdlRjZob2JtM0s0aVNqTHc?oc=5) |
