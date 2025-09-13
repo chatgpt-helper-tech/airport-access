@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 10:56:27（北京时间）**
+🕒 更新时间：**2025年09月13日 11:01:04（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Tyler Robinson named suspect in Charlie Kirk shooting: What to know about him and how he was apprehended - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQQWYtdTVXWC03bDJQTVV6SXFRcVlwaGVzeFJDNmdLTUtEM3BXajVBazUwYktmZTdDUkNwcGFyeWhtSG14NHhkT214cXpfdk1OMF9RMDZjWGxQeXl0b0YyM19oMzd3ODhDUUFVbE9VM1R5ME9CeUdTZlBtdGRzYXVyU2JyZ1Bkd0Zpem9jUU51TDBUSWhRNnRacdIBngFBVV95cUxPMU5sbWNpUWxsMWNYcXBmNnpyZWxZVlJUTmY2ZXQxRGJsdGlzeHV3UHlDZHlEWUY4NWFSSTNMQ0ZreFdndEZmRUJxX2lUSk95cTBxem96RDZ4eTBFTWVWQ2piREVZTjZyMy16ODBfXzlJa0l6U0I2Ui0tN0JNdGhHd2pOOUFTdmNlMVRKSGhwOFMzOEpkNFc1MUpkRlZTQQ?oc=5) |
-| Workers are getting fired, placed on leave over Charlie Kirk posts - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQQUdSTTdqQzYxZjRWclpnRFVHYmhPRHRmU0pCWG56Z0lRQTVja18wblRaeE9lNHQ0OHdBdUtrV0lIWWRNZFFUbmNYRDhBYkFNV1ZhbHZhdzlLQXF0SzZmNkFsRDN3cHhSajVsSlNFeEhBT185QVBFOThORjUxQ1JJU1czdUNMSUxYMmkxTHJ6MmtYT0Z1VU10WXFn?oc=5) |
 | ICE agent shoots dead man who tried to drive at agents, officials say - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE54T1JCQXlOeDZCZEdZT3RUYkhHbm5ZN0NKQk9tYkdJM0x5M0hxN2hJckFHV05IZ0F1ZUtpRmxxZUNTT05wc2VIMnZmZC1QOEtCNHFNV3hnYXdBd9IBX0FVX3lxTE1BUXNBMTZzMmNqcEZKWFdVUGQ5NU8zeGdUOWpsLVM1cC1Bb2poUGdTZ0c1UWJIcTQwTHBYYkV3MUZoRTVxSVRFeUdNRFp5bElCd2Vqb1lKX1poZVpIUVI4?oc=5) |
+| Workers are getting fired, placed on leave over Charlie Kirk posts - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQQUdSTTdqQzYxZjRWclpnRFVHYmhPRHRmU0pCWG56Z0lRQTVja18wblRaeE9lNHQ0OHdBdUtrV0lIWWRNZFFUbmNYRDhBYkFNV1ZhbHZhdzlLQXF0SzZmNkFsRDN3cHhSajVsSlNFeEhBT185QVBFOThORjUxQ1JJU1czdUNMSUxYMmkxTHJ6MmtYT0Z1VU10WXFn?oc=5) |
 | CEO whose comments sparked Trump’s Memphis action also pitched him on a big rail merger - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOQlZTX2lxMU16bzVYU1AzYzlJSHJHSEdIRG1lLXFKWDZZSGMzVzJ5S1JRMThoQ2J4ZW53YzIwNUFRLU1LbGEwZk9lX0pWRnhjVnlnd2QxZFF4Yi04bVd1Uzh3NEg5V2lIQ1NqSTEwOFJ5NF82Mi1QVnIwT1dfdGU0RWdlaw?oc=5) |
 | Trump shelves Chicago crackdown plans for now as advisers warn of legal headaches - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNb0drMUowVXk1ZDhHb3JqM3lCYVRZWFI5aDVxUjZHTHlmVmNGb3FZbTczTFd1UDV3d0xOY25paXk3QUlNdHVLRVV2RmIwQ0JoWWRyX1FIMV9ZVUJ6U21CNl9PTEdRcXJwVFZWSFZqaVpJT3E1aExnZUdBUWhueWtFZ1Zn?oc=5) |
 | Contentious housing bill narrowly clears California statehouse - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNOFJVYkZ6VG1fVVVBUlBaS0I3RF94dXhnSTRZOTk4Z1pScVUyNjRWRXFud1FNdkFmWjRyMzItMklTYU04NnJaeE9ZdFRrc1N4Z3N1bGFlMFBaN1IxWml3aTkyQll2LW5fWGs5ZDg3dDN2dzA3dG42S1AwNkhlbzhOSnlhZ3pqS2dYcVlzZ1dfczFteS1fYjQ0?oc=5) |
