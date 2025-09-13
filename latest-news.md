@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 21:56:44（北京时间）**
+🕒 更新时间：**2025年09月13日 22:01:35（北京时间）**
 
 ---
 
@@ -27,11 +27,11 @@
 | Trump ties new Russia sanctions to NATO tariffs on China - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1DTmpwX3h6SnRxN3BEMGNNWm9ZcU5ucVJzZ1MtUHZ4bzJLV3dDMFhQTkh0emdSeV9zV1hRdlBrelFkTE81Q2ZpMXZOWTNFaFJQYXYtY21lM3BKaldER1RtOXNpdHN3ay11aTVzYjA0TEF6bkd2QmVUbmRxdjBOSVE?oc=5) |
 | Illinois Democrats call for investigation into fatal shooting of Franklin Park man by ICE agent - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOSHN5UVAwMG40WEcwSXpCbWJuYnJ6UlRBQzRERkdOelh2S1VOVTZDcXE1bWtUbHNFXzR3TGJmYk5TM1BmRWU1SEZzM1gxMEpqb2FpNDFLY2pnWF90aHNqLTJ1bGZWbzR4WlUtWVROY01ZbG1KZldJWHBpVEl2bzFlUG9ramFUTVFvOTVib1NCVnk1Zw?oc=5) |
 | Netanyahu gambled by targeting Hamas leaders in Qatar. It appears to have backfired - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQRU1wQ21LZXFNWVV0cDcwOUU3XzREblpheG56OTdzV2kwczNaSENwbGxZQVdOVG14dERaVXl0YXdYVHJIdmotUEoyaktSVDlwRkRkOFNWaUxQUFpNU21DUk5oaUZxMlBfUG03dlBGS0N4RlZpSWlPdHNNbzkzcUF1cnZJMXdaV3dhemZQTFkySTU4WGFibHc0dlpadFdXQk9HMkxpSU1XRGpjbUpN?oc=5) |
-| Trump shelves Chicago crackdown plans for now as advisers warn of legal headaches - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNb0drMUowVXk1ZDhHb3JqM3lCYVRZWFI5aDVxUjZHTHlmVmNGb3FZbTczTFd1UDV3d0xOY25paXk3QUlNdHVLRVV2RmIwQ0JoWWRyX1FIMV9ZVUJ6U21CNl9PTEdRcXJwVFZWSFZqaVpJT3E1aExnZUdBUWhueWtFZ1Zn?oc=5) |
 | General Assembly endorses New York Declaration on two-State solution between Israel and Palestine - UN News | [阅读全文](https://news.google.com/rss/articles/CBMiV0FVX3lxTE1oaWFtZkRGOXFaYTlIdGpqSXRtaHdWYTZCbmxJXzlkT1JqejhYamhZd3RtUUZ3M1JhdTVFb1pfMEx0dGV3eU5MeFZlNXFOaVdWMTB5VThaZw?oc=5) |
+| Trump shelves Chicago crackdown plans for now as advisers warn of legal headaches - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNb0drMUowVXk1ZDhHb3JqM3lCYVRZWFI5aDVxUjZHTHlmVmNGb3FZbTczTFd1UDV3d0xOY25paXk3QUlNdHVLRVV2RmIwQ0JoWWRyX1FIMV9ZVUJ6U21CNl9PTEdRcXJwVFZWSFZqaVpJT3E1aExnZUdBUWhueWtFZ1Zn?oc=5) |
 | Meth burn by FBI smokes out Montana animal shelter - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPYkJGcGhZbDhEZlR2VGt5MHlEMUpzUTRDcEJhbWFfdkFXbTRPR0xOall2YTNjV1M2Nk9GRzdQT0lGbld2REQxUWNTTGgxZVJ3SUcxdFJnWUJNSllZdWtVaUtMRFo0V3V6LU10bWR1dGVFT2xra0NWZkNPRF9TR2NtYlBLYWNneWFzQ1hIVGMwMjRnc1JGMjRtX09YVXhuck1ZTVV1SG1QbkQ3UVZ4UTBv?oc=5) |
 | Blue states shunned the National Guard. Tennessee governor is taking a different approach. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQTnhnOVpwWEg5WjIwWWFfOUZndTRXZTJQcVdrSzJoRklSdE96dFlDVHVYN1psWmZTNExpTE9INXZYZjE3REhzZnhONHhxa1o2YWhOZlNCRGp6TnJtSy04cUJxY2d5TXl1cjFHYmE3Q2F1VXJUemdvamhGN29LRGpqVXJqSWpDQkVkeFB3NXhJbm9QS1NZa0pRR1czaG1YTDNFM1BNRm9FMlJLV1BNZGc?oc=5) |
-| Workers are getting fired, placed on leave over Charlie Kirk posts - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQQUdSTTdqQzYxZjRWclpnRFVHYmhPRHRmU0pCWG56Z0lRQTVja18wblRaeE9lNHQ0OHdBdUtrV0lIWWRNZFFUbmNYRDhBYkFNV1ZhbHZhdzlLQXF0SzZmNkFsRDN3cHhSajVsSlNFeEhBT185QVBFOThORjUxQ1JJU1czdUNMSUxYMmkxTHJ6MmtYT0Z1VU10WXFn?oc=5) |
+| Families on Obamacare brace for higher health care premiums next year - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOcFl5blZpSXBlb3djNzhUbHB6QWFvQWlGRDhqaDNhYmZidE56Uml5OTR6VkY0ZTJqZURzdG1qdnZlTlhIcGFRSmR0OXRpVko3dUZaRFFreGRUMzNjRmMtWS1veFRwcXByeEN2YkdfU2d2TklNQVd1RnF0MFFzdnpZN0ZuUWcwSFEwSjFtaTJUTXowM0pFRTZhXy1uTDcxT2toUHBTZVVWONIBVkFVX3lxTE1zMUNfTnF1S29fY2tITlFObjZDeTVvYlhRQTRKRk40Y0RHbmwwTVJQcWd5dzB4YlBGQ0tWTDh5OGZHNlEyTjA5TF9QRHNDQThjUDlCQU93?oc=5) |
 | Nepal’s New Government Calls Elections. Its Critics Cry Foul. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQQ1dFRDdnNjlJSTBzeFY4V3JMUDFtS214SUFYZXFycEw5ZmFqX19oNEpjZ0hKb1NTVWJwZnRjV2xyZ3dHclRSUjh6cDFwTXdicEpuZ3VZdjUyem51MEhMcTU2WmlHbFk5M2hoYjNGdE1WS2g5WVl4ZGVkeHhmX0lrVFpBQnQzSVNnTGJBME00UklGLUtGUlB1SA?oc=5) |
 
 ---
