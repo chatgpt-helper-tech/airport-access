@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 10:09:53（北京时间）**
+🕒 更新时间：**2025年09月13日 10:16:35（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Tyler Robinson named suspect in Charlie Kirk shooting: What to know about him and how he was apprehended - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQQWYtdTVXWC03bDJQTVV6SXFRcVlwaGVzeFJDNmdLTUtEM3BXajVBazUwYktmZTdDUkNwcGFyeWhtSG14NHhkT214cXpfdk1OMF9RMDZjWGxQeXl0b0YyM19oMzd3ODhDUUFVbE9VM1R5ME9CeUdTZlBtdGRzYXVyU2JyZ1Bkd0Zpem9jUU51TDBUSWhRNnRacdIBngFBVV95cUxPMU5sbWNpUWxsMWNYcXBmNnpyZWxZVlJUTmY2ZXQxRGJsdGlzeHV3UHlDZHlEWUY4NWFSSTNMQ0ZreFdndEZmRUJxX2lUSk95cTBxem96RDZ4eTBFTWVWQ2piREVZTjZyMy16ODBfXzlJa0l6U0I2Ui0tN0JNdGhHd2pOOUFTdmNlMVRKSGhwOFMzOEpkNFc1MUpkRlZTQQ?oc=5) |
-| Man in Chicago fatally shot by ICE officer after allegedly resisting arrest - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPQ29UV3I3ZzRETHYxYzlRVlJwd1VTc0lDX3NhTFlZQy1lLUYwR244M3FYbmdoSkVXeWJIbm9wV2hWU09BT180QTJVTENvS0VhblFuWGhhWGpqUzJaVVMxSmN6aGtMbVFSb29vYVAtN3JyODNiUHdBTlBJTWYwWDZ2cTFDbzlFLWdPOWlYNWF0aw?oc=5) |
+| ICE officer shoots and kills suspect who dragged officer with car near Chicago, DHS says - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPTnEtTjZpVEJoVU1qM3Y2STRFNEJZNjhhT01EWjZFSmlqSWVxZEhfNmQ0dDRiV2EwZ0N3dnVfQi15aDZsbXFlU1pscndOalR5THlxd1UzMGZWQmhXOTlPVHZmYk52Nm9iYXdSU2xBNG5KdU5pa2dYNERidjVKU0l6QXFjYmhHVG9qSVZWTWpMVURjd2lQOVBKZFVBMUVEMGVvajJ6RG9nUERyQkxwMnlCTXkzNzRfX3A4azhlNm1zZ1BIVm_SAcgBQVVfeXFMUHM3SWJPNE1QNmNQZmtrbi1STGt0T1pEYWhpV1ZJSENQVnBqM0lkbEJXbTA5SVYxdXpfRmlPbXc3am9pWmRRTWJQcVZTZFFrWmM5dzE0R0xrMXo2SVpYN0V3R2NrWm5MWlZhSlE0bTZWNXJMcmM2TjFFaUNoN200OE5xb2JNMWZrUUNPeVExUFFxQlVGblpuRTVLVkJqckFIb1VuWnI0WV9uWVNsUlZsRHRDXzVZemFZejJkbEt3eUpITnZSR2tXN3g?oc=5) |
 | CEO whose comments sparked Trump’s Memphis action also pitched him on a big rail merger - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOQlZTX2lxMU16bzVYU1AzYzlJSHJHSEdIRG1lLXFKWDZZSGMzVzJ5S1JRMThoQ2J4ZW53YzIwNUFRLU1LbGEwZk9lX0pWRnhjVnlnd2QxZFF4Yi04bVd1Uzh3NEg5V2lIQ1NqSTEwOFJ5NF82Mi1QVnIwT1dfdGU0RWdlaw?oc=5) |
 | Contentious housing bill narrowly clears California statehouse - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNOFJVYkZ6VG1fVVVBUlBaS0I3RF94dXhnSTRZOTk4Z1pScVUyNjRWRXFud1FNdkFmWjRyMzItMklTYU04NnJaeE9ZdFRrc1N4Z3N1bGFlMFBaN1IxWml3aTkyQll2LW5fWGs5ZDg3dDN2dzA3dG42S1AwNkhlbzhOSnlhZ3pqS2dYcVlzZ1dfczFteS1fYjQ0?oc=5) |
 | Missouri Senate passes Trump-backed plan that could help Republicans win an additional US House seat - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPR1RzODU0OWc3TUxfblJ3RkJyQVhmMk5FQmFKN3Y2QjNOMGtYVWJCREJueWlKZzc3NU84Sm9PUVFWSFU3VGZaNTlaWmRxWmRiY3RicUNRd3JKRUxzbXFlenVIY002Sk5lcTNFTkw0bENucWUwdFI4TDJwYWJwajZSV1FGazc3OU1CalJLUW1FV25ieVdlRjZob2JtM0s0aVNqTHc?oc=5) |
