@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 16:24:03（北京时间）**
+🕒 更新时间：**2025年09月13日 16:32:47（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | Woman held by Taliban warns British couple 'dying' in prison | [阅读全文](https://www.bbc.com/news/articles/cm28jd2enz5o?at_medium=RSS&at_campaign=rss) |
 | Mystery of British woman who disappeared from a luxury Caribbean yacht | [阅读全文](https://www.bbc.com/news/articles/c4g2zv1px7jo?at_medium=RSS&at_campaign=rss) |
 | Coldplay get giddy as they smash Wembley Stadium record | [阅读全文](https://www.bbc.com/news/articles/c306m86y824o?at_medium=RSS&at_campaign=rss) |
-| 'We owe it to Charlie': Students at school where Kirk was killed vow to continue his debates | [阅读全文](https://www.bbc.com/news/articles/c9dxexl7glvo?at_medium=RSS&at_campaign=rss) |
+| 'We owe it to Charlie': Students at university where Kirk was killed vow to continue his debates | [阅读全文](https://www.bbc.com/news/articles/c9dxexl7glvo?at_medium=RSS&at_campaign=rss) |
 | BBC reports from house linked to Charlie Kirk shooting suspect | [阅读全文](https://www.bbc.com/news/videos/cd635wwgz85o?at_medium=RSS&at_campaign=rss) |
 | An unlikely end to a 33-hour hunt for Kirk murder suspect | [阅读全文](https://www.bbc.com/news/articles/c784end1wxvo?at_medium=RSS&at_campaign=rss) |
 | How Kirk went from teenage activist to one of the president's inner circle | [阅读全文](https://www.bbc.com/news/articles/c33r4kjez6no?at_medium=RSS&at_campaign=rss) |
