@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月14日 00:24:39（北京时间）**
+🕒 更新时间：**2025年09月14日 00:33:05（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Exclusive: "Silly" to worry about SCOTUS overturning tariffs, Lutnick says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE01VDZVSV95ZDI2cTA0YjhINkdvVWVjUEFmdmZJMGNNX1BQUEhrWEIwRkp3emY1c25RWXBwdmJ4SGpxUXFZY0V6X096bjFFMllBYmtldXd6dU5qUUhPcFBBenlQbTRZRnhuQThVWGJFb0M2RUhDTnJ3?oc=5) |
 | Meth burn by FBI smokes out Montana animal shelter - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPYkJGcGhZbDhEZlR2VGt5MHlEMUpzUTRDcEJhbWFfdkFXbTRPR0xOall2YTNjV1M2Nk9GRzdQT0lGbld2REQxUWNTTGgxZVJ3SUcxdFJnWUJNSllZdWtVaUtMRFo0V3V6LU10bWR1dGVFT2xra0NWZkNPRF9TR2NtYlBLYWNneWFzQ1hIVGMwMjRnc1JGMjRtX09YVXhuck1ZTVV1SG1QbkQ3UVZ4UTBv?oc=5) |
 | Families on Obamacare brace for higher health care premiums next year - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOcFl5blZpSXBlb3djNzhUbHB6QWFvQWlGRDhqaDNhYmZidE56Uml5OTR6VkY0ZTJqZURzdG1qdnZlTlhIcGFRSmR0OXRpVko3dUZaRFFreGRUMzNjRmMtWS1veFRwcXByeEN2YkdfU2d2TklNQVd1RnF0MFFzdnpZN0ZuUWcwSFEwSjFtaTJUTXowM0pFRTZhXy1uTDcxT2toUHBTZVVWONIBVkFVX3lxTE1zMUNfTnF1S29fY2tITlFObjZDeTVvYlhRQTRKRk40Y0RHbmwwTVJQcWd5dzB4YlBGQ0tWTDh5OGZHNlEyTjA5TF9QRHNDQThjUDlCQU93?oc=5) |
+| Political violence is on the rise in America. What’s driving it? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOd3NENjJMeDBfRFZ5VVVqMFFVc0d5THJ6TWc4em9nLU1NS19mSE9kUjBrQUhaam01QnYtelhRNGkzeHRFUVc4a05DM1pZZ2xWNTBvTTIybWtQMTZTbVN5ck5ZMUZORUZXUlZqaExzUDJLa3hPbld3OGNZczNpcWpnYnE1NDhCYnlxM0dYT0ZVQ1hhcHJDVHBFeENjWm9WRDR1WjRSdVlXZjdoZw?oc=5) |
 | Curfew is lifted and calm returns to Nepal in wake of mass protests that killed at least 51 people - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxObW9obzVNM01NVzBJbkdwMDFDRWFnamxRRWhOTTVfaXpFb1VBcDY3cUpLemI3ZWVPeTNMZXB3QjhDcHlLVm1Pd1BGaTBmMFpiTm9LYW9nN1dsQlFpZEpvazh4SWlUZmdUVkYxcUZPTGpDeVgzZ1VjRURvSFlLX185MXZTZzdEZTN0VEtleF9wSE1DNDdvUUNaa01sSQ?oc=5) |
-| Thousands protest against immigration, Islam in London - The Jerusalem Post | [阅读全文](https://news.google.com/rss/articles/CBMiX0FVX3lxTFBWUWJGUFBBWklFS2xQaVQzZWY4SFlDSURXbWJ5ckNIZGtrTjR6ZWZrSXRHWU54V1Qzc0xvUzFQWWM2QllraWE0YmY1anJqRlBpb1ZkeGhaLTl1Sk5iYXF3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
