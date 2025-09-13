@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 16:57:12（北京时间）**
+🕒 更新时间：**2025年09月13日 17:02:00（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | What we know about Tyler Robinson, the suspect who allegedly killed Charlie Kirk - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQRVAtTEZmcDVRZWR3LTAwNXBPRy0wSXNSTVZOZHpEdkxDd21wNl9fdERBZ2V2emtYeVFBR3hwTnhWWDlPY2hjUmNKZzJnNXFoeFpfU29NNjFGanFLXzV6N0g2ZWg3QzBZblVqeUw5c21USEVKOVFaVnN0QXZGajUwM1RKQmpxQ0ZWNENOVGVZU1hhR01PQjdvZl9fVjIyamFnOVFuXzVicWZUN1p6OGc?oc=5) |
 | ICE agent shoots dead man who tried to drive at agents, officials say - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE54T1JCQXlOeDZCZEdZT3RUYkhHbm5ZN0NKQk9tYkdJM0x5M0hxN2hJckFHV05IZ0F1ZUtpRmxxZUNTT05wc2VIMnZmZC1QOEtCNHFNV3hnYXdBd9IBX0FVX3lxTE1BUXNBMTZzMmNqcEZKWFdVUGQ5NU8zeGdUOWpsLVM1cC1Bb2poUGdTZ0c1UWJIcTQwTHBYYkV3MUZoRTVxSVRFeUdNRFp5bElCd2Vqb1lKX1poZVpIUVI4?oc=5) |
-| Trump backs off Chicago National Guard threats - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOTkxqS3lhSTRmMW10REdRVWRQRUtMYm1jeThOMTZRbEZxLVBqaFZMenFLVWtVeTJYbFhEdERpSzJaTkNHWm0ybE5OWEhCTmFHS3ZVeldOY3Q1XzFBYlluYWNQenctNkxTU3JYMnB1VVRXYmVWcXYtU3lpR09kQUR2Tl9jdXVvZFU5eEZfWg?oc=5) |
+| Trump shelves Chicago crackdown plans for now as advisers warn of legal headaches - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNb0drMUowVXk1ZDhHb3JqM3lCYVRZWFI5aDVxUjZHTHlmVmNGb3FZbTczTFd1UDV3d0xOY25paXk3QUlNdHVLRVV2RmIwQ0JoWWRyX1FIMV9ZVUJ6U21CNl9PTEdRcXJwVFZWSFZqaVpJT3E1aExnZUdBUWhueWtFZ1Zn?oc=5) |
 | California Legislature passes bill banning most law enforcement from wearing face masks - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQanJ1RlZkeXRrWlJnRFhtUEItMG9lanBxQ3dnZGxQRVVJLTk1QmhoZW5zckJmbkwwRXBqQXlheUtSVi02UEpHRlktVmZhUGFISFJNRGVPTk1ucUgzRkdXSWNEMkF2WXkxSlZ6QnpPc2VTaTN1NHJCTDEtN0tXMV9yMkttckRKVXduTm5KQjVIVFUtd2E1OUVrQm5ESkJiTXpt?oc=5) |
 | Trump says he'll send National Guard to 'deeply troubled' Memphis - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxORjFNdXhCbFd3bHFOOFJRXzJDcUpBODlGTlNFTDBYYVVCZGNUVGlWWk5UbmFidU9wcnVWZksyWDNKMVRra2JPMVVteU9Oc2NFVm5oaVR3aW9TYm5BRlRDTFhOcjFhd2hoeDA1c2hiaXM5MlZfNTZQemxSNzYxbGsyLUJGYjBqN19BV19hUjZTeFhmRVFqZ0t0bmNoR2R2WklLaHhzeNIBqgFBVV95cUxPNnRvZ3plMTJjMVM3Y01uTnFiQnVRdzVFWi1teTdQWVRCdkY4OTN2eVVwc1B3TmR6YjcyODEyU2xHeGNQeTZmcFgzb1RoclltbmlaTUQtNVZqOGVHN3kwRWNYaGFKUUFNcWRETksxd3NFRnFpa0FpN2I1N2xGWGNnbkhzWVNnTk50c204ZlRPcE15WGV4NkIyWmhKMlhMU19rZ1dvX2hjS0xNZw?oc=5) |
 | Update on U.S. Naval Academy Security Concern - navy.mil | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxOLS11a3F4V3FWbzJGVENJdV95WmpiaFhnSzdKZ2hwUkNSTzA0a2NGYVR2dEJNaV9VWHNLLXJQakFCVFJDM284UzRRTHZjekZBY3BRUEk1VDV2XzFiZHNQRG9ncFBlOWMzdThtQk5INW5pdE53Q0g3Ny1mRWRLRE84dklraEY2RG94NWhONFh4czdvb2hjbkdvSGdOeER5ekJSTjRUNU5mWFQ1TmJEQzhGSjc2T3ptUnpUNW0wNQ?oc=5) |
