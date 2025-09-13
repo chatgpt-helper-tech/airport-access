@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 08:00:26（北京时间）**
+🕒 更新时间：**2025年09月13日 08:08:14（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | CEO whose comments sparked Trump’s Memphis action also pitched him on a big rail merger - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOQlZTX2lxMU16bzVYU1AzYzlJSHJHSEdIRG1lLXFKWDZZSGMzVzJ5S1JRMThoQ2J4ZW53YzIwNUFRLU1LbGEwZk9lX0pWRnhjVnlnd2QxZFF4Yi04bVd1Uzh3NEg5V2lIQ1NqSTEwOFJ5NF82Mi1QVnIwT1dfdGU0RWdlaw?oc=5) |
 | Missouri Senate passes Trump-backed plan that could help Republicans win an additional US House seat - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPR1RzODU0OWc3TUxfblJ3RkJyQVhmMk5FQmFKN3Y2QjNOMGtYVWJCREJueWlKZzc3NU84Sm9PUVFWSFU3VGZaNTlaWmRxWmRiY3RicUNRd3JKRUxzbXFlenVIY002Sk5lcTNFTkw0bENucWUwdFI4TDJwYWJwajZSV1FGazc3OU1CalJLUW1FV25ieVdlRjZob2JtM0s0aVNqTHc?oc=5) |
 | News: NATO launches “Eastern Sentry” to bolster posture along eastern flank, 12-Sep.-2025 - NATO | [阅读全文](https://news.google.com/rss/articles/CBMiX0FVX3lxTE8zdHdBOXFkUW1QTFM1dlZJX28wSjYtbWFSd09COHZmZEhqdGdFRmtXaW1TVF9SX3N1czFtRWJDN2JXcERWa2l6cXFKNTV2VFpVTGo4RVRZbFRYSlVQNGtR?oc=5) |
+| California lawmakers pass SB 79, housing bill that brings dense housing to transit hubs - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxQTWJwamM4SHZWZ2RFX0VfRzZfZW1NZE0xajR5M1pMWGUxeTAxT0Y5SW9pbWlIU0NKWXljaDZkaXZqT0g3dl9EQlV2V0owNlN0T3VLRUVCN2NKVmpLQ3J0WklZbENhck40ZHB3dm05NjJ6aXBEVHBHMFBVcHdXbWNGQUVFNHZVWVJoWjFEQmY3U2RuY2J0YkFxbXZrRFQ2cmVhb0w3YTgwbS1PYWFqRlI4YkpMWFFtZmFlN19nMUo1cWkzYXh6ZmRXVDAtc3pGWFpBTjl5VA?oc=5) |
 | Rubio vows US response following conviction of Brazil's Bolsonaro - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQSmUtTFJoMnFGSUI4b01pOTdmM3JMLUpKOG1QaWozc3NSMXhOUDk3WTVYN0FlSTRaVXRIeEFXYzMzUlVvakRBYklFZUZ6a0ZsOEhzTTVteTE3dWQ1UGV0dThfY01YMlAyLWtKNmpUeXJQZnRGdi1VTGpXc2FpbmRldHNRTFdscFJ6Y1JMMVBsR0ZfR3lXVjVza0tiVFo0aWsyLS1zb3p0Q2VZaXVrNVlLSkVB?oc=5) |
 | Trump declines to call for unity after Charlie Kirk killing in stunning move - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOOXlqdVo1S3g3LU04ZUtPNGZVbGZVMWpCOWM3ZWFldVpUb2xacTNveS1GenZ1T013LUNET0NyNGJkMlRyWk9jdy1vZm1oN0JYamxvX3hMT0E2b2l1OXAxcFA5VjNuMzNRb3lIaWt3NTN2OTRNM3VrLUNFMkNOcTBsaWtqZnZsYUdXbUVWNmE2dVQ?oc=5) |
 | E.P.A. To Stop Collecting Emissions Data From Polluters - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQX0l3X2VIUGZhc2RUcUZHQ3YtREo1WHNvZ2ROcUJqWFZNY3FvLUpzczlVdEptRUNraUo3VXpueTAyeVFLUXJKYXUzZGlMdTZhY1NiNkpxcGhTZXdMXzlXOGM3c2NMWTVuOUEzMV92SS1DTldfN3pxYnFsQURqajJTRDY1XzQ5cmFSYVE?oc=5) |
-| U.S. Secret Service puts agent on leave who wrote negative Facebook post about Charlie Kirk, officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQWmp4Q3FHNC1Xb2E0SnVuQ2ZjY0txLTEzbFZZbjF4WWVQSkdBb3BnZUFnRHRuaDFKOExLdHFrS0xNU3A2cy1hOHc1NXU5R2tVSU1UaGpzNEFiNXpYUy1Kd29lSXRoSWdReGtfNWI0d1dSYTYzZms5QWstVTA3bWFidDlSbFk4QmJuZlgta2VyT0U2b0w40gGaAUFVX3lxTE1rdU1QZ3FPclhCeHA3eUh6ZTdvTXdRWEZycGlkWnJIOHp3Rm5yaFVNQTMxSDNrcWcwU2kzYXNMSDRKUGR1TWVHd0NvOG1hWUs2RUwyV0xxOEVpaXN2eWRFM24wTkJiZUNMTm5iZ2hMeDU1TGJJRXh0UGZzalNudmRXMzE3MWNFMWlfY3pDR3o3UmR4bldRaV8ySnc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
