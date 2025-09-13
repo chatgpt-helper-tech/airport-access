@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 15:16:51（北京时间）**
+🕒 更新时间：**2025年09月13日 15:24:41（北京时间）**
 
 ---
 
@@ -8,7 +8,6 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| 'I will never let your legacy die' - Charlie Kirk's widow gives tearful address after shooting | [阅读全文](https://www.bbc.com/news/articles/cz9je8lxge4o?at_medium=RSS&at_campaign=rss) |
 | Charlie Kirk's suspected killer brought into custody after confessing to father | [阅读全文](https://www.bbc.com/news/articles/cly7417ge50o?at_medium=RSS&at_campaign=rss) |
 | Starmer defended Mandelson after officials knew about Epstein emails, BBC understands | [阅读全文](https://www.bbc.com/news/articles/c5yq455w36vo?at_medium=RSS&at_campaign=rss) |
 | Nine Met Police officers suspended after BBC investigation | [阅读全文](https://www.bbc.com/news/articles/cn839398xzpo?at_medium=RSS&at_campaign=rss) |
@@ -18,6 +17,7 @@
 | 'We owe it to Charlie': Students at school where Kirk was killed vow to continue his debates | [阅读全文](https://www.bbc.com/news/articles/c9dxexl7glvo?at_medium=RSS&at_campaign=rss) |
 | BBC reports from house linked to Charlie Kirk shooting suspect | [阅读全文](https://www.bbc.com/news/videos/cd635wwgz85o?at_medium=RSS&at_campaign=rss) |
 | An unlikely end to a 33-hour hunt for Kirk murder suspect | [阅读全文](https://www.bbc.com/news/articles/c784end1wxvo?at_medium=RSS&at_campaign=rss) |
+| How Kirk went from teenage activist to one of the president's inner circle | [阅读全文](https://www.bbc.com/news/articles/c33r4kjez6no?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | Trump says he’ll send the National Guard to Memphis to address crime, 'would have preferred' Chicago - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNLVRhUzdqczU2WHZwMGxUYjNVdlBFczNFYnpKYk5CUjBzbU53anphcmZ2b3hNRjF6NS1Xd0ZoNTROZFEtRmhTVHhuZkZScjFLeks4NWFhYnRkTXRXbk5KWXdfNzRjWFdMREdOblBSMFk2T1hxU0x1U2M2Y1NEVTBYUmdPaUlUaTBQZ3lUOExxNmFOcUpnX2kxT1ZWU3lKUDE5RkphZUJ5NFY3S25MX3Y4bnNER3NRU1lZ?oc=5) |
 | Trump declines to call for unity after Charlie Kirk killing in stunning move - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOOXlqdVo1S3g3LU04ZUtPNGZVbGZVMWpCOWM3ZWFldVpUb2xacTNveS1GenZ1T013LUNET0NyNGJkMlRyWk9jdy1vZm1oN0JYamxvX3hMT0E2b2l1OXAxcFA5VjNuMzNRb3lIaWt3NTN2OTRNM3VrLUNFMkNOcTBsaWtqZnZsYUdXbUVWNmE2dVQ?oc=5) |
 | Missouri Senate passes Trump-backed plan that could help Republicans win an additional US House seat - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPR1RzODU0OWc3TUxfblJ3RkJyQVhmMk5FQmFKN3Y2QjNOMGtYVWJCREJueWlKZzc3NU84Sm9PUVFWSFU3VGZaNTlaWmRxWmRiY3RicUNRd3JKRUxzbXFlenVIY002Sk5lcTNFTkw0bENucWUwdFI4TDJwYWJwajZSV1FGazc3OU1CalJLUW1FV25ieVdlRjZob2JtM0s0aVNqTHc?oc=5) |
-| Evergreen High School Shooter’s Online Activity Reveals Fascination with Mass Shootings, White Supremacy - Anti-Defamation League | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPd1VtSkdjQUQ2elJQN1ctcWVHWElqY3RULVp1dVIyXzNfb3pzVkdubkpmX2p5elhUbllMWC1xOW91MklsVjR5MHhtUFl0X0JSdlBZd3B0Vjh2V3Q5anlxOTI2TnFNaHM3Q1cwZjlhMHRIYXVfZlFlZFk1a0lyWnp6Ukp0OUtrUThMTXBieDJJcmgwdk52R0pIbTlqaHFsZngzU2VDZzNNTTZTQl9oMVgzU292WVBwa29YOHBN?oc=5) |
+| Federal agencies threaten, discipline employees for criticizing or mocking Charlie Kirk - Government Executive | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxQczBYU014bWJaLTVibU1wX214LXRKaHQ2ZG5QOXl4SEIwdEwyZ1dJMmZJYnE3aUxtYzctT1V0UUUtdUdLc3dIdWlZSjNyMnFyRTA2OHVldkQ5WmdHVTg4bXZPakNjamZsWloxSlgycWc2R1RDdm1fQXJPa1kzazczbWRSd1I3VS0tSHk0Y0M4S1o0V0RtbC1WMlZ2eG5EdGRMUjBGb2lVTEtMZjRLSHB2bVkwT1V4cmo5RXJNei1KOFVldExpZldjNDdQREJSZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
