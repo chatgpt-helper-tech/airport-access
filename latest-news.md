@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 13:58:00（北京时间）**
+🕒 更新时间：**2025年09月13日 14:01:45（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trump backs off Chicago National Guard threats - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOTkxqS3lhSTRmMW10REdRVWRQRUtMYm1jeThOMTZRbEZxLVBqaFZMenFLVWtVeTJYbFhEdERpSzJaTkNHWm0ybE5OWEhCTmFHS3ZVeldOY3Q1XzFBYlluYWNQenctNkxTU3JYMnB1VVRXYmVWcXYtU3lpR09kQUR2Tl9jdXVvZFU5eEZfWg?oc=5) |
 | California lawmakers pass SB 79, housing bill that brings dense housing to transit hubs - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxQTWJwamM4SHZWZ2RFX0VfRzZfZW1NZE0xajR5M1pMWGUxeTAxT0Y5SW9pbWlIU0NKWXljaDZkaXZqT0g3dl9EQlV2V0owNlN0T3VLRUVCN2NKVmpLQ3J0WklZbENhck40ZHB3dm05NjJ6aXBEVHBHMFBVcHdXbWNGQUVFNHZVWVJoWjFEQmY3U2RuY2J0YkFxbXZrRFQ2cmVhb0w3YTgwbS1PYWFqRlI4YkpMWFFtZmFlN19nMUo1cWkzYXh6ZmRXVDAtc3pGWFpBTjl5VA?oc=5) |
 | CEO whose comments sparked Trump’s Memphis action also pitched him on a big rail merger - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOQlZTX2lxMU16bzVYU1AzYzlJSHJHSEdIRG1lLXFKWDZZSGMzVzJ5S1JRMThoQ2J4ZW53YzIwNUFRLU1LbGEwZk9lX0pWRnhjVnlnd2QxZFF4Yi04bVd1Uzh3NEg5V2lIQ1NqSTEwOFJ5NF82Mi1QVnIwT1dfdGU0RWdlaw?oc=5) |
+| Missouri passes Trump-backed redistricting plan to help the GOP in the midterms - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPMmxBZk9GWVlDX0NhMGUxVzdPOF9GT3lQUnFUbGJOYnM5b05yc1ZkbTZIZ1JfeENUWWw0Tlp1c002WXRwelI1d05YS2RjM3BoOTQwcmVVQWlSVk95YUdOT0g0TXdHSS13dG5semt2TXB1TmxMWlVwSEdMSDhfZERQbFZtTEk2WkUzY1E?oc=5) |
 | Trump declines to call for unity after Charlie Kirk killing in stunning move - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOOXlqdVo1S3g3LU04ZUtPNGZVbGZVMWpCOWM3ZWFldVpUb2xacTNveS1GenZ1T013LUNET0NyNGJkMlRyWk9jdy1vZm1oN0JYamxvX3hMT0E2b2l1OXAxcFA5VjNuMzNRb3lIaWt3NTN2OTRNM3VrLUNFMkNOcTBsaWtqZnZsYUdXbUVWNmE2dVQ?oc=5) |
-| Missouri Senate passes Trump-backed plan that could help Republicans win an additional US House seat - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPR1RzODU0OWc3TUxfblJ3RkJyQVhmMk5FQmFKN3Y2QjNOMGtYVWJCREJueWlKZzc3NU84Sm9PUVFWSFU3VGZaNTlaWmRxWmRiY3RicUNRd3JKRUxzbXFlenVIY002Sk5lcTNFTkw0bENucWUwdFI4TDJwYWJwajZSV1FGazc3OU1CalJLUW1FV25ieVdlRjZob2JtM0s0aVNqTHc?oc=5) |
-| Uncle of Charlotte stabbing victim speaks out - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNQnpnVVlFUzFGUTU5R0hnMlN1RXc2cFo5cHhPS0doaWtOOEJpS3J5WEtTSEpnU05rbUNiNXVBSUU2T2lsRjFGUmU5Tmh5OGRUWFhnYlBCNFNLNFZoNFZkOEJrUk16X0d4YXhvVlBYUVJRVEM4X3B3MjNaeTVGVVZyS0F4OG10bW02NGRXNmpCaEhoLVpwNHY00gGcAUFVX3lxTE1MamMycHNzaW93c0d2N3ozNDlqWVNNdUUzcG5oaDd5dldmeVFFVDBNSG56a3M4Y2JrdjlFNnQtcWg1NE9HdklGTXd0V2p5N0hNZDVqQVZPdmNnQWtpc1BiWnVTYWp6MFBfNEh5Q1pFWnZOWC1zdF92SjY4WWRnMXYzUjVISWpubzdJNmZZTjVzeUkyVE5xSzMzaVlRQg?oc=5) |
+| North Carolina Republicans blame Democrats for 'woke' policies they say contributed to Charlotte light-rail stabbing - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPLV8ta3N3Y1lIT3J2d3kzdGwwenh2OV9oWmNFQlVJREtFdzR3ZUJaWFYwYnVuS0RDU2tQTmk1NGd1Yy12MGpydFhMWEc5RHhlS1dDckFsREo3bnBmVGRhLW1XTUxWZkNJUy1vM20zZzRLRjVNNmE3dVlLQmNaU25vbVNndFZUOXFSeGE3TXJod2tEa1VNMXJBV2RLLUJ1X3A5dVU5NlVLZDRyQUZuR1dGdGJ1Y2xxWlNxcjZR0gHAAUFVX3lxTFBFVWRjSUpWQzRFUnkxTUVNMmljejZiUEtFejF5M1YwektwY2ZUQjA1aE5SSzlFcmxGbHZxOUM5MXdlODhIbkhGSTVNYks0UWxaLUd4dXRuWFdyQzFCZTNmWk5pRnhmeEp3N2tRU2xoQklWbVhpWDFZRlFPZWM1Y0hDNzhQY0tDZ05INU81V19CRVFHNWpNOXVBellVN3k1YVhVUUJOUUFRTUpqaTZUU1ZGTExWTk5ZQ1A1Ty1BOS1wcA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
