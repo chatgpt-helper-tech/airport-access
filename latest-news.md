@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月14日 04:49:07（北京时间）**
+🕒 更新时间：**2025年09月14日 04:57:47（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | Dozens of officers injured as up to 150,000 join Tommy Robinson rally | [阅读全文](https://www.bbc.com/news/articles/cwydezxl0xlo?at_medium=RSS&at_campaign=rss) |
 | With Trump's state visit days away, blame game begins over Mandelson scandal | [阅读全文](https://www.bbc.com/news/articles/cp8j2d5xm78o?at_medium=RSS&at_campaign=rss) |
 | No 10 questioned Mandelson on Epstein links before appointment | [阅读全文](https://www.bbc.com/news/articles/cn82rdmzr20o?at_medium=RSS&at_campaign=rss) |
-| 'I will never let your legacy die' - Charlie Kirk's widow gives tearful address after shooting | [阅读全文](https://www.bbc.com/news/articles/cz9je8lxge4o?at_medium=RSS&at_campaign=rss) |
 | Trump 'ready' to sanction Russia if Nato nations stop buying its oil | [阅读全文](https://www.bbc.com/news/articles/c62zxp1y5lwo?at_medium=RSS&at_campaign=rss) |
 | 'We escaped certain death': Israel intensifies Gaza City bombardment, forcing families to flee | [阅读全文](https://www.bbc.com/news/articles/c20v15j9l3wo?at_medium=RSS&at_campaign=rss) |
 | Davina McCall engaged to partner Michael Douglas | [阅读全文](https://www.bbc.com/news/articles/cwynd9v6zl3o?at_medium=RSS&at_campaign=rss) |
 | Mystery of British woman who disappeared from a luxury Caribbean yacht | [阅读全文](https://www.bbc.com/news/articles/c4g2zv1px7jo?at_medium=RSS&at_campaign=rss) |
 | What I wish I'd known: Four students on life as a fresher | [阅读全文](https://www.bbc.com/news/articles/ce801vd85q0o?at_medium=RSS&at_campaign=rss) |
 | Team Conrad or Team Jeremiah? The TV love triangle that sparked a fan frenzy | [阅读全文](https://www.bbc.com/news/articles/cvgr8xy5dlro?at_medium=RSS&at_campaign=rss) |
+| Defiant nuns flee care home for their abandoned convent in the Alps | [阅读全文](https://www.bbc.com/news/articles/c5y8r2gk0vyo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
