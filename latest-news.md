@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 12:32:33（北京时间）**
+🕒 更新时间：**2025年09月13日 12:40:14（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Israeli intelligence agency balked at Netanyahu’s strike in Qatar - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPWkJCN3R5LUlQN3hVeE9ncFViSEd4VzNPWGhRMXVReVItUGRNZkZnM213ODBMUmZ2Vjk2S2dVOUtBUHVOenlDaUl6LTltN3dkMlFQZVZvWTNpWUpNR2J4LWl4dFM5Sl9qaXJCbkE4MF95ZGN6SDdzSDdta2RaUDFkRWtkQmp1ekc2?oc=5) |
 | Trump declines to call for unity after Charlie Kirk killing in stunning move - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOOXlqdVo1S3g3LU04ZUtPNGZVbGZVMWpCOWM3ZWFldVpUb2xacTNveS1GenZ1T013LUNET0NyNGJkMlRyWk9jdy1vZm1oN0JYamxvX3hMT0E2b2l1OXAxcFA5VjNuMzNRb3lIaWt3NTN2OTRNM3VrLUNFMkNOcTBsaWtqZnZsYUdXbUVWNmE2dVQ?oc=5) |
 | Missouri Senate passes Trump-backed plan that could help Republicans win an additional US House seat - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPR1RzODU0OWc3TUxfblJ3RkJyQVhmMk5FQmFKN3Y2QjNOMGtYVWJCREJueWlKZzc3NU84Sm9PUVFWSFU3VGZaNTlaWmRxWmRiY3RicUNRd3JKRUxzbXFlenVIY002Sk5lcTNFTkw0bENucWUwdFI4TDJwYWJwajZSV1FGazc3OU1CalJLUW1FV25ieVdlRjZob2JtM0s0aVNqTHc?oc=5) |
-| Uncle of Charlotte stabbing victim speaks out - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNQnpnVVlFUzFGUTU5R0hnMlN1RXc2cFo5cHhPS0doaWtOOEJpS3J5WEtTSEpnU05rbUNiNXVBSUU2T2lsRjFGUmU5Tmh5OGRUWFhnYlBCNFNLNFZoNFZkOEJrUk16X0d4YXhvVlBYUVJRVEM4X3B3MjNaeTVGVVZyS0F4OG10bW02NGRXNmpCaEhoLVpwNHY00gGcAUFVX3lxTE1MamMycHNzaW93c0d2N3ozNDlqWVNNdUUzcG5oaDd5dldmeVFFVDBNSG56a3M4Y2JrdjlFNnQtcWg1NE9HdklGTXd0V2p5N0hNZDVqQVZPdmNnQWtpc1BiWnVTYWp6MFBfNEh5Q1pFWnZOWC1zdF92SjY4WWRnMXYzUjVISWpubzdJNmZZTjVzeUkyVE5xSzMzaVlRQg?oc=5) |
-| Trump Says It Looks Like Mamdani Is ‘Going to Win’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE82X1djLXd4dE1xLWl1dEdDTmFRTXFoem1FQndzQkMwbE5wb2ozTFJUbU8wdDRKMjdvdTliUzdZYTlLSTdFWTJyVDV5QXAwbm5hV01BQ1l1a1ZpRTRET0xQZmp3QUQxSEtDYnE5WHJpWHphVjh3d19lTjlUaGY?oc=5) |
+| Right-Wing Activists Urge Followers to Expose Those Celebrating Charlie Kirk Killing - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQMkp5cGlEaHduNE9lcjBubFZkQTAyeHNKTlByYnBYOVczUjU5M1BLamtTSHBPOUNhQTR6ckU1SzdDeDBXNTI3SW0tNGNxMFJVNkZaR3ZkdGduS0M3bldZRXR3S1Z0amtyQ3MzV09WakI5YjI3VWVodGZMR3ZUdnVnOHc5akZDb2NocTVSbWZOXzhUQkZqNnBoVw?oc=5) |
+| Former Judge Sushila Karki Named Nepal’s Leader After Gen Z Protests - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOUVhfeGFqRzExWDRjWDJPUnBVdWlTS09LS0IybUhWWG1zb25hS2UyMW4tWllkUXUtemtINkstVnpySEZ6TFlVd3g2Zm05SlZtdkZnWWoxcmJmajIwYnNfQXJsV2F6TVo5OXhRQWhxek9qUUFhOFZjSUQ3Rk5qeGxCbXR5c3hVazRzMmFEMQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
