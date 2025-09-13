@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 19:41:19（北京时间）**
+🕒 更新时间：**2025年09月13日 19:48:02（北京时间）**
 
 ---
 
@@ -25,14 +25,14 @@
 |--------|-------------|
 | 'The cries of this widow will echo around the world like a battle cry,' Charlie Kirk's wife says - KSL.com | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPVnpZWVhKanVWaWR5OVVlRHc1LXhISEJiSkozYXBTdUVHZm5qc0MwOUcxTUFLckkteWE4QlNxSngtWjNZUHVJQVp1eGNxeXZQVk90WExudVF1MjNPWGlrMGdDcGFDSU9UMDd6c0RBRWhvaHV0SkV5R0xMYVUtbFptY2RwZW9INkhRSUN1eF9YcnVNTUFld3dnaUNZdkpYOFRZNGJIY0xGSDZ2STRLVXVBUUdERy1xSmN1RWV6Sk1kTE5YS0VValJQcg?oc=5) |
 | ICE agent shoots dead man who tried to drive at agents, officials say - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE54T1JCQXlOeDZCZEdZT3RUYkhHbm5ZN0NKQk9tYkdJM0x5M0hxN2hJckFHV05IZ0F1ZUtpRmxxZUNTT05wc2VIMnZmZC1QOEtCNHFNV3hnYXdBd9IBX0FVX3lxTE1BUXNBMTZzMmNqcEZKWFdVUGQ5NU8zeGdUOWpsLVM1cC1Bb2poUGdTZ0c1UWJIcTQwTHBYYkV3MUZoRTVxSVRFeUdNRFp5bElCd2Vqb1lKX1poZVpIUVI4?oc=5) |
-| UN assembly votes overwhelmingly to back two-state solution to Israel-Palestinian conflict - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPVUlaY1lzclo4Z1hEWl9UdTRvQ2tBSHp0LUlacE5VUE5MM01RVEN5aUZ6TU42a09ZTHo1T0lpQ0FpekFlOHZfT0dtLW9yRlRiWWNZX0FMTWphdGFzYWJNLU5uZFJkWEpEUUZHZk1uQXU1SzhJdUthYzNnZjNXeXIxdzVhOG1icEQ3OVp5TlN6UnZfS0p6STNHblZReFVscnFsRlR5VFlzMTNfRkMzNXFGaDd6cnBtNkQ5UUHSAVZBVV95cUxPeVpyWlV1Ty12MUljWFdpQXBIdWZ4X295RV8yTTBSS25PbnNaZkVmSzFxWG11b1cxLWwwMFhZa0RrOGZSYTlnTllGb1ZRcHBFMFBITURxdw?oc=5) |
+| General Assembly endorses New York Declaration on two-State solution between Israel and Palestine - UN News | [阅读全文](https://news.google.com/rss/articles/CBMiV0FVX3lxTE1oaWFtZkRGOXFaYTlIdGpqSXRtaHdWYTZCbmxJXzlkT1JqejhYamhZd3RtUUZ3M1JhdTVFb1pfMEx0dGV3eU5MeFZlNXFOaVdWMTB5VThaZw?oc=5) |
 | ‘It’s unacceptable’: Inside growing concerns about Patel’s FBI leadership - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBLWnpyQlM1QXpQOHF1Y1hLcTJicnV3S2w1RG1IdWMxekRscVhBZ0ZXOTlUay1RUnBILUxuVTB5YkJyay01OG9WVlFMSnBQUV9yRzgzZGtjTmctWUJyNHhuSzZWMGp6TE5wRHpocXpwSmMxVV9Wd2NwQjVyWkZ0UVk?oc=5) |
 | Trump backs off Chicago National Guard threats - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOTkxqS3lhSTRmMW10REdRVWRQRUtMYm1jeThOMTZRbEZxLVBqaFZMenFLVWtVeTJYbFhEdERpSzJaTkNHWm0ybE5OWEhCTmFHS3ZVeldOY3Q1XzFBYlluYWNQenctNkxTU3JYMnB1VVRXYmVWcXYtU3lpR09kQUR2Tl9jdXVvZFU5eEZfWg?oc=5) |
 | California Legislature passes bill banning most law enforcement from wearing face masks - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQanJ1RlZkeXRrWlJnRFhtUEItMG9lanBxQ3dnZGxQRVVJLTk1QmhoZW5zckJmbkwwRXBqQXlheUtSVi02UEpHRlktVmZhUGFISFJNRGVPTk1ucUgzRkdXSWNEMkF2WXkxSlZ6QnpPc2VTaTN1NHJCTDEtN0tXMV9yMkttckRKVXduTm5KQjVIVFUtd2E1OUVrQm5ESkJiTXpt?oc=5) |
 | Schools tried to ban phones and avoid politics. Then came Charlie Kirk’s assassination - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPNVA4aVF3VktzdmtqcWhEQlJudWJ3dV9Ed0hLXzNaZl9CQndJM0tWdjNtS0tvdmIwQ25PMW9DNWYtLWpjNjFIZHNjNEhlYXBvTERGVEcyWlN0cXgta2UydzM4b2UtXzBIY0ZTM2VFejdIRWYtelJQRVdaVkpMZ2w5Qi1zNEw4cl96N3ZBYTZuLXl2S2dqSkJISk5n?oc=5) |
 | Blue states shunned the National Guard. Tennessee governor is taking a different approach. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQTnhnOVpwWEg5WjIwWWFfOUZndTRXZTJQcVdrSzJoRklSdE96dFlDVHVYN1psWmZTNExpTE9INXZYZjE3REhzZnhONHhxa1o2YWhOZlNCRGp6TnJtSy04cUJxY2d5TXl1cjFHYmE3Q2F1VXJUemdvamhGN29LRGpqVXJqSWpDQkVkeFB3NXhJbm9QS1NZa0pRR1czaG1YTDNFM1BNRm9FMlJLV1BNZGc?oc=5) |
 | Update on U.S. Naval Academy Security Concern - navy.mil | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxOLS11a3F4V3FWbzJGVENJdV95WmpiaFhnSzdKZ2hwUkNSTzA0a2NGYVR2dEJNaV9VWHNLLXJQakFCVFJDM284UzRRTHZjekZBY3BRUEk1VDV2XzFiZHNQRG9ncFBlOWMzdThtQk5INW5pdE53Q0g3Ny1mRWRLRE84dklraEY2RG94NWhONFh4czdvb2hjbkdvSGdOeER5ekJSTjRUNU5mWFQ1TmJEQzhGSjc2T3ptUnpUNW0wNQ?oc=5) |
-| Federal agencies threaten, discipline employees for criticizing or mocking Charlie Kirk - Government Executive | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxQczBYU014bWJaLTVibU1wX214LXRKaHQ2ZG5QOXl4SEIwdEwyZ1dJMmZJYnE3aUxtYzctT1V0UUUtdUdLc3dIdWlZSjNyMnFyRTA2OHVldkQ5WmdHVTg4bXZPakNjamZsWloxSlgycWc2R1RDdm1fQXJPa1kzazczbWRSd1I3VS0tSHk0Y0M4S1o0V0RtbC1WMlZ2eG5EdGRMUjBGb2lVTEtMZjRLSHB2bVkwT1V4cmo5RXJNei1KOFVldExpZldjNDdQREJSZw?oc=5) |
+| Nepal’s New Government Calls Elections. Its Critics Cry Foul. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQQ1dFRDdnNjlJSTBzeFY4V3JMUDFtS214SUFYZXFycEw5ZmFqX19oNEpjZ0hKb1NTVWJwZnRjV2xyZ3dHclRSUjh6cDFwTXdicEpuZ3VZdjUyem51MEhMcTU2WmlHbFk5M2hoYjNGdE1WS2g5WVl4ZGVkeHhmX0lrVFpBQnQzSVNnTGJBME00UklGLUtGUlB1SA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
