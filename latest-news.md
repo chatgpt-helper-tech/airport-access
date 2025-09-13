@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 14:17:04（北京时间）**
+🕒 更新时间：**2025年09月13日 14:24:40（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Trump backs off Chicago National Guard threats - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOTkxqS3lhSTRmMW10REdRVWRQRUtMYm1jeThOMTZRbEZxLVBqaFZMenFLVWtVeTJYbFhEdERpSzJaTkNHWm0ybE5OWEhCTmFHS3ZVeldOY3Q1XzFBYlluYWNQenctNkxTU3JYMnB1VVRXYmVWcXYtU3lpR09kQUR2Tl9jdXVvZFU5eEZfWg?oc=5) |
 | California lawmakers pass SB 79, housing bill that brings dense housing to transit hubs - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxQTWJwamM4SHZWZ2RFX0VfRzZfZW1NZE0xajR5M1pMWGUxeTAxT0Y5SW9pbWlIU0NKWXljaDZkaXZqT0g3dl9EQlV2V0owNlN0T3VLRUVCN2NKVmpLQ3J0WklZbENhck40ZHB3dm05NjJ6aXBEVHBHMFBVcHdXbWNGQUVFNHZVWVJoWjFEQmY3U2RuY2J0YkFxbXZrRFQ2cmVhb0w3YTgwbS1PYWFqRlI4YkpMWFFtZmFlN19nMUo1cWkzYXh6ZmRXVDAtc3pGWFpBTjl5VA?oc=5) |
 | CEO whose comments sparked Trump’s Memphis action also pitched him on a big rail merger - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOQlZTX2lxMU16bzVYU1AzYzlJSHJHSEdIRG1lLXFKWDZZSGMzVzJ5S1JRMThoQ2J4ZW53YzIwNUFRLU1LbGEwZk9lX0pWRnhjVnlnd2QxZFF4Yi04bVd1Uzh3NEg5V2lIQ1NqSTEwOFJ5NF82Mi1QVnIwT1dfdGU0RWdlaw?oc=5) |
-| Missouri passes Trump-backed redistricting plan to help the GOP in the midterms - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPMmxBZk9GWVlDX0NhMGUxVzdPOF9GT3lQUnFUbGJOYnM5b05yc1ZkbTZIZ1JfeENUWWw0Tlp1c002WXRwelI1d05YS2RjM3BoOTQwcmVVQWlSVk95YUdOT0g0TXdHSS13dG5semt2TXB1TmxMWlVwSEdMSDhfZERQbFZtTEk2WkUzY1E?oc=5) |
 | Trump declines to call for unity after Charlie Kirk killing in stunning move - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOOXlqdVo1S3g3LU04ZUtPNGZVbGZVMWpCOWM3ZWFldVpUb2xacTNveS1GenZ1T013LUNET0NyNGJkMlRyWk9jdy1vZm1oN0JYamxvX3hMT0E2b2l1OXAxcFA5VjNuMzNRb3lIaWt3NTN2OTRNM3VrLUNFMkNOcTBsaWtqZnZsYUdXbUVWNmE2dVQ?oc=5) |
+| Missouri Senate passes Trump-backed plan that could help Republicans win an additional US House seat - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPR1RzODU0OWc3TUxfblJ3RkJyQVhmMk5FQmFKN3Y2QjNOMGtYVWJCREJueWlKZzc3NU84Sm9PUVFWSFU3VGZaNTlaWmRxWmRiY3RicUNRd3JKRUxzbXFlenVIY002Sk5lcTNFTkw0bENucWUwdFI4TDJwYWJwajZSV1FGazc3OU1CalJLUW1FV25ieVdlRjZob2JtM0s0aVNqTHc?oc=5) |
 | Ukraine war briefing: Poland’s allies decry ‘flagrant violation’; Warsaw sends troops to border to monitor Belarus drills - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi9AFBVV95cUxNZG9RLVRMNzExRHFrcWZTWDBNX2ZvWFVfY2xRbno1cG5kTlFHVUlNbWRwTDRIM0tmZHBhWmR5QU4yT09BUlVPd085Q0JwZXl6M3cySUFULS11RjlyUkZQb0dqRjNBRlVKODR5RWZOLXlYazhHRmo0UE9TRGZIaEIyZUI1SXRKTGw0NWtfQ2o1V1Y5d282S1E0X19lUEZFV0lXNUdJb2s0Ql9iYzk3Y1dnbXMxeF9qZ3ZObDNZOG9Bcm1tSURLOU5FWWt5bEF0R2R4T3Y0ZUJheEdwc1M2X2hBNmtvMFJjMDliNUMyMTYtaDNyU0ZK?oc=5) |
 
 ---
