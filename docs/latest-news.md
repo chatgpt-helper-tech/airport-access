@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 12:49:53（北京时间）**
+🕒 更新时间：**2025年09月13日 12:56:34（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trump shelves Chicago crackdown plans for now as advisers warn of legal headaches - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNb0drMUowVXk1ZDhHb3JqM3lCYVRZWFI5aDVxUjZHTHlmVmNGb3FZbTczTFd1UDV3d0xOY25paXk3QUlNdHVLRVV2RmIwQ0JoWWRyX1FIMV9ZVUJ6U21CNl9PTEdRcXJwVFZWSFZqaVpJT3E1aExnZUdBUWhueWtFZ1Zn?oc=5) |
 | Trump says he'll send National Guard to 'deeply troubled' Memphis - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxORjFNdXhCbFd3bHFOOFJRXzJDcUpBODlGTlNFTDBYYVVCZGNUVGlWWk5UbmFidU9wcnVWZksyWDNKMVRra2JPMVVteU9Oc2NFVm5oaVR3aW9TYm5BRlRDTFhOcjFhd2hoeDA1c2hiaXM5MlZfNTZQemxSNzYxbGsyLUJGYjBqN19BV19hUjZTeFhmRVFqZ0t0bmNoR2R2WklLaHhzeNIBqgFBVV95cUxPNnRvZ3plMTJjMVM3Y01uTnFiQnVRdzVFWi1teTdQWVRCdkY4OTN2eVVwc1B3TmR6YjcyODEyU2xHeGNQeTZmcFgzb1RoclltbmlaTUQtNVZqOGVHN3kwRWNYaGFKUUFNcWRETksxd3NFRnFpa0FpN2I1N2xGWGNnbkhzWVNnTk50c204ZlRPcE15WGV4NkIyWmhKMlhMU19rZ1dvX2hjS0xNZw?oc=5) |
 | Missouri passes Trump-backed redistricting plan to help the GOP in the midterms - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPMmxBZk9GWVlDX0NhMGUxVzdPOF9GT3lQUnFUbGJOYnM5b05yc1ZkbTZIZ1JfeENUWWw0Tlp1c002WXRwelI1d05YS2RjM3BoOTQwcmVVQWlSVk95YUdOT0g0TXdHSS13dG5semt2TXB1TmxMWlVwSEdMSDhfZERQbFZtTEk2WkUzY1E?oc=5) |
-| Trump doubles down on blaming 'radical left' after vow to go after political violence - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNcHdLVVJPdmlRY0JOTG1oejQtMHNnYWhQT0Q3ZlpsQ0t5NEh6MTZFLThFMllmcWhSMUt6c1RJcWh1WmFVNkp1S2o0ckpNdDhaamg1SUsycXJURjB5SGdON25lVzl6T0dDa280bGtkVWlERm55bWtKbmpQSFk1aG1wdXYzZmNUOTN5cFVxRHpEWk1uRUFlQ3JmcldTNVA1c3E3bTIw0gGoAUFVX3lxTE45dWZlakdYRUljTEhWTEhuYW5xa1EtV3hPNExYLWF0VXlHRk0tRk5TZmhWelJaN1NxdTFfaDF6OTQ3UGNuZDdvOHRoZmVlb1V2SDFvT1hZdy04d0YxQTRkY1Q2VjNNMEVNV3BBanpNdEtVbEF1N0dQVjYtMXhRbloxWFdOMmVlQXkzYTRGYkpJOG5COGoxUWp6MldKNmlHVHFRSDB6ZmtXRg?oc=5) |
-| Right-Wing Activists Urge Followers to Expose Those Celebrating Charlie Kirk Killing - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQMkp5cGlEaHduNE9lcjBubFZkQTAyeHNKTlByYnBYOVczUjU5M1BLamtTSHBPOUNhQTR6ckU1SzdDeDBXNTI3SW0tNGNxMFJVNkZaR3ZkdGduS0M3bldZRXR3S1Z0amtyQ3MzV09WakI5YjI3VWVodGZMR3ZUdnVnOHc5akZDb2NocTVSbWZOXzhUQkZqNnBoVw?oc=5) |
+| Trump declines to call for unity after Charlie Kirk killing in stunning move - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOOXlqdVo1S3g3LU04ZUtPNGZVbGZVMWpCOWM3ZWFldVpUb2xacTNveS1GenZ1T013LUNET0NyNGJkMlRyWk9jdy1vZm1oN0JYamxvX3hMT0E2b2l1OXAxcFA5VjNuMzNRb3lIaWt3NTN2OTRNM3VrLUNFMkNOcTBsaWtqZnZsYUdXbUVWNmE2dVQ?oc=5) |
 | Former Judge Sushila Karki Named Nepal’s Leader After Gen Z Protests - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOUVhfeGFqRzExWDRjWDJPUnBVdWlTS09LS0IybUhWWG1zb25hS2UyMW4tWllkUXUtemtINkstVnpySEZ6TFlVd3g2Zm05SlZtdkZnWWoxcmJmajIwYnNfQXJsV2F6TVo5OXhRQWhxek9qUUFhOFZjSUQ3Rk5qeGxCbXR5c3hVazRzMmFEMQ?oc=5) |
+| Ukraine war briefing: Poland’s allies decry ‘flagrant violation’; Warsaw sends troops to border to monitor Belarus drills - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi9AFBVV95cUxNZG9RLVRMNzExRHFrcWZTWDBNX2ZvWFVfY2xRbno1cG5kTlFHVUlNbWRwTDRIM0tmZHBhWmR5QU4yT09BUlVPd085Q0JwZXl6M3cySUFULS11RjlyUkZQb0dqRjNBRlVKODR5RWZOLXlYazhHRmo0UE9TRGZIaEIyZUI1SXRKTGw0NWtfQ2o1V1Y5d282S1E0X19lUEZFV0lXNUdJb2s0Ql9iYzk3Y1dnbXMxeF9qZ3ZObDNZOG9Bcm1tSURLOU5FWWt5bEF0R2R4T3Y0ZUJheEdwc1M2X2hBNmtvMFJjMDliNUMyMTYtaDNyU0ZK?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
