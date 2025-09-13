@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 16:32:47（北京时间）**
+🕒 更新时间：**2025年09月13日 16:41:17（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| How the Italian anthem 'Bella Ciao' is connected to Charlie Kirk's killing - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPakRXaDlrZHMtMXdRejlVV0tVTGRnQUsyT2VacFFfQk53UUNxT1VibHBYNkt4YWJkVTRGZGN2ZW4yeV9rcXN6UVo5YV9fQXoyY3JEaFhRNFJmN1hNWjJ5YnotV2xPdExnMF9qaktYdEdxdVN1TVRRRVd0Mm5PV2puZHV5WnhVY0gtMmdEblN4ZGxxSVItd05weGdycw?oc=5) |
+| What we know about Tyler Robinson, the suspect who allegedly killed Charlie Kirk - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQRVAtTEZmcDVRZWR3LTAwNXBPRy0wSXNSTVZOZHpEdkxDd21wNl9fdERBZ2V2emtYeVFBR3hwTnhWWDlPY2hjUmNKZzJnNXFoeFpfU29NNjFGanFLXzV6N0g2ZWg3QzBZblVqeUw5c21USEVKOVFaVnN0QXZGajUwM1RKQmpxQ0ZWNENOVGVZU1hhR01PQjdvZl9fVjIyamFnOVFuXzVicWZUN1p6OGc?oc=5) |
 | ICE agent shoots dead man who tried to drive at agents, officials say - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE54T1JCQXlOeDZCZEdZT3RUYkhHbm5ZN0NKQk9tYkdJM0x5M0hxN2hJckFHV05IZ0F1ZUtpRmxxZUNTT05wc2VIMnZmZC1QOEtCNHFNV3hnYXdBd9IBX0FVX3lxTE1BUXNBMTZzMmNqcEZKWFdVUGQ5NU8zeGdUOWpsLVM1cC1Bb2poUGdTZ0c1UWJIcTQwTHBYYkV3MUZoRTVxSVRFeUdNRFp5bElCd2Vqb1lKX1poZVpIUVI4?oc=5) |
 | Trump backs off Chicago National Guard threats - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOTkxqS3lhSTRmMW10REdRVWRQRUtMYm1jeThOMTZRbEZxLVBqaFZMenFLVWtVeTJYbFhEdERpSzJaTkNHWm0ybE5OWEhCTmFHS3ZVeldOY3Q1XzFBYlluYWNQenctNkxTU3JYMnB1VVRXYmVWcXYtU3lpR09kQUR2Tl9jdXVvZFU5eEZfWg?oc=5) |
 | California Legislature passes bill banning most law enforcement from wearing face masks - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQanJ1RlZkeXRrWlJnRFhtUEItMG9lanBxQ3dnZGxQRVVJLTk1QmhoZW5zckJmbkwwRXBqQXlheUtSVi02UEpHRlktVmZhUGFISFJNRGVPTk1ucUgzRkdXSWNEMkF2WXkxSlZ6QnpPc2VTaTN1NHJCTDEtN0tXMV9yMkttckRKVXduTm5KQjVIVFUtd2E1OUVrQm5ESkJiTXpt?oc=5) |
