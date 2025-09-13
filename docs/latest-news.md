@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月14日 02:17:03（北京时间）**
+🕒 更新时间：**2025年09月14日 02:25:56（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Families in crisis after massive immigration raid at Hyundai plant in Georgia - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPU0RpdGNYcXZ4Xzh4NHZmYUREckdCRXNDOWh6eXp6QWRqVVBwUVd4M183UDdtVzNJQkJfZ2YtZjBCd2Y4VnI5ZTBoRTlrN193aXBka0IwYkFCcmVDMV9qTUZ1YnYzU2Y2VUJxVTQwSUo2OXdoUGhQZG5PSzZHT1ZxOGx5ZmxzRE13aEhhT1pXdkU0TG1IdlRWSmFjMGhjT1B2MTl1NThidm5Pd9IBrwFBVV95cUxPWldSd3hEN25DajI4RVZKZTRPdkJWemgyWnZKSlNERm1JeV9oSGQ5WXQ5TTNXdVV5QlU0ZGl0Tk1YNnV6Mk05SWlJa2FlTmxvMU5Pc0otTUdHNXRydkhSVXJULXNGWEtHRVB1a3ZjcnlhaXp0N2dNZUZoQ1laZHhjYUlLaWxXRHMyVHFmb3FoOExYdVkxUmJnbENfRGhTOTMwNE14Z2N1OUZUbmtMY2t3?oc=5) |
 | With Donald Trump's UK state visit days away, Mandelson blame game begins - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE12TXNRWm9PRklxSFFJZXA4LUF6cU5pVDltYkNtaWpaemlGMVM3NmZ2X2ota2pWSllJdGpDSk5BOVZEYW9ieVZwcmJKdENhMk95enBTLVFreXhGZ9IBX0FVX3lxTFB2LUJOQ3B0Sl9CbmwzSVFrYjc0NHpfTEM4RFV4X0NkTGlFTlF0Ql8zT3l1WUNzSUhQNk5vVU5aVm14d0VfY0VSMkxwR05hbWdHdUl2YWI0cnlJT25Kd0NN?oc=5) |
 | ICE agent shoots dead man who tried to drive at agents, officials say - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE54T1JCQXlOeDZCZEdZT3RUYkhHbm5ZN0NKQk9tYkdJM0x5M0hxN2hJckFHV05IZ0F1ZUtpRmxxZUNTT05wc2VIMnZmZC1QOEtCNHFNV3hnYXdBd9IBX0FVX3lxTE1BUXNBMTZzMmNqcEZKWFdVUGQ5NU8zeGdUOWpsLVM1cC1Bb2poUGdTZ0c1UWJIcTQwTHBYYkV3MUZoRTVxSVRFeUdNRFp5bElCd2Vqb1lKX1poZVpIUVI4?oc=5) |
-| In wake of Charlie Kirk shooting, see how political violence has increased in past year - USA Today | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNWXVVNHEyY2ZRWXVuSzRPZmRkWHZUNzJwOWhOb0VDSlRZR0Q2eFZ0Z1ZlaE9yTFNRd0hDa3JFVGRjVF85M3ltUUNROTJ6YkJUQWpnNk43alpjeE9ORURZSU5hM1lYeF9CZU93UnVnYjdJSk1MeGNUTk1uaE03eHNrR0F0LUpCMFg0OEhoUC1UWWNnSFhMLV80ZVFkV3JBVS1Qa2s1UGd1Rl9STDUwbFE?oc=5) |
 | University of Minnesota, Teamsters reach deal to end strike; Farm Aid concert saved - Star Tribune | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxOOTBaLWdKb2czYnJJUm5RVG9OODlYVVZ2U2lnYlRjR2NRejBNaTJGZlJtREtuTXozVUhUX01IZ1dua3lDam1EU21tSkF2NTBvRlBseWFqaXl4cmpqZ182RFZvOG9wZXBScm51Xzk0eVBaN0NHbm9vOHRMVXZ4NFdNbWw5NUMxcUFraXFvUFJUS2d4d1NVSUtWN010LWYtUmFXN1VzRjQydHZIdlQtSWkzVVp5eEJlUy13ZVVleWZpZEtZTS12?oc=5) |
 | Meth burn by FBI smokes out Montana animal shelter - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPYkJGcGhZbDhEZlR2VGt5MHlEMUpzUTRDcEJhbWFfdkFXbTRPR0xOall2YTNjV1M2Nk9GRzdQT0lGbld2REQxUWNTTGgxZVJ3SUcxdFJnWUJNSllZdWtVaUtMRFo0V3V6LU10bWR1dGVFT2xra0NWZkNPRF9TR2NtYlBLYWNneWFzQ1hIVGMwMjRnc1JGMjRtX09YVXhuck1ZTVV1SG1QbkQ3UVZ4UTBv?oc=5) |
+| Schools tried to ban phones and avoid politics. Then came Charlie Kirk’s assassination - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPNVA4aVF3VktzdmtqcWhEQlJudWJ3dV9Ed0hLXzNaZl9CQndJM0tWdjNtS0tvdmIwQ25PMW9DNWYtLWpjNjFIZHNjNEhlYXBvTERGVEcyWlN0cXgta2UydzM4b2UtXzBIY0ZTM2VFejdIRWYtelJQRVdaVkpMZ2w5Qi1zNEw4cl96N3ZBYTZuLXl2S2dqSkJISk5n?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
