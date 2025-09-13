@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月13日 11:57:51（北京时间）**
+🕒 更新时间：**2025年09月13日 12:01:25（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | Contentious housing bill narrowly clears California statehouse - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNOFJVYkZ6VG1fVVVBUlBaS0I3RF94dXhnSTRZOTk4Z1pScVUyNjRWRXFud1FNdkFmWjRyMzItMklTYU04NnJaeE9ZdFRrc1N4Z3N1bGFlMFBaN1IxWml3aTkyQll2LW5fWGs5ZDg3dDN2dzA3dG42S1AwNkhlbzhOSnlhZ3pqS2dYcVlzZ1dfczFteS1fYjQ0?oc=5) |
 | Israeli intelligence agency balked at Netanyahu’s strike in Qatar - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPWkJCN3R5LUlQN3hVeE9ncFViSEd4VzNPWGhRMXVReVItUGRNZkZnM213ODBMUmZ2Vjk2S2dVOUtBUHVOenlDaUl6LTltN3dkMlFQZVZvWTNpWUpNR2J4LWl4dFM5Sl9qaXJCbkE4MF95ZGN6SDdzSDdta2RaUDFkRWtkQmp1ekc2?oc=5) |
 | Trump shelves Chicago crackdown plans for now as advisers warn of legal headaches - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNb0drMUowVXk1ZDhHb3JqM3lCYVRZWFI5aDVxUjZHTHlmVmNGb3FZbTczTFd1UDV3d0xOY25paXk3QUlNdHVLRVV2RmIwQ0JoWWRyX1FIMV9ZVUJ6U21CNl9PTEdRcXJwVFZWSFZqaVpJT3E1aExnZUdBUWhueWtFZ1Zn?oc=5) |
-| Trump declines to call for unity after Charlie Kirk killing in stunning move - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOOXlqdVo1S3g3LU04ZUtPNGZVbGZVMWpCOWM3ZWFldVpUb2xacTNveS1GenZ1T013LUNET0NyNGJkMlRyWk9jdy1vZm1oN0JYamxvX3hMT0E2b2l1OXAxcFA5VjNuMzNRb3lIaWt3NTN2OTRNM3VrLUNFMkNOcTBsaWtqZnZsYUdXbUVWNmE2dVQ?oc=5) |
-| Missouri passes Trump-backed redistricting plan to help the GOP in the midterms - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPMmxBZk9GWVlDX0NhMGUxVzdPOF9GT3lQUnFUbGJOYnM5b05yc1ZkbTZIZ1JfeENUWWw0Tlp1c002WXRwelI1d05YS2RjM3BoOTQwcmVVQWlSVk95YUdOT0g0TXdHSS13dG5semt2TXB1TmxMWlVwSEdMSDhfZERQbFZtTEk2WkUzY1E?oc=5) |
-| Trump Says It Looks Like Mamdani Is ‘Going to Win’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE82X1djLXd4dE1xLWl1dEdDTmFRTXFoem1FQndzQkMwbE5wb2ozTFJUbU8wdDRKMjdvdTliUzdZYTlLSTdFWTJyVDV5QXAwbm5hV01BQ1l1a1ZpRTRET0xQZmp3QUQxSEtDYnE5WHJpWHphVjh3d19lTjlUaGY?oc=5) |
+| Trump Blames the Left and Downplays ‘Radical Right’ After Charlie Kirk Shooting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQN2ZXSTlGbzRTVzdtLUNZczVUaFBZN2RlOEdtbVZhQ0xNazliVTdIYlNNRXk1bnplQmRTNW11TlBjLUxxUWtKNjBCQWp3d3EtLTZUQm9XZ1ROQ01vbk5uYlAwLTRUVEFqUVJySlpIZ1lpS1hjbDhoR1NONmtkRFdYb0VuMDF5dw?oc=5) |
+| Missouri Senate passes Trump-backed plan that could help Republicans win an additional US House seat - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPR1RzODU0OWc3TUxfblJ3RkJyQVhmMk5FQmFKN3Y2QjNOMGtYVWJCREJueWlKZzc3NU84Sm9PUVFWSFU3VGZaNTlaWmRxWmRiY3RicUNRd3JKRUxzbXFlenVIY002Sk5lcTNFTkw0bENucWUwdFI4TDJwYWJwajZSV1FGazc3OU1CalJLUW1FV25ieVdlRjZob2JtM0s0aVNqTHc?oc=5) |
+| Wu responds to Kraft’s decision to drop out of mayoral race - Boston.com | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPYnBCRlgxRHNMY3pVZ1M1NlF0SGF0NWM0WEx4YVNjTzMzdjhTU3dQRnk1N1lSX21YTHZJNGJGTGF1cWpCV2JtblJiY0RMUnMtQW1hUGFCX0p5Y3p6cnJHTUNRaG5Uelh1RERfekhVbTFyc05NRXlkd2QwODVQZVRfVEdoQmZUZGQ5MGdvS3hiaXBCWk9NSk1ONzZuM0R0Z2tpUlJUaHpPS3NuNjNfYVHSAbYBQVVfeXFMTWNDdmNmaXdVbHBjU1R5M2xGMG8tMWgtZjdfOVNONUxDcUVSU0Z5Z01qTlAyczlsYXJ0Nnk3Z1dJREZFZ0VtdlNpMkdxd2U3SUZiVzk2Q1JaamYxTG1CTkVENktaNXB3d19PSkNlQ1k1ZWFDcWl5SkJtTlN3U2hVS09kMno0ZXI0MmtYb29uMnJ0WUVlUVU4RkVod1ZZakZGczgxaS1DUTNSUjdFNUVYSVMzeThubVE?oc=5) |
 | Ukraine war briefing: Poland’s allies decry ‘flagrant violation’; Warsaw sends troops to border to monitor Belarus drills - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi9AFBVV95cUxNZG9RLVRMNzExRHFrcWZTWDBNX2ZvWFVfY2xRbno1cG5kTlFHVUlNbWRwTDRIM0tmZHBhWmR5QU4yT09BUlVPd085Q0JwZXl6M3cySUFULS11RjlyUkZQb0dqRjNBRlVKODR5RWZOLXlYazhHRmo0UE9TRGZIaEIyZUI1SXRKTGw0NWtfQ2o1V1Y5d282S1E0X19lUEZFV0lXNUdJb2s0Ql9iYzk3Y1dnbXMxeF9qZ3ZObDNZOG9Bcm1tSURLOU5FWWt5bEF0R2R4T3Y0ZUJheEdwc1M2X2hBNmtvMFJjMDliNUMyMTYtaDNyU0ZK?oc=5) |
 
 ---
