@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月14日 11:00:26（北京时间）**
+🕒 更新时间：**2025年09月14日 11:08:19（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trump Escalates Attacks on Political Opponents After Charlie Kirk’s Killing - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNbGZ6Uk55Ylo2bzBWSFlIbXB3T1NGeWp6di1IeUVDR1A3ZFM0dy1VU3k3RFQwbzUyQWlqMXc2NXVQSllyRVR0VXJLOG84VEltSGpYeGpNYkpMSjA5SU94UnYwemhwZmlFcXdtRW5qbHNuY19OT19GSVMwOXkwc3M1Y1NNVXg3aDdubkE?oc=5) |
 | Trump demands NATO action on Russian oil before any U.S. sanctions - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMEZ0WGxYaVZHSWNUdG5ocXRDZHNWTDBsSXhmbXRueWlZSFBPaHZ3NkE2a1ZIRUxZRVcyVUVWclpndHdZcU9fVWNrY2Q3WHJMajU0emxiOFp1RWY0TnFrREJXaGp1MTJhQWk0YjJuQWp5WWl6c3pLMWJIb3c3a0oyblRUb1Jhakk?oc=5) |
 | Latino leaders condemn ICE over incidents in Chicago, including driver’s fatal shooting - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQclpna05fT1NjUmVPbk8zbFplM1F3eG1pNG5HRzIyaElzeWtrUW1mZTZkN19EXzdZcEdhcTdXaFM5QXQ2NXNXbzkyd1U2TEc1V3NEYkFVQzROQnQzNGtIR1FRdGZDSzhQcGNfM2dObmt5LUJiZ3RzSUtjUXdjek93NjdmM1F4SlBoc2ZhX0VrdGtVdw?oc=5) |
-| ‘It’s unacceptable’: Inside growing concerns about Patel’s FBI leadership - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBLWnpyQlM1QXpQOHF1Y1hLcTJicnV3S2w1RG1IdWMxekRscVhBZ0ZXOTlUay1RUnBILUxuVTB5YkJyay01OG9WVlFMSnBQUV9yRzgzZGtjTmctWUJyNHhuSzZWMGp6TE5wRHpocXpwSmMxVV9Wd2NwQjVyWkZ0UVk?oc=5) |
 | Animal shelter evacuated after FBI incinerates meth at facility - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1BWUFCWXZEbEpKQThFUnBpRXZqN3F6R2tBSVFvV0R3OXlvdllvTms2dUxNRG1IZ2NBYTI3THlhLU1JWkNrU0ptZkhQbWpTVExGdDAtWFEzUEZ3UdIBX0FVX3lxTE1ZbU5LNkplUGVKSjNWUDJVTTZhc0dNVXZfRXRzWGFpZXd0R2E3UmZuMmNvRW1LV3NTV0VFSlkzTUk3ZmxKX3k3OGs2NXpDdEV6RjF4aXF6Unh3SGIzcHhR?oc=5) |
 | Memphis mayor says he got confirmation National Guard would be deployed from Trump's TV comments - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPa00wYjhqMWZ0N0VwLWFEVi1XUDZoV3pfaVQ4a2ZxTE5WUTZIRWU4QkM1Z0xYYUdkTERYenFLeklTaURudU9ITUFYSDc5UDJtZ0FhZjVENG1ObVhHWUtqSlVrTmFWd3hkeUJLR1Y2aGd4amVLSGR3eXZsR0lRRkxWdVRaMWhyVnl5dEM1LXBxLWU2dw?oc=5) |
+| US official says personnel from Navy ship inspected Venezuelan fishing boat for drugs - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOcFBfWVpFUHVZZEh5WG91ZmRvenV3TzRVZEEzQkdMZURGRS1SR0dQNEJNaDhVX2dWbmE1YUpYejgzNGRicVBkQURKQnh5N3JyUzdpcktCT0NaUkNNWk5lYWcwQVVwdEdoc194YU9NN1NQNGxUQWtBTkwwWms4a3ZONnhMSzZuRUlodGdHZ3BLNTBucWwtOUNRX1JmVEJwVUZ0YkZ5V1Y4V3hlZ2t2TGgzeHdvOTVLcTjSAbwBQVVfeXFMTkRLc2duZGh2enBoN0pWeGtVMHZ3elIwcmpERkM3NXZzREwyS3c5VDUyRmdwZmFfXzlfaE9WQVJSbkRlak04V0c1Y2RCcWZxTkpta05sY1ItYkJocnA2NzNTSXhGRURrX2J6Um1KMjZLRWVLWmxXLS1oQUpLaGxYcjllOE5MeXFicXJEZ0RRaW5aNldwbG9BOFYxZUJ4alFhMmJfdGhZWXVEUkQ5bXIzN1RrYmZDc2JPWjMtYWE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
