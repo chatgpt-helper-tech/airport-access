@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月14日 16:25:47（北京时间）**
+🕒 更新时间：**2025年09月14日 16:32:52（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Romania reports Russian drone in its airspace as Poland scrambles jets again - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNZGlUbTlaRjdaVmpYQVhTQmFCV2ZCdGkxWnE2Tm5XV2VMdGQ4d1BvOHZBUElYdTRqYjhNZzlaeERielpxeDFBa0M4bEh2RzVmaS05XzVmeHpmQUhYazRlWldkYUQ2ZjJLN2ZhdFNFc1U3UUx2S3UxZTFIVnVmaHd5REtqSmRKbEFwOE1VcnFSeXZPS2txUGRnZjRCeWVRMXphU2Qzbm05M1RMeGlITFVISmFLel9zdG1iVHpFWjJuSQ?oc=5) |
 | Over 100,000 attend London rally organized by far-right activist, clashes break out - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQNWF2TTVBVU43QkpiOXJJVXF3aGd5UzBaVmdnZWpfM0k2MXBOR1ZGRjY5M2dzclBnTTkwSmVITEprWV9wdlRheDBUQUlYNWxkbDVzRXdpMWIta2JYQlZXb05yd0VKT0pXT1lidEx0WTNSZVhxNzZsRG1MYy1idFl3Vy1SMEo?oc=5) |
 | Undocumented father killed by ICE agent in Franklin Park shooting had no criminal background, lawyer says - cbsnews.com | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPWVdCck1LOUxnV1YxdkpOOFAwTTUtQWV1dFpNVldFNkFKU1RFZ0VmaGZUWVF1T00zek02dXFGbU5GU3o4X3NCWC1Udl9vaUJSZWdaNy1nSGYtYWVoYmpFdDZwRGdfLWJOY1g5OHVoTUxEVmF6N2toR1VsWEhUdDhSUTRCZnEwSDluT05neGZ6a19fQVR0eXpVQnNfUXhCQQ?oc=5) |
-| Alleged Charlie Kirk assassin lived with a transgender partner, cooperated with FBI probe - KFOX | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOa3dfNVZaaW83R0cwQll0THEweS00UGFrM1JQWWpSMzZfVmxVTndyLTIzSFZ5UUFhcGF3Ukp6NUNuVFdpUU1VUWJNUkowaVFuVENFRDBUR05SSzVPbkV4aU9XN2ZNWXhKaDBMWlJkTnJGdjhtTHdWMko4eUIzLVB6eTBpYTdVZ2EwVDBpaVVDZV84NUFXZlQ2cmdOTXluT29lQWVQdW50LTdaOU0wbHdBRUYtaldlWW1ESGFOTE5EaW5Nc00?oc=5) |
 | US official says personnel from Navy ship inspected Venezuelan fishing boat for drugs - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOcFBfWVpFUHVZZEh5WG91ZmRvenV3TzRVZEEzQkdMZURGRS1SR0dQNEJNaDhVX2dWbmE1YUpYejgzNGRicVBkQURKQnh5N3JyUzdpcktCT0NaUkNNWk5lYWcwQVVwdEdoc194YU9NN1NQNGxUQWtBTkwwWms4a3ZONnhMSzZuRUlodGdHZ3BLNTBucWwtOUNRX1JmVEJwVUZ0YkZ5V1Y4V3hlZ2t2TGgzeHdvOTVLcTjSAbwBQVVfeXFMTkRLc2duZGh2enBoN0pWeGtVMHZ3elIwcmpERkM3NXZzREwyS3c5VDUyRmdwZmFfXzlfaE9WQVJSbkRlak04V0c1Y2RCcWZxTkpta05sY1ItYkJocnA2NzNTSXhGRURrX2J6Um1KMjZLRWVLWmxXLS1oQUpLaGxYcjllOE5MeXFicXJEZ0RRaW5aNldwbG9BOFYxZUJ4alFhMmJfdGhZWXVEUkQ5bXIzN1RrYmZDc2JPWjMtYWE?oc=5) |
 | Memphis mayor says he got confirmation National Guard would be deployed from Trump's TV comments - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPa00wYjhqMWZ0N0VwLWFEVi1XUDZoV3pfaVQ4a2ZxTE5WUTZIRWU4QkM1Z0xYYUdkTERYenFLeklTaURudU9ITUFYSDc5UDJtZ0FhZjVENG1ObVhHWUtqSlVrTmFWd3hkeUJLR1Y2aGd4amVLSGR3eXZsR0lRRkxWdVRaMWhyVnl5dEM1LXBxLWU2dw?oc=5) |
 | California Democrats end legislative session with climate deal – and infighting - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOci05T01pVVJuY3NaWmN5YlNENFljRDNfT0hMY1BaWkozMDFPSUdER1prYU1OZ0dINVhHOE1QMVRKYWlSbXpfRGVmY3hrQzAxalF2SjVZVkp1ZmFmN1pBeUROQnl6cmd4VXZGSlpfZUI5QzNQdGJzU2doZ0g5Q1NSWlBnZ2tVY2s?oc=5) |
+| Lawsuit says U.S. deported migrants to Ghana to sidestep restrictions - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNTTlvYWRJOVdIczVaRnQyUV96ZUpYaUtnS1E3SGtFOUNWQzQzd1pkQ09FR190cTc1Y3BISm1mLVo2NlNFVkwtMmxYek41aWZZcjVRbVIxbjY5c2hENlZKd0xucFVFRkJ0aHJEcGlHbG1Fckh3d2dxYjVxekFseG5na2NBQ0t2ZU1ibHc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
