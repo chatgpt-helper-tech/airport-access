@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月14日 20:56:39（北京时间）**
+🕒 更新时间：**2025年09月14日 21:01:14（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Rubio arrives in Israel as Israeli strikes intensify in northern Gaza - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPQXNzLUNtTlpqVW1OQ0ZLVUhhNHdYWllkYnZSaC1LaXJlQmlYUWhfMmZKVTByeWNxOGs3WkU5eGVlcWJ1ZGsyTHE3WVYyTEpWQmRRLWhuYXdmem50dXlQRUpzYkRSaEJaX3NHX1U2ZXlaY0lpMzZKUF8zSjFTSFpaZQ?oc=5) |
 | Mexican congressional staffer resigns after TV comments about Charlie Kirk - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNN3l2ZFFmZmJ4UDJYS1kyNHk3Q1pXRlFGTmd4cmhacHVVOVVXZDFHQ0Z6LW9aRk9ZSXJiTm9GMTl2N2xGRkxNWTVrbE10eVVBWl8wbWJ6RFJsRjhEMWd3WnUtX3F2ZGExTmIycTBjSzUtNWNKcEdoR3FQeGliU2RkREk3NUJHZXNzNTd6bjhfZkNIWXFtREJqUjRpU0JvUVU?oc=5) |
 | Inside a ‘Hell on Earth’ in Oklahoma - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOTS1JQlNaZDVaM1ZLTFZjLWltRXpPWG9nbXp3SWtpNFpJYzQ5TUxIV2dwQUlzOEJ2bjdWbXhFWDhEckJQaFY5c19OS1FkeDlxMGVHMzlqRnF1U1p4TThTMWtZaG91bjlEck4xVkdsSTB0TnhwU1Z2Mm5jWmFvSkx6VVgtTXU?oc=5) |
-| Trump demands NATO action on Russian oil before any U.S. sanctions - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMEZ0WGxYaVZHSWNUdG5ocXRDZHNWTDBsSXhmbXRueWlZSFBPaHZ3NkE2a1ZIRUxZRVcyVUVWclpndHdZcU9fVWNrY2Q3WHJMajU0emxiOFp1RWY0TnFrREJXaGp1MTJhQWk0YjJuQWp5WWl6c3pLMWJIb3c3a0oyblRUb1Jhakk?oc=5) |
+| ‘We need to be unafraid’: SF conservatives honor Charlie Kirk at Noe Valley vigil - The San Francisco Standard | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE90Qi1pc3dCTVZNVmpWdmZycnhlcGV2US1wVDhZRlQ2WVFvdnJGVlktX2ZhYlFESmQ4WTJPVFBWbGxiSEFjcHFsWDFrYWhIZXlkNWk0Z1lYTDU1bC01NFlnZ0VaMlZFYUFLYVp6QzBZLUhrVHVHSlE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
