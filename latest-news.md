@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月15日 03:16:12（北京时间）**
+🕒 更新时间：**2025年09月15日 03:25:12（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Rubio in Israel as IDF destroys more Gaza City buildings | [阅读全文](https://www.bbc.com/news/articles/c1795pv8g7eo?at_medium=RSS&at_campaign=rss) |
 | Phillipson urges Labour to remain united as she launches deputy leadership bid | [阅读全文](https://www.bbc.com/news/articles/c87yply5zdxo?at_medium=RSS&at_campaign=rss) |
 | Romania becomes second Nato country to report Russian drone in its airspace | [阅读全文](https://www.bbc.com/news/articles/c80g7g5rmlno?at_medium=RSS&at_campaign=rss) |
-| Final stage of Spanish cycling race abandoned following pro-Palestine protests | [阅读全文](https://www.bbc.com/sport/cycling/articles/crl5dele2wro?at_medium=RSS&at_campaign=rss) |
+| Final stage of Spanish cycling race abandoned after pro-Palestine protests | [阅读全文](https://www.bbc.com/sport/cycling/articles/crl5dele2wro?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
