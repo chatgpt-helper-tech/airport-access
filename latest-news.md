@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月15日 04:49:24（北京时间）**
+🕒 更新时间：**2025年09月15日 04:57:07（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Trump adopts messenger-in-chief role after Charlie Kirk's death - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOZVBESERoRGd0VDJxX29zUzNDVWdKTWRFOVc5bnVYeEE5VXJIZHZucWZHZVdJcThzTFVMaDFmN282b2o4aHNtUGJBbHg1RE9YaGwtUWxveGs2TERvXzc0WVJVR2F2MkVOejQzdkk2VHdNOTJkRXlXQ1ljT1dETWtSTWQ2bE14dWw5d1ZxVlBLRkRRN09GNnAtQWRRNE90M3BndG82ci1aeUFMZnM?oc=5) |
 | Rubio visits Israel in wake of Qatar attack as Israeli strikes intensify in northern Gaza - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPb3RnYmtveUk4cjhmSHA0T2xBM0lJeXdvbFBzMWtPeVdOMUx6eEFzR05DcVg3OVkwVVZNM05VQjgtNHRqbWo1dEpnWGxRRXlJeEVtZWQtTWd6OEtNMm91MGRGLUQweFFlOUZKaDJTSHdkcURCcG9nY2M5dDVBdGNQaUMzS3R6NGZRdVBpOGJ3MTRzWGdhYzcyQlh6MktqXy01YkdKdmM5THd1Q2V2QXlPVVJsWGpvdFV4UkVLUl9XZlFoQdIBxwFBVV95cUxPMkZlOVJROWxBQ0hfS1Z0WVEySGkybWM3ZVNpd3pmM05NZHM2SmN1Q19aVkRGd1FKTi1zVUFBbjMzTXlHdWFlMmpVbm5QRk1TcFNBbjlfd3gyUnpCNUI5T3FtcTBFUFVNUjl1MW1lX2UxajU0eExPS1VhNWlUcVFvbEhHWGVTN05RV0hPdWdLOVN2YjNfWTV3QVVDalJqdk9lTWkxLWQ2M1FadGN2NnpPOVpUQjU3NW16bWpYYmFqS015LWlPNjhj?oc=5) |
 | Airlines suspend workers for posts about shooting of Charlie Kirk - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE1mSWtqeGtwQTNRWmNqLXVfZE1yR2FCWUN0cDBhZW5NWWpwcEdzSUxteU9UOVZ1RUZuYlZyNk5jU3JiUG90QXE3UDhsMXVmaHlzNDBqYjVwYjQ2X2syeUhMZmUxYVNZUUhGT1E?oc=5) |
-| RFK Jr.'s MAHA report on children's health leaves something out: nicotine - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQa25Sc1NiUXZqNkd1MjlqcTFCVTVvYTY4aTUxaXRxX1Fkc0VfN3Z2NjVPaFVMUmlOdTE5Q1FUS0lFWFQ5OHdqSDZKaE12Q19Wb3JWS3gzbTNnLWdJNmNFTl95dHpkSzl4RHB3NGtQSW00QXNzZVFZRUJVWU52UzZMSWJKV1VORkM1UmdhdVg5VzNkbUdrbDZCeDczZmNscWs?oc=5) |
 | Charlie Kirk’s death raises fears of ‘beginning of a darker chapter’ for US violence - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPa0E4b1lpcGFLdW1PNmp5c2JhTEpMTWdoMm5wSEJwVWNoV1ZDM0V3d29jUXIzVmlQMXV4M0ozc2RwQllnN2JEcjBfbERuOEJhR0YyaGZHa0tDSVlCbkQ3RnFtM3AxLTBpbVpxWTFBZ2hVX0xRWHBWV3RwLUc5M0FhU1B1dlQ?oc=5) |
 | Fox News' Brian Kilmeade apologizes for saying mentally ill homeless people should be executed - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPTzVqd0pLUzFyRmc0ODEtcHNxX0hObXRCV0hVTXdTdzVIYzdvVXdYd09obHBQd3pIR3pjUFZSN1ZTRFQxQ19iZDRjYjJ6X1I3NzZQM3JLWWVrOXhYWE9lSGFmbGdYbUl6MXo2Y0hJUmh0czFMMzEzaGFadTNtQUZiT1ZVMWZQeTdMNm5EazB1U1JmQXRUSGdBempaa1NRd1k?oc=5) |
 | Aurora mayor defends decision to fly flags at full-staff this weekend - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQd3lGS2p5QjRoQmtXOGVmY2JYV1RpVTFqaDNONjZnT05vYmlhR2VablNxUkNTOXd0WGt2MlU1OERpcExzZDlwVzg5Mzc0MkROZnNUVXozanA0M0NlOUlJdFJCTUpZRmwyaWg0cUNLU2g5ekh0SFl1Zl9rOTFFdHpha2tzYTcxTGI0TzQwRUVxbmdfUncxOC0xdDduVXlUZV9vMm9VY09uLXdvMEFSTjBzbFhR?oc=5) |
 | 20-year-old man sentenced to prison for sexually exploiting minor girls on Discord - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPOUZCeEdMME1iT1Q3LWdOeEhhSlo3RmRSbWFRNklkempjV19tMDI2czR1ZHh6ZmhZdXVVZHpsMHAyaVQ4bmpXOXBvbUVGZ1JkUk5mdmRGc244b001bF9lWXZtdWRHcmRld3J4TmxJbnR4U1NwUHpwQ0p5cnRoMnNOQW01dnVYb3kzMERDLUtTUEZoSFhOMWt6bkxDTDV5YnPSAVZBVV95cUxQRGtDeGs4NGJCdDg1VDZYc1BvdmJ2NDhwTlBpYTJwNjB6UHhrOGI4Y1lQbnF1bk9lR21HQW92aUtONXA3OHVLNldjRWhkeENYQUJIajV5dw?oc=5) |
+| Transcript: House Speaker Mike Johnson on "Face the Nation with Margaret Brennan," Sept. 14, 2025 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQT3FNNllQRE9YYjBDWkVHV0xZdDBvMFRuQ1duT1NHczhWUWxTMERZQ0FZdzJlNGxjbEdhUmNUZnlKcFJ1NURzNHpyUWpMX3NpTFRZWEtaWWtOV3ZVU1I1ZFZoZUpvTlJqVG5qaDdtRDdmU2lobnFaaGNtMV9QelppNGNmaGw3cnZpdlk5ZERxdlhoQ2pWbU1CUFhR0gGfAUFVX3lxTE16cktSX3o1b2FIaDBBdVY1ZzdKV1RTWjdzaHk5WWtqeHdNcUVUZndBYXJDX2ZmbXlYQkIwMk40UUJLTkl1dXlXU0pCaEs5X0JzcjBTY0hmQ3ZqR29MdEw2d0xHYWZMUEx5ZDVlalJNaWdsUGVPUVVSemZjSkduRzJLVnRaa3gwc3pxSDhjUmNnRHgxME9rMU45bjJvMUR0NA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
