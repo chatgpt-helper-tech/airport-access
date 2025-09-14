@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月15日 03:00:34（北京时间）**
+🕒 更新时间：**2025年09月15日 03:08:23（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | White House urged Gov. Cox to preach nonviolence after Kirk shooting - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxONllUUENJVFpYNTJpeHpkc2JwLTdpaVNMeEhPcEJqTHhtQVdMT1RxSzJ6eHktZ1BhT3doZTNMc0JJRXNCRnpSa1UxVU9uQjRaQnZTTWR0bmVsNFhlUmlzcGhyYTdiNUFGUEU1SVRvSEpxdFZSNTFvczJoM0Z3aFZzdy1UZDdUWVM3Z0ctNW9ZUkN6UWlw?oc=5) |
 | Airlines suspend workers for posts about shooting of Charlie Kirk - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE1mSWtqeGtwQTNRWmNqLXVfZE1yR2FCWUN0cDBhZW5NWWpwcEdzSUxteU9UOVZ1RUZuYlZyNk5jU3JiUG90QXE3UDhsMXVmaHlzNDBqYjVwYjQ2X2syeUhMZmUxYVNZUUhGT1E?oc=5) |
 | Trump ties new Russia sanctions to NATO tariffs on China - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1DTmpwX3h6SnRxN3BEMGNNWm9ZcU5ucVJzZ1MtUHZ4bzJLV3dDMFhQTkh0emdSeV9zV1hRdlBrelFkTE81Q2ZpMXZOWTNFaFJQYXYtY21lM3BKaldER1RtOXNpdHN3ay11aTVzYjA0TEF6bkd2QmVUbmRxdjBOSVE?oc=5) |
-| Romania becomes second Nato country to report Russian drones in airspace - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9SMFllYnZTLWVEdGE5d1VKTWdzZjMxd0pxNnlyTVVoU2JSRXozTWIxd2k2VEFWeDk1T04td2VTS3I1VEhzeEh2UE95Xy1CS3FJUWYtcW5WU1RQUdIBX0FVX3lxTE81R2FrX0hDNWNvQkRCZ0IzM20zU3gwbkhlTFFnTUJHR05lUWlmUGtaR25DRE5qdUtvLTdOaDR1X1FadURkOWtNbzA1V0h6NFJ1WVJyY2JrMmRIdGF1OVlj?oc=5) |
+| Trump adopts messenger-in-chief role after Charlie Kirk's death - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOZVBESERoRGd0VDJxX29zUzNDVWdKTWRFOVc5bnVYeEE5VXJIZHZucWZHZVdJcThzTFVMaDFmN282b2o4aHNtUGJBbHg1RE9YaGwtUWxveGs2TERvXzc0WVJVR2F2MkVOejQzdkk2VHdNOTJkRXlXQ1ljT1dETWtSTWQ2bE14dWw5d1ZxVlBLRkRRN09GNnAtQWRRNE90M3BndG82ci1aeUFMZnM?oc=5) |
 | Charlie Kirk’s death raises fears of ‘beginning of a darker chapter’ for US violence - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPa0E4b1lpcGFLdW1PNmp5c2JhTEpMTWdoMm5wSEJwVWNoV1ZDM0V3d29jUXIzVmlQMXV4M0ozc2RwQllnN2JEcjBfbERuOEJhR0YyaGZHa0tDSVlCbkQ3RnFtM3AxLTBpbVpxWTFBZ2hVX0xRWHBWV3RwLUc5M0FhU1B1dlQ?oc=5) |
 | Sen. Chris Coons: The internet "is driving extremism in our country" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNT3NTRHI0cFJIWlBzTVFqeFBQSnd1YWFUMnRpM21fTFI1LU9WdVBXSW9LZ0d2NjFma1F3eVMtVXl1R21MdU5xQ3dCWTZTYmtNSWNRUnNyVE9BaDNvWFNpYUxkVGRRYmNTWi1xcDVRZHItd0xoMVoxaTdqYmh5TlN4T0tvQ1FyQzlWd2EwWdIBkgFBVV95cUxPTjRfUEhHbEZlSm9uN3hpNE5ibW0zQ0NMSFJkZkFDZ1dmcU5WN052enJzNUxLZFJEVTBFbFJsMlBfVFJ0YTI2SGZWX2dFc2kyWTZlNDloTTc1U0ZoelN2Z2RIdHNlQlhaUThRQUlsVXhkSWRWUnFpLWdfbFlhcVVZNU5WenVGTUlFM1hGYTEyNXhJUQ?oc=5) |
-| Utah governor: Charlie Kirk murder suspect ‘clearly a leftist,’ lived with trans partner - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPU1hxYjh2V0xfeExPN0ZLcnVHT0M0X0FwNTd4SkpRcC1CdGR6aXRuN1lDaXk5SXBkQ3VLdUJCSWxTa3M0eDVvc3FlLUZqcEVMQ2d4NFMzc0VrZXhCTUhDQU9ZTkRhX0NKQWNjMDdzMzhNSGg1bU9XS1JSYVRlT2tzc0xNQUlsc1NkdFQ4ekN3ZXIxS1c4dmZ1RmdhenR5UElkY0Nob2UzLTNYaGd0NHh0cUt4dW9ud9IBuwFBVV95cUxNeEhnN0hvbnp5Qm5DTm1mai1JOVlfUnBnLWFCX2RFUldYbHhwTldKTVlsT1pTTTBXNWM4c2ZRaWVYM1ZmZXhZdmhaMy1Qa2RXTmx6cTFaamt4RGRQTGZHV3Bnb1MwOENxOEtscnpsaldBZ2kwVER6eGRCRFNPOHRLRUl3b0Q5VndSSTRCa1lKWmlTaUwyeFlvT2JZcF9iR2hCYnFyZGhMMkExSk8yWHotT3dCWExwMVRndFhR?oc=5) |
 | Governor Cox: 'Social media is a cancer' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNS25wRHFIRTNaSWNSb0J5Q3l1TTdabk9NN0trZzhkazB6TE9UUTVsM3NVZHJLai04MmduenE4c2pBNGt1NWlJQTVmUHZNU0pvajY0azY2ZFJ5R3JNbVI1eWJ2OGxNdFJBQ011SHlhYVZwUEdxN3hyMGhtU29DOWtBQmdwbVBiYnRwRHRaaGF4bnQ?oc=5) |
+| Pope Leo XIV marvels at his ‘huge learning curve’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOdGczaXduZlA4dDJRNDZyRHRwT2lPeGdmeUdZZXRVb0JSZndqTUU0cXM0OGFXbmxqSHMyTFV0TTBiV1BRQWVRaGdNRGJoWm9meGRkaXVQMGEzS2VmaFZUSnBtTUktTzZfQ2pqWkh1S0w3aEU2d1g2OTBrd0ZDN0xHOGhmTzZENlZ2U21LUm1GRUg5cUVvdzFGdkd2aEtZUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
