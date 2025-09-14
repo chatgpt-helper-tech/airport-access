@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月14日 23:32:29（北京时间）**
+🕒 更新时间：**2025年09月14日 23:40:16（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Historian Jon Meacham on political violence and the threat to American democracy - cbsnews.com | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPQXV6c2JNRlo3by1Obkg1cDVhNEpYMjBsUjAxTjkxaHV4LThvaHNWMnFvczk5SVRDQnRYbGJ4Z1AyNjltMnBkVFVJeGJPZ3ljWUwxTUV4QkRuekROdFN0UnZWVmVveXowc0ctdmk1NUk3OU5LT3VVZEg4bW1hNE1lUFk4RFJPZ1dOUUF5UlQtX0NnbWdQcHhEckV2dmczQUU0OUpJcVd3cVludUEtNkE00gG0AUFVX3lxTE55YmVtSkZ2d3NhaEhOWEFBd2I3eThWWWVYWktPUnNxQ0ZlenNoYVJMV0VzSkhac0l5aXRVaFRXZnhLM3JVLWlzVlB0am44SFB2NUhkU0ZTYUlrZ2UtS3dyNktjX2tUM3hPNlRxQmFYS2lva09LWGcwcGNxVVd1R2VzcHYzQVJsMlB0bnFKN3ZPTmxuYjhEaFcyNHVGSHJPYUN1dlJoNHk4RklrUjNIWWdxRDc5bw?oc=5) |
 | Iowa official defies governor’s order to fly flags at half-staff for Charlie Kirk - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQOUUybERqNGJpWHI3MmJnT3pjaE0zR05seFZpTFR6d29iek11QUNudWk0c1J0TTRoREo1ZXYyRWZ0T3ZBdmNQMFpEVnBmRTJ3TmV5OW1jeXF0TTgwREFSTGRZR0h1NURIRk1zTlFvLXFSVnhuMklmeldMV0NCSWRwV05iTjJOTFVIQ2M2anEzTXJWQndhUDV2b09FdHJzUQ?oc=5) |
 | After Charlie Kirk’s death, workers learn the limits of free speech in and out of their jobs - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPUFRMUEhCRW1IRWRBLTVvUUxEQmp4dnBFUkFScUJrSWFJUjhNUjZ6YU9iUkk2aFo3bFE2VGo0WGhIQ2wwNE9aaU1nTC1MWENsWnJwanNLd2JKTGdVdWdBWWVJc3JqaUJyN09rVk9Xa2dmd1dYSmYtWWxfcDdMekI1bC1lcl81em1KdEMyaU1uNHQ3b1FHNW43M3o2eWg?oc=5) |
-| Rep. Michael McCaul won't seek reelection in 2026 - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE85UWVuUF9RRWV4UjZlZ19nTEg4ZVNhUjVTckN4eWZnQmZ5TEtrNUZ0eTR1STJ4RG9GcnZPZ0ZiZG1iOVNySHpUV2ZkN1FjaW41Y1lXSnRVQzU2cGJUMFJhSzlLcVpqaWExZjJwQVlaVmptRGFtM3I4NE9n?oc=5) |
+| Book Review: ‘We the People,’ by Jill Lepore - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPdmcwTFVESlJTc0M1N2tobmVzd0tsdlZDd2RqMUxEWEVXVEpLWG8wVjhZY0x3Y1N2OVpwY2FMbVdHLWhsU29GeF9rdkFKeFhYenRfWlowY25FR2V5dV9MS1RGanhhTEtQb1RNSl9lUW8zR1RiclRaeWJYZDdVQW40UElRdXM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
