@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月14日 22:08:48（北京时间）**
+🕒 更新时间：**2025年09月14日 22:16:07（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Utah campus concealed carry permit under fresh scrutiny after Kirk shooting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPUDR6RHhZdWlQRndZVjBmOGJTbzhXbkFremhZeUNCeEI4NDdhSnlnZXN3VHRRaU9saWxoQ3lfOTdmX0FTMjA5dWU5YlpPRzZmRnNhM3k1ckFhenZEUVdlOXNIVDYzWHlmOWEwTndzRnU4UTJyMDVOMkEybXBhSnpvaWRaVEpNSmJIZ3c?oc=5) |
+| Trump adopts messenger-in-chief role after Charlie Kirk's death - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOZVBESERoRGd0VDJxX29zUzNDVWdKTWRFOVc5bnVYeEE5VXJIZHZucWZHZVdJcThzTFVMaDFmN282b2o4aHNtUGJBbHg1RE9YaGwtUWxveGs2TERvXzc0WVJVR2F2MkVOejQzdkk2VHdNOTJkRXlXQ1ljT1dETWtSTWQ2bE14dWw5d1ZxVlBLRkRRN09GNnAtQWRRNE90M3BndG82ci1aeUFMZnM?oc=5) |
 | ‘It’s unacceptable’: Inside growing concerns about Patel’s FBI leadership - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBLWnpyQlM1QXpQOHF1Y1hLcTJicnV3S2w1RG1IdWMxekRscVhBZ0ZXOTlUay1RUnBILUxuVTB5YkJyay01OG9WVlFMSnBQUV9yRzgzZGtjTmctWUJyNHhuSzZWMGp6TE5wRHpocXpwSmMxVV9Wd2NwQjVyWkZ0UVk?oc=5) |
 | Marco Rubio meets Benjamin Netanyahu in Israel after Qatar strike - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1nNmcwRzE0SzYyWEZpWklTS0cwdGlWaHhmNmlKUE9YNEFPOFRyX3NEdGdRbkJWbDVwdFh0a1UwYXcwYXplVS16SURfb3cyS0hXeWZWQkQ5Qko3bW9yX0RqVFFHWGxmRUtvaHZpNnFKQVI?oc=5) |
-| 'Nazi Karens' Go Full Cancel Culture on Charlie Kirk Critics By Trying to Get Them Fired - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOTmMyajJUNFl1ei0yVXhVNW9FRDBTWHJ5d2o4em1kRkFGRHJ5QThKX1p6RHIyYjlOdHJRc0tvbVdnYmtNN2IzdWtKM01RME1oM3BmSHIySXNVRm5YbTFnS3ZBb0xPWVM5VFJzb0ZHN013WmVwb1VlTEZDVVlXQUhOZkI1aUhRQ1Q4MnVNYTZKLU4tXzkzQkYyU29DVzFxNjhlQmFiYV9YLThMYU5YVHdwMzNRbjlwV1FwSXc?oc=5) |
-| We will never surrender our flag, Sir Keir Starmer says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBEMVhlSEwteHNoUndCdmVXRlpEY2ItMmVGRVdJXzQwSmI4MEJ6UHozNjFoREZuSDdZanVzdFhmTXYzRVlERmdzRlM5Nk9QMFFEdDM5LTBTRmNKd9IBX0FVX3lxTE15d3ZVVGNGWWhyem5fZXZycl80eU1IN2pOZG9IRVlzMnVEeFRyWHFUR2dtLVVQUnhsWk1tSEtEcHpfSTFxZjBmTDJROWlJT053YW9aWXhKTzBZZXNxbkJv?oc=5) |
 | Charlie Kirk’s death raises fears of ‘beginning of a darker chapter’ for US violence - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPa0E4b1lpcGFLdW1PNmp5c2JhTEpMTWdoMm5wSEJwVWNoV1ZDM0V3d29jUXIzVmlQMXV4M0ozc2RwQllnN2JEcjBfbERuOEJhR0YyaGZHa0tDSVlCbkQ3RnFtM3AxLTBpbVpxWTFBZ2hVX0xRWHBWV3RwLUc5M0FhU1B1dlQ?oc=5) |
+| Trump 'ready' to sanction Russia if Nato nations stop buying its oil - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1EXzRqdVRMenI5X3pEazh1WXJnN2RhNVJXNVNIZUpHb0RoSVRKVWNiX244QmpkTmFod2tzaWYzUWF0dVZOdVF0THZHZldXS29UbGcyRWc0WTlyZ9IBX0FVX3lxTE41TVlWek9veUQwYmdldVA4c0xCcW5GZkdHZHdMclZwcEhwbHRUR0hCbERRd2l0ZXRJM1VpX1dwaW1QT2gxaWo5d2VhdG8tY2wzQ0h2OEtvYWhBUGh5ZjN3?oc=5) |
 | Book Review: ‘We the People,’ by Jill Lepore - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPdmcwTFVESlJTc0M1N2tobmVzd0tsdlZDd2RqMUxEWEVXVEpLWG8wVjhZY0x3Y1N2OVpwY2FMbVdHLWhsU29GeF9rdkFKeFhYenRfWlowY25FR2V5dV9MS1RGanhhTEtQb1RNSl9lUW8zR1RiclRaeWJYZDdVQW40UElRdXM?oc=5) |
 | Finding God in the App Store - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiZEFVX3lxTE5mc0ZGTTk0V0VRVGdUS19ydzROWWRsN29DYlJIMWtTZ3ktMGhZNXFzZElIN0JVbW1EaGhkX0JETlRPa2VZUmJ5TTA3aTdJNGZfWGEtYTQ3TExXNkR4aldBNmllT3I?oc=5) |
 | U.S. diplomat expresses regret over immigration raid on South Korean workers - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPVnA5LXBlSG1mMExveDdQVURmQW1YZE85UjgxX3BoQ0w0UDMxNlYyTThtOW1ENlAzcGxIdnBtZHMyWVBCUTFOMTlNclpUbW9TeE9GMEFXNFNDMjNyR2pfeGhHXzBxbjdzZkxyNWlOS2xDeGRKWVFZYlpRT21rTUFPd2tUREdhUzR3ZF8yWmwyVnA1Y29Gazk0T1h6X1YxckRNcFNlVHV1S0VJTXhxZUlheElMUVE3Z9IBVkFVX3lxTE5NUDBHZm1HSmUwV3RXTEU1em9TTGZNNDEwYzVqQ29hY1dqUlBFMlZnMkwtZUM1ZTdvdFZEMnJxM2d3OTAwNnB4WnJtUXFqTDluUUdsYWJB?oc=5) |
-| After Israel strikes Hamas leaders in Qatar, Turkey worries it could be next - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOOEp0N2tCMHIxbGpXOHhKWE9PYW94bVZ3MTE5a2RSeHVSRi1ZM1NvZG15R0hfLXpCeGVFdC1TTXNuaGwwMWJRaldvUUhmeExBRzBvUUEzNWg5T3NxM2o5blEyaUx4bEZoMEYxQkJRLVdFM0JPcWJfTURiWVcwLWE4TUU2Wlc0TThVLUY2QmtLVG1DZTlJNTRodFZRYV9ELUJCellsMUNfbllsd9IBrwFBVV95cUxPdkdqd3loMTlTVXk5RllpSDhuN1dvV1NTT0VIMWR4aDFBcHdGRFFNd1JKTUhTLXdBSzRkT05yMkdoX3o0eFJMWUxUVkhZSWdYYXk1d0hLVld6SGVQbUN5UDR2ZjAzR2VyZHBLNFk1Qkc2Ukt4MXJ2a3A1UWNjQ1AxRlVZbHMzSFpOX1BBa29SSnRtTlk5cDh4RDNveUk4eVRnTk1VX0RFMVY2amhiWDFv?oc=5) |
+| Elon Musk says UK needs ‘revolutionary’ change of government in speech to anti-migrant rally - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNY25CV21CVml6U2cwUllXUEI3b0J2QUJOQXQtdmRXdE5MazFkcEQxY2pKYUxLV2NHQmtGcFNzNGJJaEZYRHI4RFNNTXVOWTRnZ1FtSGthTHl0cWZtODZRLUJlZ2ZTc0hkN2V2LWt0MkVnbVZxNklTVHhGQUppUGUteVBGUHQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
