@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月15日 01:57:25（北京时间）**
+🕒 更新时间：**2025年09月15日 02:00:21（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | Strong winds and heavy rain forecast as stormy weather to hit the UK | [阅读全文](https://www.bbc.com/weather/articles/c5ykrp2436eo?at_medium=RSS&at_campaign=rss) |
 | I spent £1,000 to go to a hen party. You feel like you have to | [阅读全文](https://www.bbc.com/news/articles/c930pyzygqxo?at_medium=RSS&at_campaign=rss) |
 | Kirk suspect 'not co-operating' with authorities, governor says | [阅读全文](https://www.bbc.com/news/articles/c4gvrw2pgedo?at_medium=RSS&at_campaign=rss) |
-| England sweep aside Scotland to reach semi-finals | [阅读全文](https://www.bbc.com/sport/rugby-union/articles/c3e7v02zg20o?at_medium=RSS&at_campaign=rss) |
 | Phillipson urges Labour to remain united as she launches deputy leadership bid | [阅读全文](https://www.bbc.com/news/articles/c87yply5zdxo?at_medium=RSS&at_campaign=rss) |
+| Romania becomes second Nato country to report Russian drone in its airspace | [阅读全文](https://www.bbc.com/news/articles/c80g7g5rmlno?at_medium=RSS&at_campaign=rss) |
 | Final stage of Spanish cycling race abandoned following pro-Palestine protests | [阅读全文](https://www.bbc.com/sport/cycling/articles/crl5dele2wro?at_medium=RSS&at_campaign=rss) |
-| Rubio in Israel as IDF destroys more Gaza City buildings | [阅读全文](https://www.bbc.com/news/articles/c1795pv8g7eo?at_medium=RSS&at_campaign=rss) |
+| England sweep aside Scotland to reach semi-finals | [阅读全文](https://www.bbc.com/sport/rugby-union/articles/c3e7v02zg20o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,7 +30,7 @@
 | Trump presses NATO nations to halt Russian oil purchases - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNQ2txS0pmOEhOMjhCelh2NWZHcmNJUFF5NlJYMUtTOW91TWtwZGtnZm5SMFZ0UTNsUGRqMDhubEMwLTNrcm80TjFhZHJGZXFmMXRiZW5VSG1hWGg3SVAydmZ1X3VsVXJxYW5TVVpJYzN3ZDRVVjRLazE1WXZxMkdWNGUyTGZVTno0Y3VoaF9xSGhrcDk4SmJKTEhmaHhVUkxUdFpZQi1pRjg?oc=5) |
 | Charlie Kirk’s death raises fears of ‘beginning of a darker chapter’ for US violence - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPa0E4b1lpcGFLdW1PNmp5c2JhTEpMTWdoMm5wSEJwVWNoV1ZDM0V3d29jUXIzVmlQMXV4M0ozc2RwQllnN2JEcjBfbERuOEJhR0YyaGZHa0tDSVlCbkQ3RnFtM3AxLTBpbVpxWTFBZ2hVX0xRWHBWV3RwLUc5M0FhU1B1dlQ?oc=5) |
 | Iowa official defies governor’s order to fly flags at half-staff for Charlie Kirk - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQOUUybERqNGJpWHI3MmJnT3pjaE0zR05seFZpTFR6d29iek11QUNudWk0c1J0TTRoREo1ZXYyRWZ0T3ZBdmNQMFpEVnBmRTJ3TmV5OW1jeXF0TTgwREFSTGRZR0h1NURIRk1zTlFvLXFSVnhuMklmeldMV0NCSWRwV05iTjJOTFVIQ2M2anEzTXJWQndhUDV2b09FdHJzUQ?oc=5) |
-| After Charlie Kirk’s death, workers learn the limits of free speech in and out of their jobs - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPUFRMUEhCRW1IRWRBLTVvUUxEQmp4dnBFUkFScUJrSWFJUjhNUjZ6YU9iUkk2aFo3bFE2VGo0WGhIQ2wwNE9aaU1nTC1MWENsWnJwanNLd2JKTGdVdWdBWWVJc3JqaUJyN09rVk9Xa2dmd1dYSmYtWWxfcDdMekI1bC1lcl81em1KdEMyaU1uNHQ3b1FHNW43M3o2eWg?oc=5) |
+| Airlines suspend workers for posts about shooting of Charlie Kirk - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE1mSWtqeGtwQTNRWmNqLXVfZE1yR2FCWUN0cDBhZW5NWWpwcEdzSUxteU9UOVZ1RUZuYlZyNk5jU3JiUG90QXE3UDhsMXVmaHlzNDBqYjVwYjQ2X2syeUhMZmUxYVNZUUhGT1E?oc=5) |
 | In an Era of Deep Polarization, Unity Is Not Trump’s Mission - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQR3lWWFA5cE0xMU5qRG1tZTRCVmo1X05XbUNJWHRlRVY0YWJOZWxnWmFkeGY4ZEh4WkVNcEJwRGxrU1JWaFNJV0ZuVU1vYUZfMGtVeHZEMFB1MUp6dHhPVV9FWnl1X0l5aVFHcXpUUWV2ZnNUMmNkZWxjQXIzdW1TUkhvZndtUnlm?oc=5) |
 | Memphis mayor: "Certainly not happy" about Trump's National Guard deployment - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBlTkpRTUoxMDhNOThMY1pOd1hrRjNSbEhHWkR2cnhZNlJFZFBiTkVWWmpnaTc1YlZMOVJfZnRBR0xOekJ2WGttY0V4aHd2Q0pLMFY0Sng3SVd6Z1FzUGEteHRka1ZOZFVBVTZtTWhUQVBFY3ByajVyd25lTEZuUQ?oc=5) |
 
