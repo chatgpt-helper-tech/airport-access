@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月14日 15:01:23（北京时间）**
+🕒 更新时间：**2025年09月14日 15:08:22（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| White House requests $58 million to increase security for executive, judicial branches after Charlie Kirk shooting, sources say - cbsnews.com | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxQb2tYTVhlNnFHdUJqV1luVkVnNzBMRDJ5T1hQMlpZdWJMM2p6ZE0wcEp2OFlqTVNUQmRTWHlFUlh4OGZIVUgxa0lfMU1sQlRqbV9xeTNQRHNOSWNadnpIbGt4amlleTJwcXJqNzN4UmNNamlBVWFfdGR6NFdQT2JpWkxUbTVjOTFNRWtrcnBqaDZXQWNKcDlheFc0Tm9RMUt0TVdja0p3dkpUN0FpdW1KbFJRcWEwXzB3a0l6NVJZVENOYUYxYXYybVpub1BjT2tVVnBIYUtjQzUtVUk2Mnpz0gHkAUFVX3lxTE9scWV2T1MwbUgwTlEtT2VwRFdMZkNTc2NXendLMzFTZkNuckhlU1dXVkFkWjJlVVdzZjZOR05Dc2d3a0FNMWQ5TzlwX0g5WVVubEk3eTZiQW9sLWN0VXNjQWZNSDd1bzN1OG0tV3lSZ0hZTExwUWg4WXhRY05HMGJub04zMlJVeXNyMUtUaU9EVUJYVU9OaWs2Q2t0WGNJSXRRcVBjY0kyR2ZaaFhZZVpaN0xBc1d5dFdBRnhDN0NHMmVxcnZfaWpxc1k2WmpIcFBuTHlNLW1SRGJrVWpGSzA2cmY5YQ?oc=5) |
-| Over 100,000 attend London rally organized by far-right activist, clashes break out - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQNWF2TTVBVU43QkpiOXJJVXF3aGd5UzBaVmdnZWpfM0k2MXBOR1ZGRjY5M2dzclBnTTkwSmVITEprWV9wdlRheDBUQUlYNWxkbDVzRXdpMWIta2JYQlZXb05yd0VKT0pXT1lidEx0WTNSZVhxNzZsRG1MYy1idFl3Vy1SMEo?oc=5) |
-| Romania reports Russian drone in its airspace as Poland scrambles jets again - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNZGlUbTlaRjdaVmpYQVhTQmFCV2ZCdGkxWnE2Tm5XV2VMdGQ4d1BvOHZBUElYdTRqYjhNZzlaeERielpxeDFBa0M4bEh2RzVmaS05XzVmeHpmQUhYazRlWldkYUQ2ZjJLN2ZhdFNFc1U3UUx2S3UxZTFIVnVmaHd5REtqSmRKbEFwOE1VcnFSeXZPS2txUGRnZjRCeWVRMXphU2Qzbm05M1RMeGlITFVISmFLel9zdG1iVHpFWjJuSQ?oc=5) |
+| Sources: Kirk suspect's transgender roommate "aghast," may be key to motive - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTFBfZVpRTGlWekZTNzA5RHJjRXBsMy1GbmRkd2JVcktDenROTGlNaEFtRWU3MXdhVWtaMll4ajI0ajlyUjBWVFl5VmN5OVUwSkxXalhEdUJtRGJsbVBOMkhxQmJvN1RrNm5yVjkzRDN1czMxaklS?oc=5) |
 | People are getting fired for allegedly celebrating Charlie Kirk’s murder. It looks like a coordinated effort - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5WaFRBZDVoYTFHWDI3MVRickZWVHFCeFRBVjNrczlHU3cybWVpbkFoclFETDU0djl2eEJSSXNPazVobEZ2YkFfbUY0XzdDQUJwdnBBbVgwYmp5b3hhbjVuQVJqZm4xZ2lDYWozbV9lMnBSNVZCS1lrYVJHU1lqUQ?oc=5) |
+| Romania reports Russian drone in its airspace as Poland scrambles jets again - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNZGlUbTlaRjdaVmpYQVhTQmFCV2ZCdGkxWnE2Tm5XV2VMdGQ4d1BvOHZBUElYdTRqYjhNZzlaeERielpxeDFBa0M4bEh2RzVmaS05XzVmeHpmQUhYazRlWldkYUQ2ZjJLN2ZhdFNFc1U3UUx2S3UxZTFIVnVmaHd5REtqSmRKbEFwOE1VcnFSeXZPS2txUGRnZjRCeWVRMXphU2Qzbm05M1RMeGlITFVISmFLel9zdG1iVHpFWjJuSQ?oc=5) |
+| Over 100,000 attend London rally organized by far-right activist, clashes break out - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQNWF2TTVBVU43QkpiOXJJVXF3aGd5UzBaVmdnZWpfM0k2MXBOR1ZGRjY5M2dzclBnTTkwSmVITEprWV9wdlRheDBUQUlYNWxkbDVzRXdpMWIta2JYQlZXb05yd0VKT0pXT1lidEx0WTNSZVhxNzZsRG1MYy1idFl3Vy1SMEo?oc=5) |
 | Trump demands NATO action on Russian oil before any U.S. sanctions - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMEZ0WGxYaVZHSWNUdG5ocXRDZHNWTDBsSXhmbXRueWlZSFBPaHZ3NkE2a1ZIRUxZRVcyVUVWclpndHdZcU9fVWNrY2Q3WHJMajU0emxiOFp1RWY0TnFrREJXaGp1MTJhQWk0YjJuQWp5WWl6c3pLMWJIb3c3a0oyblRUb1Jhakk?oc=5) |
 | Undocumented father killed by ICE agent in Franklin Park shooting had no criminal background, lawyer says - cbsnews.com | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPWVdCck1LOUxnV1YxdkpOOFAwTTUtQWV1dFpNVldFNkFKU1RFZ0VmaGZUWVF1T00zek02dXFGbU5GU3o4X3NCWC1Udl9vaUJSZWdaNy1nSGYtYWVoYmpFdDZwRGdfLWJOY1g5OHVoTUxEVmF6N2toR1VsWEhUdDhSUTRCZnEwSDluT05neGZ6a19fQVR0eXpVQnNfUXhCQQ?oc=5) |
 | Memphis mayor says he got confirmation National Guard would be deployed from Trump's TV comments - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPa00wYjhqMWZ0N0VwLWFEVi1XUDZoV3pfaVQ4a2ZxTE5WUTZIRWU4QkM1Z0xYYUdkTERYenFLeklTaURudU9ITUFYSDc5UDJtZ0FhZjVENG1ObVhHWUtqSlVrTmFWd3hkeUJLR1Y2aGd4amVLSGR3eXZsR0lRRkxWdVRaMWhyVnl5dEM1LXBxLWU2dw?oc=5) |
