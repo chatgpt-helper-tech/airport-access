@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月15日 04:00:20（北京时间）**
+🕒 更新时间：**2025年09月15日 04:09:37（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Charlie Kirk’s death raises fears of ‘beginning of a darker chapter’ for US violence - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPa0E4b1lpcGFLdW1PNmp5c2JhTEpMTWdoMm5wSEJwVWNoV1ZDM0V3d29jUXIzVmlQMXV4M0ozc2RwQllnN2JEcjBfbERuOEJhR0YyaGZHa0tDSVlCbkQ3RnFtM3AxLTBpbVpxWTFBZ2hVX0xRWHBWV3RwLUc5M0FhU1B1dlQ?oc=5) |
 | Sen. Chris Coons: The internet "is driving extremism in our country" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNT3NTRHI0cFJIWlBzTVFqeFBQSnd1YWFUMnRpM21fTFI1LU9WdVBXSW9LZ0d2NjFma1F3eVMtVXl1R21MdU5xQ3dCWTZTYmtNSWNRUnNyVE9BaDNvWFNpYUxkVGRRYmNTWi1xcDVRZHItd0xoMVoxaTdqYmh5TlN4T0tvQ1FyQzlWd2EwWdIBkgFBVV95cUxPTjRfUEhHbEZlSm9uN3hpNE5ibW0zQ0NMSFJkZkFDZ1dmcU5WN052enJzNUxLZFJEVTBFbFJsMlBfVFJ0YTI2SGZWX2dFc2kyWTZlNDloTTc1U0ZoelN2Z2RIdHNlQlhaUThRQUlsVXhkSWRWUnFpLWdfbFlhcVVZNU5WenVGTUlFM1hGYTEyNXhJUQ?oc=5) |
 | Iowa official defies governor’s order to fly flags at half-staff for Charlie Kirk - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQOUUybERqNGJpWHI3MmJnT3pjaE0zR05seFZpTFR6d29iek11QUNudWk0c1J0TTRoREo1ZXYyRWZ0T3ZBdmNQMFpEVnBmRTJ3TmV5OW1jeXF0TTgwREFSTGRZR0h1NURIRk1zTlFvLXFSVnhuMklmeldMV0NCSWRwV05iTjJOTFVIQ2M2anEzTXJWQndhUDV2b09FdHJzUQ?oc=5) |
-| Governor Cox: 'Social media is a cancer' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNS25wRHFIRTNaSWNSb0J5Q3l1TTdabk9NN0trZzhkazB6TE9UUTVsM3NVZHJLai04MmduenE4c2pBNGt1NWlJQTVmUHZNU0pvajY0azY2ZFJ5R3JNbVI1eWJ2OGxNdFJBQ011SHlhYVZwUEdxN3hyMGhtU29DOWtBQmdwbVBiYnRwRHRaaGF4bnQ?oc=5) |
+| 20-year-old man sentenced to prison for sexually exploiting minor girls on Discord - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPOUZCeEdMME1iT1Q3LWdOeEhhSlo3RmRSbWFRNklkempjV19tMDI2czR1ZHh6ZmhZdXVVZHpsMHAyaVQ4bmpXOXBvbUVGZ1JkUk5mdmRGc244b001bF9lWXZtdWRHcmRld3J4TmxJbnR4U1NwUHpwQ0p5cnRoMnNOQW01dnVYb3kzMERDLUtTUEZoSFhOMWt6bkxDTDV5YnPSAVZBVV95cUxQRGtDeGs4NGJCdDg1VDZYc1BvdmJ2NDhwTlBpYTJwNjB6UHhrOGI4Y1lQbnF1bk9lR21HQW92aUtONXA3OHVLNldjRWhkeENYQUJIajV5dw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
