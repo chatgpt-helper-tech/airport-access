@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月14日 15:08:22（北京时间）**
+🕒 更新时间：**2025年09月14日 15:17:42（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Over 100,000 attend London rally organized by far-right activist, clashes break out - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQNWF2TTVBVU43QkpiOXJJVXF3aGd5UzBaVmdnZWpfM0k2MXBOR1ZGRjY5M2dzclBnTTkwSmVITEprWV9wdlRheDBUQUlYNWxkbDVzRXdpMWIta2JYQlZXb05yd0VKT0pXT1lidEx0WTNSZVhxNzZsRG1MYy1idFl3Vy1SMEo?oc=5) |
 | Trump demands NATO action on Russian oil before any U.S. sanctions - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMEZ0WGxYaVZHSWNUdG5ocXRDZHNWTDBsSXhmbXRueWlZSFBPaHZ3NkE2a1ZIRUxZRVcyVUVWclpndHdZcU9fVWNrY2Q3WHJMajU0emxiOFp1RWY0TnFrREJXaGp1MTJhQWk0YjJuQWp5WWl6c3pLMWJIb3c3a0oyblRUb1Jhakk?oc=5) |
 | Undocumented father killed by ICE agent in Franklin Park shooting had no criminal background, lawyer says - cbsnews.com | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPWVdCck1LOUxnV1YxdkpOOFAwTTUtQWV1dFpNVldFNkFKU1RFZ0VmaGZUWVF1T00zek02dXFGbU5GU3o4X3NCWC1Udl9vaUJSZWdaNy1nSGYtYWVoYmpFdDZwRGdfLWJOY1g5OHVoTUxEVmF6N2toR1VsWEhUdDhSUTRCZnEwSDluT05neGZ6a19fQVR0eXpVQnNfUXhCQQ?oc=5) |
-| Memphis mayor says he got confirmation National Guard would be deployed from Trump's TV comments - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPa00wYjhqMWZ0N0VwLWFEVi1XUDZoV3pfaVQ4a2ZxTE5WUTZIRWU4QkM1Z0xYYUdkTERYenFLeklTaURudU9ITUFYSDc5UDJtZ0FhZjVENG1ObVhHWUtqSlVrTmFWd3hkeUJLR1Y2aGd4amVLSGR3eXZsR0lRRkxWdVRaMWhyVnl5dEM1LXBxLWU2dw?oc=5) |
 | US official says personnel from Navy ship inspected Venezuelan fishing boat for drugs - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOcFBfWVpFUHVZZEh5WG91ZmRvenV3TzRVZEEzQkdMZURGRS1SR0dQNEJNaDhVX2dWbmE1YUpYejgzNGRicVBkQURKQnh5N3JyUzdpcktCT0NaUkNNWk5lYWcwQVVwdEdoc194YU9NN1NQNGxUQWtBTkwwWms4a3ZONnhMSzZuRUlodGdHZ3BLNTBucWwtOUNRX1JmVEJwVUZ0YkZ5V1Y4V3hlZ2t2TGgzeHdvOTVLcTjSAbwBQVVfeXFMTkRLc2duZGh2enBoN0pWeGtVMHZ3elIwcmpERkM3NXZzREwyS3c5VDUyRmdwZmFfXzlfaE9WQVJSbkRlak04V0c1Y2RCcWZxTkpta05sY1ItYkJocnA2NzNTSXhGRURrX2J6Um1KMjZLRWVLWmxXLS1oQUpLaGxYcjllOE5MeXFicXJEZ0RRaW5aNldwbG9BOFYxZUJ4alFhMmJfdGhZWXVEUkQ5bXIzN1RrYmZDc2JPWjMtYWE?oc=5) |
+| Memphis mayor says he got confirmation National Guard would be deployed from Trump's TV comments - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPa00wYjhqMWZ0N0VwLWFEVi1XUDZoV3pfaVQ4a2ZxTE5WUTZIRWU4QkM1Z0xYYUdkTERYenFLeklTaURudU9ITUFYSDc5UDJtZ0FhZjVENG1ObVhHWUtqSlVrTmFWd3hkeUJLR1Y2aGd4amVLSGR3eXZsR0lRRkxWdVRaMWhyVnl5dEM1LXBxLWU2dw?oc=5) |
 | California Democrats end legislative session with climate deal – and infighting - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOci05T01pVVJuY3NaWmN5YlNENFljRDNfT0hMY1BaWkozMDFPSUdER1prYU1OZ0dINVhHOE1QMVRKYWlSbXpfRGVmY3hrQzAxalF2SjVZVkp1ZmFmN1pBeUROQnl6cmd4VXZGSlpfZUI5QzNQdGJzU2doZ0g5Q1NSWlBnZ2tVY2s?oc=5) |
 | Federal Judge Questions Deportations to Ghana - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQejdtWE4yOXM4bmFuV29kWTdVLVBta1M2TkZQTEdwNTBMb1dsaTNOVXJIN1RSb2NxeUVKT21ZN0dfR1pfcGcyWUczSm1fZUVZUWZnbDBqWklXS2NuSHFLSVM2TDFqUGlJODh5VzBldV9pUDRyckdzRWhFNnRWeEdMY2JqekFiMW8?oc=5) |
 
