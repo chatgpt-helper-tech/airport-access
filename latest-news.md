@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月14日 19:09:44（北京时间）**
+🕒 更新时间：**2025年09月14日 19:16:08（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Public memorial for Charlie Kirk to be held at State Farm Stadium - AZFamily | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOV0NXMEhhSVNXU0hET0IzZFhZVUI3RjA5WVJHRTJtUUdENlA3OXREbDRxOE1DSXNSRDk0X0hfZzROOHk0ck02U3FDaVlCNEhJMVI2dVZlektoYWRFTUczSm9Rem01RXd4SU41MjdTanBSdk9wYWlkd2R1a1lWbFpCaVhHZkZWc045YnpLWjRqMHBuX0Ixelp30gGrAUFVX3lxTE01RTNYMnFmVk80YnRURTdBRlRsMW0xNHJvLTNtVEdxMkxVdWIxdFJwczBDdHMyWGNDQ0s4VV9kUFlFVWt5bWFTaEhuMkhqRVB4ZjhiZ3pLMDNvMS1oV01WMXFrVUpERWJsMS1wM1R6UzJxaElLOWYxbDd1NkVCLUNuaC1OVm9UZWswRmc2enJKWHE3NmRNd1NVQVhwbS1Fd2hNNlFnLU1hY3BkUQ?oc=5) |
 | In an Era of Deep Polarization, Unity Is Not Trump’s Mission - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQR3lWWFA5cE0xMU5qRG1tZTRCVmo1X05XbUNJWHRlRVY0YWJOZWxnWmFkeGY4ZEh4WkVNcEJwRGxrU1JWaFNJV0ZuVU1vYUZfMGtVeHZEMFB1MUp6dHhPVV9FWnl1X0l5aVFHcXpUUWV2ZnNUMmNkZWxjQXIzdW1TUkhvZndtUnlm?oc=5) |
-| Patel faces congressional hearings after missteps in Kirk assassination probe and turmoil at FBI - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOa1BKLWxGUnlWWjhGNUpKN1NYclN3S29WLTNzUXFpc0FiMWFNcTdDVmtrTnlSOWNXN0VMS0lSczZXckswVGo4RnFGTVVTRlZwUWVrZXZBaXU5bWl0MzhKSnQ5ZlA2aGlSYnE1SW5sQ2I3ZlIzNElnd21Ya29waFJ2VUw0cXpEUFphQmxWRA?oc=5) |
 | Over 100,000 attend London rally organized by far-right activist, clashes break out - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQNWF2TTVBVU43QkpiOXJJVXF3aGd5UzBaVmdnZWpfM0k2MXBOR1ZGRjY5M2dzclBnTTkwSmVITEprWV9wdlRheDBUQUlYNWxkbDVzRXdpMWIta2JYQlZXb05yd0VKT0pXT1lidEx0WTNSZVhxNzZsRG1MYy1idFl3Vy1SMEo?oc=5) |
 | People are getting fired for allegedly celebrating Charlie Kirk’s murder. It looks like a coordinated effort - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5WaFRBZDVoYTFHWDI3MVRickZWVHFCeFRBVjNrczlHU3cybWVpbkFoclFETDU0djl2eEJSSXNPazVobEZ2YkFfbUY0XzdDQUJwdnBBbVgwYmp5b3hhbjVuQVJqZm4xZ2lDYWozbV9lMnBSNVZCS1lrYVJHU1lqUQ?oc=5) |
 | Trump demands NATO action on Russian oil before any U.S. sanctions - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMEZ0WGxYaVZHSWNUdG5ocXRDZHNWTDBsSXhmbXRueWlZSFBPaHZ3NkE2a1ZIRUxZRVcyVUVWclpndHdZcU9fVWNrY2Q3WHJMajU0emxiOFp1RWY0TnFrREJXaGp1MTJhQWk0YjJuQWp5WWl6c3pLMWJIb3c3a0oyblRUb1Jhakk?oc=5) |
