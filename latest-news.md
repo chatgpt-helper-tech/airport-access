@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月14日 21:33:36（北京时间）**
+🕒 更新时间：**2025年09月14日 21:41:29（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Utah campus concealed carry permit under fresh scrutiny after Kirk shooting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPUDR6RHhZdWlQRndZVjBmOGJTbzhXbkFremhZeUNCeEI4NDdhSnlnZXN3VHRRaU9saWxoQ3lfOTdmX0FTMjA5dWU5YlpPRzZmRnNhM3k1ckFhenZEUVdlOXNIVDYzWHlmOWEwTndzRnU4UTJyMDVOMkEybXBhSnpvaWRaVEpNSmJIZ3c?oc=5) |
-| ‘It’s unacceptable’: Inside growing concerns about Patel’s FBI leadership - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBLWnpyQlM1QXpQOHF1Y1hLcTJicnV3S2w1RG1IdWMxekRscVhBZ0ZXOTlUay1RUnBILUxuVTB5YkJyay01OG9WVlFMSnBQUV9yRzgzZGtjTmctWUJyNHhuSzZWMGp6TE5wRHpocXpwSmMxVV9Wd2NwQjVyWkZ0UVk?oc=5) |
 | Marco Rubio to meet Benjamin Netanyahu in Israel after Qatar strike - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1nNmcwRzE0SzYyWEZpWklTS0cwdGlWaHhmNmlKUE9YNEFPOFRyX3NEdGdRbkJWbDVwdFh0a1UwYXcwYXplVS16SURfb3cyS0hXeWZWQkQ5Qko3bW9yX0RqVFFHWGxmRUtvaHZpNnFKQVI?oc=5) |
-| Trump demands NATO action on Russian oil before any U.S. sanctions - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMEZ0WGxYaVZHSWNUdG5ocXRDZHNWTDBsSXhmbXRueWlZSFBPaHZ3NkE2a1ZIRUxZRVcyVUVWclpndHdZcU9fVWNrY2Q3WHJMajU0emxiOFp1RWY0TnFrREJXaGp1MTJhQWk0YjJuQWp5WWl6c3pLMWJIb3c3a0oyblRUb1Jhakk?oc=5) |
-| Romania becomes second Nato country to report Russian drone in its airspace - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9SMFllYnZTLWVEdGE5d1VKTWdzZjMxd0pxNnlyTVVoU2JSRXozTWIxd2k2VEFWeDk1T04td2VTS3I1VEhzeEh2UE95Xy1CS3FJUWYtcW5WU1RQUQ?oc=5) |
+| ‘It’s unacceptable’: Inside growing concerns about Patel’s FBI leadership - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBLWnpyQlM1QXpQOHF1Y1hLcTJicnV3S2w1RG1IdWMxekRscVhBZ0ZXOTlUay1RUnBILUxuVTB5YkJyay01OG9WVlFMSnBQUV9yRzgzZGtjTmctWUJyNHhuSzZWMGp6TE5wRHpocXpwSmMxVV9Wd2NwQjVyWkZ0UVk?oc=5) |
 | Mexican congressional staffer resigns after TV comments about Charlie Kirk - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNN3l2ZFFmZmJ4UDJYS1kyNHk3Q1pXRlFGTmd4cmhacHVVOVVXZDFHQ0Z6LW9aRk9ZSXJiTm9GMTl2N2xGRkxNWTVrbE10eVVBWl8wbWJ6RFJsRjhEMWd3WnUtX3F2ZGExTmIycTBjSzUtNWNKcEdoR3FQeGliU2RkREk3NUJHZXNzNTd6bjhfZkNIWXFtREJqUjRpU0JvUVU?oc=5) |
+| Over 100,000 attend London rally organized by far-right activist, clashes break out - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQNWF2TTVBVU43QkpiOXJJVXF3aGd5UzBaVmdnZWpfM0k2MXBOR1ZGRjY5M2dzclBnTTkwSmVITEprWV9wdlRheDBUQUlYNWxkbDVzRXdpMWIta2JYQlZXb05yd0VKT0pXT1lidEx0WTNSZVhxNzZsRG1MYy1idFl3Vy1SMEo?oc=5) |
+| Trump demands NATO action on Russian oil before any U.S. sanctions - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMEZ0WGxYaVZHSWNUdG5ocXRDZHNWTDBsSXhmbXRueWlZSFBPaHZ3NkE2a1ZIRUxZRVcyVUVWclpndHdZcU9fVWNrY2Q3WHJMajU0emxiOFp1RWY0TnFrREJXaGp1MTJhQWk0YjJuQWp5WWl6c3pLMWJIb3c3a0oyblRUb1Jhakk?oc=5) |
+| Book Review: ‘We the People,’ by Jill Lepore - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPdmcwTFVESlJTc0M1N2tobmVzd0tsdlZDd2RqMUxEWEVXVEpLWG8wVjhZY0x3Y1N2OVpwY2FMbVdHLWhsU29GeF9rdkFKeFhYenRfWlowY25FR2V5dV9MS1RGanhhTEtQb1RNSl9lUW8zR1RiclRaeWJYZDdVQW40UElRdXM?oc=5) |
 | Finding God in the App Store - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiZEFVX3lxTE5mc0ZGTTk0V0VRVGdUS19ydzROWWRsN29DYlJIMWtTZ3ktMGhZNXFzZElIN0JVbW1EaGhkX0JETlRPa2VZUmJ5TTA3aTdJNGZfWGEtYTQ3TExXNkR4aldBNmllT3I?oc=5) |
+| Charlie Kirk’s death raises fears of ‘beginning of a darker chapter’ for US violence - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPa0E4b1lpcGFLdW1PNmp5c2JhTEpMTWdoMm5wSEJwVWNoV1ZDM0V3d29jUXIzVmlQMXV4M0ozc2RwQllnN2JEcjBfbERuOEJhR0YyaGZHa0tDSVlCbkQ3RnFtM3AxLTBpbVpxWTFBZ2hVX0xRWHBWV3RwLUc5M0FhU1B1dlQ?oc=5) |
 | Inside a ‘Hell on Earth’ in Oklahoma - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOTS1JQlNaZDVaM1ZLTFZjLWltRXpPWG9nbXp3SWtpNFpJYzQ5TUxIV2dwQUlzOEJ2bjdWbXhFWDhEckJQaFY5c19OS1FkeDlxMGVHMzlqRnF1U1p4TThTMWtZaG91bjlEck4xVkdsSTB0TnhwU1Z2Mm5jWmFvSkx6VVgtTXU?oc=5) |
-| U.S. diplomat expresses regret over immigration raid on South Korean workers - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPVnA5LXBlSG1mMExveDdQVURmQW1YZE85UjgxX3BoQ0w0UDMxNlYyTThtOW1ENlAzcGxIdnBtZHMyWVBCUTFOMTlNclpUbW9TeE9GMEFXNFNDMjNyR2pfeGhHXzBxbjdzZkxyNWlOS2xDeGRKWVFZYlpRT21rTUFPd2tUREdhUzR3ZF8yWmwyVnA1Y29Gazk0T1h6X1YxckRNcFNlVHV1S0VJTXhxZUlheElMUVE3Z9IBVkFVX3lxTE5NUDBHZm1HSmUwV3RXTEU1em9TTGZNNDEwYzVqQ29hY1dqUlBFMlZnMkwtZUM1ZTdvdFZEMnJxM2d3OTAwNnB4WnJtUXFqTDluUUdsYWJB?oc=5) |
-| Musk calls for new UK government at far-right rally in London - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOeVczRmxvTlJXbGlUSXZYSmxzWjBheGctcHhvSG9mMVJiWGVxbGNmd3pEZE5PN3VuSlQyQWZfT3ROZFlRb1dlU1RCbWlwRkp2TlkyU1hXZDNxczhOZ211TkJzS0RPY2F4NHA1NG84Z1N2MmJyM2lzWm52M1BTY2g2c0RubVNXUmo2Y0tXQnRsOFVESHk4N05YcHNlYXFadjJ5bzJ6TmRUT3U1Yk54?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
