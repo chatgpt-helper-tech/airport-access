@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月14日 15:48:45（北京时间）**
+🕒 更新时间：**2025年09月14日 15:56:26（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | Trump loves all things royal. Will that be King's ace card on UK state visit? | [阅读全文](https://www.bbc.com/news/articles/cq5jgdvnll4o?at_medium=RSS&at_campaign=rss) |
 | Unlimited contactless cards may lead to spending without thinking | [阅读全文](https://www.bbc.com/news/articles/cevzepl3vz1o?at_medium=RSS&at_campaign=rss) |
 | First sick children have left Gaza for UK - Cooper | [阅读全文](https://www.bbc.com/news/articles/cr4qn6gxekxo?at_medium=RSS&at_campaign=rss) |
-| No 10 questioned Mandelson on Epstein links before appointment | [阅读全文](https://www.bbc.com/news/articles/cn82rdmzr20o?at_medium=RSS&at_campaign=rss) |
 | Cut and bulk: Teenagers explain why they want to get ripped | [阅读全文](https://www.bbc.com/news/articles/cvg964v18l6o?at_medium=RSS&at_campaign=rss) |
 | I spent £1,000 on a hen party. You feel like you have to do it | [阅读全文](https://www.bbc.com/news/articles/c930pyzygqxo?at_medium=RSS&at_campaign=rss) |
 | What to expect from the Emmys and how to watch the ceremony | [阅读全文](https://www.bbc.com/news/articles/c1mxlm42l9vo?at_medium=RSS&at_campaign=rss) |
+| After fatal crash, Sikh truck drivers in the US fear blowback | [阅读全文](https://www.bbc.com/news/articles/cy4rmymrl2ro?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
