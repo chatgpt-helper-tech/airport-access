@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月15日 02:25:15（北京时间）**
+🕒 更新时间：**2025年09月15日 02:32:49（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Charlie Kirk’s death raises fears of ‘beginning of a darker chapter’ for US violence - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPa0E4b1lpcGFLdW1PNmp5c2JhTEpMTWdoMm5wSEJwVWNoV1ZDM0V3d29jUXIzVmlQMXV4M0ozc2RwQllnN2JEcjBfbERuOEJhR0YyaGZHa0tDSVlCbkQ3RnFtM3AxLTBpbVpxWTFBZ2hVX0xRWHBWV3RwLUc5M0FhU1B1dlQ?oc=5) |
 | Trump adopts messenger-in-chief role after Charlie Kirk's death - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOZVBESERoRGd0VDJxX29zUzNDVWdKTWRFOVc5bnVYeEE5VXJIZHZucWZHZVdJcThzTFVMaDFmN282b2o4aHNtUGJBbHg1RE9YaGwtUWxveGs2TERvXzc0WVJVR2F2MkVOejQzdkk2VHdNOTJkRXlXQ1ljT1dETWtSTWQ2bE14dWw5d1ZxVlBLRkRRN09GNnAtQWRRNE90M3BndG82ci1aeUFMZnM?oc=5) |
 | Trump ties new Russia sanctions to NATO tariffs on China - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1DTmpwX3h6SnRxN3BEMGNNWm9ZcU5ucVJzZ1MtUHZ4bzJLV3dDMFhQTkh0emdSeV9zV1hRdlBrelFkTE81Q2ZpMXZOWTNFaFJQYXYtY21lM3BKaldER1RtOXNpdHN3ay11aTVzYjA0TEF6bkd2QmVUbmRxdjBOSVE?oc=5) |
-| Pope Leo XIV marvels at his ‘huge learning curve’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOdGczaXduZlA4dDJRNDZyRHRwT2lPeGdmeUdZZXRVb0JSZndqTUU0cXM0OGFXbmxqSHMyTFV0TTBiV1BRQWVRaGdNRGJoWm9meGRkaXVQMGEzS2VmaFZUSnBtTUktTzZfQ2pqWkh1S0w3aEU2d1g2OTBrd0ZDN0xHOGhmTzZENlZ2U21LUm1GRUg5cUVvdzFGdkd2aEtZUQ?oc=5) |
 | Airlines suspend workers for posts about shooting of Charlie Kirk - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE1mSWtqeGtwQTNRWmNqLXVfZE1yR2FCWUN0cDBhZW5NWWpwcEdzSUxteU9UOVZ1RUZuYlZyNk5jU3JiUG90QXE3UDhsMXVmaHlzNDBqYjVwYjQ2X2syeUhMZmUxYVNZUUhGT1E?oc=5) |
 | Memphis mayor: "Certainly not happy" about Trump's National Guard deployment - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBlTkpRTUoxMDhNOThMY1pOd1hrRjNSbEhHWkR2cnhZNlJFZFBiTkVWWmpnaTc1YlZMOVJfZnRBR0xOekJ2WGttY0V4aHd2Q0pLMFY0Sng3SVd6Z1FzUGEteHRka1ZOZFVBVTZtTWhUQVBFY3ByajVyd25lTEZuUQ?oc=5) |
-| Gavin Newsom just tried to fix one of his biggest Achilles' heels - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNamhTdUxVYXZRVHM4NVBTNXhCLW1wWkdfUG82MG53eTFkbnNYRG54X1ZVOFpGSGF0WVoxZUN5TlhXdWVDWDZfcWJVU1o3eGo5UFRMeS1hQVd2elpETVhrYlU0QVMyWVB5U3M0emtQblV6bDZwNWZZem8tNTFIa0FucGdYTHJ3N3NPM1hTRw?oc=5) |
+| California Democrats end legislative session with climate deal – and infighting - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOci05T01pVVJuY3NaWmN5YlNENFljRDNfT0hMY1BaWkozMDFPSUdER1prYU1OZ0dINVhHOE1QMVRKYWlSbXpfRGVmY3hrQzAxalF2SjVZVkp1ZmFmN1pBeUROQnl6cmd4VXZGSlpfZUI5QzNQdGJzU2doZ0g5Q1NSWlBnZ2tVY2s?oc=5) |
+| US Official Offers Regrets Over Detention of South Koreans - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOUjl4ZGN1RHN1SzhIMWpLMUt4c1NjUnQySGNVY1YwWG1OM1FwRDhrOERtTmtwRjFOUzBjTU9PR0dHUFlVYW9lZmtvM0RoLTk0eUw3Mm9iM0VqUWwwYjlWY1lVd3RHMjJVRzdlbWFvOWxTek1XdUNPVWd6cllMRzJtVXhPaU85bnppMmJVV0dkdWUtRmNkcC1JaFMtaTVxZzlXX05zeEJWWmJQQ3hmTFE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
