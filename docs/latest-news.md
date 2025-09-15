@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月15日 15:33:33（北京时间）**
+🕒 更新时间：**2025年09月15日 15:40:41（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Tories demand answers on Mandelson's Epstein links in letter to Starmer | [阅读全文](https://www.bbc.com/news/articles/ce32qepq12qo?at_medium=RSS&at_campaign=rss) |
+| Starmer facing leadership questions after Mandelson sacking | [阅读全文](https://www.bbc.com/news/articles/ce32qepq12qo?at_medium=RSS&at_campaign=rss) |
 | Madeleine McCann suspect turns down Met Police interview | [阅读全文](https://www.bbc.com/news/articles/cr5qd18y8j5o?at_medium=RSS&at_campaign=rss) |
 | Boss of degrading sex-trade ring in Dubai's glamour districts unmasked by BBC | [阅读全文](https://www.bbc.com/news/articles/cx2r9y3kxy9o?at_medium=RSS&at_campaign=rss) |
 | Children and teenagers share impact of pandemic in new report | [阅读全文](https://www.bbc.com/news/articles/cx2jll1wx4ko?at_medium=RSS&at_campaign=rss) |
