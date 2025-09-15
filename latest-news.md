@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月16日 06:33:40（北京时间）**
+🕒 更新时间：**2025年09月16日 06:40:42（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | Starmer aide resigns after explicit texts about Abbott surface | [阅读全文](https://www.bbc.com/news/articles/ckgy79yr74do?at_medium=RSS&at_campaign=rss) |
 | Israel demolishes more high-rise towers as Gaza City offensive ramps up | [阅读全文](https://www.bbc.com/news/videos/cr5q8mj6nrvo?at_medium=RSS&at_campaign=rss) |
 | Hillsborough Law will include duty of candour | [阅读全文](https://www.bbc.com/news/articles/czrpvrrrmj2o?at_medium=RSS&at_campaign=rss) |
-| Boy, 15, dies after stabbing in Manchester | [阅读全文](https://www.bbc.com/news/articles/ce3y9v8e7eqo?at_medium=RSS&at_campaign=rss) |
 | Eden Project architect Sir Nicholas Grimshaw dies | [阅读全文](https://www.bbc.com/news/articles/cj079z4lgn4o?at_medium=RSS&at_campaign=rss) |
+| DC-style crackdown on crime coming to Memphis, Tennessee, Trump says | [阅读全文](https://www.bbc.com/news/articles/c9dxqe3xnv0o?at_medium=RSS&at_campaign=rss) |
+| Boy, 15, dies after stabbing in Manchester | [阅读全文](https://www.bbc.com/news/articles/ce3y9v8e7eqo?at_medium=RSS&at_campaign=rss) |
 | 'What a legend!' - Duplantis clears 6.30m to break pole vault world record | [阅读全文](https://www.bbc.com/sport/athletics/videos/c237mlvl845o?at_medium=RSS&at_campaign=rss) |
-| Eurovision has never been about politics, says BBC boss Tim Davie | [阅读全文](https://www.bbc.com/news/articles/cp8jd108e3qo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
