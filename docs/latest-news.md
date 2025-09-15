@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月16日 02:48:11（北京时间）**
+🕒 更新时间：**2025年09月16日 02:56:13（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | US military officers pay surprise visit to Belarus to observe war games with Russia - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQa0k1VTQ0TFlFdU10UE0xbWt6aWpsd0hmd2ZzSjQtWTBhdVRuX0FiUEYxUlNESWlCRmdQalVocmFOa1NZSnkwNTRkWW5RWUlndFVOeVIzZGR6TzVYbHhQRjllZVpGbHhTRVBZWXN3LUswMy1TRDAzaTFRQzJRRzhFaE1YeGVFaGprYkV0V2tPVEViek9icVY5WkNKdVNxY0ozYXN6cWlMSFlkVzVjUTl3SGhaUHFPSGh0YXRlSXdGdGtBSEV5?oc=5) |
 | Trump vows tough action after beheading of Indian motel manager in Dallas - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1rc2xDRUVyTnFBMjNITmUyZnY0WlNBbDJjMDdqNGs5eUlUOXphQUJqWjNKYjVQZVI4NUdaYkQyQTZUc05xbkhMSTZabXZwTWQ4UXg3d2h3REp4QdIBX0FVX3lxTFBlQVFzQkdxWTlvUTU2VFhscGFoZVR3MUJyT2tGSWRwdnZ2VVJHdmk2TThlUHdtYi02OElFQU9WYl9IVkNGckdDOW5qTzZIS0VIY2l1OTh0Q1N6OFpUR3ZV?oc=5) |
 | Trump aide Stephen Miller vows to ‘destroy’ what he claims is ‘domestic terror movement’ after Charlie Kirk killing – live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxPZnBNQkdwYS1VcFMwNlhQdkx3OUZjQi1JY1paMjBfOTdxM1k5Z19RaW9QeHgyM2F0UnRPSTMxQU80OTN1dUVGWVR5Y3cyTGgwM1pUY0ZycldrZjZ5eVotRzJCM2tmOG8tTk0zVUt3LUNBY0MzczJiWU9saVdmc0xLa0drUU9aSkxGZnJXUDVvWmh3YUZMRHNNbkxHeTY1dE5rdjJyWVEwbm5QU1M2dExHZkh3YXRYeEFNNXlkbllUZHY4SEx4aVNMS1JzcmVyMkRXQk5KLUlLdlp6Zw?oc=5) |
-| Trump Warns of Financial Penalties After Hochul Endorses Mamdani - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOZnFRWWNydmhfd1p3a3NESWtSN2dZbTM3Wk10M084cUM5NFhVZ0F5N1M1dDN5a202d1JnSWtWSU5iaGs2NWs0OEhDWExCM1F4WHhsNjcyMnVfQ1dkMDNVNWdaV29NcnVqRHowMUwxUnQ1WmJXaGtWdDh2UmVFSFlzUjdIY3ozcl9jdE9LZkRFVFBBRGdIWW9TUGpxNi1CMzBnMkxGRkNwZW9DQVJLbk5lUlNCMVFHQQ?oc=5) |
 | Workers fired, placed on leave for Charlie Kirk comments after assassination - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBpd19GNnpsdm81aDFSWXNqeEtENHpIT2hDSC1pWFNDS0NoSGpwV1JaYzhZSU9yRHpCLS1DQmNfM1VrVEYxNWNLM2ZXRnVjdkpidnRVenRicmctN0Zqai1iRE5hRzhrS3BjOXg1c1BtZlV3WDl6UGfSAXtBVV95cUxNb0ZQdW95RWFaeTlaLTVxTi1yZnlkVlZNQWFzbVc4TVptNTVzX3hWWlduU2Y5dG1KeWZLdTlLNmxBa0htOGxXM2EwLVlrdGtXQzVYSjZlbTZZT0VXc0s2T295RE1NM3lQT184SUJtZnY5d1VHYjk0V21qeHc?oc=5) |
+| Trump Warns of Financial Penalties After Hochul Endorses Mamdani - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOZnFRWWNydmhfd1p3a3NESWtSN2dZbTM3Wk10M084cUM5NFhVZ0F5N1M1dDN5a202d1JnSWtWSU5iaGs2NWs0OEhDWExCM1F4WHhsNjcyMnVfQ1dkMDNVNWdaV29NcnVqRHowMUwxUnQ1WmJXaGtWdDh2UmVFSFlzUjdIY3ozcl9jdE9LZkRFVFBBRGdIWW9TUGpxNi1CMzBnMkxGRkNwZW9DQVJLbk5lUlNCMVFHQQ?oc=5) |
 | Behind the Curtain: Four ominous trends tearing America apart - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9pWlZreDdyYXJYQmNua1R4UUlwMzJNeGRhUldDeGNpT2daSkMwQlVQVlJTRFFkRmhBeWlXamRkQnc2dGpYV0lkN2VwcE1wcEtVWXU0NEFGU2s4c2g0T2hUZGxKM0RpNHNGcUVIeTR2bzJyRDM4VnYyT0VBWQ?oc=5) |
 
 ---
