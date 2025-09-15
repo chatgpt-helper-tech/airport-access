@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月16日 01:17:13（北京时间）**
+🕒 更新时间：**2025年09月16日 01:25:45（北京时间）**
 
 ---
 
@@ -23,15 +23,15 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump Says Companies Should Stop Reporting Finances Every Quarter - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxORmxucW4zakZSaXRYTnNZNmRzMHN0S0FKS3Q4djJ2cWRCZ2dCekpfQU5PZFNmcndOZ1EzOXBTQ0NDU20zRlRTTVl2ODYyZUp6bnNfUTFicGpXTTM4RWg0UXp2WjBlRWF3UHVDMk10dExzUTA4VjdLZG0wT3gySjhyYmNURVZOd2M?oc=5) |
-| DNA evidence links suspect to killing of Charlie Kirk, FBI director says - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNSkVxNFZOeGVuWDVUaW9kVVo4ZWRFa1dha0RkRGtSelNYN1doVDZIcmpaQnpldDMzY29DenBvQ3o2ak9LZGRseE1OYWdobVVCVml0WGlJY0pXVTNndThkTGNZVDYtLWh4RFZ5Vm1JZkN0MUdhVXBBZU5yOHhaTGM5Y3Q3MXBDRU55?oc=5) |
-| Donald Trump signals US and China have struck TikTok deal - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBRendfV0tGSWlXVXZHWDl0dngxOUdhbDh5eXFESFpyTU82cEZ3dV9aNGw5YWlWQWhwVzkzSENkZ2dPcDhNX20zUFhkMGpBT18wa1NjaXVvdlZaT0g1LVI4YmIzY2RwbVIzM1ZxcjJIUlI?oc=5) |
+| Charlie Kirk killing: Suspect had 'obsession' with the conservative influencer, FBI says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQZUJQcWNNRHNHVDAyVjJUc3ZQeVQxa2NXbHE0TTVVM1p3UERFREI1S25zUGpsM1RWZEtMdUFLbHA1WGZSRjBMbkUxOWZpcW1YZ0pUT1NCSmVpRHVFUGVxYmhaak1ZUm93ZVFzSHRpYUlQVWF4bFVWR2VlclNzT0pXMGxGYlYxNzR1TVBzNDhBMnZheVh1UVFLZVBqSjBEZWpJQklj0gGoAUFVX3lxTE53SDF0bkROVjVXbzZXXzFOckplVXEwSWJGdnRQN2stdVBPYWg1LVR6RXV4YzZuajI3aHlTVkVEazFIMHMyYzhNQld0WW45TzJCb29VM0ZZeUdfRXFuWVZoOEFvVXdmRWhuTThXU09tZUVseV8yT2xXYTRzWmZvTUJaM01EcUFhcFZBYnBZMlNNQmFSM3I5bFRoM2taU1dXbDF0YjFYWUphXw?oc=5) |
+| U.S., China Conclude Talks With ‘Framework’ on TikTok Sale - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQalZWTDljd0UweVpndXVHQ21JRWI4TUpCeUtYRWY3b1NLR0JibWU0NFdtWVpUanBiR1dxRE8tOGdKZnVMQlZQSlFMd1MxOEJRSlNnaHFnSWFuczFpcGlwYk5rMXhiUmZqUVVCVy1uUmw0b0Uxdkg0ZDdWaUtURHFUaThpZUhLU293RjFFSQ?oc=5) |
+| After Charlie Kirk’s killing, conservative evangelical leaders hail him as a martyr - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQbng5V2xJWkl1c3V2SGJoczRCWGtGMy1YN0lleWhqbXJpajR4eXFiNmtrcTdtcDRLTmF2UWVWY3VOQVlhNHRoQUxQN0NpUV9RTGlRWVAycjdKenVwdDZXNXQ4cl9nMVZuaEwtUngtNFZmQllkRkRycGxxMXNzdDNrcjBNWjRsZw?oc=5) |
+| Maurene Comey, prosecutor who handled Jeffrey Epstein case, sues over firing - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPamtIVDZvZHpKa1RMaVdiczlycllnanZQWDdWdXExQ25IVjB5Smo4S2loZ3Rjd01KcHhmU29xc04yZXlkMVVVRXRqbzJ4aVZ6UXBDblB0ZXQ0MWxHUEtybkc4d1hSNkdtZ1VjcGEyeGtMRG5PZ0pRNzJydVJxSDJucS11Q3U?oc=5) |
 | Trump vows tough action after beheading of Indian motel manager in Dallas - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1rc2xDRUVyTnFBMjNITmUyZnY0WlNBbDJjMDdqNGs5eUlUOXphQUJqWjNKYjVQZVI4NUdaYkQyQTZUc05xbkhMSTZabXZwTWQ4UXg3d2h3REp4QdIBX0FVX3lxTFBlQVFzQkdxWTlvUTU2VFhscGFoZVR3MUJyT2tGSWRwdnZ2VVJHdmk2TThlUHdtYi02OElFQU9WYl9IVkNGckdDOW5qTzZIS0VIY2l1OTh0Q1N6OFpUR3ZV?oc=5) |
 | Workers fired, placed on leave for Charlie Kirk comments after assassination - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBpd19GNnpsdm81aDFSWXNqeEtENHpIT2hDSC1pWFNDS0NoSGpwV1JaYzhZSU9yRHpCLS1DQmNfM1VrVEYxNWNLM2ZXRnVjdkpidnRVenRicmctN0Zqai1iRE5hRzhrS3BjOXg1c1BtZlV3WDl6UGfSAXtBVV95cUxNb0ZQdW95RWFaeTlaLTVxTi1yZnlkVlZNQWFzbVc4TVptNTVzX3hWWlduU2Y5dG1KeWZLdTlLNmxBa0htOGxXM2EwLVlrdGtXQzVYSjZlbTZZT0VXc0s2T295RE1NM3lQT184SUJtZnY5d1VHYjk0V21qeHc?oc=5) |
-| Trump slams Hochul’s ‘shocking’ endorsement of Mamdani - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOQUZHcTJ0T2ZVLTRLVVUxbk1ZcWt6UjM4MzBZSDk5OGR3eURLeXRGd2JMWXFKWmdQYlJONVZyUkQ4VVhVcjd5X0xRN19MRE9YLU1NOTVNbWFuU1BGcTNlNFQ3N2RHZGFOQ01XdktJNGFJdC1KeWpqLWxLSWNuSHZTQjN1dVJqWGxHYmVQMjFLbTA4QQ?oc=5) |
 | Washington Post Columnist Karen Attiah Said She Was Fired Over Her Social Media Comments In Aftermath Of Killing Of Charlie Kirk - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQSWJTMDc1bk56NDRPYXNKalhZQ0VyX19QMVhodWNyTWJ0cWo1ZDJPdGhQRWZ6R183ZkFRb3R3am9nM296WUh3NWdUYWhXWENxaVdjQmVsX3dkS0N5X19lMTU3RHc2ZEtxUmdUQUVSNHN2RW92TnlUNTRUQk45cmdabzhYZkxqU3RSNGpuLWk3VU9sUQ?oc=5) |
-| Fired Prosecutor Challenges Trump’s Claims to Power in Lawsuit - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQNm9xTm90UWJocU50cFJVRm1aRVpzQzNXc2ZxYk84NjFIcV9fMlVwSm1OMHVoeGtOZzRVMVBVODkydG1WSGZvT21uTkE2WmlqS0FJX2FJX21EQkh6aU5ZWldsVVBSSDBabGJkUWRDcVFTQmI2NjRCQUVlUkJrRS1PRW1MeTV5bUhwMmc?oc=5) |
 | Charlie Kirk was more than a conservative activist - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOZVZpSHYyVGxmSHIwbWxlaDU3NnBXQjVPelRKUnVxWWVpZjVxT3dMN1BSSEQwbHo1ZGttc3UyeHExN0xDdjlpV01GbWI2bmNsVlRvNnFNaUFGemRFbWFmUjZFNk5sb0hJV3JIaXNLa1dWdDRGcWU5bG9sNFJvZ0RnSVB5OGo0Z2dYS1pRQUVYMW1jbldpVFRTeGpLRF85RnBVajFKSGpjaHZuYzg?oc=5) |
+| Trump Warns of Financial Penalties After Hochul Endorses Mamdani - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOZnFRWWNydmhfd1p3a3NESWtSN2dZbTM3Wk10M084cUM5NFhVZ0F5N1M1dDN5a202d1JnSWtWSU5iaGs2NWs0OEhDWExCM1F4WHhsNjcyMnVfQ1dkMDNVNWdaV29NcnVqRHowMUwxUnQ1WmJXaGtWdDh2UmVFSFlzUjdIY3ozcl9jdE9LZkRFVFBBRGdIWW9TUGpxNi1CMzBnMkxGRkNwZW9DQVJLbk5lUlNCMVFHQQ?oc=5) |
 | Trump says foreign experts welcome after South Korean outrage over raid - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFBCVEZRblZWTWNZTlNUa3RCTlp5Rmt5YjlFSzJnaEZKWlVDVTgtbm9ZMWR2X2VHR3pDdkRtcmxDYTZGaGxLajdOT29qMUhudnEzNkViSkljV0dLeUxiYUJOWm9ndWIwR29TUU1FbjFKcHRtNVlhU0ljU0NR?oc=5) |
 
 ---
