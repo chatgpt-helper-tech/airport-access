@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月15日 15:10:00（北京时间）**
+🕒 更新时间：**2025年09月15日 15:16:03（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Hochul, Van Hollen back Zohran Mamdani as senator slams ‘spineless’ Democrats - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQeVVIZElLRmNTNXNDdjB4QTFoZjROYVhNTFhOQWQydGZIZUJLLTNSUlpyUDEtdmVSQUg2Q1BmRHBnelpWZ3V4TV9YSTlocW1EQW8wMFk4akhrcTl0S0pFZ0lRU0phYTViUTdaOFVjM24zZWlURmRXNmJJUkE0OWU2SHNvaGZLMl91OXlXMG1NRmtIVTQ?oc=5) |
 | Blame game after acts of political violence can lead to further attacks, experts warn - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPVC0wVVh5OTBqV0NKZ2VadlE1QUp3bDJMWU1acDJGVFdVS1F0T0NvUGk4Y0psRjVBNTZlRWFiUmNER1hJRC0tbEktc2hUbnhjNVdUbEdWQW5IQWJUSi04Z3hKS2RSQzVxLUZkbUhRdDZvZEFZdDM4V1pGbXlTUXhZNDRPdU9NcU9xMlNMRHRENllZdmN0eWxoWE83WWMxeUluMUJMWHhYc01YQQ?oc=5) |
 | 2 arrested after incendiary device placed under news vehicle in Salt Lake City - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOQTZRSUMwRjc2d1NnM0tPYWg0VHpRdlpHRjdwOE90STZ2NFF1clh2NUVjblh4VmtBZjgwcG1GMGxFcEwxcklDRlFGQmhoT0sxdVJTWTFISUphWVlnMWduMDFSWng4TWVfa1AxbHlfWW4ydVZab3ZwV09rckNvQWZMYXJTek1RYlMtR1RhZVR1RdIBlAFBVV95cUxQSTRyMXE4bng4ako4akdQd0xscjRfaFRQc1lNei1vT3JtamlyVG90TS1Da3pSbjU4OEVpMG1RaW9RM3lhb0d2TWtEX0FVMWZjbXh6YXVKcXBINTRkWjZ1OEpneEJLbWlXal9SUG1ncGdLd3c4UWhvMWtOeXN6MG9ELUx3NkdZWC0tWTMxRVVlWmRwb2d6?oc=5) |
-| Former Illinois Gov. Jim Edgar dies at 79 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOUXJoSTZKR19pR0pHeFdzM0E1OVRKOC10TXRBbzNhZW5paDlXR2xJZEgwaHlnMC1PVnpLcHVYYW9YWUJ0Q0M3MUltb1EtalFyRFJYYy1zZHRwcDhZbGZtLWIxYmt5dXFVVHlQOHpUVmkwY3FiX085NnVhbnpBN0hZbmw3VzNMQzJmdkxWcjBHWmtRWE1Z?oc=5) |
+| Former two-term Illinois Gov. Jim Edgar, who led the state through much of the 1990s, dies at 79 - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQZmdXQkhLd1hoMU5aT0VVcWF2d3pyWGdyaHpYUnhkX2M3YVFqTTl2THlrV2J5ZmlfRlA0V2VhaEZ2dExzSFFCZUI5c0Q2ODdIaVBaODBPUE5fTFM3ZUFYOW1ZOEdzYkd0S3FoQlVLeUtzZ2NERC1JN3BxRzExOHFEZVNtbnlScndPZFo3ZEpCd2FqTXhEVWlTNGxQdTRBSXNRV2NscUEzQ1hNeDZrcDQxS0hHY1htdHV5bk5OTC1Halc2NzRQVDR0eVp3SDQySUlrSkE?oc=5) |
 | Iowa official defies governor’s order to fly flags at half-staff for Charlie Kirk - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQOUUybERqNGJpWHI3MmJnT3pjaE0zR05seFZpTFR6d29iek11QUNudWk0c1J0TTRoREo1ZXYyRWZ0T3ZBdmNQMFpEVnBmRTJ3TmV5OW1jeXF0TTgwREFSTGRZR0h1NURIRk1zTlFvLXFSVnhuMklmeldMV0NCSWRwV05iTjJOTFVIQ2M2anEzTXJWQndhUDV2b09FdHJzUQ?oc=5) |
 
 ---
