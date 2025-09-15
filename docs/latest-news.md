@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月16日 05:57:16（北京时间）**
+🕒 更新时间：**2025年09月16日 06:01:21（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | U.S. and China Reach ‘Framework’ for a TikTok Sale - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQalZWTDljd0UweVpndXVHQ21JRWI4TUpCeUtYRWY3b1NLR0JibWU0NFdtWVpUanBiR1dxRE8tOGdKZnVMQlZQSlFMd1MxOEJRSlNnaHFnSWFuczFpcGlwYk5rMXhiUmZqUVVCVy1uUmw0b0Uxdkg0ZDdWaUtURHFUaThpZUhLU293RjFFSQ?oc=5) |
 | Workers fired, placed on leave for Charlie Kirk comments after assassination - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBpd19GNnpsdm81aDFSWXNqeEtENHpIT2hDSC1pWFNDS0NoSGpwV1JaYzhZSU9yRHpCLS1DQmNfM1VrVEYxNWNLM2ZXRnVjdkpidnRVenRicmctN0Zqai1iRE5hRzhrS3BjOXg1c1BtZlV3WDl6UGfSAXtBVV95cUxNb0ZQdW95RWFaeTlaLTVxTi1yZnlkVlZNQWFzbVc4TVptNTVzX3hWWlduU2Y5dG1KeWZLdTlLNmxBa0htOGxXM2EwLVlrdGtXQzVYSjZlbTZZT0VXc0s2T295RE1NM3lQT184SUJtZnY5d1VHYjk0V21qeHc?oc=5) |
 | Former federal prosecutor Maurene Comey sues Trump administration over her firing - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNWkxfUUlSX2lTMU9Ya3ZhNXduTVVzOUFzbUFCVUdBU1prQkFUR1k1a2hTbEZ4ZnZSZFRrRHAwMjk2RDhMemVFWVVsR3FZSE8yd0k0TnBRYmNPa0tUNl9fbTF4NmZVSEIwNy1vNG42dEJ6QmpCUEtSYWNCOGstdUtMUHRkaFJBTjJrU3owWTVJT1Z2Um1ZTDFxOHRfc1dvSDY2Y2luN3NPbmlscE4xVEZIdFV5cW9za2YxMTk5LS0wRktEQ1Ro0gFWQVVfeXFMTWUyMXVZQWFGNXpsS0NrUUtMOGlzQzY1aUFCUXd3VWhzZHBaR3B5YmMtbmtaaVlNLUZ6T3NKUUZIZHF4MWNXWlFWYmR2NWcwWjEzZldEeXc?oc=5) |
-| Trump vows national emergency in Washington, DC over ICE dispute - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOcC0za0RPUVJVSEtVaXVQa3RTOHR2QUhYWnB5eWxBT2JwLUdSdWJYd1VrQ2ozVmVwMGoxcTRYRjl2dFJjVEtlMUNyS1N4NkFwUlctT29ueV9jLVQ4S0VrUFNpY1Rud0tsSzlnbjlJVjJlLWdETE5QcXlhcVNveDNPVTBYakZ4anR0SUIyMWM3Z0hZZkV3V0VrR1lVbFU2ZGhVMm9GcUVZUGg?oc=5) |
-| New York Gov. Hochul formally endorses Zohran Mamdani for NYC mayor - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOWjBJZ2dCY09YY3dHeHFGRXdlQVFYSV9NX3BPSTdFRUlfZ3d6ZUJpcjZnYTZqNTJZZHMyU3pCQ3dHRnY5X3dRQ3ZOSGtPRTZTbERESS1oUnhYbXpQcDE5R2g5cDB5YzJQWkM3Z2RWU0R0NjJEY0FIRGV1azM0ZkZuM2l4bjJmNktlUzFjaG1TVW9oR0drMTIyalVZaEwwMHhzZ28tN3Rn0gGrAUFVX3lxTFA2YmdtTThiUGZ6VnRDOU5iZUZoTTYzUmhseDlfR1ZZajN5RElnT21pY3RmSm50TU9ER2gtbXc3S2tWUWFDblVTQ0lid0VySDhtNWo0YVFia1JvOGtUcm81UWY1Tm1QV1BQaS05dTBDUHJtdDNhTnFnQkcyNkdjekRScXBvd3lubzdIQk9MYkpRclJhQzVfcFFWMXJXU3dvd2lfbGtWUzUyZDN0Zw?oc=5) |
+| Memphis Has a Crime Problem — and Residents Agree - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOSVdZRm9qOFBvUVpZb3hiS0xuOEswQ1U5TjFqS1gzc2tneFJPc0VZM1U2RDNGRVI0WlA1d2hOa19FZzlIRHA0NTJRN0NIMWpfQ2NaSmZMLU1HM2tiVlVnU1VXLTN2U1RsZUU4S1RjLTVmTU1CWkwwdzgtUXVLTldFMGU1bklWUlVpdkVleVd6amFoYlBJbnNR?oc=5) |
 | Drone neutralised flying over government buildings in Warsaw, PM Donald Tusk says - Euronews.com | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPM0VsZTVTX18wMTBfajRJMmthSGVmb0pIU21LZTl3enk5WmNsc3liT2JZSVQxX2hsOVpETkJaSkJjMkU2b0tYWGprSjZ3MmJUa0RrNl9KUUk2bGRJaVlBRHBCa3N6SlVNS1V1Y2QwTFdfYjJFcGU4VjljbkpBVTdoblNtc1FycGhKUy14TmhwVmJKV3hRcWFSWDFqTXcxVVpIRDVFdjNiUTlUYUN3dWNzQXRhOUkyOWM?oc=5) |
+| Scoop: Netanyahu spoke to Trump before Israel bombed Qatar - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1VTDVrb00tZFhEQlg3d1VtRGktTnNrSGltY0NtNlJEQ2o2UTZ1V1VHVmdIVGNzUUF5aXpVNU4tZlFsdW9BbGpSNGhzS3hGWUZxZEFQNWZqR29fSXBjQTZQQXBnYkdfUy1NbmhCd1BfYWtsUUpvOUlNdWJES25QUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
