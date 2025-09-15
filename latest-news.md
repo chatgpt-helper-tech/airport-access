@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月16日 06:40:42（北京时间）**
+🕒 更新时间：**2025年09月16日 06:48:32（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Memphis Has a Crime Problem — and Residents Agree - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOSVdZRm9qOFBvUVpZb3hiS0xuOEswQ1U5TjFqS1gzc2tneFJPc0VZM1U2RDNGRVI0WlA1d2hOa19FZzlIRHA0NTJRN0NIMWpfQ2NaSmZMLU1HM2tiVlVnU1VXLTN2U1RsZUU4S1RjLTVmTU1CWkwwdzgtUXVLTldFMGU1bklWUlVpdkVleVd6amFoYlBJbnNR?oc=5) |
 | Former federal prosecutor Maurene Comey sues Trump administration over her firing - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNWkxfUUlSX2lTMU9Ya3ZhNXduTVVzOUFzbUFCVUdBU1prQkFUR1k1a2hTbEZ4ZnZSZFRrRHAwMjk2RDhMemVFWVVsR3FZSE8yd0k0TnBRYmNPa0tUNl9fbTF4NmZVSEIwNy1vNG42dEJ6QmpCUEtSYWNCOGstdUtMUHRkaFJBTjJrU3owWTVJT1Z2Um1ZTDFxOHRfc1dvSDY2Y2luN3NPbmlscE4xVEZIdFV5cW9za2YxMTk5LS0wRktEQ1Ro0gFWQVVfeXFMTWUyMXVZQWFGNXpsS0NrUUtMOGlzQzY1aUFCUXd3VWhzZHBaR3B5YmMtbmtaaVlNLUZ6T3NKUUZIZHF4MWNXWlFWYmR2NWcwWjEzZldEeXc?oc=5) |
 | Trump threatens to take over DC police again over immigration enforcement - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNUVpjUlp4QjVHV2loTkdNYllKLWFKTDMtMXp2RGpPNmRyZVhUMUZ1LVZhUlY5M1g1SlVuakpPNjBYMGRVbnEzM1RkZk4xclQzcWluZ0tTaWJRdnFjMXYyaWc0OFBsZzlnc3l1b0JXVFlTNXBkeFc2Z2FqSzJUWFYzQlYtUkxDWUhkVFRGN1QzZFM1c2pwZWQ4YVl6NA?oc=5) |
-| British politicians condemn Elon Musk's comments at anti-migrant rally - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQUGRwM3BtMzdoV0dqTU9telpUYWx0TzhpaHhpSlNsamZReXZNVGd4UnVxS1F2RGhIRmZCbWFza3lKa2Jna2dmdW1NaVVDamdkeWozVUZPclZKNWY4MVp3em5QenprRFZxMEJ0TDhrM01XM1lzb2xmY1NJak1OMFNtZVlvbHVLa0xoQ3RjT19nSWd1QWlGb1RFQUNydE8ydG4zTXI4RjBiaTFEbEtZOGpiZUVDNHJQd2pu0gG-AUFVX3lxTFBGMnVOa0JtSHF5OHAxWTdKMjNKbXhrNEhpT3hHLWR1MWx2cDhRWEotOXZ2MU41SnVsMlBiR0IySGVfQnBnOXpMRDQtZFhXanUxOEc2U2F4aW8wOHV6Z3lPNmZ2SGlwSEdEckZ6alF6SVZDOWdXWHFSeHVCQXdnUGdoQnk5alNueTdyR0dibnFUcmtabjA1elVpMXhWQmFhMjFYOWtwRXpZaHZYWnNQdXc5RlRtYl9uOTNiYzN3c0E?oc=5) |
+| Trump backs Patel amid MAGA divide over FBI director - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOLUdRU0xhQm54bUtkeVZrM01pRWZVM2syaHpvb0JkRXBJMDlBTm5DcE9QODU5UlB6eU1Rb2x1ai1Tdnc3WTAzQ2xZcjdKWklkWDhIYjZ4T3NlQ3pIV0lJOF9lS3ZxRENKdk0tZDJQVmVEblJfRzk0MEtqUGU2MEVLU00zY1ZzMVk?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
