@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月16日 03:01:35（北京时间）**
+🕒 更新时间：**2025年09月16日 03:09:34（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Maurene Comey, prosecutor who handled Jeffrey Epstein case, sues over firing - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPamtIVDZvZHpKa1RMaVdiczlycllnanZQWDdWdXExQ25IVjB5Smo4S2loZ3Rjd01KcHhmU29xc04yZXlkMVVVRXRqbzJ4aVZ6UXBDblB0ZXQ0MWxHUEtybkc4d1hSNkdtZ1VjcGEyeGtMRG5PZ0pRNzJydVJxSDJucS11Q3U?oc=5) |
 | Workers fired, placed on leave for Charlie Kirk comments after assassination - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBpd19GNnpsdm81aDFSWXNqeEtENHpIT2hDSC1pWFNDS0NoSGpwV1JaYzhZSU9yRHpCLS1DQmNfM1VrVEYxNWNLM2ZXRnVjdkpidnRVenRicmctN0Zqai1iRE5hRzhrS3BjOXg1c1BtZlV3WDl6UGfSAXtBVV95cUxNb0ZQdW95RWFaeTlaLTVxTi1yZnlkVlZNQWFzbVc4TVptNTVzX3hWWlduU2Y5dG1KeWZLdTlLNmxBa0htOGxXM2EwLVlrdGtXQzVYSjZlbTZZT0VXc0s2T295RE1NM3lQT184SUJtZnY5d1VHYjk0V21qeHc?oc=5) |
 | Trump vows national emergency in Washington, DC over ICE dispute - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOcC0za0RPUVJVSEtVaXVQa3RTOHR2QUhYWnB5eWxBT2JwLUdSdWJYd1VrQ2ozVmVwMGoxcTRYRjl2dFJjVEtlMUNyS1N4NkFwUlctT29ueV9jLVQ4S0VrUFNpY1Rud0tsSzlnbjlJVjJlLWdETE5QcXlhcVNveDNPVTBYakZ4anR0SUIyMWM3Z0hZZkV3V0VrR1lVbFU2ZGhVMm9GcUVZUGg?oc=5) |
-| Trump aide Stephen Miller vows to ‘destroy’ what he claims is ‘domestic terror movement’ after Charlie Kirk killing – live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxPZnBNQkdwYS1VcFMwNlhQdkx3OUZjQi1JY1paMjBfOTdxM1k5Z19RaW9QeHgyM2F0UnRPSTMxQU80OTN1dUVGWVR5Y3cyTGgwM1pUY0ZycldrZjZ5eVotRzJCM2tmOG8tTk0zVUt3LUNBY0MzczJiWU9saVdmc0xLa0drUU9aSkxGZnJXUDVvWmh3YUZMRHNNbkxHeTY1dE5rdjJyWVEwbm5QU1M2dExHZkh3YXRYeEFNNXlkbllUZHY4SEx4aVNMS1JzcmVyMkRXQk5KLUlLdlp6Zw?oc=5) |
 | Charlie Kirk was more than a conservative activist - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOZVZpSHYyVGxmSHIwbWxlaDU3NnBXQjVPelRKUnVxWWVpZjVxT3dMN1BSSEQwbHo1ZGttc3UyeHExN0xDdjlpV01GbWI2bmNsVlRvNnFNaUFGemRFbWFmUjZFNk5sb0hJV3JIaXNLa1dWdDRGcWU5bG9sNFJvZ0RnSVB5OGo0Z2dYS1pRQUVYMW1jbldpVFRTeGpLRF85RnBVajFKSGpjaHZuYzg?oc=5) |
 | Washington Post columnist says she was fired for social media posts after Kirk was killed - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQaWhkYUYyNXo4ZHR0ejRReS16emRxZml5ckp2SVlBZi1RSnpkMWZjVUVIMWQ2bVhWcEdhZGNDZFBKR2dZeXdOV0ZXVmowaXVLTzAxZTBvOUVNSXROX0VHWTFGY3pVci1RLTlneGFOWFk5VDVVcjZLRmdQNlY4NzZaR3FsQ1FoTV9HUzhV?oc=5) |
-| Trump Warns of Financial Penalties After Hochul Endorses Mamdani - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOZnFRWWNydmhfd1p3a3NESWtSN2dZbTM3Wk10M084cUM5NFhVZ0F5N1M1dDN5a202d1JnSWtWSU5iaGs2NWs0OEhDWExCM1F4WHhsNjcyMnVfQ1dkMDNVNWdaV29NcnVqRHowMUwxUnQ1WmJXaGtWdDh2UmVFSFlzUjdIY3ozcl9jdE9LZkRFVFBBRGdIWW9TUGpxNi1CMzBnMkxGRkNwZW9DQVJLbk5lUlNCMVFHQQ?oc=5) |
+| New York Governor Kathy Hochul endorses Zohran Mamdani for NYC mayor - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9NeWhwZ1dOLTBRRGJmN24xTkYtWFBuUlpGSzVBY1pzS2pmM09Rb0pkMzhlb1RHMTlpb1BxZXNwVEhCTVhtTDN4SHFvdDlpalZmMWlNWi0xTkVVZ9IBX0FVX3lxTE1lLVlhZmtXY3dpSEtVcUhrT19UMmc4TE5oel9aRU9wYWRxT2hmd3ZxMHlQRUNmdUhkcTJ4WEdiTXlYajluUUw1YUcxZTNTSzZJSmpKdE5qUEY4UXJweHF3?oc=5) |
+| Poland calls for NATO-backed no-fly zone over Ukraine - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNS04ybnFQeWc0ZWtxSV9PYjRFOUl5VWYtbVpLb01DN3pRNEg4OWhkYWdTQkhHTElLd2R1dE1ULUhTV3RYLXI4NUdmaUF0QWltNFF1THBUTlNEZlJOVE1kb1VQdWFrYUtGc2VURHNjcFkzQ2tEd3ZVeVYtRVY4M0c3c0tnMkVfb3NQM2c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
