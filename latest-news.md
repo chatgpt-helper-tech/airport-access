@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月15日 16:48:58（北京时间）**
+🕒 更新时间：**2025年09月15日 16:57:08（北京时间）**
 
 ---
 
@@ -15,8 +15,8 @@
 | Madeleine McCann suspect turns down Met Police interview | [阅读全文](https://www.bbc.com/news/articles/cr5qd18y8j5o?at_medium=RSS&at_campaign=rss) |
 | Boss of degrading sex-trade ring in Dubai's glamour districts unmasked by BBC | [阅读全文](https://www.bbc.com/news/articles/cx2r9y3kxy9o?at_medium=RSS&at_campaign=rss) |
 | Struggling with brain fog? Here's how to fix it | [阅读全文](https://www.bbc.com/news/articles/c87ydw7xdxvo?at_medium=RSS&at_campaign=rss) |
-| Aldi warns food prices may rise if Budget lifts costs | [阅读全文](https://www.bbc.com/news/articles/c0r0zr7ed9yo?at_medium=RSS&at_campaign=rss) |
-| UK and US unveil nuclear energy deal ahead of Trump visit | [阅读全文](https://www.bbc.com/news/articles/ckgzevzwxwro?at_medium=RSS&at_campaign=rss) |
+| Rubio meets Netanyahu to discuss fallout from Israel's Qatar strike | [阅读全文](https://www.bbc.com/news/articles/czxw4xkxg51o?at_medium=RSS&at_campaign=rss) |
+| Fourteen NHS trusts' maternity care to be investigated over 'failures' | [阅读全文](https://www.bbc.com/news/articles/ckg6xj1vz70o?at_medium=RSS&at_campaign=rss) |
 | 'Killer' child car seats still on sale 10 years on | [阅读全文](https://www.bbc.com/news/articles/c8643d1p85zo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
