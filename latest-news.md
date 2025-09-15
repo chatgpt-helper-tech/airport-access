@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月15日 14:33:31（北京时间）**
+🕒 更新时间：**2025年09月15日 14:40:16（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | US-China trade talks set for day two as TikTok deadline looms - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1KcmFGdHNpZHVQU1RWeE03U0duZTczaVJrOUlTTzh3V2I3S0hYWUNacGNkQzBTdEVyOTBCLTBWMFQ1cDcwNzJiQlQwdkw5Ykk0ejlzemo1enRZZ9IBX0FVX3lxTE1nTFRVb1U5R3ltT2pGamt4dk8weXBTNGZRNmJGSUowLUVFYmt5bElERVVLUHdFRlB6X0RTdlJ5aHlCY0k0dG12Ty1feW8tMHpxVHpDbEdXUzl6WjVuWl9R?oc=5) |
 | Airlines suspend workers for posts about shooting of Charlie Kirk - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE1mSWtqeGtwQTNRWmNqLXVfZE1yR2FCWUN0cDBhZW5NWWpwcEdzSUxteU9UOVZ1RUZuYlZyNk5jU3JiUG90QXE3UDhsMXVmaHlzNDBqYjVwYjQ2X2syeUhMZmUxYVNZUUhGT1E?oc=5) |
 | Hochul, Van Hollen back Zohran Mamdani as senator slams ‘spineless’ Democrats - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQeVVIZElLRmNTNXNDdjB4QTFoZjROYVhNTFhOQWQydGZIZUJLLTNSUlpyUDEtdmVSQUg2Q1BmRHBnelpWZ3V4TV9YSTlocW1EQW8wMFk4akhrcTl0S0pFZ0lRU0phYTViUTdaOFVjM24zZWlURmRXNmJJUkE0OWU2SHNvaGZLMl91OXlXMG1NRmtIVTQ?oc=5) |
-| Blame game after acts of political violence can lead to further attacks, experts warn - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPVC0wVVh5OTBqV0NKZ2VadlE1QUp3bDJMWU1acDJGVFdVS1F0T0NvUGk4Y0psRjVBNTZlRWFiUmNER1hJRC0tbEktc2hUbnhjNVdUbEdWQW5IQWJUSi04Z3hKS2RSQzVxLUZkbUhRdDZvZEFZdDM4V1pGbXlTUXhZNDRPdU9NcU9xMlNMRHRENllZdmN0eWxoWE83WWMxeUluMUJMWHhYc01YQQ?oc=5) |
 | 2 arrested after incendiary device placed under news vehicle in Salt Lake City - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOQTZRSUMwRjc2d1NnM0tPYWg0VHpRdlpHRjdwOE90STZ2NFF1clh2NUVjblh4VmtBZjgwcG1GMGxFcEwxcklDRlFGQmhoT0sxdVJTWTFISUphWVlnMWduMDFSWng4TWVfa1AxbHlfWW4ydVZab3ZwV09rckNvQWZMYXJTek1RYlMtR1RhZVR1RdIBlAFBVV95cUxQSTRyMXE4bng4ako4akdQd0xscjRfaFRQc1lNei1vT3JtamlyVG90TS1Da3pSbjU4OEVpMG1RaW9RM3lhb0d2TWtEX0FVMWZjbXh6YXVKcXBINTRkWjZ1OEpneEJLbWlXal9SUG1ncGdLd3c4UWhvMWtOeXN6MG9ELUx3NkdZWC0tWTMxRVVlWmRwb2d6?oc=5) |
+| Blame game after acts of political violence can lead to further attacks, experts warn - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPVC0wVVh5OTBqV0NKZ2VadlE1QUp3bDJMWU1acDJGVFdVS1F0T0NvUGk4Y0psRjVBNTZlRWFiUmNER1hJRC0tbEktc2hUbnhjNVdUbEdWQW5IQWJUSi04Z3hKS2RSQzVxLUZkbUhRdDZvZEFZdDM4V1pGbXlTUXhZNDRPdU9NcU9xMlNMRHRENllZdmN0eWxoWE83WWMxeUluMUJMWHhYc01YQQ?oc=5) |
 | Former Illinois Gov. Jim Edgar dies at 79 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOUXJoSTZKR19pR0pHeFdzM0E1OVRKOC10TXRBbzNhZW5paDlXR2xJZEgwaHlnMC1PVnpLcHVYYW9YWUJ0Q0M3MUltb1EtalFyRFJYYy1zZHRwcDhZbGZtLWIxYmt5dXFVVHlQOHpUVmkwY3FiX085NnVhbnpBN0hZbmw3VzNMQzJmdkxWcjBHWmtRWE1Z?oc=5) |
-| Fox News’ Brian Kilmeade says comment about killing mentally ill homeless people an ‘extremely callous remark’ - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOVGVOMjYxQTNKMUM1azcyMVpab0tqZzVGbzgySDRZSDVQNnZIal81V2ZZMG1TdE52T0N1cnVWbTFiY3dFOWdqQkdVcVcwaHlMcjkxQklfQzRKdXcyd2NfVTZqQ0NKM3Z4dm9jV0lNaFVWSWNTYmJJNjlrSnBuUzBjUkJvZ09oUFU?oc=5) |
+| Israel intensifies Gaza City bombing as Rubio arrives - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNWHEwR1FPSDdTQ2dGeVJ1eS0yLVdqRi1PS0VJcGpwZ1Y5TGNBaHpheFZTV190RFhyMFJNbGwybUh5WFBsZFlBc0JKcFBla1lMN3piallvbTBRaUx5b3dacENSa2VEWDhyaHJEMVNZUFVQY01RRmthMGgwR2c2b2NUMUhXdFJDZ3dDRW9uVzBlcDBob1A0ZkpmNUpSWGJ0QWN1UVVxMGVMUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
