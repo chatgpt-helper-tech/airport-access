@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月16日 07:41:36（北京时间）**
+🕒 更新时间：**2025年09月16日 07:48:34（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | VP Vance to host 'The Charlie Kirk Show' as memorial for conservative icon nears - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNUk9nQi1EMHk4TmwzMjdsbzcwQ2ZRYnVYRGdKelZ4Ym5NTFA2NU8tQ0FKbGhxbVoxeHNMandWVlo4aXJMdHNHSjJ6U043SURjUmNNUmhEdXJILS1KbTFyQ0FUeGVlcnBlSzY0Nl9fY3BXZEc3a2s1Z003aVZVQ3pZRnI1c3pJQmpwUWVyXzJELUZTN0RJT1Vr0gGcAUFVX3lxTE42M0lRendLMkRfMUNhOHh4N2NGa1N5SDBsQWRsQWlFb3VaMnAzV1M2cGJ5M1Zmb1lERkttcVdMRmY2ZkI3aFZQVkU5bWVtaUF5NHBySHRJZ3JKOFBOY3lnM2Q1elRNeEtUT0d1Q3pxN1BlRy1oOU5lRUd6cWx1d3AxYkRsQjhXYlNwRTNDeThoZC10ZHp0bXozNTAyRQ?oc=5) |
 | Fact Sheet: President Donald J. Trump Restores Law and Order in Memphis - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPeHc4eVlxRXJETXFsMXJIbXJXWTBNY3lsRVB1aU03bTJoTUp3MURFeVM4TXVoZk9HU2JfNEFROGtuem4xaVZmM1dRaHpPc1FaN2g3b1lRNjZEX1FlVVBQRGxfNzNfWjNBcExxMjFGdjVNbnlxV05kaVl4ci1XMXc2REtRa193cnNOOW1yRE5RRmVraGE3aGFwXzJ1Y1J5SElFYnNMMnAtV2hyYWhyTmVNWkFJMEtPQnFo?oc=5) |
 | Prosecutor in Epstein case sues Trump justice department over abrupt firing - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPN2k0a0VwT054SnVjS3FUQnlkTjYwcFQ1cDhMaHI0Y2hlOEhVMElHQTNjYk5VVjQ1dGtoRzlMdS0zVVVVa196ZVBYX3U0cFNob3JXbUFBcndNLWRjN3RKeVVBSzFQU1lrUE5uaWtiSjlTOVd6RXN2TDBobWNzRUtDRE1qMFhuMG9jZHZHRVhHVGRmQQ?oc=5) |
+| Washington Post Columnist Says She Was Fired for Posts After Charlie Kirk Shooting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNa1N1RE1sekNzRVZEalpFcTRsUFpLRWw3ZndacEp4WTc4U0dNcDYtNFhvR3ZDSHc5NS1FdXpBaWJNT2tfNjV6cExGRURIQUx0cXpRTTB3N1Z6MHlFYldIekZkTW1NbzVTM0N0b2NHZzF4b0FFci1hclIxclF4ZnFkeXN6RVNvMWxEZ2NiSElrdjktSjA2cmJ0SWVjZ2c?oc=5) |
 | Trump, Bessent say U.S. and China have agreed on TikTok sale - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNMEpRMkFGUzQ2TXlxa1FzRU42SEx0c1RCUnFwZ1l5S2NWSWVmeV9xcHNPZjNUT1ZmTXJJX2ViUVU3U0QwVXRucV9PbUw5OUJocHo3dUM4STJkT3NMeE5oVjRtTy1icFJ6c3JMaDQzV09VVE9RZUlIZmZvZWRDWW5xVEtWZw?oc=5) |
-| Trump threatens to take over DC police again over immigration enforcement - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNUVpjUlp4QjVHV2loTkdNYllKLWFKTDMtMXp2RGpPNmRyZVhUMUZ1LVZhUlY5M1g1SlVuakpPNjBYMGRVbnEzM1RkZk4xclQzcWluZ0tTaWJRdnFjMXYyaWc0OFBsZzlnc3l1b0JXVFlTNXBkeFc2Z2FqSzJUWFYzQlYtUkxDWUhkVFRGN1QzZFM1c2pwZWQ4YVl6NA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
