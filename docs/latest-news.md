@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月15日 23:33:03（北京时间）**
+🕒 更新时间：**2025年09月15日 23:41:04（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| U.S. Says It Agreed With China on Framework for TikTok Deal: Trump Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTFB6UGhhVmZLR2ZvNGxVb0NBY280T1JPOEI3N2lyTlJWa0lfNV9OT1hWQmhuQUJYTkd6RkRmVHY4dU9sUzRqOTBFeERYdWdJbnFvTWoxUDZkb3FzX1BPcTY1R0dhSQ?oc=5) |
-| Charlie Kirk murder suspect linked to crime scene evidence through DNA match, FBI director says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPQTYxX1VwTTN2ekNvR0N2S3R1WWdHS3NrTkMyNF90R1hyT0JVWkg4WGg0N2pwMG5wOVpzaURtYXF4U1RmaE5Ib21TTEZyRjlzUmMxODRsc2lwNnJmaVdTYXpFVVYwcjh2Y2dEWVphWlhWMzJnSGYzZzdRbmFhOUhldXRaVlQ3U0ZVVzlTdF8zXzBSUml0Ulhkc2F5SXB5SWF6a2dMOVNLWGZubGRVODlBaXNUVm1LS2pO0gFWQVVfeXFMTWpLQWNjZU5QTEhvVWJhemp0NXZ0M0F0dzRxbGRKTjd4eXNXVWJRMVppWGd3X1VVOG91VlhmNHI0c2dEdzAtWXZkZ1RRN2lLZkZZSVpDbHc?oc=5) |
 | Charlie Kirk funeral poses major test to Secret Service: ‘It’s all hands on deck — but there’s multiple decks’ - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOd0ZPbmlIZzN4NUZjbXpYUTB2ZXdYZ0tTZ09wMHRLWEhfZjc3dklNelpBeEF0YzJyZ2tnTE1WanBRT25NcXNhczhqQWRtUjNuOG5TeFVscm1xdjJ6YXhLYy1IQTRzMXpjM0xMdlNscHNPRWVDZURHYVdHVS10RGdDdXZFMXE?oc=5) |
+| Charlie Kirk murder suspect linked to crime scene evidence through DNA match, FBI director says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPQTYxX1VwTTN2ekNvR0N2S3R1WWdHS3NrTkMyNF90R1hyT0JVWkg4WGg0N2pwMG5wOVpzaURtYXF4U1RmaE5Ib21TTEZyRjlzUmMxODRsc2lwNnJmaVdTYXpFVVYwcjh2Y2dEWVphWlhWMzJnSGYzZzdRbmFhOUhldXRaVlQ3U0ZVVzlTdF8zXzBSUml0Ulhkc2F5SXB5SWF6a2dMOVNLWGZubGRVODlBaXNUVm1LS2pO0gFWQVVfeXFMTWpLQWNjZU5QTEhvVWJhemp0NXZ0M0F0dzRxbGRKTjd4eXNXVWJRMVppWGd3X1VVOG91VlhmNHI0c2dEdzAtWXZkZ1RRN2lLZkZZSVpDbHc?oc=5) |
+| U.S. Says It Agreed With China on Framework for TikTok Deal: Trump Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTFB6UGhhVmZLR2ZvNGxVb0NBY280T1JPOEI3N2lyTlJWa0lfNV9OT1hWQmhuQUJYTkd6RkRmVHY4dU9sUzRqOTBFeERYdWdJbnFvTWoxUDZkb3FzX1BPcTY1R0dhSQ?oc=5) |
 | Trump vows national emergency in Washington, D.C. over ICE dispute - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQaVhDcmxCNU80M0dNbWEycjhIMDNKcXZRdnVMXzZ3SVBZcTUta2pHa0YxR245enllUEQweHFuaWtGbVlLTDBYZjBzOU1xY0doNnU2cVk1SnU2OTNWSFVWWjEzNmpkREdBTWlEM2tLNXd3QWs2T2t4YTZ0S3c5LU9TNHkxWDJVR0Jnb001N04weklqY1ExdkIyMGFqT1pHbHRPS1HSAacBQVVfeXFMT3hHVWE3dHlkb1BNTThFeWk2ZVptM3VFQmctNEdCVWg1N2dRRzF0NHlRWWg5MzFJS05lMVpIWEV3N09idnc0ZndMMHBxbFQ2QUhNdXM4MExYS2ZkdUV6SGw4Wi1mNGxxNlQya2VyLVZNTTJ1UDk0YXVMT1drUmozVmViSmZKbjM1UEhIRGtvQUhaQjBoa0liZjBoMHVDOXEwdkdfenFTWEk?oc=5) |
 | Trump slams Hochul’s ‘shocking’ endorsement of Mamdani - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOQUZHcTJ0T2ZVLTRLVVUxbk1ZcWt6UjM4MzBZSDk5OGR3eURLeXRGd2JMWXFKWmdQYlJONVZyUkQ4VVhVcjd5X0xRN19MRE9YLU1NOTVNbWFuU1BGcTNlNFQ3N2RHZGFOQ01XdktJNGFJdC1KeWpqLWxLSWNuSHZTQjN1dVJqWGxHYmVQMjFLbTA4QQ?oc=5) |
 | Here are the details of Trump’s $1.2-billion call to remake UCLA in a conservative image - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOeEdFU0pNeWFfNUhUZEQtWW5YcVIzVGpVUVVxUmFrVW5Xc2M5RkxsNFA4WXBBQVlFcnZ4Q29VdjItWElBWjB1NjVEb2dlZEZOLVNXUVhWUzVpNWNQcWZzV3JneTNlOWhQZ0Rvd2lPNm5iYXRrN3lFY3pnMzM5QlNFOTZ2NUxBTV80cTluNkN1R2tSekZRdGlJMlpraFBFNmZOQVJGZnh1eTgzWDNBZTVhMzVFOHRsRDJQQThORW1ETXRTT0U?oc=5) |
