@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月15日 17:10:01（北京时间）**
+🕒 更新时间：**2025年09月15日 17:17:16（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | Adolescence star Owen Cooper makes Emmys history | [阅读全文](https://www.bbc.com/news/articles/c75qdg41qv2o?at_medium=RSS&at_campaign=rss) |
 | In pictures: Best looks from the Emmys red carpet | [阅读全文](https://www.bbc.com/news/articles/c79vdz35v0po?at_medium=RSS&at_campaign=rss) |
 | 'My wife died giving birth after Trump cut funding to our clinic' | [阅读全文](https://www.bbc.com/news/articles/ckgqdneev1no?at_medium=RSS&at_campaign=rss) |
-| Madeleine McCann suspect turns down Met Police interview | [阅读全文](https://www.bbc.com/news/articles/cr5qd18y8j5o?at_medium=RSS&at_campaign=rss) |
+| Madeleine McCann suspect refuses Met Police interview | [阅读全文](https://www.bbc.com/news/articles/cr5qd18y8j5o?at_medium=RSS&at_campaign=rss) |
 | Boss of degrading sex-trade ring in Dubai's glamour districts unmasked by BBC | [阅读全文](https://www.bbc.com/news/articles/cx2r9y3kxy9o?at_medium=RSS&at_campaign=rss) |
 | Struggling with brain fog? Here's how to fix it | [阅读全文](https://www.bbc.com/news/articles/c87ydw7xdxvo?at_medium=RSS&at_campaign=rss) |
 | Rubio meets Netanyahu to discuss fallout from Israel's Qatar strike | [阅读全文](https://www.bbc.com/news/articles/czxw4xkxg51o?at_medium=RSS&at_campaign=rss) |
@@ -27,8 +27,8 @@
 | Oakland comedian’s blunt response to Charlie Kirk’s killing: ‘I won’t be gaslit’ - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPdF80R1B1alpHR0NVZ3k3SnA2VVFINC1KS1RyQ1hVaExNbEVRMGp5Wm4wV2I5aWo4UnVoWDJPa3VsV0FjTEgyZVB0bnJGNDhoaXUwMWk2UmcxZUxoZXhPd29UTlRVRnBmZFJzS3JGNGxmNjN3aUFZOXJoWnlYTEdENDViMDVldTlrd1B0cFM0VFNzVDRuU0JrWTlnaw?oc=5) |
 | Kash Patel criticized for his actions and posts during Charlie Kirk shooting investigation - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxOR2x1M1dyeERueEluU3BqaU44bUpYZllJMDBuR0dsRWNXaWZRdGRRNzlPTi1pelFVMGpSMFFMUFJ1M05kZzQteHZQajUxdEtRdUthaEEzN0p2dmcyVndFdUlWblZvTkxySVF0RW5lQzMtMTVYUWV3cTdCaXdNMWVVdTNTOTFGRG9CTG5HOFJ2WklOcUJVTE9FbVR5NHdHQ2tub2pndmxicFNGUXZMU1ZfMHdHU3JicjhPMWl4a3dlNHFHV0t2YVVZNFJLMGM2UdIBVkFVX3lxTE5pWnBmMGowQ3NFc3RueEJnQXdIdElLUWZFTnAyMVpHdm9keWtaOXBjN21nTTlPOEdhWWRDdTlOTDQ2WUtxSDk2NWQ4SU5qeENIZXJOX2Z3?oc=5) |
 | Airlines suspend workers for posts about shooting of Charlie Kirk - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE1mSWtqeGtwQTNRWmNqLXVfZE1yR2FCWUN0cDBhZW5NWWpwcEdzSUxteU9UOVZ1RUZuYlZyNk5jU3JiUG90QXE3UDhsMXVmaHlzNDBqYjVwYjQ2X2syeUhMZmUxYVNZUUhGT1E?oc=5) |
+| Trump vows national emergency in Washington, D.C. over ICE dispute - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQaVhDcmxCNU80M0dNbWEycjhIMDNKcXZRdnVMXzZ3SVBZcTUta2pHa0YxR245enllUEQweHFuaWtGbVlLTDBYZjBzOU1xY0doNnU2cVk1SnU2OTNWSFVWWjEzNmpkREdBTWlEM2tLNXd3QWs2T2t4YTZ0S3c5LU9TNHkxWDJVR0Jnb001N04weklqY1ExdkIyMGFqT1pHbHRPS1HSAacBQVVfeXFMT3hHVWE3dHlkb1BNTThFeWk2ZVptM3VFQmctNEdCVWg1N2dRRzF0NHlRWWg5MzFJS05lMVpIWEV3N09idnc0ZndMMHBxbFQ2QUhNdXM4MExYS2ZkdUV6SGw4Wi1mNGxxNlQya2VyLVZNTTJ1UDk0YXVMT1drUmozVmViSmZKbjM1UEhIRGtvQUhaQjBoa0liZjBoMHVDOXEwdkdfenFTWEk?oc=5) |
 | N.Y. Gov. Kathy Hochul endorses Zohran Mamdani for NYC mayor - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPWlJOS0xGbml1LUp5c0VVdElralJNaGVVNzJBb1luUXpVM2g2cUVKY2dFR2hQTjg2WXJNeWVZcnBRaUh1dDVYbUJDRnZwTC1hdFpxMlJxVjc2RVpRY3RWRVRZdlRHdWFYMDhoV2JJaktGd2tadWlxYnh2Rkhobk1rY0NXNzE?oc=5) |
-| EU decries Russian drone’s breach of Romanian airspace - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQYzRCTmRpQUdST2tnOWs5cjJnVndvNVJya2NhVERQS2kwd1BRTTk5UEIwVjhYbVdJdGE3NmJRVjJSRUVWRTVNeEdlWHhuRHNlWWw5c1ZETzZSelBRbzd5eGVmTmZuZ2pCYUlDY0dRdGtQYzZlanltS08wOFZPd3U1a3JTNXJZUDd4Q0hRN2F4c2MxTW9CYXpz?oc=5) |
 | 2 men arrested in Utah after explosive device found under news vehicle - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxONzVRa1d2VmE1elpMcjhhSHVWNUk0VV9LQXBKMlo2MGtGQmVnU0lrSEZpcWIydW1Ma1F1WnJNNTQxblY5YmRlMVlVX2ZfSzlnRlhyc05weGJNOHE4X2J3LVN5WEk0NUZ6UDM5M0hBQ0xKQjRmel9hTUpqLU53UGR1R3RZMnVlOThOR2c?oc=5) |
 | Blame game after acts of political violence can lead to further attacks, experts warn - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPVC0wVVh5OTBqV0NKZ2VadlE1QUp3bDJMWU1acDJGVFdVS1F0T0NvUGk4Y0psRjVBNTZlRWFiUmNER1hJRC0tbEktc2hUbnhjNVdUbEdWQW5IQWJUSi04Z3hKS2RSQzVxLUZkbUhRdDZvZEFZdDM4V1pGbXlTUXhZNDRPdU9NcU9xMlNMRHRENllZdmN0eWxoWE83WWMxeUluMUJMWHhYc01YQQ?oc=5) |
 | Former two-term Illinois Gov. Jim Edgar, who led the state through much of the 1990s, dies at 79 - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQZmdXQkhLd1hoMU5aT0VVcWF2d3pyWGdyaHpYUnhkX2M3YVFqTTl2THlrV2J5ZmlfRlA0V2VhaEZ2dExzSFFCZUI5c0Q2ODdIaVBaODBPUE5fTFM3ZUFYOW1ZOEdzYkd0S3FoQlVLeUtzZ2NERC1JN3BxRzExOHFEZVNtbnlScndPZFo3ZEpCd2FqTXhEVWlTNGxQdTRBSXNRV2NscUEzQ1hNeDZrcDQxS0hHY1htdHV5bk5OTC1Halc2NzRQVDR0eVp3SDQySUlrSkE?oc=5) |
