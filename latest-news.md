@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月15日 17:25:49（北京时间）**
+🕒 更新时间：**2025年09月15日 17:33:32（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Starmer facing leadership questions after Mandelson sacking | [阅读全文](https://www.bbc.com/news/articles/ce32qepq12qo?at_medium=RSS&at_campaign=rss) |
-| Adolescence star Owen Cooper makes Emmys history | [阅读全文](https://www.bbc.com/news/articles/c75qdg41qv2o?at_medium=RSS&at_campaign=rss) |
-| In pictures: Best looks from the Emmys red carpet | [阅读全文](https://www.bbc.com/news/articles/c79vdz35v0po?at_medium=RSS&at_campaign=rss) |
+| Adolescence star Owen Cooper makes Emmys history as youngest male winner | [阅读全文](https://www.bbc.com/news/articles/c75qdg41qv2o?at_medium=RSS&at_campaign=rss) |
+| In pictures: Best looks from the Emmys red carpet in LA | [阅读全文](https://www.bbc.com/news/articles/c79vdz35v0po?at_medium=RSS&at_campaign=rss) |
+| Charges dropped against two men accused of spying for China | [阅读全文](https://www.bbc.com/news/articles/cpd94le39e7o?at_medium=RSS&at_campaign=rss) |
 | 'My wife died giving birth after Trump cut funding to our clinic' | [阅读全文](https://www.bbc.com/news/articles/ckgqdneev1no?at_medium=RSS&at_campaign=rss) |
-| Madeleine McCann suspect refuses Met Police interview | [阅读全文](https://www.bbc.com/news/articles/cr5qd18y8j5o?at_medium=RSS&at_campaign=rss) |
-| Boss of degrading sex-trade ring in Dubai's glamour districts unmasked by BBC | [阅读全文](https://www.bbc.com/news/articles/cx2r9y3kxy9o?at_medium=RSS&at_campaign=rss) |
 | Struggling with brain fog? Here's how to fix it | [阅读全文](https://www.bbc.com/news/articles/c87ydw7xdxvo?at_medium=RSS&at_campaign=rss) |
+| Boss of degrading sex-trade ring in Dubai's glamour districts unmasked by BBC | [阅读全文](https://www.bbc.com/news/articles/cx2r9y3kxy9o?at_medium=RSS&at_campaign=rss) |
+| Madeleine McCann suspect refuses Met Police interview | [阅读全文](https://www.bbc.com/news/articles/cr5qd18y8j5o?at_medium=RSS&at_campaign=rss) |
 | Rubio meets Netanyahu to discuss fallout from Israel's Qatar strike | [阅读全文](https://www.bbc.com/news/articles/czxw4xkxg51o?at_medium=RSS&at_campaign=rss) |
 | 'Something had been stolen from me': Children share the lows - and highs - of pandemic | [阅读全文](https://www.bbc.com/news/articles/cx2jll1wx4ko?at_medium=RSS&at_campaign=rss) |
-| 'Killer' child car seats still on sale 10 years on | [阅读全文](https://www.bbc.com/news/articles/c8643d1p85zo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | 2 men arrested in Utah after explosive device found under news vehicle - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxONzVRa1d2VmE1elpMcjhhSHVWNUk0VV9LQXBKMlo2MGtGQmVnU0lrSEZpcWIydW1Ma1F1WnJNNTQxblY5YmRlMVlVX2ZfSzlnRlhyc05weGJNOHE4X2J3LVN5WEk0NUZ6UDM5M0hBQ0xKQjRmel9hTUpqLU53UGR1R3RZMnVlOThOR2c?oc=5) |
 | Blame game after acts of political violence can lead to further attacks, experts warn - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPVC0wVVh5OTBqV0NKZ2VadlE1QUp3bDJMWU1acDJGVFdVS1F0T0NvUGk4Y0psRjVBNTZlRWFiUmNER1hJRC0tbEktc2hUbnhjNVdUbEdWQW5IQWJUSi04Z3hKS2RSQzVxLUZkbUhRdDZvZEFZdDM4V1pGbXlTUXhZNDRPdU9NcU9xMlNMRHRENllZdmN0eWxoWE83WWMxeUluMUJMWHhYc01YQQ?oc=5) |
 | Iowa official defies governor’s order to fly flags at half-staff for Charlie Kirk - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQOUUybERqNGJpWHI3MmJnT3pjaE0zR05seFZpTFR6d29iek11QUNudWk0c1J0TTRoREo1ZXYyRWZ0T3ZBdmNQMFpEVnBmRTJ3TmV5OW1jeXF0TTgwREFSTGRZR0h1NURIRk1zTlFvLXFSVnhuMklmeldMV0NCSWRwV05iTjJOTFVIQ2M2anEzTXJWQndhUDV2b09FdHJzUQ?oc=5) |
-| Jim Edgar death: Former Republican Illinois Governor Jim Edgar dies at age 79 - ABC7 Chicago | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNUFNyQU5BTjBSMnpRbHFQUFMtTmR0S3ZzemtxYVdiMFRBejhWV3ItRndOYUNpMlJpSkVJSmNXMUw1dm5XVFhESk5OREpoNWJVbnRLbWQ1T1JHVlZ1alNQaEVvc3ZRa3o4ZE9NTWNMLU1IbmpOd3B6VTB4WDJHTzBpMjJmWGQ5U09NcUliNG80U01vZ1RrRWxYUENoR1NhNkJ5V1hFY9IBqgFBVV95cUxNM2k3bGk2eVJDeFVtdENERi1HSm1SY3FZYkZwSVFNMG5xYl84LWo0VUExVkVzT21FR1RnZnNUMzVQU2sybmFUMERYVE9BOFp5ZzRrMEZBS2pKNkRralZrWndKVW5EWlFEVnNDOHh4MjNSM3lGYUdjWmcxNkY1REY4ZFVkOWNhVW4xa3VEQUw3LV80bHZsWUc5Tzd6TTVNRVd4U2c4cmdnMDFhdw?oc=5) |
+| US and China hold second day of trade talks as TikTok deadline looms - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1KcmFGdHNpZHVQU1RWeE03U0duZTczaVJrOUlTTzh3V2I3S0hYWUNacGNkQzBTdEVyOTBCLTBWMFQ1cDcwNzJiQlQwdkw5Ykk0ejlzemo1enRZZ9IBX0FVX3lxTE1nTFRVb1U5R3ltT2pGamt4dk8weXBTNGZRNmJGSUowLUVFYmt5bElERVVLUHdFRlB6X0RTdlJ5aHlCY0k0dG12Ty1feW8tMHpxVHpDbEdXUzl6WjVuWl9R?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
