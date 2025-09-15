@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月15日 14:49:14（北京时间）**
+🕒 更新时间：**2025年09月15日 14:58:01（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Utah Gov. Cox shares more details from investigation into motive of Kirk shooting suspect - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPb2xCV1c5VWl1RDZjdGtpdTkzanR5TEhBdjd4V0owcl9Td1ptdWpwVmZXRmh5dGNDR2dGaS1neEpuRmc2UmdSWE9COUQyNUdJVy05dmJxaUJxTGE1R0VZSUdXRk0yN29EVTkycmJ0NHJDNDRKVk1PYTR5ZjRuWjhTMERHU3o1TDkyODJqbGEzdTVuUVZlUjB3VlpfQjk0MEFrekViNXY5YTUzeGVBbG0yS1FsN3VkUmxGbGhuZy1yamM2QdIBxwFBVV95cUxPTXRaclJWcDRmd3VnbG5MT0JSVlJ6WmJ5LUtyTjJPS05LVGM5ek11Um9Ba0RsWHBfaGcxUVpvUmFpRDkwT1dfLVhSUnBVbUJhOGhzTV9lYTBYUUhlUVhKM0VwMlJBZzVxaWlCOUsyQ0ZBUHVJZ2F4bzQyMDZoVEdOcmI5VkFhdm1ncy1maHhlOG9JcVVRQVl4c01xeDFPcDNWNWZrY3RNdERjcDJHMF9wdXNwNGFaVnFVUGpHMjh1el8zMVpTMVcw?oc=5) |
 | Suspect in Charlie Kirk’s murder has ‘leftist ideology’, Utah governor says - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOLThaZVktRnNEaXduMW45azVkR21fSWE3N1RhSVBoNkFXQVZmUDZGaVpGUUlDY3YzeWp5TWJCOUQ1eExfQnhGLXJyanJIWkRzUGZ1TE8wejlsbmp5TURKLUlKRVloS1oxdUR5RFZWOVdaaGRuNENsalluVXA1TG9ZTVpuV3U4ZUVRNEN0anNJclNuZWlHZVp5dVpkZkx2N0NYT0QxZDVXaUlud2w1MHBUN3F30gG3AUFVX3lxTFBYcE9KMDVMdFFaNDZSQ1hub08zaVNIckxhOGlLSkk3RXd5R3d4Tkdua2FEc1FESTNsVXVheWJNcklocXpvT296R3pFNjYyd3pmeDhKN0RmcDBhV3JzTkdvQmt5Y21LWV9oMFFhcGF0TDF2d0FVU1FrbXhzZzlzWHpNR1Y1X0FJeklSamhSYzhCS2tjWDJIWkh2SE1XTDI0SnNITGtaRHhxZW12Zk9Qb2dwWWp5RG04VQ?oc=5) |
 | Kash Patel criticized for his actions and posts during Charlie Kirk shooting investigation - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxOR2x1M1dyeERueEluU3BqaU44bUpYZllJMDBuR0dsRWNXaWZRdGRRNzlPTi1pelFVMGpSMFFMUFJ1M05kZzQteHZQajUxdEtRdUthaEEzN0p2dmcyVndFdUlWblZvTkxySVF0RW5lQzMtMTVYUWV3cTdCaXdNMWVVdTNTOTFGRG9CTG5HOFJ2WklOcUJVTE9FbVR5NHdHQ2tub2pndmxicFNGUXZMU1ZfMHdHU3JicjhPMWl4a3dlNHFHV0t2YVVZNFJLMGM2UdIBVkFVX3lxTE5pWnBmMGowQ3NFc3RueEJnQXdIdElLUWZFTnAyMVpHdm9keWtaOXBjN21nTTlPOEdhWWRDdTlOTDQ2WUtxSDk2NWQ4SU5qeENIZXJOX2Z3?oc=5) |
+| House Speaker Mike Johnson after Charlie Kirk assassination: "I think this could be a turning point" for the country - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOMi1LNnhtUE9uVmt6c3liYjZFMFRkZU53dmVxaGxsYWFTb0I2UzN2WWh4SmZUNUZFZFRtTm9GQlNQRXRabzhkbHhYbUdDdk04S25XMVloejdIdlhQWk1PUkJPYkF5Zmkxdy1YWktmYnpmbjVFSmZZcnpiSFExUU8wb2J5ZFRqek1qNmxoSDdGQmp5ZTVtUS16b2RqeHhvbjkxeHhMWlJhVUNuV2oxM2ZPS0VnekxwUHR6dW0tUkpwbVfSAccBQVVfeXFMTU5PMDFCQ0Y0c2RCaUpJMHo0M21jMjcwNWs1dnhjQW8xdWJyRjRPQU51SnQ0eWZrUC1RdXUzcjlJbDRVODZHQ0JiZVpBTkZZNllLRDdaQVpfQ1N6RVVIbG5SZDRYekVEVlo1M01fNXVHcmVCZGtMRWdLUWRRQllUZjNvMHJCUEVPRnkwd1Z0SjY5dEx1NmZCczJYWDZxdGdVM1RoTDR2QUkxXzd0Zm1WZF9rYnZ6bHVrUFhxdzdSN0xodTlDeDZLdw?oc=5) |
 | Rubio visits Israel in wake of Qatar attack - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxORDNOaVdCQUtwMkhrSjdzajJLOEtrenhUMHZ6OUwtMkRBRDRpaFZOQzg1dnZfelR3eGZDdENWQTdvbHpWdGhyVEVRQktNeGxGQTkzajNCcU1lREN2MXdsT1ZtTm1FWjNUS2FpTVc3cUdGUk9ma25xYnFZR3g5bkRhXzJwc1RPV0tGSUQ5Q3ZB?oc=5) |
 | US-China trade talks set for day two as TikTok deadline looms - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1KcmFGdHNpZHVQU1RWeE03U0duZTczaVJrOUlTTzh3V2I3S0hYWUNacGNkQzBTdEVyOTBCLTBWMFQ1cDcwNzJiQlQwdkw5Ykk0ejlzemo1enRZZ9IBX0FVX3lxTE1nTFRVb1U5R3ltT2pGamt4dk8weXBTNGZRNmJGSUowLUVFYmt5bElERVVLUHdFRlB6X0RTdlJ5aHlCY0k0dG12Ty1feW8tMHpxVHpDbEdXUzl6WjVuWl9R?oc=5) |
 | Airlines suspend workers for posts about shooting of Charlie Kirk - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE1mSWtqeGtwQTNRWmNqLXVfZE1yR2FCWUN0cDBhZW5NWWpwcEdzSUxteU9UOVZ1RUZuYlZyNk5jU3JiUG90QXE3UDhsMXVmaHlzNDBqYjVwYjQ2X2syeUhMZmUxYVNZUUhGT1E?oc=5) |
