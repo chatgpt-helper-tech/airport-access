@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月16日 01:00:31（北京时间）**
+🕒 更新时间：**2025年09月16日 01:09:36（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump Says Companies Should Stop Reporting Finances Every Quarter - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxORmxucW4zakZSaXRYTnNZNmRzMHN0S0FKS3Q4djJ2cWRCZ2dCekpfQU5PZFNmcndOZ1EzOXBTQ0NDU20zRlRTTVl2ODYyZUp6bnNfUTFicGpXTTM4RWg0UXp2WjBlRWF3UHVDMk10dExzUTA4VjdLZG0wT3gySjhyYmNURVZOd2M?oc=5) |
+| After Charlie Kirk’s killing, conservative evangelical leaders hail him as a martyr - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQbng5V2xJWkl1c3V2SGJoczRCWGtGMy1YN0lleWhqbXJpajR4eXFiNmtrcTdtcDRLTmF2UWVWY3VOQVlhNHRoQUxQN0NpUV9RTGlRWVAycjdKenVwdDZXNXQ4cl9nMVZuaEwtUngtNFZmQllkRkRycGxxMXNzdDNrcjBNWjRsZw?oc=5) |
+| Donald Trump signals US and China have struck TikTok deal - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBRendfV0tGSWlXVXZHWDl0dngxOUdhbDh5eXFESFpyTU82cEZ3dV9aNGw5YWlWQWhwVzkzSENkZ2dPcDhNX20zUFhkMGpBT18wa1NjaXVvdlZaT0g1LVI4YmIzY2RwbVIzM1ZxcjJIUlI?oc=5) |
 | Charlie Kirk killing: Suspect had 'obsession' with the conservative influencer, FBI says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQZUJQcWNNRHNHVDAyVjJUc3ZQeVQxa2NXbHE0TTVVM1p3UERFREI1S25zUGpsM1RWZEtMdUFLbHA1WGZSRjBMbkUxOWZpcW1YZ0pUT1NCSmVpRHVFUGVxYmhaak1ZUm93ZVFzSHRpYUlQVWF4bFVWR2VlclNzT0pXMGxGYlYxNzR1TVBzNDhBMnZheVh1UVFLZVBqSjBEZWpJQklj0gGoAUFVX3lxTE53SDF0bkROVjVXbzZXXzFOckplVXEwSWJGdnRQN2stdVBPYWg1LVR6RXV4YzZuajI3aHlTVkVEazFIMHMyYzhNQld0WW45TzJCb29VM0ZZeUdfRXFuWVZoOEFvVXdmRWhuTThXU09tZUVseV8yT2xXYTRzWmZvTUJaM01EcUFhcFZBYnBZMlNNQmFSM3I5bFRoM2taU1dXbDF0YjFYWUphXw?oc=5) |
-| US and China reach deal to transfer TikTok ownership, trade official says - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPVXYyczI5SjFRNVQ2ZlZGcFowR1AtU1FuR1hGY3dLWGNNNEdCN3FRZHBTLTFRRENYd1ZuSk1rRWpyYVpWcVJkOGUtVWpMVWIydEZLaDRROVlncGsxbzdXa3dtdkZ1ZTU0RldQMXlHWmhiNXNZVDhUdjdMdWdybHJQak9oVFM?oc=5) |
 | Trump vows tough action after beheading of Indian motel manager in Dallas - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1rc2xDRUVyTnFBMjNITmUyZnY0WlNBbDJjMDdqNGs5eUlUOXphQUJqWjNKYjVQZVI4NUdaYkQyQTZUc05xbkhMSTZabXZwTWQ4UXg3d2h3REp4QdIBX0FVX3lxTFBlQVFzQkdxWTlvUTU2VFhscGFoZVR3MUJyT2tGSWRwdnZ2VVJHdmk2TThlUHdtYi02OElFQU9WYl9IVkNGckdDOW5qTzZIS0VIY2l1OTh0Q1N6OFpUR3ZV?oc=5) |
 | Workers fired, placed on leave for Charlie Kirk comments after assassination - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBpd19GNnpsdm81aDFSWXNqeEtENHpIT2hDSC1pWFNDS0NoSGpwV1JaYzhZSU9yRHpCLS1DQmNfM1VrVEYxNWNLM2ZXRnVjdkpidnRVenRicmctN0Zqai1iRE5hRzhrS3BjOXg1c1BtZlV3WDl6UGfSAXtBVV95cUxNb0ZQdW95RWFaeTlaLTVxTi1yZnlkVlZNQWFzbVc4TVptNTVzX3hWWlduU2Y5dG1KeWZLdTlLNmxBa0htOGxXM2EwLVlrdGtXQzVYSjZlbTZZT0VXc0s2T295RE1NM3lQT184SUJtZnY5d1VHYjk0V21qeHc?oc=5) |
-| Trump slams Hochul’s ‘shocking’ endorsement of Mamdani - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOQUZHcTJ0T2ZVLTRLVVUxbk1ZcWt6UjM4MzBZSDk5OGR3eURLeXRGd2JMWXFKWmdQYlJONVZyUkQ4VVhVcjd5X0xRN19MRE9YLU1NOTVNbWFuU1BGcTNlNFQ3N2RHZGFOQ01XdktJNGFJdC1KeWpqLWxLSWNuSHZTQjN1dVJqWGxHYmVQMjFLbTA4QQ?oc=5) |
 | Charlie Kirk was more than a conservative activist - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOZVZpSHYyVGxmSHIwbWxlaDU3NnBXQjVPelRKUnVxWWVpZjVxT3dMN1BSSEQwbHo1ZGttc3UyeHExN0xDdjlpV01GbWI2bmNsVlRvNnFNaUFGemRFbWFmUjZFNk5sb0hJV3JIaXNLa1dWdDRGcWU5bG9sNFJvZ0RnSVB5OGo0Z2dYS1pRQUVYMW1jbldpVFRTeGpLRF85RnBVajFKSGpjaHZuYzg?oc=5) |
-| Trump says foreign experts welcome after South Korean outrage over raid - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFBCVEZRblZWTWNZTlNUa3RCTlp5Rmt5YjlFSzJnaEZKWlVDVTgtbm9ZMWR2X2VHR3pDdkRtcmxDYTZGaGxLajdOT29qMUhudnEzNkViSkljV0dLeUxiYUJOWm9ndWIwR29TUU1FbjFKcHRtNVlhU0ljU0NR?oc=5) |
-| Trump threatens to retake control of D.C. police over Bowser’s position on ICE - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQU2x5eUhjMEo2OC1nM3oxdXd5LWtUN19KLUNsM04ySGhma1AwSVlUZC1PZEx6T1dBcG1Dd0NUUkJ3dGlCZm1reHFOUThGWGpmQ29RRWxlNnBfZnZCS2FOa3l6NGdoX25qZHlMeUh5V0t4MGd2Ui1jSS15TEE3RkkyR3JPbUM?oc=5) |
+| New York Gov. Hochul formally endorses Zohran Mamdani for NYC mayor - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOWjBJZ2dCY09YY3dHeHFGRXdlQVFYSV9NX3BPSTdFRUlfZ3d6ZUJpcjZnYTZqNTJZZHMyU3pCQ3dHRnY5X3dRQ3ZOSGtPRTZTbERESS1oUnhYbXpQcDE5R2g5cDB5YzJQWkM3Z2RWU0R0NjJEY0FIRGV1azM0ZkZuM2l4bjJmNktlUzFjaG1TVW9oR0drMTIyalVZaEwwMHhzZ28tN3Rn0gGrAUFVX3lxTFA2YmdtTThiUGZ6VnRDOU5iZUZoTTYzUmhseDlfR1ZZajN5RElnT21pY3RmSm50TU9ER2gtbXc3S2tWUWFDblVTQ0lid0VySDhtNWo0YVFia1JvOGtUcm81UWY1Tm1QV1BQaS05dTBDUHJtdDNhTnFnQkcyNkdjekRScXBvd3lubzdIQk9MYkpRclJhQzVfcFFWMXJXU3dvd2lfbGtWUzUyZDN0Zw?oc=5) |
 | Rubio, in Israel, Says a Diplomatic Solution to Gaza War May Not be Possible - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQM1BucmV6ejZDajlmcXRlUGlQeDJZYzlOQnpzbHhUYUpsbHd0YXV2VF9BdmNsWjkyb2c2SlNaTU95ekhmOFFsaG5PVFE4UjBvMTd2eHdOZXhVb3I3RkxJMUozbWZsSHdhZ2c0WnJnLWJjNEVKQk1oOVNkQ2tYRHJZb3VOS0FZOURYNG9ZekVR?oc=5) |
+| Behind the Curtain: Four ominous trends tearing America apart - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9pWlZreDdyYXJYQmNua1R4UUlwMzJNeGRhUldDeGNpT2daSkMwQlVQVlJTRFFkRmhBeWlXamRkQnc2dGpYV0lkN2VwcE1wcEtVWXU0NEFGU2s4c2g0T2hUZGxKM0RpNHNGcUVIeTR2bzJyRDM4VnYyT0VBWQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
