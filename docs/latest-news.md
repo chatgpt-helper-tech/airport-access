@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月15日 23:56:03（北京时间）**
+🕒 更新时间：**2025年09月16日 00:00:10（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump admin live updates: Bessent says 'framework' for TikTok deal has been reached - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNd0FHMW44UGVTZzlkakxIQnIyWV9pT1hHUzB2b1p5MUhoSzJBSmN6NmJvNldmZDhCUUJWSENZNUFPRGVmbUFONFN4NTI5OEc5U1UxU1lPcEZCRnRhdUJJYnQ4ZHlsS2RRUVlGU2ttZmY0RFVrNGRzZ2pIN1NJSnhYRk1DcjJKVEZWYXNv?oc=5) |
+| Charlie Kirk funeral poses major test to Secret Service: ‘It’s all hands on deck — but there’s multiple decks’ - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOd0ZPbmlIZzN4NUZjbXpYUTB2ZXdYZ0tTZ09wMHRLWEhfZjc3dklNelpBeEF0YzJyZ2tnTE1WanBRT25NcXNhczhqQWRtUjNuOG5TeFVscm1xdjJ6YXhLYy1IQTRzMXpjM0xMdlNscHNPRWVDZURHYVdHVS10RGdDdXZFMXE?oc=5) |
 | Charlie Kirk murder suspect linked to crime scene evidence through DNA match, FBI director says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPQTYxX1VwTTN2ekNvR0N2S3R1WWdHS3NrTkMyNF90R1hyT0JVWkg4WGg0N2pwMG5wOVpzaURtYXF4U1RmaE5Ib21TTEZyRjlzUmMxODRsc2lwNnJmaVdTYXpFVVYwcjh2Y2dEWVphWlhWMzJnSGYzZzdRbmFhOUhldXRaVlQ3U0ZVVzlTdF8zXzBSUml0Ulhkc2F5SXB5SWF6a2dMOVNLWGZubGRVODlBaXNUVm1LS2pO0gFWQVVfeXFMTWpLQWNjZU5QTEhvVWJhemp0NXZ0M0F0dzRxbGRKTjd4eXNXVWJRMVppWGd3X1VVOG91VlhmNHI0c2dEdzAtWXZkZ1RRN2lLZkZZSVpDbHc?oc=5) |
 | U.S., China Conclude Talks With ‘Framework’ on TikTok Sale - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQalZWTDljd0UweVpndXVHQ21JRWI4TUpCeUtYRWY3b1NLR0JibWU0NFdtWVpUanBiR1dxRE8tOGdKZnVMQlZQSlFMd1MxOEJRSlNnaHFnSWFuczFpcGlwYk5rMXhiUmZqUVVCVy1uUmw0b0Uxdkg0ZDdWaUtURHFUaThpZUhLU293RjFFSQ?oc=5) |
 | 2 men arrested in Utah after explosive device found under news vehicle - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxONzVRa1d2VmE1elpMcjhhSHVWNUk0VV9LQXBKMlo2MGtGQmVnU0lrSEZpcWIydW1Ma1F1WnJNNTQxblY5YmRlMVlVX2ZfSzlnRlhyc05weGJNOHE4X2J3LVN5WEk0NUZ6UDM5M0hBQ0xKQjRmel9hTUpqLU53UGR1R3RZMnVlOThOR2c?oc=5) |
@@ -32,7 +32,7 @@
 | After Kirk’s killing a growing chorus of conservatives wants his critics ostracized or fired - Boston.com | [阅读全文](https://news.google.com/rss/articles/CBMi3gFBVV95cUxPWG5WSFVwbGdZNTZFSWFmX0tBV1VCZjdoOGxLbFVkeVhEMHI3dzA2NnZuNHJXeEJvc2Rza2g5U2RiWUhDcno3cnNhRFRTOFRVbkdtdHB2cnJkUlU1Mm5UaExzcjJ3Y2tlbnpnVjh3VTN0TDl4aUgzaWY3dkZBbjhkYjZjWEg5MEtGc0ZKRjhnWTRmY0hnNGxTSVEzSWNXOUtNWmJhczZCdFRXZUxFVFB5azlCdzJzZkNrZHlVUzNUaEEydDNNcEtoTWEzMjZGRnctcktDMXRuVVVsT2ctQ0HSAeYBQVVfeXFMTTZxWWRwZXdCRE1zajhjdnJ1MXBaZWtOMEYtdWg1UHdnT3ZPZkZjYzBsT25BUl9LSXVqd0VRZVEwaWdYTVJSQ3NqOXZtNXQ1eXVYVkhaVEtrZEtuQVhGR19FQjlIazRvNTJpQzBfNkNZT2dDSDBDREdZRS1GNFZwNG9lbWVQNGthOHE3VU52dGd6bXNoaGxfOENfc2hGSGdfMW1pbF96azZaUWxZanV1bnZSbE52dkpCMDItUWhiY2Q4Q1RYSGVlNEcyZWhGVThGZlJ4NlV4dzFhS0g5NTdSamJ0UkFPa1E?oc=5) |
 | Charlie Kirk was more than a conservative activist - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOZVZpSHYyVGxmSHIwbWxlaDU3NnBXQjVPelRKUnVxWWVpZjVxT3dMN1BSSEQwbHo1ZGttc3UyeHExN0xDdjlpV01GbWI2bmNsVlRvNnFNaUFGemRFbWFmUjZFNk5sb0hJV3JIaXNLa1dWdDRGcWU5bG9sNFJvZ0RnSVB5OGo0Z2dYS1pRQUVYMW1jbldpVFRTeGpLRF85RnBVajFKSGpjaHZuYzg?oc=5) |
 | 'The whole thing is screwed up': Farmers in deep-red Pennsylvania struggle to find workers - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPVjFGb2dCbE1uT3lyb01YMHJYU1FWUXQ5NmdkRjZCemltQ1FKX0RvTm1xZ3hwX1BXcjNrTnRKRnBGV285ZUV0bVpSbnMtTWExYTNFUDktUkQ1ZHMwUFM2WmtwQ0hhdDZkTlkxVzBYVklhNHNSU3A0M0xtTjJFOHoyMFliRU1EcGdsanVpRWNXVkl5WVpkLV81TjNaV25yQjM1Znc?oc=5) |
-| This House Republican is no troublemaker. But she's sticking her neck out for Obamacare subsidies. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5wRHFEaFdhVkJOUTMxbUc0SVk3UE1hWk8tMjBlWWpjWmwwaHZoVm9hYWVWbXJpSHZuVHliZ1RlNncycFZRN2pXQ3ZlQnQtLXhJTlc0ZDNkYzlXd2lqSkx3ZXJtVUZHUnlZVERMVVBBU2lQMzZ0eUt3dURxaw?oc=5) |
+| Two House Republicans oppose Johnson’s spending plan amid conservative grumbling - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQMkgyQjRmSnM3Nng3RDRlOG1YTlJ5S0Y0cjNFRS1zcU11dXYwX09OWTgxeENpRlV3NzYzdmphd09GcGdMYlpaRV95dWp1V2JxLWlVTTJodDlBYmVpMlVTaXNDTnhPSTlYM0FGa2RiT2JDTWVEV1BCYVZnLXUzVHNmdngwaldEQk5KODNwbnY3b1FjYlRJd2RTdjBqVFc2TklBSm10QmdmM3YzRS0tMXc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
