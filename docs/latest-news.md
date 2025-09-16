@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月17日 07:33:48（北京时间）**
+🕒 更新时间：**2025年09月17日 07:41:10（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | U.S. Investors, Trump Close In on TikTok Deal With China - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE85ZlUyRldEaGd5akJBaFdWNVNJeUNMTzNsWm4xaThGUWo5UFpIN1gtUHpQMFJUaXc0QlM2anZFM2xXcTVjNnFFQXZfQmlDRkVGeXMtVDMxbFBTYmZqSk84dnJyUENDeUFnTzY5MEtfUE0zSjFjNzZkR1FrblY5UQ?oc=5) |
 | Republicans release 7-week spending bill as Democrats warn of a potential shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNM3NkQXB4dElXWUFiQjZyRmFkaEp2dE14QlJXa1pQZE1HeVdHLVFWZERQMTAzUVc1SDZRYUlNZnk2R0x2Q19GM1RocENXaDZVQTdiRXl5MmJ0bHBxaUtwZ3BaUFRlelJGN244a2o1b2VvdlVaczV3YXNqU2FWSkd1MTB4aHI?oc=5) |
 | New York judge tosses terrorism charges against Luigi Mangione, lets murder count stand - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNWmQwM1lnOEwzelJsOXNRQzRvdkJJS1JaY1MxR2JsX09fMWNMbmVkMEdfRVRpYU9tMDJkV1lOT1psWTlTYmFqQTVzZDItZS1Yd19XUnVtZHNWbUY1SmF0cDdiN1dEdHR4dUxHSEIwY2FYdzRxd0lxdWVNNzFJbWQ4TnhXQjdIVmhFMVRCRWtDaUNmSTF5RTNVSHJYN3ZpN1NtU19qcWZ0a19Yb0E?oc=5) |
-| ‘That is not the law’: Bondi promised to target ‘hate speech.’ She’s facing backlash from all corners. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPRzY3WGpQeUhwNlhRUXdmbHFiUldWTmN4UU01aGZzMWNZQ3lYQUdpXzh5NFh4QzJIMlRFMUJWemhic3M3RVhGSVAtNnlLMGp6MXpNUG5PcFhRSUd1eXBGUGY1ZzN4WDlzVk0yYUF5LUl0ZGVqd3Rxa3FnTlM4c2ppeXFXaXVKNVJHUE1DVFhhVDFSa2tLWGV1VW8waV82RUs1?oc=5) |
 | Palestinians flee Gaza City as Israel says it launched ground assault amid global outcry - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNOTV6aTNiVjZnck5abmo5eXZRbzBuNlJpVUM3ZlJ6YmRxR2U5cFM2VV9BNU53aEZjZjl3YWd0NWdnWmJUdU5qLWF3M05uWjA3LXAyNTV2QjhEVFVTRG9tMFIxcTFjcXlJcEwzNllmRE12bW9LWmpET3owZ2VsTWFJeE16T3EtdUJkdFNPOVNkLXA5QQ?oc=5) |
-| Man arrested for allegedly faking confession to Charlie Kirk’s killing - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxORWlwdHR6NVBNYUE4TzFJUV9CWkVZNEpDWWZxelN3cDNnVE9GQ3FhT2VNRTd6SGh3SkV0Y3pQNUozWWNyLTIyZ2ktWWNITE03cFVILUs0VzhRVG10eGtHU0ZnU3NPdWpMbkp1T0NsTkoxUUdVeXlRaVViOEVubWxiMDIxeGF0Z0FFaW5xLXByYw?oc=5) |
+| ‘That is not the law’: Bondi promised to target ‘hate speech.’ She’s facing backlash from all corners. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPRzY3WGpQeUhwNlhRUXdmbHFiUldWTmN4UU01aGZzMWNZQ3lYQUdpXzh5NFh4QzJIMlRFMUJWemhic3M3RVhGSVAtNnlLMGp6MXpNUG5PcFhRSUd1eXBGUGY1ZzN4WDlzVk0yYUF5LUl0ZGVqd3Rxa3FnTlM4c2ppeXFXaXVKNVJHUE1DVFhhVDFSa2tLWGV1VW8waV82RUs1?oc=5) |
 | The people who have lost their jobs for posts about Charlie Kirk - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1SSm9XWlBaQ0JFaHd1OUo1YzdpeFhzbVpMVXpzT1ozekZkOXNJN1FSYlo2b29VUnUwSE14QnJ2YV9TbDh0Z1E2U25tNXF5T3N1QjlGOGJKdi1LTmlxSDM1X1B3dFBjRHFCRjl6bDZ4Z0VteDEtUEdWRXl1OA?oc=5) |
 | President Donald Trump lands in UK for second state visit - follow live - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1NTWVmcUJLQkpwUzFjQllYQTFkOVNadHN2V19NbmhHRkYzTUFYNGlRaEpYNkstcVBsWjFKbVRyNzhQcndRQloxVGhsZlNpWjZhekh6Rg?oc=5) |
 | US military confirms it sent observers to Russia-Belarus war games - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOZHQxaTFDeUFETHRLQXR6dS1vUUZENVhPaWdzVTVMdE00Z1pKN0gtRDlIZUE2Tl9wWWo0MkQyMUl6N29pWndKb090MFBUc28wcFJUM2dBbmlSSnFqdGoyZ3c5V3hLT1NSRVl1N3lpQkh5SDJpZVVDa09HU3pwb1lORGdaV3RuQWFSeFRtazA2RERWQTlJaDR3Mzlmb1ljRDBjNGVJb3dYSmlpQnJyM0xqNTV3?oc=5) |
+| Russia Indoctrinates Children From Occupied Ukraine at 210 Sites, Study Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxORU1KOVNFNUFsT1lEdDBFX2FaQ2hTanZ4aWJub0Y3NG11dEgwaVNyMmFNU3l1ZFhTaVNtUVBTYmhyZ0l6V3VuLVVOb0NlblRETXY1eUhmLWVOT2FtZlRlQmJ3d3BtYmhsdDFWenlQZS1YQXZhZFJkSGFyS3gyckRNSjNjTzNLYVNmdWFZQ29CMHUwYVNYc1NpNk00MXM1UQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
