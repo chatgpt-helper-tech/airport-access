@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月16日 18:32:24（北京时间）**
+🕒 更新时间：**2025年09月16日 18:40:03（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Charlie Kirk murder suspect appeared to confess to killing on Discord, company says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBFenMxYk9jTG04MFdYV3hEOHg3NzF2YkZNYjdtNjJ4RDVqSmZXYmpHNmZmYndNWmNiUU9NQk1fTnoxb3RnQU5yM0FBU2NjMF9hNkV3MDBRWnR1dXh2MU45cUtnRG1uemNwQ0ZJTlBpU2ptYVVuNXfSAXtBVV95cUxNWGdMYmZBVEl0SXFHVkJMUmFQNkJ3ZEYwczI5U1lYVmd3YlNQLTh2ZG94N3A4dXp6QXNxLWllMXpWUmM2YVVRZDhUbWxOVnR2ZUtBd3l3NnUzY3VFQTJrVHhSQjNyT3ZMNE5HaEI1a0Y5ZzhCMWE5NWNRNHc?oc=5) |
 | U.S. kills 3 in strike on alleged drug boat from Venezuela, Trump says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPVUhxNjZKTWVoYklnOThRcHhRdm9TQ2Qyb05XWkdlc2wydm52Q01kSkZ2aUlJNk9EMDVIYzMtZzJDalJ0ZkYwZlRiUHl1TTlYRUFJY2M3UnZjcG5qaU5DcXVpaTBWcUFWaGZrdlEzQVZLa2YyaUtwT21BVzVPVWozRHFoYnFmWHlpa3N4U1Y0ajh5Zw?oc=5) |
 | Patel says he doesn’t regret prematurely announcing suspect in Kirk killing was in custody - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQcHlhZFd5U2tiUzZTX3V6d3llQ0l4M1J4VGJDTXFTd3Uzdlo5NXZzVVpzb1c0d2xKMnIxbFFzLVQ0TjNKYUJheFo0b2txUU50aEotQ25oV0lCMllvQy1kV3NLSk9uSU5wS3AzMFJvWFV4QmhPNVkzbFB6ZFlJbFdMcFZvNlQxa09zU0JUdmpGRFp3STJtbTNlSHV4UFZsRy1iVUNIR2RBYlNNVE0?oc=5) |
-| Iowa lawmakers call for termination of ISU employees for online comments on Charlie Kirk - Iowa Capital Dispatch | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxQVE1WVEp5S2ExOU9EeURiZW5TR1NTblNNMFM0UkZFQUctZ2RsYlByc0Z5aHhWS2ZLb29ER3Zmd2s4VE9YaktjeGRYZU5QOF8zdXJNYTZabUEzRDdOT2Vjc1laWGYzTTM0Ry1lbGk3eWRsSVdQSTh1V1JNRDRqbkRsNjNfMzRieFcyM0hGc1VnUE1qa2tyWWpKSUhrVURRMEQtX0Q5S295ekt2OVR5MVVMOGVyMmNIMVFuMWQtTE1rMWxQSUwtZi0yQ05wMWI?oc=5) |
-| Lina Hidalgo Will Not Run for Re-election in Texas - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPQWZRWThDei1qUmpxYmxDczExMHRhcGhDMzdkLVNUaFN0RkhLSXhLUW5JU0RfN0txZUIxTktHUUViX1RiSEc4TnVTUERfM3pwSU1Fek4yTjVNRnRVYXlkZ0lUQ05JRnVmbUhob05rWlJQRzVTckoxNnBSNnBoM1Q3VXBKWnM?oc=5) |
-| Trump, Bessent say U.S. and China have agreed on TikTok sale - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOcUExVzNvNWlUQTRfWkRONTZTNXJFSURwd2tmTFA4SnBkNnhVYzI1M2RTWWdUZmJZR0o4b3dQWUlJY1lLUlB3a2ptVTBrM0pqeHRwQXVPbWtJQm91Vm1WbEYzanhvMEFrWlFMMC1mN2REZWVRRXhyOW5SVGlPZnU3UTZR?oc=5) |
 | After Charlie Kirk's death, Trump team calls for dismantling leftist groups - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQbVhCN19KdU9vemVqNHJoRW1sWGdmR2xxYklJZl9PMG5wRURYZjQ4amNJdENxdGUxb2pvNUxaTEJfZG5fWUpsdmRRbWRYZVMwRm1CckJ4eVhrTl9peE95a0xpd2QwS0pWX2czZkw2RW5hRlhZblc2TkxLbEpnZnRQYV91WjJNeGExV2NMaThvUDVUOHhqOEdaYndycUJDdU5ZMWN5UlJ1R3hkeVV0ekhuT2dCS3ZkY0NYeVYtLVl0bmo2TVNiY1RJ?oc=5) |
-| Appeals court says Lisa Cook can remain Fed governor for now, rejecting Trump bid to remove her - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOTzA5WWx0aXp4N0xvUTFSTEJuaGYta09UclE0a3hFbEp1N0hOTDBTLUdvcm9fc1dVcDlKdy1MZVRrVVRjQ2ZqR2lfbFZZbkZSdUNscHl1ajQ5TG9ZUFZabTMyMFAwbUpYT1VFMnU0MmpUMlRBTUJjemx6YUhnWS12RVJ3djBOdDZpVmFRbnNnVXo2QkJNWi1vT0J30gGfAUFVX3lxTE8ySTdiN0Z2OUxkREVwczRxVXlFNVdQU3h4RnBJQ3NGLVJvM2pFRU56X2dNenlFdkJRMW93REhaMVBTUWJRaHlqdFNFdGlwSkZQZXFGbkpLSDNYbThqdlI2S1JuVGZ3b01keUx6dHNjNHI3XzlhSEduNDliWEJFdkFZbmJBQkFVMG5zNEZ5amMxRjBHb1A3b2FudmZhVFltOA?oc=5) |
+| "Not welcome": Rubio says U.S. is deporting visa holders who celebrated Kirk's death - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOcWRoQVNndnZmbjZyR2ZtNzMwa3d3WGJSZ1gyOG5LYU5jR2NrUEdpaGY4aktHN3VHZkRTSUpqaWlQYl9mOHhvN1ZyemtLcG8wRXdKT2M2b2NTN1NmX0t5bGhUY1ptNVpOdkxGdlNNb2RQWWExbk1XUEg4Zm82d1RxM1luamd0SjA?oc=5) |
+| Lina Hidalgo Will Not Run for Re-election in Texas - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPQWZRWThDei1qUmpxYmxDczExMHRhcGhDMzdkLVNUaFN0RkhLSXhLUW5JU0RfN0txZUIxTktHUUViX1RiSEc4TnVTUERfM3pwSU1Fek4yTjVNRnRVYXlkZ0lUQ05JRnVmbUhob05rWlJQRzVTckoxNnBSNnBoM1Q3VXBKWnM?oc=5) |
+| U.S. and China Reach a TikTok Deal, Pending Xi-Trump Call on Friday - Barron's | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE9iYktQNGlvd0pfVUFmTmlaaXJQLVBmX0xRSENDa3JBeFR5YVFXSi1GY055eGprRG8xek8tM19uWjRHXzBCR05yZklsUGNoT3NpLS0zOWpham82aWFJMTVEZ25TVzExZFZoVVJIbU5wclNjMTA?oc=5) |
+| Appeals court says Lisa Cook can stay on the Federal Reserve board — for now - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNU2ZjNzliODJ5c1lyTkVfZ1M0T2FWaVJMS2tMeDVZbDYzejEwSXVCUEtkekl1cWNkQ2pEaEtxdlAtYXlIeU9rTWp2cDFvc2J3YjBxdU84VmtOeUJhVXpwMXNDbWVZQzRnSE5xS29ubkYxODJ3Ry12VFFLWTZxdGNMNXVMdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
