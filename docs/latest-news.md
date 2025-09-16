@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月17日 03:09:38（北京时间）**
+🕒 更新时间：**2025年09月17日 03:17:15（北京时间）**
 
 ---
 
@@ -29,7 +29,7 @@
 | Trump sues ‘degenerate’ New York Times for $15B - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOWTF1cjFibVFWeDBmd25uYUJrc3BXMVJUUGhsR0xFNDJjeVJtQnNoS0lVZVpReThqVXhDY2loMzd5aE91VEhua25xXy1Td05VTHpSREdScXh0NWdCbFZ4eDVkWE1GaE5SdFRZWm1fenZ3cDJMamtHOHU5ZkE3SnZIekZOc2hBMTF5YnhWcnpNbjVrN1pYRVNZV1BiX0J2a1k5QXpn?oc=5) |
 | Judge dismisses two top charges against Luigi Mangione in UnitedHealthcare CEO shooting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPcW4xZjZEeHpGMGJlYVgxeHFGNmJOSXJRT2lfTmxsc0Nqc0lRQkhFZHFKV0NfUjRUYjBEUkxUa3h0WWM3VzdFNlp2allvTDVPYzE4b0tyUTlvWUQyNVZ0b0J5blFYRHU4S3R3ZDhzLTFVcmNPRU8tSm5fUGlyRVFhWlJ5Y09uR2Ntc0V2dk1jODJ3UQ?oc=5) |
 | "Not welcome": Rubio says U.S. is deporting visa holders who celebrated Kirk's death - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOcWRoQVNndnZmbjZyR2ZtNzMwa3d3WGJSZ1gyOG5LYU5jR2NrUEdpaGY4aktHN3VHZkRTSUpqaWlQYl9mOHhvN1ZyemtLcG8wRXdKT2M2b2NTN1NmX0t5bGhUY1ptNVpOdkxGdlNNb2RQWWExbk1XUEg4Zm82d1RxM1luamd0SjA?oc=5) |
-| House GOP leaders unveil plan to fund the government until Nov. 21 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5SMmZMVlo5UVRwMHFYTnVBUGhKSDJfdGlUS3R5NXZzWHZPbTZ5MHIxTUZDSVc5N1pfUWRyMllGbU9GbHNPdDlUXzNnTFItaUZEYWRKT1RkdUs5RlRZWEtFRDgxR2REYWRVek5oVUlVazJmcmpLRGhvRWxZTdIBgAFBVV95cUxNSHNyUU1mcHQyTF9Ga0lyQUpuUTFVdk50SFAxOXZrR1FKdktuRGZVVzdMRkxla2RYS2NnTFhkX1MxY3JVWU9IbmM5M0thNGZhdDRuclUtbVIyak1KbUtSczBQNXZ0eUhiTHdLaGJUR0VUenVwYVNsS2VBbnNGY2VBeg?oc=5) |
+| Republicans release 7-week spending bill as Democrats warn of a potential shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNM3NkQXB4dElXWUFiQjZyRmFkaEp2dE14QlJXa1pQZE1HeVdHLVFWZERQMTAzUVc1SDZRYUlNZnk2R0x2Q19GM1RocENXaDZVQTdiRXl5MmJ0bHBxaUtwZ3BaUFRlelJGN244a2o1b2VvdlVaczV3YXNqU2FWSkd1MTB4aHI?oc=5) |
 | President Donald Trump's Air Force One due to land soon in UK for second state visit - follow live - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1NTWVmcUJLQkpwUzFjQllYQTFkOVNadHN2V19NbmhHRkYzTUFYNGlRaEpYNkstcVBsWjFKbVRyNzhQcndRQloxVGhsZlNpWjZhekh6Rg?oc=5) |
 | Beijing says TikTok’s US app will use Chinese algorithm - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBZcmVTWWE5VnVTdVptX1ZkaTNadU9kM0J4NEhCNkRmTXBfWkdKTWhoOEJ3NGIydDBpektycEU2cWtvbHh3blM5eVNmVUpDSk5YTWN6SWdXdjVIeHQ3MmlQdGl1SUgya0ZiNldxcjd4SGc?oc=5) |
 | Scoop: House Democrats rage at their "hypocritical" leaders over Mamdani foot-dragging - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPUnhOR2hFRWhnZnN2MzFUYXNBTmVvclhlNFdXbjNZUlpvT2pub2ZkWlBfYmRJNVlNR1Rkdzg0RUp0SVlfSWZzMm83d1ZZZEJ4TmIxcTFsUjU3UEZmRjlFdWNTUTBlOGk3N3lld0ttcGV2SmR6VU5oOG5XbTJVSWhpSWg3N0piTnBPT3c?oc=5) |
