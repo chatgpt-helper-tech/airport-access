@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月16日 16:00:35（北京时间）**
+🕒 更新时间：**2025年09月16日 16:09:57（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | On Charlie Kirk Show, JD Vance Talks of Crackdown on Liberal Groups - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQa0ROYkl6WG55MTdSdzh3T2RlNkRiajgzSEV2Rjk5VDBHMjU3ZXpSQWdUUWtaS200VjBUQTBKam40REdBTjVxdzNhQ1VxeWtMUl90V01odDBRWklBaTBuWHJOaW9LcnR1N0N6N3FfWnVQVk42a1ZRT0tHNUhweml5ZXN6UGM?oc=5) |
 | U.S. kills 3 in strike on alleged drug boat from Venezuela, Trump says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPVUhxNjZKTWVoYklnOThRcHhRdm9TQ2Qyb05XWkdlc2wydm52Q01kSkZ2aUlJNk9EMDVIYzMtZzJDalJ0ZkYwZlRiUHl1TTlYRUFJY2M3UnZjcG5qaU5DcXVpaTBWcUFWaGZrdlEzQVZLa2YyaUtwT21BVzVPVWozRHFoYnFmWHlpa3N4U1Y0ajh5Zw?oc=5) |
 | What to Know About President Trump’s Second State Visit to the U.K. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNdWw3NUpmb2pRVmRWcE9rX0F4UWh1Rk5EYXdDU21lNHRyOEdRc1VocXRzY3g0dmhWRzF0ZVlXYUlBYXMwOTF2QzZ5VEk4T0NsSVFGNXpSbHZYLUVoN1hfWXFsb3VXRkJEUWYwOFMyd3hEaG11dkEtYkRPcW5JakREYUkyaVZWTmltNDVUYk5iYw?oc=5) |
-| "Not welcome": Rubio says U.S. is deporting visa holders who celebrated Kirk's death - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOcWRoQVNndnZmbjZyR2ZtNzMwa3d3WGJSZ1gyOG5LYU5jR2NrUEdpaGY4aktHN3VHZkRTSUpqaWlQYl9mOHhvN1ZyemtLcG8wRXdKT2M2b2NTN1NmX0t5bGhUY1ptNVpOdkxGdlNNb2RQWWExbk1XUEg4Zm82d1RxM1luamd0SjA?oc=5) |
+| TikTok will retain "Chinese characteristics" after sale, Bessent says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE5xM2JCTGlRcEJkSnhvalhybkdPU2I0RVcxTWQwbF9CV2VOaVJ0aGxyYkZ2bk5SUkxhWHFMTVZGbngydUEzMkhtNjBjZXM4MUVMUnRCN1E1bktVUzE5MGdQTFNieVcwV084RTV2NW05ZnlLTFJkZWc?oc=5) |
 | Appeals court allows Federal Reserve governor Lisa Cook to keep her job - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOT3JBcVVLZHpNaDZHNFowenNBRTFnMThWUWd2bjJVamRFTHRPd2RzaHlhN0xlLTRXU294MHNLTDkyOW5MZ3NtYTBudThFdHNGcmplUGhfcVZUYl9fckZIQkZFbnRKakdPV2kwUGFONDZRRXZNWGxPaWhWdlQyUnZjWHFZTk9VdzVCdm1fUWhLT3ExNkJXc2wyRmV0WFd2TXc?oc=5) |
 | Suspect in Charlie Kirk’s murder linked to scene by DNA, FBI chief says - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQbXpUOVNDTkVGSTkyWjhkUTNmWk4weFJ1RmcxWU5abGpCNHpKNjcyZm5ydHlhZENQTTAzblRTcTJxWnZ4em5UM2c1VWZnd1pwNDdMTV8wQ2lMa2d2eHQxd09aY1hodzZLenMtV0JYUjBUTlhvZXNCRjZWQ3lvbjZOVjcxdzM3Xy1DX0txWDlXeWJ0eFlWQWQ1U2hKOUpsS1hyM3VSRXpsTDlhVDBtUGJZ0gG0AUFVX3lxTE1ST3R5ZkJWMWlsN0d5M1hteWJCWmZaN1picHQ0NWNheERZNElReG5LMEFVNzRYUS0tUFI0MjhfSVNZSU5jTjdManhvcXFPdndoQ2QzZzZhRnVybVRNY00zbFE4Ny1vUllqbFJSY3YwbndQWnNKM2xsREJLRWlyM2s1cDBaVTVwTlRFQmZjWmtMa05FRXBCS2ZSSDNkeWFXTTYybVB3dVl2WTNpQThrN3VkbnFrNQ?oc=5) |
 | Trump backs Patel amid MAGA divide over FBI director - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOLUdRU0xhQm54bUtkeVZrM01pRWZVM2syaHpvb0JkRXBJMDlBTm5DcE9QODU5UlB6eU1Rb2x1ai1Tdnc3WTAzQ2xZcjdKWklkWDhIYjZ4T3NlQ3pIV0lJOF9lS3ZxRENKdk0tZDJQVmVEblJfRzk0MEtqUGU2MEVLU00zY1ZzMVk?oc=5) |
-| Trump threatens to take over DC police again over immigration enforcement - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNUVpjUlp4QjVHV2loTkdNYllKLWFKTDMtMXp2RGpPNmRyZVhUMUZ1LVZhUlY5M1g1SlVuakpPNjBYMGRVbnEzM1RkZk4xclQzcWluZ0tTaWJRdnFjMXYyaWc0OFBsZzlnc3l1b0JXVFlTNXBkeFc2Z2FqSzJUWFYzQlYtUkxDWUhkVFRGN1QzZFM1c2pwZWQ4YVl6NA?oc=5) |
+| Iowa lawmakers call for termination of ISU employees for online comments on Charlie Kirk - Iowa Capital Dispatch | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxQVE1WVEp5S2ExOU9EeURiZW5TR1NTblNNMFM0UkZFQUctZ2RsYlByc0Z5aHhWS2ZLb29ER3Zmd2s4VE9YaktjeGRYZU5QOF8zdXJNYTZabUEzRDdOT2Vjc1laWGYzTTM0Ry1lbGk3eWRsSVdQSTh1V1JNRDRqbkRsNjNfMzRieFcyM0hGc1VnUE1qa2tyWWpKSUhrVURRMEQtX0Q5S295ekt2OVR5MVVMOGVyMmNIMVFuMWQtTE1rMWxQSUwtZi0yQ05wMWI?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
