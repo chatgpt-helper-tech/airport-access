@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月16日 14:48:21（北京时间）**
+🕒 更新时间：**2025年09月16日 14:57:18（北京时间）**
 
 ---
 
@@ -26,7 +26,7 @@
 | Charlie Kirk murder suspect appeared to confess to killing on Discord, company says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBFenMxYk9jTG04MFdYV3hEOHg3NzF2YkZNYjdtNjJ4RDVqSmZXYmpHNmZmYndNWmNiUU9NQk1fTnoxb3RnQU5yM0FBU2NjMF9hNkV3MDBRWnR1dXh2MU45cUtnRG1uemNwQ0ZJTlBpU2ptYVVuNXfSAXtBVV95cUxNWGdMYmZBVEl0SXFHVkJMUmFQNkJ3ZEYwczI5U1lYVmd3YlNQLTh2ZG94N3A4dXp6QXNxLWllMXpWUmM2YVVRZDhUbWxOVnR2ZUtBd3l3NnUzY3VFQTJrVHhSQjNyT3ZMNE5HaEI1a0Y5ZzhCMWE5NWNRNHc?oc=5) |
 | Israel launches offensive to occupy Gaza City - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPNHBLcm1aT2xqWjh0Yi1Tay1GbGg2WU05bHhoS0VUU0pvYnB4elB4N01pUFNONUdwZHZ2NHJJQng4Tm5EWVFkVExOeXpacEppZXdTRTAwM2Q4RU1lVjl4X2R3YmNiYnJwa256UThlcW9WaVBiU1pkdHFQWGUzZ1c5RmR5QQ?oc=5) |
 | U.S. kills 3 in strike on alleged drug boat from Venezuela, Trump says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPVUhxNjZKTWVoYklnOThRcHhRdm9TQ2Qyb05XWkdlc2wydm52Q01kSkZ2aUlJNk9EMDVIYzMtZzJDalJ0ZkYwZlRiUHl1TTlYRUFJY2M3UnZjcG5qaU5DcXVpaTBWcUFWaGZrdlEzQVZLa2YyaUtwT21BVzVPVWozRHFoYnFmWHlpa3N4U1Y0ajh5Zw?oc=5) |
-| Trump administration says it’s reached ‘framework’ deal to keep TikTok running in US - Politico | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBLTF9MTU85Tm1ZalVZRGpua1JHcTBIS1BTNFFXUnN0bWVwa20xdDBEVFBmSldNVy0zcVczSTc3UlVHandmNmxpSWlGOTIzV2Vla2FKSUlqRXpTWWNOUHcyUUFYWjNYRm5leHVUMnNRczA0bVJPaVhyQ0dOOXppZw?oc=5) |
+| On Charlie Kirk Show, JD Vance Talks of Crackdown on Liberal Groups - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQa0ROYkl6WG55MTdSdzh3T2RlNkRiajgzSEV2Rjk5VDBHMjU3ZXpSQWdUUWtaS200VjBUQTBKam40REdBTjVxdzNhQ1VxeWtMUl90V01odDBRWklBaTBuWHJOaW9LcnR1N0N6N3FfWnVQVk42a1ZRT0tHNUhweml5ZXN6UGM?oc=5) |
 | Donald Trump is unpopular in Britain. Trumpism is thriving - The Economist | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOdWhlV1ppNy1hcEZ5cGtqVklxU2h1RzNuMnRZR2pIWXNKME5wUng4RmVmZUNORkoyTXRCMHhMZ3pqY3o1UWxqZTdTYWEwYjhFRkxrb291Y3NaOXNrMjEzcWhaVUFvN2ZLQXU5TTdRR01zbU12b0oySzFGVF91U3FrZlFDNDlpc3ZUbmQyM3pTU19nM1BkMFh2TktsN0FLQWNtd3ZYTA?oc=5) |
 | Trump to sue New York Times for $15 billion, alleging defamation and libel - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPbjBORFdWZXVFOFVsQS1lTzZpRWlkb2plZFdHQ3NQbjU5TDNWaHpqQWtCZndUN3BJWklGQ0lLc1dadV96SktBT0w0WGpQNWg5U2U2ZWtJWjFFbzU3RXRHSE91UENXWG81azktZnh3VFhyS2dnWnhfZE5uUUZCWVNNRm1TTG9RU3diRGliakdBU3hCdXJ3QzlzWi02ZThvbTd4MDNiaVd6VmZfd3EyZEU00gG0AUFVX3lxTE8yQlBzYy05eDFYdFZpb0JNSVhDTTA4TURGNV9Fb1piNkszQjR1NzRVYjVWSmVXbU1oMngtWnNXdTg4VzE0M1U4YlZZVUh4Z1ZQN1dfMEJXbUtLZmhJZTBrOFB4a1dKTEtld3FfaDFNQ25SU2I3bkZMeW1mRXZOenJiSGZ0YkN2UzU2VUEwTjNqMGZuZEJPWk5PX1hIZkNoYzRoRGhrcVhmWjg2dlVJb2NmU1dyMg?oc=5) |
 | Appeals court allows Federal Reserve governor Lisa Cook to keep her job - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOT3JBcVVLZHpNaDZHNFowenNBRTFnMThWUWd2bjJVamRFTHRPd2RzaHlhN0xlLTRXU294MHNLTDkyOW5MZ3NtYTBudThFdHNGcmplUGhfcVZUYl9fckZIQkZFbnRKakdPV2kwUGFONDZRRXZNWGxPaWhWdlQyUnZjWHFZTk9VdzVCdm1fUWhLT3ExNkJXc2wyRmV0WFd2TXc?oc=5) |
