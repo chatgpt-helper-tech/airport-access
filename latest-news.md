@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月17日 06:17:15（北京时间）**
+🕒 更新时间：**2025年09月17日 06:25:34（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | Eritrean man wins block on removal to France under 'one in, one out' deal | [阅读全文](https://www.bbc.com/news/articles/c1dqe2443l1o?at_medium=RSS&at_campaign=rss) |
 | Acting legend Robert Redford dies aged 89 | [阅读全文](https://www.bbc.com/news/articles/c1dqe9ey0kgo?at_medium=RSS&at_campaign=rss) |
 | 'The bombing has been insane': Palestinians scramble to flee Israeli assault on Gaza City | [阅读全文](https://www.bbc.com/news/articles/cly0qnnx5w5o?at_medium=RSS&at_campaign=rss) |
+| Two Labour MPs denied entry to Israel | [阅读全文](https://www.bbc.com/news/articles/cge2gweqzjno?at_medium=RSS&at_campaign=rss) |
 | UK hopes for 0% tariff on steel exports to US dashed | [阅读全文](https://www.bbc.com/news/articles/cj4y2gge7p1o?at_medium=RSS&at_campaign=rss) |
 | Teacher's fears over Southport killer were met with 'red tape' | [阅读全文](https://www.bbc.com/news/articles/cvgvd15x8d7o?at_medium=RSS&at_campaign=rss) |
 | King at Duchess of Kent's funeral but ill Queen did not attend | [阅读全文](https://www.bbc.com/news/articles/cpq5eynnn8ro?at_medium=RSS&at_campaign=rss) |
-| Boy, 15, fatally stabbed on Manchester street named | [阅读全文](https://www.bbc.com/news/articles/c30685178rdo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -28,11 +28,11 @@
 | Israeli military begins ground invasion of Gaza City - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQWGdoSG04NEsxTHFITlZiZDVOWE1iZlo5X0FLUE9vb2NfMkFhOWlLYm12aGpsYlZhQkRILUcwN1o4QkVjZHk3Tkp0QjJ6SmlFTFJjRDNxWFl5N3dYRzgwcFFTaFpSOHR5T19GSzRRa0VJcFVTQkNsbV9TTVd4Y1J0MHV2WWRUeFAt?oc=5) |
 | Bondi clarifies: "Hate speech" won't be prosecuted - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5rMHc5S245eUN4aUpWSUo5Wl9mRThqYnlSLTRkOExTUHhoSnZaLXJWbFRBZmg5b010dzMzOERFZlNQREsxSy1nNFRJMHdXWTJpVXR4b0tlN1gtQmFqV2JheGRza1lCVm5GNDUtbWxvbDVCOEliRUc4SnhfQ0Mtbnc?oc=5) |
 | President Donald Trump lands in UK for second state visit - follow live - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1NTWVmcUJLQkpwUzFjQllYQTFkOVNadHN2V19NbmhHRkYzTUFYNGlRaEpYNkstcVBsWjFKbVRyNzhQcndRQloxVGhsZlNpWjZhekh6Rg?oc=5) |
-| Judge dismisses two top charges against Luigi Mangione in UnitedHealthcare CEO shooting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPcW4xZjZEeHpGMGJlYVgxeHFGNmJOSXJRT2lfTmxsc0Nqc0lRQkhFZHFKV0NfUjRUYjBEUkxUa3h0WWM3VzdFNlp2allvTDVPYzE4b0tyUTlvWUQyNVZ0b0J5blFYRHU4S3R3ZDhzLTFVcmNPRU8tSm5fUGlyRVFhWlJ5Y09uR2Ntc0V2dk1jODJ3UQ?oc=5) |
-| JD Vance backs mass ‘doxing’ campaign to find and harass Charlie Kirk critics - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQT1BPT0lYLThFNkdmQ0VXZ3JyMTg0OHY0bTZpUGZDNDZLalJuQktmQmxpb0NXVHI1d0JRY0ZHck9iRVhvcElKaFhRLUQ5WUppeEI2UVJsNi1nVDFSQWo3VkFaZ3pZQzV5N0hNOEZac2t6VmRFcm1QTFlsMUpZLUFvbzJ3ZENwVW5Ic3VPNw?oc=5) |
-| The people who have lost their jobs for posts about Charlie Kirk - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1SSm9XWlBaQ0JFaHd1OUo1YzdpeFhzbVpMVXpzT1ozekZkOXNJN1FSYlo2b29VUnUwSE14QnJ2YV9TbDh0Z1E2U25tNXF5T3N1QjlGOGJKdi1LTmlxSDM1X1B3dFBjRHFCRjl6bDZ4Z0VteDEtUEdWRXl1OA?oc=5) |
-| Republicans release 7-week spending bill as Democrats warn of a potential shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNM3NkQXB4dElXWUFiQjZyRmFkaEp2dE14QlJXa1pQZE1HeVdHLVFWZERQMTAzUVc1SDZRYUlNZnk2R0x2Q19GM1RocENXaDZVQTdiRXl5MmJ0bHBxaUtwZ3BaUFRlelJGN244a2o1b2VvdlVaczV3YXNqU2FWSkd1MTB4aHI?oc=5) |
 | Trump files $15B defamation lawsuit against The New York Times - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOeTJnZGtTT2huaGJOZ0E4czFseHBONWRKN24xOHJwTEZiZ1lLV0FrXzhWUmRrTElONzZvUXRSbDZVRi1EcmMxNF9waHZ3VUlvSDhHLUtvR1FObzVFZUwtMDRPQ2k2UmhQWE1idTk5T25QS2h1a2FkVFdnZk5HXzhsYWZIQnlnaXpjQ2Y0SndpdW02Zw?oc=5) |
+| Luigi Mangione's state terrorism charges dismissed in UnitedHealthcare CEO's murder, judge rules - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQRFR3Nk1PeU1VS25rUlpiWXdZUld1cE9yY19wVS1DZ0tTYi1pY0pTLU5TRDYxOUdYWVlGNmREdklRQlhYUTMtYUhsekJtckVNM3l2SzRiUFAtUlVQLVRJUWEtbV9pUHBFV3Y4b3JNdXlxYW5OM0xmUDhjbjBWT2t2bS1YdEQ?oc=5) |
+| JD Vance backs mass ‘doxing’ campaign to find and harass Charlie Kirk critics - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQT1BPT0lYLThFNkdmQ0VXZ3JyMTg0OHY0bTZpUGZDNDZLalJuQktmQmxpb0NXVHI1d0JRY0ZHck9iRVhvcElKaFhRLUQ5WUppeEI2UVJsNi1nVDFSQWo3VkFaZ3pZQzV5N0hNOEZac2t6VmRFcm1QTFlsMUpZLUFvbzJ3ZENwVW5Ic3VPNw?oc=5) |
+| Johnson Releases Spending Bill, Daring Democrats to Oppose It - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQbkxKNnRHZS1xbEtzRnM5ek04bklsZUtkM2l5ZzB4VTN1aXduQi1xM0hxZHNmdXpJeGF3MXFRdHRkQlFwQnBKOUdmWF9DTGQ3a2JlY0FGcnlxU1dKSlR1YjNfMnc2VWZnSDZJVXJORVVjVUVmQ1FIQWhPMHFHTExFd2VwZGR5Zw?oc=5) |
+| US military confirms it sent observers to Russia-Belarus war games - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOZHQxaTFDeUFETHRLQXR6dS1vUUZENVhPaWdzVTVMdE00Z1pKN0gtRDlIZUE2Tl9wWWo0MkQyMUl6N29pWndKb090MFBUc28wcFJUM2dBbmlSSnFqdGoyZ3c5V3hLT1NSRVl1N3lpQkh5SDJpZVVDa09HU3pwb1lORGdaV3RuQWFSeFRtazA2RERWQTlJaDR3Mzlmb1ljRDBjNGVJb3dYSmlpQnJyM0xqNTV3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
