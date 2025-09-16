@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月17日 03:57:13（北京时间）**
+🕒 更新时间：**2025年09月17日 04:00:53（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Kash Patel grilled on Charlie Kirk investigation, Epstein files during congressional hearing - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPU1h5cnRsN1VIQ3NTNy04Um1iVXRPVlprVGxqZVM5dzQyRC1FZUFMVExmdGhMaFM2RkVvTFVvT3JkZWtEVGtwVW5lQ0hockVpU0pVdjI2MjFidDZiZklUSXdiVnlsUElJSGEteTZHdmtUNTlaWDd4RExlWHFiRlZjTUJ4NTR4dXR5cXQ3WDZHRUpYbGh4YXlObDVVRUVKWWJpMjhGRkFKS0Vta3RfTnZTUjJCaGZselFERldxVDhn0gHDAUFVX3lxTE8zaTZRN3hMMUh4SnkxSVA3azBpN1ZPLXhBYmtkQ2xqakZkbUJPWjJrR2pKMjZ5cDdSa1FmSVh6SnVYVEI1cHNZRFNQRFJfY2s2Z0VlNC0zRG1sY0tqMjZPWUFpejBUSjc2MTZCWXRwRTFIVEEzT0JtcXNBVXlyZXRzTm03bVNSakl0Tlo2NlZwNlBaeVFDSlFOV2hQLTRhSFhZdDh0d2poTlJseWV0cUtUWlluLUV6ZWVfZWNjTWFSQ2ZLZw?oc=5) |
 | Trump files $15 billion lawsuit against New York Times over campaign coverage - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPNW1GNmcxX0xsRzZzRnZQekFzWTZ2X1I1c3dzUWJUdWtTM2x0YjBJcUZISGtnYWxpZkFlYmpjbWNyMHNKT19CdWtfWVZWdGExbHhlV3EyWllxV1pJTEVkVkFyR2NhSUc3QWMxNlBsQU1YOG10NlRsVVZTeDFCZjFvU1ZEOHYwdGx3RGZVNi12QjFRMjZlLVlBanUwamxrMUJuTV8tNEtUYmk2MU9FR3IzM0E2emXSAVZBVV95cUxQWjVGSUpkZm1LbXh0TWphMXJKRFBDWjRuei02aDgzSWtXbkJKSmVaaWtmcF83RW91TVpGMGdkTF91cDQ2OE5JSjcwLTh1czBIcWUtelhxZw?oc=5) |
 | Bondi clarifies: "Hate speech" won't be prosecuted - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5rMHc5S245eUN4aUpWSUo5Wl9mRThqYnlSLTRkOExTUHhoSnZaLXJWbFRBZmg5b010dzMzOERFZlNQREsxSy1nNFRJMHdXWTJpVXR4b0tlN1gtQmFqV2JheGRza1lCVm5GNDUtbWxvbDVCOEliRUc4SnhfQ0Mtbnc?oc=5) |
-| TikTok to stay in the US as Donald Trump says deal is done - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBPb0dUYVNrRkN0Y0g0UlNYOV9wTlhjem9KQjU1ZkREN0N4WmhCYmdWWVQyVWloc3A2M2VvSVU1M3JvSDRMQXpDUHJwODFzNVROSVl6a2hsQ2d0QdIBX0FVX3lxTE1NTWJwdDdFTFVTc1B1MXhaSmN6MWpBTENMNWZWam5IMjNFYV9LOU1sSVIyaTE1bUhhZHdabjJQdmNDNjlXMng1Y180QVdYdXdYTkh3ZEowYUlwaHhJUFdR?oc=5) |
+| Trump extends TikTok shut-down deadline after reaching a tentative deal to save it - CNN | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9GMG9BbkI2N0lCMmdwU0dCejJyQTA0d2wtb2Jxeko1MzJoRVlLWnJPZzRCaXpjNmFXcFdpWnBKY1JlRFdvMkhNc3A0TzNONXVjcHk5UE5kMlRNM1NLVERyeEZYUnZjTHJ2MjFjb0tUMA?oc=5) |
 | Republicans release 7-week spending bill as Democrats warn of a potential shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNM3NkQXB4dElXWUFiQjZyRmFkaEp2dE14QlJXa1pQZE1HeVdHLVFWZERQMTAzUVc1SDZRYUlNZnk2R0x2Q19GM1RocENXaDZVQTdiRXl5MmJ0bHBxaUtwZ3BaUFRlelJGN244a2o1b2VvdlVaczV3YXNqU2FWSkd1MTB4aHI?oc=5) |
-| Trump heads to U.K. for carefully choreographed state visit - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPWklfQjBGaW1jeTF0ejZlNTZMLWpZWFZmQ2ZweEtyMFRPYW1yRkdQRnJIaGV0UWI3QWpJRWRRVHVaellGN2Q3RVhmU1FzMzNCMHI4UWg2blRJTjFtOVlwR0tnakdtRk9qWC1XcTZHTXRKYndqUHo5UjNuM3VsdWFjUWs3NEdjNkZ0a2loRkVn?oc=5) |
 | Scoop: House Democrats rage at their "hypocritical" leaders over Mamdani foot-dragging - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPUnhOR2hFRWhnZnN2MzFUYXNBTmVvclhlNFdXbjNZUlpvT2pub2ZkWlBfYmRJNVlNR1Rkdzg0RUp0SVlfSWZzMm83d1ZZZEJ4TmIxcTFsUjU3UEZmRjlFdWNTUTBlOGk3N3lld0ttcGV2SmR6VU5oOG5XbTJVSWhpSWg3N0piTnBPT3c?oc=5) |
+| President Donald Trump's Air Force One due to land soon in UK for second state visit - follow live - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1NTWVmcUJLQkpwUzFjQllYQTFkOVNadHN2V19NbmhHRkYzTUFYNGlRaEpYNkstcVBsWjFKbVRyNzhQcndRQloxVGhsZlNpWjZhekh6Rg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
