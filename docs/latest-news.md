@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月17日 05:32:13（北京时间）**
+🕒 更新时间：**2025年09月17日 05:41:24（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Details Emerge on U.S.-China TikTok Deal - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE85ZlUyRldEaGd5akJBaFdWNVNJeUNMTzNsWm4xaThGUWo5UFpIN1gtUHpQMFJUaXc0QlM2anZFM2xXcTVjNnFFQXZfQmlDRkVGeXMtVDMxbFBTYmZqSk84dnJyUENDeUFnTzY5MEtfUE0zSjFjNzZkR1FrblY5UQ?oc=5) |
 | Bondi clarifies: "Hate speech" won't be prosecuted - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5rMHc5S245eUN4aUpWSUo5Wl9mRThqYnlSLTRkOExTUHhoSnZaLXJWbFRBZmg5b010dzMzOERFZlNQREsxSy1nNFRJMHdXWTJpVXR4b0tlN1gtQmFqV2JheGRza1lCVm5GNDUtbWxvbDVCOEliRUc4SnhfQ0Mtbnc?oc=5) |
 | New York judge tosses terrorism charges against Luigi Mangione, lets murder count stand - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNWmQwM1lnOEwzelJsOXNRQzRvdkJJS1JaY1MxR2JsX09fMWNMbmVkMEdfRVRpYU9tMDJkV1lOT1psWTlTYmFqQTVzZDItZS1Yd19XUnVtZHNWbUY1SmF0cDdiN1dEdHR4dUxHSEIwY2FYdzRxd0lxdWVNNzFJbWQ4TnhXQjdIVmhFMVRCRWtDaUNmSTF5RTNVSHJYN3ZpN1NtU19qcWZ0a19Yb0E?oc=5) |
-| Trump files $15 billion defamation suit against New York Times, Penguin Random House - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNblJwWHlIYkFwQXFOZ2w2VWFVWU1qZVdXbVgzOVVnS2NtVGpMaXVaWTdkSzFRUjJjNG5ucHlxSHRjMFB6LUZwbjZOdi1qWWhWS256RkF6djhnUWhyYUlvcDRYT0t1OTFUSExOeVZwYlcyTWZHOHRXaFRDM0FIcmQ1ajFrRnB0ci1lYzhVdGJ3eXdiNTRuZ2Ew0gGcAUFVX3lxTE44endHTTJTeUpUYVhfLS1MZG1INkExX1Njd0lRanNhT0hOY0tsTmhnOWdrNkJleG56azlKTVJVTktQbTIzdkdUSFh6ZXFUcU1YSllLV194bnllRmJSMEduUmlpeXJsZjlaTG9oSkpUYThUa0VfOTNIekVzVnQxVkpXb203LTN4TEl3Qk0xZzZob0JEMklDZE9GYk1vWg?oc=5) |
-| FBI Director Kash Patel clashes with skeptical Democrats at contentious hearing - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPcEVjaHFqWnpkelF2b05ZWXliRkdfV28tb3ZCMk1GdTBQWDNrVDBnWVRSQzk1V1E3Q0JoUlBzR0s0ZDRxdy1GOThCWHlfeF84Z2RrLXpzOGxyYWQzS2FwR1AtTVczVVliekRhUTRiQTlGbDFLa1FYMm9ySHFSZUdUY0hETjR6T0RjeFJ1WFVaTXJZdXZkQU9vRlBqOTY5Zw?oc=5) |
-| Republicans release 7-week spending bill as Democrats warn of a potential shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNM3NkQXB4dElXWUFiQjZyRmFkaEp2dE14QlJXa1pQZE1HeVdHLVFWZERQMTAzUVc1SDZRYUlNZnk2R0x2Q19GM1RocENXaDZVQTdiRXl5MmJ0bHBxaUtwZ3BaUFRlelJGN244a2o1b2VvdlVaczV3YXNqU2FWSkd1MTB4aHI?oc=5) |
+| Trump files $15 billion lawsuit against New York Times over campaign coverage - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPNW1GNmcxX0xsRzZzRnZQekFzWTZ2X1I1c3dzUWJUdWtTM2x0YjBJcUZISGtnYWxpZkFlYmpjbWNyMHNKT19CdWtfWVZWdGExbHhlV3EyWllxV1pJTEVkVkFyR2NhSUc3QWMxNlBsQU1YOG10NlRsVVZTeDFCZjFvU1ZEOHYwdGx3RGZVNi12QjFRMjZlLVlBanUwamxrMUJuTV8tNEtUYmk2MU9FR3IzM0E2emXSAVZBVV95cUxQWjVGSUpkZm1LbXh0TWphMXJKRFBDWjRuei02aDgzSWtXbkJKSmVaaWtmcF83RW91TVpGMGdkTF91cDQ2OE5JSjcwLTh1czBIcWUtelhxZw?oc=5) |
 | Trump heads to U.K. for carefully choreographed state visit - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPWklfQjBGaW1jeTF0ejZlNTZMLWpZWFZmQ2ZweEtyMFRPYW1yRkdQRnJIaGV0UWI3QWpJRWRRVHVaellGN2Q3RVhmU1FzMzNCMHI4UWg2blRJTjFtOVlwR0tnakdtRk9qWC1XcTZHTXRKYndqUHo5UjNuM3VsdWFjUWs3NEdjNkZ0a2loRkVn?oc=5) |
+| Republicans release 7-week spending bill as Democrats warn of a potential shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNM3NkQXB4dElXWUFiQjZyRmFkaEp2dE14QlJXa1pQZE1HeVdHLVFWZERQMTAzUVc1SDZRYUlNZnk2R0x2Q19GM1RocENXaDZVQTdiRXl5MmJ0bHBxaUtwZ3BaUFRlelJGN244a2o1b2VvdlVaczV3YXNqU2FWSkd1MTB4aHI?oc=5) |
 | US military confirms it sent observers to Russia-Belarus war games - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOZHQxaTFDeUFETHRLQXR6dS1vUUZENVhPaWdzVTVMdE00Z1pKN0gtRDlIZUE2Tl9wWWo0MkQyMUl6N29pWndKb090MFBUc28wcFJUM2dBbmlSSnFqdGoyZ3c5V3hLT1NSRVl1N3lpQkh5SDJpZVVDa09HU3pwb1lORGdaV3RuQWFSeFRtazA2RERWQTlJaDR3Mzlmb1ljRDBjNGVJb3dYSmlpQnJyM0xqNTV3?oc=5) |
+| Russia has network of 200 camps for ‘brainwashing’ Ukrainian children – report - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxORHlqMmF3QUlSb1lQbUIyYWd4cGk1bGZfSDFUSmVzS3N4Rkp5QVZWNjZJQzhBU0FzU1FKSGFjai1KMVUwQmZuVmR4UC1la3BYRHI4VzhwRVNMRVgydWtLWmQxdHZ5SW40dWpNZldxdERiRkJRNnhpRXFPX2JheFIzRzdTUTRId1RUeWQwV3hISE9ZNXFOUXRfYjJpb0tNelhOVG1kN2pnS09PZXlqYzd4eElJQ1BSanBKbEpRdlJaUEJTZmpaMjM5a0NRcUpUUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
