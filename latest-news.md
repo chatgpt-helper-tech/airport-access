@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月16日 17:56:21（北京时间）**
+🕒 更新时间：**2025年09月16日 18:00:07（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | These teens turned their rooms into tech-free zones. This was the result | [阅读全文](https://www.bbc.com/news/articles/c1lelqg0jy3o?at_medium=RSS&at_campaign=rss) |
 | Trump's state visit is mired with potential pitfalls despite careful planning | [阅读全文](https://www.bbc.com/news/articles/c4gw25w9841o?at_medium=RSS&at_campaign=rss) |
 | State pension likely to rise by 4.7% in April | [阅读全文](https://www.bbc.com/news/articles/c62lnzdndkeo?at_medium=RSS&at_campaign=rss) |
-| Ready for an autumn declutter? Four ways to get started | [阅读全文](https://www.bbc.com/news/articles/ckgen8pkgjjo?at_medium=RSS&at_campaign=rss) |
+| Why now is time to declutter and four ways to get started | [阅读全文](https://www.bbc.com/news/articles/ckgen8pkgjjo?at_medium=RSS&at_campaign=rss) |
 | Report those who celebrate Charlie Kirk death to employers, Vance says | [阅读全文](https://www.bbc.com/news/articles/cn0r5y33pj5o?at_medium=RSS&at_campaign=rss) |
 | Hillsborough Law will force officials to tell truth to investigations | [阅读全文](https://www.bbc.com/news/articles/czrpvrrrmj2o?at_medium=RSS&at_campaign=rss) |
 | Opioid deaths 50% higher than official data, research shows | [阅读全文](https://www.bbc.com/news/articles/cg7dzmyjrjzo?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | US appeals court rejects Trump bid to oust Fed's Lisa Cook - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQTGNWckkyQkJOS2tZcnI5cGFWQVN0al9fU014Q29sV0lEZXptTUVTZVEzTDNQRjUxXzZNUHhvNXZjRlM5bzA5WEJzd0RZcU9OOG9PWmJacG0taXNSVGhsRHVSa3lQRThhaWpCX0dfNU95OXl1NGZKTlh3V2tnVmhIbE5MaXhMMjQwNWpRN0NjUnc2ZGRCcDlkTDBfWTBjMFR1S1NLeUlsZnhodFE?oc=5) |
 | Lina Hidalgo Will Not Run for Re-election in Texas - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPQWZRWThDei1qUmpxYmxDczExMHRhcGhDMzdkLVNUaFN0RkhLSXhLUW5JU0RfN0txZUIxTktHUUViX1RiSEc4TnVTUERfM3pwSU1Fek4yTjVNRnRVYXlkZ0lUQ05JRnVmbUhob05rWlJQRzVTckoxNnBSNnBoM1Q3VXBKWnM?oc=5) |
 | After Charlie Kirk's death, Trump team calls for dismantling leftist groups - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQbVhCN19KdU9vemVqNHJoRW1sWGdmR2xxYklJZl9PMG5wRURYZjQ4amNJdENxdGUxb2pvNUxaTEJfZG5fWUpsdmRRbWRYZVMwRm1CckJ4eVhrTl9peE95a0xpd2QwS0pWX2czZkw2RW5hRlhZblc2TkxLbEpnZnRQYV91WjJNeGExV2NMaThvUDVUOHhqOEdaYndycUJDdU5ZMWN5UlJ1R3hkeVV0ekhuT2dCS3ZkY0NYeVYtLVl0bmo2TVNiY1RJ?oc=5) |
-| What to Know About President Trump’s Second State Visit to the U.K. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNdWw3NUpmb2pRVmRWcE9rX0F4UWh1Rk5EYXdDU21lNHRyOEdRc1VocXRzY3g0dmhWRzF0ZVlXYUlBYXMwOTF2QzZ5VEk4T0NsSVFGNXpSbHZYLUVoN1hfWXFsb3VXRkJEUWYwOFMyd3hEaG11dkEtYkRPcW5JakREYUkyaVZWTmltNDVUYk5iYw?oc=5) |
+| King Charles will warn Trump about the fate of the planet. Trump probably won’t listen. - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOb2FWTVN0cmQzWlpwcWhmZ1JKTERNRTNxWVdWTlNzZF9hSmp5eURMREpSdV9iT0l4cy1DMmtfNEpYejY0Mk1FeTJnXzZycUt2a2EwX0FMZk9jeFYwSzRaN1RQY3BLOS1JaHVqRFItM09rME1XMEhZYWdhYk10cVI1eURHcFhKSjFubUdJa3lHekFGUFp3UXc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
