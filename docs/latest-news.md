@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月16日 17:41:55（北京时间）**
+🕒 更新时间：**2025年09月16日 17:48:30（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Live updates: Israel begins ground offensive in Gaza City, as UN commission says Israel is committing genocide - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNaWo2ajJrWWt2bDRiYWg5bHcwS0FhVmlKMUJnVWpaMFdUeHptZ2Q4ZVVTem40U0p0MTZtVy1IdmVJQmNiVHdsLU9JZ2NaazhMYXBBSHJNWDRCMEpSMHVKUnpaT2t4VE83TzFCZE5TckpmeklHanVOYkJGQkhHWjROWnIyYVpPUjRud3lzZXBnb3BZb0hI?oc=5) |
-| Tyler Robinson reportedly confessed and apologized in a group chat for fatally shooting Charlie Kirk: Live updates - The Independent | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNbnZ5d0VKYmVSWXdFeEN2TnVXUGFtNkVuMjVhMzlWbFp1MGdycWlzUUJ6cHhMczFtSFpGU2RRZ3FyWHlRM0s2YnhTNGhpNFI3eGo3YUJqY0RJSUVfZnlhZVFOOGFQU3dsVlBwMVROc2FRbnl3NVFNcEZ6dVpoaS1BZ1BrMlF2TUN2V1ozRnRreXc5d1N3R2cyQXE3MnJlYlVIQ1A5SWhCaEdnZVlKcGNGYXpR?oc=5) |
+| Charlie Kirk murder suspect appeared to confess to killing on Discord, company says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBFenMxYk9jTG04MFdYV3hEOHg3NzF2YkZNYjdtNjJ4RDVqSmZXYmpHNmZmYndNWmNiUU9NQk1fTnoxb3RnQU5yM0FBU2NjMF9hNkV3MDBRWnR1dXh2MU45cUtnRG1uemNwQ0ZJTlBpU2ptYVVuNXfSAXtBVV95cUxNWGdMYmZBVEl0SXFHVkJMUmFQNkJ3ZEYwczI5U1lYVmd3YlNQLTh2ZG94N3A4dXp6QXNxLWllMXpWUmM2YVVRZDhUbWxOVnR2ZUtBd3l3NnUzY3VFQTJrVHhSQjNyT3ZMNE5HaEI1a0Y5ZzhCMWE5NWNRNHc?oc=5) |
 | Trump sues The New York Times for $15 billion, alleging defamation and libel - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPbjBORFdWZXVFOFVsQS1lTzZpRWlkb2plZFdHQ3NQbjU5TDNWaHpqQWtCZndUN3BJWklGQ0lLc1dadV96SktBT0w0WGpQNWg5U2U2ZWtJWjFFbzU3RXRHSE91UENXWG81azktZnh3VFhyS2dnWnhfZE5uUUZCWVNNRm1TTG9RU3diRGliakdBU3hCdXJ3QzlzWi02ZThvbTd4MDNiaVd6VmZfd3EyZEU00gG0AUFVX3lxTE8yQlBzYy05eDFYdFZpb0JNSVhDTTA4TURGNV9Fb1piNkszQjR1NzRVYjVWSmVXbU1oMngtWnNXdTg4VzE0M1U4YlZZVUh4Z1ZQN1dfMEJXbUtLZmhJZTBrOFB4a1dKTEtld3FfaDFNQ25SU2I3bkZMeW1mRXZOenJiSGZ0YkN2UzU2VUEwTjNqMGZuZEJPWk5PX1hIZkNoYzRoRGhrcVhmWjg2dlVJb2NmU1dyMg?oc=5) |
 | U.S. kills 3 in strike on alleged drug boat from Venezuela, Trump says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPVUhxNjZKTWVoYklnOThRcHhRdm9TQ2Qyb05XWkdlc2wydm52Q01kSkZ2aUlJNk9EMDVIYzMtZzJDalJ0ZkYwZlRiUHl1TTlYRUFJY2M3UnZjcG5qaU5DcXVpaTBWcUFWaGZrdlEzQVZLa2YyaUtwT21BVzVPVWozRHFoYnFmWHlpa3N4U1Y0ajh5Zw?oc=5) |
 | Trump backs Patel amid MAGA divide over FBI director - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOLUdRU0xhQm54bUtkeVZrM01pRWZVM2syaHpvb0JkRXBJMDlBTm5DcE9QODU5UlB6eU1Rb2x1ai1Tdnc3WTAzQ2xZcjdKWklkWDhIYjZ4T3NlQ3pIV0lJOF9lS3ZxRENKdk0tZDJQVmVEblJfRzk0MEtqUGU2MEVLU00zY1ZzMVk?oc=5) |
