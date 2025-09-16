@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月16日 18:40:03（北京时间）**
+🕒 更新时间：**2025年09月16日 18:49:01（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | U.S. kills 3 in strike on alleged drug boat from Venezuela, Trump says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPVUhxNjZKTWVoYklnOThRcHhRdm9TQ2Qyb05XWkdlc2wydm52Q01kSkZ2aUlJNk9EMDVIYzMtZzJDalJ0ZkYwZlRiUHl1TTlYRUFJY2M3UnZjcG5qaU5DcXVpaTBWcUFWaGZrdlEzQVZLa2YyaUtwT21BVzVPVWozRHFoYnFmWHlpa3N4U1Y0ajh5Zw?oc=5) |
 | Patel says he doesn’t regret prematurely announcing suspect in Kirk killing was in custody - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQcHlhZFd5U2tiUzZTX3V6d3llQ0l4M1J4VGJDTXFTd3Uzdlo5NXZzVVpzb1c0d2xKMnIxbFFzLVQ0TjNKYUJheFo0b2txUU50aEotQ25oV0lCMllvQy1kV3NLSk9uSU5wS3AzMFJvWFV4QmhPNVkzbFB6ZFlJbFdMcFZvNlQxa09zU0JUdmpGRFp3STJtbTNlSHV4UFZsRy1iVUNIR2RBYlNNVE0?oc=5) |
 | After Charlie Kirk's death, Trump team calls for dismantling leftist groups - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQbVhCN19KdU9vemVqNHJoRW1sWGdmR2xxYklJZl9PMG5wRURYZjQ4amNJdENxdGUxb2pvNUxaTEJfZG5fWUpsdmRRbWRYZVMwRm1CckJ4eVhrTl9peE95a0xpd2QwS0pWX2czZkw2RW5hRlhZblc2TkxLbEpnZnRQYV91WjJNeGExV2NMaThvUDVUOHhqOEdaYndycUJDdU5ZMWN5UlJ1R3hkeVV0ekhuT2dCS3ZkY0NYeVYtLVl0bmo2TVNiY1RJ?oc=5) |
-| "Not welcome": Rubio says U.S. is deporting visa holders who celebrated Kirk's death - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOcWRoQVNndnZmbjZyR2ZtNzMwa3d3WGJSZ1gyOG5LYU5jR2NrUEdpaGY4aktHN3VHZkRTSUpqaWlQYl9mOHhvN1ZyemtLcG8wRXdKT2M2b2NTN1NmX0t5bGhUY1ptNVpOdkxGdlNNb2RQWWExbk1XUEg4Zm82d1RxM1luamd0SjA?oc=5) |
 | Lina Hidalgo Will Not Run for Re-election in Texas - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPQWZRWThDei1qUmpxYmxDczExMHRhcGhDMzdkLVNUaFN0RkhLSXhLUW5JU0RfN0txZUIxTktHUUViX1RiSEc4TnVTUERfM3pwSU1Fek4yTjVNRnRVYXlkZ0lUQ05JRnVmbUhob05rWlJQRzVTckoxNnBSNnBoM1Q3VXBKWnM?oc=5) |
-| U.S. and China Reach a TikTok Deal, Pending Xi-Trump Call on Friday - Barron's | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE9iYktQNGlvd0pfVUFmTmlaaXJQLVBmX0xRSENDa3JBeFR5YVFXSi1GY055eGprRG8xek8tM19uWjRHXzBCR05yZklsUGNoT3NpLS0zOWpham82aWFJMTVEZ25TVzExZFZoVVJIbU5wclNjMTA?oc=5) |
-| Appeals court says Lisa Cook can stay on the Federal Reserve board — for now - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNU2ZjNzliODJ5c1lyTkVfZ1M0T2FWaVJMS2tMeDVZbDYzejEwSXVCUEtkekl1cWNkQ2pEaEtxdlAtYXlIeU9rTWp2cDFvc2J3YjBxdU84VmtOeUJhVXpwMXNDbWVZQzRnSE5xS29ubkYxODJ3Ry12VFFLWTZxdGNMNXVMdw?oc=5) |
+| "Not welcome": Rubio says U.S. is deporting visa holders who celebrated Kirk's death - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOcWRoQVNndnZmbjZyR2ZtNzMwa3d3WGJSZ1gyOG5LYU5jR2NrUEdpaGY4aktHN3VHZkRTSUpqaWlQYl9mOHhvN1ZyemtLcG8wRXdKT2M2b2NTN1NmX0t5bGhUY1ptNVpOdkxGdlNNb2RQWWExbk1XUEg4Zm82d1RxM1luamd0SjA?oc=5) |
+| Trump says he would’ve lowered flags for slain Minnesota Democrat, but governor ‘didn’t ask’ - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPaXRSVVZ5YVl6bXFqcTRNSXY0aEJUQVBsOTBwZm5zOFNBNkJ2WkNLaEdjYTJfTndRenZ4SUpZUGpOajNGa1JQZk9zUzhqeWxKZTFZOGpNR0xoaUdkdzZLTl9KV1pzZW5jOElmSzFzaGhBQ0tteGhGU0lvZlBwWDJKaEQxWG1Rel84d0xIaVNKaHhick45cEdIV2RrONIBoAFBVV95cUxQazhBeWUyU0lxcnNJdWFibl9VeFBTaEg5TWhHbmxCdTF4YmlRYzRRcy1YTkF6WWhjMm1feUtBb1R4eF9Yd1NCVk12VjhFc1psWThoZDhLU2lrdkVrdko2bVZPQURodTVxRUtVWGNMX1BJYVFZN0V0RFZUVlZrYzVOUVZtbzl0WkZiVkVtWjIySFFUSFJjM19rblg2SEtzaEdf?oc=5) |
+| Oracle could play key role in TikTok deal between Trump administration and China, sources say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNRG1PLUg0T1hJeXJLWGxIWEE5Q0s1UFN6THRPWGs0RFJFaGFwemxIQ0VUYTN1cUxIY0QySldzSkVTSDliT0JCNERwSnEyLWhiTzE0MllneHo5WjJramVuMG8xdWhXdmNmcHhWUEFtam9ZYjRkc0xTNDI5WkxhVWNuNdIBhgFBVV95cUxPbGhodGFvcDItSkx5NnozWXA0aE9lbmtGSWJfWE1aYWhsSGY1Y2hHN2xMUUViVVBGMTFGUEIzRkx5cjc5a0c1TllLV3pxQnlkYUkxcHlFbVpxbHFnYy1wcTJIVUt0dVdqdUh2MXc2ZzA0ZkNkdm5GLUY4a2dlR1F2UjNocWVhZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
