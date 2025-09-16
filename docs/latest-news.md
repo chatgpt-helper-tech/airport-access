@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月17日 02:56:06（北京时间）**
+🕒 更新时间：**2025年09月17日 03:01:20（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Kash Patel, FBI director, facing questions on Charlie Kirk investigation at Congress - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1yMFVHNlN0UHkwZmhocWFhVU5hMlQ1X01GQ1d4Z2JTUkNZcUt4TFF0X3czbklGdW4xUk45dm9rOTlaUnBmaHduM21feG1DVjJCMDVGNQ?oc=5) |
-| Man arrested for allegedly faking confession to Charlie Kirk’s killing - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxORWlwdHR6NVBNYUE4TzFJUV9CWkVZNEpDWWZxelN3cDNnVE9GQ3FhT2VNRTd6SGh3SkV0Y3pQNUozWWNyLTIyZ2ktWWNITE03cFVILUs0VzhRVG10eGtHU0ZnU3NPdWpMbkp1T0NsTkoxUUdVeXlRaVViOEVubWxiMDIxeGF0Z0FFaW5xLXByYw?oc=5) |
+| Watch Live: FBI Director Kash Patel testifies at Senate hearing in aftermath of Charlie Kirk assassination - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQZTVwaDVqZUhRdElsTVdVcEdnZGNFbC1TdXcwR0plZnhPelBDN2dSS2Rjb3BKT1R3V2RGRWQ3cWNqb3NsXzMwLWNuUkx6TnNad2JNNzI0NWxBUnNnS3pxU0tmQ3ZxNnp5c3NaQVhqdW1kUjQwZEI5NTNvaEV4MUNTMVlvaUtPUVFUdnVhWTl4U19rNzFKMVdjNFBzcUpqbjNuN25aLdIBqgFBVV95cUxPVlRyVWJYNDRudUxzcEZPcl8xR29Gb3Z2M21GTzJsSGtIUmtmREh2eWhjd280WTdmVTBaR0UtX2hjS1ptVlFLd3Z1Q1h0T1dPeVBVYTBKaEpmMjFRMFhRQ25icm0zNUFTR2dvSTk0eXZpNWlYamRqQlBrSF92cEd3NEhscHU2WFBNY19jNDNVTllHQjJLSGV4LXlCdlNYNEp6MlJlaVZlemxWUQ?oc=5) |
+| Charlie Kirk shooting suspect charged with aggravated murder; prosecutor to seek death penalty - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9LaGt4V2p6ZXpvVXZSaXJ6OVI0ZjdqaDc5cWh4allrY2poZHNDak1rbVZ0T0pNNDlkTEtGbjBfdzk3ZjV5ZndFOXp0UnJWSVZTVEZ3VXpEZTRsRVlmQjJfNWIyMklCQ3RscVZodEJmSk1YZjlQN181dVBWWjHSAYIBQVVfeXFMT19FZzdGOEt5cEZQbFVQLW9oX1ZyZUlJSEdTWkFuOXhFemJ1TjBHU3dsdHFkNHQ5ajRZM2pRTVlYaVA2Nll6SjZfM3J1TTUtRlRGRHVjRnRRQkRFd3QyYlVOUFFVZ20yZWVRMXl4cXNGcVZ6OTdwMy1nc05hZUpHSjhsQQ?oc=5) |
 | New York judge tosses terrorism charges against Luigi Mangione, lets murder count stand - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNWmQwM1lnOEwzelJsOXNRQzRvdkJJS1JaY1MxR2JsX09fMWNMbmVkMEdfRVRpYU9tMDJkV1lOT1psWTlTYmFqQTVzZDItZS1Yd19XUnVtZHNWbUY1SmF0cDdiN1dEdHR4dUxHSEIwY2FYdzRxd0lxdWVNNzFJbWQ4TnhXQjdIVmhFMVRCRWtDaUNmSTF5RTNVSHJYN3ZpN1NtU19qcWZ0a19Yb0E?oc=5) |
 | Israeli military begins ground invasion of Gaza City - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQWGdoSG04NEsxTHFITlZiZDVOWE1iZlo5X0FLUE9vb2NfMkFhOWlLYm12aGpsYlZhQkRILUcwN1o4QkVjZHk3Tkp0QjJ6SmlFTFJjRDNxWFl5N3dYRzgwcFFTaFpSOHR5T19GSzRRa0VJcFVTQkNsbV9TTVd4Y1J0MHV2WWRUeFAt?oc=5) |
 | Trump sues ‘degenerate’ New York Times for $15B - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOWTF1cjFibVFWeDBmd25uYUJrc3BXMVJUUGhsR0xFNDJjeVJtQnNoS0lVZVpReThqVXhDY2loMzd5aE91VEhua25xXy1Td05VTHpSREdScXh0NWdCbFZ4eDVkWE1GaE5SdFRZWm1fenZ3cDJMamtHOHU5ZkE3SnZIekZOc2hBMTF5YnhWcnpNbjVrN1pYRVNZV1BiX0J2a1k5QXpn?oc=5) |
-| Trump heads to UK for historic 2nd state visit - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxON2p2UktsMUlIYTc1MHhGLWhKQnhLd1RFWGN2MHFENkRrX0VacWhYVXh0VTg4aEdWV1JwZHFOeUk3MnBBb3Jpd3ZYbXg0Wk1wNnpSanFaTm1XZ1JYOEJsQ09yamp0STU1cDgxVV80NDhLVWJuRmVON3JuYXFYdFpUd0hxMnhzTXVHS0Y5ZFRZN3VqQnB20gGaAUFVX3lxTE5TUlBDSEFMejRSaVZoZFNrVVZWTTNKTnFqTDVBMThVOUVlOVIzamdIOUJkd2U0TkRMZm5zVzVzZE9kb3I4MVFmTFBVMVBFSUMzcVlvN1hFNkM3dzEyZjZETXJ0ajE2U18tNXF2ZDl0eHJ1cXc5MXJsa0xLODdVTVVUdWJwd3Vua3N3MVlocTliZnBHT2FlalE3ZHc?oc=5) |
+| President Donald Trump's Air Force One due to land soon in UK for second state visit - follow live - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1NTWVmcUJLQkpwUzFjQllYQTFkOVNadHN2V19NbmhHRkYzTUFYNGlRaEpYNkstcVBsWjFKbVRyNzhQcndRQloxVGhsZlNpWjZhekh6Rg?oc=5) |
 | Republicans release 7-week spending bill as Democrats warn of a potential shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNM3NkQXB4dElXWUFiQjZyRmFkaEp2dE14QlJXa1pQZE1HeVdHLVFWZERQMTAzUVc1SDZRYUlNZnk2R0x2Q19GM1RocENXaDZVQTdiRXl5MmJ0bHBxaUtwZ3BaUFRlelJGN244a2o1b2VvdlVaczV3YXNqU2FWSkd1MTB4aHI?oc=5) |
 | Schwarzenegger decries polarization, criticizes Newsom’s gerrymandering effort - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxQbllwWDRCbGlVQkpQVGlWTGhoME5FNlRxWGdSdlZ3aTVXU2UzRTIyaDE5cE1HZDZKZDJUS28wYzVURldJWl9HNHVzU3ZGM2JfSFZOdmdMaWxyRmRZS0FkNWNtY0tqYjZ4eVp4MDQtSnJaRFdsU0t1T29BVDFsR3U5ZmVicmFrY19CS3JCMWZweF82QmhoYmNKd0tJT29LQ1FNWWtuZWVkYy1XVV90dUZjVXpaTjhLbHpYZWVZYUVMZnlrRjVfVHlRMENBUQ?oc=5) |
-| TikTok to stay in the US as Donald Trump says deal is done - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBPb0dUYVNrRkN0Y0g0UlNYOV9wTlhjem9KQjU1ZkREN0N4WmhCYmdWWVQyVWloc3A2M2VvSVU1M3JvSDRMQXpDUHJwODFzNVROSVl6a2hsQ2d0QdIBX0FVX3lxTE1NTWJwdDdFTFVTc1B1MXhaSmN6MWpBTENMNWZWam5IMjNFYV9LOU1sSVIyaTE1bUhhZHdabjJQdmNDNjlXMng1Y180QVdYdXdYTkh3ZEowYUlwaHhJUFdR?oc=5) |
-| Bondi clarifies: "Hate speech" won't be prosecuted - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5rMHc5S245eUN4aUpWSUo5Wl9mRThqYnlSLTRkOExTUHhoSnZaLXJWbFRBZmg5b010dzMzOERFZlNQREsxSy1nNFRJMHdXWTJpVXR4b0tlN1gtQmFqV2JheGRza1lCVm5GNDUtbWxvbDVCOEliRUc4SnhfQ0Mtbnc?oc=5) |
+| Beijing says TikTok’s US app will use Chinese algorithm - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBZcmVTWWE5VnVTdVptX1ZkaTNadU9kM0J4NEhCNkRmTXBfWkdKTWhoOEJ3NGIydDBpektycEU2cWtvbHh3blM5eVNmVUpDSk5YTWN6SWdXdjVIeHQ3MmlQdGl1SUgya0ZiNldxcjd4SGc?oc=5) |
+| Trump Says US Military Hit Third Drug Boat From Venezuela - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPRkF0YXE4bERwbmdJcHo5UkVKemZJOGxJQ0NhemNxQXJoWHI2RTZqNzRyd0QzTDI4QnpuSzRZTzhreUlzeXhWT0YtdkJNX1VOSDk0cDJ4eEJoei00ek1WYkUxeDdIV3BfVThHekI1Q0JGam8wNnJUSFFIcFhMOEVQQVhrSFg2NU02TVRGeER3V1JaUVQyM2pzV3E2ZkpBSWowSl9ydGlIOG1yM25j?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
