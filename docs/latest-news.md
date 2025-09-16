@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月16日 15:57:11（北京时间）**
+🕒 更新时间：**2025年09月16日 16:00:35（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Charlie Kirk murder suspect appeared to confess to killing on Discord, company says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBFenMxYk9jTG04MFdYV3hEOHg3NzF2YkZNYjdtNjJ4RDVqSmZXYmpHNmZmYndNWmNiUU9NQk1fTnoxb3RnQU5yM0FBU2NjMF9hNkV3MDBRWnR1dXh2MU45cUtnRG1uemNwQ0ZJTlBpU2ptYVVuNXfSAXtBVV95cUxNWGdMYmZBVEl0SXFHVkJMUmFQNkJ3ZEYwczI5U1lYVmd3YlNQLTh2ZG94N3A4dXp6QXNxLWllMXpWUmM2YVVRZDhUbWxOVnR2ZUtBd3l3NnUzY3VFQTJrVHhSQjNyT3ZMNE5HaEI1a0Y5ZzhCMWE5NWNRNHc?oc=5) |
 | Live updates: Israel begins ground offensive to occupy Gaza City, escalating war with Hamas - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNaWo2ajJrWWt2bDRiYWg5bHcwS0FhVmlKMUJnVWpaMFdUeHptZ2Q4ZVVTem40U0p0MTZtVy1IdmVJQmNiVHdsLU9JZ2NaazhMYXBBSHJNWDRCMEpSMHVKUnpaT2t4VE83TzFCZE5TckpmeklHanVOYkJGQkhHWjROWnIyYVpPUjRud3lzZXBnb3BZb0hI?oc=5) |
-| J.D. Vance Said Some Pretty Serious Things on Charlie Kirk’s Podcast Today - Slate | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPRGNQeXFBTllsX0gwcWNMM1VnWkhiaWJCUC1iMzVyYk03MUdXYUI0bmU2cWFJTVBjV1VfMXdZM284R2JjeFBzOUpIVjVCRDRuZGVPZXNweHpvVkYzMVctV1h4bW5Db3pBRGRFWVBna1BEVUhFcG96dFlYNVhXUFFmSFVnSi1RVXdyX2doZFpkT2djd28?oc=5) |
+| On Charlie Kirk Show, JD Vance Talks of Crackdown on Liberal Groups - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQa0ROYkl6WG55MTdSdzh3T2RlNkRiajgzSEV2Rjk5VDBHMjU3ZXpSQWdUUWtaS200VjBUQTBKam40REdBTjVxdzNhQ1VxeWtMUl90V01odDBRWklBaTBuWHJOaW9LcnR1N0N6N3FfWnVQVk42a1ZRT0tHNUhweml5ZXN6UGM?oc=5) |
 | U.S. kills 3 in strike on alleged drug boat from Venezuela, Trump says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPVUhxNjZKTWVoYklnOThRcHhRdm9TQ2Qyb05XWkdlc2wydm52Q01kSkZ2aUlJNk9EMDVIYzMtZzJDalJ0ZkYwZlRiUHl1TTlYRUFJY2M3UnZjcG5qaU5DcXVpaTBWcUFWaGZrdlEzQVZLa2YyaUtwT21BVzVPVWozRHFoYnFmWHlpa3N4U1Y0ajh5Zw?oc=5) |
 | What to Know About President Trump’s Second State Visit to the U.K. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNdWw3NUpmb2pRVmRWcE9rX0F4UWh1Rk5EYXdDU21lNHRyOEdRc1VocXRzY3g0dmhWRzF0ZVlXYUlBYXMwOTF2QzZ5VEk4T0NsSVFGNXpSbHZYLUVoN1hfWXFsb3VXRkJEUWYwOFMyd3hEaG11dkEtYkRPcW5JakREYUkyaVZWTmltNDVUYk5iYw?oc=5) |
 | "Not welcome": Rubio says U.S. is deporting visa holders who celebrated Kirk's death - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOcWRoQVNndnZmbjZyR2ZtNzMwa3d3WGJSZ1gyOG5LYU5jR2NrUEdpaGY4aktHN3VHZkRTSUpqaWlQYl9mOHhvN1ZyemtLcG8wRXdKT2M2b2NTN1NmX0t5bGhUY1ptNVpOdkxGdlNNb2RQWWExbk1XUEg4Zm82d1RxM1luamd0SjA?oc=5) |
