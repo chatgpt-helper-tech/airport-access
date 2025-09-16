@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月16日 19:08:41（北京时间）**
+🕒 更新时间：**2025年09月16日 19:16:44（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Israel begins ground offensive in Gaza City, IDF says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQQkVLY2hBdEFwY3IyM2VhQ1BCTF9xWlZkSU9ZNWVrQkJ3VVVwcmt5S2RpODJjbWdscUNfczhHWWxGaW43dWdmQk9RYnFScm9NZUNrbmZJY1FuWGMtbE1VampiV001RXpudmp3Q2hyTDdjNS1aZ3JDMnV2aFZGbS1BZFZsbVRoa3kwVnJtR21mZ3k0Z1JYZnNCSW1qSFZmeGRmcFHSAacBQVVfeXFMUEFlV1ZMdXhFaHExTHRFUjVtUEVPR3FXcXczandlaDdKNHZCSEhqcXc0bEhfNW1lckxMTEhrNWFkMXNranJhWjdOMDEtb3d2OWxHbDFpby01bmEzY05rZlBmc0pEYTRrX1h4U3d5WWctYnprbVBaR1pDUmpSWXdicVhKUWxCM2FfdjRvZ1FLYWNVaWZMNmlucXpxeFlVZ2hSNUZob2I0OUU?oc=5) |
 | Charlie Kirk murder suspect appeared to confess to killing on Discord, company says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBFenMxYk9jTG04MFdYV3hEOHg3NzF2YkZNYjdtNjJ4RDVqSmZXYmpHNmZmYndNWmNiUU9NQk1fTnoxb3RnQU5yM0FBU2NjMF9hNkV3MDBRWnR1dXh2MU45cUtnRG1uemNwQ0ZJTlBpU2ptYVVuNXfSAXtBVV95cUxNWGdMYmZBVEl0SXFHVkJMUmFQNkJ3ZEYwczI5U1lYVmd3YlNQLTh2ZG94N3A4dXp6QXNxLWllMXpWUmM2YVVRZDhUbWxOVnR2ZUtBd3l3NnUzY3VFQTJrVHhSQjNyT3ZMNE5HaEI1a0Y5ZzhCMWE5NWNRNHc?oc=5) |
+| Israel begins ground offensive in Gaza City, IDF says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQQkVLY2hBdEFwY3IyM2VhQ1BCTF9xWlZkSU9ZNWVrQkJ3VVVwcmt5S2RpODJjbWdscUNfczhHWWxGaW43dWdmQk9RYnFScm9NZUNrbmZJY1FuWGMtbE1VampiV001RXpudmp3Q2hyTDdjNS1aZ3JDMnV2aFZGbS1BZFZsbVRoa3kwVnJtR21mZ3k0Z1JYZnNCSW1qSFZmeGRmcFHSAacBQVVfeXFMUEFlV1ZMdXhFaHExTHRFUjVtUEVPR3FXcXczandlaDdKNHZCSEhqcXc0bEhfNW1lckxMTEhrNWFkMXNranJhWjdOMDEtb3d2OWxHbDFpby01bmEzY05rZlBmc0pEYTRrX1h4U3d5WWctYnprbVBaR1pDUmpSWXdicVhKUWxCM2FfdjRvZ1FLYWNVaWZMNmlucXpxeFlVZ2hSNUZob2I0OUU?oc=5) |
 | Trump sues ‘degenerate’ New York Times for $15B - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOWTF1cjFibVFWeDBmd25uYUJrc3BXMVJUUGhsR0xFNDJjeVJtQnNoS0lVZVpReThqVXhDY2loMzd5aE91VEhua25xXy1Td05VTHpSREdScXh0NWdCbFZ4eDVkWE1GaE5SdFRZWm1fenZ3cDJMamtHOHU5ZkE3SnZIekZOc2hBMTF5YnhWcnpNbjVrN1pYRVNZV1BiX0J2a1k5QXpn?oc=5) |
 | Trump backs Patel amid MAGA divide over FBI director - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOLUdRU0xhQm54bUtkeVZrM01pRWZVM2syaHpvb0JkRXBJMDlBTm5DcE9QODU5UlB6eU1Rb2x1ai1Tdnc3WTAzQ2xZcjdKWklkWDhIYjZ4T3NlQ3pIV0lJOF9lS3ZxRENKdk0tZDJQVmVEblJfRzk0MEtqUGU2MEVLU00zY1ZzMVk?oc=5) |
 | U.S. kills 3 in strike on alleged drug boat from Venezuela, Trump says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPVUhxNjZKTWVoYklnOThRcHhRdm9TQ2Qyb05XWkdlc2wydm52Q01kSkZ2aUlJNk9EMDVIYzMtZzJDalJ0ZkYwZlRiUHl1TTlYRUFJY2M3UnZjcG5qaU5DcXVpaTBWcUFWaGZrdlEzQVZLa2YyaUtwT21BVzVPVWozRHFoYnFmWHlpa3N4U1Y0ajh5Zw?oc=5) |
