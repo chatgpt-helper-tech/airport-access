@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月16日 23:41:01（北京时间）**
+🕒 更新时间：**2025年09月16日 23:48:46（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| 'The bombing has been insane': Gaza City Palestinians scramble to flee Israeli assault | [阅读全文](https://www.bbc.com/news/articles/cly0qnnx5w5o?at_medium=RSS&at_campaign=rss) |
+| 'The bombing has been insane': Palestinians scramble to flee Israeli assault on Gaza City | [阅读全文](https://www.bbc.com/news/articles/cly0qnnx5w5o?at_medium=RSS&at_campaign=rss) |
 | Bowen: UN commission report on genocide is blunt indictment of Israel's actions in Gaza | [阅读全文](https://www.bbc.com/news/articles/c0m4rxjppl8o?at_medium=RSS&at_campaign=rss) |
 | Starmer orders investigation into MI5 after BBC exposed false evidence in spy case | [阅读全文](https://www.bbc.com/news/articles/cn834zwe83lo?at_medium=RSS&at_campaign=rss) |
 | Teacher's fears over Southport killer were met with 'red tape' | [阅读全文](https://www.bbc.com/news/articles/cvgvd15x8d7o?at_medium=RSS&at_campaign=rss) |
@@ -31,7 +31,7 @@
 | Georgia Supreme Court declines to hear Fani Willis’ appeal of her removal from Trump election case - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxORkRZUjVkR0drQlk5N1ptSHZQMC1DNXhNMjNfc3ZTd0hCbjVfckFUWEZFRWtibWkzWnp0S0JQdVdrZGxoclcxcFcyQmhsT2lTeUl4M2NLcWtMcHBzNkdzVVgwV1hoamdzN0UxUmZWc0VET083cXJERFJzX3NFLThnSktsYnIyYjJnVnp2X2tXYw?oc=5) |
 | Schwarzenegger decries polarization, criticizes Newsom’s gerrymandering effort - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxQbllwWDRCbGlVQkpQVGlWTGhoME5FNlRxWGdSdlZ3aTVXU2UzRTIyaDE5cE1HZDZKZDJUS28wYzVURldJWl9HNHVzU3ZGM2JfSFZOdmdMaWxyRmRZS0FkNWNtY0tqYjZ4eVp4MDQtSnJaRFdsU0t1T29BVDFsR3U5ZmVicmFrY19CS3JCMWZweF82QmhoYmNKd0tJT29LQ1FNWWtuZWVkYy1XVV90dUZjVXpaTjhLbHpYZWVZYUVMZnlrRjVfVHlRMENBUQ?oc=5) |
 | What's different about the Charlie Kirk firings - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPWkcxS3k4T3pMNmlZSVVZeUdldXZyVXhZN013TTFyTzdqMkRhSGdMX29JVHZCNEVoVnhKLWNWM0lNWi1EYi1wYVY4OHBkTWNPOXZMd1RHMHlvajZXa0FpakgxVTAtRVE5bC1rblBzNFFic0t4Y09RdDB2bW8xR3BMYm1MdUlJdjQ?oc=5) |
-| JD Vance vows to carry on Kirk's legacy. And, the Fed meets to decide interest rates. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxQcnFoTjdrbnJSTjVvVGZaeWdzSUgtNXhzaGs4UTljek5STEV0X1p1RnYyS0pTUzc0eDlYUDJOWGplYXJHVVk2VlhWcnZFcnhGQVd5dF9IZGlIZkdDNlgteVhwdEQxYUstZGF0Nk03VmlBaWNSV2M5Zm84WEtfTVlXZFJqOHRxMFVwZkJQc1lsTDljN19rX0xWWHJfV3RNTm1aZE5QZkE0ckt5b05QQ25QVVZVRU1sMjB0eTJhODM0V0tUNUFJM1Itc2xJS0ZNLXdY?oc=5) |
+| JD Vance backs mass ‘doxing’ campaign to find and harass Charlie Kirk critics - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQT1BPT0lYLThFNkdmQ0VXZ3JyMTg0OHY0bTZpUGZDNDZLalJuQktmQmxpb0NXVHI1d0JRY0ZHck9iRVhvcElKaFhRLUQ5WUppeEI2UVJsNi1nVDFSQWo3VkFaZ3pZQzV5N0hNOEZac2t6VmRFcm1QTFlsMUpZLUFvbzJ3ZENwVW5Ic3VPNw?oc=5) |
 | Trump heads to U.K. for carefully choreographed state visit - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPWklfQjBGaW1jeTF0ejZlNTZMLWpZWFZmQ2ZweEtyMFRPYW1yRkdQRnJIaGV0UWI3QWpJRWRRVHVaellGN2Q3RVhmU1FzMzNCMHI4UWg2blRJTjFtOVlwR0tnakdtRk9qWC1XcTZHTXRKYndqUHo5UjNuM3VsdWFjUWs3NEdjNkZ0a2loRkVn?oc=5) |
 
 ---
