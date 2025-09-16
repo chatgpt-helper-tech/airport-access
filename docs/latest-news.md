@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月16日 11:32:38（北京时间）**
+🕒 更新时间：**2025年09月16日 11:41:03（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | Washington Post columnist says she was fired over posts after Charlie Kirk’s killing - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQLWZwX3d3VXM5ZFVvY0ZXRTRINjlFYmZNQVNqbkFwUng5b2ZkZDVpUkVtdHNtNEdaUnVKRDAxZHpDNmVSWnZtdTA1UHFpUDJVX0UzNlcxeHlZUXRrVFRXWkZqa0hIcGNMTGp3LUI1V2xxVi02SkFvVk8wbGJ6LXRZbzN1MG9lTTNDcDljR096UENpX1dXdDZ0cQ?oc=5) |
 | Iowa lawmakers call for termination of ISU employees for online comments on Charlie Kirk - Iowa Capital Dispatch | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxQVE1WVEp5S2ExOU9EeURiZW5TR1NTblNNMFM0UkZFQUctZ2RsYlByc0Z5aHhWS2ZLb29ER3Zmd2s4VE9YaktjeGRYZU5QOF8zdXJNYTZabUEzRDdOT2Vjc1laWGYzTTM0Ry1lbGk3eWRsSVdQSTh1V1JNRDRqbkRsNjNfMzRieFcyM0hGc1VnUE1qa2tyWWpKSUhrVURRMEQtX0Q5S295ekt2OVR5MVVMOGVyMmNIMVFuMWQtTE1rMWxQSUwtZi0yQ05wMWI?oc=5) |
 | Appeals Court Says Lisa Cook Can Remain on Fed Board - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPZy0tYVM0V01za1ROc2pmMWd3Y1FJVG14clBBZFJmRTQxdDRwX2V3REEyd3ZNb3JLTTFjdUpkLXpJYWdkc1JIWVFOOVZFWXUxdXFpQVVHVF9Gc2tBZzBVaUVvMGt5MkNrR2tjWlQ2Vi00ZE84MlhEaTRzQnoxcHl3X0pfVDRHWm9FVFVnTXBpXzhDdw?oc=5) |
-| Suspected gunman Robinson wrote note threatening Kirk, tied to scene by DNA, FBI director says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxNejd2R0k3TGlDYS1aNFludy12dGZCc3R3MEtIZ1c0RC0xQVVEUzN3SGVoMUJzSERGbThWUDBFSzkwN2otd1JMMXpTemt2X0hhMnpCbzA2T2JENGljRkE5REdqWVFfeVdSWS0zU0dZdVVpdmJhNnBYOGppNHF4ZThmNjNGZW9abTRETXQ0bVpoRjBGQ2Z3N0h0YmhhU04wVldCZGhQMm80b25uUnpTUXU3bHJzcURVemhTVG1IZg?oc=5) |
+| Charlie Kirk killing: Suspect had 'obsession' with the conservative influencer, FBI says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQZUJQcWNNRHNHVDAyVjJUc3ZQeVQxa2NXbHE0TTVVM1p3UERFREI1S25zUGpsM1RWZEtMdUFLbHA1WGZSRjBMbkUxOWZpcW1YZ0pUT1NCSmVpRHVFUGVxYmhaak1ZUm93ZVFzSHRpYUlQVWF4bFVWR2VlclNzT0pXMGxGYlYxNzR1TVBzNDhBMnZheVh1UVFLZVBqSjBEZWpJQklj0gGoAUFVX3lxTE53SDF0bkROVjVXbzZXXzFOckplVXEwSWJGdnRQN2stdVBPYWg1LVR6RXV4YzZuajI3aHlTVkVEazFIMHMyYzhNQld0WW45TzJCb29VM0ZZeUdfRXFuWVZoOEFvVXdmRWhuTThXU09tZUVseV8yT2xXYTRzWmZvTUJaM01EcUFhcFZBYnBZMlNNQmFSM3I5bFRoM2taU1dXbDF0YjFYWUphXw?oc=5) |
 | Trump backs Patel amid MAGA divide over FBI director - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOLUdRU0xhQm54bUtkeVZrM01pRWZVM2syaHpvb0JkRXBJMDlBTm5DcE9QODU5UlB6eU1Rb2x1ai1Tdnc3WTAzQ2xZcjdKWklkWDhIYjZ4T3NlQ3pIV0lJOF9lS3ZxRENKdk0tZDJQVmVEblJfRzk0MEtqUGU2MEVLU00zY1ZzMVk?oc=5) |
 | Trump signs memo sending federal law enforcement to join Tennessee National Guard in Memphis - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOOU1kV0pzXzhWMUp6SWZTRzMybkN6TUo2RV84TDJoT1paRHZZRFpnZWVUR0szNGZfdEhkWVFMeVZhU210ck9jX2MzTWpkOGxnQ3AtU2UxVmRpcGhHUW5VS1lkMkxOS0tYOXotZTZiWnFxTWNSY2tvZEt1YUVjcFlhZEpR0gGHAUFVX3lxTE9pUy1SQ3lXZ1JNMERZVjQ2WVRZemNRNDA3aEF4MnJ0QnBhYzJaanpkbVR3ajFDM25fQWIwajVGVEFIXzI2WUpzam9hbjB4NXJOTDlibmJnVFJGemxneWJfWFowYl8xX3l5QTk1WUc4RnJRVnpmVjlsS1EzSGtnZ1YyS0thR3pNVQ?oc=5) |
 
