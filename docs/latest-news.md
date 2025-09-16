@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月16日 14:24:19（北京时间）**
+🕒 更新时间：**2025年09月16日 14:32:23（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | JD Vance says national unity is impossible with those celebrating Charlie Kirk’s killing - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQeHo5c2pqaUt5R1BWLURVeEZMaldBUmRscE5tV1loTnFjdi1hWl9pSDAzaHRLR0tsZ3ZOVFBXZ0dVRnNaTGZQWGpQV01Rd19fZklDS1JHWW9mRl9YTlplN0staXRJSlY5dV9DQkxBb1czM2xLM2NBSkdRS0Y5UGZ3Rzlxc3ByelVmWHFzMEFJSGtfaUpPSk41M19UbVZaanBuMmY4b3BWTHc0MWI2dmpQYkxUb01NdVdmU2phY1FWX2R5dFnSAcgBQVVfeXFMUGtxSlhnYlZhalVzemh0d1J6LWZ3UGs0RnpCQnBTVHhjZkx5b0N0Zk9MRVdHNGpjWWVMSHRPc29XVGR6S2xoVW5jTWdsaVAwa1NWUmFaTDNGcnlJMTFqYm5mRkdwX3JkM1YxQlctOHZuRnRBbkxsSEp3QzcwN3BGYWtKaHpjQ01zLUptUE9tWWU1c25lV2FBdXhubU9MczJVdW5BRE5sMGtBaDhZbHo5ajdXYUM2Z0hmWnR5NzYxQTc0WkRXV0VySGs?oc=5) |
 | Appeals court rejects Trump's bid to unseat Federal Reserve governor Lisa Cook ahead of rate vote - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQQy1iVm9yRnhMTWRGSE1MX2lGNGV0bWFaajlWMmdFNW9MaWtIVnlDVGM0UXJGQVJ3eFoxRzdURnZwOU1PdWRTZVhLa1dhWXFCSl9Zb2pmVDc0cTRjUXhvZVhvVlF2eUplWHZEODZJTkVWSjNvRDNMNV9Tb2FnNUpuVk05REEzQ2lKOWRyTXdoaw?oc=5) |
 | Suspect in Charlie Kirk’s murder linked to scene by DNA, FBI chief says - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQbXpUOVNDTkVGSTkyWjhkUTNmWk4weFJ1RmcxWU5abGpCNHpKNjcyZm5ydHlhZENQTTAzblRTcTJxWnZ4em5UM2c1VWZnd1pwNDdMTV8wQ2lMa2d2eHQxd09aY1hodzZLenMtV0JYUjBUTlhvZXNCRjZWQ3lvbjZOVjcxdzM3Xy1DX0txWDlXeWJ0eFlWQWQ1U2hKOUpsS1hyM3VSRXpsTDlhVDBtUGJZ0gG0AUFVX3lxTE1ST3R5ZkJWMWlsN0d5M1hteWJCWmZaN1picHQ0NWNheERZNElReG5LMEFVNzRYUS0tUFI0MjhfSVNZSU5jTjdManhvcXFPdndoQ2QzZzZhRnVybVRNY00zbFE4Ny1vUllqbFJSY3YwbndQWnNKM2xsREJLRWlyM2s1cDBaVTVwTlRFQmZjWmtMa05FRXBCS2ZSSDNkeWFXTTYybVB3dVl2WTNpQThrN3VkbnFrNQ?oc=5) |
-| Trump sending National Guard to Memphis, says Chicago's "probably next" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOV0VlOU1CZEVvVUZhYmpsOEtZUGN4WTJfckdiaEdKT3U4c1dtanVQMVM4S2wxV1N5RmYxbG1EZ0ZuMURWSmtpTUxOWUJvN3l4YWI5YW56TmlfNW9yaHNJaXNycFZMdG81dGp6Qm00ZmhOWWkzaUlWSEhKN1dwWXBHM2h3VEg?oc=5) |
-| Patel says he doesn't regret social media post about Charlie Kirk case that turned out to be wrong - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOVFBWdzU3N3J4UXgtbngyT3pnSE8yOTFTT3FWMGNucUE4dHJKZzl3TC0zVHJUbmhWNHpsLTlPODdPVV9Ldnl6bWNrd1I2SF9fVzg1YUppQnJCazdTWmNLbFdIc2FDTkJCSld6M0otUDg0QUtpU3JmTmVvVVZkU0VLMGxMQkFUQk53QXVyNzZZZ3QtZEc4TVAyVDlpcWp4amRuVm9pRjF2c9IBrAFBVV95cUxQT3ZhUHVvQUx6aVNLOFFibTVReXlyMDFGZ096bU9NRjNPV0pORHN0ZnZKM21sY3BKWnhjVnJJaVB5a1QzdGJpN2FZMjZPWFlNUnJZekx2dTdhUXlPU2s1YXNjdFdRYlBMTklMd2dUMHVUYkJHSGh2T2tlOVJlSnpvLV9wcnJBVkxmcFc2eG9VbmhkVy1FNzh3eDhwUUQ5SldqNkpUSDlUNXpBcF90?oc=5) |
+| "Not welcome": Rubio says U.S. is deporting visa holders who celebrated Kirk's death - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOcWRoQVNndnZmbjZyR2ZtNzMwa3d3WGJSZ1gyOG5LYU5jR2NrUEdpaGY4aktHN3VHZkRTSUpqaWlQYl9mOHhvN1ZyemtLcG8wRXdKT2M2b2NTN1NmX0t5bGhUY1ptNVpOdkxGdlNNb2RQWWExbk1XUEg4Zm82d1RxM1luamd0SjA?oc=5) |
+| Trump signs memo sending federal law enforcement to join Tennessee National Guard in Memphis - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOOU1kV0pzXzhWMUp6SWZTRzMybkN6TUo2RV84TDJoT1paRHZZRFpnZWVUR0szNGZfdEhkWVFMeVZhU210ck9jX2MzTWpkOGxnQ3AtU2UxVmRpcGhHUW5VS1lkMkxOS0tYOXotZTZiWnFxTWNSY2tvZEt1YUVjcFlhZEpR0gGHAUFVX3lxTE9pUy1SQ3lXZ1JNMERZVjQ2WVRZemNRNDA3aEF4MnJ0QnBhYzJaanpkbVR3ajFDM25fQWIwajVGVEFIXzI2WUpzam9hbjB4NXJOTDlibmJnVFJGemxneWJfWFowYl8xX3l5QTk1WUc4RnJRVnpmVjlsS1EzSGtnZ1YyS0thR3pNVQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
