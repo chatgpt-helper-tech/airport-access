@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月17日 02:49:19（北京时间）**
+🕒 更新时间：**2025年09月17日 02:56:06（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | 'Completely different, yet genuinely get on' - watch BBC correspondents on Starmer and Trump | [阅读全文](https://www.bbc.com/news/videos/c9dxq447dwvo?at_medium=RSS&at_campaign=rss) |
 | Eritrean man wins block on removal to France under 'one in, one out' deal | [阅读全文](https://www.bbc.com/news/articles/c1dqe2443l1o?at_medium=RSS&at_campaign=rss) |
 | Acting legend Robert Redford dies aged 89 | [阅读全文](https://www.bbc.com/news/articles/c1dqe9ey0kgo?at_medium=RSS&at_campaign=rss) |
-| UK hopes for 0% tariff on steel exports to US dashed | [阅读全文](https://www.bbc.com/news/articles/cj4y2gge7p1o?at_medium=RSS&at_campaign=rss) |
 | 'The bombing has been insane': Palestinians scramble to flee Israeli assault on Gaza City | [阅读全文](https://www.bbc.com/news/articles/cly0qnnx5w5o?at_medium=RSS&at_campaign=rss) |
-| Bowen: UN commission report on genocide is blunt indictment of Israel's actions in Gaza | [阅读全文](https://www.bbc.com/news/articles/c0m4rxjppl8o?at_medium=RSS&at_campaign=rss) |
+| UK hopes for 0% tariff on steel exports to US dashed | [阅读全文](https://www.bbc.com/news/articles/cj4y2gge7p1o?at_medium=RSS&at_campaign=rss) |
 | Teacher's fears over Southport killer were met with 'red tape' | [阅读全文](https://www.bbc.com/news/articles/cvgvd15x8d7o?at_medium=RSS&at_campaign=rss) |
 | Starmer orders investigation into MI5 after BBC exposed false evidence in spy case | [阅读全文](https://www.bbc.com/news/articles/cn834zwe83lo?at_medium=RSS&at_campaign=rss) |
 | King at Duchess of Kent's funeral but ill Queen did not attend | [阅读全文](https://www.bbc.com/news/articles/cpq5eynnn8ro?at_medium=RSS&at_campaign=rss) |
 | Judge dismisses terrorism charges against Luigi Mangione | [阅读全文](https://www.bbc.com/news/articles/cj4y2p8qq5qo?at_medium=RSS&at_campaign=rss) |
+| This visit is mired with potential pitfalls despite careful planning | [阅读全文](https://www.bbc.com/news/articles/c4gw25w9841o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
