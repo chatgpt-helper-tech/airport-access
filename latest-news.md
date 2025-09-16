@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月16日 18:09:22（北京时间）**
+🕒 更新时间：**2025年09月16日 18:16:41（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Trump backs Patel amid MAGA divide over FBI director - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOLUdRU0xhQm54bUtkeVZrM01pRWZVM2syaHpvb0JkRXBJMDlBTm5DcE9QODU5UlB6eU1Rb2x1ai1Tdnc3WTAzQ2xZcjdKWklkWDhIYjZ4T3NlQ3pIV0lJOF9lS3ZxRENKdk0tZDJQVmVEblJfRzk0MEtqUGU2MEVLU00zY1ZzMVk?oc=5) |
 | Oracle could play key role in TikTok deal between Trump administration and China, sources say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNRG1PLUg0T1hJeXJLWGxIWEE5Q0s1UFN6THRPWGs0RFJFaGFwemxIQ0VUYTN1cUxIY0QySldzSkVTSDliT0JCNERwSnEyLWhiTzE0MllneHo5WjJramVuMG8xdWhXdmNmcHhWUEFtam9ZYjRkc0xTNDI5WkxhVWNuNdIBhgFBVV95cUxPbGhodGFvcDItSkx5NnozWXA0aE9lbmtGSWJfWE1aYWhsSGY1Y2hHN2xMUUViVVBGMTFGUEIzRkx5cjc5a0c1TllLV3pxQnlkYUkxcHlFbVpxbHFnYy1wcTJIVUt0dVdqdUh2MXc2ZzA0ZkNkdm5GLUY4a2dlR1F2UjNocWVhZw?oc=5) |
 | Appeals court allows Federal Reserve governor Lisa Cook to keep her job - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOT3JBcVVLZHpNaDZHNFowenNBRTFnMThWUWd2bjJVamRFTHRPd2RzaHlhN0xlLTRXU294MHNLTDkyOW5MZ3NtYTBudThFdHNGcmplUGhfcVZUYl9fckZIQkZFbnRKakdPV2kwUGFONDZRRXZNWGxPaWhWdlQyUnZjWHFZTk9VdzVCdm1fUWhLT3ExNkJXc2wyRmV0WFd2TXc?oc=5) |
-| Lina Hidalgo Will Not Run for Re-election in Texas - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPQWZRWThDei1qUmpxYmxDczExMHRhcGhDMzdkLVNUaFN0RkhLSXhLUW5JU0RfN0txZUIxTktHUUViX1RiSEc4TnVTUERfM3pwSU1Fek4yTjVNRnRVYXlkZ0lUQ05JRnVmbUhob05rWlJQRzVTckoxNnBSNnBoM1Q3VXBKWnM?oc=5) |
-| King Charles will warn Trump about the fate of the planet. Trump probably won’t listen. - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOb2FWTVN0cmQzWlpwcWhmZ1JKTERNRTNxWVdWTlNzZF9hSmp5eURMREpSdV9iT0l4cy1DMmtfNEpYejY0Mk1FeTJnXzZycUt2a2EwX0FMZk9jeFYwSzRaN1RQY3BLOS1JaHVqRFItM09rME1XMEhZYWdhYk10cVI1eURHcFhKSjFubUdJa3lHekFGUFp3UXc?oc=5) |
+| What to Know About President Trump’s Second State Visit to the U.K. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNdWw3NUpmb2pRVmRWcE9rX0F4UWh1Rk5EYXdDU21lNHRyOEdRc1VocXRzY3g0dmhWRzF0ZVlXYUlBYXMwOTF2QzZ5VEk4T0NsSVFGNXpSbHZYLUVoN1hfWXFsb3VXRkJEUWYwOFMyd3hEaG11dkEtYkRPcW5JakREYUkyaVZWTmltNDVUYk5iYw?oc=5) |
+| Trump signs memo sending federal law enforcement to join Tennessee National Guard in Memphis - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOOU1kV0pzXzhWMUp6SWZTRzMybkN6TUo2RV84TDJoT1paRHZZRFpnZWVUR0szNGZfdEhkWVFMeVZhU210ck9jX2MzTWpkOGxnQ3AtU2UxVmRpcGhHUW5VS1lkMkxOS0tYOXotZTZiWnFxTWNSY2tvZEt1YUVjcFlhZEpR0gGHAUFVX3lxTE9pUy1SQ3lXZ1JNMERZVjQ2WVRZemNRNDA3aEF4MnJ0QnBhYzJaanpkbVR3ajFDM25fQWIwajVGVEFIXzI2WUpzam9hbjB4NXJOTDlibmJnVFJGemxneWJfWFowYl8xX3l5QTk1WUc4RnJRVnpmVjlsS1EzSGtnZ1YyS0thR3pNVQ?oc=5) |
 | UN inquiry finds top Israeli officials incited genocide in Gaza - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQQml0czBNLUUzQ3pxY0pkTzZFQUExNnBUNGlmRGhoWC0xbDJoYldqY3pXZUdYMHM4TVk3SVJHNGZnMXM2cTFJU25UeFRrOTA5RVZjcU1YMVJFM1lmbS1wS1c1NEtkYlhxRm5WWmdqUGFHajdMSkZGWXBHN0U0Rmw0eW1OZEoyNzZsVFhQSDVoeFlGNlpCUzNpVlFOYkljODIxdzc5Q200LUJLaTRmSWlabDBLWmc?oc=5) |
 
 ---
