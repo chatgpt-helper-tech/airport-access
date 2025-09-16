@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月17日 00:17:20（北京时间）**
+🕒 更新时间：**2025年09月17日 00:25:56（北京时间）**
 
 ---
 
@@ -27,8 +27,8 @@
 | Judge dismisses two top charges against Luigi Mangione in UnitedHealthcare CEO shooting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPcW4xZjZEeHpGMGJlYVgxeHFGNmJOSXJRT2lfTmxsc0Nqc0lRQkhFZHFKV0NfUjRUYjBEUkxUa3h0WWM3VzdFNlp2allvTDVPYzE4b0tyUTlvWUQyNVZ0b0J5blFYRHU4S3R3ZDhzLTFVcmNPRU8tSm5fUGlyRVFhWlJ5Y09uR2Ntc0V2dk1jODJ3UQ?oc=5) |
 | Israel launches ground offensive to occupy Gaza City - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPNHBLcm1aT2xqWjh0Yi1Tay1GbGg2WU05bHhoS0VUU0pvYnB4elB4N01pUFNONUdwZHZ2NHJJQng4Tm5EWVFkVExOeXpacEppZXdTRTAwM2Q4RU1lVjl4X2R3YmNiYnJwa256UThlcW9WaVBiU1pkdHFQWGUzZ1c5RmR5QQ?oc=5) |
 | Charlie Kirk shooting suspect appeared to confess on Discord, sources tell CBS - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBuQ0M5ZkRCaUdwTmZvSk5qeFR3Sndkby1hYm5EaFR5dVIxMDI4ZEo2OTQ1Mm9lMWNkcE8yRTc2VUx5Ql9qM2dZTW1uWEpoY1pCOEhrV2thRmp0QdIBX0FVX3lxTFBDbkNxNVpOSFhtaXp5YjAycnFObGxvM0JHZ09qV0lZRmFLMzZVaUZMNUg5Y0xwNTdLMmJHdjZtM0xKcnRWTUEwbXB1am5UMXd5V2JKQ3FBUG02S1hnUFI0?oc=5) |
-| Trump Sues The New York Times For Articles Questioning His Success - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNVk1XUHJJQ3RjcjB2WVhSdlZFN1dGT3hfeHlmdTFwNUlUVzUyb0djVXRfSkowNzQtQklld0pfVlNBTWstMkN1VnZuUHFjWEdVTzNSSEYzcUNIVUgzTGl3a3lCMzFTUW5MNU5VUWlXNTVvaDBFUlEzZXM1ODd1QVk3dmcybE9udXN2T3d3?oc=5) |
 | Georgia Supreme Court declines to hear Fani Willis’ appeal of her removal from Trump election case - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxORkRZUjVkR0drQlk5N1ptSHZQMC1DNXhNMjNfc3ZTd0hCbjVfckFUWEZFRWtibWkzWnp0S0JQdVdrZGxoclcxcFcyQmhsT2lTeUl4M2NLcWtMcHBzNkdzVVgwV1hoamdzN0UxUmZWc0VET083cXJERFJzX3NFLThnSktsYnIyYjJnVnp2X2tXYw?oc=5) |
+| Gaza: Top independent rights probe alleges Israel committed genocide - UN News | [阅读全文](https://news.google.com/rss/articles/CBMiV0FVX3lxTE5vT0ZVbnNOOVJTcXpzN2ItT254eWc5aVQ4YWtCQVVnN1k4MnVIUE9qMnFrUU1xLVIyak9vYnFfdkp3VDJYZnZCLVdWSDY3VWJkaF9CY0YxMA?oc=5) |
 | Schwarzenegger decries polarization, criticizes Newsom’s gerrymandering effort - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxQbllwWDRCbGlVQkpQVGlWTGhoME5FNlRxWGdSdlZ3aTVXU2UzRTIyaDE5cE1HZDZKZDJUS28wYzVURldJWl9HNHVzU3ZGM2JfSFZOdmdMaWxyRmRZS0FkNWNtY0tqYjZ4eVp4MDQtSnJaRFdsU0t1T29BVDFsR3U5ZmVicmFrY19CS3JCMWZweF82QmhoYmNKd0tJT29LQ1FNWWtuZWVkYy1XVV90dUZjVXpaTjhLbHpYZWVZYUVMZnlrRjVfVHlRMENBUQ?oc=5) |
 | What's different about the Charlie Kirk firings - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPWkcxS3k4T3pMNmlZSVVZeUdldXZyVXhZN013TTFyTzdqMkRhSGdMX29JVHZCNEVoVnhKLWNWM0lNWi1EYi1wYVY4OHBkTWNPOXZMd1RHMHlvajZXa0FpakgxVTAtRVE5bC1rblBzNFFic0t4Y09RdDB2bW8xR3BMYm1MdUlJdjQ?oc=5) |
 | Trump heads to U.K. for carefully choreographed state visit - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPWklfQjBGaW1jeTF0ejZlNTZMLWpZWFZmQ2ZweEtyMFRPYW1yRkdQRnJIaGV0UWI3QWpJRWRRVHVaellGN2Q3RVhmU1FzMzNCMHI4UWg2blRJTjFtOVlwR0tnakdtRk9qWC1XcTZHTXRKYndqUHo5UjNuM3VsdWFjUWs3NEdjNkZ0a2loRkVn?oc=5) |
