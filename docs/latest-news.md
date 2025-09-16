@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月16日 13:48:49（北京时间）**
+🕒 更新时间：**2025年09月16日 13:56:16（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Hillsborough Law will include duty of candour | [阅读全文](https://www.bbc.com/news/articles/czrpvrrrmj2o?at_medium=RSS&at_campaign=rss) |
 | Beaten and held in Russia for three years - but never charged with a crime | [阅读全文](https://www.bbc.com/news/articles/cm28674vnp6o?at_medium=RSS&at_campaign=rss) |
 | Thousands of opioid deaths missed off official figures | [阅读全文](https://www.bbc.com/news/articles/cg7dzmyjrjzo?at_medium=RSS&at_campaign=rss) |
-| Teenager arrested after 15-year-old dies in Manchester stabbing | [阅读全文](https://www.bbc.com/news/articles/ce3y9v8e7eqo?at_medium=RSS&at_campaign=rss) |
+| Report those who celebrate Charlie Kirk death to employers, Vance says | [阅读全文](https://www.bbc.com/news/articles/cn0r5y33pj5o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -27,7 +27,7 @@
 | Vance, White House promise to ‘go after’ left-leaning organizations - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNM3hGa0FPUmNzc2VHUV9hSGtNTXRDbnFrb2xxT0NoQ0o2TC1QWFk2eGREQ19fcThxM1dOUWp1cFpzS3pPN2NxUFhtUklvai13TElOTUJ4WXR4RTZfRE81djdLVFFJV2xoLUxMNHhVR0J5NWVCOFVHRDR2X1pfUVRXVExMMF9UcG5RZ09TLVBwX0plRFBBZGhtWGJhSTJOT0s5c2NDbkxPS2JvRWlLR051WlBkd1Q?oc=5) |
 | TikTok will retain "Chinese characteristics" after sale, Bessent says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE5xM2JCTGlRcEJkSnhvalhybkdPU2I0RVcxTWQwbF9CV2VOaVJ0aGxyYkZ2bk5SUkxhWHFMTVZGbngydUEzMkhtNjBjZXM4MUVMUnRCN1E1bktVUzE5MGdQTFNieVcwV084RTV2NW05ZnlLTFJkZWc?oc=5) |
 | Vance says 'left-wing extremism' helped lead to Charlie Kirk's killing - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNTHMtZUVmc25TdWtYaFZwaTk4UmM4NTVueXZzN3lWMFJ0VUVydFpFWDdoeDFpejZCaGxhbW54RnpuNHFoSHotaEFZT1h5eUNDTldPT29CYlBndlR2QU1IX2g2WXF0ZHJWTVVPbjY1aDhXendrc2VxZkxfdVBmSkNNcTBLVEpSNHFqeldlbG14dFoyRjhIVmx0bjhvZGdjeWFpM242b9IBqgFBVV95cUxQVk9IN1BMaUE3RHZQV2ZJMzZURVBrU1ZjN2dpM25MQkgzMkJYeU5VMjlKM0F4OWoxcElmTWIzeTZtbTZnQlVpUXpxTjJzNWozV19MNkJncGMydW45R0hWTUZsd09BOXM2VTRwLXcxQ1V1eVRUUC1LcE5VekxySnU5aXB3b2I3RDhSVTZEbUFIck1nNjlMOFFlV2JleWM3bjNYNWhrQnN5NWJBdw?oc=5) |
-| Trump announces deadly US strike on another alleged Venezuelan drug boat - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPYlozNXNGNmZVemFOZ1VqZG4yNkp1eVdDX2hPY1hOem5GY1FoQmpQSlQwVTJnWmU0b1hCNkpGSks2Wl82cFFxU29JbnVtU3dPbVI1YXVuM21yT2tCeEdwVVY2N3g3MHEyZ095QjJLYjQxYi1IZjRhNHFnZDRtamwzMDdTR2lVV3lpc1JOaUljQXduYkk?oc=5) |
+| Venezuela’s President Maduro Denounces U.S. Boat Attack, as Trump Announces Another - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPbldvMlRpaEhBckdTaDdxSVktRDFucVdYekFaZGhoUmw0MzdPbkRITi1mNXluV2NKZjB6QmFJWkpmbUdsTGtSLVdxWDZ2My1xeUdTR19zWGdTM0E3Uko1Wi10QjZGVU1QMW95T2dNci0walUxQkg5V2RQUmVib0g5UjRYZndza2ktSUU3czhoUkw1UHBP?oc=5) |
 | Charlie Kirk killing: What we know about suspect Tyler Robinson’s motives - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNbkZOZXIyYjgtZmgwYXJzb1dCTWJsQjJnUUVKYjNmcHlZeTZJRHNIV3JCVU90NmFEcDRhMHJBSHFJZUNNMUk0OWdhYU5sQVlwWGQ0TGJSelBvZTRIZ0NyaWdySjNoNjRDYkFiOG5rTzJ0Vk5rQUtYa1M3LXdCbmE3WVoybndEY0dMZ293NldveEM3MmtwUnFmUGNXRmM0RUtIN3pJb0dzZHFEcFA0VW11NXh30gG3AUFVX3lxTE96b2ppRERGd0pCZFAzUl94amlnR1FpX0hteXE1LU1ZME51OVlXVHdTM051Q2lqc18zVkY1alhWSXAxTFdQOHJtUUUzZWF5ckE5YnZab2NvR3B6Q0h2c2xCWldKNGtXNm93QXJVLTBURURXX2hZVnZwQXByZHpCakdxV3Rwc1dkODFpSmJKQ2xtZ1hZUVpDVHotOWFqdkxNSDJYcjQ0MWVOZGZzYmpPZ2JLbk85TkluQQ?oc=5) |
 | US appeals court rejects Trump bid to oust Fed's Lisa Cook - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQTGNWckkyQkJOS2tZcnI5cGFWQVN0al9fU014Q29sV0lEZXptTUVTZVEzTDNQRjUxXzZNUHhvNXZjRlM5bzA5WEJzd0RZcU9OOG9PWmJacG0taXNSVGhsRHVSa3lQRThhaWpCX0dfNU95OXl1NGZKTlh3V2tnVmhIbE5MaXhMMjQwNWpRN0NjUnc2ZGRCcDlkTDBfWTBjMFR1S1NLeUlsZnhodFE?oc=5) |
 | Trump sending National Guard to Memphis, says Chicago's "probably next" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOV0VlOU1CZEVvVUZhYmpsOEtZUGN4WTJfckdiaEdKT3U4c1dtanVQMVM4S2wxV1N5RmYxbG1EZ0ZuMURWSmtpTUxOWUJvN3l4YWI5YW56TmlfNW9yaHNJaXNycFZMdG81dGp6Qm00ZmhOWWkzaUlWSEhKN1dwWXBHM2h3VEg?oc=5) |
