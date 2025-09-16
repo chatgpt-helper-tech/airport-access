@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月17日 06:57:06（北京时间）**
+🕒 更新时间：**2025年09月17日 07:00:53（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Man arrested for allegedly faking confession to Charlie Kirk’s killing - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxORWlwdHR6NVBNYUE4TzFJUV9CWkVZNEpDWWZxelN3cDNnVE9GQ3FhT2VNRTd6SGh3SkV0Y3pQNUozWWNyLTIyZ2ktWWNITE03cFVILUs0VzhRVG10eGtHU0ZnU3NPdWpMbkp1T0NsTkoxUUdVeXlRaVViOEVubWxiMDIxeGF0Z0FFaW5xLXByYw?oc=5) |
 | President Donald Trump lands in UK for second state visit - follow live - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1NTWVmcUJLQkpwUzFjQllYQTFkOVNadHN2V19NbmhHRkYzTUFYNGlRaEpYNkstcVBsWjFKbVRyNzhQcndRQloxVGhsZlNpWjZhekh6Rg?oc=5) |
 | Sotomayor rebukes calls to ‘criminalize free speech’ in apparent swipe at Pam Bondi - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQdUJsZFNlU3pfWnMwWHYwNVlmbzVHemdBX05nMlhPd0F0UzU1Vmc0TE03Vl9mRktPSXZReE1mZTdpMlpZLXNsMlBBTU5EYVdGM3NrZE5oemh6R1dfZF9kRUFLMlJydkVITzRMd2EtSU5KMUFXX29La3lrUTZzWkJSZlk4NlNyalRFdF81VFh3OWE?oc=5) |
-| Russia's drones in Poland raised NATO concerns. Now its war games in Belarus add to tensions - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOZFNDUFV0dS1ZYTVXeWNZbE9XVHcyRHpwenVVNmxZSUxraUw3T09PZnRuRGZvRHluTFFydC1qNk1NN3NEMXJDdzkzbThHOXI5Z3EtQUlIaVRRVGM5d2gyMDNmcnNkaUJELXBUc1Ixc3dXUWhIY1JoT0p5UFFPWlV6Ukpob0ZMdHljSDZMWFVhTW1QbFRRbEZjb2EyQ0IxOTI2RWdzUU1sQ3Y0RnA5R01KSw?oc=5) |
+| US military confirms it sent observers to Russia-Belarus war games - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOZHQxaTFDeUFETHRLQXR6dS1vUUZENVhPaWdzVTVMdE00Z1pKN0gtRDlIZUE2Tl9wWWo0MkQyMUl6N29pWndKb090MFBUc28wcFJUM2dBbmlSSnFqdGoyZ3c5V3hLT1NSRVl1N3lpQkh5SDJpZVVDa09HU3pwb1lORGdaV3RuQWFSeFRtazA2RERWQTlJaDR3Mzlmb1ljRDBjNGVJb3dYSmlpQnJyM0xqNTV3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
