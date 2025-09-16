@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月17日 01:32:19（北京时间）**
+🕒 更新时间：**2025年09月17日 01:41:44（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trump sues ‘degenerate’ New York Times for $15B - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOWTF1cjFibVFWeDBmd25uYUJrc3BXMVJUUGhsR0xFNDJjeVJtQnNoS0lVZVpReThqVXhDY2loMzd5aE91VEhua25xXy1Td05VTHpSREdScXh0NWdCbFZ4eDVkWE1GaE5SdFRZWm1fenZ3cDJMamtHOHU5ZkE3SnZIekZOc2hBMTF5YnhWcnpNbjVrN1pYRVNZV1BiX0J2a1k5QXpn?oc=5) |
 | What's different about the Charlie Kirk firings - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPWkcxS3k4T3pMNmlZSVVZeUdldXZyVXhZN013TTFyTzdqMkRhSGdMX29JVHZCNEVoVnhKLWNWM0lNWi1EYi1wYVY4OHBkTWNPOXZMd1RHMHlvajZXa0FpakgxVTAtRVE5bC1rblBzNFFic0t4Y09RdDB2bW8xR3BMYm1MdUlJdjQ?oc=5) |
 | Schwarzenegger decries polarization, criticizes Newsom’s gerrymandering effort - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxQbllwWDRCbGlVQkpQVGlWTGhoME5FNlRxWGdSdlZ3aTVXU2UzRTIyaDE5cE1HZDZKZDJUS28wYzVURldJWl9HNHVzU3ZGM2JfSFZOdmdMaWxyRmRZS0FkNWNtY0tqYjZ4eVp4MDQtSnJaRFdsU0t1T29BVDFsR3U5ZmVicmFrY19CS3JCMWZweF82QmhoYmNKd0tJT29LQ1FNWWtuZWVkYy1XVV90dUZjVXpaTjhLbHpYZWVZYUVMZnlrRjVfVHlRMENBUQ?oc=5) |
+| Beijing says TikTok’s US app will use Chinese algorithm - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBZcmVTWWE5VnVTdVptX1ZkaTNadU9kM0J4NEhCNkRmTXBfWkdKTWhoOEJ3NGIydDBpektycEU2cWtvbHh3blM5eVNmVUpDSk5YTWN6SWdXdjVIeHQ3MmlQdGl1SUgya0ZiNldxcjd4SGc?oc=5) |
 | JD Vance vows to carry on Kirk's legacy. And, the Fed meets to decide interest rates. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxQcnFoTjdrbnJSTjVvVGZaeWdzSUgtNXhzaGs4UTljek5STEV0X1p1RnYyS0pTUzc0eDlYUDJOWGplYXJHVVk2VlhWcnZFcnhGQVd5dF9IZGlIZkdDNlgteVhwdEQxYUstZGF0Nk03VmlBaWNSV2M5Zm84WEtfTVlXZFJqOHRxMFVwZkJQc1lsTDljN19rX0xWWHJfV3RNTm1aZE5QZkE0ckt5b05QQ25QVVZVRU1sMjB0eTJhODM0V0tUNUFJM1Itc2xJS0ZNLXdY?oc=5) |
 | Trump heads to U.K. for carefully choreographed state visit - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPWklfQjBGaW1jeTF0ejZlNTZMLWpZWFZmQ2ZweEtyMFRPYW1yRkdQRnJIaGV0UWI3QWpJRWRRVHVaellGN2Q3RVhmU1FzMzNCMHI4UWg2blRJTjFtOVlwR0tnakdtRk9qWC1XcTZHTXRKYndqUHo5UjNuM3VsdWFjUWs3NEdjNkZ0a2loRkVn?oc=5) |
-| Beijing says TikTok’s US app will use Chinese algorithm - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBZcmVTWWE5VnVTdVptX1ZkaTNadU9kM0J4NEhCNkRmTXBfWkdKTWhoOEJ3NGIydDBpektycEU2cWtvbHh3blM5eVNmVUpDSk5YTWN6SWdXdjVIeHQ3MmlQdGl1SUgya0ZiNldxcjd4SGc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
