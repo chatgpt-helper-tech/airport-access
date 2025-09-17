@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月17日 20:17:41（北京时间）**
+🕒 更新时间：**2025年09月17日 20:24:47（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | The Plan to Turn Charlie Kirk’s Murder Into a Left-Wing Crackdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOUTR1dVdIMWE4WWg5VjZ6M0V5OTk2c21KSTRqRXdfUjF0VEFwak9uMGl5Z09waWw1ZGllQW1SaFlEZk9PWC1sNUtBeHloUTMwMl9Dc2NRT3JTVUk2MXRpelZpVEp6czZfY2k3N1owYktUdEhDVUlBdWZhX2k4aXNqZ0FBdE5GUlFIZEo4LVUzU004NVk?oc=5) |
 | House GOP releases stopgap bill to fund government through Nov. 20 - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOdmNIc2dNWnJvNDZKd0J3WGFxTG5sd1hGSzJpUU43ck1XWlZncnM1MjgzX25ORUZZaDNFVWQycDZya1FiVll2MG9MdTlSWEVLcEE4alBHSzBfZmdEVHZPbGU4aGszbmxUWFlmdW1QaS1WS29DYUFFN2NPS21nQ0hGOFFR?oc=5) |
 | Democrat wins special election for seat held by slain Minnesota lawmaker Melissa Hortman - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOdW1MdGppQ0R3d3BFMkhfUU5UMmtLRVdDSXIxaWVfVExxQmtOb0x5dnFzcWdhaHowakFPbkQwYndnOGJzLVY1LUZPaXZ2NVBxZTE3TGl2THNrVUlBWE5DeUxlRmNyRnNzaGZiS2o1X0ZiWFpPbHFEbHZ1eTRyMGtma05BTEs1NTczdU0waDAtazRuZTlrMlVRdEdVQjFINEptdW5CS0ZPNlZuRjRMdnlIX1RqdW15WEVQSFNF0gFWQVVfeXFMUEZFM3BoaFQ1RkVqb3V1bjZYZEpPU1U4MDlZMHRDRVh4U28wZmhUN2tOWGcyNFhwSE5NYjBRZVNKN09NRDd4R0Z1bTBtRlVXbkQtRXgzZVE?oc=5) |
-| Georgia Supreme Court declines to hear Fani Willis’ appeal of her removal from Trump election case - PBS | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxQMURBRnlLT1ctanBCZHZYQjFMLUxqQi1ESWVucWVjOHk4TEk1NnRCUkpUN2VPX0JPV19TbmpSbkJWaWZHVVNlcXp0MG9KR0tLb1VOQmstZURuQlhQVE1uTmFQeHBoejNOd3RZbUdtVmY4enprUkhWMi15QTQ0dUpkSnlkNzVMZktydzVtaGNvSTVORnJuTUtXb3lYajZsNm0wamFJZjhRWDNwR3Q5RV9fMVBwajRqOGZuZXU2cjhma0c1Ymtrb3dNaThZU1Y5Si1z0gHWAUFVX3lxTFBRU1hsdkhJdFBQazNnTUZxZXpGR3ItaXpJM29LMVA3X25tWHR1c0M3bmNXS1VCZTFFRXJvSmhnTmpJRHNIUVphWnpReTZOdHdWSm9ONnUtNXhVRk11UGNzdk10UW02TFRpWDBVcFF3WHVEc2tjNGlWT0d5dmViUEpGMHE0QXlLRDUweGFqWE0xQ2FhNFhHRm9tVEpDcFlEc19GWmVmSGI5YnY4d0RRWnZjanFxRlVDLW1feDZzeXJuZnRVYk9JX2ZZOVpDMDlfNjVUNXMxaUE?oc=5) |
+| Abigail Spanberger gets show of support from 2 former GOP lawmakers in bid to be Virginia governor - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPMnY0dDVGWEVsc0pDUUFkLWJabV8zMGxaejVyZnJqQ1ZtVzFtd1NWX2xhN0I4WDJUQm43Rm9Jc0xTajVtbDdRN0Fjd3JKZ3N0REFITExpUUJvSzR0al9kWDU0dWRaVDBITEJ0YkNCdEtlSGJicERDTF8xcS1fU0plSXllUk5rUGxZdHZlNzdyY0JHRDhFemREMnZ3bWVfQdIBowFBVV95cUxPTGpEdWxJenZ6aWV4NmRVekt5d1NiMWhFblhkUzlhWk82MlBoMnR5dlRqWTZCMFozM1k4d2x4UVNNM2ptdGxQUzFaYXU2dWJFV0ZDQ2R1N3B4UFdySUtHU2RKM2tIQUp5T0M4QWJ3NkR1OVRJRzc0Nk1xOXhfVnBCSGkyVUpSTUlZT0JlenVtWURPMmVMbDBYQWh3UlU5YWNJd2pB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
