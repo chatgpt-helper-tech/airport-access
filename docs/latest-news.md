@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月17日 08:33:34（北京时间）**
+🕒 更新时间：**2025年09月17日 08:40:46（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Palestinians flee Gaza City as Israel says it launched ground assault amid global outcry - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNOTV6aTNiVjZnck5abmo5eXZRbzBuNlJpVUM3ZlJ6YmRxR2U5cFM2VV9BNU53aEZjZjl3YWd0NWdnWmJUdU5qLWF3M05uWjA3LXAyNTV2QjhEVFVTRG9tMFIxcTFjcXlJcEwzNllmRE12bW9LWmpET3owZ2VsTWFJeE16T3EtdUJkdFNPOVNkLXA5QQ?oc=5) |
 | Judge dismisses two top charges against Luigi Mangione in UnitedHealthcare CEO shooting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPcW4xZjZEeHpGMGJlYVgxeHFGNmJOSXJRT2lfTmxsc0Nqc0lRQkhFZHFKV0NfUjRUYjBEUkxUa3h0WWM3VzdFNlp2allvTDVPYzE4b0tyUTlvWUQyNVZ0b0J5blFYRHU4S3R3ZDhzLTFVcmNPRU8tSm5fUGlyRVFhWlJ5Y09uR2Ntc0V2dk1jODJ3UQ?oc=5) |
 | Memphis Residents Welcome President Trump’s Action to Restore Public Safety - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxONnBNNnl1QWNyYnlFaWdWbC1hMHJXZ3d4bXRDdl84eGJUSXQtblRoNjl5cFM2cGlaeVF3WEpIaHltc3VyRnR5LTlHMjNGaGVaN0tZVHNtcWhxM3pQTUU2U1lDTkNNR0xsaW1XRmEtekFJOXI3c3I1Rm43d1JKbDVWOWxtNUJtRDNlSElKUDFTZVI4OHBQR1B2aTU2UWM1a0dRSmtYODBpX05TbHZtMVBwekhwMTl4a0hscG5z?oc=5) |
-| Charlie Kirk murder suspect told he faces death penalty if convicted in first appearance – live updates - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi4AFBVV95cUxQeEF4al9DdTkzVmlxa1FETWd1OG9hOFprTElCZEl6SW5lWlgzMHNRTGRIV0F5ZEUtZkxQYVhkS1BLeHhHMjVFUWNpbDdadUFxUXBHZEJCbFBOa2p5dWRCQ0JfbnBtTG5VRXd0Y3RzVmJFRENmTHZHcS16SlpkUU81bnhLZkMyeXNHMkplSkR5VjJQWEJLbmY4bUUtdFZra0VQVnM4NGpjdU52RjBZWlZGcFdRckhISWY4T3VWYWtreW1raUlDZWZJOEphNzh5aTI2M29qbWVUQkJIdHhwMmo2cg?oc=5) |
-| The people who have lost their jobs for posts about Charlie Kirk - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1SSm9XWlBaQ0JFaHd1OUo1YzdpeFhzbVpMVXpzT1ozekZkOXNJN1FSYlo2b29VUnUwSE14QnJ2YV9TbDh0Z1E2U25tNXF5T3N1QjlGOGJKdi1LTmlxSDM1X1B3dFBjRHFCRjl6bDZ4Z0VteDEtUEdWRXl1OA?oc=5) |
 | MAGA debates how to respond to Kirk’s killing - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQZHhZNmJnRFQyU0l6aXcxb2RaVFVJWlh4cVNBNW8yeXNUNElobDFoMzE5LWk0UVplUnVCTXFLSWxUaVdndmxWRUJhbmZpazNEWVVUbzRjdGh3YXJCeXNaa2hSa3FtZWlKRUpWbTFxRi11azJ4dWtLa3JKX1JWLXFWdWpKVmlOcmRNZ3RScFctU3U4NV9WWndjVFBR?oc=5) |
 | U.S. Investors, Trump Close In on TikTok Deal With China - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE85ZlUyRldEaGd5akJBaFdWNVNJeUNMTzNsWm4xaThGUWo5UFpIN1gtUHpQMFJUaXc0QlM2anZFM2xXcTVjNnFFQXZfQmlDRkVGeXMtVDMxbFBTYmZqSk84dnJyUENDeUFnTzY5MEtfUE0zSjFjNzZkR1FrblY5UQ?oc=5) |
+| More employers fire workers over Kirk posts as pressure from right mounts - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNMG0xcGlFMTRjcHNkM01FVkRobGJRRnpYM1QtLTcxejQtX19mSkt0OHRpX1h0REUycHJDXy1yS2s0dGZxNzR2WUxwNjNfeE9oUVFUZ1FNbzJ4WUVJT0gyMWlHamJwRG1WZjNxMzVITkw3VEN4SFF0RHItSF92UDRUWk45bi1nbGdWa0JlSHJfaWh4YlA4YWdpY195a0dBQ3pIcTJoRVJB?oc=5) |
+| 'Tomorrow is going to be a big day,' Trump says as he arrives in UK for second state visit - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiU0FVX3lxTE1LekJuSm1aa2puNWg3OWNydXJSZ3VSYkI0MklkdlVubEo1Ujl1eDlQVFVTR2NYTXNDSnlvS1FaU3gyM3hkbWJjVGY5R2llc0REeHZJ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
