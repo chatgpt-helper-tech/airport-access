@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月17日 09:49:53（北京时间）**
+🕒 更新时间：**2025年09月17日 09:56:50（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Palestinians flee Gaza City as Israel says it launched ground assault amid global outcry - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNOTV6aTNiVjZnck5abmo5eXZRbzBuNlJpVUM3ZlJ6YmRxR2U5cFM2VV9BNU53aEZjZjl3YWd0NWdnWmJUdU5qLWF3M05uWjA3LXAyNTV2QjhEVFVTRG9tMFIxcTFjcXlJcEwzNllmRE12bW9LWmpET3owZ2VsTWFJeE16T3EtdUJkdFNPOVNkLXA5QQ?oc=5) |
 | MAGA debates how to respond to Kirk’s killing - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQZHhZNmJnRFQyU0l6aXcxb2RaVFVJWlh4cVNBNW8yeXNUNElobDFoMzE5LWk0UVplUnVCTXFLSWxUaVdndmxWRUJhbmZpazNEWVVUbzRjdGh3YXJCeXNaa2hSa3FtZWlKRUpWbTFxRi11azJ4dWtLa3JKX1JWLXFWdWpKVmlOcmRNZ3RScFctU3U4NV9WWndjVFBR?oc=5) |
 | Democrats Oppose Stopgap Bill, Raising Odds of a Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNRkZsMjhVQ2RzNC1HeUZuTXlqWEIwalIwcURhdHVoWjhKaks1dEVKaVB2bHVfbHlJLTMtSkk4U1hkZEItYk5GOHJPV0V4UVpPUS1MVVFvQ3Nvd2ViZXpvX0U1RVpLQlRoQW1VWGFfSlFtQ0U5Y0N4RFhoR1ZncFFsZk1vQlFRODRtbHFZ?oc=5) |
-| The people who have lost their jobs for posts about Charlie Kirk - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1SSm9XWlBaQ0JFaHd1OUo1YzdpeFhzbVpMVXpzT1ozekZkOXNJN1FSYlo2b29VUnUwSE14QnJ2YV9TbDh0Z1E2U25tNXF5T3N1QjlGOGJKdi1LTmlxSDM1X1B3dFBjRHFCRjl6bDZ4Z0VteDEtUEdWRXl1OA?oc=5) |
-| 120 land and environmental defenders killed or disappeared in Latin America last year, report finds - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNSldDbDlkdWc4WnBiS1Y0a1dMQmgtSkU4MnJqUGxzQjRQbkV6NFR4ZjdqUjlwcUExTHRhWEpaT3AyUVNSRUd4X0JKX3ZQX3JfNk9yOVNwdzdSTGp4ekpVTURyQjNpUUZuNUN2aXV4OWR6aDlWNUVNeWN2VFRsZUNJQlRQcUZiZklJcVI3MHhzMUw4MnE5ZzBpMzg2dEJLOGJpeXY4NkhvcnF3cWlpRFViMjNBNV9yd01MdEVN?oc=5) |
+| Trump Says US Military Hit Third Drug Boat From Venezuela - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPRkF0YXE4bERwbmdJcHo5UkVKemZJOGxJQ0NhemNxQXJoWHI2RTZqNzRyd0QzTDI4QnpuSzRZTzhreUlzeXhWT0YtdkJNX1VOSDk0cDJ4eEJoei00ek1WYkUxeDdIV3BfVThHekI1Q0JGam8wNnJUSFFIcFhMOEVQQVhrSFg2NU02TVRGeER3V1JaUVQyM2pzV3E2ZkpBSWowSl9ydGlIOG1yM25j?oc=5) |
+| ‘We’re still in the dark’: a missing land defender and the deadly toll of land conflict on Indigenous people - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQWFBFbWxnbUpLWllRUWtaR2xCZmdQNHY3YUhFZ2tLLU9yZTdaNGsxbGg0cHFIS1R6ODdfU1dJSWlsM25oX1BUQmtOX2ZjSnY3a21LR1BhMGRCN0Q5c0NBaV9yaDZObjR2NmV5QlhCSzI3VXhiZ1M0Q3NnSkh1Sl8tZ3hFR09xdU94dm5nUmhSTGdvSmRRNjlUS1hvMk4yODhFTDVZREFnMmUzajFjV0w1cjJISWFqenNr?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
