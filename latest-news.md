@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月18日 05:57:23（北京时间）**
+🕒 更新时间：**2025年09月18日 06:00:58（北京时间）**
 
 ---
 
@@ -26,7 +26,7 @@
 | 5 officers shot in Pennsylvania while apparently serving warrant, sources say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOZDRaOThlek92cGp1V3FINzdnVW5qOUpVMHJpclV4MS1obUlFMU5LSTZNdkVkaXMxczZKaHpWYTY3QVZtbzI5eUZBVXNqU1Jkb2Jha2kwYW03SGVaZGZCR1h2V25oQ1lBSTlrN01DYU5WUFhLUV9YdTVkVFJSYkNEdmNnem1oaDZmTk83NmwxX3U5WEUzUzNpam9VejAzTFkxcm5XdzNPMlByT3ljSk5aQVlEZ3VZNnRkZGfSAVZBVV95cUxNTHVUZGVRWm8zSFdtSTIxUFRHeFk4X0U4MGlwT05DZW9HVVJWM2hWS0pXNE9IZTJFZXZqWk5rXzRrLVQ4QXIxM1FKTkFLU3hxNEh5VV91Zw?oc=5) |
 | RFK Jr. 'wanted blanket approval' for changes at CDC, fired director testifies - NPR | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQODVpUk5rNlA1bDdyNWpEX1NZbENRMVA2bGlTakQzQXN6SlduYTV6cUdhZFpFUFRxWVhFTFFEWnh2ZzVldFRxN3dxQVFMQzdvRFVkWGF4X3RiLTRPWWtRdDQtUTBsQnJHRGtmMjlnbW1qMDQxcEczMzBpZEs3VXRkN3ZPclo3ZkVIYnJpN2N3cGM3Z1cyc0lBZ0ppZTNWMDhsVFRWcklROXNON0V0Vk43MU1R?oc=5) |
 | Trump, Vance to headline Charlie Kirk memorial - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOQ3VQRk45bVlrcVpiQkNlWkphUXFrRi11cjR0azcxZ0Y2UmMxek4xa1czOEEwLThVTzh2WjNvanJjektOLVpJR2N2cXRSMWZXakZEX3hXVXVSMk1LSlZUUXpWSGN5ZlZXb3psZktfQUxRZUgxaW51d0ZRU2kyQnZ3NGlJeGxWWDBKLXRB?oc=5) |
-| Thousands protest against Trump's second UK state visit - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE95YVJYQ3NKTThoVXhZd05OU2s5cGU3VEM3MzUtQm9MTm8xejNZYUNDaWVsMzdhZEtVZFFTd3QteW5vRE9PcW5xbnQteTZMa2J4elpwYkwxUTlBQdIBX0FVX3lxTE42WEtzQnBxU1lXZzY2bVNYR1R2LTM2elVsMUd3S2w0LU5ZWEgwaUlKOVVyQzVLZXhweWlwanRCQzQ1OXRvSWFRVG1SV01ZY08wbUlNamNhTmNRYUJGQk5V?oc=5) |
+| Thousands protest against Trump's second UK state visit - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE95YVJYQ3NKTThoVXhZd05OU2s5cGU3VEM3MzUtQm9MTm8xejNZYUNDaWVsMzdhZEtVZFFTd3QteW5vRE9PcW5xbnQteTZMa2J4elpwYkwxUTlBQQ?oc=5) |
 | House eyes Friday vote on stopgap as partisan tensions flare - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNS0FXc1ZldDhPQzFzalhFVnBWczFLX0pwOWgtaDIxakRwcXBqek05X200b25ZMG05aEp1OEhldmJSQmRCQ2U2ZkZ4Wll0by1sa21XZVZkd2JSR0ZNcFMwOWdHMWJMRFFobS1kY25teDVzNWQ5aW9WYTlubXJhVGh1U0k4WF9BQQ?oc=5) |
 | Maps show the forecast track of Tropical Storm Gabrielle, the 7th named storm of the 2025 Atlantic hurricane season - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOVUVWdFlaUnd2X2JhMk1SMklFSVdidUliOHFqU2E2cjkwcHVFLTF1a0RpU192M0p1bGdzYjdSeGdCa0pUT2xZSnFmQnRhdzhPYnNOZmJqWVJFQ0FQWGZfaThHeGMybDVwOWNRZUp5YUpzOXFoX2lBamxnZmdlMVhGbmYwYTlYSWR4VDlESEZsaWNmZ003RVh4WVNKYmI1MXF2RDhaUWdBQzFzanFGWVpOdmFkdGh3S2VOaVFtT0dBZ243X1HSAcgBQVVfeXFMTjZIMkJrazhoUTZxSTY3X21Weko0bE1Xa0kxZHZfeW15ekdfV3p5UHJ3WmRQOFhlQlBuUlRWa0dXRXdHdHVndWc3TTYxYVRaNTJXZ1JURVNHZ2xsZGctMldYMGVEZjViS3VPdmNHZ2FfbDh0dzZqNU5XT1JSR1ZONGdSWHJOdGU3ZVluam9RVjVQN3RYdEVDODZ6QmFKRGl3d25JdDQ1eE5VWlVJZFRLaW8wODNwdWRUTUU2Ul95MUI1NTNFSzA1Zlc?oc=5) |
 | Mississippi university student found hanged on campus with no signs of foul play – but family raises questions - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPcS15WDJIMU5YbGN1TGxPR0J0UEVBblpoRlB3OGp5SzZreUIyY2xMOGFJQzJKVnprcG10QTc2NWFfYVNtQm52aWhSd1pWYk83ODMyb3MyNTlIZ0c3LVJoamRzNVhzbDhCSHF3MXRCVUxLaDlzbU1uNlBSaHFiNlJaQzNrWG9MS3l1VXBfNGRpdmR5bFBMYTFPQVF3?oc=5) |
