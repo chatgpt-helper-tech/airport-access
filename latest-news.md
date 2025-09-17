@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月18日 07:25:16（北京时间）**
+🕒 更新时间：**2025年09月18日 07:33:13（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | Major Scottish gangland figures arrested in Dubai | [阅读全文](https://www.bbc.com/news/articles/ckged73p340o?at_medium=RSS&at_campaign=rss) |
 | Three officers killed in Pennsylvania shooting, with two others critical | [阅读全文](https://www.bbc.com/news/articles/cvg4n4zx48no?at_medium=RSS&at_campaign=rss) |
 | I have no relationship with Trump, Brazil's President Lula tells BBC | [阅读全文](https://www.bbc.com/news/articles/c3rv981qv4go?at_medium=RSS&at_campaign=rss) |
-| US central bank cuts interest rates but cautions over stalling job market | [阅读全文](https://www.bbc.com/news/articles/c3e75y90pw0o?at_medium=RSS&at_campaign=rss) |
+| Interest rates expected to be held by Bank of England | [阅读全文](https://www.bbc.com/news/articles/cge2q7wvyz3o?at_medium=RSS&at_campaign=rss) |
 | Jimmy Kimmel taken off air over Charlie Kirk comments | [阅读全文](https://www.bbc.com/news/articles/c203n52x1y9o?at_medium=RSS&at_campaign=rss) |
 | AI can predict people's health problems, scientists say | [阅读全文](https://www.bbc.com/news/articles/cx2pj502ev6o?at_medium=RSS&at_campaign=rss) |
 
