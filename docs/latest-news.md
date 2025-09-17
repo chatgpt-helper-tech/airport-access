@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月17日 09:01:00（北京时间）**
+🕒 更新时间：**2025年09月17日 09:08:38（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Memphis Residents Welcome President Trump’s Action to Restore Public Safety - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxONnBNNnl1QWNyYnlFaWdWbC1hMHJXZ3d4bXRDdl84eGJUSXQtblRoNjl5cFM2cGlaeVF3WEpIaHltc3VyRnR5LTlHMjNGaGVaN0tZVHNtcWhxM3pQTUU2U1lDTkNNR0xsaW1XRmEtekFJOXI3c3I1Rm43d1JKbDVWOWxtNUJtRDNlSElKUDFTZVI4OHBQR1B2aTU2UWM1a0dRSmtYODBpX05TbHZtMVBwekhwMTl4a0hscG5z?oc=5) |
 | Trump files $15 billion lawsuit against New York Times over campaign coverage - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPNW1GNmcxX0xsRzZzRnZQekFzWTZ2X1I1c3dzUWJUdWtTM2x0YjBJcUZISGtnYWxpZkFlYmpjbWNyMHNKT19CdWtfWVZWdGExbHhlV3EyWllxV1pJTEVkVkFyR2NhSUc3QWMxNlBsQU1YOG10NlRsVVZTeDFCZjFvU1ZEOHYwdGx3RGZVNi12QjFRMjZlLVlBanUwamxrMUJuTV8tNEtUYmk2MU9FR3IzM0E2emXSAVZBVV95cUxQWjVGSUpkZm1LbXh0TWphMXJKRFBDWjRuei02aDgzSWtXbkJKSmVaaWtmcF83RW91TVpGMGdkTF91cDQ2OE5JSjcwLTh1czBIcWUtelhxZw?oc=5) |
 | MAGA debates how to respond to Kirk’s killing - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQZHhZNmJnRFQyU0l6aXcxb2RaVFVJWlh4cVNBNW8yeXNUNElobDFoMzE5LWk0UVplUnVCTXFLSWxUaVdndmxWRUJhbmZpazNEWVVUbzRjdGh3YXJCeXNaa2hSa3FtZWlKRUpWbTFxRi11azJ4dWtLa3JKX1JWLXFWdWpKVmlOcmRNZ3RScFctU3U4NV9WWndjVFBR?oc=5) |
-| More employers fire workers over Kirk posts as pressure from right mounts - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNMG0xcGlFMTRjcHNkM01FVkRobGJRRnpYM1QtLTcxejQtX19mSkt0OHRpX1h0REUycHJDXy1yS2s0dGZxNzR2WUxwNjNfeE9oUVFUZ1FNbzJ4WUVJT0gyMWlHamJwRG1WZjNxMzVITkw3VEN4SFF0RHItSF92UDRUWk45bi1nbGdWa0JlSHJfaWh4YlA4YWdpY195a0dBQ3pIcTJoRVJB?oc=5) |
 | Trump Delays TikTok Ban Again as a Deal Takes Shape - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1MUFdZbmJPekRMUGtwOUJ3SjdoSnlOdFVvRFN0RnRNa1pRUzRTNnV4OU9fOG5jRGZqVjg2ZjdaSnBSOVpnUk1keXZlaXltdmt2MG53Tkc1YVJ0RmZ2MFFzM3h4RHUzRm5UOXJERGgyMWhhWmlrMF9JRHVB?oc=5) |
 | Republicans release 7-week spending bill as Democrats warn of a potential shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNM3NkQXB4dElXWUFiQjZyRmFkaEp2dE14QlJXa1pQZE1HeVdHLVFWZERQMTAzUVc1SDZRYUlNZnk2R0x2Q19GM1RocENXaDZVQTdiRXl5MmJ0bHBxaUtwZ3BaUFRlelJGN244a2o1b2VvdlVaczV3YXNqU2FWSkd1MTB4aHI?oc=5) |
+| More employers fire workers over Kirk posts as pressure from right mounts - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNMG0xcGlFMTRjcHNkM01FVkRobGJRRnpYM1QtLTcxejQtX19mSkt0OHRpX1h0REUycHJDXy1yS2s0dGZxNzR2WUxwNjNfeE9oUVFUZ1FNbzJ4WUVJT0gyMWlHamJwRG1WZjNxMzVITkw3VEN4SFF0RHItSF92UDRUWk45bi1nbGdWa0JlSHJfaWh4YlA4YWdpY195a0dBQ3pIcTJoRVJB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
