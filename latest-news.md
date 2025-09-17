@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月17日 18:00:30（北京时间）**
+🕒 更新时间：**2025年09月17日 18:08:53（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump files $15 billion defamation suit against New York Times, Penguin Random House - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNblJwWHlIYkFwQXFOZ2w2VWFVWU1qZVdXbVgzOVVnS2NtVGpMaXVaWTdkSzFRUjJjNG5ucHlxSHRjMFB6LUZwbjZOdi1qWWhWS256RkF6djhnUWhyYUlvcDRYT0t1OTFUSExOeVZwYlcyTWZHOHRXaFRDM0FIcmQ1ajFrRnB0ci1lYzhVdGJ3eXdiNTRuZ2Ew0gGcAUFVX3lxTE44endHTTJTeUpUYVhfLS1MZG1INkExX1Njd0lRanNhT0hOY0tsTmhnOWdrNkJleG56azlKTVJVTktQbTIzdkdUSFh6ZXFUcU1YSllLV194bnllRmJSMEduUmlpeXJsZjlaTG9oSkpUYThUa0VfOTNIekVzVnQxVkpXb203LTN4TEl3Qk0xZzZob0JEMklDZE9GYk1vWg?oc=5) |
 | Democrat wins special election for seat held by slain Minnesota lawmaker Melissa Hortman - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOdW1MdGppQ0R3d3BFMkhfUU5UMmtLRVdDSXIxaWVfVExxQmtOb0x5dnFzcWdhaHowakFPbkQwYndnOGJzLVY1LUZPaXZ2NVBxZTE3TGl2THNrVUlBWE5DeUxlRmNyRnNzaGZiS2o1X0ZiWFpPbHFEbHZ1eTRyMGtma05BTEs1NTczdU0waDAtazRuZTlrMlVRdEdVQjFINEptdW5CS0ZPNlZuRjRMdnlIX1RqdW15WEVQSFNF0gFWQVVfeXFMUEZFM3BoaFQ1RkVqb3V1bjZYZEpPU1U4MDlZMHRDRVh4U28wZmhUN2tOWGcyNFhwSE5NYjBRZVNKN09NRDd4R0Z1bTBtRlVXbkQtRXgzZVE?oc=5) |
 | ‘This is Code Red’: Newsom rallies Dems in searing rebuke of Trump - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQcll6VVIxMno3dTVrWm0zeGRZdGJIVk9CaGVuY1BjWDJNUmV6Z3VJUXVkU0ppSEttVHIyZDVGNEhrVHNwbEk4UEJsMXI0Snp6cTFxQUFNNW93NjR3OS0wcy1yb1QzLWZZcmdEb3IwNi1XSy1LMU1LRW1rdTRnM1FnUXM0UV82SHZQM1VfY0xyOXktSEt1MFFxQVBBN1o?oc=5) |
-| Luigi Mangione has state terrorism charges dropped - DW | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPZllOQzlfT1paUEJjYmtFM2l5TEVndzBIeWhPZ2xOUVlqVGZaLUdNcnE3ckdnU0F6eG4xLVJZbEZYUko5RV9uSDhXOTloRktxdi1RdVRvdlB1X2VPSnNZTlpST2xsbVE3VldHMUk4R1YtSFRPWWN1RlMycFJUNFdGS3VkZ2VaZEhfXzJz0gGLAUFVX3lxTE43QktycWQxWlJyVnQxZzFtLVZWWEF6STd1TnRVZ21XWExBSDhoWjBCTGFkclg3SzZNSVRRemRMeEZZdFRBY1E2YXdOd3E3Y2RSNGExZjNYd0FnWTBEZ3U0elFiNDFxaHNoTVpGTk9EOXhJazFtMnZtVC1WODRCVWJZLXJ1Q2UxQUY5Nnc?oc=5) |
+| The people who have lost their jobs for posts about Charlie Kirk - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1SSm9XWlBaQ0JFaHd1OUo1YzdpeFhzbVpMVXpzT1ozekZkOXNJN1FSYlo2b29VUnUwSE14QnJ2YV9TbDh0Z1E2U25tNXF5T3N1QjlGOGJKdi1LTmlxSDM1X1B3dFBjRHFCRjl6bDZ4Z0VteDEtUEdWRXl1OA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
