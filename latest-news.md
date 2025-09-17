@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月17日 23:00:40（北京时间）**
+🕒 更新时间：**2025年09月17日 23:09:49（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump arrives for UK state visit, welcomed by king, prince at Windsor Castle - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNVEdwcTVuZGU1Nm1kdWRxcE1xMXVYVjBtOFBYME1EZlkxR0lBY0VZVlR4RHgzNllSMFpTeGdGU3JCUl9ZbHc3RlZXeENZdW9JdEhCZlgwX1otdWNmbTZQOGdlVmgyb2JQcUNxUXVCajdMRF9ZeUFCUkFjWXVTanhVUmZDQjRnWWxJcnM3TzNhRFpLN2hLcWo5NzFDZFRrTUFsWW9jc9IBqgFBVV95cUxPMEpBRmRMdndieUxTdTV1N2ZJZ3hJcGwtcThOaHJiamRBSzk0YUFIMmlRc2hzNy1mREpKV0Npa2tIUVpET1IwbDRyb2J4cnd1Sm9CaWZSZ1lTZ0Z2Qi10MFZnRVpYZy1FdFA0SWZiTVF4WWdkZFZCMmZkT0JNNk81TEF5NFMwWXhMSGl6WnJHb0xDRHVNdmp3UXlUUEgwSXpvSHliTkEtVkpHZw?oc=5) |
 | Obama says Charlie Kirk assassination was ‘horrific’ and praises Utah Gov. Cox’s response - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPbzVMUUphVVpyR1lYeGl5Tjd1X0NGekl2VlJCRjlYQ3d6WXU1UW45dHlKQlAyeG5sbTlyZGVvY2tSM1pyWDB6cGtDbzl6WXlKQ2hfRjBIOWw3QTNCYmxWeHNYb1JVSDFpRloyS2dXaWdOZHdRbjE4c1Y0ODZqNmM3a2VqOA?oc=5) |
+| Trump arrives for UK state visit, welcomed by king, prince at Windsor Castle - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNVEdwcTVuZGU1Nm1kdWRxcE1xMXVYVjBtOFBYME1EZlkxR0lBY0VZVlR4RHgzNllSMFpTeGdGU3JCUl9ZbHc3RlZXeENZdW9JdEhCZlgwX1otdWNmbTZQOGdlVmgyb2JQcUNxUXVCajdMRF9ZeUFCUkFjWXVTanhVUmZDQjRnWWxJcnM3TzNhRFpLN2hLcWo5NzFDZFRrTUFsWW9jc9IBqgFBVV95cUxPMEpBRmRMdndieUxTdTV1N2ZJZ3hJcGwtcThOaHJiamRBSzk0YUFIMmlRc2hzNy1mREpKV0Npa2tIUVpET1IwbDRyb2J4cnd1Sm9CaWZSZ1lTZ0Z2Qi10MFZnRVpYZy1FdFA0SWZiTVF4WWdkZFZCMmZkT0JNNk81TEF5NFMwWXhMSGl6WnJHb0xDRHVNdmp3UXlUUEgwSXpvSHliTkEtVkpHZw?oc=5) |
 | Ousted CDC director Susan Monarez to warn of "real risk" of less vaccine access for kids when new panel meets this week - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOcGhNeVdzaFdVSzE0TUlJRnF5cjFGcFZ1SDQ5ZExISW1EQ2J1VnhQM0tpX3BNVVA4M1B6ZW4zY3VoQU82UmVKT3RHV25DRzdEUTNWRm02V09JZlVpdlpTXzViLWVXMzNZWnVyQVhvLXF5am5tQjBGX19Dd3VfYlNORUlkMnR1Z3JaREpaSFV5UE1ZZ9IBlwFBVV95cUxQa2tnR1lXcWo2bUJuVzk0N3hqOHFQUTlJRXpsdzR3Z1ROQmRQMlo0N1Nubi02NTNkTUVyQVJNWWpJSV8tLVpkTkFzalVHc3BPSnQzbS01LVQ1b2NYdEs3VGl2eVNJUnU1eDAxT1hDX3V1c2haamw5X3Vtc1ZSakhLWkRuZTBTcTBEbE4yUjd3elVJWkk4aWRF?oc=5) |
 | Photos: Activists beam Trump, Epstein images onto U.K. castle during president's visit - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNM1RCTVg2WUtuUzlBejl6cGI1Ty1seDU1RXY3V2NEUXdfUk80MjFGR2JvbmF5M2JNYjhMbmxFTUJyMHowVGVmZVhjbzFUQ3lSRjZBOUVwN1pUNnlfVWJuWUdvZG9QbnRtcUpac3V5S01NSF9sd2ZmS0NMR1ZOOVhOM2ptUGQ5OEFTa3lzWWhUUjI?oc=5) |
 | Homeland Security Secretary Kristi Noem leads Elgin raid; 1 U.S. citizen among 6 detained - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQOFJCQ0xwMEFfdWtKS01qeGhQNG95dzFvSVo5cE9YaUhmUTFTTldBMG42SmZJVUNJT3lkd1ZWTWFNV19tX0J4SExnRmFMeDlES1dXTTVjOGFzQUJpZzI2eHFYa0FyMVhlMkVZRWgxLTFLbUNVOEVIazRLM0lVYVpHeWhUNWRncUdDN0dfak9INzE0MDJ6LWlFWXpXUDlNTEFCV0JSUHZZUVJmSEZ1OWptTUt3cDYyWkdyZ2tz?oc=5) |
