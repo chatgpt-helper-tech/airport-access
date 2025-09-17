@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月17日 21:01:33（北京时间）**
+🕒 更新时间：**2025年09月17日 21:09:46（北京时间）**
 
 ---
 
@@ -8,16 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Jaguar Land Rover supply chain staff told to apply for universal credit, union claims | [阅读全文](https://www.bbc.com/news/articles/c784nwvj1l3o?at_medium=RSS&at_campaign=rss) |
 | Food prices continue to surge as inflation remains at 3.8% | [阅读全文](https://www.bbc.com/news/articles/cderznjj4r7o?at_medium=RSS&at_campaign=rss) |
 | Ex-Labour councillor charged in Westminster 'honeytrap' case | [阅读全文](https://www.bbc.com/news/articles/cn76dr2jm0ko?at_medium=RSS&at_campaign=rss) |
-| JLR supply chain staff told to apply for universal credit, union claims | [阅读全文](https://www.bbc.com/news/articles/c784nwvj1l3o?at_medium=RSS&at_campaign=rss) |
-| Tech bosses say massive investment will make UK 'AI superpower' | [阅读全文](https://www.bbc.com/news/articles/c7016ljre03o?at_medium=RSS&at_campaign=rss) |
 | Tests show Navalny was poisoned in jail, his widow says | [阅读全文](https://www.bbc.com/news/articles/c5ye0x28vzqo?at_medium=RSS&at_campaign=rss) |
+| Tech bosses say massive investment will make UK 'AI superpower' | [阅读全文](https://www.bbc.com/news/articles/c7016ljre03o?at_medium=RSS&at_campaign=rss) |
 | Read the text messages between Charlie Kirk accused and roommate | [阅读全文](https://www.bbc.com/news/articles/c99g1e0z2ero?at_medium=RSS&at_campaign=rss) |
+| In pictures: Trump and Melania meet royals at Windsor | [阅读全文](https://www.bbc.com/news/articles/c4gqd70v496o?at_medium=RSS&at_campaign=rss) |
 | America's unofficial party house where Trump spent the night | [阅读全文](https://www.bbc.com/news/articles/cn0x2vxl7gjo?at_medium=RSS&at_campaign=rss) |
 | Four arrests after Trump and Epstein images projected on Windsor Castle | [阅读全文](https://www.bbc.com/news/articles/c78n455mj08o?at_medium=RSS&at_campaign=rss) |
 | What is the President doing on his visit to the UK? | [阅读全文](https://www.bbc.com/news/articles/c8rynvlm6zjo?at_medium=RSS&at_campaign=rss) |
-| Landlords 'scared' and selling up before renters' rights bill becomes law | [阅读全文](https://www.bbc.com/news/articles/cwywj3gj9z7o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -29,8 +29,8 @@
 | Photos: Activists beam Trump, Epstein images onto U.K. castle during president's visit - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNM1RCTVg2WUtuUzlBejl6cGI1Ty1seDU1RXY3V2NEUXdfUk80MjFGR2JvbmF5M2JNYjhMbmxFTUJyMHowVGVmZVhjbzFUQ3lSRjZBOUVwN1pUNnlfVWJuWUdvZG9QbnRtcUpac3V5S01NSF9sd2ZmS0NMR1ZOOVhOM2ptUGQ5OEFTa3lzWWhUUjI?oc=5) |
 | Thousands of Palestinians flee as Israeli bombs rain down on Gaza City - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOYXhiWkhGS0hMd2VpTm9TU1ZOQkVTQUppZFE3UnFzQWZuY2hSLS1SWWM5VGlqUENNaW9rd3I2Rm5MYVpmYVJLMHZXUlRNMnBxRHZBOGtWMUtXYWNtSlpZVXNWb2ZZQkx1MmhCR2pDc29MOUxGaUlUbzk2NzMwOGFlcmkwWkpMSFJyLU9oSldYRU15VXFicUhsc1NLN2YxWnM0Q3M0UzZtMXpGcmtXQkpCd9IBtgFBVV95cUxQaEk5djMwV0l6OHZDZ3AzaE5IQ2VES3hhSTAzOWZXSk9ZRzRMeTdhb0p4dmFENWNnZlpDcFE2cmRtU3dVakFjRG9VZDI1amI1ajQzMldPcGcyVEw1Z1ppNUhzcVJoUDkwQTZoa1p6Vnl5Qm5iTE1JSmg2cnpVYU8yYXZieTg5SEE5a0ZNQW1lalY0WnUwdGR2aXNXdEdwSktLRUFNbG0yT3I2U2JRVGdtVzJLUU5xdw?oc=5) |
 | China says US TikTok deal a 'win-win', will review app's technology and IP transfers - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNa1Q0TnJrWk40WjlBT0pmOVVjZU9KRWlJNHhUM2NWRk80Mk1rcDQzM3JJeXhoWEJaY2cwb2ZuTUZCSmc0SnlSRmstOWU0Y0JfM0VnVXgxWlF1MXdra01SQm5XUExvMGd5UTlWdVlWLTFyN2lBc1lHN0FpVk0yM1dHdkREN0J1b2pjQk5GVmg4U3R0YlV4Ym51b3Z1YXpHT3otZENoZkkzanVRb3lsMTlCWXB5R19SN2o0RkJXZDFiQQ?oc=5) |
-| House GOP releases stopgap bill to fund government through Nov. 20 - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOdmNIc2dNWnJvNDZKd0J3WGFxTG5sd1hGSzJpUU43ck1XWlZncnM1MjgzX25ORUZZaDNFVWQycDZya1FiVll2MG9MdTlSWEVLcEE4alBHSzBfZmdEVHZPbGU4aGszbmxUWFlmdW1QaS1WS29DYUFFN2NPS21nQ0hGOFFR?oc=5) |
 | Democrat wins special election for seat held by slain Minnesota lawmaker Melissa Hortman - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOdW1MdGppQ0R3d3BFMkhfUU5UMmtLRVdDSXIxaWVfVExxQmtOb0x5dnFzcWdhaHowakFPbkQwYndnOGJzLVY1LUZPaXZ2NVBxZTE3TGl2THNrVUlBWE5DeUxlRmNyRnNzaGZiS2o1X0ZiWFpPbHFEbHZ1eTRyMGtma05BTEs1NTczdU0waDAtazRuZTlrMlVRdEdVQjFINEptdW5CS0ZPNlZuRjRMdnlIX1RqdW15WEVQSFNF0gFWQVVfeXFMUEZFM3BoaFQ1RkVqb3V1bjZYZEpPU1U4MDlZMHRDRVh4U28wZmhUN2tOWGcyNFhwSE5NYjBRZVNKN09NRDd4R0Z1bTBtRlVXbkQtRXgzZVE?oc=5) |
+| House GOP releases stopgap bill to fund government through Nov. 20 - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOdmNIc2dNWnJvNDZKd0J3WGFxTG5sd1hGSzJpUU43ck1XWlZncnM1MjgzX25ORUZZaDNFVWQycDZya1FiVll2MG9MdTlSWEVLcEE4alBHSzBfZmdEVHZPbGU4aGszbmxUWFlmdW1QaS1WS29DYUFFN2NPS21nQ0hGOFFR?oc=5) |
 | Abigail Spanberger gets show of support from 2 former GOP lawmakers in bid to be Virginia governor - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPMnY0dDVGWEVsc0pDUUFkLWJabV8zMGxaejVyZnJqQ1ZtVzFtd1NWX2xhN0I4WDJUQm43Rm9Jc0xTajVtbDdRN0Fjd3JKZ3N0REFITExpUUJvSzR0al9kWDU0dWRaVDBITEJ0YkNCdEtlSGJicERDTF8xcS1fU0plSXllUk5rUGxZdHZlNzdyY0JHRDhFemREMnZ3bWVfQdIBowFBVV95cUxPTGpEdWxJenZ6aWV4NmRVekt5d1NiMWhFblhkUzlhWk82MlBoMnR5dlRqWTZCMFozM1k4d2x4UVNNM2ptdGxQUzFaYXU2dWJFV0ZDQ2R1N3B4UFdySUtHU2RKM2tIQUp5T0M4QWJ3NkR1OVRJRzc0Nk1xOXhfVnBCSGkyVUpSTUlZT0JlenVtWURPMmVMbDBYQWh3UlU5YWNJd2pB?oc=5) |
 | Spirit Airlines flight warned to move farther from Air Force One over Long Island: "Pay attention. Get off the iPad." - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxOdloyaU1xV1ZOZnI5QmEwVGwzZHQ2TEZvUWxfU2hra2d1azlBMXZRZGcwVjRqcjJURjNRcjA4Q0g5T29Ca195Qmk4aDMtSUU5a21Fb291ZktmNUkwMGJpM0J5TGphcWh1dEk5NFh2a3REMVZRSTNYODRLR25Cb3FGTVFRU3ZiYVpkNm9ZWmwtZndELTFjbzg3TC1uSlFjQUZyWXpyRHQwVXl3bE1XVW5uVFNBU1lhdGxkRm1TMlE4M3ZFcEhtTW5ZZldnRWU3OHdjck1yYndRejJCd9IB3wFBVV95cUxNYjR5Zll5OV9TV3RXNVJNSUZhTHQ0TGl2eEd6SFRKVXdNQ1BjWHAwMlVWd1MyVG1WdlVyNVlmZl9pdVFIQ0tqTDlyaHRYRG1aLWpzdkx0bk43X3owSEFITnc3Z1lDR3Uwc2VLSkl4dE1BQktKTTJjb1Y5RGxiQWtUR1RZLVJBenpDbUNBdzFUYm9wdmdKRXpBMEFjdUNlUjEybU4zLUF0cGhRMHN6d3dNelJNa2RYT05rUnhvZTRWcWxRZjVXUjJoUjkzNG5obEtEcHBicGxvNjZ1OTFXUVBv?oc=5) |
 
