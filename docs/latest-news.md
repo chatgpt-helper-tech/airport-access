@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月17日 11:00:59（北京时间）**
+🕒 更新时间：**2025年09月17日 11:09:53（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Republicans plan short-term funding extension, daring Democrats on shutdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQODFpZTRlVVEtQUtYYml5SjZyUTFNVHdjb1lucXg3UDUzWHNwZG9ua095WlliV1NfN2RaTG5GS2hFclNObnltTFE2ZnEybmV1a1dXU0pCVmszeXd6OF8wSEMwbFlnYW5wdUYySDhhb2oySS1JYmZBSFZjZ19CSG1LZzVZUnVHbXJVUjNvSF9WX0ZtZzA?oc=5) |
 | Judge dismisses two top charges against Luigi Mangione in UnitedHealthcare CEO shooting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPcW4xZjZEeHpGMGJlYVgxeHFGNmJOSXJRT2lfTmxsc0Nqc0lRQkhFZHFKV0NfUjRUYjBEUkxUa3h0WWM3VzdFNlp2allvTDVPYzE4b0tyUTlvWUQyNVZ0b0J5blFYRHU4S3R3ZDhzLTFVcmNPRU8tSm5fUGlyRVFhWlJ5Y09uR2Ntc0V2dk1jODJ3UQ?oc=5) |
 | Trump Delays TikTok Ban Again as a Deal Takes Shape - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1MUFdZbmJPekRMUGtwOUJ3SjdoSnlOdFVvRFN0RnRNa1pRUzRTNnV4OU9fOG5jRGZqVjg2ZjdaSnBSOVpnUk1keXZlaXltdmt2MG53Tkc1YVJ0RmZ2MFFzM3h4RHUzRm5UOXJERGgyMWhhWmlrMF9JRHVB?oc=5) |
-| Trump discloses U.S. targeted a third alleged drug boat from Venezuela - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNMDN5b3ZnWEZNQ2Ztd3NnODljRmxmM3RQMFRTakRGV2ZBYzdDbmtYZGZLTVM1R1BabFFfVWRRclJxVVdSanYtTDNxLVFReFZQVVVHcGU4QmZmTGJYOUZiby0ybi1NemY2QjREai1CMVF1VG82Q2pyRTBxRHBpWE9ldnVva0h4YnVxNGVz?oc=5) |
+| Former GOP officials fear US strikes on alleged drug smugglers aren't legal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNdXJNdjdGd3k2TGlEcEZxMG1lV2N1U285UVJLUmV4cDdNQXBMN3N2Qi1ITWxvTnVjV2RJQVVwWlRpd1FnZGU5Zmsyb2VFcjZRTGNjY0NydS1YVUd4QmNsQk03a3ZKeGtMUWJWLW9faGtPaUMwRmgtdFpaV3hGRnNTczNCeXBIbFk5QkYwdmY1elM?oc=5) |
 | 'Tomorrow is going to be a big day,' Trump says as he arrives in UK for second state visit - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1NTWVmcUJLQkpwUzFjQllYQTFkOVNadHN2V19NbmhHRkYzTUFYNGlRaEpYNkstcVBsWjFKbVRyNzhQcndRQloxVGhsZlNpWjZhekh6Rg?oc=5) |
-| Democrat Xp Lee wins race to succeed Melissa Hortman, restoring Minnesota House tie - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQcGQwLUN5M2pYMkh2UGFuSk0zbUVoQUNIM1phX1dkbVRMTGExYjdsVHlUeVQtVFFsNndzRkZaUlVyclVVcU0zeGN6by00R1BsUjVhMlZkRW14MGNQY0s4NjhOYzZRZXRrQlR1MWtocmY4YTFUMVF6bDVMT3hhTHRpLS1KTnQybTZETkplYmcxU0ROckJJU0J3?oc=5) |
-| Israeli military begins ground invasion of Gaza City - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQWGdoSG04NEsxTHFITlZiZDVOWE1iZlo5X0FLUE9vb2NfMkFhOWlLYm12aGpsYlZhQkRILUcwN1o4QkVjZHk3Tkp0QjJ6SmlFTFJjRDNxWFl5N3dYRzgwcFFTaFpSOHR5T19GSzRRa0VJcFVTQkNsbV9TTVd4Y1J0MHV2WWRUeFAt?oc=5) |
+| Democrat Wins Seat of Slain Minnesota Lawmaker, Leaving State House Evenly Split - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNRi04QkcyVldFYkNKLThoYWNfN1lFYmhxOTJoVGJjazVvdENLRmtfLVhoZGc0UENZNzROZXhvV2dxUjVyLXYzaGo0bTBkeHBVekdyVU9fdEk4eVRhWWRiMTRRME43a0VyX2hwQ1UyODdvTHFYZXRXQk1XZVRyZFdJampB?oc=5) |
+| Thousands of Palestinians flee as Israeli bombs rain down on Gaza City - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOYXhiWkhGS0hMd2VpTm9TU1ZOQkVTQUppZFE3UnFzQWZuY2hSLS1SWWM5VGlqUENNaW9rd3I2Rm5MYVpmYVJLMHZXUlRNMnBxRHZBOGtWMUtXYWNtSlpZVXNWb2ZZQkx1MmhCR2pDc29MOUxGaUlUbzk2NzMwOGFlcmkwWkpMSFJyLU9oSldYRU15VXFicUhsc1NLN2YxWnM0Q3M0UzZtMXpGcmtXQkpCd9IBtgFBVV95cUxQaEk5djMwV0l6OHZDZ3AzaE5IQ2VES3hhSTAzOWZXSk9ZRzRMeTdhb0p4dmFENWNnZlpDcFE2cmRtU3dVakFjRG9VZDI1amI1ajQzMldPcGcyVEw1Z1ppNUhzcVJoUDkwQTZoa1p6Vnl5Qm5iTE1JSmg2cnpVYU8yYXZieTg5SEE5a0ZNQW1lalY0WnUwdGR2aXNXdEdwSktLRUFNbG0yT3I2U2JRVGdtVzJLUU5xdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
