@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月18日 00:41:40（北京时间）**
+🕒 更新时间：**2025年09月18日 00:49:24（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Kristi Noem Joins ICE Raid—US Citizens Arrested by Mistake - Newsweek | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9vWTBzVk9yTllQZmhTNDhfS0UxSUw4dVprMFptNHNGNm8tb0dFNXBmbE8zS3kxdmxCVzczU3NmcHlHY3BqbE9lSXFMc2VrSG9iUTFtSko3T2JJX1hwZWYzZE84N0hpUWdKX1ZQVThIaw?oc=5) |
 | Republicans are honoring Charlie Kirk’s memory by declaring war on the First Amendment - The Verge | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPblFIQkk2a0l0Qm55MWdESDdXdGpCZ0dBb0R1WkRBVjZ2SDNrTFl5V1lpWVNCNUtBMVFpeDVGR29ZSnpiNngxTFRVV1hCRWJ6UWlscnpBcW9ZZi1RajZpOG1qbzg2VzBCVzJmTnNQQzZoMHFaYnNVSklTZDF2SGFFaUZQQzdESWpRRTZtSnVtVjJyOGNVSDdQSUd6eUJlUFU?oc=5) |
 | Kash Patel says court orders bar him from releasing the Epstein files. Judges have said otherwise. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOeUxkMXZvLUVTQi1pZnVoWUVlLXg1UUFqbXZhVUhkVElKMGRTWlFnUlNNWWhNMkVSRGhnVXFiYzIzSV8tejFXSnR6ajBwcFUxR2RCQlNna2V6RHRGZWpyT183ZUZUazNCV3drd3hBZWQzWjdkUFBxQ0N1WEFPWWJ1ejNnRlNpY2hsTnlaREZ0TW1RRWp5V1l6MXpZZFZsRUFp?oc=5) |
-| Thousands of Palestinians flee Gaza City as Israeli troops advance - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFB3Sk52V05lX09WOTQ4ekREZXhVRjFXcDc0RkF4Q3Rhd0gyYkQ3OUUtMmc4MmJWSGhvRWZMRFhWWWFiS0h5R08zamtqYVlMNTdxRVRaLVhGTVU4d9IBX0FVX3lxTE9OSlhFLVA0Tk8yNHRweThnR2hhX0hwa1d2T1FzVU1GYTE2ODlRZE8yX3lJU1Q2b19iS3BYT0gzSm1wVzNfQWRYQlpUSm5OanJDZzZRUVgteGFxeE5zMnow?oc=5) |
+| Trump’s threat to target ‘radical left’ after Kirk killing raises fears he’s trying to silence foes - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQTUFhei1WSWtFeTRVUzlkR2VMNkJvUkNFMnlEM1Rob2t5LXJrNkV4T1UxNWxIQU4tTFFFdmRFY2tvNzVySmlLQXdPbFpuOUVoempmdjNaUmlxQ0hJdGVCV2pBblh1UTY4UWxWclRCRFliN0J2UVZhOFU3TXNUdnZwNWEyQTRJRUpxSHBJemFuV1licUw2bm1LTk1DeXNKTU4wenVrYUhiQ0pzdld0MzN0dU9B?oc=5) |
 | Obama says Charlie Kirk assassination was ‘horrific’ and praises Utah Gov. Cox’s response - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPbzVMUUphVVpyR1lYeGl5Tjd1X0NGekl2VlJCRjlYQ3d6WXU1UW45dHlKQlAyeG5sbTlyZGVvY2tSM1pyWDB6cGtDbzl6WXlKQ2hfRjBIOWw3QTNCYmxWeHNYb1JVSDFpRloyS2dXaWdOZHdRbjE4c1Y0ODZqNmM3a2VqOA?oc=5) |
 | Democrat wins special election for seat held by slain Minnesota lawmaker Melissa Hortman - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOdW1MdGppQ0R3d3BFMkhfUU5UMmtLRVdDSXIxaWVfVExxQmtOb0x5dnFzcWdhaHowakFPbkQwYndnOGJzLVY1LUZPaXZ2NVBxZTE3TGl2THNrVUlBWE5DeUxlRmNyRnNzaGZiS2o1X0ZiWFpPbHFEbHZ1eTRyMGtma05BTEs1NTczdU0waDAtazRuZTlrMlVRdEdVQjFINEptdW5CS0ZPNlZuRjRMdnlIX1RqdW15WEVQSFNF0gFWQVVfeXFMUEZFM3BoaFQ1RkVqb3V1bjZYZEpPU1U4MDlZMHRDRVh4U28wZmhUN2tOWGcyNFhwSE5NYjBRZVNKN09NRDd4R0Z1bTBtRlVXbkQtRXgzZVE?oc=5) |
+| DOJ impeachments could continue Democratic retaliation against Ilhan Omar censure push - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPVUVOdzRXTjVHeWU4WTFPQjRUUlprRDlKSll3dEVwckpEYTdfV29UQU13OGtyaWdBY2FJTWtwWERqM1pSLVJZNEpXY1B1WmhfamNoMUEybXd2b2Rlc2s4d2xieVVEUW96NEo1UDl0TnhRczFUUjFyNEViSTFRaTgxWVpvUlF5X3FJMFphak5IeVRvam1nVjNnN2xKYk5raW5NZkJWZldYZkQ?oc=5) |
 | At Home and on the Seas, Trump Expands Use of American Force - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPUmppcUcxbkQ4NDVxVWQ5Zk96MnZXb0hzWEpsb19YeWVQTHAzT2FLWXM1V1lXLWcxYU5VVFdnS1BIYTRQZnRxZzd5NkxuZ05yTEV3MjhQU0EwQ1RhTlhWRXZ0ZXE5cE1UZlhYMUhBOGxUNVNUMnVBVTI3THFpTzk4d2s2aHJFQThXNXNjZE1Cano?oc=5) |
-| Photos: Activists beam Trump, Epstein images onto U.K. castle during president's visit - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNM1RCTVg2WUtuUzlBejl6cGI1Ty1seDU1RXY3V2NEUXdfUk80MjFGR2JvbmF5M2JNYjhMbmxFTUJyMHowVGVmZVhjbzFUQ3lSRjZBOUVwN1pUNnlfVWJuWUdvZG9QbnRtcUpac3V5S01NSF9sd2ZmS0NMR1ZOOVhOM2ptUGQ5OEFTa3lzWWhUUjI?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
