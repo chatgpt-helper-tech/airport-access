@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月17日 16:57:18（北京时间）**
+🕒 更新时间：**2025年09月17日 17:01:50（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | Inflation remains at 3.8% in August as food costs rise | [阅读全文](https://www.bbc.com/news/articles/cderznjj4r7o?at_medium=RSS&at_campaign=rss) |
 | Charlie Kirk suspect confessed in hidden note to roommate, prosecutors allege | [阅读全文](https://www.bbc.com/news/articles/ckg2r8lvjn2o?at_medium=RSS&at_campaign=rss) |
 | Madeleine McCann suspect freed from German prison | [阅读全文](https://www.bbc.com/news/articles/cy4rydzmrmvo?at_medium=RSS&at_campaign=rss) |
-| Fake medicine almost killed my cat - here's how to keep your pet safe | [阅读全文](https://www.bbc.com/news/articles/cy9n0y34z14o?at_medium=RSS&at_campaign=rss) |
+| Rescuing my poisoned cat cost £3,000 - here's how to spot fake medicine | [阅读全文](https://www.bbc.com/news/articles/cy9n0y34z14o?at_medium=RSS&at_campaign=rss) |
 | New £22bn AI deal could rapidly boost UK economy, says Microsoft boss | [阅读全文](https://www.bbc.com/news/articles/c7016ljre03o?at_medium=RSS&at_campaign=rss) |
 | End of the road for manual drivers? More learners opt for automatics in tests | [阅读全文](https://www.bbc.com/news/articles/c80gk97xe85o?at_medium=RSS&at_campaign=rss) |
 | Ben & Jerry's co-founder quits over social activism row | [阅读全文](https://www.bbc.com/news/articles/c4g58xx1eero?at_medium=RSS&at_campaign=rss) |
