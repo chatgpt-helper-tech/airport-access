@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月18日 00:57:53（北京时间）**
+🕒 更新时间：**2025年09月18日 01:01:37（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | Obama says US faces 'political crisis' after killing of Charlie Kirk | [阅读全文](https://www.bbc.com/news/articles/c9dxge2ep4xo?at_medium=RSS&at_campaign=rss) |
 | Tests show Navalny was poisoned in jail, his widow says | [阅读全文](https://www.bbc.com/news/articles/c5ye0x28vzqo?at_medium=RSS&at_campaign=rss) |
 | Jaguar Land Rover supply chain staff told to apply for universal credit, union claims | [阅读全文](https://www.bbc.com/news/articles/c784nwvj1l3o?at_medium=RSS&at_campaign=rss) |
+| EU proposes curbs on trade with Israel over Gaza war | [阅读全文](https://www.bbc.com/news/articles/cvgr4nj7405o?at_medium=RSS&at_campaign=rss) |
 | Melania’s hat, Kate’s feather brooch and other standout looks so far | [阅读全文](https://www.bbc.com/news/articles/cy857ddpjp4o?at_medium=RSS&at_campaign=rss) |
 | Thousands gather in London to protest against visit | [阅读全文](https://www.bbc.com/news/articles/cj9zve281k3o?at_medium=RSS&at_campaign=rss) |
 | What is the President's schedule while he's in the UK? | [阅读全文](https://www.bbc.com/news/articles/c8rynvlm6zjo?at_medium=RSS&at_campaign=rss) |
-| In pictures: All the best images from Windsor Castle | [阅读全文](https://www.bbc.com/news/articles/c4gqd70v496o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
