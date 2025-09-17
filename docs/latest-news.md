@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月17日 23:09:49（北京时间）**
+🕒 更新时间：**2025年09月17日 23:16:05（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Democrat wins special election for seat held by slain Minnesota lawmaker Melissa Hortman - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOdW1MdGppQ0R3d3BFMkhfUU5UMmtLRVdDSXIxaWVfVExxQmtOb0x5dnFzcWdhaHowakFPbkQwYndnOGJzLVY1LUZPaXZ2NVBxZTE3TGl2THNrVUlBWE5DeUxlRmNyRnNzaGZiS2o1X0ZiWFpPbHFEbHZ1eTRyMGtma05BTEs1NTczdU0waDAtazRuZTlrMlVRdEdVQjFINEptdW5CS0ZPNlZuRjRMdnlIX1RqdW15WEVQSFNF0gFWQVVfeXFMUEZFM3BoaFQ1RkVqb3V1bjZYZEpPU1U4MDlZMHRDRVh4U28wZmhUN2tOWGcyNFhwSE5NYjBRZVNKN09NRDd4R0Z1bTBtRlVXbkQtRXgzZVE?oc=5) |
 | Government shutdown fears intensify as Democrats stiffen resolve to block GOP spending bill - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE00LTlabDFXLU8zMVc1aW11UDJGRDN6R2llYjlkWjUxaG9qMGY5a1ZwcS1rVjlJNnNkWWx0cVRneUtzWFNCSl8wZnlPMHJjb1VJdktCQy1aclBrbXRkbHVRemc4WXQ2MkxjTG1TWDRQbXRJVU9wTEZn?oc=5) |
 | Abigail Spanberger gets show of support from 2 former GOP lawmakers in bid to be Virginia governor - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPMnY0dDVGWEVsc0pDUUFkLWJabV8zMGxaejVyZnJqQ1ZtVzFtd1NWX2xhN0I4WDJUQm43Rm9Jc0xTajVtbDdRN0Fjd3JKZ3N0REFITExpUUJvSzR0al9kWDU0dWRaVDBITEJ0YkNCdEtlSGJicERDTF8xcS1fU0plSXllUk5rUGxZdHZlNzdyY0JHRDhFemREMnZ3bWVfQdIBowFBVV95cUxPTGpEdWxJenZ6aWV4NmRVekt5d1NiMWhFblhkUzlhWk82MlBoMnR5dlRqWTZCMFozM1k4d2x4UVNNM2ptdGxQUzFaYXU2dWJFV0ZDQ2R1N3B4UFdySUtHU2RKM2tIQUp5T0M4QWJ3NkR1OVRJRzc0Nk1xOXhfVnBCSGkyVUpSTUlZT0JlenVtWURPMmVMbDBYQWh3UlU5YWNJd2pB?oc=5) |
-| DOJ impeachments could continue Democratic retaliation against Ilhan Omar censure push - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPVUVOdzRXTjVHeWU4WTFPQjRUUlprRDlKSll3dEVwckpEYTdfV29UQU13OGtyaWdBY2FJTWtwWERqM1pSLVJZNEpXY1B1WmhfamNoMUEybXd2b2Rlc2s4d2xieVVEUW96NEo1UDl0TnhRczFUUjFyNEViSTFRaTgxWVpvUlF5X3FJMFphak5IeVRvam1nVjNnN2xKYk5raW5NZkJWZldYZkQ?oc=5) |
+| ICE officers in fatal Chicago shooting were not wearing body cameras - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxONUtvZkg2SmV2MEgzR0Nrek9WX1BQZXNrVU1pUTJxT2pvWmgxNU5wdFUtMHJNYUNjMFBtX29DMGpSSTkycHhzMzNKTTRPY3c3OXV2c2lHOUtuSkp5SzNScmlQcXR1X3dHWWt5bF9kcHR4dEpHRU1UVVFJU1g3dWhmdGxYZ3pBY0Z5ZDRVQllDNEtmYXU5cHA2b1ZmeTU3c0dZa21CdTJ4eUNTNldu0gFWQVVfeXFMTVV5U2dTZUlLc1lveFJac3l4cUZKbWp4dXpBR0x1S1pKajZTR2ZBbEY4a3hMcmVaaVJFMWVGSGVOZ2NqMmlNZkxNQ1V4ZlRiT1ZRTDluaHc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
