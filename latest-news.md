@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月17日 22:16:25（北京时间）**
+🕒 更新时间：**2025年09月17日 22:25:41（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Photos: Activists beam Trump, Epstein images onto U.K. castle during president's visit - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNM1RCTVg2WUtuUzlBejl6cGI1Ty1seDU1RXY3V2NEUXdfUk80MjFGR2JvbmF5M2JNYjhMbmxFTUJyMHowVGVmZVhjbzFUQ3lSRjZBOUVwN1pUNnlfVWJuWUdvZG9QbnRtcUpac3V5S01NSF9sd2ZmS0NMR1ZOOVhOM2ptUGQ5OEFTa3lzWWhUUjI?oc=5) |
 | FBI Director Kash Patel faces 2nd grilling before House lawmakers - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNVTdGVEFUb1g3Umx1Zzk2S2V5Y0hwVG84NDYzMjh0WllLb2hNUkYzUnpORk93dTBxUXJrVzRvNGFVMjJ3WFlMdmpnSjFwaXlzT2RMOHB4S1BPTUg3NkNpQU1zcEhPal9NejRkZ09LeHhxRk9ObTJoV3Z6Mmtwa3pxeUY0OHAxaGZZcU1ReGZCWTBsenFsdGotQmtFNEtKMThpUy1IRHB2b0fSAa4BQVVfeXFMT2xyVHNaekxNNWo3WnNTa1dWWFZLdE5JYnF6ZFBaRU9JV2tOeXhUMVVhVUtBT1RTYXpScjlrVnUzZDhSbWVZMk80Z2NQdzlUZmFJNk1tN3k4Wk1BTzRDS2FlVDVRSWFxQUc4NXIybk5PZGZzZmdYNjM3TXZPVU80RUNZRXJBejhvSk9aeDduYm1qaFZrdzBpNlRZaHZQNFZ3TDBlVWJQeXB0Zm50dmF3?oc=5) |
 | Democrat wins special election for seat held by slain Minnesota lawmaker Melissa Hortman - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOdW1MdGppQ0R3d3BFMkhfUU5UMmtLRVdDSXIxaWVfVExxQmtOb0x5dnFzcWdhaHowakFPbkQwYndnOGJzLVY1LUZPaXZ2NVBxZTE3TGl2THNrVUlBWE5DeUxlRmNyRnNzaGZiS2o1X0ZiWFpPbHFEbHZ1eTRyMGtma05BTEs1NTczdU0waDAtazRuZTlrMlVRdEdVQjFINEptdW5CS0ZPNlZuRjRMdnlIX1RqdW15WEVQSFNF0gFWQVVfeXFMUEZFM3BoaFQ1RkVqb3V1bjZYZEpPU1U4MDlZMHRDRVh4U28wZmhUN2tOWGcyNFhwSE5NYjBRZVNKN09NRDd4R0Z1bTBtRlVXbkQtRXgzZVE?oc=5) |
+| Capitol agenda: Dems dig in against the GOP CR - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi2wFBVV95cUxOTW44aGlHbUxGTklDcF9VLXNQZHJWMlk1c1JkYjNUQ3YwYXluckVfa2g4bmlKSTFGbDJwMnBjMXlpSkZHNXBhU25Pc19lakZad3o2Z3hic3RCaFhFRmhvdzhPZ19FY1hpV1dQeHhJdnc0MmdCUTEyak5GdGhwY3VyanE0YUMzUExkSHFMVTVNODZkMDR0a1ZBaENIOTVQODcxSGViMlFkX2xqdHcxcFl4TFV4aGJlemlMbkpJOWp4dFhtTFMtT3RsLWQ1RDFReUhFSFJLdjhTUDdIVlE?oc=5) |
 | After Kirk’s Killing, Obama Says the Nation Is in a ‘Political Crisis’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE4yaDVmc2RTZTFEbHJUQkJzQnpPbkRJWEV6RTg0TTB1VVJtb3g3MHJOMEJPNzdhUEJPcVEzTl82c3RKcC1BYjdiTldpME1OekpOZ0FIVnRPclFNU3A3T0s2dnhMUm52ZDFMbjJ2VU5aUUljaWkxaVE4VEdxWnJZeEE?oc=5) |
-| Abigail Spanberger gets show of support from 2 former GOP lawmakers in bid to be Virginia governor - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPMnY0dDVGWEVsc0pDUUFkLWJabV8zMGxaejVyZnJqQ1ZtVzFtd1NWX2xhN0I4WDJUQm43Rm9Jc0xTajVtbDdRN0Fjd3JKZ3N0REFITExpUUJvSzR0al9kWDU0dWRaVDBITEJ0YkNCdEtlSGJicERDTF8xcS1fU0plSXllUk5rUGxZdHZlNzdyY0JHRDhFemREMnZ3bWVfQdIBowFBVV95cUxPTGpEdWxJenZ6aWV4NmRVekt5d1NiMWhFblhkUzlhWk82MlBoMnR5dlRqWTZCMFozM1k4d2x4UVNNM2ptdGxQUzFaYXU2dWJFV0ZDQ2R1N3B4UFdySUtHU2RKM2tIQUp5T0M4QWJ3NkR1OVRJRzc0Nk1xOXhfVnBCSGkyVUpSTUlZT0JlenVtWURPMmVMbDBYQWh3UlU5YWNJd2pB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
