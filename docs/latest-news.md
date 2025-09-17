@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月17日 16:48:13（北京时间）**
+🕒 更新时间：**2025年09月17日 16:57:18（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Chris Mason: Trump visit puts focus on pageantry after PM's tough fortnight | [阅读全文](https://www.bbc.com/news/articles/c80gk8j8epvo?at_medium=RSS&at_campaign=rss) |
+| America's unofficial party house where Trump spent the night | [阅读全文](https://www.bbc.com/news/articles/cn0x2vxl7gjo?at_medium=RSS&at_campaign=rss) |
 | Inflation remains at 3.8% in August as food costs rise | [阅读全文](https://www.bbc.com/news/articles/cderznjj4r7o?at_medium=RSS&at_campaign=rss) |
 | Charlie Kirk suspect confessed in hidden note to roommate, prosecutors allege | [阅读全文](https://www.bbc.com/news/articles/ckg2r8lvjn2o?at_medium=RSS&at_campaign=rss) |
 | Madeleine McCann suspect freed from German prison | [阅读全文](https://www.bbc.com/news/articles/cy4rydzmrmvo?at_medium=RSS&at_campaign=rss) |
