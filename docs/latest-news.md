@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月17日 09:16:40（北京时间）**
+🕒 更新时间：**2025年09月17日 09:24:07（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | Fake medicine almost killed my cat - here's how to keep your pet safe | [阅读全文](https://www.bbc.com/news/articles/cy9n0y34z14o?at_medium=RSS&at_campaign=rss) |
 | 'Heartbroken isn't the word' - Hatton son's tribute | [阅读全文](https://www.bbc.com/sport/boxing/articles/cly9rl97p30o?at_medium=RSS&at_campaign=rss) |
 | End of the road for manual drivers? More learners opt for automatics in tests | [阅读全文](https://www.bbc.com/news/articles/c80gk97xe85o?at_medium=RSS&at_campaign=rss) |
-| Acting legend Robert Redford dies aged 89 | [阅读全文](https://www.bbc.com/news/articles/c1dqe9ey0kgo?at_medium=RSS&at_campaign=rss) |
 | 'The bombing has been insane': Palestinians scramble to flee Israeli assault on Gaza City | [阅读全文](https://www.bbc.com/news/articles/cly0qnnx5w5o?at_medium=RSS&at_campaign=rss) |
+| Two Labour MPs denied entry to Israel | [阅读全文](https://www.bbc.com/news/articles/cge2gweqzjno?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,9 +30,9 @@
 | Judge dismisses two top charges against Luigi Mangione in UnitedHealthcare CEO shooting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPcW4xZjZEeHpGMGJlYVgxeHFGNmJOSXJRT2lfTmxsc0Nqc0lRQkhFZHFKV0NfUjRUYjBEUkxUa3h0WWM3VzdFNlp2allvTDVPYzE4b0tyUTlvWUQyNVZ0b0J5blFYRHU4S3R3ZDhzLTFVcmNPRU8tSm5fUGlyRVFhWlJ5Y09uR2Ntc0V2dk1jODJ3UQ?oc=5) |
 | Memphis Residents Welcome President Trump’s Action to Restore Public Safety - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxONnBNNnl1QWNyYnlFaWdWbC1hMHJXZ3d4bXRDdl84eGJUSXQtblRoNjl5cFM2cGlaeVF3WEpIaHltc3VyRnR5LTlHMjNGaGVaN0tZVHNtcWhxM3pQTUU2U1lDTkNNR0xsaW1XRmEtekFJOXI3c3I1Rm43d1JKbDVWOWxtNUJtRDNlSElKUDFTZVI4OHBQR1B2aTU2UWM1a0dRSmtYODBpX05TbHZtMVBwekhwMTl4a0hscG5z?oc=5) |
 | MAGA debates how to respond to Kirk’s killing - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQZHhZNmJnRFQyU0l6aXcxb2RaVFVJWlh4cVNBNW8yeXNUNElobDFoMzE5LWk0UVplUnVCTXFLSWxUaVdndmxWRUJhbmZpazNEWVVUbzRjdGh3YXJCeXNaa2hSa3FtZWlKRUpWbTFxRi11azJ4dWtLa3JKX1JWLXFWdWpKVmlOcmRNZ3RScFctU3U4NV9WWndjVFBR?oc=5) |
-| Republicans release 7-week spending bill as Democrats warn of a potential shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNM3NkQXB4dElXWUFiQjZyRmFkaEp2dE14QlJXa1pQZE1HeVdHLVFWZERQMTAzUVc1SDZRYUlNZnk2R0x2Q19GM1RocENXaDZVQTdiRXl5MmJ0bHBxaUtwZ3BaUFRlelJGN244a2o1b2VvdlVaczV3YXNqU2FWSkd1MTB4aHI?oc=5) |
-| Trump heads to U.K. for carefully choreographed state visit - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPWklfQjBGaW1jeTF0ejZlNTZMLWpZWFZmQ2ZweEtyMFRPYW1yRkdQRnJIaGV0UWI3QWpJRWRRVHVaellGN2Q3RVhmU1FzMzNCMHI4UWg2blRJTjFtOVlwR0tnakdtRk9qWC1XcTZHTXRKYndqUHo5UjNuM3VsdWFjUWs3NEdjNkZ0a2loRkVn?oc=5) |
-| The people who have lost their jobs for posts about Charlie Kirk - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1SSm9XWlBaQ0JFaHd1OUo1YzdpeFhzbVpMVXpzT1ozekZkOXNJN1FSYlo2b29VUnUwSE14QnJ2YV9TbDh0Z1E2U25tNXF5T3N1QjlGOGJKdi1LTmlxSDM1X1B3dFBjRHFCRjl6bDZ4Z0VteDEtUEdWRXl1OA?oc=5) |
+| More employers fire workers over Kirk posts as pressure from right mounts - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPUGtsZFkwUmlFTWRZWTFFMXRtRWl6Skh4SWcyb0JYWE0yMUJZbUJUYU5YQVczbkVHUWlqZEw4YS1zN3p1cDBUaFRUcEUtN3RpcnVKRnJnQ2FyR1ROeXVBQ1FmcUNPSlZnaV80WjIza2ctRmU5MDdPSFZ5ZkRuemV2SzJTQng0WTlMOUVxQWFuVlpBejdXdWEtUFFOcS04UDgtVzUxZw?oc=5) |
+| Democrats Oppose Stopgap Bill, Raising Odds of a Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNRkZsMjhVQ2RzNC1HeUZuTXlqWEIwalIwcURhdHVoWjhKaks1dEVKaVB2bHVfbHlJLTMtSkk4U1hkZEItYk5GOHJPV0V4UVpPUS1MVVFvQ3Nvd2ViZXpvX0U1RVpLQlRoQW1VWGFfSlFtQ0U5Y0N4RFhoR1ZncFFsZk1vQlFRODRtbHFZ?oc=5) |
+| 'Tomorrow is going to be a big day,' Trump says as he arrives in UK for second state visit - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1NTWVmcUJLQkpwUzFjQllYQTFkOVNadHN2V19NbmhHRkYzTUFYNGlRaEpYNkstcVBsWjFKbVRyNzhQcndRQloxVGhsZlNpWjZhekh6Rg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
