@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月18日 05:09:16（北京时间）**
+🕒 更新时间：**2025年09月18日 05:16:21（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Officers involved in shooting in Pennsylvania, officials say - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQOVlqQjFFc2x4RWdHRHR1WTBoNUpaVG9zSW5DQXFBUmVjUHp5bm0yblFiUzgtdkNJQl9jdUZiempWX1A0THA0Z2QyTFNMSE92REhHU0dKN2Z3MVA5RmtqX3BhR280YVlPV29Rck9xbloxUDN1b25HNGFVWmw5SzRncXFGRjJ0bzVVUkpicVE1ODMxQ1ozemZZcWFn0gGfAUFVX3lxTE11MkR2dGJzMzQ0ek1qQV8xMEdiX3dZam9MZTBGb3gwYWVNbDlDbjRrZjZLVE1Fa0JISG16cU1ySDJfRzVpU2ZWNWxxTmxJNnZtNm1lR1pmVXVzOVV4dWNDcU1tOUFMRGo3NmRqeFM3MU95bkpkNWlOOFZuWWIxaHM2REdNRDAwVV9hazRBbXMwY1F4bDBUUTJueURmdWYxOA?oc=5) |
 | RFK Jr. 'wanted blanket approval' for changes at CDC, fired director testifies - NPR | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQODVpUk5rNlA1bDdyNWpEX1NZbENRMVA2bGlTakQzQXN6SlduYTV6cUdhZFpFUFRxWVhFTFFEWnh2ZzVldFRxN3dxQVFMQzdvRFVkWGF4X3RiLTRPWWtRdDQtUTBsQnJHRGtmMjlnbW1qMDQxcEczMzBpZEs3VXRkN3ZPclo3ZkVIYnJpN2N3cGM3Z1cyc0lBZ0ppZTNWMDhsVFRWcklROXNON0V0Vk43MU1R?oc=5) |
 | Trump, Vance to headline Charlie Kirk memorial - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOQ3VQRk45bVlrcVpiQkNlWkphUXFrRi11cjR0azcxZ0Y2UmMxek4xa1czOEEwLThVTzh2WjNvanJjektOLVpJR2N2cXRSMWZXakZEX3hXVXVSMk1LSlZUUXpWSGN5ZlZXb3psZktfQUxRZUgxaW51d0ZRU2kyQnZ3NGlJeGxWWDBKLXRB?oc=5) |
-| Officers involved in shooting in Pennsylvania, officials say - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQOVlqQjFFc2x4RWdHRHR1WTBoNUpaVG9zSW5DQXFBUmVjUHp5bm0yblFiUzgtdkNJQl9jdUZiempWX1A0THA0Z2QyTFNMSE92REhHU0dKN2Z3MVA5RmtqX3BhR280YVlPV29Rck9xbloxUDN1b25HNGFVWmw5SzRncXFGRjJ0bzVVUkpicVE1ODMxQ1ozemZZcWFn0gGfAUFVX3lxTE11MkR2dGJzMzQ0ek1qQV8xMEdiX3dZam9MZTBGb3gwYWVNbDlDbjRrZjZLVE1Fa0JISG16cU1ySDJfRzVpU2ZWNWxxTmxJNnZtNm1lR1pmVXVzOVV4dWNDcU1tOUFMRGo3NmRqeFM3MU95bkpkNWlOOFZuWWIxaHM2REdNRDAwVV9hazRBbXMwY1F4bDBUUTJueURmdWYxOA?oc=5) |
 | Thousands protest against Trump's second UK state visit - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE95YVJYQ3NKTThoVXhZd05OU2s5cGU3VEM3MzUtQm9MTm8xejNZYUNDaWVsMzdhZEtVZFFTd3QteW5vRE9PcW5xbnQteTZMa2J4elpwYkwxUTlBQdIBX0FVX3lxTE42WEtzQnBxU1lXZzY2bVNYR1R2LTM2elVsMUd3S2w0LU5ZWEgwaUlKOVVyQzVLZXhweWlwanRCQzQ1OXRvSWFRVG1SV01ZY08wbUlNamNhTmNRYUJGQk5V?oc=5) |
-| Obama says Trump deepened US divide in rush to ‘identify enemy’ after Charlie Kirk shooting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxONk53ZURIOGEzQmJqaDV6UWU0VlAxWDhqU2tNb0w5TjIxMVdQUDdvVTFpR3JvZGUzRF9NZGZuZ3lTWUpqMjlCNXdOSGp2a0p2TTJuVl9PQ0RlVTJlcE5rSU1mNmR6dTNtdEZQNENwZVllT1hoVDZUTkZiME5jN2RKY1M2dU9SRWpCdTFGRGtn?oc=5) |
 | DOJ impeachments could continue Democratic retaliation against Ilhan Omar censure push - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPVUVOdzRXTjVHeWU4WTFPQjRUUlprRDlKSll3dEVwckpEYTdfV29UQU13OGtyaWdBY2FJTWtwWERqM1pSLVJZNEpXY1B1WmhfamNoMUEybXd2b2Rlc2s4d2xieVVEUW96NEo1UDl0TnhRczFUUjFyNEViSTFRaTgxWVpvUlF5X3FJMFphak5IeVRvam1nVjNnN2xKYk5raW5NZkJWZldYZkQ?oc=5) |
+| FBI director says he's never spoken to Trump about the Epstein files - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNZ1R4Sl9nb0N3VmlGaG0xOTBSYm5Hc0tobTRuUTdqaHNjUlVyMDh2Xy1Ea2dObzMzWnk0T3NpY0JnYzA3SWItdnF4SGlNWmJVS2VkMVNENlA2OVpnbnRVZjg2M2Fvb1kzQjVHNWJUT2ZFV0Y3UFQ4bWxpY0p5RUlxMUZB?oc=5) |
 | Mississippi university student found hanged on campus with no signs of foul play – but family raises questions - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPcS15WDJIMU5YbGN1TGxPR0J0UEVBblpoRlB3OGp5SzZreUIyY2xMOGFJQzJKVnprcG10QTc2NWFfYVNtQm52aWhSd1pWYk83ODMyb3MyNTlIZ0c3LVJoamRzNVhzbDhCSHF3MXRCVUxLaDlzbU1uNlBSaHFiNlJaQzNrWG9MS3l1VXBfNGRpdmR5bFBMYTFPQVF3?oc=5) |
 | House eyes Friday vote on stopgap as partisan tensions flare - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNS0FXc1ZldDhPQzFzalhFVnBWczFLX0pwOWgtaDIxakRwcXBqek05X200b25ZMG05aEp1OEhldmJSQmRCQ2U2ZkZ4Wll0by1sa21XZVZkd2JSR0ZNcFMwOWdHMWJMRFFobS1kY25teDVzNWQ5aW9WYTlubXJhVGh1U0k4WF9BQQ?oc=5) |
 | Pam Bondi faces rightwing backlash for saying she’ll target ‘hate speech’ after Kirk killing - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOeW5GRWRrN2VOQ1BmZkVMWV9wS09PS04ta1l5b1lOSHFFRnJ6dUxDakMtb09DRnJBalNQaDk1c3E1R0dqLWdZUFZGSDF1WGxpUk1tRWN5YTJEOTZfS1JSVGM4WmJ3MVNsZndiODVkSkstUEdITEhLa0lHYlFxSDY2Ny1pakExcGcwZGc?oc=5) |
-| At least 8 troops punished for social media comments about Charlie Kirk’s death - Task & Purpose | [阅读全文](https://news.google.com/rss/articles/CBMiZkFVX3lxTE4zLUdic0x1eXNWcXM1TGlzNDMzVHpibFpMbEQ0cXNXZENCcUt0UnB3OU9ScFcxSHhKSy1LUzBrQnRaTzMzTjJHdklxVlFoTTliOFI0T1Rud0FLUVNISElRNHZ5NWJzdw?oc=5) |
+| San Francisco Supervisor Joel Engardio ousted in decisive recall election - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQRUUxUXlJeS1SVGt1c0V4N1RocDdLOEFzNXBybVRKQkthRG01NXBkTHVabkZoZlNWeHA3ZllRbXZvZW0zYXZVMC1rTjJPQ19VVDUzRElza1pmOVVweWozal9kS2VXcGZhQ2VWZ1Jod3NpY1NORzVjSzJ3bzA1YmJ2a29HczllMlhHVTVrbG5rNmRjS1hp?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
