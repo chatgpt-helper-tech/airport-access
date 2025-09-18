@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 01:17:17（北京时间）**
+🕒 更新时间：**2025年09月19日 01:25:47（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Capitol agenda: Democrats steer into a shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxOTFpiTUlrcVBBNFhKaXc1RjJGcS01S1dUVzFKOWp1NWVZTHFKMXZEWXM2aWJhQkxianFnbnRQZnZrTFdySHVZdDM5Z3V0V0dfT3UzZVFBRHhZd0syQTcxZ19lNXJDMmNCRjMwTzFWWW1IVWZhTUZOTy1KZ1M5MmNlM1dvMnlrRzJ5SmRqbV9fT2Y1VElMOG1nX0JkVzRSZExkNHVfUjJmUDJoQ3VoTTFHUkZfd004YW16RXVxQzNTajBoUXdMSUZSNF9JaU9lZw?oc=5) |
 | Trump admin’s basis for deporting Guatemalan kids ‘crumbled like a house of cards,’ judge rules - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQVEdNd3ZDTmtBblN5YVZXYlhWaklNeVhhYkN6S2RfOFJubE5ZT1NpOGZaOEQ1ZEMtZVFwVFZuTzFqUnZWeHRFdkRiUzlVelNxaFlzdEhYZzdURHJydEdTZE9CamZFcUUtSTVpTlpMdWZDbnFwOUYyNi1GQmdlYmhPUkpIWnI3dFFNb3JFS2VUNmxFQQ?oc=5) |
 | US immigration judge orders Khalil deportation, his lawyers say separate ruling protects him for now - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPTjE5U1diMFZoWGdUTDRXTHlna19Jc0JVaDJoQnRsbWVZUThuNVI4WUpCZmtlaTdYc3RJYUZpUHE4TlVTaV9PQ21IRXd0NTVPTXdfUjYtbzV0Y1o2WGxHWGJoazJZTnBwdGpnZ3JqbWxEWjViRVJhajZsSFZVeERxbmtGbkJVMlBjbThhVHR0M3I5VXFtTGRUWC1fUDJiRVFNZTIyNmlnNGRZQy1FU3MzdVQzWkFjTEpCNHAtN0pEZFo?oc=5) |
-| CBO: Extending Obamacare credits boosts enrollment by 3.6 million - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxPUFJQbS13MEVjN2p0VC0tR0pUY2hxZGg1S2VvdXVQZXp1cV8yN0hpMWhfei1LZktjbWZLNnRaeEMycGR0RG84cy10N0ZQU0RNNFBZNUFfZnhndXYtM0tTOWk0YlEyNy1vUGJZODgzVTQtUDk0bTdYXzY5ZEFCU2RxUzlIUjJuNjJSbGpfUTNRMjRobHdnS1ItanNjY1ZGdDJsendWQVozMUFOd1VBN1ZMQjE5N2ZaekZqNldlemNjVzh3ZEEzM1RXeHhpWQ?oc=5) |
 | Investigating whether Donald Trump has the power to ban US antifa movement - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1kdzg2OEQ5MkVhVC1ZajhWR0hrZlg1bVByUDU2bVJvUk1tRHhWbWlxQmFlTzVaaHY0VzIta3hQY1hOU0F0bV9wRnVXVW9vSTFlZzBvUg?oc=5) |
+| 'Cataclysmic' situation in Gaza City, UN official says, as Israeli tanks advance - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE83cEpDYklCSXczS3FFYUl0ZXRNcEVFRjFGOGhuVTFyaWd6Wm5QWDZrUUpfUWN4S2poUDVhMDFHRTBDdmtRSTE5Q2VkbmFRLWdsU043SldieGF6Z9IBX0FVX3lxTE4yS0lra251dktWSS1ubGRwc2ZXQ0p2ZU9UUGNTQmhRdTY4b3ZoTHlCQVEzRGU4ZFlXY29hOTREVVRYVFhPSlV5NWFMWEFKWW1KMkpJSlFIVWJxVDRSWHpJ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
