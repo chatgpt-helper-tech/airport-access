@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 04:25:23（北京时间）**
+🕒 更新时间：**2025年09月19日 04:32:05（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Royals, Maga and tech CEOs: What we learned from state banquet guest list - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE0zX0pSeVdBeW13WnNPckJaSWhPb0ZaOTdtR21hbkpfdHo3Q0xRVDVRRlJVbWlEVGptZGdkU3Q2c3FWS2FIMFN6ZkNsbEZ2V2VqTkx5RjYzWGVEQdIBX0FVX3lxTE5RQlBUOVpiM3RfQzlSaFI0Q1lKRDd6a3dCampQd2VuWk9vd3M5SHBIZHQ1UTZNd2Z4Q0U1ZDMwV1R3Ykw3MzdXSk5EU2EybXBkcXFuM19FdmF4Nk1DNWRZ?oc=5) |
 | Suspect in killing of 3 Pennsylvania officers was a 24-year-old being sought on stalking charges - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOY1RWT3pfbjdGeGJJdG9MWllwc3p2QWg0eTNBMDdlOTVHanliVHVGZGpXM0txdG5QMUs1SlhEQU9uWWxTY2dnTmZLOHhJV200RnRtckVvcUlnN3BpUjJtcWJpR3hQeFpxRDBHY3VEU05Pb0ZXYWxnbW5xNmt0WFVPYmstNkxQRy1KbVBV?oc=5) |
 | What is Antifa and why is Donald Trump targeting it? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE81TnNXbFFQSDJ3c09xR1oxblVCQXFTQnBZQkNPaWZkR3lfOXoybFRFYTVyLXNoYUNZWDVlXzVSVlVQb2Z2dDhTN1pwcDMzMW9HUFhCQkU4WldYUdIBX0FVX3lxTFBrN2FrU3FaVm5PMzRzTHprNEpCck4wZzlINl9ta29HLUtMVmpjbk9NdFA3LWhOSS1PYzFVa2Jsek9kU0pHT0VibUwzRDZfc0V4QnZlZDN3Rlg0M2VhTDF3?oc=5) |
-| Media's MAGA makeover - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFB0TWNYM1ZobXZQcTU3UUt1WE9EdGdEYU5SMEtrMk1neERNY3NSclZlMERseHZkallHVHpfZ3RXSF9zTGRSX3lyZWxhcUl0M2pCR09CWFEyMWI3Q3NqMUkwNWZqQ0pOMXU1dTRPa0NGTU9BWGJsN1Jzd25LWHA?oc=5) |
+| Military helicopter crashes near base in Washington state, official says - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPb0h1MzZ5Nl9jTFZKVFYzdVMzRlFZQVQxenUwRWpNblRLZFpPOGY0N1pfYmxzRlRBeEpjbGJ4WUlQc3pOTEpBejFCbUExN2dWLU9WSTduTV9vRFNPbFAzLTBjWkpWbzk3aE9sQ3ZzT1p0TFZhNmoxREVDNkw5LUFYdGJfRkJzbFczaXd1dlBVUFp0VndpaDZz0gGcAUFVX3lxTE1BUnlXSTMzcGczcWp0V2p2WWgxcjVxS2JIYzNJRVEwY3A1dTR5Qm5yNHpPSFM2cWk0MDg1YmdNaFlfNEtENzltZ2JzaWJJaTZMM3B2b1RrbXJJOEcxOWVPOFZkenZvaGxTRTNzdkJtbUN0cUxGSGpmMjFSQzA2ZzJoM1FIR2VjeGJyRGFuWmpLVmNtLWdxVlE4Vm5lWA?oc=5) |
 | Trump admin’s basis for deporting Guatemalan kids ‘crumbled like a house of cards,’ judge rules - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQVEdNd3ZDTmtBblN5YVZXYlhWaklNeVhhYkN6S2RfOFJubE5ZT1NpOGZaOEQ1ZEMtZVFwVFZuTzFqUnZWeHRFdkRiUzlVelNxaFlzdEhYZzdURHJydEdTZE9CamZFcUUtSTVpTlpMdWZDbnFwOUYyNi1GQmdlYmhPUkpIWnI3dFFNb3JFS2VUNmxFQQ?oc=5) |
 | Mayor Bowser, top D.C. officials on Capitol Hill for grilling on crime - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQcWllZGtWWVNNMGk2cXI0b1ItTEpLTG9Id2dkeFpPY196UDUxWUJHZEd2dFp6QmtsUU51YnNBNFZVRjNzVHF2TVREYTVQcTlkYlcxU0x4eXh2aG1iSGxMaG81eVFTelJmQm1LZVZ0UTlpb1p4SlRiVVJ0LXpPX1VQOHJKWmhaLV8yV0ZBZG9EMUZab3M?oc=5) |
 | Nancy Mace and Cory Mills clash over failed censure vote - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOeFdHQ1lSYmhoNkszRGF4Qm83SlZ1cDlDbTBYVHFhbnZ1RmdNQ0JiTzJCWk9jeHh3Tk5xb0o5Zlp3bThpeDQ0bWJ3ZVdGSmhoNnpDeFRldEVuOFY4Z1BDSGU3akFzQmJVLTlWd19ibEx0OXVVZ2tNb2xUTWZ1UmZpRUg5WWF3eGc?oc=5) |
