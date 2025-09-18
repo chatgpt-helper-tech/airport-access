@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 00:00:31（北京时间）**
+🕒 更新时间：**2025年09月19日 00:08:02（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | Corbyn and Sultana clash over new party membership | [阅读全文](https://www.bbc.com/news/articles/cgkn3v1e7g3o?at_medium=RSS&at_campaign=rss) |
 | Two teenagers charged over Transport for London cyber attack | [阅读全文](https://www.bbc.com/news/articles/c62z8k14kxxo?at_medium=RSS&at_campaign=rss) |
 | UK not out of woods on inflation, says Bank of England as interest rates held | [阅读全文](https://www.bbc.com/news/articles/cge2q7wvyz3o?at_medium=RSS&at_campaign=rss) |
-| Scientists pinpoint the brain's internal mileage clock | [阅读全文](https://www.bbc.com/news/articles/crkjn6r7j23o?at_medium=RSS&at_campaign=rss) |
+| Scientists pinpoint 'mileage clock' inside brain | [阅读全文](https://www.bbc.com/news/articles/crkjn6r7j23o?at_medium=RSS&at_campaign=rss) |
 | Planning approvals for new homes at record low, figures show | [阅读全文](https://www.bbc.com/news/articles/cgmzwk4yd1eo?at_medium=RSS&at_campaign=rss) |
 | Manchester Arena bomb plotter refuses to leave cell for court hearing | [阅读全文](https://www.bbc.com/news/articles/cz089jg79npo?at_medium=RSS&at_campaign=rss) |
 | Keely Hodgkinson makes winning start to 800m world title bid in Tokyo | [阅读全文](https://www.bbc.com/sport/athletics/articles/cevz0wmrz4eo?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | Kennedy to Announce Firing of Organ Transplant Group After Safety Problems - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFAtdFpMblZWX1BHdGxwRGlLa0tUNXFzYUVtdm1zOXVhbWFpcDEwd0tZUWJIYmd6Vk80TGVLMFhnUzNOeVhLZmxJZFBpdGF5SHJEdzQ1Vm9tVUx5UktWLWRqZVk3MzkzT2hjS1NQbzIxZUN3Z0R2blVaRUZScnQ1dw?oc=5) |
 | US immigration judge orders Khalil deportation, his lawyers say separate ruling protects him for now - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPTjE5U1diMFZoWGdUTDRXTHlna19Jc0JVaDJoQnRsbWVZUThuNVI4WUpCZmtlaTdYc3RJYUZpUHE4TlVTaV9PQ21IRXd0NTVPTXdfUjYtbzV0Y1o2WGxHWGJoazJZTnBwdGpnZ3JqbWxEWjViRVJhajZsSFZVeERxbmtGbkJVMlBjbThhVHR0M3I5VXFtTGRUWC1fUDJiRVFNZTIyNmlnNGRZQy1FU3MzdVQzWkFjTEpCNHAtN0pEZFo?oc=5) |
 | 'Cataclysmic' situation in Gaza City, UN official says, as Israeli tanks advance - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE83cEpDYklCSXczS3FFYUl0ZXRNcEVFRjFGOGhuVTFyaWd6Wm5QWDZrUUpfUWN4S2poUDVhMDFHRTBDdmtRSTE5Q2VkbmFRLWdsU043SldieGF6Z9IBX0FVX3lxTE4yS0lra251dktWSS1ubGRwc2ZXQ0p2ZU9UUGNTQmhRdTY4b3ZoTHlCQVEzRGU4ZFlXY29hOTREVVRYVFhPSlV5NWFMWEFKWW1KMkpJSlFIVWJxVDRSWHpJ?oc=5) |
-| Tiffany Trump’s Family Cruised the Mediterranean on an Oil Mogul's Yacht - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPTDNyVFdKdXJPdUU5NWFUeWVLbm5tUzFMMzVCbXRsa3cwNjlBcGFtS3hnLVhLQ1JsSVNxWGROMXdoTXcxeEdabHhhOUFjNU5wRzhIR0hYdXROSGJWdGxVQUY0NnZSaDQzZDZuR1huRVVkc19IU0ZEbFNKNlctb3d6anJn?oc=5) |
+| French unions strike against austerity, pressuring Macron - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOT1Q1ak5vR2tBakNidGROQXlKdERFeGJmTUI0cUstVFc0RkJfTFNfTEJ3NXVqdlBsLTZ0NF92UzE4REVTUG05QVFjUlBfSk5laXBBUGFxSXBRM3B3N0dsSkZaNXVjNlV6LUlBUXJXWm1FZ0M5MU16anRLeWV5RGhubnRYVkJJSzBRYkRFcjluNTk4eGxQNUZxOE5RUTFIeXAyRS1kRTFZaE4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
