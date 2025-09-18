@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月18日 15:48:42（北京时间）**
+🕒 更新时间：**2025年09月18日 15:56:27（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Trump greeted by king, thousands of protesters in UK visit - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNVEdwcTVuZGU1Nm1kdWRxcE1xMXVYVjBtOFBYME1EZlkxR0lBY0VZVlR4RHgzNllSMFpTeGdGU3JCUl9ZbHc3RlZXeENZdW9JdEhCZlgwX1otdWNmbTZQOGdlVmgyb2JQcUNxUXVCajdMRF9ZeUFCUkFjWXVTanhVUmZDQjRnWWxJcnM3TzNhRFpLN2hLcWo5NzFDZFRrTUFsWW9jc9IBqgFBVV95cUxPMEpBRmRMdndieUxTdTV1N2ZJZ3hJcGwtcThOaHJiamRBSzk0YUFIMmlRc2hzNy1mREpKV0Npa2tIUVpET1IwbDRyb2J4cnd1Sm9CaWZSZ1lTZ0Z2Qi10MFZnRVpYZy1FdFA0SWZiTVF4WWdkZFZCMmZkT0JNNk81TEF5NFMwWXhMSGl6WnJHb0xDRHVNdmp3UXlUUEgwSXpvSHliTkEtVkpHZw?oc=5) |
 | The US is at a dangerous crossroads after Charlie Kirk shooting - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5lNFNLTTk2TFg5X1dkSE0yWk5XS0hIa2UxQjhReEIzV0VNS25hQlp4dUdyOE9aZWZsRWRNOVZ2Y2YwNkluZnotR2M4VWtzTFBjeTRybkg1d3o3Z9IBX0FVX3lxTFBKeGs1SkpTRUVLX1BwakVwY3hWYXlMbzdnZEZQTHoyM0tWN044WWFGRUEwMWp5ZUFUZGNmYlBwck1lM1R5WEh1SU1fX1JYVWpqS2xlZkRETl9KcGx2TFlF?oc=5) |
 | Trump targets antifa movement as 'terrorist organization' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQbnJFc3hCQ19lWHVrTDZKUFE3cXVqMnVXeVRrOWpTM0hGeDZBdXNtN0hCbndDWGJ6Z1ZMVzNyZzJINEc3SWI0TXZnM21PTnVCaWZLelF4MHZRbEFzNkNxdkVxMUlySFY2V2g5OFdNYTc4T19HVlpvVHlqZ3ZmZUwzQmN3cU5FdjVhZ2dQaE1BazFSUFMtcjA2RlItcVI5UQ?oc=5) |
-| Trump, Vance to headline Charlie Kirk memorial - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOQ3VQRk45bVlrcVpiQkNlWkphUXFrRi11cjR0azcxZ0Y2UmMxek4xa1czOEEwLThVTzh2WjNvanJjektOLVpJR2N2cXRSMWZXakZEX3hXVXVSMk1LSlZUUXpWSGN5ZlZXb3psZktfQUxRZUgxaW51d0ZRU2kyQnZ3NGlJeGxWWDBKLXRB?oc=5) |
-| Immigration judge says Mahmoud Khalil must be deported to Syria or Algeria - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOTHYyVlVKUG1iWTZ0N3h1NTRmZUJUSkc0cWVHOTY5allwSWl4X3Q4bDJNRXlPaFlFUHBtaTlVajF3WnBXNVE0T1owMkJjMFAxVmhoa08tWWxvUzNuVFhLcnRyeEczUFFUV1JzT2tlenBuRkFqNW5LajBFX3Q0XzNVV281MFZjME1FaUlVc1RMVQ?oc=5) |
-| Effort to censure Rep. Ilhan Omar over Charlie Kirk comments fails - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNckxxWXpjMTAtRUFfQU9hYkhFcVp0dFFrUVItR1dIWi1BRG5CWkN6QjFkWW5PUXN4bWdNMFlPRTQwaDBUMjhsM3Y4dlVyN25BM05PY25oRVZ5dTdDQzVlN3U5N1RMMGFSTzNmT1RIVHVKaGM4OTZwUl9NN3U3V0hnMjk0QzRxeVprTUtjNGFqYjZqLU1sTWdHODhCV2xfMnpPcVFIOUxFV19IcWZETkN4NE9kbEg?oc=5) |
 | Kash Patel doubles down on his handling of the Epstein files in heated Hill testimony - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxObzFPZkprS3o2bVozVFlUZEF0NlBmN01ySFkxVGRWRVM2OVVocVZqQUhCT09rcER4SU54dlQtMWNzQUpyZXJIaDRPVGJRR1R6cExKRWEzVUtNWEZmZnZQUWxqNVhITkJBMEN2bnVWdVltMHBmcjFCYWg4cGtzTmFOeEpqaVJyLVl6Vi1yejBwTXZ1SjJoRXE1ZA?oc=5) |
-| In Charlie Kirk’s name: Trump officials signal move to limit free speech - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1LLUNOcmhVSkF3U2M2bHRnY3puQjkydWZEZ19RZ3BXbmtTTHR5NXRUZkZSZHF1ajJTaloxYUw2UDVyWXpmWWVYUTBoLTBtdldWdmQzRGR0ZmljcjVXbXB5cXEzSjR2Z01tZUlLRkFTX2M?oc=5) |
+| Unresolved questions hang over case against Charlie Kirk's accused killer - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQR2xGdy1PeElkNEMtZHVNSnMxdHhuazZqbEFkQWdRc1dxNG1ESVZDQk4zOER4RUxieFZrWVZ5YlZpS0F6SHlHV2NmU25UQS1XMjQ2NERiZlNPb0N1c2pBaFlRdUtvWElSRmxPdXh4RFRoaGFweE9LVVhNdWRaNGtCMzAxU2JRX0VEcXA2WmhWRThSc2dxM3BhMGcwMWpFNE5kS040WTZtaVlGeGlkT3Y2VHFkMFlKRFZQ?oc=5) |
+| US judge orders deportation of Palestinian activist Mahmoud Khalil - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5yb2pqWk9HX0JrajVEeE1DZlhKMGFySTVHWWhsSVhETmUtQnJ1UENuYmxSV2ZDQXM0RkpzV25xdW1IckRyXzlvcU1ZTWNrVjNpR2JEVG1RREwtUQ?oc=5) |
+| After Kirk’s Death, Students Return to Campus and Learn ‘How to Be Adults’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5wWVA4ZVZ5dkw3aHcyQnlHZHlXZDFYOV8xaVRrdXlvMDR3ZzByd1k0RlAxNTh1UHB6dFV3NW1seDNKUnpqenBxUzNYYkFaQUhHU2JIM0xydThoeHE3cWZPQmZsZGE4dTEyU1ljdHhwYURNZ3VabXRMNlNndw?oc=5) |
+| Effort to censure Rep. Ilhan Omar over Charlie Kirk comments fails - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNckxxWXpjMTAtRUFfQU9hYkhFcVp0dFFrUVItR1dIWi1BRG5CWkN6QjFkWW5PUXN4bWdNMFlPRTQwaDBUMjhsM3Y4dlVyN25BM05PY25oRVZ5dTdDQzVlN3U5N1RMMGFSTzNmT1RIVHVKaGM4OTZwUl9NN3U3V0hnMjk0QzRxeVprTUtjNGFqYjZqLU1sTWdHODhCV2xfMnpPcVFIOUxFV19IcWZETkN4NE9kbEg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
