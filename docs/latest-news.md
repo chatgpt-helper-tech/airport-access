@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月18日 11:01:53（北京时间）**
+🕒 更新时间：**2025年09月18日 11:08:23（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Ousted CDC director testifies she was fired for resisting pressure from RFK Jr. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQODVpUk5rNlA1bDdyNWpEX1NZbENRMVA2bGlTakQzQXN6SlduYTV6cUdhZFpFUFRxWVhFTFFEWnh2ZzVldFRxN3dxQVFMQzdvRFVkWGF4X3RiLTRPWWtRdDQtUTBsQnJHRGtmMjlnbW1qMDQxcEczMzBpZEs3VXRkN3ZPclo3ZkVIYnJpN2N3cGM3Z1cyc0lBZ0ppZTNWMDhsVFRWcklROXNON0V0Vk43MU1R?oc=5) |
 | The Justice Department sues Maine and Oregon, ratcheting up demands for voter data - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOUm1oNE9nVDV6QlBSNHJqU0NZa1JTVFdUT184eENMcFpvZ08zbTBQbUY1TTNBSDhieHRZM0xGUVVhRTJySmlHRUVhOHcyNmx3YVoxM2pLeWhUTE1PdW9aNTVsdXRueGg2N25fcDZqeGFpSUUyaFdyZnZobFUwTnJZRU1n?oc=5) |
 | Those closest to Tyler Robinson made horrifying discoveries in hours after Charlie Kirk killing, authorities say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOMHlJWVpnYVlQb1dDcUhNejR2eHI0RHpFRC1QZFdUbENzNWRMM0hqU3ZzUC1COUdsZklnLUQxWU1namU4QmFablNDdFBwTnp3Sk0zaHBvSnJoQjduVFhwMXpWZWxQMlRkQ1o4OXhnYXkyTE5UcWpUSDlGYndNNmhMcFdjSnhVUEMtVElWcjl0RmtUZlFkRERrMQ?oc=5) |
-| Trump says he’s designating Antifa as a terrorist organization - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9HWk1zQWJkM2tUYU1QRHpLemZQd0Q1MmsyRTNSWXBKZTBmMUdmb3ljeXNjTnlUemc3UHNPMVBuRXlZaWY0YUJDd1k5cnZyb0xxY3RJSE5xOHZRQ21zVjNhcUV6VXloMG4tdWF5UHZrM1pZRGtpUHc4WHBjTlEwTmc?oc=5) |
+| Trump announces he's designating antifa as a "major terrorist organization" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9CSy1QRmxLem5CSVJqNjdoMTVucHRWaEd3eG1kbHRLdE5aSF9tNWVxcGE0bmJhV192UDc3cGNDRmVSOG9yRWdPUWZBemVOX2ZDZVBrcWoxYTRwRVB3bTJna0dlU2dXUVI5TDhCU0oyQ3JnN295QlYtVHA2RdIBgAFBVV95cUxOeW9rb05TQUJtREROMEt3Q0huUXAyX0F1T18za0YtUlc1b0pTZDVGS0E1bmZMdnNIZ2dsMzFCdFF6dmFIXzNTSkpOdUNSeGRUMm53ZThwYXppY0JHVnU4ZTN1c2FPQzlGNHFTeW92YVhERVI5ZnZnZklmQk1oR3V0VQ?oc=5) |
 | Immigration judge orders Mahmoud Khalil to be deported to Algeria or Syria - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxONVlsaHo3bzdJYXBKQzJfRDF0eVNYS2EtbnREQXBLTzNxUmxnMzhhV1JEYTdGR25GT01sZTJsVWVPdFFnOFVVamFHamVBb2d5aUREUl9lbGpVcG4zUzZTZVhITU9HaVdBaW9ZVEZnRUVENmk3bVI2cUxxQzZSZl9JdHVSWFFaTlhHVFhBZWpoem9wN2pzNlVCbmFCTm1sRGVwQkRjeXozMWdtTmUtTk9B0gFWQVVfeXFMTnF6UjdKNTBMbm9SLTEtQUc2QW5SSWhiUnZyTzRvRkpsQ3J0eHpXWGFNSzUwbkRHMGdOcnN6SEVGaERUTW5PVktVVEM1alg1dkpXRjBSNEE?oc=5) |
-| After National Tragedies, Obama and Trump Are a Study in Contrasts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQaHlpdktkTFZ2dFYwT3cyaExTMHUyUVMyRTdGQVB3ZzkxbGpFeEpnUm8xYmRjbUI5d1FkNEpIM2VfMGd2ZlQ0OWdvMWNGNVk1SkkyeW43Mm5RU0NMQV91UzA5WXhOSmY0bzl1cTdTVGtMNUpsemJvWDFwWmZ3Qll4aXZWQzJXZHJNOEE?oc=5) |
+| In Charlie Kirk’s name: Trump officials signal move to limit free speech - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1LLUNOcmhVSkF3U2M2bHRnY3puQjkydWZEZ19RZ3BXbmtTTHR5NXRUZkZSZHF1ajJTaloxYUw2UDVyWXpmWWVYUTBoLTBtdldWdmQzRGR0ZmljcjVXbXB5cXEzSjR2Z01tZUlLRkFTX2M?oc=5) |
+| Family of Black student found hanging from tree on school campus hires lawyer Ben Crump - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxORjcxa2FZVFZVVTJqSC0zeXJlc0x6UUFZUFJrbnBzSUNHYndSZWVCN183LWo1RlhtbElrMzh0dU50R0xHdk83WGV1UjlKS3M0VkpTZm1VeElRN2NtZ2xJNmhsaTh4dkFiRTVNb1FrVE1IRnJ0MkdaWUJBY2NMQ2VGZGxILWhZa1d3MjN5YWVlN2xCcVlLSHBwd1RTbGtTbXRuMGc?oc=5) |
 | GOP defections sink effort to censure Rep. Ilhan Omar - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNRkN6VW5sU1FMVDVfTGdOajIzdFFHQ0ZsX0NZYmswWG5KTnlvZjBNR0VYeG0tc1RHZGE1UERqTTdKandiR1BFS09WVVZaZnJfSThXakFXclg4MGhGaGFNQWp2Y3Z5aFgwUVl3U1d0MGNUZ0QtcHAzbFJaSG42QzlrcklMWjQ4UWVaNFU0RVJpVDk0T0ZnTWc?oc=5) |
-| Engardio has been recalled. Will the S.F.’s Great Highway closure go on the ballot? - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPeEt6TXEyY2tRT21PcGlpbkkzODU5ZGJpcGhRLXhEQWl4ZXRmWnU0QnpBTTRtUWJ1ZTIwOUpENE5kbkNZYWtrQjBPYTlQRTl1OVFWTEg4a3duY2ZMODlpcWJkakNYeEtvUEdKMl9OUHR0b1czRnNVS0V6c3lBbHhXOXRjMFBYQWNRUG1ZMkdsRGd1SmY4RXc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
