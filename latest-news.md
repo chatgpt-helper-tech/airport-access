@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 02:40:57（北京时间）**
+🕒 更新时间：**2025年09月19日 02:48:45（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Media's MAGA makeover - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFB0TWNYM1ZobXZQcTU3UUt1WE9EdGdEYU5SMEtrMk1neERNY3NSclZlMERseHZkallHVHpfZ3RXSF9zTGRSX3lyZWxhcUl0M2pCR09CWFEyMWI3Q3NqMUkwNWZqQ0pOMXU1dTRPa0NGTU9BWGJsN1Jzd25LWHA?oc=5) |
 | Trump admin’s basis for deporting Guatemalan kids ‘crumbled like a house of cards,’ judge rules - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQVEdNd3ZDTmtBblN5YVZXYlhWaklNeVhhYkN6S2RfOFJubE5ZT1NpOGZaOEQ1ZEMtZVFwVFZuTzFqUnZWeHRFdkRiUzlVelNxaFlzdEhYZzdURHJydEdTZE9CamZFcUUtSTVpTlpMdWZDbnFwOUYyNi1GQmdlYmhPUkpIWnI3dFFNb3JFS2VUNmxFQQ?oc=5) |
 | House turns back effort to censure Rep. Ilhan Omar over remarks about Charlie Kirk - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOSVEtb1duODNNUmV3RmtjR2dzTU9SZHA3eDh3enZXTHI1TVI2LUhDcnpFU0ZwdzhkcThkMlR3MnVVUXdtR1JveWxNNHNmQVQ2N0h2ZmpjcnJ2bDlBLXQtS3U2d3FqUmRVR3Y1dndJMzBJc3hzeDYyckVlMGVKNzZqdjVkOEpnQ1c4MUtGVDF1aUVWOTB1eFVrcVZFakRNZXlNbTE3b2Zkd2d1SmNGZl90OEpxZXd3TlNWclVZ0gHAAUFVX3lxTFBLLWtIWEpzUDAtNFRwYlV6eGViY1lWcGNMUHAtOWNaSzdXcnRJSXBDMHNtdjZPYksxYlhzVkFwLXFVbVBHN3pZQzEyWExuLWxlc3NoT1pwZnNsMG96MDF2UUdMNVIyWU5hV0ZDY2xESl9YVUUzTXJPQ21ZdlNrdVJqekFxM2tDZTEzd0xxWjM2cmpxNXctNERWTDgxeTdjT1hiMmJ4RU9yYWtiRmFHTFNiN0VkbXAwVmVlYkFSMzJsSA?oc=5) |
-| Trump says he’ll designate antifa as a terrorist group but offers few details - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQWFVEWlhoOHk1em94WVU2RTFXSDdtSEw4a2U2cGhSQTA0dWIwdGt3NHNyV2U2TkJmT1BkYjRBaG0xSXdqQ2NieGtBZHBERXVIOGhXUk8xNlFqOVpGSFRQdzJyM1g5bTJjY1ZmZUc4R1JmaEJQbFBsWEhnUjcwR1puVUNsQ0l3ekREZHhqMHlvQWNXMmcwdFE?oc=5) |
+| Investigating whether Donald Trump has the power to ban US antifa movement - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1kdzg2OEQ5MkVhVC1ZajhWR0hrZlg1bVByUDU2bVJvUk1tRHhWbWlxQmFlTzVaaHY0VzIta3hQY1hOU0F0bV9wRnVXVW9vSTFlZzBvUg?oc=5) |
 | Trump says US ‘trying’ to get Bagram airbase back - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPQVNXQ3dacWIzTUpyMmxudm84Qy1hNFVyZk4tZ2tCc0c5ekF5TUg3blRQN2ZiM0VXa2FEQ1NoQXVqUjB6eVZpRzFBUHpBSDkxdzRTTno2SHFfeXdIM25Gb1dwSjdCMnEyRGxUdE1zVHNpd2NiSlU5cnlVTTFCd3YyN0l2SHB4U1JXTk1SbUpCNGJrMW5MRVhhZVBBY19xdw?oc=5) |
 
 ---
