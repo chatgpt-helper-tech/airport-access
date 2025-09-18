@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 03:40:16（北京时间）**
+🕒 更新时间：**2025年09月19日 03:48:12（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Suspect in killing of 3 Pennsylvania officers was a 24-year-old being sought on stalking charges - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOY1RWT3pfbjdGeGJJdG9MWllwc3p2QWg0eTNBMDdlOTVHanliVHVGZGpXM0txdG5QMUs1SlhEQU9uWWxTY2dnTmZLOHhJV200RnRtckVvcUlnN3BpUjJtcWJpR3hQeFpxRDBHY3VEU05Pb0ZXYWxnbW5xNmt0WFVPYmstNkxQRy1KbVBV?oc=5) |
 | What is Antifa and why is Donald Trump targeting it? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE81TnNXbFFQSDJ3c09xR1oxblVCQXFTQnBZQkNPaWZkR3lfOXoybFRFYTVyLXNoYUNZWDVlXzVSVlVQb2Z2dDhTN1pwcDMzMW9HUFhCQkU4WldYUdIBX0FVX3lxTFBrN2FrU3FaVm5PMzRzTHprNEpCck4wZzlINl9ta29HLUtMVmpjbk9NdFA3LWhOSS1PYzFVa2Jsek9kU0pHT0VibUwzRDZfc0V4QnZlZDN3Rlg0M2VhTDF3?oc=5) |
 | Trump admin’s basis for deporting Guatemalan kids ‘crumbled like a house of cards,’ judge rules - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQVEdNd3ZDTmtBblN5YVZXYlhWaklNeVhhYkN6S2RfOFJubE5ZT1NpOGZaOEQ1ZEMtZVFwVFZuTzFqUnZWeHRFdkRiUzlVelNxaFlzdEhYZzdURHJydEdTZE9CamZFcUUtSTVpTlpMdWZDbnFwOUYyNi1GQmdlYmhPUkpIWnI3dFFNb3JFS2VUNmxFQQ?oc=5) |
-| Democrats release counteroffer to avert shutdown while House moves ahead on GOP plan - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE5pbXJ4clg4eVkwQkFnamROd0UzTTlYYjNFMkFoSzVrYnV1NVBuYWNJU28wdXM0UHpLRV9Fa2gzTWx0ODdPaG5CdWk2SGZlRlpXOU1rZjNhQXFieHBoM1hLeUhRNTVDYmhfYVlTMXMzYVB6QdIBd0FVX3lxTE9CdDU4Z2VfZVN0aW5Vb2lfeTRwSW1fdVVreW9kSzJ2MWVkQlZwVVZ4NTZoUy1hamRrUjNFWktWVjRVellUNWVHQ0NDVjNqZnZIc1VNTHhhM2NDM3FfeXVlbWc5ZDVxUFUyY2FiUkxmcUJjUlItZ0VN?oc=5) |
-| House turns back effort to censure Rep. Ilhan Omar over remarks about Charlie Kirk - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOSVEtb1duODNNUmV3RmtjR2dzTU9SZHA3eDh3enZXTHI1TVI2LUhDcnpFU0ZwdzhkcThkMlR3MnVVUXdtR1JveWxNNHNmQVQ2N0h2ZmpjcnJ2bDlBLXQtS3U2d3FqUmRVR3Y1dndJMzBJc3hzeDYyckVlMGVKNzZqdjVkOEpnQ1c4MUtGVDF1aUVWOTB1eFVrcVZFakRNZXlNbTE3b2Zkd2d1SmNGZl90OEpxZXd3TlNWclVZ0gHAAUFVX3lxTFBLLWtIWEpzUDAtNFRwYlV6eGViY1lWcGNMUHAtOWNaSzdXcnRJSXBDMHNtdjZPYksxYlhzVkFwLXFVbVBHN3pZQzEyWExuLWxlc3NoT1pwZnNsMG96MDF2UUdMNVIyWU5hV0ZDY2xESl9YVUUzTXJPQ21ZdlNrdVJqekFxM2tDZTEzd0xxWjM2cmpxNXctNERWTDgxeTdjT1hiMmJ4RU9yYWtiRmFHTFNiN0VkbXAwVmVlYkFSMzJsSA?oc=5) |
+| In Charlie Kirk’s name: Trump officials signal move to limit free speech - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1LLUNOcmhVSkF3U2M2bHRnY3puQjkydWZEZ19RZ3BXbmtTTHR5NXRUZkZSZHF1ajJTaloxYUw2UDVyWXpmWWVYUTBoLTBtdldWdmQzRGR0ZmljcjVXbXB5cXEzSjR2Z01tZUlLRkFTX2M?oc=5) |
+| GOP leaders consider Senate jam plan after House CR vote - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPYXhlYUhGSDFWb3Y0Sk1pQ2Q0YkdQMGp0aEZxMzA2eU1fZTAycDVlZElpSmlJVE9NY2RURXNqeFpBbFVuQ3BoaTRKcEtEVHdlbkQ5U1hwZDRaNGw1SUNUQm5CcTdnYk5Qb2xucTlTREd6ZllOWGdHdFFVazJONW5YaWZUVTBobllhMTByV296Ql9zdl9QVEE?oc=5) |
 | Trump admin has been quietly pushing to retake Afghan base from the Taliban for months, sources say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNUEQ1RmlnWWRwX1pOSWVVbjJ0UkJsYnhsZG9PY0ZXMUc3OVo0cUxsSlB1aTlXcms0cjlZTlJ5b01TLXBjd0VXSjlsb05BYVZsQzdPVThXMnRiYUJvcEZHZWEya3hBUV8wVThXV0VRcU1vOHJpMjMydnlScEZMcTBnU2pwTQ?oc=5) |
 
 ---
