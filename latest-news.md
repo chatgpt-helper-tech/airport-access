@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 07:09:57（北京时间）**
+🕒 更新时间：**2025年09月19日 07:17:58（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Jimmy Kimmel: Trump backs 'outstanding' Brendan Carr after Jimmy Kimmel's suspension - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFBUQWI1UXNreW9VNTItRGJqUktEeDVhNDhuMlBxVGtLd0lwdEt4akM1ZmlKY1FvSmkwcTUyR2M0bDN1LUdubmh6emwzOWxDckZHdTlrMw?oc=5) |
-| Erika Kirk, widow of Charlie Kirk, to helm TPUSA - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNVThUX3RyOUFyRUl4bnVobzlieWZlM3VjeVZsTWljY00zR0EwT1g3djlEOFFPa2FER0NWeC1CNDBIendFMEhFM3BBbFk0RDlSQzRaZTF0a2s5NWZjZ1d2VW1lZ0dXdm1TWHJBNWI4QVVES25IY0hEUWdYcTU2UjNtNE9hU3I3VmZ4RTNPN3gybU1tblcwWXc?oc=5) |
+| Trump floats pulling licenses if networks are 'against' him after Jimmy Kimmel suspended - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQTnk1NG9ITWtodGZaRDl0VUJQSTZzWUExMFJXMV9xcWp2cXNFcTJNNHB3eVczekNteHhpWUpveUdDX1dVTV93VkoyZ2dIZ1kxeGtvNFJjUE56UkFQWjQzQkdjemxNdFdjemlVOTBETlg1Y0pZd0tpQUJKbF9oZ2Vob9IBhgFBVV95cUxQSFRtcXFvUnEzeFdZOUtFX3otcHhfSXd1TGNQeFlIelgyWm1xVW5YZmpKM1I5NnU3VENTQ2lfa1FDWFgzV1I5bTM0X1dRakpRTGFvcm1XYWNkMjhkbXptOU4yLWtFMjVzM0I2N1JtZHl6ak9RYWVpbFVUMkZlLTVKRHFhX0MxQQ?oc=5) |
+| Erika Kirk, widow of Charlie Kirk, named new CEO of Turning Point USA - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNNkxBUHZHZkphLXN5ZV9NdG5RWWZLZ0xoQTM0ckFJNWRLOFJZMUlQb1lJSFRDQWpFR2x4c0ZqM1I3bzZMS2VTcmExM18xNi1ENzEtYWMxMGFMOV9XblY2T0ZHLWN2TlFYZDd1eTlkWmN3UXZaeXE0bnNQVDlNMWF5bkRsS1dzUHp6M2pnUkRUbWRMMlJX?oc=5) |
 | Pennsylvania authorities ID gunman who killed 3 law enforcement agents - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPMkV5RWpzSjBsQ29MSDlSVm1VTVItZXJ1R0xRVnNtMFlEX2F0czljOWdsQk9HY3hDY0haZTJlQXB0N0Jjd0d3ekEyLWRITnVzX2NuT202YlRIZWQxQk9ULXZkajMtTmJGY2lBZ3d3MFMtOFlxZkp4WXFEVDU1TnFUbC1ib3JFZmZTdjVmYVZsUGduRmREZXUySlk3RU1FblFoZnE3U0tTOVIxN0t5bXc3bWhMRTjSAVZBVV95cUxPTnViQzNqSlFYOXZacGVwVkFpTWdLVjVsUVRiQWNqbC1uc2dEbjIyZnVqR3ZjN2o1M0ZjYXU2VDRCUm9PLVBzRzI4M3JiUnFnczlyalROQQ?oc=5) |
 | Senate confirms Kimberly Guilfoyle and 47 other Trump nominees in "nuclear" move - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE54NG1sZGFVcEc2RkMwSjliNDdRWUNCQzhnVi1oUi1QNkhQVWJ2bDNDd240VGRaTlRlMEQ1d2IwZl81Rkl0aFpOamo4V3BvQmZLQWk2eW1MZ1RMaWpGMXpXXzZWaEp1QjZJaXJTNzZjTHQ?oc=5) |
 | Royals, Maga and tech CEOs: What we learned from state banquet guest list - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE0zX0pSeVdBeW13WnNPckJaSWhPb0ZaOTdtR21hbkpfdHo3Q0xRVDVRRlJVbWlEVGptZGdkU3Q2c3FWS2FIMFN6ZkNsbEZ2V2VqTkx5RjYzWGVEQdIBX0FVX3lxTE5RQlBUOVpiM3RfQzlSaFI0Q1lKRDd6a3dCampQd2VuWk9vd3M5SHBIZHQ1UTZNd2Z4Q0U1ZDMwV1R3Ykw3MzdXSk5EU2EybXBkcXFuM19FdmF4Nk1DNWRZ?oc=5) |
 | What is Antifa and why is Donald Trump targeting it? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE81TnNXbFFQSDJ3c09xR1oxblVCQXFTQnBZQkNPaWZkR3lfOXoybFRFYTVyLXNoYUNZWDVlXzVSVlVQb2Z2dDhTN1pwcDMzMW9HUFhCQkU4WldYUdIBX0FVX3lxTFBrN2FrU3FaVm5PMzRzTHprNEpCck4wZzlINl9ta29HLUtMVmpjbk9NdFA3LWhOSS1PYzFVa2Jsek9kU0pHT0VibUwzRDZfc0V4QnZlZDN3Rlg0M2VhTDF3?oc=5) |
-| GOP pummels DC officials on local crime - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQM3NnVUxBWEJwUnVDd3Iza2FtVXdaQUlrQXZ5RGQxZjRpdXpUNmZCQ3JLSDZJLWxkQnhtMk9RWXFIcFJaRmdXUkFDdGNZa05lM2E2dE1OOGJQRUtIeWNyTFE4Yk5yTzlpb2FiZXdFYnozLS1jVE54eXFjOC1wWWh6dGZLODZBVHNXMzhvNzgwSmlpNjB2OFE?oc=5) |
+| Tempers erupt in Oversight hearing over DC law enforcement surge - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNTFNrZXVQWVk1WTBycFBlM1d3eDYwNmxVeWhRLXNYTVlyekpJMXM3VEN5MzdwUG90VnJJcmZVbEh2TmdhRnl3RnZ6NXNWbkxqNWZTdXZaazdKVHRrTFZ5cmxZLU1RMzFZVXB3a3RpdHAyUHd1dnhtbGo1VjdYODZZejlCa0dZWmROUW5kd1kyMmpEVUdVc210MENfdFc2WVR0c2lfONIBqgFBVV95cUxQbnNXTnQ3aVJXN212czdJZnNHWF9LUXJkeTROd2xBaTRpSGVMR291OHBiTjAzaDhMV0hGeXBGSzNvNVFYakhHZ1F2U2kyMkdLUGdyTHNEeFlGV0s3TkdUN25zR1BJVHVUQmQ2dXRmS084RktLQ0FYYWRqYXJNTjhsc05sbFNaWm5zYzBZTFNaV1U2OURjQW5HdTlxcFUza2Q0YWZOVnlzVnU0dw?oc=5) |
 | Kamala Harris tells of dismay as Tim Walz ‘fumbled’ debate answer in book - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQd1JHQUloSXA3ZmpiX0RtUVBXazVOT0ZjSmF6dUdyNzFYd3dnX0JONm9KUDBZY29tVVRUMUR1bUZhRWJwcmJoeVpkQjE2c0czbFBIYmhZRzlfMXM3aFN0WDdnRjl5d0VmOXdGNFFZZzZwTmhfU0JxOWFYZXJVWmM5UQ?oc=5) |
 | Judge Blocks Administration From Immediately Removing Guatemalan Children - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOczBHWEpoaG0xaENLT0RZYmxZLVlCMmlWZnVYUzB6ZzlURjNfWFNnSkxOYURHbUNfUEItRnZyVFJWOE5KX0Q2S2FwLU1lWUZRRHl4S1FKWUthcHUyZm82VnJqU2hOUGdnSkZkNFFndTQ3RDBVVFVjQzNqTnFldDNCNHZEdFp4Yk1JMkJr?oc=5) |
-| GOP leaders consider Senate jam plan after House CR vote - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPYXhlYUhGSDFWb3Y0Sk1pQ2Q0YkdQMGp0aEZxMzA2eU1fZTAycDVlZElpSmlJVE9NY2RURXNqeFpBbFVuQ3BoaTRKcEtEVHdlbkQ5U1hwZDRaNGw1SUNUQm5CcTdnYk5Qb2xucTlTREd6ZllOWGdHdFFVazJONW5YaWZUVTBobllhMTByV296Ql9zdl9QVEE?oc=5) |
+| Capitol agenda: Democrats steer into a shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxOTFpiTUlrcVBBNFhKaXc1RjJGcS01S1dUVzFKOWp1NWVZTHFKMXZEWXM2aWJhQkxianFnbnRQZnZrTFdySHVZdDM5Z3V0V0dfT3UzZVFBRHhZd0syQTcxZ19lNXJDMmNCRjMwTzFWWW1IVWZhTUZOTy1KZ1M5MmNlM1dvMnlrRzJ5SmRqbV9fT2Y1VElMOG1nX0JkVzRSZExkNHVfUjJmUDJoQ3VoTTFHUkZfd004YW16RXVxQzNTajBoUXdMSUZSNF9JaU9lZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
