@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 02:00:54（北京时间）**
+🕒 更新时间：**2025年09月19日 02:08:26（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | What we know about the person who shot five police officers in York County - fox43.com | [阅读全文](https://news.google.com/rss/articles/CBMihwJBVV95cUxOdzVycG9VYlZWeTJtSGpKREhYNkRNTmxGRHVzMkFMdGRadlZYQloxby1yMVVGcTdkWWtiU2duSnY0N2tqaGdUdTdsR1RnZnJiSkhUMmVuSjdTVWpZd3hHNlZxOEk1eFdIVGJCQXc2WXFCYVJmNWREcmhycmI4akRyTlVMNXhKUUU5bF9HY0o0bzh0elRIdE81NDJMWkhzTVUzeXR3MVZRektSV0l0MVhkTVMxaDBkZ3ZCRElHQS1YUWppa1lUZkRIczYwOXVrZGJNVFgzUUV4MXJGUXI0d013MnRRcHBTbXctX2hsMU54bDhlaXQzc2x5RXVoNG1kUlFYRW9FS1hZNA?oc=5) |
 | Trump admin’s basis for deporting Guatemalan kids ‘crumbled like a house of cards,’ judge rules - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQVEdNd3ZDTmtBblN5YVZXYlhWaklNeVhhYkN6S2RfOFJubE5ZT1NpOGZaOEQ1ZEMtZVFwVFZuTzFqUnZWeHRFdkRiUzlVelNxaFlzdEhYZzdURHJydEdTZE9CamZFcUUtSTVpTlpMdWZDbnFwOUYyNi1GQmdlYmhPUkpIWnI3dFFNb3JFS2VUNmxFQQ?oc=5) |
 | House turns back effort to censure Rep. Ilhan Omar over remarks about Charlie Kirk - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOSVEtb1duODNNUmV3RmtjR2dzTU9SZHA3eDh3enZXTHI1TVI2LUhDcnpFU0ZwdzhkcThkMlR3MnVVUXdtR1JveWxNNHNmQVQ2N0h2ZmpjcnJ2bDlBLXQtS3U2d3FqUmRVR3Y1dndJMzBJc3hzeDYyckVlMGVKNzZqdjVkOEpnQ1c4MUtGVDF1aUVWOTB1eFVrcVZFakRNZXlNbTE3b2Zkd2d1SmNGZl90OEpxZXd3TlNWclVZ0gHAAUFVX3lxTFBLLWtIWEpzUDAtNFRwYlV6eGViY1lWcGNMUHAtOWNaSzdXcnRJSXBDMHNtdjZPYksxYlhzVkFwLXFVbVBHN3pZQzEyWExuLWxlc3NoT1pwZnNsMG96MDF2UUdMNVIyWU5hV0ZDY2xESl9YVUUzTXJPQ21ZdlNrdVJqekFxM2tDZTEzd0xxWjM2cmpxNXctNERWTDgxeTdjT1hiMmJ4RU9yYWtiRmFHTFNiN0VkbXAwVmVlYkFSMzJsSA?oc=5) |
-| US immigration judge orders Khalil deportation, his lawyers say separate ruling protects him for now - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPTjE5U1diMFZoWGdUTDRXTHlna19Jc0JVaDJoQnRsbWVZUThuNVI4WUpCZmtlaTdYc3RJYUZpUHE4TlVTaV9PQ21IRXd0NTVPTXdfUjYtbzV0Y1o2WGxHWGJoazJZTnBwdGpnZ3JqbWxEWjViRVJhajZsSFZVeERxbmtGbkJVMlBjbThhVHR0M3I5VXFtTGRUWC1fUDJiRVFNZTIyNmlnNGRZQy1FU3MzdVQzWkFjTEpCNHAtN0pEZFo?oc=5) |
+| Trump says he's designating antifa as "a major terrorist organization" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1XZXhqRmtraGVfVlVPVFJ1bVFmRmQwV2dCVzhhUm9Fb2ktVWJTWEFsYnMxSno2Nmpqdjc0eXhQUzBjamM1VUt3VlN6MWFXM3JGR2xJNUhRNkc5SVVUYkZ1R1lpeUxZeTRQVDNRZjdrNlk2SkpNSmc?oc=5) |
 | Capitol agenda: Democrats steer into a shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxOTFpiTUlrcVBBNFhKaXc1RjJGcS01S1dUVzFKOWp1NWVZTHFKMXZEWXM2aWJhQkxianFnbnRQZnZrTFdySHVZdDM5Z3V0V0dfT3UzZVFBRHhZd0syQTcxZ19lNXJDMmNCRjMwTzFWWW1IVWZhTUZOTy1KZ1M5MmNlM1dvMnlrRzJ5SmRqbV9fT2Y1VElMOG1nX0JkVzRSZExkNHVfUjJmUDJoQ3VoTTFHUkZfd004YW16RXVxQzNTajBoUXdMSUZSNF9JaU9lZw?oc=5) |
 
 ---
