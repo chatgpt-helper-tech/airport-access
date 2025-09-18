@@ -30,7 +30,7 @@
 
 ---
 
-📅 **内容最后更新：2025年9月11日**  
+📅 **内容最后更新：2025年9月18日**  
 🔗 来源：[ChatGPT 中文导航站](https://gptvpnhelper.com/airport-access/)
 
 
@@ -228,14 +228,14 @@
 
 ---
 
-#### 2. [**TNTCloud 机场**｜IPLC专线 · 海外团队 · 全场8折](https://tanu095.tntvipaff.cc/#/register?code=7MPbfr89)
+#### 2. [**TNTCloud 机场**｜IPLC专线 · 海外团队 · 全场85折](https://tanu095.tntvipaff.cc/#/register?code=7MPbfr89)
 
 - ✅ 原生 IP + 高速 IPLC 专线，适合开发者 / AI用户 / 流媒体重度用户
 - ✅ 解锁 ChatGPT、TikTok、Netflix、Copilot 等工具毫无压力
 - ✅ 支持多设备 / 不限速 / 稳定持久运行
 - ✅ 海外团队运营，响应快，适合长期使用
 
-🎁 专属优惠码：`Love999`（全场 8 折）
+🎁 专属优惠码：`TNT85`（全场 85 折）
 
 📊 [👉 查看 TNTCloud 机场详细测评：测速、解锁、使用指南](https://gptvpnhelper.com/airport-access/tntcloud/)
 
@@ -520,11 +520,11 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
     box-shadow:0 4px 14px rgba(0,0,0,0.25);
     transition:all 0.3s ease;
   " onmouseover="this.style.transform='scale(1.05)'" onmouseout="this.style.transform='scale(1)'">
-    <strong>🦦 立即访问TNT Cloud官网,享限时 8折 优惠</strong>
+    <strong>🦦 立即访问TNT Cloud官网,享限时 85折 优惠</strong>
   </a>
 </div>
 
-> 🎁 付款时使用专属优惠码 `Love999` 可享受 **8折优惠**！季付限量包,不享受优惠码,老板说这个套餐已经不赚钱了
+> 🎁 付款时使用专属优惠码 `TNT85` 可享受 **85折优惠**！季付限量包,不享受优惠码,老板说这个套餐已经不赚钱了
 
 --- 
 

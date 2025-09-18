@@ -12,7 +12,7 @@ description: 机场推荐,实测2025年最稳定科学上网工具，评测 Clas
 内容包含机场推荐、流量套餐对比、科学上网教程、配置指南与节点导入方式，  
 无论你是初次科学上网、跨境办公、海外留学还是流媒体重度用户，都能在此找到最合适的机场解决方案。
 
-> 最近更新: 2025年9月11日
+> 最近更新: 2025年9月18日
 
 
 ---
@@ -212,14 +212,14 @@ description: 机场推荐,实测2025年最稳定科学上网工具，评测 Clas
 
 ---
 
-#### 2. [**TNTCloud 机场**｜IPLC专线 · 海外团队 · 全场8折](https://tanu095.tntvipaff.cc/#/register?code=7MPbfr89)
+#### 2. [**TNTCloud 机场**｜IPLC专线 · 海外团队 · 全场85折](https://tanu095.tntvipaff.cc/#/register?code=7MPbfr89)
 
 - ✅ 原生 IP + 高速 IPLC 专线，适合开发者 / AI用户 / 流媒体重度用户
 - ✅ 解锁 ChatGPT、TikTok、Netflix、Copilot 等工具毫无压力
 - ✅ 支持多设备 / 不限速 / 稳定持久运行
 - ✅ 海外团队运营，响应快，适合长期使用
 
-🎁 专属优惠码：`Love999`（全场 8 折）
+🎁 专属优惠码：`TNT85`（全场 85 折）
 
 📊 [👉 查看 TNTCloud 机场详细测评：测速、解锁、使用指南](https://gptvpnhelper.com/airport-access/tntcloud/)
 
