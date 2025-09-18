@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月18日 14:56:57（北京时间）**
+🕒 更新时间：**2025年09月18日 15:00:22（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Immigration judge says Mahmoud Khalil must be deported to Syria or Algeria - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOTHYyVlVKUG1iWTZ0N3h1NTRmZUJUSkc0cWVHOTY5allwSWl4X3Q4bDJNRXlPaFlFUHBtaTlVajF3WnBXNVE0T1owMkJjMFAxVmhoa08tWWxvUzNuVFhLcnRyeEczUFFUV1JzT2tlenBuRkFqNW5LajBFX3Q0XzNVV281MFZjME1FaUlVc1RMVQ?oc=5) |
 | Autopsy results awaited for Black student found hanged on Mississippi campus - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxOM2VraUNvejkyNDJXaFRXdGVfcTViQ1M3Y1pWSnJZdzZyUDZ2SUo5RHBwazVjOXNwUjcwM3ZyZk9iZE1BVGlRNW1jZE1ibFFvcFZra01NeFVtenVRWXFXOEhKaG1jb2xPaGgzTUdkQ3NvQUhPdEVKTFZtZ2Ryd0tqaHRnenBqeHVhWHV2anBoNnh4RER5VTdSSXdOOHQzSlQ1QWtweWJRZDdUM1owNEpGMDh5WTgtQXBwQXZPU3ZwZTFJeGR5?oc=5) |
 | After Kirk’s Death, Students Return to Campus and Learn ‘How to Be Adults’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5wWVA4ZVZ5dkw3aHcyQnlHZHlXZDFYOV8xaVRrdXlvMDR3ZzByd1k0RlAxNTh1UHB6dFV3NW1seDNKUnpqenBxUzNYYkFaQUhHU2JIM0xydThoeHE3cWZPQmZsZGE4dTEyU1ljdHhwYURNZ3VabXRMNlNndw?oc=5) |
-| Republican Brad Raffensperger to run for Georgia governor after defying Trump over 2020 election - AP News | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOa1F6cTZzYkVQNmZmVjlRZk5zU1h5dkc3N3diSURLS3RXOGExczRGdmR5M2ZMSDJsWG5DNmlPWEt3OTBleVFzQmViV3Q3anN6OThLeU9iOE9WLV9RNUtMd29OVlNmcVFjRzVoaERNZ2tuczNyYW5QTk8zbFNTMU5WVWQ1RVlBWEpmWmtJMEFnNldJaEROOXFSWVNZNXJtOFpIaWFzRE1oZk5Vc2pzbG1CZ3k0YzREZktEU1IyeE1R?oc=5) |
+| Effort to censure Rep. Ilhan Omar over Charlie Kirk comments fails - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNckxxWXpjMTAtRUFfQU9hYkhFcVp0dFFrUVItR1dIWi1BRG5CWkN6QjFkWW5PUXN4bWdNMFlPRTQwaDBUMjhsM3Y4dlVyN25BM05PY25oRVZ5dTdDQzVlN3U5N1RMMGFSTzNmT1RIVHVKaGM4OTZwUl9NN3U3V0hnMjk0QzRxeVprTUtjNGFqYjZqLU1sTWdHODhCV2xfMnpPcVFIOUxFV19IcWZETkN4NE9kbEg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
