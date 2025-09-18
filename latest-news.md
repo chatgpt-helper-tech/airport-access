@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 05:40:23（北京时间）**
+🕒 更新时间：**2025年09月19日 05:49:10（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | What is Antifa and why is Donald Trump targeting it? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE81TnNXbFFQSDJ3c09xR1oxblVCQXFTQnBZQkNPaWZkR3lfOXoybFRFYTVyLXNoYUNZWDVlXzVSVlVQb2Z2dDhTN1pwcDMzMW9HUFhCQkU4WldYUdIBX0FVX3lxTFBrN2FrU3FaVm5PMzRzTHprNEpCck4wZzlINl9ta29HLUtMVmpjbk9NdFA3LWhOSS1PYzFVa2Jsek9kU0pHT0VibUwzRDZfc0V4QnZlZDN3Rlg0M2VhTDF3?oc=5) |
 | GOP leaders consider Senate jam plan after House CR vote - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPYXhlYUhGSDFWb3Y0Sk1pQ2Q0YkdQMGp0aEZxMzA2eU1fZTAycDVlZElpSmlJVE9NY2RURXNqeFpBbFVuQ3BoaTRKcEtEVHdlbkQ5U1hwZDRaNGw1SUNUQm5CcTdnYk5Qb2xucTlTREd6ZllOWGdHdFFVazJONW5YaWZUVTBobllhMTByV296Ql9zdl9QVEE?oc=5) |
 | Trump admin’s basis for deporting Guatemalan kids ‘crumbled like a house of cards,’ judge rules - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQVEdNd3ZDTmtBblN5YVZXYlhWaklNeVhhYkN6S2RfOFJubE5ZT1NpOGZaOEQ1ZEMtZVFwVFZuTzFqUnZWeHRFdkRiUzlVelNxaFlzdEhYZzdURHJydEdTZE9CamZFcUUtSTVpTlpMdWZDbnFwOUYyNi1GQmdlYmhPUkpIWnI3dFFNb3JFS2VUNmxFQQ?oc=5) |
-| Senate confirms 48 Trump nominees at once, including Kimberly Guilfoyle and Callista Gingrich - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQa04yVjJVWnBOb2JrU0htbGxCcG94Q3c4enlxdER2Yjd4Y24tSU16cXBqcUtQczFoTUZZS1dlZ0NHajduSnZBZjJkSkZLaFlVYWJ4VnB1d0Z3bXVDRThCZm9jRHdyUVc3a1FPZ2tESkdZeUw4bk9hLW5RUDRaN0hNaFg2WERlWGUzaXB6aXVnd2VTc1R3NUF3eWFWanNlNk5PRklFNnBrdHRoZElEakpMQ3hVckdBb2VFa19zM2xpeFfSAVZBVV95cUxQOFAzMmJSdTBJbDhrWEdjbXRnaFpHRS03dEk3N2hMVS1zaU9Lblk5RXBFWE9wUHVmbDk3RnRZUy0wZmF3QkJrcC0yMzF3cTgyMXl6c2wyZw?oc=5) |
 | Trump suggests U.S. troops could return to Afghan base over China concerns - NPR | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOTnUyZ1cydUQzUmp5QU1vMXN4ZFJUV1ZpQ2tLQ3ZxazFCbnM5S0k5di1wbHNaZklLcFNSU0N2LW0zZ0NHeEl6OEQ2X0FuN3ZzT01wRjJLcHN5VGZXdjdLRGtDaWpRaEJMZHZIZ2l3ZnNCS0ViLUpjbXFGUmNUOUx4czd4dXJCUzlRelpadVFHZDk5RUhfWllBVFBvSnNXR3ZPd3VjbGltTGo3NlZxT2VvZFA3WVVYUQ?oc=5) |
-| A political violence scholar explains what the furor over Charlie Kirk’s killing is missing - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNc0pjZHlNN05oZ2M2aWlGam9waEJ3a2JfWWN0SlNYZjBVWDBvUEVvQmNveWJHdkZaS0VrQkxvalVGN3Z5VlZ0ZjRXcWVxODIwclkza1htaTl3blJGSGRSc2dDblBNcnFtU1lWcExJSGVzSHZ0ZE05d01mczY5WW11NUJScHRzU2NfT3VfYjVha1pVMC1tQm5OSGRIUQ?oc=5) |
+| Nancy Mace and Cory Mills clash over failed censure vote - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOeFdHQ1lSYmhoNkszRGF4Qm83SlZ1cDlDbTBYVHFhbnZ1RmdNQ0JiTzJCWk9jeHh3Tk5xb0o5Zlp3bThpeDQ0bWJ3ZVdGSmhoNnpDeFRldEVuOFY4Z1BDSGU3akFzQmJVLTlWd19ibEx0OXVVZ2tNb2xUTWZ1UmZpRUg5WWF3eGc?oc=5) |
+| Man Dies After Roller Coaster Ride At Universal’s Recently Opened Epic Universe In Orlando - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOQUoxNTQyeWcwZXp6ZGtLT0VtMkxTd29LQkduMjc2dllZYTkyaTJFbXF3YmFPZEJnZzNYM2FDako4R2JIaXBtakxxZzgtTk0wcGk4RDFEdm1rLS1xaWJRckdSWlAtNzNpbWY2dEFqU3RSMlVDaVZHQ2pkZVJyQUctbA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
