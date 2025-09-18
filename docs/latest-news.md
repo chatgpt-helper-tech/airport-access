@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月18日 18:57:36（北京时间）**
+🕒 更新时间：**2025年09月18日 19:00:30（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | House Democrats fume about vote to honor Charlie Kirk: "We're being totally set up" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQNUlTSWxjUUFkV3luQ3g0RndlNVB5bXBNVWVBa1ozdk0wRDNZa0dlenVaaTA2R2VkcERPRkNRYlNMSXI5RnBQY282Wk5famZWUFkxSkRXVVJCbjJGaUkxNFRGay1mVDZ1cW5fUHRrMEtqUVdGb2otQmxxRS1GRTUzYjliZ3FIQ0E?oc=5) |
 | US judge orders deportation of Palestinian activist Mahmoud Khalil - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5yb2pqWk9HX0JrajVEeE1DZlhKMGFySTVHWWhsSVhETmUtQnJ1UENuYmxSV2ZDQXM0RkpzV25xdW1IckRyXzlvcU1ZTWNrVjNpR2JEVG1RREwtUQ?oc=5) |
 | Deputies respond to potential helicopter crash near military base in Washington State - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPb0h1MzZ5Nl9jTFZKVFYzdVMzRlFZQVQxenUwRWpNblRLZFpPOGY0N1pfYmxzRlRBeEpjbGJ4WUlQc3pOTEpBejFCbUExN2dWLU9WSTduTV9vRFNPbFAzLTBjWkpWbzk3aE9sQ3ZzT1p0TFZhNmoxREVDNkw5LUFYdGJfRkJzbFczaXd1dlBVUFp0VndpaDZz0gGcAUFVX3lxTE1BUnlXSTMzcGczcWp0V2p2WWgxcjVxS2JIYzNJRVEwY3A1dTR5Qm5yNHpPSFM2cWk0MDg1YmdNaFlfNEtENzltZ2JzaWJJaTZMM3B2b1RrbXJJOEcxOWVPOFZkenZvaGxTRTNzdkJtbUN0cUxGSGpmMjFSQzA2ZzJoM1FIR2VjeGJyRGFuWmpLVmNtLWdxVlE4Vm5lWA?oc=5) |
-| Mississippi police await autopsy results for Black student found hanged at university - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPcEFmajNDaERXWXo4OGZ4Q2FqeGRKRHNkWmgwTEgzdGtYak9DTHNOd2MzSTRvOGFudVB5UThfSW1RRm5PUHFNZDZiMW15QVd2dkVEcTNhak0zNEYtbFFHVjFNYnFRbmhwaHFzM3dYRXRyajFESFI4TWxqcVlId2plOFJNdXRrdXktTks0cHF0VlEzQQ?oc=5) |
+| Democrats release counteroffer to avert shutdown while House moves ahead on GOP plan - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE5pbXJ4clg4eVkwQkFnamROd0UzTTlYYjNFMkFoSzVrYnV1NVBuYWNJU28wdXM0UHpLRV9Fa2gzTWx0ODdPaG5CdWk2SGZlRlpXOU1rZjNhQXFieHBoM1hLeUhRNTVDYmhfYVlTMXMzYVB6QdIBd0FVX3lxTE9CdDU4Z2VfZVN0aW5Vb2lfeTRwSW1fdVVreW9kSzJ2MWVkQlZwVVZ4NTZoUy1hamRrUjNFWktWVjRVellUNWVHQ0NDVjNqZnZIc1VNTHhhM2NDM3FfeXVlbWc5ZDVxUFUyY2FiUkxmcUJjUlItZ0VN?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
