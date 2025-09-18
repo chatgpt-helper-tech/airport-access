@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月18日 23:48:59（北京时间）**
+🕒 更新时间：**2025年09月18日 23:56:02（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | What we know about the US antifa movement which Trump says he wants to ban - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1kdzg2OEQ5MkVhVC1ZajhWR0hrZlg1bVByUDU2bVJvUk1tRHhWbWlxQmFlTzVaaHY0VzIta3hQY1hOU0F0bV9wRnVXVW9vSTFlZzBvUg?oc=5) |
 | House Democrats fume about vote to honor Charlie Kirk: "We're being totally set up" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQNUlTSWxjUUFkV3luQ3g0RndlNVB5bXBNVWVBa1ozdk0wRDNZa0dlenVaaTA2R2VkcERPRkNRYlNMSXI5RnBQY282Wk5famZWUFkxSkRXVVJCbjJGaUkxNFRGay1mVDZ1cW5fUHRrMEtqUVdGb2otQmxxRS1GRTUzYjliZ3FIQ0E?oc=5) |
 | US firms pledge £150bn investment in UK, as Starmer hosts Trump - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1OV0RkWmZRYVEtbTNVWEIyRGdFY3pRdGZGX2J0bm9HdjU1c1pqRjFsWHNDTFZKR1V0YjU3OUpDaHRNNkFOQ2hqQllLOHlPNVlNcWNkSEpCQTFHUdIBX0FVX3lxTE83M3ctYUxtaHhxSVRkajR5MURoVjdlZ3E5aGp2SV9FRkVUbmFxbmxfZlE2WkstZ1VHTE1TblgyYkdTWVdWOTc1T3U1NmNZSV9SeXN3OGd1UWJsQ3ppSll3?oc=5) |
+| Amid Republican Crackdown on D.C., City Leaders to Testify - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE9lbk1MYlFRN1MwN3dHcngzMjJ4SWlyM29INGhtLUlSa0VmOTRHeDUwYU9mLW9HYUdKZm9qS05QRUZFcWw2QUVZblFTSXRNMHA5TGtON2lncThBSi12eHk2eDVIRFlWRVFQRXZfSHV3?oc=5) |
 | Epic Universe visitor dies after riding roller coaster at Florida park - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPNWZPa2djdU9zMzdzZ3JTZVRuVG5odlJxZUZ1cU9Od3RaQXpkd1E3T2xYNVEwNzA1akpqbDAzb1IzNkdabGRBUE9NMlA1cmEyTndmbDJzUXFOVHBWVWcyc3RZOXJJdHF1Z0hGajMxc29IZ3BCWkRPWWstUjczdFVqLWNscEFxTkF1WmFrX2ZZX2h0b2t3NXpadGtWVXd3VVRzOUJQNmp3a0pvRmUtWVHSAVZBVV95cUxQUjBpYzlzRWVmcWVhNmRWUmM4cGFuWjdUc2pBOFlpX2JvNnNZa2hvQ3Q4VnFvSUJVNjZwa2FpRHlsNEsycVNMRzE4NGZvcWNjWW40U3VmQQ?oc=5) |
 | Capitol agenda: Democrats steer into a shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxOTFpiTUlrcVBBNFhKaXc1RjJGcS01S1dUVzFKOWp1NWVZTHFKMXZEWXM2aWJhQkxianFnbnRQZnZrTFdySHVZdDM5Z3V0V0dfT3UzZVFBRHhZd0syQTcxZ19lNXJDMmNCRjMwTzFWWW1IVWZhTUZOTy1KZ1M5MmNlM1dvMnlrRzJ5SmRqbV9fT2Y1VElMOG1nX0JkVzRSZExkNHVfUjJmUDJoQ3VoTTFHUkZfd004YW16RXVxQzNTajBoUXdMSUZSNF9JaU9lZw?oc=5) |
-| US immigration judge orders Khalil deportation, his lawyers say separate ruling protects him for now - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPTjE5U1diMFZoWGdUTDRXTHlna19Jc0JVaDJoQnRsbWVZUThuNVI4WUpCZmtlaTdYc3RJYUZpUHE4TlVTaV9PQ21IRXd0NTVPTXdfUjYtbzV0Y1o2WGxHWGJoazJZTnBwdGpnZ3JqbWxEWjViRVJhajZsSFZVeERxbmtGbkJVMlBjbThhVHR0M3I5VXFtTGRUWC1fUDJiRVFNZTIyNmlnNGRZQy1FU3MzdVQzWkFjTEpCNHAtN0pEZFo?oc=5) |
-| Tiffany Trump’s Family Cruised the Mediterranean on an Oil Mogul's Yacht - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPTDNyVFdKdXJPdUU5NWFUeWVLbm5tUzFMMzVCbXRsa3cwNjlBcGFtS3hnLVhLQ1JsSVNxWGROMXdoTXcxeEdabHhhOUFjNU5wRzhIR0hYdXROSGJWdGxVQUY0NnZSaDQzZDZuR1huRVVkc19IU0ZEbFNKNlctb3d6anJn?oc=5) |
+| 'Cataclysmic' situation in Gaza City, UN official says, as Israeli tanks advance - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE83cEpDYklCSXczS3FFYUl0ZXRNcEVFRjFGOGhuVTFyaWd6Wm5QWDZrUUpfUWN4S2poUDVhMDFHRTBDdmtRSTE5Q2VkbmFRLWdsU043SldieGF6Z9IBX0FVX3lxTE4yS0lra251dktWSS1ubGRwc2ZXQ0p2ZU9UUGNTQmhRdTY4b3ZoTHlCQVEzRGU4ZFlXY29hOTREVVRYVFhPSlV5NWFMWEFKWW1KMkpJSlFIVWJxVDRSWHpJ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
