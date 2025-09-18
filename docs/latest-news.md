@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月18日 10:56:29（北京时间）**
+🕒 更新时间：**2025年09月18日 11:01:53（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Those closest to Tyler Robinson made horrifying discoveries in hours after Charlie Kirk killing, authorities say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOMHlJWVpnYVlQb1dDcUhNejR2eHI0RHpFRC1QZFdUbENzNWRMM0hqU3ZzUC1COUdsZklnLUQxWU1namU4QmFablNDdFBwTnp3Sk0zaHBvSnJoQjduVFhwMXpWZWxQMlRkQ1o4OXhnYXkyTE5UcWpUSDlGYndNNmhMcFdjSnhVUEMtVElWcjl0RmtUZlFkRERrMQ?oc=5) |
 | Trump says he’s designating Antifa as a terrorist organization - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9HWk1zQWJkM2tUYU1QRHpLemZQd0Q1MmsyRTNSWXBKZTBmMUdmb3ljeXNjTnlUemc3UHNPMVBuRXlZaWY0YUJDd1k5cnZyb0xxY3RJSE5xOHZRQ21zVjNhcUV6VXloMG4tdWF5UHZrM1pZRGtpUHc4WHBjTlEwTmc?oc=5) |
 | Immigration judge orders Mahmoud Khalil to be deported to Algeria or Syria - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxONVlsaHo3bzdJYXBKQzJfRDF0eVNYS2EtbnREQXBLTzNxUmxnMzhhV1JEYTdGR25GT01sZTJsVWVPdFFnOFVVamFHamVBb2d5aUREUl9lbGpVcG4zUzZTZVhITU9HaVdBaW9ZVEZnRUVENmk3bVI2cUxxQzZSZl9JdHVSWFFaTlhHVFhBZWpoem9wN2pzNlVCbmFCTm1sRGVwQkRjeXozMWdtTmUtTk9B0gFWQVVfeXFMTnF6UjdKNTBMbm9SLTEtQUc2QW5SSWhiUnZyTzRvRkpsQ3J0eHpXWGFNSzUwbkRHMGdOcnN6SEVGaERUTW5PVktVVEM1alg1dkpXRjBSNEE?oc=5) |
+| After National Tragedies, Obama and Trump Are a Study in Contrasts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQaHlpdktkTFZ2dFYwT3cyaExTMHUyUVMyRTdGQVB3ZzkxbGpFeEpnUm8xYmRjbUI5d1FkNEpIM2VfMGd2ZlQ0OWdvMWNGNVk1SkkyeW43Mm5RU0NMQV91UzA5WXhOSmY0bzl1cTdTVGtMNUpsemJvWDFwWmZ3Qll4aXZWQzJXZHJNOEE?oc=5) |
 | GOP defections sink effort to censure Rep. Ilhan Omar - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNRkN6VW5sU1FMVDVfTGdOajIzdFFHQ0ZsX0NZYmswWG5KTnlvZjBNR0VYeG0tc1RHZGE1UERqTTdKandiR1BFS09WVVZaZnJfSThXakFXclg4MGhGaGFNQWp2Y3Z5aFgwUVl3U1d0MGNUZ0QtcHAzbFJaSG42QzlrcklMWjQ4UWVaNFU0RVJpVDk0T0ZnTWc?oc=5) |
 | Engardio has been recalled. Will the S.F.’s Great Highway closure go on the ballot? - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPeEt6TXEyY2tRT21PcGlpbkkzODU5ZGJpcGhRLXhEQWl4ZXRmWnU0QnpBTTRtUWJ1ZTIwOUpENE5kbkNZYWtrQjBPYTlQRTl1OVFWTEg4a3duY2ZMODlpcWJkakNYeEtvUEdKMl9OUHR0b1czRnNVS0V6c3lBbHhXOXRjMFBYQWNRUG1ZMkdsRGd1SmY4RXc?oc=5) |
-| Republican Brad Raffensperger to run for Georgia governor after defying Trump over 2020 election - AP News | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOa1F6cTZzYkVQNmZmVjlRZk5zU1h5dkc3N3diSURLS3RXOGExczRGdmR5M2ZMSDJsWG5DNmlPWEt3OTBleVFzQmViV3Q3anN6OThLeU9iOE9WLV9RNUtMd29OVlNmcVFjRzVoaERNZ2tuczNyYW5QTk8zbFNTMU5WVWQ1RVlBWEpmWmtJMEFnNldJaEROOXFSWVNZNXJtOFpIaWFzRE1oZk5Vc2pzbG1CZ3k0YzREZktEU1IyeE1R?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
