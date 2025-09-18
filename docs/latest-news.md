@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月18日 09:40:43（北京时间）**
+🕒 更新时间：**2025年09月18日 09:48:26（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | RFK Jr. said CDC employees were ‘killing children,’ former director says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNS2RsQ0ZpOC1PYWlINU5NUE83eHRNNEhVaVYyMk5iS3NkRkhIQUYtdlhHY0k2RlVaV1E2QjRxeGdXRmJhYzc3YTRqR3FaLU1tOWtwTkJPUTRHNl9oZnhVNjliYXlQQUQ3Z3BuNEwycTZXREVmbTg4REpsaFBmcXlvNktrS1ZvTEhVQm5MVXpacVNBay1kZjBMS1V4Q0JkcmphM1ZJODJjN3lzVl9PdUJoZlVnM0RNNktveE54RzlnWkdjVWtpWHdvS0xjbVZkNnJP?oc=5) |
 | Charlie Kirk investigation: Patel testifies before House on alleged killer Tyler Robinson's capture - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQZ2g4TXQxdy1GbFZqeU1VSGhEenY1R1JCQk9OR1N1V3Jqc2dyUEFHellfOUxOT1R1TVl3T2I5YXNTMnNRejlIU0x3WkpfaWl5MGFhQnZybFBFS19STzdQNFZ1ZThBYngwNjdlRkxGMk1jVFphZXJnVkRjcGIxenFDZnJsUkM4d9IBiwFBVV95cUxNN2J0eGsyNGJMd0JCR1RVXzFxSi0xZU5FNTBZT3A4bUE0SWdZcmQ4d2hDU2k5allMSjZJYzZ4RUZuRXBTdnV3THp0cFM5ZjZQWW54MnMtaEM5UlVTZ21reDl1RDd3OXdxNFBpYkpvcEEwTXdBVE9DNEZqaXljSndnT1RfQmk2MlhuU3Vn?oc=5) |
 | The Justice Department sues Maine and Oregon, ratcheting up demands for voter data - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOUm1oNE9nVDV6QlBSNHJqU0NZa1JTVFdUT184eENMcFpvZ08zbTBQbUY1TTNBSDhieHRZM0xGUVVhRTJySmlHRUVhOHcyNmx3YVoxM2pLeWhUTE1PdW9aNTVsdXRueGg2N25fcDZqeGFpSUUyaFdyZnZobFUwTnJZRU1n?oc=5) |
-| Trump says he’s designating far-left anti-fascism group Antifa as a terrorist organization - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9HWk1zQWJkM2tUYU1QRHpLemZQd0Q1MmsyRTNSWXBKZTBmMUdmb3ljeXNjTnlUemc3UHNPMVBuRXlZaWY0YUJDd1k5cnZyb0xxY3RJSE5xOHZRQ21zVjNhcUV6VXloMG4tdWF5UHZrM1pZRGtpUHc4WHBjTlEwTmc?oc=5) |
+| Trump announces he's designating antifa as a "major terrorist organization" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9CSy1QRmxLem5CSVJqNjdoMTVucHRWaEd3eG1kbHRLdE5aSF9tNWVxcGE0bmJhV192UDc3cGNDRmVSOG9yRWdPUWZBemVOX2ZDZVBrcWoxYTRwRVB3bTJna0dlU2dXUVI5TDhCU0oyQ3JnN295QlYtVHA2RQ?oc=5) |
 | Obama condemns ‘horrific’ Kirk shooting, but defends the right to criticize the founder of Turning Point USA - Politico | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5BVDJKdEZ4dEtteldwRmx6UWlORFBUaUlROXI4QVQ5dk5YWWxvekhkOTNKa2hrZVF4a1ZwZVF5UjItdGNMMTBZTWI1a0R2eEpoQVlzRkhLX3VMb0xfSXpRM0d3TVNIY2M3TFNRWHU3cGRSRWR5aUI4aA?oc=5) |
 | As Shutdown Looms, Democrats Outline Spending Demands on Medicaid and Obamacare - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPZ3ozeVhoS2xES0VKR3p5UXBDZHV6UXZLa0ZsVGdXb3NUVHFlOVhLMm84cDQta3MyTEFhSnBrZDhlYlFaQlRqQ016NE01ZmlNMzRTZFJucWhBM1ZhNmtuNTF6cDgzYnZOZ1lKemFWNWxoLXlsdEhrUnhkT2l5dkRyallHOWhuYk1LcUh3eDI3SmQ?oc=5) |
 | Immigration judge orders Mahmoud Khalil to be deported to Algeria or Syria - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxONVlsaHo3bzdJYXBKQzJfRDF0eVNYS2EtbnREQXBLTzNxUmxnMzhhV1JEYTdGR25GT01sZTJsVWVPdFFnOFVVamFHamVBb2d5aUREUl9lbGpVcG4zUzZTZVhITU9HaVdBaW9ZVEZnRUVENmk3bVI2cUxxQzZSZl9JdHVSWFFaTlhHVFhBZWpoem9wN2pzNlVCbmFCTm1sRGVwQkRjeXozMWdtTmUtTk9B0gFWQVVfeXFMTnF6UjdKNTBMbm9SLTEtQUc2QW5SSWhiUnZyTzRvRkpsQ3J0eHpXWGFNSzUwbkRHMGdOcnN6SEVGaERUTW5PVktVVEM1alg1dkpXRjBSNEE?oc=5) |
-| Live updates: Trump enjoys royal pageantry during unprecedented second UK state visit - AP News | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE9HU1k0U0VrYnRpOUNOTU1ORjV5UEFoY0tiTGNPc3EzZGNLejNQc2RIT1NORDQzVm1pUHR4MXc3dmdRS0dYblZOMW1ZU1EzUVZMendzcVZZeFJuMlY1TEktSWNiTWU1VkNLQTVV?oc=5) |
+| King Charles lauds Trump’s peace efforts at massive UK state dinner - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQblZ1TURHSXhUUmlkRmdMMk9NMmlnV1dlMTZMWG1ETFp1QlhfSTllQkpXUnpoVDU0VEc4X3ZMWmlPZmk2R0VhZ3ZRYkx6UUVDdDRNWEY0V2hHcUF3bEhyM1ZRLU92N3huWHFxN3UzWW0yMjZsVjR4enVBb3Vad3hPdEVPcGFrd9IBiwFBVV95cUxOTjdtc2l0cEJqa2psRU10ZEZxZTk2VXdNSk0yTGx5LU9Wc0NIZWVmQWJBVm5KQjNoc0JacFVPMzFyX29CMzNzYnVKaFlTTHFtcm1WN3FOVERVTW5LOUtud3owaTI2TWJhbzYyZEU5OFVTSUpsblc3SGtIc3hHWUJjUklhNjlzNHFKZVc4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
