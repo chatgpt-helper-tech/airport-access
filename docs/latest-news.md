@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 06:33:04（北京时间）**
+🕒 更新时间：**2025年09月19日 06:41:42（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | What is Antifa and why is Donald Trump targeting it? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE81TnNXbFFQSDJ3c09xR1oxblVCQXFTQnBZQkNPaWZkR3lfOXoybFRFYTVyLXNoYUNZWDVlXzVSVlVQb2Z2dDhTN1pwcDMzMW9HUFhCQkU4WldYUdIBX0FVX3lxTFBrN2FrU3FaVm5PMzRzTHprNEpCck4wZzlINl9ta29HLUtMVmpjbk9NdFA3LWhOSS1PYzFVa2Jsek9kU0pHT0VibUwzRDZfc0V4QnZlZDN3Rlg0M2VhTDF3?oc=5) |
 | GOP leaders consider Senate jam plan after House CR vote - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPYXhlYUhGSDFWb3Y0Sk1pQ2Q0YkdQMGp0aEZxMzA2eU1fZTAycDVlZElpSmlJVE9NY2RURXNqeFpBbFVuQ3BoaTRKcEtEVHdlbkQ5U1hwZDRaNGw1SUNUQm5CcTdnYk5Qb2xucTlTREd6ZllOWGdHdFFVazJONW5YaWZUVTBobllhMTByV296Ql9zdl9QVEE?oc=5) |
 | Judge Blocks Administration From Immediately Removing Guatemalan Children - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOczBHWEpoaG0xaENLT0RZYmxZLVlCMmlWZnVYUzB6ZzlURjNfWFNnSkxOYURHbUNfUEItRnZyVFJWOE5KX0Q2S2FwLU1lWUZRRHl4S1FKWUthcHUyZm82VnJqU2hOUGdnSkZkNFFndTQ3RDBVVFVjQzNqTnFldDNCNHZEdFp4Yk1JMkJr?oc=5) |
-| Senate confirms 48 Trump nominees at once, including Kimberly Guilfoyle and Callista Gingrich - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQa04yVjJVWnBOb2JrU0htbGxCcG94Q3c4enlxdER2Yjd4Y24tSU16cXBqcUtQczFoTUZZS1dlZ0NHajduSnZBZjJkSkZLaFlVYWJ4VnB1d0Z3bXVDRThCZm9jRHdyUVc3a1FPZ2tESkdZeUw4bk9hLW5RUDRaN0hNaFg2WERlWGUzaXB6aXVnd2VTc1R3NUF3eWFWanNlNk5PRklFNnBrdHRoZElEakpMQ3hVckdBb2VFa19zM2xpeFfSAVZBVV95cUxQOFAzMmJSdTBJbDhrWEdjbXRnaFpHRS03dEk3N2hMVS1zaU9Lblk5RXBFWE9wUHVmbDk3RnRZUy0wZmF3QkJrcC0yMzF3cTgyMXl6c2wyZw?oc=5) |
+| GOP pummels DC officials on local crime - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQM3NnVUxBWEJwUnVDd3Iza2FtVXdaQUlrQXZ5RGQxZjRpdXpUNmZCQ3JLSDZJLWxkQnhtMk9RWXFIcFJaRmdXUkFDdGNZa05lM2E2dE1OOGJQRUtIeWNyTFE4Yk5yTzlpb2FiZXdFYnozLS1jVE54eXFjOC1wWWh6dGZLODZBVHNXMzhvNzgwSmlpNjB2OFE?oc=5) |
+| Senate confirms Kimberly Guilfoyle and 47 other Trump nominees in "nuclear" move - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE54NG1sZGFVcEc2RkMwSjliNDdRWUNCQzhnVi1oUi1QNkhQVWJ2bDNDd240VGRaTlRlMEQ1d2IwZl81Rkl0aFpOamo4V3BvQmZLQWk2eW1MZ1RMaWpGMXpXXzZWaEp1QjZJaXJTNzZjTHQ?oc=5) |
 | Trump suggests U.S. troops could return to Afghan base over China concerns - NPR | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOTnUyZ1cydUQzUmp5QU1vMXN4ZFJUV1ZpQ2tLQ3ZxazFCbnM5S0k5di1wbHNaZklLcFNSU0N2LW0zZ0NHeEl6OEQ2X0FuN3ZzT01wRjJLcHN5VGZXdjdLRGtDaWpRaEJMZHZIZ2l3ZnNCS0ViLUpjbXFGUmNUOUx4czd4dXJCUzlRelpadVFHZDk5RUhfWllBVFBvSnNXR3ZPd3VjbGltTGo3NlZxT2VvZFA3WVVYUQ?oc=5) |
-| Trump and Starmer, Skirting Differences, Praise Each Other in U.K. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9VcFlPcDl4SGxzbWxpMkhUbTZ6MFdwOVFRMHg1aTJOS09oQXRDTzdnY2M4LWV5T3ZFQVU0OHdPeWRFNnJxQ2VwenBsRWg1ckdiU2t0OGpMNU9CV1BiZjY1bTl5MjBqaFJGaW9CSmVjM2NJUXJ3MTRCSGdKUTFUeFU?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
