@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月18日 19:16:51（北京时间）**
+🕒 更新时间：**2025年09月18日 19:24:05（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Workers across France strike over budget cut plans | [阅读全文](https://www.bbc.com/news/articles/cj9zvg03elzo?at_medium=RSS&at_campaign=rss) |
 | Macrons to offer 'scientific evidence' to US court to prove Brigitte is a woman, lawyer says | [阅读全文](https://www.bbc.com/news/articles/ckg3llj5nxdo?at_medium=RSS&at_campaign=rss) |
 | Melania’s hat, a yellow dress and Kate’s golden gown - standout state visit looks | [阅读全文](https://www.bbc.com/news/articles/cy857ddpjp4o?at_medium=RSS&at_campaign=rss) |
-| Vintage port, 1,452 pieces of cutlery and very powerful people - a glimpse of the state banquet | [阅读全文](https://www.bbc.com/news/articles/cn4l13gxy2lo?at_medium=RSS&at_campaign=rss) |
+| Watch: Pomp and protests on day one of Trump state visit | [阅读全文](https://www.bbc.com/news/videos/cd07v4g0yy3o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 

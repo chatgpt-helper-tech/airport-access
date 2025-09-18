@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月18日 19:16:50（北京时间）**
+🕒 更新时间：**2025年09月18日 19:24:05（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Workers across France strike over budget cut plans | [阅读全文](https://www.bbc.com/news/articles/cj9zvg03elzo?at_medium=RSS&at_campaign=rss) |
 | Macrons to offer 'scientific evidence' to US court to prove Brigitte is a woman, lawyer says | [阅读全文](https://www.bbc.com/news/articles/ckg3llj5nxdo?at_medium=RSS&at_campaign=rss) |
 | Melania’s hat, a yellow dress and Kate’s golden gown - standout state visit looks | [阅读全文](https://www.bbc.com/news/articles/cy857ddpjp4o?at_medium=RSS&at_campaign=rss) |
-| Vintage port, 1,452 pieces of cutlery and very powerful people - a glimpse of the state banquet | [阅读全文](https://www.bbc.com/news/articles/cn4l13gxy2lo?at_medium=RSS&at_campaign=rss) |
+| Watch: Pomp and protests on day one of Trump state visit | [阅读全文](https://www.bbc.com/news/videos/cd07v4g0yy3o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | Democrats release counteroffer to avert shutdown while House moves ahead on GOP plan - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE5pbXJ4clg4eVkwQkFnamROd0UzTTlYYjNFMkFoSzVrYnV1NVBuYWNJU28wdXM0UHpLRV9Fa2gzTWx0ODdPaG5CdWk2SGZlRlpXOU1rZjNhQXFieHBoM1hLeUhRNTVDYmhfYVlTMXMzYVB6QdIBd0FVX3lxTE9CdDU4Z2VfZVN0aW5Vb2lfeTRwSW1fdVVreW9kSzJ2MWVkQlZwVVZ4NTZoUy1hamRrUjNFWktWVjRVellUNWVHQ0NDVjNqZnZIc1VNTHhhM2NDM3FfeXVlbWc5ZDVxUFUyY2FiUkxmcUJjUlItZ0VN?oc=5) |
 | House Democrats fume about vote to honor Charlie Kirk: "We're being totally set up" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQNUlTSWxjUUFkV3luQ3g0RndlNVB5bXBNVWVBa1ozdk0wRDNZa0dlenVaaTA2R2VkcERPRkNRYlNMSXI5RnBQY282Wk5famZWUFkxSkRXVVJCbjJGaUkxNFRGay1mVDZ1cW5fUHRrMEtqUVdGb2otQmxxRS1GRTUzYjliZ3FIQ0E?oc=5) |
 | US immigration judge orders Khalil deportation, his lawyers say separate ruling protects him for now - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPTjE5U1diMFZoWGdUTDRXTHlna19Jc0JVaDJoQnRsbWVZUThuNVI4WUpCZmtlaTdYc3RJYUZpUHE4TlVTaV9PQ21IRXd0NTVPTXdfUjYtbzV0Y1o2WGxHWGJoazJZTnBwdGpnZ3JqbWxEWjViRVJhajZsSFZVeERxbmtGbkJVMlBjbThhVHR0M3I5VXFtTGRUWC1fUDJiRVFNZTIyNmlnNGRZQy1FU3MzdVQzWkFjTEpCNHAtN0pEZFo?oc=5) |
-| After Kirk’s Death, Students Return to Campus and Learn ‘How to Be Adults’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5wWVA4ZVZ5dkw3aHcyQnlHZHlXZDFYOV8xaVRrdXlvMDR3ZzByd1k0RlAxNTh1UHB6dFV3NW1seDNKUnpqenBxUzNYYkFaQUhHU2JIM0xydThoeHE3cWZPQmZsZGE4dTEyU1ljdHhwYURNZ3VabXRMNlNndw?oc=5) |
 | Possible military helicopter crash in Washington state near Joint Base Lewis-McChord - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQVE42VlFuaUhBamV5Q1lXSW16OVpiUWFjbDNRQTlkcFZOeWVKaVA4QTEzRnlDRXJrY2c4NHpzRVAxdVdiWUFTRUVTNFlHUHJsbWFjTUFXRnhQT2JQNDRkdS1SZVRtNjQtZlZSYUpTNUg3TXp2NENzbjdBMzdaSjM5MXAzUzRlVnlheWptT1pRSjNuRndMOFVIYURlNXktZzN3U3d6SGJXUWZob1MzRW11ei1zcHbSAboBQVVfeXFMUFd5OGhvM3NNOXRUZDQzOXIyZjZPaGFrcUl0LWpqTjhjOHI1WElGeUhTWVVhQ0JHdlcxMHRlRk51ZU9HODlyMml3anI1d3VUN08tRmZDbTBMMFRSblVVUmxYTmZyeWc5eGFyaFoxUlRmeVJXV0VTeFZyWjRPZ2lPNl9yendjeFk3bUlhV2dIQzFseV9nZXI1Uk9DbGowTjRjYVhncFpjdHpVaXU1MkN5QWg2YmVGNHh3VWJ3?oc=5) |
+| Gaza City’s communications cut amid widening Israeli ground invasion - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE1BLVdvZHVLR3FMb1hZTHdybm9sVlNkbU1nb0Z6Uk9CbE9lTElYQ3dCaUF5bHdCcGIzRTIydHUxaWVZSldIRGlfZXlBRTd5SFlabEJmU2ZYcFdDTnJXNzc3VDVvNko2T1FONm1HbXRVRmFPam8?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
