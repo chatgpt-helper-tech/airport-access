@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月18日 15:24:19（北京时间）**
+🕒 更新时间：**2025年09月18日 15:32:50（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Behind Castle Walls, the Rich and Powerful Celebrate Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNcmZWTXFKNmpyVl9NZzBVbzNwU005LUlLRlJXQm5TS2FrNkhjNjNocFBVSURZNmdzeVliWmZjbmMzXzBvRTVWeHZUWUIzUmRkT2dSbGZ6LXdTNGxTRHozb3pSbFFvU2ZQcmxqZ0FNOGFZTFEtcVpPWFNPRTVCZ0xTcjZpSG5WVXE5dS1WN1FYLWtBZw?oc=5) |
 | Trump, Vance to headline Charlie Kirk memorial - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOQ3VQRk45bVlrcVpiQkNlWkphUXFrRi11cjR0azcxZ0Y2UmMxek4xa1czOEEwLThVTzh2WjNvanJjektOLVpJR2N2cXRSMWZXakZEX3hXVXVSMk1LSlZUUXpWSGN5ZlZXb3psZktfQUxRZUgxaW51d0ZRU2kyQnZ3NGlJeGxWWDBKLXRB?oc=5) |
 | Trump targets antifa movement as 'terrorist organization' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQbnJFc3hCQ19lWHVrTDZKUFE3cXVqMnVXeVRrOWpTM0hGeDZBdXNtN0hCbndDWGJ6Z1ZMVzNyZzJINEc3SWI0TXZnM21PTnVCaWZLelF4MHZRbEFzNkNxdkVxMUlySFY2V2g5OFdNYTc4T19HVlpvVHlqZ3ZmZUwzQmN3cU5FdjVhZ2dQaE1BazFSUFMtcjA2RlItcVI5UQ?oc=5) |
-| FBI Director Kash Patel clashes with House lawmakers over Epstein files - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNVTdGVEFUb1g3Umx1Zzk2S2V5Y0hwVG84NDYzMjh0WllLb2hNUkYzUnpORk93dTBxUXJrVzRvNGFVMjJ3WFlMdmpnSjFwaXlzT2RMOHB4S1BPTUg3NkNpQU1zcEhPal9NejRkZ09LeHhxRk9ObTJoV3Z6Mmtwa3pxeUY0OHAxaGZZcU1ReGZCWTBsenFsdGotQmtFNEtKMThpUy1IRHB2b0fSAa4BQVVfeXFMT2xyVHNaekxNNWo3WnNTa1dWWFZLdE5JYnF6ZFBaRU9JV2tOeXhUMVVhVUtBT1RTYXpScjlrVnUzZDhSbWVZMk80Z2NQdzlUZmFJNk1tN3k4Wk1BTzRDS2FlVDVRSWFxQUc4NXIybk5PZGZzZmdYNjM3TXZPVU80RUNZRXJBejhvSk9aeDduYm1qaFZrdzBpNlRZaHZQNFZ3TDBlVWJQeXB0Zm50dmF3?oc=5) |
+| House Republicans help Democrats quash Nancy Mace's rogue Ilhan Omar censure - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE8tN05vd1lsbE1HMUk2Mi0zNWdCNHcydDFSay1RZTcydXVoZS1nRV9jcXZLb29sQUtibzRaTGlYa3NQbkctWGdyT3VGT29YNzFxTFZzT0p5OFBvQ3d0MWpyUl9iS0k0UnNUemlNazRRcy1MRmJhQkduMDFpVWNBdGc?oc=5) |
 | US immigration judge orders Khalil deportation, his lawyers say separate ruling protects him for now - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPTjE5U1diMFZoWGdUTDRXTHlna19Jc0JVaDJoQnRsbWVZUThuNVI4WUpCZmtlaTdYc3RJYUZpUHE4TlVTaV9PQ21IRXd0NTVPTXdfUjYtbzV0Y1o2WGxHWGJoazJZTnBwdGpnZ3JqbWxEWjViRVJhajZsSFZVeERxbmtGbkJVMlBjbThhVHR0M3I5VXFtTGRUWC1fUDJiRVFNZTIyNmlnNGRZQy1FU3MzdVQzWkFjTEpCNHAtN0pEZFo?oc=5) |
 | Family of Black student found hanging from tree on school campus hires lawyer Ben Crump - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxORjcxa2FZVFZVVTJqSC0zeXJlc0x6UUFZUFJrbnBzSUNHYndSZWVCN183LWo1RlhtbElrMzh0dU50R0xHdk83WGV1UjlKS3M0VkpTZm1VeElRN2NtZ2xJNmhsaTh4dkFiRTVNb1FrVE1IRnJ0MkdaWUJBY2NMQ2VGZGxILWhZa1d3MjN5YWVlN2xCcVlLSHBwd1RTbGtTbXRuMGc?oc=5) |
 | After Kirk’s Death, Students Return to Campus and Learn ‘How to Be Adults’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5wWVA4ZVZ5dkw3aHcyQnlHZHlXZDFYOV8xaVRrdXlvMDR3ZzByd1k0RlAxNTh1UHB6dFV3NW1seDNKUnpqenBxUzNYYkFaQUhHU2JIM0xydThoeHE3cWZPQmZsZGE4dTEyU1ljdHhwYURNZ3VabXRMNlNndw?oc=5) |
-| In Charlie Kirk’s name: Trump officials signal move to limit free speech - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1LLUNOcmhVSkF3U2M2bHRnY3puQjkydWZEZ19RZ3BXbmtTTHR5NXRUZkZSZHF1ajJTaloxYUw2UDVyWXpmWWVYUTBoLTBtdldWdmQzRGR0ZmljcjVXbXB5cXEzSjR2Z01tZUlLRkFTX2M?oc=5) |
+| Kash Patel doubles down on his handling of the Epstein files in heated Hill testimony - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxObzFPZkprS3o2bVozVFlUZEF0NlBmN01ySFkxVGRWRVM2OVVocVZqQUhCT09rcER4SU54dlQtMWNzQUpyZXJIaDRPVGJRR1R6cExKRWEzVUtNWEZmZnZQUWxqNVhITkJBMEN2bnVWdVltMHBmcjFCYWg4cGtzTmFOeEpqaVJyLVl6Vi1yejBwTXZ1SjJoRXE1ZA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
