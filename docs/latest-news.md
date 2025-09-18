@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月18日 14:48:23（北京时间）**
+🕒 更新时间：**2025年09月18日 14:56:57（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Three US police officers killed, two injured, in Pennsylvania shooting - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPblltR3g1QUJDVF9tQm53Z2hwVkdxNi0xcURfbXFBVG1yUmhxeEVFWGM1ZDFSUnI0c3BnT3E0SzNHUkVrWWdnZTNlVEpkcnpwVUN3VDZlUmJ4TlVBS3Z5am55MzJSWXBTV1didmluMkpya1pKa2paOF9nQVliV1o5MkotRXVxZnFEMi1icWtpLVh5eENHZTBIYWEwZ3nSAaIBQVVfeXFMUEtPZkFOWDhtVU5IWnVpYVA2d0xUcE9pVDR4a1ZHdEZsZllGSl9pTGlWUDRGV0pJVFlwdXNRQURCUEc4RTRGQVNQNEtEUUlDYkNfdDBabDhHV241SU9oUXFoQ1ZsTFMyTDJxNEtNYklhdjhZTVJqY2pacjYwaUIyOFBIbExVb0NHdm9hcFRqVUhJQTFKQ2ZqbENBOExQNHdmdFFR?oc=5) |
 | Ousted CDC Director Susan Monarez testifies about RFK Jr., says she's "very nervous" about vaccine recommendations - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNS05IVDBObUVBbkNJV1FJQXRqa1l1Tk1fNjd4NnBsUU5wM2hUdXViWHNzTl9qa2RYSUxwNWpaRmRqcVhBNE5oeENKZDVXdzJnRFBwSkY0dHl1Ym92d0h5WlYtQmp1VFNVeThmVFFNQXJEV2VuT3NfMUlYZVFES19TZlNESTMxMklYSHFsa1VFWUpQWVU3ZGfSAZsBQVVfeXFMUDdVUjVKQ256Y1gxc3Z1U05HY0lGdUp5X0dZampHSVJBS2JNdlBhaDl6YXR6ZUlxT2s2X0JpMHA1WWxrcjZ2R1FTMFVxcjJucmUyc3laV3FnakVVZVBsUHNub1RvTGV4ZVc1aFJUdXNDN05FY3pOTmVPVVYzOHNQSGFxS1hZR0RVWF9Oakl2OUgyeEZzMzhHM2laYkE?oc=5) |
-| Trump greeted by king, thousands of protesters in UK visit - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNVEdwcTVuZGU1Nm1kdWRxcE1xMXVYVjBtOFBYME1EZlkxR0lBY0VZVlR4RHgzNllSMFpTeGdGU3JCUl9ZbHc3RlZXeENZdW9JdEhCZlgwX1otdWNmbTZQOGdlVmgyb2JQcUNxUXVCajdMRF9ZeUFCUkFjWXVTanhVUmZDQjRnWWxJcnM3TzNhRFpLN2hLcWo5NzFDZFRrTUFsWW9jc9IBqgFBVV95cUxPMEpBRmRMdndieUxTdTV1N2ZJZ3hJcGwtcThOaHJiamRBSzk0YUFIMmlRc2hzNy1mREpKV0Npa2tIUVpET1IwbDRyb2J4cnd1Sm9CaWZSZ1lTZ0Z2Qi10MFZnRVpYZy1FdFA0SWZiTVF4WWdkZFZCMmZkT0JNNk81TEF5NFMwWXhMSGl6WnJHb0xDRHVNdmp3UXlUUEgwSXpvSHliTkEtVkpHZw?oc=5) |
+| Behind Castle Walls, the Rich and Powerful Celebrate Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNcmZWTXFKNmpyVl9NZzBVbzNwU005LUlLRlJXQm5TS2FrNkhjNjNocFBVSURZNmdzeVliWmZjbmMzXzBvRTVWeHZUWUIzUmRkT2dSbGZ6LXdTNGxTRHozb3pSbFFvU2ZQcmxqZ0FNOGFZTFEtcVpPWFNPRTVCZ0xTcjZpSG5WVXE5dS1WN1FYLWtBZw?oc=5) |
 | People closest to Tyler Robinson made horrifying discoveries in hours after Charlie Kirk killing, authorities say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOMHlJWVpnYVlQb1dDcUhNejR2eHI0RHpFRC1QZFdUbENzNWRMM0hqU3ZzUC1COUdsZklnLUQxWU1namU4QmFablNDdFBwTnp3Sk0zaHBvSnJoQjduVFhwMXpWZWxQMlRkQ1o4OXhnYXkyTE5UcWpUSDlGYndNNmhMcFdjSnhVUEMtVElWcjl0RmtUZlFkRERrMQ?oc=5) |
 | Trump targets antifa movement as 'terrorist organization' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQbnJFc3hCQ19lWHVrTDZKUFE3cXVqMnVXeVRrOWpTM0hGeDZBdXNtN0hCbndDWGJ6Z1ZMVzNyZzJINEc3SWI0TXZnM21PTnVCaWZLelF4MHZRbEFzNkNxdkVxMUlySFY2V2g5OFdNYTc4T19HVlpvVHlqZ3ZmZUwzQmN3cU5FdjVhZ2dQaE1BazFSUFMtcjA2RlItcVI5UQ?oc=5) |
 | Kash Patel doubles down on his handling of the Epstein files in heated Hill testimony - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxObzFPZkprS3o2bVozVFlUZEF0NlBmN01ySFkxVGRWRVM2OVVocVZqQUhCT09rcER4SU54dlQtMWNzQUpyZXJIaDRPVGJRR1R6cExKRWEzVUtNWEZmZnZQUWxqNVhITkJBMEN2bnVWdVltMHBmcjFCYWg4cGtzTmFOeEpqaVJyLVl6Vi1yejBwTXZ1SjJoRXE1ZA?oc=5) |
