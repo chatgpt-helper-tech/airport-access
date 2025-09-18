@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 04:09:21（北京时间）**
+🕒 更新时间：**2025年09月19日 04:16:18（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Suspect in killing of 3 Pennsylvania officers was a 24-year-old being sought on stalking charges - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOY1RWT3pfbjdGeGJJdG9MWllwc3p2QWg0eTNBMDdlOTVHanliVHVGZGpXM0txdG5QMUs1SlhEQU9uWWxTY2dnTmZLOHhJV200RnRtckVvcUlnN3BpUjJtcWJpR3hQeFpxRDBHY3VEU05Pb0ZXYWxnbW5xNmt0WFVPYmstNkxQRy1KbVBV?oc=5) |
 | What is Antifa and why is Donald Trump targeting it? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE81TnNXbFFQSDJ3c09xR1oxblVCQXFTQnBZQkNPaWZkR3lfOXoybFRFYTVyLXNoYUNZWDVlXzVSVlVQb2Z2dDhTN1pwcDMzMW9HUFhCQkU4WldYUdIBX0FVX3lxTFBrN2FrU3FaVm5PMzRzTHprNEpCck4wZzlINl9ta29HLUtMVmpjbk9NdFA3LWhOSS1PYzFVa2Jsek9kU0pHT0VibUwzRDZfc0V4QnZlZDN3Rlg0M2VhTDF3?oc=5) |
 | Trump admin’s basis for deporting Guatemalan kids ‘crumbled like a house of cards,’ judge rules - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQVEdNd3ZDTmtBblN5YVZXYlhWaklNeVhhYkN6S2RfOFJubE5ZT1NpOGZaOEQ1ZEMtZVFwVFZuTzFqUnZWeHRFdkRiUzlVelNxaFlzdEhYZzdURHJydEdTZE9CamZFcUUtSTVpTlpMdWZDbnFwOUYyNi1GQmdlYmhPUkpIWnI3dFFNb3JFS2VUNmxFQQ?oc=5) |
-| Democrats release counteroffer to avert shutdown while House moves ahead on GOP plan - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE5pbXJ4clg4eVkwQkFnamROd0UzTTlYYjNFMkFoSzVrYnV1NVBuYWNJU28wdXM0UHpLRV9Fa2gzTWx0ODdPaG5CdWk2SGZlRlpXOU1rZjNhQXFieHBoM1hLeUhRNTVDYmhfYVlTMXMzYVB6QdIBd0FVX3lxTE9CdDU4Z2VfZVN0aW5Vb2lfeTRwSW1fdVVreW9kSzJ2MWVkQlZwVVZ4NTZoUy1hamRrUjNFWktWVjRVellUNWVHQ0NDVjNqZnZIc1VNTHhhM2NDM3FfeXVlbWc5ZDVxUFUyY2FiUkxmcUJjUlItZ0VN?oc=5) |
+| GOP leaders consider Senate jam plan after House CR vote - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPYXhlYUhGSDFWb3Y0Sk1pQ2Q0YkdQMGp0aEZxMzA2eU1fZTAycDVlZElpSmlJVE9NY2RURXNqeFpBbFVuQ3BoaTRKcEtEVHdlbkQ5U1hwZDRaNGw1SUNUQm5CcTdnYk5Qb2xucTlTREd6ZllOWGdHdFFVazJONW5YaWZUVTBobllhMTByV296Ql9zdl9QVEE?oc=5) |
 | Mayor Bowser, top D.C. officials on Capitol Hill for grilling on crime - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQcWllZGtWWVNNMGk2cXI0b1ItTEpLTG9Id2dkeFpPY196UDUxWUJHZEd2dFp6QmtsUU51YnNBNFZVRjNzVHF2TVREYTVQcTlkYlcxU0x4eXh2aG1iSGxMaG81eVFTelJmQm1LZVZ0UTlpb1p4SlRiVVJ0LXpPX1VQOHJKWmhaLV8yV0ZBZG9EMUZab3M?oc=5) |
-| Trump Suggests U.S. Troops Could Return to Afghan Base Over China Concerns - NPR | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOTnUyZ1cydUQzUmp5QU1vMXN4ZFJUV1ZpQ2tLQ3ZxazFCbnM5S0k5di1wbHNaZklLcFNSU0N2LW0zZ0NHeEl6OEQ2X0FuN3ZzT01wRjJLcHN5VGZXdjdLRGtDaWpRaEJMZHZIZ2l3ZnNCS0ViLUpjbXFGUmNUOUx4czd4dXJCUzlRelpadVFHZDk5RUhfWllBVFBvSnNXR3ZPd3VjbGltTGo3NlZxT2VvZFA3WVVYUQ?oc=5) |
+| Trump suggests U.S. troops could return to Afghan base over China concerns - NPR | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOTnUyZ1cydUQzUmp5QU1vMXN4ZFJUV1ZpQ2tLQ3ZxazFCbnM5S0k5di1wbHNaZklLcFNSU0N2LW0zZ0NHeEl6OEQ2X0FuN3ZzT01wRjJLcHN5VGZXdjdLRGtDaWpRaEJMZHZIZ2l3ZnNCS0ViLUpjbXFGUmNUOUx4czd4dXJCUzlRelpadVFHZDk5RUhfWllBVFBvSnNXR3ZPd3VjbGltTGo3NlZxT2VvZFA3WVVYUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
