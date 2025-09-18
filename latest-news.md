@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月18日 16:40:10（北京时间）**
+🕒 更新时间：**2025年09月18日 16:48:39（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Judge orders Columbia activist Mahmoud Khalil to be deported to Algeria or Syria - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNNXg3d3plN0FvU2kwZEFZMnU5ckhnM29nXzFCTS1mMDZNYW9uWS1LenY4S0FEZkdfYjJYMk8tLTNoeU5CZ0FqZUdkNjQ3VkROdTllMy05dUVlUk1aYjRnRWdkazFhV2ljRWZRWDlVZ1dPY1Z0NlJnVGN2N3JZcmtTcVF5VHMzMml4ZTNhZVFZTXhJUlnSAZgBQVVfeXFMUFNOeFlYUG1pNUJ4M0JOcF9MNnczQTdaUDZ0T2RnMzNNV1V4ZWdvclNCcUV4RGwtVnFXdnQ4dDBCWHdJRGVlMmxOX3lvN2FKME5FWV9YbGxSUkZRSzNxUDg0cS1jZzktRjJJdzhLLUZhMlZxMXZjXzJNMm1lNmJTTmtUb3FCUkVXY3MxczJRQmkybkRYS2xLQUM?oc=5) |
 | Effort to censure Rep. Ilhan Omar over Charlie Kirk comments fails - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNckxxWXpjMTAtRUFfQU9hYkhFcVp0dFFrUVItR1dIWi1BRG5CWkN6QjFkWW5PUXN4bWdNMFlPRTQwaDBUMjhsM3Y4dlVyN25BM05PY25oRVZ5dTdDQzVlN3U5N1RMMGFSTzNmT1RIVHVKaGM4OTZwUl9NN3U3V0hnMjk0QzRxeVprTUtjNGFqYjZqLU1sTWdHODhCV2xfMnpPcVFIOUxFV19IcWZETkN4NE9kbEg?oc=5) |
 | Republican leaders reject Democratic health care demands for bill to avoid shutdown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOUExGVFl0VmtZcXFKb1hiRzc5MU92X2RiYVpENXI3ZmdSUlRZbHBtOEM1Ymtsc2RCZ0dWYTBiSzhUVjBhUVVOeHBQaEFkMEdsSmIwZXZFdVJhRV9ETHUxLWFIVGpFQmJnMjRmWEM5ZHFhS0p6dFBSS0FQeGJPVVljNzVFeEtQbjhhSm16WGpQZWM5aUxqUExsZndxQlh6amF0UzRWNlUzRTVrTXdmR0YtMw?oc=5) |
-| Kash Patel doubles down on his handling of the Epstein files in heated Hill testimony - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxObzFPZkprS3o2bVozVFlUZEF0NlBmN01ySFkxVGRWRVM2OVVocVZqQUhCT09rcER4SU54dlQtMWNzQUpyZXJIaDRPVGJRR1R6cExKRWEzVUtNWEZmZnZQUWxqNVhITkJBMEN2bnVWdVltMHBmcjFCYWg4cGtzTmFOeEpqaVJyLVl6Vi1yejBwTXZ1SjJoRXE1ZA?oc=5) |
+| In Charlie Kirk’s name: Trump officials signal move to limit free speech - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1LLUNOcmhVSkF3U2M2bHRnY3puQjkydWZEZ19RZ3BXbmtTTHR5NXRUZkZSZHF1ajJTaloxYUw2UDVyWXpmWWVYUTBoLTBtdldWdmQzRGR0ZmljcjVXbXB5cXEzSjR2Z01tZUlLRkFTX2M?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
