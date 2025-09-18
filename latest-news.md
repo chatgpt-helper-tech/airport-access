@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 03:17:16（北京时间）**
+🕒 更新时间：**2025年09月19日 03:24:15（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump floats pulling licenses if networks are 'against' him after Jimmy Kimmel suspended - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQTnk1NG9ITWtodGZaRDl0VUJQSTZzWUExMFJXMV9xcWp2cXNFcTJNNHB3eVczekNteHhpWUpveUdDX1dVTV93VkoyZ2dIZ1kxeGtvNFJjUE56UkFQWjQzQkdjemxNdFdjemlVOTBETlg1Y0pZd0tpQUJKbF9oZ2Vob9IBhgFBVV95cUxQSFRtcXFvUnEzeFdZOUtFX3otcHhfSXd1TGNQeFlIelgyWm1xVW5YZmpKM1I5NnU3VENTQ2lfa1FDWFgzV1I5bTM0X1dRakpRTGFvcm1XYWNkMjhkbXptOU4yLWtFMjVzM0I2N1JtZHl6ak9RYWVpbFVUMkZlLTVKRHFhX0MxQQ?oc=5) |
-| Erika Kirk named CEO of Turning Point USA - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE1KTGxmMWgyYldTVzJLQzRCNHRXbjN2WnZZQVRMNFpfYnlKNHl6RHdDN0pDZkRBZmtnRVoyaS1LMTJjd1dhd2dPTEFMMGk5bl9yUW1RT3I2QWJfWExpT1Y3NWtRLXVhUElLZW5abFJvR0ZKVG9kaEFN?oc=5) |
+| Erika Kirk, widow of Charlie Kirk, named new CEO of Turning Point USA - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNNkxBUHZHZkphLXN5ZV9NdG5RWWZLZ0xoQTM0ckFJNWRLOFJZMUlQb1lJSFRDQWpFR2x4c0ZqM1I3bzZMS2VTcmExM18xNi1ENzEtYWMxMGFMOV9XblY2T0ZHLWN2TlFYZDd1eTlkWmN3UXZaeXE0bnNQVDlNMWF5bkRsS1dzUHp6M2pnUkRUbWRMMlJX?oc=5) |
 | Trump suggests Starmer could use military to control UK borders - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1kSWlXYk45dWNCOEZGS09ZZDYtVlRFbHpFVEc2a0hsSU1Ub3RtUG1kNTdjU3VHTl8zNEVQUnpyLXZrcHpuSzRST1ZXVHFJX0xLZGY2REk2NkJ0QdIBX0FVX3lxTE5ZRUxPNDY5Rzd3UUphX0VOUlg1U0h6eTBPeWtwN3RCSDkwRXV1YWR3MmlydWJLeG9ZRl82VzJKM1Q1OWNEYVdHc0FBLWk2NW9lYVZCanNTVlFEQ1I1SWlz?oc=5) |
 | 'Cataclysmic' situation in Gaza City, UN official says, as Israeli tanks advance - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE83cEpDYklCSXczS3FFYUl0ZXRNcEVFRjFGOGhuVTFyaWd6Wm5QWDZrUUpfUWN4S2poUDVhMDFHRTBDdmtRSTE5Q2VkbmFRLWdsU043SldieGF6Z9IBX0FVX3lxTE4yS0lra251dktWSS1ubGRwc2ZXQ0p2ZU9UUGNTQmhRdTY4b3ZoTHlCQVEzRGU4ZFlXY29hOTREVVRYVFhPSlV5NWFMWEFKWW1KMkpJSlFIVWJxVDRSWHpJ?oc=5) |
 | Media's MAGA makeover - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFB0TWNYM1ZobXZQcTU3UUt1WE9EdGdEYU5SMEtrMk1neERNY3NSclZlMERseHZkallHVHpfZ3RXSF9zTGRSX3lyZWxhcUl0M2pCR09CWFEyMWI3Q3NqMUkwNWZqQ0pOMXU1dTRPa0NGTU9BWGJsN1Jzd25LWHA?oc=5) |
