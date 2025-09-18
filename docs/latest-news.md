@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月18日 18:17:07（北京时间）**
+🕒 更新时间：**2025年09月18日 18:24:11（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | House Republicans help Democrats quash Nancy Mace's rogue Ilhan Omar censure - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE8tN05vd1lsbE1HMUk2Mi0zNWdCNHcydDFSay1RZTcydXVoZS1nRV9jcXZLb29sQUtibzRaTGlYa3NQbkctWGdyT3VGT29YNzFxTFZzT0p5OFBvQ3d0MWpyUl9iS0k0UnNUemlNazRRcy1MRmJhQkduMDFpVWNBdGc?oc=5) |
 | Unresolved questions hang over case against Charlie Kirk's accused killer - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQR2xGdy1PeElkNEMtZHVNSnMxdHhuazZqbEFkQWdRc1dxNG1ESVZDQk4zOER4RUxieFZrWVZ5YlZpS0F6SHlHV2NmU25UQS1XMjQ2NERiZlNPb0N1c2pBaFlRdUtvWElSRmxPdXh4RFRoaGFweE9LVVhNdWRaNGtCMzAxU2JRX0VEcXA2WmhWRThSc2dxM3BhMGcwMWpFNE5kS040WTZtaVlGeGlkT3Y2VHFkMFlKRFZQ?oc=5) |
 | US judge orders deportation of Palestinian activist Mahmoud Khalil - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5yb2pqWk9HX0JrajVEeE1DZlhKMGFySTVHWWhsSVhETmUtQnJ1UENuYmxSV2ZDQXM0RkpzV25xdW1IckRyXzlvcU1ZTWNrVjNpR2JEVG1RREwtUQ?oc=5) |
+| After Kirk’s Death, Students Return to Campus and Learn ‘How to Be Adults’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5wWVA4ZVZ5dkw3aHcyQnlHZHlXZDFYOV8xaVRrdXlvMDR3ZzByd1k0RlAxNTh1UHB6dFV3NW1seDNKUnpqenBxUzNYYkFaQUhHU2JIM0xydThoeHE3cWZPQmZsZGE4dTEyU1ljdHhwYURNZ3VabXRMNlNndw?oc=5) |
 | Mississippi police await autopsy results for Black student found hanged at university - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPcEFmajNDaERXWXo4OGZ4Q2FqeGRKRHNkWmgwTEgzdGtYak9DTHNOd2MzSTRvOGFudVB5UThfSW1RRm5PUHFNZDZiMW15QVd2dkVEcTNhak0zNEYtbFFHVjFNYnFRbmhwaHFzM3dYRXRyajFESFI4TWxqcVlId2plOFJNdXRrdXktTks0cHF0VlEzQQ?oc=5) |
-| Trump says he plans to designate antifa as ‘major terrorist organization’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQVDJ0UWNWTVgyTktaWmtzQ2g0eDAzd3VtbDlQZEdaTHRTVncyUHhpS2tlN1N3UGRtNTBzRWNJRWFOWmpqLUJuQU9TVm4wMlRBdkZlM29YQUhqTVhpR3RoVXNpREQ0LU1aWEhFSmVIcndlWWRXbXptdG5sU2FMSDdDZlZMQk9VMmdFaVJZ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
