@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月18日 10:24:11（北京时间）**
+🕒 更新时间：**2025年09月18日 10:33:59（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Trump says he’s designating Antifa as a terrorist organization - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9HWk1zQWJkM2tUYU1QRHpLemZQd0Q1MmsyRTNSWXBKZTBmMUdmb3ljeXNjTnlUemc3UHNPMVBuRXlZaWY0YUJDd1k5cnZyb0xxY3RJSE5xOHZRQ21zVjNhcUV6VXloMG4tdWF5UHZrM1pZRGtpUHc4WHBjTlEwTmc?oc=5) |
 | The Justice Department sues Maine and Oregon, ratcheting up demands for voter data - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOUm1oNE9nVDV6QlBSNHJqU0NZa1JTVFdUT184eENMcFpvZ08zbTBQbUY1TTNBSDhieHRZM0xGUVVhRTJySmlHRUVhOHcyNmx3YVoxM2pLeWhUTE1PdW9aNTVsdXRueGg2N25fcDZqeGFpSUUyaFdyZnZobFUwTnJZRU1n?oc=5) |
 | Those closest to Tyler Robinson made horrifying discoveries in hours after Charlie Kirk killing, authorities say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOMHlJWVpnYVlQb1dDcUhNejR2eHI0RHpFRC1QZFdUbENzNWRMM0hqU3ZzUC1COUdsZklnLUQxWU1namU4QmFablNDdFBwTnp3Sk0zaHBvSnJoQjduVFhwMXpWZWxQMlRkQ1o4OXhnYXkyTE5UcWpUSDlGYndNNmhMcFdjSnhVUEMtVElWcjl0RmtUZlFkRERrMQ?oc=5) |
-| GOP defections sink effort to censure Rep. Ilhan Omar - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNRkN6VW5sU1FMVDVfTGdOajIzdFFHQ0ZsX0NZYmswWG5KTnlvZjBNR0VYeG0tc1RHZGE1UERqTTdKandiR1BFS09WVVZaZnJfSThXakFXclg4MGhGaGFNQWp2Y3Z5aFgwUVl3U1d0MGNUZ0QtcHAzbFJaSG42QzlrcklMWjQ4UWVaNFU0RVJpVDk0T0ZnTWc?oc=5) |
 | Immigration judge orders Mahmoud Khalil to be deported to Algeria or Syria - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxONVlsaHo3bzdJYXBKQzJfRDF0eVNYS2EtbnREQXBLTzNxUmxnMzhhV1JEYTdGR25GT01sZTJsVWVPdFFnOFVVamFHamVBb2d5aUREUl9lbGpVcG4zUzZTZVhITU9HaVdBaW9ZVEZnRUVENmk3bVI2cUxxQzZSZl9JdHVSWFFaTlhHVFhBZWpoem9wN2pzNlVCbmFCTm1sRGVwQkRjeXozMWdtTmUtTk9B0gFWQVVfeXFMTnF6UjdKNTBMbm9SLTEtQUc2QW5SSWhiUnZyTzRvRkpsQ3J0eHpXWGFNSzUwbkRHMGdOcnN6SEVGaERUTW5PVktVVEM1alg1dkpXRjBSNEE?oc=5) |
+| GOP defections sink effort to censure Rep. Ilhan Omar - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNRkN6VW5sU1FMVDVfTGdOajIzdFFHQ0ZsX0NZYmswWG5KTnlvZjBNR0VYeG0tc1RHZGE1UERqTTdKandiR1BFS09WVVZaZnJfSThXakFXclg4MGhGaGFNQWp2Y3Z5aFgwUVl3U1d0MGNUZ0QtcHAzbFJaSG42QzlrcklMWjQ4UWVaNFU0RVJpVDk0T0ZnTWc?oc=5) |
 | Gilded Carriages and Bearskin Hats: U.K. Royals Welcome Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOLUQzRTNKZDlOaXp5ZnFSQjFfbmFqd0lqUVZ1V25QMEJOYzZpblBxNTVxZ3VKY0JTSGJvT25sUV9NSndHejJvWHVCc1p2VmJFZVQ3dWxSU2hVNHhiSVRaVlZ6WjZUZzlTR2JveTJvM2JnR09kRkZienZXczNfcWFNbVR0VzFzTFU?oc=5) |
 | FBI Director Kash Patel clashes with House lawmakers over Epstein files - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNVTdGVEFUb1g3Umx1Zzk2S2V5Y0hwVG84NDYzMjh0WllLb2hNUkYzUnpORk93dTBxUXJrVzRvNGFVMjJ3WFlMdmpnSjFwaXlzT2RMOHB4S1BPTUg3NkNpQU1zcEhPal9NejRkZ09LeHhxRk9ObTJoV3Z6Mmtwa3pxeUY0OHAxaGZZcU1ReGZCWTBsenFsdGotQmtFNEtKMThpUy1IRHB2b0fSAa4BQVVfeXFMT2xyVHNaekxNNWo3WnNTa1dWWFZLdE5JYnF6ZFBaRU9JV2tOeXhUMVVhVUtBT1RTYXpScjlrVnUzZDhSbWVZMk80Z2NQdzlUZmFJNk1tN3k4Wk1BTzRDS2FlVDVRSWFxQUc4NXIybk5PZGZzZmdYNjM3TXZPVU80RUNZRXJBejhvSk9aeDduYm1qaFZrdzBpNlRZaHZQNFZ3TDBlVWJQeXB0Zm50dmF3?oc=5) |
 
