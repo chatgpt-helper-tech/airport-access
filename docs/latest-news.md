@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月18日 16:24:17（北京时间）**
+🕒 更新时间：**2025年09月18日 16:33:12（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | Macrons to offer 'scientific evidence' to US court to prove Brigitte is a woman, lawyer says | [阅读全文](https://www.bbc.com/news/articles/ckg3llj5nxdo?at_medium=RSS&at_campaign=rss) |
 | Interest rates expected to be held by Bank of England | [阅读全文](https://www.bbc.com/news/articles/cge2q7wvyz3o?at_medium=RSS&at_campaign=rss) |
 | Government to appeal against ruling blocking migrant deportation to France | [阅读全文](https://www.bbc.com/news/articles/cj3yrrnydero?at_medium=RSS&at_campaign=rss) |
-| Man dead and woman in hospital after park shooting | [阅读全文](https://www.bbc.com/news/articles/cgmzwepy1veo?at_medium=RSS&at_campaign=rss) |
+| Man dead and woman in hospital after shooting in London park | [阅读全文](https://www.bbc.com/news/articles/cgmzwepy1veo?at_medium=RSS&at_campaign=rss) |
 | Israeli tanks push into major Gaza City residential area | [阅读全文](https://www.bbc.com/news/articles/c4gv881exj2o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -30,9 +30,9 @@
 | Trump targets antifa movement as 'terrorist organization' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQbnJFc3hCQ19lWHVrTDZKUFE3cXVqMnVXeVRrOWpTM0hGeDZBdXNtN0hCbndDWGJ6Z1ZMVzNyZzJINEc3SWI0TXZnM21PTnVCaWZLelF4MHZRbEFzNkNxdkVxMUlySFY2V2g5OFdNYTc4T19HVlpvVHlqZ3ZmZUwzQmN3cU5FdjVhZ2dQaE1BazFSUFMtcjA2RlItcVI5UQ?oc=5) |
 | House Republicans help Democrats quash Nancy Mace's rogue Ilhan Omar censure - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE8tN05vd1lsbE1HMUk2Mi0zNWdCNHcydDFSay1RZTcydXVoZS1nRV9jcXZLb29sQUtibzRaTGlYa3NQbkctWGdyT3VGT29YNzFxTFZzT0p5OFBvQ3d0MWpyUl9iS0k0UnNUemlNazRRcy1MRmJhQkduMDFpVWNBdGc?oc=5) |
 | Unresolved questions hang over case against Charlie Kirk's accused killer - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQR2xGdy1PeElkNEMtZHVNSnMxdHhuazZqbEFkQWdRc1dxNG1ESVZDQk4zOER4RUxieFZrWVZ5YlZpS0F6SHlHV2NmU25UQS1XMjQ2NERiZlNPb0N1c2pBaFlRdUtvWElSRmxPdXh4RFRoaGFweE9LVVhNdWRaNGtCMzAxU2JRX0VEcXA2WmhWRThSc2dxM3BhMGcwMWpFNE5kS040WTZtaVlGeGlkT3Y2VHFkMFlKRFZQ?oc=5) |
-| US judge orders deportation of Palestinian activist Mahmoud Khalil - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5yb2pqWk9HX0JrajVEeE1DZlhKMGFySTVHWWhsSVhETmUtQnJ1UENuYmxSV2ZDQXM0RkpzV25xdW1IckRyXzlvcU1ZTWNrVjNpR2JEVG1RREwtUQ?oc=5) |
+| Judge orders Columbia activist Mahmoud Khalil to be deported to Algeria or Syria - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNNXg3d3plN0FvU2kwZEFZMnU5ckhnM29nXzFCTS1mMDZNYW9uWS1LenY4S0FEZkdfYjJYMk8tLTNoeU5CZ0FqZUdkNjQ3VkROdTllMy05dUVlUk1aYjRnRWdkazFhV2ljRWZRWDlVZ1dPY1Z0NlJnVGN2N3JZcmtTcVF5VHMzMml4ZTNhZVFZTXhJUlnSAZgBQVVfeXFMUFNOeFlYUG1pNUJ4M0JOcF9MNnczQTdaUDZ0T2RnMzNNV1V4ZWdvclNCcUV4RGwtVnFXdnQ4dDBCWHdJRGVlMmxOX3lvN2FKME5FWV9YbGxSUkZRSzNxUDg0cS1jZzktRjJJdzhLLUZhMlZxMXZjXzJNMm1lNmJTTmtUb3FCUkVXY3MxczJRQmkybkRYS2xLQUM?oc=5) |
 | After Kirk’s Death, Students Return to Campus and Learn ‘How to Be Adults’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5wWVA4ZVZ5dkw3aHcyQnlHZHlXZDFYOV8xaVRrdXlvMDR3ZzByd1k0RlAxNTh1UHB6dFV3NW1seDNKUnpqenBxUzNYYkFaQUhHU2JIM0xydThoeHE3cWZPQmZsZGE4dTEyU1ljdHhwYURNZ3VabXRMNlNndw?oc=5) |
-| Democrats release counteroffer to avert shutdown while House moves ahead on GOP plan - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE5pbXJ4clg4eVkwQkFnamROd0UzTTlYYjNFMkFoSzVrYnV1NVBuYWNJU28wdXM0UHpLRV9Fa2gzTWx0ODdPaG5CdWk2SGZlRlpXOU1rZjNhQXFieHBoM1hLeUhRNTVDYmhfYVlTMXMzYVB6QdIBd0FVX3lxTE9CdDU4Z2VfZVN0aW5Vb2lfeTRwSW1fdVVreW9kSzJ2MWVkQlZwVVZ4NTZoUy1hamRrUjNFWktWVjRVellUNWVHQ0NDVjNqZnZIc1VNTHhhM2NDM3FfeXVlbWc5ZDVxUFUyY2FiUkxmcUJjUlItZ0VN?oc=5) |
+| Republican leaders reject Democratic health care demands for bill to avoid shutdown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOUExGVFl0VmtZcXFKb1hiRzc5MU92X2RiYVpENXI3ZmdSUlRZbHBtOEM1Ymtsc2RCZ0dWYTBiSzhUVjBhUVVOeHBQaEFkMEdsSmIwZXZFdVJhRV9ETHUxLWFIVGpFQmJnMjRmWEM5ZHFhS0p6dFBSS0FQeGJPVVljNzVFeEtQbjhhSm16WGpQZWM5aUxqUExsZndxQlh6amF0UzRWNlUzRTVrTXdmR0YtMw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
