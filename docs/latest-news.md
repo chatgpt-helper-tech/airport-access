@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 05:49:11（北京时间）**
+🕒 更新时间：**2025年09月19日 05:56:03（北京时间）**
 
 ---
 
@@ -12,10 +12,10 @@
 | Sarah Smith: Trump visit showed UK's warm relations - and limited influence | [阅读全文](https://www.bbc.com/news/articles/cgkn3key65do?at_medium=RSS&at_campaign=rss) |
 | First migrant deported to France under 'one in one out' deal | [阅读全文](https://www.bbc.com/news/articles/ckg653r06jgo?at_medium=RSS&at_campaign=rss) |
 | 'Cataclysmic' situation in Gaza City, UN official says, as Israeli tanks advance | [阅读全文](https://www.bbc.com/news/articles/c5y8l46m5evo?at_medium=RSS&at_campaign=rss) |
-| ABC takes Jimmy Kimmel off air over Charlie Kirk comments | [阅读全文](https://www.bbc.com/news/articles/c203n52x1y9o?at_medium=RSS&at_campaign=rss) |
 | Corbyn and Sultana clash over new party membership | [阅读全文](https://www.bbc.com/news/articles/cgkn3v1e7g3o?at_medium=RSS&at_campaign=rss) |
+| Ros Atkins on… What Kimmel's suspension means for free speech in the US | [阅读全文](https://www.bbc.com/news/videos/crme42nr8exo?at_medium=RSS&at_campaign=rss) |
 | Scientists pinpoint 'mileage clock' inside brain | [阅读全文](https://www.bbc.com/news/articles/crkjn6r7j23o?at_medium=RSS&at_campaign=rss) |
-| No outside pressure to drop China spying charges against British men, says CPS head | [阅读全文](https://www.bbc.com/news/articles/cgrqxe47gq4o?at_medium=RSS&at_campaign=rss) |
+| MI6 launches dark web portal to attract spies in Russia | [阅读全文](https://www.bbc.com/news/articles/c0r0vk1j4j8o?at_medium=RSS&at_campaign=rss) |
 | Musk's fellowship of Royal Society in doubt after Unite the Kingdom rally address | [阅读全文](https://www.bbc.com/news/articles/cly08l9vlpyo?at_medium=RSS&at_campaign=rss) |
 | Author Sally Rooney says she could not collect prize in UK in case of arrest | [阅读全文](https://www.bbc.com/news/articles/c3w54g14gp9o?at_medium=RSS&at_campaign=rss) |
 
