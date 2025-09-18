@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月18日 12:01:12（北京时间）**
+🕒 更新时间：**2025年09月18日 12:08:34（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump says he’s designating Antifa as a terrorist organization - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9HWk1zQWJkM2tUYU1QRHpLemZQd0Q1MmsyRTNSWXBKZTBmMUdmb3ljeXNjTnlUemc3UHNPMVBuRXlZaWY0YUJDd1k5cnZyb0xxY3RJSE5xOHZRQ21zVjNhcUV6VXloMG4tdWF5UHZrM1pZRGtpUHc4WHBjTlEwTmc?oc=5) |
 | Immigration judge orders Mahmoud Khalil to be deported to Algeria or Syria - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxONVlsaHo3bzdJYXBKQzJfRDF0eVNYS2EtbnREQXBLTzNxUmxnMzhhV1JEYTdGR25GT01sZTJsVWVPdFFnOFVVamFHamVBb2d5aUREUl9lbGpVcG4zUzZTZVhITU9HaVdBaW9ZVEZnRUVENmk3bVI2cUxxQzZSZl9JdHVSWFFaTlhHVFhBZWpoem9wN2pzNlVCbmFCTm1sRGVwQkRjeXozMWdtTmUtTk9B0gFWQVVfeXFMTnF6UjdKNTBMbm9SLTEtQUc2QW5SSWhiUnZyTzRvRkpsQ3J0eHpXWGFNSzUwbkRHMGdOcnN6SEVGaERUTW5PVktVVEM1alg1dkpXRjBSNEE?oc=5) |
 | Autopsy results awaited for Black student found hanged on Mississippi campus - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxOM2VraUNvejkyNDJXaFRXdGVfcTViQ1M3Y1pWSnJZdzZyUDZ2SUo5RHBwazVjOXNwUjcwM3ZyZk9iZE1BVGlRNW1jZE1ibFFvcFZra01NeFVtenVRWXFXOEhKaG1jb2xPaGgzTUdkQ3NvQUhPdEVKTFZtZ2Ryd0tqaHRnenBqeHVhWHV2anBoNnh4RER5VTdSSXdOOHQzSlQ1QWtweWJRZDdUM1owNEpGMDh5WTgtQXBwQXZPU3ZwZTFJeGR5?oc=5) |
-| Engardio recall: Could San Francisco really reopen the Great Highway? - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPeEt6TXEyY2tRT21PcGlpbkkzODU5ZGJpcGhRLXhEQWl4ZXRmWnU0QnpBTTRtUWJ1ZTIwOUpENE5kbkNZYWtrQjBPYTlQRTl1OVFWTEg4a3duY2ZMODlpcWJkakNYeEtvUEdKMl9OUHR0b1czRnNVS0V6c3lBbHhXOXRjMFBYQWNRUG1ZMkdsRGd1SmY4RXc?oc=5) |
 | Trump greeted by king, thousands of protesters in UK visit - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNVEdwcTVuZGU1Nm1kdWRxcE1xMXVYVjBtOFBYME1EZlkxR0lBY0VZVlR4RHgzNllSMFpTeGdGU3JCUl9ZbHc3RlZXeENZdW9JdEhCZlgwX1otdWNmbTZQOGdlVmgyb2JQcUNxUXVCajdMRF9ZeUFCUkFjWXVTanhVUmZDQjRnWWxJcnM3TzNhRFpLN2hLcWo5NzFDZFRrTUFsWW9jc9IBqgFBVV95cUxPMEpBRmRMdndieUxTdTV1N2ZJZ3hJcGwtcThOaHJiamRBSzk0YUFIMmlRc2hzNy1mREpKV0Npa2tIUVpET1IwbDRyb2J4cnd1Sm9CaWZSZ1lTZ0Z2Qi10MFZnRVpYZy1FdFA0SWZiTVF4WWdkZFZCMmZkT0JNNk81TEF5NFMwWXhMSGl6WnJHb0xDRHVNdmp3UXlUUEgwSXpvSHliTkEtVkpHZw?oc=5) |
+| Engardio recall: Could San Francisco really reopen the Great Highway? - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPeEt6TXEyY2tRT21PcGlpbkkzODU5ZGJpcGhRLXhEQWl4ZXRmWnU0QnpBTTRtUWJ1ZTIwOUpENE5kbkNZYWtrQjBPYTlQRTl1OVFWTEg4a3duY2ZMODlpcWJkakNYeEtvUEdKMl9OUHR0b1czRnNVS0V6c3lBbHhXOXRjMFBYQWNRUG1ZMkdsRGd1SmY4RXc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
