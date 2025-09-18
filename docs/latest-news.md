@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月18日 13:40:33（北京时间）**
+🕒 更新时间：**2025年09月18日 13:48:03（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Mahmood vows to fight 'last-minute claims' against migrant deportations | [阅读全文](https://www.bbc.com/news/articles/cj3yrrnydero?at_medium=RSS&at_campaign=rss) |
 | Israeli tanks push into major Gaza City residential area | [阅读全文](https://www.bbc.com/news/articles/c4gv881exj2o?at_medium=RSS&at_campaign=rss) |
 | Don't scrap care plans for children with special educational needs, say MPs | [阅读全文](https://www.bbc.com/news/articles/c15kwv30007o?at_medium=RSS&at_campaign=rss) |
-| 'Day by day, year by year': Tennis legend Bjorn Borg on cancer diagnosis | [阅读全文](https://www.bbc.com/sport/tennis/articles/cz691128dn6o?at_medium=RSS&at_campaign=rss) |
+| 'I'm taking life day by day, year by year': Tennis legend Bjorn Borg on cancer diagnosis | [阅读全文](https://www.bbc.com/sport/tennis/articles/cz691128dn6o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
