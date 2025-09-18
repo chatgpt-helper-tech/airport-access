@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月18日 22:57:27（北京时间）**
+🕒 更新时间：**2025年09月18日 23:00:11（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | Katty Kay: Why America is at a dangerous crossroads following the Charlie Kirk shooting | [阅读全文](https://www.bbc.com/news/articles/c78n0e83ye0o?at_medium=RSS&at_campaign=rss) |
 | Two teenagers charged over Transport for London cyber attack | [阅读全文](https://www.bbc.com/news/articles/c62z8k14kxxo?at_medium=RSS&at_campaign=rss) |
 | Planning approvals for new homes at record low, figures show | [阅读全文](https://www.bbc.com/news/articles/cgmzwk4yd1eo?at_medium=RSS&at_campaign=rss) |
-| Israeli minister touts Gaza 'real estate bonanza', defying international backlash | [阅读全文](https://www.bbc.com/news/articles/c5y59z6rznvo?at_medium=RSS&at_campaign=rss) |
+| 'Cataclysmic' situation in Gaza City, UN official says, as Israeli tanks advance | [阅读全文](https://www.bbc.com/news/articles/c5y8l46m5evo?at_medium=RSS&at_campaign=rss) |
 | Manchester Arena bomb plotter refuses to leave cell for court hearing | [阅读全文](https://www.bbc.com/news/articles/cz089jg79npo?at_medium=RSS&at_campaign=rss) |
 | Keely Hodgkinson makes winning start to 800m world title bid in Tokyo | [阅读全文](https://www.bbc.com/sport/athletics/articles/cevz0wmrz4eo?at_medium=RSS&at_campaign=rss) |
 | Corbyn and Sultana clash over new party membership | [阅读全文](https://www.bbc.com/news/articles/cgkn3v1e7g3o?at_medium=RSS&at_campaign=rss) |
