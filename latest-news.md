@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 04:57:46（北京时间）**
+🕒 更新时间：**2025年09月19日 05:00:13（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Royals, Maga and tech CEOs: What we learned from state banquet guest list - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE0zX0pSeVdBeW13WnNPckJaSWhPb0ZaOTdtR21hbkpfdHo3Q0xRVDVRRlJVbWlEVGptZGdkU3Q2c3FWS2FIMFN6ZkNsbEZ2V2VqTkx5RjYzWGVEQdIBX0FVX3lxTE5RQlBUOVpiM3RfQzlSaFI0Q1lKRDd6a3dCampQd2VuWk9vd3M5SHBIZHQ1UTZNd2Z4Q0U1ZDMwV1R3Ykw3MzdXSk5EU2EybXBkcXFuM19FdmF4Nk1DNWRZ?oc=5) |
 | Capitol agenda: Democrats steer into a shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxOTFpiTUlrcVBBNFhKaXc1RjJGcS01S1dUVzFKOWp1NWVZTHFKMXZEWXM2aWJhQkxianFnbnRQZnZrTFdySHVZdDM5Z3V0V0dfT3UzZVFBRHhZd0syQTcxZ19lNXJDMmNCRjMwTzFWWW1IVWZhTUZOTy1KZ1M5MmNlM1dvMnlrRzJ5SmRqbV9fT2Y1VElMOG1nX0JkVzRSZExkNHVfUjJmUDJoQ3VoTTFHUkZfd004YW16RXVxQzNTajBoUXdMSUZSNF9JaU9lZw?oc=5) |
 | What is Antifa and why is Donald Trump targeting it? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE81TnNXbFFQSDJ3c09xR1oxblVCQXFTQnBZQkNPaWZkR3lfOXoybFRFYTVyLXNoYUNZWDVlXzVSVlVQb2Z2dDhTN1pwcDMzMW9HUFhCQkU4WldYUdIBX0FVX3lxTFBrN2FrU3FaVm5PMzRzTHprNEpCck4wZzlINl9ta29HLUtMVmpjbk9NdFA3LWhOSS1PYzFVa2Jsek9kU0pHT0VibUwzRDZfc0V4QnZlZDN3Rlg0M2VhTDF3?oc=5) |
-| Judge Blocks Administration From Immediately Removing Guatemalan Children - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOczBHWEpoaG0xaENLT0RZYmxZLVlCMmlWZnVYUzB6ZzlURjNfWFNnSkxOYURHbUNfUEItRnZyVFJWOE5KX0Q2S2FwLU1lWUZRRHl4S1FKWUthcHUyZm82VnJqU2hOUGdnSkZkNFFndTQ3RDBVVFVjQzNqTnFldDNCNHZEdFp4Yk1JMkJr?oc=5) |
-| RFK Jr. announces move to decertify organ procurement organization amid efforts to reform organ donation - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPNXR3WnBMXzY1NVdWajhla3lwdjRSS3RhZV9rNDBlSVVQSm1Wa2ljSnhERnN5aHQ3NjdjeEVRc0lUTTJqT25jZDlJeGJrcU5nSHViM0RHZlhjUGhrSjYyYWFSMTBoU0F4SXZtMGw4SW5Pa25wMk1TMTZVcTlNdnYtVk03M0VocFVIeURjUkYtc9IBlAFBVV95cUxPa0luXzI3QlhKTWxENUg2ZWkxb3VVSTFDcThvZlBjdVF6MVlwTlRhdlF6cHVPeVlSZ19ZUkY0VEdaNW1vVHdxamhTeXhUTmxHX2hEbmJsNnJTUEdSdFhSS1YtLTJzNWNXdnRsNW9xZzR3dmFSQjRnd1VVYmp4V2x4LV93TkRGeDdXNFRUbVQ2alNQcGdl?oc=5) |
+| Trump admin’s basis for deporting Guatemalan kids ‘crumbled like a house of cards,’ judge rules - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQVEdNd3ZDTmtBblN5YVZXYlhWaklNeVhhYkN6S2RfOFJubE5ZT1NpOGZaOEQ1ZEMtZVFwVFZuTzFqUnZWeHRFdkRiUzlVelNxaFlzdEhYZzdURHJydEdTZE9CamZFcUUtSTVpTlpMdWZDbnFwOUYyNi1GQmdlYmhPUkpIWnI3dFFNb3JFS2VUNmxFQQ?oc=5) |
+| Kennedy Announces Firing of Organ Transplant Group After Safety Problems - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFAtdFpMblZWX1BHdGxwRGlLa0tUNXFzYUVtdm1zOXVhbWFpcDEwd0tZUWJIYmd6Vk80TGVLMFhnUzNOeVhLZmxJZFBpdGF5SHJEdzQ1Vm9tVUx5UktWLWRqZVk3MzkzT2hjS1NQbzIxZUN3Z0R2blVaRUZScnQ1dw?oc=5) |
 | The crackdown on Charlie Kirk critics has ignited a free speech debate. Legal experts say it sets a dangerous precedent. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNQ3REdTNYbzBLUTNsWmFFazg5VVZobTFZODZXdGhhMHBvd1ZDSm1ieVZXTXoxWk1XYkR6Rnh6bm5mTjYyeEJDMnozQlBmRDdNU1lFanlNbXBqV3F6YUFIa2dUZjQtZGFqVkVMZjlFOFJoWVI1X01Lb091c1BmY0JMNjNn0gGHAUFVX3lxTE5teTJmc29rczVDR0lFaUtxZVh3cUpONEpQOWpGbjFwS3VvWVN6Nkx3T0xKc3VXR280UnJ4VUp1SXRJZktnWXo2eEFwWWU1LVNxNU5aN1JubEpYdks1RUhYOHlNQV94U2h5UnpNSWZyeFQzYkVwQU95WUxDaGwtMnZlTlRtdEJjaw?oc=5) |
 | Fact check: Trump repeats numerous debunked claims at UK news conference with Starmer - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1xWEVtdG5WS1FjWHhZY2xOdlZKMTFFVFdtdXdlZVFBTzZWZ01rZTZ6UWs4bFVsVlZGS2ZNSENMRVNLMzZHUTdzZDh1SFJmR3RzbFlyLTRPVnR5VXcyOEpDSHVQVlIzalkxd3NkZElDZEhSS1NQbkE?oc=5) |
 
