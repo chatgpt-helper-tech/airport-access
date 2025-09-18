@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月18日 14:16:10（北京时间）**
+🕒 更新时间：**2025年09月18日 14:25:19（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Immigration judge says Mahmoud Khalil must be deported to Syria or Algeria - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOTHYyVlVKUG1iWTZ0N3h1NTRmZUJUSkc0cWVHOTY5allwSWl4X3Q4bDJNRXlPaFlFUHBtaTlVajF3WnBXNVE0T1owMkJjMFAxVmhoa08tWWxvUzNuVFhLcnRyeEczUFFUV1JzT2tlenBuRkFqNW5LajBFX3Q0XzNVV281MFZjME1FaUlVc1RMVQ?oc=5) |
 | Autopsy results awaited for Black student found hanged on Mississippi campus - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxOM2VraUNvejkyNDJXaFRXdGVfcTViQ1M3Y1pWSnJZdzZyUDZ2SUo5RHBwazVjOXNwUjcwM3ZyZk9iZE1BVGlRNW1jZE1ibFFvcFZra01NeFVtenVRWXFXOEhKaG1jb2xPaGgzTUdkQ3NvQUhPdEVKTFZtZ2Ryd0tqaHRnenBqeHVhWHV2anBoNnh4RER5VTdSSXdOOHQzSlQ1QWtweWJRZDdUM1owNEpGMDh5WTgtQXBwQXZPU3ZwZTFJeGR5?oc=5) |
 | After Kirk’s Death, Students Return to Campus and Learn ‘How to Be Adults’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5wWVA4ZVZ5dkw3aHcyQnlHZHlXZDFYOV8xaVRrdXlvMDR3ZzByd1k0RlAxNTh1UHB6dFV3NW1seDNKUnpqenBxUzNYYkFaQUhHU2JIM0xydThoeHE3cWZPQmZsZGE4dTEyU1ljdHhwYURNZ3VabXRMNlNndw?oc=5) |
-| Democrats release counteroffer to avert shutdown while House moves ahead on GOP plan - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE5pbXJ4clg4eVkwQkFnamROd0UzTTlYYjNFMkFoSzVrYnV1NVBuYWNJU28wdXM0UHpLRV9Fa2gzTWx0ODdPaG5CdWk2SGZlRlpXOU1rZjNhQXFieHBoM1hLeUhRNTVDYmhfYVlTMXMzYVB6QdIBd0FVX3lxTE9CdDU4Z2VfZVN0aW5Vb2lfeTRwSW1fdVVreW9kSzJ2MWVkQlZwVVZ4NTZoUy1hamRrUjNFWktWVjRVellUNWVHQ0NDVjNqZnZIc1VNTHhhM2NDM3FfeXVlbWc5ZDVxUFUyY2FiUkxmcUJjUlItZ0VN?oc=5) |
+| Republican leaders reject Democratic health care demands for bill to avoid shutdown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOUExGVFl0VmtZcXFKb1hiRzc5MU92X2RiYVpENXI3ZmdSUlRZbHBtOEM1Ymtsc2RCZ0dWYTBiSzhUVjBhUVVOeHBQaEFkMEdsSmIwZXZFdVJhRV9ETHUxLWFIVGpFQmJnMjRmWEM5ZHFhS0p6dFBSS0FQeGJPVVljNzVFeEtQbjhhSm16WGpQZWM5aUxqUExsZndxQlh6amF0UzRWNlUzRTVrTXdmR0YtMw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
