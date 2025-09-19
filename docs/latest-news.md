@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 10:09:39（北京时间）**
+🕒 更新时间：**2025年09月19日 10:17:59（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump floats pulling TV licenses after Kimmel suspension - Axios | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTFBKaDZQNGticDMxY3RDbnhMZUxfMjFxRnRZdkJEeU15VkJ2dU1Vb3pwSWozaGh4LU1Wcm05cHdPUjNZR1V2b3g4ZHh4X1lVSmVnVVcwSi1fbFB1dnMzZUM1SWNJYkNCVnFza1hwaUlwYw?oc=5) |
+| Stephen Colbert defends Jimmy Kimmel, calls Trump an 'autocrat' - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOdTh3MVU1SERobl80dnJrRTZacXhkZ0lmMkpaWFVKZ0hNWWFaYXFWUktvbUQySm9vT050TG5nNnNZQXFJaGlaUWZldFZPaXhJcTd3dXRoUHRjWlFVaDk5cmQ2YVZ0QUFDYllkdzRycWNkWWtHS0pQcDZWOVZBanVnUUZDZlnSAYoBQVVfeXFMTm1ZN1g4OUh0NmlwZ0NXR29ZdkJ6cVJtWnc0S1pWVnR4QmdLaWpjUXZCUDV4OU1jaFIzb1hIRlMzSWRySXphdk96Sy1ZYnpPSy1Qc3E2cHFsLWFMVXZmUExiaHlocm5nYzlYZlVRQ3Z5UU5TUGZFbHppaDdEY2U1SUZuQUlMcDJKeUJ3?oc=5) |
 | Erika Kirk Takes a Leadership Role in Turning Point USA - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE80VzJ0SGFEZzg2dndDU3dnaV9sTEppSDY2NHdHZVNjQ0JYbTFpTUt3UERQLWtac0RBYy1OWl9vaWFWZk55amZYSk9JcmV0TjJOMi1LSlRCQ0c3a0dXTGR6Z05TOUlLLXRHdVgwb2MxTUljQ1dnUC1nSVZPbDJteTQ?oc=5) |
 | TikTok deal looms as China talks stall - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQYVFtRFpkOGFYNlM0S0Y1cWZkTTZzbEtiUzJxV1JvMXViQmY2TUsyOXM4ZWJZQWRpRFlfak1hclAwNWlTN1F2MmYxdHRaemkwOVFYa3U3X3VhVE5RWmJIUVNheGVPT3lVTXdqQWtSblVqSnRhaVBhMDlZRmRkRTlMdmpXRFd3bEFqcGw3TUxER0FsUWlIaS1tUmlOMGwwQnpXUkpjYW93?oc=5) |
 | Strong quake hits Russia's Kamchatka, no damage reported - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxNMG1jekl1NU5TNHBQUFNMczBhaV9jMkl4S0lKb2NIVDlTRTFoMzl5Q3RxaWk4eTMxTkw3LUdudTdUelNsZXE0OWpqNGE0cl9KWmlQeGF3aTd5RHQ0akpuRUJwN0xpc293bk8xS1hIeVQxQjBsVkdaM1lKSGtiTjh5dUMwZjYzMU4wcmhHR1FzT1Z2MENXd0pkRTRlS1dMY3FpdUZaYk1XdzFqa1NyOEFwOW1oUHhGOW9pQVIwdU84S3c4blJvcUl2NVAwd3dVb3VLZ280?oc=5) |
@@ -32,7 +32,7 @@
 | Buttigieg responds to Harris’ VP snub: You earn voters’ trust on ‘what they think you’re going to do,’ not ‘on categories’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPa3lTT2FaOW1MZ3hYLW1NZXFUWmZTc1V6eFhNOW0zcGgyQ0hfdjh5MGY5NDZkbzRFeUVSdm5wX2ZZTXRUelJOOGsyMXl0T1pGeWVnMTBQZVktbEJmTTZybENsdUg2VjVVMmZwZk1EWldLSng2bUc2N1NSOW5WeXV3YkNmTkJaVk9DX0REM2c2c1g?oc=5) |
 | Mayor Bowser, top D.C. officials on Capitol Hill for grilling on crime - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQcWllZGtWWVNNMGk2cXI0b1ItTEpLTG9Id2dkeFpPY196UDUxWUJHZEd2dFp6QmtsUU51YnNBNFZVRjNzVHF2TVREYTVQcTlkYlcxU0x4eXh2aG1iSGxMaG81eVFTelJmQm1LZVZ0UTlpb1p4SlRiVVJ0LXpPX1VQOHJKWmhaLV8yV0ZBZG9EMUZab3M?oc=5) |
 | What to Know About the North American Summit Taking Place Without the U.S. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPa2czWFQ4c1VieFpTZzltcFRneXlIN3lIZUF1UG1CSFZidlZHc2RaZnVGVEVQYjg2YWtUYWh0YlJiTE1TWFR1bVdjcUoyVnBURjVjN1ZMWmdOenNUcmtsNm9sR2VSMXNIaHlJV015cTlxRjA2WTNNRXpqcVkxNnVuZkxIM2ZpcVhXZ0pPTDVwUnJFbEh2b3VLODlR?oc=5) |
-| Judge blocks administration from deporting unaccompanied minors to Guatemala - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPZ2R6Z2pIX1FQcjEyZ1VQdTlSVm1XUkc1TUl4YlJFbzdnekZ0dDNoN3poR1RVaGxhUzJrNmtRazNDYWt5UklUTkVhbVZUaWlBMjFjNkY4OE5fbXVqVGpJeVBPR2lYeVN2bHBXT2hvcEFydUloUjg0Unp5UlIySy1qaG9kanBzQjhaaGQzN1VsTkFudG94STdGaXNBTk9OeHFadWpGQkVYQWVrSDNMdlNXTUZUMNIBuAFBVV95cUxNTk8wdHV2ZFB2YXoySEhoXzNyOVF0NlU4SlB6QUV0Zm1yZ2RxYzhtY0c4dFMwSXlCYXRCS1ZRc1Q2Yk5ETUN6T3p0eGFqM2lnUUpRMURsMnpIRkhCUEhSODZKQlRaTC1SdGlBVEx0ZWFQTmVGMDRxZzB4U2x5eERYZV9JTThMaGRGa3l1ajVjbVFFWjE5UXp5YlBLS1dNMExhSF9SMlFzY2Qyb3AzMHZQSHlJdEQxT29q?oc=5) |
+| Texas A&M President to Step Down After Controversy Over ‘Gender Ideology’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNYVpHVUZ5dUFZOVN0NFM5Q08wRy1aOFA5Mi05YU9NOFBaMnhNdEhWblpQaElIaFVaLWY4NEZmeGJ2X0g1bWtZa0JSRkxIanhWRkl5R3lHdl9jcWhYVV96bHlUUzRaaWxRUWFCd1B2MEd5MGRWVkZXRzFlV0ktRWlhV2xDSl9TU3VaOVRXUzVCU1NDTDA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
