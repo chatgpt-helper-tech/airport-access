@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 14:25:07（北京时间）**
+🕒 更新时间：**2025年09月19日 14:33:41（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | Why France is at risk of becoming the new sick man of Europe | [阅读全文](https://www.bbc.com/news/articles/cvg9n6vr2eyo?at_medium=RSS&at_campaign=rss) |
 | Premier League ticket black market exposed | [阅读全文](https://www.bbc.com/sport/articles/cwy9dlqxx2ro?at_medium=RSS&at_campaign=rss) |
 | Spectacular autumn leaves expected after warm UK summer | [阅读全文](https://www.bbc.com/weather/articles/c5yvd830p37o?at_medium=RSS&at_campaign=rss) |
+| Government borrowing higher than expected in August | [阅读全文](https://www.bbc.com/news/articles/cly9m4lqznro?at_medium=RSS&at_campaign=rss) |
 | Trump says he didn't want London Mayor Sadiq Khan at state banquet | [阅读全文](https://www.bbc.com/news/articles/cwyl01x9pllo?at_medium=RSS&at_campaign=rss) |
 | MI6 launches dark web portal to attract spies in Russia | [阅读全文](https://www.bbc.com/news/articles/c0r0vk1j4j8o?at_medium=RSS&at_campaign=rss) |
-| Ferguson on music, memory and dementia projects | [阅读全文](https://www.bbc.com/sport/football/articles/cjedl85dnpno?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
