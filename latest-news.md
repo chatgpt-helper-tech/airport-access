@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 15:16:18（北京时间）**
+🕒 更新时间：**2025年09月19日 15:25:37（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Shooter who killed 3 Pa. officers was accused of stalking ex, officials say - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPN3NpNzJrTFFlMkhWYkhnZWlrVnVUai1IU0JIcDVGQXZ4a3ZnUTZZbHpJUlVqRWxBNVBkTjNGVE9jNW5qWmVCdUJiODFnci1sWUItWjh3c3dfeDJfTVE2bi1TQjZ0dW45Vkt1MldSS1pwTTFVRTdTZXRwaFdtbmFiaEJwM1VLMDBQV3RsVTQ0RmtWcTg?oc=5) |
 | Chris Mason: Delight and relief in government after Trump state visit - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1sd05lYldpSjZyczVwbzJzSGFkNEtQYnphaF9JT0tJWFk2TWVKbUE4UHR5bHF5VUtWdXhLMW1EdDlsaEtlZ25fZG9qQ0E2dDlVVFRaUXZpT19mQdIBX0FVX3lxTFBYX09SNmoxVVp3ejBwSEFwRmhyQjIwcmJKU1Vzbzctc1FUTVBHNUU4Q29Oa1lQX0s3b19nd0M0QWFZLWIxZG9NeHNTcmN5UkYtbWhFbEVYUElmOHhvalYw?oc=5) |
 | Can Trump Actually Designate Antifa a Terrorist Group? Here Are the Facts. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOQzNWTUFnQ21MU3BHb0RPYlF3SXJ5ZFFyUzdWcWVORG9mYjljOGQyQ0JnbkJuRnlNX19JM3FMVE1QeU9hdlp5WnlZVVRMZXRQTUJoX1lrcWViWXdsTm81VmNhTEx4Q2duN2RaVW9xTFRrZEVrNTc2ZldHV1g1Snl6T25iUzdSMUE?oc=5) |
-| Post-Kimmel, Dems could change the cancel culture narrative - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNZDdLcER3SVhoazZzSEhTb3pFZzRHMjRCeS1VQWZzbnJZMURBZVk5Y3FsYjIzOTBVcFU1X2ttMWRZNlNoV1Y3czJPenE5WmN5UE1xUjg1TzFON2RIZ2RaMEVjLWhzMFN0R2Y2Q0NkS1BnT2IxRTFTZUx6RDRMSEw2eGgyckI3T29iR0lvVzlUTlU?oc=5) |
+| 'Tonight, we are all Jimmy Kimmel,' Stephen Colbert says, calling Trump an 'autocrat' - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOdTh3MVU1SERobl80dnJrRTZacXhkZ0lmMkpaWFVKZ0hNWWFaYXFWUktvbUQySm9vT050TG5nNnNZQXFJaGlaUWZldFZPaXhJcTd3dXRoUHRjWlFVaDk5cmQ2YVZ0QUFDYllkdzRycWNkWWtHS0pQcDZWOVZBanVnUUZDZlnSAYoBQVVfeXFMTm1ZN1g4OUh0NmlwZ0NXR29ZdkJ6cVJtWnc0S1pWVnR4QmdLaWpjUXZCUDV4OU1jaFIzb1hIRlMzSWRySXphdk96Sy1ZYnpPSy1Qc3E2cHFsLWFMVXZmUExiaHlocm5nYzlYZlVRQ3Z5UU5TUGZFbHppaDdEY2U1SUZuQUlMcDJKeUJ3?oc=5) |
 | Mexico and Canada make nice ahead of high-stakes trade talks - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPSWg3eGsyYWNPcVBOMGMxcnJlVXpLODlWSXFLbFQ5R0QyaTl2UG9qb3FPNnB0akppQlFYREVHQW55NnBEOVNIT05LQmN3SVRZS0hRYUN0YV9mRDdNY0VFRG9zWkx1OVM3WTBkLUlUeHZmdTZmbERIbXZjS1k5NDUxcEtXNnVScUQzX2hpbmt4Zl8?oc=5) |
 | Texas A&M President to Step Down After Controversy Over ‘Gender Ideology’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNYVpHVUZ5dUFZOVN0NFM5Q08wRy1aOFA5Mi05YU9NOFBaMnhNdEhWblpQaElIaFVaLWY4NEZmeGJ2X0g1bWtZa0JSRkxIanhWRkl5R3lHdl9jcWhYVV96bHlUUzRaaWxRUWFCd1B2MEd5MGRWVkZXRzFlV0ktRWlhV2xDSl9TU3VaOVRXUzVCU1NDTDA?oc=5) |
-| Judge blocks administration from deporting unaccompanied minors to Guatemala - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPZ2R6Z2pIX1FQcjEyZ1VQdTlSVm1XUkc1TUl4YlJFbzdnekZ0dDNoN3poR1RVaGxhUzJrNmtRazNDYWt5UklUTkVhbVZUaWlBMjFjNkY4OE5fbXVqVGpJeVBPR2lYeVN2bHBXT2hvcEFydUloUjg0Unp5UlIySy1qaG9kanBzQjhaaGQzN1VsTkFudG94STdGaXNBTk9OeHFadWpGQkVYQWVrSDNMdlNXTUZUMNIBuAFBVV95cUxNTk8wdHV2ZFB2YXoySEhoXzNyOVF0NlU4SlB6QUV0Zm1yZ2RxYzhtY0c4dFMwSXlCYXRCS1ZRc1Q2Yk5ETUN6T3p0eGFqM2lnUUpRMURsMnpIRkhCUEhSODZKQlRaTC1SdGlBVEx0ZWFQTmVGMDRxZzB4U2x5eERYZV9JTThMaGRGa3l1ajVjbVFFWjE5UXp5YlBLS1dNMExhSF9SMlFzY2Qyb3AzMHZQSHlJdEQxT29q?oc=5) |
+| Democratic elected officials arrested at ICE facility in New York City - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPSVQ5bkYzSXlkQ1lSajZZTktIanBDNGNleU5QN0I4cHZwTUI4cDAwOGJzaEhnY3hiSjhlNnFHcHV3RWt4S2dSckRRTnBoYUh6OGpxd0s2Q2xhR0FwWjdmZktHVGZsSXNselM0a1k3YkhzbG9GdEFUdlJzc3hRYXZCSENfQ0FydEJZTHNWNk93dFNQZlV2M0lTeFNLdXVCUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
