@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 14:33:41（北京时间）**
+🕒 更新时间：**2025年09月19日 14:40:49（北京时间）**
 
 ---
 
@@ -12,12 +12,12 @@
 | Chris Mason: Delight and relief in government after Trump state visit | [阅读全文](https://www.bbc.com/news/articles/cvgn3445655o?at_medium=RSS&at_campaign=rss) |
 | Trump says TV networks opposed to him should 'maybe' lose licence | [阅读全文](https://www.bbc.com/news/articles/cr4qe0rz2zvo?at_medium=RSS&at_campaign=rss) |
 | US blocks UN call for Gaza ceasefire for sixth time | [阅读全文](https://www.bbc.com/news/articles/ce3yj41083no?at_medium=RSS&at_campaign=rss) |
-| Why France is at risk of becoming the new sick man of Europe | [阅读全文](https://www.bbc.com/news/articles/cvg9n6vr2eyo?at_medium=RSS&at_campaign=rss) |
 | Premier League ticket black market exposed | [阅读全文](https://www.bbc.com/sport/articles/cwy9dlqxx2ro?at_medium=RSS&at_campaign=rss) |
+| Why France is at risk of becoming the new sick man of Europe | [阅读全文](https://www.bbc.com/news/articles/cvg9n6vr2eyo?at_medium=RSS&at_campaign=rss) |
 | Spectacular autumn leaves expected after warm UK summer | [阅读全文](https://www.bbc.com/weather/articles/c5yvd830p37o?at_medium=RSS&at_campaign=rss) |
+| MI6 launches dark web portal to attract spies in Russia | [阅读全文](https://www.bbc.com/news/articles/c0r0vk1j4j8o?at_medium=RSS&at_campaign=rss) |
 | Government borrowing higher than expected in August | [阅读全文](https://www.bbc.com/news/articles/cly9m4lqznro?at_medium=RSS&at_campaign=rss) |
 | Trump says he didn't want London Mayor Sadiq Khan at state banquet | [阅读全文](https://www.bbc.com/news/articles/cwyl01x9pllo?at_medium=RSS&at_campaign=rss) |
-| MI6 launches dark web portal to attract spies in Russia | [阅读全文](https://www.bbc.com/news/articles/c0r0vk1j4j8o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
