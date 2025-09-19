@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 22:24:55（北京时间）**
+🕒 更新时间：**2025年09月19日 22:33:07（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | A Domestic Violence Case in Rural Pennsylvania Ended in a Deadly Ambush - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPQkN1UWx4YzlOaHBxNmtNeUtHTTRDYVJ5UzFycXRkVnNicHZwNUYxVXhGUndraVljUUlPdmdFZkN5N2lLQ0RtUW9XR0ZTMzEtOGtjdHVSa09yMEtXQXMyakJ6TlowVE5kM3FpaTFPRE9VS2pGazA5enRpRW1DdkUwZElLMHlkQQ?oc=5) |
 | Texas A&M president is stepping down after upheaval over classroom video - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOV0Y3N0R3d3lSdEJNT05xQ19KWExUSUVjdjktby1ZcC1pM0h0QkRsZHdtM21mN0VFUVN1NWpRZElzWFZOSWwxa3ZxSlRwci1wb1pMQUU5dEoyMEFLbjE2RUpCS2JQWUpTWDdZQkFGcG1HVXVYdGpzanMxQkMyZnNUZ01fUWNvSnpKMUl1cDVYem5Jc2taWTJVZDlHOFpjS0pM0gFWQVVfeXFMT3U1QUxyWWJlVlVwYXgxRjE4OEpnMXJXWWxzSlRsRVAzQ0o2cUJhN2tVQllVbGNCNjktQXpuUlZTdlg4bEk2dUhjMjNRdS1QYjJ1NzlrbVE?oc=5) |
 | Trump's hope to 'take back' Bagram airbase dismissed by Taliban official - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1QNFdUc3pRbW40ak91ajVvbzctZk91TWV3Vkh3X0o1M1JCMS1WczcwN05oVnpIaWVSNGdlSDAwQVpKRWNjSkY1ZFJ2bWllanQ5c0VDallxaVY4UdIBX0FVX3lxTE94QTVjaFYwem9mdzR5U0gwZy1ldWJXbWFwMXBYbWdUQkFPVzVvOVYwUjBXNTg0a0hIcFVoOTMyNHB5STVQYk5YY0VQZ3BHMDZEY1VfdDEwdVJ2cHlaU0Uw?oc=5) |
-| What is Antifa and why is Donald Trump targeting it? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE81TnNXbFFQSDJ3c09xR1oxblVCQXFTQnBZQkNPaWZkR3lfOXoybFRFYTVyLXNoYUNZWDVlXzVSVlVQb2Z2dDhTN1pwcDMzMW9HUFhCQkU4WldYUdIBX0FVX3lxTFBrN2FrU3FaVm5PMzRzTHprNEpCck4wZzlINl9ta29HLUtMVmpjbk9NdFA3LWhOSS1PYzFVa2Jsek9kU0pHT0VibUwzRDZfc0V4QnZlZDN3Rlg0M2VhTDF3?oc=5) |
+| Florida plans to stop school vaccine mandates. These states could follow. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQY1VJR1BJMnRyTjhrLTNVN0JNSFpOTUtVbnFMSVNPR25yVmhmVVdyVjFlWmQybW1fVVY1dlpfb296VmxIMWgxcHRLSk51YVBITU1WNldRQVN2cVZkUGxhTllJYlMxQWU3TzRrUFkzU1QzSzV2ZlN6Wm00a2E2d1BaS3oxZDJhMUJ4T2c?oc=5) |
 | There's a new, longer U.S. citizenship test with more history questions; here's a quiz with some of them. - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQSFc5TEFoTHFpRFhJU19fbEtjVUhKRlhvU3IwN01fYXRicU5tX2ZFckdNYjA0Qm9Mc2M0Z0kzc1NxQ3VSTE1GUGlpaWJENW03SHRfTmNNdGV0Ujc4NXpaNWI3T2wwZnZlcS15SFJCMmNJVkZQcXlyOEtvU2pUNDhWMllNMmlsNTNiSmNObTNoMFhVY2pURVFIVGpR0gFWQVVfeXFMTjlVYWxOc2psOGRLSllLSms5bjZjZGVXdTg3Q1RrQUJ3ZFZlVXFTYkVfUlFmdDY3QUVkdnhoSmF4ZEp6MkM1Z2xhYWlXYl9GdXdESzlKMkE?oc=5) |
-| Autopsy finds hanged Mississippi student died by suicide, police say - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFAxTmlGcEM1SnpiRTZfSDB1ZnAzeUdTaHFUV0dNSVlKMFFnRHFScHZIUGwtZ0RxbFlZSlFzQXZhcm5jVm1hdW54SGllVTV2RU4yNEwzX3p5VVd5LTQxeV9FRkhKZmJRa04wTDlScExuZUpJbE1HLW5XNHdhNWE?oc=5) |
+| What is Antifa and why is Donald Trump targeting it? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE81TnNXbFFQSDJ3c09xR1oxblVCQXFTQnBZQkNPaWZkR3lfOXoybFRFYTVyLXNoYUNZWDVlXzVSVlVQb2Z2dDhTN1pwcDMzMW9HUFhCQkU4WldYUdIBX0FVX3lxTFBrN2FrU3FaVm5PMzRzTHprNEpCck4wZzlINl9ta29HLUtMVmpjbk9NdFA3LWhOSS1PYzFVa2Jsek9kU0pHT0VibUwzRDZfc0V4QnZlZDN3Rlg0M2VhTDF3?oc=5) |
 | EU hammers Putin and charms Trump by targeting China in new Russia sanctions - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNY3RvNU5YWFhidG9UUTFXSE4xSTZFMkNQWFUzN2ZFdGhnYXF0NTdtdmcya041N1cwSzNIWDBRMGM1cTB2alRHNnUyNVJXd2E3b2NvRzE1Slo5Y0JOSDkxVE5oeExwZWs5clFhZjdGU0dNLTUyQkJURDRuc3pLeDlGWlJCajN1ckU5bnpncnV0YVpxUWZYUzdCd0w0NTJqUTNyZ01YZld6MHZWSHV2?oc=5) |
 
 ---
