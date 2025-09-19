@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 15:40:32（北京时间）**
+🕒 更新时间：**2025年09月19日 15:48:42（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Security will be tight for the Charlie Kirk memorial at State Farm Stadium - Axios | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNMV95bG93N0hUUUlUWUNWaERIanVmVWQ4SzlTNkJLMGZ0R3F0ZVl6SVp0ZFVFVVRFT0dEb3d6US1EcURSTC1vNnM1SGZ4akZvNnk1LXotdzl1bHRLbWNnYUMzZzJLenM4V1N0dVd0M1VTZzA0TlFEZUNsZ1ZmbW5hekVoSEtvamNVYmRfTEJRMVJ4OU1acXJGNFRna2FLc21nTWt3SllzSQ?oc=5) |
 | Trump says he will label antifa as a terrorist organization - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNX1FsUDRvMTZxYlhDMWU1SVBPTy1sSkhPVGtSZVJWRlVybDJSdHlXZzVMd3h0dnVsWG5uQW5uV0thQVJPRHMxTy1DTXU3QW4wTE5jYlJKSXpMVlFCdXdPSHE3aFBCYlJjWjYtckdnanlzbW1JRmo3cGRiY1ZNVUh5VG5IT0g1aFQ3M3J3MHFn?oc=5) |
 | 'Tonight, we are all Jimmy Kimmel,' Stephen Colbert says, calling Trump an 'autocrat' - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOdTh3MVU1SERobl80dnJrRTZacXhkZ0lmMkpaWFVKZ0hNWWFaYXFWUktvbUQySm9vT050TG5nNnNZQXFJaGlaUWZldFZPaXhJcTd3dXRoUHRjWlFVaDk5cmQ2YVZ0QUFDYllkdzRycWNkWWtHS0pQcDZWOVZBanVnUUZDZlnSAYoBQVVfeXFMTm1ZN1g4OUh0NmlwZ0NXR29ZdkJ6cVJtWnc0S1pWVnR4QmdLaWpjUXZCUDV4OU1jaFIzb1hIRlMzSWRySXphdk96Sy1ZYnpPSy1Qc3E2cHFsLWFMVXZmUExiaHlocm5nYzlYZlVRQ3Z5UU5TUGZFbHppaDdEY2U1SUZuQUlMcDJKeUJ3?oc=5) |
-| Mexico and Canada make nice ahead of high-stakes trade talks - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPSWg3eGsyYWNPcVBOMGMxcnJlVXpLODlWSXFLbFQ5R0QyaTl2UG9qb3FPNnB0akppQlFYREVHQW55NnBEOVNIT05LQmN3SVRZS0hRYUN0YV9mRDdNY0VFRG9zWkx1OVM3WTBkLUlUeHZmdTZmbERIbXZjS1k5NDUxcEtXNnVScUQzX2hpbmt4Zl8?oc=5) |
 | Texas A&M President to Step Down After Controversy Over ‘Gender Ideology’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNYVpHVUZ5dUFZOVN0NFM5Q08wRy1aOFA5Mi05YU9NOFBaMnhNdEhWblpQaElIaFVaLWY4NEZmeGJ2X0g1bWtZa0JSRkxIanhWRkl5R3lHdl9jcWhYVV96bHlUUzRaaWxRUWFCd1B2MEd5MGRWVkZXRzFlV0ktRWlhV2xDSl9TU3VaOVRXUzVCU1NDTDA?oc=5) |
 | Democratic elected officials arrested at ICE facility in New York City - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPSVQ5bkYzSXlkQ1lSajZZTktIanBDNGNleU5QN0I4cHZwTUI4cDAwOGJzaEhnY3hiSjhlNnFHcHV3RWt4S2dSckRRTnBoYUh6OGpxd0s2Q2xhR0FwWjdmZktHVGZsSXNselM0a1k3YkhzbG9GdEFUdlJzc3hRYXZCSENfQ0FydEJZTHNWNk93dFNQZlV2M0lTeFNLdXVCUQ?oc=5) |
+| TikTok deal looms as China talks stall - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQYVFtRFpkOGFYNlM0S0Y1cWZkTTZzbEtiUzJxV1JvMXViQmY2TUsyOXM4ZWJZQWRpRFlfak1hclAwNWlTN1F2MmYxdHRaemkwOVFYa3U3X3VhVE5RWmJIUVNheGVPT3lVTXdqQWtSblVqSnRhaVBhMDlZRmRkRTlMdmpXRFd3bEFqcGw3TUxER0FsUWlIaS1tUmlOMGwwQnpXUkpjYW93?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
