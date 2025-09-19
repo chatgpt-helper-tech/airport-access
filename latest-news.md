@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 18:09:24（北京时间）**
+🕒 更新时间：**2025年09月19日 18:17:39（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | Spectacular autumn leaves expected after warm UK summer | [阅读全文](https://www.bbc.com/weather/articles/c5yvd830p37o?at_medium=RSS&at_campaign=rss) |
 | Premier League ticket black market exposed by BBC investigation | [阅读全文](https://www.bbc.com/sport/articles/cwy9dlqxx2ro?at_medium=RSS&at_campaign=rss) |
 | Migrant returned to France after government wins court challenge | [阅读全文](https://www.bbc.com/news/articles/cx273vnkjpmo?at_medium=RSS&at_campaign=rss) |
-| MI6 launches dark web portal to attract spies in Russia | [阅读全文](https://www.bbc.com/news/articles/c0r0vk1j4j8o?at_medium=RSS&at_campaign=rss) |
 | New Troubles legacy deal 'a day and night improvement' | [阅读全文](https://www.bbc.com/news/articles/ckged550k76o?at_medium=RSS&at_campaign=rss) |
+| Trump says he didn't want London Mayor Sadiq Khan at state banquet | [阅读全文](https://www.bbc.com/news/articles/cwyl01x9pllo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -29,10 +29,10 @@
 | Capitol agenda: Democrats steer into a shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxOTFpiTUlrcVBBNFhKaXc1RjJGcS01S1dUVzFKOWp1NWVZTHFKMXZEWXM2aWJhQkxianFnbnRQZnZrTFdySHVZdDM5Z3V0V0dfT3UzZVFBRHhZd0syQTcxZ19lNXJDMmNCRjMwTzFWWW1IVWZhTUZOTy1KZ1M5MmNlM1dvMnlrRzJ5SmRqbV9fT2Y1VElMOG1nX0JkVzRSZExkNHVfUjJmUDJoQ3VoTTFHUkZfd004YW16RXVxQzNTajBoUXdMSUZSNF9JaU9lZw?oc=5) |
 | Chris Mason: Delight and relief in government after Trump state visit - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1sd05lYldpSjZyczVwbzJzSGFkNEtQYnphaF9JT0tJWFk2TWVKbUE4UHR5bHF5VUtWdXhLMW1EdDlsaEtlZ25fZG9qQ0E2dDlVVFRaUXZpT19mQdIBX0FVX3lxTFBYX09SNmoxVVp3ejBwSEFwRmhyQjIwcmJKU1Vzbzctc1FUTVBHNUU4Q29Oa1lQX0s3b19nd0M0QWFZLWIxZG9NeHNTcmN5UkYtbWhFbEVYUElmOHhvalYw?oc=5) |
 | Security will be tight for the Charlie Kirk memorial at State Farm Stadium - Axios | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNMV95bG93N0hUUUlUWUNWaERIanVmVWQ4SzlTNkJLMGZ0R3F0ZVl6SVp0ZFVFVVRFT0dEb3d6US1EcURSTC1vNnM1SGZ4akZvNnk1LXotdzl1bHRLbWNnYUMzZzJLenM4V1N0dVd0M1VTZzA0TlFEZUNsZ1ZmbW5hekVoSEtvamNVYmRfTEJRMVJ4OU1acXJGNFRna2FLc21nTWt3SllzSQ?oc=5) |
-| Texas A&M President to Step Down After Controversy Over ‘Gender Ideology’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNYVpHVUZ5dUFZOVN0NFM5Q08wRy1aOFA5Mi05YU9NOFBaMnhNdEhWblpQaElIaFVaLWY4NEZmeGJ2X0g1bWtZa0JSRkxIanhWRkl5R3lHdl9jcWhYVV96bHlUUzRaaWxRUWFCd1B2MEd5MGRWVkZXRzFlV0ktRWlhV2xDSl9TU3VaOVRXUzVCU1NDTDA?oc=5) |
-| Democratic elected officials arrested at ICE facility in New York City - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPSVQ5bkYzSXlkQ1lSajZZTktIanBDNGNleU5QN0I4cHZwTUI4cDAwOGJzaEhnY3hiSjhlNnFHcHV3RWt4S2dSckRRTnBoYUh6OGpxd0s2Q2xhR0FwWjdmZktHVGZsSXNselM0a1k3YkhzbG9GdEFUdlJzc3hRYXZCSENfQ0FydEJZTHNWNk93dFNQZlV2M0lTeFNLdXVCUQ?oc=5) |
-| Mexico and Canada make nice ahead of high-stakes trade talks - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPSWg3eGsyYWNPcVBOMGMxcnJlVXpLODlWSXFLbFQ5R0QyaTl2UG9qb3FPNnB0akppQlFYREVHQW55NnBEOVNIT05LQmN3SVRZS0hRYUN0YV9mRDdNY0VFRG9zWkx1OVM3WTBkLUlUeHZmdTZmbERIbXZjS1k5NDUxcEtXNnVScUQzX2hpbmt4Zl8?oc=5) |
-| Trump and Xi are set to discuss the TikTok deal and future of US-China relations - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQWll6dlc0MGtoM0ZBamNrQllRcUd1NzhaczVKb2NPcm0waXVNMS01U0RLUXpFVDFVcWhQWFlxSG1QajZJakVwbjg5VGN0a1gtbG9WenNpVlAyQXBIeWdhcUFEZ0RCUzBDYTdTOEtNMjdUSUNnUjRwbnhxQWJna1FVQ1lGT0ZENmxldEM1T2xjc3VyYW1KYTJIRFFmVQ?oc=5) |
+| Texas A&M president resigns after instructor’s firing over gender teachings - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQRFV5ZXdfUmF5RWlVVlZCODRrZWl1RFNFS0g1WmZiaEpFUkZrZUVkUjdlRGxYX0hwSHRjVVdOM3hHaE51RkhJNjg5dk01dWRlNW1YSFFoZjh2NURVZmdfNjlTYmFESV92d3VsX0NYNEY5c1pDWlowczBlU0pWNHFFS0pNeUdSOTMtX0phbk9IS21kSzV1Vkhj?oc=5) |
+| Several New York officials arrested in protest at Manhattan ICE office - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQQnlPdWh0RlFjSWN5NG1UQmxBX1oxZkFraXNCb2d2Mkw1eWZ1bV9SRS1sZ3V3Y0lkSS1ZUE1SMThFREhHc2xmMGVCMkk5c2Vyc1BtZU56LVdHUjNyZ3hON3MxaHRVVTlmZXZxVDBVX0d1VUNpYmlFQnZ2YlZRcFp4VURNLU92cmN5V0RSRWxrYi16cWRYX3Ytc2JuQWdsUGFqMTl30gGoAUFVX3lxTE1iMU0zX21KYkttbXZHR3NVM21QXzhfTWdNUWNlMnZHRE9qUVlSa2RhMGVDOVFVTWI4MWw3eUg2THZ1SEFfcFVGWEgtZmY2SmZKNHhBRFdQVlk2d2ExOFJ6Y1h1eWlWSUM5OHB3RkdqS3RUbG5jS29WUHNiZzlQR2NVeVdrZWczSTVJb1ZETzQtemFKQUh0NEVLcncxN2ZwYllhY0ZRVFREUA?oc=5) |
+| Trump and Xi Set to Finalize TikTok Deal - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQUkZLTHdBS2RPWWJmbkxuY2s5NGVqc2gyQ3FHek12cjVLUXoxRGxXbV9jeTFTTlBCQnBXTWRMT2FOakNxTjUwbDFZQ1o0U2JiYk9MdEMwODFadU1wRE5LTzFzUHZKTFdXbnVjb0E5NTBQdTVKelVRRXAyaHhJOE9rcThjblRfUUk1dldZcFRvWTZiV0oweHBfLU4tMA?oc=5) |
+| Trump suggests US troops could return to base in Afghanistan, citing its proximity to rival China - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxORXBkVVlGWjQtdDhENEROeWxJbF9uNGQxdlg5azVVdktjTzc4WVRvVGN6THRMZzdBRmhfU3BfTnJOSjhJWFlNX1Z1R0lEc0ZGd1lBZlBZRWlqblJqWUtNVVkycmlxcGFpSjl4eUxoNFBHcjFPRnJFRWw2Y2RmOEl2R3dFMy04bl9yUEIzUHRlYVM0YUJBWVNnZG9aS1kyTlBMSkRaMGk2VTdJNXM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
