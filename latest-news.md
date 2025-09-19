@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 05:08:03（北京时间）**
+🕒 更新时间：**2025年09月20日 05:17:47（北京时间）**
 
 ---
 
@@ -25,13 +25,13 @@
 |--------|-------------|
 | Trump administration to add $100,000 fee for H-1B visas - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9jejdTSXBlMkdiMnVaeHI0TzJvQjN1VWZXUDhkQnJ2R0dMTElPMFVWcHVyLUoyMXpuaUNnREU0WWpwQUM1TlFlS0ZaVTFnVHBFV0dsTlJYRHZmUXp3dUVBVXUzempNTWsyWjNVQ9IBckFVX3lxTE1QSF9sZkFUN0tteXVxbmhFbHljeFlBUU8tVThsMHotVDJ5OWZWMTNTRE9HSUJDaWw3OTFuS0NuSzB4N2Q2NWdYYnFlZWNLWnVMMEdPR1hOTDd2aXhqRFlwZG5Oa0E1TWM1MG9JcmZ5YlZQQQ?oc=5) |
 | Trump Live Updates: Government Shutdown Looms as Senate Democrats Block Funding Bill - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE05c3dlVC1aSktRTjdLNTNnNHQ2QWtmRjhrcjZhR2x5c0JPOHNuLXRQbktFaldTVDJJNzRWYXRPTk95aTk1a2x2NzMxbjRVNjRQa1FxSFpfVnZKS1g4cjVJQlJjVQ?oc=5) |
+| Trump says Xi approves of TikTok deal as leaders plan South Korea meeting - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1Kb1ZiZWljcnpkNWZmVkVSYTk2RVd5MDZNT1pCM3ZSb0NDdl9Jd3pES1hadHc2bDIxRjVLV3FfZTdwRUtGTnZPdEZjNlVFRW5WY1BMYWdWOENMZ9IBX0FVX3lxTE9hZlo2UHFNR1VjTGFTblo2NTVwR0N1eGk2OHhJVG1TZ3JleHI2ZnlXM2RJYlM3RGhqZTUydGtzcjRxU2VEYVlkX1B1aXBkcXB4OThSTjBqR21PVGxJQWRv?oc=5) |
 | 'Dangerous as hell': Cruz blasts FCC's Jimmy Kimmel takedown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPTWI4aFktaHNGUjY0NFpSLUgzWTFSUjlLMk9PcHBaWWVEMGhqd1AzUGp5X0dpTGtWYzNNbDY3WmFIN1RmWl9FWGNPV2prNFdYYTQ1SWZMNmNCTzU4TlFFQ25WeDcwN3d4U09vTGhGcjludktnZks3MnpuWkcyZkNkTHoyVDBOQVV2QmZHMmhSSGhhNDJNc0l1dXRRcGtIVUV2TEtLUEVRSDJOaVlVeUVVdE5kdko?oc=5) |
-| Judge dismisses Trump's $15bn lawsuit against the New York Times - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9ablR5UkVqbG5feXNFT1lIaFY0MGxYS0NVeWIwYTIwSXdjcER1aktYbWJXMEZ3bXNWeHltckNQX1lhZjNNdzczRk4tV2dfaDlkYlBvRzFGSHo1d9IBX0FVX3lxTFAtQ3NOYVlROS1IQlVMY3ByZDhfSk1KSGhsRHdmazlOQkVCZEszdmRnSVZDbmtCSUFfdmpFdXVQUzVCcjFhdGpybVA2RHpEN0tVSDRCUWp0SzE5YVhfVFdZ?oc=5) |
-| Nato intercepts Russian fighter jets on ‘reckless’ violation of Estonian airspace - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQTzNNanpJWk1QUkJYNFdkenF2TEswdXpiY3dhMzNvNDhDdjBROUlCT0N0WVQ2cGZGcEpwRUNjaFRhSEUyN2RXZE9uVGg2UmVnY1VNdnZCY1VHU28wb0FMRVhnSTFmSVJRUkZBYWpiVmtzd1ZHemtzRGxaWmk0aDNudGtneFJjdGRJYmwxUWFBSkRFbGl5V0FOcWx0N3JadmU5QmJTd0dTTQ?oc=5) |
+| Estonia says 3 Russian fighter jets entered its airspace in ‘brazen’ incursion - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNaTVjUkNqRVU2WE1XcjljbWQ1VC1xbWM4b1VURkdyQnlaUW1tM1VLLU9iM1o5b2J4V2tMOWFTLW1JeVBMWkw0UU1lQWF5bmx5V2ZHTU1wcUo5QzJGRWpNVTZHb085UUY2UlEzc1BMMU8yWUVzNjRYbDJ4OUN5Z3hSSTlXOXcwMm90QnpIbnFqUXd4aFlWS1h5WmUtWQ?oc=5) |
 | Trump intends to fire US attorney who didn’t charge political enemy Letitia James with mortgage fraud - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOSFRnVFYybFU3ZVhVR2t0QmY0TFR1M25hdFoxX2hvOXFWWEVDaU1uQTRzek5IaHpvUTZSU29DcktZT0Jld2pYcmJvMzZENTBINHduc0lpSFNqV0tiZXhDd0prTjNMaDJRaXdYUkFUTTE2eUdFRzZGSm9SWWtTd0RoRld3?oc=5) |
+| Trump Officials Question Harvard’s Stability, Saying Federal Inquiries Raise Financial Risk - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPRlJJdVhmTm9feEdQaHd2d01vRmJIOTZZUTM2N2pPVDB0czdEcVpjUUpkT0p2S2xscDlVZ1pLSWp5eFJyOXoyQ3htSFFsdzBRVmstY0l3elJtOUlxUHNtZWJLcGNwTDA1X3VPU2JEY2VUR0hVaVhKeUZITXBUdXBVUDFGZ2dKc0k?oc=5) |
 | Texas A&M president resigns after instructor’s firing over gender teachings - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQRFV5ZXdfUmF5RWlVVlZCODRrZWl1RFNFS0g1WmZiaEpFUkZrZUVkUjdlRGxYX0hwSHRjVVdOM3hHaE51RkhJNjg5dk01dWRlNW1YSFFoZjh2NURVZmdfNjlTYmFESV92d3VsX0NYNEY5c1pDWlowczBlU0pWNHFFS0pNeUdSOTMtX0phbk9IS21kSzV1Vkhj?oc=5) |
 | Congressional Black Caucus says resolution honoring Charlie Kirk ‘not about healing’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNYUVpOERySGd6dTBmSmVtUjYzS2YwSUdpa0lOa2hRUWQ0TUdZU1BVVnhxR2VDNlZ5Nk5DcnMwOElZYWIyUUhRTFlpLThjcEw1TGdZdlY2VmRCTjJTMUtkX2paUkVkSUZ3ZjRzQnJ3VW1JdE1VRU9ETkxjbUw5T0JhTkNkWTA0ZlU3bXNDV0xQSTB3Y2xmbzg1Z0VPSGFZOFNRdmxhWWNJQ1A1QklFdUNmUjBiZDVuZmNN?oc=5) |
-| Trump Officials Question Harvard’s Stability, Saying Federal Inquiries Raise Financial Risk - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPRlJJdVhmTm9feEdQaHd2d01vRmJIOTZZUTM2N2pPVDB0czdEcVpjUUpkT0p2S2xscDlVZ1pLSWp5eFJyOXoyQ3htSFFsdzBRVmstY0l3elJtOUlxUHNtZWJLcGNwTDA1X3VPU2JEY2VUR0hVaVhKeUZITXBUdXBVUDFGZ2dKc0k?oc=5) |
 | Harris says Newsom avoided her call after Biden dropped out of race for president - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPN1BvbkxFbHVxendnd01pOTVnOU1yR2xIcW52XzdBUjhPUmlQQmRCQTFzdHNWNndyMVI5emt1eFZFTG5HYWhtTVMxNkliSXdBVjBlRUpWQkdBRlBDSWowaHdrbkxpYmk1ZDBVaDEzcHBPYkxvR0tuZ0tXWnZELXFRMA?oc=5) |
 
 ---
