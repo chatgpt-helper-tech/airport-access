@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 23:33:35（北京时间）**
+🕒 更新时间：**2025年09月19日 23:40:03（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Investigators think they’ve found the remains of Travis Decker, accused of killing his 3 daughters months ago - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE84RUgtWHdzZlo4aTY2X08yMUZPOHRPUkRPdDNDSTdLZmEwT2IxenZHOGx2SW1sbGR1TjloYm5WMUlYeDFkU2tqYUt0aHVGU0xnZVJmdXM5OFFFem81LXZOcnk0OVJoejFIYjU4YnhaeVdaR1RuY25EOVgzcUd1NnM?oc=5) |
 | House approves Charlie Kirk resolution on bipartisan vote - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOaXFxRW5UaDRHSVJmbmVLR2VHajRaU3F3S04yWTloY1NNeXVXN2pVSjRsWkxLNGlmcTdkWndpSy1SaWdiSzZMcmh0NXJHVUpBc1dIc3Brd011aU1kMW90cTdjbGNTT1J4UndSZUZYT09rUGZrdW1ZdzhPRS14SXV2YTBjUG9tWWFkMmVhNUdlZzk0dFVhV182NXBxZWVWQQ?oc=5) |
 | A Domestic Violence Case in Rural Pennsylvania Ended in a Deadly Ambush - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPQkN1UWx4YzlOaHBxNmtNeUtHTTRDYVJ5UzFycXRkVnNicHZwNUYxVXhGUndraVljUUlPdmdFZkN5N2lLQ0RtUW9XR0ZTMzEtOGtjdHVSa09yMEtXQXMyakJ6TlowVE5kM3FpaTFPRE9VS2pGazA5enRpRW1DdkUwZElLMHlkQQ?oc=5) |
-| Xi tells Trump he's open to TikTok negotiations - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQX05Cb2FmSGlFZHVpNGljUUVpT1lTbURiTS1xNzJNNUFwS2ZpWFE2WDA5S1FpdEV2MFlialBYVVJzVXUzVXdnVzNhM1d5YXVmVVlEWl9lX1hmQ1ZsRm1KVWVpZlRlVWZ3ZFZ3VDdSczcwZF8tNjdXaEVub01Bb21kdjgwbzJjcE5nbDViM0hTSTZCVjVxZl9najZsdTU?oc=5) |
+| Trump and Xi Set to Finalize TikTok Deal - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPanhCcFdjTWRBVDVfQWFxYWh0R3ZzbUlGY1Nwd1I0ZTRnSW9RdUZRR2RVMkZTbS1BcGV0Z1dMRXVpWkRQc1ZzamhwZWc3N2dOLUNqRVQ3eHM0cmwtWWYwR0dlU2UyMENsc0FJQkJ6VW04VWR3UzI3MGJlaHpFYTJ1d2gyWkc?oc=5) |
+| Can Trump Actually Designate Antifa a Terrorist Group? Here Are the Facts. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOQzNWTUFnQ21MU3BHb0RPYlF3SXJ5ZFFyUzdWcWVORG9mYjljOGQyQ0JnbkJuRnlNX19JM3FMVE1QeU9hdlp5WnlZVVRMZXRQTUJoX1lrcWViWXdsTm81VmNhTEx4Q2duN2RaVW9xTFRrZEVrNTc2ZldHV1g1Snl6T25iUzdSMUE?oc=5) |
+| Weighted vest women are the 2026 swing voters - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNRkV6RkpTaEltRVFrX3pULTJVSFk2bUcya0RtQkhZNTF5eE1ocnRKeFYxVE9ha2d2blkxZ0xtcEFwWUdkOEZDWC1zSm1FV2JGVVIwZXlhbklfdXc0VDZXMjBTd0FWSFpuanp1UUhfUlJrTmgxRlJPVDNWWW40ZmRMbUJfSHk1aUYzaVAydUg5TTFrTnczMUZqVFVDZw?oc=5) |
 | Texas A&M president is stepping down after upheaval over classroom video - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOV0Y3N0R3d3lSdEJNT05xQ19KWExUSUVjdjktby1ZcC1pM0h0QkRsZHdtM21mN0VFUVN1NWpRZElzWFZOSWwxa3ZxSlRwci1wb1pMQUU5dEoyMEFLbjE2RUpCS2JQWUpTWDdZQkFGcG1HVXVYdGpzanMxQkMyZnNUZ01fUWNvSnpKMUl1cDVYem5Jc2taWTJVZDlHOFpjS0pM0gFWQVVfeXFMT3U1QUxyWWJlVlVwYXgxRjE4OEpnMXJXWWxzSlRsRVAzQ0o2cUJhN2tVQllVbGNCNjktQXpuUlZTdlg4bEk2dUhjMjNRdS1QYjJ1NzlrbVE?oc=5) |
-| Hungary, following Trump, will designate antifa a terrorist organization, Orbán says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQSkhVSmJiZkk5RVVrcW5pREtXZ0ltcnFocktuTmFCUWdPdS0zYTdqMWFtc2VGWUdaSlVDOERNQjZ2ZXJLcHltR2diM1o0bm1DZzg4bzcxX3RQc3ZKSU8yZUo0a2t2UElIQWRndnFSRURBWFBSbFQyMmVlOEJTQ2Y1encwUGZEYTRtV2lJRU8tMkNybklLSi1CdlpCR2JyNGRZZzNQa1dCRUdDZHpZcmc?oc=5) |
-| There's a new, longer U.S. citizenship test with more history questions; here's a quiz with some of them. - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQSFc5TEFoTHFpRFhJU19fbEtjVUhKRlhvU3IwN01fYXRicU5tX2ZFckdNYjA0Qm9Mc2M0Z0kzc1NxQ3VSTE1GUGlpaWJENW03SHRfTmNNdGV0Ujc4NXpaNWI3T2wwZnZlcS15SFJCMmNJVkZQcXlyOEtvU2pUNDhWMllNMmlsNTNiSmNObTNoMFhVY2pURVFIVGpR0gFWQVVfeXFMTjlVYWxOc2psOGRLSllLSms5bjZjZGVXdTg3Q1RrQUJ3ZFZlVXFTYkVfUlFmdDY3QUVkdnhoSmF4ZEp6MkM1Z2xhYWlXYl9GdXdESzlKMkE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
