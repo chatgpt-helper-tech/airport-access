@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 06:57:57（北京时间）**
+🕒 更新时间：**2025年09月20日 07:01:40（北京时间）**
 
 ---
 
@@ -29,7 +29,7 @@
 | No clarity on TikTok sale after Trump-Xi phone call - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQMlJmX1JVc3NITndmSFE0dzN0LXJVa1g1bTl4aGZQeHFfcXBSRGtueXNTRFFYX2l6UHZ6RTJoWlkyUjZNa3ZQVU9GemgyUElYcGJpWXFnZ0JneU14NlYySzBsMU9CYnJ1U3loOWFXam91b2lwTFI4TDhaWlJuZWpkLVNjMHpmdW8?oc=5) |
 | Fight Erupts Over Fate of U.S. Attorney Investigating Two Trump Foes - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOaVFZU1I2S0E3d1NhTjdvZnNkX3dOdlFQT094RURUelhOQjktdk1tUms4TzVZUVNKdXV4aTdHbGVMSlppdEs3M2ptWjRwNHZORWNVUUFaYnJJQ3BkcXB6QW85MU9lYmRtRnA4WU4xb09Semo4R3VLS1VmTWpZNFdSaUNfQW84WXVBd2d2dg?oc=5) |
 | Florida federal judge tosses Trump’s $15B defamation lawsuit against The New York Times - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxORF80WHRCSGZhNTFTSXZDU1JSVnEtWmdOYk9UaURqZzg1YVI2enFDNnU3d00yZy1OR3NHRk1SRTl4d3pvcUJkLUhiOVFZZU8yQm1PaGJJbDBSQnFVRHYxYWVSM29ubFdraGhlN043U2JjMVlfREVyVFpUZTlYNXlrZmtXQW1qb3F5UzF3bUN0Mk9pQQ?oc=5) |
-| Texas A&M president steps down but doesn't say if controversial classroom video was a factor - AP News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxPSV9iRnc1bFIxcnp1bTYyaHdmejlpWDVobzRYOFRTNDJNbC1TY3pVdURISlBfdGN4MWRqTU5rcDdjdDM3OXpsSXJSNDdmNTBUMzZzZ0J5N2RHUFZIMU9Ca1MwbmkwdkdUaXFDbXV0RVM4My1LcVdWcnhNMEU5YUVaOE83NzRpSi01c1RGZWlKZG1FeHBFX2pGQzBQenZCSXN3N0xva01NQmtnSGN2SU5IT3dTeWpldk9ueTF4aFRLWUxFckhIOUlZ?oc=5) |
+| How a secret recording of a gender identity lecture upended Texas A&M - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPOEo0RHFtMVhLMkI0aVZPNVVMZXN0S1Y0OXBLWTFHRG1jUGw4MzlYZ3Y3eEJ5YXBFcG1YRTNLaHNQcFZSZlBEZUZaYmlVemR5SmFLMm9McnBVYldweTBCYUhYOGFfVWJqM3RHNW54QXN0aUhwa2EyVFB0VVM2QkV1emtwdU5fenkxRWEtWEJlZnQ?oc=5) |
 | Family of Black student found hanging from tree on Mississippi campus seeks independent autopsy - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOeEhkR3JSb05BZ1NaRkxxdXJnc1NNTzl3MDktTDUxSlZCTjNtblRQRnhrTkpmMnlYd2d2Tk1tNnlGa1ZZZjB0U012TEMxWWxQSm9mbV82eXpCT2ZlalM0WmhHb2Y4SUhPYVdmdkhLdGI2bnpJMlRDM3BUUGw2LUhKR2E1M0E2YkM4ZVJOZWREMmQzLXFxeFl5WW5YeW5kOUxTSjBVUkZKYjFXZ05keWgtWEVBYldJMk9kX2fSAVZBVV95cUxNdVZMUmFjYS1NSnlmZ2gxWXRSR3dfTnpZRFlwdUJ1NE5SSVhZMzNlZU12SUR2bG1kaFFSWTAxdUV4RkZ1aUgyeVl3dEkxSWVpcDdxTDFVUQ?oc=5) |
 | Harvard Receives $46 Million in Federal Grants, Ending 4-Month Freeze - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE0xeTNUWEZFRlNBR0QwUEg1ajJwWkhZVHg3bDctZEpIcm5hQno1cXJyQkhWMHBfLUNTSlh3TkN0OU1NVTNGckloeG9hVUc3bjFkc0ZkX2VES3Q0OERWZV9JR3E0b2ZsT0xaZi00SVZaekpCVDdjdkE?oc=5) |
 | US appeals court orders deportation of Atlanta journalist detained by Ice - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOX09hV19VVFhQMDNyTVNHWklLenFuSWJXb3FUejk5Q2ZRRFVqTzhBX09iQzZCVEVGWTJGLW9LQ1g0eWV0TnRCUXVOeXZlRkJXelJiT25DNGlfWTNtak0wazdCYVAzNXUxamZJRkt2M2JJUEhhaDRwMXdWaTFrdjVBejZKeGU1eTRoTWlIdUppaDNVdnRhcFI4?oc=5) |
