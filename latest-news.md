@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 02:16:19（北京时间）**
+🕒 更新时间：**2025年09月20日 02:24:46（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Judge strikes down Trump’s $15bn lawsuit against the New York Times - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPc2lJNTh1WVlydHBFQjhpNFpkUHJCSkhUeEJwSVhMVEw1MGd5Sm4zMW93T3BFZ2pSWnhhOFo2eWJkNEdXcnJBdlJSQzNubmFNeFRLX3RtcjQ2X0dWOUhGVTJiRGp3YkpSLU9McHNRUWNCSU9CcHZZU09ZMzNMbTBMNW9rMlc?oc=5) |
-| Late-night hosts skewer Jimmy Kimmel suspension with humor and solidarity - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPQzY2Y1VvdkFBZzFxbF9NeFBGM0tuSE5SUWZDQVVRR2FOM19wY0g4dExyWHdhMUNvOC1hT3MtbmxKbkNXT2t4UmVKSmFJcXFKU2hQUmFRNERYQUU4ZllCU3JzeWk2bkc3b2pEUEZoY0w3VGw5T2dsLUZqZzNrYVJ3ZFo1aGFyS0wyY1lINWRhTlU5dDd4S0IxOFJWSzZYMmPSAaQBQVVfeXFMTWw0bGh4VDRCTE8xZWN2cWFRVnFOQzJNcjlWa2prOFk5dWljYlpMdHp1RkRxaTBUQXVXUnd5amdZdmEtdVRkdFVPVGJEUV9NZEktdENyU3dwQmpqSTZGUUlvbTlPdjI2eERKOW01cEc3alg4WUwxVnR6R0lXLXNXcGU2UExPSzR2cGJNLVNwd1BJWmVVX05tc1ZCRFBrQ184Q1ZNUW4?oc=5) |
+| Judge Dismisses Trump’s Lawsuit Against The New York Times - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOWDZKd29FM1liR2Q4Nnd3UDZxczM3X1NRTWxZbXBVUWVhdzBoZ3g4anNUUzRFQ0FNOFEyQ3ZRU2VYY2VRV2pNeXdsQU9OaEhidzVLekEtZk9OWHl5M1Rnc3ZibG1vUGxYb1FqT1I1c3I1ZWNjNkNkU3ZmTHFhRk93MnZhYUkxY0ZYdjg4?oc=5) |
 | Senate rejects both parties' bills to avoid a shutdown, leaving next steps uncertain - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOYUR5elFSbXI2U2hBa0tXdlh6ZnhWbG1pN0RTREhHaTJJVnNROGhoNmRGLVpQWTNPdjg5aWFRZ2xhZmF1eGVFcXFadUowRFZmU1EyYmNBY0lRYVVPTXRnVnpVTkV5Wk9rNkI0dHBkblFaNGNBWWRCbkZsS2hZcEFBZWdJQ09YM0lUNkNfZ04ycGI4Q3ZBZ2xkLTVOWHlPbFFhMmJ3UXdVVm9UVm5yQjBv0gFWQVVfeXFMTUtJSDZoX2twdmduVFAtRWIyNkF3YU9yTklhX1FwOFRrWlhxZ1BiYnBBRHVVWHpmRFpkQjA4eHBqMDBBVXRReHZxMGwtbGttZkRFdFJOZ2c?oc=5) |
 | Trump and Xi to meet as long-awaited TikTok deal approved - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1Kb1ZiZWljcnpkNWZmVkVSYTk2RVd5MDZNT1pCM3ZSb0NDdl9Jd3pES1hadHc2bDIxRjVLV3FfZTdwRUtGTnZPdEZjNlVFRW5WY1BMYWdWOENMZ9IBX0FVX3lxTE9hZlo2UHFNR1VjTGFTblo2NTVwR0N1eGk2OHhJVG1TZ3JleHI2ZnlXM2RJYlM3RGhqZTUydGtzcjRxU2VEYVlkX1B1aXBkcXB4OThSTjBqR21PVGxJQWRv?oc=5) |
+| 'Dangerous as hell': Cruz blasts FCC's Jimmy Kimmel takedown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPTWI4aFktaHNGUjY0NFpSLUgzWTFSUjlLMk9PcHBaWWVEMGhqd1AzUGp5X0dpTGtWYzNNbDY3WmFIN1RmWl9FWGNPV2prNFdYYTQ1SWZMNmNCTzU4TlFFQ25WeDcwN3d4U09vTGhGcjludktnZks3MnpuWkcyZkNkTHoyVDBOQVV2QmZHMmhSSGhhNDJNc0l1dXRRcGtIVUV2TEtLUEVRSDJOaVlVeUVVdE5kdko?oc=5) |
 | Russian warplanes breach NATO airspace over Estonia - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQOVVnRmN4N0FER1dxSnVKTHc0VTlrLWJRcDM0X1dvRjRaOC10azJEeXRHeTFXOVY3enZxY056OGMzSHN1S0Nxd0ZoZG1LdXc5c1hRSVVnYW5LMUM3dHBKSV83YmlXelh0V1JGMGR2WUtIeG1NR2hLSTZJV2ZHd0xTSVhnNDJSUGF5T0E3dVNEdDNBN0FjRmc?oc=5) |
 | House, Senate pass 'National Day of Remembrance for Charlie Kirk' ahead of memorial service - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNVFplUEtvVHpZa2FVVGV0Nko4ZzhJcTkwT3l2TFNJa1NNOE1rSmxmYXhIWlE5MVMyYTdTUUI2UXlRS090Q2VMY0cxeXF1dXVNalBxa2FKNE5lSnVnNF9KNV96ZVV0dUJvVF9DVnJUcnNEX2ZKc29Zbk1ubEp2NEhadmwySDZ6cF92NTNCdGk4Ry1qN1lYQngwZFdlQ1rSAaIBQVVfeXFMTWgtZ2NaZFB5aXVmbGFmUHBPSkZ4Y0gzYWlWWGNPYTh6eUlLMkIzcWFkdUNGc0VoMFFOY3FVNWxPSjIzZFpWUXVrQ2ZfTXFNc05ZZVBhV19yeG5lN2RxWUU4eUlkbGtvYzR6NDVDNVFNbFpQVzBOLXBERjdpMUVnbFlHZFFmVkE0bnJKU0hhRmx4YzV2elFaV0ZoWGhjOFp6VlBB?oc=5) |
 | Texas A&M University president resigns after ‘gender ideology’ controversy - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNMnUtTUZ4UDA2MVJXX0lNa1d1S19KaVhLaGpsVEhISWJjc1RmLXJSbng1MDc5aU5oRlY5Vjl1Y0xBRkxqUmpPcE9VWWtlVGEzMUl1bmVLcEt6Y1RKSnpEN0JEV1lqTnZhdGNsbWxPTzRpUEoyUWYxYTZPeFpOUURhNzlFa1d3Z1hUR1BNMm9B?oc=5) |
