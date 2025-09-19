@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 19:41:31（北京时间）**
+🕒 更新时间：**2025年09月19日 19:49:22（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| TikTok: China is calling it a win. What's in it for them? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1TRk1tcncyWFhkT0tSeUNPUEEyM0ZIbk41NFM4REJOZjNNcnZjQlZIUl9oQjNrNGQ1Nmg1MVRXTHVNTXNocHk2M1c1Sk5ualZ0bGtzc05iZ2FfUdIBX0FVX3lxTE1WN25mYTQ4akFlSUwzOFI3MXpBTkFMcmRWeWxUYmlPTmlwNDN1cXkwQU1aWWNWdkVrS1dpVHFlbFYxM0g3TkU4LXVRUDdvRUpaTGlFMXdqWXlIR3BrU0I0?oc=5) |
 | Trump poised to fire US attorney for resisting effort to charge NY AG Letitia James: Sources - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNYjFUR0ZpakhnRHFmcF9RX0p6YWFGQlQtMWR0UXpUeVNXUE02SUtrVXZFbVBiaTJET092Rnp3Z3JsM2kyQ2M2REN3bHdDVnN5Nkl3Tm4xNXZpU1BFRkE5VVRQUC14U3l5OEU5WGstSHNrS2YxdGdDN29SaEtJaXZ2d3B3M2ZkLTBDRWJvZTZ6dndxT2xLR2dlOE9MVm5yUjDSAaQBQVVfeXFMUG9NdzFNdlhNQTg1VVk2b2JOSmxyOXIwdjJVRVo5dHVvTDk1V3N5dGhONGxIdElJSWhBQm9XM1R1bUVCNm9VMnZpbWttc0tNaV9DLXcwekJMMVNjZFhRSlZKdUVKaGpfLWJNLWowOGhOYVpoTmlOeFJtWnNqTkU4Wldhc1JXVnNHOVpudWxLWThCY29Ra2pFa2tzZmhaU3c2Y3BFRks?oc=5) |
+| TikTok: China is calling it a win. What's in it for them? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1TRk1tcncyWFhkT0tSeUNPUEEyM0ZIbk41NFM4REJOZjNNcnZjQlZIUl9oQjNrNGQ1Nmg1MVRXTHVNTXNocHk2M1c1Sk5ualZ0bGtzc05iZ2FfUdIBX0FVX3lxTE1WN25mYTQ4akFlSUwzOFI3MXpBTkFMcmRWeWxUYmlPTmlwNDN1cXkwQU1aWWNWdkVrS1dpVHFlbFYxM0g3TkU4LXVRUDdvRUpaTGlFMXdqWXlIR3BrU0I0?oc=5) |
 | Authorities find remains they think are fugitive Travis Decker, accused of killing his 3 daughters in Washington state, officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQZGIzR0xRMDZ6WDdRLTIxZTdLTWtjRUFpTE1oR2lKdFpiMTRJN2FoMld2ZjdXdnRqZWJEWW9ncmRrYzlmUDhHT0hIV01vUnJ0empNbHBfZ2w4RUp5YkJ5MGhxaTZ2Z0duQ0R6NEpoSkpLa0U2b2t4Q2NEYnJERjRBSjdBNUcwRVoyOERYYVJKVFk4aGh3c0JOUNIBngFBVV95cUxQTjFZa3ZxZzM3R25oRlJmOW91MU01emc1bThWejk2b1RBRlY3V3ZoYnBzREEwRzZtUFY1UWgzWDFpVlo2aUlXcEROVi1uSnMxZGxxdlRzQlhPUXhXbmNPODZ0cGJraEpYelVYaUJKbVk4MXBwZHZ3YmpaQjlTRnplQ1ZpOEQ1czRtcUg1QVRtRldZSHpMNnJsVDBuZVVWUQ?oc=5) |
 | A Domestic Violence Case in Rural Pennsylvania Ended in a Deadly Ambush - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPQkN1UWx4YzlOaHBxNmtNeUtHTTRDYVJ5UzFycXRkVnNicHZwNUYxVXhGUndraVljUUlPdmdFZkN5N2lLQ0RtUW9XR0ZTMzEtOGtjdHVSa09yMEtXQXMyakJ6TlowVE5kM3FpaTFPRE9VS2pGazA5enRpRW1DdkUwZElLMHlkQQ?oc=5) |
 | FCC chair puts ‘The View’ under the spotlight after Kimmel pressure - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOM201V0dKUGxPVDc3eU0yendoUmtpMjc1RkpxNk52QVhqaEVldFVMZThKTTA4QXltaEltZW5QWFJBcU5rT3Y0SEZLYzNndGtEWWVvZnlXTHc5cENsMm1STUFONWx5dE5fSXpiMzZyZ3lVVG9mT1pyY09pWC16azlJRA?oc=5) |
