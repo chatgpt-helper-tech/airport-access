@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 16:56:19（北京时间）**
+🕒 更新时间：**2025年09月19日 17:00:20（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump's moves against the media mirror approaches by authoritarian leaders to silence dissent - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPbkF2VlB2V3c5allfcUUwbmFHd2s4NEdWcFhZOXJsZmtwRnV4dDM2OGF5RmI1OENRUHVnR1RjOUFNMXNpWTZGajZUVmxfejhnM2JXRlE3VlJ6ekhjMGYxdnc4S3RkdURfZHN3MkZGVDN2SDQ2U0FuZkJQcDk1NFltVUpJc0tkcDVGUW5XZW5ZVXJnVTZaci1qRTZJaTNaT25OV1MyY3RVLW52VUk2?oc=5) |
 | Threatened by Trump, Canada tries to make up, team up with Mexico - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQMGZkLXI5bUtIZ3RNWDNnV1RjMUlwSGhKaGRvd3RqWVg5NnlvRnc4Nm5nWGpXRG1aZk5aSEc5VmdBOEhxZkdwMkhOSU12Tnk2NmFSdFhmNEFtUnZPbUFzUUxOQU5YWGx1dmJBVXVfemxyOElQbEpNQ1RXNXNRbDFXQjd6eEV5SmFET1ZTVTI4X0FsaTN0YVE?oc=5) |
 | Texas A&M President to Step Down After Controversy Over ‘Gender Ideology’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNYVpHVUZ5dUFZOVN0NFM5Q08wRy1aOFA5Mi05YU9NOFBaMnhNdEhWblpQaElIaFVaLWY4NEZmeGJ2X0g1bWtZa0JSRkxIanhWRkl5R3lHdl9jcWhYVV96bHlUUzRaaWxRUWFCd1B2MEd5MGRWVkZXRzFlV0ktRWlhV2xDSl9TU3VaOVRXUzVCU1NDTDA?oc=5) |
-| Trump slams Omar and Somalia after House censure fails - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOUWJ5YzRaSVhTYTdyZGQxbTZya2JJU0xJOHBoR3hubTFERG1zX3J2UFU2VEtnTUdva04xcTJyQm5IOEVxQXNvTFphT3IzbTM5bDNQQ05LejN2NThkMmo3bFdpbjBjLXd2UkhEUUJIYkRkQnlJSWFyQTNreHpvWUFpdVZaWEpoM2ZXMHfSAY8BQVVfeXFMUEdzTzJKc1NoaUVycV9KMXVTWi1HY2cwakt2Sll1UFMxZTdZN3pTZDd0Wkw3TWFnaGM0cDNocFpaMWFqRVBNVElRc2JOcXM3VWM4U3ppWjJWa3FIMkFmRU04bE11V3dHYjc0dTlaQ3I2R196QTY5TmxTbllLZjlYdWlMNzFwdDdYM1dMSkZPbjQ?oc=5) |
+| Several New York officials arrested in protest at Manhattan ICE office - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQQnlPdWh0RlFjSWN5NG1UQmxBX1oxZkFraXNCb2d2Mkw1eWZ1bV9SRS1sZ3V3Y0lkSS1ZUE1SMThFREhHc2xmMGVCMkk5c2Vyc1BtZU56LVdHUjNyZ3hON3MxaHRVVTlmZXZxVDBVX0d1VUNpYmlFQnZ2YlZRcFp4VURNLU92cmN5V0RSRWxrYi16cWRYX3Ytc2JuQWdsUGFqMTl30gGoAUFVX3lxTE1iMU0zX21KYkttbXZHR3NVM21QXzhfTWdNUWNlMnZHRE9qUVlSa2RhMGVDOVFVTWI4MWw3eUg2THZ1SEFfcFVGWEgtZmY2SmZKNHhBRFdQVlk2d2ExOFJ6Y1h1eWlWSUM5OHB3RkdqS3RUbG5jS29WUHNiZzlQR2NVeVdrZWczSTVJb1ZETzQtemFKQUh0NEVLcncxN2ZwYllhY0ZRVFREUA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
