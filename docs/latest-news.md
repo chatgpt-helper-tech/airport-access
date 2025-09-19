@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 20:33:34（北京时间）**
+🕒 更新时间：**2025年09月19日 20:40:30（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Authorities find remains they think are fugitive Travis Decker, accused of killing his 3 daughters in Washington state, officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQZGIzR0xRMDZ6WDdRLTIxZTdLTWtjRUFpTE1oR2lKdFpiMTRJN2FoMld2ZjdXdnRqZWJEWW9ncmRrYzlmUDhHT0hIV01vUnJ0empNbHBfZ2w4RUp5YkJ5MGhxaTZ2Z0duQ0R6NEpoSkpLa0U2b2t4Q2NEYnJERjRBSjdBNUcwRVoyOERYYVJKVFk4aGh3c0JOUNIBngFBVV95cUxQTjFZa3ZxZzM3R25oRlJmOW91MU01emc1bThWejk2b1RBRlY3V3ZoYnBzREEwRzZtUFY1UWgzWDFpVlo2aUlXcEROVi1uSnMxZGxxdlRzQlhPUXhXbmNPODZ0cGJraEpYelVYaUJKbVk4MXBwZHZ3YmpaQjlTRnplQ1ZpOEQ1czRtcUg1QVRtRldZSHpMNnJsVDBuZVVWUQ?oc=5) |
 | Security will be tight for the Charlie Kirk memorial at State Farm Stadium - Axios | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNMV95bG93N0hUUUlUWUNWaERIanVmVWQ4SzlTNkJLMGZ0R3F0ZVl6SVp0ZFVFVVRFT0dEb3d6US1EcURSTC1vNnM1SGZ4akZvNnk1LXotdzl1bHRLbWNnYUMzZzJLenM4V1N0dVd0M1VTZzA0TlFEZUNsZ1ZmbW5hekVoSEtvamNVYmRfTEJRMVJ4OU1acXJGNFRna2FLc21nTWt3SllzSQ?oc=5) |
 | Florida plans to stop school vaccine mandates. These states could follow. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQY1VJR1BJMnRyTjhrLTNVN0JNSFpOTUtVbnFMSVNPR25yVmhmVVdyVjFlWmQybW1fVVY1dlpfb296VmxIMWgxcHRLSk51YVBITU1WNldRQVN2cVZkUGxhTllJYlMxQWU3TzRrUFkzU1QzSzV2ZlN6Wm00a2E2d1BaS3oxZDJhMUJ4T2c?oc=5) |
-| A woman's remains were found in Oregon in 1976. They've been identified 49 years later thanks to DNA - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNOTgxZVk4Qy1jTjRWWG5ldlhZR2FYVU9WTllHRVdXN1VKVGN0UDJab1hMRmR0NU9Pc1FLLURyZU45TXZhT3VFcTlTMW85MmVTYlVnNXFIQW5jSkNnZ09qZ0d5ZFhMX1EzODhpV0ZkQzRDWXRGMXQxRWtycFdnMk1UYXpYWGlJNlpya3Z4TDNHSVdFQ0ktd3ZzWFowbUJJMFhX?oc=5) |
+| A woman vanished in Oregon in 1974. Now, remains found 2 years later have been identified as her, through DNA. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQZV90QnkwQlA1cS1xcjh1STJPS0Q3YnNrUDhvN1hiQWgtcUVhSmFadGNLMWU4MVlRYUFWdkdXZ1FQV3N1MFJ6OXhKX0swdkFmUl9YMjQyd3JORGVqdEE1WEtiUkFxT0ZuOHI4aDdTWFlzUkRkMGVXal9vSkl3d3Q2a2tMN3BFWi1UOTR3Qy1EbkEtUdIBlwFBVV95cUxPZHJvSDhMTDR6UFRvVHhJcjNfQkpFOFBqaVNpV3I0cmd6ZkZlMnB0V2NwZUJqdVZFRWtQdUZpMXdDRzBhZ3BJMGN2dmNXTDJic2ZNOHJnN2pwMzlRS0NxY25oWjNqMEl1Vmc4NWNSV2Rmend6d2FGZlhjUUhqYWptMEx0dm0yLWprUGJTYXRjMlY5bHlycnNn?oc=5) |
 | Mexico and Canada make nice ahead of high-stakes trade talks - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPSWg3eGsyYWNPcVBOMGMxcnJlVXpLODlWSXFLbFQ5R0QyaTl2UG9qb3FPNnB0akppQlFYREVHQW55NnBEOVNIT05LQmN3SVRZS0hRYUN0YV9mRDdNY0VFRG9zWkx1OVM3WTBkLUlUeHZmdTZmbERIbXZjS1k5NDUxcEtXNnVScUQzX2hpbmt4Zl8?oc=5) |
 
 ---
