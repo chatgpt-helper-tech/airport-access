@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 20:25:48（北京时间）**
+🕒 更新时间：**2025年09月19日 20:33:34（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Premier League ticket black market exposed by BBC investigation | [阅读全文](https://www.bbc.com/sport/articles/cwy9dlqxx2ro?at_medium=RSS&at_campaign=rss) |
 | Migrant returned to France after government wins court challenge | [阅读全文](https://www.bbc.com/news/articles/cx273vnkjpmo?at_medium=RSS&at_campaign=rss) |
 | Taliban official dismisses Trump's hope to 'take back' Afghan airbase | [阅读全文](https://www.bbc.com/news/articles/c24rz9jeyjjo?at_medium=RSS&at_campaign=rss) |
-| New Troubles legacy deal 'a day and night improvement' | [阅读全文](https://www.bbc.com/news/articles/ckged550k76o?at_medium=RSS&at_campaign=rss) |
+| Trolls mock me for having fewer viewers, Fortnite streamer Ninja tells BBC | [阅读全文](https://www.bbc.com/news/articles/cvg98zd9q75o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -29,9 +29,9 @@
 | Pennsylvania police shooting: What happened, who are the suspect, victims? - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOdFVVZEk4eXhrYzlCM21YN0dZbE1tSkFHTUVZa2xzdnEzZ3RER3Rveno0WGstU2tIUERDVVFyYXZpVFJvQU01b21uUjdGbzNhOFRPal9SN0tRVXkwS1c3R3FtcHZMUEZ5aWVvb1BHbUFIT3JBMVFUMHFUeElnQ1JGTEF3U0RZaVNDOEJNcFltOFNEMEFnRGJ1SXdQMG5BcEVKSklNNjh0aXpCanpoVkR0ddIBtgFBVV95cUxOV1M3RGoxVGRIVkIxcnRiRFRabXUwc1JscnVwemgwTlBPekpGVDlhdFBvcE1rU3NRMmkyUVhnQWozdkxibTNXQVhrb1liTVpmNEg1eFI5ZjlGVVlta1dqLXJVeTUyNDhYODlEM19rbnZtWHFnZlZUQktPYVJ2ZDBLT1c0UzBiSnh6azZRN1VBSnRHZmM4anEyNldfellsWE14OVFuU20wR1B3SkJBN09UOUdkQzRPdw?oc=5) |
 | FCC chair puts ‘The View’ under the spotlight after Kimmel pressure - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOM201V0dKUGxPVDc3eU0yendoUmtpMjc1RkpxNk52QVhqaEVldFVMZThKTTA4QXltaEltZW5QWFJBcU5rT3Y0SEZLYzNndGtEWWVvZnlXTHc5cENsMm1STUFONWx5dE5fSXpiMzZyZ3lVVG9mT1pyY09pWC16azlJRA?oc=5) |
 | Authorities find remains they think are fugitive Travis Decker, accused of killing his 3 daughters in Washington state, officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQZGIzR0xRMDZ6WDdRLTIxZTdLTWtjRUFpTE1oR2lKdFpiMTRJN2FoMld2ZjdXdnRqZWJEWW9ncmRrYzlmUDhHT0hIV01vUnJ0empNbHBfZ2w4RUp5YkJ5MGhxaTZ2Z0duQ0R6NEpoSkpLa0U2b2t4Q2NEYnJERjRBSjdBNUcwRVoyOERYYVJKVFk4aGh3c0JOUNIBngFBVV95cUxQTjFZa3ZxZzM3R25oRlJmOW91MU01emc1bThWejk2b1RBRlY3V3ZoYnBzREEwRzZtUFY1UWgzWDFpVlo2aUlXcEROVi1uSnMxZGxxdlRzQlhPUXhXbmNPODZ0cGJraEpYelVYaUJKbVk4MXBwZHZ3YmpaQjlTRnplQ1ZpOEQ1czRtcUg1QVRtRldZSHpMNnJsVDBuZVVWUQ?oc=5) |
-| Florida plans to stop school vaccine mandates. These states could follow. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQY1VJR1BJMnRyTjhrLTNVN0JNSFpOTUtVbnFMSVNPR25yVmhmVVdyVjFlWmQybW1fVVY1dlpfb296VmxIMWgxcHRLSk51YVBITU1WNldRQVN2cVZkUGxhTllJYlMxQWU3TzRrUFkzU1QzSzV2ZlN6Wm00a2E2d1BaS3oxZDJhMUJ4T2c?oc=5) |
 | Security will be tight for the Charlie Kirk memorial at State Farm Stadium - Axios | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNMV95bG93N0hUUUlUWUNWaERIanVmVWQ4SzlTNkJLMGZ0R3F0ZVl6SVp0ZFVFVVRFT0dEb3d6US1EcURSTC1vNnM1SGZ4akZvNnk1LXotdzl1bHRLbWNnYUMzZzJLenM4V1N0dVd0M1VTZzA0TlFEZUNsZ1ZmbW5hekVoSEtvamNVYmRfTEJRMVJ4OU1acXJGNFRna2FLc21nTWt3SllzSQ?oc=5) |
-| A woman vanished in Oregon in 1974. Now, remains found 2 years later have been identified as her, through DNA. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQZV90QnkwQlA1cS1xcjh1STJPS0Q3YnNrUDhvN1hiQWgtcUVhSmFadGNLMWU4MVlRYUFWdkdXZ1FQV3N1MFJ6OXhKX0swdkFmUl9YMjQyd3JORGVqdEE1WEtiUkFxT0ZuOHI4aDdTWFlzUkRkMGVXal9vSkl3d3Q2a2tMN3BFWi1UOTR3Qy1EbkEtUdIBlwFBVV95cUxPZHJvSDhMTDR6UFRvVHhJcjNfQkpFOFBqaVNpV3I0cmd6ZkZlMnB0V2NwZUJqdVZFRWtQdUZpMXdDRzBhZ3BJMGN2dmNXTDJic2ZNOHJnN2pwMzlRS0NxY25oWjNqMEl1Vmc4NWNSV2Rmend6d2FGZlhjUUhqYWptMEx0dm0yLWprUGJTYXRjMlY5bHlycnNn?oc=5) |
+| Florida plans to stop school vaccine mandates. These states could follow. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQY1VJR1BJMnRyTjhrLTNVN0JNSFpOTUtVbnFMSVNPR25yVmhmVVdyVjFlWmQybW1fVVY1dlpfb296VmxIMWgxcHRLSk51YVBITU1WNldRQVN2cVZkUGxhTllJYlMxQWU3TzRrUFkzU1QzSzV2ZlN6Wm00a2E2d1BaS3oxZDJhMUJ4T2c?oc=5) |
+| A woman's remains were found in Oregon in 1976. They've been identified 49 years later thanks to DNA - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNOTgxZVk4Qy1jTjRWWG5ldlhZR2FYVU9WTllHRVdXN1VKVGN0UDJab1hMRmR0NU9Pc1FLLURyZU45TXZhT3VFcTlTMW85MmVTYlVnNXFIQW5jSkNnZ09qZ0d5ZFhMX1EzODhpV0ZkQzRDWXRGMXQxRWtycFdnMk1UYXpYWGlJNlpya3Z4TDNHSVdFQ0ktd3ZzWFowbUJJMFhX?oc=5) |
 | Mexico and Canada make nice ahead of high-stakes trade talks - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPSWg3eGsyYWNPcVBOMGMxcnJlVXpLODlWSXFLbFQ5R0QyaTl2UG9qb3FPNnB0akppQlFYREVHQW55NnBEOVNIT05LQmN3SVRZS0hRYUN0YV9mRDdNY0VFRG9zWkx1OVM3WTBkLUlUeHZmdTZmbERIbXZjS1k5NDUxcEtXNnVScUQzX2hpbmt4Zl8?oc=5) |
 
 ---
