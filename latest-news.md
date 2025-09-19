@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 03:17:15（北京时间）**
+🕒 更新时间：**2025年09月20日 03:24:21（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump poised to fire US attorney for resisting effort to charge NY AG Letitia James: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNYjFUR0ZpakhnRHFmcF9RX0p6YWFGQlQtMWR0UXpUeVNXUE02SUtrVXZFbVBiaTJET092Rnp3Z3JsM2kyQ2M2REN3bHdDVnN5Nkl3Tm4xNXZpU1BFRkE5VVRQUC14U3l5OEU5WGstSHNrS2YxdGdDN29SaEtJaXZ2d3B3M2ZkLTBDRWJvZTZ6dndxT2xLR2dlOE9MVm5yUjDSAaQBQVVfeXFMUG9NdzFNdlhNQTg1VVk2b2JOSmxyOXIwdjJVRVo5dHVvTDk1V3N5dGhONGxIdElJSWhBQm9XM1R1bUVCNm9VMnZpbWttc0tNaV9DLXcwekJMMVNjZFhRSlZKdUVKaGpfLWJNLWowOGhOYVpoTmlOeFJtWnNqTkU4Wldhc1JXVnNHOVpudWxLWThCY29Ra2pFa2tzZmhaU3c2Y3BFRks?oc=5) |
 | Texas A&M University president resigns after ‘gender ideology’ controversy - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNMnUtTUZ4UDA2MVJXX0lNa1d1S19KaVhLaGpsVEhISWJjc1RmLXJSbng1MDc5aU5oRlY5Vjl1Y0xBRkxqUmpPcE9VWWtlVGEzMUl1bmVLcEt6Y1RKSnpEN0JEV1lqTnZhdGNsbWxPTzRpUEoyUWYxYTZPeFpOUURhNzlFa1d3Z1hUR1BNMm9B?oc=5) |
 | Officials find remains they believe are Travis Decker, wanted in killings of 3 daughters - KSL.com | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxNMkdhWjZObVhadDVSekQ4T2lObVc4M3l2dEMxeE1DODl4YnFNT3RkY2JMMzZaOHJsaXdpdmRaTml4eGs1VU84RkwtQ1RZWU9NUXBGSDM3TnREY3FqdnBaTHdrTmxCWHlzcXBvN09kQWU5Z0dzUXIwazA4MUEwNWRBcTQ0NWY2N1djWTAtQlVodENOSkFEWnRZWnYtVkhIZmIxV3FqQWJCTm5DaVYwWnFlMVhCZnYyaDQ1ZU5lMkQ1cW8xZw?oc=5) |
-| Dems slam Acosta for showing ‘no remorse’ for Epstein plea deal he helped broker - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPT0ptOVJFYjhmdDkxREpDam1QeW5Md3BBdGZEUDJUR1Z6cUJHcS1EYnZfU0NXWGhyRnFoZXRpV0phX3ZqanlJWGQza21zbVk2OHpLME56Tm1ZTWUtWlQ1Vll6UGRuMDFlMGNPMEFNZ0diNnFqY0NDcnZWQ2x1cDFTZmtUWGtXaTdVZEdOalU2R0FfbzN0cXdN?oc=5) |
-| House, Senate pass 'National Day of Remembrance for Charlie Kirk' ahead of memorial service - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNVFplUEtvVHpZa2FVVGV0Nko4ZzhJcTkwT3l2TFNJa1NNOE1rSmxmYXhIWlE5MVMyYTdTUUI2UXlRS090Q2VMY0cxeXF1dXVNalBxa2FKNE5lSnVnNF9KNV96ZVV0dUJvVF9DVnJUcnNEX2ZKc29Zbk1ubEp2NEhadmwySDZ6cF92NTNCdGk4Ry1qN1lYQngwZFdlQ1rSAaIBQVVfeXFMTWgtZ2NaZFB5aXVmbGFmUHBPSkZ4Y0gzYWlWWGNPYTh6eUlLMkIzcWFkdUNGc0VoMFFOY3FVNWxPSjIzZFpWUXVrQ2ZfTXFNc05ZZVBhV19yeG5lN2RxWUU4eUlkbGtvYzR6NDVDNVFNbFpQVzBOLXBERjdpMUVnbFlHZFFmVkE0bnJKU0hhRmx4YzV2elFaV0ZoWGhjOFp6VlBB?oc=5) |
+| Congressional Black Caucus says resolution honoring Charlie Kirk ‘not about healing’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNYUVpOERySGd6dTBmSmVtUjYzS2YwSUdpa0lOa2hRUWQ0TUdZU1BVVnhxR2VDNlZ5Nk5DcnMwOElZYWIyUUhRTFlpLThjcEw1TGdZdlY2VmRCTjJTMUtkX2paUkVkSUZ3ZjRzQnJ3VW1JdE1VRU9ETkxjbUw5T0JhTkNkWTA0ZlU3bXNDV0xQSTB3Y2xmbzg1Z0VPSGFZOFNRdmxhWWNJQ1A1QklFdUNmUjBiZDVuZmNN?oc=5) |
+| Federal Agents Tear Gas, Detain Protesters Outside Broadview ICE Facility - Block Club Chicago | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQazVaOUZHdXFONkJXWFY5Y1FIYXVDdnVzT3I0elltMUlnN0k4QXJpd0RXNlk0clBpMHpxMXlfcHZ0a3I3c21jOVBjQkQ3dFhtVFJKWHpGZ1l1dnhxOHlhRXpmZHN1VnNSaHZ0Nzh0T1I0UUcxUE9MVDdyWDFBaEZ2VVVzTUlDZ2ZoTVhHVDNVU2trVkctVmczdHV1ZnpHLUl3dk81bA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
