@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 02:48:44（北京时间）**
+🕒 更新时间：**2025年09月20日 02:57:09（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Judge Dismisses Trump’s $15 Billion Lawsuit Against The New York Times - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOWDZKd29FM1liR2Q4Nnd3UDZxczM3X1NRTWxZbXBVUWVhdzBoZ3g4anNUUzRFQ0FNOFEyQ3ZRU2VYY2VRV2pNeXdsQU9OaEhidzVLekEtZk9OWHl5M1Rnc3ZibG1vUGxYb1FqT1I1c3I1ZWNjNkNkU3ZmTHFhRk93MnZhYUkxY0ZYdjg4?oc=5) |
-| 'Dangerous as hell': Cruz blasts FCC's Jimmy Kimmel takedown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPTWI4aFktaHNGUjY0NFpSLUgzWTFSUjlLMk9PcHBaWWVEMGhqd1AzUGp5X0dpTGtWYzNNbDY3WmFIN1RmWl9FWGNPV2prNFdYYTQ1SWZMNmNCTzU4TlFFQ25WeDcwN3d4U09vTGhGcjludktnZks3MnpuWkcyZkNkTHoyVDBOQVV2QmZHMmhSSGhhNDJNc0l1dXRRcGtIVUV2TEtLUEVRSDJOaVlVeUVVdE5kdko?oc=5) |
+| Trump’s media enforcer is relishing his Jimmy Kimmel moment - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPcmZlMXJvTWhzMUN3UVdxVEdWZldwRE1ialZQX2RSeGlKSlB2SVg2SlJ6ZXFIaWc0dUVic2RxQUVMUW9rY19RZ28tY0k4RmJTSXNaNW10aEVNdUtQTENWN2M3UXZ5WW5FVnNicXY5TmgxRlc0V2RzMk5hNFZBTlVfaVBJQzZ2MDRNWURLMEp3TzFqNm8xb2txVUY3c3FBUHJuRVIyazRmbDFOYm9LdmdZ?oc=5) |
 | Senate rejects both parties' bills to avoid a shutdown, leaving next steps uncertain - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOYUR5elFSbXI2U2hBa0tXdlh6ZnhWbG1pN0RTREhHaTJJVnNROGhoNmRGLVpQWTNPdjg5aWFRZ2xhZmF1eGVFcXFadUowRFZmU1EyYmNBY0lRYVVPTXRnVnpVTkV5Wk9rNkI0dHBkblFaNGNBWWRCbkZsS2hZcEFBZWdJQ09YM0lUNkNfZ04ycGI4Q3ZBZ2xkLTVOWHlPbFFhMmJ3UXdVVm9UVm5yQjBv0gFWQVVfeXFMTUtJSDZoX2twdmduVFAtRWIyNkF3YU9yTklhX1FwOFRrWlhxZ1BiYnBBRHVVWHpmRFpkQjA4eHBqMDBBVXRReHZxMGwtbGttZkRFdFJOZ2c?oc=5) |
 | Trump and Xi make progress on TikTok deal, plan to meet in South Korea - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQX05Cb2FmSGlFZHVpNGljUUVpT1lTbURiTS1xNzJNNUFwS2ZpWFE2WDA5S1FpdEV2MFlialBYVVJzVXUzVXdnVzNhM1d5YXVmVVlEWl9lX1hmQ1ZsRm1KVWVpZlRlVWZ3ZFZ3VDdSczcwZF8tNjdXaEVub01Bb21kdjgwbzJjcE5nbDViM0hTSTZCVjVxZl9najZsdTU?oc=5) |
 | Nato intercepts Russian warplanes violating Estonian airspace - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9leFZ2YUo5djdncU5WVDgxSm5UNUlLcHZvX0pxUkRGaFNHcUZqWGZkRmxQcEZZd0hCcl9qR1M3NnJVc3REd0RIakRVWEM5SXdTLTZBNFlvX3RNdw?oc=5) |
