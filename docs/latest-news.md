@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 16:48:54（北京时间）**
+🕒 更新时间：**2025年09月19日 16:56:19（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Minister rejects Trump's call for military to tackle illegal migration | [阅读全文](https://www.bbc.com/news/articles/c04qre9l0v3o?at_medium=RSS&at_campaign=rss) |
+| Minister rejects Trump's call for military to tackle illegal migration in UK | [阅读全文](https://www.bbc.com/news/articles/c04qre9l0v3o?at_medium=RSS&at_campaign=rss) |
 | Migrant returned to France after government wins court challenge | [阅读全文](https://www.bbc.com/news/articles/cx273vnkjpmo?at_medium=RSS&at_campaign=rss) |
 | Trump says TV networks opposed to him should 'maybe' lose licence, after Jimmy Kimmel suspension | [阅读全文](https://www.bbc.com/news/articles/cr4qe0rz2zvo?at_medium=RSS&at_campaign=rss) |
 | US blocks UN call for Gaza ceasefire for sixth time | [阅读全文](https://www.bbc.com/news/articles/ce3yj41083no?at_medium=RSS&at_campaign=rss) |
