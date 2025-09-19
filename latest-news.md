@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 23:09:21（北京时间）**
+🕒 更新时间：**2025年09月19日 23:16:40（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | Amy Hunt claims GB's second medal at World Athletics with brilliant 200m silver | [阅读全文](https://www.bbc.com/sport/athletics/articles/c701x1wn5rno?at_medium=RSS&at_campaign=rss) |
 | Why France is at risk of becoming the new sick man of Europe | [阅读全文](https://www.bbc.com/news/articles/cvg9n6vr2eyo?at_medium=RSS&at_campaign=rss) |
 | Taliban official dismisses Trump's hope to 'take back' Afghan airbase | [阅读全文](https://www.bbc.com/news/articles/c24rz9jeyjjo?at_medium=RSS&at_campaign=rss) |
+| Scottish government minister Jamie Hepburn resigns after assault claim | [阅读全文](https://www.bbc.com/news/articles/ceq2y0npj32o?at_medium=RSS&at_campaign=rss) |
 | US blocks UN call for Gaza ceasefire for sixth time | [阅读全文](https://www.bbc.com/news/articles/ce3yj41083no?at_medium=RSS&at_campaign=rss) |
-| Migrant returned to France after government wins court challenge | [阅读全文](https://www.bbc.com/news/articles/cx273vnkjpmo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,7 +31,7 @@
 | A Domestic Violence Case in Rural Pennsylvania Ended in a Deadly Ambush - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPQkN1UWx4YzlOaHBxNmtNeUtHTTRDYVJ5UzFycXRkVnNicHZwNUYxVXhGUndraVljUUlPdmdFZkN5N2lLQ0RtUW9XR0ZTMzEtOGtjdHVSa09yMEtXQXMyakJ6TlowVE5kM3FpaTFPRE9VS2pGazA5enRpRW1DdkUwZElLMHlkQQ?oc=5) |
 | Hungary, following Trump, will designate antifa a terrorist organization, Orbán says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQSkhVSmJiZkk5RVVrcW5pREtXZ0ltcnFocktuTmFCUWdPdS0zYTdqMWFtc2VGWUdaSlVDOERNQjZ2ZXJLcHltR2diM1o0bm1DZzg4bzcxX3RQc3ZKSU8yZUo0a2t2UElIQWRndnFSRURBWFBSbFQyMmVlOEJTQ2Y1encwUGZEYTRtV2lJRU8tMkNybklLSi1CdlpCR2JyNGRZZzNQa1dCRUdDZHpZcmc?oc=5) |
 | Florida plans to stop school vaccine mandates. These states could follow. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQY1VJR1BJMnRyTjhrLTNVN0JNSFpOTUtVbnFMSVNPR25yVmhmVVdyVjFlWmQybW1fVVY1dlpfb296VmxIMWgxcHRLSk51YVBITU1WNldRQVN2cVZkUGxhTllJYlMxQWU3TzRrUFkzU1QzSzV2ZlN6Wm00a2E2d1BaS3oxZDJhMUJ4T2c?oc=5) |
-| Senate passes "National Day of Remembrance for Charlie Kirk" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxORl8tSWZCUDhCNHlTZHJEbHBadWNsN1kyb1AzVFY4aUp4RmpDX29UMlVjSDdMSGhlWWZoTE9yZjR2VmJWazBlTF95VHE3S2NMT2V0eUdERktwQWxtMldWeV9EQVJJNFM3amlMRTBCZXA0dmZ3R0M5Z0dtOWFlVkxSYk5sQQ?oc=5) |
+| House passes measure honoring Charlie Kirk as "courageous American patriot" in bipartisan vote - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOY2h2TXJQdG1SZzhSOXN1UVRmVXFLZlNzeVZiWDBSS1ZIYXhCeG8ybW44WURtQWpDRU83X1o5SVRFY2F2UVFnSWx6TXB6aC1YZ1J3Ylc4b0ttcHl2OTFaX1pqcXAyY0pXWk1kNlZhZVB0cUdOMm83QUVqTmJvQnl2a1lBZWM?oc=5) |
 | There's a new, longer U.S. citizenship test with more history questions; here's a quiz with some of them. - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQSFc5TEFoTHFpRFhJU19fbEtjVUhKRlhvU3IwN01fYXRicU5tX2ZFckdNYjA0Qm9Mc2M0Z0kzc1NxQ3VSTE1GUGlpaWJENW03SHRfTmNNdGV0Ujc4NXpaNWI3T2wwZnZlcS15SFJCMmNJVkZQcXlyOEtvU2pUNDhWMllNMmlsNTNiSmNObTNoMFhVY2pURVFIVGpR0gFWQVVfeXFMTjlVYWxOc2psOGRLSllLSms5bjZjZGVXdTg3Q1RrQUJ3ZFZlVXFTYkVfUlFmdDY3QUVkdnhoSmF4ZEp6MkM1Z2xhYWlXYl9GdXdESzlKMkE?oc=5) |
 
 ---
