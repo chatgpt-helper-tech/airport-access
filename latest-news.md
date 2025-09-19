@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 03:40:49（北京时间）**
+🕒 更新时间：**2025年09月20日 03:48:59（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Nato intercepts Russian warplanes violating Estonian airspace - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9leFZ2YUo5djdncU5WVDgxSm5UNUlLcHZvX0pxUkRGaFNHcUZqWGZkRmxQcEZZd0hCcl9qR1M3NnJVc3REd0RIakRVWEM5SXdTLTZBNFlvX3RNdw?oc=5) |
 | Texas A&M University president resigns after ‘gender ideology’ controversy - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNMnUtTUZ4UDA2MVJXX0lNa1d1S19KaVhLaGpsVEhISWJjc1RmLXJSbng1MDc5aU5oRlY5Vjl1Y0xBRkxqUmpPcE9VWWtlVGEzMUl1bmVLcEt6Y1RKSnpEN0JEV1lqTnZhdGNsbWxPTzRpUEoyUWYxYTZPeFpOUURhNzlFa1d3Z1hUR1BNMm9B?oc=5) |
 | Officials find remains they believe are Travis Decker, wanted in killings of 3 daughters - KSL.com | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxNMkdhWjZObVhadDVSekQ4T2lObVc4M3l2dEMxeE1DODl4YnFNT3RkY2JMMzZaOHJsaXdpdmRaTml4eGs1VU84RkwtQ1RZWU9NUXBGSDM3TnREY3FqdnBaTHdrTmxCWHlzcXBvN09kQWU5Z0dzUXIwazA4MUEwNWRBcTQ0NWY2N1djWTAtQlVodENOSkFEWnRZWnYtVkhIZmIxV3FqQWJCTm5DaVYwWnFlMVhCZnYyaDQ1ZU5lMkQ1cW8xZw?oc=5) |
-| Dems slam Acosta for showing ‘no remorse’ for Epstein plea deal he helped broker - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPT0ptOVJFYjhmdDkxREpDam1QeW5Md3BBdGZEUDJUR1Z6cUJHcS1EYnZfU0NXWGhyRnFoZXRpV0phX3ZqanlJWGQza21zbVk2OHpLME56Tm1ZTWUtWlQ1Vll6UGRuMDFlMGNPMEFNZ0diNnFqY0NDcnZWQ2x1cDFTZmtUWGtXaTdVZEdOalU2R0FfbzN0cXdN?oc=5) |
-| House, Senate pass 'National Day of Remembrance for Charlie Kirk' ahead of memorial service - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNVFplUEtvVHpZa2FVVGV0Nko4ZzhJcTkwT3l2TFNJa1NNOE1rSmxmYXhIWlE5MVMyYTdTUUI2UXlRS090Q2VMY0cxeXF1dXVNalBxa2FKNE5lSnVnNF9KNV96ZVV0dUJvVF9DVnJUcnNEX2ZKc29Zbk1ubEp2NEhadmwySDZ6cF92NTNCdGk4Ry1qN1lYQngwZFdlQ1rSAaIBQVVfeXFMTWgtZ2NaZFB5aXVmbGFmUHBPSkZ4Y0gzYWlWWGNPYTh6eUlLMkIzcWFkdUNGc0VoMFFOY3FVNWxPSjIzZFpWUXVrQ2ZfTXFNc05ZZVBhV19yeG5lN2RxWUU4eUlkbGtvYzR6NDVDNVFNbFpQVzBOLXBERjdpMUVnbFlHZFFmVkE0bnJKU0hhRmx4YzV2elFaV0ZoWGhjOFp6VlBB?oc=5) |
+| Democrats round on Kamala Harris for dishing dirt in campaign memoir - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBydE02N1JDWDVMZTBNZUV0a1BBbjFmSEVSczJSalJ4RXdjME9zcjB0OUtlRTR3WE5UVDVzcmVxcE93NW1mTTlybXM5eXphUnpGa0xCcTBUWjgxQVhXVk95RnUwbER3b1hBSUNBdkVQdmg?oc=5) |
+| Congressional Black Caucus says resolution honoring Charlie Kirk ‘not about healing’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNYUVpOERySGd6dTBmSmVtUjYzS2YwSUdpa0lOa2hRUWQ0TUdZU1BVVnhxR2VDNlZ5Nk5DcnMwOElZYWIyUUhRTFlpLThjcEw1TGdZdlY2VmRCTjJTMUtkX2paUkVkSUZ3ZjRzQnJ3VW1JdE1VRU9ETkxjbUw5T0JhTkNkWTA0ZlU3bXNDV0xQSTB3Y2xmbzg1Z0VPSGFZOFNRdmxhWWNJQ1A1QklFdUNmUjBiZDVuZmNN?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
