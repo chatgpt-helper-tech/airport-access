@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 04:40:15（北京时间）**
+🕒 更新时间：**2025年09月20日 04:48:52（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump and Xi to meet in South Korea as US president hails TikTok deal - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5GZkl2TWIzMHA1cnVsNWE1bW5Ha290eUJtNzVWRWdyRHdxQy1iOGRIUTdFdzliUTlIb0d4eEo1aEJocEs1OUx4Zm9jRUZzSXM5X3lXamRIUk92SmRmcEVkVVc5Qll4azh0V0YxSUkzWFQ?oc=5) |
 | Trump administration to add $100,000 fee for H-1B visas - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9jejdTSXBlMkdiMnVaeHI0TzJvQjN1VWZXUDhkQnJ2R0dMTElPMFVWcHVyLUoyMXpuaUNnREU0WWpwQUM1TlFlS0ZaVTFnVHBFV0dsTlJYRHZmUXp3dUVBVXUzempNTWsyWjNVQ9IBckFVX3lxTE1QSF9sZkFUN0tteXVxbmhFbHljeFlBUU8tVThsMHotVDJ5OWZWMTNTRE9HSUJDaWw3OTFuS0NuSzB4N2Q2NWdYYnFlZWNLWnVMMEdPR1hOTDd2aXhqRFlwZG5Oa0E1TWM1MG9JcmZ5YlZQQQ?oc=5) |
 | Estonia says Russian jets breach airspace in 'brazen' incursion - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNSUNvT3lIYXJTakZYRzRhRFIwN2lyaHo2ejhWcE16aGxZaU9tdHN4bE80dGJNSlZST0V5eXRiQW52ZGJxUldkb0lIbjVYZGZLanI2a2Y4eFpPaDZMa2ZxOGpqQUk0MmJ3VzRWTWF4UENtY180RGhNd3BuNW9YTk5JaktkSFNUS2R4WXBDTUY5bElMdDVaeDhteFFvd0VPWkV0N3R4T2pSZlhiOTU3ZGZ3YUVlV0xmQnNyc21kaTQwclpyamotU2lF?oc=5) |
+| Texas A&M president resigns after instructor’s firing over gender teachings - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQRFV5ZXdfUmF5RWlVVlZCODRrZWl1RFNFS0g1WmZiaEpFUkZrZUVkUjdlRGxYX0hwSHRjVVdOM3hHaE51RkhJNjg5dk01dWRlNW1YSFFoZjh2NURVZmdfNjlTYmFESV92d3VsX0NYNEY5c1pDWlowczBlU0pWNHFFS0pNeUdSOTMtX0phbk9IS21kSzV1Vkhj?oc=5) |
 | Trump Officials Question Harvard’s Stability, Saying Federal Inquiries Raise Financial Risk - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPRlJJdVhmTm9feEdQaHd2d01vRmJIOTZZUTM2N2pPVDB0czdEcVpjUUpkT0p2S2xscDlVZ1pLSWp5eFJyOXoyQ3htSFFsdzBRVmstY0l3elJtOUlxUHNtZWJLcGNwTDA1X3VPU2JEY2VUR0hVaVhKeUZITXBUdXBVUDFGZ2dKc0k?oc=5) |
-| Trump intends to fire US attorney who didn’t charge political enemy Letitia James with mortgage fraud - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOSFRnVFYybFU3ZVhVR2t0QmY0TFR1M25hdFoxX2hvOXFWWEVDaU1uQTRzek5IaHpvUTZSU29DcktZT0Jld2pYcmJvMzZENTBINHduc0lpSFNqV0tiZXhDd0prTjNMaDJRaXdYUkFUTTE2eUdFRzZGSm9SWWtTd0RoRld3?oc=5) |
-| From Biden to Buttigieg: All the Democrats Kamala Harris slams in her new memoir - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPVWwyQTVCVUROcl95a3VRblZLWnUzaUJva1k2cWFwY2k4WDN0UGRGcGFNRUFDclk3MHRzcGprV3hMZEt3YXJyZDFkc2N2SEdkSVpqdmNDTTBCb2t6TWJ5X2s1V0w3LXljaFM0THlNUmkyY3h4UzdQSWc1T1AxalV4TndtU05Rd0MwNXQyNWNBUVFVN2pu?oc=5) |
 | House, Senate pass 'National Day of Remembrance for Charlie Kirk' ahead of memorial service - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNVFplUEtvVHpZa2FVVGV0Nko4ZzhJcTkwT3l2TFNJa1NNOE1rSmxmYXhIWlE5MVMyYTdTUUI2UXlRS090Q2VMY0cxeXF1dXVNalBxa2FKNE5lSnVnNF9KNV96ZVV0dUJvVF9DVnJUcnNEX2ZKc29Zbk1ubEp2NEhadmwySDZ6cF92NTNCdGk4Ry1qN1lYQngwZFdlQ1rSAaIBQVVfeXFMTWgtZ2NaZFB5aXVmbGFmUHBPSkZ4Y0gzYWlWWGNPYTh6eUlLMkIzcWFkdUNGc0VoMFFOY3FVNWxPSjIzZFpWUXVrQ2ZfTXFNc05ZZVBhV19yeG5lN2RxWUU4eUlkbGtvYzR6NDVDNVFNbFpQVzBOLXBERjdpMUVnbFlHZFFmVkE0bnJKU0hhRmx4YzV2elFaV0ZoWGhjOFp6VlBB?oc=5) |
+| Trump intends to fire US attorney who didn’t charge political enemy Letitia James with mortgage fraud - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOSFRnVFYybFU3ZVhVR2t0QmY0TFR1M25hdFoxX2hvOXFWWEVDaU1uQTRzek5IaHpvUTZSU29DcktZT0Jld2pYcmJvMzZENTBINHduc0lpSFNqV0tiZXhDd0prTjNMaDJRaXdYUkFUTTE2eUdFRzZGSm9SWWtTd0RoRld3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
