@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 01:56:36（北京时间）**
+🕒 更新时间：**2025年09月20日 02:00:32（北京时间）**
 
 ---
 
@@ -27,8 +27,8 @@
 | Why Congress' Democrats are going all out to fight and investigate Jimmy Kimmel's suspension - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOdGZjSTNia0VzeWE0VEtySVJ2Ry1YMlhseTdWbENyM2xKd3MwMkYxYmNGTkR3VU1ub1I2ZGNvbFpWVDRjYkpGU2VaVWpPaHpiWGYyaHpWN19KVkZDeFk3d1Q0NmNURjhYNDFBSTUtTFdULVNFODFMNUJXeDFsY3c1YXJ4enNVYTlfOHc?oc=5) |
 | Trump and Xi to meet as long-awaited TikTok deal approved - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1Kb1ZiZWljcnpkNWZmVkVSYTk2RVd5MDZNT1pCM3ZSb0NDdl9Jd3pES1hadHc2bDIxRjVLV3FfZTdwRUtGTnZPdEZjNlVFRW5WY1BMYWdWOENMZ9IBX0FVX3lxTE9hZlo2UHFNR1VjTGFTblo2NTVwR0N1eGk2OHhJVG1TZ3JleHI2ZnlXM2RJYlM3RGhqZTUydGtzcjRxU2VEYVlkX1B1aXBkcXB4OThSTjBqR21PVGxJQWRv?oc=5) |
 | Trump’s media enforcer is relishing his Jimmy Kimmel moment - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPcmZlMXJvTWhzMUN3UVdxVEdWZldwRE1ialZQX2RSeGlKSlB2SVg2SlJ6ZXFIaWc0dUVic2RxQUVMUW9rY19RZ28tY0k4RmJTSXNaNW10aEVNdUtQTENWN2M3UXZ5WW5FVnNicXY5TmgxRlc0V2RzMk5hNFZBTlVfaVBJQzZ2MDRNWURLMEp3TzFqNm8xb2txVUY3c3FBUHJuRVIyazRmbDFOYm9LdmdZ?oc=5) |
-| House approves Charlie Kirk resolution on bipartisan vote - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOaXFxRW5UaDRHSVJmbmVLR2VHajRaU3F3S04yWTloY1NNeXVXN2pVSjRsWkxLNGlmcTdkWndpSy1SaWdiSzZMcmh0NXJHVUpBc1dIc3Brd011aU1kMW90cTdjbGNTT1J4UndSZUZYT09rUGZrdW1ZdzhPRS14SXV2YTBjUG9tWWFkMmVhNUdlZzk0dFVhV182NXBxZWVWQQ?oc=5) |
 | U.S. Senate rejects bill to avert gov't shutdown - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOc1cwaU5YMnJkakJheTNTQUh2MmFUcmF1elpUTml2aklqYzZ0SVB4Y1VvVlQtUmxFc202YVJyM01oV1gxMzRCMGZINno4eG1WMWU3X1NBSUxDODZyNm5KVWtLLWZwMlY1WDZYZmF2elVmRXVaN19sVnpsdDFBYmxGMlRZbVFUMndFT3BhMEhZVlpDRFJINWVMVHNhYzd2QzZjaUdMUGl2UjF0X2tLSXhwclBCdnBscGM?oc=5) |
+| House approves Charlie Kirk resolution on bipartisan vote - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOaXFxRW5UaDRHSVJmbmVLR2VHajRaU3F3S04yWTloY1NNeXVXN2pVSjRsWkxLNGlmcTdkWndpSy1SaWdiSzZMcmh0NXJHVUpBc1dIc3Brd011aU1kMW90cTdjbGNTT1J4UndSZUZYT09rUGZrdW1ZdzhPRS14SXV2YTBjUG9tWWFkMmVhNUdlZzk0dFVhV182NXBxZWVWQQ?oc=5) |
 | Texas A&M University president resigns after ‘gender ideology’ controversy - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNMnUtTUZ4UDA2MVJXX0lNa1d1S19KaVhLaGpsVEhISWJjc1RmLXJSbng1MDc5aU5oRlY5Vjl1Y0xBRkxqUmpPcE9VWWtlVGEzMUl1bmVLcEt6Y1RKSnpEN0JEV1lqTnZhdGNsbWxPTzRpUEoyUWYxYTZPeFpOUURhNzlFa1d3Z1hUR1BNMm9B?oc=5) |
 | Officials find remains they believe are Travis Decker, wanted in killings of 3 daughters - KSL.com | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxNMkdhWjZObVhadDVSekQ4T2lObVc4M3l2dEMxeE1DODl4YnFNT3RkY2JMMzZaOHJsaXdpdmRaTml4eGs1VU84RkwtQ1RZWU9NUXBGSDM3TnREY3FqdnBaTHdrTmxCWHlzcXBvN09kQWU5Z0dzUXIwazA4MUEwNWRBcTQ0NWY2N1djWTAtQlVodENOSkFEWnRZWnYtVkhIZmIxV3FqQWJCTm5DaVYwWnFlMVhCZnYyaDQ1ZU5lMkQ1cW8xZw?oc=5) |
 | Weighted vest women are the 2026 swing voters - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNRkV6RkpTaEltRVFrX3pULTJVSFk2bUcya0RtQkhZNTF5eE1ocnRKeFYxVE9ha2d2blkxZ0xtcEFwWUdkOEZDWC1zSm1FV2JGVVIwZXlhbklfdXc0VDZXMjBTd0FWSFpuanp1UUhfUlJrTmgxRlJPVDNWWW40ZmRMbUJfSHk1aUYzaVAydUg5TTFrTnczMUZqVFVDZw?oc=5) |
