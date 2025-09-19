@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月19日 14:40:48（北京时间）**
+🕒 更新时间：**2025年09月19日 14:49:21（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | Why France is at risk of becoming the new sick man of Europe | [阅读全文](https://www.bbc.com/news/articles/cvg9n6vr2eyo?at_medium=RSS&at_campaign=rss) |
 | Spectacular autumn leaves expected after warm UK summer | [阅读全文](https://www.bbc.com/weather/articles/c5yvd830p37o?at_medium=RSS&at_campaign=rss) |
 | MI6 launches dark web portal to attract spies in Russia | [阅读全文](https://www.bbc.com/news/articles/c0r0vk1j4j8o?at_medium=RSS&at_campaign=rss) |
-| Government borrowing higher than expected in August | [阅读全文](https://www.bbc.com/news/articles/cly9m4lqznro?at_medium=RSS&at_campaign=rss) |
 | Trump says he didn't want London Mayor Sadiq Khan at state banquet | [阅读全文](https://www.bbc.com/news/articles/cwyl01x9pllo?at_medium=RSS&at_campaign=rss) |
+| Highest government borrowing in August for five years | [阅读全文](https://www.bbc.com/news/articles/cly9m4lqznro?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -29,10 +29,10 @@
 | Shooter who killed 3 Pa. officers was accused of stalking ex, officials say - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPN3NpNzJrTFFlMkhWYkhnZWlrVnVUai1IU0JIcDVGQXZ4a3ZnUTZZbHpJUlVqRWxBNVBkTjNGVE9jNW5qWmVCdUJiODFnci1sWUItWjh3c3dfeDJfTVE2bi1TQjZ0dW45Vkt1MldSS1pwTTFVRTdTZXRwaFdtbmFiaEJwM1VLMDBQV3RsVTQ0RmtWcTg?oc=5) |
 | Chris Mason: Delight and relief in government after Trump state visit - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1sd05lYldpSjZyczVwbzJzSGFkNEtQYnphaF9JT0tJWFk2TWVKbUE4UHR5bHF5VUtWdXhLMW1EdDlsaEtlZ25fZG9qQ0E2dDlVVFRaUXZpT19mQdIBX0FVX3lxTFBYX09SNmoxVVp3ejBwSEFwRmhyQjIwcmJKU1Vzbzctc1FUTVBHNUU4Q29Oa1lQX0s3b19nd0M0QWFZLWIxZG9NeHNTcmN5UkYtbWhFbEVYUElmOHhvalYw?oc=5) |
 | Can Trump Actually Designate Antifa a Terrorist Group? Here Are the Facts. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOQzNWTUFnQ21MU3BHb0RPYlF3SXJ5ZFFyUzdWcWVORG9mYjljOGQyQ0JnbkJuRnlNX19JM3FMVE1QeU9hdlp5WnlZVVRMZXRQTUJoX1lrcWViWXdsTm81VmNhTEx4Q2duN2RaVW9xTFRrZEVrNTc2ZldHV1g1Snl6T25iUzdSMUE?oc=5) |
-| Texas A&M president resigning following backlash over video of gender identity discussion in classroom - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQUXdVOTlGM3hOa2tQMzkzSVI4aHIxaTFmVV9XdElQSlR3Tk1wNUdRdWZBb3BrTnZ5a1hQX01odnNySnJhV3UyTXJJNm1NMDdJTXNfY1RXMUJfcTNiLVZ2aVhFakhreWdvelJBRnBuR3RWU29oTnd3R0RWQjdnbVlNQzZ6STB0U3l0MHhNd0QxY19uNTM4WUlB?oc=5) |
+| 'Tonight, we are all Jimmy Kimmel,' Stephen Colbert says, calling Trump an 'autocrat' - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOdTh3MVU1SERobl80dnJrRTZacXhkZ0lmMkpaWFVKZ0hNWWFaYXFWUktvbUQySm9vT050TG5nNnNZQXFJaGlaUWZldFZPaXhJcTd3dXRoUHRjWlFVaDk5cmQ2YVZ0QUFDYllkdzRycWNkWWtHS0pQcDZWOVZBanVnUUZDZlnSAYoBQVVfeXFMTm1ZN1g4OUh0NmlwZ0NXR29ZdkJ6cVJtWnc0S1pWVnR4QmdLaWpjUXZCUDV4OU1jaFIzb1hIRlMzSWRySXphdk96Sy1ZYnpPSy1Qc3E2cHFsLWFMVXZmUExiaHlocm5nYzlYZlVRQ3Z5UU5TUGZFbHppaDdEY2U1SUZuQUlMcDJKeUJ3?oc=5) |
 | Threatened by Trump, Canada tries to make up, team up with Mexico - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQMGZkLXI5bUtIZ3RNWDNnV1RjMUlwSGhKaGRvd3RqWVg5NnlvRnc4Nm5nWGpXRG1aZk5aSEc5VmdBOEhxZkdwMkhOSU12Tnk2NmFSdFhmNEFtUnZPbUFzUUxOQU5YWGx1dmJBVXVfemxyOElQbEpNQ1RXNXNRbDFXQjd6eEV5SmFET1ZTVTI4X0FsaTN0YVE?oc=5) |
-| Judge Blocks Administration From Immediately Removing Guatemalan Children - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOczBHWEpoaG0xaENLT0RZYmxZLVlCMmlWZnVYUzB6ZzlURjNfWFNnSkxOYURHbUNfUEItRnZyVFJWOE5KX0Q2S2FwLU1lWUZRRHl4S1FKWUthcHUyZm82VnJqU2hOUGdnSkZkNFFndTQ3RDBVVFVjQzNqTnFldDNCNHZEdFp4Yk1JMkJr?oc=5) |
-| Several New York officials arrested in protest at Manhattan ICE office - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQQnlPdWh0RlFjSWN5NG1UQmxBX1oxZkFraXNCb2d2Mkw1eWZ1bV9SRS1sZ3V3Y0lkSS1ZUE1SMThFREhHc2xmMGVCMkk5c2Vyc1BtZU56LVdHUjNyZ3hON3MxaHRVVTlmZXZxVDBVX0d1VUNpYmlFQnZ2YlZRcFp4VURNLU92cmN5V0RSRWxrYi16cWRYX3Ytc2JuQWdsUGFqMTl30gGoAUFVX3lxTE1iMU0zX21KYkttbXZHR3NVM21QXzhfTWdNUWNlMnZHRE9qUVlSa2RhMGVDOVFVTWI4MWw3eUg2THZ1SEFfcFVGWEgtZmY2SmZKNHhBRFdQVlk2d2ExOFJ6Y1h1eWlWSUM5OHB3RkdqS3RUbG5jS29WUHNiZzlQR2NVeVdrZWczSTVJb1ZETzQtemFKQUh0NEVLcncxN2ZwYllhY0ZRVFREUA?oc=5) |
+| Texas A&M President to Step Down After Controversy Over ‘Gender Ideology’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNYVpHVUZ5dUFZOVN0NFM5Q08wRy1aOFA5Mi05YU9NOFBaMnhNdEhWblpQaElIaFVaLWY4NEZmeGJ2X0g1bWtZa0JSRkxIanhWRkl5R3lHdl9jcWhYVV96bHlUUzRaaWxRUWFCd1B2MEd5MGRWVkZXRzFlV0ktRWlhV2xDSl9TU3VaOVRXUzVCU1NDTDA?oc=5) |
+| Judge blocks administration from deporting unaccompanied minors to Guatemala - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPZ2R6Z2pIX1FQcjEyZ1VQdTlSVm1XUkc1TUl4YlJFbzdnekZ0dDNoN3poR1RVaGxhUzJrNmtRazNDYWt5UklUTkVhbVZUaWlBMjFjNkY4OE5fbXVqVGpJeVBPR2lYeVN2bHBXT2hvcEFydUloUjg0Unp5UlIySy1qaG9kanBzQjhaaGQzN1VsTkFudG94STdGaXNBTk9OeHFadWpGQkVYQWVrSDNMdlNXTUZUMNIBuAFBVV95cUxNTk8wdHV2ZFB2YXoySEhoXzNyOVF0NlU4SlB6QUV0Zm1yZ2RxYzhtY0c4dFMwSXlCYXRCS1ZRc1Q2Yk5ETUN6T3p0eGFqM2lnUUpRMURsMnpIRkhCUEhSODZKQlRaTC1SdGlBVEx0ZWFQTmVGMDRxZzB4U2x5eERYZV9JTThMaGRGa3l1ajVjbVFFWjE5UXp5YlBLS1dNMExhSF9SMlFzY2Qyb3AzMHZQSHlJdEQxT29q?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
