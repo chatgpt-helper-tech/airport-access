@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 23:57:25（北京时间）**
+🕒 更新时间：**2025年09月21日 00:01:50（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Fact check: The fake photos, false claims and wild conspiracy theories swirling around the murder of Charlie Kirk - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1zbkgzOWpVM2ItN2htS3RSaGRkaG9JU0YzYzdnWC1Qd2ZFT3p0Q09DVDRtQUlQTk1qaV9sTFNEQ3ZSdlF3V1Zoekg5TFVOTlB3akNfb2tFcWRGVXdWV2xUZVNnTU1wWnh6MHRSWS1FUnE3enp6VHNBMXBB?oc=5) |
 | Trump says U.S. military fatally struck another alleged drug-smuggling boat - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOOHRBc1AzSG9NcE5hV2lCMXBFdU5UNHVmOUpRS0doajdYRnpGRGtKcWRKWERKSlV0dVlFaThxNmFBRklYdDBfZ1djeEExYm90TFlOQ2V1cV8xSjJKSGdUaGtrR1JwUXoyY19YTFhzc1NIY2E5WndJMVA5ZjJLNi1MRWpUajJhTmxSUDFTazE5MA?oc=5) |
 | Trump administration asks Supreme Court to strip legal protections from Venezuelan migrants - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi2AFBVV95cUxOS0RCTmNUVmIzRk5wMno1ZWpXMWNxMEIxX0JObXNiRkFfS1JoUm93RWp1dEZ5UGppLUtaYWxpaUNCeXVIWnZ3cGczR05rcGg4Z0dNd0kwUGZ0RkxEWVhxaThRR3FmZUF4YzRFOHhxUlVoUERvVnBBcDlTVVoxVGw5aXFaTHVLUHg3THhfSG1JYmNRZ1VGbWtRNkk3OUZlZWhSVUM1bEZmc0YwYmhvUzB0cmZxdEE1eXV5SjM1T3g0U3ZtejBKa01lQ0M4dzBwVnZka0lELS1tRWg?oc=5) |
-| Congressional candidate thrown to ground during protest outside ICE facility - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOTzJLY2RGcElkc2lLRDRmS1A2MV9kdjFfR0dwYmRtRW1zTGt5MC1aRElTemhpOWFTLTJYX2xHNmxucnVvZnBncG16RDhPdWFQUV8xYkNYc2ljZUhTc2U4S0ttdmRfdVB5RlZGUlNnMUVSZE1kUUlaY3p0SG9kYkh0Z3F5Nm93cWFwLWtYWW1Sc0U?oc=5) |
+| Protesters and Federal Agents Clash Outside an ICE Detention Facility Near Chicago - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5zaFBCbEVnSHhyM2tUSzQyTW1xZDJWTVpYRWRnc09MY1JHV2s2d0ltR3dJLXZvVUZBdUtPdGJSNkdoLTBXdHNhQmNQQ1o4V1RucjFya0FPNjdDWUVFeTd4ZTJTVWNMY3pSOGVMc2VSbUxIbV8zaV9FYXlTUl8?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
