@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 12:32:50（北京时间）**
+🕒 更新时间：**2025年09月20日 12:41:00（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump signs proclamation adding $100K annual fee for H-1B visa applications - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNenlnaW5IZXE0Um9EN3A5RUtXSUd5VGVGd1BBY1hUdE5Xb3dOSGduVWh0cFQ5NEdHVFZNTmtWVkI1blppcTFicGdFTXdmV0UwTml2d2FIMGMtVncwX3YwN0s3NkpVSTZpZmVyQUJsdFlweS1GTU5DLVNOT0h4bHpTb3REa29uM0E0WmRuWVVNSQ?oc=5) |
+| Trump Says U.S. Will Institute $100,000 Fee for H-1B Visas - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9jLXNPZzhhTi1lQXZkcW1DTjZfY1E3N1IwNEg2RGUxU2tJOTdhRjBPMXBCdmxvV3pidmFKX2xCWHB3ME9ubGxhN2NmNHFSaVFfZklJS25VbmlKTFRyR1NxcThwbVhCVWEtWlNtMHFGYm9nZWtUa1FBTTlpcWU?oc=5) |
 | US attorney resigns amid pressure from Trump after sources say he refused to charge NY AG Letitia James - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQbDgtMDVSNG96UDRJVEsyUHZ4eXNzVXJtc3VYRFVNZU1xLVYtbnlhbTB2V19TN1hOT0U4ejFKQjgteTZVQXY0ZmYxRi11djY1cUFfTXV5Z2hhcElWenhraGtwNXQ3cTFqdDdtNjVnUm9iOGhsWG1DZ0E1VzRXMWhoUThlMWJkbmN6MTU3cW84QkItN3VpRDhVYjVPb9IBoAFBVV95cUxNSjhZYkZfcTZBUk1iS213Y3VyY1NHWjBIdFg4RDZCMldmVWs1MERYbG5NLUhDTlJYUElnXzF5cC1tODJnel9BRWx5ZzlzaWtJcUw4QWtkVWVacjRwbE1CcWVoenFhTXBodlVJYnpxMmxRUFEwVnUwYzFMNll6cjVoVkhUeDVJczBXd285T0lkbFF0RlBSd0JSMENxWWlLMHc2?oc=5) |
-| Trump Administration: Live Updates and Latest News - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE05c3dlVC1aSktRTjdLNTNnNHQ2QWtmRjhrcjZhR2x5c0JPOHNuLXRQbktFaldTVDJJNzRWYXRPTk95aTk1a2x2NzMxbjRVNjRQa1FxSFpfVnZKS1g4cjVJQlJjVQ?oc=5) |
+| Ted Cruz criticizes Trump-appointed FCC chair for urging "action" on Jimmy Kimmel: "Right out of Goodfellas" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQb1ktbWp3b0Q0N3VwUjdkSnI2MU01NWtiRU9weGd6eW5PZlpFVnE0N290TzFZa3BjMkZhVGpQNTJnSmtBcDg4aElfelk4YldEVDBpUUljV1JQb0NMUUVFaGhEc1pUT01ld3BMUEJZMUZnbm1IVnlUU1ctS19UZUxPUXJZdXZYNl9iWDY0S0x30gGTAUFVX3lxTE8wX29MTWllTHlxazhvZ0FBb0tfd2RCMG5XUElBWDhHTXItbDZXa0RVTTF3OGh6SWxyZmtfRTF3YkFON1dvYl90U295NW9CekJjc2xoT2Jham5oYVBWSDdCWUMtbVhzQ2ZjMkZVWE5vZnpaNkJHcDBNaVE3czlZa21pczN5U3NGOFJvSXVVaS1Hd0RjUQ?oc=5) |
 | Congressional candidate thrown to ground during protest outside ICE facility - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOTzJLY2RGcElkc2lLRDRmS1A2MV9kdjFfR0dwYmRtRW1zTGt5MC1aRElTemhpOWFTLTJYX2xHNmxucnVvZnBncG16RDhPdWFQUV8xYkNYc2ljZUhTc2U4S0ttdmRfdVB5RlZGUlNnMUVSZE1kUUlaY3p0SG9kYkh0Z3F5Nm93cWFwLWtYWW1Sc0U?oc=5) |
 | ABC10 station struck by gunfire Friday afternoon - ABC10 | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPS2tUN2FJN0llbGJWUVlzMHk5dFdzSTdBNV9TTXZBQV9leDgzOGVKc0NpcHNJSDhTTW9uV0d3QkdGRUhOeDBUMFh5cUtMQU5mY1Z1c1N5QUd4Z2t1OFF3aldHTGFfUU5nLU1vSjhBNU1HRTM1d1ZLdy1BdHIxRmFDY0NxcW9KQXQ1TFJFUk9vTi1PN0pXalQtdW4tSGo4YXFhUjIzdVAzNWgzQlZsZFhoOC1BRGNVZGQyUHpkY2tB?oc=5) |
 | Man who tried to assassinate Kavanaugh in 2022 wanted to kill 3 justices, prosecutors say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9FZTRRaE5iNjhrc1pyM2hlUDlLZDJVYldsTTFHMzd4ak95RTdFbHNFZmJEWmFtT2xCMEZsM0JJdGctWjA3WlV6ck5vd015OWhvQ3k3ZUV4bkd0cWxKbEUzZDdRNVN2MkVvbFdhOWw2WXlqZ3VZZkVHVThIc9IBgAFBVV95cUxNMk8taFMxLTV2ekRiaUJwQmw3RGZoWkhRbk04NVBhd1NDSEFsYzlWV1ZYNmFGTklTelNyUm9tMWhoZDI1OU9UV29nZzA1dzh0eG9lckJMUVFUcjl6ZzZuRXNUNTFJYU56R0xCOFlldXhqX3VpMm1iWm5hNmxHSmtDNQ?oc=5) |
