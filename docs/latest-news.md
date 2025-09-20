@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 10:57:46（北京时间）**
+🕒 更新时间：**2025年09月20日 11:01:44（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump says US struck another ‘drug smuggling vessel’, killing three - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNY3dxVjdULTNPZERieUxEanlVRjRiSnNyTlFxVnpRd2V2X1dmN0pZSDdBSmRFemw4cGVBbHlGMWZXUlRlemZlMlJ6c0tFWGZlVWI4ci1sMThVbWJCSmR2VW02MW15a2IxQW9UbXJ3VDZCbzlLb0VmLW1LVU1SNHJmdzhUa3hiYVVaZklnQmszVWVfM2ZCdTAyZFdPYlNnZWZNWWNES2RreXozXzJrZGJuT0Y0QdIBuAFBVV95cUxNQzVOcHZ6TWFfWnE3QllLUG1yS2RVQ2ozUHNwdlcwaVJBU2dPX01PMlJ2Ui1DeHBVc2hWSGd4NkZ2NUdWX3JFVHAyYUx4NlRyUW5TTnpGYmVPR3BiRExhN3RaRWF1MzR2d0xaenhuR29XZV9jUk94bV9QS3pQRXBhTzNLU3dWdFpMdWtFVFZ0eTdEaExUMjFHaTlDUXZSYlZoc3pKSEMwVkpFSXdHYk4yMk1lWWF5TUMt?oc=5) |
 | Trump again asks supreme court to end protections for Venezuelans in US - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOMk5iWU5jUnF1SnB1LXVXVm5sOWs0TzlvSGh3Z2hMaDdxTFI5V0h0ZlQ5M1NRTUgxcUZuV1RNLTJSVWdONTYySXZicVpUSld5VDZOTWk0MGo2YlpZWE95MFRuN0E2TGNHc3A1eUlidUEtUnJxU0JCc252LV93bGRoQ3l2emVYdw?oc=5) |
 | Senate rejects both parties' bills to avoid a shutdown, leaving next steps uncertain - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOYUR5elFSbXI2U2hBa0tXdlh6ZnhWbG1pN0RTREhHaTJJVnNROGhoNmRGLVpQWTNPdjg5aWFRZ2xhZmF1eGVFcXFadUowRFZmU1EyYmNBY0lRYVVPTXRnVnpVTkV5Wk9rNkI0dHBkblFaNGNBWWRCbkZsS2hZcEFBZWdJQ09YM0lUNkNfZ04ycGI4Q3ZBZ2xkLTVOWHlPbFFhMmJ3UXdVVm9UVm5yQjBv0gFWQVVfeXFMTUtJSDZoX2twdmduVFAtRWIyNkF3YU9yTklhX1FwOFRrWlhxZ1BiYnBBRHVVWHpmRFpkQjA4eHBqMDBBVXRReHZxMGwtbGttZkRFdFJOZ2c?oc=5) |
-| Colin Kaepernick Shows True Character After College Student Found Dead On Campus - Yahoo Sports | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOcGZITXlGdU5TSDA5d2Z1eTlFSU50MGFnVktNcXd6ZkVMSXFiM1hKSWc4SFNlTUFDaVlZNzhLcXhnZUt0YUxZRDBrNENmeWNZak5rVmsyaThoRzhQMWNfVm1yZHlqQS1UNlF4VzAxdGQ3VHY1VXN6SWVlVGdXc3RKZ0lhNEd5MzhLNEVFdTVB?oc=5) |
+| How to watch the Charlie Kirk memorial service - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNRl9oNXpRZG9wLW1SR2FzMXNKeWRDSzZEbndndmFnTFVJdkQzY2tkblhNcExLN2JaUTV1ZTZTS3dUcnlmcXE0OEtLbG9RR3JPNXJJcGpJdDZHWHYxU1RhTjJORFFVYUJ2MjhuLWpWeUpYb1RaUmNySkdrWnVKSFRPRXV1enVVbmVaTnRmcFRTZ2JEWkt00gGaAUFVX3lxTE8zaGxDWWRvM2prOWliMlotckgyaF9fdmY3UmNTVDQyZ0hRNVF1Y25zMUFuT2ZVb1ZZaXA3bTdBQ3pmcTBnX3BiT1d1bzNINUJVSm15cEdMR241T0tncFhfdlFGVnJVT2R4ZDJibXdzc0dJV0xUWHd5ZUtTc3owaUNSWTFUNktUZ2d6RFVzMDM2cjFjNDBHMGFydHc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
