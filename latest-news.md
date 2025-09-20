@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 22:48:20（北京时间）**
+🕒 更新时间：**2025年09月20日 22:56:06（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | Federal judge tosses Trump’s $15B defamation lawsuit against New York Times - PBS | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOQlpZMGJZQm9xbkdSRE9yMkV4eHNSRjlyTzR3VlBhblZFUHFRbHRDZWp1eHhRVlZzZklLeXJBSHFxSk00SzRTVVRtUmlwdWRSeUo4cENzc3pUanBMLWExdVVna1ZGczk3MnRMbmEtWVRxd2o3VFlFN3J2dkpQVmRMdzIzSWY3SV90blZIeEM4YW9kZ20ya1EyVlQ1R1I3OTljUmlTZUxuYW9EbEp3RHhwNQ?oc=5) |
 | Social media is shattering America's understanding of Charlie Kirk's death - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOckp4RVdlU19uakF6MldOQ19XM0Z0cS1MQWxFOEJYMk1EZkIzbWY5UTR4V2lnVHFOQllGSFc1a3l5RnFHNTRCc3NfbTlPSVByRkpDbC0xbTcyNy1rNFpVSDlucHZGN2pXbUY5b0h4dm5DSHFFSE05Z3VCYVBGT1BpX0JDYW43cUhGRFlZ?oc=5) |
 | Trump administration asks Supreme Court to strip legal protections from Venezuelan migrants - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi2AFBVV95cUxOS0RCTmNUVmIzRk5wMno1ZWpXMWNxMEIxX0JObXNiRkFfS1JoUm93RWp1dEZ5UGppLUtaYWxpaUNCeXVIWnZ3cGczR05rcGg4Z0dNd0kwUGZ0RkxEWVhxaThRR3FmZUF4YzRFOHhxUlVoUERvVnBBcDlTVVoxVGw5aXFaTHVLUHg3THhfSG1JYmNRZ1VGbWtRNkk3OUZlZWhSVUM1bEZmc0YwYmhvUzB0cmZxdEE1eXV5SjM1T3g0U3ZtejBKa01lQ0M4dzBwVnZka0lELS1tRWg?oc=5) |
-| US military conducts third fatal strike on alleged drug smuggling vessel - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBYWHZVNGxTZWotSmF4cUpsdlBPcHRadVREMlBvM1U4Z2doa3hpWG1vMURYdll5QnhobTV4V3hzLTF4UTlQaC1RQ0lkMXZqTm5YT3FPN09pVGdzY25wZl95WGFhcUNsUC1NdHl6cHItRko?oc=5) |
+| Trump says U.S. military fatally struck another alleged drug-smuggling boat - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOOHRBc1AzSG9NcE5hV2lCMXBFdU5UNHVmOUpRS0doajdYRnpGRGtKcWRKWERKSlV0dVlFaThxNmFBRklYdDBfZ1djeEExYm90TFlOQ2V1cV8xSjJKSGdUaGtrR1JwUXoyY19YTFhzc1NIY2E5WndJMVA5ZjJLNi1MRWpUajJhTmxSUDFTazE5MA?oc=5) |
 | ICE fires chemical agents at Broadview protest - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQN052TW9YVzlUS2NLUHdGRWpsMUtQUF9aMUZETFJVU28tUkdHRm54cTJHWkJkMXVTQTZual9aSk9OOUE3OC1hNllIeGpaRjVmQkJmRVVRNGVMUjRXVkxtZTJIZ1pGRFlsa0Ria1BFTjhhUlM1cEFCc2lzZFJjZzJWWUZR?oc=5) |
 | Suspect Arrested In ABC Sacramento Affiliate Station Shooting – Update - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQaFN5OXV6UlJWRGhTV09WMWpITHhkRE5HZ2VWT0IydXJ4cWYtbE9fejljV0Z1NjJQYXNKVl8wMi0wem8yODVxdFU1RHF1ODBBdVFYLUVBY1BpRF9QcmhpakhLaWlqQ2VBeTBCYTN0amdYLWktemU4TmpOdzAzR0F6cmFCSGt5TnUzdExjbExTZEhlVzQz?oc=5) |
 
