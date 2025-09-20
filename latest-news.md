@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 03:56:38（北京时间）**
+🕒 更新时间：**2025年09月21日 04:00:10（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Big Tech companies, foreign governments scramble after Trump slaps $100,000 fee on H-1B visas - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNeGlxaGJBNFVIcHY4SS1SS3BsTzhQeDFuZ296WXlLellZb25ldDRpZjBrU3VCRVdrdzczZ0ZSWDBrT3FoaWNRT1RpbFVianZwZGtBb3VfbVd2REQzRmlScWltOXdRRjNGVjZBSEFkbFRLa2dvV2VrQ2lOMmN6NjlMbjg3UdIBiAFBVV95cUxPdEg3TWI4eTZ2aFFzWjg4c1liNUNMZEN5X0hDOEVKNTU2U0R6MFluQXBLVmtNU1FTY3I0Rkdva0VqeUIwY3JyYWdMWm5TcTlYSTlVT3BVMW1qazRSOHRCSlhTVGp1NURGNnZ2TzdaSWFkdUVmQ2JXWWhwdjM1LXRYVG5ZRWVWSndI?oc=5) |
-| Armed man posing as law enforcement detained at site of Charlie Kirk's memorial - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxORzJ6bkZJMkRKbzAyaDZUd0k2YUVKOXB0OXNIeHhOSE45dWtIYXJsb18yMkNGaTZYOXhBbTgtUmZxb2FMNGlmTGsxVzlpRVBPX3hSR3ZaMnN3NjhIQW1Qc0xRcGktLUx0ZUY5aHNrQVNURzQ1YndvQ0JDaFRadW1EM29fTEZack5MRlA1NmlJWVlENGRKRy11d1M2UUxoeF9DUjBDVXJuQmhYWUwtNnQtU21yeTdjWEVS0gFWQVVfeXFMTW1wSGI2ZGNKS0stSTBKcWxnOXBsV09YOFIwVzd0Znd0N2ZfSlluOHp0YXdBNGZqYVlfd2VJNV9NNXRud1lQQjQxWl9vMzMxN2stQXd4T2c?oc=5) |
+| Charlie Kirk memorial in Arizona expected to draw 100,000, with Trump and Vance headlining - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOVV9XRF9qd0RoR0dyaHdxdVdOSFhTM1VVOUU5bXJYOTJlTVdzTHE0VGdadTdULVpMRVJhdzA1bGJEQWtQOGJwc2V1VjRuMV9NS0xyX1hWV28yeVlDU3JpSUdBd25wb1VoU1JEQzJlMEE4MGQ1cnR6aS1US0hNRFZkTVVHd3dlZ9IBiwFBVV95cUxQdUhINjVPVzN4dG1YUUpRcExmbVVIMDFPNnVrOVl3MmR3THN5bUhlRWdJdG1fSlhHbVhHczR5N09HUTJLUWZfbXhvTjR0OGhJbmFiQzI3c2dsaWxSVjFxZnc5ZlY1X0RNNGJPc0taYjRIVHhyWTdDaFdwUGxtSld1TG5MMGJKZ09famw4?oc=5) |
 | Schumer, Jeffries demand meeting with Trump amid shutdown showdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQNzBaT2g2N0p2aWpRZWFzZ29oUkxTeUlVbEk0NjMwZmlEU0lJY0I4TzR0V2hjSlkySU8xTnNkU1ZsUi1xdTFFYkFYX0JGLVRNdHJLby05NTVwcGlTVkstY0NGOVBiVTZWbUVoajhDdUgyYTVWUlFWTmIyWTBBMGdPcFNhV3lxeF9yamc?oc=5) |
 | Suspect Arrested In ABC Sacramento Affiliate Station Shooting – Update - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQaFN5OXV6UlJWRGhTV09WMWpITHhkRE5HZ2VWT0IydXJ4cWYtbE9fejljV0Z1NjJQYXNKVl8wMi0wem8yODVxdFU1RHF1ODBBdVFYLUVBY1BpRF9QcmhpakhLaWlqQ2VBeTBCYTN0amdYLWktemU4TmpOdzAzR0F6cmFCSGt5TnUzdExjbExTZEhlVzQz?oc=5) |
 | Trump says prosecutor fired after gaining "UNUSUALLY STRONG" Democratic support - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOQnhQZU9JLVhCTGxiR3d1Z0NqV0FaMHhNUm85RDRUcUxNVk5OQi1TejZJTGVpazR1Y0ZINEgxOEQ1bWJOR1U3WXg3MXV2Z2ZBM1JpVXV4LWIwdmdqQ2ZOU1RNVXFxWmVjcEFPUW9GYmVOczZWdGZUWFpnM2pfX2VfWnNTT2lvSi10?oc=5) |
