@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 05:48:34（北京时间）**
+🕒 更新时间：**2025年09月21日 05:57:18（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Starmer set to announce UK recognition of Palestinian state | [阅读全文](https://www.bbc.com/news/articles/ce800enrglzo?at_medium=RSS&at_campaign=rss) |
+| Starmer set to announce UK recognition of Palestinian state on Sunday | [阅读全文](https://www.bbc.com/news/articles/ce800enrglzo?at_medium=RSS&at_campaign=rss) |
 | RAF jets join Nato air defence mission over Poland | [阅读全文](https://www.bbc.com/news/articles/c4g7752w1ygo?at_medium=RSS&at_campaign=rss) |
 | Day of delays at Heathrow after cyber-attack brings disruption | [阅读全文](https://www.bbc.com/news/articles/c3drpgv33pxo?at_medium=RSS&at_campaign=rss) |
 | Farron drapes himself in flag as Lib Dems seek to reclaim patriotism | [阅读全文](https://www.bbc.com/news/articles/cjd11n14zz1o?at_medium=RSS&at_campaign=rss) |
@@ -30,8 +30,8 @@
 | TikTok deal will be signed soon, with U.S. control of algorithm, White House says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE1sX2dONGlOeWtIZ2xuYkgxZDZGUEdsaUtsRTF5Q0dHR1lPU1VxMDZvR05KMHJHRUdBVEZscG9TQW44cVNWSVpWMTdHR3UyWlNJS2JCQjlabnduWTZNVUtJcEM4OA?oc=5) |
 | California defies Trump, shields schools and clinics from ICE - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOZXN2N0ZfSURnUjNwQWMycjJ5QUFDVGNpSTVkWVpOMFFpemZyNUt6dHFzdHZmSk1RSUlDM3ZheGpqR1VDNWxBX1FzR1d0MW1tWnA3UDY2RlZBQ1Ewb3JWNUJjTVpSVDFYV19lMEVXTkNzd25zcVgyMG1ySS1acEQxTFktNA?oc=5) |
 | Conservatives are talking about ‘unbelievably dangerous’ precedent being set by FCC chair - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMi2wFBVV95cUxPVHVYMzQ0Wk1hdE13dG1Cd0JHbHRPejZWV3FyNmRRQ2Z2cW51ZjRSQ18tVkY3b2lQaWRKdkF6NXMtMmdlaWUtSzB5M1hrM1BUblZpRnhHV3BaTzVUcFFOdmI5VGQ0VHhFZHE0UHE3UzlHQnhTdTJzLUtWMlpLM3hxNlI2empJWDJtM1l1WEo0cVd2X1VoTXc0QzJNNExaU3RmRldiTTdaUmpmYVl3ajNIQTZzV2s5cDBNVmJtRjE2d3gxcXB0Ul8xMTFTM3RyVUN2clRQMlBMNVdpUlU?oc=5) |
-| Suspect Arrested In ABC Sacramento Affiliate Station Shooting – Update - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQaFN5OXV6UlJWRGhTV09WMWpITHhkRE5HZ2VWT0IydXJ4cWYtbE9fejljV0Z1NjJQYXNKVl8wMi0wem8yODVxdFU1RHF1ODBBdVFYLUVBY1BpRF9QcmhpakhLaWlqQ2VBeTBCYTN0amdYLWktemU4TmpOdzAzR0F6cmFCSGt5TnUzdExjbExTZEhlVzQz?oc=5) |
-| Pentagon Demands Journalists Allow Government to Vet Information - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQYlhncEJzM3dpVlpCSUVzTXFSMGVWbmRCN2lYY3VLTW1xYlNuSHg4WVZuNjdMTGRVSFREZkp0dk9ja3Z2UWFqU2Fxc3Z3RHduRU1henF1cFpZTnRHb0k2QmNTWDRhYlpjNXE3eERRWXFOTlVoRERpbm1EdzNKSE1PSGY5V0RHMHRwZ2I0d0JHNE5hTlNzWE5VNWsxSXF5aFJBeHV0UzM3Q0xXaVVWaVdpMlIzYlFrdw?oc=5) |
+| Arrest made in ABC10 shooting ｜ UPDATE - ABC10 | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPS2tUN2FJN0llbGJWUVlzMHk5dFdzSTdBNV9TTXZBQV9leDgzOGVKc0NpcHNJSDhTTW9uV0d3QkdGRUhOeDBUMFh5cUtMQU5mY1Z1c1N5QUd4Z2t1OFF3aldHTGFfUU5nLU1vSjhBNU1HRTM1d1ZLdy1BdHIxRmFDY0NxcW9KQXQ1TFJFUk9vTi1PN0pXalQtdW4tSGo4YXFhUjIzdVAzNWgzQlZsZFhoOC1BRGNVZGQyUHpkY2tB?oc=5) |
+| Trump says U.S. military fatally struck another alleged drug-smuggling boat - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOOHRBc1AzSG9NcE5hV2lCMXBFdU5UNHVmOUpRS0doajdYRnpGRGtKcWRKWERKSlV0dVlFaThxNmFBRklYdDBfZ1djeEExYm90TFlOQ2V1cV8xSjJKSGdUaGtrR1JwUXoyY19YTFhzc1NIY2E5WndJMVA5ZjJLNi1MRWpUajJhTmxSUDFTazE5MA?oc=5) |
 | Cyberattack causes disruptions at major European airports - Euronews.com | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQYUdKc2I1R09seUxfRTYtYUNWNlBaTEtSRDlEWlRON0V5QVpxN1ItTlJXb1NmWDNjNUlxQ3IxV0dvWjJtdW9jMGdPOUJKVmpjck5hdVVzaEw0YThycURYSVdpWEpLZjJqRXZ4ZTY5WkZmTEwzRTZaZEp3aWttQVMwUlFtZ3NJV1NWdXhlaUdKUkhwam1YWm1fZw?oc=5) |
 
 ---
