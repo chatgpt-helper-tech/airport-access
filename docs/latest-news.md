@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 14:48:32（北京时间）**
+🕒 更新时间：**2025年09月20日 14:56:32（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump signs proclamation imposing annual $100,000 fee on H-1B visas - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9hRk1EQnpwNURIS3dNT1Fzbm9DM210YzY3X2F3WlBJRm9xeUluaUc1OGpOQ0N1ZnN0bGRSSk1rQUQwTXd5SUFzYlVNdnJ5b0xPbWNHdEQxWXEwZTAwVEpldkF3d1pqellZeVh0RnpYMnZWdkdBeVR1OUlXQ1V2QQ?oc=5) |
+| Trump to impose $100,000 fee per year for H-1B visas, in likely blow to tech - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQTDlleWVxcFI2NGxON1JIRU1wNUUtc002NENzeVZrOU13ZHRyeXc5dHRMV1VXTmtjMXFveFc0NXZQZTNoU1BNNU1fTmd3bGlSVDVFXzAwU2V2N1J3cU81bGdteEFEbUcyVmxONFpRbndWdDhianEtR3hqT21NejRtVmc0bjVWbzR4ZjNuTzJFeENSejBmQTJJWmZTS3NuWEo3cl91QmhSY1FDTWFVTXB2bXhmNG4yMHFDM1hzMnRpb21hYkVI?oc=5) |
 | U.S. Attorney Investigating Letitia James Resigns After Trump Seeks to Oust Him - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOaVFZU1I2S0E3d1NhTjdvZnNkX3dOdlFQT094RURUelhOQjktdk1tUms4TzVZUVNKdXV4aTdHbGVMSlppdEs3M2ptWjRwNHZORWNVUUFaYnJJQ3BkcXB6QW85MU9lYmRtRnA4WU4xb09Semo4R3VLS1VmTWpZNFdSaUNfQW84WXVBd2d2dg?oc=5) |
 | Ted Cruz criticizes Trump-appointed FCC chair for urging "action" on Jimmy Kimmel: "Right out of Goodfellas" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQb1ktbWp3b0Q0N3VwUjdkSnI2MU01NWtiRU9weGd6eW5PZlpFVnE0N290TzFZa3BjMkZhVGpQNTJnSmtBcDg4aElfelk4YldEVDBpUUljV1JQb0NMUUVFaGhEc1pUT01ld3BMUEJZMUZnbm1IVnlUU1ctS19UZUxPUXJZdXZYNl9iWDY0S0x30gGTAUFVX3lxTE8wX29MTWllTHlxazhvZ0FBb0tfd2RCMG5XUElBWDhHTXItbDZXa0RVTTF3OGh6SWxyZmtfRTF3YkFON1dvYl90U295NW9CekJjc2xoT2Jham5oYVBWSDdCWUMtbVhzQ2ZjMkZVWE5vZnpaNkJHcDBNaVE3czlZa21pczN5U3NGOFJvSXVVaS1Hd0RjUQ?oc=5) |
 | Congressional candidate thrown to ground during protest outside ICE facility - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOTzJLY2RGcElkc2lLRDRmS1A2MV9kdjFfR0dwYmRtRW1zTGt5MC1aRElTemhpOWFTLTJYX2xHNmxucnVvZnBncG16RDhPdWFQUV8xYkNYc2ljZUhTc2U4S0ttdmRfdVB5RlZGUlNnMUVSZE1kUUlaY3p0SG9kYkh0Z3F5Nm93cWFwLWtYWW1Sc0U?oc=5) |
