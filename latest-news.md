@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 12:00:02（北京时间）**
+🕒 更新时间：**2025年09月20日 12:09:28（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Senator Ted Cruz says US broadcast regulator acted like 'mafioso' on Jimmy Kimmel | [阅读全文](https://www.bbc.com/news/articles/c1kwzgrwdd0o?at_medium=RSS&at_campaign=rss) |
 | US forces strike third alleged drug vessel killing three, Trump says | [阅读全文](https://www.bbc.com/news/articles/crme4pv224wo?at_medium=RSS&at_campaign=rss) |
 | Russia's answer to Eurovision is less kitsch, more Kremlin | [阅读全文](https://www.bbc.com/news/articles/cre5vv0x31po?at_medium=RSS&at_campaign=rss) |
-| Judge strikes down 'superfluous' Trump lawsuit against the New York Times | [阅读全文](https://www.bbc.com/news/articles/c62n7025wdgo?at_medium=RSS&at_campaign=rss) |
+| Key oceans treaty crosses threshold to come into force | [阅读全文](https://www.bbc.com/news/articles/cq5j87114deo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | Trump says US has carried out another fatal strike targeting alleged drug-smuggling boat - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPWTI0N2hkQTlOOVZkaS1sQmRETHRNazlvMzZaV3RaSHhhSF92RjVLaV9LbDdHQzVLY3RUTEZzX3NaQnJmajdXVENobmpNWlpXNmRvUEtUNEEzQ2NUbzNEMjhqOFBDLWtkOW8zR3ZRMGRheWxyeFA0M2NYZW1rWDNFOFFadG5jeENXV0E2TWJxY3ZaQQ?oc=5) |
 | Trump again asks supreme court to end protections for Venezuelans in US - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOMk5iWU5jUnF1SnB1LXVXVm5sOWs0TzlvSGh3Z2hMaDdxTFI5V0h0ZlQ5M1NRTUgxcUZuV1RNLTJSVWdONTYySXZicVpUSld5VDZOTWk0MGo2YlpZWE95MFRuN0E2TGNHc3A1eUlidUEtUnJxU0JCc252LV93bGRoQ3l2emVYdw?oc=5) |
 | Senate rejects both parties' bills to avoid a shutdown, leaving next steps uncertain - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOYUR5elFSbXI2U2hBa0tXdlh6ZnhWbG1pN0RTREhHaTJJVnNROGhoNmRGLVpQWTNPdjg5aWFRZ2xhZmF1eGVFcXFadUowRFZmU1EyYmNBY0lRYVVPTXRnVnpVTkV5Wk9rNkI0dHBkblFaNGNBWWRCbkZsS2hZcEFBZWdJQ09YM0lUNkNfZ04ycGI4Q3ZBZ2xkLTVOWHlPbFFhMmJ3UXdVVm9UVm5yQjBv0gFWQVVfeXFMTUtJSDZoX2twdmduVFAtRWIyNkF3YU9yTklhX1FwOFRrWlhxZ1BiYnBBRHVVWHpmRFpkQjA4eHBqMDBBVXRReHZxMGwtbGttZkRFdFJOZ2c?oc=5) |
-| Colin Kaepernick Shows True Character After College Student Found Dead On Campus - Yahoo Sports | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOcGZITXlGdU5TSDA5d2Z1eTlFSU50MGFnVktNcXd6ZkVMSXFiM1hKSWc4SFNlTUFDaVlZNzhLcXhnZUt0YUxZRDBrNENmeWNZak5rVmsyaThoRzhQMWNfVm1yZHlqQS1UNlF4VzAxdGQ3VHY1VXN6SWVlVGdXc3RKZ0lhNEd5MzhLNEVFdTVB?oc=5) |
+| Charlie Kirk Resolution Splits House Democrats - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5ObmkwMExiS09WZWdSUjZwalotc3RSLVRURHZqOGFtRXlEYkExaU1KT21ZTzU1MnpyNTBUc0tnaWl0bVVvR3U4eE8xclNhNWwxdDh5MXlocXV3NnZzdTdDQXhmMWVLdW5NMTU4SEZGdXl5dGdVall0aXgtYUM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
