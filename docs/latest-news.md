@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 06:32:25（北京时间）**
+🕒 更新时间：**2025年09月21日 06:40:16（北京时间）**
 
 ---
 
@@ -13,8 +13,8 @@
 | Day of delays at Heathrow after cyber-attack brings disruption | [阅读全文](https://www.bbc.com/news/articles/c3drpgv33pxo?at_medium=RSS&at_campaign=rss) |
 | Farron drapes himself in flag as Lib Dems seek to reclaim patriotism | [阅读全文](https://www.bbc.com/news/articles/cjd11n14zz1o?at_medium=RSS&at_campaign=rss) |
 | Curtain rises on Strictly 2025 as new couples revealed | [阅读全文](https://www.bbc.com/news/articles/cy9nnl78dgzo?at_medium=RSS&at_campaign=rss) |
+| White House outlines TikTok deal that would give US control of algorithm | [阅读全文](https://www.bbc.com/news/articles/c89dd747yz7o?at_medium=RSS&at_campaign=rss) |
 | Former Liverpool manager Beard dies aged 47 | [阅读全文](https://www.bbc.com/sport/football/articles/c0r00qx5llko?at_medium=RSS&at_campaign=rss) |
-| Kildunne stars as England see off France to make final | [阅读全文](https://www.bbc.com/sport/rugby-union/articles/cx20p2kx9r6o?at_medium=RSS&at_campaign=rss) |
 | Dame Prue's parachute dress and Romeo Beckham's runway debut - London Fashion week in pictures | [阅读全文](https://www.bbc.com/news/articles/cd63n1wv8nlo?at_medium=RSS&at_campaign=rss) |
 | Ed Davey loves clowning around, but is it time the Lib Dems got serious? | [阅读全文](https://www.bbc.com/news/articles/c3e7ny8n44jo?at_medium=RSS&at_campaign=rss) |
 | Notre-Dame's iconic towers reopen six years after fire | [阅读全文](https://www.bbc.com/news/videos/cd9yyxnejeko?at_medium=RSS&at_campaign=rss) |
