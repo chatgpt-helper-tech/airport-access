@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 04:17:48（北京时间）**
+🕒 更新时间：**2025年09月21日 04:24:34（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Suspect Arrested In ABC Sacramento Affiliate Station Shooting – Update - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQaFN5OXV6UlJWRGhTV09WMWpITHhkRE5HZ2VWT0IydXJ4cWYtbE9fejljV0Z1NjJQYXNKVl8wMi0wem8yODVxdFU1RHF1ODBBdVFYLUVBY1BpRF9QcmhpakhLaWlqQ2VBeTBCYTN0amdYLWktemU4TmpOdzAzR0F6cmFCSGt5TnUzdExjbExTZEhlVzQz?oc=5) |
 | Trump says prosecutor fired after gaining "UNUSUALLY STRONG" Democratic support - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOQnhQZU9JLVhCTGxiR3d1Z0NqV0FaMHhNUm85RDRUcUxNVk5OQi1TejZJTGVpazR1Y0ZINEgxOEQ1bWJOR1U3WXg3MXV2Z2ZBM1JpVXV4LWIwdmdqQ2ZOU1RNVXFxWmVjcEFPUW9GYmVOczZWdGZUWFpnM2pfX2VfWnNTT2lvSi10?oc=5) |
 | Could 2028 be the 'YouTube election’? - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPU2RYeVNwckJLaTIzVVRsMF9HNk5zbnNJVzVDQ3JBVzd6U2JsWWlUTUVRbHNVSU00NDNxaVp6b2RZWF9MeHE4OExwRmN1elZaSE9uV0M5ZjRLSEEzbW9ENkdnT0J4Vl9YclprQV85bjE3Qnp3N3JwdmRWc25iWFYwU2JkSmJST0dhWFFVb2NIMnBNdUE?oc=5) |
+| California defies Trump with bans on masked agents, new immigrant protections - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOZXN2N0ZfSURnUjNwQWMycjJ5QUFDVGNpSTVkWVpOMFFpemZyNUt6dHFzdHZmSk1RSUlDM3ZheGpqR1VDNWxBX1FzR1d0MW1tWnA3UDY2RlZBQ1Ewb3JWNUJjTVpSVDFYV19lMEVXTkNzd25zcVgyMG1ySS1acEQxTFktNA?oc=5) |
 | He Wrote a Biting Post About Charlie Kirk. The Fury Came Fast. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOSms3WHItNjNzTXJtTzliN29DNlJidDV1UEp0bkgxM3hoMnY2MkE0bFJKdW9DZzNzZS1mRjFLMzh3M3VpekprLTdWWHdpRkROMFVfSGxmVzBZak5jVTZSenBTbDVwM0FsSGNxNXE3eFk3Umx3MktneExGT0JXRnpnXw?oc=5) |
-| U.S. conducts fourth strike against vessel transferring drugs, Trump says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9pU3M0LWlpd0RWVS1FWWFRdlBrbEZGY1Q4ODZkQjI0TkhZMGgtczBoa3Y5Y3QwS2V0VG1Sd2VJZ08zTFdmZmg1RkxsUHpQM3pjMFlqMlE5OWNWWkNGRWZVREJPWlFwTEFPYTRLRE16M2dRYXd2Z25GZi12NV8?oc=5) |
 | Gaza hospital director receives bodies of brother and other relatives while on duty - CNN | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQT1VjNmZmNW9KcDNZSVE1R2gzamxlSFRnOUtDTW1EcklUeGdhc0VUTk13dDFRb2RQcWdvYXVlQ1YtTzV3em1aZ0tRTGlOTTV4cXZsQ2twVjBGaVV4ZktqenNPbU1IRHJfeHI3eDljcTlqQkg3X1FTaEdFMWFsc3liTUpaU09VRUJ3WjgyUERrd292aXY0RFk4aXhrN1g0ckE?oc=5) |
 
 ---
