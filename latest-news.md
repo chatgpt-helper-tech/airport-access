@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 07:41:36（北京时间）**
+🕒 更新时间：**2025年09月21日 07:48:59（北京时间）**
 
 ---
 
@@ -23,11 +23,11 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump’s $100,000 H1-B Visa Fee Spurs Confusion and Chaos for Companies - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQVXh4QUNSM2RsRU9uVlIzTGwyYng2S2dHSThEVFQwbGI5Q3hSSk9tT0JjU2tYbk1Jbm8zMGZkTzE5UW9pdWRnUFhIQXdfMmdiemw3cXMyTUZ2VERDVGxpOUtYUDNHa1JWdk4tSU1aMS1WNTUyYmJzUVFXYWpVYUp4SmZuSzk?oc=5) |
+| Trump’s new H-1B visa fee prompts emergency guidance from companies - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1KUjBDdElVamMweUxhOVRCdW53dGxQVTA2dnpkVW9nSXFzaWhxc3FJN0NhRGQ1OWJUSWw4Nl9jWkYtME9YY1loVzhNcnBMTWV6YVgxaFRkMDVUQjNIcHp0Y2JHeVJxMjdVcUNiRDJ5V24?oc=5) |
 | Charlie Kirk memorial in Arizona expected to draw 100,000, with Trump and Vance headlining - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOVV9XRF9qd0RoR0dyaHdxdVdOSFhTM1VVOUU5bXJYOTJlTVdzTHE0VGdadTdULVpMRVJhdzA1bGJEQWtQOGJwc2V1VjRuMV9NS0xyX1hWV28yeVlDU3JpSUdBd25wb1VoU1JEQzJlMEE4MGQ1cnR6aS1US0hNRFZkTVVHd3dlZ9IBiwFBVV95cUxQdUhINjVPVzN4dG1YUUpRcExmbVVIMDFPNnVrOVl3MmR3THN5bUhlRWdJdG1fSlhHbVhHczR5N09HUTJLUWZfbXhvTjR0OGhJbmFiQzI3c2dsaWxSVjFxZnc5ZlY1X0RNNGJPc0taYjRIVHhyWTdDaFdwUGxtSld1TG5MMGJKZ09famw4?oc=5) |
-| Trump administration taps new US attorney in eastern Virginia amid fallout from Siebert resignation - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNbnR4Tkl3TTNPWTI0Ql81V1piM0c0OWlsVVAzS3UwM0VENldTTDFReUdtbmdtdS1mcWZyT2IzV2VYa05IUHdIZ1VhaWhEWmdzS3NyX1hFRk1weGZaeGJWTlJRU0dKYmpORGZ4VktlbGJ0RXYtVXlDNmJja1U2b2E2YWwzcWdvYlZhaWVvVG5LVGhyY3Z6T0RHQl9B?oc=5) |
+| US attorney resigns amid pressure from Trump after sources say he refused to charge NY AG Letitia James - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQbDgtMDVSNG96UDRJVEsyUHZ4eXNzVXJtc3VYRFVNZU1xLVYtbnlhbTB2V19TN1hOT0U4ejFKQjgteTZVQXY0ZmYxRi11djY1cUFfTXV5Z2hhcElWenhraGtwNXQ3cTFqdDdtNjVnUm9iOGhsWG1DZ0E1VzRXMWhoUThlMWJkbmN6MTU3cW84QkItN3VpRDhVYjVPb9IBoAFBVV95cUxNSjhZYkZfcTZBUk1iS213Y3VyY1NHWjBIdFg4RDZCMldmVWs1MERYbG5NLUhDTlJYUElnXzF5cC1tODJnel9BRWx5ZzlzaWtJcUw4QWtkVWVacjRwbE1CcWVoenFhTXBodlVJYnpxMmxRUFEwVnUwYzFMNll6cjVoVkhUeDVJczBXd285T0lkbFF0RlBSd0JSMENxWWlLMHc2?oc=5) |
 | California Bars ICE Agents From Wearing Masks in the State - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1ETldCMTYxLU9EbWhNZlNwQzhDYl9EQ01TdGp3NHRfVnZ3N0lCWV92M2JOMGZBLWlRenZhMkcyVmRYaUZUQTZWYWlRc18zTXlGeFY0TDdseTUybTZCVmhQbHhWS0JZbGR1VHB0bkhkeXFERXBrbWFVVU1OaVFXV0U?oc=5) |
-| TikTok deal will be signed soon, with U.S. control of algorithm, White House says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE1sX2dONGlOeWtIZ2xuYkgxZDZGUEdsaUtsRTF5Q0dHR1lPU1VxMDZvR05KMHJHRUdBVEZscG9TQW44cVNWSVpWMTdHR3UyWlNJS2JCQjlabnduWTZNVUtJcEM4OA?oc=5) |
+| US will control TikTok’s algorithm under deal, White House says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPdDJtQXNwQjJJUDJxUHVyOUJIcDR1VERGZkJKRnpQcGhpY283YjdmOHA3bDR0U2JvVjJ0Zlg3U0swSVExYTd4VTNoWHpEd3VYQmtCeEpjZDUxR05tUllJZlQwRlkyMmhFQjlyYTJMbElKeFN4SnNRaWtwLWRWV3UtZTd2aw?oc=5) |
 | Democratic leaders in Congress demand a meeting with Trump as government shutdown looms - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQQXprQ2FzVXJFWjJTeFVHRG5sMDlnRmEyTHI3MVNQc05NTTlBS19lTEVtVk93alljTDdLaEFEbFM2QksyNzQxRVZ1SWF2ZUp0WmFrUXNZYl9kYndYR2h2cE55UkY0aDhjeHlHaDFNSEZEcElDNDBRTVJ4aWs1d19wR0puX0V6RjdhX0pYT1Fhb1hsdGhYaERJS25UY3JjOWlMTUdJN08zR2psY3VfckNVcQ?oc=5) |
 | Oklahoma Republicans propose all state colleges must have Charlie Kirk statue - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQRVZpLU5xNFRIREZXV3lXSlUtbXpSczMtdHgwTC1QaVpFZmktZTZaRUtFbFFpdG9aaEJjNEJBOXlyR0ZMUldQUkMwZmRYUVdTRjZXVzJSOEZtMlNpNzBocXVOZ1lWVVhnai0zR2lKN1VocDBTRFZ3TDlDbTl1M2lsTkpZTXJQNDJY?oc=5) |
 | Pentagon Demands Journalists Allow Government to Vet Information - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQYlhncEJzM3dpVlpCSUVzTXFSMGVWbmRCN2lYY3VLTW1xYlNuSHg4WVZuNjdMTGRVSFREZkp0dk9ja3Z2UWFqU2Fxc3Z3RHduRU1henF1cFpZTnRHb0k2QmNTWDRhYlpjNXE3eERRWXFOTlVoRERpbm1EdzNKSE1PSGY5V0RHMHRwZ2I0d0JHNE5hTlNzWE5VNWsxSXF5aFJBeHV0UzM3Q0xXaVVWaVdpMlIzYlFrdw?oc=5) |
