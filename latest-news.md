@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 09:25:53（北京时间）**
+🕒 更新时间：**2025年09月20日 09:33:59（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Tear gas used on protesters at Chicago-area ICE site as immigration crackdown escalates - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNa0VkNXJuOVg2WWhOZmJkZ0FPS1I3OW15SWRSX1Z1cWVWbjh4XzBQUldwMXRhVUlUVUliM2JvY0FUbkotNjVMeExWemMzbU5DTEpxTm83MjM0WHpDRWR3dzh5VGNXLTB3QUR1RFl5ZFBFeHUzc1ZfekdCU2k1RldtdzBaRTBiWENQeXNrOU9PZFVMTFpIOVhQalFSd2hINGxk0gFWQVVfeXFMUDJfTW9hUnZsUFh3VHdpZGc2Sjd1TmVlUVF0dFozMGFrVnVobk52Vk5NajRMM0xQMnJ1SXdaeUJJSGk1SnVkQ0RYQXF4QkxRQjlVWTJ4b0E?oc=5) |
 | Senate fails to pass stop-gap spending bills as shutdown looms - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQRF9oZVhmY1Z2Y1h3MHZQVnNuSmJoQnIzNVpCb3VWOWJIeEUzR0ZtWWh2Y2E3QktfQXk3X2F3OE9Kd2k5b2IySExaY2xYMjZ0WEJiajk3VmQtUk05SGFaVmZaNERET3BvYkJ4SXhndHVOY1RsT2EwYjdFelFRYThSZDI1WFl0d0d1S2c?oc=5) |
 | Growing memorial for fallen officers as community pays respects - WGAL | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNMUhfLXJtYnlqMVZmUFZTM3pOUHl6YUtmQUxYczNjLTBkWXY2amRsX0FnN0RoaWJzZWZpU1hJU1g2VnU3M2otSWZaZE1vN29CV0M5T0FDS0gwcGtSeGY2S1ZGQkRZVGdMTTlLN1lfZUNGY1VWLUlDWG0wVkJQamUxS3F2TGJaaGlHbXRPOTE1UGxqS1JSYXEzQWN6N0s2NGZLM2IzelBjX0pSc25yZGJv?oc=5) |
-| Florida federal judge tosses Trump’s $15B defamation lawsuit against The New York Times - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxORF80WHRCSGZhNTFTSXZDU1JSVnEtWmdOYk9UaURqZzg1YVI2enFDNnU3d00yZy1OR3NHRk1SRTl4d3pvcUJkLUhiOVFZZU8yQm1PaGJJbDBSQnFVRHYxYWVSM29ubFdraGhlN043U2JjMVlfREVyVFpUZTlYNXlrZmtXQW1qb3F5UzF3bUN0Mk9pQQ?oc=5) |
-| Man who tried to assassinate Kavanaugh in 2022 wanted to kill 3 justices, prosecutors say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9FZTRRaE5iNjhrc1pyM2hlUDlLZDJVYldsTTFHMzd4ak95RTdFbHNFZmJEWmFtT2xCMEZsM0JJdGctWjA3WlV6ck5vd015OWhvQ3k3ZUV4bkd0cWxKbEUzZDdRNVN2MkVvbFdhOWw2WXlqZ3VZZkVHVThIc9IBgAFBVV95cUxNMk8taFMxLTV2ekRiaUJwQmw3RGZoWkhRbk04NVBhd1NDSEFsYzlWV1ZYNmFGTklTelNyUm9tMWhoZDI1OU9UV29nZzA1dzh0eG9lckJMUVFUcjl6ZzZuRXNUNTFJYU56R0xCOFlldXhqX3VpMm1iWm5hNmxHSmtDNQ?oc=5) |
-| Sen. Tom Cotton ties Roy Cooper to deadly Charlotte attack in new ad campaign - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNZ19XbU9xUGF1aGhtY01qa1NiaVNoMGVwNG5faHptQzdBdWRFemF5bkJvbmttaVNQejZ1aUpYNUU5aXFRSnJBcmlGTDBRMm9aSlNYT2UtRzdUaFp4U2JTa1kyRUZiV2N6MXBtVDNqX1U0Q0hkRmdnNndza0xjNnJHV2lxekJLTEkzZ2dGbDI5WTNwRmRSdXdhUVBtWnNsQ1NvQmJRVVdmdjRRU1lNRzYyaU5RVmgzVFBNc2xn?oc=5) |
+| How a secret recording of a gender identity lecture upended Texas A&M - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPOEo0RHFtMVhLMkI0aVZPNVVMZXN0S1Y0OXBLWTFHRG1jUGw4MzlYZ3Y3eEJ5YXBFcG1YRTNLaHNQcFZSZlBEZUZaYmlVemR5SmFLMm9McnBVYldweTBCYUhYOGFfVWJqM3RHNW54QXN0aUhwa2EyVFB0VVM2QkV1emtwdU5fenkxRWEtWEJlZnQ?oc=5) |
+| Trump says US has carried out another fatal strike targeting alleged drug-smuggling boat - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPWTI0N2hkQTlOOVZkaS1sQmRETHRNazlvMzZaV3RaSHhhSF92RjVLaV9LbDdHQzVLY3RUTEZzX3NaQnJmajdXVENobmpNWlpXNmRvUEtUNEEzQ2NUbzNEMjhqOFBDLWtkOW8zR3ZRMGRheWxyeFA0M2NYZW1rWDNFOFFadG5jeENXV0E2TWJxY3ZaQQ?oc=5) |
+| US appeals court orders deportation of Atlanta journalist detained by Ice - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOX09hV19VVFhQMDNyTVNHWklLenFuSWJXb3FUejk5Q2ZRRFVqTzhBX09iQzZCVEVGWTJGLW9LQ1g0eWV0TnRCUXVOeXZlRkJXelJiT25DNGlfWTNtak0wazdCYVAzNXUxamZJRkt2M2JJUEhhaDRwMXdWaTFrdjVBejZKeGU1eTRoTWlIdUppaDNVdnRhcFI4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
