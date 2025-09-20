@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 20:57:03（北京时间）**
+🕒 更新时间：**2025年09月20日 21:01:10（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Protesters and Federal Agents Clash Outside an ICE Detention Facility Near Chicago - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5zaFBCbEVnSHhyM2tUSzQyTW1xZDJWTVpYRWRnc09MY1JHV2s2d0ltR3dJLXZvVUZBdUtPdGJSNkdoLTBXdHNhQmNQQ1o4V1RucjFya0FPNjdDWUVFeTd4ZTJTVWNMY3pSOGVMc2VSbUxIbV8zaV9FYXlTUl8?oc=5) |
 | Armed man detained at site of planned memorial service for Charlie Kirk - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQOTRyV2FDbGtoaHhVejNRdWJfNGhFYUhrREs1aWZiaEFCekdaM2w3dlNSN1ZYMll6ak0xZzNhdklJLXVJb29iWHdiUFRoTERyeW9QSFoyMjVsOTFNVmJ4em1SbnZZU25GUWEwWGdTQ0FBM2ZMM1E4VENlSXVHQ0FRc18wek1yYVdPSUdqNW94Wm9oX1F2Um40?oc=5) |
 | US military conducts third fatal strike on alleged drug smuggling vessel - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBYWHZVNGxTZWotSmF4cUpsdlBPcHRadVREMlBvM1U4Z2doa3hpWG1vMURYdll5QnhobTV4V3hzLTF4UTlQaC1RQ0lkMXZqTm5YT3FPN09pVGdzY25wZl95WGFhcUNsUC1NdHl6cHItRko?oc=5) |
-| Israeli strikes on Gaza City kill at least 14 as some countries move to recognize Palestinian state - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOM3dyRUhST0l2by1Wc3dodGRZM21ycjdUZVR4TXlIbWFQZjJfRzY0SnRVamRGdGdTNFZZTGJUYWJHdlpQT3hWUEhvc3NYZlFCazM1UHJZV0ZhRHUwU2dJS0tYQ0dFc2sxUjBNN1RtZGZfWHl5VS1EVUFhcGlnUUhpM2JpclNDZndSU0dyYnR2WFNzSzdXMjUtb0JnZjIzcWd3akliZzFONVg?oc=5) |
+| Cyberattack disrupts operations at European airports including Heathrow, Brussels - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBaMThGc1pOekJFcUxDSGl3X19PeGhwV2pLYmZHS2dHRlRpWWc2bzRuU21NQXIzRnVCTnJrSy1iRHYtdXZpOEVvQy12U2x3ZURhZ2Z6WHlFQlZYVnp3d1BDWlUxTW5XQU81ZklRODBHRkxMRk1tbE1CRHV1WQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
