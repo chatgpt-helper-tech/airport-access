@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 08:49:44（北京时间）**
+🕒 更新时间：**2025年09月20日 08:57:08（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Senate rejects both parties' bills to avoid a shutdown, leaving next steps uncertain - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOYUR5elFSbXI2U2hBa0tXdlh6ZnhWbG1pN0RTREhHaTJJVnNROGhoNmRGLVpQWTNPdjg5aWFRZ2xhZmF1eGVFcXFadUowRFZmU1EyYmNBY0lRYVVPTXRnVnpVTkV5Wk9rNkI0dHBkblFaNGNBWWRCbkZsS2hZcEFBZWdJQ09YM0lUNkNfZ04ycGI4Q3ZBZ2xkLTVOWHlPbFFhMmJ3UXdVVm9UVm5yQjBv0gFWQVVfeXFMTUtJSDZoX2twdmduVFAtRWIyNkF3YU9yTklhX1FwOFRrWlhxZ1BiYnBBRHVVWHpmRFpkQjA4eHBqMDBBVXRReHZxMGwtbGttZkRFdFJOZ2c?oc=5) |
 | Federal agents use teargas and pepper balls to break up Chicago Ice protest - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE04UjdXUFcyZVdUeC1CRnF5UFlRX1BZSFYzRk5Xd1Z1VTZCQWIzSnF5RUlvWEJKMU8wLUZqOU5QQzNHOGJselFONWxzODdwVU84dFlwTm5DNjg2ZDJhYmR5VGdMYWh1cEEzZ1VYMjZkd3BvR2R1dkNmSklhZWxadlU?oc=5) |
 | Colin Kaepernick Shows True Character After College Student Found Dead On Campus - Yahoo Sports | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOcGZITXlGdU5TSDA5d2Z1eTlFSU50MGFnVktNcXd6ZkVMSXFiM1hKSWc4SFNlTUFDaVlZNzhLcXhnZUt0YUxZRDBrNENmeWNZak5rVmsyaThoRzhQMWNfVm1yZHlqQS1UNlF4VzAxdGQ3VHY1VXN6SWVlVGdXc3RKZ0lhNEd5MzhLNEVFdTVB?oc=5) |
-| Florida federal judge tosses Trump’s $15B defamation lawsuit against The New York Times - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxORF80WHRCSGZhNTFTSXZDU1JSVnEtWmdOYk9UaURqZzg1YVI2enFDNnU3d00yZy1OR3NHRk1SRTl4d3pvcUJkLUhiOVFZZU8yQm1PaGJJbDBSQnFVRHYxYWVSM29ubFdraGhlN043U2JjMVlfREVyVFpUZTlYNXlrZmtXQW1qb3F5UzF3bUN0Mk9pQQ?oc=5) |
 | How to watch the Charlie Kirk memorial service - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNRl9oNXpRZG9wLW1SR2FzMXNKeWRDSzZEbndndmFnTFVJdkQzY2tkblhNcExLN2JaUTV1ZTZTS3dUcnlmcXE0OEtLbG9RR3JPNXJJcGpJdDZHWHYxU1RhTjJORFFVYUJ2MjhuLWpWeUpYb1RaUmNySkdrWnVKSFRPRXV1enVVbmVaTnRmcFRTZ2JEWkt00gGaAUFVX3lxTE8zaGxDWWRvM2prOWliMlotckgyaF9fdmY3UmNTVDQyZ0hRNVF1Y25zMUFuT2ZVb1ZZaXA3bTdBQ3pmcTBnX3BiT1d1bzNINUJVSm15cEdMR241T0tncFhfdlFGVnJVT2R4ZDJibXdzc0dJV0xUWHd5ZUtTc3owaUNSWTFUNktUZ2d6RFVzMDM2cjFjNDBHMGFydHc?oc=5) |
+| A gunman ambushed and killed 3 officers as they responded to a desperate plea for help, officials say - Yahoo News New Zealand | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNTko3aGRpeGlyUlBsbHJNZE1LX3RTaVFjZ1FGaGNHUzFfd3dMejN2VUNTZ05Jc1N1MnVkOF9GNVpnLXMteEhPVlI1emF0RXBlNm5GbU5Wck1tZnU0MUtuV2hJc2FjdEFvNDNWTV9JeTZZRklhcWJHNV9uZDRxMWVyb3RiWWwybWlGS3hZ?oc=5) |
 | Man who tried to assassinate Kavanaugh in 2022 wanted to kill 3 justices, prosecutors say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9FZTRRaE5iNjhrc1pyM2hlUDlLZDJVYldsTTFHMzd4ak95RTdFbHNFZmJEWmFtT2xCMEZsM0JJdGctWjA3WlV6ck5vd015OWhvQ3k3ZUV4bkd0cWxKbEUzZDdRNVN2MkVvbFdhOWw2WXlqZ3VZZkVHVThIc9IBgAFBVV95cUxNMk8taFMxLTV2ekRiaUJwQmw3RGZoWkhRbk04NVBhd1NDSEFsYzlWV1ZYNmFGTklTelNyUm9tMWhoZDI1OU9UV29nZzA1dzh0eG9lckJMUVFUcjl6ZzZuRXNUNTFJYU56R0xCOFlldXhqX3VpMm1iWm5hNmxHSmtDNQ?oc=5) |
 
 ---
