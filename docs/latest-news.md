@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 02:01:38（北京时间）**
+🕒 更新时间：**2025年09月21日 02:08:28（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | Kildunne stars as England see off France to make final | [阅读全文](https://www.bbc.com/sport/rugby-union/articles/cx20p2kx9r6o?at_medium=RSS&at_campaign=rss) |
 | Ukraine says three killed in 'massive' Russian aerial attack | [阅读全文](https://www.bbc.com/news/articles/ce3253gxqvwo?at_medium=RSS&at_campaign=rss) |
 | Dame Prue's parachute dress and Romeo Beckham's runway debut - London Fashion week in pictures | [阅读全文](https://www.bbc.com/news/articles/cd63n1wv8nlo?at_medium=RSS&at_campaign=rss) |
+| Notre-Dame's iconic towers reopen six years after fire | [阅读全文](https://www.bbc.com/news/videos/cd9yyxnejeko?at_medium=RSS&at_campaign=rss) |
 | They shed pounds with weight-loss jabs - but then came the loose skin | [阅读全文](https://www.bbc.com/news/articles/cx2500v087xo?at_medium=RSS&at_campaign=rss) |
 | Russia's answer to Eurovision is less kitsch, more Kremlin | [阅读全文](https://www.bbc.com/news/articles/cre5vv0x31po?at_medium=RSS&at_campaign=rss) |
-| Why I left all my child's school WhatsApp groups | [阅读全文](https://www.bbc.com/news/articles/ce9rxed9m5mo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -29,10 +29,10 @@
 | After diplomatic blitz on Ukraine and Gaza, Trump moves to passenger seat - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQb3FMMDRsM2NqWWg0NkdDS1hUdE9mSDN3cHBNZWtCTzlVMXl2R1Uyd1dQcTItTmJobjA1QjV3bndvcGVIVDdyUEtYT3doVzdIWGZHM0FWV1R5X1kxbi1GZWhKV0M2VDR4ZlpHUEFFWnNrRm9WS0xqTnl0dTFWMDhmZUlCVlN4X3loU0R6aGROem1uMUVYc0EyRFlJX2ZYU096OHlUYTNsa20tREFmU2tqVw?oc=5) |
 | U.S. conducts fourth strike against vessel transferring drugs, Trump says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9pU3M0LWlpd0RWVS1FWWFRdlBrbEZGY1Q4ODZkQjI0TkhZMGgtczBoa3Y5Y3QwS2V0VG1Sd2VJZ08zTFdmZmg1RkxsUHpQM3pjMFlqMlE5OWNWWkNGRWZVREJPWlFwTEFPYTRLRE16M2dRYXd2Z25GZi12NV8?oc=5) |
 | Schumer, Jeffries demand meeting with Trump amid shutdown showdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQNzBaT2g2N0p2aWpRZWFzZ29oUkxTeUlVbEk0NjMwZmlEU0lJY0I4TzR0V2hjSlkySU8xTnNkU1ZsUi1xdTFFYkFYX0JGLVRNdHJLby05NTVwcGlTVkstY0NGOVBiVTZWbUVoajhDdUgyYTVWUlFWTmIyWTBBMGdPcFNhV3lxeF9yamc?oc=5) |
-| Fact check: The fake photos, false claims and wild conspiracy theories swirling around the murder of Charlie Kirk - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1zbkgzOWpVM2ItN2htS3RSaGRkaG9JU0YzYzdnWC1Qd2ZFT3p0Q09DVDRtQUlQTk1qaV9sTFNEQ3ZSdlF3V1Zoekg5TFVOTlB3akNfb2tFcWRGVXdWV2xUZVNnTU1wWnh6MHRSWS1FUnE3enp6VHNBMXBB?oc=5) |
-| China sticks to its stance on TikTok’s US future after Trump call - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOM3BPM244ei1sZHZpRE9WdnRIS19MM1d5NUVQV2pudk92THRrb1czbVJaclpFZldWT1FnOVNjZ0prQmhVcW9QaHpWcV9obXRoSktFdnVkVFd4UWxjM3NGaXlLOGEtMHRvSGVoNkQ3dE5QTS1VQUFpXzNrVEhPWWZGYy01Y3Zsc3ZHR18tcTNySmplUjJ1TjdONXJ4RmFoSVVidnNiNkNNX2NWNWN4NGJtT0ZXUUhqX3FCUGJnWTI4QQ?oc=5) |
 | Could 2028 be the 'YouTube election’? - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPU2RYeVNwckJLaTIzVVRsMF9HNk5zbnNJVzVDQ3JBVzd6U2JsWWlUTUVRbHNVSU00NDNxaVp6b2RZWF9MeHE4OExwRmN1elZaSE9uV0M5ZjRLSEEzbW9ENkdnT0J4Vl9YclprQV85bjE3Qnp3N3JwdmRWc25iWFYwU2JkSmJST0dhWFFVb2NIMnBNdUE?oc=5) |
-| Even Tucker Carlson is worried about Trump’s free speech crackdown ｜ Arwa Mahdawi - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPWk5hY2t3OVFSRXlFUkNZSC1IbzktQTNqVE4tQXJLWVBLNU1GTm8xN2ZWanM4bzJlTE92MVZQVnBRR21PSC1wcWdIZnRZM3FiZE9LY2VzN29kN0swX0pSTjJVWHhzMkRkQmRSTC1rbm5PSXBfODVKdTVxV0gxTFRoZ0dEU0VtQkJmVTBNZXJoVnBGNnNrWDYwdGE2X0s?oc=5) |
+| Ted Cruz says FCC chair sounded like a mafia boss in threats against ABC over Jimmy Kimmel - Dallas News | [阅读全文](https://news.google.com/rss/articles/CBMi2wFBVV95cUxQMFZ0TUNlYnctMURGNFBmdHRreDNKZXA5ZTIyemlBcHFGVWYxcWFYamZzU004Q0JTbEJwV3FlSVNfQ2hnZGlIN2xoTnZvOG1hZFdPNFZfMW42cUxWYzN3VkZyMnB2UFB3aTlHSDFpTmtBS1NEVk9HSzgxbmd0SjlFY2V2RzNwblY3S2Z5V191VmtpUHI5aTBJZ3lqVXdVNjM3dUpuUEQwRkRNSW96cW5jR1hzeEZpdjVCWmFtM2htSkpEM2FVdkR4cDBzUEhuWWdKTElnRGdreEtyNkk?oc=5) |
+| U.S. attorney resigns under pressure from Trump to charge N.Y. AG Letitia James - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxORGhtTmZzemcwdmRqbTEzYUhyeFVMaUdEanA0aWpEWjF4Z2gyLTUxU0JJRTdOS2xRQm9MWDBFdVBtTTBfb0NuanpLOHpQMlJyOUdVN2NIVUtEOEd6WXlvSEh0RTRab3RYSUlkT2VFamRoMy00UEgxU1pjUVhNX3lmaERfeVNJemp3eHNBQ0FzRWRqQ2x6ZzBWYw?oc=5) |
+| Suspect Arrested In ABC Sacramento Affiliate Station Shooting – Update - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQaFN5OXV6UlJWRGhTV09WMWpITHhkRE5HZ2VWT0IydXJ4cWYtbE9fejljV0Z1NjJQYXNKVl8wMi0wem8yODVxdFU1RHF1ODBBdVFYLUVBY1BpRF9QcmhpakhLaWlqQ2VBeTBCYTN0amdYLWktemU4TmpOdzAzR0F6cmFCSGt5TnUzdExjbExTZEhlVzQz?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
