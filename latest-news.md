@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 10:09:32（北京时间）**
+🕒 更新时间：**2025年09月20日 10:17:12（北京时间）**
 
 ---
 
@@ -12,10 +12,10 @@
 | British couple freed by Taliban hug daughter in emotional reunion | [阅读全文](https://www.bbc.com/news/articles/c0q7l8ewj0wo?at_medium=RSS&at_campaign=rss) |
 | US forces strike third alleged drug vessel killing three, Trump says | [阅读全文](https://www.bbc.com/news/articles/crme4pv224wo?at_medium=RSS&at_campaign=rss) |
 | Faisal Islam: Will the US tech bromance turn around the UK economy? | [阅读全文](https://www.bbc.com/news/articles/cn4w7wp24llo?at_medium=RSS&at_campaign=rss) |
+| Queen statue will show 'grandeur and dignity,' sculptor says | [阅读全文](https://www.bbc.com/news/articles/cd9yjzd757eo?at_medium=RSS&at_campaign=rss) |
 | US TV hosts back Kimmel as Trump threatens networks | [阅读全文](https://www.bbc.com/news/articles/clyxjve3pe2o?at_medium=RSS&at_campaign=rss) |
 | Senator Ted Cruz says US broadcast regulator acted like 'mafioso' on Jimmy Kimmel | [阅读全文](https://www.bbc.com/news/articles/c1kwzgrwdd0o?at_medium=RSS&at_campaign=rss) |
 | Russia's answer to Eurovision is less kitsch, more Kremlin | [阅读全文](https://www.bbc.com/news/articles/cre5vv0x31po?at_medium=RSS&at_campaign=rss) |
-| Queen statue will show 'grandeur and dignity,' sculptor says | [阅读全文](https://www.bbc.com/news/articles/cd9yjzd757eo?at_medium=RSS&at_campaign=rss) |
 | Two ambulance workers arrested after the deaths of six people | [阅读全文](https://www.bbc.com/news/articles/cvgvnvnm0vro?at_medium=RSS&at_campaign=rss) |
 | Judge strikes down 'superfluous' Trump lawsuit against the New York Times | [阅读全文](https://www.bbc.com/news/articles/c62n7025wdgo?at_medium=RSS&at_campaign=rss) |
 
@@ -31,8 +31,8 @@
 | Trump says US struck another ‘drug smuggling vessel’, killing three - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNY3dxVjdULTNPZERieUxEanlVRjRiSnNyTlFxVnpRd2V2X1dmN0pZSDdBSmRFemw4cGVBbHlGMWZXUlRlemZlMlJ6c0tFWGZlVWI4ci1sMThVbWJCSmR2VW02MW15a2IxQW9UbXJ3VDZCbzlLb0VmLW1LVU1SNHJmdzhUa3hiYVVaZklnQmszVWVfM2ZCdTAyZFdPYlNnZWZNWWNES2RreXozXzJrZGJuT0Y0QdIBuAFBVV95cUxNQzVOcHZ6TWFfWnE3QllLUG1yS2RVQ2ozUHNwdlcwaVJBU2dPX01PMlJ2Ui1DeHBVc2hWSGd4NkZ2NUdWX3JFVHAyYUx4NlRyUW5TTnpGYmVPR3BiRExhN3RaRWF1MzR2d0xaenhuR29XZV9jUk94bV9QS3pQRXBhTzNLU3dWdFpMdWtFVFZ0eTdEaExUMjFHaTlDUXZSYlZoc3pKSEMwVkpFSXdHYk4yMk1lWWF5TUMt?oc=5) |
 | Senate rejects both parties' bills to avoid a shutdown, leaving next steps uncertain - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOYUR5elFSbXI2U2hBa0tXdlh6ZnhWbG1pN0RTREhHaTJJVnNROGhoNmRGLVpQWTNPdjg5aWFRZ2xhZmF1eGVFcXFadUowRFZmU1EyYmNBY0lRYVVPTXRnVnpVTkV5Wk9rNkI0dHBkblFaNGNBWWRCbkZsS2hZcEFBZWdJQ09YM0lUNkNfZ04ycGI4Q3ZBZ2xkLTVOWHlPbFFhMmJ3UXdVVm9UVm5yQjBv0gFWQVVfeXFMTUtJSDZoX2twdmduVFAtRWIyNkF3YU9yTklhX1FwOFRrWlhxZ1BiYnBBRHVVWHpmRFpkQjA4eHBqMDBBVXRReHZxMGwtbGttZkRFdFJOZ2c?oc=5) |
 | How a secret recording of a gender identity lecture upended Texas A&M - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPOEo0RHFtMVhLMkI0aVZPNVVMZXN0S1Y0OXBLWTFHRG1jUGw4MzlYZ3Y3eEJ5YXBFcG1YRTNLaHNQcFZSZlBEZUZaYmlVemR5SmFLMm9McnBVYldweTBCYUhYOGFfVWJqM3RHNW54QXN0aUhwa2EyVFB0VVM2QkV1emtwdU5fenkxRWEtWEJlZnQ?oc=5) |
-| Charlie Kirk Resolution Splits House Democrats - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5ObmkwMExiS09WZWdSUjZwalotc3RSLVRURHZqOGFtRXlEYkExaU1KT21ZTzU1MnpyNTBUc0tnaWl0bVVvR3U4eE8xclNhNWwxdDh5MXlocXV3NnZzdTdDQXhmMWVLdW5NMTU4SEZGdXl5dGdVall0aXgtYUM?oc=5) |
-| Colin Kaepernick Shows True Character After College Student Found Dead On Campus - Yahoo Sports | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOcGZITXlGdU5TSDA5d2Z1eTlFSU50MGFnVktNcXd6ZkVMSXFiM1hKSWc4SFNlTUFDaVlZNzhLcXhnZUt0YUxZRDBrNENmeWNZak5rVmsyaThoRzhQMWNfVm1yZHlqQS1UNlF4VzAxdGQ3VHY1VXN6SWVlVGdXc3RKZ0lhNEd5MzhLNEVFdTVB?oc=5) |
+| Trump administration asks Supreme Court to allow end of deportation protections for Venezuelans - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOZEFwaDJEVmpGcTl4QnJtZ1V2VHpIYkpJNF9NRFFoc184R1NISDJoNmtvLW9CeGdhN1l5dTVPT09UN1p1QnpkRnFNeUZtQTBzcWJmNVJobnVxTG96T1Z0UEtZSi1pVlZEOEJVUnpUTVpwdDZZUlFYYlgtOUszdWVZRzQtQWYwOU9QSEx0b2NDOEZ1MTDSAZgBQVVfeXFMTllRMGdQNXZka0NRTHYwOG1lSDhOeTZLcFNOMW45MkluLUFVVzNudl9sUjM5NUp6d0ZjQTZNY2FnZGs3aVRiT29HTm5UZ2ZOVW1XNDBMZDZ1R1V0UkJqZWZBSUlDV2ZjM2M0RnBMcWc0R3kxVlhFaXlEM2lDTU1COVBwcmhWVlduQTBlNDE3dUROZmVlSV81dW8?oc=5) |
+| House approves resolution honoring Charlie Kirk with dozens of Democrats opposed - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxONlRkOEJLNVktUGxyNGVxdjIwWHlRNVI0d0hRd2dPMWV1SDU1MHlKNmd1UEhLSmdZS1lCUXNlQU9MT2kzWGh0aFVwU1FITFk5d0xVbHlKbG5Ed0JkTlFXVFZ3RFNpUG1HUU5TSkdXVlNodnhYVmYydS1VLThIM1JRcDB1bDI0b293UW9TVGpUeV9ybTdYb3c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
