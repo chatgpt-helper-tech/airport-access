@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 19:49:03（北京时间）**
+🕒 更新时间：**2025年09月20日 19:56:16（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | They shed pounds with weight-loss jabs - but then came the loose skin | [阅读全文](https://www.bbc.com/news/articles/cx2500v087xo?at_medium=RSS&at_campaign=rss) |
 | Russia's answer to Eurovision is less kitsch, more Kremlin | [阅读全文](https://www.bbc.com/news/articles/cre5vv0x31po?at_medium=RSS&at_campaign=rss) |
 | Why I left all my child's school WhatsApp groups | [阅读全文](https://www.bbc.com/news/articles/ce9rxed9m5mo?at_medium=RSS&at_campaign=rss) |
-| I'm nothing like my Peaky Blinders character, says Cillian Murphy | [阅读全文](https://www.bbc.com/news/articles/cm2zvwmen2jo?at_medium=RSS&at_campaign=rss) |
+| England are one game away from the Rugby World Cup final. Here's how they can beat France | [阅读全文](https://www.bbc.com/sport/rugby-union/articles/crl5z22526no?at_medium=RSS&at_campaign=rss) |
 | She lived in the US for 30 Years. Now this Sikh grandmother is locked up and faces deportation | [阅读全文](https://www.bbc.com/news/articles/ckgq63lgn7zo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
