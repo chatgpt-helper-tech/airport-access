@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 12:24:56（北京时间）**
+🕒 更新时间：**2025年09月20日 12:32:49（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Man who tried to assassinate Kavanaugh in 2022 wanted to kill 3 justices, prosecutors say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9FZTRRaE5iNjhrc1pyM2hlUDlLZDJVYldsTTFHMzd4ak95RTdFbHNFZmJEWmFtT2xCMEZsM0JJdGctWjA3WlV6ck5vd015OWhvQ3k3ZUV4bkd0cWxKbEUzZDdRNVN2MkVvbFdhOWw2WXlqZ3VZZkVHVThIc9IBgAFBVV95cUxNMk8taFMxLTV2ekRiaUJwQmw3RGZoWkhRbk04NVBhd1NDSEFsYzlWV1ZYNmFGTklTelNyUm9tMWhoZDI1OU9UV29nZzA1dzh0eG9lckJMUVFUcjl6ZzZuRXNUNTFJYU56R0xCOFlldXhqX3VpMm1iWm5hNmxHSmtDNQ?oc=5) |
 | Trump administration asks Supreme Court to allow end of deportation protections for Venezuelans - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOZEFwaDJEVmpGcTl4QnJtZ1V2VHpIYkpJNF9NRFFoc184R1NISDJoNmtvLW9CeGdhN1l5dTVPT09UN1p1QnpkRnFNeUZtQTBzcWJmNVJobnVxTG96T1Z0UEtZSi1pVlZEOEJVUnpUTVpwdDZZUlFYYlgtOUszdWVZRzQtQWYwOU9QSEx0b2NDOEZ1MTDSAZgBQVVfeXFMTllRMGdQNXZka0NRTHYwOG1lSDhOeTZLcFNOMW45MkluLUFVVzNudl9sUjM5NUp6d0ZjQTZNY2FnZGs3aVRiT29HTm5UZ2ZOVW1XNDBMZDZ1R1V0UkJqZWZBSUlDV2ZjM2M0RnBMcWc0R3kxVlhFaXlEM2lDTU1COVBwcmhWVlduQTBlNDE3dUROZmVlSV81dW8?oc=5) |
 | Trump Says U.S. Military Attacked a Third Suspected Drug Boat, Killing Three - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPTVJmcUQtRllmSkpCTEQ1RUhsTUp2ZmgzVFAyWVEzT1RtWVRQZUhqUzA1SzNBSjUtYmxMcUZLbnpjWWJ3U0hRT1VlSUY2SE9NeVlQclRiaUtpQ2U1N3JfcGhRUzBJS2Z5MzZlV0NjMU9XVVhaNjhBQlEzVGM3eFZUMg?oc=5) |
-| Senate rejects both parties' bills to avoid a shutdown, leaving next steps uncertain - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOYUR5elFSbXI2U2hBa0tXdlh6ZnhWbG1pN0RTREhHaTJJVnNROGhoNmRGLVpQWTNPdjg5aWFRZ2xhZmF1eGVFcXFadUowRFZmU1EyYmNBY0lRYVVPTXRnVnpVTkV5Wk9rNkI0dHBkblFaNGNBWWRCbkZsS2hZcEFBZWdJQ09YM0lUNkNfZ04ycGI4Q3ZBZ2xkLTVOWHlPbFFhMmJ3UXdVVm9UVm5yQjBv0gFWQVVfeXFMTUtJSDZoX2twdmduVFAtRWIyNkF3YU9yTklhX1FwOFRrWlhxZ1BiYnBBRHVVWHpmRFpkQjA4eHBqMDBBVXRReHZxMGwtbGttZkRFdFJOZ2c?oc=5) |
+| Partisan stopgap funding bills fall short in Senate - Roll Call | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNWEltQ19rUFgyXzVTQnprZnVad1dQc2J6LUJSRDlmdGJKenVlclhLcTkyWnd1QjljQWVwN1BJSGNjRFNya0hOVjZHOVBHNzNqSVplVEhfYWZXZVd0R2EzLWhPNFBnTUNSNHRsbmZCY05DSms3SlFyaXVOWkRUYm5OYktFc05xeVhlZlBNUA?oc=5) |
 | House approves resolution honoring Charlie Kirk with dozens of Democrats opposed - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxONlRkOEJLNVktUGxyNGVxdjIwWHlRNVI0d0hRd2dPMWV1SDU1MHlKNmd1UEhLSmdZS1lCUXNlQU9MT2kzWGh0aFVwU1FITFk5d0xVbHlKbG5Ed0JkTlFXVFZ3RFNpUG1HUU5TSkdXVlNodnhYVmYydS1VLThIM1JRcDB1bDI0b293UW9TVGpUeV9ybTdYb3c?oc=5) |
 
 ---
