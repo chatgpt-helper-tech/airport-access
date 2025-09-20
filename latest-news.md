@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 19:00:19（北京时间）**
+🕒 更新时间：**2025年09月20日 19:08:56（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Heathrow among European airports facing delays after cyber-attack | [阅读全文](https://www.bbc.com/news/articles/c3drpgv33pxo?at_medium=RSS&at_campaign=rss) |
+| Cyber-attack causes delays at Heathrow and other European airports | [阅读全文](https://www.bbc.com/news/articles/c3drpgv33pxo?at_medium=RSS&at_campaign=rss) |
 | Son of British couple held by Taliban 'ecstatic' as they return to UK | [阅读全文](https://www.bbc.com/news/articles/cly6ve2dg66o?at_medium=RSS&at_campaign=rss) |
 | Estonia seeks Nato consultation after Russian jets violate airspace | [阅读全文](https://www.bbc.com/news/articles/czrp6p5mj3zo?at_medium=RSS&at_campaign=rss) |
 | Republican senator says US TV regulator acted like 'mafioso' on Jimmy Kimmel | [阅读全文](https://www.bbc.com/news/articles/c1kwzgrwdd0o?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | Congressional candidate thrown to ground, protesters tear gassed in clashes at Broadview ICE facility - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQcExNN25CYUFsQ2VCMjVCcEttS0tZM0FDeDc0elY1OGdtWXdRd0VXS1YtTHVuY0dQNmRXVmNlbzJqLWZWQV9vakFfRTZDcXQyU3E4SW94bzZlcEY4N01manhYY0NiS3Q5SENvQlJYcnRxQ25zckhVNjNvT042QTFweTl5VQ?oc=5) |
 | How to watch the Charlie Kirk memorial service - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNRl9oNXpRZG9wLW1SR2FzMXNKeWRDSzZEbndndmFnTFVJdkQzY2tkblhNcExLN2JaUTV1ZTZTS3dUcnlmcXE0OEtLbG9RR3JPNXJJcGpJdDZHWHYxU1RhTjJORFFVYUJ2MjhuLWpWeUpYb1RaUmNySkdrWnVKSFRPRXV1enVVbmVaTnRmcFRTZ2JEWkt00gGaAUFVX3lxTE8zaGxDWWRvM2prOWliMlotckgyaF9fdmY3UmNTVDQyZ0hRNVF1Y25zMUFuT2ZVb1ZZaXA3bTdBQ3pmcTBnX3BiT1d1bzNINUJVSm15cEdMR241T0tncFhfdlFGVnJVT2R4ZDJibXdzc0dJV0xUWHd5ZUtTc3owaUNSWTFUNktUZ2d6RFVzMDM2cjFjNDBHMGFydHc?oc=5) |
 | US military conducts third fatal strike on alleged drug smuggling vessel - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBYWHZVNGxTZWotSmF4cUpsdlBPcHRadVREMlBvM1U4Z2doa3hpWG1vMURYdll5QnhobTV4V3hzLTF4UTlQaC1RQ0lkMXZqTm5YT3FPN09pVGdzY25wZl95WGFhcUNsUC1NdHl6cHItRko?oc=5) |
-| Senate rejects both parties' bills to avoid a shutdown, leaving next steps uncertain - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOYUR5elFSbXI2U2hBa0tXdlh6ZnhWbG1pN0RTREhHaTJJVnNROGhoNmRGLVpQWTNPdjg5aWFRZ2xhZmF1eGVFcXFadUowRFZmU1EyYmNBY0lRYVVPTXRnVnpVTkV5Wk9rNkI0dHBkblFaNGNBWWRCbkZsS2hZcEFBZWdJQ09YM0lUNkNfZ04ycGI4Q3ZBZ2xkLTVOWHlPbFFhMmJ3UXdVVm9UVm5yQjBv?oc=5) |
+| Senate rejects both parties' bills to avoid a shutdown, leaving next steps uncertain - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOYUR5elFSbXI2U2hBa0tXdlh6ZnhWbG1pN0RTREhHaTJJVnNROGhoNmRGLVpQWTNPdjg5aWFRZ2xhZmF1eGVFcXFadUowRFZmU1EyYmNBY0lRYVVPTXRnVnpVTkV5Wk9rNkI0dHBkblFaNGNBWWRCbkZsS2hZcEFBZWdJQ09YM0lUNkNfZ04ycGI4Q3ZBZ2xkLTVOWHlPbFFhMmJ3UXdVVm9UVm5yQjBv0gFWQVVfeXFMTUtJSDZoX2twdmduVFAtRWIyNkF3YU9yTklhX1FwOFRrWlhxZ1BiYnBBRHVVWHpmRFpkQjA4eHBqMDBBVXRReHZxMGwtbGttZkRFdFJOZ2c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
