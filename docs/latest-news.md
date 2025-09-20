@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 13:57:38（北京时间）**
+🕒 更新时间：**2025年09月20日 14:00:07（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Senator Ted Cruz says US broadcast regulator acted like 'mafioso' on Jimmy Kimmel | [阅读全文](https://www.bbc.com/news/articles/c1kwzgrwdd0o?at_medium=RSS&at_campaign=rss) |
 | US forces strike third alleged drug vessel killing three, Trump says | [阅读全文](https://www.bbc.com/news/articles/crme4pv224wo?at_medium=RSS&at_campaign=rss) |
 | Key oceans treaty crosses threshold to come into force | [阅读全文](https://www.bbc.com/news/articles/cq5j87114deo?at_medium=RSS&at_campaign=rss) |
-| Judge strikes down 'superfluous' Trump lawsuit against the New York Times | [阅读全文](https://www.bbc.com/news/articles/c62n7025wdgo?at_medium=RSS&at_campaign=rss) |
+| Trump adds $100,000 fee for skilled worker visa applicants | [阅读全文](https://www.bbc.com/news/articles/cm2zk4l8g26o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
