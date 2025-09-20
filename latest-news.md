@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 18:48:10（北京时间）**
+🕒 更新时间：**2025年09月20日 18:57:28（北京时间）**
 
 ---
 
@@ -8,13 +8,13 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Heathrow delays after cyber-attack on check-in system | [阅读全文](https://www.bbc.com/news/articles/c3drpgv33pxo?at_medium=RSS&at_campaign=rss) |
+| Heathrow among European airports facing delays after cyber-attack | [阅读全文](https://www.bbc.com/news/articles/c3drpgv33pxo?at_medium=RSS&at_campaign=rss) |
 | Son of British couple held by Taliban 'ecstatic' as they return to UK | [阅读全文](https://www.bbc.com/news/articles/cly6ve2dg66o?at_medium=RSS&at_campaign=rss) |
 | Estonia seeks Nato consultation after Russian jets violate airspace | [阅读全文](https://www.bbc.com/news/articles/czrp6p5mj3zo?at_medium=RSS&at_campaign=rss) |
 | Republican senator says US TV regulator acted like 'mafioso' on Jimmy Kimmel | [阅读全文](https://www.bbc.com/news/articles/c1kwzgrwdd0o?at_medium=RSS&at_campaign=rss) |
 | Ed Davey loves clowning around, but is it time the Lib Dems get serious? | [阅读全文](https://www.bbc.com/news/articles/c3e7ny8n44jo?at_medium=RSS&at_campaign=rss) |
-| Russia's answer to Eurovision is less kitsch, more Kremlin | [阅读全文](https://www.bbc.com/news/articles/cre5vv0x31po?at_medium=RSS&at_campaign=rss) |
 | They shed pounds with weight-loss jabs - but then came the loose skin | [阅读全文](https://www.bbc.com/news/articles/cx2500v087xo?at_medium=RSS&at_campaign=rss) |
+| Russia's answer to Eurovision is less kitsch, more Kremlin | [阅读全文](https://www.bbc.com/news/articles/cre5vv0x31po?at_medium=RSS&at_campaign=rss) |
 | Why I left all my child's school WhatsApp groups | [阅读全文](https://www.bbc.com/news/articles/ce9rxed9m5mo?at_medium=RSS&at_campaign=rss) |
 | I'm nothing like my Peaky Blinders character, says Cillian Murphy | [阅读全文](https://www.bbc.com/news/articles/cm2zvwmen2jo?at_medium=RSS&at_campaign=rss) |
 | She lived in the US for 30 Years. Now this Sikh grandmother is locked up and faces deportation | [阅读全文](https://www.bbc.com/news/articles/ckgq63lgn7zo?at_medium=RSS&at_campaign=rss) |
