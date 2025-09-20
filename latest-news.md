@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 08:41:55（北京时间）**
+🕒 更新时间：**2025年09月20日 08:49:43（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Colin Kaepernick Shows True Character After College Student Found Dead On Campus - Yahoo Sports | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOcGZITXlGdU5TSDA5d2Z1eTlFSU50MGFnVktNcXd6ZkVMSXFiM1hKSWc4SFNlTUFDaVlZNzhLcXhnZUt0YUxZRDBrNENmeWNZak5rVmsyaThoRzhQMWNfVm1yZHlqQS1UNlF4VzAxdGQ3VHY1VXN6SWVlVGdXc3RKZ0lhNEd5MzhLNEVFdTVB?oc=5) |
 | Florida federal judge tosses Trump’s $15B defamation lawsuit against The New York Times - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxORF80WHRCSGZhNTFTSXZDU1JSVnEtWmdOYk9UaURqZzg1YVI2enFDNnU3d00yZy1OR3NHRk1SRTl4d3pvcUJkLUhiOVFZZU8yQm1PaGJJbDBSQnFVRHYxYWVSM29ubFdraGhlN043U2JjMVlfREVyVFpUZTlYNXlrZmtXQW1qb3F5UzF3bUN0Mk9pQQ?oc=5) |
 | How to watch the Charlie Kirk memorial service - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNRl9oNXpRZG9wLW1SR2FzMXNKeWRDSzZEbndndmFnTFVJdkQzY2tkblhNcExLN2JaUTV1ZTZTS3dUcnlmcXE0OEtLbG9RR3JPNXJJcGpJdDZHWHYxU1RhTjJORFFVYUJ2MjhuLWpWeUpYb1RaUmNySkdrWnVKSFRPRXV1enVVbmVaTnRmcFRTZ2JEWkt00gGaAUFVX3lxTE8zaGxDWWRvM2prOWliMlotckgyaF9fdmY3UmNTVDQyZ0hRNVF1Y25zMUFuT2ZVb1ZZaXA3bTdBQ3pmcTBnX3BiT1d1bzNINUJVSm15cEdMR241T0tncFhfdlFGVnJVT2R4ZDJibXdzc0dJV0xUWHd5ZUtTc3owaUNSWTFUNktUZ2d6RFVzMDM2cjFjNDBHMGFydHc?oc=5) |
-| Harvard Receives $46 Million in Federal Grants, Ending 4-Month Freeze - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE0xeTNUWEZFRlNBR0QwUEg1ajJwWkhZVHg3bDctZEpIcm5hQno1cXJyQkhWMHBfLUNTSlh3TkN0OU1NVTNGckloeG9hVUc3bjFkc0ZkX2VES3Q0OERWZV9JR3E0b2ZsT0xaZi00SVZaekpCVDdjdkE?oc=5) |
+| Man who tried to assassinate Kavanaugh in 2022 wanted to kill 3 justices, prosecutors say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9FZTRRaE5iNjhrc1pyM2hlUDlLZDJVYldsTTFHMzd4ak95RTdFbHNFZmJEWmFtT2xCMEZsM0JJdGctWjA3WlV6ck5vd015OWhvQ3k3ZUV4bkd0cWxKbEUzZDdRNVN2MkVvbFdhOWw2WXlqZ3VZZkVHVThIc9IBgAFBVV95cUxNMk8taFMxLTV2ekRiaUJwQmw3RGZoWkhRbk04NVBhd1NDSEFsYzlWV1ZYNmFGTklTelNyUm9tMWhoZDI1OU9UV29nZzA1dzh0eG9lckJMUVFUcjl6ZzZuRXNUNTFJYU56R0xCOFlldXhqX3VpMm1iWm5hNmxHSmtDNQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
