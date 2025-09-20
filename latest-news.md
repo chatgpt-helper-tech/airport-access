@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 07:09:43（北京时间）**
+🕒 更新时间：**2025年09月21日 07:17:53（北京时间）**
 
 ---
 
@@ -27,7 +27,7 @@
 | Charlie Kirk memorial in Arizona expected to draw 100,000, with Trump and Vance headlining - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOVV9XRF9qd0RoR0dyaHdxdVdOSFhTM1VVOUU5bXJYOTJlTVdzTHE0VGdadTdULVpMRVJhdzA1bGJEQWtQOGJwc2V1VjRuMV9NS0xyX1hWV28yeVlDU3JpSUdBd25wb1VoU1JEQzJlMEE4MGQ1cnR6aS1US0hNRFZkTVVHd3dlZ9IBiwFBVV95cUxQdUhINjVPVzN4dG1YUUpRcExmbVVIMDFPNnVrOVl3MmR3THN5bUhlRWdJdG1fSlhHbVhHczR5N09HUTJLUWZfbXhvTjR0OGhJbmFiQzI3c2dsaWxSVjFxZnc5ZlY1X0RNNGJPc0taYjRIVHhyWTdDaFdwUGxtSld1TG5MMGJKZ09famw4?oc=5) |
 | Trump administration taps new US attorney in eastern Virginia amid fallout from Siebert resignation - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNbnR4Tkl3TTNPWTI0Ql81V1piM0c0OWlsVVAzS3UwM0VENldTTDFReUdtbmdtdS1mcWZyT2IzV2VYa05IUHdIZ1VhaWhEWmdzS3NyX1hFRk1weGZaeGJWTlJRU0dKYmpORGZ4VktlbGJ0RXYtVXlDNmJja1U2b2E2YWwzcWdvYlZhaWVvVG5LVGhyY3Z6T0RHQl9B?oc=5) |
 | Top Democratic Leaders Ask Trump for Meeting to Avert a Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9WQ2VOVENfdUlzSDl1TUZkazhrZVk5dERId1RRb1dQRno4ZVNUUk14dzhacTVsb0dWSloyZlVaRzJhOGJGaFluZXBUaWNMMk5pdzZIMS0tUXotU1pYNWUzQWVkLTdpWWhQZFNtd25qZG82VHZMQ09NTzcxa0pIdms?oc=5) |
-| California Bars ICE Agents From Wearing Masks in the State - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1ETldCMTYxLU9EbWhNZlNwQzhDYl9EQ01TdGp3NHRfVnZ3N0lCWV92M2JOMGZBLWlRenZhMkcyVmRYaUZUQTZWYWlRc18zTXlGeFY0TDdseTUybTZCVmhQbHhWS0JZbGR1VHB0bkhkeXFERXBrbWFVVU1OaVFXV0U?oc=5) |
+| California becomes first state to ban face coverings for most law enforcement - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxORy1ETjFlT04ydnV0RmFETHJ3RGJXWThPV3dHWFdVbXJadWJkVVVmZ0dKV25KekcweWctTmNDMnJEckN5M1FJaXpQSm5wSjJYOUpoZVpaQ2xmSjREUm5hdzRzUXVBSWJKSjd0VzNUU3YyZTQ3anZ1UkpxYVVwTl9JNVZLUG12aHliaGZV?oc=5) |
 | TikTok deal will be signed soon, with U.S. control of algorithm, White House says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE1sX2dONGlOeWtIZ2xuYkgxZDZGUEdsaUtsRTF5Q0dHR1lPU1VxMDZvR05KMHJHRUdBVEZscG9TQW44cVNWSVpWMTdHR3UyWlNJS2JCQjlabnduWTZNVUtJcEM4OA?oc=5) |
 | Pentagon Demands Journalists Allow Government to Vet Information - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQYlhncEJzM3dpVlpCSUVzTXFSMGVWbmRCN2lYY3VLTW1xYlNuSHg4WVZuNjdMTGRVSFREZkp0dk9ja3Z2UWFqU2Fxc3Z3RHduRU1henF1cFpZTnRHb0k2QmNTWDRhYlpjNXE3eERRWXFOTlVoRERpbm1EdzNKSE1PSGY5V0RHMHRwZ2I0d0JHNE5hTlNzWE5VNWsxSXF5aFJBeHV0UzM3Q0xXaVVWaVdpMlIzYlFrdw?oc=5) |
 | Colorado Republicans joined by 1 Democrat in supporting Kirk resolution in Congress - Colorado Newsline | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9TblZXckh4WjJfVGVjRkd4aWk1VkdZdkNYek96N0NwNGRqRktCcUZqcDRFcGJKSzh0ZDl4UXhFdEEwNnIyZGpzQmdzN212UWU4XzlMQnk4RkVsNlhjdjZvVFZoak1zcHlPaDQ0NkEyMVE3NnB6MC04bnd2M2RlZw?oc=5) |
