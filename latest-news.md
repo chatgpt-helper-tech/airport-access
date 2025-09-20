@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月20日 09:40:57（北京时间）**
+🕒 更新时间：**2025年09月20日 09:48:05（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Tear gas used on protesters at Chicago-area ICE site as immigration crackdown escalates - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNa0VkNXJuOVg2WWhOZmJkZ0FPS1I3OW15SWRSX1Z1cWVWbjh4XzBQUldwMXRhVUlUVUliM2JvY0FUbkotNjVMeExWemMzbU5DTEpxTm83MjM0WHpDRWR3dzh5VGNXLTB3QUR1RFl5ZFBFeHUzc1ZfekdCU2k1RldtdzBaRTBiWENQeXNrOU9PZFVMTFpIOVhQalFSd2hINGxk0gFWQVVfeXFMUDJfTW9hUnZsUFh3VHdpZGc2Sjd1TmVlUVF0dFozMGFrVnVobk52Vk5NajRMM0xQMnJ1SXdaeUJJSGk1SnVkQ0RYQXF4QkxRQjlVWTJ4b0E?oc=5) |
 | Senate fails to pass stop-gap spending bills as shutdown looms - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQRF9oZVhmY1Z2Y1h3MHZQVnNuSmJoQnIzNVpCb3VWOWJIeEUzR0ZtWWh2Y2E3QktfQXk3X2F3OE9Kd2k5b2IySExaY2xYMjZ0WEJiajk3VmQtUk05SGFaVmZaNERET3BvYkJ4SXhndHVOY1RsT2EwYjdFelFRYThSZDI1WFl0d0d1S2c?oc=5) |
 | Trump says US struck another ‘drug smuggling vessel’, killing three - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNY3dxVjdULTNPZERieUxEanlVRjRiSnNyTlFxVnpRd2V2X1dmN0pZSDdBSmRFemw4cGVBbHlGMWZXUlRlemZlMlJ6c0tFWGZlVWI4ci1sMThVbWJCSmR2VW02MW15a2IxQW9UbXJ3VDZCbzlLb0VmLW1LVU1SNHJmdzhUa3hiYVVaZklnQmszVWVfM2ZCdTAyZFdPYlNnZWZNWWNES2RreXozXzJrZGJuT0Y0QdIBuAFBVV95cUxNQzVOcHZ6TWFfWnE3QllLUG1yS2RVQ2ozUHNwdlcwaVJBU2dPX01PMlJ2Ui1DeHBVc2hWSGd4NkZ2NUdWX3JFVHAyYUx4NlRyUW5TTnpGYmVPR3BiRExhN3RaRWF1MzR2d0xaenhuR29XZV9jUk94bV9QS3pQRXBhTzNLU3dWdFpMdWtFVFZ0eTdEaExUMjFHaTlDUXZSYlZoc3pKSEMwVkpFSXdHYk4yMk1lWWF5TUMt?oc=5) |
-| How a secret recording of a gender identity lecture upended Texas A&M - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPOEo0RHFtMVhLMkI0aVZPNVVMZXN0S1Y0OXBLWTFHRG1jUGw4MzlYZ3Y3eEJ5YXBFcG1YRTNLaHNQcFZSZlBEZUZaYmlVemR5SmFLMm9McnBVYldweTBCYUhYOGFfVWJqM3RHNW54QXN0aUhwa2EyVFB0VVM2QkV1emtwdU5fenkxRWEtWEJlZnQ?oc=5) |
-| Judge strikes down Trump’s $15 billion suit against the New York Times - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOT0htRDhsQi0wSllyZEZCcXFZY3c4d0JUYmJISW44a0VCMHRUQm0yLU1XX1drN2NzWG85WVRXbDN3YjRFRGplTWlvdU94VGVzQXVDa1d0Zkl3U09NRW9kb3lRU20yTmxQWm5BTUpCQzlleGx2aFFWNi1YTTlkSXlRX2lXZWhHMll4cU11dkJrN0pTQzlLMi1PeFRBSDVKb3FvVFdtOWRWTG1FVk56MHd6MlhtNmtRODA?oc=5) |
+| ABC Sacramento Affiliate Station Hit By Gunshots, Police Say - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNcHNsR3BkSGNxVEVvMDZfWDZBWUx1SWZPWWdyQ3VuY3B3blNiQnNudUk1Qy00N1dwWC1aR2hKUnZEMVZkeFdqT3NONGJFblFxV1diYXp0czFoWWhEaEVuWkxKQlZmVWw4U2k3dVhCVy1tY19oMjFkOWhRdmxwUlJZVHBmTW9MMmlGcURF?oc=5) |
 | A gunman ambushed and killed 3 officers as they responded to a desperate plea for help, officials say - Yahoo News New Zealand | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNTko3aGRpeGlyUlBsbHJNZE1LX3RTaVFjZ1FGaGNHUzFfd3dMejN2VUNTZ05Jc1N1MnVkOF9GNVpnLXMteEhPVlI1emF0RXBlNm5GbU5Wck1tZnU0MUtuV2hJc2FjdEFvNDNWTV9JeTZZRklhcWJHNV9uZDRxMWVyb3RiWWwybWlGS3hZ?oc=5) |
+| Sen. Tom Cotton ties Roy Cooper to deadly Charlotte attack in new ad campaign - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNZ19XbU9xUGF1aGhtY01qa1NiaVNoMGVwNG5faHptQzdBdWRFemF5bkJvbmttaVNQejZ1aUpYNUU5aXFRSnJBcmlGTDBRMm9aSlNYT2UtRzdUaFp4U2JTa1kyRUZiV2N6MXBtVDNqX1U0Q0hkRmdnNndza0xjNnJHV2lxekJLTEkzZ2dGbDI5WTNwRmRSdXdhUVBtWnNsQ1NvQmJRVVdmdjRRU1lNRzYyaU5RVmgzVFBNc2xn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
