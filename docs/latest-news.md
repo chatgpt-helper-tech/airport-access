@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 17:08:59（北京时间）**
+🕒 更新时间：**2025年09月21日 17:17:01（北京时间）**
 
 ---
 
@@ -24,10 +24,10 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Tech Companies Warn H-1B Visa Holders to Avoid Foreign Travel - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQVmtUOEhHUHNOQk56NTN1R1o1VWoxZ2JKNnFpRkRGdm1QNFk3NnVmTC1RMVhKeGdNTFZ1bW9kcFcxMURYcjBXVGR0aFpuWnMzRGVRMEg5MWxyR09QY0Q0M1k2LXcxMWdaOWwyRkNLeHdXMHNsNFdGa3BxS3ZEUEJIS3cyN1ZHd2FQMTJjMkdRNDBhMzQwZEg1UzZZZ3ZfTjBlM1NHWlBZNlYyUkllX2VTSUdxX3c?oc=5) |
-| Tight security as US right gathers for Charlie Kirk memorial - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE4xRVdTZXlMY3JWXzlEYkpSQzJVa3FFUDNfTk1HWFEwYzNZM0pEMURXUkRQSGhjQ2pGa1YtMXhjS1Zsa3hzQjhQdmNhdmE5U0dTSHN3SFdQeE02UdIBX0FVX3lxTE0wMWF6R2F0QVczSmY5RVh4blA5b3RfcTg0a2ZOcHNQSng2NldyVDUtaUxVSE0zZVNFaDZkNDVFb2lROC1PY3JFNVdia2xJQ1I0bVBHQlptbmFjSUpJS0Jz?oc=5) |
+| Arrest in Arizona Before Charlie Kirk Memorial Heightens Security Concerns - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOSy1EQ1UwSnVzZXk5djdqSjBaRHpnR01mOGczdWVlT09abURYSkgyRWlyMV9FYnhLU0NIbmhzU3RjNTFvLTUtR3ZkZ3IwMEpSQmRZbGs0RzRyUlNoc01fSUlxS2dfc2ZTRWQ3MWJmTENrbWZ2R1ZEeERnVWpjYXZSb1JYeVItSDZL?oc=5) |
 | Trump demands Bondi prosecute political foes in Truth Social posts - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOM1hnZC1qUUFCOXlZOGYwaThRclRQaGROVkhKdWFuMkxNZ1ByMnJrZ3gzRXh2VVJmU1RsSFdXMldCZlo4V0VuVGlDb1NUSUVaaUd2cEpCUkh0YU1OYzRFZFVUakJTMXl0eS1uT1Z2elpuQkpidWlxWDhfakJ4UU52RFJsSzdiT1VMNWt4a2hZaGpVNXFYcDd3bHJVOFlPUG9XX3NIbGw5OHN6UkhiLVhtNGpYQmMzNnhybDZhdXYxZw?oc=5) |
 | California bans masks on ICE officers as Newsom strikes back at Trump on deportations - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPZTF6eU5rYVVrQnltRWFVM1RfRUpWWFNHYkxvQ2JobEZxTExnVWg1amdrSmJaT3ItaDJZc19pb0FyQ285R0RDTFk1VHYwLTZCYV8zbU9fT190UTludWNpbU9YYkRBNFBJa3NsNFRsNTFtTWlacGJsdnFLZzY2WWdReTdmV0NjaHl3TlpHRHJZRQ?oc=5) |
-| Man Charged After Drive-by Shooting at Local ABC Station in Sacramento - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNbkFfVGN4eUdTbjZEQWc1OVdJdDU0YzJ5UkJSNWwxaXpWRlBmZEhndkIxNlhJbUdSVVV1UUM4aWs5QVZNTHNCdUFrM1IxN3l0eDVmdUZjVm9xZjdRZEIxSU85Z09OQ1N4YkI5dms0bmZiSXlGUnl3TGs2LUFMM2Y4clFocGw?oc=5) |
+| Man arrested after drive-by shooting at ABC TV station in Sacramento - NPR | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE5ZejZKRVM5TlUxaXlqel9uYzRVLV9uTE5YRjhRMlBfMi1fQU9qVTB2OUMzMWVoU21aX2o4a0RzMVhxUDJuTjFQRTBzOTRmemJyQmJDdll6WFljM1p1Q3ZoWVpkV2RzaHZUc1BXU3kzV2lDZy1C?oc=5) |
 | Trump says he is appointing Lindsey Halligan, one of his former attorneys, to lead key prosecutor's office - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQZlB3TFV1U2g2cFhSWk1SMVY4SThUVGoxbkRpWTZwQndRMHZpQW4wbVFrb2NmSkh1ak5YRWt1UUR0WW8tanVJR01saGdfa0JTQzJTdm42VHJCWU5KVkdkbnhGNVV1MlJXUlB1YXUyRHRINU5tYUFYMGpEWjBzaFF3ZmstY0JQNE9hdkI5WmZzWVVZSTg0UHVvUVFlYUxIY1FTeGFPeThXVFYzUmlyUEHSAbMBQVVfeXFMUDQwQjVOUXJoWWprbThCT0o2TEhXcFZLN1FKaUFuNUVJLVpLTnQ0TGlORmtfQlUtNzFYb0xXTU5hcnQ3VTNWbVRvbDZiSW9UYk5TSk52TmxHVWhlQk1qWE5kVHJOVjVZbExXM2J5bHRuU0xZd3ZkTVhDSkVMOGZrMVh2R3JmM0dCT2E3NGxMZ3hLdUx6QjA0Y0xvNGp2cUl0V3prSFJGZXpmcHdBMHNXWG1NbGM?oc=5) |
 | Oklahoma Republicans propose all state colleges must have Charlie Kirk statue - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQRVZpLU5xNFRIREZXV3lXSlUtbXpSczMtdHgwTC1QaVpFZmktZTZaRUtFbFFpdG9aaEJjNEJBOXlyR0ZMUldQUkMwZmRYUVdTRjZXVzJSOEZtMlNpNzBocXVOZ1lWVVhnai0zR2lKN1VocDBTRFZ3TDlDbTl1M2lsTkpZTXJQNDJY?oc=5) |
 | Schumer, Jeffries demand meeting with Trump amid shutdown showdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQNzBaT2g2N0p2aWpRZWFzZ29oUkxTeUlVbEk0NjMwZmlEU0lJY0I4TzR0V2hjSlkySU8xTnNkU1ZsUi1xdTFFYkFYX0JGLVRNdHJLby05NTVwcGlTVkstY0NGOVBiVTZWbUVoajhDdUgyYTVWUlFWTmIyWTBBMGdPcFNhV3lxeF9yamc?oc=5) |
