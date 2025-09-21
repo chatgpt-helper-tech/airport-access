@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 15:33:15（北京时间）**
+🕒 更新时间：**2025年09月21日 15:40:53（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | Former Liverpool manager Beard dies aged 47 | [阅读全文](https://www.bbc.com/sport/football/articles/c0r00qx5llko?at_medium=RSS&at_campaign=rss) |
 | Ed Davey urges regulator to go after Musk over X 'crimes' | [阅读全文](https://www.bbc.com/news/articles/c5y558r2r1qo?at_medium=RSS&at_campaign=rss) |
 | RAF jets join Nato air defence mission over Poland | [阅读全文](https://www.bbc.com/news/articles/c4g7752w1ygo?at_medium=RSS&at_campaign=rss) |
-| Curtain rises on Strictly 2025 as new couples revealed | [阅读全文](https://www.bbc.com/news/articles/cy9nnl78dgzo?at_medium=RSS&at_campaign=rss) |
+| Vietnamese singer Duc Phuc wins Russia's Intervision song contest | [阅读全文](https://www.bbc.com/news/videos/cvg998q0557o?at_medium=RSS&at_campaign=rss) |
 | Creatine - can this muscle-boosting supplement help sharpen my brain? | [阅读全文](https://www.bbc.com/news/articles/c2lx7klzvpko?at_medium=RSS&at_campaign=rss) |
 | Why Starmer decided the time was right to recognise a Palestinian state | [阅读全文](https://www.bbc.com/news/articles/cp9848kxp2go?at_medium=RSS&at_campaign=rss) |
 | I took a job on a whim on New Year's Eve - and ended up stranded at sea for six months | [阅读全文](https://www.bbc.com/news/articles/crev9y77njpo?at_medium=RSS&at_campaign=rss) |
