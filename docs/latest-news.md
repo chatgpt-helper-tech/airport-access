@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月22日 04:48:43（北京时间）**
+🕒 更新时间：**2025年09月22日 04:57:49（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | 'We're not North Korea.' Newsom signs bills to limit immigration raids at schools and unmask federal agents - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQUTdxLTRjaXJkYnIzcGZTVl93WlRPb2dHS3RpUl80ejlWWUlQRGdfOFEyTGhLWVg1X3I4ckJkd2FFUUZlQjZ4WFBrQS01RVVKZDhUWF9MWVZBTEV3akhpdG9PVHVHb3RmZGY4N3NEZV9sTDc1ZVRLcDdaeWJTX1F3dmpjeExubGp4cWc?oc=5) |
 | Trump is breaking US diplomacy, State Department staffers say - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQOS12MEVfTzJEV2N0b196SjRJVld4Rm1DQVp3OTlFbUJicS1NTlFlaTdkUlJJZy10bVY4S3pOTFVmUkppRkkzanNfQVFRUDZkREQ2RVY0ai15Q1h6anBPM0RaWWpIdDhxaWNqWGFIOFl6MDFpdEpYZ3NZSk4tZDJOVnlySQ?oc=5) |
 | Here’s what happens when big-time lobbyists become big-name Trump officials - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOVXk2UkZ6dk5iRXl0dmZxanFNR05pa1lSaXBfb3lIRWZoc2tPLWMzdTZWYnFIVDkzTWt3cExrY3lUYTZwOU0xNVdSOHM4SDYtV2tzM3Q5U2d2Z3hFYm9QTnZwR2NzaXZJWDZ4TVdiWXhvYk5la19aV3R3V3B3N0xKME1XUW1uY0M2Nnc?oc=5) |
-| 1 dead, 2 wounded in shooting at New Hampshire country club; suspect arrested - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQTG4zemZKZTZTZ3NxOHR6OUpSeEtSTXAtcGYtdHFOUkRscEtWZGFjaXRLTEw0VUhIeEVTTHVNcVBSVl91Vm8tUE5ia3ZmbmtBNGJ1MHZpeWE2NEZtLUZvVTA1Q0V2R2JyYTJUM3pSWnNpNUZ0anRzSGtmLTYxOGFEcjNuS0RXTnhsTkRxQXAtTGF5cUpJ?oc=5) |
+| 1 killed and 2 wounded in shooting at New Hampshire country club - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNMFdBaE94STVGTFM3VXZQNDBYd21ycGxPMlp4TnMyQzYzQ1c1U1dGQU9nMGVpZlFXT0RZZmlwUjNUeXlUNGtYWFc2a212NjVQODZ1Vjhnb3ZXbjJabXZPeFpCdGRpejAzQzdtNW9xODRqQ1pBb1E5czNSUGJCU3B2cFFGSll0YU10ZFZuRlEyMEhOdmRnQnh2OHhpQ0M2WVNFeWhGNGhGYWYxbWvSAVZBVV95cUxQU0ZsVHdxQ295N0U5b21mcTd6VGVQZnhTZEVYRW93UDBya0pkcUJwOXJueFMzdkJTbjU4Rk5PMnBnZUVwb0Z5OWszcnBsMVM3RjNTQ2VRZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
