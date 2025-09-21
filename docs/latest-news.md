@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 21:16:38（北京时间）**
+🕒 更新时间：**2025年09月21日 21:25:33（北京时间）**
 
 ---
 
@@ -28,10 +28,10 @@
 | ‘We can’t delay any longer’: Trump urges Bondi to prosecute his rivals - Politico | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBXNVo3dTZ4MEFqaUhEd0Z0MWNzcHh6alU0SXdmV1o0bFgxOEFIM1czZGNfY0lwM0RjakE2QnRMdXpfZXM5YlV4aDd3MVhDTl9ldWFEckE0WWUzSmMzM3h0cXVSSEI3bDdKMHBxQ1FLVUl2V09CTzE1UDdrMDBzaFU?oc=5) |
 | California bans masks on ICE officers as Newsom strikes back at Trump on deportations - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPZTF6eU5rYVVrQnltRWFVM1RfRUpWWFNHYkxvQ2JobEZxTExnVWg1amdrSmJaT3ItaDJZc19pb0FyQ285R0RDTFk1VHYwLTZCYV8zbU9fT190UTludWNpbU9YYkRBNFBJa3NsNFRsNTFtTWlacGJsdnFLZzY2WWdReTdmV0NjaHl3TlpHRHJZRQ?oc=5) |
 | Trump nominates White House aide to be top US prosecutor for office probing Letitia James - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQc3BhN2NlVkZFaHNpa1pRUWtJWWdCWWZJUGNPWDJVOGhFOVBhZm5EbjhiY0J3SXRBOTUtQWw2RkhONjBfWlJ3YW1GSzFQa1lHNU8wTG5mb0tnMVltMjJrcHBOUmNQLUlhMW82UlZzVndPZkcxb3RsQlBWcWJMR3d1b1lpeVZKR0xYTzRVVHdhTVBNd0RFNmk0cEZsZFFHb21XTFRvSEpNdHFlVjlQRHp5Q1A3emg4UEt0?oc=5) |
-| Man Is Charged After Fatal Shooting at New Hampshire Country Club - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOWnpFQ1RlZHhSTVd1S1dnRHVXbk5PaUhDUmhBWkNmdVRBZFA2aGdyQV9VckRZTEozZGdtWmlvWENTQ3ktaTFkdE56VW9NSTc1ZEVlSVhBeDIzWmRFVGdjeDhyXzZHRi1TWGQwRFZOd0taYXY5b3BBT3pjekxiUVpXeTh4emE?oc=5) |
+| 1 dead, 2 wounded in shooting at New Hampshire country club; suspect arrested - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQTG4zemZKZTZTZ3NxOHR6OUpSeEtSTXAtcGYtdHFOUkRscEtWZGFjaXRLTEw0VUhIeEVTTHVNcVBSVl91Vm8tUE5ia3ZmbmtBNGJ1MHZpeWE2NEZtLUZvVTA1Q0V2R2JyYTJUM3pSWnNpNUZ0anRzSGtmLTYxOGFEcjNuS0RXTnhsTkRxQXAtTGF5cUpJ?oc=5) |
 | Suspect in ABC10 building shooting arrested by FBI after being released from jail ｜ UPDATE - ABC10 | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPSGVWX1dXOXB0eXJVSmh5aWpLQ0F0WUtSSHFLLXJJRXFFU21MXzItTzJZbmdsRE8xNi0wZVlRSXo0aFF6YVNtQnd1dFdCby13UnVsV1VTS2dLbkJ2ZWlJVG1QaWhOZHhCQW5xc1RockNOYUNuRktaSHRxSGwza3BfVTZVRDhuV0hvM3VLa3pWUEpJNmZscWxCc0taMXEzOEtwckNtS09YMThaUmg4NXVFblBYZmFRakdwY3NmODE4cHZVS2Z4aWVhT2ZtTnBrZw?oc=5) |
 | Oklahoma Republicans propose all state colleges must have Charlie Kirk statue - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQRVZpLU5xNFRIREZXV3lXSlUtbXpSczMtdHgwTC1QaVpFZmktZTZaRUtFbFFpdG9aaEJjNEJBOXlyR0ZMUldQUkMwZmRYUVdTRjZXVzJSOEZtMlNpNzBocXVOZ1lWVVhnai0zR2lKN1VocDBTRFZ3TDlDbTl1M2lsTkpZTXJQNDJY?oc=5) |
-| The Taliban reject Trump’s bid to retake Bagram Air Base in Afghanistan - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPMGstR0Y0dEFlQlMxMkdqWHFLMkFjeUdEYkhTSHBqdXQ3eUJmTjZFTkQ1ZlFMaG1YYV9wcGYzalJkTkVIQjN5OUR2WmpGcVh4UTNDV2szSGl0Q1JXdEJNR0JEcGc0V0J2VE9uMFhOLWFqQk1DQUJmTWlCc1lTOGgyRnE3TDdBcnI5S2VMcDF3bjRWWXdGeG1EeVA4RndEWVRWYmc?oc=5) |
+| Taliban reject Trump’s bid to reclaim Bagram Air Base in Afghanistan - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPU1psS2lzQkxxNWRLNE56SC1UemplaTYyeXV0V3V0bzZ4MnJXX3NFb3ZNcWdxU2RlZjVaOWQ0NmJjUEVRNnJnbGlfUndFRjl1Q1hkdE5EUnZYVC1rYVp0Z3MyTWlPbzZRdS1BeTlIdC05OFJOenRYU0hhVGZnWkJLWFpjZVYzaXlGZFFwQ2VyTDY1WkNmMFB4UDdUNC00cTBtLVNFWTRoRUdkNXZFM0VrUlJ5d1VkcmZn?oc=5) |
 | China's ByteDance will get 1 of 7 board seats for TikTok's US operations, official says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxPeWdVNjdXR25QR3psMnNRNEZ3Rjg3ZnNvOXMwMXFsTDJKQnB6SkEwenVIUkdDSi01bnRoR0x3bFBXUjN2N0MxQVJRSHJNX2pPajlfZXUwYjlfcHJERW5fV3VfM0xEdGc1bTduanUwb0VsNVladG9WWGFiWGxxYXZWUHVGYkNkR3lhY2dFSTQxVThRbW9WSnpYY25iWmx1dW5qSHd3bDBYX2pyTnEySXBFSl9Wc0gxWUZ2bG1fbGpyXzNqaTdaS0xac2FFaEdnZGduMGNHMXpqREJLdWZY?oc=5) |
 
 ---
