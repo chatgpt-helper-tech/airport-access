@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 19:48:31（北京时间）**
+🕒 更新时间：**2025年09月21日 19:57:39（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Tech Companies Warn H-1B Visa Holders to Avoid Foreign Travel - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQVmtUOEhHUHNOQk56NTN1R1o1VWoxZ2JKNnFpRkRGdm1QNFk3NnVmTC1RMVhKeGdNTFZ1bW9kcFcxMURYcjBXVGR0aFpuWnMzRGVRMEg5MWxyR09QY0Q0M1k2LXcxMWdaOWwyRkNLeHdXMHNsNFdGa3BxS3ZEUEJIS3cyN1ZHd2FQMTJjMkdRNDBhMzQwZEg1UzZZZ3ZfTjBlM1NHWlBZNlYyUkllX2VTSUdxX3c?oc=5) |
 | Trump and MAGA movement will honor Charlie Kirk at Arizona memorial - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQRmpvOGxnWjloWHJIVHNpSWw5UXNoTGxGQm9XazdveEdJV0o2d3pZamtHRE1sMl9yYUJZOWNMc3NmZmdTNlF4Tk9VVXRqV0ZMQ0VRdzB6cFJNTDEtY0s4VHFMZjlwck43b1B5TUdodVNCQ09FN1JrMHJlRWNvSnVmZTJ1TWk4MHllTkNsbl91cWdnV1hsTFRPbEZ1WQ?oc=5) |
-| New H-1B visa fee will not apply to existing holders, official says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTFBpZG1iRlJ6VGhuWlJGdFJjblR5TS1ZTEdaMzFLeFk0UUh2RGNraWpMU3hvMmZkU2tLSXBNUFRaQVktX1JQbGUxZ25JVE9jLU8xSDJlZm1lRFB2MzgyTTlCMkcwNTFHRHFUVk5MaHBR?oc=5) |
 | Trump demands Bondi prosecute political foes in Truth Social posts - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOM1hnZC1qUUFCOXlZOGYwaThRclRQaGROVkhKdWFuMkxNZ1ByMnJrZ3gzRXh2VVJmU1RsSFdXMldCZlo4V0VuVGlDb1NUSUVaaUd2cEpCUkh0YU1OYzRFZFVUakJTMXl0eS1uT1Z2elpuQkpidWlxWDhfakJ4UU52RFJsSzdiT1VMNWt4a2hZaGpVNXFYcDd3bHJVOFlPUG9XX3NIbGw5OHN6UkhiLVhtNGpYQmMzNnhybDZhdXYxZw?oc=5) |
 | 'We're not North Korea.' Newsom signs bills to limit immigration raids at schools and unmask federal agents - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQUTdxLTRjaXJkYnIzcGZTVl93WlRPb2dHS3RpUl80ejlWWUlQRGdfOFEyTGhLWVg1X3I4ckJkd2FFUUZlQjZ4WFBrQS01RVVKZDhUWF9MWVZBTEV3akhpdG9PVHVHb3RmZGY4N3NEZV9sTDc1ZVRLcDdaeWJTX1F3dmpjeExubGp4cWc?oc=5) |
 | One Dead in Shooting at New Hampshire Country Club - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOWnpFQ1RlZHhSTVd1S1dnRHVXbk5PaUhDUmhBWkNmdVRBZFA2aGdyQV9VckRZTEozZGdtWmlvWENTQ3ktaTFkdE56VW9NSTc1ZEVlSVhBeDIzWmRFVGdjeDhyXzZHRi1TWGQwRFZOd0taYXY5b3BBT3pjekxiUVpXeTh4emE?oc=5) |
@@ -32,7 +32,7 @@
 | Trump nominates White House aide to be top US prosecutor for office probing Letitia James - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQc3BhN2NlVkZFaHNpa1pRUWtJWWdCWWZJUGNPWDJVOGhFOVBhZm5EbjhiY0J3SXRBOTUtQWw2RkhONjBfWlJ3YW1GSzFQa1lHNU8wTG5mb0tnMVltMjJrcHBOUmNQLUlhMW82UlZzVndPZkcxb3RsQlBWcWJMR3d1b1lpeVZKR0xYTzRVVHdhTVBNd0RFNmk0cEZsZFFHb21XTFRvSEpNdHFlVjlQRHp5Q1A3emg4UEt0?oc=5) |
 | The Taliban reject Trump’s bid to retake Bagram Air Base in Afghanistan - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPMGstR0Y0dEFlQlMxMkdqWHFLMkFjeUdEYkhTSHBqdXQ3eUJmTjZFTkQ1ZlFMaG1YYV9wcGYzalJkTkVIQjN5OUR2WmpGcVh4UTNDV2szSGl0Q1JXdEJNR0JEcGc0V0J2VE9uMFhOLWFqQk1DQUJmTWlCc1lTOGgyRnE3TDdBcnI5S2VMcDF3bjRWWXdGeG1EeVA4RndEWVRWYmc?oc=5) |
 | Oklahoma Republicans propose all state colleges must have Charlie Kirk statue - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQRVZpLU5xNFRIREZXV3lXSlUtbXpSczMtdHgwTC1QaVpFZmktZTZaRUtFbFFpdG9aaEJjNEJBOXlyR0ZMUldQUkMwZmRYUVdTRjZXVzJSOEZtMlNpNzBocXVOZ1lWVVhnai0zR2lKN1VocDBTRFZ3TDlDbTl1M2lsTkpZTXJQNDJY?oc=5) |
-| China's ByteDance will get 1 of 7 board seats for TikTok's US operations, official says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxPeWdVNjdXR25QR3psMnNRNEZ3Rjg3ZnNvOXMwMXFsTDJKQnB6SkEwenVIUkdDSi01bnRoR0x3bFBXUjN2N0MxQVJRSHJNX2pPajlfZXUwYjlfcHJERW5fV3VfM0xEdGc1bTduanUwb0VsNVladG9WWGFiWGxxYXZWUHVGYkNkR3lhY2dFSTQxVThRbW9WSnpYY25iWmx1dW5qSHd3bDBYX2pyTnEySXBFSl9Wc0gxWUZ2bG1fbGpyXzNqaTdaS0xac2FFaEdnZGduMGNHMXpqREJLdWZY?oc=5) |
+| Schumer, Jeffries demand meeting with Trump amid shutdown showdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQNzBaT2g2N0p2aWpRZWFzZ29oUkxTeUlVbEk0NjMwZmlEU0lJY0I4TzR0V2hjSlkySU8xTnNkU1ZsUi1xdTFFYkFYX0JGLVRNdHJLby05NTVwcGlTVkstY0NGOVBiVTZWbUVoajhDdUgyYTVWUlFWTmIyWTBBMGdPcFNhV3lxeF9yamc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
