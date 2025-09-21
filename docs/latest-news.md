@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 18:09:05（北京时间）**
+🕒 更新时间：**2025年09月21日 18:16:27（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| 'Fast and furious': H-1B workers abroad race to US as Trump order sparks dismay, confusion - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi7gFBVV95cUxQQkgyalQ2NjdSaXhYVlRoU0tHVlVSMUFHN2lEc20wZFE0Z2NxZl9TeEtoZDZiZjBmUmp0d2FFTWFtMDkwQmxaU1BEdHgxZnhVak5PVmhqWEZRMmhmUGJmQ04xd1pKaGdpblh1Y0NCMV9OaS1pMkhKNnBYMlMwelFSeWYtYVl6YjczdG1lVEt0SFFPX05TRWZRWHZhOFZxNlBRSWR5bWJ1TDEwa25HZ25hemNfWDh5XzNvWnZqeHlCSVQwV2gydzltT3d2REVvWUFvTU54UWdCaUJhN2RCdnNQa25na3gwS0ZmQ2R0RkhR?oc=5) |
+| Tech Companies Warn H-1B Visa Holders to Avoid Foreign Travel - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQVmtUOEhHUHNOQk56NTN1R1o1VWoxZ2JKNnFpRkRGdm1QNFk3NnVmTC1RMVhKeGdNTFZ1bW9kcFcxMURYcjBXVGR0aFpuWnMzRGVRMEg5MWxyR09QY0Q0M1k2LXcxMWdaOWwyRkNLeHdXMHNsNFdGa3BxS3ZEUEJIS3cyN1ZHd2FQMTJjMkdRNDBhMzQwZEg1UzZZZ3ZfTjBlM1NHWlBZNlYyUkllX2VTSUdxX3c?oc=5) |
 | Trump and MAGA movement will honor Charlie Kirk at Arizona memorial - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQRmpvOGxnWjloWHJIVHNpSWw5UXNoTGxGQm9XazdveEdJV0o2d3pZamtHRE1sMl9yYUJZOWNMc3NmZmdTNlF4Tk9VVXRqV0ZMQ0VRdzB6cFJNTDEtY0s4VHFMZjlwck43b1B5TUdodVNCQ09FN1JrMHJlRWNvSnVmZTJ1TWk4MHllTkNsbl91cWdnV1hsTFRPbEZ1WQ?oc=5) |
-| Trump says he is appointing Lindsey Halligan, one of his former attorneys, to lead key prosecutor's office - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQZlB3TFV1U2g2cFhSWk1SMVY4SThUVGoxbkRpWTZwQndRMHZpQW4wbVFrb2NmSkh1ak5YRWt1UUR0WW8tanVJR01saGdfa0JTQzJTdm42VHJCWU5KVkdkbnhGNVV1MlJXUlB1YXUyRHRINU5tYUFYMGpEWjBzaFF3ZmstY0JQNE9hdkI5WmZzWVVZSTg0UHVvUVFlYUxIY1FTeGFPeThXVFYzUmlyUEHSAbMBQVVfeXFMUDQwQjVOUXJoWWprbThCT0o2TEhXcFZLN1FKaUFuNUVJLVpLTnQ0TGlORmtfQlUtNzFYb0xXTU5hcnQ3VTNWbVRvbDZiSW9UYk5TSk52TmxHVWhlQk1qWE5kVHJOVjVZbExXM2J5bHRuU0xZd3ZkTVhDSkVMOGZrMVh2R3JmM0dCT2E3NGxMZ3hLdUx6QjA0Y0xvNGp2cUl0V3prSFJGZXpmcHdBMHNXWG1NbGM?oc=5) |
+| Trump picks former attorney to be top prosecutor, as he pressures Bondi to investigate foes - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPZnFzVTVUNV9hMWhCQ0JwTjlDaXA3VmZJT2JQcm5Wdi0ybl9UNFVzSzVSMGszV2VaMERLQzRWNU1aMzdMWVBTeGlCNUw0ZzVZcmhHbktHUlUtalZTbVJ5U2plRmc3VUZwQXFtLTlXQ3oyT0MwbGdpNjY4SmJ4NXlvMS1abGFteWxyNlFXMzZfdDVSMVRtUDM2NjF6aFNrb2pnZ2hCLXhqX2FUcDZCcW1DVzg2bUJhRk1YOE1weVhB?oc=5) |
 | 'We're not North Korea.' Newsom signs bills to limit immigration raids at schools and unmask federal agents - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQUTdxLTRjaXJkYnIzcGZTVl93WlRPb2dHS3RpUl80ejlWWUlQRGdfOFEyTGhLWVg1X3I4ckJkd2FFUUZlQjZ4WFBrQS01RVVKZDhUWF9MWVZBTEV3akhpdG9PVHVHb3RmZGY4N3NEZV9sTDc1ZVRLcDdaeWJTX1F3dmpjeExubGp4cWc?oc=5) |
 | Man Charged After Drive-by Shooting at Local ABC Station in Sacramento - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNbkFfVGN4eUdTbjZEQWc1OVdJdDU0YzJ5UkJSNWwxaXpWRlBmZEhndkIxNlhJbUdSVVV1UUM4aWs5QVZNTHNCdUFrM1IxN3l0eDVmdUZjVm9xZjdRZEIxSU85Z09OQ1N4YkI5dms0bmZiSXlGUnl3TGs2LUFMM2Y4clFocGw?oc=5) |
 | TikTok deal will be signed soon, with U.S. control of algorithm, White House says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE1sX2dONGlOeWtIZ2xuYkgxZDZGUEdsaUtsRTF5Q0dHR1lPU1VxMDZvR05KMHJHRUdBVEZscG9TQW44cVNWSVpWMTdHR3UyWlNJS2JCQjlabnduWTZNVUtJcEM4OA?oc=5) |
