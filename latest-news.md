@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月22日 01:00:46（北京时间）**
+🕒 更新时间：**2025年09月22日 01:09:58（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Schumer slams Trump pressure on Bondi: ‘Real threat to democracy’ - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBkWGNUbUdOU2hWT2J1aUF2Z0ZOWUt1d1JDQXpJUjZ3WEZfWjlwd2JxM2VJWUdJaDJCd1pXWUw1N3NTX2MwX08wVzVrSC1naTQ5T0JPVzB3Q21RQmZJbDNDeUlPeGFEZmFLVC0wVFJpMDNGOXdaMzFoYVFzZmVCZHPSAYQBQVVfeXFMUDlGVUMzU1NmakJIaGhGeEZQajdsa0t4YVhCbDEteTlZVTlydUlQbmNfcFlFZENzNFY3M05PbHNOVWZvTTl1SzJySmNBUEJWVF9hM3d3V19KTXI1c1lpMG1NQ3RpTHVld2RSZ2Nxamw3R2pfSmptc1laT294d1YxUUl6MTk5?oc=5) |
 | Trump is breaking US diplomacy, State Department staffers say - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQOS12MEVfTzJEV2N0b196SjRJVld4Rm1DQVp3OTlFbUJicS1NTlFlaTdkUlJJZy10bVY4S3pOTFVmUkppRkkzanNfQVFRUDZkREQ2RVY0ai15Q1h6anBPM0RaWWpIdDhxaWNqWGFIOFl6MDFpdEpYZ3NZSk4tZDJOVnlySQ?oc=5) |
 | Man Charged After Drive-by Shooting at Local ABC Station in Sacramento - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNbkFfVGN4eUdTbjZEQWc1OVdJdDU0YzJ5UkJSNWwxaXpWRlBmZEhndkIxNlhJbUdSVVV1UUM4aWs5QVZNTHNCdUFrM1IxN3l0eDVmdUZjVm9xZjdRZEIxSU85Z09OQ1N4YkI5dms0bmZiSXlGUnl3TGs2LUFMM2Y4clFocGw?oc=5) |
-| The Taliban reject Trump’s bid to retake Bagram Air Base in Afghanistan - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPMGstR0Y0dEFlQlMxMkdqWHFLMkFjeUdEYkhTSHBqdXQ3eUJmTjZFTkQ1ZlFMaG1YYV9wcGYzalJkTkVIQjN5OUR2WmpGcVh4UTNDV2szSGl0Q1JXdEJNR0JEcGc0V0J2VE9uMFhOLWFqQk1DQUJmTWlCc1lTOGgyRnE3TDdBcnI5S2VMcDF3bjRWWXdGeG1EeVA4RndEWVRWYmc?oc=5) |
+| Pentagon steps up media restrictions, now requiring approval before reporting even unclassified info - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOX0syWTB2LXNEVnRlZ1VxNWxTaU5Fd0FuTElqVWRONXQ5TXE0bTBEMS1SbllCRU5QMWtFVGZ2MDNrMGR2VTJMYTkxUWFEbEkyYmFxVnhLY1FJd3dadXRNOEpHZUtYamMyT2VOemVLSzk1bDFtaEZJOUZobWJZZEZxSFVBeFk3aTFZakZtMWV0enZzZktCR1c1TVJrQWdoamVTUl8wdzh5RFZuY0U?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
