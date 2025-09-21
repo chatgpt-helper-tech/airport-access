@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月22日 06:57:28（北京时间）**
+🕒 更新时间：**2025年09月22日 07:01:55（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Suspect in ABC10 building shooting arrested by FBI after being released from jail ｜ UPDATE - ABC10 | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPSGVWX1dXOXB0eXJVSmh5aWpLQ0F0WUtSSHFLLXJJRXFFU21MXzItTzJZbmdsRE8xNi0wZVlRSXo0aFF6YVNtQnd1dFdCby13UnVsV1VTS2dLbkJ2ZWlJVG1QaWhOZHhCQW5xc1RockNOYUNuRktaSHRxSGwza3BfVTZVRDhuV0hvM3VLa3pWUEpJNmZscWxCc0taMXEzOEtwckNtS09YMThaUmg4NXVFblBYZmFRakdwY3NmODE4cHZVS2Z4aWVhT2ZtTnBrZw?oc=5) |
 | Here’s what happens when big-time lobbyists become big-name Trump officials - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOVXk2UkZ6dk5iRXl0dmZxanFNR05pa1lSaXBfb3lIRWZoc2tPLWMzdTZWYnFIVDkzTWt3cExrY3lUYTZwOU0xNVdSOHM4SDYtV2tzM3Q5U2d2Z3hFYm9QTnZwR2NzaXZJWDZ4TVdiWXhvYk5la19aV3R3V3B3N0xKME1XUW1uY0M2Nnc?oc=5) |
 | 'We're not North Korea.' Newsom signs bills to limit immigration raids at schools and unmask federal agents - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQUTdxLTRjaXJkYnIzcGZTVl93WlRPb2dHS3RpUl80ejlWWUlQRGdfOFEyTGhLWVg1X3I4ckJkd2FFUUZlQjZ4WFBrQS01RVVKZDhUWF9MWVZBTEV3akhpdG9PVHVHb3RmZGY4N3NEZV9sTDc1ZVRLcDdaeWJTX1F3dmpjeExubGp4cWc?oc=5) |
-| Dozens arrested and hurt in clashes with police near Philippine presidential palace - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQWkRlbC0tU2NmOFRTR1hHdlBKeXBHZ0lHU25QQmVjX0Q2VkFDNndQUjZVcW53NFhJeUZRZy1DOGppTF9ReGpQQWJrYmt2QU0yRUhqak1UYVdYUkx1SEE4cVQ3M3d2cDluVjVGbWd0TkZpUnpGS2ZhMmViN0ZUUkxzRWlDV3pkbTdBc0hsRVI4WlpUZ1d4T2dvMDNPNmE?oc=5) |
+| The Taliban Reject Trump’s Bid to Retake Bagram Air Base in Afghanistan - Military.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNVnc5Uko2eE5LdE0wNXlQTngxNFpUQ09ya3NkdTNyV1ZCQWRQajA5a3cxQ1hteEdlOGpyNDZkWkxpS2VlbFdQakhSREhBeGVTblpNUEF2bExMa0FtQXRaMW9FNHdfSmJVRTdNMXZYUGJPR3lMZzRtTHBnQmxtdGNEUmMtM1RwSTd4MTFBM29DNmlTRklnSVNubHY5R01TSUZxeFNKMUlxNmZvTHMzUlVwWWVn0gG3AUFVX3lxTE56cUQyd1V6R0FGaWlPNVdDdUx1eDNPNTg2am5fWkF4OEdvWnc2STI5VUdiZzhZTmlZQzgtQkxSWUdxVEJValhSU2FCTjNLZEtBTTRGX3ZrWVhnNE1PWVhRbE1iN0otdllnaXdyeldmOGx0YVpZTEgyZGpURUFrZDM5cENIWUFBMTZpQWQ3VThleUtuMk9maWF3LVhSTDNla09NSDVnaF9yUEhrSTRIS3NiemVBSTZkSQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
