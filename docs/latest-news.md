@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 11:32:18（北京时间）**
+🕒 更新时间：**2025年09月21日 11:41:00（北京时间）**
 
 ---
 
@@ -26,7 +26,7 @@
 | White House scrambles to clear up H-1B visa confusion after panic throws corporate America into chaos overnight - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNamZvLVZhYlFYcEV5a2trUkdBWnN2OXV4TWo4NjlVdDFCR2Rua012b0dpT3ZCMEJSVThxclBQVU5VSndiOE5WakdOeHU0MDh5YXVOb0R6ZGt4WjlaQjNiMWRsdlBjbUJPOV8yVjdVUmhXU08xbFRpME0xbHpyWC1adEJULWJKSEQtaHlMVUd0T2xKTXFfZUFOWEtjeExnekNqZXVIajJHMmNoU0s5QkE?oc=5) |
 | Charlie Kirk memorial in Arizona expected to draw 100,000, with Trump and Vance headlining - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOVV9XRF9qd0RoR0dyaHdxdVdOSFhTM1VVOUU5bXJYOTJlTVdzTHE0VGdadTdULVpMRVJhdzA1bGJEQWtQOGJwc2V1VjRuMV9NS0xyX1hWV28yeVlDU3JpSUdBd25wb1VoU1JEQzJlMEE4MGQ1cnR6aS1US0hNRFZkTVVHd3dlZ9IBiwFBVV95cUxQdUhINjVPVzN4dG1YUUpRcExmbVVIMDFPNnVrOVl3MmR3THN5bUhlRWdJdG1fSlhHbVhHczR5N09HUTJLUWZfbXhvTjR0OGhJbmFiQzI3c2dsaWxSVjFxZnc5ZlY1X0RNNGJPc0taYjRIVHhyWTdDaFdwUGxtSld1TG5MMGJKZ09famw4?oc=5) |
 | 'We're not North Korea.' Newsom signs bills to limit immigration raids at schools and unmask federal agents - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQUTdxLTRjaXJkYnIzcGZTVl93WlRPb2dHS3RpUl80ejlWWUlQRGdfOFEyTGhLWVg1X3I4ckJkd2FFUUZlQjZ4WFBrQS01RVVKZDhUWF9MWVZBTEV3akhpdG9PVHVHb3RmZGY4N3NEZV9sTDc1ZVRLcDdaeWJTX1F3dmpjeExubGp4cWc?oc=5) |
-| ‘We can’t delay any longer’: Trump urges Bondi to prosecute his rivals - Politico | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBXNVo3dTZ4MEFqaUhEd0Z0MWNzcHh6alU0SXdmV1o0bFgxOEFIM1czZGNfY0lwM0RjakE2QnRMdXpfZXM5YlV4aDd3MVhDTl9ldWFEckE0WWUzSmMzM3h0cXVSSEI3bDdKMHBxQ1FLVUl2V09CTzE1UDdrMDBzaFU?oc=5) |
+| Trump calls on Attorney General Bondi to use power of the Justice Department more aggressively - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1WTXFvaFF4Z01UUFp4WDFVR3dxNEp2cVNLbC1Rb3ZFRjJKU2xOZ2VNTUpOUlpqUjRmNzA2S3JfT3hhMWZfb3hwRXZnUXhjZTJKakJ1S0wzQkwwWkFIeDc4OXExd3FPVzNaMlF5Slh1bkFnLW9MZ2VLUU5UNGxCaTA?oc=5) |
 | Trump nominates replacement for acting U.S. attorney in office probing Letitia James - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE9kZFdCanRYQ2EwV2pUTV9SZzkwNUhTZTIzRF9IVVFFbXNRTjFPV3UtckVrN2ZWeTVLbzBwNGE3NHBnS1dxS3haNDlUdmhvbXpOY2NfZGMtNkxzYmFlNk1GeUJJUm5PdHV1WlRNRnZVNmE4NnRBWFBDX0xn0gF_QVVfeXFMTUg0WndPV2s3Vmw3YlBleDhIcEpINFA0ZzdFbVVWbGVuUTlrTGtTWGN0UElFUGVlMmpjRW45dDN2T2ZFamZaLXJoS25VNWZ3dGQ5eG1rSHZZY3IwbHJNb2s1TFZicG42TDByS0tsUVBHN19XWXN3eDg2c1NfYzc5VQ?oc=5) |
 | Man Charged After Drive-by Shooting at Local ABC Station in Sacramento - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNbkFfVGN4eUdTbjZEQWc1OVdJdDU0YzJ5UkJSNWwxaXpWRlBmZEhndkIxNlhJbUdSVVV1UUM4aWs5QVZNTHNCdUFrM1IxN3l0eDVmdUZjVm9xZjdRZEIxSU85Z09OQ1N4YkI5dms0bmZiSXlGUnl3TGs2LUFMM2Y4clFocGw?oc=5) |
 | Oklahoma Republicans propose all state colleges must have Charlie Kirk statue - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQRVZpLU5xNFRIREZXV3lXSlUtbXpSczMtdHgwTC1QaVpFZmktZTZaRUtFbFFpdG9aaEJjNEJBOXlyR0ZMUldQUkMwZmRYUVdTRjZXVzJSOEZtMlNpNzBocXVOZ1lWVVhnai0zR2lKN1VocDBTRFZ3TDlDbTl1M2lsTkpZTXJQNDJY?oc=5) |
