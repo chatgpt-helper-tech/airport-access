@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 09:09:37（北京时间）**
+🕒 更新时间：**2025年09月21日 09:16:21（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Trump’s new H-1B visa fee prompts emergency guidance from companies - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1KUjBDdElVamMweUxhOVRCdW53dGxQVTA2dnpkVW9nSXFzaWhxc3FJN0NhRGQ1OWJUSWw4Nl9jWkYtME9YY1loVzhNcnBMTWV6YVgxaFRkMDVUQjNIcHp0Y2JHeVJxMjdVcUNiRDJ5V24?oc=5) |
 | Charlie Kirk memorial in Arizona expected to draw 100,000, with Trump and Vance headlining - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOVV9XRF9qd0RoR0dyaHdxdVdOSFhTM1VVOUU5bXJYOTJlTVdzTHE0VGdadTdULVpMRVJhdzA1bGJEQWtQOGJwc2V1VjRuMV9NS0xyX1hWV28yeVlDU3JpSUdBd25wb1VoU1JEQzJlMEE4MGQ1cnR6aS1US0hNRFZkTVVHd3dlZ9IBiwFBVV95cUxQdUhINjVPVzN4dG1YUUpRcExmbVVIMDFPNnVrOVl3MmR3THN5bUhlRWdJdG1fSlhHbVhHczR5N09HUTJLUWZfbXhvTjR0OGhJbmFiQzI3c2dsaWxSVjFxZnc5ZlY1X0RNNGJPc0taYjRIVHhyWTdDaFdwUGxtSld1TG5MMGJKZ09famw4?oc=5) |
-| White House names replacement for acting U.S. attorney in office probing Letitia James - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE9kZFdCanRYQ2EwV2pUTV9SZzkwNUhTZTIzRF9IVVFFbXNRTjFPV3UtckVrN2ZWeTVLbzBwNGE3NHBnS1dxS3haNDlUdmhvbXpOY2NfZGMtNkxzYmFlNk1GeUJJUm5PdHV1WlRNRnZVNmE4NnRBWFBDX0xn0gF_QVVfeXFMTUg0WndPV2s3Vmw3YlBleDhIcEpINFA0ZzdFbVVWbGVuUTlrTGtTWGN0UElFUGVlMmpjRW45dDN2T2ZFamZaLXJoS25VNWZ3dGQ5eG1rSHZZY3IwbHJNb2s1TFZicG42TDByS0tsUVBHN19XWXN3eDg2c1NfYzc5VQ?oc=5) |
 | California Bars ICE Agents From Wearing Masks in the State - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1ETldCMTYxLU9EbWhNZlNwQzhDYl9EQ01TdGp3NHRfVnZ3N0lCWV92M2JOMGZBLWlRenZhMkcyVmRYaUZUQTZWYWlRc18zTXlGeFY0TDdseTUybTZCVmhQbHhWS0JZbGR1VHB0bkhkeXFERXBrbWFVVU1OaVFXV0U?oc=5) |
+| White House names replacement for acting U.S. attorney in office probing Letitia James - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE9kZFdCanRYQ2EwV2pUTV9SZzkwNUhTZTIzRF9IVVFFbXNRTjFPV3UtckVrN2ZWeTVLbzBwNGE3NHBnS1dxS3haNDlUdmhvbXpOY2NfZGMtNkxzYmFlNk1GeUJJUm5PdHV1WlRNRnZVNmE4NnRBWFBDX0xn0gF_QVVfeXFMTUg0WndPV2s3Vmw3YlBleDhIcEpINFA0ZzdFbVVWbGVuUTlrTGtTWGN0UElFUGVlMmpjRW45dDN2T2ZFamZaLXJoS25VNWZ3dGQ5eG1rSHZZY3IwbHJNb2s1TFZicG42TDByS0tsUVBHN19XWXN3eDg2c1NfYzc5VQ?oc=5) |
 | US will control TikTok’s algorithm under deal, White House says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPdDJtQXNwQjJJUDJxUHVyOUJIcDR1VERGZkJKRnpQcGhpY283YjdmOHA3bDR0U2JvVjJ0Zlg3U0swSVExYTd4VTNoWHpEd3VYQmtCeEpjZDUxR05tUllJZlQwRlkyMmhFQjlyYTJMbElKeFN4SnNRaWtwLWRWV3UtZTd2aw?oc=5) |
 | Trump border czar Tom Homan reportedly accepted $50,000 in cash from undercover FBI agents - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNYkJCbXNBSXo1aGlfVTZkbW1pVEE5ZWY4TlhHbzhsTDJZWkF4Y3Y5N0FyOTZoaXlrSDVTeFpJYmNvUE9vU2I2SnFhS2p5blYtUjc5MUcwMTc3WVJWZ0NzMlJId3owVW9oYTJJaHlybkkyTXNWbmhIbldNY05jTHFOYm41TlNjdw?oc=5) |
 | Oklahoma Republicans propose all state colleges must have Charlie Kirk statue - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQRVZpLU5xNFRIREZXV3lXSlUtbXpSczMtdHgwTC1QaVpFZmktZTZaRUtFbFFpdG9aaEJjNEJBOXlyR0ZMUldQUkMwZmRYUVdTRjZXVzJSOEZtMlNpNzBocXVOZ1lWVVhnai0zR2lKN1VocDBTRFZ3TDlDbTl1M2lsTkpZTXJQNDJY?oc=5) |
