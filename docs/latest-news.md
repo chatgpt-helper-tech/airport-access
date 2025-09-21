@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 17:17:01（北京时间）**
+🕒 更新时间：**2025年09月21日 17:25:30（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Starmer set to announce UK recognition of Palestinian state | [阅读全文](https://www.bbc.com/news/articles/ce800enrglzo?at_medium=RSS&at_campaign=rss) |
-| In West Bank, Palestinian recognition welcomed despite fears of Israeli annexation | [阅读全文](https://www.bbc.com/news/articles/c0ez9qxzl2jo?at_medium=RSS&at_campaign=rss) |
+| Israel will occupy more West Bank land, but recognition matters, mayor tells BBC | [阅读全文](https://www.bbc.com/news/articles/c0ez9qxzl2jo?at_medium=RSS&at_campaign=rss) |
 | Duchess of York called Epstein 'supreme friend' in 2011 email | [阅读全文](https://www.bbc.com/news/articles/cgj11l3wd35o?at_medium=RSS&at_campaign=rss) |
 | Heathrow braces for second day of disruption after cyber-attack | [阅读全文](https://www.bbc.com/news/articles/cwy88857llno?at_medium=RSS&at_campaign=rss) |
 | Ed Davey urges regulator to go after Musk over X 'crimes' | [阅读全文](https://www.bbc.com/news/articles/c5y558r2r1qo?at_medium=RSS&at_campaign=rss) |
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Tech Companies Warn H-1B Visa Holders to Avoid Foreign Travel - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQVmtUOEhHUHNOQk56NTN1R1o1VWoxZ2JKNnFpRkRGdm1QNFk3NnVmTC1RMVhKeGdNTFZ1bW9kcFcxMURYcjBXVGR0aFpuWnMzRGVRMEg5MWxyR09QY0Q0M1k2LXcxMWdaOWwyRkNLeHdXMHNsNFdGa3BxS3ZEUEJIS3cyN1ZHd2FQMTJjMkdRNDBhMzQwZEg1UzZZZ3ZfTjBlM1NHWlBZNlYyUkllX2VTSUdxX3c?oc=5) |
-| Arrest in Arizona Before Charlie Kirk Memorial Heightens Security Concerns - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOSy1EQ1UwSnVzZXk5djdqSjBaRHpnR01mOGczdWVlT09abURYSkgyRWlyMV9FYnhLU0NIbmhzU3RjNTFvLTUtR3ZkZ3IwMEpSQmRZbGs0RzRyUlNoc01fSUlxS2dfc2ZTRWQ3MWJmTENrbWZ2R1ZEeERnVWpjYXZSb1JYeVItSDZL?oc=5) |
 | Trump demands Bondi prosecute political foes in Truth Social posts - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOM1hnZC1qUUFCOXlZOGYwaThRclRQaGROVkhKdWFuMkxNZ1ByMnJrZ3gzRXh2VVJmU1RsSFdXMldCZlo4V0VuVGlDb1NUSUVaaUd2cEpCUkh0YU1OYzRFZFVUakJTMXl0eS1uT1Z2elpuQkpidWlxWDhfakJ4UU52RFJsSzdiT1VMNWt4a2hZaGpVNXFYcDd3bHJVOFlPUG9XX3NIbGw5OHN6UkhiLVhtNGpYQmMzNnhybDZhdXYxZw?oc=5) |
+| Arrest in Arizona Before Charlie Kirk Memorial Heightens Security Concerns - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOSy1EQ1UwSnVzZXk5djdqSjBaRHpnR01mOGczdWVlT09abURYSkgyRWlyMV9FYnhLU0NIbmhzU3RjNTFvLTUtR3ZkZ3IwMEpSQmRZbGs0RzRyUlNoc01fSUlxS2dfc2ZTRWQ3MWJmTENrbWZ2R1ZEeERnVWpjYXZSb1JYeVItSDZL?oc=5) |
 | California bans masks on ICE officers as Newsom strikes back at Trump on deportations - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPZTF6eU5rYVVrQnltRWFVM1RfRUpWWFNHYkxvQ2JobEZxTExnVWg1amdrSmJaT3ItaDJZc19pb0FyQ285R0RDTFk1VHYwLTZCYV8zbU9fT190UTludWNpbU9YYkRBNFBJa3NsNFRsNTFtTWlacGJsdnFLZzY2WWdReTdmV0NjaHl3TlpHRHJZRQ?oc=5) |
 | Man arrested after drive-by shooting at ABC TV station in Sacramento - NPR | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE5ZejZKRVM5TlUxaXlqel9uYzRVLV9uTE5YRjhRMlBfMi1fQU9qVTB2OUMzMWVoU21aX2o4a0RzMVhxUDJuTjFQRTBzOTRmemJyQmJDdll6WFljM1p1Q3ZoWVpkV2RzaHZUc1BXU3kzV2lDZy1C?oc=5) |
 | Trump says he is appointing Lindsey Halligan, one of his former attorneys, to lead key prosecutor's office - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQZlB3TFV1U2g2cFhSWk1SMVY4SThUVGoxbkRpWTZwQndRMHZpQW4wbVFrb2NmSkh1ak5YRWt1UUR0WW8tanVJR01saGdfa0JTQzJTdm42VHJCWU5KVkdkbnhGNVV1MlJXUlB1YXUyRHRINU5tYUFYMGpEWjBzaFF3ZmstY0JQNE9hdkI5WmZzWVVZSTg0UHVvUVFlYUxIY1FTeGFPeThXVFYzUmlyUEHSAbMBQVVfeXFMUDQwQjVOUXJoWWprbThCT0o2TEhXcFZLN1FKaUFuNUVJLVpLTnQ0TGlORmtfQlUtNzFYb0xXTU5hcnQ3VTNWbVRvbDZiSW9UYk5TSk52TmxHVWhlQk1qWE5kVHJOVjVZbExXM2J5bHRuU0xZd3ZkTVhDSkVMOGZrMVh2R3JmM0dCT2E3NGxMZ3hLdUx6QjA0Y0xvNGp2cUl0V3prSFJGZXpmcHdBMHNXWG1NbGM?oc=5) |
