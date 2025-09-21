@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月22日 07:16:10（北京时间）**
+🕒 更新时间：**2025年09月22日 07:25:58（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Charlie Kirk Funeral Live Updates: Trump to Speak at Memorial in Arizona - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE5oVlo0Y0hhQmZhUU1TaFZXN1RXcVhLTWQ1OFhKSmJzQlk1VkV1MDk4MXBLNkFiazl2bjcxR1htVnlrMDNvT3JscjR1RUxuaW9aUXJodThMNHhVaWNvM3M4VGIxdHktQmZkS2ducFBQZEZMTFRK?oc=5) |
-| Trump’s H-1B visa fee to hit US employers with $14bn annual bill - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBBQWtWdldMczNOU1Zjd3RLZmQxREtIUGJKMldSU0dyeThZOUVSTjA3MFJYaWFzOTNuUGRtekFucEtSaHhUMFExaGxEMXMtaUJBdlotV0ZJWmZZeWxYajRBNk02bjZkNjF3c0hWV2ZORjM?oc=5) |
+| White House clarifies $100K H-1B visa fee won’t apply to existing holders as Trump stirs anxiety - PBS | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxNY0NMMzVVY1BzVzBPUHlhRzZraGRpWnVWSFlXUDlmMjRGeTl5cmZ2Ry1kMDlsV1ZScElFSmp2OERmRE1PM1AtbDB2S29pQ1o3cHZPR2ZjaEJsZjZIclJyVVdmdHJiR3k5ZnJ4TTM2M3ZpUWxZcVh0N3hkX2U0WVZrcjZmVm9CbzJmYkhxUUswTG9PNDJWSU9HTzJ4aUJ4bk1WejlqRkh1c2RVTEVrVFpTR2ZhMV9waHZqcWNvQVB6SzdQNy1vZk1IZXljZWnSAdIBQVVfeXFMUDNCWWY0LThVRC1oSEtmanJ6UmIwTEE5aTNmbkR6Nmxod2ItSmhLdHlXUnVzaEc4YmRsdTFzRzJaWVdKQ1lUZy1HdWFFdThRV3dySlZjWEEtbUdZOEtrTkRlbjU5ODhKZkpXN1oxc2JVX19UeGRvX2ZpWVFRTE5fS0R1RnlLSHd1SENCdVNZUGtCMEZIU3R4MzlhTlRTXzlON0R2NGU1cWVKZ1lGX2dKcjBvRmU0ejJqbmxrY3RBdjM5ZDdleEU4YXZQMEVqZXlvd3J3?oc=5) |
 | 1 dead, 2 wounded in shooting at New Hampshire country club; suspect arrested - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQTG4zemZKZTZTZ3NxOHR6OUpSeEtSTXAtcGYtdHFOUkRscEtWZGFjaXRLTEw0VUhIeEVTTHVNcVBSVl91Vm8tUE5ia3ZmbmtBNGJ1MHZpeWE2NEZtLUZvVTA1Q0V2R2JyYTJUM3pSWnNpNUZ0anRzSGtmLTYxOGFEcjNuS0RXTnhsTkRxQXAtTGF5cUpJ?oc=5) |
 | U.K., Canada, Australia recognize Palestine as a state, breaking with U.S. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQQndfNEtJSTJzS3dRM29ZQVFhbDZOMUF6VC1Yb296V0lWRTJEbUpmWHRobThDd05XLU1tUTN3dmw3Y3E5bXdpejgyVm5CMlJHLWE4WHRwb3BWNm9SZUI0Yzdoc1RiOVJwU2pzcHliUzhlUVBvQjh3MlRuVXZtNW9kRFhTY3NfYW5UYmNpUHVkNDZVaXIz?oc=5) |
 | DOJ ended probe of 'border czar' Tom Homan for allegedly accepting $50K in FBI sting: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPYWNJcmFnWVRrR3ZCZUszcDRLdzNfWE9GWHdfRi1wSjNLZ3JrSGhtbFJqT2RpLWtPcXhNTGwyU2JtbkdGVXdVUVdTZUZNdGVEUXF2VTBuUGktNzIwLWx0NTBmdWZSZTR2aWxReUdYRW5CcVh0LUxYUmlHSTlqaEhKeVU4Zlg0NW1vc0pjc1prMHhxcTl0LXZZcWtnV2ZXNkHSAaQBQVVfeXFMTzQya3c5S015UGRJZjVmUDF1WnRPMFl4cHVhbjR4N052akk1N2dta3M2cEYwWDUtb1BCb2kxOE5tQkFRWjJwT3JPRWlRUUZUaWZxX3NydEYtc1BoeGZRSFJXT2RYSTJRY3JRSTQyQVFfLXE1cGZMeS1pUjY2a3JPekM4SElnazZoMmxkU3J3cXFyZS1JSk90SU42Q2ZEeVRZa2dyTnk?oc=5) |
