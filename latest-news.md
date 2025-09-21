@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 19:57:38（北京时间）**
+🕒 更新时间：**2025年09月21日 20:01:45（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | Trump and MAGA movement will honor Charlie Kirk at Arizona memorial - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQRmpvOGxnWjloWHJIVHNpSWw5UXNoTGxGQm9XazdveEdJV0o2d3pZamtHRE1sMl9yYUJZOWNMc3NmZmdTNlF4Tk9VVXRqV0ZMQ0VRdzB6cFJNTDEtY0s4VHFMZjlwck43b1B5TUdodVNCQ09FN1JrMHJlRWNvSnVmZTJ1TWk4MHllTkNsbl91cWdnV1hsTFRPbEZ1WQ?oc=5) |
 | Trump demands Bondi prosecute political foes in Truth Social posts - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOM1hnZC1qUUFCOXlZOGYwaThRclRQaGROVkhKdWFuMkxNZ1ByMnJrZ3gzRXh2VVJmU1RsSFdXMldCZlo4V0VuVGlDb1NUSUVaaUd2cEpCUkh0YU1OYzRFZFVUakJTMXl0eS1uT1Z2elpuQkpidWlxWDhfakJ4UU52RFJsSzdiT1VMNWt4a2hZaGpVNXFYcDd3bHJVOFlPUG9XX3NIbGw5OHN6UkhiLVhtNGpYQmMzNnhybDZhdXYxZw?oc=5) |
 | 'We're not North Korea.' Newsom signs bills to limit immigration raids at schools and unmask federal agents - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQUTdxLTRjaXJkYnIzcGZTVl93WlRPb2dHS3RpUl80ejlWWUlQRGdfOFEyTGhLWVg1X3I4ckJkd2FFUUZlQjZ4WFBrQS01RVVKZDhUWF9MWVZBTEV3akhpdG9PVHVHb3RmZGY4N3NEZV9sTDc1ZVRLcDdaeWJTX1F3dmpjeExubGp4cWc?oc=5) |
-| One Dead in Shooting at New Hampshire Country Club - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOWnpFQ1RlZHhSTVd1S1dnRHVXbk5PaUhDUmhBWkNmdVRBZFA2aGdyQV9VckRZTEozZGdtWmlvWENTQ3ktaTFkdE56VW9NSTc1ZEVlSVhBeDIzWmRFVGdjeDhyXzZHRi1TWGQwRFZOd0taYXY5b3BBT3pjekxiUVpXeTh4emE?oc=5) |
-| Pentagon places further restrictions on journalist access - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNM2hUbDBkUGhyTWVxRjZfd2ZCQzJIdVRWUDNBVExSZlZMbUF0VzN5Z3cwTkZUdDRsRUJBZF9WMkt4a1BKSTVGc2FoQlhXWEo5UTNfcGNlU2txcGRURFZFZWI0RFdXLWVieUd3MFo1WXlCaW0yYWJKVWJxNjF5Qndla3kwUTR2aW5FV1RNZEM0dXpvUGd2Si0xYjhB0gFWQVVfeXFMUHZlVGZLM0VNUEF6aEp1dDduWWpES3hKOFB2UVREd29zblF5UTNOWHJPaXh5UG01SVVhbWZDUlpyMEVLbG5vSVFPTU82cmxYN0l4dnJpWnc?oc=5) |
+| 1 killed and 2 wounded in shooting at New Hampshire country club - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNMFdBaE94STVGTFM3VXZQNDBYd21ycGxPMlp4TnMyQzYzQ1c1U1dGQU9nMGVpZlFXT0RZZmlwUjNUeXlUNGtYWFc2a212NjVQODZ1Vjhnb3ZXbjJabXZPeFpCdGRpejAzQzdtNW9xODRqQ1pBb1E5czNSUGJCU3B2cFFGSll0YU10ZFZuRlEyMEhOdmRnQnh2OHhpQ0M2WVNFeWhGNGhGYWYxbWvSAVZBVV95cUxQU0ZsVHdxQ295N0U5b21mcTd6VGVQZnhTZEVYRW93UDBya0pkcUJwOXJueFMzdkJTbjU4Rk5PMnBnZUVwb0Z5OWszcnBsMVM3RjNTQ2VRZw?oc=5) |
+| Pentagon places restrictions on reporters in return for access - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5rTDJFcDlveHVVOUR2UlBNNnhBT0Y1c0tNLWg5WTlOaU9wUnVUaEhZRWFOOWRadlJrU2k5T09jN2c1dDNnQm9vQU9hbEVPZ1RaMW5ERzlrNnk3eW9XeUxNRkF3MTZqalBhZmtaQ2lONU4?oc=5) |
 | Trump nominates White House aide to be top US prosecutor for office probing Letitia James - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQc3BhN2NlVkZFaHNpa1pRUWtJWWdCWWZJUGNPWDJVOGhFOVBhZm5EbjhiY0J3SXRBOTUtQWw2RkhONjBfWlJ3YW1GSzFQa1lHNU8wTG5mb0tnMVltMjJrcHBOUmNQLUlhMW82UlZzVndPZkcxb3RsQlBWcWJMR3d1b1lpeVZKR0xYTzRVVHdhTVBNd0RFNmk0cEZsZFFHb21XTFRvSEpNdHFlVjlQRHp5Q1A3emg4UEt0?oc=5) |
 | The Taliban reject Trump’s bid to retake Bagram Air Base in Afghanistan - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPMGstR0Y0dEFlQlMxMkdqWHFLMkFjeUdEYkhTSHBqdXQ3eUJmTjZFTkQ1ZlFMaG1YYV9wcGYzalJkTkVIQjN5OUR2WmpGcVh4UTNDV2szSGl0Q1JXdEJNR0JEcGc0V0J2VE9uMFhOLWFqQk1DQUJmTWlCc1lTOGgyRnE3TDdBcnI5S2VMcDF3bjRWWXdGeG1EeVA4RndEWVRWYmc?oc=5) |
+| Man Charged After Drive-by Shooting at Local ABC Station in Sacramento - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNbkFfVGN4eUdTbjZEQWc1OVdJdDU0YzJ5UkJSNWwxaXpWRlBmZEhndkIxNlhJbUdSVVV1UUM4aWs5QVZNTHNCdUFrM1IxN3l0eDVmdUZjVm9xZjdRZEIxSU85Z09OQ1N4YkI5dms0bmZiSXlGUnl3TGs2LUFMM2Y4clFocGw?oc=5) |
 | Oklahoma Republicans propose all state colleges must have Charlie Kirk statue - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQRVZpLU5xNFRIREZXV3lXSlUtbXpSczMtdHgwTC1QaVpFZmktZTZaRUtFbFFpdG9aaEJjNEJBOXlyR0ZMUldQUkMwZmRYUVdTRjZXVzJSOEZtMlNpNzBocXVOZ1lWVVhnai0zR2lKN1VocDBTRFZ3TDlDbTl1M2lsTkpZTXJQNDJY?oc=5) |
-| Schumer, Jeffries demand meeting with Trump amid shutdown showdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQNzBaT2g2N0p2aWpRZWFzZ29oUkxTeUlVbEk0NjMwZmlEU0lJY0I4TzR0V2hjSlkySU8xTnNkU1ZsUi1xdTFFYkFYX0JGLVRNdHJLby05NTVwcGlTVkstY0NGOVBiVTZWbUVoajhDdUgyYTVWUlFWTmIyWTBBMGdPcFNhV3lxeF9yamc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
