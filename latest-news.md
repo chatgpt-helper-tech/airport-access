@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月22日 06:17:24（北京时间）**
+🕒 更新时间：**2025年09月22日 06:24:11（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Charlie Kirk Funeral Live Updates: Trump Expected to Attend Memorial in Arizona - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE5oVlo0Y0hhQmZhUU1TaFZXN1RXcVhLTWQ1OFhKSmJzQlk1VkV1MDk4MXBLNkFiazl2bjcxR1htVnlrMDNvT3JscjR1RUxuaW9aUXJodThMNHhVaWNvM3M4VGIxdHktQmZkS2ducFBQZEZMTFRK?oc=5) |
+| Watch Live: Charlie Kirk memorial service honors conservative activist - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE9XYXo3d1RaVHBrdUhySVphOC1LWnROU2hxX3lSNW1TMklfSjI1V0doejhHNmdEbmRxWmxPRl96bTVwS1p5enRJMUR1VDJmODFQQ2FjU2Z1clhTWEtGR0RNN29FbXltQUQ2WWIwTERma0NJLUxzUHfSAXtBVV95cUxQRGJsMEJDZ3pUd1RqMERtZ3JReW5aNjF6d1pBRWdteUlVaE1ySG9MS2FQWjMwUlhuQ2txelF6UGJ4YVBHS2xadmNOYm5GOXljLTJ3NE5ZUEdpbVQ4SWtCcG1iZ0RkWlRDbHpnNkxnNG1fRWFHc2JZNUtlUTg?oc=5) |
 | Trump’s H-1B visa fee to hit US employers with $14bn annual bill - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBBQWtWdldMczNOU1Zjd3RLZmQxREtIUGJKMldSU0dyeThZOUVSTjA3MFJYaWFzOTNuUGRtekFucEtSaHhUMFExaGxEMXMtaUJBdlotV0ZJWmZZeWxYajRBNk02bjZkNjF3c0hWV2ZORjM?oc=5) |
 | Australia joins UK and Canada in formally recognising Palestinian state - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxPRmtxLVRudWtUZEM0MnEtM2hoc1ljektjTXFHODJNZmVKN3c5WUU4SkZoUEE0aWVRSnliM0FwVmg0RzlELWpZZGxiVzJVellrTWhEeTFJX3JYUHdzVC03T1JWQ01sZ2ZJbjlpMjlXU05QanFVQ0pFSHhXOVRRUF8yVlRZdUpodUdKYWlQbU44RVZZSmtPY1BGUEd6aHJ6RmhyaVJLSkZVRjFZU0JCYzYtYUVibk1vaUxzbXNtM2c0dEF6ZkZU?oc=5) |
-| 1 dead, 2 wounded in shooting at New Hampshire country club; suspect arrested - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQTG4zemZKZTZTZ3NxOHR6OUpSeEtSTXAtcGYtdHFOUkRscEtWZGFjaXRLTEw0VUhIeEVTTHVNcVBSVl91Vm8tUE5ia3ZmbmtBNGJ1MHZpeWE2NEZtLUZvVTA1Q0V2R2JyYTJUM3pSWnNpNUZ0anRzSGtmLTYxOGFEcjNuS0RXTnhsTkRxQXAtTGF5cUpJ?oc=5) |
+| Suspect arrested and charged in deadly New Hampshire country club shooting - PBS | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQcmxBSm1ReUcwcTVYZWFVLTZTVVhYSmlwT1d3a1pFYzN3SW04TGlsMWpLc2dyOTF4LTNXeHZiVVY2aWxDQVhVUkhWel82TDg2bC1Pa0dObGlrQm5jUkpHTjdtUkQ2QS1reGU4TWhJOHdiak9jSUlNNE8zaGExRGExWktrS3FqcXU4Nk95MWY3Wk11ZU5Va3hrMkkwTGQyYkd1TnVpbjNNelFUU1NPd1FB?oc=5) |
 | Trump officials shut down bribery probe of border czar Tom Homan - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOYVpfTlFONFNDZ3pHMEIzWUdtZ05iTFVPYWtMX3h6N3BxUkt6WnM1dHpmVFZDTGlDOVBFWVBMWWpvWUhIbnczYXBTVW5sUmlUZXR0RmJaZnVBZi1fWHJuQmtSRXo1dHlrbDVrdjk1dnJ2VHpNTC1pTXpvUWpSMzRWQktaV2ZKN3pXYXZ4OVoyYUppRkxjcDUwM3cwUlNxdWpheENr?oc=5) |
 | The Taliban reject Trump’s bid to retake Bagram Air Base in Afghanistan - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPMGstR0Y0dEFlQlMxMkdqWHFLMkFjeUdEYkhTSHBqdXQ3eUJmTjZFTkQ1ZlFMaG1YYV9wcGYzalJkTkVIQjN5OUR2WmpGcVh4UTNDV2szSGl0Q1JXdEJNR0JEcGc0V0J2VE9uMFhOLWFqQk1DQUJmTWlCc1lTOGgyRnE3TDdBcnI5S2VMcDF3bjRWWXdGeG1EeVA4RndEWVRWYmc?oc=5) |
 | 'We're not North Korea.' Newsom signs bills to limit immigration raids at schools and unmask federal agents - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQUTdxLTRjaXJkYnIzcGZTVl93WlRPb2dHS3RpUl80ejlWWUlQRGdfOFEyTGhLWVg1X3I4ckJkd2FFUUZlQjZ4WFBrQS01RVVKZDhUWF9MWVZBTEV3akhpdG9PVHVHb3RmZGY4N3NEZV9sTDc1ZVRLcDdaeWJTX1F3dmpjeExubGp4cWc?oc=5) |
