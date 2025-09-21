@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 09:57:25（北京时间）**
+🕒 更新时间：**2025年09月21日 10:00:10（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Man Charged After Drive-by Shooting at Local ABC Station in Sacramento - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNbkFfVGN4eUdTbjZEQWc1OVdJdDU0YzJ5UkJSNWwxaXpWRlBmZEhndkIxNlhJbUdSVVV1UUM4aWs5QVZNTHNCdUFrM1IxN3l0eDVmdUZjVm9xZjdRZEIxSU85Z09OQ1N4YkI5dms0bmZiSXlGUnl3TGs2LUFMM2Y4clFocGw?oc=5) |
 | Oklahoma Republicans propose all state colleges must have Charlie Kirk statue - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQRVZpLU5xNFRIREZXV3lXSlUtbXpSczMtdHgwTC1QaVpFZmktZTZaRUtFbFFpdG9aaEJjNEJBOXlyR0ZMUldQUkMwZmRYUVdTRjZXVzJSOEZtMlNpNzBocXVOZ1lWVVhnai0zR2lKN1VocDBTRFZ3TDlDbTl1M2lsTkpZTXJQNDJY?oc=5) |
 | White House Outlines a TikTok Deal With a U.S. Board - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE53Mm1MeDZNRzRFMU9WbG85b1NOOVlMb3N5Q3JfblVxS2lEWnBFNkU2NURYaTdyeDFmdVNZMWN4US1iUG0tQ1lOSlRiT2E3dm4tSXBFeV9TRjRhcWxNUlpqMHZmcFFEd0dVZGp1aTNMS1FHRXNpOWU2ZWtBQnIxdWs?oc=5) |
+| News outlets, lawmakers condemn new Pentagon restrictions on journalists - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOelF1NlZ6bzJUc1VmNVBfVE8tY3hlU1hQcDQ0aXluX3N3R3ZkWDAxS0hNSWROUmUxd1o3amgwQmxHREs4bEFfUWl0TXhDVWNPeWEtNmJ6N1JjQl9pZ01EamFoYnVJR0dBdHVtV3pnWnFYMVBTQjRvWDFXQkpMMm5pXzN3NVM4ZElnNmxaSk80QWg?oc=5) |
 | Israeli bombing kills over 90 Palestinians as Gaza City faces destruction - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPd1FjMnU2UFdzSjFrbFA1RlJtTDljYlNQZzg4YWgxaVdUVnlBZ2ladlJPc3EteHFadU1STG1vX2ZRcVhGLVdnZm52YjViZFhqU3RBWE0xVUVuZ2NOUWpJM2dMRUNDb0RibmthRlZhbms5cDdUSVhFNFNCbXJhMElZTmw2a0w2cFlwdTlORWxVMUdoRVZNdUcwVVhReTZIdl9OUFZ5RzBvdEpoTmNPc3pGZjF6QzHSAboBQVVfeXFMT2VLWnQ1clBBUmptZTN2Sm53NjJQWU5vdWt6Umh3Rld1MHFLckZtZDNfRzZRMlhRTjk0ZFI1bHB4RmNwNWdfb2ZlQ0RwMUdVUnJkVkFFOHlMSzNhS3JyNkMtNWlUbkEwRHBQMDN1blhiNmNTZ00tTk5WQnI2Sm5rWDFsS2d1YUV6aEhOQXdwaFFvMHNMNnlpcDdmbkpySE9uczcwb1B5YzQ4eWhpNVZHVTBQbkp1TFVEUlFn?oc=5) |
-| Violence erupts at right-wing demonstration in the Netherlands ahead of election - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPRUxPZ0J2dkM0VEVEZEtfWWVCaUZ2TlRuSzNxaHYwR3dZUG9NYUNHV0VQNVFJX01UWDVPRTVxRWFIdC1BUWxTZTUxU0hIVS1SV1hkdml2WlZHWGludHFZc0hLLVNUS1VEQURETjl2OXRfM3VyeExwSTE3WUEyTmh2TkZnaG9BZ9IBiwFBVV95cUxNQXN6d0ltbGFBeDkxRGF3U3RHRjhnVS1DR3F5dUU3ckFMaEhJa0otUlVRNEpyeUFRUVNGdHhsR19nSWkyNFpKLTZLT0RxTVJOOFJGaTktVXhmNTJvem5LYkhaVEhlMFZDV3pEcHRHSXd1b090aWN6YW5HeVhWLW0zSF9ac2praGFaVWE0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
