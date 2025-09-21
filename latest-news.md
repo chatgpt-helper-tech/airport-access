@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 13:01:16（北京时间）**
+🕒 更新时间：**2025年09月21日 13:08:58（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Starmer set to announce UK recognition of Palestinian state on Sunday | [阅读全文](https://www.bbc.com/news/articles/ce800enrglzo?at_medium=RSS&at_campaign=rss) |
-| Why Starmer decided the time was right to recognise a Palestinian state | [阅读全文](https://www.bbc.com/news/articles/cp9848kxp2go?at_medium=RSS&at_campaign=rss) |
+| In West Bank, Palestinian recognition welcomed despite fears of Israeli annexation | [阅读全文](https://www.bbc.com/news/articles/c0ez9qxzl2jo?at_medium=RSS&at_campaign=rss) |
 | RAF jets join Nato air defence mission over Poland | [阅读全文](https://www.bbc.com/news/articles/c4g7752w1ygo?at_medium=RSS&at_campaign=rss) |
 | Duchess of York called Epstein 'supreme friend' in 2011 email | [阅读全文](https://www.bbc.com/news/articles/cgj11l3wd35o?at_medium=RSS&at_campaign=rss) |
-| Press could lose Pentagon access for releasing 'unauthorised information' | [阅读全文](https://www.bbc.com/news/articles/cwywwjevprwo?at_medium=RSS&at_campaign=rss) |
 | Former Liverpool manager Beard dies aged 47 | [阅读全文](https://www.bbc.com/sport/football/articles/c0r00qx5llko?at_medium=RSS&at_campaign=rss) |
 | Curtain rises on Strictly 2025 as new couples revealed | [阅读全文](https://www.bbc.com/news/articles/cy9nnl78dgzo?at_medium=RSS&at_campaign=rss) |
+| Ed Davey urges regulator to go after Musk over X 'crimes' | [阅读全文](https://www.bbc.com/news/articles/c5y558r2r1qo?at_medium=RSS&at_campaign=rss) |
 | Creatine - can this muscle-boosting supplement help boost my brain? | [阅读全文](https://www.bbc.com/news/articles/c2lx7klzvpko?at_medium=RSS&at_campaign=rss) |
+| Why Starmer decided the time was right to recognise a Palestinian state | [阅读全文](https://www.bbc.com/news/articles/cp9848kxp2go?at_medium=RSS&at_campaign=rss) |
 | The Papers: 'The actual state of Palestine' and 'Fergie's apology' | [阅读全文](https://www.bbc.com/news/articles/cn4llyxdl3yo?at_medium=RSS&at_campaign=rss) |
-| My student loan doesn't cover my bills - so I wear my work uniform to lectures | [阅读全文](https://www.bbc.com/news/articles/cly68e6r621o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
