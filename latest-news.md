@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 15:01:50（北京时间）**
+🕒 更新时间：**2025年09月21日 15:09:47（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump’s changes to skilled worker visas spark confusion. Here’s what to know. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNaU1Ibi12TFhXaExwdDJESzVrQzBHdTRDYmZVTV9HbjNNNVBacktPLUk4MGFZMHlRaDBTX21QNGtkNTJKLXZRaGs3QVZFVmRHMVpKY0VVek9URTkza1JPN2VOUHdPTVpqSzRMbHk5aUNrcElTYXRUMDBXdXdYMmxYc083VlBjNUZmcEphN3diSUVXUzdVMzQtQzF3RHE?oc=5) |
+| New H-1B visa fee will not apply to existing holders, official says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTFBpZG1iRlJ6VGhuWlJGdFJjblR5TS1ZTEdaMzFLeFk0UUh2RGNraWpMU3hvMmZkU2tLSXBNUFRaQVktX1JQbGUxZ25JVE9jLU8xSDJlZm1lRFB2MzgyTTlCMkcwNTFHRHFUVk5MaHBR?oc=5) |
 | ‘We can’t delay any longer’: Trump urges Bondi to prosecute his rivals - Politico | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBXNVo3dTZ4MEFqaUhEd0Z0MWNzcHh6alU0SXdmV1o0bFgxOEFIM1czZGNfY0lwM0RjakE2QnRMdXpfZXM5YlV4aDd3MVhDTl9ldWFEckE0WWUzSmMzM3h0cXVSSEI3bDdKMHBxQ1FLVUl2V09CTzE1UDdrMDBzaFU?oc=5) |
 | Armed man accused of impersonating officer at State Farm Stadium ahead of Charlie Kirk memorial service - FOX 10 Phoenix | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxPM3lVZjRlZFJUdGQ1U24tdTRVcWlXMkRvYi01Q2FFdE1Cd21mQ2ZTck5BaTM3dkJhTkdGc1RBZW1SWnltY0l4R0o4dVFyV0tpaXJ4NEdSRlRFbm9Ya2lFMVU4U1B4dDg2N1FHNEZ0R0QyZndBSzg5OVBqdG5waDB6RjdnUFlJRjk4NUJIZEY5RXdJbU1oNXlibHVXQWllZ3o2SXVmVDdSbjVRX1ZuS2VUdTUxT0VaUW0zdmFFeC1KU0RleXRDZV9n0gHMAUFVX3lxTE0xV1B1amlrRWZpRnYzZi1mazZYMnJPRDRmTHRsdjhKLUhpUTIxWHd1SVBPcUZxRGp4MFZFaWVzS3ZGbEpHelpBX3hpYWZtX1hCTUlNOFgxQURDWlcxTzVidTFyaVJBVFZaU2FOYkJHQmhmeEpzdDRZS0N1blFwNFNmNjROUWhENGx1RnpKVUdMbEhYd0V6ekw0MjEzc2RtNEl2QjVTV0lWNnpuMDlsck01Yk5lODkwdDZrUDNVZEU1UzljNHZXeVFCRmpXMw?oc=5) |
 | 'We're not North Korea.' Newsom signs bills to limit immigration raids at schools and unmask federal agents - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQUTdxLTRjaXJkYnIzcGZTVl93WlRPb2dHS3RpUl80ejlWWUlQRGdfOFEyTGhLWVg1X3I4ckJkd2FFUUZlQjZ4WFBrQS01RVVKZDhUWF9MWVZBTEV3akhpdG9PVHVHb3RmZGY4N3NEZV9sTDc1ZVRLcDdaeWJTX1F3dmpjeExubGp4cWc?oc=5) |
