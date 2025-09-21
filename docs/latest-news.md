@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 13:17:34（北京时间）**
+🕒 更新时间：**2025年09月21日 13:24:52（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| New H-1B visa fee will not apply to existing holders, official says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTFBpZG1iRlJ6VGhuWlJGdFJjblR5TS1ZTEdaMzFLeFk0UUh2RGNraWpMU3hvMmZkU2tLSXBNUFRaQVktX1JQbGUxZ25JVE9jLU8xSDJlZm1lRFB2MzgyTTlCMkcwNTFHRHFUVk5MaHBR?oc=5) |
+| White House scrambles to clear up H-1B visa confusion after panic throws corporate America into chaos overnight - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNamZvLVZhYlFYcEV5a2trUkdBWnN2OXV4TWo4NjlVdDFCR2Rua012b0dpT3ZCMEJSVThxclBQVU5VSndiOE5WakdOeHU0MDh5YXVOb0R6ZGt4WjlaQjNiMWRsdlBjbUJPOV8yVjdVUmhXU08xbFRpME0xbHpyWC1adEJULWJKSEQtaHlMVUd0T2xKTXFfZUFOWEtjeExnekNqZXVIajJHMmNoU0s5QkE?oc=5) |
 | ‘We can’t delay any longer’: Trump urges Bondi to prosecute his rivals - Politico | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBXNVo3dTZ4MEFqaUhEd0Z0MWNzcHh6alU0SXdmV1o0bFgxOEFIM1czZGNfY0lwM0RjakE2QnRMdXpfZXM5YlV4aDd3MVhDTl9ldWFEckE0WWUzSmMzM3h0cXVSSEI3bDdKMHBxQ1FLVUl2V09CTzE1UDdrMDBzaFU?oc=5) |
 | 'We're not North Korea.' Newsom signs bills to limit immigration raids at schools and unmask federal agents - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQUTdxLTRjaXJkYnIzcGZTVl93WlRPb2dHS3RpUl80ejlWWUlQRGdfOFEyTGhLWVg1X3I4ckJkd2FFUUZlQjZ4WFBrQS01RVVKZDhUWF9MWVZBTEV3akhpdG9PVHVHb3RmZGY4N3NEZV9sTDc1ZVRLcDdaeWJTX1F3dmpjeExubGp4cWc?oc=5) |
 | Armed man arrested outside site of Charlie Kirk memorial in Arizona - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNT2VIRU9fN3BJdUlFN2FLS2ZqSVBqcFF6clI2cjRhU3h3YXhuN2lJWHN1Zjl2MU1RQk4ydWxvNXFmeGY4eV9sUG1SeUpoWVB6TjF5RV9nSTVTNWxIN090VmNxM2o1VGpsSkZIbWF3X1NWZkM2Z0pHdHNDendOZktCYmNqTEhvZ9IBiwFBVV95cUxQUFFJY3dnZkp0Rzh6ZDlIM183TE90WDQ3WV82Q244ekkyOXp4Sm56NXprdVlRUWVVcmI2U2toZk94WHQ5MFBOakNvSTJKbi0zdVlkOU9LeXlpOFhxSGVpZnkyWFRmNWJHM0ZqMGJ3QmhGQW1UaTRMZVZoWjBINU9CMVJDWV9tTUwyQlJz?oc=5) |
@@ -31,7 +31,7 @@
 | Man Charged After Drive-by Shooting at Local ABC Station in Sacramento - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNbkFfVGN4eUdTbjZEQWc1OVdJdDU0YzJ5UkJSNWwxaXpWRlBmZEhndkIxNlhJbUdSVVV1UUM4aWs5QVZNTHNCdUFrM1IxN3l0eDVmdUZjVm9xZjdRZEIxSU85Z09OQ1N4YkI5dms0bmZiSXlGUnl3TGs2LUFMM2Y4clFocGw?oc=5) |
 | Oklahoma Republicans propose all state colleges must have Charlie Kirk statue - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQRVZpLU5xNFRIREZXV3lXSlUtbXpSczMtdHgwTC1QaVpFZmktZTZaRUtFbFFpdG9aaEJjNEJBOXlyR0ZMUldQUkMwZmRYUVdTRjZXVzJSOEZtMlNpNzBocXVOZ1lWVVhnai0zR2lKN1VocDBTRFZ3TDlDbTl1M2lsTkpZTXJQNDJY?oc=5) |
 | China's ByteDance will get 1 of 7 board seats for TikTok's US operations, official says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxPeWdVNjdXR25QR3psMnNRNEZ3Rjg3ZnNvOXMwMXFsTDJKQnB6SkEwenVIUkdDSi01bnRoR0x3bFBXUjN2N0MxQVJRSHJNX2pPajlfZXUwYjlfcHJERW5fV3VfM0xEdGc1bTduanUwb0VsNVladG9WWGFiWGxxYXZWUHVGYkNkR3lhY2dFSTQxVThRbW9WSnpYY25iWmx1dW5qSHd3bDBYX2pyTnEySXBFSl9Wc0gxWUZ2bG1fbGpyXzNqaTdaS0xac2FFaEdnZGduMGNHMXpqREJLdWZY?oc=5) |
-| Schumer, Jeffries demand meeting with Trump amid shutdown showdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQNzBaT2g2N0p2aWpRZWFzZ29oUkxTeUlVbEk0NjMwZmlEU0lJY0I4TzR0V2hjSlkySU8xTnNkU1ZsUi1xdTFFYkFYX0JGLVRNdHJLby05NTVwcGlTVkstY0NGOVBiVTZWbUVoajhDdUgyYTVWUlFWTmIyWTBBMGdPcFNhV3lxeF9yamc?oc=5) |
+| Democratic leaders in Congress demand a meeting with Trump as government shutdown looms - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQQXprQ2FzVXJFWjJTeFVHRG5sMDlnRmEyTHI3MVNQc05NTTlBS19lTEVtVk93alljTDdLaEFEbFM2QksyNzQxRVZ1SWF2ZUp0WmFrUXNZYl9kYndYR2h2cE55UkY0aDhjeHlHaDFNSEZEcElDNDBRTVJ4aWs1d19wR0puX0V6RjdhX0pYT1Fhb1hsdGhYaERJS25UY3JjOWlMTUdJN08zR2psY3VfckNVcQ?oc=5) |
 | Trump says 'bad things' will happen if Afghanistan does not return Bagram air base - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNVFo4aXl0TW9XWnpIR040dElNUk1MZ0IzLWJKR0ZQaE9Valh3VmN3Wnkzd01BTm1FeHdCOXpqbmtpSUJwQ3FWdmZnbkNIWWQxQ0NBcy1TQ1U5RnRENzRDc2kxZm9FcmU3MWtiNVZWajVfTk9qVU9ja2Q1cnBLMVRJTkhacVJ2dS1Ycmc3OEpGUGhmWDdYWFpzb1RDaFVPS3dLQ2ZhOExOdFc2dWRILTVjS3IzUWRGSWZ5bmx1cmFQOHhxaFExSDNqeklvMUxuY2Q1?oc=5) |
 
 ---
