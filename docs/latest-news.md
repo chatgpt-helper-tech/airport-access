@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月22日 03:01:11（北京时间）**
+🕒 更新时间：**2025年09月22日 03:08:52（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Charlie Kirk memorial service set for Sunday with Trump, Vance to speak - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPQWJmVkZMNUdkUk5Hb1JzS2pOX0xDVVJuRXEwUGF3VldjRWpXcmQ4T1J2U3FKbldQbTZhV1BhUWN0NDFCMEs3WS05cjJ0LTJDWDBwVHl0QnJsNjkwUjJXNzVHT1hBbDJiaGFIMEVnRE04UlRzQzVNX29rLVZVejRva3UxcWxiY2hrWjM1N2dieUQzdHZQdVgyd2NHTS1TZ3NWSGRjbFR30gGrAUFVX3lxTE5mWXc4d3hvWTRFdWFyc3BiekdDemRnYUpvcjlSQkptODgxUXRFdU51Sk1GY2VNRndDUWx3cGhHanJ6aUFBc0pzdEc2V0xiMXBmV1NiNktaRXJ1alRwQjlRYVlMZlpoY3VBUjdzcDBMZzJrbUhfRFBtWUFwc0RoajFIYnVKMDFMamMyQVhhc2podERsUjE4eDZqNmdzZDFTSzNTSjFIZVNyOVRocw?oc=5) |
-| Trump’s H-1B visa fee to hit US employers with $14bn annual bill - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBBQWtWdldMczNOU1Zjd3RLZmQxREtIUGJKMldSU0dyeThZOUVSTjA3MFJYaWFzOTNuUGRtekFucEtSaHhUMFExaGxEMXMtaUJBdlotV0ZJWmZZeWxYajRBNk02bjZkNjF3c0hWV2ZORjM?oc=5) |
+| 3 tech workers on H-1B visas detail their last 36 hours: canceled trips, anxious parents, and, finally, relief - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNdXV3al9LRjVmVGJ6ZnVQRVZqdWR5eDFQeFlxb1AxeE5tMXp3d0M5cXlCOXVRSVZURjEtRG1aN0lHaGVWeExLOVR2OTlMMW85RkU0YjdIOWF0alBzNTh4VDZkakxSRTFQTFRQamFXOWdDeXJPUWY5NGVlTUlvVXdCUmhmRHFDMUFjbU5OZ2JDLTJFRGZwNkdN?oc=5) |
 | UK recognises Palestinian statehood 108 years after Balfour Declaration - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNY013bmtCLTcwQVpIWEh3eGNSNWM2XzdhNERDak1TYU1lMWtfcXdMUDBfZjVxUXI5TU4xWjFYSEFyQVY3cVYwcWIya3FVeVBwcjVVdXhyMHFOMzltQmZtVkZKUHFoTHdjQ3c1RTdwUkZPT01DN3QxSDFLMHJXOElLRjJ5RHV1eEV0dXNJdXcyTGhLZG1WcGdTN0tFNnFqbnB4YW1UV3c0NGRmMGQtTVHSAbMBQVVfeXFMT1VGQnZEODdocXJrTnRxQV91eURoRThWOW5FU0JqUFpwZGd3VkI4dGI1dzlGUzNvdGN5WGI4Z3ZwcHN3djl0aHI2cmxuOE1oYzhxVTdFYkZ5bmM0Tk8yRFRoTHlNMHBSZDhVVEItWEpZM05FUTJiZUEzWjZRbVd1V0VkeF90X0ZhUS11UDdPVDJ1cDZOMnpnRjdIVmtOMEcxbll2Y1NPT1RsajNlM2JWNmFjYWM?oc=5) |
 | Israel kills 34 people in Gaza, say health officials, ahead of UN meeting - Politico | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9RMEN4bnJTTzlIX3pid29wWDBxTDJLaE9fRzRMcXN3VW9NbmVFLUt6ZVVRRWJ3OVg0X1BGZnZkaDhYZUdZazVaVkstYkVRMUdBcXVKX2lHcXl1OU1zWWw3bmF2cUhwNVJfZW10eHR5Z21MYUpUUDIweA?oc=5) |
 | Pentagon steps up media restrictions, now requiring approval before reporting even unclassified info - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOX0syWTB2LXNEVnRlZ1VxNWxTaU5Fd0FuTElqVWRONXQ5TXE0bTBEMS1SbllCRU5QMWtFVGZ2MDNrMGR2VTJMYTkxUWFEbEkyYmFxVnhLY1FJd3dadXRNOEpHZUtYamMyT2VOemVLSzk1bDFtaEZJOUZobWJZZEZxSFVBeFk3aTFZakZtMWV0enZzZktCR1c1TVJrQWdoamVTUl8wdzh5RFZuY0U?oc=5) |
