@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月22日 00:25:25（北京时间）**
+🕒 更新时间：**2025年09月22日 00:33:17（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Thousands gather at Charlie Kirk memorial in Arizona where Trump to pay tribute to slain organizer - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxQT0dpRFFlbTk3VkRjMTE2Vk5aSmRyYTl5RFNEMm5hN3BNMUhlXzU1VHNNRTRFcEZrM0ROa3BmYjIxbV9rdjNqbGpjeTJMRFBqSmVraUluRmFuUGZWLVdMWXc0cTZtSDN6VEV6MHB1NDJIN2lBV1lYdDFxdHB2S0FyeW1QWFRDTmxxckZJR1lKM1dsdV9lNGhVc1FaYTQwZXBHUUtjV3poSU9tSjR3cTRia19yYUs1elpEWFNEalpaQ3FlbGk3YlQ2ZXNZVFlVc2hjeVV1cnZDNDRMMUVHcjhZ?oc=5) |
-| The H-1B Visa: Why Is Trump Adding a $100,000 Fee? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNVDlXS2ZmM2tJbjRxd0JLUHlHdFl5blU1NjBkS3VYRGZwMm56VGVuN3lURGhLUnUyS0dXdlZPMkkxdkl3S24zLXZTSGVlanQ4OVBsckN2MXVNR3VtQngwTkYxRGRfV25MV3BMNHJ4ZmFBZW1IS0t2STBkOEhIanZCYnFmY0w?oc=5) |
-| UK recognises Palestinian statehood 108 years after Balfour Declaration - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNY013bmtCLTcwQVpIWEh3eGNSNWM2XzdhNERDak1TYU1lMWtfcXdMUDBfZjVxUXI5TU4xWjFYSEFyQVY3cVYwcWIya3FVeVBwcjVVdXhyMHFOMzltQmZtVkZKUHFoTHdjQ3c1RTdwUkZPT01DN3QxSDFLMHJXOElLRjJ5RHV1eEV0dXNJdXcyTGhLZG1WcGdTN0tFNnFqbnB4YW1UV3c0NGRmMGQtTVHSAbMBQVVfeXFMT1VGQnZEODdocXJrTnRxQV91eURoRThWOW5FU0JqUFpwZGd3VkI4dGI1dzlGUzNvdGN5WGI4Z3ZwcHN3djl0aHI2cmxuOE1oYzhxVTdFYkZ5bmM0Tk8yRFRoTHlNMHBSZDhVVEItWEpZM05FUTJiZUEzWjZRbVd1V0VkeF90X0ZhUS11UDdPVDJ1cDZOMnpnRjdIVmtOMEcxbll2Y1NPT1RsajNlM2JWNmFjYWM?oc=5) |
+| H-1B: Man spent $8,000 on flights to get back to the US after visa fears - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE0wOFBJTzc2TUJ3Zkd2NUV2N1VHNUFjbnYzR253akdpVEstN2tZYXV2b0RtOEdvOEJHYWozUExycDBqZ2kwWVBQTUw3aE1LU3JfQkRJV2l1T3BVd9IBX0FVX3lxTFBrZktjTFp2R1Nzc1VhcG94a1kyMmJ1T21HZ0hxZ2l0eVdmNFFzdHhFb3Y5U1BQQ1VUNG5kVnNuSVQzSDhORDdIcHl1N2JHNng5dTNDRTNRZHowcGI3TWlR?oc=5) |
+| Britain, Australia and Canada Recognize a Palestinian State - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQR050UFU0ZXpxQWUwNWVHNVRMMDlBbThrb044TE1NanZ0UDRtSFRIbVRkbGUyVWtTUTdSU05RMFp2aEZSaTJzRThWRUZQUzNPcndIZjZoSjdzTmxPYmNsR2tpaUdLM0pJc3dhUXZIUTI0MEVqYjRUTy1ZaHRmSzVKeDdHZ3Vfb0Z3Z0hSOGJsTXZOOXFLRGc?oc=5) |
 | California bans most law enforcement including ICE from wearing masks - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE83ZVduTjB5cmVjNHlZZThQU2JVcy1KdHpneEo2a05MUWNYbHFSQnhjWjQ0Q3NlTG9WWVp0NmhpaUJiZDdvOWRocjQ1QXU1aUZZdWV3R09QX0YtQdIBX0FVX3lxTE4zWkV0YTlXRkNrNmoyY2c5LVFneEhwd1Z0VS02SHN2RGpxem1OLWhTanZfd1RTN2d4cF9nb0xtNmgtRWVzWk1KYnNqQlpjcFRib2kzOUYxbTJUOVVUei13?oc=5) |
 | Trump urges US Justice Department to charge his prominent political enemies - France 24 | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPTVFaNlFZV2RJaFJWSmdJU3JIN3VRSmIwSGxWSjVDbWxDZ01oX3JvWDE4dUVXX2JWWEc0eGZNR0x4a0xuS0hWbjByMllnMktHOS0tZTlvQlp6UXhEbm9DOVpHWl9ZSnNOMUtVTko2eE1TM3d6RkZ6cjBzZ1pNUlcybWJaNzViX3ZqLUJ1TGRxckx3SEVXaDVYbG5lZ3loMXlOYjlEWXN5UmE2NlVEblhjYmJYa0MzX0Nuc2c?oc=5) |
 | 1 dead, 2 wounded after shooting at New Hampshire country club: Police - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNM0FiaFB5R09vTG1wRnVQOUFNd0lWblhEYWtBU3hScy1tdzNhLW1JWm1aTGs4RzZuR2xHMmJlOGlWNDNXX3RpRGkxXy1vZHhnTnFuWU5YWUV4ekZJU1dQSmQzem5oZlRBQ1lycFpuMEF2STJkWHZSQVY4NU1DX3VxWm5SMkdTZ2tuSzNYSlFhV2d3aTFFcFR1eE1n0gGfAUFVX3lxTE00TlljRHIxbTFZc25fUk9vV1FrQkhnS0ZFM0R3LS1xWFRqV1FwaHNuOW41dEt3RmY1c3RWN1ZEZERKbjlaYjFDOUdrTzZSSndnVFRUUC1QY1hNQkV0NTgyZDJLVEItb0xEMnNSX0FlelNUR2lwVzkzdFBGdTVRN2JJSnZBdjhMYWFaUGdmV2F3Q29qb2lYQ1pVenZqTDZ1TQ?oc=5) |
