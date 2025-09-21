@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 08:41:59（北京时间）**
+🕒 更新时间：**2025年09月21日 08:48:51（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Border czar Tom Homan was investigated by DOJ for potential bribery, MSNBC reports - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNWkxTa1kyM2hSeWxTT3psVlZ3VlVJU3dxVXktbUZ2aHc5Z3FGUkttWjlsTVhrb2Q0Z3NtRU5NYVRzUW9MX2ZBYkdiQnFLUHdXeDRrSEQ2X1ZMaE9vT0M1b2p1bV9yWmhldldmeTNjc2tGMjNzSzNacUs2djgybC1vWjhnYUg2SThOOXRUWHM4ZEZPQjNHNXBfbEtXaw?oc=5) |
 | Oklahoma Republicans propose all state colleges must have Charlie Kirk statue - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQRVZpLU5xNFRIREZXV3lXSlUtbXpSczMtdHgwTC1QaVpFZmktZTZaRUtFbFFpdG9aaEJjNEJBOXlyR0ZMUldQUkMwZmRYUVdTRjZXVzJSOEZtMlNpNzBocXVOZ1lWVVhnai0zR2lKN1VocDBTRFZ3TDlDbTl1M2lsTkpZTXJQNDJY?oc=5) |
 | Schumer, Jeffries demand meeting with Trump amid shutdown showdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQNzBaT2g2N0p2aWpRZWFzZ29oUkxTeUlVbEk0NjMwZmlEU0lJY0I4TzR0V2hjSlkySU8xTnNkU1ZsUi1xdTFFYkFYX0JGLVRNdHJLby05NTVwcGlTVkstY0NGOVBiVTZWbUVoajhDdUgyYTVWUlFWTmIyWTBBMGdPcFNhV3lxeF9yamc?oc=5) |
+| Man arrested after drive-by shooting at ABC TV station in Sacramento - NPR | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE5ZejZKRVM5TlUxaXlqel9uYzRVLV9uTE5YRjhRMlBfMi1fQU9qVTB2OUMzMWVoU21aX2o4a0RzMVhxUDJuTjFQRTBzOTRmemJyQmJDdll6WFljM1p1Q3ZoWVpkV2RzaHZUc1BXU3kzV2lDZy1C?oc=5) |
 | Conservatives are talking about ‘unbelievably dangerous’ precedent being set by FCC chair - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMi2wFBVV95cUxPVHVYMzQ0Wk1hdE13dG1Cd0JHbHRPejZWV3FyNmRRQ2Z2cW51ZjRSQ18tVkY3b2lQaWRKdkF6NXMtMmdlaWUtSzB5M1hrM1BUblZpRnhHV3BaTzVUcFFOdmI5VGQ0VHhFZHE0UHE3UzlHQnhTdTJzLUtWMlpLM3hxNlI2empJWDJtM1l1WEo0cVd2X1VoTXc0QzJNNExaU3RmRldiTTdaUmpmYVl3ajNIQTZzV2s5cDBNVmJtRjE2d3gxcXB0Ul8xMTFTM3RyVUN2clRQMlBMNVdpUlU?oc=5) |
-| Pentagon Demands Journalists Allow Government to Vet Information - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQYlhncEJzM3dpVlpCSUVzTXFSMGVWbmRCN2lYY3VLTW1xYlNuSHg4WVZuNjdMTGRVSFREZkp0dk9ja3Z2UWFqU2Fxc3Z3RHduRU1henF1cFpZTnRHb0k2QmNTWDRhYlpjNXE3eERRWXFOTlVoRERpbm1EdzNKSE1PSGY5V0RHMHRwZ2I0d0JHNE5hTlNzWE5VNWsxSXF5aFJBeHV0UzM3Q0xXaVVWaVdpMlIzYlFrdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
