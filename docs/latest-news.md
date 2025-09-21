@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 10:33:37（北京时间）**
+🕒 更新时间：**2025年09月21日 10:40:12（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump's new H-1B fee won't apply to existing visa holders, official says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTFBpZG1iRlJ6VGhuWlJGdFJjblR5TS1ZTEdaMzFLeFk0UUh2RGNraWpMU3hvMmZkU2tLSXBNUFRaQVktX1JQbGUxZ25JVE9jLU8xSDJlZm1lRFB2MzgyTTlCMkcwNTFHRHFUVk5MaHBR?oc=5) |
-| Charlie Kirk memorial in Arizona expected to draw 100,000, with Trump and Vance headlining - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOVV9XRF9qd0RoR0dyaHdxdVdOSFhTM1VVOUU5bXJYOTJlTVdzTHE0VGdadTdULVpMRVJhdzA1bGJEQWtQOGJwc2V1VjRuMV9NS0xyX1hWV28yeVlDU3JpSUdBd25wb1VoU1JEQzJlMEE4MGQ1cnR6aS1US0hNRFZkTVVHd3dlZ9IBiwFBVV95cUxQdUhINjVPVzN4dG1YUUpRcExmbVVIMDFPNnVrOVl3MmR3THN5bUhlRWdJdG1fSlhHbVhHczR5N09HUTJLUWZfbXhvTjR0OGhJbmFiQzI3c2dsaWxSVjFxZnc5ZlY1X0RNNGJPc0taYjRIVHhyWTdDaFdwUGxtSld1TG5MMGJKZ09famw4?oc=5) |
+| New H-1B visa fee will not apply to existing holders, official says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTFBpZG1iRlJ6VGhuWlJGdFJjblR5TS1ZTEdaMzFLeFk0UUh2RGNraWpMU3hvMmZkU2tLSXBNUFRaQVktX1JQbGUxZ25JVE9jLU8xSDJlZm1lRFB2MzgyTTlCMkcwNTFHRHFUVk5MaHBR?oc=5) |
 | 'We're not North Korea.' Newsom signs bills to limit immigration raids at schools and unmask federal agents - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQUTdxLTRjaXJkYnIzcGZTVl93WlRPb2dHS3RpUl80ejlWWUlQRGdfOFEyTGhLWVg1X3I4ckJkd2FFUUZlQjZ4WFBrQS01RVVKZDhUWF9MWVZBTEV3akhpdG9PVHVHb3RmZGY4N3NEZV9sTDc1ZVRLcDdaeWJTX1F3dmpjeExubGp4cWc?oc=5) |
+| Charlie Kirk memorial in Arizona expected to draw 100,000, with Trump and Vance headlining - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOVV9XRF9qd0RoR0dyaHdxdVdOSFhTM1VVOUU5bXJYOTJlTVdzTHE0VGdadTdULVpMRVJhdzA1bGJEQWtQOGJwc2V1VjRuMV9NS0xyX1hWV28yeVlDU3JpSUdBd25wb1VoU1JEQzJlMEE4MGQ1cnR6aS1US0hNRFZkTVVHd3dlZ9IBiwFBVV95cUxQdUhINjVPVzN4dG1YUUpRcExmbVVIMDFPNnVrOVl3MmR3THN5bUhlRWdJdG1fSlhHbVhHczR5N09HUTJLUWZfbXhvTjR0OGhJbmFiQzI3c2dsaWxSVjFxZnc5ZlY1X0RNNGJPc0taYjRIVHhyWTdDaFdwUGxtSld1TG5MMGJKZ09famw4?oc=5) |
 | Trump nominates replacement for acting U.S. attorney in office probing Letitia James - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE9kZFdCanRYQ2EwV2pUTV9SZzkwNUhTZTIzRF9IVVFFbXNRTjFPV3UtckVrN2ZWeTVLbzBwNGE3NHBnS1dxS3haNDlUdmhvbXpOY2NfZGMtNkxzYmFlNk1GeUJJUm5PdHV1WlRNRnZVNmE4NnRBWFBDX0xn0gF_QVVfeXFMTUg0WndPV2s3Vmw3YlBleDhIcEpINFA0ZzdFbVVWbGVuUTlrTGtTWGN0UElFUGVlMmpjRW45dDN2T2ZFamZaLXJoS25VNWZ3dGQ5eG1rSHZZY3IwbHJNb2s1TFZicG42TDByS0tsUVBHN19XWXN3eDg2c1NfYzc5VQ?oc=5) |
 | Multiple people shot at New Hampshire country club, police say, suspect in custody - CNN | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE8yWHNNbzZCemRCTHM0VmlNS2VscXQzMkwwTzlQc21PaGFTeGFkVmhFUU1TNlVTUzlFZFhpN0VFT2ZMenRmMnJXTW5HdDZDbHM4R1V6TXhDMlVjOVVrZjVNc2FPUVVxQWNCM25tNV9Hb2w?oc=5) |
 | White House Outlines a TikTok Deal With a U.S. Board - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE53Mm1MeDZNRzRFMU9WbG85b1NOOVlMb3N5Q3JfblVxS2lEWnBFNkU2NURYaTdyeDFmdVNZMWN4US1iUG0tQ1lOSlRiT2E3dm4tSXBFeV9TRjRhcWxNUlpqMHZmcFFEd0dVZGp1aTNMS1FHRXNpOWU2ZWtBQnIxdWs?oc=5) |
