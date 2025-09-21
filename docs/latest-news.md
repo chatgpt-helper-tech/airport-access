@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月22日 06:24:11（北京时间）**
+🕒 更新时间：**2025年09月22日 06:33:51（北京时间）**
 
 ---
 
@@ -17,22 +17,22 @@
 | South Korea would accept a Trump-Kim deal to freeze nuclear programme, president tells BBC | [阅读全文](https://www.bbc.com/news/articles/cwy91w0e1z2o?at_medium=RSS&at_campaign=rss) |
 | Renowned TV presenter John Stapleton dies aged 79 | [阅读全文](https://www.bbc.com/news/articles/c9300xw27vgo?at_medium=RSS&at_campaign=rss) |
 | Duchess of York called Epstein 'supreme friend' in 2011 email | [阅读全文](https://www.bbc.com/news/articles/cgj11l3wd35o?at_medium=RSS&at_campaign=rss) |
-| Lib Dems consider ditching opposition to ID cards | [阅读全文](https://www.bbc.com/news/articles/c5y44pekj28o?at_medium=RSS&at_campaign=rss) |
+| Sultana looks to 'reconcile' with Corbyn after party row | [阅读全文](https://www.bbc.com/news/articles/c0q77y25l48o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Watch Live: Charlie Kirk memorial service honors conservative activist - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE9XYXo3d1RaVHBrdUhySVphOC1LWnROU2hxX3lSNW1TMklfSjI1V0doejhHNmdEbmRxWmxPRl96bTVwS1p5enRJMUR1VDJmODFQQ2FjU2Z1clhTWEtGR0RNN29FbXltQUQ2WWIwTERma0NJLUxzUHfSAXtBVV95cUxQRGJsMEJDZ3pUd1RqMERtZ3JReW5aNjF6d1pBRWdteUlVaE1ySG9MS2FQWjMwUlhuQ2txelF6UGJ4YVBHS2xadmNOYm5GOXljLTJ3NE5ZUEdpbVQ4SWtCcG1iZ0RkWlRDbHpnNkxnNG1fRWFHc2JZNUtlUTg?oc=5) |
+| Charlie Kirk Funeral Live Updates: Trump to Speak at Memorial in Arizona - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE5oVlo0Y0hhQmZhUU1TaFZXN1RXcVhLTWQ1OFhKSmJzQlk1VkV1MDk4MXBLNkFiazl2bjcxR1htVnlrMDNvT3JscjR1RUxuaW9aUXJodThMNHhVaWNvM3M4VGIxdHktQmZkS2ducFBQZEZMTFRK?oc=5) |
 | Trump’s H-1B visa fee to hit US employers with $14bn annual bill - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBBQWtWdldMczNOU1Zjd3RLZmQxREtIUGJKMldSU0dyeThZOUVSTjA3MFJYaWFzOTNuUGRtekFucEtSaHhUMFExaGxEMXMtaUJBdlotV0ZJWmZZeWxYajRBNk02bjZkNjF3c0hWV2ZORjM?oc=5) |
 | Australia joins UK and Canada in formally recognising Palestinian state - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxPRmtxLVRudWtUZEM0MnEtM2hoc1ljektjTXFHODJNZmVKN3c5WUU4SkZoUEE0aWVRSnliM0FwVmg0RzlELWpZZGxiVzJVellrTWhEeTFJX3JYUHdzVC03T1JWQ01sZ2ZJbjlpMjlXU05QanFVQ0pFSHhXOVRRUF8yVlRZdUpodUdKYWlQbU44RVZZSmtPY1BGUEd6aHJ6RmhyaVJLSkZVRjFZU0JCYzYtYUVibk1vaUxzbXNtM2c0dEF6ZkZU?oc=5) |
-| Suspect arrested and charged in deadly New Hampshire country club shooting - PBS | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQcmxBSm1ReUcwcTVYZWFVLTZTVVhYSmlwT1d3a1pFYzN3SW04TGlsMWpLc2dyOTF4LTNXeHZiVVY2aWxDQVhVUkhWel82TDg2bC1Pa0dObGlrQm5jUkpHTjdtUkQ2QS1reGU4TWhJOHdiak9jSUlNNE8zaGExRGExWktrS3FqcXU4Nk95MWY3Wk11ZU5Va3hrMkkwTGQyYkd1TnVpbjNNelFUU1NPd1FB?oc=5) |
+| 1 dead, 2 wounded in shooting at New Hampshire country club; suspect arrested - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQTG4zemZKZTZTZ3NxOHR6OUpSeEtSTXAtcGYtdHFOUkRscEtWZGFjaXRLTEw0VUhIeEVTTHVNcVBSVl91Vm8tUE5ia3ZmbmtBNGJ1MHZpeWE2NEZtLUZvVTA1Q0V2R2JyYTJUM3pSWnNpNUZ0anRzSGtmLTYxOGFEcjNuS0RXTnhsTkRxQXAtTGF5cUpJ?oc=5) |
 | Trump officials shut down bribery probe of border czar Tom Homan - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOYVpfTlFONFNDZ3pHMEIzWUdtZ05iTFVPYWtMX3h6N3BxUkt6WnM1dHpmVFZDTGlDOVBFWVBMWWpvWUhIbnczYXBTVW5sUmlUZXR0RmJaZnVBZi1fWHJuQmtSRXo1dHlrbDVrdjk1dnJ2VHpNTC1pTXpvUWpSMzRWQktaV2ZKN3pXYXZ4OVoyYUppRkxjcDUwM3cwUlNxdWpheENr?oc=5) |
-| The Taliban reject Trump’s bid to retake Bagram Air Base in Afghanistan - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPMGstR0Y0dEFlQlMxMkdqWHFLMkFjeUdEYkhTSHBqdXQ3eUJmTjZFTkQ1ZlFMaG1YYV9wcGYzalJkTkVIQjN5OUR2WmpGcVh4UTNDV2szSGl0Q1JXdEJNR0JEcGc0V0J2VE9uMFhOLWFqQk1DQUJmTWlCc1lTOGgyRnE3TDdBcnI5S2VMcDF3bjRWWXdGeG1EeVA4RndEWVRWYmc?oc=5) |
+| Hundreds plunge in Chicago River for first official swim in nearly 100 years - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1oNkdvU3JoTHM4a3F3ZVJ5aGtHMHpDTzlBSkpGTXVwRHE3ZHpPSGtTX1RnWXdhYmkyTHVJaE45eTFJMDhpUUpnLUl6amU5a3NzdlMyZ2lpTjVTdFR1dURKWDcySmppZkw4SkpFZzdYQXZLRHhL?oc=5) |
 | 'We're not North Korea.' Newsom signs bills to limit immigration raids at schools and unmask federal agents - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQUTdxLTRjaXJkYnIzcGZTVl93WlRPb2dHS3RpUl80ejlWWUlQRGdfOFEyTGhLWVg1X3I4ckJkd2FFUUZlQjZ4WFBrQS01RVVKZDhUWF9MWVZBTEV3akhpdG9PVHVHb3RmZGY4N3NEZV9sTDc1ZVRLcDdaeWJTX1F3dmpjeExubGp4cWc?oc=5) |
-| Sen. Murphy says Trump using presidential power to punish political opponents - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPeTNBNldhOWVHTjdpMDhIVlFwamg3MjBHRGVqcmVSVWJubEwtQm9BTWh0ZDItY19jVzRhYVF4UFQ3Nmg5R05ZZWQ0R09LVm96a0ZneDVvaWZjZFpKSll2a29BNEhhdk5rbDFuUjRyM0pxYndBLWRuT0V2bThKb19jUUpISlpvcEd3Ui1MeW9iOVBIeEEwUldpLWNmVzdpYWhLalYyWjExX1JnYWI4aEZ4UFptRdIBuAFBVV95cUxNd2lTdDd0X1l5Qk5lSWwwOS1rb0pJMF9CQXpvcWNxaUJ0bEVzOFZUUEZ1d256cjQzNTZ0aHVVZWNkbHZSY2FheThsbXM3Y0llV29JWW9oVnp1R0lxT0ZGWDdBMFZsMWtFMmE3X0lpN2RsN2xoRHNSNnhtby1QMWxrdVphdnNtVlJkX2lVZE5wSS1lbFhkdV9UVHA0bkZHZkppcGdXNDhlVVAzZUdnYjFUTXpiQTlZS01f?oc=5) |
+| Chris Christie: Trump ‘wants to be prosecutor in every district where he has an enemy’ - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPUW9HQ2dOcEhMb2ZTT3hZMjJIR3ZUN0hsSGMyRExYTTlvRzk3bzF1MVFnQjBOanoxTm9lZTVIV2p1WlRrSUdMZGdUYWE1MkxZbFhIZGlyU1p3eHNSZV9BUV84NWlwa09odzFleGdpQmtNVkk2TTZXNlF2ZkVkczdoVzVsSHdXQkNNWGfSAY8BQVVfeXFMTk5STW8yRUxHQkx3NXhWc1lsQUg5NUc4bW43cE9RNTVPbks0UGhoT1A0X3ZWTDU0NHU0OXA4al90MEU2aFAwTlktaWdzRUZONjgtV0ZjN3dlbFA4Snhncmt0Z3JHQzk3am9vT25qMlNKR0dvOW1YRkVkQkFuU0tCemR2aEFraXB3QkhRVE96TTQ?oc=5) |
 | Here’s what happens when big-time lobbyists become big-name Trump officials - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOVXk2UkZ6dk5iRXl0dmZxanFNR05pa1lSaXBfb3lIRWZoc2tPLWMzdTZWYnFIVDkzTWt3cExrY3lUYTZwOU0xNVdSOHM4SDYtV2tzM3Q5U2d2Z3hFYm9QTnZwR2NzaXZJWDZ4TVdiWXhvYk5la19aV3R3V3B3N0xKME1XUW1uY0M2Nnc?oc=5) |
-| Trump on latest Pentagon press restrictions: ‘Nothing stops reporters’ - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOWEJVUkhOcWgyYkN3cUpqWjhPNzE1OEZzR0hZb2FYbzBRQmNIR3BHZUJxTmhEWXhtMEZNUlMyR2tZbzBqN2pWZm1xTmM1RlAwUF9ETTdtU3I2YnlkbW9RZG91b1FkZjZRay1GanVUZ3VnNXJmSF9YMXpZYWRXT3c3R1oyb9IBiAFBVV95cUxNdW1sNVp4U25ENUxjeEp3Z2NBQjZ2SWVMbUpEUVJHOVloVVV5dnVxLTZkZ2ZjQkhnN1NFbVBJNUVOakhxRVRkTS1IR21JQXMzbDAzUDZLTE5qVW1PMmU5Z1J3anhZcFhIY19qUUFuWlNvOE5mZzBUaVB6VFVfbUtsTUJMMm0wNmVQ?oc=5) |
+| Trump administration set to tie Tylenol to autism risk, officials say - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNcm8yUG41UmxiVTkxWXd5R0xqYjFoeDBzVG9pRHJGYVA5cGNMRWYwSmFvVW51VGFnY2lGS1FJX3hubW5OaTBobkxDQ0pGWml6N09fX3lkWldBTlltdnRlR3ExT2tvejBiVlJtNHN3Mll6V2JVM243aTBfa1RTWkpQXzF3Smk3cnBqNFk4STRSdHNYa0F4V1p6dWRn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
