@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 19:08:56（北京时间）**
+🕒 更新时间：**2025年09月21日 19:16:32（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | Israel will occupy more West Bank land, but recognition matters, mayor tells BBC | [阅读全文](https://www.bbc.com/news/articles/c0ez9qxzl2jo?at_medium=RSS&at_campaign=rss) |
 | Duchess of York called Epstein 'supreme friend' in 2011 email | [阅读全文](https://www.bbc.com/news/articles/cgj11l3wd35o?at_medium=RSS&at_campaign=rss) |
-| Heathrow braces for second day of disruption after cyber-attack | [阅读全文](https://www.bbc.com/news/articles/cwy88857llno?at_medium=RSS&at_campaign=rss) |
+| Heathrow warns of second day of disruption after cyber-attack | [阅读全文](https://www.bbc.com/news/articles/cwy88857llno?at_medium=RSS&at_campaign=rss) |
 | How Russian-funded fake news network aims to disrupt election in Europe - BBC investigation | [阅读全文](https://www.bbc.com/news/articles/c4g5kl0n5d2o?at_medium=RSS&at_campaign=rss) |
 | Veteran broadcaster John Stapleton dies aged 79 | [阅读全文](https://www.bbc.com/news/articles/c9300xw27vgo?at_medium=RSS&at_campaign=rss) |
 | Creatine - can this muscle-boosting supplement help sharpen my brain? | [阅读全文](https://www.bbc.com/news/articles/c2lx7klzvpko?at_medium=RSS&at_campaign=rss) |
@@ -24,14 +24,14 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Grief, recrimination and a watershed moment for the conservative movement Charlie Kirk founded - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOdzd1elpxVDlvWnRQazdjZ3VpbGFsaDRXc1NDSVRzcnE1dTBMZzU5XzdkdUNHd2lHLWVYRnk0UEJCVTYzalVSMGRxdmsyWE5hZnI5OFVXY2s1ZkJJYnlfMVo2RzBQbkEzTkxiUndjcFRXbVFWellXajY5a2JCUkRHcmJjcWZybG5ETWpQa291Tkc5dw?oc=5) |
-| New H-1B visa fee will not apply to existing holders, official says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTFBpZG1iRlJ6VGhuWlJGdFJjblR5TS1ZTEdaMzFLeFk0UUh2RGNraWpMU3hvMmZkU2tLSXBNUFRaQVktX1JQbGUxZ25JVE9jLU8xSDJlZm1lRFB2MzgyTTlCMkcwNTFHRHFUVk5MaHBR?oc=5) |
+| Tech Companies Warn H-1B Visa Holders to Avoid Foreign Travel - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQVmtUOEhHUHNOQk56NTN1R1o1VWoxZ2JKNnFpRkRGdm1QNFk3NnVmTC1RMVhKeGdNTFZ1bW9kcFcxMURYcjBXVGR0aFpuWnMzRGVRMEg5MWxyR09QY0Q0M1k2LXcxMWdaOWwyRkNLeHdXMHNsNFdGa3BxS3ZEUEJIS3cyN1ZHd2FQMTJjMkdRNDBhMzQwZEg1UzZZZ3ZfTjBlM1NHWlBZNlYyUkllX2VTSUdxX3c?oc=5) |
 | Trump demands Bondi prosecute political foes in Truth Social posts - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOM1hnZC1qUUFCOXlZOGYwaThRclRQaGROVkhKdWFuMkxNZ1ByMnJrZ3gzRXh2VVJmU1RsSFdXMldCZlo4V0VuVGlDb1NUSUVaaUd2cEpCUkh0YU1OYzRFZFVUakJTMXl0eS1uT1Z2elpuQkpidWlxWDhfakJ4UU52RFJsSzdiT1VMNWt4a2hZaGpVNXFYcDd3bHJVOFlPUG9XX3NIbGw5OHN6UkhiLVhtNGpYQmMzNnhybDZhdXYxZw?oc=5) |
 | 'We're not North Korea.' Newsom signs bills to limit immigration raids at schools and unmask federal agents - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQUTdxLTRjaXJkYnIzcGZTVl93WlRPb2dHS3RpUl80ejlWWUlQRGdfOFEyTGhLWVg1X3I4ckJkd2FFUUZlQjZ4WFBrQS01RVVKZDhUWF9MWVZBTEV3akhpdG9PVHVHb3RmZGY4N3NEZV9sTDc1ZVRLcDdaeWJTX1F3dmpjeExubGp4cWc?oc=5) |
 | Man Charged After Drive-by Shooting at Local ABC Station in Sacramento - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNbkFfVGN4eUdTbjZEQWc1OVdJdDU0YzJ5UkJSNWwxaXpWRlBmZEhndkIxNlhJbUdSVVV1UUM4aWs5QVZNTHNCdUFrM1IxN3l0eDVmdUZjVm9xZjdRZEIxSU85Z09OQ1N4YkI5dms0bmZiSXlGUnl3TGs2LUFMM2Y4clFocGw?oc=5) |
-| Pentagon places further restrictions on journalist access - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNM2hUbDBkUGhyTWVxRjZfd2ZCQzJIdVRWUDNBVExSZlZMbUF0VzN5Z3cwTkZUdDRsRUJBZF9WMkt4a1BKSTVGc2FoQlhXWEo5UTNfcGNlU2txcGRURFZFZWI0RFdXLWVieUd3MFo1WXlCaW0yYWJKVWJxNjF5Qndla3kwUTR2aW5FV1RNZEM0dXpvUGd2Si0xYjhB0gFWQVVfeXFMUHZlVGZLM0VNUEF6aEp1dDduWWpES3hKOFB2UVREd29zblF5UTNOWHJPaXh5UG01SVVhbWZDUlpyMEVLbG5vSVFPTU82cmxYN0l4dnJpWnc?oc=5) |
-| Trump nominates replacement for acting U.S. attorney in office probing Letitia James - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE9kZFdCanRYQ2EwV2pUTV9SZzkwNUhTZTIzRF9IVVFFbXNRTjFPV3UtckVrN2ZWeTVLbzBwNGE3NHBnS1dxS3haNDlUdmhvbXpOY2NfZGMtNkxzYmFlNk1GeUJJUm5PdHV1WlRNRnZVNmE4NnRBWFBDX0xn0gF_QVVfeXFMTUg0WndPV2s3Vmw3YlBleDhIcEpINFA0ZzdFbVVWbGVuUTlrTGtTWGN0UElFUGVlMmpjRW45dDN2T2ZFamZaLXJoS25VNWZ3dGQ5eG1rSHZZY3IwbHJNb2s1TFZicG42TDByS0tsUVBHN19XWXN3eDg2c1NfYzc5VQ?oc=5) |
+| Tropical Storm Gabrielle expected to become 2nd Atlantic hurricane of the season - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNbVphc1RPazR4VHJuVFg3b0J0V1BfbHlUVm9RWXhwbnBXMVNMSTVHYkEzUFZ3X0pqYUgyZy1DcHdTZmJ3ZE9LUU44WWlkNERuSWFyeEdXX2Z5NlFmVU12SDAtZGdRNWc5THNGZERxT1BaakRTR1gwaWRFQzhxbHdMR1Y4bERFbnlt?oc=5) |
+| Trump nominates White House aide to be top US prosecutor for office probing Letitia James - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQaUNrU3VzYXp5c282NTJ0Y0IwcExKU3Y1cjlKRHRZbmJtQzBqOU9VcjlveFFsTFUweHZMclBDLUpCcGhhVWxSQVRpSkY2UVdQUEV0RFB0NndrY3I3WVJfeS01cEx4ekUzbmQ2SEFyZGlfUWJsdXVQcV9wSlZlaHRlc240Y0s5c1BEM2dYYk1LdmVXUjhLbHF1Z0pSdWtXTGNSenIxWFhFRjg0c1ll?oc=5) |
 | Oklahoma Republicans propose all state colleges must have Charlie Kirk statue - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQRVZpLU5xNFRIREZXV3lXSlUtbXpSczMtdHgwTC1QaVpFZmktZTZaRUtFbFFpdG9aaEJjNEJBOXlyR0ZMUldQUkMwZmRYUVdTRjZXVzJSOEZtMlNpNzBocXVOZ1lWVVhnai0zR2lKN1VocDBTRFZ3TDlDbTl1M2lsTkpZTXJQNDJY?oc=5) |
-| Suspect in custody after New Hampshire country club shooting leaves 1 dead and several wounded - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQZDhaQ2lQbmpxRXVJeXkyLVhNeGpXN1NxX2pDR3dLN0NRMk9Na2t4bWhVZFM0MTFoQTl4NlNtRDB6bmJiZUxBQ193Y2ZLaGEzMklabG1TS2N5MkRmUTB0OE4wUGlUcjYySHZLSWNzY0NKTDh4SVloSjJ0LUt1SzNZdmJIM2Zwc0xyZ1hOekR0X3ZzQQ?oc=5) |
+| 1 killed and 2 wounded in shooting at New Hampshire country club - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNMFdBaE94STVGTFM3VXZQNDBYd21ycGxPMlp4TnMyQzYzQ1c1U1dGQU9nMGVpZlFXT0RZZmlwUjNUeXlUNGtYWFc2a212NjVQODZ1Vjhnb3ZXbjJabXZPeFpCdGRpejAzQzdtNW9xODRqQ1pBb1E5czNSUGJCU3B2cFFGSll0YU10ZFZuRlEyMEhOdmRnQnh2OHhpQ0M2WVNFeWhGNGhGYWYxbWvSAVZBVV95cUxQU0ZsVHdxQ295N0U5b21mcTd6VGVQZnhTZEVYRW93UDBya0pkcUJwOXJueFMzdkJTbjU4Rk5PMnBnZUVwb0Z5OWszcnBsMVM3RjNTQ2VRZw?oc=5) |
 | China's ByteDance will get 1 of 7 board seats for TikTok's US operations, official says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxPeWdVNjdXR25QR3psMnNRNEZ3Rjg3ZnNvOXMwMXFsTDJKQnB6SkEwenVIUkdDSi01bnRoR0x3bFBXUjN2N0MxQVJRSHJNX2pPajlfZXUwYjlfcHJERW5fV3VfM0xEdGc1bTduanUwb0VsNVladG9WWGFiWGxxYXZWUHVGYkNkR3lhY2dFSTQxVThRbW9WSnpYY25iWmx1dW5qSHd3bDBYX2pyTnEySXBFSl9Wc0gxWUZ2bG1fbGpyXzNqaTdaS0xac2FFaEdnZGduMGNHMXpqREJLdWZY?oc=5) |
 
 ---
