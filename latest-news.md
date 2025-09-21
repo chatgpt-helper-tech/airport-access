@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月21日 23:17:40（北京时间）**
+🕒 更新时间：**2025年09月21日 23:25:19（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump urges US Justice Department to charge prominent Democratic enemies - France 24 | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPTVFaNlFZV2RJaFJWSmdJU3JIN3VRSmIwSGxWSjVDbWxDZ01oX3JvWDE4dUVXX2JWWEc0eGZNR0x4a0xuS0hWbjByMllnMktHOS0tZTlvQlp6UXhEbm9DOVpHWl9ZSnNOMUtVTko2eE1TM3d6RkZ6cjBzZ1pNUlcybWJaNzViX3ZqLUJ1TGRxckx3SEVXaDVYbG5lZ3loMXlOYjlEWXN5UmE2NlVEblhjYmJYa0MzX0Nuc2c?oc=5) |
 | California bans most law enforcement including ICE from wearing masks - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE83ZVduTjB5cmVjNHlZZThQU2JVcy1KdHpneEo2a05MUWNYbHFSQnhjWjQ0Q3NlTG9WWVp0NmhpaUJiZDdvOWRocjQ1QXU1aUZZdWV3R09QX0YtQdIBX0FVX3lxTE4zWkV0YTlXRkNrNmoyY2c5LVFneEhwd1Z0VS02SHN2RGpxem1OLWhTanZfd1RTN2d4cF9nb0xtNmgtRWVzWk1KYnNqQlpjcFRib2kzOUYxbTJUOVVUei13?oc=5) |
 | Trump says he is appointing Lindsey Halligan, one of his former attorneys, to lead key prosecutor's office - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQZlB3TFV1U2g2cFhSWk1SMVY4SThUVGoxbkRpWTZwQndRMHZpQW4wbVFrb2NmSkh1ak5YRWt1UUR0WW8tanVJR01saGdfa0JTQzJTdm42VHJCWU5KVkdkbnhGNVV1MlJXUlB1YXUyRHRINU5tYUFYMGpEWjBzaFF3ZmstY0JQNE9hdkI5WmZzWVVZSTg0UHVvUVFlYUxIY1FTeGFPeThXVFYzUmlyUEHSAbMBQVVfeXFMUDQwQjVOUXJoWWprbThCT0o2TEhXcFZLN1FKaUFuNUVJLVpLTnQ0TGlORmtfQlUtNzFYb0xXTU5hcnQ3VTNWbVRvbDZiSW9UYk5TSk52TmxHVWhlQk1qWE5kVHJOVjVZbExXM2J5bHRuU0xZd3ZkTVhDSkVMOGZrMVh2R3JmM0dCT2E3NGxMZ3hLdUx6QjA0Y0xvNGp2cUl0V3prSFJGZXpmcHdBMHNXWG1NbGM?oc=5) |
+| Trump has left US embassies largely leaderless and often fearful - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQOS12MEVfTzJEV2N0b196SjRJVld4Rm1DQVp3OTlFbUJicS1NTlFlaTdkUlJJZy10bVY4S3pOTFVmUkppRkkzanNfQVFRUDZkREQ2RVY0ai15Q1h6anBPM0RaWWpIdDhxaWNqWGFIOFl6MDFpdEpYZ3NZSk4tZDJOVnlySQ?oc=5) |
 | Man arrested after drive-by shooting at ABC TV station in Sacramento - NPR | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE5ZejZKRVM5TlUxaXlqel9uYzRVLV9uTE5YRjhRMlBfMi1fQU9qVTB2OUMzMWVoU21aX2o4a0RzMVhxUDJuTjFQRTBzOTRmemJyQmJDdll6WFljM1p1Q3ZoWVpkV2RzaHZUc1BXU3kzV2lDZy1C?oc=5) |
 | 1 dead, 2 wounded in shooting at New Hampshire country club; suspect arrested - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQTG4zemZKZTZTZ3NxOHR6OUpSeEtSTXAtcGYtdHFOUkRscEtWZGFjaXRLTEw0VUhIeEVTTHVNcVBSVl91Vm8tUE5ia3ZmbmtBNGJ1MHZpeWE2NEZtLUZvVTA1Q0V2R2JyYTJUM3pSWnNpNUZ0anRzSGtmLTYxOGFEcjNuS0RXTnhsTkRxQXAtTGF5cUpJ?oc=5) |
 | The Taliban reject Trump’s bid to retake Bagram Air Base in Afghanistan - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPMGstR0Y0dEFlQlMxMkdqWHFLMkFjeUdEYkhTSHBqdXQ3eUJmTjZFTkQ1ZlFMaG1YYV9wcGYzalJkTkVIQjN5OUR2WmpGcVh4UTNDV2szSGl0Q1JXdEJNR0JEcGc0V0J2VE9uMFhOLWFqQk1DQUJmTWlCc1lTOGgyRnE3TDdBcnI5S2VMcDF3bjRWWXdGeG1EeVA4RndEWVRWYmc?oc=5) |
-| China's ByteDance will get 1 of 7 board seats for TikTok's US operations, official says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxPeWdVNjdXR25QR3psMnNRNEZ3Rjg3ZnNvOXMwMXFsTDJKQnB6SkEwenVIUkdDSi01bnRoR0x3bFBXUjN2N0MxQVJRSHJNX2pPajlfZXUwYjlfcHJERW5fV3VfM0xEdGc1bTduanUwb0VsNVladG9WWGFiWGxxYXZWUHVGYkNkR3lhY2dFSTQxVThRbW9WSnpYY25iWmx1dW5qSHd3bDBYX2pyTnEySXBFSl9Wc0gxWUZ2bG1fbGpyXzNqaTdaS0xac2FFaEdnZGduMGNHMXpqREJLdWZY?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
