@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月22日 11:56:32（北京时间）**
+🕒 更新时间：**2025年09月22日 12:01:46（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Key takeaways from Charlie Kirk's memorial service - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNS0gta2VUVWp5WjRucUZEbGlkTGxzTjEweUJNR1hQdHQzVXhCOXNHbEpoUDc5cy1sWE1ZMnhPN2d5cnM5RWRPSGxSV0thYXlCOGM0RHVCUGphWjFhWVJtb1pLYWhsUDQzNWNhQmtmazVpa09JRThKX0VaMHllX0tiUlM2bzBJWUZGVlg2aXJ6czdXUjlzclZqdXhaUdIBoAFBVV95cUxOWWhzT3kyLWZJOGZQa0NiemZ4OW1pQXdsX2lyWlhvN0s5Q1FFT0FPSFhad0hfQlVNMUVRUVpZaDJUdjNNa2Y1M1BhbjVGaVNZM2I0SHlTaUJqQTBwelNTOTYycm00Y3Q4dGZ6cU1qUU80aGg3cU51clNaVUhmemtlMlJ0N0stT1VjbkpIYUo2TXR6TjQ5YnB2Vy12WTF2MTBT?oc=5) |
-| Trump's H-1B visa crackdown upends Indian IT industry's playbook - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNVk9palV3YTkyLXg1NlhpXzZxZUJLckVxZy1tMXJvSER0YVdoNHVMOGpZRGpGZkNYMXVtcy01NE5iZG41STFxRDRyODh2TUxRYkx3ZXJDcV9hUFh5ZFFudGxod2RTdmpEVTdpMVZQMkc1dWQ5UUxqWXpYdURzZXp4SGV4MzluNlIwNkFTRm9QbVJaNmxYaklFSzZSMjl0bzBtYmRCbi1DbG5VVDN6WGwtNGJxeVM1dw?oc=5) |
+| Confusion and chaos: Trump's $100K H-1B visa fee rocks Silicon Valley's hiring machine - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNVzZ3dHg2Q1YtTUNKa19OZVU2ajhFWE1oSVd2dEN2eFdjOVhhS24yRERyX2R2TnVUczVDVWhFbnFLTUFsTEoxVjZtUVpHbUxBZUFJdzM0bGthc3E3dEdJdF8zd2RkdEswd19UbDJ3aGZxRDZ4Zm9tdXp5X0ZOZEtIeGRMd0VIRlZ2WXhNMVd3?oc=5) |
 | Trump officials shut down bribery probe of border czar Tom Homan - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOYVpfTlFONFNDZ3pHMEIzWUdtZ05iTFVPYWtMX3h6N3BxUkt6WnM1dHpmVFZDTGlDOVBFWVBMWWpvWUhIbnczYXBTVW5sUmlUZXR0RmJaZnVBZi1fWHJuQmtSRXo1dHlrbDVrdjk1dnJ2VHpNTC1pTXpvUWpSMzRWQktaV2ZKN3pXYXZ4OVoyYUppRkxjcDUwM3cwUlNxdWpheENr?oc=5) |
 | Trump on Pentagon restrictions for the press: 'Nothing stops reporters' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQYXJxaERlell5c3U4MkNjVG5ONXJzdFp2QTg2ZUdyQTFqZjJuTWFVTnNQMUxDcmZDRE1lMk5Ka1FhSjNhU19IUEpZNUJzN1BGRUl4b2pNMExqekpLbkQ4NzZRWEpLSy1jTFRzOFJwUmZTWE1IRUtLSkMyWW5rTlBncnRyc3RjWTNGSUs0?oc=5) |
 | Chicagoans Avoided Their ‘Filthy’ River for Years. On Sunday, They Swam in It. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE91VUwxMng5QzE1MlRsX0xKSEVVT214X1dYYllnb2NLUmJYX1JWeTl4S1hyX3c2cHFrZF83RmQ2T2plaThuQjJ1c1dBT3NzRFpWS0o5a2sycWE4ZGRfSUxvMkZQOS0xTTI4Z29hLTJ3?oc=5) |
