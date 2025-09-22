@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月22日 13:08:45（北京时间）**
+🕒 更新时间：**2025年09月22日 13:16:08（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Tiger kills Oklahoma trainer linked to ‘Tiger King’ Joe Exotic - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOQ1lSVVRTWWhVbHJQZTJLM01nc1NsT2haWkRuSUpmakZLNGlxZkQ1Mlh5RENpbVUzMUVwaElGckxJX0lhcEhKWGhzTXQtbHV2cGtmeHZNQnp0NnZyMlhqN3ZfTWdpUEdXSlBwSmxhai0zaWFMVjdEanFXMjdEV0NKNEw1UQ?oc=5) |
 | Trump lionizes Charlie Kirk, warns of dangers to America - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPRzRvNGxDNXBfR09ZSUVnbklWVVN4Y1Riang0ak5PWjIwOURHTUJUemZUN2xZVFdqNHFBQWtwYTlrVkxzZUZDVHM2RTk4alVuRUNBYmFxOGNOOTVwTmdmLWFEZHlBempDVnZjNTBmMmtFT3ZJZE9rMG9fazhINURIZmIzUllBYTEzWnF1Vkt2SG9fcG43dW90NmNLWEc0b2lMbUlKdEhRZ1M?oc=5) |
 | Trump pushes Bondi to pursue cases against his foes as he ramps up retribution campaign - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPcHloTkRzdUhGU2Y4V1A2VnFLSm5WZEFXNFRWSUlKNlNiMmh1VEVuY3dlZ1Y0VXRydUkzQjRvUEpoMklnMW1nZGhmczdPaXpBQlo2aV9TTXFpVlZlZHd4TWlqTzdFQS1tUnJMZmJsd3NsT3VvLXdSeHNNZWlQRVMyR3UxVzFENWVuSHdQNk54NEJhUVR6R0h6elhiQTYyaGY1Sk1nS2VFdzZ0MWF3TVpjR043Vmw3dDVTa2kxdGttVEdEdjTSAcgBQVVfeXFMTkRjYTNuamZfV2RmNU9UbTdPak02b0RINThyUjNsckYxQ3drZ2dwaG91MlA1ZWtBQmxXa1h0NUhvYTVsLUNpbjR3cXl5WXR5SDdtTi14S1h3NHNyWFdSbU8wTHlDWFVDU24zUU5TdFVacXNReVE5S2lna0Vkc3VmOHg0dEN3TEo0bmZPbWZNQTd1azdvZE5kdjcxUDZhRTdMd2ItcnZSbzN3dml0OEpaTXgzRmpDTGNyY2hxdkw3UDg2UnplN1MtNEk?oc=5) |
-| Trump Administration to Link Tylenol to Autism, WaPo Reports - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPZ1hDNVFEVUlUdElHNTM4ck9IQ1NyemljV242Zk5tc2JRRDRnUzdueU5waVJYdlRIWnFOR2JZN1NCZFM5d25teGwwdVMyQnlmRDlwTmtGeW5nb09SUklvZDJMMDQ2b3diSDVCcWtyWmg0VGlqY3kxTWt1NUFJVUJwU1lweDdkazE4Q3YwY3NKaElmVDhVdzR2OV80QmxrQ1YtOEl6RDBnODhsZjlTRkJF?oc=5) |
+| Trump previews ‘amazing’ autism announcement Monday that’s expected to focus on pain reliever, vitamin deficiency - CNN | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTFAzX3Y1cVNTYlFlZFhzSzcwRnd0NkZJZEo3OENVTC1QQUUzazF2TGU0WlBPMVAyUTdnZERIaGhINEJmUlpPZGFyUzZDdmttMlE4a1dHMzJwaUNTTFRSUzBTTUZNbHFWcW9sMkxEV1F3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
