@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月22日 19:56:07（北京时间）**
+🕒 更新时间：**2025年09月22日 20:01:53（北京时间）**
 
 ---
 
@@ -25,7 +25,6 @@
 |--------|-------------|
 | Trump news at a glance: president calls Charlie Kirk a ‘martyr’ at memorial - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNbXVwSEpoNkVoVzdWZW1Zd3JzdG1aSUhYUHZwcWw3OWsxaUM2eDlob0NMdlZPTzVGT2NQZjE3THB1T0ZUYzFzclRRVVh0RC1CSTk0a1VDenhPSVB2djE3ZU5nMEZINWMxdlZzd1VvTm5BTnp6b1FPNlRMZFpvelRRb0sxLWV4YXZJZG5oSUtnUHZGdw?oc=5) |
 | India feels the sting as Trump slaps $100,000 fee on H-1B visas - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNbzVNLXg0ZE1Ob28za1BSRUlYc3pIcDhNWjRhalFxT05oNVQ5VEI2Tm40LWUzbW5OYVRvdFduOGlUVjlGTWhKMHlzanlwZXZHTnY2UF83cmJDc3VzT3FydFlJZElOcGZoZ19xNF9kNVNaWmlxSGZmV0hxT191aWlsVDdjUk1pRjhJQ2M1a2pwQXlNQ0tFaEMydXM3WdIBoAFBVV95cUxNc1FaYlh3eWFpakRuRFBfUXJ0ajBGWTYzNGxpQjlxN3VKc1hBVi1DVzBNWmx4VEFnNy1DcUhEbU9xS1NjTC15VGJNNkEzbnNfS1hTbWRsRzlRVG0ySXc0SzVEcUhIZ0VIbVZfWmZCc0p3Z3k0UU9HRnIxcmNYcGpRYi1KYkdVRnFsVklYVW5vX1RsbDVlZzZNcVkwbUFIVnQx?oc=5) |
-| Israel unites against hollow recognition of Palestine, but PM could go too far - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNUWUwd1pjQjhRbVlXR0p1cFZrV3dPelU2Y1dyVllRZEpfODdLMlZsZ09pUDJUZDJON1dwN25YM2c5eVRaazlrLWJHc2swX0Q5elRDX21Zek9DNWR3TFB4bzRXclZmY3VXd2QxZ1ZBVnVXY0Q1bGo0VUZrc3o1RG9jQTNObXl0dlZMM09HX2Q2RHRyWHFiVGs4T1BpdjdpeFFCTkxPbk14NWLSAa4BQVVfeXFMUC1wZEpLLXF5c0pyaU81RXBfTVhSclBzdXRQdDc0OFBnQm1GTGh0M211SlpHZGY3c1pXRERvZnRVWmo0WHJGU01fM0hhTnhRTENIVmJzbzVfQVJJNDM5NktXZGVxVXJYNE9veEZobDZiY3NWVkw2SzN3cWRTWDJjZnJWZFRWQXo5NXg2QktobU00akpoNENaTlhHR3RKQVZ3eTMyYlZqMlhrbG1wV0hR?oc=5) |
 | Trump heads to UN General Assembly as future of Palestinian state and Gaza likely to dominate - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPSlFDR21laUZKY0FVQjdaTXFJTHlhTFZ2UFlqVlUtai1mbnlqT2JHNG1ybzlHSVY4ZXUzQ3NSeDZXMTB4SmxjbXRTMTMwM2lKZ3ZYQ1VnRlVabUszUFhlbk41WFM3MGhwSV9oc2hjTzdlUVF1VC15NTd4dGh3WDBfWUVZMFVPQ2lac245ZDRFMHZBSHl3eHpVSWluUGt4OHpwdW1Kd1VMVlJxMzYwVUZF0gG0AUFVX3lxTE1pYXNONEdWc0h2Y1BTMmRfQlVfRkpJRTRxbGdtRkpiVkswQkphLWZfTFI4dWtRRTFvRklsQUVuVjctcnV5cmdiSk5qUjJ0YlJteTRnTG9pLS1Nc3pzMWctVThBUFYwcHdCS0xNZTlTMmxWQjBUNGxsSDMtUE9tYmx5NGp4YzZZeFRMR3d4alhmYWNCd2pZRG5vNmtfa3V6WmMyZFpITG1hRFBpWE5BeGVqOU9BVA?oc=5) |
 | Trump and Musk Are Seen Together at Kirk Memorial, Months After Falling-Out - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQWjktbWJUa3FoNlRFb3NkN1MyV19Mdnd2dVdIeHFIMWI1WEJuYjlXZ1pPVkpYcUdPbWdwQjhvRXYxSEJ0NTNhSm5tQW81QXdfYXgxSFlmU1FscVpXUUVPY3cyQW0yd2VQWlBjQTNWNWhVdUhNWlNPTDEwVWx0ajRVTWNn?oc=5) |
 | Trump to link autism to Tylenol use during pregnancy - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE5nYUx4cVlYemFCdDVHM2hoc2RYVWQ1N3hmd2l5V0w1TlBHLXFRTm1pZ1VWcmxMMk50bE91WjhBLUJpeDRYMGFuc21iU2pIQlRzYThfcDhwb1RZY3F0R3c1dTNBYWdjeVl1YkFpQjVSaXdZaklN?oc=5) |
@@ -33,6 +32,7 @@
 | Caretaker killed by tiger at wildlife preserve in southeastern Oklahoma - 6abc Philadelphia | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQcGhORVdmekI2aUthZjl0TXV6WUxkR0Y0OElrdFM2bDZRZmZMejB0OTd0cE42dDRpbmd3Ny1mdkRfaU9jRnQtZ3oxTTlTSUdrTXROb2FRWjF0WVdpMm1ybHdtYThWUndMQ0pic2EzRkM5Vk5sbzQtTzZnNGNmaVlRVHNnVmhvUTRNdUtjS1ppWG9FVzlWSnlXZWtB?oc=5) |
 | Trump’s new demands on Justice Department raise alarm among prosecutors - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNcnBRY0JmM0FvLXZDUDlPYWItZkZtMnFDb2lNdGNFRFRySUM4bDl0UnM5YkpDZmM4NTRLSDRiei12RXE0QXF6V0FqUjdNZ25TTzRSWHBGQXAyLTZPcnFKbm4tc1VRSVRrenM3T0VxelBuM0JWckw3QWhCQmVGV051WFJ4VGoxWXhsR3kzREZlTzd4YV9KWjZLajZKMlp3d3c?oc=5) |
 | Patrons at New Hampshire shooting prevented worse tragedy with selfless acts, AG says - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPRm9pdGlrSW1TemcyMFBQUTUtcjVSMi1MbjJaZkRpOXg3cEt5UG1yV1R1SlotNnliY1I2OWFHWHk1b2djUVdJQV9lSFcxUXFRdnQ0LUwwWllGTmNrSHVsT2FuZkY2d1hMRzZmMzZhazM3R3NfbWQyWFpTZ0N4X0k0Uw?oc=5) |
+| White House discloses more details of deal to save TikTok - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFA1RktMMnJEb1dZc3JYWmE0Y3Nsa2tUZ0ZLMlJacEp0UXlubDNQdTllOHltUThValBOdU1Fa3RqUVlTX1E4MVo1OGk2VHJucFNOYkFtUGlaazM3cWlIQmtGQktEOHY1MW1xNWs5MENWMFdSR0tMVzNQblZkOA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
