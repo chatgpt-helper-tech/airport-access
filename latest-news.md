@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月22日 12:49:51（北京时间）**
+🕒 更新时间：**2025年09月22日 12:56:53（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Canada recognizes Palestinian statehood - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQeUdEaWFxc09UY0VzZUFBeXByYWVRRHFHSHp4c0pCRHJqUFFCeHFJZW82WkVrLVRTeUJvS3Y3SlBZWHkyeUphMk9NQV9ZTnpjVVkzRWJOZHZZUHpSVU1OVHZYZGtDbUhnS3BnZGUxMHNjMXZRZU9pZ2dtRTd1UFprTU9iY0VWSWdCZm5Z?oc=5) |
 | Trump officials shut down bribery probe of border czar Tom Homan - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOYVpfTlFONFNDZ3pHMEIzWUdtZ05iTFVPYWtMX3h6N3BxUkt6WnM1dHpmVFZDTGlDOVBFWVBMWWpvWUhIbnczYXBTVW5sUmlUZXR0RmJaZnVBZi1fWHJuQmtSRXo1dHlrbDVrdjk1dnJ2VHpNTC1pTXpvUWpSMzRWQktaV2ZKN3pXYXZ4OVoyYUppRkxjcDUwM3cwUlNxdWpheENr?oc=5) |
 | German and Swedish jets intercept Russian military plane over Baltic Sea - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQTWRUVGNZOVM4OEhNNzBCRlYxWXNLNE5Va196WG1IUmduUEFlSDEtdVM1alhIMURzdXlTSFI3THd5NEE4eHI2STRrRHBBOWszS3FMVVRoczRELUNrMksteWtrTWVtQ1NkRk1INFJLek9ram95QjYzVGJ0Wk1TeVNEdlpHOWY1cTltSjgtYWtiekNRZw?oc=5) |
-| Unnamed Pentagon Officials Ridicule Hegseth’s Plan to Stop War Department Leaks - The Intercept | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOQ1VCQnd4bXFxSkR0ZXc0RUxDLWlrSVBLSmt2ZE45Z2NHM2Zfa1dQQzRKSmlHN2lUaHk5Z0ZSWE1ybTk0WHpmX0FIUzRvMmpuME04aTR5aXBwWDA5Nk1xdTlkQmtKMjEwTGtFOWtZQjdSQmNzUlhJcFdCRHUyYTAxWlRYNDFTRzFZbGdtemZR?oc=5) |
+| Hundreds plunge in Chicago River for first official swim in nearly 100 years - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1oNkdvU3JoTHM4a3F3ZVJ5aGtHMHpDTzlBSkpGTXVwRHE3ZHpPSGtTX1RnWXdhYmkyTHVJaE45eTFJMDhpUUpnLUl6amU5a3NzdlMyZ2lpTjVTdFR1dURKWDcySmppZkw4SkpFZzdYQXZLRHhL?oc=5) |
 | Tiger kills Oklahoma trainer linked to ‘Tiger King’ Joe Exotic - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOQ1lSVVRTWWhVbHJQZTJLM01nc1NsT2haWkRuSUpmakZLNGlxZkQ1Mlh5RENpbVUzMUVwaElGckxJX0lhcEhKWGhzTXQtbHV2cGtmeHZNQnp0NnZyMlhqN3ZfTWdpUEdXSlBwSmxhai0zaWFMVjdEanFXMjdEV0NKNEw1UQ?oc=5) |
 | Trump lionizes Charlie Kirk, warns of dangers to America - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPRzRvNGxDNXBfR09ZSUVnbklWVVN4Y1Riang0ak5PWjIwOURHTUJUemZUN2xZVFdqNHFBQWtwYTlrVkxzZUZDVHM2RTk4alVuRUNBYmFxOGNOOTVwTmdmLWFEZHlBempDVnZjNTBmMmtFT3ZJZE9rMG9fazhINURIZmIzUllBYTEzWnF1Vkt2SG9fcG43dW90NmNLWEc0b2lMbUlKdEhRZ1M?oc=5) |
 | Trump pushes Bondi to pursue cases against his foes as he ramps up retribution campaign - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPcHloTkRzdUhGU2Y4V1A2VnFLSm5WZEFXNFRWSUlKNlNiMmh1VEVuY3dlZ1Y0VXRydUkzQjRvUEpoMklnMW1nZGhmczdPaXpBQlo2aV9TTXFpVlZlZHd4TWlqTzdFQS1tUnJMZmJsd3NsT3VvLXdSeHNNZWlQRVMyR3UxVzFENWVuSHdQNk54NEJhUVR6R0h6elhiQTYyaGY1Sk1nS2VFdzZ0MWF3TVpjR043Vmw3dDVTa2kxdGttVEdEdjTSAcgBQVVfeXFMTkRjYTNuamZfV2RmNU9UbTdPak02b0RINThyUjNsckYxQ3drZ2dwaG91MlA1ZWtBQmxXa1h0NUhvYTVsLUNpbjR3cXl5WXR5SDdtTi14S1h3NHNyWFdSbU8wTHlDWFVDU24zUU5TdFVacXNReVE5S2lna0Vkc3VmOHg0dEN3TEo0bmZPbWZNQTd1azdvZE5kdjcxUDZhRTdMd2ItcnZSbzN3dml0OEpaTXgzRmpDTGNyY2hxdkw3UDg2UnplN1MtNEk?oc=5) |
-| Trump Administration to Link Tylenol to Autism, WaPo Reports - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPZ1hDNVFEVUlUdElHNTM4ck9IQ1NyemljV242Zk5tc2JRRDRnUzdueU5waVJYdlRIWnFOR2JZN1NCZFM5d25teGwwdVMyQnlmRDlwTmtGeW5nb09SUklvZDJMMDQ2b3diSDVCcWtyWmg0VGlqY3kxTWt1NUFJVUJwU1lweDdkazE4Q3YwY3NKaElmVDhVdzR2OV80QmxrQ1YtOEl6RDBnODhsZjlTRkJF?oc=5) |
+| N.J. governor debate gets heated over Kirk assassination. See what Ciattarelli, Sherrill said. - NJ.com | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxPMThLQ2pBeHAtWm80eHZfSHNybDVnUmpNdmhpQkp2VTR5bHd1NlFfVG5VN3dxdmVUVHBlTUpzdzlqdmcyanRzN2dSX1ZJNFlSdGhWV1o1WWs0dU9lZ21VQVE4b3FJaUZ6YmFBUHFIS3BVVkhzMlB1ZzNNV0htSDdGNU8wZmxoYm5QZXdjUF9qOW8wUGN3dTN4eGctVlMwb0xDXzk3RGtFOFh6alI1MmhNSU1pX0V5VjNvS21XX2VfSTNSMVhwdUVmODRB0gHeAUFVX3lxTFBVWXZXbkk1aDk2eDAyanl6ZXNsZlVpTm1Pc2ZoMUlUdXFIV3Rual9ncmQ5OTlUOWxNcVdIM3FpdG5MQmVQajY3UElWWEFTUUY1TmZHWWFIdUlKekZSTUFidzVRcVJZdlpnV1E0ODVkRGoybXhMUnRJbFhabjB6LURkYWp0UUJBWWdGTTFTSFJhd2lONlcyLVBBSnhnX1FqYUNDZjhvT19iMjZvdVp3WUc1c0p3MnJ0TGJfNERURWQ4Znhwc3RmRmtpVklqeUFZYWx3cHA5ejZVWlRnTThzdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
