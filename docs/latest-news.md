@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月22日 13:56:17（北京时间）**
+🕒 更新时间：**2025年09月22日 14:01:58（北京时间）**
 
 ---
 
@@ -12,19 +12,19 @@
 | Trump hails Charlie Kirk as 'American hero' as thousands fill memorial service | [阅读全文](https://www.bbc.com/news/articles/ckgee0x9p40o?at_medium=RSS&at_campaign=rss) |
 | Watch: Prayer, tears and a Trump-Musk handshake at Kirk memorial | [阅读全文](https://www.bbc.com/news/videos/c1kwwxgmn21o?at_medium=RSS&at_campaign=rss) |
 | Welfare reform 'must happen', minister says | [阅读全文](https://www.bbc.com/news/articles/ckg3jl0ylkyo?at_medium=RSS&at_campaign=rss) |
-| Gatwick second runway plan approved by transport secretary | [阅读全文](https://www.bbc.com/news/articles/c9v7rz24z23o?at_medium=RSS&at_campaign=rss) |
+| European airport disruption continues after weekend cyber-attack | [阅读全文](https://www.bbc.com/news/articles/cqjeej85452o?at_medium=RSS&at_campaign=rss) |
 | South Korea would accept a Trump-Kim deal to freeze nuclear programme, president tells BBC | [阅读全文](https://www.bbc.com/news/articles/cwy91w0e1z2o?at_medium=RSS&at_campaign=rss) |
+| Gatwick second runway plan approved by transport secretary | [阅读全文](https://www.bbc.com/news/articles/c9v7rz24z23o?at_medium=RSS&at_campaign=rss) |
 | Sultana looks to 'reconcile' with Corbyn after party row | [阅读全文](https://www.bbc.com/news/articles/c0q77y25l48o?at_medium=RSS&at_campaign=rss) |
 | My three boys starved to death. I hope angels bring them home, says Afghan mother | [阅读全文](https://www.bbc.com/news/articles/cwydgj4pg9jo?at_medium=RSS&at_campaign=rss) |
 | PM's 'knee-bending' to Trump is  'cringey', says Clegg | [阅读全文](https://www.bbc.com/news/articles/c1l881vnv2no?at_medium=RSS&at_campaign=rss) |
-| How some people are using playlists to prepare for dying | [阅读全文](https://www.bbc.com/news/articles/c3e7n40vyx2o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Photos: Scenes from Charlie Kirk's memorial service - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBJLVJlb2hyTEJaMVp1TDZxWWxNTE94bnh1WWJqWmFieXJBbFlMYWlZQ1FKNDdSWXRnYXlVckp0T2ZZcDFUWGNCbXlWd0E1d3dnU3JHZWh2MWZSSEs2QTBISDZ5aURDVFNhcHpleGdZaEo0amR4bTlJTA?oc=5) |
-| Trump's H-1B visa crackdown upends Indian IT industry's playbook - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNVk9palV3YTkyLXg1NlhpXzZxZUJLckVxZy1tMXJvSER0YVdoNHVMOGpZRGpGZkNYMXVtcy01NE5iZG41STFxRDRyODh2TUxRYkx3ZXJDcV9hUFh5ZFFudGxod2RTdmpEVTdpMVZQMkc1dWQ5UUxqWXpYdURzZXp4SGV4MzluNlIwNkFTRm9QbVJaNmxYaklFSzZSMjl0bzBtYmRCbi1DbG5VVDN6WGwtNGJxeVM1dw?oc=5) |
+| Asian stocks hesitant after Trump's visa crackdown - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOOTFTaUxQOEJPdTQ5TXl1VGd1Q3Jlb0trX2ZEVHdKWFIzbWtTTmMydzZBc0h0VWRySklwQ1hSb21BeXJKMWhxeE9YMGRqYlN3U2lnSmJGOG5hdm9HXzA0eEdRdkVmT1p3VG55eld2dC15Sjc0ZzlLYWxpUVhLUEJtVF9ReDlGdkoyc29IdC1sWFFMX0tLdWxacjdFSDZwWUw5WWxjaHJOUQ?oc=5) |
 | UK, Canada and Australia announce formal recognition of Palestine, with wave of Israel’s allies to follow - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi4AFBVV95cUxObzNsMDhCVXhSbDVWczNQSUtpeDI0RXV2QW5sdVhsNVRnZVdlVVJRbDZTZ2hiZWNBV1RiNTAzamJnNmhXMi1iLWNocXJBNS1iZ21xQTlSdG1WcF9UYW1mcExjcTdaV0FTV1hXYTMxZFFOY3VtUVF2RHFraTY3SVVGdXd1UjdCRFJIOUVncXZPZGZpbWNPTkEzaXN2aVZrRU5RNk5ZVFJBUVNOX1g3QldOVHVaLVlKYUJrNmY3aGU1Q2RGbnBSMnJfemV6V3E2NFhQNjVXbC1jZVNvMm8wZUZLdw?oc=5) |
 | Trump on Pentagon restrictions for the press: 'Nothing stops reporters' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQYXJxaERlell5c3U4MkNjVG5ONXJzdFp2QTg2ZUdyQTFqZjJuTWFVTnNQMUxDcmZDRE1lMk5Ka1FhSjNhU19IUEpZNUJzN1BGRUl4b2pNMExqekpLbkQ4NzZRWEpLSy1jTFRzOFJwUmZTWE1IRUtLSkMyWW5rTlBncnRyc3RjWTNGSUs0?oc=5) |
 | German and Swedish jets intercept Russian military plane over Baltic Sea - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQTWRUVGNZOVM4OEhNNzBCRlYxWXNLNE5Va196WG1IUmduUEFlSDEtdVM1alhIMURzdXlTSFI3THd5NEE4eHI2STRrRHBBOWszS3FMVVRoczRELUNrMksteWtrTWVtQ1NkRk1INFJLek9ram95QjYzVGJ0Wk1TeVNEdlpHOWY1cTltSjgtYWtiekNRZw?oc=5) |
