@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月22日 16:01:33（北京时间）**
+🕒 更新时间：**2025年09月22日 16:08:57（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| UK warns Israel not to retaliate against Palestinian statehood push | [阅读全文](https://www.bbc.com/news/articles/c1wggrdn9dno?at_medium=RSS&at_campaign=rss) |
+| UK says Israel must not retaliate against Palestinian statehood push | [阅读全文](https://www.bbc.com/news/articles/c1wggrdn9dno?at_medium=RSS&at_campaign=rss) |
 | Trump hails Charlie Kirk as 'martyr' as thousands fill memorial service | [阅读全文](https://www.bbc.com/news/articles/ckgee0x9p40o?at_medium=RSS&at_campaign=rss) |
 | Watch: 'I forgive my husband's killer', Charlie Kirk's widow says | [阅读全文](https://www.bbc.com/news/videos/c1kwwxgmn21o?at_medium=RSS&at_campaign=rss) |
 | Welfare reform 'must happen', minister says | [阅读全文](https://www.bbc.com/news/articles/ckg3jl0ylkyo?at_medium=RSS&at_campaign=rss) |
