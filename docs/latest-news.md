@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月22日 15:17:01（北京时间）**
+🕒 更新时间：**2025年09月22日 15:24:54（北京时间）**
 
 ---
 
@@ -25,9 +25,9 @@
 |--------|-------------|
 | Photos: Scenes from Charlie Kirk's memorial service - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBJLVJlb2hyTEJaMVp1TDZxWWxNTE94bnh1WWJqWmFieXJBbFlMYWlZQ1FKNDdSWXRnYXlVckp0T2ZZcDFUWGNCbXlWd0E1d3dnU3JHZWh2MWZSSEs2QTBISDZ5aURDVFNhcHpleGdZaEo0amR4bTlJTA?oc=5) |
 | Trump's H-1B visa crackdown upends Indian IT industry's playbook - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNVk9palV3YTkyLXg1NlhpXzZxZUJLckVxZy1tMXJvSER0YVdoNHVMOGpZRGpGZkNYMXVtcy01NE5iZG41STFxRDRyODh2TUxRYkx3ZXJDcV9hUFh5ZFFudGxod2RTdmpEVTdpMVZQMkc1dWQ5UUxqWXpYdURzZXp4SGV4MzluNlIwNkFTRm9QbVJaNmxYaklFSzZSMjl0bzBtYmRCbi1DbG5VVDN6WGwtNGJxeVM1dw?oc=5) |
-| UK, Canada and Australia announce formal recognition of Palestine, with wave of Israel’s allies to follow - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi4AFBVV95cUxObzNsMDhCVXhSbDVWczNQSUtpeDI0RXV2QW5sdVhsNVRnZVdlVVJRbDZTZ2hiZWNBV1RiNTAzamJnNmhXMi1iLWNocXJBNS1iZ21xQTlSdG1WcF9UYW1mcExjcTdaV0FTV1hXYTMxZFFOY3VtUVF2RHFraTY3SVVGdXd1UjdCRFJIOUVncXZPZGZpbWNPTkEzaXN2aVZrRU5RNk5ZVFJBUVNOX1g3QldOVHVaLVlKYUJrNmY3aGU1Q2RGbnBSMnJfemV6V3E2NFhQNjVXbC1jZVNvMm8wZUZLdw?oc=5) |
+| Canada recognizes Palestinian statehood - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQeUdEaWFxc09UY0VzZUFBeXByYWVRRHFHSHp4c0pCRHJqUFFCeHFJZW82WkVrLVRTeUJvS3Y3SlBZWHkyeUphMk9NQV9ZTnpjVVkzRWJOZHZZUHpSVU1OVHZYZGtDbUhnS3BnZGUxMHNjMXZRZU9pZ2dtRTd1UFprTU9iY0VWSWdCZm5Z?oc=5) |
 | Trump officials shut down bribery probe of border czar Tom Homan - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOYVpfTlFONFNDZ3pHMEIzWUdtZ05iTFVPYWtMX3h6N3BxUkt6WnM1dHpmVFZDTGlDOVBFWVBMWWpvWUhIbnczYXBTVW5sUmlUZXR0RmJaZnVBZi1fWHJuQmtSRXo1dHlrbDVrdjk1dnJ2VHpNTC1pTXpvUWpSMzRWQktaV2ZKN3pXYXZ4OVoyYUppRkxjcDUwM3cwUlNxdWpheENr?oc=5) |
-| Trump on Pentagon restrictions for the press: 'Nothing stops reporters' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQYXJxaERlell5c3U4MkNjVG5ONXJzdFp2QTg2ZUdyQTFqZjJuTWFVTnNQMUxDcmZDRE1lMk5Ka1FhSjNhU19IUEpZNUJzN1BGRUl4b2pNMExqekpLbkQ4NzZRWEpLSy1jTFRzOFJwUmZTWE1IRUtLSkMyWW5rTlBncnRyc3RjWTNGSUs0?oc=5) |
+| Unnamed Pentagon Officials Ridicule Hegseth’s Plan to Stop War Department Leaks - The Intercept | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOQ1VCQnd4bXFxSkR0ZXc0RUxDLWlrSVBLSmt2ZE45Z2NHM2Zfa1dQQzRKSmlHN2lUaHk5Z0ZSWE1ybTk0WHpmX0FIUzRvMmpuME04aTR5aXBwWDA5Nk1xdTlkQmtKMjEwTGtFOWtZQjdSQmNzUlhJcFdCRHUyYTAxWlRYNDFTRzFZbGdtemZR?oc=5) |
 | German and Swedish jets intercept Russian military plane over Baltic Sea - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQTWRUVGNZOVM4OEhNNzBCRlYxWXNLNE5Va196WG1IUmduUEFlSDEtdVM1alhIMURzdXlTSFI3THd5NEE4eHI2STRrRHBBOWszS3FMVVRoczRELUNrMksteWtrTWVtQ1NkRk1INFJLek9ram95QjYzVGJ0Wk1TeVNEdlpHOWY1cTltSjgtYWtiekNRZw?oc=5) |
 | Caretaker killed by tiger at wildlife preserve in southeastern Oklahoma - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOdmE5bFNzc2IxbllRaW9vRGZqcGpkOU93WnZyR0IxdlQ4ekdRZmNEZ0FYYnhyX1pIaFl3bG0tb2QzQXhOSmFDeEdfVXVNLTI1c2hfbkhDYVQyemhrcW9jeDRxR3ExaXNaQTB1azZ4eElxRWgwdW1QcU5lMmxMT0dSOHZVdjdDRGlqWlRGbHh2M3hFMHhrLTQ2a3RXemN0Q1hYVHRmcmU4VWZyaXVz0gGyAUFVX3lxTE4zSGtvMjJ4VUpIazlpM2IzeUxwSDVibkFrbTljTWlndkc1MVJ5T25pQjZpLWVlS1FiOTlyczNndGhqZXZ3WjFIaFAwSXlfTHF3RkZzTWo2Q2pYVTFZVUJaVllHRzktcDhyS3gyYUZSbHZtLUpQRzRKY0lHVmZXQ0ZWVHR3WXJ0RnU5R0JWRWJSQ0NLZXF4eExNakpDXzVscWVBLUtxUHZJX1F3X2RDVW1ubnc?oc=5) |
 | Trump and Musk Are Seen Together at Kirk Memorial, Months After Falling-Out - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQWjktbWJUa3FoNlRFb3NkN1MyV19Mdnd2dVdIeHFIMWI1WEJuYjlXZ1pPVkpYcUdPbWdwQjhvRXYxSEJ0NTNhSm5tQW81QXdfYXgxSFlmU1FscVpXUUVPY3cyQW0yd2VQWlBjQTNWNWhVdUhNWlNPTDEwVWx0ajRVTWNn?oc=5) |
