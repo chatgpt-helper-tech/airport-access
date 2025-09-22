@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月22日 10:00:25（北京时间）**
+🕒 更新时间：**2025年09月22日 10:08:18（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Trump takes stage at Charlie Kirk memorial after Erika Kirk says she forgives killer - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE04WHo3aVNSSU95VW94ZkJVSnB0aGo5MGtUa3RIYXR3b1kwRW9ZdjhQVTNwZVRSWlZMc01rVXh5TmlBWThnNmZBU3BaRER5Z3BTcUZtMg?oc=5) |
 | White House clarifies $100K H-1B visa fee won’t apply to existing holders as Trump stirs anxiety - PBS | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxNY0NMMzVVY1BzVzBPUHlhRzZraGRpWnVWSFlXUDlmMjRGeTl5cmZ2Ry1kMDlsV1ZScElFSmp2OERmRE1PM1AtbDB2S29pQ1o3cHZPR2ZjaEJsZjZIclJyVVdmdHJiR3k5ZnJ4TTM2M3ZpUWxZcVh0N3hkX2U0WVZrcjZmVm9CbzJmYkhxUUswTG9PNDJWSU9HTzJ4aUJ4bk1WejlqRkh1c2RVTEVrVFpTR2ZhMV9waHZqcWNvQVB6SzdQNy1vZk1IZXljZWnSAdIBQVVfeXFMUDNCWWY0LThVRC1oSEtmanJ6UmIwTEE5aTNmbkR6Nmxod2ItSmhLdHlXUnVzaEc4YmRsdTFzRzJaWVdKQ1lUZy1HdWFFdThRV3dySlZjWEEtbUdZOEtrTkRlbjU5ODhKZkpXN1oxc2JVX19UeGRvX2ZpWVFRTE5fS0R1RnlLSHd1SENCdVNZUGtCMEZIU3R4MzlhTlRTXzlON0R2NGU1cWVKZ1lGX2dKcjBvRmU0ejJqbmxrY3RBdjM5ZDdleEU4YXZQMEVqZXlvd3J3?oc=5) |
-| U.K., Canada, Australia recognize Palestine as a state, breaking with U.S. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQQndfNEtJSTJzS3dRM29ZQVFhbDZOMUF6VC1Yb296V0lWRTJEbUpmWHRobThDd05XLU1tUTN3dmw3Y3E5bXdpejgyVm5CMlJHLWE4WHRwb3BWNm9SZUI0Yzdoc1RiOVJwU2pzcHliUzhlUVBvQjh3MlRuVXZtNW9kRFhTY3NfYW5UYmNpUHVkNDZVaXIz?oc=5) |
-| Trump aide Homan accepted $50,000 in bribery sting operation, sources say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOUDExemhTT2pFMVdIakxVMFJzSFNnVV9NOENTX1dmWmJ1WmhmdFpwWEJrU0h2Vi1pSW1Qa0NRTTBIbnh1QXBxNTR2eGEwTGxVX2NmN24xTk03Zy1vX1daU1pCNC02T0sxODZZRHZLMGhKelo5SFNFQU1PLWhVNmtIQnZHTUQtQ3EzdDg4RWszRkJ0bjdzR0pJZzlQdGVRcFJ1SG5kNDRJZk5hYTE2R0h0M0tn?oc=5) |
+| Trump officials shut down bribery probe of border czar Tom Homan - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOYVpfTlFONFNDZ3pHMEIzWUdtZ05iTFVPYWtMX3h6N3BxUkt6WnM1dHpmVFZDTGlDOVBFWVBMWWpvWUhIbnczYXBTVW5sUmlUZXR0RmJaZnVBZi1fWHJuQmtSRXo1dHlrbDVrdjk1dnJ2VHpNTC1pTXpvUWpSMzRWQktaV2ZKN3pXYXZ4OVoyYUppRkxjcDUwM3cwUlNxdWpheENr?oc=5) |
+| Britain, Australia, Canada and Portugal Recognize a Palestinian State - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQR050UFU0ZXpxQWUwNWVHNVRMMDlBbThrb044TE1NanZ0UDRtSFRIbVRkbGUyVWtTUTdSU05RMFp2aEZSaTJzRThWRUZQUzNPcndIZjZoSjdzTmxPYmNsR2tpaUdLM0pJc3dhUXZIUTI0MEVqYjRUTy1ZaHRmSzVKeDdHZ3Vfb0Z3Z0hSOGJsTXZOOXFLRGc?oc=5) |
 | Trump on Pentagon restrictions for the press: 'Nothing stops reporters' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQYXJxaERlell5c3U4MkNjVG5ONXJzdFp2QTg2ZUdyQTFqZjJuTWFVTnNQMUxDcmZDRE1lMk5Ka1FhSjNhU19IUEpZNUJzN1BGRUl4b2pNMExqekpLbkQ4NzZRWEpLSy1jTFRzOFJwUmZTWE1IRUtLSkMyWW5rTlBncnRyc3RjWTNGSUs0?oc=5) |
 | Chicagoans Avoided Their ‘Filthy’ River for Years. On Sunday, They Swam in It. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE91VUwxMng5QzE1MlRsX0xKSEVVT214X1dYYllnb2NLUmJYX1JWeTl4S1hyX3c2cHFrZF83RmQ2T2plaThuQjJ1c1dBT3NzRFpWS0o5a2sycWE4ZGRfSUxvMkZQOS0xTTI4Z29hLTJ3?oc=5) |
 | Tiger handler fatally mauled at Oklahoma preserve - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQdV9aZW0zYktOZHozTGZCWXNjYUhhUzFuNC1XVHVfQ0tXc3RtU1JxXy1RWDdpeG9yck02UjVNYkE0RndrbTJlR3hVQWI2NTM2d3ZsWHJJYmZSUlh5VG5vQ3RyNGhkUWV4QlEzVXNtb3pIR3VvWkhOMF9ubnE3dkx4a0g2dU5wc0VDMmtHeEZDc9IBVkFVX3lxTE9rS241ejMxXzhDbEpwMVc5bjY4YTFidEZObVY0TU9sNmlYNDBtMnZVZ2lqNXNSaXZHNXowRHktUEszSnBRSUc3UHlxbVROT2U1RjFYU3FB?oc=5) |
