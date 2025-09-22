@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月22日 16:48:40（北京时间）**
+🕒 更新时间：**2025年09月22日 16:56:18（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | German and Swedish jets intercept Russian military plane over Baltic Sea - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQTWRUVGNZOVM4OEhNNzBCRlYxWXNLNE5Va196WG1IUmduUEFlSDEtdVM1alhIMURzdXlTSFI3THd5NEE4eHI2STRrRHBBOWszS3FMVVRoczRELUNrMksteWtrTWVtQ1NkRk1INFJLek9ram95QjYzVGJ0Wk1TeVNEdlpHOWY1cTltSjgtYWtiekNRZw?oc=5) |
 | Tiger kills Oklahoma trainer linked to ‘Tiger King’ Joe Exotic - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOQ1lSVVRTWWhVbHJQZTJLM01nc1NsT2haWkRuSUpmakZLNGlxZkQ1Mlh5RENpbVUzMUVwaElGckxJX0lhcEhKWGhzTXQtbHV2cGtmeHZNQnp0NnZyMlhqN3ZfTWdpUEdXSlBwSmxhai0zaWFMVjdEanFXMjdEV0NKNEw1UQ?oc=5) |
 | Patrons at New Hampshire shooting prevented worse tragedy with selfless acts, AG says - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPRm9pdGlrSW1TemcyMFBQUTUtcjVSMi1MbjJaZkRpOXg3cEt5UG1yV1R1SlotNnliY1I2OWFHWHk1b2djUVdJQV9lSFcxUXFRdnQ0LUwwWllGTmNrSHVsT2FuZkY2d1hMRzZmMzZhazM3R3NfbWQyWFpTZ0N4X0k0Uw?oc=5) |
-| Protesters clash with agents at Broadview ICE facility as official denies its closure - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNV2NXZGROU055T2tKN2FoblptLWs1WlctcmJ2SnFpTm9VM2JXQnhwSURhdnFRbjVMZDFIdXprc2lLa3VPMzR3WllTeUFQV2h0MUc5dS1sdWtubmRDRGZvSWRFbHlMa2JCeFNXaUFCbUxNcjZjS3dEQmFBWnBNLVp4aVZjWDI4blBRalpwOQ?oc=5) |
 | Americans view United Nations as necessary, but ineffective, poll finds - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPVWFEd1RJRldYZzAtSjRvYmhFSjNma2xhdDhuZUFNTDVISzJnS1RBcVZ0Rk42OWhTX2doMUdMWnBwTkk0V250dzUyNHI2aTUwSFVLQmhrVDQ3WVlnQ2UxeGVTRTlLOTRjR2FvSGRGSWh0VzYzMHNSa3BBN3N1UkV6ZlBuckNtRFhIaWlRUnJnZkQ?oc=5) |
+| Protesters clash with agents at Broadview ICE facility as official denies its closure - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNV2NXZGROU055T2tKN2FoblptLWs1WlctcmJ2SnFpTm9VM2JXQnhwSURhdnFRbjVMZDFIdXprc2lLa3VPMzR3WllTeUFQV2h0MUc5dS1sdWtubmRDRGZvSWRFbHlMa2JCeFNXaUFCbUxNcjZjS3dEQmFBWnBNLVp4aVZjWDI4blBRalpwOQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
