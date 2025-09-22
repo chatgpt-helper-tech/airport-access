@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月22日 11:24:44（北京时间）**
+🕒 更新时间：**2025年09月22日 11:33:12（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Trump officials shut down bribery probe of border czar Tom Homan - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOYVpfTlFONFNDZ3pHMEIzWUdtZ05iTFVPYWtMX3h6N3BxUkt6WnM1dHpmVFZDTGlDOVBFWVBMWWpvWUhIbnczYXBTVW5sUmlUZXR0RmJaZnVBZi1fWHJuQmtSRXo1dHlrbDVrdjk1dnJ2VHpNTC1pTXpvUWpSMzRWQktaV2ZKN3pXYXZ4OVoyYUppRkxjcDUwM3cwUlNxdWpheENr?oc=5) |
 | Chicagoans Avoided Their ‘Filthy’ River for Years. On Sunday, They Swam in It. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE91VUwxMng5QzE1MlRsX0xKSEVVT214X1dYYllnb2NLUmJYX1JWeTl4S1hyX3c2cHFrZF83RmQ2T2plaThuQjJ1c1dBT3NzRFpWS0o5a2sycWE4ZGRfSUxvMkZQOS0xTTI4Z29hLTJ3?oc=5) |
 | Trump on Pentagon restrictions for the press: 'Nothing stops reporters' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQYXJxaERlell5c3U4MkNjVG5ONXJzdFp2QTg2ZUdyQTFqZjJuTWFVTnNQMUxDcmZDRE1lMk5Ka1FhSjNhU19IUEpZNUJzN1BGRUl4b2pNMExqekpLbkQ4NzZRWEpLSy1jTFRzOFJwUmZTWE1IRUtLSkMyWW5rTlBncnRyc3RjWTNGSUs0?oc=5) |
-| In Historic Shift, U.K., Australia and Canada Recognize a Palestinian State - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPbU9peGQ2ejRiMHVxZ2xielBoMWJEUmh1aWNQVHBRaFhKLUpIeV82N2ktanpvclhJb2JFSmR4ZWVDbW4xS1c5STNFY3FpTU9ZZnY3MThYTWNrMElpY2NhMXBaRmIwTXJWY2l5OG5SeVRjSDBLTDJZYlJQM2pMaFBCYmRRT3IySXFLR1QzYUQyQjNqV0pNRExCcjlxYkdBZWc2Uzh1d2w1Z3VfR0FMZFJRb3JwR1RhbzhDQU9B?oc=5) |
+| Donald Trump and Elon Musk meet and shake hands months after messy split - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQeTFlN296ME43d0NYLU5COGZRSnc2RldYc1VUR2tyRHZnZ2lPU1BDemptLXhoWDVvdVRWNXVYWS1GZFFMQTQ2REpFQVBnTWRQQkh4ZTlvbXl3LXJEOVI0QjU5dVVjVEFJVjlRdWI5TTVVRFlCa1E4YU9CV0c5SzFIUjNVV2VDbkhYUld6NGpua0E2WlRCUE9GUm95aEo1T2prSFRNUEd6dk9relp0MjNkQUd1aTBxQQ?oc=5) |
 | Caretaker killed by tiger at wildlife preserve in southeastern Oklahoma - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQUWFnSWtaaVdqWi0zblRBRUhQMjBxTkFRdmwzdnB3d21TS1VxbDIwSVlmN0tidmpQMUJ5amZkMURwOEs2RDRKQ0tYRlJmZ3g3QmlxZl9RLTdRRUxNRl9iNEpfMTFEdFQ1bHhwVk0ydEJtNWZlNzdLUFZkNmN2OU5temFEb01tMHpzenFkM1c0RjloNlhJdFgyTFRUcFdSNEh1OHJZdkczbnhyXzRfTFhYdU93?oc=5) |
 | Trump Officials Didn’t Know If His Order To Prosecute Foes Was Meant To Be Secret - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQSjU2d0JLQnV5bG5UeWdxa2RuWm4yN3ByY2g1V294clJuS0E0LVdfYjRNV2NlNGdqLVJEYVI4WFNMcXcxM2RoZGwtNF95aTl0cFJHQnZZM29xMzlOWlRhV1Y5RkVkRkM5LXZoQWk1MldxYkxtOUNrbTNxblpqV0duOVM1Mm91Um1nWm9UZTVMZkJNS2tiTlFXanFKWTY3T2tyT3NqWFlTdnVYTFUwUEZPUVAxbFN3Ty1hTERkYXRsdw?oc=5) |
 | Taliban rejects Trump's bid to take over Afghan air base that U.S. controlled for almost 20 years - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE5DczNCbEVxb182QlFPVjFiUDNWLThta3psaEw2UnBRQmJWZkw0UVhkdUlzaHpZYjhGTHdmRkJvU1c5WTVkOTN5b1BvLU1NVmlqTEN6ZjFRZ1dzaHFucUZBU0xfbEw4SXprQS12OTZvWmVXWjTSAXhBVV95cUxOZnRzY01JRkdsSkVCV3VucU1vaHA4QVQ3ZHcwaXVDclgyWGJ6bFVlXzRLcjIyNEZlTE5Qd2htaWRneXNrZUllY1FQY1JpQjZqWFVucDBpOGdjUU00RHllWU02ZDRfZXkzamZzbHg3ZzZFRVVFbHhYaEw?oc=5) |
-| Suspect in ABC10 building shooting arrested by FBI after being released from jail ｜ UPDATE - ABC10 | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPSGVWX1dXOXB0eXJVSmh5aWpLQ0F0WUtSSHFLLXJJRXFFU21MXzItTzJZbmdsRE8xNi0wZVlRSXo0aFF6YVNtQnd1dFdCby13UnVsV1VTS2dLbkJ2ZWlJVG1QaWhOZHhCQW5xc1RockNOYUNuRktaSHRxSGwza3BfVTZVRDhuV0hvM3VLa3pWUEpJNmZscWxCc0taMXEzOEtwckNtS09YMThaUmg4NXVFblBYZmFRakdwY3NmODE4cHZVS2Z4aWVhT2ZtTnBrZw?oc=5) |
+| Speedboat destroyed by U.S. Navy held 1,000 kilos of cocaine, Dominican Republic says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNdGtnc2ZZbUFSQXZ5Vmo2YjRrU0F3b0c5YVkzZXp5N0QwbzBNWkRGVWVSYVZMX2l3czAwTFFad1ZwVE5FRUQxTlk5amFnaVd1bW9fMjlkeHk5V1pqUmszUF9RWGpwSEdhTV9md0VrT1dudFR0aTBrb2s0S2g3elgxbkFiNkw3UdIBiwFBVV95cUxPTDlvMDhBYllqRXZfUm5YZUVlWFpWSC1uVFdKX0l2SWh6Mmh2UXpFUUl3M2VXSUtDNEFjZGY2aDhXMTlZNERXZ3V4WVpscmh2YkF2MTNlUUxYcFd5a3l4LXNKZjRPcHVNNnlvekppNExhTGhfSTE2YWxYdkpUSHF6RnZaNmNkcXBiSVV3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
