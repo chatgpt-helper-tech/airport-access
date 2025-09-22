@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月22日 14:40:35（北京时间）**
+🕒 更新时间：**2025年09月22日 14:48:05（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | European airport disruption continues after weekend cyber-attack | [阅读全文](https://www.bbc.com/news/articles/cqjeej85452o?at_medium=RSS&at_campaign=rss) |
 | South Korea would accept a Trump-Kim deal to freeze nuclear programme, president tells BBC | [阅读全文](https://www.bbc.com/news/articles/cwy91w0e1z2o?at_medium=RSS&at_campaign=rss) |
 | Gatwick second runway plan approved by transport secretary | [阅读全文](https://www.bbc.com/news/articles/c9v7rz24z23o?at_medium=RSS&at_campaign=rss) |
+| Olympic sports calendar needed because of climate change, Sebastian Coe says | [阅读全文](https://www.bbc.com/sport/athletics/articles/c5yj0wyje7lo?at_medium=RSS&at_campaign=rss) |
 | Sultana looks to 'reconcile' with Corbyn after party row | [阅读全文](https://www.bbc.com/news/articles/c0q77y25l48o?at_medium=RSS&at_campaign=rss) |
 | My three boys starved to death. I hope angels bring them home, says Afghan mother | [阅读全文](https://www.bbc.com/news/articles/cwydgj4pg9jo?at_medium=RSS&at_campaign=rss) |
-| PM's 'knee-bending' to Trump is  'cringey', says Clegg | [阅读全文](https://www.bbc.com/news/articles/c1l881vnv2no?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
