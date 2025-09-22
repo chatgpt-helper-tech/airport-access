@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月22日 18:57:50（北京时间）**
+🕒 更新时间：**2025年09月22日 19:00:56（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Patrons at New Hampshire shooting prevented worse tragedy with selfless acts, AG says - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPRm9pdGlrSW1TemcyMFBQUTUtcjVSMi1MbjJaZkRpOXg3cEt5UG1yV1R1SlotNnliY1I2OWFHWHk1b2djUVdJQV9lSFcxUXFRdnQ0LUwwWllGTmNrSHVsT2FuZkY2d1hMRzZmMzZhazM3R3NfbWQyWFpTZ0N4X0k0Uw?oc=5) |
 | Tables turn for Democrats as they use shutdown for leverage - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOMENkRHIySFVGWHNybVVoLU1kUklXQkVHa0F1NFFxVVpualJlRzByUVVCZ2xUOXhpMVB3VkZMVmRNVDBGY1lURUJzX3dGdVJITVlYb1Q2b0NOQktVQXVxUXA5bEtQSnd2N2o4QUlqNUFtSUs0ZXg2dUh1T095bWhlaXJ6NA?oc=5) |
 | Tiger handler fatally mauled at Oklahoma preserve - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQdV9aZW0zYktOZHozTGZCWXNjYUhhUzFuNC1XVHVfQ0tXc3RtU1JxXy1RWDdpeG9yck02UjVNYkE0RndrbTJlR3hVQWI2NTM2d3ZsWHJJYmZSUlh5VG5vQ3RyNGhkUWV4QlEzVXNtb3pIR3VvWkhOMF9ubnE3dkx4a0g2dU5wc0VDMmtHeEZDc9IBVkFVX3lxTE9rS241ejMxXzhDbEpwMVc5bjY4YTFidEZObVY0TU9sNmlYNDBtMnZVZ2lqNXNSaXZHNXowRHktUEszSnBRSUc3UHlxbVROT2U1RjFYU3FB?oc=5) |
+| Behind Charlie Kirk’s Spiritual Journey That Fused Christianity and Politics - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOaDJ5VHJMb19ZalRkb1hRWWlzWGpyVi1XcnB3UGJFcGdqYjItTm5sRFpoVUhCOVYzcDYwck0ycnVsZHdYRGh6cU1yT1hWcUFOU2V2d01LZ0Q4RnVxdHhnYjlhSTJETkJrQUViOURrZUNNM1hZOWI0dHg4aGc5QksySmd5TWtrTE0?oc=5) |
 | Trump pushes Bondi to pursue cases against his foes as he ramps up retribution campaign - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPcHloTkRzdUhGU2Y4V1A2VnFLSm5WZEFXNFRWSUlKNlNiMmh1VEVuY3dlZ1Y0VXRydUkzQjRvUEpoMklnMW1nZGhmczdPaXpBQlo2aV9TTXFpVlZlZHd4TWlqTzdFQS1tUnJMZmJsd3NsT3VvLXdSeHNNZWlQRVMyR3UxVzFENWVuSHdQNk54NEJhUVR6R0h6elhiQTYyaGY1Sk1nS2VFdzZ0MWF3TVpjR043Vmw3dDVTa2kxdGttVEdEdjTSAcgBQVVfeXFMTkRjYTNuamZfV2RmNU9UbTdPak02b0RINThyUjNsckYxQ3drZ2dwaG91MlA1ZWtBQmxXa1h0NUhvYTVsLUNpbjR3cXl5WXR5SDdtTi14S1h3NHNyWFdSbU8wTHlDWFVDU24zUU5TdFVacXNReVE5S2lna0Vkc3VmOHg0dEN3TEo0bmZPbWZNQTd1azdvZE5kdjcxUDZhRTdMd2ItcnZSbzN3dml0OEpaTXgzRmpDTGNyY2hxdkw3UDg2UnplN1MtNEk?oc=5) |
-| Speedboat destroyed by U.S. Navy held 1,000 kilos of cocaine, Dominican Republic says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNdGtnc2ZZbUFSQXZ5Vmo2YjRrU0F3b0c5YVkzZXp5N0QwbzBNWkRGVWVSYVZMX2l3czAwTFFad1ZwVE5FRUQxTlk5amFnaVd1bW9fMjlkeHk5V1pqUmszUF9RWGpwSEdhTV9md0VrT1dudFR0aTBrb2s0S2g3elgxbkFiNkw3UdIBiwFBVV95cUxPTDlvMDhBYllqRXZfUm5YZUVlWFpWSC1uVFdKX0l2SWh6Mmh2UXpFUUl3M2VXSUtDNEFjZGY2aDhXMTlZNERXZ3V4WVpscmh2YkF2MTNlUUxYcFd5a3l4LXNKZjRPcHVNNnlvekppNExhTGhfSTE2YWxYdkpUSHF6RnZaNmNkcXBiSVV3?oc=5) |
 | Trump administration set to tie Tylenol to autism risk, officials say - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNcm8yUG41UmxiVTkxWXd5R0xqYjFoeDBzVG9pRHJGYVA5cGNMRWYwSmFvVW51VGFnY2lGS1FJX3hubW5OaTBobkxDQ0pGWml6N09fX3lkWldBTlltdnRlR3ExT2tvejBiVlJtNHN3Mll6V2JVM243aTBfa1RTWkpQXzF3Smk3cnBqNFk4STRSdHNYa0F4V1p6dWRn?oc=5) |
 
 ---
