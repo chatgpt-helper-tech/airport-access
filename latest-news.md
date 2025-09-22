@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月22日 09:32:56（北京时间）**
+🕒 更新时间：**2025年09月22日 09:41:40（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | Britain, Australia, Canada and Portugal Recognize a Palestinian State - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQR050UFU0ZXpxQWUwNWVHNVRMMDlBbThrb044TE1NanZ0UDRtSFRIbVRkbGUyVWtTUTdSU05RMFp2aEZSaTJzRThWRUZQUzNPcndIZjZoSjdzTmxPYmNsR2tpaUdLM0pJc3dhUXZIUTI0MEVqYjRUTy1ZaHRmSzVKeDdHZ3Vfb0Z3Z0hSOGJsTXZOOXFLRGc?oc=5) |
 | Trump on Pentagon restrictions for the press: 'Nothing stops reporters' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQYXJxaERlell5c3U4MkNjVG5ONXJzdFp2QTg2ZUdyQTFqZjJuTWFVTnNQMUxDcmZDRE1lMk5Ka1FhSjNhU19IUEpZNUJzN1BGRUl4b2pNMExqekpLbkQ4NzZRWEpLSy1jTFRzOFJwUmZTWE1IRUtLSkMyWW5rTlBncnRyc3RjWTNGSUs0?oc=5) |
 | Chicagoans Avoided Their ‘Filthy’ River for Years. On Sunday, They Swam in It. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE91VUwxMng5QzE1MlRsX0xKSEVVT214X1dYYllnb2NLUmJYX1JWeTl4S1hyX3c2cHFrZF83RmQ2T2plaThuQjJ1c1dBT3NzRFpWS0o5a2sycWE4ZGRfSUxvMkZQOS0xTTI4Z29hLTJ3?oc=5) |
-| Erika Kirk Wears Charlie's Blood Stained Pendant After His Death - TMZ | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQZ1dRYzJ3R0dMN3hkZFJXRE1MR0l5SExIM0VXTE1NcDdCSks3a1NEajhMT0Y0ZFZ0NElHRklrRDJfaUpYazFYWjZub2hhRGNFRFEzUVZ4XzJnNEZhSzVOYUt4VGNEQ25QaGpGbmx3VHpIUVNmWE8tOENTMzhreXVkdXZR0gGCAUFVX3lxTE93SkVWTmZQcXhyTVJRSTBhRC12ci1sMEpMMDczbEtnX005c3dNYnh5SWhNejNKZTE5TkR5Q1hsak14UHR3VDg5RDExQ3J5WGRoMGhXVlBKSTQ1LVBVbEdUQ2ZOY1VhOU9wT0ZIbnRLbVctTVZjVExUZDlmdjZfYlJxRlE?oc=5) |
 | Tiger handler fatally mauled at Oklahoma preserve - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQdV9aZW0zYktOZHozTGZCWXNjYUhhUzFuNC1XVHVfQ0tXc3RtU1JxXy1RWDdpeG9yck02UjVNYkE0RndrbTJlR3hVQWI2NTM2d3ZsWHJJYmZSUlh5VG5vQ3RyNGhkUWV4QlEzVXNtb3pIR3VvWkhOMF9ubnE3dkx4a0g2dU5wc0VDMmtHeEZDc9IBVkFVX3lxTE9rS241ejMxXzhDbEpwMVc5bjY4YTFidEZObVY0TU9sNmlYNDBtMnZVZ2lqNXNSaXZHNXowRHktUEszSnBRSUc3UHlxbVROT2U1RjFYU3FB?oc=5) |
 | Chris Christie: Trump ‘wants to be prosecutor in every district where he has an enemy’ - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPUW9HQ2dOcEhMb2ZTT3hZMjJIR3ZUN0hsSGMyRExYTTlvRzk3bzF1MVFnQjBOanoxTm9lZTVIV2p1WlRrSUdMZGdUYWE1MkxZbFhIZGlyU1p3eHNSZV9BUV84NWlwa09odzFleGdpQmtNVkk2TTZXNlF2ZkVkczdoVzVsSHdXQkNNWGfSAY8BQVVfeXFMTk5STW8yRUxHQkx3NXhWc1lsQUg5NUc4bW43cE9RNTVPbks0UGhoT1A0X3ZWTDU0NHU0OXA4al90MEU2aFAwTlktaWdzRUZONjgtV0ZjN3dlbFA4Snhncmt0Z3JHQzk3am9vT25qMlNKR0dvOW1YRkVkQkFuU0tCemR2aEFraXB3QkhRVE96TTQ?oc=5) |
+| Man charged with murder in connection with shooting at Sky Meadow Country Club in Nashua - WMUR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQLUViQjY1SWJRU2U3RHJNYURUb19oNUV3emRkMG9Yd2N5VGVnVkZ0ODdYeXpjTm5hSU1Fa29yVDdHZVVmX3A1RVJlSGowV3JpaUNmcTVnQ3haUlRlLUR6bjBLQWpONkNMYlBBcWlhOGVpSjJHN0hWVWw0Zy1DLXRaVVdvY1UzVUk3aG9hWWgzSQ?oc=5) |
 | Taliban rejects Trump's bid to take over Afghan air base that U.S. controlled for almost 20 years - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE5DczNCbEVxb182QlFPVjFiUDNWLThta3psaEw2UnBRQmJWZkw0UVhkdUlzaHpZYjhGTHdmRkJvU1c5WTVkOTN5b1BvLU1NVmlqTEN6ZjFRZ1dzaHFucUZBU0xfbEw4SXprQS12OTZvWmVXWjTSAXhBVV95cUxOZnRzY01JRkdsSkVCV3VucU1vaHA4QVQ3ZHcwaXVDclgyWGJ6bFVlXzRLcjIyNEZlTE5Qd2htaWRneXNrZUllY1FQY1JpQjZqWFVucDBpOGdjUU00RHllWU02ZDRfZXkzamZzbHg3ZzZFRVVFbHhYaEw?oc=5) |
 
 ---
