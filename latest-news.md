@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月22日 15:57:32（北京时间）**
+🕒 更新时间：**2025年09月22日 16:01:33（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | UK warns Israel not to retaliate against Palestinian statehood push | [阅读全文](https://www.bbc.com/news/articles/c1wggrdn9dno?at_medium=RSS&at_campaign=rss) |
-| Trump hails Charlie Kirk as 'American hero' as thousands fill memorial service | [阅读全文](https://www.bbc.com/news/articles/ckgee0x9p40o?at_medium=RSS&at_campaign=rss) |
+| Trump hails Charlie Kirk as 'martyr' as thousands fill memorial service | [阅读全文](https://www.bbc.com/news/articles/ckgee0x9p40o?at_medium=RSS&at_campaign=rss) |
 | Watch: 'I forgive my husband's killer', Charlie Kirk's widow says | [阅读全文](https://www.bbc.com/news/videos/c1kwwxgmn21o?at_medium=RSS&at_campaign=rss) |
 | Welfare reform 'must happen', minister says | [阅读全文](https://www.bbc.com/news/articles/ckg3jl0ylkyo?at_medium=RSS&at_campaign=rss) |
 | European airport disruption continues after weekend cyber-attack | [阅读全文](https://www.bbc.com/news/articles/cqjeej85452o?at_medium=RSS&at_campaign=rss) |
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Photos: Scenes from Charlie Kirk's memorial service - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBJLVJlb2hyTEJaMVp1TDZxWWxNTE94bnh1WWJqWmFieXJBbFlMYWlZQ1FKNDdSWXRnYXlVckp0T2ZZcDFUWGNCbXlWd0E1d3dnU3JHZWh2MWZSSEs2QTBISDZ5aURDVFNhcHpleGdZaEo0amR4bTlJTA?oc=5) |
-| H-1B: What Trump’s $100,000 visa means for India and US industries - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE45b19XVzNGcXJWa25EaW5Udm1YRWwtRnY4aUtVSVhNZnJJSDFzV3Q5SUVLWGVFT0hXS3YwWFNGTWZmNnNvSS1uSXh2eTAtQ2g3WVdTWVVXVldTZ9IBX0FVX3lxTFBnMklocF90WUhyaVFwYTB0RERfeUlETHNkQVJsX1Yya2VLZmsxNFBibXVZSENBNG41TDJDeU93elp6MmFJX2dsWE1qWHhRS0J0eEtVU0IwLW5KMW95d0xz?oc=5) |
+| Indian IT shares fall over fears from Trump’s H-1B visa fee rise - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBpS1hQZGx5LUJYWFg4X052dWJMSjR0M2tmYmtKRnBuY1o4QjZ0V0s2bGlEYnl1Y0pHLTVCYUgyNXY1LXZySy1ob05kVlBDVDY4VjhHNlNHT0hUY2Uxbm5uMVZZQk1QdUs5bjJVbmZwZ0Q?oc=5) |
 | Canada recognizes Palestinian statehood - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQeUdEaWFxc09UY0VzZUFBeXByYWVRRHFHSHp4c0pCRHJqUFFCeHFJZW82WkVrLVRTeUJvS3Y3SlBZWHkyeUphMk9NQV9ZTnpjVVkzRWJOZHZZUHpSVU1OVHZYZGtDbUhnS3BnZGUxMHNjMXZRZU9pZ2dtRTd1UFprTU9iY0VWSWdCZm5Z?oc=5) |
 | Trump officials shut down bribery probe of border czar Tom Homan - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOYVpfTlFONFNDZ3pHMEIzWUdtZ05iTFVPYWtMX3h6N3BxUkt6WnM1dHpmVFZDTGlDOVBFWVBMWWpvWUhIbnczYXBTVW5sUmlUZXR0RmJaZnVBZi1fWHJuQmtSRXo1dHlrbDVrdjk1dnJ2VHpNTC1pTXpvUWpSMzRWQktaV2ZKN3pXYXZ4OVoyYUppRkxjcDUwM3cwUlNxdWpheENr?oc=5) |
 | Trump on Pentagon restrictions for the press: 'Nothing stops reporters' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQYXJxaERlell5c3U4MkNjVG5ONXJzdFp2QTg2ZUdyQTFqZjJuTWFVTnNQMUxDcmZDRE1lMk5Ka1FhSjNhU19IUEpZNUJzN1BGRUl4b2pNMExqekpLbkQ4NzZRWEpLSy1jTFRzOFJwUmZTWE1IRUtLSkMyWW5rTlBncnRyc3RjWTNGSUs0?oc=5) |
