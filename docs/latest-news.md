@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月23日 21:16:36（北京时间）**
+🕒 更新时间：**2025年09月23日 21:24:49（北京时间）**
 
 ---
 
@@ -12,8 +12,8 @@
 | Behind the doors of asylum hotels - what I found when I went inside | [阅读全文](https://www.bbc.com/news/articles/cwy8ee2w73jo?at_medium=RSS&at_campaign=rss) |
 | Why Trump's comments on vaccines and paracetamol risk child health | [阅读全文](https://www.bbc.com/news/articles/cdx2rk10ep0o?at_medium=RSS&at_campaign=rss) |
 | Can the Duchess of York bounce back one more time after Epstein email scandal? | [阅读全文](https://www.bbc.com/news/articles/czx0nr29neeo?at_medium=RSS&at_campaign=rss) |
-| New rule for GPs after 27-year-old died from cancer after contacting doctors 20 times | [阅读全文](https://www.bbc.com/news/articles/cly0428jjpeo?at_medium=RSS&at_campaign=rss) |
 | Legendary cricket umpire Dickie Bird dies aged 92 | [阅读全文](https://www.bbc.com/sport/cricket/articles/c1dq0223930o?at_medium=RSS&at_campaign=rss) |
+| New rule for GPs after 27-year-old died from cancer after contacting doctors 20 times | [阅读全文](https://www.bbc.com/news/articles/cly0428jjpeo?at_medium=RSS&at_campaign=rss) |
 | Catherine and William visit Southport families | [阅读全文](https://www.bbc.com/news/articles/c8d7r8225nvo?at_medium=RSS&at_campaign=rss) |
 | UK forecast to have highest inflation among richest nations | [阅读全文](https://www.bbc.com/news/articles/cx2n4877j7lo?at_medium=RSS&at_campaign=rss) |
 | Russia's involvement in drone sightings cannot be ruled out, Danish PM says | [阅读全文](https://www.bbc.com/news/articles/cqxz3lzlqr3o?at_medium=RSS&at_campaign=rss) |
