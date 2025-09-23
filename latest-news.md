@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月23日 21:09:41（北京时间）**
+🕒 更新时间：**2025年09月23日 21:16:35（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | New rule for GPs after 27-year-old died from cancer after contacting doctors 20 times | [阅读全文](https://www.bbc.com/news/articles/cly0428jjpeo?at_medium=RSS&at_campaign=rss) |
 | Legendary cricket umpire Dickie Bird dies aged 92 | [阅读全文](https://www.bbc.com/sport/cricket/articles/c1dq0223930o?at_medium=RSS&at_campaign=rss) |
 | Catherine and William visit Southport families | [阅读全文](https://www.bbc.com/news/articles/c8d7r8225nvo?at_medium=RSS&at_campaign=rss) |
-| European recognition of Palestinian state shows US still only power that counts | [阅读全文](https://www.bbc.com/news/articles/c87y4ljx85qo?at_medium=RSS&at_campaign=rss) |
 | UK forecast to have highest inflation among richest nations | [阅读全文](https://www.bbc.com/news/articles/cx2n4877j7lo?at_medium=RSS&at_campaign=rss) |
 | Russia's involvement in drone sightings cannot be ruled out, Danish PM says | [阅读全文](https://www.bbc.com/news/articles/cqxz3lzlqr3o?at_medium=RSS&at_campaign=rss) |
+| Nick Robinson: How the simmering row over freedom of speech in the UK reached boiling point | [阅读全文](https://www.bbc.com/news/articles/c62ln7mzd5ro?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
