@@ -30,7 +30,7 @@
 
 ---
 
-📅 **内容最后更新：2025年9月18日**  
+📅 **内容最后更新：2025年9月23日**  
 🔗 来源：[ChatGPT 中文导航站](https://gptvpnhelper.com/airport-access/)
 
 
