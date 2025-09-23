@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月23日 23:09:14（北京时间）**
+🕒 更新时间：**2025年09月23日 23:16:34（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Illegal working and streams of taxis - BBC gains rare access inside asylum hotels | [阅读全文](https://www.bbc.com/news/articles/cwy8ee2w73jo?at_medium=RSS&at_campaign=rss) |
-| Fact-checking claims Trump made about autism | [阅读全文](https://www.bbc.com/news/articles/cj07e3rjev2o?at_medium=RSS&at_campaign=rss) |
+| Fact-checking Trump's claims over autism rates and vaccines | [阅读全文](https://www.bbc.com/news/articles/cj07e3rjev2o?at_medium=RSS&at_campaign=rss) |
 | Epping hotel asylum seeker jailed for 12 months over sex assaults that sparked protests | [阅读全文](https://www.bbc.com/news/articles/cp8j5vp7413o?at_medium=RSS&at_campaign=rss) |
 | Is the Epstein email one scandal too many for Duchess of York? | [阅读全文](https://www.bbc.com/news/articles/czx0nr29neeo?at_medium=RSS&at_campaign=rss) |
 | New rule for GPs after 27-year-old died from cancer after contacting doctors 20 times | [阅读全文](https://www.bbc.com/news/articles/cly0428jjpeo?at_medium=RSS&at_campaign=rss) |
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump was once laughed at on the UN stage. Now, world leaders are courting him - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5LRTNTd21HWmkzeDExTVJUQ0NuTVkzMFlHdXlrR1psbUExbER2SUM1aDFaY1pBbjJDUTdOVUVuSUZuUk84QVZXdk9sZF9mTUd4LWxDdnVadWE3OFhCZW13SEpzNjh1cVRJYy03RnBTZkZqcTU3cHpvd0ZXbk8?oc=5) |
+| Trump to address United Nations General Assembly - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOQUtVXzFjeFFVb3FKNkdnVVcteE55NXB2VmtkYXlncWJhMGE1SUpfU3g4MjdhS24xMkVhZUlrQ0d4UFJjNlU3R1p6Zk41aTduWGdSVnpCaE1UUDJHOFhLcXlGeU53YU1wOU93QVFiUmRpQ2pOMm5iZTF0TTRPaEhoeTFScnFNT2lZWUQ2b1hjTzk3cm81UTd6Zmp4MTbSAaIBQVVfeXFMUEtxTlZzX0FmWl9GeW5wcmNici1MeGRjc2o2NTlnNjJvWE45bTJRY2lTUlB4cmhDRW5RemstMnFad1duX2RKSDBadVBiVU0tdGhTVDhYT3lTRlJzeUJKcnNXaVRLSzI5X2FZRGpRdXotSWF1dEw2cFFrdzN6ZEwxTDg0S254a1Fkc3QteVNiV0picHliLTlBTVJSX3MtdWtmM2d3?oc=5) |
 | EU, WHO counter Trump's warnings on autism and pregnancy - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQOEIxUXRTbVRhZ1ZpTGthd0M3RXFBUVNYb1hyd3EtcjZPVmNrZUE1MjF4LThGWEtTRmwxVWVHUVBMMVR1MVF0TzE4RFB5bFMxSW9UbXkzZHlpMXVtQ21FSnhRcE9FZ294dTRhLU9GVGhPdUlsanN3bGRkX3VXMnJoS2RiZHFTRi1lbnZRSE9ocjBHUExaYmItNUhxRTdLRHJ2eHR4Z1lrdkpkcFVvRTAzakZUUjNwY3B3YWEyUDV0Qm1VeXRJb202SkRnMktxa3RGX1E?oc=5) |
-| Secret Service agents dismantle network that could shut down New York cellphone system - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxQeThKeHNhRi1NYlRlcVU0SGc3SHhiZlk3dGx4T2VJOHpsUHNYbGNfQXdMcEtibEdjcTVhWEhoaURvZVgtMVBvMjVMTGNEUVRLblRYeUVCQkFGVGktQlRLMEpVRzhDeVFqZkN1VlgzcDljQkMyM1JmV1BoMVJFeEFrdDZsSFNOQ1FqMWhCTGtpQU02c1o5SXNLZGJhSE9ENDRwbFNzbnBLQ2NNY0VJMExWVHd5ZU1jMGhlQTN0MVYxYWFXSER3MlR1WnZDUWrSAVZBVV95cUxPcUlJWkVZQVZQTXVocURMd0tRNUFUV1paa3YxajA2bTJXdW4wX09BTW5SSEV6YVBVbXF0OVc1OTlfdHlBVVFtbzMtSE1FMDFwT3FaRjU5QQ?oc=5) |
+| U.S. Secret Service disrupts telecom network that threatened NYC during U.N. General Assembly - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPNGttOFRaUTNNTzhkNzZlaTItVlVMQVgzUlNnN3JtNjV5aC1qZjFlaTlwN3FqZXktQVFNX3Q4NlliUVNMM3V6dnc2SXBwSTdsSGNNbUVCQl9WVU5aTEhsQVJYTkhHN1kwcFFFeEZKa2lvVDd1c05mSmZNc3JiMWYwTTNmbUp0Q2NLdUY3ME84RjB0bnpWdnZjLUxBcmwzcmZJVU0wZXk0OVlfYWY4cExXc2NuMk5kdmJfZlI00gHAAUFVX3lxTE5aLUlaLWdfQUlpT1B3bmJHOHUwQnBNZTE1QXltTmlaZkxEaVhhWFRvWFp1TTlySDFVMGUtWUI3UGNQeVQyRkZZbjNhZF92dWtTMDFOSnNKc2QwUGJRc2Eyd21YeEoxQ3Qybk83RnQ3S1BxNlNueFVrc2ZWZzd3ZjVsTUNmYkZwa25lNVJDREVFdnE0OGZwUERSUTJrcF9Qckd5cFQ5NU1ybHkwSEFBRHVYWElJZEVvNko2cGgyWGczdw?oc=5) |
 | 5 takeaways from Kamala Harris' new book about her sprint for the presidency - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNeXFRdUhVaVJwWUZwd2s4SmRYRmZRQWtuYklZWEVxWHdxRzFSQUdWQnFXcWFaUHhaZzh6ZDFuOFRnSkphWng5RzN5dUpWNjNxb2pCM2pJOW50NG5mU19uLVh6d2tsU0pETGR4TVBTVzAxNnJ0TG04a3hSZVMyUTFjVW5ldmgtcmNzd0hv?oc=5) |
 | Business leaders including Jensen Huang, Sam Altman, and Reed Hastings, react to Trump's H-1B visa fee - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQV1g4cGhYdFE4Tm9FZnZUdUwzblhGWGs1QlZ4VTR0d1N3akNmUlNvcnlDclNjT1ptd1NQVE9hQ3VNYkZOLTVMYURHRUg3NnlLVThiakJzMlNqWGdPWHRaVS1SLVpHclc2dVJIZTRoaUhfWWxiNTA0MFZlTjI3WEhGcVN4QUlFMUE3?oc=5) |
 | Trump cancels meeting with Schumer and Jeffries - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNSEJmZ0pGWDZEVzcyX2J2QTdyQUUzR3E4QUphd2ttdXRXaUlxRm9DcVEweWNSc0ZqVk1YalFZelRTd0MxSElVOUotT1N3MXdTMGZORjlUY2pKWUwwS3lGZHNJY1c5NkJqN0EtemJ6ZFNFUFdoblFnR2tqbVB4T1dKZW5sdFF5eUFydVA5aVNHUmlfQQ?oc=5) |

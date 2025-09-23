@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月23日 23:09:13（北京时间）**
+🕒 更新时间：**2025年09月23日 23:16:34（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Illegal working and streams of taxis - BBC gains rare access inside asylum hotels | [阅读全文](https://www.bbc.com/news/articles/cwy8ee2w73jo?at_medium=RSS&at_campaign=rss) |
-| Fact-checking claims Trump made about autism | [阅读全文](https://www.bbc.com/news/articles/cj07e3rjev2o?at_medium=RSS&at_campaign=rss) |
+| Fact-checking Trump's claims over autism rates and vaccines | [阅读全文](https://www.bbc.com/news/articles/cj07e3rjev2o?at_medium=RSS&at_campaign=rss) |
 | Epping hotel asylum seeker jailed for 12 months over sex assaults that sparked protests | [阅读全文](https://www.bbc.com/news/articles/cp8j5vp7413o?at_medium=RSS&at_campaign=rss) |
 | Is the Epstein email one scandal too many for Duchess of York? | [阅读全文](https://www.bbc.com/news/articles/czx0nr29neeo?at_medium=RSS&at_campaign=rss) |
 | New rule for GPs after 27-year-old died from cancer after contacting doctors 20 times | [阅读全文](https://www.bbc.com/news/articles/cly0428jjpeo?at_medium=RSS&at_campaign=rss) |
