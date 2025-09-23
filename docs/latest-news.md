@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月23日 22:25:47（北京时间）**
+🕒 更新时间：**2025年09月23日 22:32:59（北京时间）**
 
 ---
 
@@ -8,9 +8,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Epping hotel asylum seeker jailed for 12 months over sex assaults that sparked protests | [阅读全文](https://www.bbc.com/news/articles/cp8j5vp7413o?at_medium=RSS&at_campaign=rss) |
 | Illegal working and streams of taxis - BBC gains rare access inside asylum hotels | [阅读全文](https://www.bbc.com/news/articles/cwy8ee2w73jo?at_medium=RSS&at_campaign=rss) |
 | Why Trump's comments on vaccines and paracetamol risk child health | [阅读全文](https://www.bbc.com/news/articles/cdx2rk10ep0o?at_medium=RSS&at_campaign=rss) |
+| Epping hotel asylum seeker jailed for 12 months over sex assaults that sparked protests | [阅读全文](https://www.bbc.com/news/articles/cp8j5vp7413o?at_medium=RSS&at_campaign=rss) |
 | Can the Duchess of York bounce back one more time after Epstein email scandal? | [阅读全文](https://www.bbc.com/news/articles/czx0nr29neeo?at_medium=RSS&at_campaign=rss) |
 | New rule for GPs after 27-year-old died from cancer after contacting doctors 20 times | [阅读全文](https://www.bbc.com/news/articles/cly0428jjpeo?at_medium=RSS&at_campaign=rss) |
 | Catherine and William visit Southport families | [阅读全文](https://www.bbc.com/news/articles/c8d7r8225nvo?at_medium=RSS&at_campaign=rss) |
@@ -31,7 +31,7 @@
 | European recognition of Palestinian state shows US still only power that counts - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE52SnhuczgxbWZtcUFYN3BpZVZVdV9HYnZOMVRJM3ZPTGNnYzRtNkthd3VONlNySk4wQUs3REhPQ01fak1kaG4xMDB0bWUzWG91T0J4blNEaW5EZ9IBX0FVX3lxTE9OeFk2dUVqTjNsNlR3UDA3dU1YRnRLeWpCTjlJZ3FIZHh0cjREVVpmd3ZxWHdpVkczaW5mc3RaSVRwRDN3MzJuVFVkU2JoWkYwVHdsT0M1cHpPWFBJWlVz?oc=5) |
 | How Arizona voters are set to put Mike Johnson in a corner - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOYXdVV2Y2dFQ1Q2NFMkFjQnFybkE0UFRhVkRXNnFCdnRjVURDTTRTdTFVMmRKODh4TE5HRU5TdkZhN0xmSTZHQWx2N0ZzNUJ1a3VDTlFyU2U3VFFHX09Na3ZPMm9sTjltMUk4MF9adHphY21VNmZMeHEtNU5WdF9OczVIVHoxemhnMDR5MG9ObFg1ZjZs?oc=5) |
 | Animal handler killed by tiger was performing in front of onlookers and family, Oklahoma sheriff reveals - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxObmRJdzNxd1pzSnM1bGtmT2UzQV9VMVBWbVBmMWl0d1hoZDc4bE1wVUZLaWJHRkxHdUxtN1R1UGVOYWR6Tm5MdXQwLUxYTUFaTGd6c3o0cjQ2RUVaLUkxbDZscGRkdDhaQ1BCOWlOdE5HRXlhMW01Rzc3T2MxNzZ5eHFjTzNFNHk1QkJUVVd2YS12UWJWUU9aYtIBngFBVV95cUxOdVZ3YUk0TjFib08xTFI4MXFhdkZBM05fWmgzdWgwZndBaWJpYUpDR0FGVzB5QXlUTF9GV2xuN19zeS1BNDlYcWxnQUNnSUluaE1EVmZEb3hmb0l3Sjl5bTNDWEZWd2VRcFhDaU41bGZWc1RBNUJsbVFkWlZ0YXV0aUNmTVZXV0xDTTd1YXJGdU1Edm9pbWk4Y0lmUl9ydw?oc=5) |
-| Charlie Kirk’s memorial was one of the most heavily fortified events of its kind, expert says - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNbmNBakN6cFM4QTE5R2RyY05yMWw2Zk5qZFRNejFvd3hkdzBpTjRwbWwycGhvWFZqMGpqOFZ3dXRoUkZ6ZGU3X0lZU1pCeU5CbXB6cXFnVGFaS3FrRlZMeElybDB6aldYc2Z2cVpXMExHTnRnUEwwNVczM1E1X2pJWjZTdHhtRmlHaUgtWTQzWmppMWw1NTBFN0hlT1cwWm5FX1lUWm95T05uY09IeUpuc25hRnFIcURW?oc=5) |
+| Man charged in New Hampshire country club shooting makes first court appearance - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQTXBPQnFOUm1jcGswTTNmejFZSDVHOG5pclUxWC1TT0VnYjlhQmhlVDFwOHZWZENiSkkxTmI3MWRSWDZMamdNeXlnYndFYUdCQUh0OG9reDZjdUk3eFNFUkVaVGZlbEE1d1E5QmZ5b0lZQ0kwdkI4b21TTXgzc0hJRXJyYndWZkg4YnQ5WnJNbzlJTXA0VlJWdldROA?oc=5) |
 | Man suspected of shooting at ABC affiliate had note to ‘do the next scary thing,’ prosecutors say - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQdHAwVmJGQ2RXNXRWY0hpdU9xV3QwT2xXZTZ0Qm1pMjlwV1AzcEJ2eXNpc1YxaVdDUkhSZW9NVmgxZ1l2cFo5MmxZWWsySHVLZXA1Qmo3YjhGNHloVXNVTWJ4YzhtNFhVTnZuZ3hlWS16MFR5aVlhN3RVTTd6a3g1Q1Fwelk2MTBCOUZrcE9Jd9IBlAFBVV95cUxOZXQ2bWJKbDVkUmp2dXdsZXNIcEhZbnB2S2N5N0Raa2k5TUx3bW5HWjE2LWhoeFRZN2xrbXgtZDJoY0wxbnBHcHN3dTJrVHR0TjVNb2thUHhnb2VOa1Z5b1lHbVpMZWl6enJYZXQ0WG9YU2hYLUhqa2cwV29iTmtfNGRFZlgwVWg4REUyaEZtQ3FSN1Vw?oc=5) |
 
 ---
