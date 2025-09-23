@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月24日 04:17:37（北京时间）**
+🕒 更新时间：**2025年09月24日 04:25:17（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | The Secret Service has dismantled a telecom threat near the UN. It could have disabled cell service in NYC - PBS | [阅读全文](https://news.google.com/rss/articles/CBMi2AFBVV95cUxNaTZEWi1kS0FxRXBOcFFZX1BnN0Jacy1TZ3FIc196d25OVjE1TFNEc2RvZFpQWjI0WEREQ2YtTUZTLXRlYUZwR0c0MElvUDZidGxNSEQ2NXFKODM1ZEtsUE9qbU5xLWRZTFh5MXB3US1sdjUyaEZlREloUWhkb2FnNTNpT1ZBcndFRjh6WkRhQlJxOHJrcHBjU2dHVjdjc05oVnNqZW9mZlZsYTk0R3p4V1B5THZiaVl2Yi1GRzZLX3JKTnNxaF9RR1RDQ29aUElnX3dCbjRQNmw?oc=5) |
 | Trump cancels meeting with top Democrats on how to prevent a government shutdown - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxObXFrM1QyYTUtRmhMQzloX1o2cHNyYUM2MjBRdVVHREpNeFh0M1QxbXVQTzRUU19Fb1ZIRThOMXlHWldtZi02M0pjcTdKZURZS3RTRVFsQWtrQXp0OUxjUzVDUzF6eVRNRVo1WUJyMUVPd0NNZVBUbnVwX1VGZW9tWkREb0tZOW40aEVnWF9KckRSRkpsRUFlQ3VXc0laRzduSTJCWm9VbVZaNklJMk0zTTUzem0wYzZ5cnI3bNIBVkFVX3lxTE9EOFZ5emp4MUpFMUNvbHlCRFZkVHl6UWp4Yi1CX2V3YVpNVzZmcm9KVFJkeG5nbWoyRWVGNk55VEdKYnFTQXY3MDhpc2RmazJ5Ni1vSEdB?oc=5) |
 | Harris admits she was 'reckless' in not challenging Biden's decision to run for reelection - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNU2tVaTg5Z3BVNWhwN3d1MVBzNGxvX1ptOXBWVUlBUTRtWU9XeUVkWDc2c1dDWXhRR3hEVXZZckY0U2lLTWp4X29ReE1zeUZxRE5WTHN5aW5IcE80UkUwZWRYNnpqRVkzcS01b0FpUlBmLUhpTTNlamZ4azdBblpJMm4xT19saE9veEhZT0tGdE14N0J4TEppZ25yeGhfR1BRUjU4dHdFUG1XbmlvMlZxRHhaM0FvWWfSAbwBQVVfeXFMTzMxMVNKTjBKTEFRc3lJeXhpdnI3eTlKS2x3cWd3UDNlQTdKY2dxXzV5M3VBc0YxdnJlZll1MzEwcW10QzNyUnJwYm45bzBmdXVmbUYxbnNEc3h6c0xuczYxWmlaTlIxUDhHTlFZUFd3Qkl4T05zd3gybGlyYmd5TlBzVnBrdGN1NXlQSU45ZnBXMnM0UEdJNV9XazBqVkpwbUZNT2NpZXlpYkIxazhUeWpBVnVUQnlvOUs1QU0?oc=5) |
+| Despite Trump’s Pressure on Justice Dept., Certain Safeguards Are Beyond His Reach - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPMGtBeXBqdFJkOTJsSkxjZzR2Nm9lUzRvRi1ObjBwMFRmVE9Yc0R2TXUwTFRwa1hTZngtaFZsVlZZU0tnT2plQWxMX2xHTlpXOVRTNFBEUDBYOFlxNXdudjJ6akk0U1QwOTB2MVRJdlB0RHNQMXdwZGFvOTRGX0w3WU5n?oc=5) |
 | Democrats Open Inquiries Into Handling of Homan Investigation - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNSjFkb1VtY1ZCbEI0d3NNSWNlVldBcGU5X1dlMl9Gc3JoUklyUmZrN0VKV0dJNGE5OUF6OTh4eDJkY0k0dWZIZFh0Z3lSUXEzd0pZbzV5VlhSTXloS0RlbTQ2akk1RWpaUDh3VkphcTdrdm1mN0pCc25QdUFSVlBUcXNVcWFfekxCdFAxbG9B?oc=5) |
-| Fat Bear Week Voting Begins at Alaska’s Katmai National Park - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5mQllMSjBDQUd4M0hDem04U0pCWURXNnBGUEZQWE5fMWFyREMxcTk1anEzSWNqVWFmaldfUDhDZlE1czhjSktWQ3p3cmU0ZEhEOGlwQVFLR2NCWTlHazdhT21jblNuSjFubE9oaUZVMGRzQ3ZFai1OSVJxRnMxQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
