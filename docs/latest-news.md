@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月24日 02:01:53（北京时间）**
+🕒 更新时间：**2025年09月24日 02:09:03（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | 'Your countries are going to hell': Trump bashes United Nations, world leaders in speech - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOQUtVXzFjeFFVb3FKNkdnVVcteE55NXB2VmtkYXlncWJhMGE1SUpfU3g4MjdhS24xMkVhZUlrQ0d4UFJjNlU3R1p6Zk41aTduWGdSVnpCaE1UUDJHOFhLcXlGeU53YU1wOU93QVFiUmRpQ2pOMm5iZTF0TTRPaEhoeTFScnFNT2lZWUQ2b1hjTzk3cm81UTd6Zmp4MTbSAaIBQVVfeXFMUEtxTlZzX0FmWl9GeW5wcmNici1MeGRjc2o2NTlnNjJvWE45bTJRY2lTUlB4cmhDRW5RemstMnFad1duX2RKSDBadVBiVU0tdGhTVDhYT3lTRlJzeUJKcnNXaVRLSzI5X2FZRGpRdXotSWF1dEw2cFFrdzN6ZEwxTDg0S254a1Fkc3QteVNiV0picHliLTlBTVJSX3MtdWtmM2d3?oc=5) |
-| U.S. Secret Service disrupts telecom network that threatened NYC during U.N. General Assembly - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPNGttOFRaUTNNTzhkNzZlaTItVlVMQVgzUlNnN3JtNjV5aC1qZjFlaTlwN3FqZXktQVFNX3Q4NlliUVNMM3V6dnc2SXBwSTdsSGNNbUVCQl9WVU5aTEhsQVJYTkhHN1kwcFFFeEZKa2lvVDd1c05mSmZNc3JiMWYwTTNmbUp0Q2NLdUY3ME84RjB0bnpWdnZjLUxBcmwzcmZJVU0wZXk0OVlfYWY4cExXc2NuMk5kdmJfZlI00gHAAUFVX3lxTE5aLUlaLWdfQUlpT1B3bmJHOHUwQnBNZTE1QXltTmlaZkxEaVhhWFRvWFp1TTlySDFVMGUtWUI3UGNQeVQyRkZZbjNhZF92dWtTMDFOSnNKc2QwUGJRc2Eyd21YeEoxQ3Qybk83RnQ3S1BxNlNueFVrc2ZWZzd3ZjVsTUNmYkZwa25lNVJDREVFdnE0OGZwUERSUTJrcF9Qckd5cFQ5NU1ybHkwSEFBRHVYWElJZEVvNko2cGgyWGczdw?oc=5) |
+| The Secret Service has dismantled a telecom threat near the UN. It could have disabled cell service in NYC - PBS | [阅读全文](https://news.google.com/rss/articles/CBMi2AFBVV95cUxNaTZEWi1kS0FxRXBOcFFZX1BnN0Jacy1TZ3FIc196d25OVjE1TFNEc2RvZFpQWjI0WEREQ2YtTUZTLXRlYUZwR0c0MElvUDZidGxNSEQ2NXFKODM1ZEtsUE9qbU5xLWRZTFh5MXB3US1sdjUyaEZlREloUWhkb2FnNTNpT1ZBcndFRjh6WkRhQlJxOHJrcHBjU2dHVjdjc05oVnNqZW9mZlZsYTk0R3p4V1B5THZiaVl2Yi1GRzZLX3JKTnNxaF9RR1RDQ29aUElnX3dCbjRQNmw?oc=5) |
 | European recognition of Palestinian state shows US still only power that counts - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE52SnhuczgxbWZtcUFYN3BpZVZVdV9HYnZOMVRJM3ZPTGNnYzRtNkthd3VONlNySk4wQUs3REhPQ01fak1kaG4xMDB0bWUzWG91T0J4blNEaW5EZ9IBX0FVX3lxTE9OeFk2dUVqTjNsNlR3UDA3dU1YRnRLeWpCTjlJZ3FIZHh0cjREVVpmd3ZxWHdpVkczaW5mc3RaSVRwRDN3MzJuVFVkU2JoWkYwVHdsT0M1cHpPWFBJWlVz?oc=5) |
 | Trump, Tylenol and Autism - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNQmM5RDFCalFUYU96Z0pBbFdEanp0dk1uNVU0Sms0Rk9EYzZyV2lzU1N4eENrNndNYkxBc3VNRFRGdUNVZXBzZjdSOFdGUGRkbEpvc2NQVXE0U0lXZlRoM1NSRlBSdlQ3X0g3MF9aMmZNbGJ3LVBQaHg0bHp0ZlJVSUJIbUNkZw?oc=5) |
 | Silicon Valley hiring in turmoil after new H-1B visa fees, move spurs offshoring talk - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi7gFBVV95cUxQckgxYVNsNEtWM3BoZzFEbEhIZVFtd0FGYl9nM0JUR2JDSjQ5cW5kSnRONTRXMDkySVdsNlNrQkhOVGFJVXlNQmpBRVVnWXRqbldROWZUbWNaMTR0ZkNwR3FkaE54VWg5ekZnYmVZSkNfOEUzUlQteHdtSndVaWtCLXlBWnpWekZiazZlNTlXZWpuVFZreU1taWtTQnE4Mi1YeG1JekNnRDFrUWlRMHVkdGR6U1U5b1dtWndoaDRSc3ZnbHFDUkxuZFBxTko1WnlSdkItQlk2TkZMVF83czRLVHlURVpxY0FwY0Z4VmdR?oc=5) |
