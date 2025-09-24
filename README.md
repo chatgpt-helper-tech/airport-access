@@ -532,7 +532,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 
 ---
 
-![TNTCloud 节点测速图](./assets/tntspeed.webp)
+![TNTCloud 节点测速图](./assets/tnt250828.webp)
 
 ---
 
