@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月24日 23:17:07（北京时间）**
+🕒 更新时间：**2025年09月24日 23:25:23（北京时间）**
 
 ---
 
@@ -9,13 +9,13 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Huntington's disease successfully treated for first time | [阅读全文](https://www.bbc.com/news/articles/cevz13xkxpro?at_medium=RSS&at_campaign=rss) |
-| Rosenberg: Russia brushes off Trump's claim of 'paper tiger' in aimless war | [阅读全文](https://www.bbc.com/news/articles/c3e70n4keyjo?at_medium=RSS&at_campaign=rss) |
+| Steve Rosenberg: Russia brushes off Trump's claim of 'paper tiger' in aimless war | [阅读全文](https://www.bbc.com/news/articles/c3e70n4keyjo?at_medium=RSS&at_campaign=rss) |
 | Urgent review ordered into asylum seeker taxi costs after BBC investigation | [阅读全文](https://www.bbc.com/news/articles/cx2j3regpdno?at_medium=RSS&at_campaign=rss) |
 | Israeli forces near Gaza City centre as Hamas reportedly prepares for street-to-street fighting | [阅读全文](https://www.bbc.com/news/articles/c4gk9dreldxo?at_medium=RSS&at_campaign=rss) |
 | Typhoon Ragasa makes landfall in China after 17 killed in Taiwan | [阅读全文](https://www.bbc.com/news/articles/clyd580lx3mo?at_medium=RSS&at_campaign=rss) |
 | Trump is racist and sexist, London Mayor Sadiq Khan says | [阅读全文](https://www.bbc.com/news/articles/cre53qn8v07o?at_medium=RSS&at_campaign=rss) |
 | Man arrested in connection with cyber-attack on airports | [阅读全文](https://www.bbc.com/news/articles/c62ldxyj431o?at_medium=RSS&at_campaign=rss) |
-| Gaza City medics describe hospital overwhelmed by casualties from Israeli strikes | [阅读全文](https://www.bbc.com/news/articles/cgknzk46kz6o?at_medium=RSS&at_campaign=rss) |
+| Italy condemns 'drone attack' on Gaza aid flotilla and deploys frigate | [阅读全文](https://www.bbc.com/news/articles/ce3yz939qnpo?at_medium=RSS&at_campaign=rss) |
 | YouTube content creators contributed £2.2bn to UK economy in 2024 | [阅读全文](https://www.bbc.com/news/articles/c0knpm6v36go?at_medium=RSS&at_campaign=rss) |
 | The Gen Z uprising in Asia shows social media is a double-edged sword | [阅读全文](https://www.bbc.com/news/articles/cn4ljv39em7o?at_medium=RSS&at_campaign=rss) |
 
