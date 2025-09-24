@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月24日 09:48:43（北京时间）**
+🕒 更新时间：**2025年09月24日 09:57:24（北京时间）**
 
 ---
 
@@ -8,13 +8,13 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Casualties from Israeli strikes overwhelm Gaza City medics | [阅读全文](https://www.bbc.com/news/articles/cgknzk46kz6o?at_medium=RSS&at_campaign=rss) |
+| Killed seeking food - Jeremy Bowen on Abdullah's shooting and Gaza's lethal aid system | [阅读全文](https://www.bbc.com/news/articles/c75qr0gk0yqo?at_medium=RSS&at_campaign=rss) |
+| More young people say rising bills now stopping them moving out | [阅读全文](https://www.bbc.com/news/articles/cq65m95gqdjo?at_medium=RSS&at_campaign=rss) |
+| The Gen Z revolution in Asia shows the power of the young - and their limits | [阅读全文](https://www.bbc.com/news/articles/cn4ljv39em7o?at_medium=RSS&at_campaign=rss) |
 | Kyiv can win all of Ukraine back from Russia, Trump says | [阅读全文](https://www.bbc.com/news/articles/c07vm35rryeo?at_medium=RSS&at_campaign=rss) |
 | Six years ago Trump's UN audience laughed, this year they were silent | [阅读全文](https://www.bbc.com/news/articles/c179p4wvz29o?at_medium=RSS&at_campaign=rss) |
 | Chris Mason: Punchy Lib Dems use Reform UK as call to action | [阅读全文](https://www.bbc.com/news/articles/cvg97gq8230o?at_medium=RSS&at_campaign=rss) |
-| More young people say rising bills now stopping them moving out | [阅读全文](https://www.bbc.com/news/articles/cq65m95gqdjo?at_medium=RSS&at_campaign=rss) |
-| Gaza City medics overwhelmed by casualties from Israeli strikes | [阅读全文](https://www.bbc.com/news/articles/cgknzk46kz6o?at_medium=RSS&at_campaign=rss) |
-| Killed seeking food - Jeremy Bowen on Abdullah's shooting and Gaza's lethal aid system | [阅读全文](https://www.bbc.com/news/articles/c75qr0gk0yqo?at_medium=RSS&at_campaign=rss) |
-| The Gen Z revolution in Asia shows the power of the young - and their limits | [阅读全文](https://www.bbc.com/news/articles/cn4ljv39em7o?at_medium=RSS&at_campaign=rss) |
 | NHS trust repays £5m over maternity failings | [阅读全文](https://www.bbc.com/news/articles/czrp1282grvo?at_medium=RSS&at_campaign=rss) |
 | What's the best period product for me? | [阅读全文](https://www.bbc.com/news/articles/cgl1z3jxy56o?at_medium=RSS&at_campaign=rss) |
 | TV stations refuse to air 'insensitive' Jimmy Kimmel's show after ABC lifts suspension | [阅读全文](https://www.bbc.com/news/articles/cy4j0zldevyo?at_medium=RSS&at_campaign=rss) |
