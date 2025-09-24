@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 05:48:36（北京时间）**
+🕒 更新时间：**2025年09月25日 05:56:47（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| DHS Issues Statement on Targeted Attack on Dallas ICE Facility - Homeland Security (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOVmJaU0xTNnNQTlJfZ1VvenROM0dfRzF0aE12Q3VJUVlLSUFfR3N1Qkp4MUdBWmFWSUpJeWNGZkZlSVVucG5RT1lzbC1ZOEFrYTJ4SE5mT0ctcXQ0TWg5QTI4UjFOc3lfUkxKZzZ2TmNUcDItbnRJdDlVVTJieHpTbDJPeFQ1LWhSTGduQnpzMUZqekFsdFRR?oc=5) |
+| Gunman kills one detainee, wounds two more at Dallas ICE facility, officials say - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNeHgwWW5GdHhtM1ZOTEtvWGx3bVU4X1BSamRkZnNDQkVFZzdyOGwzU0FEZ05FY01XWHJZQkYtWGhuX04yNVo1d19KVXQxWUlVVVVTYjBBMEM5NHJVeFFaZ0t3Y3ZhMG1Gb1B5c3V4S29xbXJKbDI0ZVF5aU1Kc1BYOUxtNE1RMjRGSS1Ob1Zn?oc=5) |
 | Newly appointed US attorney will attempt to charge James Comey despite prosecutors finding no probable cause: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNOURuRG1EZXhOczJHY0pZR3lLeHI3ODkyRGk2aGVBNXV3eWJEVURMVTREQ0Q3WmlWbzJLYWU3bWxLX05ReEpwTlF5RjZGeDRVYjRlendQZEliY1F3Rm04cnFKbXhTYnJmM1JIU2VlNkFwOEVVZllhQVgwczd6Y2ZZc3J2cVFTWnVvRWNmNTdseEw1VTFMRUk4SUk2Q2ladS1ueHBKczVYc0fSAa4BQVVfeXFMUEtOcFVkSEsxalowVXY5ZHM4MzNXY2hNR2lHcnY4eWRTWVhwbUFpVTY5UV91N2xtMWFWeUVyRXNsQ21iTmNyeE82MTVfSW1zZ21WbEJOdFV0YklyWGNwdjMycUVSV2FvRlM4WEFTMVNpU0dGN1JMNFVKaFJPa3phRnhqQjRXU3czS2hNdUpoLVdUUS1qcWJVYzlPMWVGSW9aQWlad2ZkelRXTjZpeWJn?oc=5) |
 | Russia will expand aggression beyond Ukraine if Putin is not stopped, Zelensky warns - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBqX2s4S3pnZkN6VzBPN2ZMN3JwdG1WNTFrbEtOWGJkeEVrN0RQbW1qRUZ6MUNDV3hyVTlEd19sczRzeVI2VTlsUUFuUElQVjl3ZVpaNkF2Um1PQdIBX0FVX3lxTE15UDBoU0gyNkt3eC1OUVRnZUNJNzBBMC1EV3pON2Z6ZUFwZTktNzRMOXlCOFNhX2ZZaFhScDNoUmZwdXpCVjlSdjhDOFM4bXpxQXNhTmx5MnQyeEhNVldV?oc=5) |
 | Thune breaks with Trump admin over Tylenol, government role in free speech - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQck4wYmNUVmEwX1pYTWtRTV9wbnhySVhsMUhNd0FHM3dOZXd0Z2ZlNTZmLXNrTVpDTVd1aDI3WkJvdGNudU1VaVhRSUZSUnVqTkZFR0FMTHMtMExUY053ay1tbVVhZHJ5UWRCc28zYTJvVVJfeXFWZ3AtdEt5MlVqZnpDZXFsVmJlem1UZC1pd2pTWXNEMks4MkN0ZHRrRXNCMGYzWndVSGxkWXFmX0ZRS1NvR3RhaURnbnMtdDF4Rkk?oc=5) |
@@ -32,7 +32,7 @@
 | With Humberto, an ‘Incredibly Complex’ Hurricane Forecast Is Unfolding - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQaUxnTVo5R1BsMFNoeEN6WkN4SEhjOU9SU0xPTGthRU45d05QU2hpMmJ1YV84TllFdjJHR3pmNDdGWVVYU1dlNWc4eF9YYkhqRnozX1EzaXlIblZ2UnA5R0RSek5kT0Y1QnBNMUFHNXpmLXhFckxCOWJXa2hRS2tkQ2hpd1pBQUdsaUE?oc=5) |
 | Schumer hopeful Congress can avoid a shutdown but places onus on Republicans and Trump - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPOHFINzR3WGM2b1haeTZRNmp4ZU5pcDFCQzZ3dmdGdWhHcnR2M3N6X25ONC0wRmxnRXp2NEU5TVRFRWN3Qk40ZFlqbEt0V19DeHRRaEJ6ekdiUlVlakJjMXl4dVQ2a1FhMnZlXzNGV0hJU2pwbmd3YTJWVEQtV2dibmJnWnhGY2tLX1E5Xw?oc=5) |
 | Will Trump Sue ABC Over Jimmy Kimmel? Why Claims About ‘Illegal Contributions’ Are False - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxON0E0YjZjb0FYckJOeWVRWVJxX20wdU5ESHBPaEFLNm9nUmMtSW9CSWg5WEctdUZ3dV92NTZnV0hIQmI1VFpYbDRvbzFCOHpJRUFTLUMwbDBOX25LbXdYZnhmZEJPU2d4M2oxV2lobmx6Tlk1YmQ3QU9xQVNORjg1cHpfS1M1a3pXbm5qeEEtVlJZNng2Rm5KckpjR1ZuaUl3QnNiZktWc0RPMHhpRVZvVDJYa3BMZ0NNWmFDckZHVmI0NzVhb3dTb0VmZWJVWVJQanNfYVQzaUY4OFdXcmxvRklyX0RhaDNwLVFmd2V2dy1rQQ?oc=5) |
-| Democrat wins congressional seat in Arizona, narrowing GOP's slim House majority - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQcUx1RUoyY1gwZm1Ga3lBelpMNGo0SmhON185MV81VFhLTEd2U3YyWkptYTJUaGVkOEpjQ0pnTXlYczJjYVVlcjYtODBqT2s5cklwRXNiQzN0cXc2UjY3cFJZRUFaS1o3Q2t3WlZUalVlLTh1cDkwdzRJYXZ0cmNxSnRWSkR3WVVtRWNxQXBMQXZJZW5XQUZydkVJcU9pNGNSNkd1MlU1ODFPNUI1WGVjSDRDdFNwLXVmOTBaVW9IZEI?oc=5) |
+| Trump wears MAGA down with Ukraine reversal - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5oaW9xTGstSzdyUmRFeG1odzhTU0dBNzNvN210Z3BNcnpqcDlRZnN2NXBwb3RwZXFWN0ZKZko5T1dSUlU5UEF2ZEZNWWdndDFXNk5sTXhmTVlnQmNhRW9vN2oxVnJuRHpkZkpfLXczVHdfQ0J0eGdrbQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
