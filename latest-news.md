@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月24日 13:16:34（北京时间）**
+🕒 更新时间：**2025年09月24日 13:25:16（北京时间）**
 
 ---
 
@@ -12,11 +12,11 @@
 | Casualties from Israeli strikes overwhelm Gaza City medics | [阅读全文](https://www.bbc.com/news/articles/cgknzk46kz6o?at_medium=RSS&at_campaign=rss) |
 | Kyiv can win all of Ukraine back from Russia, Trump says | [阅读全文](https://www.bbc.com/news/articles/c07vm35rryeo?at_medium=RSS&at_campaign=rss) |
 | Six years ago Trump's UN audience laughed, this year they were silent | [阅读全文](https://www.bbc.com/news/articles/c179p4wvz29o?at_medium=RSS&at_campaign=rss) |
+| The Gen Z uprising in Asia shows social media is a double-edged sword | [阅读全文](https://www.bbc.com/news/articles/cn4ljv39em7o?at_medium=RSS&at_campaign=rss) |
 | AI tool used to recover £500m lost to fraud, government says | [阅读全文](https://www.bbc.com/news/articles/cpd92gpld0go?at_medium=RSS&at_campaign=rss) |
 | Italian actress and star of The Leopard Claudia Cardinale dies aged 87 | [阅读全文](https://www.bbc.com/news/articles/c237elg3rr3o?at_medium=RSS&at_campaign=rss) |
 | NHS trust repays £5m over maternity failings | [阅读全文](https://www.bbc.com/news/articles/czrp1282grvo?at_medium=RSS&at_campaign=rss) |
 | Chris Mason: Punchy Lib Dems use Reform UK as call to action | [阅读全文](https://www.bbc.com/news/articles/cvg97gq8230o?at_medium=RSS&at_campaign=rss) |
-| Safety mechanism caused Trump escalator malfunction, UN says | [阅读全文](https://www.bbc.com/news/articles/cn76kyxp6epo?at_medium=RSS&at_campaign=rss) |
 | What's the best period product for me? | [阅读全文](https://www.bbc.com/news/articles/cgl1z3jxy56o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -30,8 +30,8 @@
 | Trump slams Kimmel's return: "We're going to test ABC out on this" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9HVGd3QVpjWmRhWGpxYk5tWDFaWURvUGZ2dTZjX0Z1T2V2NW1UYU1HTHZ4YzdWN184NDBiNGZWem9CbFVwTUN5Vm9uSHdGWFVfenZXWFM0QTRNdEEyRFFWNlRJUUpOOUxONkM5bnM4SQ?oc=5) |
 | Jury convicts Ryan Routh of trying to assassinate Trump at his Florida golf course - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPeUFNaXhPWFgtX19oMWs4dVk2RExoQzc4eDB2OUZLQUptNlU2ZWtlaE51V2FlQ0tUQ2E2YzFVMEhCaFdxX2ZyakVIQ0dKb2N5TGloWW50c3ZFbjd0a0wzdGVXS3h6b21QN0VvSk1JVWZLZVhTOC1xMUc2OFZ6OUxyS0tZeERsdGJoOGhuczIycW9ZbkpxNmlPMFFLNzJhM1pzd1RyZlJoOWlLb2RIUGdHaDd1c1NvUGNueVE?oc=5) |
 | H-1B visa changes may give Canada an opportunity. Will it seize it? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE8xUU9TaFpKRFhodWtNME5XdjRYWjZSMHhuOUdNSkQ0YjY3b2xQcTlDNmtuajJ6RVdpSHZyVUE4RDJNS2hwZWdwYlQtTm9mTWcycFpiNk51bnl6UdIBX0FVX3lxTFBZWWVVUDVEQzNnc1RJaTcxU0ZHNjVueF94bWVad1hub1RoWlNIRGZjWnZ4bUhEOXdodGNDb2Zwd2NJZnU1TkwzbzNPdDdRbjg4WjNKX1llbGNqR25mSDVz?oc=5) |
-| Camp Mystic plans to reopen in Texas next summer, a year after floods killed 27 - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOWmtuZEpsT0lZNUVvWlBuclV6NXpIZlpITmZLT1hRYXdKZm01YjRhWnd6Y0RMSGx1UGtCZzVLcEdWaXNRTTAwNVVyeGYxSXdtal9rdHdFWV9ROXNoVk9qUGhtRTl4VWVCWE5rWkZxQzRKX3dWSlRTNW9SNVR3b2toS1g2MGw2cTZOM3RPejFzSGZTS0s3X1ppQ25HczRfTUZEWkM3Ui1IT3c?oc=5) |
-| See how Texas universities ranked on U.S. News' 2026 Best Colleges list - Houston Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQZV8wZ0dIT2lXY1ZydmZralVuNy00UE90MVVkUzlNejdkT2FudERWVzZtcFIzYk9BR0RTX1lGZXVHbEwwYUJSc3I1S2h5MldPX2txRmFZbEhrWURlVWRsT3NETVNXUTJWbGhJVEVlZ194ZE1BUVIyM250OGdWZ3Y4MHYwb0twc2RPbW8yR2t2OXhqWDhyYzkwN1V1bElOWHE4NUthWEFybmRtdGtRaERFYVhWWVQwdmdP?oc=5) |
+| Trump Says NATO Should Down Russian Jets Breaching Airspace - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPTUlaR2pqMkw2WGkxZEJGSmptSGl3RDRNVjYyM05uLXdKbk1BRlhhR0JsUnFFeWRudUV5TzZJcm51MElZOHdwQ2haeE4zQ3NyaU5mWGZ2ZzdaTmNDSDNZTkVocFpjWW9RZzV2bWRXdFhCV1VtRUNTQzRsbnhNVEJWQ0pPVXpWNmkycHdKNTFaNGhqQTJrU2J5RU05OXFWcWh1dWxQbjUzRDBlSldmUFQ2d2JRSmc?oc=5) |
+| Camp Mystic to Reopen After Texas Floods, Over Objections From Victims’ Parents - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9kYWl3QzRtWmtBbl9PQXUtS3Q4Vm1lRXRtNlRReXZIU3NwLVVJZTZsZUhscFFlSGtmd0NfYjFnUTF0VFhrRmxtRUVVZWNrVFNrMnEyQXI3MkM1cEwtV0pXR2ZaVy1KSm9JbTBNdA?oc=5) |
 | Trump settles on downtown Miami for his presidential library - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNYlVHRTBMWnZPT0c3amRfTzBBTEhTaWdIZm93Rmp6MWpGVUVJYW5jRG8tRTVyanQxcEp2d3QtUWdxV3FxVGw2UV9yRnNnMnF3MHJaUnpHNWQwX0lUTy1hZWVhRXg0dTNpVWNjNHJveUw2QWF3b0VodEhLN3JiYkpWNnRpZ0swU191MmU0LS01bDJMdE9rcV9mQjdreEV2RDM0cXFmSVJVMVVuMVVoZGtSUl9yQWRWTWJk0gFWQVVfeXFMTXRpX21hblQ4MzRIUXBRQlJWdzlZVFFFRFh4amxUby1MYzJlUWRyZFdzcGR3azVPekpFMk5YNlJnV3IwSkpKX09yQWNFLTZobEF3SjFhQVE?oc=5) |
 
 ---
