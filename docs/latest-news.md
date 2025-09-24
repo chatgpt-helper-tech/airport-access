@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 07:01:43（北京时间）**
+🕒 更新时间：**2025年09月25日 07:09:45（北京时间）**
 
 ---
 
@@ -13,10 +13,10 @@
 | First migrants arrive in UK from France under 'one in one out' deal | [阅读全文](https://www.bbc.com/news/articles/cwywv34w00ro?at_medium=RSS&at_campaign=rss) |
 | Meet the history-making Nasa astronauts headed for the Moon next year | [阅读全文](https://www.bbc.com/news/articles/cvg0kv8rq0xo?at_medium=RSS&at_campaign=rss) |
 | Russia will expand aggression beyond Ukraine if not stopped, Zelensky warns | [阅读全文](https://www.bbc.com/news/articles/c5yg921rjrko?at_medium=RSS&at_campaign=rss) |
-| High-speed rail plan for north of England delayed again | [阅读全文](https://www.bbc.com/news/articles/ckge94030g7o?at_medium=RSS&at_campaign=rss) |
+| 'She doesn't get another childhood': The lives on hold waiting for wheelchairs | [阅读全文](https://www.bbc.com/news/articles/cm2zwm8m41mo?at_medium=RSS&at_campaign=rss) |
 | Labour MPs are privately urging me to challenge PM, says Burnham | [阅读全文](https://www.bbc.com/news/articles/c7v1m873mjyo?at_medium=RSS&at_campaign=rss) |
+| High-speed rail plan for north of England delayed again | [阅读全文](https://www.bbc.com/news/articles/ckge94030g7o?at_medium=RSS&at_campaign=rss) |
 | Government considers financial support for JLR suppliers | [阅读全文](https://www.bbc.com/news/articles/c62nv0xx32go?at_medium=RSS&at_campaign=rss) |
-| Steve Rosenberg: Russia brushes off Trump's claim of 'paper tiger' in aimless war | [阅读全文](https://www.bbc.com/news/articles/c3e70n4keyjo?at_medium=RSS&at_campaign=rss) |
 | Corbyn sorry for 'confusion' as new party membership launched | [阅读全文](https://www.bbc.com/news/articles/cm2zvy74e1eo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
