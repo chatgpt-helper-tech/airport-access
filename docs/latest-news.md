@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月24日 12:57:19（北京时间）**
+🕒 更新时间：**2025年09月24日 13:00:07（北京时间）**
 
 ---
 
@@ -10,8 +10,8 @@
 |--------|-------------|
 | More young people say rising bills now stopping them moving out | [阅读全文](https://www.bbc.com/news/articles/cq65m95gqdjo?at_medium=RSS&at_campaign=rss) |
 | Casualties from Israeli strikes overwhelm Gaza City medics | [阅读全文](https://www.bbc.com/news/articles/cgknzk46kz6o?at_medium=RSS&at_campaign=rss) |
+| Kyiv can win all of Ukraine back from Russia, Trump says | [阅读全文](https://www.bbc.com/news/articles/c07vm35rryeo?at_medium=RSS&at_campaign=rss) |
 | Six years ago Trump's UN audience laughed, this year they were silent | [阅读全文](https://www.bbc.com/news/articles/c179p4wvz29o?at_medium=RSS&at_campaign=rss) |
-| The Gen Z uprising in Asia shows social media is a double-edged sword | [阅读全文](https://www.bbc.com/news/articles/cn4ljv39em7o?at_medium=RSS&at_campaign=rss) |
 | Chris Mason: Punchy Lib Dems use Reform UK as call to action | [阅读全文](https://www.bbc.com/news/articles/cvg97gq8230o?at_medium=RSS&at_campaign=rss) |
 | Italian actress and star of The Leopard Claudia Cardinale dies aged 87 | [阅读全文](https://www.bbc.com/news/articles/c237elg3rr3o?at_medium=RSS&at_campaign=rss) |
 | NHS trust repays £5m over maternity failings | [阅读全文](https://www.bbc.com/news/articles/czrp1282grvo?at_medium=RSS&at_campaign=rss) |
@@ -28,10 +28,10 @@
 | Kyiv can win all of Ukraine back from Russia, Trump says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBwVzZWa1Atc1pjZENQSm9WS0E0ZzhiTk5zd1ZPcEU0a3dnOFRMbHhJRksxdzQ3enBOYkY5VWs5VzMxY3ItbUZEUzJBdzJvS2tzazYtUV9UVWZsUdIBX0FVX3lxTE5aSmhUQ2Zac2dBTWlEak1TUnJNT1o4cFkybjZwYVYtcnV2TUVqSTdYTjdiN3NuVzBwNndFWWRwRTRzb0hGS1RFdzlMVEU2S01lSFpCejBvUXJQc21qbmRB?oc=5) |
 | Jury convicts Ryan Routh of trying to assassinate Trump at his Florida golf course - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPeUFNaXhPWFgtX19oMWs4dVk2RExoQzc4eDB2OUZLQUptNlU2ZWtlaE51V2FlQ0tUQ2E2YzFVMEhCaFdxX2ZyakVIQ0dKb2N5TGloWW50c3ZFbjd0a0wzdGVXS3h6b21QN0VvSk1JVWZLZVhTOC1xMUc2OFZ6OUxyS0tZeERsdGJoOGhuczIycW9ZbkpxNmlPMFFLNzJhM1pzd1RyZlJoOWlLb2RIUGdHaDd1c1NvUGNueVE?oc=5) |
 | YouTube to Reinstate Users Banned for Misinformation About 2020 Election and COVID - Variety | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQTWlCUWJoNl80MU1kMGRuSUZ0YUxBZ240SVRFUnBIb0c5TW9BRzJLUE1rSkdJNzR2cEIxVVNIbEhucV9SSmFvNE4ySzdtSG5HQjRmVGtLcXVLV3NGOW5ISXFxNmtNQWRnaUZ6Y2dHOFpiOXJaQXZNZkNtSG94SFRVMEFoeW1oaU4tT1hBbFRZeG51TDRwT3BNaHNUUlF3eTB3eVVFQ2JVYk5JbHFfYl9UVkNJUQ?oc=5) |
-| Trump cancels meeting with Democrats as prospects for shutdown increase - NPR | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTFBYaEFuZWlseS03aC04Sm5JRGJ0bHM4QTE3SmxkblhaTV9aT3Faa0lNbkZjSjM1TDNWWHlFQ0ZYZ2NhTkxhRk5zbE9ESDhtTmw1MVcyd0M3cGhQZ0JIT1g0dEV5YWpKamZLVTBDRTZDcWE4eVZM?oc=5) |
+| Trump cancels meeting with Democratic leaders as shutdown deadline nears - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxORkw0ZzI3cGl5dThJaVZLbEZ0MWNocWsyQkRTN1c2ZTNEV2tpMlgzdllZdmhQREc0eEF4bnZYYWlMWWlHaWxQTDFaS2J5c0d5c1pDT0Zkc2d4TDA2cUZBczNsazl2UFRqZ01vUkd3V3pHVGFkNXpwZU1xMFZnMUktN3dhZ196S3d3WFcyQWtHaEhCWEZTQk5r0gGcAUFVX3lxTE5BaERKSXpYcU9ZdnRFcXFjSHZHYVZSRUh4XzRWQ2N6WEFOVlhybDdHUGdLWjZLbVMwZVh5ZlFKa3pxZVVMZHVkcXg2MkRxUkI1SHRuYndIenJlYTVQUjFZUnFuVkFScGZqcEpxenVOVWtZSkZPb0NHeG5WVWV0b3JvMlRfcUs2eGM4bjk2R2FmS2RGT3prYkd0UmlkRA?oc=5) |
 | H-1B visa changes may give Canada an opportunity. Will it seize it? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE8xUU9TaFpKRFhodWtNME5XdjRYWjZSMHhuOUdNSkQ0YjY3b2xQcTlDNmtuajJ6RVdpSHZyVUE4RDJNS2hwZWdwYlQtTm9mTWcycFpiNk51bnl6UdIBX0FVX3lxTFBZWWVVUDVEQzNnc1RJaTcxU0ZHNjVueF94bWVad1hub1RoWlNIRGZjWnZ4bUhEOXdodGNDb2Zwd2NJZnU1TkwzbzNPdDdRbjg4WjNKX1llbGNqR25mSDVz?oc=5) |
 | See how Texas universities ranked on U.S. News' 2026 Best Colleges list - Houston Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQZV8wZ0dIT2lXY1ZydmZralVuNy00UE90MVVkUzlNejdkT2FudERWVzZtcFIzYk9BR0RTX1lGZXVHbEwwYUJSc3I1S2h5MldPX2txRmFZbEhrWURlVWRsT3NETVNXUTJWbGhJVEVlZ194ZE1BUVIyM250OGdWZ3Y4MHYwb0twc2RPbW8yR2t2OXhqWDhyYzkwN1V1bElOWHE4NUthWEFybmRtdGtRaERFYVhWWVQwdmdP?oc=5) |
-| Trump Says NATO Should Down Russian Jets Breaching Airspace - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPTUlaR2pqMkw2WGkxZEJGSmptSGl3RDRNVjYyM05uLXdKbk1BRlhhR0JsUnFFeWRudUV5TzZJcm51MElZOHdwQ2haeE4zQ3NyaU5mWGZ2ZzdaTmNDSDNZTkVocFpjWW9RZzV2bWRXdFhCV1VtRUNTQzRsbnhNVEJWQ0pPVXpWNmkycHdKNTFaNGhqQTJrU2J5RU05OXFWcWh1dWxQbjUzRDBlSldmUFQ2d2JRSmc?oc=5) |
+| Trump says NATO countries should shoot down Russian aircraft that violate their airspace - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPaXpFUGRJejZVbkllMFlKY2taR0xsck14RjhlU0RhcGlyWkRxTWZYemQ0V3BxS2VRbG41TVNKaTdyRzVDU3NSeExxVFpNSFpHWERYOWNFWXlDak45S1Z0MjZFcVZUZlNxam5wR0JpV0x3Q3pwWjhJZkZhMHcxM3l5WlJkd2VrNTFwR3p0bWNmbHBCN243elhUMDhSQXJvZDQ3SjVYWXVOeVF1U0U5UHQ0OdIBtgFBVV95cUxPXzdfQXEzeWk4eWpxX2VxVzNGV2NKOHNpOUNOTl9oaUpvdC1KMlBybTBjc0JseWdBSHhPR05UXzZ1WHRUWGU1UEp0M3F3SG5PVi1rZzVPX2RQcElwQ19meGp4QmNMakc4WUhUQ0laRjh6Snk2Z3RMbE1CT2Z5SFJXZG5ZN2x2b1ZuREVLRHNZSTNmYVlUUXlaQjRDeWY2ajhSdXVTdGQwNTNXZHV3WndWVXRtR1JYdw?oc=5) |
 | Trump settles on downtown Miami for his presidential library - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNYlVHRTBMWnZPT0c3amRfTzBBTEhTaWdIZm93Rmp6MWpGVUVJYW5jRG8tRTVyanQxcEp2d3QtUWdxV3FxVGw2UV9yRnNnMnF3MHJaUnpHNWQwX0lUTy1hZWVhRXg0dTNpVWNjNHJveUw2QWF3b0VodEhLN3JiYkpWNnRpZ0swU191MmU0LS01bDJMdE9rcV9mQjdreEV2RDM0cXFmSVJVMVVuMVVoZGtSUl9yQWRWTWJk0gFWQVVfeXFMTXRpX21hblQ4MzRIUXBRQlJWdzlZVFFFRFh4amxUby1MYzJlUWRyZFdzcGR3azVPekpFMk5YNlJnV3IwSkpKX09yQWNFLTZobEF3SjFhQVE?oc=5) |
 
 ---
