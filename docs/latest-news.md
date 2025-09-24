@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 00:41:16（北京时间）**
+🕒 更新时间：**2025年09月25日 00:48:29（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Donald Trump Threatens to Sue ‘ABC Fake News’ Over Jimmy Kimmel’s Return - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOY0dzTmk4Q0lqMVRUQ2Q4ZG1WaHhuWVE4U0pmNW9ONkxDODNMSFNvbXVmZi1yeWowbUJYQjZ5MkozSjk3bGRCSWZqRGlJRkZ1NndKUWNjQWc4ODE0NGZCTG9iRVBiX0FuWjJtaDI2eXRETGpnOWZWXzB2aE5LaWFnb0JyNWt5YUdFYm03cnhjTktSZUtrc2F6WV9HYUdkc2hwbVVfSW00WUc?oc=5) |
 | Russia brushes off Trump's claim of 'paper tiger' fighting aimless war - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBjOWJldlUxMlBHMk9vdXh1aldvNmtKUmRFRHJMR2RfdkdjV1J5NDdldU92ZlQ0RThlRWFlOTNCY05WLUFlZnZYZ21LckxJNnRSMnljdzFYNGlGZ9IBX0FVX3lxTFAweE5KUFlZYTM2RmZMb3VVWmhzanZnVTNOdEhENWNqLXJHczBRaU5XMEhyWllnczRTTlFIZXRLVldJc09KeC1QSkhLenIyQWo2eUFJOGI4aEcweHJTYklz?oc=5) |
 | Scott Bessent says US in talks with Argentina over $20bn swap line - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFByWi1GZkdIQW1sMmo4RmtRajhJX2dNVFY4dUJ0M0xCVW85WXFUTTE2dTM3MlgyY1FvT3JrY1ByX0FydGRpYzF4T05EbUxMYXg2RFpiMlNnRFNyY3dZc1dhOGpGT3dOMXBjV3NiaDg1RG4?oc=5) |
-| Trump’s Tylenol announcement incurs furious backlash: ‘This is yet more utter rubbish’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOS1oxQ0lUVXg5QkRJbDhyekJ5Ym5VUmhSMkVfeE83anoyY3RHRXJ2WThSNGJ4WkJzUXR6TGczaWJ1TDJjY0Nta3paNTNudGNxNzlIcjcxa3dkSzRGRGV0aXlVbDJtdmxMTHRZREhRNms2dWFBa21oMTlTa3ZneHdBMlI3dU5mNlk3Qm9nbHRhX3Q?oc=5) |
+| First Thing: Trump uses UN speech to attack global body as feckless and pernicious - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNWlVvN0hNcjdBdjdKRmlqMElINTQ3SFpFRGVaOGxDd2Z3aFByZFlqQUUzdFBfMDJrV21jS0RaakR2MUR0WmtGQ3F6ZElfX1p2WlNvTnpfOTFvcG1ZUU1tSkhtQlVsc2tfVkZBeG8zUTZuZTFQdnlqVXZiZGZ4bVlwYThzcVg4b25HTUJ3dEt3OXA5alFGOVByaXhJcS1iZGVUeVdVbmkxdWwzbkpwN1lLVk0xMENqcENORnUtXzFYQmtleWdHNC1MdQ?oc=5) |
 | Ryan Routh found guilty of attempting to assassinate Trump in Florida - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQelJNQnBIT0FjR3FaRTA5TTZ0c1pfV2JPdV9nQ20weHRUaTdOTEhMdGN6NUF0SnkwTEQyaENScEg0NlBZQk55RDZnR3ZrSG5mYXExeExyeFBMSDBxVEx4VnQ1a3JndFFKSmxkYjQyVm1HRzMxTjBpSkVGNTJwaEhjSDJyNmVHMTJOQnRtcnB6Rkxva0VWM0lKZ1JOaDdxbVJ4UkVSTWMyU2tBbUxHdzVj0gG0AUFVX3lxTFBDTU1FZElDVm5ydUZabVpWVHZPMmtVMFhFdDZ2OWc1VldXUWJESlFuQ0JlQWVveEd5SUZzdmVXcUdXeFppdDR0U1dldkdONnJ5ZmpheVBGbGVSOWZrNFRBc0pQWlJHZWR0UlhpT1lWNlBDbklweGVXYXp2VDFNMVNqelR0RkdKWDNXWU1nLVZIVmhpdTd1YXFSY3FWd0ZwWUhHOXUwVDAyb0FwRzZEdlFsZ1ZVWA?oc=5) |
 | "Iryna's Law" passes in North Carolina after refugee's killing, a bill that could restart executions in state - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQeENaQWsyVGtESW1TQ1F5TjVkcU81TmNGNm9uLURENVp2TGwtOG55ZE1McWpRQk5qNTZSUGQ5ZlNWU2psOVRnVHdxb3g4ZWJrMmJPcGFObGZTek41RnlNbzFYZnROb2hBdUNQOEZ5V094UkcxLU5fNFdRRnBHRE5aS1BPa1FaMjBuVktrM3ZvZ9IBlAFBVV95cUxOUTVOM0hqOFU4bGhFUlB3ejZoNjJDblpLVjdHWVd1b09aOU1jZ2w1Q2FMRWJzZzJqdXpTeDdFVUVzNkdMTkZqMzJSaEZlV2xBUG5JVHZmQldfSWM2eFNreDRnMTU1WnV6N0o2SnZQU19UcG1KaEV6V1BPajFGMlM1N2dBVy0zbk5tdTNjSHR6N2ZLMDha?oc=5) |
-| Camp Mystic plans to reopen in Texas next summer, a year after floods killed 27 - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxNRVhMbHppdUFjN3EyZ2tZVjdQX1BTWll1STQ4VktRZWUtNkw5aXgtbnZnOGhjTUlUSGxGQlpwR1BDNkN1M0pIM3B4cEgyaTFQbG9FQ3lvSFZrZVRWd0NXWDgzQmZGY1JaT2U0YWpidEZ2c0FrQXMtdDRpcWVZczFBNWd5REtubEVZOGN1elVBTUlMNHNFSllIRmxySEltcm1fOTVIMjR1QmlWa1VqYmM0UzYzSEZTbE1EeTk1cWx5Sng?oc=5) |
 | ‘It's embarrassing’: Democrats seethe at Harris’ campaign book - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOVWpHOTVTbFhvWlJZZWFkekRGNzBkM3ltSjRnLVhaelNvNUF2eDctNGRQT1hWLU1EWkwyU0lrSjd1S3pPalh5aGNTQmZoQ0NGN1FRalNRdTBOalBvMjVhVmZLRlkxNVg4OWI0NWUyU3RpdXZ3NXZwcjlJME5nN3ZxQlVOYWNOaFVJcGdz?oc=5) |
+| Camp Mystic plans to reopen in Texas next summer, a year after floods killed 27 - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxNRVhMbHppdUFjN3EyZ2tZVjdQX1BTWll1STQ4VktRZWUtNkw5aXgtbnZnOGhjTUlUSGxGQlpwR1BDNkN1M0pIM3B4cEgyaTFQbG9FQ3lvSFZrZVRWd0NXWDgzQmZGY1JaT2U0YWpidEZ2c0FrQXMtdDRpcWVZczFBNWd5REtubEVZOGN1elVBTUlMNHNFSllIRmxySEltcm1fOTVIMjR1QmlWa1VqYmM0UzYzSEZTbE1EeTk1cWx5Sng?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
