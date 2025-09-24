@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 06:40:09（北京时间）**
+🕒 更新时间：**2025年09月25日 06:48:46（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Thune breaks with Trump admin over Tylenol, government role in free speech - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQck4wYmNUVmEwX1pYTWtRTV9wbnhySVhsMUhNd0FHM3dOZXd0Z2ZlNTZmLXNrTVpDTVd1aDI3WkJvdGNudU1VaVhRSUZSUnVqTkZFR0FMTHMtMExUY053ay1tbVVhZHJ5UWRCc28zYTJvVVJfeXFWZ3AtdEt5MlVqZnpDZXFsVmJlem1UZC1pd2pTWXNEMks4MkN0ZHRrRXNCMGYzWndVSGxkWXFmX0ZRS1NvR3RhaURnbnMtdDF4Rkk?oc=5) |
 | Will the Trump administration's $100,000 H-1B fee help Americans get jobs? - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNNm5XVEp3QzZYNnJ4Ui02Wk1PT2NPajk3aEZZeWVjekVaaFFiWWZXQ05DMGx0ZHVDYktGeU8yTWRmNDZHanJHMmNzOXc3WGdqVnloS01DWmFGckdocFVwZG4weF9wWDVPZFBaWEdFbGREWjlGdjdsRjU5M3FxNVg5cUNEb2FsV2k3OXBZ0gGQAUFVX3lxTE9icWNNd3UwZi1mTEFiYTJUcE42dHNLSHJJQnFpMng0Y1VMdWdvUnZVSWRGNW4xQ3VHTG1VcFNJR2NrYXhKVkNTX3dCUHkzQU9KbFJGSzI3U1hUUjdfSHpYelVkcWlFdmVwNlowcUF0eW9fRE9jaEZ0eHRyVFNJTXlhZ0NoQUowMGVhd1RwdGktVg?oc=5) |
 | The Trump administration is pushing courts to make more ‘new law’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPODVKT0xWcWZua2N6d25id1V4NmZhWFlGMnItcUVQUnBhTWM4VV9yM2dYVUFnUXhnRHpDWndHMmRFYzVNMXBmaHROb3NBc09ZY0FVa2tZV21uRnZJMENNU0g2ZjZ2bXAtT2JDV0FBNFhFcm0tNG05cHR4QU03bm5iX19Fc1YtRm5YazdaVkhSX3RlUQ?oc=5) |
+| A Federal Shutdown May Be Imminent. How Would It Affect the Economy? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPZmtST0gzZjN1NlFqaXRyQmI3eFVvQ0R2YVJHZkw5ZmVfVmV1SDQwWmw3UUhITEdmNzduZVI3amVsRzhrTkNUSWRfOWQzY3VNd0JMTHhrNzhsT2c0azN1Z2JacExvdVhGenZRUkhhQnczV01OQk9WSzFIY1p2ZWZIanJkMFVWemNtRHc?oc=5) |
 | With Humberto, an ‘Incredibly Complex’ Hurricane Forecast Is Unfolding - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQaUxnTVo5R1BsMFNoeEN6WkN4SEhjOU9SU0xPTGthRU45d05QU2hpMmJ1YV84TllFdjJHR3pmNDdGWVVYU1dlNWc4eF9YYkhqRnozX1EzaXlIblZ2UnA5R0RSek5kT0Y1QnBNMUFHNXpmLXhFckxCOWJXa2hRS2tkQ2hpd1pBQUdsaUE?oc=5) |
 | Will Trump Sue ABC Over Jimmy Kimmel? Why Claims About ‘Illegal Contributions’ Are False - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxON0E0YjZjb0FYckJOeWVRWVJxX20wdU5ESHBPaEFLNm9nUmMtSW9CSWg5WEctdUZ3dV92NTZnV0hIQmI1VFpYbDRvbzFCOHpJRUFTLUMwbDBOX25LbXdYZnhmZEJPU2d4M2oxV2lobmx6Tlk1YmQ3QU9xQVNORjg1cHpfS1M1a3pXbm5qeEEtVlJZNng2Rm5KckpjR1ZuaUl3QnNiZktWc0RPMHhpRVZvVDJYa3BMZ0NNWmFDckZHVmI0NzVhb3dTb0VmZWJVWVJQanNfYVQzaUY4OFdXcmxvRklyX0RhaDNwLVFmd2V2dy1rQQ?oc=5) |
-| Arizona Democrat’s Win Clinches Bid to Force Epstein Files Vote - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPTlU5eGdERVI5ZFJTUHpqbTBvd0FoOTNrZ3E4UU8xRzdueTVWMmlDaUQ0dEdkYjdWV2k0bko1VXNGSWN2dW5JR2tJRXdpWldJSFRIemdud25NdUdjWkpkWnlFQUxVNkRWcUdVd3JMdE5qTTBjNERBZjlNbzEwM1FVVG9pQldteFNMTEE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
