@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月24日 15:49:49（北京时间）**
+🕒 更新时间：**2025年09月24日 15:57:16（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump's stunning pivot on Ukraine thrills hawkish Republicans - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE4taUdCcy1Oa0NKV2wxc2ZkX2pSdjNlMFRScHNlMEE4MVpINGYzZWR0TGpFdS1FVUVGZkk5d1FtU2diVXhkTWpkNk83eDhCd1ZJeGQwV3NvWEwtTjc1YllnNDV1MFRkaTdUQklNeFFfcVIyaEl4RHl3ZA?oc=5) |
 | Trump slams Kimmel's return: "We're going to test ABC out on this" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9HVGd3QVpjWmRhWGpxYk5tWDFaWURvUGZ2dTZjX0Z1T2V2NW1UYU1HTHZ4YzdWN184NDBiNGZWem9CbFVwTUN5Vm9uSHdGWFVfenZXWFM0QTRNdEEyRFFWNlRJUUpOOUxONkM5bnM4SQ?oc=5) |
 | Ryan Routh found guilty of attempting to assassinate Trump in Florida - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQelJNQnBIT0FjR3FaRTA5TTZ0c1pfV2JPdV9nQ20weHRUaTdOTEhMdGN6NUF0SnkwTEQyaENScEg0NlBZQk55RDZnR3ZrSG5mYXExeExyeFBMSDBxVEx4VnQ1a3JndFFKSmxkYjQyVm1HRzMxTjBpSkVGNTJwaEhjSDJyNmVHMTJOQnRtcnB6Rkxva0VWM0lKZ1JOaDdxbVJ4UkVSTWMyU2tBbUxHdzVj0gG0AUFVX3lxTFBDTU1FZElDVm5ydUZabVpWVHZPMmtVMFhFdDZ2OWc1VldXUWJESlFuQ0JlQWVveEd5SUZzdmVXcUdXeFppdDR0U1dldkdONnJ5ZmpheVBGbGVSOWZrNFRBc0pQWlJHZWR0UlhpT1lWNlBDbklweGVXYXp2VDFNMVNqelR0RkdKWDNXWU1nLVZIVmhpdTd1YXFSY3FWd0ZwWUhHOXUwVDAyb0FwRzZEdlFsZ1ZVWA?oc=5) |
-| India Seeks Access for Workers in US Trade Talks After H-1B Blow - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQZGpTQXFSanBnN1Q3d3Eta0wtSExhemZCQWg0UkVSMmg0dFJTZ3NEMHBLQlhhcllVWXJzNExGMmR2WmI2TVZ4dmdGT2Q2VHU1SUVCcjBPcGFjRXcwd1RyUEs4REJVQmZIblNfdERJNUIzb1VKT2tCZW1SS2ZGb00xLWJKcmpIS21NN0F6RGg2cDRKek5uSDlBT044WUR2WmYtb3RlZFJLeUdQdVFqRXFiT1JrUU8?oc=5) |
+| Trump’s H-1B visa caper will backfire - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1VMlZ5c25ZLXUyaFVVazBCOWl4RHdQMmtsTktNV0R4bnpMNnB6NEhXdHh4U0hYTkRDY04yVE9wdWw3bU5BTklvNjVycmJSeU5wQldqRXV5VHpBZmdhaUhLekFaelRQOXFxNFpUUWRHT2Y?oc=5) |
 | Trump settles on downtown Miami for his presidential library - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNYlVHRTBMWnZPT0c3amRfTzBBTEhTaWdIZm93Rmp6MWpGVUVJYW5jRG8tRTVyanQxcEp2d3QtUWdxV3FxVGw2UV9yRnNnMnF3MHJaUnpHNWQwX0lUTy1hZWVhRXg0dTNpVWNjNHJveUw2QWF3b0VodEhLN3JiYkpWNnRpZ0swU191MmU0LS01bDJMdE9rcV9mQjdreEV2RDM0cXFmSVJVMVVuMVVoZGtSUl9yQWRWTWJk0gFWQVVfeXFMTXRpX21hblQ4MzRIUXBRQlJWdzlZVFFFRFh4amxUby1MYzJlUWRyZFdzcGR3azVPekpFMk5YNlJnV3IwSkpKX09yQWNFLTZobEF3SjFhQVE?oc=5) |
 | Arizona special House election could be a tipping point on releasing the Epstein files - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOMEJpWS16WVg3b1NrVnFEaTZobmptd3RsQkxMZlRxY0F4ZzQyWG9Rc2tOY3Nuc08zR2hXSlk0VU9Ea0lvV1ZhXzRkYndOdE0yb1ZtMWFtV0tvVFh3N3dfY3NxYUlxWWV6aTJFTW9IN2E0YkozZXA3MUw4YlVLSmNQb2J1aWpONm9XS2x3LTFKbTJTSUpVeERkaXl3LTFBeHhpeE9IbFgwM0pLc3o3cmhBdlRkUdIBuAFBVV95cUxNUW5mZ2ZEanVvYXJ6cWxqbGZ5enFPdWdvT0lNbjNFUTZUTUh3bEVGV1ZNeU0zT2tKNGZ1ZVByMkFxeDhWQ1JDRktJQlFKSWNwb1JRTmZwRERydFlWN0FVc0JiVTNuZ040cHhmVlZWWGJFZEl0NndMWDFOS0xaMVVVWjM4dEw5YVNLQTFUR0RSUThtVndvRFptck9oMUhRVWNhd0RnZ2ZyS3JNaFFkcEMxUzM3RmlhTWst?oc=5) |
-| Trump cancels meetings with Democrats, bringing shutdown closer - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNTGQtUkpaa0kwUG9uYk5icGd2elZJc0gxQU96TFRwMWJjNm5UM2xlSU9jMGl0MDlpOVFDdm9rdnpIWEduYWlQMHlPWFozNTZBS0h4V2Y1MzQ5X05VLUVaWXFZRnBQbWlld3ZuYTZSOTdzV1NjdURvaUFGSWo3WFI3UmI4NFJGX3NWVWpZQnZ3TUFSR2hDbkE?oc=5) |
+| Camp Mystic to Reopen After Texas Floods, Over Objections From Victims’ Parents - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9kYWl3QzRtWmtBbl9PQXUtS3Q4Vm1lRXRtNlRReXZIU3NwLVVJZTZsZUhscFFlSGtmd0NfYjFnUTF0VFhrRmxtRUVVZWNrVFNrMnEyQXI3MkM1cEwtV0pXR2ZaVy1KSm9JbTBNdA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
