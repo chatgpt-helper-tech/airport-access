@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 07:41:30（北京时间）**
+🕒 更新时间：**2025年09月25日 07:48:05（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | Government considers financial support for JLR suppliers | [阅读全文](https://www.bbc.com/news/articles/c62nv0xx32go?at_medium=RSS&at_campaign=rss) |
 | Labour MPs are privately urging me to challenge PM, says Burnham | [阅读全文](https://www.bbc.com/news/articles/c7v1m873mjyo?at_medium=RSS&at_campaign=rss) |
 | BBC and news agencies launch film calling on Israel to allow foreign journalists into Gaza | [阅读全文](https://www.bbc.com/news/articles/c8d7yrp80m8o?at_medium=RSS&at_campaign=rss) |
+| Labubu dolls made up 90% of fake toys seized at UK border | [阅读全文](https://www.bbc.com/news/articles/c8645pdq4e0o?at_medium=RSS&at_campaign=rss) |
 | High-speed rail plan for north of England delayed again | [阅读全文](https://www.bbc.com/news/articles/ckge94030g7o?at_medium=RSS&at_campaign=rss) |
-| Corbyn sorry for 'confusion' as new party membership launched | [阅读全文](https://www.bbc.com/news/articles/cm2zvy74e1eo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -29,9 +29,9 @@
 | Checking in on the ‘seven un-endable wars’ Trump did (not) end - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFBPLTdaMzc2b19WQWR5MUdLa0lTZHk4WlJVLVdtdE1WYm1QN3B6OVJQcFlaRkZGNW03eHYwWjFlTk43bXpMc1hCaWhxMTNvVGNweEJrMmRrV3Z4TS1Xa2ZIb1VwU1ZPdkpUNG9HelBtcUJJZm1LY25N?oc=5) |
 | Shutdown Crisis Tests Trump’s Go-It-Alone Approach to Democrats - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQVTl3LU5fN2dkRGJrTWdpM3I2SGZxa2RUaEFLSWV3RmFqUndwTXR3WV9UOXRTajNEaGtSUlg2dkRtVHM5NWFHUHJnUkYxYVZKWEFVNkZyUC0yWXFwYkpseHRTR2xpQ3Z5alFIT1RZbTk1N29CMmZMSDVhaXN4T3dUTDY4Qk9JQXZDYXlDRzBtQmU?oc=5) |
 | Russia will expand aggression beyond Ukraine if not stopped, Zelensky warns - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBqX2s4S3pnZkN6VzBPN2ZMN3JwdG1WNTFrbEtOWGJkeEVrN0RQbW1qRUZ6MUNDV3hyVTlEd19sczRzeVI2VTlsUUFuUElQVjl3ZVpaNkF2Um1PQQ?oc=5) |
-| Family of D.C. plane crash victim sues FAA, Army, American Airlines - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOOERvbjVOQnJPbkVPYURXaTlNOEt1UFBKRVhHclE4QmYzLXo1ODdvXzkyLXYtM0ppT1poc3pqeEZPcHNmODdNQ1JLSXg0dzdiYVZhNlRMN1lLa0JkeFltZTFhWERLeEl4bHZ1NUF4VDFRdW5IREN5cVd0MUJxRlBHcjVHWmVFVThRSkV2bUVLSGNzV2ct0gGaAUFVX3lxTFAzY1M3TkFvY19uV1puXzZ1RFh4ODZfZmdjNGdfdW5GbUJVeG1FZHRiYTN0anFiQTBBTG51bGRfTjNzcF9xUlB0aFNjWGhQb0MzNUVabnl1UGNkOTlkODBDZm14TEtvU01MOF9ZRnhCMjhJMXl0SlRQQnZIYnZsRTZjZmxXMF9uaUtGeWhSU3prb3dVUEg1Ti1CWHc?oc=5) |
+| Victim's widow files the first lawsuit after January's D.C.-area midair crash - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQdUkwRjdMelQycVk2ZzFyd2FKTk04QS1JRDJJdmFWT0F4WHFsUU9RaE5ZYW96QnFQU1pUdUN3QkFXNkI0Wm5vUEFyMV9aSG9uY0xCaDJYUTU3LXp4TjFHUVpPOEpXOFB0Z3UxNzVFazA0TjBsZTl2SFNOWUFJeVRUQzI3c3I5TFNvUEJBRUxFNFZwTlhFZWdKUkwtSUZIOVhyRW9oVHdSd1c1WkE?oc=5) |
 | The Trump administration is pushing courts to make more ‘new law’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPODVKT0xWcWZua2N6d25id1V4NmZhWFlGMnItcUVQUnBhTWM4VV9yM2dYVUFnUXhnRHpDWndHMmRFYzVNMXBmaHROb3NBc09ZY0FVa2tZV21uRnZJMENNU0g2ZjZ2bXAtT2JDV0FBNFhFcm0tNG05cHR4QU03bm5iX19Fc1YtRm5YazdaVkhSX3RlUQ?oc=5) |
-| Where H-1B visa holders are from, who hires them and what they earn - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPVV9idnhUWDVoTkg3eGRfeWpVWkJ5UllqcktrMGpWUGRCYkZYSnUxamV1SnZLbGNKUXFNTThLd0JENWhWT21iMndYNGZkNnZTSW5TYzNIM0ZIT2hiMVh2UWRRUk5YYzF4dzFZTXYtSFJaeUl6YlVNVHdkbEs1N0hHQUNkSTRLSElOdElseF9HaWJBakZCU0VkTTZvclJ2QkdjcENGVlhfOTl3eHRv?oc=5) |
+| Will the Trump administration's $100,000 H-1B fee help Americans get jobs? - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNNm5XVEp3QzZYNnJ4Ui02Wk1PT2NPajk3aEZZeWVjekVaaFFiWWZXQ05DMGx0ZHVDYktGeU8yTWRmNDZHanJHMmNzOXc3WGdqVnloS01DWmFGckdocFVwZG4weF9wWDVPZFBaWEdFbGREWjlGdjdsRjU5M3FxNVg5cUNEb2FsV2k3OXBZ0gGQAUFVX3lxTE9icWNNd3UwZi1mTEFiYTJUcE42dHNLSHJJQnFpMng0Y1VMdWdvUnZVSWRGNW4xQ3VHTG1VcFNJR2NrYXhKVkNTX3dCUHkzQU9KbFJGSzI3U1hUUjdfSHpYelVkcWlFdmVwNlowcUF0eW9fRE9jaEZ0eHRyVFNJTXlhZ0NoQUowMGVhd1RwdGktVg?oc=5) |
 | With Humberto, an ‘Incredibly Complex’ Hurricane Forecast Is Unfolding - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQaUxnTVo5R1BsMFNoeEN6WkN4SEhjOU9SU0xPTGthRU45d05QU2hpMmJ1YV84TllFdjJHR3pmNDdGWVVYU1dlNWc4eF9YYkhqRnozX1EzaXlIblZ2UnA5R0RSek5kT0Y1QnBNMUFHNXpmLXhFckxCOWJXa2hRS2tkQ2hpd1pBQUdsaUE?oc=5) |
 
 ---
