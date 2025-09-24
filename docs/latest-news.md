@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 04:40:29（北京时间）**
+🕒 更新时间：**2025年09月25日 04:48:09（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | 'Anti-ICE' message on ammunition at Dallas shooting that killed two immigration detainees - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBwXzVyczE5a2lCUHBQRkp2NlNRTkVVb1g4TzhCTlIyS1ZFWXJ4N1RNSVhGUlg2VE5ZdkdOUjladGUzYlo2ZTRsM3k5UGo4VGZuTVAyMEI4NGw3dw?oc=5) |
+| Russia will expand aggression beyond Ukraine if Putin is not stopped, Zelensky warns - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBqX2s4S3pnZkN6VzBPN2ZMN3JwdG1WNTFrbEtOWGJkeEVrN0RQbW1qRUZ6MUNDV3hyVTlEd19sczRzeVI2VTlsUUFuUElQVjl3ZVpaNkF2Um1PQdIBX0FVX3lxTE15UDBoU0gyNkt3eC1OUVRnZUNJNzBBMC1EV3pON2Z6ZUFwZTktNzRMOXlCOFNhX2ZZaFhScDNoUmZwdXpCVjlSdjhDOFM4bXpxQXNhTmx5MnQyeEhNVldV?oc=5) |
 | Shutdown Crisis Tests Trump’s Go-It-Alone Approach to Democrats - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQVTl3LU5fN2dkRGJrTWdpM3I2SGZxa2RUaEFLSWV3RmFqUndwTXR3WV9UOXRTajNEaGtSUlg2dkRtVHM5NWFHUHJnUkYxYVZKWEFVNkZyUC0yWXFwYkpseHRTR2xpQ3Z5alFIT1RZbTk1N29CMmZMSDVhaXN4T3dUTDY4Qk9JQXZDYXlDRzBtQmU?oc=5) |
 | Donald Trump Threatens to Sue ‘ABC Fake News’ Over Jimmy Kimmel’s Return - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOY0dzTmk4Q0lqMVRUQ2Q4ZG1WaHhuWVE4U0pmNW9ONkxDODNMSFNvbXVmZi1yeWowbUJYQjZ5MkozSjk3bGRCSWZqRGlJRkZ1NndKUWNjQWc4ODE0NGZCTG9iRVBiX0FuWjJtaDI2eXRETGpnOWZWXzB2aE5LaWFnb0JyNWt5YUdFYm03cnhjTktSZUtrc2F6WV9HYUdkc2hwbVVfSW00WUc?oc=5) |
-| Russia will expand aggression beyond Ukraine if Putin is not stopped, Zelensky warns - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBqX2s4S3pnZkN6VzBPN2ZMN3JwdG1WNTFrbEtOWGJkeEVrN0RQbW1qRUZ6MUNDV3hyVTlEd19sczRzeVI2VTlsUUFuUElQVjl3ZVpaNkF2Um1PQdIBX0FVX3lxTE15UDBoU0gyNkt3eC1OUVRnZUNJNzBBMC1EV3pON2Z6ZUFwZTktNzRMOXlCOFNhX2ZZaFhScDNoUmZwdXpCVjlSdjhDOFM4bXpxQXNhTmx5MnQyeEhNVldV?oc=5) |
 | Trump's UN speech no laughing matter as body language shows - DW | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPdGZmd2k4cTZLblh0ZVJLb1JFcW10SmNjV1VURWdNcUxHQnItT1FEek1tR1hPdmxDZW14VmdvS0tlclFJTnlJQTJVZGZRTC1RSWN3ZWp2MjJCeFpPQWdST3ZZc2VJZlE5QUlXWmVvSG12ZjFyY0VSbWdHS3hGU25hQTA1OHFnQ2NRZDB5eGozSXMtdW5aWnfSAZYBQVVfeXFMUHQ2UnJadlI0dmlTWGFweFo4QmRiMDJjUWhXazIzWnRpUmMySzJ2SDZEa09zUVdaUE1VV3VvNzBwNDYtODFsX0xSSXJoeEY3dldTMFZBQjI1UmFCZ1lhT2I2b2Z2dERqam05S05PNTF1MFZ0WlJxZUo3dkVFQUNOWGJhMWNYNDJUc1Q3WDlxb1VzX2dZMWlB?oc=5) |
 | Will the Trump administration's $100,000 H-1B fee help Americans get jobs? - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNNm5XVEp3QzZYNnJ4Ui02Wk1PT2NPajk3aEZZeWVjekVaaFFiWWZXQ05DMGx0ZHVDYktGeU8yTWRmNDZHanJHMmNzOXc3WGdqVnloS01DWmFGckdocFVwZG4weF9wWDVPZFBaWEdFbGREWjlGdjdsRjU5M3FxNVg5cUNEb2FsV2k3OXBZ0gGQAUFVX3lxTE9icWNNd3UwZi1mTEFiYTJUcE42dHNLSHJJQnFpMng0Y1VMdWdvUnZVSWRGNW4xQ3VHTG1VcFNJR2NrYXhKVkNTX3dCUHkzQU9KbFJGSzI3U1hUUjdfSHpYelVkcWlFdmVwNlowcUF0eW9fRE9jaEZ0eHRyVFNJTXlhZ0NoQUowMGVhd1RwdGktVg?oc=5) |
 | Russia brushes off Trump's claim of 'paper tiger' fighting aimless war - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBjOWJldlUxMlBHMk9vdXh1aldvNmtKUmRFRHJMR2RfdkdjV1J5NDdldU92ZlQ0RThlRWFlOTNCY05WLUFlZnZYZ21LckxJNnRSMnljdzFYNGlGZ9IBX0FVX3lxTFAweE5KUFlZYTM2RmZMb3VVWmhzanZnVTNOdEhENWNqLXJHczBRaU5XMEhyWllnczRTTlFIZXRLVldJc09KeC1QSkhLenIyQWo2eUFJOGI4aEcweHJTYklz?oc=5) |
