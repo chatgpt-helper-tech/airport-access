@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月24日 11:00:10（北京时间）**
+🕒 更新时间：**2025年09月24日 11:09:03（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Trump cancels White House meeting with Schumer and Jeffries despite risk of a government shutdown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOSVFrQVU4aU1RY3FWT3pDYlJfTU9XWnJrTmxvQVE1bzJFczZCWjgwYmxqbTVmbnhldW9USnNhSnFVemxSM2VDYzBXcWxMRmlFRW1uVF9xWUVhalpxR19PczJoZjdraThucFFIbklMaUpBZENQMFhZZmItbUNlVVBlNjlmOGR5MG9PUG5GeWUxUndzWFNkdVl1WXN5LTBUb29YS3RZd1RtZmd1eXBTaVZN?oc=5) |
 | Arizona special House election could be a tipping point on releasing the Epstein files - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOMEJpWS16WVg3b1NrVnFEaTZobmptd3RsQkxMZlRxY0F4ZzQyWG9Rc2tOY3Nuc08zR2hXSlk0VU9Ea0lvV1ZhXzRkYndOdE0yb1ZtMWFtV0tvVFh3N3dfY3NxYUlxWWV6aTJFTW9IN2E0YkozZXA3MUw4YlVLSmNQb2J1aWpONm9XS2x3LTFKbTJTSUpVeERkaXl3LTFBeHhpeE9IbFgwM0pLc3o3cmhBdlRkUdIBuAFBVV95cUxNUW5mZ2ZEanVvYXJ6cWxqbGZ5enFPdWdvT0lNbjNFUTZUTUh3bEVGV1ZNeU0zT2tKNGZ1ZVByMkFxeDhWQ1JDRktJQlFKSWNwb1JRTmZwRERydFlWN0FVc0JiVTNuZ040cHhmVlZWWGJFZEl0NndMWDFOS0xaMVVVWjM4dEw5YVNLQTFUR0RSUThtVndvRFptck9oMUhRVWNhd0RnZ2ZyS3JNaFFkcEMxUzM3RmlhTWst?oc=5) |
 | H-1B visa changes may give Canada an opportunity. Will it seize it? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE8xUU9TaFpKRFhodWtNME5XdjRYWjZSMHhuOUdNSkQ0YjY3b2xQcTlDNmtuajJ6RVdpSHZyVUE4RDJNS2hwZWdwYlQtTm9mTWcycFpiNk51bnl6UdIBX0FVX3lxTFBZWWVVUDVEQzNnc1RJaTcxU0ZHNjVueF94bWVad1hub1RoWlNIRGZjWnZ4bUhEOXdodGNDb2Zwd2NJZnU1TkwzbzNPdDdRbjg4WjNKX1llbGNqR25mSDVz?oc=5) |
-| Trump Says NATO Should Down Russian Jets Breaching Airspace - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPTUlaR2pqMkw2WGkxZEJGSmptSGl3RDRNVjYyM05uLXdKbk1BRlhhR0JsUnFFeWRudUV5TzZJcm51MElZOHdwQ2haeE4zQ3NyaU5mWGZ2ZzdaTmNDSDNZTkVocFpjWW9RZzV2bWRXdFhCV1VtRUNTQzRsbnhNVEJWQ0pPVXpWNmkycHdKNTFaNGhqQTJrU2J5RU05OXFWcWh1dWxQbjUzRDBlSldmUFQ2d2JRSmc?oc=5) |
 | These are the best colleges in Massachusetts, according to U.S. News - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5yZ3d4c3Z4OU1MZk5mX2dOVFR2M0pBZ1AzdjVFZjB1M3U2R0xXM0RNX3Nmay1CVDVBa0ZFQVpBNm01NVFFVFBROV9tUS1CNDVSLUJoQ3BfOG5fd2tEb2M2Szk2dlRmS2R0T29wVldFVWY?oc=5) |
+| Trump says NATO countries should shoot down Russian aircraft that violate their airspace - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPaXpFUGRJejZVbkllMFlKY2taR0xsck14RjhlU0RhcGlyWkRxTWZYemQ0V3BxS2VRbG41TVNKaTdyRzVDU3NSeExxVFpNSFpHWERYOWNFWXlDak45S1Z0MjZFcVZUZlNxam5wR0JpV0x3Q3pwWjhJZkZhMHcxM3l5WlJkd2VrNTFwR3p0bWNmbHBCN243elhUMDhSQXJvZDQ3SjVYWXVOeVF1U0U5UHQ0OdIBtgFBVV95cUxPXzdfQXEzeWk4eWpxX2VxVzNGV2NKOHNpOUNOTl9oaUpvdC1KMlBybTBjc0JseWdBSHhPR05UXzZ1WHRUWGU1UEp0M3F3SG5PVi1rZzVPX2RQcElwQ19meGp4QmNMakc4WUhUQ0laRjh6Snk2Z3RMbE1CT2Z5SFJXZG5ZN2x2b1ZuREVLRHNZSTNmYVlUUXlaQjRDeWY2ajhSdXVTdGQwNTNXZHV3WndWVXRtR1JYdw?oc=5) |
 | Tom Tiffany to run for governor of Wisconsin - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOWnVlUXZJeGRlejc2bG5wWE13aUp6NkVvU3d1T05lODJpeWZSbnp4Z05DMHhleTY0NlRpaEhkNjRSeC1URVRXZl92REw2eTYtWWRhMU5zVk13Y0FRamZUaWlFajRucFJqaVNhY3BDVDlXUW1KVE5qVG5oMENQSE1lNVRMQWk1aTA?oc=5) |
 
 ---
