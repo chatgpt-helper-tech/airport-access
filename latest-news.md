@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月24日 07:56:35（北京时间）**
+🕒 更新时间：**2025年09月24日 08:00:44（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump cancels meeting with Schumer and Jeffries - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNSEJmZ0pGWDZEVzcyX2J2QTdyQUUzR3E4QUphd2ttdXRXaUlxRm9DcVEweWNSc0ZqVk1YalFZelRTd0MxSElVOUotT1N3MXdTMGZORjlUY2pKWUwwS3lGZHNJY1c5NkJqN0EtemJ6ZFNFUFdoblFnR2tqbVB4T1dKZW5sdFF5eUFydVA5aVNHUmlfQQ?oc=5) |
 | Trump, RFK Jr. distort facts on autism, Tylenol and vaccines, scientists say: "Sick to my stomach" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOdjFpMF9hXzVmUHVidTF0TFBkNV9uZkpkcEVXekl0enBoTE1YQnZIYzJWQUtDa3FTSXdCbVNobUJxOXVnMVNraFYzMy0taFBvc0VNLTdxcGRNVU5TQ2NnaXB5dmhHTC0xZGd0dmpFX2VuRThyU3NLaUpKVW1sNmNEc2QwZEVncDTSAYwBQVVfeXFMUFJTbjZwYzgybzJlTkNXRFI0QnczXzFGeVh0SVl6WWFkVFpVZUxRZ1RsRWp2ZV9NLVBWdVpSRzJYQ3lMSnU1c3J4b1JtWlMweEZJZ0pzWTBkbVdES0hVeDdEc2ZPWnl6cXNiZkd0MC1SRlVPTDJfRU82RW5JZEppTEkzaFZKRVVUMlNkVlY?oc=5) |
 | Trump administration proposes overhauling H-1B visa process for higher-paid workers - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNeUlCME5uNkVSS1ZiaE9wN3pLNGMxS0F4NXRaU2UyNnEzT0d4MGVyc2owbVAtUzJ1NUdIb0M2YkkxaDlPVWU4RldnRGlpd3ZvX280V3I5U0lyMjhvRTgyQWlfaHlyLWxMQnlMVXhMZ1hXUG1ZYVdaT0xGaUJoNkZSdWVsV0h0eGFXUHJIejZ0b2NXRmdhLWc2LWxrWTBBNTAyZ1R2VFFjRVNfNk1YM2xBTzF6NNIBVkFVX3lxTFBzdUVnby1HLUZNY0E5c2FFU3JHSzMtaGFMMi00WEctdmk2NUdISGJIVFgzY0pjcGE4WGVMbTg1V2pkQjlvMjRUUXExRUs3SFQyX2F2VzFB?oc=5) |
+| Zelenskyy tells UN Putin is ‘trying everything’ to prolong Ukraine war; Trump says Nato can shoot down Russian aircraft – live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPYmxJeXZiaGR0OW1MMTUzblBZODkxa3l3bk02eFlrd3VyYWtmM2hBWjZYdGdIc3FxWnlFNG11RFpCRmdvbXZDX2hBTzF0d0VSNVBTUlJHZ2I0QnE3MFVFdDhGeURqR3FVS2FZQUZEOEpEQmtHMXJNMlNYWTlfVmJGaEhLTXBpVFdVVE0xUVlENWZ1TURaX0VpWi1SSFc4ZURPODZlTi1OUUhESUlFc3l4d3ZKT3V3Zw?oc=5) |
 | How a SIM farm like the one found near the UN threatens telecom networks - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPZlJsTW52OFVScUdISVN5N2VQTlFHaVNUVUhPVlZnSHRBd3dGY1VSZlc2VXBLa0xKbWo3a2hDMXJGbHlKdkhtSDJ4ekpUdHkxczRHdWVCZmJ5SkVUbkE4QlRRZDlJTml4Zm5tSEVPM2VhMzgtVkQzTHcyZGtiOHBsQmpvUlRHbDAxSG5kclctSTBxdERI?oc=5) |
 | Tom Tiffany to run for governor of Wisconsin - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOWnVlUXZJeGRlejc2bG5wWE13aUp6NkVvU3d1T05lODJpeWZSbnp4Z05DMHhleTY0NlRpaEhkNjRSeC1URVRXZl92REw2eTYtWWRhMU5zVk13Y0FRamZUaWlFajRucFJqaVNhY3BDVDlXUW1KVE5qVG5oMENQSE1lNVRMQWk1aTA?oc=5) |
 | Harris admits she was 'reckless' in not challenging Biden's decision to run for reelection - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNU2tVaTg5Z3BVNWhwN3d1MVBzNGxvX1ptOXBWVUlBUTRtWU9XeUVkWDc2c1dDWXhRR3hEVXZZckY0U2lLTWp4X29ReE1zeUZxRE5WTHN5aW5IcE80UkUwZWRYNnpqRVkzcS01b0FpUlBmLUhpTTNlamZ4azdBblpJMm4xT19saE9veEhZT0tGdE14N0J4TEppZ25yeGhfR1BRUjU4dHdFUG1XbmlvMlZxRHhaM0FvWWfSAbwBQVVfeXFMTzMxMVNKTjBKTEFRc3lJeXhpdnI3eTlKS2x3cWd3UDNlQTdKY2dxXzV5M3VBc0YxdnJlZll1MzEwcW10QzNyUnJwYm45bzBmdXVmbUYxbnNEc3h6c0xuczYxWmlaTlIxUDhHTlFZUFd3Qkl4T05zd3gybGlyYmd5TlBzVnBrdGN1NXlQSU45ZnBXMnM0UEdJNV9XazBqVkpwbUZNT2NpZXlpYkIxazhUeWpBVnVUQnlvOUs1QU0?oc=5) |
-| Zelenskyy tells UN Putin is ‘trying everything’ to prolong Ukraine war; Trump says Nato can shoot down Russian aircraft – live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPYmxJeXZiaGR0OW1MMTUzblBZODkxa3l3bk02eFlrd3VyYWtmM2hBWjZYdGdIc3FxWnlFNG11RFpCRmdvbXZDX2hBTzF0d0VSNVBTUlJHZ2I0QnE3MFVFdDhGeURqR3FVS2FZQUZEOEpEQmtHMXJNMlNYWTlfVmJGaEhLTXBpVFdVVE0xUVlENWZ1TURaX0VpWi1SSFc4ZURPODZlTi1OUUhESUlFc3l4d3ZKT3V3Zw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
