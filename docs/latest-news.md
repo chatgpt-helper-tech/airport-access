@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月24日 23:57:38（北京时间）**
+🕒 更新时间：**2025年09月25日 00:01:52（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | 3 detainees shot, some fatally, at Dallas ICE facility: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNbHNXM1pROWpEOW81bnpuUlR3eWVhN2tMWjhRVGNvSnE1T194X2NnYmwteC1lN2kzX0RwcjhUam5wdm1tZDRKZTJ3ODhOdENoSXNvN3AxT3YyYXJRM0cwS3pFLWt4LXBaZWIzc1hDWnBQSmQ2ajVLaXBnajlNYW5ObjRjSFVRd29lOFRqcS03ZUJYTy1kUXJCZy04UmXSAaIBQVVfeXFMUDNFNzRwdlVBTndVM3EyQThaS2wzUjYxN3o1TERWaUdqdW96NVhaT3BIRDFsbE5SZmNIQ0NnMHB4YVY1a0Jhck9JYzRfOWtYdEtDNG85aXdrN0UwQjZhcXctN3kySGszM2hvN2ZVMFQ2VUxQOThZdkhPaHFGNVZpVnljZEdGcnZONktLTWd0aUEtR0lCM1ZxN1NnSDIwcDRzMXFB?oc=5) |
 | This industry will be hardest hit by Trump’s new $100K visa fee. They’re anxious. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPX3pROXJyaU1ocEFGSEp5d1QwM2p3bzJCeWZHSWhGYVpEMHFfeF85XzVMd2lNaWNMajZPdkZDSF9UY1FtLWNyOTVUMUlXcmJDXzN5aUJybFZDYnJ4azN6VFJjWU5Yb0VjZXZHLThROUJEY1l6VUhteFplRTV1anR3YWVPUkhnU245SzRRVzdiSi1pWThyQW1TMw?oc=5) |
-| Trump slams Kimmel's return: "We're going to test ABC out on this" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9HVGd3QVpjWmRhWGpxYk5tWDFaWURvUGZ2dTZjX0Z1T2V2NW1UYU1HTHZ4YzdWN184NDBiNGZWem9CbFVwTUN5Vm9uSHdGWFVfenZXWFM0QTRNdEEyRFFWNlRJUUpOOUxONkM5bnM4SQ?oc=5) |
+| Donald Trump Threatens to Sue ‘ABC Fake News’ Over Jimmy Kimmel’s Return - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOY0dzTmk4Q0lqMVRUQ2Q4ZG1WaHhuWVE4U0pmNW9ONkxDODNMSFNvbXVmZi1yeWowbUJYQjZ5MkozSjk3bGRCSWZqRGlJRkZ1NndKUWNjQWc4ODE0NGZCTG9iRVBiX0FuWjJtaDI2eXRETGpnOWZWXzB2aE5LaWFnb0JyNWt5YUdFYm03cnhjTktSZUtrc2F6WV9HYUdkc2hwbVVfSW00WUc?oc=5) |
 | Russia brushes off Trump's claim of 'paper tiger' fighting aimless war - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBjOWJldlUxMlBHMk9vdXh1aldvNmtKUmRFRHJMR2RfdkdjV1J5NDdldU92ZlQ0RThlRWFlOTNCY05WLUFlZnZYZ21LckxJNnRSMnljdzFYNGlGZ9IBX0FVX3lxTFAweE5KUFlZYTM2RmZMb3VVWmhzanZnVTNOdEhENWNqLXJHczBRaU5XMEhyWllnczRTTlFIZXRLVldJc09KeC1QSkhLenIyQWo2eUFJOGI4aEcweHJTYklz?oc=5) |
 | Trump uses UN speech to attack global body as feckless and pernicious ｜ First Thing - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNWlVvN0hNcjdBdjdKRmlqMElINTQ3SFpFRGVaOGxDd2Z3aFByZFlqQUUzdFBfMDJrV21jS0RaakR2MUR0WmtGQ3F6ZElfX1p2WlNvTnpfOTFvcG1ZUU1tSkhtQlVsc2tfVkZBeG8zUTZuZTFQdnlqVXZiZGZ4bVlwYThzcVg4b25HTUJ3dEt3OXA5alFGOVByaXhJcS1iZGVUeVdVbmkxdWwzbkpwN1lLVk0xMENqcENORnUtXzFYQmtleWdHNC1MdQ?oc=5) |
 | North Texas parents respond to FDA warning on Tylenol and autism - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPVVhQZUxIby13UGkwYkZJeTFKZmZxdEx0dVhTMDBvc1B0NlZlcEhEM1RMcjcwR0hjVkoxXzZ3NDd3YlJDZk1kejFxUmZ1T0RRSFI3M05YcU91QWVBZVc1LUNFU1A4Sk9FdVVWVkoxZk54bndSeS1LeV9obVUwZ0NNVG1ydWItQWdaTkQ0SXFfMXR6OGNGYWJhWE82OG5uU0tZd2c?oc=5) |

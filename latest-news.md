@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月24日 23:57:38（北京时间）**
+🕒 更新时间：**2025年09月25日 00:01:52（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | North Texas parents respond to FDA warning on Tylenol and autism - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPVVhQZUxIby13UGkwYkZJeTFKZmZxdEx0dVhTMDBvc1B0NlZlcEhEM1RMcjcwR0hjVkoxXzZ3NDd3YlJDZk1kejFxUmZ1T0RRSFI3M05YcU91QWVBZVc1LUNFU1A4Sk9FdVVWVkoxZk54bndSeS1LeV9obVUwZ0NNVG1ydWItQWdaTkQ0SXFfMXR6OGNGYWJhWE82OG5uU0tZd2c?oc=5) |
 | Ryan Routh found guilty of attempting to assassinate Trump in Florida - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQelJNQnBIT0FjR3FaRTA5TTZ0c1pfV2JPdV9nQ20weHRUaTdOTEhMdGN6NUF0SnkwTEQyaENScEg0NlBZQk55RDZnR3ZrSG5mYXExeExyeFBMSDBxVEx4VnQ1a3JndFFKSmxkYjQyVm1HRzMxTjBpSkVGNTJwaEhjSDJyNmVHMTJOQnRtcnB6Rkxva0VWM0lKZ1JOaDdxbVJ4UkVSTWMyU2tBbUxHdzVj0gG0AUFVX3lxTFBDTU1FZElDVm5ydUZabVpWVHZPMmtVMFhFdDZ2OWc1VldXUWJESlFuQ0JlQWVveEd5SUZzdmVXcUdXeFppdDR0U1dldkdONnJ5ZmpheVBGbGVSOWZrNFRBc0pQWlJHZWR0UlhpT1lWNlBDbklweGVXYXp2VDFNMVNqelR0RkdKWDNXWU1nLVZIVmhpdTd1YXFSY3FWd0ZwWUhHOXUwVDAyb0FwRzZEdlFsZ1ZVWA?oc=5) |
 | Woman's remains exhumed in Oregon's oldest unidentified person case - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNd2dQY2xmUzByU2E4OXVZMlhhVk5MaEtZbWpISklIUHd6REFxaU9UVlR4YzNwdnFGWURSUUx1T3MyMmNOcWZRTF9SQ0pGX2dEMEprTmlnd1EzOE5ROU81MDY2cks0MmdTVWZtaUhOcjBsOTBfQkRLUXcxV3l5UWNNQ1czaTBzN2t4RmRSbVRfT3lsMFpGcGduaHV5Smdmb0luYlHSAacBQVVfeXFMTklpUWdpY3JzU1h0dFJtc1NCNmV6QXNMVXk1UUtHR2RudjQ1aE1tQ1EzZkVlT3o2Zl9vTnlBRzZlQmljbjZNNVdmQnVRVkh5bHBneGNQUHJTUk5PVkxycEg2UEZWMEVmTldlRFVGdXdNeVZEOW9vVHFmZ0dxeDdYS3J0eGJvNWVFMmJnTWhpa2drYmx4NENReUpLSXlpR1Y5V3hLRTFaM0U?oc=5) |
+| Millions of Americans are facing food stamp cuts as grocery costs continue to rise - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOMVg5SmpzdWZNS2VIckQ5ZGNIaXNDQmpTc1BGaXdIQkxFOF9lSkdpVGluYXh5VEpiOUdfZHhSd09UQjlOS2NsbmlzUVpHY1JaR3MtbnhSakpTb0czVXg3OXR6Qm1QLXl5c19pNUV4X2Fyc3pTNkUwZXloQmJTOWNGWXUtM2toYm8tM3FuSmoxcW4tYlnSAZgBQVVfeXFMTlJOVkVSWHNvZ1gyUUV6NEtLRVprLUplX2JSMUFld3hldXA1QkduN0U4Qmtzd3hiYzFiaXBBM2x2Y3daUWpBbGlPSUZhSWJ0WG9NM2lHcm00NzlRU0V1WXhrR2k0M05YZTBuODFUU001X19DdS1XcHVGdkJsRjZBX0xiaU5fVzA4dGFtdjhYMThFWHg0ekk5RzQ?oc=5) |
 | Camp Mystic plans to reopen in Texas next summer, a year after floods killed 27 - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxNRVhMbHppdUFjN3EyZ2tZVjdQX1BTWll1STQ4VktRZWUtNkw5aXgtbnZnOGhjTUlUSGxGQlpwR1BDNkN1M0pIM3B4cEgyaTFQbG9FQ3lvSFZrZVRWd0NXWDgzQmZGY1JaT2U0YWpidEZ2c0FrQXMtdDRpcWVZczFBNWd5REtubEVZOGN1elVBTUlMNHNFSllIRmxySEltcm1fOTVIMjR1QmlWa1VqYmM0UzYzSEZTbE1EeTk1cWx5Sng?oc=5) |
-| ‘It's embarrassing’: Democrats seethe at Harris’ campaign book - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOVWpHOTVTbFhvWlJZZWFkekRGNzBkM3ltSjRnLVhaelNvNUF2eDctNGRQT1hWLU1EWkwyU0lrSjd1S3pPalh5aGNTQmZoQ0NGN1FRalNRdTBOalBvMjVhVmZLRlkxNVg4OWI0NWUyU3RpdXZ3NXZwcjlJME5nN3ZxQlVOYWNOaFVJcGdz?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
