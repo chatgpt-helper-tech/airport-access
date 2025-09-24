@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月24日 18:49:52（北京时间）**
+🕒 更新时间：**2025年09月24日 18:57:43（北京时间）**
 
 ---
 
@@ -10,13 +10,13 @@
 |--------|-------------|
 | Urgent review ordered into asylum seeker taxi costs after BBC investigation | [阅读全文](https://www.bbc.com/news/articles/cx2j3regpdno?at_medium=RSS&at_campaign=rss) |
 | Jimmy Kimmel pulls no punches in TV return as he ramps up battle with Trump | [阅读全文](https://www.bbc.com/news/articles/c0r09qdnd4yo?at_medium=RSS&at_campaign=rss) |
-| Kyiv can win all of Ukraine back from Russia, Trump says | [阅读全文](https://www.bbc.com/news/articles/c07vm35rryeo?at_medium=RSS&at_campaign=rss) |
+| Man arrested in connection with Heathrow cyber-attack | [阅读全文](https://www.bbc.com/news/articles/c62ldxyj431o?at_medium=RSS&at_campaign=rss) |
 | I can't afford to move out of my parents' house due to rising living costs | [阅读全文](https://www.bbc.com/news/articles/cq65m95gqdjo?at_medium=RSS&at_campaign=rss) |
 | Gaza City medics describe hospital overwhelmed by casualties from Israeli strikes | [阅读全文](https://www.bbc.com/news/articles/cgknzk46kz6o?at_medium=RSS&at_campaign=rss) |
 | Killed seeking food - Jeremy Bowen on Abdullah's shooting and Gaza's lethal aid system | [阅读全文](https://www.bbc.com/news/articles/c75qr0gk0yqo?at_medium=RSS&at_campaign=rss) |
 | Police used journalists' phone data to detect leaks by staff, report says | [阅读全文](https://www.bbc.com/news/articles/c62z5k9kw30o?at_medium=RSS&at_campaign=rss) |
 | Lulu: Telling the world I'm an alcoholic was liberating | [阅读全文](https://www.bbc.com/news/articles/c4g7p8l8214o?at_medium=RSS&at_campaign=rss) |
-| Italian actress and star of The Pink Panther Claudia Cardinale dies aged 87 | [阅读全文](https://www.bbc.com/news/articles/c237elg3rr3o?at_medium=RSS&at_campaign=rss) |
+| Kyiv can win all of Ukraine back from Russia, Trump says | [阅读全文](https://www.bbc.com/news/articles/c07vm35rryeo?at_medium=RSS&at_campaign=rss) |
 | YouTube content creators contributed £2.2bn to UK economy in 2024 | [阅读全文](https://www.bbc.com/news/articles/c0knpm6v36go?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -32,7 +32,7 @@
 | Jury convicts Ryan Routh of trying to assassinate Trump at his Florida golf course - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPeUFNaXhPWFgtX19oMWs4dVk2RExoQzc4eDB2OUZLQUptNlU2ZWtlaE51V2FlQ0tUQ2E2YzFVMEhCaFdxX2ZyakVIQ0dKb2N5TGloWW50c3ZFbjd0a0wzdGVXS3h6b21QN0VvSk1JVWZLZVhTOC1xMUc2OFZ6OUxyS0tZeERsdGJoOGhuczIycW9ZbkpxNmlPMFFLNzJhM1pzd1RyZlJoOWlLb2RIUGdHaDd1c1NvUGNueVE?oc=5) |
 | Democrats sour further on Harris amid book tour - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOVWpHOTVTbFhvWlJZZWFkekRGNzBkM3ltSjRnLVhaelNvNUF2eDctNGRQT1hWLU1EWkwyU0lrSjd1S3pPalh5aGNTQmZoQ0NGN1FRalNRdTBOalBvMjVhVmZLRlkxNVg4OWI0NWUyU3RpdXZ3NXZwcjlJME5nN3ZxQlVOYWNOaFVJcGdz?oc=5) |
 | After mechanical challenges, UN says Trump's team to blame for nonworking escalator and teleprompter - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNUkFfSWpxSTEwN0pXdnN2bkdJWUxVNjgwTDRURHpZNENJcXFwMi1Ib29YV0lTYnZGVjhiTG5wVVdZUGlaTHgxWG0yZDVuUEU0RzQ5ZUltazZWXy1BSkdma1JhQzhvVzA5UFZRQ2RpQ0JRY1pTdzNpdlJDeGswcVU1MWZBRWdwQWM5XzVfVS1SR0RvTkFTNV8yR3pLVjJ6WGpKT29lQ0ZaY0tJNzU0MDlhM3Rn0gG3AUFVX3lxTFBrU3Y4TExPZWN3OUpQRWxYc0liVFFtOEhHdnl5cWwzbERJcF84WnhHVGUzdlFDS09RYmxUSVFoelN0cnZKTnFSYS1Mck0tcW9vM1pjRDdTZ29CRUVmdXA2bV85V0c2ZGM0NTlIZ3p5XzZ0ajlMcW1BSUIyX0NuZG03dWtiZUdFMm5lRlRkYVlHLTluQ3paYnJ2dzNoUlEzOW1yUkJQdmczbjJXcXVKVllqRFZCazB4OA?oc=5) |
-| Trump, Tylenol and Autism - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNQmM5RDFCalFUYU96Z0pBbFdEanp0dk1uNVU0Sms0Rk9EYzZyV2lzU1N4eENrNndNYkxBc3VNRFRGdUNVZXBzZjdSOFdGUGRkbEpvc2NQVXE0U0lXZlRoM1NSRlBSdlQ3X0g3MF9aMmZNbGJ3LVBQaHg0bHp0ZlJVSUJIbUNkZw?oc=5) |
+| Democrats further narrow GOP’s House majority with Arizona special election win - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQelZJakw3RnRzSlVWRGE3cFpkWl9ZTWdrNHBwemoxWC1yR1FKaFRRY0N5eFpFZW5EM3BwRTdhN2wwTDRrWXN3SXRnQTllWTdkYl9mX0xWcDBkM3hpZEdoUGtOTmZ4YWthX2RBZjRpbDNrWVE3WUlIanhVTk1ycTlKWFdEeVY3OUpjc3RQb1JZVE8xWERySEkxYXY0LU50aTNDQkdEUmJYSU5TQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
