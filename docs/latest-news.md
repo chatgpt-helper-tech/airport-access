@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月24日 12:01:30（北京时间）**
+🕒 更新时间：**2025年09月24日 12:08:09（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump at United Nations: US funding cuts, Gaza war and global showdowns - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPQjJMcWtPZFNHV0R6NTZtTHh0T0tKNzZITlJVZk5BWHd5VjNMY25GTGdhdlkyOXJiRm92dm01REszYlJDMXVhUmRVY2lUOWg2aFlyZ042Zl9MeEtDWWxzdEI1Qzk2T1JYOUJ5aTJ2VG1HWlNHcGtKOWVjU2hJNW85ekVDelpGZFZqblExcTRJMNIBlAFBVV95cUxOaFlxbWNGdWlXMXlEU1I1Umh4ZUV3WU94QVR1SjRvRmJMUW5vdmNJR2trRkt5dkZOODNqY2VSQjZENjNPcFlJN0ltTlFvQjRQcHNmT1hBZ1dfU2pMTnhaZ19QSl9JUlRfQUhubUdYNjdPWWY4Y3dtaTNJY0JVbGJ2bE41bkRtdDRfcDNSTExoYnpaQmd1?oc=5) |
+| Trump criticizes European allies in U.N. speech: "Your countries are going to hell" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQaklBM2NSTFhDS2xZeWk0QVkxU1VJRGxLNVh2NU1tM2tOTTBnb1dpYk1EWFV3SkhNb19WZWllNWIweGJwTTJseTBHQUlVLVlKYXpUcEZKM20yM3BCTVRfNXphdVcyc3pUdkxZMVY3d1FlMHpleHpyVEFLWjFpY2pyNlpIZ1NkZkIxRERTZGhQdFjSAZYBQVVfeXFMTUkydXp1Xy1sM2VPcFZ2Ni0wVGdDam9lczZ4OGQ2UHM3bG5nN09pbFhEQk5ObjM0M2JsWU9tRWVxQkhlSGNqRnJCaHh1TUVwOEhzbHY2QjZtb3F4NnpDNzcxWjZILVZxakhNNnNkdEVMUHpoNU5GUmJBNFlpOElVMmlYUHhqa3F3SEdTTTVDWTUxaElDVEt3?oc=5) |
 | 3 thoughts from an autism researcher on Trump's acetaminophen and vaccine claims - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOQnRfWTl0Y05neXRTU2NBRGFGNl9wQzRvZ3J1WGZjdjRzTWd6V01jRGFoNUNlRGZiVVpFejFJSkdNN1l0QXRMNkw3cG5tQU9KTHc0ZjZIS0xrbWg4ZWd1ZnpIX3hnR0puVWtGTUFpQ0FscDRjVHpiQXZZTHdtUGdsaThXNS05d2JpaW5OdTk3LVNUZw?oc=5) |
 | Kyiv can win all of Ukraine back from Russia, Trump says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBwVzZWa1Atc1pjZENQSm9WS0E0ZzhiTk5zd1ZPcEU0a3dnOFRMbHhJRksxdzQ3enBOYkY5VWs5VzMxY3ItbUZEUzJBdzJvS2tzazYtUV9UVWZsUdIBX0FVX3lxTE5aSmhUQ2Zac2dBTWlEak1TUnJNT1o4cFkybjZwYVYtcnV2TUVqSTdYTjdiN3NuVzBwNndFWWRwRTRzb0hGS1RFdzlMVEU2S01lSFpCejBvUXJQc21qbmRB?oc=5) |
 | Ryan Routh, would-be Trump assassin, tries to stab himself after being found guilty on all counts - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOX01BLU5ad3U1RG92Z1RfYXlvS0NHY1g2aG1pZUNac0dwaHdlbEt6T1c4QVNnV1lpZTd1YmJhVUxoN215ZlQ1NUxKUm5FM3Z5dVZTeC16cDNCYnFEdlRTRC1GTkZCNHhDbjFOWVBqS19wUVN3SUozb21NWkdCWllxLXk5T3dmTnFXTF9kQy05TzRJeHlGM0t3N3FqUFHSAaIBQVVfeXFMTVg5NGVHeVdoM3NCTkRxenlPc2p5SURmZklicFNUZy02UGpyM2VxdElQMVEyTmJNV0ZkYlBWX0hKVTFMeXpqYW44djlxRnBEOWx6ZnhkWGFkc092SEhGY2hYTUV2VUIzN0VBSFZWbDBDZG1hZ2hTSDVMbGpKdGpNOUhPckNJWDdsZnVFWlBaTGRXOVRUSG85TTNyZTF6bFJLSXl3?oc=5) |
