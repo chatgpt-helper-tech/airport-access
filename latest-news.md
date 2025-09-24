@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月24日 18:33:24（北京时间）**
+🕒 更新时间：**2025年09月24日 18:40:19（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump now says Ukraine can win back all territory lost to Russia - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPM3VicHhGWHhZeS1oN3dFcW4xWURMUnJMSWRiaTNlNzFLTnNJRGlHaEJwQ0JNV3RxYm53MC1oSjdFYk9oZU1EbmdXcFlRdHZTV3FKbkluUUpuaGZwSGNVb2RReHp6MkZPR3A3bGNhdGtfWnFaT01heVZlUG5zR3JlTWJfUUdQTXRnX01qYkNUOXBEOXNEMDNEaWdpZktmR2hnRGc2VnFfOFY?oc=5) |
-| At U.N., Trump Says Green Energy Is a Scam and Attacks Climate Science - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxObVlOQ0ZKLXVlb3F6UExyampISHBsU2NTMEJUN0lXRVpDcUY1eVBIa2VCSkdFNGhnQUNRSUk4dWpuckF4cDFPXzBKS2J1NVVmckxlZlNuR0wwUTNwN3dzV2hLWEVaQTVrT29UMUVuaTd3UmM1b1BnalZpTUZjRS1Jd0ViUUZubjRvaUxHUTVQSUhDdw?oc=5) |
+| Trump to World: Green Energy Is a Scam and Climate Science Is From ‘Stupid People’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxObVlOQ0ZKLXVlb3F6UExyampISHBsU2NTMEJUN0lXRVpDcUY1eVBIa2VCSkdFNGhnQUNRSUk4dWpuckF4cDFPXzBKS2J1NVVmckxlZlNuR0wwUTNwN3dzV2hLWEVaQTVrT29UMUVuaTd3UmM1b1BnalZpTUZjRS1Jd0ViUUZubjRvaUxHUTVQSUhDdw?oc=5) |
 | Nearly 2 million evacuated as deadly Typhoon Ragasa slams into southern China, after killing at least 17 in Taiwan - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPYjVYVjZyMVdESlU2YjlaLTN4ZVpJejNSWl9lZF80WFNuMHNnWFI1eUpDaGhLQ1hPMjRwQ2kwUkxadUVXdDlOMzYyaDF1VTAwa25VZW9ZVlNndWFNU3JNeUg1Yy1PbTRnOUZyemQzbUxpYjE4UjVnR2NGaFNKUzlPY3RYb3ZkaE1KclRseWVBRDA0WHhyNUE?oc=5) |
 | 'Highly concerning': Major medical groups react to Trump's claim that Tylenol is linked to autism - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQdll4YUVKejR3WEFoXzFKNFlhZ2tNUEprY3l0NEJCZnN6Y29vbU5EMXRNQm9vUWdkR0NFZHFsSVdDbDJ5MGV4cU4xVzRVeUhBbmE1WUZOVEhNR2k4QWpmejFqendVd29aMlhfTUNRVmJ2ZjZ3UmxIZnQ3dVZlcGl3TTlKQVZQQ2U2RzlnTExhTzRrZGQ0SGZGem1aSUdfOC05aGwxb0Jn0gGrAUFVX3lxTE1CWFR1SWdBS3d1UGFZdlFvZlFxalNkUkxIcEh4Qml3Wkt4RFVfMWEzQlRQU254SER2ZjM1S0hRNm5RRU0wNkViNkxpRGRsdWkybEpPb3VwZlJMSWlGaC1LNkNhcDFWc2hUeHhYQkJQMTR3R0d1V251TzczVWp1eUpMUnZDb2dpMmxFcWdxVjRWWkdnanlJMXcySkZQdUI2QlpfdTVXTzFoUmlfdw?oc=5) |
 | Trump slams Kimmel's return: "We're going to test ABC out on this" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9HVGd3QVpjWmRhWGpxYk5tWDFaWURvUGZ2dTZjX0Z1T2V2NW1UYU1HTHZ4YzdWN184NDBiNGZWem9CbFVwTUN5Vm9uSHdGWFVfenZXWFM0QTRNdEEyRFFWNlRJUUpOOUxONkM5bnM4SQ?oc=5) |
