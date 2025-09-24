@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月24日 22:40:11（北京时间）**
+🕒 更新时间：**2025年09月24日 22:49:08（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Multiple fatalities in apparent sniper attack at Dallas ICE facility, acting ICE director says - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNbHNXM1pROWpEOW81bnpuUlR3eWVhN2tMWjhRVGNvSnE1T194X2NnYmwteC1lN2kzX0RwcjhUam5wdm1tZDRKZTJ3ODhOdENoSXNvN3AxT3YyYXJRM0cwS3pFLWt4LXBaZWIzc1hDWnBQSmQ2ajVLaXBnajlNYW5ObjRjSFVRd29lOFRqcS03ZUJYTy1kUXJCZy04UmXSAaIBQVVfeXFMUDNFNzRwdlVBTndVM3EyQThaS2wzUjYxN3o1TERWaUdqdW96NVhaT3BIRDFsbE5SZmNIQ0NnMHB4YVY1a0Jhck9JYzRfOWtYdEtDNG85aXdrN0UwQjZhcXctN3kySGszM2hvN2ZVMFQ2VUxQOThZdkhPaHFGNVZpVnljZEdGcnZONktLTWd0aUEtR0lCM1ZxN1NnSDIwcDRzMXFB?oc=5) |
-| Kyiv can win all of Ukraine back from Russia, Trump says - bbc.com | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBwVzZWa1Atc1pjZENQSm9WS0E0ZzhiTk5zd1ZPcEU0a3dnOFRMbHhJRksxdzQ3enBOYkY5VWs5VzMxY3ItbUZEUzJBdzJvS2tzazYtUV9UVWZsUdIBX0FVX3lxTE5aSmhUQ2Zac2dBTWlEak1TUnJNT1o4cFkybjZwYVYtcnV2TUVqSTdYTjdiN3NuVzBwNndFWWRwRTRzb0hGS1RFdzlMVEU2S01lSFpCejBvUXJQc21qbmRB?oc=5) |
+| Kyiv can win all of Ukraine back from Russia, Trump says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBwVzZWa1Atc1pjZENQSm9WS0E0ZzhiTk5zd1ZPcEU0a3dnOFRMbHhJRksxdzQ3enBOYkY5VWs5VzMxY3ItbUZEUzJBdzJvS2tzazYtUV9UVWZsUdIBX0FVX3lxTE5aSmhUQ2Zac2dBTWlEak1TUnJNT1o4cFkybjZwYVYtcnV2TUVqSTdYTjdiN3NuVzBwNndFWWRwRTRzb0hGS1RFdzlMVEU2S01lSFpCejBvUXJQc21qbmRB?oc=5) |
 | Trump’s Tylenol announcement incurs furious backlash: ‘This is yet more utter rubbish’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOS1oxQ0lUVXg5QkRJbDhyekJ5Ym5VUmhSMkVfeE83anoyY3RHRXJ2WThSNGJ4WkJzUXR6TGczaWJ1TDJjY0Nta3paNTNudGNxNzlIcjcxa3dkSzRGRGV0aXlVbDJtdmxMTHRZREhRNms2dWFBa21oMTlTa3ZneHdBMlI3dU5mNlk3Qm9nbHRhX3Q?oc=5) |
 | ‘Your countries are going to hell’: Trump’s UN speech explained by an expert - The Conversation | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOQk1GT3FHVXp1OFhHNG1mU0VIa2paVVdqQk9sLVhkOXVINVZicGRIYldkaVZtMDQ3YU4tQ1hRSEkzU3ZMY2RlV1pDVXRPZ1R4cGw2SHBMYloyUkJpdHhwc3I2ZlMtcnlJMTk5NVpYODV6YUhvank4WWZKSmp2Xy1weUd1c2lCc00ta3lLRFBfSXJPZHVnZWlCa3BnaUw4dG12M1VsUHdiLWhTaXc?oc=5) |
 | Trump slams Kimmel's return: "We're going to test ABC out on this" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9HVGd3QVpjWmRhWGpxYk5tWDFaWURvUGZ2dTZjX0Z1T2V2NW1UYU1HTHZ4YzdWN184NDBiNGZWem9CbFVwTUN5Vm9uSHdGWFVfenZXWFM0QTRNdEEyRFFWNlRJUUpOOUxONkM5bnM4SQ?oc=5) |
