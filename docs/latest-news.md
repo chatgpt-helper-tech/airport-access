@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 05:41:45（北京时间）**
+🕒 更新时间：**2025年09月25日 05:48:36（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | With Humberto, an ‘Incredibly Complex’ Hurricane Forecast Is Unfolding - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQaUxnTVo5R1BsMFNoeEN6WkN4SEhjOU9SU0xPTGthRU45d05QU2hpMmJ1YV84TllFdjJHR3pmNDdGWVVYU1dlNWc4eF9YYkhqRnozX1EzaXlIblZ2UnA5R0RSek5kT0Y1QnBNMUFHNXpmLXhFckxCOWJXa2hRS2tkQ2hpd1pBQUdsaUE?oc=5) |
 | Schumer hopeful Congress can avoid a shutdown but places onus on Republicans and Trump - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPOHFINzR3WGM2b1haeTZRNmp4ZU5pcDFCQzZ3dmdGdWhHcnR2M3N6X25ONC0wRmxnRXp2NEU5TVRFRWN3Qk40ZFlqbEt0V19DeHRRaEJ6ekdiUlVlakJjMXl4dVQ2a1FhMnZlXzNGV0hJU2pwbmd3YTJWVEQtV2dibmJnWnhGY2tLX1E5Xw?oc=5) |
 | Will Trump Sue ABC Over Jimmy Kimmel? Why Claims About ‘Illegal Contributions’ Are False - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxON0E0YjZjb0FYckJOeWVRWVJxX20wdU5ESHBPaEFLNm9nUmMtSW9CSWg5WEctdUZ3dV92NTZnV0hIQmI1VFpYbDRvbzFCOHpJRUFTLUMwbDBOX25LbXdYZnhmZEJPU2d4M2oxV2lobmx6Tlk1YmQ3QU9xQVNORjg1cHpfS1M1a3pXbm5qeEEtVlJZNng2Rm5KckpjR1ZuaUl3QnNiZktWc0RPMHhpRVZvVDJYa3BMZ0NNWmFDckZHVmI0NzVhb3dTb0VmZWJVWVJQanNfYVQzaUY4OFdXcmxvRklyX0RhaDNwLVFmd2V2dy1rQQ?oc=5) |
-| Trump wears MAGA down with Ukraine reversal - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5oaW9xTGstSzdyUmRFeG1odzhTU0dBNzNvN210Z3BNcnpqcDlRZnN2NXBwb3RwZXFWN0ZKZko5T1dSUlU5UEF2ZEZNWWdndDFXNk5sTXhmTVlnQmNhRW9vN2oxVnJuRHpkZkpfLXczVHdfQ0J0eGdrbQ?oc=5) |
+| Democrat wins congressional seat in Arizona, narrowing GOP's slim House majority - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQcUx1RUoyY1gwZm1Ga3lBelpMNGo0SmhON185MV81VFhLTEd2U3YyWkptYTJUaGVkOEpjQ0pnTXlYczJjYVVlcjYtODBqT2s5cklwRXNiQzN0cXc2UjY3cFJZRUFaS1o3Q2t3WlZUalVlLTh1cDkwdzRJYXZ0cmNxSnRWSkR3WVVtRWNxQXBMQXZJZW5XQUZydkVJcU9pNGNSNkd1MlU1ODFPNUI1WGVjSDRDdFNwLXVmOTBaVW9IZEI?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
