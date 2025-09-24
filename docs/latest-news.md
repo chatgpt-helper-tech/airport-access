@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 03:57:41（北京时间）**
+🕒 更新时间：**2025年09月25日 04:00:58（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump taps Ben Carson to help carry out MAHA agenda - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPdEZCaGJDRndtcDVZaGRMb3dsMjI3U20zYk1FTEF0U0hPb2N5di1yOHBUUy0yRFV2YTNDUUtRNW1MUkhiVnZTempEVmI5WFN2V3R1N1FCTDhmcjN5LTNwdGRQdkFSdWExYlB4WEV5ZVVkWnRheWViT2tmWjNza29aSXBrQnBNWFljNGMzcDJKTDlzV3dJNGE2QkU2Y1hLeElPOGo0?oc=5) |
 | Trump White House wants investigation into stopped escalator at UN - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQcGh2SXk5eWJPS09RT3E5UmxzSVlBY1pkVXo0amMzOXBGUGhPb0V2cElPd1B4S215bmxVNGFoNDZaTnJTZV94NWtsa0NSSXFiZ3I4Tzk1V0Zrd1NRWTFrVUlBUkI5TnRLM1JBSFlJclNhbV9LaTNNTEc4R3RuLUxsV2hJNFFWR2hR0gGOAUFVX3lxTE9MMW5kRnBibWVMTDhJalVUbDZPMWNPVVBJME5XSUVIZTJZRlVIQkppN1Z3RldYQ0ZIOE9yZmtqalM0NVhHeDZteEhNcUNLZ3ZTQnNVVzV1TFBMTkpUVHNMb3BjaWhWT051Q2JSenMxSmt2WDRVVnFNVmpIaF9DWGpEOUhyYU1XUVVxdGxIbmc?oc=5) |
 | ‘It's embarrassing’: Democrats seethe at Harris’ campaign book - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOVWpHOTVTbFhvWlJZZWFkekRGNzBkM3ltSjRnLVhaelNvNUF2eDctNGRQT1hWLU1EWkwyU0lrSjd1S3pPalh5aGNTQmZoQ0NGN1FRalNRdTBOalBvMjVhVmZLRlkxNVg4OWI0NWUyU3RpdXZ3NXZwcjlJME5nN3ZxQlVOYWNOaFVJcGdz?oc=5) |
-| Typhoon Ragasa Slams Into China After Deaths in Taiwan and the Philippines - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOaTdJTjZMTTBLZ0M5cDh3T3hXMFM0dV9ObUJoOXVOcWI2cEY1cnFNVnRLbm9JV2Etd2VqUkhUWjktbTg5U0J6TUZLdzBQYmVIdk5UMlBoNFU2UmdsVDlzWFl6RzRkLUVCVEhhNGZVR2ZVeFhacDBXd1QzeVB1RzVITW01RWt6S1Y2?oc=5) |
+| Italian prime minister condemns drone attacks on Gaza aid flotilla boats - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQRVVfUzVmR21kWHZYQk1Rc25oVTk4TlBNWlhzQ1BZaUJOYS1mcEwzUFYwdmJ0V09uRGVHOW4tMnpHcVFob1pfcmVhUUx3cHBXWFU1dlBoZ0lIeWZLQWVfSDF6aklMaUNZMklRSWhjR3J6dXlCdmhBZ0ZjdmEtbzlhUUNRM2Qzc2JfMDdBbS1FdDNHNXFFOUhBNWxDTHRIdjJ3dV8yQXlJZS1peUxDOUtGalpfRU93aVpGSGdqSFBMaE4ydw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
