@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 01:18:00（北京时间）**
+🕒 更新时间：**2025年09月25日 01:24:35（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Gunman kills one, wounds several detainees at Dallas ICE facility, officials say - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNeHgwWW5GdHhtM1ZOTEtvWGx3bVU4X1BSamRkZnNDQkVFZzdyOGwzU0FEZ05FY01XWHJZQkYtWGhuX04yNVo1d19KVXQxWUlVVVVTYjBBMEM5NHJVeFFaZ0t3Y3ZhMG1Gb1B5c3V4S29xbXJKbDI0ZVF5aU1Kc1BYOUxtNE1RMjRGSS1Ob1Zn?oc=5) |
+| 3 detainees shot, 1 fatally, at Dallas ICE facility, sources say; FBI says shooting was targeted - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNbHNXM1pROWpEOW81bnpuUlR3eWVhN2tMWjhRVGNvSnE1T194X2NnYmwteC1lN2kzX0RwcjhUam5wdm1tZDRKZTJ3ODhOdENoSXNvN3AxT3YyYXJRM0cwS3pFLWt4LXBaZWIzc1hDWnBQSmQ2ajVLaXBnajlNYW5ObjRjSFVRd29lOFRqcS03ZUJYTy1kUXJCZy04UmXSAaIBQVVfeXFMUDNFNzRwdlVBTndVM3EyQThaS2wzUjYxN3o1TERWaUdqdW96NVhaT3BIRDFsbE5SZmNIQ0NnMHB4YVY1a0Jhck9JYzRfOWtYdEtDNG85aXdrN0UwQjZhcXctN3kySGszM2hvN2ZVMFQ2VUxQOThZdkhPaHFGNVZpVnljZEdGcnZONktLTWd0aUEtR0lCM1ZxN1NnSDIwcDRzMXFB?oc=5) |
 | This industry will be hardest hit by Trump’s new $100K visa fee. They’re anxious. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPX3pROXJyaU1ocEFGSEp5d1QwM2p3bzJCeWZHSWhGYVpEMHFfeF85XzVMd2lNaWNMajZPdkZDSF9UY1FtLWNyOTVUMUlXcmJDXzN5aUJybFZDYnJ4azN6VFJjWU5Yb0VjZXZHLThROUJEY1l6VUhteFplRTV1anR3YWVPUkhnU245SzRRVzdiSi1pWThyQW1TMw?oc=5) |
 | Trump’s Tylenol announcement incurs furious backlash: ‘This is yet more utter rubbish’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOS1oxQ0lUVXg5QkRJbDhyekJ5Ym5VUmhSMkVfeE83anoyY3RHRXJ2WThSNGJ4WkJzUXR6TGczaWJ1TDJjY0Nta3paNTNudGNxNzlIcjcxa3dkSzRGRGV0aXlVbDJtdmxMTHRZREhRNms2dWFBa21oMTlTa3ZneHdBMlI3dU5mNlk3Qm9nbHRhX3Q?oc=5) |
 | Russia brushes off Trump's claim of 'paper tiger' fighting aimless war - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBjOWJldlUxMlBHMk9vdXh1aldvNmtKUmRFRHJMR2RfdkdjV1J5NDdldU92ZlQ0RThlRWFlOTNCY05WLUFlZnZYZ21LckxJNnRSMnljdzFYNGlGZ9IBX0FVX3lxTFAweE5KUFlZYTM2RmZMb3VVWmhzanZnVTNOdEhENWNqLXJHczBRaU5XMEhyWllnczRTTlFIZXRLVldJc09KeC1QSkhLenIyQWo2eUFJOGI4aEcweHJTYklz?oc=5) |
