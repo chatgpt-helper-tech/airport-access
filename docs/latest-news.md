@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 08:57:43（北京时间）**
+🕒 更新时间：**2025年09月25日 09:01:03（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Huntington's disease successfully treated for first time | [阅读全文](https://www.bbc.com/news/articles/cevz13xkxpro?at_medium=RSS&at_campaign=rss) |
-| China makes landmark pledge to cut its climate emissions | [阅读全文](https://www.bbc.com/news/articles/cj4y159190go?at_medium=RSS&at_campaign=rss) |
-| First migrants arrive in UK from France under 'one in one out' deal | [阅读全文](https://www.bbc.com/news/articles/cwywv34w00ro?at_medium=RSS&at_campaign=rss) |
 | Russia will expand aggression beyond Ukraine if not stopped, Zelensky warns | [阅读全文](https://www.bbc.com/news/articles/c5yg921rjrko?at_medium=RSS&at_campaign=rss) |
+| First migrants arrive in UK from France under 'one in one out' deal | [阅读全文](https://www.bbc.com/news/articles/cwywv34w00ro?at_medium=RSS&at_campaign=rss) |
+| Colombia's president calls US attacks on alleged drug boats 'act of tyranny' | [阅读全文](https://www.bbc.com/news/articles/cy8rjp178mno?at_medium=RSS&at_campaign=rss) |
 | 'She doesn't get another childhood': The lives on hold waiting for wheelchairs | [阅读全文](https://www.bbc.com/news/articles/cm2zwm8m41mo?at_medium=RSS&at_campaign=rss) |
 | Government considers financial support for JLR suppliers | [阅读全文](https://www.bbc.com/news/articles/c62nv0xx32go?at_medium=RSS&at_campaign=rss) |
 | Labour MPs are privately urging me to challenge PM, says Burnham | [阅读全文](https://www.bbc.com/news/articles/c7v1m873mjyo?at_medium=RSS&at_campaign=rss) |
 | BBC and news agencies launch film calling on Israel to allow foreign journalists into Gaza | [阅读全文](https://www.bbc.com/news/articles/c8d7yrp80m8o?at_medium=RSS&at_campaign=rss) |
 | Labubu dolls made up 90% of fake toys seized at UK border | [阅读全文](https://www.bbc.com/news/articles/c8645pdq4e0o?at_medium=RSS&at_campaign=rss) |
-| High-speed rail plan for north of England delayed again | [阅读全文](https://www.bbc.com/news/articles/ckge94030g7o?at_medium=RSS&at_campaign=rss) |
+| China makes landmark pledge to cut its climate emissions | [阅读全文](https://www.bbc.com/news/articles/cj4y159190go?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
