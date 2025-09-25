@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月26日 07:00:32（北京时间）**
+🕒 更新时间：**2025年09月26日 07:08:43（北京时间）**
 
 ---
 
@@ -23,11 +23,11 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Former FBI Director James Comey indicted - CNN | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPb3J4UGNpMVJHbDN6M2d1bldfb05ySGpsNDRFdG9IaU9zek8zNjhaYXQ0UGswTGp0STJVWXppRmo1bWlQZUF1S2VuNlBOTnBFM0t0NzAtUXZtamlwZkFCcFNvZnBIY2tlZTAzV0szeTNnVHBINnRaS2NXb196Tmd1RVFHNzRTSC12TF9ocWxQV3BKQ2xFUk9EbDh5eWs3c2hy?oc=5) |
 | Trump signs executive order to transfer TikTok to US owners - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9SRFVuX2FhREFWTG1ZbG8zbDRBTVNlVkYtbHFXMGtVZWdNdXhjRF9selRzaXl2UU84TVFlWHNBNEx3c1dPMlV5ZzFmNHRXVTQ3c29FWllWa2VJNVFicUNscTZfRnZWS2dfSlFNLXFkVGJyWkZkc1Jmb1Z1MWdCdWs?oc=5) |
 | Live Updates: Trump Threatens Mass Firings, Hegseth Summons Military Leaders and More - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTFBUdHVvdzVrazU2UmZuTDhoeXl6NEt5X3hDaTdvSzlqc21JR2k0WGRRUkVRdGlYNEdKU0ljbFJwR21qRkhuWk9FTEZ4VVBjeFZCZmltdXh0dDZ0QVdKcE5aQ1FpMA?oc=5) |
 | White House begins plan for mass firings if there’s a government shutdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOUGNjMWt6aWRtN0JaV0VmYlhJUzZHdWJfYjRqVkFPWDR1OXVwLTJYYUgzNjNSdnlNTFVtV19WVU5IZE9vMldIa1d4aVdRc0lHS2VmWm9UazVKR1N0Y1FNM0JiNmlwbmc5dVFocjVOR0w2LTVXOU9oWTVubmF6TmxldXEtclk0RFVWOGpMTW9aN0ZUMEU?oc=5) |
-| Former FBI Director James Comey indicted - CNN | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPb3J4UGNpMVJHbDN6M2d1bldfb05ySGpsNDRFdG9IaU9zek8zNjhaYXQ0UGswTGp0STJVWXppRmo1bWlQZUF1S2VuNlBOTnBFM0t0NzAtUXZtamlwZkFCcFNvZnBIY2tlZTAzV0szeTNnVHBINnRaS2NXb196Tmd1RVFHNzRTSC12TF9ocWxQV3BKQ2xFUk9EbDh5eWs3c2hy?oc=5) |
-| What we know about the Dallas ICE facility shooting - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxORldtbnVBbFJTdVR4MHZUMkN5R1VCTnFKNHpnQWtGbkRQX3gyN0tUd2VuOVBEem9PZGh4OGxHdEhhelFSbFhRc09nZXY2cUt3bDdCT2h2ZHcybUdzeHMzcjI2cEFxUURjOW9JWFBNX2JiSzlpUkpERzVlYnV0YlFFLXFNWlBvdw?oc=5) |
+| Dallas shooter sought to 'terrorize' ICE workers, official says - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxORldtbnVBbFJTdVR4MHZUMkN5R1VCTnFKNHpnQWtGbkRQX3gyN0tUd2VuOVBEem9PZGh4OGxHdEhhelFSbFhRc09nZXY2cUt3bDdCT2h2ZHcybUdzeHMzcjI2cEFxUURjOW9JWFBNX2JiSzlpUkpERzVlYnV0YlFFLXFNWlBvdw?oc=5) |
 | House Democrats call for investigation into release of Mikie Sherrill’s military records - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQYzEzMEs3b3ZpN2poODJnMlhBVDJMc1lVeV9CdXB3R2dLTVo3MzhvUEdZbGYwUExpNDQxRTRZN3dRZlNoVVE5aXVvT2ZkTThacllOM2RhUGJPR21IR1ZGQnR5VGtBRnRwYVlXTkJ2cHVGRkxWbDFpVDRFWjg1R3VBSkdEcFBzbGg3anFVZThuNml5dm1pRjU0SzZpdmROMlpENGpz?oc=5) |
 | Countering Domestic Terrorism and Organized Political Violence - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMi8wFBVV95cUxQN2NPcXV6ZjNVc2N5c0hHTjFpUW9UNEFWWW5ZSFNrN3BxeUJ2VE1mdWxfTjcwdVVtdDhpM0F5WlhnV3NQMHN2NFBrNE1sLTlaTzhJcnVxMTBXVUhZSU1EMnM4Z3oyZE5KUkM3YmJjZTFBeVE0OUtXdHp2TEh5bDUyZF9RREJXek1OM0xYRWxGeHE2ZGh3dWU2MzFMd0c3UlUzN0loNFFNNXhxUUU2Q2tsRkhZeDNwTUJmYlV0SXZMczJ1U0lOQWtZaXhLX0p6WVRzQkVFXzZNVDFhTFJjZEQ1eTh1cFR2UTBFeGl5b0tzMjRCUW8?oc=5) |
 | Ryan Walters, Oklahoma Education Chief Who Promoted Bibles in Schools, to Resign - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1hdWhNV3RwZnhNWDVUT0t2UHk5aldudS11TnB3dnNmS2J3aWdOVlB5QkFvdDdITXp3emYxaDl0VGprZmVTQ09PbkdhN2N5MDlFYnhCaHhRQVdNc3h4YnpYQkF6ZUxack5USFZ4aHo4OFRqaGh3a3BTMjdoMA?oc=5) |
