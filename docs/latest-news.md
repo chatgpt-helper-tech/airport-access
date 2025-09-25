@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月26日 05:57:47（北京时间）**
+🕒 更新时间：**2025年09月26日 06:00:07（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | What we know about the Dallas ICE facility shooting - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxORldtbnVBbFJTdVR4MHZUMkN5R1VCTnFKNHpnQWtGbkRQX3gyN0tUd2VuOVBEem9PZGh4OGxHdEhhelFSbFhRc09nZXY2cUt3bDdCT2h2ZHcybUdzeHMzcjI2cEFxUURjOW9JWFBNX2JiSzlpUkpERzVlYnV0YlFFLXFNWlBvdw?oc=5) |
 | Commentary: Escalator and teleprompter humiliate Trump, so Fox News' Jesse Watters suggests 'blowing up' the U.N. - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQX0FSam1vTWFvM0o2Vk9rZDFhMXFMeEo1bTR0RWtVeGhLUDdVemV1bzNHMFNNbXMwa1c5YVVvTEh1WHJ3blM0T3NKUUljOFJ5MlpDejhoTnctWnRROWNnZlZ1bVRrdThQMFpLZ2dkNVFZUUotT2xVc2ZCRDREcC1Cd1BldlFJVDFVT0V6NDg2T1E3blFVZXdSREE3Y3k?oc=5) |
 | Tropics heating up as Tropical Storm Humberto forms in Atlantic: What to know - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNeGg0VG0yZlFJTnVzVXEtMkRYeUlPY3ZRRWwxZVdHZ1l2amNGdWRKZVA3QTk3S19mX1NycW9LX25fbTBwbW9xeHFXVmJWY0JYM1MxNEYxV3F1bGFTWlJZZUIzZk40RjJldTB2a3g4Q21jV3RSREoxVEJvOUpPZTJNdlNvT3ltMHhyaDdYbEFsRkE4ek15UXfSAZsBQVVfeXFMTlRyMEV2TUVsRGhEQ3phcW84T3R1cndYaDVSX1hOX2xZaEhwemc5enNLZS1KQTFHRTR6bGcxSW1GR3VGMmFoV2lUMEFZUkMwWFVyeXEzTmp6YmtnR0FZS1VhY3Z3SzREbWQ1ZnJULWdhLUN3U1dESHM4T1h5M1VpOHEyOHFUSVlJaHg3elViSU51eFM4aVF5b0kzMGM?oc=5) |
-| Ryan Walters, Oklahoma Education Chief Who Promoted Bibles in Schools, to Resign - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1hdWhNV3RwZnhNWDVUT0t2UHk5aldudS11TnB3dnNmS2J3aWdOVlB5QkFvdDdITXp3emYxaDl0VGprZmVTQ09PbkdhN2N5MDlFYnhCaHhRQVdNc3h4YnpYQkF6ZUxack5USFZ4aHo4OFRqaGh3a3BTMjdoMA?oc=5) |
 | Widespread 911 outages affecting Mississippi and Louisiana, officials say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5Vc3VNTGRLdDZBSzBYVGNaVEE0QXAyN19CaXlld3NGa29SdkEwTElXaHVSeUVmanMwb2ptelpSREYwX01SVVluZVl2YTVZWWxpa1JSLXB4ekVVOUhPam5HQlo4dFNWbDl2YkNXdjM4R1V1Nzg3SjJxVGlXTQ?oc=5) |
+| Ryan Walters, Oklahoma Education Chief Who Promoted Bibles in Schools, to Resign - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1hdWhNV3RwZnhNWDVUT0t2UHk5aldudS11TnB3dnNmS2J3aWdOVlB5QkFvdDdITXp3emYxaDl0VGprZmVTQ09PbkdhN2N5MDlFYnhCaHhRQVdNc3h4YnpYQkF6ZUxack5USFZ4aHo4OFRqaGh3a3BTMjdoMA?oc=5) |
 | Democrats Press on with Shutdown Threats… Even the Media Isn’t Buying Their Obstruction - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxPTlBJcGxDU2lsZkFSUUthQTFadG5TZTNpT19SR0VHOHotdGkyNlJULXFvTV9CdkJaV1JqTHJGOTJZUlk3Si1jOTFaTjVHZGFKOUl6QTJMVmFxcTFZRzZNdTJxUkxjOFBSak4xRlJPVXBBcVFVSDhnbXVkVUJidXd0Q2I3NHREWnBIT0xCUl80eFlIX0dlMFdqdVhzOTdxZlhKd2Rwa0RYVzFlTG5vbGxLa0VWVEJCekhGNnNJX3UtZWdTM3BhMTBHUFJ3?oc=5) |
 
 ---
