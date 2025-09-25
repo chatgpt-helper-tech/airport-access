@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月26日 03:40:51（北京时间）**
+🕒 更新时间：**2025年09月26日 03:48:39（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | Former French president Sarkozy given five-year sentence after Libya case | [阅读全文](https://www.bbc.com/news/articles/cp98kepmj9lo?at_medium=RSS&at_campaign=rss) |
 | Emma Watson says she still loves JK Rowling despite rift over trans views | [阅读全文](https://www.bbc.com/news/articles/c4gvp18xe17o?at_medium=RSS&at_campaign=rss) |
 | Former Arsenal striker dies after sustaining 'significant injury' during game | [阅读全文](https://www.bbc.com/news/articles/cq5jye4v64no?at_medium=RSS&at_campaign=rss) |
-| PM defends mayor against 'ridiculous' Trump claims | [阅读全文](https://www.bbc.com/news/articles/c147vd511djo?at_medium=RSS&at_campaign=rss) |
+| PM defends London Mayor Sadiq Khan against 'ridiculous' Trump claims | [阅读全文](https://www.bbc.com/news/articles/c147vd511djo?at_medium=RSS&at_campaign=rss) |
 | Taxi driver who dropped off Southport killer regrets not calling police for 50 minutes | [阅读全文](https://www.bbc.com/news/articles/cpd96g46vzwo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
