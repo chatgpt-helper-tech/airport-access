@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 12:16:23（北京时间）**
+🕒 更新时间：**2025年09月25日 12:24:07（北京时间）**
 
 ---
 
@@ -26,7 +26,7 @@
 | What we know about Dallas ICE sniper suspect - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE10YVRhQmVucDNoTS1UbjQxaFpFVktyUUVSbVRZTEh4WFRqMFE5eG93Um5TMndDTUN3SUpuTEtlSkhLQzJMZnVQeG1WVjNvb1luQUNvVXppbXliQWV2RWZHV3VKN01TZ3g4clJ0V21KYm9zblR1b1Bzajln0gF_QVVfeXFMTk5wNHBxbVBrNTRpMDNXZUNudFRMckFvZ1RPbW12RHluSVJWeWxMQUJzeU5vNktfY1dJQjctSEVOLVZTczY4VkhOTU5HTElVWFpLX0hHYUFpUHMtOTFZS3VObEwzMVVaOEZCc3JMbTl0VTlDVGR6MjVTQ2FENko1Yw?oc=5) |
 | Va. federal prosecutors preparing to seek Comey indictment, people familiar with matter say - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOZ2NHbmVmQ2w1TlJ3Z2F6ZTlkRURjajVxUUNObWlsbVdKVGRNLXpnOXVfbE9RRzZHR3drUFdpc3ctVDkzQ0s4SUZXMFFBbDJfS3hMTWxtNEM1b3VjWURBdUlhNjFnZWRIU2dFMUQ3SmVfZVVKMy16dmprN3J0OTFBUTlGSFFyZW9lMUUyOVg0dks3RTV2TERMYkpNa3NwWk9rSFZB?oc=5) |
 | A new Trump policy on Ukraine, or more of the same? - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOdWRjVS1FR3hPYVc4NjIwSzd0SzBvY3BXUVI5VWRyR0tRZkVmXzQwMk9rS3NNbWNJSXdZSkdXSWxCckJJZmZCRnFicktncGptcUNzbUdiTW5zeFVpcmFYTm5hdk5nYUdrQ0ViTGV0UmNDQXBYSS1vaVBqYWVkX1pBclNn?oc=5) |
-| White House to agencies: Prepare mass firing plans for a potential shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQc193d24xa2pZN1ZaeXhlVEliX3B4TU1VRFBmVmlMX2RUSWNUQk1Da0FjMEhuYUFxbTc4QVdrMWR6ZEwwWS15YjlRZFZtQzdfQmFGOWViX0sxRFNNVm96Q255ZFZNX1hibXgycndZb3pTMmdOUGEwYUduOWdiZjFrYXJubEI?oc=5) |
+| White House budget office threatens mass firings if government shuts down - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxORno1d2pVanBMYTRIQllBdXVlanFYU3FQT3ZrdnVoeU02LUI1SUl5ZUNNNUVGYTNoU0ZXNThYUnBCTC1zdlNaWTFMZlpKLWtxdkZ4REZCTF9iek9RUDdEM0lXVFVyRWM4RXlwOTNOZTFJai1qM1RuelpSdldGcEJIM2lYMlVRWG41a1BEMHZn?oc=5) |
 | China’s plans to cut emissions too weak to stave off global catastrophe, say experts - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPTkp2MTdydDUwbEFWQWVWU3ZsNHEyVG5kZHZQdjNmZFRwcHBRcUNmN3dCVTRSc251T1NQaUc3VjZXZ1h6cVJ4UXZEYzFMVXVUbDh0cThfd3BXVVJUeFlBYTFUS0FtOEZfZ3RXUUdvV2ZSYkNOUTY2Z0tsWDBKN1JraUpTVFVnMF9NanVLYVVrUjBwNkNiQzQyYzJlNGlfMlNsNk1yb2U0N1FVYktDQ1pKV0xBMUFNMXBlOXFyUmpINlBqSWZWVmxoR0RYbVFwUQ?oc=5) |
 | Trump demands investigation into alleged ‘triple sabotage’ at the United Nations - CNN | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPYlAtUjM3ckZsbEJiX19tSTh6Y2VLMjdUSDhNYWswWVdDSzJLRnFJTFBYQ09HRV9SMnlPS3dNakFmRWJhTjVHMUJFLWxKVlZ0M0hjaktSTGVzUTd6YnRHZDFILXliUk5KMmVQTnJrTlVRRE9RNjFUZlFwTTRVeG9GMjVsQTVmbFlXbWkzOHZpbFhyNDJOb00wMUxnbERXaEJJdVE4Q0RnTQ?oc=5) |
 | A Federal Shutdown May Be Imminent. How Would It Affect the Economy? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPZmtST0gzZjN1NlFqaXRyQmI3eFVvQ0R2YVJHZkw5ZmVfVmV1SDQwWmw3UUhITEdmNzduZVI3amVsRzhrTkNUSWRfOWQzY3VNd0JMTHhrNzhsT2c0azN1Z2JacExvdVhGenZRUkhhQnczV01OQk9WSzFIY1p2ZWZIanJkMFVWemNtRHc?oc=5) |
