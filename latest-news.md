@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月26日 07:16:20（北京时间）**
+🕒 更新时间：**2025年09月26日 07:24:47（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | Samaritans facing volunteer exodus over proposed branch closures | [阅读全文](https://www.bbc.com/news/articles/c931w38kdqwo?at_medium=RSS&at_campaign=rss) |
 | Million-year-old skull rewrites human evolution, scientists claim | [阅读全文](https://www.bbc.com/news/articles/cdx01ve5151o?at_medium=RSS&at_campaign=rss) |
 | High Streets and rundown spaces to get £5bn boost - is your area on the list? | [阅读全文](https://www.bbc.com/news/articles/c1mx8vr2gr1o?at_medium=RSS&at_campaign=rss) |
-| Former French president Sarkozy given five-year sentence after Libya case | [阅读全文](https://www.bbc.com/news/articles/cp98kepmj9lo?at_medium=RSS&at_campaign=rss) |
 | Emma Watson says she still loves JK Rowling despite rift over trans views | [阅读全文](https://www.bbc.com/news/articles/c4gvp18xe17o?at_medium=RSS&at_campaign=rss) |
 | Former Arsenal striker dies after sustaining 'significant injury' during game | [阅读全文](https://www.bbc.com/news/articles/cq5jye4v64no?at_medium=RSS&at_campaign=rss) |
 | PM defends London Mayor Sadiq Khan against 'ridiculous' Trump claims | [阅读全文](https://www.bbc.com/news/articles/c147vd511djo?at_medium=RSS&at_campaign=rss) |
+| Palestinian president says ready to work with Trump for two-state peace plan | [阅读全文](https://www.bbc.com/news/articles/czdjgdnjnlgo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -26,13 +26,13 @@
 | Former FBI Director James Comey indicted - CNN | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPb3J4UGNpMVJHbDN6M2d1bldfb05ySGpsNDRFdG9IaU9zek8zNjhaYXQ0UGswTGp0STJVWXppRmo1bWlQZUF1S2VuNlBOTnBFM0t0NzAtUXZtamlwZkFCcFNvZnBIY2tlZTAzV0szeTNnVHBINnRaS2NXb196Tmd1RVFHNzRTSC12TF9ocWxQV3BKQ2xFUk9EbDh5eWs3c2hy?oc=5) |
 | Trump signs executive order to transfer TikTok to US owners - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9SRFVuX2FhREFWTG1ZbG8zbDRBTVNlVkYtbHFXMGtVZWdNdXhjRF9selRzaXl2UU84TVFlWHNBNEx3c1dPMlV5ZzFmNHRXVTQ3c29FWllWa2VJNVFicUNscTZfRnZWS2dfSlFNLXFkVGJyWkZkc1Jmb1Z1MWdCdWs?oc=5) |
 | Hegseth orders rare, urgent meeting of hundreds of generals, admirals - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOMjF2QjR6WFptb211YTdpcl9oaGxaQnowaDkzOXhrbHZGT3hKYU1BbE1LZk9UdHNBOF9NWXYyRlZPODhmUG5Mam9VZzNwOUdWdlZESHEzNTFCUHo2Qkl4blc5d0VaSFVwQUpSSXJ0eEtVMndlcmJ6Snk4dEJnU2NBZThJSU1GUlRlT1hkMkxrWDZpY0JvYlVzTUdR?oc=5) |
-| Read the full memo directing federal agencies to weigh mass layoffs if the government shuts down - PBS | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxQLS1VVUdxWWVkMnFpeTl3Qi1VMVRtRlJWVi1ja0RrbFd6VDJMTW81VnVZTjRnekQ3RFZ3UXJlTlhxREc0REppdENiWUw1MUJEbEdrcUVmWTYwSEFETXh4dkZya0QwWk1FbC1nZHdxMTJ4TzRhTlVteWhGa3oyXzFHRTl3ZTR3VFhxRndqZ2JGYkFQMmxQUnZJZG5pMkFKb251NXFxaW1YbXd3b2ZJOXloRzVyQ2JiQWZzSmx0QnEwUXdUR2VtTGtDcm9jNlQ5RmfSAdQBQVVfeXFMTUtWNzNLT21zbmFxSE5YSGZqaGpKR2ZaVHhLQlpNcEZlR0JBWEk3TUZMSmxOOWZUbGpSaEMtZHktT0hiUXA5MGhpSndZOV9sWUNTYlB3NmRxWXBWZEQ4WlZIZTFGYUplcXExSmlCeHNiY0xzZDdVZ3BYdU5PRkstN29pWkc4YVJ4d3MtOF9uSE51S05ZZi0yTG1TcG1jRllGcFBpbUpkRFNDdnhmTXN1ZFFWUGpidlMzdldqNjJzT1UtSlRUZjBjOEg2SjRKeGsweE9pMkc?oc=5) |
 | What we know about the Dallas ICE facility shooting - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxORldtbnVBbFJTdVR4MHZUMkN5R1VCTnFKNHpnQWtGbkRQX3gyN0tUd2VuOVBEem9PZGh4OGxHdEhhelFSbFhRc09nZXY2cUt3bDdCT2h2ZHcybUdzeHMzcjI2cEFxUURjOW9JWFBNX2JiSzlpUkpERzVlYnV0YlFFLXFNWlBvdw?oc=5) |
+| Read the full memo directing federal agencies to weigh mass layoffs if the government shuts down - PBS | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxQLS1VVUdxWWVkMnFpeTl3Qi1VMVRtRlJWVi1ja0RrbFd6VDJMTW81VnVZTjRnekQ3RFZ3UXJlTlhxREc0REppdENiWUw1MUJEbEdrcUVmWTYwSEFETXh4dkZya0QwWk1FbC1nZHdxMTJ4TzRhTlVteWhGa3oyXzFHRTl3ZTR3VFhxRndqZ2JGYkFQMmxQUnZJZG5pMkFKb251NXFxaW1YbXd3b2ZJOXloRzVyQ2JiQWZzSmx0QnEwUXdUR2VtTGtDcm9jNlQ5RmfSAdQBQVVfeXFMTUtWNzNLT21zbmFxSE5YSGZqaGpKR2ZaVHhLQlpNcEZlR0JBWEk3TUZMSmxOOWZUbGpSaEMtZHktT0hiUXA5MGhpSndZOV9sWUNTYlB3NmRxWXBWZEQ4WlZIZTFGYUplcXExSmlCeHNiY0xzZDdVZ3BYdU5PRkstN29pWkc4YVJ4d3MtOF9uSE51S05ZZi0yTG1TcG1jRllGcFBpbUpkRFNDdnhmTXN1ZFFWUGpidlMzdldqNjJzT1UtSlRUZjBjOEg2SjRKeGsweE9pMkc?oc=5) |
 | Trump signs memo targeting ‘domestic terrorism’ amid fears of leftwing crackdown - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxObHI5M0J1WmlsdDhQdTQxTEczbjJDdkNGdFVmS0N2U1k0TzVVaVF5ZlFMTEZBQUJ0eVZVcUROVTdxNC1Gc05Pbmhmb29tTjZpa2pTN1NhR200MmRJY0N4Y0RqRHVmQjc0Ql9uU0dOSHhVTE1VMkoxUVJadjRkVTl0SkhnR2dWN0xHZmFDN0I0QmlVQXhKOV80Vzd4LUY?oc=5) |
 | Oklahoma state superintendent who ordered schools to teach the Bible resigns to lead anti-teachers union group - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNWkx2TzByWG8ya3BhclJPM1hBOWVLV2RjaEhmN0dhQW1wb1ZKSnJOOUM5SHJRWXFoSTBBdVJ4N0ZlWEpMZHR2Tkt4RWFpYW9FMFNHZzlCMGo1ZFFQMzhqWkE0Z3MtZ3lOdXRQSE5Qdml0dTZWaFczS0R2R0s2aVJXUUNpdmxZMk1aa2JtTlZwX1VvMGhselVKQ0ZkaGp5U2cyb0lzR1M4SkZhOFF1M1JGM000RjF0QnBiR3hDSkhfSWEydjJ4SVVZ0gFWQVVfeXFMUGItUWtaVEEzVU9UTGlZczNDckRQQWxKal9pZ3k2eVczV01jWUVBQnBNYVc0d0YySWdPUHFKOEZzQkkwaGtTa2MyWWhGZ3NHVlRsZzE0Unc?oc=5) |
 | 911 service restored after outages in Mississippi and Louisiana - WAPT | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE16MFVxUHB2dVI5LVpvVzdGc29pRnhlZ1lsRUtvemFNT1NrMjRMc284X2J6aXJWRk1scUN0dC03SkM0OGkxa2l5TDhGcGlyWEo5ZUtzWUNDb1UyVjJnRXJxYl9sUUxFZDVNbGhWUzJ0enpjNnM4dFF5a2JxVQ?oc=5) |
 | Fujiwhara effect explained: Here’s what can happen when two hurricanes get too close together - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQdmtBNk1MQjFBNmVVZzVBZ0tRdHZFV1dZTUFSWUtRUUc4S20ydmcxZHV2MmNnRVFzVTRWUWhsZzhkbVNxRWgxNmx2bnVsU1phV2p4Q1BpQ0NlUTBSUnJsdHhUM0FRMHc1aDVqVE1Tem1Wd1ZYa0REZURrTzRXZEdPVUQ3SQ?oc=5) |
-| Democrats Press on with Shutdown Threats… Even the Media Isn’t Buying Their Obstruction - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxPTlBJcGxDU2lsZkFSUUthQTFadG5TZTNpT19SR0VHOHotdGkyNlJULXFvTV9CdkJaV1JqTHJGOTJZUlk3Si1jOTFaTjVHZGFKOUl6QTJMVmFxcTFZRzZNdTJxUkxjOFBSak4xRlJPVXBBcVFVSDhnbXVkVUJidXd0Q2I3NHREWnBIT0xCUl80eFlIX0dlMFdqdVhzOTdxZlhKd2Rwa0RYVzFlTG5vbGxLa0VWVEJCekhGNnNJX3UtZWdTM3BhMTBHUFJ3?oc=5) |
+| Trump-pledged support for Argentina stirs anger among Republicans - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPZjE1bTRvZnRRSTFDQzZZVWxRRkVKRWR6b2hiUThxelZGcGRiNjk2ODl3UzJ4RWR5ZlpRMDBFZTRDTzlDUUQtTGt5UG8xUHZRZ1BHcUVwUEdpM0JFRGIwUVdhd2UxUXlHY2xqX1R1d2ZFWDNLSTJtZ2piVmZSWk9iNDJFUmd4dnNoZTcxeEVoRi1VYkZocURjZEI1Mk5BUGhq?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
