@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 19:25:07（北京时间）**
+🕒 更新时间：**2025年09月25日 19:32:57（北京时间）**
 
 ---
 
@@ -9,12 +9,12 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | 'Film me all you want' - teenage girls with no fear of police torment one High Street | [阅读全文](https://www.bbc.com/news/articles/c0q751vlxw1o?at_medium=RSS&at_campaign=rss) |
-| Labour leadership up to the party, says Burnham | [阅读全文](https://www.bbc.com/news/articles/c7v1m873mjyo?at_medium=RSS&at_campaign=rss) |
+| It's up to Labour MPs, says Burnham on leadership bid speculation | [阅读全文](https://www.bbc.com/news/articles/c7v1m873mjyo?at_medium=RSS&at_campaign=rss) |
 | Henry Zeffman: Burnham's provocative challenge to Starmer shows he is serious | [阅读全文](https://www.bbc.com/news/articles/cx275r1l3xpo?at_medium=RSS&at_campaign=rss) |
 | Denmark says 'professional actor' behind drone incursions over its airports | [阅读全文](https://www.bbc.com/news/articles/c7401vk4lgzo?at_medium=RSS&at_campaign=rss) |
 | Ticketmaster agrees to give better price information after Oasis ticket complaints | [阅读全文](https://www.bbc.com/news/articles/cqxzqvw4lv8o?at_medium=RSS&at_campaign=rss) |
 | Woman in Spanish cold case identified after 20 years | [阅读全文](https://www.bbc.com/news/articles/cj4yqwnl1q7o?at_medium=RSS&at_campaign=rss) |
-| Nicolas Sarkozy sentenced to five years over Libya case | [阅读全文](https://www.bbc.com/news/articles/cp98kepmj9lo?at_medium=RSS&at_campaign=rss) |
+| Nicolas Sarkozy sentenced to five years in Libya campaign financing case | [阅读全文](https://www.bbc.com/news/articles/cp98kepmj9lo?at_medium=RSS&at_campaign=rss) |
 | Trump demands inquiry over UN 'triple sabotage' after escalator and teleprompter mishaps | [阅读全文](https://www.bbc.com/news/articles/c3dr0zrr1kpo?at_medium=RSS&at_campaign=rss) |
 | Thousands of students report sexual violence at university | [阅读全文](https://www.bbc.com/news/articles/cq65z20pde2o?at_medium=RSS&at_campaign=rss) |
 | Government could buy car parts to protect Jaguar Land Rover suppliers | [阅读全文](https://www.bbc.com/news/articles/c62nv0xx32go?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | H-1B visa: US tech sector scrambles in the face of $100,000 fees - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1FZjdrTGJ3cGZTcDQ5SWVrYmYxNHJHODgxYnp3Qzl3Tkg1WTF4ZDFrNUpGZFdULXJFLVpPelg3RThnS0loT2RQY1VycWJUZ2JfTUlOVWNLZWFUZ9IBX0FVX3lxTE14T0MxMm9yYW91QXZlNnFCcE5lMm9ocjlyRXJkQmxETU9DZjFfWXEyX0VrdUdQMGRKQmxFVjBBdXRoXzRlTjgxc3ZYOGdSbzJfZTdrNTJ2U2ZyMTRCbzFN?oc=5) |
 | Jimmy Kimmel Predicts Trump Will “Try To Sue” ABC After Rant About Talk Show Return: “He Does Know Bad Ratings” - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOVnBkeWpqQjdNMkNZN2xzV2VzbnhCSkw1aTUwdXpkU3VBZ3Z3TnJ4MWFub2hSQ0s0bDdKRVFQTU5iekVaMVI3V2lVOXZScU5YQWJudEJmUkVHREVQTFBwa1JjMTYtUlVhQU94cy1fQktQLTVOa29zWlVOa2tuOTNLV2JrRDVJMEhX?oc=5) |
 | U.S. fighter jets scrambled to intercept Russian warplanes near Alaska - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQOTZMYWFOcFNFTkI0SkxXc2tuV0dod04wZ25hWE1PUFc1NUlPQTJIc2Y0MTV6c2lzNGNfZllPRkZVTGhrUWhqQkJkN1FHdEtRQXlsV3gyUHJTZkJtSk5aUDlaWmM4ekxmRS12X0pzTlc4OUU2Tl9qY0NYM1QwamR0OTFaV1RpS0VSVFhnLXE0eUlMcWVmZ3ZDYW45eTJIdXRMQ1dZ0gGoAUFVX3lxTE80SkJldVhqYldUZzVoZ2NhUmZlVktwSWJHLWFmRDdIT0dubHdVRE9qeXNUX1V1bDE3OHY4UDBxbVZRbTc1cmozLVp5N1BNelVvLW4waFpaeWh1NFVGQ2RubDV6a3R3VHN6N0FiUmJMSUZsV2hfOEtLV0dhVlFMZkh0RFBJR3YwQVFnTGVIakxxS2JkVF9CSXFERmlDMWJGSkhjaFVZc3BwRQ?oc=5) |
-| A Federal Shutdown May Be Imminent. How Would It Affect the Economy? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPZmtST0gzZjN1NlFqaXRyQmI3eFVvQ0R2YVJHZkw5ZmVfVmV1SDQwWmw3UUhITEdmNzduZVI3amVsRzhrTkNUSWRfOWQzY3VNd0JMTHhrNzhsT2c0azN1Z2JacExvdVhGenZRUkhhQnczV01OQk9WSzFIY1p2ZWZIanJkMFVWemNtRHc?oc=5) |
+| Ukraine’s president says the world is in ‘the most destructive arms race in human history’ - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQM0ktQ3lDUHJ5aVdnS2Z0LUNEekxyeWpyWm1iVG9IT0pHNFhTS3JrLVkxNl9fMVE1TUJ3VFh2enBkb1oyQkZyZ3d4SmYxRkx2TjdibzVwaHNpbGpNSFN5bWhpVFFxM2RoTVhiNHR2Z0xtWVFLaXlDS3dxT2RFU1NFUmlKZGJBVHExNy1nWVFtU0phYWpHR3BtbC1PSGVRTEJMY25vNkJ3bw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
