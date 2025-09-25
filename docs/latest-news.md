@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 13:56:43（北京时间）**
+🕒 更新时间：**2025年09月25日 14:00:15（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | H-1B visa: US tech sector scrambles in the face of $100,000 fees - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1FZjdrTGJ3cGZTcDQ5SWVrYmYxNHJHODgxYnp3Qzl3Tkg1WTF4ZDFrNUpGZFdULXJFLVpPelg3RThnS0loT2RQY1VycWJUZ2JfTUlOVWNLZWFUZ9IBX0FVX3lxTE14T0MxMm9yYW91QXZlNnFCcE5lMm9ocjlyRXJkQmxETU9DZjFfWXEyX0VrdUdQMGRKQmxFVjBBdXRoXzRlTjgxc3ZYOGdSbzJfZTdrNTJ2U2ZyMTRCbzFN?oc=5) |
 | Trump’s attacks on Kimmel and ABC put him at odds with high-profile conservatives - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOcHEtTTNXazVqS3Nxa2pnSWdCWGJVOUtqRFR0QWJQTzZlbUhfNUNGY0VKaDlBRE1FZ3VGV0JKTFRseFRnV2dpZ0lHcXJYNFg0MVFVVkZJU2pkMHJqUEpydXByWTI5WUtkaGczYWxfbVQwMEQ5eW9xakEyQUpZWW03V0JlcUZHU29tWmE1RkxjSTVVUGk3OGlBYXVoMXlaZXpreTFJ?oc=5) |
 | Days away from a government shutdown, agencies’ contingency plans still unclear - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxOY3Z0anQ2YlUyRk5nQ3ZoMk8tbkJMbUJwTHJfZmdGS0N3Y3FfSFNwYkpXNlRBWU9SclZQSFVkUlNuV2g1U1otazJSNDlyUUVmNzQyalNsOGNFd0dJWTZHWjRIeFVPbWxTNGtoUmhEWUJaTzJMZ05DZThxWXFKNlFvcWwtMU5Yd0pkNmF0QkJZbGhlZDBKUUp2blVXSEhZZy1uMDRJMml1RXQ1bXIxM1daVXZINklLZEtRTTFtQTNEQkJqNHVIWWRSVTVZZ1g0Mk9iT2FB?oc=5) |
-| Fury as Camp Mystic to reopen after flash flooding killed 27 children - The Telegraph | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQc1N0WmJiLWNTa21yLUd4eHVhZkZrVDI1QnVTd3lxcnJCakJkNDdFVU5nSDlzUWhRaEhQaVNVZ0tmN3lnQWJOUHQxUmRQckhJYnpIQkFLc0hZLWJUVEVmb3VWUjE0NWR2X0hCRlE3blh5RWVPQjZPSWxoaFBfbjcxZF9BdnZfY1hrWDhOcWtncVRGNEhH?oc=5) |
+| 'You will be the next Charlie', Youngkin tells students - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNNDd2Wm0wblpiTFhZVlFKR0Fab3JwQ2xzT3hvaGxCcWJKZGNVZEg5WG51NWRsVXFQdTZhX2dzNXVXQjBYZXR0VEhaR3BCUllPQVF0bkRnTXFXSUllemJxeTRCVEVqVTh4eEllMHlWY2hSTEZfVDVlZWlxVzNfNDByMm8yeHk0N2Q3RXBIQ3MyNA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
