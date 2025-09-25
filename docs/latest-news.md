@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月26日 03:57:23（北京时间）**
+🕒 更新时间：**2025年09月26日 04:00:39（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What we know about the Dallas ICE facility shooting - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxORldtbnVBbFJTdVR4MHZUMkN5R1VCTnFKNHpnQWtGbkRQX3gyN0tUd2VuOVBEem9PZGh4OGxHdEhhelFSbFhRc09nZXY2cUt3bDdCT2h2ZHcybUdzeHMzcjI2cEFxUURjOW9JWFBNX2JiSzlpUkpERzVlYnV0YlFFLXFNWlBvdw?oc=5) |
+| What we know about Dallas ICE sniper suspect Joshua Jahn - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE10YVRhQmVucDNoTS1UbjQxaFpFVktyUUVSbVRZTEh4WFRqMFE5eG93Um5TMndDTUN3SUpuTEtlSkhLQzJMZnVQeG1WVjNvb1luQUNvVXppbXliQWV2RWZHV3VKN01TZ3g4clJ0V21KYm9zblR1b1Bzajln0gF_QVVfeXFMTk5wNHBxbVBrNTRpMDNXZUNudFRMckFvZ1RPbW12RHluSVJWeWxMQUJzeU5vNktfY1dJQjctSEVOLVZTczY4VkhOTU5HTElVWFpLX0hHYUFpUHMtOTFZS3VObEwzMVVaOEZCc3JMbTl0VTlDVGR6MjVTQ2FENko1Yw?oc=5) |
 | White House begins plan for mass firings if there’s a government shutdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOUGNjMWt6aWRtN0JaV0VmYlhJUzZHdWJfYjRqVkFPWDR1OXVwLTJYYUgzNjNSdnlNTFVtV19WVU5IZE9vMldIa1d4aVdRc0lHS2VmWm9UazVKR1N0Y1FNM0JiNmlwbmc5dVFocjVOR0w2LTVXOU9oWTVubmF6TmxldXEtclk0RFVWOGpMTW9aN0ZUMEU?oc=5) |
-| Hegseth orders hundreds of senior military officers to Virginia for highly unusual meeting - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1QcXRlOHFma24tOFZEZXU1RE9fZmRnYklLMHRWZ1RWcDNSb3A1RlNrMkQ4Y1BNM01WNVVuRnF5dXEtR1l0ZDY2b0pWVHhSRzN6SjVUMFR3SFhLWEJGZFVBeHFMTTBxcFF4akxyOWN4M19KUWVPaDNLQ2Z4V2trdw?oc=5) |
-| Prosecutors' memo to new US attorney found no probable cause to charge James Comey: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQMEN1YnFqRWJUZTVCeHB1RXZ1LW5TYWZNb1lyMmRycXd1Zi1hbWNTUU9EZmQ4U0daS2htWnpYOHpzVFVEOHpLSE9qOXVuejZlS2Z2S09KSTdldVBReGdwUVFjb1J2emhVZGNMUkhMU3VtU0J0bnMzVlVIc1FkZDB4X1ZJLVNUVlBDaW10akExblIxVXB6d00xMVQ0SThxekVmSDhuLdIBqgFBVV95cUxPVFhhOU8wTEgxWmxxNU01YWpnZURjRUlibVVEMjFRTTVOUHdHNERPMTI1ZTljcWtHVm95ODk1RzUtdENObXk2NTR6MnctVUpwTkhPbl9OSkF6TEFBcHdnbzc5SGExdElsRlNhcG1zbWw3NDQ2SkFDbkJLaXVOcm1XWHcyMGh1VDJHU01oZTVNVFh4LUctUXczWmI0bWEySUpJY2g4Mzl1SUlVQQ?oc=5) |
+| Attorney General Bondi and prosecutors have reservations over charging James Comey, sources say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPb3J4UGNpMVJHbDN6M2d1bldfb05ySGpsNDRFdG9IaU9zek8zNjhaYXQ0UGswTGp0STJVWXppRmo1bWlQZUF1S2VuNlBOTnBFM0t0NzAtUXZtamlwZkFCcFNvZnBIY2tlZTAzV0szeTNnVHBINnRaS2NXb196Tmd1RVFHNzRTSC12TF9ocWxQV3BKQ2xFUk9EbDh5eWs3c2hy?oc=5) |
 | Commentary: Escalator and teleprompter humiliate Trump, so Fox News' Jesse Watters suggests 'blowing up' the U.N. - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQX0FSam1vTWFvM0o2Vk9rZDFhMXFMeEo1bTR0RWtVeGhLUDdVemV1bzNHMFNNbXMwa1c5YVVvTEh1WHJ3blM0T3NKUUljOFJ5MlpDejhoTnctWnRROWNnZlZ1bVRrdThQMFpLZ2dkNVFZUUotT2xVc2ZCRDREcC1Cd1BldlFJVDFVT0V6NDg2T1E3blFVZXdSREE3Y3k?oc=5) |
-| Justice Dept. Official Pushes Prosecutors to Investigate George Soros’s Foundation - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQSFpFWThKY0RkUUF3bDQ4LUtVN3Z4Q0pSSUd0WWFhWkh2Yml1UElBVlNhZThLN2pMXzNtTkhZcnhveF8zdEYyLUhBdXdZclhrbkdjSTBMeVpJLXVac2VsdmU2Y0pfeE9Vak9JNno3ZU5XV1ltZm14Tk5qbmdUeHpDZ3BVLWdQanRRbmNXTmZnTjVXOFk?oc=5) |
 | Ryan Walters, Oklahoma Education Chief Who Promoted Bibles in Schools, to Resign - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1hdWhNV3RwZnhNWDVUT0t2UHk5aldudS11TnB3dnNmS2J3aWdOVlB5QkFvdDdITXp3emYxaDl0VGprZmVTQ09PbkdhN2N5MDlFYnhCaHhRQVdNc3h4YnpYQkF6ZUxack5USFZ4aHo4OFRqaGh3a3BTMjdoMA?oc=5) |
+| ‘Violence against the truth’: Obama denounces Trump's Tylenol claims - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNV3NWTFRFa2RzLVh6VmVpQUhRQUliQ1RwV01QaHBtUkhVR0lCMjZBQVZVQ2RGalhzMXF3NElrSGgzRFJnYlZKd3ZkblFQdDdYQlNKOU9QREVYRjhrZ05zYWlkeGpvR1VNbC1TbmVHRXBQYVVUanFDMEdRSmdiRVlKaFFn?oc=5) |
 | Fujiwhara effect explained: Here’s what can happen when two hurricanes get too close together - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQdmtBNk1MQjFBNmVVZzVBZ0tRdHZFV1dZTUFSWUtRUUc4S20ydmcxZHV2MmNnRVFzVTRWUWhsZzhkbVNxRWgxNmx2bnVsU1phV2p4Q1BpQ0NlUTBSUnJsdHhUM0FRMHc1aDVqVE1Tem1Wd1ZYa0REZURrTzRXZEdPVUQ3SQ?oc=5) |
 | Justice Department sues 6 states for failing to turn over voter registration rolls - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNbHhuMEZhU1Ewc2JEYlo5RzBaT2hxNWFDd0xhTUFnVFFTbmlkMms2ZXEtX1NFTldTMFNqRFhJekpUWVBES0JkNU8teTZoNmQ5aGtLVkVTeENvSzlpQTVBNzlfYko5NFRQOVg0azg0WmtXcjJ6cWI3b1B5dXJLcW5EM1Z2RWYwR2FCWnF0N9IBkgFBVV95cUxPaVFxRU9WYTF1aWhVZGt0OW5HRmJuQjEzMjVxMFB2ZUhybTNoSzh1cjg4aXZpMlM5WUU3SnRDWW5IX05EOHg1TUIxN0VvdlNzZFkzc2JtS3N3cF9OTDVTRlZOeUtORVU1dDlkVDVaTXk5MU0wTm5Ub0RBdFV1RHI4RE16MnQzSjlwN2NHcFpwZ1llZw?oc=5) |
 | Sherrill, Ciattarelli tied in new Emerson poll - New Jersey Globe | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOMU5sX19Jb0pyQk14QXd0bWlTRTA1cHBzYVZaS1BpRW01NUdyZ3VTWnRtQm90UG5OZm91ZHlHX3o2QmlpekhPMDBMZ0VFeEh4RHduYS1KbmpBR1ZVN01sb1RCY2pNODZsTzM4cU8tdWZXaURFTmR1UlJSa09LWXRsdHktN2gxRGpFaUE?oc=5) |
+| What we know about how a government shutdown would unfold - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNQWdxdHlnd19yMXlMQ2paRFN2Z1JuTzk2aWxRSFNCUFNiY3NyUXBkWVg5cGMtcC1LeXBRdjYwaTVEenFfMHo5SjB2OGhpRmNCQVZBYkdpeUM4dmRndllOaGJYYnhxRFhfaGVtTWVfNlhiWWpVcXN4d3lDWE84YzhlajFYUC05UUVtb1pqaEt5Nkh0NUhkWDBHTDFlUlhxX0ZUeUk5aQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
