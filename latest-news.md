@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月26日 02:16:54（北京时间）**
+🕒 更新时间：**2025年09月26日 02:25:55（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | What we know about Dallas ICE sniper suspect Joshua Jahn - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE10YVRhQmVucDNoTS1UbjQxaFpFVktyUUVSbVRZTEh4WFRqMFE5eG93Um5TMndDTUN3SUpuTEtlSkhLQzJMZnVQeG1WVjNvb1luQUNvVXppbXliQWV2RWZHV3VKN01TZ3g4clJ0V21KYm9zblR1b1Bzajln0gF_QVVfeXFMTk5wNHBxbVBrNTRpMDNXZUNudFRMckFvZ1RPbW12RHluSVJWeWxMQUJzeU5vNktfY1dJQjctSEVOLVZTczY4VkhOTU5HTElVWFpLX0hHYUFpUHMtOTFZS3VObEwzMVVaOEZCc3JMbTl0VTlDVGR6MjVTQ2FENko1Yw?oc=5) |
 | Democrats dig in on shutdown after White House layoff threat - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNR0FoRXZsVDhXSTJQMHlUQUoyWVFDbGFHcXRiY0VXb21DQ3ptZ0hHWkZYU2xJWl83NW5SaVh5UUpIOV93LV9tSXZGTVNSRGRmdVZZeFVzei1HWjJKU2dBdFdWT2VOQ0R4RUhfTWlKX2xZMmdmdzltUWdGV2w1el9CZER0Z2sxdDZJRHpSbFNfVW9NVjVScnpMbHZEYXd4QXR3WlpINnJhc0pGWEdkN0pz?oc=5) |
 | Attorney General Bondi and prosecutors have reservations over charging James Comey, sources say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPb3J4UGNpMVJHbDN6M2d1bldfb05ySGpsNDRFdG9IaU9zek8zNjhaYXQ0UGswTGp0STJVWXppRmo1bWlQZUF1S2VuNlBOTnBFM0t0NzAtUXZtamlwZkFCcFNvZnBIY2tlZTAzV0szeTNnVHBINnRaS2NXb196Tmd1RVFHNzRTSC12TF9ocWxQV3BKQ2xFUk9EbDh5eWs3c2hy?oc=5) |
-| H-1B visa: US tech sector scrambles in the face of $100,000 fees - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1FZjdrTGJ3cGZTcDQ5SWVrYmYxNHJHODgxYnp3Qzl3Tkg1WTF4ZDFrNUpGZFdULXJFLVpPelg3RThnS0loT2RQY1VycWJUZ2JfTUlOVWNLZWFUZ9IBX0FVX3lxTE14T0MxMm9yYW91QXZlNnFCcE5lMm9ocjlyRXJkQmxETU9DZjFfWXEyX0VrdUdQMGRKQmxFVjBBdXRoXzRlTjgxc3ZYOGdSbzJfZTdrNTJ2U2ZyMTRCbzFN?oc=5) |
 | Commentary: Escalator and teleprompter humiliate Trump, so Fox News' Jesse Watters suggests 'blowing up' the U.N. - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQX0FSam1vTWFvM0o2Vk9rZDFhMXFMeEo1bTR0RWtVeGhLUDdVemV1bzNHMFNNbXMwa1c5YVVvTEh1WHJ3blM0T3NKUUljOFJ5MlpDejhoTnctWnRROWNnZlZ1bVRrdThQMFpLZ2dkNVFZUUotT2xVc2ZCRDREcC1Cd1BldlFJVDFVT0V6NDg2T1E3blFVZXdSREE3Y3k?oc=5) |
+| Trump hosts Turkey's Erdogan at the White House as the US considers lifting a ban on F-35 sales - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNQnVxakQzc19DbGlCVko2cDVZU1pZTENHLTJxU292VU9ldTdaSFlLdzMwR2pSUU53YVhVSlZHTU9JQ19RTnR3d3pUVjZJYVF6VlNUUUppbVR6Tm5Pd0swdDV1b0g0b3A4YXNzUWdQbk5NVlBOWmVUR0ZrZVBtY1NqMlBuUzlRYV9CZEMtMmlSaEx1TGlQenc?oc=5) |
 | Oklahoma superintendent who put Trump Bibles in classrooms resigns - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNb2o1NXFnT09TeVBkZ1l2SzhOQkJhc000ZjBaendGeE52eHZuVlN5ZEhzNUdBcV85bUEzNE9Nd1F6c2gxdlpfNFNzUm1LN29nTnFEN05aZXVEMGxMOTR0NDBHZUNfU0w1dXo5V3pFYzBpZ25EenZkdFVtYjFCUTU0WkEyYklvbjRvWGdCRURoeHlhaW44enlr?oc=5) |
 | Alabama to execute man for 1997 shooting death of store clerk - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQQng3NHZXb1ZxSHQxazB3TGx4d3lqdlZIUklEOXhZSl9RdWVySGN2a19CUENSWEdwdGpGeUJibDlPc0JfRVM1Y3R6bFl6MU9MaUswNWZUUG0tME9HVUhuMDFMci1wblVzcVlveklLS29pMnlKOEVYQ1FtMC10V2YtNHJoVE8tT3dPM0I1QWRqT1RVS0JoR19tY2RPamY1OGZJ0gFWQVVfeXFMT3pJTC04QlpiOTVpN280Nm50aUZiMjloWFoyNktlSlkyMTBjUmtTN0RVYVR2M3NDMmRMVEVCeEtpWFY4Yl8wOVp6LWw1Q0lfRWV4Tl9LRUE?oc=5) |
 | Jimmy Kimmel rips Trump as ‘80s-movie-style bully’ in second night back from suspension - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPN0Z5ZUg4bC0xM0lXOFFXT3hkMW5SMWJpM1lXSGtYMnpsaFdNZW5rZGU5LTRBQ3lLS3h1X2V2Z0xKSU91Y1c5YUxVLTJXWC1wQXlNMWZ1RUJyOFdPTk5ZZUVYTEFFWVhCdmc1WmJnNUNhMUJ3b0FHREdBOTg1NVozY3RhUHdRWGxpZWs4SkxDUkEwZURCTVNmc3ZaQ2tpUQ?oc=5) |
-| 2 hikers injured in bear attack on popular trail near Seward - Anchorage Daily News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNVVhfaGw0TEdJS1RvejlXdGR4RGZ2N1dwR2JvUEllOXpvZ3F0TnpYVE0zVzQzTFl3OUJqOFpscElCNlp2clo3Z0FEYnd4UkNWOGdHTzg4eENpQm1tUFQ2WGZFbzhTOVVNTUJPZTgxd0RMenprU2c4WHdReUM1QlQzaGx3WEJ4NmlTOWFtNS0tYTM0NXF4enc2MXhZQWFZdUZ2NTBlSjJUcDNwMVA2YURad2gtcw?oc=5) |
+| Potential tropical threats to Florida, U.S. East Coast grow as two storms inch closer - Sun Sentinel | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQTG9KVnp2cTFIZC1QQnlybGZnb0F5RzVaeVYwaklqc2JHd096bTdoUmxtc1N1RkwxdzNYd1d2Uk90U1YxYnVBTEVkbGYtTmVfdVRqQ09DbUxFcU1FN0V1MDNPVlcxM3YwRkFHY0pBa3RtR05QQlFmNEF4LUZZOU9RTzdBaE5DMXc4ZVJDMzM3MEhUNGtuN0VPTHFDZzc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
