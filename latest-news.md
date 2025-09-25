@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月26日 03:16:19（北京时间）**
+🕒 更新时间：**2025年09月26日 03:24:51（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Hegseth orders hundreds of senior military officers to Virginia for highly unusual meeting - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1QcXRlOHFma24tOFZEZXU1RE9fZmRnYklLMHRWZ1RWcDNSb3A1RlNrMkQ4Y1BNM01WNVVuRnF5dXEtR1l0ZDY2b0pWVHhSRzN6SjVUMFR3SFhLWEJGZFVBeHFMTTBxcFF4akxyOWN4M19KUWVPaDNLQ2Z4V2trdw?oc=5) |
 | Attorney General Bondi and prosecutors have reservations over charging James Comey, sources say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPb3J4UGNpMVJHbDN6M2d1bldfb05ySGpsNDRFdG9IaU9zek8zNjhaYXQ0UGswTGp0STJVWXppRmo1bWlQZUF1S2VuNlBOTnBFM0t0NzAtUXZtamlwZkFCcFNvZnBIY2tlZTAzV0szeTNnVHBINnRaS2NXb196Tmd1RVFHNzRTSC12TF9ocWxQV3BKQ2xFUk9EbDh5eWs3c2hy?oc=5) |
 | Commentary: Escalator and teleprompter humiliate Trump, so Fox News' Jesse Watters suggests 'blowing up' the U.N. - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQX0FSam1vTWFvM0o2Vk9rZDFhMXFMeEo1bTR0RWtVeGhLUDdVemV1bzNHMFNNbXMwa1c5YVVvTEh1WHJ3blM0T3NKUUljOFJ5MlpDejhoTnctWnRROWNnZlZ1bVRrdThQMFpLZ2dkNVFZUUotT2xVc2ZCRDREcC1Cd1BldlFJVDFVT0V6NDg2T1E3blFVZXdSREE3Y3k?oc=5) |
-| Justice Dept. Official Pushes Prosecutors to Investigate George Soros’s Foundation - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQSFpFWThKY0RkUUF3bDQ4LUtVN3Z4Q0pSSUd0WWFhWkh2Yml1UElBVlNhZThLN2pMXzNtTkhZcnhveF8zdEYyLUhBdXdZclhrbkdjSTBMeVpJLXVac2VsdmU2Y0pfeE9Vak9JNno3ZU5XV1ltZm14Tk5qbmdUeHpDZ3BVLWdQanRRbmNXTmZnTjVXOFk?oc=5) |
 | Oklahoma superintendent who put Trump Bibles in classrooms resigns - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNb2o1NXFnT09TeVBkZ1l2SzhOQkJhc000ZjBaendGeE52eHZuVlN5ZEhzNUdBcV85bUEzNE9Nd1F6c2gxdlpfNFNzUm1LN29nTnFEN05aZXVEMGxMOTR0NDBHZUNfU0w1dXo5V3pFYzBpZ25EenZkdFVtYjFCUTU0WkEyYklvbjRvWGdCRURoeHlhaW44enlr?oc=5) |
 | Fujiwhara effect explained: Here’s what can happen when two hurricanes get too close together - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQdmtBNk1MQjFBNmVVZzVBZ0tRdHZFV1dZTUFSWUtRUUc4S20ydmcxZHV2MmNnRVFzVTRWUWhsZzhkbVNxRWgxNmx2bnVsU1phV2p4Q1BpQ0NlUTBSUnJsdHhUM0FRMHc1aDVqVE1Tem1Wd1ZYa0REZURrTzRXZEdPVUQ3SQ?oc=5) |
 | NYC staffer violated 'sanctuary' laws by sharing migrant info with feds: report - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxOUlpFaG90T0tFcVlXblJzbktDb2lwSUhlMmVDaVNsczdmQWxXWWF3N0pHNzRIUWxVcXZQemxOZFB3dGpKdlYtbnlRaDQ1V1NYREl4VjRsNkw3SFBvOThlbUloaFk2OFN0ZkNkQjQybGpzYjl4amZsNDlMNXBsYThKdTdpNV9BQ3hTanZsaTBUeFl1OHJ0TXQzSXM1el8yOXBiOE5GcDZRTmhCcTg1X2hVMzRvXy1XQ29xTE5IWjhhRlY4ZzFD?oc=5) |
 | Jimmy Kimmel rips Trump as ‘80s-movie-style bully’ in second night back from suspension - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPN0Z5ZUg4bC0xM0lXOFFXT3hkMW5SMWJpM1lXSGtYMnpsaFdNZW5rZGU5LTRBQ3lLS3h1X2V2Z0xKSU91Y1c5YUxVLTJXWC1wQXlNMWZ1RUJyOFdPTk5ZZUVYTEFFWVhCdmc1WmJnNUNhMUJ3b0FHREdBOTg1NVozY3RhUHdRWGxpZWs4SkxDUkEwZURCTVNmc3ZaQ2tpUQ?oc=5) |
+| Sherrill, Ciattarelli tied in new Emerson poll - New Jersey Globe | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOMU5sX19Jb0pyQk14QXd0bWlTRTA1cHBzYVZaS1BpRW01NUdyZ3VTWnRtQm90UG5OZm91ZHlHX3o2QmlpekhPMDBMZ0VFeEh4RHduYS1KbmpBR1ZVN01sb1RCY2pNODZsTzM4cU8tdWZXaURFTmR1UlJSa09LWXRsdHktN2gxRGpFaUE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
