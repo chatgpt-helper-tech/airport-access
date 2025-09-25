@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 11:57:46（北京时间）**
+🕒 更新时间：**2025年09月25日 12:01:01（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Victim's widow files the first lawsuit after January's D.C.-area midair crash - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQdUkwRjdMelQycVk2ZzFyd2FKTk04QS1JRDJJdmFWT0F4WHFsUU9RaE5ZYW96QnFQU1pUdUN3QkFXNkI0Wm5vUEFyMV9aSG9uY0xCaDJYUTU3LXp4TjFHUVpPOEpXOFB0Z3UxNzVFazA0TjBsZTl2SFNOWUFJeVRUQzI3c3I5TFNvUEJBRUxFNFZwTlhFZWdKUkwtSUZIOVhyRW9oVHdSd1c1WkE?oc=5) |
 | H-1B visa: US tech sector scrambles in the face of $100,000 fees - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1FZjdrTGJ3cGZTcDQ5SWVrYmYxNHJHODgxYnp3Qzl3Tkg1WTF4ZDFrNUpGZFdULXJFLVpPelg3RThnS0loT2RQY1VycWJUZ2JfTUlOVWNLZWFUZ9IBX0FVX3lxTE14T0MxMm9yYW91QXZlNnFCcE5lMm9ocjlyRXJkQmxETU9DZjFfWXEyX0VrdUdQMGRKQmxFVjBBdXRoXzRlTjgxc3ZYOGdSbzJfZTdrNTJ2U2ZyMTRCbzFN?oc=5) |
 | Trump’s attacks on Kimmel and ABC put him at odds with high-profile conservatives - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOcHEtTTNXazVqS3Nxa2pnSWdCWGJVOUtqRFR0QWJQTzZlbUhfNUNGY0VKaDlBRE1FZ3VGV0JKTFRseFRnV2dpZ0lHcXJYNFg0MVFVVkZJU2pkMHJqUEpydXByWTI5WUtkaGczYWxfbVQwMEQ5eW9xakEyQUpZWW03V0JlcUZHU29tWmE1RkxjSTVVUGk3OGlBYXVoMXlaZXpreTFJ?oc=5) |
-| Days away from a government shutdown, agencies’ contingency plans still unclear - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxOY3Z0anQ2YlUyRk5nQ3ZoMk8tbkJMbUJwTHJfZmdGS0N3Y3FfSFNwYkpXNlRBWU9SclZQSFVkUlNuV2g1U1otazJSNDlyUUVmNzQyalNsOGNFd0dJWTZHWjRIeFVPbWxTNGtoUmhEWUJaTzJMZ05DZThxWXFKNlFvcWwtMU5Yd0pkNmF0QkJZbGhlZDBKUUp2blVXSEhZZy1uMDRJMml1RXQ1bXIxM1daVXZINklLZEtRTTFtQTNEQkJqNHVIWWRSVTVZZ1g0Mk9iT2FB?oc=5) |
-| China doubles down on climate, wind and solar pledges — a day after Trump called them a 'scam' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxQcVdZSXdzLUFiNENpU0lwczhmMUJiNkoyVU5SR3N4dDNpaE9KRUZmdWRnbEtYNmN5ejlmQU1wTGpDdEFMdUV4YThENXJVSzZwcE1jS2d4Y1lDdDhoaEdnMUV4bThjZ0F2V1JaT09ET2hnTHI4MmJxLS1DNmhqNDhyTU1VaGtFM21kMGFfVkttSHhjMkdFSHlrd1NJSy0zZkQtbmZqMlVNR3RtYThUWU8yS1lRX05uS0NRbDYyUnlUWTFxWW04MVlFaFZuRDJfTUhnaHV5UDdn?oc=5) |
+| 'You will be the next Charlie', Youngkin tells students - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNNDd2Wm0wblpiTFhZVlFKR0Fab3JwQ2xzT3hvaGxCcWJKZGNVZEg5WG51NWRsVXFQdTZhX2dzNXVXQjBYZXR0VEhaR3BCUllPQVF0bkRnTXFXSUllemJxeTRCVEVqVTh4eEllMHlWY2hSTEZfVDVlZWlxVzNfNDByMm8yeHk0N2Q3RXBIQ3MyNA?oc=5) |
+| Judge rules feds can’t require states to cooperate on immigration to get disaster money - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPRXVHcG5PQkMzUmZTRzk5UEI1bWZac2F6Z0kwdmN5eDlxUGxVb0tZc0RwZTRkYzBQTDZPa3dWdm1PU0UyWnZTU3VjSHRDbXpaclBLU1c1UnF5WXE3RDJaZTFoMkFGclB3ODA5MVlKMHpKRllFT0NydGx6VFRwY3FXQVVIS1NSZkUxVFMzWG5yMnlHS3VMTXpSZHFYakphd25IZ2pDUWhPRkpwaW5DLS1R?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
