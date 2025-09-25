@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 16:48:48（北京时间）**
+🕒 更新时间：**2025年09月25日 16:57:06（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | 'Film me all you want' - teenage girls with no fear of police torment one High Street | [阅读全文](https://www.bbc.com/news/articles/c0q751vlxw1o?at_medium=RSS&at_campaign=rss) |
 | Government considers financial support for Jaguar Land Rover suppliers after cyber-attack | [阅读全文](https://www.bbc.com/news/articles/c62nv0xx32go?at_medium=RSS&at_campaign=rss) |
 | Labour MPs are privately urging me to challenge PM, says Burnham | [阅读全文](https://www.bbc.com/news/articles/c7v1m873mjyo?at_medium=RSS&at_campaign=rss) |
-| Ticketmaster told to give better price information after Oasis ticket complaints | [阅读全文](https://www.bbc.com/news/articles/cqxzqvw4lv8o?at_medium=RSS&at_campaign=rss) |
+| Ticketmaster agrees to give better price information after Oasis ticket complaints | [阅读全文](https://www.bbc.com/news/articles/cqxzqvw4lv8o?at_medium=RSS&at_campaign=rss) |
 | Trump demands inquiry over UN 'triple sabotage' after escalator and teleprompter mishaps | [阅读全文](https://www.bbc.com/news/articles/c3dr0zrr1kpo?at_medium=RSS&at_campaign=rss) |
 | Woman in Spanish cold case identified after 20 years | [阅读全文](https://www.bbc.com/news/articles/cj4yqwnl1q7o?at_medium=RSS&at_campaign=rss) |
 | Australian film altered in China to make gay couple straight | [阅读全文](https://www.bbc.com/news/articles/cp8w9492lg6o?at_medium=RSS&at_campaign=rss) |
