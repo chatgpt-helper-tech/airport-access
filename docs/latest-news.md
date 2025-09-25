@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 11:17:28（北京时间）**
+🕒 更新时间：**2025年09月25日 11:25:49（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Vance blasts ‘Democrats like Gavin Newsom’ for immigration rhetoric following shooting at Dallas ICE center - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPX1NWcVhVYmFYYTF6cTEyeWQ4T214LS1Sa3F4OG9sS21lNUtlUjFrcFdSTzV1d01WUTcwbHE2ZTJSNl8ybXJSRlZOdjFVVjY2cS1hUTY0UHZVWXZqZHY0cFktMmlLSDVHaW50R1UyTGxjWnpKenVMenU3Z3BKWnNxTU5XMXZMSnczUlZwVDNKWTJaeGpVNUZXeGpJbHhlQXZlcDZXVXhMYkhjb2hQNXB4Vg?oc=5) |
 | Va. federal prosecutors preparing to seek Comey indictment, people familiar with matter say - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOZ2NHbmVmQ2w1TlJ3Z2F6ZTlkRURjajVxUUNObWlsbVdKVGRNLXpnOXVfbE9RRzZHR3drUFdpc3ctVDkzQ0s4SUZXMFFBbDJfS3hMTWxtNEM1b3VjWURBdUlhNjFnZWRIU2dFMUQ3SmVfZVVKMy16dmprN3J0OTFBUTlGSFFyZW9lMUUyOVg0dks3RTV2TERMYkpNa3NwWk9rSFZB?oc=5) |
-| Trump demands investigation into alleged ‘triple sabotage’ at the United Nations - CNN | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPYlAtUjM3ckZsbEJiX19tSTh6Y2VLMjdUSDhNYWswWVdDSzJLRnFJTFBYQ09HRV9SMnlPS3dNakFmRWJhTjVHMUJFLWxKVlZ0M0hjaktSTGVzUTd6YnRHZDFILXliUk5KMmVQTnJrTlVRRE9RNjFUZlFwTTRVeG9GMjVsQTVmbFlXbWkzOHZpbFhyNDJOb00wMUxnbERXaEJJdVE4Q0RnTQ?oc=5) |
 | Trump wears MAGA down with Ukraine reversal - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5oaW9xTGstSzdyUmRFeG1odzhTU0dBNzNvN210Z3BNcnpqcDlRZnN2NXBwb3RwZXFWN0ZKZko5T1dSUlU5UEF2ZEZNWWdndDFXNk5sTXhmTVlnQmNhRW9vN2oxVnJuRHpkZkpfLXczVHdfQ0J0eGdrbQ?oc=5) |
+| Trump demands investigation into alleged ‘triple sabotage’ at the United Nations - CNN | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPYlAtUjM3ckZsbEJiX19tSTh6Y2VLMjdUSDhNYWswWVdDSzJLRnFJTFBYQ09HRV9SMnlPS3dNakFmRWJhTjVHMUJFLWxKVlZ0M0hjaktSTGVzUTd6YnRHZDFILXliUk5KMmVQTnJrTlVRRE9RNjFUZlFwTTRVeG9GMjVsQTVmbFlXbWkzOHZpbFhyNDJOb00wMUxnbERXaEJJdVE4Q0RnTQ?oc=5) |
 | Will Trump Sue ABC Over Jimmy Kimmel? Why Claims About ‘Illegal Contributions’ Are False - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxON0E0YjZjb0FYckJOeWVRWVJxX20wdU5ESHBPaEFLNm9nUmMtSW9CSWg5WEctdUZ3dV92NTZnV0hIQmI1VFpYbDRvbzFCOHpJRUFTLUMwbDBOX25LbXdYZnhmZEJPU2d4M2oxV2lobmx6Tlk1YmQ3QU9xQVNORjg1cHpfS1M1a3pXbm5qeEEtVlJZNng2Rm5KckpjR1ZuaUl3QnNiZktWc0RPMHhpRVZvVDJYa3BMZ0NNWmFDckZHVmI0NzVhb3dTb0VmZWJVWVJQanNfYVQzaUY4OFdXcmxvRklyX0RhaDNwLVFmd2V2dy1rQQ?oc=5) |
 | Victim's widow files the first lawsuit after January's D.C.-area midair crash - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQdUkwRjdMelQycVk2ZzFyd2FKTk04QS1JRDJJdmFWT0F4WHFsUU9RaE5ZYW96QnFQU1pUdUN3QkFXNkI0Wm5vUEFyMV9aSG9uY0xCaDJYUTU3LXp4TjFHUVpPOEpXOFB0Z3UxNzVFazA0TjBsZTl2SFNOWUFJeVRUQzI3c3I5TFNvUEJBRUxFNFZwTlhFZWdKUkwtSUZIOVhyRW9oVHdSd1c1WkE?oc=5) |
 | H-1B visa: US tech sector scrambles in the face of $100,000 fees - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1FZjdrTGJ3cGZTcDQ5SWVrYmYxNHJHODgxYnp3Qzl3Tkg1WTF4ZDFrNUpGZFdULXJFLVpPelg3RThnS0loT2RQY1VycWJUZ2JfTUlOVWNLZWFUZ9IBX0FVX3lxTE14T0MxMm9yYW91QXZlNnFCcE5lMm9ocjlyRXJkQmxETU9DZjFfWXEyX0VrdUdQMGRKQmxFVjBBdXRoXzRlTjgxc3ZYOGdSbzJfZTdrNTJ2U2ZyMTRCbzFN?oc=5) |
