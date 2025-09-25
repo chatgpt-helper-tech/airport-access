@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 13:41:20（北京时间）**
+🕒 更新时间：**2025年09月25日 13:48:07（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | 'She doesn't get another childhood': The lives on hold waiting for wheelchairs | [阅读全文](https://www.bbc.com/news/articles/cm2zwm8m41mo?at_medium=RSS&at_campaign=rss) |
 | 'Anti-ICE' message on ammunition at Dallas shooting that killed immigration detainee | [阅读全文](https://www.bbc.com/news/articles/ckge9d26z1ro?at_medium=RSS&at_campaign=rss) |
 | BBC and news agencies launch film calling on Israel to allow foreign journalists into Gaza | [阅读全文](https://www.bbc.com/news/articles/c8d7yrp80m8o?at_medium=RSS&at_campaign=rss) |
-| UK drug price rises 'necessary', says Patrick Vallance | [阅读全文](https://www.bbc.com/news/articles/cre53qgey0eo?at_medium=RSS&at_campaign=rss) |
-| Labubu dolls made up 90% of fake toys seized at UK border | [阅读全文](https://www.bbc.com/news/articles/c8645pdq4e0o?at_medium=RSS&at_campaign=rss) |
+| Drug price rises needed to keep pharmaceutical investment in UK, says minister | [阅读全文](https://www.bbc.com/news/articles/cre53qgey0eo?at_medium=RSS&at_campaign=rss) |
+| Labubu dolls make up 90% of fake toys seized at UK border | [阅读全文](https://www.bbc.com/news/articles/c8645pdq4e0o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
