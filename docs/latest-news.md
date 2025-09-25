@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 08:33:21（北京时间）**
+🕒 更新时间：**2025年09月25日 08:40:21（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Checking in on the ‘seven un-endable wars’ Trump did (not) end - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFBPLTdaMzc2b19WQWR5MUdLa0lTZHk4WlJVLVdtdE1WYm1QN3B6OVJQcFlaRkZGNW03eHYwWjFlTk43bXpMc1hCaWhxMTNvVGNweEJrMmRrV3Z4TS1Xa2ZIb1VwU1ZPdkpUNG9HelBtcUJJZm1LY25N?oc=5) |
 | Judge rules feds can’t require states to cooperate on immigration to get disaster money - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPRXVHcG5PQkMzUmZTRzk5UEI1bWZac2F6Z0kwdmN5eDlxUGxVb0tZc0RwZTRkYzBQTDZPa3dWdm1PU0UyWnZTU3VjSHRDbXpaclBLU1c1UnF5WXE3RDJaZTFoMkFGclB3ODA5MVlKMHpKRllFT0NydGx6VFRwY3FXQVVIS1NSZkUxVFMzWG5yMnlHS3VMTXpSZHFYakphd25IZ2pDUWhPRkpwaW5DLS1R?oc=5) |
 | The Trump administration is pushing courts to make more ‘new law’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPODVKT0xWcWZua2N6d25id1V4NmZhWFlGMnItcUVQUnBhTWM4VV9yM2dYVUFnUXhnRHpDWndHMmRFYzVNMXBmaHROb3NBc09ZY0FVa2tZV21uRnZJMENNU0g2ZjZ2bXAtT2JDV0FBNFhFcm0tNG05cHR4QU03bm5iX19Fc1YtRm5YazdaVkhSX3RlUQ?oc=5) |
-| Will the Trump administration's $100,000 H-1B fee help Americans get jobs? - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNNm5XVEp3QzZYNnJ4Ui02Wk1PT2NPajk3aEZZeWVjekVaaFFiWWZXQ05DMGx0ZHVDYktGeU8yTWRmNDZHanJHMmNzOXc3WGdqVnloS01DWmFGckdocFVwZG4weF9wWDVPZFBaWEdFbGREWjlGdjdsRjU5M3FxNVg5cUNEb2FsV2k3OXBZ0gGQAUFVX3lxTE9icWNNd3UwZi1mTEFiYTJUcE42dHNLSHJJQnFpMng0Y1VMdWdvUnZVSWRGNW4xQ3VHTG1VcFNJR2NrYXhKVkNTX3dCUHkzQU9KbFJGSzI3U1hUUjdfSHpYelVkcWlFdmVwNlowcUF0eW9fRE9jaEZ0eHRyVFNJTXlhZ0NoQUowMGVhd1RwdGktVg?oc=5) |
 | Victim's widow files the first lawsuit after January's D.C.-area midair crash - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQdUkwRjdMelQycVk2ZzFyd2FKTk04QS1JRDJJdmFWT0F4WHFsUU9RaE5ZYW96QnFQU1pUdUN3QkFXNkI0Wm5vUEFyMV9aSG9uY0xCaDJYUTU3LXp4TjFHUVpPOEpXOFB0Z3UxNzVFazA0TjBsZTl2SFNOWUFJeVRUQzI3c3I5TFNvUEJBRUxFNFZwTlhFZWdKUkwtSUZIOVhyRW9oVHdSd1c1WkE?oc=5) |
+| Trump demands investigation into alleged 'sabotage' of UN escalator, teleprompter - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQcGh2SXk5eWJPS09RT3E5UmxzSVlBY1pkVXo0amMzOXBGUGhPb0V2cElPd1B4S215bmxVNGFoNDZaTnJTZV94NWtsa0NSSXFiZ3I4Tzk1V0Zrd1NRWTFrVUlBUkI5TnRLM1JBSFlJclNhbV9LaTNNTEc4R3RuLUxsV2hJNFFWR2hR0gGOAUFVX3lxTE9MMW5kRnBibWVMTDhJalVUbDZPMWNPVVBJME5XSUVIZTJZRlVIQkppN1Z3RldYQ0ZIOE9yZmtqalM0NVhHeDZteEhNcUNLZ3ZTQnNVVzV1TFBMTkpUVHNMb3BjaWhWT051Q2JSenMxSmt2WDRVVnFNVmpIaF9DWGpEOUhyYU1XUVVxdGxIbmc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
