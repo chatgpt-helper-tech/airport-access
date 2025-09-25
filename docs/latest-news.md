@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 11:40:39（北京时间）**
+🕒 更新时间：**2025年09月25日 11:49:10（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Vance blasts ‘Democrats like Gavin Newsom’ for immigration rhetoric following shooting at Dallas ICE center - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPX1NWcVhVYmFYYTF6cTEyeWQ4T214LS1Sa3F4OG9sS21lNUtlUjFrcFdSTzV1d01WUTcwbHE2ZTJSNl8ybXJSRlZOdjFVVjY2cS1hUTY0UHZVWXZqZHY0cFktMmlLSDVHaW50R1UyTGxjWnpKenVMenU3Z3BKWnNxTU5XMXZMSnczUlZwVDNKWTJaeGpVNUZXeGpJbHhlQXZlcDZXVXhMYkhjb2hQNXB4Vg?oc=5) |
+| What we know about Dallas ICE sniper suspect - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE10YVRhQmVucDNoTS1UbjQxaFpFVktyUUVSbVRZTEh4WFRqMFE5eG93Um5TMndDTUN3SUpuTEtlSkhLQzJMZnVQeG1WVjNvb1luQUNvVXppbXliQWV2RWZHV3VKN01TZ3g4clJ0V21KYm9zblR1b1Bzajln0gF_QVVfeXFMTk5wNHBxbVBrNTRpMDNXZUNudFRMckFvZ1RPbW12RHluSVJWeWxMQUJzeU5vNktfY1dJQjctSEVOLVZTczY4VkhOTU5HTElVWFpLX0hHYUFpUHMtOTFZS3VObEwzMVVaOEZCc3JMbTl0VTlDVGR6MjVTQ2FENko1Yw?oc=5) |
 | Va. federal prosecutors preparing to seek Comey indictment, people familiar with matter say - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOZ2NHbmVmQ2w1TlJ3Z2F6ZTlkRURjajVxUUNObWlsbVdKVGRNLXpnOXVfbE9RRzZHR3drUFdpc3ctVDkzQ0s4SUZXMFFBbDJfS3hMTWxtNEM1b3VjWURBdUlhNjFnZWRIU2dFMUQ3SmVfZVVKMy16dmprN3J0OTFBUTlGSFFyZW9lMUUyOVg0dks3RTV2TERMYkpNa3NwWk9rSFZB?oc=5) |
-| Trump wears MAGA down with Ukraine reversal - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5oaW9xTGstSzdyUmRFeG1odzhTU0dBNzNvN210Z3BNcnpqcDlRZnN2NXBwb3RwZXFWN0ZKZko5T1dSUlU5UEF2ZEZNWWdndDFXNk5sTXhmTVlnQmNhRW9vN2oxVnJuRHpkZkpfLXczVHdfQ0J0eGdrbQ?oc=5) |
+| A new Trump policy on Ukraine, or more of the same? - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOdWRjVS1FR3hPYVc4NjIwSzd0SzBvY3BXUVI5VWRyR0tRZkVmXzQwMk9rS3NNbWNJSXdZSkdXSWxCckJJZmZCRnFicktncGptcUNzbUdiTW5zeFVpcmFYTm5hdk5nYUdrQ0ViTGV0UmNDQXBYSS1vaVBqYWVkX1pBclNn?oc=5) |
+| White House budget office threatens mass firings if government shuts down - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxORno1d2pVanBMYTRIQllBdXVlanFYU3FQT3ZrdnVoeU02LUI1SUl5ZUNNNUVGYTNoU0ZXNThYUnBCTC1zdlNaWTFMZlpKLWtxdkZ4REZCTF9iek9RUDdEM0lXVFVyRWM4RXlwOTNOZTFJai1qM1RuelpSdldGcEJIM2lYMlVRWG41a1BEMHZn?oc=5) |
 | Trump demands investigation into alleged ‘triple sabotage’ at the United Nations - CNN | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPYlAtUjM3ckZsbEJiX19tSTh6Y2VLMjdUSDhNYWswWVdDSzJLRnFJTFBYQ09HRV9SMnlPS3dNakFmRWJhTjVHMUJFLWxKVlZ0M0hjaktSTGVzUTd6YnRHZDFILXliUk5KMmVQTnJrTlVRRE9RNjFUZlFwTTRVeG9GMjVsQTVmbFlXbWkzOHZpbFhyNDJOb00wMUxnbERXaEJJdVE4Q0RnTQ?oc=5) |
 | Victim's widow files the first lawsuit after January's D.C.-area midair crash - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQdUkwRjdMelQycVk2ZzFyd2FKTk04QS1JRDJJdmFWT0F4WHFsUU9RaE5ZYW96QnFQU1pUdUN3QkFXNkI0Wm5vUEFyMV9aSG9uY0xCaDJYUTU3LXp4TjFHUVpPOEpXOFB0Z3UxNzVFazA0TjBsZTl2SFNOWUFJeVRUQzI3c3I5TFNvUEJBRUxFNFZwTlhFZWdKUkwtSUZIOVhyRW9oVHdSd1c1WkE?oc=5) |
-| Will Trump Sue ABC Over Jimmy Kimmel? Why Claims About ‘Illegal Contributions’ Are False - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxON0E0YjZjb0FYckJOeWVRWVJxX20wdU5ESHBPaEFLNm9nUmMtSW9CSWg5WEctdUZ3dV92NTZnV0hIQmI1VFpYbDRvbzFCOHpJRUFTLUMwbDBOX25LbXdYZnhmZEJPU2d4M2oxV2lobmx6Tlk1YmQ3QU9xQVNORjg1cHpfS1M1a3pXbm5qeEEtVlJZNng2Rm5KckpjR1ZuaUl3QnNiZktWc0RPMHhpRVZvVDJYa3BMZ0NNWmFDckZHVmI0NzVhb3dTb0VmZWJVWVJQanNfYVQzaUY4OFdXcmxvRklyX0RhaDNwLVFmd2V2dy1rQQ?oc=5) |
 | H-1B visa: US tech sector scrambles in the face of $100,000 fees - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1FZjdrTGJ3cGZTcDQ5SWVrYmYxNHJHODgxYnp3Qzl3Tkg1WTF4ZDFrNUpGZFdULXJFLVpPelg3RThnS0loT2RQY1VycWJUZ2JfTUlOVWNLZWFUZ9IBX0FVX3lxTE14T0MxMm9yYW91QXZlNnFCcE5lMm9ocjlyRXJkQmxETU9DZjFfWXEyX0VrdUdQMGRKQmxFVjBBdXRoXzRlTjgxc3ZYOGdSbzJfZTdrNTJ2U2ZyMTRCbzFN?oc=5) |
 | Judge rules feds can’t require states to cooperate on immigration to get disaster money - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPRXVHcG5PQkMzUmZTRzk5UEI1bWZac2F6Z0kwdmN5eDlxUGxVb0tZc0RwZTRkYzBQTDZPa3dWdm1PU0UyWnZTU3VjSHRDbXpaclBLU1c1UnF5WXE3RDJaZTFoMkFGclB3ODA5MVlKMHpKRllFT0NydGx6VFRwY3FXQVVIS1NSZkUxVFMzWG5yMnlHS3VMTXpSZHFYakphd25IZ2pDUWhPRkpwaW5DLS1R?oc=5) |
-| White House to agencies: Prepare mass firing plans for a potential shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQc193d24xa2pZN1ZaeXhlVEliX3B4TU1VRFBmVmlMX2RUSWNUQk1Da0FjMEhuYUFxbTc4QVdrMWR6ZEwwWS15YjlRZFZtQzdfQmFGOWViX0sxRFNNVm96Q255ZFZNX1hibXgycndZb3pTMmdOUGEwYUduOWdiZjFrYXJubEI?oc=5) |
-| China doubles down on climate, wind and solar pledges — a day after Trump called them a 'scam' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxQcVdZSXdzLUFiNENpU0lwczhmMUJiNkoyVU5SR3N4dDNpaE9KRUZmdWRnbEtYNmN5ejlmQU1wTGpDdEFMdUV4YThENXJVSzZwcE1jS2d4Y1lDdDhoaEdnMUV4bThjZ0F2V1JaT09ET2hnTHI4MmJxLS1DNmhqNDhyTU1VaGtFM21kMGFfVkttSHhjMkdFSHlrd1NJSy0zZkQtbmZqMlVNR3RtYThUWU8yS1lRX05uS0NRbDYyUnlUWTFxWW04MVlFaFZuRDJfTUhnaHV5UDdn?oc=5) |
+| Trump’s attacks on Kimmel and ABC put him at odds with high-profile conservatives - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOcHEtTTNXazVqS3Nxa2pnSWdCWGJVOUtqRFR0QWJQTzZlbUhfNUNGY0VKaDlBRE1FZ3VGV0JKTFRseFRnV2dpZ0lHcXJYNFg0MVFVVkZJU2pkMHJqUEpydXByWTI5WUtkaGczYWxfbVQwMEQ5eW9xakEyQUpZWW03V0JlcUZHU29tWmE1RkxjSTVVUGk3OGlBYXVoMXlaZXpreTFJ?oc=5) |
+| 'You will be the next Charlie', Youngkin tells students - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNNDd2Wm0wblpiTFhZVlFKR0Fab3JwQ2xzT3hvaGxCcWJKZGNVZEg5WG51NWRsVXFQdTZhX2dzNXVXQjBYZXR0VEhaR3BCUllPQVF0bkRnTXFXSUllemJxeTRCVEVqVTh4eEllMHlWY2hSTEZfVDVlZWlxVzNfNDByMm8yeHk0N2Q3RXBIQ3MyNA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
