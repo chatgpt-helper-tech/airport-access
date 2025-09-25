@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 18:49:12（北京时间）**
+🕒 更新时间：**2025年09月25日 18:56:05（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | H-1B visa: US tech sector scrambles in the face of $100,000 fees - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1FZjdrTGJ3cGZTcDQ5SWVrYmYxNHJHODgxYnp3Qzl3Tkg1WTF4ZDFrNUpGZFdULXJFLVpPelg3RThnS0loT2RQY1VycWJUZ2JfTUlOVWNLZWFUZ9IBX0FVX3lxTE14T0MxMm9yYW91QXZlNnFCcE5lMm9ocjlyRXJkQmxETU9DZjFfWXEyX0VrdUdQMGRKQmxFVjBBdXRoXzRlTjgxc3ZYOGdSbzJfZTdrNTJ2U2ZyMTRCbzFN?oc=5) |
 | U.S. fighter jets scrambled to intercept Russian warplanes near Alaska - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQOTZMYWFOcFNFTkI0SkxXc2tuV0dod04wZ25hWE1PUFc1NUlPQTJIc2Y0MTV6c2lzNGNfZllPRkZVTGhrUWhqQkJkN1FHdEtRQXlsV3gyUHJTZkJtSk5aUDlaWmM4ekxmRS12X0pzTlc4OUU2Tl9qY0NYM1QwamR0OTFaV1RpS0VSVFhnLXE0eUlMcWVmZ3ZDYW45eTJIdXRMQ1dZ0gGoAUFVX3lxTE80SkJldVhqYldUZzVoZ2NhUmZlVktwSWJHLWFmRDdIT0dubHdVRE9qeXNUX1V1bDE3OHY4UDBxbVZRbTc1cmozLVp5N1BNelVvLW4waFpaeWh1NFVGQ2RubDV6a3R3VHN6N0FiUmJMSUZsV2hfOEtLV0dhVlFMZkh0RFBJR3YwQVFnTGVIakxxS2JkVF9CSXFERmlDMWJGSkhjaFVZc3BwRQ?oc=5) |
 | Victim's widow files the first lawsuit after January's D.C.-area midair crash - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQdUkwRjdMelQycVk2ZzFyd2FKTk04QS1JRDJJdmFWT0F4WHFsUU9RaE5ZYW96QnFQU1pUdUN3QkFXNkI0Wm5vUEFyMV9aSG9uY0xCaDJYUTU3LXp4TjFHUVpPOEpXOFB0Z3UxNzVFazA0TjBsZTl2SFNOWUFJeVRUQzI3c3I5TFNvUEJBRUxFNFZwTlhFZWdKUkwtSUZIOVhyRW9oVHdSd1c1WkE?oc=5) |
-| China doubles down on climate, wind and solar pledges — a day after Trump called them a 'scam' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxQcVdZSXdzLUFiNENpU0lwczhmMUJiNkoyVU5SR3N4dDNpaE9KRUZmdWRnbEtYNmN5ejlmQU1wTGpDdEFMdUV4YThENXJVSzZwcE1jS2d4Y1lDdDhoaEdnMUV4bThjZ0F2V1JaT09ET2hnTHI4MmJxLS1DNmhqNDhyTU1VaGtFM21kMGFfVkttSHhjMkdFSHlrd1NJSy0zZkQtbmZqMlVNR3RtYThUWU8yS1lRX05uS0NRbDYyUnlUWTFxWW04MVlFaFZuRDJfTUhnaHV5UDdn?oc=5) |
+| China, world’s largest carbon polluting nation, announces new climate goal to cut emissions - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxORFN2SEdqMnZKS2g0V2N6cTRyb2x2c0lEcnZtV0pJYkF3SVk0N2tqSlhLZGxBSldoM1NHZFduZ1UteWtZXy1YWVJqYzVMTnYzbnVKcVBqLTBPR1psQXBJTWRWVF9hal9IR0psdVpFMEYzOXZSa0ZGejNrMktQdTZfMTJtMm8wYmpDaGczSmdvZFhaTWxJeklHWU9VczFhX2FCc3Atb1pn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
