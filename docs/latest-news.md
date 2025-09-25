@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 13:24:12（北京时间）**
+🕒 更新时间：**2025年09月25日 13:32:41（北京时间）**
 
 ---
 
@@ -27,7 +27,7 @@
 | U.S. Attorney Races to Present Case Against James Comey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5HWHpsaDdXUW1oMjNwdDBhcWJGNDgtRzBIZ2VYcUlxeGpIMTVYalFmak5hdXp3ZU5WTXl2NW5MeHhxZWJURzZVZjdETVZBUkJWcEFvejdjako0TEtPV3AwYTk1WlJyckhCc1UxV19XNUFubmJWNHJfTGNBa1RxZEk?oc=5) |
 | White House to agencies: Prepare mass firing plans for a potential shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQc193d24xa2pZN1ZaeXhlVEliX3B4TU1VRFBmVmlMX2RUSWNUQk1Da0FjMEhuYUFxbTc4QVdrMWR6ZEwwWS15YjlRZFZtQzdfQmFGOWViX0sxRFNNVm96Q255ZFZNX1hibXgycndZb3pTMmdOUGEwYUduOWdiZjFrYXJubEI?oc=5) |
 | Trump wears MAGA down with Ukraine reversal - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5oaW9xTGstSzdyUmRFeG1odzhTU0dBNzNvN210Z3BNcnpqcDlRZnN2NXBwb3RwZXFWN0ZKZko5T1dSUlU5UEF2ZEZNWWdndDFXNk5sTXhmTVlnQmNhRW9vN2oxVnJuRHpkZkpfLXczVHdfQ0J0eGdrbQ?oc=5) |
-| China’s plans to cut emissions too weak to stave off global catastrophe, say experts - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPTkp2MTdydDUwbEFWQWVWU3ZsNHEyVG5kZHZQdjNmZFRwcHBRcUNmN3dCVTRSc251T1NQaUc3VjZXZ1h6cVJ4UXZEYzFMVXVUbDh0cThfd3BXVVJUeFlBYTFUS0FtOEZfZ3RXUUdvV2ZSYkNOUTY2Z0tsWDBKN1JraUpTVFVnMF9NanVLYVVrUjBwNkNiQzQyYzJlNGlfMlNsNk1yb2U0N1FVYktDQ1pKV0xBMUFNMXBlOXFyUmpINlBqSWZWVmxoR0RYbVFwUQ?oc=5) |
+| China leads nations with new climate plans, defying US climate denial - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQd1lNRV9DZVBWd0c1Y1o2amhoZXVETG81Q3BsdVpGZ0VUQlB3eHNfZm1VM21fcmRkZHlxNFB2M08wZHZleEVsTTdiWFc4TVdHSDBST2N4OThNdm94VkZKbXB3QVRQb1ZlVW5xdUU3aEMzb3BRd0h3Z1ZTRlhEVE1CSm5lRml2em1XeGREWkMtd3dTYU1VSjN3ejJSdVNoUFNmV01mTklkakptU2JfVDZoWTdpRy1oTjZiMV9tZkRR?oc=5) |
 | Trump demands investigation into alleged ‘triple sabotage’ at the United Nations - CNN | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPYlAtUjM3ckZsbEJiX19tSTh6Y2VLMjdUSDhNYWswWVdDSzJLRnFJTFBYQ09HRV9SMnlPS3dNakFmRWJhTjVHMUJFLWxKVlZ0M0hjaktSTGVzUTd6YnRHZDFILXliUk5KMmVQTnJrTlVRRE9RNjFUZlFwTTRVeG9GMjVsQTVmbFlXbWkzOHZpbFhyNDJOb00wMUxnbERXaEJJdVE4Q0RnTQ?oc=5) |
 | H-1B visa: US tech sector scrambles in the face of $100,000 fees - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1FZjdrTGJ3cGZTcDQ5SWVrYmYxNHJHODgxYnp3Qzl3Tkg1WTF4ZDFrNUpGZFdULXJFLVpPelg3RThnS0loT2RQY1VycWJUZ2JfTUlOVWNLZWFUZ9IBX0FVX3lxTE14T0MxMm9yYW91QXZlNnFCcE5lMm9ocjlyRXJkQmxETU9DZjFfWXEyX0VrdUdQMGRKQmxFVjBBdXRoXzRlTjgxc3ZYOGdSbzJfZTdrNTJ2U2ZyMTRCbzFN?oc=5) |
 | Trump’s attacks on Kimmel and ABC put him at odds with high-profile conservatives - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOcHEtTTNXazVqS3Nxa2pnSWdCWGJVOUtqRFR0QWJQTzZlbUhfNUNGY0VKaDlBRE1FZ3VGV0JKTFRseFRnV2dpZ0lHcXJYNFg0MVFVVkZJU2pkMHJqUEpydXByWTI5WUtkaGczYWxfbVQwMEQ5eW9xakEyQUpZWW03V0JlcUZHU29tWmE1RkxjSTVVUGk3OGlBYXVoMXlaZXpreTFJ?oc=5) |
