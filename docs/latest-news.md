@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月26日 06:57:37（北京时间）**
+🕒 更新时间：**2025年09月26日 07:00:32（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | House Democrats call for investigation into release of Mikie Sherrill’s military records - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQYzEzMEs3b3ZpN2poODJnMlhBVDJMc1lVeV9CdXB3R2dLTVo3MzhvUEdZbGYwUExpNDQxRTRZN3dRZlNoVVE5aXVvT2ZkTThacllOM2RhUGJPR21IR1ZGQnR5VGtBRnRwYVlXTkJ2cHVGRkxWbDFpVDRFWjg1R3VBSkdEcFBzbGg3anFVZThuNml5dm1pRjU0SzZpdmROMlpENGpz?oc=5) |
 | Countering Domestic Terrorism and Organized Political Violence - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMi8wFBVV95cUxQN2NPcXV6ZjNVc2N5c0hHTjFpUW9UNEFWWW5ZSFNrN3BxeUJ2VE1mdWxfTjcwdVVtdDhpM0F5WlhnV3NQMHN2NFBrNE1sLTlaTzhJcnVxMTBXVUhZSU1EMnM4Z3oyZE5KUkM3YmJjZTFBeVE0OUtXdHp2TEh5bDUyZF9RREJXek1OM0xYRWxGeHE2ZGh3dWU2MzFMd0c3UlUzN0loNFFNNXhxUUU2Q2tsRkhZeDNwTUJmYlV0SXZMczJ1U0lOQWtZaXhLX0p6WVRzQkVFXzZNVDFhTFJjZEQ1eTh1cFR2UTBFeGl5b0tzMjRCUW8?oc=5) |
 | Ryan Walters, Oklahoma Education Chief Who Promoted Bibles in Schools, to Resign - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1hdWhNV3RwZnhNWDVUT0t2UHk5aldudS11TnB3dnNmS2J3aWdOVlB5QkFvdDdITXp3emYxaDl0VGprZmVTQ09PbkdhN2N5MDlFYnhCaHhRQVdNc3h4YnpYQkF6ZUxack5USFZ4aHo4OFRqaGh3a3BTMjdoMA?oc=5) |
-| 911 service restored after outages in Mississippi and Louisiana - WAPT | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE16MFVxUHB2dVI5LVpvVzdGc29pRnhlZ1lsRUtvemFNT1NrMjRMc284X2J6aXJWRk1scUN0dC03SkM0OGkxa2l5TDhGcGlyWEo5ZUtzWUNDb1UyVjJnRXJxYl9sUUxFZDVNbGhWUzJ0enpjNnM4dFF5a2JxVQ?oc=5) |
 | Trump Wades Into Bailout Politics in Offering a Lifeline to Argentina - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNTHB2alNLY2h1WWlWX2l6cXB5RzdUVWxsd0JzaTZMRGtpdDM4c1lNai1UT3ZZaHExYzc4T2J4ck1NSXhtS0s0NVdObTlIcFZoQndYU2JROTY3QWRXMm1IS1lHaVN2OWNOdXg3YndodGFxeVdCWVUyNU9WZEFLc1ZURnItWlhuM0xn?oc=5) |
+| 911 service restored after outages in Mississippi and Louisiana - WAPT | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE16MFVxUHB2dVI5LVpvVzdGc29pRnhlZ1lsRUtvemFNT1NrMjRMc284X2J6aXJWRk1scUN0dC03SkM0OGkxa2l5TDhGcGlyWEo5ZUtzWUNDb1UyVjJnRXJxYl9sUUxFZDVNbGhWUzJ0enpjNnM4dFF5a2JxVQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
