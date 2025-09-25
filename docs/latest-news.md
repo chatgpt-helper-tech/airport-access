@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 21:33:38（北京时间）**
+🕒 更新时间：**2025年09月25日 21:40:37（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Former French president Sarkozy sentenced to five years in Libya campaign financing case | [阅读全文](https://www.bbc.com/news/articles/cp98kepmj9lo?at_medium=RSS&at_campaign=rss) |
+| Former French president Sarkozy given five year sentence after Libya case | [阅读全文](https://www.bbc.com/news/articles/cp98kepmj9lo?at_medium=RSS&at_campaign=rss) |
 | 'Film me all you want' - teenage girls with no fear of police torment one High Street | [阅读全文](https://www.bbc.com/news/articles/c0q751vlxw1o?at_medium=RSS&at_campaign=rss) |
 | Taxi driver who dropped off Southport killer regrets not calling police for 50 minutes | [阅读全文](https://www.bbc.com/news/articles/cpd96g46vzwo?at_medium=RSS&at_campaign=rss) |
 | It's up to Labour MPs, says Burnham on leadership bid speculation | [阅读全文](https://www.bbc.com/news/articles/c7v1m873mjyo?at_medium=RSS&at_campaign=rss) |
