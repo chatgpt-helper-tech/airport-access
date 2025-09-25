@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月26日 05:41:53（北京时间）**
+🕒 更新时间：**2025年09月26日 05:48:28（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | Attorney General Bondi and prosecutors have reservations over charging James Comey, sources say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPb3J4UGNpMVJHbDN6M2d1bldfb05ySGpsNDRFdG9IaU9zek8zNjhaYXQ0UGswTGp0STJVWXppRmo1bWlQZUF1S2VuNlBOTnBFM0t0NzAtUXZtamlwZkFCcFNvZnBIY2tlZTAzV0szeTNnVHBINnRaS2NXb196Tmd1RVFHNzRTSC12TF9ocWxQV3BKQ2xFUk9EbDh5eWs3c2hy?oc=5) |
 | 'Palestinians will not leave,' their president tells world leaders at UN in defiant, virtual speech - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQSHBLQmJwWTlOUGtxWmFJblpXaUtEaHVFbE1RdzdxOUJNN2VDYkFhX2RsUkpIQ2l0NjBrZkF6cmF0TVQ2NnZrTzVHUFBaZG1ZZFNuYXBjY0NmYXNnSGd4dmdHcW5vbm9YTWQxdkx5ZFpaWnAyVjMxOEVjYk5hRFNLeDJFTHQybG00THNBS0o5MUNDTHow?oc=5) |
 | Tropics heating up as Tropical Storm Humberto forms in Atlantic: What to know - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNeGg0VG0yZlFJTnVzVXEtMkRYeUlPY3ZRRWwxZVdHZ1l2amNGdWRKZVA3QTk3S19mX1NycW9LX25fbTBwbW9xeHFXVmJWY0JYM1MxNEYxV3F1bGFTWlJZZUIzZk40RjJldTB2a3g4Q21jV3RSREoxVEJvOUpPZTJNdlNvT3ltMHhyaDdYbEFsRkE4ek15UXfSAZsBQVVfeXFMTlRyMEV2TUVsRGhEQ3phcW84T3R1cndYaDVSX1hOX2xZaEhwemc5enNLZS1KQTFHRTR6bGcxSW1GR3VGMmFoV2lUMEFZUkMwWFVyeXEzTmp6YmtnR0FZS1VhY3Z3SzREbWQ1ZnJULWdhLUN3U1dESHM4T1h5M1VpOHEyOHFUSVlJaHg3elViSU51eFM4aVF5b0kzMGM?oc=5) |
-| Oklahoma state superintendent who ordered schools to teach the Bible resigns to lead anti-teachers union group - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNWkx2TzByWG8ya3BhclJPM1hBOWVLV2RjaEhmN0dhQW1wb1ZKSnJOOUM5SHJRWXFoSTBBdVJ4N0ZlWEpMZHR2Tkt4RWFpYW9FMFNHZzlCMGo1ZFFQMzhqWkE0Z3MtZ3lOdXRQSE5Qdml0dTZWaFczS0R2R0s2aVJXUUNpdmxZMk1aa2JtTlZwX1VvMGhselVKQ0ZkaGp5U2cyb0lzR1M4SkZhOFF1M1JGM000RjF0QnBiR3hDSkhfSWEydjJ4SVVZ0gFWQVVfeXFMUGItUWtaVEEzVU9UTGlZczNDckRQQWxKal9pZ3k2eVczV01jWUVBQnBNYVc0d0YySWdPUHFKOEZzQkkwaGtTa2MyWWhGZ3NHVlRsZzE0Unc?oc=5) |
+| Ryan Walters, Oklahoma Education Chief Who Promoted Bibles in Schools, to Resign - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1hdWhNV3RwZnhNWDVUT0t2UHk5aldudS11TnB3dnNmS2J3aWdOVlB5QkFvdDdITXp3emYxaDl0VGprZmVTQ09PbkdhN2N5MDlFYnhCaHhRQVdNc3h4YnpYQkF6ZUxack5USFZ4aHo4OFRqaGh3a3BTMjdoMA?oc=5) |
 | Widespread 911 outages affecting Mississippi and Louisiana, officials say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5Vc3VNTGRLdDZBSzBYVGNaVEE0QXAyN19CaXlld3NGa29SdkEwTElXaHVSeUVmanMwb2ptelpSREYwX01SVVluZVl2YTVZWWxpa1JSLXB4ekVVOUhPam5HQlo4dFNWbDl2YkNXdjM4R1V1Nzg3SjJxVGlXTQ?oc=5) |
 | Commentary: Escalator and teleprompter humiliate Trump, so Fox News' Jesse Watters suggests 'blowing up' the U.N. - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQX0FSam1vTWFvM0o2Vk9rZDFhMXFMeEo1bTR0RWtVeGhLUDdVemV1bzNHMFNNbXMwa1c5YVVvTEh1WHJ3blM0T3NKUUljOFJ5MlpDejhoTnctWnRROWNnZlZ1bVRrdThQMFpLZ2dkNVFZUUotT2xVc2ZCRDREcC1Cd1BldlFJVDFVT0V6NDg2T1E3blFVZXdSREE3Y3k?oc=5) |
 
