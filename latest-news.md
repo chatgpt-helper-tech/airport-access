@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 12:24:06（北京时间）**
+🕒 更新时间：**2025年09月25日 12:33:38（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | Va. federal prosecutors preparing to seek Comey indictment, people familiar with matter say - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOZ2NHbmVmQ2w1TlJ3Z2F6ZTlkRURjajVxUUNObWlsbVdKVGRNLXpnOXVfbE9RRzZHR3drUFdpc3ctVDkzQ0s4SUZXMFFBbDJfS3hMTWxtNEM1b3VjWURBdUlhNjFnZWRIU2dFMUQ3SmVfZVVKMy16dmprN3J0OTFBUTlGSFFyZW9lMUUyOVg0dks3RTV2TERMYkpNa3NwWk9rSFZB?oc=5) |
 | A new Trump policy on Ukraine, or more of the same? - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOdWRjVS1FR3hPYVc4NjIwSzd0SzBvY3BXUVI5VWRyR0tRZkVmXzQwMk9rS3NNbWNJSXdZSkdXSWxCckJJZmZCRnFicktncGptcUNzbUdiTW5zeFVpcmFYTm5hdk5nYUdrQ0ViTGV0UmNDQXBYSS1vaVBqYWVkX1pBclNn?oc=5) |
 | White House budget office threatens mass firings if government shuts down - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxORno1d2pVanBMYTRIQllBdXVlanFYU3FQT3ZrdnVoeU02LUI1SUl5ZUNNNUVGYTNoU0ZXNThYUnBCTC1zdlNaWTFMZlpKLWtxdkZ4REZCTF9iek9RUDdEM0lXVFVyRWM4RXlwOTNOZTFJai1qM1RuelpSdldGcEJIM2lYMlVRWG41a1BEMHZn?oc=5) |
-| Trump demands investigation into alleged ‘triple sabotage’ at the United Nations - CNN | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPYlAtUjM3ckZsbEJiX19tSTh6Y2VLMjdUSDhNYWswWVdDSzJLRnFJTFBYQ09HRV9SMnlPS3dNakFmRWJhTjVHMUJFLWxKVlZ0M0hjaktSTGVzUTd6YnRHZDFILXliUk5KMmVQTnJrTlVRRE9RNjFUZlFwTTRVeG9GMjVsQTVmbFlXbWkzOHZpbFhyNDJOb00wMUxnbERXaEJJdVE4Q0RnTQ?oc=5) |
 | China’s plans to cut emissions too weak to stave off global catastrophe, say experts - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPTkp2MTdydDUwbEFWQWVWU3ZsNHEyVG5kZHZQdjNmZFRwcHBRcUNmN3dCVTRSc251T1NQaUc3VjZXZ1h6cVJ4UXZEYzFMVXVUbDh0cThfd3BXVVJUeFlBYTFUS0FtOEZfZ3RXUUdvV2ZSYkNOUTY2Z0tsWDBKN1JraUpTVFVnMF9NanVLYVVrUjBwNkNiQzQyYzJlNGlfMlNsNk1yb2U0N1FVYktDQ1pKV0xBMUFNMXBlOXFyUmpINlBqSWZWVmxoR0RYbVFwUQ?oc=5) |
+| Trump demands investigation into alleged ‘triple sabotage’ at the United Nations - CNN | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPYlAtUjM3ckZsbEJiX19tSTh6Y2VLMjdUSDhNYWswWVdDSzJLRnFJTFBYQ09HRV9SMnlPS3dNakFmRWJhTjVHMUJFLWxKVlZ0M0hjaktSTGVzUTd6YnRHZDFILXliUk5KMmVQTnJrTlVRRE9RNjFUZlFwTTRVeG9GMjVsQTVmbFlXbWkzOHZpbFhyNDJOb00wMUxnbERXaEJJdVE4Q0RnTQ?oc=5) |
 | H-1B visa: US tech sector scrambles in the face of $100,000 fees - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1FZjdrTGJ3cGZTcDQ5SWVrYmYxNHJHODgxYnp3Qzl3Tkg1WTF4ZDFrNUpGZFdULXJFLVpPelg3RThnS0loT2RQY1VycWJUZ2JfTUlOVWNLZWFUZ9IBX0FVX3lxTE14T0MxMm9yYW91QXZlNnFCcE5lMm9ocjlyRXJkQmxETU9DZjFfWXEyX0VrdUdQMGRKQmxFVjBBdXRoXzRlTjgxc3ZYOGdSbzJfZTdrNTJ2U2ZyMTRCbzFN?oc=5) |
+| A Federal Shutdown May Be Imminent. How Would It Affect the Economy? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPZmtST0gzZjN1NlFqaXRyQmI3eFVvQ0R2YVJHZkw5ZmVfVmV1SDQwWmw3UUhITEdmNzduZVI3amVsRzhrTkNUSWRfOWQzY3VNd0JMTHhrNzhsT2c0azN1Z2JacExvdVhGenZRUkhhQnczV01OQk9WSzFIY1p2ZWZIanJkMFVWemNtRHc?oc=5) |
 | Trump’s attacks on Kimmel and ABC put him at odds with high-profile conservatives - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOcHEtTTNXazVqS3Nxa2pnSWdCWGJVOUtqRFR0QWJQTzZlbUhfNUNGY0VKaDlBRE1FZ3VGV0JKTFRseFRnV2dpZ0lHcXJYNFg0MVFVVkZJU2pkMHJqUEpydXByWTI5WUtkaGczYWxfbVQwMEQ5eW9xakEyQUpZWW03V0JlcUZHU29tWmE1RkxjSTVVUGk3OGlBYXVoMXlaZXpreTFJ?oc=5) |
-| Days away from a government shutdown, agencies’ contingency plans still unclear - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxOY3Z0anQ2YlUyRk5nQ3ZoMk8tbkJMbUJwTHJfZmdGS0N3Y3FfSFNwYkpXNlRBWU9SclZQSFVkUlNuV2g1U1otazJSNDlyUUVmNzQyalNsOGNFd0dJWTZHWjRIeFVPbWxTNGtoUmhEWUJaTzJMZ05DZThxWXFKNlFvcWwtMU5Yd0pkNmF0QkJZbGhlZDBKUUp2blVXSEhZZy1uMDRJMml1RXQ1bXIxM1daVXZINklLZEtRTTFtQTNEQkJqNHVIWWRSVTVZZ1g0Mk9iT2FB?oc=5) |
-| Arizona Democrat’s Win Clinches Bid to Force Epstein Files Vote - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPTlU5eGdERVI5ZFJTUHpqbTBvd0FoOTNrZ3E4UU8xRzdueTVWMmlDaUQ0dEdkYjdWV2k0bko1VXNGSWN2dW5JR2tJRXdpWldJSFRIemdud25NdUdjWkpkWnlFQUxVNkRWcUdVd3JMdE5qTTBjNERBZjlNbzEwM1FVVG9pQldteFNMTEE?oc=5) |
+| Victim's widow files the first lawsuit after January's D.C.-area midair crash - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQdUkwRjdMelQycVk2ZzFyd2FKTk04QS1JRDJJdmFWT0F4WHFsUU9RaE5ZYW96QnFQU1pUdUN3QkFXNkI0Wm5vUEFyMV9aSG9uY0xCaDJYUTU3LXp4TjFHUVpPOEpXOFB0Z3UxNzVFazA0TjBsZTl2SFNOWUFJeVRUQzI3c3I5TFNvUEJBRUxFNFZwTlhFZWdKUkwtSUZIOVhyRW9oVHdSd1c1WkE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
