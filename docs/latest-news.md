@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 20:01:43（北京时间）**
+🕒 更新时间：**2025年09月25日 20:08:36（北京时间）**
 
 ---
 
@@ -9,13 +9,13 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | 'Film me all you want' - teenage girls with no fear of police torment one High Street | [阅读全文](https://www.bbc.com/news/articles/c0q751vlxw1o?at_medium=RSS&at_campaign=rss) |
+| Former French president Sarkozy sentenced to five years in Libya campaign financing case | [阅读全文](https://www.bbc.com/news/articles/cp98kepmj9lo?at_medium=RSS&at_campaign=rss) |
 | It's up to Labour MPs, says Burnham on leadership bid speculation | [阅读全文](https://www.bbc.com/news/articles/c7v1m873mjyo?at_medium=RSS&at_campaign=rss) |
 | Henry Zeffman: Burnham's provocative challenge to Starmer shows he is serious | [阅读全文](https://www.bbc.com/news/articles/cx275r1l3xpo?at_medium=RSS&at_campaign=rss) |
-| Former French president Sarkozy sentenced to five years in Libya campaign financing case | [阅读全文](https://www.bbc.com/news/articles/cp98kepmj9lo?at_medium=RSS&at_campaign=rss) |
 | Denmark says 'professional actor' behind drone incursions over its airports | [阅读全文](https://www.bbc.com/news/articles/c7401vk4lgzo?at_medium=RSS&at_campaign=rss) |
+| Taxi driver who dropped off Southport killer regrets not calling police for 50 minutes | [阅读全文](https://www.bbc.com/news/articles/cpd96g46vzwo?at_medium=RSS&at_campaign=rss) |
 | Woman in Spanish cold case identified after 20 years | [阅读全文](https://www.bbc.com/news/articles/cj4yqwnl1q7o?at_medium=RSS&at_campaign=rss) |
 | Ticketmaster agrees to give better price information after Oasis ticket complaints | [阅读全文](https://www.bbc.com/news/articles/cqxzqvw4lv8o?at_medium=RSS&at_campaign=rss) |
-| Taxi driver 'regrets' not helping Southport victims | [阅读全文](https://www.bbc.com/news/articles/cpd96g46vzwo?at_medium=RSS&at_campaign=rss) |
 | Thousands of students report sexual violence at university | [阅读全文](https://www.bbc.com/news/articles/cq65z20pde2o?at_medium=RSS&at_campaign=rss) |
 | Trump demands inquiry over UN 'triple sabotage' after escalator and teleprompter mishaps | [阅读全文](https://www.bbc.com/news/articles/c3dr0zrr1kpo?at_medium=RSS&at_campaign=rss) |
 
