@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月26日 06:24:31（北京时间）**
+🕒 更新时间：**2025年09月26日 06:33:07（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | 'Palestinians will not leave,' their president tells world leaders at UN in defiant, virtual speech - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQSHBLQmJwWTlOUGtxWmFJblpXaUtEaHVFbE1RdzdxOUJNN2VDYkFhX2RsUkpIQ2l0NjBrZkF6cmF0TVQ2NnZrTzVHUFBaZG1ZZFNuYXBjY0NmYXNnSGd4dmdHcW5vbm9YTWQxdkx5ZFpaWnAyVjMxOEVjYk5hRFNLeDJFTHQybG00THNBS0o5MUNDTHow?oc=5) |
 | Calls for criminal investigation into release of Mikie Sherrill's military records - ABC7 New York | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxOMG1Kb3M2VHN4SmR6anNLZGVuM3VfS2RJcEk1UWtCbFI0dzQ1YVFvaHZQOExhRnZaVkF2MGUxM01jakFHV0JFRmZSYXhiUHk3eVl5RnNwSTRyTHJuSGFQVzRUc2pkdEpsajZFaXg3UEk4NHFDM1A1T2dXcG94c1hzeHo4MlVCVFZjUWRrcXIzWV9MSG13MDBaM1VEVTE3c0dfU0s3U3FzcWtEX3JCMjlEYWdZT20wc2h3RF9meWVuYllXV0UtZG5yX0RwMnFfWWtsQll3aQ?oc=5) |
 | Countering Domestic Terrorism and Organized Political Violence - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMi8wFBVV95cUxQN2NPcXV6ZjNVc2N5c0hHTjFpUW9UNEFWWW5ZSFNrN3BxeUJ2VE1mdWxfTjcwdVVtdDhpM0F5WlhnV3NQMHN2NFBrNE1sLTlaTzhJcnVxMTBXVUhZSU1EMnM4Z3oyZE5KUkM3YmJjZTFBeVE0OUtXdHp2TEh5bDUyZF9RREJXek1OM0xYRWxGeHE2ZGh3dWU2MzFMd0c3UlUzN0loNFFNNXhxUUU2Q2tsRkhZeDNwTUJmYlV0SXZMczJ1U0lOQWtZaXhLX0p6WVRzQkVFXzZNVDFhTFJjZEQ1eTh1cFR2UTBFeGl5b0tzMjRCUW8?oc=5) |
-| Oklahoma state superintendent who ordered schools to teach the Bible resigns to lead anti-teachers union group - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNWkx2TzByWG8ya3BhclJPM1hBOWVLV2RjaEhmN0dhQW1wb1ZKSnJOOUM5SHJRWXFoSTBBdVJ4N0ZlWEpMZHR2Tkt4RWFpYW9FMFNHZzlCMGo1ZFFQMzhqWkE0Z3MtZ3lOdXRQSE5Qdml0dTZWaFczS0R2R0s2aVJXUUNpdmxZMk1aa2JtTlZwX1VvMGhselVKQ0ZkaGp5U2cyb0lzR1M4SkZhOFF1M1JGM000RjF0QnBiR3hDSkhfSWEydjJ4SVVZ0gFWQVVfeXFMUGItUWtaVEEzVU9UTGlZczNDckRQQWxKal9pZ3k2eVczV01jWUVBQnBNYVc0d0YySWdPUHFKOEZzQkkwaGtTa2MyWWhGZ3NHVlRsZzE0Unc?oc=5) |
-| Widespread 911 outages affecting Mississippi and Louisiana, officials say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5Vc3VNTGRLdDZBSzBYVGNaVEE0QXAyN19CaXlld3NGa29SdkEwTElXaHVSeUVmanMwb2ptelpSREYwX01SVVluZVl2YTVZWWxpa1JSLXB4ekVVOUhPam5HQlo4dFNWbDl2YkNXdjM4R1V1Nzg3SjJxVGlXTQ?oc=5) |
-| DOJ official directs prosecutors to prepare probes of George Soros' foundation - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQdnZrZ1lMRmRkMGVta2llU0NqQkVmc01IQzJadmFNbmZOWXZMQzV4c0Z3VDhnTjVONDNLN01CZ0VJR3YtSkM5Mjh0RUh0eVdWWFNSSk9ZVm9Eb3A2WUJxT3ZkZ1ZDU1ZZVjM4d0FPT01EQ2xhU2VERUoxT0hjeW9rQ3kwa2Ita1BhMzVDVjVTX295Uk9xS3RaU2hlMEpsaDhCVVk3NEtzeUjSAa4BQVVfeXFMT2tvbzRHcV9jZ1JicmNOTG9sQzlzVUp1Unlldy1fZ19xeHJ5WUlHZnV3QlBCcGJ5dG5qTVBRZVdna21YRFV6TVowSGF5eDNsb0tCczBaRU9EdGplbzZULVRjUkE2eG5JMG0xR0xUMjd5RFozbmRLWFcwdTZLR3Z1eHFHbUlmRnZlRF9KOE1CSjVQRkE0dzVYRWh3U1oweDZiUmZXYW9OU3hxbXFRMlNB?oc=5) |
+| 911 service restored after outages in Mississippi and Louisiana - WAPT | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE16MFVxUHB2dVI5LVpvVzdGc29pRnhlZ1lsRUtvemFNT1NrMjRMc284X2J6aXJWRk1scUN0dC03SkM0OGkxa2l5TDhGcGlyWEo5ZUtzWUNDb1UyVjJnRXJxYl9sUUxFZDVNbGhWUzJ0enpjNnM4dFF5a2JxVQ?oc=5) |
+| Ryan Walters, Oklahoma Education Chief Who Promoted Bibles in Schools, to Resign - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1hdWhNV3RwZnhNWDVUT0t2UHk5aldudS11TnB3dnNmS2J3aWdOVlB5QkFvdDdITXp3emYxaDl0VGprZmVTQ09PbkdhN2N5MDlFYnhCaHhRQVdNc3h4YnpYQkF6ZUxack5USFZ4aHo4OFRqaGh3a3BTMjdoMA?oc=5) |
+| George Soros foundation hits back at Trump after report that DoJ plans to target group - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQQnI4MDJiMF90YURtMi16UDJwTUpSa1Exblo4ZXVzUTB0ZE96X3pYVXhwTm5RS25QUWhBbGJnUDNDM004ckhGMlBLVmV4NThGTExPOS13ZHQwbDJQbC02U2RwZUpVb2tscW1kUGFldGZUOGtYV2EwZHdpNVdXRFRwQlBzUjR0ZUhCWUJpcFB1UWpZeFpuT0xMYXg5b1Q?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
