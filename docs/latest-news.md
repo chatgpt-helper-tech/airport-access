@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 18:41:11（北京时间）**
+🕒 更新时间：**2025年09月25日 18:49:12（北京时间）**
 
 ---
 
@@ -9,6 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | 'Film me all you want' - teenage girls with no fear of police torment one High Street | [阅读全文](https://www.bbc.com/news/articles/c0q751vlxw1o?at_medium=RSS&at_campaign=rss) |
+| Labour leadership up to the party, says Burnham | [阅读全文](https://www.bbc.com/news/articles/c7v1m873mjyo?at_medium=RSS&at_campaign=rss) |
 | Henry Zeffman: Burnham's provocative challenge to Starmer shows he is serious | [阅读全文](https://www.bbc.com/news/articles/cx275r1l3xpo?at_medium=RSS&at_campaign=rss) |
 | Denmark says 'professional actor' behind drone incursions over its airports | [阅读全文](https://www.bbc.com/news/articles/c7401vk4lgzo?at_medium=RSS&at_campaign=rss) |
 | Ticketmaster agrees to give better price information after Oasis ticket complaints | [阅读全文](https://www.bbc.com/news/articles/cqxzqvw4lv8o?at_medium=RSS&at_campaign=rss) |
@@ -17,7 +18,6 @@
 | Thousands of students report sexual violence at university | [阅读全文](https://www.bbc.com/news/articles/cq65z20pde2o?at_medium=RSS&at_campaign=rss) |
 | Government could buy car parts to protect Jaguar Land Rover suppliers | [阅读全文](https://www.bbc.com/news/articles/c62nv0xx32go?at_medium=RSS&at_campaign=rss) |
 | Australian film altered in China to make gay couple straight | [阅读全文](https://www.bbc.com/news/articles/cp8w9492lg6o?at_medium=RSS&at_campaign=rss) |
-| BBC and news agencies launch film calling on Israel to allow foreign journalists into Gaza | [阅读全文](https://www.bbc.com/news/articles/c8d7yrp80m8o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,9 +30,9 @@
 | Kimmel nods to big ratings, heckles Trump as an ‘80s-movie-style bully’ in second post-suspension show - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPNTM2UV9QSVJTZW5DcHpYLTFROXl3eVJNby1fTHBtamk3YnlMaDBmc09ZRkcwN0EtYzgycXg2VDByMFhobWNLQjJPdDlkaEVsV1JLb3NSLWdtc0szVmRralJOOGFTX241bklLX1lNT3E3b0Q3Yjc1YjhkQ0VKN1BwQ2lzdWF3ZGFJbWRN?oc=5) |
 | Trump claims ‘sabotage’ at U.N. from escalator, teleprompter and mic - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNTkI0MTVLdGlCdlR4djk3UEQyRjNlcnEzZW5sM3A3UHRtWHloUG15c2M4OTM3d0tGcFhFd2VQM3d4VWxSYkNQMnBjZ3Vyc2lZd0pjcU1xQXVaXzlfazM4RmJaU3liMXJpYnZuaW5OTkpqaUVJRldLU3VCaDJ4R1ZPWUJkNExiWTNU0gGOAUFVX3lxTE5RemxlUXlVeHJwX21VTzk0bDIxWW5qZ1ozU09IUGw5X0I1cnVHeXU5WDJ0T2xQUzFPdHBzYzBxelpqUmV1RllkZW9yRHVYQkhJbi1RV21iOFcxRmRDNTJUa0NDbnBOWTg4UlczQ3oxMWJqcXEzYm5uTlBGWXpFSEd1SjNTNFdSYlkzb0lKc0E?oc=5) |
 | H-1B visa: US tech sector scrambles in the face of $100,000 fees - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1FZjdrTGJ3cGZTcDQ5SWVrYmYxNHJHODgxYnp3Qzl3Tkg1WTF4ZDFrNUpGZFdULXJFLVpPelg3RThnS0loT2RQY1VycWJUZ2JfTUlOVWNLZWFUZ9IBX0FVX3lxTE14T0MxMm9yYW91QXZlNnFCcE5lMm9ocjlyRXJkQmxETU9DZjFfWXEyX0VrdUdQMGRKQmxFVjBBdXRoXzRlTjgxc3ZYOGdSbzJfZTdrNTJ2U2ZyMTRCbzFN?oc=5) |
+| U.S. fighter jets scrambled to intercept Russian warplanes near Alaska - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQOTZMYWFOcFNFTkI0SkxXc2tuV0dod04wZ25hWE1PUFc1NUlPQTJIc2Y0MTV6c2lzNGNfZllPRkZVTGhrUWhqQkJkN1FHdEtRQXlsV3gyUHJTZkJtSk5aUDlaWmM4ekxmRS12X0pzTlc4OUU2Tl9qY0NYM1QwamR0OTFaV1RpS0VSVFhnLXE0eUlMcWVmZ3ZDYW45eTJIdXRMQ1dZ0gGoAUFVX3lxTE80SkJldVhqYldUZzVoZ2NhUmZlVktwSWJHLWFmRDdIT0dubHdVRE9qeXNUX1V1bDE3OHY4UDBxbVZRbTc1cmozLVp5N1BNelVvLW4waFpaeWh1NFVGQ2RubDV6a3R3VHN6N0FiUmJMSUZsV2hfOEtLV0dhVlFMZkh0RFBJR3YwQVFnTGVIakxxS2JkVF9CSXFERmlDMWJGSkhjaFVZc3BwRQ?oc=5) |
 | China, world’s largest carbon polluting nation, announces new climate goal to cut emissions - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxORFN2SEdqMnZKS2g0V2N6cTRyb2x2c0lEcnZtV0pJYkF3SVk0N2tqSlhLZGxBSldoM1NHZFduZ1UteWtZXy1YWVJqYzVMTnYzbnVKcVBqLTBPR1psQXBJTWRWVF9hal9IR0psdVpFMEYzOXZSa0ZGejNrMktQdTZfMTJtMm8wYmpDaGczSmdvZFhaTWxJeklHWU9VczFhX2FCc3Atb1pn?oc=5) |
 | Days away from a government shutdown, agencies’ contingency plans still unclear - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxOY3Z0anQ2YlUyRk5nQ3ZoMk8tbkJMbUJwTHJfZmdGS0N3Y3FfSFNwYkpXNlRBWU9SclZQSFVkUlNuV2g1U1otazJSNDlyUUVmNzQyalNsOGNFd0dJWTZHWjRIeFVPbWxTNGtoUmhEWUJaTzJMZ05DZThxWXFKNlFvcWwtMU5Yd0pkNmF0QkJZbGhlZDBKUUp2blVXSEhZZy1uMDRJMml1RXQ1bXIxM1daVXZINklLZEtRTTFtQTNEQkJqNHVIWWRSVTVZZ1g0Mk9iT2FB?oc=5) |
-| Syria's new president warns Israel's actions could end up alienating U.S. allies - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9weTRqQmZOVExXWEJQRHZkTzhkOGxLV3hKVjVZT0hqZ05CcnlqRFA0Ykc3MS0zaW1LU2NBX3JhblV4X1laZ3kzUGpoNXdkSG00V0dPZ05XYnRTamNZSjNKUnEwZXp3Zk9tSmdyV3Q5MFRhMmFLNjJn0gF8QVVfeXFMTUFOaVpGWWlaSkg2RzlQd09ZZGVYclpSVHhkWFRBcnlYZW5rRW8wbHhqMUhySzhrNm15WExaRER0NmdHNE1EaDUyc3B5Wmo2NjVQUU1IZGJkX0Y4NF9aRE9HSFlVdE96MGZLSVludjI0V2M0M3FrelRUdkRBaQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
