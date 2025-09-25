@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 11:49:10（北京时间）**
+🕒 更新时间：**2025年09月25日 11:57:47（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | Government considers financial support for Jaguar Land Rover suppliers | [阅读全文](https://www.bbc.com/news/articles/c62nv0xx32go?at_medium=RSS&at_campaign=rss) |
 | Russia will expand aggression beyond Ukraine if not stopped, Zelensky warns | [阅读全文](https://www.bbc.com/news/articles/c5yg921rjrko?at_medium=RSS&at_campaign=rss) |
 | First migrants arrive in UK from France under 'one in one out' deal | [阅读全文](https://www.bbc.com/news/articles/cwywv34w00ro?at_medium=RSS&at_campaign=rss) |
-| Colombia's president calls US attacks on alleged drug boats 'act of tyranny' | [阅读全文](https://www.bbc.com/news/articles/cy8rjp178mno?at_medium=RSS&at_campaign=rss) |
+| US attacks on alleged drug boats are 'act of tyranny', Colombia's president tells BBC | [阅读全文](https://www.bbc.com/news/articles/cy8rjp178mno?at_medium=RSS&at_campaign=rss) |
 | 'She doesn't get another childhood': The lives on hold waiting for wheelchairs | [阅读全文](https://www.bbc.com/news/articles/cm2zwm8m41mo?at_medium=RSS&at_campaign=rss) |
 | Drone activity confirmed at multiple Denmark airports | [阅读全文](https://www.bbc.com/news/articles/c7401vk4lgzo?at_medium=RSS&at_campaign=rss) |
 | Labour MPs are privately urging me to challenge PM, says Burnham | [阅读全文](https://www.bbc.com/news/articles/c7v1m873mjyo?at_medium=RSS&at_campaign=rss) |
@@ -30,9 +30,9 @@
 | Trump demands investigation into alleged ‘triple sabotage’ at the United Nations - CNN | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPYlAtUjM3ckZsbEJiX19tSTh6Y2VLMjdUSDhNYWswWVdDSzJLRnFJTFBYQ09HRV9SMnlPS3dNakFmRWJhTjVHMUJFLWxKVlZ0M0hjaktSTGVzUTd6YnRHZDFILXliUk5KMmVQTnJrTlVRRE9RNjFUZlFwTTRVeG9GMjVsQTVmbFlXbWkzOHZpbFhyNDJOb00wMUxnbERXaEJJdVE4Q0RnTQ?oc=5) |
 | Victim's widow files the first lawsuit after January's D.C.-area midair crash - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQdUkwRjdMelQycVk2ZzFyd2FKTk04QS1JRDJJdmFWT0F4WHFsUU9RaE5ZYW96QnFQU1pUdUN3QkFXNkI0Wm5vUEFyMV9aSG9uY0xCaDJYUTU3LXp4TjFHUVpPOEpXOFB0Z3UxNzVFazA0TjBsZTl2SFNOWUFJeVRUQzI3c3I5TFNvUEJBRUxFNFZwTlhFZWdKUkwtSUZIOVhyRW9oVHdSd1c1WkE?oc=5) |
 | H-1B visa: US tech sector scrambles in the face of $100,000 fees - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1FZjdrTGJ3cGZTcDQ5SWVrYmYxNHJHODgxYnp3Qzl3Tkg1WTF4ZDFrNUpGZFdULXJFLVpPelg3RThnS0loT2RQY1VycWJUZ2JfTUlOVWNLZWFUZ9IBX0FVX3lxTE14T0MxMm9yYW91QXZlNnFCcE5lMm9ocjlyRXJkQmxETU9DZjFfWXEyX0VrdUdQMGRKQmxFVjBBdXRoXzRlTjgxc3ZYOGdSbzJfZTdrNTJ2U2ZyMTRCbzFN?oc=5) |
-| Judge rules feds can’t require states to cooperate on immigration to get disaster money - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPRXVHcG5PQkMzUmZTRzk5UEI1bWZac2F6Z0kwdmN5eDlxUGxVb0tZc0RwZTRkYzBQTDZPa3dWdm1PU0UyWnZTU3VjSHRDbXpaclBLU1c1UnF5WXE3RDJaZTFoMkFGclB3ODA5MVlKMHpKRllFT0NydGx6VFRwY3FXQVVIS1NSZkUxVFMzWG5yMnlHS3VMTXpSZHFYakphd25IZ2pDUWhPRkpwaW5DLS1R?oc=5) |
 | Trump’s attacks on Kimmel and ABC put him at odds with high-profile conservatives - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOcHEtTTNXazVqS3Nxa2pnSWdCWGJVOUtqRFR0QWJQTzZlbUhfNUNGY0VKaDlBRE1FZ3VGV0JKTFRseFRnV2dpZ0lHcXJYNFg0MVFVVkZJU2pkMHJqUEpydXByWTI5WUtkaGczYWxfbVQwMEQ5eW9xakEyQUpZWW03V0JlcUZHU29tWmE1RkxjSTVVUGk3OGlBYXVoMXlaZXpreTFJ?oc=5) |
-| 'You will be the next Charlie', Youngkin tells students - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNNDd2Wm0wblpiTFhZVlFKR0Fab3JwQ2xzT3hvaGxCcWJKZGNVZEg5WG51NWRsVXFQdTZhX2dzNXVXQjBYZXR0VEhaR3BCUllPQVF0bkRnTXFXSUllemJxeTRCVEVqVTh4eEllMHlWY2hSTEZfVDVlZWlxVzNfNDByMm8yeHk0N2Q3RXBIQ3MyNA?oc=5) |
+| Judge rules feds can’t require states to cooperate on immigration to get disaster money - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPRXVHcG5PQkMzUmZTRzk5UEI1bWZac2F6Z0kwdmN5eDlxUGxVb0tZc0RwZTRkYzBQTDZPa3dWdm1PU0UyWnZTU3VjSHRDbXpaclBLU1c1UnF5WXE3RDJaZTFoMkFGclB3ODA5MVlKMHpKRllFT0NydGx6VFRwY3FXQVVIS1NSZkUxVFMzWG5yMnlHS3VMTXpSZHFYakphd25IZ2pDUWhPRkpwaW5DLS1R?oc=5) |
+| China doubles down on climate, wind and solar pledges — a day after Trump called them a 'scam' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxQcVdZSXdzLUFiNENpU0lwczhmMUJiNkoyVU5SR3N4dDNpaE9KRUZmdWRnbEtYNmN5ejlmQU1wTGpDdEFMdUV4YThENXJVSzZwcE1jS2d4Y1lDdDhoaEdnMUV4bThjZ0F2V1JaT09ET2hnTHI4MmJxLS1DNmhqNDhyTU1VaGtFM21kMGFfVkttSHhjMkdFSHlrd1NJSy0zZkQtbmZqMlVNR3RtYThUWU8yS1lRX05uS0NRbDYyUnlUWTFxWW04MVlFaFZuRDJfTUhnaHV5UDdn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
