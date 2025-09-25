@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 11:32:16（北京时间）**
+🕒 更新时间：**2025年09月25日 11:40:39（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | H-1B visa: US tech sector scrambles in the face of $100,000 fees - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1FZjdrTGJ3cGZTcDQ5SWVrYmYxNHJHODgxYnp3Qzl3Tkg1WTF4ZDFrNUpGZFdULXJFLVpPelg3RThnS0loT2RQY1VycWJUZ2JfTUlOVWNLZWFUZ9IBX0FVX3lxTE14T0MxMm9yYW91QXZlNnFCcE5lMm9ocjlyRXJkQmxETU9DZjFfWXEyX0VrdUdQMGRKQmxFVjBBdXRoXzRlTjgxc3ZYOGdSbzJfZTdrNTJ2U2ZyMTRCbzFN?oc=5) |
 | Judge rules feds can’t require states to cooperate on immigration to get disaster money - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPRXVHcG5PQkMzUmZTRzk5UEI1bWZac2F6Z0kwdmN5eDlxUGxVb0tZc0RwZTRkYzBQTDZPa3dWdm1PU0UyWnZTU3VjSHRDbXpaclBLU1c1UnF5WXE3RDJaZTFoMkFGclB3ODA5MVlKMHpKRllFT0NydGx6VFRwY3FXQVVIS1NSZkUxVFMzWG5yMnlHS3VMTXpSZHFYakphd25IZ2pDUWhPRkpwaW5DLS1R?oc=5) |
 | White House to agencies: Prepare mass firing plans for a potential shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQc193d24xa2pZN1ZaeXhlVEliX3B4TU1VRFBmVmlMX2RUSWNUQk1Da0FjMEhuYUFxbTc4QVdrMWR6ZEwwWS15YjlRZFZtQzdfQmFGOWViX0sxRFNNVm96Q255ZFZNX1hibXgycndZb3pTMmdOUGEwYUduOWdiZjFrYXJubEI?oc=5) |
-| 'You will be the next Charlie', Youngkin tells students - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNNDd2Wm0wblpiTFhZVlFKR0Fab3JwQ2xzT3hvaGxCcWJKZGNVZEg5WG51NWRsVXFQdTZhX2dzNXVXQjBYZXR0VEhaR3BCUllPQVF0bkRnTXFXSUllemJxeTRCVEVqVTh4eEllMHlWY2hSTEZfVDVlZWlxVzNfNDByMm8yeHk0N2Q3RXBIQ3MyNA?oc=5) |
+| China doubles down on climate, wind and solar pledges — a day after Trump called them a 'scam' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxQcVdZSXdzLUFiNENpU0lwczhmMUJiNkoyVU5SR3N4dDNpaE9KRUZmdWRnbEtYNmN5ejlmQU1wTGpDdEFMdUV4YThENXJVSzZwcE1jS2d4Y1lDdDhoaEdnMUV4bThjZ0F2V1JaT09ET2hnTHI4MmJxLS1DNmhqNDhyTU1VaGtFM21kMGFfVkttSHhjMkdFSHlrd1NJSy0zZkQtbmZqMlVNR3RtYThUWU8yS1lRX05uS0NRbDYyUnlUWTFxWW04MVlFaFZuRDJfTUhnaHV5UDdn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
