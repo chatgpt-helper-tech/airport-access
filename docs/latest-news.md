@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月25日 14:56:31（北京时间）**
+🕒 更新时间：**2025年09月25日 15:01:04（北京时间）**
 
 ---
 
@@ -12,10 +12,10 @@
 | 'Film me all you want' - teenage girls with no fear of police torment one High Street | [阅读全文](https://www.bbc.com/news/articles/c0q751vlxw1o?at_medium=RSS&at_campaign=rss) |
 | Labour MPs are privately urging me to challenge PM, says Burnham | [阅读全文](https://www.bbc.com/news/articles/c7v1m873mjyo?at_medium=RSS&at_campaign=rss) |
 | US attacks on alleged drug boats are 'act of tyranny', Colombia's president tells BBC | [阅读全文](https://www.bbc.com/news/articles/cy8rjp178mno?at_medium=RSS&at_campaign=rss) |
-| Drone activity confirmed at multiple airports in Denmark | [阅读全文](https://www.bbc.com/news/articles/c7401vk4lgzo?at_medium=RSS&at_campaign=rss) |
 | 'She doesn't get another childhood': The lives on hold waiting for wheelchairs | [阅读全文](https://www.bbc.com/news/articles/cm2zwm8m41mo?at_medium=RSS&at_campaign=rss) |
 | 'Anti-ICE' message on ammunition at Dallas shooting that killed immigration detainee | [阅读全文](https://www.bbc.com/news/articles/ckge9d26z1ro?at_medium=RSS&at_campaign=rss) |
 | Drug price rises needed to keep pharmaceutical investment in UK, says minister | [阅读全文](https://www.bbc.com/news/articles/cre53qgey0eo?at_medium=RSS&at_campaign=rss) |
+| Trump demands inquiry over UN 'triple sabotage' after escalator and audio mishaps | [阅读全文](https://www.bbc.com/news/articles/c3dr0zrr1kpo?at_medium=RSS&at_campaign=rss) |
 | BBC and news agencies launch film calling on Israel to allow foreign journalists into Gaza | [阅读全文](https://www.bbc.com/news/articles/c8d7yrp80m8o?at_medium=RSS&at_campaign=rss) |
 | Labubu dolls make up 90% of fake toys seized at UK border | [阅读全文](https://www.bbc.com/news/articles/c8645pdq4e0o?at_medium=RSS&at_campaign=rss) |
 
@@ -30,9 +30,9 @@
 | White House raises specter of mass firings if government shuts down - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQYU10ZHRhYVBMbWtpOW53UzJPc1dwY2dIMUZWT0RJZlNUSV9VSnRUVlM2NG5jZWdIYlNmUlNyTFVHRzhSTDdiRk80OWx6ZGthOG5nMkJyMVJKX3ItR1BXTU52OU9qaVdpcHVlenA4d1dvWmFCX2VheWpER1RSTWxrRWZRMjN6N0pfaHNr?oc=5) |
 | China leads nations with new climate plans, defying US climate denial - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQd1lNRV9DZVBWd0c1Y1o2amhoZXVETG81Q3BsdVpGZ0VUQlB3eHNfZm1VM21fcmRkZHlxNFB2M08wZHZleEVsTTdiWFc4TVdHSDBST2N4OThNdm94VkZKbXB3QVRQb1ZlVW5xdUU3aEMzb3BRd0h3Z1ZTRlhEVE1CSm5lRml2em1XeGREWkMtd3dTYU1VSjN3ejJSdVNoUFNmV01mTklkakptU2JfVDZoWTdpRy1oTjZiMV9tZkRR?oc=5) |
 | H-1B visa: US tech sector scrambles in the face of $100,000 fees - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1FZjdrTGJ3cGZTcDQ5SWVrYmYxNHJHODgxYnp3Qzl3Tkg1WTF4ZDFrNUpGZFdULXJFLVpPelg3RThnS0loT2RQY1VycWJUZ2JfTUlOVWNLZWFUZ9IBX0FVX3lxTE14T0MxMm9yYW91QXZlNnFCcE5lMm9ocjlyRXJkQmxETU9DZjFfWXEyX0VrdUdQMGRKQmxFVjBBdXRoXzRlTjgxc3ZYOGdSbzJfZTdrNTJ2U2ZyMTRCbzFN?oc=5) |
+| Massachusetts cranberry farmers choosing to restore their bogs into wetlands amid economic headwinds - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPZ005U3pFVnRySUdpN04zNUF2LUhEc29vU0ZTczNodGozYnYtbVJDQVR6ZXVGQ2Q1elJXVzlVc01NNFpUZXkybTVrUWtRWS10NEJTcnBtUXFDeWVOY1BNaV92Z3MzSmpFNWlDODhXWnFndFU0R2RRc2ttVWtzVFFLTU5XU3FkYVJuQ3dUTFpOQ2trWm0yR0xmVGEtaTRVYUU40gGmAUFVX3lxTE05dFZwNVNPeExyMlpWWkhib0c1bGp1V1FGSS1UczNpbDg2SzFFcjQ1RFJ5ekdGYUhQZEZYcFZKd3Fzc2pXMG1qVUlOOXQ0M0lRT0xraWF5VWM4STFqS2htdXB6eFRqcERCUDhleWhReUhIaEU1bWY5dkE1T2l3cnVsd2hYSXkzQ0JicG96eGR6RmVhSjd6bkxoajBXQVZkSktuTkg1ZWc?oc=5) |
 | A Federal Shutdown May Be Imminent. How Would It Affect the Economy? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPZmtST0gzZjN1NlFqaXRyQmI3eFVvQ0R2YVJHZkw5ZmVfVmV1SDQwWmw3UUhITEdmNzduZVI3amVsRzhrTkNUSWRfOWQzY3VNd0JMTHhrNzhsT2c0azN1Z2JacExvdVhGenZRUkhhQnczV01OQk9WSzFIY1p2ZWZIanJkMFVWemNtRHc?oc=5) |
 | Trump’s attacks on Kimmel and ABC put him at odds with high-profile conservatives - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOcHEtTTNXazVqS3Nxa2pnSWdCWGJVOUtqRFR0QWJQTzZlbUhfNUNGY0VKaDlBRE1FZ3VGV0JKTFRseFRnV2dpZ0lHcXJYNFg0MVFVVkZJU2pkMHJqUEpydXByWTI5WUtkaGczYWxfbVQwMEQ5eW9xakEyQUpZWW03V0JlcUZHU29tWmE1RkxjSTVVUGk3OGlBYXVoMXlaZXpreTFJ?oc=5) |
-| Syria's new president warns Israel's actions could end up alienating U.S. allies - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9weTRqQmZOVExXWEJQRHZkTzhkOGxLV3hKVjVZT0hqZ05CcnlqRFA0Ykc3MS0zaW1LU2NBX3JhblV4X1laZ3kzUGpoNXdkSG00V0dPZ05XYnRTamNZSjNKUnEwZXp3Zk9tSmdyV3Q5MFRhMmFLNjJn0gF8QVVfeXFMTUFOaVpGWWlaSkg2RzlQd09ZZGVYclpSVHhkWFRBcnlYZW5rRW8wbHhqMUhySzhrNm15WExaRER0NmdHNE1EaDUyc3B5Wmo2NjVQUU1IZGJkX0Y4NF9aRE9HSFlVdE96MGZLSVludjI0V2M0M3FrelRUdkRBaQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
