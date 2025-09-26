@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 00:01:19（北京时间）**
+🕒 更新时间：**2025年09月27日 00:09:52（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Justice Department sues six US states over voter registration lists - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxOUFlYTG1ncGlmdUlMOGRxaU02ZnptdzM5ZzlQb2F5MXE2Rm1mZ3lJT0QxdjQ2NHJGdjhlRDNxT0V2VEJVYXBtdXhYSlg3UHlYNzFGZ2hNMG1rMXR1bkp1OUFaa2thWkVmcUdGQTBaV1lKYjB6dmduSTR3V1hHTEVmY2VqSEtEZU5ocFpkRjZUeXdQak9uNTFqcmtEbkRzWU1LMFZ5ZW5NYVhFVHUyd3hnWlRoTmo0UV9QRGZVY0l3Z2llaTh4bzVyLQ?oc=5) |
 | Feasibility of RIFs around a government shutdown called into question - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNZGp6dVEyaXFCQ2lITFJnNDNJV05xcVB4ZWZYcVJ1dGxRbDRZTWluVDEzaWZUcDhKYzRfcUZxYnF4WklMUXdFdWNmTFVxS25oa3FidHBySGk2SUNFQjhwNGh3eEpkckk3cjdtYnBTbFB1aE1mWnhnUjlZM21tNEtfdUlubDdibUhZc3kxSG80aVBBZkJxeXdwZmRDQVpnVW9POWFhOGlNX2tTdi1XNHdNMUlBczMwQWY4aWFfSk1mQVlSZnhyanBEQg?oc=5) |
 | Deadly shooting at Dallas ICE facility follows trend of sniper-type incidents: Experts - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPc3ZEV2RNZF9aU1k1aGhfdVdYTy1iRlZxdHNnQjVCTElvNl8ycU1LX1pzM1hWMm5XZUtUbXhGTmlCLS0yY3U3UF8tdFRORDRGQUtlWVVLTHZMRnJDbENKNUhVc0w3Tm56eXpxeWZBZ3E2RXhqSnpremJ4UWhYdVVkdlpGWHB6U0ZZQ3phYWhVZXc2SllkSjVOU2pwbnN2TjTSAaQBQVVfeXFMTU9vOHdya25IcHRmajF2Nmc0R1psRTBsM2d3TU9VanhQSTdpbF9lUGtmNWdIWndsMHJKa0c1OGxTWFdPd0lmTE1nZ2JVQXdIZG5iVU9JRG9HUVRLRkRaWU1JWXBpemhsVDBzYW40NlFBZzFwYU9DZWVMSGdSTkN4azdzeDhrM1JSeXlOQTcyUVB6UWtrOHd5VTVIeERtalVBeHFWRVc?oc=5) |
+| "Unacceptable": ICE officer relieved of duties after videos show him shoving woman to the ground - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE51S3BZZEhBN1JIN1c0bUxldzNXR0tTRGw0cFctbXNncUZtc09lWDZSOXJkTl9kMXFiM1RzWXdOQkN0MkpxbkRLMlFRQ3V2bE03dl9JSF82UEUtU1laaE40X0N4bXRhd1NVeExtVHdqN1BjYUcy0gF6QVVfeXFMUDJSczYyM0Rtd0VKSnRaZkh5eFJsNDhhQksxVHJncF9qMWxhLXhLT2NGSkloWE9JVTRFRWZEVUVPQzhMaVc0UnZWeVFDVVlvaC1LWUlQWVZIUnNOTF81REpCOGRQQlRPZlh2X2kzZlFGRmZYaTk2a0dYT1E?oc=5) |
 | Inside the political pressure hurtling Democrats towards a government shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxONzh1MDdvTkxiRGlRbVMxSmZqanNMQU1ia18wODlzU1M4dXdDYTBSQmtUY0xKb2k4QU9ncmVnT0tOcHZGRjR2YlFlUWJQWkRVWXZmc09aVzY4X3pJYVV1UVFRNFFoanJzc1NwMExYaGg3ckI0d2VDc3VUdEtMQ0w3aFJ1RFg3QQ?oc=5) |
 | Colbert Investigates Trump’s Claim of Escalator ‘Sabotage’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPVHJXak1SOEYzbmJxT0lVQlpWSkN2MC0tLS1MUWZZdGl1ZExnTXlncHFXRVFXRVF2aHczVE1IWU9CSWY2ZWhxbjhOY0Q0UG84QmZaMlA0R19kUXVCeGR0UldfaVpMSE8tVjZMbjQycWczOGd6b3JlWTd5ZlV3RUtlXzVpVllISnVBQWxHek9Xc0MtUQ?oc=5) |
 | Trump's $100,000 H-1B visa fee drew major backlash. Silicon Valley leaders see silver linings. - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNOEZjWDVIV2FadlZad1ZTamZ2N3ZiTGQ3ZUd2Qnd5X2IweG04Sk95N1ZCNEZBS1RhLVRtTFVCQzhySDFLMkZEOFdQa3dFRmRReWxfYmpWSkVPdkdpSW9YQ0Y4elNIajZhdXBOSkpFcGlxTFhVcVIzaHVFUm9tNWNGZFpDRGxidw?oc=5) |
-| Close National Parks if Government Shuts Down, Former Superintendents Plead - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQODRWdFNhVjJ3eEtQS2FhbG9aeThMOURPZVF6cVppS1lSNHptMnNYNGFLeGRIQ2pwYTY2MmRhaHFaaWdkY0l3MTMyMTAxVVRvZWVGTFpSZ0djRTFOLWwyMzlFSEJOb2xWRWk2RGFlaXFZVy1ObjZ1YWdmX1FiNE9ZUUNKTTdDcG1FUE9YalhPRVhOLVBjQ0E?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
