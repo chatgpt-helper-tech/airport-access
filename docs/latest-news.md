@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月26日 15:24:21（北京时间）**
+🕒 更新时间：**2025年09月26日 15:33:58（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | DNA evidence confirms Travis Decker is dead, says Chelan County sheriff - KOMO | [阅读全文](https://news.google.com/rss/articles/CBMi-gFBVV95cUxOUmFHX2ZpM1hXamJjMm9IOVAyY2hGVkxiSXUwOGJBclVROVZ1WTc1T2lYZ3NtQTNIc0ptMGZLYks2S2FWUXlOZ0JxYjhxRF9YR1ZHa1BrWDNxYkpJY1ZONkV4VVlEVTd0YXBOT1ZKSlZoOUxLbEVzV1JiSkwtc0s0TzhNZS1pNmZPbFZCWjNFbDd4WmluZDRCSXd5SmFSdldOc3YzaW9rWTUwTkxYMUdmVmdsY1p6MGpXUzVPTUpVTjNpREw3aF9IckRaWENrbV9QaFVwYzdUbDhKWFJZUm9oQ0E3MTQ3MEotU3YzOWpQRDJpS2ZvWk9oQlZB?oc=5) |
 | Alabama man convicted of killing store clerk in 1997 is executed by nitrogen gas - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNOTkwLUJ3WVd6MmpGcVV3Y2F0aVNJYUNjUk9Sd3ZPRmQ1UlhCQ1djakJNdjNqeFdvMDNoUENpMVd5cUFPMjFZTmZrNEk0SExwVm90UUNXNTI0VVNLYlMzQ1h0NmxwYXVCZ0s2cEtoM1BFNkkxdG5wSURxQUNWMmdDMjN5RE01dkFuY0pFWHp6MTBsRWpWUDNLcGtuVm9OV0cxWEk5cFY3UWd2eENzblRR0gG0AUFVX3lxTFB2MjFIdEU0NXJldXBBU1JyeElaTTZfcG9rcmZHVU5kay1Hd2xLRDBfelZ0N0ppal9VRklWYzVvMG4zN1VaQ1o1cDMtUjRPWWRGQTNmX1R6ektsZFVfMXE5RjR2SjRYenp2NzdRaWExenVmQlZEYTgyQmJkWlR6UC1vY2JKWXJQNnpaNVJBdEVNX2F2UHN1ejhCVGVMTjVDQTJTcGFNTkpwRVdQTlBRLXJ2ODUwcA?oc=5) |
 | Trump slaps new US tariffs on drugs, trucks and furniture - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQUWtaR2ozcGNQSDg1SE5ZWldCRW16aDdWdDRlMVNtX0dQakVmd01Ma2dBQ2pBcDRJWTVnWXMtV0Zmd1BYRmhUcmpPWVliaGItbS0wRWZ4UW0xLTJzell5SlZaM2UxWnhIejhtSkR4RDRCLXZPbTBfOWtaQXB6czdQZE1RT2cwYXJFYWdXbWVvRS0tOGs4d1llZmtTQnBjWGM3T0FSbzdWeXMzbGpfb2VQUQ?oc=5) |
-| Trump signs memo targeting ‘domestic terrorism’ amid fears of crackdown on the left - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxObHI5M0J1WmlsdDhQdTQxTEczbjJDdkNGdFVmS0N2U1k0TzVVaVF5ZlFMTEZBQUJ0eVZVcUROVTdxNC1Gc05Pbmhmb29tTjZpa2pTN1NhR200MmRJY0N4Y0RqRHVmQjc0Ql9uU0dOSHhVTE1VMkoxUVJadjRkVTl0SkhnR2dWN0xHZmFDN0I0QmlVQXhKOV80Vzd4LUY?oc=5) |
+| Fact Sheet: President Donald J. Trump Develops New Strategy to Counter Domestic Terrorism and Organized Political Violence - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMi_AFBVV95cUxOanNYTmZKUzdCWG91Nm83bWpFVVBVR09QWm5QUUtjcjJJcmZSOFpmcUpwZlJJck9kckNGWVBzbmRDRUY4OWJNY2xFQmV4MUhJZzJ2Z0swalNpMkhTUzNCXzB5dmZwaWVYT3BNMWpPc2JNV2U2UDB2OTdVS3l5M0t6SjJUQ3NjMlNieV9xYnpOU1hIbzZFZDMxeDRyaS1kY1UyMnJMT0toLUJNMVd0b1lpckxVMEVqS3I3VHpoU1B5Y0VMRW96S29Uc1J1dlIzZTB6MC1OX3YtdWUtb0pDaXNkZW9udGktNmQtMW1kVUJacndiMEN3c0RnQ0x5SEM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
