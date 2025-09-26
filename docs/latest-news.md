@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月26日 17:48:07（北京时间）**
+🕒 更新时间：**2025年09月26日 17:57:10（北京时间）**
 
 ---
 
@@ -10,11 +10,11 @@
 |--------|-------------|
 | Chris Mason: Starmer's irritation with Burnham shows as he seeks to tackle critics | [阅读全文](https://www.bbc.com/news/articles/cly19zld70qo?at_medium=RSS&at_campaign=rss) |
 | 'I've got to get out of here': Antisocial acts leave locals living in fear | [阅读全文](https://www.bbc.com/news/videos/c0jqv18yd5eo?at_medium=RSS&at_campaign=rss) |
+| Kneecap rapper's terror case thrown out | [阅读全文](https://www.bbc.com/news/articles/ce846r2drg8o?at_medium=RSS&at_campaign=rss) |
+| Ratmageddon: Why rats are overrunning our cities | [阅读全文](https://www.bbc.com/news/articles/c4gvk397j80o?at_medium=RSS&at_campaign=rss) |
 | Tony Blair in discussions to run transitional Gaza authority | [阅读全文](https://www.bbc.com/news/articles/c3drmk95xlzo?at_medium=RSS&at_campaign=rss) |
 | Police watchdog removes some staff from Nottingham attacks investigation | [阅读全文](https://www.bbc.com/news/articles/czxw18v9851o?at_medium=RSS&at_campaign=rss) |
-| Ratmageddon: Why rats are overrunning our cities | [阅读全文](https://www.bbc.com/news/articles/c4gvk397j80o?at_medium=RSS&at_campaign=rss) |
 | Former FBI director James Comey indicted on two charges | [阅读全文](https://www.bbc.com/news/articles/cy50ggv35zpo?at_medium=RSS&at_campaign=rss) |
-| Trump says he 'will not allow' Netanyahu to annex West Bank | [阅读全文](https://www.bbc.com/news/articles/c3e7d32epk3o?at_medium=RSS&at_campaign=rss) |
 | Tributes pour in for ex-Arsenal youth striker who died after injury | [阅读全文](https://www.bbc.com/news/articles/czjvgkxlx88o?at_medium=RSS&at_campaign=rss) |
 | Word that baffled Race Across the World producers added to dictionary | [阅读全文](https://www.bbc.com/news/articles/cwydlj2nll3o?at_medium=RSS&at_campaign=rss) |
 | How US megastar Luke Combs helped Britain fall in love with country music | [阅读全文](https://www.bbc.com/news/articles/c87yl745xqlo?at_medium=RSS&at_campaign=rss) |
