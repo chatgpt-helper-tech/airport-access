@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月26日 19:57:33（北京时间）**
+🕒 更新时间：**2025年09月26日 20:00:59（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Former FBI chief Comey charged as Trump ramps up campaign against critics - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPb0s3ZE9UYlVacVU0YTBxTUFJUmp0SnVaSVdqVm9rMXJDUUw1QnVhVWdGN0Q1N3A5WEh6TWZsQ2dXSHI0cWZCdlFuNUZMcVJ0dGEzTS1NSmd2aFhGVndvOExjb0haSko3TmFpaEZ6YWtSLVJMdFltN3dSOVU0cnh6TkZ1TGNBaXNHTXBzYjRHM2xHMEptS1doczNCc056VUgzdUx2SXBETWNvS0Q1VEdBYmxlR3FMVUE?oc=5) |
+| Comey’s son-in-law, a federal prosecutor, resigns after indictment - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQTnNwcFVyTVBlSnlFQ2dlQWtCMWpsajdhd2ZtdGUtOHJXVm9vTEE0VnFmaDZQNFpSUXNldDN5ZC1qSW9KcXpGX3hyc21xUVNvTWxoc3FaZGZDbUU0LUc3UENkYjU5ZThSYmRCS29IM0Q2bEFrSDRIcmxWcVF5bnZDWUpKR2RfVjQ?oc=5) |
 | Fact Sheet: President Donald J. Trump Saves TikTok While Protecting National Security - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxQaFJyQ29KdDVySFBkZjFfajUtSkVGUnJGLUc2N2tVU2xkZkFUejZZNUdNeHF2elplMHY5WVVIOE5hTHJ0Ni0xOU9zMUUtMktJRzI1WVBnOHNSZlZMYjRiR0lXWlJmYzRzNTQ1SzFvM1pfQ1ZuRjFEd19qWURTUVZoR29IelM4UGlFTUFKMjBETzJreThTeGdkUGlfZ2ZDVjRwd1Z1ZFNGVm5IUU56dHlOTERIX1AzMUdlbXZ6NVpJbFR5NVhlZzRwVjNhYw?oc=5) |
 | Video shows the moment gunfire erupts at ICE facility in Dallas: Exclusive - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPY1pNUFhST2x3SlQtbThVWTR0ZDRSdXpPYVRmd2lhdEUtanFWU1VKcnZOeHhxSm5DM3I1b2twV2JWdWlYOVBOSXByVWdiV3VFNDhWMzlFNjd2R21yblhBeTFwM1dkRV9Fc0FLbk5uUjhGRkFDVXA4SEFBNEU0bEJCYXNkVGpYQkdVSW5VeDJabXdGREZIaEJQTjB1QlpiMVHSAaQBQVVfeXFMUE5lYmVsRGtadl81NGFXdUVOenRSRW9VV3RXS1BGaHhBaDFsallPc2pqMFRLMGF4N3FwNVBoMWRoWXJnSjJaNGdtRFJaV01fd0dBQVNkS3Z4SnFINXVnbTN1X2dwTjJQY0t0bnBMQnpTSXpkQXJPSjFENGVwOENNRlBoNFB6ckRDNC1VZEFyaEJxV3M1dDBsajJLOTF3aG1hNlhnVzA?oc=5) |
 | ‘They will pay a huge price for this’: Shutdown-ready Trump expects Democrats to blink - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNN1d1VUtsNll3Szd5WVZiU3c0cDZBSWo2eUVNcHVnTjdSaFVXMmk4TVFxRS1ZUUpIVEZEYnBsaW94ZVFocWtVVmdTWjBTelY1WjdkaUhMdnAyVWNQMnBaa3hxMlJuZlpoZFcxbURpeTN6V2JwRXFMYkVBUERpdHUyVEI1ZVpjakR6bThqYkEtanlwYk9TQVZZSVVmUDR0U1pwUkVuUGhSakhrWkhta3ZRb1FuY3FvNFNsU09GMzJrOGUzOGtIRVNkOHVJYnBlQQ?oc=5) |
