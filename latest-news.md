@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 07:02:01（北京时间）**
+🕒 更新时间：**2025年09月27日 07:09:11（北京时间）**
 
 ---
 
@@ -14,8 +14,8 @@
 | Elon Musk and Prince Andrew named in new Epstein files | [阅读全文](https://www.bbc.com/news/articles/cwyl8j1we0lo?at_medium=RSS&at_campaign=rss) |
 | Dubai sex-trade ring boss held by police after BBC investigation | [阅读全文](https://www.bbc.com/news/articles/ce84ezl461po?at_medium=RSS&at_campaign=rss) |
 | TV station owners reinstate Kimmel show after ban | [阅读全文](https://www.bbc.com/news/articles/cy7pm1jz0dlo?at_medium=RSS&at_campaign=rss) |
+| King Charles to meet Pope Leo on rearranged Vatican visit | [阅读全文](https://www.bbc.com/news/articles/cn0xykpdje8o?at_medium=RSS&at_campaign=rss) |
 | What it's like being a dance pro while pregnant | [阅读全文](https://www.bbc.com/news/articles/clyd9xkplvko?at_medium=RSS&at_campaign=rss) |
-| Terror case against Kneecap rapper thrown out | [阅读全文](https://www.bbc.com/news/articles/ce846r2drg8o?at_medium=RSS&at_campaign=rss) |
 | Nursery worker jailed over abuse of 21 babies | [阅读全文](https://www.bbc.com/news/articles/c30616ev66eo?at_medium=RSS&at_campaign=rss) |
 | Holocaust survivor Ruth Posner and husband die at Swiss clinic | [阅读全文](https://www.bbc.com/news/articles/cp8j256l79go?at_medium=RSS&at_campaign=rss) |
 
