@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 07:40:43（北京时间）**
+🕒 更新时间：**2025年09月27日 07:49:27（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Elon Musk and Peter Thiel mentioned in Epstein documents released by Democrats - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNRzlBVElrSDhMcHc1LVdONzNRbktmSEh2cUZLOUs0UnM3QTlTMDdFUlNVQUpCeFRyOV9HZndqVXZZSlhnS0Zyb0c4dXk5V0xybmxTS3kxTFBRV3hvdXBKTEkwSzBlNkRqMGl3RmpTVjJuQThOTEwxeWRCcjdaOUVWWlNjR1hhcUxsNUVj?oc=5) |
 | Des Moines Public Schools superintendent detained by ICE - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOTURmZmhjbmtmSC1PNXlIMW1TMVBMN3dwT0p2WHNzckhScGc4cTFnck9kQWVVUk5BUVNfSXZYNWxfSWkzV2RUWVhEeENpcGRnb0dSZ2dzZDlvQW4wRVdOQlB0M3p4cjhHVlh4S25GRFQ0am9QdW5ybUpHU0hrYU1EU2dxZFpyWXhaZEZHWkJYM1BybU9yRUNKdkN4T2tLNlXSAaQBQVVfeXFMTUQ5Q0JGRDVTb3l1SlV1ck5IaEp5bVYwU0llbl94dl90bW50NEttS3FhTWVuTHhPNE1zWGw2Y3B2eGZxalQtQ0p4YjZLdTdXV0hFcUc1R2FqdWxEWEVsZlFhSzdHRXdJeGpTWWZPd3RxS1A3VFJySVRnbGVjNTRNWDQ2SXV2NTM2YlNxZExFYTVOOGUzZ1BiNV8wTzJPS1ZrRTF4QXY?oc=5) |
 | New details emerge on Hegseth’s unusual mass gathering of top brass - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOckN0RVMzaVpLT0hKb0U5T0doV0k0TFUxbkxTajh2SFd3T1Z4Qll0eU9vQUVQZWk3Qm9oaTF0QzBOa1UyM29BRWhubmpzazEwd3k0Z25WWXN0ZndESXZ0aWZxRWZSNDdwZUNDYTFaTUFjY2VPd05vTEoxdGlRZktvZW9xdU15M3JwOU9ZVEE0bTR2QnNkNlRXd2lVZkROZ3dzV0E?oc=5) |
-| This shutdown could permanently reshape the federal workforce — here's how - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE10MjN1WlNIQVRpMEFsdTZMZHhoMlNoR05TTHI1eDFSRWxDRlBTZFFCZFhSek5pUFA4R1I0aXJYQ0ExdGFHVHlBWnMxSERhY1RtaGNOZEhNRTBRUnhZY3NDTkpPb2pSTkxPaV9Mb1pXZnFzdnZtdVZqOXE2bw?oc=5) |
+| The federal government is heading toward a shutdown. Here's what economists say would be the impact. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQX3ZEZmZHRU1DdjVRLVFXcHpFWUtPZUhpekVtSVRlY2J0QjV6eUxDSzdQVEZXanFYN0xwRHNRRTJYYUNxbDg1VERXb0pPTXozMXZTOFFQNHNoVGFfa0x1VzFXa3drcU16dEhvb09GcG9pdUFWbGJDX2R6aXIzVzFZVnNpQjFFMjJHWk9JSkRQb0V4eGlheG1GMlVaczB3a1NQb0HSAacBQVVfeXFMTnM5M1F5QVEzVkhPQ1VUWDhER01aWXFLQnYxczRSbUxNQWdRZG1nR3VzVkE4TGxRRGc5TFExaDJCd0dUT0N3THpMaVJhOW96eVVzQlJlbE1ERXB1X0FuWHk4R3Q0VXpwNXl5WjZ4QnVQYkRjT0daLVYybF9XLXJpeUREMUxCdFRRZmxiUEpacEJYX0RMTUdJNVJISVR0UmJDQ09XekMzQXM?oc=5) |
 | In rare rebuke, federal officials discipline ICE officer for shoving woman in New York - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOekg3OWtyVlFHeEo4eGM2WGFoZzBZNmNMRTFJcjM3Nk5xYlVJbF9WdUdTbnR0bFlzNmVOc0Nxc1hwVmNtbE44Sno1Z3gwTmVLQWRVc2doZVNQcFRySEFwa0ZQNzZmY1hZZXRUZHE3clpZcnYtMjMtWkNadnhRMnI2MUQxRkJESXRtNGY4bnZDVURZWGpzSmVYZkRvRQ?oc=5) |
-| Midtown Manhattan mass shooting gunman had low-stage CTE, medical examiner finds - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOSUNuM0p6ZS1BbzRJLVFMR1VFZDdyUFBSMDFUOExRRjVmdkVTTzlrc2JEdVNaMXhuTVR6T2RIc1AwRzZNMENIaGNGU0FGUzMzNE00RG5tdjRFX2JIdlM0bzRHWWM4OFpSeFRNczEtYTc3WUpQRmVMZHJTaXRuSk5sempLcFdONVZWcmpPSmYxN3VTUVllNWc?oc=5) |
+| Gunman in NYC Shooting at NFL Headquarters Had CTE - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5fUG5fQU1zalZFTHB4OHFOTldUc2ItX1VieGxzRG9fZk1fZFJiQUp3a2FzQWZFRmtYNXQ4VmlNa1NXUUVGY25DUEE1WXZlMU4yQ2JYUEdSSnJyLUN0SlVhN2FBekRZRW5LMmxrRlVzYy1wVmFOMkdBMA?oc=5) |
 | US says financier Howard Rubin and assistant have been indicted on sex trafficking charges - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPT291ZjRYMzhXYVkxbUVEV1BIaEFuQUkwUW5NUVR4X2tvTUh5UW9QSXBROVd2X1Zxby1jR3RPVWNNR0t0U2lTbVNaNUNNenNxX0VKZTlMUUk5Q2M4TURWZktTc3ZkSzExMVR3UWNjYTZCUV9sN0FxeWJuNFFPSlNEUmNRNGdkT1M3NnVaWXk3VGViZ2NLaGg1N2pKM05VN1ItUm5reXJ6OVotMTZINnZOR3hROEp2amkt?oc=5) |
-| Federal Forces Set to Arrive in Memphis Next Week, Governor Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPVnhYYUQxSlR5cFNsYUtWckJoeXhuV3ZMVjhyOUNuN0RvRENyWkZfTjZvd2R3ampWR1F2UTZPU2ZpLW1JSWVWeHNuS29TQUswS0w2SEt5SW5nTWpQQnBLZEI4dmtDbmpoNWFqQjdYZFZQMm1EaVlKVzVHc2hOeERDSXY1NXVFdkE?oc=5) |
+| Sinclair Ends ‘Jimmy Kimmel Live!’ Boycott, Says Its ABC Stations Will Resume Airing Show Immediately - Variety | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQZm9mQTRYZEZmUzFvd3N2Nm52T1B1bmpGOHN2V3RzamlYS1pYOVduTGNhSEJOTVVzNVRsVjl4V3RtWDRvVDd3LWpHTUJlWHZqVVRSUTNmb2tBLWVhTXJrQTNUZGFTUl9sVUdMbzNSQWNMcEd1YjhxN29CMDRhS210TFBRQWNfMXJjV0lCTUtQVTlkNDB3cjUw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
