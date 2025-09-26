@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月26日 08:01:29（北京时间）**
+🕒 更新时间：**2025年09月26日 08:09:36（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Dallas shooter sought to 'terrorize' ICE workers, official says - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxORldtbnVBbFJTdVR4MHZUMkN5R1VCTnFKNHpnQWtGbkRQX3gyN0tUd2VuOVBEem9PZGh4OGxHdEhhelFSbFhRc09nZXY2cUt3bDdCT2h2ZHcybUdzeHMzcjI2cEFxUURjOW9JWFBNX2JiSzlpUkpERzVlYnV0YlFFLXFNWlBvdw?oc=5) |
 | White House begins plan for mass firings if there’s a government shutdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOUGNjMWt6aWRtN0JaV0VmYlhJUzZHdWJfYjRqVkFPWDR1OXVwLTJYYUgzNjNSdnlNTFVtV19WVU5IZE9vMldIa1d4aVdRc0lHS2VmWm9UazVKR1N0Y1FNM0JiNmlwbmc5dVFocjVOR0w2LTVXOU9oWTVubmF6TmxldXEtclk0RFVWOGpMTW9aN0ZUMEU?oc=5) |
 | Live Updates: Trump Threatens Mass Firings, Hegseth Summons Military Leaders and More - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTFBUdHVvdzVrazU2UmZuTDhoeXl6NEt5X3hDaTdvSzlqc21JR2k0WGRRUkVRdGlYNEdKU0ljbFJwR21qRkhuWk9FTEZ4VVBjeFZCZmltdXh0dDZ0QVdKcE5aQ1FpMA?oc=5) |
+| House Democrats call for investigation into release of Mikie Sherrill’s military records - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQYzEzMEs3b3ZpN2poODJnMlhBVDJMc1lVeV9CdXB3R2dLTVo3MzhvUEdZbGYwUExpNDQxRTRZN3dRZlNoVVE5aXVvT2ZkTThacllOM2RhUGJPR21IR1ZGQnR5VGtBRnRwYVlXTkJ2cHVGRkxWbDFpVDRFWjg1R3VBSkdEcFBzbGg3anFVZThuNml5dm1pRjU0SzZpdmROMlpENGpz?oc=5) |
+| Ryan Walters resigns as Oklahoma's top public schools official to lead conservative educators' group - PBS | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQd0xhQUlHZldlN0dqeC1wTHZpRTA4Ykl6Z3k3UWVYcld0Q1J5T3M0azQ4SFBYX0o1Q1duVkVZQ21EdDhRbmsyejNNemhFcjJGV2R3Vmd0aWRHeVpCLWRjWXhBVFZyVXhGTGhIRHctbkdYMmxnbUtnUUxfaFR6eS00Sjh0QVBkZWUtQWdNR2Z3QnNYM1lscWo1Ylo2ZFpMTDNjZXlqQW9Ibkx3NFdEVVVma0kxM0lha3RxWWphRjI0R3NvQkNjeE5PM0RpNmVoOUZlb0E?oc=5) |
 | Trump signs memo targeting ‘domestic terrorism’ amid fears of leftwing crackdown - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxObHI5M0J1WmlsdDhQdTQxTEczbjJDdkNGdFVmS0N2U1k0TzVVaVF5ZlFMTEZBQUJ0eVZVcUROVTdxNC1Gc05Pbmhmb29tTjZpa2pTN1NhR200MmRJY0N4Y0RqRHVmQjc0Ql9uU0dOSHhVTE1VMkoxUVJadjRkVTl0SkhnR2dWN0xHZmFDN0I0QmlVQXhKOV80Vzd4LUY?oc=5) |
-| Ryan Walters, Oklahoma Education Chief Who Promoted Bibles in Schools, to Resign - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1hdWhNV3RwZnhNWDVUT0t2UHk5aldudS11TnB3dnNmS2J3aWdOVlB5QkFvdDdITXp3emYxaDl0VGprZmVTQ09PbkdhN2N5MDlFYnhCaHhRQVdNc3h4YnpYQkF6ZUxack5USFZ4aHo4OFRqaGh3a3BTMjdoMA?oc=5) |
 | Travis Decker confirmed dead after DNA results show human remains belong to fugitive - CNN | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9pUmxWTFBGREtqeFR6aF8tYzlQenRUM3N5bzNLQ2NWQmNoWlB1SV9jR1d3SmdVNHJSdVUteE93SjRZQmZKdXVkZk5iUnVoR0Z2aldNZG03TTY2Q2Vsb21hYWdSekdoZktiRElfWg?oc=5) |
 | 911 service restored after outages in Mississippi and Louisiana - WAPT | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE16MFVxUHB2dVI5LVpvVzdGc29pRnhlZ1lsRUtvemFNT1NrMjRMc284X2J6aXJWRk1scUN0dC03SkM0OGkxa2l5TDhGcGlyWEo5ZUtzWUNDb1UyVjJnRXJxYl9sUUxFZDVNbGhWUzJ0enpjNnM4dFF5a2JxVQ?oc=5) |
-| Trump-pledged support for Argentina stirs anger among Republicans - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPZjE1bTRvZnRRSTFDQzZZVWxRRkVKRWR6b2hiUThxelZGcGRiNjk2ODl3UzJ4RWR5ZlpRMDBFZTRDTzlDUUQtTGt5UG8xUHZRZ1BHcUVwUEdpM0JFRGIwUVdhd2UxUXlHY2xqX1R1d2ZFWDNLSTJtZ2piVmZSWk9iNDJFUmd4dnNoZTcxeEVoRi1VYkZocURjZEI1Mk5BUGhq?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
