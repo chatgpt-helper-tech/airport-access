@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 06:16:22（北京时间）**
+🕒 更新时间：**2025年09月27日 06:24:03（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | ByteDance expected to maintain big role in new US TikTok, sources say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOVUhNX0R5VHVXMjZCLXZwN0h5N19qUU80dmV2S2JyTEpTZ214aW1EVzJRRmw2UnBIc3dfbVJ6eVVkOTBxekNTVUIxX2RJSW5XMng1d0JzMURlM0tEQ0NBZ2ExZHNpMjk2SGVueEpxcl9Sa1hkaC1BOHRQaERIM3dWdE54RlFSUWVwMFY4VVM1TDgyVXZrcGRXX1BESDRRWEk0Qi11U0p6Mk9JUVQ2Z00tT3hQcFM?oc=5) |
 | ICE officer 'relieved of current duties' after violent confrontation caught on camera - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPdDBkSjV4WVM4cDlzTVRUazRVUmNrYnc3c002V24zM0VQejVISF9fQmhpa1RkelI2aXdUYlFLS2syeUt0bGlhcjZBSXpWeTdqWFo0YUdZTWdtY01RY0Q5NzluenRtU1lYZ3FLYkhNNDB4ZUU2X0EyNm9mWDNDVmFXUFd2TldnMjRUSlVFWTZUQjZRNjU0QnNBdlVsVUhaN1hNWVhKcV9feEMyejFt0gGyAUFVX3lxTE40ZmhUV1BOcmYwWGxaakVhT2dTRk5ib1VjN21QT1FlWWNkYnp4UmUtWlQyX1IxWVlhandRN1VZWDFNQ0VQUXlpaXU1M0xDWXJvZVNMUHo0RWdMTmptVnRjSTJQc3NMemhHYXhETHlaOXRVR2UyS3FYVjJTZmhnU0Z4WFlBb1BMV01rbTZ3QjBGZXVBNWpqMGYxVWdMVU5LZEMtQndQbzZadEZaNy1zY212OWc?oc=5) |
 | Assata Shakur, a fugitive Black militant sought by the US since 1979, dies in Cuba - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQNHV5djdzeEo2QmMtYWI5blMwcE5fQlVBdzc4ZzRnWTRVZ2pUMldSeHhEUU5qRkZpRzFhNXAzaFRCVFJmUjhobE0xM05rWS1VUld5YVF2LUNQVmZWMEN2WVJqVndNSFVLMlg1OThnc1JwOXRUV0MwbUt1dnVKNzgtcjVEQ1JQZHFjblBGYnd0cjBKQUJvNWtv?oc=5) |
-| Tennessee governor says more federal agents to join fight against crime in Memphis next week - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPY25XVWVhTWg4UDZBc2ptRlRZUllDMGZveVk1bDVmajBxVkUxWjB3NzJjczJ2NXo0RjBJRkFnSWVMWC1ya3dWOVhzczBvS0k5NFlWN2l3emo4dlNUdm84Q011Z3RDWkkwNGNrVVotUTRpMk1fdzBoSmFxeDg0SVF3Q1E1ZDhNaXI0RkZLMm9uMnBEa3FzS0pHNll1TzBDUnBITWw5dW5mONIBrAFBVV95cUxNZGlVZHBCYkNhSkFubU1HaUZONkswQWxEeHA5LTFNTThxZHF6dXBVRV9MT1htUzhwVWY4RmMzWXByZTA3aHl3bTJPc3Z5WjlqSDlBNVNXbHp6ZGVySVZtMkJqVFpoZkNnRGxRc1pPQ3FPOWFpOGZHcVBQQ0RIS1AtUlZrZTZjQTByYXlkMTlpblg4Sng0cTBzZTRWZGlzMW8tVG9tTThhcXBfWHFE?oc=5) |
-| Midtown Manhattan mass shooting gunman had low-stage CTE, medical examiner finds - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOSUNuM0p6ZS1BbzRJLVFMR1VFZDdyUFBSMDFUOExRRjVmdkVTTzlrc2JEdVNaMXhuTVR6T2RIc1AwRzZNMENIaGNGU0FGUzMzNE00RG5tdjRFX2JIdlM0bzRHWWM4OFpSeFRNczEtYTc3WUpQRmVMZHJTaXRuSk5sempLcFdONVZWcmpPSmYxN3VTUVllNWc?oc=5) |
+| Gunman in NYC Shooting at NFL Headquarters Had CTE - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5fUG5fQU1zalZFTHB4OHFOTldUc2ItX1VieGxzRG9fZk1fZFJiQUp3a2FzQWZFRmtYNXQ4VmlNa1NXUUVGY25DUEE1WXZlMU4yQ2JYUEdSSnJyLUN0SlVhN2FBekRZRW5LMmxrRlVzYy1wVmFOMkdBMA?oc=5) |
+| California braces for a health insurance meltdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQaUstdHZXc2hqMWlIczlpSXI2WnhSWnlEZzVxdk1GUlJMUFVJbFFxenN5ZFFMbVE5ajV1NFV4NXduNi1YVFFkdmFBNS1RY1l6cWwtZGFUQUFEREJTd3d0RlRCM090dWM3Q1JNdzVEd3M1bXhKa2NNOWFsNlNVeHFUdlk5TC0yNnh6RlN4ZVBnX01GUUlQVUxJbEYxS0szdEda?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
