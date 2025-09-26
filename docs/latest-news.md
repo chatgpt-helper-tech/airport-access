@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 02:57:38（北京时间）**
+🕒 更新时间：**2025年09月27日 03:01:31（北京时间）**
 
 ---
 
@@ -25,14 +25,14 @@
 |--------|-------------|
 | Gunman Who Attacked Midtown Office Building Had C.T.E. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5fUG5fQU1zalZFTHB4OHFOTldUc2ItX1VieGxzRG9fZk1fZFJiQUp3a2FzQWZFRmtYNXQ4VmlNa1NXUUVGY25DUEE1WXZlMU4yQ2JYUEdSSnJyLUN0SlVhN2FBekRZRW5LMmxrRlVzYy1wVmFOMkdBMA?oc=5) |
 | ‘Dangerous abuse of power’: lawmakers sound alarm over Comey indictment - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNc3JOaHVaSGdlWjZScHpudGJPM0M5STNjd0ZLOTRyMFZvRkpGck02Uzg0X0FnaGJIa2x3TjgxWnh0RS1wNVZuNGF5aGYtNndkalQ5N3RMUkxScXM5SFJrWmxmaTlVTUR2MlZQZmFLeUEyemRyOTRrMnhQTDE3bTFYc2d5ZWxmZw?oc=5) |
-| Netanyahu tells U.N. that war will continue amid global backlash - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQWWZjcXpRS3FrLW1VUzdEUWJELWM0OVZqM2xRWlhmWnJXYXhPMkFJNEJwejFPeGh0Nno5RldMNnAtR3ZteW9jMy1lalROVlAxNHBSSE4tWkxrRVdoc1FvcXRybnhUekRjUXdMOENpektDTmtPUFJMa01oRThYS2Z5SHdHdWJKRnJsRjFldDJTOXdDZElHQlhB?oc=5) |
+| Live updates: Delegates walk out on Netanyahu speech at UN General Assembly - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPOHNMNF9WWFhUVmFkTFBRN1VwaUZKQnZRNldKQU5QamJRODVuNlo0M0ZPYlhxNWlvVjFiVXhkVWdsQzI5ZVlwUzF5Q2dSZlBHQzhiRU90WjBQYmduQTM1U1Y5a2lZaWh4LUdQMHkwdjE2bGJIcnFOeFdjU0l4bVFtVDN0dEQzTWtP?oc=5) |
 | ByteDance in line for 50% of profits from $14bn TikTok US spin-off - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1wdVZQclFUVmxkejdzLWk1QmdJVjhwMUUzU0I0bElTV2dTbFRaTTVyR2NnYjhQVjB6YjdsQ2M0R1B5elJ2b2pqOUZIRGtzTi1WRDNHVzhMaFBrTXVXNWlySlJXakZFZ1lZcDZfQXBnR3k?oc=5) |
 | Hegseth calls rare meeting of large number of generals and admirals - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNbmJBRHpselcyY3g4ZGxmNEc0VUdDRTliY19CdlFsc3ZqdVRMR0N6NzJIU2lGWVlwY2VzbUEwaGotSkdNdnJ1R0t4S1FSNDlPNjZGMzVESmlvVkhRTEM2OFNEaXUyUEwtWnFVc2l3d2ZOdW03N3Z4UnQzMkQ0QUVTSUxpZm5VNkVBa1dScmJEWHA4NXZjbnJhY3hCemRYSmNldmZyWWlFa2tzYUhw0gGyAUFVX3lxTFB3Zk1KZkNrLXBFdVRNR1BfSkl4bEN3SUUtd2lfa2k3NG9uYVEySWNiaVRVaEpoUm1RRWJybVBKLXNzdzl6ZjMxbGZTb00xRW1NYXVrWGNKZldOTWFVcjJUejVCTXd2RXBsZTRuRjRyckZyN1l0bmQxMlVEckNQX3JkMm00SlJEbjdvbHRpaTNycmoyU2pNb1FoRXY2dzhFbXVMT2RESk5wY2JITHRGQnFyUnc?oc=5) |
 | ‘They will pay a huge price for this’: Shutdown-ready Trump expects Democrats to blink - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNN1d1VUtsNll3Szd5WVZiU3c0cDZBSWo2eUVNcHVnTjdSaFVXMmk4TVFxRS1ZUUpIVEZEYnBsaW94ZVFocWtVVmdTWjBTelY1WjdkaUhMdnAyVWNQMnBaa3hxMlJuZlpoZFcxbURpeTN6V2JwRXFMYkVBUERpdHUyVEI1ZVpjakR6bThqYkEtanlwYk9TQVZZSVVmUDR0U1pwUkVuUGhSakhrWkhta3ZRb1FuY3FvNFNsU09GMzJrOGUzOGtIRVNkOHVJYnBlQQ?oc=5) |
 | Assata Shakur, a fugitive Black militant sought by the US since 1979, dies in Cuba - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQNHV5djdzeEo2QmMtYWI5blMwcE5fQlVBdzc4ZzRnWTRVZ2pUMldSeHhEUU5qRkZpRzFhNXAzaFRCVFJmUjhobE0xM05rWS1VUld5YVF2LUNQVmZWMEN2WVJqVndNSFVLMlg1OThnc1JwOXRUV0MwbUt1dnVKNzgtcjVEQ1JQZHFjblBGYnd0cjBKQUJvNWtv?oc=5) |
 | Tennessee governor says more federal agents to join fight against crime in Memphis next week - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNOFhHQlFXTV9xSUJpQXhDbXJxY0lIX09OTGxDc0tqdUUxVjVDbHNQVktPNVpqQ1ZvUm9ZZ0xKbEwwbktwTmhIbG1Ob2J5M0JzVzF6STJfWnIzdkQ3TTMycGVsaUJ0bkVmQmRON2NPX2dNQU9DbUQyRmZ6SHNYc1NGUGNfRjFEQ05Wd19Tbkp5OA?oc=5) |
-| "Unacceptable": ICE officer relieved of duties after videos show him shoving woman to the ground - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE51S3BZZEhBN1JIN1c0bUxldzNXR0tTRGw0cFctbXNncUZtc09lWDZSOXJkTl9kMXFiM1RzWXdOQkN0MkpxbkRLMlFRQ3V2bE03dl9JSF82UEUtU1laaE40X0N4bXRhd1NVeExtVHdqN1BjYUcy0gF6QVVfeXFMUDJSczYyM0Rtd0VKSnRaZkh5eFJsNDhhQksxVHJncF9qMWxhLXhLT2NGSkloWE9JVTRFRWZEVUVPQzhMaVc0UnZWeVFDVVlvaC1LWUlQWVZIUnNOTF81REpCOGRQQlRPZlh2X2kzZlFGRmZYaTk2a0dYT1E?oc=5) |
 | A tropical storm or hurricane could lash the Southeast early next week - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQNi1GeUF2cTA0dmpvalNUc19EaEdaTDZqN0pKdXNENF90ZTV6clZWUklDNDRZRGFsSVFaekp5c3RwZnZtNkNkZk5TTWRTZ04tNHBRaGlScW9yMnFaOWREOWZvVWM3SzFLN0tRQ1p2WnRvTDBFNFV4a1dXUFJaUUozMnpDc041Z21ydzlPRlZfQ1Y2SmdtUnM5Rkt2cmxUTENYUHh3?oc=5) |
+| This shutdown could permanently reshape the federal workforce — here's how - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE10MjN1WlNIQVRpMEFsdTZMZHhoMlNoR05TTHI1eDFSRWxDRlBTZFFCZFhSek5pUFA4R1I0aXJYQ0ExdGFHVHlBWnMxSERhY1RtaGNOZEhNRTBRUnhZY3NDTkpPb2pSTkxPaV9Mb1pXZnFzdnZtdVZqOXE2bw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
