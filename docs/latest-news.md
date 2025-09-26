@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月26日 22:09:52（北京时间）**
+🕒 更新时间：**2025年09月26日 22:16:16（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Deadly shooting at Dallas ICE facility follows trend of sniper-type incidents: Experts - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPc3ZEV2RNZF9aU1k1aGhfdVdYTy1iRlZxdHNnQjVCTElvNl8ycU1LX1pzM1hWMm5XZUtUbXhGTmlCLS0yY3U3UF8tdFRORDRGQUtlWVVLTHZMRnJDbENKNUhVc0w3Tm56eXpxeWZBZ3E2RXhqSnpremJ4UWhYdVVkdlpGWHB6U0ZZQ3phYWhVZXc2SllkSjVOU2pwbnN2TjTSAaQBQVVfeXFMTU9vOHdya25IcHRmajF2Nmc0R1psRTBsM2d3TU9VanhQSTdpbF9lUGtmNWdIWndsMHJKa0c1OGxTWFdPd0lmTE1nZ2JVQXdIZG5iVU9JRG9HUVRLRkRaWU1JWXBpemhsVDBzYW40NlFBZzFwYU9DZWVMSGdSTkN4azdzeDhrM1JSeXlOQTcyUVB6UWtrOHd5VTVIeERtalVBeHFWRVc?oc=5) |
 | ‘They will pay a huge price for this’: Shutdown-ready Trump expects Democrats to blink - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNN1d1VUtsNll3Szd5WVZiU3c0cDZBSWo2eUVNcHVnTjdSaFVXMmk4TVFxRS1ZUUpIVEZEYnBsaW94ZVFocWtVVmdTWjBTelY1WjdkaUhMdnAyVWNQMnBaa3hxMlJuZlpoZFcxbURpeTN6V2JwRXFMYkVBUERpdHUyVEI1ZVpjakR6bThqYkEtanlwYk9TQVZZSVVmUDR0U1pwUkVuUGhSakhrWkhta3ZRb1FuY3FvNFNsU09GMzJrOGUzOGtIRVNkOHVJYnBlQQ?oc=5) |
 | Colbert Investigates Trump’s Claim of Escalator ‘Sabotage’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPVHJXak1SOEYzbmJxT0lVQlpWSkN2MC0tLS1MUWZZdGl1ZExnTXlncHFXRVFXRVF2aHczVE1IWU9CSWY2ZWhxbjhOY0Q0UG84QmZaMlA0R19kUXVCeGR0UldfaVpMSE8tVjZMbjQycWczOGd6b3JlWTd5ZlV3RUtlXzVpVllISnVBQWxHek9Xc0MtUQ?oc=5) |
-| Trump slaps 100 percent tariffs on drugs, trucks and 'kitchen cabinets' - France 24 | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPcVJQaEJyU2ZhSUNkUzVaWi1sUHZOTnFTRC1RbGViSHVDZHlTdHN5QkR6ekUzaHFYZHhqVjFIQ1ZuRWNoZFl0UnZrWHhKOGNSbVVnVDRCYkJFZWxoaUhaZzVWX0hOOXRDbElSWlpOSWw3M28yM3Y4WE9MeFBSSjRxaGEwanRlbmNWVHU2ODJuNGZ3LVZmZmtqTUx1T3A?oc=5) |
 | Immigrants with no criminal record now largest group in Ice detention - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQcHUzUUZnVmYwNEZJZ0xibFVSVkxwOExOMVRSTEJHTC1zOEd2a0ZhYVpRdnllUXplNWpHR29MeTJTWWZKcXp3QzRqM0F5dkNFQW9zcHdsSDN0cVlaTFdJVm52aVZqclUzNWstYUY3VnNzWnc5Uk5xaE5XeE50YlNMUG9aUEpKZXRfdERhV1dBT29wdw?oc=5) |
+| European stocks lead as Trump tariffs knock Asia, Fed rate cut bets recede - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5lT0dXQmpLTDlJa181TFBMT1I5cUdaVm5yNWVjU1gwZTdfeUNrWUMzd2U4eW9NSzdUSm5PZXh1U2k3clFYQ29NS2oxOW44aEU3RWFTN0RqampxeG5TX1hHSHVJQmR5eC1tS1V2UDRnRkJkRTZqV2R6cThvYw?oc=5) |
 | Families of Camp Mystic victims say plan to reopen ‘intensified our grief’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQNG9TLU9CdE9xamZuMnFUa1FyLWtzeTZNQ1Y0YjNlSkJpWGdEQWNWRWdDci0tM2cxSGR6d0dva0lJd1o1WE5QUmRmcEdWM3BzN0NSUFRTbFRsaV8tbVJUSGtGZEZNREtQTkVTOUQ5dVdYR1FHOWdSbFh6YlctejF3a2IzQzBiWlBSQTZVODdtYw?oc=5) |
 | Alabama man convicted of killing store clerk in 1997 is executed by nitrogen gas - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNOTkwLUJ3WVd6MmpGcVV3Y2F0aVNJYUNjUk9Sd3ZPRmQ1UlhCQ1djakJNdjNqeFdvMDNoUENpMVd5cUFPMjFZTmZrNEk0SExwVm90UUNXNTI0VVNLYlMzQ1h0NmxwYXVCZ0s2cEtoM1BFNkkxdG5wSURxQUNWMmdDMjN5RE01dkFuY0pFWHp6MTBsRWpWUDNLcGtuVm9OV0cxWEk5cFY3UWd2eENzblRR0gG0AUFVX3lxTFB2MjFIdEU0NXJldXBBU1JyeElaTTZfcG9rcmZHVU5kay1Hd2xLRDBfelZ0N0ppal9VRklWYzVvMG4zN1VaQ1o1cDMtUjRPWWRGQTNmX1R6ektsZFVfMXE5RjR2SjRYenp2NzdRaWExenVmQlZEYTgyQmJkWlR6UC1vY2JKWXJQNnpaNVJBdEVNX2F2UHN1ejhCVGVMTjVDQTJTcGFNTkpwRVdQTlBRLXJ2ODUwcA?oc=5) |
 
