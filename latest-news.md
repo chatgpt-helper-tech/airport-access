@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 04:00:10（北京时间）**
+🕒 更新时间：**2025年09月27日 04:08:38（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | New digital ID will be mandatory to work in the UK, Starmer says | [阅读全文](https://www.bbc.com/news/articles/cn832y43ql5o?at_medium=RSS&at_campaign=rss) |
 | Why is the government introducing digital IDs? | [阅读全文](https://www.bbc.com/news/articles/clyl3lzzed2o?at_medium=RSS&at_campaign=rss) |
 | Netanyahu attacks Palestinian recognition as dozens walk out of UN speech | [阅读全文](https://www.bbc.com/news/articles/cderxxylpzdo?at_medium=RSS&at_campaign=rss) |
+| Elon Musk and Prince Andrew named in new Epstein files | [阅读全文](https://www.bbc.com/news/articles/cwyl8j1we0lo?at_medium=RSS&at_campaign=rss) |
 | Dubai sex-trade ring boss held by police after BBC investigation | [阅读全文](https://www.bbc.com/news/articles/ce84ezl461po?at_medium=RSS&at_campaign=rss) |
-| Terror case against Kneecap rapper thrown out | [阅读全文](https://www.bbc.com/news/articles/ce846r2drg8o?at_medium=RSS&at_campaign=rss) |
 | What it's like being a dance pro while pregnant | [阅读全文](https://www.bbc.com/news/articles/clyd9xkplvko?at_medium=RSS&at_campaign=rss) |
-| Former Lib Dem leader Menzies Campbell dies aged 84 | [阅读全文](https://www.bbc.com/news/articles/cp8j7jnjd6ro?at_medium=RSS&at_campaign=rss) |
-| 'I've got to get out of here': Antisocial acts leave locals living in fear | [阅读全文](https://www.bbc.com/news/videos/c0jqv18yd5eo?at_medium=RSS&at_campaign=rss) |
+| Terror case against Kneecap rapper thrown out | [阅读全文](https://www.bbc.com/news/articles/ce846r2drg8o?at_medium=RSS&at_campaign=rss) |
 | Nursery worker jailed over abuse of 21 babies | [阅读全文](https://www.bbc.com/news/articles/c30616ev66eo?at_medium=RSS&at_campaign=rss) |
-| Labour readmits McDonnell and Begum after benefit cap rebellion | [阅读全文](https://www.bbc.com/news/articles/ce3yegn3k5vo?at_medium=RSS&at_campaign=rss) |
+| Holocaust survivor Ruth Posner and husband die at Swiss clinic | [阅读全文](https://www.bbc.com/news/articles/cp8j256l79go?at_medium=RSS&at_campaign=rss) |
+| 'I've got to get out of here': Antisocial acts leave locals living in fear | [阅读全文](https://www.bbc.com/news/videos/c0jqv18yd5eo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -26,9 +26,9 @@
 | Sinclair is putting Jimmy Kimmel's late-night show back on the air - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOSlEycE15VnlvNDZtc3pzdnVWaHpSQk9VdkhaVnBKY3FBZnRBX3pta0xBWVpGU0pIQnhkbGhxNkNUOF9aeXByZGlBYkVRMlZnbG9ETkZYemVVMFpZdzVNendXYUVlOTBrb2pKZnEzUktfNE14RkEwTGpxcXltY0hpTF9SZ18zQXRDZTZhanBzN205Yk5LTzBJYmctNDl2V1N6TDl0NU42SFfSAVZBVV95cUxPLW1uZjIyc21vX1pQa0VTT0ZsRFNXeWpWSmZEdUc0R3pQSlNjVTlIZzQ1WWNjY2dualYyN00tOVN3MDNEamtIOGNrbXg4M0o1aTk1XzU5Zw?oc=5) |
 | The Indictment of James Comey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPbkIyLTlpb2N0dkM5eTNVSnhsT1RPelBQVmRYZ2FDcElLTUVCb09HaWQ0LXpieGJicV9UTVB3am9EWEU1N1ZOZnlUTl9FRjZPRmdHbDJHc3lxcjBVdE5rWWNCTWlWd2hNQ2k0U2J6R2hlYlpwdjM1NnNtOUxGS25XY3ZDeW1WN0lo?oc=5) |
 | Live updates: Delegates walk out on Netanyahu speech at UN General Assembly - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPOHNMNF9WWFhUVmFkTFBRN1VwaUZKQnZRNldKQU5QamJRODVuNlo0M0ZPYlhxNWlvVjFiVXhkVWdsQzI5ZVlwUzF5Q2dSZlBHQzhiRU90WjBQYmduQTM1U1Y5a2lZaWh4LUdQMHkwdjE2bGJIcnFOeFdjU0l4bVFtVDN0dEQzTWtP?oc=5) |
-| Abu Dhabi royal family to take stake in TikTok US under Trump deal - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNNWNYTnJmZUlqa0pZQlV3YU9qOXFrTXdNajFqc05nLUdoUEFkNFlnZmhsT2dIbFpYZzBhY1p0NmVPcTNEWTVuN1l1T3NCYjdzTW96TGxWZ001M0FyaFZQR3RFVDNPYm54M2hlaXQ3SXhSR0pSVXBpRGl1cWVSMUE5T25SeWRsRDVxcDFZT2JMdVJYRjBEaDJpU2U1X05Ody1kU0E?oc=5) |
+| ByteDance in line for 50% of profits from $14bn TikTok US spin-off - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1wdVZQclFUVmxkejdzLWk1QmdJVjhwMUUzU0I0bElTV2dTbFRaTTVyR2NnYjhQVjB6YjdsQ2M0R1B5elJ2b2pqOUZIRGtzTi1WRDNHVzhMaFBrTXVXNWlySlJXakZFZ1lZcDZfQXBnR3k?oc=5) |
 | Hegseth calls rare meeting of large number of generals and admirals - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNbmJBRHpselcyY3g4ZGxmNEc0VUdDRTliY19CdlFsc3ZqdVRMR0N6NzJIU2lGWVlwY2VzbUEwaGotSkdNdnJ1R0t4S1FSNDlPNjZGMzVESmlvVkhRTEM2OFNEaXUyUEwtWnFVc2l3d2ZOdW03N3Z4UnQzMkQ0QUVTSUxpZm5VNkVBa1dScmJEWHA4NXZjbnJhY3hCemRYSmNldmZyWWlFa2tzYUhw0gGyAUFVX3lxTFB3Zk1KZkNrLXBFdVRNR1BfSkl4bEN3SUUtd2lfa2k3NG9uYVEySWNiaVRVaEpoUm1RRWJybVBKLXNzdzl6ZjMxbGZTb00xRW1NYXVrWGNKZldOTWFVcjJUejVCTXd2RXBsZTRuRjRyckZyN1l0bmQxMlVEckNQX3JkMm00SlJEbjdvbHRpaTNycmoyU2pNb1FoRXY2dzhFbXVMT2RESk5wY2JITHRGQnFyUnc?oc=5) |
-| Assata Shakur, a fugitive Black militant sought by the US since 1979, dies in Cuba - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNc2NGWnhQSnhINUp2V0Y0em5GbnJzZ1JIMXdXRUQ0TjMzNnRYdUcza0ZWUW8yem8zWFFWWUdhQXd1bVh6TklGajE3NXpoSXI5WXdydld2b0JfR2Y4bFFpRzFkb3Q4NnMzSVBYbHRMX25MT1dDSWpYODFBcHc3UXByY09adw?oc=5) |
+| Assata Shakur, an icon of Black liberation who was exiled to Cuba, dies aged 78 - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9PYjJuY3pyQXhKN25ZQng2elVTZzhld0hZbDB1YUVIb2c1ZDBIUHVtcUFELXB3czl6NXNTay1VX1VGU2NqYXZ1dWo4SDJpbkdMT0p6bWRydXVYLW9LeVZoVHBaNnowcGZrOGdXUURWcXZUNFd2ckhaLWRnMXVZR2s?oc=5) |
 | Shane Tamura, gunman in shooting at NFL headquarters, had CTE: Medical examiner - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQc2ZQb2o3b2pLSVM2Wjc0LURtN3o3b1RBWlBFNm5TZTNjYW0zTnRKNDZ0OVBBTzJpRFZ5SzU1ZG5aR0Y5bHRFTVdQbk9NcGhGYmVza3N4cFVmVndlTDN2bXhvbmNGYUpieU93YTNIUFd2RUxXaGI1eXZuTXE2VkVDbmxrZlRyaTdUMkY1TEtHVW83S3NqZWhwZmpmNFR4NFZ1RENfONIBqgFBVV95cUxNb09uRmhucDd5ZHJDZFkwOXlpdVMtTkM3VnRrYnpLaEE0VldxX2xFbzRzb0RNQ1Vtb2JnNXVLUV9TTmkwRUxrN1BfWEs4dzkwcHJxRHNNQUhxWG9oR3JYN3JYbFRwUG9kSHdXWXZvWHZqLUVzSm85N1JOaG16MHpQWVpCMUJsbWdrRGJWZFJqWWRYa2FjbkRwWHk1MkVsMkgxaFY0d3ZsVnpVQQ?oc=5) |
 | California braces for a health insurance meltdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQaUstdHZXc2hqMWlIczlpSXI2WnhSWnlEZzVxdk1GUlJMUFVJbFFxenN5ZFFMbVE5ajV1NFV4NXduNi1YVFFkdmFBNS1RY1l6cWwtZGFUQUFEREJTd3d0RlRCM090dWM3Q1JNdzVEd3M1bXhKa2NNOWFsNlNVeHFUdlk5TC0yNnh6RlN4ZVBnX01GUUlQVUxJbEYxS0szdEda?oc=5) |
 | A tropical storm or hurricane could lash the Southeast early next week - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQNi1GeUF2cTA0dmpvalNUc19EaEdaTDZqN0pKdXNENF90ZTV6clZWUklDNDRZRGFsSVFaekp5c3RwZnZtNkNkZk5TTWRTZ04tNHBRaGlScW9yMnFaOWREOWZvVWM3SzFLN0tRQ1p2WnRvTDBFNFV4a1dXUFJaUUozMnpDc041Z21ydzlPRlZfQ1Y2SmdtUnM5Rkt2cmxUTENYUHh3?oc=5) |
