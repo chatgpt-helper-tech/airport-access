@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月26日 14:57:22（北京时间）**
+🕒 更新时间：**2025年09月26日 15:00:38（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | DNA evidence confirms Travis Decker is dead, says Chelan County sheriff - KOMO | [阅读全文](https://news.google.com/rss/articles/CBMi-gFBVV95cUxOUmFHX2ZpM1hXamJjMm9IOVAyY2hGVkxiSXUwOGJBclVROVZ1WTc1T2lYZ3NtQTNIc0ptMGZLYks2S2FWUXlOZ0JxYjhxRF9YR1ZHa1BrWDNxYkpJY1ZONkV4VVlEVTd0YXBOT1ZKSlZoOUxLbEVzV1JiSkwtc0s0TzhNZS1pNmZPbFZCWjNFbDd4WmluZDRCSXd5SmFSdldOc3YzaW9rWTUwTkxYMUdmVmdsY1p6MGpXUzVPTUpVTjNpREw3aF9IckRaWENrbV9QaFVwYzdUbDhKWFJZUm9oQ0E3MTQ3MEotU3YzOWpQRDJpS2ZvWk9oQlZB?oc=5) |
 | Alabama man convicted of killing store clerk in 1997 is executed by nitrogen gas - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNOTkwLUJ3WVd6MmpGcVV3Y2F0aVNJYUNjUk9Sd3ZPRmQ1UlhCQ1djakJNdjNqeFdvMDNoUENpMVd5cUFPMjFZTmZrNEk0SExwVm90UUNXNTI0VVNLYlMzQ1h0NmxwYXVCZ0s2cEtoM1BFNkkxdG5wSURxQUNWMmdDMjN5RE01dkFuY0pFWHp6MTBsRWpWUDNLcGtuVm9OV0cxWEk5cFY3UWd2eENzblRR0gG0AUFVX3lxTFB2MjFIdEU0NXJldXBBU1JyeElaTTZfcG9rcmZHVU5kay1Hd2xLRDBfelZ0N0ppal9VRklWYzVvMG4zN1VaQ1o1cDMtUjRPWWRGQTNmX1R6ektsZFVfMXE5RjR2SjRYenp2NzdRaWExenVmQlZEYTgyQmJkWlR6UC1vY2JKWXJQNnpaNVJBdEVNX2F2UHN1ejhCVGVMTjVDQTJTcGFNTkpwRVdQTlBRLXJ2ODUwcA?oc=5) |
 | Exclusive ｜ Trump Takes Aim at Chip Makers With New Plan to Throttle Imports - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBJS29sb1RaRENYNHlMS0FVS3hVQlBvN0ptMkZxZTZBT0lsU09HWWx2VDZYUFNSMkdwcW1INUpYa0MxSnFYTFlyRkM1V0RrV19IeW5QZWYtMjFZLVJCanp6Xzh2UW1SY2NkZkpZNEN4Vk5fZnNDWDNEcmI3VTQ?oc=5) |
-| Trump slams "radical left" after signing "organized political violence" memo - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPUllWTmNQbEd6WEswUWNDa0Q2Qks4NkVLcWQwVkRBcHQ5MVVucGtpRHdpZHVhZzVpbVd2WDFlY1d4Qi1FVzBoQ2ZYZ3RKNEUydzl5X095Q1IweGUwYmhtUzRVTGdBREkydG1teDNnZW9XWG5TbTh0eUNmczNzZTBjQzBPaEI5SFk?oc=5) |
+| Fact Sheet: President Donald J. Trump Develops New Strategy to Counter Domestic Terrorism and Organized Political Violence - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMi_AFBVV95cUxOanNYTmZKUzdCWG91Nm83bWpFVVBVR09QWm5QUUtjcjJJcmZSOFpmcUpwZlJJck9kckNGWVBzbmRDRUY4OWJNY2xFQmV4MUhJZzJ2Z0swalNpMkhTUzNCXzB5dmZwaWVYT3BNMWpPc2JNV2U2UDB2OTdVS3l5M0t6SjJUQ3NjMlNieV9xYnpOU1hIbzZFZDMxeDRyaS1kY1UyMnJMT0toLUJNMVd0b1lpckxVMEVqS3I3VHpoU1B5Y0VMRW96S29Uc1J1dlIzZTB6MC1OX3YtdWUtb0pDaXNkZW9udGktNmQtMW1kVUJacndiMEN3c0RnQ0x5SEM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
