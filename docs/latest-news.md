@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 05:41:52（北京时间）**
+🕒 更新时间：**2025年09月27日 05:48:41（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | ByteDance expected to maintain big role in new US TikTok, sources say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOVUhNX0R5VHVXMjZCLXZwN0h5N19qUU80dmV2S2JyTEpTZ214aW1EVzJRRmw2UnBIc3dfbVJ6eVVkOTBxekNTVUIxX2RJSW5XMng1d0JzMURlM0tEQ0NBZ2ExZHNpMjk2SGVueEpxcl9Sa1hkaC1BOHRQaERIM3dWdE54RlFSUWVwMFY4VVM1TDgyVXZrcGRXX1BESDRRWEk0Qi11U0p6Mk9JUVQ2Z00tT3hQcFM?oc=5) |
 | Midtown Manhattan mass shooting gunman had low-stage CTE, medical examiner finds - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOSUNuM0p6ZS1BbzRJLVFMR1VFZDdyUFBSMDFUOExRRjVmdkVTTzlrc2JEdVNaMXhuTVR6T2RIc1AwRzZNMENIaGNGU0FGUzMzNE00RG5tdjRFX2JIdlM0bzRHWWM4OFpSeFRNczEtYTc3WUpQRmVMZHJTaXRuSk5sempLcFdONVZWcmpPSmYxN3VTUVllNWc?oc=5) |
 | ICE officer 'relieved of current duties' after violent confrontation caught on camera - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPdDBkSjV4WVM4cDlzTVRUazRVUmNrYnc3c002V24zM0VQejVISF9fQmhpa1RkelI2aXdUYlFLS2syeUt0bGlhcjZBSXpWeTdqWFo0YUdZTWdtY01RY0Q5NzluenRtU1lYZ3FLYkhNNDB4ZUU2X0EyNm9mWDNDVmFXUFd2TldnMjRUSlVFWTZUQjZRNjU0QnNBdlVsVUhaN1hNWVhKcV9feEMyejFt0gGyAUFVX3lxTE40ZmhUV1BOcmYwWGxaakVhT2dTRk5ib1VjN21QT1FlWWNkYnp4UmUtWlQyX1IxWVlhandRN1VZWDFNQ0VQUXlpaXU1M0xDWXJvZVNMUHo0RWdMTmptVnRjSTJQc3NMemhHYXhETHlaOXRVR2UyS3FYVjJTZmhnU0Z4WFlBb1BMV01rbTZ3QjBGZXVBNWpqMGYxVWdMVU5LZEMtQndQbzZadEZaNy1zY212OWc?oc=5) |
-| Assata Shakur, a fugitive Black militant sought by the US since 1979, dies in Cuba - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQNHV5djdzeEo2QmMtYWI5blMwcE5fQlVBdzc4ZzRnWTRVZ2pUMldSeHhEUU5qRkZpRzFhNXAzaFRCVFJmUjhobE0xM05rWS1VUld5YVF2LUNQVmZWMEN2WVJqVndNSFVLMlg1OThnc1JwOXRUV0MwbUt1dnVKNzgtcjVEQ1JQZHFjblBGYnd0cjBKQUJvNWtv?oc=5) |
 | Elon Musk, Peter Thiel and Steve Bannon named in Epstein files released by Democrats - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOWnljQzJ2czNBZjBYNGtWTFdOd0c5N2QtSnpFZzVZNDZ2cDZ3dlhJTVllY3pQbHlCbktVaW43Y1ljQVA2VEhXNExOTVpjVkhtNkk5dU1HOWt1M2Q1WVJCVXBzVDFzM0tEaDNKZ2hkWGRJVEJQWXF0c1lPbFBCTEdCUnpEX3BDSHlG?oc=5) |
-| California braces for a health insurance meltdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQaUstdHZXc2hqMWlIczlpSXI2WnhSWnlEZzVxdk1GUlJMUFVJbFFxenN5ZFFMbVE5ajV1NFV4NXduNi1YVFFkdmFBNS1RY1l6cWwtZGFUQUFEREJTd3d0RlRCM090dWM3Q1JNdzVEd3M1bXhKa2NNOWFsNlNVeHFUdlk5TC0yNnh6RlN4ZVBnX01GUUlQVUxJbEYxS0szdEda?oc=5) |
+| Federal Forces Set to Arrive in Memphis Next Week, Governor Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPVnhYYUQxSlR5cFNsYUtWckJoeXhuV3ZMVjhyOUNuN0RvRENyWkZfTjZvd2R3ampWR1F2UTZPU2ZpLW1JSWVWeHNuS29TQUswS0w2SEt5SW5nTWpQQnBLZEI4dmtDbmpoNWFqQjdYZFZQMm1EaVlKVzVHc2hOeERDSXY1NXVFdkE?oc=5) |
+| Humberto becomes a hurricane in the Atlantic as Gabrielle moves away from the Azores - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxNUDMtWHVYWFREOU9uck1XdWhpSUVlQ3RLTV9JT2VmOVZvLWNBcy1iTHM4TDNSWDZSRmVyYjJLbnBtNURNUnlmaDhoLUhvR3EzZkpJVlV1Zl9YNlBPYWFVY0Q4LURmcFVKWmdDcjNCUzQwN2J0U3JmVXRBNmtjQUdSNXgzcUNYSnZ1d0xGeHB4WVpEV1F6MzhRWFhPd2JHVktKM3ZDekdDQ1BhV2hILTAway1fMmM5YmNfMkVzbA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
