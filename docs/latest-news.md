@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月26日 16:48:14（北京时间）**
+🕒 更新时间：**2025年09月26日 16:56:30（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | Tony Blair in discussions to run transitional Gaza authority | [阅读全文](https://www.bbc.com/news/articles/c3drmk95xlzo?at_medium=RSS&at_campaign=rss) |
 | Ratmageddon: Why rats are overrunning our cities | [阅读全文](https://www.bbc.com/news/articles/c4gvk397j80o?at_medium=RSS&at_campaign=rss) |
 | Former FBI director James Comey indicted on two charges | [阅读全文](https://www.bbc.com/news/articles/cy50ggv35zpo?at_medium=RSS&at_campaign=rss) |
-| Samaritans facing volunteer exodus over proposed branch closures | [阅读全文](https://www.bbc.com/news/articles/c931w38kdqwo?at_medium=RSS&at_campaign=rss) |
 | Police watchdog removes some staff from Nottingham attacks investigation | [阅读全文](https://www.bbc.com/news/articles/czxw18v9851o?at_medium=RSS&at_campaign=rss) |
+| Samaritans facing volunteer exodus over proposed branch closures | [阅读全文](https://www.bbc.com/news/articles/c931w38kdqwo?at_medium=RSS&at_campaign=rss) |
+| Trump says he 'will not allow' Netanyahu to annex West Bank | [阅读全文](https://www.bbc.com/news/articles/c3e7d32epk3o?at_medium=RSS&at_campaign=rss) |
 | Life-saving stem cell centre welcomes first donors | [阅读全文](https://www.bbc.com/news/articles/c5y2y2pgd75o?at_medium=RSS&at_campaign=rss) |
 | No 'pensioner deportations' under Reform, says newly recruited MP Kruger | [阅读全文](https://www.bbc.com/news/articles/cy9nyex12j5o?at_medium=RSS&at_campaign=rss) |
-| Trump says he 'will not allow' Netanyahu to annex West Bank | [阅读全文](https://www.bbc.com/news/articles/c3e7d32epk3o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,7 +31,7 @@
 | LA County releases after-action report on Eaton and Palisades fires, finding 'series of weaknesses' - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQa0ZDZDlGdW1ER0tnN3VMV3RaMHg4YVdXcTl4anVQQUQtX3lHVHdBajAtbDZFZmQyZzM0V0hFdjNNdnlZN3ZSUElYbFNhX21rdk1WSDdhcm9SVDhLS01PTkFKY3JpT0dQeHFmZmc4Y01talI2eVc5NG12Vk5BSm9JVjJaNGxvcFFQM2V3STZXONIBlAFBVV95cUxPVVRGNUtodXpwWUdQdjctLU9VXzljcmVCbW5DTWVxOVZicUhQaU1pZFdIM21INnN4Q0RaMEcxX1MyM1BlMkpsdTRsaXkzbUVYeXlFT2QzQjFrM0VUcl96TVhZZUhscHhZclVkZ0dBQlhfcDVOaDc4cnBSVFpuS2hUZXN2eEdxNTVHUTFGeG9hVXFzUWRy?oc=5) |
 | Human remains identified as Travis Decker, wanted for killing his daughters - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5mWXBsQVJzc2xQUjFCZ3UtWnUybU1ablcyYTBJYjV5bWZoRzZsV3g0WTktTWtyOTRJQ1Z5UmVnNkZxdzA5YXgtd0g3MXBwc3VyR2h4clpNd2huRlJwOFJmX0RpT0VBY2k4RmFWcDlvN0tpVGthX2dnSFRnWUQ?oc=5) |
 | Alabama man convicted of killing store clerk in 1997 is executed by nitrogen gas - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNOTkwLUJ3WVd6MmpGcVV3Y2F0aVNJYUNjUk9Sd3ZPRmQ1UlhCQ1djakJNdjNqeFdvMDNoUENpMVd5cUFPMjFZTmZrNEk0SExwVm90UUNXNTI0VVNLYlMzQ1h0NmxwYXVCZ0s2cEtoM1BFNkkxdG5wSURxQUNWMmdDMjN5RE01dkFuY0pFWHp6MTBsRWpWUDNLcGtuVm9OV0cxWEk5cFY3UWd2eENzblRR0gG0AUFVX3lxTFB2MjFIdEU0NXJldXBBU1JyeElaTTZfcG9rcmZHVU5kay1Hd2xLRDBfelZ0N0ppal9VRklWYzVvMG4zN1VaQ1o1cDMtUjRPWWRGQTNmX1R6ektsZFVfMXE5RjR2SjRYenp2NzdRaWExenVmQlZEYTgyQmJkWlR6UC1vY2JKWXJQNnpaNVJBdEVNX2F2UHN1ejhCVGVMTjVDQTJTcGFNTkpwRVdQTlBRLXJ2ODUwcA?oc=5) |
-| A 100% tariff on some imported drugs is coming October 1, Trump says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPdW95ZWZjcjgzSGJnUkd2d2xzMTNSTmp1Q3VUTGEzVlJjQUVxSzFrd3lGbTBOWmpPWFpOSkJvWk9ycHk1RXlGWWhXOTdwcXpqZGcybks5Wm5qTWxjdzVrLTdrUGNYRXZBZFNNME95dTNyeXZ6aDIyMDBuQTcxTVhRR2U0TQ?oc=5) |
+| Trump to put import taxes on pharmaceutical drugs, kitchen cabinets, furniture and heavy trucks - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOcGdoTVR0aE1HUF9heENPbllSbl90VkE4VFZsQlJzQnZ5ZEY3RWZzSm9tekJValVoaFVpemRXWTRaVkpKTy1ZTzBQQnBfejZ1X0tpQW5NME5yYmU1NktrNnpDMnJMUGZXMVhXRXhqTXJOZ1M1NmhHTGszSnN1d0haQzZmbUlTZFF4VTJkWldVMnMyb0NDYW5TOVBQZTNudnpwR051MWd0bC16OEpVai1qenViWQ?oc=5) |
 | Trump Orders Broad Effort to Root Out Groups He Says Organize Political Violence - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQN3htNFUyZlFmMXVYWHRqNEZuT0lJZklLMDNpeGU2Sm5BR0laeXNGV2JVaWJfLXlINjZYNGhram9VeUZSYkZ4OFpaSkxvV25aWVNYTVpCNVF6SFNIOE9ESDRxY196bnNvLUI2S3ktczE3V0YtSHZPSlN6MmMzcUdPVTIzMGpXQ2dkemRrSmtuVkQ?oc=5) |
 
 ---
