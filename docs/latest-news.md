@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月26日 09:57:57（北京时间）**
+🕒 更新时间：**2025年09月26日 10:00:25（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Dallas shooter sought to 'terrorize' ICE workers, official says - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxORldtbnVBbFJTdVR4MHZUMkN5R1VCTnFKNHpnQWtGbkRQX3gyN0tUd2VuOVBEem9PZGh4OGxHdEhhelFSbFhRc09nZXY2cUt3bDdCT2h2ZHcybUdzeHMzcjI2cEFxUURjOW9JWFBNX2JiSzlpUkpERzVlYnV0YlFFLXFNWlBvdw?oc=5) |
 | Trump signs memo targeting ‘domestic terrorism’ amid fears of crackdown on the left - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxObHI5M0J1WmlsdDhQdTQxTEczbjJDdkNGdFVmS0N2U1k0TzVVaVF5ZlFMTEZBQUJ0eVZVcUROVTdxNC1Gc05Pbmhmb29tTjZpa2pTN1NhR200MmRJY0N4Y0RqRHVmQjc0Ql9uU0dOSHhVTE1VMkoxUVJadjRkVTl0SkhnR2dWN0xHZmFDN0I0QmlVQXhKOV80Vzd4LUY?oc=5) |
 | Remains found in Washington state are of Travis Decker, wanted in daughters' killings, officials say - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQQ1pPRTBDYTAwWm5OcXUzTExLYm5qTHBjLUF1eGxfRmIwV2hFZXhTUW5LWGd0UThJVW1OZzBCQVNLQ1FYYmh4TFRqVW1lekxHSy1GWUstWHo2SkNzdWhNZ0RyR1RDRFk2TGQ3OHI4ajZPZklrTDhPay1fcDhVT20tdDFYU0ZiQXV5THRoYlVNQjdnRl9sZDQ5bFQ1VDRGbDNseW1aOWM4Q2NPY05QMmI4TkRqelFZdw?oc=5) |
-| Ryan Walters resigns as Oklahoma's top public schools official to lead conservative educators' group - PBS | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQd0xhQUlHZldlN0dqeC1wTHZpRTA4Ykl6Z3k3UWVYcld0Q1J5T3M0azQ4SFBYX0o1Q1duVkVZQ21EdDhRbmsyejNNemhFcjJGV2R3Vmd0aWRHeVpCLWRjWXhBVFZyVXhGTGhIRHctbkdYMmxnbUtnUUxfaFR6eS00Sjh0QVBkZWUtQWdNR2Z3QnNYM1lscWo1Ylo2ZFpMTDNjZXlqQW9Ibkx3NFdEVVVma0kxM0lha3RxWWphRjI0R3NvQkNjeE5PM0RpNmVoOUZlb0E?oc=5) |
-| Trump Will Slap Tariffs on Imported Drugs, Trucks and Household Furnishings - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPdGg3VjlzZWR4VmFUQVNrWnFRRmh5c3M1UTNlaDdqQ2NNazc2Ynp0WF9veHRGX29TMDlrQVV5RWRycEZzTlRYaEdXZlBUYU5haG9Fb0pwcXVqdnZ4enB6Y1BpcWJGMk1ONXlUcm9ZcW5fTmw4VnhRaHU0Mi1WdUFySDBNcUpNX3VkR0N0SjRoYlpqUTZmV25vdjIxUGhrU1hHZE16WDFn?oc=5) |
+| Ryan Walters, Oklahoma Education Chief Who Promoted Bibles in Schools, to Resign - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1hdWhNV3RwZnhNWDVUT0t2UHk5aldudS11TnB3dnNmS2J3aWdOVlB5QkFvdDdITXp3emYxaDl0VGprZmVTQ09PbkdhN2N5MDlFYnhCaHhRQVdNc3h4YnpYQkF6ZUxack5USFZ4aHo4OFRqaGh3a3BTMjdoMA?oc=5) |
+| Trump announces a 25% tariff on trucks and a 30% tariff on furniture - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFB1UUdCa1dFVl9YajF6OU1XbkNmWVA2SmlBQlNJSDJId0tycXV0bGVhVGtGa3FNTHFhYkZTeHVNUUk3Y3VFeWxtVE8wYmt6Um0xUjNEQWZXbl9Gakc5c20xNUpuQzBLNkRHOEp1QmFrY3FBdlE4SlZRZg?oc=5) |
 | Alabama executes inmate who killed gas station clerk for $250 in 1997 robbery - AL.com | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxNM1lSVXYxMGlfOXRFMmtlQlROZFo5VVZDYVZ0MHZfclRpOTlkZDd3TWlmN0otMU1fYWlqbnFiMkJZUHd1aU1XWnNMVm01T3R5T3ZYbXJpMjFqR29YYzR5aElDdlduSEpvX0Rsb25aZTJXbjF6aUtSQThsaWd3SVlMNU0xX0JCc1dfcUFwZExYeTZXM2VNUTFTcjVRejJIVUR6MFNnblMyWTk3MWpYYmI1RjBMMWNkU0dnLXdDVmJJRHJKd9IB1gFBVV95cUxPQW55WjVvR1RWb3RHUHMwMm50QmxMR1JsQU9EbjN3QnRpUUJ1S0VYTENqaW94bkJUMWtBTGJkMHdaaXVsc3dIRFlyN0V3TXFYRnAwazBhQXdhbTB0NXlXMGtsTThGQVIzTUZiaHJDLWQ1SEhCTmo5cWhfbTN1WkVKLXNmYjdtelZCY3NiWWJwM3BLcm9hbXdsTUlaYVdEcEptVjgyNk05WUZlN1dDZHJXYUVzVllCSFBCRlZYT0lpcThWRW9vNElMdmdpTFhQU3pJaUMxR3BR?oc=5) |
 
 ---
