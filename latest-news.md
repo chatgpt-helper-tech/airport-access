@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 07:49:27（北京时间）**
+🕒 更新时间：**2025年09月27日 07:57:22（北京时间）**
 
 ---
 
@@ -8,16 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Elon Musk and Prince Andrew named in new Epstein files | [阅读全文](https://www.bbc.com/news/articles/cwyl8j1we0lo?at_medium=RSS&at_campaign=rss) |
 | New digital ID will be mandatory to work in the UK, Starmer says | [阅读全文](https://www.bbc.com/news/articles/cn832y43ql5o?at_medium=RSS&at_campaign=rss) |
 | Why is the government introducing digital IDs? | [阅读全文](https://www.bbc.com/news/articles/clyl3lzzed2o?at_medium=RSS&at_campaign=rss) |
 | Netanyahu attacks Palestinian recognition as dozens walk out of UN speech | [阅读全文](https://www.bbc.com/news/articles/cderxxylpzdo?at_medium=RSS&at_campaign=rss) |
-| Elon Musk and Prince Andrew named in new Epstein files | [阅读全文](https://www.bbc.com/news/articles/cwyl8j1we0lo?at_medium=RSS&at_campaign=rss) |
-| Dubai sex-trade ring boss held by police after BBC investigation | [阅读全文](https://www.bbc.com/news/articles/ce84ezl461po?at_medium=RSS&at_campaign=rss) |
 | TV station owners reinstate Kimmel show after ban | [阅读全文](https://www.bbc.com/news/articles/cy7pm1jz0dlo?at_medium=RSS&at_campaign=rss) |
+| Europe take three-point lead on opening day of Ryder Cup | [阅读全文](https://www.bbc.com/sport/golf/videos/c5y8dz451l6o?at_medium=RSS&at_campaign=rss) |
+| Dubai sex-trade ring boss held by police after BBC investigation | [阅读全文](https://www.bbc.com/news/articles/ce84ezl461po?at_medium=RSS&at_campaign=rss) |
 | King Charles to meet Pope Leo on rearranged Vatican visit | [阅读全文](https://www.bbc.com/news/articles/cn0xykpdje8o?at_medium=RSS&at_campaign=rss) |
 | What it's like being a dance pro while pregnant | [阅读全文](https://www.bbc.com/news/articles/clyd9xkplvko?at_medium=RSS&at_campaign=rss) |
 | Nursery worker jailed over abuse of 21 babies | [阅读全文](https://www.bbc.com/news/articles/c30616ev66eo?at_medium=RSS&at_campaign=rss) |
-| Holocaust survivor Ruth Posner and husband die at Swiss clinic | [阅读全文](https://www.bbc.com/news/articles/cp8j256l79go?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | In rare rebuke, federal officials discipline ICE officer for shoving woman in New York - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOekg3OWtyVlFHeEo4eGM2WGFoZzBZNmNMRTFJcjM3Nk5xYlVJbF9WdUdTbnR0bFlzNmVOc0Nxc1hwVmNtbE44Sno1Z3gwTmVLQWRVc2doZVNQcFRySEFwa0ZQNzZmY1hZZXRUZHE3clpZcnYtMjMtWkNadnhRMnI2MUQxRkJESXRtNGY4bnZDVURZWGpzSmVYZkRvRQ?oc=5) |
 | Gunman in NYC Shooting at NFL Headquarters Had CTE - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5fUG5fQU1zalZFTHB4OHFOTldUc2ItX1VieGxzRG9fZk1fZFJiQUp3a2FzQWZFRmtYNXQ4VmlNa1NXUUVGY25DUEE1WXZlMU4yQ2JYUEdSSnJyLUN0SlVhN2FBekRZRW5LMmxrRlVzYy1wVmFOMkdBMA?oc=5) |
 | US says financier Howard Rubin and assistant have been indicted on sex trafficking charges - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPT291ZjRYMzhXYVkxbUVEV1BIaEFuQUkwUW5NUVR4X2tvTUh5UW9QSXBROVd2X1Zxby1jR3RPVWNNR0t0U2lTbVNaNUNNenNxX0VKZTlMUUk5Q2M4TURWZktTc3ZkSzExMVR3UWNjYTZCUV9sN0FxeWJuNFFPSlNEUmNRNGdkT1M3NnVaWXk3VGViZ2NLaGg1N2pKM05VN1ItUm5reXJ6OVotMTZINnZOR3hROEp2amkt?oc=5) |
-| Sinclair Ends ‘Jimmy Kimmel Live!’ Boycott, Says Its ABC Stations Will Resume Airing Show Immediately - Variety | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQZm9mQTRYZEZmUzFvd3N2Nm52T1B1bmpGOHN2V3RzamlYS1pYOVduTGNhSEJOTVVzNVRsVjl4V3RtWDRvVDd3LWpHTUJlWHZqVVRSUTNmb2tBLWVhTXJrQTNUZGFTUl9sVUdMbzNSQWNMcEd1YjhxN29CMDRhS210TFBRQWNfMXJjV0lCTUtQVTlkNDB3cjUw?oc=5) |
+| An influx of federal agents will arrive in Memphis next week, governor says - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQMnE5b3Z2MEs2NGkyc2ZKNjIwYUFsODBzSkh2RjVaeXZkczItQjFDVFdreHdxdkJiOUNfTkNvWkowRVRYbzRIX211UVowdVcxakR4bHB6b1UtVUtWdkE0TVp4MmY4SE1VeHFpS1lmdzJJQjItUHcxNG9EbzE4VFhVdlBqZ3N2T1h3LXNNalZPQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
