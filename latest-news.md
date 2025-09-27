@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 13:16:10（北京时间）**
+🕒 更新时间：**2025年09月27日 13:24:39（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | House Democrats release partial Epstein records referencing Musk, Gates and Prince Andrew - PBS | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxOTzVSc1BDaHByLXAyM2s1bTNFRDFBOTNZM1NqRzd4MEVubk1tT3d3NFlmb2pDaFZsVWplNFhLVnRad2x6VGFMX1N4WVY0Qy1ZU0FyUmR0SFplR2hXV2dqRVNJZVo3V0F2ZnlsNmRJNVB3U1hkWFB2M1dDNEt5ODluYkxCbEdCZHZvQW50WHJweTFWOTV6ZkU5WnVqVE5jcmV5ZzBOOUpSTjFVSkJSaEl1R0VVOVlsWGs5eWtoc1I0d2M1SkNm0gHKAUFVX3lxTE5GMDZFbDBhUVp0MjE0eHVCZG9SRE5McU1mcVJUOEZZZGN6dlo0WlBYeGtrWXZNRFN4NlB0ZHRCWGpEZ2JMc25BaHk2R2VDVThreTAzSFRPczUxaXZaS2otOVA5dDNHbGdCM3BXbE1WanJNc20zS2FIRW40dDdvaEk4VEFfbU0zS1hVM0s5NllLdFViTDhtbXFITUg4WEN1ZXlZeGdoT24wNzc4ejBkSjV0aWJXemQxb1RBbG5GUXBzQmFtenRlTnp6ZHc?oc=5) |
 | Gunman who blamed NFL for hiding brain injury dangers had CTE, medical examiner confirms - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNbHI5Qm96Y1ZQWk16ZFZHNmd1Tjk4RVVTR29Vbk9DSHUwR0xSRFhuWFhYRGNZZ0k0UFNhYjlPNGZzOVFZcS02R2VIR3YyOHpsaEIyN2xiSF9uWWlEZ1dpZmVBZVlwVkM1ekJLaTl6bVl2STZSUnk3em5JWjU0UW9qQ3EwRms0QVIxcjQ5VF9PQ1d3V2hSMWp5U2Jn?oc=5) |
 | Trump fires US attorney who told border agents to follow law on immigration raids - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNb3hjeG1vVTJyVm5UZnRZX2FHYVFDUVcyWkFPNEwxVDdGcXd5M3lIOFlvRUFzcjlMeUFKNkNIVG1yNWZvNTltZ0czZzZRS3NmTHh2RkdPRnNpVEYzbTFFYXFLV19iZmd5eWNJLXpLX1ZSRmZPa0FNSVNuTlRnY2ktamYwZExCZzdt?oc=5) |
+| US says financier Howard Rubin and assistant have been indicted on sex trafficking charges - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPT291ZjRYMzhXYVkxbUVEV1BIaEFuQUkwUW5NUVR4X2tvTUh5UW9QSXBROVd2X1Zxby1jR3RPVWNNR0t0U2lTbVNaNUNNenNxX0VKZTlMUUk5Q2M4TURWZktTc3ZkSzExMVR3UWNjYTZCUV9sN0FxeWJuNFFPSlNEUmNRNGdkT1M3NnVaWXk3VGViZ2NLaGg1N2pKM05VN1ItUm5reXJ6OVotMTZINnZOR3hROEp2amkt?oc=5) |
 | DOJ agents will be deployed to ICE facilities to protect federal agents, Bondi says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOZHJoQlJtX210QS0yZTFHamJSRUkxTjZ5WHBsWU5LUFhYU2M4NDlWaU9EYTFHeGxHQVlBVzROUXQ5eFU4Mm90UXU4UWIyeVBPOXZaN1BkdmFRQ3Q1aElQNC1xVGtzZURiamZLY0lmMjFZOFFCeW4zTDVhdTdjemJzQ1dzZWQyZw?oc=5) |
-| ICE officer 'relieved of current duties' after violent confrontation caught on camera - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPdDBkSjV4WVM4cDlzTVRUazRVUmNrYnc3c002V24zM0VQejVISF9fQmhpa1RkelI2aXdUYlFLS2syeUt0bGlhcjZBSXpWeTdqWFo0YUdZTWdtY01RY0Q5NzluenRtU1lYZ3FLYkhNNDB4ZUU2X0EyNm9mWDNDVmFXUFd2TldnMjRUSlVFWTZUQjZRNjU0QnNBdlVsVUhaN1hNWVhKcV9feEMyejFt0gGyAUFVX3lxTE40ZmhUV1BOcmYwWGxaakVhT2dTRk5ib1VjN21QT1FlWWNkYnp4UmUtWlQyX1IxWVlhandRN1VZWDFNQ0VQUXlpaXU1M0xDWXJvZVNMUHo0RWdMTmptVnRjSTJQc3NMemhHYXhETHlaOXRVR2UyS3FYVjJTZmhnU0Z4WFlBb1BMV01rbTZ3QjBGZXVBNWpqMGYxVWdMVU5LZEMtQndQbzZadEZaNy1zY212OWc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
