@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 10:56:58（北京时间）**
+🕒 更新时间：**2025年09月27日 11:00:42（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Deadly shooting at Dallas ICE facility follows trend of sniper-type incidents: Experts - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPc3ZEV2RNZF9aU1k1aGhfdVdYTy1iRlZxdHNnQjVCTElvNl8ycU1LX1pzM1hWMm5XZUtUbXhGTmlCLS0yY3U3UF8tdFRORDRGQUtlWVVLTHZMRnJDbENKNUhVc0w3Tm56eXpxeWZBZ3E2RXhqSnpremJ4UWhYdVVkdlpGWHB6U0ZZQ3phYWhVZXc2SllkSjVOU2pwbnN2TjTSAaQBQVVfeXFMTU9vOHdya25IcHRmajF2Nmc0R1psRTBsM2d3TU9VanhQSTdpbF9lUGtmNWdIWndsMHJKa0c1OGxTWFdPd0lmTE1nZ2JVQXdIZG5iVU9JRG9HUVRLRkRaWU1JWXBpemhsVDBzYW40NlFBZzFwYU9DZWVMSGdSTkN4azdzeDhrM1JSeXlOQTcyUVB6UWtrOHd5VTVIeERtalVBeHFWRVc?oc=5) |
 | In rare rebuke, federal officials discipline ICE officer for shoving woman in New York - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOekg3OWtyVlFHeEo4eGM2WGFoZzBZNmNMRTFJcjM3Nk5xYlVJbF9WdUdTbnR0bFlzNmVOc0Nxc1hwVmNtbE44Sno1Z3gwTmVLQWRVc2doZVNQcFRySEFwa0ZQNzZmY1hZZXRUZHE3clpZcnYtMjMtWkNadnhRMnI2MUQxRkJESXRtNGY4bnZDVURZWGpzSmVYZkRvRQ?oc=5) |
 | Shane Tamura, gunman in shooting at NFL headquarters, had CTE: Medical examiner - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQc2ZQb2o3b2pLSVM2Wjc0LURtN3o3b1RBWlBFNm5TZTNjYW0zTnRKNDZ0OVBBTzJpRFZ5SzU1ZG5aR0Y5bHRFTVdQbk9NcGhGYmVza3N4cFVmVndlTDN2bXhvbmNGYUpieU93YTNIUFd2RUxXaGI1eXZuTXE2VkVDbmxrZlRyaTdUMkY1TEtHVW83S3NqZWhwZmpmNFR4NFZ1RENfONIBqgFBVV95cUxNb09uRmhucDd5ZHJDZFkwOXlpdVMtTkM3VnRrYnpLaEE0VldxX2xFbzRzb0RNQ1Vtb2JnNXVLUV9TTmkwRUxrN1BfWEs4dzkwcHJxRHNNQUhxWG9oR3JYN3JYbFRwUG9kSHdXWXZvWHZqLUVzSm85N1JOaG16MHpQWVpCMUJsbWdrRGJWZFJqWWRYa2FjbkRwWHk1MkVsMkgxaFY0d3ZsVnpVQQ?oc=5) |
-| Trump Fired a U.S. Attorney Who Insisted on Following a Court Order - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOdDkzcHZYaTRsaFY5dlR4LVZ4b19neks0bEw1dTV6LTczUVZoRTVRb1lPSEJIOUpsdTA1TGF6bkpkeTJLOERmdEVBdDRXYjltVFdmWWVQTXpGckc0RFpwUWFmRENETVZzekFvLTRUWDBzckVUZ0hMdUZPZUxnZTRMdXVZUjBXVF9ScGVSYzFHRXJGMlk?oc=5) |
+| Trump fires US attorney who told border agents to follow law on immigration raids - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNb3hjeG1vVTJyVm5UZnRZX2FHYVFDUVcyWkFPNEwxVDdGcXd5M3lIOFlvRUFzcjlMeUFKNkNIVG1yNWZvNTltZ0czZzZRS3NmTHh2RkdPRnNpVEYzbTFFYXFLV19iZmd5eWNJLXpLX1ZSRmZPa0FNSVNuTlRnY2ktamYwZExCZzdt?oc=5) |
 | Coroner: Travis Decker’s cause of death will ‘likely never be known’ - king5.com | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQUWktUGRZdW1vajdZM0tJdWxDcmZIc3hmRk16STdBQmNBV2pXbm95SkNjNmFHQXE4QVRlTWgxM0lTc09mMFlldHZRRnliZi1zUWV6aWNCOHZIZjBzQnJROEhIQVFnRnYzekRBM3c4WXkxVFpTdjI2Qi1VaEVuM3Ffamlud3k5a3VQY1lFdGFtc2ZYcjNRMUNFX1VYS3duYlZZOVhhTDdUTFRacnJPOTFmR2R3X2xWWE9fQ0E?oc=5) |
 
 ---
