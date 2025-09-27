@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 15:41:52（北京时间）**
+🕒 更新时间：**2025年09月27日 15:49:57（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Shane Tamura, gunman in shooting at NFL headquarters, had CTE: Medical examiner - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQc2ZQb2o3b2pLSVM2Wjc0LURtN3o3b1RBWlBFNm5TZTNjYW0zTnRKNDZ0OVBBTzJpRFZ5SzU1ZG5aR0Y5bHRFTVdQbk9NcGhGYmVza3N4cFVmVndlTDN2bXhvbmNGYUpieU93YTNIUFd2RUxXaGI1eXZuTXE2VkVDbmxrZlRyaTdUMkY1TEtHVW83S3NqZWhwZmpmNFR4NFZ1RENfONIBqgFBVV95cUxNb09uRmhucDd5ZHJDZFkwOXlpdVMtTkM3VnRrYnpLaEE0VldxX2xFbzRzb0RNQ1Vtb2JnNXVLUV9TTmkwRUxrN1BfWEs4dzkwcHJxRHNNQUhxWG9oR3JYN3JYbFRwUG9kSHdXWXZvWHZqLUVzSm85N1JOaG16MHpQWVpCMUJsbWdrRGJWZFJqWWRYa2FjbkRwWHk1MkVsMkgxaFY0d3ZsVnpVQQ?oc=5) |
 | Veteran U.S. attorney in California insisted Border Patrol follow a court order. Then she was fired - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxPOGNnSXVJamQ5TjJhNGVTWVZ2Yk0zdE5IYWE4VlI5cWVEazNURXR0Y1NUOG1RMllHNGVNbUpRSGt5UjNPNTdTNzhZS1lGRGtFazhzME9jbE5zcE5KRlc0bG1RczRXalEwNTRGZElqckVpTmxoTHlScnA3SWdWeGlwOGNPMFdTYXg5T21MWThFVjJucEhLZUk2bTMxaUtJS20zVUp6Q3BGS0lSM3BaTkJGbk1UOG9vYjdGR0ktag?oc=5) |
 | DOJ agents will be deployed to ICE facilities to protect federal agents, Bondi says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOZHJoQlJtX210QS0yZTFHamJSRUkxTjZ5WHBsWU5LUFhYU2M4NDlWaU9EYTFHeGxHQVlBVzROUXQ5eFU4Mm90UXU4UWIyeVBPOXZaN1BkdmFRQ3Q1aElQNC1xVGtzZURiamZLY0lmMjFZOFFCeW4zTDVhdTdjemJzQ1dzZWQyZw?oc=5) |
-| 79-year-old US citizen claims ICE agents body-slammed him at his business, seeks $50M - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOQnd3N3lObktzaGp4QVpaQm1GQ3ItR0lwdzhTRTR4SDFmeXJpY1V3YTBaMC1xazdoSmdwR2p4QWswbnp2T0o2M2dIQ2lmS1U0V3QwV1RUaWpBZHZBQnk1VzVMZzA3SFJPSjRJMnlUMWY0X0ZoVU1UWDEyQlh5eG8weTZlM2wtOUQ4MktpdllNY9IBlAFBVV95cUxQdG0xR1ZaNHBDWXAzajktTGJVUHNtczdaZXRSNUVBTXhiRFZtMUl4d0ZvX2wtdC1MVDJ3eEJxcVY5MmFhcThKZEtLd3NFZlJmNE5pSkNNZDJxWUg3aEM0SzVqc0ZZSHJVWHJHR01ZNFlrT0stREtjSTNTcWVwUUFDU2szSk91ck5lLURibjJ1d2VMbFZD?oc=5) |
+| LA car wash owner sues for $50m after being slammed and detained in Ice raid - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOd1JRbnV6NE9SUmFvaXk1eElSOGxscGkyWTZGV2ZKb2NJcFQxR0FIUTB1RU1NMmNKMENrTnpDeVF1ZDhuZ1RvSDlDc29XaVY4ZXlNd2lKTE9kVmVBN21ZQ1gwR3p0WWh5Vl9XWHpCQjVoNWg0NFI2X1RIcGhOWlAwQUxIQkQ4YTRxaEVZTGEwQ3JtRWdHdmc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
