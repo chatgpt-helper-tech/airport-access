@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 11:16:41（北京时间）**
+🕒 更新时间：**2025年09月27日 11:25:18（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | Summoned U.S. Military Officers Are Expected to Hear a ‘Rally the Troops’ Message - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNcXVfcDBxYWVNam9XbmxPUnVPMVZVNVlMYmt1SnhaTzFsWnhVWURxaFZab3FFZm1UdUkycWNJMmR1aVZXYnN3RXR2a3puWU11dGQ2eW41YWJTTm5sRTk2emppY1FIb3ZNNy1yYnFMWVE4TGl6Y2ZRQmVXeTJybi1oaA?oc=5) |
 | ICE arrests top educator at Iowa's largest school district - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9PVGVRQ2QzUURIQ1VjNGlxQ2FpQ0RCOEhaWS1vekwwZDZlUUZtNGVqWGM0NG5jOS1QU2N3MUw3U1VEaW1DNDQ0WVNpa3FnMGV0QmljTXpNZWZTUdIBX0FVX3lxTE1JUW9OdFRhWmxiekVNQ3NEeXR3cjNEZUVjQmIyS0VlQ0szTVVrVk9Udk1MclBGemdGb0daMHFsdDBJc1JSQTZ5eWY1UUgzQ0tuT3dHMkxwMjZiRU5rYm9F?oc=5) |
 | Elon Musk and Peter Thiel mentioned in Epstein documents released by Democrats - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNRzlBVElrSDhMcHc1LVdONzNRbktmSEh2cUZLOUs0UnM3QTlTMDdFUlNVQUpCeFRyOV9HZndqVXZZSlhnS0Zyb0c4dXk5V0xybmxTS3kxTFBRV3hvdXBKTEkwSzBlNkRqMGl3RmpTVjJuQThOTEwxeWRCcjdaOUVWWlNjR1hhcUxsNUVj?oc=5) |
-| Supreme Court allows Trump officials to freeze billions in foreign aid - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNeTM4YWxnQXhlQi1Ga2dFS3ZnTzhqY2l5V3V5Ni1odjVBM0g2X2dxRTUwVVF5Rk5QdzlENF80R21tWU1uNjRqTHVjb1EybDQwQ3hDYjh4bERNS2ZWVmZzM21MZFhRN1U5cldJUE5OVXcyRk9HTGhSMnpHSExyX2dwN1dIR3JwdmZ6dy0ycWJiWkVYOTkyREFZOWpEeXFjTVgt?oc=5) |
 | Detainees shot in attack on Dallas ICE facility identified, source says. Here’s what we know about the victims - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBHNUc4QmRobXJxNHhFY3d5OGJWdDJjd05KUktJODQ2VGdyY1dHWlNsN28yMHdfT1JPS1JmR1ZRa2psbXc5Ny1UbzBDYzVweEpOaUFpQndsOXlwbXlYRFBPdUNKbkxhcFhpZzJQNEU1RmhoTi1Yd2c?oc=5) |
+| Supreme Court allows Trump officials to freeze billions in foreign aid - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNeTM4YWxnQXhlQi1Ga2dFS3ZnTzhqY2l5V3V5Ni1odjVBM0g2X2dxRTUwVVF5Rk5QdzlENF80R21tWU1uNjRqTHVjb1EybDQwQ3hDYjh4bERNS2ZWVmZzM21MZFhRN1U5cldJUE5OVXcyRk9HTGhSMnpHSExyX2dwN1dIR3JwdmZ6dy0ycWJiWkVYOTkyREFZOWpEeXFjTVgt?oc=5) |
 | In rare rebuke, federal officials discipline ICE officer for shoving woman in New York - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOekg3OWtyVlFHeEo4eGM2WGFoZzBZNmNMRTFJcjM3Nk5xYlVJbF9WdUdTbnR0bFlzNmVOc0Nxc1hwVmNtbE44Sno1Z3gwTmVLQWRVc2doZVNQcFRySEFwa0ZQNzZmY1hZZXRUZHE3clpZcnYtMjMtWkNadnhRMnI2MUQxRkJESXRtNGY4bnZDVURZWGpzSmVYZkRvRQ?oc=5) |
 | Gunman in NYC Shooting at NFL Headquarters Had CTE - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5fUG5fQU1zalZFTHB4OHFOTldUc2ItX1VieGxzRG9fZk1fZFJiQUp3a2FzQWZFRmtYNXQ4VmlNa1NXUUVGY25DUEE1WXZlMU4yQ2JYUEdSSnJyLUN0SlVhN2FBekRZRW5LMmxrRlVzYy1wVmFOMkdBMA?oc=5) |
 | Trump fires US attorney who told border agents to follow law on immigration raids - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNb3hjeG1vVTJyVm5UZnRZX2FHYVFDUVcyWkFPNEwxVDdGcXd5M3lIOFlvRUFzcjlMeUFKNkNIVG1yNWZvNTltZ0czZzZRS3NmTHh2RkdPRnNpVEYzbTFFYXFLV19iZmd5eWNJLXpLX1ZSRmZPa0FNSVNuTlRnY2ktamYwZExCZzdt?oc=5) |
-| Coroner: Travis Decker’s cause of death will ‘likely never be known’ - king5.com | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQUWktUGRZdW1vajdZM0tJdWxDcmZIc3hmRk16STdBQmNBV2pXbm95SkNjNmFHQXE4QVRlTWgxM0lTc09mMFlldHZRRnliZi1zUWV6aWNCOHZIZjBzQnJROEhIQVFnRnYzekRBM3c4WXkxVFpTdjI2Qi1VaEVuM3Ffamlud3k5a3VQY1lFdGFtc2ZYcjNRMUNFX1VYS3duYlZZOVhhTDdUTFRacnJPOTFmR2R3X2xWWE9fQ0E?oc=5) |
+| LA car wash owner sues for $50m after being slammed and detained in Ice raid - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOd1JRbnV6NE9SUmFvaXk1eElSOGxscGkyWTZGV2ZKb2NJcFQxR0FIUTB1RU1NMmNKMENrTnpDeVF1ZDhuZ1RvSDlDc29XaVY4ZXlNd2lKTE9kVmVBN21ZQ1gwR3p0WWh5Vl9XWHpCQjVoNWg0NFI2X1RIcGhOWlAwQUxIQkQ4YTRxaEVZTGEwQ3JtRWdHdmc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
