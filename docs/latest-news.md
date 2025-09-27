@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 02:56:30（北京时间）**
+🕒 更新时间：**2025年09月28日 03:01:16（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump directs defense secretary to deploy troops to Portland - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOYWxLTFRLUnZ0ejhqMDkyWHllbi1HOGRWTGxjNGJrbjk4NE80SHNCREZuSUhuWExfYjhld2ZOY3RZcnZIeTlCaER4YWU5dklsVHNhZVczVjBoaW5QNVhKN1FsTDRzZ0FwbkdzeWpJc2owWUxQZmRSUFhWcm5KTkVlSXNlS3FtS2ZyRmxDeU5wMnZNMElweW9jVEtoOWtIRE1xbjduLVVaUjFmZVJWN1l0QXNWM1U4c2_SAVZBVV95cUxOZFZkclEtRFVrZW5RYzRzOUpGQ05YS3BBREFmbWNHRXNFUnU0MlpOVE1GTVcxRXI3Ql8zY1F5M056WDBZd0ZHbS1hUzVTRVhUQU1iQ1BQZw?oc=5) |
 | Trump’s Repeated Attacks May Undercut Case Against Comey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPeGFNQ29vSHI2UnRRRFpyajhQMTBRb09ZTjNhc1RsbWNscWRHR3V4ZHVYUEdGU3BPbE51QnpOSTduM3hWUk1Uc3A2N2FHSHVJRkl1QmU3QTkwdFJKRFg5b202X0Y5ajdiRGhiM2xOaG9CS1pCNVMyN2I0N2hXNGFJaUw4NlNybUVjOU52NHNvYw?oc=5) |
+| Trump directs defense secretary to deploy troops to Portland - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOYWxLTFRLUnZ0ejhqMDkyWHllbi1HOGRWTGxjNGJrbjk4NE80SHNCREZuSUhuWExfYjhld2ZOY3RZcnZIeTlCaER4YWU5dklsVHNhZVczVjBoaW5QNVhKN1FsTDRzZ0FwbkdzeWpJc2owWUxQZmRSUFhWcm5KTkVlSXNlS3FtS2ZyRmxDeU5wMnZNMElweW9jVEtoOWtIRE1xbjduLVVaUjFmZVJWN1l0QXNWM1U4c2_SAVZBVV95cUxOZFZkclEtRFVrZW5RYzRzOUpGQ05YS3BBREFmbWNHRXNFUnU0MlpOVE1GTVcxRXI3Ql8zY1F5M056WDBZd0ZHbS1hUzVTRVhUQU1iQ1BQZw?oc=5) |
 | U.S. revokes visa for president of Colombia after he urges American soldiers to disobey Trump - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOM0Y5MXVJLUVPaTFfUUVYelJkRHdQWkZMZVVNallJZ29fekRsMTlpNXBlemJFYS1lYk1nVDJtbUIzWDkxRHBqQUJ3SUhrYkRSMkxSWjRoXzZ5cEJNNVg5OVhvV18yZFJZNWJuY3RIVTd2cXlrSWRCdmM2cFF4MUVHcUtDZHpNQ1ZwblU1YktRSdIBlAFBVV95cUxQNldQdjZwaWhEUjh3QnUtUUJuaVdTcFlpNWxlMDliSVFGZklEUF96WUUwV1BtQ3I2SGw3Q0lZcXN2Q2g1RGwtWEFJOXlQRTJWYzAwRjVBMGI1aDVmY0h1cWJmODJfY3R4R05WaFdxWG1KcnlXUjZTaHdkU3V1SkZHYWtoV0s5UEhjSWlJbXd5NlJMQ2VT?oc=5) |
 | Future Tropical Storm Imelda closing in on the Southeast could unleash dangerous flood threat early next week - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQS3lNbGJhV2xWQkVtUmw2emlrZlNQRjhUdDRnZnp6X3RBbUJ3eU9mQlVxQnpBaWF6X2NhMWNvc01Fem4yMW9uZHJnVGF5NVBrTWtLX20tUVI1cVZPQkx6MThQdUJEME4yb0NyNWdqdUJUQnRTU1h3NndNUi1HWmE2aUFmODEzM1AwM3lCS0UtMWs5RGtvcXk4UEZB?oc=5) |
 | FBI fires agents photographed kneeling during 2020 racial justice protest, AP sources say - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQUmZCV1dlSXl0NFBJSFJMZHhzeFRmSVFFLXJzN1hfOWFlRlNMUlZ3ZExTdTJ4c0NKUGwtR1plaHpGdmpVaEh1OFhMLXhrTG5tOFFzYllvOVc4ZEZSeTU4VDhrVnN5bmI4UGF1alJKQUpyMTVQTkRpSF80aTNrOGlwVFBzZzhPT1I2N1dVSVdkY18?oc=5) |
