@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 01:48:31（北京时间）**
+🕒 更新时间：**2025年09月28日 01:56:46（北京时间）**
 
 ---
 
@@ -29,7 +29,7 @@
 | Generals and admirals scrambling to make plans to attend Hegseth's unusual meeting - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxPQWJBUWZVc0VyNHljdmZwT2FFaGc4eFZ6QWMyUkNyMVpnS3VPZ3A4dElJb1RQREtFSm5XWVYtYlBXeEFId05NbTlwdEFHeVdncTAyX0k2a2RiWEJDeTF5Q09DVDZpT2JQRjdYaEtROFFaUHprZXdJeUVnM25naEF5emVPWlk5STJ1ZmUzc25Xa3NPc01COUl2XzFUZklKdk5KOFg1eHNMUTRkZWx1LVBwdmtqdUtvM3EzdzRXbklkMHAtUnA2eWk3ZVJNRGTSAVZBVV95cUxPWHNZeWFKaHRMUC0wYV9XRzhNV1FVUXBDNnZleHRfZjE0b0NCNGJiU011dkF1UVdIS0hITTJ6NjE3b2xkT3VRdmVqN0t0amRvVW02Z0dlZw?oc=5) |
 | ‘I’m absolutely terrified’: Federal workers brace for potential government shutdown, mass layoffs - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNRXhlcUhXaENZRWtfT2pNYXpzVlJnMWIzOTFIWGl6MEZON2QtYndDcFplMEpjbVVyRE4tNGZab1BoUDFwcXNKYmR4UTZIQndhMEhlTUxXcjJHcEJUY1lHcWdoelhWdUx2YWdEMVhMMHZoM2hDdkJ6VEVyekJicFVWYlNLMEN5V1Y3ZXpjMG5tRjVuUQ?oc=5) |
 | FBI fires agents photographed kneeling during 2020 racial justice protest, AP sources say - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQUmZCV1dlSXl0NFBJSFJMZHhzeFRmSVFFLXJzN1hfOWFlRlNMUlZ3ZExTdTJ4c0NKUGwtR1plaHpGdmpVaEh1OFhMLXhrTG5tOFFzYllvOVc4ZEZSeTU4VDhrVnN5bmI4UGF1alJKQUpyMTVQTkRpSF80aTNrOGlwVFBzZzhPT1I2N1dVSVdkY18?oc=5) |
-| Trump asks Supreme Court to let him end birthright citizenship - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQZ0lqbHNxYk5yTjZmN1A2dzkxenA0VzJ4bTVaUE5oTjl2RWdqTjhXekU2V0c5c1ZsbXBWVTI2Y25IMTlkaWpvWjJIWVpHcUhzWW1OelNLbnJKWXp0ZGtqUGZzWDFfSVQyaTRhcjBGYmU5cUhUSTFYMF9Ldmp4bkNqUkhZRTVkSTU5YzZMNzFkS1RYQXBuc3RzaWtXeUVmc2c?oc=5) |
+| Trump asks Supreme Court to hear bid to restrict birthright citizenship - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQWE1JY0RUZHlrUm1sNzNxcDluR0RsUkN1UW5yelV4cUUxSG0wSEFDdzgzRC1yUmk4SlNDeGZELWlHYm5SVmhQdUM0dWlabUdaU01KSDBVME1uMmpCdFd3UjdFSXpNbjdrOUpHVl80RjBOekdNc2JYV1ZEaUxGckRhSFFZUVpKT3E5d3VZblY5NUxVVkVRQUJVVjFSTjZ5eG90S21uNTdjX0lCQ1ZEQ0F5UHNpaEJtYmwtcE1KRnNnZw?oc=5) |
 | As Democrats prepare for a possible federal shutdown, their endgame is uncertain - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQNXNqUzBrOGp1OEJFdFhwaGpvZlRXblljTHNOOFV0amxOcHdIVDJVQVJVMC01UTNsYk9POENEaHRMR1JKcUg2N3MxTnNZR2FjVmtXWXp1UmJycUhWOFBqMTlOVjNubldMb1VFT0hYMUpIclBzanZPMTdWUDhYMnRseEFXSnA2R1dfM0l2TU9oUVQyZWFtZnBSV2tiNFg4S01sU2FRY2FIRTdqUnZuVmc?oc=5) |
 | Des Moines schools superintendent, a former Olympian, arrested by ICE - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPdWxpOHJIckNpUW9GWUVST3JrS3FfUjVueVdpbTZkNkZUNjZ4VHZzRGlQNWZKSjEzMHNFb0ZfcUFnalFfcmpMUEJyclRIWER2U3dRZXg3ZzVZUGNhUVZmSzR6b1gxdVpLaEdneEpXQm9rWWhDT3dWZ05rTGJrTWt4OTRMTG0tMVlCTDNSMXQ1dEZIWjBfSGc?oc=5) |
 | Future Tropical Storm Imelda closing in on the Southeast could unleash dangerous flood threat early next week - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQS3lNbGJhV2xWQkVtUmw2emlrZlNQRjhUdDRnZnp6X3RBbUJ3eU9mQlVxQnpBaWF6X2NhMWNvc01Fem4yMW9uZHJnVGF5NVBrTWtLX20tUVI1cVZPQkx6MThQdUJEME4yb0NyNWdqdUJUQnRTU1h3NndNUi1HWmE2aUFmODEzM1AwM3lCS0UtMWs5RGtvcXk4UEZB?oc=5) |
