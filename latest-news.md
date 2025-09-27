@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 05:17:23（北京时间）**
+🕒 更新时间：**2025年09月28日 05:25:09（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Southeast U.S. braces for heavy rains from a potential tropical storm - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPLXpBR3laTFdDQnhjUE5XMXVGUk16SHZGZUk3VnZjdmtCQlZuSk5JVW9WQ2IwcVdaZmhYUmFNUDRldG9LdzBCY1J6eEVMaWVDRmp6NW1VQ1hOOTJJdTBNWkJtUGhJTjQ2QjVLV2F6cFhHSHZaU2ZoejYycDZpVkFocjhybHVYaVNZLUpQUQ?oc=5) |
 | US military brass brace for firings as Pentagon chief orders top-level meeting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQckFfRGFlOW4zN05sSWttdGhmUGFvQkgzX1NPMlBXTUV0cUw5ejNFZWhBRFlUZ3RESWxrWXR3UzZpS0FxOG4tWU5Hbl9leG5HLW01azA4OWFzazBHeE5uaFlsLVRKUVJQdjlPS1hzbmFpSHBSdHR1d0pENjY3Q09xeFBrRV9MVmI4dHRDSlZKUThrQQ?oc=5) |
 | Dominion, Rudy Giuliani reach 'confidential settlement' in $1.3B defamation case - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPSm5KMnRxci1xb0R1YnFyajBiQUo0T3hnR2ZyU25ZOWxXUDUwcWFCMGpQRDhUb0hiT0g3UVBvY0RaOHM0Vk8wNGFzNzJlLVF1RmFmWHItX2VjbHRfbHJjUHpVSzdrMmlYWkJIbmtFbFhRaHotSmYwcXltY2NlazJZSGhmdjNyaFg0NGs2djA4QkVwMDgwT193dnNqZmcybmVRdjRCLW9WVGJhYldDU0syb0J30gG3AUFVX3lxTE45SkhMek5FajZ1NVBwUklsc0kzcExXcGZFUGFSRGxXRFIyelk2Wi1SOGx6Vm5FVi1nQVQ2YmViNTVHc3ZKZlB1MzEwaGFMa2VTbVNjQUVjbWp1S0dzYldVQV91alRjbkF3TUdCakk0X2ZySlBxSG9CUXRzenBONUc0LWxFbU56NVdibHJsZzROWmMxWE1NcDdfbHZWa0x4TWFkM2J5SnlEUnNiMnZ4UG5RbFBQSzJDUQ?oc=5) |
-| Trump asks Supreme Court to uphold restrictions he wants to impose on birthright citizenship - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNRXg2MXdWUFRramhOdjdpWi1CMGQzZy1IVVdob3BhQ2dEeWgxV3RGRUR2NnRETjgtNjhCYVNEVjlVODY3dXFhcnlkNS1EQVY1cDZXMWxXQkRRbmd1azhXTC13UkRNekxBQ3BXWWRZUElfYUsyYVB6amM4Z3I5SDJ4SlpINkdCWjlUbWgwbmlOSFdVYW1INXdjYzlxXzN5RTdRZ0VNcg?oc=5) |
+| Trump asks Supreme Court to uphold birthright citizenship restrictions he wants to impose - PBS | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxOSzJ1ZE9aenAzeUwtdk05dmNVQkhZZmVxb1RLMmpWdHVJNWJtV3hoNF9aTDdQQlFGSTY4aGFBM0trUzR3VUFxSFRUWTVTalJNNzV6Y1kwd243SWl1NDFINm9rcXA5cEd0eDA0bUVhOUtYdHVRVGx1Y1NpemdES1VpNTJCYWdTOVdtZTQzRUR2dG0tN29CMUdQS0stQTgtUGV1bmlpSTh2Z0hmY2xkMGNyY2t6OGtZRlBzQ0VvSUt5QmFOMDB5UGfSAcsBQVVfeXFMTkhxbE9yZmFnaVNiem9mSXl1ZXJIQU4xU21sdlVhUy1MNEVtWFcxUEZ2UW1aSVUyOFRoa1RhUDBWWlNOZHZyRFlaSW9RQ2xJdzdlcml2SmpGWjYwX05OT3R3X2hzcnVWMGZoNFRMQmtVZlFmZmRMaHVuQWVfXy1rLUxTbE9jbzl0SmROcFRIOHhKQ1Zpd3FxTGZ5enhPRXVNeU9SMlllS19TTkhXWHZzbFA5bldUNDVCTGJqUzBPZHBFZTN0QlJqZTNjWTQ?oc=5) |
 | Kilmar Abrego Garcia transferred to Pennsylvania detention center - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQeUp1dDdmSkVzVHFxbzJKR2dNVEhxOFk4NU4xM1VXMG5aZnNBTFBPOUhRVGRrdG1pQnRkT0I1clhhVHZnVjRkc2JBOGlFMVc3WS1FZm9UX2F1a3pJcnNfZG92cm5aTWl5WTVMcFRNQTJlY0VlZU01SWZ0UzkyWUJENlRJTDJ0bUp2bG5Wb2FBZ2tjOUZhNFBOa9IBVkFVX3lxTE10NUNxeHN3QnM1S0Jvbkl6R0dlRDhSbXRjZjVLd19pb0tlb0FRdHQ0aGc5LXliZ1ctNEp3N2FpdF9pWDdUS0F2UjdFLUx4UjZKNFQtT0J3?oc=5) |
 
 ---
