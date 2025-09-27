@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 09:56:16（北京时间）**
+🕒 更新时间：**2025年09月27日 10:00:39（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Humberto becomes a hurricane in the Atlantic as Gabrielle moves away from the Azores - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxNUDMtWHVYWFREOU9uck1XdWhpSUVlQ3RLTV9JT2VmOVZvLWNBcy1iTHM4TDNSWDZSRmVyYjJLbnBtNURNUnlmaDhoLUhvR3EzZkpJVlV1Zl9YNlBPYWFVY0Q4LURmcFVKWmdDcjNCUzQwN2J0U3JmVXRBNmtjQUdSNXgzcUNYSnZ1d0xGeHB4WVpEV1F6MzhRWFhPd2JHVktKM3ZDekdDQ1BhV2hILTAway1fMmM5YmNfMkVzbA?oc=5) |
 | In rare rebuke, federal officials discipline ICE officer for shoving woman in New York - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOekg3OWtyVlFHeEo4eGM2WGFoZzBZNmNMRTFJcjM3Nk5xYlVJbF9WdUdTbnR0bFlzNmVOc0Nxc1hwVmNtbE44Sno1Z3gwTmVLQWRVc2doZVNQcFRySEFwa0ZQNzZmY1hZZXRUZHE3clpZcnYtMjMtWkNadnhRMnI2MUQxRkJESXRtNGY4bnZDVURZWGpzSmVYZkRvRQ?oc=5) |
 | Coroner: Travis Decker’s cause of death will ‘likely never be known’ - king5.com | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQUWktUGRZdW1vajdZM0tJdWxDcmZIc3hmRk16STdBQmNBV2pXbm95SkNjNmFHQXE4QVRlTWgxM0lTc09mMFlldHZRRnliZi1zUWV6aWNCOHZIZjBzQnJROEhIQVFnRnYzekRBM3c4WXkxVFpTdjI2Qi1VaEVuM3Ffamlud3k5a3VQY1lFdGFtc2ZYcjNRMUNFX1VYS3duYlZZOVhhTDdUTFRacnJPOTFmR2R3X2xWWE9fQ0E?oc=5) |
-| Shane Tamura, gunman in shooting at NFL headquarters, had CTE: Medical examiner - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQc2ZQb2o3b2pLSVM2Wjc0LURtN3o3b1RBWlBFNm5TZTNjYW0zTnRKNDZ0OVBBTzJpRFZ5SzU1ZG5aR0Y5bHRFTVdQbk9NcGhGYmVza3N4cFVmVndlTDN2bXhvbmNGYUpieU93YTNIUFd2RUxXaGI1eXZuTXE2VkVDbmxrZlRyaTdUMkY1TEtHVW83S3NqZWhwZmpmNFR4NFZ1RENfONIBqgFBVV95cUxNb09uRmhucDd5ZHJDZFkwOXlpdVMtTkM3VnRrYnpLaEE0VldxX2xFbzRzb0RNQ1Vtb2JnNXVLUV9TTmkwRUxrN1BfWEs4dzkwcHJxRHNNQUhxWG9oR3JYN3JYbFRwUG9kSHdXWXZvWHZqLUVzSm85N1JOaG16MHpQWVpCMUJsbWdrRGJWZFJqWWRYa2FjbkRwWHk1MkVsMkgxaFY0d3ZsVnpVQQ?oc=5) |
-| US says financier Howard Rubin and assistant have been indicted on sex trafficking charges - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPT291ZjRYMzhXYVkxbUVEV1BIaEFuQUkwUW5NUVR4X2tvTUh5UW9QSXBROVd2X1Zxby1jR3RPVWNNR0t0U2lTbVNaNUNNenNxX0VKZTlMUUk5Q2M4TURWZktTc3ZkSzExMVR3UWNjYTZCUV9sN0FxeWJuNFFPSlNEUmNRNGdkT1M3NnVaWXk3VGViZ2NLaGg1N2pKM05VN1ItUm5reXJ6OVotMTZINnZOR3hROEp2amkt?oc=5) |
+| Gunman in NYC Shooting at NFL Headquarters Had CTE - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5fUG5fQU1zalZFTHB4OHFOTldUc2ItX1VieGxzRG9fZk1fZFJiQUp3a2FzQWZFRmtYNXQ4VmlNa1NXUUVGY25DUEE1WXZlMU4yQ2JYUEdSSnJyLUN0SlVhN2FBekRZRW5LMmxrRlVzYy1wVmFOMkdBMA?oc=5) |
+| Trump Fired a U.S. Attorney Who Insisted on Following a Court Order - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOdDkzcHZYaTRsaFY5dlR4LVZ4b19neks0bEw1dTV6LTczUVZoRTVRb1lPSEJIOUpsdTA1TGF6bkpkeTJLOERmdEVBdDRXYjltVFdmWWVQTXpGckc0RFpwUWFmRENETVZzekFvLTRUWDBzckVUZ0hMdUZPZUxnZTRMdXVZUjBXVF9ScGVSYzFHRXJGMlk?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
