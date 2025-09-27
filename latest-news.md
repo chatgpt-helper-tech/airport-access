@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 02:17:19（北京时间）**
+🕒 更新时间：**2025年09月28日 02:24:37（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | ‘I’m absolutely terrified’: Federal workers brace for potential government shutdown, mass layoffs - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNRXhlcUhXaENZRWtfT2pNYXpzVlJnMWIzOTFIWGl6MEZON2QtYndDcFplMEpjbVVyRE4tNGZab1BoUDFwcXNKYmR4UTZIQndhMEhlTUxXcjJHcEJUY1lHcWdoelhWdUx2YWdEMVhMMHZoM2hDdkJ6VEVyekJicFVWYlNLMEN5V1Y3ZXpjMG5tRjVuUQ?oc=5) |
 | Generals and admirals scrambling to make plans to attend Hegseth's unusual meeting - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxPQWJBUWZVc0VyNHljdmZwT2FFaGc4eFZ6QWMyUkNyMVpnS3VPZ3A4dElJb1RQREtFSm5XWVYtYlBXeEFId05NbTlwdEFHeVdncTAyX0k2a2RiWEJDeTF5Q09DVDZpT2JQRjdYaEtROFFaUHprZXdJeUVnM25naEF5emVPWlk5STJ1ZmUzc25Xa3NPc01COUl2XzFUZklKdk5KOFg1eHNMUTRkZWx1LVBwdmtqdUtvM3EzdzRXbklkMHAtUnA2eWk3ZVJNRGTSAVZBVV95cUxPWHNZeWFKaHRMUC0wYV9XRzhNV1FVUXBDNnZleHRfZjE0b0NCNGJiU011dkF1UVdIS0hITTJ6NjE3b2xkT3VRdmVqN0t0amRvVW02Z0dlZw?oc=5) |
 | Trump's H1-B changes raise concerns about US tech economy's future, ability to recruit specialty talent - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQR1NURVV3bzM3Q3N2SGgtWkJ0VEhiNUZtSTZtNloxS1JmQjhEbUpSZGNyaUVmUi1DbDViMjVwcXdWRlVhOWp2VlhETDZqb1dCY0pweWZ5ak83TlNMb3JyMURUQXRhM3FIcXFlN1lPS0c4b1l2YWJCeUltTXBUQ3lTT0hjc2ZMdnR6UXdBQ0dyZUR1UzA1anNZVXVJc0FXTnZ10gGmAUFVX3lxTE9tTjNxNFZmWDN1ZG9TYWsxLW9SWWFXTm5xSk5MOTBBWXZDanRtUDNQUkNmRDhSRVd1LWtOTkd2WXVtUUxrSVdTMDBTMFBQUENhRDRlOS1hODJVaHllUDRyZHhRSzA2RXBmeHVpejh0ckNDRDA4MFJ4dDZmcWNpVjB3OS1Pd2g0TVRjRHhhdXlJTzR1bUo3OFFOSGJKS2Vvc05jXzRfTnc?oc=5) |
-| FBI fires agents photographed kneeling during 2020 racial justice protest, AP sources say - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQUmZCV1dlSXl0NFBJSFJMZHhzeFRmSVFFLXJzN1hfOWFlRlNMUlZ3ZExTdTJ4c0NKUGwtR1plaHpGdmpVaEh1OFhMLXhrTG5tOFFzYllvOVc4ZEZSeTU4VDhrVnN5bmI4UGF1alJKQUpyMTVQTkRpSF80aTNrOGlwVFBzZzhPT1I2N1dVSVdkY18?oc=5) |
+| F.B.I. Fires More Agents, Including Those Who Knelt During Racial Justice Protests - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE90elNOdGJyY0NEZEZZUHE0dG1MVVBjMlNlODYycEZmX3hSZVlNcEJHcUtIT3ZsSmJZaWYxakxUeUpZcnRPcl9udl9BcUhOZDVlc0hFaGdmQW45dDNMWVdhVjQ5UkhNX0tueHE3OHNaTkZZX3VrVmY5cEk5dU5idw?oc=5) |
 | Trump asks Supreme Court to let him end birthright citizenship - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQZ0lqbHNxYk5yTjZmN1A2dzkxenA0VzJ4bTVaUE5oTjl2RWdqTjhXekU2V0c5c1ZsbXBWVTI2Y25IMTlkaWpvWjJIWVpHcUhzWW1OelNLbnJKWXp0ZGtqUGZzWDFfSVQyaTRhcjBGYmU5cUhUSTFYMF9Ldmp4bkNqUkhZRTVkSTU5YzZMNzFkS1RYQXBuc3RzaWtXeUVmc2c?oc=5) |
 | As Democrats prepare for a possible federal shutdown, their endgame is uncertain - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQNXNqUzBrOGp1OEJFdFhwaGpvZlRXblljTHNOOFV0amxOcHdIVDJVQVJVMC01UTNsYk9POENEaHRMR1JKcUg2N3MxTnNZR2FjVmtXWXp1UmJycUhWOFBqMTlOVjNubldMb1VFT0hYMUpIclBzanZPMTdWUDhYMnRseEFXSnA2R1dfM0l2TU9oUVQyZWFtZnBSV2tiNFg4S01sU2FRY2FIRTdqUnZuVmc?oc=5) |
-| Autistic moms are livid after Trump and RFK Jr blame Tylenol — and them - The Independent | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPdmQ5YXJMbXFLQmdNdHlLTDgya01wdklpbTNsY0hkYWZ6WWtNbzNKWThUSTlpOHdvend4bjRQdmQ3bmozR2pWOTJzeHd0R1hDRTFTUTRjbWFuM1FRa1RhMGUwcEJZUElIUlp6dnVKUjk2RDJteDZUSmp4TER6RU1LYU1CQ2tZcU9VZ2MzbTFjLUNpamxJYVRYQVlwREt6SXViSFowa0I1NWJ4eHhtSnhXUA?oc=5) |
+| Des Moines schools superintendent, a former Olympian, arrested by ICE - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPdWxpOHJIckNpUW9GWUVST3JrS3FfUjVueVdpbTZkNkZUNjZ4VHZzRGlQNWZKSjEzMHNFb0ZfcUFnalFfcmpMUEJyclRIWER2U3dRZXg3ZzVZUGNhUVZmSzR6b1gxdVpLaEdneEpXQm9rWWhDT3dWZ05rTGJrTWt4OTRMTG0tMVlCTDNSMXQ1dEZIWjBfSGc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
