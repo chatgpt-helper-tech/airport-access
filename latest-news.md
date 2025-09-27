@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 08:08:05（北京时间）**
+🕒 更新时间：**2025年09月27日 08:16:57（北京时间）**
 
 ---
 
@@ -24,10 +24,10 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | The Indictment of James Comey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPbkIyLTlpb2N0dkM5eTNVSnhsT1RPelBQVmRYZ2FDcElLTUVCb09HaWQ0LXpieGJicV9UTVB3am9EWEU1N1ZOZnlUTl9FRjZPRmdHbDJHc3lxcjBVdE5rWWNCTWlWd2hNQ2k0U2J6R2hlYlpwdjM1NnNtOUxGS25XY3ZDeW1WN0lo?oc=5) |
+| New details emerge on Hegseth’s unusual mass gathering of top brass - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOckN0RVMzaVpLT0hKb0U5T0doV0k0TFUxbkxTajh2SFd3T1Z4Qll0eU9vQUVQZWk3Qm9oaTF0QzBOa1UyM29BRWhubmpzazEwd3k0Z25WWXN0ZndESXZ0aWZxRWZSNDdwZUNDYTFaTUFjY2VPd05vTEoxdGlRZktvZW9xdU15M3JwOU9ZVEE0bTR2QnNkNlRXd2lVZkROZ3dzV0E?oc=5) |
 | Supreme Court allows Trump to withhold $4 billion in foreign aid funding - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOUWQ5V1hFZjV0Yk42RmFQVmZGWk5za2lkSHhPYzdGa2ZCT1ZCVEp5c0ZVc0hPTlJMYVFsWWtlTDVFVWpucjg5QjRaTVBidDN0OXJCRXhOcG9OeUNNQnBDWVktN2UyV0tONkxPOFZVcndxT3htQlQ2SFA1Q2FlVllIWVlUQ1JSbU4xaWRKMWFBUlNnMzVJNE1MbEJkYmlZaFFfZGJxV1NTdDRTbUtfN3pxbHFLY1hQcnVLWEtXSXdoSlnSAVZBVV95cUxQMHdaRnllUEZJNjB6NjJVVlh1XzNDU2JMSGVid09EM0U1Zm5JSF9jUzhoaUh5aUY2SHJ3cU8yWmdzWklYR214d3V5SW5IMEpNLV9zTkl1Zw?oc=5) |
 | Elon Musk and Peter Thiel mentioned in Epstein documents released by Democrats - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNRzlBVElrSDhMcHc1LVdONzNRbktmSEh2cUZLOUs0UnM3QTlTMDdFUlNVQUpCeFRyOV9HZndqVXZZSlhnS0Zyb0c4dXk5V0xybmxTS3kxTFBRV3hvdXBKTEkwSzBlNkRqMGl3RmpTVjJuQThOTEwxeWRCcjdaOUVWWlNjR1hhcUxsNUVj?oc=5) |
 | Des Moines Public Schools superintendent detained by ICE - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOTURmZmhjbmtmSC1PNXlIMW1TMVBMN3dwT0p2WHNzckhScGc4cTFnck9kQWVVUk5BUVNfSXZYNWxfSWkzV2RUWVhEeENpcGRnb0dSZ2dzZDlvQW4wRVdOQlB0M3p4cjhHVlh4S25GRFQ0am9QdW5ybUpHU0hrYU1EU2dxZFpyWXhaZEZHWkJYM1BybU9yRUNKdkN4T2tLNlXSAaQBQVVfeXFMTUQ5Q0JGRDVTb3l1SlV1ck5IaEp5bVYwU0llbl94dl90bW50NEttS3FhTWVuTHhPNE1zWGw2Y3B2eGZxalQtQ0p4YjZLdTdXV0hFcUc1R2FqdWxEWEVsZlFhSzdHRXdJeGpTWWZPd3RxS1A3VFJySVRnbGVjNTRNWDQ2SXV2NTM2YlNxZExFYTVOOGUzZ1BiNV8wTzJPS1ZrRTF4QXY?oc=5) |
-| New details emerge on Hegseth’s unusual mass gathering of top brass - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOckN0RVMzaVpLT0hKb0U5T0doV0k0TFUxbkxTajh2SFd3T1Z4Qll0eU9vQUVQZWk3Qm9oaTF0QzBOa1UyM29BRWhubmpzazEwd3k0Z25WWXN0ZndESXZ0aWZxRWZSNDdwZUNDYTFaTUFjY2VPd05vTEoxdGlRZktvZW9xdU15M3JwOU9ZVEE0bTR2QnNkNlRXd2lVZkROZ3dzV0E?oc=5) |
 | The federal government is heading toward a shutdown. Here's what economists say would be the impact. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQX3ZEZmZHRU1DdjVRLVFXcHpFWUtPZUhpekVtSVRlY2J0QjV6eUxDSzdQVEZXanFYN0xwRHNRRTJYYUNxbDg1VERXb0pPTXozMXZTOFFQNHNoVGFfa0x1VzFXa3drcU16dEhvb09GcG9pdUFWbGJDX2R6aXIzVzFZVnNpQjFFMjJHWk9JSkRQb0V4eGlheG1GMlVaczB3a1NQb0HSAacBQVVfeXFMTnM5M1F5QVEzVkhPQ1VUWDhER01aWXFLQnYxczRSbUxNQWdRZG1nR3VzVkE4TGxRRGc5TFExaDJCd0dUT0N3THpMaVJhOW96eVVzQlJlbE1ERXB1X0FuWHk4R3Q0VXpwNXl5WjZ4QnVQYkRjT0daLVYybF9XLXJpeUREMUxCdFRRZmxiUEpacEJYX0RMTUdJNVJISVR0UmJDQ09XekMzQXM?oc=5) |
 | In rare rebuke, federal officials discipline ICE officer for shoving woman in New York - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOekg3OWtyVlFHeEo4eGM2WGFoZzBZNmNMRTFJcjM3Nk5xYlVJbF9WdUdTbnR0bFlzNmVOc0Nxc1hwVmNtbE44Sno1Z3gwTmVLQWRVc2doZVNQcFRySEFwa0ZQNzZmY1hZZXRUZHE3clpZcnYtMjMtWkNadnhRMnI2MUQxRkJESXRtNGY4bnZDVURZWGpzSmVYZkRvRQ?oc=5) |
 | Gunman in NYC Shooting at NFL Headquarters Had CTE - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5fUG5fQU1zalZFTHB4OHFOTldUc2ItX1VieGxzRG9fZk1fZFJiQUp3a2FzQWZFRmtYNXQ4VmlNa1NXUUVGY25DUEE1WXZlMU4yQ2JYUEdSSnJyLUN0SlVhN2FBekRZRW5LMmxrRlVzYy1wVmFOMkdBMA?oc=5) |
