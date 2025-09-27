@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 23:40:24（北京时间）**
+🕒 更新时间：**2025年09月27日 23:49:34（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | ‘I’m absolutely terrified’: Federal workers brace for potential government shutdown, mass layoffs - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNRXhlcUhXaENZRWtfT2pNYXpzVlJnMWIzOTFIWGl6MEZON2QtYndDcFplMEpjbVVyRE4tNGZab1BoUDFwcXNKYmR4UTZIQndhMEhlTUxXcjJHcEJUY1lHcWdoelhWdUx2YWdEMVhMMHZoM2hDdkJ6VEVyekJicFVWYlNLMEN5V1Y3ZXpjMG5tRjVuUQ?oc=5) |
 | Defense Secretary Pete Hegseth to tell hundreds of generals about the 'warrior ethos' in rare gathering: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNVUtMLXBIOWI4a3F5SDNXRWk1SkJaTmxYM3VOTGdBQk42Tm9WQkUyZTVBd2hKdGh4OElOQkx2d255M1RUWE91YXZ4OGxuOGQybDByQU1TbjhocW5Ud3AzRGV4UE1WbWExeGw1MkVxdTliX05xbFh5QW0wZk11TmFadDh1aUtYbjRWengwdkxJX1RTVU41cUFpR2ZUZG80UEtNMTNYalpVcjhQQmVYSVJndzN6d9IBuAFBVV95cUxOZFZEdVVrUVdRR3VxRk1LTkQxdGEwd2phWmdOTFlRdFJZMW5PXy1nYVNTM0o4c0x1Mm1wZkVfeHIzMlpVRGRlRjl3cDA4Rzh6QjdGYXpkdWlVWEpJZlk3aXY3VmoxRUpSU2VxbmdoOFVuNWktUHlNYVBOOF95VXQzLVRFSXVnN1BjTlR1ajlfMllNWGFLVkVsQVJmX2c4ZGhZRXRQVExMZmtJa293QUU2SG9vQ3ZXY2tm?oc=5) |
 | A major Silicon Valley medtech company just announced it was pausing H-1B hires - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQOUpxMjRkRDlDTlQ3N21OSmhCbFdOOWE2SnBMVElqWk56Vmw1WW5HQXY1Sm9LeEJrREJKVVZSU3o2MzgtWmlvb3J4UFg5Qm1Sd0pBeXdzdm5yV2s5OWtENS1GZjdjbWNfSUdvWHlGWGlsdzM3enpJSm5kWHNmQlBhdmRndGhiNVRZWUk0d0tpYmdPc2drNmZKdFlsc0tRemM?oc=5) |
+| Trump asks Supreme Court to let him end birthright citizenship - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQZ0lqbHNxYk5yTjZmN1A2dzkxenA0VzJ4bTVaUE5oTjl2RWdqTjhXekU2V0c5c1ZsbXBWVTI2Y25IMTlkaWpvWjJIWVpHcUhzWW1OelNLbnJKWXp0ZGtqUGZzWDFfSVQyaTRhcjBGYmU5cUhUSTFYMF9Ldmp4bkNqUkhZRTVkSTU5YzZMNzFkS1RYQXBuc3RzaWtXeUVmc2c?oc=5) |
 | Des Moines schools superintendent, a former Olympian, arrested by ICE - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPdWxpOHJIckNpUW9GWUVST3JrS3FfUjVueVdpbTZkNkZUNjZ4VHZzRGlQNWZKSjEzMHNFb0ZfcUFnalFfcmpMUEJyclRIWER2U3dRZXg3ZzVZUGNhUVZmSzR6b1gxdVpLaEdneEpXQm9rWWhDT3dWZ05rTGJrTWt4OTRMTG0tMVlCTDNSMXQ1dEZIWjBfSGc?oc=5) |
 | Tropical system closing in on the Southeast could unleash dangerous flood threat early next week - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQS3lNbGJhV2xWQkVtUmw2emlrZlNQRjhUdDRnZnp6X3RBbUJ3eU9mQlVxQnpBaWF6X2NhMWNvc01Fem4yMW9uZHJnVGF5NVBrTWtLX20tUVI1cVZPQkx6MThQdUJEME4yb0NyNWdqdUJUQnRTU1h3NndNUi1HWmE2aUFmODEzM1AwM3lCS0UtMWs5RGtvcXk4UEZB?oc=5) |
-| Fact checking Trump's recent claims about the economy - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPcndiNkh3eWxiRWdvLWZtaW5oWUx1ZXlPdXRoajdSMXpxWV9yWDA0ampSTzZSSFZYc0tVX3g1NEoydGVMa1FlZzUyZHczX2JodW92SGZyZ1pXUHI4enZabjVndlhKU2piOUZNaUxBd25RODdLWVF6c1RnNjBTcXdOVVRYeWVVcHVldkHSAY8BQVVfeXFMTU9QTFJvM1ZTakVrNTZ1RWJKRDAzTXZMbFdsWmdabk9rXzJraDdZc0U0MzNZUm9YSlNsV05DRWRBQnJjRmdMVm15dDQ1YVdmMDB2OXhUM1psVnVxMXhlT2FTeGo1U3IwWGZ6QVdEZDc4Z0E3eXJXU082SDVRcFYwc2cxMUxHZm52YzhVN1NiVU0?oc=5) |
-| George Hardy, last of the Tuskegee Airmen's World War II combat pilots, dies at 100 - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQNE9DcnhtblRjSVQ3dEh4MWRobUtrenVjNzl5ZW40Z1c5MHFEOVo3bXJVSldQa1JZbkU5TWF3bHVfOEltX203UEZYazJFX0Vrcm1tN21VSWFaTjB6M3dEbmdYYXFGYkNYRkdfWmtmX01qTEl3TEJfOTZzU0prRlFLY1hRYXFWd0RkeGJxdHhqUWNkSXM5ZWRCZGloRnlWVVNYVFlFRnUzd3BUNXF3amVLSG130gFWQVVfeXFMTlNJbVdrVjZuUkZEQTdzVDNOWVNrOEhxeV92X1FhVVh3dlFlS0FOQnFVXzB5VE1FMUNUdjRjQkJ5M0ZhZDNlY1Y5RmpQRWlOc3NhbjNCVkE?oc=5) |
+| An influx of federal agents will arrive in Memphis next week, governor says - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQMnE5b3Z2MEs2NGkyc2ZKNjIwYUFsODBzSkh2RjVaeXZkczItQjFDVFdreHdxdkJiOUNfTkNvWkowRVRYbzRIX211UVowdVcxakR4bHB6b1UtVUtWdkE0TVp4MmY4SE1VeHFpS1lmdzJJQjItUHcxNG9EbzE4VFhVdlBqZ3N2T1h3LXNNalZPQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
