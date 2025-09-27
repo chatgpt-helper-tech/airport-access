@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 16:01:52（北京时间）**
+🕒 更新时间：**2025年09月27日 16:08:56（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Will Hurricane Humberto impact South Florida? See its projected path. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNa0tBSWxEMWxSRFFfM2N3bjdmRlpodTlrZXJHWnVIWThGdXFNcHY0aHZTbkV2eFBfV2thTjN5NUpRWDExcjVLcEZWTWtyUmlJUkhIQTBBcVU3aUVaaFpfdUgzTzlRZm4xaXdlZFNrUjZnWFJIUTFqUnNUVzFXWDVFaGtsWF9aelNiMFJHaFFJR0NLZG5qNTJkMWdCTDZlU2h1?oc=5) |
 | Supreme Court allows Trump officials to freeze billions in foreign aid - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNeTM4YWxnQXhlQi1Ga2dFS3ZnTzhqY2l5V3V5Ni1odjVBM0g2X2dxRTUwVVF5Rk5QdzlENF80R21tWU1uNjRqTHVjb1EybDQwQ3hDYjh4bERNS2ZWVmZzM21MZFhRN1U5cldJUE5OVXcyRk9HTGhSMnpHSExyX2dwN1dIR3JwdmZ6dy0ycWJiWkVYOTkyREFZOWpEeXFjTVgt?oc=5) |
 | Shane Tamura, gunman in shooting at NFL headquarters, had CTE: Medical examiner - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQc2ZQb2o3b2pLSVM2Wjc0LURtN3o3b1RBWlBFNm5TZTNjYW0zTnRKNDZ0OVBBTzJpRFZ5SzU1ZG5aR0Y5bHRFTVdQbk9NcGhGYmVza3N4cFVmVndlTDN2bXhvbmNGYUpieU93YTNIUFd2RUxXaGI1eXZuTXE2VkVDbmxrZlRyaTdUMkY1TEtHVW83S3NqZWhwZmpmNFR4NFZ1RENfONIBqgFBVV95cUxNb09uRmhucDd5ZHJDZFkwOXlpdVMtTkM3VnRrYnpLaEE0VldxX2xFbzRzb0RNQ1Vtb2JnNXVLUV9TTmkwRUxrN1BfWEs4dzkwcHJxRHNNQUhxWG9oR3JYN3JYbFRwUG9kSHdXWXZvWHZqLUVzSm85N1JOaG16MHpQWVpCMUJsbWdrRGJWZFJqWWRYa2FjbkRwWHk1MkVsMkgxaFY0d3ZsVnpVQQ?oc=5) |
-| Veteran U.S. attorney in California insisted Border Patrol follow a court order. Then she was fired - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxPOGNnSXVJamQ5TjJhNGVTWVZ2Yk0zdE5IYWE4VlI5cWVEazNURXR0Y1NUOG1RMllHNGVNbUpRSGt5UjNPNTdTNzhZS1lGRGtFazhzME9jbE5zcE5KRlc0bG1RczRXalEwNTRGZElqckVpTmxoTHlScnA3SWdWeGlwOGNPMFdTYXg5T21MWThFVjJucEhLZUk2bTMxaUtJS20zVUp6Q3BGS0lSM3BaTkJGbk1UOG9vYjdGR0ktag?oc=5) |
 | DOJ agents will be deployed to ICE facilities to protect federal agents, Bondi says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOZHJoQlJtX210QS0yZTFHamJSRUkxTjZ5WHBsWU5LUFhYU2M4NDlWaU9EYTFHeGxHQVlBVzROUXQ5eFU4Mm90UXU4UWIyeVBPOXZaN1BkdmFRQ3Q1aElQNC1xVGtzZURiamZLY0lmMjFZOFFCeW4zTDVhdTdjemJzQ1dzZWQyZw?oc=5) |
-| LA car wash owner sues for $50m after being slammed and detained in Ice raid - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOd1JRbnV6NE9SUmFvaXk1eElSOGxscGkyWTZGV2ZKb2NJcFQxR0FIUTB1RU1NMmNKMENrTnpDeVF1ZDhuZ1RvSDlDc29XaVY4ZXlNd2lKTE9kVmVBN21ZQ1gwR3p0WWh5Vl9XWHpCQjVoNWg0NFI2X1RIcGhOWlAwQUxIQkQ4YTRxaEVZTGEwQ3JtRWdHdmc?oc=5) |
+| He was body-slammed by immigration agents. Now a car wash owner has filed a $50-million claim against DHS - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi7AFBVV95cUxNV05mb2JIQWJMS1U4T2llSWM4c3d5bGtOSWpKZk9JR2VfTk5oUkFLT1NuZ1gzbV9VUHEwME44MGczS3NULXppNURCLWxqUlZpdjhEWjhVWjR1d3hOYlNqRWkyaUVkQTdSNmE3Wm1ESEJhQmktRHhPQ1dUd1VGZ0ZjaVhlOTgyLWFDcVJ6dEZjWE1QSUZhUU5ucFVhcS1Md21WOVFPN3dhVG1JNWZwZnFjZkJSREY3a25ETEFfVWwxeDZiUnU1R0kxemh0Z2lrUTdfT3dsWXBEczNnbWxwaEszWmJQZUdVMGp3U3V6WA?oc=5) |
+| Trump fires US attorney who told border agents to follow law on immigration raids - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNb3hjeG1vVTJyVm5UZnRZX2FHYVFDUVcyWkFPNEwxVDdGcXd5M3lIOFlvRUFzcjlMeUFKNkNIVG1yNWZvNTltZ0czZzZRS3NmTHh2RkdPRnNpVEYzbTFFYXFLV19iZmd5eWNJLXpLX1ZSRmZPa0FNSVNuTlRnY2ktamYwZExCZzdt?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
