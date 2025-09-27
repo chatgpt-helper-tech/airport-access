@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 23:49:34（北京时间）**
+🕒 更新时间：**2025年09月27日 23:57:59（北京时间）**
 
 ---
 
@@ -24,10 +24,10 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | "The first domino": Comey indictment sets MAGA retribution in motion - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5KcjFWelpFTUhXQ1FxQ3dBMnJGd2J6WXBNT2xuRGJxWjZfWHJWdlRIMC1RZ2RsZGtWV1BWcG9BY2U1VmJpV3BCZ1UxYXZCVlBGQ2phZ1ZhMXlWUTNwYW1LeVNxRWt3bGtXamMtYUVFck9FcG94emRxYmtXeWtQZw?oc=5) |
-| State Department revokes visa for Colombian President Gustavo Petro - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNY0xINWNkWlVlbXoxQTMzdWVna2ZLd1JZdVNWYzlBNTI4RWFRZTFpVmxKN2kwMFpEV1RWaFNrbE9nTklMWkwzaTlKRmlVQUpfVWtJNGVtZ3lrRW5aalcySXdMc3FjTEhWRFdCWGpvMGg0ZUw1aHAtVnJrdm1DZE9wejJJUVdrdnVi?oc=5) |
 | Trump says he is authorizing military to use ‘Full Force’ in Portland - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQX05Za1BHQ3ZIamNfd1hUR0c1MUMyRGhCXy1VTlhtbFNRMkxUM2d6Y3BUYlFKQ25UWEhyNWhhUE16MzJUZm9RX0hqT3UxSGxRdkxnb045Rnl1clRrSlRKLTlnUmg4d0dSbTNGWTlReFpDbXYtVkh3RnZ2Skk2WVpPYzRGODE?oc=5) |
-| ‘I’m absolutely terrified’: Federal workers brace for potential government shutdown, mass layoffs - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNRXhlcUhXaENZRWtfT2pNYXpzVlJnMWIzOTFIWGl6MEZON2QtYndDcFplMEpjbVVyRE4tNGZab1BoUDFwcXNKYmR4UTZIQndhMEhlTUxXcjJHcEJUY1lHcWdoelhWdUx2YWdEMVhMMHZoM2hDdkJ6VEVyekJicFVWYlNLMEN5V1Y3ZXpjMG5tRjVuUQ?oc=5) |
+| State Department revokes visa for Colombian President Gustavo Petro - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNY0xINWNkWlVlbXoxQTMzdWVna2ZLd1JZdVNWYzlBNTI4RWFRZTFpVmxKN2kwMFpEV1RWaFNrbE9nTklMWkwzaTlKRmlVQUpfVWtJNGVtZ3lrRW5aalcySXdMc3FjTEhWRFdCWGpvMGg0ZUw1aHAtVnJrdm1DZE9wejJJUVdrdnVi?oc=5) |
 | Defense Secretary Pete Hegseth to tell hundreds of generals about the 'warrior ethos' in rare gathering: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNVUtMLXBIOWI4a3F5SDNXRWk1SkJaTmxYM3VOTGdBQk42Tm9WQkUyZTVBd2hKdGh4OElOQkx2d255M1RUWE91YXZ4OGxuOGQybDByQU1TbjhocW5Ud3AzRGV4UE1WbWExeGw1MkVxdTliX05xbFh5QW0wZk11TmFadDh1aUtYbjRWengwdkxJX1RTVU41cUFpR2ZUZG80UEtNMTNYalpVcjhQQmVYSVJndzN6d9IBuAFBVV95cUxOZFZEdVVrUVdRR3VxRk1LTkQxdGEwd2phWmdOTFlRdFJZMW5PXy1nYVNTM0o4c0x1Mm1wZkVfeHIzMlpVRGRlRjl3cDA4Rzh6QjdGYXpkdWlVWEpJZlk3aXY3VmoxRUpSU2VxbmdoOFVuNWktUHlNYVBOOF95VXQzLVRFSXVnN1BjTlR1ajlfMllNWGFLVkVsQVJmX2c4ZGhZRXRQVExMZmtJa293QUU2SG9vQ3ZXY2tm?oc=5) |
+| ‘I’m absolutely terrified’: Federal workers brace for potential government shutdown, mass layoffs - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNRXhlcUhXaENZRWtfT2pNYXpzVlJnMWIzOTFIWGl6MEZON2QtYndDcFplMEpjbVVyRE4tNGZab1BoUDFwcXNKYmR4UTZIQndhMEhlTUxXcjJHcEJUY1lHcWdoelhWdUx2YWdEMVhMMHZoM2hDdkJ6VEVyekJicFVWYlNLMEN5V1Y3ZXpjMG5tRjVuUQ?oc=5) |
 | A major Silicon Valley medtech company just announced it was pausing H-1B hires - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQOUpxMjRkRDlDTlQ3N21OSmhCbFdOOWE2SnBMVElqWk56Vmw1WW5HQXY1Sm9LeEJrREJKVVZSU3o2MzgtWmlvb3J4UFg5Qm1Sd0pBeXdzdm5yV2s5OWtENS1GZjdjbWNfSUdvWHlGWGlsdzM3enpJSm5kWHNmQlBhdmRndGhiNVRZWUk0d0tpYmdPc2drNmZKdFlsc0tRemM?oc=5) |
 | Trump asks Supreme Court to let him end birthright citizenship - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQZ0lqbHNxYk5yTjZmN1A2dzkxenA0VzJ4bTVaUE5oTjl2RWdqTjhXekU2V0c5c1ZsbXBWVTI2Y25IMTlkaWpvWjJIWVpHcUhzWW1OelNLbnJKWXp0ZGtqUGZzWDFfSVQyaTRhcjBGYmU5cUhUSTFYMF9Ldmp4bkNqUkhZRTVkSTU5YzZMNzFkS1RYQXBuc3RzaWtXeUVmc2c?oc=5) |
 | Des Moines schools superintendent, a former Olympian, arrested by ICE - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPdWxpOHJIckNpUW9GWUVST3JrS3FfUjVueVdpbTZkNkZUNjZ4VHZzRGlQNWZKSjEzMHNFb0ZfcUFnalFfcmpMUEJyclRIWER2U3dRZXg3ZzVZUGNhUVZmSzR6b1gxdVpLaEdneEpXQm9rWWhDT3dWZ05rTGJrTWt4OTRMTG0tMVlCTDNSMXQ1dEZIWjBfSGc?oc=5) |
