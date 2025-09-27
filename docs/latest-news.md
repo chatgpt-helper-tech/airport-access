@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 07:24:21（北京时间）**
+🕒 更新时间：**2025年09月28日 07:33:27（北京时间）**
 
 ---
 
@@ -25,9 +25,9 @@
 |--------|-------------|
 | Trump says he is authorizing military to use ‘Full Force’ in Portland - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQX05Za1BHQ3ZIamNfd1hUR0c1MUMyRGhCXy1VTlhtbFNRMkxUM2d6Y3BUYlFKQ25UWEhyNWhhUE16MzJUZm9RX0hqT3UxSGxRdkxnb045Rnl1clRrSlRKLTlnUmg4d0dSbTNGWTlReFpDbXYtVkh3RnZ2Skk2WVpPYzRGODE?oc=5) |
 | Inside the Trump Administration’s Push to Prosecute James Comey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPb1k0cHVhbkhsSnFhYVRvUXh6WEVzZWNKSXpGSkxIVmlNc3pNMThpVFc3blNrUGhVazRzb3ptSXBhcnB5LUdONDZIelBWckhIWGQ1UnQ3VHFrQ0s2UkFXSFBnZGlZelZfUk9kcHllalRFLURzLWhwQzRqYkVzNnFvajRrYUtTaGVGRVE?oc=5) |
-| FBI fires agents pictured kneeling at George Floyd protest, US media report - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBTZWd3aFhSYm1ONHVBNTh3ck9OOUl6RFBrRkZzdUpubTdEQzdhZXdaeU41Y2ZYd081d0xjTlFfZDVRdGtGUVlrS29jUlkwcEpLMndaMkVCVUlQZ9IBX0FVX3lxTFBhMmRiTTBjTU9VY1hIcHlJeFNKa2NxUVVEbmYxZTMwZWp0MlRHMGt5VWFIN0REZkthY1QwTWpBaTJfTUFpbGRYMmk0UXNEZEdYMnZSMWJGNVZwQ3dhTndj?oc=5) |
 | Colombian president accuses Trump of violating UN principles after visa revoked - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNQXlIbUFNLV8xc3FBUVZacjBhcGw4dEVfdzlvTl80R2NiRXhfSXVRZE1sLW1YblIwNHdnMGFwTlY1dXJUeFRkaVVLSnBUWTE3RUs5RkdsYW1VXzNjMHlfM2FlZ0FwTldLWXFYd2gxbFFLby1NQ1NVakM4T3JuUU5PMGJuU3BQSXFQVGJrVw?oc=5) |
-| Hurricane Humberto strengthened into a rare Cat 5, but there’s another storm the US needs to watch - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQS3lNbGJhV2xWQkVtUmw2emlrZlNQRjhUdDRnZnp6X3RBbUJ3eU9mQlVxQnpBaWF6X2NhMWNvc01Fem4yMW9uZHJnVGF5NVBrTWtLX20tUVI1cVZPQkx6MThQdUJEME4yb0NyNWdqdUJUQnRTU1h3NndNUi1HWmE2aUFmODEzM1AwM3lCS0UtMWs5RGtvcXk4UEZB?oc=5) |
+| Southeast U.S. braces for heavy rains from a potential tropical storm - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPLXpBR3laTFdDQnhjUE5XMXVGUk16SHZGZUk3VnZjdmtCQlZuSk5JVW9WQ2IwcVdaZmhYUmFNUDRldG9LdzBCY1J6eEVMaWVDRmp6NW1VQ1hOOTJJdTBNWkJtUGhJTjQ2QjVLV2F6cFhHSHZaU2ZoejYycDZpVkFocjhybHVYaVNZLUpQUQ?oc=5) |
+| FBI fires agents pictured kneeling at George Floyd protest, US media report - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBTZWd3aFhSYm1ONHVBNTh3ck9OOUl6RFBrRkZzdUpubTdEQzdhZXdaeU41Y2ZYd081d0xjTlFfZDVRdGtGUVlrS29jUlkwcEpLMndaMkVCVUlQZ9IBX0FVX3lxTFBhMmRiTTBjTU9VY1hIcHlJeFNKa2NxUVVEbmYxZTMwZWp0MlRHMGt5VWFIN0REZkthY1QwTWpBaTJfTUFpbGRYMmk0UXNEZEdYMnZSMWJGNVZwQ3dhTndj?oc=5) |
 | Trump’s shutdown plans reflect his vision of a smaller federal government - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPRThLbmRkcDNRU2lrQmxIdzNiQlJQeDFfb1pLWFFzYmJScTBtNm1LaEVCMGVubktSYm9YeUw0Q2plS1liWlhLbVZxN0EyeHl2djVRTkNzT2pESnBNc3dCSmJnVnVmWkFrdHgyVEtjYkx4UW5PcjZVZm1hZ1hLNnhPSENIWFB6aE14OXc?oc=5) |
 | US military brass brace for firings as Pentagon chief orders top-level meeting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQckFfRGFlOW4zN05sSWttdGhmUGFvQkgzX1NPMlBXTUV0cUw5ejNFZWhBRFlUZ3RESWxrWXR3UzZpS0FxOG4tWU5Hbl9leG5HLW01azA4OWFzazBHeE5uaFlsLVRKUVJQdjlPS1hzbmFpSHBSdHR1d0pENjY3Q09xeFBrRV9MVmI4dHRDSlZKUThrQQ?oc=5) |
 | At Least 3 Killed in Arizona Flood That Swept Away Vehicles Overnight - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE1KZXhUc0NVamxwNHBMeUhCajRyR1Z6RzdDYVFpTWhxOGJYRVhhaWVRS2oxM3ZkMTktRXl5N3BDSzZWVTFCUV9pNzA5MXhrTlctRWd4aC1HUEUzcFFnaVRHN3RoeVVKV3J2OUpxRDRQaw?oc=5) |
