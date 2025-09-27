@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 11:32:58（北京时间）**
+🕒 更新时间：**2025年09月27日 11:41:22（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | In rare rebuke, federal officials discipline ICE officer for shoving woman in New York - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOekg3OWtyVlFHeEo4eGM2WGFoZzBZNmNMRTFJcjM3Nk5xYlVJbF9WdUdTbnR0bFlzNmVOc0Nxc1hwVmNtbE44Sno1Z3gwTmVLQWRVc2doZVNQcFRySEFwa0ZQNzZmY1hZZXRUZHE3clpZcnYtMjMtWkNadnhRMnI2MUQxRkJESXRtNGY4bnZDVURZWGpzSmVYZkRvRQ?oc=5) |
 | Man who killed four people in New York City building containing NFL headquarters had CTE - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1EM2w1SnpCaXBEU2F4WWhlSjlCYmQ2eGM0cFM2TWxiaHhJUU5NMmNzZWVHVHJfR2VpLUtMNWJ2cGRmR29kTFpSYzk0cmFqQkpIdEd1eDZpTnZVVjQ5Wm42dExmVHRQanhmeGtFSTZFV2YyZnM5Yms3MVdUQ00?oc=5) |
 | Trump Fired a U.S. Attorney Who Insisted on Following a Court Order - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOdDkzcHZYaTRsaFY5dlR4LVZ4b19neks0bEw1dTV6LTczUVZoRTVRb1lPSEJIOUpsdTA1TGF6bkpkeTJLOERmdEVBdDRXYjltVFdmWWVQTXpGckc0RFpwUWFmRENETVZzekFvLTRUWDBzckVUZ0hMdUZPZUxnZTRMdXVZUjBXVF9ScGVSYzFHRXJGMlk?oc=5) |
-| LA car wash owner sues for $50m after being slammed and detained in Ice raid - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOd1JRbnV6NE9SUmFvaXk1eElSOGxscGkyWTZGV2ZKb2NJcFQxR0FIUTB1RU1NMmNKMENrTnpDeVF1ZDhuZ1RvSDlDc29XaVY4ZXlNd2lKTE9kVmVBN21ZQ1gwR3p0WWh5Vl9XWHpCQjVoNWg0NFI2X1RIcGhOWlAwQUxIQkQ4YTRxaEVZTGEwQ3JtRWdHdmc?oc=5) |
+| Coroner: Travis Decker’s cause of death will ‘likely never be known’ - king5.com | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQUWktUGRZdW1vajdZM0tJdWxDcmZIc3hmRk16STdBQmNBV2pXbm95SkNjNmFHQXE4QVRlTWgxM0lTc09mMFlldHZRRnliZi1zUWV6aWNCOHZIZjBzQnJROEhIQVFnRnYzekRBM3c4WXkxVFpTdjI2Qi1VaEVuM3Ffamlud3k5a3VQY1lFdGFtc2ZYcjNRMUNFX1VYS3duYlZZOVhhTDdUTFRacnJPOTFmR2R3X2xWWE9fQ0E?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
