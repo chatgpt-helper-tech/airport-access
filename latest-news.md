@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 01:08:59（北京时间）**
+🕒 更新时间：**2025年09月28日 01:16:11（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | Harry suggests people trying to sabotage reconciliation with King | [阅读全文](https://www.bbc.com/news/articles/c04q3pr12e5o?at_medium=RSS&at_campaign=rss) |
 | Trump authorises 'full force' as Portland set to become latest city to see troops deployed | [阅读全文](https://www.bbc.com/news/articles/cddmn6ge6e2o?at_medium=RSS&at_campaign=rss) |
 | Reeves pushes for EU youth migration scheme ahead of Budget | [阅读全文](https://www.bbc.com/news/articles/c179z10vy28o?at_medium=RSS&at_campaign=rss) |
-| Huntington's breakthrough 'like winning the lottery 10 times over' | [阅读全文](https://www.bbc.com/news/articles/c3vzek4dkyyo?at_medium=RSS&at_campaign=rss) |
-| 'Have I made the wrong decision?': Backstage at Strictly as live show looms | [阅读全文](https://www.bbc.com/news/articles/c9dx0x68z46o?at_medium=RSS&at_campaign=rss) |
 | Solving the 100-year-old mystery of two missing Scottish soldiers | [阅读全文](https://www.bbc.com/news/articles/c7088ynken8o?at_medium=RSS&at_campaign=rss) |
 | Can anyone become an influencer? Three people with zero followers find out | [阅读全文](https://www.bbc.com/news/articles/cy7pe3l3d6no?at_medium=RSS&at_campaign=rss) |
+| Huntington's breakthrough 'like winning the lottery 10 times over' | [阅读全文](https://www.bbc.com/news/articles/c3vzek4dkyyo?at_medium=RSS&at_campaign=rss) |
 | Flags, wars and fantasy kingdoms: Turner Prize artists show us their worlds | [阅读全文](https://www.bbc.com/news/articles/cn0xyqj7pxwo?at_medium=RSS&at_campaign=rss) |
+| How the King’s vision is shaping next wave of new towns | [阅读全文](https://www.bbc.com/news/articles/c179z9z1lxwo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
