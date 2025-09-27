@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 00:08:53（北京时间）**
+🕒 更新时间：**2025年09月28日 00:16:23（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump directs defense secretary to deploy troops to Portland - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOYWxLTFRLUnZ0ejhqMDkyWHllbi1HOGRWTGxjNGJrbjk4NE80SHNCREZuSUhuWExfYjhld2ZOY3RZcnZIeTlCaER4YWU5dklsVHNhZVczVjBoaW5QNVhKN1FsTDRzZ0FwbkdzeWpJc2owWUxQZmRSUFhWcm5KTkVlSXNlS3FtS2ZyRmxDeU5wMnZNMElweW9jVEtoOWtIRE1xbjduLVVaUjFmZVJWN1l0QXNWM1U4c2_SAVZBVV95cUxOZFZkclEtRFVrZW5RYzRzOUpGQ05YS3BBREFmbWNHRXNFUnU0MlpOVE1GTVcxRXI3Ql8zY1F5M056WDBZd0ZHbS1hUzVTRVhUQU1iQ1BQZw?oc=5) |
+| Trump says he'll send troops to Portland, Ore., to handle 'domestic terrorists' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5HUTE1Ym1DWW1lMDFYUnNLX1lHak5lS19hQzFVNWpiMmVEaXV6RGVBbFhRZnExRFdEeGJ5X2g2SDN1UnZHRXdzM2t2T2FIMUVoa0RycHZEWmJxZzNOaEhiR1NIcE9WSGdxUHZSNU1YdFlRT1FRejRJYUpmWmtsVTQ?oc=5) |
 | "The first domino": Comey indictment sets MAGA retribution in motion - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5KcjFWelpFTUhXQ1FxQ3dBMnJGd2J6WXBNT2xuRGJxWjZfWHJWdlRIMC1RZ2RsZGtWV1BWcG9BY2U1VmJpV3BCZ1UxYXZCVlBGQ2phZ1ZhMXlWUTNwYW1LeVNxRWt3bGtXamMtYUVFck9FcG94emRxYmtXeWtQZw?oc=5) |
 | State Department revokes visa for Colombian President Gustavo Petro - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNY0xINWNkWlVlbXoxQTMzdWVna2ZLd1JZdVNWYzlBNTI4RWFRZTFpVmxKN2kwMFpEV1RWaFNrbE9nTklMWkwzaTlKRmlVQUpfVWtJNGVtZ3lrRW5aalcySXdMc3FjTEhWRFdCWGpvMGg0ZUw1aHAtVnJrdm1DZE9wejJJUVdrdnVi?oc=5) |
 | How a government shutdown could give Trump more power - PBS | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxObmIxS2c3MVRodVQyODh2NDZodDFuUV82c0VhVDFkMXNSbVhxRjJKUzllaHVnZW1vM1NaOVBtUVA2d0FTdlNncTY2Q3UwbWVZRGNwYlZNaEFiSDloSlVRY0I1Z1dWelh3ZnpKS0dxR0RaM1N2WF9hVkdjWmpxZ3h5d0hra0VOOEYyVk44ZTFaeWMydjN5bVHSAZsBQVVfeXFMTVp1Qm9XejRkUWk1VElyZkxhdnBBaW53YlQ4TEhWRWpzYUx6MHhNbFhVQWNBQ3VWeHdtejB3aFNsS1FDb0RCZHJrVVI1Rk5fdHRTTW9IbFhHMy1RWWpyM3FvckNmU1c1eXhneFdDUktTM0NtUmR0T1VROFJDSTZYVjFQZno0YS0ycXBHSmdTal92MkpEamUxY3JURFE?oc=5) |
