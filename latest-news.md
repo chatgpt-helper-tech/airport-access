@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 23:16:13（北京时间）**
+🕒 更新时间：**2025年09月27日 23:24:38（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | Elon Musk and Prince Andrew named in new Epstein files | [阅读全文](https://www.bbc.com/news/articles/cwyl8j1we0lo?at_medium=RSS&at_campaign=rss) |
 | Huntington's breakthrough 'like winning the lottery 10 times over' | [阅读全文](https://www.bbc.com/news/articles/c3vzek4dkyyo?at_medium=RSS&at_campaign=rss) |
 | 'Have I made the wrong decision?': Backstage at Strictly as live show looms | [阅读全文](https://www.bbc.com/news/articles/c9dx0x68z46o?at_medium=RSS&at_campaign=rss) |
-| Trump promised retribution - how far will he go? | [阅读全文](https://www.bbc.com/news/articles/c0q74pxx871o?at_medium=RSS&at_campaign=rss) |
-| How the King’s vision is shaping next wave of new towns | [阅读全文](https://www.bbc.com/news/articles/c179z9z1lxwo?at_medium=RSS&at_campaign=rss) |
-| Moldova holds key election as Russia's shadow looms large | [阅读全文](https://www.bbc.com/news/articles/c179z9d4vl1o?at_medium=RSS&at_campaign=rss) |
+| Solving the 100-year-old mystery of two missing Scottish soldiers | [阅读全文](https://www.bbc.com/news/articles/c7088ynken8o?at_medium=RSS&at_campaign=rss) |
+| Can anyone become an influencer? Three people with zero followers find out | [阅读全文](https://www.bbc.com/news/articles/cy7pe3l3d6no?at_medium=RSS&at_campaign=rss) |
+| Flags, wars and fantasy kingdoms: Turner Prize artists show us their worlds | [阅读全文](https://www.bbc.com/news/articles/cn0xyqj7pxwo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | Des Moines schools superintendent, a former Olympian, arrested by ICE - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPdWxpOHJIckNpUW9GWUVST3JrS3FfUjVueVdpbTZkNkZUNjZ4VHZzRGlQNWZKSjEzMHNFb0ZfcUFnalFfcmpMUEJyclRIWER2U3dRZXg3ZzVZUGNhUVZmSzR6b1gxdVpLaEdneEpXQm9rWWhDT3dWZ05rTGJrTWt4OTRMTG0tMVlCTDNSMXQ1dEZIWjBfSGc?oc=5) |
 | Tropical system closing in on the Southeast could unleash dangerous flood threat early next week - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQS3lNbGJhV2xWQkVtUmw2emlrZlNQRjhUdDRnZnp6X3RBbUJ3eU9mQlVxQnpBaWF6X2NhMWNvc01Fem4yMW9uZHJnVGF5NVBrTWtLX20tUVI1cVZPQkx6MThQdUJEME4yb0NyNWdqdUJUQnRTU1h3NndNUi1HWmE2aUFmODEzM1AwM3lCS0UtMWs5RGtvcXk4UEZB?oc=5) |
 | Fact checking Trump's recent claims about the economy - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPcndiNkh3eWxiRWdvLWZtaW5oWUx1ZXlPdXRoajdSMXpxWV9yWDA0ampSTzZSSFZYc0tVX3g1NEoydGVMa1FlZzUyZHczX2JodW92SGZyZ1pXUHI4enZabjVndlhKU2piOUZNaUxBd25RODdLWVF6c1RnNjBTcXdOVVRYeWVVcHVldkHSAY8BQVVfeXFMTU9QTFJvM1ZTakVrNTZ1RWJKRDAzTXZMbFdsWmdabk9rXzJraDdZc0U0MzNZUm9YSlNsV05DRWRBQnJjRmdMVm15dDQ1YVdmMDB2OXhUM1psVnVxMXhlT2FTeGo1U3IwWGZ6QVdEZDc4Z0E3eXJXU082SDVRcFYwc2cxMUxHZm52YzhVN1NiVU0?oc=5) |
-| 79-year-old US citizen claims ICE agents body-slammed him at his business, seeks $50M - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOQnd3N3lObktzaGp4QVpaQm1GQ3ItR0lwdzhTRTR4SDFmeXJpY1V3YTBaMC1xazdoSmdwR2p4QWswbnp2T0o2M2dIQ2lmS1U0V3QwV1RUaWpBZHZBQnk1VzVMZzA3SFJPSjRJMnlUMWY0X0ZoVU1UWDEyQlh5eG8weTZlM2wtOUQ4MktpdllNY9IBlAFBVV95cUxQdG0xR1ZaNHBDWXAzajktTGJVUHNtczdaZXRSNUVBTXhiRFZtMUl4d0ZvX2wtdC1MVDJ3eEJxcVY5MmFhcThKZEtLd3NFZlJmNE5pSkNNZDJxWUg3aEM0SzVqc0ZZSHJVWHJHR01ZNFlrT0stREtjSTNTcWVwUUFDU2szSk91ck5lLURibjJ1d2VMbFZD?oc=5) |
+| George Hardy, last of the Tuskegee Airmen's World War II combat pilots, dies at 100 - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQNE9DcnhtblRjSVQ3dEh4MWRobUtrenVjNzl5ZW40Z1c5MHFEOVo3bXJVSldQa1JZbkU5TWF3bHVfOEltX203UEZYazJFX0Vrcm1tN21VSWFaTjB6M3dEbmdYYXFGYkNYRkdfWmtmX01qTEl3TEJfOTZzU0prRlFLY1hRYXFWd0RkeGJxdHhqUWNkSXM5ZWRCZGloRnlWVVNYVFlFRnUzd3BUNXF3amVLSG130gFWQVVfeXFMTlNJbVdrVjZuUkZEQTdzVDNOWVNrOEhxeV92X1FhVVh3dlFlS0FOQnFVXzB5VE1FMUNUdjRjQkJ5M0ZhZDNlY1Y5RmpQRWlOc3NhbjNCVkE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
