@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 13:33:09（北京时间）**
+🕒 更新时间：**2025年09月27日 13:40:26（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Supreme Court allows Trump officials to freeze billions in foreign aid - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNeTM4YWxnQXhlQi1Ga2dFS3ZnTzhqY2l5V3V5Ni1odjVBM0g2X2dxRTUwVVF5Rk5QdzlENF80R21tWU1uNjRqTHVjb1EybDQwQ3hDYjh4bERNS2ZWVmZzM21MZFhRN1U5cldJUE5OVXcyRk9HTGhSMnpHSExyX2dwN1dIR3JwdmZ6dy0ycWJiWkVYOTkyREFZOWpEeXFjTVgt?oc=5) |
 | Defense Secretary Pete Hegseth to tell hundreds of generals about the 'warrior ethos' in rare gathering: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNVUtMLXBIOWI4a3F5SDNXRWk1SkJaTmxYM3VOTGdBQk42Tm9WQkUyZTVBd2hKdGh4OElOQkx2d255M1RUWE91YXZ4OGxuOGQybDByQU1TbjhocW5Ud3AzRGV4UE1WbWExeGw1MkVxdTliX05xbFh5QW0wZk11TmFadDh1aUtYbjRWengwdkxJX1RTVU41cUFpR2ZUZG80UEtNMTNYalpVcjhQQmVYSVJndzN6d9IBuAFBVV95cUxOZFZEdVVrUVdRR3VxRk1LTkQxdGEwd2phWmdOTFlRdFJZMW5PXy1nYVNTM0o4c0x1Mm1wZkVfeHIzMlpVRGRlRjl3cDA4Rzh6QjdGYXpkdWlVWEpJZlk3aXY3VmoxRUpSU2VxbmdoOFVuNWktUHlNYVBOOF95VXQzLVRFSXVnN1BjTlR1ajlfMllNWGFLVkVsQVJmX2c4ZGhZRXRQVExMZmtJa293QUU2SG9vQ3ZXY2tm?oc=5) |
 | Detainees shot in deadly attack on Ice facility in Dallas identified – reports - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNdDNuQ0hnejRoM2NqcjlibXpMUHBKTlM5bWliNVpCSUdWamJVOWs1VnlkbnA4UnZHU3dqZlRTLWE0NFh5UzFJbjUxZGNkTVlIQVV1eGhOcTFLbjJLcE4zRjhnWmhSS2IwRHB5QzF2X2VrNmhrU2JVWTlrN0VFVVNpUHYwRTNJLS1JZWh1OWJSbmlqVGpP?oc=5) |
-| Feds fire baton rounds, more tear gas at ICE protesters in Broadview - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOQzBWbWVvRWpUd0JLUHZiOTVDNkZNWVJIT1dOSjh0cFJlWmhfdU8yZk5BdlBhVVFhbUJHa1ZBRmk0X0JwY2FPQ1BtMzZkaWwtaUlPbVpvTjB6aUU0NFM5d09mUGpGUkFkR2tJWElOYy1NQUdKYmotTmNzR0JPaG1kekRn?oc=5) |
+| Scoop: Some of Congress' trips are being canceled ahead of a potential shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQdGJSY2txUGhBTldON2ZxbWkzel9KamVHbDZxUmc1aHh3WnJQQmlraThNci1SY0M1b24tSEZxaEt3cU5ON244al90RkpvTmJINWlDRWVOZ0wyRkpENUNOelJ2dU1hN212QzRoTmlEcGhCVGpqSTlUOUpmeHdhc0hTWUVMNA?oc=5) |
 | Gunman who blamed NFL for hiding brain injury dangers had CTE, medical examiner confirms - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNbHI5Qm96Y1ZQWk16ZFZHNmd1Tjk4RVVTR29Vbk9DSHUwR0xSRFhuWFhYRGNZZ0k0UFNhYjlPNGZzOVFZcS02R2VIR3YyOHpsaEIyN2xiSF9uWWlEZ1dpZmVBZVlwVkM1ekJLaTl6bVl2STZSUnk3em5JWjU0UW9qQ3EwRms0QVIxcjQ5VF9PQ1d3V2hSMWp5U2Jn?oc=5) |
 | Trump fires US attorney who told border agents to follow law on immigration raids - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNb3hjeG1vVTJyVm5UZnRZX2FHYVFDUVcyWkFPNEwxVDdGcXd5M3lIOFlvRUFzcjlMeUFKNkNIVG1yNWZvNTltZ0czZzZRS3NmTHh2RkdPRnNpVEYzbTFFYXFLV19iZmd5eWNJLXpLX1ZSRmZPa0FNSVNuTlRnY2ktamYwZExCZzdt?oc=5) |
 | DOJ agents will be deployed to ICE facilities to protect federal agents, Bondi says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOZHJoQlJtX210QS0yZTFHamJSRUkxTjZ5WHBsWU5LUFhYU2M4NDlWaU9EYTFHeGxHQVlBVzROUXQ5eFU4Mm90UXU4UWIyeVBPOXZaN1BkdmFRQ3Q1aElQNC1xVGtzZURiamZLY0lmMjFZOFFCeW4zTDVhdTdjemJzQ1dzZWQyZw?oc=5) |
