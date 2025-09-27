@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 11:25:18（北京时间）**
+🕒 更新时间：**2025年09月27日 11:32:58（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Detainees shot in attack on Dallas ICE facility identified, source says. Here’s what we know about the victims - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBHNUc4QmRobXJxNHhFY3d5OGJWdDJjd05KUktJODQ2VGdyY1dHWlNsN28yMHdfT1JPS1JmR1ZRa2psbXc5Ny1UbzBDYzVweEpOaUFpQndsOXlwbXlYRFBPdUNKbkxhcFhpZzJQNEU1RmhoTi1Yd2c?oc=5) |
 | Supreme Court allows Trump officials to freeze billions in foreign aid - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNeTM4YWxnQXhlQi1Ga2dFS3ZnTzhqY2l5V3V5Ni1odjVBM0g2X2dxRTUwVVF5Rk5QdzlENF80R21tWU1uNjRqTHVjb1EybDQwQ3hDYjh4bERNS2ZWVmZzM21MZFhRN1U5cldJUE5OVXcyRk9HTGhSMnpHSExyX2dwN1dIR3JwdmZ6dy0ycWJiWkVYOTkyREFZOWpEeXFjTVgt?oc=5) |
 | In rare rebuke, federal officials discipline ICE officer for shoving woman in New York - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOekg3OWtyVlFHeEo4eGM2WGFoZzBZNmNMRTFJcjM3Nk5xYlVJbF9WdUdTbnR0bFlzNmVOc0Nxc1hwVmNtbE44Sno1Z3gwTmVLQWRVc2doZVNQcFRySEFwa0ZQNzZmY1hZZXRUZHE3clpZcnYtMjMtWkNadnhRMnI2MUQxRkJESXRtNGY4bnZDVURZWGpzSmVYZkRvRQ?oc=5) |
-| Gunman in NYC Shooting at NFL Headquarters Had CTE - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5fUG5fQU1zalZFTHB4OHFOTldUc2ItX1VieGxzRG9fZk1fZFJiQUp3a2FzQWZFRmtYNXQ4VmlNa1NXUUVGY25DUEE1WXZlMU4yQ2JYUEdSSnJyLUN0SlVhN2FBekRZRW5LMmxrRlVzYy1wVmFOMkdBMA?oc=5) |
-| Trump fires US attorney who told border agents to follow law on immigration raids - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNb3hjeG1vVTJyVm5UZnRZX2FHYVFDUVcyWkFPNEwxVDdGcXd5M3lIOFlvRUFzcjlMeUFKNkNIVG1yNWZvNTltZ0czZzZRS3NmTHh2RkdPRnNpVEYzbTFFYXFLV19iZmd5eWNJLXpLX1ZSRmZPa0FNSVNuTlRnY2ktamYwZExCZzdt?oc=5) |
+| Man who killed four people in New York City building containing NFL headquarters had CTE - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1EM2w1SnpCaXBEU2F4WWhlSjlCYmQ2eGM0cFM2TWxiaHhJUU5NMmNzZWVHVHJfR2VpLUtMNWJ2cGRmR29kTFpSYzk0cmFqQkpIdEd1eDZpTnZVVjQ5Wm42dExmVHRQanhmeGtFSTZFV2YyZnM5Yms3MVdUQ00?oc=5) |
+| Trump Fired a U.S. Attorney Who Insisted on Following a Court Order - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOdDkzcHZYaTRsaFY5dlR4LVZ4b19neks0bEw1dTV6LTczUVZoRTVRb1lPSEJIOUpsdTA1TGF6bkpkeTJLOERmdEVBdDRXYjltVFdmWWVQTXpGckc0RFpwUWFmRENETVZzekFvLTRUWDBzckVUZ0hMdUZPZUxnZTRMdXVZUjBXVF9ScGVSYzFHRXJGMlk?oc=5) |
 | LA car wash owner sues for $50m after being slammed and detained in Ice raid - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOd1JRbnV6NE9SUmFvaXk1eElSOGxscGkyWTZGV2ZKb2NJcFQxR0FIUTB1RU1NMmNKMENrTnpDeVF1ZDhuZ1RvSDlDc29XaVY4ZXlNd2lKTE9kVmVBN21ZQ1gwR3p0WWh5Vl9XWHpCQjVoNWg0NFI2X1RIcGhOWlAwQUxIQkQ4YTRxaEVZTGEwQ3JtRWdHdmc?oc=5) |
 
 ---
