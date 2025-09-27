@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 06:09:30（北京时间）**
+🕒 更新时间：**2025年09月28日 06:16:55（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump never forgot Portland’s 2020 protests. Now he says the military can use ‘full force’ in an American city. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPSTZjQkVUU2tWWE9yVXNSVFNxc3psdE9vMFNmZ0hITFMyVzZBeGZwSmc1NjFMblBtOFgwQkxoaXBfd2tQWnFOQjNhQU9QQmt0N0dWWG0zelZjQ0ZfSkdmOWVrdGNSUUg3SDlXR2VTb0tiNmU5ZGtkNHVoZWNicFNhYkowYjk5Mnl1bTlKdUVqdzdYQQ?oc=5) |
+| Trump orders deployment of troops to Portland, ICE facilities - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNRzM4c01XUUdFYzhaSE5lYUg5YnVkVDRCQ3Y0Xy1qMmU1VzkwV1pmeU1lYlFVbWVNdlVoNFYzYzR3d3p4a1AySFJSVlptN0RlWXo0REtwcHRKaGszRXg4M2lmNkYzVGZaYmFtUlRqZE84OE1aUEdWZVBTU25NdkI4WDNZMFlzdmdMaHJ3NXplTDdzeWwtVlo5ZWZKQURHWTFY?oc=5) |
 | Trump’s Repeated Attacks May Undercut Case Against Comey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPeGFNQ29vSHI2UnRRRFpyajhQMTBRb09ZTjNhc1RsbWNscWRHR3V4ZHVYUEdGU3BPbE51QnpOSTduM3hWUk1Uc3A2N2FHSHVJRkl1QmU3QTkwdFJKRFg5b202X0Y5ajdiRGhiM2xOaG9CS1pCNVMyN2I0N2hXNGFJaUw4NlNybUVjOU52NHNvYw?oc=5) |
 | FBI fires agents pictured kneeling at George Floyd protest, US media report - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBTZWd3aFhSYm1ONHVBNTh3ck9OOUl6RFBrRkZzdUpubTdEQzdhZXdaeU41Y2ZYd081d0xjTlFfZDVRdGtGUVlrS29jUlkwcEpLMndaMkVCVUlQZ9IBX0FVX3lxTFBhMmRiTTBjTU9VY1hIcHlJeFNKa2NxUVVEbmYxZTMwZWp0MlRHMGt5VWFIN0REZkthY1QwTWpBaTJfTUFpbGRYMmk0UXNEZEdYMnZSMWJGNVZwQ3dhTndj?oc=5) |
 | Hurricane Humberto strengthened into a rare Cat 5, but there’s another storm the US needs to watch - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQS3lNbGJhV2xWQkVtUmw2emlrZlNQRjhUdDRnZnp6X3RBbUJ3eU9mQlVxQnpBaWF6X2NhMWNvc01Fem4yMW9uZHJnVGF5NVBrTWtLX20tUVI1cVZPQkx6MThQdUJEME4yb0NyNWdqdUJUQnRTU1h3NndNUi1HWmE2aUFmODEzM1AwM3lCS0UtMWs5RGtvcXk4UEZB?oc=5) |
@@ -32,7 +32,7 @@
 | US military brass brace for firings as Pentagon chief orders top-level meeting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQckFfRGFlOW4zN05sSWttdGhmUGFvQkgzX1NPMlBXTUV0cUw5ejNFZWhBRFlUZ3RESWxrWXR3UzZpS0FxOG4tWU5Hbl9leG5HLW01azA4OWFzazBHeE5uaFlsLVRKUVJQdjlPS1hzbmFpSHBSdHR1d0pENjY3Q09xeFBrRV9MVmI4dHRDSlZKUThrQQ?oc=5) |
 | Dominion Voting Systems reaches settlement in its $1.3 billion defamation lawsuit against Guiliani - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQQzBnQVZObS1HMXpTV3d6cVNTbDhNZUZXS09BUmlxWThvTEdjTHpmNkhCQkdqb1JEbkJlWWxFcUhBXzFNcnZJdTRxcDYtaDIwbVhNLU0ybi1SNjM4NEk4S3pQQ2NFNkFybWhwaWhFWVVIZVE3VXFod0xLbnJqYTUyUUE0RU54ZjlVUzVDUlZmS3BaOHB4Nm85QVlkTGtGM3EyVVM0VVBB0gGrAUFVX3lxTE1XRVhFMHlDbFBxVFliamlSdkdSeXA1Vk0xNkNvcTJHdndBWm1KT1RZOFVGc3hyMXdQWjhzSGtjc0hJSXlyXzJZdXlTUHE3elp5SWcyRGVLd291ZEE2aDlhbHczZWhvWlgxaDRvVXJBZjJDbGpSbnBpanV0R2lHU0ZLc1kwMFVJa1RCcTJwU0FVazVyOGRsTzNzczE2QnRqNUppTFRORnh1QmplYw?oc=5) |
 | Trump asks Supreme Court to uphold birthright citizenship restrictions he wants to impose - PBS | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxOSzJ1ZE9aenAzeUwtdk05dmNVQkhZZmVxb1RLMmpWdHVJNWJtV3hoNF9aTDdQQlFGSTY4aGFBM0trUzR3VUFxSFRUWTVTalJNNzV6Y1kwd243SWl1NDFINm9rcXA5cEd0eDA0bUVhOUtYdHVRVGx1Y1NpemdES1VpNTJCYWdTOVdtZTQzRUR2dG0tN29CMUdQS0stQTgtUGV1bmlpSTh2Z0hmY2xkMGNyY2t6OGtZRlBzQ0VvSUt5QmFOMDB5UGfSAcsBQVVfeXFMTkhxbE9yZmFnaVNiem9mSXl1ZXJIQU4xU21sdlVhUy1MNEVtWFcxUEZ2UW1aSVUyOFRoa1RhUDBWWlNOZHZyRFlaSW9RQ2xJdzdlcml2SmpGWjYwX05OT3R3X2hzcnVWMGZoNFRMQmtVZlFmZmRMaHVuQWVfXy1rLUxTbE9jbzl0SmROcFRIOHhKQ1Zpd3FxTGZ5enhPRXVNeU9SMlllS19TTkhXWHZzbFA5bldUNDVCTGJqUzBPZHBFZTN0QlJqZTNjWTQ?oc=5) |
-| Kilmar Abrego Garcia transferred to Pennsylvania detention center - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQeUp1dDdmSkVzVHFxbzJKR2dNVEhxOFk4NU4xM1VXMG5aZnNBTFBPOUhRVGRrdG1pQnRkT0I1clhhVHZnVjRkc2JBOGlFMVc3WS1FZm9UX2F1a3pJcnNfZG92cm5aTWl5WTVMcFRNQTJlY0VlZU01SWZ0UzkyWUJENlRJTDJ0bUp2bG5Wb2FBZ2tjOUZhNFBOa9IBVkFVX3lxTE10NUNxeHN3QnM1S0Jvbkl6R0dlRDhSbXRjZjVLd19pb0tlb0FRdHQ0aGc5LXliZ1ctNEp3N2FpdF9pWDdUS0F2UjdFLUx4UjZKNFQtT0J3?oc=5) |
+| Who is Ian Roberts, the Iowa school superintendent accused by ICE of being in the US illegally? - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPOUhmemM2Y19BRFJvY2VKWVhLWWFETE9PRF9uTnlkRVZHZjRka2Q2WW53VDBaNEFHMklEaWxaaTM0d1JZOVZKS1psOEI0aWkxY0FsTVJ4aEd0amdXeTFjcFFkNEJYSjNTbG5IY3NBa1RNWHN6NVU1Z2hEcWpwUE5mRQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
