@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 21:24:51（北京时间）**
+🕒 更新时间：**2025年09月27日 21:32:03（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | U.S. Says It Will Revoke Colombian President’s Visa - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE13ZnVQQV82NkNDeW9tM25iTEpNcFdXbG1iRkRia0gzZzk5NExycko0aDNzQ2dyenU1RmJEQUs5WVFCenJwc0RPYUFnU2Jza3RVeVFkUmcwVE9MUHNCTi1QOW1ybndmMjBRTFZOb0FvdnowTldFTVh6M2tVQjU?oc=5) |
 | Will Hurricane Humberto impact South Florida? See its projected path. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNa0tBSWxEMWxSRFFfM2N3bjdmRlpodTlrZXJHWnVIWThGdXFNcHY0aHZTbkV2eFBfV2thTjN5NUpRWDExcjVLcEZWTWtyUmlJUkhIQTBBcVU3aUVaaFpfdUgzTzlRZm4xaXdlZFNrUjZnWFJIUTFqUnNUVzFXWDVFaGtsWF9aelNiMFJHaFFJR0NLZG5qNTJkMWdCTDZlU2h1?oc=5) |
 | Supreme Court allows Trump officials to freeze billions in foreign aid - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNeTM4YWxnQXhlQi1Ga2dFS3ZnTzhqY2l5V3V5Ni1odjVBM0g2X2dxRTUwVVF5Rk5QdzlENF80R21tWU1uNjRqTHVjb1EybDQwQ3hDYjh4bERNS2ZWVmZzM21MZFhRN1U5cldJUE5OVXcyRk9HTGhSMnpHSExyX2dwN1dIR3JwdmZ6dy0ycWJiWkVYOTkyREFZOWpEeXFjTVgt?oc=5) |
-| 79-year-old US citizen claims ICE agents body-slammed him at his business, seeks $50M - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOQnd3N3lObktzaGp4QVpaQm1GQ3ItR0lwdzhTRTR4SDFmeXJpY1V3YTBaMC1xazdoSmdwR2p4QWswbnp2T0o2M2dIQ2lmS1U0V3QwV1RUaWpBZHZBQnk1VzVMZzA3SFJPSjRJMnlUMWY0X0ZoVU1UWDEyQlh5eG8weTZlM2wtOUQ4MktpdllNY9IBlAFBVV95cUxQdG0xR1ZaNHBDWXAzajktTGJVUHNtczdaZXRSNUVBTXhiRFZtMUl4d0ZvX2wtdC1MVDJ3eEJxcVY5MmFhcThKZEtLd3NFZlJmNE5pSkNNZDJxWUg3aEM0SzVqc0ZZSHJVWHJHR01ZNFlrT0stREtjSTNTcWVwUUFDU2szSk91ck5lLURibjJ1d2VMbFZD?oc=5) |
 | Des Moines schools superintendent, a former Olympian, arrested by ICE - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPdWxpOHJIckNpUW9GWUVST3JrS3FfUjVueVdpbTZkNkZUNjZ4VHZzRGlQNWZKSjEzMHNFb0ZfcUFnalFfcmpMUEJyclRIWER2U3dRZXg3ZzVZUGNhUVZmSzR6b1gxdVpLaEdneEpXQm9rWWhDT3dWZ05rTGJrTWt4OTRMTG0tMVlCTDNSMXQ1dEZIWjBfSGc?oc=5) |
 | Bondi vows to send Justice Department agents to guard ICE facilities - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQNVR2ekdpZDFVOUdwVVhPWnZ5RnY0enpDd09JQ2hJcGZxZGJmVG5kcDFna28wRS1fTHVBNW1HS0NxYXVQeDY0MW42MFFuR0dPaWlnaDljek92MTlMNmp5UUp1dGd4Yl9RaUZMT25FclNLcXFaLWJLLVd6a2wwbEtjWNIBhgFBVV95cUxQdDBuSG0wcVdOckk4ZTdEWnF1b1R5dnk5NEsyNENQSktWZHJmZll0S29rT1ZqUVZLSlBySVQ0T3FmQ010Vk5PTkpkaUstZjE2ZDJCZGRtal9qY2pEREJqZTZKTmg2WHJCTC14Mk1lU09vU1BCNDZtd2FuYXNBbmR5cHRTS3FxUQ?oc=5) |
 | An influx of federal agents will arrive in Memphis next week, governor says - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQMnE5b3Z2MEs2NGkyc2ZKNjIwYUFsODBzSkh2RjVaeXZkczItQjFDVFdreHdxdkJiOUNfTkNvWkowRVRYbzRIX211UVowdVcxakR4bHB6b1UtVUtWdkE0TVp4MmY4SE1VeHFpS1lmdzJJQjItUHcxNG9EbzE4VFhVdlBqZ3N2T1h3LXNNalZPQQ?oc=5) |
+| Howie Rubin, prominent investment banker, charged with sex trafficking - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNVUwzVW9mVnlVNWJidjVGeTJzMUN2T1Q0MVVVTW1USU9yazVFVTdkSmQzY2lDdUdNb21qbDFBMkVONHZmbDJ4bXhmYTl2NTVHcWJNeHZjRTlLSW9NbFVqeXFSUk5BTkpmbWpoanUzaV96aHA5QVJCb3hvUWtiblM0TExsMWdxdUx1dEcwOXVhdlRKQlB0XzZEamItVnBwRl9WSWJqZG8xX0lrRHZz0gGyAUFVX3lxTE04OXJyeVh3YnM1a2Nobmt6MGNHVXJxMV9hcGk5M2lIZEVOUlRPV2NGN1c2NHRnYTVyZzhjeWx5S1pYNlk4aHBCTDlPMVkycjExZ2VZeFJtMUZjNE5qZFdWZTZUVWREM0NDTXVNalVnZUlHb2hHLVJjanNWYVJoYTVMWUtpY0ZjNThucTdsbWsxSVhieWdsNmMzRHJUYTR4RC1RbkpyYS16Tnp6S0FrSF9qemc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
