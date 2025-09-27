@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 01:40:51（北京时间）**
+🕒 更新时间：**2025年09月28日 01:48:31（北京时间）**
 
 ---
 
@@ -29,7 +29,7 @@
 | Generals and admirals scrambling to make plans to attend Hegseth's unusual meeting - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxPQWJBUWZVc0VyNHljdmZwT2FFaGc4eFZ6QWMyUkNyMVpnS3VPZ3A4dElJb1RQREtFSm5XWVYtYlBXeEFId05NbTlwdEFHeVdncTAyX0k2a2RiWEJDeTF5Q09DVDZpT2JQRjdYaEtROFFaUHprZXdJeUVnM25naEF5emVPWlk5STJ1ZmUzc25Xa3NPc01COUl2XzFUZklKdk5KOFg1eHNMUTRkZWx1LVBwdmtqdUtvM3EzdzRXbklkMHAtUnA2eWk3ZVJNRGTSAVZBVV95cUxPWHNZeWFKaHRMUC0wYV9XRzhNV1FVUXBDNnZleHRfZjE0b0NCNGJiU011dkF1UVdIS0hITTJ6NjE3b2xkT3VRdmVqN0t0amRvVW02Z0dlZw?oc=5) |
 | ‘I’m absolutely terrified’: Federal workers brace for potential government shutdown, mass layoffs - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNRXhlcUhXaENZRWtfT2pNYXpzVlJnMWIzOTFIWGl6MEZON2QtYndDcFplMEpjbVVyRE4tNGZab1BoUDFwcXNKYmR4UTZIQndhMEhlTUxXcjJHcEJUY1lHcWdoelhWdUx2YWdEMVhMMHZoM2hDdkJ6VEVyekJicFVWYlNLMEN5V1Y3ZXpjMG5tRjVuUQ?oc=5) |
 | FBI fires agents photographed kneeling during 2020 racial justice protest, AP sources say - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQUmZCV1dlSXl0NFBJSFJMZHhzeFRmSVFFLXJzN1hfOWFlRlNMUlZ3ZExTdTJ4c0NKUGwtR1plaHpGdmpVaEh1OFhMLXhrTG5tOFFzYllvOVc4ZEZSeTU4VDhrVnN5bmI4UGF1alJKQUpyMTVQTkRpSF80aTNrOGlwVFBzZzhPT1I2N1dVSVdkY18?oc=5) |
-| Trump asks Supreme Court to let him end birthright citizenship - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQZ0lqbHNxYk5yTjZmN1A2dzkxenA0VzJ4bTVaUE5oTjl2RWdqTjhXekU2V0c5c1ZsbXBWVTI2Y25IMTlkaWpvWjJIWVpHcUhzWW1OelNLbnJKWXp0ZGtqUGZzWDFfSVQyaTRhcjBGYmU5cUhUSTFYMF9Ldmp4bkNqUkhZRTVkSTU5YzZMNzFkS1RYQXBuc3RzaWtXeUVmc2c?oc=5) |
+| Trump Administration Asks Supreme Court to Allow End of Birthright Citizenship - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNQWJOempZOEV3VTc1U3djUmVCSUs3aHR5TnZUN3h6cjdVTlNNUFhYZzJNMWFQM2VfVDBPR2FDMUZrM1JqeF9RUG9BYTJoWnlwTzZ3bkQtRVFmVVNibi1WQ2pBeUJObE0yN2VscVlFdWtaRHltelFkNGU0dXEwaks5VVF6SGZTTFUyNmNsNG10MV9RZw?oc=5) |
 | Des Moines schools superintendent, a former Olympian, arrested by ICE - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPdWxpOHJIckNpUW9GWUVST3JrS3FfUjVueVdpbTZkNkZUNjZ4VHZzRGlQNWZKSjEzMHNFb0ZfcUFnalFfcmpMUEJyclRIWER2U3dRZXg3ZzVZUGNhUVZmSzR6b1gxdVpLaEdneEpXQm9rWWhDT3dWZ05rTGJrTWt4OTRMTG0tMVlCTDNSMXQ1dEZIWjBfSGc?oc=5) |
 | Future Tropical Storm Imelda closing in on the Southeast could unleash dangerous flood threat early next week - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQS3lNbGJhV2xWQkVtUmw2emlrZlNQRjhUdDRnZnp6X3RBbUJ3eU9mQlVxQnpBaWF6X2NhMWNvc01Fem4yMW9uZHJnVGF5NVBrTWtLX20tUVI1cVZPQkx6MThQdUJEME4yb0NyNWdqdUJUQnRTU1h3NndNUi1HWmE2aUFmODEzM1AwM3lCS0UtMWs5RGtvcXk4UEZB?oc=5) |
 | Detainees shot in attack on Dallas ICE facility identified, source says. Here’s what we know about the victims - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBHNUc4QmRobXJxNHhFY3d5OGJWdDJjd05KUktJODQ2VGdyY1dHWlNsN28yMHdfT1JPS1JmR1ZRa2psbXc5Ny1UbzBDYzVweEpOaUFpQndsOXlwbXlYRFBPdUNKbkxhcFhpZzJQNEU1RmhoTi1Yd2c?oc=5) |
