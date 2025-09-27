@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 05:56:21（北京时间）**
+🕒 更新时间：**2025年09月28日 06:00:28（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump orders deployment of troops to Portland, ICE facilities - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNRzM4c01XUUdFYzhaSE5lYUg5YnVkVDRCQ3Y0Xy1qMmU1VzkwV1pmeU1lYlFVbWVNdlVoNFYzYzR3d3p4a1AySFJSVlptN0RlWXo0REtwcHRKaGszRXg4M2lmNkYzVGZaYmFtUlRqZE84OE1aUEdWZVBTU25NdkI4WDNZMFlzdmdMaHJ3NXplTDdzeWwtVlo5ZWZKQURHWTFY?oc=5) |
+| Trump never forgot Portland’s 2020 protests. Now he says the military can use ‘full force’ in an American city. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPSTZjQkVUU2tWWE9yVXNSVFNxc3psdE9vMFNmZ0hITFMyVzZBeGZwSmc1NjFMblBtOFgwQkxoaXBfd2tQWnFOQjNhQU9QQmt0N0dWWG0zelZjQ0ZfSkdmOWVrdGNSUUg3SDlXR2VTb0tiNmU5ZGtkNHVoZWNicFNhYkowYjk5Mnl1bTlKdUVqdzdYQQ?oc=5) |
 | Trump’s Repeated Attacks May Undercut Case Against Comey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPeGFNQ29vSHI2UnRRRFpyajhQMTBRb09ZTjNhc1RsbWNscWRHR3V4ZHVYUEdGU3BPbE51QnpOSTduM3hWUk1Uc3A2N2FHSHVJRkl1QmU3QTkwdFJKRFg5b202X0Y5ajdiRGhiM2xOaG9CS1pCNVMyN2I0N2hXNGFJaUw4NlNybUVjOU52NHNvYw?oc=5) |
 | FBI fires agents pictured kneeling at George Floyd protest, US media reports - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBTZWd3aFhSYm1ONHVBNTh3ck9OOUl6RFBrRkZzdUpubTdEQzdhZXdaeU41Y2ZYd081d0xjTlFfZDVRdGtGUVlrS29jUlkwcEpLMndaMkVCVUlQZ9IBX0FVX3lxTFBhMmRiTTBjTU9VY1hIcHlJeFNKa2NxUVVEbmYxZTMwZWp0MlRHMGt5VWFIN0REZkthY1QwTWpBaTJfTUFpbGRYMmk0UXNEZEdYMnZSMWJGNVZwQ3dhTndj?oc=5) |
 | Future Tropical Storm Imelda closing in on the Southeast could unleash dangerous flood threat early next week - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQS3lNbGJhV2xWQkVtUmw2emlrZlNQRjhUdDRnZnp6X3RBbUJ3eU9mQlVxQnpBaWF6X2NhMWNvc01Fem4yMW9uZHJnVGF5NVBrTWtLX20tUVI1cVZPQkx6MThQdUJEME4yb0NyNWdqdUJUQnRTU1h3NndNUi1HWmE2aUFmODEzM1AwM3lCS0UtMWs5RGtvcXk4UEZB?oc=5) |
