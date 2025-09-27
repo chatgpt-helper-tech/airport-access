@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 12:57:48（北京时间）**
+🕒 更新时间：**2025年09月27日 13:01:14（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Judge who reviewed James Comey's indictment was confused by prosecutor's handling of case, transcript shows - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9hNzdKN1dfbDFIX1dYSWJ5ZFMyMVZVYTJ0OUo0TF84NVVzNDRUY1VUQjQ5WDQxdFZmS3ZkTXEtYVBqRGhmWEVibHJ1Y3R5YUJFb1JEM1czdHpuVjVHSGRMejlNVVpqdDZIZ2NKRHllakNRS0VxSFNSZ2lMVWpOZmfSAYQBQVVfeXFMUDRETGQ1dHV3VFdwdHpaMktBZ3dsQWRqVndRX01COUtEenEzZ0ZLU1J0MXptOTZpSHVWYy1nemQ1RXRwV2NGZEwzb1M2V3ZWWFU5QVJGaVpHSjROTm9yUENxWld5bS14N2t4T1BRQlhWa19LaDdySm9aemN6SVZPNktSVHlx?oc=5) |
 | ICE arrests top educator at Iowa's largest school district - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9PVGVRQ2QzUURIQ1VjNGlxQ2FpQ0RCOEhaWS1vekwwZDZlUUZtNGVqWGM0NG5jOS1QU2N3MUw3U1VEaW1DNDQ0WVNpa3FnMGV0QmljTXpNZWZTUdIBX0FVX3lxTE1JUW9OdFRhWmxiekVNQ3NEeXR3cjNEZUVjQmIyS0VlQ0szTVVrVk9Udk1MclBGemdGb0daMHFsdDBJc1JSQTZ5eWY1UUgzQ0tuT3dHMkxwMjZiRU5rYm9F?oc=5) |
-| Hegseth’s surprise gathering of top military brass is to deliver speech on ‘warrior ethos,’ sources say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNUU11TmxfZ0NsWDN0ZE8zSXZCck1rcGo1YzJiUFBPT2ZmSHprSl9PdGY5UGFEZEVxaVpkMTV1QlRJX0dORmpxc2RrUVRENTZpbWYzWmRGNGZVSEl3RGNad2RYd2hzeHkycmRhd0RqWEVERTBZX3hId3Q3UzhYMlNWS0xYOXM?oc=5) |
 | Supreme Court allows Trump officials to freeze billions in foreign aid - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNeTM4YWxnQXhlQi1Ga2dFS3ZnTzhqY2l5V3V5Ni1odjVBM0g2X2dxRTUwVVF5Rk5QdzlENF80R21tWU1uNjRqTHVjb1EybDQwQ3hDYjh4bERNS2ZWVmZzM21MZFhRN1U5cldJUE5OVXcyRk9HTGhSMnpHSExyX2dwN1dIR3JwdmZ6dy0ycWJiWkVYOTkyREFZOWpEeXFjTVgt?oc=5) |
+| Hegseth’s surprise gathering of top military brass is to deliver speech on ‘warrior ethos,’ sources say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNUU11TmxfZ0NsWDN0ZE8zSXZCck1rcGo1YzJiUFBPT2ZmSHprSl9PdGY5UGFEZEVxaVpkMTV1QlRJX0dORmpxc2RrUVRENTZpbWYzWmRGNGZVSEl3RGNad2RYd2hzeHkycmRhd0RqWEVERTBZX3hId3Q3UzhYMlNWS0xYOXM?oc=5) |
 | Detainees shot in deadly attack on Ice facility in Dallas identified – reports - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNdDNuQ0hnejRoM2NqcjlibXpMUHBKTlM5bWliNVpCSUdWamJVOWs1VnlkbnA4UnZHU3dqZlRTLWE0NFh5UzFJbjUxZGNkTVlIQVV1eGhOcTFLbjJLcE4zRjhnWmhSS2IwRHB5QzF2X2VrNmhrU2JVWTlrN0VFVVNpUHYwRTNJLS1JZWh1OWJSbmlqVGpP?oc=5) |
 | House Democrats release partial Epstein records referencing Musk, Gates and Prince Andrew - PBS | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxOTzVSc1BDaHByLXAyM2s1bTNFRDFBOTNZM1NqRzd4MEVubk1tT3d3NFlmb2pDaFZsVWplNFhLVnRad2x6VGFMX1N4WVY0Qy1ZU0FyUmR0SFplR2hXV2dqRVNJZVo3V0F2ZnlsNmRJNVB3U1hkWFB2M1dDNEt5ODluYkxCbEdCZHZvQW50WHJweTFWOTV6ZkU5WnVqVE5jcmV5ZzBOOUpSTjFVSkJSaEl1R0VVOVlsWGs5eWtoc1I0d2M1SkNm0gHKAUFVX3lxTE5GMDZFbDBhUVp0MjE0eHVCZG9SRE5McU1mcVJUOEZZZGN6dlo0WlBYeGtrWXZNRFN4NlB0ZHRCWGpEZ2JMc25BaHk2R2VDVThreTAzSFRPczUxaXZaS2otOVA5dDNHbGdCM3BXbE1WanJNc20zS2FIRW40dDdvaEk4VEFfbU0zS1hVM0s5NllLdFViTDhtbXFITUg4WEN1ZXlZeGdoT24wNzc4ejBkSjV0aWJXemQxb1RBbG5GUXBzQmFtenRlTnp6ZHc?oc=5) |
 | Man who killed four people in New York City building containing NFL headquarters had CTE - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1EM2w1SnpCaXBEU2F4WWhlSjlCYmQ2eGM0cFM2TWxiaHhJUU5NMmNzZWVHVHJfR2VpLUtMNWJ2cGRmR29kTFpSYzk0cmFqQkpIdEd1eDZpTnZVVjQ5Wm42dExmVHRQanhmeGtFSTZFV2YyZnM5Yms3MVdUQ00?oc=5) |
