@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 00:25:26（北京时间）**
+🕒 更新时间：**2025年09月28日 00:32:44（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | Trump's H1-B changes raise concerns about US tech economy's future, ability to recruit specialty talent - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQR1NURVV3bzM3Q3N2SGgtWkJ0VEhiNUZtSTZtNloxS1JmQjhEbUpSZGNyaUVmUi1DbDViMjVwcXdWRlVhOWp2VlhETDZqb1dCY0pweWZ5ak83TlNMb3JyMURUQXRhM3FIcXFlN1lPS0c4b1l2YWJCeUltTXBUQ3lTT0hjc2ZMdnR6UXdBQ0dyZUR1UzA1anNZVXVJc0FXTnZ10gGmAUFVX3lxTE9tTjNxNFZmWDN1ZG9TYWsxLW9SWWFXTm5xSk5MOTBBWXZDanRtUDNQUkNmRDhSRVd1LWtOTkd2WXVtUUxrSVdTMDBTMFBQUENhRDRlOS1hODJVaHllUDRyZHhRSzA2RXBmeHVpejh0ckNDRDA4MFJ4dDZmcWNpVjB3OS1Pd2g0TVRjRHhhdXlJTzR1bUo3OFFOSGJKS2Vvc05jXzRfTnc?oc=5) |
 | How a government shutdown could give Trump more power - PBS | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxObmIxS2c3MVRodVQyODh2NDZodDFuUV82c0VhVDFkMXNSbVhxRjJKUzllaHVnZW1vM1NaOVBtUVA2d0FTdlNncTY2Q3UwbWVZRGNwYlZNaEFiSDloSlVRY0I1Z1dWelh3ZnpKS0dxR0RaM1N2WF9hVkdjWmpxZ3h5d0hra0VOOEYyVk44ZTFaeWMydjN5bVHSAZsBQVVfeXFMTVp1Qm9XejRkUWk1VElyZkxhdnBBaW53YlQ4TEhWRWpzYUx6MHhNbFhVQWNBQ3VWeHdtejB3aFNsS1FDb0RCZHJrVVI1Rk5fdHRTTW9IbFhHMy1RWWpyM3FvckNmU1c1eXhneFdDUktTM0NtUmR0T1VROFJDSTZYVjFQZno0YS0ycXBHSmdTal92MkpEamUxY3JURFE?oc=5) |
 | Future Tropical Storm Imelda closing in on the Southeast could unleash dangerous flood threat early next week - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQS3lNbGJhV2xWQkVtUmw2emlrZlNQRjhUdDRnZnp6X3RBbUJ3eU9mQlVxQnpBaWF6X2NhMWNvc01Fem4yMW9uZHJnVGF5NVBrTWtLX20tUVI1cVZPQkx6MThQdUJEME4yb0NyNWdqdUJUQnRTU1h3NndNUi1HWmE2aUFmODEzM1AwM3lCS0UtMWs5RGtvcXk4UEZB?oc=5) |
-| Trump asks Supreme Court to uphold restrictions he wants to impose on birthright citizenship - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNRXg2MXdWUFRramhOdjdpWi1CMGQzZy1IVVdob3BhQ2dEeWgxV3RGRUR2NnRETjgtNjhCYVNEVjlVODY3dXFhcnlkNS1EQVY1cDZXMWxXQkRRbmd1azhXTC13UkRNekxBQ3BXWWRZUElfYUsyYVB6amM4Z3I5SDJ4SlpINkdCWjlUbWgwbmlOSFdVYW1INXdjYzlxXzN5RTdRZ0VNcg?oc=5) |
-| Des Moines schools superintendent, a former Olympian, arrested by ICE - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPdWxpOHJIckNpUW9GWUVST3JrS3FfUjVueVdpbTZkNkZUNjZ4VHZzRGlQNWZKSjEzMHNFb0ZfcUFnalFfcmpMUEJyclRIWER2U3dRZXg3ZzVZUGNhUVZmSzR6b1gxdVpLaEdneEpXQm9rWWhDT3dWZ05rTGJrTWt4OTRMTG0tMVlCTDNSMXQ1dEZIWjBfSGc?oc=5) |
 | FBI fires agents photographed kneeling during 2020 racial justice protest, AP sources say - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQUmZCV1dlSXl0NFBJSFJMZHhzeFRmSVFFLXJzN1hfOWFlRlNMUlZ3ZExTdTJ4c0NKUGwtR1plaHpGdmpVaEh1OFhMLXhrTG5tOFFzYllvOVc4ZEZSeTU4VDhrVnN5bmI4UGF1alJKQUpyMTVQTkRpSF80aTNrOGlwVFBzZzhPT1I2N1dVSVdkY18?oc=5) |
+| Trump asks Supreme Court to let him end birthright citizenship - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQZ0lqbHNxYk5yTjZmN1A2dzkxenA0VzJ4bTVaUE5oTjl2RWdqTjhXekU2V0c5c1ZsbXBWVTI2Y25IMTlkaWpvWjJIWVpHcUhzWW1OelNLbnJKWXp0ZGtqUGZzWDFfSVQyaTRhcjBGYmU5cUhUSTFYMF9Ldmp4bkNqUkhZRTVkSTU5YzZMNzFkS1RYQXBuc3RzaWtXeUVmc2c?oc=5) |
+| Des Moines schools superintendent, a former Olympian, arrested by ICE - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPdWxpOHJIckNpUW9GWUVST3JrS3FfUjVueVdpbTZkNkZUNjZ4VHZzRGlQNWZKSjEzMHNFb0ZfcUFnalFfcmpMUEJyclRIWER2U3dRZXg3ZzVZUGNhUVZmSzR6b1gxdVpLaEdneEpXQm9rWWhDT3dWZ05rTGJrTWt4OTRMTG0tMVlCTDNSMXQ1dEZIWjBfSGc?oc=5) |
 | New York man charged with parents’ murders after TV confession - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQcFM1RUN5Rjg5eWJtT1ItcFhlSWxhMFhfVnhySllxMVZCVW14bEtwT1BiSFFzaXdrWkZsY1lFajIzdFMzYTJyQmRSdXMwUWxKczVhVFhjbkk3VGFWNk56SzBoLVM2SVFJekFPWU8xZzhOMkx0UzAwU0JEVm0xckpXT241RTZKQUVmTDRpczlaWQ?oc=5) |
 
 ---
