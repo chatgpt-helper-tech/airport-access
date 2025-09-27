@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月27日 21:16:46（北京时间）**
+🕒 更新时间：**2025年09月27日 21:24:51（北京时间）**
 
 ---
 
@@ -12,8 +12,8 @@
 | How much trouble is Labour in - and is the PM the right man for the job? | [阅读全文](https://www.bbc.com/news/articles/c1kwlzv9zl1o?at_medium=RSS&at_campaign=rss) |
 | Reeves pushes for EU youth migration scheme ahead of Budget | [阅读全文](https://www.bbc.com/news/articles/c179z10vy28o?at_medium=RSS&at_campaign=rss) |
 | Harrods says customers' data stolen in IT breach | [阅读全文](https://www.bbc.com/news/articles/c8d70d912e6o?at_medium=RSS&at_campaign=rss) |
+| Harry says people trying to sabotage reconciliation with King | [阅读全文](https://www.bbc.com/news/articles/c04q3pr12e5o?at_medium=RSS&at_campaign=rss) |
 | Spray tans and sparkles: Backstage with Strictly stars ahead of first live show | [阅读全文](https://www.bbc.com/news/articles/c9dx0x68z46o?at_medium=RSS&at_campaign=rss) |
-| Two women die during failed Channel crossing attempt | [阅读全文](https://www.bbc.com/news/articles/cx2jg20pdm0o?at_medium=RSS&at_campaign=rss) |
 | I thought my husband might not see our kids grow up. That's all changed now | [阅读全文](https://www.bbc.com/news/articles/c3vzek4dkyyo?at_medium=RSS&at_campaign=rss) |
 | Trump promised retribution - how far will he go? | [阅读全文](https://www.bbc.com/news/articles/c0q74pxx871o?at_medium=RSS&at_campaign=rss) |
 | England v Canada: Rugby World Cup final guide | [阅读全文](https://www.bbc.com/sport/rugby-union/articles/cd9yyx4kq1jo?at_medium=RSS&at_campaign=rss) |
