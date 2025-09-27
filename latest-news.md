@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 06:40:56（北京时间）**
+🕒 更新时间：**2025年09月28日 06:49:11（北京时间）**
 
 ---
 
@@ -25,9 +25,9 @@
 |--------|-------------|
 | Trump says he is authorizing military to use ‘Full Force’ in Portland - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQX05Za1BHQ3ZIamNfd1hUR0c1MUMyRGhCXy1VTlhtbFNRMkxUM2d6Y3BUYlFKQ25UWEhyNWhhUE16MzJUZm9RX0hqT3UxSGxRdkxnb045Rnl1clRrSlRKLTlnUmg4d0dSbTNGWTlReFpDbXYtVkh3RnZ2Skk2WVpPYzRGODE?oc=5) |
 | Trump’s Repeated Attacks May Undercut Case Against Comey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPeGFNQ29vSHI2UnRRRFpyajhQMTBRb09ZTjNhc1RsbWNscWRHR3V4ZHVYUEdGU3BPbE51QnpOSTduM3hWUk1Uc3A2N2FHSHVJRkl1QmU3QTkwdFJKRFg5b202X0Y5ajdiRGhiM2xOaG9CS1pCNVMyN2I0N2hXNGFJaUw4NlNybUVjOU52NHNvYw?oc=5) |
+| Will Hurricane Humberto impact South Florida? See its projected path. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNa0tBSWxEMWxSRFFfM2N3bjdmRlpodTlrZXJHWnVIWThGdXFNcHY0aHZTbkV2eFBfV2thTjN5NUpRWDExcjVLcEZWTWtyUmlJUkhIQTBBcVU3aUVaaFpfdUgzTzlRZm4xaXdlZFNrUjZnWFJIUTFqUnNUVzFXWDVFaGtsWF9aelNiMFJHaFFJR0NLZG5qNTJkMWdCTDZlU2h1?oc=5) |
 | Colombian president accuses Trump of violating UN principles after visa revoked - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNQXlIbUFNLV8xc3FBUVZacjBhcGw4dEVfdzlvTl80R2NiRXhfSXVRZE1sLW1YblIwNHdnMGFwTlY1dXJUeFRkaVVLSnBUWTE3RUs5RkdsYW1VXzNjMHlfM2FlZ0FwTldLWXFYd2gxbFFLby1NQ1NVakM4T3JuUU5PMGJuU3BQSXFQVGJrVw?oc=5) |
 | FBI fires agents pictured kneeling at George Floyd protest, US media report - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBTZWd3aFhSYm1ONHVBNTh3ck9OOUl6RFBrRkZzdUpubTdEQzdhZXdaeU41Y2ZYd081d0xjTlFfZDVRdGtGUVlrS29jUlkwcEpLMndaMkVCVUlQZ9IBX0FVX3lxTFBhMmRiTTBjTU9VY1hIcHlJeFNKa2NxUVVEbmYxZTMwZWp0MlRHMGt5VWFIN0REZkthY1QwTWpBaTJfTUFpbGRYMmk0UXNEZEdYMnZSMWJGNVZwQ3dhTndj?oc=5) |
-| Southeast U.S. braces for heavy rains from a potential tropical storm - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPLXpBR3laTFdDQnhjUE5XMXVGUk16SHZGZUk3VnZjdmtCQlZuSk5JVW9WQ2IwcVdaZmhYUmFNUDRldG9LdzBCY1J6eEVMaWVDRmp6NW1VQ1hOOTJJdTBNWkJtUGhJTjQ2QjVLV2F6cFhHSHZaU2ZoejYycDZpVkFocjhybHVYaVNZLUpQUQ?oc=5) |
 | Trump’s looming shutdown: Mass layoffs, fewer regulations and military deployments - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPRThLbmRkcDNRU2lrQmxIdzNiQlJQeDFfb1pLWFFzYmJScTBtNm1LaEVCMGVubktSYm9YeUw0Q2plS1liWlhLbVZxN0EyeHl2djVRTkNzT2pESnBNc3dCSmJnVnVmWkFrdHgyVEtjYkx4UW5PcjZVZm1hZ1hLNnhPSENIWFB6aE14OXc?oc=5) |
 | US military brass brace for firings as Pentagon chief orders top-level meeting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQckFfRGFlOW4zN05sSWttdGhmUGFvQkgzX1NPMlBXTUV0cUw5ejNFZWhBRFlUZ3RESWxrWXR3UzZpS0FxOG4tWU5Hbl9leG5HLW01azA4OWFzazBHeE5uaFlsLVRKUVJQdjlPS1hzbmFpSHBSdHR1d0pENjY3Q09xeFBrRV9MVmI4dHRDSlZKUThrQQ?oc=5) |
 | Dominion Voting Systems reaches settlement in its $1.3 billion defamation lawsuit against Guiliani - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQQzBnQVZObS1HMXpTV3d6cVNTbDhNZUZXS09BUmlxWThvTEdjTHpmNkhCQkdqb1JEbkJlWWxFcUhBXzFNcnZJdTRxcDYtaDIwbVhNLU0ybi1SNjM4NEk4S3pQQ2NFNkFybWhwaWhFWVVIZVE3VXFod0xLbnJqYTUyUUE0RU54ZjlVUzVDUlZmS3BaOHB4Nm85QVlkTGtGM3EyVVM0VVBB0gGrAUFVX3lxTE1XRVhFMHlDbFBxVFliamlSdkdSeXA1Vk0xNkNvcTJHdndBWm1KT1RZOFVGc3hyMXdQWjhzSGtjc0hJSXlyXzJZdXlTUHE3elp5SWcyRGVLd291ZEE2aDlhbHczZWhvWlgxaDRvVXJBZjJDbGpSbnBpanV0R2lHU0ZLc1kwMFVJa1RCcTJwU0FVazVyOGRsTzNzczE2QnRqNUppTFRORnh1QmplYw?oc=5) |
