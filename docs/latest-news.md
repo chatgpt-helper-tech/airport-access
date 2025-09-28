@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月29日 01:17:15（北京时间）**
+🕒 更新时间：**2025年09月29日 01:24:30（北京时间）**
 
 ---
 
@@ -10,12 +10,12 @@
 |--------|-------------|
 | Keir Starmer calls Reform migrant policy 'racist' and 'immoral' | [阅读全文](https://www.bbc.com/news/articles/cj6xdw1dg4zo?at_medium=RSS&at_campaign=rss) |
 | Watch: PM repeatedly asked if he will rule out VAT rise in Budget | [阅读全文](https://www.bbc.com/news/videos/c5y86zxvmmpo?at_medium=RSS&at_campaign=rss) |
+| At least one person dead after shooting and fire at Mormon church in Michigan | [阅读全文](https://www.bbc.com/news/articles/ceq2vd15glwo?at_medium=RSS&at_campaign=rss) |
 | Zelensky condemns 'vile' Russian strikes lasting 12 hours | [阅读全文](https://www.bbc.com/news/articles/c75qeqr5905o?at_medium=RSS&at_campaign=rss) |
 | Arrests at protest supporting Palestine Action near Labour conference | [阅读全文](https://www.bbc.com/news/articles/cx20l1257l4o?at_medium=RSS&at_campaign=rss) |
 | Lola Young 'doing OK' after collapsing on stage during gig | [阅读全文](https://www.bbc.com/news/articles/cr7031gv2m8o?at_medium=RSS&at_campaign=rss) |
 | Swiss voters narrowly approve plan for electronic ID cards | [阅读全文](https://www.bbc.com/news/articles/cdr624j16jpo?at_medium=RSS&at_campaign=rss) |
-| Building of three new towns will start before election, Labour pledges | [阅读全文](https://www.bbc.com/news/articles/cly1geen679o?at_medium=RSS&at_campaign=rss) |
-| At least one person dead after shooting and fire at Mormon church in Michigan | [阅读全文](https://www.bbc.com/news/articles/ceq2vd15glwo?at_medium=RSS&at_campaign=rss) |
+| Don't underestimate peril for Labour, says Burnham | [阅读全文](https://www.bbc.com/news/articles/cn0xzpngj5xo?at_medium=RSS&at_campaign=rss) |
 | Woman raped by group of men in churchyard | [阅读全文](https://www.bbc.com/news/articles/cly622k0jm4o?at_medium=RSS&at_campaign=rss) |
 | Thunberg denies claims Gaza flotilla is a publicity stunt | [阅读全文](https://www.bbc.com/news/articles/cx25grpxzd3o?at_medium=RSS&at_campaign=rss) |
 
