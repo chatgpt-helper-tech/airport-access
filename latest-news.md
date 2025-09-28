@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 09:01:37（北京时间）**
+🕒 更新时间：**2025年09月28日 09:08:13（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Colombian president accuses Trump of violating UN principles after visa revoked - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNQXlIbUFNLV8xc3FBUVZacjBhcGw4dEVfdzlvTl80R2NiRXhfSXVRZE1sLW1YblIwNHdnMGFwTlY1dXJUeFRkaVVLSnBUWTE3RUs5RkdsYW1VXzNjMHlfM2FlZ0FwTldLWXFYd2gxbFFLby1NQ1NVakM4T3JuUU5PMGJuU3BQSXFQVGJrVw?oc=5) |
 | FBI fires agents pictured kneeling at George Floyd protest, US media report - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBTZWd3aFhSYm1ONHVBNTh3ck9OOUl6RFBrRkZzdUpubTdEQzdhZXdaeU41Y2ZYd081d0xjTlFfZDVRdGtGUVlrS29jUlkwcEpLMndaMkVCVUlQZ9IBX0FVX3lxTFBhMmRiTTBjTU9VY1hIcHlJeFNKa2NxUVVEbmYxZTMwZWp0MlRHMGt5VWFIN0REZkthY1QwTWpBaTJfTUFpbGRYMmk0UXNEZEdYMnZSMWJGNVZwQ3dhTndj?oc=5) |
 | At least 4 dead in Arizona following devastating flooding - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPZVp4WnNjbHBjanZJTm1VQXI5QXpvN01JT0doZW5QZzlvaWxNUm16bHJ4Y1RnX3N0Mko4bHhuVFF1SUpQbVd6X0o0MG9QdHozTDlJUGV0YlVteGcyTjZ0YzZMclJJN0xJcDNZaTlSNHF1VDBYSmxGYnJHMzVFQk1mcdIBhgFBVV95cUxQeDFFay1BeWpFZUo2MVJjMDVGcWhnMWt6V0pIRVZHVlhnQTk0cy1VQ0FMSEM3QmZqOEFVMGdObGNfSjRXUHlRNWZtWmQtNlBxVmcwaEVsX2tONE9OWC1oQVFlaUItQWJpUWpXck5tRDZyUUcwMXNaOEJMOU43OGtLVWVMX1pXQQ?oc=5) |
-| US military brass brace for firings as Pentagon chief orders top-level meeting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQckFfRGFlOW4zN05sSWttdGhmUGFvQkgzX1NPMlBXTUV0cUw5ejNFZWhBRFlUZ3RESWxrWXR3UzZpS0FxOG4tWU5Hbl9leG5HLW01azA4OWFzazBHeE5uaFlsLVRKUVJQdjlPS1hzbmFpSHBSdHR1d0pENjY3Q09xeFBrRV9MVmI4dHRDSlZKUThrQQ?oc=5) |
 | Giuliani and Dominion Voting Systems Settle $1.3 Billion Defamation Suit - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQWFBlTEJkMXF0dFNVZzRtNUY0bUgwZDhIb0h5eGtQSS1tYlNiMWxkemU1VnBZM0U4ZHRrYTMzanMwTU90emJ0QmRpcTZPVEo4alRzdkNSNjN2b3h1X2tuRUZOdFpEMGpVbjFnazk4ZjVxNnZFaGhBaVM4Wl9mRG0wYldMOXpKdHg2U0RsdFhoWGN3NHVK?oc=5) |
+| US military brass brace for firings as Pentagon chief orders top-level meeting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQckFfRGFlOW4zN05sSWttdGhmUGFvQkgzX1NPMlBXTUV0cUw5ejNFZWhBRFlUZ3RESWxrWXR3UzZpS0FxOG4tWU5Hbl9leG5HLW01azA4OWFzazBHeE5uaFlsLVRKUVJQdjlPS1hzbmFpSHBSdHR1d0pENjY3Q09xeFBrRV9MVmI4dHRDSlZKUThrQQ?oc=5) |
 | Donald Trump Just Blamed Another Tragedy On The "Radical Left," And The Internet Is Not Having It - Yahoo News UK | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9rVGluQTAzc2RCcGwzWWhqdmtxN3ZmNEg4NFVXQWlwWk5HRklPRzlEUVJId1VoZ1MwX3JqT1A1R2h6djhjak50bGxnYldic3dZbnd4OHp3clg0dHFmeGVEbzEyWWRScmxQZDc3U0RzeDNQREVjQkxmNXFNbDlPdw?oc=5) |
 
 ---
