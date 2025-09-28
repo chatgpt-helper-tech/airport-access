@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 10:49:20（北京时间）**
+🕒 更新时间：**2025年09月28日 10:57:30（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trump falsely suggests FBI agents to blame for igniting Jan. 6 violence - Politico | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE55aUUzVVBFVTlKNkNINGxkZ1FKdFh1eUFPVjRrU3Z4VVdiTjhZXzRER1NoUWxUSFJBU0xpNEg5bUhrX293S2ZyOFN6ZzJyZlFFVkRoa0dBU1Y3RTYyYTNMbUloYVhIWEpfdWlzWklreEtoRUs4Y1FSbw?oc=5) |
 | Des Moines Public School Board votes to place Superintendent detained by ICE on aministrative leave - KCRG | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxPYmdqSnNsT1U0aEZNMXZ5MTRCOHFQSXk5Y1FUSTdhN1E0YXNPY3JjemxKYlNuMUF6YktzLVhkNThUSkNkbDVMWENIVmxzVnhMOXRuQm9CQzNzMDl3UGpZNHFjaFVVLW51emNpMS1OZjVmak1fU0dhb190ZHVLazBTQlN1WHdrYTZUc3FCQUJDQUNlUTdNeHZycWhER3lMRnY0eTJPMlF4anZBYkI4OC1kbVlUTTZtZTE5cHAxb2hadkJpLUpaWkd5a0tyMm1RcGRn?oc=5) |
 | A storm is set to near the Southeast soon. These are the possible scenarios. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPLUo0MjZPak80WUF1c2hIaFNKMEREeFk2RTU3QmtPX2wwakZiMDZqUkFyLTVaWHhTemNQaGdqaVltQnRNZGt2SmRxQ0tlX3VSWm5NbWF1SWpfZkFHUmo4ZUZINWVQeEhQRk82ZnZmdGdzU29CdUVqRTlqTU9TNWVKeXBwY21iYjZ0OERqQUtWSWgzc05FV3V2Uk1MRTlsUkxoSGUyNg?oc=5) |
-| At least 4 dead in Arizona following devastating flooding - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPZVp4WnNjbHBjanZJTm1VQXI5QXpvN01JT0doZW5QZzlvaWxNUm16bHJ4Y1RnX3N0Mko4bHhuVFF1SUpQbVd6X0o0MG9QdHozTDlJUGV0YlVteGcyTjZ0YzZMclJJN0xJcDNZaTlSNHF1VDBYSmxGYnJHMzVFQk1mcdIBhgFBVV95cUxQeDFFay1BeWpFZUo2MVJjMDVGcWhnMWt6V0pIRVZHVlhnQTk0cy1VQ0FMSEM3QmZqOEFVMGdObGNfSjRXUHlRNWZtWmQtNlBxVmcwaEVsX2tONE9OWC1oQVFlaUItQWJpUWpXck5tRDZyUUcwMXNaOEJMOU43OGtLVWVMX1pXQQ?oc=5) |
+| 4 dead after flooding in Arizona, including in historic mining town - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQY0ZwOUpZOFpVdUdSdXFNY2lGWU5td3V2VTB4dkVuNktaMXJQaVBJb0JPVnZYZmMzMnl5eUdCajROQ0o5aFJLOHg1VnVXTTlDeFhlTkFuUDJZQ3d6czJtNEpzZlY4ZE44MXFONGRYSjhRWkFaV0c2S3FWRE9mVXdCMzVwczVBdE9UV0xwMVJsQ1FqWHBtUVZfV1Vncw?oc=5) |
 | Giuliani and Dominion Voting Systems Settle $1.3 Billion Defamation Suit - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQWFBlTEJkMXF0dFNVZzRtNUY0bUgwZDhIb0h5eGtQSS1tYlNiMWxkemU1VnBZM0U4ZHRrYTMzanMwTU90emJ0QmRpcTZPVEo4alRzdkNSNjN2b3h1X2tuRUZOdFpEMGpVbjFnazk4ZjVxNnZFaGhBaVM4Wl9mRG0wYldMOXpKdHg2U0RsdFhoWGN3NHVK?oc=5) |
-| United Nations arms embargo, other sanctions reimposed on Iran - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOTFhVZ2R2eVB1Mkw5b21GWHAtZ0IyRkhOaWNfcTZGZEZFdjVtdnVlWU1CRU45UHZjY3VzNnpkNUQ5ZzRjNThIbzRGQmFoOEVodDE4bkRDeEw5Qkt1LWg0aE5aV1l2dU5EMkpqZDBBeWRVTnVPUzhxMFBoaFFzLTdzYnM1LW80Q0t3RHpQMVBSZUVULVR3YlBqME10UWUxRWZHdUhobUJFWEhQSTNo?oc=5) |
+| UK, France and Germany warn Iran as nuclear sanctions resume - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFB5amFFQk5mZTF4czhMbzRjVGdtb0R4elRPZ2Fnc2dhRG8zNjgtVXZYUGh4VHV0UjE0V2ZzbV9XTTI2eG5MdlhMOFpYVnJabHhaRFJQSGJnSnFndw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
