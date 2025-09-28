@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 13:18:01（北京时间）**
+🕒 更新时间：**2025年09月28日 13:25:30（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump news at a glance: Trump orders deployment of national guard to ‘war ravaged’ Portland - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOMTJKUTNTX1otVW1ndEJPMzNISXU3djdKMmNaUS1GSkNwQ0tNSDlPSmRmMmhFM0NqeVFQTXdBSEQ5eGhXakVpOGRVOElVX3pibHJRcHVNTWVpNU1PVGdyMHlGbnJIRzRNeEIwQzMwSTBZMm5sbWdGeEoweXF5SG9tb3BrQTJuTjZ1V2VaMFhBZFM?oc=5) |
 | Inside the Trump Administration’s Push to Prosecute James Comey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPb1k0cHVhbkhsSnFhYVRvUXh6WEVzZWNKSXpGSkxIVmlNc3pNMThpVFc3blNrUGhVazRzb3ptSXBhcnB5LUdONDZIelBWckhIWGQ1UnQ3VHFrQ0s2UkFXSFBnZGlZelZfUk9kcHllalRFLURzLWhwQzRqYkVzNnFvajRrYUtTaGVGRVE?oc=5) |
+| Trump news at a glance: Trump orders deployment of national guard to ‘war ravaged’ Portland - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOMTJKUTNTX1otVW1ndEJPMzNISXU3djdKMmNaUS1GSkNwQ0tNSDlPSmRmMmhFM0NqeVFQTXdBSEQ5eGhXakVpOGRVOElVX3pibHJRcHVNTWVpNU1PVGdyMHlGbnJIRzRNeEIwQzMwSTBZMm5sbWdGeEoweXF5SG9tb3BrQTJuTjZ1V2VaMFhBZFM?oc=5) |
+| Des Moines Public School Board votes to place Superintendent detained by ICE on aministrative leave - KCRG | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxPYmdqSnNsT1U0aEZNMXZ5MTRCOHFQSXk5Y1FUSTdhN1E0YXNPY3JjemxKYlNuMUF6YktzLVhkNThUSkNkbDVMWENIVmxzVnhMOXRuQm9CQzNzMDl3UGpZNHFjaFVVLW51emNpMS1OZjVmak1fU0dhb190ZHVLazBTQlN1WHdrYTZUc3FCQUJDQUNlUTdNeHZycWhER3lMRnY0eTJPMlF4anZBYkI4OC1kbVlUTTZtZTE5cHAxb2hadkJpLUpaWkd5a0tyMm1RcGRn?oc=5) |
 | Trump to meet with congressional leaders ahead of shutdown deadline - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNejNCc3o2dHRJU0VKNFJ3OEpRWXFFSHdtMDlHdUM1Z05SUF9Wb2VSUlRGMTNERXhweWRIVl9yZlJKSzdEbDN6MzZ1TksxSkxtdlA5bUhIVFMwYmY1NUdtbFNSWnZVV0RncUFjbFc4aGlSTnd5UVZFS0tWYnN1OTdwVVBVVVdRVEZGTFNIQ29jdzAtb291TU0wOEZqMFRnQdIBowFBVV95cUxNQmhabm5BVDlHb3hZU1Q3bGNHMmdnR3haVDQyRG1LM21jUHFIMEc4aWg1WTNQNmZIS2dvdFZIVVo0ZHdfN084QkJYVk9oVHh1SlpUZEtMZUFBVXJhcjJ6QkpaVjcxRnZlM0JESDJ1OEdtSG1HMDJFbTlQS2NhQy0xaE5fMWlSN2x3NTRWcHdYRDA0dnhTcTROdElvMFBjRVVfc2RN?oc=5) |
-| Officials place Des Moines schools leader on leave after his arrest by immigration agents - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNeFllcURLanVUS2txemxaaDBJVFhwYUFSWl9YNGhtempfVG02am03aGk2WUhCUW1TN29VbXNsOURqMmxIYUsyN2dXb0lhN3cxbmhOTnZGNHo1cjIwMDVWM3dTQ1dfM1N4anM0alladnBBOXVPT082ZGlISzMyU0lrVXhsQXUxSVRqOGVVTlN5ZW9FRFhhVUZTai02OVZHSGJSSmNv?oc=5) |
 | A storm is set to near the Southeast soon. These are the possible scenarios. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPLUo0MjZPak80WUF1c2hIaFNKMEREeFk2RTU3QmtPX2wwakZiMDZqUkFyLTVaWHhTemNQaGdqaVltQnRNZGt2SmRxQ0tlX3VSWm5NbWF1SWpfZkFHUmo4ZUZINWVQeEhQRk82ZnZmdGdzU29CdUVqRTlqTU9TNWVKeXBwY21iYjZ0OERqQUtWSWgzc05FV3V2Uk1MRTlsUkxoSGUyNg?oc=5) |
 | 3 dead, 8 injured after shooter in boat opens fire on North Carolina waterfront bar: Official - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOQzhEbVQ1cDlDaWUta3c3WjJicFJ4LU12bUY4LVl0b04wSmxBZW5DZVhUZE9MQV81TVRaTjlycy1jRlZGWDYtWHktVTMyY2FZd1FqNGRGZGRhb3B0dTNaZ1JLOW9kYzBVbElTeFphNjVNZjNVUFV6NkRwNzM0a3M4cUFFMGtISV9meHE4dFJIVdIBlAFBVV95cUxPTjF1VDR5TXFCRG5qZ3Q2VEpLOUplVWpKMGRSekExRVZYUGduMVZJelFpcTF0SGY0VFUwQnA0VHRMS3J4Y0tVNFhkME1pV1U5MGc3ai1KYk8wTU9SQmxNNnYtZnZJWmNaZWZ0UVBJbmJQaDR4Y083RTg5NnQwMkRsZ0ZqcU9JUDhzRmw2WWZoQXItZ3JG?oc=5) |
 | Gunman Who Killed 4 in Shooting at NFL Headquarters Had CTE - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQOGtWX21RREY1cmtMbzdsYm9PRnZ1RmZZUUJDeFBFUVVTYWdQUEVlUUpaYzRnNWtNRl90bmZ4VVJFcG9lMW8zS0owT09ZbFJZYzRPTGYwX0dfdlotN2RjQWVlZWtKRU9IN2dSNDJFZXo0YUxJNS1tTUNZQnUxUXN1TDR5ZkJxZ3hGdEpnV1B0Yks3Y0kyOXoxLWlXVU9xVWtSNmhZbkJBbUwtVnhjN05zbXV3bw?oc=5) |
