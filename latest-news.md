@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 10:24:29（北京时间）**
+🕒 更新时间：**2025年09月28日 10:32:50（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | At least 4 dead in Arizona following devastating flooding - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPZVp4WnNjbHBjanZJTm1VQXI5QXpvN01JT0doZW5QZzlvaWxNUm16bHJ4Y1RnX3N0Mko4bHhuVFF1SUpQbVd6X0o0MG9QdHozTDlJUGV0YlVteGcyTjZ0YzZMclJJN0xJcDNZaTlSNHF1VDBYSmxGYnJHMzVFQk1mcdIBhgFBVV95cUxQeDFFay1BeWpFZUo2MVJjMDVGcWhnMWt6V0pIRVZHVlhnQTk0cy1VQ0FMSEM3QmZqOEFVMGdObGNfSjRXUHlRNWZtWmQtNlBxVmcwaEVsX2tONE9OWC1oQVFlaUItQWJpUWpXck5tRDZyUUcwMXNaOEJMOU43OGtLVWVMX1pXQQ?oc=5) |
 | Trump Falsely Claims FBI Agents Acted As ‘Agitators And Insurrectionists’ On Jan. 6 - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxONWl0MExjeTVxWklSS2hucG9CSEMweFA1VnFaRjRDX1owX1BRV09pZURSM01qb3J5ZU1fZk1PVHRiQktmWTU3Y0prLXdjZEI0Wkx6elZ6Mmo2bjMzVGlwSUFXYXN6aDctbGVOS3lhMDR1RzdMZlRYd2VkNUtXNjR1ZzQzN1F3LWN2MFBLcV9xSkNKdVk1ZnViUTZBY3A2Y3dBa09nRVRFcGZyNl8yVmJ2NDRYanBpZ0lJWk5zOVpzVExVUzhFc0YtRHJ6ODQ?oc=5) |
 | Giuliani and Dominion Voting Systems Settle $1.3 Billion Defamation Suit - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQWFBlTEJkMXF0dFNVZzRtNUY0bUgwZDhIb0h5eGtQSS1tYlNiMWxkemU1VnBZM0U4ZHRrYTMzanMwTU90emJ0QmRpcTZPVEo4alRzdkNSNjN2b3h1X2tuRUZOdFpEMGpVbjFnazk4ZjVxNnZFaGhBaVM4Wl9mRG0wYldMOXpKdHg2U0RsdFhoWGN3NHVK?oc=5) |
-| Iranians Brace for Economic Impact of New U.N. Sanctions - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOWmRTbmJiRXpuQ2pYSVBDUGZsYzVZQXhIYUZabDRPQnJMYmI4bENTTkhtTkJGRDBnQ1FZTXkxTU42Y1Fxa1FIblVZUmljNGVDcUxKZUNKdDlFb1BEcHhJYjRnanVnMktLYlk0aWUxTXNxS2VwUVFWS25qbXR2Tkw4TVdXdWRSRk1CRE9hMnhrMXNmdw?oc=5) |
+| United Nations arms embargo, other sanctions reimposed on Iran - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOTFhVZ2R2eVB1Mkw5b21GWHAtZ0IyRkhOaWNfcTZGZEZFdjVtdnVlWU1CRU45UHZjY3VzNnpkNUQ5ZzRjNThIbzRGQmFoOEVodDE4bkRDeEw5Qkt1LWg0aE5aV1l2dU5EMkpqZDBBeWRVTnVPUzhxMFBoaFFzLTdzYnM1LW80Q0t3RHpQMVBSZUVULVR3YlBqME10UWUxRWZHdUhobUJFWEhQSTNo?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
