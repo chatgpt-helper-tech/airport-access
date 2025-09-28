@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月29日 06:08:23（北京时间）**
+🕒 更新时间：**2025年09月29日 06:16:03（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Russia Hammers Kyiv in 12-Hour Drone and Missile Assault - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxObGp2WE9wLWE4LV9tQTI2Z0N3YTkzVHAwLU9SNnQ0MXp0WFlOcTF1dnpqMkNqb1pVbUY2cXBZcnpDaGdWVDVxNFYzVlFuSEpPdEM1SzR4Z1V6Q01mYVJ2X2NpOFlnMjRheWhPRW5MMFV1clpnNFJhMXljeFI5eE0yWHJSS2dTX0U?oc=5) |
 | Is Portland ‘War-ravaged’ as Trump claims? Here’s what residents say. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE83V3FwNS1XOVZyLTM2WkUwZWRNOXZ0SUdiYnpyUXZIRkdDNUZJQlVPQVFFWS1XNFNsWUZqMGwzNXU0N2RLZ09FSUMxMEFOQ0l6WDE3LTZkLXB0T1JVRjB3VHA3NUxWeXFsckNvbTNHdmZDYl9vbHo1RGwyZ05YU2M?oc=5) |
 | Arrest made after boater opens fire on North Carolina waterfront bar killing 3, injuring 5: Official - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOQzhEbVQ1cDlDaWUta3c3WjJicFJ4LU12bUY4LVl0b04wSmxBZW5DZVhUZE9MQV81TVRaTjlycy1jRlZGWDYtWHktVTMyY2FZd1FqNGRGZGRhb3B0dTNaZ1JLOW9kYzBVbElTeFphNjVNZjNVUFV6NkRwNzM0a3M4cUFFMGtISV9meHE4dFJIVdIBlAFBVV95cUxPTjF1VDR5TXFCRG5qZ3Q2VEpLOUplVWpKMGRSekExRVZYUGduMVZJelFpcTF0SGY0VFUwQnA0VHRMS3J4Y0tVNFhkME1pV1U5MGc3ai1KYk8wTU9SQmxNNnYtZnZJWmNaZWZ0UVBJbmJQaDR4Y083RTg5NnQwMkRsZ0ZqcU9JUDhzRmw2WWZoQXItZ3JG?oc=5) |
-| Body found in landing gear of American Airlines plane in Charlotte - WRAL.com | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQejdIY3lwMjlXOEYzRnh0UDg0Qy1hUkwwRmFqVlZVX29fUnduS3RxRS14WEl4Vmhzc1VpMjNJRzRPd1FvdHcyLXZpRWZoYk1Fa0lMcVVnVlRMODdINlFFWFU0TzVCb3VMN0ZoeDlSb0ZCeEtyRkxBVkR3bVZ1Y2RmS3p4V3pKSVVRcWc4Y2tpYVU5QWpBYmJJVlJINVlXaEF0?oc=5) |
 | Des Moines school superintendent placed on leave after ICE detention - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOY3ZkSHVMbkUwX19XVHh3ZkRwbGNFaEdadnV6ZEtvZjRDVWp2MjhFSC1haWRFU1hCMHMtLTgwTVY0MDRLYmVvZDduRE1RaXlYd0dQNTlYMVFQcUIzbjRFcVYtbEhzWkp4Q1llN1I4SHBoVU9RQ3g1RldvTk90ZTJoTVVpZThNZi1pYWFndVd6YTFBazDSAZgBQVVfeXFMTkpZbnREc1ZIZHc1MmFJTUJVVEdaU2FhbEg0bV9xZVhWN2NjTjYtWlZFSG5Eb1lIR0pGeFlfVHhOd0hUNFJ0SFZ0aEJlcWVhd0FUU1ZVSGdGb2w4SVdNbjdPUXJRMzEtUDZiR0tZNmthTXdOVEw3NGM5OEFoU0xuZ24xX0QtTGNqemhEdndsUEQwZ2NjZVR4cWo?oc=5) |
+| Ex-Trump lawyer says president using Comey indictment to conceal being ‘criminal’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPNHM5bWttUUY1M2Y4T1BDM0NWSjdWb2dUMHIyX09hOGp1ZWNBbF8xZm9LaDN2RGZEYXVWNjJ3NG9IVmdBaWxoNjBDZWZ2SkFMUDQwMkg3bDJPMldHWXpXRVUzTlRFYTZaSFR0V01wYUlWMU51Q1RXY1hBS0RzS0FxNlprSGtLSS02Nkdhdg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
