@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 11:33:16（北京时间）**
+🕒 更新时间：**2025年09月28日 11:42:00（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump falsely suggests FBI agents to blame for igniting Jan. 6 violence - Politico | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE55aUUzVVBFVTlKNkNINGxkZ1FKdFh1eUFPVjRrU3Z4VVdiTjhZXzRER1NoUWxUSFJBU0xpNEg5bUhrX293S2ZyOFN6ZzJyZlFFVkRoa0dBU1Y3RTYyYTNMbUloYVhIWEpfdWlzWklreEtoRUs4Y1FSbw?oc=5) |
 | Des Moines Schools Superintendent Arrested By ICE Is Placed on Leave - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQWFFDYWFhZ2Yxc0FqNHR5alVkc0I0U3dBbTBNSGVFMXZkQlV2LThUYVZ4X25ZNFpfYjRjVEFpZGJ6Ulg0a1J2MDVrWHBJT2Fvd1d5M3J2NXg4T3pBOWdHbDhnVXNQdW9XN296WldwUHAyXzdidW52d0ZscnBkQWtLYjlBZ2xfMDgxTFFBZ3UzQQ?oc=5) |
 | A storm is set to near the Southeast soon. These are the possible scenarios. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPLUo0MjZPak80WUF1c2hIaFNKMEREeFk2RTU3QmtPX2wwakZiMDZqUkFyLTVaWHhTemNQaGdqaVltQnRNZGt2SmRxQ0tlX3VSWm5NbWF1SWpfZkFHUmo4ZUZINWVQeEhQRk82ZnZmdGdzU29CdUVqRTlqTU9TNWVKeXBwY21iYjZ0OERqQUtWSWgzc05FV3V2Uk1MRTlsUkxoSGUyNg?oc=5) |
-| 4 dead after flooding in Arizona, including in historic mining town - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQY0ZwOUpZOFpVdUdSdXFNY2lGWU5td3V2VTB4dkVuNktaMXJQaVBJb0JPVnZYZmMzMnl5eUdCajROQ0o5aFJLOHg1VnVXTTlDeFhlTkFuUDJZQ3d6czJtNEpzZlY4ZE44MXFONGRYSjhRWkFaV0c2S3FWRE9mVXdCMzVwczVBdE9UV0xwMVJsQ1FqWHBtUVZfV1Vncw?oc=5) |
-| Dominion Voting Systems reaches settlement in its $1.3 billion defamation lawsuit against Guiliani - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQQzBnQVZObS1HMXpTV3d6cVNTbDhNZUZXS09BUmlxWThvTEdjTHpmNkhCQkdqb1JEbkJlWWxFcUhBXzFNcnZJdTRxcDYtaDIwbVhNLU0ybi1SNjM4NEk4S3pQQ2NFNkFybWhwaWhFWVVIZVE3VXFod0xLbnJqYTUyUUE0RU54ZjlVUzVDUlZmS3BaOHB4Nm85QVlkTGtGM3EyVVM0VVBB0gGrAUFVX3lxTE1XRVhFMHlDbFBxVFliamlSdkdSeXA1Vk0xNkNvcTJHdndBWm1KT1RZOFVGc3hyMXdQWjhzSGtjc0hJSXlyXzJZdXlTUHE3elp5SWcyRGVLd291ZEE2aDlhbHczZWhvWlgxaDRvVXJBZjJDbGpSbnBpanV0R2lHU0ZLc1kwMFVJa1RCcTJwU0FVazVyOGRsTzNzczE2QnRqNUppTFRORnh1QmplYw?oc=5) |
+| At least 4 dead in Arizona following devastating flooding - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPZVp4WnNjbHBjanZJTm1VQXI5QXpvN01JT0doZW5QZzlvaWxNUm16bHJ4Y1RnX3N0Mko4bHhuVFF1SUpQbVd6X0o0MG9QdHozTDlJUGV0YlVteGcyTjZ0YzZMclJJN0xJcDNZaTlSNHF1VDBYSmxGYnJHMzVFQk1mcdIBhgFBVV95cUxQeDFFay1BeWpFZUo2MVJjMDVGcWhnMWt6V0pIRVZHVlhnQTk0cy1VQ0FMSEM3QmZqOEFVMGdObGNfSjRXUHlRNWZtWmQtNlBxVmcwaEVsX2tONE9OWC1oQVFlaUItQWJpUWpXck5tRDZyUUcwMXNaOEJMOU43OGtLVWVMX1pXQQ?oc=5) |
+| US military brass brace for firings as Pentagon chief orders top-level meeting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQckFfRGFlOW4zN05sSWttdGhmUGFvQkgzX1NPMlBXTUV0cUw5ejNFZWhBRFlUZ3RESWxrWXR3UzZpS0FxOG4tWU5Hbl9leG5HLW01azA4OWFzazBHeE5uaFlsLVRKUVJQdjlPS1hzbmFpSHBSdHR1d0pENjY3Q09xeFBrRV9MVmI4dHRDSlZKUThrQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
