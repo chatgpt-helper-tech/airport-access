@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 20:40:18（北京时间）**
+🕒 更新时间：**2025年09月28日 20:48:26（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Russian missiles and drones pound Ukraine in ‘savage’ 12-hour attack - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBEbWRBWllYWmx1a2pOaVI5TWlEaXVnQ3NMZDFKbzQycW9TTy01TERUUVdTQ0p1TFBRTk94TVRDcGVYa2R4REg4QmtES3Awb3p4OXRXMjA5VmpHUEY3UU1kaXhNUlN0WHM0ei1SOVdoNjg?oc=5) |
-| Inside the Trump Administration’s Push to Prosecute James Comey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPb1k0cHVhbkhsSnFhYVRvUXh6WEVzZWNKSXpGSkxIVmlNc3pNMThpVFc3blNrUGhVazRzb3ptSXBhcnB5LUdONDZIelBWckhIWGQ1UnQ3VHFrQ0s2UkFXSFBnZGlZelZfUk9kcHllalRFLURzLWhwQzRqYkVzNnFvajRrYUtTaGVGRVE?oc=5) |
+| Russia pounds Kyiv, other regions in mass drone and missile attack - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxOcnBySGRzMVFsa082VWRHX292dkRROTI2QXFsZ05DSnU3T3phRlhxTDFOZHNGTGRfdmR5Vk1iT1JReEZRZzBHdDFHVk5ydXg4MW5LbVMxb2ZtRlJHZUV1TWVKMnVUcl9Jd2pnektQLWdnYUtHVVJ2LTFMc2FKeHp1QklfNFEwamNIRENoc3d3ZHhjdnRoSGdoZTNCVkZ3OFVNbTAybnA5eEZaYW4xT2UxOHZkSkcyQWlpY3ZOVUgyblNoR3JrVGNN?oc=5) |
 | How protests outside Portland ICE unfolded before Trump’s troop announcement - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxNTnQxSG1tNVBnQk9SOHBER3VaWEJsNGtidkJ1Y3RYRlJBN0llSXo2MkROSEY5T0p0Wk5PZU9neWJHS1VpeWpVelllbEtjQjFtQ2FRVDhhZmRBRkowTThDZWpKLWx0Y05xYUh1Z0UyZVlqUUdOWjlwN182MXlzMGRaU29vSXVFVnZzWnQ0VVNDT3Q0TFM1NDhkalRzaWpWaGJ6VTBhbkNpLUpBOUtZcFJ2ZEhOY2d0SldmNWVQaEUxbDB6QQ?oc=5) |
+| Inside the Trump Administration’s Push to Prosecute James Comey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPb1k0cHVhbkhsSnFhYVRvUXh6WEVzZWNKSXpGSkxIVmlNc3pNMThpVFc3blNrUGhVazRzb3ptSXBhcnB5LUdONDZIelBWckhIWGQ1UnQ3VHFrQ0s2UkFXSFBnZGlZelZfUk9kcHllalRFLURzLWhwQzRqYkVzNnFvajRrYUtTaGVGRVE?oc=5) |
 | Three dead, 8 hurt after shooting in Eastern NC restaurant; person of interest detained - WCNC | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOQkVGMlZ3YmlsLVl2V1pDOTRobGdrWkNnVWU1bFhpRlB2cEtpdUlRSlhmRV9wRHAzSVdWOE82TWVkcEp2Zmpka0F2cUNBa0t4M01RRkxJX0JpUm5XMExZbTA4WnAtMVZCUFhGNmJRN2g0WnZreC1WT0lzNjBGcFFVeVgwRzh4Qk5PcDJDbm84S2hZelFpRDExR1BtSndEeGlqTUNONkt5dXJ5UWZpYUd3?oc=5) |
 | Trump to meet with congressional leaders ahead of shutdown deadline - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNejNCc3o2dHRJU0VKNFJ3OEpRWXFFSHdtMDlHdUM1Z05SUF9Wb2VSUlRGMTNERXhweWRIVl9yZlJKSzdEbDN6MzZ1TksxSkxtdlA5bUhIVFMwYmY1NUdtbFNSWnZVV0RncUFjbFc4aGlSTnd5UVZFS0tWYnN1OTdwVVBVVVdRVEZGTFNIQ29jdzAtb291TU0wOEZqMFRnQdIBowFBVV95cUxNQmhabm5BVDlHb3hZU1Q3bGNHMmdnR3haVDQyRG1LM21jUHFIMEc4aWg1WTNQNmZIS2dvdFZIVVo0ZHdfN084QkJYVk9oVHh1SlpUZEtMZUFBVXJhcjJ6QkpaVjcxRnZlM0JESDJ1OEdtSG1HMDJFbTlQS2NhQy0xaE5fMWlSN2x3NTRWcHdYRDA0dnhTcTROdElvMFBjRVVfc2RN?oc=5) |
 | Officials place Des Moines schools leader on leave after his arrest by immigration agents - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNeFllcURLanVUS2txemxaaDBJVFhwYUFSWl9YNGhtempfVG02am03aGk2WUhCUW1TN29VbXNsOURqMmxIYUsyN2dXb0lhN3cxbmhOTnZGNHo1cjIwMDVWM3dTQ1dfM1N4anM0alladnBBOXVPT082ZGlISzMyU0lrVXhsQXUxSVRqOGVVTlN5ZW9FRFhhVUZTai02OVZHSGJSSmNv?oc=5) |
