@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 20:58:01（北京时间）**
+🕒 更新时间：**2025年09月28日 21:00:32（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Russell M. Nelson, 17th President of the Mormon Church, Dies at 101 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5ESEEzYk54Sk9wakZ4RWV6N19LLU9aZUY4REtTSHVhNkNOelRibkZJMkVNWWpMQUtCMlV5bGpiZHJfckdkVVRSYlYxVXdoS1dYdEtzbzJuYUNVLUZRYW9rN0pXZXJtOXl2YnE5WDRhdXgweEZoNWlYSWtLNzc?oc=5) |
 | A Stranger Shattered Their Lives. At First, They Didn’t Know Why. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9jN3BxbkNIakdXbHFiNlcxQmJ3M2kyb2gwUHlOZmpyLWVKVldsQVVibTJ1NVB5bVlIMHdHY01LeDZFcDhTTEtWT0FSQjhsZTgzcWMxVnZ3N3FrZVF6ck5YTktKUlZReEhmZjFxdw?oc=5) |
 | How House Republicans plan to rewrite history of Jan. 6 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQVmVlXzc2dnNVcnI5NktYNWpPOVoyRXhyd19kRi1TZEI3c3dtYTFoTEdIa0loa3BaWlc3djVtOUdJUm5VZnEwSUV1VE95a092ejdaTjFmTk0ySm1xTU10WG5Kd1dURDFxQUhQcWQ1UE1KeHhJVmlHV21YVHlUdzNFYjBEM2pZaWN5dG53OFNEM3duVlBLUEVsTTZrelF2TVpUNWREaXRUaThCekVO?oc=5) |
-| Arizona flooding kills 4, causes 1,000 propane tanks to wash away in hazmat concern - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPaFYxQmN5OWFZYzFEaFpFVHY1MGtjWlhnRGxzanFiell1dlE4clEwZnlQRmhZQ3NsUnN5dkdUX09mYi1TSldrbEcxeUxHMWN1Y084STI1TGJiX0dPMFNYVmZTVkJUWjc3b2hUMmI1c20xLW94aXY2a2xqdjk2ZEY0QWJ5RXN3cEtmYm1lbm5kdGZWV2ROT05RNEV1RdIBoAFBVV95cUxPWmhBR2V6ZkQ1VzN1SGZWX0FpbzgtdTRkZEt6Q01RQW1icDV3YzF2WGQ5X0ZUeU1oRXZ3N1hyeGNNSFF0emRJamhzV1dObUdTNkdTVEgzaDdEVVJxSklCVXFqYUstQUFaTFFoRG1rMW9WQWdiSWhncEpFRTBxRDA4eU5mZnlRZEt3LUtieWdqNFdEWjFvOW1iWl93MkdycjQt?oc=5) |
+| Suspect charged in Southport mass shooting that killed three, injured several at American Fish Company - WECT | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNYnBYWXhrRndnZGJjQ0xmNUxPbnMxeUNCQWxqYVdiYTYxRGtFZTNnb0pzUF9iX0FRUGd5eFBGVWpfMkIyQndqU2lBNXJlb2NYcVIxeDlYajhNVzN2R2ZOOTNxMl9DdC1OMkVsZklKMmlFNy1UTzBGZ0pLN2RkRUh2RHRuMHd0S1hGRUlCajhaOGJnR2lycVh5MEV5X1BtTW93?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
