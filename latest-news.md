@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 22:57:22（北京时间）**
+🕒 更新时间：**2025年09月28日 23:00:50（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | 3 killed, at least 8 injured when gunman on a boat opens fire on crowd at a waterfront bar in North Carolina, officials say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNN0lZbGVldkZncnM1UlU5dHljdjNBOGl4YzNReWh0N0dDRzlYakJBdnNBT2dyQnNtZHdZbjVtYkg3SDVFaUxZSEU2SjRCdThBR3c0eXYyRElfeEk2blc1TkFxbXJDYUhYUmQ2cVZaU3hkTFN3S3Y5a2R3RlJxYTU5bUowUGhRWU5HaFBr?oc=5) |
 | Impending tropical storm to approach Southeast US coast this week: What to know about the forecast - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQYk02RlNMeUMycE5MYV9Yam9jNHRsZ2JVTkhWTHd1bmNSd3BVWVF5RmVaX0NhUkQ4RTFGd2M3Vk9id0FGOThJNDJpbkNYSUlIM0MtbnVzNE9ic2NGbVVfSFVraGdFX01hVjVMQU1VWjZwOUQ2WG9QRTNaX2RBVXNhTEV3ZHNpWGt1YlIyWXo2Zm55bnc2WlU4VGFxMDI3NldST2NTNUpR0gGrAUFVX3lxTFBSOGZtamdXQVFrQjdKTncweGZSYm9VYVliNnRDWWhJM00ydjBuY1pLei1rLWtjWUVubV81S2ZHbTRxWEFPNFh1MVRMcWlvRmVCak1iZ1FFYmNKc1dSU1RTVzMtZHpUVmYyamxjT0tsX2xwQ0pVQnhSZU1DLTdjOEFVQ0RqUFFQX1Z2NlFXeF9RNHRvSms4b2xoLTNtNGNIYm1vQ1R3emVWYk9mRQ?oc=5) |
 | Iranians Brace for Economic Impact of New U.N. Sanctions - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOWmRTbmJiRXpuQ2pYSVBDUGZsYzVZQXhIYUZabDRPQnJMYmI4bENTTkhtTkJGRDBnQ1FZTXkxTU42Y1Fxa1FIblVZUmljNGVDcUxKZUNKdDlFb1BEcHhJYjRnanVnMktLYlk0aWUxTXNxS2VwUVFWS25qbXR2Tkw4TVdXdWRSRk1CRE9hMnhrMXNmdw?oc=5) |
-| Officials place Des Moines schools leader on leave after his arrest by immigration agents - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNeFllcURLanVUS2txemxaaDBJVFhwYUFSWl9YNGhtempfVG02am03aGk2WUhCUW1TN29VbXNsOURqMmxIYUsyN2dXb0lhN3cxbmhOTnZGNHo1cjIwMDVWM3dTQ1dfM1N4anM0alladnBBOXVPT082ZGlISzMyU0lrVXhsQXUxSVRqOGVVTlN5ZW9FRFhhVUZTai02OVZHSGJSSmNv?oc=5) |
-| Russell Nelson, Who Led Major Changes to the Mormon Church, Dies at 101 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5ESEEzYk54Sk9wakZ4RWV6N19LLU9aZUY4REtTSHVhNkNOelRibkZJMkVNWWpMQUtCMlV5bGpiZHJfckdkVVRSYlYxVXdoS1dYdEtzbzJuYUNVLUZRYW9rN0pXZXJtOXl2YnE5WDRhdXgweEZoNWlYSWtLNzc?oc=5) |
-| Man found dead after vehicle submerged in wash at Vista Del Camino Park in Scottsdale - ABC15 Arizona | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQbmpXZW1oeEEza0wxNHpJS3FudEtLR3ZJOEVsYUN2Vy1kV1RNWUJXOUhnU3JOMjhPcDJRQ0hPYVRQb2VYZzMxSTBvbjNSNnExT1pnQTY4d3RIVkppN0Z1YXFGRmF1THVaRldUTFA4QzZCN2pCLW5pUTZrcnpQNUpXZUhwVkhrQTVTYWUyN19WYUZoTW16X19aZUloTi1XQVNERWI0Z0dkSWZCcWZSUWc?oc=5) |
+| Des Moines Schools Superintendent Arrested By ICE Is Placed on Leave - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQWFFDYWFhZ2Yxc0FqNHR5alVkc0I0U3dBbTBNSGVFMXZkQlV2LThUYVZ4X25ZNFpfYjRjVEFpZGJ6Ulg0a1J2MDVrWHBJT2Fvd1d5M3J2NXg4T3pBOWdHbDhnVXNQdW9XN296WldwUHAyXzdidW52d0ZscnBkQWtLYjlBZ2xfMDgxTFFBZ3UzQQ?oc=5) |
+| Russell M. Nelson, oldest-ever president of The Church of Jesus Christ of Latter-day Saints, dies - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNdWp6SWZNODdyRWtCcEZhMWFvb1UtR1JxNjJrTlJZSWVNTU9PNUY1NkhKeTNMVjhNc1JEc0JoMktRZTdRdXlZOVl6Vmp6RUFna0VUd1ZnWmFvdmRGZWV5NktaWVZ1ZzJpeDQyUTNkdk9wMWxVZW5aWDBxZVJpNXBpUmxiNWREYV94YjBjcXBZQjM2ZXVFaVM1bDhyLThtSXBlaDBoVQ?oc=5) |
 | Inside the Trump Administration’s Push to Prosecute James Comey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPb1k0cHVhbkhsSnFhYVRvUXh6WEVzZWNKSXpGSkxIVmlNc3pNMThpVFc3blNrUGhVazRzb3ptSXBhcnB5LUdONDZIelBWckhIWGQ1UnQ3VHFrQ0s2UkFXSFBnZGlZelZfUk9kcHllalRFLURzLWhwQzRqYkVzNnFvajRrYUtTaGVGRVE?oc=5) |
+| How House Republicans plan to rewrite history of Jan. 6 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQVmVlXzc2dnNVcnI5NktYNWpPOVoyRXhyd19kRi1TZEI3c3dtYTFoTEdIa0loa3BaWlc3djVtOUdJUm5VZnEwSUV1VE95a092ejdaTjFmTk0ySm1xTU10WG5Kd1dURDFxQUhQcWQ1UE1KeHhJVmlHV21YVHlUdzNFYjBEM2pZaWN5dG53OFNEM3duVlBLUEVsTTZrelF2TVpUNWREaXRUaThCekVO?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
