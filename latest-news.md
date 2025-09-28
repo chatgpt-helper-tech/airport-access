@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 10:00:23（北京时间）**
+🕒 更新时间：**2025年09月28日 10:08:40（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Who is Ian Roberts, the Iowa school superintendent accused by ICE of being in the US illegally? - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPOUhmemM2Y19BRFJvY2VKWVhLWWFETE9PRF9uTnlkRVZHZjRka2Q2WW53VDBaNEFHMklEaWxaaTM0d1JZOVZKS1psOEI0aWkxY0FsTVJ4aEd0amdXeTFjcFFkNEJYSjNTbG5IY3NBa1RNWHN6NVU1Z2hEcWpwUE5mRQ?oc=5) |
 | Southeast U.S. braces for heavy rains from a potential tropical storm - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPLXpBR3laTFdDQnhjUE5XMXVGUk16SHZGZUk3VnZjdmtCQlZuSk5JVW9WQ2IwcVdaZmhYUmFNUDRldG9LdzBCY1J6eEVMaWVDRmp6NW1VQ1hOOTJJdTBNWkJtUGhJTjQ2QjVLV2F6cFhHSHZaU2ZoejYycDZpVkFocjhybHVYaVNZLUpQUQ?oc=5) |
 | At least 4 dead in Arizona following devastating flooding - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPZVp4WnNjbHBjanZJTm1VQXI5QXpvN01JT0doZW5QZzlvaWxNUm16bHJ4Y1RnX3N0Mko4bHhuVFF1SUpQbVd6X0o0MG9QdHozTDlJUGV0YlVteGcyTjZ0YzZMclJJN0xJcDNZaTlSNHF1VDBYSmxGYnJHMzVFQk1mcdIBhgFBVV95cUxQeDFFay1BeWpFZUo2MVJjMDVGcWhnMWt6V0pIRVZHVlhnQTk0cy1VQ0FMSEM3QmZqOEFVMGdObGNfSjRXUHlRNWZtWmQtNlBxVmcwaEVsX2tONE9OWC1oQVFlaUItQWJpUWpXck5tRDZyUUcwMXNaOEJMOU43OGtLVWVMX1pXQQ?oc=5) |
-| Rudy Giuliani and Dominion Voting Systems settle defamation suit over his 2020 election claims - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPOXFMNTRxUjR3NU1NWVNjejdtRU5MUW9obEdLUGtIZkVUOV9VOGNJS3JjSXU1MzQ4Z19RMkhUREc3UE5xR2J3ZEJWalNHamZmazlmdmNIeFNrLUtsMnRhTGhJMlRDczI2RkZlS0FzRWhJYVpJbmwtUnNUeG5WSGw3TQ?oc=5) |
 | Trump Falsely Claims FBI Agents Acted As ‘Agitators And Insurrectionists’ On Jan. 6 - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxONWl0MExjeTVxWklSS2hucG9CSEMweFA1VnFaRjRDX1owX1BRV09pZURSM01qb3J5ZU1fZk1PVHRiQktmWTU3Y0prLXdjZEI0Wkx6elZ6Mmo2bjMzVGlwSUFXYXN6aDctbGVOS3lhMDR1RzdMZlRYd2VkNUtXNjR1ZzQzN1F3LWN2MFBLcV9xSkNKdVk1ZnViUTZBY3A2Y3dBa09nRVRFcGZyNl8yVmJ2NDRYanBpZ0lJWk5zOVpzVExVUzhFc0YtRHJ6ODQ?oc=5) |
+| Giuliani and Dominion Voting Systems Settle $1.3 Billion Defamation Suit - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQWFBlTEJkMXF0dFNVZzRtNUY0bUgwZDhIb0h5eGtQSS1tYlNiMWxkemU1VnBZM0U4ZHRrYTMzanMwTU90emJ0QmRpcTZPVEo4alRzdkNSNjN2b3h1X2tuRUZOdFpEMGpVbjFnazk4ZjVxNnZFaGhBaVM4Wl9mRG0wYldMOXpKdHg2U0RsdFhoWGN3NHVK?oc=5) |
 | US military brass brace for firings as Pentagon chief orders top-level meeting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQckFfRGFlOW4zN05sSWttdGhmUGFvQkgzX1NPMlBXTUV0cUw5ejNFZWhBRFlUZ3RESWxrWXR3UzZpS0FxOG4tWU5Hbl9leG5HLW01azA4OWFzazBHeE5uaFlsLVRKUVJQdjlPS1hzbmFpSHBSdHR1d0pENjY3Q09xeFBrRV9MVmI4dHRDSlZKUThrQQ?oc=5) |
 
 ---
