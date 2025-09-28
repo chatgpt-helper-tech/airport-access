@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 12:00:53（北京时间）**
+🕒 更新时间：**2025年09月28日 12:09:31（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Des Moines Schools Superintendent Arrested By ICE Is Placed on Leave - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQWFFDYWFhZ2Yxc0FqNHR5alVkc0I0U3dBbTBNSGVFMXZkQlV2LThUYVZ4X25ZNFpfYjRjVEFpZGJ6Ulg0a1J2MDVrWHBJT2Fvd1d5M3J2NXg4T3pBOWdHbDhnVXNQdW9XN296WldwUHAyXzdidW52d0ZscnBkQWtLYjlBZ2xfMDgxTFFBZ3UzQQ?oc=5) |
 | A storm is set to near the Southeast soon. These are the possible scenarios. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPLUo0MjZPak80WUF1c2hIaFNKMEREeFk2RTU3QmtPX2wwakZiMDZqUkFyLTVaWHhTemNQaGdqaVltQnRNZGt2SmRxQ0tlX3VSWm5NbWF1SWpfZkFHUmo4ZUZINWVQeEhQRk82ZnZmdGdzU29CdUVqRTlqTU9TNWVKeXBwY21iYjZ0OERqQUtWSWgzc05FV3V2Uk1MRTlsUkxoSGUyNg?oc=5) |
 | At least 4 dead in Arizona following devastating flooding - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPZVp4WnNjbHBjanZJTm1VQXI5QXpvN01JT0doZW5QZzlvaWxNUm16bHJ4Y1RnX3N0Mko4bHhuVFF1SUpQbVd6X0o0MG9QdHozTDlJUGV0YlVteGcyTjZ0YzZMclJJN0xJcDNZaTlSNHF1VDBYSmxGYnJHMzVFQk1mcdIBhgFBVV95cUxQeDFFay1BeWpFZUo2MVJjMDVGcWhnMWt6V0pIRVZHVlhnQTk0cy1VQ0FMSEM3QmZqOEFVMGdObGNfSjRXUHlRNWZtWmQtNlBxVmcwaEVsX2tONE9OWC1oQVFlaUItQWJpUWpXck5tRDZyUUcwMXNaOEJMOU43OGtLVWVMX1pXQQ?oc=5) |
-| Rudy Giuliani and Dominion Voting Systems settle defamation suit over his 2020 election claims - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPOXFMNTRxUjR3NU1NWVNjejdtRU5MUW9obEdLUGtIZkVUOV9VOGNJS3JjSXU1MzQ4Z19RMkhUREc3UE5xR2J3ZEJWalNHamZmazlmdmNIeFNrLUtsMnRhTGhJMlRDczI2RkZlS0FzRWhJYVpJbmwtUnNUeG5WSGw3TQ?oc=5) |
+| 'I want his name to be known:' Wife of immigrant injured at ICE facility shooting speaks out - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPT21zd2t1bW5yNXdxUkxNSk9yRC1jYW43LWFFbVlWOVhycHBQR0VfTFIyYld3WXlBd0V1czFYMmJaeS1pajJkQnc0NHVkNVl4VGtFSktPelBad3hiWG55N0RWSHd6WjBHR1M3R1cyYkxKcnZWakZ0N1NYQ0FVbVlDZU9BMXhPNmJfM0hoUlhEWGN5RktQeV9pdFZGR3YyRVlhWkxyeDZObDBRblVudmpNbkI1cw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
