@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 09:08:13（北京时间）**
+🕒 更新时间：**2025年09月28日 09:17:43（北京时间）**
 
 ---
 
@@ -26,13 +26,13 @@
 | Trump calls for troops in Portland, escalating use of military inside U.S. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPLTFjbC1ZQTg2dmczV0d5RGVnSHYtNFJGaURNYWloQlRRaGFxSnZ4RWZMMW5QTjdvaHBsQ2hWWXJwTXdESkhxN3JROWRoVHNMenZGT3JPb1dULUhfOU0wY3NwMnFfSm1qV2VvQWx0MFRUVXhXdUVZZTBpeXJwbE5OekZmdjVaUQ?oc=5) |
 | Inside the Trump Administration’s Push to Prosecute James Comey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPb1k0cHVhbkhsSnFhYVRvUXh6WEVzZWNKSXpGSkxIVmlNc3pNMThpVFc3blNrUGhVazRzb3ptSXBhcnB5LUdONDZIelBWckhIWGQ1UnQ3VHFrQ0s2UkFXSFBnZGlZelZfUk9kcHllalRFLURzLWhwQzRqYkVzNnFvajRrYUtTaGVGRVE?oc=5) |
 | Trump to meet with top congressional leaders Monday on shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5KVXR0X09JSGhUbGtvaVJ2ZWlqUlFEZHg2NHJSWEhkWURKVGdpM2ZGTDBDSnhEa1JONjBQQTU3WkIwdXhjVVhkM1Y3QjN3Yl9MTFFkZVVQcnpyS0dtWW8zOTlEcmpNNm5oZFBvOExReUgzUXNtWC1lUlJoRF8?oc=5) |
-| Will Hurricane Humberto impact South Florida? See its projected path. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNa0tBSWxEMWxSRFFfM2N3bjdmRlpodTlrZXJHWnVIWThGdXFNcHY0aHZTbkV2eFBfV2thTjN5NUpRWDExcjVLcEZWTWtyUmlJUkhIQTBBcVU3aUVaaFpfdUgzTzlRZm4xaXdlZFNrUjZnWFJIUTFqUnNUVzFXWDVFaGtsWF9aelNiMFJHaFFJR0NLZG5qNTJkMWdCTDZlU2h1?oc=5) |
 | Colombian president accuses Trump of violating UN principles after visa revoked - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNQXlIbUFNLV8xc3FBUVZacjBhcGw4dEVfdzlvTl80R2NiRXhfSXVRZE1sLW1YblIwNHdnMGFwTlY1dXJUeFRkaVVLSnBUWTE3RUs5RkdsYW1VXzNjMHlfM2FlZ0FwTldLWXFYd2gxbFFLby1NQ1NVakM4T3JuUU5PMGJuU3BQSXFQVGJrVw?oc=5) |
+| Who is Ian Roberts, the Iowa school superintendent accused by ICE of being in the US illegally? - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPOUhmemM2Y19BRFJvY2VKWVhLWWFETE9PRF9uTnlkRVZHZjRka2Q2WW53VDBaNEFHMklEaWxaaTM0d1JZOVZKS1psOEI0aWkxY0FsTVJ4aEd0amdXeTFjcFFkNEJYSjNTbG5IY3NBa1RNWHN6NVU1Z2hEcWpwUE5mRQ?oc=5) |
 | FBI fires agents pictured kneeling at George Floyd protest, US media report - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBTZWd3aFhSYm1ONHVBNTh3ck9OOUl6RFBrRkZzdUpubTdEQzdhZXdaeU41Y2ZYd081d0xjTlFfZDVRdGtGUVlrS29jUlkwcEpLMndaMkVCVUlQZ9IBX0FVX3lxTFBhMmRiTTBjTU9VY1hIcHlJeFNKa2NxUVVEbmYxZTMwZWp0MlRHMGt5VWFIN0REZkthY1QwTWpBaTJfTUFpbGRYMmk0UXNEZEdYMnZSMWJGNVZwQ3dhTndj?oc=5) |
 | At least 4 dead in Arizona following devastating flooding - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPZVp4WnNjbHBjanZJTm1VQXI5QXpvN01JT0doZW5QZzlvaWxNUm16bHJ4Y1RnX3N0Mko4bHhuVFF1SUpQbVd6X0o0MG9QdHozTDlJUGV0YlVteGcyTjZ0YzZMclJJN0xJcDNZaTlSNHF1VDBYSmxGYnJHMzVFQk1mcdIBhgFBVV95cUxQeDFFay1BeWpFZUo2MVJjMDVGcWhnMWt6V0pIRVZHVlhnQTk0cy1VQ0FMSEM3QmZqOEFVMGdObGNfSjRXUHlRNWZtWmQtNlBxVmcwaEVsX2tONE9OWC1oQVFlaUItQWJpUWpXck5tRDZyUUcwMXNaOEJMOU43OGtLVWVMX1pXQQ?oc=5) |
 | Giuliani and Dominion Voting Systems Settle $1.3 Billion Defamation Suit - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQWFBlTEJkMXF0dFNVZzRtNUY0bUgwZDhIb0h5eGtQSS1tYlNiMWxkemU1VnBZM0U4ZHRrYTMzanMwTU90emJ0QmRpcTZPVEo4alRzdkNSNjN2b3h1X2tuRUZOdFpEMGpVbjFnazk4ZjVxNnZFaGhBaVM4Wl9mRG0wYldMOXpKdHg2U0RsdFhoWGN3NHVK?oc=5) |
 | US military brass brace for firings as Pentagon chief orders top-level meeting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQckFfRGFlOW4zN05sSWttdGhmUGFvQkgzX1NPMlBXTUV0cUw5ejNFZWhBRFlUZ3RESWxrWXR3UzZpS0FxOG4tWU5Hbl9leG5HLW01azA4OWFzazBHeE5uaFlsLVRKUVJQdjlPS1hzbmFpSHBSdHR1d0pENjY3Q09xeFBrRV9MVmI4dHRDSlZKUThrQQ?oc=5) |
-| Donald Trump Just Blamed Another Tragedy On The "Radical Left," And The Internet Is Not Having It - Yahoo News UK | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9rVGluQTAzc2RCcGwzWWhqdmtxN3ZmNEg4NFVXQWlwWk5HRklPRzlEUVJId1VoZ1MwX3JqT1A1R2h6djhjak50bGxnYldic3dZbnd4OHp3clg0dHFmeGVEbzEyWWRScmxQZDc3U0RzeDNQREVjQkxmNXFNbDlPdw?oc=5) |
+| Trump falsely suggests FBI agents to blame for igniting Jan. 6 violence - Politico | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE55aUUzVVBFVTlKNkNINGxkZ1FKdFh1eUFPVjRrU3Z4VVdiTjhZXzRER1NoUWxUSFJBU0xpNEg5bUhrX293S2ZyOFN6ZzJyZlFFVkRoa0dBU1Y3RTYyYTNMbUloYVhIWEpfdWlzWklreEtoRUs4Y1FSbw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
