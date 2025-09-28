@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 08:25:18（北京时间）**
+🕒 更新时间：**2025年09月28日 08:32:58（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Colombian president accuses Trump of violating UN principles after visa revoked - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNQXlIbUFNLV8xc3FBUVZacjBhcGw4dEVfdzlvTl80R2NiRXhfSXVRZE1sLW1YblIwNHdnMGFwTlY1dXJUeFRkaVVLSnBUWTE3RUs5RkdsYW1VXzNjMHlfM2FlZ0FwTldLWXFYd2gxbFFLby1NQ1NVakM4T3JuUU5PMGJuU3BQSXFQVGJrVw?oc=5) |
 | As Democrats prepare for a possible federal shutdown, their endgame is uncertain - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQNXNqUzBrOGp1OEJFdFhwaGpvZlRXblljTHNOOFV0amxOcHdIVDJVQVJVMC01UTNsYk9POENEaHRMR1JKcUg2N3MxTnNZR2FjVmtXWXp1UmJycUhWOFBqMTlOVjNubldMb1VFT0hYMUpIclBzanZPMTdWUDhYMnRseEFXSnA2R1dfM0l2TU9oUVQyZWFtZnBSV2tiNFg4S01sU2FRY2FIRTdqUnZuVmc?oc=5) |
 | Hurricane Humberto strengthened into a rare Cat 5, but there’s another storm the US needs to watch - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQS3lNbGJhV2xWQkVtUmw2emlrZlNQRjhUdDRnZnp6X3RBbUJ3eU9mQlVxQnpBaWF6X2NhMWNvc01Fem4yMW9uZHJnVGF5NVBrTWtLX20tUVI1cVZPQkx6MThQdUJEME4yb0NyNWdqdUJUQnRTU1h3NndNUi1HWmE2aUFmODEzM1AwM3lCS0UtMWs5RGtvcXk4UEZB?oc=5) |
-| At Least 3 Killed in Arizona Flood That Swept Away Vehicles Overnight - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE1KZXhUc0NVamxwNHBMeUhCajRyR1Z6RzdDYVFpTWhxOGJYRVhhaWVRS2oxM3ZkMTktRXl5N3BDSzZWVTFCUV9pNzA5MXhrTlctRWd4aC1HUEUzcFFnaVRHN3RoeVVKV3J2OUpxRDRQaw?oc=5) |
+| At least 4 dead in Arizona following devastating flooding - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPZVp4WnNjbHBjanZJTm1VQXI5QXpvN01JT0doZW5QZzlvaWxNUm16bHJ4Y1RnX3N0Mko4bHhuVFF1SUpQbVd6X0o0MG9QdHozTDlJUGV0YlVteGcyTjZ0YzZMclJJN0xJcDNZaTlSNHF1VDBYSmxGYnJHMzVFQk1mcdIBhgFBVV95cUxQeDFFay1BeWpFZUo2MVJjMDVGcWhnMWt6V0pIRVZHVlhnQTk0cy1VQ0FMSEM3QmZqOEFVMGdObGNfSjRXUHlRNWZtWmQtNlBxVmcwaEVsX2tONE9OWC1oQVFlaUItQWJpUWpXck5tRDZyUUcwMXNaOEJMOU43OGtLVWVMX1pXQQ?oc=5) |
 | US military brass brace for firings as Pentagon chief orders top-level meeting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQckFfRGFlOW4zN05sSWttdGhmUGFvQkgzX1NPMlBXTUV0cUw5ejNFZWhBRFlUZ3RESWxrWXR3UzZpS0FxOG4tWU5Hbl9leG5HLW01azA4OWFzazBHeE5uaFlsLVRKUVJQdjlPS1hzbmFpSHBSdHR1d0pENjY3Q09xeFBrRV9MVmI4dHRDSlZKUThrQQ?oc=5) |
-| Dominion Voting Systems reaches settlement in its $1.3 billion defamation lawsuit against Guiliani - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQQzBnQVZObS1HMXpTV3d6cVNTbDhNZUZXS09BUmlxWThvTEdjTHpmNkhCQkdqb1JEbkJlWWxFcUhBXzFNcnZJdTRxcDYtaDIwbVhNLU0ybi1SNjM4NEk4S3pQQ2NFNkFybWhwaWhFWVVIZVE3VXFod0xLbnJqYTUyUUE0RU54ZjlVUzVDUlZmS3BaOHB4Nm85QVlkTGtGM3EyVVM0VVBB0gGrAUFVX3lxTE1XRVhFMHlDbFBxVFliamlSdkdSeXA1Vk0xNkNvcTJHdndBWm1KT1RZOFVGc3hyMXdQWjhzSGtjc0hJSXlyXzJZdXlTUHE3elp5SWcyRGVLd291ZEE2aDlhbHczZWhvWlgxaDRvVXJBZjJDbGpSbnBpanV0R2lHU0ZLc1kwMFVJa1RCcTJwU0FVazVyOGRsTzNzczE2QnRqNUppTFRORnh1QmplYw?oc=5) |
-| Trump accuses Wray of lying about agency actions on January 6, days after Comey indicted - CNN | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE9mRFZyQzI0TnFMRk96SHNNM3llZzNSU3JCOEpkcTYxN1ZabmVVYTJJZmlpZnkwUjRPTGVBZFVyV2h2NzFBMFlQVEhGNmxUMzlkRnZwN0Y1VXRFTHB5TjVvMkhPZjVFQjJhSFRmZnFwUjBGdw?oc=5) |
+| Rudy Giuliani and Dominion Voting Systems settle defamation suit over his 2020 election claims - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPOXFMNTRxUjR3NU1NWVNjejdtRU5MUW9obEdLUGtIZkVUOV9VOGNJS3JjSXU1MzQ4Z19RMkhUREc3UE5xR2J3ZEJWalNHamZmazlmdmNIeFNrLUtsMnRhTGhJMlRDczI2RkZlS0FzRWhJYVpJbmwtUnNUeG5WSGw3TQ?oc=5) |
+| Des Moines Public School Board votes to place Superintendent detained by ICE on aministrative leave - KCRG | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxPYmdqSnNsT1U0aEZNMXZ5MTRCOHFQSXk5Y1FUSTdhN1E0YXNPY3JjemxKYlNuMUF6YktzLVhkNThUSkNkbDVMWENIVmxzVnhMOXRuQm9CQzNzMDl3UGpZNHFjaFVVLW51emNpMS1OZjVmak1fU0dhb190ZHVLazBTQlN1WHdrYTZUc3FCQUJDQUNlUTdNeHZycWhER3lMRnY0eTJPMlF4anZBYkI4OC1kbVlUTTZtZTE5cHAxb2hadkJpLUpaWkd5a0tyMm1RcGRn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
