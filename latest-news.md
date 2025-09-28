@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 08:09:08（北京时间）**
+🕒 更新时间：**2025年09月28日 08:16:48（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump says he is authorizing military to use ‘Full Force’ in Portland - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQX05Za1BHQ3ZIamNfd1hUR0c1MUMyRGhCXy1VTlhtbFNRMkxUM2d6Y3BUYlFKQ25UWEhyNWhhUE16MzJUZm9RX0hqT3UxSGxRdkxnb045Rnl1clRrSlRKLTlnUmg4d0dSbTNGWTlReFpDbXYtVkh3RnZ2Skk2WVpPYzRGODE?oc=5) |
+| Trump calls for troops in Portland, escalating use of military inside U.S. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPLTFjbC1ZQTg2dmczV0d5RGVnSHYtNFJGaURNYWloQlRRaGFxSnZ4RWZMMW5QTjdvaHBsQ2hWWXJwTXdESkhxN3JROWRoVHNMenZGT3JPb1dULUhfOU0wY3NwMnFfSm1qV2VvQWx0MFRUVXhXdUVZZTBpeXJwbE5OekZmdjVaUQ?oc=5) |
 | Inside the Trump Administration’s Push to Prosecute James Comey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPb1k0cHVhbkhsSnFhYVRvUXh6WEVzZWNKSXpGSkxIVmlNc3pNMThpVFc3blNrUGhVazRzb3ptSXBhcnB5LUdONDZIelBWckhIWGQ1UnQ3VHFrQ0s2UkFXSFBnZGlZelZfUk9kcHllalRFLURzLWhwQzRqYkVzNnFvajRrYUtTaGVGRVE?oc=5) |
-| Tropical storm watches issued for coastal Brevard and Volusia Counties - WFTV | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxPUnZ0WHBOcFJsd2p5eHdTOWcwdzBPdV9fLVJnSWo3cjRDZkxTMExGeXM1YTh2RmxRTG9NVW5ldUptTDBOVGxwLXp0SmlTdjRZQ1cxeW9OQ2VaSjBoNkRWcFpNa05RRndZQ1lVd3pRR0pDNnRLVWIwUVdYRWZyVElJYlpvNXF6T0NMV0JDazBldXNBdlBBczZWbW42YUhfY243WDRvU24tOUFQNW15YWZrazBVcmJPNjF1RDlnMjc4RdIB0wFBVV95cUxPVHBHVG9HbDFwRzVoWXZ3SjJXSkloclNid1BvUkJ5SW5fX2FidUVpMlcxMURkZmQtdjFBQ1BUaU04MWR5bmdwTGNURGVyb01KNGJURm81aTRKNnNZY01aVlJjRUtfNkxyQWVSam9fR3BKbXlDRmpBczQ5ZVB4TEtndzJDZ2RQSk9fZVZTYXVMY0huNHdrZmdfWnhOQzBocWRhbEUwQ0pmaDRZdTFDWEZnMDg5TngwU2liczR3czNJVW43ZUhvNjBLcXp3YlZxWE56V2Yw?oc=5) |
 | FBI fires agents pictured kneeling at George Floyd protest, US media report - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBTZWd3aFhSYm1ONHVBNTh3ck9OOUl6RFBrRkZzdUpubTdEQzdhZXdaeU41Y2ZYd081d0xjTlFfZDVRdGtGUVlrS29jUlkwcEpLMndaMkVCVUlQZ9IBX0FVX3lxTFBhMmRiTTBjTU9VY1hIcHlJeFNKa2NxUVVEbmYxZTMwZWp0MlRHMGt5VWFIN0REZkthY1QwTWpBaTJfTUFpbGRYMmk0UXNEZEdYMnZSMWJGNVZwQ3dhTndj?oc=5) |
 | Colombian president accuses Trump of violating UN principles after visa revoked - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNQXlIbUFNLV8xc3FBUVZacjBhcGw4dEVfdzlvTl80R2NiRXhfSXVRZE1sLW1YblIwNHdnMGFwTlY1dXJUeFRkaVVLSnBUWTE3RUs5RkdsYW1VXzNjMHlfM2FlZ0FwTldLWXFYd2gxbFFLby1NQ1NVakM4T3JuUU5PMGJuU3BQSXFQVGJrVw?oc=5) |
+| Hurricane Humberto strengthened into a rare Cat 5, but there’s another storm the US needs to watch - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQS3lNbGJhV2xWQkVtUmw2emlrZlNQRjhUdDRnZnp6X3RBbUJ3eU9mQlVxQnpBaWF6X2NhMWNvc01Fem4yMW9uZHJnVGF5NVBrTWtLX20tUVI1cVZPQkx6MThQdUJEME4yb0NyNWdqdUJUQnRTU1h3NndNUi1HWmE2aUFmODEzM1AwM3lCS0UtMWs5RGtvcXk4UEZB?oc=5) |
 | Trump’s shutdown plans reflect his vision of a smaller federal government - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPRThLbmRkcDNRU2lrQmxIdzNiQlJQeDFfb1pLWFFzYmJScTBtNm1LaEVCMGVubktSYm9YeUw0Q2plS1liWlhLbVZxN0EyeHl2djVRTkNzT2pESnBNc3dCSmJnVnVmWkFrdHgyVEtjYkx4UW5PcjZVZm1hZ1hLNnhPSENIWFB6aE14OXc?oc=5) |
 | At Least 3 Killed in Arizona Flood That Swept Away Vehicles Overnight - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE1KZXhUc0NVamxwNHBMeUhCajRyR1Z6RzdDYVFpTWhxOGJYRVhhaWVRS2oxM3ZkMTktRXl5N3BDSzZWVTFCUV9pNzA5MXhrTlctRWd4aC1HUEUzcFFnaVRHN3RoeVVKV3J2OUpxRDRQaw?oc=5) |
 | US military brass brace for firings as Pentagon chief orders top-level meeting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQckFfRGFlOW4zN05sSWttdGhmUGFvQkgzX1NPMlBXTUV0cUw5ejNFZWhBRFlUZ3RESWxrWXR3UzZpS0FxOG4tWU5Hbl9leG5HLW01azA4OWFzazBHeE5uaFlsLVRKUVJQdjlPS1hzbmFpSHBSdHR1d0pENjY3Q09xeFBrRV9MVmI4dHRDSlZKUThrQQ?oc=5) |
-| Rudy Giuliani and Dominion Voting Systems settle defamation suit over his 2020 election claims - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPOXFMNTRxUjR3NU1NWVNjejdtRU5MUW9obEdLUGtIZkVUOV9VOGNJS3JjSXU1MzQ4Z19RMkhUREc3UE5xR2J3ZEJWalNHamZmazlmdmNIeFNrLUtsMnRhTGhJMlRDczI2RkZlS0FzRWhJYVpJbmwtUnNUeG5WSGw3TQ?oc=5) |
-| Gov. Reynolds calls ICE arrest of Des Moines superintendent “shocking” - KCRG | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxORk4zdTZWSHAyTF9FVUVqQUxWSk16QTdTUXhQWGhkNFRaV05McF9KdGtycGJZSnhXdTFEMTRueEFmLUJsRGt0TThUVV9iUEd4SzJtRFNlb0JPalNLT0Vpc0x6NllIZ1psZ2Q0VFJtUExMVk5KSEpBcU1aV0NDaURQV01ueVBpaDk0a0h4amxCMnR6dTVCXzhodTNlVEhSQQ?oc=5) |
+| As Democrats prepare for a possible federal shutdown, their endgame is uncertain - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQNXNqUzBrOGp1OEJFdFhwaGpvZlRXblljTHNOOFV0amxOcHdIVDJVQVJVMC01UTNsYk9POENEaHRMR1JKcUg2N3MxTnNZR2FjVmtXWXp1UmJycUhWOFBqMTlOVjNubldMb1VFT0hYMUpIclBzanZPMTdWUDhYMnRseEFXSnA2R1dfM0l2TU9oUVQyZWFtZnBSV2tiNFg4S01sU2FRY2FIRTdqUnZuVmc?oc=5) |
+| Dominion Voting Systems reaches settlement in its $1.3 billion defamation lawsuit against Guiliani - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQQzBnQVZObS1HMXpTV3d6cVNTbDhNZUZXS09BUmlxWThvTEdjTHpmNkhCQkdqb1JEbkJlWWxFcUhBXzFNcnZJdTRxcDYtaDIwbVhNLU0ybi1SNjM4NEk4S3pQQ2NFNkFybWhwaWhFWVVIZVE3VXFod0xLbnJqYTUyUUE0RU54ZjlVUzVDUlZmS3BaOHB4Nm85QVlkTGtGM3EyVVM0VVBB0gGrAUFVX3lxTE1XRVhFMHlDbFBxVFliamlSdkdSeXA1Vk0xNkNvcTJHdndBWm1KT1RZOFVGc3hyMXdQWjhzSGtjc0hJSXlyXzJZdXlTUHE3elp5SWcyRGVLd291ZEE2aDlhbHczZWhvWlgxaDRvVXJBZjJDbGpSbnBpanV0R2lHU0ZLc1kwMFVJa1RCcTJwU0FVazVyOGRsTzNzczE2QnRqNUppTFRORnh1QmplYw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
