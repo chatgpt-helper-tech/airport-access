@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月29日 05:41:42（北京时间）**
+🕒 更新时间：**2025年09月29日 05:49:50（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | UN imposes 'snapback' sanctions on a hungrier, poorer and more anxious Iran - NPR | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE4wTW1zRHhRVS01S1JJVllJM0tnRkZWc0tzRUEtUVJPVGVKWW4zV0tnMEF3SllMRURXN0Z5cU52TU1UZHRVZXUxOUJDYlZYT1YyVFdDZWttNDdJNHEweUwzeUJYd1pQcHVLZXY2bEtqYw?oc=5) |
 | Arrest made after boater opens fire on North Carolina waterfront bar killing 3, injuring 5: Official - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOQzhEbVQ1cDlDaWUta3c3WjJicFJ4LU12bUY4LVl0b04wSmxBZW5DZVhUZE9MQV81TVRaTjlycy1jRlZGWDYtWHktVTMyY2FZd1FqNGRGZGRhb3B0dTNaZ1JLOW9kYzBVbElTeFphNjVNZjNVUFV6NkRwNzM0a3M4cUFFMGtISV9meHE4dFJIVdIBlAFBVV95cUxPTjF1VDR5TXFCRG5qZ3Q2VEpLOUplVWpKMGRSekExRVZYUGduMVZJelFpcTF0SGY0VFUwQnA0VHRMS3J4Y0tVNFhkME1pV1U5MGc3ai1KYk8wTU9SQmxNNnYtZnZJWmNaZWZ0UVBJbmJQaDR4Y083RTg5NnQwMkRsZ0ZqcU9JUDhzRmw2WWZoQXItZ3JG?oc=5) |
 | Des Moines school superintendent placed on leave after ICE detention - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOY3ZkSHVMbkUwX19XVHh3ZkRwbGNFaEdadnV6ZEtvZjRDVWp2MjhFSC1haWRFU1hCMHMtLTgwTVY0MDRLYmVvZDduRE1RaXlYd0dQNTlYMVFQcUIzbjRFcVYtbEhzWkp4Q1llN1I4SHBoVU9RQ3g1RldvTk90ZTJoTVVpZThNZi1pYWFndVd6YTFBazDSAZgBQVVfeXFMTkpZbnREc1ZIZHc1MmFJTUJVVEdaU2FhbEg0bV9xZVhWN2NjTjYtWlZFSG5Eb1lIR0pGeFlfVHhOd0hUNFJ0SFZ0aEJlcWVhd0FUU1ZVSGdGb2w4SVdNbjdPUXJRMzEtUDZiR0tZNmthTXdOVEw3NGM5OEFoU0xuZ24xX0QtTGNqemhEdndsUEQwZ2NjZVR4cWo?oc=5) |
-| Trump’s Plan to Send Troops to Portland, Oregon, Prompts Frustration - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFAyUXhuV0kxVDhGQ0V6WWdTRXZBMGVLaGxRd1IzQUtSNEVjR1dhR1E5NWwyMVVlMW1IV3hNdGhLVDVNVXhSdDVxQTVtcmpCbnhNbUFxaTlyQUJ5OWlvaXdKWXhGWks3UTNHendScWw1dDUzUnktZ0JOLU5n?oc=5) |
+| Things to know about federal law enforcement activity in Chicago, Portland, Memphis - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQNWhWOG5TNzJWVlFKTnF1NUx0RHpCTGVEbkhUckIzM2NHLWpaQktMYkx4Y0pHRzZ3RHFnTnpGMndqTU1MR1k4cGlqT2NIRkRLcm9UTFAzcHpJalpxTmJyYUFxQmdySkVOWTNma3ZLWnVrUGQzdkF4VjZQQm1QQ1dkZ3Q3a0t1cEQ5bWx1cU55Mjd5SFJZd1pVODVLcVFrSXF6bC1Sb0xDb3lfa2dCb1E?oc=5) |
 | A Stranger Shattered Their Lives. At First, They Didn’t Know Why. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9jN3BxbkNIakdXbHFiNlcxQmJ3M2kyb2gwUHlOZmpyLWVKVldsQVVibTJ1NVB5bVlIMHdHY01LeDZFcDhTTEtWT0FSQjhsZTgzcWMxVnZ3N3FrZVF6ck5YTktKUlZReEhmZjFxdw?oc=5) |
 
 ---
