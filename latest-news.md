@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 20:25:45（北京时间）**
+🕒 更新时间：**2025年09月28日 20:33:43（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Inside the Trump Administration’s Push to Prosecute James Comey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPb1k0cHVhbkhsSnFhYVRvUXh6WEVzZWNKSXpGSkxIVmlNc3pNMThpVFc3blNrUGhVazRzb3ptSXBhcnB5LUdONDZIelBWckhIWGQ1UnQ3VHFrQ0s2UkFXSFBnZGlZelZfUk9kcHllalRFLURzLWhwQzRqYkVzNnFvajRrYUtTaGVGRVE?oc=5) |
 | Russian missiles and drones pound Ukraine in ‘savage’ 12-hour attack - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBEbWRBWllYWmx1a2pOaVI5TWlEaXVnQ3NMZDFKbzQycW9TTy01TERUUVdTQ0p1TFBRTk94TVRDcGVYa2R4REg4QmtES3Awb3p4OXRXMjA5VmpHUEY3UU1kaXhNUlN0WHM0ei1SOVdoNjg?oc=5) |
 | How protests outside Portland ICE unfolded before Trump’s troop announcement - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxNTnQxSG1tNVBnQk9SOHBER3VaWEJsNGtidkJ1Y3RYRlJBN0llSXo2MkROSEY5T0p0Wk5PZU9neWJHS1VpeWpVelllbEtjQjFtQ2FRVDhhZmRBRkowTThDZWpKLWx0Y05xYUh1Z0UyZVlqUUdOWjlwN182MXlzMGRaU29vSXVFVnZzWnQ0VVNDT3Q0TFM1NDhkalRzaWpWaGJ6VTBhbkNpLUpBOUtZcFJ2ZEhOY2d0SldmNWVQaEUxbDB6QQ?oc=5) |
-| 3 dead, 8 injured after shooter in boat opens fire on North Carolina waterfront bar: Official - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOQzhEbVQ1cDlDaWUta3c3WjJicFJ4LU12bUY4LVl0b04wSmxBZW5DZVhUZE9MQV81TVRaTjlycy1jRlZGWDYtWHktVTMyY2FZd1FqNGRGZGRhb3B0dTNaZ1JLOW9kYzBVbElTeFphNjVNZjNVUFV6NkRwNzM0a3M4cUFFMGtISV9meHE4dFJIVdIBlAFBVV95cUxPTjF1VDR5TXFCRG5qZ3Q2VEpLOUplVWpKMGRSekExRVZYUGduMVZJelFpcTF0SGY0VFUwQnA0VHRMS3J4Y0tVNFhkME1pV1U5MGc3ai1KYk8wTU9SQmxNNnYtZnZJWmNaZWZ0UVBJbmJQaDR4Y083RTg5NnQwMkRsZ0ZqcU9JUDhzRmw2WWZoQXItZ3JG?oc=5) |
+| Inside the Trump Administration’s Push to Prosecute James Comey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPb1k0cHVhbkhsSnFhYVRvUXh6WEVzZWNKSXpGSkxIVmlNc3pNMThpVFc3blNrUGhVazRzb3ptSXBhcnB5LUdONDZIelBWckhIWGQ1UnQ3VHFrQ0s2UkFXSFBnZGlZelZfUk9kcHllalRFLURzLWhwQzRqYkVzNnFvajRrYUtTaGVGRVE?oc=5) |
+| Three dead, 8 hurt after shooting in Eastern NC restaurant; person of interest detained - WCNC | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOQkVGMlZ3YmlsLVl2V1pDOTRobGdrWkNnVWU1bFhpRlB2cEtpdUlRSlhmRV9wRHAzSVdWOE82TWVkcEp2Zmpka0F2cUNBa0t4M01RRkxJX0JpUm5XMExZbTA4WnAtMVZCUFhGNmJRN2g0WnZreC1WT0lzNjBGcFFVeVgwRzh4Qk5PcDJDbm84S2hZelFpRDExR1BtSndEeGlqTUNONkt5dXJ5UWZpYUd3?oc=5) |
 | Trump to meet with congressional leaders ahead of shutdown deadline - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNejNCc3o2dHRJU0VKNFJ3OEpRWXFFSHdtMDlHdUM1Z05SUF9Wb2VSUlRGMTNERXhweWRIVl9yZlJKSzdEbDN6MzZ1TksxSkxtdlA5bUhIVFMwYmY1NUdtbFNSWnZVV0RncUFjbFc4aGlSTnd5UVZFS0tWYnN1OTdwVVBVVVdRVEZGTFNIQ29jdzAtb291TU0wOEZqMFRnQdIBowFBVV95cUxNQmhabm5BVDlHb3hZU1Q3bGNHMmdnR3haVDQyRG1LM21jUHFIMEc4aWg1WTNQNmZIS2dvdFZIVVo0ZHdfN084QkJYVk9oVHh1SlpUZEtMZUFBVXJhcjJ6QkpaVjcxRnZlM0JESDJ1OEdtSG1HMDJFbTlQS2NhQy0xaE5fMWlSN2x3NTRWcHdYRDA0dnhTcTROdElvMFBjRVVfc2RN?oc=5) |
 | Officials place Des Moines schools leader on leave after his arrest by immigration agents - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNeFllcURLanVUS2txemxaaDBJVFhwYUFSWl9YNGhtempfVG02am03aGk2WUhCUW1TN29VbXNsOURqMmxIYUsyN2dXb0lhN3cxbmhOTnZGNHo1cjIwMDVWM3dTQ1dfM1N4anM0alladnBBOXVPT082ZGlISzMyU0lrVXhsQXUxSVRqOGVVTlN5ZW9FRFhhVUZTai02OVZHSGJSSmNv?oc=5) |
 | Russell M. Nelson, 17th President of the Mormon Church, Dies at 101 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5ESEEzYk54Sk9wakZ4RWV6N19LLU9aZUY4REtTSHVhNkNOelRibkZJMkVNWWpMQUtCMlV5bGpiZHJfckdkVVRSYlYxVXdoS1dYdEtzbzJuYUNVLUZRYW9rN0pXZXJtOXl2YnE5WDRhdXgweEZoNWlYSWtLNzc?oc=5) |
