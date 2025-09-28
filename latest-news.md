@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 10:32:50（北京时间）**
+🕒 更新时间：**2025年09月28日 10:41:29（北京时间）**
 
 ---
 
@@ -24,11 +24,11 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump news at a glance: Trump orders deployment of national guard to ‘war ravaged’ Portland - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOMTJKUTNTX1otVW1ndEJPMzNISXU3djdKMmNaUS1GSkNwQ0tNSDlPSmRmMmhFM0NqeVFQTXdBSEQ5eGhXakVpOGRVOElVX3pibHJRcHVNTWVpNU1PVGdyMHlGbnJIRzRNeEIwQzMwSTBZMm5sbWdGeEoweXF5SG9tb3BrQTJuTjZ1V2VaMFhBZFM?oc=5) |
-| Trump to meet with top congressional leaders Monday on shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5KVXR0X09JSGhUbGtvaVJ2ZWlqUlFEZHg2NHJSWEhkWURKVGdpM2ZGTDBDSnhEa1JONjBQQTU3WkIwdXhjVVhkM1Y3QjN3Yl9MTFFkZVVQcnpyS0dtWW8zOTlEcmpNNm5oZFBvOExReUgzUXNtWC1lUlJoRF8?oc=5) |
+| Top congressional leaders will meet Trump at the White House on Monday as shutdown looms - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPM2JVS2tvOWJvRklzZXI2dm5DMExhTVJpVW4ySHdycVJpOHdYNmpDX3NrTC10SDFjX2d4OVdjWTZVUUZySmhFb1IzTDE1a3NyeGllaW1UdDBnWllCQWp3eTVuYnZwQ2tWMVdPelZkbkE4QmMtX1NGQlFMaUNNZ0QwZ09HdmJ1REZja2hoTGZSWk4?oc=5) |
 | Inside the Trump Administration’s Push to Prosecute James Comey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPb1k0cHVhbkhsSnFhYVRvUXh6WEVzZWNKSXpGSkxIVmlNc3pNMThpVFc3blNrUGhVazRzb3ptSXBhcnB5LUdONDZIelBWckhIWGQ1UnQ3VHFrQ0s2UkFXSFBnZGlZelZfUk9kcHllalRFLURzLWhwQzRqYkVzNnFvajRrYUtTaGVGRVE?oc=5) |
 | Colombian president accuses Trump of violating UN principles after visa revoked - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNQXlIbUFNLV8xc3FBUVZacjBhcGw4dEVfdzlvTl80R2NiRXhfSXVRZE1sLW1YblIwNHdnMGFwTlY1dXJUeFRkaVVLSnBUWTE3RUs5RkdsYW1VXzNjMHlfM2FlZ0FwTldLWXFYd2gxbFFLby1NQ1NVakM4T3JuUU5PMGJuU3BQSXFQVGJrVw?oc=5) |
-| Who is Ian Roberts, the Iowa school superintendent accused by ICE of being in the US illegally? - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPOUhmemM2Y19BRFJvY2VKWVhLWWFETE9PRF9uTnlkRVZHZjRka2Q2WW53VDBaNEFHMklEaWxaaTM0d1JZOVZKS1psOEI0aWkxY0FsTVJ4aEd0amdXeTFjcFFkNEJYSjNTbG5IY3NBa1RNWHN6NVU1Z2hEcWpwUE5mRQ?oc=5) |
-| Southeast U.S. braces for heavy rains from a potential tropical storm - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPLXpBR3laTFdDQnhjUE5XMXVGUk16SHZGZUk3VnZjdmtCQlZuSk5JVW9WQ2IwcVdaZmhYUmFNUDRldG9LdzBCY1J6eEVMaWVDRmp6NW1VQ1hOOTJJdTBNWkJtUGhJTjQ2QjVLV2F6cFhHSHZaU2ZoejYycDZpVkFocjhybHVYaVNZLUpQUQ?oc=5) |
+| Gov. Reynolds calls ICE arrest of Des Moines superintendent “shocking” - KCRG | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxORk4zdTZWSHAyTF9FVUVqQUxWSk16QTdTUXhQWGhkNFRaV05McF9KdGtycGJZSnhXdTFEMTRueEFmLUJsRGt0TThUVV9iUEd4SzJtRFNlb0JPalNLT0Vpc0x6NllIZ1psZ2Q0VFJtUExMVk5KSEpBcU1aV0NDaURQV01ueVBpaDk0a0h4amxCMnR6dTVCXzhodTNlVEhSQQ?oc=5) |
+| Hurricane Humberto strengthened into a rare Cat 5, but there’s another storm the US needs to watch - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQS3lNbGJhV2xWQkVtUmw2emlrZlNQRjhUdDRnZnp6X3RBbUJ3eU9mQlVxQnpBaWF6X2NhMWNvc01Fem4yMW9uZHJnVGF5NVBrTWtLX20tUVI1cVZPQkx6MThQdUJEME4yb0NyNWdqdUJUQnRTU1h3NndNUi1HWmE2aUFmODEzM1AwM3lCS0UtMWs5RGtvcXk4UEZB?oc=5) |
 | At least 4 dead in Arizona following devastating flooding - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPZVp4WnNjbHBjanZJTm1VQXI5QXpvN01JT0doZW5QZzlvaWxNUm16bHJ4Y1RnX3N0Mko4bHhuVFF1SUpQbVd6X0o0MG9QdHozTDlJUGV0YlVteGcyTjZ0YzZMclJJN0xJcDNZaTlSNHF1VDBYSmxGYnJHMzVFQk1mcdIBhgFBVV95cUxQeDFFay1BeWpFZUo2MVJjMDVGcWhnMWt6V0pIRVZHVlhnQTk0cy1VQ0FMSEM3QmZqOEFVMGdObGNfSjRXUHlRNWZtWmQtNlBxVmcwaEVsX2tONE9OWC1oQVFlaUItQWJpUWpXck5tRDZyUUcwMXNaOEJMOU43OGtLVWVMX1pXQQ?oc=5) |
 | Trump Falsely Claims FBI Agents Acted As ‘Agitators And Insurrectionists’ On Jan. 6 - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxONWl0MExjeTVxWklSS2hucG9CSEMweFA1VnFaRjRDX1owX1BRV09pZURSM01qb3J5ZU1fZk1PVHRiQktmWTU3Y0prLXdjZEI0Wkx6elZ6Mmo2bjMzVGlwSUFXYXN6aDctbGVOS3lhMDR1RzdMZlRYd2VkNUtXNjR1ZzQzN1F3LWN2MFBLcV9xSkNKdVk1ZnViUTZBY3A2Y3dBa09nRVRFcGZyNl8yVmJ2NDRYanBpZ0lJWk5zOVpzVExVUzhFc0YtRHJ6ODQ?oc=5) |
 | Giuliani and Dominion Voting Systems Settle $1.3 Billion Defamation Suit - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQWFBlTEJkMXF0dFNVZzRtNUY0bUgwZDhIb0h5eGtQSS1tYlNiMWxkemU1VnBZM0U4ZHRrYTMzanMwTU90emJ0QmRpcTZPVEo4alRzdkNSNjN2b3h1X2tuRUZOdFpEMGpVbjFnazk4ZjVxNnZFaGhBaVM4Wl9mRG0wYldMOXpKdHg2U0RsdFhoWGN3NHVK?oc=5) |
