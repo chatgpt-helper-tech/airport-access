@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 11:48:04（北京时间）**
+🕒 更新时间：**2025年09月28日 11:57:18（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Government to guarantee £1.5bn loan to Jaguar Land Rover after cyber shutdown | [阅读全文](https://www.bbc.com/news/articles/cgl15ykerlro?at_medium=RSS&at_campaign=rss) |
-| PM takes aim at 'toxic' Reform as Labour conference gets going | [阅读全文](https://www.bbc.com/news/articles/cn0xzdgyx0do?at_medium=RSS&at_campaign=rss) |
+| We can pull this round, Starmer says ahead of Labour conference | [阅读全文](https://www.bbc.com/news/articles/cn0xzdgyx0do?at_medium=RSS&at_campaign=rss) |
 | Europeans silence jeering US crowd with famous Ryder Cup display | [阅读全文](https://www.bbc.com/sport/golf/articles/cg5endmdq42o?at_medium=RSS&at_campaign=rss) |
 | Trump authorises 'full force' as Portland set to become latest city to see troops deployed | [阅读全文](https://www.bbc.com/news/articles/cddmn6ge6e2o?at_medium=RSS&at_campaign=rss) |
 | George Galloway stopped by counter-terror police at Gatwick | [阅读全文](https://www.bbc.com/news/articles/c20e4ge36e6o?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | Des Moines Schools Superintendent Arrested By ICE Is Placed on Leave - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQWFFDYWFhZ2Yxc0FqNHR5alVkc0I0U3dBbTBNSGVFMXZkQlV2LThUYVZ4X25ZNFpfYjRjVEFpZGJ6Ulg0a1J2MDVrWHBJT2Fvd1d5M3J2NXg4T3pBOWdHbDhnVXNQdW9XN296WldwUHAyXzdidW52d0ZscnBkQWtLYjlBZ2xfMDgxTFFBZ3UzQQ?oc=5) |
 | A storm is set to near the Southeast soon. These are the possible scenarios. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPLUo0MjZPak80WUF1c2hIaFNKMEREeFk2RTU3QmtPX2wwakZiMDZqUkFyLTVaWHhTemNQaGdqaVltQnRNZGt2SmRxQ0tlX3VSWm5NbWF1SWpfZkFHUmo4ZUZINWVQeEhQRk82ZnZmdGdzU29CdUVqRTlqTU9TNWVKeXBwY21iYjZ0OERqQUtWSWgzc05FV3V2Uk1MRTlsUkxoSGUyNg?oc=5) |
 | At least 4 dead in Arizona following devastating flooding - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPZVp4WnNjbHBjanZJTm1VQXI5QXpvN01JT0doZW5QZzlvaWxNUm16bHJ4Y1RnX3N0Mko4bHhuVFF1SUpQbVd6X0o0MG9QdHozTDlJUGV0YlVteGcyTjZ0YzZMclJJN0xJcDNZaTlSNHF1VDBYSmxGYnJHMzVFQk1mcdIBhgFBVV95cUxQeDFFay1BeWpFZUo2MVJjMDVGcWhnMWt6V0pIRVZHVlhnQTk0cy1VQ0FMSEM3QmZqOEFVMGdObGNfSjRXUHlRNWZtWmQtNlBxVmcwaEVsX2tONE9OWC1oQVFlaUItQWJpUWpXck5tRDZyUUcwMXNaOEJMOU43OGtLVWVMX1pXQQ?oc=5) |
-| US military brass brace for firings as Pentagon chief orders top-level meeting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQckFfRGFlOW4zN05sSWttdGhmUGFvQkgzX1NPMlBXTUV0cUw5ejNFZWhBRFlUZ3RESWxrWXR3UzZpS0FxOG4tWU5Hbl9leG5HLW01azA4OWFzazBHeE5uaFlsLVRKUVJQdjlPS1hzbmFpSHBSdHR1d0pENjY3Q09xeFBrRV9MVmI4dHRDSlZKUThrQQ?oc=5) |
+| Sweeping UN sanctions on Iran come into effect after nuclear talks fail - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQQ1lLa3JWRGZoT1RQelpQNXBVc2p6dDlTc2FJeDBMazlUMUNob3o1NG54MkxpblZ1LTZWV0c0S04wcGpaMkZDSXN5emlFd2tQTmN3SHNKM0JXa3pPOU1OMXF4aDgwRnFGZW5Va2VBS3RxMFpDZzFVamx4MnIySUR5dmF3azRYdzhfOG5CZV94bFAtcHNyTDZMOThnR2lJU1RSMDRvQy16N203ZUVMdzBMdGRHbkFIeXZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
