@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月28日 11:00:57（北京时间）**
+🕒 更新时间：**2025年09月28日 11:09:59（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Des Moines Public School Board votes to place Superintendent detained by ICE on aministrative leave - KCRG | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxPYmdqSnNsT1U0aEZNMXZ5MTRCOHFQSXk5Y1FUSTdhN1E0YXNPY3JjemxKYlNuMUF6YktzLVhkNThUSkNkbDVMWENIVmxzVnhMOXRuQm9CQzNzMDl3UGpZNHFjaFVVLW51emNpMS1OZjVmak1fU0dhb190ZHVLazBTQlN1WHdrYTZUc3FCQUJDQUNlUTdNeHZycWhER3lMRnY0eTJPMlF4anZBYkI4OC1kbVlUTTZtZTE5cHAxb2hadkJpLUpaWkd5a0tyMm1RcGRn?oc=5) |
 | A storm is set to near the Southeast soon. These are the possible scenarios. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPLUo0MjZPak80WUF1c2hIaFNKMEREeFk2RTU3QmtPX2wwakZiMDZqUkFyLTVaWHhTemNQaGdqaVltQnRNZGt2SmRxQ0tlX3VSWm5NbWF1SWpfZkFHUmo4ZUZINWVQeEhQRk82ZnZmdGdzU29CdUVqRTlqTU9TNWVKeXBwY21iYjZ0OERqQUtWSWgzc05FV3V2Uk1MRTlsUkxoSGUyNg?oc=5) |
 | 4 dead after flooding in Arizona, including in historic mining town - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQY0ZwOUpZOFpVdUdSdXFNY2lGWU5td3V2VTB4dkVuNktaMXJQaVBJb0JPVnZYZmMzMnl5eUdCajROQ0o5aFJLOHg1VnVXTTlDeFhlTkFuUDJZQ3d6czJtNEpzZlY4ZE44MXFONGRYSjhRWkFaV0c2S3FWRE9mVXdCMzVwczVBdE9UV0xwMVJsQ1FqWHBtUVZfV1Vncw?oc=5) |
-| Giuliani and Dominion Voting Systems Settle $1.3 Billion Defamation Suit - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQWFBlTEJkMXF0dFNVZzRtNUY0bUgwZDhIb0h5eGtQSS1tYlNiMWxkemU1VnBZM0U4ZHRrYTMzanMwTU90emJ0QmRpcTZPVEo4alRzdkNSNjN2b3h1X2tuRUZOdFpEMGpVbjFnazk4ZjVxNnZFaGhBaVM4Wl9mRG0wYldMOXpKdHg2U0RsdFhoWGN3NHVK?oc=5) |
+| Dominion Voting Systems reaches settlement in its $1.3 billion defamation lawsuit against Guiliani - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQQzBnQVZObS1HMXpTV3d6cVNTbDhNZUZXS09BUmlxWThvTEdjTHpmNkhCQkdqb1JEbkJlWWxFcUhBXzFNcnZJdTRxcDYtaDIwbVhNLU0ybi1SNjM4NEk4S3pQQ2NFNkFybWhwaWhFWVVIZVE3VXFod0xLbnJqYTUyUUE0RU54ZjlVUzVDUlZmS3BaOHB4Nm85QVlkTGtGM3EyVVM0VVBB0gGrAUFVX3lxTE1XRVhFMHlDbFBxVFliamlSdkdSeXA1Vk0xNkNvcTJHdndBWm1KT1RZOFVGc3hyMXdQWjhzSGtjc0hJSXlyXzJZdXlTUHE3elp5SWcyRGVLd291ZEE2aDlhbHczZWhvWlgxaDRvVXJBZjJDbGpSbnBpanV0R2lHU0ZLc1kwMFVJa1RCcTJwU0FVazVyOGRsTzNzczE2QnRqNUppTFRORnh1QmplYw?oc=5) |
 | Sweeping UN sanctions on Iran come into effect after nuclear talks fail - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQQ1lLa3JWRGZoT1RQelpQNXBVc2p6dDlTc2FJeDBMazlUMUNob3o1NG54MkxpblZ1LTZWV0c0S04wcGpaMkZDSXN5emlFd2tQTmN3SHNKM0JXa3pPOU1OMXF4aDgwRnFGZW5Va2VBS3RxMFpDZzFVamx4MnIySUR5dmF3azRYdzhfOG5CZV94bFAtcHNyTDZMOThnR2lJU1RSMDRvQy16N203ZUVMdzBMdGRHbkFIeXZw?oc=5) |
 
 ---
