@@ -12,7 +12,7 @@ description: 机场推荐,实测2025年最稳定科学上网工具，评测 Clas
 内容包含机场推荐、流量套餐对比、科学上网教程、配置指南与节点导入方式，  
 无论你是初次科学上网、跨境办公、海外留学还是流媒体重度用户，都能在此找到最合适的机场解决方案。
 
-> 最近更新: 2025年9月28日
+> 最近更新: 2025年9月29日
 
 
 ---
@@ -228,28 +228,28 @@ description: 机场推荐,实测2025年最稳定科学上网工具，评测 Clas
 
 ---
 
-#### 2. [**TNTCloud 机场**｜IPLC专线 · 海外团队 · 全场85折](https://tanu095.tntvipaff.cc/#/register?code=7MPbfr89)
+#### 2. [**TNTCloud 机场**｜IPLC专线 · 海外团队 · 全套餐8折](https://tanu095.tntvipaff.cc/#/register?code=7MPbfr89)
 
 - ✅ 原生 IP + 高速 IPLC 专线，适合开发者 / AI用户 / 流媒体重度用户
 - ✅ 解锁 ChatGPT、TikTok、Netflix、Copilot 等工具毫无压力
 - ✅ 支持多设备 / 不限速 / 稳定持久运行
 - ✅ 海外团队运营，响应快，适合长期使用
 
-🎁 专属优惠码：`TNT85`（全场 85 折）
+🎁 专属优惠码：`2510815`（全场 8 折） 活动即日起至2025年10月31号23时59分
 
 📊 [👉 查看 TNTCloud 机场详细测评：测速、解锁、使用指南](https://gptvpnhelper.com/airport-access/tntcloud/)
 
 ---
 
-#### 3. [**银河云 Galaxy机场**｜Trojan 协议 · 专线大带宽 · 稳定不掉线](https://inv03.galaxyaff.cc/register?aff=tcOd0ob7)
+#### 3. [**银河云 Galaxy机场**｜全场 8 折. Trojan 协议 · 专线大带宽 · 稳定不掉线](https://inv03.galaxyaff.cc/register?aff=tcOd0ob7)
 
 - ✅ Trojan 协议 + IEPL 专线，支持 Netflix / ChatGPT / 油管 4K 全部解锁
 - ✅ 海外新加坡团队大机房，线路极稳，**1h 内问题必修复**
 - ✅ 流量包灵活，提供不限时流量套餐（限流量）
 - ✅ 年付爆款套餐仅 98 元 / 年，性价比极高（该套餐不支持优惠码）
 
-🎁 月付/季付/半年付：使用 `gptvpnhelper85` 享 85 折  
-🎁 年付及以上套餐：使用 `gptvpnhelper80` 享 8 折
+🎁 专属优惠码：`10180`（全场 8 折） 即日起 ～ 2025年11月1日 23:59
+
 
 📊 [👉 查看银河云 Galaxy机场详细测评：套餐解析 / 协议介绍 / 使用教程](https://gptvpnhelper.com/airport-access/yinheyun/)
 
@@ -449,7 +449,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 ---
 
 <a id="tnt"></a>
-### 3.<a href="https://tanu095.tntvipaff.cc/#/register?code=7MPbfr89" target="_blank" style="color:#1a73e8;text-decoration:underline;">TNTCloud — 专线级 Trojan 协议机场，高速稳定，流媒体 & AI 全解锁</a>
+### 3.<a href="https://tanu095.tntvipaff.cc/#/register?code=7MPbfr89" target="_blank" style="color:#1a73e8;text-decoration:underline;">TNTCloud — 专线级 Trojan 协议机场，高速稳定， 国庆全场8折</a>
 
 **综合评分：9.3 / 10**  
 **关键词标签**：Trojan 全节点｜IPLC 内网专线｜原生 IP｜不限速｜不限设备｜全流媒体解锁｜AI 工具支持
@@ -515,11 +515,11 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
     box-shadow:0 4px 14px rgba(0,0,0,0.25);
     transition:all 0.3s ease;
   " onmouseover="this.style.transform='scale(1.05)'" onmouseout="this.style.transform='scale(1)'">
-    <strong>🦦 立即访问TNT Cloud官网,享限时 85折 优惠</strong>
+    <strong>🦦 立即访问TNT Cloud官网,享限时 8 折优惠</strong>
   </a>
 </div>
 
-> 🎁 付款时使用专属优惠码 `TNT85` 可享受 **85 折优惠**！季付限量包,不享受优惠码,老板说这个套餐已经不赚钱了
+> 🎁 专属优惠码：`2510815`（全场 8 折） 活动即日起至2025年10月31号23时59分
 
 --- 
 
@@ -532,7 +532,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 ---
 
 <a id="yhy"></a>
-### 4.<a href="https://inv03.galaxyaff.cc/register?aff=tcOd0ob7" target="_blank" style="color:#1a73e8;text-decoration:underline;">银河云 Galaxy — 高性价比 Trojan 专线机场，节点丰富，AI 与流媒体完美解锁</a>
+### 4.<a href="https://inv03.galaxyaff.cc/register?aff=tcOd0ob7" target="_blank" style="color:#1a73e8;text-decoration:underline;">银河云 Galaxy — 高性价比 Trojan 专线机场，节点丰富， 国庆全场8折</a>
 
 **综合评分：9 / 10**  
 **关键词标签**：Trojan 协议｜IEPL 内网专线｜多地区节点｜不限速｜支持退款｜YouTube 4K｜全天候稳定
@@ -601,14 +601,12 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
     box-shadow:0 4px 14px rgba(0,0,0,0.25);
     transition:all 0.3s ease;
   " onmouseover="this.style.transform='scale(1.05)'" onmouseout="this.style.transform='scale(1)'">
-    <strong>🚀 立即前往银河云官网，享专属优惠</strong>
+    <strong>🚀 立即前往银河云官网，享专属8折优惠</strong>
   </a>
 </div>
 
-> 🎁⚠️⚠️ 付款时记得填专属优惠码：**
-> - 月付 / 季付 / 半年付：使用 `gptvpnhelper85` 享 85 折优惠
-> - 年付及以上：使用 `gptvpnhelper80` 享 8 折优惠
-> - 特别提醒⚠️⚠️⚠️：**年付小包和不限时套餐不参与活动**，三年付已含 6 折，叠加码最高达 4.8 折！
+> 🎁 ⚠️⚠️付款时记得填专属优惠码：**
+🎁 专属优惠码：`10180`（全场 8 折） 即日起 ～ 2025年11月1日 23:59
 
 ---
 

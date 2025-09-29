@@ -10,11 +10,13 @@ permalink: /yinheyun/
 **Galaxy 银河云** 是老牌机场青云梯团队在 2023 年重新推出的新品牌，专注于 Trojan 协议 + IEPL 专线架构。继承稳定、速度快、节点覆盖广的传统优势，同时引入灵活套餐设计、全天候在线客服与退款机制，兼顾新手与进阶用户需求。
 
 全节点原生 IP，全平台支持 ChatGPT / Netflix / TikTok / Claude，支持多端设备连接，不限速、不限设备。无论你是流媒体重度用户、AI 工具使用者，还是远程开发者，银河云都能带来一线专线体验。性价比在专线机场里拉满了，可作主力机场，年付小包低使用率可选，换有不限时套餐，敏感期不掉线,
-节点丰富。
+节点丰富。最近国庆活动限时全场8折,是下手的好时机
 
 🔗 新用户快速入门：  
 [🔗 点击注册 Galaxy 银河云](https://inv03.galaxyaff.cc/register?aff=tcOd0ob7)
 
+> 🎁 ⚠️⚠️付款时记得填专属优惠码：**
+🎁 专属优惠码：`10180`（全场 8 折） 即日起 ～ 2025年11月1日 23:59
 
 ---
 
@@ -105,13 +107,11 @@ Speedtest 使用 Galaxy 银河云香港节点实测结果如下：
 
 **Galaxy 银河云** 通过这次全面测试，无论是解锁能力、并发互联、进出网络速度都符合专线级标准。相比原青云梯机场，在稳定性和性价比方面更有优势。如果你正在找一个长期稳定、解锁力强、性价比双高的机场，GalaxyVPN 会是一个极佳选择！
 
-> 📅 **专属优惠码,付款时记得填写**  
-> 🎁 使用85优惠码 `gptvpnhelper85` （月付 / 季付 / 半年付）  
-> 🎁 使用8优惠码 `gptvpnhelper80` （年付及以上，最高可折合 4.8 折）
-> ⚠️特别提醒：**年付小包和不限时套餐不参与活动**，三年付已含 6 折，叠加码最高达 4.8 折！
+> 🎁 ⚠️⚠️付款时记得填专属优惠码：**
+🎁 专属优惠码：`10180`（全场 8 折） 即日起 ～ 2025年11月1日 23:59
 
 <a href="https://inv03.galaxyaff.cc/register?aff=tcOd0ob7" target="_blank" style="color:#fff;background:linear-gradient(90deg,#ff416c,#ff4b2b);font-weight:600;font-size:16px;padding:12px 24px;border-radius:8px;text-decoration:none;box-shadow:0 4px 14px rgba(0,0,0,0.25);transition:all 0.3s ease;display:inline-block;margin-top:16px;">
-🚀 点击前往 银河云 官网，限时优惠
+🚀 点击前往 银河云 官网，限时8折优惠
 </a>
 
 ---
