@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月30日 03:41:37（北京时间）**
+🕒 更新时间：**2025年09月30日 03:48:36（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Mormon church shooting suspect had Trump sign outside home, records show - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQVko3UWdrSkJGZjlGYXdiQ0Z0aEc5dGRielNCYUh1ajg5RjFkWG5VUTRWMmh3SGQyY1VpYjlUeVc0aUduUW9wYVMtMUZiVkxOMjE3Zm52R3JVV1FZc0tlUEhEM0FrN0VkUXF5REo3YWwtSHYzd0NINnRKODhRSklGd3Q0ai0tNUpP?oc=5) |
 | White House releases Trump plan to end Israel war with Hamas in Gaza - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5EVldqZldTbGFWT2RYcFVmM2JYbVROOUxDbnd3QTAxWWFSZ2VjVnU1b3dTVVBONk10TWdTaHdhcm1WcGIwVUhyNktrUVBuUFhHWU5HcEF1UTFSdU5DMEZpcUJ2Uk9JWWpvMDNFdUtjanp1bUdtMmJsaGR3NA?oc=5) |
+| Mormon church shooting suspect had Trump sign outside home, records show - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQVko3UWdrSkJGZjlGYXdiQ0Z0aEc5dGRielNCYUh1ajg5RjFkWG5VUTRWMmh3SGQyY1VpYjlUeVc0aUduUW9wYVMtMUZiVkxOMjE3Zm52R3JVV1FZc0tlUEhEM0FrN0VkUXF5REo3YWwtSHYzd0NINnRKODhRSklGd3Q0ai0tNUpP?oc=5) |
 | Government shutdown live updates as Trump is set to meet with congressional leaders - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNd2NIaDlwNUZqMldsOWRhQ2NrTXhVZU11RE9IMDZONElpLTJ3NDNiX1AtZ1Q3VTNhblJ0LVpNNVBRZndKTWpfS2wwajN1Z01WZUpKVms2ZlczYS1KWXZuQ0V6MTA0TlA5N25kU1dNVWlaX1NycndZT0ZTWHNsYUUzbVl1YUVxNk5jSFl1c1pET25RVWhEWXfSAZsBQVVfeXFMUFRQV0xuenZQLVltNjlBRHdGWFFRNTFSOFpyTVpvU0g1R3Uwa3VNNVZ2djJlWWxZTHptd1p0M1VJd3UzQXltZFA4R2JNSTc2enltOUV2eDVERUhZVi11Y3ZrYlBNQndXWnNRX3BjaXUzQVJtTnRBZml2V1lrbDRPSTZIUF9taURMU1U4dkI4b1hOTVZMMGhzNmJqaDA?oc=5) |
 | Inside Trump and Hegseth's unusual meeting with U.S. generals at Quantico - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBiSVh4djNvcjBkOVlhV1BzSDlIV0Yza2tzbWF1VHotemhKLTU5UnJUdVIyVkxhbFR5cFlGRzdTS2dlZ0ZLX2wyR04xZ0xRdjRBOUtlM0lJV1FwUXRqTWxfclNmYjdXUUt4MGdvTjBoZWlNS0pxQlJVOXJqcWI?oc=5) |
 | Trump says US to impose 100% tariff on movies made outside the country - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQUWxIRjBZX2VpSzJZTFItV2hhakREdUcxTGtXd04yNGptQWppdzNsMU5QcU5sakI2aWY0QnJfZHp2MWdfVm84TTNiMkNxbzBTSzhIallOVmdsY01MVGVCRWZ3OGpweE52eEh1WkxhTGpfRlp3TmtyZ053eXRMZ3F1a3BjbTBGc2xmMVFBWnpwX3U2TmZaNXZEVUFmaTNTaVIxTTdGZ1FEekFHS2s?oc=5) |
