@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月30日 02:32:18（北京时间）**
+🕒 更新时间：**2025年09月30日 02:41:41（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | 3 things to know about Trump's plan to send troops to Portland and Memphis - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOU2g3Q3Vxbk9BUTRVUWJpb0VyLUZoUDNUd1M1YUhTQjdXZUU1Q1VnZnZhbHhKa1BJOGZwLUJRcHUxWHJWVDBtMm8xelhOZXNMWW50ZHd2Y0NmZHV6OHFSRVpvelJmODFkMUNHX3NrSDRtc1NHdk45dTczNTF3OEk0bDUzaEFkZ041bVV6ZkFvU2o4RzQ?oc=5) |
 | Trump says US to impose 100% tariff on movies made outside the country - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQUWxIRjBZX2VpSzJZTFItV2hhakREdUcxTGtXd04yNGptQWppdzNsMU5QcU5sakI2aWY0QnJfZHp2MWdfVm84TTNiMkNxbzBTSzhIallOVmdsY01MVGVCRWZ3OGpweE52eEh1WkxhTGpfRlp3TmtyZ053eXRMZ3F1a3BjbTBGc2xmMVFBWnpwX3U2TmZaNXZEVUFmaTNTaVIxTTdGZ1FEekFHS2s?oc=5) |
 | What Adams’s Exit Means for Black Political Power in New York - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9qVFlTOVptVThBNWltdkRCY2p4emRfSXBEcjNuR2VOeEVaX0JEZDMyQ2FiVUJub0tJSFJaSVYzN01LdXJJamZfUnV0VXZWeUE2RGNuSm1sR3FleUd6bXZfMmVDMjF3TF9sdzFBUk96TGx5RFE4MzVPaTFUSVQ?oc=5) |
+| Tropical Storm Imelda: Tracking the storm's path near the Southeast coast - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPVnk1b1pjM2wxRERBTXNXcEU1cDNHSm95R2I3TFY5RnpSVFdhajEyS2N6YzFmSm1qVm1HVm1sR2FsQkk2QXdrMVlvU1Fjb2xYSmFKalg5M2p5X0l3bWdieXExODJjZXVaVUFwUzNlbXlFa3dpS3R0TUctTnpRa2dnV1oxZUZVVzJfdGxJM0VrV2ZXUW9ob3lHTdIBngFBVV95cUxPQVJWdEliOE5udmZVRG83ZW52RjlzRWxfdmNXVU5YWG01dlMwT0xmcU5rdzMzR0Fpb2M5NnNKaEdORjhQNE9TVDN4LTBKUkx2TUoyNXRWUmJYVFM4Z09rNzNEYjBZQ3d6bFc3bVlkYWZ6VXNNcE5VSTZHaHptWnJsMXVCTkFuN3BBMzVXbVJRYXlpNTVOWlBjMkpCb3ZhZw?oc=5) |
 | Marine awarded Purple Heart charged in deadly North Carolina waterfront bar shooting - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNT3ZSY21zbmdqTFJNVkQ5X2piZUhWNm5yZWpnbWJ3bGRPZ3FkWkVWVUFWR0ZXZTUxVGhLbG1vekRBZnBKVkI4dm5QTHFTUndpZVVyem5VS0hsUFFrdGhUTzhpcFNxMnhTMFJLbWdtX19Bd0JUbTRTNkN1bkJHYWNkanpxaE1xczlJYWlhUm5reFhGS1NrWTBB0gGcAUFVX3lxTE9RMVVHTEZVYmlfSzVaSF9OencyVGNQRWhEX3RyQTZDLUtYYW01MnVKZEdwN3JIZ0lWMDV0WXk2OGhaT21Vb19wWl9nVFhic0M0OUdjMFl3LVR6aDJhOGhOWGhsWExPMjQzLTMyajJHYmVQa0t0WV9FNmQwZ0tSbXBvLW9TNmN1dUllNmRMemZyNnloU0NfaU1XTUtocA?oc=5) |
 | Judge in Charlie Kirk murder case says he will ensure ‘justice is never compromised’ in prosecution of Tyler Robinson - The Salt Lake Tribune | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE14Ml84bG81eXVncjhTek5nb0RjcVdUblJLNXc1ZFRNN3ZUVTlLNnhORUdIdWFTeXFkOHJQcUU0djYxNVZ0YWNHZjVXVUI1X3Q3VHdzMFRUemwzaHdqLTFMYWhFX3RJaEhCdElLcTBVMnF0QW5BcjUw?oc=5) |
-| Transcript: Ty Cobb on "Face the Nation with Margaret Brennan," Sept. 28, 2025 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOSGI3RE9qQmhFQkdncUFDeEhBbGMyS1lKRzY4M01NYVFFTUhkS1pxTmVPbko5eHBUazdnSHdKRlk0aVVYSk1wWTAwSTU5RXRGNlhxaGFQM1JyRFMyM01YM3JVMzVyVEF5dWNndnJXbVNMUFBPRDdoTm1tOG9QX0QyWmZFRmx3N25XTUowWF9LbU5JeHR1T2QzYzlQODBwQdIBowFBVV95cUxOei1rcWNndlhwaDQxeWkzbjVocmpMSTJ4U2RnelUwMHNjanVSVzMzcTdPeFFGdVpDS2ZmenNVS2lGMVd6MnU0VE1wdVBXcEdiUzkzMWtOdDNhZUR3UFotclhsZDRoV19VeDFCYmU3N1AycWZtd2tBQ2ZQTnVxMjdsTFBDZndnQ25xMFhwdndhQ285c081WlYyYzFYbTBiUVRUMUFn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
