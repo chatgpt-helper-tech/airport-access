@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月29日 08:56:07（北京时间）**
+🕒 更新时间：**2025年09月29日 09:01:14（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | At least two killed in shooting at Mormon church in Michigan, US: Police - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPQWNERGVNTlhvd3Zqcmp4bkc4aWtOV3I4eUEtYWlsN0VJM0ljbG5CSjhSVTZ5bE1BcjdGTHdKd0hRajQ4RUVpUTdITVE5SS01UTlwRHhVeV9fblh4cWxiOVd5R0MzbUhBTVpwenlhclpfQmdsa0YwSlN2VzY4aTNkWDcyaHQxUFEyTnlYVnpHcUNsVDFYeHdzRGo4MHNpZTNZY0NTRVhHeEhwcDhFbTY5M1hXLULSAboBQVVfeXFMT0NCLV9jQ1A5S3AzdTdkUmRSaFhPbVZObE1VTmlreWxYZzF3VTlLR1JPZFUtNmFpWFpwMnhKRFM1RkgwU2lUdG5hdUhTcWhxVFdqNm42T1BvenNod2x4YzRrTi1jaHJ0UWtodjg5VWEyYTEwdnQ3T01nLVBJekxtUm5TZzJwODhoaFJOcHhWT1haUXp5NFljRGJGMTd6dU5FS0x0V2IxeG9jc1dfVjAzYS1WbEU2UHIxZjRR?oc=5) |
-| New York Mayor Eric Adams ends reelection bid - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOX3BMRnNzN3VPVUxpN1RXUldoUWJSU3dXdlBkbzQyS2M2bVVpZTdGTncwc19QdkM3aDNlWC0ycGp1aUFVbElENURjejNKRlZITVBZMl9SOG8yMi1vZWZzM05CU2h5dzE2OE5qd3pya1pRRmdGX3FQcElwREkyUTB0WmEwNnZkc3pTQXRfVXZ3?oc=5) |
+| Eric Adams drops out of New York City mayoral race - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQRlk4TF9CNmhDOVlBWE9JRDIyUlBKcnV5emg2eEtKTUQ3Qi1rQnM0bzFabGpKOHowNkVQRXhsRkdCZHQ5Z1ZRZlIzczZwSFZHd2oxLTE1MGJZaHhfMFU4WGc0SGZQQ25DRXhvS3BMb3dqc08xeFpqMU05WVBHX0lfcnJYYk01clJMNGNLWmJPOEl0dw?oc=5) |
 | Tropical Storm Imelda Forms, Joining Hurricane Humberto in the Atlantic: Latest Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9GYXdzdmZmT0ZFU0FKWWhNSTVHTV9LbGF4NXlsN3BiNVRheERoTHVKN0wySHBGbzVkRkVSdXVZenNLMmVMTmR5WHUtRnRWU2lxSTBNOEZaOGJQTkZOeUNpbFp3ekIxZzNnSFF5bUcxaWFsMnM2NjRHZThTd0Y0QQ?oc=5) |
 | Trump confident ahead of Monday showdown, says Democrats' position makes shutdown likely: "I just don't know how we're going to solve this issue" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5PVjNLYjN3cHZTMV9kb1BlcUdDNGg4X09uQ2hDdTZFQW9SZXIwNWZOemk2ejdEdHVJcVU1bHhiOFBVY0hUaFpsLU5iUFpjczhKalRnaVdNQVN4b3M5MnlYUjk4c19iVU5sTldSQmlfbkFWalBveUZUQzBaZkdKZ9IBgwFBVV95cUxOUUV0blE4Z1N4UTNKVTIzVTl1Mnh4bThKMVlzWllaVV9MMHdzaHhudVY0UEFxbF9wS0Q4bGE5b0U3RlUtUTNseEFLVXFjU2x5V09feUFRbHZsZTdlekhZMUtrcUZLUG9iNFhoeHZZdGVUN2UzTDIxWFB3R2tqSmlrOWFlRQ?oc=5) |
 | Trump will speak at a hastily called meeting of top military leaders, AP source says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQVF9XSERwNXZqeWg2ZGVEVUkxWWFBWmQ4eGtldUFQUE04aHZiRUlFRnVKTUZRRkQyWmtCYmtINnpBNXhiYXlHLVRKeEhDYTVmTzRUMUN0d3hWbF90ODROVDRFSVhzekluZ05OVHFUcDJQNjRTeGJNYzF4d1Q2NTRmM2JzYUpUaEJDMzJiXzgxWVd6OEs0NlNDaDFwaUpTbUR3S004?oc=5) |
