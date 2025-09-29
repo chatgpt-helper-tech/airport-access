@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月29日 16:40:28（北京时间）**
+🕒 更新时间：**2025年09月29日 16:49:57（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Hundreds protest at ICE building after Trump’s announcement of troop deployment to Portland - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOOGpSUEhLOUNQU1hDZnN6c18xN1lOek1HR0k3Q0k3NWFyZ1VZSy1YX1lGYm53RVo5ZTlJQ3lFX2pXMEN2N1pIdU8ydU53R2FiWmN1cF9LWktXMjFMTTNDTGhPeVdKX0NHNnJ5V3pnMEE1QjdKSlVFMWs1em9vclM2a01VYjJ3NFUzWVRIRjluYw?oc=5) |
 | Tropical Storm Imelda tracker: Map and projected storm path - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5xWUFpaWRyQi1fbHh0bHJWNXBSWmRRQUJkeGcxTDVhSjZZRkpUaTNYY0l2VkxSX2JhSVJYY2xLSFJMNjVMTU1wS3VkVEdyUVhEVjl3cktDNWlUcHVKbjkxSml6cWV4YXFPQ2FFQm9RRVhFUldjLThkYQ?oc=5) |
 | Missouri governor signs Trump-backed plan aimed at helping Republicans win another US House seat - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNV0oyeFJCRWJBb1UtUVBlQUdLN3BEa19rN2tYN1NfM1U0UnYxZU1BOWtrNElPSXhrN2wtUW9ZMkhTT2Q5ZVNES1dkd182OXdUT2VMUXVmTGQ4a2c5Z3I5dWk2WmFkQUFnSG5WYWc4NnBxNUxVbnMwSVVrVXltd2ZqRENkdFhpcWFybzlYaUVQTU10ZTQ5X0VHeERxNUZOR0dpMVE?oc=5) |
-| Jeffries praises Eric Adams for "courageously" serving NYC after mayor ends campaign - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQbnhnaG9nVzV6TXlUQ2U5NGhYckNFWHh6ZW5tVFBnSUNBY0lzNlZfdU1nX3dvb3Bxay1Ub3Ntb1lJbkoxRDViakU5RXQ3RWYtbFktNDByUVZOLXlMWGl0MDY1SHI3dWFscnpmZDNWTFdtc2xfZkRYRU5YMVQ1YzJ6RTZR?oc=5) |
 | Suspect held after allegedly firing from boat into waterfront bar in North Carolina - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPaGdKSGw2dXZEVXVGV0JRYWNtdzJYM05VaEFxWGZhMlF3b0l6ZzdHSXloZTJ5UmVwV2NiaGloYXNCblc2b0dHeEwwektNaEpUcU95c0U2c1Z3MEdjTF9EYUFBRURCMmpHYTRnaVV5c1hwbzdMa0l3eHZVcGU0R0dvVzlFRS1QODAyU0xyZ19hWVF2WkIwQVRHQmttazJtMHpaWkE?oc=5) |
+| Exclusive: Zohran Mamdani Reacts to Eric Adams Dropping Out of NYC Mayoral Race - Democracy Now! | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOdDBxLUZRVElHV0JuWl9CVVFkUjRpVE5fYnpTTmR1YTQwdXBNUklBb3BPczFhOFZXd0o1WmZiVkh5X0NYQm51TVpaMjAtcXcybzRjSlBuWEhvbl8yWkZKZkdRQUNEZlB5SDlCazcyLUtyRjc1NFRJNmJnMm41NEo3SzZR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
