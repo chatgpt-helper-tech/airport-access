@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月29日 23:41:45（北京时间）**
+🕒 更新时间：**2025年09月29日 23:49:32（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Investigators probe for motive in Michigan LDS church shooting, fire - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQY3RERnRDeVNzUnd2S1U3dEZ1Snh5WVo0czA3ZmF1Tk9GQk5sdVRzRTkxZWhfYjROWmgyaXY3X2FxVGZlQXV0MW5HQ3V4MW5DbnlRT1RQSDlDWjBDaUpoMDBLUDBPVXVDd3lwUEUzaFhXQlU2SU5hSFVIRlkxUm1hNUdVdzNQLW42TlY5MXkxM1hXazltTnFQQkROcks5R1hISG1N0gGoAUFVX3lxTE9famtfa3RDTWkwVnNOYXpUejUxLXd0Qm1NYnJhYWZ0UjBhdnhXaU9WY1htRWNYZlpXaFFXdnY1aFB4em9kVzFTWWFwd2Z1WHZoQkFIZjJrUFhuZWZSODJtOHVEdENGWGsyUlR6cTREc0I0WkFyR05oMFczU1dudjBaLVpfczg4T2hGVldQS0JfcXN3ZnJoUUprYlpmS1U1bW82b3BjTEJONw?oc=5) |
-| Which Federal Benefits and Services Continue During a Government Shutdown? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPNnlLUGE2XzNVN2lkWXRUTklhYjl5ajVnSExaZjdtb3plTTRpS1RRU2xfRWFWSjBxLVlVMG5ieWJyeGNyeEZ4QklJcUZhdGE1MUdsQ0ZkTkt2cElUcExON2l1WWdHaThjSWw4dndfUzNkNS1Ca2JaQmIxUEZjRmlLX2VnX3FUbWt2Z29iS2RqNVdheElEbkhBZ1A4SlJyU3Zj?oc=5) |
-| Trump to host Netanyahu at White House as US pushes new Gaza peace plan - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFBOY0pGZTdWSHM3TmRxZUpOU1JFMVVIY0gzR1RfSUl3aTk0dUZCS0RodHc3OEVCNFE3QTB3Q3dnNmppMmEyN3pRR0lhaFFDVVRkMm80eQ?oc=5) |
+| Trump Faces Democrats as Shutdown Deadline Nears - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQSlBwUW9iUnJ6NzJhLTlZYUJNbV9hVFNheGNYN0FURVF1MDkwd01aUzFXQ2FqR3llTU1zUjFHZmxxSkV3akJxOHlheFJCWno2R3NvWFdYWFdNWGpIamlLQ19yYVh1OW9aTDdjaFh1SDB3M3M5eFFEVUM1d3hGTkFtNXFLRU11WXNIVlF4VVliQk9ZM1c2SDJ6SA?oc=5) |
+| Netanyahu inches toward Gaza deal under pressure from Trump - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQUnppeVpLakpmYkM3bklyeHgyRmNrcHRvYzVkdGlNVzVZR20tSVZiem12amh5RDRrNElWSWJTQ1BLWFhmRGJNVVd4QUJyRVhLanRFanRkUVhPYXBRNlRxUTlkTTdHMGFaVTI0Q3Q2MExWUUtCTU51amN3MWQ0aWw4VnB2WFlhUQ?oc=5) |
 | Trump administration authorizes 200 National Guard members for Portland deployment - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQY1c1ZlhGMldWNFM1OEJDeHJISGtMSGlBYnJXdWdnYVJ2d1R4VWdqZEdueURmRkZYMnBraDliVC1JZ3A3X3NxS1pYeWs2SkdvaVR4RV94M01NbFVXQTRjdjIxSzNWV2lzZEFQakdjOUMzdEdzOFZYTGNRMm1kOHBWMHBB?oc=5) |
 | "No one is safe": Democrats fear Trump will prosecute them next - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE55eTVZTlNXelY2b29uMTVWYkpfSXdRS2h2eEVzcnExNDdsZ2pRbEhBNVZWRlVvZG1MV29hX0tGWFB5THNERVAtaWdqcnpDRi11N2x4Y3U4YjNoakdTX1Z4eDdaWnJFNHoteUU1Q0ZxdkhLN05OZ05CSVpKcjc?oc=5) |
 | Trump says US to impose 100% tariff on movies made outside the country - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQUWxIRjBZX2VpSzJZTFItV2hhakREdUcxTGtXd04yNGptQWppdzNsMU5QcU5sakI2aWY0QnJfZHp2MWdfVm84TTNiMkNxbzBTSzhIallOVmdsY01MVGVCRWZ3OGpweE52eEh1WkxhTGpfRlp3TmtyZ053eXRMZ3F1a3BjbTBGc2xmMVFBWnpwX3U2TmZaNXZEVUFmaTNTaVIxTTdGZ1FEekFHS2s?oc=5) |
