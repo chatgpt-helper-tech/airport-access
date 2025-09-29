@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月29日 18:56:05（北京时间）**
+🕒 更新时间：**2025年09月29日 19:01:18（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Disabled Post Office Horizon victim offered 15% of claim | [阅读全文](https://www.bbc.com/news/articles/cq5jqxjqj0eo?at_medium=RSS&at_campaign=rss) |
 | Is your friend draining your energy? Three ways to handle social vampires | [阅读全文](https://www.bbc.com/news/articles/ceq20p1nr88o?at_medium=RSS&at_campaign=rss) |
 | Moldova's pro-EU party wins vote mired in claims of Russian interference | [阅读全文](https://www.bbc.com/news/articles/cx2rdlj8ejgo?at_medium=RSS&at_campaign=rss) |
-| Dolly Parton postpones shows over 'health challenges' | [阅读全文](https://www.bbc.com/news/articles/cq5j9leynwlo?at_medium=RSS&at_campaign=rss) |
+| Rescue deal saves 156 Claire's stores and 1,000 jobs | [阅读全文](https://www.bbc.com/news/articles/cder59gzx5xo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | Trump says he 'would think' DOJ is investigating former FBI Director Christopher Wray - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxOYVJlZDZlZmNNS0JOX1dWMDRqVGkybUM0OEFFZUg3TDlqdTN3MU1QOW1PUEZ6OVFDaHVfSmEwWDk3R0JBVnczSnJURzZxaWxCTnJzT0F5Q2N5UDhkODVXcWl5cVpLbnVSLTdldzFid3Y5NTZLMjBxQTJiMUR3bWViOER6blJGYVJjTlpNMTNaV196Ym43NFVxRzBlVVcweUZLYTRlWEtCTUhJS0R4NHFHakctUXFuem1HTlhNSEdsZFRPQjJHMnfSAVZBVV95cUxOblVMSXBxY19ITzhtR0RhODZjLWp1cVM0Vy1YRXRoYXdUMEdMM09LMFNPZmRLMEZyajJUTVhTUHpjeTRNWmN4ZThNSEFMdGdjeXdWaGE0dw?oc=5) |
 | Pentagon calls up 200 National Guard troops after Trump Portland announcement - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOMmY4SGpMLTlleU1hZTQwbTNEYUpNSTVJaVJNN0o0XzJldDN2eWRBbkZKRG1uYlZwazdJb0w2Skd5amJUVWh3NGJKLVNRQ0FJREo5VlhpVzgwZHlXaVRhdmlqck1pWnFpX01WOG1keEk5WUhmck5OMTY0b0xpMVE3RWg0TWs3N1p0UHJPQXE0UkZicUFtWFVoQlN5U1drQ1pCZE1ydzl6blV0WFQ5Rld1NVBJV1I0b1RtaUd6Tmxtcw?oc=5) |
 | Tropical Storm Imelda tracker: Map and projected storm path - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5xWUFpaWRyQi1fbHh0bHJWNXBSWmRRQUJkeGcxTDVhSjZZRkpUaTNYY0l2VkxSX2JhSVJYY2xLSFJMNjVMTU1wS3VkVEdyUVhEVjl3cktDNWlUcHVKbjkxSml6cWV4YXFPQ2FFQm9RRVhFUldjLThkYQ?oc=5) |
-| Missouri Governor Signs Congressional Map Redrawn to Boost Republicans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPLXZ5d1VQQ1ZzUTBpc0dUQ21IZ25BVXFuQlU1MVY5azNXTkpVRHZNcnFPOFV3cF9vbHFfUThuTHRmM0htR1dkTVUtSFlMYXZyMVpWNHFWNDlqRDdlS3BGd3ltZzBnekRPYWJHajlmckRNTlRNWGdSWDNOVF8tdDVwM0F3MGFVMHJaMDJj?oc=5) |
 | American Fish Company closes indefinitely following mass shooting - WECT | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQSFV1c3NrS2lZc1RlSDk4RlVvd3ZVNzV6M1c3U0Qya09JMjBpX0NTZ1IzOU1JY2NuMkE1Q005RjhzUUUyWm5fUkN6QUY3aUVYSFo2ZmVOeG1xN1VJWGFSR3plbXUyd3Y1SmdybjhKNkJJM0E0N1Y4TGpNbVRzaHEzaWc5R0FqbHFOWTd3R2lHQ0pmdVRZY0ltY2tfWTJXM2fSAbMBQVVfeXFMTkRzdXl4U2p3MUpKY01tcHJtUWdUclJFRnpRR0pnSHMwbWV2NlYxZE5rRmVyQ2ZUVjRSTklmVVhxUlJHa3JVN0VlUnRhX1k0MlFCZnFSbU5iUFY4elc5cjhYVVlnOUVQMUY1N2tmX2JFMXNGbTJfekcya1NUQ3dSRm9mLXBvaGRpdVZwZjU1ZTBWdTFpNk5IUVN6Z2I3TWM4eUNtRWNRWHZ4cGhMbkNvQWNXcEk?oc=5) |
+| Missouri Governor Signs Congressional Map Redrawn to Boost Republicans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPLXZ5d1VQQ1ZzUTBpc0dUQ21IZ25BVXFuQlU1MVY5azNXTkpVRHZNcnFPOFV3cF9vbHFfUThuTHRmM0htR1dkTVUtSFlMYXZyMVpWNHFWNDlqRDdlS3BGd3ltZzBnekRPYWJHajlmckRNTlRNWGdSWDNOVF8tdDVwM0F3MGFVMHJaMDJj?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
