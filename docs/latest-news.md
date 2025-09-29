@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月30日 02:56:17（北京时间）**
+🕒 更新时间：**2025年09月30日 03:00:49（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Trump hosts Netanyahu at White House as US pushes new Gaza peace plan - live - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFBOY0pGZTdWSHM3TmRxZUpOU1JFMVVIY0gzR1RfSUl3aTk0dUZCS0RodHc3OEVCNFE3QTB3Q3dnNmppMmEyN3pRR0lhaFFDVVRkMm80eQ?oc=5) |
 | Inside Trump and Hegseth's unusual meeting with U.S. generals at Quantico - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBiSVh4djNvcjBkOVlhV1BzSDlIV0Yza2tzbWF1VHotemhKLTU5UnJUdVIyVkxhbFR5cFlGRzdTS2dlZ0ZLX2wyR04xZ0xRdjRBOUtlM0lJV1FwUXRqTWxfclNmYjdXUUt4MGdvTjBoZWlNS0pxQlJVOXJqcWI?oc=5) |
 | Trump says US to impose 100% tariff on movies made outside the country - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQUWxIRjBZX2VpSzJZTFItV2hhakREdUcxTGtXd04yNGptQWppdzNsMU5QcU5sakI2aWY0QnJfZHp2MWdfVm84TTNiMkNxbzBTSzhIallOVmdsY01MVGVCRWZ3OGpweE52eEh1WkxhTGpfRlp3TmtyZ053eXRMZ3F1a3BjbTBGc2xmMVFBWnpwX3U2TmZaNXZEVUFmaTNTaVIxTTdGZ1FEekFHS2s?oc=5) |
-| "No one is safe": Democrats fear Trump will prosecute them next - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE55eTVZTlNXelY2b29uMTVWYkpfSXdRS2h2eEVzcnExNDdsZ2pRbEhBNVZWRlVvZG1MV29hX0tGWFB5THNERVAtaWdqcnpDRi11N2x4Y3U4YjNoakdTX1Z4eDdaWnJFNHoteUU1Q0ZxdkhLN05OZ05CSVpKcjc?oc=5) |
-| Pressure mounts on Curtis Sliwa after Eric Adams drops out of NYC mayoral race - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNX3pmSmFQUTlCb0ZVQ2M2NEJqQVJCT3B6SERfRFVmb1drQV9XcmZNU01mM0NCb1hVdi1lV25aeE51RFpWWk9EUFE2UXVpNnVuMi1IbDJ3UEx2Y2FMWDNaT3p3SDI4cFVQZ2c3NW5udll1NEs2Sm9zd3AwNUFzdHNIZlU0UGtDSW1TY3RyRmtiemNIQ1BWSUJSSWRhdE1sZUkzYkJYcXNZVFQ?oc=5) |
-| Pentagon calls up 200 National Guard troops after Trump Portland announcement - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOMmY4SGpMLTlleU1hZTQwbTNEYUpNSTVJaVJNN0o0XzJldDN2eWRBbkZKRG1uYlZwazdJb0w2Skd5amJUVWh3NGJKLVNRQ0FJREo5VlhpVzgwZHlXaVRhdmlqck1pWnFpX01WOG1keEk5WUhmck5OMTY0b0xpMVE3RWg0TWs3N1p0UHJPQXE0UkZicUFtWFVoQlN5U1drQ1pCZE1ydzl6blV0WFQ5Rld1NVBJV1I0b1RtaUd6Tmxtcw?oc=5) |
+| 3 things to know about Trump's plan to send troops to Portland and Memphis - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOU2g3Q3Vxbk9BUTRVUWJpb0VyLUZoUDNUd1M1YUhTQjdXZUU1Q1VnZnZhbHhKa1BJOGZwLUJRcHUxWHJWVDBtMm8xelhOZXNMWW50ZHd2Y0NmZHV6OHFSRVpvelJmODFkMUNHX3NrSDRtc1NHdk45dTczNTF3OEk0bDUzaEFkZ041bVV6ZkFvU2o4RzQ?oc=5) |
+| Veteran charged with opening fire on North Carolina bar, killing 3, is scheduled to appear in court - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQMTZkMTE2UEJUdkxWbnJucUhvaWNucXViU0R0T3NVb2tjZ0VQUEhvREtkZl9PYndWR29qa1I4VjA3Z29zajNBTjFqWjNSMTBmTUlwZ3FWLVZWQmJxOWxsT3lkWEtOYy1XQ2hJWFJXeVhxdEtsMDJyMVBUN0kxaXRSYk1vTnFLUDVCZUhhd2xHNS1MUWFKZGY4Rw?oc=5) |
+| What Adams’s Exit Means for Black Political Power in New York - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9qVFlTOVptVThBNWltdkRCY2p4emRfSXBEcjNuR2VOeEVaX0JEZDMyQ2FiVUJub0tJSFJaSVYzN01LdXJJamZfUnV0VXZWeUE2RGNuSm1sR3FleUd6bXZfMmVDMjF3TF9sdzFBUk96TGx5RFE4MzVPaTFUSVQ?oc=5) |
 | Imelda and Humberto deliver double threat — dangerous surf and coastal flooding for US, back-to-back hurricanes for Bermuda - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQanpNOWNLTEcxdzJKMzJrN3NHNm1wY1M2M2RvTGdkZEpZRUxRUzJfTkVTQWxfUkZhR3VKNkRSY2lxeGlTZ2hUM0xRdXF4ZlYyaXJqVVhCM1QwQjYtWEc1RnNHMDFWd25zcl85SXJtM0IxcnBWeW4zenBTa29ielh1Nm9SX3JBQTJOZXFRNzBncnc2VTE4THc?oc=5) |
-| Marine awarded Purple Heart charged in deadly North Carolina waterfront bar shooting - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNT3ZSY21zbmdqTFJNVkQ5X2piZUhWNm5yZWpnbWJ3bGRPZ3FkWkVWVUFWR0ZXZTUxVGhLbG1vekRBZnBKVkI4dm5QTHFTUndpZVVyem5VS0hsUFFrdGhUTzhpcFNxMnhTMFJLbWdtX19Bd0JUbTRTNkN1bkJHYWNkanpxaE1xczlJYWlhUm5reFhGS1NrWTBB0gGcAUFVX3lxTE9RMVVHTEZVYmlfSzVaSF9OencyVGNQRWhEX3RyQTZDLUtYYW01MnVKZEdwN3JIZ0lWMDV0WXk2OGhaT21Vb19wWl9nVFhic0M0OUdjMFl3LVR6aDJhOGhOWGhsWExPMjQzLTMyajJHYmVQa0t0WV9FNmQwZ0tSbXBvLW9TNmN1dUllNmRMemZyNnloU0NfaU1XTUtocA?oc=5) |
+| Judge in Charlie Kirk murder case says he will ensure ‘justice is never compromised’ in prosecution of Tyler Robinson - The Salt Lake Tribune | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE14Ml84bG81eXVncjhTek5nb0RjcVdUblJLNXc1ZFRNN3ZUVTlLNnhORUdIdWFTeXFkOHJQcUU0djYxNVZ0YWNHZjVXVUI1X3Q3VHdzMFRUemwzaHdqLTFMYWhFX3RJaEhCdElLcTBVMnF0QW5BcjUw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
