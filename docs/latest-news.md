@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月29日 17:57:42（北京时间）**
+🕒 更新时间：**2025年09月29日 18:00:53（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | Migrants to face tougher conditions for settled status, home secretary to announce | [阅读全文](https://www.bbc.com/news/articles/c0m4g3zvy02o?at_medium=RSS&at_campaign=rss) |
 | 'You'll never need to work again': Criminals offer reporter money to hack BBC | [阅读全文](https://www.bbc.com/news/articles/c3w5n903447o?at_medium=RSS&at_campaign=rss) |
-| Jaguar Land Rover to resume some manufacturing after cyber-attack | [阅读全文](https://www.bbc.com/news/articles/cwydxpdgx61o?at_medium=RSS&at_campaign=rss) |
+| JLR to resume some manufacturing in coming days after cyber-attack | [阅读全文](https://www.bbc.com/news/articles/cwydxpdgx61o?at_medium=RSS&at_campaign=rss) |
 | Europe survive US comeback charge to win sensational Ryder Cup | [阅读全文](https://www.bbc.com/sport/golf/articles/c0m4g7k4l0yo?at_medium=RSS&at_campaign=rss) |
 | Death toll rises to four after Michigan church shooting and arson attack | [阅读全文](https://www.bbc.com/news/articles/ceq2vd15glwo?at_medium=RSS&at_campaign=rss) |
 | How weight-loss injections are turning obesity into a wealth issue | [阅读全文](https://www.bbc.com/news/articles/cre5xp83394o?at_medium=RSS&at_campaign=rss) |
