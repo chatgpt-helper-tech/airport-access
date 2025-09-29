@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月29日 20:40:39（北京时间）**
+🕒 更新时间：**2025年09月29日 20:48:10（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Exclusive: Federal drug prosecutions fall to lowest level in decades as Trump shifts focus to deportations - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOWVF3TjhuRXUzQU5fRUJfSmlqQV9oN2FvQ3VnMXJTY1ZoS0hMLW1zZk14MWFadUxJekVHaUNvRXJES1NpOTlYWVJZMTBzb2pQSFM1UzgyNndxelBobTRHc1hmUUFWWmxUZnFwZTVFblFjRDZ2Z3VZdFRnRjR3VlhxUlA3bUZXYzBic1dKRUVNNGFZa3p0NHpaQ0twYmM0bllMNE5HTXFEWWpzeHlKWDlaQXFkcVZlV0p3eEliQzQtRy0?oc=5) |
 | Tropical Storm Imelda tracker: Map and projected storm path - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5xWUFpaWRyQi1fbHh0bHJWNXBSWmRRQUJkeGcxTDVhSjZZRkpUaTNYY0l2VkxSX2JhSVJYY2xLSFJMNjVMTU1wS3VkVEdyUVhEVjl3cktDNWlUcHVKbjkxSml6cWV4YXFPQ2FFQm9RRVhFUldjLThkYQ?oc=5) |
 | New York City Mayor Eric Adams abandons his reelection campaign - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQcXZJaUtVX1UyZWNRVzJJQ29nWFFmVzV5bzJTYUJLNXBGVk5ZZkJyTEJlRkRWaVMwOVFOWHpQM1JFVVItcHBSbE56Uy1BTVMya0ZIaVBzSWdKNGNGQ2RxRGhreUdUUUt6cWthdjRxeG5kYk5FR1NUOUpBS1I4MkhpRWJJNzdVdWt0WnVKaFQ0a0dpUTNl?oc=5) |
-| ‘I’m From Here!’: U.S. Citizens Are Ending Up in Trump’s Dragnet - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOQ2hnSFBMVnp2MzRZQ01Vdl9JemViY3B6R2EyWEh0T0RJdXpfTnFRWmFPNmpRUzFwWUZGVjhQaFhUcFh3eFJOUFJhSGhOOHN6LXJJMUE2Qkc2dTd6aHhnN0VOdFNVeWhWdGFNLVRoZ1RzWHpxS3JNNnJNSFM4bXZOTTktdEVQODVBbHFaTnQ2bVRPMUo4dTdDb1JtTHlGWl96?oc=5) |
+| Missouri governor signs Trump-backed plan aimed at helping Republicans win another US House seat - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNV0oyeFJCRWJBb1UtUVBlQUdLN3BEa19rN2tYN1NfM1U0UnYxZU1BOWtrNElPSXhrN2wtUW9ZMkhTT2Q5ZVNES1dkd182OXdUT2VMUXVmTGQ4a2c5Z3I5dWk2WmFkQUFnSG5WYWc4NnBxNUxVbnMwSVVrVXltd2ZqRENkdFhpcWFybzlYaUVQTU10ZTQ5X0VHeERxNUZOR0dpMVE?oc=5) |
 | American Fish Company closes indefinitely following mass shooting - WECT | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQSFV1c3NrS2lZc1RlSDk4RlVvd3ZVNzV6M1c3U0Qya09JMjBpX0NTZ1IzOU1JY2NuMkE1Q005RjhzUUUyWm5fUkN6QUY3aUVYSFo2ZmVOeG1xN1VJWGFSR3plbXUyd3Y1SmdybjhKNkJJM0E0N1Y4TGpNbVRzaHEzaWc5R0FqbHFOWTd3R2lHQ0pmdVRZY0ltY2tfWTJXM2fSAbMBQVVfeXFMTkRzdXl4U2p3MUpKY01tcHJtUWdUclJFRnpRR0pnSHMwbWV2NlYxZE5rRmVyQ2ZUVjRSTklmVVhxUlJHa3JVN0VlUnRhX1k0MlFCZnFSbU5iUFY4elc5cjhYVVlnOUVQMUY1N2tmX2JFMXNGbTJfekcya1NUQ3dSRm9mLXBvaGRpdVZwZjU1ZTBWdTFpNk5IUVN6Z2I3TWM4eUNtRWNRWHZ4cGhMbkNvQWNXcEk?oc=5) |
 
 ---
