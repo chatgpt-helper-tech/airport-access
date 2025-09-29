@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月29日 20:57:39（北京时间）**
+🕒 更新时间：**2025年09月29日 21:01:34（北京时间）**
 
 ---
 
@@ -14,9 +14,9 @@
 | Jaguar Land Rover to resume some production in 'coming days' after cyber-attack | [阅读全文](https://www.bbc.com/news/articles/cwydxpdgx61o?at_medium=RSS&at_campaign=rss) |
 | Disabled Post Office Horizon victim offered 15% of claim | [阅读全文](https://www.bbc.com/news/articles/cq5jqxjqj0eo?at_medium=RSS&at_campaign=rss) |
 | Trump to push new peace plan in talks with Netanyahu | [阅读全文](https://www.bbc.com/news/articles/cvgr092lnyyo?at_medium=RSS&at_campaign=rss) |
-| Rescue deal saves Claire's but 1,000 jobs remain at risk | [阅读全文](https://www.bbc.com/news/articles/cder59gzx5xo?at_medium=RSS&at_campaign=rss) |
 | Europe survive US comeback charge to win sensational Ryder Cup | [阅读全文](https://www.bbc.com/sport/golf/articles/c0m4g7k4l0yo?at_medium=RSS&at_campaign=rss) |
 | Doctors' union warning over online booking safety risk | [阅读全文](https://www.bbc.com/news/articles/cqje8dljz7eo?at_medium=RSS&at_campaign=rss) |
+| Rescue deal saves Claire's but 1,000 jobs remain at risk | [阅读全文](https://www.bbc.com/news/articles/cder59gzx5xo?at_medium=RSS&at_campaign=rss) |
 | Giorgio Armani’s final designs unveiled at star-studded fashion show - in pictures | [阅读全文](https://www.bbc.com/news/articles/cjw78l98lg4o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Investigators probe for motive in Michigan LDS church shooting, fire - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQY3RERnRDeVNzUnd2S1U3dEZ1Snh5WVo0czA3ZmF1Tk9GQk5sdVRzRTkxZWhfYjROWmgyaXY3X2FxVGZlQXV0MW5HQ3V4MW5DbnlRT1RQSDlDWjBDaUpoMDBLUDBPVXVDd3lwUEUzaFhXQlU2SU5hSFVIRlkxUm1hNUdVdzNQLW42TlY5MXkxM1hXazltTnFQQkROcks5R1hISG1N0gGoAUFVX3lxTE9famtfa3RDTWkwVnNOYXpUejUxLXd0Qm1NYnJhYWZ0UjBhdnhXaU9WY1htRWNYZlpXaFFXdnY1aFB4em9kVzFTWWFwd2Z1WHZoQkFIZjJrUFhuZWZSODJtOHVEdENGWGsyUlR6cTREc0I0WkFyR05oMFczU1dudjBaLVpfczg4T2hGVldQS0JfcXN3ZnJoUUprYlpmS1U1bW82b3BjTEJONw?oc=5) |
-| Government shutdown draws closer as congressional leaders head to the White House - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQbEwybXpmOWVBY3lFclpJSHAxU3BmTllEc2Z2aEE1S3czUkkxYmRDUGdBWmwyR192Sk8tcUlTeTZDRnptOXJVRjVOSGliWU1xanVQSlZjbEZRSWZpQzJMQ29QMFRaZUpqdm9BVl9YWGdRNXVvTV9HLTN1UjhEZ0x5bTd2MzBLel9WVzJtQ3N4cFVrVW04cmxHRHFJTDVNbG90?oc=5) |
+| Which Federal Benefits and Services Continue During a Government Shutdown? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPNnlLUGE2XzNVN2lkWXRUTklhYjl5ajVnSExaZjdtb3plTTRpS1RRU2xfRWFWSjBxLVlVMG5ieWJyeGNyeEZ4QklJcUZhdGE1MUdsQ0ZkTkt2cElUcExON2l1WWdHaThjSWw4dndfUzNkNS1Ca2JaQmIxUEZjRmlLX2VnX3FUbWt2Z29iS2RqNVdheElEbkhBZ1A4SlJyU3Zj?oc=5) |
 | Hundreds protest at ICE building after Trump’s announcement of troop deployment to Portland - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOOGpSUEhLOUNQU1hDZnN6c18xN1lOek1HR0k3Q0k3NWFyZ1VZSy1YX1lGYm53RVo5ZTlJQ3lFX2pXMEN2N1pIdU8ydU53R2FiWmN1cF9LWktXMjFMTTNDTGhPeVdKX0NHNnJ5V3pnMEE1QjdKSlVFMWs1em9vclM2a01VYjJ3NFUzWVRIRjluYw?oc=5) |
-| Trump plans to squeeze Netanyahu to sign Gaza peace deal, aides say - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQUnppeVpLakpmYkM3bklyeHgyRmNrcHRvYzVkdGlNVzVZR20tSVZiem12amh5RDRrNElWSWJTQ1BLWFhmRGJNVVd4QUJyRVhLanRFanRkUVhPYXBRNlRxUTlkTTdHMGFaVTI0Q3Q2MExWUUtCTU51amN3MWQ0aWw4VnB2WFlhUQ?oc=5) |
+| Netanyahu inches toward Gaza deal under pressure from Trump - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQUnppeVpLakpmYkM3bklyeHgyRmNrcHRvYzVkdGlNVzVZR20tSVZiem12amh5RDRrNElWSWJTQ1BLWFhmRGJNVVd4QUJyRVhLanRFanRkUVhPYXBRNlRxUTlkTTdHMGFaVTI0Q3Q2MExWUUtCTU51amN3MWQ0aWw4VnB2WFlhUQ?oc=5) |
 | Sen. Amy Klobuchar calls it "appalling" that Trump accused FBI of putting agents in crowd on Jan. 6 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPc0M4anp0eUxBa2dvX3ZkcVY3MUZKT0c5QV9heWh6bmd0d1dKaU9qQzl3cHVqQjRuQm1vUDBnU2t6cGpVU09yWmJNcC11dnlaaFhBWl96c1lEOHd2bzhOSHBrOHFLU3MxdEdWY1JIQWdPcWhKMlF3Y1F1UlJ6REVEcVlha09CUdIBiwFBVV95cUxPOHNfRXJxWUtxSjZYUE4xVi10S0ZSRWxpcE1sUzg4aklPaFNad3owS1p5TkhfeFhocEFQa3RzMVRLS1ZWaDNkUGtFV0Z3NVZLWDdDX1FudEpBdkVmcmRBa2gyNzZ3ekRjS1R0ckJva0Y2OHp4d0RmMlBWTjN5bmhPYTFZSl9qakhhQ3FB?oc=5) |
 | Exclusive: Federal drug prosecutions fall to lowest level in decades as Trump shifts focus to deportations - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOWVF3TjhuRXUzQU5fRUJfSmlqQV9oN2FvQ3VnMXJTY1ZoS0hMLW1zZk14MWFadUxJekVHaUNvRXJES1NpOTlYWVJZMTBzb2pQSFM1UzgyNndxelBobTRHc1hmUUFWWmxUZnFwZTVFblFjRDZ2Z3VZdFRnRjR3VlhxUlA3bUZXYzBic1dKRUVNNGFZa3p0NHpaQ0twYmM0bllMNE5HTXFEWWpzeHlKWDlaQXFkcVZlV0p3eEliQzQtRy0?oc=5) |
 | New York City Mayor Eric Adams abandons his reelection campaign - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQcXZJaUtVX1UyZWNRVzJJQ29nWFFmVzV5bzJTYUJLNXBGVk5ZZkJyTEJlRkRWaVMwOVFOWHpQM1JFVVItcHBSbE56Uy1BTVMya0ZIaVBzSWdKNGNGQ2RxRGhreUdUUUt6cWthdjRxeG5kYk5FR1NUOUpBS1I4MkhpRWJJNzdVdWt0WnVKaFQ0a0dpUTNl?oc=5) |
