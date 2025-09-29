@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月30日 00:48:30（北京时间）**
+🕒 更新时间：**2025年09月30日 00:56:55（北京时间）**
 
 ---
 
@@ -9,6 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Reeves warns of harder choices to come as she hints at tax rises | [阅读全文](https://www.bbc.com/news/articles/cy041perldwo?at_medium=RSS&at_campaign=rss) |
+| Mahmood demands migrants earn right to settlement in UK | [阅读全文](https://www.bbc.com/news/articles/c0m4g3zvy02o?at_medium=RSS&at_campaign=rss) |
 | Delay online GP booking system or risk patient safety, doctors' union warns | [阅读全文](https://www.bbc.com/news/articles/cqje8dljz7eo?at_medium=RSS&at_campaign=rss) |
 | 'You'll never need to work again': Criminals offer reporter money to hack BBC | [阅读全文](https://www.bbc.com/news/articles/c3w5n903447o?at_medium=RSS&at_campaign=rss) |
 | JK Rowling dismisses Emma Watson as 'ignorant' over trans rights row | [阅读全文](https://www.bbc.com/news/articles/cr7012ryvyyo?at_medium=RSS&at_campaign=rss) |
@@ -16,8 +17,7 @@
 | Youtuber MrBeast defends trapping man in burning building for $500,000 | [阅读全文](https://www.bbc.com/news/articles/cder5l8pw8lo?at_medium=RSS&at_campaign=rss) |
 | Maintenance grants to return for some students | [阅读全文](https://www.bbc.com/news/articles/c749vnylk1jo?at_medium=RSS&at_campaign=rss) |
 | Trump considering supplying Ukraine with long-range missiles, Vance says | [阅读全文](https://www.bbc.com/news/articles/cly6r1mg34yo?at_medium=RSS&at_campaign=rss) |
-| 'I cried and cried': Post Office scandal victim left disabled by stress offered 15% of claim | [阅读全文](https://www.bbc.com/news/articles/cq5jqxjqj0eo?at_medium=RSS&at_campaign=rss) |
-| Faisal Islam: Reeves pre-emptively justifies tax rises | [阅读全文](https://www.bbc.com/news/articles/cj6x07j9e43o?at_medium=RSS&at_campaign=rss) |
+| Mother to be charged with murdering three children | [阅读全文](https://www.bbc.com/news/articles/c1mxkr37r8do?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Mormon church shooting suspect had Trump sign outside home, records show - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQVko3UWdrSkJGZjlGYXdiQ0Z0aEc5dGRielNCYUh1ajg5RjFkWG5VUTRWMmh3SGQyY1VpYjlUeVc0aUduUW9wYVMtMUZiVkxOMjE3Zm52R3JVV1FZc0tlUEhEM0FrN0VkUXF5REo3YWwtSHYzd0NINnRKODhRSklGd3Q0ai0tNUpP?oc=5) |
 | Government shutdown draws closer as congressional leaders head to the White House - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQbEwybXpmOWVBY3lFclpJSHAxU3BmTllEc2Z2aEE1S3czUkkxYmRDUGdBWmwyR192Sk8tcUlTeTZDRnptOXJVRjVOSGliWU1xanVQSlZjbEZRSWZpQzJMQ29QMFRaZUpqdm9BVl9YWGdRNXVvTV9HLTN1UjhEZ0x5bTd2MzBLel9WVzJtQ3N4cFVrVW04cmxHRHFJTDVNbG90?oc=5) |
-| Netanyahu inches toward Gaza deal under pressure from Trump - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQUnppeVpLakpmYkM3bklyeHgyRmNrcHRvYzVkdGlNVzVZR20tSVZiem12amh5RDRrNElWSWJTQ1BLWFhmRGJNVVd4QUJyRVhLanRFanRkUVhPYXBRNlRxUTlkTTdHMGFaVTI0Q3Q2MExWUUtCTU51amN3MWQ0aWw4VnB2WFlhUQ?oc=5) |
+| Trump to host Netanyahu at White House as US pushes new Gaza peace plan - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFBOY0pGZTdWSHM3TmRxZUpOU1JFMVVIY0gzR1RfSUl3aTk0dUZCS0RodHc3OEVCNFE3QTB3Q3dnNmppMmEyN3pRR0lhaFFDVVRkMm80eQ?oc=5) |
 | 3 things to know about Trump's plan to send troops to Portland and Memphis - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOU2g3Q3Vxbk9BUTRVUWJpb0VyLUZoUDNUd1M1YUhTQjdXZUU1Q1VnZnZhbHhKa1BJOGZwLUJRcHUxWHJWVDBtMm8xelhOZXNMWW50ZHd2Y0NmZHV6OHFSRVpvelJmODFkMUNHX3NrSDRtc1NHdk45dTczNTF3OEk0bDUzaEFkZ041bVV6ZkFvU2o4RzQ?oc=5) |
 | "No one is safe": Democrats fear Trump will prosecute them next - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE55eTVZTlNXelY2b29uMTVWYkpfSXdRS2h2eEVzcnExNDdsZ2pRbEhBNVZWRlVvZG1MV29hX0tGWFB5THNERVAtaWdqcnpDRi11N2x4Y3U4YjNoakdTX1Z4eDdaWnJFNHoteUU1Q0ZxdkhLN05OZ05CSVpKcjc?oc=5) |
 | Trump says US to impose 100% tariff on movies made outside the country - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQUWxIRjBZX2VpSzJZTFItV2hhakREdUcxTGtXd04yNGptQWppdzNsMU5QcU5sakI2aWY0QnJfZHp2MWdfVm84TTNiMkNxbzBTSzhIallOVmdsY01MVGVCRWZ3OGpweE52eEh1WkxhTGpfRlp3TmtyZ053eXRMZ3F1a3BjbTBGc2xmMVFBWnpwX3U2TmZaNXZEVUFmaTNTaVIxTTdGZ1FEekFHS2s?oc=5) |
