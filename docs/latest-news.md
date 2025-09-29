@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月29日 21:17:43（北京时间）**
+🕒 更新时间：**2025年09月29日 21:24:42（北京时间）**
 
 ---
 
@@ -11,12 +11,12 @@
 | Migrants to face tougher conditions for settled status, home secretary to announce | [阅读全文](https://www.bbc.com/news/articles/c0m4g3zvy02o?at_medium=RSS&at_campaign=rss) |
 | 'You'll never need to work again': Criminals offer reporter money to hack BBC | [阅读全文](https://www.bbc.com/news/articles/c3w5n903447o?at_medium=RSS&at_campaign=rss) |
 | How weight-loss injections are turning obesity into a wealth issue | [阅读全文](https://www.bbc.com/news/articles/cre5xp83394o?at_medium=RSS&at_campaign=rss) |
-| Jaguar Land Rover to resume some production in 'coming days' after cyber-attack | [阅读全文](https://www.bbc.com/news/articles/cwydxpdgx61o?at_medium=RSS&at_campaign=rss) |
+| JK Rowling dismisses Emma Watson as 'ignorant' over trans rights row | [阅读全文](https://www.bbc.com/news/articles/cr7012ryvyyo?at_medium=RSS&at_campaign=rss) |
 | Disabled Post Office Horizon victim offered 15% of claim | [阅读全文](https://www.bbc.com/news/articles/cq5jqxjqj0eo?at_medium=RSS&at_campaign=rss) |
 | Trump to push new peace plan in talks with Netanyahu | [阅读全文](https://www.bbc.com/news/articles/cvgr092lnyyo?at_medium=RSS&at_campaign=rss) |
 | Europe survive US comeback charge to win sensational Ryder Cup | [阅读全文](https://www.bbc.com/sport/golf/articles/c0m4g7k4l0yo?at_medium=RSS&at_campaign=rss) |
 | Doctors' union warning over online booking safety risk | [阅读全文](https://www.bbc.com/news/articles/cqje8dljz7eo?at_medium=RSS&at_campaign=rss) |
-| Rescue deal saves Claire's but 1,000 jobs remain at risk | [阅读全文](https://www.bbc.com/news/articles/cder59gzx5xo?at_medium=RSS&at_campaign=rss) |
+| New call to stop rare sheep 'starving to death' on Scottish island abandoned 95 years ago | [阅读全文](https://www.bbc.com/news/articles/cjr5jwn71y5o?at_medium=RSS&at_campaign=rss) |
 | Giorgio Armani’s final designs unveiled at star-studded fashion show - in pictures | [阅读全文](https://www.bbc.com/news/articles/cjw78l98lg4o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -32,7 +32,7 @@
 | Missouri governor signs Trump-backed plan aimed at helping Republicans win another US House seat - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNV0oyeFJCRWJBb1UtUVBlQUdLN3BEa19rN2tYN1NfM1U0UnYxZU1BOWtrNElPSXhrN2wtUW9ZMkhTT2Q5ZVNES1dkd182OXdUT2VMUXVmTGQ4a2c5Z3I5dWk2WmFkQUFnSG5WYWc4NnBxNUxVbnMwSVVrVXltd2ZqRENkdFhpcWFybzlYaUVQTU10ZTQ5X0VHeERxNUZOR0dpMVE?oc=5) |
 | Confessions, DNA and his grandfather’s rifle: This is the evidence so far against the Charlie Kirk shooting suspect - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE9BOXhWZmJkNHdWRnEtZUhFN2NaM0RjZUFncU1GbjZUaVA5OG5jTjkxVVVIOTRUTWZ0ZXhWRTdlVjNWWnp6WWFYamVNc2UwNTR3Uk9Ta0U1QjFiYmZocWtueDVCWEg2cVdldUJDYTg4NlZDbkNqUkE?oc=5) |
 | American Fish Company closes indefinitely following mass shooting - WECT | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQSFV1c3NrS2lZc1RlSDk4RlVvd3ZVNzV6M1c3U0Qya09JMjBpX0NTZ1IzOU1JY2NuMkE1Q005RjhzUUUyWm5fUkN6QUY3aUVYSFo2ZmVOeG1xN1VJWGFSR3plbXUyd3Y1SmdybjhKNkJJM0E0N1Y4TGpNbVRzaHEzaWc5R0FqbHFOWTd3R2lHQ0pmdVRZY0ltY2tfWTJXM2fSAbMBQVVfeXFMTkRzdXl4U2p3MUpKY01tcHJtUWdUclJFRnpRR0pnSHMwbWV2NlYxZE5rRmVyQ2ZUVjRSTklmVVhxUlJHa3JVN0VlUnRhX1k0MlFCZnFSbU5iUFY4elc5cjhYVVlnOUVQMUY1N2tmX2JFMXNGbTJfekcya1NUQ3dSRm9mLXBvaGRpdVZwZjU1ZTBWdTFpNk5IUVN6Z2I3TWM4eUNtRWNRWHZ4cGhMbkNvQWNXcEk?oc=5) |
-| ‘I’m From Here!’: U.S. Citizens Are Ending Up in Trump’s Dragnet - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOQ2hnSFBMVnp2MzRZQ01Vdl9JemViY3B6R2EyWEh0T0RJdXpfTnFRWmFPNmpRUzFwWUZGVjhQaFhUcFh3eFJOUFJhSGhOOHN6LXJJMUE2Qkc2dTd6aHhnN0VOdFNVeWhWdGFNLVRoZ1RzWHpxS3JNNnJNSFM4bXZOTTktdEVQODVBbHFaTnQ2bVRPMUo4dTdDb1JtTHlGWl96?oc=5) |
+| What to Expect at the Meeting of the Generals - The Bulwark | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQb2xMUXU0TkJEWk44LWdXa21BMnZMQngxSHhXbzZrMDVQeGJGNHE0YUVNdTNJNXo2clU3OTczQ29kbzRra0RpY19nRmhER0pucHBqc0xRYjBmaExkMWRhSDVPQzlLWnRWOVl6UVB0OGw5emI5Ui1xYkJNNjdCNE9sUUh3RkhwUmZJT200d1I1Mk1VRi1HOTlJ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
