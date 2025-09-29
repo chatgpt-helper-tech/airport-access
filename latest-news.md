@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月29日 14:41:32（北京时间）**
+🕒 更新时间：**2025年09月29日 14:49:51（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | Europe survive US comeback charge to win sensational Ryder Cup | [阅读全文](https://www.bbc.com/sport/golf/articles/c0m4g7k4l0yo?at_medium=RSS&at_campaign=rss) |
 | Pro-EU party in Moldova set to win vote mired in claims of Russian interference | [阅读全文](https://www.bbc.com/news/articles/cx2rdlj8ejgo?at_medium=RSS&at_campaign=rss) |
 | Denmark bans all civilian drone flights ahead of European summit | [阅读全文](https://www.bbc.com/news/articles/c708dzqvz1vo?at_medium=RSS&at_campaign=rss) |
-| Staff photographed sleeping at 'unsafe' eating disorder unit | [阅读全文](https://www.bbc.com/news/articles/c4g25me9mzlo?at_medium=RSS&at_campaign=rss) |
+| Met officers could have to reveal Freemason ties | [阅读全文](https://www.bbc.com/news/articles/cqxzdppdd48o?at_medium=RSS&at_campaign=rss) |
 | Disabled Post Office Horizon victim offered 15% of claim | [阅读全文](https://www.bbc.com/news/articles/cq5jqxjqj0eo?at_medium=RSS&at_campaign=rss) |
 | Small boat carrying record 125 people crosses Channel | [阅读全文](https://www.bbc.com/news/articles/cn0re8x7172o?at_medium=RSS&at_campaign=rss) |
 
@@ -31,8 +31,8 @@
 | Stowaway Found Dead in Wheel Well of American Airlines Jet, Police Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPckVVcE1pREloQ0d5cHZJdElZOW52NTZpUjYyc3VOMDNaY1JZWTBDUGFtNGpMcjlPdEFOMUhaSTJYdzVTa2pjVDhBYjQtY3I4SFNVQVl1dFU4TUJSTTJpSkVfQUtTeEttdWQtMllnUEpRZmpKdmlpVGxvMV9FQVZMam9SdW1CTTFFTVJOTg?oc=5) |
 | Missouri Governor Signs Congressional Map Redrawn to Boost Republicans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPLXZ5d1VQQ1ZzUTBpc0dUQ21IZ25BVXFuQlU1MVY5azNXTkpVRHZNcnFPOFV3cF9vbHFfUThuTHRmM0htR1dkTVUtSFlMYXZyMVpWNHFWNDlqRDdlS3BGd3ltZzBnekRPYWJHajlmckRNTlRNWGdSWDNOVF8tdDVwM0F3MGFVMHJaMDJj?oc=5) |
 | American Fish Company closes indefinitely following mass shooting - WECT | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQSFV1c3NrS2lZc1RlSDk4RlVvd3ZVNzV6M1c3U0Qya09JMjBpX0NTZ1IzOU1JY2NuMkE1Q005RjhzUUUyWm5fUkN6QUY3aUVYSFo2ZmVOeG1xN1VJWGFSR3plbXUyd3Y1SmdybjhKNkJJM0E0N1Y4TGpNbVRzaHEzaWc5R0FqbHFOWTd3R2lHQ0pmdVRZY0ltY2tfWTJXM2fSAbMBQVVfeXFMTkRzdXl4U2p3MUpKY01tcHJtUWdUclJFRnpRR0pnSHMwbWV2NlYxZE5rRmVyQ2ZUVjRSTklmVVhxUlJHa3JVN0VlUnRhX1k0MlFCZnFSbU5iUFY4elc5cjhYVVlnOUVQMUY1N2tmX2JFMXNGbTJfekcya1NUQ3dSRm9mLXBvaGRpdVZwZjU1ZTBWdTFpNk5IUVN6Z2I3TWM4eUNtRWNRWHZ4cGhMbkNvQWNXcEk?oc=5) |
-| Jeffries praises Eric Adams for "courageously" serving NYC after mayor ends campaign - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQbnhnaG9nVzV6TXlUQ2U5NGhYckNFWHh6ZW5tVFBnSUNBY0lzNlZfdU1nX3dvb3Bxay1Ub3Ntb1lJbkoxRDViakU5RXQ3RWYtbFktNDByUVZOLXlMWGl0MDY1SHI3dWFscnpmZDNWTFdtc2xfZkRYRU5YMVQ1YzJ6RTZR?oc=5) |
 | Florida braces for impacts of Tropical Depression, expected to become Tropical Storm Imelda - WFTV | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxPVDh3b3FnV0hvMEo2YkNjb1Q3MERQLTNCNGFydmhFRFNFQkpURHpFcEdOUHpXN3IwQmdTQ0gwRERmTVNPOTdpUWItQ3ItOHpQTUhQZVlqeWMzZEVWUmdhTW1EMW1SZk5OczZydDd1emcyZVhLS2dmVkM0SnJXMUNRaUxJUDVlTU1VSGs5SDNBM2hJWjNfa0F6QmtYeUN3QXlWSlRHRUN1bGdWR09mX1Z2b0ljQ1I1VnRlTExEdld6WGNDdEQ1dXFpMG9zaDhmNjdHYk5EWHJja9IB6wFBVV95cUxNY0EtNjBRTEpsMmRTZk5DMVhxUHpJLTFqR1FUSGFVRV80RzlZdEhUSkl5cjRYSDV1dC1NSV9jNWVGV051eEtkRXpGY3hLd19IYVhYcG5zenpGQWtveUdNLTVaMk84bmIxNnVrNGctRXY3bU5lU2t4eXNkMkF1a0REcXdXUVRlT2hHRXR4eFVjQl9PaXBMaDNicEwzWkRtOEFmRWI1dEhYWW1mNHc0UGF6UFRyTG8zaGFHUnBCbGhkal9HTHNiclRiNi1pLVQtWGZGRkprVk0tTC1GSjNDMTRfdnBIelpWWTJVSEpF?oc=5) |
+| Exclusive: Zohran Mamdani Reacts to Eric Adams Dropping Out of NYC Mayoral Race - Democracy Now! | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOdDBxLUZRVElHV0JuWl9CVVFkUjRpVE5fYnpTTmR1YTQwdXBNUklBb3BPczFhOFZXd0o1WmZiVkh5X0NYQm51TVpaMjAtcXcybzRjSlBuWEhvbl8yWkZKZkdRQUNEZlB5SDlCazcyLUtyRjc1NFRJNmJnMm41NEo3SzZR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
