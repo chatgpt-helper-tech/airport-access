@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月29日 17:08:45（北京时间）**
+🕒 更新时间：**2025年09月29日 17:16:54（北京时间）**
 
 ---
 
@@ -9,9 +9,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Migrants to face tougher conditions for settled status, home secretary to announce | [阅读全文](https://www.bbc.com/news/articles/c0m4g3zvy02o?at_medium=RSS&at_campaign=rss) |
-| Death toll rises to four after Michigan church shooting and arson attack | [阅读全文](https://www.bbc.com/news/articles/ceq2vd15glwo?at_medium=RSS&at_campaign=rss) |
-| Europe survive US comeback charge to win sensational Ryder Cup | [阅读全文](https://www.bbc.com/sport/golf/articles/c0m4g7k4l0yo?at_medium=RSS&at_campaign=rss) |
 | 'You'll never need to work again': Criminals offer reporter money to hack BBC | [阅读全文](https://www.bbc.com/news/articles/c3w5n903447o?at_medium=RSS&at_campaign=rss) |
+| Europe survive US comeback charge to win sensational Ryder Cup | [阅读全文](https://www.bbc.com/sport/golf/articles/c0m4g7k4l0yo?at_medium=RSS&at_campaign=rss) |
+| Death toll rises to four after Michigan church shooting and arson attack | [阅读全文](https://www.bbc.com/news/articles/ceq2vd15glwo?at_medium=RSS&at_campaign=rss) |
 | How weight-loss injections are turning obesity into a wealth issue | [阅读全文](https://www.bbc.com/news/articles/cre5xp83394o?at_medium=RSS&at_campaign=rss) |
 | Disabled Post Office Horizon victim offered 15% of claim | [阅读全文](https://www.bbc.com/news/articles/cq5jqxjqj0eo?at_medium=RSS&at_campaign=rss) |
 | Denmark bans all civilian drone flights ahead of European summit | [阅读全文](https://www.bbc.com/news/articles/c708dzqvz1vo?at_medium=RSS&at_campaign=rss) |
@@ -31,8 +31,8 @@
 | Trump says he "would think" the DOJ is investigating ex-FBI chief Wray - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBCLWFBLXplS1JKM2l0RVViMldrVlZlLUh2ei0zajNaenZ6VjNJa09kVFIycmZLSGoxOVVMYnItQ2h3bjNPc216YjdfODZsbTFJVTIxRUlqQnZUX0ZSSm9kTU0wNTZrcXBsZUJTVEtZZVpBWUhlR2xiUWI3WQ?oc=5) |
 | Hundreds protest at ICE building after Trump’s announcement of troop deployment to Portland - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOOGpSUEhLOUNQU1hDZnN6c18xN1lOek1HR0k3Q0k3NWFyZ1VZSy1YX1lGYm53RVo5ZTlJQ3lFX2pXMEN2N1pIdU8ydU53R2FiWmN1cF9LWktXMjFMTTNDTGhPeVdKX0NHNnJ5V3pnMEE1QjdKSlVFMWs1em9vclM2a01VYjJ3NFUzWVRIRjluYw?oc=5) |
 | Tropical Storm Imelda tracker: Map and projected storm path - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5xWUFpaWRyQi1fbHh0bHJWNXBSWmRRQUJkeGcxTDVhSjZZRkpUaTNYY0l2VkxSX2JhSVJYY2xLSFJMNjVMTU1wS3VkVEdyUVhEVjl3cktDNWlUcHVKbjkxSml6cWV4YXFPQ2FFQm9RRVhFUldjLThkYQ?oc=5) |
-| American Fish Company closes indefinitely following mass shooting - WECT | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQSFV1c3NrS2lZc1RlSDk4RlVvd3ZVNzV6M1c3U0Qya09JMjBpX0NTZ1IzOU1JY2NuMkE1Q005RjhzUUUyWm5fUkN6QUY3aUVYSFo2ZmVOeG1xN1VJWGFSR3plbXUyd3Y1SmdybjhKNkJJM0E0N1Y4TGpNbVRzaHEzaWc5R0FqbHFOWTd3R2lHQ0pmdVRZY0ltY2tfWTJXM2fSAbMBQVVfeXFMTkRzdXl4U2p3MUpKY01tcHJtUWdUclJFRnpRR0pnSHMwbWV2NlYxZE5rRmVyQ2ZUVjRSTklmVVhxUlJHa3JVN0VlUnRhX1k0MlFCZnFSbU5iUFY4elc5cjhYVVlnOUVQMUY1N2tmX2JFMXNGbTJfekcya1NUQ3dSRm9mLXBvaGRpdVZwZjU1ZTBWdTFpNk5IUVN6Z2I3TWM4eUNtRWNRWHZ4cGhMbkNvQWNXcEk?oc=5) |
 | Missouri Governor Signs Congressional Map Redrawn to Boost Republicans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPLXZ5d1VQQ1ZzUTBpc0dUQ21IZ25BVXFuQlU1MVY5azNXTkpVRHZNcnFPOFV3cF9vbHFfUThuTHRmM0htR1dkTVUtSFlMYXZyMVpWNHFWNDlqRDdlS3BGd3ltZzBnekRPYWJHajlmckRNTlRNWGdSWDNOVF8tdDVwM0F3MGFVMHJaMDJj?oc=5) |
+| American Fish Company closes indefinitely following mass shooting - WECT | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQSFV1c3NrS2lZc1RlSDk4RlVvd3ZVNzV6M1c3U0Qya09JMjBpX0NTZ1IzOU1JY2NuMkE1Q005RjhzUUUyWm5fUkN6QUY3aUVYSFo2ZmVOeG1xN1VJWGFSR3plbXUyd3Y1SmdybjhKNkJJM0E0N1Y4TGpNbVRzaHEzaWc5R0FqbHFOWTd3R2lHQ0pmdVRZY0ltY2tfWTJXM2fSAbMBQVVfeXFMTkRzdXl4U2p3MUpKY01tcHJtUWdUclJFRnpRR0pnSHMwbWV2NlYxZE5rRmVyQ2ZUVjRSTklmVVhxUlJHa3JVN0VlUnRhX1k0MlFCZnFSbU5iUFY4elc5cjhYVVlnOUVQMUY1N2tmX2JFMXNGbTJfekcya1NUQ3dSRm9mLXBvaGRpdVZwZjU1ZTBWdTFpNk5IUVN6Z2I3TWM4eUNtRWNRWHZ4cGhMbkNvQWNXcEk?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
