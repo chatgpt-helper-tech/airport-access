@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月30日 09:16:48（北京时间）**
+🕒 更新时间：**2025年09月30日 09:25:09（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump administration asks for 100 'military troops' to deploy in Illinois to protect ICE, Gov. Pritzker says - WBEZ Chicago | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNRVkzNGc0M0FSaDFwZ0NxSVRTRFlMU0lmMllDcGg1SmJSbVFrU0JuQUJ0VTJOS2JtTnRKTk82OGxXQWwyNWtFU1lESnFGVXZ5YWE4ZUxVTzRUU1U3LUxMN0RIMEZsZ1NlTThhNl9LcEhNNXZod1R6OUk3cS13RDJBWWlIWXlUdnJkQm1yQjdreGtKTUhsR2ZzUjgxLWdOSzA3WjVPNW43d1NBUQ?oc=5) |
 | Shell Casings and DNA on Fingernails Helped Crack ‘Yogurt Shop’ Murder Case - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5MMHVUWXNtTWIyeE12bU5NTl9sdUJ4eEpkSzhFNWZ0dGJvN2dQVFVnd0phMGRvcjlzbEp0NVB1X01IeGZuVEkxTVlHYW82czhUZ0tWTkZWdjZrRUswRUtKMTh2ZUJuS2NuZ294bW1URTNIdHFteE9hdlZhXzU0Zw?oc=5) |
 | Tropical Storm Imelda: Tracking the storm's path near the Southeast coast - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPVnk1b1pjM2wxRERBTXNXcEU1cDNHSm95R2I3TFY5RnpSVFdhajEyS2N6YzFmSm1qVm1HVm1sR2FsQkk2QXdrMVlvU1Fjb2xYSmFKalg5M2p5X0l3bWdieXExODJjZXVaVUFwUzNlbXlFa3dpS3R0TUctTnpRa2dnV1oxZUZVVzJfdGxJM0VrV2ZXUW9ob3lHTdIBngFBVV95cUxPQVJWdEliOE5udmZVRG83ZW52RjlzRWxfdmNXVU5YWG01dlMwT0xmcU5rdzMzR0Fpb2M5NnNKaEdORjhQNE9TVDN4LTBKUkx2TUoyNXRWUmJYVFM4Z09rNzNEYjBZQ3d6bFc3bVlkYWZ6VXNNcE5VSTZHaHptWnJsMXVCTkFuN3BBMzVXbVJRYXlpNTVOWlBjMkpCb3ZhZw?oc=5) |
+| How would a government shutdown impact the U.S. military? - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9oMjI3Tlh0WWtnZWJId1ZqZjBEVUplMGRUYlpMUjR3Xy01MXVPcGlYRE9jT0FpNmtfbk5PM25NcFgyTF83bEJyY3ZVZ202UFNidDBwNWNCdzhWeC1nWjFjVm9SU2Q5X280TGp2MFZfVUJmVHhVMGo4WNIBfkFVX3lxTE1oLV9nZ21xeWNFMUVITXRTMjJUcDhfR2x3WjNIWUx1MmdWeGNiNVFwZTJDZHNQcm96N0ZwWW51T1J0MXJxTGwyTGNYNG1wY055bTRGZlMwYU1wNW40TEpQOUxySUZpZEltT1dOdzktY25VSEdMaHN0dWRlQndnZw?oc=5) |
 | Man charged with killing 3 at waterfront North Carolina bar is decorated Marine veteran and Purple Heart recipient - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNUmtScFZUMUQtYzhCM3h2QTJTZThDUXZjcEotYTJaSUh1eUlCa0cxRG00LXZ0dnZEQ3pFRG1NdW9kTFE3RnFoM0FpRlh4TDBCcEwxUlV6RnZqSUl4d09wem85R3gtNk9nX01uQUJVeXRMTmJwWDVudHA2czlQNi1mRG5XajBNd3dJS2Z5M1lvLUJyWlFvNmfSAZsBQVVfeXFMTWJBSWdhNGZoX1NlMFBGTHIxZmNWbHlJc2psQ1dnbU9FNUNjbVRKS2FHdzZRM181STAwZXZ1OTdHdlZIcFhicHluQXB2Q0o1bGJXcno4dFpjTWw0cWxCYzlwa1o4Q09OTDdNLUFyRmQ2aEtrYkRwRW8tc2N1cjBuT0hYMUp4RVRRU2tCbWF0UGpiNDg5VUI3RWpma0k?oc=5) |
-| Nearly half of DoD civilian employees will be furloughed in the event of a shutdown - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMi2wFBVV95cUxOcXZvMVlUUmdpSFpzQ0diRzEzRGJId1lvWnhvTW5nbWJBSTRHQXQ4dm5DZ1VVU0w1cEJiRm8tWEpsczkwUXpSaHpuWG1Cb0hBSGRiV0lrM2lmOGlHcmd0Y3Q1cU5FUjB6Y1YyUm0xcHhoQVJJcEExVUJKeGxqT01LRWV6YkhwWFZIMV9qaG16UHhSXzk5NndDbWlOY192TmV0NTlLU1hXekNicG1QbXZweG5LZGV2dG11NXc5alVQTzR5ZWlxNmhHTnRFajgyOUZud0VzN0E3TWZTSzA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
