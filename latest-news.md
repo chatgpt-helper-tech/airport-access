@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 01:25:40（北京时间）**
+🕒 更新时间：**2025年10月01日 01:32:11（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Afghan women lose their 'last hope' as Taliban shuts down internet | [阅读全文](https://www.bbc.com/news/articles/c98dmq03n92o?at_medium=RSS&at_campaign=rss) |
 | The Simpsons Movie returns for sequel after two decades | [阅读全文](https://www.bbc.com/news/articles/cx2x4dp5xxvo?at_medium=RSS&at_campaign=rss) |
 | Migrant jailed for attacking staff at Epping asylum hotel | [阅读全文](https://www.bbc.com/news/articles/c4gzxv7lxw8o?at_medium=RSS&at_campaign=rss) |
-| Newspaper launches legal challenge over Reform press ban | [阅读全文](https://www.bbc.com/news/articles/c4g2vy37j0vo?at_medium=RSS&at_campaign=rss) |
+| Ukrainian diver held in Poland over Russian pipeline blasts in Baltic Sea | [阅读全文](https://www.bbc.com/news/articles/cwywdmz7xpgo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -25,14 +25,14 @@
 |--------|-------------|
 | Trump and Hegseth Recount Familiar Partisan Complaints to Top Military Leaders - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPZHZHVFluUEwtUDNXU0p4eHdRb3RRYWc0TW9MOW9xU0I0QlVqUC1rX3U5UEp6OGEzUDFVYkMxZkdGTlZfeDhhLUJENzA5YnFYcGhydjBXT1RoNWQtQWlkNFVHZWl2QUtGYjhva0pFS0NqaFFHc3MtYlBSX25HUzZVNnpwalZEQWh4NG9J?oc=5) |
 | Live updates: Trump threatens layoffs ahead of government shutdown deadline - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE05MXdoLW9LVlRjQjdDQU1JZ1NXYi1LSU1Ya0hYOW9fMGk1aVhqeEpXcjExd3FHam5hek5jTVJ4S045aTM4V0pZRVM4SmtKTjZUZldoaQ?oc=5) |
-| How Donald Trump’s Gaza deal came together - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE16ZTF3YmVHaUwtZ25YcDRpalgyTUdQenVHa2dUaWhzRzB5d29pN1hRV1gzc3ZPMU9adm5XS19LYkRjVlZUdUpjWHNOSVJtRjN2Z1RLMVQxUEF0bjRueVJXdi1tOFpFM3VmWmlLYUI3cDQ?oc=5) |
 | Trump to announce ‘TrumpRx’ site for discounted drugs and deal with Pfizer - CNN | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBHdmZZN25DQkptdXpzNE92Q0s4dzlOTVAzNmlkUEZ5d2JGWWdsTDhmcktsUVVMcTRrQklEV015Szg5eDEzZndTbFJRRDMyUzNNVFZnenEzUC1LUEVxRWx5UnFpMWItSWhtUnkyX3dyOGNUUQ?oc=5) |
-| Trump’s USAID pause stranded lifesaving drugs. Children died waiting. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOYzhNQ3l0bWtDOHNMUjBmNnlya21SaU5hYll0RjZIUWJYYXJRNDNMNXNUVUFlUkFZa0xPU1k4M2ZNQmZEbTVuUEp3bkRpdWNYZV9UVkVjckRQbU1xMlAwWDR3ZWtEZDl6WUdqamtzeXJtalNUNC1ONzlLaFZUN0xoZWtiRE83N1M5Z0xWUzZ5Wnh1TnA3Tm1kVHQxcmNOR012?oc=5) |
-| 2nd detainee dies after Dallas ICE facility shooting - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOWHgybVE3WkpXTUEyRWFkVkdOYmFfMEJsWHZnTnhiT2pteFhxenNWQ3F1VC1zLWdKNUoyN3p3Qm1sX3B6Q19kMW9Sa0lvalY4N0NjTkVJZjRBT05HaTloNllzZUpNcUxBWVJiSjNZblVHX05PZkRFRWFFZDRnNE1mSlJVZmZDazl4d0lPVDFVMHRXZnE0Nld6Tnh30gFWQVVfeXFMTmx0TzNnUTA0Mmc1NDFxdlJvUVNlMzRDTFN0YmNwaElLZnZMdUZ5ZEdTRnlBMUNyQWEzOVhWaXp5UndwaExCb3gxYXZkQnM3N1ROUDNGV1E?oc=5) |
-| Michigan church shooting investigation: FBI searching for motive after Thomas Jacob Sanford's attack - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPbjhaUWdVcWF3dk5FQ19nYzFkclQxam9XUklGbFJEanpDOEpqQjdFRkZZZk9XZTRuWEFxRXRrU2NqQV9rN0VibGZ2WW5HUktNQ2NUY1gxM1BiRnBlQlRXcURoTFhjMHZnTzBST0loOTNmcTM2VzhOQi1NeE9ETXhxMGhQeEY5R2vSAYwBQVVfeXFMTUNUaWlYYm51MlRzUEk0OUJCWU52LTR3QVdCTjhXbXBmbUhzaTJiQ0Nyc0ZtUXpBd1VRMVB0emFUMS1KSnpTYU9Ib0FmTmtzU2NnVy1lYWF1VWFxYVBkajR3WXQ5Q1lUR1RHZWl3a0FBSEU1NWZmbVlBWERsVW0tMmtjR2V3bHA5WWg5N1Y?oc=5) |
-| President Trump Deploys Federal Resources to Crush Violent Radical Left Terrorism in Portland - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxPOHZadENPUjVKblpEcWtoYnljUWhDUmxVMnYzRFBtWTlJMFBzSFNVV2xOOGJObUJHazF3RTJRZUFPZ2dMQkxqV0JCTk5XZlc3QWZtSEZ1cTdxV1haN2JpZ29jUkFTaTN5NWdneEkyQUhLSFUxaUZ1R3pieTlvYUJKaEdFbjQzX1laS2hpYTBjTnR0cVdBbjI4MDVUWktyaFhoaUVydkdOMnBDY3p0TnNER2tvQkZyZEJ4VnBXTVFxTDgyeFBmbFFGOGxsTllCT0VWNUNzWg?oc=5) |
-| Florida Hands Over Prime Miami Property for Trump Library - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1NTm4yU0JSNW5nMTZvTlpUdVdoZUtDQy1zZE5haEozVmFaV1pRWHNSckxyLV82Q0ZqUGlWZUdybmJ0SFRlS1dYY0JDVVhhT19aMDRfaFh4UFpHQmEzamNadWhfX1ZVOVJ2QXRsOXBySUtfSnAxR3B1YUNkTQ?oc=5) |
+| How Donald Trump’s Gaza deal came together - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE16ZTF3YmVHaUwtZ25YcDRpalgyTUdQenVHa2dUaWhzRzB5d29pN1hRV1gzc3ZPMU9adm5XS19LYkRjVlZUdUpjWHNOSVJtRjN2Z1RLMVQxUEF0bjRueVJXdi1tOFpFM3VmWmlLYUI3cDQ?oc=5) |
+| ‘Now we’re pig slop’: Portland troop deployment sparks mixed reactions across Oregon - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQREpZMGVkeDNRRTlpZ1VlandqblNmRkJzR2QzWGNYWkd2QjFfRlpoUUhYZnVOM25wdWkxT09Zek1DVWZyT0puX0tfcWxVd1c5TEFQM0RndmhKVlA4SzNTS1lHWUtzVU9jSUd3S09sVTRqdWpBWFQzbzNGRjV5MU5rSWtyUEFDa0NoSUZtY2JIeGNHTmhtV2djZjduelRHZw?oc=5) |
 | Imelda strengthens into a hurricane as US coast feels impacts. Bermuda prepares for twin storms - CNN | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQYWV0RGJXNkpoOGNsQ0pyVHg5WVBsVzdBbnpkRFhCdGZJenh1M1E2LTlmRnFseENmTHRBUkpYZjh5Sm1FV044LU9Za19sYjE4TWpOOVRtaFZYY0J1ckFVdl9DaHptald6Z1J6YXR2bzRqbThvSDJuOVRKbkFJdkRySEVTS2w4UHpScThXSE9aMURlVzA0a3ptMTRhbndmQQ?oc=5) |
+| Michigan church shooting investigation: FBI searching for motive after Thomas Jacob Sanford's attack - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPbjhaUWdVcWF3dk5FQ19nYzFkclQxam9XUklGbFJEanpDOEpqQjdFRkZZZk9XZTRuWEFxRXRrU2NqQV9rN0VibGZ2WW5HUktNQ2NUY1gxM1BiRnBlQlRXcURoTFhjMHZnTzBST0loOTNmcTM2VzhOQi1NeE9ETXhxMGhQeEY5R2vSAYwBQVVfeXFMTUNUaWlYYm51MlRzUEk0OUJCWU52LTR3QVdCTjhXbXBmbUhzaTJiQ0Nyc0ZtUXpBd1VRMVB0emFUMS1KSnpTYU9Ib0FmTmtzU2NnVy1lYWF1VWFxYVBkajR3WXQ5Q1lUR1RHZWl3a0FBSEU1NWZmbVlBWERsVW0tMmtjR2V3bHA5WWg5N1Y?oc=5) |
+| Second detainee dies after shooting at Dallas ICE facility - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNUVZIZ1R1Z19tazBfNG1jUWlkcUNJcUJYRUdvUS01eW1qTllVRDdYRHBGdFhkZHBSSUh3S0t6RXY3LWF3RDFMWlphWnlKbEJfZ3dZWVhXZHl1TWx3Z2h1OHp4VGx2UU9pOFlGZXRtYzA3V2xHMzJHUlFNaXdqSS1Dc3VRQUxoeV8zbUE?oc=5) |
+| Florida Hands Over Prime Miami Property for Trump Library - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1NTm4yU0JSNW5nMTZvTlpUdVdoZUtDQy1zZE5haEozVmFaV1pRWHNSckxyLV82Q0ZqUGlWZUdybmJ0SFRlS1dYY0JDVVhhT19aMDRfaFh4UFpHQmEzamNadWhfX1ZVOVJ2QXRsOXBySUtfSnAxR3B1YUNkTQ?oc=5) |
+| Trump visa curbs push U.S. firms to consider shifting more work to India - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQbVFNMzV4MDRVREFVbENfNHc2cVR4d0lra2NONmNCTWtBcTFMUURHbm1NYkp0VGM2bHI3czdjOWZLQVNCRENwMUZJcklFbnBIRGJpOWVfZFZoMTFRdXhXMVhWRFlqREVodWQ3dzhTVFFvM1p3YWtQYVVRV0hrNFhIX0VPQVN2QjB1ZkNTWGVkTEtWNW5XWThvNUlRdFlKR1FScWpvbVhoT2JYU1MyRkwwLU1R?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
