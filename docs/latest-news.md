@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月30日 11:48:02（北京时间）**
+🕒 更新时间：**2025年09月30日 11:56:14（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Federal employee RIFs can still happen in a government shutdown, OPM says - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxNZVVBVF9PSzVKc1FTM0x6YnpwRkZFLWptbW02MEtIMDk3Y1c3ejctTFdmWmxMS0k0dTVKVUFlQzE0RXJTcGgyc19ZWGVaaVc5ZTlGbHpDQ0liN0NEYlE0cUtUdTZQdTM1a3ZoTE5VTFFNVVk4X1ZrRDM2OTFyVWZwWHBIb1BLY3FWZGgzcmF1MF9RSHR1NTg2UUJGclYtQ2s1NGx4QTZiZzBhRFBPTmpDeDdkejlNMmo3SEpXRXFaQ2JnR1BkVWVYVktQZ1c?oc=5) |
 | JB Pritzker blasts plan for National Guard deployment to Chicago - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQUXMyYjIySjdmeDh0ZVJKNVgwa0phX0FNYXlBQks2QjhvSm1KRGtHd0ZMb0dHS2liMnhyMWkybHpxd3Rya1g3VFZ3akpiN3ltQlltOHZSa0FBUXM5OTF5Tm04MnVRdmltUnVEMzRTS19zTVVsdG52RDdZRzNnNXEyV1UxdGpBeDFmMEhnemg1aEFsNzh0NG95UUZRRkRHdUJRWjV3Z0VFbW1meFgxMHBzaXZtQTVjZlBG?oc=5) |
 | Iowa Superintendent Arrested by ICE Loses State License and Is Placed on Unpaid Leave - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPSVRtUDdWVWFBSG42cGFDTlBSVk9qbjVZNUVTMDJoeVBZUE1UaWU5bFhSMWlraXZjT2lPdGl5TUkxd3BuOS1KVG16LS10bE92Z21Nd3Q3ZWZLVjJXYld2d19ZYUJFUkFkS0p4dDdkeks0RjdBLWFKRHBXYmpONDRhOS1EUXZLY2M?oc=5) |
-| Detective's shirt brings closure to families of yogurt shop murder victims - Austin American-Statesman | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOdmxSY2JnNUNKTjZRRkN4MTNRQ3FrT0J6S2hOZU5MR2RkcUt1LWpXUEZwUjgycFFNUTAya2JXTHItT2YxcU4yT0lfSmdKSlZKUzB0M1pDa0pjRVhpN3k2c0I4bWg4QktNNFZGTWdieDJyTDB0WmJNaUI5WEFrc2hrUklIVUs4Rm1PdVNVNTFLcWF0eF9aWU44MXIzNlhMbWFVVjdWSFZ4TQ?oc=5) |
 | Judge suspends Trump administration's plan to eliminate hundreds of jobs at Voice of America's parent agency - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQSzI2bV9JVXUzWEN4dFhmOU8wN3Y2Mi1GVnVXWGMyUFlHM0M3dmM4RUZFVnlpSEh6M1hLMWhIYUJJT3VfTDBJNVU5TGY3R01xZ0J5NWFQdzJ4SFJ6a1gyU3VzdlpIcU0tbHc2OURFME0xT1l4ejJUOElCLVRZRjk4NXd3MjhOVjNMbEVLbUplU0QySzQ3UmJR0gGcAUFVX3lxTFBtdjBIZDlvWXRyaFljSVlWN3N2NzR3bHdiQk5ZMVItNG4wV2doc3J3Qy1jSnFnN0V0dUNNekgwMWNKXzZiVlF2VF9US3VDaU1OdXRPdElzc3BuMmhKQWJRdGk2SVB2ZFVFSkgzblpDRG5OaFM2dFNJblhRNTJFT0kzQk13WklrQktmcllfRnhHX0UwcDNlT3hKMWp4RQ?oc=5) |
-| How Cuomo plans to seize the Adams-less moment - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNWnlQU2Y4cmlFUFZraXUzMjc3ZlNGNkNMZmNzcGd2MHgwT1J3eWdNcGtKMmtuMm1rUmdDNHRUd1ZGZjRXTFNvdWVyREZTb3RxXzdNZTZFbUQ1bC1GaWwwQXJTQVVjRDJoVHJzTlgzbmNwMFZBd2JmclZGWUxOWmFFT2R6SVUtX201aS1nN3VKTERwYk9sU3hmSWVGTGg?oc=5) |
+| Detective's shirt brings closure to families of yogurt shop murder victims - Austin American-Statesman | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOdmxSY2JnNUNKTjZRRkN4MTNRQ3FrT0J6S2hOZU5MR2RkcUt1LWpXUEZwUjgycFFNUTAya2JXTHItT2YxcU4yT0lfSmdKSlZKUzB0M1pDa0pjRVhpN3k2c0I4bWg4QktNNFZGTWdieDJyTDB0WmJNaUI5WEFrc2hrUklIVUs4Rm1PdVNVNTFLcWF0eF9aWU44MXIzNlhMbWFVVjdWSFZ4TQ?oc=5) |
+| Tropical Storm Imelda: Tracking the storm's path near the Southeast coast - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPVnk1b1pjM2wxRERBTXNXcEU1cDNHSm95R2I3TFY5RnpSVFdhajEyS2N6YzFmSm1qVm1HVm1sR2FsQkk2QXdrMVlvU1Fjb2xYSmFKalg5M2p5X0l3bWdieXExODJjZXVaVUFwUzNlbXlFa3dpS3R0TUctTnpRa2dnV1oxZUZVVzJfdGxJM0VrV2ZXUW9ob3lHTdIBngFBVV95cUxPQVJWdEliOE5udmZVRG83ZW52RjlzRWxfdmNXVU5YWG01dlMwT0xmcU5rdzMzR0Fpb2M5NnNKaEdORjhQNE9TVDN4LTBKUkx2TUoyNXRWUmJYVFM4Z09rNzNEYjBZQ3d6bFc3bVlkYWZ6VXNNcE5VSTZHaHptWnJsMXVCTkFuN3BBMzVXbVJRYXlpNTVOWlBjMkpCb3ZhZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
