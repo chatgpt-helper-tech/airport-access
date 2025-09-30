@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月30日 14:40:38（北京时间）**
+🕒 更新时间：**2025年09月30日 14:49:43（北京时间）**
 
 ---
 
@@ -23,11 +23,11 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Michigan LDS chapel mass shooting: What we know about the victims - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQZ1lqSVhIS2JkWnVJTk82QWpRMEVDdWpXaHF6VEFvVjNiZWtDWFlRR3VIR1NsUkFpUnRWaUUzRGM0N2ZxTEx2aG14dDJQVno3Uk9jT3dVT3RXQks3NGpaTXRvTnR6LXczenhHaHdfa0JJaGVScktDUHRNM0JMUUpaTHdzSWFZNWdhWDZhbDdiMNIBlAFBVV95cUxQdzN5WENaeXZuY1RnZ1J6VFlxVDdfWGpJTnltcEZxY0FoREgteXVlZV9HckJEWUZua213RzFDZ0J6dGNoU2szTk83TkpSd0kwN1gtXzJqNFY5LUl1QlZ6VC1qeUUtZzY2ZlZ1S2dpTEktS083N0JFNzlxZ081RnA0cTRFTkoxdVdnY2RYeU5rN2JNbEJB?oc=5) |
 | Shutdown nears as Trump meeting yields no breakthrough with Congress - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPS290TWNWZjlITmpZYjhPck9XdmtWdVJfd3g3QUtCclB5OTZONUxXek9TMm9vUVh2T09zQ09hdXhfWjhwbFBDbXNQNHRaaFFQTDA1Q2c0dWFVMkpISHhfY21NeC05WGpTcl9LOUlSYmsyR2JlN1RDYzNKWm1Femw1b01meUZYSnN2NEtpd3AxSi13N1FO?oc=5) |
-| What to know about the Gaza peace plan agreed to by Trump and Netanyahu - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNTG4xZ0lONkJCUVlab2JUeVdiOC14Tk0wYlpHTGNnMWpvVHBPa0EzRE9JYnNmQ1ZDMDF0VkJLRERzUFlJMjg3N2tIYWRXNk5HR1UwclRaMzJLOEFMd1RSX0NZWWpteEdTZ3ZXSVdRamZZUUlqbmZEYXZXOTZBMk5nU3E3cGFVY3ExQmppV0w0VF9TWl9KRmZ2ZkRrUWVGaS1JeXg4?oc=5) |
+| Michigan LDS chapel mass shooting: What we know about the victims - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQZ1lqSVhIS2JkWnVJTk82QWpRMEVDdWpXaHF6VEFvVjNiZWtDWFlRR3VIR1NsUkFpUnRWaUUzRGM0N2ZxTEx2aG14dDJQVno3Uk9jT3dVT3RXQks3NGpaTXRvTnR6LXczenhHaHdfa0JJaGVScktDUHRNM0JMUUpaTHdzSWFZNWdhWDZhbDdiMNIBlAFBVV95cUxQdzN5WENaeXZuY1RnZ1J6VFlxVDdfWGpJTnltcEZxY0FoREgteXVlZV9HckJEWUZua213RzFDZ0J6dGNoU2szTk83TkpSd0kwN1gtXzJqNFY5LUl1QlZ6VC1qeUUtZzY2ZlZ1S2dpTEktS083N0JFNzlxZ081RnA0cTRFTkoxdVdnY2RYeU5rN2JNbEJB?oc=5) |
 | Hegseth and Trump to Meet With Military Brass: What We Know - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQUmtjMlk4WnBienJjaXN4dkNwNzNIN3dyRnZ6OGRTazQ2bldza05Qblc1ZlM3VW42YjRRY24xT050Uk54a1d0bUdkUGo2MEFpQU1JX21VVUd1TktGU3ctVmJ2aWd4eXFEMVM3OE5wUHZIdk5GRDFxalVCejIwU3oxNWNxc1NNSHpMWTRv?oc=5) |
-| YouTube agrees to pay Trump $24 million to settle lawsuit over Jan. 6 suspension - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPUmRTaHpobk5VbWdOUWFicG42dHdtTVlIWXhTUTZ5T0tuS1A5WXYtMy1YSTEyTU1kMFhJNDBJYlNncngyeTJEb3A4d1QxZEhNbm1EcjN3RGhpRWVBOG5ydlNHX2c2UzcybFA3V1E5S2RwcE1VMDVUQjJlU3BJSXMycERtQQ?oc=5) |
+| YouTube to pay $24.5 million to settle lawsuit over Trump's account suspension after Jan. 6 attack - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOTG1DQ0Z2RUNNaldvNGxBZzFBNWwtOHJxaEp2UGE2dkFPM0x6Y0pQOWRYRVoxVEtqRjd0SHVMeDlJY0tXeTIyUHIydG9VX3FzVnMwMGZZSTZTVGVjbEFtYllXdmluWnBiT0NJLTRSUU1FUkMwYVkxQS1jR20wdWZiNUd4eE1SbHo2TGR5Yjc2bGVIX0dUbFoyM3dBQlZIOURmLVJN?oc=5) |
+| Trump and Netanyahu to Hamas: accept Gaza peace plan or face consequences - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQLXRBVUo4NzBDNndqWURwQlk4a096M0g1cWhJZ2ZPQVBNUFRSLTFpYmlDUWQwRElELVpsS3FudkZ1a1ltbU9KdXhYOEZvY1BISElxMC1iTFk3M3BFVTc0SlBSS29LU3pBMzBYU0lsUUFQRVVWNWQyZjlTYWZrRU1vdVB4SQ?oc=5) |
 | Trump HR Office Sanctions Agency Firings if Government Shutters - Bloomberg Law News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNVE5OV0FVWHN5ZTV4bkNDNmRrNjhmNldUeHluMkFzYjg1d1FMM0l1S1NUNU9jZG5VcmQ1aDVqYVI3R19NOTFUUHZJcWRBZ3dGWlluaDRyRklMMkxPTjZ6NlJ6d3NKTWlVSzEtbUVsNGdfWDJ3WHcxcG5hVjRuU1R0aktpM0d2ZE9HSkVXNTlkWGpjRVh4ZEUxTEZIWS10NVo2RDVseUVjcjNldW1HcmpJMk5R?oc=5) |
 | Iowa Superintendent Arrested by ICE Loses State License and Is Placed on Unpaid Leave - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPSVRtUDdWVWFBSG42cGFDTlBSVk9qbjVZNUVTMDJoeVBZUE1UaWU5bFhSMWlraXZjT2lPdGl5TUkxd3BuOS1KVG16LS10bE92Z21Nd3Q3ZWZLVjJXYld2d19ZYUJFUkFkS0p4dDdkeks0RjdBLWFKRHBXYmpONDRhOS1EUXZLY2M?oc=5) |
 | Illinois governor says troops could be deployed to Chicago as immigration agents patrol downtown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNc0NnQ3VLY04tbzViYnU5dVdmRXVqVmo0VXFLcHk0R3EwS2tFeWF6SzFNdDdkTC1yMnE0WHdlbUQyRjFPSDhSSkJKYVp1enFjTzd0OXZndlJmbHNfVGY5WTJoWUp1aUNhcjVsSEE1aFZBbnpLcXRacTNxaTFhcUZyN004UDBZSkdSR1djdTFIejhuNm1CTzhDS29xdEdhOE4zN25mOWM2Zmk0TWdibXd3?oc=5) |
