@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 05:16:45（北京时间）**
+🕒 更新时间：**2025年10月01日 05:24:54（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump defends troops in US cities after Hegseth decries military DEI efforts - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOc1lyR0hQdnhDYkYzTjY5cXE0V0lDcWZCelNRb19vczZFSERLQlhja05iM2xLTnJna196My1MZmw1RVVSLWUxR2ZHb3ZxdTJVS3FvN1hjYkdxSFUtSXpGMHd5dFZtVUpBZktCaExNRmg4QURSLXdlWmhiWWlyWWtGcDgzTnQ1OVdwX0FhR1VfUVVnZGRwRFE?oc=5) |
 | Trump warns Democrats of 'irreversible' actions in government shutdown - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNdXNiQy1vWWJVRTRYNDVGMThzQ19TTktZbi1tUlZ4S0NjZnFWVDZwbjZNMEFEblhKd0l3VUJjUFVnMk5iWk5lRk5PYU1xQWVOYmtMZC1mZTlQbjR6S0RZNHpyelAwdGZlOHRtc3l2a1VfV2pJQ041dEdYOTdrd2pFcnN0TFBhUGwtZEc5Tl83ZVNBSkZrUDNueG13?oc=5) |
+| Trump defends troops in US cities after Hegseth decries military DEI efforts - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOc1lyR0hQdnhDYkYzTjY5cXE0V0lDcWZCelNRb19vczZFSERLQlhja05iM2xLTnJna196My1MZmw1RVVSLWUxR2ZHb3ZxdTJVS3FvN1hjYkdxSFUtSXpGMHd5dFZtVUpBZktCaExNRmg4QURSLXdlWmhiWWlyWWtGcDgzTnQ1OVdwX0FhR1VfUVVnZGRwRFE?oc=5) |
 | Trump announces ‘TrumpRx’ site for discounted drugs and deal with Pfizer to lower prices - CNN | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBHdmZZN25DQkptdXpzNE92Q0s4dzlOTVAzNmlkUEZ5d2JGWWdsTDhmcktsUVVMcTRrQklEV015Szg5eDEzZndTbFJRRDMyUzNNVFZnenEzUC1LUEVxRWx5UnFpMWItSWhtUnkyX3dyOGNUUQ?oc=5) |
 | Judge finds Trump administration unconstitutionally targeted pro-Palestinian students in searing rebuke - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNWWwyenV0U1ZqNjNQSTRqWjlsNDJBdWlYTVlmX1FFR0dIY3NEOFE1WFNvRTdtVm5LaExwS0xYeTE1MHI1X004Z2NfN3NHZmRSdlNIM2FJYzR0c2ZzLTc2ekxnOGJZR3NxRDVQZFFuN2hOMC1aczBqNWphN2Y2ZDlXX1VvNnlOdURfU0wwTXBLZFM4VXQxNEpHTlVkQ2xpRnJDcVdOM2FsZHJiV196dGtNVFZjUzl4UdIBuwFBVV95cUxNUWNPWldETEJCTC1UcWZRU0FmdmtEbVFSWE1GdTBHXzgxelc4YTFXZzhURDRlenZaT3c0VHZlNmhKMU1hVEZvMFNSZ2pRNy10SVFiZmhiMkk2NklTaUpTX3p0VUMxZm1WYTB1OGZ3c0JoZjhXNWc3OF9TUDE3M191a2Q2N09UcUMxM1RRa0FQTGp2elh2bTdpSjR5TTd4TzI1cXFCaTRyUjQyUGdMVjc4NXlMNGdfSmRXVFRj?oc=5) |
 | MSNBC host: Trump is in ‘dramatic mental decline’ that needs intervention - NJ.com | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOemFhLWZtUFpVeTBJOFRCLVdqX0dCRGhGMTdoUUprc2RGZWwwUHlKS2lQWFVFZkZfRG9YRUFxMUYybGZ0X2FkZG9wSTVVU2t6T05Vb3ZtYThQdU8zbVBvUktXa2xfVlJDWW9CVmxpU3BpM1hjTjE0b3NTYTFfdW5SbWNmNXZLSnkwNDNmUUwtRFhoei1YSlZwOTlncmZJYy1hRGhKcFVQSzFYLW00cTRVaNIBxAFBVV95cUxPdEU2MDlzUmZjd25kVVpMMnE0cHI4WFpZWHZ2NC1CSlJDX1A3NHpoTmhUd3pzcVNIazhWN3lUeFNaUjVHQkNBVFUxY3JhYzJLSUlEby03UFNxMWxCc2xidDZpVTdGLVBYWlhVX1NiUEx5X3owSTg3UG0wM1p4MUd5cVA0ZzRWOVllY2FlTnV6eWZLTEdvME1KdTRZV2x3RzJ0OUxFdk9UTWwta052NlBxbGVfYVI3UGRoZWJjWFktVGI2OUZh?oc=5) |
