@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月30日 21:00:19（北京时间）**
+🕒 更新时间：**2025年09月30日 21:09:38（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Imelda strengthens into a hurricane as US coast feels impacts. Bermuda prepares for twin storms - CNN | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQYWV0RGJXNkpoOGNsQ0pyVHg5WVBsVzdBbnpkRFhCdGZJenh1M1E2LTlmRnFseENmTHRBUkpYZjh5Sm1FV044LU9Za19sYjE4TWpOOVRtaFZYY0J1ckFVdl9DaHptald6Z1J6YXR2bzRqbThvSDJuOVRKbkFJdkRySEVTS2w4UHpScThXSE9aMURlVzA0a3ptMTRhbndmQQ?oc=5) |
 | At least 166 Oregon National Guard members have volunteered for Trump deployment - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE51UWczaFpnZjdVX29TUi14YXRtWGQxb0M5d0YxVFVQWmIwTnhrR0lfRGxqSURoWWoyTWI4UXRMU1FwS1lRNzNEV2dTclJqR2M2enUwTlJ4X1VKYXpvQzhEVjBOYzZBYzR0al9ZOGotOEVGYS1NczBYQVB4U2o4UQ?oc=5) |
 | Iowa Superintendent Arrested by ICE Loses State License and Is Placed on Unpaid Leave - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPSVRtUDdWVWFBSG42cGFDTlBSVk9qbjVZNUVTMDJoeVBZUE1UaWU5bFhSMWlraXZjT2lPdGl5TUkxd3BuOS1KVG16LS10bE92Z21Nd3Q3ZWZLVjJXYld2d19ZYUJFUkFkS0p4dDdkeks0RjdBLWFKRHBXYmpONDRhOS1EUXZLY2M?oc=5) |
-| YouTube to pay $24.5 million to settle Trump account suspension suit - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPMm85djRhaGdyQjFNVWlCMU9QV25yd2NLTEUtYlhBVi1GUUxpN0kxTGVhbXZpRUVWY08yYXdnVVp4bEp2TjZ5N3FUUXVCY3ByQUtBVlpEZEhlSXNnalNzblZXZS0yb09HRUhzc1Y0dTROM2JkTGg1Rlp1MmhCMGdhb1Y4QmNjbmdCd0Z0a3drMVJVWVBkS2NCbjFqV3hLcmV6RWk3cHZVaWZFc21lVDFtZF9lZEZiM2M?oc=5) |
 | Read: Judge pauses Trump administration's VOA cuts in scathing order - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNdV9zX0ptb3plcG5yUVBoR2F6VzNUZjdJVXI5dEcwVTVlb3c2bEcyTy1XRFFVdmZWRF8xX0tGcURCeVpTTTA3blVQSjlGQU9TcGxSckxWdFZuczRFYlNOa3RTLVF1SUk0eGp0MVdsbnNLcmgtQ2w2NXNmQ09TU0xSLXRFejJKTkg3SGc?oc=5) |
-| Illinois governor says troops could be deployed to Chicago as immigration agents patrol downtown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNc0NnQ3VLY04tbzViYnU5dVdmRXVqVmo0VXFLcHk0R3EwS2tFeWF6SzFNdDdkTC1yMnE0WHdlbUQyRjFPSDhSSkJKYVp1enFjTzd0OXZndlJmbHNfVGY5WTJoWUp1aUNhcjVsSEE1aFZBbnpLcXRacTNxaTFhcUZyN004UDBZSkdSR1djdTFIejhuNm1CTzhDS29xdEdhOE4zN25mOWM2Zmk0TWdibXd3?oc=5) |
+| YouTube to pay $24.5 million to settle Trump account suspension suit - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPMm85djRhaGdyQjFNVWlCMU9QV25yd2NLTEUtYlhBVi1GUUxpN0kxTGVhbXZpRUVWY08yYXdnVVp4bEp2TjZ5N3FUUXVCY3ByQUtBVlpEZEhlSXNnalNzblZXZS0yb09HRUhzc1Y0dTROM2JkTGg1Rlp1MmhCMGdhb1Y4QmNjbmdCd0Z0a3drMVJVWVBkS2NCbjFqV3hLcmV6RWk3cHZVaWZFc21lVDFtZF9lZEZiM2M?oc=5) |
+| Trump pressure tactics in Comey case ‘chilling’ – but they could backfire, experts say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNbF9qbENHZlpKT1AteGNaMEFwblFlNk8wZG8zeW13Ny1KRGM2UnE3Zk1vOXZTV1J2T3B6UnhYSi1tMlplSklBaEliV0ZJM1hrNGUyY3VDSUx4cjFZQ1RORml5MmdiVkswQ2xPNVEyZFZMT2cxNjVxbTY4cl81MDZFenVPbW9aUDNRamI0dlVNaHBJZ2ZE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
