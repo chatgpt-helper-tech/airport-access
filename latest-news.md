@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月30日 09:25:09（北京时间）**
+🕒 更新时间：**2025年09月30日 09:32:54（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | Nicole Kidman and Keith Urban separate after almost 20 years | [阅读全文](https://www.bbc.com/news/articles/cdjz7r8jk3ko?at_medium=RSS&at_campaign=rss) |
 | Europe captain 'thinking about' third term after Ryder Cup victory | [阅读全文](https://www.bbc.com/sport/golf/articles/cx2x4v79yv1o?at_medium=RSS&at_campaign=rss) |
 | Secret filming exposes dangerous trade in illegal Botox | [阅读全文](https://www.bbc.com/news/articles/cn82z3grpd3o?at_medium=RSS&at_campaign=rss) |
-| Scottish schools must have separate toilets for boys and girls | [阅读全文](https://www.bbc.com/news/articles/cly6rgeke58o?at_medium=RSS&at_campaign=rss) |
+| I don't regret calling out mean teeth sketch, says Aimee Lou Wood | [阅读全文](https://www.bbc.com/news/articles/cx2npdwl0exo?at_medium=RSS&at_campaign=rss) |
 | Mother to be charged with murdering three children | [阅读全文](https://www.bbc.com/news/articles/c1mxkr37r8do?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -29,10 +29,10 @@
 | Pritzker: DHS will deploy 100 'military troops' to Illinois, citing need to protect ICE officers - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxNZGNwTkp0ZUZEZnRfTDdOUkxHUjZUeDREUkF1WWk1QzY4bnNCSVFzSHQ4emphc3MtN1Q3ZUdUWFNBMk9FNmsxdWFUejlVdFlkTjFEeV9CTGxjM3VQamF6c1EzbVlwTzVwcWxMZUdqVkFSRlMwRVQ5OURVcTBJS21ZZTN4aW80MlhOU1pmRUlvTXItVkVTVldhanFCN21vTHA4eDlhaVF0ekM1VUhpUnVSU0F6VkMwNm16Ul9MNm9zRWhZN1FacHJpS2FLOUlYUXB5bWpQVE4xOVg2UFZJ?oc=5) |
 | Inside Trump and Hegseth's unusual meeting with U.S. generals at Quantico - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBiSVh4djNvcjBkOVlhV1BzSDlIV0Yza2tzbWF1VHotemhKLTU5UnJUdVIyVkxhbFR5cFlGRzdTS2dlZ0ZLX2wyR04xZ0xRdjRBOUtlM0lJV1FwUXRqTWxfclNmYjdXUUt4MGdvTjBoZWlNS0pxQlJVOXJqcWI?oc=5) |
 | Federal employee RIFs can still happen in a government shutdown, OPM says - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxNZVVBVF9PSzVKc1FTM0x6YnpwRkZFLWptbW02MEtIMDk3Y1c3ejctTFdmWmxMS0k0dTVKVUFlQzE0RXJTcGgyc19ZWGVaaVc5ZTlGbHpDQ0liN0NEYlE0cUtUdTZQdTM1a3ZoTE5VTFFNVVk4X1ZrRDM2OTFyVWZwWHBIb1BLY3FWZGgzcmF1MF9RSHR1NTg2UUJGclYtQ2s1NGx4QTZiZzBhRFBPTmpDeDdkejlNMmo3SEpXRXFaQ2JnR1BkVWVYVktQZ1c?oc=5) |
-| Shell Casings and DNA on Fingernails Helped Crack ‘Yogurt Shop’ Murder Case - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5MMHVUWXNtTWIyeE12bU5NTl9sdUJ4eEpkSzhFNWZ0dGJvN2dQVFVnd0phMGRvcjlzbEp0NVB1X01IeGZuVEkxTVlHYW82czhUZ0tWTkZWdjZrRUswRUtKMTh2ZUJuS2NuZ294bW1URTNIdHFteE9hdlZhXzU0Zw?oc=5) |
+| Detective's shirt brings closure to families of yogurt shop murder victims - Austin American-Statesman | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOdmxSY2JnNUNKTjZRRkN4MTNRQ3FrT0J6S2hOZU5MR2RkcUt1LWpXUEZwUjgycFFNUTAya2JXTHItT2YxcU4yT0lfSmdKSlZKUzB0M1pDa0pjRVhpN3k2c0I4bWg4QktNNFZGTWdieDJyTDB0WmJNaUI5WEFrc2hrUklIVUs4Rm1PdVNVNTFLcWF0eF9aWU44MXIzNlhMbWFVVjdWSFZ4TQ?oc=5) |
 | Tropical Storm Imelda: Tracking the storm's path near the Southeast coast - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPVnk1b1pjM2wxRERBTXNXcEU1cDNHSm95R2I3TFY5RnpSVFdhajEyS2N6YzFmSm1qVm1HVm1sR2FsQkk2QXdrMVlvU1Fjb2xYSmFKalg5M2p5X0l3bWdieXExODJjZXVaVUFwUzNlbXlFa3dpS3R0TUctTnpRa2dnV1oxZUZVVzJfdGxJM0VrV2ZXUW9ob3lHTdIBngFBVV95cUxPQVJWdEliOE5udmZVRG83ZW52RjlzRWxfdmNXVU5YWG01dlMwT0xmcU5rdzMzR0Fpb2M5NnNKaEdORjhQNE9TVDN4LTBKUkx2TUoyNXRWUmJYVFM4Z09rNzNEYjBZQ3d6bFc3bVlkYWZ6VXNNcE5VSTZHaHptWnJsMXVCTkFuN3BBMzVXbVJRYXlpNTVOWlBjMkpCb3ZhZw?oc=5) |
+| Veteran charged with opening fire on North Carolina bar, killing 3, is scheduled to appear in court - PBS | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNRjR5LUNVR0lZaS1aemlHRlcwLUs4UUJYYmNvQ1AwaHVTUHFlcW5oLTFKM1hQS3Q0UE1ReWowUHRtRmtzaG9NOXM0ZUdXZmJwUUUySzVpc29sQ0kxYXpxVkVNOGNfaXdxcS1qVE1QQ0N6WVVlSm1uUTk1RllOOE56dnl3dTBsa0phaWJmU1d5QTNNbU1UTC1DYUdwa1JZRG5td1VIOHdmbjJ1S2swQXA1ZjE5cFZHbUJlSjREUnFxRGNueHRqWTEzYUJnSFNHZw?oc=5) |
 | How would a government shutdown impact the U.S. military? - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9oMjI3Tlh0WWtnZWJId1ZqZjBEVUplMGRUYlpMUjR3Xy01MXVPcGlYRE9jT0FpNmtfbk5PM25NcFgyTF83bEJyY3ZVZ202UFNidDBwNWNCdzhWeC1nWjFjVm9SU2Q5X280TGp2MFZfVUJmVHhVMGo4WNIBfkFVX3lxTE1oLV9nZ21xeWNFMUVITXRTMjJUcDhfR2x3WjNIWUx1MmdWeGNiNVFwZTJDZHNQcm96N0ZwWW51T1J0MXJxTGwyTGNYNG1wY055bTRGZlMwYU1wNW40TEpQOUxySUZpZEltT1dOdzktY25VSEdMaHN0dWRlQndnZw?oc=5) |
-| YouTube to pay $24.5 million to settle Trump lawsuit over post-Jan. 6 suspension - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPS3BtVEVZcjZPSXBLVVZyWk5TUGhxUWZ5OEdoSERYTDBMMFNmRDdFYW5UNUVuS1dRNkdyQjhCOHU3ejRqMm4zSlhYYkVPX1NveFpKeVJ0NmdXLWFXcjlPNFFOTk5yYzJRR1hoQkhsMG5SYkZfemNOOE1JSjk3RFYxSk9QZXhVSGdvSlVicDRkQkVYNzQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
