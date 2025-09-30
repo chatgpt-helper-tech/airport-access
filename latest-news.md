@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月30日 10:49:21（北京时间）**
+🕒 更新时间：**2025年09月30日 10:57:29（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Federal employee RIFs can still happen in a government shutdown, OPM says - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxNZVVBVF9PSzVKc1FTM0x6YnpwRkZFLWptbW02MEtIMDk3Y1c3ejctTFdmWmxMS0k0dTVKVUFlQzE0RXJTcGgyc19ZWGVaaVc5ZTlGbHpDQ0liN0NEYlE0cUtUdTZQdTM1a3ZoTE5VTFFNVVk4X1ZrRDM2OTFyVWZwWHBIb1BLY3FWZGgzcmF1MF9RSHR1NTg2UUJGclYtQ2s1NGx4QTZiZzBhRFBPTmpDeDdkejlNMmo3SEpXRXFaQ2JnR1BkVWVYVktQZ1c?oc=5) |
 | Illinois governor says troops could be deployed to Chicago as immigration agents patrol downtown - PBS | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxPVkZEQnNNbGFHcDhxLW9WYnlrS3d4Z0kwc2lGZElaOWFCdjBVaUZLdld6RVM3akZmTU53WmZfRTM0MnZxdTJCRW9MSnBjaGRlVXVJcHZTMGJtVXBjVVV0T0JjUE9vS1BhWHk3OHdYMHg2OEx1T3ZyU1RYTmhQeGhUVldDcVdtUUdGLWNFVFFBVDNhU29tdXJraWdyNHFRQVJ0QmpKUktKZVROWi1vRVE5YTEwLU1DcDYtVUhURjlnb2o3UFp1TFIyVXNGZ0otM1XSAdQBQVVfeXFMTUJWaFhtNTNUQzJRREtKczJydTVjWWVyQm1PdzlwcDdNcHh3OTNQZUMzd2lpRloyU0RNUzJtTXhSTGRNQ3R4TWFyY0VCejloY0ZwWjdOM3RnVGpWaThieDJ5OG14WXZRaWppamotMk5qNkNBMmhsTm1jNk00bHFKMDJHRXJWa1ZOcmFQT0x5MFA3WWhzbG1YTDY2VWhYX19wYnl5OW92V3A0WDJPcmpueDdyZmtLQm5YSHlHaEhKWF8xYXRMbE1mcE94TWlsWHJacDlTNG4?oc=5) |
 | Detective's shirt brings closure to families of yogurt shop murder victims - Austin American-Statesman | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOdmxSY2JnNUNKTjZRRkN4MTNRQ3FrT0J6S2hOZU5MR2RkcUt1LWpXUEZwUjgycFFNUTAya2JXTHItT2YxcU4yT0lfSmdKSlZKUzB0M1pDa0pjRVhpN3k2c0I4bWg4QktNNFZGTWdieDJyTDB0WmJNaUI5WEFrc2hrUklIVUs4Rm1PdVNVNTFLcWF0eF9aWU44MXIzNlhMbWFVVjdWSFZ4TQ?oc=5) |
-| Judge suspends Trump administration’s plan to eliminate hundreds of Voice of America jobs - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNYk5vZ2tNNjk4MnNEWjdGcnpGcWxiOHFtUWt0QUlYajg3bnZoWklaME54dTFTanZCYVhVdjItX01PbUVmRm5LQXpQdnM5MHlHTzZyYkpXMmhjekU0OUd3M3RBV1FpVm9kTGFqclZkbEhtWVFOSm1oS0ROZjcwdFhvdXpoTFVibWpJV0dXaDlpWnc0TGpOWWRr?oc=5) |
-| Health Department Moves to Block Harvard From Future Research Grants - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNZnIwZEpieTIxdHFfWEtZWFJfZU0zRDJUZWxuRW43c2dxbGQ4X011YXQ5N20zNVVEb3ZFMFpHUU80anlYaFhqeEFPMlZHT05oSjN4SDFUYTFwUGJlVHBidElhZzZxWlpmbEE2MnlrSG44WWJMdDRxSUVDbzlJZU9zX2YyaS15SkZmZzNadkRoMmZkTFk0QjhPSjltNmU?oc=5) |
+| HHS Takes Steps Toward Revoking Harvard’s Access to Federal Grants and Contracts - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE8xUTV5SGlkcUJ6NXJsaVBZVDVzN1JVZFBIYThWMWlFYmNjSzlyTFJwT3kwdlBJOWYzSjdKTDJLSjRMMzRUZDJlVVZNSzJyRmQ5MXhSdGw1REVabVA4NXZTX3R3NmpYMWtFTlEzdXoxTXZ1OTZQR1p1UFNR?oc=5) |
 | How Cuomo plans to seize the Adams-less moment - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNWnlQU2Y4cmlFUFZraXUzMjc3ZlNGNkNMZmNzcGd2MHgwT1J3eWdNcGtKMmtuMm1rUmdDNHRUd1ZGZjRXTFNvdWVyREZTb3RxXzdNZTZFbUQ1bC1GaWwwQXJTQVVjRDJoVHJzTlgzbmNwMFZBd2JmclZGWUxOWmFFT2R6SVUtX201aS1nN3VKTERwYk9sU3hmSWVGTGg?oc=5) |
+| Tropical Storm Imelda: Tracking the storm's path near the Southeast coast - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPVnk1b1pjM2wxRERBTXNXcEU1cDNHSm95R2I3TFY5RnpSVFdhajEyS2N6YzFmSm1qVm1HVm1sR2FsQkk2QXdrMVlvU1Fjb2xYSmFKalg5M2p5X0l3bWdieXExODJjZXVaVUFwUzNlbXlFa3dpS3R0TUctTnpRa2dnV1oxZUZVVzJfdGxJM0VrV2ZXUW9ob3lHTdIBngFBVV95cUxPQVJWdEliOE5udmZVRG83ZW52RjlzRWxfdmNXVU5YWG01dlMwT0xmcU5rdzMzR0Fpb2M5NnNKaEdORjhQNE9TVDN4LTBKUkx2TUoyNXRWUmJYVFM4Z09rNzNEYjBZQ3d6bFc3bVlkYWZ6VXNNcE5VSTZHaHptWnJsMXVCTkFuN3BBMzVXbVJRYXlpNTVOWlBjMkpCb3ZhZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
