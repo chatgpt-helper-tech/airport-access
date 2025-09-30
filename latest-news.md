@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月30日 08:32:44（北京时间）**
+🕒 更新时间：**2025年09月30日 08:40:58（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Trump and Netanyahu to Hamas: accept Gaza peace plan or face consequences - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQLXRBVUo4NzBDNndqWURwQlk4a096M0g1cWhJZ2ZPQVBNUFRSLTFpYmlDUWQwRElELVpsS3FudkZ1a1ltbU9KdXhYOEZvY1BISElxMC1iTFk3M3BFVTc0SlBSS29LU3pBMzBYU0lsUUFQRVVWNWQyZjlTYWZrRU1vdVB4SQ?oc=5) |
 | YouTube to pay $24.5 million to settle Trump lawsuit - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9IaC1HN2lfdmMtblRQUkxrZ2IxYUxaUG1wWEFLUnBkSmFoZzhIa2ZUbTc3dnZKWVJTdmxlTDFOX2E3UXVwWUdnRTB0cmpMM2dLeHRKeTVUVEs2cW9qSFZVYVpDSGxUWGtZLTd0M1hXRk1mY1NzWVhZ?oc=5) |
 | Trump considering supplying Ukraine with long-range missiles, Vance says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1kNW5iRFFLYjJuT2pkaWIycWh5WHlQQ3JiVUJEN3NzSS0tZGhBNXZzQWpUaUNkQW5ZRzZQWGw3RTlpWEpjenZVejg0ZWhkLWZIQXRlOVJjelpEd9IBX0FVX3lxTE43WUZUMUxtWmsxVXloVXd5MVg2N0FIQzFmMnVDVXlOTnA4R3owQkhicTc3RFk3WU9aVG1ybzNjUC0wUUtIbmZzWnpuS09GT2RPSUJTaC1rSmNRYVFzN3lr?oc=5) |
-| Federal Agents Arrest Southwest Side Organizers As They Filmed ICE Activity, Officials Say - Block Club Chicago | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxNeTlqbnlUbnh1WUszWEhGTTV4VWJJc0tsa3luNDVCOW1vLTkxZVhnYXk0TzJyYVBFczJzWnp5RlZ5N2lpdXVZN3RleTZpenVWVklybFJEemhSUk5HRjl1b2I2emJhREhvUVhpTmpCYUdGTHhqWUNyS3M3X1hUOGhhN195aHZ6Yno1Y245MEgwYjJISGdRNzJHQmoxUkFOX1hfMlZYV3FfV25wTmNHcU93ZzF6NUg5YU1meG40S244MUNXaFVZT01pdFFR?oc=5) |
+| Inside Trump and Hegseth's unusual meeting with U.S. generals at Quantico - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBiSVh4djNvcjBkOVlhV1BzSDlIV0Yza2tzbWF1VHotemhKLTU5UnJUdVIyVkxhbFR5cFlGRzdTS2dlZ0ZLX2wyR04xZ0xRdjRBOUtlM0lJV1FwUXRqTWxfclNmYjdXUUt4MGdvTjBoZWlNS0pxQlJVOXJqcWI?oc=5) |
 | Shell Casings and DNA on Fingernails Helped Crack ‘Yogurt Shop’ Murder Case - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5MMHVUWXNtTWIyeE12bU5NTl9sdUJ4eEpkSzhFNWZ0dGJvN2dQVFVnd0phMGRvcjlzbEp0NVB1X01IeGZuVEkxTVlHYW82czhUZ0tWTkZWdjZrRUswRUtKMTh2ZUJuS2NuZ294bW1URTNIdHFteE9hdlZhXzU0Zw?oc=5) |
 | N.Y.C. Mayoral Candidates Move to Capitalize on Adams’s Departure - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNQ3JwSzdzbUlJekZOUUtXemI4ajJoa2tyb1dxOE50dHhkY1RIUmxualBiWndJeEpIdEdPSWhpX3E2MjBfWkVRX3FGcVp0RzRuTlVnbTAxNXRoX0ZWWFlwYm9UWUY2ZXU2QlZBZWN4X3BkTmgwV212bmJFNUZIT0dCTDQtT1M?oc=5) |
-| Health Department Moves to Block Harvard From Future Research Grants - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNZnIwZEpieTIxdHFfWEtZWFJfZU0zRDJUZWxuRW43c2dxbGQ4X011YXQ5N20zNVVEb3ZFMFpHUU80anlYaFhqeEFPMlZHT05oSjN4SDFUYTFwUGJlVHBidElhZzZxWlpmbEE2MnlrSG44WWJMdDRxSUVDbzlJZU9zX2YyaS15SkZmZzNadkRoMmZkTFk0QjhPSjltNmU?oc=5) |
-| Nearly half of DoD civilian employees will be furloughed in the event of a shutdown - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMi2wFBVV95cUxOcXZvMVlUUmdpSFpzQ0diRzEzRGJId1lvWnhvTW5nbWJBSTRHQXQ4dm5DZ1VVU0w1cEJiRm8tWEpsczkwUXpSaHpuWG1Cb0hBSGRiV0lrM2lmOGlHcmd0Y3Q1cU5FUjB6Y1YyUm0xcHhoQVJJcEExVUJKeGxqT01LRWV6YkhwWFZIMV9qaG16UHhSXzk5NndDbWlOY192TmV0NTlLU1hXekNicG1QbXZweG5LZGV2dG11NXc5alVQTzR5ZWlxNmhHTnRFajgyOUZud0VzN0E3TWZTSzA?oc=5) |
+| Tropical Storm Imelda: Tracking the storm's path near the Southeast coast - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPVnk1b1pjM2wxRERBTXNXcEU1cDNHSm95R2I3TFY5RnpSVFdhajEyS2N6YzFmSm1qVm1HVm1sR2FsQkk2QXdrMVlvU1Fjb2xYSmFKalg5M2p5X0l3bWdieXExODJjZXVaVUFwUzNlbXlFa3dpS3R0TUctTnpRa2dnV1oxZUZVVzJfdGxJM0VrV2ZXUW9ob3lHTdIBngFBVV95cUxPQVJWdEliOE5udmZVRG83ZW52RjlzRWxfdmNXVU5YWG01dlMwT0xmcU5rdzMzR0Fpb2M5NnNKaEdORjhQNE9TVDN4LTBKUkx2TUoyNXRWUmJYVFM4Z09rNzNEYjBZQ3d6bFc3bVlkYWZ6VXNNcE5VSTZHaHptWnJsMXVCTkFuN3BBMzVXbVJRYXlpNTVOWlBjMkpCb3ZhZw?oc=5) |
+| Portland councilor, Army veteran, calls on service members to reject Portland military deployment - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQb1NVeUVYNVJtWEctd1JXaV9EVXJoUzJqVm9hdHAwTHUtVmJPX3ZJWTg4LXY2SVQ4Yk00WTFPLXY0TDg1VVVfVnJSeDNLQnRleGhFWTRvZ1BqOWc5UHRXVW1ZdUVrQ3VCY1djTzdjckxRM2hoc2t3NUFIQzc5ZVZnQWJSLWNUSE9mamh3NTNtWTRZOEYtYVBYZlhQWVUwd3IzTUpKdmthZVNJRy1TTkotMmUtb19Ud3BXSm5wejdSQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
