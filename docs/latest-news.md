@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 04:57:11（北京时间）**
+🕒 更新时间：**2025年10月01日 05:01:50（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Qatar, Egypt and Turkey urge Hamas to accept Trump's Gaza peace plan - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOeHlpLWZjbFpUazZha2YxampoeWJfUktad1haSV9tMC1LdTZjNVdqUkR1OElXbmxkeG9uODl3MGlMUFBuTDlwQnJPbzRpMG02MGdKakVDcjUzY1RoVFFSVTlYcC1VSTl5dFYwUDNCTlVkOXZnTUJhZjRuNWxjdGJULU1MODFjRWNKaGc?oc=5) |
 | Michigan shooting victims: Navy veteran, beloved grandfather among those killed - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQZ1lqSVhIS2JkWnVJTk82QWpRMEVDdWpXaHF6VEFvVjNiZWtDWFlRR3VIR1NsUkFpUnRWaUUzRGM0N2ZxTEx2aG14dDJQVno3Uk9jT3dVT3RXQks3NGpaTXRvTnR6LXczenhHaHdfa0JJaGVScktDUHRNM0JMUUpaTHdzSWFZNWdhWDZhbDdiMNIBlAFBVV95cUxQdzN5WENaeXZuY1RnZ1J6VFlxVDdfWGpJTnltcEZxY0FoREgteXVlZV9HckJEWUZua213RzFDZ0J6dGNoU2szTk83TkpSd0kwN1gtXzJqNFY5LUl1QlZ6VC1qeUUtZzY2ZlZ1S2dpTEktS083N0JFNzlxZ081RnA0cTRFTkoxdVdnY2RYeU5rN2JNbEJB?oc=5) |
 | Trump says ‘it’s anarchy’ in Portland. Here’s why locals say that’s far from reality - CNN | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBUdlpmSGZaMkRhdHhoNnJ4M19iSjRWU2NMaXFnMWZuU1RndkVUZ09tTWRnVmlUbHI4NmJKNE9fSzFWMERuWk03cHI1NmxtLWJQTmR2NFJVd3hGUUVjUmZNVmRPb1IyZGl2Y1dUcFFuUmhydjg?oc=5) |
-| Florida officially hands over land for Trump library - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPWm1sR1Z2VzcydF9PdDAycW92MllyZ0xyX1FyZnNxTWFWVklrckZRVXhDVjFBUEdtdDdmMkxkOGFQSC1jNlFsTUVDRE5OcHpFazNaQVV3S1ZIRUFCenRfdzd1V2pDTVNLMFdCd0hKR0FLZUt5TmlBQ0VfWTRrd0Q4a0oxNW9Ga0ttLW43Yzg4dVEwMldsRUd3eQ?oc=5) |
 | 2nd detainee dies after Dallas ICE facility shooting - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOWHgybVE3WkpXTUEyRWFkVkdOYmFfMEJsWHZnTnhiT2pteFhxenNWQ3F1VC1zLWdKNUoyN3p3Qm1sX3B6Q19kMW9Sa0lvalY4N0NjTkVJZjRBT05HaTloNllzZUpNcUxBWVJiSjNZblVHX05PZkRFRWFFZDRnNE1mSlJVZmZDazl4d0lPVDFVMHRXZnE0Nld6Tnh30gFWQVVfeXFMTmx0TzNnUTA0Mmc1NDFxdlJvUVNlMzRDTFN0YmNwaElLZnZMdUZ5ZEdTRnlBMUNyQWEzOVhWaXp5UndwaExCb3gxYXZkQnM3N1ROUDNGV1E?oc=5) |
+| Ian Roberts, Arrested by ICE, Plans to Resign as Schools Superintendent in Iowa - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBFN2hDX1JJbThYWkpieGhMaTFWeFFVcVJsTmo3dWptaG5FcjhXRU0xQTdDUHUwcllKY29iWmtTeDNvUnFEdURNdEx1Vi10VENiRjBMRHBBaE53TjRDcW9UUGtaY2hFUS1GOV9kNFMtVjdhSG1TaFl4dVBLX00?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
