@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月30日 17:40:45（北京时间）**
+🕒 更新时间：**2025年09月30日 17:49:03（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | Secret filming exposes dangerous trade in illegal Botox | [阅读全文](https://www.bbc.com/news/articles/cn82z3grpd3o?at_medium=RSS&at_campaign=rss) |
 | Why I want Nike, Adidas and Puma to sell single shoes | [阅读全文](https://www.bbc.com/news/articles/cewnje717rqo?at_medium=RSS&at_campaign=rss) |
 | Family anger after police reviewing 1970 beach abduction didn't contact witnesses | [阅读全文](https://www.bbc.com/news/articles/c1ed4g1q52no?at_medium=RSS&at_campaign=rss) |
+| Entire Ukrainian family killed in Russian drone strike, officials say | [阅读全文](https://www.bbc.com/news/articles/cdxqdpgznzeo?at_medium=RSS&at_campaign=rss) |
 | Nicole Kidman and Keith Urban separate after almost 20 years | [阅读全文](https://www.bbc.com/news/articles/cdjz7r8jk3ko?at_medium=RSS&at_campaign=rss) |
 | Chinese woman convicted in London after 'world's biggest' bitcoin seizure | [阅读全文](https://www.bbc.com/news/articles/cy0415kk3rzo?at_medium=RSS&at_campaign=rss) |
-| Entire Ukrainian family killed in Russian drone strike, officials say | [阅读全文](https://www.bbc.com/news/articles/cdxqdpgznzeo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -25,9 +25,9 @@
 |--------|-------------|
 | Democrats Stare Down the Political Risks of a Government Shutdown - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOQ2k3c1B4Nkg4OG5Ta0FyUElXV3V4YmMzRWF4QVdZUHU5djUwczM1Y0Zqa01pY3FKVF9yZnJid1BvakE4ZmpNMk4xUHNEQVhXVXk5c2V0QWtubDRwUTRBaUZYN1gtM3F1TldvUkVqb0d1YUhCakVUVGdhSGJsR0NuVGlzZlg0WVdSN2dYRUU1cW05c0o3U3FXOVZXT215b1NMVTNCem9sbnFMYnhLaEVj?oc=5) |
 | Military leaders voice concern over Hegseth’s new Pentagon strategy - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNOVg5TFNLOXhKa0JISWFXM3Jrck9POFN1RmVLN3p1dEY0eFhwZ3laM082a1VfR0tVd25KQVMxckp4WVlsM2xvR0lqUld2M1FSZDZVRnNrQUtvUzU1VGdRY2JwSV8tR0xkQnBqal92Z2M4XzR2M0FsTVRodlIyY2dMVzdqQmhvWW9KSUFnN3F3SHV2dkU3enNMVEJZZTNMMHVFX1VjejROdC1ZSzVs?oc=5) |
-| Michigan LDS chapel mass shooting: What we know about the victims - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQZ1lqSVhIS2JkWnVJTk82QWpRMEVDdWpXaHF6VEFvVjNiZWtDWFlRR3VIR1NsUkFpUnRWaUUzRGM0N2ZxTEx2aG14dDJQVno3Uk9jT3dVT3RXQks3NGpaTXRvTnR6LXczenhHaHdfa0JJaGVScktDUHRNM0JMUUpaTHdzSWFZNWdhWDZhbDdiMNIBlAFBVV95cUxQdzN5WENaeXZuY1RnZ1J6VFlxVDdfWGpJTnltcEZxY0FoREgteXVlZV9HckJEWUZua213RzFDZ0J6dGNoU2szTk83TkpSd0kwN1gtXzJqNFY5LUl1QlZ6VC1qeUUtZzY2ZlZ1S2dpTEktS083N0JFNzlxZ081RnA0cTRFTkoxdVdnY2RYeU5rN2JNbEJB?oc=5) |
 | What to know about the Gaza peace plan agreed to by Trump and Netanyahu - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNTG4xZ0lONkJCUVlab2JUeVdiOC14Tk0wYlpHTGNnMWpvVHBPa0EzRE9JYnNmQ1ZDMDF0VkJLRERzUFlJMjg3N2tIYWRXNk5HR1UwclRaMzJLOEFMd1RSX0NZWWpteEdTZ3ZXSVdRamZZUUlqbmZEYXZXOTZBMk5nU3E3cGFVY3ExQmppV0w0VF9TWl9KRmZ2ZkRrUWVGaS1JeXg4?oc=5) |
 | YouTube to pay $24.5 million to settle Trump account suspension suit - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPMm85djRhaGdyQjFNVWlCMU9QV25yd2NLTEUtYlhBVi1GUUxpN0kxTGVhbXZpRUVWY08yYXdnVVp4bEp2TjZ5N3FUUXVCY3ByQUtBVlpEZEhlSXNnalNzblZXZS0yb09HRUhzc1Y0dTROM2JkTGg1Rlp1MmhCMGdhb1Y4QmNjbmdCd0Z0a3drMVJVWVBkS2NCbjFqV3hLcmV6RWk3cHZVaWZFc21lVDFtZF9lZEZiM2M?oc=5) |
+| Michigan LDS chapel mass shooting: What we know about the victims - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQZ1lqSVhIS2JkWnVJTk82QWpRMEVDdWpXaHF6VEFvVjNiZWtDWFlRR3VIR1NsUkFpUnRWaUUzRGM0N2ZxTEx2aG14dDJQVno3Uk9jT3dVT3RXQks3NGpaTXRvTnR6LXczenhHaHdfa0JJaGVScktDUHRNM0JMUUpaTHdzSWFZNWdhWDZhbDdiMNIBlAFBVV95cUxQdzN5WENaeXZuY1RnZ1J6VFlxVDdfWGpJTnltcEZxY0FoREgteXVlZV9HckJEWUZua213RzFDZ0J6dGNoU2szTk83TkpSd0kwN1gtXzJqNFY5LUl1QlZ6VC1qeUUtZzY2ZlZ1S2dpTEktS083N0JFNzlxZ081RnA0cTRFTkoxdVdnY2RYeU5rN2JNbEJB?oc=5) |
 | Trump HR Office Sanctions Agency Firings if Government Shutters - Bloomberg Law News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNVE5OV0FVWHN5ZTV4bkNDNmRrNjhmNldUeHluMkFzYjg1d1FMM0l1S1NUNU9jZG5VcmQ1aDVqYVI3R19NOTFUUHZJcWRBZ3dGWlluaDRyRklMMkxPTjZ6NlJ6d3NKTWlVSzEtbUVsNGdfWDJ3WHcxcG5hVjRuU1R0aktpM0d2ZE9HSkVXNTlkWGpjRVh4ZEUxTEZIWS10NVo2RDVseUVjcjNldW1HcmpJMk5R?oc=5) |
 | Iowa revokes license of schools superintendent arrested by ICE, saying he is in US illegally - 5 EYEWITNESS NEWS | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxOVDZuVjJTUVZPYW1iRDc2ZUc3dmluRExLQ0o4Uk1hUEFNUEo4WlFOeGdSYUdHc2p6c2t5TThlcngwYThsS1BzT2dkcUpFYUNWM1ZfaFROTW1kRnVvSDJuQTd0MVMzT3V3Qm4zcWFnSHlLMDFjRmhaVWw4RjlQZENSUUNKdmMyZU1tMVpObncwdno3OFBSVkJ4VWRTckFidlpIVm1qT3ppby1mVnM5ZktJWXNvMFBjNkdmT2FjZkh6WUUtM21vcjNV?oc=5) |
 | Illinois governor says troops could be deployed to Chicago as immigration agents patrol downtown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNc0NnQ3VLY04tbzViYnU5dVdmRXVqVmo0VXFLcHk0R3EwS2tFeWF6SzFNdDdkTC1yMnE0WHdlbUQyRjFPSDhSSkJKYVp1enFjTzd0OXZndlJmbHNfVGY5WTJoWUp1aUNhcjVsSEE1aFZBbnpLcXRacTNxaTFhcUZyN004UDBZSkdSR1djdTFIejhuNm1CTzhDS29xdEdhOE4zN25mOWM2Zmk0TWdibXd3?oc=5) |
