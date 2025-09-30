@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月30日 12:16:18（北京时间）**
+🕒 更新时间：**2025年09月30日 12:24:54（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Federal employee RIFs can still happen in a government shutdown, OPM says - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxNZVVBVF9PSzVKc1FTM0x6YnpwRkZFLWptbW02MEtIMDk3Y1c3ejctTFdmWmxMS0k0dTVKVUFlQzE0RXJTcGgyc19ZWGVaaVc5ZTlGbHpDQ0liN0NEYlE0cUtUdTZQdTM1a3ZoTE5VTFFNVVk4X1ZrRDM2OTFyVWZwWHBIb1BLY3FWZGgzcmF1MF9RSHR1NTg2UUJGclYtQ2s1NGx4QTZiZzBhRFBPTmpDeDdkejlNMmo3SEpXRXFaQ2JnR1BkVWVYVktQZ1c?oc=5) |
 | Illinois governor says troops could be deployed to Chicago as immigration agents patrol downtown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNc0NnQ3VLY04tbzViYnU5dVdmRXVqVmo0VXFLcHk0R3EwS2tFeWF6SzFNdDdkTC1yMnE0WHdlbUQyRjFPSDhSSkJKYVp1enFjTzd0OXZndlJmbHNfVGY5WTJoWUp1aUNhcjVsSEE1aFZBbnpLcXRacTNxaTFhcUZyN004UDBZSkdSR1djdTFIejhuNm1CTzhDS29xdEdhOE4zN25mOWM2Zmk0TWdibXd3?oc=5) |
 | Iowa Superintendent Arrested by ICE Loses State License and Is Placed on Unpaid Leave - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPSVRtUDdWVWFBSG42cGFDTlBSVk9qbjVZNUVTMDJoeVBZUE1UaWU5bFhSMWlraXZjT2lPdGl5TUkxd3BuOS1KVG16LS10bE92Z21Nd3Q3ZWZLVjJXYld2d19ZYUJFUkFkS0p4dDdkeks0RjdBLWFKRHBXYmpONDRhOS1EUXZLY2M?oc=5) |
-| Judge suspends Trump administration's plan to eliminate hundreds of jobs at Voice of America's parent agency - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQSzI2bV9JVXUzWEN4dFhmOU8wN3Y2Mi1GVnVXWGMyUFlHM0M3dmM4RUZFVnlpSEh6M1hLMWhIYUJJT3VfTDBJNVU5TGY3R01xZ0J5NWFQdzJ4SFJ6a1gyU3VzdlpIcU0tbHc2OURFME0xT1l4ejJUOElCLVRZRjk4NXd3MjhOVjNMbEVLbUplU0QySzQ3UmJR0gGcAUFVX3lxTFBtdjBIZDlvWXRyaFljSVlWN3N2NzR3bHdiQk5ZMVItNG4wV2doc3J3Qy1jSnFnN0V0dUNNekgwMWNKXzZiVlF2VF9US3VDaU1OdXRPdElzc3BuMmhKQWJRdGk2SVB2ZFVFSkgzblpDRG5OaFM2dFNJblhRNTJFT0kzQk13WklrQktmcllfRnhHX0UwcDNlT3hKMWp4RQ?oc=5) |
 | Detective's shirt brings closure to families of yogurt shop murder victims - Austin American-Statesman | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOdmxSY2JnNUNKTjZRRkN4MTNRQ3FrT0J6S2hOZU5MR2RkcUt1LWpXUEZwUjgycFFNUTAya2JXTHItT2YxcU4yT0lfSmdKSlZKUzB0M1pDa0pjRVhpN3k2c0I4bWg4QktNNFZGTWdieDJyTDB0WmJNaUI5WEFrc2hrUklIVUs4Rm1PdVNVNTFLcWF0eF9aWU44MXIzNlhMbWFVVjdWSFZ4TQ?oc=5) |
+| Judge suspends Trump administration's plan to eliminate hundreds of jobs at Voice of America's parent agency - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQSzI2bV9JVXUzWEN4dFhmOU8wN3Y2Mi1GVnVXWGMyUFlHM0M3dmM4RUZFVnlpSEh6M1hLMWhIYUJJT3VfTDBJNVU5TGY3R01xZ0J5NWFQdzJ4SFJ6a1gyU3VzdlpIcU0tbHc2OURFME0xT1l4ejJUOElCLVRZRjk4NXd3MjhOVjNMbEVLbUplU0QySzQ3UmJR0gGcAUFVX3lxTFBtdjBIZDlvWXRyaFljSVlWN3N2NzR3bHdiQk5ZMVItNG4wV2doc3J3Qy1jSnFnN0V0dUNNekgwMWNKXzZiVlF2VF9US3VDaU1OdXRPdElzc3BuMmhKQWJRdGk2SVB2ZFVFSkgzblpDRG5OaFM2dFNJblhRNTJFT0kzQk13WklrQktmcllfRnhHX0UwcDNlT3hKMWp4RQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
