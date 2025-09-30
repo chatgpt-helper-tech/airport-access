@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月30日 11:16:23（北京时间）**
+🕒 更新时间：**2025年09月30日 11:24:50（北京时间）**
 
 ---
 
@@ -13,8 +13,8 @@
 | Starmer to say Britain 'at a fork in the road' | [阅读全文](https://www.bbc.com/news/articles/cn4w37x524wo?at_medium=RSS&at_campaign=rss) |
 | British veterans with hearing loss start legal battle over 'faulty' earplugs | [阅读全文](https://www.bbc.com/news/articles/ce84e4egp38o?at_medium=RSS&at_campaign=rss) |
 | Missing Cheryl Grimmer: Family's anger over police decision not to contact witnesses | [阅读全文](https://www.bbc.com/news/articles/c1ed4g1q52no?at_medium=RSS&at_campaign=rss) |
-| Chinese woman convicted after 'world's biggest' bitcoin seizure | [阅读全文](https://www.bbc.com/news/articles/cy0415kk3rzo?at_medium=RSS&at_campaign=rss) |
 | Nicole Kidman and Keith Urban separate after almost 20 years | [阅读全文](https://www.bbc.com/news/articles/cdjz7r8jk3ko?at_medium=RSS&at_campaign=rss) |
+| Chinese woman convicted after 'world's biggest' bitcoin seizure | [阅读全文](https://www.bbc.com/news/articles/cy0415kk3rzo?at_medium=RSS&at_campaign=rss) |
 | Trump texts McIlroy - Europe troll US President in reply | [阅读全文](https://www.bbc.com/sport/golf/articles/c07v0dmgjezo?at_medium=RSS&at_campaign=rss) |
 | Secret filming exposes dangerous trade in illegal Botox | [阅读全文](https://www.bbc.com/news/articles/cn82z3grpd3o?at_medium=RSS&at_campaign=rss) |
 | Why I want Nike, Adidas and Puma to sell single shoes | [阅读全文](https://www.bbc.com/news/articles/cewnje717rqo?at_medium=RSS&at_campaign=rss) |
