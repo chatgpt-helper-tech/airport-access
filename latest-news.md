@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月30日 08:40:58（北京时间）**
+🕒 更新时间：**2025年09月30日 08:48:25（北京时间）**
 
 ---
 
@@ -15,8 +15,8 @@
 | Investigators search for motive in deadly Michigan church attack | [阅读全文](https://www.bbc.com/news/articles/ceq2vd15glwo?at_medium=RSS&at_campaign=rss) |
 | Europe captain 'thinking about' third term after Ryder Cup victory | [阅读全文](https://www.bbc.com/sport/golf/articles/cx2x4v79yv1o?at_medium=RSS&at_campaign=rss) |
 | JK Rowling dismisses Emma Watson as 'ignorant' over trans rights row | [阅读全文](https://www.bbc.com/news/articles/cr7012ryvyyo?at_medium=RSS&at_campaign=rss) |
+| Secret filming exposes dangerous trade in illegal Botox | [阅读全文](https://www.bbc.com/news/articles/cn82z3grpd3o?at_medium=RSS&at_campaign=rss) |
 | Scottish schools must have separate toilets for boys and girls | [阅读全文](https://www.bbc.com/news/articles/cly6rgeke58o?at_medium=RSS&at_campaign=rss) |
-| Delay online GP booking system or risk patient safety, doctors' union warns | [阅读全文](https://www.bbc.com/news/articles/cqje8dljz7eo?at_medium=RSS&at_campaign=rss) |
 | Mother to be charged with murdering three children | [阅读全文](https://www.bbc.com/news/articles/c1mxkr37r8do?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -30,9 +30,9 @@
 | Trump considering supplying Ukraine with long-range missiles, Vance says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1kNW5iRFFLYjJuT2pkaWIycWh5WHlQQ3JiVUJEN3NzSS0tZGhBNXZzQWpUaUNkQW5ZRzZQWGw3RTlpWEpjenZVejg0ZWhkLWZIQXRlOVJjelpEd9IBX0FVX3lxTE43WUZUMUxtWmsxVXloVXd5MVg2N0FIQzFmMnVDVXlOTnA4R3owQkhicTc3RFk3WU9aVG1ybzNjUC0wUUtIbmZzWnpuS09GT2RPSUJTaC1rSmNRYVFzN3lr?oc=5) |
 | Inside Trump and Hegseth's unusual meeting with U.S. generals at Quantico - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBiSVh4djNvcjBkOVlhV1BzSDlIV0Yza2tzbWF1VHotemhKLTU5UnJUdVIyVkxhbFR5cFlGRzdTS2dlZ0ZLX2wyR04xZ0xRdjRBOUtlM0lJV1FwUXRqTWxfclNmYjdXUUt4MGdvTjBoZWlNS0pxQlJVOXJqcWI?oc=5) |
 | Shell Casings and DNA on Fingernails Helped Crack ‘Yogurt Shop’ Murder Case - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5MMHVUWXNtTWIyeE12bU5NTl9sdUJ4eEpkSzhFNWZ0dGJvN2dQVFVnd0phMGRvcjlzbEp0NVB1X01IeGZuVEkxTVlHYW82czhUZ0tWTkZWdjZrRUswRUtKMTh2ZUJuS2NuZ294bW1URTNIdHFteE9hdlZhXzU0Zw?oc=5) |
-| N.Y.C. Mayoral Candidates Move to Capitalize on Adams’s Departure - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNQ3JwSzdzbUlJekZOUUtXemI4ajJoa2tyb1dxOE50dHhkY1RIUmxualBiWndJeEpIdEdPSWhpX3E2MjBfWkVRX3FGcVp0RzRuTlVnbTAxNXRoX0ZWWFlwYm9UWUY2ZXU2QlZBZWN4X3BkTmgwV212bmJFNUZIT0dCTDQtT1M?oc=5) |
 | Tropical Storm Imelda: Tracking the storm's path near the Southeast coast - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPVnk1b1pjM2wxRERBTXNXcEU1cDNHSm95R2I3TFY5RnpSVFdhajEyS2N6YzFmSm1qVm1HVm1sR2FsQkk2QXdrMVlvU1Fjb2xYSmFKalg5M2p5X0l3bWdieXExODJjZXVaVUFwUzNlbXlFa3dpS3R0TUctTnpRa2dnV1oxZUZVVzJfdGxJM0VrV2ZXUW9ob3lHTdIBngFBVV95cUxPQVJWdEliOE5udmZVRG83ZW52RjlzRWxfdmNXVU5YWG01dlMwT0xmcU5rdzMzR0Fpb2M5NnNKaEdORjhQNE9TVDN4LTBKUkx2TUoyNXRWUmJYVFM4Z09rNzNEYjBZQ3d6bFc3bVlkYWZ6VXNNcE5VSTZHaHptWnJsMXVCTkFuN3BBMzVXbVJRYXlpNTVOWlBjMkpCb3ZhZw?oc=5) |
 | Portland councilor, Army veteran, calls on service members to reject Portland military deployment - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQb1NVeUVYNVJtWEctd1JXaV9EVXJoUzJqVm9hdHAwTHUtVmJPX3ZJWTg4LXY2SVQ4Yk00WTFPLXY0TDg1VVVfVnJSeDNLQnRleGhFWTRvZ1BqOWc5UHRXVW1ZdUVrQ3VCY1djTzdjckxRM2hoc2t3NUFIQzc5ZVZnQWJSLWNUSE9mamh3NTNtWTRZOEYtYVBYZlhQWVUwd3IzTUpKdmthZVNJRy1TTkotMmUtb19Ud3BXSm5wejdSQQ?oc=5) |
+| Man charged with killing 3 at waterfront North Carolina bar is decorated Marine veteran and Purple Heart recipient - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNUmtScFZUMUQtYzhCM3h2QTJTZThDUXZjcEotYTJaSUh1eUlCa0cxRG00LXZ0dnZEQ3pFRG1NdW9kTFE3RnFoM0FpRlh4TDBCcEwxUlV6RnZqSUl4d09wem85R3gtNk9nX01uQUJVeXRMTmJwWDVudHA2czlQNi1mRG5XajBNd3dJS2Z5M1lvLUJyWlFvNmfSAZsBQVVfeXFMTWJBSWdhNGZoX1NlMFBGTHIxZmNWbHlJc2psQ1dnbU9FNUNjbVRKS2FHdzZRM181STAwZXZ1OTdHdlZIcFhicHluQXB2Q0o1bGJXcno4dFpjTWw0cWxCYzlwa1o4Q09OTDdNLUFyRmQ2aEtrYkRwRW8tc2N1cjBuT0hYMUp4RVRRU2tCbWF0UGpiNDg5VUI3RWpma0k?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
