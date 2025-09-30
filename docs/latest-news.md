@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月30日 14:24:35（北京时间）**
+🕒 更新时间：**2025年09月30日 14:33:55（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trump and Netanyahu Tell Hamas to Accept Gaza Cease-Fire Plan, Or Else - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPSUZBdXVlUGpCUUVsU2lDY3Q0Nzd2eDVVSzEyVUFQOEZwS2RYMWVIdTFHSXg0OV9RRmV1cUdtUk1VMlZTQm1FYmV3ckNIaFp1d0N3bXZVYmdDZ1BXUzRSdUxsMlQ4LXdzSzhQYlNOejRaY21SSE13TjlaZEl5azFITVJ6aVVDUkdRTElv?oc=5) |
 | Trump HR Office Sanctions Agency Firings if Government Shutters - Bloomberg Law News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNVE5OV0FVWHN5ZTV4bkNDNmRrNjhmNldUeHluMkFzYjg1d1FMM0l1S1NUNU9jZG5VcmQ1aDVqYVI3R19NOTFUUHZJcWRBZ3dGWlluaDRyRklMMkxPTjZ6NlJ6d3NKTWlVSzEtbUVsNGdfWDJ3WHcxcG5hVjRuU1R0aktpM0d2ZE9HSkVXNTlkWGpjRVh4ZEUxTEZIWS10NVo2RDVseUVjcjNldW1HcmpJMk5R?oc=5) |
 | Iowa Superintendent Arrested by ICE Loses State License and Is Placed on Unpaid Leave - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPSVRtUDdWVWFBSG42cGFDTlBSVk9qbjVZNUVTMDJoeVBZUE1UaWU5bFhSMWlraXZjT2lPdGl5TUkxd3BuOS1KVG16LS10bE92Z21Nd3Q3ZWZLVjJXYld2d19ZYUJFUkFkS0p4dDdkeks0RjdBLWFKRHBXYmpONDRhOS1EUXZLY2M?oc=5) |
-| Pritzker says Trump administration seeking to deploy 100 troops to protect ICE in Illinois - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOWU9DSGNvWXNseEZGNjJEYThfcFl4NE1mbGxOUmVYZk1scXdCdVRtVlB0eTdMbTRuY2xhelFla1BBaGlMV2lTNTNFUW5KX0djbjM4WFZjS0M1cDZ0akp0UUl1V0ctUDlhS19iYlYyS3BQTlV2TFBGR015d0gwSTduX3dYbGg0QXhKZzVoaGhLalJFMTZBcVNJ?oc=5) |
+| Illinois governor says troops could be deployed to Chicago as immigration agents patrol downtown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNc0NnQ3VLY04tbzViYnU5dVdmRXVqVmo0VXFLcHk0R3EwS2tFeWF6SzFNdDdkTC1yMnE0WHdlbUQyRjFPSDhSSkJKYVp1enFjTzd0OXZndlJmbHNfVGY5WTJoWUp1aUNhcjVsSEE1aFZBbnpLcXRacTNxaTFhcUZyN004UDBZSkdSR1djdTFIejhuNm1CTzhDS29xdEdhOE4zN25mOWM2Zmk0TWdibXd3?oc=5) |
 | Judge pauses cuts to US Agency for Global Media - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNcWlQdXp5cEloMVBnT1FGVmtuLUxqX1dCNzR2eWJ0MW85RDByR2NjMWltRjRlT0JJMHJKX1ZXNkU0ZVFwTFVoSWxzbXRGQ0dFd0N0eHdyWTNjMUlxN283VllXMVp5NlFaZ2xhdVNaemRDYWFmeTN0bnZETm1menNSZWp1Z3htUkNZNW5iakpnRUVnZFFmTVQxYkkxWTRLdw?oc=5) |
-| How Cuomo plans to seize the Adams-less moment - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNWnlQU2Y4cmlFUFZraXUzMjc3ZlNGNkNMZmNzcGd2MHgwT1J3eWdNcGtKMmtuMm1rUmdDNHRUd1ZGZjRXTFNvdWVyREZTb3RxXzdNZTZFbUQ1bC1GaWwwQXJTQVVjRDJoVHJzTlgzbmNwMFZBd2JmclZGWUxOWmFFT2R6SVUtX201aS1nN3VKTERwYk9sU3hmSWVGTGg?oc=5) |
+| Tropical Storm Imelda: Tracking the storm's path near the Southeast coast - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPVnk1b1pjM2wxRERBTXNXcEU1cDNHSm95R2I3TFY5RnpSVFdhajEyS2N6YzFmSm1qVm1HVm1sR2FsQkk2QXdrMVlvU1Fjb2xYSmFKalg5M2p5X0l3bWdieXExODJjZXVaVUFwUzNlbXlFa3dpS3R0TUctTnpRa2dnV1oxZUZVVzJfdGxJM0VrV2ZXUW9ob3lHTdIBngFBVV95cUxPQVJWdEliOE5udmZVRG83ZW52RjlzRWxfdmNXVU5YWG01dlMwT0xmcU5rdzMzR0Fpb2M5NnNKaEdORjhQNE9TVDN4LTBKUkx2TUoyNXRWUmJYVFM4Z09rNzNEYjBZQ3d6bFc3bVlkYWZ6VXNNcE5VSTZHaHptWnJsMXVCTkFuN3BBMzVXbVJRYXlpNTVOWlBjMkpCb3ZhZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
