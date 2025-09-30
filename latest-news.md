@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 03:56:56（北京时间）**
+🕒 更新时间：**2025年10月01日 04:00:36（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump defends troops in US cities after Hegseth decries military DEI efforts - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOc1lyR0hQdnhDYkYzTjY5cXE0V0lDcWZCelNRb19vczZFSERLQlhja05iM2xLTnJna196My1MZmw1RVVSLWUxR2ZHb3ZxdTJVS3FvN1hjYkdxSFUtSXpGMHd5dFZtVUpBZktCaExNRmg4QURSLXdlWmhiWWlyWWtGcDgzTnQ1OVdwX0FhR1VfUVVnZGRwRFE?oc=5) |
-| Trump warns Democrats of 'irreversible' actions in government shutdown - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNdXNiQy1vWWJVRTRYNDVGMThzQ19TTktZbi1tUlZ4S0NjZnFWVDZwbjZNMEFEblhKd0l3VUJjUFVnMk5iWk5lRk5PYU1xQWVOYmtMZC1mZTlQbjR6S0RZNHpyelAwdGZlOHRtc3l2a1VfV2pJQ041dEdYOTdrd2pFcnN0TFBhUGwtZEc5Tl83ZVNBSkZrUDNueG13?oc=5) |
-| Trump announces ‘TrumpRx’ site for discounted drugs and deal with Pfizer to lower prices - CNN | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBHdmZZN25DQkptdXpzNE92Q0s4dzlOTVAzNmlkUEZ5d2JGWWdsTDhmcktsUVVMcTRrQklEV015Szg5eDEzZndTbFJRRDMyUzNNVFZnenEzUC1LUEVxRWx5UnFpMWItSWhtUnkyX3dyOGNUUQ?oc=5) |
+| Here’s How a Government Shutdown Works - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQbXVBUmVITnA4dV9Fb3pjbmx0NEhLRVJDZ3dUU25NUmNpNGJMR011ZUloZmR0TjVHeHphTnpXWjBmZ0xFZjZuajUtdVhDREliUEVUWjdmUmpaaTNZMEpWWEJiMDRjT29uR0tBY2QycTlqRnZreDF2ZndUQjFtWEcySUZHUlVQcG8?oc=5) |
+| Pfizer does deal with Trump on prescription drug prices - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQaUk5RDBZWm1TQVRFOVZPT2RpLU1KYnJXYzAtNkFBZVBFc3l0bGYybFZlZUcxcTQ2cHh6OFNfOGNXS1QwcURGdm5PS01JRklBWF9NaHYxUFI4WlB4N3lWOHo5dnJGQkFINjFDWk83TzQtdzRmb09ubF83UTN0cThWNi1PQTRXZ1hkSXdjVFhaRks3OWR1b1dxNEc0ZmZfTnJTd2QyQ19iUjlzREx3RWc?oc=5) |
 | Trump peace plan 'ignores interests of Palestinian people', Hamas official tells BBC - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9Fc2dMblpqOTdiVDRpVmQ3S241aUNuVmk3UEN2LWFQQkdwcGtrM3ZzR3ZFVm5MZUUzdGROLU8zVDc4aUhLR0h5bWRpTWJLUldaV3pBVG1jbWpuZ9IBX0FVX3lxTE1kdVhPLUJzdEVUSGZFemFXSmJZVDVqTVRpaVo5aWFGTHhndjN0eW9iS1JrTU1nR2U2cTU3TWNwZ1U1Uk9kUnJvT1U2a2l0YXU3dDV0Sm4wb1Y1bXVxOVRF?oc=5) |
 | At least one killed after strong 6.9 magnitude earthquake strikes central Philippines - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5CdjdsaEFjSVNURlBNQUpIUF9qZ0xqV0pGVDZaRklyR2daNGlFenhfYTk1cUE5dkxqS3oySHNkNWM3U0N2cV94X1lXdHpfNExKeWVKei1RNGlYX0JLT3JHWHBVaFJfRUVIU3Q2cW9FQm9Hczg5NkN5b094R2E?oc=5) |
 | Judge finds Trump administration unconstitutionally targeted pro-Palestinian students in searing rebuke - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNWWwyenV0U1ZqNjNQSTRqWjlsNDJBdWlYTVlmX1FFR0dIY3NEOFE1WFNvRTdtVm5LaExwS0xYeTE1MHI1X004Z2NfN3NHZmRSdlNIM2FJYzR0c2ZzLTc2ekxnOGJZR3NxRDVQZFFuN2hOMC1aczBqNWphN2Y2ZDlXX1VvNnlOdURfU0wwTXBLZFM4VXQxNEpHTlVkQ2xpRnJDcVdOM2FsZHJiV196dGtNVFZjUzl4UdIBuwFBVV95cUxNUWNPWldETEJCTC1UcWZRU0FmdmtEbVFSWE1GdTBHXzgxelc4YTFXZzhURDRlenZaT3c0VHZlNmhKMU1hVEZvMFNSZ2pRNy10SVFiZmhiMkk2NklTaUpTX3p0VUMxZm1WYTB1OGZ3c0JoZjhXNWc3OF9TUDE3M191a2Q2N09UcUMxM1RRa0FQTGp2elh2bTdpSjR5TTd4TzI1cXFCaTRyUjQyUGdMVjc4NXlMNGdfSmRXVFRj?oc=5) |
