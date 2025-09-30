@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 07:01:59（北京时间）**
+🕒 更新时间：**2025年10月01日 07:09:22（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Qatar, Egypt and Turkey urge Hamas to accept Trump's Gaza peace plan - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOeHlpLWZjbFpUazZha2YxampoeWJfUktad1haSV9tMC1LdTZjNVdqUkR1OElXbmxkeG9uODl3MGlMUFBuTDlwQnJPbzRpMG02MGdKakVDcjUzY1RoVFFSVTlYcC1VSTl5dFYwUDNCTlVkOXZnTUJhZjRuNWxjdGJULU1MODFjRWNKaGc?oc=5) |
 | Iowa school leader resigns while he challenges his deportation order, his legal team says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQMEZTNXMwMHVvb1NybUVDNXNBN1h0X245ZGVSSlhNbDVhbW1zNGVBNTJHeEdFU1RtcTBSZzRONzhRaFNVTVpXZlBuc1BwQXlxcUhVQ0QxR18tZndwSVNPeDFLRjdlUXVIVzNEeEtCSmtPVi04NDdET3dZckRMSGF2Q3lpZ2JxOU81ZThtR1U5a3M2TTEwdy1vdWgwWkZHd3ZaWVRCM0FqalJZQ1hRcGZELXIyODhSWm1KOUHSAVZBVV95cUxPZkRCOVdjSEVicTZnSndoVC1HVHF5ZzBxbXNGakZaZm5sZjgwN3FKRWZudkpOb25sUDhzNWJSOHBKQk8yTXlOa3RkdHA0MUxFaERwSGpfZw?oc=5) |
 | Family, friends of Grand Blanc church attack victims launch online fundraisers - The Detroit News | [阅读全文](https://news.google.com/rss/articles/CBMi5wFBVV95cUxPT001VlB6a21XRnpRMW8zWGt3SUU2b1VVTmd2X2dBbmstM01nNm5zM2RGTXBkNnFWQjFNSVo3RVlmdFBiVlVpVmFVdjlGUmtzQy12N01WQ29xTEhQNGRCLVZZd3FUYjU3N2xWNGN1SlR3TWRMUmZZRGxtaUZjY0tObWNKRHZpMlYwUElNakJ1YmFsa1A0ZGpaVnlJZk41UThwU2xRTGZCcUE0TnhGaEhveHdaXzZWa0FjbGFUWWxaSlhoNGl5Q05DMnRyTzBQQmRNWGhtRDJpaG5ZUzdIVmg0ZFJyWnRpclU?oc=5) |
+| Congressional leaders continue blame game as clock ticks toward shutdown - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPNlpkOV8xaTZnam5heVIyOUhaejhURV9fZ1ZfTGlGN212M1BFVld6bEYtX0lXd0ZwUjZZVHVhWHpXbEtTNE1NS3NzTlZ2c0Nua1lyNzdNV2VPd1RGcjE2LUY4SkEtT1VlYmxwY2xDN1lzODZEZVlmc0taNEFYVl9TSS1wTVVDQ0RJUFFJX3dJb2VsRnR5WDBYYnI0c243ZjhuSHFFZU53aElmNVlfWFhOeGN5UdIBuAFBVV95cUxObVY4SC1LeW1KZDZJWXdtNTZ1ekxfakhfUmZDSnRWeVpsVGgySk9hUTRTX3R3eUFiSGUyekNKazctVGdHREdqTFctQWRVSWFnLU9lamNiSGREQWlPNFVLX3hOQTFqamZ0WEhiMnpUTS1sb1dlUTVaMTZvTWpIY1FaYndvMm9xU2pndE1fbVNRcUh6cWZfNlJhdGROM3N6OHVRU1o1OWdSM0xGUExNbG5EOE9ydkhRR2NP?oc=5) |
+| Trump targeting of pro-Palestinian campus activists for deportation is unlawful, US judge rules - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQNU5sbFdzNld5bDRpR1dObFdNQk5tTVI4SFNVQjZhd3lXR1cyRjhuRVRFVDNtZXd6ZFNEZTl4ektxZ2JaUzI0c2IwZll1MmhjR1ctVVFWd3k2Y3FCdGc0eXkwMjVicUN2Yk1NQjVDQl82VVc2OGJ3NTlfcTdnU0ZYSWNRREs5bDAzNVNFaDNnWGZMN3BjaXFNSTc0eGJnVHB2MzYxUWtjQm9nMUlheEo3eTkxaV9PY0I4eEhBMDlqT1NzZw?oc=5) |
 | The Obamacare subsidy fight is already splitting congressional Republicans - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOUHRyRWM2dEFTTVY1Nk9qQ2xJWVZ0ZnlLRGhwb2ZCVTlRcXNLQTlSYS1uMDRzYjQ3NTNfa0JsQlpqX3d4NjJnSUpTRWlxeENzVlhVTnFaeXpLWlNJekM2RkdMWGFNM2RmOV8xOEJOZ0lTOVpyUDVDRnN2eGF5RUltX09rdDFFdmNiU0ZCSlVORDRIQQ?oc=5) |
-| Trump to Americans: “Go F*ck Yourself”; shuts down Republican-controlled government, increasing monthly health care costs by hundreds of dollars - California State Portal (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMigwJBVV95cUxNbF9KQ1owRlUyUVVOc0lqQUhQSW5LRk8tQ24ydWhYWWdKV1pBT0p6M1pGRUY0N0g1S3ZaeV9Ob1NxTV95NEN5Wk1vQ2RQWEtjaS1RS0hNa1lJOWxVTzhLMkRZbFYta3hSN05TZVBrQnRLbDJfQjRrdHZJem5Sc1NqN2tybkdZVHFWaEtWSUZmUi1EdFYwYXJjWTNxSzBTYlhSQ1liWmVBTHFZUk1EQVJqVUQtc0hoVEtpYzl0M09mVEFXU3k2dTVzejMtRkFGNFlqUWFoN09fSlR2QV9SR1psdE9jLWlyeTZBdFZDTVdlZnI2YUlXOHVmM1NOb2FrWXNCZlNF?oc=5) |
-| Louisiana’s governor asks for National Guard deployment to New Orleans and other cities - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPMkRxYzBHQURIQWtkdWh0NzdyMHJaR1hSVEVILXNzcHlJZmV4bHltdGtzclFDMHZOUUhPZXZXNGE3ekhyVDQzSENRMENLalRPbHRBVjdMU3VJMHhqU2xmMFM5TUhsT0JZc3otckpUNWxzMVNyVV9CbGRPdHVjaU5lQTNHYXN4NHJNOHBmcHVPVlVBcFNscE5FUHVWZm12SXdlYlZSYS14Vkp0dw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
