@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 05:56:10（北京时间）**
+🕒 更新时间：**2025年10月01日 06:00:42（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Fact check: Trump falsely claims Democrats want to give free health care to ‘illegal aliens’ in government shutdown battle - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQN0JZbFE2dlFxVjJvMmhXeFBtZFBzSXFpbXkxem9NbTRYWGZWeU9NUTJBNGhlZHlIVENEdXRFRWgzV1dsYU1OLWNpWVE4dUNiazFYdEVjelNlUXJwWFFfUnBQc2FFODZrNnc4Z19mNnMwSHNZdlRJbkZYeGs2aS03OVhraTRkUW9paW96S1Nn?oc=5) |
 | Trump peace plan 'ignores interests of Palestinian people', Hamas official tells BBC - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9Fc2dMblpqOTdiVDRpVmQ3S241aUNuVmk3UEN2LWFQQkdwcGtrM3ZzR3ZFVm5MZUUzdGROLU8zVDc4aUhLR0h5bWRpTWJLUldaV3pBVG1jbWpuZ9IBX0FVX3lxTE1kdVhPLUJzdEVUSGZFemFXSmJZVDVqTVRpaVo5aWFGTHhndjN0eW9iS1JrTU1nR2U2cTU3TWNwZ1U1Uk9kUnJvT1U2a2l0YXU3dDV0Sm4wb1Y1bXVxOVRF?oc=5) |
 | Michigan shooting victims: Navy veteran, beloved grandfather among those killed - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQZ1lqSVhIS2JkWnVJTk82QWpRMEVDdWpXaHF6VEFvVjNiZWtDWFlRR3VIR1NsUkFpUnRWaUUzRGM0N2ZxTEx2aG14dDJQVno3Uk9jT3dVT3RXQks3NGpaTXRvTnR6LXczenhHaHdfa0JJaGVScktDUHRNM0JMUUpaTHdzSWFZNWdhWDZhbDdiMNIBlAFBVV95cUxQdzN5WENaeXZuY1RnZ1J6VFlxVDdfWGpJTnltcEZxY0FoREgteXVlZV9HckJEWUZua213RzFDZ0J6dGNoU2szTk83TkpSd0kwN1gtXzJqNFY5LUl1QlZ6VC1qeUUtZzY2ZlZ1S2dpTEktS083N0JFNzlxZ081RnA0cTRFTkoxdVdnY2RYeU5rN2JNbEJB?oc=5) |
+| Judge finds the Trump administration unconstitutionally targeted noncitizens over Gaza war protests - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOcXcyUmNBY2xrd0FmUHgwSHYzZ1I1Y2NINmVmY1BGcHlNWVN5cE51MEV1dDBiOWNPVXBSZUVKX19TVl9DaW0ydVNmS0twdzdYQnU3bE52OFVQQzNNV25YR25VWXZ1czUzZ3JPUXZxS29tUEM3RW1uWTB4ODA1T2M0ZXc1QkNfc2Y1R0dUT3N1dWhMQlR5dEsyUTJUSmtfdVNpMVZLNkRCYWNsb2NvQ2h5SA?oc=5) |
 | Louisiana governor asks for national guard deployment to New Orleans - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOMXFGUVI3XzdhVnZtdlIzWWc3aUk5em1LQWhJb09iY0NqWnFWWmhvQjBaS1IyejU3bDc1VWlYZEdZSDZfZ2pLMEJhNDZEcTAwUWM2WHhqZE1LQjloRHRqMlBoTEF3Q0lNYjNxUkpUMFg0dkYtMjI3LWtocXpqZnMyTW5nT1pNM2RVZ1pDOXE2RTJGdHgzWjRNNUJ3WS0?oc=5) |
-| 2nd detainee dies after Dallas ICE facility shooting - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOWHgybVE3WkpXTUEyRWFkVkdOYmFfMEJsWHZnTnhiT2pteFhxenNWQ3F1VC1zLWdKNUoyN3p3Qm1sX3B6Q19kMW9Sa0lvalY4N0NjTkVJZjRBT05HaTloNllzZUpNcUxBWVJiSjNZblVHX05PZkRFRWFFZDRnNE1mSlJVZmZDazl4d0lPVDFVMHRXZnE0Nld6Tnh30gFWQVVfeXFMTmx0TzNnUTA0Mmc1NDFxdlJvUVNlMzRDTFN0YmNwaElLZnZMdUZ5ZEdTRnlBMUNyQWEzOVhWaXp5UndwaExCb3gxYXZkQnM3N1ROUDNGV1E?oc=5) |
 | Des Moines superintendent to resign after being detained by ICE, lawyer says - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPbXFmU1dMUnNwMDNXaEsxdjY0eUhRcVZrdFdiQ2hMRGNRV2lnNlRMOWdXZnMyNWx2WkVMeHhQSFpTSlMwQ1g5eWJabnJ4TEhkdWhXVmQ2bDRtTXdCd2k5dERWQ1VkQ1hvSVJHUE9MbzlBcDJpOE9pVHVpSVdJeXotRG5vbkFnS2EtSENYa3Rad0ZKOUpUWERrcUNTd0EtZmppdm1WLXF30gGrAUFVX3lxTFBPNm9sUVdCRHVNQ0tLU3lERkJiY0RPZzdZZXhvQUNFeXdCb25URHVwYWh5VnFxQ1FfM1N6TEFkaHgzemUyMy1yeXFkMTZIT2hsMWpCQjZCcUtyT05iSDJNdzhCVkZNVWYwTHQ4ZmlTYnBlX1JwdVlPX3lIV1dRbjhRVnhoYWoya3FndXc0SDAxc3hRemh5TXhWSVlxLVBDVlE0b09ZRGk3MFpQUQ?oc=5) |
 
 ---
