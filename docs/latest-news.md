@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月30日 17:24:41（北京时间）**
+🕒 更新时间：**2025年09月30日 17:33:37（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What will happen if there’s a government shutdown at day’s end - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxORXNnY1Vva1ZMMldXVGIxZmRaWWtlZEtYNmd2cmY0XzBBa1BGQU9Dc2V2blZOMkJHclRNWFVEVWxZamZwZTJ2VDFzQ3RmeWdsM2lBNTh6MUMtbmplVGhNVW1WUS01MUhKSEhkUHZOT2RoTUV4clZXblZzOERDTzI4YUZxYzNZQjhrcVkxQ19fR1pTR2Q0anlJeQ?oc=5) |
-| Trump and Netanyahu Tell Hamas to Accept Gaza Cease-Fire Plan, Or Else - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPSUZBdXVlUGpCUUVsU2lDY3Q0Nzd2eDVVSzEyVUFQOEZwS2RYMWVIdTFHSXg0OV9RRmV1cUdtUk1VMlZTQm1FYmV3ckNIaFp1d0N3bXZVYmdDZ1BXUzRSdUxsMlQ4LXdzSzhQYlNOejRaY21SSE13TjlaZEl5azFITVJ6aVVDUkdRTElv?oc=5) |
+| Government shutdown looms as leaders make little progress at White House meeting with Trump - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNd2NIaDlwNUZqMldsOWRhQ2NrTXhVZU11RE9IMDZONElpLTJ3NDNiX1AtZ1Q3VTNhblJ0LVpNNVBRZndKTWpfS2wwajN1Z01WZUpKVms2ZlczYS1KWXZuQ0V6MTA0TlA5N25kU1dNVWlaX1NycndZT0ZTWHNsYUUzbVl1YUVxNk5jSFl1c1pET25RVWhEWXfSAZsBQVVfeXFMUFRQV0xuenZQLVltNjlBRHdGWFFRNTFSOFpyTVpvU0g1R3Uwa3VNNVZ2djJlWWxZTHptd1p0M1VJd3UzQXltZFA4R2JNSTc2enltOUV2eDVERUhZVi11Y3ZrYlBNQndXWnNRX3BjaXUzQVJtTnRBZml2V1lrbDRPSTZIUF9taURMU1U4dkI4b1hOTVZMMGhzNmJqaDA?oc=5) |
 | Military leaders voice concern over Hegseth’s new Pentagon strategy - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNOVg5TFNLOXhKa0JISWFXM3Jrck9POFN1RmVLN3p1dEY0eFhwZ3laM082a1VfR0tVd25KQVMxckp4WVlsM2xvR0lqUld2M1FSZDZVRnNrQUtvUzU1VGdRY2JwSV8tR0xkQnBqal92Z2M4XzR2M0FsTVRodlIyY2dMVzdqQmhvWW9KSUFnN3F3SHV2dkU3enNMVEJZZTNMMHVFX1VjejROdC1ZSzVs?oc=5) |
 | Michigan LDS chapel mass shooting: What we know about the victims - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQZ1lqSVhIS2JkWnVJTk82QWpRMEVDdWpXaHF6VEFvVjNiZWtDWFlRR3VIR1NsUkFpUnRWaUUzRGM0N2ZxTEx2aG14dDJQVno3Uk9jT3dVT3RXQks3NGpaTXRvTnR6LXczenhHaHdfa0JJaGVScktDUHRNM0JMUUpaTHdzSWFZNWdhWDZhbDdiMNIBlAFBVV95cUxQdzN5WENaeXZuY1RnZ1J6VFlxVDdfWGpJTnltcEZxY0FoREgteXVlZV9HckJEWUZua213RzFDZ0J6dGNoU2szTk83TkpSd0kwN1gtXzJqNFY5LUl1QlZ6VC1qeUUtZzY2ZlZ1S2dpTEktS083N0JFNzlxZ081RnA0cTRFTkoxdVdnY2RYeU5rN2JNbEJB?oc=5) |
+| What to know about the Gaza peace plan agreed to by Trump and Netanyahu - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNTG4xZ0lONkJCUVlab2JUeVdiOC14Tk0wYlpHTGNnMWpvVHBPa0EzRE9JYnNmQ1ZDMDF0VkJLRERzUFlJMjg3N2tIYWRXNk5HR1UwclRaMzJLOEFMd1RSX0NZWWpteEdTZ3ZXSVdRamZZUUlqbmZEYXZXOTZBMk5nU3E3cGFVY3ExQmppV0w0VF9TWl9KRmZ2ZkRrUWVGaS1JeXg4?oc=5) |
 | YouTube to pay $24.5 million to settle Trump account suspension suit - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPMm85djRhaGdyQjFNVWlCMU9QV25yd2NLTEUtYlhBVi1GUUxpN0kxTGVhbXZpRUVWY08yYXdnVVp4bEp2TjZ5N3FUUXVCY3ByQUtBVlpEZEhlSXNnalNzblZXZS0yb09HRUhzc1Y0dTROM2JkTGg1Rlp1MmhCMGdhb1Y4QmNjbmdCd0Z0a3drMVJVWVBkS2NCbjFqV3hLcmV6RWk3cHZVaWZFc21lVDFtZF9lZEZiM2M?oc=5) |
 | Trump HR Office Sanctions Agency Firings if Government Shutters - Bloomberg Law News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNVE5OV0FVWHN5ZTV4bkNDNmRrNjhmNldUeHluMkFzYjg1d1FMM0l1S1NUNU9jZG5VcmQ1aDVqYVI3R19NOTFUUHZJcWRBZ3dGWlluaDRyRklMMkxPTjZ6NlJ6d3NKTWlVSzEtbUVsNGdfWDJ3WHcxcG5hVjRuU1R0aktpM0d2ZE9HSkVXNTlkWGpjRVh4ZEUxTEZIWS10NVo2RDVseUVjcjNldW1HcmpJMk5R?oc=5) |
 | Iowa revokes license of schools superintendent arrested by ICE, saying he is in US illegally - 5 EYEWITNESS NEWS | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxOVDZuVjJTUVZPYW1iRDc2ZUc3dmluRExLQ0o4Uk1hUEFNUEo4WlFOeGdSYUdHc2p6c2t5TThlcngwYThsS1BzT2dkcUpFYUNWM1ZfaFROTW1kRnVvSDJuQTd0MVMzT3V3Qm4zcWFnSHlLMDFjRmhaVWw4RjlQZENSUUNKdmMyZU1tMVpObncwdno3OFBSVkJ4VWRTckFidlpIVm1qT3ppby1mVnM5ZktJWXNvMFBjNkdmT2FjZkh6WUUtM21vcjNV?oc=5) |
