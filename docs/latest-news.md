@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月30日 12:09:03（北京时间）**
+🕒 更新时间：**2025年09月30日 12:16:19（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump and Netanyahu agree new Gaza peace plan | [阅读全文](https://www.bbc.com/news/articles/c1dq9xwngv2o?at_medium=RSS&at_campaign=rss) |
+| Leaders in Middle East and Europe welcome Trump's Gaza peace plan | [阅读全文](https://www.bbc.com/news/articles/c1dq9xwngv2o?at_medium=RSS&at_campaign=rss) |
 | Trump's Gaza plan is a significant step - but faces fundamental obstacles | [阅读全文](https://www.bbc.com/news/articles/cy4r1xjy90ko?at_medium=RSS&at_campaign=rss) |
 | Starmer to say Britain 'at a fork in the road' | [阅读全文](https://www.bbc.com/news/articles/cn4w37x524wo?at_medium=RSS&at_campaign=rss) |
 | British veterans with hearing loss start legal battle over 'faulty' earplugs | [阅读全文](https://www.bbc.com/news/articles/ce84e4egp38o?at_medium=RSS&at_campaign=rss) |
