@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 02:57:56（北京时间）**
+🕒 更新时间：**2025年10月01日 03:00:37（北京时间）**
 
 ---
 
@@ -23,12 +23,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump and Hegseth declare an end to ‘politically correct’ leadership in the US military - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNMFJyWENTMS1JbnFrSDJtOFNtQzFsVGlVdVlBR01HZ05ESlcxaVEtZ3ZhVHg5NFdWQ3ZQeHpOS2xrM0Z4bkxQTVF0S3p6LS1sWUNwVko4ZXZyVElKUUdGd29ZSzFjS04taGRtUXBCUXZIZHpDMFRpR0VodFRIV0JraXJXYlBlS3pCYjhFRm0tWUVXQTNZZjFTc2tOWGdHUkxZbGhJQ1M3WFhzdUpR?oc=5) |
+| Trump, Hegseth rally troops at rare meeting, rail against "woke" standards - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQUFRwNlF0dGl5eThhV2k1R201UEQyTlZRX2hYSEY0Smw2bUJ5bHZPdWk4dG9rTmd3c3M0elJKa3BSZkp6b29oLVJ2Z2hmS3pOeTBTbDB3ckMzWWw0M2VjaFlKTjVQdHFUdHVPMEppSE5pUUN0aC1DZk44c1U0N2RXdTVn0gGHAUFVX3lxTE9IczlhUjRXY3lmQ0g3NmZpR2FnSXZEOUNIMGRsVTFrSk5ZZk1YeENjQnBJMTlxNmNjUnNrZ2lTcXEtcWhSSXlzNXJWMWNTUU9GcXYyWjVwSFRaX2NVS3g3WUhVeXg0QVllczF6V1JOZW1rQU5UaVRwbW0wSzhYanlWZUpQb1JYYw?oc=5) |
 | Poll: Republicans get more of the blame than Democrats for a potential shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPZ1FpMWZvNW8yV2huUzNhVzJxRFpkNkwtRm5XN2dyTmZMZ2pCeHh0U2J2anBRYlI1T3RRTEFNbUF3NXFCQ3MtV1dpTjhhUnoxNnFhYXJyVU81aHZ0Y0ZtUXFZQ0s3RlFrRERXckw4MzdFODhGVW1abktaT0twT1RKYWQ0YWc2TGlwMFFBYzhzWUtFRG8?oc=5) |
 | Trump announces ‘TrumpRx’ site for discounted drugs and deal with Pfizer to lower prices - CNN | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBHdmZZN25DQkptdXpzNE92Q0s4dzlOTVAzNmlkUEZ5d2JGWWdsTDhmcktsUVVMcTRrQklEV015Szg5eDEzZndTbFJRRDMyUzNNVFZnenEzUC1LUEVxRWx5UnFpMWItSWhtUnkyX3dyOGNUUQ?oc=5) |
 | How Donald Trump’s Gaza deal came together - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE16ZTF3YmVHaUwtZ25YcDRpalgyTUdQenVHa2dUaWhzRzB5d29pN1hRV1gzc3ZPMU9adm5XS19LYkRjVlZUdUpjWHNOSVJtRjN2Z1RLMVQxUEF0bjRueVJXdi1tOFpFM3VmWmlLYUI3cDQ?oc=5) |
-| Hakeem Jeffries slams ‘racist and fake’ video posted by Trump - Live Updates - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQcGtUalhIdFF3b0lHT3pPZnZodk15WUVld0YtZzltT3ZpRmxMTWJYbzNHYjc5Y0FfSVRLV3B2U092UTB6MzRqUnFyWEVkM29xb0FKdEd6X080eEdQRjNYNEU2UDUyR3FZZWN2dGdyQTY5WnpMSmlmZnQtUU9zSkMzS1pUSEstbHBYRUhkQkpVT195Rm9uOFgzR2dIWW5UblVWNENOT01veEU3YlVKNERB?oc=5) |
 | Michigan church shooting investigation: FBI searching for motive after Thomas Jacob Sanford's attack - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPbjhaUWdVcWF3dk5FQ19nYzFkclQxam9XUklGbFJEanpDOEpqQjdFRkZZZk9XZTRuWEFxRXRrU2NqQV9rN0VibGZ2WW5HUktNQ2NUY1gxM1BiRnBlQlRXcURoTFhjMHZnTzBST0loOTNmcTM2VzhOQi1NeE9ETXhxMGhQeEY5R2vSAYwBQVVfeXFMTUNUaWlYYm51MlRzUEk0OUJCWU52LTR3QVdCTjhXbXBmbUhzaTJiQ0Nyc0ZtUXpBd1VRMVB0emFUMS1KSnpTYU9Ib0FmTmtzU2NnVy1lYWF1VWFxYVBkajR3WXQ5Q1lUR1RHZWl3a0FBSEU1NWZmbVlBWERsVW0tMmtjR2V3bHA5WWg5N1Y?oc=5) |
+| Trump posts racist, AI-generated video of Schumer and Jeffries ahead of looming government shutdown - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPbGtNOXg1Vm1PSVFrZy1ockk5MHc0ZFVBdWR1Z0NvT1FwckdTaVVBWjJDVU1Jb3lROEItay1xYjdZQXAxYkc4djU1NmJESjJPakhiaTFUUWhhdW5qR1dXTDVRTUdjMkZrbFpsLWhseEVHbEdfMWdwdEx1UU16OXV4Q3RvVEE1MHozWWx2M2R5ZmhEUUh5?oc=5) |
 | Judge excoriates Trump in blistering decision calling efforts to deport pro-Palestinian academics illegal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQcHhvb3I1VnZUSVExa2hMUmtOT1c4M08zWDlvQWtOTnpXTTRQY01OZTBrQ2pPcHVBVkxsQnJnekhqeVRJM0ZaNUN5THNBZ2N4UjJJUnU5VE1lOWpKSXRBUzBPbno2SnlCWjl0RWRvV0pmS0ctYkFLVGsxbXJOVUhNb3ZCekpncGdaeGhGOGNEUTZUU0NoMjZMNXVncDgyenM?oc=5) |
 | 2nd detainee dies after Dallas ICE facility shooting - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOWHgybVE3WkpXTUEyRWFkVkdOYmFfMEJsWHZnTnhiT2pteFhxenNWQ3F1VC1zLWdKNUoyN3p3Qm1sX3B6Q19kMW9Sa0lvalY4N0NjTkVJZjRBT05HaTloNllzZUpNcUxBWVJiSjNZblVHX05PZkRFRWFFZDRnNE1mSlJVZmZDazl4d0lPVDFVMHRXZnE0Nld6Tnh30gFWQVVfeXFMTmx0TzNnUTA0Mmc1NDFxdlJvUVNlMzRDTFN0YmNwaElLZnZMdUZ5ZEdTRnlBMUNyQWEzOVhWaXp5UndwaExCb3gxYXZkQnM3N1ROUDNGV1E?oc=5) |
 | Florida officials vote to donate land to Trump library. There’s backlash. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOSWVuRkRiWFRidzg5SVROV3hVYjBwNktXLUE1eFhod0NGa09iSTVnOUVCYV9ZZU9idmhVYWwxNFRfV1dEWGozaEVxOUx1dWNXZ0xfcW5yd1hpVjJQOW5wT2N2aWdTNDdQWktPYkwtb0poUTRveFlwVkhld0NXQlBZQWJhVVFTb0xwZWc?oc=5) |
