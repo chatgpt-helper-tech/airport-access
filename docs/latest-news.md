@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月30日 20:40:31（北京时间）**
+🕒 更新时间：**2025年09月30日 20:49:20（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | 'I can't hear my kids': British veterans take legal action over 'faulty' combat earplugs | [阅读全文](https://www.bbc.com/news/articles/ce84e4egp38o?at_medium=RSS&at_campaign=rss) |
 | Family anger after police reviewing 1970 beach abduction didn't contact witnesses | [阅读全文](https://www.bbc.com/news/articles/c1ed4g1q52no?at_medium=RSS&at_campaign=rss) |
 | Why I'm challenging Nike, Adidas and Puma over single shoes | [阅读全文](https://www.bbc.com/news/articles/cewnje717rqo?at_medium=RSS&at_campaign=rss) |
-| Entire Ukrainian family killed in Russian drone strike, officials say | [阅读全文](https://www.bbc.com/news/articles/cdxqdpgznzeo?at_medium=RSS&at_campaign=rss) |
+| The Simpsons Movie returns for sequel after two decades | [阅读全文](https://www.bbc.com/news/articles/cx2x4dp5xxvo?at_medium=RSS&at_campaign=rss) |
 | Trump's 20-point peace plan in full | [阅读全文](https://www.bbc.com/news/articles/c70155nked7o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -32,7 +32,7 @@
 | Iowa Superintendent Arrested by ICE Loses State License and Is Placed on Unpaid Leave - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPSVRtUDdWVWFBSG42cGFDTlBSVk9qbjVZNUVTMDJoeVBZUE1UaWU5bFhSMWlraXZjT2lPdGl5TUkxd3BuOS1KVG16LS10bE92Z21Nd3Q3ZWZLVjJXYld2d19ZYUJFUkFkS0p4dDdkeks0RjdBLWFKRHBXYmpONDRhOS1EUXZLY2M?oc=5) |
 | Kotek, Trump have tense text message exchange over troop deployment to Portland - KATU | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQOGdVelpTWG5NV2NyYkh3MGszZXVObjVweHdUeU5kOXpJMmpnMmNWcFRnTWV3clBveDhMOG9CM0g2T2dxaUVjMUUtZ21IZm9XVFlnSkJjQ1RJM0RjLVFTYkdrQldXMzR5WV9WNU13SVYydTBZWk1vcGZMVUNHNUh4dmlmQzN6TmoxYVRiam5vRW1YNGZTRnNzN0N2T216LVl3SnF2TW54d1VKZw?oc=5) |
 | Read: Judge pauses Trump administration's VOA cuts in scathing order - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNdV9zX0ptb3plcG5yUVBoR2F6VzNUZjdJVXI5dEcwVTVlb3c2bEcyTy1XRFFVdmZWRF8xX0tGcURCeVpTTTA3blVQSjlGQU9TcGxSckxWdFZuczRFYlNOa3RTLVF1SUk0eGp0MVdsbnNLcmgtQ2w2NXNmQ09TU0xSLXRFejJKTkg3SGc?oc=5) |
-| Illinois governor says troops could be deployed to Chicago as immigration agents patrol downtown - PBS | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxPVkZEQnNNbGFHcDhxLW9WYnlrS3d4Z0kwc2lGZElaOWFCdjBVaUZLdld6RVM3akZmTU53WmZfRTM0MnZxdTJCRW9MSnBjaGRlVXVJcHZTMGJtVXBjVVV0T0JjUE9vS1BhWHk3OHdYMHg2OEx1T3ZyU1RYTmhQeGhUVldDcVdtUUdGLWNFVFFBVDNhU29tdXJraWdyNHFRQVJ0QmpKUktKZVROWi1vRVE5YTEwLU1DcDYtVUhURjlnb2o3UFp1TFIyVXNGZ0otM1XSAdQBQVVfeXFMTUJWaFhtNTNUQzJRREtKczJydTVjWWVyQm1PdzlwcDdNcHh3OTNQZUMzd2lpRloyU0RNUzJtTXhSTGRNQ3R4TWFyY0VCejloY0ZwWjdOM3RnVGpWaThieDJ5OG14WXZRaWppamotMk5qNkNBMmhsTm1jNk00bHFKMDJHRXJWa1ZOcmFQT0x5MFA3WWhzbG1YTDY2VWhYX19wYnl5OW92V3A0WDJPcmpueDdyZmtLQm5YSHlHaEhKWF8xYXRMbE1mcE94TWlsWHJacDlTNG4?oc=5) |
+| Illinois governor says troops could be deployed to Chicago as immigration agents patrol downtown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNc0NnQ3VLY04tbzViYnU5dVdmRXVqVmo0VXFLcHk0R3EwS2tFeWF6SzFNdDdkTC1yMnE0WHdlbUQyRjFPSDhSSkJKYVp1enFjTzd0OXZndlJmbHNfVGY5WTJoWUp1aUNhcjVsSEE1aFZBbnpLcXRacTNxaTFhcUZyN004UDBZSkdSR1djdTFIejhuNm1CTzhDS29xdEdhOE4zN25mOWM2Zmk0TWdibXd3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。

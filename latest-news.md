@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月30日 20:40:31（北京时间）**
+🕒 更新时间：**2025年09月30日 20:49:19（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | 'I can't hear my kids': British veterans take legal action over 'faulty' combat earplugs | [阅读全文](https://www.bbc.com/news/articles/ce84e4egp38o?at_medium=RSS&at_campaign=rss) |
 | Family anger after police reviewing 1970 beach abduction didn't contact witnesses | [阅读全文](https://www.bbc.com/news/articles/c1ed4g1q52no?at_medium=RSS&at_campaign=rss) |
 | Why I'm challenging Nike, Adidas and Puma over single shoes | [阅读全文](https://www.bbc.com/news/articles/cewnje717rqo?at_medium=RSS&at_campaign=rss) |
-| Entire Ukrainian family killed in Russian drone strike, officials say | [阅读全文](https://www.bbc.com/news/articles/cdxqdpgznzeo?at_medium=RSS&at_campaign=rss) |
+| The Simpsons Movie returns for sequel after two decades | [阅读全文](https://www.bbc.com/news/articles/cx2x4dp5xxvo?at_medium=RSS&at_campaign=rss) |
 | Trump's 20-point peace plan in full | [阅读全文](https://www.bbc.com/news/articles/c70155nked7o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
