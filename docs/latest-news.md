@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 02:17:54（北京时间）**
+🕒 更新时间：**2025年10月01日 02:25:58（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | How Donald Trump’s Gaza deal came together - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE16ZTF3YmVHaUwtZ25YcDRpalgyTUdQenVHa2dUaWhzRzB5d29pN1hRV1gzc3ZPMU9adm5XS19LYkRjVlZUdUpjWHNOSVJtRjN2Z1RLMVQxUEF0bjRueVJXdi1tOFpFM3VmWmlLYUI3cDQ?oc=5) |
 | Trump announces ‘TrumpRx’ site for discounted drugs and deal with Pfizer to lower prices - CNN | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBHdmZZN25DQkptdXpzNE92Q0s4dzlOTVAzNmlkUEZ5d2JGWWdsTDhmcktsUVVMcTRrQklEV015Szg5eDEzZndTbFJRRDMyUzNNVFZnenEzUC1LUEVxRWx5UnFpMWItSWhtUnkyX3dyOGNUUQ?oc=5) |
 | Afghan women lose their 'last hope' as Taliban shuts down internet - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBtY3ptbDVhc0RiODFWelVLNEN6V2lIbDI0Tkw0YTdNX2Z2Q1cyNF96YVQzbndxS1RURlUzZGdlWVp5T1BtaXBQVlYzU0U0SGxxYm5WNG85UTNYd9IBX0FVX3lxTE5WTzlTZHV2QmxPb3hHVzNUTVVreWZ2SmRPYWh6cldaRXJlRFU5bFhVSHJlYUVXQlk4My11UlBFaDJuOEZSX2NIU2hCOEZQVGd5elZwTFNPS3BTUU1rcjAw?oc=5) |
+| ‘Now we’re pig slop’: Portland troop deployment sparks mixed reactions across Oregon - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQREpZMGVkeDNRRTlpZ1VlandqblNmRkJzR2QzWGNYWkd2QjFfRlpoUUhYZnVOM25wdWkxT09Zek1DVWZyT0puX0tfcWxVd1c5TEFQM0RndmhKVlA4SzNTS1lHWUtzVU9jSUd3S09sVTRqdWpBWFQzbzNGRjV5MU5rSWtyUEFDa0NoSUZtY2JIeGNHTmhtV2djZjduelRHZw?oc=5) |
 | Michigan church shooting investigation: FBI searching for motive after Thomas Jacob Sanford's attack - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPbjhaUWdVcWF3dk5FQ19nYzFkclQxam9XUklGbFJEanpDOEpqQjdFRkZZZk9XZTRuWEFxRXRrU2NqQV9rN0VibGZ2WW5HUktNQ2NUY1gxM1BiRnBlQlRXcURoTFhjMHZnTzBST0loOTNmcTM2VzhOQi1NeE9ETXhxMGhQeEY5R2vSAYwBQVVfeXFMTUNUaWlYYm51MlRzUEk0OUJCWU52LTR3QVdCTjhXbXBmbUhzaTJiQ0Nyc0ZtUXpBd1VRMVB0emFUMS1KSnpTYU9Ib0FmTmtzU2NnVy1lYWF1VWFxYVBkajR3WXQ5Q1lUR1RHZWl3a0FBSEU1NWZmbVlBWERsVW0tMmtjR2V3bHA5WWg5N1Y?oc=5) |
-| Second detainee dies after shooting at Dallas ICE facility - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNUVZIZ1R1Z19tazBfNG1jUWlkcUNJcUJYRUdvUS01eW1qTllVRDdYRHBGdFhkZHBSSUh3S0t6RXY3LWF3RDFMWlphWnlKbEJfZ3dZWVhXZHl1TWx3Z2h1OHp4VGx2UU9pOFlGZXRtYzA3V2xHMzJHUlFNaXdqSS1Dc3VRQUxoeV8zbUE?oc=5) |
+| Judge excoriates Trump in blistering decision calling efforts to deport pro-Palestinian academics illegal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQcHhvb3I1VnZUSVExa2hMUmtOT1c4M08zWDlvQWtOTnpXTTRQY01OZTBrQ2pPcHVBVkxsQnJnekhqeVRJM0ZaNUN5THNBZ2N4UjJJUnU5VE1lOWpKSXRBUzBPbno2SnlCWjl0RWRvV0pmS0ctYkFLVGsxbXJOVUhNb3ZCekpncGdaeGhGOGNEUTZUU0NoMjZMNXVncDgyenM?oc=5) |
 | US federal agency site blames looming government shutdown on ‘radical left’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPSjZGZFRicmFzUV8tcXU5QVRodWxnUmlSYU1reGczVFdIUjNBenlIeUc5amZBSnBScnZIVU8yajNNUFgzOGdnNmFFd1ZLRFhaSmduYV9CRThoSXg4SXNnQmpGbVdFenhacGM0M2stR0tzSTV2alYwblRDa2FuN21JVFp2TmhlaU43c1RfcWhFSQ?oc=5) |
-| Florida Hands Over Prime Miami Property for Trump Library - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1NTm4yU0JSNW5nMTZvTlpUdVdoZUtDQy1zZE5haEozVmFaV1pRWHNSckxyLV82Q0ZqUGlWZUdybmJ0SFRlS1dYY0JDVVhhT19aMDRfaFh4UFpHQmEzamNadWhfX1ZVOVJ2QXRsOXBySUtfSnAxR3B1YUNkTQ?oc=5) |
-| President Trump Deploys Federal Resources to Crush Violent Radical Left Terrorism in Portland - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxPOHZadENPUjVKblpEcWtoYnljUWhDUmxVMnYzRFBtWTlJMFBzSFNVV2xOOGJObUJHazF3RTJRZUFPZ2dMQkxqV0JCTk5XZlc3QWZtSEZ1cTdxV1haN2JpZ29jUkFTaTN5NWdneEkyQUhLSFUxaUZ1R3pieTlvYUJKaEdFbjQzX1laS2hpYTBjTnR0cVdBbjI4MDVUWktyaFhoaUVydkdOMnBDY3p0TnNER2tvQkZyZEJ4VnBXTVFxTDgyeFBmbFFGOGxsTllCT0VWNUNzWg?oc=5) |
+| 2nd detainee dies after Dallas ICE facility shooting - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOWHgybVE3WkpXTUEyRWFkVkdOYmFfMEJsWHZnTnhiT2pteFhxenNWQ3F1VC1zLWdKNUoyN3p3Qm1sX3B6Q19kMW9Sa0lvalY4N0NjTkVJZjRBT05HaTloNllzZUpNcUxBWVJiSjNZblVHX05PZkRFRWFFZDRnNE1mSlJVZmZDazl4d0lPVDFVMHRXZnE0Nld6Tnh30gFWQVVfeXFMTmx0TzNnUTA0Mmc1NDFxdlJvUVNlMzRDTFN0YmNwaElLZnZMdUZ5ZEdTRnlBMUNyQWEzOVhWaXp5UndwaExCb3gxYXZkQnM3N1ROUDNGV1E?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
