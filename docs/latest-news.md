@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月30日 23:32:35（北京时间）**
+🕒 更新时间：**2025年09月30日 23:41:53（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | 2nd detainee dies after Dallas ICE facility shooting - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOWHgybVE3WkpXTUEyRWFkVkdOYmFfMEJsWHZnTnhiT2pteFhxenNWQ3F1VC1zLWdKNUoyN3p3Qm1sX3B6Q19kMW9Sa0lvalY4N0NjTkVJZjRBT05HaTloNllzZUpNcUxBWVJiSjNZblVHX05PZkRFRWFFZDRnNE1mSlJVZmZDazl4d0lPVDFVMHRXZnE0Nld6Tnh30gFWQVVfeXFMTmx0TzNnUTA0Mmc1NDFxdlJvUVNlMzRDTFN0YmNwaElLZnZMdUZ5ZEdTRnlBMUNyQWEzOVhWaXp5UndwaExCb3gxYXZkQnM3N1ROUDNGV1E?oc=5) |
 | Michigan church shooting investigation: FBI searching for motive after Thomas Jacob Sanford's attack - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPbjhaUWdVcWF3dk5FQ19nYzFkclQxam9XUklGbFJEanpDOEpqQjdFRkZZZk9XZTRuWEFxRXRrU2NqQV9rN0VibGZ2WW5HUktNQ2NUY1gxM1BiRnBlQlRXcURoTFhjMHZnTzBST0loOTNmcTM2VzhOQi1NeE9ETXhxMGhQeEY5R2vSAYwBQVVfeXFMTUNUaWlYYm51MlRzUEk0OUJCWU52LTR3QVdCTjhXbXBmbUhzaTJiQ0Nyc0ZtUXpBd1VRMVB0emFUMS1KSnpTYU9Ib0FmTmtzU2NnVy1lYWF1VWFxYVBkajR3WXQ5Q1lUR1RHZWl3a0FBSEU1NWZmbVlBWERsVW0tMmtjR2V3bHA5WWg5N1Y?oc=5) |
 | Exclusive ｜ White House to Announce ‘TrumpRx’ Drug-Buying Website, and Deal With Pfizer - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNYlNwdXY4Y3BxX0o2TWNuckdrMERUR2JVLXhaZjVLRmlHMWFTcVR0Y1ZyVHpOT0g4elJxajA0LVprcG90UTYyb1ZHdEMyUWg2c0dzN2taTWtwQWJRWUNhXzUxcTRRczJCVUVoODFMSno0d2Vud3NtYllhQUxCM1FHR21HcmlxSzFxNVE1YU16OW1nb1BUYUxheGlfdEdsMDdOWG0za0tBZ3B1dmluMFprdHB0LXZEZw?oc=5) |
-| Imelda strengthens into a hurricane as US coast feels impacts. Bermuda prepares for twin storms - CNN | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQYWV0RGJXNkpoOGNsQ0pyVHg5WVBsVzdBbnpkRFhCdGZJenh1M1E2LTlmRnFseENmTHRBUkpYZjh5Sm1FV044LU9Za19sYjE4TWpOOVRtaFZYY0J1ckFVdl9DaHptald6Z1J6YXR2bzRqbThvSDJuOVRKbkFJdkRySEVTS2w4UHpScThXSE9aMURlVzA0a3ptMTRhbndmQQ?oc=5) |
 | President Trump Deploys Federal Resources to Crush Violent Radical Left Terrorism in Portland - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxPOHZadENPUjVKblpEcWtoYnljUWhDUmxVMnYzRFBtWTlJMFBzSFNVV2xOOGJObUJHazF3RTJRZUFPZ2dMQkxqV0JCTk5XZlc3QWZtSEZ1cTdxV1haN2JpZ29jUkFTaTN5NWdneEkyQUhLSFUxaUZ1R3pieTlvYUJKaEdFbjQzX1laS2hpYTBjTnR0cVdBbjI4MDVUWktyaFhoaUVydkdOMnBDY3p0TnNER2tvQkZyZEJ4VnBXTVFxTDgyeFBmbFFGOGxsTllCT0VWNUNzWg?oc=5) |
+| Imelda strengthens into a hurricane as US coast feels impacts. Bermuda prepares for twin storms - CNN | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQYWV0RGJXNkpoOGNsQ0pyVHg5WVBsVzdBbnpkRFhCdGZJenh1M1E2LTlmRnFseENmTHRBUkpYZjh5Sm1FV044LU9Za19sYjE4TWpOOVRtaFZYY0J1ckFVdl9DaHptald6Z1J6YXR2bzRqbThvSDJuOVRKbkFJdkRySEVTS2w4UHpScThXSE9aMURlVzA0a3ptMTRhbndmQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
