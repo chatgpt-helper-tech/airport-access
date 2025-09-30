@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月30日 11:08:06（北京时间）**
+🕒 更新时间：**2025年09月30日 11:16:23（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Military leaders voice concern over Hegseth’s new Pentagon strategy - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNOVg5TFNLOXhKa0JISWFXM3Jrck9POFN1RmVLN3p1dEY0eFhwZ3laM082a1VfR0tVd25KQVMxckp4WVlsM2xvR0lqUld2M1FSZDZVRnNrQUtvUzU1VGdRY2JwSV8tR0xkQnBqal92Z2M4XzR2M0FsTVRodlIyY2dMVzdqQmhvWW9KSUFnN3F3SHV2dkU3enNMVEJZZTNMMHVFX1VjejROdC1ZSzVs?oc=5) |
 | YouTube to pay $22 million for White House ballroom to settle lawsuit from Trump - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNR0R5ZjdTcWR0VC1NRmFPbHlsRHBRWUZaT1ZYVmRwZjI4SXkweEJmWURCWVlqekotcFY3R3BJaU1Bd3NYSUw5U2hHYnFyQnVzLVVjeGhCTi1acmpUbmFpNWN6Q2ZLYmJkSTRpZWVGRG9zTlhMdUJJYTN4UVZwUE5KQkxHcGpvZ2_SAYwBQVVfeXFMT0NvVmQ2aEtiN2ZQNGY5YmQ3d3F2TXl0NnkyREtocHpuTnJTNlgwWU01VHE1dW5abWJFTnJGYmZ2SHdCck1VLTcxblFwdWhIenVtdGtITlNVS2tBaHZaTEg3bUd5aC04STNIbkJBRi03MXJUWnVNdzZGZG1GWXU5N2xvakFuMExmTVd3VHo?oc=5) |
 | Federal employee RIFs can still happen in a government shutdown, OPM says - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxNZVVBVF9PSzVKc1FTM0x6YnpwRkZFLWptbW02MEtIMDk3Y1c3ejctTFdmWmxMS0k0dTVKVUFlQzE0RXJTcGgyc19ZWGVaaVc5ZTlGbHpDQ0liN0NEYlE0cUtUdTZQdTM1a3ZoTE5VTFFNVVk4X1ZrRDM2OTFyVWZwWHBIb1BLY3FWZGgzcmF1MF9RSHR1NTg2UUJGclYtQ2s1NGx4QTZiZzBhRFBPTmpDeDdkejlNMmo3SEpXRXFaQ2JnR1BkVWVYVktQZ1c?oc=5) |
-| Detective's shirt brings closure to families of yogurt shop murder victims - Austin American-Statesman | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOdmxSY2JnNUNKTjZRRkN4MTNRQ3FrT0J6S2hOZU5MR2RkcUt1LWpXUEZwUjgycFFNUTAya2JXTHItT2YxcU4yT0lfSmdKSlZKUzB0M1pDa0pjRVhpN3k2c0I4bWg4QktNNFZGTWdieDJyTDB0WmJNaUI5WEFrc2hrUklIVUs4Rm1PdVNVNTFLcWF0eF9aWU44MXIzNlhMbWFVVjdWSFZ4TQ?oc=5) |
 | Illinois governor says troops could be deployed to Chicago as immigration agents patrol downtown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNc0NnQ3VLY04tbzViYnU5dVdmRXVqVmo0VXFLcHk0R3EwS2tFeWF6SzFNdDdkTC1yMnE0WHdlbUQyRjFPSDhSSkJKYVp1enFjTzd0OXZndlJmbHNfVGY5WTJoWUp1aUNhcjVsSEE1aFZBbnpLcXRacTNxaTFhcUZyN004UDBZSkdSR1djdTFIejhuNm1CTzhDS29xdEdhOE4zN25mOWM2Zmk0TWdibXd3?oc=5) |
-| Health Department Moves to Block Harvard From Future Research Grants - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNZnIwZEpieTIxdHFfWEtZWFJfZU0zRDJUZWxuRW43c2dxbGQ4X011YXQ5N20zNVVEb3ZFMFpHUU80anlYaFhqeEFPMlZHT05oSjN4SDFUYTFwUGJlVHBidElhZzZxWlpmbEE2MnlrSG44WWJMdDRxSUVDbzlJZU9zX2YyaS15SkZmZzNadkRoMmZkTFk0QjhPSjltNmU?oc=5) |
-| How Cuomo plans to seize the Adams-less moment - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNWnlQU2Y4cmlFUFZraXUzMjc3ZlNGNkNMZmNzcGd2MHgwT1J3eWdNcGtKMmtuMm1rUmdDNHRUd1ZGZjRXTFNvdWVyREZTb3RxXzdNZTZFbUQ1bC1GaWwwQXJTQVVjRDJoVHJzTlgzbmNwMFZBd2JmclZGWUxOWmFFT2R6SVUtX201aS1nN3VKTERwYk9sU3hmSWVGTGg?oc=5) |
+| Iowa Superintendent Arrested by ICE Loses State License and Is Placed on Unpaid Leave - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPSVRtUDdWVWFBSG42cGFDTlBSVk9qbjVZNUVTMDJoeVBZUE1UaWU5bFhSMWlraXZjT2lPdGl5TUkxd3BuOS1KVG16LS10bE92Z21Nd3Q3ZWZLVjJXYld2d19ZYUJFUkFkS0p4dDdkeks0RjdBLWFKRHBXYmpONDRhOS1EUXZLY2M?oc=5) |
+| Detective's shirt brings closure to families of yogurt shop murder victims - Austin American-Statesman | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOdmxSY2JnNUNKTjZRRkN4MTNRQ3FrT0J6S2hOZU5MR2RkcUt1LWpXUEZwUjgycFFNUTAya2JXTHItT2YxcU4yT0lfSmdKSlZKUzB0M1pDa0pjRVhpN3k2c0I4bWg4QktNNFZGTWdieDJyTDB0WmJNaUI5WEFrc2hrUklIVUs4Rm1PdVNVNTFLcWF0eF9aWU44MXIzNlhMbWFVVjdWSFZ4TQ?oc=5) |
+| HHS Takes Steps Toward Revoking Harvard’s Access to Federal Grants and Contracts - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE8xUTV5SGlkcUJ6NXJsaVBZVDVzN1JVZFBIYThWMWlFYmNjSzlyTFJwT3kwdlBJOWYzSjdKTDJLSjRMMzRUZDJlVVZNSzJyRmQ5MXhSdGw1REVabVA4NXZTX3R3NmpYMWtFTlEzdXoxTXZ1OTZQR1p1UFNR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
