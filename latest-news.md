@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年09月30日 15:40:57（北京时间）**
+🕒 更新时间：**2025年09月30日 15:49:36（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Government shutdown looms as leaders make little progress at White House meeting with Trump - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNd2NIaDlwNUZqMldsOWRhQ2NrTXhVZU11RE9IMDZONElpLTJ3NDNiX1AtZ1Q3VTNhblJ0LVpNNVBRZndKTWpfS2wwajN1Z01WZUpKVms2ZlczYS1KWXZuQ0V6MTA0TlA5N25kU1dNVWlaX1NycndZT0ZTWHNsYUUzbVl1YUVxNk5jSFl1c1pET25RVWhEWXfSAZsBQVVfeXFMUFRQV0xuenZQLVltNjlBRHdGWFFRNTFSOFpyTVpvU0g1R3Uwa3VNNVZ2djJlWWxZTHptd1p0M1VJd3UzQXltZFA4R2JNSTc2enltOUV2eDVERUhZVi11Y3ZrYlBNQndXWnNRX3BjaXUzQVJtTnRBZml2V1lrbDRPSTZIUF9taURMU1U4dkI4b1hOTVZMMGhzNmJqaDA?oc=5) |
+| Trump, Democrats leave meeting without deal to avoid government shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQNUxnUXRpSVRLdlZPY0gzS3NxeTBqZFBNS1ltY0JIUnJXZ1Btemp5MGZOUXlUVy0wRXAzNGZoUGVPQS15Qy1ZYkJUWHZoaXA5NFNtTmRGNEJfajZJRjRGb191Tlh3c1N5YXE1VDhDRDNPNzhwYVFydmVYRUQzMlhJZmpMX2JmZzVmSmw4S3d1TkYySVk2REZnUDlR?oc=5) |
 | What to know about the Gaza peace plan agreed to by Trump and Netanyahu - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNTG4xZ0lONkJCUVlab2JUeVdiOC14Tk0wYlpHTGNnMWpvVHBPa0EzRE9JYnNmQ1ZDMDF0VkJLRERzUFlJMjg3N2tIYWRXNk5HR1UwclRaMzJLOEFMd1RSX0NZWWpteEdTZ3ZXSVdRamZZUUlqbmZEYXZXOTZBMk5nU3E3cGFVY3ExQmppV0w0VF9TWl9KRmZ2ZkRrUWVGaS1JeXg4?oc=5) |
 | Military leaders voice concern over Hegseth’s new Pentagon strategy - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNOVg5TFNLOXhKa0JISWFXM3Jrck9POFN1RmVLN3p1dEY0eFhwZ3laM082a1VfR0tVd25KQVMxckp4WVlsM2xvR0lqUld2M1FSZDZVRnNrQUtvUzU1VGdRY2JwSV8tR0xkQnBqal92Z2M4XzR2M0FsTVRodlIyY2dMVzdqQmhvWW9KSUFnN3F3SHV2dkU3enNMVEJZZTNMMHVFX1VjejROdC1ZSzVs?oc=5) |
 | YouTube agrees to pay $24.5 million to settle Trump lawsuit: Court filing - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQTmhhc1ZiRVdPZHEwbVpqalQtcDgxM1hYeU4tUFY1MXI3aTRvaWxMNG5TODRScGQyUjVLTjdIelBUbFg2ZU5UWW1RcnlWaFNjWWlMS1VaX0xydzdVNF9iT2d3T05XajZ5S2dJeDVGVmNTSkFyZ2x6azJYSE4yUkpfbEFFenpXM2FNaFZyT1ZqUnI3NEpMN0tEZGcya1QtbW5DVk8tMtIBqgFBVV95cUxOMmFnUnQwQlp3MDRXS012dzhVanc5S3RFVW9abWVJRjU0WWZQaTYySDF3YkJVaXJ5OUNJZVdTM0hGdUEySFlLVHE1ODhoZ2ZWRkJIczJIN0h0VzRPYlpZdEU4NnVvNlludW8tX1hZT0lJQktVdXlndUhCQ2JGS1NoRDZJVDJBSjZCZDhDNXFFMTE3aHhDM0RCWC1EREE4U191Q19ZV0h2Q3Y4Zw?oc=5) |
