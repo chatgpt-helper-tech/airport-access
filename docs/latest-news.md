@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 17:33:36（北京时间）**
+🕒 更新时间：**2025年10月01日 17:40:36（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | Energy bills rise by 2% for millions with calls for more support | [阅读全文](https://www.bbc.com/news/articles/cm2zr4nym9zo?at_medium=RSS&at_campaign=rss) |
 | Princess Anne visits Ukraine to support children 'traumatised' by war | [阅读全文](https://www.bbc.com/news/articles/cgrqlrjgd51o?at_medium=RSS&at_campaign=rss) |
 | Surgeon offered womb removals in 'minutes' without proper examination, women say | [阅读全文](https://www.bbc.com/news/articles/ckgqr7nnzw1o?at_medium=RSS&at_campaign=rss) |
-| 'State of calamity' as earthquake kills 69 in Philippines province | [阅读全文](https://www.bbc.com/news/articles/ced5pyjzej3o?at_medium=RSS&at_campaign=rss) |
+| State of calamity in Philippines province as earthquake kills 69 | [阅读全文](https://www.bbc.com/news/articles/ced5pyjzej3o?at_medium=RSS&at_campaign=rss) |
 | Emily Blunt among Hollywood stars outraged over 'AI actor' Tilly Norwood | [阅读全文](https://www.bbc.com/news/articles/c99glvn5870o?at_medium=RSS&at_campaign=rss) |
-| European leaders meet in high-security Danish summit after drone disruption | [阅读全文](https://www.bbc.com/news/articles/cp8jdene16ro?at_medium=RSS&at_campaign=rss) |
+| Trump trusts Blair, others don't - could he govern Gaza? | [阅读全文](https://www.bbc.com/news/articles/c89d5938w3ko?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
