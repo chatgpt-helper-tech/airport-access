@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 02:40:37（北京时间）**
+🕒 更新时间：**2025年10月02日 02:49:25（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Jane Goodall, chimpanzee expert and animal rights campaigner, dies age 91 - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1fem84Vk4yQ1ZqYVlFa3FZUURFM1NDVE5zMnpnWjB0YjVwNVI2SjhpS3NZaGt0S3p0dkNqQVFKVXNBVlpKQWpRczlzSTVhY0VNZG01Mg?oc=5) |
+| Jane Goodall, renowned chimpanzee researcher and animal advocate, dies at 91 - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNMkxtd0J4YndMeVhaOUd2and3MXZETkUtajhlQVBkRTBHb0FmdU5pOVpNS0w5b3ZJbUxjQVlNSlZRLW91a1NqMEp0XzRHeDU4YWNjcE5SV0s2ekx3Z1h2dmJOWHVQN0MzaExKV0ZYSExzU1JjTGgyVk9TcHhJZWV0Vm1VOWNSMjlXUHJrbUlncmgyak9vN0Z1TWNCM0gwYXd4VzU1ZmtfZHhKR0XSAVZBVV95cUxON1pJanlpRkN0elkyN2JIaDBOY1M3bGNwd0FsRmVFcWt4clNwNHFmMmQtczFKOUpraVRaT1poRDctZy1sUS1oY3ZjU19KVWROcDA5ZlozZw?oc=5) |
 | Democrats Betray Americans with Government Shutdown - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOamtSZlN4a1RQNktQSlA2N2JNdm52NnJKNlZtWjRoSlhqZTg3dy11TjVZUThsb1FYcE1YTDNQN3ZyM3RuTElJNUs3aUNmTjN5NXpNYlVmNkV6cmsyWGc4c2NYQ1VubzNQZnBRWC1fUVZVaU90Q0hNS09KaS10YU9sVUsteEUySnppRm4xUTlRUlFjdmdXbFM4S0JCTGQ?oc=5) |
 | SCOTUS allows Lisa Cook to stay on Fed board into 2026, accepts case for January argument - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQRUoyWm1pZUpVblQ2QVBWaHgtdFE5bFZjSE16YUdTYXZ0WnhlejlESzJCX0gzZHJlSlRQOEFKR2FqZW1qLWRPbWEtc1R0amt5OGtGWV9BakdXNEYtRUdiZlBlemtzbGNMbVFJam5XMUU0eG5QVVFGSkpjOEo4bXpLQ3Q0cEZtQWx1NTY3OFEzYkJjaTlHVDJPMVZpMFLSAaIBQVVfeXFMUFN0VnplUjY1LTR6VVZsOTRxVzFMWFhfYmtBR3U1U0FVNzBEUE8zVklQLUlQSXdzZjl5TVZpZjRPME9qNXFqdzFFTHFKaTEzUUpfekZ4M25Qclo3RDJ1Q2FIUGZmV0MzRG4wbWttWVRVQ3IyZGNpNFVJX3BCR2stcnk4Z0ljbE01ZlZ1ekg5T2d2amFTb1NzWjRrZVVsczhRTWp3?oc=5) |
 | Trump to withhold billions of dollars from Gateway tunnel and Second Ave. subway projects - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxNRGkzcENJN2loRnpXOWc4Yk9HWk5BZzY5VzRnS2p0aWFMSXhCS1VNV24wMHpBUzNaSnIwWnVtSlpDUG50dnA3NVhCSFBScmRhdV8wS05KRTVYUGhJQWZhajV1SEhMUlNEVmxDS1JLWGxjV201VUtvS0VjdjBacU1kb25JUzNqa2VkSGEtcXhIcDB2VXJWdEFLczdjYnk0OVRkc0p4YVhKNW5TcW5lYVpGR2hiOEYyMW9HX0xwTms4bnZMaUlPOUJCVzdhWmJYQVlMeUI0YQ?oc=5) |
