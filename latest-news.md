@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 23:33:57（北京时间）**
+🕒 更新时间：**2025年10月01日 23:41:23（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | 20-Story Public Housing Building in the Bronx Partly Collapses - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPdTd2dzY0ODlSMlgtMW9YWEFKZkoxbVp1ampsS2hQbkdMbXZibTVGeF8tZmJ4NmNsS1pOMmxDTjI5MElUZ2xWd2JHa1I3dnBoZ21MWWVrRi1PTW45dDhubGU0T3p6TEhMajdNUUFxLS02RnQzQlJsWXhYMVAyaVVUUks4cjh1clE3ZlE?oc=5) |
 | Trump's pharmaceutical tariff threat loses bite after Pfizer deal reassures drugmakers - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQTGg0SlZ3X1pzeWZRdEFUVGt1SGJiVWtaaS1XRkZibGE4SlNEbTU3d2trYUJNTk9oVDZFVUlpRE9kcjlkTlVqS0hPblhWemRHUUVUSUlqX04tQy1RQ3h5UlhmU3JUaWxiZU9JcW5XT3VJZTk3VXY5U3cySmpYcWhqOW90b9IBiAFBVV95cUxOUkNTUlNOb3NMbHpMc1FDWjJXNnVEQ3N5ZF9yNHA2LU5sV2E2eWlkMmJ3aE02Ym4tb281RnJFSFk0QVVIWFBFdmVDb1FmWU91c3B2YmFiUTdiLWJZUTAtaFFob2tvU3JjOThESEdJZENzeUFpWTFKbVhpSWs4czB2aEt0YW14R2hl?oc=5) |
 | Trump Claims White House Is Nearing a Deal With Harvard - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5WT0hQMFZRWERQZGRnc0M2dGN1Ynhyc1VtX3JZTEM4aFpScko4Yk93Z25xRnZYcjZ2RUY1dnRCZTl4VW1YUzY4b1J0STd4NUxnd0NRT3c0R3JMWjhpRWtfVW9Ub1lLamUwT2dGeFJXUDN5aHBoenJCdQ?oc=5) |
-| Madison Cawthorn launches comeback bid — in Florida - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNWVF3RXBjLUc5andoV2hYaWdMTFlWQU9rN2x1V3FfSi1LSW1CN3V5My1XeWtacVJpdURBU08wN21feVRJai1fVzFleGdaSzF1VllmUHJDU3ZTbmljX3BjeS1HVWxPSjZFTTk1QktzUEE1emxfWHFzZmoxSFFwM0hnYTNSbV9hUQ?oc=5) |
+| 'Sad and troubling end': DMPS board votes to accept resignation of Superintendent Ian Roberts - KCCI | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNMDlKTEh2TWhFNGQ1UDdSOG5WU0ZwcWdZeGVhNWs4bTNQMmNLUXVDbXl2S0t3WnNJNGh6ZFNyWW9ZR0NTSFc4RzlXbHRYZkY1emJsdEtkdnB4bFd1TW9hYzlKcC1GbkF5RlRNNi14VTV3ZzZhQ2N2WWcwWDNUZF9DRVdRTUZGLTg3UWlBVHZPM0ZWNnhvb3RPVTZnWlgtSmVDVFgzd2VQMHhSemVsMkhmX3FBUG8?oc=5) |
 | Brown bear heavyweight Chunk wins Fat Bear Week despite injury - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBuZVBJdkhvcUNKSzdKblQxNnlvdkhrWGg2RHQyOUhEZHVwa2txZjNKQnhYUzJPOXRPVFhSX0tHSExzRC1ZTHFoUVAyc2dJZ1ZJU2Z0LTZma0VKQdIBX0FVX3lxTE5kcUNPRXVZRzRnRnR1MHNGMWdfaU5CZTdVN0FDakM0b3FNb0RNcUpDLTJfYmtPUjQ2N1hEMUhndVFNd0UtbVVKUnFqeG1mVkdVblN4ZWlTSFo4RjlNQ2RJ?oc=5) |
-| 1 thing Republicans and Democrats can agree not to shut down: National parks - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNbEZybUUxcEpnRUZCdWtuS2xicXdUMnNrQ2pzT25UTS00WDdZSDRTNHlIRDFwVnVXa3RUTk16bkxsb1BfQzVqUlJFV1NnbFlIeVRCT2dFXzVqZzI4YUVYX3dua0VkaFAzekN2Y0IwaktjQlVCZ2taYjJ2VnZtNEJJZ1ZZc3pyTjNWNVh5YzJCcHl0UnFlX0k5cXdXQQ?oc=5) |
+| Second detainee dies after shooting at Dallas ICE facility - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNUVZIZ1R1Z19tazBfNG1jUWlkcUNJcUJYRUdvUS01eW1qTllVRDdYRHBGdFhkZHBSSUh3S0t6RXY3LWF3RDFMWlphWnlKbEJfZ3dZWVhXZHl1TWx3Z2h1OHp4VGx2UU9pOFlGZXRtYzA3V2xHMzJHUlFNaXdqSS1Dc3VRQUxoeV8zbUE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
