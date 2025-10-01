@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 07:09:11（北京时间）**
+🕒 更新时间：**2025年10月02日 07:18:00（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | Met chief apologises for 'reprehensible' behaviour of police officers | [阅读全文](https://www.bbc.com/news/articles/c1mx28gyl29o?at_medium=RSS&at_campaign=rss) |
 | Conservationist Dame Jane Goodall dies aged 91 | [阅读全文](https://www.bbc.com/news/articles/czrp24myrl7o?at_medium=RSS&at_campaign=rss) |
 | Israeli naval ships intercept Gaza-bound flotilla | [阅读全文](https://www.bbc.com/news/articles/c0lk292jww4o?at_medium=RSS&at_campaign=rss) |
-| Baroness Mone-linked company ordered to pay £122m over PPE contract | [阅读全文](https://www.bbc.com/news/articles/c1792rk7ynko?at_medium=RSS&at_campaign=rss) |
+| Should I use olive oil for frying? How to choose the right cooking oil | [阅读全文](https://www.bbc.com/news/articles/cj3y7j2dz44o?at_medium=RSS&at_campaign=rss) |
 | Refugees to face longer route to UK settlement rights | [阅读全文](https://www.bbc.com/news/articles/cddmpr21yr2o?at_medium=RSS&at_campaign=rss) |
+| Hackers delete children's pictures and data after nursery attack backlash | [阅读全文](https://www.bbc.com/news/articles/c8rv83mrlyyo?at_medium=RSS&at_campaign=rss) |
 | Pope Leo condemns climate change critics | [阅读全文](https://www.bbc.com/news/articles/cgl1pgr2zn8o?at_medium=RSS&at_campaign=rss) |
 | Afghans rejoice as internet returns after Taliban blackout | [阅读全文](https://www.bbc.com/news/articles/c0jq2q5jnw3o?at_medium=RSS&at_campaign=rss) |
-| William event may have been target of Mail publisher blagging, Harry's lawyer says | [阅读全文](https://www.bbc.com/news/articles/c07v2dmzv1jo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | Pentagon plans widespread random polygraphs, NDAs to stanch leaks - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNcHdRczhvWW0tR2FmN0lvdVFFYTEtTktvNE82ZFVLZ3RidGhkbkc4TU9zQ2lyV0hRXzJJNHJuN3h4NDltRTJJRExVVlFmdVVacjd1ajUyUVFBbTF6TDMtRGlTQ0NLdVNxMUFPa3A3SDVQN0Y4X1FpTnYxRzZ2ZzFlb1FpS3F6VTlMVGpuNDRUT2xubGRIdXZaZEptWDBQQlk?oc=5) |
 | Pope Leo XIV says 'inhuman treatment of immigrants' in the U.S. isn't 'pro-life' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQU0xmWEtDNUhQQy1tMDFycjRLQUpCS1lmOG04V1hCUTVoU3p6a3hUVjd2VnBLOGlYbzBxQXpqejB6bjk3ZGZoZE8xOUQ5SnhPUnhDSmhkQzZCYlh2Qzk1V0FkamZ3Rm5naEN6LVREa2o1bU1lSnQ5NEV2TVZ3VWVfR3lERkh0cUE4NTlVMFNXejQ2S2ZZeHNCMlFuUWNNaWNEYWhqQ2NyR05wM1BPcU4wUDVoTjM1Qm9xbVFj?oc=5) |
 | Bermuda braces for Hurricane Imelda after a glancing blow from more distant Humberto - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPWDdrZUlUQjc0eE9vR0JfcHY5T0tvMVUzcVE1QkFjR0NGQTRmbHdtOHQ5UC1kbF9SZVNFeW13NXpTcnFzSGE4bUpNTTJ5ZUNRUXpxUlRTRFZScHpkYUJqeHpHTW1qOW9rWng4RDdnM2w1Y29aVV9pdzBkd2RQRGhnOTV1TTgxTVE5UWdLRU1sWE10dXpROXdORktYbnpDblFsV1hLalBkUFZmdmlCMmNtRi1la9IBuAFBVV95cUxPR2lyOE5wWS1yMFdpZ052d3NFNTh6NHVDMkFiNEo5a1hSRDFaNmpkWXlHZlJBT0d3V0JBUHFZT1hEcW1NWTVUZGhnLVRSN3VRN2pJR0JZOHRFdk1aS1lJZ20wQXVDbzh6QkI0QVg2SlZmaXFScXg1SmxEWjV4R1VzaTVfWWFoaWxzVUhyUkg5U2RNWmxTM3RTVEwyT2I3NWZxc1JYUEVURGdvanNXSmV5Y2swWE5qRmFR?oc=5) |
-| Health care is key for Democrats in shutdown fight. Here’s what to know. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQRDRyelp0T0JyZTJQSmFBZHFuRzU3Y2NJN0FOYXBUTF9lWWE5ZnJVQ2Ffa2R0R1AwRV8zMjY0LTk3VHA1TlB0ZVk0SVZ3TnVubGV6TjhSbndFNTRJQ3hYcmJrcDBnMGdhMENJUTAtMFQ3NlQ5R2l0WjNzQm5XYmI1NEdHc3ZyZFhZdEZsYmIxYktub2pGMC1NZ0ZMZjBEZkFXN2FWQmQwZ1E?oc=5) |
 | Part of a high-rise apartment building in New York City collapses, no injuries reported - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxORFIyM0JaeXR1NXBVaDRZMnZ6R09iNzRoOHJiNUszUTVvTGhIZ2F2ek1SdXNMbGlnMHgySC0xMWtCYUQ0bzdVUWNydldJZFpkU3NSQldHSnF6SFVQekdBc2FqOU94SXdyWmVRZzRUZDF4WTc2NDBETnJuYXExT2xQTFFVWHRVZ2NsRTZNMDc3ZE9GMmlCbDRhR9IBngFBVV95cUxONTh4NFhIYUxOTTNYQ2xuRkVjaWJsaFBvSjlaaHFyaDhMWkFfMzdhZmVKdE5MSDM2RXAyUjN1elF6emMxQ3RLcUdkM1p0ZnNFb2RYeS10WWpWRHFBeUNNOHpocFVpZmJEUllLRXlDc1FIY0dmLVJmeTMwXzdCRldYMXhENE0wWGxCamNnYlo2WmJCRFFnS1VMcjZyUmRlZw?oc=5) |
+| Health care is key for Democrats in shutdown fight. Here’s what to know. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQRDRyelp0T0JyZTJQSmFBZHFuRzU3Y2NJN0FOYXBUTF9lWWE5ZnJVQ2Ffa2R0R1AwRV8zMjY0LTk3VHA1TlB0ZVk0SVZ3TnVubGV6TjhSbndFNTRJQ3hYcmJrcDBnMGdhMENJUTAtMFQ3NlQ5R2l0WjNzQm5XYmI1NEdHc3ZyZFhZdEZsYmIxYktub2pGMC1NZ0ZMZjBEZkFXN2FWQmQwZ1E?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
