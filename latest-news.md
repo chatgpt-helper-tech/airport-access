@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 11:08:03（北京时间）**
+🕒 更新时间：**2025年10月01日 11:17:43（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Michigan church shooting survivor says she looked gunman who killed her father in the eyes: "I forgave him right there" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFBWVk1UWVpjcVMxMDk0bUJrcG5ZSW0wVWVOSExWYjVFVzREX0VqUnpUd3J3dDBrb29fV3lFRVpMRTVuQVJQNFBSNFRuTkhTMEFFMEVWSUxyT0lrNVU3b1N0R001SE1oZXBrME93Y3ZLTGRHdkxOTTVaWlNR0gF_QVVfeXFMTWpoNm5BUTdNZEdQT21tZjJqMGxLeVFUNUVoMVU4SlBSMWw0TlFIR3hBamJNQnY0aTJVNGlEZUNsMXl6WFI1cVVHaFNzMmZKR0VNcVlDbFg0anRPejdxM29MMjVQc2duT2Q5cGtUa3lZUHZaMnYzcHZrTjI4UEtXYw?oc=5) |
 | Trump administration illegally targeted pro-Palestinian protesters, judge rules - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPdmdtYTFzUEM2SVRVNnB4bUhqZk9HX0xXalVyM0Y3MWVzZUg5cnV0RGJXT0NWNFNxbXhlRmlpQlZWRzJWVTNHWFVjbEFiZkFITXp4dEZSekV2RHYyc0EzWk4xQzJsT0ZZemczbW5wSDQtSU51RzIxY2hOQkhkbmdpcW04ckJxQVNaWDV6aEswbUdCQ3ZkTGFUTHVVdGpsYVhFaElEYWd5VHJZZ0NKejJ4dkhyTDFleDA?oc=5) |
 | Trump Claims White House Has Struck Deal With Harvard - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5WT0hQMFZRWERQZGRnc0M2dGN1Ynhyc1VtX3JZTEM4aFpScko4Yk93Z25xRnZYcjZ2RUY1dnRCZTl4VW1YUzY4b1J0STd4NUxnd0NRT3c0R3JMWjhpRWtfVW9Ub1lLamUwT2dGeFJXUDN5aHBoenJCdQ?oc=5) |
-| Trump administration uses taxpayer dollars to blame Democrats for government shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPSU5WMXVDSmZ2MWFESUk1S0kwelFlS0Q5bldxbjROVjZQcWh0SnZ4cWVkTGpNRE9zSDNUY0NLQ2huLWZ6Z1FvQi1rVjVLQnJ2ZUZHbWxuaDZjRktJOFpEMFpQaDZyQ0pkcHcxMHhOMWp2b3l4Ykx0d2dmaDJHV1hqaWxBS05mYlVaLU9VdmctU2Q?oc=5) |
-| Judge Disqualifies Nevada’s Acting U.S. Attorney From Handling Cases - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNUUI1MDNwVVQyTHA0clZKUjVZUGlDVDdJUl9xbVJmejNOVnZZQ2hfNTNkdDJwb3BieFBhX2NSS0Q3NnI1SFZwLU85UXZvZG1SUlltSi1fRHdMcjJWNl82ellVM1VfY003Zm8zdXhNVnZmYkJWaEVlRGFhQzZpVmlSRlg4OVlxaWI5RFJRNXRyNXJnQnM?oc=5) |
+| Five homes collapse into the surf of the Outer Banks as hurricanes rumble in Atlantic - AP News | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOWlhaRGkzeWJkb1hDOVNycVFrM3dGSDlwSmRscW5uRldSb0lMckN2NEozS09uMG5rQXhqOVZoeFJrUW1sNGlRd3lCSXM5cGhVTWdTTTBaNVZyUGxtVV9rOVNXb1dhMTdYaEEtU05udHVKbjhqSi1UTVNhVzAxQVl4TlVhRmZwd0tLLUhlRVpCcUhSYVFMYWl4X25OdFAzbkxROFNSQkpLamlhZzZfRHRpS3JBTVdkaDV6Z3RKRDl3?oc=5) |
+| Judge says Nevada US attorney’s involvement in criminal cases ‘would be unlawful’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1QN09tM2hoV3BxUVlKNnBlTUh1Y01qajFqVjNpOGlJU2MtT2VfeXA1dlBCWlJyRllmUjJtTlNvMGtLU1hsckxzcm9kaHd2S0lGRHNaUkZpX3Fjc2hYM2M1ZE9zcUlaUy02T0d1TDh0ZV93eUlRdF9PX191a2t6Mk0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
