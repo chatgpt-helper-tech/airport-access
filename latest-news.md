@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 05:33:04（北京时间）**
+🕒 更新时间：**2025年10月02日 05:40:16（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Pentagon plans widespread random polygraphs, NDAs to stanch leaks - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNcHdRczhvWW0tR2FmN0lvdVFFYTEtTktvNE82ZFVLZ3RidGhkbkc4TU9zQ2lyV0hRXzJJNHJuN3h4NDltRTJJRExVVlFmdVVacjd1ajUyUVFBbTF6TDMtRGlTQ0NLdVNxMUFPa3A3SDVQN0Y4X1FpTnYxRzZ2ZzFlb1FpS3F6VTlMVGpuNDRUT2xubGRIdXZaZEptWDBQQlk?oc=5) |
 | Supreme Court lets Lisa Cook remain as a Federal Reserve governor for now - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPV1U1VFVSVWF2ZGxYQnV4bWw2MGxJdFBqZ25uUVdxb0QxeEc0cGxxN2ZnbXNaTTZTejZKU0Flb0xaNjBweVNFS1ZHZWFWSjJ1dmpkcEtuV3NrQUFPUWs2NWdKTWdOcjkzVURRQzZTeVptc3FoZjhIaXRQRUtmVWJFTnZ6VzB5NnUtNEdtVThEZVBFemVBdm9XOEN4aGhKdkJUeFlUaU5SVXg?oc=5) |
 | Bermuda braces for Hurricane Imelda after a glancing blow from more distant Humberto - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPWDdrZUlUQjc0eE9vR0JfcHY5T0tvMVUzcVE1QkFjR0NGQTRmbHdtOHQ5UC1kbF9SZVNFeW13NXpTcnFzSGE4bUpNTTJ5ZUNRUXpxUlRTRFZScHpkYUJqeHpHTW1qOW9rWng4RDdnM2w1Y29aVV9pdzBkd2RQRGhnOTV1TTgxTVE5UWdLRU1sWE10dXpROXdORktYbnpDblFsV1hLalBkUFZmdmlCMmNtRi1la9IBuAFBVV95cUxPR2lyOE5wWS1yMFdpZ052d3NFNTh6NHVDMkFiNEo5a1hSRDFaNmpkWXlHZlJBT0d3V0JBUHFZT1hEcW1NWTVUZGhnLVRSN3VRN2pJR0JZOHRFdk1aS1lJZ20wQXVDbzh6QkI0QVg2SlZmaXFScXg1SmxEWjV4R1VzaTVfWWFoaWxzVUhyUkg5U2RNWmxTM3RTVEwyT2I3NWZxc1JYUEVURGdvanNXSmV5Y2swWE5qRmFR?oc=5) |
-| Partial Collapse at Bronx NYCHA Building Marks Start of Heat Season - THE CITY - NYC News | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9XRjJUaVhmVElhd3lfZGtsT3pIVjNYX01UTmNTNmVXVDNhVl9SSEVuelpFT1Q4Q2xVNjFFU1hoV2c5Qm5QTWxwTXI1Z2ZobTI0VHhLczRXalRVNmZPNEtEUHZYMmRpRmxLY3E3Z085b3NlSktIdXdqMHBiTzA?oc=5) |
-| Health care is key for Democrats in shutdown fight. Here’s what to know. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQRDRyelp0T0JyZTJQSmFBZHFuRzU3Y2NJN0FOYXBUTF9lWWE5ZnJVQ2Ffa2R0R1AwRV8zMjY0LTk3VHA1TlB0ZVk0SVZ3TnVubGV6TjhSbndFNTRJQ3hYcmJrcDBnMGdhMENJUTAtMFQ3NlQ5R2l0WjNzQm5XYmI1NEdHc3ZyZFhZdEZsYmIxYktub2pGMC1NZ0ZMZjBEZkFXN2FWQmQwZ1E?oc=5) |
+| Part of a high-rise apartment building in New York City collapses, no injuries reported - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxORFIyM0JaeXR1NXBVaDRZMnZ6R09iNzRoOHJiNUszUTVvTGhIZ2F2ek1SdXNMbGlnMHgySC0xMWtCYUQ0bzdVUWNydldJZFpkU3NSQldHSnF6SFVQekdBc2FqOU94SXdyWmVRZzRUZDF4WTc2NDBETnJuYXExT2xQTFFVWHRVZ2NsRTZNMDc3ZE9GMmlCbDRhR9IBngFBVV95cUxONTh4NFhIYUxOTTNYQ2xuRkVjaWJsaFBvSjlaaHFyaDhMWkFfMzdhZmVKdE5MSDM2RXAyUjN1elF6emMxQ3RLcUdkM1p0ZnNFb2RYeS10WWpWRHFBeUNNOHpocFVpZmJEUllLRXlDc1FIY0dmLVJmeTMwXzdCRldYMXhENE0wWGxCamNnYlo2WmJCRFFnS1VMcjZyUmRlZw?oc=5) |
+| U.N. Ambassador Mike Waltz isn't part of Trump's Cabinet, sources say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9iaU13aVU1amZfd04zWDh5Y29Gak1Ld3FoTFR1UDdNTU9ZZHVGWTE5alVYNl9Uek9JMHp1ZnQ2aUFvQzJwaEhSTExCaFpWYmRpNjVVdUU5SkZaY2drZFZUMlRhbUwwNGFvZmZUNnhjTk9TM1F1VWlSc9IBfkFVX3lxTE9QRmdJX1JtUmdaWUdFRE14NUxGaElEcVJPN3FUQUozcWFJRXNBYzhUQ2lCUzhfQmlvT1RwdFdMNDU1R0xJMEhlb3BjUVl6UWJnemItU0FPSTZKb2pIRE4zdWc2MzNHck14Q3J2OUJ1UW9PbXdMTW81S0JaRGgtQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
