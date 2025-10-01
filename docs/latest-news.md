@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 08:08:05（北京时间）**
+🕒 更新时间：**2025年10月01日 08:17:29（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump says $500m deal reached with Harvard to settle dispute - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9ybUQzbU5PTmZ6czhveUhkbUh2V25JR0hPdDV0Q29sTEQyY0prSjJHLWJ4U1Z4VmItWFY3Q2xTdW9KSWR1bVhBbVRUN1ZoVWUtS29JVzBTbmxIcHlRY2xURl9fTFIxbVdZQ1pLLVZlS0tNWHdmWWJMYVBuWUlsdw?oc=5) |
 | Qatar, Egypt and Turkey urge Hamas to accept Trump's Gaza peace plan - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOeHlpLWZjbFpUazZha2YxampoeWJfUktad1haSV9tMC1LdTZjNVdqUkR1OElXbmxkeG9uODl3MGlMUFBuTDlwQnJPbzRpMG02MGdKakVDcjUzY1RoVFFSVTlYcC1VSTl5dFYwUDNCTlVkOXZnTUJhZjRuNWxjdGJULU1MODFjRWNKaGc?oc=5) |
 | Justice Department Opens Investigation into Des Moines Public Schools for Race-Based Employment Practices - Department of Justice (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOUUxGd0E5N09Ka2dueVp0WVZ5N2RIVTFOSmxoaF92MVJicWpoMDRCOF9sM01udi1CMG1hQmFOZmh5MEhBQnpJdmF1akJjQ0w3TElUQmxwWU9VUDBMcmJJUm9SUWJmN2lRdlh0RGhsb0ZrZm9KYm1YWU5teFlsM3FJSEliWkpUR1ZrVzVCMk1FQzlkb1V5WEE5bThBVFhWRmh5b0VWZTVFWDZrNExqcHFaQWZzOGJWcHlv?oc=5) |
+| Federal judge criticizes Trump over free speech in ruling for student protesters - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPWEhrS3BtQUV5b2NWVFpZdUpaTHJRTVliN3VfRDZTR1NxM1dZWVA5bFl4d3ZTXzBKYzdGeWNmampGdzVqZHlRUjIzeVd3QmYwdnF4VElCb0RFODBYR2tsZE9YNG8tbTAzQ1hWbjNvMFhQV2xWUHI0LU5yaTJpTV9kRXI3NUF1dGhoVm1XY2txdzc0emtzUjhZNlRmUDhBUkxPQUY0Sl92QVNndXBUVGFUbzFDU0pvQ0xHTlNMOUVlMC00dHBRYWdkd2FBbFg1Z9IBVkFVX3lxTE5JcDZVWTlESERaRjlKaGtXOUh3RWZ3OVJXSXg4R25YazA5S0tHWkFlRUlBT2dUWDRlTzI5MVlrYVVVZUUtUGgxYTFkVEowSzdrSUV0cG93?oc=5) |
 | Family, friends of Grand Blanc church attack victims launch online fundraisers - The Detroit News | [阅读全文](https://news.google.com/rss/articles/CBMi5wFBVV95cUxPT001VlB6a21XRnpRMW8zWGt3SUU2b1VVTmd2X2dBbmstM01nNm5zM2RGTXBkNnFWQjFNSVo3RVlmdFBiVlVpVmFVdjlGUmtzQy12N01WQ29xTEhQNGRCLVZZd3FUYjU3N2xWNGN1SlR3TWRMUmZZRGxtaUZjY0tObWNKRHZpMlYwUElNakJ1YmFsa1A0ZGpaVnlJZk41UThwU2xRTGZCcUE0TnhGaEhveHdaXzZWa0FjbGFUWWxaSlhoNGl5Q05DMnRyTzBQQmRNWGhtRDJpaG5ZUzdIVmg0ZFJyWnRpclU?oc=5) |
-| Judge finds the Trump administration unconstitutionally targeted noncitizens over Gaza war protests - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOcXcyUmNBY2xrd0FmUHgwSHYzZ1I1Y2NINmVmY1BGcHlNWVN5cE51MEV1dDBiOWNPVXBSZUVKX19TVl9DaW0ydVNmS0twdzdYQnU3bE52OFVQQzNNV25YR25VWXZ1czUzZ3JPUXZxS29tUEM3RW1uWTB4ODA1T2M0ZXc1QkNfc2Y1R0dUT3N1dWhMQlR5dEsyUTJUSmtfdVNpMVZLNkRCYWNsb2NvQ2h5SA?oc=5) |
-| 2nd detainee dies after Dallas ICE facility shooting - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOWHgybVE3WkpXTUEyRWFkVkdOYmFfMEJsWHZnTnhiT2pteFhxenNWQ3F1VC1zLWdKNUoyN3p3Qm1sX3B6Q19kMW9Sa0lvalY4N0NjTkVJZjRBT05HaTloNllzZUpNcUxBWVJiSjNZblVHX05PZkRFRWFFZDRnNE1mSlJVZmZDazl4d0lPVDFVMHRXZnE0Nld6Tnh30gFWQVVfeXFMTmx0TzNnUTA0Mmc1NDFxdlJvUVNlMzRDTFN0YmNwaElLZnZMdUZ5ZEdTRnlBMUNyQWEzOVhWaXp5UndwaExCb3gxYXZkQnM3N1ROUDNGV1E?oc=5) |
-| Louisiana governor asks for national guard deployment to New Orleans - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOMXFGUVI3XzdhVnZtdlIzWWc3aUk5em1LQWhJb09iY0NqWnFWWmhvQjBaS1IyejU3bDc1VWlYZEdZSDZfZ2pLMEJhNDZEcTAwUWM2WHhqZE1LQjloRHRqMlBoTEF3Q0lNYjNxUkpUMFg0dkYtMjI3LWtocXpqZnMyTW5nT1pNM2RVZ1pDOXE2RTJGdHgzWjRNNUJ3WS0?oc=5) |
+| Second victim in Dallas ICE shooting dies from injuries, LULAC says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPQlF2NlpBTlhkYWJMWXFIVlc0YW1vTXRaZ29ta1BVd3dwbkgtTmhpZTJJTnliTGVwaEh1cV9MNG85SFhFRFZqRHhaUHc2M21iMWdXT3ozQk1yajZSTVBzUkVob0w0SUN0U09aSnBxNmh4ZEotRXFKUlFEYjdRWTc1OUxodFoweE5PdjlYRWJtS21kQVlMSTZDU2pIM1g1OWM?oc=5) |
+| Schumer and Thune Spar as Government Shutdown Nears - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQcl9PWks2eWkyalZOWGhBaWo4STk0V1RwSVhQajVNbGRacmJLZU9LOU1zc0I0TXJWNkpDS2JGdWxpTDJiUm5zZFY2WjlfNWl5cXZjcjJoS3ZDakN0TjFNRkJSTDA5T3E1QzdIT0RPdWlEU0dHdkFVcVU2b2MxNUMyU2Nn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
