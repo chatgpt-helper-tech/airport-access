@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 04:57:19（北京时间）**
+🕒 更新时间：**2025年10月02日 05:00:03（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Vote to end government shutdown fails in Senate as Democrats hold firm on health care demands - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxPXzF1MVFsWVoyMW5WME5BbmVUYnJVRjVoUG5Rb2hhamhIN2M2Mk1xS0t4bUI5MlY0UGRrN0FRdDg2U3dYY1RUMGh0TE1WTGROX0tzM2IzWkIteFpnNW1WQmpjWlhTZWhhNmc4OEM4ZF8xbWxhNXhXN0w0S0FqWW5LTmoySl9NMmFLdmJUQlgxcFUyZ09OdjA2cjhEOEQ1bGYxOHZkXzRyaHhvLXZQZ2lKVWkyeF9wUU9mclpiQTJqUUtNOGRMSWtn?oc=5) |
 | Jane Goodall, chimpanzee expert and animal rights campaigner, dies age 91 - follow live - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1fem84Vk4yQ1ZqYVlFa3FZUURFM1NDVE5zMnpnWjB0YjVwNVI2SjhpS3NZaGt0S3p0dkNqQVFKVXNBVlpKQWpRczlzSTVhY0VNZG01Mg?oc=5) |
-| Israeli military start to intercept convoy of aid ships bound for Gaza, organizers say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNLUFUblQ0M3B3clZnZ2lwRENDUTY2OFdMOWpkZGtLSmNKSzMxT3dQWkRjOG11Vk9lZEFXallQZ1lYMEJKQzNudnpiOElIRENDVFVjMUtJSDVZV0dmVGdGREViSnRPTk9CVjhrc05JT2pzZzhIQnMzZWFQME1NV0dGNFdOenFqbU9ENXc?oc=5) |
 | Supreme Court will hear arguments over firing of Fed’s Lisa Cook — but allows her to stay on the job for now - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPUHdTdTg2NlY4TzYyMTd3MW1mRG1fRHktMXFRY1Q1NTl2bUZtN0YtSVowQkEwbHRuWmFfTWZOM2tPZ3Nmd3JGV0VNaUlWZGdCME0wTWIwRHRvekNPNE9hV2h1dDdRbnRlX3hTcjh5OG96M0FiSDVmWTdySmNicHFGM3BvQlQ0R1dTaVM0WTRGRU9ia0NWN2RBX1VESy16Y3du?oc=5) |
+| Israeli military start to intercept convoy of aid ships bound for Gaza, organizers say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNLUFUblQ0M3B3clZnZ2lwRENDUTY2OFdMOWpkZGtLSmNKSzMxT3dQWkRjOG11Vk9lZEFXallQZ1lYMEJKQzNudnpiOElIRENDVFVjMUtJSDVZV0dmVGdGREViSnRPTk9CVjhrc05JT2pzZzhIQnMzZWFQME1NV0dGNFdOenFqbU9ENXc?oc=5) |
 | Veterans react to Hegseth’s ‘insulting’ address to generals and admirals - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOYzhkQnBfS3dmblNzRDVIeG9Sa0lwNHIweFFmTFphWTBPWDQzYWZfbWp2V1J0alRJaDlRei13MTUxd3ctVXFxRmpMVW9URnBCd3FRLXdwenpQQ1hycW1hRWhTQW9CLWhGUXVReEtUREpPWW1nYmp6RHV5VGJTdlVxcVhMSV9kRDlXdC1ZbkNNdmNrdGl6S1E?oc=5) |
 | Trump freezes $18 billion in funding for NYC, home to key Democratic leaders - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPNkVTRDJtX3hsSnlnV2MxRjh2NWFLNm1QeS10dk02dDg5OFZHUi1PMFQxTndkdFFiU25Hc2g5MnpYX0xkRHBCdFdrZUlVR1poNllxVnNpbmNvcFFXTXlhZ1h2a1NuZW9JS1FIRFpQYU9raVcwLVJoMUZ0MGVuaVNGRlJ1ZlhjQjFuYTctaU53ajJ0eS0zYldId2ViNkdPR241ajk5b2tvalZSNWJiSy1Vd2dVQXByMjA4YkFr?oc=5) |
 | Hurricane Imelda tracker: See the projected path as storm forecast to bring 'hurricane-force' winds, waves to Bermuda - Yahoo | [阅读全文](https://news.google.com/rss/articles/CBMihwJBVV95cUxQNGMxSGZnbG13eTlPYW82MUFlVXNpck95LUYyMmNMa295clVUYmdoMklXX1FVMmRiZ1M1dDhPUmFYWmk0TTFZT3BBWVFfNFA0aGlid0plLXVmQk1wTlRUR3BnbnRpS0N0bVdZMTczU1V1b3VnR25va3FZTUhtbmJIUU1admtHRnVIaFZNeXViM2N1NmRyMkxNVXYwMGNycTZSSFBXMHNWcTJmdkJTR1BjTTR6Vk5DUkJpMklYVVF5S0VuOFJoazdVUUNrTFRYQm9xVW9INFg1ZHlqeXEyY29vZGd3M2NGMHBLZl94ampod1h6VllUWHpUZndVYlAzb2xDTnpIYWRpSQ?oc=5) |
