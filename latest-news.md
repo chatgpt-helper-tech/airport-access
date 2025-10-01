@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 21:08:35（北京时间）**
+🕒 更新时间：**2025年10月01日 21:16:32（北京时间）**
 
 ---
 
@@ -26,13 +26,13 @@
 | Government shutdown begins as lawmakers fail to reach deal to extend funding - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOb1BkaFFldE9NdmhxU1h1VVFzMzBCQUhNYzlKU2dIWU1FMDhDTkhicS1fOWhxUS1QcDlzYlhuOUhrVl85V3hkOV9McWZIY3Rzay0tMUtqTzBrT2pvWnBIaFdCT2xwcWVwNHVHX29CQ21yZGstN3B0eDJKV2M4WDFheVZoT1hYVjJTZUxnbFRWOWN4S2hnaFHSAZsBQVVfeXFMTm5Cb05NUkNlUG5NdUpqc1U0RVdSUk95SW41b2dhcHVfNURPN1ByZFRuRjFNQnJYOFc2U1l0ZzQ1aW1UdXdjVnZLalZFV1ZvUzYyakNOOEw0N2RyVzBXajhTd1BUQ3NZX25fZzl2NlFvZkVHQTJZaV84TzFrZmxHVk9aMFRFNkxQamg0c0U4UllSWk1IMzRRY3h5a28?oc=5) |
 | Veterans react to Hegseth’s ‘insulting’ address to generals and admirals - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOYzhkQnBfS3dmblNzRDVIeG9Sa0lwNHIweFFmTFphWTBPWDQzYWZfbWp2V1J0alRJaDlRei13MTUxd3ctVXFxRmpMVW9URnBCd3FRLXdwenpQQ1hycW1hRWhTQW9CLWhGUXVReEtUREpPWW1nYmp6RHV5VGJTdlVxcVhMSV9kRDlXdC1ZbkNNdmNrdGl6S1E?oc=5) |
 | Pfizer's deal ratchets up pressure on other drug companies - Axios | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFA2UlR5OW9ISG1mNXo3MktWVWsyQlBjNExoMlhKZ3I5V0tXbnZ6MC03TVZnVzAzTkF6bVVqWm1PVzhYNldWdDJwMlVvSmgtbW1Zb1RBSTQ2R0tUX3ZnN0JhLTFMRnQ4RUxJUi1UR1R4ckcydEE?oc=5) |
-| Labor unions sue OMB, OPM for ‘unlawful’ threats of mass layoffs ahead of shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5CS052cDhHMlo2ak56dVh1WEk4OGRoanJaRVp6bHJzODZIcEpZOE9zR0ZiR0NJb2xnWk1aTVFSVm8yaVYweFZRZWZ2ZjBndmVyaWRmTDM4NzBZWFd6MmtlVUZtX3lKbXlRbzJGcjItZnpIdUZxcGFvX0oydkJKUU0?oc=5) |
-| Donald Trump pulls ally EJ Antoni’s nomination to lead statistics agency - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFB2NllhdUFuU2RpeGlxUE1aakpEaFJQRHhIRWdRcWtKcGdETHhQeV9vdWVkWGNQZmRLQnNjY21YejA2TW1lSmV3alZNeVY0TXlYODdlTFJleFRkdHVUZmFlMG9zRDM5ZGV3bTdkTldIN2c?oc=5) |
+| Trump pulls nomination of E.J. Antoni to lead Bureau of Labor Statistics, AP source says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNcVZQeFItNXN1OUVacFVBVEUyR0dfTTg5WEgtTmFMXzhpSXliSmlVQ3RndXN6STQwbV96eVJUTXlNWUlIUUkxcER6M3oxcXRHSDZWaTYwaGozemNCbkpicmF1X3ZzOWh0bnVDZVN2VEdlQXRqSjNBZGgyaG9IRTYxNFJqbDZCdFR4WEpuTjhJZzAwaVNFdWRsV1lJQThlOTY4ZmJUSQ?oc=5) |
+| Democrats take the fight to Trump on government shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE01UGNibVdPTktuZVRPNmt1OE1WbTNnUm5uVW5XR1NnVERQWWhUWnd6SldNVDJ4ajZsU2ZmbXp4Mmk3c0tfV29mMmhVaHJOVHpYMmlkUDFaR2Rrdld3RGlHTkhtWl9NXzNaMmlxS1RvUllrM1ZLT1Nr?oc=5) |
 | Trump peace plan 'ignores interests of Palestinian people', Hamas official tells BBC - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9Fc2dMblpqOTdiVDRpVmQ3S241aUNuVmk3UEN2LWFQQkdwcGtrM3ZzR3ZFVm5MZUUzdGROLU8zVDc4aUhLR0h5bWRpTWJLUldaV3pBVG1jbWpuZ9IBX0FVX3lxTE1kdVhPLUJzdEVUSGZFemFXSmJZVDVqTVRpaVo5aWFGTHhndjN0eW9iS1JrTU1nR2U2cTU3TWNwZ1U1Uk9kUnJvT1U2a2l0YXU3dDV0Sm4wb1Y1bXVxOVRF?oc=5) |
 | Trump Claims White House Is Nearing a Deal With Harvard - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5WT0hQMFZRWERQZGRnc0M2dGN1Ynhyc1VtX3JZTEM4aFpScko4Yk93Z25xRnZYcjZ2RUY1dnRCZTl4VW1YUzY4b1J0STd4NUxnd0NRT3c0R3JMWjhpRWtfVW9Ub1lLamUwT2dGeFJXUDN5aHBoenJCdQ?oc=5) |
+| Where things stand with Trump’s National Guard deployments - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQVGdZNDlVS01vaFhwNG9KM0JtX2EzR21BcmM0NXY3QnJ1S3V4dUxUREV1dkdXcGViVFdKYi1OS0dPblZOMGg2NnQ2d3BFUjJ0cEo5cUV0ZXRCc0NUeHcxTzUyaXNjaldFbmJkWERzcTZDclV2QkNUVkphYTNXQnRDRHRFOFhiUExfSkJ6d21ZLTdrUFE5?oc=5) |
 | Brown bear heavyweight Chunk wins Fat Bear Week despite injury - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBuZVBJdkhvcUNKSzdKblQxNnlvdkhrWGg2RHQyOUhEZHVwa2txZjNKQnhYUzJPOXRPVFhSX0tHSExzRC1ZTHFoUVAyc2dJZ1ZJU2Z0LTZma0VKQdIBX0FVX3lxTE5kcUNPRXVZRzRnRnR1MHNGMWdfaU5CZTdVN0FDakM0b3FNb0RNcUpDLTJfYmtPUjQ2N1hEMUhndVFNd0UtbVVKUnFqeG1mVkdVblN4ZWlTSFo4RjlNQ2RJ?oc=5) |
 | Second victim in Dallas ICE shooting dies from injuries, LULAC says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPQlF2NlpBTlhkYWJMWXFIVlc0YW1vTXRaZ29ta1BVd3dwbkgtTmhpZTJJTnliTGVwaEh1cV9MNG85SFhFRFZqRHhaUHc2M21iMWdXT3ozQk1yajZSTVBzUkVob0w0SUN0U09aSnBxNmh4ZEotRXFKUlFEYjdRWTc1OUxodFoweE5PdjlYRWJtS21kQVlMSTZDU2pIM1g1OWM?oc=5) |
-| Federal agencies blame Democrats for looming shutdown in apparent Hatch Act violation - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNSXkyTGtGdnV3N2xQdGJhaHlzel9KMGVFR1dMSEZJYll6aUxDRWRjd2U0RHhSVVBMQkRSTmhNbktVT3NsWDlxOHROdnFlRXFJanE4VGlTMjFHODJiUGlqMi0zcFFFRE1MWVo4M0p3LTlxMlMxTzhKNG1ndDlHb0pkMHRIa1M1bHk4OElN?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
