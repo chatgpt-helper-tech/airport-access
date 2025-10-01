@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 00:49:17（北京时间）**
+🕒 更新时间：**2025年10月02日 00:57:29（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Supreme Court lets Fed Governor Lisa Cook keep job pending oral argument in January - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE00UjBFTWZlbjZDaTN1dWxqRmRJdjN3YmdodXNzU001cmI5S09YaHRIUGZ4Z0E2aFU0Q1I5cl9rNWdWMjFEbDFYR1RLMHhKTFFVRVdraWI5bjBva0NNaFIwRS1zRHdSRHhQUTR2YVVud3dIbzJIWkVLV29R0gF_QVVfeXFMTUN5LVZGR1pNQzBwalZlbnVOU1NGM3lVMFZJVTRJeEdnMXo1YnVIc1NVSUZUVVFMYkp5MTAwM2RHXzk1QVQ5RFZpb3VWbDBUWTJYQVRuUWtUZ25qdWhGb2pka0s1YmtQbFFULUpuNERHMTBGLTJJUFQ1MFVrbHlvVQ?oc=5) |
 | Government shutdown blame begins as Senate tries to reverse course - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxPXzF1MVFsWVoyMW5WME5BbmVUYnJVRjVoUG5Rb2hhamhIN2M2Mk1xS0t4bUI5MlY0UGRrN0FRdDg2U3dYY1RUMGh0TE1WTGROX0tzM2IzWkIteFpnNW1WQmpjWlhTZWhhNmc4OEM4ZF8xbWxhNXhXN0w0S0FqWW5LTmoySl9NMmFLdmJUQlgxcFUyZ09OdjA2cjhEOEQ1bGYxOHZkXzRyaHhvLXZQZ2lKVWkyeF9wUU9mclpiQTJqUUtNOGRMSWtn?oc=5) |
+| Supreme Court lets Fed Governor Lisa Cook keep job pending oral argument in January - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE00UjBFTWZlbjZDaTN1dWxqRmRJdjN3YmdodXNzU001cmI5S09YaHRIUGZ4Z0E2aFU0Q1I5cl9rNWdWMjFEbDFYR1RLMHhKTFFVRVdraWI5bjBva0NNaFIwRS1zRHdSRHhQUTR2YVVud3dIbzJIWkVLV29R0gF_QVVfeXFMTUN5LVZGR1pNQzBwalZlbnVOU1NGM3lVMFZJVTRJeEdnMXo1YnVIc1NVSUZUVVFMYkp5MTAwM2RHXzk1QVQ5RFZpb3VWbDBUWTJYQVRuUWtUZ25qdWhGb2pka0s1YmtQbFFULUpuNERHMTBGLTJJUFQ1MFVrbHlvVQ?oc=5) |
 | Veterans react to Hegseth’s ‘insulting’ address to generals and admirals - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOYzhkQnBfS3dmblNzRDVIeG9Sa0lwNHIweFFmTFphWTBPWDQzYWZfbWp2V1J0alRJaDlRei13MTUxd3ctVXFxRmpMVW9URnBCd3FRLXdwenpQQ1hycW1hRWhTQW9CLWhGUXVReEtUREpPWW1nYmp6RHV5VGJTdlVxcVhMSV9kRDlXdC1ZbkNNdmNrdGl6S1E?oc=5) |
 | 1 thing Republicans and Democrats can agree not to shut down: National parks - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNbEZybUUxcEpnRUZCdWtuS2xicXdUMnNrQ2pzT25UTS00WDdZSDRTNHlIRDFwVnVXa3RUTk16bkxsb1BfQzVqUlJFV1NnbFlIeVRCT2dFXzVqZzI4YUVYX3dua0VkaFAzekN2Y0IwaktjQlVCZ2taYjJ2VnZtNEJJZ1ZZc3pyTjNWNVh5YzJCcHl0UnFlX0k5cXdXQQ?oc=5) |
 | Scoop: How an Israeli attack inadvertently launched Trump's Gaza peace plan - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxORDRBSUNNdldpbjNWVUt2UkN6TjM1cTh1QnkyZGQ2T3ZmbTVxV1BpS1VHWmlNWVhaU1Z4N3RkNVh3MWNpM1c5d25VaW5NbXZuT0tOMzEwbFJrXzZFWEZ1d3ZOcDEyUVUzcFdla0NEWVBkRmlzLUlPc1lvRFhNbEdMYXoyZlpuUXgyVHpyeTU3Z09FbDhYV3dGWGtWd1pzZjl4OEhJdmVMQjhqdw?oc=5) |
