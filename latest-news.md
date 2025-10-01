@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 18:41:49（北京时间）**
+🕒 更新时间：**2025年10月01日 18:49:50（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | All hail the new Fat Bear Champion - The Verge | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBIZXVjSjNQRUtQUC10SzNlN1ZfZUZadGtMenVVbEZNR25nSEdUNE14S3ZiNE93RHVJbGRnNlc0aXpNMV9ZUmlKRHYyZWwwRzNzTTQydVI1TmdQekZhRk5lcTFoWHpkV2xrb1RseWlrQXc?oc=5) |
 | Dozens dead after 6.9-magnitude earthquake strikes Philippines - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBxbG1TeG9mdUpTeEIxX0d6UGFKX0daUVB3UlFOOWZFYWRIZ3phWnVhWFJ5ZElRMDJFOFVvSjA2QkJCQ0MyZU5jV3NhOGVfc09tX3RNZlcwcjNvSXg1V0ZGdlF0aXJmcndnU0ltRGFSb1RaUdIBd0FVX3lxTFBMY1pCQjVHNkhkMEFDUkpYNHhNdm5xOVlFSm0yaHVMclBPRHU5YUljVFp5bG90V2dvdklPSXpnTVMza0stWUpFMnFtNkNMd1lXYkZXUVlaTTdTZEhFbzJKV2tLbXlBXy1EV2tNb083bjRaLUVQMUlZ?oc=5) |
 | Trump Claims White House Is Nearing a Deal With Harvard - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5WT0hQMFZRWERQZGRnc0M2dGN1Ynhyc1VtX3JZTEM4aFpScko4Yk93Z25xRnZYcjZ2RUY1dnRCZTl4VW1YUzY4b1J0STd4NUxnd0NRT3c0R3JMWjhpRWtfVW9Ub1lLamUwT2dGeFJXUDN5aHBoenJCdQ?oc=5) |
-| Government website blames shutdown on "radical left." Ethics group calls it a "blatant violation." - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxOYm5ZdjR1RDIyNFJqNmU0UFVIdzR1SkJSc3FMV2pQcDlqbkxDN3ZxMkhrdVZEZ3hZTHVnWUZYeEZCV1RPQW5WcXY4clo4X1dRdUpPZ0lSY2RoN3pub3M4ZUQ0Z1pCNVJYWkt6YXlhWEZhTjBhNmxEY0dUTXJVbXdmT0w3NDhCUU1hUVdnMHJNOWtRc2tYenA5U3pxYkNLRGZ5QTd6U2FNc2FBVW1IbmZZQV9kSkFRMlhiX3d2MGFBajJic2dwN3dMaGtyQjRpWUHSAdQBQVVfeXFMTVJhQVJleHZ4eGlsQVVpTlRVbkpWelNZTGNSRnY5MjV6RmtMMjRteExKSUpoV3pOaGJzb1YzVnlZYUppVm5rSHh5M2JKcTFsRi1RRVR2cE9NLXd6cGlQU0F4YkRuTVVXQ3k0MnhkQjNGclNqQ2pUdDJCRVVHaWxJRWU5bDU3STJ4bzF5WHowRVdlN1ZqOU1USGVwUlBMX0ZDUHFId0pDMl80YjByMmVWMjMzNXpQU0xyQUh5aEtaWWNPSnVtUThtaWhUNVRhRkZMYlFLNzQ?oc=5) |
-| Judge says Nevada US attorney’s involvement in criminal cases ‘would be unlawful’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1QN09tM2hoV3BxUVlKNnBlTUh1Y01qajFqVjNpOGlJU2MtT2VfeXA1dlBCWlJyRllmUjJtTlNvMGtLU1hsckxzcm9kaHd2S0lGRHNaUkZpX3Fjc2hYM2M1ZE9zcUlaUy02T0d1TDh0ZV93eUlRdF9PX191a2t6Mk0?oc=5) |
+| Judge disqualifies Trump-appointed Nevada prosecutor from some cases after finding she's "not validly serving" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOM0p0LTFvbTFaandQU0VsR09kNzNkckFPcHdCQ1h3dmZkbWNzZ1pZMk1JSWl1OTBkWWhmVHNTc1ZHMGZNazFHOERLMElhZUFCc3dRa2MwejZSUTMtZVV4STh4WEFMZndHbmtPU29iV1Rob0VLMENxakFOS0Z2TTlHd1pMQ1A2d9IBiwFBVV95cUxPcENManQ5UEdJLXR3THdXbV8yRnZYSHBhTFFqZjBXWENQT3Jjb25obkdnS2hBTjVFc1dfWUp3NDFydWV5dDJHM2dacWQxaDV4RjBuYWkwVXZXX0h1ZFU3ZEtsa0tJaUNBU3N0LXh3LWVVRWhfa0Fqd05RaDRtcEFINUlUQUVjS1dNN3Y4?oc=5) |
+| Trump administration blames Democrats for shutdown in official government warnings as deadline nears - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOc25KQy1BRnQtSlJjUko5Y0JnOWU1YVgwOWhiYWRMMjlhNzVXX3JJUEJZOE0xMFdVUllHM0gwU3pud0pPQkppelpxZmVHenRYbTdsWlVNblZHN0xoV0sxQjNnREZkV2FON0xVdG5wWVBETklLMFZoNGpNVy1TNzFPSC0xdDZ3SzhWYkZ6SVpqR1FmeFdhVmtMU29yeHRkcmhFRWUyR2pHS2Q2QQ?oc=5) |
 | 'Sad and troubling end': DMPS board votes to accept resignation of Superintendent Ian Roberts - KCCI | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNMDlKTEh2TWhFNGQ1UDdSOG5WU0ZwcWdZeGVhNWs4bTNQMmNLUXVDbXl2S0t3WnNJNGh6ZFNyWW9ZR0NTSFc4RzlXbHRYZkY1emJsdEtkdnB4bFd1TW9hYzlKcC1GbkF5RlRNNi14VTV3ZzZhQ2N2WWcwWDNUZF9DRVdRTUZGLTg3UWlBVHZPM0ZWNnhvb3RPVTZnWlgtSmVDVFgzd2VQMHhSemVsMkhmX3FBUG8?oc=5) |
 
 ---
