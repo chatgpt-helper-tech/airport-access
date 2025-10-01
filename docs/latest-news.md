@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 13:00:48（北京时间）**
+🕒 更新时间：**2025年10月01日 13:08:19（北京时间）**
 
 ---
 
@@ -8,9 +8,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| I went undercover as a cleaner at a failing care home. Here's what I witnessed | [阅读全文](https://www.bbc.com/news/articles/c4g78yj2v2go?at_medium=RSS&at_campaign=rss) |
-| Farage doesn't believe in Britain, Starmer tells Labour conference | [阅读全文](https://www.bbc.com/news/articles/c749vy43l74o?at_medium=RSS&at_campaign=rss) |
+| Starmer vows rethink on international law to tackle migration | [阅读全文](https://www.bbc.com/news/articles/cd72p30v574o?at_medium=RSS&at_campaign=rss) |
 | Starmer had to show his critics he can take on Farage | [阅读全文](https://www.bbc.com/news/articles/cpw1jwdlz7lo?at_medium=RSS&at_campaign=rss) |
+| I went undercover as a cleaner at a failing care home. Here's what I witnessed | [阅读全文](https://www.bbc.com/news/articles/c4g78yj2v2go?at_medium=RSS&at_campaign=rss) |
 | Bowen: Momentum is the strength of Trump's Gaza plan, but lack of detail is its weakness | [阅读全文](https://www.bbc.com/news/articles/cn829deeje3o?at_medium=RSS&at_campaign=rss) |
 | Trump peace plan 'ignores interests of Palestinian people', Hamas official tells BBC | [阅读全文](https://www.bbc.com/news/articles/cx2j97jldkmo?at_medium=RSS&at_campaign=rss) |
 | Anne visits Ukraine to support children 'traumatised' by war | [阅读全文](https://www.bbc.com/news/articles/cgrqlrjgd51o?at_medium=RSS&at_campaign=rss) |
