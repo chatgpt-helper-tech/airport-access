@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 15:08:02（北京时间）**
+🕒 更新时间：**2025年10月01日 15:18:02（北京时间）**
 
 ---
 
@@ -12,10 +12,10 @@
 | Chris Mason: Starmer had to show his critics he can take on Farage | [阅读全文](https://www.bbc.com/news/articles/cpw1jwdlz7lo?at_medium=RSS&at_campaign=rss) |
 | I went undercover as a cleaner at a failing care home. Here's what I witnessed | [阅读全文](https://www.bbc.com/news/articles/c4g78yj2v2go?at_medium=RSS&at_campaign=rss) |
 | Bowen: Momentum is the strength of Trump's Gaza plan, but lack of detail is its weakness | [阅读全文](https://www.bbc.com/news/articles/cn829deeje3o?at_medium=RSS&at_campaign=rss) |
-| Anne visits Ukraine to support children 'traumatised' by war | [阅读全文](https://www.bbc.com/news/articles/cgrqlrjgd51o?at_medium=RSS&at_campaign=rss) |
-| 'Buy one, get one free' deals for unhealthy food banned | [阅读全文](https://www.bbc.com/news/articles/c89d54gv44qo?at_medium=RSS&at_campaign=rss) |
-| Surgeon offered womb removals in 'minutes' without proper examination, women say | [阅读全文](https://www.bbc.com/news/articles/ckgqr7nnzw1o?at_medium=RSS&at_campaign=rss) |
 | Every GP practice now has to offer online booking | [阅读全文](https://www.bbc.com/news/articles/cjed4qvzjeyo?at_medium=RSS&at_campaign=rss) |
+| 'Buy one, get one free' deals for unhealthy food banned | [阅读全文](https://www.bbc.com/news/articles/c89d54gv44qo?at_medium=RSS&at_campaign=rss) |
+| Anne visits Ukraine to support children 'traumatised' by war | [阅读全文](https://www.bbc.com/news/articles/cgrqlrjgd51o?at_medium=RSS&at_campaign=rss) |
+| Surgeon offered womb removals in 'minutes' without proper examination, women say | [阅读全文](https://www.bbc.com/news/articles/ckgqr7nnzw1o?at_medium=RSS&at_campaign=rss) |
 | Half of UK adults now regularly use mobile payments | [阅读全文](https://www.bbc.com/news/articles/c2ejvld0ypyo?at_medium=RSS&at_campaign=rss) |
 | European leaders meet in high-security Danish summit after drone disruption | [阅读全文](https://www.bbc.com/news/articles/cp8jdene16ro?at_medium=RSS&at_campaign=rss) |
 
