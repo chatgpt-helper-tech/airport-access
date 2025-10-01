@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 07:18:00（北京时间）**
+🕒 更新时间：**2025年10月02日 07:24:30（北京时间）**
 
 ---
 
@@ -24,10 +24,10 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Government shutdown live updates as White House moves to cut billions in funding - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQaHFLcW9oWWgzYy10ay1uZnFDbTV0WXBDVE5GM201a0lfX0ZoOVpMOFVaSHpINzBfTEVNMV9md1JraVFDV1EwYVVJRHN1MGhBcEU2R3h3eWxoMkZ3OHc4UjNvZS1jZWdVQ0FvWUpYNkhtbm9PY0RKbUViTFRiTjJsUlAyWVg0dV8wUXBtdkJ5SdIBlAFBVV95cUxOOFg0NFJ5NDNyNk5KRzQtd2ZjMjZQR1BMbnhyX3U4TU43aVBLWVoyOXgzM3lRMGhJcXRIWUlJNGtBYzYxb252eXBUUExxaWphbHpGOUxVLWFBTzZDOWd4NDlzY2dacVdZdFZxSDZWLVdTYjJyMzIwd3BJMDFVNWRyQzlJNWN3c2duWFZIWEo5dXRxdDIy?oc=5) |
+| 'An extraordinary legacy': Tributes after chimpanzee expert Jane Goodall dies age 91 - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1fem84Vk4yQ1ZqYVlFa3FZUURFM1NDVE5zMnpnWjB0YjVwNVI2SjhpS3NZaGt0S3p0dkNqQVFKVXNBVlpKQWpRczlzSTVhY0VNZG01Mg?oc=5) |
 | Veterans react to Hegseth’s ‘insulting’ address to generals and admirals - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOYzhkQnBfS3dmblNzRDVIeG9Sa0lwNHIweFFmTFphWTBPWDQzYWZfbWp2V1J0alRJaDlRei13MTUxd3ctVXFxRmpMVW9URnBCd3FRLXdwenpQQ1hycW1hRWhTQW9CLWhGUXVReEtUREpPWW1nYmp6RHV5VGJTdlVxcVhMSV9kRDlXdC1ZbkNNdmNrdGl6S1E?oc=5) |
 | Trump to withhold billions of dollars from Gateway tunnel and Second Ave. subway projects - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxNRGkzcENJN2loRnpXOWc4Yk9HWk5BZzY5VzRnS2p0aWFMSXhCS1VNV24wMHpBUzNaSnIwWnVtSlpDUG50dnA3NVhCSFBScmRhdV8wS05KRTVYUGhJQWZhajV1SEhMUlNEVmxDS1JLWGxjV201VUtvS0VjdjBacU1kb25JUzNqa2VkSGEtcXhIcDB2VXJWdEFLczdjYnk0OVRkc0p4YVhKNW5TcW5lYVpGR2hiOEYyMW9HX0xwTms4bnZMaUlPOUJCVzdhWmJYQVlMeUI0YQ?oc=5) |
 | Supreme Court lets Lisa Cook remain as a Federal Reserve governor for now - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPV1U1VFVSVWF2ZGxYQnV4bWw2MGxJdFBqZ25uUVdxb0QxeEc0cGxxN2ZnbXNaTTZTejZKU0Flb0xaNjBweVNFS1ZHZWFWSjJ1dmpkcEtuV3NrQUFPUWs2NWdKTWdOcjkzVURRQzZTeVptc3FoZjhIaXRQRUtmVWJFTnZ6VzB5NnUtNEdtVThEZVBFemVBdm9XOEN4aGhKdkJUeFlUaU5SVXg?oc=5) |
-| 'An extraordinary legacy': Tributes after chimpanzee expert Jane Goodall dies age 91 - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1fem84Vk4yQ1ZqYVlFa3FZUURFM1NDVE5zMnpnWjB0YjVwNVI2SjhpS3NZaGt0S3p0dkNqQVFKVXNBVlpKQWpRczlzSTVhY0VNZG01Mg?oc=5) |
 | Pentagon plans widespread random polygraphs, NDAs to stanch leaks - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNcHdRczhvWW0tR2FmN0lvdVFFYTEtTktvNE82ZFVLZ3RidGhkbkc4TU9zQ2lyV0hRXzJJNHJuN3h4NDltRTJJRExVVlFmdVVacjd1ajUyUVFBbTF6TDMtRGlTQ0NLdVNxMUFPa3A3SDVQN0Y4X1FpTnYxRzZ2ZzFlb1FpS3F6VTlMVGpuNDRUT2xubGRIdXZaZEptWDBQQlk?oc=5) |
 | Pope Leo XIV says 'inhuman treatment of immigrants' in the U.S. isn't 'pro-life' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQU0xmWEtDNUhQQy1tMDFycjRLQUpCS1lmOG04V1hCUTVoU3p6a3hUVjd2VnBLOGlYbzBxQXpqejB6bjk3ZGZoZE8xOUQ5SnhPUnhDSmhkQzZCYlh2Qzk1V0FkamZ3Rm5naEN6LVREa2o1bU1lSnQ5NEV2TVZ3VWVfR3lERkh0cUE4NTlVMFNXejQ2S2ZZeHNCMlFuUWNNaWNEYWhqQ2NyR05wM1BPcU4wUDVoTjM1Qm9xbVFj?oc=5) |
 | Bermuda braces for Hurricane Imelda after a glancing blow from more distant Humberto - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPWDdrZUlUQjc0eE9vR0JfcHY5T0tvMVUzcVE1QkFjR0NGQTRmbHdtOHQ5UC1kbF9SZVNFeW13NXpTcnFzSGE4bUpNTTJ5ZUNRUXpxUlRTRFZScHpkYUJqeHpHTW1qOW9rWng4RDdnM2w1Y29aVV9pdzBkd2RQRGhnOTV1TTgxTVE5UWdLRU1sWE10dXpROXdORktYbnpDblFsV1hLalBkUFZmdmlCMmNtRi1la9IBuAFBVV95cUxPR2lyOE5wWS1yMFdpZ052d3NFNTh6NHVDMkFiNEo5a1hSRDFaNmpkWXlHZlJBT0d3V0JBUHFZT1hEcW1NWTVUZGhnLVRSN3VRN2pJR0JZOHRFdk1aS1lJZ20wQXVDbzh6QkI0QVg2SlZmaXFScXg1SmxEWjV4R1VzaTVfWWFoaWxzVUhyUkg5U2RNWmxTM3RTVEwyT2I3NWZxc1JYUEVURGdvanNXSmV5Y2swWE5qRmFR?oc=5) |
