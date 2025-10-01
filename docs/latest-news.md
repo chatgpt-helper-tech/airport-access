@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 03:33:42（北京时间）**
+🕒 更新时间：**2025年10月02日 03:40:09（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Bermuda braces for Hurricane Imelda after a glancing blow from more distant Humberto - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPWDdrZUlUQjc0eE9vR0JfcHY5T0tvMVUzcVE1QkFjR0NGQTRmbHdtOHQ5UC1kbF9SZVNFeW13NXpTcnFzSGE4bUpNTTJ5ZUNRUXpxUlRTRFZScHpkYUJqeHpHTW1qOW9rWng4RDdnM2w1Y29aVV9pdzBkd2RQRGhnOTV1TTgxTVE5UWdLRU1sWE10dXpROXdORktYbnpDblFsV1hLalBkUFZmdmlCMmNtRi1la9IBuAFBVV95cUxPR2lyOE5wWS1yMFdpZ052d3NFNTh6NHVDMkFiNEo5a1hSRDFaNmpkWXlHZlJBT0d3V0JBUHFZT1hEcW1NWTVUZGhnLVRSN3VRN2pJR0JZOHRFdk1aS1lJZ20wQXVDbzh6QkI0QVg2SlZmaXFScXg1SmxEWjV4R1VzaTVfWWFoaWxzVUhyUkg5U2RNWmxTM3RTVEwyT2I3NWZxc1JYUEVURGdvanNXSmV5Y2swWE5qRmFR?oc=5) |
 | Part of a high-rise apartment building in New York City collapses, no injuries reported - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxORFIyM0JaeXR1NXBVaDRZMnZ6R09iNzRoOHJiNUszUTVvTGhIZ2F2ek1SdXNMbGlnMHgySC0xMWtCYUQ0bzdVUWNydldJZFpkU3NSQldHSnF6SFVQekdBc2FqOU94SXdyWmVRZzRUZDF4WTc2NDBETnJuYXExT2xQTFFVWHRVZ2NsRTZNMDc3ZE9GMmlCbDRhR9IBngFBVV95cUxONTh4NFhIYUxOTTNYQ2xuRkVjaWJsaFBvSjlaaHFyaDhMWkFfMzdhZmVKdE5MSDM2RXAyUjN1elF6emMxQ3RLcUdkM1p0ZnNFb2RYeS10WWpWRHFBeUNNOHpocFVpZmJEUllLRXlDc1FIY0dmLVJmeTMwXzdCRldYMXhENE0wWGxCamNnYlo2WmJCRFFnS1VMcjZyUmRlZw?oc=5) |
 | Judge says Nevada US attorney’s involvement in criminal cases ‘would be unlawful’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1QN09tM2hoV3BxUVlKNnBlTUh1Y01qajFqVjNpOGlJU2MtT2VfeXA1dlBCWlJyRllmUjJtTlNvMGtLU1hsckxzcm9kaHd2S0lGRHNaUkZpX3Fjc2hYM2M1ZE9zcUlaUy02T0d1TDh0ZV93eUlRdF9PX191a2t6Mk0?oc=5) |
-| Trump's pharmaceutical tariff threat loses bite after Pfizer deal reassures drugmakers - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQTGg0SlZ3X1pzeWZRdEFUVGt1SGJiVWtaaS1XRkZibGE4SlNEbTU3d2trYUJNTk9oVDZFVUlpRE9kcjlkTlVqS0hPblhWemRHUUVUSUlqX04tQy1RQ3h5UlhmU3JUaWxiZU9JcW5XT3VJZTk3VXY5U3cySmpYcWhqOW90b9IBiAFBVV95cUxOUkNTUlNOb3NMbHpMc1FDWjJXNnVEQ3N5ZF9yNHA2LU5sV2E2eWlkMmJ3aE02Ym4tb281RnJFSFk0QVVIWFBFdmVDb1FmWU91c3B2YmFiUTdiLWJZUTAtaFFob2tvU3JjOThESEdJZENzeUFpWTFKbVhpSWs4czB2aEt0YW14R2hl?oc=5) |
+| Mormons raise nearly $200,000 for family of gunman who attacked their church - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPbmpxcHdhenVUbDdWX3FuMlFQUXplY3poZmxtNk1PQjhTelowX2hQUElMLUs5a3pLNURnX1VnU2FrVFJfeWd1RHUyY1p1dGEzZi10LU5nS05rWElDVEtPeThoNGQ2d0lPOUVDNEJ1QzJiQzh4MTYtNUI4T2F3WjBjTTV3bUExZzdTSEY5bXFLS1FzWloxdlQyOTZ1amhCY0k?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
