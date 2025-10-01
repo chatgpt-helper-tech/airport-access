@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 19:09:20（北京时间）**
+🕒 更新时间：**2025年10月01日 19:16:30（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Energy bills rise by 2% for millions with calls for more support | [阅读全文](https://www.bbc.com/news/articles/cm2zr4nym9zo?at_medium=RSS&at_campaign=rss) |
 | Surgeon offered womb removals in 'minutes' without proper examination, women say | [阅读全文](https://www.bbc.com/news/articles/ckgqr7nnzw1o?at_medium=RSS&at_campaign=rss) |
 | State of calamity in Philippines province as earthquake kills 69 | [阅读全文](https://www.bbc.com/news/articles/ced5pyjzej3o?at_medium=RSS&at_campaign=rss) |
-| Trump trusts Blair, others don't - could he govern Gaza? | [阅读全文](https://www.bbc.com/news/articles/c89d5938w3ko?at_medium=RSS&at_campaign=rss) |
+| AO boss tells BBC: We're a British success story – the UK should be turbocharging us | [阅读全文](https://www.bbc.com/news/articles/c8exj892085o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -28,11 +28,11 @@
 | Mark Cuban gives Trump's proposed direct-to-consumer prescription drugs website a 'B' - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOWXJ1cjhRUkZYNFhqa1l6NGJiNGF3cUhzN1dmZW42NzFCSmlVMHI3R1FWVXl2R0FOeEN1QkVHcEROUDUtY1NnN3k4SnEzT3pGclk1aUVpb2tLUEplMnRMUjRSSDdCeHh1N3RVZG51OGhlN1poQTVOdkFBRGxkSkpOajhSZU1WTjFmSkJJX09mYlpoQllVOG9ManFIbmJ3R1ZWdG9qdlJ0VQ?oc=5) |
 | Trump pulls nomination of E.J. Antoni to lead Bureau of Labor Statistics, AP source says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNcVZQeFItNXN1OUVacFVBVEUyR0dfTTg5WEgtTmFMXzhpSXliSmlVQ3RndXN6STQwbV96eVJUTXlNWUlIUUkxcER6M3oxcXRHSDZWaTYwaGozemNCbkpicmF1X3ZzOWh0bnVDZVN2VEdlQXRqSjNBZGgyaG9IRTYxNFJqbDZCdFR4WEpuTjhJZzAwaVNFdWRsV1lJQThlOTY4ZmJUSQ?oc=5) |
 | Dozens dead after 6.9-magnitude earthquake strikes Philippines - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBxbG1TeG9mdUpTeEIxX0d6UGFKX0daUVB3UlFOOWZFYWRIZ3phWnVhWFJ5ZElRMDJFOFVvSjA2QkJCQ0MyZU5jV3NhOGVfc09tX3RNZlcwcjNvSXg1V0ZGdlF0aXJmcndnU0ltRGFSb1RaUdIBd0FVX3lxTFBMY1pCQjVHNkhkMEFDUkpYNHhNdm5xOVlFSm0yaHVMclBPRHU5YUljVFp5bG90V2dvdklPSXpnTVMza0stWUpFMnFtNkNMd1lXYkZXUVlaTTdTZEhFbzJKV2tLbXlBXy1EV2tNb083bjRaLUVQMUlZ?oc=5) |
-| What the federal government shutdown might mean for flights and other travel in the US - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOaGw0MFZOX2ZzTUtuNExVb2x5SzZsb0hqbVRQWDh5YjZlWVdnb1NaMmxOTFlfbGtkV09mMHhIUVV2eUYzemY3eXdiLW56MWhpWEJ2dmRKSHhxekIxa0RuNGVOaXVUNkVtbGhxd1FtNWpGendZeEtTOTJibFpjM2M5LVRibEVXSDNHWjlj?oc=5) |
+| Michigan church shooting survivor says she looked gunman who killed her father in the eyes: "I forgave him right there" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFBWVk1UWVpjcVMxMDk0bUJrcG5ZSW0wVWVOSExWYjVFVzREX0VqUnpUd3J3dDBrb29fV3lFRVpMRTVuQVJQNFBSNFRuTkhTMEFFMEVWSUxyT0lrNVU3b1N0R001SE1oZXBrME93Y3ZLTGRHdkxOTTVaWlNR0gF_QVVfeXFMTWpoNm5BUTdNZEdQT21tZjJqMGxLeVFUNUVoMVU4SlBSMWw0TlFIR3hBamJNQnY0aTJVNGlEZUNsMXl6WFI1cVVHaFNzMmZKR0VNcVlDbFg0anRPejdxM29MMjVQc2duT2Q5cGtUa3lZUHZaMnYzcHZrTjI4UEtXYw?oc=5) |
 | Trump Claims White House Is Nearing a Deal With Harvard - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5WT0hQMFZRWERQZGRnc0M2dGN1Ynhyc1VtX3JZTEM4aFpScko4Yk93Z25xRnZYcjZ2RUY1dnRCZTl4VW1YUzY4b1J0STd4NUxnd0NRT3c0R3JMWjhpRWtfVW9Ub1lLamUwT2dGeFJXUDN5aHBoenJCdQ?oc=5) |
 | Judge disqualifies Trump-appointed Nevada prosecutor from some cases after finding she's "not validly serving" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOM0p0LTFvbTFaandQU0VsR09kNzNkckFPcHdCQ1h3dmZkbWNzZ1pZMk1JSWl1OTBkWWhmVHNTc1ZHMGZNazFHOERLMElhZUFCc3dRa2MwejZSUTMtZVV4STh4WEFMZndHbmtPU29iV1Rob0VLMENxakFOS0Z2TTlHd1pMQ1A2d9IBiwFBVV95cUxPcENManQ5UEdJLXR3THdXbV8yRnZYSHBhTFFqZjBXWENQT3Jjb25obkdnS2hBTjVFc1dfWUp3NDFydWV5dDJHM2dacWQxaDV4RjBuYWkwVXZXX0h1ZFU3ZEtsa0tJaUNBU3N0LXh3LWVVRWhfa0Fqd05RaDRtcEFINUlUQUVjS1dNN3Y4?oc=5) |
 | Trump administration blames Democrats for shutdown in official government warnings as deadline nears - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOc25KQy1BRnQtSlJjUko5Y0JnOWU1YVgwOWhiYWRMMjlhNzVXX3JJUEJZOE0xMFdVUllHM0gwU3pud0pPQkppelpxZmVHenRYbTdsWlVNblZHN0xoV0sxQjNnREZkV2FON0xVdG5wWVBETklLMFZoNGpNVy1TNzFPSC0xdDZ3SzhWYkZ6SVpqR1FmeFdhVmtMU29yeHRkcmhFRWUyR2pHS2Q2QQ?oc=5) |
-| Scoop: Schumer rallies Democrats as shutdown deadline looms - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBNU1BZQ1I0c05vUGVjUUdKYVlobkpoWWZpMEw2Ti1SRW9VLU80WHR5QUk0UUE3MDhZZDNSZmhoWG02X3VkWGFJVFA3VHVZbE9aRFZCdTNXRTlPREVkQk1TbmRWV2g1RlFDY21rc1lsX0lKeWhnQmVCMnVUQ2w?oc=5) |
+| 'Sad and troubling end': DMPS board votes to accept resignation of Superintendent Ian Roberts - KCCI | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNMDlKTEh2TWhFNGQ1UDdSOG5WU0ZwcWdZeGVhNWs4bTNQMmNLUXVDbXl2S0t3WnNJNGh6ZFNyWW9ZR0NTSFc4RzlXbHRYZkY1emJsdEtkdnB4bFd1TW9hYzlKcC1GbkF5RlRNNi14VTV3ZzZhQ2N2WWcwWDNUZF9DRVdRTUZGLTg3UWlBVHZPM0ZWNnhvb3RPVTZnWlgtSmVDVFgzd2VQMHhSemVsMkhmX3FBUG8?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
