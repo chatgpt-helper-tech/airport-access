@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 16:57:46（北京时间）**
+🕒 更新时间：**2025年10月01日 17:01:17（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Michigan church shooting survivor says she looked gunman who killed her father in the eyes: "I forgave him right there" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFBWVk1UWVpjcVMxMDk0bUJrcG5ZSW0wVWVOSExWYjVFVzREX0VqUnpUd3J3dDBrb29fV3lFRVpMRTVuQVJQNFBSNFRuTkhTMEFFMEVWSUxyT0lrNVU3b1N0R001SE1oZXBrME93Y3ZLTGRHdkxOTTVaWlNR0gF_QVVfeXFMTWpoNm5BUTdNZEdQT21tZjJqMGxLeVFUNUVoMVU4SlBSMWw0TlFIR3hBamJNQnY0aTJVNGlEZUNsMXl6WFI1cVVHaFNzMmZKR0VNcVlDbFg0anRPejdxM29MMjVQc2duT2Q5cGtUa3lZUHZaMnYzcHZrTjI4UEtXYw?oc=5) |
 | Trump Claims White House Is Nearing a Deal With Harvard - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5WT0hQMFZRWERQZGRnc0M2dGN1Ynhyc1VtX3JZTEM4aFpScko4Yk93Z25xRnZYcjZ2RUY1dnRCZTl4VW1YUzY4b1J0STd4NUxnd0NRT3c0R3JMWjhpRWtfVW9Ub1lLamUwT2dGeFJXUDN5aHBoenJCdQ?oc=5) |
 | 2nd detainee dies after Dallas ICE facility shooting - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOWHgybVE3WkpXTUEyRWFkVkdOYmFfMEJsWHZnTnhiT2pteFhxenNWQ3F1VC1zLWdKNUoyN3p3Qm1sX3B6Q19kMW9Sa0lvalY4N0NjTkVJZjRBT05HaTloNllzZUpNcUxBWVJiSjNZblVHX05PZkRFRWFFZDRnNE1mSlJVZmZDazl4d0lPVDFVMHRXZnE0Nld6Tnh30gFWQVVfeXFMTmx0TzNnUTA0Mmc1NDFxdlJvUVNlMzRDTFN0YmNwaElLZnZMdUZ5ZEdTRnlBMUNyQWEzOVhWaXp5UndwaExCb3gxYXZkQnM3N1ROUDNGV1E?oc=5) |
+| Government website blames shutdown on "radical left." Ethics group calls it a "blatant violation." - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxOYm5ZdjR1RDIyNFJqNmU0UFVIdzR1SkJSc3FMV2pQcDlqbkxDN3ZxMkhrdVZEZ3hZTHVnWUZYeEZCV1RPQW5WcXY4clo4X1dRdUpPZ0lSY2RoN3pub3M4ZUQ0Z1pCNVJYWkt6YXlhWEZhTjBhNmxEY0dUTXJVbXdmT0w3NDhCUU1hUVdnMHJNOWtRc2tYenA5U3pxYkNLRGZ5QTd6U2FNc2FBVW1IbmZZQV9kSkFRMlhiX3d2MGFBajJic2dwN3dMaGtyQjRpWUHSAdQBQVVfeXFMTVJhQVJleHZ4eGlsQVVpTlRVbkpWelNZTGNSRnY5MjV6RmtMMjRteExKSUpoV3pOaGJzb1YzVnlZYUppVm5rSHh5M2JKcTFsRi1RRVR2cE9NLXd6cGlQU0F4YkRuTVVXQ3k0MnhkQjNGclNqQ2pUdDJCRVVHaWxJRWU5bDU3STJ4bzF5WHowRVdlN1ZqOU1USGVwUlBMX0ZDUHFId0pDMl80YjByMmVWMjMzNXpQU0xyQUh5aEtaWWNPSnVtUThtaWhUNVRhRkZMYlFLNzQ?oc=5) |
 | Judge Disqualifies Nevada’s Acting U.S. Attorney From Handling Cases - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNUUI1MDNwVVQyTHA0clZKUjVZUGlDVDdJUl9xbVJmejNOVnZZQ2hfNTNkdDJwb3BieFBhX2NSS0Q3NnI1SFZwLU85UXZvZG1SUlltSi1fRHdMcjJWNl82ellVM1VfY003Zm8zdXhNVnZmYkJWaEVlRGFhQzZpVmlSRlg4OVlxaWI5RFJRNXRyNXJnQnM?oc=5) |
-| 'Sad and troubling end': DMPS board votes to accept resignation of Superintendent Ian Roberts - KCCI | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNMDlKTEh2TWhFNGQ1UDdSOG5WU0ZwcWdZeGVhNWs4bTNQMmNLUXVDbXl2S0t3WnNJNGh6ZFNyWW9ZR0NTSFc4RzlXbHRYZkY1emJsdEtkdnB4bFd1TW9hYzlKcC1GbkF5RlRNNi14VTV3ZzZhQ2N2WWcwWDNUZF9DRVdRTUZGLTg3UWlBVHZPM0ZWNnhvb3RPVTZnWlgtSmVDVFgzd2VQMHhSemVsMkhmX3FBUG8?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
