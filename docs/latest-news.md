@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 05:17:55（北京时间）**
+🕒 更新时间：**2025年10月02日 05:24:55（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Government shutdown live updates as White House moves to cut billions in funding - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQaHFLcW9oWWgzYy10ay1uZnFDbTV0WXBDVE5GM201a0lfX0ZoOVpMOFVaSHpINzBfTEVNMV9md1JraVFDV1EwYVVJRHN1MGhBcEU2R3h3eWxoMkZ3OHc4UjNvZS1jZWdVQ0FvWUpYNkhtbm9PY0RKbUViTFRiTjJsUlAyWVg0dV8wUXBtdkJ5SdIBlAFBVV95cUxOOFg0NFJ5NDNyNk5KRzQtd2ZjMjZQR1BMbnhyX3U4TU43aVBLWVoyOXgzM3lRMGhJcXRIWUlJNGtBYzYxb252eXBUUExxaWphbHpGOUxVLWFBTzZDOWd4NDlzY2dacVdZdFZxSDZWLVdTYjJyMzIwd3BJMDFVNWRyQzlJNWN3c2duWFZIWEo5dXRxdDIy?oc=5) |
 | Jane Goodall, chimpanzee expert and animal rights campaigner, dies age 91 - follow live - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1fem84Vk4yQ1ZqYVlFa3FZUURFM1NDVE5zMnpnWjB0YjVwNVI2SjhpS3NZaGt0S3p0dkNqQVFKVXNBVlpKQWpRczlzSTVhY0VNZG01Mg?oc=5) |
-| Trump to withhold billions of dollars from Gateway tunnel and Second Ave. subway projects - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxNRGkzcENJN2loRnpXOWc4Yk9HWk5BZzY5VzRnS2p0aWFMSXhCS1VNV24wMHpBUzNaSnIwWnVtSlpDUG50dnA3NVhCSFBScmRhdV8wS05KRTVYUGhJQWZhajV1SEhMUlNEVmxDS1JLWGxjV201VUtvS0VjdjBacU1kb25JUzNqa2VkSGEtcXhIcDB2VXJWdEFLczdjYnk0OVRkc0p4YVhKNW5TcW5lYVpGR2hiOEYyMW9HX0xwTms4bnZMaUlPOUJCVzdhWmJYQVlMeUI0YQ?oc=5) |
 | Hakeem Jeffries called Trump’s deepfake post ‘racist.’ JD Vance said it was ‘funny.’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxON2h2NmFkQ3RzbmxOQnhZWHl5azlPd2RMbGxJalVjakh1WnZuRUVsUC0wVnpsNmlybHJ0dl9JcDNWS2NZa3l3VF9nRmZTQWI0b0lXbHh5clpqcjBUSVBjWHhQRlZ1N1A0OUUzc3Bqb3FqODBLTl95QmJoTEZ6QWZFRzNfcVpXZ2hMNGc?oc=5) |
+| Trump freezes $18 billion in funding for NYC, home to key Democratic leaders - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPNkVTRDJtX3hsSnlnV2MxRjh2NWFLNm1QeS10dk02dDg5OFZHUi1PMFQxTndkdFFiU25Hc2g5MnpYX0xkRHBCdFdrZUlVR1poNllxVnNpbmNvcFFXTXlhZ1h2a1NuZW9JS1FIRFpQYU9raVcwLVJoMUZ0MGVuaVNGRlJ1ZlhjQjFuYTctaU53ajJ0eS0zYldId2ViNkdPR241ajk5b2tvalZSNWJiSy1Vd2dVQXByMjA4YkFr?oc=5) |
 | Veterans react to Hegseth’s ‘insulting’ address to generals and admirals - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOYzhkQnBfS3dmblNzRDVIeG9Sa0lwNHIweFFmTFphWTBPWDQzYWZfbWp2V1J0alRJaDlRei13MTUxd3ctVXFxRmpMVW9URnBCd3FRLXdwenpQQ1hycW1hRWhTQW9CLWhGUXVReEtUREpPWW1nYmp6RHV5VGJTdlVxcVhMSV9kRDlXdC1ZbkNNdmNrdGl6S1E?oc=5) |
 | Pope intervenes in US abortion debate by raising what it really means to be pro-life - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNVkZ2UGlUWUtMQ1FIX2FtX1k1NTNxQmJrNF9HVDhRdGRoVzlaRlZMUFY4ZTZockI3MkdmOTdjejVVUW5SQkxIRk55dV9EVDlRZFZGOW9Xek5NWHFueFlEUDJYUnlOcHhyOWxYd0RERjJXZjhUc0JzMWRHZzFIX1FLTV9Wc09DWktrZlFKYjh6YTBhbkpySXRhZWlxcXdma0plUHhrZkRwdmtWSV9TRmfSAbMBQVVfeXFMT2I4M29UanBfWllLVVBrRzJGWVVJdjN4NU9OTklnNXNSUjhvU0w4S2Y2TVpkTVdseEE5Mm93RFFHYmMzX19VVHMwUU9zVUdyd2JuRmx3YllCRTNvWUZLYXhhbmtBZlhHOEpmbTFnNlAxWTVpanNzc3ktaGNTSFhieDVWYjdadC1sMF9vcUpWTWdBc0lVQ3ZOSVRsZldNb25nMmxUY3I4Zmo1bVRnNFctWWFvd2s?oc=5) |
 | Supreme Court lets Lisa Cook remain as a Federal Reserve governor for now - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPV1U1VFVSVWF2ZGxYQnV4bWw2MGxJdFBqZ25uUVdxb0QxeEc0cGxxN2ZnbXNaTTZTejZKU0Flb0xaNjBweVNFS1ZHZWFWSjJ1dmpkcEtuV3NrQUFPUWs2NWdKTWdOcjkzVURRQzZTeVptc3FoZjhIaXRQRUtmVWJFTnZ6VzB5NnUtNEdtVThEZVBFemVBdm9XOEN4aGhKdkJUeFlUaU5SVXg?oc=5) |
