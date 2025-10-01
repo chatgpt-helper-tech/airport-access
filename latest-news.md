@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 23:49:54（北京时间）**
+🕒 更新时间：**2025年10月01日 23:56:38（北京时间）**
 
 ---
 
@@ -12,11 +12,11 @@
 | Rochdale grooming gang ringleader jailed for 35 years | [阅读全文](https://www.bbc.com/news/articles/c36k2595k69o?at_medium=RSS&at_campaign=rss) |
 | British man, 23, faces drug charges in Thailand | [阅读全文](https://www.bbc.com/news/articles/czdj2vdrpv1o?at_medium=RSS&at_campaign=rss) |
 | Snapchat to charge users for storing their old photos and videos | [阅读全文](https://www.bbc.com/news/articles/cz69238p5p8o?at_medium=RSS&at_campaign=rss) |
+| Israel 'tightens siege' of Gaza City as Hamas reviews Trump peace plan | [阅读全文](https://www.bbc.com/news/articles/cvgnznkjrx6o?at_medium=RSS&at_campaign=rss) |
 | Afghans rejoice as internet returns after Taliban blackout | [阅读全文](https://www.bbc.com/news/articles/c0jq2q5jnw3o?at_medium=RSS&at_campaign=rss) |
 | Government issues new data demand for UK Apple users | [阅读全文](https://www.bbc.com/news/articles/c740r0m4mzjo?at_medium=RSS&at_campaign=rss) |
 | Storm Amy named with 80mph winds and severe weather warnings for the UK | [阅读全文](https://www.bbc.com/weather/articles/cy042drenj8o?at_medium=RSS&at_campaign=rss) |
 | 'Buy one, get one free' deals for unhealthy food banned | [阅读全文](https://www.bbc.com/news/articles/c89d54gv44qo?at_medium=RSS&at_campaign=rss) |
-| Munich Oktoberfest to re-open after fatal house fire and bomb threat | [阅读全文](https://www.bbc.com/news/articles/c3rv2pv20rvo?at_medium=RSS&at_campaign=rss) |
 | Why the US government has shut down and what happens now | [阅读全文](https://www.bbc.com/news/articles/crrj1znp0pyo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
