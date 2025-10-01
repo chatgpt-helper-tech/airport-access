@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 23:08:16（北京时间）**
+🕒 更新时间：**2025年10月01日 23:17:09（北京时间）**
 
 ---
 
@@ -25,14 +25,14 @@
 |--------|-------------|
 | Government shutdown begins as lawmakers fail to reach deal to extend funding - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOb1BkaFFldE9NdmhxU1h1VVFzMzBCQUhNYzlKU2dIWU1FMDhDTkhicS1fOWhxUS1QcDlzYlhuOUhrVl85V3hkOV9McWZIY3Rzay0tMUtqTzBrT2pvWnBIaFdCT2xwcWVwNHVHX29CQ21yZGstN3B0eDJKV2M4WDFheVZoT1hYVjJTZUxnbFRWOWN4S2hnaFHSAZsBQVVfeXFMTm5Cb05NUkNlUG5NdUpqc1U0RVdSUk95SW41b2dhcHVfNURPN1ByZFRuRjFNQnJYOFc2U1l0ZzQ1aW1UdXdjVnZLalZFV1ZvUzYyakNOOEw0N2RyVzBXajhTd1BUQ3NZX25fZzl2NlFvZkVHQTJZaV84TzFrZmxHVk9aMFRFNkxQamg0c0U4UllSWk1IMzRRY3h5a28?oc=5) |
 | Veterans react to Hegseth’s ‘insulting’ address to generals and admirals - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOYzhkQnBfS3dmblNzRDVIeG9Sa0lwNHIweFFmTFphWTBPWDQzYWZfbWp2V1J0alRJaDlRei13MTUxd3ctVXFxRmpMVW9URnBCd3FRLXdwenpQQ1hycW1hRWhTQW9CLWhGUXVReEtUREpPWW1nYmp6RHV5VGJTdlVxcVhMSV9kRDlXdC1ZbkNNdmNrdGl6S1E?oc=5) |
-| Pfizer's drug pricing deal with Trump ratchets up pressure on other pharma companies - Axios | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFA2UlR5OW9ISG1mNXo3MktWVWsyQlBjNExoMlhKZ3I5V0tXbnZ6MC03TVZnVzAzTkF6bVVqWm1PVzhYNldWdDJwMlVvSmgtbW1Zb1RBSTQ2R0tUX3ZnN0JhLTFMRnQ4RUxJUi1UR1R4ckcydEE?oc=5) |
 | Labor unions sue OMB, OPM for ‘unlawful’ threats of mass layoffs ahead of shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5CS052cDhHMlo2ak56dVh1WEk4OGRoanJaRVp6bHJzODZIcEpZOE9zR0ZiR0NJb2xnWk1aTVFSVm8yaVYweFZRZWZ2ZjBndmVyaWRmTDM4NzBZWFd6MmtlVUZtX3lKbXlRbzJGcjItZnpIdUZxcGFvX0oydkJKUU0?oc=5) |
-| 20-Story Public Housing Building in the Bronx Partly Collapses - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPdTd2dzY0ODlSMlgtMW9YWEFKZkoxbVp1ampsS2hQbkdMbXZibTVGeF8tZmJ4NmNsS1pOMmxDTjI5MElUZ2xWd2JHa1I3dnBoZ21MWWVrRi1PTW45dDhubGU0T3p6TEhMajdNUUFxLS02RnQzQlJsWXhYMVAyaVVUUks4cjh1clE3ZlE?oc=5) |
+| Trump's pharmaceutical tariff threat loses bite after Pfizer deal reassures drugmakers - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQTGg0SlZ3X1pzeWZRdEFUVGt1SGJiVWtaaS1XRkZibGE4SlNEbTU3d2trYUJNTk9oVDZFVUlpRE9kcjlkTlVqS0hPblhWemRHUUVUSUlqX04tQy1RQ3h5UlhmU3JUaWxiZU9JcW5XT3VJZTk3VXY5U3cySmpYcWhqOW90b9IBiAFBVV95cUxOUkNTUlNOb3NMbHpMc1FDWjJXNnVEQ3N5ZF9yNHA2LU5sV2E2eWlkMmJ3aE02Ym4tb281RnJFSFk0QVVIWFBFdmVDb1FmWU91c3B2YmFiUTdiLWJZUTAtaFFob2tvU3JjOThESEdJZENzeUFpWTFKbVhpSWs4czB2aEt0YW14R2hl?oc=5) |
+| Trump administration uses taxpayer dollars to blame Democrats for government shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPSU5WMXVDSmZ2MWFESUk1S0kwelFlS0Q5bldxbjROVjZQcWh0SnZ4cWVkTGpNRE9zSDNUY0NLQ2huLWZ6Z1FvQi1rVjVLQnJ2ZUZHbWxuaDZjRktJOFpEMFpQaDZyQ0pkcHcxMHhOMWp2b3l4Ykx0d2dmaDJHV1hqaWxBS05mYlVaLU9VdmctU2Q?oc=5) |
 | Scoop: How an Israeli attack inadvertently launched Trump's Gaza peace plan - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxORDRBSUNNdldpbjNWVUt2UkN6TjM1cTh1QnkyZGQ2T3ZmbTVxV1BpS1VHWmlNWVhaU1Z4N3RkNVh3MWNpM1c5d25VaW5NbXZuT0tOMzEwbFJrXzZFWEZ1d3ZOcDEyUVUzcFdla0NEWVBkRmlzLUlPc1lvRFhNbEdMYXoyZlpuUXgyVHpyeTU3Z09FbDhYV3dGWGtWd1pzZjl4OEhJdmVMQjhqdw?oc=5) |
+| 20-Story Public Housing Building in the Bronx Partly Collapses - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPdTd2dzY0ODlSMlgtMW9YWEFKZkoxbVp1ampsS2hQbkdMbXZibTVGeF8tZmJ4NmNsS1pOMmxDTjI5MElUZ2xWd2JHa1I3dnBoZ21MWWVrRi1PTW45dDhubGU0T3p6TEhMajdNUUFxLS02RnQzQlJsWXhYMVAyaVVUUks4cjh1clE3ZlE?oc=5) |
 | 1 thing Republicans and Democrats can agree not to shut down: National parks - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNbEZybUUxcEpnRUZCdWtuS2xicXdUMnNrQ2pzT25UTS00WDdZSDRTNHlIRDFwVnVXa3RUTk16bkxsb1BfQzVqUlJFV1NnbFlIeVRCT2dFXzVqZzI4YUVYX3dua0VkaFAzekN2Y0IwaktjQlVCZ2taYjJ2VnZtNEJJZ1ZZc3pyTjNWNVh5YzJCcHl0UnFlX0k5cXdXQQ?oc=5) |
 | Trump Claims White House Is Nearing a Deal With Harvard - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5WT0hQMFZRWERQZGRnc0M2dGN1Ynhyc1VtX3JZTEM4aFpScko4Yk93Z25xRnZYcjZ2RUY1dnRCZTl4VW1YUzY4b1J0STd4NUxnd0NRT3c0R3JMWjhpRWtfVW9Ub1lLamUwT2dGeFJXUDN5aHBoenJCdQ?oc=5) |
 | Trump administration freezes $18 billion in New York City infrastructure projects, Vought says - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQZ3B6NzgwbTRSeWJzc2dRNmIxNTBwcEIzRFltTG5CRmFXSHZ5TXpUeUN4bWVSM3Zma2V1aDVQQWZlTjNOa09Ud3ZXbkphNkdDZ09yUzRZdms3MWhLQ3JhUW9XVUZZY2R3a2RZR2IwNC1OcjVFTnpSMnl3WFJiNFc0TjJyWERXS05R0gGOAUFVX3lxTE5oaGg1cXpsWlZMam9DSExZRC1UUXJSX1UweFNlUXR4MjVyS1VIRXlHQ25lYnhTYWxmNWtVNW13aENFMi1LUVIxeUNTUkNQMlQ1QmtxaElPUjFiLWZvdGgzWEo0Z2hnaG5yVEZJT0FCNGZxVENQYWl0bjI2cjhtZ2xnNGlIak5XSmh5ejVaOWc?oc=5) |
-| Madison Cawthorn launches comeback bid — in Florida - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNWVF3RXBjLUc5andoV2hYaWdMTFlWQU9rN2x1V3FfSi1LSW1CN3V5My1XeWtacVJpdURBU08wN21feVRJai1fVzFleGdaSzF1VllmUHJDU3ZTbmljX3BjeS1HVWxPSjZFTTk1QktzUEE1emxfWHFzZmoxSFFwM0hnYTNSbV9hUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
