@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 08:42:01（北京时间）**
+🕒 更新时间：**2025年10月01日 08:48:43（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| As two spending bills fail in Senate, chances to avoid a government shutdown fade - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFA3U1d5akFaVHJ1Q2pzb2lQT1BxTi01N2Z3eXJrZUdyV182NnVLdzJzVlhSTlRJenNySGF0YURadGxjSkppb0xsckhWeHRHVmlJX05VbDlVajhuQ2txZUtsVDBOX2prMlBldGdBbzhlWWtGdzFVSXBuUXl3?oc=5) |
+| As 2 spending bills fail in Senate, chances to avoid a government shutdown fade - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFA3U1d5akFaVHJ1Q2pzb2lQT1BxTi01N2Z3eXJrZUdyV182NnVLdzJzVlhSTlRJenNySGF0YURadGxjSkppb0xsckhWeHRHVmlJX05VbDlVajhuQ2txZUtsVDBOX2prMlBldGdBbzhlWWtGdzFVSXBuUXl3?oc=5) |
 | Trump and Hegseth's plan for a MAGA military reset, told in 11 quotes - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBvSF9vT25QNkMxSG5RZGtiZmd6djh2Ym1KTEFRTWNMSFRGNE1iYzRHd29oWHFpaXQtV0FIVFFBbnktSVZpLW0zZnFRV0o0dTNYRDNpZmFHeG9OY1UzaF9kZjlLWDhOcEVDcEl0a1lCa21Ea0VGV0lOdjFpTWppaWs?oc=5) |
 | Trump announces ‘TrumpRx’ site for discounted drugs and deal with Pfizer to lower prices - CNN | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBHdmZZN25DQkptdXpzNE92Q0s4dzlOTVAzNmlkUEZ5d2JGWWdsTDhmcktsUVVMcTRrQklEV015Szg5eDEzZndTbFJRRDMyUzNNVFZnenEzUC1LUEVxRWx5UnFpMWItSWhtUnkyX3dyOGNUUQ?oc=5) |
-| Fact check: Trump falsely claims Democrats want to give free health care to ‘illegal aliens’ in government shutdown battle - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQN0JZbFE2dlFxVjJvMmhXeFBtZFBzSXFpbXkxem9NbTRYWGZWeU9NUTJBNGhlZHlIVENEdXRFRWgzV1dsYU1OLWNpWVE4dUNiazFYdEVjelNlUXJwWFFfUnBQc2FFODZrNnc4Z19mNnMwSHNZdlRJbkZYeGs2aS03OVhraTRkUW9paW96S1Nn?oc=5) |
+| Trump Says a Deal With Harvard Is Close - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE1RSGRmZUVpeTNaQTVnTk92ZWpwY3B1ekY2RUw4NUlKdGpMV0ktZTEzUUZCbEpHTDlNb1RuWmdOcnZ4MlkxYkNCeS1zelZPLU44dHlPNTFLZWZjeVdqVmtpazJxOHFJOEN2QmRONS1R?oc=5) |
 | Trump peace plan 'ignores interests of Palestinian people', Hamas official tells BBC - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9Fc2dMblpqOTdiVDRpVmQ3S241aUNuVmk3UEN2LWFQQkdwcGtrM3ZzR3ZFVm5MZUUzdGROLU8zVDc4aUhLR0h5bWRpTWJLUldaV3pBVG1jbWpuZ9IBX0FVX3lxTE1kdVhPLUJzdEVUSGZFemFXSmJZVDVqTVRpaVo5aWFGTHhndjN0eW9iS1JrTU1nR2U2cTU3TWNwZ1U1Uk9kUnJvT1U2a2l0YXU3dDV0Sm4wb1Y1bXVxOVRF?oc=5) |
 | Scoop: Schumer rallies Democrats as shutdown deadline looms - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBNU1BZQ1I0c05vUGVjUUdKYVlobkpoWWZpMEw2Ti1SRW9VLU80WHR5QUk0UUE3MDhZZDNSZmhoWG02X3VkWGFJVFA3VHVZbE9aRFZCdTNXRTlPREVkQk1TbmRWV2g1RlFDY21rc1lsX0lKeWhnQmVCMnVUQ2w?oc=5) |
-| Family, friends of Grand Blanc church attack victims launch online fundraisers - The Detroit News | [阅读全文](https://news.google.com/rss/articles/CBMi5wFBVV95cUxPT001VlB6a21XRnpRMW8zWGt3SUU2b1VVTmd2X2dBbmstM01nNm5zM2RGTXBkNnFWQjFNSVo3RVlmdFBiVlVpVmFVdjlGUmtzQy12N01WQ29xTEhQNGRCLVZZd3FUYjU3N2xWNGN1SlR3TWRMUmZZRGxtaUZjY0tObWNKRHZpMlYwUElNakJ1YmFsa1A0ZGpaVnlJZk41UThwU2xRTGZCcUE0TnhGaEhveHdaXzZWa0FjbGFUWWxaSlhoNGl5Q05DMnRyTzBQQmRNWGhtRDJpaG5ZUzdIVmg0ZFJyWnRpclU?oc=5) |
 | Trump administration illegally targeted pro-Palestinian protesters, judge rules - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPdmdtYTFzUEM2SVRVNnB4bUhqZk9HX0xXalVyM0Y3MWVzZUg5cnV0RGJXT0NWNFNxbXhlRmlpQlZWRzJWVTNHWFVjbEFiZkFITXp4dEZSekV2RHYyc0EzWk4xQzJsT0ZZemczbW5wSDQtSU51RzIxY2hOQkhkbmdpcW04ckJxQVNaWDV6aEswbUdCQ3ZkTGFUTHVVdGpsYVhFaElEYWd5VHJZZ0NKejJ4dkhyTDFleDA?oc=5) |
-| Trump Says a Deal With Harvard Is Close - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE1RSGRmZUVpeTNaQTVnTk92ZWpwY3B1ekY2RUw4NUlKdGpMV0ktZTEzUUZCbEpHTDlNb1RuWmdOcnZ4MlkxYkNCeS1zelZPLU44dHlPNTFLZWZjeVdqVmtpazJxOHFJOEN2QmRONS1R?oc=5) |
-| Federal agents grab and shove journalists outside NYC immigration court, sending one to hospital - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNX3prZW0yNGYwVGZzQkFwRzB4dXlvRlktQW92ZURFQnlpWUxYOEdhRW1UWWtwUjc5T3Fna2NoZkRHdlhKN0FGX2VkNnppVUlpcnQwVmhZbllZQl9OSDZ6NkxUZDN0S1ZTcWMyN0d1ZFMxZjN3Wl9XQmZzdF9ZdXQ2QkpNckd5cWZFenFUNWlUakRVblF4ajJVSFJqNXRBbEY5aFJQd09aRFI?oc=5) |
+| ‘Do. Not. Blink.’ Conservatives dig in for a fight as Trump broaches Obamacare talks - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOUHRyRWM2dEFTTVY1Nk9qQ2xJWVZ0ZnlLRGhwb2ZCVTlRcXNLQTlSYS1uMDRzYjQ3NTNfa0JsQlpqX3d4NjJnSUpTRWlxeENzVlhVTnFaeXpLWlNJekM2RkdMWGFNM2RmOV8xOEJOZ0lTOVpyUDVDRnN2eGF5RUltX09rdDFFdmNiU0ZCSlVORDRIQQ?oc=5) |
+| 2nd detainee dies after Dallas ICE facility shooting - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOWHgybVE3WkpXTUEyRWFkVkdOYmFfMEJsWHZnTnhiT2pteFhxenNWQ3F1VC1zLWdKNUoyN3p3Qm1sX3B6Q19kMW9Sa0lvalY4N0NjTkVJZjRBT05HaTloNllzZUpNcUxBWVJiSjNZblVHX05PZkRFRWFFZDRnNE1mSlJVZmZDazl4d0lPVDFVMHRXZnE0Nld6Tnh30gFWQVVfeXFMTmx0TzNnUTA0Mmc1NDFxdlJvUVNlMzRDTFN0YmNwaElLZnZMdUZ5ZEdTRnlBMUNyQWEzOVhWaXp5UndwaExCb3gxYXZkQnM3N1ROUDNGV1E?oc=5) |
+| Ian Roberts, Arrested by ICE, Plans to Resign as Schools Superintendent in Iowa - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBFN2hDX1JJbThYWkpieGhMaTFWeFFVcVJsTmo3dWptaG5FcjhXRU0xQTdDUHUwcllKY29iWmtTeDNvUnFEdURNdEx1Vi10VENiRjBMRHBBaE53TjRDcW9UUGtaY2hFUS1GOV9kNFMtVjdhSG1TaFl4dVBLX00?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
