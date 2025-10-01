@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 22:01:21（北京时间）**
+🕒 更新时间：**2025年10月01日 22:08:17（北京时间）**
 
 ---
 
@@ -25,14 +25,14 @@
 |--------|-------------|
 | Government shutdown begins as lawmakers fail to reach deal to extend funding - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOb1BkaFFldE9NdmhxU1h1VVFzMzBCQUhNYzlKU2dIWU1FMDhDTkhicS1fOWhxUS1QcDlzYlhuOUhrVl85V3hkOV9McWZIY3Rzay0tMUtqTzBrT2pvWnBIaFdCT2xwcWVwNHVHX29CQ21yZGstN3B0eDJKV2M4WDFheVZoT1hYVjJTZUxnbFRWOWN4S2hnaFHSAZsBQVVfeXFMTm5Cb05NUkNlUG5NdUpqc1U0RVdSUk95SW41b2dhcHVfNURPN1ByZFRuRjFNQnJYOFc2U1l0ZzQ1aW1UdXdjVnZLalZFV1ZvUzYyakNOOEw0N2RyVzBXajhTd1BUQ3NZX25fZzl2NlFvZkVHQTJZaV84TzFrZmxHVk9aMFRFNkxQamg0c0U4UllSWk1IMzRRY3h5a28?oc=5) |
 | Veterans react to Hegseth’s ‘insulting’ address to generals and admirals - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOYzhkQnBfS3dmblNzRDVIeG9Sa0lwNHIweFFmTFphWTBPWDQzYWZfbWp2V1J0alRJaDlRei13MTUxd3ctVXFxRmpMVW9URnBCd3FRLXdwenpQQ1hycW1hRWhTQW9CLWhGUXVReEtUREpPWW1nYmp6RHV5VGJTdlVxcVhMSV9kRDlXdC1ZbkNNdmNrdGl6S1E?oc=5) |
-| Pfizer's deal ratchets up pressure on other drug companies - Axios | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFA2UlR5OW9ISG1mNXo3MktWVWsyQlBjNExoMlhKZ3I5V0tXbnZ6MC03TVZnVzAzTkF6bVVqWm1PVzhYNldWdDJwMlVvSmgtbW1Zb1RBSTQ2R0tUX3ZnN0JhLTFMRnQ4RUxJUi1UR1R4ckcydEE?oc=5) |
+| Trump's pharmaceutical tariff threat loses bite after Pfizer deal reassures drugmakers - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQTGg0SlZ3X1pzeWZRdEFUVGt1SGJiVWtaaS1XRkZibGE4SlNEbTU3d2trYUJNTk9oVDZFVUlpRE9kcjlkTlVqS0hPblhWemRHUUVUSUlqX04tQy1RQ3h5UlhmU3JUaWxiZU9JcW5XT3VJZTk3VXY5U3cySmpYcWhqOW90b9IBiAFBVV95cUxOUkNTUlNOb3NMbHpMc1FDWjJXNnVEQ3N5ZF9yNHA2LU5sV2E2eWlkMmJ3aE02Ym4tb281RnJFSFk0QVVIWFBFdmVDb1FmWU91c3B2YmFiUTdiLWJZUTAtaFFob2tvU3JjOThESEdJZENzeUFpWTFKbVhpSWs4czB2aEt0YW14R2hl?oc=5) |
 | Scoop: How an Israeli attack inadvertently launched Trump's Gaza peace plan - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxORDRBSUNNdldpbjNWVUt2UkN6TjM1cTh1QnkyZGQ2T3ZmbTVxV1BpS1VHWmlNWVhaU1Z4N3RkNVh3MWNpM1c5d25VaW5NbXZuT0tOMzEwbFJrXzZFWEZ1d3ZOcDEyUVUzcFdla0NEWVBkRmlzLUlPc1lvRFhNbEdMYXoyZlpuUXgyVHpyeTU3Z09FbDhYV3dGWGtWd1pzZjl4OEhJdmVMQjhqdw?oc=5) |
 | New York apartment building partly collapses in 'major emergency' - live updates - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE9qM2NoWFJpN0ZiZWpKdGJDcEhIT0UwLVllTGhJTnZsc3NMZlowUE5lckZFNGFldVE2WTFmc3BZZ2NLNnY3TEFib0UxZmdUWHdod21zRg?oc=5) |
-| Labor unions sue OMB, OPM for ‘unlawful’ threats of mass layoffs ahead of shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5CS052cDhHMlo2ak56dVh1WEk4OGRoanJaRVp6bHJzODZIcEpZOE9zR0ZiR0NJb2xnWk1aTVFSVm8yaVYweFZRZWZ2ZjBndmVyaWRmTDM4NzBZWFd6MmtlVUZtX3lKbXlRbzJGcjItZnpIdUZxcGFvX0oydkJKUU0?oc=5) |
+| Mass email tells federal employees not to blame Trump for government shutdown - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxQd2ptSVY4RmU2WE9YNUZMX09yRmZ1SVlYbUZ5V1p5WmZITksyZnV0ZUFfMVdkMk9NZ1hPY1J3OXNWRklNdzBweU5mdnZ3aEZhQS1RTjVZU3EwQjMxRGVpY2tzWV9mMnh4UW4yeHpRTWlNQnF6Sm83VUsyM0tOMkdXRl8wX3RGY21UMkZ1cE1JSEpQS3p4c2pSbUw3emZvdTVfd3lSbnVKRjAtNjI0eWRlS2o0MURQZm9Bd0FsNGJub2p5R0EtUE9KLWk1SkpKekp5Y0ww?oc=5) |
 | Where things stand with Trump’s National Guard deployments - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQVGdZNDlVS01vaFhwNG9KM0JtX2EzR21BcmM0NXY3QnJ1S3V4dUxUREV1dkdXcGViVFdKYi1OS0dPblZOMGg2NnQ2d3BFUjJ0cEo5cUV0ZXRCc0NUeHcxTzUyaXNjaldFbmJkWERzcTZDclV2QkNUVkphYTNXQnRDRHRFOFhiUExfSkJ6d21ZLTdrUFE5?oc=5) |
 | Trump Claims White House Is Nearing a Deal With Harvard - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5WT0hQMFZRWERQZGRnc0M2dGN1Ynhyc1VtX3JZTEM4aFpScko4Yk93Z25xRnZYcjZ2RUY1dnRCZTl4VW1YUzY4b1J0STd4NUxnd0NRT3c0R3JMWjhpRWtfVW9Ub1lLamUwT2dGeFJXUDN5aHBoenJCdQ?oc=5) |
-| Brown bear heavyweight Chunk wins Fat Bear Week despite injury - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBuZVBJdkhvcUNKSzdKblQxNnlvdkhrWGg2RHQyOUhEZHVwa2txZjNKQnhYUzJPOXRPVFhSX0tHSExzRC1ZTHFoUVAyc2dJZ1ZJU2Z0LTZma0VKQQ?oc=5) |
-| Second victim in Dallas ICE shooting dies from injuries, LULAC says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPQlF2NlpBTlhkYWJMWXFIVlc0YW1vTXRaZ29ta1BVd3dwbkgtTmhpZTJJTnliTGVwaEh1cV9MNG85SFhFRFZqRHhaUHc2M21iMWdXT3ozQk1yajZSTVBzUkVob0w0SUN0U09aSnBxNmh4ZEotRXFKUlFEYjdRWTc1OUxodFoweE5PdjlYRWJtS21kQVlMSTZDU2pIM1g1OWM?oc=5) |
+| Brown bear heavyweight Chunk wins Fat Bear Week despite injury - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBuZVBJdkhvcUNKSzdKblQxNnlvdkhrWGg2RHQyOUhEZHVwa2txZjNKQnhYUzJPOXRPVFhSX0tHSExzRC1ZTHFoUVAyc2dJZ1ZJU2Z0LTZma0VKQdIBX0FVX3lxTE5kcUNPRXVZRzRnRnR1MHNGMWdfaU5CZTdVN0FDakM0b3FNb0RNcUpDLTJfYmtPUjQ2N1hEMUhndVFNd0UtbVVKUnFqeG1mVkdVblN4ZWlTSFo4RjlNQ2RJ?oc=5) |
+| Second detainee dies after shooting at Dallas ICE facility - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNUVZIZ1R1Z19tazBfNG1jUWlkcUNJcUJYRUdvUS01eW1qTllVRDdYRHBGdFhkZHBSSUh3S0t6RXY3LWF3RDFMWlphWnlKbEJfZ3dZWVhXZHl1TWx3Z2h1OHp4VGx2UU9pOFlGZXRtYzA3V2xHMzJHUlFNaXdqSS1Dc3VRQUxoeV8zbUE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
