@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 09:49:27（北京时间）**
+🕒 更新时间：**2025年10月01日 09:56:18（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump announces ‘TrumpRx’ site for discounted drugs and deal with Pfizer to lower prices - CNN | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBHdmZZN25DQkptdXpzNE92Q0s4dzlOTVAzNmlkUEZ5d2JGWWdsTDhmcktsUVVMcTRrQklEV015Szg5eDEzZndTbFJRRDMyUzNNVFZnenEzUC1LUEVxRWx5UnFpMWItSWhtUnkyX3dyOGNUUQ?oc=5) |
 | Trump Says US Close to Finalizing $500 Million Harvard Deal - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPdEtxNVkxcVV4MUZXU2Z1SGRhOWhPdEtUeGZpcF9US3dsbXptUXNnNHdZWUdBVDFfa2xTSGN4alkwVm5mbXN4Q1BkVERTZERWYXY5eHFBcTExeWNDSldDTTNNZTVLX2xNYy0tY2Zfbm85SkZGSmgtOW50VS1mcXlxMXhEMFJFV2NhaDhKamF6VjlEWmtySEJobjlQelhFTk9xWE1aUDFQZVFWWEJR?oc=5) |
 | Trump peace plan 'ignores interests of Palestinian people', Hamas official tells BBC - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9Fc2dMblpqOTdiVDRpVmQ3S241aUNuVmk3UEN2LWFQQkdwcGtrM3ZzR3ZFVm5MZUUzdGROLU8zVDc4aUhLR0h5bWRpTWJLUldaV3pBVG1jbWpuZ9IBX0FVX3lxTE1kdVhPLUJzdEVUSGZFemFXSmJZVDVqTVRpaVo5aWFGTHhndjN0eW9iS1JrTU1nR2U2cTU3TWNwZ1U1Uk9kUnJvT1U2a2l0YXU3dDV0Sm4wb1Y1bXVxOVRF?oc=5) |
-| Trump administration illegally targeted pro-Palestinian protesters, judge rules - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPdmdtYTFzUEM2SVRVNnB4bUhqZk9HX0xXalVyM0Y3MWVzZUg5cnV0RGJXT0NWNFNxbXhlRmlpQlZWRzJWVTNHWFVjbEFiZkFITXp4dEZSekV2RHYyc0EzWk4xQzJsT0ZZemczbW5wSDQtSU51RzIxY2hOQkhkbmdpcW04ckJxQVNaWDV6aEswbUdCQ3ZkTGFUTHVVdGpsYVhFaElEYWd5VHJZZ0NKejJ4dkhyTDFleDA?oc=5) |
 | Michigan church shooting survivor says she looked gunman who killed her father in the eyes: "I forgave him right there" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFBWVk1UWVpjcVMxMDk0bUJrcG5ZSW0wVWVOSExWYjVFVzREX0VqUnpUd3J3dDBrb29fV3lFRVpMRTVuQVJQNFBSNFRuTkhTMEFFMEVWSUxyT0lrNVU3b1N0R001SE1oZXBrME93Y3ZLTGRHdkxOTTVaWlNR0gF_QVVfeXFMTWpoNm5BUTdNZEdQT21tZjJqMGxLeVFUNUVoMVU4SlBSMWw0TlFIR3hBamJNQnY0aTJVNGlEZUNsMXl6WFI1cVVHaFNzMmZKR0VNcVlDbFg0anRPejdxM29MMjVQc2duT2Q5cGtUa3lZUHZaMnYzcHZrTjI4UEtXYw?oc=5) |
 | ‘Do. Not. Blink.’ Conservatives dig in for a fight as Trump broaches Obamacare talks - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOUHRyRWM2dEFTTVY1Nk9qQ2xJWVZ0ZnlLRGhwb2ZCVTlRcXNLQTlSYS1uMDRzYjQ3NTNfa0JsQlpqX3d4NjJnSUpTRWlxeENzVlhVTnFaeXpLWlNJekM2RkdMWGFNM2RmOV8xOEJOZ0lTOVpyUDVDRnN2eGF5RUltX09rdDFFdmNiU0ZCSlVORDRIQQ?oc=5) |
 | 2nd detainee dies after Dallas ICE facility shooting - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOWHgybVE3WkpXTUEyRWFkVkdOYmFfMEJsWHZnTnhiT2pteFhxenNWQ3F1VC1zLWdKNUoyN3p3Qm1sX3B6Q19kMW9Sa0lvalY4N0NjTkVJZjRBT05HaTloNllzZUpNcUxBWVJiSjNZblVHX05PZkRFRWFFZDRnNE1mSlJVZmZDazl4d0lPVDFVMHRXZnE0Nld6Tnh30gFWQVVfeXFMTmx0TzNnUTA0Mmc1NDFxdlJvUVNlMzRDTFN0YmNwaElLZnZMdUZ5ZEdTRnlBMUNyQWEzOVhWaXp5UndwaExCb3gxYXZkQnM3N1ROUDNGV1E?oc=5) |
+| Trump administration illegally targeted pro-Palestinian protesters, judge rules - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPdmdtYTFzUEM2SVRVNnB4bUhqZk9HX0xXalVyM0Y3MWVzZUg5cnV0RGJXT0NWNFNxbXhlRmlpQlZWRzJWVTNHWFVjbEFiZkFITXp4dEZSekV2RHYyc0EzWk4xQzJsT0ZZemczbW5wSDQtSU51RzIxY2hOQkhkbmdpcW04ckJxQVNaWDV6aEswbUdCQ3ZkTGFUTHVVdGpsYVhFaElEYWd5VHJZZ0NKejJ4dkhyTDFleDA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
