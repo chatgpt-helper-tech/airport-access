@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 10:25:17（北京时间）**
+🕒 更新时间：**2025年10月01日 10:32:35（北京时间）**
 
 ---
 
@@ -23,11 +23,11 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Here are some effects of a government shutdown if Congress, Trump don’t reach a deal - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPZkZ0SS1aN1JZVUxBMTFvcmlqOFlxYzVyS090ZE1VSTY2TEY1ZVNIX0UtaE5LbFpyd1UyNnk1aTEwZ0FjNXZiNG9TRndlMTlMbWlaUFZwNlA1aUlWcmR3NmJoWWU1VEg1MWFmNDgxYWxpSlczcnBmZ1FHb01qdTl4S0NiWkNlZnVMU0lwOWVwNW1OcEs1RHhtWU5raldwVDcwU1c2QzRB?oc=5) |
+| Government Shutdown Hours Away as Senate Spending Votes Fail - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQVV9Ob3pubmhpdkIyNjRuV1k4eWhrX0pKMm5Tb3RnZTVGc0lkRjVEV2Vya2VPaFJkS2VoYy1ITV9Qem1hR2FXaHZrbERJMU1PWldPQXFFMmpocXNSYlhIdXZKTU51NmtqU0VnUnY5Rkh6UmZsU0NuNjd5dmd5aHo5TWg3dHRBVjQ?oc=5) |
 | ‘Could have been an email’: Officials balk at Hegseth's generals meeting - Politico | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBfNEJsWi1RTmVWdEcwMjFjaWIxdk96NW9zd0tvXzY3VHNPTVdCRVlPc185NkVIYzluWnczSUFSczJteTUyT3Q0RjFXU0FscGNyanVJLWNXclhHVEtidkstd1dnRmZ1NDNVeU0wUDNsQkJCeGJ1UTNqb05pRC1Odm8?oc=5) |
 | Trump announces ‘TrumpRx’ site for discounted drugs and deal with Pfizer to lower prices - CNN | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBHdmZZN25DQkptdXpzNE92Q0s4dzlOTVAzNmlkUEZ5d2JGWWdsTDhmcktsUVVMcTRrQklEV015Szg5eDEzZndTbFJRRDMyUzNNVFZnenEzUC1LUEVxRWx5UnFpMWItSWhtUnkyX3dyOGNUUQ?oc=5) |
 | Donald Trump pulls ally EJ Antoni’s nomination to lead statistics agency - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFB2NllhdUFuU2RpeGlxUE1aakpEaFJQRHhIRWdRcWtKcGdETHhQeV9vdWVkWGNQZmRLQnNjY21YejA2TW1lSmV3alZNeVY0TXlYODdlTFJleFRkdHVUZmFlMG9zRDM5ZGV3bTdkTldIN2c?oc=5) |
-| Trump Says a Deal With Harvard Is Close - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE1RSGRmZUVpeTNaQTVnTk92ZWpwY3B1ekY2RUw4NUlKdGpMV0ktZTEzUUZCbEpHTDlNb1RuWmdOcnZ4MlkxYkNCeS1zelZPLU44dHlPNTFLZWZjeVdqVmtpazJxOHFJOEN2QmRONS1R?oc=5) |
+| Trump says Harvard deal is close, university will pay $500 million - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQM3ZVUEp3R0IySks1a1lCc1ViTTZkc0RMUnVVQUNpdFhsZndCZkNUaW9WSlRfYzRUY2l1OWdXbW1vY3IwNEYyZjFIenZDUlJlZzYtMFdTbFUwcGN5WDBHVGRaUEhUSGtGRVVJQkwwSFpRME9COEtmTjA1d2cxZmh1Ykh1TlhWZ2lud3kxRUh2aUtqdDRrcDBqSWUyVWRmcXdGWHJvejJzQTVMdw?oc=5) |
 | Qatar, Egypt and Turkey urge Hamas to accept Trump's Gaza peace plan - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOeHlpLWZjbFpUazZha2YxampoeWJfUktad1haSV9tMC1LdTZjNVdqUkR1OElXbmxkeG9uODl3MGlMUFBuTDlwQnJPbzRpMG02MGdKakVDcjUzY1RoVFFSVTlYcC1VSTl5dFYwUDNCTlVkOXZnTUJhZjRuNWxjdGJULU1MODFjRWNKaGc?oc=5) |
 | Trump administration uses taxpayer dollars to blame Democrats for government shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPSU5WMXVDSmZ2MWFESUk1S0kwelFlS0Q5bldxbjROVjZQcWh0SnZ4cWVkTGpNRE9zSDNUY0NLQ2huLWZ6Z1FvQi1rVjVLQnJ2ZUZHbWxuaDZjRktJOFpEMFpQaDZyQ0pkcHcxMHhOMWp2b3l4Ykx0d2dmaDJHV1hqaWxBS05mYlVaLU9VdmctU2Q?oc=5) |
 | 2nd detainee dies after Dallas ICE facility shooting - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOWHgybVE3WkpXTUEyRWFkVkdOYmFfMEJsWHZnTnhiT2pteFhxenNWQ3F1VC1zLWdKNUoyN3p3Qm1sX3B6Q19kMW9Sa0lvalY4N0NjTkVJZjRBT05HaTloNllzZUpNcUxBWVJiSjNZblVHX05PZkRFRWFFZDRnNE1mSlJVZmZDazl4d0lPVDFVMHRXZnE0Nld6Tnh30gFWQVVfeXFMTmx0TzNnUTA0Mmc1NDFxdlJvUVNlMzRDTFN0YmNwaElLZnZMdUZ5ZEdTRnlBMUNyQWEzOVhWaXp5UndwaExCb3gxYXZkQnM3N1ROUDNGV1E?oc=5) |
