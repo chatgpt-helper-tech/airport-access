@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 20:56:27（北京时间）**
+🕒 更新时间：**2025年10月01日 21:00:03（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Labor unions sue OMB, OPM for ‘unlawful’ threats of mass layoffs ahead of shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5CS052cDhHMlo2ak56dVh1WEk4OGRoanJaRVp6bHJzODZIcEpZOE9zR0ZiR0NJb2xnWk1aTVFSVm8yaVYweFZRZWZ2ZjBndmVyaWRmTDM4NzBZWFd6MmtlVUZtX3lKbXlRbzJGcjItZnpIdUZxcGFvX0oydkJKUU0?oc=5) |
 | Pfizer's drug pricing deal with Trump ratchets up pressure on other pharma companies - Axios | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFA2UlR5OW9ISG1mNXo3MktWVWsyQlBjNExoMlhKZ3I5V0tXbnZ6MC03TVZnVzAzTkF6bVVqWm1PVzhYNldWdDJwMlVvSmgtbW1Zb1RBSTQ2R0tUX3ZnN0JhLTFMRnQ4RUxJUi1UR1R4ckcydEE?oc=5) |
 | Donald Trump pulls ally EJ Antoni’s nomination to lead statistics agency - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFB2NllhdUFuU2RpeGlxUE1aakpEaFJQRHhIRWdRcWtKcGdETHhQeV9vdWVkWGNQZmRLQnNjY21YejA2TW1lSmV3alZNeVY0TXlYODdlTFJleFRkdHVUZmFlMG9zRDM5ZGV3bTdkTldIN2c?oc=5) |
-| Travelers and air traffic controllers may face disruptions in a government shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNWU53WWVfTFhqSXJIQ0liSzFnVEtlQi1iZExsLWwzcGQtNk45ZlROQlgzNWZGZV93ZjN0UHM3RnQ3VnhfXzJjQXJqaU12VVc5U2Vfei1RSDh5ajR5czNYOURFaFE2S1NZaTBVckR0N2pGNTZOZ0wtbk82blZPU083TA?oc=5) |
+| Trump peace plan 'ignores interests of Palestinian people', Hamas official tells BBC - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9Fc2dMblpqOTdiVDRpVmQ3S241aUNuVmk3UEN2LWFQQkdwcGtrM3ZzR3ZFVm5MZUUzdGROLU8zVDc4aUhLR0h5bWRpTWJLUldaV3pBVG1jbWpuZ9IBX0FVX3lxTE1kdVhPLUJzdEVUSGZFemFXSmJZVDVqTVRpaVo5aWFGTHhndjN0eW9iS1JrTU1nR2U2cTU3TWNwZ1U1Uk9kUnJvT1U2a2l0YXU3dDV0Sm4wb1Y1bXVxOVRF?oc=5) |
 | Trump Claims White House Is Nearing a Deal With Harvard - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5WT0hQMFZRWERQZGRnc0M2dGN1Ynhyc1VtX3JZTEM4aFpScko4Yk93Z25xRnZYcjZ2RUY1dnRCZTl4VW1YUzY4b1J0STd4NUxnd0NRT3c0R3JMWjhpRWtfVW9Ub1lLamUwT2dGeFJXUDN5aHBoenJCdQ?oc=5) |
 | Democrats embrace a shutdown fight in a rare moment of unity against Trump - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQVW84QnRuNjljSVZWNkkzQ2hwT3UzVjZCYzN0UkV0bHNtYlhEY19fSUlsNVdqdTJrY1hOVlRBZXF5a29VWGFwU0g5UE1qYmpSLXZ3Ni1ITXJHSFJvUUgyeU8zVm9SMHFYN3dIc0s5a0dwMEpiWWpCUjZNbXpHSnJ1ZTJVdU5nREZjeGFwalo0S1lJRXVKSWgta1FsSElxbFRzRDRPZEM4aEc4elF5TkhmVFJzMA?oc=5) |
 | Second victim in Dallas ICE shooting dies from injuries, LULAC says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPQlF2NlpBTlhkYWJMWXFIVlc0YW1vTXRaZ29ta1BVd3dwbkgtTmhpZTJJTnliTGVwaEh1cV9MNG85SFhFRFZqRHhaUHc2M21iMWdXT3ozQk1yajZSTVBzUkVob0w0SUN0U09aSnBxNmh4ZEotRXFKUlFEYjdRWTc1OUxodFoweE5PdjlYRWJtS21kQVlMSTZDU2pIM1g1OWM?oc=5) |
