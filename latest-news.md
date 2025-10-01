@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 11:58:02（北京时间）**
+🕒 更新时间：**2025年10月01日 12:01:11（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Scoop: Schumer rallies Democrats as shutdown deadline looms - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBNU1BZQ1I0c05vUGVjUUdKYVlobkpoWWZpMEw2Ti1SRW9VLU80WHR5QUk0UUE3MDhZZDNSZmhoWG02X3VkWGFJVFA3VHVZbE9aRFZCdTNXRTlPREVkQk1TbmRWV2g1RlFDY21rc1lsX0lKeWhnQmVCMnVUQ2w?oc=5) |
 | Immigration officials outline plans to accept new DACA applicants - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9vazNqdE9JT0NUd0F0dVVyenZmWEZEVEVkdjVVakNRX0VTWDZCUGpUVmFxakJsWUNicDZVT1FWTmctemlxZE5ENEhfRmR4d1dWSzR3bFdQTXdFRk9CcGczam5xQlUyVGZjRUJSZGtxeUdMMUZaRWlRTtIBfkFVX3lxTE5xVEZIeTlLZVR6Vl9IZTlSdWRwenEwZmZtQ01Jdko2R1VyWmd5YTQzLXBzU0NjSDByYm9Ia2NJVHZHS05oRC1PSEZua3lmTlBYamtHUU00MDBVQzU1MnJXUVpkNUg1am9mcVlaeVZPZi1CckF4UDFCMEVvSWhoZw?oc=5) |
 | Trump Claims White House Has Struck Deal With Harvard - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5WT0hQMFZRWERQZGRnc0M2dGN1Ynhyc1VtX3JZTEM4aFpScko4Yk93Z25xRnZYcjZ2RUY1dnRCZTl4VW1YUzY4b1J0STd4NUxnd0NRT3c0R3JMWjhpRWtfVW9Ub1lLamUwT2dGeFJXUDN5aHBoenJCdQ?oc=5) |
-| Trump administration uses taxpayer dollars to blame Democrats for government shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPSU5WMXVDSmZ2MWFESUk1S0kwelFlS0Q5bldxbjROVjZQcWh0SnZ4cWVkTGpNRE9zSDNUY0NLQ2huLWZ6Z1FvQi1rVjVLQnJ2ZUZHbWxuaDZjRktJOFpEMFpQaDZyQ0pkcHcxMHhOMWp2b3l4Ykx0d2dmaDJHV1hqaWxBS05mYlVaLU9VdmctU2Q?oc=5) |
-| Michigan church shooting survivor says she looked gunman who killed her father in the eyes: "I forgave him right there" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFBWVk1UWVpjcVMxMDk0bUJrcG5ZSW0wVWVOSExWYjVFVzREX0VqUnpUd3J3dDBrb29fV3lFRVpMRTVuQVJQNFBSNFRuTkhTMEFFMEVWSUxyT0lrNVU3b1N0R001SE1oZXBrME93Y3ZLTGRHdkxOTTVaWlNR0gF_QVVfeXFMTWpoNm5BUTdNZEdQT21tZjJqMGxLeVFUNUVoMVU4SlBSMWw0TlFIR3hBamJNQnY0aTJVNGlEZUNsMXl6WFI1cVVHaFNzMmZKR0VNcVlDbFg0anRPejdxM29MMjVQc2duT2Q5cGtUa3lZUHZaMnYzcHZrTjI4UEtXYw?oc=5) |
+| Trump-Run Agencies Blame ‘Radical’ Left and Democrats for Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNYlFvVmlmc0xHT1pFMzhjenNRVkw5dWljTnlySVZSTWRMU0ZsU1R1R1dkTXpGemJ3U1NrM2RPSEVLUDd1SzN1MnBySEdWMUJXX2J2aDZXYjJQUGU1eklYeXVRbzNzZjhZTzNBcFVYcEhRTFp0aHVPQzQwaERxSkdFX2JNaTFtZnJaenFhZ29VZWZhdw?oc=5) |
+| Michigan church attacker’s ties to Utah - KSL TV 5 | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNVVh2MThaTUUxX01DUi1SVThxU3NOUnFOb282V2wzTEFPUU5DemhuV3FJZ0Jqd1NiMzVGQTdaYWRnMjNyOW1tdHlRWm1fNndySGdmUkE0UHZSZEtKcC1ObUxEVjc1SzRJT2h3eFY0aFNsQ2hicGotZUhVYloyZkdjamhMUlV4bVFnYW9fTQ?oc=5) |
 | Trump administration illegally targeted pro-Palestinian protesters, judge rules - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPdmdtYTFzUEM2SVRVNnB4bUhqZk9HX0xXalVyM0Y3MWVzZUg5cnV0RGJXT0NWNFNxbXhlRmlpQlZWRzJWVTNHWFVjbEFiZkFITXp4dEZSekV2RHYyc0EzWk4xQzJsT0ZZemczbW5wSDQtSU51RzIxY2hOQkhkbmdpcW04ckJxQVNaWDV6aEswbUdCQ3ZkTGFUTHVVdGpsYVhFaElEYWd5VHJZZ0NKejJ4dkhyTDFleDA?oc=5) |
 
 ---
