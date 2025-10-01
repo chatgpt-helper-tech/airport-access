@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 01:17:37（北京时间）**
+🕒 更新时间：**2025年10月02日 01:25:05（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Scoop: How an Israeli attack inadvertently launched Trump's Gaza peace plan - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxORDRBSUNNdldpbjNWVUt2UkN6TjM1cTh1QnkyZGQ2T3ZmbTVxV1BpS1VHWmlNWVhaU1Z4N3RkNVh3MWNpM1c5d25VaW5NbXZuT0tOMzEwbFJrXzZFWEZ1d3ZOcDEyUVUzcFdla0NEWVBkRmlzLUlPc1lvRFhNbEdMYXoyZlpuUXgyVHpyeTU3Z09FbDhYV3dGWGtWd1pzZjl4OEhJdmVMQjhqdw?oc=5) |
 | 20-Story Public Housing Building in the Bronx Partly Collapses - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPdTd2dzY0ODlSMlgtMW9YWEFKZkoxbVp1ampsS2hQbkdMbXZibTVGeF8tZmJ4NmNsS1pOMmxDTjI5MElUZ2xWd2JHa1I3dnBoZ21MWWVrRi1PTW45dDhubGU0T3p6TEhMajdNUUFxLS02RnQzQlJsWXhYMVAyaVVUUks4cjh1clE3ZlE?oc=5) |
 | White House freezes $18 billion in New York City infrastructure funding - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxQYU9ETjFhekJHQ3ViZUtheDhoaE1pN1ptVElwbDEwQkwwNW5ncUZteFJXdVdjLWpiQkFTelQ3ZjQzYWJ4T0ZuNi03LUZGcl9BWjU4ZlMxUTJfZHZ2OVhkZkJhNFBELVpwRWltVTE2R2VGSG9TQlVldE1yMl81U1piWmo4aFJxblh0NkJwamZIRmg1dEs5UWc4Q25EVjc0MjY1Y2xCcVNlWEFIVWhIcGpJaEIxb0N3Zmk2X0pwazRjTDZBMVNuUkJ4Vk9hYXrSAVZBVV95cUxNWk50bEFrY281RVMzOVkyeGhuVzBLeXdSbXZ0UjJOcElhb3hFM0ZWVjBESkZocW4zZHRBUk1IY0JvRVB1X05FWUU1Q2RXdVlfaWpoVWNkUQ?oc=5) |
-| Cortez Masto Statement on Vote to Keep the Government Open - Senator Catherine Cortez Masto (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNc3MwbEV2NXZrVS1zTGprb1BCOTZubk5IdVFTSzdCUDlyMTBMbTNuYzlJbXk4UktpS3NJVTlnYkNkVkFvWi1lMVl1NUpjYjhhWE9leUx6NE84ZVVaZ3E4Sm4yVDNjcHFOREtHUElZZ1cwWHJEYVFFczdhMy1laU1JbVM1c0o1TnhKbWZSaU5xdEVjSFNJeTRNUkJOOUZqdUlHWXpqRDhlU2ZweXNDX2hkal94UVQ?oc=5) |
 | Trump Claims White House Is Nearing a Deal With Harvard - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5WT0hQMFZRWERQZGRnc0M2dGN1Ynhyc1VtX3JZTEM4aFpScko4Yk93Z25xRnZYcjZ2RUY1dnRCZTl4VW1YUzY4b1J0STd4NUxnd0NRT3c0R3JMWjhpRWtfVW9Ub1lLamUwT2dGeFJXUDN5aHBoenJCdQ?oc=5) |
+| Cortez Masto Statement on Vote to Keep the Government Open - Senator Catherine Cortez Masto (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNc3MwbEV2NXZrVS1zTGprb1BCOTZubk5IdVFTSzdCUDlyMTBMbTNuYzlJbXk4UktpS3NJVTlnYkNkVkFvWi1lMVl1NUpjYjhhWE9leUx6NE84ZVVaZ3E4Sm4yVDNjcHFOREtHUElZZ1cwWHJEYVFFczdhMy1laU1JbVM1c0o1TnhKbWZSaU5xdEVjSFNJeTRNUkJOOUZqdUlHWXpqRDhlU2ZweXNDX2hkal94UVQ?oc=5) |
 | Trump's pharmaceutical tariff threat loses bite after Pfizer deal reassures drugmakers - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQTGg0SlZ3X1pzeWZRdEFUVGt1SGJiVWtaaS1XRkZibGE4SlNEbTU3d2trYUJNTk9oVDZFVUlpRE9kcjlkTlVqS0hPblhWemRHUUVUSUlqX04tQy1RQ3h5UlhmU3JUaWxiZU9JcW5XT3VJZTk3VXY5U3cySmpYcWhqOW90b9IBiAFBVV95cUxOUkNTUlNOb3NMbHpMc1FDWjJXNnVEQ3N5ZF9yNHA2LU5sV2E2eWlkMmJ3aE02Ym4tb281RnJFSFk0QVVIWFBFdmVDb1FmWU91c3B2YmFiUTdiLWJZUTAtaFFob2tvU3JjOThESEdJZENzeUFpWTFKbVhpSWs4czB2aEt0YW14R2hl?oc=5) |
 
 ---
