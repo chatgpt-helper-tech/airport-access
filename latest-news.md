@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 07:56:07（北京时间）**
+🕒 更新时间：**2025年10月01日 08:00:11（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What happens if the US government shuts down? | [阅读全文](https://www.bbc.com/news/videos/ce32pz0gw34o?at_medium=RSS&at_campaign=rss) |
+| What could happen during the US government shutdown? | [阅读全文](https://www.bbc.com/news/videos/ce32pz0gw34o?at_medium=RSS&at_campaign=rss) |
 | Farage doesn't believe in Britain, Starmer tells Labour conference | [阅读全文](https://www.bbc.com/news/articles/c749vy43l74o?at_medium=RSS&at_campaign=rss) |
 | Starmer had to show his critics he can take on Farage | [阅读全文](https://www.bbc.com/news/articles/cpw1jwdlz7lo?at_medium=RSS&at_campaign=rss) |
 | Bowen: Momentum is the strength of Trump's Gaza plan, but lack of detail is its weakness | [阅读全文](https://www.bbc.com/news/articles/cn829deeje3o?at_medium=RSS&at_campaign=rss) |
