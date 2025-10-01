@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 20:49:46（北京时间）**
+🕒 更新时间：**2025年10月01日 20:56:28（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | Storm Amy named with 80mph winds and severe weather warnings for the UK | [阅读全文](https://www.bbc.com/weather/articles/cy042drenj8o?at_medium=RSS&at_campaign=rss) |
 | Farage's security has been cut, Reform UK claims | [阅读全文](https://www.bbc.com/news/articles/cj4ypey88kdo?at_medium=RSS&at_campaign=rss) |
 | Watch: Students pulled from rubble of collapsed school in Indonesia | [阅读全文](https://www.bbc.com/news/videos/cn5qpeq2rx9o?at_medium=RSS&at_campaign=rss) |
-| Every GP practice now has to offer online booking | [阅读全文](https://www.bbc.com/news/articles/cjed4qvzjeyo?at_medium=RSS&at_campaign=rss) |
+| Boat Race coverage to move from BBC to Channel 4 | [阅读全文](https://www.bbc.com/news/articles/cjr5p110823o?at_medium=RSS&at_campaign=rss) |
 | AO boss tells BBC: We're a British success story – the UK should be turbocharging us | [阅读全文](https://www.bbc.com/news/articles/c8exj892085o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -31,8 +31,8 @@
 | Travelers and air traffic controllers may face disruptions in a government shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNWU53WWVfTFhqSXJIQ0liSzFnVEtlQi1iZExsLWwzcGQtNk45ZlROQlgzNWZGZV93ZjN0UHM3RnQ3VnhfXzJjQXJqaU12VVc5U2Vfei1RSDh5ajR5czNYOURFaFE2S1NZaTBVckR0N2pGNTZOZ0wtbk82blZPU083TA?oc=5) |
 | Trump Claims White House Is Nearing a Deal With Harvard - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5WT0hQMFZRWERQZGRnc0M2dGN1Ynhyc1VtX3JZTEM4aFpScko4Yk93Z25xRnZYcjZ2RUY1dnRCZTl4VW1YUzY4b1J0STd4NUxnd0NRT3c0R3JMWjhpRWtfVW9Ub1lLamUwT2dGeFJXUDN5aHBoenJCdQ?oc=5) |
 | Democrats embrace a shutdown fight in a rare moment of unity against Trump - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQVW84QnRuNjljSVZWNkkzQ2hwT3UzVjZCYzN0UkV0bHNtYlhEY19fSUlsNVdqdTJrY1hOVlRBZXF5a29VWGFwU0g5UE1qYmpSLXZ3Ni1ITXJHSFJvUUgyeU8zVm9SMHFYN3dIc0s5a0dwMEpiWWpCUjZNbXpHSnJ1ZTJVdU5nREZjeGFwalo0S1lJRXVKSWgta1FsSElxbFRzRDRPZEM4aEc4elF5TkhmVFJzMA?oc=5) |
-| Trump administration uses taxpayer dollars to blame Democrats for government shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPSU5WMXVDSmZ2MWFESUk1S0kwelFlS0Q5bldxbjROVjZQcWh0SnZ4cWVkTGpNRE9zSDNUY0NLQ2huLWZ6Z1FvQi1rVjVLQnJ2ZUZHbWxuaDZjRktJOFpEMFpQaDZyQ0pkcHcxMHhOMWp2b3l4Ykx0d2dmaDJHV1hqaWxBS05mYlVaLU9VdmctU2Q?oc=5) |
-| '32 Chunk' is 2025's 'Fat Bear Week' winner - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNbUF6anJGQTlpTnJ6VkNjTmFXVWxrU3IxQXFEOVZkU1NUMHphMUN1dFQ0ZVFXSDAydzhfQ3pVcUxhUjVQNmFKMl94VnluTURteW5obXhGWFRHbWctYWE3SVdKUXhETnc2d1p2SVI3R3diX0ozbVJpWHloODQxNFFmSk5fMzJTNWp2MGdHOEdfaG3SAVZBVV95cUxNR2EtOENHMllCR0ZfdFR6LXl2ZEJQQ18xci1XMkdnZEhQWnctTVZVMFY2QldIbXMxVGxIX0FQdDVsVWJKdjUxWkRwYkh0U1dtTXRwc2xkdw?oc=5) |
+| Second victim in Dallas ICE shooting dies from injuries, LULAC says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPQlF2NlpBTlhkYWJMWXFIVlc0YW1vTXRaZ29ta1BVd3dwbkgtTmhpZTJJTnliTGVwaEh1cV9MNG85SFhFRFZqRHhaUHc2M21iMWdXT3ozQk1yajZSTVBzUkVob0w0SUN0U09aSnBxNmh4ZEotRXFKUlFEYjdRWTc1OUxodFoweE5PdjlYRWJtS21kQVlMSTZDU2pIM1g1OWM?oc=5) |
+| Judge Disqualifies Nevada’s Acting U.S. Attorney From Handling Cases - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNUUI1MDNwVVQyTHA0clZKUjVZUGlDVDdJUl9xbVJmejNOVnZZQ2hfNTNkdDJwb3BieFBhX2NSS0Q3NnI1SFZwLU85UXZvZG1SUlltSi1fRHdMcjJWNl82ellVM1VfY003Zm8zdXhNVnZmYkJWaEVlRGFhQzZpVmlSRlg4OVlxaWI5RFJRNXRyNXJnQnM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
