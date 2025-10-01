@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 03:24:20（北京时间）**
+🕒 更新时间：**2025年10月02日 03:33:42（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | White House freezes $18 billion in New York City infrastructure funding - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxQYU9ETjFhekJHQ3ViZUtheDhoaE1pN1ptVElwbDEwQkwwNW5ncUZteFJXdVdjLWpiQkFTelQ3ZjQzYWJ4T0ZuNi03LUZGcl9BWjU4ZlMxUTJfZHZ2OVhkZkJhNFBELVpwRWltVTE2R2VGSG9TQlVldE1yMl81U1piWmo4aFJxblh0NkJwamZIRmg1dEs5UWc4Q25EVjc0MjY1Y2xCcVNlWEFIVWhIcGpJaEIxb0N3Zmk2X0pwazRjTDZBMVNuUkJ4Vk9hYXrSAVZBVV95cUxNWk50bEFrY281RVMzOVkyeGhuVzBLeXdSbXZ0UjJOcElhb3hFM0ZWVjBESkZocW4zZHRBUk1IY0JvRVB1X05FWUU1Q2RXdVlfaWpoVWNkUQ?oc=5) |
 | Bermuda braces for Hurricane Imelda after a glancing blow from more distant Humberto - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPWDdrZUlUQjc0eE9vR0JfcHY5T0tvMVUzcVE1QkFjR0NGQTRmbHdtOHQ5UC1kbF9SZVNFeW13NXpTcnFzSGE4bUpNTTJ5ZUNRUXpxUlRTRFZScHpkYUJqeHpHTW1qOW9rWng4RDdnM2w1Y29aVV9pdzBkd2RQRGhnOTV1TTgxTVE5UWdLRU1sWE10dXpROXdORktYbnpDblFsV1hLalBkUFZmdmlCMmNtRi1la9IBuAFBVV95cUxPR2lyOE5wWS1yMFdpZ052d3NFNTh6NHVDMkFiNEo5a1hSRDFaNmpkWXlHZlJBT0d3V0JBUHFZT1hEcW1NWTVUZGhnLVRSN3VRN2pJR0JZOHRFdk1aS1lJZ20wQXVDbzh6QkI0QVg2SlZmaXFScXg1SmxEWjV4R1VzaTVfWWFoaWxzVUhyUkg5U2RNWmxTM3RTVEwyT2I3NWZxc1JYUEVURGdvanNXSmV5Y2swWE5qRmFR?oc=5) |
 | Part of a high-rise apartment building in New York City collapses, no injuries reported - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxORFIyM0JaeXR1NXBVaDRZMnZ6R09iNzRoOHJiNUszUTVvTGhIZ2F2ek1SdXNMbGlnMHgySC0xMWtCYUQ0bzdVUWNydldJZFpkU3NSQldHSnF6SFVQekdBc2FqOU94SXdyWmVRZzRUZDF4WTc2NDBETnJuYXExT2xQTFFVWHRVZ2NsRTZNMDc3ZE9GMmlCbDRhR9IBngFBVV95cUxONTh4NFhIYUxOTTNYQ2xuRkVjaWJsaFBvSjlaaHFyaDhMWkFfMzdhZmVKdE5MSDM2RXAyUjN1elF6emMxQ3RLcUdkM1p0ZnNFb2RYeS10WWpWRHFBeUNNOHpocFVpZmJEUllLRXlDc1FIY0dmLVJmeTMwXzdCRldYMXhENE0wWGxCamNnYlo2WmJCRFFnS1VMcjZyUmRlZw?oc=5) |
+| Judge says Nevada US attorney’s involvement in criminal cases ‘would be unlawful’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1QN09tM2hoV3BxUVlKNnBlTUh1Y01qajFqVjNpOGlJU2MtT2VfeXA1dlBCWlJyRllmUjJtTlNvMGtLU1hsckxzcm9kaHd2S0lGRHNaUkZpX3Fjc2hYM2M1ZE9zcUlaUy02T0d1TDh0ZV93eUlRdF9PX191a2t6Mk0?oc=5) |
 | Trump's pharmaceutical tariff threat loses bite after Pfizer deal reassures drugmakers - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQTGg0SlZ3X1pzeWZRdEFUVGt1SGJiVWtaaS1XRkZibGE4SlNEbTU3d2trYUJNTk9oVDZFVUlpRE9kcjlkTlVqS0hPblhWemRHUUVUSUlqX04tQy1RQ3h5UlhmU3JUaWxiZU9JcW5XT3VJZTk3VXY5U3cySmpYcWhqOW90b9IBiAFBVV95cUxOUkNTUlNOb3NMbHpMc1FDWjJXNnVEQ3N5ZF9yNHA2LU5sV2E2eWlkMmJ3aE02Ym4tb281RnJFSFk0QVVIWFBFdmVDb1FmWU91c3B2YmFiUTdiLWJZUTAtaFFob2tvU3JjOThESEdJZENzeUFpWTFKbVhpSWs4czB2aEt0YW14R2hl?oc=5) |
-| Legal opinions usually aren’t exciting. This one has everyone talking - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNYmVnTHd4b3FlZmVzMjJneHd1R1BjQlZiWFJRVG9wS0kyUXE3LVU5YmNQZThGcEJLWnpEVjZGaTlWVlFJbHRpSWdOcGxVd1FEc1B2UDFxSE16NDVUc0hSSnNhb25jM2lieC1aWHFwX1N2bVhWTTRrRWRfLVVZWWNWVGNaRkh6ZXU0UTg1Qw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
