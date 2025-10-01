@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 03:57:01（北京时间）**
+🕒 更新时间：**2025年10月02日 04:00:41（北京时间）**
 
 ---
 
@@ -12,9 +12,9 @@
 | Why BBC sent undercover reporter into a busy London police station | [阅读全文](https://www.bbc.com/news/articles/cvgn0rjyn2jo?at_medium=RSS&at_campaign=rss) |
 | Met chief apologises for 'reprehensible' behaviour of police officers | [阅读全文](https://www.bbc.com/news/articles/c1mx28gyl29o?at_medium=RSS&at_campaign=rss) |
 | Baroness Mone-linked company ordered to pay £122m over PPE contract | [阅读全文](https://www.bbc.com/news/articles/c1792rk7ynko?at_medium=RSS&at_campaign=rss) |
-| Afghans rejoice as internet returns after Taliban blackout | [阅读全文](https://www.bbc.com/news/articles/c0jq2q5jnw3o?at_medium=RSS&at_campaign=rss) |
-| Pope Leo condemns climate change critics | [阅读全文](https://www.bbc.com/news/articles/cgl1pgr2zn8o?at_medium=RSS&at_campaign=rss) |
 | Israeli navy tells Gaza flotilla to change course as activists say boats intercepted | [阅读全文](https://www.bbc.com/news/articles/c0lk292jww4o?at_medium=RSS&at_campaign=rss) |
+| Pope Leo condemns climate change critics | [阅读全文](https://www.bbc.com/news/articles/cgl1pgr2zn8o?at_medium=RSS&at_campaign=rss) |
+| Afghans rejoice as internet returns after Taliban blackout | [阅读全文](https://www.bbc.com/news/articles/c0jq2q5jnw3o?at_medium=RSS&at_campaign=rss) |
 | William may have been target of Mail publisher blagging, Harry's lawyer says | [阅读全文](https://www.bbc.com/news/articles/c07v2dmzv1jo?at_medium=RSS&at_campaign=rss) |
 | Rochdale grooming gang ringleader jailed for 35 years | [阅读全文](https://www.bbc.com/news/articles/c36k2595k69o?at_medium=RSS&at_campaign=rss) |
 | Storm Amy named with 80mph winds and severe weather warnings for the UK | [阅读全文](https://www.bbc.com/weather/articles/cy042drenj8o?at_medium=RSS&at_campaign=rss) |
