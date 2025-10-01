@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 00:57:29（北京时间）**
+🕒 更新时间：**2025年10月02日 01:00:31（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | 20-Story Public Housing Building in the Bronx Partly Collapses - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPdTd2dzY0ODlSMlgtMW9YWEFKZkoxbVp1ampsS2hQbkdMbXZibTVGeF8tZmJ4NmNsS1pOMmxDTjI5MElUZ2xWd2JHa1I3dnBoZ21MWWVrRi1PTW45dDhubGU0T3p6TEhMajdNUUFxLS02RnQzQlJsWXhYMVAyaVVUUks4cjh1clE3ZlE?oc=5) |
 | White House freezes $18 billion in New York City infrastructure funding - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxQYU9ETjFhekJHQ3ViZUtheDhoaE1pN1ptVElwbDEwQkwwNW5ncUZteFJXdVdjLWpiQkFTelQ3ZjQzYWJ4T0ZuNi03LUZGcl9BWjU4ZlMxUTJfZHZ2OVhkZkJhNFBELVpwRWltVTE2R2VGSG9TQlVldE1yMl81U1piWmo4aFJxblh0NkJwamZIRmg1dEs5UWc4Q25EVjc0MjY1Y2xCcVNlWEFIVWhIcGpJaEIxb0N3Zmk2X0pwazRjTDZBMVNuUkJ4Vk9hYXrSAVZBVV95cUxNWk50bEFrY281RVMzOVkyeGhuVzBLeXdSbXZ0UjJOcElhb3hFM0ZWVjBESkZocW4zZHRBUk1IY0JvRVB1X05FWUU1Q2RXdVlfaWpoVWNkUQ?oc=5) |
 | Trump Claims White House Is Nearing a Deal With Harvard - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5WT0hQMFZRWERQZGRnc0M2dGN1Ynhyc1VtX3JZTEM4aFpScko4Yk93Z25xRnZYcjZ2RUY1dnRCZTl4VW1YUzY4b1J0STd4NUxnd0NRT3c0R3JMWjhpRWtfVW9Ub1lLamUwT2dGeFJXUDN5aHBoenJCdQ?oc=5) |
-| Madison Cawthorn launches comeback bid — in Florida - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNWVF3RXBjLUc5andoV2hYaWdMTFlWQU9rN2x1V3FfSi1LSW1CN3V5My1XeWtacVJpdURBU08wN21feVRJai1fVzFleGdaSzF1VllmUHJDU3ZTbmljX3BjeS1HVWxPSjZFTTk1QktzUEE1emxfWHFzZmoxSFFwM0hnYTNSbV9hUQ?oc=5) |
 | Trump's pharmaceutical tariff threat loses bite after Pfizer deal reassures drugmakers - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQTGg0SlZ3X1pzeWZRdEFUVGt1SGJiVWtaaS1XRkZibGE4SlNEbTU3d2trYUJNTk9oVDZFVUlpRE9kcjlkTlVqS0hPblhWemRHUUVUSUlqX04tQy1RQ3h5UlhmU3JUaWxiZU9JcW5XT3VJZTk3VXY5U3cySmpYcWhqOW90b9IBiAFBVV95cUxOUkNTUlNOb3NMbHpMc1FDWjJXNnVEQ3N5ZF9yNHA2LU5sV2E2eWlkMmJ3aE02Ym4tb281RnJFSFk0QVVIWFBFdmVDb1FmWU91c3B2YmFiUTdiLWJZUTAtaFFob2tvU3JjOThESEdJZENzeUFpWTFKbVhpSWs4czB2aEt0YW14R2hl?oc=5) |
+| Release of Democrat’s Naval Record Scrambles a Tight Governor’s Race - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPVzVvamYwd1BmbG4xdndFUTUtRkhoWUlGQTZqQWV4T19aRFpkMWdrMGNHUDE2WWZLSGpDeU8yT2FYQVRxT3lEVXUzX3dHZ2Q2amJuYWZWSDU2WXZFZFc3LXVUR05KWGdBX2RqZEE3RE5GdUgtS0VuOVNPaWdVUUZYREpGOUpYOTlyV0dMY2o4YmJSUTBNUVB2SG4yZTFnUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
