@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 04:00:41（北京时间）**
+🕒 更新时间：**2025年10月02日 04:08:33（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Jane Goodall, chimpanzee expert and animal rights campaigner, dies age 91 - follow live - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1fem84Vk4yQ1ZqYVlFa3FZUURFM1NDVE5zMnpnWjB0YjVwNVI2SjhpS3NZaGt0S3p0dkNqQVFKVXNBVlpKQWpRczlzSTVhY0VNZG01Mg?oc=5) |
+| Jane Goodall, famed primatologist and conservationist, dies at 91 - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxOMDhkNFktdHJONDBWb3psVDhYbjZ5cnJtVnh1NGQzZFU4SUxENVc5VFlkWWhzX3FESWNCTjZqcENsNFJsb0lmNWhSNnR2NzhNSzJWaG94OFpQaUdXRWtLZHJHSHNtSjF0eEpldjY5ODBVb01YZTRJY2JrRUNjMlM5OWVyd3BlMFBoM1FBcDVwWnY0RmdNU2lzWUhwamRpZ25DY2lJWGg4am1Nd0ladjU5Nkpma2xtZWVFT25DS0gxWjlVbks3MVHSAcsBQVVfeXFMT2tGVHlPUXZkXzVkdFR3T0tHZ2VqZUxXdVgySWNfdXZrbUptZmVIZUNjRklrR0RyWTdjYk5LMGNfSUVUOU9mYV9OTDduSkQweDI0Ty12bG1Qek1taFJvM3RxUEpHNUJRUXlWSkM3MENMUzljd0hxMXNtdkFQc0pRR1dPdlpWb2RpTkU0bmJfTGVHdVFTZFBtR1BXVU5pTkhvYjd1V0NnMi03Mzljajl5V3RLVUx4Y1VKb3doYloxbk5Lc1Q2NGQ5enlMdzQ?oc=5) |
 | Vote to end government shutdown fails in Senate as Democrats hold firm on health care demands - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxPXzF1MVFsWVoyMW5WME5BbmVUYnJVRjVoUG5Rb2hhamhIN2M2Mk1xS0t4bUI5MlY0UGRrN0FRdDg2U3dYY1RUMGh0TE1WTGROX0tzM2IzWkIteFpnNW1WQmpjWlhTZWhhNmc4OEM4ZF8xbWxhNXhXN0w0S0FqWW5LTmoySl9NMmFLdmJUQlgxcFUyZ09OdjA2cjhEOEQ1bGYxOHZkXzRyaHhvLXZQZ2lKVWkyeF9wUU9mclpiQTJqUUtNOGRMSWtn?oc=5) |
-| SCOTUS allows Lisa Cook to stay on Fed board into 2026, accepts case for January argument - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQRUoyWm1pZUpVblQ2QVBWaHgtdFE5bFZjSE16YUdTYXZ0WnhlejlESzJCX0gzZHJlSlRQOEFKR2FqZW1qLWRPbWEtc1R0amt5OGtGWV9BakdXNEYtRUdiZlBlemtzbGNMbVFJam5XMUU0eG5QVVFGSkpjOEo4bXpLQ3Q0cEZtQWx1NTY3OFEzYkJjaTlHVDJPMVZpMFLSAaIBQVVfeXFMUFN0VnplUjY1LTR6VVZsOTRxVzFMWFhfYmtBR3U1U0FVNzBEUE8zVklQLUlQSXdzZjl5TVZpZjRPME9qNXFqdzFFTHFKaTEzUUpfekZ4M25Qclo3RDJ1Q2FIUGZmV0MzRG4wbWttWVRVQ3IyZGNpNFVJX3BCR2stcnk4Z0ljbE01ZlZ1ekg5T2d2amFTb1NzWjRrZVVsczhRTWp3?oc=5) |
+| Supreme Court will hear arguments over firing of Fed’s Lisa Cook — but allows her to stay on the job for now - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPUHdTdTg2NlY4TzYyMTd3MW1mRG1fRHktMXFRY1Q1NTl2bUZtN0YtSVowQkEwbHRuWmFfTWZOM2tPZ3Nmd3JGV0VNaUlWZGdCME0wTWIwRHRvekNPNE9hV2h1dDdRbnRlX3hTcjh5OG96M0FiSDVmWTdySmNicHFGM3BvQlQ0R1dTaVM0WTRGRU9ia0NWN2RBX1VESy16Y3du?oc=5) |
 | Veterans react to Hegseth’s ‘insulting’ address to generals and admirals - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOYzhkQnBfS3dmblNzRDVIeG9Sa0lwNHIweFFmTFphWTBPWDQzYWZfbWp2V1J0alRJaDlRei13MTUxd3ctVXFxRmpMVW9URnBCd3FRLXdwenpQQ1hycW1hRWhTQW9CLWhGUXVReEtUREpPWW1nYmp6RHV5VGJTdlVxcVhMSV9kRDlXdC1ZbkNNdmNrdGl6S1E?oc=5) |
 | Hakeem Jeffries called Trump’s deepfake post ‘racist.’ JD Vance said it was ‘funny.’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxON2h2NmFkQ3RzbmxOQnhZWHl5azlPd2RMbGxJalVjakh1WnZuRUVsUC0wVnpsNmlybHJ0dl9JcDNWS2NZa3l3VF9nRmZTQWI0b0lXbHh5clpqcjBUSVBjWHhQRlZ1N1A0OUUzc3Bqb3FqODBLTl95QmJoTEZ6QWZFRzNfcVpXZ2hMNGc?oc=5) |
 | GOP uses federal platforms to launch shutdown blame blitz - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPYTh3VTFKSEYxa3hFRVpxN2xuang0cHJGNHVmSkVfaWtKU3F5Y2MtUFVGWndNRGN1d2o4VzdmVFBQTjd5azNYRU1fV2dIeTNKNWp1MWVRWjZleVB4cWFNdWNuamg4U3VpLXlsd253ZERBT2p3R19fNlR0SHducTFCcElKalFOcUtrZDExY3pyZkplSkk?oc=5) |
