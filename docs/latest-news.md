@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月01日 12:48:22（北京时间）**
+🕒 更新时间：**2025年10月01日 12:56:06（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | White House withdraws E.J. Antoni's nomination to run the Bureau of Labor Statistics - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNY0ZSZmRCRlBlUVBlMTVTa185WEtoNHpVZkl6dDFwcVgwM0lubkhjVjhleTMybTlWTHIxZDZWNzNfVlBFa2hZVklwd0xpcUNuY011X3BoOHo4UWdxVEF6SGROLVdfelk0dnVsbnlBWlZDdmdzaXA3VjJDdUFDaF9qd0gxQW9DT0dJRTkyR0JMZHdnSFRDUU9sV3o1dXlZV3J2TDBpTkEwQdIBVkFVX3lxTE4wWjdVcUZEdWRLWkg1REN5bmt3b0tJLXhxSU5fWUxZeXpwNFBFa0lWN09WcXFTTkZPcmtrSUdhZlM4Z3FSM0RFZWtzRkt5amxjSDB2aUtB?oc=5) |
 | Federal agencies blame Democrats for looming shutdown in apparent Hatch Act violation - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNSXkyTGtGdnV3N2xQdGJhaHlzel9KMGVFR1dMSEZJYll6aUxDRWRjd2U0RHhSVVBMQkRSTmhNbktVT3NsWDlxOHROdnFlRXFJanE4VGlTMjFHODJiUGlqMi0zcFFFRE1MWVo4M0p3LTlxMlMxTzhKNG1ndDlHb0pkMHRIa1M1bHk4OElN?oc=5) |
 | Trump Claims White House Has Struck Deal With Harvard - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5WT0hQMFZRWERQZGRnc0M2dGN1Ynhyc1VtX3JZTEM4aFpScko4Yk93Z25xRnZYcjZ2RUY1dnRCZTl4VW1YUzY4b1J0STd4NUxnd0NRT3c0R3JMWjhpRWtfVW9Ub1lLamUwT2dGeFJXUDN5aHBoenJCdQ?oc=5) |
-| Judge says Nevada US attorney’s involvement in criminal cases ‘would be unlawful’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1QN09tM2hoV3BxUVlKNnBlTUh1Y01qajFqVjNpOGlJU2MtT2VfeXA1dlBCWlJyRllmUjJtTlNvMGtLU1hsckxzcm9kaHd2S0lGRHNaUkZpX3Fjc2hYM2M1ZE9zcUlaUy02T0d1TDh0ZV93eUlRdF9PX191a2t6Mk0?oc=5) |
+| Judge Disqualifies Nevada’s Acting U.S. Attorney From Handling Cases - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNUUI1MDNwVVQyTHA0clZKUjVZUGlDVDdJUl9xbVJmejNOVnZZQ2hfNTNkdDJwb3BieFBhX2NSS0Q3NnI1SFZwLU85UXZvZG1SUlltSi1fRHdMcjJWNl82ellVM1VfY003Zm8zdXhNVnZmYkJWaEVlRGFhQzZpVmlSRlg4OVlxaWI5RFJRNXRyNXJnQnM?oc=5) |
 | Five oceanfront homes collapse in Buxton on Tuesday afternoon - Island Free Press | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNRGV2NmxpUzU4VjV0OU9xV1lNWkd0MXNWODJrU2lkaEVET3dHLVpoT3JmV00wR1paNW1lZXBVUl9uZFJaTi1PeHlYaUxYT1RZcXZnSXJBekZhbXNjbUJqdFJCZWgzTFdsUFBjOUV4bk9WZnRTTnlEeElQcmhpLVVJVzZ4Z2NXZnp3TjlBWi1XNm8xcHI5RXplZ3Q5aDlHTHpHTWxMU1BtU2E4WDA?oc=5) |
-| All hail the new Fat Bear Champion - The Verge | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBIZXVjSjNQRUtQUC10SzNlN1ZfZUZadGtMenVVbEZNR25nSEdUNE14S3ZiNE93RHVJbGRnNlc0aXpNMV9ZUmlKRHYyZWwwRzNzTTQydVI1TmdQekZhRk5lcTFoWHpkV2xrb1RseWlrQXc?oc=5) |
+| 32 Chunk voted as Fat Bear Week 2025 winner after 2 years as runner-up - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE43eUFFN01oNV96enN2Ny1sajBiTnhpTFE3VmlwR3NPV2tBMTVJQ0dxc1BpdXRZV19VczRRNmtHWDJMZlgtRGxMM3dfZWdSQ0xCbXlOTUt0UkpqZkJCWjVSY2s5T1VJZGFQZnhZakdpb20td9IBd0FVX3lxTE1pRm5PMUh2NFd4ZUJDSlpNVXVnTmRDWnJHdkV1LU03M0E3c3JDaUlLRE52MXVYTjBvR25nYTRCc0RJRWxQeUc4dGY5ZXFfa0s4eHotb3RKOHRZLWw1bUxQUjkxczh0LUlNLUs0b253SGVUOHJXOEdj?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
