@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 16:41:59（北京时间）**
+🕒 更新时间：**2025年10月02日 16:48:42（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | Relief and new baby for asylum family of child suffocated in Channel crossing | [阅读全文](https://www.bbc.com/news/articles/c8d7l2pvdrro?at_medium=RSS&at_campaign=rss) |
 | Heart surgeon's failures contributed to multiple deaths | [阅读全文](https://www.bbc.com/news/articles/ce3yz4q9p4po?at_medium=RSS&at_campaign=rss) |
 | Why BBC sent undercover reporter into a busy London police station | [阅读全文](https://www.bbc.com/news/articles/cvgn0rjyn2jo?at_medium=RSS&at_campaign=rss) |
-| In full: Met chief's letter to home secretary | [阅读全文](https://www.bbc.com/news/articles/cz9j283j9pko?at_medium=RSS&at_campaign=rss) |
+| In full: Met chief's letter to home secretary and mayor of London | [阅读全文](https://www.bbc.com/news/articles/cz9j283j9pko?at_medium=RSS&at_campaign=rss) |
 | Watch on iPlayer: Undercover in the Police | [阅读全文](https://www.bbc.co.uk/iplayer/episode/m002k7k6?at_medium=RSS&at_campaign=rss) |
 | Watch: Campaigner Mina Smallman says report highlights problems with vetting | [阅读全文](https://www.bbc.com/news/videos/c147267xlvgo?at_medium=RSS&at_campaign=rss) |
 | Dame Jane Goodall revolutionised our understanding of our closest primate cousins | [阅读全文](https://www.bbc.com/news/articles/cgj1pz8q63go?at_medium=RSS&at_campaign=rss) |
