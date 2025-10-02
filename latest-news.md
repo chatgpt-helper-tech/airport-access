@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 12:00:41（北京时间）**
+🕒 更新时间：**2025年10月02日 12:09:41（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Government shutdown leaves federal workers ‘on edge’ as Trump eyes more job cuts - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNSXJ2OVZRX1B6MldsVWYxMnFTNVRkeVpWbGM1MlF1YldfTTZXLTJ1RmI0Z3VUS0VaM2FQUUJWdXVDX0hFNVdDV3hHRkJwLUJ3UGFza0IxMkVJTXN0cEpRYnhzN1FKNGljUXRvSUZ5LTVmNUFZeFB3LVdRc2VFY1dqclE3TmFzZDlXU1NkSFBycFhBQ00?oc=5) |
-| Trump to Withhold $18 Billion for New York-Area Transit Projects - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPUmhLcXd5b1NyYUlkRG82OVFPbzZzVTU3dFhsc0paZVJwRFRvWmlFeVRvbFpKNDNwUmYwbmJBdXprY0F0cGtSY1IzRUlTeFgtOE5PU0trRDVqbndSa1dpbGVwVkJ4RU5oZl9xN0hXdjVWTFU4SlN3VXhkWmhFV2RKNDgtc1BwWE1zREo3R3lzaTlUX2Jfb0I4Vmh2Nnk?oc=5) |
-| Conservationist Jane Goodall Dead at 91 While on U.S. Speaking Tour: Latest Updates - Newsweek | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOQVBabkswdzdGN2NJWFpRTWtGdDRHaFdjWmhXMzFyV0RITlRrOWg0XzZBR1VoeDV1a2tqYmM5Q0YyWHZQakk2Z3RnRWlLb3ltek40eGg5bVExQjJrNnFiQS1ETm5hbGhrekItZTYtcVdMNnFpS1E0NXJXT1lfRktWUThLaktEWFlRWWhTRDEwLWNWVllrRUoxREcxRzkyeXZUSk1XVDlEdw?oc=5) |
+| Jane Goodall, Revered Chimpanzee Expert and Conservationist, Dies at 91 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE50WndaYm11TUpLQ1F0amgxYnowYUhENWdLOFBTTmxFNWxjVll3TG14bDIxazZyYzNZa3pfMVJhZ0c3UnExdVVDdHE4S2lkdFJiaTdRR1BoNGZLVWh0S25pVW1tdXdWQ2FMc0pOVG5LWmQtUW9JcW9V?oc=5) |
+| Frozen federal funds for Hudson Tunnel project hit New Jersey's race for governor - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNd01abkoxQVZNX05Rak5WMUlYTm85WTlVc2NXb0pIQmZvQTFLZkV6bGR2YlJzcEk1cERtWEJwcnlRQW5UaU5CeldTWm84ZVk4bWFXOU1qa3VxcE1UaGNKODNrTG84b2R1Rm9tb0V6UFlQWi1CV0RUb2F2ODYzeDJjOF9tUDJ6WWp2MEctNXNEX0xtV3FTdElBa3d5aWxncDRGdXRfUTh6VEZUZU1pNjlaZtIBVkFVX3lxTE1VZFlkUUNjVU9OcEM5OUw1dTFqbWxGZHBCYlJzeXVqZHZvdlBDSHAtSGd2eXQ5Y0F2blJFRzdmaWxmLU1KbmVJdEVPTmVFazk1aTZwdnBn?oc=5) |
 | Israeli naval ships intercept Gaza-bound flotilla - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9aNXNNQ09yVm5ublZ1WXRwVU1rM1ZKc3NFMTUzQkxQTERXVlpOUXVFRlNVSjNGTTJNYzFvNzJRdzN0NTBXOVJjTlFYVGNzamFJckl5SjJjcHRJQdIBX0FVX3lxTE9KSXZrcXlzODhGYld0WGhHR3VfcWVlZXdrbXJUNVp5dmw1eUhIUXdOMmpUUDlFel9iUGgzMHRuNmFUQ2xLWVRDbkRHb3pHcUxXMEVwbTd1SGZxcFVMRmdr?oc=5) |
 | Sen. Cortez Masto explains why she broke ranks with democrats on shutdown vote - NPR | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxPX1lGS2JvcUloTXp2R1lfZENBcEtWaldLQkhfWDRGZTdrVmZLOEdXNFdZM3VIVDQ2blAwNmFWY3JEaTI4TXJucFY0ZWtZRUF5S1MxaEdyZlVHT0poN19teXVKRWc1QUJnUWFXMkI3ekp4NHp6LVBmUi1FOWhHV0poYS1HN3VoR09SOGtkbE9GVGNsTzJqU0xMQmI4QU1TVTBuV0lsME9nYW5mUHdNODlyMUlrUUVydXQyN1U3NUJMMA?oc=5) |
 | Pentagon plans widespread random polygraphs, NDAs to stanch leaks - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNcHdRczhvWW0tR2FmN0lvdVFFYTEtTktvNE82ZFVLZ3RidGhkbkc4TU9zQ2lyV0hRXzJJNHJuN3h4NDltRTJJRExVVlFmdVVacjd1ajUyUVFBbTF6TDMtRGlTQ0NLdVNxMUFPa3A3SDVQN0Y4X1FpTnYxRzZ2ZzFlb1FpS3F6VTlMVGpuNDRUT2xubGRIdXZaZEptWDBQQlk?oc=5) |
