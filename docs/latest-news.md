@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月03日 07:49:22（北京时间）**
+🕒 更新时间：**2025年10月03日 07:57:38（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Trump eyes cuts to 'Democrat Agencies' in government shutdown - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNY0tnNkp6YVVJRmFQdjltNVFUSjZRVUFOd1JYRE4wajUxQ0pVdEoxU05UdnNTRG4wTlh0M0RWWG9KRTJkc1BCaVUzd3d4YUtxLXVVcXdDRGtyT2ZtU3lxRWZzTnZwc0pyMFBDc1hmX3lCc1Ewc3hEelA0eGRwMHEzWWMyN28wOEZCc25ncHlNUGFXT3Y4ZmJpU3R6LXU?oc=5) |
 | Deadly Manchester synagogue attack: What we know about victims and attacker - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQS1lsUHlEOURyNlJpOUVjbHAzTWhzWGx1ZmZkbnp5NVRiaF81OG1KOUlWLXR2eVBlOUlLNm9iNWEta21YTXNTSTY4UUtHaXQ5SFR5Qm1kVzhHX2t1Y3hOcnNseDNDMlA0TWJqVTRIUU1kQjVxb3V4MUw3SmxENUpNZ28yQmF5Uk1sMVBaeC02VEpBcllTN2stWXh3ck5sTkRkdF9nbzJlVkFad0Q5Q1h6YXR6WXFCUdIBuwFBVV95cUxONV9fOXg1VlFSNEh5NEZmR0J4V3EyT2NEUm1fQlVDZm5KdHNCOGNVanQ3WTBaeU5aQnlibGVVRXp4Q1JrVGw4TGpUWlF6bGprMjBWS0dMMUlwd3hYUnFRZVVER19GcmRLck41VVdJTVROYjFGZmtvQ0gyR0cwb2NELXlOS2h5SUpxOWFvZE9GU29qcWJ4UkpZVWk3eTRGVGx6SVI3ZFBYS3VJQVVpWUxablpVR19LUlQ4OTlF?oc=5) |
-| Where George Washington would disagree with Pete Hegseth about fitness for command and what makes a warrior - The Conversation | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxNR0pONnhSVHVPb1JQX0lmdDY3OVVrYW9qU2t0WElBZVNOVUV6UXdURlp3NWZJN3QzVF9uQzgxbHM0RkY0SEFBSy1mb1hxUDA3d1VJOU9KWGU3YlpyZGZpaTk1S0thYkNjNjVMeXRqbFo5eTJVQ0RJSWtnZVRzU0JaeDlxRnBXcVRmUEI1VEhXNVMxcFd3cnpmV1BVOXJkWldWN216eVFXc1IwZzdCdVM3TEdnZTdEeXBtay1pU0t0N3VaaDc2Mnk5QUZaeV9iVG9vM21JUmh4MUFqZw?oc=5) |
 | Trump ‘Determined’ the U.S. Is Now in a War With Drug Cartels, Congress Is Told - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE01cm5QV2JwZkY5YmZTYkg4c2FnaHJuQWc2cjhLWVlwZGp4V2JzQ3NFU3k2U2hwQlVUc1p3QWQ1SnlnT2FLV1NWZFJ2aEJaaWJuWVlhajhMOExyTlNwMlRpdzV3WTQyd3FVRko2UHVGMlROajdLOERNakdZMzB6eUE?oc=5) |
+| Where George Washington would disagree with Pete Hegseth about fitness for command and what makes a warrior - The Conversation | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxNR0pONnhSVHVPb1JQX0lmdDY3OVVrYW9qU2t0WElBZVNOVUV6UXdURlp3NWZJN3QzVF9uQzgxbHM0RkY0SEFBSy1mb1hxUDA3d1VJOU9KWGU3YlpyZGZpaTk1S0thYkNjNjVMeXRqbFo5eTJVQ0RJSWtnZVRzU0JaeDlxRnBXcVRmUEI1VEhXNVMxcFd3cnpmV1BVOXJkWldWN216eVFXc1IwZzdCdVM3TEdnZTdEeXBtay1pU0t0N3VaaDc2Mnk5QUZaeV9iVG9vM21JUmh4MUFqZw?oc=5) |
 | Trump asks 9 colleges to commit to his political agenda and get favorable access to federal money - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNV2FMTG5LWmNSaUdTNnNEcFJUSkpySUlDeWczeDBKSzJiOGtWc2Rlb1lYS0dHQW4yclItRDBCRnBFS0xqVnpKUjdxcEk2UG5NN1RUVVd1Ykh3OC1tYnlQcm9WZVN2QTBhanRjRURRU0VsTXhWUEZPN2h1cnIzYlVzTkVTYUJjRFJTLWdsTE1GS2VSTy1ZX3pOSl9JTlIwSmI0djh5aVNlRzQ?oc=5) |
 | Trump making plans to send billions in cash bailouts to farmers with taxpayer money - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNMzNBYXF1LVNtRHlyaUpBc2swTnRISEZRdEJEa2RRN0YwZWNJcjUxbGRDOXc5TjVLQUlWNDNaQUJPT1Y3NXFObXh5MGQzZEd3TUcwM0ZXbkotUTBtd2NSS3lDamdGNFBTb3ZtSVZkZVhfdGFtZHEzQUJYdWE2VzdiWjhMTnNsSnJWc0x1LTJB?oc=5) |
 | Out-of-office messages blaming Democrats for shutdown sent on behalf of some federal workers without their consent - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNR0FfV1gwOERrdWRIYVpUTHZGVUpGMHRYWF9wTzR1em9wYW1ENURyVWJiMTd2ZGVCOE9KbkdOUjFSQkp6aXgxanpwVnViQXg3RHlyQ3FjTUFPX0loSVZZOHZldkh1b1UybEY2dC04emZGczV1cVdCdEU2ZTE5Ri11NjdXOVIyYjlaZ2E2Zk1Lcm1ZcHU3dXc?oc=5) |
