@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 14:08:34（北京时间）**
+🕒 更新时间：**2025年10月02日 14:16:18（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | How John Thune sees the shutdown ending - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNRUNDajhpQmZTcmVmVWlEZktKMVFhYkNxUks0Sy02UXh4Mm42dk5MdklpMmRnLTliS19odXdIcWhXeFZtaWJHTzA2NHFTSmFIcVRTa0pSdVFrbE44cTdUbGlITWtxZ1JnWnBVcWtuSmx3V2RTMWp6ZU1IOU13LW9xSzg4bmlmUQ?oc=5) |
 | Victims in deadly shooting at North Carolina waterfront bar identified: "She loved others deeply" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9WX2w3MER1MXMzeXJJUldrRXdtc2JWZXA2djN5VkNxLTJCVmQ5Q0VoOXl1UnM5MlF4R3UxeXQ3R1piVWFzU19ublNTalJxNUx1Q0c0bGtESFVnbC1TSDFwWEZpTVhjd3EzMkdwVFBfaG5ULWV1WFVYOGtpS001QdIBgwFBVV95cUxNbUUzaHZRSkhmOHR4bUd0eklHQTVBQjZUdjQyYkd6UDdoWkduRXlYbmtXWnY3MElzcHpfeDVfTmc0VWxLSVpwNkFESGNrbVZtY19XWUxlYkVEc3p4czhSQnZQWnEzZVNYUy1udHUwNVBvU3JJNGRTQ3JibDdkTmFWUmJpWQ?oc=5) |
 | FBI cuts ties with Anti-Defamation League, FBI director says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNMU9NNUp5V2d4TEswaFRwSVdXN09PY0l0SWtVZWFBOGx0cFZHeUtUWGt4ckZVUUpVU2hTMVRBeU9raDdZOXVZTU1PcDJUWHhZS0NsZmZCYS0wbGJIT0FDenRFUDlXOUUtWE9sREg0SzdrZG9jdk9vSHp2WWFwMVlHT1YxTUxHdXFFbjR2OWFFUQ?oc=5) |
-| NTSB Faults Philadelphia Transit Agency Over Train Fires - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNUnQzSF9rZzJTMDZmbTl0ZXVEbEVLU2h6QUlaV1ZMN1ZDSVJmTHpYQnhRY09WbDlEQk85Y3FsN1IxVkREa2JKb3l2eTBxNEVFOTlGcDRwbVNPMnZ0SEhpUlR4U0wzSER1REVFRkhJM1lsZThzM2FHMnBGQ25KS2VxcFlKbw?oc=5) |
+| Trump Administration Asks Colleges to Sign ‘Compact’ to Get Funding Preference - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBzVlJDQUVoWGp4VTJIVEh5SDlKRmhvZE94ejRaRVNQOUlZeHRCUFAwU3p4M0JzbEtTMGpGVzdHbUZ0emk1dUFrY3YzOXZIcTZ4RlI0SVp4TjEwZDFlcDNueXFJTTZDOHY0am1Sc21hYkJ1V2FfZDdveXQ5QTRVdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
