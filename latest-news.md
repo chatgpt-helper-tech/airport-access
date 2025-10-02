@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 16:25:02（北京时间）**
+🕒 更新时间：**2025年10月02日 16:33:48（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | Relief and new baby for asylum family of child suffocated in Channel crossing | [阅读全文](https://www.bbc.com/news/articles/c8d7l2pvdrro?at_medium=RSS&at_campaign=rss) |
 | Tories pledge to scrap landmark climate legislation | [阅读全文](https://www.bbc.com/news/articles/czrp2k3m3deo?at_medium=RSS&at_campaign=rss) |
 | Why BBC sent undercover reporter into a busy London police station | [阅读全文](https://www.bbc.com/news/articles/cvgn0rjyn2jo?at_medium=RSS&at_campaign=rss) |
-| Watch: Met Police chief says Panorama's findings are 'horrific' | [阅读全文](https://www.bbc.com/news/videos/c20e238mgkeo?at_medium=RSS&at_campaign=rss) |
+| In full: Met chief's letter to home secretary | [阅读全文](https://www.bbc.com/news/articles/cz9j283j9pko?at_medium=RSS&at_campaign=rss) |
 | Watch on iPlayer: Undercover in the Police | [阅读全文](https://www.bbc.co.uk/iplayer/episode/m002k7k6?at_medium=RSS&at_campaign=rss) |
 | Watch: Campaigner Mina Smallman says report highlights problems with vetting | [阅读全文](https://www.bbc.com/news/videos/c147267xlvgo?at_medium=RSS&at_campaign=rss) |
 
