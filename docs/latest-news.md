@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 15:49:02（北京时间）**
+🕒 更新时间：**2025年10月02日 15:56:03（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Pentagon plans widespread random polygraphs, NDAs to stanch leaks - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNcHdRczhvWW0tR2FmN0lvdVFFYTEtTktvNE82ZFVLZ3RidGhkbkc4TU9zQ2lyV0hRXzJJNHJuN3h4NDltRTJJRExVVlFmdVVacjd1ajUyUVFBbTF6TDMtRGlTQ0NLdVNxMUFPa3A3SDVQN0Y4X1FpTnYxRzZ2ZzFlb1FpS3F6VTlMVGpuNDRUT2xubGRIdXZaZEptWDBQQlk?oc=5) |
 | How John Thune sees the shutdown ending - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNRUNDajhpQmZTcmVmVWlEZktKMVFhYkNxUks0Sy02UXh4Mm42dk5MdklpMmRnLTliS19odXdIcWhXeFZtaWJHTzA2NHFTSmFIcVRTa0pSdVFrbE44cTdUbGlITWtxZ1JnWnBVcWtuSmx3V2RTMWp6ZU1IOU13LW9xSzg4bmlmUQ?oc=5) |
 | FBI cuts ties with Anti-Defamation League amid conservative backlash - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQT2dBN2MyNVRQVjBtX2JSS3B6T01FbERmUmF4cGprMjRidC15WktXRXR5X1pwaUg3c3hidW1Zblp2X3VvSEgtNk54U0JvejFwZDlmS0xYQWNXTXNzVXVkc1VTdU9HTWdSMUE0TFgycVBaaW5GT015bzY5UWVJRFBvNXVMbjMwSy1nU1V4SDk2Z1djMFNnZkxlUFVkQ25JU3FxUklHQkpXYmpWN1Z3OHfSAbMBQVVfeXFMUEFjSEY3MF91WkdyeURJaWpuTnQwWEF1cWY1aEFXOXNPdmZLU1FXaFljb2luM2JSUnhjTEZfdGJON2RpM0pZYXduX094X2ZfTkN0WDNnUXl0cUV4VGRrVGdjUU1pWkdIT09FYmw1RXpBT05SbDlGOVoxOC1WM0U3SEdwNVlxT0Rldk1TUndyRHlTTDFhOHRLUHlDcTlUMlUycUZILWczMUdmMkcyZkNMQ1lmMnM?oc=5) |
-| NTSB Faults Philadelphia Transit Agency Over Train Fires - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNUnQzSF9rZzJTMDZmbTl0ZXVEbEVLU2h6QUlaV1ZMN1ZDSVJmTHpYQnhRY09WbDlEQk85Y3FsN1IxVkREa2JKb3l2eTBxNEVFOTlGcDRwbVNPMnZ0SEhpUlR4U0wzSER1REVFRkhJM1lsZThzM2FHMnBGQ25KS2VxcFlKbw?oc=5) |
-| Exclusive ｜ White House Asks Colleges to Sign Sweeping Agreement to Get Funding Advantage - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNMHNYX0ItazR6U1Brb0wycmFRcHFFU2llSkRNZm5SRFhfTlZfQUlYMFV2a3pjSWtlYm4yelJ1MjVGT0Q4cFkwaHpqbUUwX2dqT3RoOWtOeWdxQ29rMEFkNVJ3Y3o4QTJrSkdySE93VnBIeVUtN3VndF8xNHlQN3dpYUtCSm42ZFFsN2hwQzl5V2ZzYU44dk5SZExCXzFQQQ?oc=5) |
+| Trump Administration Asks Colleges to Sign ‘Compact’ to Get Funding Preference - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBzVlJDQUVoWGp4VTJIVEh5SDlKRmhvZE94ejRaRVNQOUlZeHRCUFAwU3p4M0JzbEtTMGpGVzdHbUZ0emk1dUFrY3YzOXZIcTZ4RlI0SVp4TjEwZDFlcDNueXFJTTZDOHY0am1Sc21hYkJ1V2FfZDdveXQ5QTRVdw?oc=5) |
+| Bermuda braces for a pounding from strengthening Hurricane Imelda - Yale Climate Connections | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNaUExbE96QXNreTcwbGlQSk51NWJtWjN6dWRJVkVqLUFqYlhaaFVOd0NXTGNsYjVCNHk5alpZbHpiWXpHM1lJUG1zelRRSjI2TVlWaHNETGloWFV2b2FDVk52VFRBaHkwcVlGQnN0VTV2QVc0LWt2RVBVS2NXNV9vaE42M3lCMU1fdW1HTENpMFhKMHFIUjlmTWNGMGRyTDlvNHZiOEdsM1R4eXF1N0E?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
