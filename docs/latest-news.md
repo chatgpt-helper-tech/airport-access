@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 11:09:53（北京时间）**
+🕒 更新时间：**2025年10月02日 11:17:31（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | Unmasked: Secret BBC filming exposes hidden culture of misogyny and racism inside Met Police | [阅读全文](https://www.bbc.com/news/articles/cvgq06d44jyo?at_medium=RSS&at_campaign=rss) |
 | Why BBC sent undercover reporter into a busy London police station | [阅读全文](https://www.bbc.com/news/articles/cvgn0rjyn2jo?at_medium=RSS&at_campaign=rss) |
 | Khan ‘appalled’ by Met officers’ behaviour as Mahmood calls footage ‘sickening’ | [阅读全文](https://www.bbc.com/news/articles/c1mx28gyl29o?at_medium=RSS&at_campaign=rss) |
-| Conservationist Dame Jane Goodall dies aged 91 | [阅读全文](https://www.bbc.com/news/articles/czrp24myrl7o?at_medium=RSS&at_campaign=rss) |
+| Dame Jane Goodall remembered as 'true hero for the planet' | [阅读全文](https://www.bbc.com/news/articles/czrp24myrl7o?at_medium=RSS&at_campaign=rss) |
 | Israeli naval ships intercept Gaza-bound flotilla | [阅读全文](https://www.bbc.com/news/articles/c0lk292jww4o?at_medium=RSS&at_campaign=rss) |
 | Should I use olive oil for frying? How to choose the right cooking oil | [阅读全文](https://www.bbc.com/news/articles/cj3y7j2dz44o?at_medium=RSS&at_campaign=rss) |
 | Refugees to face longer route to UK settlement rights | [阅读全文](https://www.bbc.com/news/articles/cddmpr21yr2o?at_medium=RSS&at_campaign=rss) |
