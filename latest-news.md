@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 12:24:39（北京时间）**
+🕒 更新时间：**2025年10月02日 12:33:05（北京时间）**
 
 ---
 
@@ -12,11 +12,11 @@
 | Why BBC sent undercover reporter into a busy London police station | [阅读全文](https://www.bbc.com/news/articles/cvgn0rjyn2jo?at_medium=RSS&at_campaign=rss) |
 | Khan ‘appalled’ by Met officers’ behaviour as Mahmood calls footage ‘sickening’ | [阅读全文](https://www.bbc.com/news/articles/c1mx28gyl29o?at_medium=RSS&at_campaign=rss) |
 | Dame Jane Goodall remembered as a 'true hero for the planet' | [阅读全文](https://www.bbc.com/news/articles/czrp24myrl7o?at_medium=RSS&at_campaign=rss) |
-| Israeli naval ships intercept Gaza-bound flotilla | [阅读全文](https://www.bbc.com/news/articles/c0lk292jww4o?at_medium=RSS&at_campaign=rss) |
-| Should I use olive oil for frying? How to choose the right cooking oil | [阅读全文](https://www.bbc.com/news/articles/cj3y7j2dz44o?at_medium=RSS&at_campaign=rss) |
 | White House says layoffs 'imminent' with no end to shutdown in sight | [阅读全文](https://www.bbc.com/news/articles/c8xrwdny8p1o?at_medium=RSS&at_campaign=rss) |
+| Should I use olive oil for frying? How to choose the right cooking oil | [阅读全文](https://www.bbc.com/news/articles/cj3y7j2dz44o?at_medium=RSS&at_campaign=rss) |
 | Refugees to face longer route to UK settlement rights | [阅读全文](https://www.bbc.com/news/articles/cddmpr21yr2o?at_medium=RSS&at_campaign=rss) |
 | Hackers delete children's pictures and data after nursery attack backlash | [阅读全文](https://www.bbc.com/news/articles/c8rv83mrlyyo?at_medium=RSS&at_campaign=rss) |
+| Israeli naval ships intercept Gaza-bound flotilla | [阅读全文](https://www.bbc.com/news/articles/c0lk292jww4o?at_medium=RSS&at_campaign=rss) |
 | Musk becomes world's first half-trillionaire | [阅读全文](https://www.bbc.com/news/articles/c89d3547npjo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Government shutdown leaves federal workers ‘on edge’ as Trump eyes more job cuts - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNSXJ2OVZRX1B6MldsVWYxMnFTNVRkeVpWbGM1MlF1YldfTTZXLTJ1RmI0Z3VUS0VaM2FQUUJWdXVDX0hFNVdDV3hHRkJwLUJ3UGFza0IxMkVJTXN0cEpRYnhzN1FKNGljUXRvSUZ5LTVmNUFZeFB3LVdRc2VFY1dqclE3TmFzZDlXU1NkSFBycFhBQ00?oc=5) |
-| Trump to Withhold $18 Billion for New York-Area Transit Projects - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPUmhLcXd5b1NyYUlkRG82OVFPbzZzVTU3dFhsc0paZVJwRFRvWmlFeVRvbFpKNDNwUmYwbmJBdXprY0F0cGtSY1IzRUlTeFgtOE5PU0trRDVqbndSa1dpbGVwVkJ4RU5oZl9xN0hXdjVWTFU4SlN3VXhkWmhFV2RKNDgtc1BwWE1zREo3R3lzaTlUX2Jfb0I4Vmh2Nnk?oc=5) |
 | Israeli naval ships intercept Gaza-bound flotilla - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9aNXNNQ09yVm5ublZ1WXRwVU1rM1ZKc3NFMTUzQkxQTERXVlpOUXVFRlNVSjNGTTJNYzFvNzJRdzN0NTBXOVJjTlFYVGNzamFJckl5SjJjcHRJQdIBX0FVX3lxTE9KSXZrcXlzODhGYld0WGhHR3VfcWVlZXdrbXJUNVp5dmw1eUhIUXdOMmpUUDlFel9iUGgzMHRuNmFUQ2xLWVRDbkRHb3pHcUxXMEVwbTd1SGZxcFVMRmdr?oc=5) |
+| Trump to Withhold $18 Billion for New York-Area Transit Projects - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPUmhLcXd5b1NyYUlkRG82OVFPbzZzVTU3dFhsc0paZVJwRFRvWmlFeVRvbFpKNDNwUmYwbmJBdXprY0F0cGtSY1IzRUlTeFgtOE5PU0trRDVqbndSa1dpbGVwVkJ4RU5oZl9xN0hXdjVWTFU4SlN3VXhkWmhFV2RKNDgtc1BwWE1zREo3R3lzaTlUX2Jfb0I4Vmh2Nnk?oc=5) |
 | Conservationist Jane Goodall Dead at 91 While on U.S. Speaking Tour: Latest Updates - Newsweek | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOQVBabkswdzdGN2NJWFpRTWtGdDRHaFdjWmhXMzFyV0RITlRrOWg0XzZBR1VoeDV1a2tqYmM5Q0YyWHZQakk2Z3RnRWlLb3ltek40eGg5bVExQjJrNnFiQS1ETm5hbGhrekItZTYtcVdMNnFpS1E0NXJXT1lfRktWUThLaktEWFlRWWhTRDEwLWNWVllrRUoxREcxRzkyeXZUSk1XVDlEdw?oc=5) |
 | Sen. Cortez Masto explains why she broke ranks with democrats on shutdown vote - NPR | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxPX1lGS2JvcUloTXp2R1lfZENBcEtWaldLQkhfWDRGZTdrVmZLOEdXNFdZM3VIVDQ2blAwNmFWY3JEaTI4TXJucFY0ZWtZRUF5S1MxaEdyZlVHT0poN19teXVKRWc1QUJnUWFXMkI3ekp4NHp6LVBmUi1FOWhHV0poYS1HN3VoR09SOGtkbE9GVGNsTzJqU0xMQmI4QU1TVTBuV0lsME9nYW5mUHdNODlyMUlrUUVydXQyN1U3NUJMMA?oc=5) |
 | Pentagon plans widespread random polygraphs, NDAs to stanch leaks - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNcHdRczhvWW0tR2FmN0lvdVFFYTEtTktvNE82ZFVLZ3RidGhkbkc4TU9zQ2lyV0hRXzJJNHJuN3h4NDltRTJJRExVVlFmdVVacjd1ajUyUVFBbTF6TDMtRGlTQ0NLdVNxMUFPa3A3SDVQN0Y4X1FpTnYxRzZ2ZzFlb1FpS3F6VTlMVGpuNDRUT2xubGRIdXZaZEptWDBQQlk?oc=5) |
