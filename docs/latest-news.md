@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 17:33:23（北京时间）**
+🕒 更新时间：**2025年10月02日 17:41:05（北京时间）**
 
 ---
 
@@ -23,12 +23,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Government shutdown leaves federal workers ‘on edge’ as Trump eyes more job cuts - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNSXJ2OVZRX1B6MldsVWYxMnFTNVRkeVpWbGM1MlF1YldfTTZXLTJ1RmI0Z3VUS0VaM2FQUUJWdXVDX0hFNVdDV3hHRkJwLUJ3UGFza0IxMkVJTXN0cEpRYnhzN1FKNGljUXRvSUZ5LTVmNUFZeFB3LVdRc2VFY1dqclE3TmFzZDlXU1NkSFBycFhBQ00?oc=5) |
+| Trump uses government shutdown to dole out firings and political punishment - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOUWlhT3puVDhSV0pyM29jcnh1VFdfS0tNVXRsV0Y0VndXRFRfWGRoLU9CdnI4dUpGSkFMSEV0cC1mbW84MGJlVUhmZHVOSE9SR19fWWVZWW5aamZ1N05HZXZwc29iekZrcWJRQ0N2bmZNQ08yclROREQzekRaeTJjalBnMzdCdlczYzhrRU1CYUlPbmRJa09zcWpPaTJha20tMWFOUmNkcjJxeHR4?oc=5) |
 | Global Sumud Flotilla: Greta Thunberg and other activists detained as Israeli military intercepts Gaza-bound aid ships - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNLUFUblQ0M3B3clZnZ2lwRENDUTY2OFdMOWpkZGtLSmNKSzMxT3dQWkRjOG11Vk9lZEFXallQZ1lYMEJKQzNudnpiOElIRENDVFVjMUtJSDVZV0dmVGdGREViSnRPTk9CVjhrc05JT2pzZzhIQnMzZWFQME1NV0dGNFdOenFqbU9ENXc?oc=5) |
 | Frozen federal funds for Hudson Tunnel project hit New Jersey's race for governor - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNd01abkoxQVZNX05Rak5WMUlYTm85WTlVc2NXb0pIQmZvQTFLZkV6bGR2YlJzcEk1cERtWEJwcnlRQW5UaU5CeldTWm84ZVk4bWFXOU1qa3VxcE1UaGNKODNrTG84b2R1Rm9tb0V6UFlQWi1CV0RUb2F2ODYzeDJjOF9tUDJ6WWp2MEctNXNEX0xtV3FTdElBa3d5aWxncDRGdXRfUTh6VEZUZU1pNjlaZtIBVkFVX3lxTE1VZFlkUUNjVU9OcEM5OUw1dTFqbWxGZHBCYlJzeXVqZHZvdlBDSHAtSGd2eXQ5Y0F2blJFRzdmaWxmLU1KbmVJdEVPTmVFazk1aTZwdnBn?oc=5) |
+| White House plays racist deepfake video of Democratic leaders on loop - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPS25SUXlDaGt2bWx5TWFHV1FFOVVWTlFDTE5NUXpfbmRScUZJOVVEWm13eTJYem9GNHNsRG5QRTFwMUc3bFYzNGk0d19tVUM0Tzd3UE1oRFRxR2E4ZEo0WHg3aENnd1J4WUIzQVZWMDhoRlZwMUVaaFNxUTJtOUhJQUhEUnRXRENyLVg2NjF1eG9UYkg3R3Bn?oc=5) |
 | Female vets fire back at Hegseth over claims of lowered military standards - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPc3g5ZlI4cU53VEJJcld2aTRxSDJvWkE5TXJGTHRRRUo3cVZmYWhvYUdSYm5qVURXR0RweEdueTZUWXVkMkdISzFwV0hqUDc5X3BJWnlpQlY0UWJsVVRSUmNGMlpjVzlRVV81WDUtTDBOamxwN2toVS1YV1B3YTE2Ng?oc=5) |
-| ‘There Will Always Only Be One Jane Goodall’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPdUt1Nmg2Tm9QUWtqd2dyaEM0OWlJZ2VtV2hJNGdodVJVc09lYllpZmFHM2FxUVdpeEhPX19qWFZvQnN4MU8ydDdwTi1IY1k4bWNZc3YwcTBweTdiWUZQOEVUdnUtaGtJLXMySHNESWFhdWlQdXNvR0dWVzBBV2VWOE5VTk9zdw?oc=5) |
-| US to give Ukraine intelligence on long-range energy targets in Russia - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQWE5haC1TRW9FTzVGZWJ0MGFFSHFwRmpQUnpIU3FKM2Zkdzg0dWJrOHljRU5FeGN0OExBem9QQUJndE9SWjQ5dlFqTWpabzVjTXhadHpvSk9rbG0xeUhfUGROc05SbVNiRVhkTG9vTHNKeHQtMHZDTi1LUkFnSmZxZldCNkFrWnBZRThFaXpGX1BPT0VGUUVZdDE4Rll4TWthQ19vanJjcnZWQ2MzMldMbWFIYjJWQVRiUVRKQWdZYkFfZw?oc=5) |
+| Jane Goodall: A Life in Pictures - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE9KaVk2UG1CT0tDZ0FST2ExelVhWVZGdnJENkZZWDZnU1hMQk5jaTJBeE1WV0JaUXBLT3kyaWcwY3ZKR21UQUEtZGFVUWZWTm11SFc3eHRxcXhwbmdUbUQ0SkYwTEwzMkdPMVcyNkt4RWRka0hOQlE?oc=5) |
 | How John Thune sees the shutdown ending - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNRUNDajhpQmZTcmVmVWlEZktKMVFhYkNxUks0Sy02UXh4Mm42dk5MdklpMmRnLTliS19odXdIcWhXeFZtaWJHTzA2NHFTSmFIcVRTa0pSdVFrbE44cTdUbGlITWtxZ1JnWnBVcWtuSmx3V2RTMWp6ZU1IOU13LW9xSzg4bmlmUQ?oc=5) |
 | FBI cuts ties with Anti-Defamation League amid conservative backlash - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQT2dBN2MyNVRQVjBtX2JSS3B6T01FbERmUmF4cGprMjRidC15WktXRXR5X1pwaUg3c3hidW1Zblp2X3VvSEgtNk54U0JvejFwZDlmS0xYQWNXTXNzVXVkc1VTdU9HTWdSMUE0TFgycVBaaW5GT015bzY5UWVJRFBvNXVMbjMwSy1nU1V4SDk2Z1djMFNnZkxlUFVkQ25JU3FxUklHQkpXYmpWN1Z3OHfSAbMBQVVfeXFMUEFjSEY3MF91WkdyeURJaWpuTnQwWEF1cWY1aEFXOXNPdmZLU1FXaFljb2luM2JSUnhjTEZfdGJON2RpM0pZYXduX094X2ZfTkN0WDNnUXl0cUV4VGRrVGdjUU1pWkdIT09FYmw1RXpBT05SbDlGOVoxOC1WM0U3SEdwNVlxT0Rldk1TUndyRHlTTDFhOHRLUHlDcTlUMlUycUZILWczMUdmMkcyZkNMQ1lmMnM?oc=5) |
 | Trump Administration Asks Colleges to Sign ‘Compact’ to Get Funding Preference - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBzVlJDQUVoWGp4VTJIVEh5SDlKRmhvZE94ejRaRVNQOUlZeHRCUFAwU3p4M0JzbEtTMGpGVzdHbUZ0emk1dUFrY3YzOXZIcTZ4RlI0SVp4TjEwZDFlcDNueXFJTTZDOHY0am1Sc21hYkJ1V2FfZDdveXQ5QTRVdw?oc=5) |
