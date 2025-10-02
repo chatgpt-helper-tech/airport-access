@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 20:17:47（北京时间）**
+🕒 更新时间：**2025年10月02日 20:25:08（北京时间）**
 
 ---
 
@@ -9,12 +9,12 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | What we know so far | [阅读全文](https://www.bbc.com/news/articles/cd63p1djgd7o?at_medium=RSS&at_campaign=rss) |
-| Watch: 'Get back, get back' - armed police at the scene | [阅读全文](https://www.bbc.com/news/videos/cy7p27v3je0o?at_medium=RSS&at_campaign=rss) |
-| 'The man was just running out with a knife' - eyewitnesses describe what they saw | [阅读全文](https://www.bbc.com/news/articles/cn0rp05ykx7o?at_medium=RSS&at_campaign=rss) |
+| Watch: 'Get back, he's got a bomb' - armed police at the scene | [阅读全文](https://www.bbc.com/news/videos/cy7p27v3je0o?at_medium=RSS&at_campaign=rss) |
+| 'The man was just running out with a knife' - eyewitnesses describe how attack unfolded | [阅读全文](https://www.bbc.com/news/articles/cn0rp05ykx7o?at_medium=RSS&at_campaign=rss) |
 | Unmasked: Secret BBC filming exposes hidden culture of misogyny and racism inside Met Police | [阅读全文](https://www.bbc.com/news/articles/cvgq06d44jyo?at_medium=RSS&at_campaign=rss) |
 | Hamas military leader in Gaza objects to ceasefire plan, BBC understands | [阅读全文](https://www.bbc.com/news/articles/c708v2q5r09o?at_medium=RSS&at_campaign=rss) |
 | Heart surgeon whose failures contributed to several deaths continues to work for NHS | [阅读全文](https://www.bbc.com/news/articles/ce3yz4q9p4po?at_medium=RSS&at_campaign=rss) |
-| Hackers say they have deleted children's pictures and data after nursery attack backlash | [阅读全文](https://www.bbc.com/news/articles/c8rv83mrlyyo?at_medium=RSS&at_campaign=rss) |
+| Watch: Inside the lab analysing the world's oldest ice | [阅读全文](https://www.bbc.com/news/videos/cgl1pl8699ko?at_medium=RSS&at_campaign=rss) |
 | Relief and new baby for asylum family of child suffocated in Channel crossing | [阅读全文](https://www.bbc.com/news/articles/c8d7l2pvdrro?at_medium=RSS&at_campaign=rss) |
 | Why BBC sent undercover reporter into a busy London police station | [阅读全文](https://www.bbc.com/news/articles/cvgn0rjyn2jo?at_medium=RSS&at_campaign=rss) |
 | Watch on iPlayer: Undercover in the Police | [阅读全文](https://www.bbc.co.uk/iplayer/episode/m002k7k6?at_medium=RSS&at_campaign=rss) |
@@ -29,10 +29,10 @@
 | Frozen federal funds for Hudson Tunnel project hit New Jersey's race for governor - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNd01abkoxQVZNX05Rak5WMUlYTm85WTlVc2NXb0pIQmZvQTFLZkV6bGR2YlJzcEk1cERtWEJwcnlRQW5UaU5CeldTWm84ZVk4bWFXOU1qa3VxcE1UaGNKODNrTG84b2R1Rm9tb0V6UFlQWi1CV0RUb2F2ODYzeDJjOF9tUDJ6WWp2MEctNXNEX0xtV3FTdElBa3d5aWxncDRGdXRfUTh6VEZUZU1pNjlaZtIBVkFVX3lxTE1VZFlkUUNjVU9OcEM5OUw1dTFqbWxGZHBCYlJzeXVqZHZvdlBDSHAtSGd2eXQ5Y0F2blJFRzdmaWxmLU1KbmVJdEVPTmVFazk1aTZwdnBn?oc=5) |
 | Trump Administration Asks Colleges to Sign ‘Compact’ to Get Funding Preference - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBzVlJDQUVoWGp4VTJIVEh5SDlKRmhvZE94ejRaRVNQOUlZeHRCUFAwU3p4M0JzbEtTMGpGVzdHbUZ0emk1dUFrY3YzOXZIcTZ4RlI0SVp4TjEwZDFlcDNueXFJTTZDOHY0am1Sc21hYkJ1V2FfZDdveXQ5QTRVdw?oc=5) |
 | Air traffic controllers helped end the last government shutdown, and may again - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNRmkzeTRpRmctUVNraER4R0dMeHFIQmdMc2VhYUhPU2FSSk9NMnVSTWNIbWRSUEVmcFRwQ2pxOVlOTy1EU2l2d1VSMEdGaEhvN3ZzbHdfVW9rMTNUYjY4VlY0RUo4NlBWWXlsaFI5V2tGU2NZa0pHUjJUTmp0Y0xSUWxhdzB2Wnd4cDFJZGZVWlFfQ1F2UHNHUFJXRQ?oc=5) |
-| After Michigan Church Shooting, One Man Raised $200,000 for the Suspect’s Family - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOQXpLSEQ1YVljdkl0YTQ5eElJa2dKSm84UVdGT0t5SWdvRjRrT3JMODVEWXpIMVFYZEl6WkF5SXpLRElFVnZQNzk0cDJvRFVjWHNlMnBiWGd3VFFlMFdiWm1rbmdEUWgyLWNYSWNuR3ptSnQwT0pKMlZMV29OajF3YWZ1SlNsLWF6V09v?oc=5) |
 | Hakeem Jeffries is seizing on the shutdown fight to raise his national profile - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQYl9naklHS2ItRFZvRkdTcm9HclFWemowRkFaX29hM0V0c3VZTDhaUmQwYTNTTDFfaGpvQmluazBQVURldEtZVTQ3QUI1MUdxOWM1QW9zUmJIbGFaQmIxWkIyM1JMZDhvU0NVR2M5UVJiUkV5U2lDT3J4LVZyY1VNdHZveWlEaVk?oc=5) |
+| Drones, Helicopters, Hundreds of Arrests: Trump’s Immigration Crackdown in Chicago So Far - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPR1VvWmlQZEVDUEkwTDJkeVh3d2dEV2hsbTdaWEZrLWdBcUpKOFBVWGpBcklubkIwUG90aVpIRG52VU0ybDQ0dzFiNmhTeVdoUzF2YWhzXzZoNHBGcW5HTDV3ZjRrRS1PeXR6ckhwQWY1Y2RxU1RSVi1vZmtTVVp6bjJqZkQ2bmpQZjBJ?oc=5) |
 | The facts behind the government shutdown debate over health care and immigrants in the U.S. illegally - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxPWHgxUk9SVG02aExXTEUzZ0EwU0hJb1E4TU5QX0Zwalp2RGhYM1ZmWlQzQ3ZIOFl0MlFvM1NNVXhlczhpMjVYbzZfaG13akNPUkNTckdSUk55eDVXVWpKZk44MFhMak1GSEU3MU51UTdPMElrQ1pUeExCSE8tcFJuVWVMZUYwNnduQnN3QXhZaTV5bkhTWUhBZ0RpN1ZXY2hHMkVxLWtaUHdRZDNrUE5OR1U0SlRwWHotdU5DeEJJNkRGT1M50gHKAUFVX3lxTE0wMzRrNjhscDFISUlyY3RLdkNmamJERFd0NmNHMHNNXzl4N2lpTG9jbDZzV0dUUkJQNWJuYmt3Y0NBdTJmMzRRd0JBVGZsTlRSSlZ5bFVYZHB5VnI3QW8yUkhnNXdKRnhyaExHZXY5ZFBwczdJNXBSTWFjQ2VEX3N5WDEtam9BVzNaOEdnYmlKUURXNmg2MGZJR04xNWZpNHFkdWlVUUNhU2hHYU9XMDVxcG5QLUpyS29wZlprNFVzX2RLZFFrWGxUN1E?oc=5) |
-| How John Thune sees the shutdown ending - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNRUNDajhpQmZTcmVmVWlEZktKMVFhYkNxUks0Sy02UXh4Mm42dk5MdklpMmRnLTliS19odXdIcWhXeFZtaWJHTzA2NHFTSmFIcVRTa0pSdVFrbE44cTdUbGlITWtxZ1JnWnBVcWtuSmx3V2RTMWp6ZU1IOU13LW9xSzg4bmlmUQ?oc=5) |
+| Mormons raise $200,000 for family of gunman who attacked their church - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPbmpxcHdhenVUbDdWX3FuMlFQUXplY3poZmxtNk1PQjhTelowX2hQUElMLUs5a3pLNURnX1VnU2FrVFJfeWd1RHUyY1p1dGEzZi10LU5nS05rWElDVEtPeThoNGQ2d0lPOUVDNEJ1QzJiQzh4MTYtNUI4T2F3WjBjTTV3bUExZzdTSEY5bXFLS1FzWloxdlQyOTZ1amhCY0k?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
