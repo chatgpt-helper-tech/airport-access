@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 21:41:33（北京时间）**
+🕒 更新时间：**2025年10月02日 21:49:34（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Hamas military leader in Gaza objects to ceasefire plan, BBC understands | [阅读全文](https://www.bbc.com/news/articles/c708v2q5r09o?at_medium=RSS&at_campaign=rss) |
 | Heart surgeon whose failures contributed to several deaths continues to work for NHS | [阅读全文](https://www.bbc.com/news/articles/ce3yz4q9p4po?at_medium=RSS&at_campaign=rss) |
 | Watch: Inside the lab analysing the world's oldest ice | [阅读全文](https://www.bbc.com/news/videos/cgl1pl8699ko?at_medium=RSS&at_campaign=rss) |
-| Relief and new baby for asylum family of child suffocated in Channel crossing | [阅读全文](https://www.bbc.com/news/articles/c8d7l2pvdrro?at_medium=RSS&at_campaign=rss) |
+| Why BBC sent undercover reporter into a busy London police station | [阅读全文](https://www.bbc.com/news/articles/cvgn0rjyn2jo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Government shutdown leaves federal workers ‘on edge’ as Trump eyes more job cuts - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNSXJ2OVZRX1B6MldsVWYxMnFTNVRkeVpWbGM1MlF1YldfTTZXLTJ1RmI0Z3VUS0VaM2FQUUJWdXVDX0hFNVdDV3hHRkJwLUJ3UGFza0IxMkVJTXN0cEpRYnhzN1FKNGljUXRvSUZ5LTVmNUFZeFB3LVdRc2VFY1dqclE3TmFzZDlXU1NkSFBycFhBQ00?oc=5) |
 | Two dead in UK synagogue attack on Yom Kippur, suspect 'with bomb' shot by police - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNZjZ1XzZnS3JBUHNsOFZfdVV3MHYyRlpNWjRBMlFOWXVFRk1vOFZnNEM1N2tyYmpselhYcDNieXU1Z1EtRHlPSkNMSGFWbFUxdzdBY2tMWkVDZUw4b1liQWJ4endsUjViOHlqZmVMLXRGclZnT2ZaUVpXaExzVXFpeHBfXzg2Q3VFSWQ5TW1OUzNwNVE3Q1dmNU12b2c2QnVkdnc?oc=5) |
-| US government shutdown continues, as Trump cuts funds for Democratic states - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQaGo2c2Zla3FvQ2hEMTF6NTVxa2ZfT0pRNlUySmFkQmxzeUNOWlJ1SXUydHZVM1l4UnhPc0xUcmNuS1pnZmtSLVRyX3ZsUnQzRlhNSXViZ20zZmZ3UTVwODhEQW9UM2RnWFJWRV9YbE1KZ0wtTFdmanZwOWk4Znp2QlFLcXBNcjNndmZyQ1ZCMEV6aFEzTjI0cGdPLXNjdzJsSVJMWXNwUE9KamkwYllVYUNlUmJqd9IBuwFBVV95cUxPTVJhdldjamJGZlFSTC1uaHZNbFN6bXY4VzdSYnlPa1RYWUVXVzNnU3VGdGhTYm9tN2tQaGhnVFFwMEduSVdiN3NjdDhYM0tIZVJNNExjajRyb1k0OUN4R1RObU5LakxqRWhBcDBabmVtNEMxSW5uM1IxdGZkaDVXQ2VlOS04aExzRS1ndGFUQzFoeXJaOTBSR2lhVUFuYUhSVkE2UGlZV1hySmh4eklQNEJNck9Kdm5BZDVZ?oc=5) |
 | ‘Dangerous Cities,’ the Military, Trump and the Founding Fathers - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPQWRUOWVaRjB5U0lqTUJyVE15QXNlNmFXRHJsOWZTZnJuSjVZajdZU1JUelNxUlp5ZXdSdXhLZDJFSTFtS0xxQjJEQnFwTnJPcndqb0huRk1GLUdMT2NiaExHVUgwTDZqNnFWVzhGMFRCUW9OTVQwWXBwWHpQMjdPcjZudHNBbDBJZDhz?oc=5) |
+| Frozen federal funds for Hudson Tunnel project hit New Jersey's race for governor - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNd01abkoxQVZNX05Rak5WMUlYTm85WTlVc2NXb0pIQmZvQTFLZkV6bGR2YlJzcEk1cERtWEJwcnlRQW5UaU5CeldTWm84ZVk4bWFXOU1qa3VxcE1UaGNKODNrTG84b2R1Rm9tb0V6UFlQWi1CV0RUb2F2ODYzeDJjOF9tUDJ6WWp2MEctNXNEX0xtV3FTdElBa3d5aWxncDRGdXRfUTh6VEZUZU1pNjlaZtIBVkFVX3lxTE1VZFlkUUNjVU9OcEM5OUw1dTFqbWxGZHBCYlJzeXVqZHZvdlBDSHAtSGd2eXQ5Y0F2blJFRzdmaWxmLU1KbmVJdEVPTmVFazk1aTZwdnBn?oc=5) |
 | Air traffic controllers helped end the last government shutdown, and may again - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNRmkzeTRpRmctUVNraER4R0dMeHFIQmdMc2VhYUhPU2FSSk9NMnVSTWNIbWRSUEVmcFRwQ2pxOVlOTy1EU2l2d1VSMEdGaEhvN3ZzbHdfVW9rMTNUYjY4VlY0RUo4NlBWWXlsaFI5V2tGU2NZa0pHUjJUTmp0Y0xSUWxhdzB2Wnd4cDFJZGZVWlFfQ1F2UHNHUFJXRQ?oc=5) |
 | Israel intercepts Gaza flotilla, detains Thunberg and others, says ‘she and her friends are safe’ - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOZWl5XzZpM1pfWlVVSGs3VXNSbzdtZFhuRWR0bWxaVGdUZF8xeWYtQk1Ibmxla2NVXzg4QTFtdmdGZGJmaFR1UXc4SFRKVWNodmlSV0ZMVmNDU1daUmxfaTNkY0VCckZNbnVXX283aDdWRGk5c194azF5bmcxUXAxTWRUbjhRUFd0WVpwbjdaXzN3ZjN0YXRGbFAzTmd4Njl1bVRKNDAzclpxdlBuUFpBSjVXNGpveWVaMHhDWkp30gHDAUFVX3lxTE9KVXV2UDJwVGZLc1l4MFFiNDM1T3NCSmdzOWZLOTNrMHQyVm1vejBTYUhLcUtFWFBUQUJ2dnBTaVhINjNQakdaY08weG5zZlpsWmV3SkxZQzI5M1pqV2lsSFZyTTBKb3J1cl9vcHJFeU84TDNIRjZ4XzBDbjdQTEVEdExyMXZPWG9RQ3lyNFM0S1o5WUF6djlFOVcxYS1qZ1RRMk9mYzVsQjNaRVNNalA2UDdwNnNsaHBPc20wTXpRbkQ2MA?oc=5) |
 | ‘A lot of fight’: Hakeem Jeffries is determined to make a mark on the shutdown standoff - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQYl9naklHS2ItRFZvRkdTcm9HclFWemowRkFaX29hM0V0c3VZTDhaUmQwYTNTTDFfaGpvQmluazBQVURldEtZVTQ3QUI1MUdxOWM1QW9zUmJIbGFaQmIxWkIyM1JMZDhvU0NVR2M5UVJiUkV5U2lDT3J4LVZyY1VNdHZveWlEaVk?oc=5) |
