@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 15:32:49（北京时间）**
+🕒 更新时间：**2025年10月02日 15:40:38（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | Relief and new baby for asylum family of child suffocated in Channel crossing | [阅读全文](https://www.bbc.com/news/articles/c8d7l2pvdrro?at_medium=RSS&at_campaign=rss) |
 | Tories pledge to scrap landmark climate legislation | [阅读全文](https://www.bbc.com/news/articles/czrp2k3m3deo?at_medium=RSS&at_campaign=rss) |
 | Should I use olive oil for frying? How to choose the right cooking oil | [阅读全文](https://www.bbc.com/news/articles/cj3y7j2dz44o?at_medium=RSS&at_campaign=rss) |
-| Dame Jane Goodall remembered as a 'true hero for the planet' | [阅读全文](https://www.bbc.com/news/articles/czrp24myrl7o?at_medium=RSS&at_campaign=rss) |
+| 'African tribe' evicted from Jedburgh camp | [阅读全文](https://www.bbc.com/news/articles/cj3yp4rvp18o?at_medium=RSS&at_campaign=rss) |
 | White House says layoffs 'imminent' with no end to shutdown in sight | [阅读全文](https://www.bbc.com/news/articles/c8xrwdny8p1o?at_medium=RSS&at_campaign=rss) |
 | Why BBC sent undercover reporter into a busy London police station | [阅读全文](https://www.bbc.com/news/articles/cvgn0rjyn2jo?at_medium=RSS&at_campaign=rss) |
 
@@ -24,11 +24,11 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Government shutdown leaves federal workers ‘on edge’ as Trump eyes more job cuts - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNSXJ2OVZRX1B6MldsVWYxMnFTNVRkeVpWbGM1MlF1YldfTTZXLTJ1RmI0Z3VUS0VaM2FQUUJWdXVDX0hFNVdDV3hHRkJwLUJ3UGFza0IxMkVJTXN0cEpRYnhzN1FKNGljUXRvSUZ5LTVmNUFZeFB3LVdRc2VFY1dqclE3TmFzZDlXU1NkSFBycFhBQ00?oc=5) |
+| Global Sumud Flotilla: Greta Thunberg and other activists detained as Israeli military intercepts Gaza-bound aid ships - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNLUFUblQ0M3B3clZnZ2lwRENDUTY2OFdMOWpkZGtLSmNKSzMxT3dQWkRjOG11Vk9lZEFXallQZ1lYMEJKQzNudnpiOElIRENDVFVjMUtJSDVZV0dmVGdGREViSnRPTk9CVjhrc05JT2pzZzhIQnMzZWFQME1NV0dGNFdOenFqbU9ENXc?oc=5) |
 | Trump to Withhold $18 Billion for New York-Area Transit Projects - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPUmhLcXd5b1NyYUlkRG82OVFPbzZzVTU3dFhsc0paZVJwRFRvWmlFeVRvbFpKNDNwUmYwbmJBdXprY0F0cGtSY1IzRUlTeFgtOE5PU0trRDVqbndSa1dpbGVwVkJ4RU5oZl9xN0hXdjVWTFU4SlN3VXhkWmhFV2RKNDgtc1BwWE1zREo3R3lzaTlUX2Jfb0I4Vmh2Nnk?oc=5) |
-| Israel intercepts Gaza flotilla, detains Thunberg and others, says ‘she and her friends are safe’ - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOZWl5XzZpM1pfWlVVSGs3VXNSbzdtZFhuRWR0bWxaVGdUZF8xeWYtQk1Ibmxla2NVXzg4QTFtdmdGZGJmaFR1UXc4SFRKVWNodmlSV0ZMVmNDU1daUmxfaTNkY0VCckZNbnVXX283aDdWRGk5c194azF5bmcxUXAxTWRUbjhRUFd0WVpwbjdaXzN3ZjN0YXRGbFAzTmd4Njl1bVRKNDAzclpxdlBuUFpBSjVXNGpveWVaMHhDWkp30gHDAUFVX3lxTE9KVXV2UDJwVGZLc1l4MFFiNDM1T3NCSmdzOWZLOTNrMHQyVm1vejBTYUhLcUtFWFBUQUJ2dnBTaVhINjNQakdaY08weG5zZlpsWmV3SkxZQzI5M1pqV2lsSFZyTTBKb3J1cl9vcHJFeU84TDNIRjZ4XzBDbjdQTEVEdExyMXZPWG9RQ3lyNFM0S1o5WUF6djlFOVcxYS1qZ1RRMk9mYzVsQjNaRVNNalA2UDdwNnNsaHBPc20wTXpRbkQ2MA?oc=5) |
-| Female vets fire back at Hegseth over claims of lowered military standards - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPc3g5ZlI4cU53VEJJcld2aTRxSDJvWkE5TXJGTHRRRUo3cVZmYWhvYUdSYm5qVURXR0RweEdueTZUWXVkMkdISzFwV0hqUDc5X3BJWnlpQlY0UWJsVVRSUmNGMlpjVzlRVV81WDUtTDBOamxwN2toVS1YV1B3YTE2Ng?oc=5) |
-| Vance laughs off criticism of Trump's deepfake Jeffries video: 'We're having a good time' - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNUWctcHMzUHF4clFsdmFhZmhWdDQxS2pUQjYzeHljbWZ4UXdBdFBvRHRadGduVWxtX0IzYkIxTnV4Um5SeHdtenNBSTRhckMxTTYtZjM5VllzRS1RUUxQQVlMMThXX1k0ZVluU3o0c0xpNFl1YmFBMElJTjM3TVZtVTNLOWdOb3Vqd0NNV3cxZlQ5UnBQLUlNby1lVGViV2ZKOWlKSWNNS2VZUTBD0gGyAUFVX3lxTE5QMF9ER2cwWXJVbDJPYlQwM0hGQjhQbV8zTlR0VXRVdGF4d3FHZzFwQk1oRFozSDFKSTQ4OGM1azk1SVRpcEFhQWR0YXZuR1FuNHNZUlhQYk9YQm9lT1FHaVlaTTU1Z3FqTERYQUhISmRsOFZDNmdKd21MaF9WSEV4eVNHVkZKa0I0OVVETnJWbFJjQ25YMzRCb3hFY0FaMS1zZzY2ZzJNVVNvRS13RjVyZkE?oc=5) |
 | 'An extraordinary legacy': Tributes after chimpanzee expert Jane Goodall dies age 91 - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1fem84Vk4yQ1ZqYVlFa3FZUURFM1NDVE5zMnpnWjB0YjVwNVI2SjhpS3NZaGt0S3p0dkNqQVFKVXNBVlpKQWpRczlzSTVhY0VNZG01Mg?oc=5) |
+| Female vets fire back at Hegseth over claims of lowered military standards - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPc3g5ZlI4cU53VEJJcld2aTRxSDJvWkE5TXJGTHRRRUo3cVZmYWhvYUdSYm5qVURXR0RweEdueTZUWXVkMkdISzFwV0hqUDc5X3BJWnlpQlY0UWJsVVRSUmNGMlpjVzlRVV81WDUtTDBOamxwN2toVS1YV1B3YTE2Ng?oc=5) |
+| Pentagon plans widespread random polygraphs, NDAs to stanch leaks - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNcHdRczhvWW0tR2FmN0lvdVFFYTEtTktvNE82ZFVLZ3RidGhkbkc4TU9zQ2lyV0hRXzJJNHJuN3h4NDltRTJJRExVVlFmdVVacjd1ajUyUVFBbTF6TDMtRGlTQ0NLdVNxMUFPa3A3SDVQN0Y4X1FpTnYxRzZ2ZzFlb1FpS3F6VTlMVGpuNDRUT2xubGRIdXZaZEptWDBQQlk?oc=5) |
 | How John Thune sees the shutdown ending - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNRUNDajhpQmZTcmVmVWlEZktKMVFhYkNxUks0Sy02UXh4Mm42dk5MdklpMmRnLTliS19odXdIcWhXeFZtaWJHTzA2NHFTSmFIcVRTa0pSdVFrbE44cTdUbGlITWtxZ1JnWnBVcWtuSmx3V2RTMWp6ZU1IOU13LW9xSzg4bmlmUQ?oc=5) |
 | FBI cuts ties with Anti-Defamation League amid conservative backlash - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQT2dBN2MyNVRQVjBtX2JSS3B6T01FbERmUmF4cGprMjRidC15WktXRXR5X1pwaUg3c3hidW1Zblp2X3VvSEgtNk54U0JvejFwZDlmS0xYQWNXTXNzVXVkc1VTdU9HTWdSMUE0TFgycVBaaW5GT015bzY5UWVJRFBvNXVMbjMwSy1nU1V4SDk2Z1djMFNnZkxlUFVkQ25JU3FxUklHQkpXYmpWN1Z3OHfSAbMBQVVfeXFMUEFjSEY3MF91WkdyeURJaWpuTnQwWEF1cWY1aEFXOXNPdmZLU1FXaFljb2luM2JSUnhjTEZfdGJON2RpM0pZYXduX094X2ZfTkN0WDNnUXl0cUV4VGRrVGdjUU1pWkdIT09FYmw1RXpBT05SbDlGOVoxOC1WM0U3SEdwNVlxT0Rldk1TUndyRHlTTDFhOHRLUHlDcTlUMlUycUZILWczMUdmMkcyZkNMQ1lmMnM?oc=5) |
 | NTSB Faults Philadelphia Transit Agency Over Train Fires - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNUnQzSF9rZzJTMDZmbTl0ZXVEbEVLU2h6QUlaV1ZMN1ZDSVJmTHpYQnhRY09WbDlEQk85Y3FsN1IxVkREa2JKb3l2eTBxNEVFOTlGcDRwbVNPMnZ0SEhpUlR4U0wzSER1REVFRkhJM1lsZThzM2FHMnBGQ25KS2VxcFlKbw?oc=5) |
