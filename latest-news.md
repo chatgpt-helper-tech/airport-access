@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月03日 01:17:39（北京时间）**
+🕒 更新时间：**2025年10月03日 01:24:05（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | What we know so far | [阅读全文](https://www.bbc.com/news/articles/cd63p1djgd7o?at_medium=RSS&at_campaign=rss) |
-| What footage tells us about Manchester synagogue attack | [阅读全文](https://www.bbc.com/news/videos/cy4jegwzedxo?at_medium=RSS&at_campaign=rss) |
+| What footage tells us about attack | [阅读全文](https://www.bbc.com/news/videos/cy4jegwzedxo?at_medium=RSS&at_campaign=rss) |
 | 'The man was just running out with a knife' - eyewitnesses describe how attack unfolded | [阅读全文](https://www.bbc.com/news/articles/cn0rp05ykx7o?at_medium=RSS&at_campaign=rss) |
 | I'm not resigning, Met Police chief says after BBC investigation | [阅读全文](https://www.bbc.com/news/articles/c7017p581lro?at_medium=RSS&at_campaign=rss) |
 | Hamas military leader in Gaza objects to ceasefire plan, BBC understands | [阅读全文](https://www.bbc.com/news/articles/c708v2q5r09o?at_medium=RSS&at_campaign=rss) |
@@ -29,9 +29,9 @@
 | Trump Administration Asks Colleges to Sign ‘Compact’ to Get Funding Preference - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBzVlJDQUVoWGp4VTJIVEh5SDlKRmhvZE94ejRaRVNQOUlZeHRCUFAwU3p4M0JzbEtTMGpGVzdHbUZ0emk1dUFrY3YzOXZIcTZ4RlI0SVp4TjEwZDFlcDNueXFJTTZDOHY0am1Sc21hYkJ1V2FfZDdveXQ5QTRVdw?oc=5) |
 | Female vets fire back at Hegseth over claims of lowered military standards - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPc3g5ZlI4cU53VEJJcld2aTRxSDJvWkE5TXJGTHRRRUo3cVZmYWhvYUdSYm5qVURXR0RweEdueTZUWXVkMkdISzFwV0hqUDc5X3BJWnlpQlY0UWJsVVRSUmNGMlpjVzlRVV81WDUtTDBOamxwN2toVS1YV1B3YTE2Ng?oc=5) |
 | How the world is responding to Israel’s interception of the Gaza flotilla - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNOTdmN0ZFTWp1UzloUlJNWjNydWo5Uzlzc183djdRMTBKMlVRQ2tmS0dQU2tLN1ZGYVdhM1NlTDlTTUJCaVgyeFdsYldJUEpZaUVINHVlVi1IXy1NT0RBSzFfQXN6R2dLYkpEeEg1ZDJ0Ym54NWxWMl8zLVNJREdqcTNLQVdIQkZFVlJtb1U4WjMyNW43WU0weUk1eW1VWDQ0MEh1LUR3VEVmd1cxVHpGa3BBVdIBuAFBVV95cUxQWS1FMlZSWWh4T2ZPS2t1QWY4ZTZHZzJRSjBybGR3YUlIQ3dqYUQyQVozT0xQbllTU1JiNUF0UTBHVWo3aUlsWTBwLUNXaFdZSDZKUGp5OHE5cVJ0c01xeWVTVUFmRGVkdVpBQ3RnNnJ4cm12aDdfa1hjSkxaYjBBbnJLVERmRUdFZF9PeldQV2RXUFFaMnkxTFB6WDRCdkVyN29HN05LZ2d4NGVueHRTbHNzUHpZUDJL?oc=5) |
-| After Michigan Church Shooting, One Man Raised $200,000 for the Suspect’s Family - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOQXpLSEQ1YVljdkl0YTQ5eElJa2dKSm84UVdGT0t5SWdvRjRrT3JMODVEWXpIMVFYZEl6WkF5SXpLRElFVnZQNzk0cDJvRFVjWHNlMnBiWGd3VFFlMFdiWm1rbmdEUWgyLWNYSWNuR3ptSnQwT0pKMlZMV29OajF3YWZ1SlNsLWF6V09v?oc=5) |
 | ICE detention of Des Moines superintendent Ian Roberts sparks days of protests - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQa2JJQ05tNWNORlVmNTA3MzgzaUVRM1Bqc0FnM3VWeXBhTElIWlpPVjgzZ0tsOFRhOEl4YnQwZDJsQ2FacjJmSklmb21DRDkwQ3FHZ3A5YTZ2OTB0emw1eldWMTNXdm44cVBoTXc3MFpjdnpMRmJUamV4eDFuakJRUFY4dEc1ZXpRNVUyR2hLRHl4V0FfbWhPZVJTUjh2OFoxQ0pBUWxn0gFWQVVfeXFMTmdzeGNGbHV1ZWtoU1dJM2xhd3dEWmJCeTVSdEVlQVh0b25qREo0N0RPS0xpWWhrWnROUl90WEN3WndEOW8zX2lkOHJqUXZBYTBjcTNHVlE?oc=5) |
 | ‘A lot of fight’: Hakeem Jeffries is determined to make a mark on the shutdown standoff - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQYl9naklHS2ItRFZvRkdTcm9HclFWemowRkFaX29hM0V0c3VZTDhaUmQwYTNTTDFfaGpvQmluazBQVURldEtZVTQ3QUI1MUdxOWM1QW9zUmJIbGFaQmIxWkIyM1JMZDhvU0NVR2M5UVJiUkV5U2lDT3J4LVZyY1VNdHZveWlEaVk?oc=5) |
+| After Michigan Church Shooting, One Man Raised $200,000 for the Suspect’s Family - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOQXpLSEQ1YVljdkl0YTQ5eElJa2dKSm84UVdGT0t5SWdvRjRrT3JMODVEWXpIMVFYZEl6WkF5SXpLRElFVnZQNzk0cDJvRFVjWHNlMnBiWGd3VFFlMFdiWm1rbmdEUWgyLWNYSWNuR3ptSnQwT0pKMlZMV29OajF3YWZ1SlNsLWF6V09v?oc=5) |
 | Amelia Earhart's long-lost plane likely located in lagoon, expedition team claims, citing "very strong" evidence - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNekp1Y3hMSGtUWjZ4dWNSS2xsYlo1YnQzOHVvQ2s1eWJMWnA2Qk8xbE9QUVVhQUFVbmt6WkxVN1BHbEZtYUxWODRGR0p2aUNzVmFJMUtOZ2h5RlgxMlFyZDJFX1ljenVreXV3Nk1QNF9CQnNxLU9nY3lGUml6cjkzWTNEUkgyU2pIY09mdmtQY3ZMOEkzd2dWMEJBUVZGMnYwODdnTtIBqgFBVV95cUxQVS1VZ0VXdURza2MyMXY3WWFHdloyRVdUYnEzSmVvNEN2THAwVTZMeEtHeXZ2OVlNeWNUQkdjY3JhRHY5TmxHWWtIc2s2cW5UckhwV3lPWDA2MTQwM3NlYjltNUJ1bVA0MHI1a0xJMUp3cVctUHlESWx4TzNNNWF0ZXNpTmdoQzlvZ2xYcGUtZmpzbGpDRFBtV3RtSS1PeE4yamswdzVJUzkwQQ?oc=5) |
 
 ---
