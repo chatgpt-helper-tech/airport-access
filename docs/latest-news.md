@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 21:33:00（北京时间）**
+🕒 更新时间：**2025年10月02日 21:41:33（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Air traffic controllers helped end the last government shutdown, and may again - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNRmkzeTRpRmctUVNraER4R0dMeHFIQmdMc2VhYUhPU2FSSk9NMnVSTWNIbWRSUEVmcFRwQ2pxOVlOTy1EU2l2d1VSMEdGaEhvN3ZzbHdfVW9rMTNUYjY4VlY0RUo4NlBWWXlsaFI5V2tGU2NZa0pHUjJUTmp0Y0xSUWxhdzB2Wnd4cDFJZGZVWlFfQ1F2UHNHUFJXRQ?oc=5) |
 | Israel intercepts Gaza flotilla, detains Thunberg and others, says ‘she and her friends are safe’ - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOZWl5XzZpM1pfWlVVSGs3VXNSbzdtZFhuRWR0bWxaVGdUZF8xeWYtQk1Ibmxla2NVXzg4QTFtdmdGZGJmaFR1UXc4SFRKVWNodmlSV0ZMVmNDU1daUmxfaTNkY0VCckZNbnVXX283aDdWRGk5c194azF5bmcxUXAxTWRUbjhRUFd0WVpwbjdaXzN3ZjN0YXRGbFAzTmd4Njl1bVRKNDAzclpxdlBuUFpBSjVXNGpveWVaMHhDWkp30gHDAUFVX3lxTE9KVXV2UDJwVGZLc1l4MFFiNDM1T3NCSmdzOWZLOTNrMHQyVm1vejBTYUhLcUtFWFBUQUJ2dnBTaVhINjNQakdaY08weG5zZlpsWmV3SkxZQzI5M1pqV2lsSFZyTTBKb3J1cl9vcHJFeU84TDNIRjZ4XzBDbjdQTEVEdExyMXZPWG9RQ3lyNFM0S1o5WUF6djlFOVcxYS1qZ1RRMk9mYzVsQjNaRVNNalA2UDdwNnNsaHBPc20wTXpRbkQ2MA?oc=5) |
 | ‘A lot of fight’: Hakeem Jeffries is determined to make a mark on the shutdown standoff - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQYl9naklHS2ItRFZvRkdTcm9HclFWemowRkFaX29hM0V0c3VZTDhaUmQwYTNTTDFfaGpvQmluazBQVURldEtZVTQ3QUI1MUdxOWM1QW9zUmJIbGFaQmIxWkIyM1JMZDhvU0NVR2M5UVJiUkV5U2lDT3J4LVZyY1VNdHZveWlEaVk?oc=5) |
-| The facts behind the government shutdown debate over health care and immigrants in the U.S. illegally - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxPWHgxUk9SVG02aExXTEUzZ0EwU0hJb1E4TU5QX0Zwalp2RGhYM1ZmWlQzQ3ZIOFl0MlFvM1NNVXhlczhpMjVYbzZfaG13akNPUkNTckdSUk55eDVXVWpKZk44MFhMak1GSEU3MU51UTdPMElrQ1pUeExCSE8tcFJuVWVMZUYwNnduQnN3QXhZaTV5bkhTWUhBZ0RpN1ZXY2hHMkVxLWtaUHdRZDNrUE5OR1U0SlRwWHotdU5DeEJJNkRGT1M50gHKAUFVX3lxTE0wMzRrNjhscDFISUlyY3RLdkNmamJERFd0NmNHMHNNXzl4N2lpTG9jbDZzV0dUUkJQNWJuYmt3Y0NBdTJmMzRRd0JBVGZsTlRSSlZ5bFVYZHB5VnI3QW8yUkhnNXdKRnhyaExHZXY5ZFBwczdJNXBSTWFjQ2VEX3N5WDEtam9BVzNaOEdnYmlKUURXNmg2MGZJR04xNWZpNHFkdWlVUUNhU2hHYU9XMDVxcG5QLUpyS29wZlprNFVzX2RLZFFrWGxUN1E?oc=5) |
 | Massive immigration raid on Chicago apartment building leaves residents reeling: 'I feel defeated' - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMi4AFBVV95cUxOX2VVbl9xRk0yZy1XZGJqN1hIRGdueHZlRGlNMC1oUGZjM2VOeDFYaTl2cUFFdHZ2RmVmY3JvanZMOEk2YVFSTGwwcUM4dnJZWmdPd243azRYTkY1d0FFZnN1MVhYUjA2UDdhRFRxUXVWaWRRZzJ3ZVBVbmhqNkVnZHlrM2I1U01nQnpVcmd4ZzFYN212MGxERXJwRm9xV2dKVFFyWm1KUkZrTUZsSHM2czBKaTNyT0xNTkM5cVoxQzg2bHAyZ1h3QXM1ODlIaG1tWDN1bUFVbTRBQkRtLV9pNA?oc=5) |
 | US Supreme Court expands its 'emergency' docket - and Trump's power too - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOWXE2enJybWk1b19nbHRjLVZkcGlMTElkdjl0a0lYQ0lLSUpqenI2VDAyNmo5OEZTc1BJWGdNT2ViVE9keDdGeW52S0ZfOUZNWndtZjRNNUlEbkdnMkdOckFGMng1Z0ttcmdzQUdhMGZUY1QyTXZiYXpQOHJRSTh1VzNnNlJVR1BkVjhPQ1NpM1ZPaWVnWTJfeklnY1dUeTV6bWtsQUY0THdQa3hkNzNDNnp3a2VFQQ?oc=5) |
+| Trump claimed a win on drug prices, but Big Pharma also scored - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQZnZZU2NWeG1UWHlMTlRHSHJKVFpVRDhPVm5RbTUwVzBKZ0o4YkFwdUJkVDd4RjQ1NnVJYkd6X1hqS3RIRlJpTEliV3dsUVVlMUt1TGlrclJIajFmR01FTlhBelNoRWxEOEZkOWVHNDlEczFGa1lKR2lRZl85aWoxOGw4WU5XVV9V?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
