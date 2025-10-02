@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月03日 06:32:15（北京时间）**
+🕒 更新时间：**2025年10月03日 06:40:24（北京时间）**
 
 ---
 
@@ -26,7 +26,7 @@
 | Donald Trump threatens permanent spending cuts as US shutdown continues - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE81U1REUTJtOC1OU1k0NWRFdjFaLS00bjI0dDN3SHc3VWl1Uzh4UW1lSk5rVW5sWEhHMDM4emFQTEVId2lOMGI5Y1ZSOU5nbmo1TEhSbXk2RV9IVXgzUHliQkZ2TW9rQ1FDYUNWSUYwYjk?oc=5) |
 | Synagogue attack on Yom Kippur kills two in UK's Manchester; suspect shot dead - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNZjZ1XzZnS3JBUHNsOFZfdVV3MHYyRlpNWjRBMlFOWXVFRk1vOFZnNEM1N2tyYmpselhYcDNieXU1Z1EtRHlPSkNMSGFWbFUxdzdBY2tMWkVDZUw4b1liQWJ4endsUjViOHlqZmVMLXRGclZnT2ZaUVpXaExzVXFpeHBfXzg2Q3VFSWQ5TW1OUzNwNVE3Q1dmNU12b2c2QnVkdnc?oc=5) |
 | Where George Washington would disagree with Pete Hegseth about fitness for command and what makes a warrior - The Conversation | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxNR0pONnhSVHVPb1JQX0lmdDY3OVVrYW9qU2t0WElBZVNOVUV6UXdURlp3NWZJN3QzVF9uQzgxbHM0RkY0SEFBSy1mb1hxUDA3d1VJOU9KWGU3YlpyZGZpaTk1S0thYkNjNjVMeXRqbFo5eTJVQ0RJSWtnZVRzU0JaeDlxRnBXcVRmUEI1VEhXNVMxcFd3cnpmV1BVOXJkWldWN216eVFXc1IwZzdCdVM3TEdnZTdEeXBtay1pU0t0N3VaaDc2Mnk5QUZaeV9iVG9vM21JUmh4MUFqZw?oc=5) |
-| Trump ‘Determined’ the U.S. Is Now in a War With Drug Cartels, Congress Is Told - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE01cm5QV2JwZkY5YmZTYkg4c2FnaHJuQWc2cjhLWVlwZGp4V2JzQ3NFU3k2U2hwQlVUc1p3QWQ1SnlnT2FLV1NWZFJ2aEJaaWJuWVlhajhMOExyTlNwMlRpdzV3WTQyd3FVRko2UHVGMlROajdLOERNakdZMzB6eUE?oc=5) |
+| US is engaged in formal 'armed conflict' with 'terrorist' drug cartels, Trump says - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPUThtcmw5d1dxM1RreFRjUWhfRmtWT2NrUjVlSEhJb05paXVpeVAtcXhMdFFzbVpiNUxQcGR3QWFULVpnd2p3VnVpbGVVWUNIWGM5YVVxQ0pkQXVQdlo0NTVlcVpyRlVjTDdfNTBqT2xCdTd1eWotNmsyVVZFUDRaTjlsS1Q0MFZRMnVwV0V2c0dJZnA5RzJmOHBDa0JMb2lRVFoyVjFqVEhmQQ?oc=5) |
 | New Trump plan offers UT funding benefits with conditions on academics - Austin American-Statesman | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPUDRROUFCODhFaHdLTklsS2FhSnhtLTB2LVJCQk1hUjVPVUV6UGVyemZNZnB0b05LY1VXVDhmbEUzZ3VxaFM3VFhNTUx0WmxDT2VMSWkyNll0a01pU3JjY1NEalNzSVA1TDdQT29uajJ1d0cwN0lFcXYzUEtqWlhCazJWQjRIU0xIb3J1NklGVHdfZmRObWNaRldGMnYxOU91a1RfQ3hWdWRQcWJENVhSeHZR?oc=5) |
 | What to know about Russ Vought, the shutdown's quiet power broker - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOREI3LUJDc2g5VF9YSUxmcmljQ0Z6ZUdEU29VOVJ2amphRkYtMEpOcm9udnplVHdBZWYzbEZ1UFRPNmhEaExjbW14Wm9CSXVhVHc1dDVuS1czeU9hcHJlcnpDYnpLYXRCYWo0NUstTDdjQ3lnREo0MWl4VmlMR083ZHFicw?oc=5) |
 | Out-of-office messages blaming Democrats for shutdown sent on behalf of some federal workers without their consent - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNR0FfV1gwOERrdWRIYVpUTHZGVUpGMHRYWF9wTzR1em9wYW1ENURyVWJiMTd2ZGVCOE9KbkdOUjFSQkp6aXgxanpwVnViQXg3RHlyQ3FjTUFPX0loSVZZOHZldkh1b1UybEY2dC04emZGczV1cVdCdEU2ZTE5Ri11NjdXOVIyYjlaZ2E2Zk1Lcm1ZcHU3dXc?oc=5) |
