@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 12:09:41（北京时间）**
+🕒 更新时间：**2025年10月02日 12:16:55（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | Dame Jane Goodall remembered as a 'true hero for the planet' | [阅读全文](https://www.bbc.com/news/articles/czrp24myrl7o?at_medium=RSS&at_campaign=rss) |
 | Israeli naval ships intercept Gaza-bound flotilla | [阅读全文](https://www.bbc.com/news/articles/c0lk292jww4o?at_medium=RSS&at_campaign=rss) |
 | Should I use olive oil for frying? How to choose the right cooking oil | [阅读全文](https://www.bbc.com/news/articles/cj3y7j2dz44o?at_medium=RSS&at_campaign=rss) |
+| White House says layoffs 'imminent' with no end to shutdown in sight | [阅读全文](https://www.bbc.com/news/articles/c8xrwdny8p1o?at_medium=RSS&at_campaign=rss) |
 | Refugees to face longer route to UK settlement rights | [阅读全文](https://www.bbc.com/news/articles/cddmpr21yr2o?at_medium=RSS&at_campaign=rss) |
 | Hackers delete children's pictures and data after nursery attack backlash | [阅读全文](https://www.bbc.com/news/articles/c8rv83mrlyyo?at_medium=RSS&at_campaign=rss) |
 | Musk becomes world's first half-trillionaire | [阅读全文](https://www.bbc.com/news/articles/c89d3547npjo?at_medium=RSS&at_campaign=rss) |
-| Pope Leo condemns climate change critics | [阅读全文](https://www.bbc.com/news/articles/cgl1pgr2zn8o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,7 +31,7 @@
 | Pentagon plans widespread random polygraphs, NDAs to stanch leaks - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNcHdRczhvWW0tR2FmN0lvdVFFYTEtTktvNE82ZFVLZ3RidGhkbkc4TU9zQ2lyV0hRXzJJNHJuN3h4NDltRTJJRExVVlFmdVVacjd1ajUyUVFBbTF6TDMtRGlTQ0NLdVNxMUFPa3A3SDVQN0Y4X1FpTnYxRzZ2ZzFlb1FpS3F6VTlMVGpuNDRUT2xubGRIdXZaZEptWDBQQlk?oc=5) |
 | Victims in deadly shooting at North Carolina waterfront bar identified: "She loved others deeply" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9WX2w3MER1MXMzeXJJUldrRXdtc2JWZXA2djN5VkNxLTJCVmQ5Q0VoOXl1UnM5MlF4R3UxeXQ3R1piVWFzU19ublNTalJxNUx1Q0c0bGtESFVnbC1TSDFwWEZpTVhjd3EzMkdwVFBfaG5ULWV1WFVYOGtpS001QdIBgwFBVV95cUxNbUUzaHZRSkhmOHR4bUd0eklHQTVBQjZUdjQyYkd6UDdoWkduRXlYbmtXWnY3MElzcHpfeDVfTmc0VWxLSVpwNkFESGNrbVZtY19XWUxlYkVEc3p4czhSQnZQWnEzZVNYUy1udHUwNVBvU3JJNGRTQ3JibDdkTmFWUmJpWQ?oc=5) |
 | Supreme Court Allows Lisa Cook to Remain at Fed, for Now - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNazFxUHhBTHBRZGYzM3lRX2d1a3ItNWFiY2ZjNDE5UGFOZFQ2c1lPcXVoVG1aMEpVNVdSUnhleXpkd3hRV0lLOWRJR1I4SGI3TnpKNldMRVlnakcydnFZclc2ZTJHV0Z5ekVKby1xVmp5aG5LaE92djZxM0tFeU1RcUZxSGFaQQ?oc=5) |
-| Health care is key for Democrats in shutdown fight. Here’s what to know. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQRDRyelp0T0JyZTJQSmFBZHFuRzU3Y2NJN0FOYXBUTF9lWWE5ZnJVQ2Ffa2R0R1AwRV8zMjY0LTk3VHA1TlB0ZVk0SVZ3TnVubGV6TjhSbndFNTRJQ3hYcmJrcDBnMGdhMENJUTAtMFQ3NlQ5R2l0WjNzQm5XYmI1NEdHc3ZyZFhZdEZsYmIxYktub2pGMC1NZ0ZMZjBEZkFXN2FWQmQwZ1E?oc=5) |
+| How John Thune sees the shutdown ending - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNRUNDajhpQmZTcmVmVWlEZktKMVFhYkNxUks0Sy02UXh4Mm42dk5MdklpMmRnLTliS19odXdIcWhXeFZtaWJHTzA2NHFTSmFIcVRTa0pSdVFrbE44cTdUbGlITWtxZ1JnWnBVcWtuSmx3V2RTMWp6ZU1IOU13LW9xSzg4bmlmUQ?oc=5) |
 | Massive immigration raid on Chicago apartment building leaves residents reeling: 'I feel defeated' - WBEZ Chicago | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxNZEhSblVGQk1sZUVWVjNlTk1UaE84WlJIZmxIN05YUUx5blgyWVVUc004SmV6dE9nRVNsMnJuN29PYVI4dkRfRVFTQUY3b0V4RGNPUlctZ3duX0QxX3dheWtLQUN5RV9vWV9jeFRwa1l5NGZVQkhxVGZMYVVNM1UyZmh1ZWFQVEQxWHhHRU9IY0tuR1pzNzlwSnc5NllCQ3dfSEN4SnFEaG1MNXU5TFJWcEtrcDZsdGJCUlJqVWZuT2RXRkNmLVRtQmY3RG1FRUd5YzJoaS1n?oc=5) |
 
 ---
