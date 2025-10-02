@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月02日 23:57:14（北京时间）**
+🕒 更新时间：**2025年10月03日 00:01:08（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | I'm not resigning, Met Police chief says after BBC investigation | [阅读全文](https://www.bbc.com/news/articles/c7017p581lro?at_medium=RSS&at_campaign=rss) |
 | Hamas military leader in Gaza objects to ceasefire plan, BBC understands | [阅读全文](https://www.bbc.com/news/articles/c708v2q5r09o?at_medium=RSS&at_campaign=rss) |
 | Mum's anti-chemo views influenced daughter's death, coroner says | [阅读全文](https://www.bbc.com/news/articles/c77dmp3jjepo?at_medium=RSS&at_campaign=rss) |
+| Say sorry to children for Covid errors, ex-children's commissioner tells ministers | [阅读全文](https://www.bbc.com/news/articles/c05928mlz56o?at_medium=RSS&at_campaign=rss) |
 | Watch: Inside the lab analysing the world's oldest ice | [阅读全文](https://www.bbc.com/news/videos/cgl1pl8699ko?at_medium=RSS&at_campaign=rss) |
 | Heart surgeon whose failures contributed to several deaths continues to work for NHS | [阅读全文](https://www.bbc.com/news/articles/ce3yz4q9p4po?at_medium=RSS&at_campaign=rss) |
-| Nirvana baby loses legal case over Nevermind album | [阅读全文](https://www.bbc.com/news/articles/cq8eplxd7yzo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -29,10 +29,10 @@
 | What's behind the health care fight that led to the government shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPRkh1Yy1hSWQ2SmRlM2lrdlRReFRaR3NzcU45Y1E5Y1NDcC1XZlp0a3F4bVMxQ05hdTRLZlYzSTlVdWg4cDRRc2lPckFsaEFlWFdpTTBJcUtobGtkUV9DLTJ5U1FjR3BvZk9lWUF5dW5PbWtiODNsdlBjOG9XRzRCcWNXVkRWQ0xEZ2k5UnBDNzA?oc=5) |
 | Trump claimed a win on drug prices, but Big Pharma also scored - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQZnZZU2NWeG1UWHlMTlRHSHJKVFpVRDhPVm5RbTUwVzBKZ0o4YkFwdUJkVDd4RjQ1NnVJYkd6X1hqS3RIRlJpTEliV3dsUVVlMUt1TGlrclJIajFmR01FTlhBelNoRWxEOEZkOWVHNDlEczFGa1lKR2lRZl85aWoxOGw4WU5XVV9V?oc=5) |
 | Female vets fire back at Hegseth over claims of lowered military standards - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPc3g5ZlI4cU53VEJJcld2aTRxSDJvWkE5TXJGTHRRRUo3cVZmYWhvYUdSYm5qVURXR0RweEdueTZUWXVkMkdISzFwV0hqUDc5X3BJWnlpQlY0UWJsVVRSUmNGMlpjVzlRVV81WDUtTDBOamxwN2toVS1YV1B3YTE2Ng?oc=5) |
+| ‘A lot of fight’: Hakeem Jeffries is determined to make a mark on the shutdown standoff - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQYl9naklHS2ItRFZvRkdTcm9HclFWemowRkFaX29hM0V0c3VZTDhaUmQwYTNTTDFfaGpvQmluazBQVURldEtZVTQ3QUI1MUdxOWM1QW9zUmJIbGFaQmIxWkIyM1JMZDhvU0NVR2M5UVJiUkV5U2lDT3J4LVZyY1VNdHZveWlEaVk?oc=5) |
 | US Supreme Court expands its 'emergency' docket - and Trump's power too - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOWXE2enJybWk1b19nbHRjLVZkcGlMTElkdjl0a0lYQ0lLSUpqenI2VDAyNmo5OEZTc1BJWGdNT2ViVE9keDdGeW52S0ZfOUZNWndtZjRNNUlEbkdnMkdOckFGMng1Z0ttcmdzQUdhMGZUY1QyTXZiYXpQOHJRSTh1VzNnNlJVR1BkVjhPQ1NpM1ZPaWVnWTJfeklnY1dUeTV6bWtsQUY0THdQa3hkNzNDNnp3a2VFQQ?oc=5) |
 | Capitol agenda: Thune insists there’s only one way out of the shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOeVFSYkVhVnBSV1ZoVlJFcUhXT3A0QTVuQUU1RGdMTy1FakduS3c0em5vZHBQWEJ2Wlk1Z3I1MHNCRVl6QkFzVGl1alUySkNVdDhab243Y2tLLXBwY0VMVEwxTW9hLUtRYWdMLXYxc0JLSDFlUDVNUlJyMDZUNHJlWkFCU282cWV1V0QzelZCQlpCeW15NGpPTzRjQ2x4LXdISkpncjhSNHlJTW83czJoeml5Yw?oc=5) |
 | Air traffic controllers helped end the last government shutdown, and may again - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNRmkzeTRpRmctUVNraER4R0dMeHFIQmdMc2VhYUhPU2FSSk9NMnVSTWNIbWRSUEVmcFRwQ2pxOVlOTy1EU2l2d1VSMEdGaEhvN3ZzbHdfVW9rMTNUYjY4VlY0RUo4NlBWWXlsaFI5V2tGU2NZa0pHUjJUTmp0Y0xSUWxhdzB2Wnd4cDFJZGZVWlFfQ1F2UHNHUFJXRQ?oc=5) |
-| Drones, Helicopters, Hundreds of Arrests: Trump’s Immigration Crackdown in Chicago So Far - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPR1VvWmlQZEVDUEkwTDJkeVh3d2dEV2hsbTdaWEZrLWdBcUpKOFBVWGpBcklubkIwUG90aVpIRG52VU0ybDQ0dzFiNmhTeVdoUzF2YWhzXzZoNHBGcW5HTDV3ZjRrRS1PeXR6ckhwQWY1Y2RxU1RSVi1vZmtTVVp6bjJqZkQ2bmpQZjBJ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
