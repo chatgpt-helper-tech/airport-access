@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月03日 13:41:01（北京时间）**
+🕒 更新时间：**2025年10月03日 13:48:38（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | Top NHS boss backed surgeon whose failures contributed to deaths | [阅读全文](https://www.bbc.com/news/articles/cn0rpdjd39po?at_medium=RSS&at_campaign=rss) |
 | Taylor Swift: The Life of a Showgirl is a triumphant pop victory lap | [阅读全文](https://www.bbc.com/news/articles/cn4wpe5z52qo?at_medium=RSS&at_campaign=rss) |
 | Former Israeli hostage 'very worried' Trump's peace plan will not happen | [阅读全文](https://www.bbc.com/news/articles/cwyw2pgjg1no?at_medium=RSS&at_campaign=rss) |
-| Does the UK go far enough to protect children from conspiracy theorist parents? | [阅读全文](https://www.bbc.com/news/articles/c749d9557j2o?at_medium=RSS&at_campaign=rss) |
+| Why we struggle to protect the young from conspiracy theorist parents | [阅读全文](https://www.bbc.com/news/articles/c749d9557j2o?at_medium=RSS&at_campaign=rss) |
 | I'll change the monarchy when I'm king, says Prince William | [阅读全文](https://www.bbc.com/news/articles/c20vyjevxe3o?at_medium=RSS&at_campaign=rss) |
 | Trump wields axe over 'Democrat Agencies' as shutdown blame game rages | [阅读全文](https://www.bbc.com/news/articles/ckg201rnw2zo?at_medium=RSS&at_campaign=rss) |
 | Russia targets UK military satellites on weekly basis | [阅读全文](https://www.bbc.com/news/articles/c4gkyl1j6n9o?at_medium=RSS&at_campaign=rss) |
@@ -30,7 +30,7 @@
 | FDA approves another generic abortion pill, prompting outrage from conservatives - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5tX0pOQkR1X2h2NDM5SE8tZ2tjSU5tZEU2bndhVHdhOW1wa3gzak9wZ05jazUzejVQdk5pMXlkdW80aUxpQ2ZHQ01jM2tGc2VjTjBzeTc4YjFrOS1LajBOUmZfblRwd08zSFo3RHpDYURFc3pVQ3JSZXhn?oc=5) |
 | Pope Leo XIV says those against abortion but in favor of death penalty are "not really pro-life" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFBJSkdINWZadHVmSUk5ZF9MQjc4NHpZZzBsenVPc2c1ZHZkTUVzZ01oZmI0NzFPMzVySkhXampINW56eDdtRDI4ZGNUc1Vua3ktWVduOHFiSXp2U0h0YU8tbk9hZy1rdkZaWmYxNnExeDRQcHM0YXZ6Y1BR0gF_QVVfeXFMUFJSSnN5Qkdfbld1bzFuRXIyM3hkYkZKUFAtWmpmOTNiMl9GcGNJejcwN2FGOEJMdmpDTDY3ZzlhYVpoSExYeFd4clhvTm9VUnRDNldkSDE5Umg0MDNSZU03azd4VnFLdXdjWDBOWDVyLWNLSnlXdXN1c196SDFucw?oc=5) |
 | Former Des Moines superintendent who was detained by ICE federally charged - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNdjRCaDJCZWVKLWZXWGw2TTMtZ0U4U3BNc3hqTmtybWNZTnVBWXo1TGtGYkl3WDFKbnM0MFlFTUZwSUFXUkQ2dHEtSlRRalc0MUdlVmxmVTM2OWc5bGJQLVVBTnNBUUh1UmZ4V2F2QlYxc05EeTBvVEhxWmFyRnBkRERLWEotbHlJUWdwdXpranNIRWp5alNjYzRUYjB4cFhvY3ZuSEtGcmhUMzlQ0gGyAUFVX3lxTFB6c2laS1dRdUtoby1LelhOeUN5VDBvb2swNFNBc3h5NktPSEZjY0FIN1V6dWlhbFU5YkpkVi1jZHFUelljOGVodmpYTmIwZy1sN0xLc2lOY21ibkZGSG10MmNpa2JrX29YazVhb080TGl3ZEp2UDI0Y0pFQl9JUkJqRm5STlBzbm9RR2hUMkJpbkNfdFktbzZ6eEc2NUtSVkdDZVI2UFhjbUZCUTk1UEJURGc?oc=5) |
-| Donations pour in for family of gunman in Michigan church attack - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5NRU1uUWZsN2o1RlpoTEJUZUxhYVJIRnphdlk2dHAwSm5ObVlhNVJ1ME1Kcm9YTkJHSFZUWjBOdTJNei1IcEZoa25ibEFvaXd1WVVvYk1uNEtvUQ?oc=5) |
+| Donations pour in for family of gunman in Michigan church attack - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5NRU1uUWZsN2o1RlpoTEJUZUxhYVJIRnphdlk2dHAwSm5ObVlhNVJ1ME1Kcm9YTkJHSFZUWjBOdTJNei1IcEZoa25ibEFvaXd1WVVvYk1uNEtvUdIBX0FVX3lxTE0zb05WNEFiQTQxLWVBdzUwbkIzUW1nQXQ0UThOM1Y0M3ZjYlF4cC12Zjhpb0NiaUlkTTdpNllKbnFWbDk0SHNsbHUtamJhSTJ6QmFNRTNzb2tiVkFCUFFn?oc=5) |
 | ‘Those were not my words:’ Out-of-office message automatically updated for furloughed Education Dept employees - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMi-wFBVV95cUxNeFpzclVyeFlWS3NnMTBjZXk1Vkx6M1p3Mm5fY0RIWlowZ3RCVkxGZHJMaFZadGNvTll4dXcxZjNQTkpVRExiOHZFUXJVR2JSWTlxdDZJR1ByVF9mQjZZY1VFdDFueXpPeEhRQnlVbHQzTThybTlVUklleE9laXd5b3lzeU9yZ2MySkh2anlQajcybzNJejlsY0RaMW1KWUFKZW1EdmNkTXlkaXNGVU55cF9LYnpyVklUVDI2X0NwVEhjUlFCUzJXQXREOFdwUEdJdmw3RTJqQllBaWk3cUZjdTktdXRkc1FPRnowRVlGc2FZaGVMZzltSXl1MA?oc=5) |
 | Texas Megachurch Pastor Pleads Guilty to Child Sex Abuse - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQNnVXOVF0Y0ozV0c0cDdoM0lnOHdrS3lvc2IxNWpRNWhHbHVyR3VrVDdwaXV1dHl2SVk2YTRlQ0dmVHJiTnJFS0hNQm5WVDQya0JuZjBlZVNxUVlOMlRZd194enJGR2FoTENZT1oxa2xGOWttckRFZkRJYnByYklVRWNkTXJ6Zk82?oc=5) |
 
