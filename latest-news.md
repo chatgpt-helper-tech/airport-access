@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月04日 04:40:36（北京时间）**
+🕒 更新时间：**2025年10月04日 04:48:06（北京时间）**
 
 ---
 
@@ -9,7 +9,6 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Hamas says it agrees to release Israeli hostages but seeks changes to US Gaza peace plan | [阅读全文](https://www.bbc.com/news/articles/cdxq7zp7002o?at_medium=RSS&at_campaign=rss) |
-| Synagogue attacker was on bail after rape arrest | [阅读全文](https://www.bbc.com/news/articles/c0q7y72kppgo?at_medium=RSS&at_campaign=rss) |
 | Synagogue attack victims 'died saving others', say families | [阅读全文](https://www.bbc.com/news/articles/cly6eve5p06o?at_medium=RSS&at_campaign=rss) |
 | Serving Met police officer arrested after BBC Panorama investigation | [阅读全文](https://www.bbc.com/news/articles/c86422y9vxno?at_medium=RSS&at_campaign=rss) |
 | 'Hatred and racism cannot tear us apart,' first woman Archbishop of Canterbury says | [阅读全文](https://www.bbc.com/news/articles/c2lxyxqzxkdo?at_medium=RSS&at_campaign=rss) |
@@ -17,13 +16,14 @@
 | Keeping Up Appearances star Patricia Routledge dies at 96 | [阅读全文](https://www.bbc.com/news/articles/czdjegvjz3do?at_medium=RSS&at_campaign=rss) |
 | Tax wealthiest to end rip-off Britain, new Green leader tells conference | [阅读全文](https://www.bbc.com/news/articles/c708y9nq174o?at_medium=RSS&at_campaign=rss) |
 | Storm Amy danger warnings as 100mph gusts recorded | [阅读全文](https://www.bbc.com/news/articles/c98d2ep62z7o?at_medium=RSS&at_campaign=rss) |
+| Teenage girls detained for killing man in street | [阅读全文](https://www.bbc.com/news/articles/c3w5y5xyv53o?at_medium=RSS&at_campaign=rss) |
 | Bonehead out of Oasis tour after cancer diagnosis | [阅读全文](https://www.bbc.com/news/articles/cpvl3p7k0m1o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Shutdown will stretch into another week as Senate standoff continues - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQQWR1S1M0dGlaZnUza0V2dWJYZDFSS0c0NDV3X0xNU1VqR0cwTnJqS3d4TzFRWTFTX2wwendZQkJrdnVyQWFxVFBqU0prY1ZLOFBqNDBqZVhCZkNNVi1XelA1ZEp5REJPWEVNeUY3akNvX2x0bl9VS2MwejlXU1pZdXhQUnBpeEhqdENwQ0w2Zk83NzhWMXpGSC1mbS1JMzF2ZTc0SDQ4QVpkR05DWWJibmlOYnM2QnZjemc?oc=5) |
+| Senate fails again to advance funding bill, shutdown likely to extend into next week - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQcDVxUDhYaC13RUM3eS1QOVZxNWl3OXdZOHdPMHMzUFM3QU11ZkxiLUJGak13ekIwSnV0WEZBVWRuajlpbjVhelNYNVdnamJOYUlCQ3V3QXFvMWpyUlMwT2ZhenluYkNFQzNRMUZUTHd1TFc1V0lkOTA1NFZYOEtaSGxhcWVQRWlzY0dRd0RnclU4eXJfWnlPbEpXQ19jNmVzVjQ0WVZUelBqcXdI0gGyAUFVX3lxTE5ISGczVlg2T2E5aFhBY20xWTA1a05aVEl5QUlHNUxvdjJFWXJ3blBXeHRtV2JGbEM2clVqSkdTd0lERjdiX0pBQ0RYU2pDODEwWTRKNjFtdHFWUDNzbVhVdmdaX3lQb21yTnQ5eHVDRXJTRGFIWW9US2VjbngtZVFDcmNuLThNUlBqc1ViWWRtczdUU2lqZ2pFSHJMamc5MURNNmZZS0c5ZTNBTC0yWHozQXc?oc=5) |
 | Hamas agrees to some of Trump's plan but seeks negotiations - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPYmlWbE80Rkt1dWk0YUZZM19UT1BjM3I2aTFmcDJkNlFKMnk5WDQzZTBkdXJFVFFZRWZSUWN2VWx0Z2Fid1dwTGFBLWFqVmY0OG9kMzRpY1hqc1BSam96alFNYld3SS1ZMDMxOFpXaV9PNnAzWEdXQ0pqYmlJLUNOcnM2U1RJS3FtX1c0eFBsSWdGbngwd2hIUGxKNzV1aG5YVTgweA?oc=5) |
 | Premier League: Man United & Man City to pay tribute to synagogue attack victims - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiZ0FVX3lxTE5EcTc1RFFlQzl6U2p1U3BMbWlGTjZOMU1Jck02V3l5RFR6THhtXzgyWXJaRVlwZEw2RkpCcXNadXBqbU5mcy11cG9oR1hYN21pSUduVXFZQUY5MjRlOXdsaUtSbUVULUU?oc=5) |
 | LIVE UPDATES: Chevron refinery fire in El Segundo extinguished; investigation underway into cause - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOendzVEZObm84MWJ5dDlJSVUxN1dIWVVpQUlsN2s3N2hrVndWd2tZckFFang1dE82Q3lYc3ZxS0hFR1c2aDdBVDlIcGRkYkVScmZJTWh2bXJnZUkzYll1OTFGT194czV5NzQ0b0syNkpWLXplaGdXaDRUUGRXX2pfTzladjA1X1Awam9QTUJmTWN1NUVUM0E1QVZrY1EzekJ0cHJRQjNFSEdnU2RXc1c1Zk9R?oc=5) |
