@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月03日 19:00:22（北京时间）**
+🕒 更新时间：**2025年10月03日 19:08:57（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | U.S. in ‘armed conflict’ with drug cartels, Trump tells Congress - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQYU9rZ3ZoZ3UtX1QyZlVTSktlV1BYMDNCWWtuSlJHNkpsZGJCeVRxWUFrSHpGbWdVbmtWcEhIUE92cVc2b215WkV4NnhGZW5TU0xoeUN2WWJiRWZFX0U5S3NjandtclYyTFZnRkZtRFl1c3liMFR4RXN3elZFVm9rZGppMzhDZFRHWW1GMWlydHNvYWdkbjZ5U2RkZ0x4OHZlY3ow?oc=5) |
 | Former Des Moines superintendent who was detained by ICE federally charged - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNdjRCaDJCZWVKLWZXWGw2TTMtZ0U4U3BNc3hqTmtybWNZTnVBWXo1TGtGYkl3WDFKbnM0MFlFTUZwSUFXUkQ2dHEtSlRRalc0MUdlVmxmVTM2OWc5bGJQLVVBTnNBUUh1UmZ4V2F2QlYxc05EeTBvVEhxWmFyRnBkRERLWEotbHlJUWdwdXpranNIRWp5alNjYzRUYjB4cFhvY3ZuSEtGcmhUMzlQ0gGyAUFVX3lxTFB6c2laS1dRdUtoby1LelhOeUN5VDBvb2swNFNBc3h5NktPSEZjY0FIN1V6dWlhbFU5YkpkVi1jZHFUelljOGVodmpYTmIwZy1sN0xLc2lOY21ibkZGSG10MmNpa2JrX29YazVhb080TGl3ZEp2UDI0Y0pFQl9JUkJqRm5STlBzbm9RR2hUMkJpbkNfdFktbzZ6eEc2NUtSVkdDZVI2UFhjbUZCUTk1UEJURGc?oc=5) |
 | Donations pour in for family of gunman in Michigan church attack - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5NRU1uUWZsN2o1RlpoTEJUZUxhYVJIRnphdlk2dHAwSm5ObVlhNVJ1ME1Kcm9YTkJHSFZUWjBOdTJNei1IcEZoa25ibEFvaXd1WVVvYk1uNEtvUdIBX0FVX3lxTE0zb05WNEFiQTQxLWVBdzUwbkIzUW1nQXQ0UThOM1Y0M3ZjYlF4cC12Zjhpb0NiaUlkTTdpNllKbnFWbDk0SHNsbHUtamJhSTJ6QmFNRTNzb2tiVkFCUFFn?oc=5) |
-| Robert Morris, Gateway Church founding pastor, pleads guilty in Oklahoma child sexual abuse case - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNMlpCNzAwZEpncUQwSXhrbWJ1VFAybmplckpqMHl5MzhHdGNURWpOaFBxdFAxd3NmaXhucGY5RXcxRU5LejJTc2o4T1hqS2JSQ0laQnB0YVhqUUFmYndzcnFRaVhEMFFEYnh6ZjJ2N1NZV0t0RmRvUE8zY1ZlMmtvRUZMNWl4X3dWZl9NQTdOdEI4VnNxd2c?oc=5) |
 | Trump administration cuts nearly $8B in clean energy projects in states that backed Harris - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPNXJkQXp1dFY2cUxnQWpSWW4yQzFiUE4zSzFZcUVtdVRKbFliWnlOVkdtS3VsU09ZRzEtTUlqLVE1Y1JQNTlkZnJPQXA1amVXN3BuaWZJT3RqQkRIWnN1RjlZXzVfcDBHSmhUMW5CSThtaWVldnhIVFNSZ2Y0UGZVcGd4MzB5d1FPT1pyZDZQb3dZT2hubG9TUEQzS0lJaEk?oc=5) |
+| Texas Megachurch Pastor Pleads Guilty to Child Sex Abuse - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQNnVXOVF0Y0ozV0c0cDdoM0lnOHdrS3lvc2IxNWpRNWhHbHVyR3VrVDdwaXV1dHl2SVk2YTRlQ0dmVHJiTnJFS0hNQm5WVDQya0JuZjBlZVNxUVlOMlRZd194enJGR2FoTENZT1oxa2xGOWttckRFZkRJYnByYklVRWNkTXJ6Zk82?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
