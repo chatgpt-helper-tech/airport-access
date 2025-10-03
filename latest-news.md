@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月04日 00:57:04（北京时间）**
+🕒 更新时间：**2025年10月04日 01:00:20（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | I saw evil as attacker tried to barge into synagogue, rabbi tells BBC | [阅读全文](https://www.bbc.com/news/articles/cwy9lkeqyzyo?at_medium=RSS&at_campaign=rss) |
 | Who was the Manchester synagogue attacker? | [阅读全文](https://www.bbc.com/news/articles/c0q7y72kppgo?at_medium=RSS&at_campaign=rss) |
 | 'Hatred and racism cannot tear us apart,' first woman Archbishop of Canterbury says | [阅读全文](https://www.bbc.com/news/articles/c2lxyxqzxkdo?at_medium=RSS&at_campaign=rss) |
-| Trump gives Hamas Sunday deadline to accept Gaza peace plan | [阅读全文](https://www.bbc.com/news/articles/cdxq7zp7002o?at_medium=RSS&at_campaign=rss) |
 | Dad given life for killing baby son in hospital | [阅读全文](https://www.bbc.com/news/articles/c62q1q1vd9yo?at_medium=RSS&at_campaign=rss) |
 | Keeping Up Appearances star Patricia Routledge dies at 96 | [阅读全文](https://www.bbc.com/news/articles/czdjegvjz3do?at_medium=RSS&at_campaign=rss) |
 | Tax wealthiest to end rip-off Britain, new Green leader tells conference | [阅读全文](https://www.bbc.com/news/articles/c708y9nq174o?at_medium=RSS&at_campaign=rss) |
 | Watch: 'I worried my music would dry up if I was happy,' Taylor Swift tells BBC | [阅读全文](https://www.bbc.com/news/videos/ce3y7kpdqy9o?at_medium=RSS&at_campaign=rss) |
-| Is it a cold, flu or Covid – and how to avoid the worst | [阅读全文](https://www.bbc.com/news/articles/cly1rryv2ryo?at_medium=RSS&at_campaign=rss) |
+| Trump gives Hamas Sunday deadline to accept Gaza peace plan | [阅读全文](https://www.bbc.com/news/articles/cdxq7zp7002o?at_medium=RSS&at_campaign=rss) |
 | Storm Amy danger warnings issued as 100mph gusts forecast | [阅读全文](https://www.bbc.com/news/articles/c98d2ep62z7o?at_medium=RSS&at_campaign=rss) |
+| Tributes paid to two Jewish men killed in attack | [阅读全文](https://www.bbc.com/news/articles/cly6eve5p06o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | Trump freezes Chicago transit funding, targeting Democratic areas in shutdown - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOdzU5elJNdVR4eWY3dFgxamMyWkhTa0tCeXM1VW1PSHZXYWJvMlF4SGQ1RUdJamJub0J3cDZfWGlNa0c4c0JXdUJCMFlMaGRIUktqTzViaVhlWFlXWmVqdFZ5RFhSWnRYTXdOWkRJZnRsSWxHYlp4MHhMYUNMd09mWnBhejhLWThGUTJlZ2VlVGE2UkQ4YXNjcnViS21HbzFneUl1LVpWSmxUUG9jNGc3LWRpUQ?oc=5) |
 | Supreme Court will consider overturning Hawaii’s strict ban on guns on private property - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPdGdEb2xaWDVORDBhbFdKX0lucmJtUXZjWFktS0hOLTZCZEV1QWRzVV9qMkIyQXZLQlZ3SjhicHJoX0VlaFVWQVFlOHZ6Z3QtTEpZeGRieUYxc0l6R1J5M2FMczg0UjlJMGJpM0V3X1JfSGRyVmhFdzlQVVExR1BtM3E1MjJ1QXBzRXhFdDFn?oc=5) |
 | Trump, Project 2025 and ‘Culture Wars’ - FactCheck.org | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFB3Mm5JRjNIbmlzT0JzZ1VnRDVZZ2RZS0NySkZrX3RiUmxGbFZSVGJtYm13X0JHSGw1T1lEeG54dEh1bU5LVUJnM2V2TnY3MDFjaVk5QU5POEgydGZPNVhOdFdXRmZLYW9GUmFfMC1rY0kxaWhXZmVxWUR3?oc=5) |
-| Duke Was Paring Back Diversity Programs. Trump Targeted It Anyway. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOa1d1ZlZWRXduVG5Ba2tNdnVyUGhycDE3eG56Z252RDhwMmFWb19CaV9mNmJzb3htTExxTFBQTTZUZmI5QkFQdUp6T2ZaZElwRFZ3UG5EcEE3elRYRVVERkhLby1IVDRXU3l2d0I1SnNKV0RVTjRrTEJFTkFKWm1OTHprdGY?oc=5) |
+| Former Des Moines superintendent who was detained by ICE federally charged - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNdjRCaDJCZWVKLWZXWGw2TTMtZ0U4U3BNc3hqTmtybWNZTnVBWXo1TGtGYkl3WDFKbnM0MFlFTUZwSUFXUkQ2dHEtSlRRalc0MUdlVmxmVTM2OWc5bGJQLVVBTnNBUUh1UmZ4V2F2QlYxc05EeTBvVEhxWmFyRnBkRERLWEotbHlJUWdwdXpranNIRWp5alNjYzRUYjB4cFhvY3ZuSEtGcmhUMzlQ0gGyAUFVX3lxTFB6c2laS1dRdUtoby1LelhOeUN5VDBvb2swNFNBc3h5NktPSEZjY0FIN1V6dWlhbFU5YkpkVi1jZHFUelljOGVodmpYTmIwZy1sN0xLc2lOY21ibkZGSG10MmNpa2JrX29YazVhb080TGl3ZEp2UDI0Y0pFQl9JUkJqRm5STlBzbm9RR2hUMkJpbkNfdFktbzZ6eEc2NUtSVkdDZVI2UFhjbUZCUTk1UEJURGc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。

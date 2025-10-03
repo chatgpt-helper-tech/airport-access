@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月04日 00:57:04（北京时间）**
+🕒 更新时间：**2025年10月04日 01:00:20（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | I saw evil as attacker tried to barge into synagogue, rabbi tells BBC | [阅读全文](https://www.bbc.com/news/articles/cwy9lkeqyzyo?at_medium=RSS&at_campaign=rss) |
 | Who was the Manchester synagogue attacker? | [阅读全文](https://www.bbc.com/news/articles/c0q7y72kppgo?at_medium=RSS&at_campaign=rss) |
 | 'Hatred and racism cannot tear us apart,' first woman Archbishop of Canterbury says | [阅读全文](https://www.bbc.com/news/articles/c2lxyxqzxkdo?at_medium=RSS&at_campaign=rss) |
-| Trump gives Hamas Sunday deadline to accept Gaza peace plan | [阅读全文](https://www.bbc.com/news/articles/cdxq7zp7002o?at_medium=RSS&at_campaign=rss) |
 | Dad given life for killing baby son in hospital | [阅读全文](https://www.bbc.com/news/articles/c62q1q1vd9yo?at_medium=RSS&at_campaign=rss) |
 | Keeping Up Appearances star Patricia Routledge dies at 96 | [阅读全文](https://www.bbc.com/news/articles/czdjegvjz3do?at_medium=RSS&at_campaign=rss) |
 | Tax wealthiest to end rip-off Britain, new Green leader tells conference | [阅读全文](https://www.bbc.com/news/articles/c708y9nq174o?at_medium=RSS&at_campaign=rss) |
 | Watch: 'I worried my music would dry up if I was happy,' Taylor Swift tells BBC | [阅读全文](https://www.bbc.com/news/videos/ce3y7kpdqy9o?at_medium=RSS&at_campaign=rss) |
-| Is it a cold, flu or Covid – and how to avoid the worst | [阅读全文](https://www.bbc.com/news/articles/cly1rryv2ryo?at_medium=RSS&at_campaign=rss) |
+| Trump gives Hamas Sunday deadline to accept Gaza peace plan | [阅读全文](https://www.bbc.com/news/articles/cdxq7zp7002o?at_medium=RSS&at_campaign=rss) |
 | Storm Amy danger warnings issued as 100mph gusts forecast | [阅读全文](https://www.bbc.com/news/articles/c98d2ep62z7o?at_medium=RSS&at_campaign=rss) |
+| Tributes paid to two Jewish men killed in attack | [阅读全文](https://www.bbc.com/news/articles/cly6eve5p06o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
