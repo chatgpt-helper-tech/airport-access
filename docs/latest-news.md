@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月03日 17:48:03（北京时间）**
+🕒 更新时间：**2025年10月03日 17:56:23（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | Pro-Palestinian protests 'un-British' after Manchester attack, home secretary says | [阅读全文](https://www.bbc.com/news/articles/ckgy8kvvkp3o?at_medium=RSS&at_campaign=rss) |
 | What we know so far about the attack and the attacker | [阅读全文](https://www.bbc.com/news/articles/cd63p1djgd7o?at_medium=RSS&at_campaign=rss) |
-| Rabbi and security staff who blocked attacker 'true heroes', says PM | [阅读全文](https://www.bbc.com/news/articles/ckg3499p18po?at_medium=RSS&at_campaign=rss) |
+| 'Our hearts are shattered', says Chief Rabbi Sir Ephraim Mirvis | [阅读全文](https://www.bbc.com/news/videos/c4gzy4p9xevo?at_medium=RSS&at_campaign=rss) |
 | 'The second he got out of the car he started stabbing anyone near him' - what onlookers saw | [阅读全文](https://www.bbc.com/news/articles/cn0rp05ykx7o?at_medium=RSS&at_campaign=rss) |
 | Top NHS boss backed surgeon whose failures contributed to deaths | [阅读全文](https://www.bbc.com/news/articles/cn0rpdjd39po?at_medium=RSS&at_campaign=rss) |
 | Taylor Swift review:  The Life of a Showgirl is a triumphant pop victory lap | [阅读全文](https://www.bbc.com/news/articles/cn4wpe5z52qo?at_medium=RSS&at_campaign=rss) |
