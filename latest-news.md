@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月03日 08:48:42（北京时间）**
+🕒 更新时间：**2025年10月03日 08:57:42（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump asks 9 colleges to commit to his political agenda and get favorable access to federal money - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNV2FMTG5LWmNSaUdTNnNEcFJUSkpySUlDeWczeDBKSzJiOGtWc2Rlb1lYS0dHQW4yclItRDBCRnBFS0xqVnpKUjdxcEk2UG5NN1RUVVd1Ykh3OC1tYnlQcm9WZVN2QTBhanRjRURRU0VsTXhWUEZPN2h1cnIzYlVzTkVTYUJjRFJTLWdsTE1GS2VSTy1ZX3pOSl9JTlIwSmI0djh5aVNlRzQ?oc=5) |
 | Trump ‘Determined’ the U.S. Is Now in a War With Drug Cartels, Congress Is Told - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE01cm5QV2JwZkY5YmZTYkg4c2FnaHJuQWc2cjhLWVlwZGp4V2JzQ3NFU3k2U2hwQlVUc1p3QWQ1SnlnT2FLV1NWZFJ2aEJaaWJuWVlhajhMOExyTlNwMlRpdzV3WTQyd3FVRko2UHVGMlROajdLOERNakdZMzB6eUE?oc=5) |
 | More turmoil at Virginia US attorney's office following Comey indictment: 2 top prosecutors fired, sources say - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOVzQzOVVBa1ZfU1ZXcUVuZUJ6NUZUTVlMem1TS3hkYlJuX1piVVRpUVAzYmtsd1l1ZVZQUnZxZlFJbHBLLTBnSFBKb0c4SUYwb0tYV0lZNWRuTjFVS3oyN081U0h2eUNvNWNIRWZmNVhLRmdDODNvaWJMNFJBRWpwTnROSTZTRlNJM3VzWnAzcTFYOTdacGpqNEFMVGl1WTZ5VjhBZi1MVUxud9IBrwFBVV95cUxPenFhLV9sNFhIZXBHMThUYy1raU5KcTZVdGZjVklVZTNiUVF3OXhhQURNckt1bV8xalNVVTF5VXQzTU52OXpPdHYyVHA5RXY0dVNHc3M3SjlYRU5uTTExZk1pampPUjc3cmRxSEhtbTl3MkFhdl9qc1JUZTFRZnBWMFlYZGFtR281Z18tcFNGcVJPMXpfQlJNV3RjWnUzZ1pTVW5SQnh5NWN6ZVB2c3Br?oc=5) |
-| Out-of-office messages blaming Democrats for shutdown sent on behalf of some federal workers without their consent - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNR0FfV1gwOERrdWRIYVpUTHZGVUpGMHRYWF9wTzR1em9wYW1ENURyVWJiMTd2ZGVCOE9KbkdOUjFSQkp6aXgxanpwVnViQXg3RHlyQ3FjTUFPX0loSVZZOHZldkh1b1UybEY2dC04emZGczV1cVdCdEU2ZTE5Ri11NjdXOVIyYjlaZ2E2Zk1Lcm1ZcHU3dXc?oc=5) |
+| Top Oversight Dem calls for investigation over White House shutdown messaging - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQR25iQzRNNGJfYTlBM0lmeFdNNFZyUDc0cmhvLTNrOFNwWFJ3ZGxRSFhrVTZZeXl5SlQxREI5MjNiUXp4bW9oZzgwQnA3S1Z3VXdMTlktTlV6RUR3RzBiZ0R0aWctQlJjNzlyZ0NYck9CX0xSOFBrWUxtNE9LRVRwN19NcXlsN3JKQU9mQUtTQXVaTnh4VnN3QjlJQ2RGUHBrZzcyZDd4QmRXZUk?oc=5) |
 | Former Des Moines superintendent who was detained by ICE federally charged - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNdjRCaDJCZWVKLWZXWGw2TTMtZ0U4U3BNc3hqTmtybWNZTnVBWXo1TGtGYkl3WDFKbnM0MFlFTUZwSUFXUkQ2dHEtSlRRalc0MUdlVmxmVTM2OWc5bGJQLVVBTnNBUUh1UmZ4V2F2QlYxc05EeTBvVEhxWmFyRnBkRERLWEotbHlJUWdwdXpranNIRWp5alNjYzRUYjB4cFhvY3ZuSEtGcmhUMzlQ0gGyAUFVX3lxTFB6c2laS1dRdUtoby1LelhOeUN5VDBvb2swNFNBc3h5NktPSEZjY0FIN1V6dWlhbFU5YkpkVi1jZHFUelljOGVodmpYTmIwZy1sN0xLc2lOY21ibkZGSG10MmNpa2JrX29YazVhb080TGl3ZEp2UDI0Y0pFQl9JUkJqRm5STlBzbm9RR2hUMkJpbkNfdFktbzZ6eEc2NUtSVkdDZVI2UFhjbUZCUTk1UEJURGc?oc=5) |
-| Donations pour in for family of gunman in Michigan church attack - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5NRU1uUWZsN2o1RlpoTEJUZUxhYVJIRnphdlk2dHAwSm5ObVlhNVJ1ME1Kcm9YTkJHSFZUWjBOdTJNei1IcEZoa25ibEFvaXd1WVVvYk1uNEtvUdIBX0FVX3lxTE0zb05WNEFiQTQxLWVBdzUwbkIzUW1nQXQ0UThOM1Y0M3ZjYlF4cC12Zjhpb0NiaUlkTTdpNllKbnFWbDk0SHNsbHUtamJhSTJ6QmFNRTNzb2tiVkFCUFFn?oc=5) |
 | F.D.A. Approves a New Generic Abortion Pill - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBQZ0VYdE1xQk9LTllyb3pWMG1TUWdhV19OcTVMbVBFbnl5dUNvOTEzeFNiWHNRZTN4YXQybGVVa1RIbGNCQ1ZldF9JOFVTdTMwblFKd1JyclExeUJBTzc1MnV4NjlQeFc2ajM1b2MzLW5RbF9DbkR0d1hqVDE?oc=5) |
+| Donations pour in for family of gunman in Michigan church attack - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5NRU1uUWZsN2o1RlpoTEJUZUxhYVJIRnphdlk2dHAwSm5ObVlhNVJ1ME1Kcm9YTkJHSFZUWjBOdTJNei1IcEZoa25ibEFvaXd1WVVvYk1uNEtvUdIBX0FVX3lxTE0zb05WNEFiQTQxLWVBdzUwbkIzUW1nQXQ0UThOM1Y0M3ZjYlF4cC12Zjhpb0NiaUlkTTdpNllKbnFWbDk0SHNsbHUtamJhSTJ6QmFNRTNzb2tiVkFCUFFn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
