@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月03日 15:00:48（北京时间）**
+🕒 更新时间：**2025年10月03日 15:09:39（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump eyes cuts to 'Democrat Agencies' in government shutdown - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNY0tnNkp6YVVJRmFQdjltNVFUSjZRVUFOd1JYRE4wajUxQ0pVdEoxU05UdnNTRG4wTlh0M0RWWG9KRTJkc1BCaVUzd3d4YUtxLXVVcXdDRGtyT2ZtU3lxRWZzTnZwc0pyMFBDc1hmX3lCc1Ewc3hEelA0eGRwMHEzWWMyN28wOEZCc25ncHlNUGFXT3Y4ZmJpU3R6LXU?oc=5) |
-| Large fire erupts at Los Angeles County refinery - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQSGlaZThhMkkxMm1zS1FDQWhPeXhjd01PRzZ2ajJ5cUNMeGxLNWNIbkVGd21mR0ltVDgzcTVPa29CSVRXZ0ZlZkFVMG1yeE9SdUJrVFRXOFlCcUlpRDRyT3ViQWwzTTRsNURSeGxtQWtuT1hhUmlRcU5DLWczVE51RXhjclFpT2prd1pXUFpGbFVsZ0E?oc=5) |
 | Manchester synagogue attack: What we know about the victims and attacker - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQS1lsUHlEOURyNlJpOUVjbHAzTWhzWGx1ZmZkbnp5NVRiaF81OG1KOUlWLXR2eVBlOUlLNm9iNWEta21YTXNTSTY4UUtHaXQ5SFR5Qm1kVzhHX2t1Y3hOcnNseDNDMlA0TWJqVTRIUU1kQjVxb3V4MUw3SmxENUpNZ28yQmF5Uk1sMVBaeC02VEpBcllTN2stWXh3ck5sTkRkdF9nbzJlVkFad0Q5Q1h6YXR6WXFCUdIBuwFBVV95cUxONV9fOXg1VlFSNEh5NEZmR0J4V3EyT2NEUm1fQlVDZm5KdHNCOGNVanQ3WTBaeU5aQnlibGVVRXp4Q1JrVGw4TGpUWlF6bGprMjBWS0dMMUlwd3hYUnFRZVVER19GcmRLck41VVdJTVROYjFGZmtvQ0gyR0cwb2NELXlOS2h5SUpxOWFvZE9GU29qcWJ4UkpZVWk3eTRGVGx6SVI3ZFBYS3VJQVVpWUxablpVR19LUlQ4OTlF?oc=5) |
+| Large fire erupts at Los Angeles County refinery - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQSGlaZThhMkkxMm1zS1FDQWhPeXhjd01PRzZ2ajJ5cUNMeGxLNWNIbkVGd21mR0ltVDgzcTVPa29CSVRXZ0ZlZkFVMG1yeE9SdUJrVFRXOFlCcUlpRDRyT3ViQWwzTTRsNURSeGxtQWtuT1hhUmlRcU5DLWczVE51RXhjclFpT2prd1pXUFpGbFVsZ0E?oc=5) |
 | U.S. in ‘armed conflict’ with drug cartels, Trump tells Congress - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQYU9rZ3ZoZ3UtX1QyZlVTSktlV1BYMDNCWWtuSlJHNkpsZGJCeVRxWUFrSHpGbWdVbmtWcEhIUE92cVc2b215WkV4NnhGZW5TU0xoeUN2WWJiRWZFX0U5S3NjandtclYyTFZnRkZtRFl1c3liMFR4RXN3elZFVm9rZGppMzhDZFRHWW1GMWlydHNvYWdkbjZ5U2RkZ0x4OHZlY3ow?oc=5) |
 | FDA approves another generic abortion pill, prompting outrage from conservatives - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5tX0pOQkR1X2h2NDM5SE8tZ2tjSU5tZEU2bndhVHdhOW1wa3gzak9wZ05jazUzejVQdk5pMXlkdW80aUxpQ2ZHQ01jM2tGc2VjTjBzeTc4YjFrOS1LajBOUmZfblRwd08zSFo3RHpDYURFc3pVQ3JSZXhn?oc=5) |
 | Gov. Newsom threatens to withhold billions from California colleges that sign Trump's 'compact' - KCRA | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxQT0h0emRRRHJiSGw1MzhTdWxqcllCTmRHNENoS3lJUjRRV0hCTzRpMmRRalBSdGp4RUNxT1hLQUhyc2FzR3Y1cS1nNmlsRVluUHQ2a3hlUmVNemxJX1FqQzNvMjJGeVFYd1pVUE5nYzl4MmJHUnlJYjkwQ0w4dEY1cUxYYWhLU1dWaVdHcGpmX215SGZ4d3l2OUdWM2pBMmNtc1RTUzQ2dXd0X2NxUjRiTm5VUHhscWV3dURvaU1wWDVGUGdUMVZ6YQ?oc=5) |
