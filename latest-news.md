@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月04日 01:56:41（北京时间）**
+🕒 更新时间：**2025年10月04日 02:00:21（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Massive fire, explosion rock Chevron refinery in El Segundo - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9WcF9oMjhKOEV0MDR5MWVtMVJlUzdvY0V0UTBhRmE1eGFBT2N0WEduU09Pbk1jdFdRYmJaUEdwcGI2WU9lM3pMSVA2N3lkMDRkczktZHNEUTZjb19xSzNuN0dHWWxXTUptQ3VZUk0yaWxfSXRNWUZZcHF1OA?oc=5) |
 | Iowa school district sues search firm that vetted superintendent arrested by ICE last week - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQRl9JSGlGWHZIcTRCM09tNnhwd3RieFd2eF8waFV6VzQ3U1ZjcE4wUG9GZkRzdW1vNENIREtRWTA1VDQtQ2h2NDE1d1Axc25FREIzQjNldXJoSC1OQmhkMFU2dWdibHN4Zlo2eVd2OXdKYkYyTkJaTXBhYUhOMmNaNjU3YmVweWZmakpOREJnRjNHTHRXTlg1c1drbHlaUFYwQkxPN1Nn?oc=5) |
 | Live-streaming journalist deported to El Salvador after months in ICE custody - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNb1VYbkNkNk5DanZSTmp4cDk2S1FYMWgxSXRHNm96TnVuaWZSWFZsSnhmOVJhZHpXWTUtNFIyVkgzNG4xV3VraFNKMnNqQU1Yd1U0aW8zOVlOTFlsQXZTSnJPaXpUenAwZzdHRXdPZ3VhMFh0NW9mM2VYYzI2dTUzNDNCMVdvbzV5WFhtaDdqUQ?oc=5) |
-| Supreme Court to consider Hawaii law restricting places where people can carry handguns - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE05UXpPMXpjVTBPaGgzUllvNW1PSDB0V2JGZUprS0VqaGszcEt4a1JjQlBLZ2pxUGZhREEtMTFoSFZCc2Y2REhTak9OVHRhSEYtTjg4M2xGZDc5cDFmNVNiV3F3N1pwaHA0dmfSAW9BVV95cUxQdlhUOUxGYVpXS1BaRF83cXdtY1E4RFdTZmhOOGN0eGlyRF9zdGxMaVV1aTdxRmRxWGFBeEI5NzZSVDRDNWMwZW84Rkh5WUtvV09BNW91dV8tMTBRUkZBMW9Qc2FZdUhtM3laazRTanc?oc=5) |
+| Venezuela criticizes 'illegal incursion' by US fighter jets - DW | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOVUNybk5CV1UyZmdKMHZMSTBVSm1Ba1VXUE4zYjYxTUJQUmFoYjRGX1cyQW9pa0Nkcko3dUxZc1ZJcTZCOGFDUG9MUDdISnhwSERnVGl5TGFILUhINzZ0QXYzNjZUaVdhLXNhRDlWRllWVDNSemNubXZ4SEgtbDBGQmxZaEhQa3RuOEp0YWg4UWlhM0Rp0gGUAUFVX3lxTFBaRDZ0SmhDb1JOTUVjMEM3ZzN1ck9uRm5fYzhHLV9hSFN2QlhZOUd5SURaVEVnaVZRV2VKWW5SeDZXLWFHSEVBQ0xvcC1wY0RKVXNNU0pPbkR4cFljbVdZbnYxMk4tbTE0WXljaWxpVS02VmFyakx1LTVUd2N6TVRMb2otT3dWQVBBd0tsalNrTGxfcV8?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
