@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月03日 10:08:13（北京时间）**
+🕒 更新时间：**2025年10月03日 10:16:56（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | Starmer vows to protect Jewish communities | [阅读全文](https://www.bbc.com/news/articles/czrpxgk6x68o?at_medium=RSS&at_campaign=rss) |
 | I'm not resigning, Met Police chief says after BBC investigation | [阅读全文](https://www.bbc.com/news/articles/c7017p581lro?at_medium=RSS&at_campaign=rss) |
 | I'll change the monarchy when I'm king, says Prince William | [阅读全文](https://www.bbc.com/news/articles/c20vyjevxe3o?at_medium=RSS&at_campaign=rss) |
+| Top NHS boss backed surgeon whose failures contributed to deaths | [阅读全文](https://www.bbc.com/news/articles/cn0rpdjd39po?at_medium=RSS&at_campaign=rss) |
 | Hamas military leader in Gaza objects to ceasefire plan, BBC understands | [阅读全文](https://www.bbc.com/news/articles/c708v2q5r09o?at_medium=RSS&at_campaign=rss) |
 | Does the UK go far enough to protect children from conspiracy theorist parents? | [阅读全文](https://www.bbc.com/news/articles/c749d9557j2o?at_medium=RSS&at_campaign=rss) |
-| Baroness Mone accuses chancellor of 'inflammatory' language | [阅读全文](https://www.bbc.com/news/articles/cd9y5nkxpzlo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
