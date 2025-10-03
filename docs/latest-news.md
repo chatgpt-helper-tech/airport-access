@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月04日 07:08:36（北京时间）**
+🕒 更新时间：**2025年10月04日 07:16:37（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | 'I lost my way' Diddy begs for mercy ahead of his sentencing today - Asbury Park Press | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxON3lKNHVmNkVoNEh0ZVg4bjFvYjNWZzJQTTB3NDVHRng3YVNjTWlFSE03N29iWDAwd0VkcHZqckdjcmZhUzEybFljQjBJQlctTlZjd1A2aUJEeGh4Tzd3cGM0SWctcHNlRFZkN2N4MkJGbk1ZZ0wwaUdXcEw4TjlWMjJackFfQVA0dXdDSnNySUxOWHltM2JBR1RhMzN4NWhLcTk5a3FiMmdobVRjQi1zM2xYc3F0TGEyS3c?oc=5) |
 | 8-year sentence for plot to kill Supreme Court Justice Brett Kavanaugh - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPMmxvUkZHWG9vZ1VSc1Ytc2lwNWhjQ0RBUVc5U0pqM2NWai1rX0FUOFotN2Nwbk43azBkYWZHWTlINU9KT3I2S1NVT09oV3JNOU9mOXJxckNNR3BDQUt6TUxSZzB0dzFTamN4MXQ1aWZyNml2eUd4VHdyVmJIX2g5b3VVSTZzSjdpRWpjQ2dwR25nQWJ60gGaAUFVX3lxTE13dTV3ZDR5LVhSc19yeElhSEFzZmdILUtGbV8tajZGa1ZhQmRnakFBNEZsMTJ1YkVpVlBVRGhCcEVpbWpBTGZfUkNNWS1raVdaU3hTREJkSzlOYVJLWEhHMHYwdnJGWTZqN1cyRlFMOHJWaF9vODBXd0FiSUpBZGtqNTNVdVc2eXEyR3V1RDZNUVFlckZZQmtCYnc?oc=5) |
 | U.S. deports journalist Mario Guevara to El Salvador, family says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNdTdEN19GWTA5X3JpUllFaEdzMEMzVHkwSHNFazU3RW1ldzRKZWR3QkJKc3oyTXhvRnEwVEtiRE1iaWRYSy1oMXFndWhiaXlnRzFoTnlaMmdYMmFHQjNuTEpCUHNTRmd2YWxKOHlmMEZTc1hONVZrQkM5V0VFaWktTEljRDZ4QlZUQURMbndrUGdLNFRBcThGMnU4eWxnaERK?oc=5) |
-| Trump called for troops in Portland. Here’s why Oregon’s governor was ready - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPUV9zNWt5ejlIcUFubVFrdGFacjJFVlc1emFpLWgtV1lJS2tKdWNMX09Xa0RzaWxjSlducUp0Qi1ZR01NbFZRTGY4dHpkZDB6ZnlrbE02N1ZnaHRvckVET3Z3UmxXSzVPbTdkUk1sZVZtb2x4UmVwVkxVSEtBVzdMNFlaaDZRUVV0c29TLVA5b0h1c0lKVnJQYmhIUjl2ejJIRUxOU0FIdUFZaDhZZVB5T0E3eTZzcWFtVmwzdnFR?oc=5) |
+| Newsom threatens state funding for California universities that agree to Trump demands - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPTFgxaVJzdGx4LUZEWUNzMDNJRkc3UFUwODJiSGxZU0NESi1ZUENkQ2ZLaWUzTUN2bjJ6SWRCWEhhR0pqcVAyY0FCQzVYYm1Kc2x5TldIRC1JazVsWmJHTDZ5b0N5OEhUQjNoQVBZbmlxam1WSEVFV3d4eXRPMmRlV2ZpSWs2R29oU1pQLTBMSll3Zw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
