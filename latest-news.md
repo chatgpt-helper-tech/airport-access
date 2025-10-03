@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月04日 07:00:55（北京时间）**
+🕒 更新时间：**2025年10月04日 07:08:36（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Hamas says it agrees to release Israeli hostages but seeks changes to US Gaza peace plan - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFA2NjBWaFQ4TVBpTTFib3d1UXJCemx6NTgyeVBjRTRaZ0hzdFJLMnBMUDZJOGRfZW5SdDFkRm9GWVJ6aF9MRVpYZkNkRmJxbEQ2eWxoeVpfU1lSUdIBX0FVX3lxTE1DdEc4UkluZVljekw3ekVSRjdCOWlNcU1ibGpQT2ZSNmkxeUx2MFh4OS00bDR1RmY1X0N2QUd2TWY2VElZZEctU0xuQTZyRkZMTmc3UW1kU3l2RnRYUUY0?oc=5) |
+| Trump tells Israel to stop bombing Gaza after Hamas responds to peace plan - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1vUzN3NUNhdW5KdGZNLW0tdndmRk0tU3p3aDhxMkdHLW84YVJCTGR0RnFvTl8zVHNLU090NTBfMEpzN3JFbUQ1VERoV1phR1RRX1g0QXhnWmk3ektQTFdNZFBDcm8ydERPWVI3U01vaGZfMHR5cy1jTm5qV1NYLVE?oc=5) |
 | Shutdown will stretch into another week as Senate standoff continues - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQQWR1S1M0dGlaZnUza0V2dWJYZDFSS0c0NDV3X0xNU1VqR0cwTnJqS3d4TzFRWTFTX2wwendZQkJrdnVyQWFxVFBqU0prY1ZLOFBqNDBqZVhCZkNNVi1XelA1ZEp5REJPWEVNeUY3akNvX2x0bl9VS2MwejlXU1pZdXhQUnBpeEhqdENwQ0w2Zk83NzhWMXpGSC1mbS1JMzF2ZTc0SDQ4QVpkR05DWWJibmlOYnM2QnZjemc?oc=5) |
 | Chevron refinery fire in El Segundo extinguished; investigation underway into cause - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOendzVEZObm84MWJ5dDlJSVUxN1dIWVVpQUlsN2s3N2hrVndWd2tZckFFang1dE82Q3lYc3ZxS0hFR1c2aDdBVDlIcGRkYkVScmZJTWh2bXJnZUkzYll1OTFGT194czV5NzQ0b0syNkpWLXplaGdXaDRUUGRXX2pfTzladjA1X1Awam9QTUJmTWN1NUVUM0E1QVZrY1EzekJ0cHJRQjNFSEdnU2RXc1c1Zk9R?oc=5) |
 | Supreme Court allows Trump to revoke protected immigration status for thousands of Venezuelans - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQVWhfRDdrRHFQTjRONjh5cUJJQkNVTE1VeE1DZENhY2s0MzBrRW5FMjNPREFaUUpRWlFSMm8tV2piM3dTTjU5ZGtWRTh6bXZUVDBIMHc4ZlRFNlpLUXRQUTBENGpXUXZVNnZSem9XY3UtZGZaS1padkYwbmxXYUM4S2FZMVN3LU1xUmdTZkpuVHk0Snc2U2JmaGZHYWFnNlFpVFpCZHdLODJwTXFEb2VERGdtU2NieWI2enlz0gFWQVVfeXFMTlRQZWFuXzlBZkNDTzJzVzV4d0pCcHJkUlRTMndlOVVuNUlLdGMyeWc3M2kyaDhwc2h4cmM5Y2J5ZUdEOVlmRE5GR1hKMHhwcU9acFRHdkE?oc=5) |
