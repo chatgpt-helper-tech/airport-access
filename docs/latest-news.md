@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月04日 00:00:55（北京时间）**
+🕒 更新时间：**2025年10月04日 00:09:04（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Last boat in Gaza humanitarian flotilla intercepted by Israel - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQYlUyWFpncDh0dTFlRUdqM2ZCVnJfOC1yV2pXLXlhSlZsNlBHQ2VUNGhMSTU4anE2RERtdGZNcUM2OUNHaUxBYWRqMm9tYTZ0M2VMQTg2NE5ydUduVDZmdGRoaTJZWVYtME1idXA3WDB6VVJFc1BHU05qU3ZnbmRobW1kMWpURzVCRkFqZlQ0UUJmcGpKQWpySFQyVjM0QnBfdXd5XzBZY9IBrAFBVV95cUxQbExOYnZPS2xZSjRBNFlFRzR1NHVrWDc1RTV1Skd6cWg1OEdqbzBZVEtkQ0xINHJQT05wS2xNZjdGdnJMTDB2VFhXYldZQWVJWnBNN1didkJFeTh6cXBhOXJkT3ozZWMtb19NSTR5RjhadjFPb1pFeWdxbTZBNlB3WW1uUzZKQkhaVnZuSHJPQ1RGLTItMWNBQ2RTcnk1OWhyZmNjb1ladE1mQzFp?oc=5) |
 | Newsom threatens state funding for California universities that agree to Trump demands - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPTFgxaVJzdGx4LUZEWUNzMDNJRkc3UFUwODJiSGxZU0NESi1ZUENkQ2ZLaWUzTUN2bjJ6SWRCWEhhR0pqcVAyY0FCQzVYYm1Kc2x5TldIRC1JazVsWmJHTDZ5b0N5OEhUQjNoQVBZbmlxam1WSEVFV3d4eXRPMmRlV2ZpSWs2R29oU1pQLTBMSll3Zw?oc=5) |
 | Supreme Court will consider overturning Hawaii’s strict ban on guns on private property - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPdGdEb2xaWDVORDBhbFdKX0lucmJtUXZjWFktS0hOLTZCZEV1QWRzVV9qMkIyQXZLQlZ3SjhicHJoX0VlaFVWQVFlOHZ6Z3QtTEpZeGRieUYxc0l6R1J5M2FMczg0UjlJMGJpM0V3X1JfSGRyVmhFdzlQVVExR1BtM3E1MjJ1QXBzRXhFdDFn?oc=5) |
-| Partisan Language Inserted Into Education Dept. Workers’ Automated Emails - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQcHh0bmlvUW4xb3oycUNXT2VQbm9KbUxqU3pOcGpZRENLNGJKRE5OcWhUaXBhWWRUcjAyeXR5cXlBbDdSVlFCR3YzNDBBWmJTS2JsR1d5YWxvcFo4QnZyczhPTVJXazVUMEctTmNUMTJjNjQ2cGJuMmVlNE5acXAxaTNQeHZWc1dvQ0E?oc=5) |
-| Trump embraces Project 2025 after disavowing it during 2024 campaign - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFB6d3p6ZzZwaExRbXRSc2lZZ2VpLXBSUnFUcll1MDlXTUVrS3NtX0dYVGVzTUJxam9Ea2Y3STlab3FCOWVCLWlRRFZ2OV80SWEtVFZlcWVFb3Vhakd3blRoOEhsNDZ3YVdwNUx4TnlNOGg?oc=5) |
+| Duke Was Paring Back Diversity Programs. Trump Targeted It Anyway. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOa1d1ZlZWRXduVG5Ba2tNdnVyUGhycDE3eG56Z252RDhwMmFWb19CaV9mNmJzb3htTExxTFBQTTZUZmI5QkFQdUp6T2ZaZElwRFZ3UG5EcEE3elRYRVVERkhLby1IVDRXU3l2d0I1SnNKV0RVTjRrTEJFTkFKWm1OTHprdGY?oc=5) |
+| Former Des Moines superintendent who was detained by ICE federally charged - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNdjRCaDJCZWVKLWZXWGw2TTMtZ0U4U3BNc3hqTmtybWNZTnVBWXo1TGtGYkl3WDFKbnM0MFlFTUZwSUFXUkQ2dHEtSlRRalc0MUdlVmxmVTM2OWc5bGJQLVVBTnNBUUh1UmZ4V2F2QlYxc05EeTBvVEhxWmFyRnBkRERLWEotbHlJUWdwdXpranNIRWp5alNjYzRUYjB4cFhvY3ZuSEtGcmhUMzlQ0gGyAUFVX3lxTFB6c2laS1dRdUtoby1LelhOeUN5VDBvb2swNFNBc3h5NktPSEZjY0FIN1V6dWlhbFU5YkpkVi1jZHFUelljOGVodmpYTmIwZy1sN0xLc2lOY21ibkZGSG10MmNpa2JrX29YazVhb080TGl3ZEp2UDI0Y0pFQl9JUkJqRm5STlBzbm9RR2hUMkJpbkNfdFktbzZ6eEc2NUtSVkdDZVI2UFhjbUZCUTk1UEJURGc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
