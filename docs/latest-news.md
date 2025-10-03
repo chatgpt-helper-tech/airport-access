@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月03日 17:33:33（北京时间）**
+🕒 更新时间：**2025年10月03日 17:40:48（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Gov. Newsom threatens to withhold billions from California colleges that sign Trump's 'compact' - KCRA | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxQT0h0emRRRHJiSGw1MzhTdWxqcllCTmRHNENoS3lJUjRRV0hCTzRpMmRRalBSdGp4RUNxT1hLQUhyc2FzR3Y1cS1nNmlsRVluUHQ2a3hlUmVNemxJX1FqQzNvMjJGeVFYd1pVUE5nYzl4MmJHUnlJYjkwQ0w4dEY1cUxYYWhLU1dWaVdHcGpmX215SGZ4d3l2OUdWM2pBMmNtc1RTUzQ2dXd0X2NxUjRiTm5VUHhscWV3dURvaU1wWDVGUGdUMVZ6YQ?oc=5) |
 | Gaza flotilla activists' boats intercepted by Israeli forces dozens of miles from Gaza coast - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQblhIc1ZsRlI3Vmx2RkxhdmljY2kzakxiTWd6MTBBckh3TGtLbmdvYy1GY1RISC1ZLXlvaGo1a1lESE5oZ1VOLTN6dU1RQ3VkTVdaUVdOLXBfc3puS1dzbGdKV0dUSVppVF9iMDQ1NmtLRUpmNFZIMmtEZ0VoM0ZHaXpnSdIBiAFBVV95cUxPdDhHX2NpWko2VUxMbU1NRzhlc2lVNGVIWWVRam1mNXo5YzdBdnZWNENDLWN6LXlsUEVDWndKX2lPdllBdlI5MC1RQzFLMjlBNnJ2eVA3QjRxQllmZ0YyS2RUcUdoRFN4c01yUmFoM3hWRGx0eEUxLUhOTnlIUFR1Y0dVcnd4S0Ny?oc=5) |
 | Former Des Moines superintendent who was detained by ICE federally charged - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNdjRCaDJCZWVKLWZXWGw2TTMtZ0U4U3BNc3hqTmtybWNZTnVBWXo1TGtGYkl3WDFKbnM0MFlFTUZwSUFXUkQ2dHEtSlRRalc0MUdlVmxmVTM2OWc5bGJQLVVBTnNBUUh1UmZ4V2F2QlYxc05EeTBvVEhxWmFyRnBkRERLWEotbHlJUWdwdXpranNIRWp5alNjYzRUYjB4cFhvY3ZuSEtGcmhUMzlQ0gGyAUFVX3lxTFB6c2laS1dRdUtoby1LelhOeUN5VDBvb2swNFNBc3h5NktPSEZjY0FIN1V6dWlhbFU5YkpkVi1jZHFUelljOGVodmpYTmIwZy1sN0xLc2lOY21ibkZGSG10MmNpa2JrX29YazVhb080TGl3ZEp2UDI0Y0pFQl9JUkJqRm5STlBzbm9RR2hUMkJpbkNfdFktbzZ6eEc2NUtSVkdDZVI2UFhjbUZCUTk1UEJURGc?oc=5) |
-| Trump administration cuts nearly $8B in clean energy projects in states that backed Harris - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPNXJkQXp1dFY2cUxnQWpSWW4yQzFiUE4zSzFZcUVtdVRKbFliWnlOVkdtS3VsU09ZRzEtTUlqLVE1Y1JQNTlkZnJPQXA1amVXN3BuaWZJT3RqQkRIWnN1RjlZXzVfcDBHSmhUMW5CSThtaWVldnhIVFNSZ2Y0UGZVcGd4MzB5d1FPT1pyZDZQb3dZT2hubG9TUEQzS0lJaEk?oc=5) |
 | Donations pour in for family of gunman in Michigan church attack - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5NRU1uUWZsN2o1RlpoTEJUZUxhYVJIRnphdlk2dHAwSm5ObVlhNVJ1ME1Kcm9YTkJHSFZUWjBOdTJNei1IcEZoa25ibEFvaXd1WVVvYk1uNEtvUdIBX0FVX3lxTE0zb05WNEFiQTQxLWVBdzUwbkIzUW1nQXQ0UThOM1Y0M3ZjYlF4cC12Zjhpb0NiaUlkTTdpNllKbnFWbDk0SHNsbHUtamJhSTJ6QmFNRTNzb2tiVkFCUFFn?oc=5) |
 | Texas Megachurch Pastor Pleads Guilty to Child Sex Abuse - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQNnVXOVF0Y0ozV0c0cDdoM0lnOHdrS3lvc2IxNWpRNWhHbHVyR3VrVDdwaXV1dHl2SVk2YTRlQ0dmVHJiTnJFS0hNQm5WVDQya0JuZjBlZVNxUVlOMlRZd194enJGR2FoTENZT1oxa2xGOWttckRFZkRJYnByYklVRWNkTXJ6Zk82?oc=5) |
+| Trump administration cuts nearly $8B in clean energy projects in states that backed Harris - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPNXJkQXp1dFY2cUxnQWpSWW4yQzFiUE4zSzFZcUVtdVRKbFliWnlOVkdtS3VsU09ZRzEtTUlqLVE1Y1JQNTlkZnJPQXA1amVXN3BuaWZJT3RqQkRIWnN1RjlZXzVfcDBHSmhUMW5CSThtaWVldnhIVFNSZ2Y0UGZVcGd4MzB5d1FPT1pyZDZQb3dZT2hubG9TUEQzS0lJaEk?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
