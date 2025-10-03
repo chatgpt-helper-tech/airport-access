@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月03日 16:50:00（北京时间）**
+🕒 更新时间：**2025年10月03日 16:56:28（北京时间）**
 
 ---
 
@@ -8,10 +8,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Pro-Palestinian protests 'un-British' after Manchester attack, home secretary says | [阅读全文](https://www.bbc.com/news/articles/ckgy8kvvkp3o?at_medium=RSS&at_campaign=rss) |
 | Rabbi and security staff who blocked attacker 'true heroes', says PM | [阅读全文](https://www.bbc.com/news/articles/ckg3499p18po?at_medium=RSS&at_campaign=rss) |
 | How the attack unfolded | [阅读全文](https://www.bbc.com/news/articles/c5yvzp070vgo?at_medium=RSS&at_campaign=rss) |
 | Eyewitness: 'They gave him a couple of warnings, he didn't listen, so they opened fire' | [阅读全文](https://www.bbc.com/news/articles/cn0rp05ykx7o?at_medium=RSS&at_campaign=rss) |
-| What footage tells us about the attack and the police response | [阅读全文](https://www.bbc.com/news/videos/cy4jegwzedxo?at_medium=RSS&at_campaign=rss) |
 | Top NHS boss backed surgeon whose failures contributed to deaths | [阅读全文](https://www.bbc.com/news/articles/cn0rpdjd39po?at_medium=RSS&at_campaign=rss) |
 | Taylor Swift: The Life of a Showgirl is a triumphant pop victory lap | [阅读全文](https://www.bbc.com/news/articles/cn4wpe5z52qo?at_medium=RSS&at_campaign=rss) |
 | I'll change the monarchy when I'm king, says Prince William | [阅读全文](https://www.bbc.com/news/articles/c20vyjevxe3o?at_medium=RSS&at_campaign=rss) |
