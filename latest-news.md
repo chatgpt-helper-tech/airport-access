@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月03日 10:24:18（北京时间）**
+🕒 更新时间：**2025年10月03日 10:33:49（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | FDA quietly approved a generic abortion pill ahead of shutdown - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPTWU5MGRjTGlFSE5LMGR1UnNmdGFTVjNKVWJBV0dDdGNBZWF5RUpMUFhiWUd6aWZDWDVlSVRuVlJOR3RSSzdlVVhBQ0ZQNURyT0hZY0VvcXoyaGFGd1N5T3c2cnFvR2FFLTZJQWRmdXRqS2J2U1owWlVhTVBSQW1peE4wOC1YM19kNFliRldKZjJFN2t4TFU2YzlzeV9Mb3YtUV9tZ2V30gFWQVVfeXFMTm5rUjg3Zk5aR2lhRE1mN1FBYjhFcHdDS3laMXVSRGVNZVhxZTY4OVJ4bHhSYkhfNDhMaVM1UmZud1BOdE5WY2FrbWc2YXlTOXJXRHVselE?oc=5) |
 | Trump asks 9 colleges to commit to his political agenda and get favorable access to federal money - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNV2FMTG5LWmNSaUdTNnNEcFJUSkpySUlDeWczeDBKSzJiOGtWc2Rlb1lYS0dHQW4yclItRDBCRnBFS0xqVnpKUjdxcEk2UG5NN1RUVVd1Ykh3OC1tYnlQcm9WZVN2QTBhanRjRURRU0VsTXhWUEZPN2h1cnIzYlVzTkVTYUJjRFJTLWdsTE1GS2VSTy1ZX3pOSl9JTlIwSmI0djh5aVNlRzQ?oc=5) |
 | Trump ‘Determined’ the U.S. Is Now in a War With Drug Cartels, Congress Is Told - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE01cm5QV2JwZkY5YmZTYkg4c2FnaHJuQWc2cjhLWVlwZGp4V2JzQ3NFU3k2U2hwQlVUc1p3QWQ1SnlnT2FLV1NWZFJ2aEJaaWJuWVlhajhMOExyTlNwMlRpdzV3WTQyd3FVRko2UHVGMlROajdLOERNakdZMzB6eUE?oc=5) |
-| Out-of-office messages blaming Democrats for shutdown sent on behalf of some federal workers without their consent - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNR0FfV1gwOERrdWRIYVpUTHZGVUpGMHRYWF9wTzR1em9wYW1ENURyVWJiMTd2ZGVCOE9KbkdOUjFSQkp6aXgxanpwVnViQXg3RHlyQ3FjTUFPX0loSVZZOHZldkh1b1UybEY2dC04emZGczV1cVdCdEU2ZTE5Ri11NjdXOVIyYjlaZ2E2Zk1Lcm1ZcHU3dXc?oc=5) |
 | Former Des Moines superintendent who was detained by ICE federally charged - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNdjRCaDJCZWVKLWZXWGw2TTMtZ0U4U3BNc3hqTmtybWNZTnVBWXo1TGtGYkl3WDFKbnM0MFlFTUZwSUFXUkQ2dHEtSlRRalc0MUdlVmxmVTM2OWc5bGJQLVVBTnNBUUh1UmZ4V2F2QlYxc05EeTBvVEhxWmFyRnBkRERLWEotbHlJUWdwdXpranNIRWp5alNjYzRUYjB4cFhvY3ZuSEtGcmhUMzlQ0gGyAUFVX3lxTFB6c2laS1dRdUtoby1LelhOeUN5VDBvb2swNFNBc3h5NktPSEZjY0FIN1V6dWlhbFU5YkpkVi1jZHFUelljOGVodmpYTmIwZy1sN0xLc2lOY21ibkZGSG10MmNpa2JrX29YazVhb080TGl3ZEp2UDI0Y0pFQl9JUkJqRm5STlBzbm9RR2hUMkJpbkNfdFktbzZ6eEc2NUtSVkdDZVI2UFhjbUZCUTk1UEJURGc?oc=5) |
-| Texas megachurch founder pleads guilty to child sex abuse charges - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNSC1DQWJBYTdYMjJfNzFacmk2YktfQXIzN2tEMHlJUmlMNVVIWlZrckdwYk81b0hycjc5eVcteklHaVN2djcwMTQzdXY1YXJFQmQzZWxRV25MS2x5a3dfSENzZ0I5ZlNab2NZczhzSFFDSWUtSm9FbkNtTkpKWkN5R1V3?oc=5) |
-| Weekend votes ‘unlikely,’ Thune says, meaning shutdown could push into next week - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOZXZqZFlZSjNPZ2dvakZRb1lqYXMyVFdtdEFLRUNpWnVRUUZoOFhDbDFoa21HXzNkUU9vbnZQc3BaU0VGTlBGakQ1SXpNakN2U1BrNk0wRE9fYW9qdmVIWnZBZW5tYXJ6NVdaUTdjMUFfcy1aTDR6ZjY1dUVldVNOMWJkbkRpVkFtaVFvTjJ4RzhScno1YlZ4Y08zbG4?oc=5) |
+| Thune digs in on 'stupid' shutdown: Talks with Schumer are 'not going to accomplish a lot' - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNOGE5eHd2Q0RlUWxoT0pyR05CajNReDN6SEVTUHFBd2xLeGxvMDJZaWxWMzZ3ZmlhM1RpMWQxMkd6Y2FjaDg3eTBkVjhTX3pzYjZUc3FqUFFYMkd6aUxkeXd4VTdHSURjUVlrUTN2SUNRU0xLTkxxRjdYS2hWVkxyRjFUcERmSUNTRHBkOEFnRmZLS29rVnRZTm40WWJHSDE3ZXBCa3ZIcXFBMzVIeTVWbFk1SVkwYXpfa3fSAVZBVV95cUxPeFFTc3RzVmNWTVV6TFlGZXJDSXRmcF9hdTItTVNXNVBYYnhVaW9kNlYzbk9lQ0NJci1YQVVXTjkyWnZ0UWRDdF9mUnRoT2MwTUFfSzdqQQ?oc=5) |
+| Out-of-office messages blaming Democrats for shutdown sent on behalf of some federal workers without their consent - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNR0FfV1gwOERrdWRIYVpUTHZGVUpGMHRYWF9wTzR1em9wYW1ENURyVWJiMTd2ZGVCOE9KbkdOUjFSQkp6aXgxanpwVnViQXg3RHlyQ3FjTUFPX0loSVZZOHZldkh1b1UybEY2dC04emZGczV1cVdCdEU2ZTE5Ri11NjdXOVIyYjlaZ2E2Zk1Lcm1ZcHU3dXc?oc=5) |
+| Texas Megachurch Pastor Pleads Guilty to Child Sex Abuse - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQNnVXOVF0Y0ozV0c0cDdoM0lnOHdrS3lvc2IxNWpRNWhHbHVyR3VrVDdwaXV1dHl2SVk2YTRlQ0dmVHJiTnJFS0hNQm5WVDQya0JuZjBlZVNxUVlOMlRZd194enJGR2FoTENZT1oxa2xGOWttckRFZkRJYnByYklVRWNkTXJ6Zk82?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
