@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月03日 17:24:24（北京时间）**
+🕒 更新时间：**2025年10月03日 17:33:32（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Pro-Palestinian protests 'un-British' after Manchester attack, home secretary says | [阅读全文](https://www.bbc.com/news/articles/ckgy8kvvkp3o?at_medium=RSS&at_campaign=rss) |
-| Rabbi and security staff who blocked attacker 'true heroes', says PM | [阅读全文](https://www.bbc.com/news/articles/ckg3499p18po?at_medium=RSS&at_campaign=rss) |
 | What we know so far about the incident and the attacker | [阅读全文](https://www.bbc.com/news/articles/cd63p1djgd7o?at_medium=RSS&at_campaign=rss) |
+| Rabbi and security staff who blocked attacker 'true heroes', says PM | [阅读全文](https://www.bbc.com/news/articles/ckg3499p18po?at_medium=RSS&at_campaign=rss) |
 | 'The second he got out of the car he started stabbing anyone near him' - what onlookers saw | [阅读全文](https://www.bbc.com/news/articles/cn0rp05ykx7o?at_medium=RSS&at_campaign=rss) |
 | Top NHS boss backed surgeon whose failures contributed to deaths | [阅读全文](https://www.bbc.com/news/articles/cn0rpdjd39po?at_medium=RSS&at_campaign=rss) |
-| Taylor Swift: The Life of a Showgirl is a triumphant pop victory lap | [阅读全文](https://www.bbc.com/news/articles/cn4wpe5z52qo?at_medium=RSS&at_campaign=rss) |
-| I'll change the monarchy when I'm king, says Prince William | [阅读全文](https://www.bbc.com/news/articles/c20vyjevxe3o?at_medium=RSS&at_campaign=rss) |
+| Review: Taylor Swift's new album is a triumphant pop victory lap | [阅读全文](https://www.bbc.com/news/articles/cn4wpe5z52qo?at_medium=RSS&at_campaign=rss) |
+| Watch: Taylor Swift on making The Life of a Showgirl | [阅读全文](https://www.bbc.com/news/videos/ce3y7kpdqy9o?at_medium=RSS&at_campaign=rss) |
 | Why we struggle to protect the young from conspiracy theorist parents | [阅读全文](https://www.bbc.com/news/articles/c749d9557j2o?at_medium=RSS&at_campaign=rss) |
-| Former Israeli hostage 'very worried' Trump's peace plan will not happen | [阅读全文](https://www.bbc.com/news/articles/cwyw2pgjg1no?at_medium=RSS&at_campaign=rss) |
-| Russia targets UK military satellites on weekly basis | [阅读全文](https://www.bbc.com/news/articles/c4gkyl1j6n9o?at_medium=RSS&at_campaign=rss) |
+| I'll change the monarchy when I'm king, says Prince William | [阅读全文](https://www.bbc.com/news/articles/c20vyjevxe3o?at_medium=RSS&at_campaign=rss) |
+| 'It was very tough but I love life' - ex-hostage whose family were killed on 7 October | [阅读全文](https://www.bbc.com/news/articles/cwyw2pgjg1no?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
