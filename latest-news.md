@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月04日 01:40:01（北京时间）**
+🕒 更新时间：**2025年10月04日 01:49:47（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump gives Hamas Sunday deadline to accept Gaza peace plan - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFA2NjBWaFQ4TVBpTTFib3d1UXJCemx6NTgyeVBjRTRaZ0hzdFJLMnBMUDZJOGRfZW5SdDFkRm9GWVJ6aF9MRVpYZkNkRmJxbEQ2eWxoeVpfU1lSUdIBX0FVX3lxTE1DdEc4UkluZVljekw3ekVSRjdCOWlNcU1ibGpQT2ZSNmkxeUx2MFh4OS00bDR1RmY1X0N2QUd2TWY2VElZZEctU0xuQTZyRkZMTmc3UW1kU3l2RnRYUUY0?oc=5) |
 | One victim in Yom Kippur synagogue attack in England was shot dead by police - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPWmRxZ0ItTnNGcXBoaWZLWTNkVnFNVmJPNGJZZHBOVTU1RExLdFRoaEpSNnpocVMwZkFQVXQzalVwbk0yODhoc3pXZ1dnd0c0Q2c3V3dtZHA5WjUyamw3T1VzTkFEYVRDY1dLNlhmNnI2UGVES2k2Y3A1RnVrdnQ0N1hHRGtKems4cUR1cA?oc=5) |
 | Newsom Says California Will Cut Funds For ‘Sell-Out Universities’ Complying With Trump Education Crackdown - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi9AFBVV95cUxQQTExY3l2cm9iakdhT2lsZkp2UEJndGkxdzBTV05oTEFNVURFYkxGODlHVnp0QV8tdS1oUWR1UUhEVmtHQVg5UkE1TnNzR3pzZVBSZGNMU3J0YmxPTHhFcklla0dsM0ZLMkp6T0wtUHI5dnlmV3I0cl9sSV9xOXdOZ1RxdTV2WjRxWHpFVzd5cjU0QzJwYzc0MXNncVhsNkV3RGZIMmplb2dWSWRqUV9QWTB4cGR6V1BEOVVuNklMRWY1ZHZmZ3N4NG5nczZIWkd2cGVZOVB0RTdxaWhtWE90NkJoRzRnT2xnNWZDTnR4dnE4MmhK?oc=5) |
-| Trump targets Chicago transit money in latest shutdown fight salvo - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPUHhSamNacTA1RWRab0h6NmZ4cUpMRTVxcVA4UDdFMktPamlTUm1lMEpmYmQ0MEdPTXhnYTFTY1FnS0J2QjJvajQyS0JRajlLb3hYeGhWVUtWd3hWRjBab1RUc0NGb0xTeHlNMURYd1JOZkpJaDhzMkl3bUllUGNUTjZCbVNZTmtNUS1KTmhaaEZ0QXFIdUhSSFpR?oc=5) |
 | Massive fire, explosion rock Chevron refinery in El Segundo - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9WcF9oMjhKOEV0MDR5MWVtMVJlUzdvY0V0UTBhRmE1eGFBT2N0WEduU09Pbk1jdFdRYmJaUEdwcGI2WU9lM3pMSVA2N3lkMDRkczktZHNEUTZjb19xSzNuN0dHWWxXTUptQ3VZUk0yaWxfSXRNWUZZcHF1OA?oc=5) |
-| Des Moines school district says it will pursue legal action against consulting firm after superintendent detained by ICE - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQTnpaOEFNdHBIck1BNlF6TVdjTG5JTEdjLVNGb203U240RGZ1M1lqRTZzNEViTmRGSWJseXZBc1diN1JDYjNoOGxjVnZOTHdNTF96VGktbkRCR1pJZ1RfelI5OEhkR3VuelRDa0FFZzRZRnZaYWUtRVpqenRyck9TS1RVRWZOYW16UXVUVjJKSFRYVEdPeEU0aElwWkxsZ3VGNVE3MtIBqgFBVV95cUxPZm5XSG1pZS1yYlFtdjZZR1Zab2VMLTlrODZrWmlqczhHOVBPTHA5RDV3QXBTaE1sQlBNNUtack85dm9WOWxxRjM1MkxiRG1DWHphdEpod2xjVFhtTWtTRG9IS1lfbmtpQ0NfMExzZ0RSeVc1M1B6S1JzUlR0aEprMkdJbWJiQmYtdC1zR3p6cDM0QUxFMXAxb0dZWmR6dTJGRGJfYWhWUTEtdw?oc=5) |
-| Supreme Court will consider overturning Hawaii’s strict ban on guns on private property - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPdGdEb2xaWDVORDBhbFdKX0lucmJtUXZjWFktS0hOLTZCZEV1QWRzVV9qMkIyQXZLQlZ3SjhicHJoX0VlaFVWQVFlOHZ6Z3QtTEpZeGRieUYxc0l6R1J5M2FMczg0UjlJMGJpM0V3X1JfSGRyVmhFdzlQVVExR1BtM3E1MjJ1QXBzRXhFdDFn?oc=5) |
+| Iowa school district sues search firm that vetted superintendent arrested by ICE last week - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQRl9JSGlGWHZIcTRCM09tNnhwd3RieFd2eF8waFV6VzQ3U1ZjcE4wUG9GZkRzdW1vNENIREtRWTA1VDQtQ2h2NDE1d1Axc25FREIzQjNldXJoSC1OQmhkMFU2dWdibHN4Zlo2eVd2OXdKYkYyTkJaTXBhYUhOMmNaNjU3YmVweWZmakpOREJnRjNHTHRXTlg1c1drbHlaUFYwQkxPN1Nn?oc=5) |
+| Supreme Court to consider Hawaii law restricting places where people can carry handguns - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE05UXpPMXpjVTBPaGgzUllvNW1PSDB0V2JGZUprS0VqaGszcEt4a1JjQlBLZ2pxUGZhREEtMTFoSFZCc2Y2REhTak9OVHRhSEYtTjg4M2xGZDc5cDFmNVNiV3F3N1pwaHA0dmfSAW9BVV95cUxQdlhUOUxGYVpXS1BaRF83cXdtY1E4RFdTZmhOOGN0eGlyRF9zdGxMaVV1aTdxRmRxWGFBeEI5NzZSVDRDNWMwZW84Rkh5WUtvV09BNW91dV8tMTBRUkZBMW9Qc2FZdUhtM3laazRTanc?oc=5) |
+| Trump targets Chicago transit money in latest shutdown fight salvo - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPUHhSamNacTA1RWRab0h6NmZ4cUpMRTVxcVA4UDdFMktPamlTUm1lMEpmYmQ0MEdPTXhnYTFTY1FnS0J2QjJvajQyS0JRajlLb3hYeGhWVUtWd3hWRjBab1RUc0NGb0xTeHlNMURYd1JOZkpJaDhzMkl3bUllUGNUTjZCbVNZTmtNUS1KTmhaaEZ0QXFIdUhSSFpR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
