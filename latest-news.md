@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月04日 02:41:40（北京时间）**
+🕒 更新时间：**2025年10月04日 02:49:23（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | White House freezes $2.1 billion in Chicago transit projects - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNSXZ6SUtFTjhJVmJlOVVtdFBPanZCX2owWUdDdGpGT2U0OUk0RDRHSmRLejhhaXlzSld5bUZYUTdfLUhQSjlEbXJGZ1VGY0ZTcXN4blZoSV81RXpVUkJJb2V4XzRSUnh5bmU2QXg5LWM0Vk5OVXY1S2VaSGhWMkdJODlFNmlJMjB0WjJadjQyNUJrYXdwTDRGWTZ5ZUZSWUVJbnVr?oc=5) |
 | Newsom threatens state funding for California universities that agree to Trump demands - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPTFgxaVJzdGx4LUZEWUNzMDNJRkc3UFUwODJiSGxZU0NESi1ZUENkQ2ZLaWUzTUN2bjJ6SWRCWEhhR0pqcVAyY0FCQzVYYm1Kc2x5TldIRC1JazVsWmJHTDZ5b0N5OEhUQjNoQVBZbmlxam1WSEVFV3d4eXRPMmRlV2ZpSWs2R29oU1pQLTBMSll3Zw?oc=5) |
 | Des Moines school district says it will pursue legal action against consulting firm after superintendent detained by ICE - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQTnpaOEFNdHBIck1BNlF6TVdjTG5JTEdjLVNGb203U240RGZ1M1lqRTZzNEViTmRGSWJseXZBc1diN1JDYjNoOGxjVnZOTHdNTF96VGktbkRCR1pJZ1RfelI5OEhkR3VuelRDa0FFZzRZRnZaYWUtRVpqenRyck9TS1RVRWZOYW16UXVUVjJKSFRYVEdPeEU0aElwWkxsZ3VGNVE3MtIBqgFBVV95cUxPZm5XSG1pZS1yYlFtdjZZR1Zab2VMLTlrODZrWmlqczhHOVBPTHA5RDV3QXBTaE1sQlBNNUtack85dm9WOWxxRjM1MkxiRG1DWHphdEpod2xjVFhtTWtTRG9IS1lfbmtpQ0NfMExzZ0RSeVc1M1B6S1JzUlR0aEprMkdJbWJiQmYtdC1zR3p6cDM0QUxFMXAxb0dZWmR6dTJGRGJfYWhWUTEtdw?oc=5) |
-| Shutdown stretches on as lawmakers continue informal bipartisan talks - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOTU4yUENlV3J3SU81bUNJbThwRlU2czlDU2tFbzAzSWJrc0JnSVhMWmdJYmVER3l1M0xsTzRYaGJRVlFjS2RNZ2FBeVRNZW00SmxOUVVZdU9fZkhzam4tc2xpRHVfeUh0NGZwUWJaWWdtdU5sbTYwX2UxM1ZRV1RleW1nNkJTU09ZQXM0MlRBN1A1Z1hSa1E?oc=5) |
-| Conservative influencer Nick Sortor released after arrest in fight outside Portland ICE building, police say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9hWjEwa282bDZZOC11QzlxMmR3d05xQmFEMWNUZVk1bE56ZUJPTWVEX0F2eHdCN0l1VnFpd3ViNlVoNGgwT1lIZy1rVl9lNmRVV3ZNcW1JaVFzZkMtWW04RXR3V2VBa2FEaWFBSWZEbWRfLWJqc1l4LXF3c28zNW8?oc=5) |
+| Portland’s ICE office has become a character in real-life drama - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQU0IyUE53YUNLRWpIQWhJRGxGN1djX3F1a3pmX19yVkNPeUtzY3pfcEtIVjFSRkVESi1Mbzc2XzVLd1hHT2NrMjVJYXBOMFF6bS05SjNCZkdUbjBhNWJxN3BFX0pHdkRVUG5qTnF5NFpYOE5yOEEwREtmaTg2WEdzem1GWU9iVUx2dXRMNmg5RHIzdEhCOF80OUdPSzRVTmNScW50MGZXTXNZSUwwMnRSNQ?oc=5) |
+| Fired federal prosecutor tapes a note about duty to the door on his way out - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPRXd2LTRzLURhUklSVjZ0a3FsUy1KWVNVa18yWjFwZm9CYnJtbEllbE5nS2xNcFA5Q2NvYzRzajZBc2haRTNvaUNIMjJXNkkzekRwZ1NkejNKNDU5akJnaWJoemwzdmlrMWdyZGJsOWdGZFFYa3ctS2hqemJDTm5ndGEyWHFjLVdwWVpDMHJJSHFJUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
