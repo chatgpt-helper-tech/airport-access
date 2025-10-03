@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月04日 02:58:01（北京时间）**
+🕒 更新时间：**2025年10月04日 03:01:24（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump targets Chicago transit money in latest shutdown fight salvo - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPUHhSamNacTA1RWRab0h6NmZ4cUpMRTVxcVA4UDdFMktPamlTUm1lMEpmYmQ0MEdPTXhnYTFTY1FnS0J2QjJvajQyS0JRajlLb3hYeGhWVUtWd3hWRjBab1RUc0NGb0xTeHlNMURYd1JOZkpJaDhzMkl3bUllUGNUTjZCbVNZTmtNUS1KTmhaaEZ0QXFIdUhSSFpR?oc=5) |
 | Newsom threatens state funding for California universities that agree to Trump demands - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPTFgxaVJzdGx4LUZEWUNzMDNJRkc3UFUwODJiSGxZU0NESi1ZUENkQ2ZLaWUzTUN2bjJ6SWRCWEhhR0pqcVAyY0FCQzVYYm1Kc2x5TldIRC1JazVsWmJHTDZ5b0N5OEhUQjNoQVBZbmlxam1WSEVFV3d4eXRPMmRlV2ZpSWs2R29oU1pQLTBMSll3Zw?oc=5) |
 | Des Moines school district says it will pursue legal action against consulting firm after superintendent detained by ICE - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQTnpaOEFNdHBIck1BNlF6TVdjTG5JTEdjLVNGb203U240RGZ1M1lqRTZzNEViTmRGSWJseXZBc1diN1JDYjNoOGxjVnZOTHdNTF96VGktbkRCR1pJZ1RfelI5OEhkR3VuelRDa0FFZzRZRnZaYWUtRVpqenRyck9TS1RVRWZOYW16UXVUVjJKSFRYVEdPeEU0aElwWkxsZ3VGNVE3MtIBqgFBVV95cUxPZm5XSG1pZS1yYlFtdjZZR1Zab2VMLTlrODZrWmlqczhHOVBPTHA5RDV3QXBTaE1sQlBNNUtack85dm9WOWxxRjM1MkxiRG1DWHphdEpod2xjVFhtTWtTRG9IS1lfbmtpQ0NfMExzZ0RSeVc1M1B6S1JzUlR0aEprMkdJbWJiQmYtdC1zR3p6cDM0QUxFMXAxb0dZWmR6dTJGRGJfYWhWUTEtdw?oc=5) |
+| LIVE UPDATES: Chevron refinery fire contained in El Segundo; investigation underway into cause - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOendzVEZObm84MWJ5dDlJSVUxN1dIWVVpQUlsN2s3N2hrVndWd2tZckFFang1dE82Q3lYc3ZxS0hFR1c2aDdBVDlIcGRkYkVScmZJTWh2bXJnZUkzYll1OTFGT194czV5NzQ0b0syNkpWLXplaGdXaDRUUGRXX2pfTzladjA1X1Awam9QTUJmTWN1NUVUM0E1QVZrY1EzekJ0cHJRQjNFSEdnU2RXc1c1Zk9R?oc=5) |
 | Conservative influencer Nick Sortor released after arrest in fight outside Portland ICE building, police say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9hWjEwa282bDZZOC11QzlxMmR3d05xQmFEMWNUZVk1bE56ZUJPTWVEX0F2eHdCN0l1VnFpd3ViNlVoNGgwT1lIZy1rVl9lNmRVV3ZNcW1JaVFzZkMtWW04RXR3V2VBa2FEaWFBSWZEbWRfLWJqc1l4LXF3c28zNW8?oc=5) |
-| Fired federal prosecutor tapes a note about duty to the door on his way out - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPRXd2LTRzLURhUklSVjZ0a3FsUy1KWVNVa18yWjFwZm9CYnJtbEllbE5nS2xNcFA5Q2NvYzRzajZBc2haRTNvaUNIMjJXNkkzekRwZ1NkejNKNDU5akJnaWJoemwzdmlrMWdyZGJsOWdGZFFYa3ctS2hqemJDTm5ndGEyWHFjLVdwWVpDMHJJSHFJUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
