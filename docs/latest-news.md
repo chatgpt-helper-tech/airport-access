@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月03日 13:56:48（北京时间）**
+🕒 更新时间：**2025年10月03日 14:01:52（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Pope Leo XIV says those against abortion but in favor of death penalty are "not really pro-life" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFBJSkdINWZadHVmSUk5ZF9MQjc4NHpZZzBsenVPc2c1ZHZkTUVzZ01oZmI0NzFPMzVySkhXampINW56eDdtRDI4ZGNUc1Vua3ktWVduOHFiSXp2U0h0YU8tbk9hZy1rdkZaWmYxNnExeDRQcHM0YXZ6Y1BR0gF_QVVfeXFMUFJSSnN5Qkdfbld1bzFuRXIyM3hkYkZKUFAtWmpmOTNiMl9GcGNJejcwN2FGOEJMdmpDTDY3ZzlhYVpoSExYeFd4clhvTm9VUnRDNldkSDE5Umg0MDNSZU03azd4VnFLdXdjWDBOWDVyLWNLSnlXdXN1c196SDFucw?oc=5) |
 | Former Des Moines superintendent who was detained by ICE federally charged - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNdjRCaDJCZWVKLWZXWGw2TTMtZ0U4U3BNc3hqTmtybWNZTnVBWXo1TGtGYkl3WDFKbnM0MFlFTUZwSUFXUkQ2dHEtSlRRalc0MUdlVmxmVTM2OWc5bGJQLVVBTnNBUUh1UmZ4V2F2QlYxc05EeTBvVEhxWmFyRnBkRERLWEotbHlJUWdwdXpranNIRWp5alNjYzRUYjB4cFhvY3ZuSEtGcmhUMzlQ0gGyAUFVX3lxTFB6c2laS1dRdUtoby1LelhOeUN5VDBvb2swNFNBc3h5NktPSEZjY0FIN1V6dWlhbFU5YkpkVi1jZHFUelljOGVodmpYTmIwZy1sN0xLc2lOY21ibkZGSG10MmNpa2JrX29YazVhb080TGl3ZEp2UDI0Y0pFQl9JUkJqRm5STlBzbm9RR2hUMkJpbkNfdFktbzZ6eEc2NUtSVkdDZVI2UFhjbUZCUTk1UEJURGc?oc=5) |
 | Donations pour in for family of gunman in Michigan church attack - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5NRU1uUWZsN2o1RlpoTEJUZUxhYVJIRnphdlk2dHAwSm5ObVlhNVJ1ME1Kcm9YTkJHSFZUWjBOdTJNei1IcEZoa25ibEFvaXd1WVVvYk1uNEtvUdIBX0FVX3lxTE0zb05WNEFiQTQxLWVBdzUwbkIzUW1nQXQ0UThOM1Y0M3ZjYlF4cC12Zjhpb0NiaUlkTTdpNllKbnFWbDk0SHNsbHUtamJhSTJ6QmFNRTNzb2tiVkFCUFFn?oc=5) |
-| ‘Those were not my words:’ Out-of-office message automatically updated for furloughed Education Dept employees - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMi-wFBVV95cUxNeFpzclVyeFlWS3NnMTBjZXk1Vkx6M1p3Mm5fY0RIWlowZ3RCVkxGZHJMaFZadGNvTll4dXcxZjNQTkpVRExiOHZFUXJVR2JSWTlxdDZJR1ByVF9mQjZZY1VFdDFueXpPeEhRQnlVbHQzTThybTlVUklleE9laXd5b3lzeU9yZ2MySkh2anlQajcybzNJejlsY0RaMW1KWUFKZW1EdmNkTXlkaXNGVU55cF9LYnpyVklUVDI2X0NwVEhjUlFCUzJXQXREOFdwUEdJdmw3RTJqQllBaWk3cUZjdTktdXRkc1FPRnowRVlGc2FZaGVMZzltSXl1MA?oc=5) |
 | Texas Megachurch Pastor Pleads Guilty to Child Sex Abuse - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQNnVXOVF0Y0ozV0c0cDdoM0lnOHdrS3lvc2IxNWpRNWhHbHVyR3VrVDdwaXV1dHl2SVk2YTRlQ0dmVHJiTnJFS0hNQm5WVDQya0JuZjBlZVNxUVlOMlRZd194enJGR2FoTENZT1oxa2xGOWttckRFZkRJYnByYklVRWNkTXJ6Zk82?oc=5) |
+| American Soldiers in American Cities - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPV2k4T3RJaG13UjF3X2lLbl8xY3F1UTBPR2FET24tOU43bEQwT1dQb2VTNWhmekI0cXprVXM5dHJRWUx3aXZtYVUtMUVQY3FubVhnclJ6WDU2Z0tHdE9LbVU1MEVmNUpoTUZJbmY5cXpsS3NPWk5wMDBqX1VEYlZxRHpjdm03SndTM2l5NGhIendFWTFrV2Rna1JYU2pmcTNpX3BtNU93?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
