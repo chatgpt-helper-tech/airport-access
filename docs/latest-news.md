@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月04日 11:09:35（北京时间）**
+🕒 更新时间：**2025年10月04日 11:18:01（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Karoline Leavitt says White House must cut spending due to shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQUFYyb2xiek93ZHFsc3htNG5pVnAwS2VfSXh0LWFZQndpRWlOOHhselBXMmVleE9OSXVPNnFzZURuWFp6c09vRDFPSmZLdmNMcUlpeUlpNFJzdWI5YWxvWEQ1MUhYcTAyTlVnbWUycW9wNHJCOXRYOGhhU2xLQUVlVlA1WHdIRXhnUDZ6eUp3aGs5eDlZYXRPOQ?oc=5) |
 | US carries out new strike against alleged drug vessel near Venezuela - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOc1ROZzA1QVJ4ejJGdXlWcHZtcHo2YjhiQlFFMXFkOUg4U2xOTEtsLUJ1NHh0b0pqSVYxNDJGZV92ZFNlOVY0ZXVONkdPY1B1UFUtWEw2X3VoU2RVREFWanhtTzJ1V0hfZmsydnlZUWlzSHNCeGRraHZmaWlfRmhtZGE2a3JwUE5KVFpWVzAtRVAtRS1Wa3JOaklaX0h4alN6WFFXeGVWUEJuUWNHejBCajdyZFpfM2pRUE5z?oc=5) |
 | Government shutdown to continue into next week after Senate votes fail again - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPNU4yeVBvLUY0amhCMUhzWWVWVUpqV2huTXBVNUdpWFlLWFJQY0ZFNnhscUVtaUxLaW5IUEV4MzVRS0Q0RVFocy1Oemt5d3hFY3lyYnNaOU5KUjJpLWlocndob1VmQ1lnSTdSN1FocXE3SjEwVWV3MFJ4Uk5HR2prcVAxSDR4SjlhVzlwWGxmd9IBlAFBVV95cUxNbV94Wmp6ODdZT1VsYURFTEtUbzZWZ0ZfT3NZbXpzNUt0cGJvbnctbk5KUXBaUEE2U29pb1BCc0JMR2NxUDZZb1hYQTY4djNCSHhLY2ZQU2wzeWRWM19aX1liTVRic243SHhCY3F4eGp3MHNuaDZjQnJVaHJPMzN6allqaXg0STRLNXZCSTJxV3ZScW9a?oc=5) |
-| Woman sentenced to 8 years for attempting to assassinate Brett Kavanaugh - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOQlZ3ZVlPQm5JWnlSbDVRbDA4eWxhc0JtYk5ManVJbVJ0NFB3RDBtcXVzRDJrTmFndE9BTEhvWHU2Rjd1bWR5RVF0enJXRlpIZnFwZ3dYSDlyU29DNDcyM3l5V0lyaW9Ga2ZTdjJiTHdTc0NtTDlBTXJMNzFLLTFURkV1a1FsZjR2YTc1eHFQZGxPaEYtMlJGaEhpVkY3cnJWRElJbkc1S3RLN0VacWtF?oc=5) |
-| Marc Rowan, a Billionaire Financier, Is Behind Trump’s Deal for Universities - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNZ2dGaDFNUXBrdFhDbF9EcWNkQS1NaHd4cV9UUWZRaGZxVlBYOXZHV0o5b0NwNl9KbFdLUUZhMXZjbVlEbTFaVkZjNTROa0Qzd3JBSDEyVFpHRG9mbmpCN1dYbnp6UFEyMjl0RlNGQXBaUzJuYXM2MUhZeTJQaV9NVTJpYWJFUTlySThJMDktelQwNlU?oc=5) |
+| Justice Kavanaugh’s Would-Be Assassin Sentenced to 8 Years in Prison - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPT3lVQnlGSkFmb3R4X2RKd0RIS2h6UVFkZllkQk9hQXIzcjhRWnd3TFNCQkhnOXQ5emF6QmYzRUxNMDlGY3dwV01RY19OOGxEcjllRnU4cnpScS1nRXJoN3RoT1ZQNjBHZmkxN05nTjBQQ1k2UlkxajJjMG9KemJHVFp3LV9SMkJVUnhQYUFVU1NyWjg?oc=5) |
+| Newsom threatens state funding for California universities that agree to Trump demands - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPTFgxaVJzdGx4LUZEWUNzMDNJRkc3UFUwODJiSGxZU0NESi1ZUENkQ2ZLaWUzTUN2bjJ6SWRCWEhhR0pqcVAyY0FCQzVYYm1Kc2x5TldIRC1JazVsWmJHTDZ5b0N5OEhUQjNoQVBZbmlxam1WSEVFV3d4eXRPMmRlV2ZpSWs2R29oU1pQLTBMSll3Zw?oc=5) |
 | Trump called for troops in Portland. Here’s why Oregon’s governor was ready - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPUV9zNWt5ejlIcUFubVFrdGFacjJFVlc1emFpLWgtV1lJS2tKdWNMX09Xa0RzaWxjSlducUp0Qi1ZR01NbFZRTGY4dHpkZDB6ZnlrbE02N1ZnaHRvckVET3Z3UmxXSzVPbTdkUk1sZVZtb2x4UmVwVkxVSEtBVzdMNFlaaDZRUVV0c29TLVA5b0h1c0lKVnJQYmhIUjl2ejJIRUxOU0FIdUFZaDhZZVB5T0E3eTZzcWFtVmwzdnFR?oc=5) |
 | North Carolina governor signs criminal justice bill into law after Ukrainian refugee’s death - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOS0Z3cUF1TzUtSDZRVUdrTGR4MkM3bHNlLVk4ZDFzNjR6RWtNamV4V3g3Z0lFUUFkUlppZWdvR3BWbGlnVm1FV1dpVWxrZVFBazdSUl9mTnU5dHF2ZVhEX1FtWGl4b3ROWkN2WjhoWHdVVmZjZXUtbFV0S0VpOVVrQmtCQ08wcXpGWGNNNEczVmFGQlJ3VVJkRlBreVp0c3RfQmVVTUhqNzZPbFNjUER3?oc=5) |
 
