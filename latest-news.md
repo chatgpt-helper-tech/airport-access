@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 04:25:16（北京时间）**
+🕒 更新时间：**2025年10月05日 04:33:26（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | US Border Patrol raid sweeps in citizens, families as Chicago crackdown intensifies - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPckxoUE53Z29JR1JoX3QwN1dvZzNWNER6TVdpY2tLa002NEZ1TjctcGhpOUlKcGVMMi03OXpHNHdRZm1GM3FZaHZaOGdhWTZYdFVpNFFMUFB4WUc0UmtfelJqa2ZLMzM3Q19vSU5UQXhEbzdGNzFiV0dEYVk5b0tObWdsUUI3VUVxZDZEamE0eC14dkdheTkzR0JsbndaVWVmWEhQc2ctWXJPNGtNSC1IamZybk5Cb2ZSdWxCeVhn?oc=5) |
 | Democrats’ defiance on shutdown shows a new, tougher approach to Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeFlIal9SVEw0RzNQY0xUNWRGMW52VUQzNXZsQy1iZFZvclJ0UmxMYy1neVNfX3VTVVdObTNXNTJYX1VuWlRJTEcxaTFBT0ZYcjBYUmJNVWxkSkVmSExfQloxR0lxc0lLcjJuVld4T2Y2SkR6djB0WVJKU2NrWVgzRWgwWlZMaTMwZ2lmdUYwdw?oc=5) |
 | More than 300,000 Venezuelans at risk of deportation under new Supreme Court ruling - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQMFZmZ0cwbTNmQ0V1MVRxTW5BUzJZVVBuZ1ZfUThzeV9wWVF5Q3VpeGZVZ2t3QTJzMVpaclB5VUkxcHl3UWhEcEthWUhfcE9tcldtOTBIRzVhV2VjS0ZEa216LWZ1V0ZYMzh5eWY1VlFWUjNhcmItRTlJdVpEX1FDSUFBTU1FVXNEUHc?oc=5) |
+| How California struck a landmark law to rein in rogue AI - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNZU52dk9vTDExMGxBeG9fTDdwQmhlbU9RQlZtRDI0Xy0xRlIyQldfYldYYndEUHJwam84RHhqQ2NoZE5zclA4UFJTeERVSFJ2VHhYdWl4U3g4VlV4STFnNVNyVWFTQW8xS0U2RGlZVXJscGZSeFlkZWliNjhHTmJYMjUtRUktTlk?oc=5) |
 | Mormon church leaders encourage forgiveness after Michigan attack - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPVjFIemM1OFRMZnY2VTJrWHhXOXEyZVhEWWc0aFp1SmJSWmh3bVJvczRnd1NBQ1N6Q1UtT045NGJTdDZYMTRxNVZUZVU2VUJPQm1mNEYzMDdDbUk3MVJOUVU0U2Z5Zm9nYlp3b0lvajJtcnM1V1VUMVJQTC15QndjdVFwUmJmRExuTjNKWHkzVENiQ25DemJReGdwM2J4NEFNRnNv?oc=5) |
 | Simi Valley resident gets over 8 years in prison for attempt to kill Justice Kavanaugh - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxNUUJSVW1kUUFTTW5ydW9DOVYyZV9lSG5UQlllZGJ6cGFjQzdVV2ZTdXNJSVp2cTV0Mko0Vm9LeXVCVDdaaUVNUU5LSVUyNEgwTzVZODFmSW0tRVZQTFppRzRtRzBtVUlxb25JQ3BESlduanFoTUJfZHNuek93ZEVtY2RnM0Y2dkhVR0lDeWhaLW1Rb2V3OEY0dmxkV2Q1VWhWa3h1NWFva0w5WE1IaGp6RzhPc2J4S0dpZkk4WGthU1VzTnVqWHhZUGxrSDhlcTh0MlBMWnNxMnI3WDFKWWVj?oc=5) |
-| 24 hours outside Portland’s ICE facility: Is this what ‘lawless mayhem’ looks like? - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPX1FVUjVMVjdSS2FZbEdiRlBEVmh6OERQX0E0Nnd6X3lZWnJEWVNRUkN0OFFPVGNzWC1abDNNUTdrUHFuUC1yTVZSRkNEY3Z5LThhVVdSZlVzMFpLbzdKT2d0cTZsQlc5VEVpZHJaTjRlT2dVdXNTbTZIb1kzWElVYTlwSlB1LTNZaU54N0VkYmRWWWtVa0xjU2NmaWozYTl2WXR1eWFCMVNLcFdaS0hMQ3JKZjBNR0hrRUpYWTlNWHBrQdIB1gFBVV95cUxOdjJzSmJDV3NuWXR3VWZGSHlxSEN3TWpXYTZ6NElIekFuQ2pibTNETTEyeXhxX2d6WkJ5U3hFdF9lZVA1aTZKZVlZb2l6SzlSTGlDMnBacVJmR0xWMDNsUEM0X2NaUkhLWjhUZ2djUkNOR0t2TURHV0R0NlFIaVdUYjdyaUFMM3U2SU12UldHcHd4N1JmYlJWR0JKVFIwMmRINXl1YlVwdm9PU19sWW1xTHJYdFZUNVZPWUlMU21FR1VKS093RXk4QkVLRGtwODBfS1hIYVdR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
