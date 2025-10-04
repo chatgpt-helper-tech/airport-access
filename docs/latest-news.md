@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 00:41:09（北京时间）**
+🕒 更新时间：**2025年10月05日 00:49:29（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | US Border Patrol raid sweeps in citizens, families as Chicago crackdown intensifies - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPckxoUE53Z29JR1JoX3QwN1dvZzNWNER6TVdpY2tLa002NEZ1TjctcGhpOUlKcGVMMi03OXpHNHdRZm1GM3FZaHZaOGdhWTZYdFVpNFFMUFB4WUc0UmtfelJqa2ZLMzM3Q19vSU5UQXhEbzdGNzFiV0dEYVk5b0tObWdsUUI3VUVxZDZEamE0eC14dkdheTkzR0JsbndaVWVmWEhQc2ctWXJPNGtNSC1IamZybk5Cb2ZSdWxCeVhn?oc=5) |
 | Colorado company may close after Trump administration cuts funding for nearly 3 dozen energy projects in the state - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQMHA0SGZ6OVppSzJTQnlTT1I1RFktMUZmWk9oZGhDT2FvLVZ6eG5lNmNxb1ViTmd2a3ZLYm1RSDFLQk5lS2tiWDFKNl9UcHduLV8wVXZVY3BJamprQjFPeDZkU0RmeHFYUGZoVTYtRkNEc0lwRUdFQUpnQTBxa3o4NVdUcVJsb21haGc?oc=5) |
 | Utah immigration attorneys blast federal moves to target certain immigrant teens for deportation - KSL.com | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPemNmRTZYZFgySjQ1am5QUC0wUWUwSEhKSlJwbHFFZE80M0Z6T0dEbTh2YnJCbThpMk9kZ3ktbnBYZkJFeFg5czJ2aG1JaXRRRjNEUGhBUEc2cExjZEp5YV85LXQtZXFjWjJ3ZE4xdndnbVRsbW10QUhrUmxWRnRjUW45UGNodEEzNmdUSGpoUmNUenp2TmJmdkFORU1YajY2b09sQ2hReklwSThOUlNZb3ZMRGdNUG1DRGpwVmVVRTI0N0ZZaVRTcTJxR3FGUQ?oc=5) |
-| Virginia attorney general candidate Jay Jones under fire over resurfaced text messages suggesting Republican should get "bullets to the head" - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQa0lHcGtONm1xS0paanF2MV9mV1ZWWTM1OFFBc0FHOW1QdlFEQS1TbHpMZG45eUVmTldDc0ctRzVLTDA1UGFlREZqQnQ5S1I4TUZrM3hCeUJJOVFQMVJDb2x1ZDNlY1BISW8waUNrekdONG1GaHAzaXFiWVVfdGZUaVk1bFpydUxRamcxRXdfQ2x3Rmh3b1I4Y25DYk9FSFc5eHZwMVA3RXBWcHRGcW1RSFZYMGpRRGQtRl9WaW1LcUVrUdIBVkFVX3lxTE1UdkV2dXFaa2w1bjRzX01ISVZCUE1udUt4cTNIWVhFU29SUFZEQm9TWU1qOV9CMWFhQ1Y5UkZ5akExeWNqY2kxZlNIbmJNMDIwTFNXb0x3?oc=5) |
 | Democrats’ defiance on shutdown shows a new, tougher approach to Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeFlIal9SVEw0RzNQY0xUNWRGMW52VUQzNXZsQy1iZFZvclJ0UmxMYy1neVNfX3VTVVdObTNXNTJYX1VuWlRJTEcxaTFBT0ZYcjBYUmJNVWxkSkVmSExfQloxR0lxc0lLcjJuVld4T2Y2SkR6djB0WVJKU2NrWVgzRWgwWlZMaTMwZ2lmdUYwdw?oc=5) |
+| Abrego Garcia wins request for hearing on whether smuggling charges are illegally 'vindictive' - AP News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQNDgyUGhvaVJRTmdESnUyeTVmbm12UUhaRXBVN2IyWDdHMEZNNzc2RGtCYjNjS0FadzZDdHgxTjdIZFdUOTlXRzR3VGk4STJWVU9ETHlJeFVTb3pxdkkzQ3BGR1RtcFlOZzVaYy1yQ3NwVEgzWVFFWHI4a1FQS3hmR1p3NEVheXV1aFZSUDdWX3VRdmd6RWlrckRhdmZPTGdQVXJSNFFSNUNkZkg1RFktU0RXZ1NfTmNwSFZONU9JNA?oc=5) |
 | Trump undoes $187 million cut to NY security funds after GOP outcry - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPN1FaZ0h3bVI3MVdrOTBYQkNiS3F1Rkh2ek1sT0pwN3FtUXViNjlEWThiVWpYTk9NcmVVSDYyeHFsdWV0T3Zwc3Fac1RENUFucnE5RnJrcTh4aGpRVXJYRGV6U1V3NVBfZjRzMElNNUZQTnRkTkFxd3NQYkRsMVlKOThDVU5IMDhRUXN4eQ?oc=5) |
 
 ---
