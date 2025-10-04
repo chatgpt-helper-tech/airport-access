@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 00:49:29（北京时间）**
+🕒 更新时间：**2025年10月05日 00:57:40（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | US Border Patrol raid sweeps in citizens, families as Chicago crackdown intensifies - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPckxoUE53Z29JR1JoX3QwN1dvZzNWNER6TVdpY2tLa002NEZ1TjctcGhpOUlKcGVMMi03OXpHNHdRZm1GM3FZaHZaOGdhWTZYdFVpNFFMUFB4WUc0UmtfelJqa2ZLMzM3Q19vSU5UQXhEbzdGNzFiV0dEYVk5b0tObWdsUUI3VUVxZDZEamE0eC14dkdheTkzR0JsbndaVWVmWEhQc2ctWXJPNGtNSC1IamZybk5Cb2ZSdWxCeVhn?oc=5) |
 | Colorado company may close after Trump administration cuts funding for nearly 3 dozen energy projects in the state - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQMHA0SGZ6OVppSzJTQnlTT1I1RFktMUZmWk9oZGhDT2FvLVZ6eG5lNmNxb1ViTmd2a3ZLYm1RSDFLQk5lS2tiWDFKNl9UcHduLV8wVXZVY3BJamprQjFPeDZkU0RmeHFYUGZoVTYtRkNEc0lwRUdFQUpnQTBxa3o4NVdUcVJsb21haGc?oc=5) |
 | Utah immigration attorneys blast federal moves to target certain immigrant teens for deportation - KSL.com | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPemNmRTZYZFgySjQ1am5QUC0wUWUwSEhKSlJwbHFFZE80M0Z6T0dEbTh2YnJCbThpMk9kZ3ktbnBYZkJFeFg5czJ2aG1JaXRRRjNEUGhBUEc2cExjZEp5YV85LXQtZXFjWjJ3ZE4xdndnbVRsbW10QUhrUmxWRnRjUW45UGNodEEzNmdUSGpoUmNUenp2TmJmdkFORU1YajY2b09sQ2hReklwSThOUlNZb3ZMRGdNUG1DRGpwVmVVRTI0N0ZZaVRTcTJxR3FGUQ?oc=5) |
+| How California struck a landmark law to rein in rogue AI - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNZU52dk9vTDExMGxBeG9fTDdwQmhlbU9RQlZtRDI0Xy0xRlIyQldfYldYYndEUHJwam84RHhqQ2NoZE5zclA4UFJTeERVSFJ2VHhYdWl4U3g4VlV4STFnNVNyVWFTQW8xS0U2RGlZVXJscGZSeFlkZWliNjhHTmJYMjUtRUktTlk?oc=5) |
 | Democrats’ defiance on shutdown shows a new, tougher approach to Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeFlIal9SVEw0RzNQY0xUNWRGMW52VUQzNXZsQy1iZFZvclJ0UmxMYy1neVNfX3VTVVdObTNXNTJYX1VuWlRJTEcxaTFBT0ZYcjBYUmJNVWxkSkVmSExfQloxR0lxc0lLcjJuVld4T2Y2SkR6djB0WVJKU2NrWVgzRWgwWlZMaTMwZ2lmdUYwdw?oc=5) |
 | Abrego Garcia wins request for hearing on whether smuggling charges are illegally 'vindictive' - AP News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQNDgyUGhvaVJRTmdESnUyeTVmbm12UUhaRXBVN2IyWDdHMEZNNzc2RGtCYjNjS0FadzZDdHgxTjdIZFdUOTlXRzR3VGk4STJWVU9ETHlJeFVTb3pxdkkzQ3BGR1RtcFlOZzVaYy1yQ3NwVEgzWVFFWHI4a1FQS3hmR1p3NEVheXV1aFZSUDdWX3VRdmd6RWlrckRhdmZPTGdQVXJSNFFSNUNkZkg1RFktU0RXZ1NfTmNwSFZONU9JNA?oc=5) |
-| Simi Valley resident gets over 8 years in prison for attempt to kill Justice Kavanaugh - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxNUUJSVW1kUUFTTW5ydW9DOVYyZV9lSG5UQlllZGJ6cGFjQzdVV2ZTdXNJSVp2cTV0Mko0Vm9LeXVCVDdaaUVNUU5LSVUyNEgwTzVZODFmSW0tRVZQTFppRzRtRzBtVUlxb25JQ3BESlduanFoTUJfZHNuek93ZEVtY2RnM0Y2dkhVR0lDeWhaLW1Rb2V3OEY0dmxkV2Q1VWhWa3h1NWFva0w5WE1IaGp6RzhPc2J4S0dpZkk4WGthU1VzTnVqWHhZUGxrSDhlcTh0MlBMWnNxMnI3WDFKWWVj?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。

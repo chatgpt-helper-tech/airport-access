@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 00:49:29（北京时间）**
+🕒 更新时间：**2025年10月05日 00:57:40（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump tells Israel to stop bombing Gaza after Hamas responds to peace plan - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1vUzN3NUNhdW5KdGZNLW0tdndmRk0tU3p3aDhxMkdHLW84YVJCTGR0RnFvTl8zVHNLU090NTBfMEpzN3JFbUQ1VERoV1phR1RRX1g0QXhnWmk3ektQTFdNZFBDcm8ydERPWVI3U01vaGZfMHR5cy1jTm5qV1NYLVE?oc=5) |
+| Israel halts strikes in Gaza after Trump's call to stop the fighting - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOV0l0eW1melhVdVBTd3BVdGpMeXFIWkpYY0h3a19KWVFYY0tjblFidFA5T3UtLXR4SEVZMTZLT2RFdDdXaTR3Qm9sNllIcHVXYmh2emVSNHFDSW1vX3QxdjRLWnNyTmtnM1NDc3RzSi10YjFVRUFzMmxhTm5yQ3ctQzJR?oc=5) |
 | Japan’s ruling party elects Sanae Takaichi as leader, likely to become first female PM - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNaDZBOGt6YlJaMEhQWTkzbF8zX3ktbGVBbDhiaTJPZ0JFMTJsWUxRajk2M3ZNWVoyV2hiWGY2R2h2YWRjY2l0RE5lOWJpbWM4d1ZTWkhqN1ctenppdnFSRllZbHdWbFVJcFNIMDdSdzl2THB1dHoyTHNheEw5VHhVZk5ZU3gyUnYtUHdwR3VVMXZYdGNIdGh0M3laNkg?oc=5) |
 | New Supreme Court term confronts justices with Trump's aggressive assertion of presidential power - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNemxSRmxoOS1SSzRNeDhIT3FvelV6OFAwb2phWHNNazRXemJ1M25NT0xQZEdSTkpBdXhLWUxEZ3U2VWlJd0F0MC1XbDZZQ0ppeVRKSElMenNHQ2tRbjFrLTktQnpEaWx6Z0xubXNkaHdWQ05kUkFGQzBUb3c4NEtoUVI5S0NWanNKY0ZfTU5uYURUdGJRNDd6WG02UVBnM1ZCZWdDYU1PLS1HUWk1a1B4b3JtUkxuTTg?oc=5) |
 | Time is short for an ACA premium fix in the shutdown fight, says GOP insurance leader - NPR | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxPVnNvczBfUDkxSFRaYU9LVk5ab0lkei1nWC1CZExZUFdNTW9xR2xZdThEOWNHb1ozUUJRYVl6aEU1bVVuX3c0eW0tbi1tVC1kSWxvOWdLVUhwY3hoTjlwZWJsSDJNUHdYaWtSMmpIM2J5bGNJeTlBVzdXVE85cXdQUEZOVGhUYlhYcFU3OFBYS1BMbHVqaG9adzJHNWZaVGh5TWNoN0wwM3M1ZzJPMy1xVXVjZHQ4cTdJaU1mcWNuUQ?oc=5) |
-| US Border Patrol raid sweeps in citizens, families as Chicago crackdown intensifies - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPckxoUE53Z29JR1JoX3QwN1dvZzNWNER6TVdpY2tLa002NEZ1TjctcGhpOUlKcGVMMi03OXpHNHdRZm1GM3FZaHZaOGdhWTZYdFVpNFFMUFB4WUc0UmtfelJqa2ZLMzM3Q19vSU5UQXhEbzdGNzFiV0dEYVk5b0tObWdsUUI3VUVxZDZEamE0eC14dkdheTkzR0JsbndaVWVmWEhQc2ctWXJPNGtNSC1IamZybk5Cb2ZSdWxCeVhn?oc=5) |
-| Colorado company may close after Trump administration cuts funding for nearly 3 dozen energy projects in the state - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQMHA0SGZ6OVppSzJTQnlTT1I1RFktMUZmWk9oZGhDT2FvLVZ6eG5lNmNxb1ViTmd2a3ZLYm1RSDFLQk5lS2tiWDFKNl9UcHduLV8wVXZVY3BJamprQjFPeDZkU0RmeHFYUGZoVTYtRkNEc0lwRUdFQUpnQTBxa3o4NVdUcVJsb21haGc?oc=5) |
+| Trump's H-1B visa bombshell: What comes next - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9nQ3FSaFJrZUQyWTg1bWNVeHAzTGFROWhKMXJaWEZHMWFyeXVpSEdFdENONUVnT3U1cWJUM0ZSRGpGdnhhZUszS2RBdUY3YzJIaW1lQVBLWGNfdmZWcWQ5RGVvREtmNXVtY2ZmQ2hrQXE?oc=5) |
 | Utah immigration attorneys blast federal moves to target certain immigrant teens for deportation - KSL.com | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPemNmRTZYZFgySjQ1am5QUC0wUWUwSEhKSlJwbHFFZE80M0Z6T0dEbTh2YnJCbThpMk9kZ3ktbnBYZkJFeFg5czJ2aG1JaXRRRjNEUGhBUEc2cExjZEp5YV85LXQtZXFjWjJ3ZE4xdndnbVRsbW10QUhrUmxWRnRjUW45UGNodEEzNmdUSGpoUmNUenp2TmJmdkFORU1YajY2b09sQ2hReklwSThOUlNZb3ZMRGdNUG1DRGpwVmVVRTI0N0ZZaVRTcTJxR3FGUQ?oc=5) |
+| How California struck a landmark law to rein in rogue AI - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNZU52dk9vTDExMGxBeG9fTDdwQmhlbU9RQlZtRDI0Xy0xRlIyQldfYldYYndEUHJwam84RHhqQ2NoZE5zclA4UFJTeERVSFJ2VHhYdWl4U3g4VlV4STFnNVNyVWFTQW8xS0U2RGlZVXJscGZSeFlkZWliNjhHTmJYMjUtRUktTlk?oc=5) |
 | Democrats’ defiance on shutdown shows a new, tougher approach to Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeFlIal9SVEw0RzNQY0xUNWRGMW52VUQzNXZsQy1iZFZvclJ0UmxMYy1neVNfX3VTVVdObTNXNTJYX1VuWlRJTEcxaTFBT0ZYcjBYUmJNVWxkSkVmSExfQloxR0lxc0lLcjJuVld4T2Y2SkR6djB0WVJKU2NrWVgzRWgwWlZMaTMwZ2lmdUYwdw?oc=5) |
 | Abrego Garcia wins request for hearing on whether smuggling charges are illegally 'vindictive' - AP News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQNDgyUGhvaVJRTmdESnUyeTVmbm12UUhaRXBVN2IyWDdHMEZNNzc2RGtCYjNjS0FadzZDdHgxTjdIZFdUOTlXRzR3VGk4STJWVU9ETHlJeFVTb3pxdkkzQ3BGR1RtcFlOZzVaYy1yQ3NwVEgzWVFFWHI4a1FQS3hmR1p3NEVheXV1aFZSUDdWX3VRdmd6RWlrckRhdmZPTGdQVXJSNFFSNUNkZkg1RFktU0RXZ1NfTmNwSFZONU9JNA?oc=5) |
-| Trump undoes $187 million cut to NY security funds after GOP outcry - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPN1FaZ0h3bVI3MVdrOTBYQkNiS3F1Rkh2ek1sT0pwN3FtUXViNjlEWThiVWpYTk9NcmVVSDYyeHFsdWV0T3Zwc3Fac1RENUFucnE5RnJrcTh4aGpRVXJYRGV6U1V3NVBfZjRzMElNNUZQTnRkTkFxd3NQYkRsMVlKOThDVU5IMDhRUXN4eQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
