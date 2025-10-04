@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 01:56:16（北京时间）**
+🕒 更新时间：**2025年10月05日 02:01:21（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump tells Israel to stop bombing Gaza after Hamas responds to peace plan - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1vUzN3NUNhdW5KdGZNLW0tdndmRk0tU3p3aDhxMkdHLW84YVJCTGR0RnFvTl8zVHNLU090NTBfMEpzN3JFbUQ1VERoV1phR1RRX1g0QXhnWmk3ektQTFdNZFBDcm8ydERPWVI3U01vaGZfMHR5cy1jTm5qV1NYLVE?oc=5) |
+| Exclusive — Trump on Gaza deal push: "I said, 'Bibi, this is your chance for victory'" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9UaHdvMXhQcG1IVGtOOUYzYjVpbldKZWhKYnk0M1ZGMkJMQV9WMFdNdHVuaGEyZEkzQ1ZVc2VyX0l3MXZ5RnEzLTNsMkZ6VlBKNHZrYm1zRC1idDdBbDJUSGkxYzRMOTVDeDBPYWwwZFc?oc=5) |
 | Time is short for an ACA premium fix in the shutdown fight, says GOP insurance leader - NPR | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxPVnNvczBfUDkxSFRaYU9LVk5ab0lkei1nWC1CZExZUFdNTW9xR2xZdThEOWNHb1ozUUJRYVl6aEU1bVVuX3c0eW0tbi1tVC1kSWxvOWdLVUhwY3hoTjlwZWJsSDJNUHdYaWtSMmpIM2J5bGNJeTlBVzdXVE85cXdQUEZOVGhUYlhYcFU3OFBYS1BMbHVqaG9adzJHNWZaVGh5TWNoN0wwM3M1ZzJPMy1xVXVjZHQ4cTdJaU1mcWNuUQ?oc=5) |
+| Israel halts strikes in Gaza after Trump's call to stop the fighting - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOV0l0eW1melhVdVBTd3BVdGpMeXFIWkpYY0h3a19KWVFYY0tjblFidFA5T3UtLXR4SEVZMTZLT2RFdDdXaTR3Qm9sNllIcHVXYmh2emVSNHFDSW1vX3QxdjRLWnNyTmtnM1NDc3RzSi10YjFVRUFzMmxhTm5yQ3ctQzJR?oc=5) |
 | Sanae Takaichi is set to become Japan’s first female prime minister - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPcGZDeVZMM0NSc2JuejhGY3VQOHk0bFhrR3daZFdubXVKa2ZRMnN2OVhzZGEzZE52Um5mWFJtamRpa180b28xRlRVa2VueXBwU0ZKYS1jMGRKN01lN01KQnlLcVpGR3VxbnpMN2xub05TRExhbHB4WmpEREw3aHBGRC11Z25aRkF5OGpwbw?oc=5) |
 | Body slamming, teargas and pepper balls: viral videos show Ice using extreme force in Chicago - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxONmtQamJOOEhwZTJURlFRZ3U1ZVdZMzItcUpONUZiWmkwOWFYSWJJcmhydGdENHdSY2gyOVZ0Q3FXaGxGdktQRGduaXAtWGVCQ0R0djFUNmc5UE04MjM2QTRoWDJIeWJhanBFYTY3SzlIMS1nS1VocmxRUnRiQnp6M0ZiMWt2YnVqMUx0UWxoaE5JSm9QQVNjeTA0WTk?oc=5) |
 | US Border Patrol raid sweeps in citizens, families as Chicago crackdown intensifies - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPckxoUE53Z29JR1JoX3QwN1dvZzNWNER6TVdpY2tLa002NEZ1TjctcGhpOUlKcGVMMi03OXpHNHdRZm1GM3FZaHZaOGdhWTZYdFVpNFFMUFB4WUc0UmtfelJqa2ZLMzM3Q19vSU5UQXhEbzdGNzFiV0dEYVk5b0tObWdsUUI3VUVxZDZEamE0eC14dkdheTkzR0JsbndaVWVmWEhQc2ctWXJPNGtNSC1IamZybk5Cb2ZSdWxCeVhn?oc=5) |
-| Democrats’ defiance on shutdown shows a new, tougher approach to Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeFlIal9SVEw0RzNQY0xUNWRGMW52VUQzNXZsQy1iZFZvclJ0UmxMYy1neVNfX3VTVVdObTNXNTJYX1VuWlRJTEcxaTFBT0ZYcjBYUmJNVWxkSkVmSExfQloxR0lxc0lLcjJuVld4T2Y2SkR6djB0WVJKU2NrWVgzRWgwWlZMaTMwZ2lmdUYwdw?oc=5) |
 | How California struck a landmark law to rein in rogue AI - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNZU52dk9vTDExMGxBeG9fTDdwQmhlbU9RQlZtRDI0Xy0xRlIyQldfYldYYndEUHJwam84RHhqQ2NoZE5zclA4UFJTeERVSFJ2VHhYdWl4U3g4VlV4STFnNVNyVWFTQW8xS0U2RGlZVXJscGZSeFlkZWliNjhHTmJYMjUtRUktTlk?oc=5) |
+| Democrats’ defiance on shutdown shows a new, tougher approach to Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeFlIal9SVEw0RzNQY0xUNWRGMW52VUQzNXZsQy1iZFZvclJ0UmxMYy1neVNfX3VTVVdObTNXNTJYX1VuWlRJTEcxaTFBT0ZYcjBYUmJNVWxkSkVmSExfQloxR0lxc0lLcjJuVld4T2Y2SkR6djB0WVJKU2NrWVgzRWgwWlZMaTMwZ2lmdUYwdw?oc=5) |
 | Simi Valley resident gets over 8 years in prison for attempt to kill Justice Kavanaugh - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxNUUJSVW1kUUFTTW5ydW9DOVYyZV9lSG5UQlllZGJ6cGFjQzdVV2ZTdXNJSVp2cTV0Mko0Vm9LeXVCVDdaaUVNUU5LSVUyNEgwTzVZODFmSW0tRVZQTFppRzRtRzBtVUlxb25JQ3BESlduanFoTUJfZHNuek93ZEVtY2RnM0Y2dkhVR0lDeWhaLW1Rb2V3OEY0dmxkV2Q1VWhWa3h1NWFva0w5WE1IaGp6RzhPc2J4S0dpZkk4WGthU1VzTnVqWHhZUGxrSDhlcTh0MlBMWnNxMnI3WDFKWWVj?oc=5) |
 | Abrego Garcia wins request for hearing on whether smuggling charges are illegally 'vindictive' - AP News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQNDgyUGhvaVJRTmdESnUyeTVmbm12UUhaRXBVN2IyWDdHMEZNNzc2RGtCYjNjS0FadzZDdHgxTjdIZFdUOTlXRzR3VGk4STJWVU9ETHlJeFVTb3pxdkkzQ3BGR1RtcFlOZzVaYy1yQ3NwVEgzWVFFWHI4a1FQS3hmR1p3NEVheXV1aFZSUDdWX3VRdmd6RWlrckRhdmZPTGdQVXJSNFFSNUNkZkg1RFktU0RXZ1NfTmNwSFZONU9JNA?oc=5) |
-| Trump undoes $187 million cut to NY security funds after GOP outcry - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPN1FaZ0h3bVI3MVdrOTBYQkNiS3F1Rkh2ek1sT0pwN3FtUXViNjlEWThiVWpYTk9NcmVVSDYyeHFsdWV0T3Zwc3Fac1RENUFucnE5RnJrcTh4aGpRVXJYRGV6U1V3NVBfZjRzMElNNUZQTnRkTkFxd3NQYkRsMVlKOThDVU5IMDhRUXN4eQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
