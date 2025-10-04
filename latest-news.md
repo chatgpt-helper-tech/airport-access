@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月04日 17:42:00（北京时间）**
+🕒 更新时间：**2025年10月04日 17:49:26（北京时间）**
 
 ---
 
@@ -25,10 +25,10 @@
 |--------|-------------|
 | Hamas accepts Trump’s plan to end the war in Gaza, but with conditions - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQdWN0S2F2Qy0tMllvOTRieGVHUFpMVkkzWlJGTFcyQzVtXzIzMGQ4QlhxQWhrWjVSTjN3cktpYXRwelEwRVVvR0YyYVRLc3N6V3ZvdUhLZjlncDhleDFxV050UUhWc1EwMVpnR3ZPdlJzcEs3Wi0xa1dWaGNPM3p0M3hJQzJkZzA?oc=5) |
 | Japan ruling party picks new leader, likely to become country’s first female Prime Minister - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxObGFITFg0SmxYeXBpdmwxWDl1aTA3U0trXzIyTW1ZNXFzQUhyYzF1LWRjUy13cGF1UGhlWmc3eExkd0dmVGlqMkVQLWNUTGZzS0V6SzJuTGN6YnhyUFBBcUlZbHVSNmdPeVlVWXU5S2VIVTlZNDJmbVV1bHo3czI2S2tDZEFHRFVmb1F2LU5zTWlYWmZvbW1sUHhCb0prVm9hdko0?oc=5) |
-| $1 Trump coin: Treasury shares draft design for America's 250th - Axios | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE5zcThkZ1U2WjE1TGJHbW9hZ2hjcXd6UmFpb1Y5eG9Zck1lVHZISGFRNGVhbmE4MGhkazVlY0VEaUNZREpPN01hOV9hRi0xWHRiWTJkSkw3ZTBFazYwU2lfRzRRTW1wbW5OOWlJ?oc=5) |
+| Trump's $100,000 fee for H-1B worker visas challenged in lawsuit - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOdmhpQ3k1RUpwTUdsSG1PZl9fa0N4NzBuNUxXam9Kd001RENXQ2t6Z25GWWhMX0ZPbzVqNTMtX0ZGOTJTSnl1TkRMT2YtdTJUM1hZckc1TC1JbzAwOTAzd1I1dl9Oc0pfQ1BBbjJnY0Z6Y0RFd1FKVTFtOWhKZHFTcDV0eFFDMEYzMkQ0cDdzX0dzbjRhYUdSOVlLMTQ?oc=5) |
 | Chevron fire expected to spark jump in prices at the gas pump - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOdnBkT2dSQmNkbFZFTzl0cnh2NkxDTG5mbFRISUUwdjYwNGcxYm03U1QzT1BBUjNMVkRLNXBCcU1KblR2bzdwdUdabEJwY0JfNEtrNk1oc2NfS3lhM2FoanIyNEtKYWdaZ0R5a0tqSFljTHBiVHNFZmJzeU1QNjlveWphZm4?oc=5) |
 | Legal experts condemn Apple bowing to White House's request to remove ICE tracking app - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPUnhZbHVlYk91Nl9pendibUZUdzE2Y0c1dzhPWklTOHVaUTgzS19KUUVTOF9zaG1wTllQWmNtNFZQTGx1V21ZcUNKR0dyekgzckV6dERfTjFGVm8wakVOWnNBekMxYWhRSUEtakZ3U1UwRWZobmY5RDh2YkZpX0lnekItWWk?oc=5) |
-| Trump's $100,000 fee for H-1B worker visas challenged in lawsuit - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOdmhpQ3k1RUpwTUdsSG1PZl9fa0N4NzBuNUxXam9Kd001RENXQ2t6Z25GWWhMX0ZPbzVqNTMtX0ZGOTJTSnl1TkRMT2YtdTJUM1hZckc1TC1JbzAwOTAzd1I1dl9Oc0pfQ1BBbjJnY0Z6Y0RFd1FKVTFtOWhKZHFTcDV0eFFDMEYzMkQ0cDdzX0dzbjRhYUdSOVlLMTQ?oc=5) |
+| More than 300,000 Venezuelans at risk of deportation under new Supreme Court ruling - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQMFZmZ0cwbTNmQ0V1MVRxTW5BUzJZVVBuZ1ZfUThzeV9wWVF5Q3VpeGZVZ2t3QTJzMVpaclB5VUkxcHl3UWhEcEthWUhfcE9tcldtOTBIRzVhV2VjS0ZEa216LWZ1V0ZYMzh5eWY1VlFWUjNhcmItRTlJdVpEX1FDSUFBTU1FVXNEUHc?oc=5) |
 | Exclusive: Trump is sending California National Guard troops to Portland, Newsom says - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNdWNFcnhER3BvbC1vM0Y4VnRUTTFhTktlWUxNQ1pmLVpUOUNVSUw5VTN1cnJiWU9mOFJma3ZDY3lYbV90LU5GcFVGcjBpcFQwb3JVamlicHptZG5kc1poNW9vbFZGWkFHZDRQZ2RvemdqdUVlMUpkM2xheXgwU0d5WWEzb05SUkV1bnFKckF0c3M4bFBkaGZ3UXpTNmJleG8?oc=5) |
 | Would-be Kavanaugh assassin sentenced to over 8 years in prison - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOUlp5bjEtSFhXWlBZR2tiMmZhcE0tQkQzYVVCQ1FRZFlhVGVGc2x6bm0zc29QYWRQRW91Z1AzeW1WX0Q0VmNpLTJZbGxydkFkZWVtLUdPbVJudDAtai03alBRMmllZzdGc21ibVo1LXN0bmZJVEE2OUdoUnZ1TV82MGNSaV80QQ?oc=5) |
 | L.A. City Hall evacuated after vehicle crashes near steps; driver in custody following standoff - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxPeEdpWTM4VVJka1l0WUpQOUwyekdpVGM1em9mcTkxOEFCNFpmQWNxcF9qVU13T2s2eFpNdFpQaXlfb1h3cnBVeEdtMzZXT01jVEM0TTAxRlJrc3hNNnBnNWxFTXdVNWtUSWhmQ0ZyeVF4RDhPSElqWnhGMFdFandXWGNZQnIyMTRMQjloOEUtNEkzc0pqV2lhYnZlZHM1Qk1YaGJkWXlqbUktY0FkSWtVTE1RODY1QVdZZzZybjBfTGc0UU9yNHc2T2s0WjJScjBzZ2c?oc=5) |
