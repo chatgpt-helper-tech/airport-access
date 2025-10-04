@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月04日 17:16:50（北京时间）**
+🕒 更新时间：**2025年10月04日 17:25:01（北京时间）**
 
 ---
 
@@ -25,10 +25,10 @@
 |--------|-------------|
 | Hamas accepts Trump’s plan to end the war in Gaza, but with conditions - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQdWN0S2F2Qy0tMllvOTRieGVHUFpMVkkzWlJGTFcyQzVtXzIzMGQ4QlhxQWhrWjVSTjN3cktpYXRwelEwRVVvR0YyYVRLc3N6V3ZvdUhLZjlncDhleDFxV050UUhWc1EwMVpnR3ZPdlJzcEs3Wi0xa1dWaGNPM3p0M3hJQzJkZzA?oc=5) |
 | Chevron refinery fire in El Segundo extinguished; investigation underway into cause - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOendzVEZObm84MWJ5dDlJSVUxN1dIWVVpQUlsN2s3N2hrVndWd2tZckFFang1dE82Q3lYc3ZxS0hFR1c2aDdBVDlIcGRkYkVScmZJTWh2bXJnZUkzYll1OTFGT194czV5NzQ0b0syNkpWLXplaGdXaDRUUGRXX2pfTzladjA1X1Awam9QTUJmTWN1NUVUM0E1QVZrY1EzekJ0cHJRQjNFSEdnU2RXc1c1Zk9R?oc=5) |
+| Japan ruling party picks new leader, likely to become country’s first female Prime Minister - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxObGFITFg0SmxYeXBpdmwxWDl1aTA3U0trXzIyTW1ZNXFzQUhyYzF1LWRjUy13cGF1UGhlWmc3eExkd0dmVGlqMkVQLWNUTGZzS0V6SzJuTGN6YnhyUFBBcUlZbHVSNmdPeVlVWXU5S2VIVTlZNDJmbVV1bHo3czI2S2tDZEFHRFVmb1F2LU5zTWlYWmZvbW1sUHhCb0prVm9hdko0?oc=5) |
 | Trump's $100,000 fee for H-1B worker visas challenged in lawsuit - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOdmhpQ3k1RUpwTUdsSG1PZl9fa0N4NzBuNUxXam9Kd001RENXQ2t6Z25GWWhMX0ZPbzVqNTMtX0ZGOTJTSnl1TkRMT2YtdTJUM1hZckc1TC1JbzAwOTAzd1I1dl9Oc0pfQ1BBbjJnY0Z6Y0RFd1FKVTFtOWhKZHFTcDV0eFFDMEYzMkQ0cDdzX0dzbjRhYUdSOVlLMTQ?oc=5) |
 | Legal experts condemn Apple bowing to White House's request to remove ICE tracking app - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPUnhZbHVlYk91Nl9pendibUZUdzE2Y0c1dzhPWklTOHVaUTgzS19KUUVTOF9zaG1wTllQWmNtNFZQTGx1V21ZcUNKR0dyekgzckV6dERfTjFGVm8wakVOWnNBekMxYWhRSUEtakZ3U1UwRWZobmY5RDh2YkZpX0lnekItWWk?oc=5) |
-| Japan ruling party picks new leader, likely to become country’s first female Prime Minister - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxObGFITFg0SmxYeXBpdmwxWDl1aTA3U0trXzIyTW1ZNXFzQUhyYzF1LWRjUy13cGF1UGhlWmc3eExkd0dmVGlqMkVQLWNUTGZzS0V6SzJuTGN6YnhyUFBBcUlZbHVSNmdPeVlVWXU5S2VIVTlZNDJmbVV1bHo3czI2S2tDZEFHRFVmb1F2LU5zTWlYWmZvbW1sUHhCb0prVm9hdko0?oc=5) |
-| Mike Johnson cancels more House votes in escalation of shutdown strategy - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQNXk5TFg0ZHhvanZ1WHpiZTFDRnBQLWZFejNsNmEtcU9uUDQyVWw4Rk43UFFRVnlvay1YRWpGQkhobHNyZ3YzWTZ2bmdNMWUyMURmalhvbm5Jakx0bU9TS0ZiRTRibGE2d2xjNEFsdHp3eE5YbkEyWEo1bHhLck9EV2Jlbw?oc=5) |
+| House GOP cancels more votes in escalation of shutdown strategy - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQNXk5TFg0ZHhvanZ1WHpiZTFDRnBQLWZFejNsNmEtcU9uUDQyVWw4Rk43UFFRVnlvay1YRWpGQkhobHNyZ3YzWTZ2bmdNMWUyMURmalhvbm5Jakx0bU9TS0ZiRTRibGE2d2xjNEFsdHp3eE5YbkEyWEo1bHhLck9EV2Jlbw?oc=5) |
 | Exclusive: Trump is sending California National Guard troops to Portland, Newsom says - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNdWNFcnhER3BvbC1vM0Y4VnRUTTFhTktlWUxNQ1pmLVpUOUNVSUw5VTN1cnJiWU9mOFJma3ZDY3lYbV90LU5GcFVGcjBpcFQwb3JVamlicHptZG5kc1poNW9vbFZGWkFHZDRQZ2RvemdqdUVlMUpkM2xheXgwU0d5WWEzb05SUkV1bnFKckF0c3M4bFBkaGZ3UXpTNmJleG8?oc=5) |
 | Sean "Diddy" Combs sentenced to over 4 years for prostitution-related charges - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE1OSGUxMU5mdkZnNXhxenBnaGJmaGcwU0RLaXJfNHJLS1EzUmtBQjVTRmd3dy1oeTBqRzhmTVktY1ZhRHJXdHN3NmkzTFBPRlF6eUNlY29hVXVLODJBOUhjbUNSWjJJUkVCT1A1LWdZa9IBdEFVX3lxTE9ER0k5Y0pPSXJQUEN3Y0NsRzlOeHNUdGR2NVN4TVp5TXdQMWU0U3cxa1JrcjloZlhzc0FzOW9SRENPb21KemFJcXRUTjBsM3pzQ3czcUNMRDJBSXNoOV81dHJjTVRiQ1YwbXY0S08yYW1YV0VQ?oc=5) |
 | Trump undoes $187 million cut to NY security funds after GOP outcry - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPN1FaZ0h3bVI3MVdrOTBYQkNiS3F1Rkh2ek1sT0pwN3FtUXViNjlEWThiVWpYTk9NcmVVSDYyeHFsdWV0T3Zwc3Fac1RENUFucnE5RnJrcTh4aGpRVXJYRGV6U1V3NVBfZjRzMElNNUZQTnRkTkFxd3NQYkRsMVlKOThDVU5IMDhRUXN4eQ?oc=5) |
