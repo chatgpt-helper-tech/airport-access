@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月04日 17:01:08（北京时间）**
+🕒 更新时间：**2025年10月04日 17:09:12（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Hamas accepts Trump’s plan to end the war in Gaza, but with conditions - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQdWN0S2F2Qy0tMllvOTRieGVHUFpMVkkzWlJGTFcyQzVtXzIzMGQ4QlhxQWhrWjVSTjN3cktpYXRwelEwRVVvR0YyYVRLc3N6V3ZvdUhLZjlncDhleDFxV050UUhWc1EwMVpnR3ZPdlJzcEs3Wi0xa1dWaGNPM3p0M3hJQzJkZzA?oc=5) |
 | Chevron refinery fire in El Segundo extinguished; investigation underway into cause - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOendzVEZObm84MWJ5dDlJSVUxN1dIWVVpQUlsN2s3N2hrVndWd2tZckFFang1dE82Q3lYc3ZxS0hFR1c2aDdBVDlIcGRkYkVScmZJTWh2bXJnZUkzYll1OTFGT194czV5NzQ0b0syNkpWLXplaGdXaDRUUGRXX2pfTzladjA1X1Awam9QTUJmTWN1NUVUM0E1QVZrY1EzekJ0cHJRQjNFSEdnU2RXc1c1Zk9R?oc=5) |
-| Japan Set for First Female Prime Minister Amid U.S. Friction Over Trade, Security - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNcVVKa2NuRW41QVFoOHhUOFFyUDZGbkZpNGh6ZmtIbjJjZEpMQlF3dnJJSFQyMHZCbnloeC1BRmJyRFRiQ3NpMHd1bDJUNlpoYjhSbTZER1JBR2RnUXpGQmZhdVhDM3hveC1OUUkyN3U1eTNQNXBtMWF2U2djZWpMbC1PbDRnUGdFdmZMNQ?oc=5) |
+| Japan Set for First Female Prime Minister - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5ObHR1SjYxNkJSSW9rTTdnR3pMODZVZnFlY09hazhESVdERmVlLVJ0NjN1NG5PQjBOTUpMTUxlZHA1RFoteFRnWmpFQmNYTXFKcmMybG5jeDVKWjROTnVPdXZPSFdVQ3V0NVBGMU1LcWpYUGJicDhyZ0pn?oc=5) |
 | Trump's $100,000 fee for H-1B worker visas challenged in lawsuit - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOdmhpQ3k1RUpwTUdsSG1PZl9fa0N4NzBuNUxXam9Kd001RENXQ2t6Z25GWWhMX0ZPbzVqNTMtX0ZGOTJTSnl1TkRMT2YtdTJUM1hZckc1TC1JbzAwOTAzd1I1dl9Oc0pfQ1BBbjJnY0Z6Y0RFd1FKVTFtOWhKZHFTcDV0eFFDMEYzMkQ0cDdzX0dzbjRhYUdSOVlLMTQ?oc=5) |
 | Legal experts condemn Apple bowing to White House's request to remove ICE tracking app - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPUnhZbHVlYk91Nl9pendibUZUdzE2Y0c1dzhPWklTOHVaUTgzS19KUUVTOF9zaG1wTllQWmNtNFZQTGx1V21ZcUNKR0dyekgzckV6dERfTjFGVm8wakVOWnNBekMxYWhRSUEtakZ3U1UwRWZobmY5RDh2YkZpX0lnekItWWk?oc=5) |
 | Mike Johnson cancels more House votes in escalation of shutdown strategy - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQNXk5TFg0ZHhvanZ1WHpiZTFDRnBQLWZFejNsNmEtcU9uUDQyVWw4Rk43UFFRVnlvay1YRWpGQkhobHNyZ3YzWTZ2bmdNMWUyMURmalhvbm5Jakx0bU9TS0ZiRTRibGE2d2xjNEFsdHp3eE5YbkEyWEo1bHhLck9EV2Jlbw?oc=5) |
