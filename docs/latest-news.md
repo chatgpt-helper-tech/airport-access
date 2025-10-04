@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 02:50:01（北京时间）**
+🕒 更新时间：**2025年10月05日 02:56:08（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Japan's ruling party has elected Sanae Takaichi as new leader, and she's likely to become country's first female prime minister - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOQ1g2VEVVOUJ1SzRKZW1MWW16MzlWQTNNREU2d3RxX0lITnFNd1dLZThWdF96OWdPa2ZpbEhHdl9WR2hYR1V6YnNwaklSWDR0N0RmeFFfeG9ocE5YYzVTSVJVYkZlWlpGZ3FfdExMa1VHZVRPcHN5TDRHdFV6ZkpXNHA4QVZvQ25BdFNNclJn0gGTAUFVX3lxTE4xQ1AyRVQ5a3l0RG1NdTNSU3cwMWgwVzZ6MXVrOVhaUDNEekgyZjlNN1RVSW5NSXdtalUxa0w0RFpFQWZUVk5IZzBudlFSbE00NVdWTWRKSk5IQl9sQmZaaWw2cHhrTUxyOXZ5UEc5VG02a3NjdWNjbjYyN1FDSTNQVzduUjRnNEVFWFF3dElqM01ocw?oc=5) |
 | How California struck a landmark law to rein in rogue AI - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNZU52dk9vTDExMGxBeG9fTDdwQmhlbU9RQlZtRDI0Xy0xRlIyQldfYldYYndEUHJwam84RHhqQ2NoZE5zclA4UFJTeERVSFJ2VHhYdWl4U3g4VlV4STFnNVNyVWFTQW8xS0U2RGlZVXJscGZSeFlkZWliNjhHTmJYMjUtRUktTlk?oc=5) |
 | Democrats’ defiance on shutdown shows a new, tougher approach to Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeFlIal9SVEw0RzNQY0xUNWRGMW52VUQzNXZsQy1iZFZvclJ0UmxMYy1neVNfX3VTVVdObTNXNTJYX1VuWlRJTEcxaTFBT0ZYcjBYUmJNVWxkSkVmSExfQloxR0lxc0lLcjJuVld4T2Y2SkR6djB0WVJKU2NrWVgzRWgwWlZMaTMwZ2lmdUYwdw?oc=5) |
-| Simi Valley resident gets over 8 years in prison for attempt to kill Justice Kavanaugh - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxNUUJSVW1kUUFTTW5ydW9DOVYyZV9lSG5UQlllZGJ6cGFjQzdVV2ZTdXNJSVp2cTV0Mko0Vm9LeXVCVDdaaUVNUU5LSVUyNEgwTzVZODFmSW0tRVZQTFppRzRtRzBtVUlxb25JQ3BESlduanFoTUJfZHNuek93ZEVtY2RnM0Y2dkhVR0lDeWhaLW1Rb2V3OEY0dmxkV2Q1VWhWa3h1NWFva0w5WE1IaGp6RzhPc2J4S0dpZkk4WGthU1VzTnVqWHhZUGxrSDhlcTh0MlBMWnNxMnI3WDFKWWVj?oc=5) |
 | Trump administration offering some unaccompanied migrant children $2,500 to self-deport, according to memo - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNMkdjMUxVNGVQWWZ6Y1JEMGhvMXp4cXFlSHRSRUEzMVRyS1FjSUsyZ25NMzh1SVBmQUdCaDVwem9lbjlEYkk0TG9KNDFQaXBuWEV4ZEFuVkc3YnpqX0pwSS1RQ3VOSnVFdGRrYk9HRy11M2hKR2xSWmlMVFJQY2ZpRjRJcXRjNVhvV2FrUlZZNGMtcHlHaFVpQ1F6RFlMTV9iQk5sdjZvbmVZWWlnN2JVdlBseFQzOTlBd3fSAVZBVV95cUxOWWtuT0Y4UW0wU2xKYWlsTUhlSFJNZU5hVC1sdVZkVVNreE0xTUJJUVZnbzRxb1ZRSDg1RjFpYk4tTW5uMjZvT1drMFNGYm53QkZVWWxMZw?oc=5) |
+| Abrego Garcia wins request for hearing on whether smuggling charges are illegally 'vindictive' - AP News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQNDgyUGhvaVJRTmdESnUyeTVmbm12UUhaRXBVN2IyWDdHMEZNNzc2RGtCYjNjS0FadzZDdHgxTjdIZFdUOTlXRzR3VGk4STJWVU9ETHlJeFVTb3pxdkkzQ3BGR1RtcFlOZzVaYy1yQ3NwVEgzWVFFWHI4a1FQS3hmR1p3NEVheXV1aFZSUDdWX3VRdmd6RWlrckRhdmZPTGdQVXJSNFFSNUNkZkg1RFktU0RXZ1NfTmNwSFZONU9JNA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
