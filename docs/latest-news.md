@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 07:33:45（北京时间）**
+🕒 更新时间：**2025年10月05日 07:40:27（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Border Patrol agents shoot woman in Chicago as protesters confront immigration personnel - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNeDc2RWpRQkc4Q0ZKdWxOX1dCeXdzMFg1UUx0b05ZN1A4Mi1qMG9EZmJCZDlwTWx4Mm5MX1o1QkV2RzAta1o4dkhoeUdWcjU5TkRIdGxmNFFUZmNFQkhRNHRwM2dCblNoa1cyVW9ZZEczQlhHU3Q5LWVQY01Vb3R4Qll0NWx5Qi1PcXIwYnFJcmRNWDIxd21IQy1kSmwzVkNqX1RFZ0NoMWlRNk04ZHhZMFZYaDMtWEg4?oc=5) |
 | Federal court blocks ICE from detaining unaccompanied minors once they turn 18 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQZzB4UGF1d0IxUFRFb0RhY2V4YzAzbzYxX1hVTzV1b2hBalhZSmZxa24yVmJWNEozVUw5dVhxcEhxdkJRWkpqSzN4Rjg0Snk2V095Um9NN2xEZXdoX1JfTkp5aHRjMHpOR1dJd0FMUWtQaXZzTWdHZEhTcndORXA4bGUtZFl4ZjJhamc?oc=5) |
 | Body slamming, teargas and pepper balls: viral videos show Ice using extreme force in Chicago - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxONmtQamJOOEhwZTJURlFRZ3U1ZVdZMzItcUpONUZiWmkwOWFYSWJJcmhydGdENHdSY2gyOVZ0Q3FXaGxGdktQRGduaXAtWGVCQ0R0djFUNmc5UE04MjM2QTRoWDJIeWJhanBFYTY3SzlIMS1nS1VocmxRUnRiQnp6M0ZiMWt2YnVqMUx0UWxoaE5JSm9QQVNjeTA0WTk?oc=5) |
-| More than 300,000 Venezuelans at risk of deportation under new Supreme Court ruling - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQMFZmZ0cwbTNmQ0V1MVRxTW5BUzJZVVBuZ1ZfUThzeV9wWVF5Q3VpeGZVZ2t3QTJzMVpaclB5VUkxcHl3UWhEcEthWUhfcE9tcldtOTBIRzVhV2VjS0ZEa216LWZ1V0ZYMzh5eWY1VlFWUjNhcmItRTlJdVpEX1FDSUFBTU1FVXNEUHc?oc=5) |
+| Trump Administration Scores Major Supreme Court Legal Victory, Ending de Facto Amnesty Program - Homeland Security (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNenlmWWY0a2ZNNmlrTW5PSnlENUVNMnpicHl3ZU1GNS1ROWRlV0NqUXJ4RXprdUY0V3hOdllNTl8zTE1wVmNmT3NIeGJyS1owZ3QzbmlWaU9wNmxmRHhuVF84cFlnOU9WVmk4QzR1NjhPY21SU3NxZTVuV05xdWlIbWhmMkhJQmY5aHZTcXBINlpSeGJlQWExMHBqbzN6VkR3bjBGdkNpZWN3TWxQUFd4TG5xbw?oc=5) |
 | Abrego Garcia wins request for hearing on whether smuggling charges are illegally 'vindictive' - AP News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQNDgyUGhvaVJRTmdESnUyeTVmbm12UUhaRXBVN2IyWDdHMEZNNzc2RGtCYjNjS0FadzZDdHgxTjdIZFdUOTlXRzR3VGk4STJWVU9ETHlJeFVTb3pxdkkzQ3BGR1RtcFlOZzVaYy1yQ3NwVEgzWVFFWHI4a1FQS3hmR1p3NEVheXV1aFZSUDdWX3VRdmd6RWlrckRhdmZPTGdQVXJSNFFSNUNkZkg1RFktU0RXZ1NfTmNwSFZONU9JNA?oc=5) |
 
 ---
