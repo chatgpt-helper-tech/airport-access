@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月04日 13:40:05（北京时间）**
+🕒 更新时间：**2025年10月04日 13:48:54（北京时间）**
 
 ---
 
@@ -26,9 +26,9 @@
 | Trump tells Israel to stop bombing Gaza, saying Hamas is ready for peace - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPYmlWbE80Rkt1dWk0YUZZM19UT1BjM3I2aTFmcDJkNlFKMnk5WDQzZTBkdXJFVFFZRWZSUWN2VWx0Z2Fid1dwTGFBLWFqVmY0OG9kMzRpY1hqc1BSam96alFNYld3SS1ZMDMxOFpXaV9PNnAzWEdXQ0pqYmlJLUNOcnM2U1RJS3FtX1c0eFBsSWdGbngwd2hIUGxKNzV1aG5YVTgweA?oc=5) |
 | Chevron refinery fire in El Segundo extinguished; investigation underway into cause - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOendzVEZObm84MWJ5dDlJSVUxN1dIWVVpQUlsN2s3N2hrVndWd2tZckFFang1dE82Q3lYc3ZxS0hFR1c2aDdBVDlIcGRkYkVScmZJTWh2bXJnZUkzYll1OTFGT194czV5NzQ0b0syNkpWLXplaGdXaDRUUGRXX2pfTzladjA1X1Awam9QTUJmTWN1NUVUM0E1QVZrY1EzekJ0cHJRQjNFSEdnU2RXc1c1Zk9R?oc=5) |
 | $1 Trump coin: Treasury shares draft design for America's 250th - Axios | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE5zcThkZ1U2WjE1TGJHbW9hZ2hjcXd6UmFpb1Y5eG9Zck1lVHZISGFRNGVhbmE4MGhkazVlY0VEaUNZREpPN01hOV9hRi0xWHRiWTJkSkw3ZTBFazYwU2lfRzRRTW1wbW5OOWlJ?oc=5) |
+| Shutdown standoff not about whether Democrats or GOP 'win or lose,' says Sen. Warnock - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQWmJrbGFjSjhqc2ZVR1FYOV9faXdTTW9Hck9GTlh4bkJlem1oeVJVVThGd1MwZXZza01PVkVHN0JRaU9kOXozdDR3Y1dkZEtaMFRHTEUyaUZocHQxVUJlQV81MlpNay1uLUdTR1pvUklPbS1rWFVGMTV2ZTFsaTRMcXRHSXpKYWg0VEM5ZkJHOU5HUnRNVDRYUlQ3M1ZSSHc?oc=5) |
 | Karoline Leavitt says White House must cut spending due to shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQUFYyb2xiek93ZHFsc3htNG5pVnAwS2VfSXh0LWFZQndpRWlOOHhselBXMmVleE9OSXVPNnFzZURuWFp6c09vRDFPSmZLdmNMcUlpeUlpNFJzdWI5YWxvWEQ1MUhYcTAyTlVnbWUycW9wNHJCOXRYOGhhU2xLQUVlVlA1WHdIRXhnUDZ6eUp3aGs5eDlZYXRPOQ?oc=5) |
 | US Military Strikes Another Suspected Drug Boat, Killing Four - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQM0tTU2dmUWt3OFdSWWRrbkk2aWozYTFIUlNiVkVWVUpoVTNiVDRmdUxWMDdVbFV5NzBtWFpWZDdBNkRfaDZ3dV9saFAtWUdBSndYLTdRUnd2YTNTUlcxdmRnUDdTR2ZCSGhUXy02YXlKWGY3aGtmNTh2Z01zdFdIOWNidXBManhvTENTaElvYUxsOV9jbjZwbExpUV93YW8taDFXUFpRMm9IekZuVjg2Zw?oc=5) |
-| House will stay out of session next week as Senate works to solve shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOQnR3Q1k5OWRkWTZsRTBYTW5CM0xBdWxEUkpxUm5jN19kWHBZTWdWUWVUOXd5WWF2RjJLa3lFTzU5aElrVVFPMVhUUmdfbXNLLVJMQnNMTG1BWklOazU4VFZpcHRYaURqNTE5ZlRjR0psRmh2Z2NBaTFxcVJYbFBwNXNPdHNXS1hiWjNfLXEyam1xcDZIbENPbUl0ZEhoUQ?oc=5) |
 | Federal judge weighs starkly different views of Portland protests in hearing on National Guard - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNNl85dEl5STZmSWlVMzRKaWhPckxSRGJRY3BqN2owaFNad3ozMUVXbFR5aEJ3eVFWYjdUcjlqSkt0ZWMtMENRTDZmQWc4dFE4cE1ZNFlnTWFVYUFMUzlCdnhlTFlJY1BidV8yTXcxZy1oX0l6MWRxTnpzampWaWRYdnFWNjhWeThXUGdPSXh4Z2wzZm5EY21WNlZOU3dvSlhQ?oc=5) |
 | North Carolina governor signs criminal justice bill into law after Ukrainian refugee’s death - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOS0Z3cUF1TzUtSDZRVUdrTGR4MkM3bHNlLVk4ZDFzNjR6RWtNamV4V3g3Z0lFUUFkUlppZWdvR3BWbGlnVm1FV1dpVWxrZVFBazdSUl9mTnU5dHF2ZVhEX1FtWGl4b3ROWkN2WjhoWHdVVmZjZXUtbFV0S0VpOVVrQmtCQ08wcXpGWGNNNEczVmFGQlJ3VVJkRlBreVp0c3RfQmVVTUhqNzZPbFNjUER3?oc=5) |
 | Hegseth fires top Navy official - Politico | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE4yMTNtaGV1dmU5TGlES0xUWmxDSDlLeEt5dlpYN0liSzhOUTFsUkJRek5WVnd2Q0tlSjF1M215UE9jTkZXSWxtQVB0dkVxT3ZpSVUzMDBpV1gxVnQtSlM3NEw4N0xmODRNbzhISWlPdkE2QXRfX3dxdXEtck0tZw?oc=5) |
