@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月04日 18:25:47（北京时间）**
+🕒 更新时间：**2025年10月04日 18:33:45（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Hamas accepts Trump’s plan to end the war in Gaza, but with conditions - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQdWN0S2F2Qy0tMllvOTRieGVHUFpMVkkzWlJGTFcyQzVtXzIzMGQ4QlhxQWhrWjVSTjN3cktpYXRwelEwRVVvR0YyYVRLc3N6V3ZvdUhLZjlncDhleDFxV050UUhWc1EwMVpnR3ZPdlJzcEs3Wi0xa1dWaGNPM3p0M3hJQzJkZzA?oc=5) |
-| Japan Set for First Female Prime Minister Amid U.S. Friction Over Trade, Security - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNcVVKa2NuRW41QVFoOHhUOFFyUDZGbkZpNGh6ZmtIbjJjZEpMQlF3dnJJSFQyMHZCbnloeC1BRmJyRFRiQ3NpMHd1bDJUNlpoYjhSbTZER1JBR2RnUXpGQmZhdVhDM3hveC1OUUkyN3U1eTNQNXBtMWF2U2djZWpMbC1PbDRnUGdFdmZMNQ?oc=5) |
+| Trump Hit With First Lawsuit to Halt $100,000 H-1B Entry Fee (3) - Bloomberg Law News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQeXBSTlZkUlctSnhjTlgxSU1xOUxiQ3Nsckp3cE1QV2o3Vk9ZOTBGTmtzRHhuZHktTk90em9GSGpMemhjNGlEQU5kalFyOHNLVTgza1VhVWx3ZnM5Nzg3WTBsUTd4XzhyMWtQSklqMlhncXRMR2xpNWw0Q2kyckIxM2pDWUE2YndFblo4Rjctc2wwSXROWWFJRTg1dk01dTNnazRSNUNwVnBzM01kSVE?oc=5) |
 | Chevron fire expected to spark jump in prices at the gas pump - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOdnBkT2dSQmNkbFZFTzl0cnh2NkxDTG5mbFRISUUwdjYwNGcxYm03U1QzT1BBUjNMVkRLNXBCcU1KblR2bzdwdUdabEJwY0JfNEtrNk1oc2NfS3lhM2FoanIyNEtKYWdaZ0R5a0tqSFljTHBiVHNFZmJzeU1QNjlveWphZm4?oc=5) |
-| Trump's $100,000 fee for H-1B worker visas challenged in lawsuit - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOdmhpQ3k1RUpwTUdsSG1PZl9fa0N4NzBuNUxXam9Kd001RENXQ2t6Z25GWWhMX0ZPbzVqNTMtX0ZGOTJTSnl1TkRMT2YtdTJUM1hZckc1TC1JbzAwOTAzd1I1dl9Oc0pfQ1BBbjJnY0Z6Y0RFd1FKVTFtOWhKZHFTcDV0eFFDMEYzMkQ0cDdzX0dzbjRhYUdSOVlLMTQ?oc=5) |
+| Japan Set for First Female Prime Minister Amid U.S. Friction Over Trade, Security - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNcVVKa2NuRW41QVFoOHhUOFFyUDZGbkZpNGh6ZmtIbjJjZEpMQlF3dnJJSFQyMHZCbnloeC1BRmJyRFRiQ3NpMHd1bDJUNlpoYjhSbTZER1JBR2RnUXpGQmZhdVhDM3hveC1OUUkyN3U1eTNQNXBtMWF2U2djZWpMbC1PbDRnUGdFdmZMNQ?oc=5) |
 | Shutdown standoff not about whether Democrats or GOP 'win or lose,' says Sen. Warnock - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQWmJrbGFjSjhqc2ZVR1FYOV9faXdTTW9Hck9GTlh4bkJlem1oeVJVVThGd1MwZXZza01PVkVHN0JRaU9kOXozdDR3Y1dkZEtaMFRHTEUyaUZocHQxVUJlQV81MlpNay1uLUdTR1pvUklPbS1rWFVGMTV2ZTFsaTRMcXRHSXpKYWg0VEM5ZkJHOU5HUnRNVDRYUlQ3M1ZSSHc?oc=5) |
 | More than 300,000 Venezuelans at risk of deportation under new Supreme Court ruling - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQMFZmZ0cwbTNmQ0V1MVRxTW5BUzJZVVBuZ1ZfUThzeV9wWVF5Q3VpeGZVZ2t3QTJzMVpaclB5VUkxcHl3UWhEcEthWUhfcE9tcldtOTBIRzVhV2VjS0ZEa216LWZ1V0ZYMzh5eWY1VlFWUjNhcmItRTlJdVpEX1FDSUFBTU1FVXNEUHc?oc=5) |
 | Exclusive: Trump is sending California National Guard troops to Portland, Newsom says - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNdWNFcnhER3BvbC1vM0Y4VnRUTTFhTktlWUxNQ1pmLVpUOUNVSUw5VTN1cnJiWU9mOFJma3ZDY3lYbV90LU5GcFVGcjBpcFQwb3JVamlicHptZG5kc1poNW9vbFZGWkFHZDRQZ2RvemdqdUVlMUpkM2xheXgwU0d5WWEzb05SUkV1bnFKckF0c3M4bFBkaGZ3UXpTNmJleG8?oc=5) |
