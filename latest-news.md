@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月04日 16:40:31（北京时间）**
+🕒 更新时间：**2025年10月04日 16:49:45（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Hamas accepts Trump’s plan to end the war in Gaza, but with conditions - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQdWN0S2F2Qy0tMllvOTRieGVHUFpMVkkzWlJGTFcyQzVtXzIzMGQ4QlhxQWhrWjVSTjN3cktpYXRwelEwRVVvR0YyYVRLc3N6V3ZvdUhLZjlncDhleDFxV050UUhWc1EwMVpnR3ZPdlJzcEs3Wi0xa1dWaGNPM3p0M3hJQzJkZzA?oc=5) |
+| Trump tells Israel to stop bombing Gaza after Hamas responds to peace plan - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1vUzN3NUNhdW5KdGZNLW0tdndmRk0tU3p3aDhxMkdHLW84YVJCTGR0RnFvTl8zVHNLU090NTBfMEpzN3JFbUQ1VERoV1phR1RRX1g0QXhnWmk3ektQTFdNZFBDcm8ydERPWVI3U01vaGZfMHR5cy1jTm5qV1NYLVE?oc=5) |
 | Chevron refinery fire in El Segundo extinguished; investigation underway into cause - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOendzVEZObm84MWJ5dDlJSVUxN1dIWVVpQUlsN2s3N2hrVndWd2tZckFFang1dE82Q3lYc3ZxS0hFR1c2aDdBVDlIcGRkYkVScmZJTWh2bXJnZUkzYll1OTFGT194czV5NzQ0b0syNkpWLXplaGdXaDRUUGRXX2pfTzladjA1X1Awam9QTUJmTWN1NUVUM0E1QVZrY1EzekJ0cHJRQjNFSEdnU2RXc1c1Zk9R?oc=5) |
-| Japan Set for First Female Prime Minister - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5ObHR1SjYxNkJSSW9rTTdnR3pMODZVZnFlY09hazhESVdERmVlLVJ0NjN1NG5PQjBOTUpMTUxlZHA1RFoteFRnWmpFQmNYTXFKcmMybG5jeDVKWjROTnVPdXZPSFdVQ3V0NVBGMU1LcWpYUGJicDhyZ0pn?oc=5) |
+| Sanae Takaichi is set to become Japan’s first female prime minister - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPcGZDeVZMM0NSc2JuejhGY3VQOHk0bFhrR3daZFdubXVKa2ZRMnN2OVhzZGEzZE52Um5mWFJtamRpa180b28xRlRVa2VueXBwU0ZKYS1jMGRKN01lN01KQnlLcVpGR3VxbnpMN2xub05TRExhbHB4WmpEREw3aHBGRC11Z25aRkF5OGpwbw?oc=5) |
 | Trump's $100,000 fee for H-1B worker visas challenged in lawsuit - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOdmhpQ3k1RUpwTUdsSG1PZl9fa0N4NzBuNUxXam9Kd001RENXQ2t6Z25GWWhMX0ZPbzVqNTMtX0ZGOTJTSnl1TkRMT2YtdTJUM1hZckc1TC1JbzAwOTAzd1I1dl9Oc0pfQ1BBbjJnY0Z6Y0RFd1FKVTFtOWhKZHFTcDV0eFFDMEYzMkQ0cDdzX0dzbjRhYUdSOVlLMTQ?oc=5) |
 | Legal experts condemn Apple bowing to White House's request to remove ICE tracking app - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPUnhZbHVlYk91Nl9pendibUZUdzE2Y0c1dzhPWklTOHVaUTgzS19KUUVTOF9zaG1wTllQWmNtNFZQTGx1V21ZcUNKR0dyekgzckV6dERfTjFGVm8wakVOWnNBekMxYWhRSUEtakZ3U1UwRWZobmY5RDh2YkZpX0lnekItWWk?oc=5) |
 | Mike Johnson cancels more House votes in escalation of shutdown strategy - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQNXk5TFg0ZHhvanZ1WHpiZTFDRnBQLWZFejNsNmEtcU9uUDQyVWw4Rk43UFFRVnlvay1YRWpGQkhobHNyZ3YzWTZ2bmdNMWUyMURmalhvbm5Jakx0bU9TS0ZiRTRibGE2d2xjNEFsdHp3eE5YbkEyWEo1bHhLck9EV2Jlbw?oc=5) |
