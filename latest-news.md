@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月04日 18:57:43（北京时间）**
+🕒 更新时间：**2025年10月04日 19:01:39（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Trump Hit With First Lawsuit to Halt $100,000 H-1B Entry Fee (3) - Bloomberg Law News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQeXBSTlZkUlctSnhjTlgxSU1xOUxiQ3Nsckp3cE1QV2o3Vk9ZOTBGTmtzRHhuZHktTk90em9GSGpMemhjNGlEQU5kalFyOHNLVTgza1VhVWx3ZnM5Nzg3WTBsUTd4XzhyMWtQSklqMlhncXRMR2xpNWw0Q2kyckIxM2pDWUE2YndFblo4Rjctc2wwSXROWWFJRTg1dk01dTNnazRSNUNwVnBzM01kSVE?oc=5) |
 | Chevron fire expected to spark jump in prices at the gas pump - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOdnBkT2dSQmNkbFZFTzl0cnh2NkxDTG5mbFRISUUwdjYwNGcxYm03U1QzT1BBUjNMVkRLNXBCcU1KblR2bzdwdUdabEJwY0JfNEtrNk1oc2NfS3lhM2FoanIyNEtKYWdaZ0R5a0tqSFljTHBiVHNFZmJzeU1QNjlveWphZm4?oc=5) |
 | Shutdown standoff not about whether Democrats or GOP 'win or lose,' says Sen. Warnock - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQWmJrbGFjSjhqc2ZVR1FYOV9faXdTTW9Hck9GTlh4bkJlem1oeVJVVThGd1MwZXZza01PVkVHN0JRaU9kOXozdDR3Y1dkZEtaMFRHTEUyaUZocHQxVUJlQV81MlpNay1uLUdTR1pvUklPbS1rWFVGMTV2ZTFsaTRMcXRHSXpKYWg0VEM5ZkJHOU5HUnRNVDRYUlQ3M1ZSSHc?oc=5) |
-| More than 300,000 Venezuelans at risk of deportation under new Supreme Court ruling - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQMFZmZ0cwbTNmQ0V1MVRxTW5BUzJZVVBuZ1ZfUThzeV9wWVF5Q3VpeGZVZ2t3QTJzMVpaclB5VUkxcHl3UWhEcEthWUhfcE9tcldtOTBIRzVhV2VjS0ZEa216LWZ1V0ZYMzh5eWY1VlFWUjNhcmItRTlJdVpEX1FDSUFBTU1FVXNEUHc?oc=5) |
+| House GOP cancels more votes in escalation of shutdown strategy - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQNXk5TFg0ZHhvanZ1WHpiZTFDRnBQLWZFejNsNmEtcU9uUDQyVWw4Rk43UFFRVnlvay1YRWpGQkhobHNyZ3YzWTZ2bmdNMWUyMURmalhvbm5Jakx0bU9TS0ZiRTRibGE2d2xjNEFsdHp3eE5YbkEyWEo1bHhLck9EV2Jlbw?oc=5) |
 | Exclusive: Trump is sending California National Guard troops to Portland, Newsom says - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNdWNFcnhER3BvbC1vM0Y4VnRUTTFhTktlWUxNQ1pmLVpUOUNVSUw5VTN1cnJiWU9mOFJma3ZDY3lYbV90LU5GcFVGcjBpcFQwb3JVamlicHptZG5kc1poNW9vbFZGWkFHZDRQZ2RvemdqdUVlMUpkM2xheXgwU0d5WWEzb05SUkV1bnFKckF0c3M4bFBkaGZ3UXpTNmJleG8?oc=5) |
 | L.A. City Hall evacuated after vehicle crashes near steps; driver in custody following standoff - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxPeEdpWTM4VVJka1l0WUpQOUwyekdpVGM1em9mcTkxOEFCNFpmQWNxcF9qVU13T2s2eFpNdFpQaXlfb1h3cnBVeEdtMzZXT01jVEM0TTAxRlJrc3hNNnBnNWxFTXdVNWtUSWhmQ0ZyeVF4RDhPSElqWnhGMFdFandXWGNZQnIyMTRMQjloOEUtNEkzc0pqV2lhYnZlZHM1Qk1YaGJkWXlqbUktY0FkSWtVTE1RODY1QVdZZzZybjBfTGc0UU9yNHc2T2s0WjJScjBzZ2c?oc=5) |
 | North Carolina governor signs criminal justice bill into law after Ukrainian refugee’s death - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOS0Z3cUF1TzUtSDZRVUdrTGR4MkM3bHNlLVk4ZDFzNjR6RWtNamV4V3g3Z0lFUUFkUlppZWdvR3BWbGlnVm1FV1dpVWxrZVFBazdSUl9mTnU5dHF2ZVhEX1FtWGl4b3ROWkN2WjhoWHdVVmZjZXUtbFV0S0VpOVVrQmtCQ08wcXpGWGNNNEczVmFGQlJ3VVJkRlBreVp0c3RfQmVVTUhqNzZPbFNjUER3?oc=5) |
