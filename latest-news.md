@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月04日 23:00:40（北京时间）**
+🕒 更新时间：**2025年10月04日 23:09:04（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Colorado company may close after Trump administration cuts funding for nearly 3 dozen energy projects in the state - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQMHA0SGZ6OVppSzJTQnlTT1I1RFktMUZmWk9oZGhDT2FvLVZ6eG5lNmNxb1ViTmd2a3ZLYm1RSDFLQk5lS2tiWDFKNl9UcHduLV8wVXZVY3BJamprQjFPeDZkU0RmeHFYUGZoVTYtRkNEc0lwRUdFQUpnQTBxa3o4NVdUcVJsb21haGc?oc=5) |
 | Des Moines school district says it will pursue legal action against consulting firm after superintendent detained by ICE - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQTnpaOEFNdHBIck1BNlF6TVdjTG5JTEdjLVNGb203U240RGZ1M1lqRTZzNEViTmRGSWJseXZBc1diN1JDYjNoOGxjVnZOTHdNTF96VGktbkRCR1pJZ1RfelI5OEhkR3VuelRDa0FFZzRZRnZaYWUtRVpqenRyck9TS1RVRWZOYW16UXVUVjJKSFRYVEdPeEU0aElwWkxsZ3VGNVE3MtIBqgFBVV95cUxPZm5XSG1pZS1yYlFtdjZZR1Zab2VMLTlrODZrWmlqczhHOVBPTHA5RDV3QXBTaE1sQlBNNUtack85dm9WOWxxRjM1MkxiRG1DWHphdEpod2xjVFhtTWtTRG9IS1lfbmtpQ0NfMExzZ0RSeVc1M1B6S1JzUlR0aEprMkdJbWJiQmYtdC1zR3p6cDM0QUxFMXAxb0dZWmR6dTJGRGJfYWhWUTEtdw?oc=5) |
 | Supreme Court will let Trump end protected status for Venezuelans for now - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOT2pRRVgzdXAyZFU5bVZHYUtDRkNkRDZEWFdPN2NZR3M3NnVhUXhlQ2ZLU0tzV2pxaUNHUGlSUXRGWXlwQVdtYlRwREZ4LTRBamZVdW1NeV9sLUQxd1V5NWhWTUxfZmtPMi1QU1VwUUxlR2RBQ0ExR2pvbVhsNmFwemM0Z0VnT2dOYzRsanZpWUhuWWlnZWVB?oc=5) |
-| 'Drop it now!': Video shows Michigan church shooter was ordered to give up before he was killed - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPZ3IwZGZBQnFYTGw1R1oxbWNTWUx1QVRkUVZrQUJpTUJ2WGEybTMwR09XVlZMd2FJRlpDNmUyLXN2SnpuSDVFX1B5Qm54Vm5tbFhFUjJDOEdqSHR5WlhWcDU4a3J0TGE0YVFMQTZIVmFiZVB5MmxpLTI5VGJOaF93Vy1PTkNNNEk3MUJDVGtFZEZJcmdvV1E1WlEwbVY4ZWRMUDBHUQ?oc=5) |
-| Trump undoes $187 million cut to NY security funds after GOP outcry - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPN1FaZ0h3bVI3MVdrOTBYQkNiS3F1Rkh2ek1sT0pwN3FtUXViNjlEWThiVWpYTk9NcmVVSDYyeHFsdWV0T3Zwc3Fac1RENUFucnE5RnJrcTh4aGpRVXJYRGV6U1V3NVBfZjRzMElNNUZQTnRkTkFxd3NQYkRsMVlKOThDVU5IMDhRUXN4eQ?oc=5) |
+| Democrats’ defiance on shutdown shows a new, tougher approach to Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeFlIal9SVEw0RzNQY0xUNWRGMW52VUQzNXZsQy1iZFZvclJ0UmxMYy1neVNfX3VTVVdObTNXNTJYX1VuWlRJTEcxaTFBT0ZYcjBYUmJNVWxkSkVmSExfQloxR0lxc0lLcjJuVld4T2Y2SkR6djB0WVJKU2NrWVgzRWgwWlZMaTMwZ2lmdUYwdw?oc=5) |
+| 'Drop it now!': Video shows Michigan church shooter was ordered to give up before he was killed - KSL TV 5 | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9acGJkODlzYm5rWEw5NEREMFVYUzFlUWNnNHV1S0dLWXJzak5mTlQyeEJrT0xDWjdRbGdqM2Q2UnJtYnplZUc4ajBJMXBCNHdNcFBaZW5Jbnp3SlhaN3h5ME5iLUliUFZCTUItVzE0ZUJiN2JCcjZTUw?oc=5) |
 | Simi Valley resident gets over 8 years in prison for attempt to kill Justice Kavanaugh - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxNUUJSVW1kUUFTTW5ydW9DOVYyZV9lSG5UQlllZGJ6cGFjQzdVV2ZTdXNJSVp2cTV0Mko0Vm9LeXVCVDdaaUVNUU5LSVUyNEgwTzVZODFmSW0tRVZQTFppRzRtRzBtVUlxb25JQ3BESlduanFoTUJfZHNuek93ZEVtY2RnM0Y2dkhVR0lDeWhaLW1Rb2V3OEY0dmxkV2Q1VWhWa3h1NWFva0w5WE1IaGp6RzhPc2J4S0dpZkk4WGthU1VzTnVqWHhZUGxrSDhlcTh0MlBMWnNxMnI3WDFKWWVj?oc=5) |
 
 ---
