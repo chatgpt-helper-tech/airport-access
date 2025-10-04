@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 03:09:43（北京时间）**
+🕒 更新时间：**2025年10月05日 03:16:02（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | How California struck a landmark law to rein in rogue AI - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNZU52dk9vTDExMGxBeG9fTDdwQmhlbU9RQlZtRDI0Xy0xRlIyQldfYldYYndEUHJwam84RHhqQ2NoZE5zclA4UFJTeERVSFJ2VHhYdWl4U3g4VlV4STFnNVNyVWFTQW8xS0U2RGlZVXJscGZSeFlkZWliNjhHTmJYMjUtRUktTlk?oc=5) |
 | Virginia attorney general candidate Jay Jones under fire over resurfaced text messages suggesting Republican should get "bullets to the head" - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQa0lHcGtONm1xS0paanF2MV9mV1ZWWTM1OFFBc0FHOW1QdlFEQS1TbHpMZG45eUVmTldDc0ctRzVLTDA1UGFlREZqQnQ5S1I4TUZrM3hCeUJJOVFQMVJDb2x1ZDNlY1BISW8waUNrekdONG1GaHAzaXFiWVVfdGZUaVk1bFpydUxRamcxRXdfQ2x3Rmh3b1I4Y25DYk9FSFc5eHZwMVA3RXBWcHRGcW1RSFZYMGpRRGQtRl9WaW1LcUVrUdIBVkFVX3lxTE1UdkV2dXFaa2w1bjRzX01ISVZCUE1udUt4cTNIWVhFU29SUFZEQm9TWU1qOV9CMWFhQ1Y5UkZ5akExeWNqY2kxZlNIbmJNMDIwTFNXb0x3?oc=5) |
 | New Supreme Court term confronts justices with Trump's aggressive assertion of presidential power - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNemxSRmxoOS1SSzRNeDhIT3FvelV6OFAwb2phWHNNazRXemJ1M25NT0xQZEdSTkpBdXhLWUxEZ3U2VWlJd0F0MC1XbDZZQ0ppeVRKSElMenNHQ2tRbjFrLTktQnpEaWx6Z0xubXNkaHdWQ05kUkFGQzBUb3c4NEtoUVI5S0NWanNKY0ZfTU5uYURUdGJRNDd6WG02UVBnM1ZCZWdDYU1PLS1HUWk1a1B4b3JtUkxuTTg?oc=5) |
-| DHS offering $2,500 stipend to unaccompanied migrant children to self deport - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNemNKUUVhVnMtSmt0X2JSNUpzRVZMRzVSaEhKNm5odXRGTElyVFVETzdkUnczTkZRZkVSbWlpN0xWcXEwQzZTTXlqVDNSZlM5eTJZX0dFU2NEMnBnMXNFVXROVi1TVmVBYVZ2aFRxUTI3cE5aLXViQVNFbDlfQVE3ejVUZUppNjh2MjVOUnZxYlUyd1VqdFNGZ0ZZZlM1a1dGcEVLMVhEOHpRdVF60gGyAUFVX3lxTE53RFJUME4tYVc0WmdKWGhqczZOMFhVNWtKamhodTRKN0hwMFBpWkREbXBYTTRBMzJBVV9MbUFkTU10Qm54aGpmeW50bE1zV09tRG1wWDh4bXdac3FxZW5ieHM1WHFDRklKelJIT0huY2ZacldPb3lJeGNJNVoweGZYbGVnRUNqY1lYam0tNGNKbWc0enl3eDc1R0RBT1RkV0ZXNDFpWXM5cEpIMnVxOWN5VkE?oc=5) |
+| Trump administration prepares to offer money to unaccompanied migrant teenagers to voluntarily leave US - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNSlFGaUlJY2xCNGJNM01YQnZ3WlJkQllaSUM5ZE5LYkVaWUVQMFR4WDg4V25NazN6ZUZqYWZzMmRxQzN3MlFVTTlaZnkxRjYtZFBaMTRlVVc2Qmxuc0RYQjRBUTZaNXpveENicTBKUzR4am9uc1ZzaXoyMlNFYnJmcw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
