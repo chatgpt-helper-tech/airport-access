@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 04:01:12（北京时间）**
+🕒 更新时间：**2025年10月05日 04:09:48（北京时间）**
 
 ---
 
@@ -10,14 +10,14 @@
 |--------|-------------|
 | Shock in Gaza as Trump appears to welcome Hamas response to US peace plan | [阅读全文](https://www.bbc.com/news/articles/c15k199j1x3o?at_medium=RSS&at_campaign=rss) |
 | Hundreds arrested at Palestine Action protest in London | [阅读全文](https://www.bbc.com/news/articles/ceq2e9x19g8o?at_medium=RSS&at_campaign=rss) |
+| Tories pledge to remove 750,000 migrants under borders plan | [阅读全文](https://www.bbc.com/news/articles/c708g5x2yqzo?at_medium=RSS&at_campaign=rss) |
 | Damage and disruption as Storm Amy hits UK | [阅读全文](https://www.bbc.com/news/articles/c0lky9nn948o?at_medium=RSS&at_campaign=rss) |
-| The battle is on for the Conservatives to show they matter | [阅读全文](https://www.bbc.com/news/articles/c864dzn827xo?at_medium=RSS&at_campaign=rss) |
 | Teen jailed in Dubai dies after London police chase | [阅读全文](https://www.bbc.com/news/articles/c3e7yyjw77qo?at_medium=RSS&at_campaign=rss) |
 | Hundreds of extra police on streets after synagogue attack | [阅读全文](https://www.bbc.com/news/articles/crkj50gd217o?at_medium=RSS&at_campaign=rss) |
 | Watch: Old Trafford's minute's silence for victims | [阅读全文](https://www.bbc.com/news/videos/c89dnyz95k0o?at_medium=RSS&at_campaign=rss) |
 | What we know about the attack | [阅读全文](https://www.bbc.com/news/articles/cd63p1djgd7o?at_medium=RSS&at_campaign=rss) |
+| The battle is on for the Conservatives to show they matter | [阅读全文](https://www.bbc.com/news/articles/c864dzn827xo?at_medium=RSS&at_campaign=rss) |
 | Is Taylor Swift's new song Actually Romantic a Charli XCX diss track? | [阅读全文](https://www.bbc.com/news/articles/ckg24xvyzxwo?at_medium=RSS&at_campaign=rss) |
-| Gisèle Pelicot returns to court after trial made her an icon - and tore her family apart | [阅读全文](https://www.bbc.com/news/articles/cvg4l80gz7eo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,8 +30,8 @@
 | Democrats’ defiance on shutdown shows a new, tougher approach to Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeFlIal9SVEw0RzNQY0xUNWRGMW52VUQzNXZsQy1iZFZvclJ0UmxMYy1neVNfX3VTVVdObTNXNTJYX1VuWlRJTEcxaTFBT0ZYcjBYUmJNVWxkSkVmSExfQloxR0lxc0lLcjJuVld4T2Y2SkR6djB0WVJKU2NrWVgzRWgwWlZMaTMwZ2lmdUYwdw?oc=5) |
 | US Border Patrol raid sweeps in citizens, families as Chicago crackdown intensifies - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPckxoUE53Z29JR1JoX3QwN1dvZzNWNER6TVdpY2tLa002NEZ1TjctcGhpOUlKcGVMMi03OXpHNHdRZm1GM3FZaHZaOGdhWTZYdFVpNFFMUFB4WUc0UmtfelJqa2ZLMzM3Q19vSU5UQXhEbzdGNzFiV0dEYVk5b0tObWdsUUI3VUVxZDZEamE0eC14dkdheTkzR0JsbndaVWVmWEhQc2ctWXJPNGtNSC1IamZybk5Cb2ZSdWxCeVhn?oc=5) |
 | More than 300,000 Venezuelans at risk of deportation under new Supreme Court ruling - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQMFZmZ0cwbTNmQ0V1MVRxTW5BUzJZVVBuZ1ZfUThzeV9wWVF5Q3VpeGZVZ2t3QTJzMVpaclB5VUkxcHl3UWhEcEthWUhfcE9tcldtOTBIRzVhV2VjS0ZEa216LWZ1V0ZYMzh5eWY1VlFWUjNhcmItRTlJdVpEX1FDSUFBTU1FVXNEUHc?oc=5) |
-| How California struck a landmark law to rein in rogue AI - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNZU52dk9vTDExMGxBeG9fTDdwQmhlbU9RQlZtRDI0Xy0xRlIyQldfYldYYndEUHJwam84RHhqQ2NoZE5zclA4UFJTeERVSFJ2VHhYdWl4U3g4VlV4STFnNVNyVWFTQW8xS0U2RGlZVXJscGZSeFlkZWliNjhHTmJYMjUtRUktTlk?oc=5) |
 | Abrego Garcia wins request for hearing on whether smuggling charges are illegally 'vindictive' - AP News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQNDgyUGhvaVJRTmdESnUyeTVmbm12UUhaRXBVN2IyWDdHMEZNNzc2RGtCYjNjS0FadzZDdHgxTjdIZFdUOTlXRzR3VGk4STJWVU9ETHlJeFVTb3pxdkkzQ3BGR1RtcFlOZzVaYy1yQ3NwVEgzWVFFWHI4a1FQS3hmR1p3NEVheXV1aFZSUDdWX3VRdmd6RWlrckRhdmZPTGdQVXJSNFFSNUNkZkg1RFktU0RXZ1NfTmNwSFZONU9JNA?oc=5) |
+| Simi Valley resident gets over 8 years in prison for attempt to kill Justice Kavanaugh - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxNUUJSVW1kUUFTTW5ydW9DOVYyZV9lSG5UQlllZGJ6cGFjQzdVV2ZTdXNJSVp2cTV0Mko0Vm9LeXVCVDdaaUVNUU5LSVUyNEgwTzVZODFmSW0tRVZQTFppRzRtRzBtVUlxb25JQ3BESlduanFoTUJfZHNuek93ZEVtY2RnM0Y2dkhVR0lDeWhaLW1Rb2V3OEY0dmxkV2Q1VWhWa3h1NWFva0w5WE1IaGp6RzhPc2J4S0dpZkk4WGthU1VzTnVqWHhZUGxrSDhlcTh0MlBMWnNxMnI3WDFKWWVj?oc=5) |
 | 24 hours outside Portland’s ICE facility: Is this what ‘lawless mayhem’ looks like? - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPX1FVUjVMVjdSS2FZbEdiRlBEVmh6OERQX0E0Nnd6X3lZWnJEWVNRUkN0OFFPVGNzWC1abDNNUTdrUHFuUC1yTVZSRkNEY3Z5LThhVVdSZlVzMFpLbzdKT2d0cTZsQlc5VEVpZHJaTjRlT2dVdXNTbTZIb1kzWElVYTlwSlB1LTNZaU54N0VkYmRWWWtVa0xjU2NmaWozYTl2WXR1eWFCMVNLcFdaS0hMQ3JKZjBNR0hrRUpYWTlNWHBrQdIB1gFBVV95cUxOdjJzSmJDV3NuWXR3VWZGSHlxSEN3TWpXYTZ6NElIekFuQ2pibTNETTEyeXhxX2d6WkJ5U3hFdF9lZVA1aTZKZVlZb2l6SzlSTGlDMnBacVJmR0xWMDNsUEM0X2NaUkhLWjhUZ2djUkNOR0t2TURHV0R0NlFIaVdUYjdyaUFMM3U2SU12UldHcHd4N1JmYlJWR0JKVFIwMmRINXl1YlVwdm9PU19sWW1xTHJYdFZUNVZPWUlMU21FR1VKS093RXk4QkVLRGtwODBfS1hIYVdR?oc=5) |
 
 ---
