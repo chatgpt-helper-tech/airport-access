@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月04日 18:49:16（北京时间）**
+🕒 更新时间：**2025年10月04日 18:57:43（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Exclusive ｜ Hamas Is Still at War With Itself Over Terms of Trump’s Peace Plan - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQNDJKdUVKelg1TF9pOW1YUTFXdElMVm95bDVoSGMtWVU2ZGtnQjE5aUlFcDQ2TW41RV9HekwyWWdkdlZqZjhiRUtQbmtGNGpuSDdNajdPaEJCVVFzVFpTejYya3RtV2U3TGdybWNZN2NDWVN1azdGajl2Q2l5bUdtWWNaN2tWeUVB?oc=5) |
+| Sanae Takaichi is set to become Japan’s first female prime minister - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPcGZDeVZMM0NSc2JuejhGY3VQOHk0bFhrR3daZFdubXVKa2ZRMnN2OVhzZGEzZE52Um5mWFJtamRpa180b28xRlRVa2VueXBwU0ZKYS1jMGRKN01lN01KQnlLcVpGR3VxbnpMN2xub05TRExhbHB4WmpEREw3aHBGRC11Z25aRkF5OGpwbw?oc=5) |
 | Trump Hit With First Lawsuit to Halt $100,000 H-1B Entry Fee (3) - Bloomberg Law News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQeXBSTlZkUlctSnhjTlgxSU1xOUxiQ3Nsckp3cE1QV2o3Vk9ZOTBGTmtzRHhuZHktTk90em9GSGpMemhjNGlEQU5kalFyOHNLVTgza1VhVWx3ZnM5Nzg3WTBsUTd4XzhyMWtQSklqMlhncXRMR2xpNWw0Q2kyckIxM2pDWUE2YndFblo4Rjctc2wwSXROWWFJRTg1dk01dTNnazRSNUNwVnBzM01kSVE?oc=5) |
 | Chevron fire expected to spark jump in prices at the gas pump - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOdnBkT2dSQmNkbFZFTzl0cnh2NkxDTG5mbFRISUUwdjYwNGcxYm03U1QzT1BBUjNMVkRLNXBCcU1KblR2bzdwdUdabEJwY0JfNEtrNk1oc2NfS3lhM2FoanIyNEtKYWdaZ0R5a0tqSFljTHBiVHNFZmJzeU1QNjlveWphZm4?oc=5) |
-| Sanae Takaichi is set to become Japan’s first female prime minister - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPcGZDeVZMM0NSc2JuejhGY3VQOHk0bFhrR3daZFdubXVKa2ZRMnN2OVhzZGEzZE52Um5mWFJtamRpa180b28xRlRVa2VueXBwU0ZKYS1jMGRKN01lN01KQnlLcVpGR3VxbnpMN2xub05TRExhbHB4WmpEREw3aHBGRC11Z25aRkF5OGpwbw?oc=5) |
 | Shutdown standoff not about whether Democrats or GOP 'win or lose,' says Sen. Warnock - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQWmJrbGFjSjhqc2ZVR1FYOV9faXdTTW9Hck9GTlh4bkJlem1oeVJVVThGd1MwZXZza01PVkVHN0JRaU9kOXozdDR3Y1dkZEtaMFRHTEUyaUZocHQxVUJlQV81MlpNay1uLUdTR1pvUklPbS1rWFVGMTV2ZTFsaTRMcXRHSXpKYWg0VEM5ZkJHOU5HUnRNVDRYUlQ3M1ZSSHc?oc=5) |
 | More than 300,000 Venezuelans at risk of deportation under new Supreme Court ruling - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQMFZmZ0cwbTNmQ0V1MVRxTW5BUzJZVVBuZ1ZfUThzeV9wWVF5Q3VpeGZVZ2t3QTJzMVpaclB5VUkxcHl3UWhEcEthWUhfcE9tcldtOTBIRzVhV2VjS0ZEa216LWZ1V0ZYMzh5eWY1VlFWUjNhcmItRTlJdVpEX1FDSUFBTU1FVXNEUHc?oc=5) |
 | Exclusive: Trump is sending California National Guard troops to Portland, Newsom says - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNdWNFcnhER3BvbC1vM0Y4VnRUTTFhTktlWUxNQ1pmLVpUOUNVSUw5VTN1cnJiWU9mOFJma3ZDY3lYbV90LU5GcFVGcjBpcFQwb3JVamlicHptZG5kc1poNW9vbFZGWkFHZDRQZ2RvemdqdUVlMUpkM2xheXgwU0d5WWEzb05SUkV1bnFKckF0c3M4bFBkaGZ3UXpTNmJleG8?oc=5) |
 | L.A. City Hall evacuated after vehicle crashes near steps; driver in custody following standoff - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxPeEdpWTM4VVJka1l0WUpQOUwyekdpVGM1em9mcTkxOEFCNFpmQWNxcF9qVU13T2s2eFpNdFpQaXlfb1h3cnBVeEdtMzZXT01jVEM0TTAxRlJrc3hNNnBnNWxFTXdVNWtUSWhmQ0ZyeVF4RDhPSElqWnhGMFdFandXWGNZQnIyMTRMQjloOEUtNEkzc0pqV2lhYnZlZHM1Qk1YaGJkWXlqbUktY0FkSWtVTE1RODY1QVdZZzZybjBfTGc0UU9yNHc2T2s0WjJScjBzZ2c?oc=5) |
 | North Carolina governor signs criminal justice bill into law after Ukrainian refugee’s death - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOS0Z3cUF1TzUtSDZRVUdrTGR4MkM3bHNlLVk4ZDFzNjR6RWtNamV4V3g3Z0lFUUFkUlppZWdvR3BWbGlnVm1FV1dpVWxrZVFBazdSUl9mTnU5dHF2ZVhEX1FtWGl4b3ROWkN2WjhoWHdVVmZjZXUtbFV0S0VpOVVrQmtCQ08wcXpGWGNNNEczVmFGQlJ3VVJkRlBreVp0c3RfQmVVTUhqNzZPbFNjUER3?oc=5) |
-| Would-be Kavanaugh assassin sentenced to over 8 years in prison - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOUlp5bjEtSFhXWlBZR2tiMmZhcE0tQkQzYVVCQ1FRZFlhVGVGc2x6bm0zc29QYWRQRW91Z1AzeW1WX0Q0VmNpLTJZbGxydkFkZWVtLUdPbVJudDAtai03alBRMmllZzdGc21ibVo1LXN0bmZJVEE2OUdoUnZ1TV82MGNSaV80QQ?oc=5) |
+| Trump undoes $187 million cut to NY security funds after GOP outcry - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPN1FaZ0h3bVI3MVdrOTBYQkNiS3F1Rkh2ek1sT0pwN3FtUXViNjlEWThiVWpYTk9NcmVVSDYyeHFsdWV0T3Zwc3Fac1RENUFucnE5RnJrcTh4aGpRVXJYRGV6U1V3NVBfZjRzMElNNUZQTnRkTkFxd3NQYkRsMVlKOThDVU5IMDhRUXN4eQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
