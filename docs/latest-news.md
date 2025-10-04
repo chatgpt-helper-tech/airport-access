@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月04日 08:41:13（北京时间）**
+🕒 更新时间：**2025年10月04日 08:49:19（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Supreme Court allows Trump to revoke protected immigration status for thousands of Venezuelans - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQVWhfRDdrRHFQTjRONjh5cUJJQkNVTE1VeE1DZENhY2s0MzBrRW5FMjNPREFaUUpRWlFSMm8tV2piM3dTTjU5ZGtWRTh6bXZUVDBIMHc4ZlRFNlpLUXRQUTBENGpXUXZVNnZSem9XY3UtZGZaS1padkYwbmxXYUM4S2FZMVN3LU1xUmdTZkpuVHk0Snc2U2JmaGZHYWFnNlFpVFpCZHdLODJwTXFEb2VERGdtU2NieWI2enlz0gFWQVVfeXFMTlRQZWFuXzlBZkNDTzJzVzV4d0pCcHJkUlRTMndlOVVuNUlLdGMyeWc3M2kyaDhwc2h4cmM5Y2J5ZUdEOVlmRE5GR1hKMHhwcU9acFRHdkE?oc=5) |
 | US carries out new strike against alleged drug vessel near Venezuela - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOc1ROZzA1QVJ4ejJGdXlWcHZtcHo2YjhiQlFFMXFkOUg4U2xOTEtsLUJ1NHh0b0pqSVYxNDJGZV92ZFNlOVY0ZXVONkdPY1B1UFUtWEw2X3VoU2RVREFWanhtTzJ1V0hfZmsydnlZUWlzSHNCeGRraHZmaWlfRmhtZGE2a3JwUE5KVFpWVzAtRVAtRS1Wa3JOaklaX0h4alN6WFFXeGVWUEJuUWNHejBCajdyZFpfM2pRUE5z?oc=5) |
 | Treasury weighs minting $1 coin with Trump's face for U.S. 250th anniversary - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9XYktvQVczSndxc3RPemVVUVlXa2RrQWRDQWxXaEZzVnZpcjAzWlhDZ1FoNERqMkVYcXRUdzJTRW15R19hV3AxcVJRaU1aWEllMWRLNGNsYWtfUGdhRlBPNjJDMW13UWsyNFVZSTFIVzNvSEtRdFVN0gF8QVVfeXFMT2JlYURsTHAwNndVWEVIQUhlOXl1OHdiREl4eXB5aklfcGYyZTNBckdZOU40OWJGdHpsMnNaWjdISGdTSk4zNzFLWjBTbm1WSlVjZXV2Z3dINlhjMF8xT1k5dUh2bW5hWmtESVpzT3lPNlVRaUdXblE0VWhyMg?oc=5) |
-| Justice Kavanaugh’s Would-Be Assassin Sentenced to Eight Years in Prison - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPT3lVQnlGSkFmb3R4X2RKd0RIS2h6UVFkZllkQk9hQXIzcjhRWnd3TFNCQkhnOXQ5emF6QmYzRUxNMDlGY3dwV01RY19OOGxEcjllRnU4cnpScS1nRXJoN3RoT1ZQNjBHZmkxN05nTjBQQ1k2UlkxajJjMG9KemJHVFp3LV9SMkJVUnhQYUFVU1NyWjg?oc=5) |
-| U.S. deports journalist Mario Guevara to El Salvador, family says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNdTdEN19GWTA5X3JpUllFaEdzMEMzVHkwSHNFazU3RW1ldzRKZWR3QkJKc3oyTXhvRnEwVEtiRE1iaWRYSy1oMXFndWhiaXlnRzFoTnlaMmdYMmFHQjNuTEpCUHNTRmd2YWxKOHlmMEZTc1hONVZrQkM5V0VFaWktTEljRDZ4QlZUQURMbndrUGdLNFRBcThGMnU4eWxnaERK?oc=5) |
+| Spanish-language journalist arrested while covering protest near Atlanta deported to El Salvador - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPVWRBYzhHN3dKS3gwbFRLTkROSVpXQzJ3U2I2Mm5HN1EzRVlBeGhwR1ZMVU5WcTRRMWJaM0dqdXZwbkRpTVlsdl85STBlZkF3MzBhZi1fUzI4Ry1FaEswT2N5d2Q1QURURWotdTNaSjM5Q0hoYjdJdW9COVpHOTF6S0RIMk9fRXRtd3RZeHE2cFpQbkVLM0hJeElsS3lJTnJfWTZsVnhwRkZUWUgtOHhIOENCUXB4NUZo?oc=5) |
 | Calling a ‘code red,’ Newsom says universities must reject Trump’s compact - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxNcGVySXlhQWw1M0lVeE9semNiWk1WbFpjVk9KaW9iR2wzQ1gxSnFqU2NPbTRKVnZmbjZBM2hXZjFpVHdEdFY4Mlc3YmhaTVltRjJVN09MemJUOE1kUmhORm15Zmh2T1Zzd3pRMzRJVjkzaWt5MEYyWkMxS0JfQnhObFQxX1hMVmZ0R09JZ1ZMZUNEOFJaaGc1b2V1YkRBVzMyYVJQcXN5WWs5WkVaOHVaZ2RZSFNyaU0tNnF3Ng?oc=5) |
 | Trump called for troops in Portland. Here’s why Oregon’s governor was ready - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPUV9zNWt5ejlIcUFubVFrdGFacjJFVlc1emFpLWgtV1lJS2tKdWNMX09Xa0RzaWxjSlducUp0Qi1ZR01NbFZRTGY4dHpkZDB6ZnlrbE02N1ZnaHRvckVET3Z3UmxXSzVPbTdkUk1sZVZtb2x4UmVwVkxVSEtBVzdMNFlaaDZRUVV0c29TLVA5b0h1c0lKVnJQYmhIUjl2ejJIRUxOU0FIdUFZaDhZZVB5T0E3eTZzcWFtVmwzdnFR?oc=5) |
+| North Carolina Gov. Stein signs criminal justice bill into law after Ukrainian refugee’s death - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxQZ2pEMjltcUkwbHIwTXpJU01aNlBpVDFiRk9VTkxqbFhMM01xVWo3UENxc1B5MkxNWG5ZY3BDQ25pWUowMFpoZDZBSlFtUVl2MllKRHp1aURMTHdobzhDbVA3S0ZNb3NieXdPem4yNlkzcEstM3R5ZG1aVnJwQ2NOcGdtVG8tOWdTeDh6YVRjT3h0QlJrek8zQXB3cWxXemQ2M2dnc1BPT1hwekFYYTkzYjhNVlg4SnZXbi1xbVJFRi1rWVR2MDBudURR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
