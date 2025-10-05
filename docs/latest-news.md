@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 20:24:47（北京时间）**
+🕒 更新时间：**2025年10月05日 20:33:08（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Federal agents use tear gas, make arrests as Portland ICE protest swells into the hundreds - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOM3VoZmQzYlMwNE1JRGJaNV9LdUFiUTlqdDZhMkgxdzFTS0tDdmpEVW1Cd0hZek10RTZCOGlyblI2c3FRSGZKUmJVUUMtY0EwSWNVZWpxbUNEU1gxREdjOTRFelp2cGhVazZ6NzFCWkVadGNNUjduLVk1NHBwM3hfT3FYSFhkenNhd1JZdFBFUU9JeVhXRWhzd2h2Q2tPMEFjdjk0djduX2N4U2gtajZwNmJ30gHGAUFVX3lxTE9VSnQxU202d0E1N1Q2TmgzVWpwTjZwMTRpUVN2U2ZBSlFFUFMwLTAxbGU3ck9HTlZZNXZJV0lldV9sRm5yTDlKdmhyVkN5STNKdG1DTzUwSFc2ZmIzR3g1aWw0TDJENnhoSHlsNlpxRjVyM3hkRnVMaHp6engtZVdzMnhlOURSc1pzZktpeF82RVdzV0FYS3IwX2p6R3AwU0s0UFhCZXh4VURGc3F6NEh1M19jVV8teHE2RDZQRW85ZWFWVTdwQQ?oc=5) |
 | Democrats’ defiance on shutdown shows a new, tougher approach to Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeFlIal9SVEw0RzNQY0xUNWRGMW52VUQzNXZsQy1iZFZvclJ0UmxMYy1neVNfX3VTVVdObTNXNTJYX1VuWlRJTEcxaTFBT0ZYcjBYUmJNVWxkSkVmSExfQloxR0lxc0lLcjJuVld4T2Y2SkR6djB0WVJKU2NrWVgzRWgwWlZMaTMwZ2lmdUYwdw?oc=5) |
 | New Supreme Court term confronts justices with Trump's aggressive assertion of presidential power - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNemxSRmxoOS1SSzRNeDhIT3FvelV6OFAwb2phWHNNazRXemJ1M25NT0xQZEdSTkpBdXhLWUxEZ3U2VWlJd0F0MC1XbDZZQ0ppeVRKSElMenNHQ2tRbjFrLTktQnpEaWx6Z0xubXNkaHdWQ05kUkFGQzBUb3c4NEtoUVI5S0NWanNKY0ZfTU5uYURUdGJRNDd6WG02UVBnM1ZCZWdDYU1PLS1HUWk1a1B4b3JtUkxuTTg?oc=5) |
-| Virginia AG Candidate Jay Jones Mused About Shooting Political Opponent In Resurfaced Texts - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxQMFNsWFlHUWNYSVNGWEhoS0NqVlVFY0VneE9fODNiU0JMajZJdjZSSmJjczZjbXJTcmY5NFg0ZmQwSFNvTWcwMjhYbDduckZ6MGxvUXhfUXBuLVNzMi1NWktRcmR4LVhTS185Z3FvX2tfcEw1VTk5Qjc1bVNJaFotUlVUOTRET09FdnVlQTkxdklKdWlzaHlyVmdIT3h5TTZVcG9NQjRuSFgwWDlsZjR6QW5peVJRNTNvRlJvbXZYV3BrY0NmaHpDOTVPWTBvN051cVdUbA?oc=5) |
+| Simi Valley resident gets over 8 years in prison for attempt to kill Justice Kavanaugh - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxNUUJSVW1kUUFTTW5ydW9DOVYyZV9lSG5UQlllZGJ6cGFjQzdVV2ZTdXNJSVp2cTV0Mko0Vm9LeXVCVDdaaUVNUU5LSVUyNEgwTzVZODFmSW0tRVZQTFppRzRtRzBtVUlxb25JQ3BESlduanFoTUJfZHNuek93ZEVtY2RnM0Y2dkhVR0lDeWhaLW1Rb2V3OEY0dmxkV2Q1VWhWa3h1NWFva0w5WE1IaGp6RzhPc2J4S0dpZkk4WGthU1VzTnVqWHhZUGxrSDhlcTh0MlBMWnNxMnI3WDFKWWVj?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
