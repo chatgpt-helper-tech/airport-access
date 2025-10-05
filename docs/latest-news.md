@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 19:41:00（北京时间）**
+🕒 更新时间：**2025年10月05日 19:49:15（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Hope and fear for hostage families after Hamas response to Gaza peace plan - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE8tSEdVSWxkSWFMMDhQbUt0TmNqSDdNREoyaVFQTmI0YkdzVUhRVzEyNEhHQmRJdjlpYnNLNkVoMGJGQ0pOOFhfMVF4R3RlOVBVYnE3SENfRHNjUdIBX0FVX3lxTE54WVNQQzYydWhKMVpnaWJ1Ul9XNUFPSEdaZkhWTUQzNlR4SldubjNBTmt1ZDJWN1FWalY2Z2lCaGU1dUduNGsyY3JFNUxMbW5uelRXbnBSb0JTY2ZKdDlB?oc=5) |
 | Israel halts strikes in Gaza after Trump's call to stop the fighting - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOV0l0eW1melhVdVBTd3BVdGpMeXFIWkpYY0h3a19KWVFYY0tjblFidFA5T3UtLXR4SEVZMTZLT2RFdDdXaTR3Qm9sNllIcHVXYmh2emVSNHFDSW1vX3QxdjRLWnNyTmtnM1NDc3RzSi10YjFVRUFzMmxhTm5yQ3ctQzJR?oc=5) |
 | Federal agents use tear gas, make arrests as Portland ICE protest swells into the hundreds - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOM3VoZmQzYlMwNE1JRGJaNV9LdUFiUTlqdDZhMkgxdzFTS0tDdmpEVW1Cd0hZek10RTZCOGlyblI2c3FRSGZKUmJVUUMtY0EwSWNVZWpxbUNEU1gxREdjOTRFelp2cGhVazZ6NzFCWkVadGNNUjduLVk1NHBwM3hfT3FYSFhkenNhd1JZdFBFUU9JeVhXRWhzd2h2Q2tPMEFjdjk0djduX2N4U2gtajZwNmJ30gHGAUFVX3lxTE9VSnQxU202d0E1N1Q2TmgzVWpwTjZwMTRpUVN2U2ZBSlFFUFMwLTAxbGU3ck9HTlZZNXZJV0lldV9sRm5yTDlKdmhyVkN5STNKdG1DTzUwSFc2ZmIzR3g1aWw0TDJENnhoSHlsNlpxRjVyM3hkRnVMaHp6engtZVdzMnhlOURSc1pzZktpeF82RVdzV0FYS3IwX2p6R3AwU0s0UFhCZXh4VURGc3F6NEh1M19jVV8teHE2RDZQRW85ZWFWVTdwQQ?oc=5) |
-| Security video helps lead Oregon detectives to a masked killer who tried to hide the crime - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxONGRsYnBIY2N5N3RZT0Vjbm52aHNidm9YQ3R1Q3ZnTDhwcldZZGF6NFB1TVVEVEw1MExfYWhsZkhmVFpVZkhGZVFIck1CVEd6MmhLZXF1VlR3cEVaRjNPU1FGX2pDOGxLeUN2WHNZU3FKZVZyMHdxZDhaZy1oaWZCMXpIRDlrb3JRU0hmSGl6d2JNbjF1R3hXZGhaOVo2ejNWYk9GdTNiTE04U1FVbnNub2hyV29aajjSAbwBQVVfeXFMT2k1VTZMSTNWdVVCTGVOX3R5YlNud2FhMVFQNzh3bm84ZnFHWTdZR1JJYVk2QzNRem5adjZsQm1odjFRa0dBZUdqOTdVNmFCUTZCYi1iV1ZSeS0zZFR6anA4TUY0b1lPOUlrSXpiWTJ0X1Zpam5oSVd6SUhkUFlVYXVlRDJzNlFFMDhENEZUT3d4SGJWOEFTa1JzaWF2UE9JeGxMckppTjhIZUJWZjJPdnhoNElpeEx5RF9kVi0?oc=5) |
 | Democrats’ defiance on shutdown shows a new, tougher approach to Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeFlIal9SVEw0RzNQY0xUNWRGMW52VUQzNXZsQy1iZFZvclJ0UmxMYy1neVNfX3VTVVdObTNXNTJYX1VuWlRJTEcxaTFBT0ZYcjBYUmJNVWxkSkVmSExfQloxR0lxc0lLcjJuVld4T2Y2SkR6djB0WVJKU2NrWVgzRWgwWlZMaTMwZ2lmdUYwdw?oc=5) |
 | New Supreme Court term confronts justices with Trump's aggressive assertion of presidential power - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNemxSRmxoOS1SSzRNeDhIT3FvelV6OFAwb2phWHNNazRXemJ1M25NT0xQZEdSTkpBdXhLWUxEZ3U2VWlJd0F0MC1XbDZZQ0ppeVRKSElMenNHQ2tRbjFrLTktQnpEaWx6Z0xubXNkaHdWQ05kUkFGQzBUb3c4NEtoUVI5S0NWanNKY0ZfTU5uYURUdGJRNDd6WG02UVBnM1ZCZWdDYU1PLS1HUWk1a1B4b3JtUkxuTTg?oc=5) |
+| Virginia AG Candidate Faces Backlash Over Texts Musing About Shooting Political Opponent - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxQMFNsWFlHUWNYSVNGWEhoS0NqVlVFY0VneE9fODNiU0JMajZJdjZSSmJjczZjbXJTcmY5NFg0ZmQwSFNvTWcwMjhYbDduckZ6MGxvUXhfUXBuLVNzMi1NWktRcmR4LVhTS185Z3FvX2tfcEw1VTk5Qjc1bVNJaFotUlVUOTRET09FdnVlQTkxdklKdWlzaHlyVmdIT3h5TTZVcG9NQjRuSFgwWDlsZjR6QW5peVJRNTNvRlJvbXZYV3BrY0NmaHpDOTVPWTBvN051cVdUbA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
