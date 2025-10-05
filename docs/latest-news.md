@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 15:32:41（北京时间）**
+🕒 更新时间：**2025年10月05日 15:41:37（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | Netanyahu says he hopes to announce hostage release in the 'coming days' | [阅读全文](https://www.bbc.com/news/articles/c5yqv4lz0geo?at_medium=RSS&at_campaign=rss) |
 | Shock in Gaza as Trump appears to welcome Hamas response to US peace plan | [阅读全文](https://www.bbc.com/news/articles/c15k199j1x3o?at_medium=RSS&at_campaign=rss) |
 | Police to get broader powers to restrict repeated protests | [阅读全文](https://www.bbc.com/news/articles/c24rmdngrrjo?at_medium=RSS&at_campaign=rss) |
-| Trump authorises deployment of 300 National Guard troops to Chicago | [阅读全文](https://www.bbc.com/news/articles/c2dnk0ee6pyo?at_medium=RSS&at_campaign=rss) |
+| Poland scrambles jets as Russia strikes western Ukraine | [阅读全文](https://www.bbc.com/news/articles/czjvlgzmp4wo?at_medium=RSS&at_campaign=rss) |
 | 'I have your nudes and everything to ruin your life': The cyber-scammers targeting teenagers | [阅读全文](https://www.bbc.com/news/articles/czrpedexleno?at_medium=RSS&at_campaign=rss) |
 | Meghan makes surprise appearance at Paris Fashion Week | [阅读全文](https://www.bbc.com/news/articles/c1471r6e27jo?at_medium=RSS&at_campaign=rss) |
 | What we know about the attack | [阅读全文](https://www.bbc.com/news/articles/cd63p1djgd7o?at_medium=RSS&at_campaign=rss) |
@@ -30,7 +30,7 @@
 | 'Saturday Night Live' Cold Open Skewers Trump's Late-Night Crackdown - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOdGhMcmZvaEJGY3ZORmIyWHhuaGRkQjBSNUxDNXA2VFpmTmUxS1Y5TlpuWVVPVVZTTDRmNmNFUkNJUHFMV1UzOW9XQXZpRVNzbHc4N3JvNThRU1dJUlNtOHk2SmR2dUJ6a2tqdVNVS0RRX1JEQXlpbVJYRjlINmhBdmpxRQ?oc=5) |
 | Federal officers fire tear gas, make multiple arrests during protest outside Portland ICE facility - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFB5eFpib0JSeHJRSFJ2SGdnMlN6RnFsU1RKSmx2Q1d5SXJsOE5acEc2Y1dRdWFRQm1EWFRlNmZWWFo3VzhDMFpzM2ZBdlBOTXJsRlA5VGxWSWREeVV6VWZOUlYwVmNJcktMZjc4WHdZUXoxb0ZvWG5wWA?oc=5) |
 | Security video helps lead Oregon detectives to a masked killer who tried to hide the crime - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxONGRsYnBIY2N5N3RZT0Vjbm52aHNidm9YQ3R1Q3ZnTDhwcldZZGF6NFB1TVVEVEw1MExfYWhsZkhmVFpVZkhGZVFIck1CVEd6MmhLZXF1VlR3cEVaRjNPU1FGX2pDOGxLeUN2WHNZU3FKZVZyMHdxZDhaZy1oaWZCMXpIRDlrb3JRU0hmSGl6d2JNbjF1R3hXZGhaOVo2ejNWYk9GdTNiTE04U1FVbnNub2hyV29aajjSAbwBQVVfeXFMT2k1VTZMSTNWdVVCTGVOX3R5YlNud2FhMVFQNzh3bm84ZnFHWTdZR1JJYVk2QzNRem5adjZsQm1odjFRa0dBZUdqOTdVNmFCUTZCYi1iV1ZSeS0zZFR6anA4TUY0b1lPOUlrSXpiWTJ0X1Zpam5oSVd6SUhkUFlVYXVlRDJzNlFFMDhENEZUT3d4SGJWOEFTa1JzaWF2UE9JeGxMckppTjhIZUJWZjJPdnhoNElpeEx5RF9kVi0?oc=5) |
-| Democrat in Virginia attorney general race apologizes for 2022 texts depicting political violence - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOaWMwa09LSzN0R3BHQkVuVVJCSS1NQlNvejJBSEtfdGJqNnd0XzNGMHVpME9BV2pJZHFhb2VXbVAwMV9DTDlOXzJ3LWJQd09GZkZVUGhBbWpZSUZuUEJPMGZlUlZleEVCQmNTNXVNeVJOWVlmTEwwTTlVQXBJUU9RemFlRmR2RVBBUVQtb0tlN3hmSjFl?oc=5) |
+| Virginia AG Candidate Faces Backlash Over Texts Musing About Shooting Political Opponent - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxQMFNsWFlHUWNYSVNGWEhoS0NqVlVFY0VneE9fODNiU0JMajZJdjZSSmJjczZjbXJTcmY5NFg0ZmQwSFNvTWcwMjhYbDduckZ6MGxvUXhfUXBuLVNzMi1NWktRcmR4LVhTS185Z3FvX2tfcEw1VTk5Qjc1bVNJaFotUlVUOTRET09FdnVlQTkxdklKdWlzaHlyVmdIT3h5TTZVcG9NQjRuSFgwWDlsZjR6QW5peVJRNTNvRlJvbXZYV3BrY0NmaHpDOTVPWTBvN051cVdUbA?oc=5) |
 | Democrats’ defiance on shutdown shows a new, tougher approach to Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeFlIal9SVEw0RzNQY0xUNWRGMW52VUQzNXZsQy1iZFZvclJ0UmxMYy1neVNfX3VTVVdObTNXNTJYX1VuWlRJTEcxaTFBT0ZYcjBYUmJNVWxkSkVmSExfQloxR0lxc0lLcjJuVld4T2Y2SkR6djB0WVJKU2NrWVgzRWgwWlZMaTMwZ2lmdUYwdw?oc=5) |
 | New Supreme Court term confronts justices with Trump's aggressive assertion of presidential power - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNemxSRmxoOS1SSzRNeDhIT3FvelV6OFAwb2phWHNNazRXemJ1M25NT0xQZEdSTkpBdXhLWUxEZ3U2VWlJd0F0MC1XbDZZQ0ppeVRKSElMenNHQ2tRbjFrLTktQnpEaWx6Z0xubXNkaHdWQ05kUkFGQzBUb3c4NEtoUVI5S0NWanNKY0ZfTU5uYURUdGJRNDd6WG02UVBnM1ZCZWdDYU1PLS1HUWk1a1B4b3JtUkxuTTg?oc=5) |
 
