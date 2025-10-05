@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 17:49:25（北京时间）**
+🕒 更新时间：**2025年10月05日 17:56:48（北京时间）**
 
 ---
 
@@ -10,20 +10,20 @@
 |--------|-------------|
 | Home secretary wants police to get more powers to restrict repeated protests | [阅读全文](https://www.bbc.com/news/articles/c24rmdngrrjo?at_medium=RSS&at_campaign=rss) |
 | Netanyahu says he hopes to announce hostage release in the 'coming days' | [阅读全文](https://www.bbc.com/news/articles/c5yqv4lz0geo?at_medium=RSS&at_campaign=rss) |
-| Hope and fear for hostage families after Hamas response to Gaza peace plan | [阅读全文](https://www.bbc.com/news/articles/cly9e6mnve9o?at_medium=RSS&at_campaign=rss) |
 | Poland scrambles jets as Ukraine says 5 killed in Russian strikes | [阅读全文](https://www.bbc.com/news/articles/czjvlgzmp4wo?at_medium=RSS&at_campaign=rss) |
 | 'I have your nudes and everything to ruin your life': The cyber-scammers targeting teenagers | [阅读全文](https://www.bbc.com/news/articles/czrpedexleno?at_medium=RSS&at_campaign=rss) |
 | Meghan makes surprise appearance at Paris Fashion Week | [阅读全文](https://www.bbc.com/news/articles/c1471r6e27jo?at_medium=RSS&at_campaign=rss) |
 | What we know about the attack | [阅读全文](https://www.bbc.com/news/articles/cd63p1djgd7o?at_medium=RSS&at_campaign=rss) |
 | Watch: Old Trafford's minute's silence for victims | [阅读全文](https://www.bbc.com/news/videos/c89dnyz95k0o?at_medium=RSS&at_campaign=rss) |
 | 'Fate stopped my son-in-law attending synagogue' | [阅读全文](https://www.bbc.com/news/articles/c93057xzq95o?at_medium=RSS&at_campaign=rss) |
+| Meghan makes surprise appearance at Paris Fashion Week | [阅读全文](https://www.bbc.com/news/articles/c1471r6e27jo?at_medium=RSS&at_campaign=rss) |
 | Is waiting in a 12-hour queue the new cool thing to do? These people think so | [阅读全文](https://www.bbc.com/news/articles/cgq4e4vgz73o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Judge temporarily blocks Trump from deploying troops in Portland - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNY196dkpDc1gtaEp6SGp5dTYzaVU2OHJHWXFOZkFZWXR6dWhmQndBN1QxTHU4OW5lWXhCeGF6dG1PdDFSWE9nQTAzbGJndDZtZC1Pb0lueWRzXzZHbWtpZGtWNUhKWkEzc3dTWkM4RzV3NXB4Y0VySVZvdFRzd0dVc3VvdFNGQjRDRnM1b01IejFLQQ?oc=5) |
+| Judge temporarily blocks Trump administration from deploying troops in Portland, Oregon - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNTVhjSkJOdUpJYlMwTmVBRE9Ha18tR2ZJcnRWcjdKbVZuNFliemhCMmgzcGNQMUpmblFjVWgzOXhoZy1WT0lCV3BnZ2VmMGxiam9nbTB1UTJnZF81U1dWR1NRbkFXczBKMWhhSGVBZGZCYy1pR1lZa3RQZjJYYkYyUWNiV2cwNC10U2dOMTZpNDlyaHNValVya3FPX0cyNXZHUW82SFNSRlViZUtu?oc=5) |
 | How a Missile Strike Unlocked a Deal for Peace in Gaza - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxORi00OUx6M0ltUk1TckdrM0ZWRzAtX1FFMmtPVXVHMnBOUnhmcWQ4YVpsbmMwUEhEU2l2WTlINmpQdVJQYUozMkZQQXg5ODVtZHFYWk9WekxZak1idEM0c3BkV25zcHMzTGRQNW1ySWhiZlduVDBod0hPZHU3VXlETnRKUlhmeXJmb3ZZb2ZjZVlNSVY0SXMtUzREa3hZVWdNdEZJ?oc=5) |
 | Border Patrol shoots woman on Southwest Side; agents, protesters battle for hours - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNNXQydmNhM3Bua2VyRldUREs3SzlhaHEtWWJJWkdRYTFrRjRLZi1WbXhydEhQR2JmMkJMWkFIWVJCWURYTFk2dnlFMVMzSHJoOGtwV1ZJWl9pcFVaMFk5YmNwYjV2ZGJBTS1JSFVOUE1LdVlfY056TUpTdTZWTnRRQkY1bDZXb2w1dEhLNElVTjI1dWU3aEVSNlFyeVM5OXlTTG5oY1oyai1xc0ktZFloUTVxVUtXQQ?oc=5) |
 | Five killed in Russian overnight air attack on Ukraine - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNYjhRdHhuZS12UnViYWliU3A4ZjlITXVKQWs4OVRvWE1CTWRnVDdHVFBqNWNRS09HdnZyNHpTY3JzMFpxZEs0SXBrR0JmV2JWZWhwbmpWdldSTm9pV0JsUEpjUHotTVhOcTY2OWozOEJkODdYN3hzVTdVVDJmT25SeWtsLXAxU0RZS2FpaHlMQmxPZHZWRUxseU1vTk5WM25JVlNVU2VMVmVER3Y3VDdPSzlUcjRMQldUdHVyUGlONXE5YXJU?oc=5) |
