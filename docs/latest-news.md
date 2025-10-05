@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 12:24:31（北京时间）**
+🕒 更新时间：**2025年10月05日 12:33:47（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Japan's ruling party has elected Sanae Takaichi as new leader, and she's likely to become country's first female prime minister - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOQ1g2VEVVOUJ1SzRKZW1MWW16MzlWQTNNREU2d3RxX0lITnFNd1dLZThWdF96OWdPa2ZpbEhHdl9WR2hYR1V6YnNwaklSWDR0N0RmeFFfeG9ocE5YYzVTSVJVYkZlWlpGZ3FfdExMa1VHZVRPcHN5TDRHdFV6ZkpXNHA4QVZvQ25BdFNNclJn0gGTAUFVX3lxTE4xQ1AyRVQ5a3l0RG1NdTNSU3cwMWgwVzZ6MXVrOVhaUDNEekgyZjlNN1RVSW5NSXdtalUxa0w0RFpFQWZUVk5IZzBudlFSbE00NVdWTWRKSk5IQl9sQmZaaWw2cHhrTUxyOXZ5UEc5VG02a3NjdWNjbjYyN1FDSTNQVzduUjRnNEVFWFF3dElqM01ocw?oc=5) |
 | Johnson rallies House GOP after he calls off votes amid shutdown fight - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOU0U3d1VFTU1PUzd0SG9zVmZ3VkJmYU9HNWd2R1VXMUV4N2FqcTl4UWxCZ2R6cTFvWGlfWVhfaldoMW5Da1dXYXFzamlma1oxd0JCeXNJUlpuT19PYnYzWHA0VFhaVW1kQmRQWGg2Wjh3Mm1MTUNKZUp3dmhkTF9HcWZMRQ?oc=5) |
 | The U.S. may mint a coin with Trump's face despite a law he signed that prohibits collectibles with similar likenesses - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPMnZ5YTNzak1UWWNPSG1idWd6RWF4R2VLYzhqc3UteEhMcnBuRmVnMmpsQXY3ejVqbEhPdFlPSEh2WnpOblA0MnIxcF9VU0FJZENGTVJzMFNocmxQcHU1UmE5d0dwM0dtemRqenE0MF9kTE5OZDBZMzRyT0VBVnY4eC1RQ2l3WHJvRmxuYlBmaWNydUFqQS1rOFl3?oc=5) |
-| Federal officers fire tear gas, make multiple arrests during protest outside Portland ICE facility - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFB5eFpib0JSeHJRSFJ2SGdnMlN6RnFsU1RKSmx2Q1d5SXJsOE5acEc2Y1dRdWFRQm1EWFRlNmZWWFo3VzhDMFpzM2ZBdlBOTXJsRlA5VGxWSWREeVV6VWZOUlYwVmNJcktMZjc4WHdZUXoxb0ZvWG5wWA?oc=5) |
 | Democrat in Virginia attorney general race apologizes for 2022 texts depicting political violence - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOaWMwa09LSzN0R3BHQkVuVVJCSS1NQlNvejJBSEtfdGJqNnd0XzNGMHVpME9BV2pJZHFhb2VXbVAwMV9DTDlOXzJ3LWJQd09GZkZVUGhBbWpZSUZuUEJPMGZlUlZleEVCQmNTNXVNeVJOWVlmTEwwTTlVQXBJUU9RemFlRmR2RVBBUVQtb0tlN3hmSjFl?oc=5) |
+| Federal officers fire tear gas, make multiple arrests during protest outside Portland ICE facility - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFB5eFpib0JSeHJRSFJ2SGdnMlN6RnFsU1RKSmx2Q1d5SXJsOE5acEc2Y1dRdWFRQm1EWFRlNmZWWFo3VzhDMFpzM2ZBdlBOTXJsRlA5VGxWSWREeVV6VWZOUlYwVmNJcktMZjc4WHdZUXoxb0ZvWG5wWA?oc=5) |
 | Democrats’ defiance on shutdown shows a new, tougher approach to Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeFlIal9SVEw0RzNQY0xUNWRGMW52VUQzNXZsQy1iZFZvclJ0UmxMYy1neVNfX3VTVVdObTNXNTJYX1VuWlRJTEcxaTFBT0ZYcjBYUmJNVWxkSkVmSExfQloxR0lxc0lLcjJuVld4T2Y2SkR6djB0WVJKU2NrWVgzRWgwWlZMaTMwZ2lmdUYwdw?oc=5) |
 | Judge blocks Trump policy to detain migrant children turning 18 in adult facilities - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNYTAtRzB0aGN1VWl1cVhSVUw3LUlEd0JMY0oyY1JTYXY5eFJVcjJLbmg0QVpvNEtNWFFadDZTUnNKQXZiYWtFZUdFZm9hRDg4TVEyM3hFQWtjRGcySkF2VTZRNDF5X3pta3d3eHkwem9vc1Y3c0l5TUd4ZFowVjhSVWozSFJNRVU2WktrRlpNNUh4X3ZadlY4bW9iSGxyZ1B3YmpvX240VzdRT1JXR3V5LTF6Y3V1Z3pTbXc?oc=5) |
 
