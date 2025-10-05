@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 01:09:00（北京时间）**
+🕒 更新时间：**2025年10月06日 01:16:10（北京时间）**
 
 ---
 
@@ -24,14 +24,14 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Scoop — Trump to Netanyahu on Gaza talks: "You're always so f***ing negative" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPVkZkNmRjYUdwWGVaWUxLc0pvM0w3WHdrSTByN243UWhwamh0bE9KcjF4QzRtS3diRFVJU1pMVGUxSElLVGFwbWZPSHNkOUdnbnBYVXBvUHQ3UEM2NS0yUzcyM3Uxel9TN3NIWjAwWGhLdUlMd2dRZ0o4WV9VRzJNTw?oc=5) |
-| US judge blocks Trump's deployment of Oregon National Guard to Portland for now - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQZndnUXVyOTVCaFlyZjJzem9ibFNPdkJESU45bGlBR25Kb1lZLWlLRkFVaXZUTmpOSnRFN1ladlJVbERqc18tc0ZyYVlvcE5ndG0xc2tSSWNRUjBJN3duNS1xc2FmQS15di0zandmNG8wQnp6U3hZNTZwODZyV0lPRjFTNEJ6S08wYTU0NkZXVUJhTFdfRXQ3UHFZMUVjbzdTOG9FU1FZdkxLWjhzek9Nam9QUDZHTjVMSFE?oc=5) |
-| Rubio Says U.S. Wants Quick Deal to Bring Gaza Hostages Home - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPWjhqYlowbC1mNVpjV282Mks0VUtBMDRNSDlFbXZlcGc1UnZiaWZ0TDFkdzZkalU0TlNkLXZkeXE3eEsxS2pKRjB1akZSdEswOGI5TEJ5LWQyaTB2bHR5eVBpSnJ4U2xDSjZHaVplaC1JUHJjY0V4dmxoNldIMW5KVkI3V3huajA?oc=5) |
+| Judge Blocks Trump’s Deployment of National Guard in Portland, Ore. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNZTVjaGVVRUtkZmZLNHZISThVRk11Z1lWQ0o4VDJZTFE5YmNHR09HRTFXanNqeno2S0E4eXZCQXo5X1VNY0RDdW9rQ2p2VkhFVjZnM25pelRNc1ZiTUNMWWpKbjM2WlBiMWMzWkFCOXBFUF9PQzJGdHNIRmZheWhDR19CeFJ4LWE4NExxMFRTd01Vdw?oc=5) |
 | US Supreme Court girds for culture wars with LGBT, guns and race cases - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOT0ZLWENyQl9vX3BpUWd0a2JhWGY1SHBYLWg2RjltNDVJQTdIS2xxeW5uaG82RlBzc3FnNENSR1pRY1RxTkN6MENPWUFQMnlZckJBc2tYTGlhaXU1OVRMa1Y3SjYyWG9oNTZGZl9ubzJjQlFWd2Q1THF3N3VFRTFUdERITDVKZHdMLUxMMVlrQnZFcE5IaFFrLWY5ZjlSVlVlNDFxTlBZZXgwdw?oc=5) |
+| Hamas delegation heads to Egypt for hostage deal talks - The Jerusalem Post | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTFBhQ0tKXzFvU1hrLW5MQUhWOXBCbWNVdHIwSWltUjlXYkR3dUdzQmdIbDFZNUU1SHVXdXFxRGRBbHN0My1EUkNkV1UtMDZvR20wLUR3VlFRZ3hVZkxKSnNMSU1VRlNiWU9DU2FyUU93?oc=5) |
 | Trump plan would limit disability benefits for older Americans - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPQm5sc1JxXzl0enRCdklfWXhCbE9USld0WGl4cTBoWVhnR0xsUnBYcTdSa2VYMWZzUmRYdWZlUUZ6Sm5lMk1VWUM0N055b2tOXzVzTXZWZHVtUWlWSGlNLVJDa1BOZ0tVRTF0SnhMTkhMcHJmUkpqMktCWVdzM09BbEVBSzFmMDJVOFNnV1RPLUFoc00tQ3c?oc=5) |
 | Five killed, energy infrastructure damaged in Russian air attack on Ukraine - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNYjhRdHhuZS12UnViYWliU3A4ZjlITXVKQWs4OVRvWE1CTWRnVDdHVFBqNWNRS09HdnZyNHpTY3JzMFpxZEs0SXBrR0JmV2JWZWhwbmpWdldSTm9pV0JsUEpjUHotTVhOcTY2OWozOEJkODdYN3hzVTdVVDJmT25SeWtsLXAxU0RZS2FpaHlMQmxPZHZWRUxseU1vTk5WM25JVlNVU2VMVmVER3Y3VDdPSzlUcjRMQldUdHVyUGlONXE5YXJU?oc=5) |
 | Shooting in Montgomery, Alabama, leaves 14 injured, 2 dead, police say - USA Today | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOWWd6dl9aMVVFU1ppRnJ0RzFxSTN2Rl94ZG1lNmt1ZHRYQ3VfZUk4VVhZanA2SkxhWUEtTk1GNWIwZ1NBVFNaakVLTWRaVjFWb2E0bi1wU2w5cW8wek5ZOENwVWFUbEo5S2s4UHR5NGZKWS1NU3pyaUJBcHFZZnRhYjNtSW9NeDFrNUxFeTNBekhuSE1Ia2wtbXR2TWdmc0hr?oc=5) |
 | Not All National Parks Remain Open in the Shutdown. Here’s What to Know. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE5pSEx2bzhaNUpYS1VnU0plem1IRlFWdnh1UEJvMmxhbXNaRXhILVpmU09rR0NDcjE3ajh3QnU3bXFmVUNHMUszc3NoZzM1aHA2N19ZRUpSNlpiaEFsRlVaZV9zbmIxVWxUUElnUGFfUHd5X3Zt?oc=5) |
-| Hegseth fires Navy chief of staff - Military Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPdlpSOW9abTAwS3cyQ0JMNXN0S0lpNmVySXE4S0U3VlNFMDdxeW1UOF8wWlc4Rm1vbW5hWFZhUGtJUENINEJjRDFNRE0tYURsUF9EY1BscHBNSDRGT1dkMVAyX3ZzaHRJWTNiaFEtdWFuTExwSF9CZmJJRlVPeGRaaWttYVRRYlFiT3Y1WnlKa3dfOUE1Q0pBQ3Zn?oc=5) |
+| Hegseth fires Navy chief of staff - upi.com | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOaVd4M2FsLUZtb0JRZDdQel9NRkFlcXpUYm1OVGU0QzJvN0NQYUYtbUlUWDF4Uk5VY1VhS0tzamtmMDcyd2ZmX3FCdWJRQV96N1FMNWc5dGRsRFZIa0tNeEhFMGQzWm1GTEh4VWtHU3ZieE5EcDhjUzZmT25CQ0I1TURwY1N4ckVTV2lr0gGQAUFVX3lxTE1tSVFaaG9PdVZQMVhaYV9QUjhHb05HaFBDYW9VMEVmNFluSnN5WEZjckFGU0RFdFNQY0xJQ29WU0lNa0FWU1NvSGcxVGNoeUFjdVZfcXFiZ3daOHJNaHhlWHZnbDBWSGtYcGNhcmF6OXUtUmxucnRMdkVwU0ZGLUZ2aTdUUTFtb2hoNzZLUzBOSw?oc=5) |
 | Democrats’ defiance on shutdown shows a new, tougher approach to Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeFlIal9SVEw0RzNQY0xUNWRGMW52VUQzNXZsQy1iZFZvclJ0UmxMYy1neVNfX3VTVVdObTNXNTJYX1VuWlRJTEcxaTFBT0ZYcjBYUmJNVWxkSkVmSExfQloxR0lxc0lLcjJuVld4T2Y2SkR6djB0WVJKU2NrWVgzRWgwWlZMaTMwZ2lmdUYwdw?oc=5) |
 
 ---
