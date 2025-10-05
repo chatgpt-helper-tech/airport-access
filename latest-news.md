@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 14:33:56（北京时间）**
+🕒 更新时间：**2025年10月05日 14:40:37（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump authorizes 300 National Guard members to Illinois to assist with deportations over JB Pritzker’s objections - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOblpaSjhGSU5NUTRwLUgweklEYllXY0dmdWc5VFhIMzlLQVcxQkkyTm1jVDF0WnJoNzhSUGtXZVRXbzdlOXF2RkVvZEVxV2xpdDZwdm1BWWIxT3dNMlppeU84Z0NiX3VvTGJqUE9vYVhENFBENjRoYVpVaG9ndFJsYUhsMkJ3Zw?oc=5) |
-| Judge temporarily blocks Trump from deploying troops in Portland - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNY196dkpDc1gtaEp6SGp5dTYzaVU2OHJHWXFOZkFZWXR6dWhmQndBN1QxTHU4OW5lWXhCeGF6dG1PdDFSWE9nQTAzbGJndDZtZC1Pb0lueWRzXzZHbWtpZGtWNUhKWkEzc3dTWkM4RzV3NXB4Y0VySVZvdFRzd0dVc3VvdFNGQjRDRnM1b01IejFLQQ?oc=5) |
+| Judge Blocks Trump’s Deployment of National Guard in Portland, Ore. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNZTVjaGVVRUtkZmZLNHZISThVRk11Z1lWQ0o4VDJZTFE5YmNHR09HRTFXanNqeno2S0E4eXZCQXo5X1VNY0RDdW9rQ2p2VkhFVjZnM25pelRNc1ZiTUNMWWpKbjM2WlBiMWMzWkFCOXBFUF9PQzJGdHNIRmZheWhDR19CeFJ4LWE4NExxMFRTd01Vdw?oc=5) |
 | Who is Japan's 'Iron Lady' Sanae Takaichi? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1FdThQa3dyZ194azJIWC1SOENyRXA4ZUJyQ3BiNURIZkFiQ2c0TmRvQlgxZDNoTXVaRms2QTF4aXUySTNPS1dSOFRsaTNXTXJNMWs5NGJhUEtZUdIBX0FVX3lxTE5QRVhvd2NhRUNZVy1aZnRPa2RPNzlnZi1KNDZ5cnJubjc2Y01IdnY2bzEwbzM4SEZFN0NPQTQyN0JZekVMUmxEUko2WGFyckM2cVRIWjJSZWhWUGpjQUw4?oc=5) |
 | How a Missile Strike Unlocked a Deal for Peace in Gaza - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxORi00OUx6M0ltUk1TckdrM0ZWRzAtX1FFMmtPVXVHMnBOUnhmcWQ4YVpsbmMwUEhEU2l2WTlINmpQdVJQYUozMkZQQXg5ODVtZHFYWk9WekxZak1idEM0c3BkV25zcHMzTGRQNW1ySWhiZlduVDBod0hPZHU3VXlETnRKUlhmeXJmb3ZZb2ZjZVlNSVY0SXMtUzREa3hZVWdNdEZJ?oc=5) |
 | Johnson rallies House GOP after he calls off votes amid shutdown fight - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOU0U3d1VFTU1PUzd0SG9zVmZ3VkJmYU9HNWd2R1VXMUV4N2FqcTl4UWxCZ2R6cTFvWGlfWVhfaldoMW5Da1dXYXFzamlma1oxd0JCeXNJUlpuT19PYnYzWHA0VFhaVW1kQmRQWGg2Wjh3Mm1MTUNKZUp3dmhkTF9HcWZMRQ?oc=5) |
