@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 16:56:22（北京时间）**
+🕒 更新时间：**2025年10月05日 17:01:46（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | What we know about the attack | [阅读全文](https://www.bbc.com/news/articles/cd63p1djgd7o?at_medium=RSS&at_campaign=rss) |
 | Watch: Old Trafford's minute's silence for victims | [阅读全文](https://www.bbc.com/news/videos/c89dnyz95k0o?at_medium=RSS&at_campaign=rss) |
 | 'Fate stopped my son-in-law attending synagogue' | [阅读全文](https://www.bbc.com/news/articles/c93057xzq95o?at_medium=RSS&at_campaign=rss) |
-| Late nights and packed lectures - why freshers' flu is so hard to dodge | [阅读全文](https://www.bbc.com/news/articles/c147218x7rgo?at_medium=RSS&at_campaign=rss) |
+| Is waiting in a 12-hour queue the new cool thing to do? These people think so | [阅读全文](https://www.bbc.com/news/articles/cgq4e4vgz73o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
