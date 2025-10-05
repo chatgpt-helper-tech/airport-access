@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 22:57:46（北京时间）**
+🕒 更新时间：**2025年10月05日 23:01:30（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | 'I have everything to ruin you' - BBC tracks down sextortion scammer targeting teenage boys | [阅读全文](https://www.bbc.com/news/articles/czrpedexleno?at_medium=RSS&at_campaign=rss) |
 | How the US got left behind in the global electric car race | [阅读全文](https://www.bbc.com/news/articles/c8ex2l58en4o?at_medium=RSS&at_campaign=rss) |
 | Why HIV cases soared by more than 1,000% in this tiny Pacific country | [阅读全文](https://www.bbc.com/news/articles/c0m42dwvlk8o?at_medium=RSS&at_campaign=rss) |
-| Is waiting in a 12-hour queue the new cool thing to do? These people think so | [阅读全文](https://www.bbc.com/news/articles/cgq4e4vgz73o?at_medium=RSS&at_campaign=rss) |
+| Late nights and packed lectures - why freshers' flu is so hard to dodge | [阅读全文](https://www.bbc.com/news/articles/c147218x7rgo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
