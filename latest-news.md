@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 04:00:26（北京时间）**
+🕒 更新时间：**2025年10月06日 04:09:31（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Jeffries accuses GOP of going 'radio silent' while Johnson says Democrats are 'not serious' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQMzAwVlhheUVsOXdKcnlqUE1WS1ZDV0piUGxza1VTbGVUNUhUZ1RYR0NtbGxEcVV3S2Z2NjZVTmlZUUh3T3loSHNpZW5TUWZ2T2M3UGYzZXZKZmpWVUc1OEFoNGttVTVXSUg5UUlnVmNrT1NRM1o0dklNemF6d3BzWW5iSXFBVjFE?oc=5) |
 | Federal tactics on Portland protesters escalate, hours after judge rules against Trump - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQVzl3VjRqdFBNMlN5bWpxdTJncEhaaEpjbERYVlFkQzVsc2E2Ukt1SW1tT0p3YnJCcnBZLWtjTXNFVnN5Q21mSlZtNFBJbU5kdkNpS1J1NHpFUUh3enF3cUJZTGhHRXdjMFB5U2pxdFhOcXVuVDZpSWdzQUFISWVlM19TVFV3Zk5UdWx1VjhIM0djakRQenFmN1U2WjZVTkVVMy0tTnY0UmcwU2stUmNyTk5HM0wxUG5q?oc=5) |
 | Not All National Parks Remain Open in the Shutdown. Here’s What to Know. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE5pSEx2bzhaNUpYS1VnU0plem1IRlFWdnh1UEJvMmxhbXNaRXhILVpmU09rR0NDcjE3ajh3QnU3bXFmVUNHMUszc3NoZzM1aHA2N19ZRUpSNlpiaEFsRlVaZV9zbmIxVWxUUElnUGFfUHd5X3Zt?oc=5) |
-| Russian air attack across Ukraine damages energy networks, kills five - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNQlJKNF9LWElGOV9jcVMzOGZNQWVJai1CWktXWDIyNWxkTVp0Sklkc0c3LU5DeV9CaXB5OXhuWW9QYWtlZ0xKeXFvb1hqRHcwZ2FXSEhETWJXV2tvT1plT1dzaHhUWU5KV184c19kWFJUS042SjBFa3N3dmRlbUEtZXRPRQ?oc=5) |
+| Israel continues Gaza bombardment as Trump plan negotiators arrive in Cairo - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxONzM5c19FTm1lZVpsMWpjRDJvMEkwb1pWRTg4RnF1amtPYS1OcmI2Q3lKR2lfWnNxVTRKZ1B3ODFmWm9IQmZ2TXV5dUJ4b2JPbW4xVDA0aUlaQkxGc0NXOEliR0UtZjJPVGNaS3dlZ29Qc0lhbjVuS1pnMWNESEdhMUZ2M0Y1MmRmZHNHbXhSU3FYUmttRy16YmRnTW5CcEhDN2pHNlJ2a0h3V3IyZTNHbWxfT3R5UnJPQVE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
