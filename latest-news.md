@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 04:57:38（北京时间）**
+🕒 更新时间：**2025年10月06日 05:01:31（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | What to watch as a never-ending Supreme Court term begins again - CNN | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQcWJ0UG1ycml4QjhnWGpBMHNnbU16SHhhV2s1ckV6YmV5cFAyLXBqVF9EYjJpaE9SZWxzSmxnaW90S3M5Zm5wRkNVTXpJRnVBa0ZfQTk4cHlSRHdfcmY5czNhZmZyRmcxWGVqUWk5ZWdLdFg4bjJFdzhlWWlnUGhLYXhCS1g4MEFOOHh4UmRqRTRGOHU2YVdUSk5mZkhldVBJdDVla0tR?oc=5) |
 | 'There will start to be layoffs' if Trump decides shutdown talks have stalled, Hassett says - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOa04yb19aMGpJbmxkc2lpenFjZmdMNTlmekVpblJGSjdPMmJaREtfYTNQLWlaaFRlbHY2cGpnck81SDBiZllXakhMVUt5UzZkVjRfbGxkdjFZcXI5YjZ0aUZ1cURfODZUazgwVFppTGhOX2VuQjNmRXU5eGV6bVhBUmszRnR0ZVJLc1UyMVVR0gGTAUFVX3lxTE1Ea2g1bDdtbDZZb21vOWduVU4wYU9qS2ZobzZjU1BmLTF2TVJLUUR6RWdxWVlEZ200NWdCR1gyb2Z0RUJyOXZRanY2VklHRFB6SHlub0Fabk8zUGFvSDRKeUw3X0IyejhoejJsS3ZvZEtxSm5jME1ITmY3ZWZkZC1YNnJ0RWs4RFhtTU1uZ2NGTHFWZw?oc=5) |
 | Montgomery shooting leaves 14 injured, at least two dead downtown - Montgomery Advertiser | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxQQkNmbktWamRLS3ZlMjVHQktDZFpJUjFIZ09ZU296VWxRNldncEJsTmM0NWtWZk5ZWEIwdndQRXc4SWZkLUlUNlpQaXRnR1hzamxoQ3QzTXdicTd3S3VrVXlUU2g4WnZxazQyOGEzSlhyNDFFRm56RVhCWEhWYW4wY3VsLWU2VHdLTXdsNTRqSDFxM3Y3dUtna2RuQ3JSclFVa0NuQmFkUm5OMWlzQUhaTEhHZmRqZi0yVXVwS0Q4RlloN19JUndxRHRQTUhWSmlo?oc=5) |
-| Jeffries accuses GOP of going 'radio silent' while Johnson says Democrats are 'not serious' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQMzAwVlhheUVsOXdKcnlqUE1WS1ZDV0piUGxza1VTbGVUNUhUZ1RYR0NtbGxEcVV3S2Z2NjZVTmlZUUh3T3loSHNpZW5TUWZ2T2M3UGYzZXZKZmpWVUc1OEFoNGttVTVXSUg5UUlnVmNrT1NRM1o0dklNemF6d3BzWW5iSXFBVjFE?oc=5) |
 | National parks caught in the crosshairs of government shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQTm0yQWhFVFVsT3dtWHpNU1Qtem5BTXhOekxISlRDbkRrU3RXRFVRWEo0OWRJcnVKeGNkYVRrNGw0ZFFod3BTZjhSdk45Zy1vMDEtVDN0ODBvY3BiSG14cWUwNTN1ZHpUZEtNZVMtZ29ZRGNNQjVVSUdoR2Y2bXc0ZWcyMndVQQ?oc=5) |
 | Rubio Says Ending Gaza War Will Take Time - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPdnJGME5saUZIQjJ1SHdNWERnMkEwZFlodjJ3bC1iMFpLWk5qdXFFNklIZmlKYkdZUDZERnUyS3Fnam90TXhjbGFLNGRkNXVzMWZTcXFLeWlYOU5ZelNtRHlrclpXRVgzbGdjVjhsd3VGWWFUbnBTaVJxdk1UY2RXYWU3ek9HWkUxT280eWZvaFRxMzViWkdGbzE0RDZ5TWdjWEJiTXZpNXlNQ28?oc=5) |
+| Federal tactics on Portland protesters escalate, hours after judge rules against Trump - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQVzl3VjRqdFBNMlN5bWpxdTJncEhaaEpjbERYVlFkQzVsc2E2Ukt1SW1tT0p3YnJCcnBZLWtjTXNFVnN5Q21mSlZtNFBJbU5kdkNpS1J1NHpFUUh3enF3cUJZTGhHRXdjMFB5U2pxdFhOcXVuVDZpSWdzQUFISWVlM19TVFV3Zk5UdWx1VjhIM0djakRQenFmN1U2WjZVTkVVMy0tTnY0UmcwU2stUmNyTk5HM0wxUG5q?oc=5) |
 | Russian air attack across Ukraine damages energy networks, kills five - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNQlJKNF9LWElGOV9jcVMzOGZNQWVJai1CWktXWDIyNWxkTVp0Sklkc0c3LU5DeV9CaXB5OXhuWW9QYWtlZ0xKeXFvb1hqRHcwZ2FXSEhETWJXV2tvT1plT1dzaHhUWU5KV184c19kWFJUS042SjBFa3N3dmRlbUEtZXRPRQ?oc=5) |
 
 ---
