@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 04:40:11（北京时间）**
+🕒 更新时间：**2025年10月06日 04:48:26（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | Survivor describes moment 'monster' attacked synagogue | [阅读全文](https://www.bbc.com/news/articles/cly05lekyrvo?at_medium=RSS&at_campaign=rss) |
 | First celebrity leaves Strictly after dance-off | [阅读全文](https://www.bbc.com/news/articles/c20zeyynnrgo?at_medium=RSS&at_campaign=rss) |
 | Five killed in large Russian missile and drone attack, Zelensky says | [阅读全文](https://www.bbc.com/news/articles/czjvlgzmp4wo?at_medium=RSS&at_campaign=rss) |
+| Cavers safe after 30-hour rescue during Storm Amy | [阅读全文](https://www.bbc.com/news/articles/cly6x3xvyy0o?at_medium=RSS&at_campaign=rss) |
 | Trump says he thinks Gaza hostages will be freed 'very soon' | [阅读全文](https://www.bbc.com/news/articles/cj3y6g43248o?at_medium=RSS&at_campaign=rss) |
 | Police release photos of mosque arson suspects | [阅读全文](https://www.bbc.com/news/articles/cm2dglp43xmo?at_medium=RSS&at_campaign=rss) |
-| How the US got left behind in the global electric car race | [阅读全文](https://www.bbc.com/news/articles/c8ex2l58en4o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
