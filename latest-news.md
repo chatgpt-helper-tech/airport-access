@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 12:57:59（北京时间）**
+🕒 更新时间：**2025年10月05日 13:00:59（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Who is Japan's 'Iron Lady' Sanae Takaichi? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1FdThQa3dyZ194azJIWC1SOENyRXA4ZUJyQ3BiNURIZkFiQ2c0TmRvQlgxZDNoTXVaRms2QTF4aXUySTNPS1dSOFRsaTNXTXJNMWs5NGJhUEtZUdIBX0FVX3lxTE5QRVhvd2NhRUNZVy1aZnRPa2RPNzlnZi1KNDZ5cnJubjc2Y01IdnY2bzEwbzM4SEZFN0NPQTQyN0JZekVMUmxEUko2WGFyckM2cVRIWjJSZWhWUGpjQUw4?oc=5) |
 | Trump to Send Witkoff, Kushner to Middle East to Seal Hostage Release Deal - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQeGVnVDN1TGNOei1vZlhqNnlpeTRpNGtfSktfOE4xbC1LT0RCbmpyejlycC1XZVZTWXFtVVcxa2lzTzhGdWJIUGM4X2R5NTZxa2ppcGpzYjgtd2dTRGJycXprLVAzQW9CNWtHQ0JPXy1FbmR1NW9qNF9UcW9iNEZ5T3pyUWJiZDQ0aUNINllKaWNKUEN0YW5kRndrRi1aNl9GTHRkdmZ3?oc=5) |
 | Johnson rallies House GOP after he calls off votes amid shutdown fight - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOU0U3d1VFTU1PUzd0SG9zVmZ3VkJmYU9HNWd2R1VXMUV4N2FqcTl4UWxCZ2R6cTFvWGlfWVhfaldoMW5Da1dXYXFzamlma1oxd0JCeXNJUlpuT19PYnYzWHA0VFhaVW1kQmRQWGg2Wjh3Mm1MTUNKZUp3dmhkTF9HcWZMRQ?oc=5) |
-| The U.S. may mint a coin with Trump's face despite a law he signed that prohibits collectibles with similar likenesses - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPMnZ5YTNzak1UWWNPSG1idWd6RWF4R2VLYzhqc3UteEhMcnBuRmVnMmpsQXY3ejVqbEhPdFlPSEh2WnpOblA0MnIxcF9VU0FJZENGTVJzMFNocmxQcHU1UmE5d0dwM0dtemRqenE0MF9kTE5OZDBZMzRyT0VBVnY4eC1RQ2l3WHJvRmxuYlBmaWNydUFqQS1rOFl3?oc=5) |
+| Trump urges Hamas to 'move quickly' on Gaza peace plan - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9PWkRZM3Y2bHc4NDZwSkU1MUNpeEo4SmtUcjFEQlZMeTJpX2pvT3VoYTd1amlrTEZTT0dwcXFTamtyWWhqTGNXVWNEblA1MkpTQ1dENFVzN1hYZUs2Y1N6WkpFVGFZYVhfbjdCa2pfanRVYTJtTnRRUDZhclM?oc=5) |
 | Democrat in Virginia attorney general race apologizes for 2022 texts depicting political violence - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOaWMwa09LSzN0R3BHQkVuVVJCSS1NQlNvejJBSEtfdGJqNnd0XzNGMHVpME9BV2pJZHFhb2VXbVAwMV9DTDlOXzJ3LWJQd09GZkZVUGhBbWpZSUZuUEJPMGZlUlZleEVCQmNTNXVNeVJOWVlmTEwwTTlVQXBJUU9RemFlRmR2RVBBUVQtb0tlN3hmSjFl?oc=5) |
 | Federal officers fire tear gas, make multiple arrests during protest outside Portland ICE facility - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFB5eFpib0JSeHJRSFJ2SGdnMlN6RnFsU1RKSmx2Q1d5SXJsOE5acEc2Y1dRdWFRQm1EWFRlNmZWWFo3VzhDMFpzM2ZBdlBOTXJsRlA5VGxWSWREeVV6VWZOUlYwVmNJcktMZjc4WHdZUXoxb0ZvWG5wWA?oc=5) |
 | Democrats’ defiance on shutdown shows a new, tougher approach to Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeFlIal9SVEw0RzNQY0xUNWRGMW52VUQzNXZsQy1iZFZvclJ0UmxMYy1neVNfX3VTVVdObTNXNTJYX1VuWlRJTEcxaTFBT0ZYcjBYUmJNVWxkSkVmSExfQloxR0lxc0lLcjJuVld4T2Y2SkR6djB0WVJKU2NrWVgzRWgwWlZMaTMwZ2lmdUYwdw?oc=5) |
