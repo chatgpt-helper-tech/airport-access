@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 20:01:50（北京时间）**
+🕒 更新时间：**2025年10月05日 20:09:03（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | Five killed in large Russian missile and drone attack, Zelensky says | [阅读全文](https://www.bbc.com/news/articles/czjvlgzmp4wo?at_medium=RSS&at_campaign=rss) |
 | 'I have everything to ruin you' - BBC tracks down sextortion scammer targeting teenage boys | [阅读全文](https://www.bbc.com/news/articles/czrpedexleno?at_medium=RSS&at_campaign=rss) |
 | Meghan makes surprise appearance at Paris Fashion Week | [阅读全文](https://www.bbc.com/news/articles/c1471r6e27jo?at_medium=RSS&at_campaign=rss) |
-| Is waiting in a 12-hour queue the new cool thing to do? These people think so | [阅读全文](https://www.bbc.com/news/articles/cgq4e4vgz73o?at_medium=RSS&at_campaign=rss) |
-| Before and after images show glaciers vanishing before our eyes | [阅读全文](https://www.bbc.com/news/articles/ce32ezzq6zlo?at_medium=RSS&at_campaign=rss) |
-| Late nights and packed lectures - why freshers' flu is so hard to dodge | [阅读全文](https://www.bbc.com/news/articles/c147218x7rgo?at_medium=RSS&at_campaign=rss) |
 | How the US got left behind in the global electric car race | [阅读全文](https://www.bbc.com/news/articles/c8ex2l58en4o?at_medium=RSS&at_campaign=rss) |
+| Before and after images show glaciers vanishing before our eyes | [阅读全文](https://www.bbc.com/news/articles/ce32ezzq6zlo?at_medium=RSS&at_campaign=rss) |
+| Mum died from early dementia - I had to find out if I will too | [阅读全文](https://www.bbc.com/news/articles/ce32kx79e7eo?at_medium=RSS&at_campaign=rss) |
+| Is waiting in a 12-hour queue the new cool thing to do? These people think so | [阅读全文](https://www.bbc.com/news/articles/cgq4e4vgz73o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | Andrej Babis Likely to Return as Czech Prime Minister After Parliamentary Win - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPakVUaENRdV9OdXpsUk5CVW9rcmZldXA3LWRLeHdVZWY1VDVoQkMtVWV5c2ltX1BVU1dHempCRHcySVdlWjRnRV9QdzdHSVlPeW05NHBFSWNqa3ZISkNYVzJxX3JNNmhCRlZab3VrOUU1RXM4V21iNk0xWU56LUNIRFcxMHNLSVdDbXl4Q3g3NA?oc=5) |
 | Federal agents use tear gas, make arrests as Portland ICE protest swells into the hundreds - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOM3VoZmQzYlMwNE1JRGJaNV9LdUFiUTlqdDZhMkgxdzFTS0tDdmpEVW1Cd0hZek10RTZCOGlyblI2c3FRSGZKUmJVUUMtY0EwSWNVZWpxbUNEU1gxREdjOTRFelp2cGhVazZ6NzFCWkVadGNNUjduLVk1NHBwM3hfT3FYSFhkenNhd1JZdFBFUU9JeVhXRWhzd2h2Q2tPMEFjdjk0djduX2N4U2gtajZwNmJ30gHGAUFVX3lxTE9VSnQxU202d0E1N1Q2TmgzVWpwTjZwMTRpUVN2U2ZBSlFFUFMwLTAxbGU3ck9HTlZZNXZJV0lldV9sRm5yTDlKdmhyVkN5STNKdG1DTzUwSFc2ZmIzR3g1aWw0TDJENnhoSHlsNlpxRjVyM3hkRnVMaHp6engtZVdzMnhlOURSc1pzZktpeF82RVdzV0FYS3IwX2p6R3AwU0s0UFhCZXh4VURGc3F6NEh1M19jVV8teHE2RDZQRW85ZWFWVTdwQQ?oc=5) |
 | Democrats’ defiance on shutdown shows a new, tougher approach to Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeFlIal9SVEw0RzNQY0xUNWRGMW52VUQzNXZsQy1iZFZvclJ0UmxMYy1neVNfX3VTVVdObTNXNTJYX1VuWlRJTEcxaTFBT0ZYcjBYUmJNVWxkSkVmSExfQloxR0lxc0lLcjJuVld4T2Y2SkR6djB0WVJKU2NrWVgzRWgwWlZMaTMwZ2lmdUYwdw?oc=5) |
-| Democrat in Virginia attorney general race apologizes for 2022 texts depicting political violence - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOaWMwa09LSzN0R3BHQkVuVVJCSS1NQlNvejJBSEtfdGJqNnd0XzNGMHVpME9BV2pJZHFhb2VXbVAwMV9DTDlOXzJ3LWJQd09GZkZVUGhBbWpZSUZuUEJPMGZlUlZleEVCQmNTNXVNeVJOWVlmTEwwTTlVQXBJUU9RemFlRmR2RVBBUVQtb0tlN3hmSjFl?oc=5) |
-| Simi Valley resident gets over 8 years in prison for attempt to kill Justice Kavanaugh - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxNUUJSVW1kUUFTTW5ydW9DOVYyZV9lSG5UQlllZGJ6cGFjQzdVV2ZTdXNJSVp2cTV0Mko0Vm9LeXVCVDdaaUVNUU5LSVUyNEgwTzVZODFmSW0tRVZQTFppRzRtRzBtVUlxb25JQ3BESlduanFoTUJfZHNuek93ZEVtY2RnM0Y2dkhVR0lDeWhaLW1Rb2V3OEY0dmxkV2Q1VWhWa3h1NWFva0w5WE1IaGp6RzhPc2J4S0dpZkk4WGthU1VzTnVqWHhZUGxrSDhlcTh0MlBMWnNxMnI3WDFKWWVj?oc=5) |
+| New Supreme Court term confronts justices with Trump's aggressive assertion of presidential power - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNemxSRmxoOS1SSzRNeDhIT3FvelV6OFAwb2phWHNNazRXemJ1M25NT0xQZEdSTkpBdXhLWUxEZ3U2VWlJd0F0MC1XbDZZQ0ppeVRKSElMenNHQ2tRbjFrLTktQnpEaWx6Z0xubXNkaHdWQ05kUkFGQzBUb3c4NEtoUVI5S0NWanNKY0ZfTU5uYURUdGJRNDd6WG02UVBnM1ZCZWdDYU1PLS1HUWk1a1B4b3JtUkxuTTg?oc=5) |
+| Virginia AG Candidate Faces Backlash Over Texts Musing About Shooting Political Opponent - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxQMFNsWFlHUWNYSVNGWEhoS0NqVlVFY0VneE9fODNiU0JMajZJdjZSSmJjczZjbXJTcmY5NFg0ZmQwSFNvTWcwMjhYbDduckZ6MGxvUXhfUXBuLVNzMi1NWktRcmR4LVhTS185Z3FvX2tfcEw1VTk5Qjc1bVNJaFotUlVUOTRET09FdnVlQTkxdklKdWlzaHlyVmdIT3h5TTZVcG9NQjRuSFgwWDlsZjR6QW5peVJRNTNvRlJvbXZYV3BrY0NmaHpDOTVPWTBvN051cVdUbA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
