@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 18:09:52（北京时间）**
+🕒 更新时间：**2025年10月05日 18:16:27（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Czech Republic: Billionaire populist Andrej Babis' party wins parliamentary election - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE4tOXVTT3M3eG1lb2M0dlo4WGdWY0oySGNHdTR2d0pDdWNDemd2YVJJUmtwMmI1Z0JRQ2lGNU01TEZoWUQwNG1MVjZHRUhTbGEya1JqTmt6QncyZ9IBX0FVX3lxTFBHS3JQblFDZldvSWoxM3hKR0VDNFJKbzVjdG1HWHJwbWJsRmI2MEJiM01Delo3WVdFR1JyMFdwbmFmNThMM2N5VkNIRk5oWTlVSi1oYVZzbUtOOEJPXzc4?oc=5) |
 | Security video helps lead Oregon detectives to a masked killer who tried to hide the crime - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxONGRsYnBIY2N5N3RZT0Vjbm52aHNidm9YQ3R1Q3ZnTDhwcldZZGF6NFB1TVVEVEw1MExfYWhsZkhmVFpVZkhGZVFIck1CVEd6MmhLZXF1VlR3cEVaRjNPU1FGX2pDOGxLeUN2WHNZU3FKZVZyMHdxZDhaZy1oaWZCMXpIRDlrb3JRU0hmSGl6d2JNbjF1R3hXZGhaOVo2ejNWYk9GdTNiTE04U1FVbnNub2hyV29aajjSAbwBQVVfeXFMT2k1VTZMSTNWdVVCTGVOX3R5YlNud2FhMVFQNzh3bm84ZnFHWTdZR1JJYVk2QzNRem5adjZsQm1odjFRa0dBZUdqOTdVNmFCUTZCYi1iV1ZSeS0zZFR6anA4TUY0b1lPOUlrSXpiWTJ0X1Zpam5oSVd6SUhkUFlVYXVlRDJzNlFFMDhENEZUT3d4SGJWOEFTa1JzaWF2UE9JeGxMckppTjhIZUJWZjJPdnhoNElpeEx5RF9kVi0?oc=5) |
 | Federal agents use tear gas, make arrests as Portland ICE protest swells into the hundreds - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOM3VoZmQzYlMwNE1JRGJaNV9LdUFiUTlqdDZhMkgxdzFTS0tDdmpEVW1Cd0hZek10RTZCOGlyblI2c3FRSGZKUmJVUUMtY0EwSWNVZWpxbUNEU1gxREdjOTRFelp2cGhVazZ6NzFCWkVadGNNUjduLVk1NHBwM3hfT3FYSFhkenNhd1JZdFBFUU9JeVhXRWhzd2h2Q2tPMEFjdjk0djduX2N4U2gtajZwNmJ30gHGAUFVX3lxTE9VSnQxU202d0E1N1Q2TmgzVWpwTjZwMTRpUVN2U2ZBSlFFUFMwLTAxbGU3ck9HTlZZNXZJV0lldV9sRm5yTDlKdmhyVkN5STNKdG1DTzUwSFc2ZmIzR3g1aWw0TDJENnhoSHlsNlpxRjVyM3hkRnVMaHp6engtZVdzMnhlOURSc1pzZktpeF82RVdzV0FYS3IwX2p6R3AwU0s0UFhCZXh4VURGc3F6NEh1M19jVV8teHE2RDZQRW85ZWFWVTdwQQ?oc=5) |
-| Virginia AG Candidate Faces Backlash Over Texts Musing About Shooting Political Opponent - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxQMFNsWFlHUWNYSVNGWEhoS0NqVlVFY0VneE9fODNiU0JMajZJdjZSSmJjczZjbXJTcmY5NFg0ZmQwSFNvTWcwMjhYbDduckZ6MGxvUXhfUXBuLVNzMi1NWktRcmR4LVhTS185Z3FvX2tfcEw1VTk5Qjc1bVNJaFotUlVUOTRET09FdnVlQTkxdklKdWlzaHlyVmdIT3h5TTZVcG9NQjRuSFgwWDlsZjR6QW5peVJRNTNvRlJvbXZYV3BrY0NmaHpDOTVPWTBvN051cVdUbA?oc=5) |
 | Democrats’ defiance on shutdown shows a new, tougher approach to Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeFlIal9SVEw0RzNQY0xUNWRGMW52VUQzNXZsQy1iZFZvclJ0UmxMYy1neVNfX3VTVVdObTNXNTJYX1VuWlRJTEcxaTFBT0ZYcjBYUmJNVWxkSkVmSExfQloxR0lxc0lLcjJuVld4T2Y2SkR6djB0WVJKU2NrWVgzRWgwWlZMaTMwZ2lmdUYwdw?oc=5) |
+| Democrat in Virginia attorney general race apologizes for 2022 texts depicting political violence - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOaWMwa09LSzN0R3BHQkVuVVJCSS1NQlNvejJBSEtfdGJqNnd0XzNGMHVpME9BV2pJZHFhb2VXbVAwMV9DTDlOXzJ3LWJQd09GZkZVUGhBbWpZSUZuUEJPMGZlUlZleEVCQmNTNXVNeVJOWVlmTEwwTTlVQXBJUU9RemFlRmR2RVBBUVQtb0tlN3hmSjFl?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
