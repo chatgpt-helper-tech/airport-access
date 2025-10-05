@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 20:48:36（北京时间）**
+🕒 更新时间：**2025年10月05日 20:57:01（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump authorizes 300 National Guard members to Illinois to assist with deportations over JB Pritzker’s objections - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOblpaSjhGSU5NUTRwLUgweklEYllXY0dmdWc5VFhIMzlLQVcxQkkyTm1jVDF0WnJoNzhSUGtXZVRXbzdlOXF2RkVvZEVxV2xpdDZwdm1BWWIxT3dNMlppeU84Z0NiX3VvTGJqUE9vYVhENFBENjRoYVpVaG9ndFJsYUhsMkJ3Zw?oc=5) |
-| Exclusive — Trump on Gaza deal push: "I said, 'Bibi, this is your chance for victory'" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9UaHdvMXhQcG1IVGtOOUYzYjVpbldKZWhKYnk0M1ZGMkJMQV9WMFdNdHVuaGEyZEkzQ1ZVc2VyX0l3MXZ5RnEzLTNsMkZ6VlBKNHZrYm1zRC1idDdBbDJUSGkxYzRMOTVDeDBPYWwwZFc?oc=5) |
 | Federal judge halts Trump administration’s call-up of National Guard in Portland - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxOS2R5dVkxdXRMUnpDeWhHYUJOWkxkT1Jhb20ydzdSU2Y2QVZ3SHJNSXpoc0pGU0FrckRRLThBVzJlNUI2N0J6T3Q0S1BjY0tHNjB2MFJ0all4RVpNbUZMTmhtRm1JaEozM1lQeFRDTHdRRjd2OEJEa1g3OWdXNUdlcDVHV256NDNhRlpDRHpsN3pCM2JkTDRwNy10WU83c2dxVTNCR2tUbGNBcWpYd1Y1b0ZtbG1PV1JFWEtCaFVMMUhqQlRCNDRRSg?oc=5) |
+| Exclusive — Trump on Gaza deal push: "I said, 'Bibi, this is your chance for victory'" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9UaHdvMXhQcG1IVGtOOUYzYjVpbldKZWhKYnk0M1ZGMkJMQV9WMFdNdHVuaGEyZEkzQ1ZVc2VyX0l3MXZ5RnEzLTNsMkZ6VlBKNHZrYm1zRC1idDdBbDJUSGkxYzRMOTVDeDBPYWwwZFc?oc=5) |
+| Trump authorizes 300 National Guard members to Illinois to assist with deportations over JB Pritzker’s objections - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOblpaSjhGSU5NUTRwLUgweklEYllXY0dmdWc5VFhIMzlLQVcxQkkyTm1jVDF0WnJoNzhSUGtXZVRXbzdlOXF2RkVvZEVxV2xpdDZwdm1BWWIxT3dNMlppeU84Z0NiX3VvTGJqUE9vYVhENFBENjRoYVpVaG9ndFJsYUhsMkJ3Zw?oc=5) |
 | Five killed, energy infrastructure damaged in Russian air attack on Ukraine - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNYjhRdHhuZS12UnViYWliU3A4ZjlITXVKQWs4OVRvWE1CTWRnVDdHVFBqNWNRS09HdnZyNHpTY3JzMFpxZEs0SXBrR0JmV2JWZWhwbmpWdldSTm9pV0JsUEpjUHotTVhOcTY2OWozOEJkODdYN3hzVTdVVDJmT25SeWtsLXAxU0RZS2FpaHlMQmxPZHZWRUxseU1vTk5WM25JVlNVU2VMVmVER3Y3VDdPSzlUcjRMQldUdHVyUGlONXE5YXJU?oc=5) |
 | Hope and fear for hostage families after Hamas response to Gaza peace plan - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE8tSEdVSWxkSWFMMDhQbUt0TmNqSDdNREoyaVFQTmI0YkdzVUhRVzEyNEhHQmRJdjlpYnNLNkVoMGJGQ0pOOFhfMVF4R3RlOVBVYnE3SENfRHNjUdIBX0FVX3lxTE54WVNQQzYydWhKMVpnaWJ1Ul9XNUFPSEdaZkhWTUQzNlR4SldubjNBTmt1ZDJWN1FWalY2Z2lCaGU1dUduNGsyY3JFNUxMbW5uelRXbnBSb0JTY2ZKdDlB?oc=5) |
 | Federal agents use tear gas, make arrests as Portland ICE protest swells into the hundreds - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOM3VoZmQzYlMwNE1JRGJaNV9LdUFiUTlqdDZhMkgxdzFTS0tDdmpEVW1Cd0hZek10RTZCOGlyblI2c3FRSGZKUmJVUUMtY0EwSWNVZWpxbUNEU1gxREdjOTRFelp2cGhVazZ6NzFCWkVadGNNUjduLVk1NHBwM3hfT3FYSFhkenNhd1JZdFBFUU9JeVhXRWhzd2h2Q2tPMEFjdjk0djduX2N4U2gtajZwNmJ30gHGAUFVX3lxTE9VSnQxU202d0E1N1Q2TmgzVWpwTjZwMTRpUVN2U2ZBSlFFUFMwLTAxbGU3ck9HTlZZNXZJV0lldV9sRm5yTDlKdmhyVkN5STNKdG1DTzUwSFc2ZmIzR3g1aWw0TDJENnhoSHlsNlpxRjVyM3hkRnVMaHp6engtZVdzMnhlOURSc1pzZktpeF82RVdzV0FYS3IwX2p6R3AwU0s0UFhCZXh4VURGc3F6NEh1M19jVV8teHE2RDZQRW85ZWFWVTdwQQ?oc=5) |
