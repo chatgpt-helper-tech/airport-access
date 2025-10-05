@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 00:41:54（北京时间）**
+🕒 更新时间：**2025年10月06日 00:48:18（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Shooting in Montgomery, Alabama, leaves 14 injured, 2 dead, police say - USA Today | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOWWd6dl9aMVVFU1ppRnJ0RzFxSTN2Rl94ZG1lNmt1ZHRYQ3VfZUk4VVhZanA2SkxhWUEtTk1GNWIwZ1NBVFNaakVLTWRaVjFWb2E0bi1wU2w5cW8wek5ZOENwVWFUbEo5S2s4UHR5NGZKWS1NU3pyaUJBcHFZZnRhYjNtSW9NeDFrNUxFeTNBekhuSE1Ia2wtbXR2TWdmc0hr?oc=5) |
 | Not All National Parks Remain Open in the Shutdown. Here’s What to Know. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE5pSEx2bzhaNUpYS1VnU0plem1IRlFWdnh1UEJvMmxhbXNaRXhILVpmU09rR0NDcjE3ajh3QnU3bXFmVUNHMUszc3NoZzM1aHA2N19ZRUpSNlpiaEFsRlVaZV9zbmIxVWxUUElnUGFfUHd5X3Zt?oc=5) |
 | Hegseth fires Navy chief of staff - Military Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPdlpSOW9abTAwS3cyQ0JMNXN0S0lpNmVySXE4S0U3VlNFMDdxeW1UOF8wWlc4Rm1vbW5hWFZhUGtJUENINEJjRDFNRE0tYURsUF9EY1BscHBNSDRGT1dkMVAyX3ZzaHRJWTNiaFEtdWFuTExwSF9CZmJJRlVPeGRaaWttYVRRYlFiT3Y1WnlKa3dfOUE1Q0pBQ3Zn?oc=5) |
-| Federal agents use tear gas, make arrests as Portland ICE protest swells into the hundreds - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOM3VoZmQzYlMwNE1JRGJaNV9LdUFiUTlqdDZhMkgxdzFTS0tDdmpEVW1Cd0hZek10RTZCOGlyblI2c3FRSGZKUmJVUUMtY0EwSWNVZWpxbUNEU1gxREdjOTRFelp2cGhVazZ6NzFCWkVadGNNUjduLVk1NHBwM3hfT3FYSFhkenNhd1JZdFBFUU9JeVhXRWhzd2h2Q2tPMEFjdjk0djduX2N4U2gtajZwNmJ30gHGAUFVX3lxTE9VSnQxU202d0E1N1Q2TmgzVWpwTjZwMTRpUVN2U2ZBSlFFUFMwLTAxbGU3ck9HTlZZNXZJV0lldV9sRm5yTDlKdmhyVkN5STNKdG1DTzUwSFc2ZmIzR3g1aWw0TDJENnhoSHlsNlpxRjVyM3hkRnVMaHp6engtZVdzMnhlOURSc1pzZktpeF82RVdzV0FYS3IwX2p6R3AwU0s0UFhCZXh4VURGc3F6NEh1M19jVV8teHE2RDZQRW85ZWFWVTdwQQ?oc=5) |
+| Democrats’ defiance on shutdown shows a new, tougher approach to Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeFlIal9SVEw0RzNQY0xUNWRGMW52VUQzNXZsQy1iZFZvclJ0UmxMYy1neVNfX3VTVVdObTNXNTJYX1VuWlRJTEcxaTFBT0ZYcjBYUmJNVWxkSkVmSExfQloxR0lxc0lLcjJuVld4T2Y2SkR6djB0WVJKU2NrWVgzRWgwWlZMaTMwZ2lmdUYwdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
