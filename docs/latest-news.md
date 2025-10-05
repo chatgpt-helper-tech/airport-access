@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 12:33:47（北京时间）**
+🕒 更新时间：**2025年10月05日 12:41:50（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump to federalize Illinois National Guard, Pritzker says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQNWxPQTBCWjRMSEhTNUtHd3hCV2s0YTBtRXlIVV9Ybzd2bnVmZFVxQzF6VHB5eTBzOE1JaVNVYWxfenlaOU41eldkMzJTUHNyYkpPQ3BpTnRrNDRtMXpPNldOMFlVWjMzYWFqNnlfclJkT2RJMWRRM1c3LVBjRG5QYVFSQ0Z0QQ?oc=5) |
+| Trump authorizes 300 National Guard members to Illinois to assist with deportations over JB Pritzker’s objections - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOblpaSjhGSU5NUTRwLUgweklEYllXY0dmdWc5VFhIMzlLQVcxQkkyTm1jVDF0WnJoNzhSUGtXZVRXbzdlOXF2RkVvZEVxV2xpdDZwdm1BWWIxT3dNMlppeU84Z0NiX3VvTGJqUE9vYVhENFBENjRoYVpVaG9ndFJsYUhsMkJ3Zw?oc=5) |
 | Judge Blocks Trump’s Deployment of National Guard in Portland, Ore. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNZTVjaGVVRUtkZmZLNHZISThVRk11Z1lWQ0o4VDJZTFE5YmNHR09HRTFXanNqeno2S0E4eXZCQXo5X1VNY0RDdW9rQ2p2VkhFVjZnM25pelRNc1ZiTUNMWWpKbjM2WlBiMWMzWkFCOXBFUF9PQzJGdHNIRmZheWhDR19CeFJ4LWE4NExxMFRTd01Vdw?oc=5) |
-| Netanyahu says he hopes to announce hostage release in the 'coming days' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBhOURQQjBhMGZKc1AyaWw5b1VhdVJaUzZWbXBUNFI1dDFweEExZk8ydHBzZHJhNmdfR2VKZHRqVVVRREpaZGE1a005RFlWUVJDYnRQZlpLUXRqd9IBX0FVX3lxTFA5V04xUTlkbnBfY2RxU20zWGMya2NOUVQteW1QX2t2ZkdoNmN0QTZuMDgwbllJaVdQNENIX09kOHpOQjFXeFhTMUN1QmFPRkFCZm5ONmZZajlJMVBxdnN3?oc=5) |
-| Japan's ruling party has elected Sanae Takaichi as new leader, and she's likely to become country's first female prime minister - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOQ1g2VEVVOUJ1SzRKZW1MWW16MzlWQTNNREU2d3RxX0lITnFNd1dLZThWdF96OWdPa2ZpbEhHdl9WR2hYR1V6YnNwaklSWDR0N0RmeFFfeG9ocE5YYzVTSVJVYkZlWlpGZ3FfdExMa1VHZVRPcHN5TDRHdFV6ZkpXNHA4QVZvQ25BdFNNclJn0gGTAUFVX3lxTE4xQ1AyRVQ5a3l0RG1NdTNSU3cwMWgwVzZ6MXVrOVhaUDNEekgyZjlNN1RVSW5NSXdtalUxa0w0RFpFQWZUVk5IZzBudlFSbE00NVdWTWRKSk5IQl9sQmZaaWw2cHhrTUxyOXZ5UEc5VG02a3NjdWNjbjYyN1FDSTNQVzduUjRnNEVFWFF3dElqM01ocw?oc=5) |
+| Who is Japan's 'Iron Lady' Sanae Takaichi? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1FdThQa3dyZ194azJIWC1SOENyRXA4ZUJyQ3BiNURIZkFiQ2c0TmRvQlgxZDNoTXVaRms2QTF4aXUySTNPS1dSOFRsaTNXTXJNMWs5NGJhUEtZUdIBX0FVX3lxTE5QRVhvd2NhRUNZVy1aZnRPa2RPNzlnZi1KNDZ5cnJubjc2Y01IdnY2bzEwbzM4SEZFN0NPQTQyN0JZekVMUmxEUko2WGFyckM2cVRIWjJSZWhWUGpjQUw4?oc=5) |
+| Trump to Send Witkoff, Kushner to Middle East to Seal Hostage Release Deal - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQeGVnVDN1TGNOei1vZlhqNnlpeTRpNGtfSktfOE4xbC1LT0RCbmpyejlycC1XZVZTWXFtVVcxa2lzTzhGdWJIUGM4X2R5NTZxa2ppcGpzYjgtd2dTRGJycXprLVAzQW9CNWtHQ0JPXy1FbmR1NW9qNF9UcW9iNEZ5T3pyUWJiZDQ0aUNINllKaWNKUEN0YW5kRndrRi1aNl9GTHRkdmZ3?oc=5) |
 | Johnson rallies House GOP after he calls off votes amid shutdown fight - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOU0U3d1VFTU1PUzd0SG9zVmZ3VkJmYU9HNWd2R1VXMUV4N2FqcTl4UWxCZ2R6cTFvWGlfWVhfaldoMW5Da1dXYXFzamlma1oxd0JCeXNJUlpuT19PYnYzWHA0VFhaVW1kQmRQWGg2Wjh3Mm1MTUNKZUp3dmhkTF9HcWZMRQ?oc=5) |
 | The U.S. may mint a coin with Trump's face despite a law he signed that prohibits collectibles with similar likenesses - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPMnZ5YTNzak1UWWNPSG1idWd6RWF4R2VLYzhqc3UteEhMcnBuRmVnMmpsQXY3ejVqbEhPdFlPSEh2WnpOblA0MnIxcF9VU0FJZENGTVJzMFNocmxQcHU1UmE5d0dwM0dtemRqenE0MF9kTE5OZDBZMzRyT0VBVnY4eC1RQ2l3WHJvRmxuYlBmaWNydUFqQS1rOFl3?oc=5) |
 | Democrat in Virginia attorney general race apologizes for 2022 texts depicting political violence - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOaWMwa09LSzN0R3BHQkVuVVJCSS1NQlNvejJBSEtfdGJqNnd0XzNGMHVpME9BV2pJZHFhb2VXbVAwMV9DTDlOXzJ3LWJQd09GZkZVUGhBbWpZSUZuUEJPMGZlUlZleEVCQmNTNXVNeVJOWVlmTEwwTTlVQXBJUU9RemFlRmR2RVBBUVQtb0tlN3hmSjFl?oc=5) |
