@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 07:57:31（北京时间）**
+🕒 更新时间：**2025年10月05日 08:01:46（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Democrats’ defiance on shutdown shows a new, tougher approach to Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeFlIal9SVEw0RzNQY0xUNWRGMW52VUQzNXZsQy1iZFZvclJ0UmxMYy1neVNfX3VTVVdObTNXNTJYX1VuWlRJTEcxaTFBT0ZYcjBYUmJNVWxkSkVmSExfQloxR0lxc0lLcjJuVld4T2Y2SkR6djB0WVJKU2NrWVgzRWgwWlZMaTMwZ2lmdUYwdw?oc=5) |
 | Mike Johnson cancels more House votes in escalation of shutdown strategy - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQNXk5TFg0ZHhvanZ1WHpiZTFDRnBQLWZFejNsNmEtcU9uUDQyVWw4Rk43UFFRVnlvay1YRWpGQkhobHNyZ3YzWTZ2bmdNMWUyMURmalhvbm5Jakx0bU9TS0ZiRTRibGE2d2xjNEFsdHp3eE5YbkEyWEo1bHhLck9EV2Jlbw?oc=5) |
 | Border Patrol agents shoot woman in Chicago as protesters confront immigration personnel - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNeDc2RWpRQkc4Q0ZKdWxOX1dCeXdzMFg1UUx0b05ZN1A4Mi1qMG9EZmJCZDlwTWx4Mm5MX1o1QkV2RzAta1o4dkhoeUdWcjU5TkRIdGxmNFFUZmNFQkhRNHRwM2dCblNoa1cyVW9ZZEczQlhHU3Q5LWVQY01Vb3R4Qll0NWx5Qi1PcXIwYnFJcmRNWDIxd21IQy1kSmwzVkNqX1RFZ0NoMWlRNk04ZHhZMFZYaDMtWEg4?oc=5) |
-| How Democrats are trying to bust Republican lies about healthcare for undocumented immigrants - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPV1Fpdlo1VndsWFN0WTlyX0N6THo1bm1ubkcyY0I1WkZQaUxNVWZzR181TXBoYks3YjNJWmtPYldiZmRYWGhfT3JpZ0NOVXMxTjJsWVl6WV9MZXpySWdnMkQ5Z2xYa2g0WGQ3TG9lQ0NPVkRQM21GZVI3NHJNbm8zODFIVmNTTzFVMjdTNzVMX1l4b1VFZktTdUwtRnNHc2FkNjlQZ0FlWTg?oc=5) |
 | More than 300,000 Venezuelans at risk of deportation under new Supreme Court ruling - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQMFZmZ0cwbTNmQ0V1MVRxTW5BUzJZVVBuZ1ZfUThzeV9wWVF5Q3VpeGZVZ2t3QTJzMVpaclB5VUkxcHl3UWhEcEthWUhfcE9tcldtOTBIRzVhV2VjS0ZEa216LWZ1V0ZYMzh5eWY1VlFWUjNhcmItRTlJdVpEX1FDSUFBTU1FVXNEUHc?oc=5) |
-| US Homeland Security Secretary Kristi Noem says ‘we’re here to stay,’ indicating ICE may expand in Broadview - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPczkyT0NlWVVKaUlUNzNuTU9GOThPa2RjUWVVRFFNaWVJMExEMVM5RGNxNW0wVlNKUXlJN0RjTXk1OGFMRFVBY0hvNE8xQ2NQeTA3OFFHY1Z0Qm11NHZtOTVZaWpmR1FjOHIxVDhPd1p6V1FaOWhvb1lla3ViTmVORXNKVWV1bHRNTTNGMTRSR3Y?oc=5) |
 | Federal court blocks ICE from detaining unaccompanied minors once they turn 18 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQZzB4UGF1d0IxUFRFb0RhY2V4YzAzbzYxX1hVTzV1b2hBalhZSmZxa24yVmJWNEozVUw5dVhxcEhxdkJRWkpqSzN4Rjg0Snk2V095Um9NN2xEZXdoX1JfTkp5aHRjMHpOR1dJd0FMUWtQaXZzTWdHZEhTcndORXA4bGUtZFl4ZjJhamc?oc=5) |
+| Body slamming, teargas and pepper balls: viral videos show Ice using extreme force in Chicago - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxONmtQamJOOEhwZTJURlFRZ3U1ZVdZMzItcUpONUZiWmkwOWFYSWJJcmhydGdENHdSY2gyOVZ0Q3FXaGxGdktQRGduaXAtWGVCQ0R0djFUNmc5UE04MjM2QTRoWDJIeWJhanBFYTY3SzlIMS1nS1VocmxRUnRiQnp6M0ZiMWt2YnVqMUx0UWxoaE5JSm9QQVNjeTA0WTk?oc=5) |
+| Abrego Garcia wins request for hearing on whether smuggling charges are illegally 'vindictive' - AP News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxQNDgyUGhvaVJRTmdESnUyeTVmbm12UUhaRXBVN2IyWDdHMEZNNzc2RGtCYjNjS0FadzZDdHgxTjdIZFdUOTlXRzR3VGk4STJWVU9ETHlJeFVTb3pxdkkzQ3BGR1RtcFlOZzVaYy1yQ3NwVEgzWVFFWHI4a1FQS3hmR1p3NEVheXV1aFZSUDdWX3VRdmd6RWlrckRhdmZPTGdQVXJSNFFSNUNkZkg1RFktU0RXZ1NfTmNwSFZONU9JNA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
