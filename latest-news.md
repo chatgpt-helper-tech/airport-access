@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月05日 21:48:49（北京时间）**
+🕒 更新时间：**2025年10月05日 21:56:11（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Federal judge halts Trump administration’s call-up of National Guard in Portland - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxOS2R5dVkxdXRMUnpDeWhHYUJOWkxkT1Jhb20ydzdSU2Y2QVZ3SHJNSXpoc0pGU0FrckRRLThBVzJlNUI2N0J6T3Q0S1BjY0tHNjB2MFJ0all4RVpNbUZMTmhtRm1JaEozM1lQeFRDTHdRRjd2OEJEa1g3OWdXNUdlcDVHV256NDNhRlpDRHpsN3pCM2JkTDRwNy10WU83c2dxVTNCR2tUbGNBcWpYd1Y1b0ZtbG1PV1JFWEtCaFVMMUhqQlRCNDRRSg?oc=5) |
 | Scoop — Trump to Netanyahu on Gaza talks: "You're always so f***ing negative" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPVkZkNmRjYUdwWGVaWUxLc0pvM0w3WHdrSTByN243UWhwamh0bE9KcjF4QzRtS3diRFVJU1pMVGUxSElLVGFwbWZPSHNkOUdnbnBYVXBvUHQ3UEM2NS0yUzcyM3Uxel9TN3NIWjAwWGhLdUlMd2dRZ0o4WV9VRzJNTw?oc=5) |
-| Federal agents shoot Chicago woman they accuse of ‘boxing in’ vehicle in Brighton Park - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1rSWRDTjNtSzBZdmRZOG52Z1R1ZDBCekJ4SEF3ZkZ4eDRfQjdJdDduNzRkSkNINDU4MFJfdzV4NXdST2dRbDdlQzkxZkhfTWVpSlU4blA3bVgwczhCd3RETmkzUlVQdTJfSl9zeS1Tbno0VTdqTmxmbA?oc=5) |
 | Five killed, energy infrastructure damaged in Russian air attack on Ukraine - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNYjhRdHhuZS12UnViYWliU3A4ZjlITXVKQWs4OVRvWE1CTWRnVDdHVFBqNWNRS09HdnZyNHpTY3JzMFpxZEs0SXBrR0JmV2JWZWhwbmpWdldSTm9pV0JsUEpjUHotTVhOcTY2OWozOEJkODdYN3hzVTdVVDJmT25SeWtsLXAxU0RZS2FpaHlMQmxPZHZWRUxseU1vTk5WM25JVlNVU2VMVmVER3Y3VDdPSzlUcjRMQldUdHVyUGlONXE5YXJU?oc=5) |
+| Federal agents shoot Chicago woman they accuse of ‘boxing in’ vehicle in Brighton Park - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1rSWRDTjNtSzBZdmRZOG52Z1R1ZDBCekJ4SEF3ZkZ4eDRfQjdJdDduNzRkSkNINDU4MFJfdzV4NXdST2dRbDdlQzkxZkhfTWVpSlU4blA3bVgwczhCd3RETmkzUlVQdTJfSl9zeS1Tbno0VTdqTmxmbA?oc=5) |
 | Hope and fear for hostage families after Hamas response to Gaza peace plan - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE8tSEdVSWxkSWFMMDhQbUt0TmNqSDdNREoyaVFQTmI0YkdzVUhRVzEyNEhHQmRJdjlpYnNLNkVoMGJGQ0pOOFhfMVF4R3RlOVBVYnE3SENfRHNjUdIBX0FVX3lxTE54WVNQQzYydWhKMVpnaWJ1Ul9XNUFPSEdaZkhWTUQzNlR4SldubjNBTmt1ZDJWN1FWalY2Z2lCaGU1dUduNGsyY3JFNUxMbW5uelRXbnBSb0JTY2ZKdDlB?oc=5) |
 | Not All National Parks Remain Open in the Shutdown. Here’s What to Know. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE5pSEx2bzhaNUpYS1VnU0plem1IRlFWdnh1UEJvMmxhbXNaRXhILVpmU09rR0NDcjE3ajh3QnU3bXFmVUNHMUszc3NoZzM1aHA2N19ZRUpSNlpiaEFsRlVaZV9zbmIxVWxUUElnUGFfUHd5X3Zt?oc=5) |
 | 14 injured, at least two dead in downtown Montgomery shooting - Montgomery Advertiser | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxQQkNmbktWamRLS3ZlMjVHQktDZFpJUjFIZ09ZU296VWxRNldncEJsTmM0NWtWZk5ZWEIwdndQRXc4SWZkLUlUNlpQaXRnR1hzamxoQ3QzTXdicTd3S3VrVXlUU2g4WnZxazQyOGEzSlhyNDFFRm56RVhCWEhWYW4wY3VsLWU2VHdLTXdsNTRqSDFxM3Y3dUtna2RuQ3JSclFVa0NuQmFkUm5OMWlzQUhaTEhHZmRqZi0yVXVwS0Q4RlloN19JUndxRHRQTUhWSmlo?oc=5) |
