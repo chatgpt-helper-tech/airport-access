@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 05:57:46（北京时间）**
+🕒 更新时间：**2025年10月06日 06:01:17（北京时间）**
 
 ---
 
@@ -10,10 +10,10 @@
 |--------|-------------|
 | Home secretary wants police to get more powers to restrict repeated protests | [阅读全文](https://www.bbc.com/news/articles/c24rmdngrrjo?at_medium=RSS&at_campaign=rss) |
 | Rescue efforts under way after 1,000 people trapped on Mount Everest slopes | [阅读全文](https://www.bbc.com/news/articles/cj4ykkgxqwko?at_medium=RSS&at_campaign=rss) |
-| First funeral held for synagogue attack victim | [阅读全文](https://www.bbc.com/news/articles/cx2r51x17jpo?at_medium=RSS&at_campaign=rss) |
+| Buyers could save hundreds in new house buying shakeup | [阅读全文](https://www.bbc.com/news/articles/cy0v7zwp0dlo?at_medium=RSS&at_campaign=rss) |
+| Conservatives to set out plan for £47bn of cuts to public spending | [阅读全文](https://www.bbc.com/news/articles/c4gzv9j78dyo?at_medium=RSS&at_campaign=rss) |
 | Survivor describes moment 'monster' attacked synagogue | [阅读全文](https://www.bbc.com/news/articles/cly05lekyrvo?at_medium=RSS&at_campaign=rss) |
 | Rangers sack head coach Russell Martin after 17 games | [阅读全文](https://www.bbc.com/sport/football/articles/c4gwrplwyz8o?at_medium=RSS&at_campaign=rss) |
-| Conservatives to set out plan for £47bn of cuts to public spending | [阅读全文](https://www.bbc.com/news/articles/c4gzv9j78dyo?at_medium=RSS&at_campaign=rss) |
 | First celebrity leaves Strictly after dance-off | [阅读全文](https://www.bbc.com/news/articles/c20zeyynnrgo?at_medium=RSS&at_campaign=rss) |
 | Cavers safe after 30-hour rescue during Storm Amy | [阅读全文](https://www.bbc.com/news/articles/cly6x3xvyy0o?at_medium=RSS&at_campaign=rss) |
 | Five killed in large Russian missile and drone attack, Zelensky says | [阅读全文](https://www.bbc.com/news/articles/czjvlgzmp4wo?at_medium=RSS&at_campaign=rss) |

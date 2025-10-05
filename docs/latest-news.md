@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 05:57:47（北京时间）**
+🕒 更新时间：**2025年10月06日 06:01:17（北京时间）**
 
 ---
 
@@ -10,10 +10,10 @@
 |--------|-------------|
 | Home secretary wants police to get more powers to restrict repeated protests | [阅读全文](https://www.bbc.com/news/articles/c24rmdngrrjo?at_medium=RSS&at_campaign=rss) |
 | Rescue efforts under way after 1,000 people trapped on Mount Everest slopes | [阅读全文](https://www.bbc.com/news/articles/cj4ykkgxqwko?at_medium=RSS&at_campaign=rss) |
-| First funeral held for synagogue attack victim | [阅读全文](https://www.bbc.com/news/articles/cx2r51x17jpo?at_medium=RSS&at_campaign=rss) |
+| Buyers could save hundreds in new house buying shakeup | [阅读全文](https://www.bbc.com/news/articles/cy0v7zwp0dlo?at_medium=RSS&at_campaign=rss) |
+| Conservatives to set out plan for £47bn of cuts to public spending | [阅读全文](https://www.bbc.com/news/articles/c4gzv9j78dyo?at_medium=RSS&at_campaign=rss) |
 | Survivor describes moment 'monster' attacked synagogue | [阅读全文](https://www.bbc.com/news/articles/cly05lekyrvo?at_medium=RSS&at_campaign=rss) |
 | Rangers sack head coach Russell Martin after 17 games | [阅读全文](https://www.bbc.com/sport/football/articles/c4gwrplwyz8o?at_medium=RSS&at_campaign=rss) |
-| Conservatives to set out plan for £47bn of cuts to public spending | [阅读全文](https://www.bbc.com/news/articles/c4gzv9j78dyo?at_medium=RSS&at_campaign=rss) |
 | First celebrity leaves Strictly after dance-off | [阅读全文](https://www.bbc.com/news/articles/c20zeyynnrgo?at_medium=RSS&at_campaign=rss) |
 | Cavers safe after 30-hour rescue during Storm Amy | [阅读全文](https://www.bbc.com/news/articles/cly6x3xvyy0o?at_medium=RSS&at_campaign=rss) |
 | Five killed in large Russian missile and drone attack, Zelensky says | [阅读全文](https://www.bbc.com/news/articles/czjvlgzmp4wo?at_medium=RSS&at_campaign=rss) |
@@ -30,9 +30,9 @@
 | White House: Mass layoffs will start if shutdown talks 'going nowhere' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOdVdrTlJRT0ZjVk42NEtlTWdVSmk0WV9JMnFKbVBEMTdvRkV0bnE3SHhNZUtOb1Z5Tl9qcFFzOUpVVUFKQk0wMEhMUDRhM2I2U0owaXBWMVdYNTBobFkySWloT2o2akc4dnNoWk1BZmJ1QlFuNENMamd2MW5CM3lfaDhWbndfRGJwenZjZnFSZGJqdG9XeVNOamdIMXk5UUxvMV80VEg1QWZERHNtYkZQcl9hRjZhdFZzdW9UWHRxdDY?oc=5) |
 | 2 killed, 12 injured, as gunfire erupts on the streets of Alabama's state capital - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOTDg3c2ctcU14QnVvcFNiWEtzVWhfSFAza2wyd0ZlZVl3LVNxWXM5M0ladFZ3RzFCb2RWd0F2cmNWUmlVcE1OWGctN252T2Rxc0JrdERTQWxXekppVXo5Wmhvel9iRGQ1dGZ4ZnFHbWhha3ZoWlVlaFZlLTVPU1ZMaTF0Y1RZYzZZTXFsUkRiZXByVkRTd2NveFVVdUnSAaIBQVVfeXFMUERxYlEzbjZzVzVSX09CTFNHWmZ2WE9HMmd4VW14SjlWUm83eXlxSXE2eXprTll3ejZfZGVjYzducHlLWHFZeUpOdFhwODZ6cDBHLWM2TDhvTm96dlY2VldnN1ZkYllQU3BydzRVcC1HdWVxMlpQUXhaa3JIM0o3dlptaXdIX181ckp4Tkd0UTFhYTRnYWNoOUxrME9FT01SVktR?oc=5) |
 | Man arrested and charged with possessing explosives ahead of church service marking start of Supreme Court term - CNN | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNaFE1cDNqekZVX2Y2OHNBQ2hPZHBGY0NTSDRfX1ltX3RLR0Ffdlc4OHdHWHZWYjVZeEItUEgyT1BPYUxSc2QtQVc5NkJwUWhIdGtFMm5KNktkOEVRZmtCSXRqVm41ZHVyYVFJLXVfSW9KbzNzSmwyRVFSSDgtMGVtdWlUTXkwTUIwOVJaeXhEYThWUzU3TnZCU2I4RzJKdjNJUTZEb3VB?oc=5) |
+| Jeffries accuses GOP of going 'radio silent' while Johnson says Democrats are 'not serious' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQMzAwVlhheUVsOXdKcnlqUE1WS1ZDV0piUGxza1VTbGVUNUhUZ1RYR0NtbGxEcVV3S2Z2NjZVTmlZUUh3T3loSHNpZW5TUWZ2T2M3UGYzZXZKZmpWVUc1OEFoNGttVTVXSUg5UUlnVmNrT1NRM1o0dklNemF6d3BzWW5iSXFBVjFE?oc=5) |
 | Using helicopters and chemical agents, immigration agents become increasingly aggressive in Chicago - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQYmtIeGI5c2NBTWE1U3BJdDFUV1JicEtyVm9PSmpuSHVYNksyNjcxc0psRE9WR0txSmhOSHhpRzRhdkVnLWRNV3ZkdFV6VDdBMU1RVDhQVUNqLU80SkhabjlhS1hOWUoxeUtyQWZSRzZNOHlnTUtxdjBXWV9LcFBDcm9mRWJLRWtjT01ySHNLS1dQMDlHYTNqaktoYUdPNExuNWJaWDJUTlF4c1pDcV92MUp1Q3AxR1E?oc=5) |
 | Josh Shapiro is dominating the race for governor of … New Jersey - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQSC1Bb0lNRXp0cS1EWnVtLUczbHRTUGhkQ0Zib2gxU2tRR0NER2pCWjBQaHFjd05vbFMtNlJrZkkwY2Y1dFo4dV81T2U0RjlqcmkyeUdzRzl0aENFRDVJa09hVERfX1hGU1FqVXJVb3o1SVJsS2piUFJDT1BRbXRVZC1FWkd0ZXJDUkE?oc=5) |
-| Not All National Parks Remain Open in the Shutdown. Here’s What to Know. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE5pSEx2bzhaNUpYS1VnU0plem1IRlFWdnh1UEJvMmxhbXNaRXhILVpmU09rR0NDcjE3ajh3QnU3bXFmVUNHMUszc3NoZzM1aHA2N19ZRUpSNlpiaEFsRlVaZV9zbmIxVWxUUElnUGFfUHd5X3Zt?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
