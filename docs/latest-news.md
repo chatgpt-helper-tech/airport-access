@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 09:48:41（北京时间）**
+🕒 更新时间：**2025年10月06日 09:57:52（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Montgomery mass shooting kills teen and woman; 12 others injured: ‘This is not who we are’ - AL.com | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNbEIzc2tqQnF0WXpQM205V3J6THJENXhKQ240dWVydGNEMWZCbFNiZFhmZ2NRb1RlQ0F1UGg1bS04eWFHWktFUGgyclNySTJmdHJ3d0N3YWg4Z0hpbHlXcFR1UDhEMUlGaFJSbzhwcFFCdXVRMXRWQzFRUUd4eEJDOUMxc09ObkdIbXFxS3hfZGlWWmYtNy1R0gGrAUFVX3lxTE82S193UnhqZXBCTFlkVzZ5NVBBRldHWVpkeElFdENtV3ljR0JxM2Z0N2kyWkFTWmRXN2FIXzkyRHcyNW8tdmtZUDEtQ0FYRWl3b3ZwYXNrY1lmd2tNcnlLLXBLQ2pjbEJPeUlCNWFqSWhSNGhnMExFVHZqSGRCT3RrQnNUaFhnZkxtQjJUNlhORk5lZ2t4RmtWODFWUnBIUkt2YXZSNUhNSmxFRQ?oc=5) |
 | Using helicopters and chemical agents, immigration agents become increasingly aggressive in Chicago - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQYmtIeGI5c2NBTWE1U3BJdDFUV1JicEtyVm9PSmpuSHVYNksyNjcxc0psRE9WR0txSmhOSHhpRzRhdkVnLWRNV3ZkdFV6VDdBMU1RVDhQVUNqLU80SkhabjlhS1hOWUoxeUtyQWZSRzZNOHlnTUtxdjBXWV9LcFBDcm9mRWJLRWtjT01ySHNLS1dQMDlHYTNqaktoYUdPNExuNWJaWDJUTlF4c1pDcV92MUp1Q3AxR1E?oc=5) |
 | White House: Mass layoffs will start if shutdown talks 'going nowhere' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOdVdrTlJRT0ZjVk42NEtlTWdVSmk0WV9JMnFKbVBEMTdvRkV0bnE3SHhNZUtOb1Z5Tl9qcFFzOUpVVUFKQk0wMEhMUDRhM2I2U0owaXBWMVdYNTBobFkySWloT2o2akc4dnNoWk1BZmJ1QlFuNENMamd2MW5CM3lfaDhWbndfRGJwenZjZnFSZGJqdG9XeVNOamdIMXk5UUxvMV80VEg1QWZERHNtYkZQcl9hRjZhdFZzdW9UWHRxdDY?oc=5) |
-| Josh Shapiro is dominating the race for governor of … New Jersey - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQSC1Bb0lNRXp0cS1EWnVtLUczbHRTUGhkQ0Zib2gxU2tRR0NER2pCWjBQaHFjd05vbFMtNlJrZkkwY2Y1dFo4dV81T2U0RjlqcmkyeUdzRzl0aENFRDVJa09hVERfX1hGU1FqVXJVb3o1SVJsS2piUFJDT1BRbXRVZC1FWkd0ZXJDUkE?oc=5) |
+| Man arrested and charged with possessing explosives ahead of church service marking start of Supreme Court term - CNN | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNaFE1cDNqekZVX2Y2OHNBQ2hPZHBGY0NTSDRfX1ltX3RLR0Ffdlc4OHdHWHZWYjVZeEItUEgyT1BPYUxSc2QtQVc5NkJwUWhIdGtFMm5KNktkOEVRZmtCSXRqVm41ZHVyYVFJLXVfSW9KbzNzSmwyRVFSSDgtMGVtdWlUTXkwTUIwOVJaeXhEYThWUzU3TnZCU2I4RzJKdjNJUTZEb3VB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
