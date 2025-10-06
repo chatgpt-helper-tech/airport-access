@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 20:57:09（北京时间）**
+🕒 更新时间：**2025年10月06日 21:01:15（北京时间）**
 
 ---
 
@@ -25,9 +25,9 @@
 |--------|-------------|
 | Judge blocks Trump from sending National Guard from California to Portland - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5IelhDOEpVcDBkN05DdHNHRWlnSXM2Q0VYbEs1cm95UkxSWVZzOWM1ekx2REx3dDFxRDRLTE9tTktjUU55X0lhb2h1c0JZNHFMcWVjemZad0dQUdIBX0FVX3lxTE9KUS1DSmktaENiUkdYWV93ZzZnWkVvR19IX3pkN1RJMzNrR2JqckRkeWFXd1FqNXlUWHFCRnp3djdXVUk2WTkyZTdGRFVjbkstTFZUTmpXbFpVM21yWFp3?oc=5) |
 | French Prime Minister Resigns in Surprise Move - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOcnl2YklVM2JoNFlzN3pTdUJVMW9zYXk5TW8yZ1E5V1V5cjBVT1Z1aVlRZEVfY08wWGxKOC1EejBrSkZoSGdKQmpMNHk5dV81NUlkRGQtbFMwVDJIT2M0WVBUekNOcUdYekhRNW92bXgzN2ZyZ3g5bVR6cDVfUmZuVEdEOGtsVHBRbVE?oc=5) |
+| Supreme Court term will tackle executive power, executive power and executive power - NPR | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE41QnJscVBPNFBMM1BMVllWX3RPQjd6YkctdGNiN1dqcklsZlpvVmxTWks1bUZ1VmFYX1Y0ZnZ0ZVNYQ0VEay1OemM0dXBhUjE3TjFWTWhhZXFSOTZiUGlfUGl1T2RFcmxkTUxiYnFVS3IzLTB5bmdNY2VMYw?oc=5) |
 | Trump pushing Israel and Hamas for Gaza deal within days - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTFBHbTNmV0JObVdmbm5ycjhQajE2QTJXN055T1FMU1FlaUVuWkVqMWh6eTVyclctdGJ1T3R4SGd3V1kwbk9lODJwU3RSUDNsVEVBWVRId2F2S3gwYTdUYWdmVkMyaFduVGYzWjRYR193eldzbllw?oc=5) |
 | White House: Mass layoffs will start if shutdown talks 'going nowhere' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOdVdrTlJRT0ZjVk42NEtlTWdVSmk0WV9JMnFKbVBEMTdvRkV0bnE3SHhNZUtOb1Z5Tl9qcFFzOUpVVUFKQk0wMEhMUDRhM2I2U0owaXBWMVdYNTBobFkySWloT2o2akc4dnNoWk1BZmJ1QlFuNENMamd2MW5CM3lfaDhWbndfRGJwenZjZnFSZGJqdG9XeVNOamdIMXk5UUxvMV80VEg1QWZERHNtYkZQcl9hRjZhdFZzdW9UWHRxdDY?oc=5) |
-| Supreme Court Returns to Face Trump Tests of Presidential Power - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOd2Y1VDQweGllcEhyN0pHR2xxNlJnLWVEdmFJV2RLLVNJcHBPT3RZMVhxck5TYVNsSlF6b2JFWDVKSjdmcG9xRkxGc2ZudDZ3QXh1UGFFUHJ6VTQ4RmVBdnh1OWVkLWNCTWN5dm9lX0x4RENETHpLWkpLTEdyaHhDT3hTV21WLS1VXy1BVA?oc=5) |
 | Ex-special counsel John Durham undercut case against James Comey in interview with prosecutors: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQd1VqOUpkZ2xLakxrUkdZYzkxZW1DbHRwbk92MVlHYS1SWFNwdmE5WDFWSUx0ekV6dUZ4TEw0ekNxZmhDTDVXMG0yWXpBZkpQUzJjQnhLSW1WdmRXMjFsbWZzN3hvZ2UwTWxyZDlSTHBzdkI4SG42bWZadng4N0NBeWowOWFCdGN2NlJXUjF3S09hS3JvaXRLbnVfTDVKcjjSAaQBQVVfeXFMT2tobkUzUjVwWkdsYlJJNUF4UXRUMy01a2JFeUlwam1MbHpVdUhsNWc3bUtDVUpPWXg5Zy1fQXFuMXRldUVYWHhFVTVmejVtVHRlaW1hSzZ3aGRTcU1HZzZmemgxYS1iWnlpWU5LbmNpVUg4MTU1TVdXZU12U1VPMUhuamkxNHROMmxqcVVPdk9vcWhfMmVtMVVJbHhVU1k3VlZIRDE?oc=5) |
 | Nobel Prize in Physiology or Medicine Is Awarded for Work on Immune Systems - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPSTBuTDZIRzdXZldmOWt0WGZWbFFETEI4T3VMNUZxdElZaUk2Z1UxVEdHRFVmRnVYem9Ia3VHdi1jTlQtNGNMTnpBaTN6TXFJZXJxQVV5bU9WSVgtbERPY0NJbjUxZ19VZXZqdkhjRnhqWmdRc19JTllkT0tmYUo1WHVPdFY?oc=5) |
 | Instructor dies in Nashville skydiving incident; 2nd skydiver rescued from tree - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQaXlWWFVIM2ZhM1VoSm9nQlJRVFVUYWVNRGEtOEpUeUZaMFhwWEMyN21hZHZWWUFtcXByWWVFMFVfQ0Q0MGtlTzR3OVdzZFhNR09adEo2d0lYSUUybi1nLThER3MtT3pDdmExblNvdm5YazJVMThtSktZdDRrX3lvS2pmSk5XVzRETHFOWlMxUWpsc0ZIS05YVmtva2pHWmlLVk4xTjVzMjRXZE1fNVk3ZnJPdmZtWXRzUEHSAVZBVV95cUxOWG45WW1RcGVpYlcxaTN5SmVmbVpYeU90Yi1TX0ZNVkV0MkIwbHhTWlhXMkFLQXp6VXlteTB5X3JDU3pmczR2eWwzbTZZUGdzUGw3aWF3Zw?oc=5) |
