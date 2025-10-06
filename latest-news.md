@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 16:01:01（北京时间）**
+🕒 更新时间：**2025年10月06日 16:08:08（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Judge temporarily blocks Trump from any sending National Guard troops to Oregon - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQSU83ZkFnMmR4eDlDN2l1Rk1DbVNjclFRaHM4VWZWcG1UWUJkbERQTE13MDBHTWVNRFRDcE1tWTc3NGx2TFJJTHRHN2pGQXROZ3FzR2I5Ny13eGpHSkZwVnBnOTA0YXU2bl9NUDdCbGtYZzRoS1Rvb05MMGVWYVJqQjRRNTJ1aUpIZG9WRFRaN3o?oc=5) |
 | How Trump cornered Netanyahu into signing up for peace - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5EaFpFLTdkSkw4aUk1MS1rUHBrQzg4U2I5RTRFOS12eXpOM3dvMllCSWtSV19BUi1mcHN4SHEzMFF5T0Jrb2JZb0g4aTQ5aTNNSUxRVkY2VVJ0Y0FSWDltWnVYZEpGV0ZRdnh1SVFnOGw?oc=5) |
-| Greg Abbott authorizes Trump to deploy Texas National Guard to other states to protect federal officials - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQWGNTMmhWUFA4MUljSndycUxfVXRRdDhJUkx3X1puOGpwQWhhTS1QYnVLZzFMaW9VS2ZRSkZrbWdDbU82LUJ2RVdnaXhEVDI2dWJuMVJoekM4MGN5N05Sd2UzNDVyMS1aSGtPWXV1RDRFNUJDR0xlMHRLeW5uamtMNkFzM1hYQQ?oc=5) |
+| Sanae Takaichi: Japan stocks hit record after ruling party names pro-business leader - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE8yMDJXNEJVd1hOTzdYdUpRVm9oYXY5WDE1R250dUZRbWh1dFJUOTJKYzJsNVN3cHVNRVpEODlCMTBqZlNWNTlWeFVRdW5rLVVJTXA3UXR2d3pjUdIBX0FVX3lxTFB0ekt6TlozaU8wakRtWUEzQXVwZlNoUmFrOEcwSi1yQ0ZwTFc3cnhfaW5FOEZ4SW13U3liTG1mV0V0WlZmLWwybTEwRkN5ZGNYTlhKR3pMenJ6Zm0yTUtR?oc=5) |
 | Ian Roberts, Des Moines Superintendent, Had a Story Too Good to Be True - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOcE4zd0pwQ213SHRUUkRqdG1NOWNGeDBTWGl2Y2ZHdmVydTNuY0JXV3Q1bHBEQWYtMkQxOFlSWHktdkI0UUwzOGwzVFVqekIxM2Jla0NXZ2VCckNJMTlmRndYOE5ka1AyLTl3cVU1SER3N1Fadzg5dHdpYjZIZUxFNHlwM0NSNUcwR01oMHhvTXFCSVIxblE2QUZHd1AxYUtETUtn?oc=5) |
 | How China waged an infowar against U.S. interests in the Philippines - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOZUZ5M1NTSXNpamgtUFZuaklobk5vcEplaHMta3F5SWVqc2F4ZmZBV1RFNWdVZ1dVQlV1ZzZfNWt5T0drYjlUSUVqaTNVdGoxcDRKNDNJZjNGN2kxYUV3dUNBSlZkUVg2ZGFIU1BMWXlMbkw5OEZ2SHVJeFh4ZGZ4cUxLdU5NQXFzOUlxdUU3N3ZHRDV5YnhQUHphV0Q2MmkwaTB4N0d4clkwR0VUR0xHc19scTQ?oc=5) |
 | Federal workers sue Education Department over partisan shutdown emails - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPOWV0M2NiS0FZcG9mT2UxeDgyamg4Mkk5LTFFb3NqQ3ViVkVJelJrR0ZnYTBJOHBjMl93elpIZENwZHhTMVBIeW1qWTdzZktuS21fZGd1ckRwRUZXaFBFSUtYTVVLbXg0T21GYmVEdHg1TnhLYzZubW9CQjloRngzb3FtOVVjeGZWdldPZS1GUndwdF82VmJMMS1CRWZMUkhGMUE?oc=5) |
