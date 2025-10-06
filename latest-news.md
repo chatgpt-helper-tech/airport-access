@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 19:49:14（北京时间）**
+🕒 更新时间：**2025年10月06日 19:56:52（北京时间）**
 
 ---
 
@@ -13,9 +13,9 @@
 | Nottingham attacks victim awarded George Medal for protecting friend from killer | [阅读全文](https://www.bbc.com/news/articles/cjr5xyn421yo?at_medium=RSS&at_campaign=rss) |
 | 'I was lucky to get out': Everest hikers battle hypothermia as blizzard rescue continues | [阅读全文](https://www.bbc.com/news/articles/cj4ykkgxqwko?at_medium=RSS&at_campaign=rss) |
 | Conservatives pledge £5,000 tax rebate for young home buyers | [阅读全文](https://www.bbc.com/news/articles/c4gzv9j78dyo?at_medium=RSS&at_campaign=rss) |
+| Scientists win Nobel Prize for discovering why immune system does not destroy the body | [阅读全文](https://www.bbc.com/news/articles/c2knwvpd7vno?at_medium=RSS&at_campaign=rss) |
 | EastEnders' Kellie Bright on the challenges of being parent of an autistic child | [阅读全文](https://www.bbc.com/news/articles/c0jqy8pn275o?at_medium=RSS&at_campaign=rss) |
 | Apple and Samsung users could be due share of £480m payout | [阅读全文](https://www.bbc.com/news/articles/cn0rn7rwk24o?at_medium=RSS&at_campaign=rss) |
-| Nobel Prize for discovery into how immune system stops destructive rampage | [阅读全文](https://www.bbc.com/news/articles/c2knwvpd7vno?at_medium=RSS&at_campaign=rss) |
 | Australian prosecutors appeal mushroom murderer's 'inadequate' sentence | [阅读全文](https://www.bbc.com/news/articles/c07vlzn587lo?at_medium=RSS&at_campaign=rss) |
 | What is MND and are athletes more likely to be diagnosed? | [阅读全文](https://www.bbc.com/sport/rugby-union/articles/c20z7kyv2edo?at_medium=RSS&at_campaign=rss) |
 
