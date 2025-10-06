@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月07日 06:33:31（北京时间）**
+🕒 更新时间：**2025年10月07日 06:41:36（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Illinois sues the Trump administration over National Guard deployment to Chicago - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNaHVoNEhzQWFMNzE2NVBEOFZOTF9DWjRsSVlzdXQ2Q2lIWHJYQWcyRzVVbjkzWUN2ZW51aGFKZ183M3ZYLXBBcWJTbVJDWGFhQXB2TUQtSUUwS2MybkNmWFZlNlhFVUF4cEdPU0ZPOUFhY0dSQWpIVlNxZjZLcS1OR0xyMlgtbnRwTjlic0IySENRYVQxeFhLYXVjY1dJVkZNMkNEbHV0WksyeVkzWVRGTWJfbGwyZkJEOWR6TFhBaEtYVEhmMnVTdFdSOXpyQdIBVkFVX3lxTE1iY2Z3dG5xcmJWS3pfcG5oQkl2OVJpQzFTNURnSGw0UDZ6OTg3LWI2azI0VzBkZk10cWNzMURXaUdRMUsxMk1GRWVYMTF2V19zZ3ZNMjln?oc=5) |
-| MAGA calls for Trump to overrule judges on National Guard deployments - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPWkI3UmdwUUFlb1F6Nlo4dWJZT09WeWpibEtiNXF1OS1DRVBkNUwyWGFIcTFicUxST3c5WEU3cHVDaGJDbTlpcmFhdEpzUEdyZjd1MEtJY2RWWld2amcwVDZKSTk0MW9EWkJGT0tfWGlWeFNySWhlR0JMb1Vxck9ZQ3F5Yw?oc=5) |
 | Who is Bari Weiss? CBS News' new editor-in-chief is a vocal critic of legacy media - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQNGJXUkhOTFpua09QTHdDN0Q4NTdnTU9HVTFLbFZPak95WFoyYlhUTklhLThCWG81dlZCYlVYbE5tU1VBWEprcTV0ZmhLT1R5c3JCSEJLdWRqLWl5QzlpUjN5OVFOMlozSThEdkNlLTlQcTNPc3V6TmRPSkxkOTZBdg?oc=5) |
+| Illinois and Chicago sue to block Trump deployment of National Guard, but troops already on the way - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNeXFXaXptcGxlYjFhWjZERnVRZGFyLVFKN0lUcjdILW10U0EyVURpSUR5TlczTmFKS2phcF85Sk8yMGgtbXo4U19DRFViUUY0cmlubHJMVUE5Qnk1X0YwU0FNX3pta1FYSzdBRGlKUVpLd0RYcTdUY085S0FNMXNlM1hnUjNqSS1WeXpr?oc=5) |
+| MAGA calls for Trump to overrule judges on National Guard deployments - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPWkI3UmdwUUFlb1F6Nlo4dWJZT09WeWpibEtiNXF1OS1DRVBkNUwyWGFIcTFicUxST3c5WEU3cHVDaGJDbTlpcmFhdEpzUEdyZjd1MEtJY2RWWld2amcwVDZKSTk0MW9EWkJGT0tfWGlWeFNySWhlR0JMb1Vxck9ZQ3F5Yw?oc=5) |
 | White House: Trump is not talking to Democrats - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPcG93dFFwUnlDZENFYzV1LU4zTUNndWJ6RkdQRHNqeFN3Y2kxSkZkamJlRkJFYXJfWVE4dmRwTEhOZ2FTWlBsM0kwcFZIZTRuTWJPM1ZqTC1MUWhUdTZ6cGtkUWZKRUtlQUF3aGxpWVVaVlZNZ2FJRTE2N1g5WG85T1RCaVROa0U?oc=5) |
 | More trouble for Emmanuel Macron as another French PM resigns - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFAxem8zeEpubWdyM0J5NW42S3VpeHZEMzBOWUNBS3QzeVJOSW9lMVMtRXZOekJLZGVrNjVZVEN3S0RYNjdOZTBucDNVMVlRNTVCSzhnT0pmLTZWZ9IBX0FVX3lxTE1wa0VpRFJVMWY0Sko0dFBDdXhWb1dqbzZYRW1wUlZvdWl0UWhXRzZEU1lkZHd2R1MwZ1dFbmFzck9vMng3U3c1SmtCMXdNNWM1UDBQSXJEeFBHQXg5QUlB?oc=5) |
 | Supreme Court rejects appeal from Epstein accomplice Ghislaine Maxwell - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOdVk4dHRyWUFGNTdUdGRrNzlXX25WUnY5SmpscVhQMXJxVFB4TzNnck1BNTNVYnlvSklBdVNPREhYRUc5am91bzBKSHExSVFkcGg4V1RZWFJkNFh1NUVLVV85SEg4ZV9tNWlGUjNwaGpReG45N1dBN3Q2MWdjVnJFeGJ2NFo1T0NXVmY2VU1ZTQ?oc=5) |
-| South Carolina judge's house destroyed by fire; officials investigating cause - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNUVdJZ1NsaWROU2ltMEhIMHRxSWp2MDRYN0tfLThDM1hBVTZhZWM3dDNoY2lmS3p4QUVoeE1BbEhvSjQ1TDlDTHlqYXZ6bDNpd2VRWThINTN4UjNQVzJiRUZMYnBZTmtZX3B5bXotb3BPRGExS2ZXTExSbF9CZmxrNXRHZ1E0Y3dBdGd6cDd1UEFuRHBONzFZOVhSWU9lbXI0eDAwMmQ5UnZpcHdRbDM1YdIBtgFBVV95cUxNLVY2cTluYVRaZ0E0YjhRQV92dDdGanlrVElMZENOMS1vbFBkbU1rN1RwMG85Y18wV1l4VGNPZTJlWElYSmxQQUtWY0lpZ3k1RXV0OWNyUi1CTVFKSXN5WjZCbHdfaGUyYVBOMjUtRmJKa3l1MmNCaGx2bWRLUlRWT3NFWXY0TlF1UDNsYkg3UFFtamtwN29icEI3TW5JVnpRcnAxQ3UtZ25Hb1lRaDhiV3gzMkItUQ?oc=5) |
 | Wesley Hunt Enters Texas G.O.P. Senate Race, Complicating Path for Cornyn - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNaFdSb1d6cnFucVJkazlZYlpfQU9EeE0tVnNIT3NmTVpwOXJIX214MmVBZmFOR0Vyc3RnellVQWJKdVJESVdFbThuV3c0SEVSWkNfN1ZwbEtVUVlIeWl2R0o0SThJeWR2ZFl5SEF5bVZaczZXYkw2ZFJSV1MwMkhtUm8zZVNPM18wSzdrekxiT2tWaXRQ?oc=5) |
-| US shutdown enters second week as Senate votes again on funding bill - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOS3g3dDJwc0xkWFgwYXdGVzV5NFZnYy1nOTBKTngtcTI1MjJScDNxRFZ4ZEczMjUzNjdUa0dfMlJjZGlhOXZKcTA4eEJQeTlfdEZpWnJEaEh2UmdDZ3VscUhjVERzNXlxSWV0VExaWXdVODZaVS02bWRERGlrZktFTmgxX1g?oc=5) |
 | Redistricting Committee selects congressional map for consideration by Utah lawmakers - KUTV | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOX3c2OEVmNFJGaExiT3p0VnRLRGxCVzR3V1dBMVZLc3V6RzloTmtHc0tKcVhVZjZ0R1RXTHE2YXlvRFRXYWIxaExMMU5QVkRIRHo1WlJSc3JoTUt6bmtwM09ybngweVNadE5YWTRtZVdjNDB6dkpkVHdwOFZNOTVRQjYxelhTRzZBbTVfd0VJWGdfSlY0NTZrb2RldFo4RGNTb3Bqdg?oc=5) |
+| Trump Deploys California National Guard to Portland. Newsom Is 'Taking This Fight Back to Court' - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQNXlsTjlQTFI4WEVnOERvR0E0WVk2c3dwNUZJX3liVVRTeFVBZEgwWGVBUzdjekdGUDc1cnI0U2ZyRk5lWkpqUjd3aXpLZ29JUTRmXzYyVlpmTVc3c2R1ekNpbjFXSVBQbjdzUXR1Wm1PY2NKUXkzUUROTmROWTRFcmpaYi12ejlQNnhsczZLU0J4SmszVHFheDJPTzdzc0ctelE?oc=5) |
+| Fire engulfs home of South Carolina judge who had received death threats - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQRUx3MlIxd0h2WXVWekhNNk9lV1dIenJKWDRqMEgtVDE3MjYyRi1TNWluem9GcnV2a2ZYMmxsTmo0alZFZGxDZGRXWlhiNlFEblpHc3J5cWJfS3pULXFRc3hhcWJwd01nbGVOMjBwbzJ0N0FvM3BBNTFRNm9FTElFbkFqRU1QUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
