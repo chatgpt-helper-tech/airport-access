@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 10:25:33（北京时间）**
+🕒 更新时间：**2025年10月06日 10:33:06（北京时间）**
 
 ---
 
@@ -9,8 +9,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump urges mediators to 'move fast' as key Gaza peace talks set to begin | [阅读全文](https://www.bbc.com/news/articles/cj3y6g43248o?at_medium=RSS&at_campaign=rss) |
-| Conservatives to announce £5,000 tax rebate for young homebuyers | [阅读全文](https://www.bbc.com/news/articles/c4gzv9j78dyo?at_medium=RSS&at_campaign=rss) |
-| JLR to restart some production after cyber-attack | [阅读全文](https://www.bbc.com/news/articles/ckge0ex5g27o?at_medium=RSS&at_campaign=rss) |
+| Conservatives to pledge £5,000 tax rebate for young homebuyers | [阅读全文](https://www.bbc.com/news/articles/c4gzv9j78dyo?at_medium=RSS&at_campaign=rss) |
+| Jaguar Land Rover to restart some production after cyber-attack | [阅读全文](https://www.bbc.com/news/articles/ckge0ex5g27o?at_medium=RSS&at_campaign=rss) |
 | Home secretary wants police to get more powers to restrict repeated protests | [阅读全文](https://www.bbc.com/news/articles/c24rmdngrrjo?at_medium=RSS&at_campaign=rss) |
 | As Gisèle Pelicot faces one of her rapists in court, what has changed in France? | [阅读全文](https://www.bbc.com/news/articles/cdx2d9lynk1o?at_medium=RSS&at_campaign=rss) |
 | The true extent of cyber attacks on UK business - and the weak spots that allow them to happen | [阅读全文](https://www.bbc.com/news/articles/c5ye8zj5l4jo?at_medium=RSS&at_campaign=rss) |
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump Sends California National Guard Troops to Portland, Ore. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPUHFqb3FUWi1NZ19ESVhrVDFWYVdGLWNDcmNyYmxUNldyME9tcEN2eEJMa0xvRGcxX1BqbmFYbVZfM2RET1NwRWhFM2Nva3hsZ1BrWk5jUUZxQmlZLUJ2U3E3UG54OEtvNmZMZ3F5dkNRTXFUcXp4dUZGZVEzWjhpc2w0SjJINzFYZjdjY0pvZkRWUQ?oc=5) |
-| Woman shot by Border Patrol is charged; Brighton Park residents say feds antagonized the community - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNajhmaUpPellhWGpwMHA0Qmt2V0Q4ME9wWFk5NTlfc3hZYWM1SEpZWHp0V3oya0JsVFVWNDF4WDE2U1o3eC1YMjV3ekdLNEhUSGdxWENOZHRWekVGZXY5c3pDc2k2c1hVaW1CeVZlc3BfWWU1SG1aVGU1dzFDQlRQTWZZVVNOcDdjcWhJWDRfM1ZHRFRyLU5nMm0yU0l6a2dyXzdSUVU0WnQ?oc=5) |
 | Trump pushing Israel and Hamas for Gaza deal within days - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTFBHbTNmV0JObVdmbm5ycjhQajE2QTJXN055T1FMU1FlaUVuWkVqMWh6eTVyclctdGJ1T3R4SGd3V1kwbk9lODJwU3RSUDNsVEVBWVRId2F2S3gwYTdUYWdmVkMyaFduVGYzWjRYR193eldzbllw?oc=5) |
+| Woman shot by Border Patrol is charged; Brighton Park residents say feds antagonized the community - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNajhmaUpPellhWGpwMHA0Qmt2V0Q4ME9wWFk5NTlfc3hZYWM1SEpZWHp0V3oya0JsVFVWNDF4WDE2U1o3eC1YMjV3ekdLNEhUSGdxWENOZHRWekVGZXY5c3pDc2k2c1hVaW1CeVZlc3BfWWU1SG1aVGU1dzFDQlRQTWZZVVNOcDdjcWhJWDRfM1ZHRFRyLU5nMm0yU0l6a2dyXzdSUVU0WnQ?oc=5) |
 | Hamas delegation heads to Egypt for hostage deal talks - The Jerusalem Post | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTFBhQ0tKXzFvU1hrLW5MQUhWOXBCbWNVdHIwSWltUjlXYkR3dUdzQmdIbDFZNUU1SHVXdXFxRGRBbHN0My1EUkNkV1UtMDZvR20wLUR3VlFRZ3hVZkxKSnNMSU1VRlNiWU9DU2FyUU93?oc=5) |
 | As Supreme Court returns, major tests ahead for Trump's presidential power - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOYlJmd3drYkRzWE5ibUNlc3hpV0VjTWlTS0kwVjNHbkg4UWhZVzk5OXp5d1czNlNfbWxxaGZQazdiemRNSWxWcDlnNXRuUFZTYVAxYTR0ZHUxeEI0b1Q4NUlaWHVDY0szVGU0aFhzQU40dnZ1MEdLNE01bG5GalJ2MGl2UU9WMlZFNmk2V2NfUFdPbndxVHFLbXZBdkFack03aEpEZmo4NHpvSzZkdUtJ0gG0AUFVX3lxTE5iZmVjRlc2TVFUWnQ1a0RvWHVCVnVQal8yRmJIUTUzOVhiN3dsWEE0Szd4MGVXSmVLQzVXdnl2Z1E2cEZJLVNVTHozdWM4dnZMRjVsdHlzcEQ2U2kteERPQi1odFBrR1p5cy12YzgwbkNqV3FsZFN4VEY0T1lyUzIwZDhPWjFrZEdaYk9ybmFZeWVhRDR4SEF6LWNyRTJHeXRtVEJqUWZ6SFVtTi1renR1TzRkUA?oc=5) |
 | Federal workers sue Education Department over partisan shutdown emails - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPOWV0M2NiS0FZcG9mT2UxeDgyamg4Mkk5LTFFb3NqQ3ViVkVJelJrR0ZnYTBJOHBjMl93elpIZENwZHhTMVBIeW1qWTdzZktuS21fZGd1ckRwRUZXaFBFSUtYTVVLbXg0T21GYmVEdHg1TnhLYzZubW9CQjloRngzb3FtOVVjeGZWdldPZS1GUndwdF82VmJMMS1CRWZMUkhGMUE?oc=5) |
