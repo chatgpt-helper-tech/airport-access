@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月07日 06:16:42（北京时间）**
+🕒 更新时间：**2025年10月07日 06:24:18（北京时间）**
 
 ---
 
@@ -24,10 +24,10 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Illinois sues the Trump administration over National Guard deployment to Chicago - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNaHVoNEhzQWFMNzE2NVBEOFZOTF9DWjRsSVlzdXQ2Q2lIWHJYQWcyRzVVbjkzWUN2ZW51aGFKZ183M3ZYLXBBcWJTbVJDWGFhQXB2TUQtSUUwS2MybkNmWFZlNlhFVUF4cEdPU0ZPOUFhY0dSQWpIVlNxZjZLcS1OR0xyMlgtbnRwTjlic0IySENRYVQxeFhLYXVjY1dJVkZNMkNEbHV0WksyeVkzWVRGTWJfbGwyZkJEOWR6TFhBaEtYVEhmMnVTdFdSOXpyQdIBVkFVX3lxTE1iY2Z3dG5xcmJWS3pfcG5oQkl2OVJpQzFTNURnSGw0UDZ6OTg3LWI2azI0VzBkZk10cWNzMURXaUdRMUsxMk1GRWVYMTF2V19zZ3ZNMjln?oc=5) |
+| MAGA calls for Trump to overrule judges on National Guard deployments - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPWkI3UmdwUUFlb1F6Nlo4dWJZT09WeWpibEtiNXF1OS1DRVBkNUwyWGFIcTFicUxST3c5WEU3cHVDaGJDbTlpcmFhdEpzUEdyZjd1MEtJY2RWWld2amcwVDZKSTk0MW9EWkJGT0tfWGlWeFNySWhlR0JMb1Vxck9ZQ3F5Yw?oc=5) |
 | Who is Bari Weiss? CBS News' new editor-in-chief is a vocal critic of legacy media - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQNGJXUkhOTFpua09QTHdDN0Q4NTdnTU9HVTFLbFZPak95WFoyYlhUTklhLThCWG81dlZCYlVYbE5tU1VBWEprcTV0ZmhLT1R5c3JCSEJLdWRqLWl5QzlpUjN5OVFOMlozSThEdkNlLTlQcTNPc3V6TmRPSkxkOTZBdg?oc=5) |
 | White House: Trump is not talking to Democrats - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPcG93dFFwUnlDZENFYzV1LU4zTUNndWJ6RkdQRHNqeFN3Y2kxSkZkamJlRkJFYXJfWVE4dmRwTEhOZ2FTWlBsM0kwcFZIZTRuTWJPM1ZqTC1MUWhUdTZ6cGtkUWZKRUtlQUF3aGxpWVVaVlZNZ2FJRTE2N1g5WG85T1RCaVROa0U?oc=5) |
 | More trouble for Emmanuel Macron as another French PM resigns - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFAxem8zeEpubWdyM0J5NW42S3VpeHZEMzBOWUNBS3QzeVJOSW9lMVMtRXZOekJLZGVrNjVZVEN3S0RYNjdOZTBucDNVMVlRNTVCSzhnT0pmLTZWZ9IBX0FVX3lxTE1wa0VpRFJVMWY0Sko0dFBDdXhWb1dqbzZYRW1wUlZvdWl0UWhXRzZEU1lkZHd2R1MwZ1dFbmFzck9vMng3U3c1SmtCMXdNNWM1UDBQSXJEeFBHQXg5QUlB?oc=5) |
-| Portland’s weekend of ICE protests: Tear gas, National Guard restraining orders and false claims of a city burning to the ground - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOY1F1X3FRTzlpc0hnNWUydkRfemlZeWtDS19hTTlQdjBFcW1FZllqTUhKTHFJWUY5Z00tUndvVUZncndpajc4RDhzNU5kN3dJYUFHR1VmV3preE91U25VYnRNNjN3NmJtd1ZsYWFpSjdqVXZHX1Y0ZkNIQzZ5NFdhdTh4N0xreU5GdjFXRjNqSWFYaXowVHRiRS0zbHhmZFR5WVRfMTluc1Y3T1RkbHRDczR3?oc=5) |
 | Supreme Court rejects appeal from Epstein accomplice Ghislaine Maxwell - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOdVk4dHRyWUFGNTdUdGRrNzlXX25WUnY5SmpscVhQMXJxVFB4TzNnck1BNTNVYnlvSklBdVNPREhYRUc5am91bzBKSHExSVFkcGg4V1RZWFJkNFh1NUVLVV85SEg4ZV9tNWlGUjNwaGpReG45N1dBN3Q2MWdjVnJFeGJ2NFo1T0NXVmY2VU1ZTQ?oc=5) |
 | US shutdown enters second week as Senate votes again on funding bill - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOS3g3dDJwc0xkWFgwYXdGVzV5NFZnYy1nOTBKTngtcTI1MjJScDNxRFZ4ZEczMjUzNjdUa0dfMlJjZGlhOXZKcTA4eEJQeTlfdEZpWnJEaEh2UmdDZ3VscUhjVERzNXlxSWV0VExaWXdVODZaVS02bWRERGlrZktFTmgxX1g?oc=5) |
 | Wesley Hunt Enters Texas G.O.P. Senate Race, Complicating Path for Cornyn - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNaFdSb1d6cnFucVJkazlZYlpfQU9EeE0tVnNIT3NmTVpwOXJIX214MmVBZmFOR0Vyc3RnellVQWJKdVJESVdFbThuV3c0SEVSWkNfN1ZwbEtVUVlIeWl2R0o0SThJeWR2ZFl5SEF5bVZaczZXYkw2ZFJSV1MwMkhtUm8zZVNPM18wSzdrekxiT2tWaXRQ?oc=5) |
