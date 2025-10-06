@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月07日 04:17:06（北京时间）**
+🕒 更新时间：**2025年10月07日 04:25:08（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | US Supreme Court rejects Ghislaine Maxwell appeal - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE8zSDU3ZUdndDhHa3dlLXViMVJZVHdjM1ptVnE3eUZlZUxRU2ZNSG5aSC12X0luSjY3TEdzazJBRXVPVTNKbjZxcGVIaVo0aU1oM1JYdlNnMXVUZ9IBX0FVX3lxTFB5dkU4R1U1TC1GQU85bXJSUDZHdEk5Qm5HUl96Q19xSWhJWHhTaUNMQzZvanNCQ2VISzVvSjhXMXEzcklQNkdsLThkRDlDZ1JnVDdSeUptazdfMFlOVUd3?oc=5) |
 | The federal government is shut down. Here's what that means across the country - NPR | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTFBTajZpVkdidmdFbmt2eE9tVUhEZVRsVUpvSmZSeFdMdGdCbDJKeHlTTDNpWk9nbjNKemVVTFphRC1ITGdzMzAwTi1CRE9VQW9MVGNZYW5LNDRNZ2FiYldlMkMtcVRWRExEQWZGOTl3?oc=5) |
 | France’s new prime minister resigns hours after naming government, plunging France further into political chaos - PBS | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxQUG85ZzhST2ZHX2JFMk9HVXVCRWl6Vk5HZzRhaGdzbXJfM1VWa2NLNW9aYm5mbml2RGlVZjNCNlFtVWVZcVJlM0ZsbEE0cGJrazgzYWdHVnRDSXJoOUJzb0NuNlhENjVidXl3aS1ENnAtWmUyLTFCbVlaMXhXYjVwY0EwbF9WZFdGM1hURUFETHJOc1NuTlAzNHFSNmI5QXVWR1FNU0g1VmJSdnF6MVV1Q0cyeTdsc3M4dktoeVhrNmxMYmUyWi1HWC1qcWJiaDVibUI0cDMtajNnT01p0gHiAUFVX3lxTE45QjhWVFFrVFJOYWVfTkc4d1RGNnJzYzZ5ZFY0OWEtRF9RbklVdkRydHU1U1VjS1VTQ05ZUF9WMWZfWlZzVHpCdDR4SUxkNVhZQVV4amQ5S0V2UVRtbUFFbHdESEhWTDZ6Q1BEaUFwRGU1V2FKeUNieVNCNEQ0Yjc2aVp4UEVSeUxHRGU1TzJWb19RVG00QVBkMUJ6U3JmeHRWR3RzTlFZcFV6RVBQYloycUQ4NExhOWNHeVFxdS1yaHprLV81aHBYWms1MnMyWDVOQV9keHlHMEgtcFF4YXNhMUE?oc=5) |
-| Kaitlan Collins Draws Sharp Rebuke From Karoline Leavitt in Testy Exchange Over Portland National Guard Deployment - Yahoo | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOUHdOQWlnaXlJejRIN0VZbHUxTWFvRjAtRk96ZndEWHJiN1FBeWVTeEFLb1Rma0d1OUliWTY5WXNJajU3eC1XT2E3RmxNS3NBQWhGV1M0ZFJ2MEdXcHVidTYwM0V6Y0doM0hTSTU0R19PZkdVZGJqbkFPYUQ4MWJhdXFRVjhOVU5DSWxyODFB?oc=5) |
-| Mike Johnson rejects Hakeem Jeffries' shutdown debate demand - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQRnJWUnpvTWc1QVdCdlRkZFR3NENOVEwtZS1TMDhyU21wSzNaUXhUSWF0V0NJUFNxeGpINkVVS3lpLVlHSkl3enhtY1JlUE9VTzZZUmo1aC1XU2JyTnMzMTE5amtWbUFkMkNiUjlSYTV4dm1kRUNSNDQ3STZWZWRNZ1Q4Zw?oc=5) |
-| A tornado in North Dakota was first with EF5 classification in a dozen years, weather service says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQdFpqWFNKU0VaRzhZZTVlLXYtaXR6V0ZSRzJtdEdibEtTbXM2Vk93TEdNM044ek81YWdKcGJoTTR2TnNDMkdicU11VFBkRGJxR0Nmc1Y4UmNaZURvWkN0SGdqOUNSNUZPNElEX1NKUUtBbk5MVVMzTlhveHpVdVlVQVdGVnh0dktVd3A3RldXN2VKV3VlVDl2S3otQW5Tdw?oc=5) |
-| Social Security Administrator Frank Bisignano is named to the newly created position of IRS CEO - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxNOFhZM25lQUVubjNPemxZZmlfTWE2SXZiVktkOWVvTEhVUnlheE03MndZVFIwMW95TlV1bnBtS3kyWWVSMzBxYzlhRTRrQmFQVi1EMnkwNndxMGtielRjaVBYNC16ZVlremlUYVFuMnozUGRUTWR2cUF5Q0tfdzkwVmtlZTQ5ckQxckVDcVZSYkVzalVMZDl0UktUd0NSeVJjdHFvbVZMd0tQblZ6eExjbzZzcHRZaWNhblZOZnU1WXpJejNtRHVfbGkzTk83VFdHQWJ1T0x4bHUweEZUVlVz?oc=5) |
+| EF5 tornado that killed 3 in North Dakota was the nation’s first in 12 years - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQdFpqWFNKU0VaRzhZZTVlLXYtaXR6V0ZSRzJtdEdibEtTbXM2Vk93TEdNM044ek81YWdKcGJoTTR2TnNDMkdicU11VFBkRGJxR0Nmc1Y4UmNaZURvWkN0SGdqOUNSNUZPNElEX1NKUUtBbk5MVVMzTlhveHpVdVlVQVdGVnh0dktVd3A3RldXN2VKV3VlVDl2S3otQW5Tdw?oc=5) |
+| Brazil’s president asks US to scrap tariffs in ‘friendly’ call with Trump - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPMGRjN2hFQlhVZHRuMWowQ19SX2tNMFVaX1lZUWVSZ1ZkVGhvdmpBZmRGUlFqLWlIWkR1QzR3NV9CRVFGRlJpYkF2blJVSG1YbkhRMEkzalFyTWpZbkozNzB6SDVmWGJ3elgzdnJIZi1kVEcxN3o3eWllZlJxZldSbFJ0eGlJWlZiWWx3UDRZNEhCOEFkTVE?oc=5) |
+| Trump Live Updates: Democrats and Republicans Trade Barbs Over Government Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE9KNUtpbm9CZmU3dkRYSlB3ZTVLRDM1blhXN3BMLTlFTkhCVEtnNXdteTBKRVZ1QUswZDZSc2hVYVpXTnRuWW5HcjhfbEZqVWJMX1JxT3V2U1hTdUt6MVBaNTQ3UQ?oc=5) |
+| Trump, tariffs and trans rights: The Supreme Court gears up for a new term - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPVEpBWDJPcGpPNEZCVVUtR3RlbDU5NXNGR2NYZDhPcWVPQ3F1TGgxYTVoWU9PYUEtNFVjNExJdzYzZVZoODgxN2p1SWdsRmRmVkxRNVVhVUlMQXNsSTR6Vm1XdTEzVmUxNEpycEhWUUV0eEViOU92aDcyRXBVYU1fekQ0MGQwTnkyREo4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
