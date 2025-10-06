@@ -12,7 +12,7 @@ description: 机场推荐,实测2025年最稳定科学上网工具，评测 Clas
 内容包含机场推荐、流量套餐对比、科学上网教程、配置指南与节点导入方式，  
 无论你是初次科学上网、跨境办公、海外留学还是流媒体重度用户，都能在此找到最合适的机场解决方案。
 
-> 最近更新: 2025年9月29日
+> 最近更新: 2025年10月6日
 
 
 ---
@@ -214,7 +214,7 @@ description: 机场推荐,实测2025年最稳定科学上网工具，评测 Clas
 
 ### 💎 中端主力机场推荐（主流流媒体 + AI工具 + 高性价比）
 
-#### 1. [**小蜜蜂机场**｜IEPL专线 · 全场85折](https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A)
+#### 1. [**小蜜蜂机场**｜IEPL专线 · 国庆期间全场8折](https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A)
 
 - ✅ **IEPL 全专线节点**，无倍率限制，带宽直达
 - ✅ **原生IP**，支持 Netflix / Disney+ / HBO / TikTok 等流媒体 & AI工具
@@ -222,7 +222,7 @@ description: 机场推荐,实测2025年最稳定科学上网工具，评测 Clas
 - ✅ 提供美区 ID，**一键下载小火箭 Shadowrocket**（iOS用户刚需）
 - ✅ 小包年付低至 8 元/月，稳定是最大特色
 
-🎁 专属优惠码：`xmfwww85`（全场 85 折）
+🎁 专属优惠码：`100188`（国庆全场 8 折/ 截止10月31日）
 
 📊 [👉 查看小蜜蜂机场详细测评：节点实测、配置教程、套餐介绍](https://gptvpnhelper.com/airport-access/xmf/)
 
@@ -368,7 +368,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 ---
 
 <a id="xiaomifeng"></a>
-### 2. <a href="https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A" target="_blank" style="color:#1a73e8;text-decoration:underline;">🐝小蜜蜂机场- 深港IEPL专线 — 85折优惠</a>
+### 2. <a href="https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A" target="_blank" style="color:#1a73e8;text-decoration:underline;">🐝小蜜蜂机场- 深港IEPL专线 — 8折优惠</a>
 
 **综合评分：9.6 / 10**  
 **关键词标签**：全IEPL专线 | 不限速 | 特色年付小包低至8元每月 | 稳定性好
@@ -406,7 +406,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 
 > ✅ 所有套餐均为 **全IEPL专线**，不限速、不限设备数，支持 Netflix、Disney+、HBO、Tiktok、ChatGPT、Copilot、Midjourney 等  
 > ✅ 提供美区 ID 下载小火箭，iOS 用户福音  
-> 🎁 专属优惠码：`xmfwww85`，全场 85 折优惠
+> 🎁 专属优惠码：`100188`，全场 8 折优惠 ,截止10月31日
 ---
 
 **🎯 推荐人群**
@@ -434,7 +434,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
   </a>
 </div>
 
-🎁 **支付时填写85折专属优惠码：xmfwww85**,⚠️⚠️⚠️大黄蜂特惠年付版价为:8元/月,不享受优惠码
+🎁 **支付时填写8折专属优惠码：100188**,⚠️⚠️⚠️大黄蜂特惠年付版价为:8元/月,不享受优惠码
 - **特别提示**：年付以上商店里显示的已经是折扣后的价格了，配合优惠码购买3年付即可享受42折优惠
 
 --- 
