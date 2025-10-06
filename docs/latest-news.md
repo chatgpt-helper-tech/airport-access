@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 18:09:35（北京时间）**
+🕒 更新时间：**2025年10月06日 18:17:12（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | The true cost of cyber attacks - and the business weak spots that allow them to happen | [阅读全文](https://www.bbc.com/news/articles/c5ye8zj5l4jo?at_medium=RSS&at_campaign=rss) |
 | EastEnders' Kellie Bright on the challenges of being parent of an austistic child | [阅读全文](https://www.bbc.com/news/articles/c0jqy8pn275o?at_medium=RSS&at_campaign=rss) |
 | Australian prosecutors appeal mushroom murderer's 'inadequate' sentence | [阅读全文](https://www.bbc.com/news/articles/c07vlzn587lo?at_medium=RSS&at_campaign=rss) |
-| Does your relationship have a swag gap, and is that always a bad thing? | [阅读全文](https://www.bbc.com/news/articles/cr4qp4nlppko?at_medium=RSS&at_campaign=rss) |
+| When fashion becomes friction: the relationship 'swag gap' debate | [阅读全文](https://www.bbc.com/news/articles/cr4qp4nlppko?at_medium=RSS&at_campaign=rss) |
 | Why time matters for Tory MPs deciding Kemi Badenoch's future | [阅读全文](https://www.bbc.com/news/articles/cn0rnj6504yo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
