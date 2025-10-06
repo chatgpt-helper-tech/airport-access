@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 09:01:27（北京时间）**
+🕒 更新时间：**2025年10月06日 09:08:30（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trump pushing Israel and Hamas for Gaza deal within days - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTFBHbTNmV0JObVdmbm5ycjhQajE2QTJXN055T1FMU1FlaUVuWkVqMWh6eTVyclctdGJ1T3R4SGd3V1kwbk9lODJwU3RSUDNsVEVBWVRId2F2S3gwYTdUYWdmVkMyaFduVGYzWjRYR193eldzbllw?oc=5) |
 | 2 killed, 12 injured, as gunfire erupts on the streets of Alabama's state capital - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOTDg3c2ctcU14QnVvcFNiWEtzVWhfSFAza2wyd0ZlZVl3LVNxWXM5M0ladFZ3RzFCb2RWd0F2cmNWUmlVcE1OWGctN252T2Rxc0JrdERTQWxXekppVXo5Wmhvel9iRGQ1dGZ4ZnFHbWhha3ZoWlVlaFZlLTVPU1ZMaTF0Y1RZYzZZTXFsUkRiZXByVkRTd2NveFVVdUnSAaIBQVVfeXFMUERxYlEzbjZzVzVSX09CTFNHWmZ2WE9HMmd4VW14SjlWUm83eXlxSXE2eXprTll3ejZfZGVjYzducHlLWHFZeUpOdFhwODZ6cDBHLWM2TDhvTm96dlY2VldnN1ZkYllQU3BydzRVcC1HdWVxMlpQUXhaa3JIM0o3dlptaXdIX181ckp4Tkd0UTFhYTRnYWNoOUxrME9FT01SVktR?oc=5) |
 | Using helicopters and chemical agents, immigration agents become increasingly aggressive in Chicago - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQYmtIeGI5c2NBTWE1U3BJdDFUV1JicEtyVm9PSmpuSHVYNksyNjcxc0psRE9WR0txSmhOSHhpRzRhdkVnLWRNV3ZkdFV6VDdBMU1RVDhQVUNqLU80SkhabjlhS1hOWUoxeUtyQWZSRzZNOHlnTUtxdjBXWV9LcFBDcm9mRWJLRWtjT01ySHNLS1dQMDlHYTNqaktoYUdPNExuNWJaWDJUTlF4c1pDcV92MUp1Q3AxR1E?oc=5) |
-| Trump federalizes the National Guard in Chicago, while troops arrive in Oregon - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOd25Kd2ZobGdOZ1d5bTJCbDlFQlRsbGxSb2NXMGRIWDRucW1xMHZnYmxtZVNyZnVCX0Z5bS03U2tmRFFNUGpDSzJwQ2tfV0hQZEFwSHJLQ1Y5SktsbWpHUDdJalRFb0hsdHE2d0Z2TkJDaklhMmgtc1ExNXRtZnRTOUpIVUVqYWYzYmZjWExVZGJrTG1XdmVqOS1DTGxaTHNxOVZBNEpxb3V6MDQ?oc=5) |
 | Josh Shapiro is dominating the race for governor of … New Jersey - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQSC1Bb0lNRXp0cS1EWnVtLUczbHRTUGhkQ0Zib2gxU2tRR0NER2pCWjBQaHFjd05vbFMtNlJrZkkwY2Y1dFo4dV81T2U0RjlqcmkyeUdzRzl0aENFRDVJa09hVERfX1hGU1FqVXJVb3o1SVJsS2piUFJDT1BRbXRVZC1FWkd0ZXJDUkE?oc=5) |
-| DC Police arrest person outside St. Matthew’s Cathedral ahead of Red Mass - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPS2RyY1RQbzRSVTlJMXJUY29kQWJhRkRDaHk2R194T193bnZLaWtheV9rVUdrSkFJWTZXM2YyN25fV2hTSDBXeHBKNDZvWGhXTHRacU9qLU5hWkswbC1xLVZlM1g0YllSR2lWb21iRHVNdm1xZk5sTjY3aWgtTy12QmF3MWJ3YjBodXhidDZUcnpZUdIBlwFBVV95cUxNUXQwVExZcjdNMDVxZnZaUmdmWTdxbnZrTTU5UlkxekRvaXFYWl9NNGdEZE5jdkRfdHIyaF9sMGlHLXJuS1RWSnlHQUtFNXpybnc0SVNjOXVpcjBwa0RjWnFXZjdpblBjSnhkallPZEtlMUlBdkNjcGh2NmVnT0FzX05NQTBweV85OFpabEhjNUVGLVJ3WUlv?oc=5) |
+| Man arrested and charged with possessing explosives ahead of church service marking start of Supreme Court term - CNN | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNaFE1cDNqekZVX2Y2OHNBQ2hPZHBGY0NTSDRfX1ltX3RLR0Ffdlc4OHdHWHZWYjVZeEItUEgyT1BPYUxSc2QtQVc5NkJwUWhIdGtFMm5KNktkOEVRZmtCSXRqVm41ZHVyYVFJLXVfSW9KbzNzSmwyRVFSSDgtMGVtdWlUTXkwTUIwOVJaeXhEYThWUzU3TnZCU2I4RzJKdjNJUTZEb3VB?oc=5) |
+| White House: Mass layoffs will start if shutdown talks 'going nowhere' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOdVdrTlJRT0ZjVk42NEtlTWdVSmk0WV9JMnFKbVBEMTdvRkV0bnE3SHhNZUtOb1Z5Tl9qcFFzOUpVVUFKQk0wMEhMUDRhM2I2U0owaXBWMVdYNTBobFkySWloT2o2akc4dnNoWk1BZmJ1QlFuNENMamd2MW5CM3lfaDhWbndfRGJwenZjZnFSZGJqdG9XeVNOamdIMXk5UUxvMV80VEg1QWZERHNtYkZQcl9hRjZhdFZzdW9UWHRxdDY?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
