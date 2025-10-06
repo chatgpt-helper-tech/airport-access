@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 13:16:29（北京时间）**
+🕒 更新时间：**2025年10月06日 13:25:14（北京时间）**
 
 ---
 
@@ -14,8 +14,8 @@
 | The true extent of cyber attacks on UK business - and the weak spots that allow them to happen | [阅读全文](https://www.bbc.com/news/articles/c5ye8zj5l4jo?at_medium=RSS&at_campaign=rss) |
 | Jaguar Land Rover to restart some production after cyber-attack | [阅读全文](https://www.bbc.com/news/articles/ckge0ex5g27o?at_medium=RSS&at_campaign=rss) |
 | Home secretary wants police to get more powers to restrict repeated protests | [阅读全文](https://www.bbc.com/news/articles/c24rmdngrrjo?at_medium=RSS&at_campaign=rss) |
-| Survivor describes moment 'monster' attacked synagogue | [阅读全文](https://www.bbc.com/news/articles/cly05lekyrvo?at_medium=RSS&at_campaign=rss) |
 | Eastenders' Kellie Bright on the challenges of being a Send parent | [阅读全文](https://www.bbc.com/news/articles/c0jqy8pn275o?at_medium=RSS&at_campaign=rss) |
+| Buyers could save hundreds in new house buying shakeup | [阅读全文](https://www.bbc.com/news/articles/cy0v7zwp0dlo?at_medium=RSS&at_campaign=rss) |
 | Rangers sack head coach Russell Martin after 17 games | [阅读全文](https://www.bbc.com/sport/football/articles/c4gwrplwyz8o?at_medium=RSS&at_campaign=rss) |
 | Watch: Will President Trump get a Nobel Peace Prize? | [阅读全文](https://www.bbc.com/news/videos/cj6xwz5x8exo?at_medium=RSS&at_campaign=rss) |
 
