@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 13:25:14（北京时间）**
+🕒 更新时间：**2025年10月06日 13:32:04（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Judge Again Blocks Guard Deployment as Trump Expands His Targets - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPUHFqb3FUWi1NZ19ESVhrVDFWYVdGLWNDcmNyYmxUNldyME9tcEN2eEJMa0xvRGcxX1BqbmFYbVZfM2RET1NwRWhFM2Nva3hsZ1BrWk5jUUZxQmlZLUJ2U3E3UG54OEtvNmZMZ3F5dkNRTXFUcXp4dUZGZVEzWjhpc2w0SjJINzFYZjdjY0pvZkRWUQ?oc=5) |
-| Trump pushing Israel and Hamas for Gaza deal within days - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTFBHbTNmV0JObVdmbm5ycjhQajE2QTJXN055T1FMU1FlaUVuWkVqMWh6eTVyclctdGJ1T3R4SGd3V1kwbk9lODJwU3RSUDNsVEVBWVRId2F2S3gwYTdUYWdmVkMyaFduVGYzWjRYR193eldzbllw?oc=5) |
+| How Trump cornered Netanyahu into signing up for peace - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5EaFpFLTdkSkw4aUk1MS1rUHBrQzg4U2I5RTRFOS12eXpOM3dvMllCSWtSV19BUi1mcHN4SHEzMFF5T0Jrb2JZb0g4aTQ5aTNNSUxRVkY2VVJ0Y0FSWDltWnVYZEpGV0ZRdnh1SVFnOGw?oc=5) |
 | Hamas delegation heads to Egypt for hostage deal talks - The Jerusalem Post | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTFBhQ0tKXzFvU1hrLW5MQUhWOXBCbWNVdHIwSWltUjlXYkR3dUdzQmdIbDFZNUU1SHVXdXFxRGRBbHN0My1EUkNkV1UtMDZvR20wLUR3VlFRZ3hVZkxKSnNMSU1VRlNiWU9DU2FyUU93?oc=5) |
 | Federal workers sue Education Department over partisan shutdown emails - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPOWV0M2NiS0FZcG9mT2UxeDgyamg4Mkk5LTFFb3NqQ3ViVkVJelJrR0ZnYTBJOHBjMl93elpIZENwZHhTMVBIeW1qWTdzZktuS21fZGd1ckRwRUZXaFBFSUtYTVVLbXg0T21GYmVEdHg1TnhLYzZubW9CQjloRngzb3FtOVVjeGZWdldPZS1GUndwdF82VmJMMS1CRWZMUkhGMUE?oc=5) |
 | Trump to deploy Texas National Guard troops to Illinois, Pritzker says - NBC 5 Chicago | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxNNi1YWm8zV3M3RXc3MFZhNzhud2M1LXZ6N0RwRVhfVlFmMHFyemxhMU5GX05lQ2d3UEZyd2ttT0dydjRla2JpYUF4X3hqMzIwbU9oQ2c4M1RhM3RpVnA0RHJ0VjgxV1Zaal9SZ0stVmFyMFVtSXpGaVczYjhRSC1yWncwNXJUMkl1aWVwUURRVlktRUUxSG5YajktNTdpU1FkOHRGM3JkdGRSYlNsYW1ZTzNoVUtMb0VzUGFpWDBIcDRJUWRYSEYzeXdlUkHSAdQBQVVfeXFMUEFIcHBqTmxhR25xdzc2RElPRklOVmJ0WDExWnVZUnYycHFSVjFqdGY1U3c2MVRLeExRX2JTMDl5WE1mR0Z1N0djTC1GNUowWjVTZU9IeGNYNi1OekhLWWVRQ0Q2ckVLMmh6VUtRVDdrRW13TVVJT0RpeWE3MjV2cmRFOHhBbjVGclZzbkZVLWVFMUVtTTdQMzhYRVZ4WGtQVzJkTko4QnQ1dUh4eEJScXZaSnlnWW5XbFpuNEZLaWFmLWU0WjlBTGJyZHZsSzI5UGNUNzg?oc=5) |
