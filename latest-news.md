@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 16:48:48（北京时间）**
+🕒 更新时间：**2025年10月06日 16:56:34（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | How Trump cornered Netanyahu into signing up for peace - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5EaFpFLTdkSkw4aUk1MS1rUHBrQzg4U2I5RTRFOS12eXpOM3dvMllCSWtSV19BUi1mcHN4SHEzMFF5T0Jrb2JZb0g4aTQ5aTNNSUxRVkY2VVJ0Y0FSWDltWnVYZEpGV0ZRdnh1SVFnOGw?oc=5) |
 | Greg Abbott authorizes Trump to deploy Texas National Guard to other states to protect federal officials - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQWGNTMmhWUFA4MUljSndycUxfVXRRdDhJUkx3X1puOGpwQWhhTS1QYnVLZzFMaW9VS2ZRSkZrbWdDbU82LUJ2RVdnaXhEVDI2dWJuMVJoekM4MGN5N05Sd2UzNDVyMS1aSGtPWXV1RDRFNUJDR0xlMHRLeW5uamtMNkFzM1hYQQ?oc=5) |
 | Gisèle Pelicot faces one of her rapists in court again - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9aaHBwZEhHRC1GamgxLTI5aGc3N2ZwelpzUU9tVkhublZHS3M0S0EtN2xLMGxySUpyMENwS3FwSnQ4V3FVNndPYUpjTmNmWndfd19RbGliVXlCUdIBX0FVX3lxTFBzWmxqa1VXcUU4Q0N4Y19odTNrWThpWUktcXkyUXo2TlRsOVAzRVBBeWNSbjFPOE8tNHRsQnBHSHFNVjZjVHZoWEZqM0d6Wk53bVN3cTdCRTNmaEY1aExB?oc=5) |
-| How China waged an infowar against U.S. interests in the Philippines - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOZUZ5M1NTSXNpamgtUFZuaklobk5vcEplaHMta3F5SWVqc2F4ZmZBV1RFNWdVZ1dVQlV1ZzZfNWt5T0drYjlUSUVqaTNVdGoxcDRKNDNJZjNGN2kxYUV3dUNBSlZkUVg2ZGFIU1BMWXlMbkw5OEZ2SHVJeFh4ZGZ4cUxLdU5NQXFzOUlxdUU3N3ZHRDV5YnhQUHphV0Q2MmkwaTB4N0d4clkwR0VUR0xHc19scTQ?oc=5) |
+| Federal workers sue Education Department over partisan shutdown emails - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPOWV0M2NiS0FZcG9mT2UxeDgyamg4Mkk5LTFFb3NqQ3ViVkVJelJrR0ZnYTBJOHBjMl93elpIZENwZHhTMVBIeW1qWTdzZktuS21fZGd1ckRwRUZXaFBFSUtYTVVLbXg0T21GYmVEdHg1TnhLYzZubW9CQjloRngzb3FtOVVjeGZWdldPZS1GUndwdF82VmJMMS1CRWZMUkhGMUE?oc=5) |
 | Instructor dies in Nashville skydiving incident; 2nd skydiver rescued from tree - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQaXlWWFVIM2ZhM1VoSm9nQlJRVFVUYWVNRGEtOEpUeUZaMFhwWEMyN21hZHZWWUFtcXByWWVFMFVfQ0Q0MGtlTzR3OVdzZFhNR09adEo2d0lYSUUybi1nLThER3MtT3pDdmExblNvdm5YazJVMThtSktZdDRrX3lvS2pmSk5XVzRETHFOWlMxUWpsc0ZIS05YVmtva2pHWmlLVk4xTjVzMjRXZE1fNVk3ZnJPdmZtWXRzUEHSAVZBVV95cUxOWG45WW1RcGVpYlcxaTN5SmVmbVpYeU90Yi1TX0ZNVkV0MkIwbHhTWlhXMkFLQXp6VXlteTB5X3JDU3pmczR2eWwzbTZZUGdzUGw3aWF3Zw?oc=5) |
-| Trump appears to reveal another strike on alleged cartel drug boat - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNY2pYbXhHdXBOYndCcnAzbVlxUDR2OU1xOGkxSExYWHJMcVJyXzZYMmRjaHdpRW5lbUZSaUpRQ29MMWNoS0JtVEkwTFpLdklidEd0S0tOM2xHLWFrcTdDUGdxYnZUanRvc2JxcDRxVEtyLVJFbFd5Mjg4Zmo3SDlJZzg0UzRZMzFNaG9oT3JvdW82RWIwVy10Nnk5NGt6ME1NZS1zSHpR0gGrAUFVX3lxTE83VGVwNF9sRktLNVM0dDlHMTdYOEVwWEo3VDF0U1RDbWJlZzIyNE5sSTJHRXhnUHVOTUZjZlVCOVpYQXBaYXRuem5BeGpSMU12dXhHamJacWN1TzVtNk0xOXlyZXRxSTZtR2NuUlBGd2Z4b1o3MUZkRGlQbmsycWszTHVYM3pfQ3h3T0dOZEJna1l3cVhwdVFsWl9BUHJMNXBqeUYyclFBRHZpTQ?oc=5) |
 | White House: Mass layoffs will start if shutdown talks 'going nowhere' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOdVdrTlJRT0ZjVk42NEtlTWdVSmk0WV9JMnFKbVBEMTdvRkV0bnE3SHhNZUtOb1Z5Tl9qcFFzOUpVVUFKQk0wMEhMUDRhM2I2U0owaXBWMVdYNTBobFkySWloT2o2akc4dnNoWk1BZmJ1QlFuNENMamd2MW5CM3lfaDhWbndfRGJwenZjZnFSZGJqdG9XeVNOamdIMXk5UUxvMV80VEg1QWZERHNtYkZQcl9hRjZhdFZzdW9UWHRxdDY?oc=5) |
 | After military-style raid on South Shore apartment, Congress members rally around residents - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOTUdiUnVfb1gtcUNlc0VYVHVuOWtYZjMwdjdfYkw1NzJxS3YwZ1hSMTFFUnBUUlUteVRrbkk2R0xmSjMtWkZJa0x5S1Q1a2RQM1RudXA4eFkydXlkX3hPZzlnc2xoQS1QR2c0ZE9ZZHcybnRJcG9jNlpjMHJna2hmTHF5U19qaklUTGxqQUd0RUZSQldwdGV0UTRXbW4wNFgxc2huOVM0U2g?oc=5) |
+| Photos: Trump marks Navy's 250th anniversary during government shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOaHhFMUM4bWlwZmluQ09lU1NTRlpRQjZJSEhpSk9hRS0zTENwck5Rd0EtWlBhYlhVeTBIT2xwdzYzQzlhRXZ5b0ZVQW9nWHBxRHZmeEVyUUpxd1FBY0p1MGR1MW4wdXpZYURIVjByNzUyOEdYYUZoUFd0OEY2Y29lY014NGQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
