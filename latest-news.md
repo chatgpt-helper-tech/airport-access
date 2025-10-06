@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 14:49:30（北京时间）**
+🕒 更新时间：**2025年10月06日 14:57:09（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | Conservatives to pledge £5,000 tax rebate for young homebuyers | [阅读全文](https://www.bbc.com/news/articles/c4gzv9j78dyo?at_medium=RSS&at_campaign=rss) |
 | Eastenders' Kellie Bright on the challenges of being a Send parent | [阅读全文](https://www.bbc.com/news/articles/c0jqy8pn275o?at_medium=RSS&at_campaign=rss) |
 | The true extent of cyber attacks on UK business - and the weak spots that allow them to happen | [阅读全文](https://www.bbc.com/news/articles/c5ye8zj5l4jo?at_medium=RSS&at_campaign=rss) |
-| Housebuying reform plan aims to cut costs and time | [阅读全文](https://www.bbc.com/news/articles/cy0v7zwp0dlo?at_medium=RSS&at_campaign=rss) |
+| Housebuying shake-up plan aims to cut costs and time | [阅读全文](https://www.bbc.com/news/articles/cy0v7zwp0dlo?at_medium=RSS&at_campaign=rss) |
 | As Gisèle Pelicot faces one of her rapists in court, what has changed in France? | [阅读全文](https://www.bbc.com/news/articles/cdx2d9lynk1o?at_medium=RSS&at_campaign=rss) |
 | Chris Mason: Why protests have started a debate over 'Britishness' | [阅读全文](https://www.bbc.com/news/articles/c7840dv7n4po?at_medium=RSS&at_campaign=rss) |
 | Apple and Samsung users could be due share of £480m payout | [阅读全文](https://www.bbc.com/news/articles/cn0rn7rwk24o?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | Trump appears to reveal another strike on alleged cartel drug boat - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNY2pYbXhHdXBOYndCcnAzbVlxUDR2OU1xOGkxSExYWHJMcVJyXzZYMmRjaHdpRW5lbUZSaUpRQ29MMWNoS0JtVEkwTFpLdklidEd0S0tOM2xHLWFrcTdDUGdxYnZUanRvc2JxcDRxVEtyLVJFbFd5Mjg4Zmo3SDlJZzg0UzRZMzFNaG9oT3JvdW82RWIwVy10Nnk5NGt6ME1NZS1zSHpR0gGrAUFVX3lxTE83VGVwNF9sRktLNVM0dDlHMTdYOEVwWEo3VDF0U1RDbWJlZzIyNE5sSTJHRXhnUHVOTUZjZlVCOVpYQXBaYXRuem5BeGpSMU12dXhHamJacWN1TzVtNk0xOXlyZXRxSTZtR2NuUlBGd2Z4b1o3MUZkRGlQbmsycWszTHVYM3pfQ3h3T0dOZEJna1l3cVhwdVFsWl9BUHJMNXBqeUYyclFBRHZpTQ?oc=5) |
 | Montgomery mass shooting kills teen and woman; 12 others injured: ‘This is not who we are’ - AL.com | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNbEIzc2tqQnF0WXpQM205V3J6THJENXhKQ240dWVydGNEMWZCbFNiZFhmZ2NRb1RlQ0F1UGg1bS04eWFHWktFUGgyclNySTJmdHJ3d0N3YWg4Z0hpbHlXcFR1UDhEMUlGaFJSbzhwcFFCdXVRMXRWQzFRUUd4eEJDOUMxc09ObkdIbXFxS3hfZGlWWmYtNy1R0gGrAUFVX3lxTE82S193UnhqZXBCTFlkVzZ5NVBBRldHWVpkeElFdENtV3ljR0JxM2Z0N2kyWkFTWmRXN2FIXzkyRHcyNW8tdmtZUDEtQ0FYRWl3b3ZwYXNrY1lmd2tNcnlLLXBLQ2pjbEJPeUlCNWFqSWhSNGhnMExFVHZqSGRCT3RrQnNUaFhnZkxtQjJUNlhORk5lZ2t4RmtWODFWUnBIUkt2YXZSNUhNSmxFRQ?oc=5) |
 | Instructor dies in Nashville skydiving incident; 2nd skydiver rescued from tree - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQaXlWWFVIM2ZhM1VoSm9nQlJRVFVUYWVNRGEtOEpUeUZaMFhwWEMyN21hZHZWWUFtcXByWWVFMFVfQ0Q0MGtlTzR3OVdzZFhNR09adEo2d0lYSUUybi1nLThER3MtT3pDdmExblNvdm5YazJVMThtSktZdDRrX3lvS2pmSk5XVzRETHFOWlMxUWpsc0ZIS05YVmtva2pHWmlLVk4xTjVzMjRXZE1fNVk3ZnJPdmZtWXRzUEHSAVZBVV95cUxOWG45WW1RcGVpYlcxaTN5SmVmbVpYeU90Yi1TX0ZNVkV0MkIwbHhTWlhXMkFLQXp6VXlteTB5X3JDU3pmczR2eWwzbTZZUGdzUGw3aWF3Zw?oc=5) |
-| Transcript: Secretary of State Marco Rubio on "Face the Nation with Margaret Brennan," Oct. 5, 2025 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNOGJycHVFdGFsOFExLTdDbXBCTElRaHNWRVlzWThBY29Ub0pUbkVJSVRzMk1QRnVLRk5ualNzdy04U1RpYVFJWVNaX3F1SzBWejZZU05yUy1jRXlQcG4xeU53a2cwUVp3cldFdkhONVFUTjNaOF9zM2RqdFo3UXVQQ2FLUi1Dc09OR3hpZFMxQ3hXdk9KSHhFdnlTajBoSnPSAaQBQVVfeXFMUGd0ZmNyWXlhT3R3eE15TlcyTVdfYlZfSHRwZkdUckI2ZFBsTVFBSFcxUUhZYU5kcS0zWDJpZE1BSjg4VElKbUQxdTNtZ1JfdG42TzYwdGhpOWIzRmdvWjZxRXN6VUExbm9BNHJvaTV5dVZ1eEdnaElxOUg5SUVXM215MW56Sk1mRUFIcnlEVXhQd21YdTg4WGtjVG42ODBqOGxJMTY?oc=5) |
+| After military-style raid on South Shore apartment, Congress members rally around residents - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOTUdiUnVfb1gtcUNlc0VYVHVuOWtYZjMwdjdfYkw1NzJxS3YwZ1hSMTFFUnBUUlUteVRrbkk2R0xmSjMtWkZJa0x5S1Q1a2RQM1RudXA4eFkydXlkX3hPZzlnc2xoQS1QR2c0ZE9ZZHcybnRJcG9jNlpjMHJna2hmTHF5U19qaklUTGxqQUd0RUZSQldwdGV0UTRXbW4wNFgxc2huOVM0U2g?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
