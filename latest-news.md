@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月07日 06:09:55（北京时间）**
+🕒 更新时间：**2025年10月07日 06:16:42（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Supreme Court rejects appeal from Epstein accomplice Ghislaine Maxwell - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOdVk4dHRyWUFGNTdUdGRrNzlXX25WUnY5SmpscVhQMXJxVFB4TzNnck1BNTNVYnlvSklBdVNPREhYRUc5am91bzBKSHExSVFkcGg4V1RZWFJkNFh1NUVLVV85SEg4ZV9tNWlGUjNwaGpReG45N1dBN3Q2MWdjVnJFeGJ2NFo1T0NXVmY2VU1ZTQ?oc=5) |
 | US shutdown enters second week as Senate votes again on funding bill - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOS3g3dDJwc0xkWFgwYXdGVzV5NFZnYy1nOTBKTngtcTI1MjJScDNxRFZ4ZEczMjUzNjdUa0dfMlJjZGlhOXZKcTA4eEJQeTlfdEZpWnJEaEh2UmdDZ3VscUhjVERzNXlxSWV0VExaWXdVODZaVS02bWRERGlrZktFTmgxX1g?oc=5) |
 | Wesley Hunt Enters Texas G.O.P. Senate Race, Complicating Path for Cornyn - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNaFdSb1d6cnFucVJkazlZYlpfQU9EeE0tVnNIT3NmTVpwOXJIX214MmVBZmFOR0Vyc3RnellVQWJKdVJESVdFbThuV3c0SEVSWkNfN1ZwbEtVUVlIeWl2R0o0SThJeWR2ZFl5SEF5bVZaczZXYkw2ZFJSV1MwMkhtUm8zZVNPM18wSzdrekxiT2tWaXRQ?oc=5) |
+| EF5 tornado that killed 3 in North Dakota was the nation’s first in 12 years - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQdFpqWFNKU0VaRzhZZTVlLXYtaXR6V0ZSRzJtdEdibEtTbXM2Vk93TEdNM044ek81YWdKcGJoTTR2TnNDMkdicU11VFBkRGJxR0Nmc1Y4UmNaZURvWkN0SGdqOUNSNUZPNElEX1NKUUtBbk5MVVMzTlhveHpVdVlVQVdGVnh0dktVd3A3RldXN2VKV3VlVDl2S3otQW5Tdw?oc=5) |
 | New Supreme Court term will reshape Trump's powers - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1UVnhINldqZ3ozZlBTeUhGUUFuVnU4TDdoMXQ3aGNLbFVGWVlmTkI0QThVRjVxREpjVE0waGJfVGN4U2lGZzJJT0EzREZoXy1BZDN2UXBNRTRWQdIBX0FVX3lxTE1hV0xZdDdBN2c1Y21CamR5SmNMQ3FOOGVfWE9qVDhIRHBGN0NqYXI5T3BIYWRURjhHRzN3X3lWN0hlUzdvTXhsSEdKMDRSME1oa0JWQUtIU0VRcjZVZy1V?oc=5) |
-| South Carolina judge's house destroyed by fire; officials investigating cause - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNUVdJZ1NsaWROU2ltMEhIMHRxSWp2MDRYN0tfLThDM1hBVTZhZWM3dDNoY2lmS3p4QUVoeE1BbEhvSjQ1TDlDTHlqYXZ6bDNpd2VRWThINTN4UjNQVzJiRUZMYnBZTmtZX3B5bXotb3BPRGExS2ZXTExSbF9CZmxrNXRHZ1E0Y3dBdGd6cDd1UEFuRHBONzFZOVhSWU9lbXI0eDAwMmQ5UnZpcHdRbDM1YdIBtgFBVV95cUxNLVY2cTluYVRaZ0E0YjhRQV92dDdGanlrVElMZENOMS1vbFBkbU1rN1RwMG85Y18wV1l4VGNPZTJlWElYSmxQQUtWY0lpZ3k1RXV0OWNyUi1CTVFKSXN5WjZCbHdfaGUyYVBOMjUtRmJKa3l1MmNCaGx2bWRLUlRWT3NFWXY0TlF1UDNsYkg3UFFtamtwN29icEI3TW5JVnpRcnAxQ3UtZ25Hb1lRaDhiV3gzMkItUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
