@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 18:56:33（北京时间）**
+🕒 更新时间：**2025年10月06日 19:01:08（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | EastEnders' Kellie Bright on the challenges of being parent of an autistic child | [阅读全文](https://www.bbc.com/news/articles/c0jqy8pn275o?at_medium=RSS&at_campaign=rss) |
 | Nobel Prize for how immune system stops destructive rampage | [阅读全文](https://www.bbc.com/news/articles/c2knwvpd7vno?at_medium=RSS&at_campaign=rss) |
 | Australian prosecutors appeal mushroom murderer's 'inadequate' sentence | [阅读全文](https://www.bbc.com/news/articles/c07vlzn587lo?at_medium=RSS&at_campaign=rss) |
-| Does your relationship have a swag gap, and is that always a bad thing? | [阅读全文](https://www.bbc.com/news/articles/cr4qp4nlppko?at_medium=RSS&at_campaign=rss) |
+| What is MND and are athletes more likely to be diagnosed? | [阅读全文](https://www.bbc.com/sport/rugby-union/articles/c20z7kyv2edo?at_medium=RSS&at_campaign=rss) |
 | Dame Jilly Cooper: Undisputed queen of the joyous British bonkbuster | [阅读全文](https://www.bbc.com/news/articles/cd190zlmz3xo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -27,7 +27,7 @@
 | White House: Mass layoffs will start if shutdown talks 'going nowhere' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOdVdrTlJRT0ZjVk42NEtlTWdVSmk0WV9JMnFKbVBEMTdvRkV0bnE3SHhNZUtOb1Z5Tl9qcFFzOUpVVUFKQk0wMEhMUDRhM2I2U0owaXBWMVdYNTBobFkySWloT2o2akc4dnNoWk1BZmJ1QlFuNENMamd2MW5CM3lfaDhWbndfRGJwenZjZnFSZGJqdG9XeVNOamdIMXk5UUxvMV80VEg1QWZERHNtYkZQcl9hRjZhdFZzdW9UWHRxdDY?oc=5) |
 | French Prime Minister Resigns in Surprise Move - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOcnl2YklVM2JoNFlzN3pTdUJVMW9zYXk5TW8yZ1E5V1V5cjBVT1Z1aVlRZEVfY08wWGxKOC1EejBrSkZoSGdKQmpMNHk5dV81NUlkRGQtbFMwVDJIT2M0WVBUekNOcUdYekhRNW92bXgzN2ZyZ3g5bVR6cDVfUmZuVEdEOGtsVHBRbVE?oc=5) |
 | How Trump cornered Netanyahu into signing up for peace - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5EaFpFLTdkSkw4aUk1MS1rUHBrQzg4U2I5RTRFOS12eXpOM3dvMllCSWtSV19BUi1mcHN4SHEzMFF5T0Jrb2JZb0g4aTQ5aTNNSUxRVkY2VVJ0Y0FSWDltWnVYZEpGV0ZRdnh1SVFnOGw?oc=5) |
-| Yen Plummets, Stocks Rally: Markets Greet Japan’s Next Leader - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBOaWo0VDMyakswYkNVZTZVM1lxc3V1VnMtbXdOS3Jobmc1YTFHeVRJM3NMdWNOVDZVb00zdm1rY2tiM0VvbGpWd3RCMHdGeUZmQ3BuNHZsZUw0VlFTTXRNOWVfNGtic09EdThEWXlXS1NDbjZ2T0o0MlhuVHZLQUk?oc=5) |
+| Japan’s New Leader Gets a Volatile Greeting From Markets - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBOaWo0VDMyakswYkNVZTZVM1lxc3V1VnMtbXdOS3Jobmc1YTFHeVRJM3NMdWNOVDZVb00zdm1rY2tiM0VvbGpWd3RCMHdGeUZmQ3BuNHZsZUw0VlFTTXRNOWVfNGtic09EdThEWXlXS1NDbjZ2T0o0MlhuVHZLQUk?oc=5) |
 | Gov. JB Pritzker says Texas National Guard expected to join troops from Illinois as deportations escalate - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxOMWJhYVNHVi1CV2dJVEtIZV8zVWhmQ3k3OWN3UW5qNjRIZEpob1NqalRCU212eVVPcUV3a21iWlRjeWozTGkwdDBEa29MYjlvRWdnNDVuZWlhR3lJNWlTMGJVR2VrVDFBeGRoeE5YM01RaUVOVGhuVnFjNEJNN21QakVwRWFOTjFXZzBuOHRYSjNSM3VoR29jZXk4UENJTWFCZ19hSkpkc0pFem0zMExONUxtZGhWc0UyVVVIeklMSmRYM012cWdpblV4T1NXNHVNREdEYTJESXdvb1J5cnE0?oc=5) |
 | Instructor dies in Nashville skydiving incident; 2nd skydiver rescued from tree - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQaXlWWFVIM2ZhM1VoSm9nQlJRVFVUYWVNRGEtOEpUeUZaMFhwWEMyN21hZHZWWUFtcXByWWVFMFVfQ0Q0MGtlTzR3OVdzZFhNR09adEo2d0lYSUUybi1nLThER3MtT3pDdmExblNvdm5YazJVMThtSktZdDRrX3lvS2pmSk5XVzRETHFOWlMxUWpsc0ZIS05YVmtva2pHWmlLVk4xTjVzMjRXZE1fNVk3ZnJPdmZtWXRzUEHSAVZBVV95cUxOWG45WW1RcGVpYlcxaTN5SmVmbVpYeU90Yi1TX0ZNVkV0MkIwbHhTWlhXMkFLQXp6VXlteTB5X3JDU3pmczR2eWwzbTZZUGdzUGw3aWF3Zw?oc=5) |
 | Photos: Trump marks Navy's 250th anniversary during government shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOaHhFMUM4bWlwZmluQ09lU1NTRlpRQjZJSEhpSk9hRS0zTENwck5Rd0EtWlBhYlhVeTBIT2xwdzYzQzlhRXZ5b0ZVQW9nWHBxRHZmeEVyUUpxd1FBY0p1MGR1MW4wdXpZYURIVjByNzUyOEdYYUZoUFd0OEY2Y29lY014NGQ?oc=5) |
