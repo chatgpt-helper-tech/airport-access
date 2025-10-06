@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 17:56:10（北京时间）**
+🕒 更新时间：**2025年10月06日 18:00:25（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Greg Abbott authorizes Trump to deploy Texas National Guard to other states to protect federal officials - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQWGNTMmhWUFA4MUljSndycUxfVXRRdDhJUkx3X1puOGpwQWhhTS1QYnVLZzFMaW9VS2ZRSkZrbWdDbU82LUJ2RVdnaXhEVDI2dWJuMVJoekM4MGN5N05Sd2UzNDVyMS1aSGtPWXV1RDRFNUJDR0xlMHRLeW5uamtMNkFzM1hYQQ?oc=5) |
 | As Supreme Court returns, major tests ahead for Trump's presidential power - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOYlJmd3drYkRzWE5ibUNlc3hpV0VjTWlTS0kwVjNHbkg4UWhZVzk5OXp5d1czNlNfbWxxaGZQazdiemRNSWxWcDlnNXRuUFZTYVAxYTR0ZHUxeEI0b1Q4NUlaWHVDY0szVGU0aFhzQU40dnZ1MEdLNE01bG5GalJ2MGl2UU9WMlZFNmk2V2NfUFdPbndxVHFLbXZBdkFack03aEpEZmo4NHpvSzZkdUtJ0gG0AUFVX3lxTE5iZmVjRlc2TVFUWnQ1a0RvWHVCVnVQal8yRmJIUTUzOVhiN3dsWEE0Szd4MGVXSmVLQzVXdnl2Z1E2cEZJLVNVTHozdWM4dnZMRjVsdHlzcEQ2U2kteERPQi1odFBrR1p5cy12YzgwbkNqV3FsZFN4VEY0T1lyUzIwZDhPWjFrZEdaYk9ybmFZeWVhRDR4SEF6LWNyRTJHeXRtVEJqUWZ6SFVtTi1renR1TzRkUA?oc=5) |
 | Instructor dies in Nashville skydiving incident; 2nd skydiver rescued from tree - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQaXlWWFVIM2ZhM1VoSm9nQlJRVFVUYWVNRGEtOEpUeUZaMFhwWEMyN21hZHZWWUFtcXByWWVFMFVfQ0Q0MGtlTzR3OVdzZFhNR09adEo2d0lYSUUybi1nLThER3MtT3pDdmExblNvdm5YazJVMThtSktZdDRrX3lvS2pmSk5XVzRETHFOWlMxUWpsc0ZIS05YVmtva2pHWmlLVk4xTjVzMjRXZE1fNVk3ZnJPdmZtWXRzUEHSAVZBVV95cUxOWG45WW1RcGVpYlcxaTN5SmVmbVpYeU90Yi1TX0ZNVkV0MkIwbHhTWlhXMkFLQXp6VXlteTB5X3JDU3pmczR2eWwzbTZZUGdzUGw3aWF3Zw?oc=5) |
-| After military-style raid on South Shore apartment, Congress members rally around residents - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOTUdiUnVfb1gtcUNlc0VYVHVuOWtYZjMwdjdfYkw1NzJxS3YwZ1hSMTFFUnBUUlUteVRrbkk2R0xmSjMtWkZJa0x5S1Q1a2RQM1RudXA4eFkydXlkX3hPZzlnc2xoQS1QR2c0ZE9ZZHcybnRJcG9jNlpjMHJna2hmTHF5U19qaklUTGxqQUd0RUZSQldwdGV0UTRXbW4wNFgxc2huOVM0U2g?oc=5) |
 | Photos: Trump marks Navy's 250th anniversary during government shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOaHhFMUM4bWlwZmluQ09lU1NTRlpRQjZJSEhpSk9hRS0zTENwck5Rd0EtWlBhYlhVeTBIT2xwdzYzQzlhRXZ5b0ZVQW9nWHBxRHZmeEVyUUpxd1FBY0p1MGR1MW4wdXpZYURIVjByNzUyOEdYYUZoUFd0OEY2Y29lY014NGQ?oc=5) |
 | No new temples announced during October General Conference - KSL TV 5 | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPNV9Cc05tcFZoamNaRW01dm1OTUxTQ29ySTNXQndKdzNxZl9CckR4TXRRbG9FMXlMdmhvN1p4NlBtcVFXZkJ6MUYxZkxhVHl0N0REenJEb2wzb0d0UWJHbFdSbFlwd3AxZmpqeU5fYTBEUG15UGVyWlFISUZueURzX25nUng?oc=5) |
+| After military-style raid on South Shore apartment, Congress members rally around residents - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOTUdiUnVfb1gtcUNlc0VYVHVuOWtYZjMwdjdfYkw1NzJxS3YwZ1hSMTFFUnBUUlUteVRrbkk2R0xmSjMtWkZJa0x5S1Q1a2RQM1RudXA4eFkydXlkX3hPZzlnc2xoQS1QR2c0ZE9ZZHcybnRJcG9jNlpjMHJna2hmTHF5U19qaklUTGxqQUd0RUZSQldwdGV0UTRXbW4wNFgxc2huOVM0U2g?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
