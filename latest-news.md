@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月06日 18:49:18（北京时间）**
+🕒 更新时间：**2025年10月06日 18:56:32（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Nobel Prize for how immune system stops destructive rampage | [阅读全文](https://www.bbc.com/news/articles/c2knwvpd7vno?at_medium=RSS&at_campaign=rss) |
 | Australian prosecutors appeal mushroom murderer's 'inadequate' sentence | [阅读全文](https://www.bbc.com/news/articles/c07vlzn587lo?at_medium=RSS&at_campaign=rss) |
 | Does your relationship have a swag gap, and is that always a bad thing? | [阅读全文](https://www.bbc.com/news/articles/cr4qp4nlppko?at_medium=RSS&at_campaign=rss) |
-| Why time matters for Tory MPs deciding Kemi Badenoch's future | [阅读全文](https://www.bbc.com/news/articles/cn0rnj6504yo?at_medium=RSS&at_campaign=rss) |
+| Dame Jilly Cooper: Undisputed queen of the joyous British bonkbuster | [阅读全文](https://www.bbc.com/news/articles/cd190zlmz3xo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
