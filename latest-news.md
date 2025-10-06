@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月07日 04:41:49（北京时间）**
+🕒 更新时间：**2025年10月07日 04:49:26（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Government shutdown live updates as Senate prepares for 5th vote on funding bill - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPeGhxeEVidFlwcWx5a1Nmb2xnSk9lNkZXWnBOZGpiZE9jV184aVF3MG00Z1Rva2ZjRUVYMG45WDd0bmh6bTFGRDhzZWFZVzJCTl9fNUt4aHBlTHdVcXZ3M01QVFZzOTJwYkZUbnNnSUZOZnJsejdiTWVMc2tidWJ2ckNjc3B2OGFzQ0pLTHl2djNpbWpBUHZ30gGcAUFVX3lxTE9aek1rYjM5ZkFyMUo0OFprMlQ0U2tOelhOMEMyV0M4UUljWWtYWERLQjlONXotQTFmSWNwR05sZjdTMndiNzNJcFlTajB2RzJzR1BlTnUxZ2FKcFdnWGNLTHNMU1ZaZXNWMzRGckVoT2sxYVc5aTNQdklHN2lOS1E1NmJOQjhqWmVHbWllZ19ycnBsOEZONHlFcHZyQw?oc=5) |
 | France’s new prime minister resigns hours after naming government, plunging France further into political chaos - PBS | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxQUG85ZzhST2ZHX2JFMk9HVXVCRWl6Vk5HZzRhaGdzbXJfM1VWa2NLNW9aYm5mbml2RGlVZjNCNlFtVWVZcVJlM0ZsbEE0cGJrazgzYWdHVnRDSXJoOUJzb0NuNlhENjVidXl3aS1ENnAtWmUyLTFCbVlaMXhXYjVwY0EwbF9WZFdGM1hURUFETHJOc1NuTlAzNHFSNmI5QXVWR1FNU0g1VmJSdnF6MVV1Q0cyeTdsc3M4dktoeVhrNmxMYmUyWi1HWC1qcWJiaDVibUI0cDMtajNnT01p0gHiAUFVX3lxTE45QjhWVFFrVFJOYWVfTkc4d1RGNnJzYzZ5ZFY0OWEtRF9RbklVdkRydHU1U1VjS1VTQ05ZUF9WMWZfWlZzVHpCdDR4SUxkNVhZQVV4amQ5S0V2UVRtbUFFbHdESEhWTDZ6Q1BEaUFwRGU1V2FKeUNieVNCNEQ0Yjc2aVp4UEVSeUxHRGU1TzJWb19RVG00QVBkMUJ6U3JmeHRWR3RzTlFZcFV6RVBQYloycUQ4NExhOWNHeVFxdS1yaHprLV81aHBYWms1MnMyWDVOQV9keHlHMEgtcFF4YXNhMUE?oc=5) |
 | EF5 tornado that killed 3 in North Dakota was the nation’s first in 12 years - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQdFpqWFNKU0VaRzhZZTVlLXYtaXR6V0ZSRzJtdEdibEtTbXM2Vk93TEdNM044ek81YWdKcGJoTTR2TnNDMkdicU11VFBkRGJxR0Nmc1Y4UmNaZURvWkN0SGdqOUNSNUZPNElEX1NKUUtBbk5MVVMzTlhveHpVdVlVQVdGVnh0dktVd3A3RldXN2VKV3VlVDl2S3otQW5Tdw?oc=5) |
+| Supreme Court term will tackle executive power, executive power and executive power - NPR | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE41QnJscVBPNFBMM1BMVllWX3RPQjd6YkctdGNiN1dqcklsZlpvVmxTWks1bUZ1VmFYX1Y0ZnZ0ZVNYQ0VEay1OemM0dXBhUjE3TjFWTWhhZXFSOTZiUGlfUGl1T2RFcmxkTUxiYnFVS3IzLTB5bmdNY2VMYw?oc=5) |
 | Mike Johnson rejects Hakeem Jeffries' shutdown debate demand - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQRnJWUnpvTWc1QVdCdlRkZFR3NENOVEwtZS1TMDhyU21wSzNaUXhUSWF0V0NJUFNxeGpINkVVS3lpLVlHSkl3enhtY1JlUE9VTzZZUmo1aC1XU2JyTnMzMTE5amtWbUFkMkNiUjlSYTV4dm1kRUNSNDQ3STZWZWRNZ1Q4Zw?oc=5) |
-| US Supreme Court starts new term, with major Trump cases in store - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQbmdPTkZFTDlyRlRRM2hSVXJ3cGxkYVZUNnUxejlqRlkxX0J3bVN4YVhBNnhJbDBWOWdrRDVzb3l5aVhDTW95RnM2R1RkblppVkVpamtzb0ZuenB4WUJmUzZ4cWNtYnp4b1ZNVi02aWFlcDhnNzhpZGhSUDMtZFNOUFdxaXNOczBuU3BSUXFQZzNOcFZ5aHVHV19yX1loYjFpVWZvUm5qNEU2Y19abURsUjJncw?oc=5) |
-| Fire engulfs home of South Carolina judge who had received death threats - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQRUx3MlIxd0h2WXVWekhNNk9lV1dIenJKWDRqMEgtVDE3MjYyRi1TNWluem9GcnV2a2ZYMmxsTmo0alZFZGxDZGRXWlhiNlFEblpHc3J5cWJfS3pULXFRc3hhcWJwd01nbGVOMjBwbzJ0N0FvM3BBNTFRNm9FTElFbkFqRU1QUQ?oc=5) |
+| South Carolina judge's house destroyed by fire; officials investigating cause - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNUVdJZ1NsaWROU2ltMEhIMHRxSWp2MDRYN0tfLThDM1hBVTZhZWM3dDNoY2lmS3p4QUVoeE1BbEhvSjQ1TDlDTHlqYXZ6bDNpd2VRWThINTN4UjNQVzJiRUZMYnBZTmtZX3B5bXotb3BPRGExS2ZXTExSbF9CZmxrNXRHZ1E0Y3dBdGd6cDd1UEFuRHBONzFZOVhSWU9lbXI0eDAwMmQ5UnZpcHdRbDM1YdIBtgFBVV95cUxNLVY2cTluYVRaZ0E0YjhRQV92dDdGanlrVElMZENOMS1vbFBkbU1rN1RwMG85Y18wV1l4VGNPZTJlWElYSmxQQUtWY0lpZ3k1RXV0OWNyUi1CTVFKSXN5WjZCbHdfaGUyYVBOMjUtRmJKa3l1MmNCaGx2bWRLUlRWT3NFWXY0TlF1UDNsYkg3UFFtamtwN29icEI3TW5JVnpRcnAxQ3UtZ25Hb1lRaDhiV3gzMkItUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
