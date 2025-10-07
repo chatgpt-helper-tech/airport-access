@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月07日 16:01:36（北京时间）**
+🕒 更新时间：**2025年10月07日 16:09:42（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | French farce: Macron accepts PM’s resignation, then tasks him with emergency talks - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNYkVrdG5JMU15YXhCQjVEVGxockJtZFVYRExhSF9PdGNxbTFmeXRKQXZjSURGY2hZMm5YaXppZUZMd0RQVG1BZXpNWWZrM2plMVF4OUxNX0lTaWE2QnR1Zm1GRmJ0bEg0Tk5yeGM4bnhaRDRDcFBTVFhlcHBZM1RueU5HajBaaDBUbXFuRW1TT05pYkZOYllFM1lwNkZxNlljVENyWXNJOVExemxpRlMwMWlIVVZnWmxFX09F?oc=5) |
 | Schumer denies bipartisan health care talks after Trump’s Oval Office claim - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOU1V6dlh3RHJzNll6bkZ0T0w5c3V1NEhxWmdZaEozOFJuQkdIN0xrSEpIV3NqdkF4WUNsbWNBOFhkRDBiMjY3bmloTHVzU1dVNnFTNU45bExJSmptTDhIY0lmeFhzNjl6Z0xsbjBHSVF4ZzVTWkxMS0pZQXA1ZlM5QmZOeDRGNzA1MEg0bGgxdXBtRDZ4dVZWbHh5cG42am5o?oc=5) |
 | South Carolina’s top law official says no arson evidence so far in fire that destroyed judge’s home - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi4AFBVV95cUxNeGptSkw4bmpDYUpfTnFRQmw2TU9aSk1WUVhEdDEwUnJVTVZOZ3dVSlgyZU0wYXUtMnhRQ2dnSGJjREl5WkN0a3cxREdIZ3U2Y2hMYnkyV2R0V3pNQ0tFTmV4eXp3Z2JlNy1XcUNCYVdsaWxrZ0doU1RmVGRJTGtIOHZ4enQ2c3QxYmZKVEZDYjVXelNyQ2ZYU2VwemR6M0hSeUpJNnVMcFdhMnlUNDlzSTlDUkx5eHQ3RHBINDFSeFItYm1zYnF5Q1BSSVBlelotUFFhMHZWMzFibDkxX1dHYw?oc=5) |
-| Amid Trump’s threat of shutdown layoffs, more federal employees being brought back to work - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMi4gFBVV95cUxNaFFIdGQ1cGNuNF80Z1N4Z0hYMjVrRTloZzQ3NlM1ZS1JUWEydzVoZFg3ZGx5dTlhNTB2bEFSS205UUVrQTEwR0s3cmkyNk9IZkdkanFwdjB1TmVTcDl4dTN6Njh1ZmNKQzlId0tsTTIxQngyMy1kemFwT3Q2VXBvRWxOWE5FdW54WFZ2LUNIbjIxdlg5Y1VOTUQ3cHB5a2dtRVhtYlpIQUZKSzBLQlVDM3BJa1NubFdZM2VsRnYtN2dPUVJnV2VUOENvMkhmbkNVQ1E1YVlHZy1WbmttRWV2bWh3?oc=5) |
+| The Senate returns with no shutdown deal in sight - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPLVpBenpFY1BvZXRVYmo5YzQ5ZTBJVWJsNHQ4V3lUSERFaTgwSUZaTjFiQlhsbWwtMG4yT0N1Y1BHZTJCVTV2OVpiMHlmckdUVWdNN3dIVEF3T1lqYmtONHZjT2ZCR1M1ZnJEWEVDODVpWVBFUHRwY3cxN2lQUURqSXJrbGdZUkNhd2FGVTQyck0?oc=5) |
 | Wesley Hunt Enters Texas G.O.P. Senate Race, Complicating Path for Cornyn - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNaFdSb1d6cnFucVJkazlZYlpfQU9EeE0tVnNIT3NmTVpwOXJIX214MmVBZmFOR0Vyc3RnellVQWJKdVJESVdFbThuV3c0SEVSWkNfN1ZwbEtVUVlIeWl2R0o0SThJeWR2ZFl5SEF5bVZaczZXYkw2ZFJSV1MwMkhtUm8zZVNPM18wSzdrekxiT2tWaXRQ?oc=5) |
 | Nobel committee unable to reach prize winner who is ‘living his best life’ hiking off grid - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPMXdmZDJieDc5VFlyVC0wTVRRZ3BnRVhVNDhVUk5IZ3pXaDVCelRjZWlHUzR0YTVHcG9aTmF0N0N0c0RwQ2Z1cXVuZmhQTUxfUjNkanRyV29ISzNVNXpkZTloUzJ3VlY5UXFUWWRNaVNoNXB3U0ZWTGQybWxMYTdGMEtyYXloTElSbDl2RmxpaGhZYkVodEJKZVFuQUdBOGUwWFZDQmZ1V3IyMlhtVklaRlQwYXhqSFlp?oc=5) |
 
