@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月07日 20:17:12（北京时间）**
+🕒 更新时间：**2025年10月07日 20:25:36（北京时间）**
 
 ---
 
@@ -14,9 +14,9 @@
 | Man guilty of stalking TV presenter Myleene Klass | [阅读全文](https://www.bbc.com/news/articles/cj0766g9edyo?at_medium=RSS&at_campaign=rss) |
 | Asylum hotel provider makes £180m profit despite claims of inedible food and rationed loo paper | [阅读全文](https://www.bbc.com/news/articles/ce9r5m74de8o?at_medium=RSS&at_campaign=rss) |
 | Pharmacies facing angry patients over Covid jab confusion | [阅读全文](https://www.bbc.com/news/articles/cm28q5gqvppo?at_medium=RSS&at_campaign=rss) |
-| Renewables overtake coal as world's biggest source of electricity | [阅读全文](https://www.bbc.com/news/articles/cx2rz08en2po?at_medium=RSS&at_campaign=rss) |
 | Stephen Lawrence murderer must name other killers, father says | [阅读全文](https://www.bbc.com/news/articles/c89djd0yn1wo?at_medium=RSS&at_campaign=rss) |
 | Jenrick defends calling Birmingham area one of 'worst-integrated places' | [阅读全文](https://www.bbc.com/news/articles/cy85zlpwne6o?at_medium=RSS&at_campaign=rss) |
+| More holidaymakers using AI to plan trips | [阅读全文](https://www.bbc.com/news/articles/czdjzm2gv7qo?at_medium=RSS&at_campaign=rss) |
 | Thieves snatch Bronze Age gold in four-minute museum heist | [阅读全文](https://www.bbc.com/news/articles/cj9zxdpwn73o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
