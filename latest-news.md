@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月07日 09:40:34（北京时间）**
+🕒 更新时间：**2025年10月07日 09:49:23（北京时间）**
 
 ---
 
@@ -26,7 +26,7 @@
 | Illinois and Chicago sue to block Trump deployment of National Guard, but troops already on the way - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNeXFXaXptcGxlYjFhWjZERnVRZGFyLVFKN0lUcjdILW10U0EyVURpSUR5TlczTmFKS2phcF85Sk8yMGgtbXo4U19DRFViUUY0cmlubHJMVUE5Qnk1X0YwU0FNX3pta1FYSzdBRGlKUVpLd0RYcTdUY085S0FNMXNlM1hnUjNqSS1WeXpr?oc=5) |
 | Amid Trump’s threat of shutdown layoffs, more federal employees being brought back to work - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMi4gFBVV95cUxNaFFIdGQ1cGNuNF80Z1N4Z0hYMjVrRTloZzQ3NlM1ZS1JUWEydzVoZFg3ZGx5dTlhNTB2bEFSS205UUVrQTEwR0s3cmkyNk9IZkdkanFwdjB1TmVTcDl4dTN6Njh1ZmNKQzlId0tsTTIxQngyMy1kemFwT3Q2VXBvRWxOWE5FdW54WFZ2LUNIbjIxdlg5Y1VOTUQ3cHB5a2dtRVhtYlpIQUZKSzBLQlVDM3BJa1NubFdZM2VsRnYtN2dPUVJnV2VUOENvMkhmbkNVQ1E1YVlHZy1WbmttRWV2bWh3?oc=5) |
 | Schumer denies bipartisan health care talks after Trump’s Oval Office claim - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOU1V6dlh3RHJzNll6bkZ0T0w5c3V1NEhxWmdZaEozOFJuQkdIN0xrSEpIV3NqdkF4WUNsbWNBOFhkRDBiMjY3bmloTHVzU1dVNnFTNU45bExJSmptTDhIY0lmeFhzNjl6Z0xsbjBHSVF4ZzVTWkxMS0pZQXA1ZlM5QmZOeDRGNzA1MEg0bGgxdXBtRDZ4dVZWbHh5cG42am5o?oc=5) |
-| Who is Bari Weiss? CBS News' new editor-in-chief is a vocal critic of legacy media - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQNGJXUkhOTFpua09QTHdDN0Q4NTdnTU9HVTFLbFZPak95WFoyYlhUTklhLThCWG81dlZCYlVYbE5tU1VBWEprcTV0ZmhLT1R5c3JCSEJLdWRqLWl5QzlpUjN5OVFOMlozSThEdkNlLTlQcTNPc3V6TmRPSkxkOTZBdg?oc=5) |
+| Bari Weiss named editor-in-chief of CBS News under Free Press-Paramount deal - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQM1hzRGhiRl9jYi1UZWtTWjVQbUZFTzNuZlByNnNRakkwZXNjUzMtOUhhMkRhQnBrTlFDWkp0VERKR05XQWlPWGt5OFNwWmdFQjNmYUZEOFNaVTRWSmxReFdyM24tRWJOSWdHMDNGVkQybUh3RGswa1dEOXZMcTljdzRWNER3UDNtU21GVHJsTEpnLXlmT3piXzdwZDVSbGdTRnVBME5vY1VpWUt2QnN4RVNQQkVsR05aWEdpYnRQSFVXZjhYUkljUV94ckpqbDRYWUE?oc=5) |
 | French farce: Macron accepts PM’s resignation, then tasks him with emergency talks - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNYkVrdG5JMU15YXhCQjVEVGxockJtZFVYRExhSF9PdGNxbTFmeXRKQXZjSURGY2hZMm5YaXppZUZMd0RQVG1BZXpNWWZrM2plMVF4OUxNX0lTaWE2QnR1Zm1GRmJ0bEg0Tk5yeGM4bnhaRDRDcFBTVFhlcHBZM1RueU5HajBaaDBUbXFuRW1TT05pYkZOYllFM1lwNkZxNlljVENyWXNJOVExemxpRlMwMWlIVVZnWmxFX09F?oc=5) |
 | Appeals judges will decide fate of Portland troop deployment - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMWcxRU54UV9aWXc0QmZONVJUTkZhSWltWlE3ekt2ODFTbGoyaXZzblM2MGVMREZ4LUs0SWhqNVBPaTFESFkzb0lIUmxPM1VUcHZWQjh0QjJKTlZWd1RpTUZHNE5lSmwzdUdmRVd1X19qWFBXQUcydkc4azZvc3VsZlg3U2V4N2s?oc=5) |
 | Trump’s use of Guard may have lasting impact on cities and troops - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNQ0QzaEt4RTVhd0czanVzMFNoazRMVHhrYVNqODFPcDkwRXZFS1FlNTFCRDJsckxMRmVGc3FrNGVfTkJBVUZkZ3J1c2hEOFR6ckJHTHc2QV85U1kwZ3NLdXN1aXcyMVNyeWpScEp2UVBxclBkczZZNWFuT3VsV3BzZWJqajFzUDB4em9WTWkydFgyejYyTFVEZVl6OGhBbHc?oc=5) |
