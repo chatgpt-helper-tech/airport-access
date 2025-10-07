@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月07日 17:25:48（北京时间）**
+🕒 更新时间：**2025年10月07日 17:33:31（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Donald Trump threatens to invoke 200-year-old Insurrection Act to deploy troops - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9vWjRLZUMzejQ4VDdONEpYa0NnbWptcmJ2WTVWR1J3U2pHT3RkOVJNMWxCUG96d2Q3M2pkWVQ3MlRoUWNJcEVTWTBCSkxZQWZ6eU9ZcFFBTGhvNDlXWDJmUjVrYW13bkNVTXNyejZLN2Y?oc=5) |
 | South Carolina’s top law official says no arson evidence so far in fire that destroyed judge’s home - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi4AFBVV95cUxNeGptSkw4bmpDYUpfTnFRQmw2TU9aSk1WUVhEdDEwUnJVTVZOZ3dVSlgyZU0wYXUtMnhRQ2dnSGJjREl5WkN0a3cxREdIZ3U2Y2hMYnkyV2R0V3pNQ0tFTmV4eXp3Z2JlNy1XcUNCYVdsaWxrZ0doU1RmVGRJTGtIOHZ4enQ2c3QxYmZKVEZDYjVXelNyQ2ZYU2VwemR6M0hSeUpJNnVMcFdhMnlUNDlzSTlDUkx5eHQ3RHBINDFSeFItYm1zYnF5Q1BSSVBlelotUFFhMHZWMzFibDkxX1dHYw?oc=5) |
 | Cities nationwide back Oregon in National Guard deployment dispute with Trump - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOMEpSbjN1dEtXYTM3VGJRS2dkSXJpc1pYTjdLTFVzR081TjFSMTV4T3IyOWFjdmFyV0NabzcwQjhtSGo2Ym00WDhLUW9GczBhZU9JMzYweG51MDJBTXI3N0lzZlBUUjRJM1RMUjdHVURyQkRPSTVLSVNMcEY3M1dMUnlld2t5ZjJOYllDNlJrLU1DMFZTRk52VkZlYU51OUZKaW1ib3RWZkJfaUJKT3pQTUZxcHhaWTZBTG93Z1VaREzSAdQBQVVfeXFMT1hSeVFTZ0ZTeWhTbE5rZFlxVzNJZGFYbS1MTXpaWGRMd0xCMDlLSm9OaE92U2V1bERuTGVzWERLSllEOHk1LWlpMDl5M1dIYXVsRUl6ckJUNXB4T2h4S0I0VnRMUFo3NTh4RGlnWjJ2bkFuaGFHRTg0TEpDOHdKX0txZV9XX3h5R0lQVG1QMGZTbEJuVEhxVlI4NDQ3MHNlZU85bHJJQ1pwdmQ1M3g4Wms1QW5CUVZyelZZQXgydVVYLU9vVjQyM3hHU284aWFRaUtEcmw?oc=5) |
+| Government shutdown stretches into second week as Senate rejects funding bills again - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPeGhxeEVidFlwcWx5a1Nmb2xnSk9lNkZXWnBOZGpiZE9jV184aVF3MG00Z1Rva2ZjRUVYMG45WDd0bmh6bTFGRDhzZWFZVzJCTl9fNUt4aHBlTHdVcXZ3M01QVFZzOTJwYkZUbnNnSUZOZnJsejdiTWVMc2tidWJ2ckNjc3B2OGFzQ0pLTHl2djNpbWpBUHZ30gGcAUFVX3lxTE9aek1rYjM5ZkFyMUo0OFprMlQ0U2tOelhOMEMyV0M4UUljWWtYWERLQjlONXotQTFmSWNwR05sZjdTMndiNzNJcFlTajB2RzJzR1BlTnUxZ2FKcFdnWGNLTHNMU1ZaZXNWMzRGckVoT2sxYVc5aTNQdklHN2lOS1E1NmJOQjhqWmVHbWllZ19ycnBsOEZONHlFcHZyQw?oc=5) |
 | Wesley Hunt Enters Texas G.O.P. Senate Race, Complicating Path for Cornyn - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNaFdSb1d6cnFucVJkazlZYlpfQU9EeE0tVnNIT3NmTVpwOXJIX214MmVBZmFOR0Vyc3RnellVQWJKdVJESVdFbThuV3c0SEVSWkNfN1ZwbEtVUVlIeWl2R0o0SThJeWR2ZFl5SEF5bVZaczZXYkw2ZFJSV1MwMkhtUm8zZVNPM18wSzdrekxiT2tWaXRQ?oc=5) |
-| The Senate returns with no shutdown deal in sight - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPLVpBenpFY1BvZXRVYmo5YzQ5ZTBJVWJsNHQ4V3lUSERFaTgwSUZaTjFiQlhsbWwtMG4yT0N1Y1BHZTJCVTV2OVpiMHlmckdUVWdNN3dIVEF3T1lqYmtONHZjT2ZCR1M1ZnJEWEVDODVpWVBFUHRwY3cxN2lQUURqSXJrbGdZUkNhd2FGVTQyck0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
