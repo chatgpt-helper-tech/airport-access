@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月08日 03:25:36（北京时间）**
+🕒 更新时间：**2025年10月08日 03:32:39（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Israel Marks Two-Year Anniversary of Oct. 7 in Subdued Fashion - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNYlpseUNwOWlpNW9TZUhUb0RSN3d1enlBTzhWX3hlNnRkX3lNZ1pYXzNLMnducWVqSjZYd1JGZnB4d3NtbkMzNHNCOVZTeDVpTnZCakNESEhRdmRkS0t3WjZCcUZqRHh5NkQzRmxUYTFNWmxST3JDYVRJTjFXY0NGNTJYQzRDeUFlMzNqTGZB?oc=5) |
 | Federal agents taunted Chicago woman to ‘do something’ before shooting her, attorney claims - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNYmUzdVVpXzNmRkpNakZWR2dDUjYzLWp0Mm95WVRDLUtNYWJZRS1BQWdLZXh1ZE9LeDdxZjMtR0pwUW1ac1NxY0lCZW5Zc2tFUUJtTExQWkJsWERlQUFfdmh6V1BHMXFFejh4a05IX0VaTkpKZS1kRHJOMDRndnRmbnVmVTRYQWZWX3ZpX3RB?oc=5) |
 | Tropical Storm Jerry forms in the Atlantic - WFTV | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQTEVfRjVZc0pIeXNxR2gtM3BaOEhlQ3B3YnU5NHBFUFd3VENfUXNLNk1sY2JYRDlRQTZlWmZoZmV3WGlOR1BwYXdYQlpTOFVqVmVlaGdGR3RQVWUtRnZDLVdVMVFKQUxYUWxhMXEzUXVhYjVjTmNMdXlBYVc4cFl6c2tMbG94QU9rMnNPaGdzOWJVTEZCcTZGVG93eDE5NXhTUVZfN25n0gG6AUFVX3lxTE9McnJwdlZ4RVBPOHpZUjMwdHNENk4zNEJjYzJzX0hlYXYyNDZIOEVQTTJNTUJnYjY2cElIMmdzUFliNXo0N01rN3FQR0VlbnBhMVFXZGFBQWVMZnFLbHlFUE0tZnNGYk9SNEE3ZzNGdWJCbUs1NmhCdlJrRlpaRE1rNjNJb3BBaE5KbW1VZTNUemJEbi13bnZaUXVlMnBzY1V4ZW54dXRDeExLLWdrNlNOVmhhYVo5UGgxUQ?oc=5) |
-| Sen. Josh Hawley falsely says FBI ‘tapped’ senators’ phones during Jack Smith probe - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQVmZYNFdKemc3RTdkZ19pbG94QnpVSUpLSHlxY1lnMTFuM0hxajJUUVZ1akpmUlNfWThYZ1BrclBxRFJsbXVPWUlvUWotenZ2cmltdlozMEhTVTI0dW1IMENXZGl4NUUzM0s5bk5GM1J0cVYwdU4xT2VtVjg5SzM0SWNEeEYzS291bm8xenkyaFhoNWFKdDZkY3p4bXdBR0ZoSVlaNA?oc=5) |
+| Sen. Josh Hawley falsely says FBI 'tapped' senators' phones during Jack Smith probe - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQVmZYNFdKemc3RTdkZ19pbG94QnpVSUpLSHlxY1lnMTFuM0hxajJUUVZ1akpmUlNfWThYZ1BrclBxRFJsbXVPWUlvUWotenZ2cmltdlozMEhTVTI0dW1IMENXZGl4NUUzM0s5bk5GM1J0cVYwdU4xT2VtVjg5SzM0SWNEeEYzS291bm8xenkyaFhoNWFKdDZkY3p4bXdBR0ZoSVlaNA?oc=5) |
 | At the center of shutdown fight, health care is one of the most intractable issues in Congress - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQQVVnUElNbFE5R2dCMjFBdHRrMmNoSFlOMlZxWXNSMkR2UjN6TlZoYWF6ZGN4SjlLYkM3ZGVhSnpDS1N4Vzc1Q3FNSVdWYXB3RWNuSVFvVThRWEk0dlNDUTRGalUxRFFaa2p1elBFXzdQVkp1YUxQclM5VmE0Zi1WTlRUY1pBNUZXQlVlVG1KSjlBT0JDTGU5ZkxLcnFqWDFYSWhWNmIybHEtcWhYcXc?oc=5) |
 
 ---
