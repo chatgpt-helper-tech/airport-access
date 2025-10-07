@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月08日 05:00:48（北京时间）**
+🕒 更新时间：**2025年10月08日 05:08:47（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | The government shutdown is snarling air travel. Officials say it could get worse - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOUHJHcklhREppbW5ucVQwN3RBYWVkVExSaTVCSmNVWjR3MGFQX3NHSm4yVVgyTG43TDBqa3NUcThQNU9lVjFYYlFMdHZkdS05a0hNRWFDc1kya0FFWTBhbUVMeDZxUWJIUkh1UHd5UGZHNTNGMk5FRF9UQUNhVkpuUkhYMDVOLTI5QmtiZkUwNlVsVnIwRmxycUpPUlU3ZlE?oc=5) |
 | Attorney for woman shot by Border Patrol claims agent said, ‘Do something b----’ before shooting - WBEZ Chicago | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPVzJ2alM4OGJELUJrUFlkZndvN0dPdktzbk1mS2FtN3NPTTNWN21JQzFVaTBtUjJqdGcydmJ2NGtHaDg2MzJCcVFVVGN6NC10SUctaTFyeWxNMElKYk90OG1vY3drZ2s4aFF0VmhHOUZtRVNGNUNENmh4OEdJai1VNXAxTDFDZW5hdkJoemc5TjJHc29IYl9EZWowX0dyNFFKXzRkaS1kcFQ0TXRJWElMNHpYVWdJYzYya1p0VmxJZUQ?oc=5) |
 | Tropical Storm Jerry has formed and should strengthen into the Atlantic’s next hurricane. Here’s where it’s headed - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNcjlfMjdma0E3MDR3MWl0YThIYlRNcmdialRkNE1WRHRpM1NldG43TnNaV3luZjJla2dWTXhYbHk3TmF0RHBhX1JHV0xqejYzaFlGWnZRdEFOWTdhUDE2Nld2SVQ3MFFMU095WjRVTm1Vam1hdUp3dEM3d1UwTWJfNG56aFA2Zw?oc=5) |
-| Marjorie Taylor Greene Says She’s ‘Disgusted’ Obamacare Premiums May Double Soon - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxQMDNrZHlmcXRZT0dxM2RQZUw0TW1JNjRYSm5KTTNIWWwyemJHV3VkdlJ2dkZITG9WdmdUTzc5aHNYMk80clBMY1RIWnZTMm9RRG14VmZjM3JNbWhETWpkRW5MTG1ia0lJajdfcjlOR2FsdXdtV05lX3BzUUVhTXVwNGRFQ1hWY0NnaFUwWkNYTEIyNHc0VWhKSkhucGRJVWZQc3B0R2swa29MeWdNVDlmeUE1SG9Ca3UyZ08wTXppbnNLZ1NrMkhJV0I5SlQ?oc=5) |
 | Trump Predicts That ‘Canada Will Love Us Again’ in Meeting with Carney - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOakxDa2wwMkRNSkZPYnJoeWZIczFBS0ZFZ2xMSDJzUWR2UEctY0h6ZnZmZ25ZZGdOUEJtR0s5Q2dZemxhNjVKRG1vQ0Z0M3NESGJyYkZlRkpCS3lmS2RVb0xGTHYyZzRBdHhaeENORThjbGpmaWhXb2hkRVVpQ1R4aFFNWDQ0Y2tXS1VSa3Z3?oc=5) |
+| How Trump could use the Insurrection Act to send troops to American cities - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQblJ2dkp2eDViUXhhUVdPeU9pZV85bkwzYUNFeGRiVlhLRERYekdENTExV2RuLVJqNE9Hb05kZ0dsM2wyaGljQ3NGR1hhT0wwZjJqclBKMnRpN3FvOGwwRVhjVkg1RkYwZzNubGlLMWxnWWpISGFodHBUV2xHSnVnN2xoc05YaDlhcGxYVWtsQW4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
