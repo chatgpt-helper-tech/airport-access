@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月07日 20:56:44（北京时间）**
+🕒 更新时间：**2025年10月07日 21:00:33（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | Stephen Lawrence's mother urges parole board not to release son's killer | [阅读全文](https://www.bbc.com/news/articles/cewn99k9l7zo?at_medium=RSS&at_campaign=rss) |
 | Pharmacies facing angry patients over Covid jab confusion | [阅读全文](https://www.bbc.com/news/articles/cm28q5gqvppo?at_medium=RSS&at_campaign=rss) |
 | More holidaymakers using AI to plan trips | [阅读全文](https://www.bbc.com/news/articles/czdjzm2gv7qo?at_medium=RSS&at_campaign=rss) |
-| Asylum hotel provider makes £180m profit despite claims of inedible food and rationed loo paper | [阅读全文](https://www.bbc.com/news/articles/ce9r5m74de8o?at_medium=RSS&at_campaign=rss) |
 | Thieves snatch Bronze Age gold in four-minute museum heist | [阅读全文](https://www.bbc.com/news/articles/cj9zxdpwn73o?at_medium=RSS&at_campaign=rss) |
+| Mother of Israeli hostage says she still doesn't know if he's alive or dead | [阅读全文](https://www.bbc.com/news/articles/c7840n4nwx8o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -27,12 +27,12 @@
 | Schumer denies bipartisan health care talks after Trump’s Oval Office claim - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOU1V6dlh3RHJzNll6bkZ0T0w5c3V1NEhxWmdZaEozOFJuQkdIN0xrSEpIV3NqdkF4WUNsbWNBOFhkRDBiMjY3bmloTHVzU1dVNnFTNU45bExJSmptTDhIY0lmeFhzNjl6Z0xsbjBHSVF4ZzVTWkxMS0pZQXA1ZlM5QmZOeDRGNzA1MEg0bGgxdXBtRDZ4dVZWbHh5cG42am5o?oc=5) |
 | US Supreme Court to examine Colorado's gay 'conversion therapy' ban - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQQnFtNnhwTFFtSjctNDR3MEtfWFd3QnQzQVc0TUlXTkE4NEtFaDlJc3hKV05MMlVBTDVET0NZbWtRUU1ETV9vS0JJd050MFJRSkJqeTRwUWJWcEVzaU5jczh3eThKVk9vZ1NNRjZ2c0EwZjRKVGtHN0FQS2RDSWUzenZySmlRSkJpMnMwQlBoRXJuZFM5MVJBVTkzb29aUlM5WUhDZjhZWXdKcnhodThxMXptanU?oc=5) |
 | Government shutdown hits air travel, closing a control tower and causing delays across the country - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9BOVlYVUJQbVdWdUpwZk9qb203dHBBQ2J1cDNvZi03TFI0dm4zTWxMc2FzOS1aMmhCam5zTTJfRWhoSG1RWWxoeWlfQjlkakg4SEM1ZEl3UTRyeldsY0MxWjZTTlBjOTVHVTQ5QTNncWpXTDVGT0Ew?oc=5) |
+| Why Macron’s meltdown weakens Europe - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOYmlFWE1WZWdyc3pXVnRfaVFnM0lKU3AyeUVCZlE0Y0lCYUNqakNTSGl0UndrS1JNU3Fvem9pNmhDQTU5b2RtMTFjQlJ6cENNYUZYaloxSVh4MVVIRGZwMlRhcnc2M3pCRGEwM3pBaWp4a294QTItRUhNWll3WkdDMW1ib1NtOFZxOEg5YWZYVzFueWJVSU9iS3dRSEJaZw?oc=5) |
 | Watch: Bondi set to give testimony to Congress at first hearing since Comey indictment - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQaHlBcXZScGVReFNrMksxbEZXenNMRHg3Ry1EWHJkbXQ4S1FIUEluSU1KWEF0T1VkQUR4cF9xN2pnRWZjV3FONFFxbzNFTmlqUmEyUEcwbXM4Q0tCdHFLanM0LVVMU1VROXZFVDZtem92OTlLbkFwLWRrSEM4bGVobWFld2x5LVVld1N5aW5B?oc=5) |
-| Illinois and Chicago sue to block Trump deployment of National Guard, but troops already on the way - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNeXFXaXptcGxlYjFhWjZERnVRZGFyLVFKN0lUcjdILW10U0EyVURpSUR5TlczTmFKS2phcF85Sk8yMGgtbXo4U19DRFViUUY0cmlubHJMVUE5Qnk1X0YwU0FNX3pta1FYSzdBRGlKUVpLd0RYcTdUY085S0FNMXNlM1hnUjNqSS1WeXpr?oc=5) |
 | In Tennessee Special Election, a Crowded Field for an Open Congressional Seat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxPdWlwdkt1azZOWlE5M2JwazNpUGZONFFTMTJDTHhLMmFkUEE0VUloam9iQnRIVExKMDFBcEFKRFlaNDBycjBNQ1hFaXZMcGMxUEFta0pvdURsZ1FBLWxDZ3Mwb2t1cXA0di1Ya0JhQ0pRNzJXNnJWcUIzUElRZTFvU1d2a0F4VHJac3p1Ykp0NGROSk13RVRkMlFoV041UEtqSFNXTEVzWWIwNUxWbnJxSGpXeEVjLXBDZi1lZ0FNUThBbUxPY3FZ?oc=5) |
 | Trump floats Insurrection Act use amid National Guard standoff with states - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPaTloMElYeEl6RXlMdEtxOGNKMVJzNWdqczg1bWdTcFpaZFZNTmZEeEV3Y3JEYkd5VTF0Wm5yZUNHR3Q2bDRiY2lFdU1Cbl9IZWd5OGxUQTRtaGtOZTZ3RXFNN3NxdEkwRm95THVyNHBVQkFxVUFESzFOdU44VE02R3BiOWpxdTBDLUxuZGU3QWNXUQ?oc=5) |
-| Scientist who graduated from Portland high school wins Nobel Prize in medicine - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMi2AFBVV95cUxOam00c196VnY0czBPOEVYREZpcUF1dUUwWVJ0RGxtbG4wYldPakZZMjZENU15dldEZmhZVndKcUZGWlpYTzB1V0x5dlJBQV9MQm80SXJNbF82NlR5TzZPaHB4Mk0xYTJ0TjRGTUFIdlFWWXMzQkV3VEU5bkJSNTFSSzhGTlYtdVpqNGtqUFI2bjRWeldEQWFacFVxenR2cEl5RWpaM0Q5ZndGcWxmbXlDVXZoMXVTV3FZUkk3bkJwY1VzM1RZNTFYWkl4djRSbWRQeDN1M2ZiQ1fSAewBQVVfeXFMUENSRmxPQl9WbUoybzc4cTZIcTJXY1N5WTJVUTA3STNSejBaUjI1OHJLUW9YeVRjQ2dtRFhreF9rbE52UThxcGt4YjZOSWdrZ3VZZjVLSXR0d1NGaXM2d1dWLVotNC1rbjZ3TDdEOFpHSzZzeGZldW96b3FkdDBrRmtzdHkteVdxS2dkdEc2Ukh2YjFmMENKWW5nTXpkNHBCbndaNVJ5MEEya2QwSDFoTUxibUNrWk1KcmI3OFVyWkltdmFVbGZDWS0tMkZPNUc5Nlp0SjhZRXRORjhVOWtIOXEzcXdBWUxVdDR6OG4?oc=5) |
-| Bill Nye asks Congress to push back against 'extinction-level' NASA budget cuts - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNbnJwQl9maFF1SlJqNjhtRXNWZEgtalIwRkNOV1FXWnhuYkhONE02RWZCVEw1TEl3SS1ScTlBVHpERHRuYmZ1Ym5wQldZaFUwNW9YWi15LU1IaG5hMWpQUDhqR0hRN2hHckdnVlgxdGN5Y0tZM21BRjhIMmVSRkZHaVRodkF0aWl2eWdhM1pwVFFQOHZRZnFkSFVGWnlZTTlSeXfSAacBQVVfeXFMTV9VZTRudG5RV0NxUDlJaWpWTVRpdW82MDJPY1NoTWhWdGVyNTZ6UV9RUkotSkVWTVFQX01ENlVDcVR2a09wRFEtUnpxaWhTdGc5b0xnY2U1d0RrMk5tbVlkcEwtREhUOHhWb0w2NnhXWW4yNFBWYm5ScUdWOS1Jd3dOMllqR24xeVNXUUsxVTlsRTRSWEJpSFNZUW5FcmhBNkRTbHU5UFU?oc=5) |
+| Virginia Democratic AG nominee's violent texts shake up the closing weeks of the state's race for governor - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQWDAxb1RxVlJ1SjNxR2dRREs2WnROY091YjU0VmJoM0Itb2FaSjVwdWZiMEo3TDh4aUtfQjl5UEhQRUdybGtXVlBHNFo4Y3VsUTBISnJXeUN6elgwYXJ6SGVmOTNkbVlhUVZoeUlfczU4S2h5ekRNQTlsR0NpNUxndG9sWDhaOWdNVHc4ZDVQQ0ljUWdjSXdpVXQzREFLOGFSbDJBS2c3NkltZnFlWmJna9IBVkFVX3lxTE82dWYxS3RYTU56TFNkYktWZEdraWJoMmVlbWNsWjAtcFU2ZWhhbE8yeG5nVnQwdk9FWTl4aklPdklweDVsU0xoVFFKc0NEXzlreVZyM21R?oc=5) |
+| His Off-the-Grid Vacation Was Interrupted by Winning a Nobel Prize - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOYnFNb0hOZkpvaXNyeG9qdEVVYXpHbDh1dTRXVlByQS1uWVJKaldPOGFTNmhKYWwxVmN1QzNVSlVmZFFIRWVGaWhaYW9VcUJhUkxYUU5sLUFWeHFROUpOdlR5Q2VRNldPMHpHRzFoXzh2SU16c1prZFBXZnRBUG9vNlB6emRYQUQ4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
