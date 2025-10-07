@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月08日 03:57:56（北京时间）**
+🕒 更新时间：**2025年10月08日 04:00:18（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | How Trump could use the Insurrection Act to send troops to American cities - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQblJ2dkp2eDViUXhhUVdPeU9pZV85bkwzYUNFeGRiVlhLRERYekdENTExV2RuLVJqNE9Hb05kZ0dsM2wyaGljQ3NGR1hhT0wwZjJqclBKMnRpN3FvOGwwRVhjVkg1RkYwZzNubGlLMWxnWWpISGFodHBUV2xHSnVnN2xoc05YaDlhcGxYVWtsQW4?oc=5) |
 | Federal agents taunted Chicago woman to ‘do something’ before shooting her, attorney claims - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNYmUzdVVpXzNmRkpNakZWR2dDUjYzLWp0Mm95WVRDLUtNYWJZRS1BQWdLZXh1ZE9LeDdxZjMtR0pwUW1ac1NxY0lCZW5Zc2tFUUJtTExQWkJsWERlQUFfdmh6V1BHMXFFejh4a05IX0VaTkpKZS1kRHJOMDRndnRmbnVmVTRYQWZWX3ZpX3RB?oc=5) |
 | Sen. Josh Hawley falsely says FBI ‘tapped’ senators’ phones during Jack Smith probe - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQVmZYNFdKemc3RTdkZ19pbG94QnpVSUpLSHlxY1lnMTFuM0hxajJUUVZ1akpmUlNfWThYZ1BrclBxRFJsbXVPWUlvUWotenZ2cmltdlozMEhTVTI0dW1IMENXZGl4NUUzM0s5bk5GM1J0cVYwdU4xT2VtVjg5SzM0SWNEeEYzS291bm8xenkyaFhoNWFKdDZkY3p4bXdBR0ZoSVlaNA?oc=5) |
-| At the center of shutdown fight, health care is one of the most intractable issues in Congress - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQQVVnUElNbFE5R2dCMjFBdHRrMmNoSFlOMlZxWXNSMkR2UjN6TlZoYWF6ZGN4SjlLYkM3ZGVhSnpDS1N4Vzc1Q3FNSVdWYXB3RWNuSVFvVThRWEk0dlNDUTRGalUxRFFaa2p1elBFXzdQVkp1YUxQclM5VmE0Zi1WTlRUY1pBNUZXQlVlVG1KSjlBT0JDTGU5ZkxLcnFqWDFYSWhWNmIybHEtcWhYcXc?oc=5) |
 | Tropical Storm Jerry has formed and should strengthen into the Atlantic’s next hurricane. Here’s where it’s headed - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNcjlfMjdma0E3MDR3MWl0YThIYlRNcmdialRkNE1WRHRpM1NldG43TnNaV3luZjJla2dWTXhYbHk3TmF0RHBhX1JHV0xqejYzaFlGWnZRdEFOWTdhUDE2Nld2SVQ3MFFMU095WjRVTm1Vam1hdUp3dEM3d1UwTWJfNG56aFA2Zw?oc=5) |
+| Trump Predicts That ‘Canada Will Love Us Again’ in Meeting with Carney - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOakxDa2wwMkRNSkZPYnJoeWZIczFBS0ZFZ2xMSDJzUWR2UEctY0h6ZnZmZ25ZZGdOUEJtR0s5Q2dZemxhNjVKRG1vQ0Z0M3NESGJyYkZlRkpCS3lmS2RVb0xGTHYyZzRBdHhaeENORThjbGpmaWhXb2hkRVVpQ1R4aFFNWDQ0Y2tXS1VSa3Z3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
