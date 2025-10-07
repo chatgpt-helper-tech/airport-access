@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月07日 23:40:12（北京时间）**
+🕒 更新时间：**2025年10月07日 23:48:52（北京时间）**
 
 ---
 
@@ -12,8 +12,8 @@
 | Stephen Lawrence killer admits role but refuses to name accomplices | [阅读全文](https://www.bbc.com/news/articles/cewn99k9l7zo?at_medium=RSS&at_campaign=rss) |
 | Physics Nobel awarded to three scientists for work on quantum computing | [阅读全文](https://www.bbc.com/news/articles/c98d00nq47jo?at_medium=RSS&at_campaign=rss) |
 | Macron should step down early, says his first PM | [阅读全文](https://www.bbc.com/news/articles/cn0rjn3l8w2o?at_medium=RSS&at_campaign=rss) |
+| Prosecutors to challenge Kneecap ruling | [阅读全文](https://www.bbc.com/news/articles/ced57ddgqpyo?at_medium=RSS&at_campaign=rss) |
 | Man guilty of stalking TV presenter Myleene Klass | [阅读全文](https://www.bbc.com/news/articles/cj0766g9edyo?at_medium=RSS&at_campaign=rss) |
-| One iPhone led police to gang suspected of sending up to 40,000 stolen UK phones to China | [阅读全文](https://www.bbc.com/news/articles/c20vlpwrzwdo?at_medium=RSS&at_campaign=rss) |
 | More holidaymakers using AI to plan trips | [阅读全文](https://www.bbc.com/news/articles/czdjzm2gv7qo?at_medium=RSS&at_campaign=rss) |
 | Dwayne Johnson is philosophical over his film flop The Smashing Machine | [阅读全文](https://www.bbc.com/news/articles/c78400jpd40o?at_medium=RSS&at_campaign=rss) |
 | Jeremy Bowen: Two years on, will Israel and Hamas seize the chance to end the war? | [阅读全文](https://www.bbc.com/news/articles/cvgqyj268ljo?at_medium=RSS&at_campaign=rss) |
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Peter Navarro, Trump’s embattled trade adviser, on hand for Bondi’s Hill hearing - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNQ2NmczVZX25MRTRqd2MtVzg3NW9SUnVoVGdzWVZSSHJFdG5lUnFGZ1NYbkpvOW1TbUZuN0VCT1pqaTI0QkRLTWV4ZVhaRU9vVGdGVFJOUU1OdTkySFphVEZiVndya3VRN0JlNndiREpURzlGdGZjVkNDcHBZSE9fNnZpZUc5dXAwYjMwc2taR3NaUQ?oc=5) |
+| Bondi faces grilling from Senate Democrats on DOJ 'weaponization,' Epstein files - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPT2ZTLW5ldE1VNTlLZHRBQzJkMHJvN2VHcG0tNm1TVWdBWF9UdFdaVHBkbk9ZVThXRm9xa2hhczh5d3hZaGZXVk5TOHBxUV80NENZQTU3ZVFhSU9kZmNqMER4X2VWMXZLSHZJSkNhbl9TbG5Qc3Z6WTJGbXp4andhSEJOSVZvM0JYeDBIc2k2MGNDWEtlU0dlZm52a042MEZBS245QzJSVWl5OHJWa05QMzk0eDZqcm_SAbwBQVVfeXFMTV9BdUdJaFh4YmxPdzZhbHE5WHV3WGVTa2xyT3lpSUFDaVd6M0FrdkpiRTN4dlcxR29KZ2pxM0lfekFvN2xfZlp6SktHLTFwUlI0RFpRc0tNZEFtMl9HeEx4LVRnWk8tcC1teHRCSHZUX1ZwWkt6ME5lbzJ0Wjd2Z3FIT1N0YTl6UnBDM2NkWi1MQ1ZweTIycDR6cHpzeXNOTEFKVDNxRzhVSFJPN0M1UHpRVnF1bWUxSzhVQl8?oc=5) |
 | Supreme Court Hears Free Speech Challenge to Ban on Conversion Therapy - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOaTZmMDJIcERXY2JfTU52a1JjUHByZnlVSGhBMjZjcm1KZGZqWEJUOFFtRElvLWdfOE13VVlIUXpSMzhXSFBIbkczMmpSM2ZaRlYyNzhxR1VHQnVkM2V6ZWFpYWROYmM3Yl9ISVdIbV9zM3VwQ3NYdXRQcFU5S1VmN1VyalhnTGFEa25McWFWMXVodUpfS0FILQ?oc=5) |
 | The ruin of Gaza: how Israel’s two-year assault has devastated the territory - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxNVl9fSlNVWFNaa3dwNlliZk9LenRRYzM1eDFLQms0dUpDSGhOV3NweXRmWktDUlpObUlxMnA0bF9vb0ZtaEVselJYeUdndkNjRXNOWmx5MWg0bXMtQ0NtNUdjVUdIS0ZhVHk4bzBha3hYZ3NxM3FYcmRsOE56MV84d0p6R2ZKblNaWjloZHJnRndFTWVnVkpYOXgtWkw0MFBfMmcxZXhYR3ExVG41QTVmdnhSX29RVThfQTNkX3VaTGltaUZ2YXVZVUpJU25EMFU?oc=5) |
 | Illinois sues Trump over National Guard deployment to Chicago - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPUVhfLTJLLVpld2FXbFlueVlESHZzUGpmNkt4SXlCaHJ4cFFXZTVpWE54d3FwdVBEaG50eFB1TTZEamh5MFozUS15VFBWa2xoR0d3NG54TzZnS3VvYVFTck9xRVVJMmNVTi05Rl9kOUpRQ1NXU1BoTWF2THZ1VVRvNElfc0VkcFM3?oc=5) |
