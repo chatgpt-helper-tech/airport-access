@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月07日 13:08:45（北京时间）**
+🕒 更新时间：**2025年10月07日 13:17:45（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Amid talks in Egypt, Trump says there's "a really good chance" for a Gaza deal - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFAwS0N3djJhQVdKMGgzc2FYSUxMakxndzIxc3dGM1ZRdE5oTWp5cngtcUxqWmYtZkhBRkFiMzh2Mjg4WGMtYTRPd0FQNU9pQUJka1pSS0ZBNVpUX3ZNU3F0aVQ4S1RVY2lfd09kNjJJQV9EVy1rZnc?oc=5) |
 | Appeals judges will decide fate of Portland troop deployment - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMWcxRU54UV9aWXc0QmZONVJUTkZhSWltWlE3ekt2ODFTbGoyaXZzblM2MGVMREZ4LUs0SWhqNVBPaTFESFkzb0lIUmxPM1VUcHZWQjh0QjJKTlZWd1RpTUZHNE5lSmwzdUdmRVd1X19qWFBXQUcydkc4azZvc3VsZlg3U2V4N2s?oc=5) |
 | Who is Bari Weiss? CBS News' new editor-in-chief is a vocal critic of legacy media - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQNGJXUkhOTFpua09QTHdDN0Q4NTdnTU9HVTFLbFZPak95WFoyYlhUTklhLThCWG81dlZCYlVYbE5tU1VBWEprcTV0ZmhLT1R5c3JCSEJLdWRqLWl5QzlpUjN5OVFOMlozSThEdkNlLTlQcTNPc3V6TmRPSkxkOTZBdg?oc=5) |
-| French farce: Macron accepts PM’s resignation, then tasks him with emergency talks - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNYkVrdG5JMU15YXhCQjVEVGxockJtZFVYRExhSF9PdGNxbTFmeXRKQXZjSURGY2hZMm5YaXppZUZMd0RQVG1BZXpNWWZrM2plMVF4OUxNX0lTaWE2QnR1Zm1GRmJ0bEg0Tk5yeGM4bnhaRDRDcFBTVFhlcHBZM1RueU5HajBaaDBUbXFuRW1TT05pYkZOYllFM1lwNkZxNlljVENyWXNJOVExemxpRlMwMWlIVVZnWmxFX09F?oc=5) |
+| Trump Said He Could Invoke the Insurrection Act to Deploy Troops. Here’s What to Know. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOVTBjYk55QVU1anJoVXpBQVBCZnMxQ3IxVk03WUpSOENvRzlGdDB4N0xyRGtDdkxHNVFSblNKZDZFcjJVZkhUTEE2MTR4UjlCaHoyMkdqa0ZpekFha19GZ1BqMHlqRlBYZTFUZ01hNFZROEwwZXBzX0NIdEI2X1FUZFdoak12QXc?oc=5) |
 | No evidence fire at South Carolina judge's home was arson 'at this time,' law enforcement says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxQMU91RGF0Wmh5Vm90Ym5vVnpkbFQ1XzMwcjFqY0wyVzFEZmlScFN2bDFxSV9nblV2OXJ3MXplV21QU3kwd2JJbXZSTXY2bDhQSjZZNnoxay1jZ1N6dThJTTlzMnh4Q2hURDdjaEZybk5BQkRESlgtNzY0M1ZHQXRCOWRFamtGMWFuVmh4Rk9FeDNVMzV5NlpfUkEzb1lUSUJ1dFYyM0I4bjJOV2dWd0lpaGdXVEFVYkFWUmxLdlc5THBUZnowSlVQMFdXVnDSAVZBVV95cUxQbWxjNDVHYXk0RkNSRl85bDNKN0F4aVdRNTA1YlJxNDVlUlhYRl9VQVJrNWRuUGNfU0ZFcGVnOTNtMEJZLUNkVUQxRXdDR0ZpZkxLSWZudw?oc=5) |
 | Burbank airport air traffic control tower unmanned, flights canceled amid government shutdown - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxNT0tURFZpaHk3N2tBbHRYWWxVS3N3d0pPYndzNF9EZ1N1dlZtQjh6WTZTanFwQUVXS0huVGRLM2VScjlfTkd5QnhuRzBqQUY5NWhqYUxwc05YQXp3X0R3alRyaFBIVzg1bWpCZmp1cTZYTWM3SW9RYnlrcVJDSktOV3k1VkU2RFdiQ0ZiM3JQVk9OT2x0dVlUUk5YWXJBMVRtOVlKLWRCbWk3UnBxakx6MUtpcWo4dldoYnBLNjhnOGptcjFQZWMtc3Etb3o1em9UcW5PUDJ3?oc=5) |
-| A Harvard Professor Is Placed on Leave After Firing a Pellet Gun - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQUjdoR2ExS2Myem9teVRWa0JrNGpRRTE4QmxQM3c5cXdNY2NyemlBLTh2UmNvVy1UWXR2ME1TalhqQ0tXUS1DZ0dOOTA0NHhqLXBIYU5fUW5jMzBwZnhYUk8zbzExYjVkN2tHSUNMXzkxdU9CZXdmWjBnVnpLVmpKZC12NHVrMVdh?oc=5) |
 | Nobel committee unable to reach prize winner who is ‘living his best life’ hiking off grid - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPMXdmZDJieDc5VFlyVC0wTVRRZ3BnRVhVNDhVUk5IZ3pXaDVCelRjZWlHUzR0YTVHcG9aTmF0N0N0c0RwQ2Z1cXVuZmhQTUxfUjNkanRyV29ISzNVNXpkZTloUzJ3VlY5UXFUWWRNaVNoNXB3U0ZWTGQybWxMYTdGMEtyYXloTElSbDl2RmxpaGhZYkVodEJKZVFuQUdBOGUwWFZDQmZ1V3IyMlhtVklaRlQwYXhqSFlp?oc=5) |
+| A Harvard Professor Is Placed on Leave After Firing a Pellet Gun - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQUjdoR2ExS2Myem9teVRWa0JrNGpRRTE4QmxQM3c5cXdNY2NyemlBLTh2UmNvVy1UWXR2ME1TalhqQ0tXUS1DZ0dOOTA0NHhqLXBIYU5fUW5jMzBwZnhYUk8zbzExYjVkN2tHSUNMXzkxdU9CZXdmWjBnVnpLVmpKZC12NHVrMVdh?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
