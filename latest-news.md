@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月08日 03:48:55（北京时间）**
+🕒 更新时间：**2025年10月08日 03:57:56（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Bondi testifies before Senate panel at first hearing since Comey indictment - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQaHlBcXZScGVReFNrMksxbEZXenNMRHg3Ry1EWHJkbXQ4S1FIUEluSU1KWEF0T1VkQUR4cF9xN2pnRWZjV3FONFFxbzNFTmlqUmEyUEcwbXM4Q0tCdHFLanM0LVVMU1VROXZFVDZtem92OTlLbkFwLWRrSEM4bGVobWFld2x5LVVld1N5aW5B?oc=5) |
-| Government shutdown live updates as dispute emerges over back pay for furloughed workers - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNMTQtMEFxRS1MaW9FMUxRdlhqRlBJMmx1Y2RwempQRkQ3Y0xJd2hic2hja05ZY3ZfeFR1M1N3eDk3WXRQTDJ1dFdDUWZJOGlfLS1WTG9vcTdOVmNwX1diY29WY19VTFhKeW0zWFJSaE9COXlBU0dtUDNlV0VwVmJrZ2tWUlFBdURrdE1NWU9OcGlDQVRKZTVVQThfeVFTb3MwV0FZN3JaMldrZw?oc=5) |
+| Government shutdown live updates as dispute emerges over back pay for furloughed workers - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNMTQtMEFxRS1MaW9FMUxRdlhqRlBJMmx1Y2RwempQRkQ3Y0xJd2hic2hja05ZY3ZfeFR1M1N3eDk3WXRQTDJ1dFdDUWZJOGlfLS1WTG9vcTdOVmNwX1diY29WY19VTFhKeW0zWFJSaE9COXlBU0dtUDNlV0VwVmJrZ2tWUlFBdURrdE1NWU9OcGlDQVRKZTVVQThfeVFTb3MwV0FZN3JaMldrZ9IBrwFBVV95cUxQY2Ftak03UnhZN3hvMHhnZEgwREh6VXd2YnZmZ1doYlk3S01YOUF5d3paZzBMWklGalk2U0F0S0F3VDNCQXBmS01raVhZRzRUanRlb0dGbDk5ZzhzRExvSFl4NnlKZzRkbzdnOHRURjNLamg5OUZpT1UyaFp4TlpCOXBIU2NyYUlKN3RWNE1tcXBBU19DbV9EUDZLTWRhUXRIOHRacVkzVnlfanZWbEow?oc=5) |
 | Supreme Court skeptical of state bans on conversion therapy aimed at LGBTQ kids - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQcGFLZ1lWTWx6dllTdWlTdHJ6TGo2d2V5N0EyNXpoeFh6QTA2dTk2VzRVaHJBYmFpb3gydmJrQnVuLTVndlFOZVpiVDM5NllQT2lhbXBYc1g3MkR2aVdjV2w0YUM3Wi12RnllNUVZVG5wZTNzTzRXRzVvejlzY0JFbFZvelRFNnRxemdHVm1ralpzVDd0V2tVblBXQ2N6V3pMV1pmT01zaGQtdUh5NE41blg5eU5rVGNoRDBaVnZCY3pmck5aSF9Z0gFWQVVfeXFMTk5jbW1PdlNaSXViZmhPLTBtVjNSZUU1RXp2eTgwM2s2bHZQcElZSGNXVkREODFQOVExYmo4eExDU1VnM2NSSGU2UFZPY2N1anlnRzJZR0E?oc=5) |
 | Texas National Guard arrives in Illinois, as Gov. Pritzker calls for end of Trump administration's 'authoritarian march' - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOVGpzTmJhM1lyNG0yS1RWOTdxeENWekNRa2w3M1FfU3VHWGFyY2VrdDdnUDM1OTFTczFvNnVBOWpTbkYzTHMtNno0UW1GcFdSVFQ5UFA4ZWs0WHRZVkh5a0ZOQnRBR1RMZTVuNlg1R3FZbGcxR1NxdDdpRG9lYm1qdTlSSHQ0Zm9ZMm9qVHRmdF92aTdpOEFqek5mbFdaMWN6b2fSAacBQVVfeXFMT3RiWDloTldrM0VUZ29UYkExeW1PMFNBbmcxQkRhX0plZU5BeENQX25XMWJMdFNEanhWX0haZnY2VlU2THY2WkU2TU9xNE1DN2NZT1VzNTgyb0I5RVdSMWxuei1YQTJ0NEdZMHhnUzVsN0hmTGtXbXpoX3NjRmVIOEVsN3J0RzRRc2l2WlF3dmJtSWg3VFlWSG8ycHFrTDd1SlVjbnZfejA?oc=5) |
 | Burbank and other US airports see delays as shutdown hits air travel - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBuWnVpMVFyTURzR09xRHBsakVIdUpEZThzQkliSkhUc1BGczJwQmlCVlktYjhKV05MM0FVSUF3RDA5VUh3TXpQX2FaTC1EUF9yUHQ3RmpfbnU0UdIBX0FVX3lxTFBTWkRETlRsejBUVHFyM3UySWFzUndENjFtQnJVZ09jX2V3bnlZX0xQMjVDVThDZFU0X2pFYTdUZzRCbTc4ZkhkdmZCQktZRUNTZVBPTnktV0R3Q0oySGhV?oc=5) |
