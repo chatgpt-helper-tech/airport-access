@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月07日 22:49:46（北京时间）**
+🕒 更新时间：**2025年10月07日 22:56:26（北京时间）**
 
 ---
 
@@ -27,8 +27,8 @@
 | Supreme Court weighs conversion therapy in case from Colorado - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPaEpha3BrQUJ0V2RZZFl1elgyTVFGUlJDUHN1SFRoYWpTS082ZUZPZUU5N05IT1Q3NlBETlk5QmdhWm9zc2dMYUNkTExqOU5oSlVJbi1nYngteDVmS1RfMmV6bEdVNU5NdzQ3OHcxTkVfX05iSnVxZWVsNVRrOEdqZlAwNXBQd2NKNlVjN1Nvdw?oc=5) |
 | How two years of war in Gaza have changed the Middle East forever - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPd3Y5VC1xNDZfUVRJWERCZ0FhWkhvOGJZVXJ6Ul9feGdLakl1QXhxOXZHdWRISlNNaDRfYlk4QmZVNFUzTTl1eGQwUTYyVzRrMkwwQ2h5d1VzX0RZNGo0TFQyLVJna0haY09DWnJ0UGVzUk5mV1FWNkFxZURYbTQtcw?oc=5) |
 | Here’s where Trump has deployed National Guard troops – or is trying to - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFAzajJMMGtDUjlVYzF0TjBXZlNHam8wNnphampPQlNLekM0RGVLLVRBWTY2QjM5QUJVbkdhMHlXQTVxNlZiQlBGQ0w1OHlYWXlERnhuRjJxcmFxanZVYzhQd3hpRWFMMmhQOVNxaTJQQm1saFh4WjZCbEV6dw?oc=5) |
+| Trump Opens Door to Talks GOP Has Resisted as Shutdown Extends - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOS1ZpZVdjR2ZqWU5CNTZTay1qX1puUHBTcms3Y1VjUlFFZDFSMUF5LWhqREhmeDllTVNHaEY4YmZWa0IxYlZaNzlFZ1lSUWJSNmQ5by13UGdqYXhUdXR0MXNtcF9ubDBqV1VDMmhXWTczUlFRRWNsaDdkLVpaYnlnZnZQWTE2MlY4VDBmdHlOZFAzeGZWVXNLNlZFbWItVkljZUlKaEJFT0pwb0M5N18tUmNIMA?oc=5) |
 | Government shutdown hits air travel, closing a control tower and causing delays across the country - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9BOVlYVUJQbVdWdUpwZk9qb203dHBBQ2J1cDNvZi03TFI0dm4zTWxMc2FzOS1aMmhCam5zTTJfRWhoSG1RWWxoeWlfQjlkakg4SEM1ZEl3UTRyeldsY0MxWjZTTlBjOTVHVTQ5QTNncWpXTDVGT0Ew?oc=5) |
-| House Democrats launch probe into government shutdown layoff plans - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQYlROTlVYQ0VucEVQUGgtZFRXMFFFNGhzd3pud3dnaFRtMkI1Rk5ZT19yNlZmM0RSOTRyM1FEc09qT2xNOTRnbnFBbW9YaFhjWjV2azBTWHlVNVRkampFNHF5ZjB2b3l2eWZDR3VrcngxUFpsSE84N1dXTDNocmxFazFKZDI3RGNUblQ0LUZFSVB3QjVVSUxYNGk1eDByOVpJSTVaSXB2ZXRKUjUyaks1XzA2cUtFcnAxVEdLVkZyMTA5Z2Fy?oc=5) |
 | In Tennessee Special Election, a Crowded Field for an Open Congressional Seat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxPdWlwdkt1azZOWlE5M2JwazNpUGZONFFTMTJDTHhLMmFkUEE0VUloam9iQnRIVExKMDFBcEFKRFlaNDBycjBNQ1hFaXZMcGMxUEFta0pvdURsZ1FBLWxDZ3Mwb2t1cXA0di1Ya0JhQ0pRNzJXNnJWcUIzUElRZTFvU1d2a0F4VHJac3p1Ykp0NGROSk13RVRkMlFoV041UEtqSFNXTEVzWWIwNUxWbnJxSGpXeEVjLXBDZi1lZ0FNUThBbUxPY3FZ?oc=5) |
 | Physics Nobel: Three win prize for paving way for very powerful computers - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5pc3FBRnpZSmVGekpIYjNINTF3ejEyOTdIcE0yZUxqcEJndUR5eVNkLWtqYTdvRjh5UEtncGlkUGFxdjEwbVRZeXh2a2NaQUVsQzZQeXQyVDlEZw?oc=5) |
 | At the center of shutdown fight, health care is one of the most intractable issues in Congress - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQQVVnUElNbFE5R2dCMjFBdHRrMmNoSFlOMlZxWXNSMkR2UjN6TlZoYWF6ZGN4SjlLYkM3ZGVhSnpDS1N4Vzc1Q3FNSVdWYXB3RWNuSVFvVThRWEk0dlNDUTRGalUxRFFaa2p1elBFXzdQVkp1YUxQclM5VmE0Zi1WTlRUY1pBNUZXQlVlVG1KSjlBT0JDTGU5ZkxLcnFqWDFYSWhWNmIybHEtcWhYcXc?oc=5) |
