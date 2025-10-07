@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月07日 19:57:05（北京时间）**
+🕒 更新时间：**2025年10月07日 20:00:13（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | How two years of war in Gaza have changed the Middle East forever - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPd3Y5VC1xNDZfUVRJWERCZ0FhWkhvOGJZVXJ6Ul9feGdLakl1QXhxOXZHdWRISlNNaDRfYlk4QmZVNFUzTTl1eGQwUTYyVzRrMkwwQ2h5d1VzX0RZNGo0TFQyLVJna0haY09DWnJ0UGVzUk5mV1FWNkFxZURYbTQtcw?oc=5) |
 | Government shutdown hits air travel, closing a control tower and causing delays across the country - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9BOVlYVUJQbVdWdUpwZk9qb203dHBBQ2J1cDNvZi03TFI0dm4zTWxMc2FzOS1aMmhCam5zTTJfRWhoSG1RWWxoeWlfQjlkakg4SEM1ZEl3UTRyeldsY0MxWjZTTlBjOTVHVTQ5QTNncWpXTDVGT0Ew?oc=5) |
-| French farce: Macron accepts PM’s resignation, then tasks him with emergency talks - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNYkVrdG5JMU15YXhCQjVEVGxockJtZFVYRExhSF9PdGNxbTFmeXRKQXZjSURGY2hZMm5YaXppZUZMd0RQVG1BZXpNWWZrM2plMVF4OUxNX0lTaWE2QnR1Zm1GRmJ0bEg0Tk5yeGM4bnhaRDRDcFBTVFhlcHBZM1RueU5HajBaaDBUbXFuRW1TT05pYkZOYllFM1lwNkZxNlljVENyWXNJOVExemxpRlMwMWlIVVZnWmxFX09F?oc=5) |
 | Trump Said He Could Invoke the Insurrection Act to Deploy Troops. Here’s What to Know. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOVTBjYk55QVU1anJoVXpBQVBCZnMxQ3IxVk03WUpSOENvRzlGdDB4N0xyRGtDdkxHNVFSblNKZDZFcjJVZkhUTEE2MTR4UjlCaHoyMkdqa0ZpekFha19GZ1BqMHlqRlBYZTFUZ01hNFZROEwwZXBzX0NIdEI2X1FUZFdoak12QXc?oc=5) |
+| French farce: Macron accepts PM’s resignation, then tasks him with emergency talks - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNYkVrdG5JMU15YXhCQjVEVGxockJtZFVYRExhSF9PdGNxbTFmeXRKQXZjSURGY2hZMm5YaXppZUZMd0RQVG1BZXpNWWZrM2plMVF4OUxNX0lTaWE2QnR1Zm1GRmJ0bEg0Tk5yeGM4bnhaRDRDcFBTVFhlcHBZM1RueU5HajBaaDBUbXFuRW1TT05pYkZOYllFM1lwNkZxNlljVENyWXNJOVExemxpRlMwMWlIVVZnWmxFX09F?oc=5) |
 | Why some federal workers aren't scared by the threat of shutdown layoffs - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQSTRTRzRSVzJsWlp6dnFGTlpudkJ1a2RpQ3NKQ3FjbXhhYVdzSjZmYzJYTnZYa0lWUjdYMWRxMERDcTNxQlptZWxRaFhFUHRUWGlFaXNGRW1VdEdiTlFoN3lpSkwtQUtVMkFNeEx5eklidVBYRmRqYUNaNHRrS1dRQTlXQ1FFbm1tby1fRmZTc2dEQmNpRUV2OA?oc=5) |
 | Schumer denies bipartisan health care talks after Trump’s Oval Office claim - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOU1V6dlh3RHJzNll6bkZ0T0w5c3V1NEhxWmdZaEozOFJuQkdIN0xrSEpIV3NqdkF4WUNsbWNBOFhkRDBiMjY3bmloTHVzU1dVNnFTNU45bExJSmptTDhIY0lmeFhzNjl6Z0xsbjBHSVF4ZzVTWkxMS0pZQXA1ZlM5QmZOeDRGNzA1MEg0bGgxdXBtRDZ4dVZWbHh5cG42am5o?oc=5) |
 | Supreme Court Hears Free Speech Challenge to Ban on Conversion Therapy - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOaTZmMDJIcERXY2JfTU52a1JjUHByZnlVSGhBMjZjcm1KZGZqWEJUOFFtRElvLWdfOE13VVlIUXpSMzhXSFBIbkczMmpSM2ZaRlYyNzhxR1VHQnVkM2V6ZWFpYWROYmM3Yl9ISVdIbV9zM3VwQ3NYdXRQcFU5S1VmN1VyalhnTGFEa25McWFWMXVodUpfS0FILQ?oc=5) |
