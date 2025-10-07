@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月07日 11:56:12（北京时间）**
+🕒 更新时间：**2025年10月07日 12:00:55（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Illinois and Chicago sue to block Trump deployment of National Guard, but troops already on the way - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNeXFXaXptcGxlYjFhWjZERnVRZGFyLVFKN0lUcjdILW10U0EyVURpSUR5TlczTmFKS2phcF85Sk8yMGgtbXo4U19DRFViUUY0cmlubHJMVUE5Qnk1X0YwU0FNX3pta1FYSzdBRGlKUVpLd0RYcTdUY085S0FNMXNlM1hnUjNqSS1WeXpr?oc=5) |
-| MAGA calls for Trump to overrule judges on National Guard deployments - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPWkI3UmdwUUFlb1F6Nlo4dWJZT09WeWpibEtiNXF1OS1DRVBkNUwyWGFIcTFicUxST3c5WEU3cHVDaGJDbTlpcmFhdEpzUEdyZjd1MEtJY2RWWld2amcwVDZKSTk0MW9EWkJGT0tfWGlWeFNySWhlR0JMb1Vxck9ZQ3F5Yw?oc=5) |
 | Schumer denies bipartisan health care talks after Trump’s Oval Office claim - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOU1V6dlh3RHJzNll6bkZ0T0w5c3V1NEhxWmdZaEozOFJuQkdIN0xrSEpIV3NqdkF4WUNsbWNBOFhkRDBiMjY3bmloTHVzU1dVNnFTNU45bExJSmptTDhIY0lmeFhzNjl6Z0xsbjBHSVF4ZzVTWkxMS0pZQXA1ZlM5QmZOeDRGNzA1MEg0bGgxdXBtRDZ4dVZWbHh5cG42am5o?oc=5) |
 | Appeals judges will decide fate of Portland troop deployment - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMWcxRU54UV9aWXc0QmZONVJUTkZhSWltWlE3ekt2ODFTbGoyaXZzblM2MGVMREZ4LUs0SWhqNVBPaTFESFkzb0lIUmxPM1VUcHZWQjh0QjJKTlZWd1RpTUZHNE5lSmwzdUdmRVd1X19qWFBXQUcydkc4azZvc3VsZlg3U2V4N2s?oc=5) |
 | Flight Delays Begin as Air Traffic Staffing Shortages Worsen - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPbm90YlJxLVJrSkdIekxBNkpDRlNjaEsxSWNRbHM3TlBzNEEzYm1nTE15ejhUZXFGSGxiT3lqTkFhX21GSlN3TmM3OFdab05QNklNellvVW0xM09EM203Z3RxeGN1czlJS2l4R25ia2pJYVlyWHJ0MzE2OXl6RmlmT0ZpUW4?oc=5) |
 | French farce: Macron accepts PM’s resignation, then tasks him with emergency talks - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNYkVrdG5JMU15YXhCQjVEVGxockJtZFVYRExhSF9PdGNxbTFmeXRKQXZjSURGY2hZMm5YaXppZUZMd0RQVG1BZXpNWWZrM2plMVF4OUxNX0lTaWE2QnR1Zm1GRmJ0bEg0Tk5yeGM4bnhaRDRDcFBTVFhlcHBZM1RueU5HajBaaDBUbXFuRW1TT05pYkZOYllFM1lwNkZxNlljVENyWXNJOVExemxpRlMwMWlIVVZnWmxFX09F?oc=5) |
+| Portland accuses federal officers of violating demonstrators’ constitutional rights - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxOWVFkNk1mbjF2Mnk3OGdMdjlrZHRnLXhOSzVQcFh5X09nMEJvUWdSSWlyelp5bWh2cFFOT1dIRXlqWFhvbVBLSWFWMHJMcWNGMXNaZlQycFV4VjhXUHFrbjBVZU43QjFVOXVuOTN6VzVmbmxsZV80T0lyenlGb1NuY0RCOTdsR2gtdnk2SVNYLUhDVThYX2tieEZJQVdrM1FfZDJLTlZrUWJYZWlnLTF2QjRaa1dhMTZabEtkaw?oc=5) |
 | No evidence fire at South Carolina judge's home was arson 'at this time,' law enforcement says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxQMU91RGF0Wmh5Vm90Ym5vVnpkbFQ1XzMwcjFqY0wyVzFEZmlScFN2bDFxSV9nblV2OXJ3MXplV21QU3kwd2JJbXZSTXY2bDhQSjZZNnoxay1jZ1N6dThJTTlzMnh4Q2hURDdjaEZybk5BQkRESlgtNzY0M1ZHQXRCOWRFamtGMWFuVmh4Rk9FeDNVMzV5NlpfUkEzb1lUSUJ1dFYyM0I4bjJOV2dWd0lpaGdXVEFVYkFWUmxLdlc5THBUZnowSlVQMFdXVnDSAVZBVV95cUxQbWxjNDVHYXk0RkNSRl85bDNKN0F4aVdRNTA1YlJxNDVlUlhYRl9VQVJrNWRuUGNfU0ZFcGVnOTNtMEJZLUNkVUQxRXdDR0ZpZkxLSWZudw?oc=5) |
 | Amid Trump’s threat of shutdown layoffs, more federal employees being brought back to work - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMi4gFBVV95cUxNaFFIdGQ1cGNuNF80Z1N4Z0hYMjVrRTloZzQ3NlM1ZS1JUWEydzVoZFg3ZGx5dTlhNTB2bEFSS205UUVrQTEwR0s3cmkyNk9IZkdkanFwdjB1TmVTcDl4dTN6Njh1ZmNKQzlId0tsTTIxQngyMy1kemFwT3Q2VXBvRWxOWE5FdW54WFZ2LUNIbjIxdlg5Y1VOTUQ3cHB5a2dtRVhtYlpIQUZKSzBLQlVDM3BJa1NubFdZM2VsRnYtN2dPUVJnV2VUOENvMkhmbkNVQ1E1YVlHZy1WbmttRWV2bWh3?oc=5) |
+| Trump’s use of Guard may have lasting impact on cities and troops - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNQ0QzaEt4RTVhd0czanVzMFNoazRMVHhrYVNqODFPcDkwRXZFS1FlNTFCRDJsckxMRmVGc3FrNGVfTkJBVUZkZ3J1c2hEOFR6ckJHTHc2QV85U1kwZ3NLdXN1aXcyMVNyeWpScEp2UVBxclBkczZZNWFuT3VsV3BzZWJqajFzUDB4em9WTWkydFgyejYyTFVEZVl6OGhBbHc?oc=5) |
 | A Harvard Professor Is Placed on Leave After Firing a Pellet Gun - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQUjdoR2ExS2Myem9teVRWa0JrNGpRRTE4QmxQM3c5cXdNY2NyemlBLTh2UmNvVy1UWXR2ME1TalhqQ0tXUS1DZ0dOOTA0NHhqLXBIYU5fUW5jMzBwZnhYUk8zbzExYjVkN2tHSUNMXzkxdU9CZXdmWjBnVnpLVmpKZC12NHVrMVdh?oc=5) |
-| Nobel committee unable to reach prize winner who is ‘living his best life’ hiking off grid - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPMXdmZDJieDc5VFlyVC0wTVRRZ3BnRVhVNDhVUk5IZ3pXaDVCelRjZWlHUzR0YTVHcG9aTmF0N0N0c0RwQ2Z1cXVuZmhQTUxfUjNkanRyV29ISzNVNXpkZTloUzJ3VlY5UXFUWWRNaVNoNXB3U0ZWTGQybWxMYTdGMEtyYXloTElSbDl2RmxpaGhZYkVodEJKZVFuQUdBOGUwWFZDQmZ1V3IyMlhtVklaRlQwYXhqSFlp?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
