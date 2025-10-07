@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月07日 14:42:02（北京时间）**
+🕒 更新时间：**2025年10月07日 14:49:48（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | French farce: Macron accepts PM’s resignation, then tasks him with emergency talks - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNYkVrdG5JMU15YXhCQjVEVGxockJtZFVYRExhSF9PdGNxbTFmeXRKQXZjSURGY2hZMm5YaXppZUZMd0RQVG1BZXpNWWZrM2plMVF4OUxNX0lTaWE2QnR1Zm1GRmJ0bEg0Tk5yeGM4bnhaRDRDcFBTVFhlcHBZM1RueU5HajBaaDBUbXFuRW1TT05pYkZOYllFM1lwNkZxNlljVENyWXNJOVExemxpRlMwMWlIVVZnWmxFX09F?oc=5) |
 | Appeals judges will decide fate of Portland troop deployment - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMWcxRU54UV9aWXc0QmZONVJUTkZhSWltWlE3ekt2ODFTbGoyaXZzblM2MGVMREZ4LUs0SWhqNVBPaTFESFkzb0lIUmxPM1VUcHZWQjh0QjJKTlZWd1RpTUZHNE5lSmwzdUdmRVd1X19qWFBXQUcydkc4azZvc3VsZlg3U2V4N2s?oc=5) |
 | South Carolina judge's house destroyed by fire; officials investigating cause - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNOFI4aUk3UUJiQkdZSzF4ZVhud2VVUXJFWExfSEtUVzNQYkhsVGt0UGZCS3RMM3EwSXVOUFE2R3V4NmlGemFZcldEUmE0Y2xCVUhMbUh6b25LcUdpSGFNbW9TdC1vUjVqZGlhZFJ6dThDaTBmc09UQmxoUkJ2bUNET3prYVV6OTZ1RU9VMGhoX0pxbmFoSUpnV1Z4UVNLZE9qMlE?oc=5) |
+| Government shutdown stretches into second week as Senate rejects funding bills again - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPeGhxeEVidFlwcWx5a1Nmb2xnSk9lNkZXWnBOZGpiZE9jV184aVF3MG00Z1Rva2ZjRUVYMG45WDd0bmh6bTFGRDhzZWFZVzJCTl9fNUt4aHBlTHdVcXZ3M01QVFZzOTJwYkZUbnNnSUZOZnJsejdiTWVMc2tidWJ2ckNjc3B2OGFzQ0pLTHl2djNpbWpBUHZ30gGcAUFVX3lxTE9aek1rYjM5ZkFyMUo0OFprMlQ0U2tOelhOMEMyV0M4UUljWWtYWERLQjlONXotQTFmSWNwR05sZjdTMndiNzNJcFlTajB2RzJzR1BlTnUxZ2FKcFdnWGNLTHNMU1ZaZXNWMzRGckVoT2sxYVc5aTNQdklHN2lOS1E1NmJOQjhqWmVHbWllZ19ycnBsOEZONHlFcHZyQw?oc=5) |
 | Wesley Hunt Enters Texas G.O.P. Senate Race, Complicating Path for Cornyn - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNaFdSb1d6cnFucVJkazlZYlpfQU9EeE0tVnNIT3NmTVpwOXJIX214MmVBZmFOR0Vyc3RnellVQWJKdVJESVdFbThuV3c0SEVSWkNfN1ZwbEtVUVlIeWl2R0o0SThJeWR2ZFl5SEF5bVZaczZXYkw2ZFJSV1MwMkhtUm8zZVNPM18wSzdrekxiT2tWaXRQ?oc=5) |
 | Nobel committee unable to reach prize winner who is ‘living his best life’ hiking off grid - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPMXdmZDJieDc5VFlyVC0wTVRRZ3BnRVhVNDhVUk5IZ3pXaDVCelRjZWlHUzR0YTVHcG9aTmF0N0N0c0RwQ2Z1cXVuZmhQTUxfUjNkanRyV29ISzNVNXpkZTloUzJ3VlY5UXFUWWRNaVNoNXB3U0ZWTGQybWxMYTdGMEtyYXloTElSbDl2RmxpaGhZYkVodEJKZVFuQUdBOGUwWFZDQmZ1V3IyMlhtVklaRlQwYXhqSFlp?oc=5) |
-| Helicopter crashes on Sacramento freeway; 3 critically injured, officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNcjdYQlQzU2E5dmNFQ2tiNUZGaGpBUktaRDl5RThoRlUzVWJZUzZCanBobG54bkhQXzk0bTluRXBmZklOWHVYbTJGZkJxekZPeG9QQ29Mck4tUzc2QkJZRGFzYXAtYmNBVUFZYVdFb3JUUExYa0xQT2pMamNKLTZ3cW16RVlNdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
