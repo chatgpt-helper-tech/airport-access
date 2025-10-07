@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月07日 13:01:55（北京时间）**
+🕒 更新时间：**2025年10月07日 13:08:45（北京时间）**
 
 ---
 
@@ -10,14 +10,14 @@
 |--------|-------------|
 | Starmer urges students not to protest on Hamas attack anniversary | [阅读全文](https://www.bbc.com/news/articles/c1wgx5v90vyo?at_medium=RSS&at_campaign=rss) |
 | Trump says chance of Gaza peace deal 'really good' as talks to continue in Egypt | [阅读全文](https://www.bbc.com/news/articles/c708l7vgwywo?at_medium=RSS&at_campaign=rss) |
+| Stephen Lawrence murderer must name other killers, father says | [阅读全文](https://www.bbc.com/news/articles/c89djd0yn1wo?at_medium=RSS&at_campaign=rss) |
 | One iPhone led police to gang suspected of sending up to 40,000 stolen UK phones to China | [阅读全文](https://www.bbc.com/news/articles/c20vlpwrzwdo?at_medium=RSS&at_campaign=rss) |
-| Footage shows synagogue attacker minutes before killing | [阅读全文](https://www.bbc.com/news/articles/c62ne93n090o?at_medium=RSS&at_campaign=rss) |
+| Asylum hotel provider makes £180m profit despite claims of inedible food and rationed loo paper | [阅读全文](https://www.bbc.com/news/articles/ce9r5m74de8o?at_medium=RSS&at_campaign=rss) |
 | I was fooled into paying £500 to be a model. Here's how to avoid my mistake | [阅读全文](https://www.bbc.com/news/articles/ckg3w2n8nx7o?at_medium=RSS&at_campaign=rss) |
 | Jenrick defends calling Birmingham area one of 'worst-integrated places' | [阅读全文](https://www.bbc.com/news/articles/cy85zlpwne6o?at_medium=RSS&at_campaign=rss) |
-| Pharmacies facing angry patients over Covid jab confusion | [阅读全文](https://www.bbc.com/news/articles/cm28q5gqvppo?at_medium=RSS&at_campaign=rss) |
 | Mother of Israeli hostage says she still doesn't know if he's alive or dead | [阅读全文](https://www.bbc.com/news/articles/c7840n4nwx8o?at_medium=RSS&at_campaign=rss) |
+| Pharmacies facing angry patients over Covid jab confusion | [阅读全文](https://www.bbc.com/news/articles/cm28q5gqvppo?at_medium=RSS&at_campaign=rss) |
 | Conservatives promise to scrap Sentencing Council | [阅读全文](https://www.bbc.com/news/articles/cn95w5jqyz0o?at_medium=RSS&at_campaign=rss) |
-| First-year resident doctors back strike action over jobs shortage | [阅读全文](https://www.bbc.com/news/articles/cly147075p2o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
