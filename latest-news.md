@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月07日 23:48:52（北京时间）**
+🕒 更新时间：**2025年10月07日 23:56:19（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | The ruin of Gaza: how Israel’s two-year assault has devastated the territory - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxNVl9fSlNVWFNaa3dwNlliZk9LenRRYzM1eDFLQms0dUpDSGhOV3NweXRmWktDUlpObUlxMnA0bF9vb0ZtaEVselJYeUdndkNjRXNOWmx5MWg0bXMtQ0NtNUdjVUdIS0ZhVHk4bzBha3hYZ3NxM3FYcmRsOE56MV84d0p6R2ZKblNaWjloZHJnRndFTWVnVkpYOXgtWkw0MFBfMmcxZXhYR3ExVG41QTVmdnhSX29RVThfQTNkX3VaTGltaUZ2YXVZVUpJU25EMFU?oc=5) |
 | Illinois sues Trump over National Guard deployment to Chicago - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPUVhfLTJLLVpld2FXbFlueVlESHZzUGpmNkt4SXlCaHJ4cFFXZTVpWE54d3FwdVBEaG50eFB1TTZEamh5MFozUS15VFBWa2xoR0d3NG54TzZnS3VvYVFTck9xRVVJMmNVTi05Rl9kOUpRQ1NXU1BoTWF2THZ1VVRvNElfc0VkcFM3?oc=5) |
 | Trump’s power to deploy National Guard, explained - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPdXh3UXlQQTBHaU5BU3ZCSk94VUdULWpLTmJCZ1VISEsyVWVUcEJlU3k2Yk54NmZpYkxJU2pMSm1BLVUzYmItWkpPcU16b01hX3lfVGFnT2NCQmFRNDNmelMwOVZBNkNrczJyNlNaeDJkS2gtQ0JOeGdLZ2JTeU5mczgzd19oWFo3NWRuVA?oc=5) |
+| House Democrats launch probe into government shutdown layoff plans - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQYlROTlVYQ0VucEVQUGgtZFRXMFFFNGhzd3pud3dnaFRtMkI1Rk5ZT19yNlZmM0RSOTRyM1FEc09qT2xNOTRnbnFBbW9YaFhjWjV2azBTWHlVNVRkampFNHF5ZjB2b3l2eWZDR3VrcngxUFpsSE84N1dXTDNocmxFazFKZDI3RGNUblQ0LUZFSVB3QjVVSUxYNGk1eDByOVpJSTVaSXB2ZXRKUjUyaks1XzA2cUtFcnAxVEdLVkZyMTA5Z2Fy?oc=5) |
 | Burbank airport air traffic control tower unmanned, flights canceled amid government shutdown - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxNT0tURFZpaHk3N2tBbHRYWWxVS3N3d0pPYndzNF9EZ1N1dlZtQjh6WTZTanFwQUVXS0huVGRLM2VScjlfTkd5QnhuRzBqQUY5NWhqYUxwc05YQXp3X0R3alRyaFBIVzg1bWpCZmp1cTZYTWM3SW9RYnlrcVJDSktOV3k1VkU2RFdiQ0ZiM3JQVk9OT2x0dVlUUk5YWXJBMVRtOVlKLWRCbWk3UnBxakx6MUtpcWo4dldoYnBLNjhnOGptcjFQZWMtc3Etb3o1em9UcW5PUDJ3?oc=5) |
 | Tropical Storm Jerry has formed and should strengthen into the Atlantic’s next hurricane. Here’s where it’s headed - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNcjlfMjdma0E3MDR3MWl0YThIYlRNcmdialRkNE1WRHRpM1NldG43TnNaV3luZjJla2dWTXhYbHk3TmF0RHBhX1JHV0xqejYzaFlGWnZRdEFOWTdhUDE2Nld2SVQ3MFFMU095WjRVTm1Vam1hdUp3dEM3d1UwTWJfNG56aFA2Zw?oc=5) |
 | Marjorie Taylor Greene open to healthcare deal with Democrats amid shutdown - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOZXlLWF81djNUXzZfMEF3MjVuaXpSRndLN2c4ZFEwNEJESHQzS2NIV0ZwbldYdldSR0hGY3dHNVcyWmlJRGpabng1ZVF5RkJIUkxPS1pna1FLd1dSemhVWUEzX1NuSkNock1rcXQxd3E2eHkzMUhIMmdKbHRPVm5yaUJkVWZYWGRwSk83T2lkR05YXzZ2cTc5TmNFT3pCVEFvSkZZ?oc=5) |
 | USC faculty members denounce Trump compact that would shift university to the right - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE51bDVoOThxMG9odURaYUJsbUpHNzRKV29ULTd5X29ZcmV1V3hxX1lPM0tUTzBZUFVIeDdVbWNuRlZRakFzM21pR3RwTk1OQk5nMF9FUmN0N0JSMkI5bWpxMnVEckF4anRfU2N2Zkh3TFJXaGpBMzhnYkExOA?oc=5) |
-| In Tennessee Special Election, a Crowded Field for an Open Congressional Seat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxPdWlwdkt1azZOWlE5M2JwazNpUGZONFFTMTJDTHhLMmFkUEE0VUloam9iQnRIVExKMDFBcEFKRFlaNDBycjBNQ1hFaXZMcGMxUEFta0pvdURsZ1FBLWxDZ3Mwb2t1cXA0di1Ya0JhQ0pRNzJXNnJWcUIzUElRZTFvU1d2a0F4VHJac3p1Ykp0NGROSk13RVRkMlFoV041UEtqSFNXTEVzWWIwNUxWbnJxSGpXeEVjLXBDZi1lZ0FNUThBbUxPY3FZ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
