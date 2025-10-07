@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月07日 13:48:39（北京时间）**
+🕒 更新时间：**2025年10月07日 13:56:22（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Israel and Hamas begin indirect Gaza ceasefire talks in Egypt - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOaU05QmhaU3l4QWt3eW5BOVphazlxMVFfTktkTnQ0VC1GSW9YbndUQ1hwS3JnSm5YMmtTVHVqZ00yQnpKZWpyTGRHMXBURlhhVk84M0NXR2MxREdJM1lZVFVXb2FlMlFJQVplNVBISEZIa0NITVl4QU9Kc1hJNnJmUzJOc25XRE1GblR3Z3FfRGJHVDdLRW9sQlNfa2VjQdIBowFBVV95cUxQUExuU05HV0pKTk5lSzAzM09DLUZVYnNfQmR6VlA1dnFieE92enNFSGt3M25TZGtLRUZORWM5Uk1FWG5jRmMzYjVZdmEyYmZVNFhrUS1GZDFVNXNmQ212V3hLNEkyTGF1Q3k4R0gyczJtalc1a1FiWlhYNVpIcjZiTllJbFdpdlN1RjF1UjRHbXdsVU8zUmdiOTEzSXFnMDVPOVNR?oc=5) |
 | Trump Said He Could Invoke the Insurrection Act to Deploy Troops. Here’s What to Know. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOVTBjYk55QVU1anJoVXpBQVBCZnMxQ3IxVk03WUpSOENvRzlGdDB4N0xyRGtDdkxHNVFSblNKZDZFcjJVZkhUTEE2MTR4UjlCaHoyMkdqa0ZpekFha19GZ1BqMHlqRlBYZTFUZ01hNFZROEwwZXBzX0NIdEI2X1FUZFdoak12QXc?oc=5) |
 | Appeals judges will decide fate of Portland troop deployment - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMWcxRU54UV9aWXc0QmZONVJUTkZhSWltWlE3ekt2ODFTbGoyaXZzblM2MGVMREZ4LUs0SWhqNVBPaTFESFkzb0lIUmxPM1VUcHZWQjh0QjJKTlZWd1RpTUZHNE5lSmwzdUdmRVd1X19qWFBXQUcydkc4azZvc3VsZlg3U2V4N2s?oc=5) |
+| French farce: Macron accepts PM’s resignation, then tasks him with emergency talks - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNYkVrdG5JMU15YXhCQjVEVGxockJtZFVYRExhSF9PdGNxbTFmeXRKQXZjSURGY2hZMm5YaXppZUZMd0RQVG1BZXpNWWZrM2plMVF4OUxNX0lTaWE2QnR1Zm1GRmJ0bEg0Tk5yeGM4bnhaRDRDcFBTVFhlcHBZM1RueU5HajBaaDBUbXFuRW1TT05pYkZOYllFM1lwNkZxNlljVENyWXNJOVExemxpRlMwMWlIVVZnWmxFX09F?oc=5) |
 | Burbank Airport air traffic control tower unmanned, flights delayed amid government shutdown - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxNT0tURFZpaHk3N2tBbHRYWWxVS3N3d0pPYndzNF9EZ1N1dlZtQjh6WTZTanFwQUVXS0huVGRLM2VScjlfTkd5QnhuRzBqQUY5NWhqYUxwc05YQXp3X0R3alRyaFBIVzg1bWpCZmp1cTZYTWM3SW9RYnlrcVJDSktOV3k1VkU2RFdiQ0ZiM3JQVk9OT2x0dVlUUk5YWXJBMVRtOVlKLWRCbWk3UnBxakx6MUtpcWo4dldoYnBLNjhnOGptcjFQZWMtc3Etb3o1em9UcW5PUDJ3?oc=5) |
 | No evidence fire at South Carolina judge's home was arson 'at this time,' law enforcement says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxQMU91RGF0Wmh5Vm90Ym5vVnpkbFQ1XzMwcjFqY0wyVzFEZmlScFN2bDFxSV9nblV2OXJ3MXplV21QU3kwd2JJbXZSTXY2bDhQSjZZNnoxay1jZ1N6dThJTTlzMnh4Q2hURDdjaEZybk5BQkRESlgtNzY0M1ZHQXRCOWRFamtGMWFuVmh4Rk9FeDNVMzV5NlpfUkEzb1lUSUJ1dFYyM0I4bjJOV2dWd0lpaGdXVEFVYkFWUmxLdlc5THBUZnowSlVQMFdXVnDSAVZBVV95cUxQbWxjNDVHYXk0RkNSRl85bDNKN0F4aVdRNTA1YlJxNDVlUlhYRl9VQVJrNWRuUGNfU0ZFcGVnOTNtMEJZLUNkVUQxRXdDR0ZpZkxLSWZudw?oc=5) |
 | Wesley Hunt Enters Texas G.O.P. Senate Race, Complicating Path for Cornyn - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNaFdSb1d6cnFucVJkazlZYlpfQU9EeE0tVnNIT3NmTVpwOXJIX214MmVBZmFOR0Vyc3RnellVQWJKdVJESVdFbThuV3c0SEVSWkNfN1ZwbEtVUVlIeWl2R0o0SThJeWR2ZFl5SEF5bVZaczZXYkw2ZFJSV1MwMkhtUm8zZVNPM18wSzdrekxiT2tWaXRQ?oc=5) |
 | Nobel committee unable to reach prize winner who is ‘living his best life’ hiking off grid - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPMXdmZDJieDc5VFlyVC0wTVRRZ3BnRVhVNDhVUk5IZ3pXaDVCelRjZWlHUzR0YTVHcG9aTmF0N0N0c0RwQ2Z1cXVuZmhQTUxfUjNkanRyV29ISzNVNXpkZTloUzJ3VlY5UXFUWWRNaVNoNXB3U0ZWTGQybWxMYTdGMEtyYXloTElSbDl2RmxpaGhZYkVodEJKZVFuQUdBOGUwWFZDQmZ1V3IyMlhtVklaRlQwYXhqSFlp?oc=5) |
-| Portland accuses federal officers of violating demonstrators’ constitutional rights - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxOWVFkNk1mbjF2Mnk3OGdMdjlrZHRnLXhOSzVQcFh5X09nMEJvUWdSSWlyelp5bWh2cFFOT1dIRXlqWFhvbVBLSWFWMHJMcWNGMXNaZlQycFV4VjhXUHFrbjBVZU43QjFVOXVuOTN6VzVmbmxsZV80T0lyenlGb1NuY0RCOTdsR2gtdnk2SVNYLUhDVThYX2tieEZJQVdrM1FfZDJLTlZrUWJYZWlnLTF2QjRaa1dhMTZabEtkaw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
