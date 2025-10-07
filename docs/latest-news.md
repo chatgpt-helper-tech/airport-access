@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月07日 10:00:43（北京时间）**
+🕒 更新时间：**2025年10月07日 10:09:00（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | French farce: Macron accepts PM’s resignation, then tasks him with emergency talks - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNYkVrdG5JMU15YXhCQjVEVGxockJtZFVYRExhSF9PdGNxbTFmeXRKQXZjSURGY2hZMm5YaXppZUZMd0RQVG1BZXpNWWZrM2plMVF4OUxNX0lTaWE2QnR1Zm1GRmJ0bEg0Tk5yeGM4bnhaRDRDcFBTVFhlcHBZM1RueU5HajBaaDBUbXFuRW1TT05pYkZOYllFM1lwNkZxNlljVENyWXNJOVExemxpRlMwMWlIVVZnWmxFX09F?oc=5) |
 | Judges appointed by Trump keep ruling against him. He’s not happy about it. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPcy1xbkh4QUFFaGZGSi1ySHJoemNqZGJUb1ZCM3RFTzQ1UHZuNVkwT3ZfLXMyRVRwN0JSeTU5M3pSSzlSZGZoR2hqTjRJM1NxZkdiOXptVlJ0ejc2UzlSdHQ2LUVpYTBqczR1Z3k3d0lacUpYdzBUTUhQV3Qxb3BMX2Y4X3NBLTBq?oc=5) |
 | No evidence fire at South Carolina judge's home was arson 'at this time,' law enforcement says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxQMU91RGF0Wmh5Vm90Ym5vVnpkbFQ1XzMwcjFqY0wyVzFEZmlScFN2bDFxSV9nblV2OXJ3MXplV21QU3kwd2JJbXZSTXY2bDhQSjZZNnoxay1jZ1N6dThJTTlzMnh4Q2hURDdjaEZybk5BQkRESlgtNzY0M1ZHQXRCOWRFamtGMWFuVmh4Rk9FeDNVMzV5NlpfUkEzb1lUSUJ1dFYyM0I4bjJOV2dWd0lpaGdXVEFVYkFWUmxLdlc5THBUZnowSlVQMFdXVnDSAVZBVV95cUxQbWxjNDVHYXk0RkNSRl85bDNKN0F4aVdRNTA1YlJxNDVlUlhYRl9VQVJrNWRuUGNfU0ZFcGVnOTNtMEJZLUNkVUQxRXdDR0ZpZkxLSWZudw?oc=5) |
+| Trump’s use of Guard may have lasting impact on cities and troops - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNQ0QzaEt4RTVhd0czanVzMFNoazRMVHhrYVNqODFPcDkwRXZFS1FlNTFCRDJsckxMRmVGc3FrNGVfTkJBVUZkZ3J1c2hEOFR6ckJHTHc2QV85U1kwZ3NLdXN1aXcyMVNyeWpScEp2UVBxclBkczZZNWFuT3VsV3BzZWJqajFzUDB4em9WTWkydFgyejYyTFVEZVl6OGhBbHc?oc=5) |
 | Federal government to take ownership stake in Trilogy Metals, which has Alaskan mining claims - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE4tTkxFZGVPVFN1UDc5bDBpVkhSN04yUUJCU2NDMEtPWEhiaTNGVUMwaGZqTkNNNDRjUTlMd3UyLTFFM2YwVVZvQWR1UktOVWlqX0RIaHpodFRQRlhnVVA2RWhHa29tLU1LVFZIaWlSZDZVekUtS25PbVdn0gF_QVVfeXFMTXdTQl9LLVFlLWlKYmg0N2lMYVNWLXR0OUNhbF9LOGNnTnBNem5lTnlIVF9RZmhuSTBlZHJyNGFzWjIySmlWd3p5bFZWQUNtVWpWNFFiOHBNeEJWUl9uWnItTjlXX3RJT0RmcUlIY3FSaUZsZXRUckppeUV2M1pvVQ?oc=5) |
-| A Harvard Professor Is Placed on Leave After Firing a Pellet Gun - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQUjdoR2ExS2Myem9teVRWa0JrNGpRRTE4QmxQM3c5cXdNY2NyemlBLTh2UmNvVy1UWXR2ME1TalhqQ0tXUS1DZ0dOOTA0NHhqLXBIYU5fUW5jMzBwZnhYUk8zbzExYjVkN2tHSUNMXzkxdU9CZXdmWjBnVnpLVmpKZC12NHVrMVdh?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
