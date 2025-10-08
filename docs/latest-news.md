@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月09日 02:01:47（北京时间）**
+🕒 更新时间：**2025年10月09日 02:08:56（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | 13 arrested, 4 Boston police officers hurt in violent pro-Palestinian protest - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOVlNCdnh4NDNzVzMxT3hlZGJ1LWZia1BTaEUyZGFpVUxzcFVYbnZicTAxODJOSURZb3o0dWJjZExNcUM1VzZQUHNlSWxLWGMzbmlwNi1nNElvdHBLNF9ORUY3SWN5U1JPaUstV3l6SWxuS3gtOEtZaW9pY2JvQzJiM1VyU1pIaUJxYUQ1di1lYWl6cEdmX2dF?oc=5) |
 | US airport staffing shortages expected to cause more delays amid shutdown - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPdV9ISlM2Mms1dURfckFfV0l4S2tJM0VxSDdYb3BHb0ZWekx1NWwwNEhySGoydkpIVnRtSVcyVy03VXJiSHV2eWxRLUxtWFoyMUtoQTE3TG5vS2tHZHozaDhrWktwTXBRNUVHWEZ3eWNGS3BmNDBFdU1NN0hab0h5UmRzNlhsX0txQkpn?oc=5) |
 | National Guard troops are outside Chicago and could be in Memphis soon in Trump's latest deployment - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOdHM2eXJzRF9vYzRuckVHeE5saHZvQjRqTXRkcVM0eGlySjBNaVR5QWNXUXRyMy1uNjlTMjhnQTFzd0N6eTgxSlNvODZWVmNDcGhELV90SXIzb2dZVXdRZktXcUxSdVViWDlRczhCN2FGWjZicGI4a3lHYzhmUTUwUGJ1R0R2elZYdFhmbDdJTS1iZERjNjFhcEU2WmlUTExpUXdlVHBMNjhzUQ?oc=5) |
-| Government shutdown live updates as Senate votes fail for 6th time - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPZ2NnTDlBN3FqZ2pBYXJPalFFZ1hpeVNEcXBkMGZhdXg2cFVmcl80MmZOSDdXa0k3TExWVzFycndsblpvUk93eldGeHhseW1IcG8yeXJZYmZlVE03ZjBYUmVqNzhuMWstZ2lkS1NIdTRDMTQwNUNrS0tIU0V4VzJEcHhrcGs0ZmZPcHA40gGQAUFVX3lxTFBXdzdpU0lqS2VpclFpR09zUnAyM0pRZzVLTDZleHlYaHh6Q0dSODJQaXd2bFJ1amZlaE9jN0dkTm9ZZkcxSm15ZmNoampQV19GRzRacFR6cWZHUWpMeFdhWURMd082cUwwZnpybkNfcGFYd3doX3BSZk5UUlY0NGhMR2tmTC1iUGFkOWtFTTZ0RQ?oc=5) |
+| Senate fails for the sixth time to pass a government funding bill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQRGd3ZXI2UXBsTm5sNVIyblRlRmdwSE5lREhnbUZnWWtERlRFbXhSM0hCSzcybFM5TGUzNnZrZ0liWGtaVTZnSUUweEFPOGFrTzZjbmUxUGZYUEpLR2Rhb3NRVXU2TFktcDVRTHBJMmFoNHZydW55enY1cFpiV1VMYlVld0E0cThKLVkzSUV6UENoOWNRMHZhUlZOM0YxbFU2T0U0Zm5R?oc=5) |
 | Democrats largely stand behind Jay Jones after violent texts - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQMU9ORG9DYVl6MUoycUxWNkk1Zkc3WnBGc05tNDBtZnBNQVMzYVR1TUhveTIzTG1xUDlacWt5RUo1VUI5b1ZxdjRDT2gwVmxOZWx0ZGRHOGs2eTZqOWMxd1BRUGRHazZ0VUZjaERtUk5ERTd1U0xvWUxmXzgycUt0QnhNMlBkODNkOG9PR1FHNGdzN3VGQnRINURmbTRxT00?oc=5) |
 
 ---
