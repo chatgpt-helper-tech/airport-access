@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月08日 15:02:24（北京时间）**
+🕒 更新时间：**2025年10月08日 15:09:47（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Spy case collapse blamed on failure to label China a security threat | [阅读全文](https://www.bbc.com/news/articles/cy8rl7e7xp3o?at_medium=RSS&at_campaign=rss) |
+| Spy case collapse blamed on failure to label China a threat | [阅读全文](https://www.bbc.com/news/articles/cy8rl7e7xp3o?at_medium=RSS&at_campaign=rss) |
 | Badenoch to set out new rule to cut borrowing and taxes | [阅读全文](https://www.bbc.com/news/articles/c39r8k27rm9o?at_medium=RSS&at_campaign=rss) |
 | UK won't relax visa rules for India, Starmer says | [阅读全文](https://www.bbc.com/news/articles/c9wdzryk477o?at_medium=RSS&at_campaign=rss) |
 | Dog attacks are still rising - even after the XL bully ban | [阅读全文](https://www.bbc.com/news/articles/cvgvy2yyv8mo?at_medium=RSS&at_campaign=rss) |
