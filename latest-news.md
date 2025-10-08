@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月09日 04:33:11（北京时间）**
+🕒 更新时间：**2025年10月09日 04:40:33（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Comey pleads not guilty as lawyers signal intent to argue Trump foe's case is politically motivated - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOS1ExZTJydXNqZkRnZ3hZdkY2QUFRd2Z4M3puTW93dUpQWm9ucDZMTzc3cnNCMnN0anRsM3BCZnJCbXE5SDZkdkFORktFVm1qbjI4bTJxejJ5NEdCUmlWSWFidVFJVXY4TjlLcWtjT1lndzZRUXV6TGpUQlI0UmdWLUVyRzNpcnpHYzdkbWRCajZZZUJZREJlek1Lb1ZfUDZMOFVjS3Y0NGRiRUFFMkVIV010bm4?oc=5) |
-| Florida man accused of intentionally starting fire that destroyed Pacific Palisades - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5oTTdEZTZMdFdNSGE3ZGUyYnlXcXlIckRycEgtdFJxVVpFbzZhUktDaEdxQ3RLYnBhQ0dLMVY5Q2diTGQ2LXRnSzYwU2lIREVsZFZuYkppWVUyVVRJRU9wTHIweDliWndXcFdMc3p5VWxvaFhuandqOFNTTjRDQQ?oc=5) |
+| Man arrested, accused of starting deadly Palisades fire in California - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQM1VYYk5hc0otdjJaWVVCRWhkNnRvdkIycEhFWjZmX1JJWWVaR3VzeVluWmVCZUk0bEdDaEc2M1lzSVRMQlJvREJNQVU4TnU5d0RYZ2pBQ0wzRV9yYVFlalZ4bGhpWE1pNll2TEMxZU8wdFNOMExsR0Z4ei1nMjFrX0JJN2NmdjA2bkc4cw?oc=5) |
 | Trump says Illinois’ Pritzker and Johnson ‘should be in jail’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNRUo0S1pwMTE3SGlFQjVmY2ZacVJYakFMV1RTVjJxYUNiWUdKZTYyWm00RkNsZjJNN3d4WGZ1TlhLMEN4QXNqQ3dCb3AtRHZPY3B3VEszU2t2dEg1WWxhbHJtMEtjS2pYWjYxNFRveEE2SlUtMndZMDdZUk1tQnRYeWdRUGRVbjVKRHYtai1UVXY0WXc?oc=5) |
 | Speaker clashes with Dem senators over Epstein files amid shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPYkJ0THRNN0RYdXNpbnh4OWpHUU1kMW1EMExSWUhqS0dMMy10a2c0VE93bmhldGVoM29BWDBsdTJLMHoyTTZ0a29GRFhjS2FvV0dtcnozNS11QlFPQjlmZmNqZ0RhLWlIWG50cE9NUER3eG1MRjJ4Nkx1Njk1SHlac1pVWVF2TEtyX3lEbmlrTXdsaHc?oc=5) |
 | Trump administration officials seriously discussing invoking Insurrection Act, sources say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNeVV2R182bW52RHdZNU1mMzVhenJKOFYwXzVvZW1XX21CYVFETzJKQlJBX3I2eWV6WWplZE9aX1N1bDRIUXlkRXZPM21JWkNGcXdUYldDUEdFdjdVOGdvaDNUSm1vcHFaUW1jTDhyVnNEdjFrYTZxZENwUUFjeVBEQjdrZnM3VkNNUVRXT1ppNFV5N1JGUk8tcGJnS0pPeHBTN29OVGFPSzNiQjUxQlVfUW15aE01V1lmVk1MS1JEUTNNbjEwakc40gFWQVVfeXFMTVI4VUUxbnZPVUFMWHJYU3pZbVhDaGI1V3ZSRE5kYVgxRXpDWlFvVThUM09GYXdCc3AtVU5zTHp4c2tBZ1YyQzVvUGdpN3MzVEYzUlA2NWc?oc=5) |
 | Last of 10 New Orleans escapees captured after nearly 5 months following standoff with Atlanta police - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQMzBYQ0VsTTBRYkc1YXBiVWNST1dxSGkxNDktR3J4R3drb2QtYTdoUmFkbzZwdFlHcWdqb0tvdG13M3pncTVNWmZ1c0JCV0xLRXFSVmdtSXJzQVBMVTAxNUtZWWw5a2JRTk1mbG1wUlhGcHE1emJPbHJiMmRrUzFWSw?oc=5) |
 | Democrats largely stand behind Jay Jones after violent texts - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQMU9ORG9DYVl6MUoycUxWNkk1Zkc3WnBGc05tNDBtZnBNQVMzYVR1TUhveTIzTG1xUDlacWt5RUo1VUI5b1ZxdjRDT2gwVmxOZWx0ZGRHOGs2eTZqOWMxd1BRUGRHazZ0VUZjaERtUk5ERTd1U0xvWUxmXzgycUt0QnhNMlBkODNkOG9PR1FHNGdzN3VGQnRINURmbTRxT00?oc=5) |
 | How flights are impacted by the government shutdown. And, James Comey's arraignment - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPNFRPZTJmMDRsZHJZUEdHOXV2dWMtdlhhaEdjd25yRmFSY1pQak9LSURuUlFreHQ0ck4zb25BRkNhNGxaUV94ZHllYnUyMWR2Rkw1LWFOWTZCTEQ4UF9VRjFCb2Zzenp1SDZpZHZvcTdiQnBiSlQ0UENONXgzdUVfemJJVkV6d1RxdGhJdG9VV2R5ejRCZzJfS0ZOTU9pV1Foa2JRSzBhUDkwSDFnc1NYUUhQRQ?oc=5) |
-| Most Americans don't want troops deployed without an external threat, Reuters/Ipsos poll finds - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxONGlVZ1VRbUZOQ3NDT1ROSm5xSjUyOUdnYkJwcGxrOTFydDRWMU5pMl9nRzBPOU80dWxOSjlJOVRDS1FtXzNOWkl1V25CV0J3N0VrTm82UU1McXRmVVFkSW1CQnVqSV9rRy16STJheXFsZ3E4VlVESzVhR3VyYzVkd3NpNVJTMGp2V1Qxc3ZMYUNsUzFYUDNjcTlIN21tWThpS3AyV3ZzbTl1U0IyVnI2Z2VfMVVveURER2Q1Q01GQi05STg?oc=5) |
-| US shutdown deadlock deepens as senators reject competing bills - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQbVFzVmhQUEJzUTdNZGFKX2gtaXVZb29oU09FMmFnRmxCdXJHRXhSa05qSVk5aU9fTm43THNtYjJ0UFAtZ1BjOURFX1JUcU1PaDBaQzR5czJFa3B6dkQ0eDNRQU94ZVVLamljSEVsTEJOd21qS0JkaDVtbzkzMzh5VzIwbzRuQQ?oc=5) |
+| France has a path to avoiding snap elections, caretaker PM Lecornu says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNU09wbmNsQmY0REU4dWw1Zk4wUU9zZzc5eDZsVWY3d2l5RTJITU9ZYWJxX2s2LWxhd0ltWERvV3RaTmx1SEt1OG1Gcjh1eVpjN0RSZkZWZFZlamtlVnE3ZTNjWG5USEl0THVNam9HaEdXdENpTlZWX2xQV0UwZi1KUUNxbEtBM2otWjdXWWh1YmZmcFJ6Z0RSRXdxWDBIZVpKUVZFYVBwb21PSFY5SHYtaUlybks0RzNlNy1rbHI4bw?oc=5) |
+| Exclusive: Hamas demands release of high-profile militants in 'red line' for Israel - Euronews.com | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxONTFLdEhkVEtGZS05UW5JQjQ0dkljNktUZVNJZHlHUkhUbThnMXZPUDJNNmc4VlZoQTZOWTZsTUFRSzFCNVFmanp5NUxoSkdNTG82WFNnU1B2aFhPVmpIc19DQldMSUwybnNKUkduQWVuSTI1WU5RanptRG1BaHRSTWxEdWc3RWlsbXhCbXNCSDU1bF8xNm9UWHlkenZ5Rm9JcUdqQ1NfYlhZNTM4Q1dTLXBFdzB5SUU?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
