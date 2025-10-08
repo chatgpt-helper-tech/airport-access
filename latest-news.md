@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月08日 10:48:17（北京时间）**
+🕒 更新时间：**2025年10月08日 10:57:46（北京时间）**
 
 ---
 
@@ -27,8 +27,8 @@
 | Government shutdown live updates as dispute emerges over back pay for furloughed workers - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNMTQtMEFxRS1MaW9FMUxRdlhqRlBJMmx1Y2RwempQRkQ3Y0xJd2hic2hja05ZY3ZfeFR1M1N3eDk3WXRQTDJ1dFdDUWZJOGlfLS1WTG9vcTdOVmNwX1diY29WY19VTFhKeW0zWFJSaE9COXlBU0dtUDNlV0VwVmJrZ2tWUlFBdURrdE1NWU9OcGlDQVRKZTVVQThfeVFTb3MwV0FZN3JaMldrZ9IBrwFBVV95cUxQY2Ftak03UnhZN3hvMHhnZEgwREh6VXd2YnZmZ1doYlk3S01YOUF5d3paZzBMWklGalk2U0F0S0F3VDNCQXBmS01raVhZRzRUanRlb0dGbDk5ZzhzRExvSFl4NnlKZzRkbzdnOHRURjNLamg5OUZpT1UyaFp4TlpCOXBIU2NyYUlKN3RWNE1tcXBBU19DbV9EUDZLTWRhUXRIOHRacVkzVnlfanZWbEow?oc=5) |
 | US airports continue to see delays as shutdown hits air travel - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBuWnVpMVFyTURzR09xRHBsakVIdUpEZThzQkliSkhUc1BGczJwQmlCVlktYjhKV05MM0FVSUF3RDA5VUh3TXpQX2FaTC1EUF9yUHQ3RmpfbnU0UdIBX0FVX3lxTFBTWkRETlRsejBUVHFyM3UySWFzUndENjFtQnJVZ09jX2V3bnlZX0xQMjVDVThDZFU0X2pFYTdUZzRCbTc4ZkhkdmZCQktZRUNTZVBPTnktV0R3Q0oySGhV?oc=5) |
 | Texas national guard troops arrive in Chicago amid Trump’s crackdown - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPRUt0b0hrRTQwcHYxeEp3VFlkTENuUWVVeUN0dk1vN1NXcDV3RW9yVldmTndQWGI4REU5dXRld1VJa0RfTmJ3WW1OYmRERmppMkszel95a0dHS2VsTU41WHNsQ0VfUzJLeDl5cmdNc0tBa3VEOERlcEJhU0xIZ0pPUFRXNnJuMGVIRVZqSVJHMTZlaVk?oc=5) |
-| Supreme Court Hearing on Colorado's Conversion Therapy Ban: Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNWldnNFpFQUhIamNVbWxTQXBHb0RXRC1teFh6OWx2U0RhTW53VlFLWG5BS09hSjJWSTJyblFTQ2QxNzgySS1sXzlXRDd6NWFXWFo3cU45UHd6Ny1wZDk5Sno2dTQ3bGZTVFg4eXRkMmkxc3FPRDI2R1RhN3d6Wk9NMA?oc=5) |
 | Trump's off-script comments cause shutdown headaches for GOP - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOZ1ZHZGU0UmpqQ3hialJHX3RmbkRXSU9tcERUUXotZjZKTWZWVFpJY2ctRjJiRmFQR1VwWk93czdyc19DVkJkcnNwRFRhNHpQQXNZTjhfM3VMMEpFem1oUDloXy13aHM4MndLWTM3c0U4cXdJdVp5U1pVNlh0bFQ4WVh0QWROUQ?oc=5) |
+| Supreme Court Hearing on Colorado's Conversion Therapy Ban: Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNWldnNFpFQUhIamNVbWxTQXBHb0RXRC1teFh6OWx2U0RhTW53VlFLWG5BS09hSjJWSTJyblFTQ2QxNzgySS1sXzlXRDd6NWFXWFo3cU45UHd6Ny1wZDk5Sno2dTQ3bGZTVFg4eXRkMmkxc3FPRDI2R1RhN3d6Wk9NMA?oc=5) |
 | Trump-backed Van Epps and Democrat Behn win Tennessee primaries for special House election - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi2wFBVV95cUxQM3JBRWE2bkpGVTB1VmxEYVdQaGk2cFhfNWNCVW82ZVdzcmp4OWowOV91WmVELWpfM0dNR2FYTEpTS2F2NGs1VDV5UlFTX0duRmRFLXNsYm1CcFptaGtkY3p2dHRLWjFQVFc3eEVNM2xfRmR3ek05dXloYUdybEFTOHo1TWJKUXFXbnJwamZrMFAtU0IwM1BQOGF5TnFwdkVhWGpWclVQZ0VTTzdLSU4xYVY0RjN5cWVybmYxTHVPQzJWR1NkLU96REVHZHY2Y2M4QndXY05qUDZRNTA?oc=5) |
 | Homeland Security Secretary Kristi Noem arrives in Portland for Tuesday visit - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPQmtHWVpwR3hUSnJWOWhHUV9LYlpIODZrN3g1RUxITncxYjdUSVlzMngxVWJYbmVTMUZWd09PNjJqUFFfdDlfbk1jVEd3T3RDd2NCYUxCX191OUZCZVY2QXVoTFRFYXNkXy1kbUU5R2VtT3l0TF8xck9FNmFPLVBoMGZjZHpBZDFPU204M0otOVJjSmxBUm9tWg?oc=5) |
 | Senate GOP beats Biden's confirmation numbers - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9qRlUxTXRQWFhyQmM2UGNJSHd6QlIxTXpHN2VsMDBOX2g3QkEzajktaFdlMTVXQnJHZnVxVXc3alhKand5elJNTnhWSW5RamtiUU5LWlpUaFZ2ZDFvT0Q5LWpMYTVEZ0VrMWJjSXlrNk95Tkt1LTh4QXlnV3k?oc=5) |
