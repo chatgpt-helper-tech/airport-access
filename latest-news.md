@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月08日 13:16:09（北京时间）**
+🕒 更新时间：**2025年10月08日 13:24:22（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Supreme Court Hearing on Colorado's Conversion Therapy Ban: Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNWldnNFpFQUhIamNVbWxTQXBHb0RXRC1teFh6OWx2U0RhTW53VlFLWG5BS09hSjJWSTJyblFTQ2QxNzgySS1sXzlXRDd6NWFXWFo3cU45UHd6Ny1wZDk5Sno2dTQ3bGZTVFg4eXRkMmkxc3FPRDI2R1RhN3d6Wk9NMA?oc=5) |
 | Trump-endorsed Matt Van Epps wins GOP primary for vacant House seat in Tennessee - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPeVVnekI4bjJkRm1uR3JRV19vMFhnM3dKVmZhN3VxZXBhdEdGVEh0V1BXNXlFdGFyR1hqeXpCWHFWeDNOSFVJRl9EWFpCUXdkY0pWaDNWaHZmUFZCaDFSMnMzNTNzRWdHTy1HRmxQTEdBbUdCWDBtZGJhTVJVLU9OUlRMZVVJV29YZjVjakdMdWgxOUFDZE81OC1zUVRVNVRYNXFta1ZhZkZFRzFRZ1ZmM1ZsMVQ4OGtxQm5Pc2gySXpYQdIBVkFVX3lxTE9mZU82Q3JfMHdWNkdJdGdrc0M0YU9hb0ZhLTd5M1RyaDhQTjhzSFJFZkxWYlRLb2N0Y05PTENscGNjdDNHV25DMW0tWkhaM3dRdDhtQWpR?oc=5) |
 | White House draws out mass federal firings timeline as GOP grows squeamish in funding fight - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNZUdWcXhlTWhXSmpMVjVlSHlocnBNV3A0T2IyTUhNeUVwUlVXaE9XeE1NV1hRYUthelA2ZXFmZThNZmlfOWc3SWxwZG1pMFNKWnBxOFRNUHNTbExLOEJIbGpnczBTZDNNUGZFbWFMWjY5c0lTSHVQaG4xNnpiOTRyZXBCS04tNVJBM2RMUW5n?oc=5) |
-| Government shutdown drags on as health care compromise remains elusive - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQQVVnUElNbFE5R2dCMjFBdHRrMmNoSFlOMlZxWXNSMkR2UjN6TlZoYWF6ZGN4SjlLYkM3ZGVhSnpDS1N4Vzc1Q3FNSVdWYXB3RWNuSVFvVThRWEk0dlNDUTRGalUxRFFaa2p1elBFXzdQVkp1YUxQclM5VmE0Zi1WTlRUY1pBNUZXQlVlVG1KSjlBT0JDTGU5ZkxLcnFqWDFYSWhWNmIybHEtcWhYcXc?oc=5) |
 | Noem threatens 'four times' more federal officers to Portland after meeting with mayor - KATU | [阅读全文](https://news.google.com/rss/articles/CBMiggJBVV95cUxOdEdNWTA5amxaWWdWWWN6RkR4MTE4cDd4X2F1NUhFNW10a0g3ZnBsX3ZkYzdwZUxuQ3hTSFNxMGxjVjdBS3BJUnZxb0xOeDdFd0hXY2szeldtRmJiZldXOU1sX2V2TUh2dmlBUjRPU0RKUzJiUTN6cE5kSWxWUzVwSGhvUDVlWVJXemZQaG5rSWVWMzNsMVFzYmstd0lvNXJObTQtUXRqelA3WUZTQUhEX2pDTG5RaE9QUi1ja1RKaklIWFhUeW5jNUgzZ21lMC1NUXJlNm5ReUNYYkw2djFJV2NZOHN4c09zaVB3dmdRMlh3STRUVUZRelNfaFB2dUd4c2c?oc=5) |
+| How Trump could use the Insurrection Act to send troops to American cities - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQblJ2dkp2eDViUXhhUVdPeU9pZV85bkwzYUNFeGRiVlhLRERYekdENTExV2RuLVJqNE9Hb05kZ0dsM2wyaGljQ3NGR1hhT0wwZjJqclBKMnRpN3FvOGwwRVhjVkg1RkYwZzNubGlLMWxnWWpISGFodHBUV2xHSnVnN2xoc05YaDlhcGxYVWtsQW4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
