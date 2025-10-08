@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月08日 09:57:09（北京时间）**
+🕒 更新时间：**2025年10月08日 10:00:49（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump's off-script comments cause shutdown headaches for GOP - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOZ1ZHZGU0UmpqQ3hialJHX3RmbkRXSU9tcERUUXotZjZKTWZWVFpJY2ctRjJiRmFQR1VwWk93czdyc19DVkJkcnNwRFRhNHpQQXNZTjhfM3VMMEpFem1oUDloXy13aHM4MndLWTM3c0U4cXdJdVp5U1pVNlh0bFQ4WVh0QWROUQ?oc=5) |
 | Senate GOP beats Biden's confirmation numbers - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9qRlUxTXRQWFhyQmM2UGNJSHd6QlIxTXpHN2VsMDBOX2g3QkEzajktaFdlMTVXQnJHZnVxVXc3alhKand5elJNTnhWSW5RamtiUU5LWlpUaFZ2ZDFvT0Q5LWpMYTVEZ0VrMWJjSXlrNk95Tkt1LTh4QXlnV3k?oc=5) |
 | Homeland Security Secretary Kristi Noem arrives in Portland for Tuesday visit - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPQmtHWVpwR3hUSnJWOWhHUV9LYlpIODZrN3g1RUxITncxYjdUSVlzMngxVWJYbmVTMUZWd09PNjJqUFFfdDlfbk1jVEd3T3RDd2NCYUxCX191OUZCZVY2QXVoTFRFYXNkXy1kbUU5R2VtT3l0TF8xck9FNmFPLVBoMGZjZHpBZDFPU204M0otOVJjSmxBUm9tWg?oc=5) |
-| White House vows to use tariff revenue to fund food aid benefits - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQNkNOXzdkeVNVaWJDSGhFbzc1ZG1GUGEyNW56MXBWaFlKTHFqOVplUDQ3ZmNsWnlBeXB0VmdHNEtTancyZzdteEpHZkhWZWgzTTBFSW94d2tGYzhrT21FVEsyT1BoQkZuaTNGYUZ3cmlnY1Rmam1QTi04dEIyb2otLWJQRlhVM1FRZ3dOdkhCN0pNLTJYbndNRnB2WnljTjNUay1XTEdzM1JYRDI5dFVuOTdTUm1EOTQ?oc=5) |
-| Tropical Storm Jerry forms over the central Atlantic, becoming 10th named storm this hurricane season - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9pZndYUUh6alhoWGFqV2MzUktQa0VkSEc2SmdyemhVZm9sZ05zSU5IQmhjUllwdEVERFlrUUJ1dlZZdTBrNUxYeDFELTlRUEZya1l2NURIejhfWFRrcjVBdkdjSkVEak9GSjVJbDVRLW3SAXZBVV95cUxOM3ZQdkoyNVRvSUFpYWxDdWdMTmNRR2VKbDBkUTVlVDc4Ni1KYXhMVE9xQlNMR19BUVVwZ3p5WUUxR0l1NWJfa0E5RHEwUEFTeXJGdENRczNJdVN2dWh6cElFb21GQUZwVW1kd280WGZyeVRKNUJR?oc=5) |
+| Senate confirms Herschel Walker as ambassador to the Bahamas - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOU0hMb29nYXp0OWx6NXVyOGFKUXo5alFJb2xMUzJHYTVkNG04THh5UXFzZVE2ZzM2aXd6M2tCcTJGVW9YQzJfTFRKc3pnQVZqSkRGbGxTcnQ0TFNrY1lNajZlcm5ZMDA4Szg4Nk54eml4dlIyQzJETkxsc3U2Y3RUbEJENk5sbmQ0bTd5eWtTai1DaDBVVWNNc0I2TUllZmM?oc=5) |
+| White House says it will use tariff revenue to fund federal food aid for mothers and young children - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE41VklZZVctVTRsaVRyVnpiTVVsaTRJSjhtc0FCRXppbHd4WDRCaDIzZ3dGVmo0U1NLcXNOcDVMc2FtM1JMaGZtUmFoak1XOWExdUswQURxdENza2Y3aEdRbnVTZTk4UE9faVBFVkkxTy1LMmlya3pkN3AzYw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。

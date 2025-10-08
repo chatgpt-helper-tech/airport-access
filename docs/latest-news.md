@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月08日 09:57:10（北京时间）**
+🕒 更新时间：**2025年10月08日 10:00:49（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Takeaways from Attorney General Pam Bondi’s contentious Senate hearing - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1MWGw1d3RFWW1vc09XTkQ4S1FVMzNqdWZQZnRfZVREYUx1WHdPTGJ4cEtjSWozT1dmVUxlR0NUZlFIa2dzODQzZFBzOFBOYUhGbzVfemJNWmFURGNER1Q5ZzJ2N2tLM1ROWUpqNWxnSjIxdFA4X3J5c0FR?oc=5) |
 | Government shutdown live updates as dispute emerges over back pay for furloughed workers - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNMTQtMEFxRS1MaW9FMUxRdlhqRlBJMmx1Y2RwempQRkQ3Y0xJd2hic2hja05ZY3ZfeFR1M1N3eDk3WXRQTDJ1dFdDUWZJOGlfLS1WTG9vcTdOVmNwX1diY29WY19VTFhKeW0zWFJSaE9COXlBU0dtUDNlV0VwVmJrZ2tWUlFBdURrdE1NWU9OcGlDQVRKZTVVQThfeVFTb3MwV0FZN3JaMldrZ9IBrwFBVV95cUxQY2Ftak03UnhZN3hvMHhnZEgwREh6VXd2YnZmZ1doYlk3S01YOUF5d3paZzBMWklGalk2U0F0S0F3VDNCQXBmS01raVhZRzRUanRlb0dGbDk5ZzhzRExvSFl4NnlKZzRkbzdnOHRURjNLamg5OUZpT1UyaFp4TlpCOXBIU2NyYUlKN3RWNE1tcXBBU19DbV9EUDZLTWRhUXRIOHRacVkzVnlfanZWbEow?oc=5) |
+| Takeaways from Attorney General Pam Bondi’s contentious Senate hearing - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1MWGw1d3RFWW1vc09XTkQ4S1FVMzNqdWZQZnRfZVREYUx1WHdPTGJ4cEtjSWozT1dmVUxlR0NUZlFIa2dzODQzZFBzOFBOYUhGbzVfemJNWmFURGNER1Q5ZzJ2N2tLM1ROWUpqNWxnSjIxdFA4X3J5c0FR?oc=5) |
 | Airport staffing shortages cause flight delays a week into shutdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPSVRLS0Fsa1d3MF9TaUNiUjdHSEdvUW5ENGgwVUh1MEVNRmt0X2FXY0Vvcmc2VFh6NmtMRnRoMHJxM1JDWkZUbjkyYnpoYVlldGswQlY0OEdabUNwdzhUWUpYS2U5d2o1M1BUUFd6cTQwYm5fVl9EWjhJSHFEdmg3Z1NONEk2QzhHemgtTHVvMkZQeTI1Wmk5VW9oMA?oc=5) |
 | Texas national guard troops arrive in Chicago amid Trump’s crackdown - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPRUt0b0hrRTQwcHYxeEp3VFlkTENuUWVVeUN0dk1vN1NXcDV3RW9yVldmTndQWGI4REU5dXRld1VJa0RfTmJ3WW1OYmRERmppMkszel95a0dHS2VsTU41WHNsQ0VfUzJLeDl5cmdNc0tBa3VEOERlcEJhU0xIZ0pPUFRXNnJuMGVIRVZqSVJHMTZlaVk?oc=5) |
 | Supreme Court seems highly doubtful of limits on conversion therapy for minors - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPaEpha3BrQUJ0V2RZZFl1elgyTVFGUlJDUHN1SFRoYWpTS082ZUZPZUU5N05IT1Q3NlBETlk5QmdhWm9zc2dMYUNkTExqOU5oSlVJbi1nYngteDVmS1RfMmV6bEdVNU5NdzQ3OHcxTkVfX05iSnVxZWVsNVRrOEdqZlAwNXBQd2NKNlVjN1Nvdw?oc=5) |
