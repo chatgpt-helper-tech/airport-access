@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月08日 16:48:42（北京时间）**
+🕒 更新时间：**2025年10月08日 16:56:31（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | UK won't relax visa rules for India, Starmer says | [阅读全文](https://www.bbc.com/news/articles/c9wdzryk477o?at_medium=RSS&at_campaign=rss) |
 | Thousands join biggest-ever UK environmental lawsuit over river pollution | [阅读全文](https://www.bbc.com/news/articles/crrj4qqqy7po?at_medium=RSS&at_campaign=rss) |
 | Dog attacks are still rising - even after the XL bully ban | [阅读全文](https://www.bbc.com/news/articles/cvgvy2yyv8mo?at_medium=RSS&at_campaign=rss) |
-| Deaths of homeless people in UK reach record high in 2024 | [阅读全文](https://www.bbc.com/news/articles/cvg9ygnj44no?at_medium=RSS&at_campaign=rss) |
+| Homeless people 'deeply failed' as deaths in UK reach record high | [阅读全文](https://www.bbc.com/news/articles/cvg9ygnj44no?at_medium=RSS&at_campaign=rss) |
 | Two teenagers arrested over cyber-attack on nursery chain | [阅读全文](https://www.bbc.com/news/articles/cpvlgzk0xvpo?at_medium=RSS&at_campaign=rss) |
 | US special envoy and Trump's son-in-law to join Gaza peace talks in Egypt | [阅读全文](https://www.bbc.com/news/articles/cdjzvlxp8mjo?at_medium=RSS&at_campaign=rss) |
 | Chad cuts ties with wildlife charity linked to Prince Harry | [阅读全文](https://www.bbc.com/news/articles/c07v3kgy2lko?at_medium=RSS&at_campaign=rss) |
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Staffing woes see flight delays spread to more U.S. airports amid shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPM3J4aXZMNlp2djgza01SVkpvVzlmZ3FfbUlQUXoweDdJRF9DOWJ1cDBXeWlYbDAwTkRfOG9mYWdzeFo4N0NLb1dBallGX0hRdTNPSlJScEMtMF9pbjlvUmFVMFF3MHJQNWNSbktkNkJVNHU2ZmFOcENZeHkxQkMtUHYwaGN0NzF6YUhmRkZTaFA?oc=5) |
 | Government shutdown impasse continues as dispute emerges over back pay for furloughed workers - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNMTQtMEFxRS1MaW9FMUxRdlhqRlBJMmx1Y2RwempQRkQ3Y0xJd2hic2hja05ZY3ZfeFR1M1N3eDk3WXRQTDJ1dFdDUWZJOGlfLS1WTG9vcTdOVmNwX1diY29WY19VTFhKeW0zWFJSaE9COXlBU0dtUDNlV0VwVmJrZ2tWUlFBdURrdE1NWU9OcGlDQVRKZTVVQThfeVFTb3MwV0FZN3JaMldrZ9IBrwFBVV95cUxQY2Ftak03UnhZN3hvMHhnZEgwREh6VXd2YnZmZ1doYlk3S01YOUF5d3paZzBMWklGalk2U0F0S0F3VDNCQXBmS01raVhZRzRUanRlb0dGbDk5ZzhzRExvSFl4NnlKZzRkbzdnOHRURjNLamg5OUZpT1UyaFp4TlpCOXBIU2NyYUlKN3RWNE1tcXBBU19DbV9EUDZLTWRhUXRIOHRacVkzVnlfanZWbEow?oc=5) |
-| Texas national guard troops arrive in Chicago amid Trump’s crackdown - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPRUt0b0hrRTQwcHYxeEp3VFlkTENuUWVVeUN0dk1vN1NXcDV3RW9yVldmTndQWGI4REU5dXRld1VJa0RfTmJ3WW1OYmRERmppMkszel95a0dHS2VsTU41WHNsQ0VfUzJLeDl5cmdNc0tBa3VEOERlcEJhU0xIZ0pPUFRXNnJuMGVIRVZqSVJHMTZlaVk?oc=5) |
+| National Guard members from Texas are in Illinois in Trump's latest move to send troops to cities - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQYndiOU9wWnJJaU1VSUEwVnI1VEhRRkxsV3RmWUZNWmR3OXFsM1VsMEFGYjRGbFdkT0dTc2NnNWtVeU1VX0h1ajFtTTJFWHctSGwweV9uMy1IcFdPUmxPZkQ5c2IzeFYyNGJjVzN5bEY3UzBtcXREazlwSkl0OHRHMmM2V3B4bmVxckN0WXJ3VWk0MTQxWkdQeEFyQXc0dw?oc=5) |
 | Bondi tells Schiff he should ‘apologize’ for impeaching Trump - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOLS0ybTVGQVJncG53b0NtVGlnTDlWYUNsNWIzWWczSk9aa3FVOXV1dnhlbmtlblVvTnhSdFhxTXhBUWQ2c01KeFYzSC1iSWZENEZwSHNhTmlIaERZQzNlVW5OUUVQVEVxR2l1MDAyNHF0eVJYd0V6UDg4WlJoVjlUNUExRVc1VWRBUGkya0c1Zk4yR0Nk?oc=5) |
 | The costs of Israel’s longest war, for Israelis - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQcUpSRkt6OHp6Sk9HSVFPTHlEQS1iZEpNSDBkQXpaWU9jX2ROVXdJMGFJNFZ5UFRiQS1meF81VkJFaHkzM04zNFhaVVZydU5ONHlxcGNzODFMRXM1YnBTc2xwcHZlZ3B3VWhadFF6V0ZQdy1MUEhhR25TVVJmaVZfcnB0bkh0SUxGSDJseURqdFVGcFFsNkRr?oc=5) |
 | Nvidia to continue sponsoring H-1B visas, Business Insider reports - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPaG9ZOWt3UXo3eVN5amloSjdlMVF4ZnJOLTNhRF81S0lobEZjbHVRWVBWcmMycGZ2a1piWHkwdDg2bHBucmNhYjJKbFJpeWdkRkZmaEJZNUFvTll0MFdvZjBrWTNsWURFYThUNG5ULTBfSkp6YXJDbGxGSUZvcUhNZnBJd3VlZ05hbTdSXzdNNncwdXhRTzVqQXNjRXhuMnRjMnYyZnB4WkhHNXBUcFQyT21oTWZqWEM0eUE?oc=5) |
