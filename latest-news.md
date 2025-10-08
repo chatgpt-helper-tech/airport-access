@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月09日 00:49:23（北京时间）**
+🕒 更新时间：**2025年10月09日 00:57:46（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Arrest Made in Palisades Fire in Los Angeles - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQLU5PcHN1Uk5rZXdra1RkYmNTcHlRdTlYMXQydUI2bmUzSFA4R1NYb29oc2M5dkRmay1Wdlk2Z1VHcEV1QW9CQ1d0OVphdmFWVGk3LTdmUWc2MUpwdlZudXlHU1FXdk04SGUzNWJrOUV0RzlQcDBmSC05QW9zcUdjOUl3?oc=5) |
+| Uber driver accused of intentionally starting fire that destroyed Pacific Palisades - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5oTTdEZTZMdFdNSGE3ZGUyYnlXcXlIckRycEgtdFJxVVpFbzZhUktDaEdxQ3RLYnBhQ0dLMVY5Q2diTGQ2LXRnSzYwU2lIREVsZFZuYkppWVUyVVRJRU9wTHIweDliWndXcFdMc3p5VWxvaFhuandqOFNTTjRDQQ?oc=5) |
 | Former FBI director Comey pleads not guilty to federal charges of lying to Congress - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQbDhhcGQtck9yUnQzRnc1R25PS0J1RlZRRUJlSVBlZlo1MkJDN25vNEZHUWNldDJfU3hQODRHQm5JY0JrV2dpRE1qNm5tcGZPa0VxdGJRbnJJRjhVZDhmcnZOOHl1TUpDMFlOWlpsbE52Q1J4c1I4WGRHVnNFWXJNLVJFZ2E?oc=5) |
 | Trump calls for jailing Democratic leaders as troops prepare for Chicago deployment - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNejN1akRqVFdYcnVzRnFiODF3UllsaVduWklVOE96Sk8zV3lGZjdWcmdlWHNDYVVxVVZvWE5tNk9sNGt6ZWpMMzY3SFdtX2VINzhGaXdtYjAxVnpQMG1zaWNaeVlFT1htV09VY1ZpeC1VNjlFSG1sa2J1MnBzbXJMbVE3U2ZfVWw5c21fbXRMTVh4QXBXSUxfLU55N2cyMmc?oc=5) |
-| On Tuesday, the Trump admin said furloughed feds were not guaranteed back pay. On Wednesday, it sent notices saying they were - Government Executive | [阅读全文](https://news.google.com/rss/articles/CBMi9AFBVV95cUxQU2JjcXEwRXdqZkRnQTFzN1NNTEM2d29oemNYeVNfcVg0ZERwU1Y0a19yNEdtQ0pObkpXWUVWQWFyOWJTd3NYdmdpQUVQQ3ZTMnFrZlhRd1Blcm5DMGJWUkQ0QTIwMXM3a3pVOWJ4dFYxNU5rQmFhM2FLNExaM1EyTkJqYVRIWEhtVDM5R1FRWTA0RWh6ZWZpbWtpMnVvU3FaYWU5NGJSOFRwQl9PR1ZKc3ZfV1p3MGU1TUxRcFgxUFIzZU41TkdzR2Zmc3Npdjl2MVIzRDVWcE9RZlNFMV9LbzhQSmxKSC1MWERTclprX3Y4eGRW?oc=5) |
 | Trump’s H-1B Visa Fee Could Strain Universities and Schools - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQczNVUFg5ZVg1MFhHZHFiNFROWE1iWFlUQnliOWZBRWxneE1NS3k0TlhrVXVlckNWcnYwX3ptOFlDTXhaNWxJZEt1ZW9jdldnZklpd3g3VjFRRHpsbTFOM2pKcjhtaGh5bnBxS0pyOWdzSFhiUXlLcUMtV08wcFNRR3Y0VnZ4cmdBeDJ6SA?oc=5) |
+| On Tuesday, the Trump admin said furloughed feds were not guaranteed back pay. On Wednesday, it sent notices saying they were - Government Executive | [阅读全文](https://news.google.com/rss/articles/CBMi9AFBVV95cUxQU2JjcXEwRXdqZkRnQTFzN1NNTEM2d29oemNYeVNfcVg0ZERwU1Y0a19yNEdtQ0pObkpXWUVWQWFyOWJTd3NYdmdpQUVQQ3ZTMnFrZlhRd1Blcm5DMGJWUkQ0QTIwMXM3a3pVOWJ4dFYxNU5rQmFhM2FLNExaM1EyTkJqYVRIWEhtVDM5R1FRWTA0RWh6ZWZpbWtpMnVvU3FaYWU5NGJSOFRwQl9PR1ZKc3ZfV1p3MGU1TUxRcFgxUFIzZU41TkdzR2Zmc3Npdjl2MVIzRDVWcE9RZlNFMV9LbzhQSmxKSC1MWERTclprX3Y4eGRW?oc=5) |
 | Katie Porter threatens to walk out of TV interview - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPRDFmaDgwUW1zVlV5elMxZTc1WEY0d1JPRHJPc0h2azAtaXJObkFkU00yQmhPZVNnZXJHMTVXQjdfakRZZ2lNdmkxZUNzbC13ZjJsNVZ4anN2SU5WMjV5bUI1VklEaDlVeC1tVGNCejkweG9iN0hkQXZLN2xTVHFrTg?oc=5) |
 | More FAA staffing shortages as government shutdown enters 8th day - CNN | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE4tZTdqTlVGYUs1OTB5UHhVVTFScGkxNGwwdUFZdzlBSHltcHBBTXRVUzNGVm5yYjZvaUFFMGtmcHRYemN3bngzcTFsX0ljZVIybVlHbGpBQktReTRxQk1iN3A1dm03M0pZVFJ3a3h3?oc=5) |
-| Democrats largely stand behind Jay Jones after violent texts - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQMU9ORG9DYVl6MUoycUxWNkk1Zkc3WnBGc05tNDBtZnBNQVMzYVR1TUhveTIzTG1xUDlacWt5RUo1VUI5b1ZxdjRDT2gwVmxOZWx0ZGRHOGs2eTZqOWMxd1BRUGRHazZ0VUZjaERtUk5ERTd1U0xvWUxmXzgycUt0QnhNMlBkODNkOG9PR1FHNGdzN3VGQnRINURmbTRxT00?oc=5) |
+| First Thing: National guard troops arrive in Chicago as governor decries Trump’s ‘military invasion’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxOc1Q4dFZONURfR1R5bGV3cEtjel9OVmREZjRudlZqYXMweUQzTTRsZlR3cUlQdWU5U1RoUXpCRE4zeDh2Qzg1dkExSXZRR2VIRkJGcURJVURieXhfREZGLWRQRXRzRkd5UjBuR3VXaG8zLTgxWEJWd2Q5by1OTnFQaTBGaHpOYjNkUWp2UlRYNGwwSUxfNzFpejRtNjlEdnl5UmZLMXNrWlJmcnlCckZFWjlTengzTjFPd09EeFd6TjdGbHFqMzJkc0p2aXVjWFo1ZHFIRWxKVkdUNUhZVi1J?oc=5) |
+| Jay Jones texting scandal breathes new life into GOP push in Virginia - Politico | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFA2OTVwbVBrM0ZJYWZiQVZpUTN4dFZPQzNrT2xLT0JYSllUMElwWDhXS1dOT0I1SjFPYzZSYzdwNmdRZGR6d0U3ZWUwZUl4akp1ellNMk54bzFLb1V5dzFQc3FhbzVvREpKTk52cmRtWGE?oc=5) |
 | Why Trump hasn’t invoked the Insurrection Act yet - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi2wFBVV95cUxQSndMaVpuRXVnYndheGJzQi1EVkllTjRpUFlTQ2tERXJwSXBITEtKc3hrbFFMS3p4RHZqRUdYM3ZUbWdwalZleERtVXBLWEkyaUpGSlN1VEdnYWs0U0xkSVlCUDlldm55ejZJWk9sNlZCMHB2M2VFZVNqdGgxSUxBMGZJUm9odlFKZ1NmeXh5T3FyOEJjSjI3SlB1UVdBSkNSazIteFVpQkNtamItd1ItWFNfRFltMzVhWndndC1QelUtdy1JTDBDZXhSWWYwWFV3RmtrcXd3cTU4Y2s?oc=5) |
-| Government shutdown live updates as Senate holds another round of votes - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPZ2NnTDlBN3FqZ2pBYXJPalFFZ1hpeVNEcXBkMGZhdXg2cFVmcl80MmZOSDdXa0k3TExWVzFycndsblpvUk93eldGeHhseW1IcG8yeXJZYmZlVE03ZjBYUmVqNzhuMWstZ2lkS1NIdTRDMTQwNUNrS0tIU0V4VzJEcHhrcGs0ZmZPcHA40gGQAUFVX3lxTFBXdzdpU0lqS2VpclFpR09zUnAyM0pRZzVLTDZleHlYaHh6Q0dSODJQaXd2bFJ1amZlaE9jN0dkTm9ZZkcxSm15ZmNoampQV19GRzRacFR6cWZHUWpMeFdhWURMd082cUwwZnpybkNfcGFYd3doX3BSZk5UUlY0NGhMR2tmTC1iUGFkOWtFTTZ0RQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
