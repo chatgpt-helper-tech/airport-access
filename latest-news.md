@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月08日 10:16:21（北京时间）**
+🕒 更新时间：**2025年10月08日 10:25:01（北京时间）**
 
 ---
 
@@ -25,14 +25,14 @@
 |--------|-------------|
 | Takeaways from Attorney General Pam Bondi’s contentious Senate hearing - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1MWGw1d3RFWW1vc09XTkQ4S1FVMzNqdWZQZnRfZVREYUx1WHdPTGJ4cEtjSWozT1dmVUxlR0NUZlFIa2dzODQzZFBzOFBOYUhGbzVfemJNWmFURGNER1Q5ZzJ2N2tLM1ROWUpqNWxnSjIxdFA4X3J5c0FR?oc=5) |
 | Government shutdown live updates as dispute emerges over back pay for furloughed workers - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNMTQtMEFxRS1MaW9FMUxRdlhqRlBJMmx1Y2RwempQRkQ3Y0xJd2hic2hja05ZY3ZfeFR1M1N3eDk3WXRQTDJ1dFdDUWZJOGlfLS1WTG9vcTdOVmNwX1diY29WY19VTFhKeW0zWFJSaE9COXlBU0dtUDNlV0VwVmJrZ2tWUlFBdURrdE1NWU9OcGlDQVRKZTVVQThfeVFTb3MwV0FZN3JaMldrZ9IBrwFBVV95cUxQY2Ftak03UnhZN3hvMHhnZEgwREh6VXd2YnZmZ1doYlk3S01YOUF5d3paZzBMWklGalk2U0F0S0F3VDNCQXBmS01raVhZRzRUanRlb0dGbDk5ZzhzRExvSFl4NnlKZzRkbzdnOHRURjNLamg5OUZpT1UyaFp4TlpCOXBIU2NyYUlKN3RWNE1tcXBBU19DbV9EUDZLTWRhUXRIOHRacVkzVnlfanZWbEow?oc=5) |
-| Airport staffing shortages cause flight delays a week into shutdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPSVRLS0Fsa1d3MF9TaUNiUjdHSEdvUW5ENGgwVUh1MEVNRmt0X2FXY0Vvcmc2VFh6NmtMRnRoMHJxM1JDWkZUbjkyYnpoYVlldGswQlY0OEdabUNwdzhUWUpYS2U5d2o1M1BUUFd6cTQwYm5fVl9EWjhJSHFEdmg3Z1NONEk2QzhHemgtTHVvMkZQeTI1Wmk5VW9oMA?oc=5) |
+| US airports continue to see delays as shutdown hits air travel - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBuWnVpMVFyTURzR09xRHBsakVIdUpEZThzQkliSkhUc1BGczJwQmlCVlktYjhKV05MM0FVSUF3RDA5VUh3TXpQX2FaTC1EUF9yUHQ3RmpfbnU0UdIBX0FVX3lxTFBTWkRETlRsejBUVHFyM3UySWFzUndENjFtQnJVZ09jX2V3bnlZX0xQMjVDVThDZFU0X2pFYTdUZzRCbTc4ZkhkdmZCQktZRUNTZVBPTnktV0R3Q0oySGhV?oc=5) |
 | Texas national guard troops arrive in Chicago amid Trump’s crackdown - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPRUt0b0hrRTQwcHYxeEp3VFlkTENuUWVVeUN0dk1vN1NXcDV3RW9yVldmTndQWGI4REU5dXRld1VJa0RfTmJ3WW1OYmRERmppMkszel95a0dHS2VsTU41WHNsQ0VfUzJLeDl5cmdNc0tBa3VEOERlcEJhU0xIZ0pPUFRXNnJuMGVIRVZqSVJHMTZlaVk?oc=5) |
 | Trump's off-script comments cause shutdown headaches for GOP - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOZ1ZHZGU0UmpqQ3hialJHX3RmbkRXSU9tcERUUXotZjZKTWZWVFpJY2ctRjJiRmFQR1VwWk93czdyc19DVkJkcnNwRFRhNHpQQXNZTjhfM3VMMEpFem1oUDloXy13aHM4MndLWTM3c0U4cXdJdVp5U1pVNlh0bFQ4WVh0QWROUQ?oc=5) |
 | Supreme Court Hearing on Colorado's Conversion Therapy Ban: Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNWldnNFpFQUhIamNVbWxTQXBHb0RXRC1teFh6OWx2U0RhTW53VlFLWG5BS09hSjJWSTJyblFTQ2QxNzgySS1sXzlXRDd6NWFXWFo3cU45UHd6Ny1wZDk5Sno2dTQ3bGZTVFg4eXRkMmkxc3FPRDI2R1RhN3d6Wk9NMA?oc=5) |
+| In Tennessee Special Election, a Crowded Field for an Open Congressional Seat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQa3o5THpmU2huc21RUGE4WEQ2MEsyRzRscGZLRElRUmsyWWc4TEJOc2VZc2l2V1AwWnNJTWVVd0htZ1Mwck0ya2k1N1VHVEJJbXczaDB6WUk3TXJ0RjFKU1pxck9idVE1emx3Z2pSdUQ3dEdWSTZUZDFYQ0tPQ2ZRRC0wSm4?oc=5) |
 | Senate GOP beats Biden's confirmation numbers - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9qRlUxTXRQWFhyQmM2UGNJSHd6QlIxTXpHN2VsMDBOX2g3QkEzajktaFdlMTVXQnJHZnVxVXc3alhKand5elJNTnhWSW5RamtiUU5LWlpUaFZ2ZDFvT0Q5LWpMYTVEZ0VrMWJjSXlrNk95Tkt1LTh4QXlnV3k?oc=5) |
 | Homeland Security Secretary Kristi Noem arrives in Portland for Tuesday visit - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPQmtHWVpwR3hUSnJWOWhHUV9LYlpIODZrN3g1RUxITncxYjdUSVlzMngxVWJYbmVTMUZWd09PNjJqUFFfdDlfbk1jVEd3T3RDd2NCYUxCX191OUZCZVY2QXVoTFRFYXNkXy1kbUU5R2VtT3l0TF8xck9FNmFPLVBoMGZjZHpBZDFPU204M0otOVJjSmxBUm9tWg?oc=5) |
 | Trump says he'd consider invoking the Insurrection Act. What does that mean? - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOaDNxdWdKaklOelNhUWxIUjc4UW94d1VpaHZMelFYNGVWUUtOMm9YQ1JVWDg1eWtPTzB2V2pIUDZraXZEd1ZSMFpCSExONHpGdEpabFNOODVxdW9haV9xWkY1MVo0UE5ON3ZSQ181TlpBWEJPU3V4REtua3Z4VHZIYWE3LTFCNGpSYTRoLS1UMNIBlAFBVV95cUxOQ29zRHhmNnptMzFGeklTTDNQVVIwVGxLdEZrRW9vUmN0cXlqSElRSVVMY1NJNExWMmUyWTdQNHVhTlpDTGNUYjJva1Jhd1puRWhkc3FtcFZkMHFnZlVfUkpWR1JySXdpLU5TV1NVVEdPR0hDYzJ2U3gzRnM2N09ObU9UR3oyZ2ZONlpyUjBmenBkRmw4?oc=5) |
-| Tropical Storm Jerry forms over the central Atlantic, becoming 10th named storm this hurricane season - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9pZndYUUh6alhoWGFqV2MzUktQa0VkSEc2SmdyemhVZm9sZ05zSU5IQmhjUllwdEVERFlrUUJ1dlZZdTBrNUxYeDFELTlRUEZya1l2NURIejhfWFRrcjVBdkdjSkVEak9GSjVJbDVRLW3SAXZBVV95cUxOM3ZQdkoyNVRvSUFpYWxDdWdMTmNRR2VKbDBkUTVlVDc4Ni1KYXhMVE9xQlNMR19BUVVwZ3p5WUUxR0l1NWJfa0E5RHEwUEFTeXJGdENRczNJdVN2dWh6cElFb21GQUZwVW1kd280WGZyeVRKNUJR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
