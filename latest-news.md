@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月08日 19:01:14（北京时间）**
+🕒 更新时间：**2025年10月08日 19:08:46（北京时间）**
 
 ---
 
@@ -14,8 +14,8 @@
 | Thousands join biggest-ever UK environmental lawsuit over river pollution | [阅读全文](https://www.bbc.com/news/articles/crrj4qqqy7po?at_medium=RSS&at_campaign=rss) |
 | Dog attacks are still rising - even after the XL bully ban | [阅读全文](https://www.bbc.com/news/articles/cvgvy2yyv8mo?at_medium=RSS&at_campaign=rss) |
 | It was a normal Saturday night in my pub - then Justin Bieber waltzed in | [阅读全文](https://www.bbc.com/news/articles/cjw7554z85eo?at_medium=RSS&at_campaign=rss) |
+| UK won't relax visa rules for India, Starmer says | [阅读全文](https://www.bbc.com/news/articles/c9wdzryk477o?at_medium=RSS&at_campaign=rss) |
 | Scammers using AI to lure shoppers to fake businesses | [阅读全文](https://www.bbc.com/news/articles/ced5wvn48q5o?at_medium=RSS&at_campaign=rss) |
-| Chad cuts ties with wildlife charity linked to Prince Harry | [阅读全文](https://www.bbc.com/news/articles/c07v3kgy2lko?at_medium=RSS&at_campaign=rss) |
 | Dolly Parton's sister 'didn't mean to scare anyone' with call for prayers for singer | [阅读全文](https://www.bbc.com/news/articles/cjd1m3y00dxo?at_medium=RSS&at_campaign=rss) |
 | How Stacey Solomon decluttered our homes back from the brink | [阅读全文](https://www.bbc.com/news/articles/cp8jzdzmqgro?at_medium=RSS&at_campaign=rss) |
 
@@ -32,7 +32,7 @@
 | Trump-backed Van Epps and Democrat Behn win Tennessee primaries for US House special election - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNSkFHd2pTd3l3Y2h4dW52NDJkaVNnSE12UWZrLWwyY2xNc2VFNnh5SFNFVThlbS0xQVFfbV9SdWNlakgxNVJJNzhhRmhBTXcxeWhyT1B3SVpyNEhmSWI5bDYxZkJPaXNKWHQyekNkNHVyc2JOU19zTDU2ZTIzUzlUeEVTVXM5QnBndUpOaTVtc1Z4cGdxUUZkVHlqVkxoeWVZVVN5THZQSVFUNFRQOHNNeA?oc=5) |
 | Chemistry Nobel awarded to three scientists for their work on metal organic frameworks - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE0zakozS0JmTlUzMDJ3T29pSHR6NTF4N1Rfd09jaTVvTUJ0R2lQVmNtXzctS053aUJmMEZWd2V4ZE9TZUZDdE1xWlJ4Vy0yT0FaaXI1b2JDcnZaQdIBX0FVX3lxTE9QQ0V4S202NkU2VGs0LW9Gbjh1Y1NTc3ctTzVLZ0ItSGF5Z0NfaG9rT3JGQkNPQnZMMGF4OVFxSjIxck02dWpXNXhrajgxVzJ6UEhkUXNGLUpCWk9EUEw0?oc=5) |
 | White House confident courts will greenlight their Portland plan. Trump is telegraphing Plan B. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi2wFBVV95cUxQSndMaVpuRXVnYndheGJzQi1EVkllTjRpUFlTQ2tERXJwSXBITEtKc3hrbFFMS3p4RHZqRUdYM3ZUbWdwalZleERtVXBLWEkyaUpGSlN1VEdnYWs0U0xkSVlCUDlldm55ejZJWk9sNlZCMHB2M2VFZVNqdGgxSUxBMGZJUm9odlFKZ1NmeXh5T3FyOEJjSjI3SlB1UVdBSkNSazIteFVpQkNtamItd1ItWFNfRFltMzVhWndndC1QelUtdy1JTDBDZXhSWWYwWFV3RmtrcXd3cTU4Y2s?oc=5) |
-| Homeland Security Sec. Kristi Noem visits ICE facility at center of Portland protests - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOLVRpcnBiVmg5UkY5SDh4ajdlY25kZk5Gd1VZbUdQQUZyQjFtd0RHaDJ5cjFuTzFSTFhoaGpuYVFXU0tMU2dsNktsb2ZqRzRCc1JoZk9GZlFvdTB5dVhHTFkwSU1OTWpIdGY4MGw1cWNLMmhKTTdaSDBtNV9tYXJpdW10eXrSAYoBQVVfeXFMUFFjOU9td3RKZ2k0bFVFUjZWcVBwN1d3OUpXNkRlaGc4cktCUTE3OFk0SmJZLXNsTzZwZXpsbDR4NmQ3Zm1Mc0RVSEFwYzZkTWdCbU5LQTFDT3ZfUG1BVFNleXRMTU5lUjVsTVBtTUEtc2ZGSEo0SExwQ0EwWUpzcHhDSzBmUTBhUjh3?oc=5) |
+| Robert Roberson remains hopeful as he faces another execution date in shaken baby syndrome case - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPcEpzWlU0U2JTaTVYWEJGVUtLMGp5UFFYclk0TFl2N2FoV296QVRuaTIyVW9wMV9tZE5WdDQteXdfaHZ1MEtaS0pOLXFSbW9CcWp2M1BlOWlBa0lJcmk2Q1hPQjJjcEJXNjVlLVhYVkZzSVUtb3ZEaGxwUzlJRnM5eDl1OGdpN3Iwb1NaV1RIMnFkempJM0lEUjZGcS0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
