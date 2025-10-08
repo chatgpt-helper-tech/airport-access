@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月08日 23:56:52（北京时间）**
+🕒 更新时间：**2025年10月09日 00:00:12（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | With the Texas National Guard now in Illinois, here’s what you need to know about the unit - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQWWdMRmplS3RtVUktcnJEX2dsNXlxRE9rem5ZdUpzYnBCVFRDOHMzWnprVkR4M1F4ck1ncVpIcDJ6YkFfX29hUlVWenJHZEZVWU5VUnpVaVg4TXYzbzE4LTdQaTdUOXhiRnhUTXF5T19CUnRHb1IwMDBFa2RqQmJkci1tc3BCcndJc1RCd1NXQmM?oc=5) |
 | Arrest made in deadly Palisades Fire investigation, law enforcement sources say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPOTdnUl8yUmktUWt0RlhDNGlPVGNDNVdhTUltbmVPU2o0UHVzMmtDckRHOHl3a19DRnFHS2RYMENOMUZkVzFnYUN1X0pMNXRUTmtlck5Nbk5KZWk2OHhiLTBkcjFGbzB6Z2pHbmcyZS1kUXpHRUhyZXlWUi1XdjNGQVUydTZ4SlJfS2t3bTNDblFtQdIBVkFVX3lxTE9wZ2Y2ZjRuYTFnQ00yOTMtZlpROW9JUG94MFlteGtRRG9VYWdjRkRvc0pFWFFhb25KN01UNUU5WHl2VVBJandDMDdZc1J4MEd6RVJnSUJ3?oc=5) |
 | Staffing woes see flight delays spread to more U.S. airports amid shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPM3J4aXZMNlp2djgza01SVkpvVzlmZ3FfbUlQUXoweDdJRF9DOWJ1cDBXeWlYbDAwTkRfOG9mYWdzeFo4N0NLb1dBallGX0hRdTNPSlJScEMtMF9pbjlvUmFVMFF3MHJQNWNSbktkNkJVNHU2ZmFOcENZeHkxQkMtUHYwaGN0NzF6YUhmRkZTaFA?oc=5) |
+| Republicans amp up pressure on Democrats to ditch Jay Jones in Virginia - Politico | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFA2OTVwbVBrM0ZJYWZiQVZpUTN4dFZPQzNrT2xLT0JYSllUMElwWDhXS1dOT0I1SjFPYzZSYzdwNmdRZGR6d0U3ZWUwZUl4akp1ellNMk54bzFLb1V5dzFQc3FhbzVvREpKTk52cmRtWGE?oc=5) |
 | Trump threatened shutdown layoffs. So far, he hasn’t followed through. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOWVJ2ZXZYbVUzc1BQR285c2wyaEdPMDR1blUzS0hTYnk4ZjVScU9ZNV9nSWk3YUEycnRNNVM2VUZMMDltYUlZdjBDV3Y3Mmp5U25NeE0tbE5oZkJkM3I1QU1ldktpVzUzN0Npc2pwRVA0Y1pHX3BFTzd0STBIZ3ljQVQyT1o0MmotWlE?oc=5) |
 | Trump-backed Van Epps to face progressive Behn for U.S. House seat in Tennessee - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQNlpaTVAySkd0NXBBblVFZExSSEZaZGlPb3VQMEFtZGE4bFZCVlI4emNSYWpMLTNiSlRqXzJOazB3S3VrQURSaWpFdkluYmdUS1R6QkF6V05tNEZCUV91c3VtY2NFcWFaVTdncUQ0aUxlVk9yWFhwaUtJa0NWZGtfTHRseGdPVFhuXzhSbXNvV0dERDg0NmxsSGxHQ2d5dlNESG5zVFFJQzM5UmdjbWZRSGhsOA?oc=5) |
-| Republicans amp up pressure on Democrats to ditch Jay Jones in Virginia - Politico | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFA2OTVwbVBrM0ZJYWZiQVZpUTN4dFZPQzNrT2xLT0JYSllUMElwWDhXS1dOT0I1SjFPYzZSYzdwNmdRZGR6d0U3ZWUwZUl4akp1ellNMk54bzFLb1V5dzFQc3FhbzVvREpKTk52cmRtWGE?oc=5) |
 | Why Trump hasn’t invoked the Insurrection Act yet - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi2wFBVV95cUxQSndMaVpuRXVnYndheGJzQi1EVkllTjRpUFlTQ2tERXJwSXBITEtKc3hrbFFMS3p4RHZqRUdYM3ZUbWdwalZleERtVXBLWEkyaUpGSlN1VEdnYWs0U0xkSVlCUDlldm55ejZJWk9sNlZCMHB2M2VFZVNqdGgxSUxBMGZJUm9odlFKZ1NmeXh5T3FyOEJjSjI3SlB1UVdBSkNSazIteFVpQkNtamItd1ItWFNfRFltMzVhWndndC1QelUtdy1JTDBDZXhSWWYwWFV3RmtrcXd3cTU4Y2s?oc=5) |
 
 ---
