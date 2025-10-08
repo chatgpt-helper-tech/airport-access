@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月08日 11:41:25（北京时间）**
+🕒 更新时间：**2025年10月08日 11:48:33（北京时间）**
 
 ---
 
@@ -27,8 +27,8 @@
 | US airports continue to see delays as shutdown hits air travel - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBuWnVpMVFyTURzR09xRHBsakVIdUpEZThzQkliSkhUc1BGczJwQmlCVlktYjhKV05MM0FVSUF3RDA5VUh3TXpQX2FaTC1EUF9yUHQ3RmpfbnU0UdIBX0FVX3lxTFBTWkRETlRsejBUVHFyM3UySWFzUndENjFtQnJVZ09jX2V3bnlZX0xQMjVDVThDZFU0X2pFYTdUZzRCbTc4ZkhkdmZCQktZRUNTZVBPTnktV0R3Q0oySGhV?oc=5) |
 | Federal workers erupt over latest White House threat to withhold their pay - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9HWDNZbzhxRXRzb3JRYmU0dTRCanc1cFJEM0lBRHo0MEVxTkdYdTJJaEFtTXEyV2dCNy1FVDlsdDQzc0ZJa05ITUdDS0h1MjNCQlM5aDRlSE9YeXJjaWZYUVk1cDVMMVFGamJna2k0YUxZMG52VzhV?oc=5) |
 | Texas national guard troops arrive in Chicago amid Trump’s crackdown - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPRUt0b0hrRTQwcHYxeEp3VFlkTENuUWVVeUN0dk1vN1NXcDV3RW9yVldmTndQWGI4REU5dXRld1VJa0RfTmJ3WW1OYmRERmppMkszel95a0dHS2VsTU41WHNsQ0VfUzJLeDl5cmdNc0tBa3VEOERlcEJhU0xIZ0pPUFRXNnJuMGVIRVZqSVJHMTZlaVk?oc=5) |
-| The costs of Israel’s longest war, for Israelis - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQcUpSRkt6OHp6Sk9HSVFPTHlEQS1iZEpNSDBkQXpaWU9jX2ROVXdJMGFJNFZ5UFRiQS1meF81VkJFaHkzM04zNFhaVVZydU5ONHlxcGNzODFMRXM1YnBTc2xwcHZlZ3B3VWhadFF6V0ZQdy1MUEhhR25TVVJmaVZfcnB0bkh0SUxGSDJseURqdFVGcFFsNkRr?oc=5) |
 | Supreme Court Hearing on Colorado's Conversion Therapy Ban: Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNWldnNFpFQUhIamNVbWxTQXBHb0RXRC1teFh6OWx2U0RhTW53VlFLWG5BS09hSjJWSTJyblFTQ2QxNzgySS1sXzlXRDd6NWFXWFo3cU45UHd6Ny1wZDk5Sno2dTQ3bGZTVFg4eXRkMmkxc3FPRDI2R1RhN3d6Wk9NMA?oc=5) |
+| The costs of Israel’s longest war, for Israelis - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQcUpSRkt6OHp6Sk9HSVFPTHlEQS1iZEpNSDBkQXpaWU9jX2ROVXdJMGFJNFZ5UFRiQS1meF81VkJFaHkzM04zNFhaVVZydU5ONHlxcGNzODFMRXM1YnBTc2xwcHZlZ3B3VWhadFF6V0ZQdy1MUEhhR25TVVJmaVZfcnB0bkh0SUxGSDJseURqdFVGcFFsNkRr?oc=5) |
 | Trump-backed Van Epps and Democrat Behn win Tennessee primaries for special House election - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi2wFBVV95cUxQM3JBRWE2bkpGVTB1VmxEYVdQaGk2cFhfNWNCVW82ZVdzcmp4OWowOV91WmVELWpfM0dNR2FYTEpTS2F2NGs1VDV5UlFTX0duRmRFLXNsYm1CcFptaGtkY3p2dHRLWjFQVFc3eEVNM2xfRmR3ek05dXloYUdybEFTOHo1TWJKUXFXbnJwamZrMFAtU0IwM1BQOGF5TnFwdkVhWGpWclVQZ0VTTzdLSU4xYVY0RjN5cWVybmYxTHVPQzJWR1NkLU96REVHZHY2Y2M4QndXY05qUDZRNTA?oc=5) |
 | White House draws out mass federal firings timeline as GOP grows squeamish in funding fight - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNZUdWcXhlTWhXSmpMVjVlSHlocnBNV3A0T2IyTUhNeUVwUlVXaE9XeE1NV1hRYUthelA2ZXFmZThNZmlfOWc3SWxwZG1pMFNKWnBxOFRNUHNTbExLOEJIbGpnczBTZDNNUGZFbWFMWjY5c0lTSHVQaG4xNnpiOTRyZXBCS04tNVJBM2RMUW5n?oc=5) |
 | Homeland Security Sec. Kristi Noem visits ICE facility at center of Portland protests - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOLVRpcnBiVmg5UkY5SDh4ajdlY25kZk5Gd1VZbUdQQUZyQjFtd0RHaDJ5cjFuTzFSTFhoaGpuYVFXU0tMU2dsNktsb2ZqRzRCc1JoZk9GZlFvdTB5dVhHTFkwSU1OTWpIdGY4MGw1cWNLMmhKTTdaSDBtNV9tYXJpdW10eXrSAYoBQVVfeXFMUFFjOU9td3RKZ2k0bFVFUjZWcVBwN1d3OUpXNkRlaGc4cktCUTE3OFk0SmJZLXNsTzZwZXpsbDR4NmQ3Zm1Mc0RVSEFwYzZkTWdCbU5LQTFDT3ZfUG1BVFNleXRMTU5lUjVsTVBtTUEtc2ZGSEo0SExwQ0EwWUpzcHhDSzBmUTBhUjh3?oc=5) |
