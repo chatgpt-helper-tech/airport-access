@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月09日 02:57:40（北京时间）**
+🕒 更新时间：**2025年10月09日 03:00:56（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Joan Kennedy, first wife of Sen. Edward Kennedy, has died - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxORmlHNVZpSk1BSE9uZTlwYVZQaVZkaW1FWnFTWjktaFBKMmEzM2U5akRaRlZiVmlhSVZFS25RMXY0OHNfc1lkSDg0aDZDRzV3bFZNckRBaWxVODVJYUZvWHFfN1ZqRnhYZUtqc0JMYzBLamJDeGRJTElSVklXSXlwbTFuWjhKMEIyU2JWaU1CRC3SAZYBQVVfeXFMUGdhWWRyTmU5Rks2VDVmQ2dpaHY2Rm5mT1hNbVNWY2hFd3N4cEt1aGc2a1RacDN0ZkJ6Rngzb1BYV0h2SWRrdFBaWFd3a0xwTDIxSUE0eTc1MU44Z1Vuc0E1a0J2dUtqcldxWWtnbEZtNVAzQmt0elFhNS1nVzZxeDZwanI2cDhheEw4YVRfaGNINXQ3MW13?oc=5) |
 | How flights are impacted by the government shutdown. And, James Comey's arraignment - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPNFRPZTJmMDRsZHJZUEdHOXV2dWMtdlhhaEdjd25yRmFSY1pQak9LSURuUlFreHQ0ck4zb25BRkNhNGxaUV94ZHllYnUyMWR2Rkw1LWFOWTZCTEQ4UF9VRjFCb2Zzenp1SDZpZHZvcTdiQnBiSlQ0UENONXgzdUVfemJJVkV6d1RxdGhJdG9VV2R5ejRCZzJfS0ZOTU9pV1Foa2JRSzBhUDkwSDFnc1NYUUhQRQ?oc=5) |
 | Democrats largely stand behind Jay Jones after violent texts - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQMU9ORG9DYVl6MUoycUxWNkk1Zkc3WnBGc05tNDBtZnBNQVMzYVR1TUhveTIzTG1xUDlacWt5RUo1VUI5b1ZxdjRDT2gwVmxOZWx0ZGRHOGs2eTZqOWMxd1BRUGRHazZ0VUZjaERtUk5ERTd1U0xvWUxmXzgycUt0QnhNMlBkODNkOG9PR1FHNGdzN3VGQnRINURmbTRxT00?oc=5) |
-| Jack Ciattarelli, Mikie Sherrill to face off in final N.J. governor debate tonight. Here's what to watch for. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPWWRheWljdlJ5YW1fSHFlazdXTUpDaVdRWGUwOFphSUpvQm9OcHFPZnZWTkRZdXluU0FEVEMzWkJqbVNJalVYYTE4blhOeEcxSkI1ZnM0bGI3M2tFT3J0cUdTdVdmbkpFaU5lYVRTY2dkQkI0X1BUM18tYlg0Mm9ESml6ZWR5dFNKR1hyVFlyY0pHNmhkX09ILWIzWmQ?oc=5) |
-| Senate fails for the sixth time to pass a government funding bill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQRGd3ZXI2UXBsTm5sNVIyblRlRmdwSE5lREhnbUZnWWtERlRFbXhSM0hCSzcybFM5TGUzNnZrZ0liWGtaVTZnSUUweEFPOGFrTzZjbmUxUGZYUEpLR2Rhb3NRVXU2TFktcDVRTHBJMmFoNHZydW55enY1cFpiV1VMYlVld0E0cThKLVkzSUV6UENoOWNRMHZhUlZOM0YxbFU2T0U0Zm5R?oc=5) |
+| Sources: Derrick Groves in custody after standoff in Atlanta - WWLTV.com | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxPTC0zRFlXdnVKNEs5b25JZi1GaGMxYk15Rl9MeXBOX0JWWkZUMERUcGJrYU5ELUxvZWJ1MkNzUUtTOTYwV2JLMGtJR29aSmlhWmFHQmRoREpCVmxQRXVlcVlkMnpIR2RBcUd5RFZaRXd3Wll6LVh3RW5hYkpjaGR2NTAwX1NQLXd1MjhTQ2RpR1BuNlRReUZ1X3NPbU5NQnBReXVjWWNBamNOUkFsalFURkRFVFdNUVVid0RJWVZxS3BkTU5XbWlHd19LSTV5bVN3WDBIYTJxbw?oc=5) |
+| "Tennessee Three" member Justin Pearson runs to oust Rep. Steve Cohen - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQbWxHSDUxZndWNW5FRllXbTZwNTVUTVBzX2dma2ExeVdkb3pVbTRlVTdycWd3a0Z5TDRpb0pDQWxXUUZHMHduZkhZMEdnNHN0a2tocjdiN2xUbjA0R1JteC0xci14Z0lPYkV1NFZZOGpPWmlIOWJIbkROblRJclVjUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
