@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月09日 07:25:50（北京时间）**
+🕒 更新时间：**2025年10月09日 07:32:08（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Florida man accused of intentionally starting fire that destroyed Pacific Palisades - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5oTTdEZTZMdFdNSGE3ZGUyYnlXcXlIckRycEgtdFJxVVpFbzZhUktDaEdxQ3RLYnBhQ0dLMVY5Q2diTGQ2LXRnSzYwU2lIREVsZFZuYkppWVUyVVRJRU9wTHIweDliWndXcFdMc3p5VWxvaFhuandqOFNTTjRDQQ?oc=5) |
 | Trump says he "may go" to the Middle East this weekend amid peace talks - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPX2w3VFNkNGhhQUNNLVByZ2JmWnBGU1NBaFVwenBDRzlJLUsydXdpZDV4NDJhbC1ILUI1c2c3dUVXbEJFR0tnQmRnTlhrZVFQaWdWNHV0TEFqajBPdkZQajNjMGFXYUhwaEtnT19IVW5BZ0Mya0RYdUFxUXRyM2tlTHlmdGJXOFEtRFHSAY8BQVVfeXFMT01RVWJaT0szMDFkOUNTZkNhUDRtSEVhU0ZJZXVxNnVKamJyMUpXdVhjRUoxcHBCWmpXc2FnaEZMNTBGM1h4WFlsMzZDNHRzNHh1OHBGRVFKLU1BWE9ScXpGVnh4YXFXS3J6WTRxNW4zS0p3LXpTRkdFMFpNVnVzVFlMNU41TDh1X3IwbFFmajA?oc=5) |
-| Trump says Illinois’ Pritzker and Johnson ‘should be in jail’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNRUo0S1pwMTE3SGlFQjVmY2ZacVJYakFMV1RTVjJxYUNiWUdKZTYyWm00RkNsZjJNN3d4WGZ1TlhLMEN4QXNqQ3dCb3AtRHZPY3B3VEszU2t2dEg1WWxhbHJtMEtjS2pYWjYxNFRveEE2SlUtMndZMDdZUk1tQnRYeWdRUGRVbjVKRHYtai1UVXY0WXc?oc=5) |
 | Comey pleads not guilty as lawyers signal intent to argue Trump foe's case is politically motivated - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOS1ExZTJydXNqZkRnZ3hZdkY2QUFRd2Z4M3puTW93dUpQWm9ucDZMTzc3cnNCMnN0anRsM3BCZnJCbXE5SDZkdkFORktFVm1qbjI4bTJxejJ5NEdCUmlWSWFidVFJVXY4TjlLcWtjT1lndzZRUXV6TGpUQlI0UmdWLUVyRzNpcnpHYzdkbWRCajZZZUJZREJlek1Lb1ZfUDZMOFVjS3Y0NGRiRUFFMkVIV010bm4?oc=5) |
-| Last of 10 New Orleans escapees captured after nearly 5 months following standoff with Atlanta police - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQMzBYQ0VsTTBRYkc1YXBiVWNST1dxSGkxNDktR3J4R3drb2QtYTdoUmFkbzZwdFlHcWdqb0tvdG13M3pncTVNWmZ1c0JCV0xLRXFSVmdtSXJzQVBMVTAxNUtZWWw5a2JRTk1mbG1wUlhGcHE1emJPbHJiMmRrUzFWSw?oc=5) |
+| Suspect charged with igniting deadly Los Angeles Palisades Fire - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPaXhhTzh6aVc5UHMwbDRQYmd6OUFFd1lIelRZWHkzcHZncklIaVVXWmVXTzFkRzJJUjNxY3JlbmZRQWtoM2pIRmV6bHN5NEpqMWJBOWpQbWhZVDlWNzhPLW9zUXdmVE0tRDBZQlhzckltaFhGWUJOWUZlcTBrTnVTUnRWbTNYRk1YaDM5dW9xaDhQZWFCOFN1OVNDSGRUQTJ2SF9fSGFFVUNzSGIyc3dMTTZPWUMwbUoyamNVSlRkWGxCT0NWN3ItUExFNEgxdw?oc=5) |
+| Trump says Illinois’ Pritzker and Johnson ‘should be in jail’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNRUo0S1pwMTE3SGlFQjVmY2ZacVJYakFMV1RTVjJxYUNiWUdKZTYyWm00RkNsZjJNN3d4WGZ1TlhLMEN4QXNqQ3dCb3AtRHZPY3B3VEszU2t2dEg1WWxhbHJtMEtjS2pYWjYxNFRveEE2SlUtMndZMDdZUk1tQnRYeWdRUGRVbjVKRHYtai1UVXY0WXc?oc=5) |
+| IRS to furlough thousands of workers amid shutdown - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxORzJlYldxM29OdDAtR251MkJ1cjJCMi1hekFOWmdRbXlYX19XUnlxcHg0UEJjTm5mcHUzLXJxWmNsaG0tSUJ0ZUgwRmRCUlZET0xBVmdCeEF5b2ZoTERzQS03U1p0R1NYTVAwek5jWVRRRzVIRjkwWlppQmtsQzd2UENRcWwxTVpsMHJNSDdFMnFwQU4xN0tj0gFWQVVfeXFMTjh0b2xqSTFrZjQ0RThHUUlLakc0blpubnU1ZE1FdmpHVlQ3N05Hb2U2aThpOFYtN3VmVHZTWE9IcWVTY3NacVlqaDVIa3lDSmlFOTFULXc?oc=5) |
 | Trump administration officials seriously discussing invoking Insurrection Act, sources say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNeVV2R182bW52RHdZNU1mMzVhenJKOFYwXzVvZW1XX21CYVFETzJKQlJBX3I2eWV6WWplZE9aX1N1bDRIUXlkRXZPM21JWkNGcXdUYldDUEdFdjdVOGdvaDNUSm1vcHFaUW1jTDhyVnNEdjFrYTZxZENwUUFjeVBEQjdrZnM3VkNNUVRXT1ppNFV5N1JGUk8tcGJnS0pPeHBTN29OVGFPSzNiQjUxQlVfUW15aE01V1lmVk1MS1JEUTNNbjEwakc40gFWQVVfeXFMTVI4VUUxbnZPVUFMWHJYU3pZbVhDaGI1V3ZSRE5kYVgxRXpDWlFvVThUM09GYXdCc3AtVU5zTHp4c2tBZ1YyQzVvUGdpN3MzVEYzUlA2NWc?oc=5) |
 | 2025 Key Races: Jones Texts Rock Virginia and Checking in on California and Pennsylvania - Center For Politics | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxOalMtWkNJV21lc3JiM2J1WEVGOHphR0ZsTzFtZjhPWXhVMTFnVVRRcVNhWmk2N1RsQ2JUT3lpbGYyMkV1OVpGUkdPRF9DTnFWdkY4dXdYaWZISnNsSTVsa1FGWVc5ZTl6U21CVUM2TkdjLU9hc0s4a0xYTVdNYzI4Q2I0YVBCM3NhSGVRYnBvYlA4R2ZTS2pYTXdKT3g2VFRYMS1LcVk0NXpYM3dTUGd3WXJTcFU4QlktUmpTTHVhTWJsRS1JNndrc1FvcGRxOWFuX2Jsb1NEeDVTdw?oc=5) |
 | 'I don't want to keep doing this': Katie Porter almost walks out of interview - SFGATE | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOSkt6RXd4RVRjX0plUXltTHU2WTNfN2o0TGNqYzl3T0pjZFlrQmFsc3BVRDBhTEtEZFZvNkR2WWFVZGZtQzlnNkc3R29LVnJzYUM4a0Ntc0xFNDVwdVJLd0VMXzNzMDZlY2hpb3dNVDA4OXB6VzlMVFM5eExGUzk0M3NiV0pmdw?oc=5) |
+| Last of 10 New Orleans escapees captured after nearly 5 months following standoff with Atlanta police - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQMzBYQ0VsTTBRYkc1YXBiVWNST1dxSGkxNDktR3J4R3drb2QtYTdoUmFkbzZwdFlHcWdqb0tvdG13M3pncTVNWmZ1c0JCV0xLRXFSVmdtSXJzQVBMVTAxNUtZWWw5a2JRTk1mbG1wUlhGcHE1emJPbHJiMmRrUzFWSw?oc=5) |
 | Pope Leo will ‘stand with’ Catholic leaders in protecting immigrants’ rights, advocates say - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNWFd5XzgxX095ekFoaUZ3aG5SZGJsTnZsTTU5cF92VGY4XzVnVjY2MlRqWHZfRVNsVHFMLXNybXljemZ3SHVxM3d6T0pmc1RZc1dfZlp2dWlFUUdpaTc0QTNndDBEYUlzUUQydkhMZkhTa19WZDFOZnJnajFQZGRmeDVJTQ?oc=5) |
-| Vance heads to Indiana after Republicans warn White House of stalled redistricting push - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOR0pGbzFrLXBKazFCMUI1U0lhVnJKVUlyOEVtTmRwWXV3LWd4b055eld6R21tY05VQmJJSXk0elRxc1ZOamxwd3gyWWp2alN2UDM1eUl0U0lLRkc1b3VidkN5YndXbVB0TWRBd1J0dU83ZjFRdHBMSjRNSjdTMkRGTE9LQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
