@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月08日 20:25:19（北京时间）**
+🕒 更新时间：**2025年10月08日 20:32:49（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | Pamela Bondi stonewalls Democrats at DOJ oversight hearing - Roll Call | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOOFc4dVBteXJoamhpYy04YmVhU3JQV2h6SWxiUVBURUx3UFIzY2U5QmE3VDViLXMwWTdDQ2FXMEhLX0UyR0htX3pkSV9MbnU0RFRrRXNOalQ2V0JEVXFrZW1MemdWbGVZa1NXeUctbWhEY09sZU9BclFMOUtTSU5SeUowX3M3aDFBWFR3SmhhMXRtNkc2dGc?oc=5) |
 | Once a loyal foot soldier for Trump, Marjorie Taylor Greene is increasingly bucking her party - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNalRsMV9BSTA5WTVIMHZkR0trcmxlYm5NUzRRZ0pvTTh0VDVsUC1DVEEyNThjVkxmUzFYVkYtSV9tX0p5NVhfTjFBZ1JVSHJjckd5NHBiVTRzMFg3NEs4YW0zLXdhVGFrTUI5LV9ZS1RTWEVCaGJHMmtkWTdEbVNnUnIzZVZQNnRnTzBFZlNxS2JoVnBYd3pfRzMzRHFBZlZaT2RaaEgyeERqOUxa0gFWQVVfeXFMTXV4aEQ2cktkVHVmYjlHX3lWOVVQQ3VPVW1iTU1iLWlycThxb1doNUpkay1GaG1uV0VJLVpQZ1VvaEJFbUdhaUJkcUFTQWE3YWlTUk5hZWc?oc=5) |
 | Trump-backed Van Epps and Democrat Behn win Tennessee primaries for US House special election - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNSkFHd2pTd3l3Y2h4dW52NDJkaVNnSE12UWZrLWwyY2xNc2VFNnh5SFNFVThlbS0xQVFfbV9SdWNlakgxNVJJNzhhRmhBTXcxeWhyT1B3SVpyNEhmSWI5bDYxZkJPaXNKWHQyekNkNHVyc2JOU19zTDU2ZTIzUzlUeEVTVXM5QnBndUpOaTVtc1Z4cGdxUUZkVHlqVkxoeWVZVVN5THZQSVFUNFRQOHNNeA?oc=5) |
-| Chemistry Nobel awarded to three scientists for their work on metal organic frameworks - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE0zakozS0JmTlUzMDJ3T29pSHR6NTF4N1Rfd09jaTVvTUJ0R2lQVmNtXzctS053aUJmMEZWd2V4ZE9TZUZDdE1xWlJ4Vy0yT0FaaXI1b2JDcnZaQdIBX0FVX3lxTE9QQ0V4S202NkU2VGs0LW9Gbjh1Y1NTc3ctTzVLZ0ItSGF5Z0NfaG9rT3JGQkNPQnZMMGF4OVFxSjIxck02dWpXNXhrajgxVzJ6UEhkUXNGLUpCWk9EUEw0?oc=5) |
+| Nobel Prize in Chemistry Awarded to Architects of Metal-Organic Frameworks - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE00ZFROaU5VNVVOTXJJc0xHZkpYWFFTTGVLcjE2bloxQW9RYVhTVHZOMktPWE1UcEc0Mkl6OEpTUzBCV1NhdFBXcnJHTTZZLXpEd0FjN3BLUk11ZWtyamJkc29rZUVMSEhXUXdqR0NVS3dfc1hDdlM2OQ?oc=5) |
 | Why Trump hasn’t invoked the Insurrection Act yet - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi2wFBVV95cUxQSndMaVpuRXVnYndheGJzQi1EVkllTjRpUFlTQ2tERXJwSXBITEtKc3hrbFFMS3p4RHZqRUdYM3ZUbWdwalZleERtVXBLWEkyaUpGSlN1VEdnYWs0U0xkSVlCUDlldm55ejZJWk9sNlZCMHB2M2VFZVNqdGgxSUxBMGZJUm9odlFKZ1NmeXh5T3FyOEJjSjI3SlB1UVdBSkNSazIteFVpQkNtamItd1ItWFNfRFltMzVhWndndC1QelUtdy1JTDBDZXhSWWYwWFV3RmtrcXd3cTU4Y2s?oc=5) |
 | Portland leaders seek dialogue, while Kristi Noem slams local electeds as ‘pansies’ - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPMUhOeGJLUUh3b19oNkhoNHkxcDlhRkxfc2lhNFcxVV90REtvRHlXUzNDRkpKVHpOd3NodGswMHljeEdmQ1pPOFZjMmNKR2E3Ui1Gci1COFIwdTNpM0E1R3JDb3kzc3pUWjZFcHhqb3RXWk9VM3JiU1FzSWhCY2VsSmpNeUNQSll2a1ZSUEx3UHk4dTdzQzJqUnRGSHB2akJGTF9OV2hCMjUtY2pTVEV0VFVRcXJIX1lzTmMwTjFWb3VaNmJ4UlRiMNIB3AFBVV95cUxPYlZYVHhQUzY4aWNScklTcDBRMnJwdUl0MWFxcE5JSHBBNWtpR2tGRTM1OFBpMUR5MHhiVlh0VEJQQ2tSbllQUFN4UjRsY0c3MmZUNUo5QXA4WUQybENEdzMwTl9oNnVoTTlDdlF1eEhOb0xxRFh2T09lR0x4SWdINUJPTTJvXzdkYXZmSDcwaUZyeTdzQkhxUDZucjE3UF8tU2t2RDRiUnZJSXlENEt6ZXkwUGx2cHBEelR4eWh0azIxbWN4UjdkUXBnR0RSY3gzX1ltc2N6OExPR1Zx?oc=5) |
 
