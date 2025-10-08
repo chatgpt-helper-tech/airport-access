@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月08日 08:56:27（北京时间）**
+🕒 更新时间：**2025年10月08日 09:01:57（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | High security a fact of life for UK Jewish community living in fear of attack | [阅读全文](https://www.bbc.com/news/articles/cly09x107e8o?at_medium=RSS&at_campaign=rss) |
 | EU steel tariff hike threatens 'biggest ever crisis' for UK industry | [阅读全文](https://www.bbc.com/news/articles/cwy875px79po?at_medium=RSS&at_campaign=rss) |
 | Dog attacks are still rising - even after the XL bully ban | [阅读全文](https://www.bbc.com/news/articles/cvgvy2yyv8mo?at_medium=RSS&at_campaign=rss) |
-| High immigration levels damage communities, Badenoch warns | [阅读全文](https://www.bbc.com/news/articles/c5ye7njqp2eo?at_medium=RSS&at_campaign=rss) |
+| Badenoch to set out new rule to cut borrowing and taxes | [阅读全文](https://www.bbc.com/news/articles/c39r8k27rm9o?at_medium=RSS&at_campaign=rss) |
 | Two arrested over cyber-attack on nursery chain | [阅读全文](https://www.bbc.com/news/articles/cpvlgzk0xvpo?at_medium=RSS&at_campaign=rss) |
 | Stephen Lawrence killer admits role but refuses to name accomplices | [阅读全文](https://www.bbc.com/news/articles/cewn99k9l7zo?at_medium=RSS&at_campaign=rss) |
 | Millions of drivers could receive £700 payout over car finance mis-selling scandal | [阅读全文](https://www.bbc.com/news/articles/cqlzwqv7xz1o?at_medium=RSS&at_campaign=rss) |
@@ -31,7 +31,7 @@
 | White House draws out mass federal firings timeline as GOP grows squeamish in funding fight - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNZUdWcXhlTWhXSmpMVjVlSHlocnBNV3A0T2IyTUhNeUVwUlVXaE9XeE1NV1hRYUthelA2ZXFmZThNZmlfOWc3SWxwZG1pMFNKWnBxOFRNUHNTbExLOEJIbGpnczBTZDNNUGZFbWFMWjY5c0lTSHVQaG4xNnpiOTRyZXBCS04tNVJBM2RMUW5n?oc=5) |
 | Senate confirms largest bloc yet of Trump nominees - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPcGlEMHlITUhpeTJmVmJLb1NfVkhVNkI2RjZEYjViR2ZjZXlJdkdEdnFXSURlZHNHTDJNdUJQZW9IWXBadGV6blA0UGgwSWNOMUFhcEo2NG85X2lLN0JlZHMwQzJROGhiaTZNVEtOT2lkaERwQ0ZwcHZFN3AzUlNkd0pFMXVTNGxVeWY2MjMtcw?oc=5) |
 | Homeland Security Secretary Kristi Noem arrives in Portland for Tuesday visit - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPQmtHWVpwR3hUSnJWOWhHUV9LYlpIODZrN3g1RUxITncxYjdUSVlzMngxVWJYbmVTMUZWd09PNjJqUFFfdDlfbk1jVEd3T3RDd2NCYUxCX191OUZCZVY2QXVoTFRFYXNkXy1kbUU5R2VtT3l0TF8xck9FNmFPLVBoMGZjZHpBZDFPU204M0otOVJjSmxBUm9tWg?oc=5) |
-| Attorney for woman shot by Border Patrol claims agent said, ‘Do something b----’ before shooting - WBEZ Chicago | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPVzJ2alM4OGJELUJrUFlkZndvN0dPdktzbk1mS2FtN3NPTTNWN21JQzFVaTBtUjJqdGcydmJ2NGtHaDg2MzJCcVFVVGN6NC10SUctaTFyeWxNMElKYk90OG1vY3drZ2s4aFF0VmhHOUZtRVNGNUNENmh4OEdJai1VNXAxTDFDZW5hdkJoemc5TjJHc29IYl9EZWowX0dyNFFKXzRkaS1kcFQ0TXRJWElMNHpYVWdJYzYya1p0VmxJZUQ?oc=5) |
+| Federal agents taunted Chicago woman to ‘do something’ before shooting her, attorney claims - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNYmUzdVVpXzNmRkpNakZWR2dDUjYzLWp0Mm95WVRDLUtNYWJZRS1BQWdLZXh1ZE9LeDdxZjMtR0pwUW1ac1NxY0lCZW5Zc2tFUUJtTExQWkJsWERlQUFfdmh6V1BHMXFFejh4a05IX0VaTkpKZS1kRHJOMDRndnRmbnVmVTRYQWZWX3ZpX3RB?oc=5) |
 | Scoop: White House says it has funding to save food aid program - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOUzFBMHo5X0NZTVFrN0NvQ2xZNnIzZnl0U1NST0x3OXVYSm9MeFhiMC1saEY0SDVHM0hKN3YwdzdzMGJSeTZwMjduRDFCeFBRUWFuTXZySHluTlp0QUgxbTVyd2U0eU1pTlVaczNxai1KWWRZd3lXMW1JdEZrZjUtM3h0a24?oc=5) |
 
 ---

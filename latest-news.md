@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月08日 08:56:27（北京时间）**
+🕒 更新时间：**2025年10月08日 09:01:57（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | High security a fact of life for UK Jewish community living in fear of attack | [阅读全文](https://www.bbc.com/news/articles/cly09x107e8o?at_medium=RSS&at_campaign=rss) |
 | EU steel tariff hike threatens 'biggest ever crisis' for UK industry | [阅读全文](https://www.bbc.com/news/articles/cwy875px79po?at_medium=RSS&at_campaign=rss) |
 | Dog attacks are still rising - even after the XL bully ban | [阅读全文](https://www.bbc.com/news/articles/cvgvy2yyv8mo?at_medium=RSS&at_campaign=rss) |
-| High immigration levels damage communities, Badenoch warns | [阅读全文](https://www.bbc.com/news/articles/c5ye7njqp2eo?at_medium=RSS&at_campaign=rss) |
+| Badenoch to set out new rule to cut borrowing and taxes | [阅读全文](https://www.bbc.com/news/articles/c39r8k27rm9o?at_medium=RSS&at_campaign=rss) |
 | Two arrested over cyber-attack on nursery chain | [阅读全文](https://www.bbc.com/news/articles/cpvlgzk0xvpo?at_medium=RSS&at_campaign=rss) |
 | Stephen Lawrence killer admits role but refuses to name accomplices | [阅读全文](https://www.bbc.com/news/articles/cewn99k9l7zo?at_medium=RSS&at_campaign=rss) |
 | Millions of drivers could receive £700 payout over car finance mis-selling scandal | [阅读全文](https://www.bbc.com/news/articles/cqlzwqv7xz1o?at_medium=RSS&at_campaign=rss) |
