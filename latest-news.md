@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 02:17:44（北京时间）**
+🕒 更新时间：**2025年10月10日 02:24:06（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Colombia's president says boat struck by US was carrying Colombians - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5oWmFsUXF4c1UtRURoa1V5ZnBrZXpqT01OUHhIYVJjd19jOVd5TFprb1k5OVlFT0FOZWtaOGUwZU4yY0lUSnJLQVlmOFpMYXc3SGV1VFlDQUZJUdIBX0FVX3lxTE5LSVV4dDdBSEUyLVdhLXpFTlNNTnd2RFE0MEVGQU8yZjdVM3lUQjZwT3pBLUlERThybmhyeGxGQXUtWDNjeXNyaEF6bHlnM1FycTF1b21fTVFwTmhvSWM0?oc=5) |
 | What’s Really Going On in Portland, According to Police Reports - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOV256V1ZOT19Nd1ZlRHNFTmxmY0VXMS1YRlVNVHBhWTZDdHJON2N4QjlOMWJtNU9tajYxTXhMY3V3NzdjSDhaR2FXaWpCUnlwN1dsSHBlWG9zb3NJR0NEaDBfVTh4aTc2V1M0aGFUQ3otWDFmMEpCZ2M3Z2syRWdzLTgzMU4temZOcENRMGhtdzF3X0M4UWhsbEx5UEVyYWlCZXRzZkpqR0czUQ?oc=5) |
 | Duffy hints at firing air traffic controller ‘problem children’ amid continuing delays - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQMXhCcmQ5M1JtYUFwWEQ2bVdnN2xPSWhyT09zUUpzMkI1OVdKTVJSMEV0dXh1d1NndVRTM0FMUy1oWmJWaEZHWGIzNHVFMDlDRlZsQVFCSHFhNzVPLVJuQTN6aGJBRVZabjQ3dEZtaUEwODVRajU3TE84Uy10RVlWOHNlUjV4NTJEVmFCN2NrRzducWV1X204?oc=5) |
-| Former Democratic Rep. Katie Porter nearly exits tense interview in her run for California governor - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQSFdQN1dsY0VJYUtyT2xoZHJkYlRrUm9BUjJRb25KN0p4dmlJNXVxUFgtT3JDeXVxOXZod2tnQjhFemhSNEUzREJTSXh6TkJSamJDc0t6enltRGc2ZklxUUZnOVF2VVNUcS0wcU5LVWhreVktRmkyeDc1LTIxb1BJYVYzQ2t0UTRUbkdLbE5xcHUyUHNnMHB6Q2YtNi1WeUdzUG01cHN4YWVBSEg1ZjdyWnBqT2ZGYzg?oc=5) |
-| Trump to visit Walter Reed for "routine yearly checkup" 6 months after annual physical exam - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPUk1ad2tJTzViWHgzRUFIeHV5MExOdHJSV1cyY1BmeGpfLUR5XzlyS3F2TzhNcEpGTURFZS1keGNfc2xUTm1vbW5QWmdWeXFVQ3FQM010clQtQ25ubmRtMVhtOHB4UUhkRmZIZHNHY200eDZiZzk1MTIxRnQ3dVhRNGxwdlZNTkZiOEhEcHRmWl85OHFm?oc=5) |
+| Katie Porter Tried to Cut Off a CBS Interview - The Cut | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNdHFvNnQ1cFl0SV96UUc0RmQxZ0xXUlAyRUo4OGxhTE1QSGk1NXpGaE00OThyWC0zVUZwRWNiUmUzUndqQ2VRd2k1SEVwNElpbzl5RlBQekVTS3RjSzl2WllrWVprUnlEbThfMkRiSEpnenYzSHZBZzlyRXdhdVJCeGxsUGlXSWkxYktfOQ?oc=5) |
+| Marjorie Taylor Greene ‘putting blame’ on GOP congressional leaders for shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNSWJucWZ1RVhEdW9jS0VwY29LMzBJMnBMei1HQ2FKa2hNMm82ZFkxc2lXQUxldHBESVBEY2pEaDVlQ0NPTnh6V2ZfRV9CbUFGWjBXcmdFY1NmM1hMeDBDVTdhVC1ha2dXVEFKR25CZDBoaFVPdW5QQzJoZE56dGQyX3duTTBmYlVpQnJlUk1seU1idm1kZXVGS1JYUVpQSXROUzdHQUZzMA?oc=5) |
 | C-SPAN caller confronts House Speaker Mike Johnson about shutdown effects: 'My kids could die' - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOWHQ5bDFLMG9ObC1jVTZvNWNUUDJwSTJ2UVY3dlJIbHItckZ6S29ERHcyaWlqTzBQOFJoTDVyT2N6a25EREF1MDgxZlZQZGZEVEpRN1BTV19HN1NyNFFfNldVRjQ1Q0FWbm1WaXVibGVzU2p5aEVZaHAyTlVzTV9zVTQ2TWVIRkhyQWtfR29YUWNTS3BqOE9XVU91NzF6R1huckJ4akZxRmFkaS1FdjZRSUtDY1laUmFHYXRLd0d6UGzSAVZBVV95cUxQc0RpUFl3UTBMV0ZXVnRPVDRXU0I5VlBxRFA0Z04xcld4REN4ZWxsTzNPVlhRdnA5aXFxelRtQWlMbXJqa3dqWWdnU1N3aTRJU1BCazdZdw?oc=5) |
 
 ---
