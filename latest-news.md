@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月09日 12:24:19（北京时间）**
+🕒 更新时间：**2025年10月09日 12:33:15（北京时间）**
 
 ---
 
@@ -8,15 +8,15 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Watch: Scenes of celebration in Gaza after Trump's announcement | [阅读全文](https://www.bbc.com/news/videos/c5yennkdjyyo?at_medium=RSS&at_campaign=rss) |
 | 'Half my mind is still in Gaza': Evacuated teacher begins studies in UK | [阅读全文](https://www.bbc.com/news/articles/cx25qy1804ro?at_medium=RSS&at_campaign=rss) |
 | America's top banker sounds warning on US stock market fall | [阅读全文](https://www.bbc.com/news/articles/cg5ej03p604o?at_medium=RSS&at_campaign=rss) |
 | How Britain's membership of the ECHR became a political hot potato | [阅读全文](https://www.bbc.com/news/articles/cm283eqje03o?at_medium=RSS&at_campaign=rss) |
 | Have Russians set up a military base in my childhood home? | [阅读全文](https://www.bbc.com/news/articles/c4gj7p96nd0o?at_medium=RSS&at_campaign=rss) |
-| China tightens export rules for crucial rare earths | [阅读全文](https://www.bbc.com/news/articles/ckgzl0nwvd7o?at_medium=RSS&at_campaign=rss) |
 | Stars, secrets and slip-ups: Celebrity Traitors is off to a cracking start | [阅读全文](https://www.bbc.com/news/articles/c2038w7lgx1o?at_medium=RSS&at_campaign=rss) |
+| China tightens export rules for crucial rare earths | [阅读全文](https://www.bbc.com/news/articles/ckgzl0nwvd7o?at_medium=RSS&at_campaign=rss) |
 | King Charles hopes nature film will 'inspire' viewers | [阅读全文](https://www.bbc.com/news/articles/cd63dxxv9jpo?at_medium=RSS&at_campaign=rss) |
 | ChatGPT image snares suspect in deadly Los Angeles fire | [阅读全文](https://www.bbc.com/news/articles/c8exz5yg14ko?at_medium=RSS&at_campaign=rss) |
-| Synagogue attacker pledged allegiance to 'Islamic State' in 999 call | [阅读全文](https://www.bbc.com/news/articles/c3drj0dxmr9o?at_medium=RSS&at_campaign=rss) |
 | Conservatives would scrap stamp duty on main homes, Badenoch says | [阅读全文](https://www.bbc.com/news/articles/c20zv94ldpko?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
