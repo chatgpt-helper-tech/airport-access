@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月09日 09:56:30（北京时间）**
+🕒 更新时间：**2025年10月09日 10:00:11（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | President Trump posts on Truth Social that Chicago Mayor Johnson, Gov. Pritzker "should be in jail" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNOFZCNml0MTY2a2R3eGpmcy1zUzZwZzVSYTRTYkRDRHRBbmFXVUlGczBMdmFFanZyeXBEYmZVYm9RbktEX1JteUxaZjF3Ti0xSTZzWFc1OFliNE5XRVV0ZFhDVmNuLTNlcVJKUnB2ckZwWWNIMWZMWmNGczhndUQwSlRQcFl5Vjg4?oc=5) |
 | ‘Everyone’s just getting destroyed’: MTG calls on Johnson to bring House back to DC and rails on GOP handling of health care - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE1KNUpYbmZSZVF4RTRNeEp2Vk5PeXhaVmtUSHhCMUR2aldUV09OcVloaFZLdllxT2NhbUpUc05oaThWcWs4Y0xVcHZvT29qajlBUDlKMldlVnRYVzE0eXhHckUyRG9uOGZBQ1E?oc=5) |
 | Katie Porter’s viral videos plunge campaign into ‘disaster’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPOVcxSGtoYUVUckRuMGJ3YVNfY2syX1A1ZXRxV3Y2ZVJiR0ZpcHRyaEUwZ2VJcW1CdTAyZUVvOXJqTHB2b0p3M0ZjSTFCMV90SDlPQkZSS2VtcUN2MFd6SzRvQWZTU2JTQU1sODIzM21LTW9QUWl3YU1xREM4YTRwdTltSXA3Z0V1dGhsVno0cUVoblAxOUJ2dQ?oc=5) |
+| PORTLAND: Fake News Ignores Antifa Violence, Residents’ Pleas for Help - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPbE92ckEteUpMeE9KQVFYTjZjN0VsczFuUVNFSW84Q3UteTRac1dtU3oxTUtycVJxNzVMNGJkdFZ0YjdyZGctLUdna0JLZDkyRVF2ZG1WRGluUGpGTEIzOW9GSkdzbEt0ZGM1RDRPUFF3RkVXTElINWpaZ0ZEZlpjakZDMEpqTTJUZFBreVVmNWZfNWJNaUJySUJvUzVXb3ZuR3JlMVBEODB5NkR5T0w1eUdn?oc=5) |
 | Pope Leo urges U.S. bishops to speak about Trump's immigration crackdown after being shown migrants' letters - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOb1FVM2NpY1ZXZ3J0Y29BYllqbl9ORkRHQ3JwbzVrNDUtX3JBaTB2eUF4dmZKeDNheHVFaUhORmZZaUcwUUFUcmRxWi1ELURJLUxnRmJfaHJTSEl0RkFXYWRrVnZkQlpuNi1OdC13US13Zk5RVE9VNTlSZzhROFJBNUpXUTk3U2NhaEHSAY8BQVVfeXFMTlNPOTFjODZKNi1oOXZqcTZWb2F4YXh0Rk1aRE5IbGZ2U0tkZDloTFByYUpYR1FnX0dlVVBWYmRhdDc2bWpvLTJzNU5jWjdRblA3cWZFUnFFSFhLcEZTdkk4bzM4Tzl6WjVKN1dvUHM3VUdaMU5jTVlWbVRHVEhGeDg0RXBDdDFaUmdzOGQzT2M?oc=5) |
-| Shutdown tensions cause clashes to erupt on Capitol Hill: "You're an embarrassment" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQV2ZpWnpJNmxVeDA4a2dTVU9BampueW1jdEtHTE1EMkZxTEt3ZVRSMU9LajRmcFhyUjZiSzAxVXdyaHF3S0psbWRDYVJ6V2hneDgyalR1YmNTY1JQd2cxeHphYXR3NGpRb3FOOS0wWFhRRU5sRlhxT0RFSnhNWlFfelVVWXlsdWs?oc=5) |
-| What to do if your flight is delayed or canceled during the US government shutdown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOckpZOWhVbDFyd3c1a2tBWjc4WXZzYkd0VXc2ZVc4eUc1NHJyWkNBaDFWVUhuRmpOSkQzUERnLTU1Wjc5VVhiQmJQMGxsVk9Ma1FTdXRjaXRJR2ZqQ09scDFERS1jSWY2dmpkejVIaGVmWWZobGwtR2RxNXBzOUpqYTRyVE5BN1Z2V21tXzV0X2NqcE5LczFtYVpQWVd2bmsyeU1nZmJJdlA5TE9uMWM0?oc=5) |
+| California to phase ultraprocessed food out of school meals - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOTlVsSmluMjF6NUpqYjJiS3hNU2RyMlVLcHhKb2EzNndfZ2JhMXFBUDVqMjlITkg3TlhWMHVJRnlWUW5PZmdFQmFONGdPRHJna1ZhQ3ktTnlydmJnVlNyckdhdk5SOUhYMlNlclZ0Sk50aG1pNGpWdUxPcmh2cjV0R0R6anlCRXl6RDRxci1mNUZTV0diV2dDS2xtdU5lV2NFU1JHQkxR0gFWQVVfeXFMUGxJMV9hMDE1TVczX3lPWE8yalpmTXVJMmFwZVZwdm9TWVl4X0lXaUdXUUhNcThtRV9Pb0NHRW5sOU5wT2VIRXJwSkxKZzVPMHZnTFFxNHc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
