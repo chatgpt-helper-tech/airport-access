@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 04:01:28（北京时间）**
+🕒 更新时间：**2025年10月10日 04:10:00（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Duffy hints at firing air traffic controller ‘problem children’ amid continuing delays - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQMXhCcmQ5M1JtYUFwWEQ2bVdnN2xPSWhyT09zUUpzMkI1OVdKTVJSMEV0dXh1d1NndVRTM0FMUy1oWmJWaEZHWGIzNHVFMDlDRlZsQVFCSHFhNzVPLVJuQTN6aGJBRVZabjQ3dEZtaUEwODVRajU3TE84Uy10RVlWOHNlUjV4NTJEVmFCN2NrRzducWV1X204?oc=5) |
 | Katie Porter’s bid for governor is getting noticed – but not how she wants - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQZUlwNVU3YUgzT1cxX0xaQlctclNVYnc4ZDB6MG9iSUxZbjB1VFI4Z1I2c2lFeV9xYkF1WEVyRGZrN1dEMFZqaU5iTzNNcnJDaDhZRF91NHBSLWVGUTA3SWdTWEhEWThBbDhiMm9UYlYydks2OFV4cGFWMGtTY1hoTzlMcmU2M29wOENEZVJwQTdpeEJuUjVsYUtXaDQ2dw?oc=5) |
 | Democrats give Trump credit for Gaza deal but stop short of backing GOP calls to award him Nobel Peace Prize - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOM2VxYUFhanZGajFRZERSRE9FM1pRV2phelEyWHozSlZMazAwSVBGenhxOVJOdTFoSVBqZ2dxLTNtODF0NjhIMFJZTE1YWnpTdVVSLU85UzFjemJGaDUwZ21xdU1YLXIyTXFaTmwzU1lXajNYQzktRjJEaWt1aFZOSW5pejVzUHdxcUNuNGNTN09JY3kt?oc=5) |
-| Government shutdown live updates Trump vows military will be paid, Senate rejects deals - USA Today | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNWHV5aVREVW9ob3JHejkxc3BOZjZRS21FUktDODd3MjBKdl9pMENQeWlnYmliUU90X1Z5THJ5YVFCMHQwUFVfc2w4ckpLa2xnbEI5ZHE4RGpibWhHeTZ5TzR1dUtPd2hGbWpkR2RuVVZsTTU5TFh3Tjk1WDR4ZXpfanc5TURSZ3NrbVZxaHg1MXUyQUk0RFBtVVZfVlM5eXdYVUVWbFF6OXpHS3lBUjdwaUF4bnQ2R2xIODF6b2NJOTM2blFN?oc=5) |
+| Trump to visit Walter Reed for "routine yearly checkup" 6 months after annual physical exam - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPUk1ad2tJTzViWHgzRUFIeHV5MExOdHJSV1cyY1BmeGpfLUR5XzlyS3F2TzhNcEpGTURFZS1keGNfc2xUTm1vbW5QWmdWeXFVQ3FQM010clQtQ25ubmRtMVhtOHB4UUhkRmZIZHNHY200eDZiZzk1MTIxRnQ3dVhRNGxwdlZNTkZiOEhEcHRmWl85OHFm?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
