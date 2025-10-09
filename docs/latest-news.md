@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月09日 09:41:14（北京时间）**
+🕒 更新时间：**2025年10月09日 09:48:51（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | IRS tells employees furlough backpay guaranteed, while WH counters in memo - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxORFJlWnRJak04LUFhZW5jcG1DWnhEeFp5UExaLWVEVWRYdXA5X2FlVFhtZXh3LUdlZEljbmlvZ2FTa2lIZmZ5dS1Canp1RTJoczJ4SDc5V1dXb21YcVl2Rlg2anc4S3Q4aXpSS2ZXOTVuVmFhQTNCbGlBUnBFOFBJcEhXbGxyenc?oc=5) |
 | Trump administration officials seriously discussing invoking Insurrection Act, sources say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNeVV2R182bW52RHdZNU1mMzVhenJKOFYwXzVvZW1XX21CYVFETzJKQlJBX3I2eWV6WWplZE9aX1N1bDRIUXlkRXZPM21JWkNGcXdUYldDUEdFdjdVOGdvaDNUSm1vcHFaUW1jTDhyVnNEdjFrYTZxZENwUUFjeVBEQjdrZnM3VkNNUVRXT1ppNFV5N1JGUk8tcGJnS0pPeHBTN29OVGFPSzNiQjUxQlVfUW15aE01V1lmVk1MS1JEUTNNbjEwakc40gFWQVVfeXFMTVI4VUUxbnZPVUFMWHJYU3pZbVhDaGI1V3ZSRE5kYVgxRXpDWlFvVThUM09GYXdCc3AtVU5zTHp4c2tBZ1YyQzVvUGdpN3MzVEYzUlA2NWc?oc=5) |
 | ‘Everyone’s just getting destroyed’: MTG calls on Johnson to bring House back to DC and rails on GOP handling of health care - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE1KNUpYbmZSZVF4RTRNeEp2Vk5PeXhaVmtUSHhCMUR2aldUV09OcVloaFZLdllxT2NhbUpUc05oaThWcWs4Y0xVcHZvT29qajlBUDlKMldlVnRYVzE0eXhHckUyRG9uOGZBQ1E?oc=5) |
-| National Guard poised to enter Chicago as Trump calls for jailing Democratic leaders - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxNSXJMWnJBdzM4YU9Yd0EtdUN6RG1xeDQyMlBQczNnXzVfTUtCaV85aWVXSkVDZUVsZmNlTU0ybjFTNnZHWWs4QnhKNnJSWVQzWTdMblJ4UURSZDdPV29NVmdHU3RkblNzUzdndUVvSFI5eW9KN04zaFhlVTRTYVRjdkFIVmp6VmpnQmJwSE42OXVoV2pmV0VBcU56YUcwODB1WjdCaEp6VEdVR1VvcWoyald4bVV2TGJuRFU0QkIzbGJLQUlSRGc?oc=5) |
 | Katie Porter Tried to Cut Off a CBS Interview - The Cut | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNdHFvNnQ1cFl0SV96UUc0RmQxZ0xXUlAyRUo4OGxhTE1QSGk1NXpGaE00OThyWC0zVUZwRWNiUmUzUndqQ2VRd2k1SEVwNElpbzl5RlBQekVTS3RjSzl2WllrWVprUnlEbThfMkRiSEpnenYzSHZBZzlyRXdhdVJCeGxsUGlXSWkxYktfOQ?oc=5) |
+| National Guard poised to enter Chicago as Trump calls for jailing Democratic leaders - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxNSXJMWnJBdzM4YU9Yd0EtdUN6RG1xeDQyMlBQczNnXzVfTUtCaV85aWVXSkVDZUVsZmNlTU0ybjFTNnZHWWs4QnhKNnJSWVQzWTdMblJ4UURSZDdPV29NVmdHU3RkblNzUzdndUVvSFI5eW9KN04zaFhlVTRTYVRjdkFIVmp6VmpnQmJwSE42OXVoV2pmV0VBcU56YUcwODB1WjdCaEp6VEdVR1VvcWoyald4bVV2TGJuRFU0QkIzbGJLQUlSRGc?oc=5) |
 | Pope Leo urges U.S. bishops to speak about Trump's immigration crackdown after being shown migrants' letters - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOb1FVM2NpY1ZXZ3J0Y29BYllqbl9ORkRHQ3JwbzVrNDUtX3JBaTB2eUF4dmZKeDNheHVFaUhORmZZaUcwUUFUcmRxWi1ELURJLUxnRmJfaHJTSEl0RkFXYWRrVnZkQlpuNi1OdC13US13Zk5RVE9VNTlSZzhROFJBNUpXUTk3U2NhaEHSAY8BQVVfeXFMTlNPOTFjODZKNi1oOXZqcTZWb2F4YXh0Rk1aRE5IbGZ2U0tkZDloTFByYUpYR1FnX0dlVVBWYmRhdDc2bWpvLTJzNU5jWjdRblA3cWZFUnFFSFhLcEZTdkk4bzM4Tzl6WjVKN1dvUHM3VUdaMU5jTVlWbVRHVEhGeDg0RXBDdDFaUmdzOGQzT2M?oc=5) |
-| Joan Kennedy, Who Married Into a Dynasty, Dies at 89 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE5waXYzdHJaUldjQnZtM1hFc0plemFhMWdmaTh2ckRNVVE0d1hKakFGU243bTFCdWZKOFFIRW11ZU15OVI1dW4zLUlyNWF3d3B2TUN3cEo5M3ZOUXppb2NoVmRvT09JcHNLeDJIeA?oc=5) |
+| Shutdown tensions cause clashes to erupt on Capitol Hill: "You're an embarrassment" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQV2ZpWnpJNmxVeDA4a2dTVU9BampueW1jdEtHTE1EMkZxTEt3ZVRSMU9LajRmcFhyUjZiSzAxVXdyaHF3S0psbWRDYVJ6V2hneDgyalR1YmNTY1JQd2cxeHphYXR3NGpRb3FOOS0wWFhRRU5sRlhxT0RFSnhNWlFfelVVWXlsdWs?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
