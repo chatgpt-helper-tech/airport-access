@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 01:48:04（北京时间）**
+🕒 更新时间：**2025年10月10日 01:56:36（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Colombia's president says boat struck by US was carrying Colombians - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5oWmFsUXF4c1UtRURoa1V5ZnBrZXpqT01OUHhIYVJjd19jOVd5TFprb1k5OVlFT0FOZWtaOGUwZU4yY0lUSnJLQVlmOFpMYXc3SGV1VFlDQUZJUdIBX0FVX3lxTE5LSVV4dDdBSEUyLVdhLXpFTlNNTnd2RFE0MEVGQU8yZjdVM3lUQjZwT3pBLUlERThybmhyeGxGQXUtWDNjeXNyaEF6bHlnM1FycTF1b21fTVFwTmhvSWM0?oc=5) |
 | Duffy hints at firing air traffic controller ‘problem children’ amid continuing delays - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQMXhCcmQ5M1JtYUFwWEQ2bVdnN2xPSWhyT09zUUpzMkI1OVdKTVJSMEV0dXh1d1NndVRTM0FMUy1oWmJWaEZHWGIzNHVFMDlDRlZsQVFCSHFhNzVPLVJuQTN6aGJBRVZabjQ3dEZtaUEwODVRajU3TE84Uy10RVlWOHNlUjV4NTJEVmFCN2NrRzducWV1X204?oc=5) |
 | Katie Porter Goes Viral for ‘Unhappy’ TV Interview in California Governor’s Race - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPN0NDeHJlN2tOWE9McEJfb2o0cFlyUnBDMmVnMVRCVWg2aS00MjdySEdROGFjajEydFN5TlZBdDlteHdnUHA1cC1KTUVUTm10cWtYb0RjMWpsM1NkeUlrN0t4QzhJQXNJYkNhYjFvRDA0d0cxUXh1Mlhwd0g1bXlYUmtwdm05dGNjYUdR?oc=5) |
-| C-SPAN caller confronts House Speaker Mike Johnson about shutdown effects: 'My kids could die' - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOWHQ5bDFLMG9ObC1jVTZvNWNUUDJwSTJ2UVY3dlJIbHItckZ6S29ERHcyaWlqTzBQOFJoTDVyT2N6a25EREF1MDgxZlZQZGZEVEpRN1BTV19HN1NyNFFfNldVRjQ1Q0FWbm1WaXVibGVzU2p5aEVZaHAyTlVzTV9zVTQ2TWVIRkhyQWtfR29YUWNTS3BqOE9XVU91NzF6R1huckJ4akZxRmFkaS1FdjZRSUtDY1laUmFHYXRLd0d6UGzSAVZBVV95cUxQc0RpUFl3UTBMV0ZXVnRPVDRXU0I5VlBxRFA0Z04xcld4REN4ZWxsTzNPVlhRdnA5aXFxelRtQWlMbXJqa3dqWWdnU1N3aTRJU1BCazdZdw?oc=5) |
+| Trump to visit Walter Reed for "routine yearly checkup" 6 months after annual physical exam - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPUk1ad2tJTzViWHgzRUFIeHV5MExOdHJSV1cyY1BmeGpfLUR5XzlyS3F2TzhNcEpGTURFZS1keGNfc2xUTm1vbW5QWmdWeXFVQ3FQM010clQtQ25ubmRtMVhtOHB4UUhkRmZIZHNHY200eDZiZzk1MTIxRnQ3dVhRNGxwdlZNTkZiOEhEcHRmWl85OHFm?oc=5) |
 | ‘Shame on you!’ ‘Shame on you, sir!’ N.J. gov debate turns ugly over opioids. - NJ.com | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNcFZOandSVnNHd290dWltam5yam1nYUUwbFpNZXRmM3dBNVVPdDdGNTEwUlN2YjRlbWVHdHVVZHJUSXNUajR6NGhYVENKTEU1VW5FblRNOGZnR3Y4WTdZb0ZxSTJTSkNVN3ZyT2JrMDZyRDA3d1NXVDFaUWxWYVlhc3RQOVBaTU9ibXptd1JtN3I0Q3RxZUxUZFE3RFBpYjVTWHR6Nm9LbzlWQnfSAb8BQVVfeXFMT0FLY1VBcHhZa3NjemthbXlvVXVtZW9nbUhVVDRtOXAtc25vT0NWaldlQWtScmVJV2lGSTZONGRMQTNsWHpUNkl2U3MwcUQ3WVpxS0xVMWo5QVRZYmV1YWVUcWhyNkFVcW5TVmhHTEtFN0YwRzFQeXktVG8tZG5rQm42Q2pXenl0R2Z4dHl6UzNmWjV6MlkxdDRnSmN5WlVicmdUMkdVekJqREZCa0l0TkdnWlJtU2VsbFdBaEE4aE0?oc=5) |
 
 ---
