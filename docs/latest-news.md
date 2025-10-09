@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月09日 15:17:50（北京时间）**
+🕒 更新时间：**2025年10月09日 15:25:27（北京时间）**
 
 ---
 
@@ -8,8 +8,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What we know about the 'first phase' of the Gaza peace deal | [阅读全文](https://www.bbc.com/news/articles/cvgqx7ygq41o?at_medium=RSS&at_campaign=rss) |
 | 'Momentous opportunity': World reacts to first stage of Gaza peace deal | [阅读全文](https://www.bbc.com/news/articles/c8rvzzjnxe1o?at_medium=RSS&at_campaign=rss) |
+| What we know about the 'first phase' of the Gaza peace deal | [阅读全文](https://www.bbc.com/news/articles/cvgqx7ygq41o?at_medium=RSS&at_campaign=rss) |
 | Ceasefire deal a major breakthrough, but war not over yet | [阅读全文](https://www.bbc.com/news/articles/c99gzzd9yvzo?at_medium=RSS&at_campaign=rss) |
 | Water bills to rise further for millions after regulator backs extra price increases | [阅读全文](https://www.bbc.com/news/articles/cvg4jkexgl1o?at_medium=RSS&at_campaign=rss) |
 | America's top banker sounds warning on US stock market fall | [阅读全文](https://www.bbc.com/news/articles/cg5ej03p604o?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | National Guard poised to enter Chicago as Trump calls for jailing Democratic leaders - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxNSXJMWnJBdzM4YU9Yd0EtdUN6RG1xeDQyMlBQczNnXzVfTUtCaV85aWVXSkVDZUVsZmNlTU0ybjFTNnZHWWs4QnhKNnJSWVQzWTdMblJ4UURSZDdPV29NVmdHU3RkblNzUzdndUVvSFI5eW9KN04zaFhlVTRTYVRjdkFIVmp6VmpnQmJwSE42OXVoV2pmV0VBcU56YUcwODB1WjdCaEp6VEdVR1VvcWoyald4bVV2TGJuRFU0QkIzbGJLQUlSRGc?oc=5) |
 | Anxiety grows in Portland, Oregon, amid Trump's effort to send in National Guard - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPWTkzb2tOSmk0VjdvVm1FX0NIUExoSG5SbHZ4T21zUUc1V183SlUzYmxQTV9fcUtZVTNLRThlVE12UGdoX0hSNmlTamhkWDJFaExmRTdQd0dnTUJFOVFyVVVwbDNQMWk2S2lPbGVROFREdVJYWHFMMUNRcnZPaGJNd1NmRC1HYlZPaWtTVk9MSTYxejU1c2fSAZsBQVVfeXFMTkVMU1FSUDVJaUE5Qkl0bHF2RWM4T09sQmlZOG94cjJ5dzF6ZjNHNGsyNzZsTXJ1d3VaOUxRNTVrdms4NzkzTV9jVUFKd25FTEZSdGhwamVyRUhRdkRwRldXRDRUSDRzV3RQcjMyQ1NQelFwQWR0VjFzSUVjX0ltYVZSTGJwQ0x0QW9YUXBrV21pRFVYaTJxbHV3Rkk?oc=5) |
 | Takeaways from the second debate in the New Jersey governor’s race - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNZmNOM0VreVEwZ2V0QjdSTU16MEd3WlZsaWlBMTFHa1NQelZvNDJYOGo1UVIzb2JCQkpwUDhiN0NDRVVxRVpQMUV2MlY5U2FXM25zVEFXZW1ObDA4bFNrMExFMWpFWFFCS3h2YXk3YnRTUVMxODQzQ3ZldkVLT0c2bW9B?oc=5) |
-| Pope Leo will ‘stand with’ Catholic leaders in protecting immigrants’ rights, advocates say - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNWFd5XzgxX095ekFoaUZ3aG5SZGJsTnZsTTU5cF92VGY4XzVnVjY2MlRqWHZfRVNsVHFMLXNybXljemZ3SHVxM3d6T0pmc1RZc1dfZlp2dWlFUUdpaTc0QTNndDBEYUlzUUQydkhMZkhTa19WZDFOZnJnajFQZGRmeDVJTQ?oc=5) |
+| US shutdown deadlock deepens as senators reject competing bills - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQbVFzVmhQUEJzUTdNZGFKX2gtaXVZb29oU09FMmFnRmxCdXJHRXhSa05qSVk5aU9fTm43THNtYjJ0UFAtZ1BjOURFX1JUcU1PaDBaQzR5czJFa3B6dkQ0eDNRQU94ZVVLamljSEVsTEJOd21qS0JkaDVtbzkzMzh5VzIwbzRuQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
