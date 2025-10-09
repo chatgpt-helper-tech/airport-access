@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月09日 10:48:20（北京时间）**
+🕒 更新时间：**2025年10月09日 10:57:16（北京时间）**
 
 ---
 
@@ -23,12 +23,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Gaza peace deal reached, hostages to be freed - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTFBQc25iSUp6Q05iblQ0NVJtWGhZdGEzMGVYTWptSlhENktQQ0g2SHVQS0lkS3lnZWYyZFZsVHZRdHYzS3dwUExCY3l2WW5nZ0Q3WUJsdXhKeHp0TVhsN05KWDZOaGxENGFVRnVQVHVMbUs4TlU2?oc=5) |
+| Trump says first phase of Gaza peace deal agreed, paving way for hostage and prisoner releases - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5RUENINEF0TGxRbGtNeTFUclZfTm0xUTc1UlFlUmRFTGlraENZd2s2Y3U0enRDUG0yNjJOdHBWRFdwR01ndEhWc2pxM0lYSG8wVS10dA?oc=5) |
 | Son of missionaries accused of setting destructive Palisades fire - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOY2hiSWFDM1QxVTdUZzdSdzJrOVhlU3NlQnlMLVNvcC1XWVlQc1hzVHQyUVVlR2VhS1hIRXU4ckFMakdFVXd4ZnpXWXM1NzYzR1VzaUdoaDVqYVllNGNtVExZbTNfX2hPRjdWcHZWRmxUZFplNEZqSUREVzN6dDdOZXZ1cDZKQlB2bXRLMmZLblptS0Y0NmlVZHgtbl93Qi16?oc=5) |
-| What is antifa, the ‘terrorist’ group targeted by Donald Trump? - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9zWVVuT2xHdWFvSVJ5X3VvamJGNFR3bkFnSWI4T2RuYy1wVXdvYUFWVmJCNnVxaGE3b0lSek9McU01eUJyUFZ4M2l3TW8wTnBFOUF0TGRYWnd2UmcyTTlMVkc2YS1xTlVmZDFjVmhjOFE?oc=5) |
+| IRS tells employees furlough backpay guaranteed, while WH counters in memo - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxORFJlWnRJak04LUFhZW5jcG1DWnhEeFp5UExaLWVEVWRYdXA5X2FlVFhtZXh3LUdlZEljbmlvZ2FTa2lIZmZ5dS1Canp1RTJoczJ4SDc5V1dXb21YcVl2Rlg2anc4S3Q4aXpSS2ZXOTVuVmFhQTNCbGlBUnBFOFBJcEhXbGxyenc?oc=5) |
 | Appeals court lifts order on Portland National Guard, deployment still blocked - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQTUZxcmJKOFROdHdaSjQyTXJlbXpLX3M0ZDltS2pjYTdaM05IVDhKaTMzYXROd09TaHdYUmhUTm9maHJBTXpfOG5Gd3RXWlBaaDZOcFdRX2RxOGtocHMxbmNfb1pkVmRKdnQ3Z0ZlV0ctSWpETlhRRHE2Z3BxTl9vZ0VBcmFXMFo4VkltdzVKT3NMMWVzbjl6MUM1czgzeFdidlpRWldqLUzSAa4BQVVfeXFMUHlUaUktdGEzd3lLWlBObVV4WVlqdjI2VXhoRjdKYUV6Qnc1X0Mtd1JKMlVnVndTakYxUEhiRnFZMWk5ZnFsY2NMUGpndnFOR0xsVE82X0luUlJwYzZkOXdkUGRkcld5dWtTQTA1cHk0a29ybzdFNnJ2TFc2cHBrTjhYaDhzdlFMQXdXa01ZX2ljVG1WYkJIRzg2ZVBPekQ5SkVpYS1nSWZDa0FRY0xR?oc=5) |
 | President Trump posts on Truth Social that Chicago Mayor Johnson, Gov. Pritzker "should be in jail" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNOFZCNml0MTY2a2R3eGpmcy1zUzZwZzVSYTRTYkRDRHRBbmFXVUlGczBMdmFFanZyeXBEYmZVYm9RbktEX1JteUxaZjF3Ti0xSTZzWFc1OFliNE5XRVV0ZFhDVmNuLTNlcVJKUnB2ckZwWWNIMWZMWmNGczhndUQwSlRQcFl5Vjg4?oc=5) |
-| With the Texas National Guard now in Illinois, here’s what you need to know about the unit - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQWWdMRmplS3RtVUktcnJEX2dsNXlxRE9rem5ZdUpzYnBCVFRDOHMzWnprVkR4M1F4ck1ncVpIcDJ6YkFfX29hUlVWenJHZEZVWU5VUnpVaVg4TXYzbzE4LTdQaTdUOXhiRnhUTXF5T19CUnRHb1IwMDBFa2RqQmJkci1tc3BCcndJc1RCd1NXQmM?oc=5) |
+| ‘Everyone’s just getting destroyed’: MTG calls on Johnson to bring House back to DC and rails on GOP handling of health care - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE1KNUpYbmZSZVF4RTRNeEp2Vk5PeXhaVmtUSHhCMUR2aldUV09OcVloaFZLdllxT2NhbUpUc05oaThWcWs4Y0xVcHZvT29qajlBUDlKMldlVnRYVzE0eXhHckUyRG9uOGZBQ1E?oc=5) |
 | Katie Porter’s viral videos plunge campaign into ‘disaster’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPOVcxSGtoYUVUckRuMGJ3YVNfY2syX1A1ZXRxV3Y2ZVJiR0ZpcHRyaEUwZ2VJcW1CdTAyZUVvOXJqTHB2b0p3M0ZjSTFCMV90SDlPQkZSS2VtcUN2MFd6SzRvQWZTU2JTQU1sODIzM21LTW9QUWl3YU1xREM4YTRwdTltSXA3Z0V1dGhsVno0cUVoblAxOUJ2dQ?oc=5) |
 | PORTLAND: Fake News Ignores Antifa Violence, Residents’ Pleas for Help - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPbE92ckEteUpMeE9KQVFYTjZjN0VsczFuUVNFSW84Q3UteTRac1dtU3oxTUtycVJxNzVMNGJkdFZ0YjdyZGctLUdna0JLZDkyRVF2ZG1WRGluUGpGTEIzOW9GSkdzbEt0ZGM1RDRPUFF3RkVXTElINWpaZ0ZEZlpjakZDMEpqTTJUZFBreVVmNWZfNWJNaUJySUJvUzVXb3ZuR3JlMVBEODB5NkR5T0w1eUdn?oc=5) |
 | Justin Pearson, ‘Tennessee Three’ Democrat, to Run for Congress - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNWWY2bHkyZ3NzTkUxOUdsQlVXal9ncXFMWjdkVThQVlRncGx3VDdKNmZXLVhEV2FWZWxUOC11VXBmMlJrRi1YLWdqcnktZnFaRm1JSFdVeENIMnRELUp1eWJzQWU2TktSVmdIdTNkWTdMbEhTaW1xbFFwOXg2RmI5MkpEWmhOWXVfTzdxY2hWVFNZR1M1SkRvVjVkYk1Bdw?oc=5) |
