@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月09日 22:33:03（北京时间）**
+🕒 更新时间：**2025年10月09日 22:40:02（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Comey’s challenge of Lindsey Halligan is the latest bid to derail Trump’s top prosecutors - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPU1hjNU5fZl9mOXpOYWRrN0hGYm9fR0JsNl91WTVRbWFITDRfTERlNnd1X21uXzBpU1NWQ24xS2F4ZURpRjZ5WnZ5NUZENFFHMzlDVEE5dWgtYW16MktYaVlGVG9kVkhlVEJ3WG1ESThrRVhjcVNoZHI2WWpNWVc1MUZ5Z2RCelI1Y0ZzVU9NU3o?oc=5) |
 | Former Democratic Rep. Katie Porter nearly exits tense interview in her run for California governor - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPSEJsNmdnakxjTHY4QVFmYzhWX0hyazRXc1BpUG44VU16blVmcUpxRUxwa21uNGUzYWNIdHlFbHNTczhBdk9jZ3J2ejg3cmFJcjVaQnRibnVOVGdKSlJsZmVLWjVTNlBrSTNyMDB2Tkw1NktGbDJjUXZubmtSQzFKSmJPV3A3dm9Cb0hpWFNlZGVfNGFkNEpMbzk5ZEV5V1VZV0pRYzhPLVNjSkR00gGyAUFVX3lxTE9ZcHlGb1VPeTlhV0toV1VHVS1QeXBaT2x4aDkyR25tZlhLUV8tMGRheHFodlIyLU9EVlpmdkJFV2tyUTdCSGNzSTNsZC15Zjl6ZjZ5SVlZMXNsUGNPRXFSbFNFY2xkVmVFci10VTdfbjJGcUhEX19BeVE1WEtVRmVJWW5ranMxUE5NUmotTHh6STIxSHZfU3E3WHVrTTJyQS1faWE5eGNPeTZzcU9YWE5sTFE?oc=5) |
 | What to do if your flight is delayed or canceled during the US government shutdown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOckpZOWhVbDFyd3c1a2tBWjc4WXZzYkd0VXc2ZVc4eUc1NHJyWkNBaDFWVUhuRmpOSkQzUERnLTU1Wjc5VVhiQmJQMGxsVk9Ma1FTdXRjaXRJR2ZqQ09scDFERS1jSWY2dmpkejVIaGVmWWZobGwtR2RxNXBzOUpqYTRyVE5BN1Z2V21tXzV0X2NqcE5LczFtYVpQWVd2bmsyeU1nZmJJdlA5TE9uMWM0?oc=5) |
+| Jeffries slams Lawler a day after Capitol clash - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQdlNZM3VrNnhBWkpobUJWaHlEa1FLZmh4bE4xdmc1azROSlVMNlBKLV92SHRnSmEyc0J5Z0k1V2dMeWRqOEtjWVdkLU02R2JKVm1uZEZ6M0REemRtMDRNZTcxV2ZvMGRJQjlQcnIxOTVWd2tFMElnOXUxVGhGSWx0WkZ3TFhDdEk3c2gyalFsSHRYNmp1SC1LSXRkektMNWJu?oc=5) |
 | Wyoming library director fired amid uproar over books with LGBTQ+ themes wins $700,000 settlement - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOakVia2Y4emFROEJJbEV5SGV4Z2dHNFlwVGRFTFV3SmpFbHNRZFdrTFNlR2ZMenZjWTJVOElubWtGY05RcHZQSmFpOVc1MU9ZSHltdDd6eUtibE16QjYzb0ExNDBFOXdRa055eWJNa0h1UlA1aHlpaEFuNlVSVzJILWs3VWFiS09veEc2RUJLLVh6aVB40gGaAUFVX3lxTE41dWRKdlJTekUwWkNDalBSZzhHWWpEcFRrc25JQ3AybmxWckdzSTdsWTBPc1k1MWhmN3Bhc0t4Q2VLUXp2ZldEOGhzY3A0dDlxVU5lbmZWTXVva1V4RjZXQXpfS1BaMXpnaGFNa2E4ejMzTFFPTTNheXZESndPc2ktUGt5WVJvbmN0NmFkZEZTNmlQV2NiQkZOY3c?oc=5) |
-| Hegseth’s firing of Navy official compounds ‘culture of fear’ inside Pentagon - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOT3ZDZ2l6aHc1ZldQZkUxVVJqZUxHYWdEQXpuNHVNR2U5ekxkU3MtSEZRWTYtOVg2RFNhYzhNbTNQVmQyTzZQV3ZwWHRLNTY3ejMxWldaMUZ2UDk5UnBYU2V0WUlmTklUN3hrRVdKdzZHVVYyNHQ2TFlqQm51MVhZcXpBVHpjMEFaS1I3UmRB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
