@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 05:40:10（北京时间）**
+🕒 更新时间：**2025年10月10日 05:48:08（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump-appointed prosecutor seeks indictment of New York AG Letitia James: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQaU1DUjhfaDlEWXpUZlh1OWpVVEhsU3lnT1RDcE5LZEJyZDUxY2c1NDlRUDFtYzZLZWxwSlFKaFJSeHN6cE1VZXlLTl9naHJDOGZCSkJxRmxXTVgxXzh0RXhobGxIMXA4R2hyN2NNVmJ4OFphdFBZemdVTG9TOEtNYU83ZFo4WHBIMWU1Y3BxcGJGLUhmZzBRdXJFY2dNSEktUFHSAacBQVVfeXFMTm5Pb3ZCVGhHRmNNX1k0T25UT3M3Si0ySEpKd3NHOXdpNjExcndHN0RQZnhPRW1WNVhqRldKRDNmUVpfUGN4eElfMG5EWFZCQ0ZWdldKTUR6dGVUbUNfd191SUlTemNrSnNXeFNhaW1sWkdfMkFNWkJ4T2dlcVBJQnVoR2JPbmRjRW9YTUJjSTc0VVIyRXpOYXMtaHVYb2dtRGlRQ2U2RE0?oc=5) |
+| Letitia James, the New York attorney general who defeated Trump in court, indicted by Justice Department - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPa1NYaS1UNzlzVjFVSDdwMjluZ0ZDWkRJUTFvWkQySktqelo0VENPWTRyaFFDU0hrTGlyWC1FeVBoaXYzakxTRUtFc0Z5Z1hOMjhZQkxnRUlBYm83T1kwR3V1ZlF6dWtEVEJ3RmY3VjAwaVVqMTBuTzRoMjJfWV9RM0hta2JuNW1U?oc=5) |
 | Live updates: Israel and Hamas sign first phase of Gaza ceasefire deal that would release hostages - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNZ0thZzJMSDRQMUtNRXUzMVJvLXQ3UVRnVVYwdUNnRXZ4ek5JMzlBVjB1RV9QbkFPc2Vsb0Y4cDNCT2pxV3ctcEtQdXRrWGJVM2VMZXl3S2F5LUZSOHRkQjN3dkVncGtZWjlUV1diaEJYd1c0SmJnVTVjYjg3clhEVWswZ1gzNmJZMS0tbTZZTQ?oc=5) |
 | What to know about Trump’s National Guard deployments in Chicago and Portland - PBS | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPdXFFSG9aOElxbldETU90UVFEdHJuNEJfc0dZQm4xT0JLaWQ5MjhtSWJsaTdnZnNFd256MUdadk00VWI1RjFqSkh5OEtONDlNOXVQX3ktVUJNVURmMUt2alBVTU1OSnRKZzBGa1dZUWFLb3ZJcmVIR0xXWWx4RTc5LTNUN0VwbG1MSEVmTmtrVk0tSTRTdzBjSUpVVFJSb0lsclRhRE9KS3g2U3cxT1FQTGZB?oc=5) |
 | Schumer Taunts Americans as Democrat Shutdown Crushes Them - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOQ3VmdjdKZHM5ZEQ0cXFNNXdGVE5GVUw2Y3I3eXpkTHpVN1ZZX0NKdzNSMk5rak9CMnNJTk9TYzR4eFludjdUZVFkUlRiLUJ0N0loOE1IZlRvOHpZcHlSaDNELWRkbU1jbUJuazJWTFRFd1k2Z01BME1fRzY5MjFxQ25MVnQySEczUWJDTzFOSHhGZS1wdEYtaC1mVjc4V1NzMzZTbXB3?oc=5) |
@@ -31,8 +31,8 @@
 | KFF Tracking Poll on Health Information and Trust: Tylenol-Autism Link and Vaccine Policies - KFF | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxORW9UTXpjVFZWb1J0UkJ5X1pFMG8tTENLdkpzb0VsUkFSOHVpdHE0bERiX21vXzlDZk9xVnNtbndWR3Z4T192LXhka2FkY1RJa0JfNVM4TUJYaXFLalZnY0RNcGF2V1l1VnVoSmN1VjlQc3cxbVZxX0ZSMWVjYm9qRGIyQUh6ZEJrbVQ0bHdZY2g4TTJ3UkhqeTM2cjduNWNGUTVHVkhIaWdNV1BfRHBuVlowejVjaVA1WXphVTNqVk9teW9N?oc=5) |
 | US could fire air traffic controllers who fail to work during shutdown, transportation secretary says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNdzlndGJDQTNjekYxbkF5Q21OQzRnWXdRRm5PN1FSNTBLRHNxZDZ0by02LWFYTDJCQk9VZGZSd0FqYTcyN2laT2tiVDJHOTRJbkNwRW9KMlkxVmgtbWhXQlVSaWJkRkxhQ01DTE9TSnpDNWNhZUppbE5iU2h3R3Z1OUVZVXB2SzBibjU5NFpXVUlMLW9BYWlXV3pzOEVjQjUzSmU4OXR6bV9LcU9VYmRwbm9LME92YWNkQTB0eFVjbF95ZHNmVUpnUw?oc=5) |
 | Democrats give Trump credit for Gaza deal but stop short of backing GOP calls to award him Nobel Peace Prize - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOM2VxYUFhanZGajFRZERSRE9FM1pRV2phelEyWHozSlZMazAwSVBGenhxOVJOdTFoSVBqZ2dxLTNtODF0NjhIMFJZTE1YWnpTdVVSLU85UzFjemJGaDUwZ21xdU1YLXIyTXFaTmwzU1lXajNYQzktRjJEaWt1aFZOSW5pejVzUHdxcUNuNGNTN09JY3kt?oc=5) |
-| Stock Market Today: Dow, Nasdaq Slip; U.S. Buys Argentinian Pesos — Live Updates - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOYTk5cjhZQ3Ytd3kzNGJMNWRCamVXekRyRE9RY0N6WkdtX2thdlhabFJKQU9Rb1pURGliTF9CdURJb2Y5WXI0bDRpczU3Z2lKYTFtaXFvaEExTUpfazNUUlpsbDlBZVF4YWxoSGVqeGVIbHlObHZ5bzk1UWtaUXBoMFpxOWs4Tzg?oc=5) |
-| Dominion, voting firm targeted by false 2020 election claims, sold to new owner - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOU2Ywb0ppMzlqamlEalplQ2xxV3oyc3dGVENmZ1E3WHM3T2hITFlqUGtSXzBoUHNFNlVXeUdWUWpEdUJVVW41eGVqWlBfT09jNGl5TUJQTVl4QXRocUttSXZVUjJVSnZDSVp5eHVKNnVyekhmYjhaZXdOTFdkSWd1RmVR?oc=5) |
+| Scoop: Dominion Voting sold to company run by ex-GOP election official - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1FMUI5MmEzQ0hpMWt1SExYbTk0RTlRR1NldDdVbGx6WUlOSDNTdnk0YkdzUzd0OGlSc3U2bkhwTGE1VWVQb3poTDVXYXh6Vk1CV21uai1lZ1N2cHF4QVpOdUJjWE12MzBkcEM1M0hVWUFISjdSSjY5NDY0N3E?oc=5) |
+| Pressuring Democrats, Johnson rules out standalone troop pay bill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNSDBLTGhic2lxT0ZLOC1NbVpLek84MVQxUVRzaG9NYjhBdnU0M1Vyc1NRaUpxYzJFb1V5T1FXaGZaSEY2OF9uOXlpMW04MjNqZFJva2RTelI4V3NTamRNbmc4bS1iMGFQeDN2M2dSeEkyRWJLV3JaSi1Ec0s0THUydDZqYXhIS2xuOE9UYlNfaTJRbTZzVWhBQ1ZGOElIeUVPSmhIWDFGaw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
