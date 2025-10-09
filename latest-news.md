@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 04:10:00（北京时间）**
+🕒 更新时间：**2025年10月10日 04:16:38（北京时间）**
 
 ---
 
@@ -23,14 +23,14 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Live updates: Israel and Hamas agree to first phase of Gaza ceasefire plan - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPQzRQZWQyYzktTThQSkc5a2JkLWJVbGNBaFl5TmQxWmxFZ0RkaW5wb2twY1ZVMUQtV3kxSl80ZmhxYjNieEhBWkNBZXZNNUhJOWlyRHgxSk42QnV3aVZjQndiR0E3b2kyN2lpUlNOUEdtYWpZc3lVb1RmMzNaTWZHMjQzMUZfZXhmdWc?oc=5) |
+| Live updates: Israel and Hamas sign first phase of Gaza ceasefire deal that would release hostages - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNZ0thZzJMSDRQMUtNRXUzMVJvLXQ3UVRnVVYwdUNnRXZ4ek5JMzlBVjB1RV9QbkFPc2Vsb0Y4cDNCT2pxV3ctcEtQdXRrWGJVM2VMZXl3S2F5LUZSOHRkQjN3dkVncGtZWjlUV1diaEJYd1c0SmJnVTVjYjg3clhEVWswZ1gzNmJZMS0tbTZZTQ?oc=5) |
 | What to know about the Nobel Peace Prize - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1BSHZ5RF85U2hpZjdKSDJRWDlPRTJWTVdhaFpSWUNNczNaNVpKWGY1aWVyVk1TWl81bjhhYkZJbnBhaXdqOF9kWTBVazFuU3JSNE5WUzA4WXQ1RzEwWUtySUhBcHljQW11WTdjbkJKYXltTmttUUlaTEJ1VkQ?oc=5) |
 | Illinois urges judge to stop National Guard deployment after Trump administration 'plowed ahead' - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPSTdYR2tyRldtR3ZIeENJTmtuQkJuWngxZkhuZzBySmpGS3RQbU1fMWxUOGVKaU5zYkphMTJNdkk0bzhyVlJBaFdGcFk3U2o3cUtCanBrTy1hTDFkVGo0amRRWGEwXzY2cmhINlMyeU44bVVnNmVkNXloblNxWHZqSTk1aTVWWndqX0JCb2VsUnJTWTBFTzVuX1JSblNfMUZyMU9UUTdR?oc=5) |
 | White House slams Schumer's 'disgusting' statement on shutdown as political standoff continues - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNSzc3Z0NiemdtRkJmMktiUm0yLWtQYVlsTGZsLTRnZ3hNc3RNeFNQUFlJcEkyeEFqb2JUUXZRU3RCYlh4am9DZVY1MDNaX3ZoYnktaVluVjFUV3RSZGZ6cVNTR2tYUzlJa2NlMmtmZDZ6Zzl3aXNmMjRwc1BwN0lNQllBQ3ZFLUIzYmtmdFBEWjU4NWtsUENJQkFMcHk4U1pmU01LTENWN1pKUWlXQm9TcklITHJtNUdkTFE?oc=5) |
 | Colombia's president says boat struck by US was carrying Colombians - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5oWmFsUXF4c1UtRURoa1V5ZnBrZXpqT01OUHhIYVJjd19jOVd5TFprb1k5OVlFT0FOZWtaOGUwZU4yY0lUSnJLQVlmOFpMYXc3SGV1VFlDQUZJUdIBX0FVX3lxTE5LSVV4dDdBSEUyLVdhLXpFTlNNTnd2RFE0MEVGQU8yZjdVM3lUQjZwT3pBLUlERThybmhyeGxGQXUtWDNjeXNyaEF6bHlnM1FycTF1b21fTVFwTmhvSWM0?oc=5) |
-| Texas court blocks execution of death row inmate Robert Roberson - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQN3U3bUpQLWJzZUJTdXpROU9NaW9FcXcwbkNiOF9LN0tOZElyUWthcHBfRU1pbzR3TFN0TGFhNVJYd0VyYk91SkM1RmtPVnVvM0dLTlF4RUU2c1NYeG9VSHpDVndZYW82cnhISjh1WlJ4Y3huU1lLRUFSX2hvdmFzaXZyZFpnWTM2bkN1TzNfNDhpQWRKbktJOW1kdnlaZ202SG5fR3A5UE1uZw?oc=5) |
-| Duffy hints at firing air traffic controller ‘problem children’ amid continuing delays - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQMXhCcmQ5M1JtYUFwWEQ2bVdnN2xPSWhyT09zUUpzMkI1OVdKTVJSMEV0dXh1d1NndVRTM0FMUy1oWmJWaEZHWGIzNHVFMDlDRlZsQVFCSHFhNzVPLVJuQTN6aGJBRVZabjQ3dEZtaUEwODVRajU3TE84Uy10RVlWOHNlUjV4NTJEVmFCN2NrRzducWV1X204?oc=5) |
-| Katie Porter’s bid for governor is getting noticed – but not how she wants - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQZUlwNVU3YUgzT1cxX0xaQlctclNVYnc4ZDB6MG9iSUxZbjB1VFI4Z1I2c2lFeV9xYkF1WEVyRGZrN1dEMFZqaU5iTzNNcnJDaDhZRF91NHBSLWVGUTA3SWdTWEhEWThBbDhiMm9UYlYydks2OFV4cGFWMGtTY1hoTzlMcmU2M29wOENEZVJwQTdpeEJuUjVsYUtXaDQ2dw?oc=5) |
+| Pressuring Democrats, Johnson rules out standalone troop pay bill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNSDBLTGhic2lxT0ZLOC1NbVpLek84MVQxUVRzaG9NYjhBdnU0M1Vyc1NRaUpxYzJFb1V5T1FXaGZaSEY2OF9uOXlpMW04MjNqZFJva2RTelI4V3NTamRNbmc4bS1iMGFQeDN2M2dSeEkyRWJLV3JaSi1Ec0s0THUydDZqYXhIS2xuOE9UYlNfaTJRbTZzVWhBQ1ZGOElIeUVPSmhIWDFGaw?oc=5) |
+| US could dismiss air traffic controllers who fail to work during shutdown, transportation secretary says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNdzlndGJDQTNjekYxbkF5Q21OQzRnWXdRRm5PN1FSNTBLRHNxZDZ0by02LWFYTDJCQk9VZGZSd0FqYTcyN2laT2tiVDJHOTRJbkNwRW9KMlkxVmgtbWhXQlVSaWJkRkxhQ01DTE9TSnpDNWNhZUppbE5iU2h3R3Z1OUVZVXB2SzBibjU5NFpXVUlMLW9BYWlXV3pzOEVjQjUzSmU4OXR6bV9LcU9VYmRwbm9LME92YWNkQTB0eFVjbF95ZHNmVUpnUw?oc=5) |
+| Robert Roberson: Texas court blocks execution of death row inmate in shaken baby case - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBVOGtqZmdiXzViZnRxZjdJYXdQRzVmbFpIVHRUUlhaWHhHOXRWdFA4Q2N0U0VXcHhuTWVoRjVZeEpodENFb2xtR3p0bV9VU3pTSzd2VlVEd1FaUQ?oc=5) |
 | Democrats give Trump credit for Gaza deal but stop short of backing GOP calls to award him Nobel Peace Prize - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOM2VxYUFhanZGajFRZERSRE9FM1pRV2phelEyWHozSlZMazAwSVBGenhxOVJOdTFoSVBqZ2dxLTNtODF0NjhIMFJZTE1YWnpTdVVSLU85UzFjemJGaDUwZ21xdU1YLXIyTXFaTmwzU1lXajNYQzktRjJEaWt1aFZOSW5pejVzUHdxcUNuNGNTN09JY3kt?oc=5) |
 | Trump to visit Walter Reed for "routine yearly checkup" 6 months after annual physical exam - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPUk1ad2tJTzViWHgzRUFIeHV5MExOdHJSV1cyY1BmeGpfLUR5XzlyS3F2TzhNcEpGTURFZS1keGNfc2xUTm1vbW5QWmdWeXFVQ3FQM010clQtQ25ubmRtMVhtOHB4UUhkRmZIZHNHY200eDZiZzk1MTIxRnQ3dVhRNGxwdlZNTkZiOEhEcHRmWl85OHFm?oc=5) |
 
