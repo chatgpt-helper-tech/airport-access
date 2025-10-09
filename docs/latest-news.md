@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月09日 08:56:56（北京时间）**
+🕒 更新时间：**2025年10月09日 09:00:13（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Last of 10 New Orleans escapees captured after nearly 5 months following standoff with Atlanta police - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQMzBYQ0VsTTBRYkc1YXBiVWNST1dxSGkxNDktR3J4R3drb2QtYTdoUmFkbzZwdFlHcWdqb0tvdG13M3pncTVNWmZ1c0JCV0xLRXFSVmdtSXJzQVBMVTAxNUtZWWw5a2JRTk1mbG1wUlhGcHE1emJPbHJiMmRrUzFWSw?oc=5) |
 | National Guard poised to enter Chicago as Trump calls for jailing Democratic leaders - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxNSXJMWnJBdzM4YU9Yd0EtdUN6RG1xeDQyMlBQczNnXzVfTUtCaV85aWVXSkVDZUVsZmNlTU0ybjFTNnZHWWs4QnhKNnJSWVQzWTdMblJ4UURSZDdPV29NVmdHU3RkblNzUzdndUVvSFI5eW9KN04zaFhlVTRTYVRjdkFIVmp6VmpnQmJwSE42OXVoV2pmV0VBcU56YUcwODB1WjdCaEp6VEdVR1VvcWoyald4bVV2TGJuRFU0QkIzbGJLQUlSRGc?oc=5) |
 | Democratic frontrunner for California governor threatens to walk out of interview - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBoWU5tR1BuQ2dpcHU2alUxYTU5MTBzRU9lTHR2b2hsN1lWZ2NYbDc2YnNIRGQyT3ZFQThzU0VSZkRFdlc2ZU1ZUlRzVWVieGRRZnY3ckxtSkFocC1SVXozaEFVemJqV3hPbk9HbXJobnptYnJrbHpRZ2JvclJPeGM?oc=5) |
-| 2025 Key Races: Jones Texts Rock Virginia and Checking in on California and Pennsylvania - Center For Politics | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxOalMtWkNJV21lc3JiM2J1WEVGOHphR0ZsTzFtZjhPWXhVMTFnVVRRcVNhWmk2N1RsQ2JUT3lpbGYyMkV1OVpGUkdPRF9DTnFWdkY4dXdYaWZISnNsSTVsa1FGWVc5ZTl6U21CVUM2TkdjLU9hc0s4a0xYTVdNYzI4Q2I0YVBCM3NhSGVRYnBvYlA4R2ZTS2pYTXdKT3g2VFRYMS1LcVk0NXpYM3dTUGd3WXJTcFU4QlktUmpTTHVhTWJsRS1JNndrc1FvcGRxOWFuX2Jsb1NEeDVTdw?oc=5) |
 | Vance heads to Indiana after Republicans warn White House of stalled redistricting push - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOR0pGbzFrLXBKazFCMUI1U0lhVnJKVUlyOEVtTmRwWXV3LWd4b055eld6R21tY05VQmJJSXk0elRxc1ZOamxwd3gyWWp2alN2UDM1eUl0U0lLRkc1b3VidkN5YndXbVB0TWRBd1J0dU83ZjFRdHBMSjRNSjdTMkRGTE9LQQ?oc=5) |
+| Joan Kennedy, Who Married Into a Dynasty, Dies at 89 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE5waXYzdHJaUldjQnZtM1hFc0plemFhMWdmaTh2ckRNVVE0d1hKakFGU243bTFCdWZKOFFIRW11ZU15OVI1dW4zLUlyNWF3d3B2TUN3cEo5M3ZOUXppb2NoVmRvT09JcHNLeDJIeA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
