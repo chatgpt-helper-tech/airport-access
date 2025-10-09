@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月09日 20:41:58（北京时间）**
+🕒 更新时间：**2025年10月09日 20:49:07（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Katie Porter Goes Viral for ‘Unhappy’ TV Interview in California Governor’s Race - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxPN2hNWXA1a29jaURzMUZPSmtNRkNmejVIakVfcGVOQmliLWQxQlRqTVo3Wi14Wks2clNCdi1fUHBhYUVsVnVvbTF2VWNYbk9tUVdGeEZ1aEpRUjctYi00YmJjeFQ5V0N4RXBKNWlSZGFMTnlxemJhZlFJQ3J5akhkM3lsd3dJdXd2YW11U0xwRVpDQllObVNRN0ZTNW5OVjNSNmsxZjlEWUtJTVllMkpTRHpJNm9fWDl2WlIwSg?oc=5) |
 | Trump has had his sights on Portland, Oregon, for years. This is how we got here - CNN | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5PeFR0ZUhrT3lQZGpuSUNCVFl0T2RGRjFVRWtIVmJkczBQMjBuSDJxZm01azhtY1RkMk5HMnpYM2NnblN6VlhZMXFtME11R1ZSUGVJUVY4LUdMcktnODNfQ3NVeW9seVVwcDdpVU5Gd1g?oc=5) |
 | House Democrats press Johnson to bring Pay Our Troops Act to the floor early next week - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxOU21Ya1VZQWtkejVjSXBDWERwaHFuQ1hZTlM1SkJBMzNoYUNacWd5YzBqbmlTSV9rck9iN1BBNC1USDhzRDJpOVFFQnNOMEtLQ2RaMFF1YkNfLWZTbG1XaEZSVmRNQkMzZG85a0xzSEpKTVRORHMwMXFONzRRak01ekd3MXJ4YldMZk83LXRPWDBCRzh5eE1PM2FPbzV4dERPYWowYUEtYTR1cFNieVhUYW1RTjNIMWtxYXNHLVZLcko1bU12SjdOZzFyRzJjZ1hL?oc=5) |
-| New poll shows Jason Miyares taking lead as calls mount on Jay Jones to exit Va. AG race - WJLA | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPRE5TUWU3X0NhSnQyOU1Jd3FOcXgyWm50dHhxZFd3RV9JdjJiYzVVQ0RwR3VtZXVkYkU2OFczLTFJX1gtMHczMlpIS3NxWDY5dnZFeXo3eGtCQTdXWWdRWTE5OWlCd1dwR214NVBFZHZUTVliWURTRTN4UmFWaFdKSkhuVVg2bDZaWnhQYUZaZHhla0x1X1RLZUlNM29VeWVtWlVWWGxfLTNTTDNwRkJoWHl3?oc=5) |
+| Wyoming library director fired amid uproar over books with LGBTQ+ themes wins $700,000 settlement - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOakVia2Y4emFROEJJbEV5SGV4Z2dHNFlwVGRFTFV3SmpFbHNRZFdrTFNlR2ZMenZjWTJVOElubWtGY05RcHZQSmFpOVc1MU9ZSHltdDd6eUtibE16QjYzb0ExNDBFOXdRa055eWJNa0h1UlA1aHlpaEFuNlVSVzJILWs3VWFiS09veEc2RUJLLVh6aVB40gGaAUFVX3lxTE41dWRKdlJTekUwWkNDalBSZzhHWWpEcFRrc25JQ3AybmxWckdzSTdsWTBPc1k1MWhmN3Bhc0t4Q2VLUXp2ZldEOGhzY3A0dDlxVU5lbmZWTXVva1V4RjZXQXpfS1BaMXpnaGFNa2E4ejMzTFFPTTNheXZESndPc2ktUGt5WVJvbmN0NmFkZEZTNmlQV2NiQkZOY3c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
