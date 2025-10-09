@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月09日 11:56:25（北京时间）**
+🕒 更新时间：**2025年10月09日 12:01:28（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Gaza peace deal reached, hostages to be freed - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTFBQc25iSUp6Q05iblQ0NVJtWGhZdGEzMGVYTWptSlhENktQQ0g2SHVQS0lkS3lnZWYyZFZsVHZRdHYzS3dwUExCY3l2WW5nZ0Q3WUJsdXhKeHp0TVhsN05KWDZOaGxENGFVRnVQVHVMbUs4TlU2?oc=5) |
+| Trump says first phase of Gaza peace deal agreed, paving way for hostage and prisoner releases - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5RUENINEF0TGxRbGtNeTFUclZfTm0xUTc1UlFlUmRFTGlraENZd2s2Y3U0enRDUG0yNjJOdHBWRFdwR01ndEhWc2pxM0lYSG8wVS10dA?oc=5) |
 | Son of missionaries accused of setting destructive Palisades fire - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOY2hiSWFDM1QxVTdUZzdSdzJrOVhlU3NlQnlMLVNvcC1XWVlQc1hzVHQyUVVlR2VhS1hIRXU4ckFMakdFVXd4ZnpXWXM1NzYzR1VzaUdoaDVqYVllNGNtVExZbTNfX2hPRjdWcHZWRmxUZFplNEZqSUREVzN6dDdOZXZ1cDZKQlB2bXRLMmZLblptS0Y0NmlVZHgtbl93Qi16?oc=5) |
-| On Tuesday, the Trump admin said furloughed feds were not guaranteed back pay. On Wednesday, it sent notices saying they were - Government Executive | [阅读全文](https://news.google.com/rss/articles/CBMi9AFBVV95cUxQU2JjcXEwRXdqZkRnQTFzN1NNTEM2d29oemNYeVNfcVg0ZERwU1Y0a19yNEdtQ0pObkpXWUVWQWFyOWJTd3NYdmdpQUVQQ3ZTMnFrZlhRd1Blcm5DMGJWUkQ0QTIwMXM3a3pVOWJ4dFYxNU5rQmFhM2FLNExaM1EyTkJqYVRIWEhtVDM5R1FRWTA0RWh6ZWZpbWtpMnVvU3FaYWU5NGJSOFRwQl9PR1ZKc3ZfV1p3MGU1TUxRcFgxUFIzZU41TkdzR2Zmc3Npdjl2MVIzRDVWcE9RZlNFMV9LbzhQSmxKSC1MWERTclprX3Y4eGRW?oc=5) |
+| IRS tells employees furlough backpay guaranteed, while WH counters in memo - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxORFJlWnRJak04LUFhZW5jcG1DWnhEeFp5UExaLWVEVWRYdXA5X2FlVFhtZXh3LUdlZEljbmlvZ2FTa2lIZmZ5dS1Canp1RTJoczJ4SDc5V1dXb21YcVl2Rlg2anc4S3Q4aXpSS2ZXOTVuVmFhQTNCbGlBUnBFOFBJcEhXbGxyenc?oc=5) |
 | Federal appeals court ruling keeps Oregon National Guard federalized ahead of oral arguments - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxPdXhtVmdqTUdvTVloMkVEMDBzQU5xampEajNJeVh1ekVUWG0xdXRsQUo5b09vVTJBbUJOaXFEUTYtS25OcWtpTEdqOHdrNjI3aUE5WWZZSy1Rb0VpV3l4eVg5eU9ZQi1jSWNKRk5vV3ZxaXNFZEZaQWpVcklhM3UwZXdkV2FXTEpGVXZaTjZsWU5RWFVjZEV5N0NaNzJpTHpERUgzelBYSXRCZVU4aDE5VmQ4MFloaHV1XzNuYkgyTQ?oc=5) |
 | National Guard poised to enter Chicago as Trump calls for jailing Democratic leaders - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxNSXJMWnJBdzM4YU9Yd0EtdUN6RG1xeDQyMlBQczNnXzVfTUtCaV85aWVXSkVDZUVsZmNlTU0ybjFTNnZHWWs4QnhKNnJSWVQzWTdMblJ4UURSZDdPV29NVmdHU3RkblNzUzdndUVvSFI5eW9KN04zaFhlVTRTYVRjdkFIVmp6VmpnQmJwSE42OXVoV2pmV0VBcU56YUcwODB1WjdCaEp6VEdVR1VvcWoyald4bVV2TGJuRFU0QkIzbGJLQUlSRGc?oc=5) |
 | How escaped New Orleans inmate Derrick Groves was captured after 5 months - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQRmRza2Q4cVQ2VUptdWJPckhkNG8yNkVkUnhLT1dFRUwxZHBmS091RzBkMjEtVXNBZEUyVVI0bldwSzFaVkFiMlE1eU5LTFNadWlKSVozTWtpblA2elB3c045TUVqeU1pZGdYV3BkTnNfNEpDbWQ5ZTdDdlpKbFp2OUlWV0lId0hVckl4emZLZHprRnFqNmNlb2dnU1BLVG1paUHSAacBQVVfeXFMTW5SeTJZUGpiT0laTlRtR2ZGV0VwR2lvOXpLWWZsQU10ZFRySmJPcnQwRm9qWkZZelA4NDZtU3J3dmlLRXpxMGNOV3RFQkFpQURtUEtZeDlhenI4bV8zamIwc3BCdjUzdFp5SDFMR29TMkdZOGZ6SjNQR2Z5OWJXOFZidy01VWs0UjZSY1FaTlB1ZG1TMnpYSzlsanRqRkZ1aUwtTHF1TGs?oc=5) |
