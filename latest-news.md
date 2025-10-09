@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 04:16:38（北京时间）**
+🕒 更新时间：**2025年10月10日 04:24:32（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Illinois urges judge to stop National Guard deployment after Trump administration 'plowed ahead' - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPSTdYR2tyRldtR3ZIeENJTmtuQkJuWngxZkhuZzBySmpGS3RQbU1fMWxUOGVKaU5zYkphMTJNdkk0bzhyVlJBaFdGcFk3U2o3cUtCanBrTy1hTDFkVGo0amRRWGEwXzY2cmhINlMyeU44bVVnNmVkNXloblNxWHZqSTk1aTVWWndqX0JCb2VsUnJTWTBFTzVuX1JSblNfMUZyMU9UUTdR?oc=5) |
 | White House slams Schumer's 'disgusting' statement on shutdown as political standoff continues - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNSzc3Z0NiemdtRkJmMktiUm0yLWtQYVlsTGZsLTRnZ3hNc3RNeFNQUFlJcEkyeEFqb2JUUXZRU3RCYlh4am9DZVY1MDNaX3ZoYnktaVluVjFUV3RSZGZ6cVNTR2tYUzlJa2NlMmtmZDZ6Zzl3aXNmMjRwc1BwN0lNQllBQ3ZFLUIzYmtmdFBEWjU4NWtsUENJQkFMcHk4U1pmU01LTENWN1pKUWlXQm9TcklITHJtNUdkTFE?oc=5) |
 | Colombia's president says boat struck by US was carrying Colombians - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5oWmFsUXF4c1UtRURoa1V5ZnBrZXpqT01OUHhIYVJjd19jOVd5TFprb1k5OVlFT0FOZWtaOGUwZU4yY0lUSnJLQVlmOFpMYXc3SGV1VFlDQUZJUdIBX0FVX3lxTE5LSVV4dDdBSEUyLVdhLXpFTlNNTnd2RFE0MEVGQU8yZjdVM3lUQjZwT3pBLUlERThybmhyeGxGQXUtWDNjeXNyaEF6bHlnM1FycTF1b21fTVFwTmhvSWM0?oc=5) |
-| Pressuring Democrats, Johnson rules out standalone troop pay bill - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNSDBLTGhic2lxT0ZLOC1NbVpLek84MVQxUVRzaG9NYjhBdnU0M1Vyc1NRaUpxYzJFb1V5T1FXaGZaSEY2OF9uOXlpMW04MjNqZFJva2RTelI4V3NTamRNbmc4bS1iMGFQeDN2M2dSeEkyRWJLV3JaSi1Ec0s0THUydDZqYXhIS2xuOE9UYlNfaTJRbTZzVWhBQ1ZGOElIeUVPSmhIWDFGaw?oc=5) |
+| Katie Porter’s viral videos plunge campaign into ‘disaster’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPOVcxSGtoYUVUckRuMGJ3YVNfY2syX1A1ZXRxV3Y2ZVJiR0ZpcHRyaEUwZ2VJcW1CdTAyZUVvOXJqTHB2b0p3M0ZjSTFCMV90SDlPQkZSS2VtcUN2MFd6SzRvQWZTU2JTQU1sODIzM21LTW9QUWl3YU1xREM4YTRwdTltSXA3Z0V1dGhsVno0cUVoblAxOUJ2dQ?oc=5) |
 | US could dismiss air traffic controllers who fail to work during shutdown, transportation secretary says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNdzlndGJDQTNjekYxbkF5Q21OQzRnWXdRRm5PN1FSNTBLRHNxZDZ0by02LWFYTDJCQk9VZGZSd0FqYTcyN2laT2tiVDJHOTRJbkNwRW9KMlkxVmgtbWhXQlVSaWJkRkxhQ01DTE9TSnpDNWNhZUppbE5iU2h3R3Z1OUVZVXB2SzBibjU5NFpXVUlMLW9BYWlXV3pzOEVjQjUzSmU4OXR6bV9LcU9VYmRwbm9LME92YWNkQTB0eFVjbF95ZHNmVUpnUw?oc=5) |
 | Robert Roberson: Texas court blocks execution of death row inmate in shaken baby case - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBVOGtqZmdiXzViZnRxZjdJYXdQRzVmbFpIVHRUUlhaWHhHOXRWdFA4Q2N0U0VXcHhuTWVoRjVZeEpodENFb2xtR3p0bV9VU3pTSzd2VlVEd1FaUQ?oc=5) |
 | Democrats give Trump credit for Gaza deal but stop short of backing GOP calls to award him Nobel Peace Prize - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOM2VxYUFhanZGajFRZERSRE9FM1pRV2phelEyWHozSlZMazAwSVBGenhxOVJOdTFoSVBqZ2dxLTNtODF0NjhIMFJZTE1YWnpTdVVSLU85UzFjemJGaDUwZ21xdU1YLXIyTXFaTmwzU1lXajNYQzktRjJEaWt1aFZOSW5pejVzUHdxcUNuNGNTN09JY3kt?oc=5) |
-| Trump to visit Walter Reed for "routine yearly checkup" 6 months after annual physical exam - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPUk1ad2tJTzViWHgzRUFIeHV5MExOdHJSV1cyY1BmeGpfLUR5XzlyS3F2TzhNcEpGTURFZS1keGNfc2xUTm1vbW5QWmdWeXFVQ3FQM010clQtQ25ubmRtMVhtOHB4UUhkRmZIZHNHY200eDZiZzk1MTIxRnQ3dVhRNGxwdlZNTkZiOEhEcHRmWl85OHFm?oc=5) |
+| Judge Rules Feds Can't Pepper-Spray, Tear-Gas Journalists After Block Club Chicago And Others Sue - Block Club Chicago | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxNSmFlS3FjaWVfV1luVjRUb1AwQW5fdWFTcHRlU1RtRFZhWmJzU3NNMXhPTXNqaEwtMzdFN21PcTRmMnR4cDJWNkJvVGEzTzFZeU1yR29PM190UUY5Y3E4ZXRMWlNFUXhWTV9ubkNBQklqR2F0XzZkV2EzTzRKOHVYSWx3b2ViQVJHMno0dmZJelZwcW91c1NWdFBEUkxBOE9XaFRySGZXUTJEYUhibUJacG9Eb1d0SEpEVFlURnViNTUyZHRzbEJMbEN1SG1iRi1kMUE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
