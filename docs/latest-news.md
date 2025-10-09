@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月09日 22:57:03（北京时间）**
+🕒 更新时间：**2025年10月09日 23:00:34（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Live Updates: Israel-Hamas Deal Paves Way for Gaza Cease-Fire - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1feXBwamNXcmJIdW9PLU9hbDk5OHV6all0NC1mUmpEUTFzSm81NHNuTjdxV1RwdWtiUFgzdUZZSlVBSjlvQi1GWExqRWdEYWtXc1JWTUN4Y0NFNl80TVpqQ1dVNE9CWGdTWER6NEtsdE5BeDViSUctcGhHR1JMZw?oc=5) |
 | How Chicago became ground zero for Trump's military crackdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPRHR2bjkwRXpoNVZWb2h6bm9oTzNDdVhjM2NMbGJ4ZS1sY0NTOTY0UTNjUGlKTW9TQVVZV014TWc3eEhDYkhoZEphc0l4c29CNXJsbE1lLVhsUVBWaWI4QWs3ZEVHRUF4Z29DSHRSSGVMcHB2b0FycTNEejF2Q2VnWm5B?oc=5) |
-| Norway on Edge Over Trump Ahead of Nobel Peace Prize Verdict - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNY0Nkd3ludVg1dlJHa1NNZ0prZXM4dXhubEY2emlkNHljclJ3SDAtWTE5bS1xX2g1UTBFT3ZXdklZSmRjMnZ2MWVkWklhQ2FGWTIwSUthRVo5cnRqU19HeWl5WV9RY29tMWwxNnlBaXY3RjNIVm1QMjQ1YjZ0SjBNY2tQenpCZ3FKT1Frc2RkaHNyOXVzeERONFhHY3cxRzYtdHlXcWFVVlRNaEprSXJRdw?oc=5) |
+| Nobel Peace Prize 2025: What are Trump’s credentials, and can he win? - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPRnF2RGhPdElpdnlzcVhXOFJGNlVQdWFNbS00VUZRZm5MMXN4bkpyRC1fVENZc3U2TnZGdVVKWXpSb3o5ckFhcXJlc0x5RFdzdzlwWFAzVG1aNl80bTVONTJ1NnZEMjZrVzUtandZVkF3cWl5OUJ1aVduR1FQRFkyaFQ0R250LVBpTjBVQlpOWkdERjNBdEN4SDBGbkdaSWx4bVFxam1mTDJrUdIBrwFBVV95cUxOcENFUHptdHl1UU1mQThJYXViLVZVV3Q5SS1xaXhNZkh0c1hIeFp1Sk1zWGozMG5wOXZ5NUpKSWpzZXItdEZBcmtqS2hiRnRaaXVKLVZ0dkJzLXJTeEg3VlFCRG5iN0V2eTNXY3NzRkZGSHU2cUxpSGliZGpnd1pnWEhuUjkxZXBJUU9ZM0FTbUQycGN3WFctQzRORzgxQkxGMjZqc1lGX3VLbEljZjk4?oc=5) |
 | What’s Really Going On in Portland, According to Police Reports - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOV256V1ZOT19Nd1ZlRHNFTmxmY0VXMS1YRlVNVHBhWTZDdHJON2N4QjlOMWJtNU9tajYxTXhMY3V3NzdjSDhaR2FXaWpCUnlwN1dsSHBlWG9zb3NJR0NEaDBfVTh4aTc2V1M0aGFUQ3otWDFmMEpCZ2M3Z2syRWdzLTgzMU4temZOcENRMGhtdzF3X0M4UWhsbEx5UEVyYWlCZXRzZkpqR0czUQ?oc=5) |
 | Oregon National Guard troops can remain under Trump’s control but cannot deploy to Portland: appeals court - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxNc2dRNmVzZENSbmVRMVJNeEpCcEIwOE9wWGczU3M0UG9fN3lJX0NpSHRBcnFoZHJUNDVlakVMT1FkOFZCdWxvTFVieFRmYTh3TkFqcWt5WG9yVGpaRlZUQmJ4UTRzem16Sl9qUEFDOFhCOGRfblIzbG5ycTAxZndiWlhlOEdJODFNa25lQ2JDWDl1Y0VPckZCd0I1WE1SemVUSWUzZ1NTcVYwODMtY2ZReFIwMzB3UFhER3hPVlRJS29rSGNiTURfS3I1MU5KcTBIMlHSAeYBQVVfeXFMUG1hXzhkbno2ekt6d0hEUVhleGJKVFJ5X0E0RVJBYjl6ZFd5WGtqa2QxVWdad3M3cnFGakZpNmYzeVd1ZTE4eTdqTlMyMTk0OWpOckwtYVRMWGU1eThqNFV3bEtZWnFfc0lPM3Y1SV8zZmxteW9ENnFIOVlyWHNUeVNhNTdDVWhIUGU5NUUzQ25qMXkzX2pkZlVBODZ3RjkzSmh5WmZ5T2FaSS04R0pFaGdPNXM3MXJ4QkRvdmpMU2RVaEk0UzFMZFRiTmxyXzY1OTY4bEdvN2hrYzhsdDh3WDhQRk5NUEE?oc=5) |
 | Comey’s challenge of Lindsey Halligan is the latest bid to derail Trump’s top prosecutors - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPU1hjNU5fZl9mOXpOYWRrN0hGYm9fR0JsNl91WTVRbWFITDRfTERlNnd1X21uXzBpU1NWQ24xS2F4ZURpRjZ5WnZ5NUZENFFHMzlDVEE5dWgtYW16MktYaVlGVG9kVkhlVEJ3WG1ESThrRVhjcVNoZHI2WWpNWVc1MUZ5Z2RCelI1Y0ZzVU9NU3o?oc=5) |
