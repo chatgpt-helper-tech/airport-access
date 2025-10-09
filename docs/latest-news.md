@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月09日 16:48:44（北京时间）**
+🕒 更新时间：**2025年10月09日 16:56:23（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump could shift funds to pay troops , White House officials say - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxQUGkwOWp6OFVmRXJRQTMzWV9sZ0Zvd2NDYzJMRnllanlDRUhQMThxcmozSG4zVkx0ZGgzdWJoenR1bmdjakNBSXhtcng3OEFoM1lDWnZadUVKbUVuam1XbXJQdm1EU0daUGxjSlFuaEJGZWNYVVhEcjQ2WlE2YkpNaFV3MkdGdkR0MHlvVFM1cDdsS0Y0MGo3M2tER0Z6T01iM1B4eG9wNTQzeDNTY3F6bWI5NTU5ekoyY1lzMDA5RG1UNmxTX2tLNDJn?oc=5) |
 | Takeaways from the second debate in the New Jersey governor’s race - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNZmNOM0VreVEwZ2V0QjdSTU16MEd3WlZsaWlBMTFHa1NQelZvNDJYOGo1UVIzb2JCQkpwUDhiN0NDRVVxRVpQMUV2MlY5U2FXM25zVEFXZW1ObDA4bFNrMExFMWpFWFFCS3h2YXk3YnRTUVMxODQzQ3ZldkVLT0c2bW9B?oc=5) |
 | Katie Porter Goes Viral for ‘Unhappy’ TV Interview in California Governor’s Race - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxPN2hNWXA1a29jaURzMUZPSmtNRkNmejVIakVfcGVOQmliLWQxQlRqTVo3Wi14Wks2clNCdi1fUHBhYUVsVnVvbTF2VWNYbk9tUVdGeEZ1aEpRUjctYi00YmJjeFQ5V0N4RXBKNWlSZGFMTnlxemJhZlFJQ3J5akhkM3lsd3dJdXd2YW11U0xwRVpDQllObVNRN0ZTNW5OVjNSNmsxZjlEWUtJTVllMkpTRHpJNm9fWDl2WlIwSg?oc=5) |
-| Pope Leo urges U.S. bishops to speak about Trump's immigration crackdown after being shown migrants' letters - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOb1FVM2NpY1ZXZ3J0Y29BYllqbl9ORkRHQ3JwbzVrNDUtX3JBaTB2eUF4dmZKeDNheHVFaUhORmZZaUcwUUFUcmRxWi1ELURJLUxnRmJfaHJTSEl0RkFXYWRrVnZkQlpuNi1OdC13US13Zk5RVE9VNTlSZzhROFJBNUpXUTk3U2NhaEHSAY8BQVVfeXFMTlNPOTFjODZKNi1oOXZqcTZWb2F4YXh0Rk1aRE5IbGZ2U0tkZDloTFByYUpYR1FnX0dlVVBWYmRhdDc2bWpvLTJzNU5jWjdRblA3cWZFUnFFSFhLcEZTdkk4bzM4Tzl6WjVKN1dvUHM3VUdaMU5jTVlWbVRHVEhGeDg0RXBDdDFaUmdzOGQzT2M?oc=5) |
+| Pope Leo will ‘stand with’ Catholic leaders in protecting immigrants’ rights, advocates say - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNWFd5XzgxX095ekFoaUZ3aG5SZGJsTnZsTTU5cF92VGY4XzVnVjY2MlRqWHZfRVNsVHFMLXNybXljemZ3SHVxM3d6T0pmc1RZc1dfZlp2dWlFUUdpaTc0QTNndDBEYUlzUUQydkhMZkhTa19WZDFOZnJnajFQZGRmeDVJTQ?oc=5) |
 | Portlanders struggle with questions about Trump’s threats to their city - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNUmgwRXNKT0dQMDJxbThxbU9PN0Z2eUs4NFJGajA3VzRTZ1poR1llZDFGZnpreEQtQ0l4dHVBZVRHTkNEc1FQOURqeGhLX2tYVUh6RVBTeVpXdGtnd0phcF9SalowZjlOSEFuRmpBbWFTMEw1aVh1M1BZOFZyZzBUNXkxNDlOY0MzTE9XOUlrMFJLMXlKWGhhVWN2OXdlemRZako4el9qR3FEbVdMSDk2YnVYSTNock9lTFo0?oc=5) |
 | 2025 Key Races: Jones Texts Rock Virginia and Checking in on California and Pennsylvania - Center For Politics | [阅读全文](https://news.google.com/rss/articles/CBMi2gFBVV95cUxOalMtWkNJV21lc3JiM2J1WEVGOHphR0ZsTzFtZjhPWXhVMTFnVVRRcVNhWmk2N1RsQ2JUT3lpbGYyMkV1OVpGUkdPRF9DTnFWdkY4dXdYaWZISnNsSTVsa1FGWVc5ZTl6U21CVUM2TkdjLU9hc0s4a0xYTVdNYzI4Q2I0YVBCM3NhSGVRYnBvYlA4R2ZTS2pYTXdKT3g2VFRYMS1LcVk0NXpYM3dTUGd3WXJTcFU4QlktUmpTTHVhTWJsRS1JNndrc1FvcGRxOWFuX2Jsb1NEeDVTdw?oc=5) |
-| US shutdown deadlock deepens as senators reject competing bills - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQbVFzVmhQUEJzUTdNZGFKX2gtaXVZb29oU09FMmFnRmxCdXJHRXhSa05qSVk5aU9fTm43THNtYjJ0UFAtZ1BjOURFX1JUcU1PaDBaQzR5czJFa3B6dkQ0eDNRQU94ZVVLamljSEVsTEJOd21qS0JkaDVtbzkzMzh5VzIwbzRuQQ?oc=5) |
+| Protesters hit the streets as Texas National Guard expected to be deployed in Chicago area - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPTE0wb3UtUEk4YzlSbGI0enVpWGt2MTNUM1dzNUIyXzBuYjJYSWhTdDB1U2duYjl3VE9FQ1hkMVdhZmxlNXZ2RjQ5SVBuXzRiemdKTUZ1U2xaVVdwdjVpcHNhb0VzYXJmaTBYdDBpcDIzTG5sLWgzSjNzWDZlYzVrSTF1eElvMHBsRDZRWTZ4RUVCeElBSlE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
