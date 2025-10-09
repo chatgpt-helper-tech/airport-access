@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月09日 12:08:02（北京时间）**
+🕒 更新时间：**2025年10月09日 12:16:59（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | National Guard poised to enter Chicago as Trump calls for jailing Democratic leaders - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxNSXJMWnJBdzM4YU9Yd0EtdUN6RG1xeDQyMlBQczNnXzVfTUtCaV85aWVXSkVDZUVsZmNlTU0ybjFTNnZHWWs4QnhKNnJSWVQzWTdMblJ4UURSZDdPV29NVmdHU3RkblNzUzdndUVvSFI5eW9KN04zaFhlVTRTYVRjdkFIVmp6VmpnQmJwSE42OXVoV2pmV0VBcU56YUcwODB1WjdCaEp6VEdVR1VvcWoyald4bVV2TGJuRFU0QkIzbGJLQUlSRGc?oc=5) |
 | How escaped New Orleans inmate Derrick Groves was captured after 5 months - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQRmRza2Q4cVQ2VUptdWJPckhkNG8yNkVkUnhLT1dFRUwxZHBmS091RzBkMjEtVXNBZEUyVVI0bldwSzFaVkFiMlE1eU5LTFNadWlKSVozTWtpblA2elB3c045TUVqeU1pZGdYV3BkTnNfNEpDbWQ5ZTdDdlpKbFp2OUlWV0lId0hVckl4emZLZHprRnFqNmNlb2dnU1BLVG1paUHSAacBQVVfeXFMTW5SeTJZUGpiT0laTlRtR2ZGV0VwR2lvOXpLWWZsQU10ZFRySmJPcnQwRm9qWkZZelA4NDZtU3J3dmlLRXpxMGNOV3RFQkFpQURtUEtZeDlhenI4bV8zamIwc3BCdjUzdFp5SDFMR29TMkdZOGZ6SjNQR2Z5OWJXOFZidy01VWs0UjZSY1FaTlB1ZG1TMnpYSzlsanRqRkZ1aUwtTHF1TGs?oc=5) |
 | Katie Porter Goes Viral for ‘Unhappy’ TV Interview in California Governor’s Race - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxPN2hNWXA1a29jaURzMUZPSmtNRkNmejVIakVfcGVOQmliLWQxQlRqTVo3Wi14Wks2clNCdi1fUHBhYUVsVnVvbTF2VWNYbk9tUVdGeEZ1aEpRUjctYi00YmJjeFQ5V0N4RXBKNWlSZGFMTnlxemJhZlFJQ3J5akhkM3lsd3dJdXd2YW11U0xwRVpDQllObVNRN0ZTNW5OVjNSNmsxZjlEWUtJTVllMkpTRHpJNm9fWDl2WlIwSg?oc=5) |
-| PORTLAND: Fake News Ignores Antifa Violence, Residents’ Pleas for Help - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPbE92ckEteUpMeE9KQVFYTjZjN0VsczFuUVNFSW84Q3UteTRac1dtU3oxTUtycVJxNzVMNGJkdFZ0YjdyZGctLUdna0JLZDkyRVF2ZG1WRGluUGpGTEIzOW9GSkdzbEt0ZGM1RDRPUFF3RkVXTElINWpaZ0ZEZlpjakZDMEpqTTJUZFBreVVmNWZfNWJNaUJySUJvUzVXb3ZuR3JlMVBEODB5NkR5T0w1eUdn?oc=5) |
+| Portlanders struggle with questions about Trump’s threats to their city - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNUmgwRXNKT0dQMDJxbThxbU9PN0Z2eUs4NFJGajA3VzRTZ1poR1llZDFGZnpreEQtQ0l4dHVBZVRHTkNEc1FQOURqeGhLX2tYVUh6RVBTeVpXdGtnd0phcF9SalowZjlOSEFuRmpBbWFTMEw1aVh1M1BZOFZyZzBUNXkxNDlOY0MzTE9XOUlrMFJLMXlKWGhhVWN2OXdlemRZako4el9qR3FEbVdMSDk2YnVYSTNock9lTFo0?oc=5) |
 | "Tennessee Three" member Justin Pearson runs to oust Rep. Steve Cohen - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQbWxHSDUxZndWNW5FRllXbTZwNTVUTVBzX2dma2ExeVdkb3pVbTRlVTdycWd3a0Z5TDRpb0pDQWxXUUZHMHduZkhZMEdnNHN0a2tocjdiN2xUbjA0R1JteC0xci14Z0lPYkV1NFZZOGpPWmlIOWJIbkROblRJclVjUQ?oc=5) |
 | James Comey updates: Ex-FBI director faces court - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1wR0M0dmt0cmhPbldQemtFQkZFT2NCUTgtQW16Smk3bUFjeTcwbWZhcGM4VDZYZm5UbVdxcXA4S3BtQmtQOXhFaExXbWJVUUlHcVZBNg?oc=5) |
 
