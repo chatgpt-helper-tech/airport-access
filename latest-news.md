@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月09日 23:56:05（北京时间）**
+🕒 更新时间：**2025年10月10日 00:01:07（北京时间）**
 
 ---
 
@@ -8,8 +8,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What has been agreed - and what happens next | [阅读全文](https://www.bbc.com/news/articles/cvgqx7ygq41o?at_medium=RSS&at_campaign=rss) |
 | Jeremy Bowen: There's now a realistic chance of ending the war - but it's not over yet | [阅读全文](https://www.bbc.com/news/articles/cn5q04yr345o?at_medium=RSS&at_campaign=rss) |
+| What has been agreed - and what happens next | [阅读全文](https://www.bbc.com/news/articles/cvgqx7ygq41o?at_medium=RSS&at_campaign=rss) |
 | Former Radio 1 DJ Tim Westwood charged with four counts of rape | [阅读全文](https://www.bbc.com/news/articles/ckge5zrl69xo?at_medium=RSS&at_campaign=rss) |
 | Man who appealed Pelicot rape conviction handed longer jail term | [阅读全文](https://www.bbc.com/news/articles/cq65e2jdd3lo?at_medium=RSS&at_campaign=rss) |
 | Alleged McCann stalker creepy, Madeleine's sister says | [阅读全文](https://www.bbc.com/news/articles/cp3vg385jgko?at_medium=RSS&at_campaign=rss) |
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Live Updates: Israel-Hamas Deal Paves Way for Gaza Cease-Fire - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1feXBwamNXcmJIdW9PLU9hbDk5OHV6all0NC1mUmpEUTFzSm81NHNuTjdxV1RwdWtiUFgzdUZZSlVBSjlvQi1GWExqRWdEYWtXc1JWTUN4Y0NFNl80TVpqQ1dVNE9CWGdTWER6NEtsdE5BeDViSUctcGhHR1JMZw?oc=5) |
+| Live Updates: Israel and Hamas Reach Deal on Hostage and Prisoner Exchange - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE02b3RBcElXRmVwcWxYdjlYblh4eGNOT0gxbzd5MTNfd2J1azRUT2oyV0twTDF5UWYtaHhpc3BWa3NIUHJtX1ZSaUc5UzBpQ0tpSXhJQ1U5b1F5eHB0WVBuZTVEcVUzWFYtRUpNbzVoRENjUmVENERrV3dlQ3JMUQ?oc=5) |
 | Texas court blocks execution of death row inmate Robert Roberson - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQN3U3bUpQLWJzZUJTdXpROU9NaW9FcXcwbkNiOF9LN0tOZElyUWthcHBfRU1pbzR3TFN0TGFhNVJYd0VyYk91SkM1RmtPVnVvM0dLTlF4RUU2c1NYeG9VSHpDVndZYW82cnhISjh1WlJ4Y3huU1lLRUFSX2hvdmFzaXZyZFpnWTM2bkN1TzNfNDhpQWRKbktJOW1kdnlaZ202SG5fR3A5UE1uZw?oc=5) |
 | How Chicago became ground zero for Trump's military crackdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPRHR2bjkwRXpoNVZWb2h6bm9oTzNDdVhjM2NMbGJ4ZS1sY0NTOTY0UTNjUGlKTW9TQVVZV014TWc3eEhDYkhoZEphc0l4c29CNXJsbE1lLVhsUVBWaWI4QWs3ZEVHRUF4Z29DSHRSSGVMcHB2b0FycTNEejF2Q2VnWm5B?oc=5) |
 | Nobel Peace Prize 2025: What are Trump’s credentials, and can he win? - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPRnF2RGhPdElpdnlzcVhXOFJGNlVQdWFNbS00VUZRZm5MMXN4bkpyRC1fVENZc3U2TnZGdVVKWXpSb3o5ckFhcXJlc0x5RFdzdzlwWFAzVG1aNl80bTVONTJ1NnZEMjZrVzUtandZVkF3cWl5OUJ1aVduR1FQRFkyaFQ0R250LVBpTjBVQlpOWkdERjNBdEN4SDBGbkdaSWx4bVFxam1mTDJrUdIBrwFBVV95cUxOcENFUHptdHl1UU1mQThJYXViLVZVV3Q5SS1xaXhNZkh0c1hIeFp1Sk1zWGozMG5wOXZ5NUpKSWpzZXItdEZBcmtqS2hiRnRaaXVKLVZ0dkJzLXJTeEg3VlFCRG5iN0V2eTNXY3NzRkZGSHU2cUxpSGliZGpnd1pnWEhuUjkxZXBJUU9ZM0FTbUQycGN3WFctQzRORzgxQkxGMjZqc1lGX3VLbEljZjk4?oc=5) |
