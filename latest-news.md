@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 07:41:59（北京时间）**
+🕒 更新时间：**2025年10月10日 07:49:47（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | What to know about Trump’s National Guard deployments in Chicago and Portland - PBS | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPdXFFSG9aOElxbldETU90UVFEdHJuNEJfc0dZQm4xT0JLaWQ5MjhtSWJsaTdnZnNFd256MUdadk00VWI1RjFqSkh5OEtONDlNOXVQX3ktVUJNVURmMUt2alBVTU1OSnRKZzBGa1dZUWFLb3ZJcmVIR0xXWWx4RTc5LTNUN0VwbG1MSEVmTmtrVk0tSTRTdzBjSUpVVFJSb0lsclRhRE9KS3g2U3cxT1FQTGZB?oc=5) |
 | 9th Circuit Court skeptical of order blocking Trump’s troop deployment to Portland - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNMVZvWlN3bGNlWmE4VFlnQzBOa0t6ZVBTc19LUFFBYlNIVkhMNjV6Wk4tOFEwRjZfb3dkQlVyMzNvME9fV1lUdk1TRVN3ZGtmdFVYQlZRQ19KR1JtOHZZNkZ0VUt5cGNPOXJZNTJydTJaaldVYmI3clFGVXU3Q3VHVkd2OVZCeEhib19QaExXQlZCdw?oc=5) |
 | Most Americans unsure about Trump Tylenol warning - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5JNjBYdWpub0RJT2hCb2FNUFp0NW5YeTBaQnhsdWUxd3RPcm5lZTdFVWlxOE96YTJoeXh3aHV3bVdpUzlxeDdfT3RHN3dLeHRGZkN5b2ZnVjI0VEw0Qmk1c0FuUEliRHF3UzQwZ0tUUWtZelRXRUs1V0hIUQ?oc=5) |
-| Norway braces for Trump’s reaction if he does not win Nobel peace prize - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNTXRGOGlHNXUzdXhDSnhESkEyclRYVmZJVEJEaXFVeGl1eUppdmlyam5LdzJIRjBCQmVJc3A3bFhwYUNnZFhvaHcwYmJRQWhVQzVPTWJWNW1YWldRRXhDemt1d1Z1NnBhTDJHbk1xRnoyZ01hV1VVWnNpc0I5eFJ2S1ByZVNhcVVRZk41QjZSS2tsZXFJbFEtS0hJWEkxNFZMblczNjU4ektramNOSEtIX1lneWhUd1k?oc=5) |
+| Big Investors Await Windfall From Trump’s Argentina Bailout - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOQm1UZjN2VWFNbFVJS3hXeGtyVUp6QzJWN0ExcTZ4YUxWaDNxU3V2a0czT3lUbnNPTGE1V0I4ZkNnbnBlNmhxSHFfQlBtR2k4VFJCSkZleVRhNWg5aHZPVDFYdHBUcjZDSnVFTW5aRTFWcUZqZ1FLSEVnQ1hFNVpZNXAwbXhqQQ?oc=5) |
 | Texas High Court Halts Execution of Robert Roberson in Shaken Baby Case - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFA1NExyNmE3UGtSekVKdUotOGd2a1VUOEpBUE9jNG9WZm5kczZRM0tEdU54dHJKeThsOFQyTWY4LV82aGNxcWdEcW5aTWZmT1I5R1FhWVZTQ21KM1cxMEd3b3lIOW03Nkc1akNBWjJTaURieE5HUTA3QnVR?oc=5) |
 | Boston nor'easter weather forecast calls for strong wind gusts, heavy rain for part of holiday weekend - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1NUHhWUUE3RnAyTEwySGVleFZzU2ZCZVV0dWlnUkRGMVRFSWRFQ2hBZkZtNkNIQzV5UUpCSFJFS2hKTVcxR0UwSDF3aVFtaHdTTjlJTFp1UGY0M21zcnR1LWdsTnpCLTExRnIyNlhYZmVoeWN5YjJpNXQxZEZSa2s?oc=5) |
 | Sean Duffy Warns Air Traffic Controllers They Won’t Be Paid If They Call In Sick - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxPOUpueTRTb1FRcGtKZzd3TGk2SUhVQmpBeGh0c2ZKQTdGeTBlUE5haEV2alJGTmUzVVRENzVuWGVHSDBOTGtpbER4eUhWTkNkcy1ETUYxUG1FUllWTVdYNnczVTZQTTlXVldyUTNlbGRWcnRROEltazRZcFpfRHNTQ292dVBZRnJVOWl2RWxjelZTcjExX2VfM000Ni1VTDFmQlFkZTM3b2ZlSjYxRWxuLUtYWEpvdWE3RVo1aQ?oc=5) |
