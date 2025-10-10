@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 11:33:23（北京时间）**
+🕒 更新时间：**2025年10月10日 11:41:28（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Judge blocks Trump from deploying troops in Illinois for now - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNbGpBRE4xNmtIamRTZUo3dnk5QS1MaHhmRHV5ZXE0QlBDVjU1WHY2Y2JUYlJ2bUtWN3I4LUNyRElSQzZOeENOMGlUa01iSTZJcGxNRjNFVzJtWjY1TC1sQWFyZExYVFo0TWxzaWR4d1BaTFBGck1oOFVpdHdFYUFGSkQyZGdUeDY5dTdlSld0Y3VtRkE5YTZZUGNzeDI?oc=5) |
 | The 11th-Hour Campaign to Land Trump a Nobel Peace Prize - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE53VkVmWXlVcnIyMXQxcXdnVENvOVpuYVpWdUJ4QjNQbHdwNXF0aEE2cjBfelhwRlYwQWxQUXVSM0pYMEQzSzJ4MU9KTHJaa3NCU1JfeGZqQXJxdE5KSUhiNDAwbi1RV1Q1SVlaVV9DMnI1dG1MdHc?oc=5) |
 | US sending about 200 troops to Israel to help support and monitor ceasefire deal in Gaza - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNNkVURTk4Z2tqbS05bnZ5X2ZqbXpVaHZQcDFKRm5GaWlZdDlDb3p1c0dHRmJJaWgwYkoxSDVTUVJib2FOeHM0TVNIbGV3SFVXNDlKOHRqMVo1OTBaVUt5ZkphVHloZjN4RmFnOWtoSEpLbnVtUGgzWEQtT0h3LXB3T1VETU92S0VVTXc4NXJwcWotWW94d1p5WTdkUnVfZw?oc=5) |
-| Trump promises cuts to programs favored by Democrats - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPd2k3SXo2blZlSjNOVW8xTjFnZHFFbE1jcGdadGh3QTVvOUltUWdZalRpamJ3YnJUcUNBYUhJZm05dHlQUzZVWmJwQzk4akhnUzlVZFRLZG9McDloOXRZZkdVelkycGkySU5lcVVBenlvSmhPSTNfY0ZROGp2RXZEXzdvUEN0XzZBamVYSC1qYUtyUQ?oc=5) |
-| Texas High Court Halts Execution of Robert Roberson in Shaken Baby Case - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFA1NExyNmE3UGtSekVKdUotOGd2a1VUOEpBUE9jNG9WZm5kczZRM0tEdU54dHJKeThsOFQyTWY4LV82aGNxcWdEcW5aTWZmT1I5R1FhWVZTQ21KM1cxMEd3b3lIOW03Nkc1akNBWjJTaURieE5HUTA3QnVR?oc=5) |
+| Philippines and Indonesia issue tsunami warnings after 7.4 magnitude earthquake - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE84OUtTamxDd2YxdEJjSGxWT2o4SmNDWkNKRnF3dUROUUUxWHAybk5XV3NMbGxGWXhjaGoyUU4zQ3RUUEhXMEhQd2ZmRDFxZ3lkTFM3UQ?oc=5) |
+| Robert Roberson: Texas court blocks execution of death row inmate in shaken baby case - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBVOGtqZmdiXzViZnRxZjdJYXdQRzVmbFpIVHRUUlhaWHhHOXRWdFA4Q2N0U0VXcHhuTWVoRjVZeEpodENFb2xtR3p0bV9VU3pTSzd2VlVEd1FaUdIBX0FVX3lxTE9NNThxaTJSYUxIalVHVk1pdm5NMUc3Qzg4Ml9zLUs5bWVrdVRSbnFpR0hjcWlsZ3M2Q3RTNVlTQzNhTXpfay1JeXhwMWt1OUVMaWIwbDNIU3N6MmkxX2o0?oc=5) |
 | Spanberger and Earle-Sears tussle over violent political rhetoric in only debate - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPSm1lVXZVRjlpTE9Yd2xlYmh1aHZWaThzNF9SZkxneTBtR3NDTXppRENnYXg1aHFiUWpSak1RUXJpclBYNk15WW1vbjc3VGxWdFJobkFuV1V5blhyYjMyTURYSlpFaTVzOHNaVWRKcW5YWmMxazJ3M1FyQ211Nmhaa2tNeDVab2c4U3I3OVNBdlktb1NGQnNzUE01bzE4b0hyaDJocVByc0VJQQ?oc=5) |
 | Katie Porter camp rallies allies to her defense - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOTnBGUWVUWFM0YXBvZGZwZHQ0WDFLZGsyN2ZZdVlHUC0yalBfU2xEZ1dBc0lUN3RUZlRtMkJOMWV0eXVtS1oyU29lZjZ5ZUlRaFdzdzNyUWxTSklMNWpDX1FhMWMyTXNGSmlrQ2RBa2libWdyUjZ6MW0wWmxWcVZRMnBwSDFnZVBxWGFVdVdLU2tBeG10R2liMm9wd2xtQQ?oc=5) |
-| Who is Jonathan Rinderknecht? What We Know About The Palisades Fire Arrest - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOamNEcWlrTTBZUk5XM0hjZU5scUhvX2FfV0tGQXRFdVJGcVVEU1Y4eFBZa0ZMV3IweGNMWkdHRi1zaFo5WVBVZ2UzRHZlMWFGbm1iRG8xZzk0U09vVHhhZXR5VnRKUjRwR2pVeDJCT1RUMmxZY0cyZ2NrNzI2WGpfNl9uOEdlZ1FiZHJhOXdaWQ?oc=5) |
+| Mike Johnson sticks to no-show shutdown strategy as resistance mounts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQZ0ozM2lFUzV4SFp6RW9tbHlaZEh1T0xISnIzNUpwcjh6RWEzWkxDOEFZbzNQTVZLNFRWOVcxbHZjbkNYYXR6Y0RYUzJFek1DSTl4d2xYaHByY1doUDA3RTNVUzNEY3RhM29hNlBBcDUtVU12RzZ1RWs4U09iaFliaEdvZXpidw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
