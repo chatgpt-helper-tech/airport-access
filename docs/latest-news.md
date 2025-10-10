@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 17:08:32（北京时间）**
+🕒 更新时间：**2025年10月10日 17:16:42（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | 7.4-magnitude earthquake strikes offshore from southern Philippines and may cause tsunami - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQa2dGa0tna3lpRk5GQzVlaXc1YTh4d1NvUFNpd2E2WmFhY0JmUFp0d3hqZ3dSSlhVa1M4ekZLOV9IQlduTkJzVm9UVmNkSDEtTmxBY2E3ckF4V0Y2aEtEb05aOGZ3eHBkSTF0ZVFSR0tja21IRldCVEFaLWRCYi1EeWxyM0hqOTRiQWUxeG82VFBKZ3ZOYzVNSlVIZGFXcVUtRk4ydXBQQkdnU2pZdVRqclVRa1hrd9IBuwFBVV95cUxQblJMLUhmUU9XaUJvc3NmbmhjLVdaZll3RGFVZEJDaDNBQmpiaVE1Ykl5a28zOHh4Zk05VTNKR3RxaHZZUDB4NUFubmlyQklscEpYaTdlSHFZX25VSzJXSEhrOXFqMGkyVnFyWmg3dVYtdmpZY1J5UjVHZGE2eUcybzh3Zy1raENueWppbXpaZFFzSDI3SlA5Zm85U2VpWHY2RjhlT1Y5Wi1rNGlLWklWdFQ5a2lmTi1YaVI4?oc=5) |
 | How Trump secured a Gaza breakthrough which eluded Biden - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBndy0xLXZYMVIzVUx0ZVVXM1E0NlhoSk1ya3g0YVQ4QTRzdEZiaW1rMDB1eks0cVhZempaM3BjeDVsbV9oc3dKejlWZjJjNS1fNDVzNmU1cExUd9IBX0FVX3lxTFA3TWJ5Wm5mWTF3R2xHekVxa3VaN0JyWGU4Nm4yS2d5TzA5eTBZYWRzenRJaENxYXJrXzM3YUdWcnN6RkxNVmNuWlNMRjl5emE0WUp3ZWtLZWFnOE44WnlJ?oc=5) |
 | Senate still deadlocked over shutdown as Trump reiterates threat to Democrats - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQZjdGRHR5U2h0aExiS0dOODFuUm5xeTVLWFpISHVjXzdvMTBxN1Baek5UdmtPbDZMVlYwYXlRcHhvb21nUkJhUWVhSTdkYm1QNjlZWXp5WnJ5NDdUQU1tS1JEY2l3TzRUck4wWlB3d2NvN3lzbzJabVI0U3lsOGcta3g1blRuTzFtRGpF?oc=5) |
-| Spanberger and Earle-Sears tussle over violent political rhetoric in only debate - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPSm1lVXZVRjlpTE9Yd2xlYmh1aHZWaThzNF9SZkxneTBtR3NDTXppRENnYXg1aHFiUWpSak1RUXJpclBYNk15WW1vbjc3VGxWdFJobkFuV1V5blhyYjMyTURYSlpFaTVzOHNaVWRKcW5YWmMxazJ3M1FyQ211Nmhaa2tNeDVab2c4U3I3OVNBdlktb1NGQnNzUE01bzE4b0hyaDJocVByc0VJQQ?oc=5) |
+| Candidates in Virginia governor’s debate clash over shutdown and violent rhetoric - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPTnBEalR1SUo0TjViMGNzV2dLOEo3blA2UW1wT1YxcEw0aUwxVDdMbEJNZFdBcVZWam1DdVJSRGFyOU5iYmhwNFhsQkg1aU1VVU1KZHpjejVOdGFreWFUeUZOaE1UY2VwdFR6eE9UY0hoUmlvWjFkR01uVlhhdS1tNWVjZTZVdTRQQnVaNUtlY1o5NmVJY3U0cnFITGliTDVoMGxhWUpJd1UxdFJ3ejY2WkNB?oc=5) |
 | Robert Roberson: Texas court blocks execution of death row inmate in shaken baby case - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBVOGtqZmdiXzViZnRxZjdJYXdQRzVmbFpIVHRUUlhaWHhHOXRWdFA4Q2N0U0VXcHhuTWVoRjVZeEpodENFb2xtR3p0bV9VU3pTSzd2VlVEd1FaUdIBX0FVX3lxTE9NNThxaTJSYUxIalVHVk1pdm5NMUc3Qzg4Ml9zLUs5bWVrdVRSbnFpR0hjcWlsZ3M2Q3RTNVlTQzNhTXpfay1JeXhwMWt1OUVMaWIwbDNIU3N6MmkxX2o0?oc=5) |
 | US could fire air traffic controllers who fail to work as delays continue - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNdzlndGJDQTNjekYxbkF5Q21OQzRnWXdRRm5PN1FSNTBLRHNxZDZ0by02LWFYTDJCQk9VZGZSd0FqYTcyN2laT2tiVDJHOTRJbkNwRW9KMlkxVmgtbWhXQlVSaWJkRkxhQ01DTE9TSnpDNWNhZUppbE5iU2h3R3Z1OUVZVXB2SzBibjU5NFpXVUlMLW9BYWlXV3pzOEVjQjUzSmU4OXR6bV9LcU9VYmRwbm9LME92YWNkQTB0eFVjbF95ZHNmVUpnUw?oc=5) |
 
