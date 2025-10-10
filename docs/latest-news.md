@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 22:09:56（北京时间）**
+🕒 更新时间：**2025年10月10日 22:16:49（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Letitia James pursued Trump. Then she was indicted. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQb2xfeVJlSm03cVludzNlVUgwQ1g4UjFVRFdqY2lFS2pCaGlzbjNoWXVFRVRkb2RwcW1nNllJMDhJRGVjc3NTalNLeDFwSk4yNk1iZ0d3eWNGaE9EZW1CNzI2TFd5emNOdEJKWVMtcUNaZnhlWHMzNnlOR2lFZGdtU3k1V0YtbHRCdFZGQnp3?oc=5) |
 | Trump boosts Argentina's Milei with $20 billion lifeline as US buys pesos - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxOaGVub3otX2FOdFVqeWU0ZU5nUmxXUHdHOEJabU1MQUZZMXZXUWE0dFY0WThIdXNORTd2dUhQazh1QWFrXzdaVkEwSkF4ZXYxZm44cVZPSk5helhjWldOdnY2OURyckMtRXI4WnZhQUllMF9iNlR6Ymw2ODV3bENlY3dLb3JXR1NRYUdMQ1U3UlFhZXFDMnNEOVhtb1JJQk9JMVdyTnZYdlNYV05RTjFFbzdWVHFKZ2FsbWdYWVRIRjd4RndDd3B3?oc=5) |
 | US to send 200 troops to Israel to monitor Gaza ceasefire - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9fTEg1ZVJjX0UyRnZEUUtQUTZ4b0dSSnJOQ1FXOWc3ZVgxT1Z5bjVrNTBQTGZ4RzRzckdHTTJqU2hfY0t1bmxJZFZUNnAwbG9aVERtbmZycXVUQdIBX0FVX3lxTE0yeHpEOW1vT2VaWjhLd0puTm44WGhyaGhidTROU3FUMVFrZ0xBUjRXb3lFOVZRbHRFLUp1dG0yMzBnMVVTdFU1bGtzbGNMcVR2T1BlbWxVZXZnbG9kMjZv?oc=5) |
-| Where has Trump suggested sending troops? In cities run by Democratic mayors - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQNTAydzNvVERuQ2tKbTAtd3lURVZSMjVWQWprTlFsWnQtY3FGTUxEZ0JrbVRxUERxZWZQejhVQ25PRnVVZUY0b1lCUnhCSnVuTFdKdEQ3Sm9sSzY0X0tPak02UHdLb0xTSEtOREt5WUNtSnZ5WkJ5ZVJodW1ObEpqWTVpSzE5dE9rN1VuNERaa05vdzQ?oc=5) |
+| Federal Judge Temporarily Blocks Trump’s National Guard Deployment in Chicago Area - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQYnRrSHNUR1p2RVpSb2JUY3NCTmNPQnQ2V084TVkwVmNRdjFCWW5Zd2dvV1V0QmpDUEVOR2J2QmVnZGZJa1Atck1wVWhUVWtyY2lYTEo0QUtEMlBYdDJkVE85RXNLUFNDWjN1cnJIOHdEdng2bUZYUFpuTkNDbUwwOGFEMEhUOUE?oc=5) |
 | Capitol agenda: No deal as the shutdown marches toward Week Three - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxOTWJQanpqWUhHV2tDTlRkR1dFakRtei1XbU5KanFyeUprMWkxY0pmVW1HUnRRRlowN2RPUFZrVFRNSVlsb1owTWdNcWcxUld3cGczVWNFRWxDTlBmQklkRHpwXzViTEpwZW9Ib0dhYVBOSnB6d2pKbF9SazFfdGRnbHJ2V1FhNFQzSTV3bDdwa3FKYm05N0EzQzRYZzMyU25NOVE3QWk5MGg3WWxCY3ZqcDIwZW1jY3phMzZ0XzJsTFREU2l4dUVJYw?oc=5) |
 | FACT FOCUS: Trump paints a grim portrait of Portland. The story on the ground is much less extreme - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOSTBlaWMyeUN5dk8wUHZsWHV2OVhvZmpMTUVEVzFPbHB5V1laYUN3U01udEpHM1pmOVZaZWN4ekZmYThfcWpjUHRsdl9mQllSbGNtTzhWTDZIZnptckUyNlFDOHNveWpjM3ZycUtaODI3a01fZHEyVm15TGRBdEw4djRmVXVmWmZWOWlYRGNmaEJZajEzYkcwUG1SWkx3NTVkaGVtc1VvMjl3dXZv?oc=5) |
 | Spanberger, Earle-Sears clash over violence, abortion, and taxes in lone Va. governor’s debate - Virginia Mercury | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxQVW9JWjkyNGk3U3lfbTk0c0hFRWw5Y24zUV83TnVpNTMzWE1yM01PaTh6NEZiVTktUHFiUlBCeWl4cFhIQ2hVX2EzUW4tMUk5LW55WWI2TnJmM3JvNF8xMTY5VzRvT3lsUDR2Z1VhRjVXWVhpNEVpZlVmNFE3MlNtWDh1NXRXc1lnM3NUbXcyUkhVZEU1VTBsYWZZSy1RUExDYmpEakhSUzRRN1N0akx6UDR2Q0t4TC15MDJva2JYSEFLSU5FUzN5VQ?oc=5) |
