@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 03:56:30（北京时间）**
+🕒 更新时间：**2025年10月11日 04:01:11（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump suggests canceling Xi meeting and threatens more tariffs after China restricts key exports - AP News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE14cDFwcENqWVZjSXpxTDVJZU1vNndOY1lLSVIydUJNb2h0VEU2Rmg0WlQ2c1RfN2d2UV83aHhiYWlKeVprUTJXbUlEOUhLOW9CN0dEUzYyLU5Oc2NnMUdhbWhwM3NuWDY5MU1QeDFHT1VmOHE1SzF1NFlGZnNTWTQ?oc=5) |
 | MIT Rejects Special Funding Offer From Trump Administration - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE42TGtCSFBUNHlUd3BKZVNCcVE2WWZlTVp2cGNXYW1YdFpCRmR5TklGVXRmODF5UmRxRWJ0cGpQSWpuTnp5Vk9jQWwwR2s0V1JjT2dDVGpWSGZFQTEzVndWRjc1M3pab25WUThOMmRoNlZqNVhMN0p0cU5xTC1HbXM?oc=5) |
 | US could fire air traffic controllers who fail to work as delays continue - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNdzlndGJDQTNjekYxbkF5Q21OQzRnWXdRRm5PN1FSNTBLRHNxZDZ0by02LWFYTDJCQk9VZGZSd0FqYTcyN2laT2tiVDJHOTRJbkNwRW9KMlkxVmgtbWhXQlVSaWJkRkxhQ01DTE9TSnpDNWNhZUppbE5iU2h3R3Z1OUVZVXB2SzBibjU5NFpXVUlMLW9BYWlXV3pzOEVjQjUzSmU4OXR6bV9LcU9VYmRwbm9LME92YWNkQTB0eFVjbF95ZHNmVUpnUw?oc=5) |
-| Governor Newsom builds on this year’s historic housing reforms, signs legislation to accelerate housing and affordability - CA.gov | [阅读全文](https://news.google.com/rss/articles/CBMi6gFBVV95cUxPRDluc1pJZmVVNVhfOGpQVW45THlNZ0xFcVlGY2dtbHhkQks2ZjRXY09ueXhPSUFuVnhjS1JBUURWQ0ZqRTJ1cG83VjNKeTZhY19OclNMQ19NV3ZUSjZZQThycmFiVE1IR180dThlWjUwTGxlWHZscGVwRVotX3p0cjBxNmVmS012NGp2VjFMREZLUzhQSVJINl9WS2N2RVBNbk5pSGkxN1lnWlE5MVFNOVo1bF9CZWdTVHZXWFhGT0F5RTZQU3FuWi1GSURfOWw2YmpuODJDby15TGpiTjJZZFZ0QlVaRlROc3c?oc=5) |
+| Democratic troop pay bill blocked in House amid shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQeVIycEJVMUhGRVZTa1JnX1lCVGFZR2lUQk8yRVVuelBxWXN0ZTljTVpkOEFPcTdBT2ZXZ25xWlBuam9QVlNQdEJoNTdRRmVrZ2hCX3djYkRRNEFKZDc5RVlZVHljcmVjVm1lNzhyMmUyVVg2R0F0QmxzUUcwbTF3dUozd256eXEyM1Ixczh0d3EtRU1fUFFqek9lV3JkV28?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
