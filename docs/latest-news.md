@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 09:48:46（北京时间）**
+🕒 更新时间：**2025年10月10日 09:57:12（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Democrats float immediately paying feds working through shutdown as Congress again rejects bill to reopen government - Government Executive | [阅读全文](https://news.google.com/rss/articles/CBMi9gFBVV95cUxQQlYyQmZZbzZXMDVhNkl5c21vRTh4S01yYkVma3FCeThhU1lfSXp6UHVJSXlBbEJMb0x5dVBlUC1TalA3UmxZSUdLeUhRMVNGYUlCV0JzUEZjV2JtdXo0NXUxWG5DYnpOYW5kbDhHY2lybGlFWjlwU296MDdTZHh6V04zbldUNHBCekI5WlRkZUhUSmZDQ0pPM1E1NmtsS2NnOWF0WTFQS2NRUXZTZkdmLWhXRms3N0JVaVM2eXo2MjhHM0E0ejVkOGhzMGUwNXh0cF92M2dpMkNwbUdQUkZaZjZ3cW9HUjc0QWt5WTVCQ1l6c3FCQ1E?oc=5) |
 | RFK Jr pushes fringe claim linking autism to circumcision - France 24 | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNNUtVSnhOc3l4VWJvd0RjMS1CQXppeDNmb0RNejBQakZrOXlhT3IwVFdmSndUcEdsREN3YTZWcWJJVVQ2c2VpMFlic0J0ZDdYTXR4c3ZONjZoYm5saWVtMm1xX0xTZzVDUkVhbnVUeDhDNnJwNlhuc0ZmbS02NUFWeUNqdUxtdy1mM3JpUERGMkw4MnJFaldGTkJwS1E2S3BVY3RteDdmUQ?oc=5) |
 | Texas High Court Halts Execution of Robert Roberson in Shaken Baby Case - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFA1NExyNmE3UGtSekVKdUotOGd2a1VUOEpBUE9jNG9WZm5kczZRM0tEdU54dHJKeThsOFQyTWY4LV82aGNxcWdEcW5aTWZmT1I5R1FhWVZTQ21KM1cxMEd3b3lIOW03Nkc1akNBWjJTaURieE5HUTA3QnVR?oc=5) |
+| Spanberger and Earle-Sears tussle over violent political rhetoric in only debate - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPSm1lVXZVRjlpTE9Yd2xlYmh1aHZWaThzNF9SZkxneTBtR3NDTXppRENnYXg1aHFiUWpSak1RUXJpclBYNk15WW1vbjc3VGxWdFJobkFuV1V5blhyYjMyTURYSlpFaTVzOHNaVWRKcW5YWmMxazJ3M1FyQ211Nmhaa2tNeDVab2c4U3I3OVNBdlktb1NGQnNzUE01bzE4b0hyaDJocVByc0VJQQ?oc=5) |
 | Katie Porter’s bid for governor is getting noticed – but not how she wants - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQZUlwNVU3YUgzT1cxX0xaQlctclNVYnc4ZDB6MG9iSUxZbjB1VFI4Z1I2c2lFeV9xYkF1WEVyRGZrN1dEMFZqaU5iTzNNcnJDaDhZRF91NHBSLWVGUTA3SWdTWEhEWThBbDhiMm9UYlYydks2OFV4cGFWMGtTY1hoTzlMcmU2M29wOENEZVJwQTdpeEJuUjVsYUtXaDQ2dw?oc=5) |
-| Trump administration buying Chicago property for more ICE operations, Noem says - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNSGtKM1prQnZmSS1uZ0VrQVdzRnNMV01XZVhIUzd0SmI0d1Fsa2J5aHhmWG9WMlNTWC01aV81dGc0cXAxLTEzTmlObHFVUDdKSTVTQzJ3R2U3MF93R21lYnpsTDlwa2ljRmZjNWxLUFVMbFZSakFLMzhzNHJFWnNqaW1HMWNWUGFsUUlIZDdFSWVlYWxlQ09TQWdsemw?oc=5) |
-| Boston nor'easter weather forecast calls for strong wind gusts, heavy rain for part of holiday weekend - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1NUHhWUUE3RnAyTEwySGVleFZzU2ZCZVV0dWlnUkRGMVRFSWRFQ2hBZkZtNkNIQzV5UUpCSFJFS2hKTVcxR0UwSDF3aVFtaHdTTjlJTFp1UGY0M21zcnR1LWdsTnpCLTExRnIyNlhYZmVoeWN5YjJpNXQxZEZSa2s?oc=5) |
+| Dominion, the voting tech company at the center of false 2020 claims, is sold - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOeXBLajFWRW1vYXNOdktPZERLb1JldmEtRExxNXdicUxLLUlaby1XRlJqUTFHRXVoRU1uNVF1WkNqNUYxNUhlUEZsRVRHcWVReWRtc1hiQkl1RUh5NG9jbmptNGlBeExiNlRValdUYlJ5UGk0elByUENRQWZERlVWLUZyUTVSd0hhUXFmMU03dw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
