@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 09:00:16（北京时间）**
+🕒 更新时间：**2025年10月10日 09:09:26（北京时间）**
 
 ---
 
@@ -17,18 +17,18 @@
 | Man re-arrested at airport over Manchester synagogue attack | [阅读全文](https://www.bbc.com/news/articles/cz69q1p6376o?at_medium=RSS&at_campaign=rss) |
 | Ex-PM Sunak joins Microsoft and AI firm as paid advisor | [阅读全文](https://www.bbc.com/news/articles/clyqe22pz81o?at_medium=RSS&at_campaign=rss) |
 | Met officers face fast-track hearings after Panorama investigation | [阅读全文](https://www.bbc.com/news/articles/c1dqvp1exxxo?at_medium=RSS&at_campaign=rss) |
-| Naked mole rats' DNA could hold key to long life | [阅读全文](https://www.bbc.com/news/articles/cz7rxy21lxwo?at_medium=RSS&at_campaign=rss) |
+| How 20 minutes of nature can boost your health | [阅读全文](https://www.bbc.com/news/articles/cvg0yvdjgn5o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Letitia James, NY attorney general and Trump foe, indicted for mortgage fraud - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNYmpVZkNnSmlLMUhOaEFIdFAyRjR5LThra3hCcGE3YXhIb0xJWm1RSUw3dlZ0MEFKMy1pNWpnazYyNjVNWlUyWl9jQzBhTkVHSE43TzhTbmhOTGlaZGdxcnhNaXNDTGxPeFVSMlNPMF9ZandnZkNoRHREYkt2NFQ4bDRLYV9RSkVya2tJeWRxSVd6RmM?oc=5) |
-| Live updates: Israel approves Trump’s plan for Gaza ceasefire and hostage release - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5RUENINEF0TGxRbGtNeTFUclZfTm0xUTc1UlFlUmRFTGlraENZd2s2Y3U0enRDUG0yNjJOdHBWRFdwR01ndEhWc2pxM0lYSG8wVS10dA?oc=5) |
-| Federal judge partially grants state and city bid to block Trump administration National Guard deployment - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxPRmVPUDMtTmxfZy1tYmE2VjZfNVZyU0NkWW84elVuX0JwcUZqaGJhWWE3b1gwbkVpMm5fUXRyblcxVXZxTjBscVd5Q3hEN1JxWjdBSWVCSUU5aFpEUFZNVU1pd3NjclZwR21xWUI5Wm1ab1c2VXBvdzRGbm1ueU9nU1pWQXJJUnJyN2VNOXFzY3FzYWg4N3AwWGx6QlVYbEVVaGlHRUhzR1haX284QjhGTTd2YkdNWV92LTNkUVlaZUZ1b1F2?oc=5) |
+| Live updates: Israel and Hamas sign first phase of Gaza ceasefire deal that would release hostages - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNZ0thZzJMSDRQMUtNRXUzMVJvLXQ3UVRnVVYwdUNnRXZ4ek5JMzlBVjB1RV9QbkFPc2Vsb0Y4cDNCT2pxV3ctcEtQdXRrWGJVM2VMZXl3S2F5LUZSOHRkQjN3dkVncGtZWjlUV1diaEJYd1c0SmJnVTVjYjg3clhEVWswZ1gzNmJZMS0tbTZZTQ?oc=5) |
+| Judge temporarily blocks National Guard deployment in Illinois amid Chicago, Portland hearings - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQMEpyOHNjMVJjUnZRYnpaaFp1Mm56U3hldlRfZEVmQmVTZ0RUcWt5RUZMVzgwc2g2OUN2V2pYLS1xcGdlbXdoc3otRFFQTm9kZkxzdkN5SUNIbWtlRUljeW5IV0FzNlhKZ2RMSzF2MUZsV05fMUpNMDQwaTV0d0pjbndtZmkycFdUdUdwZjh0LV9WLVNjc0FXLXNGNVRFSG5U0gGmAUFVX3lxTE5jc3JUSFRreHpGbUR4djVXb3FaUU53NE5DYmVpUHRMdi0yYTlDQnQtVi0tOF9pSWIyM0xQdkxKUkJmVTZWcEFaVWtfLWtuTUQxXzBROW5rZXRTX3p6aUx2dmgtMFpHeE80TGlEc2lvM3diRVBHeE44cHlROU1TbkRjTXo1NnZwVVZuSGhlS2pjOHhGXzgwTkhHMUdLek5Zd0lVQnNQUHc?oc=5) |
 | Spanberger and Earle-Sears tussle over violent political rhetoric in only debate - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPSm1lVXZVRjlpTE9Yd2xlYmh1aHZWaThzNF9SZkxneTBtR3NDTXppRENnYXg1aHFiUWpSak1RUXJpclBYNk15WW1vbjc3VGxWdFJobkFuV1V5blhyYjMyTURYSlpFaTVzOHNaVWRKcW5YWmMxazJ3M1FyQ211Nmhaa2tNeDVab2c4U3I3OVNBdlktb1NGQnNzUE01bzE4b0hyaDJocVByc0VJQQ?oc=5) |
-| Appeals court judges appear skeptical of Oregon judge’s order blocking troops in Portland - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxNa09nNmxVR0RTd2FmTjFudENvYUEtbEMtaTU0ajhWUDJvWnVEZzVEOHg2QVVvYWVGSDRHbmlWMWNqaU9oN2xPQlFfdFJ4dmhDNkFoT2h3RGY4MFhPQWRJQVJDdTFXdEVTV3pzdWJ4ZVc3bWxGT3M3Nl9FWEljWjFRaVFIcTFIb1NFOVhrQ2NlVlFKeXhhNFJ1QjJuSDA0N01iTDBZdWlreFJkTDVhM3ZBUnRKSjd2TkZfREdmMGZmSnEzcXhLN0hZeUhobjAtZERxRnZ30gHnAUFVX3lxTE55MjhiQWRsRk1TcnA5akpLU2lvYlZVeHZJQzhCS0RZRGNiMnJyQ0djSExPN0FwV3lYamJlY2F3aW5Vdk5qV3BiME4tVGZDcndpdHVTbmtPTmpvQWs1MEVLYklyX3lEV3FvcU9FcXNTN2pXUG1jTzVyUjJlRjlvUmlLalhvSkJqbzZ5SUw1d3BwQjhkVGxoSDNJQ3ZHUWdFU1FVLWZPTlVQZndCWkVKS3lIWUlWYm1fdk9YZHpRX0s5TGxiMkJaNVVLS2tpSFMyLTlYT3pKUmlGRmdZd3V4ekY2OXhfX2xscw?oc=5) |
 | Norway braces for Trump’s reaction if he does not win Nobel peace prize - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNTXRGOGlHNXUzdXhDSnhESkEyclRYVmZJVEJEaXFVeGl1eUppdmlyam5LdzJIRjBCQmVJc3A3bFhwYUNnZFhvaHcwYmJRQWhVQzVPTWJWNW1YWldRRXhDemt1d1Z1NnBhTDJHbk1xRnoyZ01hV1VVWnNpc0I5eFJ2S1ByZVNhcVVRZk41QjZSS2tsZXFJbFEtS0hJWEkxNFZMblczNjU4ektramNOSEtIX1lneWhUd1k?oc=5) |
+| Democrats float immediately paying feds working through shutdown as Congress again rejects bill to reopen government - Government Executive | [阅读全文](https://news.google.com/rss/articles/CBMi9gFBVV95cUxQQlYyQmZZbzZXMDVhNkl5c21vRTh4S01yYkVma3FCeThhU1lfSXp6UHVJSXlBbEJMb0x5dVBlUC1TalA3UmxZSUdLeUhRMVNGYUlCV0JzUEZjV2JtdXo0NXUxWG5DYnpOYW5kbDhHY2lybGlFWjlwU296MDdTZHh6V04zbldUNHBCekI5WlRkZUhUSmZDQ0pPM1E1NmtsS2NnOWF0WTFQS2NRUXZTZkdmLWhXRms3N0JVaVM2eXo2MjhHM0E0ejVkOGhzMGUwNXh0cF92M2dpMkNwbUdQUkZaZjZ3cW9HUjc0QWt5WTVCQ1l6c3FCQ1E?oc=5) |
 | Texas High Court Halts Execution of Robert Roberson in Shaken Baby Case - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFA1NExyNmE3UGtSekVKdUotOGd2a1VUOEpBUE9jNG9WZm5kczZRM0tEdU54dHJKeThsOFQyTWY4LV82aGNxcWdEcW5aTWZmT1I5R1FhWVZTQ21KM1cxMEd3b3lIOW03Nkc1akNBWjJTaURieE5HUTA3QnVR?oc=5) |
 | Man charged with starting Palisades fire to remain jailed, federal magistrate says - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQSEJWZ0ZCQkdrRl8wZHg1N2tXZnp5MmRpd1k0N3dDX1RfQ2tDbVliWmF2YU83UHF2UXF2UjByd2FXak5MYmQxSnR3bjJWaDhrc3B2UEtXOHNob05CczZVVTU5UzRvcEVKNHR6bEFBQmpaZFJUX2JqNU1RWVJnWFhwVQ?oc=5) |
 | Mike Johnson sticks to no-show shutdown strategy as resistance mounts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQZ0ozM2lFUzV4SFp6RW9tbHlaZEh1T0xISnIzNUpwcjh6RWEzWkxDOEFZbzNQTVZLNFRWOVcxbHZjbkNYYXR6Y0RYUzJFek1DSTl4d2xYaHByY1doUDA3RTNVUzNEY3RhM29hNlBBcDUtVU12RzZ1RWs4U09iaFliaEdvZXpidw?oc=5) |
