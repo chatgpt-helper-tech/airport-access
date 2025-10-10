@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 00:33:48（北京时间）**
+🕒 更新时间：**2025年10月11日 00:41:02（北京时间）**
 
 ---
 
@@ -16,22 +16,22 @@
 | Tech billionaires seem to be doom prepping. Should we all be worried? | [阅读全文](https://www.bbc.com/news/articles/cly17834524o?at_medium=RSS&at_campaign=rss) |
 | Green turtle bounces back from brink in conservation 'win' | [阅读全文](https://www.bbc.com/news/articles/cg426qqqqnro?at_medium=RSS&at_campaign=rss) |
 | Melania Trump says Putin responded to her pleas about Ukrainian children | [阅读全文](https://www.bbc.com/news/articles/cj075gq5n81o?at_medium=RSS&at_campaign=rss) |
-| Man guilty of threatening to kill Nigel Farage | [阅读全文](https://www.bbc.com/news/articles/cdx216n1529o?at_medium=RSS&at_campaign=rss) |
 | Trump threatens to pull out of planned Xi meeting | [阅读全文](https://www.bbc.com/news/articles/cn4wkd7729po?at_medium=RSS&at_campaign=rss) |
+| MTV to axe its music TV channels in the UK | [阅读全文](https://www.bbc.com/news/articles/cdr612yz8p0o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump threatens 'massive' tariff hike on China over rare earths dispute - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9OeG1meDBrNkRYNFRyWklEYVczeGFGSTRIUjVQLV9UOGludUdzSkZLbkY4NTl0elhGbWRVcnBLSW9vdWQ3TEFVU2hVTkg2a2dMbXd2YWFTZWlzY1p6U0cxT2tBbmVmMHJjYm53S2lrX1BINXFCRV930gF8QVVfeXFMTlRuNElRNXlxcEUtU2RBS3ZSODkxZ1ZJU2JQSXU2YkE0V3RkX3VUTnFlSFhTbGxocGl2ZlRuRGxyT2d6Ymd5RGF1SkJXYndtNndBREVUcXZzdXRqNXczMDhyWUxBWXlVMW9qNXdZLWJKMV9EdmpFenphU1hGUg?oc=5) |
-| Trump promised not to let Israel break Gaza ceasefire to get deal - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9qZ196bkhqYjdhbkpPeU93WVpOOG0xeHNQeGQyVWlidk83WUxRRndKNGZObWk2YTdVTFBnV3pfbDBNWEliNWQwOFpmUEdRcFZYUnV3RllGdVZBUDRaNmFRTkozcFNMTmVPY19sQU05WE45YVRYbjNCVjZMNVlPSVE?oc=5) |
-| White House says Nobel Committee puts 'politics over peace' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOX1hpTGRxdGhsRWZaRVRnNXg3LUM2VGI0SlRhM0tMTnZ6YlN1aXpiWFp2bVdfX2VNTjVuM0lyVVpWTkRReDBGc2ZsNVhMbEktb3RyOFctbmwtek5xbnlNbWlGZHhZTzFaWU1Fa3RwS3BPMmgyRmFTVmRzME1yaE1sSjI5b2lvT1dlQlhyQVRDQVpuUVJsTXBMTHRCNWQzNWhjTHBqajljNWlhTGVqenRV?oc=5) |
-| At least 19 unaccounted for following explosion at Tennessee explosives manufacturer - News Channel 5 Nashville | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOZ0ViNUdZaVZJdEVkUkNDTlFvVHhLWWIwUVZiQ2R1WjhXMDN3UG4zSGQtOS1pTDBkbGdkYUtOZXFvendlMnltR2dQSFRWVmVhMmtydkdUbUFKT01XRC01QmVNX0YyQjRKaDZyTkNoVWVvX0J5NDhoZjMxenowM0kwdjFYZlNmSzVEcDEwOVl3SGxCSVlTWDhwdTFxbXNKSFBQdFJWY1Vvdw?oc=5) |
+| Trump threatens ‘massive’ China tariffs as Beijing restricts rare-earth exports - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFByYkJsU09qWjF4QThza2hVbEVob2F5eEpWTnpOdnR6VlFPZG5UU0ZTNXlOdFAwSk5SaHhDa2daOG1TREJlcjhBbVZiUVdZQTFTaURzSkVhM1FnUHRfNUtlb0ItTkg1MThCamlpSkdVQVdSSG1lbUE?oc=5) |
+| Multiple people dead in 'devastating blast' at explosives manufacturer in Tennessee: Sheriff - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQTW04ejdtMFFTZTRDUmNlRXpYekFuZDF3VDFtWEVtZENJV2RuZTdUdmx5a3NHUkp3cl9JTUFVTUtGM3RwRWlyMllUWG5CeENwdUVjdWpfSzdaN0tfMWYycUQ1VU14Q3pPVm1ZdUx3UW5fOE1GcGY5Rl9kSjgzWkxxU0loR21EckI2bVptUVFSQXp1T0I4SVl3b2FR?oc=5) |
+| Venezuelan opposition leader dedicates Nobel Prize to Trump for ‘decisive support’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNcXdadzBOSW1zUEE1VkgyWjRETlYwT3ZuZl9rdzNrVkJWLXRIRzVCN29kaFBJcjRoQUYwYmdFVG5XMXZJb0NfcU1EV2Nod2tRYks0dUQ2bW1NbjZ6cDhFZENBY1NzVmpQb1I2WV8wV0tkcmg3NU1LbTgxRnJWZFdtVldlM1VOWEVWZXQwS0h1ZFVFdkllNUpQUWYxZ2VRd2Iw?oc=5) |
+| Who are the 48 hostages still being held in Gaza? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBXUlo1Y21OLXhxeUstcEYxbzdiTElabU9NeUNxUmR2WlRvcjFqeUNnekQ4QlE4QTVNX1lWeFlvYVlNTGhhOUZKeERMN0g2MmR2V3d1NkhzalEyd9IBX0FVX3lxTFBQTkx6NEZMU1VBd2pjS2VRQ2ZnaGFJejhmd1NwRVJkQlZhZzJ5dld5TGMtM1lGUmNOMnZUQ0IzSFIxZS1rZTNSVWk5RWVfU0RaSDlDWWdFa2xJS1UyZ1Vr?oc=5) |
 | Hegseth announces Qatar will build air force facility at U.S. base in Idaho - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOZENZVjBZaEJ6WEpURjdHS0JCYjJVRjZiLUczWmdlc3JrOFkxa1NFZHM4bWpBWmo5aXdhQnUzVC1JXzItQVRHVy03QmlKbTNVeDJpdS1WTXUzeVhYdDVtUVdNSFlZS3lYVjN5c0FBMDgteld2d19zckIyTlAzTWRCSWlR0gGHAUFVX3lxTE05T0d6ZXFTSUpPQ2hyZWNQcVppMkU1cTg3NnVFb0Y4QmpwbjFhY2tBSjdqRk9DcXlaYzJQZ1dnaTB3SG1EbjNfRmVlbGRJdDVTSmQ1TFFvQlRHWTZ4Ul9qeG9nZlFsMXE0MXBlVVRhcVMyby1vNmw4b0VzdjBRS3ZxSFV2eXl6QQ?oc=5) |
-| Where has Trump suggested sending troops? In cities run by Democratic mayors - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQNTAydzNvVERuQ2tKbTAtd3lURVZSMjVWQWprTlFsWnQtY3FGTUxEZ0JrbVRxUERxZWZQejhVQ25PRnVVZUY0b1lCUnhCSnVuTFdKdEQ3Sm9sSzY0X0tPak02UHdLb0xTSEtOREt5WUNtSnZ5WkJ5ZVJodW1ObEpqWTVpSzE5dE9rN1VuNERaa05vdzQ?oc=5) |
+| Inside tech billionaire Peter Thiel’s off-the-record lectures about the antichrist - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQaEUwTzQxT1FfMnc5TkRNam9WazNLOUJXWTRkRVRiZWZTNDVnNi1VLWNLZlY3VGMyOGgwckJyVnhtaW1USlNUNHgtc3RvXzhFT29ZNjZWUU9TSG5pYWV4MjdIeUxGMkw3QldyWW1fNE1CNC1YMFRfLUk5T1RWNGZuc2I0MGxoZw?oc=5) |
 | How Trump’s message to ‘Pam’ got exactly the results he wanted - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxObzl6RlVJUkJ1NVJldlhFaVBES1llMEFLVVFnU0gxaG5Mb052U3JHVk9PSTNFUlZWMktCN0JGVU4wd2dtZGV4RXNseHFib2tYME1tRXQzM3hFTExtb1k3ak5heEVUVXBoOEMtd0tGMFR4MUx1N2ZhYWN4Si1fNmk5OC02RjZlTndCRlpWSQ?oc=5) |
+| M.I.T. Rejects a White House Offer for Special Funding Treatment - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE42TGtCSFBUNHlUd3BKZVNCcVE2WWZlTVp2cGNXYW1YdFpCRmR5TklGVXRmODF5UmRxRWJ0cGpQSWpuTnp5Vk9jQWwwR2s0V1JjT2dDVGpWSGZFQTEzVndWRjc1M3pab25WUThOMmRoNlZqNVhMN0p0cU5xTC1HbXM?oc=5) |
 | What Courts Have Said in Challenges to Trump’s National Guard Deployments - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOTXA3MWRWWUhaRmdmNElXUHVyemxRbjh0eWFoSlVNcGhWS1VEbTdZZlpaVG5EVlZxLXJJd29wb0RMQmxqaXY5MzMxT25pc1hfTkJTQVE2a2lieGJCaGpCdUpLOHNtaHpsVWhyM2g4RmVTVFJQck90T0ozOFYtQnozR0xRMG8?oc=5) |
-| MIT president says she 'cannot support' proposal to adopt Trump priorities for funding benefits - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOY09lTHdoa2Z2Sl9PU2NZQXZxamtRSlQwZzJrSmJCNXFIcWtmTHpnbllJS1F1cmh2dUpXRXJsRUt0RlRjWVdjajIxYUdpangtLWdpSjdXQzVLZlc0OEhKS2ppcVgxM3hvalo3cWdsd2pBdTMtMFppWXZ1QWlZcDBOMzBQYVlHQ2ItMkZJdTV4TTc4OXBuUExmWFln?oc=5) |
 | Jared Kushner returns to forefront of Trump’s Middle East diplomacy with Gaza ceasefire deal - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE45amN6OFJjVEZXaUNGRkUtUU40TmZBSTRoeFp3U2ROcGI1Z0J6dWxkSjB1Tl8yMTQ5OFJyRDV5T1ppT2JmY2NIUFNPODlmVFdUV2lNUlJrTW9oa2VCZ2JDbm56WFJrNFNVdnpCQ3RZcVA4ME1xb0o1dg?oc=5) |
 
 ---
