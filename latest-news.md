@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 08:40:30（北京时间）**
+🕒 更新时间：**2025年10月10日 08:48:45（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | RFK Jr pushes fringe claim linking autism to circumcision - France 24 | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNNUtVSnhOc3l4VWJvd0RjMS1CQXppeDNmb0RNejBQakZrOXlhT3IwVFdmSndUcEdsREN3YTZWcWJJVVQ2c2VpMFlic0J0ZDdYTXR4c3ZONjZoYm5saWVtMm1xX0xTZzVDUkVhbnVUeDhDNnJwNlhuc0ZmbS02NUFWeUNqdUxtdy1mM3JpUERGMkw4MnJFaldGTkJwS1E2S3BVY3RteDdmUQ?oc=5) |
 | Texas High Court Halts Execution of Robert Roberson in Shaken Baby Case - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFA1NExyNmE3UGtSekVKdUotOGd2a1VUOEpBUE9jNG9WZm5kczZRM0tEdU54dHJKeThsOFQyTWY4LV82aGNxcWdEcW5aTWZmT1I5R1FhWVZTQ21KM1cxMEd3b3lIOW03Nkc1akNBWjJTaURieE5HUTA3QnVR?oc=5) |
 | Man charged with starting Palisades fire to remain jailed, federal magistrate says - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQSEJWZ0ZCQkdrRl8wZHg1N2tXZnp5MmRpd1k0N3dDX1RfQ2tDbVliWmF2YU83UHF2UXF2UjByd2FXak5MYmQxSnR3bjJWaDhrc3B2UEtXOHNob05CczZVVTU5UzRvcEVKNHR6bEFBQmpaZFJUX2JqNU1RWVJnWFhwVQ?oc=5) |
-| Boston nor'easter weather forecast calls for strong wind gusts, heavy rain for part of holiday weekend - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1NUHhWUUE3RnAyTEwySGVleFZzU2ZCZVV0dWlnUkRGMVRFSWRFQ2hBZkZtNkNIQzV5UUpCSFJFS2hKTVcxR0UwSDF3aVFtaHdTTjlJTFp1UGY0M21zcnR1LWdsTnpCLTExRnIyNlhYZmVoeWN5YjJpNXQxZEZSa2s?oc=5) |
 | Mike Johnson sticks to no-show shutdown strategy as resistance mounts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQZ0ozM2lFUzV4SFp6RW9tbHlaZEh1T0xISnIzNUpwcjh6RWEzWkxDOEFZbzNQTVZLNFRWOVcxbHZjbkNYYXR6Y0RYUzJFek1DSTl4d2xYaHByY1doUDA3RTNVUzNEY3RhM29hNlBBcDUtVU12RzZ1RWs4U09iaFliaEdvZXpidw?oc=5) |
+| Katie Porter’s bid for governor is getting noticed – but not how she wants - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQZUlwNVU3YUgzT1cxX0xaQlctclNVYnc4ZDB6MG9iSUxZbjB1VFI4Z1I2c2lFeV9xYkF1WEVyRGZrN1dEMFZqaU5iTzNNcnJDaDhZRF91NHBSLWVGUTA3SWdTWEhEWThBbDhiMm9UYlYydks2OFV4cGFWMGtTY1hoTzlMcmU2M29wOENEZVJwQTdpeEJuUjVsYUtXaDQ2dw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
