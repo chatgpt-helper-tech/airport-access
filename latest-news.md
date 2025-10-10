@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 02:40:22（北京时间）**
+🕒 更新时间：**2025年10月11日 02:49:27（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Massive blast at military explosives plant in Tennessee leaves multiple people dead, several ‘unaccounted for’ - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFBKdklZV19kd2dBWGY1aTJRREZtemJqZW5ST0VhM01TT25feUpyN0pUdFZEdzM2Q1lvazZQWG9hWEw2cUY0VzJnN09QWkp3YV96WXRSaFZnUU9KR3ZFZklnRGYtUG5MYjM1QnM2Z05tb3ZqU3hTSWVB?oc=5) |
 | Capitol agenda: No deal as the shutdown marches toward Week Three - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxOTWJQanpqWUhHV2tDTlRkR1dFakRtei1XbU5KanFyeUprMWkxY0pmVW1HUnRRRlowN2RPUFZrVFRNSVlsb1owTWdNcWcxUld3cGczVWNFRWxDTlBmQklkRHpwXzViTEpwZW9Ib0dhYVBOSnB6d2pKbF9SazFfdGRnbHJ2V1FhNFQzSTV3bDdwa3FKYm05N0EzQzRYZzMyU25NOVE3QWk5MGg3WWxCY3ZqcDIwZW1jY3phMzZ0XzJsTFREU2l4dUVJYw?oc=5) |
 | Melania Trump says she and Putin communicating about children affected by war - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOZEhNVUY5MWJ4VHBDUl9rYlpnNUh3Nk92OTV4bDZ6dEtxeklLbEs2a1YxbDdCcWlmOVVIQi1OZzZmOUxpUGplTHRMRklReVVwMmNfbUVMazA0eGpiVDF1RjJOenFqaHNXakVlaXNBRlp1ZzlOSlFwVnpEQTZVN0tFQXhOUThqcFJNTVFTRllkWlhnamVLVTVEaHdqTDN3T0xIYmtocWtvdXZmZ9IBrwFBVV95cUxPU21sRmttdDFqVkJKQlItYXFfaWpYRzB3bG9YNHI0N2NwdlRHbDVUaW9tb0o1MWxfbkwwSVdrcmw1ZFJBTmJuQm01LUJtOGtzVDlUVENHSFBTM1RtaG5CcXJpdE12R0pYRHlidzFkNEV3X2dBaHNreTE0bTJRcFFFaW9VcVJidE9yNjEwZWJlTFplTDVTQ0JVY0EwVHotbW96UERkUUIzZ1YxWnRvdEk4?oc=5) |
-| Stock futures are little changed after S&P 500, Nasdaq pullback from record highs: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFAtclc4S0oxd25QeGpmTXJ3MmlZT0ExRGJsUV9HYTNta01fc29MZkliZUdPSjJTVGJOMHZYQlVsR05ma3l5bzdYbDk3RVh4OVhMcDFjd2xFeGI4RVdMM0h1bElzNEJ6M3J3U0VISEVZTWFqUlVZanVj?oc=5) |
+| Trump suggests calling off Xi meeting after blasting China for restricting rare earths exports - AP News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE14cDFwcENqWVZjSXpxTDVJZU1vNndOY1lLSVIydUJNb2h0VEU2Rmg0WlQ2c1RfN2d2UV83aHhiYWlKeVprUTJXbUlEOUhLOW9CN0dEUzYyLU5Oc2NnMUdhbWhwM3NuWDY5MU1QeDFHT1VmOHE1SzF1NFlGZnNTWTQ?oc=5) |
 | Federal Judge Temporarily Blocks Trump’s National Guard Deployment in Chicago Area - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQYnRrSHNUR1p2RVpSb2JUY3NCTmNPQnQ2V084TVkwVmNRdjFCWW5Zd2dvV1V0QmpDUEVOR2J2QmVnZGZJa1Atck1wVWhUVWtyY2lYTEo0QUtEMlBYdDJkVE85RXNLUFNDWjN1cnJIOHdEdng2bUZYUFpuTkNDbUwwOGFEMEhUOUE?oc=5) |
-| The insidious legal strategy Trump and Stephen Miller are using against their enemies - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPUUhVeF9paW5ZZVdYekF2N0UwQnVnTERnVENUazBlSzhSbGh2ZjA4UFJ3cHI3TF9BUmhuUFVkSnBhY2loSmNzTkJkUjRlRk12clVjUTJjUGVxb2RQUkJxS1RPbmtOYzFnVFJWMHJsR1l2SWZfVTdILUZwX2ZYY2FVcUctWVA2TDI2UmRtZWxQR1NNSWRXcE5ULVNWRmVESlplalljVDdQdHZWUlV3?oc=5) |
 | MIT is first school to reject Trump administration's agenda in exchange for funding benefits - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNQzVTeW5sc0dQbjVpa2F6d3FORnJZTnVpVFNZdTYxREdnaWJXeko5OUN5Z1lLNjM2TGtIeWVFNHNDOUtQeEhfNUlDeU5tNWFjMWthSHBUOG91MGlUSHFvTi01X2MzVW41U2NCWFNZTTloR2FMc1V3QTlLcjhBSUxaRU95ejFfaUFtOWdYZHM5b2pheDhEMkHSAVZBVV95cUxNaXYtdXg1NldWNk9iUk5zdnp4NUFycjZ5WXBwWUdvcDVGN09WOWI2UnpVb0pocDktejIwUzFfbVd6ZkJlXzVUT0psM3Q5MG5CaGRwbzhIUQ?oc=5) |
+| Democratic troop pay bill blocked in House amid shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQeVIycEJVMUhGRVZTa1JnX1lCVGFZR2lUQk8yRVVuelBxWXN0ZTljTVpkOEFPcTdBT2ZXZ25xWlBuam9QVlNQdEJoNTdRRmVrZ2hCX3djYkRRNEFKZDc5RVlZVHljcmVjVm1lNzhyMmUyVVg2R0F0QmxzUUcwbTF3dUozd256eXEyM1Ixczh0d3EtRU1fUFFqek9lV3JkV28?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
