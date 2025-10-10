@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 23:10:01（北京时间）**
+🕒 更新时间：**2025年10月10日 23:16:57（北京时间）**
 
 ---
 
@@ -8,6 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Thousands line streets for Ricky Hatton's funeral | [阅读全文](https://www.bbc.com/news/articles/cvgq2z68n02o?at_medium=RSS&at_campaign=rss) |
 | Venezuelan opposition leader María Corina Machado wins Nobel Peace Prize | [阅读全文](https://www.bbc.com/news/articles/c70821201ego?at_medium=RSS&at_campaign=rss) |
 | Gregg Wallace claims BBC caused him 'distress and harassment' | [阅读全文](https://www.bbc.com/news/articles/cg7dlem0vdno?at_medium=RSS&at_campaign=rss) |
 | Tech billionaires seem to be doom prepping. Should we all be worried? | [阅读全文](https://www.bbc.com/news/articles/cly17834524o?at_medium=RSS&at_campaign=rss) |
@@ -17,7 +18,6 @@
 | William visibly moved as widow tells of husband's suicide | [阅读全文](https://www.bbc.com/news/articles/c2ej877g7w1o?at_medium=RSS&at_campaign=rss) |
 | MTV to axe its music TV channels in the UK | [阅读全文](https://www.bbc.com/news/articles/cdr612yz8p0o?at_medium=RSS&at_campaign=rss) |
 | Alleged McCann stalker 'stunned' vigil organiser | [阅读全文](https://www.bbc.com/news/articles/c4gknrxdpy3o?at_medium=RSS&at_campaign=rss) |
-| Life sentence for man who murdered Syrian refugee | [阅读全文](https://www.bbc.com/news/articles/cvgq23y4nz0o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -26,7 +26,7 @@
 | Live updates: Israel says ceasefire in effect as troops withdraw from parts of Gaza - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOVXVDV0haazNUMlpwSjhJaFBOeU1Mc0VqNW5hdlFIdFoyY24tWHpsZFNsLWRWLXdrQlVkNjc5ODVud0E3d0o5cWQ1clA0SnlHV002b1ltWndLMzBjcGFpcXZ1SWNtdkVZLXh2ZzQ3M05sYkdKekFlVWlqbENWMVhqWlFIQ2RrY1lVbWc?oc=5) |
 | Trump did not win 2025 Nobel Peace Prize - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNWDVZM3FhUnhmUGVrRUg3aHl2Z1pJbi1VaWYteUdicVl6Um9MVkFvbkI1SGplS0s3U2FhTDlDSFZTOXVQWEtDeUJOdGJmQmp3eE9TVGkyazF2SkRiaHZQbVluTTFwQ0d3LWpOYUFOZldxUXJWM014YXhuVnZnUHV3N19ZdjFZaExW?oc=5) |
 | Letitia James pursued Trump. Then she was indicted. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQb2xfeVJlSm03cVludzNlVUgwQ1g4UjFVRFdqY2lFS2pCaGlzbjNoWXVFRVRkb2RwcW1nNllJMDhJRGVjc3NTalNLeDFwSk4yNk1iZ0d3eWNGaE9EZW1CNzI2TFd5emNOdEJKWVMtcUNaZnhlWHMzNnlOR2lFZGdtU3k1V0YtbHRCdFZGQnp3?oc=5) |
-| Capitol agenda: No deal as the shutdown marches toward Week Three - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxOTWJQanpqWUhHV2tDTlRkR1dFakRtei1XbU5KanFyeUprMWkxY0pmVW1HUnRRRlowN2RPUFZrVFRNSVlsb1owTWdNcWcxUld3cGczVWNFRWxDTlBmQklkRHpwXzViTEpwZW9Ib0dhYVBOSnB6d2pKbF9SazFfdGRnbHJ2V1FhNFQzSTV3bDdwa3FKYm05N0EzQzRYZzMyU25NOVE3QWk5MGg3WWxCY3ZqcDIwZW1jY3phMzZ0XzJsTFREU2l4dUVJYw?oc=5) |
+| Government shutdown will extend into next week as Senate adjourns without breaking stalemate - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQczFxWmdwWXE4RXM2X3FuckZOQXpvbHNiZl9vazN5NlNpQXRPbXZWeG0wWnV4bUZuZ1ROZ01CeG9JbGJvTUxlU3RnbzBKOVRnbG1EMWVzRFI2akF4VEdPOVpmLUVxMXhLN1lxUG5rczFZVUhFSDRYWHBMLTg2S01RTVRqN0YyVi1ZenFPSmluLUE2Z9IBlwFBVV95cUxPb3UxRFJzWUV5SlRsRWs1eWFvZjFnckh6RFp0MEtqM2FhRk53RDNNMlNCaXVUR1BJeXd3b0VmdUpkUGJWSVBUWGlzSkRMendLSkFsZDRRWkotQ2pYNzJFQkYxRmoyR29tQ3VkYS0wVHRjSVlBQjJpT01aNzd0amp0Q1dqYWpNSlI1VzRnaHZYUWhQX1p2bWtj?oc=5) |
 | Jared Kushner returns to forefront of Trump’s Middle East diplomacy with Gaza ceasefire deal - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE45amN6OFJjVEZXaUNGRkUtUU40TmZBSTRoeFp3U2ROcGI1Z0J6dWxkSjB1Tl8yMTQ5OFJyRDV5T1ppT2JmY2NIUFNPODlmVFdUV2lNUlJrTW9oa2VCZ2JDbm56WFJrNFNVdnpCQ3RZcVA4ME1xb0o1dg?oc=5) |
 | Democrats float immediately paying feds working through shutdown as Congress again rejects bill to reopen government - Government Executive | [阅读全文](https://news.google.com/rss/articles/CBMi9gFBVV95cUxQQlYyQmZZbzZXMDVhNkl5c21vRTh4S01yYkVma3FCeThhU1lfSXp6UHVJSXlBbEJMb0x5dVBlUC1TalA3UmxZSUdLeUhRMVNGYUlCV0JzUEZjV2JtdXo0NXUxWG5DYnpOYW5kbDhHY2lybGlFWjlwU296MDdTZHh6V04zbldUNHBCekI5WlRkZUhUSmZDQ0pPM1E1NmtsS2NnOWF0WTFQS2NRUXZTZkdmLWhXRms3N0JVaVM2eXo2MjhHM0E0ejVkOGhzMGUwNXh0cF92M2dpMkNwbUdQUkZaZjZ3cW9HUjc0QWt5WTVCQ1l6c3FCQ1E?oc=5) |
 | Federal judge hits Trump administration credibility in siding with city and state against National Guard deployment - WBEZ Chicago | [阅读全文](https://news.google.com/rss/articles/CBMi5wFBVV95cUxPNDRoLXR2TWxXc01tVkpmTEZCV2ZMRXptT1ZZMG1wM2lfODV2c1FJOXR6LW4ybzRHdkVpOXR0VndRZzZ3Mk5pOTNubGJjR0xuWkJBcGtMY0pKbm1xUzVCV1NsaDUtd2ExSkF3QmxuWlU1R3p2cjMwbEJBMXBjMGpneUdneldqS3E1T0lNaUNud2c2NkdSbERnOTZ3cEZsSlBYNm1NSW9Nbkl6eF9qU1phMS04U25yUjhPdTd6Z1ZEZHBYS0x2bnl2NU9yOWozWGh1RFhIMlExR2E2b181RUZfWW1fS1dxZjQ?oc=5) |
