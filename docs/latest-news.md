@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 11:09:36（北京时间）**
+🕒 更新时间：**2025年10月10日 11:16:58（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | US kicks off controversial financial rescue plan for Argentina - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9fRVZWMlgzX0dmY0haY0l2VGpKVk15d1JQOURDeWtlYzdlTkdRNGlHSGhuQ0U4RDRCNGhmeFB1bWtNVkFpSm0zdmFFOTRqSTVBczFPOTBVbndkQdIBX0FVX3lxTE55dWlPcENaNUpYYVpzQmFQLTdCYXo3ZlVWNmpybk9XUVZlTTkyYU80QUhjRnZNX2c0QXFrc1NsZVZzemVtTGhrYW5oYmpZdzJjX0Q2VXg5ZFhxVnZvZWQw?oc=5) |
 | Robert Roberson: Texas court blocks execution of death row inmate in shaken baby case - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBVOGtqZmdiXzViZnRxZjdJYXdQRzVmbFpIVHRUUlhaWHhHOXRWdFA4Q2N0U0VXcHhuTWVoRjVZeEpodENFb2xtR3p0bV9VU3pTSzd2VlVEd1FaUdIBX0FVX3lxTE9NNThxaTJSYUxIalVHVk1pdm5NMUc3Qzg4Ml9zLUs5bWVrdVRSbnFpR0hjcWlsZ3M2Q3RTNVlTQzNhTXpfay1JeXhwMWt1OUVMaWIwbDNIU3N6MmkxX2o0?oc=5) |
 | Spanberger and Earle-Sears tussle over violent political rhetoric in only debate - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPSm1lVXZVRjlpTE9Yd2xlYmh1aHZWaThzNF9SZkxneTBtR3NDTXppRENnYXg1aHFiUWpSak1RUXJpclBYNk15WW1vbjc3VGxWdFJobkFuV1V5blhyYjMyTURYSlpFaTVzOHNaVWRKcW5YWmMxazJ3M1FyQ211Nmhaa2tNeDVab2c4U3I3OVNBdlktb1NGQnNzUE01bzE4b0hyaDJocVByc0VJQQ?oc=5) |
+| Katie Porter camp rallies allies to her defense - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOTnBGUWVUWFM0YXBvZGZwZHQ0WDFLZGsyN2ZZdVlHUC0yalBfU2xEZ1dBc0lUN3RUZlRtMkJOMWV0eXVtS1oyU29lZjZ5ZUlRaFdzdzNyUWxTSklMNWpDX1FhMWMyTXNGSmlrQ2RBa2libWdyUjZ6MW0wWmxWcVZRMnBwSDFnZVBxWGFVdVdLU2tBeG10R2liMm9wd2xtQQ?oc=5) |
 | Mike Johnson sticks to no-show shutdown strategy as resistance mounts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQZ0ozM2lFUzV4SFp6RW9tbHlaZEh1T0xISnIzNUpwcjh6RWEzWkxDOEFZbzNQTVZLNFRWOVcxbHZjbkNYYXR6Y0RYUzJFek1DSTl4d2xYaHByY1doUDA3RTNVUzNEY3RhM29hNlBBcDUtVU12RzZ1RWs4U09iaFliaEdvZXpidw?oc=5) |
-| Katie Porter’s bid for governor is getting noticed – but not how she wants - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQZUlwNVU3YUgzT1cxX0xaQlctclNVYnc4ZDB6MG9iSUxZbjB1VFI4Z1I2c2lFeV9xYkF1WEVyRGZrN1dEMFZqaU5iTzNNcnJDaDhZRF91NHBSLWVGUTA3SWdTWEhEWThBbDhiMm9UYlYydks2OFV4cGFWMGtTY1hoTzlMcmU2M29wOENEZVJwQTdpeEJuUjVsYUtXaDQ2dw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
