@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 21:01:33（北京时间）**
+🕒 更新时间：**2025年10月10日 21:08:39（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Trump boosts Argentina's Milei with $20 billion lifeline as US buys pesos - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxOaGVub3otX2FOdFVqeWU0ZU5nUmxXUHdHOEJabU1MQUZZMXZXUWE0dFY0WThIdXNORTd2dUhQazh1QWFrXzdaVkEwSkF4ZXYxZm44cVZPSk5helhjWldOdnY2OURyckMtRXI4WnZhQUllMF9iNlR6Ymw2ODV3bENlY3dLb3JXR1NRYUdMQ1U3UlFhZXFDMnNEOVhtb1JJQk9JMVdyTnZYdlNYV05RTjFFbzdWVHFKZ2FsbWdYWVRIRjd4RndDd3B3?oc=5) |
 | RFK Jr cites TiktTok as he rants to Trump about unproven Tylenol-autism link again - The Independent | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOck5PZFpkSmgtWUJFWVpjRHFDeFRrcWxFR1RLVEpKOUJ6UWFaV1U2X0t5c01tcFBQSm54eXlCVVJUY243Y2ZjX3RZTFdpWG9IRy1TRWFhVHdfc0NjaFdJTXJCWmJuTG1yM2ZuTzE1aE1DRU9ad2pZRjVHMkYzZE04MUY0dmhuS3VTSG54aDRzNlBjeFBDOHJHTDFKVlMyeU15TFNDM0dnZ203amw3?oc=5) |
 | Letitia James pursued Trump. Then she was indicted. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQb2xfeVJlSm03cVludzNlVUgwQ1g4UjFVRFdqY2lFS2pCaGlzbjNoWXVFRVRkb2RwcW1nNllJMDhJRGVjc3NTalNLeDFwSk4yNk1iZ0d3eWNGaE9EZW1CNzI2TFd5emNOdEJKWVMtcUNaZnhlWHMzNnlOR2lFZGdtU3k1V0YtbHRCdFZGQnp3?oc=5) |
+| Weiss makes first major CBS moves - https-//www.semafor.com | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPYVYwQ2NkSGZEaWtwTUhfazdtNXpwVGRsQjNIeXQ3ekQyRHVCUWFzNUFOdmtOVkg0clF0UG1GMllQeW9GZ3VQODlEbXBmRVV3Y3RzZHFJazhYNVdoY0hDb1hvQTcxMXFWWV9GcG4wcjVrNnFvc1dMbU0wWW1HcDJGR1Jn?oc=5) |
 | Judge blocks Trump from deploying troops in Illinois for now - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNbGpBRE4xNmtIamRTZUo3dnk5QS1MaHhmRHV5ZXE0QlBDVjU1WHY2Y2JUYlJ2bUtWN3I4LUNyRElSQzZOeENOMGlUa01iSTZJcGxNRjNFVzJtWjY1TC1sQWFyZExYVFo0TWxzaWR4d1BaTFBGck1oOFVpdHdFYUFGSkQyZGdUeDY5dTdlSld0Y3VtRkE5YTZZUGNzeDI?oc=5) |
 | FACT FOCUS: Trump paints a grim portrait of Portland. The story on the ground is much less extreme - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOSTBlaWMyeUN5dk8wUHZsWHV2OVhvZmpMTUVEVzFPbHB5V1laYUN3U01udEpHM1pmOVZaZWN4ekZmYThfcWpjUHRsdl9mQllSbGNtTzhWTDZIZnptckUyNlFDOHNveWpjM3ZycUtaODI3a01fZHEyVm15TGRBdEw4djRmVXVmWmZWOWlYRGNmaEJZajEzYkcwUG1SWkx3NTVkaGVtc1VvMjl3dXZv?oc=5) |
 | Indiana executes killer, rapist of 15-year-old girl, its third execution since resuming them last year - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQTF9JZ1d4THRDWllxX2ZEWDNrZ2R4a3cxTXFnQ0RMTlRCMHhabDRNaW1lWlJtZVV2MUpndGRudl9FbmFocHdZdlhMZDBsWDhZUnp3RUoxU19WU2g0b1BZbllnOXpMVVhaaThQSzNJX2szWVFFRU9vRXFRQkF4Ymp3MnZfd1FKMF9UUVVhRnhUTdIBlAFBVV95cUxOb2p3UURlM0JEYUdHMExscEJvcGNrRGU3YW5lNFhoTW5ORXo2MVVlUkdhZXB5OF9vT0ZsV2NDZ1NYLThGSEI5WUtWRVc4WlZtdTNJMURseXVVemhSQ1dFT1M0Q0hUYmNWbk90dzFJZWlUWnZHUndrT1gwOUNvdE83SklOeURlNUlIeXlXVU9aYVVXajNP?oc=5) |
 | Democratic bill to end US government shutdown falling short of passage in Senate, voting continues - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOaFZJM1M4VDJKTzFlVjRIYkdoN1FGQzFpMFlmNHZfNFVKbUtpMjBERVpmZ01FQ2FueVZPQ2dwUVgtMjkwcDYxRkk1VlQzUEh3aXU5amVXalBKUlI4TUhLU1phMkhkdVZ3MDI0ME9TaWlncnJQQzh4dmZiZ2lJeTdXRzZJcG1Fa0NPemJQdU5HcnZySURSMDc0dVcwcEpvd1VuQXdCdURjUDJUbkVESVdHQXpzaHd3OFI4RWVIak9IUng?oc=5) |
-| Transportation Secretary may fire absent air traffic controllers - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE85dUJOcWpHNVk2OTNjQVFPNExHX1gwN3RYT1IwYnJpdU5lVEZ5TnN1d0lscVZPTG05Z2gzX0wzZEdqNUFCaVRjeWFYUm1ELWVGZ19wbko2N092d9IBX0FVX3lxTFBobGFUTjF6TXl4a213RHN2bFhjdmlHazE4VVVQLVEwRVh0V0FuZkZsSXk0Q2dCWUlnOUg0WTRvLXhraWtMUnVUM3hjd2wwRkgzNWx6OGpiLUwtX3BKN0sw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
