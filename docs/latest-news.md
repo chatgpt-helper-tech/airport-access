@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 13:24:44（北京时间）**
+🕒 更新时间：**2025年10月10日 13:32:55（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Robert Roberson: Texas court blocks execution of death row inmate in shaken baby case - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBVOGtqZmdiXzViZnRxZjdJYXdQRzVmbFpIVHRUUlhaWHhHOXRWdFA4Q2N0U0VXcHhuTWVoRjVZeEpodENFb2xtR3p0bV9VU3pTSzd2VlVEd1FaUdIBX0FVX3lxTE9NNThxaTJSYUxIalVHVk1pdm5NMUc3Qzg4Ml9zLUs5bWVrdVRSbnFpR0hjcWlsZ3M2Q3RTNVlTQzNhTXpfay1JeXhwMWt1OUVMaWIwbDNIU3N6MmkxX2o0?oc=5) |
 | Abigail Spanberger and Winsome Earle-Sears clash over Jay Jones' violent texts in lone Virginia governor's debate - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxONWE0MmZzVWttQTBiaGdZaEt3VlFNc3BxSEo0OVlscXkyaUlXaERfSmJkTzllVzVzQk1JX3hEdVlmQmpPOTJueXhwWlNFTUtabVJPTEt6c0h6RjdIX1Q2QTZ6cEhnelp5WmJYdVhDNFdBRUtCWmVxUkdSaF9qTHJKcGRIaHlHLTROaTJUTUo0OGxIQWcyNnhINUVVM2tIMzlfc0NGQkhvUHpUeDhCbTUxRUs0M3p6N1HSAVZBVV95cUxQTThfX0JzX1RfSUlPU3NLMHh1TFRseWpQdG85ZXljOGlqLU92ZVU1STVaTzNhcHNGTzYyTDd2QWtucFROWXBuUTIzd1pNdUxqMEpvVGhRUQ?oc=5) |
 | Boston nor'easter weather forecast calls for strong wind gusts, heavy rain for part of holiday weekend - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1NUHhWUUE3RnAyTEwySGVleFZzU2ZCZVV0dWlnUkRGMVRFSWRFQ2hBZkZtNkNIQzV5UUpCSFJFS2hKTVcxR0UwSDF3aVFtaHdTTjlJTFp1UGY0M21zcnR1LWdsTnpCLTExRnIyNlhYZmVoeWN5YjJpNXQxZEZSa2s?oc=5) |
-| Katie Porter camp rallies allies to her defense - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOTnBGUWVUWFM0YXBvZGZwZHQ0WDFLZGsyN2ZZdVlHUC0yalBfU2xEZ1dBc0lUN3RUZlRtMkJOMWV0eXVtS1oyU29lZjZ5ZUlRaFdzdzNyUWxTSklMNWpDX1FhMWMyTXNGSmlrQ2RBa2libWdyUjZ6MW0wWmxWcVZRMnBwSDFnZVBxWGFVdVdLU2tBeG10R2liMm9wd2xtQQ?oc=5) |
+| US could fire air traffic controllers who fail to work as delays continue - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNdzlndGJDQTNjekYxbkF5Q21OQzRnWXdRRm5PN1FSNTBLRHNxZDZ0by02LWFYTDJCQk9VZGZSd0FqYTcyN2laT2tiVDJHOTRJbkNwRW9KMlkxVmgtbWhXQlVSaWJkRkxhQ01DTE9TSnpDNWNhZUppbE5iU2h3R3Z1OUVZVXB2SzBibjU5NFpXVUlMLW9BYWlXV3pzOEVjQjUzSmU4OXR6bV9LcU9VYmRwbm9LME92YWNkQTB0eFVjbF95ZHNmVUpnUw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
