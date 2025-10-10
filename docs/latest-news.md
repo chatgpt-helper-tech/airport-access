@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 22:16:49（北京时间）**
+🕒 更新时间：**2025年10月10日 22:25:10（北京时间）**
 
 ---
 
@@ -23,15 +23,15 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Live updates: Gaza ceasefire in effect, Israel says, as hostage release countdown begins - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQeVlDWW1NOEI5WS1yalVhb09BdVdIZU5SSDdGUHFlRXhLOTVVNDNEWmctcGx1cjNkTk5RcThUc3RvNktxRDM2RkJydkVzMFRETlFockhzQkdxV2FuRnNKdElKNnJNREdGWlFzLXJTSGNEeXE5bkpqWTQxdGVJVFhNU01nT2hKMzd4UUk1dUhsZ2NOZEVRRF9LeVBQQdIBoAFBVV95cUxNWGx1VzRPdTA5a0hraGsyclBraV9HRUFHc3U5QWp1b01UOHdobmhQUnVPNk03aGl5ZGswZ0VyTkNsVlhRSFlfaEQwRWdFWjJ5UG5tTHMycVhXOFM2LXVzYnl5b3RxYXRucUhpVnVKRGpDUWI0bWJ2c19zOC1SbU1GWlhNZlR5bWVON3pGSHpOc2EwYzBQa1pDQWJoa012bUNX?oc=5) |
+| Trump promised not to let Israel break Gaza ceasefire to get deal - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9qZ196bkhqYjdhbkpPeU93WVpOOG0xeHNQeGQyVWlidk83WUxRRndKNGZObWk2YTdVTFBnV3pfbDBNWEliNWQwOFpmUEdRcFZYUnV3RllGdVZBUDRaNmFRTkozcFNMTmVPY19sQU05WE45YVRYbjNCVjZMNVlPSVE?oc=5) |
 | Venezuela’s opposition leader María Corina Machado wins 2025 Nobel Peace Prize - NPR | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQbDUtSVRrcDlIUVlMWkdZTi11a2lpSVFBb1puTlk3QVQwRzhYUjVoQUNpekpYRWoyeXcyeXpMSF8tLWRSaVhYZTRYNTlsbFdJVWpLRWZLUkszT2ZRLXV6UWpfWndvM2ZpdWV3eERiUUxlVG43cXRBY0hfREp4akVEYlJrbzA3OXNIVThWYTZqdE5kV0kydmh2ZzVFNTY4b2psT1lBaEpreEQzMGJyc3JuM3A1OXRRVWM?oc=5) |
 | Letitia James pursued Trump. Then she was indicted. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQb2xfeVJlSm03cVludzNlVUgwQ1g4UjFVRFdqY2lFS2pCaGlzbjNoWXVFRVRkb2RwcW1nNllJMDhJRGVjc3NTalNLeDFwSk4yNk1iZ0d3eWNGaE9EZW1CNzI2TFd5emNOdEJKWVMtcUNaZnhlWHMzNnlOR2lFZGdtU3k1V0YtbHRCdFZGQnp3?oc=5) |
 | Trump boosts Argentina's Milei with $20 billion lifeline as US buys pesos - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxOaGVub3otX2FOdFVqeWU0ZU5nUmxXUHdHOEJabU1MQUZZMXZXUWE0dFY0WThIdXNORTd2dUhQazh1QWFrXzdaVkEwSkF4ZXYxZm44cVZPSk5helhjWldOdnY2OURyckMtRXI4WnZhQUllMF9iNlR6Ymw2ODV3bENlY3dLb3JXR1NRYUdMQ1U3UlFhZXFDMnNEOVhtb1JJQk9JMVdyTnZYdlNYV05RTjFFbzdWVHFKZ2FsbWdYWVRIRjd4RndDd3B3?oc=5) |
-| US to send 200 troops to Israel to monitor Gaza ceasefire - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9fTEg1ZVJjX0UyRnZEUUtQUTZ4b0dSSnJOQ1FXOWc3ZVgxT1Z5bjVrNTBQTGZ4RzRzckdHTTJqU2hfY0t1bmxJZFZUNnAwbG9aVERtbmZycXVUQdIBX0FVX3lxTE0yeHpEOW1vT2VaWjhLd0puTm44WGhyaGhidTROU3FUMVFrZ0xBUjRXb3lFOVZRbHRFLUp1dG0yMzBnMVVTdFU1bGtzbGNMcVR2T1BlbWxVZXZnbG9kMjZv?oc=5) |
 | Federal Judge Temporarily Blocks Trump’s National Guard Deployment in Chicago Area - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQYnRrSHNUR1p2RVpSb2JUY3NCTmNPQnQ2V084TVkwVmNRdjFCWW5Zd2dvV1V0QmpDUEVOR2J2QmVnZGZJa1Atck1wVWhUVWtyY2lYTEo0QUtEMlBYdDJkVE85RXNLUFNDWjN1cnJIOHdEdng2bUZYUFpuTkNDbUwwOGFEMEhUOUE?oc=5) |
 | Capitol agenda: No deal as the shutdown marches toward Week Three - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxOTWJQanpqWUhHV2tDTlRkR1dFakRtei1XbU5KanFyeUprMWkxY0pmVW1HUnRRRlowN2RPUFZrVFRNSVlsb1owTWdNcWcxUld3cGczVWNFRWxDTlBmQklkRHpwXzViTEpwZW9Ib0dhYVBOSnB6d2pKbF9SazFfdGRnbHJ2V1FhNFQzSTV3bDdwa3FKYm05N0EzQzRYZzMyU25NOVE3QWk5MGg3WWxCY3ZqcDIwZW1jY3phMzZ0XzJsTFREU2l4dUVJYw?oc=5) |
 | FACT FOCUS: Trump paints a grim portrait of Portland. The story on the ground is much less extreme - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOSTBlaWMyeUN5dk8wUHZsWHV2OVhvZmpMTUVEVzFPbHB5V1laYUN3U01udEpHM1pmOVZaZWN4ekZmYThfcWpjUHRsdl9mQllSbGNtTzhWTDZIZnptckUyNlFDOHNveWpjM3ZycUtaODI3a01fZHEyVm15TGRBdEw4djRmVXVmWmZWOWlYRGNmaEJZajEzYkcwUG1SWkx3NTVkaGVtc1VvMjl3dXZv?oc=5) |
 | Spanberger, Earle-Sears clash over violence, abortion, and taxes in lone Va. governor’s debate - Virginia Mercury | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxQVW9JWjkyNGk3U3lfbTk0c0hFRWw5Y24zUV83TnVpNTMzWE1yM01PaTh6NEZiVTktUHFiUlBCeWl4cFhIQ2hVX2EzUW4tMUk5LW55WWI2TnJmM3JvNF8xMTY5VzRvT3lsUDR2Z1VhRjVXWVhpNEVpZlVmNFE3MlNtWDh1NXRXc1lnM3NUbXcyUkhVZEU1VTBsYWZZSy1RUExDYmpEakhSUzRRN1N0akx6UDR2Q0t4TC15MDJva2JYSEFLSU5FUzN5VQ?oc=5) |
+| President Donald Trump is headed to Walter Reed for a ‘semiannual physical’ - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOTF96dnctMG4zLTBZdENhNVNMcG92WEp6Q2ZmMDlQZnFlYlRGLU1WN3ZLRGNjZi1FeHYwaExzbTFiX0NndkhkNmF1a3hyRFpQQUdQN2kzZEVRYW5QUWpackt4UTNPRHV6X0lSV3FlMWdzLUNNWGlRdUNGeThoYVEzTFBNOV_SAYoBQVVfeXFMTndlUGdpdHNsQ29RamxkdWlFTTg2R09Bc1hMbTl1dHdhaFNHRnpSOG5Jd3V5bjBWbEFNRWR5dmllYk8tU083bzVqQTN5NjRrVzlNNGxLS2JZdnZnMHNUU1B4YmhfNVh6cnFtamxNTDFYNjQxcmlac0UtNUxFYUJ4X0pJXzBmTXBFSUdB?oc=5) |
 | US could fire air traffic controllers who fail to work as delays continue - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNdzlndGJDQTNjekYxbkF5Q21OQzRnWXdRRm5PN1FSNTBLRHNxZDZ0by02LWFYTDJCQk9VZGZSd0FqYTcyN2laT2tiVDJHOTRJbkNwRW9KMlkxVmgtbWhXQlVSaWJkRkxhQ01DTE9TSnpDNWNhZUppbE5iU2h3R3Z1OUVZVXB2SzBibjU5NFpXVUlMLW9BYWlXV3pzOEVjQjUzSmU4OXR6bV9LcU9VYmRwbm9LME92YWNkQTB0eFVjbF95ZHNmVUpnUw?oc=5) |
 
 ---
