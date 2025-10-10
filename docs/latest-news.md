@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 08:09:01（北京时间）**
+🕒 更新时间：**2025年10月10日 08:17:45（北京时间）**
 
 ---
 
@@ -23,12 +23,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Letitia James, NY attorney general and Trump foe, indicted for mortgage fraud - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNYmpVZkNnSmlLMUhOaEFIdFAyRjR5LThra3hCcGE3YXhIb0xJWm1RSUw3dlZ0MEFKMy1pNWpnazYyNjVNWlUyWl9jQzBhTkVHSE43TzhTbmhOTGlaZGdxcnhNaXNDTGxPeFVSMlNPMF9ZandnZkNoRHREYkt2NFQ4bDRLYV9RSkVya2tJeWRxSVd6RmM?oc=5) |
+| Justice Department indicts Letitia James after pressure from Trump - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQNlVHVkwzcHFfUHVGR0Uya3VJNTVFNkJFWmdWYnN4aGltZGc5QUFRZ1dDNWl3bmxkdmt4c2RwbUtsYXRaVU1LanNGcWl0U0ItYms1MUNaaGJOSWlCQjFMQ0VCbmZZeFAyLW9Fd0FJdk1BamxsajZoaDVIVmZoSzBfSg?oc=5) |
 | Live updates: Israeli cabinet discuss Gaza plan, ceasefire and hostage release - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5RUENINEF0TGxRbGtNeTFUclZfTm0xUTc1UlFlUmRFTGlraENZd2s2Y3U0enRDUG0yNjJOdHBWRFdwR01ndEhWc2pxM0lYSG8wVS10dA?oc=5) |
 | Judge temporarily blocks National Guard deployment in Illinois amid Chicago, Portland hearings - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQMEpyOHNjMVJjUnZRYnpaaFp1Mm56U3hldlRfZEVmQmVTZ0RUcWt5RUZMVzgwc2g2OUN2V2pYLS1xcGdlbXdoc3otRFFQTm9kZkxzdkN5SUNIbWtlRUljeW5IV0FzNlhKZ2RMSzF2MUZsV05fMUpNMDQwaTV0d0pjbndtZmkycFdUdUdwZjh0LV9WLVNjc0FXLXNGNVRFSG5U0gGmAUFVX3lxTE5jc3JUSFRreHpGbUR4djVXb3FaUU53NE5DYmVpUHRMdi0yYTlDQnQtVi0tOF9pSWIyM0xQdkxKUkJmVTZWcEFaVWtfLWtuTUQxXzBROW5rZXRTX3p6aUx2dmgtMFpHeE80TGlEc2lvM3diRVBHeE44cHlROU1TbkRjTXo1NnZwVVZuSGhlS2pjOHhGXzgwTkhHMUdLek5Zd0lVQnNQUHc?oc=5) |
 | Norway braces for Trump’s reaction if he does not win Nobel peace prize - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNTXRGOGlHNXUzdXhDSnhESkEyclRYVmZJVEJEaXFVeGl1eUppdmlyam5LdzJIRjBCQmVJc3A3bFhwYUNnZFhvaHcwYmJRQWhVQzVPTWJWNW1YWldRRXhDemt1d1Z1NnBhTDJHbk1xRnoyZ01hV1VVWnNpc0I5eFJ2S1ByZVNhcVVRZk41QjZSS2tsZXFJbFEtS0hJWEkxNFZMblczNjU4ektramNOSEtIX1lneWhUd1k?oc=5) |
+| 2 Pennsylvania state troopers wounded, suspect killed in Franklin County, authorities say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOdnA0M3N0UC1aVTR2Y3p2VGVuS29nVmFXUDBnYXBpNklqQWF3bXdqSlB5OHdiNTFTcGI0bE53UHN6bXdLYUtBNWpiWmlqUGV5MHh2Z2RsSHZRN1NwQTludmVBN3BhenBlbmhfVUdrdkxYU3RWUTVMZkhEaG1FOEdVd3JlbnJHSEoxVkVKN3B5c2MxbHlkR1o4?oc=5) |
 | Democrats float immediately paying feds working through shutdown as Congress again rejects bill to reopen government - Government Executive | [阅读全文](https://news.google.com/rss/articles/CBMi9gFBVV95cUxQQlYyQmZZbzZXMDVhNkl5c21vRTh4S01yYkVma3FCeThhU1lfSXp6UHVJSXlBbEJMb0x5dVBlUC1TalA3UmxZSUdLeUhRMVNGYUlCV0JzUEZjV2JtdXo0NXUxWG5DYnpOYW5kbDhHY2lybGlFWjlwU296MDdTZHh6V04zbldUNHBCekI5WlRkZUhUSmZDQ0pPM1E1NmtsS2NnOWF0WTFQS2NRUXZTZkdmLWhXRms3N0JVaVM2eXo2MjhHM0E0ejVkOGhzMGUwNXh0cF92M2dpMkNwbUdQUkZaZjZ3cW9HUjc0QWt5WTVCQ1l6c3FCQ1E?oc=5) |
-| IRS releases 2026 tax brackets and higher tax deductions for 2025, 2026 tax years - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE56anFuSGZTSG94cmVlSGsyc3QyeGpSYU14YkIyNjF0LUprdXNSRzZhV2FIaWVWTkJWcTB5UlNJLXVSeWRpOG9qTHJkNDJaWjNUdnhnUnVGQldFVWlENGI0Y2laSlN3MTlzQzZOYWJQSFQ2SC1tdW15dE01RDhvQQ?oc=5) |
 | Texas High Court Halts Execution of Robert Roberson in Shaken Baby Case - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFA1NExyNmE3UGtSekVKdUotOGd2a1VUOEpBUE9jNG9WZm5kczZRM0tEdU54dHJKeThsOFQyTWY4LV82aGNxcWdEcW5aTWZmT1I5R1FhWVZTQ21KM1cxMEd3b3lIOW03Nkc1akNBWjJTaURieE5HUTA3QnVR?oc=5) |
 | Boston nor'easter weather forecast calls for strong wind gusts, heavy rain for part of holiday weekend - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1NUHhWUUE3RnAyTEwySGVleFZzU2ZCZVV0dWlnUkRGMVRFSWRFQ2hBZkZtNkNIQzV5UUpCSFJFS2hKTVcxR0UwSDF3aVFtaHdTTjlJTFp1UGY0M21zcnR1LWdsTnpCLTExRnIyNlhYZmVoeWN5YjJpNXQxZEZSa2s?oc=5) |
 | Katie Porter’s bid for governor is getting noticed – but not how she wants - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQZUlwNVU3YUgzT1cxX0xaQlctclNVYnc4ZDB6MG9iSUxZbjB1VFI4Z1I2c2lFeV9xYkF1WEVyRGZrN1dEMFZqaU5iTzNNcnJDaDhZRF91NHBSLWVGUTA3SWdTWEhEWThBbDhiMm9UYlYydks2OFV4cGFWMGtTY1hoTzlMcmU2M29wOENEZVJwQTdpeEJuUjVsYUtXaDQ2dw?oc=5) |
