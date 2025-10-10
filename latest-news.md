@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 04:08:51（北京时间）**
+🕒 更新时间：**2025年10月11日 04:17:27（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | Venezuelan opposition leader María Corina Machado wins Nobel Peace Prize | [阅读全文](https://www.bbc.com/news/articles/c70821201ego?at_medium=RSS&at_campaign=rss) |
 | Plaid promises universal childcare if it wins Welsh election | [阅读全文](https://www.bbc.com/news/articles/cewnv2xprzko?at_medium=RSS&at_campaign=rss) |
 | Green turtle bounces back from brink in conservation 'win' | [阅读全文](https://www.bbc.com/news/articles/cg426qqqqnro?at_medium=RSS&at_campaign=rss) |
-| Tony Blair met with Jeffrey Epstein while prime minister | [阅读全文](https://www.bbc.com/news/articles/c5yk16gpxj0o?at_medium=RSS&at_campaign=rss) |
+| Tony Blair met Jeffrey Epstein while prime minister | [阅读全文](https://www.bbc.com/news/articles/c5yk16gpxj0o?at_medium=RSS&at_campaign=rss) |
 | Trump threatens to pull out of planned Xi meeting | [阅读全文](https://www.bbc.com/news/articles/cn4wkd7729po?at_medium=RSS&at_campaign=rss) |
 | Gregg Wallace claims BBC caused him 'distress and harassment' | [阅读全文](https://www.bbc.com/news/articles/cg7dlem0vdno?at_medium=RSS&at_campaign=rss) |
 
@@ -29,9 +29,9 @@
 | Massive blast at military explosives plant in Tennessee leaves multiple people dead, several ‘unaccounted for’ - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFBKdklZV19kd2dBWGY1aTJRREZtemJqZW5ST0VhM01TT25feUpyN0pUdFZEdzM2Q1lvazZQWG9hWEw2cUY0VzJnN09QWkp3YV96WXRSaFZnUU9KR3ZFZklnRGYtUG5MYjM1QnM2Z05tb3ZqU3hTSWVB?oc=5) |
 | Capitol agenda: No deal as the shutdown marches toward Week Three - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxOTWJQanpqWUhHV2tDTlRkR1dFakRtei1XbU5KanFyeUprMWkxY0pmVW1HUnRRRlowN2RPUFZrVFRNSVlsb1owTWdNcWcxUld3cGczVWNFRWxDTlBmQklkRHpwXzViTEpwZW9Ib0dhYVBOSnB6d2pKbF9SazFfdGRnbHJ2V1FhNFQzSTV3bDdwa3FKYm05N0EzQzRYZzMyU25NOVE3QWk5MGg3WWxCY3ZqcDIwZW1jY3phMzZ0XzJsTFREU2l4dUVJYw?oc=5) |
 | Melania Trump says she and Putin communicating about children affected by war - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOZEhNVUY5MWJ4VHBDUl9rYlpnNUh3Nk92OTV4bDZ6dEtxeklLbEs2a1YxbDdCcWlmOVVIQi1OZzZmOUxpUGplTHRMRklReVVwMmNfbUVMazA0eGpiVDF1RjJOenFqaHNXakVlaXNBRlp1ZzlOSlFwVnpEQTZVN0tFQXhOUThqcFJNTVFTRllkWlhnamVLVTVEaHdqTDN3T0xIYmtocWtvdXZmZ9IBrwFBVV95cUxPU21sRmttdDFqVkJKQlItYXFfaWpYRzB3bG9YNHI0N2NwdlRHbDVUaW9tb0o1MWxfbkwwSVdrcmw1ZFJBTmJuQm01LUJtOGtzVDlUVENHSFBTM1RtaG5CcXJpdE12R0pYRHlidzFkNEV3X2dBaHNreTE0bTJRcFFFaW9VcVJidE9yNjEwZWJlTFplTDVTQ0JVY0EwVHotbW96UERkUUIzZ1YxWnRvdEk4?oc=5) |
-| Trump suggests canceling Xi meeting and threatens more tariffs after China restricts key exports - AP News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE14cDFwcENqWVZjSXpxTDVJZU1vNndOY1lLSVIydUJNb2h0VEU2Rmg0WlQ2c1RfN2d2UV83aHhiYWlKeVprUTJXbUlEOUhLOW9CN0dEUzYyLU5Oc2NnMUdhbWhwM3NuWDY5MU1QeDFHT1VmOHE1SzF1NFlGZnNTWTQ?oc=5) |
-| US could fire air traffic controllers who fail to work as delays continue - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNdzlndGJDQTNjekYxbkF5Q21OQzRnWXdRRm5PN1FSNTBLRHNxZDZ0by02LWFYTDJCQk9VZGZSd0FqYTcyN2laT2tiVDJHOTRJbkNwRW9KMlkxVmgtbWhXQlVSaWJkRkxhQ01DTE9TSnpDNWNhZUppbE5iU2h3R3Z1OUVZVXB2SzBibjU5NFpXVUlMLW9BYWlXV3pzOEVjQjUzSmU4OXR6bV9LcU9VYmRwbm9LME92YWNkQTB0eFVjbF95ZHNmVUpnUw?oc=5) |
+| Dow drops 500 points, S&P 500 falls the most since April after Trump's China tariff threat: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFAtclc4S0oxd25QeGpmTXJ3MmlZT0ExRGJsUV9HYTNta01fc29MZkliZUdPSjJTVGJOMHZYQlVsR05ma3l5bzdYbDk3RVh4OVhMcDFjd2xFeGI4RVdMM0h1bElzNEJ6M3J3U0VISEVZTWFqUlVZanVj?oc=5) |
 | MIT Rejects Special Funding Offer From Trump Administration - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE42TGtCSFBUNHlUd3BKZVNCcVE2WWZlTVp2cGNXYW1YdFpCRmR5TklGVXRmODF5UmRxRWJ0cGpQSWpuTnp5Vk9jQWwwR2s0V1JjT2dDVGpWSGZFQTEzVndWRjc1M3pab25WUThOMmRoNlZqNVhMN0p0cU5xTC1HbXM?oc=5) |
+| US could fire air traffic controllers who fail to work as delays continue - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNdzlndGJDQTNjekYxbkF5Q21OQzRnWXdRRm5PN1FSNTBLRHNxZDZ0by02LWFYTDJCQk9VZGZSd0FqYTcyN2laT2tiVDJHOTRJbkNwRW9KMlkxVmgtbWhXQlVSaWJkRkxhQ01DTE9TSnpDNWNhZUppbE5iU2h3R3Z1OUVZVXB2SzBibjU5NFpXVUlMLW9BYWlXV3pzOEVjQjUzSmU4OXR6bV9LcU9VYmRwbm9LME92YWNkQTB0eFVjbF95ZHNmVUpnUw?oc=5) |
 | Governor Newsom builds on this year’s historic housing reforms, signs legislation to accelerate housing and affordability - CA.gov | [阅读全文](https://news.google.com/rss/articles/CBMi6gFBVV95cUxPRDluc1pJZmVVNVhfOGpQVW45THlNZ0xFcVlGY2dtbHhkQks2ZjRXY09ueXhPSUFuVnhjS1JBUURWQ0ZqRTJ1cG83VjNKeTZhY19OclNMQ19NV3ZUSjZZQThycmFiVE1IR180dThlWjUwTGxlWHZscGVwRVotX3p0cjBxNmVmS012NGp2VjFMREZLUzhQSVJINl9WS2N2RVBNbk5pSGkxN1lnWlE5MVFNOVo1bF9CZWdTVHZXWFhGT0F5RTZQU3FuWi1GSURfOWw2YmpuODJDby15TGpiTjJZZFZ0QlVaRlROc3c?oc=5) |
 
 ---
