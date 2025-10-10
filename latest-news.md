@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 15:24:09（北京时间）**
+🕒 更新时间：**2025年10月10日 15:32:11（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | Thousands more university jobs cut as financial crisis deepens | [阅读全文](https://www.bbc.com/news/articles/cp3ve5jegkvo?at_medium=RSS&at_campaign=rss) |
 | New York’s top prosecutor charged with fraud after Trump pressures justice department | [阅读全文](https://www.bbc.com/news/articles/c4g9n4xj904o?at_medium=RSS&at_campaign=rss) |
 | Celebrity Traitors episode two was as killer as Tom Daley's side-eye | [阅读全文](https://www.bbc.com/news/articles/c1edwzpdlx4o?at_medium=RSS&at_campaign=rss) |
-| Major Russian strikes cut power across Kyiv | [阅读全文](https://www.bbc.com/news/articles/cvgq2vnxzlvo?at_medium=RSS&at_campaign=rss) |
 | Woman in Dutch beach cold case named after 21 years | [阅读全文](https://www.bbc.com/news/articles/cpq5r9epd4qo?at_medium=RSS&at_campaign=rss) |
-| Plaid ready to replace Welsh Labour, says leader | [阅读全文](https://www.bbc.com/news/articles/cewnv2xprzko?at_medium=RSS&at_campaign=rss) |
+| Landlords exposed flouting law on Airbnb | [阅读全文](https://www.bbc.com/news/articles/cvg96rz9061o?at_medium=RSS&at_campaign=rss) |
+| My family stopped coming to games over abuse I get, says referee Taylor | [阅读全文](https://www.bbc.com/sport/football/articles/c2dn9lkp0e5o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
