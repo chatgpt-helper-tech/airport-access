@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 01:41:59（北京时间）**
+🕒 更新时间：**2025年10月11日 01:48:23（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | M.I.T. Rejects a White House Offer for Special Funding Treatment - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE42TGtCSFBUNHlUd3BKZVNCcVE2WWZlTVp2cGNXYW1YdFpCRmR5TklGVXRmODF5UmRxRWJ0cGpQSWpuTnp5Vk9jQWwwR2s0V1JjT2dDVGpWSGZFQTEzVndWRjc1M3pab25WUThOMmRoNlZqNVhMN0p0cU5xTC1HbXM?oc=5) |
 | How Trump’s message to ‘Pam’ got exactly the results he wanted - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxObzl6RlVJUkJ1NVJldlhFaVBES1llMEFLVVFnU0gxaG5Mb052U3JHVk9PSTNFUlZWMktCN0JGVU4wd2dtZGV4RXNseHFib2tYME1tRXQzM3hFTExtb1k3ak5heEVUVXBoOEMtd0tGMFR4MUx1N2ZhYWN4Si1fNmk5OC02RjZlTndCRlpWSQ?oc=5) |
 | What Courts Have Said in Challenges to Trump’s National Guard Deployments - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOTXA3MWRWWUhaRmdmNElXUHVyemxRbjh0eWFoSlVNcGhWS1VEbTdZZlpaVG5EVlZxLXJJd29wb0RMQmxqaXY5MzMxT25pc1hfTkJTQVE2a2lieGJCaGpCdUpLOHNtaHpsVWhyM2g4RmVTVFJQck90T0ozOFYtQnozR0xRMG8?oc=5) |
-| Jared Kushner returns to forefront of Trump’s Middle East diplomacy with Gaza ceasefire deal - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE45amN6OFJjVEZXaUNGRkUtUU40TmZBSTRoeFp3U2ROcGI1Z0J6dWxkSjB1Tl8yMTQ5OFJyRDV5T1ppT2JmY2NIUFNPODlmVFdUV2lNUlJrTW9oa2VCZ2JDbm56WFJrNFNVdnpCQ3RZcVA4ME1xb0o1dg?oc=5) |
+| Israeli Cabinet approves agreement to stop the war in Gaza - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE9GelY3SWsydmZ6Q29Kd3VRUm10dTJuRzQtclQwRGhqdEowUVowZU9HVDRlMUx4Rk1qaWxUaXNrRnV5NTJTUVNqb3VqTmVkRkFXTXVNemRSU0ViOENWd3hJaWw5YUNkQjR5Z0hpMGJoTXhvVWpraXc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
