@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 16:56:34（北京时间）**
+🕒 更新时间：**2025年10月10日 17:01:58（北京时间）**
 
 ---
 
@@ -9,12 +9,12 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | William visibly moved as widow tells of husband's suicide | [阅读全文](https://www.bbc.com/news/articles/c2ej877g7w1o?at_medium=RSS&at_campaign=rss) |
-| Fossil found on Dorset coast is unique 'sword dragon' species | [阅读全文](https://www.bbc.com/news/articles/cdjzvzzy0mxo?at_medium=RSS&at_campaign=rss) |
 | Tech billionaires seem to be doom prepping. Should we all be worried? | [阅读全文](https://www.bbc.com/news/articles/cly17834524o?at_medium=RSS&at_campaign=rss) |
+| Fossil found on Dorset coast is unique 'sword dragon' species | [阅读全文](https://www.bbc.com/news/articles/cdjzvzzy0mxo?at_medium=RSS&at_campaign=rss) |
 | Stop expecting perfection from us, Premier League referee Anthony Taylor says | [阅读全文](https://www.bbc.com/sport/football/articles/c2dn9lkp0e5o?at_medium=RSS&at_campaign=rss) |
-| Thousands more university jobs cut as financial crisis deepens | [阅读全文](https://www.bbc.com/news/articles/cp3ve5jegkvo?at_medium=RSS&at_campaign=rss) |
 | Celebrity Traitors episode two was as killer as Tom Daley's side-eye | [阅读全文](https://www.bbc.com/news/articles/c1edwzpdlx4o?at_medium=RSS&at_campaign=rss) |
 | Green turtle bounces back from brink in conservation 'win' | [阅读全文](https://www.bbc.com/news/articles/cg426qqqqnro?at_medium=RSS&at_campaign=rss) |
+| Thousands more university jobs cut as financial crisis deepens | [阅读全文](https://www.bbc.com/news/articles/cp3ve5jegkvo?at_medium=RSS&at_campaign=rss) |
 | Woman in Dutch beach cold case named after 21 years | [阅读全文](https://www.bbc.com/news/articles/cpq5r9epd4qo?at_medium=RSS&at_campaign=rss) |
 | Landlords exposed flouting law on Airbnb | [阅读全文](https://www.bbc.com/news/articles/cvg96rz9061o?at_medium=RSS&at_campaign=rss) |
 | New York’s top prosecutor charged with fraud after Trump pressures justice department | [阅读全文](https://www.bbc.com/news/articles/c4g9n4xj904o?at_medium=RSS&at_campaign=rss) |
