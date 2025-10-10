@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 15:57:22（北京时间）**
+🕒 更新时间：**2025年10月10日 16:00:31（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | How Trump secured a Gaza breakthrough which eluded Biden - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBndy0xLXZYMVIzVUx0ZVVXM1E0NlhoSk1ya3g0YVQ4QTRzdEZiaW1rMDB1eks0cVhZempaM3BjeDVsbV9oc3dKejlWZjJjNS1fNDVzNmU1cExUd9IBX0FVX3lxTFA3TWJ5Wm5mWTF3R2xHekVxa3VaN0JyWGU4Nm4yS2d5TzA5eTBZYWRzenRJaENxYXJrXzM3YUdWcnN6RkxNVmNuWlNMRjl5emE0WUp3ZWtLZWFnOE44WnlJ?oc=5) |
 | Powerful 7.4-magnitude earthquake strikes off coast of Philippines, prompts tsunami warning - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQRzd0WWVCQUdWUUE5UFBCN2k3b3JUZFJrSldaUDFPSDFNS3dORnpuZUNoVXVaYjlwVzdzUUpTNDZwbTZQYUNWZ2E1THhpNG9raXZTTmFXa3dWWEd0c3VuM2xPczRKOThBeXlyeW9seVpCQklCb0kxWFZ6SmZYTHFHNG1tZ0lxMEh3eGViZWxWQkt0UE1GOVpzbdIBngFBVV95cUxOcjhHUzlBMTZ1WG9XaFFzYVhCUmpIU2h6a3FLQVl2SFJRLVlqdzc3VmltaHJJQTdLeG9DTWVackFFZGV4QkE4YmZvOWRJTDVPZDVLUzNQb19EN1JXcnVRTkh0aDlFTVdEdUlkaHJ6cDdQMFhCYkJCOUVZMlltank4YUFvLXN4NHFyR1pWX05hY0lBQmZhNUVwSHRVVDBRUQ?oc=5) |
 | Abigail Spanberger and Winsome Earle-Sears clash over Jay Jones' violent texts in lone Virginia governor's debate - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxONWE0MmZzVWttQTBiaGdZaEt3VlFNc3BxSEo0OVlscXkyaUlXaERfSmJkTzllVzVzQk1JX3hEdVlmQmpPOTJueXhwWlNFTUtabVJPTEt6c0h6RjdIX1Q2QTZ6cEhnelp5WmJYdVhDNFdBRUtCWmVxUkdSaF9qTHJKcGRIaHlHLTROaTJUTUo0OGxIQWcyNnhINUVVM2tIMzlfc0NGQkhvUHpUeDhCbTUxRUs0M3p6N1HSAVZBVV95cUxQTThfX0JzX1RfSUlPU3NLMHh1TFRseWpQdG85ZXljOGlqLU92ZVU1STVaTzNhcHNGTzYyTDd2QWtucFROWXBuUTIzd1pNdUxqMEpvVGhRUQ?oc=5) |
-| Senate still deadlocked over shutdown as Trump reiterates threat to Democrats - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQZjdGRHR5U2h0aExiS0dOODFuUm5xeTVLWFpISHVjXzdvMTBxN1Baek5UdmtPbDZMVlYwYXlRcHhvb21nUkJhUWVhSTdkYm1QNjlZWXp5WnJ5NDdUQU1tS1JEY2l3TzRUck4wWlB3d2NvN3lzbzJabVI0U3lsOGcta3g1blRuTzFtRGpF?oc=5) |
 | Robert Roberson: Texas court blocks execution of death row inmate in shaken baby case - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBVOGtqZmdiXzViZnRxZjdJYXdQRzVmbFpIVHRUUlhaWHhHOXRWdFA4Q2N0U0VXcHhuTWVoRjVZeEpodENFb2xtR3p0bV9VU3pTSzd2VlVEd1FaUdIBX0FVX3lxTE9NNThxaTJSYUxIalVHVk1pdm5NMUc3Qzg4Ml9zLUs5bWVrdVRSbnFpR0hjcWlsZ3M2Q3RTNVlTQzNhTXpfay1JeXhwMWt1OUVMaWIwbDNIU3N6MmkxX2o0?oc=5) |
+| Senate still deadlocked over shutdown as Trump reiterates threat to Democrats - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQZjdGRHR5U2h0aExiS0dOODFuUm5xeTVLWFpISHVjXzdvMTBxN1Baek5UdmtPbDZMVlYwYXlRcHhvb21nUkJhUWVhSTdkYm1QNjlZWXp5WnJ5NDdUQU1tS1JEY2l3TzRUck4wWlB3d2NvN3lzbzJabVI0U3lsOGcta3g1blRuTzFtRGpF?oc=5) |
 | US could fire air traffic controllers who fail to work as delays continue - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNdzlndGJDQTNjekYxbkF5Q21OQzRnWXdRRm5PN1FSNTBLRHNxZDZ0by02LWFYTDJCQk9VZGZSd0FqYTcyN2laT2tiVDJHOTRJbkNwRW9KMlkxVmgtbWhXQlVSaWJkRkxhQ01DTE9TSnpDNWNhZUppbE5iU2h3R3Z1OUVZVXB2SzBibjU5NFpXVUlMLW9BYWlXV3pzOEVjQjUzSmU4OXR6bV9LcU9VYmRwbm9LME92YWNkQTB0eFVjbF95ZHNmVUpnUw?oc=5) |
 
 ---
