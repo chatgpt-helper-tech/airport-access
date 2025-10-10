@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 18:32:27（北京时间）**
+🕒 更新时间：**2025年10月10日 18:41:00（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Federal judge hits Trump administration credibility in siding with city and state against National Guard deployment - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxPRmVPUDMtTmxfZy1tYmE2VjZfNVZyU0NkWW84elVuX0JwcUZqaGJhWWE3b1gwbkVpMm5fUXRyblcxVXZxTjBscVd5Q3hEN1JxWjdBSWVCSUU5aFpEUFZNVU1pd3NjclZwR21xWUI5Wm1ab1c2VXBvdzRGbm1ueU9nU1pWQXJJUnJyN2VNOXFzY3FzYWg4N3AwWGx6QlVYbEVVaGlHRUhzR1haX284QjhGTTd2YkdNWV92LTNkUVlaZUZ1b1F2?oc=5) |
 | Tsunami threat passes in Philippines and Indonesia after powerful quake, warning agency says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE84OUtTamxDd2YxdEJjSGxWT2o4SmNDWkNKRnF3dUROUUUxWHAybk5XV3NMbGxGWXhjaGoyUU4zQ3RUUEhXMEhQd2ZmRDFxZ3lkTFM3UQ?oc=5) |
 | IRS backtracks on back pay guarantee for furloughed employees - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOSjd5anhKRkVuamZkanM0Q0MwRFUtbUZ4RHRZLTVtSEJKWDRPQ0F1Rl9KZU9PdzNsem1jMWVSQ2Q0WUJXQ2wwRDdIaV9nWkFrRXZtb0w2RTY5dWMwODZTbFlYM0dIQ3NvVldSRkZtX0czdGE3SG42VUh6VFVLWEdaVFNqYmswci16aG42blV0SE9UblNqV2RBVkZhMFBaYVZ6alM3ZU1FY2VUdnh3QWRmaVVxSC1yTDJVS2dYN2FB?oc=5) |
-| Senate still deadlocked over shutdown as Trump reiterates threat to Democrats - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQZjdGRHR5U2h0aExiS0dOODFuUm5xeTVLWFpISHVjXzdvMTBxN1Baek5UdmtPbDZMVlYwYXlRcHhvb21nUkJhUWVhSTdkYm1QNjlZWXp5WnJ5NDdUQU1tS1JEY2l3TzRUck4wWlB3d2NvN3lzbzJabVI0U3lsOGcta3g1blRuTzFtRGpF?oc=5) |
+| Indiana executes killer, rapist of 15-year-old girl, its third execution since resuming them last year - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQTF9JZ1d4THRDWllxX2ZEWDNrZ2R4a3cxTXFnQ0RMTlRCMHhabDRNaW1lWlJtZVV2MUpndGRudl9FbmFocHdZdlhMZDBsWDhZUnp3RUoxU19WU2g0b1BZbllnOXpMVVhaaThQSzNJX2szWVFFRU9vRXFRQkF4Ymp3MnZfd1FKMF9UUVVhRnhUTdIBlAFBVV95cUxOb2p3UURlM0JEYUdHMExscEJvcGNrRGU3YW5lNFhoTW5ORXo2MVVlUkdhZXB5OF9vT0ZsV2NDZ1NYLThGSEI5WUtWRVc4WlZtdTNJMURseXVVemhSQ1dFT1M0Q0hUYmNWbk90dzFJZWlUWnZHUndrT1gwOUNvdE83SklOeURlNUlIeXlXVU9aYVVXajNP?oc=5) |
+| Government Shutdown: Trump Vows To Cut ‘Very Popular Democrat Programs’ As Shutdown Enters 10th Day - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxOcFBkZ1V3RlJRdnlyb3NwRnRtckIzOXR0MFd2TXM5YUNURzBkWFIwUDhhQ05TNFhlNGRSSHVtTmZoSHhCeFZIMTZ2WEhhbEpWbGtkUERLYXQwUmJ5LTd6RjVlTFpsRk1ENzc4Y1FSYWdMWl8tMlZLZzR6WHpBM2RteUdaS3JQNkNOX2ZsbVVCMTN6R2Q0aEpKN2JUNVJROTQ2TllxMWp2NTM5WVdrR2h5Rk1oTHlZb3BhTTNMMEczallUbW92VjBZbnhiRlhGTDhPUVdTYjVwUHpBV2FVYXhB?oc=5) |
 | Spanberger and Earle-Sears tussle over violent political rhetoric in only debate - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPSm1lVXZVRjlpTE9Yd2xlYmh1aHZWaThzNF9SZkxneTBtR3NDTXppRENnYXg1aHFiUWpSak1RUXJpclBYNk15WW1vbjc3VGxWdFJobkFuV1V5blhyYjMyTURYSlpFaTVzOHNaVWRKcW5YWmMxazJ3M1FyQ211Nmhaa2tNeDVab2c4U3I3OVNBdlktb1NGQnNzUE01bzE4b0hyaDJocVByc0VJQQ?oc=5) |
 | US could fire air traffic controllers who fail to work as delays continue - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNdzlndGJDQTNjekYxbkF5Q21OQzRnWXdRRm5PN1FSNTBLRHNxZDZ0by02LWFYTDJCQk9VZGZSd0FqYTcyN2laT2tiVDJHOTRJbkNwRW9KMlkxVmgtbWhXQlVSaWJkRkxhQ01DTE9TSnpDNWNhZUppbE5iU2h3R3Z1OUVZVXB2SzBibjU5NFpXVUlMLW9BYWlXV3pzOEVjQjUzSmU4OXR6bV9LcU9VYmRwbm9LME92YWNkQTB0eFVjbF95ZHNmVUpnUw?oc=5) |
-| Big Investors Await Windfall From Trump’s Argentina Bailout - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOQm1UZjN2VWFNbFVJS3hXeGtyVUp6QzJWN0ExcTZ4YUxWaDNxU3V2a0czT3lUbnNPTGE1V0I4ZkNnbnBlNmhxSHFfQlBtR2k4VFJCSkZleVRhNWg5aHZPVDFYdHBUcjZDSnVFTW5aRTFWcUZqZ1FLSEVnQ1hFNVpZNXAwbXhqQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
