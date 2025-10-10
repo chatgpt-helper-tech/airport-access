@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 17:48:20（北京时间）**
+🕒 更新时间：**2025年10月10日 17:56:04（北京时间）**
 
 ---
 
@@ -12,12 +12,12 @@
 | Tech billionaires seem to be doom prepping. Should we all be worried? | [阅读全文](https://www.bbc.com/news/articles/cly17834524o?at_medium=RSS&at_campaign=rss) |
 | Woman found dead on Dutch beach named after 21 years | [阅读全文](https://www.bbc.com/news/articles/cpq5r9epd4qo?at_medium=RSS&at_campaign=rss) |
 | Green turtle bounces back from brink in conservation 'win' | [阅读全文](https://www.bbc.com/news/articles/cg426qqqqnro?at_medium=RSS&at_campaign=rss) |
+| Government to consult on digital IDs for 13-year-olds | [阅读全文](https://www.bbc.com/news/articles/czjvrgd48evo?at_medium=RSS&at_campaign=rss) |
 | Celebrity Traitors episode two was as killer as Tom Daley's side-eye | [阅读全文](https://www.bbc.com/news/articles/c1edwzpdlx4o?at_medium=RSS&at_campaign=rss) |
 | Fossil found on Dorset coast is unique 'sword dragon' species | [阅读全文](https://www.bbc.com/news/articles/cdjzvzzy0mxo?at_medium=RSS&at_campaign=rss) |
 | Stop expecting perfection from us, Premier League referee Anthony Taylor says | [阅读全文](https://www.bbc.com/sport/football/articles/c2dn9lkp0e5o?at_medium=RSS&at_campaign=rss) |
-| Thousands more university jobs cut as financial crisis deepens | [阅读全文](https://www.bbc.com/news/articles/cp3ve5jegkvo?at_medium=RSS&at_campaign=rss) |
-| Landlords exposed flouting law on Airbnb | [阅读全文](https://www.bbc.com/news/articles/cvg96rz9061o?at_medium=RSS&at_campaign=rss) |
 | How Trump secured a Gaza breakthrough which eluded Biden | [阅读全文](https://www.bbc.com/news/articles/cj3yke64vp6o?at_medium=RSS&at_campaign=rss) |
+| What's in the deal and when will the hostages be released? | [阅读全文](https://www.bbc.com/news/articles/cvgqx7ygq41o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
