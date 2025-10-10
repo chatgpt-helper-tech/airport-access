@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 13:10:01（北京时间）**
+🕒 更新时间：**2025年10月10日 13:16:16（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Robert Roberson: Texas court blocks execution of death row inmate in shaken baby case - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBVOGtqZmdiXzViZnRxZjdJYXdQRzVmbFpIVHRUUlhaWHhHOXRWdFA4Q2N0U0VXcHhuTWVoRjVZeEpodENFb2xtR3p0bV9VU3pTSzd2VlVEd1FaUdIBX0FVX3lxTE9NNThxaTJSYUxIalVHVk1pdm5NMUc3Qzg4Ml9zLUs5bWVrdVRSbnFpR0hjcWlsZ3M2Q3RTNVlTQzNhTXpfay1JeXhwMWt1OUVMaWIwbDNIU3N6MmkxX2o0?oc=5) |
 | Abigail Spanberger and Winsome Earle-Sears clash over Jay Jones' violent texts in lone Virginia governor's debate - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxONWE0MmZzVWttQTBiaGdZaEt3VlFNc3BxSEo0OVlscXkyaUlXaERfSmJkTzllVzVzQk1JX3hEdVlmQmpPOTJueXhwWlNFTUtabVJPTEt6c0h6RjdIX1Q2QTZ6cEhnelp5WmJYdVhDNFdBRUtCWmVxUkdSaF9qTHJKcGRIaHlHLTROaTJUTUo0OGxIQWcyNnhINUVVM2tIMzlfc0NGQkhvUHpUeDhCbTUxRUs0M3p6N1HSAVZBVV95cUxQTThfX0JzX1RfSUlPU3NLMHh1TFRseWpQdG85ZXljOGlqLU92ZVU1STVaTzNhcHNGTzYyTDd2QWtucFROWXBuUTIzd1pNdUxqMEpvVGhRUQ?oc=5) |
 | Katie Porter camp rallies allies to her defense - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOTnBGUWVUWFM0YXBvZGZwZHQ0WDFLZGsyN2ZZdVlHUC0yalBfU2xEZ1dBc0lUN3RUZlRtMkJOMWV0eXVtS1oyU29lZjZ5ZUlRaFdzdzNyUWxTSklMNWpDX1FhMWMyTXNGSmlrQ2RBa2libWdyUjZ6MW0wWmxWcVZRMnBwSDFnZVBxWGFVdVdLU2tBeG10R2liMm9wd2xtQQ?oc=5) |
-| Who is Jonathan Rinderknecht? What We Know About The Palisades Fire Arrest - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOamNEcWlrTTBZUk5XM0hjZU5scUhvX2FfV0tGQXRFdVJGcVVEU1Y4eFBZa0ZMV3IweGNMWkdHRi1zaFo5WVBVZ2UzRHZlMWFGbm1iRG8xZzk0U09vVHhhZXR5VnRKUjRwR2pVeDJCT1RUMmxZY0cyZ2NrNzI2WGpfNl9uOEdlZ1FiZHJhOXdaWQ?oc=5) |
+| Boston nor'easter weather forecast calls for strong wind gusts, heavy rain for part of holiday weekend - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1NUHhWUUE3RnAyTEwySGVleFZzU2ZCZVV0dWlnUkRGMVRFSWRFQ2hBZkZtNkNIQzV5UUpCSFJFS2hKTVcxR0UwSDF3aVFtaHdTTjlJTFp1UGY0M21zcnR1LWdsTnpCLTExRnIyNlhYZmVoeWN5YjJpNXQxZEZSa2s?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
