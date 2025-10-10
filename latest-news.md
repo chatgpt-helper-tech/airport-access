@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 22:25:09（北京时间）**
+🕒 更新时间：**2025年10月10日 22:32:17（北京时间）**
 
 ---
 
@@ -26,7 +26,7 @@
 | Trump promised not to let Israel break Gaza ceasefire to get deal - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9qZ196bkhqYjdhbkpPeU93WVpOOG0xeHNQeGQyVWlidk83WUxRRndKNGZObWk2YTdVTFBnV3pfbDBNWEliNWQwOFpmUEdRcFZYUnV3RllGdVZBUDRaNmFRTkozcFNMTmVPY19sQU05WE45YVRYbjNCVjZMNVlPSVE?oc=5) |
 | Venezuela’s opposition leader María Corina Machado wins 2025 Nobel Peace Prize - NPR | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQbDUtSVRrcDlIUVlMWkdZTi11a2lpSVFBb1puTlk3QVQwRzhYUjVoQUNpekpYRWoyeXcyeXpMSF8tLWRSaVhYZTRYNTlsbFdJVWpLRWZLUkszT2ZRLXV6UWpfWndvM2ZpdWV3eERiUUxlVG43cXRBY0hfREp4akVEYlJrbzA3OXNIVThWYTZqdE5kV0kydmh2ZzVFNTY4b2psT1lBaEpreEQzMGJyc3JuM3A1OXRRVWM?oc=5) |
 | Letitia James pursued Trump. Then she was indicted. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQb2xfeVJlSm03cVludzNlVUgwQ1g4UjFVRFdqY2lFS2pCaGlzbjNoWXVFRVRkb2RwcW1nNllJMDhJRGVjc3NTalNLeDFwSk4yNk1iZ0d3eWNGaE9EZW1CNzI2TFd5emNOdEJKWVMtcUNaZnhlWHMzNnlOR2lFZGdtU3k1V0YtbHRCdFZGQnp3?oc=5) |
-| Trump boosts Argentina's Milei with $20 billion lifeline as US buys pesos - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxOaGVub3otX2FOdFVqeWU0ZU5nUmxXUHdHOEJabU1MQUZZMXZXUWE0dFY0WThIdXNORTd2dUhQazh1QWFrXzdaVkEwSkF4ZXYxZm44cVZPSk5helhjWldOdnY2OURyckMtRXI4WnZhQUllMF9iNlR6Ymw2ODV3bENlY3dLb3JXR1NRYUdMQ1U3UlFhZXFDMnNEOVhtb1JJQk9JMVdyTnZYdlNYV05RTjFFbzdWVHFKZ2FsbWdYWVRIRjd4RndDd3B3?oc=5) |
+| Jared Kushner returns to forefront of Trump’s Middle East diplomacy with Gaza ceasefire deal - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE45amN6OFJjVEZXaUNGRkUtUU40TmZBSTRoeFp3U2ROcGI1Z0J6dWxkSjB1Tl8yMTQ5OFJyRDV5T1ppT2JmY2NIUFNPODlmVFdUV2lNUlJrTW9oa2VCZ2JDbm56WFJrNFNVdnpCQ3RZcVA4ME1xb0o1dg?oc=5) |
 | Federal Judge Temporarily Blocks Trump’s National Guard Deployment in Chicago Area - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQYnRrSHNUR1p2RVpSb2JUY3NCTmNPQnQ2V084TVkwVmNRdjFCWW5Zd2dvV1V0QmpDUEVOR2J2QmVnZGZJa1Atck1wVWhUVWtyY2lYTEo0QUtEMlBYdDJkVE85RXNLUFNDWjN1cnJIOHdEdng2bUZYUFpuTkNDbUwwOGFEMEhUOUE?oc=5) |
 | Capitol agenda: No deal as the shutdown marches toward Week Three - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxOTWJQanpqWUhHV2tDTlRkR1dFakRtei1XbU5KanFyeUprMWkxY0pmVW1HUnRRRlowN2RPUFZrVFRNSVlsb1owTWdNcWcxUld3cGczVWNFRWxDTlBmQklkRHpwXzViTEpwZW9Ib0dhYVBOSnB6d2pKbF9SazFfdGRnbHJ2V1FhNFQzSTV3bDdwa3FKYm05N0EzQzRYZzMyU25NOVE3QWk5MGg3WWxCY3ZqcDIwZW1jY3phMzZ0XzJsTFREU2l4dUVJYw?oc=5) |
 | Troops will miss paychecks next week without action on the government shutdown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQSWFfWnpIdlpkTkdPUEVZeGRrM29ieXRzUkpJWm5EUlV5NHJMQzFnVkdNQXhfajdVaHN2NWlCTks0T29acWtKU1h1bnZ2SVdzSUdDSThxbE5IZWlOLXlLaWtQeXZNa0xKZlhnYUV2WUhGNkw4cm5RMUZuUmpZNFA2WjhMSGwyRWktTk92UUE4eGpQUElXWGFKS3JuSWlXRm1RUENZYVdnTnJ5dmc?oc=5) |
