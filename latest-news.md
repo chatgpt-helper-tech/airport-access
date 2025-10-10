@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 06:56:30（北京时间）**
+🕒 更新时间：**2025年10月11日 07:00:18（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | White House blasts Nobel Committee for not awarding Peace Prize to Trump - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBEUy1nRmUySDVkVGlnYTlnWmpRNDJVR21PRGI1RUhTWWYxRTdfQ1N5SjgzMUZIOVhzRFlEYkNRRjZOVG5YWUl2T1Q4R1ZpUm9ZZWpsZW1keUdDZ9IBX0FVX3lxTFA1QU1zakt4SmV0THZsUUh0cEEycjlXN1NCa3VGVDFEMTlpNTF2NkpZd08ta0liUVpZYXViYXBFZXJqVG5vT3JZTmYxMlI2ek80X2thWGttVHlTcHlUTXFn?oc=5) |
 | Macron puts Lecornu back as France's prime minister just days after he quit - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPVW04eTlXa2F1Um41S2NqcXFrS3J3NDlHa3NKblJ5Ty1MaUFMUUtPTHFWQm1aN0ZHdldTTFFoZ3o4SFZaMk9RRlBYdVFEVGJwV1V2NFVTZWNQSXhuV0pBUUVXa3hFVGFscmtETnJrb3dkU3NiSlVmWkZxa0VXZTVEYkNUUjRfcnRaU05tVkVBMmdWRW8?oc=5) |
 | Airlines tell passengers to prepare for delays as government shutdown continues - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNZ2ZGVVE4eTlwM1plV09GVWVINEhWQ2xPN3BBbnlvd2E1SGRjbHcwakQ0Sm1MVEY4ZUs0ZkFqNjBYUHpxcXhJZmMtZUlqX0V5VEhLVTUzNnNTZkk1aXhjX0JjNlNqckRLTldKQjQ3UW54b2xPblZFV05QeE96Si0tRDBBYWpZRm5rNDEw0gGQAUFVX3lxTE1UQWVCRjFMcGpwU3R3MENnWDNiWXlOV2pkVi0wMnpsamRJeE05WjlKazN4TTctTGFQMW1NMDN0ckktREtVOHlEeXFVT0pFLURCblVqRnVSUVJEVVp2bG1GeFFDaC1ibzZINjhlYzZiZkJ1Z2xMRUdsdFJwcGFvV00tb0ljbkVQR25ZZ05wanF2Qg?oc=5) |
-| MIT president says she 'cannot support' proposal to adopt Trump priorities for funding benefits - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOY09lTHdoa2Z2Sl9PU2NZQXZxamtRSlQwZzJrSmJCNXFIcWtmTHpnbllJS1F1cmh2dUpXRXJsRUt0RlRjWVdjajIxYUdpangtLWdpSjdXQzVLZlc0OEhKS2ppcVgxM3hvalo3cWdsd2pBdTMtMFppWXZ1QWlZcDBOMzBQYVlHQ2ItMkZJdTV4TTc4OXBuUExmWFln?oc=5) |
-| Democratic troop pay bill blocked in House amid shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQeVIycEJVMUhGRVZTa1JnX1lCVGFZR2lUQk8yRVVuelBxWXN0ZTljTVpkOEFPcTdBT2ZXZ25xWlBuam9QVlNQdEJoNTdRRmVrZ2hCX3djYkRRNEFKZDc5RVlZVHljcmVjVm1lNzhyMmUyVVg2R0F0QmxzUUcwbTF3dUozd256eXEyM1Ixczh0d3EtRU1fUFFqek9lV3JkV28?oc=5) |
+| MIT rejects Trump administration deal for priority federal funding - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOTXVVSVJ6cUEtOFJiem5EdmlHX2ZtRERVUlZhQXkyQ0FsQThTX1ljZ1RpejJEMVp1R1otYnpJRjJxMGY1ci16SE9vZ18yVl8tVW5Zcllkb3gzeExteC1pZk9kUnNFRUpTeXFLb2dhdjAxNDlqNDJYOXppQk5DU04tMjhmQjkzUkQwMnZkQW5GVHB3WE11UzlOX2xER0U?oc=5) |
 | What Courts Have Said in Challenges to Trump’s National Guard Deployments - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOTXA3MWRWWUhaRmdmNElXUHVyemxRbjh0eWFoSlVNcGhWS1VEbTdZZlpaVG5EVlZxLXJJd29wb0RMQmxqaXY5MzMxT25pc1hfTkJTQVE2a2lieGJCaGpCdUpLOHNtaHpsVWhyM2g4RmVTVFJQck90T0ozOFYtQnozR0xRMG8?oc=5) |
+| The Official Website of Governor Phil Murphy - NJ.gov | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE5RS0lPYS00M1g4LThUTzRCNGJzNHpOM0lOc2xxNi1aQnVDR1doVlBrLXU0dDc1M1Zramh0YldSbHNERVdUdFFtZ2FwRG1UQjZoVzJyWHNqUDQ0RjU4SVh6MzJncEY5MGk0a080SndVeTA2S2s?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
