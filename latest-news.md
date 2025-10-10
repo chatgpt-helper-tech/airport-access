@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 23:56:34（北京时间）**
+🕒 更新时间：**2025年10月11日 00:00:09（北京时间）**
 
 ---
 
@@ -15,8 +15,8 @@
 | Plaid promises universal childcare if it wins Welsh election | [阅读全文](https://www.bbc.com/news/articles/cewnv2xprzko?at_medium=RSS&at_campaign=rss) |
 | Green turtle bounces back from brink in conservation 'win' | [阅读全文](https://www.bbc.com/news/articles/cg426qqqqnro?at_medium=RSS&at_campaign=rss) |
 | Man guilty of threatening to kill Nigel Farage | [阅读全文](https://www.bbc.com/news/articles/cdx216n1529o?at_medium=RSS&at_campaign=rss) |
-| William visibly moved as widow tells of husband's suicide | [阅读全文](https://www.bbc.com/news/articles/c2ej877g7w1o?at_medium=RSS&at_campaign=rss) |
 | MTV to axe its music TV channels in the UK | [阅读全文](https://www.bbc.com/news/articles/cdr612yz8p0o?at_medium=RSS&at_campaign=rss) |
+| Trump threatens to pull out of planned Xi meeting | [阅读全文](https://www.bbc.com/news/articles/cn4wkd7729po?at_medium=RSS&at_campaign=rss) |
 | Alleged McCann stalker 'stunned' vigil organiser | [阅读全文](https://www.bbc.com/news/articles/c4gknrxdpy3o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -31,8 +31,8 @@
 | Pam Bondi, DOJ officials caught off guard by Tish James indictment: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNVGEyZWRjX2JtMWNEQVY0RjdxZWh0ekVHR2MzNjdlMGtlcGhQOC12eldpbW9lckJJZE5tQUo5SThwQWZEVWN2YWEyYVNvTTBqSEhDbzFUU2Z2SDhlRVZ4YWNxUmYwVWg4RHItNklvdUhqbE1OUkpVb0tKaFZpeHFkMWFwcjB4VTlRZVNKUklZQ2o3blY50gGaAUFVX3lxTE1YNUNmNTY2bmNFNkswNWFOTkF5a1JOTUstaWZhYzV0VWxZWk1hSHFqNEN0a0hhREt5b3dLVHhyZ1RyRDBfRzZuM2xQN2w5TzA0SnZLcmlRbHcxUFY3MW1ZU1FQV3FUd2k2bVZRX1c3WWpDU1RvM2ZvdnZLNVM3Y2ZFdGJSdWhUbG4wWEh4Mno3cF9vNHF2Vmo3b0E?oc=5) |
 | How Trump’s message to ‘Pam’ got exactly the results he wanted - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxObzl6RlVJUkJ1NVJldlhFaVBES1llMEFLVVFnU0gxaG5Mb052U3JHVk9PSTNFUlZWMktCN0JGVU4wd2dtZGV4RXNseHFib2tYME1tRXQzM3hFTExtb1k3ak5heEVUVXBoOEMtd0tGMFR4MUx1N2ZhYWN4Si1fNmk5OC02RjZlTndCRlpWSQ?oc=5) |
 | MIT Rejects Trump’s Sweeping ‘Compact’ Offering Colleges Funding Advantages - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE91NzdDVDB3V2VvVDBPNHB1cHFQcjZfTFlHZlduUnQwRU9ZejgwLWh2UWNmTjFEMWpCNkR0VXlZUkpzeUU3dlkxNDUyWnc4Vlp1bm9Wb3BIZGtrbTdWSGE5aWhZVk96aElmMmFlN0JfMUZuWXpfTkt5M1RSaGw?oc=5) |
-| Timely troop pay is now in Trump’s hands - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOaUJDcGZCdFJ6aDA4eHBSZ0xjMHZNNWc2STBPU2NuWjF5M29XTWl5ajBDbkktVVNVRFlRRnF1M2h6cGNWVDlqeVZLbzBmWEZRUUVieVdaWWJ2TWpXVldhREV2WENwLTFaLVlOejg0YmJJMldwX05OY2tQYVY3eW02czBJdG85ZGlMdmJzU2o4a0cwT28zUHBOYUd0V3VNWUZlNHhWTkFrUm1tQQ?oc=5) |
 | FACT FOCUS: Trump paints a grim portrait of Portland. The story on the ground is much less extreme - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOSTBlaWMyeUN5dk8wUHZsWHV2OVhvZmpMTUVEVzFPbHB5V1laYUN3U01udEpHM1pmOVZaZWN4ekZmYThfcWpjUHRsdl9mQllSbGNtTzhWTDZIZnptckUyNlFDOHNveWpjM3ZycUtaODI3a01fZHEyVm15TGRBdEw4djRmVXVmWmZWOWlYRGNmaEJZajEzYkcwUG1SWkx3NTVkaGVtc1VvMjl3dXZv?oc=5) |
+| Timely troop pay is now in Trump’s hands - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOaUJDcGZCdFJ6aDA4eHBSZ0xjMHZNNWc2STBPU2NuWjF5M29XTWl5ajBDbkktVVNVRFlRRnF1M2h6cGNWVDlqeVZLbzBmWEZRUUVieVdaWWJ2TWpXVldhREV2WENwLTFaLVlOejg0YmJJMldwX05OY2tQYVY3eW02czBJdG85ZGlMdmJzU2o4a0cwT28zUHBOYUd0V3VNWUZlNHhWTkFrUm1tQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
