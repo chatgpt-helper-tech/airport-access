@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月10日 12:00:46（北京时间）**
+🕒 更新时间：**2025年10月10日 12:08:36（北京时间）**
 
 ---
 
@@ -11,12 +11,12 @@
 | How Trump secured a Gaza breakthrough which eluded Biden | [阅读全文](https://www.bbc.com/news/articles/cj3yke64vp6o?at_medium=RSS&at_campaign=rss) |
 | Jeremy Bowen: There's now a realistic chance of ending the war - but it's not over yet | [阅读全文](https://www.bbc.com/news/articles/cn5q04yr345o?at_medium=RSS&at_campaign=rss) |
 | What has been agreed and what happens next | [阅读全文](https://www.bbc.com/news/articles/cvgqx7ygq41o?at_medium=RSS&at_campaign=rss) |
+| New York’s top prosecutor charged with fraud after Trump pressures justice department | [阅读全文](https://www.bbc.com/news/articles/c4g9n4xj904o?at_medium=RSS&at_campaign=rss) |
 | Fossil found on Dorset coast is unique 'sword dragon' species | [阅读全文](https://www.bbc.com/news/articles/cdjzvzzy0mxo?at_medium=RSS&at_campaign=rss) |
 | Tech billionaires seem to be doom prepping. Should we all be worried? | [阅读全文](https://www.bbc.com/news/articles/cly17834524o?at_medium=RSS&at_campaign=rss) |
+| Woman in Dutch beach cold case named after 21 years | [阅读全文](https://www.bbc.com/news/articles/cpq5r9epd4qo?at_medium=RSS&at_campaign=rss) |
 | How 20 minutes of nature can boost your health | [阅读全文](https://www.bbc.com/news/articles/cvg0yvdjgn5o?at_medium=RSS&at_campaign=rss) |
-| New York’s top prosecutor charged with fraud after Trump pressures justice department | [阅读全文](https://www.bbc.com/news/articles/c4g9n4xj904o?at_medium=RSS&at_campaign=rss) |
 | Thousands more university jobs cut as financial crisis deepens | [阅读全文](https://www.bbc.com/news/articles/cp3ve5jegkvo?at_medium=RSS&at_campaign=rss) |
-| Man re-arrested at airport over Manchester synagogue attack | [阅读全文](https://www.bbc.com/news/articles/cz69q1p6376o?at_medium=RSS&at_campaign=rss) |
 | Celebrity Traitors episode two was as killer as Tom Daley's side-eye | [阅读全文](https://www.bbc.com/news/articles/c1edwzpdlx4o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
