@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 06:09:21（北京时间）**
+🕒 更新时间：**2025年10月11日 06:17:31（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump offers measured response after missing out on Nobel Prize - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxONUk4N01VckJTZGdMazR6WUQ4aUtRczNtdWthZzZOZTBza296MGlnTXBBYy1NajR1TmJwVE13WWNOVVQ4alVvZ2tlYkZ1YVZUT3ZNcXpzM2VkRllIalVIb21udTRIM3BVM202aHJUc0k0ekxXS0JSWURnMFJzdzNYMXR2MlRxdw?oc=5) |
 | Letitia James' indictment is becoming a major subplot in the NYC mayoral race - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQUWhYWElpeXZjX0EwZDBleTRyeWQyVEsxTEpVV1NFdTZzVWotdDNXUFJrQnVXQlVFY1JvOExMc3ZzVjFGV1VyeHNxVTY4ZUplbk1BM1pmcUd2TmUwRUpBWlF6S2tuNmFsaDhjTG9ORVZ5bC1ucnoxMUp3aXpVTkRrQ2pPOUNZREVHSVBZN292cVlQa080VC0zeHJETXhrdW52MkJaNjhheUVvYXdsTEZCYXA2NUNvQnJiSW10bzlGZnRJcUkw?oc=5) |
 | Macron reappoints Lecornu as French PM after days of turmoil - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9iSnlsZ3hyMnRicDZ6d2N4VFdOenUwVk1rcHJvZzNFYnAwNGZuV1ZncThkZ3lHNjZSNnRTM0RSczlkZ2xaeWFWTUxqd3c4b0NPd3hBSEwwNjMtd9IBX0FVX3lxTFAyWGZLWFkxVlRQdnBCNU9RbWMxbEM2T0lhcE5EcTB3SkxrS2hRdzQta3Z1NEw3bjFScUNNOWl6Tl9ibG9GVWdGM3d0TXFMb2h5Sk9LY09ZUm1UU3R1dFBv?oc=5) |
-| Airlines tell passengers to prepare for delays as government shutdown continues - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNZ2ZGVVE4eTlwM1plV09GVWVINEhWQ2xPN3BBbnlvd2E1SGRjbHcwakQ0Sm1MVEY4ZUs0ZkFqNjBYUHpxcXhJZmMtZUlqX0V5VEhLVTUzNnNTZkk1aXhjX0JjNlNqckRLTldKQjQ3UW54b2xPblZFV05QeE96Si0tRDBBYWpZRm5rNDEw0gGQAUFVX3lxTE1UQWVCRjFMcGpwU3R3MENnWDNiWXlOV2pkVi0wMnpsamRJeE05WjlKazN4TTctTGFQMW1NMDN0ckktREtVOHlEeXFVT0pFLURCblVqRnVSUVJEVVp2bG1GeFFDaC1ibzZINjhlYzZiZkJ1Z2xMRUdsdFJwcGFvV00tb0ljbkVQR25ZZ05wanF2Qg?oc=5) |
+| Trump puts extra 100% tariff on China imports, adds export controls on 'critical software' - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9OQ2JMVXVtWjZmd1RpRDVTbWZlQVlnUTBoZVhnRGtBOW9ORDVSYmNrczRGTWxDUEF5bWEtQTZudE5TSE4zU0JZNjFwZjZxc2Q5cTRTQmgtRTlYbnBhWDFkczNkSHVkc2hGNGdUNWZmb3o4UlYydkNTN3dIY9IBgAFBVV95cUxPRHRDR2MtLUotUEhFWlF0NktwUlBZT2tfYU5SaWd3SzNHY0liTU5ubUhPNGRuTVZjMjkxRm96T085NVFiOFZZOE9aNUI1QnFWeThtOEM3Nm5BRWtNR1hvNEJoVXNvV2tDWGRUT0gyQTc1NFZGUzZ0bDlFTDZfUjdhTw?oc=5) |
+| Air traffic controllers who duck unpaid work during the gov't shutdown could be fired, Duffy warns - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNa1pKaXBOZ281dDB0c1ZOdVZ0ZkJEZWs2Y28xdVdZbmp1YUlzSDMxaEhKUENLejJWbWg2eXdlcVZ1bDlLVktBb1NHODJPbkl3aFhrQ1JwNWNKMzZFXzNsX0xaQTNvc2FTaDV6WlNGTlI2ZzR6ZWV4SVlHWXpmZlc0TjR1NFZvTDFJdjd5T2FYSWYwNEhLb3RLNHc0eGRzVjA?oc=5) |
 | MIT rejects Trump administration deal for priority federal funding - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOTXVVSVJ6cUEtOFJiem5EdmlHX2ZtRERVUlZhQXkyQ0FsQThTX1ljZ1RpejJEMVp1R1otYnpJRjJxMGY1ci16SE9vZ18yVl8tVW5Zcllkb3gzeExteC1pZk9kUnNFRUpTeXFLb2dhdjAxNDlqNDJYOXppQk5DU04tMjhmQjkzUkQwMnZkQW5GVHB3WE11UzlOX2xER0U?oc=5) |
-| The Official Website of Governor Phil Murphy - NJ.gov | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFA2UGNCcGlPc1pWQXp1aUc2NVhDdC1JaG1pWFBlNVRtdUh5d2ZUZnZMSTdQVHM0YXlVY01FUE10NERfam5wWGlCSTJEWG96Q2pXaExzUkI0OFA2WGRpeWFxazEtMkN5SUYwRldMdTVLUG9lZDBkQ284dQ?oc=5) |
-| Democrats fume as Mike Johnson cancels more House votes: "They should be ashamed" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOUzlYa3FpNG1vTTZoTlBaWmFSbnJTYVRuaGwycUEyUGJIcXdKeUFyRE5KRDBvZFJzWEt1cUpWYUNrR3BDX1F5QTF6U1Y4bTJqR1Ntam1OTEI5N0lrbml6Y2pqWExSVUJzMlRFY0llX21HZ0FpY0NWaG5yMlBEeUFmTGV3?oc=5) |
+| White House has, for now, ruled out legislative fix for military pay - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNS2o5aGJNS3FPeVc4cUNjOHprQVkxM2oxcVZycUd4TmRZdkFMLU9rcFpBb2hGZmRtTHdXaXhTV3g0TWxObFZKMk5KRTVqbUNzdGItZFNBNU9YSkUtSzFoekMwYmMwMFVSLUdBUkRYT0hvZXJJWlZwdGVJM0tFT3lvN2FPQlgyS3Y2c1g4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
