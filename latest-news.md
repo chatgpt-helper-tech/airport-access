@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 23:49:59（北京时间）**
+🕒 更新时间：**2025年10月11日 23:57:51（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump administration begins laying off federal workers amid shutdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNYk9nWjBTZVlGWGs5Qjd4QnBFRGpRNTVFcHJPaVJGQ2hRZFRBc2ZrZk5vaUxKcm5SejNNZkpIV1V5ZU9yVENPdFVrV1k0Rmh2bTREVVk4MVpXVG1BRndWVlZsejhrY3ctaDQtbUNZbXRLRm0zWnNObW9GTlQzaENCVnhiREpHZUg2XzRCbndqOVRTdlZrVjlfX1FUYVhaYWh1bDdV?oc=5) |
+| These are the federal agencies Trump is targeting for layoffs - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPRVBKWGlleDdxa1ZsSDhrMHBscmhfdkNjVnhEUXdzMWM0ZVI5S3VENzFveFhBajB0enNLU0JlTTFXc2RzQU1iWG1HQmRhQzdMQTNjZ19faVZ4MnctR0VadERWWmJjNFdRX3QxZFQycVBna0ltWXVFY2pvSFVwNVl4amxGN1hIZzQ?oc=5) |
 | Joe Biden receiving radiation therapy for prostate cancer - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNcW1rTW4xYnk3amFiU0V1aEc3RW5tSUFVOGdrOElCMGlNOXREaEN1ZTlRbjZhei1EYWVZSWRIb1VTT0FTOFRlTDJ0UmFwNzFjZjNyQkJHOE5jT2Y2NFUwQzdVc1MxU09sUWdDOVlXMEFkbno0MGhxR0x2SzVfeU11MFllWmFWcUhTaUdPRFNOUUdKT3lieHc?oc=5) |
 | Four killed in mass shooting after Mississippi football game - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBSeE1Tb2pXTEJRblRONHNXV1ZXdVhadWpVMHVxNGYzX29McjZ2aXR1OHVDT1F0eTV0Vmt5ZmhFcERMVV9reDFRRkFxV3EwUHhRRzR4U3ZGR0pDZ9IBX0FVX3lxTE51QUx1bGM0ak9mQmZLdlRDVkJPVXZoZWRQY1h3QzdUUEZPNEJSQjdhbE9WLUxaLWdOcVp2WUZQVzhBdXhkdVlrM2pWaWVpVVN1c2h3amdlS2xMc1NENDRF?oc=5) |
 | ‘One-sided deal’: College presidents see Trump offer rife with peril - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQMlczMnJUUmdNVGJVWld3UFZRdUM5RXRsMzZpWkNKUlBldWEyLUJoVlpaZzlUSXQxOFNhUllWUUtxRm9kMlFUUFBDdkpfMkJDbDZhc2J6YXBTdk9mU2N1MzRPSjlrMW81dzFEd0RXRy1QNmYwZGdtdk5VajQzcXdpUVJLM1E2eWJrdmhzRERSaTdWZw?oc=5) |
