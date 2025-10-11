@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 13:41:24（北京时间）**
+🕒 更新时间：**2025年10月11日 13:48:47（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump’s Threat on Higher China Tariffs Wipes Out Stocks’ Weekly Gains - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOUVVpamlBbWVUX2dnS2NRb2E3eWdZTXc5QmRkWGpWSmtLVGFYRWZzVGE1TE5sOTFZa2RMNmZ5aElfU0poc1hSRXNOb05zU1JKXzBrMEhWWG0ydWNGcVFSUW81NXZHaXgzT1ptZnB0ejAwb1htUWVvaGgzQzhYNzgwbERDV09zTVpiVUNyczl4MzhBRFBDclVJajdqRnVlUTBoX1QwUnN6TlZzSlJ5aUZhWg?oc=5) |
 | Newsom signs historic housing bill to bring density to transit hubs - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNc2pubTRDSUNyWUozM1hHQ0RlM21seTlaV0lHSVlGd0hOdmVSdDZaeVJ2VkhzWGFOUk05UXpvOHp0Y1hrb1NPM1NjMGp0MUZIWkYwNVJxVmVMWlBYZDM4TGkzTkEzLVpSc2ZDeS1NQUpTaDNPOFBDSklrUmtGR01CS19Ea3BscUdDQWtKLXloLTZKMUVNMGVjNm9sd0VDMUMyNnBnVXpCUnREYXlZYVNzbkp1VDJXVFpTSmc4?oc=5) |
 | Trump speaks with Nobel Peace Prize winner Machado after his administration denounced the decision to award it to her - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNNnpwbUlrNFpSR3VuUmE0cENVTzVMTXRKMElVNFd0Smo2NVFwaGxaNHNqVTBxZHV3QUJzT01kWFdpbWJ3VnZKUWRpTW5XVGZMaEZ4RDVzaXhXU0hGVUlQVE5fZzBJT2NuaVo3NnZudFJ5M1licl91ZDhVbkhMM3ZNeUczeUc?oc=5) |
-| Trump visits Walter Reed medical center for ‘semiannual physical’ - PBS | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNN2o5Zm95UjI1Y3lqWU9yNVMxbG1WY0pRZ1c2WGxTelR0a3VIMXRIVkE0X2txaW9aTUcxcllQZDFQcUVHYzBNaXFxdktZcFR2cktpc1JjcnZyRF9BejAwTnFHcDB1VDZJNDdxMjdyVVVUbGpHRFc1YmJ6QTMxWXM0RG9zMjBXQ2ZOUnM3UldaQ2xmQmM?oc=5) |
+| Pentagon will build a training facility for Qatari pilots in Idaho - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNcnB1WTB6S093X0NMRzltejhVbThnUFptVjFDdDRXYnNSTDFTYWRhM1UzTEV3YmYxbnpoV0d2MUdvTnNWQUhVS3laVFMxeW1tLW4xVmxxM3o4dmdDb3JxeHY3U0J6ZkpLaWpxRzdFa21FUUNmVEFUTHhONzc3RlFxdVFuX0MxOWJBazdDTUlsMDBJZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
