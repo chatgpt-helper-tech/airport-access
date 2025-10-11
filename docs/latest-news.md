@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 08:56:55（北京时间）**
+🕒 更新时间：**2025年10月11日 09:00:55（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | White House Signals Federal Layoffs Have Begun Amid Government Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQQ3g1VWVYeHJuc1VDajJ6djVZUVFGdjZLTFJLd2dJcTdHeVpyRTNoTjVrU1dVRnFDRXdJZlh2LW53M25fUTFHMTlfUk43OTAtdEN0SkpyeDBMQ0ZucWFlN2Fob0ljQ0QwNmROMGgtMi12TkVqN3FSMlZPZTFTaXg3MVlYQ0Z4Z1YzMVVwaHliMjk?oc=5) |
-| 19 people dead or missing after massive blast at Tennessee military explosive plant, officials say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFBKdklZV19kd2dBWGY1aTJRREZtemJqZW5ST0VhM01TT25feUpyN0pUdFZEdzM2Q1lvazZQWG9hWEw2cUY0VzJnN09QWkp3YV96WXRSaFZnUU9KR3ZFZklnRGYtUG5MYjM1QnM2Z05tb3ZqU3hTSWVB?oc=5) |
-| Gaza ceasefire in effect, Israel says, as hostage release countdown begins - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQeVlDWW1NOEI5WS1yalVhb09BdVdIZU5SSDdGUHFlRXhLOTVVNDNEWmctcGx1cjNkTk5RcThUc3RvNktxRDM2RkJydkVzMFRETlFockhzQkdxV2FuRnNKdElKNnJNREdGWlFzLXJTSGNEeXE5bkpqWTQxdGVJVFhNU01nT2hKMzd4UUk1dUhsZ2NOZEVRRF9LeVBQQdIBoAFBVV95cUxNWGx1VzRPdTA5a0hraGsyclBraV9HRUFHc3U5QWp1b01UOHdobmhQUnVPNk03aGl5ZGswZ0VyTkNsVlhRSFlfaEQwRWdFWjJ5UG5tTHMycVhXOFM2LXVzYnl5b3RxYXRucUhpVnVKRGpDUWI0bWJ2c19zOC1SbU1GWlhNZlR5bWVON3pGSHpOc2EwYzBQa1pDQWJoa012bUNX?oc=5) |
+| 19 Missing in Deadly Blast at Tennessee Explosives Plant - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQRUFURXUzNXJoU0pZLXh4cjNmZUx6anoyNDFQMm1Jb0NFekwxQzJ3eXk5d1Axa204S29mcjdtcXRkZUZERWRNNWpUU3pJVk9HNzlnT3JjbVJnREwzTXQ1bW02RUNrdDdNZmxSRmtXMVFrWEp2bTh2Q0lia3JRSXItaDNfdUZkT2lZNV9Z?oc=5) |
+| Live updates: Israel says ceasefire in effect as troops withdraw from parts of Gaza - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOVXVDV0haazNUMlpwSjhJaFBOeU1Mc0VqNW5hdlFIdFoyY24tWHpsZFNsLWRWLXdrQlVkNjc5ODVud0E3d0o5cWQ1clA0SnlHV002b1ltWndLMzBjcGFpcXZ1SWNtdkVZLXh2ZzQ3M05sYkdKekFlVWlqbENWMVhqWlFIQ2RrY1lVbWc?oc=5) |
 | White House has, for now, ruled out legislative fix for military pay - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNS2o5aGJNS3FPeVc4cUNjOHprQVkxM2oxcVZycUd4TmRZdkFMLU9rcFpBb2hGZmRtTHdXaXhTV3g0TWxObFZKMk5KRTVqbUNzdGItZFNBNU9YSkUtSzFoekMwYmMwMFVSLUdBUkRYT0hvZXJJWlZwdGVJM0tFT3lvN2FPQlgyS3Y2c1g4?oc=5) |
 | White House blasts Nobel Committee for not awarding Peace Prize to Trump - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBEUy1nRmUySDVkVGlnYTlnWmpRNDJVR21PRGI1RUhTWWYxRTdfQ1N5SjgzMUZIOVhzRFlEYkNRRjZOVG5YWUl2T1Q4R1ZpUm9ZZWpsZW1keUdDZ9IBX0FVX3lxTFA1QU1zakt4SmV0THZsUUh0cEEycjlXN1NCa3VGVDFEMTlpNTF2NkpZd08ta0liUVpZYXViYXBFZXJqVG5vT3JZTmYxMlI2ek80X2thWGttVHlTcHlUTXFn?oc=5) |
 | Macron puts Lecornu back as France's prime minister just days after he quit - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPVW04eTlXa2F1Um41S2NqcXFrS3J3NDlHa3NKblJ5Ty1MaUFMUUtPTHFWQm1aN0ZHdldTTFFoZ3o4SFZaMk9RRlBYdVFEVGJwV1V2NFVTZWNQSXhuV0pBUUVXa3hFVGFscmtETnJrb3dkU3NiSlVmWkZxa0VXZTVEYkNUUjRfcnRaU05tVkVBMmdWRW8?oc=5) |
