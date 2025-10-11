@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 03:57:30（北京时间）**
+🕒 更新时间：**2025年10月12日 04:00:09（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Incoming nor’easter threatens major coastal flooding and damaging winds along East Coast - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQcml4VHNxZ1BhVkJ5cGswS19qckxpbnBCclRIVDNkU1pWUmtzV25CaXlualdPOVlBdVNHdnF6YWRiSVhsTm1Dam9iZTNPY01oc002OWhBSTlURzdqU3dmdlk3MWhMTWViSlI2R08xSVliaHpZOXhvQkZ2ZjduY3h6NEJJRUMwX3FWYkIxYUh2QlBNUQ?oc=5) |
 | ‘Make it stop.’ For lawmakers, the shutdown feels like purgatory (but with Thai food) - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxOdFl0U0FSTHVEcEV1TjRqVHZLTTI4dFU5N3lsYUgwUkd5LW1MQlNFalRUMDY2QXB1ZUMwbXVtT1FibXdiRzZUOWR1UFhjTHZZZmY4VHZMX2N1YVRqMjBYc1hKOHFQYl9SZzBfYzRVWE1TcGMzem1TbXdPSG92TF83akdnRll1Q0ZyYkctYnEtV1lJaXVIU0Nra3VPblV0TnlKTjMzcEJydkp3RlFGX09tVF9HSjdvd1E4Z3ptWkNTUGpNUQ?oc=5) |
 | Agencies prepare to bring aid to starving people in Gaza as ceasefire appears to hold - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxNQl9Icklrc0RScDlhSU1yTlVxcnZSWUV5b3dweGdqNXlwWE9rNGFyRHBCMk5hTTVSYzNrZWJsaFlwLS1URzJWMWluUV96ZkNvRlZwY0dUbjNidjBKWjFZbzVYLUxuQzRWYzRkdkl3QjRHWDVtb3dUTTYyYlJVRF9ERjNQRmdjeUxMaWdvN2lXNDJSSHpudzh6T2w2dDNkUmViSzBYdURjVG9uLWpXZk1zT0o2MXdjcHhockNfQnRHZHlEbVlvbkNOMVkzcw?oc=5) |
+| Four killed in mass shooting after Mississippi football game - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBSeE1Tb2pXTEJRblRONHNXV1ZXdVhadWpVMHVxNGYzX29McjZ2aXR1OHVDT1F0eTV0Vmt5ZmhFcERMVV9reDFRRkFxV3EwUHhRRzR4U3ZGR0pDZw?oc=5) |
 | Trump ally Laura Loomer calls a Qatari facility at a U.S. Air Force base an 'abomination' — Here's what it will actually do - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNT2FodkR4bFJZWjV2NlJPd3YtVEp1MDh5UE5kb05GVWhtRlZpSFltWXN2Wng0YWxEb1FjQjUxT0xLT0pIRUtfZ016cFJ3NTQySmdIbjQ5T2IzR3ZpZ2cxSG10ZHBKTTY3WWItOWdMTHF4b1VjU0NVOW53SDlYdlAxbEZfb2o1OWdnQUFFNGRUSENSLXM?oc=5) |
-| Four killed in mass shooting after Mississippi football game - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBSeE1Tb2pXTEJRblRONHNXV1ZXdVhadWpVMHVxNGYzX29McjZ2aXR1OHVDT1F0eTV0Vmt5ZmhFcERMVV9reDFRRkFxV3EwUHhRRzR4U3ZGR0pDZ9IBX0FVX3lxTE51QUx1bGM0ak9mQmZLdlRDVkJPVXZoZWRQY1h3QzdUUEZPNEJSQjdhbE9WLUxaLWdOcVp2WUZQVzhBdXhkdVlrM2pWaWVpVVN1c2h3amdlS2xMc1NENDRF?oc=5) |
 | Trump gets Covid vaccine and flu shot during second check-up of the year - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOcnpVZjVILWxfaHJYT0E0NTFDVG9zTjM2d293Rl9YOXBlekFyTXdWRVdlTVZ0bXlUQi1ULVBDaWI4THV6dUlpcXdoTERGZ3hsQmNwZWxzYUxhQzJMYzd0eFAtVFEycl9tdkJ5Ui1jdXcxQTBxeTlMTXAzcXZJd2ZPZ1R6X1lpQXpTRWgxdW1tM3JQMTRMRzBuVC1ndWU0Q3p4cEt6SkFpWFZVVGN0cU1IbzhnMVptQdIBVkFVX3lxTE5UeHdyelB3SWFNQUZmYlNycV9DU0h6dHlOajlZWFA2WHNnMkRMVmlvQjlVbV9LMkR6ZDJoUFpRQlU5UzlOZ0ZHb01Eem1OUjVYejIxX0RR?oc=5) |
 
 ---
