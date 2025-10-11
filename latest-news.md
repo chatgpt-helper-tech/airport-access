@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 11:25:16（北京时间）**
+🕒 更新时间：**2025年10月11日 11:33:21（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Government shutdown will stretch into another week as thousands of federal workers face layoffs - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQMnVFZjljOXZTNXJOT1NUckhoSVM5NUY0QjF5TGJuSllHTDJPSWpZWDhTWW0ybTZqSDI3VjVaOXl2ZmZ2eEhaWXE3QkJXeXFGcUpFeXZHOUVpUXE4TUg0V0l2VzNIdkpqcjdILURtWEVycC14Y2tBcHVhakoyWXdidmJZYVM0eWh0dFdqZ09JNTV2enZ5MGlOb0VHbzV5dWk1aEtGcmJaNkE2RUlNcG5qbWp5UkdYYUtHSzdVZmZMZG7SAcYBQVVfeXFMTzZVWjZEOFJuRXVWVW1HSkRTcWtjNUlBem1Edi1GR2tjdmx1eXFGTXR5RUZ3d1BnS0wzNlpzMlB5bXhpV0syNjdtcGJJblZEVXc5NngycXNFYWZmSjl4OUY1LUlvdFM1SE5ZZmxXdVBjZDZuWGc3c0t6V0x6WHdDUncydHdMdlB0TmxqTGpwbDZ2RzNLekRnN1ZuU0lOSTgyQUFnY2hfdkpKN1VrZU1GSTBvNjZTcUZNWTdHUEpOMlZvdnVZZzV3?oc=5) |
+| These are the agencies Trump is purging during the shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPRVBKWGlleDdxa1ZsSDhrMHBscmhfdkNjVnhEUXdzMWM0ZVI5S3VENzFveFhBajB0enNLU0JlTTFXc2RzQU1iWG1HQmRhQzdMQTNjZ19faVZ4MnctR0VadERWWmJjNFdRX3QxZFQycVBna0ltWXVFY2pvSFVwNVl4amxGN1hIZzQ?oc=5) |
 | Multiple people dead, 19 unaccounted for in 'devastating blast' at explosives manufacturer in Tennessee: Sheriff - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQTW04ejdtMFFTZTRDUmNlRXpYekFuZDF3VDFtWEVtZENJV2RuZTdUdmx5a3NHUkp3cl9JTUFVTUtGM3RwRWlyMllUWG5CeENwdUVjdWpfSzdaN0tfMWYycUQ1VU14Q3pPVm1ZdUx3UW5fOE1GcGY5Rl9kSjgzWkxxU0loR21EckI2bVptUVFSQXp1T0I4SVl3b2FR0gGfAUFVX3lxTE5LNl9OempTcVp1aE1kQldWeEFIN3pzQnRjUTVUNHBIYjEtbmhuQ3paOVNtV1hEaDB6XzZPSm5UTzBIT3JZcVFfUHlsaDRuc0JWM1ZUZmtrS3RENlhZNzZMVVA0ZmxGODQ1U0JvTG8xb1dnbVZOYzRycVJZcTdDY1g0XzZ4dHZDdEpwSm01U00xa2NOb095VWN4WXpXX0NNUQ?oc=5) |
 | October 10, 2025 - Israel-Hamas war - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOVXVDV0haazNUMlpwSjhJaFBOeU1Mc0VqNW5hdlFIdFoyY24tWHpsZFNsLWRWLXdrQlVkNjc5ODVud0E3d0o5cWQ1clA0SnlHV002b1ltWndLMzBjcGFpcXZ1SWNtdkVZLXh2ZzQ3M05sYkdKekFlVWlqbENWMVhqWlFIQ2RrY1lVbWc?oc=5) |
 | Newsom Stares Down LA Revolt in New California Housing Fight - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPRDcxdlZwOFR4dUFfaWVQclBEcUFLc295aC1tX18yYWtLMlFFaWhXNmFZR015M0d0ZjN6RDNmVks3bkF0MU5LNXhCUjcxaWdOc1hXb1BEVllVcjhzMnNfWlNRNjRNdGJMNlVCck9CU1JtR2tMa0ZuR3htLWczcEVRN1ZJQ2tlcWU2OU42SE5IM2U1YldnLW1wNWN5N2twaGJ5VVUxZlVDd1JmRVBl?oc=5) |
