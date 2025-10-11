@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 05:08:09（北京时间）**
+🕒 更新时间：**2025年10月12日 05:16:18（北京时间）**
 
 ---
 
@@ -8,14 +8,14 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Hamas mobilises fighters in Gaza as fears of internal violence mount | [阅读全文](https://www.bbc.com/news/articles/ce8482418plo?at_medium=RSS&at_campaign=rss) |
 | Actress Diane Keaton dies aged 79, US media report | [阅读全文](https://www.bbc.com/news/articles/cr5q5rp4r64o?at_medium=RSS&at_campaign=rss) |
-| Paedophile singer Ian Watkins dies after prison attack | [阅读全文](https://www.bbc.com/news/articles/cm2d2me0eljo?at_medium=RSS&at_campaign=rss) |
 | Why Labour's deputy leadership race could be a verdict on Starmer | [阅读全文](https://www.bbc.com/news/articles/c4g5nxzzky2o?at_medium=RSS&at_campaign=rss) |
+| Paedophile singer Ian Watkins dies after prison attack | [阅读全文](https://www.bbc.com/news/articles/cm2d2me0eljo?at_medium=RSS&at_campaign=rss) |
 | Biden receiving radiation therapy for prostate cancer | [阅读全文](https://www.bbc.com/news/articles/c1ede670jnyo?at_medium=RSS&at_campaign=rss) |
 | Nova festival survivor found dead two years after 7 October attack | [阅读全文](https://www.bbc.com/news/articles/cdxqx5vwqk2o?at_medium=RSS&at_campaign=rss) |
+| Strictly celebs starstruck as Wicked's Cynthia Erivo soars into movie week | [阅读全文](https://www.bbc.com/news/articles/ce8681j3n07o?at_medium=RSS&at_campaign=rss) |
+| Hamas mobilises fighters in Gaza as fears of internal violence mount | [阅读全文](https://www.bbc.com/news/articles/ce8482418plo?at_medium=RSS&at_campaign=rss) |
 | 'We are inventing captivity medicine': Hospital prepares for freed Israeli hostages | [阅读全文](https://www.bbc.com/news/articles/c4gvg8jx7gmo?at_medium=RSS&at_campaign=rss) |
-| Hamas presses Israel to free prominent prisoners as part of Gaza deal | [阅读全文](https://www.bbc.com/news/articles/cd727d2ne42o?at_medium=RSS&at_campaign=rss) |
 | What we know about the Gaza ceasefire agreement | [阅读全文](https://www.bbc.com/news/articles/cvgqx7ygq41o?at_medium=RSS&at_campaign=rss) |
 | A facelift at 28? Why young people are turning to plastic surgery | [阅读全文](https://www.bbc.com/news/articles/czxwvr57424o?at_medium=RSS&at_campaign=rss) |
 
