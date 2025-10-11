@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 21:57:14（北京时间）**
+🕒 更新时间：**2025年10月11日 22:08:39（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Bridget Phillipson v Lucy Powell - behind the battle for Labour's deputy leader | [阅读全文](https://www.bbc.com/news/articles/c4g5nxzzky2o?at_medium=RSS&at_campaign=rss) |
+| Why Labour's deputy leadership race could be a verdict on Starmer | [阅读全文](https://www.bbc.com/news/articles/c4g5nxzzky2o?at_medium=RSS&at_campaign=rss) |
 | Tony Blair met Jeffrey Epstein while prime minister | [阅读全文](https://www.bbc.com/news/articles/c5yk16gpxj0o?at_medium=RSS&at_campaign=rss) |
 | Surge in Chagos arrivals prompts row over housing costs | [阅读全文](https://www.bbc.com/news/articles/cd721j8390zo?at_medium=RSS&at_campaign=rss) |
 | Queen recalls Jilly Cooper's wish to 'get plastered' | [阅读全文](https://www.bbc.com/news/articles/cvg9gql9dr3o?at_medium=RSS&at_campaign=rss) |
