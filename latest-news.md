@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 04:48:58（北京时间）**
+🕒 更新时间：**2025年10月12日 04:56:31（北京时间）**
 
 ---
 
@@ -9,10 +9,10 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Hamas mobilises fighters in Gaza as fears of internal violence mount | [阅读全文](https://www.bbc.com/news/articles/ce8482418plo?at_medium=RSS&at_campaign=rss) |
+| Actress Diane Keaton dies aged 79, US media report | [阅读全文](https://www.bbc.com/news/articles/cr5q5rp4r64o?at_medium=RSS&at_campaign=rss) |
 | Paedophile singer Ian Watkins dies after prison attack | [阅读全文](https://www.bbc.com/news/articles/cm2d2me0eljo?at_medium=RSS&at_campaign=rss) |
 | Why Labour's deputy leadership race could be a verdict on Starmer | [阅读全文](https://www.bbc.com/news/articles/c4g5nxzzky2o?at_medium=RSS&at_campaign=rss) |
 | Biden receiving radiation therapy for prostate cancer | [阅读全文](https://www.bbc.com/news/articles/c1ede670jnyo?at_medium=RSS&at_campaign=rss) |
-| We're grateful for what Trump is doing for peace, Nobel winner tells BBC | [阅读全文](https://www.bbc.com/news/articles/c5y8y25l250o?at_medium=RSS&at_campaign=rss) |
 | Nova festival survivor found dead two years after 7 October attack | [阅读全文](https://www.bbc.com/news/articles/cdxqx5vwqk2o?at_medium=RSS&at_campaign=rss) |
 | 'We are inventing captivity medicine': Hospital prepares for freed Israeli hostages | [阅读全文](https://www.bbc.com/news/articles/c4gvg8jx7gmo?at_medium=RSS&at_campaign=rss) |
 | Hamas presses Israel to free prominent prisoners as part of Gaza deal | [阅读全文](https://www.bbc.com/news/articles/cd727d2ne42o?at_medium=RSS&at_campaign=rss) |
@@ -31,7 +31,7 @@
 | Nor’Easter Forecast: A Strong Storm Threatens the East Coast With Flooding - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPdEdMMXFQODMzUnd2QzRLbDEySGdXX3hkd3drVkxZd3FjdjlVM1Y4M2JoTmt4WERxblBMbHlUR3FzbDNSd2NuajFfanI5WFBHSWNBX0dwaUQ4VUpNRTJjQVhMSFV1Q3ZnOGdkcG1id0ZnZWY1UUN2U01zR0M2SEw2Y3VhSjF1Wkh0aFIza1BiRmdGNFk?oc=5) |
 | Agencies prepare to bring aid to starving people in Gaza as ceasefire appears to hold - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxNQl9Icklrc0RScDlhSU1yTlVxcnZSWUV5b3dweGdqNXlwWE9rNGFyRHBCMk5hTTVSYzNrZWJsaFlwLS1URzJWMWluUV96ZkNvRlZwY0dUbjNidjBKWjFZbzVYLUxuQzRWYzRkdkl3QjRHWDVtb3dUTTYyYlJVRF9ERjNQRmdjeUxMaWdvN2lXNDJSSHpudzh6T2w2dDNkUmViSzBYdURjVG9uLWpXZk1zT0o2MXdjcHhockNfQnRHZHlEbVlvbkNOMVkzcw?oc=5) |
 | Four killed in mass shooting after Mississippi football game - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBSeE1Tb2pXTEJRblRONHNXV1ZXdVhadWpVMHVxNGYzX29McjZ2aXR1OHVDT1F0eTV0Vmt5ZmhFcERMVV9reDFRRkFxV3EwUHhRRzR4U3ZGR0pDZw?oc=5) |
-| Katie Porter Videos Give California Rivals a New Opening - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOQ3FoMVY1RVJETHRDcGdlSUd5UlpNckc2Rm1LaHRBUFJteTNDY1hFVTRXQjFQSC0zZmJ5X2pIVWl1OFdyQV9yRUpaQ0tKMEpLallWeGFtYjBWVHlCcGNmSDB4azlpRlVlR2pEWFpERUtreU5BU29lNFRsb01BNGFrcV9DalBRbVFVaXc?oc=5) |
+| 7 times politicians imploded in TV interviews - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQX0NkcUhDeG1lWGQ2ZmtGaHlOTjREclUzM1phWF9sQk1ycHd0eDJmQTFra0FWMWpCdjM3RVdHckFrMDVjYVNnSlppNHVBRzhwR1hkTHVTOTZlbkM0WV9xR1hOLW5mWjNkTk1OaXpsWUNHNUJaTk5BZExocmptZDZRYQ?oc=5) |
 | Trump ally Laura Loomer calls a Qatari facility at a U.S. Air Force base an 'abomination' — Here's what it will actually do - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNT2FodkR4bFJZWjV2NlJPd3YtVEp1MDh5UE5kb05GVWhtRlZpSFltWXN2Wng0YWxEb1FjQjUxT0xLT0pIRUtfZ016cFJ3NTQySmdIbjQ5T2IzR3ZpZ2cxSG10ZHBKTTY3WWItOWdMTHF4b1VjU0NVOW53SDlYdlAxbEZfb2o1OWdnQUFFNGRUSENSLXM?oc=5) |
 
 ---
