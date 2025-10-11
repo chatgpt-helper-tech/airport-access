@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 16:01:41（北京时间）**
+🕒 更新时间：**2025年10月11日 16:08:14（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | New York Democrats rally behind Letitia James day after indictment for mortgage fraud - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQak93YTBORkxVSjZhalFPZVB6UDAyWjNSUzZXdUlPckFyd3oxNVVlaU5uUFlnVUJqdzNTd20zdnFqWVloSnVpdVZhNkFBN0ZCRUpDNDhEQ2piQ1d0cFZ3X0JobHFHN1RSX2M3NjJiYzlvWXVhSDlzdDB6RVFjS1dabThCaElfRnV4SHY5Qlo3LWRNMWhkZHc?oc=5) |
 | Trump speaks with Nobel Peace Prize winner Machado after his administration denounced the decision to award it to her - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNNnpwbUlrNFpSR3VuUmE0cENVTzVMTXRKMElVNFd0Smo2NVFwaGxaNHNqVTBxZHV3QUJzT01kWFdpbWJ3VnZKUWRpTW5XVGZMaEZ4RDVzaXhXU0hGVUlQVE5fZzBJT2NuaVo3NnZudFJ5M1licl91ZDhVbkhMM3ZNeUczeUc?oc=5) |
 | Newsom signs historic housing bill to bring density to transit hubs - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNc2pubTRDSUNyWUozM1hHQ0RlM21seTlaV0lHSVlGd0hOdmVSdDZaeVJ2VkhzWGFOUk05UXpvOHp0Y1hrb1NPM1NjMGp0MUZIWkYwNVJxVmVMWlBYZDM4TGkzTkEzLVpSc2ZDeS1NQUpTaDNPOFBDSklrUmtGR01CS19Ea3BscUdDQWtKLXloLTZKMUVNMGVjNm9sd0VDMUMyNnBnVXpCUnREYXlZYVNzbkp1VDJXVFpTSmc4?oc=5) |
+| Trump announces new 100 percent tariffs on China, may cancel Xi meeting - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5SS0RCTmN0N0pMR0RqX2RvMVlsSDNTX2FGb3JLamlxOEtBNUNIamRBQUhqZDltZUxSUVpId2pwNkluTVZfU3FlSXhzMk8yUk5YdjBmWGNnZnZ6cUc4R0pIMXRCcFlYbVMxLW55aktrMm5YV1FuZGRzZVQwdXY5ZTQ?oc=5) |
 | Trump gets Covid vaccine and flu shot during second check-up of the year - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOcnpVZjVILWxfaHJYT0E0NTFDVG9zTjM2d293Rl9YOXBlekFyTXdWRVdlTVZ0bXlUQi1ULVBDaWI4THV6dUlpcXdoTERGZ3hsQmNwZWxzYUxhQzJMYzd0eFAtVFEycl9tdkJ5Ui1jdXcxQTBxeTlMTXAzcXZJd2ZPZ1R6X1lpQXpTRWgxdW1tM3JQMTRMRzBuVC1ndWU0Q3p4cEt6SkFpWFZVVGN0cU1IbzhnMVptQdIBVkFVX3lxTE5UeHdyelB3SWFNQUZmYlNycV9DU0h6dHlOajlZWFA2WHNnMkRMVmlvQjlVbV9LMkR6ZDJoUFpRQlU5UzlOZ0ZHb01Eem1OUjVYejIxX0RR?oc=5) |
-| Trump’s Threat on Higher China Tariffs Wipes Out Stocks’ Weekly Gains - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOUVVpamlBbWVUX2dnS2NRb2E3eWdZTXc5QmRkWGpWSmtLVGFYRWZzVGE1TE5sOTFZa2RMNmZ5aElfU0poc1hSRXNOb05zU1JKXzBrMEhWWG0ydWNGcVFSUW81NXZHaXgzT1ptZnB0ejAwb1htUWVvaGgzQzhYNzgwbERDV09zTVpiVUNyczl4MzhBRFBDclVJajdqRnVlUTBoX1QwUnN6TlZzSlJ5aUZhWg?oc=5) |
 | Pentagon will build a training facility for Qatari pilots in Idaho - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNcnB1WTB6S093X0NMRzltejhVbThnUFptVjFDdDRXYnNSTDFTYWRhM1UzTEV3YmYxbnpoV0d2MUdvTnNWQUhVS3laVFMxeW1tLW4xVmxxM3o4dmdDb3JxeHY3U0J6ZkpLaWpxRzdFa21FUUNmVEFUTHhONzc3RlFxdVFuX0MxOWJBazdDTUlsMDBJZw?oc=5) |
 
 ---
