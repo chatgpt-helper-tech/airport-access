@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 17:17:58（北京时间）**
+🕒 更新时间：**2025年10月11日 17:25:07（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump critic and former national security adviser John Bolton to be charged soon, sources say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxOeTRaZmJsYXR5bjBmRktpNnlMelRyd1A4UC1vVlpMSXNEc0Zpd0QxLU1nNEhNODQ0ZnNZb0JOLWtXU05kUmpmTEYxWHFscGZ0bWo3TXNuS1h0b1E4N1ZEdmI5NklMcnVxT2hKcTJwU1VpS1VKWG5tNDBJdEtMV2tYM2FpNWJzcGo2NWR6YVB2RWxOVF9XUmp1TmZTNUxoWGFMMEpsSTVlY2ZxZ1FHalpZRWZIOXotQVZrdVFuUDk2b2ZpSGpNc21nNlNFM1BjZ9IBVkFVX3lxTE40dG1Wa20wUXlIWnhzYWFmMWRmUkgwajR5Nkl4NlRLemRGSWpTZW1WVkoxSmJNOWcwekhiNWx6c2E5SG9lN3JxU3VlSzBtNF9EeVE1clBn?oc=5) |
 | Federal employees brace for first partial paychecks as shutdown continues - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPQ1hnejctWHlFeHMxOWJRYnZXWVJhMWQ3bWh3eVVGMEVtRGFLX0JuY0lFby1RZVVHYUpicmlRZnNHNW9YY1ZQQV9PeGdkZEx0Q2VHTjk3TW5MaTVTZTVwbVE0TEdNNW5WVGJhSU1mY3Bxb1JFQlk5VHAtclJUM24zU2NQT3N4c0IxR3hHaVdkRnJZU0xWR2RueHZMR3h1dVNhd0hlMnFFQkV4ZDJnY05rZ2tvbnFuN3ZkSkx1Nk53S1VUZVFHcVpNcDF4WEd6UQ?oc=5) |
 | Trump speaks with Nobel Peace Prize winner Machado after his administration denounced the decision to award it to her - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNNnpwbUlrNFpSR3VuUmE0cENVTzVMTXRKMElVNFd0Smo2NVFwaGxaNHNqVTBxZHV3QUJzT01kWFdpbWJ3VnZKUWRpTW5XVGZMaEZ4RDVzaXhXU0hGVUlQVE5fZzBJT2NuaVo3NnZudFJ5M1licl91ZDhVbkhMM3ZNeUczeUc?oc=5) |
-| Newsom signs historic housing bill to bring density to transit hubs - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNc2pubTRDSUNyWUozM1hHQ0RlM21seTlaV0lHSVlGd0hOdmVSdDZaeVJ2VkhzWGFOUk05UXpvOHp0Y1hrb1NPM1NjMGp0MUZIWkYwNVJxVmVMWlBYZDM4TGkzTkEzLVpSc2ZDeS1NQUpTaDNPOFBDSklrUmtGR01CS19Ea3BscUdDQWtKLXloLTZKMUVNMGVjNm9sd0VDMUMyNnBnVXpCUnREYXlZYVNzbkp1VDJXVFpTSmc4?oc=5) |
 | Trump’s Threat on Higher China Tariffs Wipes Out Stocks’ Weekly Gains - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOUVVpamlBbWVUX2dnS2NRb2E3eWdZTXc5QmRkWGpWSmtLVGFYRWZzVGE1TE5sOTFZa2RMNmZ5aElfU0poc1hSRXNOb05zU1JKXzBrMEhWWG0ydWNGcVFSUW81NXZHaXgzT1ptZnB0ejAwb1htUWVvaGgzQzhYNzgwbERDV09zTVpiVUNyczl4MzhBRFBDclVJajdqRnVlUTBoX1QwUnN6TlZzSlJ5aUZhWg?oc=5) |
-| Activist Laura Loomer blasts Pentagon over planned Qatar military facility in Idaho - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQQTdhbHhxbG01TzJQQ01Nc0J5M0l1LXJJSnRvY0xEX1hLMkU2SlBja1RScmEwZ2IySUotNHRucGx6WTZZY0syVncySmFVOElBNHpPUTlHbk5qUm1RZ1R1R1h5TFNHWWZWVVlaeWdwSUVPb1E5YkNFU1FBLS1BSVBGR0Z3dUQzd1ozZWFULUoxb3pvSWRUN0JvX2tUTGxMX0xmVVJydEFFRlFnZkJkUHdtYWdEQW5KRVItOEc0Um5jSnFTb0E?oc=5) |
+| Newsom signs historic housing bill to bring density to transit hubs - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNc2pubTRDSUNyWUozM1hHQ0RlM21seTlaV0lHSVlGd0hOdmVSdDZaeVJ2VkhzWGFOUk05UXpvOHp0Y1hrb1NPM1NjMGp0MUZIWkYwNVJxVmVMWlBYZDM4TGkzTkEzLVpSc2ZDeS1NQUpTaDNPOFBDSklrUmtGR01CS19Ea3BscUdDQWtKLXloLTZKMUVNMGVjNm9sd0VDMUMyNnBnVXpCUnREYXlZYVNzbkp1VDJXVFpTSmc4?oc=5) |
 | Trump gets Covid vaccine and flu shot during second check-up of the year - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOcnpVZjVILWxfaHJYT0E0NTFDVG9zTjM2d293Rl9YOXBlekFyTXdWRVdlTVZ0bXlUQi1ULVBDaWI4THV6dUlpcXdoTERGZ3hsQmNwZWxzYUxhQzJMYzd0eFAtVFEycl9tdkJ5Ui1jdXcxQTBxeTlMTXAzcXZJd2ZPZ1R6X1lpQXpTRWgxdW1tM3JQMTRMRzBuVC1ndWU0Q3p4cEt6SkFpWFZVVGN0cU1IbzhnMVptQdIBVkFVX3lxTE5UeHdyelB3SWFNQUZmYlNycV9DU0h6dHlOajlZWFA2WHNnMkRMVmlvQjlVbV9LMkR6ZDJoUFpRQlU5UzlOZ0ZHb01Eem1OUjVYejIxX0RR?oc=5) |
+| Pentagon will build a training facility for Qatari pilots in Idaho - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNcnB1WTB6S093X0NMRzltejhVbThnUFptVjFDdDRXYnNSTDFTYWRhM1UzTEV3YmYxbnpoV0d2MUdvTnNWQUhVS3laVFMxeW1tLW4xVmxxM3o4dmdDb3JxeHY3U0J6ZkpLaWpxRzdFa21FUUNmVEFUTHhONzc3RlFxdVFuX0MxOWJBazdDTUlsMDBJZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
