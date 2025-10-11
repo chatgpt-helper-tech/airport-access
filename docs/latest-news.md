@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 07:16:30（北京时间）**
+🕒 更新时间：**2025年10月12日 07:25:13（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Nor’Easter Forecast: A Strong Storm Threatens the East Coast With Flooding - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPdEdMMXFQODMzUnd2QzRLbDEySGdXX3hkd3drVkxZd3FjdjlVM1Y4M2JoTmt4WERxblBMbHlUR3FzbDNSd2NuajFfanI5WFBHSWNBX0dwaUQ4VUpNRTJjQVhMSFV1Q3ZnOGdkcG1id0ZnZWY1UUN2U01zR0M2SEw2Y3VhSjF1Wkh0aFIza1BiRmdGNFk?oc=5) |
 | Court: National Guard troops sent to Illinois by Trump can stay but can’t be deployed for now - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQaVVBQ1RTQjJjeUdFWURfQjVVdG9RR0NkZnZ6QUxEcE1Kc3FJVmxaellSczdLakd3dWszMVZkMVptNVdyOVc0ODJGU25JOGxHZFR4VVBiUVNWbThTQS1oOEJWdDRodWJIeDVuc2puVzR0NFA5eHhFQjIzZkJRUG1qYi10aGFQM1Nwd19sakRRTmcxbDZRNTg2emFkNUM5clQ2ek9QWVRn?oc=5) |
 | Mississippi Shooting: At Least 6 Dead and Many Wounded After Homecoming Game, Official Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQTjZyTjhuZzBPNE82OGI5QjJIWEVqSnc4ektOdG1xOV95TldzdU1rUDhBcTgwSWIwTUsyYlJNMVh6UGpIalNXOTVrdVFGREE4Qy0xaENDMWNnMm5nTVB1YzVuQzl2TFBicjRsVUxIS25zU0kzc3hqWUJOVkkwZmdmaA?oc=5) |
+| Trump's indictment of New York attorney general Letitia James stirs concerns for Black women leaders - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOWmx6UmliSEVrYlByTEt6RHNsd2JSVGdSbnJLRzFoZjR5dW9SYzlzNHNVOFVOeV9NMXZyTnBkMm82YUZzMXJkaGdVdldkbDBmNl8wYjBXUkw5SW85TTFKYWRGejBOU1R5UWZzTTV3SFJwa2xZSXJ6TGNRdmNGOGl4OXF3LWdsTlZIZEd4RGVTWEFiMmNDdHhPWnZULXVLU1IwSWJUWXZnb0xtWWM?oc=5) |
 | Nobel Prize winner Machado says Venezuela is in 'chaos' under current regime - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQV1lfV2xsQUtBUHJtSWV6cFhqS3I2NWZIS0E5b0xOYzJyWEpQcDRkYXFFTkFTUHJXVW1RSWVWYm82TmxNcVAtMC1ybVZqSTcwVzlxLU51ajlfYXFicUI2RmM4RDFhY0pXdUpHRFVVdkVkTFNrN25zQTBXVFRsWWx1Y09MT1RGUWp6cnc?oc=5) |
-| Missouri Democrats have an opportunity to block a new congressional map. They say they’re largely on their own. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPWjVCSkdnQlpEVUQ2eV9ucFdXMVF4YmZudFdWM2ZHZGk3VmtyY0N0Wm5XZG5JRDBqNkI5MmZVVGV2UHJBWFFXNGlrRGNoR2ZwS3lFQlJLaWp3eE5vcmNVS2IyMjl1dTFHdXUzRFNFZVltLWZFcDVWR1BzT0o4YTdTaDRqTFZZUmNpTEQ0bEt2WVM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
