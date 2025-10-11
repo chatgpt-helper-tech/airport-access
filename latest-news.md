@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 11:57:18（北京时间）**
+🕒 更新时间：**2025年10月11日 12:00:28（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump threatens 100% tariff on Chinese goods over over rare earth restrictions - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1lcFF0emJhMzc2ZGlPa0VaSmhhc0ZkVGc4c0NsSFZrMVYxSlZnNXJmSzdNZTVac1ItMVRnSVhsNGRIbXdHX2tYTUFwMzB5b1VWTk1OVE9tQUh3VzdzT0x4M1A5b0kzZ1VVeU10Q0dxbU1MVUEy?oc=5) |
 | MIT rejects federal funding deal with Trump administration - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9TRXFLNnFOSkpxdFdxLWtCdzQ5R2tDdDhWbHZhSW9POW1wU1J4MTRyNlRQOE9zRHlqazRNMWVPcHhVTlluaWw4TVZSbXVKRFJDSjgtMXV3aVhQUdIBX0FVX3lxTE8xUHJzZ3lDRWN2cWhkUTlrR3BSclZjbGtXbVo4YVJSa3g0VFJjNU9oYU01WjIxbThiaU1xUXF6em1CTFZTRENsaFhzRWY5bFlpMmZlQlJPS1hOLTd1ZGVn?oc=5) |
 | Things to know about the Qatar training facility planned for an Idaho Air Force base - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOQUdRc3QwWEhBYW5FYWdtc2pvc3gyRWQ1NWdwSktlQkE5ODRqUHNYUEg4c2QzeXVtTGpnd0NwSTdHSEZ6NHhLRGpvN05IS25ZVGdHMFc4bS1iNXotNElnMEFYR0ZLb0g4bGdVdE1wVmpjWTV3UmxNVUxUcGpDX21TQUs0NXhNRGdDZE9aMmRzV0R3Qk0?oc=5) |
-| Superintendent, Devon Horton, Accused of Stealing Thousands From Illinois School District - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPNjlmX0VhcGRyNmdNUUtqRkFsMXpLdlhEaW9HTHVVQ3BLZUVJZDNHWlNpYVQza0Vkei1OMURWczRYRFdnZkNRUWl5VFBuckl4MW1xb0hSUlJiTGtYMmo2OEMwc1N0ZVFVa3U4VXI4NmRoTXotSmRpZDd6MGdmVFBmTlBLSXRuUURVUGg3MWtiMDEtUmowWExv?oc=5) |
+| Trump remains in 'exceptional health,' doctor says after president's check-up at Walter Reed - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNVFEwWGpwUC1Na3pENjhxaG9rNUQ1UWIxa2JkYmRUWllCVTRwa251NWZpZXNKb1VXSmprZm80WUNodnVVbUJqak9XN0ZiYUY0emNTdmlDRE9xbXZtaS1COUkwdDJEak8wSUkzRlVySkdjMEtaSnk1eDZXa1R1eDBzS3BzN1BfR2ViSVRpOWM1cF9VT0UxdDRUX0dOQW50elRHUnVkRXV30gGrAUFVX3lxTE1JRnNUQTNoRVNIcFI5RERhSWczZDZwamFIekhhRVJ3bUJwWnVsUDBMNEZ3WW5CUXZGTnV0MlBfUEpqclRZU3hsc2JCQ2k0Y0s1U3BOVXM5LTkwcTcybG83emc2MFdEMU41eTFjc0ZMY2tfTXFYMUtjamRQWTF4bDV5VW1qV2d0Zk1UOFVsV1VMd3VfenFWb3ppNnN0R1BHWUNFYW4tZnliZnA4QQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
