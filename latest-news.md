@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 05:00:07（北京时间）**
+🕒 更新时间：**2025年10月12日 05:08:09（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Diane Keaton, Oscar-winning star of Annie Hall and The Godfather, dies aged 79 - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQM0V3MmVzSVppdXQtQ29vMENvUk1hSkF3X3RXNVEwbkpWRERpeFd0RlF2dHNlTGNEeW9SUUd5dTBsbXJOR0xBYTRBOGVfdGhmeGZpUHdzRXc3aFJGQUJaUktsdzROXzg1N1djT3prVjJQbGd6RS12RDRIcWtFY0M0RVRmcjlVQmtCeV9KbTh5MW1jMGNMeUxuRkhJX1ZPd1liLUNoZ0NrTDBmVnktVlkyNFRQOTg5VWNOa2luVldR?oc=5) |
-| No survivors from blast at Tennessee explosives factory, sheriff says - PBS | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNZDlEdUlvcjM0RXVSaHo4ZDZuVzF5QVMxMFNZRTdLWlhucUxYUEpHNk9TQXllbjhaLW1vUFBnVXZiOFUyeXZZaEZPZE5QdmM5Ym1NRkY5cXVCd2UySlBicEx3aVJGZHZBVnQwWHVneHlOZjRTNk9oOWRZWXZncUFJNV91OG1WbjEyVzZRTVpPZzhfd3U1VENhX25yTXhjUDVqNlUtLVR6OA?oc=5) |
 | Trump authorizes troop pay amid government shutdown - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOTHk5Q3BDeG9GSTItbF9XY1BQbHRBOE1nbW5BRHEzNTVNaEhCRHltazY0SmdCcXV6c2x0QU1KM29fRURMNmZ3VEJ1M2xxR05hOWUwWjVfcWdMQjQzTlZtemZBNm01RHgzbXZsWGhTTThzdmFkSFVZbjRSUzJsazlNTzktY0tJN3JRU1ZhaDg3N1Z3eERvVzYzVmpjV01SMlgtdVJTQ3VkbHB5SS01azhxOE5JNDjSAVZBVV95cUxQNzFvcHdBZElabllVMEpWVHE2aEZHaXJJeUFCNGhKdkxmc3VnZUhWdXVhdE5sQzhXWDk1SXdTQWE5NW1pR1oyUC1vVUV4SDVWcHdqV0kwQQ?oc=5) |
+| No survivors in Tennessee explosives factory blast, officials say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOMmRlb3ExdG5sQmFlaGxPMVY5ZFNYUFF1b0M4RjFwSU9zYnk4d2JoY0JmSjg3UlNacFhfSmRDS3JSOEJ6NFhha1pGT2FHZFFaT2J5TnFNelJNdm41RFU1QjgxaDJDeDg5TllOSlJaaUcweVZKSDh5TDg3UGxlMXVZMDdkYThpbGdKdjFaNzViTnl6X0U?oc=5) |
 | These are the agencies Trump is purging during the shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPRVBKWGlleDdxa1ZsSDhrMHBscmhfdkNjVnhEUXdzMWM0ZVI5S3VENzFveFhBajB0enNLU0JlTTFXc2RzQU1iWG1HQmRhQzdMQTNjZ19faVZ4MnctR0VadERWWmJjNFdRX3QxZFQycVBna0ltWXVFY2pvSFVwNVl4amxGN1hIZzQ?oc=5) |
+| Mass firings hit CDC - Politico | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE16LW5fM0ZoRnBfeWRvcGRXTnpNTzJ2bjR0WjB5a2dLSTRVTy1rQWJReVFzcW9VYVNtVjZiaU1wblpuQWx2UWJHZnBZVV9FMmtGN0xuQUotZmtycnU2YVVMdjFfclpPRHBZbXowZ3o2S2NVeDlJeTcybQ?oc=5) |
 | Joe Biden receiving radiation therapy for prostate cancer, spokesman says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1adEJpR1FYbFJIanNNNTRPNUFjNnE5OFRfdWNJTFlqY0JqUDJQTHdpTG41M3VfbFZxWktMd1NKUEVQWngwSkVfeW5EX2RNRXhxSTlrME01ZXFlQdIBX0FVX3lxTE5kVk03ZkU1MFoyeTR1TEpsMVVPbW5ScExCVWhNMlA4Y1MzSndwVXd2aXBLOXI3UDJrYnQyOVFfVDBsb2VTMUFrRlZ4WGhnQlpIY3owTXlEMElJQlhJUXY0?oc=5) |
 | Israel awaits the release of hostages, as Palestinians return to the ruins of their homes - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQeVlDWW1NOEI5WS1yalVhb09BdVdIZU5SSDdGUHFlRXhLOTVVNDNEWmctcGx1cjNkTk5RcThUc3RvNktxRDM2RkJydkVzMFRETlFockhzQkdxV2FuRnNKdElKNnJNREdGWlFzLXJTSGNEeXE5bkpqWTQxdGVJVFhNU01nT2hKMzd4UUk1dUhsZ2NOZEVRRF9LeVBQQdIBoAFBVV95cUxNWGx1VzRPdTA5a0hraGsyclBraV9HRUFHc3U5QWp1b01UOHdobmhQUnVPNk03aGl5ZGswZ0VyTkNsVlhRSFlfaEQwRWdFWjJ5UG5tTHMycVhXOFM2LXVzYnl5b3RxYXRucUhpVnVKRGpDUWI0bWJ2c19zOC1SbU1GWlhNZlR5bWVON3pGSHpOc2EwYzBQa1pDQWJoa012bUNX?oc=5) |
 | Agencies prepare to bring aid to starving people in Gaza as ceasefire appears to hold - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxNQl9Icklrc0RScDlhSU1yTlVxcnZSWUV5b3dweGdqNXlwWE9rNGFyRHBCMk5hTTVSYzNrZWJsaFlwLS1URzJWMWluUV96ZkNvRlZwY0dUbjNidjBKWjFZbzVYLUxuQzRWYzRkdkl3QjRHWDVtb3dUTTYyYlJVRF9ERjNQRmdjeUxMaWdvN2lXNDJSSHpudzh6T2w2dDNkUmViSzBYdURjVG9uLWpXZk1zT0o2MXdjcHhockNfQnRHZHlEbVlvbkNOMVkzcw?oc=5) |
