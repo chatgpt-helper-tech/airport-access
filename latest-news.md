@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 21:17:44（北京时间）**
+🕒 更新时间：**2025年10月11日 21:24:30（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Newsom signs historic housing bill to bring density to transit hubs - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNc2pubTRDSUNyWUozM1hHQ0RlM21seTlaV0lHSVlGd0hOdmVSdDZaeVJ2VkhzWGFOUk05UXpvOHp0Y1hrb1NPM1NjMGp0MUZIWkYwNVJxVmVMWlBYZDM4TGkzTkEzLVpSc2ZDeS1NQUpTaDNPOFBDSklrUmtGR01CS19Ea3BscUdDQWtKLXloLTZKMUVNMGVjNm9sd0VDMUMyNnBnVXpCUnREYXlZYVNzbkp1VDJXVFpTSmc4?oc=5) |
 | Trump gets Covid vaccine and flu shot during second check-up of the year - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOcnpVZjVILWxfaHJYT0E0NTFDVG9zTjM2d293Rl9YOXBlekFyTXdWRVdlTVZ0bXlUQi1ULVBDaWI4THV6dUlpcXdoTERGZ3hsQmNwZWxzYUxhQzJMYzd0eFAtVFEycl9tdkJ5Ui1jdXcxQTBxeTlMTXAzcXZJd2ZPZ1R6X1lpQXpTRWgxdW1tM3JQMTRMRzBuVC1ndWU0Q3p4cEt6SkFpWFZVVGN0cU1IbzhnMVptQdIBVkFVX3lxTE5UeHdyelB3SWFNQUZmYlNycV9DU0h6dHlOajlZWFA2WHNnMkRMVmlvQjlVbV9LMkR6ZDJoUFpRQlU5UzlOZ0ZHb01Eem1OUjVYejIxX0RR?oc=5) |
 | Opening of new Uvalde school marks ‘bittersweet day’ for families and town - Texas Public Radio ｜ TPR | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQcHpERHJVbUJlakxKa1BlRnNJejVMd3pXMEJzUzFVRWVFZ05udVRqWTI4aHhFQ05UQkVhendJZVU3T3dZbVh5T3BGU01ud1VMNEFWTndhUWtEQlA5WVpSTlpPOWtUSXk5SksyNjdEb01KSlNLVk44SF9qYS1wbGxJVndzUTY1aEk2aFdGbU5MdHNOM0JFWWxHRmxZUEhVLWVNOHdYU3JPMmRweE9tSExDdlYzMA?oc=5) |
-| Trump says he spoke with Machado after White House criticizes Nobel snub - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOX1hpTGRxdGhsRWZaRVRnNXg3LUM2VGI0SlRhM0tMTnZ6YlN1aXpiWFp2bVdfX2VNTjVuM0lyVVpWTkRReDBGc2ZsNVhMbEktb3RyOFctbmwtek5xbnlNbWlGZHhZTzFaWU1Fa3RwS3BPMmgyRmFTVmRzME1yaE1sSjI5b2lvT1dlQlhyQVRDQVpuUVJsTXBMTHRCNWQzNWhjTHBqajljNWlhTGVqenRV?oc=5) |
+| Trump speaks with Nobel Peace Prize winner Machado after his administration denounced the decision to award it to her - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNNnpwbUlrNFpSR3VuUmE0cENVTzVMTXRKMElVNFd0Smo2NVFwaGxaNHNqVTBxZHV3QUJzT01kWFdpbWJ3VnZKUWRpTW5XVGZMaEZ4RDVzaXhXU0hGVUlQVE5fZzBJT2NuaVo3NnZudFJ5M1licl91ZDhVbkhMM3ZNeUczeUc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
