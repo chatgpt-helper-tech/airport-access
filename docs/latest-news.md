@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 20:08:30（北京时间）**
+🕒 更新时间：**2025年10月11日 20:17:28（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | What to know about Idaho's Mountain Home base, home to Qatar's new air force station - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxONnoxdm9NNk9sU1BwZ1FWRFRHQWhaVWxibWRGRFA5cEtBY2xVdVdVcDB4dU1iSU5LTlROUEFWbmdhaXFyU1pqU2RWQVNvSk9IeE5acXBDNlVSd1hpMlkzU0Q1Z1d0eERwaEloUmRtUEdXelN4TlFGYVpvZTlkOERXMzZWOWo5UFhUdnc?oc=5) |
 | Trump critic and former national security adviser John Bolton to be charged soon, sources say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxOeTRaZmJsYXR5bjBmRktpNnlMelRyd1A4UC1vVlpMSXNEc0Zpd0QxLU1nNEhNODQ0ZnNZb0JOLWtXU05kUmpmTEYxWHFscGZ0bWo3TXNuS1h0b1E4N1ZEdmI5NklMcnVxT2hKcTJwU1VpS1VKWG5tNDBJdEtMV2tYM2FpNWJzcGo2NWR6YVB2RWxOVF9XUmp1TmZTNUxoWGFMMEpsSTVlY2ZxZ1FHalpZRWZIOXotQVZrdVFuUDk2b2ZpSGpNc21nNlNFM1BjZ9IBVkFVX3lxTE40dG1Wa20wUXlIWnhzYWFmMWRmUkgwajR5Nkl4NlRLemRGSWpTZW1WVkoxSmJNOWcwekhiNWx6c2E5SG9lN3JxU3VlSzBtNF9EeVE1clBn?oc=5) |
 | Newsom signs historic housing bill to bring density to transit hubs - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNc2pubTRDSUNyWUozM1hHQ0RlM21seTlaV0lHSVlGd0hOdmVSdDZaeVJ2VkhzWGFOUk05UXpvOHp0Y1hrb1NPM1NjMGp0MUZIWkYwNVJxVmVMWlBYZDM4TGkzTkEzLVpSc2ZDeS1NQUpTaDNPOFBDSklrUmtGR01CS19Ea3BscUdDQWtKLXloLTZKMUVNMGVjNm9sd0VDMUMyNnBnVXpCUnREYXlZYVNzbkp1VDJXVFpTSmc4?oc=5) |
-| Trump gets Covid vaccine and flu shot during second check-up of the year - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOcnpVZjVILWxfaHJYT0E0NTFDVG9zTjM2d293Rl9YOXBlekFyTXdWRVdlTVZ0bXlUQi1ULVBDaWI4THV6dUlpcXdoTERGZ3hsQmNwZWxzYUxhQzJMYzd0eFAtVFEycl9tdkJ5Ui1jdXcxQTBxeTlMTXAzcXZJd2ZPZ1R6X1lpQXpTRWgxdW1tM3JQMTRMRzBuVC1ndWU0Q3p4cEt6SkFpWFZVVGN0cU1IbzhnMVptQdIBVkFVX3lxTE5UeHdyelB3SWFNQUZmYlNycV9DU0h6dHlOajlZWFA2WHNnMkRMVmlvQjlVbV9LMkR6ZDJoUFpRQlU5UzlOZ0ZHb01Eem1OUjVYejIxX0RR?oc=5) |
 | Trump speaks with Nobel Peace Prize winner Machado after his administration denounced the decision to award it to her - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNNnpwbUlrNFpSR3VuUmE0cENVTzVMTXRKMElVNFd0Smo2NVFwaGxaNHNqVTBxZHV3QUJzT01kWFdpbWJ3VnZKUWRpTW5XVGZMaEZ4RDVzaXhXU0hGVUlQVE5fZzBJT2NuaVo3NnZudFJ5M1licl91ZDhVbkhMM3ZNeUczeUc?oc=5) |
+| Trump gets Covid vaccine and flu shot during second check-up of the year - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOcnpVZjVILWxfaHJYT0E0NTFDVG9zTjM2d293Rl9YOXBlekFyTXdWRVdlTVZ0bXlUQi1ULVBDaWI4THV6dUlpcXdoTERGZ3hsQmNwZWxzYUxhQzJMYzd0eFAtVFEycl9tdkJ5Ui1jdXcxQTBxeTlMTXAzcXZJd2ZPZ1R6X1lpQXpTRWgxdW1tM3JQMTRMRzBuVC1ndWU0Q3p4cEt6SkFpWFZVVGN0cU1IbzhnMVptQdIBVkFVX3lxTE5UeHdyelB3SWFNQUZmYlNycV9DU0h6dHlOajlZWFA2WHNnMkRMVmlvQjlVbV9LMkR6ZDJoUFpRQlU5UzlOZ0ZHb01Eem1OUjVYejIxX0RR?oc=5) |
 | Trump reveals prescription drug deal with pharmaceutical giant AstraZeneca - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNN2hER1o3b1BwNXVHT1g5R1FodTNXZDdSbXA1NHowYnFOa2tCdDVQaW1QU1R2WE9iYS0yMlRpY3Y4QldLTUl1d3IyVFVnUENqVWlZMHVXcGlsTGJQV3g1TUxDUVRUZklpT1l0aFp3NHQ2eUdTSFd1MmQtd3BzZlFuRWRtVGI0dmhhQWtUYUFGSjI1OGlGMFhONUN0c0U1ZlBDenJOcDFtYXVpSTFfOHBVZW1qdk41SW_SAbwBQVVfeXFMUEhySk83QnZWeXVrb0xITk5oUmtYVlQyVWZCSWo1MV9mejZYTllLYmx5NE9SSVpTcTM2TlAxZVlSUzJ3RHFvcF9nQ2RQV3BCcEEzYzhqS2JCTVM5MzdCVVFUVjBTLWg0RXhETHEtemx3NmhKODQyMlk5VXZ0eUEycjNSUDBlSW9TcWVoR1J3S0hGaWVVdXdqb3dDZFJpWWhfbzhlZTlFaHJSbEZUZ3ZkNHJfcnNxYzE4M1NCelQ?oc=5) |
 
 ---
