@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 13:24:12（北京时间）**
+🕒 更新时间：**2025年10月11日 13:33:54（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump Cuts a Deal With AstraZeneca to Lower Drug Prices - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNOVN0Z005VTlRTEJQbGYyLTNJMlp3SmtZYmxQRnZTVnlKZVhRU241MjhHRmZ5U05uZkxRd1NGZ0dzZUZ4ZDlVZzZWUXFfQmdJU1NQR0VRQVF4WHBNMGdOb3ZDNVhKSE02NUpGTmZ1OVlnOVRLNHd3bGo1OVhVcDlER0NR?oc=5) |
 | Letitia James’ indictment puts Andrew Cuomo in a bind - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQUWhYWElpeXZjX0EwZDBleTRyeWQyVEsxTEpVV1NFdTZzVWotdDNXUFJrQnVXQlVFY1JvOExMc3ZzVjFGV1VyeHNxVTY4ZUplbk1BM1pmcUd2TmUwRUpBWlF6S2tuNmFsaDhjTG9ORVZ5bC1ucnoxMUp3aXpVTkRrQ2pPOUNZREVHSVBZN292cVlQa080VC0zeHJETXhrdW52MkJaNjhheUVvYXdsTEZCYXA2NUNvQnJiSW10bzlGZnRJcUkw?oc=5) |
 | Trump administration has failed to deport Kilmar Abrego Garcia to Africa - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNMUY4azRXWnp5SUVfck55UnZ2LVNyNzBibTZOTEtqMlBQNTVCTzY4ZkdEM0RyM1FLdDB1SDEwRUhxbFFuR3NHQkFTdk5tcXk0MDloNkk2SXE4dVRqOWRjY1hFSVJSUkJhQ0tnNTJHMWM5ZVlBR2FxcnV4UXIzeHpXUWxjT1RQb0RIYi1fNjJvanloS1hM?oc=5) |
-| Newsom signs historic housing bill to bring density to transit hubs - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNc2pubTRDSUNyWUozM1hHQ0RlM21seTlaV0lHSVlGd0hOdmVSdDZaeVJ2VkhzWGFOUk05UXpvOHp0Y1hrb1NPM1NjMGp0MUZIWkYwNVJxVmVMWlBYZDM4TGkzTkEzLVpSc2ZDeS1NQUpTaDNPOFBDSklrUmtGR01CS19Ea3BscUdDQWtKLXloLTZKMUVNMGVjNm9sd0VDMUMyNnBnVXpCUnREYXlZYVNzbkp1VDJXVFpTSmc4?oc=5) |
 | Trump’s Threat on Higher China Tariffs Wipes Out Stocks’ Weekly Gains - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOUVVpamlBbWVUX2dnS2NRb2E3eWdZTXc5QmRkWGpWSmtLVGFYRWZzVGE1TE5sOTFZa2RMNmZ5aElfU0poc1hSRXNOb05zU1JKXzBrMEhWWG0ydWNGcVFSUW81NXZHaXgzT1ptZnB0ejAwb1htUWVvaGgzQzhYNzgwbERDV09zTVpiVUNyczl4MzhBRFBDclVJajdqRnVlUTBoX1QwUnN6TlZzSlJ5aUZhWg?oc=5) |
+| Newsom signs historic housing bill to bring density to transit hubs - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNc2pubTRDSUNyWUozM1hHQ0RlM21seTlaV0lHSVlGd0hOdmVSdDZaeVJ2VkhzWGFOUk05UXpvOHp0Y1hrb1NPM1NjMGp0MUZIWkYwNVJxVmVMWlBYZDM4TGkzTkEzLVpSc2ZDeS1NQUpTaDNPOFBDSklrUmtGR01CS19Ea3BscUdDQWtKLXloLTZKMUVNMGVjNm9sd0VDMUMyNnBnVXpCUnREYXlZYVNzbkp1VDJXVFpTSmc4?oc=5) |
 | Trump speaks with Nobel Peace Prize winner Machado after his administration denounced the decision to award it to her - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNNnpwbUlrNFpSR3VuUmE0cENVTzVMTXRKMElVNFd0Smo2NVFwaGxaNHNqVTBxZHV3QUJzT01kWFdpbWJ3VnZKUWRpTW5XVGZMaEZ4RDVzaXhXU0hGVUlQVE5fZzBJT2NuaVo3NnZudFJ5M1licl91ZDhVbkhMM3ZNeUczeUc?oc=5) |
-| A long-lasting coastal storm will soon hit the East Coast - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPT0pKOXdyeXBzRnhtdFo5bWJTTFJWckpLY0VPeDY2YkU0TG5TY0hKRjhDeHNuWVlzX3dKRkhtZ21sbjBFSTRGUXB4WVhpSE9VU3Z1aTNFU2U4N2dmZF94X3JUbWREdGp3cERtM0x1d3V3OXdmcHBRN2tlREdObjdQcVFjNzVmSW1XNXFkMkNCNG9xbHYyR1NrbW9rN1I?oc=5) |
+| Trump visits Walter Reed medical center for ‘semiannual physical’ - PBS | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNN2o5Zm95UjI1Y3lqWU9yNVMxbG1WY0pRZ1c2WGxTelR0a3VIMXRIVkE0X2txaW9aTUcxcllQZDFQcUVHYzBNaXFxdktZcFR2cktpc1JjcnZyRF9BejAwTnFHcDB1VDZJNDdxMjdyVVVUbGpHRFc1YmJ6QTMxWXM0RG9zMjBXQ2ZOUnM3UldaQ2xmQmM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
