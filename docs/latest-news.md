@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 07:41:49（北京时间）**
+🕒 更新时间：**2025年10月12日 07:49:25（北京时间）**
 
 ---
 
@@ -26,7 +26,7 @@
 | Trump directs Pentagon to use 'available funds' to pay military during shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPS1ZidjEtb0RWeVVSUlNoQTdUaEZMc29lS19wRXYyeEJqZWU4X2JZeFdoTUlJZE13VHJZQnI2YUREOVVDaF9tTnk0Q08zUU0wZkpiQUlxbmNGTF9pVUpYd1hONUNPRFVBYW9sbXMtaERUcFdaaUVPd0pkcDZBSjV3dFEtUWFlWlY2V0JlWlZfYXQyQlJWRnNVQmFnWkg?oc=5) |
 | Trump Administration Will Rehire Scores of Experts Fired in Error - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1LdUV5eW9kT0tBejl3MWNRZThIQlpZTnZzRThxNEw3aW1DQ18xVTVZZHhxdGc3TnNhRHBvSU1XQ3JCcVl5bFprM0p6b180UGtHbUtNWnE1ZE9qOGxNUXVwdVpvRWpUcmRnMGM1OGJXTHNSVEE5?oc=5) |
 | 'RIFs have begun': Trump's budget office escalates government shutdown with mass firings of federal workers - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQa3NZc3JMeldqMm50Uzhnbk5UdVo4aW1yWldleVdLQ21rNHAxXzNCOWlWRk14QXFXR2hKQXZ5UTRVSlVjWDlQOGlXOEh2TERDaEhWZ09rTXFnZWVHV1RxVG1CLTBkbEhfUWVlaUo1a1JuU1B2UUdGMzZkNEZKSkxuVHV3TDZOVXljUURpcVBtUzJiOERPU3lCaQ?oc=5) |
-| No survivors in Tennessee explosives factory blast, officials say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOMmRlb3ExdG5sQmFlaGxPMVY5ZFNYUFF1b0M4RjFwSU9zYnk4d2JoY0JmSjg3UlNacFhfSmRDS3JSOEJ6NFhha1pGT2FHZFFaT2J5TnFNelJNdm41RFU1QjgxaDJDeDg5TllOSlJaaUcweVZKSDh5TDg3UGxlMXVZMDdkYThpbGdKdjFaNzViTnl6X0U?oc=5) |
+| No survivors from blast at Tennessee explosives factory, sheriff says - PBS | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNZDlEdUlvcjM0RXVSaHo4ZDZuVzF5QVMxMFNZRTdLWlhucUxYUEpHNk9TQXllbjhaLW1vUFBnVXZiOFUyeXZZaEZPZE5QdmM5Ym1NRkY5cXVCd2UySlBicEx3aVJGZHZBVnQwWHVneHlOZjRTNk9oOWRZWXZncUFJNV91OG1WbjEyVzZRTVpPZzhfd3U1VENhX25yTXhjUDVqNlUtLVR6OA?oc=5) |
 | Hospital prepares to receive freed Israeli hostages: 'We are inventing captivity medicine' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5ocGtTaFRkWVdFRGQ4Rmd3T0pWQ3VlMG1VZW16M1pXTkRkbTRkcm9hX1RVdUhVRUl3d0dTdDFFd3o2MDVpYmNZeDdPYjJ3bDNyRWhDeTlLMVZIUdIBX0FVX3lxTE10RG5fa1VIMUVKR3BJTW9jSk03NXpDVEpsTUlQbkRzZ2wzWngybTE4TlJhUXZOUk9qUGNMU3VUU2d6bVVTM1V2VlZrWTcwWGdIVGdRalp6MFRxd0thM0dJ?oc=5) |
 | Strengthening nor’easter threatens major coastal flooding and damaging winds along East Coast - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQcml4VHNxZ1BhVkJ5cGswS19qckxpbnBCclRIVDNkU1pWUmtzV25CaXlualdPOVlBdVNHdnF6YWRiSVhsTm1Dam9iZTNPY01oc002OWhBSTlURzdqU3dmdlk3MWhMTWViSlI2R08xSVliaHpZOXhvQkZ2ZjduY3h6NEJJRUMwX3FWYkIxYUh2QlBNUQ?oc=5) |
 | Appeals court temporarily blocks deployment of National Guard troops in Chicago - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPYmVvZGMzVWI2bWdleFFPS2duYUs1bEstMXlqM21VM0lkaDFpRHJUN29rTzdiTWJsaFpIZDRMbGFwUDd5S3hzM3pJeU9qU1oxZGJVbnNwNFNMTUdGdHlTZ2JNbGpULWQyQk9tQ0VaUkI0WjQ0TVZBeW9YeDduM0lKVzFtUkIxMjIzeDdHY2JxaDdUQm13dnNEajVBLUhpOVc0VXNhREJUV1RTYUNUVUk2TnRWONIBuAFBVV95cUxPN0cxeTJ1Zkt6YUxWd25pZTBXMUw1cnkwam5yVmZzTHZiQTFJS2QtZWI0YUUxal8teHUzZWRTdGhadjJMWVlSNl8tVm5sWkszaWNDc0lseE9uNzB1R3FHWk5aZmlOVnVQWW1BVU9xdENucjFLSUVTQjFpM2FTX0VOYl91WFNFcFhnUUNGdDZJZC10aHNiWmhEZHN4Qk9KZjY3TW51SlY0YnczSXNRNm1KYmRkSi1CT0N5?oc=5) |
