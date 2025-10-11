@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 01:49:37（北京时间）**
+🕒 更新时间：**2025年10月12日 01:56:30（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | 'No survivors' found after explosion at Tennessee plant, sheriff says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNSG15SjJQQnhWR1NadXZNc3lkX05TeHU2dGZGSVladDZiM0ZZTHg4SzhOalgyVmh2X0hBQTJUbTdOZW1aeUI0cWVRRm9LTFFwenJmLVA3cU9MMzhVcmpzR3FUbmlSMlhobGU2ckpzVEJRQmo2N3o3WHd2Y0pQTHpVME5tTTZwSEXSAVZBVV95cUxOX3JpUHhldkpycnJXSVNKZEczX2x6QXJ1eUZrMDNKTUhJTlFGZFlkeHdDYzFOTGpsdF9tRkhPdmVEWTNKaGRYUlgzdHVwc084UEhKM2hlUQ?oc=5) |
 | Trump officials say "substantial" federal worker layoffs have begun - Axios | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBrQ2JaWW5VWl84cE9Md0x0dnRYdVVTMXFNWDFfdjh0NW9LSlNxZ0FwOVJQMWxqaEIyN0F4OWJoMHFxWUxXa25HX0hVLUdHZHdiV2hhcngybGhJd2lud1BHX3hhdTExcDhJMHk5emFveGVsZw?oc=5) |
-| ‘One-sided deal’: College presidents see Trump offer rife with peril - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQMlczMnJUUmdNVGJVWld3UFZRdUM5RXRsMzZpWkNKUlBldWEyLUJoVlpaZzlUSXQxOFNhUllWUUtxRm9kMlFUUFBDdkpfMkJDbDZhc2J6YXBTdk9mU2N1MzRPSjlrMW81dzFEd0RXRy1QNmYwZGdtdk5VajQzcXdpUVJLM1E2eWJrdmhzRERSaTdWZw?oc=5) |
 | Joe Biden receiving radiation therapy for prostate cancer, spokesman says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1adEJpR1FYbFJIanNNNTRPNUFjNnE5OFRfdWNJTFlqY0JqUDJQTHdpTG41M3VfbFZxWktMd1NKUEVQWngwSkVfeW5EX2RNRXhxSTlrME01ZXFlQdIBX0FVX3lxTE5kVk03ZkU1MFoyeTR1TEpsMVVPbW5ScExCVWhNMlA4Y1MzSndwVXd2aXBLOXI3UDJrYnQyOVFfVDBsb2VTMUFrRlZ4WGhnQlpIY3owTXlEMElJQlhJUXY0?oc=5) |
+| ‘One-sided deal’: College presidents see Trump offer rife with peril - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQMlczMnJUUmdNVGJVWld3UFZRdUM5RXRsMzZpWkNKUlBldWEyLUJoVlpaZzlUSXQxOFNhUllWUUtxRm9kMlFUUFBDdkpfMkJDbDZhc2J6YXBTdk9mU2N1MzRPSjlrMW81dzFEd0RXRy1QNmYwZGdtdk5VajQzcXdpUVJLM1E2eWJrdmhzRERSaTdWZw?oc=5) |
 | Maria Corina Machado says her Nobel Peace Prize tells Venezuelans "we are not alone" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPamRmTmdWcXQzQUoxbmY0SU1Za285Yk9RZDg3X20tdnNNcjM3MHRZZkg2dVRjWmRYSnAzdmhwQU9lcnVuV2J6TDM2WmpZN0dFaUdxWHZXV2FWWFZRVEVVTzhrNjliWnZxVWZuRzRyQVlJazVLaTBaazZxZEJpU1lqMXc3TzdLRGJMWlNEc2liSzZRUjBGM00zbEdXdWp1TDF1cklfQ0djY21JYUdG0gGyAUFVX3lxTE5ORWRkbDJGLTVGM2lpMGlLaEczTVVKRXM1VGdqVkFQLVJrbjlCS2dQdzFPMzhBaU1UWWRqMVB0TVl0OEFMRnA5ZGt4QWJSZkdXbzVLby1vbS05UURqUDZSTFpXS0d2UTVUM1N1cHhCc2VXdEdWMUp0R0w3WUJaLTNnaDk5MFlpU2VfWldsV0VRTWxTcUNwOUxacUpVUFdMczdTcHJXblFSMThtTURBd1kyUWc?oc=5) |
 | Qatar Air Force facility to be built at USAF base in Idaho, Defense Secretary Hegseth says - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPUkRxNFZ4WUNrd1ljSDVlQzRtdjF3RkZPM1VTMHJRUXRYbDNvLUV5aUQzWTJwREhHZ01DcHYwNlVFMms0bDB4T1JORGp4eE83VlRwY2dCXzFtdTRLQmFmZHVkaWJYZjVoQ0VmRFNJQVBlZUZuRUlVV1F0LWpCVk54WDctVdIBiAFBVV95cUxNSHNGNmFiUDFTdjZWeUxCdnpPaFdPREp4UW9HNGZYcEtEdHYtRkc1bnUtY0NYWXBOZDhRNnJCRVhlS2FZenBNejdWYTZ2TzZwZ0NNYktXRWZ6MEs2MGRWVENhX3RRTnFaalNvS0pHMlZHbGEzb2c5X3FxNWxtcW1QNkRpbENTRDlJ?oc=5) |
 | Agencies prepare to bring aid to starving people in Gaza as ceasefire appears to hold - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxNQl9Icklrc0RScDlhSU1yTlVxcnZSWUV5b3dweGdqNXlwWE9rNGFyRHBCMk5hTTVSYzNrZWJsaFlwLS1URzJWMWluUV96ZkNvRlZwY0dUbjNidjBKWjFZbzVYLUxuQzRWYzRkdkl3QjRHWDVtb3dUTTYyYlJVRF9ERjNQRmdjeUxMaWdvN2lXNDJSSHpudzh6T2w2dDNkUmViSzBYdURjVG9uLWpXZk1zT0o2MXdjcHhockNfQnRHZHlEbVlvbkNOMVkzcw?oc=5) |
