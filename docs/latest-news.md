@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 12:56:34（北京时间）**
+🕒 更新时间：**2025年10月11日 13:00:42（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump ICE official tells court U.S. has talked with numerous countries about accepting Kilmar Abrego Garcia - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQMXJlbk5OSlNUZkhRX3ptQ0xEcnUyM2hTRVRYZWlQM0xrYXAtV2hPd3liNVptUEYyVzVad3lXcXpfMEUzUzc3SlcwaWw5NDk3b1B4ZF8ycUtpbEh4aGw4NGxKZXFxc3RpaElGa0VsanZ6VDlBQ3RyTnk4c3Z6c0NYNFlXdTZ3eTBzaDBRdTNOVznSAZYBQVVfeXFMT3ZtanRUN01CZ0VfeWh0VS1CcE90eGh1aWpleDFFVUd0d0tqZFdiclpXMi1Mc2d2d1VOaGEzNVpvRGdlNE9CMmRNdDRReHJjUmdlT0hGWUNESDhNM3hHc21nZGVZci1QYjU1ZGFLSEJQeVNTbWdJTDlMMUJVQnY4bUtCSS10TUZ6X1RIUXZMQlJrc0xuODB3?oc=5) |
 | Trump puts extra 100% tariff on China imports, adds export controls on 'critical software' - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9OQ2JMVXVtWjZmd1RpRDVTbWZlQVlnUTBoZVhnRGtBOW9ORDVSYmNrczRGTWxDUEF5bWEtQTZudE5TSE4zU0JZNjFwZjZxc2Q5cTRTQmgtRTlYbnBhWDFkczNkSHVkc2hGNGdUNWZmb3o4UlYydkNTN3dIY9IBgAFBVV95cUxPRHRDR2MtLUotUEhFWlF0NktwUlBZT2tfYU5SaWd3SzNHY0liTU5ubUhPNGRuTVZjMjkxRm96T085NVFiOFZZOE9aNUI1QnFWeThtOEM3Nm5BRWtNR1hvNEJoVXNvV2tDWGRUT0gyQTc1NFZGUzZ0bDlFTDZfUjdhTw?oc=5) |
 | Newsom signs historic housing bill to bring density to transit hubs - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNc2pubTRDSUNyWUozM1hHQ0RlM21seTlaV0lHSVlGd0hOdmVSdDZaeVJ2VkhzWGFOUk05UXpvOHp0Y1hrb1NPM1NjMGp0MUZIWkYwNVJxVmVMWlBYZDM4TGkzTkEzLVpSc2ZDeS1NQUpTaDNPOFBDSklrUmtGR01CS19Ea3BscUdDQWtKLXloLTZKMUVNMGVjNm9sd0VDMUMyNnBnVXpCUnREYXlZYVNzbkp1VDJXVFpTSmc4?oc=5) |
-| Trump speaks with Nobel Peace Prize winner Machado after his administration denounced the decision to award it to her - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNNnpwbUlrNFpSR3VuUmE0cENVTzVMTXRKMElVNFd0Smo2NVFwaGxaNHNqVTBxZHV3QUJzT01kWFdpbWJ3VnZKUWRpTW5XVGZMaEZ4RDVzaXhXU0hGVUlQVE5fZzBJT2NuaVo3NnZudFJ5M1licl91ZDhVbkhMM3ZNeUczeUc?oc=5) |
-| A long-lasting coastal storm will soon hit the East Coast - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPT0pKOXdyeXBzRnhtdFo5bWJTTFJWckpLY0VPeDY2YkU0TG5TY0hKRjhDeHNuWVlzX3dKRkhtZ21sbjBFSTRGUXB4WVhpSE9VU3Z1aTNFU2U4N2dmZF94X3JUbWREdGp3cERtM0x1d3V3OXdmcHBRN2tlREdObjdQcVFjNzVmSW1XNXFkMkNCNG9xbHYyR1NrbW9rN1I?oc=5) |
+| The Official Website of Governor Phil Murphy - NJ.gov | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFA2UGNCcGlPc1pWQXp1aUc2NVhDdC1JaG1pWFBlNVRtdUh5d2ZUZnZMSTdQVHM0YXlVY01FUE10NERfam5wWGlCSTJEWG96Q2pXaExzUkI0OFA2WGRpeWFxazEtMkN5SUYwRldMdTVLUG9lZDBkQ284dQ?oc=5) |
+| Trump received Covid vaccine and flu shot during second physical of the year - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPd1ZLZnBaeGNCcGpqckhmdHJkakZ4TzU0Mjg4MjZUNDhuVmtKWVhkZVRzb3pBdmg2OU5uUnYzbnlDc2hZMnRsRlhDbWxLNDlWNEJ5YzU1ci1vUmhfUnphdXhJTlN2ZndUWUNpX181UlFXT1I1N2lqX01tM0h5Z25EWHFJOGJqYU5QaTV2dw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
