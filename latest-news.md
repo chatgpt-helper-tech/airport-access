@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 21:01:35（北京时间）**
+🕒 更新时间：**2025年10月11日 21:08:04（北京时间）**
 
 ---
 
@@ -8,9 +8,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Bridget Phillipson v Lucy Powell - behind the battle for Labour's deputy leader | [阅读全文](https://www.bbc.com/news/articles/c4g5nxzzky2o?at_medium=RSS&at_campaign=rss) |
 | Tony Blair met Jeffrey Epstein while prime minister | [阅读全文](https://www.bbc.com/news/articles/c5yk16gpxj0o?at_medium=RSS&at_campaign=rss) |
 | Surge in Chagos arrivals prompts row over housing costs | [阅读全文](https://www.bbc.com/news/articles/cd721j8390zo?at_medium=RSS&at_campaign=rss) |
-| Macron reappoints Lecornu as French PM after days of turmoil | [阅读全文](https://www.bbc.com/news/articles/cy4j9zz54ypo?at_medium=RSS&at_campaign=rss) |
 | I'm learning how to get back into life, freed British-Egyptian activist says | [阅读全文](https://www.bbc.com/news/articles/cdx21gn39r5o?at_medium=RSS&at_campaign=rss) |
 | A facelift at 28? Why young people are turning to plastic surgery | [阅读全文](https://www.bbc.com/news/articles/czxwvr57424o?at_medium=RSS&at_campaign=rss) |
 | Watch: North Korea shows off huge missile at military parade | [阅读全文](https://www.bbc.com/news/videos/c8rvrk3y1rno?at_medium=RSS&at_campaign=rss) |
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump officials say "substantial" federal worker layoffs have begun - Axios | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBrQ2JaWW5VWl84cE9Md0x0dnRYdVVTMXFNWDFfdjh0NW9LSlNxZ0FwOVJQMWxqaEIyN0F4OWJoMHFxWUxXa25HX0hVLUdHZHdiV2hhcngybGhJd2lud1BHX3hhdTExcDhJMHk5emFveGVsZw?oc=5) |
-| MIT rejects federal funding deal with Trump administration - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9TRXFLNnFOSkpxdFdxLWtCdzQ5R2tDdDhWbHZhSW9POW1wU1J4MTRyNlRQOE9zRHlqazRNMWVPcHhVTlluaWw4TVZSbXVKRFJDSjgtMXV3aVhQUdIBX0FVX3lxTE8xUHJzZ3lDRWN2cWhkUTlrR3BSclZjbGtXbVo4YVJSa3g0VFJjNU9oYU01WjIxbThiaU1xUXF6em1CTFZTRENsaFhzRWY5bFlpMmZlQlJPS1hOLTd1ZGVn?oc=5) |
-| Pam Bondi, DOJ officials caught off guard by Tish James indictment: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNVGEyZWRjX2JtMWNEQVY0RjdxZWh0ekVHR2MzNjdlMGtlcGhQOC12eldpbW9lckJJZE5tQUo5SThwQWZEVWN2YWEyYVNvTTBqSEhDbzFUU2Z2SDhlRVZ4YWNxUmYwVWg4RHItNklvdUhqbE1OUkpVb0tKaFZpeHFkMWFwcjB4VTlRZVNKUklZQ2o3blY50gGaAUFVX3lxTE1YNUNmNTY2bmNFNkswNWFOTkF5a1JOTUstaWZhYzV0VWxZWk1hSHFqNEN0a0hhREt5b3dLVHhyZ1RyRDBfRzZuM2xQN2w5TzA0SnZLcmlRbHcxUFY3MW1ZU1FQV3FUd2k2bVZRX1c3WWpDU1RvM2ZvdnZLNVM3Y2ZFdGJSdWhUbG4wWEh4Mno3cF9vNHF2Vmo3b0E?oc=5) |
+| MIT’s resistance gives boost to academics' efforts to defy Trump - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQMlczMnJUUmdNVGJVWld3UFZRdUM5RXRsMzZpWkNKUlBldWEyLUJoVlpaZzlUSXQxOFNhUllWUUtxRm9kMlFUUFBDdkpfMkJDbDZhc2J6YXBTdk9mU2N1MzRPSjlrMW81dzFEd0RXRy1QNmYwZGdtdk5VajQzcXdpUVJLM1E2eWJrdmhzRERSaTdWZw?oc=5) |
+| Multiple people dead, 18 unaccounted for in 'devastating blast' at explosives manufacturer in Tennessee: Sheriff - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQTW04ejdtMFFTZTRDUmNlRXpYekFuZDF3VDFtWEVtZENJV2RuZTdUdmx5a3NHUkp3cl9JTUFVTUtGM3RwRWlyMllUWG5CeENwdUVjdWpfSzdaN0tfMWYycUQ1VU14Q3pPVm1ZdUx3UW5fOE1GcGY5Rl9kSjgzWkxxU0loR21EckI2bVptUVFSQXp1T0I4SVl3b2FR0gGfAUFVX3lxTE5LNl9OempTcVp1aE1kQldWeEFIN3pzQnRjUTVUNHBIYjEtbmhuQ3paOVNtV1hEaDB6XzZPSm5UTzBIT3JZcVFfUHlsaDRuc0JWM1ZUZmtrS3RENlhZNzZMVVA0ZmxGODQ1U0JvTG8xb1dnbVZOYzRycVJZcTdDY1g0XzZ4dHZDdEpwSm01U00xa2NOb095VWN4WXpXX0NNUQ?oc=5) |
+| At the Center of Letitia James’s Indictment, a House in Norfolk, Virginia - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNaVMyS3RJcWtwM1VBd0FGbkpEY1ZGOWtVMGdDQ1JRSmhWS29YWWJzbTZVZ29VMUNnR1Bpc3pqRjVQZm5MMG5udGprTk1DbTl3WVlEMjh3WTVWQWlZZlJLV1dzTEZuSVBKRXYwMTJlS1dfbDVyVWg0WE1SMUQ1OHRIRW9YM1lOTExNb3c?oc=5) |
 | Incoming nor’easter threatens major coastal flooding and damaging winds along East Coast - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQcml4VHNxZ1BhVkJ5cGswS19qckxpbnBCclRIVDNkU1pWUmtzV25CaXlualdPOVlBdVNHdnF6YWRiSVhsTm1Dam9iZTNPY01oc002OWhBSTlURzdqU3dmdlk3MWhMTWViSlI2R08xSVliaHpZOXhvQkZ2ZjduY3h6NEJJRUMwX3FWYkIxYUh2QlBNUQ?oc=5) |
-| 19 missing after blast rocked Tennessee military explosives plant - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPc0tvUFNIOGFYTTVEQV9VOXAyRkt2NHR3cjJoV3RBbW1JcGR5SGZJcHpSYjdZVHV3UUt4ajFfY085dlliczZ5SkExZ1FlS09BZnh5RXgwS3VDT0RtbnZhWmRGUlBHcTJvVUJrMHlPaUJiUzh4a2p5ZVpsOGcyUVJUS1NBSnJqbHZyVHRsNXIwazNTc1pobUpJU09xVFI?oc=5) |
-| Trump Announces a Deal on Drug Prices With AstraZeneca - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNOVN0Z005VTlRTEJQbGYyLTNJMlp3SmtZYmxQRnZTVnlKZVhRU241MjhHRmZ5U05uZkxRd1NGZ0dzZUZ4ZDlVZzZWUXFfQmdJU1NQR0VRQVF4WHBNMGdOb3ZDNVhKSE02NUpGTmZ1OVlnOVRLNHd3bGo1OVhVcDlER0NR?oc=5) |
+| Trump reveals prescription drug deal with pharmaceutical giant AstraZeneca - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNN2hER1o3b1BwNXVHT1g5R1FodTNXZDdSbXA1NHowYnFOa2tCdDVQaW1QU1R2WE9iYS0yMlRpY3Y4QldLTUl1d3IyVFVnUENqVWlZMHVXcGlsTGJQV3g1TUxDUVRUZklpT1l0aFp3NHQ2eUdTSFd1MmQtd3BzZlFuRWRtVGI0dmhhQWtUYUFGSjI1OGlGMFhONUN0c0U1ZlBDenJOcDFtYXVpSTFfOHBVZW1qdk41SW_SAbwBQVVfeXFMUEhySk83QnZWeXVrb0xITk5oUmtYVlQyVWZCSWo1MV9mejZYTllLYmx5NE9SSVpTcTM2TlAxZVlSUzJ3RHFvcF9nQ2RQV3BCcEEzYzhqS2JCTVM5MzdCVVFUVjBTLWg0RXhETHEtemx3NmhKODQyMlk5VXZ0eUEycjNSUDBlSW9TcWVoR1J3S0hGaWVVdXdqb3dDZFJpWWhfbzhlZTlFaHJSbEZUZ3ZkNHJfcnNxYzE4M1NCelQ?oc=5) |
 | Newsom signs historic housing bill to bring density to transit hubs - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNc2pubTRDSUNyWUozM1hHQ0RlM21seTlaV0lHSVlGd0hOdmVSdDZaeVJ2VkhzWGFOUk05UXpvOHp0Y1hrb1NPM1NjMGp0MUZIWkYwNVJxVmVMWlBYZDM4TGkzTkEzLVpSc2ZDeS1NQUpTaDNPOFBDSklrUmtGR01CS19Ea3BscUdDQWtKLXloLTZKMUVNMGVjNm9sd0VDMUMyNnBnVXpCUnREYXlZYVNzbkp1VDJXVFpTSmc4?oc=5) |
 | Trump gets Covid vaccine and flu shot during second check-up of the year - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOcnpVZjVILWxfaHJYT0E0NTFDVG9zTjM2d293Rl9YOXBlekFyTXdWRVdlTVZ0bXlUQi1ULVBDaWI4THV6dUlpcXdoTERGZ3hsQmNwZWxzYUxhQzJMYzd0eFAtVFEycl9tdkJ5Ui1jdXcxQTBxeTlMTXAzcXZJd2ZPZ1R6X1lpQXpTRWgxdW1tM3JQMTRMRzBuVC1ndWU0Q3p4cEt6SkFpWFZVVGN0cU1IbzhnMVptQdIBVkFVX3lxTE5UeHdyelB3SWFNQUZmYlNycV9DU0h6dHlOajlZWFA2WHNnMkRMVmlvQjlVbV9LMkR6ZDJoUFpRQlU5UzlOZ0ZHb01Eem1OUjVYejIxX0RR?oc=5) |
 | Opening of new Uvalde school marks ‘bittersweet day’ for families and town - Texas Public Radio ｜ TPR | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQcHpERHJVbUJlakxKa1BlRnNJejVMd3pXMEJzUzFVRWVFZ05udVRqWTI4aHhFQ05UQkVhendJZVU3T3dZbVh5T3BGU01ud1VMNEFWTndhUWtEQlA5WVpSTlpPOWtUSXk5SksyNjdEb01KSlNLVk44SF9qYS1wbGxJVndzUTY1aEk2aFdGbU5MdHNOM0JFWWxHRmxZUEhVLWVNOHdYU3JPMmRweE9tSExDdlYzMA?oc=5) |
-| Trump speaks with Nobel Peace Prize winner Machado after his administration denounced the decision to award it to her - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNNnpwbUlrNFpSR3VuUmE0cENVTzVMTXRKMElVNFd0Smo2NVFwaGxaNHNqVTBxZHV3QUJzT01kWFdpbWJ3VnZKUWRpTW5XVGZMaEZ4RDVzaXhXU0hGVUlQVE5fZzBJT2NuaVo3NnZudFJ5M1licl91ZDhVbkhMM3ZNeUczeUc?oc=5) |
+| Video shows moment Nobel Peace Prize recipient Maria Corina Machado learns about honor: "I am just one person" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNZzJEWldlWE5mYUR2NTdNMlZ3UDVwRXNsWXFSa2tiZWlmcWFVTlJMd3cyWFR1QVk5SXFWWlUwTkU5UmNnWnpnVXVDR1NyMm9hcFVIczNWR1ZNRWFSYThHQXJES1czOVk0cFZYc1lNODVXdVpfcnVfWFJhTDI0QjlpcC1ybnZYTG9Ma2pidNIBkgFBVV95cUxNa2pkSE4zRUM3U3MteWhFY1dIRnlKbHIzdnhPTEFpMWM3UC1XeFRQTU54WEhrMGNMNGRBNHhua1ZvUXI0cllwMzVZTTh0dS0xZUwtNmh2M0d0WjlDak1qQ2R4QVl0Ylgybk9tc1VmX0ttVGgySjBOaVNmZ19wWGVpU3JKMTFSWGxqbGJaaXhGR0dBdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
