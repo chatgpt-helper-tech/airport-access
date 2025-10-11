@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 11:16:39（北京时间）**
+🕒 更新时间：**2025年10月11日 11:25:16（北京时间）**
 
 ---
 
@@ -16,21 +16,21 @@
 | Tony Blair met Jeffrey Epstein while prime minister | [阅读全文](https://www.bbc.com/news/articles/c5yk16gpxj0o?at_medium=RSS&at_campaign=rss) |
 | Murder, betrayal and lies - why The Traitors appeals to our dark side | [阅读全文](https://www.bbc.com/news/articles/cvg42rjjv4zo?at_medium=RSS&at_campaign=rss) |
 | King's coat of arms to feature on new UK passports | [阅读全文](https://www.bbc.com/news/articles/c0lk3dg7j6eo?at_medium=RSS&at_campaign=rss) |
+| UK ready to use frozen Russian assets to fund Ukraine war effort | [阅读全文](https://www.bbc.com/news/articles/c62np269qv9o?at_medium=RSS&at_campaign=rss) |
 | Plaid promises universal childcare if it wins Welsh election | [阅读全文](https://www.bbc.com/news/articles/cewnv2xprzko?at_medium=RSS&at_campaign=rss) |
-| No shortcut to reducing NHS wait times in Scotland, says Swinney | [阅读全文](https://www.bbc.com/news/articles/cdr614l6ezlo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| White House Signals Federal Layoffs Have Begun Amid Government Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQQ3g1VWVYeHJuc1VDajJ6djVZUVFGdjZLTFJLd2dJcTdHeVpyRTNoTjVrU1dVRnFDRXdJZlh2LW53M25fUTFHMTlfUk43OTAtdEN0SkpyeDBMQ0ZucWFlN2Fob0ljQ0QwNmROMGgtMi12TkVqN3FSMlZPZTFTaXg3MVlYQ0Z4Z1YzMVVwaHliMjk?oc=5) |
+| Government shutdown will stretch into another week as thousands of federal workers face layoffs - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQMnVFZjljOXZTNXJOT1NUckhoSVM5NUY0QjF5TGJuSllHTDJPSWpZWDhTWW0ybTZqSDI3VjVaOXl2ZmZ2eEhaWXE3QkJXeXFGcUpFeXZHOUVpUXE4TUg0V0l2VzNIdkpqcjdILURtWEVycC14Y2tBcHVhakoyWXdidmJZYVM0eWh0dFdqZ09JNTV2enZ5MGlOb0VHbzV5dWk1aEtGcmJaNkE2RUlNcG5qbWp5UkdYYUtHSzdVZmZMZG7SAcYBQVVfeXFMTzZVWjZEOFJuRXVWVW1HSkRTcWtjNUlBem1Edi1GR2tjdmx1eXFGTXR5RUZ3d1BnS0wzNlpzMlB5bXhpV0syNjdtcGJJblZEVXc5NngycXNFYWZmSjl4OUY1LUlvdFM1SE5ZZmxXdVBjZDZuWGc3c0t6V0x6WHdDUncydHdMdlB0TmxqTGpwbDZ2RzNLekRnN1ZuU0lOSTgyQUFnY2hfdkpKN1VrZU1GSTBvNjZTcUZNWTdHUEpOMlZvdnVZZzV3?oc=5) |
 | Multiple people dead, 19 unaccounted for in 'devastating blast' at explosives manufacturer in Tennessee: Sheriff - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQTW04ejdtMFFTZTRDUmNlRXpYekFuZDF3VDFtWEVtZENJV2RuZTdUdmx5a3NHUkp3cl9JTUFVTUtGM3RwRWlyMllUWG5CeENwdUVjdWpfSzdaN0tfMWYycUQ1VU14Q3pPVm1ZdUx3UW5fOE1GcGY5Rl9kSjgzWkxxU0loR21EckI2bVptUVFSQXp1T0I4SVl3b2FR0gGfAUFVX3lxTE5LNl9OempTcVp1aE1kQldWeEFIN3pzQnRjUTVUNHBIYjEtbmhuQ3paOVNtV1hEaDB6XzZPSm5UTzBIT3JZcVFfUHlsaDRuc0JWM1ZUZmtrS3RENlhZNzZMVVA0ZmxGODQ1U0JvTG8xb1dnbVZOYzRycVJZcTdDY1g0XzZ4dHZDdEpwSm01U00xa2NOb095VWN4WXpXX0NNUQ?oc=5) |
 | October 10, 2025 - Israel-Hamas war - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOVXVDV0haazNUMlpwSjhJaFBOeU1Mc0VqNW5hdlFIdFoyY24tWHpsZFNsLWRWLXdrQlVkNjc5ODVud0E3d0o5cWQ1clA0SnlHV002b1ltWndLMzBjcGFpcXZ1SWNtdkVZLXh2ZzQ3M05sYkdKekFlVWlqbENWMVhqWlFIQ2RrY1lVbWc?oc=5) |
 | Newsom Stares Down LA Revolt in New California Housing Fight - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPRDcxdlZwOFR4dUFfaWVQclBEcUFLc295aC1tX18yYWtLMlFFaWhXNmFZR015M0d0ZjN6RDNmVks3bkF0MU5LNXhCUjcxaWdOc1hXb1BEVllVcjhzMnNfWlNRNjRNdGJMNlVCck9CU1JtR2tMa0ZuR3htLWczcEVRN1ZJQ2tlcWU2OU42SE5IM2U1YldnLW1wNWN5N2twaGJ5VVUxZlVDd1JmRVBl?oc=5) |
 | Letitia James’ indictment puts Andrew Cuomo in a bind - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQUWhYWElpeXZjX0EwZDBleTRyeWQyVEsxTEpVV1NFdTZzVWotdDNXUFJrQnVXQlVFY1JvOExMc3ZzVjFGV1VyeHNxVTY4ZUplbk1BM1pmcUd2TmUwRUpBWlF6S2tuNmFsaDhjTG9ORVZ5bC1ucnoxMUp3aXpVTkRrQ2pPOUNZREVHSVBZN292cVlQa080VC0zeHJETXhrdW52MkJaNjhheUVvYXdsTEZCYXA2NUNvQnJiSW10bzlGZnRJcUkw?oc=5) |
-| AstraZeneca makes deal with White House to lower drug prices - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNYlJxakd0Z0MtVzkyTFJrbG95NkVkZFgyUngwRFJyVzRjRkNkZEFiUW5la2dOQ0plUFVsV3FPOGVqR2pTM3VSRV9SY0JONHphbjBWY1NBajFKeU9RTjlFX0lSZHlhTHdaeXB3QUxkQ2x6Z3k1Uzk4dkVQRWNsck5oZVNacGdpRTB0cndXLV9tNXEzcm4wbHVaVG1Bdkg2cjZKT19J?oc=5) |
+| Trump Announces a Deal on Drug Prices With AstraZeneca - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNOVN0Z005VTlRTEJQbGYyLTNJMlp3SmtZYmxQRnZTVnlKZVhRU241MjhHRmZ5U05uZkxRd1NGZ0dzZUZ4ZDlVZzZWUXFfQmdJU1NQR0VRQVF4WHBNMGdOb3ZDNVhKSE02NUpGTmZ1OVlnOVRLNHd3bGo1OVhVcDlER0NR?oc=5) |
 | Trump announces new 100% tariff on Chinese imports, after stock market sell-off - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOS1FGRmVCaVQzdzZDMjZpUUFsa3dib1hneWw1UG1oZHpMR09MZ1pKVzBqXzJMWjhvbjVNY1U2czNyY2FYc3U2RXdCeER4Yzh2NE5lUHM4TEhtZnNTTnQ5aTlwTm1reERIUnhtWVVFbGhTdUdlRW9ZSldVcjVRMXBGOE8wblBwTzM4RFVmMXIwYkc1YjhpMWgtMTNaRnVoS2Z0bXA0SnlieFBaNnFRcExoNnBR0gG3AUFVX3lxTE5LVjF6VmF0eVhWNTI0Umo3WFlXaWVrRzRDanNnNWZXSXZ4OUpjYnlOUl9aVHg0TXp6WVZPSVNOVnhOeHBwT1VtZV9wX2NHLVYzQ3FnWkd3cFZjYTFNR2JwN2xyVVB6cmFYQTFoYjhxWTB2RGNtMDR5Uy02aGNFZmNWajBiNUEwUkduVUI3TkgtaVpLTGU0Yk1waWZMQUpObVZKRGhYT0g1YnR4MHdseWZRakV0Skx5aw?oc=5) |
-| MIT Rejects Trump’s Federal Funding Deal—Other 8 Schools Still Uncommitted - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxOSnZDYkY0LWtac0gzTHUyN0k3WGd3S0pMd0RFQkNmMUFxRVlaay1FUDdyb2g2TTk0RzNRRUpPcHFtZW5jUVdmMWZTLWZDb1lBZm9mOHhjMThpYzdaNGd1OFdXQktDMEZ3b3ZjUG9KNDZZcUVoZEhPVVUtYzZ2YkZROW9EbFVuRGl2WlptNG1fSl9RdHlDRlBwQi1PUUVpM2FTNXMyN2tNVkhGbWNSTGI2NzNBUEU3OFk3ejVWQTFJSkUtdXNzcjZFcDJBYw?oc=5) |
+| MIT Rejects Trump’s Sweeping ‘Compact’ Offering Colleges Funding Advantages - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE91NzdDVDB3V2VvVDBPNHB1cHFQcjZfTFlHZlduUnQwRU9ZejgwLWh2UWNmTjFEMWpCNkR0VXlZUkpzeUU3dlkxNDUyWnc4Vlp1bm9Wb3BIZGtrbTdWSGE5aWhZVk96aElmMmFlN0JfMUZuWXpfTkt5M1RSaGw?oc=5) |
 | A long-lasting coastal storm will soon hit the East Coast - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPT0pKOXdyeXBzRnhtdFo5bWJTTFJWckpLY0VPeDY2YkU0TG5TY0hKRjhDeHNuWVlzX3dKRkhtZ21sbjBFSTRGUXB4WVhpSE9VU3Z1aTNFU2U4N2dmZF94X3JUbWREdGp3cERtM0x1d3V3OXdmcHBRN2tlREdObjdQcVFjNzVmSW1XNXFkMkNCNG9xbHYyR1NrbW9rN1I?oc=5) |
 | Trump received Covid vaccine and flu shot during second physical of the year - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPd1ZLZnBaeGNCcGpqckhmdHJkakZ4TzU0Mjg4MjZUNDhuVmtKWVhkZVRzb3pBdmg2OU5uUnYzbnlDc2hZMnRsRlhDbWxLNDlWNEJ5YzU1ci1vUmhfUnphdXhJTlN2ZndUWUNpX181UlFXT1I1N2lqX01tM0h5Z25EWHFJOGJqYU5QaTV2dw?oc=5) |
 
