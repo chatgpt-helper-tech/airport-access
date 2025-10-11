@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 14:48:19（北京时间）**
+🕒 更新时间：**2025年10月11日 14:57:50（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump administration begins laying off federal workers amid shutdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNYk9nWjBTZVlGWGs5Qjd4QnBFRGpRNTVFcHJPaVJGQ2hRZFRBc2ZrZk5vaUxKcm5SejNNZkpIV1V5ZU9yVENPdFVrV1k0Rmh2bTREVVk4MVpXVG1BRndWVlZsejhrY3ctaDQtbUNZbXRLRm0zWnNObW9GTlQzaENCVnhiREpHZUg2XzRCbndqOVRTdlZrVjlfX1FUYVhaYWh1bDdV?oc=5) |
-| Gaza ceasefire in effect, Israel says, as hostage release countdown begins - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQeVlDWW1NOEI5WS1yalVhb09BdVdIZU5SSDdGUHFlRXhLOTVVNDNEWmctcGx1cjNkTk5RcThUc3RvNktxRDM2RkJydkVzMFRETlFockhzQkdxV2FuRnNKdElKNnJNREdGWlFzLXJTSGNEeXE5bkpqWTQxdGVJVFhNU01nT2hKMzd4UUk1dUhsZ2NOZEVRRF9LeVBQQdIBoAFBVV95cUxNWGx1VzRPdTA5a0hraGsyclBraV9HRUFHc3U5QWp1b01UOHdobmhQUnVPNk03aGl5ZGswZ0VyTkNsVlhRSFlfaEQwRWdFWjJ5UG5tTHMycVhXOFM2LXVzYnl5b3RxYXRucUhpVnVKRGpDUWI0bWJ2c19zOC1SbU1GWlhNZlR5bWVON3pGSHpOc2EwYzBQa1pDQWJoa012bUNX?oc=5) |
+| Government shutdown will stretch into another week as thousands of federal workers face layoffs - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQMnVFZjljOXZTNXJOT1NUckhoSVM5NUY0QjF5TGJuSllHTDJPSWpZWDhTWW0ybTZqSDI3VjVaOXl2ZmZ2eEhaWXE3QkJXeXFGcUpFeXZHOUVpUXE4TUg0V0l2VzNIdkpqcjdILURtWEVycC14Y2tBcHVhakoyWXdidmJZYVM0eWh0dFdqZ09JNTV2enZ5MGlOb0VHbzV5dWk1aEtGcmJaNkE2RUlNcG5qbWp5UkdYYUtHSzdVZmZMZG7SAcYBQVVfeXFMTzZVWjZEOFJuRXVWVW1HSkRTcWtjNUlBem1Edi1GR2tjdmx1eXFGTXR5RUZ3d1BnS0wzNlpzMlB5bXhpV0syNjdtcGJJblZEVXc5NngycXNFYWZmSjl4OUY1LUlvdFM1SE5ZZmxXdVBjZDZuWGc3c0t6V0x6WHdDUncydHdMdlB0TmxqTGpwbDZ2RzNLekRnN1ZuU0lOSTgyQUFnY2hfdkpKN1VrZU1GSTBvNjZTcUZNWTdHUEpOMlZvdnVZZzV3?oc=5) |
+| Newspaper headlines: 'Hope in Gaza' and 'Live forever in our hearts, Ricky' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9UaHluTUQ2NkxmS1BvNVFSd0lFSTRGaC04WEpFYWFYMmNwQXhWMkVrVHFMeEFHT2RvZlkwdEZWb1hyYUdSWEZ6TGtBcXN6cV90b3RVODgzWmEwUdIBX0FVX3lxTE9PTmtBM2d4QkJEX25KclFWMVQyenc1b1lRU20wa2RLaGpwQzdIZXZ4S0hpUDJCdTdOc2dOZFkybFdtdHlFZFhNaU11LVl2bW52UGVTY3FTaEFuLWw3Rk44?oc=5) |
 | Multiple people dead, 18 unaccounted for in 'devastating blast' at explosives manufacturer in Tennessee: Sheriff - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQTW04ejdtMFFTZTRDUmNlRXpYekFuZDF3VDFtWEVtZENJV2RuZTdUdmx5a3NHUkp3cl9JTUFVTUtGM3RwRWlyMllUWG5CeENwdUVjdWpfSzdaN0tfMWYycUQ1VU14Q3pPVm1ZdUx3UW5fOE1GcGY5Rl9kSjgzWkxxU0loR21EckI2bVptUVFSQXp1T0I4SVl3b2FR0gGfAUFVX3lxTE5LNl9OempTcVp1aE1kQldWeEFIN3pzQnRjUTVUNHBIYjEtbmhuQ3paOVNtV1hEaDB6XzZPSm5UTzBIT3JZcVFfUHlsaDRuc0JWM1ZUZmtrS3RENlhZNzZMVVA0ZmxGODQ1U0JvTG8xb1dnbVZOYzRycVJZcTdDY1g0XzZ4dHZDdEpwSm01U00xa2NOb095VWN4WXpXX0NNUQ?oc=5) |
 | Letitia James’ indictment puts Andrew Cuomo in a bind - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQUWhYWElpeXZjX0EwZDBleTRyeWQyVEsxTEpVV1NFdTZzVWotdDNXUFJrQnVXQlVFY1JvOExMc3ZzVjFGV1VyeHNxVTY4ZUplbk1BM1pmcUd2TmUwRUpBWlF6S2tuNmFsaDhjTG9ORVZ5bC1ucnoxMUp3aXpVTkRrQ2pPOUNZREVHSVBZN292cVlQa080VC0zeHJETXhrdW52MkJaNjhheUVvYXdsTEZCYXA2NUNvQnJiSW10bzlGZnRJcUkw?oc=5) |
 | Trump administration has failed to deport Kilmar Abrego Garcia to Africa - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNMUY4azRXWnp5SUVfck55UnZ2LVNyNzBibTZOTEtqMlBQNTVCTzY4ZkdEM0RyM1FLdDB1SDEwRUhxbFFuR3NHQkFTdk5tcXk0MDloNkk2SXE4dVRqOWRjY1hFSVJSUkJhQ0tnNTJHMWM5ZVlBR2FxcnV4UXIzeHpXUWxjT1RQb0RIYi1fNjJvanloS1hM?oc=5) |
