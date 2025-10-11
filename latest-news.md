@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 07:00:02（北京时间）**
+🕒 更新时间：**2025年10月12日 07:08:23（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | 'RIFs have begun': Trump's budget office escalates government shutdown with mass firings of federal workers - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQa3NZc3JMeldqMm50Uzhnbk5UdVo4aW1yWldleVdLQ21rNHAxXzNCOWlWRk14QXFXR2hKQXZ5UTRVSlVjWDlQOGlXOEh2TERDaEhWZ09rTXFnZWVHV1RxVG1CLTBkbEhfUWVlaUo1a1JuU1B2UUdGMzZkNEZKSkxuVHV3TDZOVXljUURpcVBtUzJiOERPU3lCaQ?oc=5) |
 | Circuit Court walks back judge’s block on Trump’s National Guard call-up in Chicago - Politico | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE81b3ZHTjVwRzFENTctanpTb2tqc1VCYUJPdTFiNGdoVEJSYXpUSHRwYWZLZDVHc3FoVHJvd1hkODNEUEFnU2NPMGc0Rk1UUi1pUllsdUxlekdWbEEyV0I5VThHN0l4WGZjZ3lyNTFFemk3QzdmVkljZA?oc=5) |
 | Mississippi Shooting: At Least 6 Dead and Many Wounded After Homecoming Game, Official Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQTjZyTjhuZzBPNE82OGI5QjJIWEVqSnc4ektOdG1xOV95TldzdU1rUDhBcTgwSWIwTUsyYlJNMVh6UGpIalNXOTVrdVFGREE4Qy0xaENDMWNnMm5nTVB1YzVuQzl2TFBicjRsVUxIS25zU0kzc3hqWUJOVkkwZmdmaA?oc=5) |
-| Pam Bondi, DOJ officials caught off guard by Tish James indictment: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNVGEyZWRjX2JtMWNEQVY0RjdxZWh0ekVHR2MzNjdlMGtlcGhQOC12eldpbW9lckJJZE5tQUo5SThwQWZEVWN2YWEyYVNvTTBqSEhDbzFUU2Z2SDhlRVZ4YWNxUmYwVWg4RHItNklvdUhqbE1OUkpVb0tKaFZpeHFkMWFwcjB4VTlRZVNKUklZQ2o3blY50gGaAUFVX3lxTE1YNUNmNTY2bmNFNkswNWFOTkF5a1JOTUstaWZhYzV0VWxZWk1hSHFqNEN0a0hhREt5b3dLVHhyZ1RyRDBfRzZuM2xQN2w5TzA0SnZLcmlRbHcxUFY3MW1ZU1FQV3FUd2k2bVZRX1c3WWpDU1RvM2ZvdnZLNVM3Y2ZFdGJSdWhUbG4wWEh4Mno3cF9vNHF2Vmo3b0E?oc=5) |
 | Nobel Prize winner Machado says Venezuela is in 'chaos' under current regime - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQV1lfV2xsQUtBUHJtSWV6cFhqS3I2NWZIS0E5b0xOYzJyWEpQcDRkYXFFTkFTUHJXVW1RSWVWYm82TmxNcVAtMC1ybVZqSTcwVzlxLU51ajlfYXFicUI2RmM4RDFhY0pXdUpHRFVVdkVkTFNrN25zQTBXVFRsWWx1Y09MT1RGUWp6cnc?oc=5) |
+| Trump ally Laura Loomer calls a Qatari facility at a U.S. Air Force base an 'abomination' — Here's what it will actually do - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNT2FodkR4bFJZWjV2NlJPd3YtVEp1MDh5UE5kb05GVWhtRlZpSFltWXN2Wng0YWxEb1FjQjUxT0xLT0pIRUtfZ016cFJ3NTQySmdIbjQ5T2IzR3ZpZ2cxSG10ZHBKTTY3WWItOWdMTHF4b1VjU0NVOW53SDlYdlAxbEZfb2o1OWdnQUFFNGRUSENSLXM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
