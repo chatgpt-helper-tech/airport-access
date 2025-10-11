@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 14:57:50（北京时间）**
+🕒 更新时间：**2025年10月11日 15:01:40（北京时间）**
 
 ---
 
@@ -29,7 +29,7 @@
 | Letitia James’ indictment puts Andrew Cuomo in a bind - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQUWhYWElpeXZjX0EwZDBleTRyeWQyVEsxTEpVV1NFdTZzVWotdDNXUFJrQnVXQlVFY1JvOExMc3ZzVjFGV1VyeHNxVTY4ZUplbk1BM1pmcUd2TmUwRUpBWlF6S2tuNmFsaDhjTG9ORVZ5bC1ucnoxMUp3aXpVTkRrQ2pPOUNZREVHSVBZN292cVlQa080VC0zeHJETXhrdW52MkJaNjhheUVvYXdsTEZCYXA2NUNvQnJiSW10bzlGZnRJcUkw?oc=5) |
 | Trump administration has failed to deport Kilmar Abrego Garcia to Africa - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNMUY4azRXWnp5SUVfck55UnZ2LVNyNzBibTZOTEtqMlBQNTVCTzY4ZkdEM0RyM1FLdDB1SDEwRUhxbFFuR3NHQkFTdk5tcXk0MDloNkk2SXE4dVRqOWRjY1hFSVJSUkJhQ0tnNTJHMWM5ZVlBR2FxcnV4UXIzeHpXUWxjT1RQb0RIYi1fNjJvanloS1hM?oc=5) |
 | Trump speaks with Nobel Peace Prize winner Machado after his administration denounced the decision to award it to her - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNNnpwbUlrNFpSR3VuUmE0cENVTzVMTXRKMElVNFd0Smo2NVFwaGxaNHNqVTBxZHV3QUJzT01kWFdpbWJ3VnZKUWRpTW5XVGZMaEZ4RDVzaXhXU0hGVUlQVE5fZzBJT2NuaVo3NnZudFJ5M1licl91ZDhVbkhMM3ZNeUczeUc?oc=5) |
-| Trump unveils drug price deal with AstraZeneca - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5VaW5WTVZESTRmODJmUGo1aUZpMkJXNmhqazlIVUUzRTBxUVRqTE56VE16bTJST1lIOXJiMDFxWEV2WVNlT0dnQklIT2NrUWhNMmZrRUx0dEF2RWFBODJJN3NIcEZhd0NfTjlMRU5FNjk?oc=5) |
+| Trump to announce drug-price deal with AstraZeneca - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPMGl1NVNjOHRoQ2NsT2J2MHl5dllwZWZzX3k5YkhJalh2Sl9zV1RzU2xTWFZOMkliQmY0WUlVZDI4d0tPTUh4Y1pnT1BFV2FUdlZxWk1QcUhVbXBXUGxMeGJvZXI4Wmo2NlpSbE9QS29MWld3SnRIb2FtamJSOVBGZ2w0Z3hsQXZr?oc=5) |
 | Newsom signs historic housing bill to bring density to transit hubs - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNc2pubTRDSUNyWUozM1hHQ0RlM21seTlaV0lHSVlGd0hOdmVSdDZaeVJ2VkhzWGFOUk05UXpvOHp0Y1hrb1NPM1NjMGp0MUZIWkYwNVJxVmVMWlBYZDM4TGkzTkEzLVpSc2ZDeS1NQUpTaDNPOFBDSklrUmtGR01CS19Ea3BscUdDQWtKLXloLTZKMUVNMGVjNm9sd0VDMUMyNnBnVXpCUnREYXlZYVNzbkp1VDJXVFpTSmc4?oc=5) |
 | S&P and Nasdaq Slump as Stocks Fall on Trump China Tariff Threat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPNjlKWlFJVVlUWHRVdHJkbjhUOVBmd1RJRFhwOFl3eHIwbGxOaTVXTEY2NUktVWxqSVV2Vk1mbHJ6SkhQaGtZYXEtS1hQQ1V0MDNpSmlTOTltTlpyd2RCTlM1a182NThSajlKRTVndUQtS1RpRF9iSXRyalJZQ2V0YQ?oc=5) |
 | Trump gets Covid vaccine and flu shot during second check-up of the year - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOcnpVZjVILWxfaHJYT0E0NTFDVG9zTjM2d293Rl9YOXBlekFyTXdWRVdlTVZ0bXlUQi1ULVBDaWI4THV6dUlpcXdoTERGZ3hsQmNwZWxzYUxhQzJMYzd0eFAtVFEycl9tdkJ5Ui1jdXcxQTBxeTlMTXAzcXZJd2ZPZ1R6X1lpQXpTRWgxdW1tM3JQMTRMRzBuVC1ndWU0Q3p4cEt6SkFpWFZVVGN0cU1IbzhnMVptQdIBVkFVX3lxTE5UeHdyelB3SWFNQUZmYlNycV9DU0h6dHlOajlZWFA2WHNnMkRMVmlvQjlVbV9LMkR6ZDJoUFpRQlU5UzlOZ0ZHb01Eem1OUjVYejIxX0RR?oc=5) |
