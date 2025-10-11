@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 21:08:04（北京时间）**
+🕒 更新时间：**2025年10月11日 21:17:45（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Incoming nor’easter threatens major coastal flooding and damaging winds along East Coast - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQcml4VHNxZ1BhVkJ5cGswS19qckxpbnBCclRIVDNkU1pWUmtzV25CaXlualdPOVlBdVNHdnF6YWRiSVhsTm1Dam9iZTNPY01oc002OWhBSTlURzdqU3dmdlk3MWhMTWViSlI2R08xSVliaHpZOXhvQkZ2ZjduY3h6NEJJRUMwX3FWYkIxYUh2QlBNUQ?oc=5) |
 | Trump reveals prescription drug deal with pharmaceutical giant AstraZeneca - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNN2hER1o3b1BwNXVHT1g5R1FodTNXZDdSbXA1NHowYnFOa2tCdDVQaW1QU1R2WE9iYS0yMlRpY3Y4QldLTUl1d3IyVFVnUENqVWlZMHVXcGlsTGJQV3g1TUxDUVRUZklpT1l0aFp3NHQ2eUdTSFd1MmQtd3BzZlFuRWRtVGI0dmhhQWtUYUFGSjI1OGlGMFhONUN0c0U1ZlBDenJOcDFtYXVpSTFfOHBVZW1qdk41SW_SAbwBQVVfeXFMUEhySk83QnZWeXVrb0xITk5oUmtYVlQyVWZCSWo1MV9mejZYTllLYmx5NE9SSVpTcTM2TlAxZVlSUzJ3RHFvcF9nQ2RQV3BCcEEzYzhqS2JCTVM5MzdCVVFUVjBTLWg0RXhETHEtemx3NmhKODQyMlk5VXZ0eUEycjNSUDBlSW9TcWVoR1J3S0hGaWVVdXdqb3dDZFJpWWhfbzhlZTlFaHJSbEZUZ3ZkNHJfcnNxYzE4M1NCelQ?oc=5) |
 | Newsom signs historic housing bill to bring density to transit hubs - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNc2pubTRDSUNyWUozM1hHQ0RlM21seTlaV0lHSVlGd0hOdmVSdDZaeVJ2VkhzWGFOUk05UXpvOHp0Y1hrb1NPM1NjMGp0MUZIWkYwNVJxVmVMWlBYZDM4TGkzTkEzLVpSc2ZDeS1NQUpTaDNPOFBDSklrUmtGR01CS19Ea3BscUdDQWtKLXloLTZKMUVNMGVjNm9sd0VDMUMyNnBnVXpCUnREYXlZYVNzbkp1VDJXVFpTSmc4?oc=5) |
+| Trump’s Threat on Higher China Tariffs Wipes Out Stocks’ Weekly Gains - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOUVVpamlBbWVUX2dnS2NRb2E3eWdZTXc5QmRkWGpWSmtLVGFYRWZzVGE1TE5sOTFZa2RMNmZ5aElfU0poc1hSRXNOb05zU1JKXzBrMEhWWG0ydWNGcVFSUW81NXZHaXgzT1ptZnB0ejAwb1htUWVvaGgzQzhYNzgwbERDV09zTVpiVUNyczl4MzhBRFBDclVJajdqRnVlUTBoX1QwUnN6TlZzSlJ5aUZhWg?oc=5) |
 | Trump gets Covid vaccine and flu shot during second check-up of the year - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOcnpVZjVILWxfaHJYT0E0NTFDVG9zTjM2d293Rl9YOXBlekFyTXdWRVdlTVZ0bXlUQi1ULVBDaWI4THV6dUlpcXdoTERGZ3hsQmNwZWxzYUxhQzJMYzd0eFAtVFEycl9tdkJ5Ui1jdXcxQTBxeTlMTXAzcXZJd2ZPZ1R6X1lpQXpTRWgxdW1tM3JQMTRMRzBuVC1ndWU0Q3p4cEt6SkFpWFZVVGN0cU1IbzhnMVptQdIBVkFVX3lxTE5UeHdyelB3SWFNQUZmYlNycV9DU0h6dHlOajlZWFA2WHNnMkRMVmlvQjlVbV9LMkR6ZDJoUFpRQlU5UzlOZ0ZHb01Eem1OUjVYejIxX0RR?oc=5) |
 | Opening of new Uvalde school marks ‘bittersweet day’ for families and town - Texas Public Radio ｜ TPR | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQcHpERHJVbUJlakxKa1BlRnNJejVMd3pXMEJzUzFVRWVFZ05udVRqWTI4aHhFQ05UQkVhendJZVU3T3dZbVh5T3BGU01ud1VMNEFWTndhUWtEQlA5WVpSTlpPOWtUSXk5SksyNjdEb01KSlNLVk44SF9qYS1wbGxJVndzUTY1aEk2aFdGbU5MdHNOM0JFWWxHRmxZUEhVLWVNOHdYU3JPMmRweE9tSExDdlYzMA?oc=5) |
-| Trump announces new 100 percent tariffs on China, may cancel Xi meeting - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5SS0RCTmN0N0pMR0RqX2RvMVlsSDNTX2FGb3JLamlxOEtBNUNIamRBQUhqZDltZUxSUVpId2pwNkluTVZfU3FlSXhzMk8yUk5YdjBmWGNnZnZ6cUc4R0pIMXRCcFlYbVMxLW55aktrMm5YV1FuZGRzZVQwdXY5ZTQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
