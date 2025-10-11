@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 01:16:37（北京时间）**
+🕒 更新时间：**2025年10月12日 01:24:46（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| These are the agencies Trump is purging during the shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPRVBKWGlleDdxa1ZsSDhrMHBscmhfdkNjVnhEUXdzMWM0ZVI5S3VENzFveFhBajB0enNLU0JlTTFXc2RzQU1iWG1HQmRhQzdMQTNjZ19faVZ4MnctR0VadERWWmJjNFdRX3QxZFQycVBna0ltWXVFY2pvSFVwNVl4amxGN1hIZzQ?oc=5) |
 | 'No survivors' found after explosion in Tennessee, sheriff says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNSG15SjJQQnhWR1NadXZNc3lkX05TeHU2dGZGSVladDZiM0ZZTHg4SzhOalgyVmh2X0hBQTJUbTdOZW1aeUI0cWVRRm9LTFFwenJmLVA3cU9MMzhVcmpzR3FUbmlSMlhobGU2ckpzVEJRQmo2N3o3WHd2Y0pQTHpVME5tTTZwSEXSAVZBVV95cUxOX3JpUHhldkpycnJXSVNKZEczX2x6QXJ1eUZrMDNKTUhJTlFGZFlkeHdDYzFOTGpsdF9tRkhPdmVEWTNKaGRYUlgzdHVwc084UEhKM2hlUQ?oc=5) |
-| Joe Biden undergoing radiation therapy for prostate cancer treatment - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPWlNTSG8xSWlhcGVfZ1lZS2tSWldLNFhscUFhcVdwX0VDN2tXNzFRLTVaX0E1ZDRGb0h2ZUV2dEJnZE9oYUxwZWpjVGRIbDNjQ0VMaTh0dERYTGdlX29LQzJZdVZzM3dDejVtSTh3R3FETXZXLUNmR3VxdFdUNkxSU1BsQ0lnTU1ydi1HZ2huOWlLaHc0YkR3YjRBN2JGeWV0NGRwYS0tblVmZUhiRFBzN3RJVE1yUdIBuwFBVV95cUxOckFTajhFazdxNU1iVUNvVjktRDdsS3N1clp4aHNkd1pBazlLanh3SmQtelRmMVZXWXV1elp0TlNnczM3R29SXzVXTjR1akM0S0pyZVBfWTNkOUFGaHM4Sjd2dlRTbUhYeVZUdjNlbW94YTJtdWVKLVA4VkFKN0t5SmVBaWFqVW1Eei00a0lBS2xDTWtydzRSbU5jNkpBMXVnczdLSnN5eHprVGROaUEtQjVfMGQ3T2JoMVFB?oc=5) |
+| These are the agencies Trump is purging during the shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPRVBKWGlleDdxa1ZsSDhrMHBscmhfdkNjVnhEUXdzMWM0ZVI5S3VENzFveFhBajB0enNLU0JlTTFXc2RzQU1iWG1HQmRhQzdMQTNjZ19faVZ4MnctR0VadERWWmJjNFdRX3QxZFQycVBna0ltWXVFY2pvSFVwNVl4amxGN1hIZzQ?oc=5) |
+| Joe Biden receiving radiation therapy for prostate cancer, spokesman says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1adEJpR1FYbFJIanNNNTRPNUFjNnE5OFRfdWNJTFlqY0JqUDJQTHdpTG41M3VfbFZxWktMd1NKUEVQWngwSkVfeW5EX2RNRXhxSTlrME01ZXFlQdIBX0FVX3lxTE5kVk03ZkU1MFoyeTR1TEpsMVVPbW5ScExCVWhNMlA4Y1MzSndwVXd2aXBLOXI3UDJrYnQyOVFfVDBsb2VTMUFrRlZ4WGhnQlpIY3owTXlEMElJQlhJUXY0?oc=5) |
 | ‘One-sided deal’: College presidents see Trump offer rife with peril - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQMlczMnJUUmdNVGJVWld3UFZRdUM5RXRsMzZpWkNKUlBldWEyLUJoVlpaZzlUSXQxOFNhUllWUUtxRm9kMlFUUFBDdkpfMkJDbDZhc2J6YXBTdk9mU2N1MzRPSjlrMW81dzFEd0RXRy1QNmYwZGdtdk5VajQzcXdpUVJLM1E2eWJrdmhzRERSaTdWZw?oc=5) |
 | Maria Corina Machado says her Nobel Peace Prize tells Venezuelans "we are not alone" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPamRmTmdWcXQzQUoxbmY0SU1Za285Yk9RZDg3X20tdnNNcjM3MHRZZkg2dVRjWmRYSnAzdmhwQU9lcnVuV2J6TDM2WmpZN0dFaUdxWHZXV2FWWFZRVEVVTzhrNjliWnZxVWZuRzRyQVlJazVLaTBaazZxZEJpU1lqMXc3TzdLRGJMWlNEc2liSzZRUjBGM00zbEdXdWp1TDF1cklfQ0djY21JYUdG0gGyAUFVX3lxTE5ORWRkbDJGLTVGM2lpMGlLaEczTVVKRXM1VGdqVkFQLVJrbjlCS2dQdzFPMzhBaU1UWWRqMVB0TVl0OEFMRnA5ZGt4QWJSZkdXbzVLby1vbS05UURqUDZSTFpXS0d2UTVUM1N1cHhCc2VXdEdWMUp0R0w3WUJaLTNnaDk5MFlpU2VfWldsV0VRTWxTcUNwOUxacUpVUFdMczdTcHJXblFSMThtTURBd1kyUWc?oc=5) |
 | Trump issues a Columbus Day proclamation to 'reclaim' the explorer's legacy - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNZHNPOW84bnFDQlZrZlpqd1lkSE1MTldYS0xDY2JmQ1o2RkhfczhVb0VhakxZczRveklHOU4xN2J1OGh4WXhLaTlkaVRtWjB5ZkFJNlQycXlqaEpLY0dTX094V2h1M1h1U1dINnFEM0VCVVAyT3lEUkFtT29jUFdreTRR?oc=5) |
