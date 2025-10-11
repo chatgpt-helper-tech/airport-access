@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 06:58:01（北京时间）**
+🕒 更新时间：**2025年10月12日 07:00:02（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | No survivors in Tennessee explosives factory blast, officials say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOMmRlb3ExdG5sQmFlaGxPMVY5ZFNYUFF1b0M4RjFwSU9zYnk4d2JoY0JmSjg3UlNacFhfSmRDS3JSOEJ6NFhha1pGT2FHZFFaT2J5TnFNelJNdm41RFU1QjgxaDJDeDg5TllOSlJaaUcweVZKSDh5TDg3UGxlMXVZMDdkYThpbGdKdjFaNzViTnl6X0U?oc=5) |
 | Mass firings hit CDC - Politico | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE16LW5fM0ZoRnBfeWRvcGRXTnpNTzJ2bjR0WjB5a2dLSTRVTy1rQWJReVFzcW9VYVNtVjZiaU1wblpuQWx2UWJHZnBZVV9FMmtGN0xuQUotZmtycnU2YVVMdjFfclpPRHBZbXowZ3o2S2NVeDlJeTcybQ?oc=5) |
 | Hospital prepares to receive freed Israeli hostages: 'We are inventing captivity medicine' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5ocGtTaFRkWVdFRGQ4Rmd3T0pWQ3VlMG1VZW16M1pXTkRkbTRkcm9hX1RVdUhVRUl3d0dTdDFFd3o2MDVpYmNZeDdPYjJ3bDNyRWhDeTlLMVZIUdIBX0FVX3lxTE10RG5fa1VIMUVKR3BJTW9jSk03NXpDVEpsTUlQbkRzZ2wzWngybTE4TlJhUXZOUk9qUGNMU3VUU2d6bVVTM1V2VlZrWTcwWGdIVGdRalp6MFRxd0thM0dJ?oc=5) |
+| Nor’Easter Forecast: A Strong Storm Threatens the East Coast With Flooding - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPdEdMMXFQODMzUnd2QzRLbDEySGdXX3hkd3drVkxZd3FjdjlVM1Y4M2JoTmt4WERxblBMbHlUR3FzbDNSd2NuajFfanI5WFBHSWNBX0dwaUQ4VUpNRTJjQVhMSFV1Q3ZnOGdkcG1id0ZnZWY1UUN2U01zR0M2SEw2Y3VhSjF1Wkh0aFIza1BiRmdGNFk?oc=5) |
 | 'RIFs have begun': Trump's budget office escalates government shutdown with mass firings of federal workers - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQa3NZc3JMeldqMm50Uzhnbk5UdVo4aW1yWldleVdLQ21rNHAxXzNCOWlWRk14QXFXR2hKQXZ5UTRVSlVjWDlQOGlXOEh2TERDaEhWZ09rTXFnZWVHV1RxVG1CLTBkbEhfUWVlaUo1a1JuU1B2UUdGMzZkNEZKSkxuVHV3TDZOVXljUURpcVBtUzJiOERPU3lCaQ?oc=5) |
-| National Guard troops in Illinois can remain federalized but can’t be deployed, appeals court rules - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1iOG5fbk5MQmdid1ZRX25zX3V6UWlnT2dZT0hLZGFhalFHQ1JzOEVUdF9CZzJPMENVT2J0WjBIRW9XYmJyWmZSak5Qdm5ERWR3V1BSYUxvc2VVR1lETGdQdFJyWEk2VlpXSHAxYUYxRUN0MHFpZEQyb3JFRQ?oc=5) |
+| Circuit Court walks back judge’s block on Trump’s National Guard call-up in Chicago - Politico | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE81b3ZHTjVwRzFENTctanpTb2tqc1VCYUJPdTFiNGdoVEJSYXpUSHRwYWZLZDVHc3FoVHJvd1hkODNEUEFnU2NPMGc0Rk1UUi1pUllsdUxlekdWbEEyV0I5VThHN0l4WGZjZ3lyNTFFemk3QzdmVkljZA?oc=5) |
 | Mississippi Shooting: At Least 6 Dead and Many Wounded After Homecoming Game, Official Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQTjZyTjhuZzBPNE82OGI5QjJIWEVqSnc4ektOdG1xOV95TldzdU1rUDhBcTgwSWIwTUsyYlJNMVh6UGpIalNXOTVrdVFGREE4Qy0xaENDMWNnMm5nTVB1YzVuQzl2TFBicjRsVUxIS25zU0kzc3hqWUJOVkkwZmdmaA?oc=5) |
 | Pam Bondi, DOJ officials caught off guard by Tish James indictment: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNVGEyZWRjX2JtMWNEQVY0RjdxZWh0ekVHR2MzNjdlMGtlcGhQOC12eldpbW9lckJJZE5tQUo5SThwQWZEVWN2YWEyYVNvTTBqSEhDbzFUU2Z2SDhlRVZ4YWNxUmYwVWg4RHItNklvdUhqbE1OUkpVb0tKaFZpeHFkMWFwcjB4VTlRZVNKUklZQ2o3blY50gGaAUFVX3lxTE1YNUNmNTY2bmNFNkswNWFOTkF5a1JOTUstaWZhYzV0VWxZWk1hSHFqNEN0a0hhREt5b3dLVHhyZ1RyRDBfRzZuM2xQN2w5TzA0SnZLcmlRbHcxUFY3MW1ZU1FQV3FUd2k2bVZRX1c3WWpDU1RvM2ZvdnZLNVM3Y2ZFdGJSdWhUbG4wWEh4Mno3cF9vNHF2Vmo3b0E?oc=5) |
 | Nobel Prize winner Machado says Venezuela is in 'chaos' under current regime - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQV1lfV2xsQUtBUHJtSWV6cFhqS3I2NWZIS0E5b0xOYzJyWEpQcDRkYXFFTkFTUHJXVW1RSWVWYm82TmxNcVAtMC1ybVZqSTcwVzlxLU51ajlfYXFicUI2RmM4RDFhY0pXdUpHRFVVdkVkTFNrN25zQTBXVFRsWWx1Y09MT1RGUWp6cnc?oc=5) |
-| Strengthening nor’easter threatens major coastal flooding and damaging winds along East Coast - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQcml4VHNxZ1BhVkJ5cGswS19qckxpbnBCclRIVDNkU1pWUmtzV25CaXlualdPOVlBdVNHdnF6YWRiSVhsTm1Dam9iZTNPY01oc002OWhBSTlURzdqU3dmdlk3MWhMTWViSlI2R08xSVliaHpZOXhvQkZ2ZjduY3h6NEJJRUMwX3FWYkIxYUh2QlBNUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
