@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 07:56:31（北京时间）**
+🕒 更新时间：**2025年10月11日 08:00:39（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | White House has, for now, ruled out legislative fix for military pay - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNS2o5aGJNS3FPeVc4cUNjOHprQVkxM2oxcVZycUd4TmRZdkFMLU9rcFpBb2hGZmRtTHdXaXhTV3g0TWxObFZKMk5KRTVqbUNzdGItZFNBNU9YSkUtSzFoekMwYmMwMFVSLUdBUkRYT0hvZXJJWlZwdGVJM0tFT3lvN2FPQlgyS3Y2c1g4?oc=5) |
 | White House blasts Nobel Committee for not awarding Peace Prize to Trump - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBEUy1nRmUySDVkVGlnYTlnWmpRNDJVR21PRGI1RUhTWWYxRTdfQ1N5SjgzMUZIOVhzRFlEYkNRRjZOVG5YWUl2T1Q4R1ZpUm9ZZWpsZW1keUdDZ9IBX0FVX3lxTFA1QU1zakt4SmV0THZsUUh0cEEycjlXN1NCa3VGVDFEMTlpNTF2NkpZd08ta0liUVpZYXViYXBFZXJqVG5vT3JZTmYxMlI2ek80X2thWGttVHlTcHlUTXFn?oc=5) |
 | Macron puts Lecornu back as France's prime minister just days after he quit - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPVW04eTlXa2F1Um41S2NqcXFrS3J3NDlHa3NKblJ5Ty1MaUFMUUtPTHFWQm1aN0ZHdldTTFFoZ3o4SFZaMk9RRlBYdVFEVGJwV1V2NFVTZWNQSXhuV0pBUUVXa3hFVGFscmtETnJrb3dkU3NiSlVmWkZxa0VXZTVEYkNUUjRfcnRaU05tVkVBMmdWRW8?oc=5) |
-| MIT president says she 'cannot support' proposal to adopt Trump priorities for funding benefits - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOY09lTHdoa2Z2Sl9PU2NZQXZxamtRSlQwZzJrSmJCNXFIcWtmTHpnbllJS1F1cmh2dUpXRXJsRUt0RlRjWVdjajIxYUdpangtLWdpSjdXQzVLZlc0OEhKS2ppcVgxM3hvalo3cWdsd2pBdTMtMFppWXZ1QWlZcDBOMzBQYVlHQ2ItMkZJdTV4TTc4OXBuUExmWFln?oc=5) |
-| Airlines tell passengers to prepare for delays as government shutdown continues - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNZ2ZGVVE4eTlwM1plV09GVWVINEhWQ2xPN3BBbnlvd2E1SGRjbHcwakQ0Sm1MVEY4ZUs0ZkFqNjBYUHpxcXhJZmMtZUlqX0V5VEhLVTUzNnNTZkk1aXhjX0JjNlNqckRLTldKQjQ3UW54b2xPblZFV05QeE96Si0tRDBBYWpZRm5rNDEw0gGQAUFVX3lxTE1UQWVCRjFMcGpwU3R3MENnWDNiWXlOV2pkVi0wMnpsamRJeE05WjlKazN4TTctTGFQMW1NMDN0ckktREtVOHlEeXFVT0pFLURCblVqRnVSUVJEVVp2bG1GeFFDaC1ibzZINjhlYzZiZkJ1Z2xMRUdsdFJwcGFvV00tb0ljbkVQR25ZZ05wanF2Qg?oc=5) |
 | Letitia James’ indictment puts Andrew Cuomo in a bind - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQUWhYWElpeXZjX0EwZDBleTRyeWQyVEsxTEpVV1NFdTZzVWotdDNXUFJrQnVXQlVFY1JvOExMc3ZzVjFGV1VyeHNxVTY4ZUplbk1BM1pmcUd2TmUwRUpBWlF6S2tuNmFsaDhjTG9ORVZ5bC1ucnoxMUp3aXpVTkRrQ2pPOUNZREVHSVBZN292cVlQa080VC0zeHJETXhrdW52MkJaNjhheUVvYXdsTEZCYXA2NUNvQnJiSW10bzlGZnRJcUkw?oc=5) |
+| MIT rejects Trump administration deal for priority federal funding - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOTXVVSVJ6cUEtOFJiem5EdmlHX2ZtRERVUlZhQXkyQ0FsQThTX1ljZ1RpejJEMVp1R1otYnpJRjJxMGY1ci16SE9vZ18yVl8tVW5Zcllkb3gzeExteC1pZk9kUnNFRUpTeXFLb2dhdjAxNDlqNDJYOXppQk5DU04tMjhmQjkzUkQwMnZkQW5GVHB3WE11UzlOX2xER0U?oc=5) |
+| Airlines tell passengers to prepare for delays as government shutdown continues - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNZ2ZGVVE4eTlwM1plV09GVWVINEhWQ2xPN3BBbnlvd2E1SGRjbHcwakQ0Sm1MVEY4ZUs0ZkFqNjBYUHpxcXhJZmMtZUlqX0V5VEhLVTUzNnNTZkk1aXhjX0JjNlNqckRLTldKQjQ3UW54b2xPblZFV05QeE96Si0tRDBBYWpZRm5rNDEw0gGQAUFVX3lxTE1UQWVCRjFMcGpwU3R3MENnWDNiWXlOV2pkVi0wMnpsamRJeE05WjlKazN4TTctTGFQMW1NMDN0ckktREtVOHlEeXFVT0pFLURCblVqRnVSUVJEVVp2bG1GeFFDaC1ibzZINjhlYzZiZkJ1Z2xMRUdsdFJwcGFvV00tb0ljbkVQR25ZZ05wanF2Qg?oc=5) |
 | The Official Website of Governor Phil Murphy - NJ.gov | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFA2UGNCcGlPc1pWQXp1aUc2NVhDdC1JaG1pWFBlNVRtdUh5d2ZUZnZMSTdQVHM0YXlVY01FUE10NERfam5wWGlCSTJEWG96Q2pXaExzUkI0OFA2WGRpeWFxazEtMkN5SUYwRldMdTVLUG9lZDBkQ284dQ?oc=5) |
 
 ---
