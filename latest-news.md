@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 18:41:56（北京时间）**
+🕒 更新时间：**2025年10月11日 18:49:45（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | US says Qatar to build air force facility in Idaho - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBtbG9OY1o2MTcwNzk4YktpRzNzTWpuYWZkVE5icURyN0NXZWRuQVQ4Q1l5OERzbE1CYTZtNmM4N3AwTnpLMDktdVpiWmVoM3RsZF83WDNuVzdBZ9IBX0FVX3lxTE5CZE02Nm1rSkozd1gzVzBkRUdfa0tLNXp6NzkxdUJYV2h4SVFHR1NJWE8xVzNFSUJsT0hVQndrTXB3NUdMajFmUnRJVlEtYXA0NDlYNlJSMHd3VkJFd0xJ?oc=5) |
 | Trump critic and former national security adviser John Bolton to be charged soon, sources say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxOeTRaZmJsYXR5bjBmRktpNnlMelRyd1A4UC1vVlpMSXNEc0Zpd0QxLU1nNEhNODQ0ZnNZb0JOLWtXU05kUmpmTEYxWHFscGZ0bWo3TXNuS1h0b1E4N1ZEdmI5NklMcnVxT2hKcTJwU1VpS1VKWG5tNDBJdEtMV2tYM2FpNWJzcGo2NWR6YVB2RWxOVF9XUmp1TmZTNUxoWGFMMEpsSTVlY2ZxZ1FHalpZRWZIOXotQVZrdVFuUDk2b2ZpSGpNc21nNlNFM1BjZ9IBVkFVX3lxTE40dG1Wa20wUXlIWnhzYWFmMWRmUkgwajR5Nkl4NlRLemRGSWpTZW1WVkoxSmJNOWcwekhiNWx6c2E5SG9lN3JxU3VlSzBtNF9EeVE1clBn?oc=5) |
 | Newsom signs historic housing bill to bring density to transit hubs - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNc2pubTRDSUNyWUozM1hHQ0RlM21seTlaV0lHSVlGd0hOdmVSdDZaeVJ2VkhzWGFOUk05UXpvOHp0Y1hrb1NPM1NjMGp0MUZIWkYwNVJxVmVMWlBYZDM4TGkzTkEzLVpSc2ZDeS1NQUpTaDNPOFBDSklrUmtGR01CS19Ea3BscUdDQWtKLXloLTZKMUVNMGVjNm9sd0VDMUMyNnBnVXpCUnREYXlZYVNzbkp1VDJXVFpTSmc4?oc=5) |
-| Trump’s Threat on Higher China Tariffs Wipes Out Stocks’ Weekly Gains - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOUVVpamlBbWVUX2dnS2NRb2E3eWdZTXc5QmRkWGpWSmtLVGFYRWZzVGE1TE5sOTFZa2RMNmZ5aElfU0poc1hSRXNOb05zU1JKXzBrMEhWWG0ydWNGcVFSUW81NXZHaXgzT1ptZnB0ejAwb1htUWVvaGgzQzhYNzgwbERDV09zTVpiVUNyczl4MzhBRFBDclVJajdqRnVlUTBoX1QwUnN6TlZzSlJ5aUZhWg?oc=5) |
 | AstraZeneca makes deal with White House to lower drug prices - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNYlJxakd0Z0MtVzkyTFJrbG95NkVkZFgyUngwRFJyVzRjRkNkZEFiUW5la2dOQ0plUFVsV3FPOGVqR2pTM3VSRV9SY0JONHphbjBWY1NBajFKeU9RTjlFX0lSZHlhTHdaeXB3QUxkQ2x6Z3k1Uzk4dkVQRWNsck5oZVNacGdpRTB0cndXLV9tNXEzcm4wbHVaVG1Bdkg2cjZKT19J?oc=5) |
+| Trump’s Threat on Higher China Tariffs Wipes Out Stocks’ Weekly Gains - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOUVVpamlBbWVUX2dnS2NRb2E3eWdZTXc5QmRkWGpWSmtLVGFYRWZzVGE1TE5sOTFZa2RMNmZ5aElfU0poc1hSRXNOb05zU1JKXzBrMEhWWG0ydWNGcVFSUW81NXZHaXgzT1ptZnB0ejAwb1htUWVvaGgzQzhYNzgwbERDV09zTVpiVUNyczl4MzhBRFBDclVJajdqRnVlUTBoX1QwUnN6TlZzSlJ5aUZhWg?oc=5) |
 | Trump speaks with Nobel Peace Prize winner Machado after his administration denounced the decision to award it to her - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNNnpwbUlrNFpSR3VuUmE0cENVTzVMTXRKMElVNFd0Smo2NVFwaGxaNHNqVTBxZHV3QUJzT01kWFdpbWJ3VnZKUWRpTW5XVGZMaEZ4RDVzaXhXU0hGVUlQVE5fZzBJT2NuaVo3NnZudFJ5M1licl91ZDhVbkhMM3ZNeUczeUc?oc=5) |
 
 ---
