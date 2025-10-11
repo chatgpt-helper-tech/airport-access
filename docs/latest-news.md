@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 04:24:08（北京时间）**
+🕒 更新时间：**2025年10月12日 04:33:12（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | Why Labour's deputy leadership race could be a verdict on Starmer | [阅读全文](https://www.bbc.com/news/articles/c4g5nxzzky2o?at_medium=RSS&at_campaign=rss) |
 | Biden receiving radiation therapy for prostate cancer | [阅读全文](https://www.bbc.com/news/articles/c1ede670jnyo?at_medium=RSS&at_campaign=rss) |
 | We're grateful for what Trump is doing for peace, Nobel winner tells BBC | [阅读全文](https://www.bbc.com/news/articles/c5y8y25l250o?at_medium=RSS&at_campaign=rss) |
+| Nova festival survivor found dead two years after 7 October attack | [阅读全文](https://www.bbc.com/news/articles/cdxqx5vwqk2o?at_medium=RSS&at_campaign=rss) |
 | 'We are inventing captivity medicine': Hospital prepares for freed Israeli hostages | [阅读全文](https://www.bbc.com/news/articles/c4gvg8jx7gmo?at_medium=RSS&at_campaign=rss) |
 | Hamas presses Israel to free prominent prisoners as part of Gaza deal | [阅读全文](https://www.bbc.com/news/articles/cd727d2ne42o?at_medium=RSS&at_campaign=rss) |
 | What we know about the Gaza ceasefire agreement | [阅读全文](https://www.bbc.com/news/articles/cvgqx7ygq41o?at_medium=RSS&at_campaign=rss) |
 | A facelift at 28? Why young people are turning to plastic surgery | [阅读全文](https://www.bbc.com/news/articles/czxwvr57424o?at_medium=RSS&at_campaign=rss) |
-| 'We can't live in eternal summer': How people are beating the autumn blues | [阅读全文](https://www.bbc.com/news/articles/c7492e5x7jzo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | Agencies prepare to bring aid to starving people in Gaza as ceasefire appears to hold - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxNQl9Icklrc0RScDlhSU1yTlVxcnZSWUV5b3dweGdqNXlwWE9rNGFyRHBCMk5hTTVSYzNrZWJsaFlwLS1URzJWMWluUV96ZkNvRlZwY0dUbjNidjBKWjFZbzVYLUxuQzRWYzRkdkl3QjRHWDVtb3dUTTYyYlJVRF9ERjNQRmdjeUxMaWdvN2lXNDJSSHpudzh6T2w2dDNkUmViSzBYdURjVG9uLWpXZk1zT0o2MXdjcHhockNfQnRHZHlEbVlvbkNOMVkzcw?oc=5) |
 | 3 shootings in Mississippi related to football events leave multiple dead and injured - WLBT | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOTHRpTkxKM0xxbWpmRmVXOHpaSjEyVzhuQ3c3WG92cUljMXFJbkpBbmRfeUFfMFVyaEZrRGJUMXJjMDFEYlBfc1JlWjFqYnViZkU3QlFxb2pjX3ExNnJGX0tUajZleXZvOS1odGU2N1lrMl9FNXF4YWxJSXhEYUhMM0w4SmtkNm93TEZaZ1EtY1Q3ekNJZjhWZnQ1d0VTTVVTYm5TOFpvc3lwYkRH?oc=5) |
 | Trump ally Laura Loomer calls a Qatari facility at a U.S. Air Force base an 'abomination' — Here's what it will actually do - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNT2FodkR4bFJZWjV2NlJPd3YtVEp1MDh5UE5kb05GVWhtRlZpSFltWXN2Wng0YWxEb1FjQjUxT0xLT0pIRUtfZ016cFJ3NTQySmdIbjQ5T2IzR3ZpZ2cxSG10ZHBKTTY3WWItOWdMTHF4b1VjU0NVOW53SDlYdlAxbEZfb2o1OWdnQUFFNGRUSENSLXM?oc=5) |
-| Pam Bondi, DOJ officials caught off guard by Tish James indictment: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNVGEyZWRjX2JtMWNEQVY0RjdxZWh0ekVHR2MzNjdlMGtlcGhQOC12eldpbW9lckJJZE5tQUo5SThwQWZEVWN2YWEyYVNvTTBqSEhDbzFUU2Z2SDhlRVZ4YWNxUmYwVWg4RHItNklvdUhqbE1OUkpVb0tKaFZpeHFkMWFwcjB4VTlRZVNKUklZQ2o3blY50gGaAUFVX3lxTE1YNUNmNTY2bmNFNkswNWFOTkF5a1JOTUstaWZhYzV0VWxZWk1hSHFqNEN0a0hhREt5b3dLVHhyZ1RyRDBfRzZuM2xQN2w5TzA0SnZLcmlRbHcxUFY3MW1ZU1FQV3FUd2k2bVZRX1c3WWpDU1RvM2ZvdnZLNVM3Y2ZFdGJSdWhUbG4wWEh4Mno3cF9vNHF2Vmo3b0E?oc=5) |
+| Letitia James’ indictment puts Andrew Cuomo in a bind - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQUWhYWElpeXZjX0EwZDBleTRyeWQyVEsxTEpVV1NFdTZzVWotdDNXUFJrQnVXQlVFY1JvOExMc3ZzVjFGV1VyeHNxVTY4ZUplbk1BM1pmcUd2TmUwRUpBWlF6S2tuNmFsaDhjTG9ORVZ5bC1ucnoxMUp3aXpVTkRrQ2pPOUNZREVHSVBZN292cVlQa080VC0zeHJETXhrdW52MkJaNjhheUVvYXdsTEZCYXA2NUNvQnJiSW10bzlGZnRJcUkw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
