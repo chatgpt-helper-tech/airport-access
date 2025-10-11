@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 11:48:46（北京时间）**
+🕒 更新时间：**2025年10月11日 11:57:18（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Letitia James’ indictment puts Andrew Cuomo in a bind - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQUWhYWElpeXZjX0EwZDBleTRyeWQyVEsxTEpVV1NFdTZzVWotdDNXUFJrQnVXQlVFY1JvOExMc3ZzVjFGV1VyeHNxVTY4ZUplbk1BM1pmcUd2TmUwRUpBWlF6S2tuNmFsaDhjTG9ORVZ5bC1ucnoxMUp3aXpVTkRrQ2pPOUNZREVHSVBZN292cVlQa080VC0zeHJETXhrdW52MkJaNjhheUVvYXdsTEZCYXA2NUNvQnJiSW10bzlGZnRJcUkw?oc=5) |
 | Newsom Stares Down LA Revolt in New California Housing Fight - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPRDcxdlZwOFR4dUFfaWVQclBEcUFLc295aC1tX18yYWtLMlFFaWhXNmFZR015M0d0ZjN6RDNmVks3bkF0MU5LNXhCUjcxaWdOc1hXb1BEVllVcjhzMnNfWlNRNjRNdGJMNlVCck9CU1JtR2tMa0ZuR3htLWczcEVRN1ZJQ2tlcWU2OU42SE5IM2U1YldnLW1wNWN5N2twaGJ5VVUxZlVDd1JmRVBl?oc=5) |
 | AstraZeneca makes deal with White House to lower drug prices - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNYlJxakd0Z0MtVzkyTFJrbG95NkVkZFgyUngwRFJyVzRjRkNkZEFiUW5la2dOQ0plUFVsV3FPOGVqR2pTM3VSRV9SY0JONHphbjBWY1NBajFKeU9RTjlFX0lSZHlhTHdaeXB3QUxkQ2x6Z3k1Uzk4dkVQRWNsck5oZVNacGdpRTB0cndXLV9tNXEzcm4wbHVaVG1Bdkg2cjZKT19J?oc=5) |
-| Investors react to Trump's massive increase in China tariffs​ - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOT0thTHBkWjE2OU1tNWZ6OEFhZFFMbGZJb1hCenlkR3RsUU1maFJoN2tiMnZDalNTaGZVRGlxdGFLSjFMX0ZOTGJ4a3NDMzBCaGE1NEIyUHpoanRyc0RQMThFRUNrNnlIWE5NVTAyNGltWlF0WDBDVnFTTGNuWVNtdkhwNDh0SEdCd1k5ckFGV3lCd1liTThEN19IU0MtWDUw?oc=5) |
-| MIT rejects Trump administration deal for priority federal funding - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOTXVVSVJ6cUEtOFJiem5EdmlHX2ZtRERVUlZhQXkyQ0FsQThTX1ljZ1RpejJEMVp1R1otYnpJRjJxMGY1ci16SE9vZ18yVl8tVW5Zcllkb3gzeExteC1pZk9kUnNFRUpTeXFLb2dhdjAxNDlqNDJYOXppQk5DU04tMjhmQjkzUkQwMnZkQW5GVHB3WE11UzlOX2xER0U?oc=5) |
-| The Official Website of Governor Phil Murphy - NJ.gov | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFA2UGNCcGlPc1pWQXp1aUc2NVhDdC1JaG1pWFBlNVRtdUh5d2ZUZnZMSTdQVHM0YXlVY01FUE10NERfam5wWGlCSTJEWG96Q2pXaExzUkI0OFA2WGRpeWFxazEtMkN5SUYwRldMdTVLUG9lZDBkQ284dQ?oc=5) |
-| Trump received Covid vaccine and flu shot during second physical of the year - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPd1ZLZnBaeGNCcGpqckhmdHJkakZ4TzU0Mjg4MjZUNDhuVmtKWVhkZVRzb3pBdmg2OU5uUnYzbnlDc2hZMnRsRlhDbWxLNDlWNEJ5YzU1ci1vUmhfUnphdXhJTlN2ZndUWUNpX181UlFXT1I1N2lqX01tM0h5Z25EWHFJOGJqYU5QaTV2dw?oc=5) |
+| Trump threatens 100% tariff on Chinese goods over over rare earth restrictions - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1lcFF0emJhMzc2ZGlPa0VaSmhhc0ZkVGc4c0NsSFZrMVYxSlZnNXJmSzdNZTVac1ItMVRnSVhsNGRIbXdHX2tYTUFwMzB5b1VWTk1OVE9tQUh3VzdzT0x4M1A5b0kzZ1VVeU10Q0dxbU1MVUEy?oc=5) |
+| MIT rejects federal funding deal with Trump administration - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9TRXFLNnFOSkpxdFdxLWtCdzQ5R2tDdDhWbHZhSW9POW1wU1J4MTRyNlRQOE9zRHlqazRNMWVPcHhVTlluaWw4TVZSbXVKRFJDSjgtMXV3aVhQUdIBX0FVX3lxTE8xUHJzZ3lDRWN2cWhkUTlrR3BSclZjbGtXbVo4YVJSa3g0VFJjNU9oYU01WjIxbThiaU1xUXF6em1CTFZTRENsaFhzRWY5bFlpMmZlQlJPS1hOLTd1ZGVn?oc=5) |
+| Things to know about the Qatar training facility planned for an Idaho Air Force base - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOQUdRc3QwWEhBYW5FYWdtc2pvc3gyRWQ1NWdwSktlQkE5ODRqUHNYUEg4c2QzeXVtTGpnd0NwSTdHSEZ6NHhLRGpvN05IS25ZVGdHMFc4bS1iNXotNElnMEFYR0ZLb0g4bGdVdE1wVmpjWTV3UmxNVUxUcGpDX21TQUs0NXhNRGdDZE9aMmRzV0R3Qk0?oc=5) |
+| Superintendent, Devon Horton, Accused of Stealing Thousands From Illinois School District - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPNjlmX0VhcGRyNmdNUUtqRkFsMXpLdlhEaW9HTHVVQ3BLZUVJZDNHWlNpYVQza0Vkei1OMURWczRYRFdnZkNRUWl5VFBuckl4MW1xb0hSUlJiTGtYMmo2OEMwc1N0ZVFVa3U4VXI4NmRoTXotSmRpZDd6MGdmVFBmTlBLSXRuUURVUGg3MWtiMDEtUmowWExv?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
