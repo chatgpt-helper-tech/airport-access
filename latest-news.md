@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 06:40:20（北京时间）**
+🕒 更新时间：**2025年10月12日 06:49:04（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | Israelis praise Trump at huge rally ahead of expected hostage release by Hamas in Gaza | [阅读全文](https://www.bbc.com/news/articles/c75q5qng0rgo?at_medium=RSS&at_campaign=rss) |
 | Starmer to attend Egypt summit on Gaza peace plan, No 10 says | [阅读全文](https://www.bbc.com/news/articles/c9qnqx7znqno?at_medium=RSS&at_campaign=rss) |
-| Actress Diane Keaton dies aged 79, CBS News reports | [阅读全文](https://www.bbc.com/news/articles/cr5q5rp4r64o?at_medium=RSS&at_campaign=rss) |
+| Academy award-winning actress Diane Keaton dies aged 79 | [阅读全文](https://www.bbc.com/news/articles/cr5q5rp4r64o?at_medium=RSS&at_campaign=rss) |
 | Why Labour's deputy leadership race could be a verdict on Starmer | [阅读全文](https://www.bbc.com/news/articles/c4g5nxzzky2o?at_medium=RSS&at_campaign=rss) |
 | Paedophile singer Ian Watkins dies in prison attack as two men arrested | [阅读全文](https://www.bbc.com/news/articles/cm2d2me0eljo?at_medium=RSS&at_campaign=rss) |
 | Biden receiving radiation therapy for prostate cancer | [阅读全文](https://www.bbc.com/news/articles/c1ede670jnyo?at_medium=RSS&at_campaign=rss) |
@@ -30,7 +30,7 @@
 | Hospital prepares to receive freed Israeli hostages: 'We are inventing captivity medicine' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5ocGtTaFRkWVdFRGQ4Rmd3T0pWQ3VlMG1VZW16M1pXTkRkbTRkcm9hX1RVdUhVRUl3d0dTdDFFd3o2MDVpYmNZeDdPYjJ3bDNyRWhDeTlLMVZIUdIBX0FVX3lxTE10RG5fa1VIMUVKR3BJTW9jSk03NXpDVEpsTUlQbkRzZ2wzWngybTE4TlJhUXZOUk9qUGNMU3VUU2d6bVVTM1V2VlZrWTcwWGdIVGdRalp6MFRxd0thM0dJ?oc=5) |
 | National Guard troops in Illinois can remain federalized but can’t be deployed, appeals court rules - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1iOG5fbk5MQmdid1ZRX25zX3V6UWlnT2dZT0hLZGFhalFHQ1JzOEVUdF9CZzJPMENVT2J0WjBIRW9XYmJyWmZSak5Qdm5ERWR3V1BSYUxvc2VVR1lETGdQdFJyWEk2VlpXSHAxYUYxRUN0MHFpZEQyb3JFRQ?oc=5) |
 | Mississippi Shooting: At Least 6 Dead and Many Wounded After Homecoming Game, Official Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQTjZyTjhuZzBPNE82OGI5QjJIWEVqSnc4ektOdG1xOV95TldzdU1rUDhBcTgwSWIwTUsyYlJNMVh6UGpIalNXOTVrdVFGREE4Qy0xaENDMWNnMm5nTVB1YzVuQzl2TFBicjRsVUxIS25zU0kzc3hqWUJOVkkwZmdmaA?oc=5) |
-| At the Center of Letitia James’s Indictment, a House in Norfolk, Virginia - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNaVMyS3RJcWtwM1VBd0FGbkpEY1ZGOWtVMGdDQ1JRSmhWS29YWWJzbTZVZ29VMUNnR1Bpc3pqRjVQZm5MMG5udGprTk1DbTl3WVlEMjh3WTVWQWlZZlJLV1dzTEZuSVBKRXYwMTJlS1dfbDVyVWg0WE1SMUQ1OHRIRW9YM1lOTExNb3c?oc=5) |
+| Pam Bondi, DOJ officials caught off guard by Tish James indictment: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNVGEyZWRjX2JtMWNEQVY0RjdxZWh0ekVHR2MzNjdlMGtlcGhQOC12eldpbW9lckJJZE5tQUo5SThwQWZEVWN2YWEyYVNvTTBqSEhDbzFUU2Z2SDhlRVZ4YWNxUmYwVWg4RHItNklvdUhqbE1OUkpVb0tKaFZpeHFkMWFwcjB4VTlRZVNKUklZQ2o3blY50gGaAUFVX3lxTE1YNUNmNTY2bmNFNkswNWFOTkF5a1JOTUstaWZhYzV0VWxZWk1hSHFqNEN0a0hhREt5b3dLVHhyZ1RyRDBfRzZuM2xQN2w5TzA0SnZLcmlRbHcxUFY3MW1ZU1FQV3FUd2k2bVZRX1c3WWpDU1RvM2ZvdnZLNVM3Y2ZFdGJSdWhUbG4wWEh4Mno3cF9vNHF2Vmo3b0E?oc=5) |
 | Strengthening nor’easter threatens major coastal flooding and damaging winds along East Coast - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQcml4VHNxZ1BhVkJ5cGswS19qckxpbnBCclRIVDNkU1pWUmtzV25CaXlualdPOVlBdVNHdnF6YWRiSVhsTm1Dam9iZTNPY01oc002OWhBSTlURzdqU3dmdlk3MWhMTWViSlI2R08xSVliaHpZOXhvQkZ2ZjduY3h6NEJJRUMwX3FWYkIxYUh2QlBNUQ?oc=5) |
 | Trump ally Laura Loomer calls a Qatari facility at a U.S. Air Force base an 'abomination' — Here's what it will actually do - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNT2FodkR4bFJZWjV2NlJPd3YtVEp1MDh5UE5kb05GVWhtRlZpSFltWXN2Wng0YWxEb1FjQjUxT0xLT0pIRUtfZ016cFJ3NTQySmdIbjQ5T2IzR3ZpZ2cxSG10ZHBKTTY3WWItOWdMTHF4b1VjU0NVOW53SDlYdlAxbEZfb2o1OWdnQUFFNGRUSENSLXM?oc=5) |
 
