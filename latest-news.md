@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月11日 15:57:14（北京时间）**
+🕒 更新时间：**2025年10月11日 16:01:41（北京时间）**
 
 ---
 
@@ -11,9 +11,9 @@
 | Macron reappoints Lecornu as French PM after days of turmoil | [阅读全文](https://www.bbc.com/news/articles/cy4j9zz54ypo?at_medium=RSS&at_campaign=rss) |
 | Surge in Chagos arrivals prompts row over housing costs | [阅读全文](https://www.bbc.com/news/articles/cd721j8390zo?at_medium=RSS&at_campaign=rss) |
 | Nineteen missing after explosion at Tennessee munitions factory | [阅读全文](https://www.bbc.com/news/articles/c89d4zw8704o?at_medium=RSS&at_campaign=rss) |
-| Why The Traitors appeals to our dark side | [阅读全文](https://www.bbc.com/news/articles/cvg42rjjv4zo?at_medium=RSS&at_campaign=rss) |
 | Tony Blair met Jeffrey Epstein while prime minister | [阅读全文](https://www.bbc.com/news/articles/c5yk16gpxj0o?at_medium=RSS&at_campaign=rss) |
-| Murdered Kenyan woman's niece to push for ex-soldier's extradition during UK visit | [阅读全文](https://www.bbc.com/news/articles/cg7dx324z4po?at_medium=RSS&at_campaign=rss) |
+| We struggle with autumn blues. Here's how we turned it around | [阅读全文](https://www.bbc.com/news/articles/c7492e5x7jzo?at_medium=RSS&at_campaign=rss) |
+| Why The Traitors appeals to our dark side | [阅读全文](https://www.bbc.com/news/articles/cvg42rjjv4zo?at_medium=RSS&at_campaign=rss) |
 | 'They've destroyed everything': Palestinians return to devastation in Gaza City | [阅读全文](https://www.bbc.com/news/articles/czew72350ngo?at_medium=RSS&at_campaign=rss) |
 | Who are the 48 hostages still held in Gaza? | [阅读全文](https://www.bbc.com/news/articles/cpvl9k4mw8no?at_medium=RSS&at_campaign=rss) |
 | What does wording of Gaza ceasefire agreement tell us? | [阅读全文](https://www.bbc.com/news/articles/ckgyr8e0gl2o?at_medium=RSS&at_campaign=rss) |
