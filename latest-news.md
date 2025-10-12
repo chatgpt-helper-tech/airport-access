@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月13日 03:32:10（北京时间）**
+🕒 更新时间：**2025年10月13日 03:41:46（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Exclusive ｜ Hamas Says It’s Ready to Hand Over 20 Living Israeli Hostages - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQM3B5OXB0U1B5T21QSlFuZUVMQjJqY1lUbXlwTTZ3YnJVcEx2UDRsZ05zMTNZQlhnUEc0X1lrbTNmYUh1YmtKODhDVXFsVFZ4SkdYbXdPb1hrc214cE4zaVBncTFXMEFybUc3aTNoaXRSalVodUptNnFjVHRtZDNwMlM5V2dUeE9fWEJQV19wWVFjcmh3LVRBSXpfTllKbl9PZFZSeVVPTHI0c3c?oc=5) |
+| Vance confirms to ABC that Hamas has 20 living hostages, expected release in next 24 hours - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOUVNfREF2TmQ5V2ZZWVhNMTlLdnNkaHNJT25CZjNyVEJkRmdQZDAtX3NLcHVwRXdzZ2hyUlBsZy13T3ppTFZKcThIbldMOFZ3QkllcWJLSEM4bUdONkwyajNUX1lxWUlUTWVtSkpIdTVheXd4TV95c3RjdlpCaTRNYml2UUpaVEFYNnl5c1YyV0hXd2ZnWkdVS3RlU29UUkNWWVVlalBB0gGrAUFVX3lxTE8weGRteWdKZ2NiTWZrd19BZkZ5R0V4MGNRVEVaV05Yd2NMYnhrTXVkOXFOVTBBLTFWLUNlTnNQYmR3SC1SX2pUSEk3aTZ0ZGl5d2ZXRllTYmo4SVEwc0g5UjVWcmJCNW1uNTlmVTd6TWt3OWNwdmktSmw4SFRzTjlGaGFhUndWd3lVaF9UNW53MW9NcVBqRjlBaXBLM28yb1R0OE01ODhDLVl1Zw?oc=5) |
 | Gaza City clashes between Hamas and clan members leave 27 dead - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBWMy1zeHlXSmhVTXNGWGlGd1hIeVVrb2dJQVcwUGdpdk5lS3BKd2dtZGhsNnpzbXNneUhNLWtGZTFqLWhSaXZ3azZtWlNOdHl4eEZ3d1FnN0owQdIBX0FVX3lxTE5WZkdvUnNBcmU0ekFIeDBlM2ZGSGw2TUV4R2VDdXN0V3FRbmRrbmFhYkJyMmVJQjk0Z3dROHdNUENvekZubnA2eFd2NTVlbU9HVHZoMnVqREljMDNHVmpn?oc=5) |
 | Vance says administration will keep fighting to send National Guard to Chicago - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxON0R2d0VkNmFSeGRvc2lqb3ZBSlhQcU5ycU84NWM4SFBKV1RzNE5zUi1PVDA2M2piWVhoQ3Y4MXF2al9NQmpUYm5WSXBaaHF4RmFMNW9HMmJwcnp2bEpNM0dYTm1pUzB6YWlISnZxVGQyZms1OHhOYktoXzJyTUhOV2tpUlhac29WWFBSNVNPcmdHdVQ2d1ktT1NkM29tSGFXcThJWWI4bUppUmM?oc=5) |
 | N.J. power outages: Thousands in dark as nor’easter hits state with high winds, rain - NJ.com | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNMlB0d0cyRlRHTG5ZcEJUX2pYMm5nQkljQUZQSV9NY1FEYktLc1NQVFhITzc4dFROUTQwd21rbmFLNWt2UjJIVUdPd3VrZ0QtM0FuQUpkN1h5UkpKVTg0UFFwc3ViYlZ0VWVLZ2RON3c0cEJqODFZT2gyWENDNWtrRVZuMnd5RTg0dGdvanZaNkF2MUg5YXJMVlR5VGNvbGJxMzFFQmdsbnV1R2puU1JwWFB5b1hxeXJ5dFM40gHPAUFVX3lxTE9Rbm4xQVYzQXBKV3dFRFAyYTJfcDJnZUprRXJwUnNzV1dxekdsUmYzWGRwZTg3NWRXRGJRcE4xb3ZPdE1zcEQ2bS1rMHgweXNBY0k4Q1Z2aTNMWnM0aGgyZTJBXzl2Tmg5eHZweHQ4STRuZEF6bzFaLWdTZ091Tl9aSTdYMU1sMUVSNDBnZU53ei1QLWlLY3h5U1Q3cmJFbFI4SnB2RjZ5WmdUczFOMGx6c1ZCWHlFRkpMd3NFN2hncmZkLVU2Z3U0eUN2bUhWVQ?oc=5) |
