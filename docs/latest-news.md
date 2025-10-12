@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 18:32:47（北京时间）**
+🕒 更新时间：**2025年10月12日 18:40:12（北京时间）**
 
 ---
 
@@ -26,8 +26,8 @@
 | Trump orders Defense Dept. to issue military paychecks during shutdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPTW1FbUNGUHF4MkY4MEJVcDR6emo0Tk5PclJuS3Q5ZHAzR3VVUS1SNG1DeF9NdU5kZmpVR0hIcnduV05JMEp2SXRYTU5LMDRFNkdFQVRUcEdLX3FJVGdiWFBVUDNqOGVEYVMwU2dDaUxJNTFNLTVYU05Oek4zNWZabWx5R3ZzQQ?oc=5) |
 | Nor’Easter Forecast: A Strong Storm Threatens the East Coast With Flooding - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPdEdMMXFQODMzUnd2QzRLbDEySGdXX3hkd3drVkxZd3FjdjlVM1Y4M2JoTmt4WERxblBMbHlUR3FzbDNSd2NuajFfanI5WFBHSWNBX0dwaUQ4VUpNRTJjQVhMSFV1Q3ZnOGdkcG1id0ZnZWY1UUN2U01zR0M2SEw2Y3VhSjF1Wkh0aFIza1BiRmdGNFk?oc=5) |
 | 16 people died in a blast at a Tennessee explosives factory early Friday, sheriff says - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPQ0FBcDF0UC02c3NjM0VLbDBoVkZ6Nk1ncEtiQ0RmNnFCY3I5akZfS2R4TTc1bE1qbHRidGU2ZkJvMW9GUl9MVklVNUJDUklIQm1TZGRkaU5fSDRJQzZSNTlrWE95V3Rpa25sNWhLYXhKeFl0UktDUEZiM2p0MGJVNEhNd0loR3Y4LUJseGtJZ0dYbkZBZk9ZbGRB?oc=5) |
-| Hospital prepares to receive freed Israeli hostages: 'We are inventing captivity medicine' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5ocGtTaFRkWVdFRGQ4Rmd3T0pWQ3VlMG1VZW16M1pXTkRkbTRkcm9hX1RVdUhVRUl3d0dTdDFFd3o2MDVpYmNZeDdPYjJ3bDNyRWhDeTlLMVZIUdIBX0FVX3lxTE10RG5fa1VIMUVKR3BJTW9jSk03NXpDVEpsTUlQbkRzZ2wzWngybTE4TlJhUXZOUk9qUGNMU3VUU2d6bVVTM1V2VlZrWTcwWGdIVGdRalp6MFRxd0thM0dJ?oc=5) |
 | Five hospitalized after helicopter crashes next to Huntington Beach hotel - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQQ2wzeWliYUp5V3RyTnR4Y1pET2lleDJiM2JIcklhTGZTRDRhRGR3ZGlIV2gzMTd0dnRmSksxWWRER1AtY2RCaGZRenotOU1kU0pVZjJ4X3hrdlpDdmxEWmRHUmtiWmt6ZkprWk9RSGh2WkNES25VTTBkblF4Y3ctTVhiQVFscmQya2dnci11Tmt1cDJqZWVRc19OZlNKalNvS2s4OUJIZDZJbnFSWXFzSHNn?oc=5) |
+| Hospital prepares to receive freed Israeli hostages: 'We are inventing captivity medicine' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5ocGtTaFRkWVdFRGQ4Rmd3T0pWQ3VlMG1VZW16M1pXTkRkbTRkcm9hX1RVdUhVRUl3d0dTdDFFd3o2MDVpYmNZeDdPYjJ3bDNyRWhDeTlLMVZIUdIBX0FVX3lxTE10RG5fa1VIMUVKR3BJTW9jSk03NXpDVEpsTUlQbkRzZ2wzWngybTE4TlJhUXZOUk9qUGNMU3VUU2d6bVVTM1V2VlZrWTcwWGdIVGdRalp6MFRxd0thM0dJ?oc=5) |
 | HHS rehiring some people fired through reduction-in-force efforts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPNWV2c0xndE9mVWQ3OFZWd3p2dldHY3pYdDlva2FWYkNGRlBLZkk4VDZORzRyR3U5enRwdVRjSWw3NWczYmZrLXdzcTNIYUM1TG13Ulg1QXppd284U1N3WjdFSGRBcGNPSVN4MEpjU0Z0UG9IMTQ2WHVoUGN0MXpWeVU0UmNQak9ORWY1dTE3TVRYdTlvMkt4bkFwWQ?oc=5) |
 | Appeals court bars Trump from deploying National Guard in Illinois - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOWHlfS0xGbW1vZkRtWFk5Vk5ycUhNRjU1WDVZM0hrTFBybFV0dGlnQTM3WjV1RlA3Wmc4eENUVTZLQXNZc2xtYnotNlZabDd1NjVLOE1lOTJkeVZRZVg2MnBkVk5xdkxpYmJjbmNRd2syMWVYX1NpdUF5SkRsQTNWWHJvcHhGZnpJ?oc=5) |
 | Xi’s Red Line on Trump’s Export Curbs Threatens to Upend Truce - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOa1ZXZkpvRVIzdlQzd0xVbkgzOHREem1aRGZUa0pKc09lRTkwd1lYYUJDd1ZiSV84aVNxYkVCN2lLLW1RNXBkb1RtNTlPMUtDUkpUd2RxUjRlbkU5QXZJWlVzaktmSVR0ZEJkcEZiRFphRWsyd3pZTTZGNlgyRHJRWHdHT0ttWmozaUxIUzZJOUVQM2ZRTWdza2F3UjRpTWgzWXFLS2JrazU5eHg5V3hJdA?oc=5) |
