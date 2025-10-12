@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 10:41:05（北京时间）**
+🕒 更新时间：**2025年10月12日 10:49:09（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump directs Pentagon to use 'available funds' to pay military during shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPS1ZidjEtb0RWeVVSUlNoQTdUaEZMc29lS19wRXYyeEJqZWU4X2JZeFdoTUlJZE13VHJZQnI2YUREOVVDaF9tTnk0Q08zUU0wZkpiQUlxbmNGTF9pVUpYd1hONUNPRFVBYW9sbXMtaERUcFdaaUVPd0pkcDZBSjV3dFEtUWFlWlY2V0JlWlZfYXQyQlJWRnNVQmFnWkg?oc=5) |
+| Government shutdown continues as Trump directs Pentagon to use "all available funds" to pay troops - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQMnVFZjljOXZTNXJOT1NUckhoSVM5NUY0QjF5TGJuSllHTDJPSWpZWDhTWW0ybTZqSDI3VjVaOXl2ZmZ2eEhaWXE3QkJXeXFGcUpFeXZHOUVpUXE4TUg0V0l2VzNIdkpqcjdILURtWEVycC14Y2tBcHVhakoyWXdidmJZYVM0eWh0dFdqZ09JNTV2enZ5MGlOb0VHbzV5dWk1aEtGcmJaNkE2RUlNcG5qbWp5UkdYYUtHSzdVZmZMZG7SAcYBQVVfeXFMTzZVWjZEOFJuRXVWVW1HSkRTcWtjNUlBem1Edi1GR2tjdmx1eXFGTXR5RUZ3d1BnS0wzNlpzMlB5bXhpV0syNjdtcGJJblZEVXc5NngycXNFYWZmSjl4OUY1LUlvdFM1SE5ZZmxXdVBjZDZuWGc3c0t6V0x6WHdDUncydHdMdlB0TmxqTGpwbDZ2RzNLekRnN1ZuU0lOSTgyQUFnY2hfdkpKN1VrZU1GSTBvNjZTcUZNWTdHUEpOMlZvdnVZZzV3?oc=5) |
 | 'RIFs have begun': Trump's budget office escalates government shutdown with mass firings of federal workers - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQa3NZc3JMeldqMm50Uzhnbk5UdVo4aW1yWldleVdLQ21rNHAxXzNCOWlWRk14QXFXR2hKQXZ5UTRVSlVjWDlQOGlXOEh2TERDaEhWZ09rTXFnZWVHV1RxVG1CLTBkbEhfUWVlaUo1a1JuU1B2UUdGMzZkNEZKSkxuVHV3TDZOVXljUURpcVBtUzJiOERPU3lCaQ?oc=5) |
 | Trump Administration Is Bringing Back Scores of C.D.C. Experts Fired in Error - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1LdUV5eW9kT0tBejl3MWNRZThIQlpZTnZzRThxNEw3aW1DQ18xVTVZZHhxdGc3TnNhRHBvSU1XQ3JCcVl5bFprM0p6b180UGtHbUtNWnE1ZE9qOGxNUXVwdVpvRWpUcmRnMGM1OGJXTHNSVEE5?oc=5) |
 | Circuit Court walks back judge’s block on Trump’s National Guard call-up in Chicago - Politico | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE81b3ZHTjVwRzFENTctanpTb2tqc1VCYUJPdTFiNGdoVEJSYXpUSHRwYWZLZDVHc3FoVHJvd1hkODNEUEFnU2NPMGc0Rk1UUi1pUllsdUxlekdWbEEyV0I5VThHN0l4WGZjZ3lyNTFFemk3QzdmVkljZA?oc=5) |
