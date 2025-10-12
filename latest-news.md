@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 11:24:09（北京时间）**
+🕒 更新时间：**2025年10月12日 11:33:06（北京时间）**
 
 ---
 
@@ -10,8 +10,8 @@
 |--------|-------------|
 | Israelis praise Trump at huge rally ahead of expected hostage release by Hamas in Gaza | [阅读全文](https://www.bbc.com/news/articles/c75q5qng0rgo?at_medium=RSS&at_campaign=rss) |
 | The women taking Meta to task after their baby loss | [阅读全文](https://www.bbc.com/news/articles/ce8450380zyo?at_medium=RSS&at_campaign=rss) |
+| What can the King do about Prince Andrew scandals? | [阅读全文](https://www.bbc.com/news/articles/c04q4v64q05o?at_medium=RSS&at_campaign=rss) |
 | Academy award-winning actress Diane Keaton dies aged 79 | [阅读全文](https://www.bbc.com/news/articles/cr5q5rp4r64o?at_medium=RSS&at_campaign=rss) |
-| Why Labour's deputy leadership race could be a verdict on Starmer | [阅读全文](https://www.bbc.com/news/articles/c4g5nxzzky2o?at_medium=RSS&at_campaign=rss) |
 | Paedophile singer Ian Watkins dies in prison attack as two men arrested | [阅读全文](https://www.bbc.com/news/articles/cm2d2me0eljo?at_medium=RSS&at_campaign=rss) |
 | Strictly celebs starstruck as Wicked's Cynthia Erivo soars into movie week | [阅读全文](https://www.bbc.com/news/articles/ce8681j3n07o?at_medium=RSS&at_campaign=rss) |
 | Trump directs Pentagon to 'use all available funds' to pay troops during shutdown | [阅读全文](https://www.bbc.com/news/articles/ce808gvp56mo?at_medium=RSS&at_campaign=rss) |
@@ -25,9 +25,9 @@
 |--------|-------------|
 | Trump news at a glance: US troops will be paid despite shutdown, president claims - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQU1M1REhsaE5xcFVELVdRX2t5RkVEcl9pZGJua05wZi1jZjVkWEpIcDhHYnk5c2RCT2FSZ2hQQkNGZWN5bXhTOXFVTW5sLXpuU0poNFFMUzdHUDdVUjdTNDM3QnI2eXJKTWc4N2NFTzBUU0VrNDVXeThEaTVCSFRiN0NRQU9IRGV2WjQ0eVVCOEw?oc=5) |
 | Trump Administration Is Bringing Back Scores of C.D.C. Experts Fired in Error - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1LdUV5eW9kT0tBejl3MWNRZThIQlpZTnZzRThxNEw3aW1DQ18xVTVZZHhxdGc3TnNhRHBvSU1XQ3JCcVl5bFprM0p6b180UGtHbUtNWnE1ZE9qOGxNUXVwdVpvRWpUcmRnMGM1OGJXTHNSVEE5?oc=5) |
-| What to Know About Trump’s Latest Round of Government Layoffs - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOMUw2dDN1YTd1cl8yTWVHYWo5dEYzWXBZejFaOFgtOEtvUGhGc1RjUlJqM0NQWHpDMnRfVlBVYXNpdWNMazJPWnU3X25yU1JPQ0RmTmVVM3dnOHBZaXNuckp6UC1ZX1locGZTT3pGMnU5NXN4ZkN3dWgtdEk1RjJzV1BCenNWUkNSOHRYQXVIOFpJclNvR29tX2ZpZ2c0b3dBeXhWMGg5V0s?oc=5) |
 | Circuit Court walks back judge’s block on Trump’s National Guard call-up in Chicago - Politico | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE81b3ZHTjVwRzFENTctanpTb2tqc1VCYUJPdTFiNGdoVEJSYXpUSHRwYWZLZDVHc3FoVHJvd1hkODNEUEFnU2NPMGc0Rk1UUi1pUllsdUxlekdWbEEyV0I5VThHN0l4WGZjZ3lyNTFFemk3QzdmVkljZA?oc=5) |
 | No survivors from blast at Tennessee explosives factory, sheriff says - PBS | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNZDlEdUlvcjM0RXVSaHo4ZDZuVzF5QVMxMFNZRTdLWlhucUxYUEpHNk9TQXllbjhaLW1vUFBnVXZiOFUyeXZZaEZPZE5QdmM5Ym1NRkY5cXVCd2UySlBicEx3aVJGZHZBVnQwWHVneHlOZjRTNk9oOWRZWXZncUFJNV91OG1WbjEyVzZRTVpPZzhfd3U1VENhX25yTXhjUDVqNlUtLVR6OA?oc=5) |
+| 'RIFs have begun': Trump's budget office escalates government shutdown with mass firings of federal workers - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQa3NZc3JMeldqMm50Uzhnbk5UdVo4aW1yWldleVdLQ21rNHAxXzNCOWlWRk14QXFXR2hKQXZ5UTRVSlVjWDlQOGlXOEh2TERDaEhWZ09rTXFnZWVHV1RxVG1CLTBkbEhfUWVlaUo1a1JuU1B2UUdGMzZkNEZKSkxuVHV3TDZOVXljUURpcVBtUzJiOERPU3lCaQ?oc=5) |
 | 5 hospitalized after helicopter crashes in Huntington Beach, California - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNWWpoaGVReEVPVWFYR3F6T3A2RFlHdEUyak9JYnQ2ZDB5VEx3cWtwaG5KU1c1c295VWNIUExMSjZwdlJ1dVNBLU5vTHktSUlPSFdWcjBLVF9aRmFDVFJmLWNsSnhReGItcmVnbjlvNVFmbmZUUEt4QUtHUlVnUzJkOXBfRGs2c1RMMEFrU3RSdEZYTF85OVRzZ2NwZ3prRzZ0MGM5R3BvRm1kN0R2UGRwcTNB0gG3AUFVX3lxTE56SDRiNm9HeGhyUzZFOUJ6LWxBQlFkamhJcGlzVnloZFZyeHhnSVJpb3dOcndvU2JCUVc5YXJtSHBsMXBoQ1NQVTJiQjgzakxLa3NlNUdKTkk2R3BfdHl5R01pdUZOWHFCeUQyOGRuY1FFNW05SjRsWGFFOWQyRHVSV3AwQkp5SDUtTVg1bUlwWTRRSXlBRzMxUW12WlMxMDdScGZxczh0X21HN3k5TzRSSXJXakxGNA?oc=5) |
 | Trump's indictment of New York attorney general Letitia James stirs concerns for Black women leaders - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOWmx6UmliSEVrYlByTEt6RHNsd2JSVGdSbnJLRzFoZjR5dW9SYzlzNHNVOFVOeV9NMXZyTnBkMm82YUZzMXJkaGdVdldkbDBmNl8wYjBXUkw5SW85TTFKYWRGejBOU1R5UWZzTTV3SFJwa2xZSXJ6TGNRdmNGOGl4OXF3LWdsTlZIZEd4RGVTWEFiMmNDdHhPWnZULXVLU1IwSWJUWXZnb0xtWWM?oc=5) |
 | Costumed protesters in Portland defy description of the city as a 'war zone' - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPU3o1YzkxbjluXzlFajJnSUdHVnFCSk5Ddk1VVGZiOW9lT05NUkNtaGNFeHZMZ01ld0hZSENkUllKYlgyYUF0T3Z5STJfX0lXMU10Q0pRZnJINlZKRGdQYXBVSWhteDk2Y2M2OGpUMFhhdWtZVGxwWWt4TWo5cmRvNC1sNXhhUEplS2ZpOXpFdnR6SmYyYVJEX1NSOG3SAVZBVV95cUxQb3duTV9GclF0bmNpUHBodG0tY3N6LXliNml6OVlEWmJqbTh2TnRjNzBUVWVSRTJMd1ZHUG9XTEFxNTZUVXpHRVlObzlWR0R3NjFkNDBLdw?oc=5) |
