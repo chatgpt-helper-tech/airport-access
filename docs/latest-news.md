@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 16:57:48（北京时间）**
+🕒 更新时间：**2025年10月12日 17:01:00（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | What can the King do about Prince Andrew scandals? | [阅读全文](https://www.bbc.com/news/articles/c04q4v64q05o?at_medium=RSS&at_campaign=rss) |
 | Strictly celebs starstruck as Wicked's Cynthia Erivo soars into movie week | [阅读全文](https://www.bbc.com/news/articles/ce8681j3n07o?at_medium=RSS&at_campaign=rss) |
 | Paedophile singer Ian Watkins dies in prison attack as two men arrested | [阅读全文](https://www.bbc.com/news/articles/cm2d2me0eljo?at_medium=RSS&at_campaign=rss) |
+| Trump directs Pentagon to 'use all available funds' to pay troops during shutdown | [阅读全文](https://www.bbc.com/news/articles/ce808gvp56mo?at_medium=RSS&at_campaign=rss) |
 | Israelis praise Trump at huge rally ahead of expected hostage release by Hamas in Gaza | [阅读全文](https://www.bbc.com/news/articles/c75q5qng0rgo?at_medium=RSS&at_campaign=rss) |
 | Hamas mobilises fighters in Gaza as fears of internal violence mount | [阅读全文](https://www.bbc.com/news/articles/ce8482418plo?at_medium=RSS&at_campaign=rss) |
 | What we know about the Gaza ceasefire agreement | [阅读全文](https://www.bbc.com/news/articles/cvgqx7ygq41o?at_medium=RSS&at_campaign=rss) |
 | Cold, flu, Covid: Why is everyone sick right now? | [阅读全文](https://www.bbc.com/news/articles/c1jz608l9l4o?at_medium=RSS&at_campaign=rss) |
-| I asked AI to plan my dream summer holiday. Here's how it turned out | [阅读全文](https://www.bbc.com/news/articles/cp8w6kn2dyzo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
