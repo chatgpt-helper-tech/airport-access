@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 20:16:32（北京时间）**
+🕒 更新时间：**2025年10月12日 20:25:30（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Israelis and Palestinians Await Hostage-Prisoner Swap With Relief and Elation - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOdldMVFkteVBTdWsyZl8tWFlwTUt6OWhZQlNtQUtBSzZCOE9pRWNIZlNWaFNUVkdDc1ZlT3JCWGhYNUdjV2ZEQ1IwYWdXa3RuWkVXZUVWb3paSGNDaXlxal82TWItLS05Uk9uYW1GZ2FMUmc4VnVzeGZ5NHdqeDFVdlREQ0RWZW84YUt0YjlZN3F1TDdUczZ1YTE2VlhCUQ?oc=5) |
-| Trump orders Defense Dept. to issue military paychecks during shutdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPTW1FbUNGUHF4MkY4MEJVcDR6emo0Tk5PclJuS3Q5ZHAzR3VVUS1SNG1DeF9NdU5kZmpVR0hIcnduV05JMEp2SXRYTU5LMDRFNkdFQVRUcEdLX3FJVGdiWFBVUDNqOGVEYVMwU2dDaUxJNTFNLTVYU05Oek4zNWZabWx5R3ZzQQ?oc=5) |
 | Beijing blames US for raising trade tensions, defends rare earth curbs - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQVmJhbXBHVS1lRGxYM05WSG9xQkNzZnpyckoyc1BQczV1WDBkMVFQQTUxdy16NlRMMWtEY1pBeDJMU3dEOFUwdmdfeTktX2JqQk5kQW12R2dMY3VyRm5XNzBuQkluT2tCckZXay1mdkJBYXV2SzJUOEg2cDkwYlJNT1FKNTFERnV2T1FMQzhTZ3RpbDJRdlM5YVV4R1dsUnY2YlZGeGd5Zw?oc=5) |
+| Trump orders Defense Dept. to issue military paychecks during shutdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPTW1FbUNGUHF4MkY4MEJVcDR6emo0Tk5PclJuS3Q5ZHAzR3VVUS1SNG1DeF9NdU5kZmpVR0hIcnduV05JMEp2SXRYTU5LMDRFNkdFQVRUcEdLX3FJVGdiWFBVUDNqOGVEYVMwU2dDaUxJNTFNLTVYU05Oek4zNWZabWx5R3ZzQQ?oc=5) |
 | Afghanistan says it has killed 58 Pakistani soldiers in overnight border operations - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPVXo0ZFB0bHJ0X1JRVm45ZHNKSE1Ba2JnWjVFbVJsZVk4cl83XzRDaTRrY0duU0tJa21CVVV2ekR4X3FzWFVEcWhmSzF5dk9UZlc3RXRURlR2c0RZdUJBV1dUV2xTeFZaN1BPZU41d3BDQk5lcnFtRkd5VDhETDhtOFN6LTdLZnFmR0lLQ2xCNHA?oc=5) |
 | Ocean City braces for nor’easter and possible damage reminiscent of 2012’s Superstorm Sandy - The Baltimore Banner | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNVW5jY1MtUkRlcm1lV2JyNjdqSjdWS3lNSlJncng4RzB5NW1DZ212eWIxZDRsWUZYSkR1SS1POHVQaERJYXh5OGRRNVZ6NDJfa29FemFSbmRoakowT1hWRnlORjFuc0JKc0RUMC1lOUFEZlA4RDB6VzV3TTRta2tad2ctdzJ0V3dybWxxM1JjNHlCaWVRVzVYUl8wQ0tvSmw2YkI3ZXFHUlZWLTQxbzJ4NTg4YkZyTXc?oc=5) |
 | Investigators tread carefully at charred Tennessee explosives plant as families of 16 blast victims learn of their loss - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNbVIzS2JhMm93Z0EtR2pLOTB1dmVmRGstejUtRGRSczU5YkE5RlFVc2p4NktRTGhJcDI4UFJzc1VMVlg3bVpyenc2dVZKbVN1aF9WZzQ1QTRKMTRxbldlSTV4ZDRmaVFrdUFPT1N1RzVvN2pUaWJNd1NFQld2VXBlQzFUXzM0dzlpd2h0cw?oc=5) |
