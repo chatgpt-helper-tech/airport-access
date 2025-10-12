@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 08:08:09（北京时间）**
+🕒 更新时间：**2025年10月12日 08:17:01（北京时间）**
 
 ---
 
@@ -9,11 +9,11 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Israelis praise Trump at huge rally ahead of expected hostage release by Hamas in Gaza | [阅读全文](https://www.bbc.com/news/articles/c75q5qng0rgo?at_medium=RSS&at_campaign=rss) |
-| Why Labour's deputy leadership race could be a verdict on Starmer | [阅读全文](https://www.bbc.com/news/articles/c4g5nxzzky2o?at_medium=RSS&at_campaign=rss) |
+| The women taking Meta to task after their baby loss | [阅读全文](https://www.bbc.com/news/articles/ce8450380zyo?at_medium=RSS&at_campaign=rss) |
 | Academy award-winning actress Diane Keaton dies aged 79 | [阅读全文](https://www.bbc.com/news/articles/cr5q5rp4r64o?at_medium=RSS&at_campaign=rss) |
-| Paedophile singer Ian Watkins dies in prison attack as two men arrested | [阅读全文](https://www.bbc.com/news/articles/cm2d2me0eljo?at_medium=RSS&at_campaign=rss) |
+| Why Labour's deputy leadership race could be a verdict on Starmer | [阅读全文](https://www.bbc.com/news/articles/c4g5nxzzky2o?at_medium=RSS&at_campaign=rss) |
 | No survivors found after Tennessee explosives plant blast | [阅读全文](https://www.bbc.com/news/articles/cx2523997p9o?at_medium=RSS&at_campaign=rss) |
-| Biden receiving radiation therapy for prostate cancer | [阅读全文](https://www.bbc.com/news/articles/c1ede670jnyo?at_medium=RSS&at_campaign=rss) |
+| Paedophile singer Ian Watkins dies in prison attack as two men arrested | [阅读全文](https://www.bbc.com/news/articles/cm2d2me0eljo?at_medium=RSS&at_campaign=rss) |
 | Strictly celebs starstruck as Wicked's Cynthia Erivo soars into movie week | [阅读全文](https://www.bbc.com/news/articles/ce8681j3n07o?at_medium=RSS&at_campaign=rss) |
 | Hamas mobilises fighters in Gaza as fears of internal violence mount | [阅读全文](https://www.bbc.com/news/articles/ce8482418plo?at_medium=RSS&at_campaign=rss) |
 | 'We are inventing captivity medicine': Hospital prepares for freed Israeli hostages | [阅读全文](https://www.bbc.com/news/articles/c4gvg8jx7gmo?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | Appeals court temporarily blocks deployment of National Guard troops in Chicago - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPYmVvZGMzVWI2bWdleFFPS2duYUs1bEstMXlqM21VM0lkaDFpRHJUN29rTzdiTWJsaFpIZDRMbGFwUDd5S3hzM3pJeU9qU1oxZGJVbnNwNFNMTUdGdHlTZ2JNbGpULWQyQk9tQ0VaUkI0WjQ0TVZBeW9YeDduM0lKVzFtUkIxMjIzeDdHY2JxaDdUQm13dnNEajVBLUhpOVc0VXNhREJUV1RTYUNUVUk2TnRWONIBuAFBVV95cUxPN0cxeTJ1Zkt6YUxWd25pZTBXMUw1cnkwam5yVmZzTHZiQTFJS2QtZWI0YUUxal8teHUzZWRTdGhadjJMWVlSNl8tVm5sWkszaWNDc0lseE9uNzB1R3FHWk5aZmlOVnVQWW1BVU9xdENucjFLSUVTQjFpM2FTX0VOYl91WFNFcFhnUUNGdDZJZC10aHNiWmhEZHN4Qk9KZjY3TW51SlY0YnczSXNRNm1KYmRkSi1CT0N5?oc=5) |
 | At Least 8 Dead and Others Wounded in Multiple Mississippi Shootings - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQTjZyTjhuZzBPNE82OGI5QjJIWEVqSnc4ektOdG1xOV95TldzdU1rUDhBcTgwSWIwTUsyYlJNMVh6UGpIalNXOTVrdVFGREE4Qy0xaENDMWNnMm5nTVB1YzVuQzl2TFBicjRsVUxIS25zU0kzc3hqWUJOVkkwZmdmaA?oc=5) |
 | Trump's indictment of New York attorney general Letitia James stirs concerns for Black women leaders - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOWmx6UmliSEVrYlByTEt6RHNsd2JSVGdSbnJLRzFoZjR5dW9SYzlzNHNVOFVOeV9NMXZyTnBkMm82YUZzMXJkaGdVdldkbDBmNl8wYjBXUkw5SW85TTFKYWRGejBOU1R5UWZzTTV3SFJwa2xZSXJ6TGNRdmNGOGl4OXF3LWdsTlZIZEd4RGVTWEFiMmNDdHhPWnZULXVLU1IwSWJUWXZnb0xtWWM?oc=5) |
-| Nobel Prize winner Machado says Venezuela is in 'chaos' under current regime - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQV1lfV2xsQUtBUHJtSWV6cFhqS3I2NWZIS0E5b0xOYzJyWEpQcDRkYXFFTkFTUHJXVW1RSWVWYm82TmxNcVAtMC1ybVZqSTcwVzlxLU51ajlfYXFicUI2RmM4RDFhY0pXdUpHRFVVdkVkTFNrN25zQTBXVFRsWWx1Y09MT1RGUWp6cnc?oc=5) |
+| Missouri Democrats have an opportunity to block a new congressional map. They say they’re largely on their own. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPWjVCSkdnQlpEVUQ2eV9ucFdXMVF4YmZudFdWM2ZHZGk3VmtyY0N0Wm5XZG5JRDBqNkI5MmZVVGV2UHJBWFFXNGlrRGNoR2ZwS3lFQlJLaWp3eE5vcmNVS2IyMjl1dTFHdXUzRFNFZVltLWZFcDVWR1BzT0o4YTdTaDRqTFZZUmNpTEQ0bEt2WVM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
