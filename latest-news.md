@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 08:56:15（北京时间）**
+🕒 更新时间：**2025年10月12日 09:00:12（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | No survivors in Tennessee explosives factory blast, officials say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOMmRlb3ExdG5sQmFlaGxPMVY5ZFNYUFF1b0M4RjFwSU9zYnk4d2JoY0JmSjg3UlNacFhfSmRDS3JSOEJ6NFhha1pGT2FHZFFaT2J5TnFNelJNdm41RFU1QjgxaDJDeDg5TllOSlJaaUcweVZKSDh5TDg3UGxlMXVZMDdkYThpbGdKdjFaNzViTnl6X0U?oc=5) |
 | Strengthening nor’easter threatens major coastal flooding and damaging winds along East Coast - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQcml4VHNxZ1BhVkJ5cGswS19qckxpbnBCclRIVDNkU1pWUmtzV25CaXlualdPOVlBdVNHdnF6YWRiSVhsTm1Dam9iZTNPY01oc002OWhBSTlURzdqU3dmdlk3MWhMTWViSlI2R08xSVliaHpZOXhvQkZ2ZjduY3h6NEJJRUMwX3FWYkIxYUh2QlBNUQ?oc=5) |
 | Hospital prepares to receive freed Israeli hostages: 'We are inventing captivity medicine' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5ocGtTaFRkWVdFRGQ4Rmd3T0pWQ3VlMG1VZW16M1pXTkRkbTRkcm9hX1RVdUhVRUl3d0dTdDFFd3o2MDVpYmNZeDdPYjJ3bDNyRWhDeTlLMVZIUdIBX0FVX3lxTE10RG5fa1VIMUVKR3BJTW9jSk03NXpDVEpsTUlQbkRzZ2wzWngybTE4TlJhUXZOUk9qUGNMU3VUU2d6bVVTM1V2VlZrWTcwWGdIVGdRalp6MFRxd0thM0dJ?oc=5) |
-| Appeals court rules U.S. troops Trump sent to Illinois can stay, but can’t be deployed for now - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPVGZrUzQzaXkxWTJFVGJpejZsWW02TUdfT1NUck1EVnZMX2xERFlJZWdUSHBRbGx0ZUJCVDAxYXlrVEZDenlBMkw2Y3ZjdVFUODNMRWtXQ3pMbk05R0NERXRmU2IteldBZGk0aXRra1NvdVR5MFlhMVRxUHBmT3B6a1Q1MHBFQkktZmMxZGhiUlExZjgtV3ktXzN3RFRfR3E1Q2g1eWVWYUNnQkZ6N0hmOU1fNFNpZ2k4cnoxS1FLUHNCRV91TVF4Wg?oc=5) |
-| Four killed in mass shooting after Mississippi football game - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBSeE1Tb2pXTEJRblRONHNXV1ZXdVhadWpVMHVxNGYzX29McjZ2aXR1OHVDT1F0eTV0Vmt5ZmhFcERMVV9reDFRRkFxV3EwUHhRRzR4U3ZGR0pDZw?oc=5) |
+| Four killed in mass shooting after Mississippi football game - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBSeE1Tb2pXTEJRblRONHNXV1ZXdVhadWpVMHVxNGYzX29McjZ2aXR1OHVDT1F0eTV0Vmt5ZmhFcERMVV9reDFRRkFxV3EwUHhRRzR4U3ZGR0pDZ9IBX0FVX3lxTE51QUx1bGM0ak9mQmZLdlRDVkJPVXZoZWRQY1h3QzdUUEZPNEJSQjdhbE9WLUxaLWdOcVp2WUZQVzhBdXhkdVlrM2pWaWVpVVN1c2h3amdlS2xMc1NENDRF?oc=5) |
 | Trump's indictment of New York attorney general Letitia James stirs concerns for Black women leaders - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOWmx6UmliSEVrYlByTEt6RHNsd2JSVGdSbnJLRzFoZjR5dW9SYzlzNHNVOFVOeV9NMXZyTnBkMm82YUZzMXJkaGdVdldkbDBmNl8wYjBXUkw5SW85TTFKYWRGejBOU1R5UWZzTTV3SFJwa2xZSXJ6TGNRdmNGOGl4OXF3LWdsTlZIZEd4RGVTWEFiMmNDdHhPWnZULXVLU1IwSWJUWXZnb0xtWWM?oc=5) |
 | Nobel Prize winner Machado says Venezuela is in 'chaos' under current regime - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQV1lfV2xsQUtBUHJtSWV6cFhqS3I2NWZIS0E5b0xOYzJyWEpQcDRkYXFFTkFTUHJXVW1RSWVWYm82TmxNcVAtMC1ybVZqSTcwVzlxLU51ajlfYXFicUI2RmM4RDFhY0pXdUpHRFVVdkVkTFNrN25zQTBXVFRsWWx1Y09MT1RGUWp6cnc?oc=5) |
+| Missouri Democrats have an opportunity to block a new congressional map. They say they’re largely on their own. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPWjVCSkdnQlpEVUQ2eV9ucFdXMVF4YmZudFdWM2ZHZGk3VmtyY0N0Wm5XZG5JRDBqNkI5MmZVVGV2UHJBWFFXNGlrRGNoR2ZwS3lFQlJLaWp3eE5vcmNVS2IyMjl1dTFHdXUzRFNFZVltLWZFcDVWR1BzT0o4YTdTaDRqTFZZUmNpTEQ0bEt2WVM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
