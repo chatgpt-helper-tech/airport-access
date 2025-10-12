@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 14:49:16（北京时间）**
+🕒 更新时间：**2025年10月12日 14:57:48（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Trump Envoy Savagely Booed During Awkward Ceasefire Celebration - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOQnlfal9jQnEyc1lXSnRFQlV2cmszcEhXd0wzUGc0dkdGLVZ1SGZGbG81bDZRUDNOa3N1YUdZSUNPbzFPWUlPeW42VlZmbXc5X3JsQ2Z5S01qOG1EUmNuaThpNzA4X1p1c1MzWnhOdXg1VWZoT2pBLWsxVVludUNEeGt2Vk54eFhZN0lRazdXZC0tZXZ3?oc=5) |
 | Appeals court bars Trump from deploying National Guard in Illinois - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOWHlfS0xGbW1vZkRtWFk5Vk5ycUhNRjU1WDVZM0hrTFBybFV0dGlnQTM3WjV1RlA3Wmc4eENUVTZLQXNZc2xtYnotNlZabDd1NjVLOE1lOTJkeVZRZVg2MnBkVk5xdkxpYmJjbmNRd2syMWVYX1NpdUF5SkRsQTNWWHJvcHhGZnpJ?oc=5) |
 | Among Portland Protests, It’s Frogs and Sharks and Bears, Oh My! - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5wQW9zajZSNjVGZkd5b3FqUWNTYk9jN3NKU2cxS25pVi1TU25VeThxZ0hPSnZMVWFXLV9DbGVzUzZlMzYwTm5GcjQzcXVJdmZVYmdqN1ZGc1VCbndORkJUWHN6dGR4RmZvVV9wdnh1eXgwZXR3bmFTRw?oc=5) |
-| China defends rare earth export curbs as ‘legitimate,’ hits back at U.S. tariffs as Trump-Xi meeting hangs in balance - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMi4AFBVV95cUxQUUhJQWZRUUZDOW1NV2NLTDZ2YTNjYy1sSTJoVnZkbVlNdVZ5aDZWTFVQTmxvVzJMZWtxZFZoeEVCazVTRmQtV0dtS2JsWUk4elNOTFFxZUlVblZZRFJzZDZfREFEX2VCMXJmb21GRzZUMzM5VnBwRlJsaUpNNDM2TjV3ZmdFdnJOQ0xxM2hMQVVhZjQzNE1wQXIzV3pKVXZDSUh3UElnYXlBdllldnN6cElSdmhDTUpacjFmLVhyQTdFQ09oU0Z3eXp2ckRVd1JicXpsU29BNFFPSXFEQzBIbdIB5gFBVV95cUxQVGlQOFdTcjBZOVA3QTlKeS1ucDdnLXRPOVZ0bWxKbTJaLVFFY3dOSFRUNW1ibFh5TmFLZTB2ZlM1ZWdSYlNJZFVYSFRSa21lMTFGVW1GNkxBelRpVlNWTVBYMnZVQjVWR2Y1dkVSZ0d5cGlkTHZOaW9RNlBvRWNHT25QQm9GM3RxZDJoOEJ5WF8xQ3p6TUhvNWctUGI3VTBNSWRtdHZHeXJySV9Ra3JTc1NsRm9fQ2dEa2dncDAteUxQWGRfZDV1MGxVUGQ2dWZTZ05CQ1FKQVZfempRTHNnX2pHNkpTUQ?oc=5) |
+| China blames Trump and US for escalating trade war - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBad0hJTFJCZHVtbnF4OUpKTE9TdDhQLXJxZFNiVUc5Mm9vR19mUldGNkRUR0x3aGNFSW9SMUVzdV93QkxTaHRnd2Z4TnAyVWtVVmo3NTdHNkMyeHNTZ0xLZkk2M0RqSEU2YVgzY0dqcEY?oc=5) |
 | Trump's indictment of New York attorney general Letitia James stirs concerns for Black women leaders - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOWmx6UmliSEVrYlByTEt6RHNsd2JSVGdSbnJLRzFoZjR5dW9SYzlzNHNVOFVOeV9NMXZyTnBkMm82YUZzMXJkaGdVdldkbDBmNl8wYjBXUkw5SW85TTFKYWRGejBOU1R5UWZzTTV3SFJwa2xZSXJ6TGNRdmNGOGl4OXF3LWdsTlZIZEd4RGVTWEFiMmNDdHhPWnZULXVLU1IwSWJUWXZnb0xtWWM?oc=5) |
 
 ---
