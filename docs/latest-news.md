@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 11:56:09（北京时间）**
+🕒 更新时间：**2025年10月12日 12:01:43（北京时间）**
 
 ---
 
@@ -26,13 +26,13 @@
 | Trump news at a glance: US troops will be paid despite shutdown, president claims - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQU1M1REhsaE5xcFVELVdRX2t5RkVEcl9pZGJua05wZi1jZjVkWEpIcDhHYnk5c2RCT2FSZ2hQQkNGZWN5bXhTOXFVTW5sLXpuU0poNFFMUzdHUDdVUjdTNDM3QnI2eXJKTWc4N2NFTzBUU0VrNDVXeThEaTVCSFRiN0NRQU9IRGV2WjQ0eVVCOEw?oc=5) |
 | Trump Administration Is Bringing Back Scores of C.D.C. Experts Fired in Error - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1LdUV5eW9kT0tBejl3MWNRZThIQlpZTnZzRThxNEw3aW1DQ18xVTVZZHhxdGc3TnNhRHBvSU1XQ3JCcVl5bFprM0p6b180UGtHbUtNWnE1ZE9qOGxNUXVwdVpvRWpUcmRnMGM1OGJXTHNSVEE5?oc=5) |
 | 5 hospitalized after helicopter crashes in busy oceanfront area of Huntington Beach - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9fOThHQ1J2QjgyZWgwNlNOQlpCMDJmU3FiakFfRkEtQ3dFWnZzSTZyanF0WF9KQmJCMzd0bFpGeDd3c3pBM0hvVENFXzN1WmtIS2ZnVDNVV0wyZjV4eTQ5anNkUUtIVS15ZGlTZ0VueFJiU3dMbV81S09jOGF6djg?oc=5) |
-| 'RIFs have begun': Trump's budget office escalates government shutdown with mass firings of federal workers - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQa3NZc3JMeldqMm50Uzhnbk5UdVo4aW1yWldleVdLQ21rNHAxXzNCOWlWRk14QXFXR2hKQXZ5UTRVSlVjWDlQOGlXOEh2TERDaEhWZ09rTXFnZWVHV1RxVG1CLTBkbEhfUWVlaUo1a1JuU1B2UUdGMzZkNEZKSkxuVHV3TDZOVXljUURpcVBtUzJiOERPU3lCaQ?oc=5) |
 | No survivors from blast at Tennessee explosives factory, sheriff says - PBS | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNZDlEdUlvcjM0RXVSaHo4ZDZuVzF5QVMxMFNZRTdLWlhucUxYUEpHNk9TQXllbjhaLW1vUFBnVXZiOFUyeXZZaEZPZE5QdmM5Ym1NRkY5cXVCd2UySlBicEx3aVJGZHZBVnQwWHVneHlOZjRTNk9oOWRZWXZncUFJNV91OG1WbjEyVzZRTVpPZzhfd3U1VENhX25yTXhjUDVqNlUtLVR6OA?oc=5) |
+| 'RIFs have begun': Trump's budget office escalates government shutdown with mass firings of federal workers - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQa3NZc3JMeldqMm50Uzhnbk5UdVo4aW1yWldleVdLQ21rNHAxXzNCOWlWRk14QXFXR2hKQXZ5UTRVSlVjWDlQOGlXOEh2TERDaEhWZ09rTXFnZWVHV1RxVG1CLTBkbEhfUWVlaUo1a1JuU1B2UUdGMzZkNEZKSkxuVHV3TDZOVXljUURpcVBtUzJiOERPU3lCaQ?oc=5) |
 | Israel awaits the release of hostages, as Palestinians return to the ruins of their homes - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQeVlDWW1NOEI5WS1yalVhb09BdVdIZU5SSDdGUHFlRXhLOTVVNDNEWmctcGx1cjNkTk5RcThUc3RvNktxRDM2RkJydkVzMFRETlFockhzQkdxV2FuRnNKdElKNnJNREdGWlFzLXJTSGNEeXE5bkpqWTQxdGVJVFhNU01nT2hKMzd4UUk1dUhsZ2NOZEVRRF9LeVBQQdIBoAFBVV95cUxNWGx1VzRPdTA5a0hraGsyclBraV9HRUFHc3U5QWp1b01UOHdobmhQUnVPNk03aGl5ZGswZ0VyTkNsVlhRSFlfaEQwRWdFWjJ5UG5tTHMycVhXOFM2LXVzYnl5b3RxYXRucUhpVnVKRGpDUWI0bWJ2c19zOC1SbU1GWlhNZlR5bWVON3pGSHpOc2EwYzBQa1pDQWJoa012bUNX?oc=5) |
 | Appeals court bars Trump from deploying National Guard in Illinois - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOWHlfS0xGbW1vZkRtWFk5Vk5ycUhNRjU1WDVZM0hrTFBybFV0dGlnQTM3WjV1RlA3Wmc4eENUVTZLQXNZc2xtYnotNlZabDd1NjVLOE1lOTJkeVZRZVg2MnBkVk5xdkxpYmJjbmNRd2syMWVYX1NpdUF5SkRsQTNWWHJvcHhGZnpJ?oc=5) |
 | Trump’s Favored Prosecutor Is Moving at Full Steam - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOR2hWNEVGS29pb2JTNnkyTXN1cmJmSGYtY29Za2wxbHBQUmNjdy1jOEF6dGRoVjd4UWpMZkdneWVhSVYtYWRaZ2dNb0xzZDBHMkRXNjR0LS1laFlqaUtiZ3FpZUh4OUJPRmt6eV9jZDA1NUpjN21EblhBY2JQUEZobTNzWV9oV2lrcS1PQ1hhbFRGQVZz?oc=5) |
-| Costumed protesters in Portland defy description of the city as a 'war zone' - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPU3o1YzkxbjluXzlFajJnSUdHVnFCSk5Ddk1VVGZiOW9lT05NUkNtaGNFeHZMZ01ld0hZSENkUllKYlgyYUF0T3Z5STJfX0lXMU10Q0pRZnJINlZKRGdQYXBVSWhteDk2Y2M2OGpUMFhhdWtZVGxwWWt4TWo5cmRvNC1sNXhhUEplS2ZpOXpFdnR6SmYyYVJEX1NSOG3SAVZBVV95cUxQb3duTV9GclF0bmNpUHBodG0tY3N6LXliNml6OVlEWmJqbTh2TnRjNzBUVWVSRTJMd1ZHUG9XTEFxNTZUVXpHRVlObzlWR0R3NjFkNDBLdw?oc=5) |
 | Nobel Prize winner Machado says Venezuela is in 'chaos' under current regime - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQV1lfV2xsQUtBUHJtSWV6cFhqS3I2NWZIS0E5b0xOYzJyWEpQcDRkYXFFTkFTUHJXVW1RSWVWYm82TmxNcVAtMC1ybVZqSTcwVzlxLU51ajlfYXFicUI2RmM4RDFhY0pXdUpHRFVVdkVkTFNrN25zQTBXVFRsWWx1Y09MT1RGUWp6cnc?oc=5) |
+| At Least 8 Dead and Others Wounded in Multiple Mississippi Shootings - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQTjZyTjhuZzBPNE82OGI5QjJIWEVqSnc4ektOdG1xOV95TldzdU1rUDhBcTgwSWIwTUsyYlJNMVh6UGpIalNXOTVrdVFGREE4Qy0xaENDMWNnMm5nTVB1YzVuQzl2TFBicjRsVUxIS25zU0kzc3hqWUJOVkkwZmdmaA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
