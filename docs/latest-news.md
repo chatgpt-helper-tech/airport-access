@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 13:48:13（北京时间）**
+🕒 更新时间：**2025年10月12日 13:56:15（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Helicopter spins out of control into palm trees at popular California beach - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPcGtzenpfdFlYY0lhWFNrUjlaNDllWEY1bzNhQnU3UzM4ajFvRHRVUi0zWjNXSEczR0dTS2FvNmhVaWp6MXNObWNpc3hqbHZVemV6V1BjUzFDaDNPRmVyUjZKNktCOVl2U3h3UTZ1TkYxczRXMVg1RmZyUFlXYnhUSTlta1pTeDk3SGtpeEI0THdLUFZqVDBnYmJWTHZMUmRFTWw2M1FVSGhZSUVZOUg5eVV0NGk1eHZGX0p1eUxWbTQ?oc=5) |
 | Appeals court bars Trump from deploying National Guard in Illinois - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOWHlfS0xGbW1vZkRtWFk5Vk5ycUhNRjU1WDVZM0hrTFBybFV0dGlnQTM3WjV1RlA3Wmc4eENUVTZLQXNZc2xtYnotNlZabDd1NjVLOE1lOTJkeVZRZVg2MnBkVk5xdkxpYmJjbmNRd2syMWVYX1NpdUF5SkRsQTNWWHJvcHhGZnpJ?oc=5) |
 | Among Portland Protests, It’s Frogs and Sharks and Bears, Oh My! - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5wQW9zajZSNjVGZkd5b3FqUWNTYk9jN3NKU2cxS25pVi1TU25VeThxZ0hPSnZMVWFXLV9DbGVzUzZlMzYwTm5GcjQzcXVJdmZVYmdqN1ZGc1VCbndORkJUWHN6dGR4RmZvVV9wdnh1eXgwZXR3bmFTRw?oc=5) |
+| China defends rare earth export curbs as ‘legitimate,’ hits back at U.S. tariffs as Trump-Xi meeting hangs in balance - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMi4AFBVV95cUxQUUhJQWZRUUZDOW1NV2NLTDZ2YTNjYy1sSTJoVnZkbVlNdVZ5aDZWTFVQTmxvVzJMZWtxZFZoeEVCazVTRmQtV0dtS2JsWUk4elNOTFFxZUlVblZZRFJzZDZfREFEX2VCMXJmb21GRzZUMzM5VnBwRlJsaUpNNDM2TjV3ZmdFdnJOQ0xxM2hMQVVhZjQzNE1wQXIzV3pKVXZDSUh3UElnYXlBdllldnN6cElSdmhDTUpacjFmLVhyQTdFQ09oU0Z3eXp2ckRVd1JicXpsU29BNFFPSXFEQzBIbdIB5gFBVV95cUxQVGlQOFdTcjBZOVA3QTlKeS1ucDdnLXRPOVZ0bWxKbTJaLVFFY3dOSFRUNW1ibFh5TmFLZTB2ZlM1ZWdSYlNJZFVYSFRSa21lMTFGVW1GNkxBelRpVlNWTVBYMnZVQjVWR2Y1dkVSZ0d5cGlkTHZOaW9RNlBvRWNHT25QQm9GM3RxZDJoOEJ5WF8xQ3p6TUhvNWctUGI3VTBNSWRtdHZHeXJySV9Ra3JTc1NsRm9fQ2dEa2dncDAteUxQWGRfZDV1MGxVUGQ2dWZTZ05CQ1FKQVZfempRTHNnX2pHNkpTUQ?oc=5) |
 | Trump's indictment of New York attorney general Letitia James stirs concerns for Black women leaders - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOWmx6UmliSEVrYlByTEt6RHNsd2JSVGdSbnJLRzFoZjR5dW9SYzlzNHNVOFVOeV9NMXZyTnBkMm82YUZzMXJkaGdVdldkbDBmNl8wYjBXUkw5SW85TTFKYWRGejBOU1R5UWZzTTV3SFJwa2xZSXJ6TGNRdmNGOGl4OXF3LWdsTlZIZEd4RGVTWEFiMmNDdHhPWnZULXVLU1IwSWJUWXZnb0xtWWM?oc=5) |
-| Israel awaits the release of hostages, as Palestinians return to the ruins of their homes - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQeVlDWW1NOEI5WS1yalVhb09BdVdIZU5SSDdGUHFlRXhLOTVVNDNEWmctcGx1cjNkTk5RcThUc3RvNktxRDM2RkJydkVzMFRETlFockhzQkdxV2FuRnNKdElKNnJNREdGWlFzLXJTSGNEeXE5bkpqWTQxdGVJVFhNU01nT2hKMzd4UUk1dUhsZ2NOZEVRRF9LeVBQQdIBoAFBVV95cUxNWGx1VzRPdTA5a0hraGsyclBraV9HRUFHc3U5QWp1b01UOHdobmhQUnVPNk03aGl5ZGswZ0VyTkNsVlhRSFlfaEQwRWdFWjJ5UG5tTHMycVhXOFM2LXVzYnl5b3RxYXRucUhpVnVKRGpDUWI0bWJ2c19zOC1SbU1GWlhNZlR5bWVON3pGSHpOc2EwYzBQa1pDQWJoa012bUNX?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
