@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月13日 06:56:19（北京时间）**
+🕒 更新时间：**2025年10月13日 07:01:23（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Israelis and Palestinians Await Hostage-Prisoner Swap With Relief and Elation - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOdldMVFkteVBTdWsyZl8tWFlwTUt6OWhZQlNtQUtBSzZCOE9pRWNIZlNWaFNUVkdDc1ZlT3JCWGhYNUdjV2ZEQ1IwYWdXa3RuWkVXZUVWb3paSGNDaXlxal82TWItLS05Uk9uYW1GZ2FMUmc4VnVzeGZ5NHdqeDFVdlREQ0RWZW84YUt0YjlZN3F1TDdUczZ1YTE2VlhCUQ?oc=5) |
-| Stock futures rebound from Friday’s rout after Trump says China situation ‘will all be fine’: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE1oT1M1bU5tYXhVYTNnNW9jYllzdFZ3eXFDb0lfMGUteUFiZmtJa2NzZG15ZTlMa2hyWTVMYktVX1p3X3VHWUhmRjhiVjk0UEVKcXFVME52Y1VoYllIM0dabnRxdFFhc080b2EwRU5HQVEwTkt2bTQ00gF8QVVfeXFMUG1Ka2h2MkNpVUwtck9nYk1CYTQ4Z2U3ZEpQRjYyYmdKa1NxSDRFaG1ZM2h1WFRlMExGQmYyWUpMZkRPMTk3a09xRU8zMURHVkNZVXB4Q1dseC1GUHA0NDFYYkJXak9rR1Fxd2ZwbkhWWDR2MmJQZ19oM21haA?oc=5) |
 | Vance says administration will keep fighting to send National Guard to Chicago - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxON0R2d0VkNmFSeGRvc2lqb3ZBSlhQcU5ycU84NWM4SFBKV1RzNE5zUi1PVDA2M2piWVhoQ3Y4MXF2al9NQmpUYm5WSXBaaHF4RmFMNW9HMmJwcnp2bEpNM0dYTm1pUzB6YWlISnZxVGQyZms1OHhOYktoXzJyTUhOV2tpUlhac29WWFBSNVNPcmdHdVQ2d1ktT1NkM29tSGFXcThJWWI4bUppUmM?oc=5) |
+| Stock futures rebound from Friday’s rout after Trump says China situation ‘will all be fine’: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE1oT1M1bU5tYXhVYTNnNW9jYllzdFZ3eXFDb0lfMGUteUFiZmtJa2NzZG15ZTlMa2hyWTVMYktVX1p3X3VHWUhmRjhiVjk0UEVKcXFVME52Y1VoYllIM0dabnRxdFFhc080b2EwRU5HQVEwTkt2bTQ00gF8QVVfeXFMUG1Ka2h2MkNpVUwtck9nYk1CYTQ4Z2U3ZEpQRjYyYmdKa1NxSDRFaG1ZM2h1WFRlMExGQmYyWUpMZkRPMTk3a09xRU8zMURHVkNZVXB4Q1dseC1GUHA0NDFYYkJXak9rR1Fxd2ZwbkhWWDR2MmJQZ19oM21haA?oc=5) |
 | Gaza City clashes between Hamas and clan members leave 27 dead - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBWMy1zeHlXSmhVTXNGWGlGd1hIeVVrb2dJQVcwUGdpdk5lS3BKd2dtZGhsNnpzbXNneUhNLWtGZTFqLWhSaXZ3azZtWlNOdHl4eEZ3d1FnN0owQdIBX0FVX3lxTE5WZkdvUnNBcmU0ekFIeDBlM2ZGSGw2TUV4R2VDdXN0V3FRbmRrbmFhYkJyMmVJQjk0Z3dROHdNUENvekZubnA2eFd2NTVlbU9HVHZoMnVqREljMDNHVmpn?oc=5) |
 | New Jersey declares state of emergency as nor’easter approaches - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNMi1jYmVqSG9PQy02Vk5nTS1vdzFEd1ZnVmRvTkl1ZGRyLUVaNzRPenBnMDVKOWhrblhUSzFLT1Uxa2dJZUw4STRKTHR1NkNzNzY0X3NqNkJZOGRZZDhyMFZIeWduZlNvUHpQbTRyUVp5UTY0eGhnc0hVMzZkM0NjeERWVklPR3VsRHUzWVFfVVNEVE5WRk9TQ0JIRTgyb001OGR6TC0xZmt6QQ?oc=5) |
 | Trump administration reverses layoffs for some CDC staff - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOYlMtN2FUTDlCTTZrbXJiVlZvdWJVSXBVdWRDRWJWUFZ5YTJTVkVWWWxzSkkyUm1Cc1JTLVZVckl5S1JRZG9fd3lsSFhVdS1zM1ZZd3pSeGd5WHFGRF9WUmNXV1lmNWJ2ZlZFcW9EbHNiNHhFMEkyS182Z1FNUjNPVDE5aXJPZldBekRsbFlwUlhUVUlHcVBmMkt5TDdzTVA0TjhDeV9n0gFWQVVfeXFMTzh5OGdpSlBhUnYyYnZpR1hxWHNRU2l5TmhXeHdpT2paSkV4RGY3Mmo1NThNS1RhT0FMZWlna3pZZEhCNkZHWGxOaXdQNnBjNTlMRFdyVUE?oc=5) |
