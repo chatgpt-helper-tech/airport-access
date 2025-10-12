@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 22:56:18（北京时间）**
+🕒 更新时间：**2025年10月12日 23:01:39（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Israel and Gaza prepare for release of hostages and prisoners - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNcG9IM3pFdzg0ejNHZ2djUUV1clVYUVJSYnFla3JpUER4UGpIOF9JbzF5MmlYc3IxbHJwaFBIdUpXX05jalk1OWloMDJkR19IQ0lBVFhLWDhZdEdtMnFIdDJjMl9FYVpFREZXRzRzU2RXQnBNTUlJTkxWbFFYQmhnbEplZkFQTE16SjM0VWVjQXM0WmQwX0tWQ0xXbFZYRVhkV1diLVJ1T2NBYWc?oc=5) |
-| Dozens killed in Pakistan-Afghanistan clashes, border closed - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxObnphMWRFdjlZU2JmSTBJOExITFZyaXBiV0h4MS1taXpGekRzSnE0S0piMTZoNy1JZEVLOWQ1b0lyODlNMEEzUGMzM1g4Q1k2RkFYZXBMTENfUE1oTW80V1YzSXRoTF9XLUR4eFVjNEtMT1l4amZLaGlMLTRjaVRhdjhxaXdmV1BqVks4MlMtYXdVQVRfbTFibUZ4dFVxTEdzZFkwa080cmhDNzNMd2Z6QXl0eVZRVU5KRmVQY0Z1X0tOdw?oc=5) |
+| Afghan Taliban says Pakistani troops killed in 'retaliatory' border attacks - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1UdzhDbW8xZzJxVXZidHpKMzZjck05blh3RldRdTgtVEdFSDFtVkdPX19DS2wyT2dOOWFaVTJHellKeDAwdzZSNEl6d0NkRlNicm9Ga3NQaEZJZ9IBX0FVX3lxTE9kYUk2MHlxcWdpb3pWSTF6X2d2b0xaTGlCeXE1ZU4yMk91LVEwUEFGbGNIbmZlSGtmbVBRM3ZKTmk2Wk5LTTBSVG5aeF9ZMU1QZ3kxdFpIaGtua3hESzJB?oc=5) |
 | Investigators tread carefully at charred Tennessee explosives plant as families of 16 blast victims learn of their loss - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNbVIzS2JhMm93Z0EtR2pLOTB1dmVmRGstejUtRGRSczU5YkE5RlFVc2p4NktRTGhJcDI4UFJzc1VMVlg3bVpyenc2dVZKbVN1aF9WZzQ1QTRKMTRxbldlSTV4ZDRmaVFrdUFPT1N1RzVvN2pUaWJNd1NFQld2VXBlQzFUXzM0dzlpd2h0cw?oc=5) |
 | Special education staff decimated after Trump administration shutdown firings: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxPN0xERGFNeWZucUc0TENYcHo0ckFKZU1YVUtrUEY0N2Q0dldZNkxBRmstSkJMS1dxUUI4Y2RkZ2VNekYzaUNQdGlndGFRM0NNMFZqdXlJc3ZTZmJwWTFXYlRnaU9Kc0FpTlJTTUtBaUNlQjNUaUJuUFRRSE1QeGc5cXNjVG5rdHJKMVExeEhLNm1pLU1WMFhRRXFQWE1EWmhGNjFVN19KanRtUmZyREdkbGdCV04xUmY3TUJiTtIBwgFBVV95cUxPWjUzeXFCVGJuSXZNU0hLZ3RvSjl1RzZJTDl3d3U2Qy1WUHgtSjF4LXRpeGpzWXFjNVczZDR5U19GclNGSnBJdnRUM0pnUVAzRDBHUGtSZm83QnhkSEp2QTJqcmZYaVNRNU5MQUYxbnh1czlzOFZSYWJ0NHVFTW5qVEtaZXRGQTFSTDFsQ3Q3QmNPUkJWRzRlRzFTdThHamt4ZVFtaUxyREtZbFJER0xxcWl6ZXZBbUVfMGlScFNrNFpMQQ?oc=5) |
 | China vows to stand firm against Trump's 100% tariff threat - NPR | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPSVpiLWxlVDFtVGFBLWFibDFFVHRNR2xQRWxOenA3bElOYlpCQzdBcFJ6OVBjR2lDbFJfX0ZnRUlpc1FTMGNqbEJiQkg2WnA2SnFzbnNMYkVvZmtkM3dQZXE0T29UQk9sTE5LelJaeklZdjJtUWQySml5S3R4Zk9YVTNDVEpUMWxNRVpreU1KaURwekp2emo1YzgxYkl3ZGNX?oc=5) |
