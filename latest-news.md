@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月13日 04:08:25（北京时间）**
+🕒 更新时间：**2025年10月13日 04:17:48（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | 'In an instant, they were gone' - small town mourns after Tennessee explosives factory blast | [阅读全文](https://www.bbc.com/news/articles/cwy8y0rnw2eo?at_medium=RSS&at_campaign=rss) |
 | 'She left trail of fairy dust': Tributes pour in for Diane Keaton | [阅读全文](https://www.bbc.com/news/articles/cr5q5rp4r64o?at_medium=RSS&at_campaign=rss) |
 | Man charged with stalking after allegedly targeting Ed Davey and family | [阅读全文](https://www.bbc.com/news/articles/c77d702znm4o?at_medium=RSS&at_campaign=rss) |
-| Murder arrest after two children found dead | [阅读全文](https://www.bbc.com/news/articles/c78n8y3mlxko?at_medium=RSS&at_campaign=rss) |
+| Murder arrest over deaths of children aged 2 and 3 | [阅读全文](https://www.bbc.com/news/articles/c78n8y3mlxko?at_medium=RSS&at_campaign=rss) |
 | SNP leader says 'precedent on my side' to secure second referendum | [阅读全文](https://www.bbc.com/news/articles/cg424dk03x9o?at_medium=RSS&at_campaign=rss) |
 | Afghan Taliban says Pakistani troops killed in 'retaliatory' border attacks | [阅读全文](https://www.bbc.com/news/articles/cgmzmn4971zo?at_medium=RSS&at_campaign=rss) |
 | Cold, flu, Covid: Why so many people are getting ill right now | [阅读全文](https://www.bbc.com/news/articles/c1jz608l9l4o?at_medium=RSS&at_campaign=rss) |
@@ -30,7 +30,7 @@
 | Strong nor’easter forces water rescues and inundates roads as it moves up the East Coast - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOR290aFdtTVhQMVBDNnp3YnFDU25lSG1PNmYwNTlwOWluUEpEaXRKNzVPbUwycm84VUZQNGZRZU9uUzFoVDVQQkhzZk5RUDF0dWFEYUh0ZTBPN2RlSHg1ZGhzZlRnVFd0U194TTNQdjRWMVh6b1VhVkszX1hadWZicHlqcFQzMzZpUlVYWQ?oc=5) |
 | 5 things to know about the health care fight behind the shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNZlJMS2MtR0ZOLU10RURaVDJXLXBGbGRwdmRWTFRaTEpjQUJjU0pQeEZPT245NWtUQ3FMcWt0Sm9HVk5sSG5wb2FpRkw2bmhlNTJTSkUxSnRiM05hN1hQS3ZNNGRsaVo0NHVyM2hWOVk0a0p6cGFrSlhaQXZkWGRPZ3F4TjVDajR5?oc=5) |
 | Donald Trump to travel to Israel as country anxiously awaits hostage releases - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9MWVdNMzc2SEVON1AwZ2JvYVh6LUFtS1l5UnVtZm5GaGRwYU5HTGU3UURtU1MySjVIREV6VDVnQURVcHNvT2k4bXgzNUpQUHdCUjk2S3dadWRNbUNZdkMwUDhPaXhXYVlrR3Fxek5wdlU?oc=5) |
-| South Carolina bar shooting leaves four people dead and 20 injured, officials say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOSjM4bG4wRXI3dzVWeFdsMFRQRVo4RHRkcDZ1SFNfS2tnYWE3YTI4M2xfTjNZdHZGYTJZVHZkRHFYbXpudjM5UEdobXdvTUY3ZEo2QzVnS09OX3AtQVpaS3NOUjIySzN3QndrdEtxQ0VSOEVFazBHZ0pBeVZCeUFzZA?oc=5) |
+| At least 4 killed, 20 hurt in bar shooting in St. Helena Island, South Carolina: Sheriff - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNQl85STZfWXZZSzQ3OHZjeHJKcDZ2RTV3ZjkxU1MzLUNHS1JzOFJ2VUIxSGxwdHpVR2c1OVJnUmV5WUM2N2hBemxZVEdpalNNdGszSGRJZkRWWFJUVllKejZWMDlKYldyOVVaZDFMc0VSMEZ2cEFMV295dlVLaEZyUUhEckNyb2xFbHZqa9IBkgFBVV95cUxQcURMekFrekthQm14WTZKMEpUeERmUmRPbG1xRC0zTHRhTnJhRktIMTgzMW5HRU9ZZWx0N1NnOG1hNnRNS3FGc2U4VmlKWGt2QldUQ0N3WDhYYWhGektqRVFNU3R5eEx4bW1XY2tNZlBydHBvQkItcktuU0tfT0tZdEFFOTZkT1dVMVdycXZzT2YtUQ?oc=5) |
 | Death toll from Tennessee munitions blast lowered to 16, sheriff says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNTnpscDVGWm43ZlVWNjhWS3JJc1lKcWZYamlWR0VCRGVhLUNpSm5adkVTLVFFcW5aX0Q0Yk8xeU9VZDN2NmVLUGM2MktVWi1kd1FKeXpFVGhTTjRTZTVnUUR6QnBXR1h5WlBOaU5mQXlZcUJYMURfczd0SXF5TFllRUlYUjB0c3NzN2VxdEtCUkd0RVZreUtaZlJXc0JWb0xlU2NIUlR2ZFNudmt6YWJ2czdieGZxN3FV?oc=5) |
 | Vance warns ‘deeper’ cuts ahead for federal workers as shutdown enters 12th day - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOWXVHTzdQaGlyUDdod0dGS0NCRlJyY3dTTkpnSXUwdHp2SkRjNmtEcTBleDNNaXJtOTc4N3FSYUUtZDdRSXVJdjg1bkNBQlRlSjBiajBncEZDbk9Yakg2VHNRWktVMFc4ckl5RkU5Tnd6SUtSbWFlbVhBSTlHTmZ6aExUZkpuUkJFYkZmZHJKWmp1U1BuS1IydkVMclFzZ1c5NlNMcEJuSWhKN1VJc3lIcHFsMGpOdw?oc=5) |
 
