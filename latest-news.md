@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 19:09:12（北京时间）**
+🕒 更新时间：**2025年10月12日 19:17:12（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Israelis praise Trump at huge rally ahead of expected hostage release by Hamas in Gaza | [阅读全文](https://www.bbc.com/news/articles/c75q5qng0rgo?at_medium=RSS&at_campaign=rss) |
 | Hamas mobilises fighters in Gaza as fears of internal violence mount | [阅读全文](https://www.bbc.com/news/articles/ce8482418plo?at_medium=RSS&at_campaign=rss) |
 | What we know about the Gaza ceasefire agreement | [阅读全文](https://www.bbc.com/news/articles/cvgqx7ygq41o?at_medium=RSS&at_campaign=rss) |
-| I asked AI to plan my dream summer holiday. Here's how it turned out | [阅读全文](https://www.bbc.com/news/articles/cp8w6kn2dyzo?at_medium=RSS&at_campaign=rss) |
+| He used AI to plan a dream family holiday - here's how it turned out | [阅读全文](https://www.bbc.com/news/articles/cp8w6kn2dyzo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -25,14 +25,14 @@
 |--------|-------------|
 | Trump orders Defense Dept. to issue military paychecks during shutdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPTW1FbUNGUHF4MkY4MEJVcDR6emo0Tk5PclJuS3Q5ZHAzR3VVUS1SNG1DeF9NdU5kZmpVR0hIcnduV05JMEp2SXRYTU5LMDRFNkdFQVRUcEdLX3FJVGdiWFBVUDNqOGVEYVMwU2dDaUxJNTFNLTVYU05Oek4zNWZabWx5R3ZzQQ?oc=5) |
 | Afghanistan says it has killed 58 Pakistani soldiers in overnight border operations - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPVXo0ZFB0bHJ0X1JRVm45ZHNKSE1Ba2JnWjVFbVJsZVk4cl83XzRDaTRrY0duU0tJa21CVVV2ekR4X3FzWFVEcWhmSzF5dk9UZlc3RXRURlR2c0RZdUJBV1dUV2xTeFZaN1BPZU41d3BDQk5lcnFtRkd5VDhETDhtOFN6LTdLZnFmR0lLQ2xCNHA?oc=5) |
+| 16 people died in a blast at a Tennessee explosives factory early Friday, sheriff says - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPQ0FBcDF0UC02c3NjM0VLbDBoVkZ6Nk1ncEtiQ0RmNnFCY3I5akZfS2R4TTc1bE1qbHRidGU2ZkJvMW9GUl9MVklVNUJDUklIQm1TZGRkaU5fSDRJQzZSNTlrWE95V3Rpa25sNWhLYXhKeFl0UktDUEZiM2p0MGJVNEhNd0loR3Y4LUJseGtJZ0dYbkZBZk9ZbGRB?oc=5) |
 | N.J. weather: Nasty nor’easter on track to slam state with high winds, coastal flooding. Latest forecast. - NJ.com | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxPUDhwMERocmhQRDlJWUpoQzNkb2RVTk0xVGdmYWlOdFJTU2g1WTdZWmNvRm9Xb3gxV1FfUlU4eDJ6WnN0dXZ4N1p6NjFMRmZwMXpsM0NHNWpkV2p5eTByZVN6RFU3U0s0aUtoR2lzeV9Pa1VUZjVvZnZBTUVtc0psZ1E3SWJ4YjAzUUZQTmJiUkU3Y2ZNakwwOEVBdWlEV3hrdEphcG81b1M2VXNlWVk5YmFsLXdCTG1lZHhMa0lpQ2tkb19IU2tMWlhuc1dhMUdBWEJiWNIB6AFBVV95cUxPSXlYVXktdlJFdWFjdVl3WUc0TXpFMUgzQkdjS0Z6TkI3LUNNWHVZcTFST3JkdFN3RzRXb0E5TnR5TzdHSGFjNVB4Q0VVMEk4UGdGdm5oeHNsOGQ0ZEdFQjhTYkZJLTN5elkxUkZCUWFCVEJNUW44cjNrQV84c2NOMVAta19VaVBVejhaTVNNMWdCNnU4d05Ia205OGxLbUtNSlFFVVhvZW5uRVFuQW9KSzJEOWpVVFROYVdrNlhoMDVNRXR2UnAtR181ckcweE5TZnZyOHNWcUZ2YlVETDJUWUd4Q2JkRjBR?oc=5) |
 | Hospital prepares to receive freed Israeli hostages: 'We are inventing captivity medicine' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5ocGtTaFRkWVdFRGQ4Rmd3T0pWQ3VlMG1VZW16M1pXTkRkbTRkcm9hX1RVdUhVRUl3d0dTdDFFd3o2MDVpYmNZeDdPYjJ3bDNyRWhDeTlLMVZIUdIBX0FVX3lxTE10RG5fa1VIMUVKR3BJTW9jSk03NXpDVEpsTUlQbkRzZ2wzWngybTE4TlJhUXZOUk9qUGNMU3VUU2d6bVVTM1V2VlZrWTcwWGdIVGdRalp6MFRxd0thM0dJ?oc=5) |
 | At Least 3 Are Injured on the Ground After Helicopter Crashes in California - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPS3I1eUhjVlJpMFBJa1FPZ192U3N1YlBaT0VCVjREYlg1aFVfUXZKVFJiWUhFaVR2MkFUMTM1S2tnWENlaVFvbk8yLUJMeFhDWkFWWW8zX2YtRE1CY2MwZWcwMmZ0WU5nQi1sTXhmTUVVcVRHWkxsd3RDRjdJaEJDVTJtZ2M3WVRtVUpZdk1nSV8?oc=5) |
-| 16 people died in a blast at a Tennessee explosives factory early Friday, sheriff says - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPQ0FBcDF0UC02c3NjM0VLbDBoVkZ6Nk1ncEtiQ0RmNnFCY3I5akZfS2R4TTc1bE1qbHRidGU2ZkJvMW9GUl9MVklVNUJDUklIQm1TZGRkaU5fSDRJQzZSNTlrWE95V3Rpa25sNWhLYXhKeFl0UktDUEZiM2p0MGJVNEhNd0loR3Y4LUJseGtJZ0dYbkZBZk9ZbGRB?oc=5) |
 | Appeals court bars Trump from deploying National Guard in Illinois - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOWHlfS0xGbW1vZkRtWFk5Vk5ycUhNRjU1WDVZM0hrTFBybFV0dGlnQTM3WjV1RlA3Wmc4eENUVTZLQXNZc2xtYnotNlZabDd1NjVLOE1lOTJkeVZRZVg2MnBkVk5xdkxpYmJjbmNRd2syMWVYX1NpdUF5SkRsQTNWWHJvcHhGZnpJ?oc=5) |
 | Outbursts by Katie Porter threaten gubernatorial ambitions - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOTlRtVDlBSi1QQTQ0ajBxNXRqQl9veG9iWFc3X2ZBMnhabXJfWHZKRVRYSmZhcXRFZWxpNUdBcm10Tlp5aldlTmVkLWZuUDJ4T2M2V2NMdDltcmdBUk56RG1TNVNlRTdpQU1LNEFFRmVvSXFjQVVfRXRzN0lBNWkyMzhKNGNudjBxWXd3YUttTDItUGN6eFJpSDdpaFVCQzc0NlpxQU5vQVQwZXBRQVVWN0MyU3ZGZ2xYelFB?oc=5) |
-| Beijing blames US for raising trade tensions, defends rare earth curbs - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQVmJhbXBHVS1lRGxYM05WSG9xQkNzZnpyckoyc1BQczV1WDBkMVFQQTUxdy16NlRMMWtEY1pBeDJMU3dEOFUwdmdfeTktX2JqQk5kQW12R2dMY3VyRm5XNzBuQkluT2tCckZXay1mdkJBYXV2SzJUOEg2cDkwYlJNT1FKNTFERnV2T1FMQzhTZ3RpbDJRdlM5YVV4R1dsUnY2YlZGeGd5Zw?oc=5) |
 | Trump's indictment of New York attorney general Letitia James stirs concerns for Black women leaders - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOWmx6UmliSEVrYlByTEt6RHNsd2JSVGdSbnJLRzFoZjR5dW9SYzlzNHNVOFVOeV9NMXZyTnBkMm82YUZzMXJkaGdVdldkbDBmNl8wYjBXUkw5SW85TTFKYWRGejBOU1R5UWZzTTV3SFJwa2xZSXJ6TGNRdmNGOGl4OXF3LWdsTlZIZEd4RGVTWEFiMmNDdHhPWnZULXVLU1IwSWJUWXZnb0xtWWM?oc=5) |
+| HHS rehiring some people fired through reduction-in-force efforts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPNWV2c0xndE9mVWQ3OFZWd3p2dldHY3pYdDlva2FWYkNGRlBLZkk4VDZORzRyR3U5enRwdVRjSWw3NWczYmZrLXdzcTNIYUM1TG13Ulg1QXppd284U1N3WjdFSGRBcGNPSVN4MEpjU0Z0UG9IMTQ2WHVoUGN0MXpWeVU0UmNQak9ORWY1dTE3TVRYdTlvMkt4bkFwWQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
