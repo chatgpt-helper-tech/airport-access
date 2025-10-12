@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 08:49:36（北京时间）**
+🕒 更新时间：**2025年10月12日 08:56:15（北京时间）**
 
 ---
 
@@ -25,9 +25,9 @@
 |--------|-------------|
 | Trump directs Pentagon to use 'available funds' to pay military during shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPS1ZidjEtb0RWeVVSUlNoQTdUaEZMc29lS19wRXYyeEJqZWU4X2JZeFdoTUlJZE13VHJZQnI2YUREOVVDaF9tTnk0Q08zUU0wZkpiQUlxbmNGTF9pVUpYd1hONUNPRFVBYW9sbXMtaERUcFdaaUVPd0pkcDZBSjV3dFEtUWFlWlY2V0JlWlZfYXQyQlJWRnNVQmFnWkg?oc=5) |
 | Trump Administration Is Bringing Back Scores of C.D.C. Experts Fired in Error - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1LdUV5eW9kT0tBejl3MWNRZThIQlpZTnZzRThxNEw3aW1DQ18xVTVZZHhxdGc3TnNhRHBvSU1XQ3JCcVl5bFprM0p6b180UGtHbUtNWnE1ZE9qOGxNUXVwdVpvRWpUcmRnMGM1OGJXTHNSVEE5?oc=5) |
+| 'RIFs have begun': Trump's budget office escalates government shutdown with mass firings of federal workers - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQa3NZc3JMeldqMm50Uzhnbk5UdVo4aW1yWldleVdLQ21rNHAxXzNCOWlWRk14QXFXR2hKQXZ5UTRVSlVjWDlQOGlXOEh2TERDaEhWZ09rTXFnZWVHV1RxVG1CLTBkbEhfUWVlaUo1a1JuU1B2UUdGMzZkNEZKSkxuVHV3TDZOVXljUURpcVBtUzJiOERPU3lCaQ?oc=5) |
 | No survivors in Tennessee explosives factory blast, officials say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOMmRlb3ExdG5sQmFlaGxPMVY5ZFNYUFF1b0M4RjFwSU9zYnk4d2JoY0JmSjg3UlNacFhfSmRDS3JSOEJ6NFhha1pGT2FHZFFaT2J5TnFNelJNdm41RFU1QjgxaDJDeDg5TllOSlJaaUcweVZKSDh5TDg3UGxlMXVZMDdkYThpbGdKdjFaNzViTnl6X0U?oc=5) |
 | Strengthening nor’easter threatens major coastal flooding and damaging winds along East Coast - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQcml4VHNxZ1BhVkJ5cGswS19qckxpbnBCclRIVDNkU1pWUmtzV25CaXlualdPOVlBdVNHdnF6YWRiSVhsTm1Dam9iZTNPY01oc002OWhBSTlURzdqU3dmdlk3MWhMTWViSlI2R08xSVliaHpZOXhvQkZ2ZjduY3h6NEJJRUMwX3FWYkIxYUh2QlBNUQ?oc=5) |
-| 'RIFs have begun': Trump's budget office escalates government shutdown with mass firings of federal workers - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQa3NZc3JMeldqMm50Uzhnbk5UdVo4aW1yWldleVdLQ21rNHAxXzNCOWlWRk14QXFXR2hKQXZ5UTRVSlVjWDlQOGlXOEh2TERDaEhWZ09rTXFnZWVHV1RxVG1CLTBkbEhfUWVlaUo1a1JuU1B2UUdGMzZkNEZKSkxuVHV3TDZOVXljUURpcVBtUzJiOERPU3lCaQ?oc=5) |
 | Hospital prepares to receive freed Israeli hostages: 'We are inventing captivity medicine' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5ocGtTaFRkWVdFRGQ4Rmd3T0pWQ3VlMG1VZW16M1pXTkRkbTRkcm9hX1RVdUhVRUl3d0dTdDFFd3o2MDVpYmNZeDdPYjJ3bDNyRWhDeTlLMVZIUdIBX0FVX3lxTE10RG5fa1VIMUVKR3BJTW9jSk03NXpDVEpsTUlQbkRzZ2wzWngybTE4TlJhUXZOUk9qUGNMU3VUU2d6bVVTM1V2VlZrWTcwWGdIVGdRalp6MFRxd0thM0dJ?oc=5) |
 | Appeals court rules U.S. troops Trump sent to Illinois can stay, but can’t be deployed for now - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPVGZrUzQzaXkxWTJFVGJpejZsWW02TUdfT1NUck1EVnZMX2xERFlJZWdUSHBRbGx0ZUJCVDAxYXlrVEZDenlBMkw2Y3ZjdVFUODNMRWtXQ3pMbk05R0NERXRmU2IteldBZGk0aXRra1NvdVR5MFlhMVRxUHBmT3B6a1Q1MHBFQkktZmMxZGhiUlExZjgtV3ktXzN3RFRfR3E1Q2g1eWVWYUNnQkZ6N0hmOU1fNFNpZ2k4cnoxS1FLUHNCRV91TVF4Wg?oc=5) |
 | Four killed in mass shooting after Mississippi football game - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBSeE1Tb2pXTEJRblRONHNXV1ZXdVhadWpVMHVxNGYzX29McjZ2aXR1OHVDT1F0eTV0Vmt5ZmhFcERMVV9reDFRRkFxV3EwUHhRRzR4U3ZGR0pDZw?oc=5) |
