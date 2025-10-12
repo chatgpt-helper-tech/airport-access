@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月13日 01:41:52（北京时间）**
+🕒 更新时间：**2025年10月13日 01:49:33（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Israel and Gaza prepare for release of hostages and prisoners - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNcG9IM3pFdzg0ejNHZ2djUUV1clVYUVJSYnFla3JpUER4UGpIOF9JbzF5MmlYc3IxbHJwaFBIdUpXX05jalk1OWloMDJkR19IQ0lBVFhLWDhZdEdtMnFIdDJjMl9FYVpFREZXRzRzU2RXQnBNTUlJTkxWbFFYQmhnbEplZkFQTE16SjM0VWVjQXM0WmQwX0tWQ0xXbFZYRVhkV1diLVJ1T2NBYWc?oc=5) |
+| Exclusive ｜ Hamas Says It’s Ready to Hand Over 20 Living Israeli Hostages - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQM3B5OXB0U1B5T21QSlFuZUVMQjJqY1lUbXlwTTZ3YnJVcEx2UDRsZ05zMTNZQlhnUEc0X1lrbTNmYUh1YmtKODhDVXFsVFZ4SkdYbXdPb1hrc214cE4zaVBncTFXMEFybUc3aTNoaXRSalVodUptNnFjVHRtZDNwMlM5V2dUeE9fWEJQV19wWVFjcmh3LVRBSXpfTllKbl9PZFZSeVVPTHI0c3c?oc=5) |
 | Donald Trump scrambles to seal the deal in Gaza - The Economist | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNbm9ORVN2RGtEX1c1YzlReFgwZTMtOHAyMm5keUhWVmZPTWFKNXF4YU41SW5PdW9lVHFZMjRTMVZnLTBoRlNIVmtrWUR6T0pIWEFkY0xTMDdTdWh0QWk1U1diNGtYWlhwX3dRempQX0hLTEZFS0R5WFlGQXVBTmdZSWd5aS1pQUNHYTAxWHVMbmw1MmZfRHZPY1pWckpoUERtT0VlbFdMSXlFMkk?oc=5) |
 | Afghanistan and Pakistan claim to kill dozens of soldiers in border clash - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQV2VOelhxbmsxTVdZay01RXVsLTFwZFRvdjZPQ19GTlZBV0tDelFDQ04ySnJpVTFLTTZ0dllTZ2xZMjBSU2ZlYTJlNnFrOFpXRE9xWHhyMkVyaEIwYWYyMzRtc1VJX3JEWHVrUXAwMWhqaDVyczRqbzdDS3BWSDdmWFRwSTBKc0FXdUYxMkdZSWV2cGRr?oc=5) |
 | 5 things to know about the health care fight behind the shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNZlJMS2MtR0ZOLU10RURaVDJXLXBGbGRwdmRWTFRaTEpjQUJjU0pQeEZPT245NWtUQ3FMcWt0Sm9HVk5sSG5wb2FpRkw2bmhlNTJTSkUxSnRiM05hN1hQS3ZNNGRsaVo0NHVyM2hWOVk0a0p6cGFrSlhaQXZkWGRPZ3F4TjVDajR5?oc=5) |
