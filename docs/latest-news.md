@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月12日 16:08:07（北京时间）**
+🕒 更新时间：**2025年10月12日 16:17:53（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | The women taking Meta to task after their baby loss | [阅读全文](https://www.bbc.com/news/articles/ce8450380zyo?at_medium=RSS&at_campaign=rss) |
-| What can the King do about Prince Andrew scandals? | [阅读全文](https://www.bbc.com/news/articles/c04q4v64q05o?at_medium=RSS&at_campaign=rss) |
 | Academy Award-winning actress Diane Keaton dies aged 79 | [阅读全文](https://www.bbc.com/news/articles/cr5q5rp4r64o?at_medium=RSS&at_campaign=rss) |
+| What can the King do about Prince Andrew scandals? | [阅读全文](https://www.bbc.com/news/articles/c04q4v64q05o?at_medium=RSS&at_campaign=rss) |
 | Paedophile singer Ian Watkins dies in prison attack as two men arrested | [阅读全文](https://www.bbc.com/news/articles/cm2d2me0eljo?at_medium=RSS&at_campaign=rss) |
 | Strictly celebs starstruck as Wicked's Cynthia Erivo soars into movie week | [阅读全文](https://www.bbc.com/news/articles/ce8681j3n07o?at_medium=RSS&at_campaign=rss) |
 | Hamas mobilises fighters in Gaza as fears of internal violence mount | [阅读全文](https://www.bbc.com/news/articles/ce8482418plo?at_medium=RSS&at_campaign=rss) |
 | 'We are inventing captivity medicine': Hospital prepares for freed Israeli hostages | [阅读全文](https://www.bbc.com/news/articles/c4gvg8jx7gmo?at_medium=RSS&at_campaign=rss) |
 | What we know about the Gaza ceasefire agreement | [阅读全文](https://www.bbc.com/news/articles/cvgqx7ygq41o?at_medium=RSS&at_campaign=rss) |
 | Cold, flu, Covid: Why is everyone sick right now? | [阅读全文](https://www.bbc.com/news/articles/c1jz608l9l4o?at_medium=RSS&at_campaign=rss) |
-| I was shocked when mum told me what she wants to do with her body when she dies | [阅读全文](https://www.bbc.com/news/articles/cly7lwp8pyno?at_medium=RSS&at_campaign=rss) |
+| I asked AI to plan my dream summer holiday. Here's how it turned out | [阅读全文](https://www.bbc.com/news/articles/cp8w6kn2dyzo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -27,8 +27,8 @@
 | Trump Administration Is Bringing Back Scores of C.D.C. Experts Fired in Error - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1LdUV5eW9kT0tBejl3MWNRZThIQlpZTnZzRThxNEw3aW1DQ18xVTVZZHhxdGc3TnNhRHBvSU1XQ3JCcVl5bFprM0p6b180UGtHbUtNWnE1ZE9qOGxNUXVwdVpvRWpUcmRnMGM1OGJXTHNSVEE5?oc=5) |
 | Donald Trump and Abdel Fatah al-Sisi to chair Gaza peace summit on Monday - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPNDBzb04wLU03UmQxbkk4RDZNWXRnQlhzYmNhNmltWFNQNXVWOGFkQlpEbkYzdmFRdWZ2ZVJ0UjdFUC0yVjM1Ymp3TzlBZDBTZl9tTjZnRXlKSVIwNHQtZERIaGdqaHltTWlRN0F1d3NJcEw5UWEzOWJDSmhSVUI5a1ZDVVRlVHM0eFF0UThBS3JpWkppRkpGckZmSGxZZURHQW5IZklmZ25nbDhPUkcw?oc=5) |
 | Sheriff Says 16 Dead in Blast at Tennessee Explosives Plant - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQM0xOTFljMjh5Z1VCVzNHdTdEOHQ1dTlRaU0wVFl3Vm1xYjRvZmtvdkp4Z01RTXZkeG40U1E0RXc2M2pJMkdmakNVZkp2Q3o1VFB5X3RTM0N2ZG5zRTBqYS1jbVFvd25rYlZIZVlaU0VXY1doUUpFY2xjOXFSZmNPb2p0cWFJdE40Vlg2eHdES1RHU3FPajIyY0hkbjc?oc=5) |
-| Special education staff decimated after Trump administration shutdown firings: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxPN0xERGFNeWZucUc0TENYcHo0ckFKZU1YVUtrUEY0N2Q0dldZNkxBRmstSkJMS1dxUUI4Y2RkZ2VNekYzaUNQdGlndGFRM0NNMFZqdXlJc3ZTZmJwWTFXYlRnaU9Kc0FpTlJTTUtBaUNlQjNUaUJuUFRRSE1QeGc5cXNjVG5rdHJKMVExeEhLNm1pLU1WMFhRRXFQWE1EWmhGNjFVN19KanRtUmZyREdkbGdCV04xUmY3TUJiTtIBwgFBVV95cUxPWjUzeXFCVGJuSXZNU0hLZ3RvSjl1RzZJTDl3d3U2Qy1WUHgtSjF4LXRpeGpzWXFjNVczZDR5U19GclNGSnBJdnRUM0pnUVAzRDBHUGtSZm83QnhkSEp2QTJqcmZYaVNRNU5MQUYxbnh1czlzOFZSYWJ0NHVFTW5qVEtaZXRGQTFSTDFsQ3Q3QmNPUkJWRzRlRzFTdThHamt4ZVFtaUxyREtZbFJER0xxcWl6ZXZBbUVfMGlScFNrNFpMQQ?oc=5) |
 | Five hospitalized after helicopter crashes next to Huntington Beach hotel - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQQ2wzeWliYUp5V3RyTnR4Y1pET2lleDJiM2JIcklhTGZTRDRhRGR3ZGlIV2gzMTd0dnRmSksxWWRER1AtY2RCaGZRenotOU1kU0pVZjJ4X3hrdlpDdmxEWmRHUmtiWmt6ZkprWk9RSGh2WkNES25VTTBkblF4Y3ctTVhiQVFscmQya2dnci11Tmt1cDJqZWVRc19OZlNKalNvS2s4OUJIZDZJbnFSWXFzSHNn?oc=5) |
+| Special education staff decimated after Trump administration shutdown firings: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxPN0xERGFNeWZucUc0TENYcHo0ckFKZU1YVUtrUEY0N2Q0dldZNkxBRmstSkJMS1dxUUI4Y2RkZ2VNekYzaUNQdGlndGFRM0NNMFZqdXlJc3ZTZmJwWTFXYlRnaU9Kc0FpTlJTTUtBaUNlQjNUaUJuUFRRSE1QeGc5cXNjVG5rdHJKMVExeEhLNm1pLU1WMFhRRXFQWE1EWmhGNjFVN19KanRtUmZyREdkbGdCV04xUmY3TUJiTtIBwgFBVV95cUxPWjUzeXFCVGJuSXZNU0hLZ3RvSjl1RzZJTDl3d3U2Qy1WUHgtSjF4LXRpeGpzWXFjNVczZDR5U19GclNGSnBJdnRUM0pnUVAzRDBHUGtSZm83QnhkSEp2QTJqcmZYaVNRNU5MQUYxbnh1czlzOFZSYWJ0NHVFTW5qVEtaZXRGQTFSTDFsQ3Q3QmNPUkJWRzRlRzFTdThHamt4ZVFtaUxyREtZbFJER0xxcWl6ZXZBbUVfMGlScFNrNFpMQQ?oc=5) |
 | Appeals court bars Trump from deploying National Guard in Illinois - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOWHlfS0xGbW1vZkRtWFk5Vk5ycUhNRjU1WDVZM0hrTFBybFV0dGlnQTM3WjV1RlA3Wmc4eENUVTZLQXNZc2xtYnotNlZabDd1NjVLOE1lOTJkeVZRZVg2MnBkVk5xdkxpYmJjbmNRd2syMWVYX1NpdUF5SkRsQTNWWHJvcHhGZnpJ?oc=5) |
 | China blames Trump and US for escalating trade war - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBad0hJTFJCZHVtbnF4OUpKTE9TdDhQLXJxZFNiVUc5Mm9vR19mUldGNkRUR0x3aGNFSW9SMUVzdV93QkxTaHRnd2Z4TnAyVWtVVmo3NTdHNkMyeHNTZ0xLZkk2M0RqSEU2YVgzY0dqcEY?oc=5) |
 | Trump's indictment of New York attorney general Letitia James stirs concerns for Black women leaders - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOWmx6UmliSEVrYlByTEt6RHNsd2JSVGdSbnJLRzFoZjR5dW9SYzlzNHNVOFVOeV9NMXZyTnBkMm82YUZzMXJkaGdVdldkbDBmNl8wYjBXUkw5SW85TTFKYWRGejBOU1R5UWZzTTV3SFJwa2xZSXJ6TGNRdmNGOGl4OXF3LWdsTlZIZEd4RGVTWEFiMmNDdHhPWnZULXVLU1IwSWJUWXZnb0xtWWM?oc=5) |
