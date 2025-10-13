@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 04:33:27（北京时间）**
+🕒 更新时间：**2025年10月14日 04:40:20（北京时间）**
 
 ---
 
@@ -29,7 +29,7 @@
 | SEA Airport won't play video of Kristi Noem blaming Democrats for government shutdown - KING5.com | [阅读全文](https://news.google.com/rss/articles/CBMi8AFBVV95cUxOc2RIZDdVS250WDkwemlHbEZUREEwVGFLTERkWUxoTnNCUXhPckZTdVBVekJPVy1peG42LUZEYXh4R25ZUWl4NlYzLUN3TC1INTlrRlVuVldVOElLY0ZzSTNCTVNibUFEQ2tydU1ETmdhUnFqWURQQzQ5ZE9HaUZacktmTmRZX3hzYi1tRVE3SERiWndmMHZ0bjRwMjI3dlBYd2c5cks3dFhZR1BwVGxXbnJCd2dKWmxEQmxJQ2hwV3BNZ2pJempLeEU5MktqU3NGTms5UDljVEg2dkM2blUwSEdod0xoZ1lRNjBnZXZoRnQ?oc=5) |
 | New York Braces for Potential Flooding and Heavy Winds From Nor’easter - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQM1VGOExNRjR3UGYyMnQzQjdYTkhBM0lsMDY1V0o2VEY4cl96Rmcwc2Q2OFV2OXp5WHhiNVp2dXB5NjdEUl9vZHRNNU82bF9oVGVCbVdMN0d5TkdUR2lUNzhoTEQwYW0tWUk2bGFGa0lkQ2t5WWg2ZkV1MHhHdkNZak1KODlEcTA?oc=5) |
 | Trio win Nobel economics prize for work on innovation, growth and 'creative destruction' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQSHAzbHZzOHlUaWJjN3JwSUFwZWxCMUstX0VWVDRPMGpmaFNYV1dkVHJmMnJzay1oMDNYSjYwb0pJc3IwLUpvTnEzRExEWmtWQ2pEcGE3bHJFcGpxeG0tMXJJNkRhSHlacGoyQ0VWZW5lTXljTE5xSmctaGVDZG1QS1FCdGVXQ0E0WWE1Qi1YLWp5bDNKd2xV?oc=5) |
-| Stock Market Today: Dow Jumps 600 Points After Trump Softens China Threats — Live Updates - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQTzg1dllHWURSbm5JSVhqYjMzZlUySTMxZXZGYy1PSFZpNE1idDRNSk0wcFp0NENpZE02R2hSOHlxaGQ2Vm5NMnpIRHNWR3JZNE5yZ2g0bExlU29uelRodElIOFhiWTdrMk1vckN6X3NIWG9MWEZFMWE4dnA4dXc0b1F0N1VPbVk?oc=5) |
+| Stocks claw back more than half of Friday's rout after Trump softens China stance, Dow rises 500 points: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE1oT1M1bU5tYXhVYTNnNW9jYllzdFZ3eXFDb0lfMGUteUFiZmtJa2NzZG15ZTlMa2hyWTVMYktVX1p3X3VHWUhmRjhiVjk0UEVKcXFVME52Y1VoYllIM0dabnRxdFFhc080b2EwRU5HQVEwTkt2bTQ00gF8QVVfeXFMUG1Ka2h2MkNpVUwtck9nYk1CYTQ4Z2U3ZEpQRjYyYmdKa1NxSDRFaG1ZM2h1WFRlMExGQmYyWUpMZkRPMTk3a09xRU8zMURHVkNZVXB4Q1dseC1GUHA0NDFYYkJXak9rR1Fxd2ZwbkhWWDR2MmJQZ19oM21haA?oc=5) |
 | Austin Beutner launches bid to unseat Karen Bass in LA mayoral race - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPV2M2dFUwYlI3c3o0TnpFdEY5WVd5YnFXWDZsY3ZaRE1tQzVpWVlsQjNENTJBc1Q2dnl0TURhTnB2elVLYzlzajluNFRVaUttNkxtX2VuYU1vVkxpY3dOWnEtekFmOER1ejlnWVlPdlJ5RkhOVy1VUTluZ0ZCMm5YOGwzd2lpMFZ5YWJEcWpGVFBPOXg3V1o1anZKbFNiTW5VaXpBVE16RGVydTZtM3MzTGNGZU53WElS?oc=5) |
 | Shutdown polls show Democrats’ economic messaging still falling flat - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNTWI5R0EwZDJ6MVNGMjd0SURfMWg2Um5JVjZzOU45dGVsdVhPMmp2UkZScERXRmJ1cXhXRV9KTjdSdDN5X2w5bnZBQVU5R3ljRUZhVm5ZRVpDUXBBVUJWbjA0Rlllc3NGWDFINlpIQ3BZbGNVelZBNG1uM21CSzFiNi1wV1otUUpLejhMblE1Y2tEdw?oc=5) |
 | Oliver Thomas gives fiery concession speech: 'The devil don't want 99%; the devil want 100%' - NOLA.com | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNX3NGRmNnR1c0Z1JpdlRVelduNERveGNpUTctWVJYMlhMdWtDM2hvdXZQQy1UQkhOb212NzJqbFhGZ0lKbGRWTzcxYWFmMkdBRkltaTFwVTZIUXBrUzgwaXJGODNCUFJ1bHQ2ZTQtdkpTeHBpS0tFT3Jtemt5VldISFRHWS1FTk12NlE5SUN5Q0MwQVYxb1ZxY3g0YjlBelFwWVJNNTZqRTVPcmZFczI0?oc=5) |
