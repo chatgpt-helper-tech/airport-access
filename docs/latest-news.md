@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月13日 18:25:03（北京时间）**
+🕒 更新时间：**2025年10月13日 18:33:45（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Israel-Gaza live updates: 20 living hostages released after 2 years - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNQkEwZm54dDZGa2ZjRmdpandCdlFvdzdvLUoyamJkRmtFQ2lRZVM0YTBTajFwUHd6SUFGNDFjS0VoRXNMWUtQaTRRZ3dNVUoxdm81OFMyelBtMnpGMm1RN3FvNkNfTGgyek1FVzNlbnY3TEV1M0dkYUxlSC1FREVVOWhkbkRLa01wYlV5clFVczRHZw?oc=5) |
+| All 20 surviving hostages freed by Hamas under Gaza peace deal - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQTU5EOG5kZ1hxbXVBR0NTMFUzZXd6VDN4NFhjbmFhTEZFU3BlWUlJS1RwNUlNc291VkNlVFNJWjJWQ1VEajhGYzc0RG9FVzdmdXJEZVkzNk9PenFJVWxEN3hZSmhPSjc3QTMwWWVnZzBhUnNnWVBBMkRoY3ZNYzU5SmNB?oc=5) |
 | Amid shutdown, Trump administration guts department overseeing special education - NPR | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOQ3RMalFLWV9LdDBVbHNYbldoSk42X1F1ajhwc0pDcUE2amVXRVVDcTR0c3NUbm5oanhRNEVXbjA1eWVFdEYyY3dJVks3b2pJUkRaWDR5ekVzcFJLUThvNk5oN2gtOWg2Nmo5QnFKX3VmYWxfQ244bW5kRWVJbTh2NmVJZ3R3dGZGUW5zVS1xemlibW9WYks2ODVLQkhxclhFUWk2RHFMd3VtRUVW?oc=5) |
 | Trump may speak with Putin about sending Tomahawks to Ukraine in effort to end war - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPV1VKVExVR2ZuWER1amkxZzR5dngyNXNZWEJYQ3N3bllfdXBoWklPZDFsNzRyR3ROeEwzQVpCTTJ3ckFLRWVJOFBCQWR6WnBPRHlpMkZXd0tobmZiQXZWUWw3ejR4MnMyUmU3ZlRLT1NwRTVNamJHd09oSFFYeU5RQmxzZUM0OVBCeFZURFl5YmgxMzFH?oc=5) |
 | Gov. JB Pritzker points to Trump inconsistencies in deployment of National Guard to Chicago - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPVl9XX2doUkZlSFZ0SUN1aFB4VUh5UGRYMzdlLVVPMEcxRHQ3QVNBYjd4azJVS0l4ZC1maFNWTjNEXzEtVWdZbHh6angyUjBjNS1ZdFQ1dUxuZWFtLWM3OEctMlgzM0FmdVZOaDhnRFdDNmdsSjF0RlV6UGgtUFp3LVBib2g1MV9w?oc=5) |
