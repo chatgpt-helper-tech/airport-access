@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月13日 14:41:55（北京时间）**
+🕒 更新时间：**2025年10月13日 14:49:31（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | Trump says he may give long-range Tomahawk missiles to Ukraine | [阅读全文](https://www.bbc.com/news/articles/c93xpqgzkv0o?at_medium=RSS&at_campaign=rss) |
 | Reeves urged to avoid 'half-baked' tax fixes in Budget | [阅读全文](https://www.bbc.com/news/articles/cx2n08n15w2o?at_medium=RSS&at_campaign=rss) |
 | Murder arrest over deaths of children aged 2 and 3 | [阅读全文](https://www.bbc.com/news/articles/c78n8y3mlxko?at_medium=RSS&at_campaign=rss) |
-| 'In an instant, they were gone': Mall town mourns after Tennessee explosives factory blast | [阅读全文](https://www.bbc.com/news/articles/cwy8y0rnw2eo?at_medium=RSS&at_campaign=rss) |
 | 'We must catch up soon!' How to stop ghosting your friends | [阅读全文](https://www.bbc.com/news/articles/cwyr971q7rxo?at_medium=RSS&at_campaign=rss) |
-| Shooting at crowded South Carolina bar leaves four dead | [阅读全文](https://www.bbc.com/news/articles/c87y79y8g4qo?at_medium=RSS&at_campaign=rss) |
+| 'In an instant, they were gone': Mall town mourns after Tennessee explosives factory blast | [阅读全文](https://www.bbc.com/news/articles/cwy8y0rnw2eo?at_medium=RSS&at_campaign=rss) |
 | Man charged with stalking after allegedly targeting Ed Davey and family | [阅读全文](https://www.bbc.com/news/articles/c77d702znm4o?at_medium=RSS&at_campaign=rss) |
+| Shooting at crowded South Carolina bar leaves four dead | [阅读全文](https://www.bbc.com/news/articles/c87y79y8g4qo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | Alaska hit by severe flooding that carries away homes - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE93eDg4N1c4NEs0UTZrM2VwUGZEWGdvNkQySzBLbVZsT0JSMU1mTkQ0OFg4VXlEbjJsR2RHcC1QenZsS1M3d1pYWXF6dklNQy03ckg3eU1WXzdYdlZYei1ZcGpMM29zR2FqOWN1UNIBckFVX3lxTE4xcXVJNEltelBhSFZRLWdkbjRlMnZrVmdGV25HRUxhdDJpZWtxMUhIZnJHN2F3Q1duLVNkRUw4RVZYakZCSFRuQXVhVzdib3ZJcDByU0RjSFlPb2dHTkgyekJGeWg4SHJGa2YyQWpqbVNhUQ?oc=5) |
 | A Tennessee Sheriff Becomes the Face of Grief After Plant Explosion - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNT0ozV19PY2ZKMGlCTmxnTUxlV0s5bVcxQ3h6WUVEdEF1LVB5c1NZRmVCRjdldzlpZmpmdnhBa0NZMFZudXNjWHFIeVhDMUVkUUFNYW1tUU4yaG00aEVhWWN6bzBoOTZlRVF3TFlMdWl3TnotbGlna2YzMEZEbFJFLU5icmtiSlc2a2c?oc=5) |
 | Helena Moreno Is Elected Mayor of New Orleans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPeDluMm1JaDQ0Tnp4aFFkZmF6MURDckkzYnlCUzdhSGdUOUU3d0JadTl4bThoTWdIbERsZURrZU5aRGJpTk9EM2V3RlE4Z19RNHZJakZ0MVVLRkVsd1U3U05hVUw2SHd4SDZlZWZaQ3l4YjhNTDBDR0hMYVpSeWpaa19SYkdYanl6WFE?oc=5) |
-| Ukraine war briefing: Moscow voices ‘extreme concern’ at Trump threat to send Tomahawk missiles to Kyiv - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxPVXVfVVJOeUh5S29CVzZsdWY5M01penU2dkkwbnV1UVFFYVpCN0NZSUNnamJ6NnlFT2gyMjNxM2owRTR1bmxVX2xJM21Lbmt3c1l5SUQxdmdTWEFyc0hxdGd4VWRUNGxwZ3BDcU5CTk43cWNEbWw1WVFDUWU4cXpuYy05TUgyeWFWNXk0a0c2SHMyNVpLY29UdTFpclhPLURzVERSX1F6d1ZMOXBoanVIZmZvVTcxd2JJTTJsZUdJcWJlZF9ZQ0pITERzWFFId3Q5UXZ3LU9Icm1IZW94WXBj?oc=5) |
+| Trump says Ukraine may get Tomahawk missiles to use against Russia - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1GTGQ0eWZTS0JLVnV2MWpzNG10WjRRcGt1WTRURWtVNGVBUm5YR1JPbDFVTGI1dDUyU2hSNFBBWXhGRGRXTHJYN1dfMVc2c1luaF8xZGV2aFRjd9IBX0FVX3lxTE9RNW5jM2pEWWpDUW1IbGtPVThuSWtQVjB6RlNrdHR4a2JrNHhxaUI5THVvU08yY0stdDV1emFhaFNVQjlVS1JoUERHSWFDMWJQR28zQ0x3aFBBOGM3NzhB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
