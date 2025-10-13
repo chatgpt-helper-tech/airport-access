@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月13日 23:25:50（北京时间）**
+🕒 更新时间：**2025年10月13日 23:32:17（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | Tommy Robinson refused to give phone Pin to police to protect 'journalistic material' | [阅读全文](https://www.bbc.com/news/articles/c2lp1k7pnpno?at_medium=RSS&at_campaign=rss) |
 | Mortgage rates creep back up as lenders show caution | [阅读全文](https://www.bbc.com/news/articles/cdx4l557n1lo?at_medium=RSS&at_campaign=rss) |
 | Two charged with murder of Lostprophets singer Ian Watkins who died in prison attack | [阅读全文](https://www.bbc.com/news/articles/c3drdy5ry2do?at_medium=RSS&at_campaign=rss) |
-| King Charles to host German president in first state visit to UK for 27 years | [阅读全文](https://www.bbc.com/news/articles/czxklen5p2qo?at_medium=RSS&at_campaign=rss) |
 | Carmakers go on trial over 'dieselgate' emissions cheat claims | [阅读全文](https://www.bbc.com/news/articles/cjr5epw8dweo?at_medium=RSS&at_campaign=rss) |
-| Prisoner questioned over schoolgirl's 1994 murder | [阅读全文](https://www.bbc.com/news/articles/cvg4rn3vdx6o?at_medium=RSS&at_campaign=rss) |
+| Vodafone admits 'major outage' as more than 130,000 report problems | [阅读全文](https://www.bbc.com/news/articles/c5yldldx659o?at_medium=RSS&at_campaign=rss) |
+| King Charles to host German president in first state visit to UK for 27 years | [阅读全文](https://www.bbc.com/news/articles/czxklen5p2qo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -28,9 +28,9 @@
 | Historic wave of retirements is putting huge strains on the government - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxORXRnVktXTkJHSjREWmhuTEtFMXdnN2xlUTl0Rm5VRF9UOWJHZjUxSUtuUWotdXNDVnRpNDk1anhPbDItdW54ZXUwMU5kdzRRWEFRZzZFUXZsN255RF8xakNsQTRneFNMejZBcnRuenBMSVgtSTVWSVdKdC1od1Eyam4tNDNWcnVHZ3FrcFNyTDhLandmckJwS2NVU20?oc=5) |
 | New York Braces for Potential Flooding and Heavy Winds From Nor’easter - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQM1VGOExNRjR3UGYyMnQzQjdYTkhBM0lsMDY1V0o2VEY4cl96Rmcwc2Q2OFV2OXp5WHhiNVp2dXB5NjdEUl9vZHRNNU82bF9oVGVCbVdMN0d5TkdUR2lUNzhoTEQwYW0tWUk2bGFGa0lkQ2t5WWg2ZkV1MHhHdkNZak1KODlEcTA?oc=5) |
 | Dow jumps 500 points as Trump post eases concern around U.S.-China trade tensions: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE1oT1M1bU5tYXhVYTNnNW9jYllzdFZ3eXFDb0lfMGUteUFiZmtJa2NzZG15ZTlMa2hyWTVMYktVX1p3X3VHWUhmRjhiVjk0UEVKcXFVME52Y1VoYllIM0dabnRxdFFhc080b2EwRU5HQVEwTkt2bTQ00gF8QVVfeXFMUG1Ka2h2MkNpVUwtck9nYk1CYTQ4Z2U3ZEpQRjYyYmdKa1NxSDRFaG1ZM2h1WFRlMExGQmYyWUpMZkRPMTk3a09xRU8zMURHVkNZVXB4Q1dseC1GUHA0NDFYYkJXak9rR1Fxd2ZwbkhWWDR2MmJQZ19oM21haA?oc=5) |
-| Growing number of US veterans face arrest over Ice raid protests - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPOVhEVDNCRXM2NzMyRVBSaWo4ZHZqWnFYaEJ5MS1Bd3VUTEhEd1dhcEs3cjlOdzhrTlgxSXNKbUplekxHTm9ORldMSVVlblQwUmN4eFY4RjZ1WGhtdWRiSFNOc1VpeE9TaEwxMi01LUc2eDdhcFZNblI0YW5UMFhmclFhOA?oc=5) |
-| Nor’easter brings flooding to US east coast as storm sweeps away homes in Alaska - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPQzQ2LTVjZG9iX1FuYjVZZ3hOaXRfenZEUzZoLWItRlBCSFJYaU1uNkgyUE55ZmRON0RVMWkwbndBd3NCLTNHemlVLUNjUWVMX1NXUWh3cWhObU1FQUJnbmpNTXM2eEhVRWs3bUs2SFd4QnVDU3FDOFZTbVA2aldKYUlfOHRBLUtPQ2lYTg?oc=5) |
-| A Tennessee Sheriff Becomes the Face of Grief After Plant Explosion - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNT0ozV19PY2ZKMGlCTmxnTUxlV0s5bVcxQ3h6WUVEdEF1LVB5c1NZRmVCRjdldzlpZmpmdnhBa0NZMFZudXNjWHFIeVhDMUVkUUFNYW1tUU4yaG00aEVhWWN6bzBoOTZlRVF3TFlMdWl3TnotbGlna2YzMEZEbFJFLU5icmtiSlc2a2c?oc=5) |
+| Trump may speak with Putin about sending Tomahawks to Ukraine in effort to end war - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPV1VKVExVR2ZuWER1amkxZzR5dngyNXNZWEJYQ3N3bllfdXBoWklPZDFsNzRyR3ROeEwzQVpCTTJ3ckFLRWVJOFBCQWR6WnBPRHlpMkZXd0tobmZiQXZWUWw3ejR4MnMyUmU3ZlRLT1NwRTVNamJHd09oSFFYeU5RQmxzZUM0OVBCeFZURFl5YmgxMzFH?oc=5) |
+| Dozens rescued as remnants of typhoon hits Alaska while nor'easter brings flooding to East Coast - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQb1YtdElUNEZRUGdQNld0NVQ2c2NLdEFnMW85Z1NqMjY1XzZVUnpPaHA4bWlkT0FmNFdxTWZmZHp2cnQzZ3AtbmtEZ0JaOUFXVWFpaDBxS3J5NEdQS2RydWN5eGpqbHEzSXc3ejduZm9xT25EN21mTFhwa2tZZGJtTWJIOEhnZUNDYlRDOTVOWVBrYUJoU0hkeVowd3hiVDVqU1ZJRld3?oc=5) |
+| Tennessee community mourns 16 killed in munitions plant explosion - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQOEI1M2NWRjBMY2d6NmhoQnZ1aUhwSjVCcUtXWVZiMzZCWDROR056TFFHRzdBU0JxMHVicEVYWExlMDZHZkdmVXl5MEtmN0VTekdsNERrUGs5RHJ5TldnLTllM2hIdkRLZnRmM3l0bU5zTjBmZUJsbk40d0tsc093cVk2UDBXZGhfMjM0?oc=5) |
 | Democrat Helena Moreno wins New Orleans’ mayoral race - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPWFlXT0lwNElVc0RLR0t5TVE3bG14Z3VRTHJSd0ljaVozWTdlSng5akZkVDRRdzlFLWRPeXMyM1UwcFByX0VEQ1JvYU00d0k1UnptOUVpM2F5eHM3UGN1TklGRlE3MlRsZTlCaThMNl9vZXdwUkpNcExHMnZXb044bEEtLVVIZ2M?oc=5) |
 | Naked bike ride protest caps week of Portland demonstrations, more ahead - opb.org | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPMy1GSlVOYjZwQjVIeDEwZDktaXVpS1VvS295SlFGNmJid29Wa3UxT3RzYmpPNFZGVXNCbFFZSHZpUjRSdkdmU1BpUU5xVHBYa2JuTWlaQjJzdGkwdUJUZjNtVGp3dDlBWm5FcEQ5dFI0T0plT2Q3czVEdzB0QnZlbjAyMTJkRGJIWXlTVzRDSzBLUFlZZXVIdmpDZTZOQQ?oc=5) |
 
