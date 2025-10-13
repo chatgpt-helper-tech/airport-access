@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 02:01:04（北京时间）**
+🕒 更新时间：**2025年10月14日 02:08:33（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Middle East 'doomed' without Palestinian state, King of Jordan tells BBC | [阅读全文](https://www.bbc.com/news/articles/c3w965y65zzo?at_medium=RSS&at_campaign=rss) |
-| Who are the released hostages? | [阅读全文](https://www.bbc.com/news/articles/cpvl9k4mw8no?at_medium=RSS&at_campaign=rss) |
+| 'You're my life, my hero': Hostages reunite with families after two years | [阅读全文](https://www.bbc.com/news/articles/cyv8p8m4qg6o?at_medium=RSS&at_campaign=rss) |
 | Palestinians celebrate return of detainees freed by Israel | [阅读全文](https://www.bbc.com/news/articles/cr430epq45go?at_medium=RSS&at_campaign=rss) |
 | 'Long and painful nightmare finally over,' Trump tells Israel's parliament | [阅读全文](https://www.bbc.com/news/articles/c709jxxrrvlo?at_medium=RSS&at_campaign=rss) |
 | SNP will create network of walk-in GP services, says Scotland's first minister Swinney | [阅读全文](https://www.bbc.com/news/articles/ceq052d1ypeo?at_medium=RSS&at_campaign=rss) |
@@ -28,8 +28,8 @@
 | Historic wave of retirements is putting huge strains on the government - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxORXRnVktXTkJHSjREWmhuTEtFMXdnN2xlUTl0Rm5VRF9UOWJHZjUxSUtuUWotdXNDVnRpNDk1anhPbDItdW54ZXUwMU5kdzRRWEFRZzZFUXZsN255RF8xakNsQTRneFNMejZBcnRuenBMSVgtSTVWSVdKdC1od1Eyam4tNDNWcnVHZ3FrcFNyTDhLandmckJwS2NVU20?oc=5) |
 | Latest Updates: Portlanders rally for, against ICE after ‘Emergency Naked Bike Ride’ - KPTV | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPTzZxRklWYzBSMmladkg2M2ZQeTdnT3RoWjZtYkduYUlIb0paeElKZHlhYTlLMm5DSEgxQXBWTXBWR09VeEk0eFFsSXRkYzFnNmFqWC1qbl9STHNWREtVM1p6bHlkZjdDTFpTcVQ2VmdHU3B5ZE1fQjJRWGl4OGViUjFMRDJsQ3phZ3Y2UGFSWmliRlJ3TURwRXE5R3lPdXFpYWlGbVhWWVFGSmZtLXc?oc=5) |
 | New York Braces for Potential Flooding and Heavy Winds From Nor’easter - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQM1VGOExNRjR3UGYyMnQzQjdYTkhBM0lsMDY1V0o2VEY4cl96Rmcwc2Q2OFV2OXp5WHhiNVp2dXB5NjdEUl9vZHRNNU82bF9oVGVCbVdMN0d5TkdUR2lUNzhoTEQwYW0tWUk2bGFGa0lkQ2t5WWg2ZkV1MHhHdkNZak1KODlEcTA?oc=5) |
-| Trump to meet Zelenskyy in Washington on Friday - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9seDU3UnFvQW40ZWVZT0lvM3d4TFBKa0Y1dUlmbS1FRktiaEJOc3NXbEpnRW5OZDc0eWlEY09Rd2NzTDRVc3ZYdzY2dE1YdnB0eU1GdUpwbmlEYXYxaFNhaVNqVzZjWWxRRDdod0N4WU8?oc=5) |
-| Stocks claw back more than half of Friday's rout after Trump softens China tone, Dow rises 650 points: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE1oT1M1bU5tYXhVYTNnNW9jYllzdFZ3eXFDb0lfMGUteUFiZmtJa2NzZG15ZTlMa2hyWTVMYktVX1p3X3VHWUhmRjhiVjk0UEVKcXFVME52Y1VoYllIM0dabnRxdFFhc080b2EwRU5HQVEwTkt2bTQ00gF8QVVfeXFMUG1Ka2h2MkNpVUwtck9nYk1CYTQ4Z2U3ZEpQRjYyYmdKa1NxSDRFaG1ZM2h1WFRlMExGQmYyWUpMZkRPMTk3a09xRU8zMURHVkNZVXB4Q1dseC1GUHA0NDFYYkJXak9rR1Fxd2ZwbkhWWDR2MmJQZ19oM21haA?oc=5) |
+| Tackles, projectiles and gunfire: Many fear ICE tactics are growing more violent - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxObnZoWU5hUTBERmdPODkzOEZEVFR2MS05V3RxUEJxd2ZMR2VtbUJCQzJrRWVBQkN5SFV6NXpIcDFleGdTUjQzMjUwLW5yOGcydl9aYnFnTzNlZ0dQRThSSHI4UHI2ak03VEdtOXU3dm9IUDFxSGVTSUxXYVc0dktfUy1XbFMzTGZxVjRuZnZB?oc=5) |
+| Stocks claw back more than half of Friday's rout after Trump softens China stance, Dow rises 500 points: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE1oT1M1bU5tYXhVYTNnNW9jYllzdFZ3eXFDb0lfMGUteUFiZmtJa2NzZG15ZTlMa2hyWTVMYktVX1p3X3VHWUhmRjhiVjk0UEVKcXFVME52Y1VoYllIM0dabnRxdFFhc080b2EwRU5HQVEwTkt2bTQ00gF8QVVfeXFMUG1Ka2h2MkNpVUwtck9nYk1CYTQ4Z2U3ZEpQRjYyYmdKa1NxSDRFaG1ZM2h1WFRlMExGQmYyWUpMZkRPMTk3a09xRU8zMURHVkNZVXB4Q1dseC1GUHA0NDFYYkJXak9rR1Fxd2ZwbkhWWDR2MmJQZ19oM21haA?oc=5) |
 | Oliver Thomas gives fiery concession speech: 'The devil don't want 99%; the devil want 100%' - NOLA.com | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNX3NGRmNnR1c0Z1JpdlRVelduNERveGNpUTctWVJYMlhMdWtDM2hvdXZQQy1UQkhOb212NzJqbFhGZ0lKbGRWTzcxYWFmMkdBRkltaTFwVTZIUXBrUzgwaXJGODNCUFJ1bHQ2ZTQtdkpTeHBpS0tFT3Jtemt5VldISFRHWS1FTk12NlE5SUN5Q0MwQVYxb1ZxY3g0YjlBelFwWVJNNTZqRTVPcmZFczI0?oc=5) |
 | Austin Beutner launches bid to unseat Karen Bass in LA mayoral race - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPV2M2dFUwYlI3c3o0TnpFdEY5WVd5YnFXWDZsY3ZaRE1tQzVpWVlsQjNENTJBc1Q2dnl0TURhTnB2elVLYzlzajluNFRVaUttNkxtX2VuYU1vVkxpY3dOWnEtekFmOER1ejlnWVlPdlJ5RkhOVy1VUTluZ0ZCMm5YOGwzd2lpMFZ5YWJEcWpGVFBPOXg3V1o1anZKbFNiTW5VaXpBVE16RGVydTZtM3MzTGNGZU53WElS?oc=5) |
 | Democrats are in a GOP shutdown vise - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNM3NwM25nVFNzRm9DcXd5eXBTQ3Axd295aGRnRWxWS3NIQ2ZTZkZ6M1Z1RGdJdDNtQ2gwTElIVEhaZWtTTzVsbGRyOUJEQnF0LUFqZkR1VThVbFFUQks1ZWhSN01ZaHNsc3V3N0theEQyNld1cU9BSHFXdk5TQjBac29TaDNwNi1pbW9iMHpFckt3T1NC?oc=5) |
