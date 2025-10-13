@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 03:01:58（北京时间）**
+🕒 更新时间：**2025年10月14日 03:09:55（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | Trump plan to invite Netanyahu to Gaza summit aborted after Erdoğan warning - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNdjg5VTYxZkdUQmE0aHhmdDJ5bWhZbF9sT2VvSkxkNkdvSDhMNzhfejZLbkp2QVExMUZfWV9NVVhZV3pNbWZpVF9JZUZqbi1LeHhpM3FaX2czc2hZN25JN0VXX1J4UXJPUXlfUXhYRFNwcDBucHFBcTQwNHhoRmplaGFCYldWc3V3N0VYUXYtSWdVaGhOd1hXVnh2Zy15SzQ5V3N4WGEwUQ?oc=5) |
 | Palestinians celebrate as prisoners are released by Israel under Gaza ceasefire deal - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQNWNRQTBBZWl2cUNTeUlYeEowNngxMWx2V1gxcUFuS3ItaGxaay1aS0lhTFlfLWUyV21YSzdMVUwzcjAySG83N0Ixcm80MEVtb3RnR1BoYXpxRlJRYXNEYzdoN3dka1Z5eHhlZFNuclZWcXRoSVNSS2JDN09Kc0VkdnZB?oc=5) |
 | Historic wave of retirements is putting huge strains on the government - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxORXRnVktXTkJHSjREWmhuTEtFMXdnN2xlUTl0Rm5VRF9UOWJHZjUxSUtuUWotdXNDVnRpNDk1anhPbDItdW54ZXUwMU5kdzRRWEFRZzZFUXZsN255RF8xakNsQTRneFNMejZBcnRuenBMSVgtSTVWSVdKdC1od1Eyam4tNDNWcnVHZ3FrcFNyTDhLandmckJwS2NVU20?oc=5) |
-| Tackles, projectiles and gunfire: Many fear ICE tactics are growing more violent - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxObnZoWU5hUTBERmdPODkzOEZEVFR2MS05V3RxUEJxd2ZMR2VtbUJCQzJrRWVBQkN5SFV6NXpIcDFleGdTUjQzMjUwLW5yOGcydl9aYnFnTzNlZ0dQRThSSHI4UHI2ak03VEdtOXU3dm9IUDFxSGVTSUxXYVc0dktfUy1XbFMzTGZxVjRuZnZB?oc=5) |
+| Hamas stages video calls between hostages, families in lieu of handover ceremonies - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNNnhWME1fQVItMnQ5TVN1aDd6VURuT3ZUVHZBYWg0b282RVVMcjhPdUlzaHpvX01PVFFLTTdPTzJmaUt4cFdzSGZLZFZ1Y0RQYTBBUkdJTml4b2pTbjBiYTBZNWhSYVdMTFFVLU4wRVRhaEJTbE15YklnNk1fTW9ORjhoMmVFa2Y0elR1VmFlbmpKQk5Ta081VGhiVlNhbHZnZ1FMQ2c5QXBpMHBTY3NMcFp30gG3AUFVX3lxTFBnRkpuY05pdkkxb2g4cVFjS3BTQnEzTWlfOC1ZLUUyZGc3UW16M2tEVENwSUJGYXVxUU83bGZvVjNVakNRWmF4V2JEVHdSbEZtSGNWX29hMmxvdHl0U25MTWNvRkNIYXdLZDNWaVpjVEdRc2NzQzktdmFxZHNHY3A4NHVHWkstcC1leWpubnVzNDEyeWFuTlY5Nm5TLV9XamFId1dES0VCUDRCT3RoU015MWFRMFZBZw?oc=5) |
 | New York Braces for Potential Flooding and Heavy Winds From Nor’easter - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQM1VGOExNRjR3UGYyMnQzQjdYTkhBM0lsMDY1V0o2VEY4cl96Rmcwc2Q2OFV2OXp5WHhiNVp2dXB5NjdEUl9vZHRNNU82bF9oVGVCbVdMN0d5TkdUR2lUNzhoTEQwYW0tWUk2bGFGa0lkQ2t5WWg2ZkV1MHhHdkNZak1KODlEcTA?oc=5) |
 | Stocks claw back more than half of Friday's rout after Trump softens China stance, Dow rises 500 points: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE1oT1M1bU5tYXhVYTNnNW9jYllzdFZ3eXFDb0lfMGUteUFiZmtJa2NzZG15ZTlMa2hyWTVMYktVX1p3X3VHWUhmRjhiVjk0UEVKcXFVME52Y1VoYllIM0dabnRxdFFhc080b2EwRU5HQVEwTkt2bTQ00gF8QVVfeXFMUG1Ka2h2MkNpVUwtck9nYk1CYTQ4Z2U3ZEpQRjYyYmdKa1NxSDRFaG1ZM2h1WFRlMExGQmYyWUpMZkRPMTk3a09xRU8zMURHVkNZVXB4Q1dseC1GUHA0NDFYYkJXak9rR1Fxd2ZwbkhWWDR2MmJQZ19oM21haA?oc=5) |
 | Austin Beutner launches bid to unseat Karen Bass in LA mayoral race - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPV2M2dFUwYlI3c3o0TnpFdEY5WVd5YnFXWDZsY3ZaRE1tQzVpWVlsQjNENTJBc1Q2dnl0TURhTnB2elVLYzlzajluNFRVaUttNkxtX2VuYU1vVkxpY3dOWnEtekFmOER1ejlnWVlPdlJ5RkhOVy1VUTluZ0ZCMm5YOGwzd2lpMFZ5YWJEcWpGVFBPOXg3V1o1anZKbFNiTW5VaXpBVE16RGVydTZtM3MzTGNGZU53WElS?oc=5) |
 | Shutdown polls show Democrats’ economic messaging still falling flat - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNTWI5R0EwZDJ6MVNGMjd0SURfMWg2Um5JVjZzOU45dGVsdVhPMmp2UkZScERXRmJ1cXhXRV9KTjdSdDN5X2w5bnZBQVU5R3ljRUZhVm5ZRVpDUXBBVUJWbjA0Rlllc3NGWDFINlpIQ3BZbGNVelZBNG1uM21CSzFiNi1wV1otUUpLejhMblE1Y2tEdw?oc=5) |
-| Democrat Helena Moreno wins New Orleans’ mayoral race - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPWFlXT0lwNElVc0RLR0t5TVE3bG14Z3VRTHJSd0ljaVozWTdlSng5akZkVDRRdzlFLWRPeXMyM1UwcFByX0VEQ1JvYU00d0k1UnptOUVpM2F5eHM3UGN1TklGRlE3MlRsZTlCaThMNl9vZXdwUkpNcExHMnZXb044bEEtLVVIZ2M?oc=5) |
+| ‘Could End Badly’: Medvedev Threatens Trump Over Tomahawks for Ukraine - The Moscow Times | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOYzZ2dXNsVXhUcUwwVGxBd1dsLTBWdHI1MVZlZmE2aXlHbDZ2cFU4dlJSNzN4Qk9lRWhoTnZ4QmNTVE9teGlVNmhkX0g0dVFJa0pvenRWamUxbHp1aE9IYlNDQUlLOFdZZ0N6QlhLdjA1V3BxelVoWUlZVUs2OU9uaGljSDhtVlBOV3Y4LVFmV3lRZjBlbjNWTTRmdWFvZ3p1ZDR2VVFfb1VuZzZwem5hMG0tcFZKMms?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
