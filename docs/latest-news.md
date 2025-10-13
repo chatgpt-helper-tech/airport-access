@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月13日 18:00:12（北京时间）**
+🕒 更新时间：**2025年10月13日 18:09:34（北京时间）**
 
 ---
 
@@ -26,8 +26,8 @@
 | All 20 surviving hostages freed by Hamas under Gaza peace deal - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQTU5EOG5kZ1hxbXVBR0NTMFUzZXd6VDN4NFhjbmFhTEZFU3BlWUlJS1RwNUlNc291VkNlVFNJWjJWQ1VEajhGYzc0RG9FVzdmdXJEZVkzNk9PenFJVWxEN3hZSmhPSjc3QTMwWWVnZzBhUnNnWVBBMkRoY3ZNYzU5SmNB?oc=5) |
 | Government shutdown: 'Painful' job cuts to come if impasse drags on, warns Vance - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5ITTZyU0x4OURhNmJ6QWN1RTVlNmtsZjV6Ym1lTHpTZm9OYjg0ZEdub1MxWl96dkJ2RUNydDdCUHBFT1hQMUxQM1lqSWFnWi1MZndnb1VXNDFmd9IBX0FVX3lxTE1ULVBha3VPeWM0VXQyOUZsOVVMWlNELWNMVmw3QnhCeVhibTlfSzFyVU1mcWF0Ym4yZ0pZZldSZWtiQlJxQjlPeEtGdlN1bmMyWThhWHk5QWFUaElhaDVz?oc=5) |
 | Gov. JB Pritzker points to Trump inconsistencies in deployment of National Guard to Chicago - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPVl9XX2doUkZlSFZ0SUN1aFB4VUh5UGRYMzdlLVVPMEcxRHQ3QVNBYjd4azJVS0l4ZC1maFNWTjNEXzEtVWdZbHh6angyUjBjNS1ZdFQ1dUxuZWFtLWM3OEctMlgzM0FmdVZOaDhnRFdDNmdsSjF0RlV6UGgtUFp3LVBib2g1MV9w?oc=5) |
-| CDC purge hits 600 workers in key offices despite reversals - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE4xQ21PUEJGV2ZzamczRWhSUnEzTDJfTmFwaXNsc0tSc0RpWEN6eFM3Q2R5dl9vd29oSU9fT2F6Z3FRdFVtMk1wU2FieTg3SGZDd3huWUtMTW10eWlzN01pdG5VUFVPT201VmhadU54UGNqbkM2NUw4?oc=5) |
 | Trump may speak with Putin about sending Tomahawks to Ukraine in effort to end war - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPV1VKVExVR2ZuWER1amkxZzR5dngyNXNZWEJYQ3N3bllfdXBoWklPZDFsNzRyR3ROeEwzQVpCTTJ3ckFLRWVJOFBCQWR6WnBPRHlpMkZXd0tobmZiQXZWUWw3ejR4MnMyUmU3ZlRLT1NwRTVNamJHd09oSFFYeU5RQmxzZUM0OVBCeFZURFl5YmgxMzFH?oc=5) |
+| CDC purge hits 600 workers in key offices despite reversals - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE4xQ21PUEJGV2ZzamczRWhSUnEzTDJfTmFwaXNsc0tSc0RpWEN6eFM3Q2R5dl9vd29oSU9fT2F6Z3FRdFVtMk1wU2FieTg3SGZDd3huWUtMTW10eWlzN01pdG5VUFVPT201VmhadU54UGNqbkM2NUw4?oc=5) |
 | Hamas asserts control in Gaza and targets alleged collaborators as ceasefire takes hold - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE9sajdCM2VXVGhKTUN2UWtsZlMtN1NfWkJ1Tm11elVydUdCZkNJMk51aXY4ZkJneFFzQXhYRWxiMXRjOGdkWnFTVnZCeTkyTWhhMnkxZnZyTHRvN3JpSEM4Mkt4NFpkX0JCREpEY0l0ZDRWWmhiaGRUWnRB?oc=5) |
 | Dozens Rescued in Remote Alaskan Villages in Storm That Swept Away Homes - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE9lVU9HU3E5cjllM0lUT3pWaGl0VlJua3F2S01uNVpOTDhSLTZPY0psNHlOSHdzbVdjMDNudDVtMGgxeTFOTlZZTmFYZTNNV2xaSzQwdThHRHlaZUhJcEdxNVdBYWRRWmFsbUhtOXJucWhJX2x0?oc=5) |
 | A factory that makes munitions for the military exploded, killing 16 people and leaving no survivors - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQeU9MQ3RoT3lMYU1GNkpocEdWRllzcllxYTFwYWx4Zm0xb2V0a0paS0xGV2NjelRpeFRGZzZjY0hlM1d1R0JpcF9VV0YxQlhZRUdCMzF5WkREZjNvZFpYWXZPN1RRNkY0TzFUanAtZENHcGdxV3ZBT0RhcnJ6U1Q4SXc1VTduWmlZQnIwZWtYcTB6ZzdhY1J4Y3kzRE53T19sUVBNUW1qNkM?oc=5) |
