@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月13日 17:57:30（北京时间）**
+🕒 更新时间：**2025年10月13日 18:00:11（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Hamas asserts control in Gaza and targets alleged collaborators as ceasefire takes hold - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE9sajdCM2VXVGhKTUN2UWtsZlMtN1NfWkJ1Tm11elVydUdCZkNJMk51aXY4ZkJneFFzQXhYRWxiMXRjOGdkWnFTVnZCeTkyTWhhMnkxZnZyTHRvN3JpSEM4Mkt4NFpkX0JCREpEY0l0ZDRWWmhiaGRUWnRB?oc=5) |
 | Dozens Rescued in Remote Alaskan Villages in Storm That Swept Away Homes - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE9lVU9HU3E5cjllM0lUT3pWaGl0VlJua3F2S01uNVpOTDhSLTZPY0psNHlOSHdzbVdjMDNudDVtMGgxeTFOTlZZTmFYZTNNV2xaSzQwdThHRHlaZUhJcEdxNVdBYWRRWmFsbUhtOXJucWhJX2x0?oc=5) |
 | A factory that makes munitions for the military exploded, killing 16 people and leaving no survivors - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQeU9MQ3RoT3lMYU1GNkpocEdWRllzcllxYTFwYWx4Zm0xb2V0a0paS0xGV2NjelRpeFRGZzZjY0hlM1d1R0JpcF9VV0YxQlhZRUdCMzF5WkREZjNvZFpYWXZPN1RRNkY0TzFUanAtZENHcGdxV3ZBT0RhcnJ6U1Q4SXc1VTduWmlZQnIwZWtYcTB6ZzdhY1J4Y3kzRE53T19sUVBNUW1qNkM?oc=5) |
-| US Futures Jump as Traders Gauge China Trade Spat: Markets Wrap - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQMldBdnpxU2loV1gtaUU3R2g3cE54Zzd3LTdhdUpBZmZrZjhtTDlpbHVaYi02TW81QzZKNGFKc21sYk9oUEVHVWxVYy01SURFWUFGVWtGZ0xCSzFYcDA4Vjd5ZExGSUg3anNYclJRdW5tSDFabkFuUFVEU3B4NmdPandjUGdNRi1Oc0NsWlM3UHlqUlRJYWlKNmkxRW9QT2V6NHpkZm1rTWJNV3FPWXJEWkVQRQ?oc=5) |
+| Dow Futures Rally After Trump Softens China Threats — Live Updates - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQTzg1dllHWURSbm5JSVhqYjMzZlUySTMxZXZGYy1PSFZpNE1idDRNSk0wcFp0NENpZE02R2hSOHlxaGQ2Vm5NMnpIRHNWR3JZNE5yZ2g0bExlU29uelRodElIOFhiWTdrMk1vckN6X3NIWG9MWEZFMWE4dnA4dXc0b1F0N1VPbVk?oc=5) |
 | N.J. weather: Winds hit nearly 60 mph as nor’easter blasts Jersey Shore. See the top speeds. - NJ.com | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxNdXg4akhuTFQwdGRqcndCQ0hNbFFodVpMTmFkTUlRT3ROM1lzTWxKM0tPNnFqVUNrWW90VFlzdjR0WDMwMG9PYkI0ekdLaW1iX2tLcDA0WHlsWVIxT1NhR01aVDFjcEx3YkhmTkx2ME5WZmtQUG1yMUExd0t0TEZhWThqTnlQVFhTVmdyN0d1T3dVc2FNdzQxN1ZuSjgxSjR0OGlrdUxLQW92VEVKT2duZWM1OWZoeFFNVzE0RWZwUEdjbENWOHdtcGc1Y9IB3wFBVV95cUxQdTluV081RUFWZlVvSkhaR0NyNWw1SDBPWThndHlBVmVmamZEVmNSSGVfSjhLZlV2cDVLQ1ZHNlJ2OTFJWXlvV2ZGcE9lMTVfVXBEdGo0WmtCdGQ1UTBlV1RCQnpQbEN4WkthUzllVWhmQjNpX0h4Z1JMWGlZVERPblp2LWJnb3BtUDZlQUlhT2pZVUd2M3BPSjdrQVJJU1VXcFpzb2pYb2N0bGl0ZUNYcFVFLWs1eEZzWjQ2YTA1Q3pMRGNYYmE0TkxqRkFTcEFpVmM3VXI2OVpJRDZ6V25v?oc=5) |
 
 ---
