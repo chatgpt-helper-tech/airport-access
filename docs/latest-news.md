@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月13日 16:49:30（北京时间）**
+🕒 更新时间：**2025年10月13日 16:57:45（北京时间）**
 
 ---
 
@@ -28,10 +28,10 @@
 | CDC purge hits 600 workers in key offices despite reversals - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE4xQ21PUEJGV2ZzamczRWhSUnEzTDJfTmFwaXNsc0tSc0RpWEN6eFM3Q2R5dl9vd29oSU9fT2F6Z3FRdFVtMk1wU2FieTg3SGZDd3huWUtMTW10eWlzN01pdG5VUFVPT201VmhadU54UGNqbkM2NUw4?oc=5) |
 | Latest Updates: Portlanders rally for, against ICE after ‘Emergency Naked Bike Ride’ - KPTV | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPTzZxRklWYzBSMmladkg2M2ZQeTdnT3RoWjZtYkduYUlIb0paeElKZHlhYTlLMm5DSEgxQXBWTXBWR09VeEk0eFFsSXRkYzFnNmFqWC1qbl9STHNWREtVM1p6bHlkZjdDTFpTcVQ2VmdHU3B5ZE1fQjJRWGl4OGViUjFMRDJsQ3phZ3Y2UGFSWmliRlJ3TURwRXE5R3lPdXFpYWlGbVhWWVFGSmZtLXc?oc=5) |
 | Gaza City clashes between Hamas and clan members leave 27 dead - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBWMy1zeHlXSmhVTXNGWGlGd1hIeVVrb2dJQVcwUGdpdk5lS3BKd2dtZGhsNnpzbXNneUhNLWtGZTFqLWhSaXZ3azZtWlNOdHl4eEZ3d1FnN0owQdIBX0FVX3lxTE5WZkdvUnNBcmU0ekFIeDBlM2ZGSGw2TUV4R2VDdXN0V3FRbmRrbmFhYkJyMmVJQjk0Z3dROHdNUENvekZubnA2eFd2NTVlbU9HVHZoMnVqREljMDNHVmpn?oc=5) |
-| Asia Markets Fall After Trump Threatens New Tariffs on China - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPMkZZYUFyWC05Ujc4UHAybDNscl9Nbzl5Z2pCRVZEZ2dwZnpOakFUWjB1YXBvUndYWVlCdk85QTZCVmRKazBkd2IxQ0lRY3RxcmtOMGxFTjhTNFZvcUs4a1ZKUnB1VFhOczBtTE5rOWdCTmlock8xYkpyN0lGRmlJc0JabEcyZDhsQVNr?oc=5) |
+| Nor’easter Brings Heavy Rain and Flooding as It Moves Up East Coast - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE81Y1JIRGhiVTVWVjFpZ2pjZWhxZGdJSlp2X2xQWnEyaE42Q0NwbERVM2YxYUdrV3A2aFBpb0JCSEJ6VGhDTWNKX1J0eHdvb0c5aldmQ09Eel9NOEtNeFZKUVBJalRmYUZkNGJWaGFIc2dhdWhxUVlnRGg0QVYzQ00?oc=5) |
 | Dozens Rescued in Remote Alaskan Villages in Storm That Swept Away Homes - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE9lVU9HU3E5cjllM0lUT3pWaGl0VlJua3F2S01uNVpOTDhSLTZPY0psNHlOSHdzbVdjMDNudDVtMGgxeTFOTlZZTmFYZTNNV2xaSzQwdThHRHlaZUhJcEdxNVdBYWRRWmFsbUhtOXJucWhJX2x0?oc=5) |
-| A factory that makes munitions for the military exploded, killing 16 people and leaving no survivors - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQeU9MQ3RoT3lMYU1GNkpocEdWRllzcllxYTFwYWx4Zm0xb2V0a0paS0xGV2NjelRpeFRGZzZjY0hlM1d1R0JpcF9VV0YxQlhZRUdCMzF5WkREZjNvZFpYWXZPN1RRNkY0TzFUanAtZENHcGdxV3ZBT0RhcnJ6U1Q4SXc1VTduWmlZQnIwZWtYcTB6ZzdhY1J4Y3kzRE53T19sUVBNUW1qNkM?oc=5) |
-| New Jersey declares emergency as nor'easter approaches, while Alaska flooding carries away homes - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNMi1jYmVqSG9PQy02Vk5nTS1vdzFEd1ZnVmRvTkl1ZGRyLUVaNzRPenBnMDVKOWhrblhUSzFLT1Uxa2dJZUw4STRKTHR1NkNzNzY0X3NqNkJZOGRZZDhyMFZIeWduZlNvUHpQbTRyUVp5UTY0eGhnc0hVMzZkM0NjeERWVklPR3VsRHUzWVFfVVNEVE5WRk9TQ0JIRTgyb001OGR6TC0xZmt6QQ?oc=5) |
+| A Tennessee Sheriff Becomes the Face of Grief After Plant Explosion - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNT0ozV19PY2ZKMGlCTmxnTUxlV0s5bVcxQ3h6WUVEdEF1LVB5c1NZRmVCRjdldzlpZmpmdnhBa0NZMFZudXNjWHFIeVhDMUVkUUFNYW1tUU4yaG00aEVhWWN6bzBoOTZlRVF3TFlMdWl3TnotbGlna2YzMEZEbFJFLU5icmtiSlc2a2c?oc=5) |
+| US Futures Jump as Traders Gauge China Trade Spat: Markets Wrap - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQMldBdnpxU2loV1gtaUU3R2g3cE54Zzd3LTdhdUpBZmZrZjhtTDlpbHVaYi02TW81QzZKNGFKc21sYk9oUEVHVWxVYy01SURFWUFGVWtGZ0xCSzFYcDA4Vjd5ZExGSUg3anNYclJRdW5tSDFabkFuUFVEU3B4NmdPandjUGdNRi1Oc0NsWlM3UHlqUlRJYWlKNmkxRW9QT2V6NHpkZm1rTWJNV3FPWXJEWkVQRQ?oc=5) |
 | Helena Moreno Is Elected Mayor of New Orleans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPeDluMm1JaDQ0Tnp4aFFkZmF6MURDckkzYnlCUzdhSGdUOUU3d0JadTl4bThoTWdIbERsZURrZU5aRGJpTk9EM2V3RlE4Z19RNHZJakZ0MVVLRkVsd1U3U05hVUw2SHd4SDZlZWZaQ3l4YjhNTDBDR0hMYVpSeWpaa19SYkdYanl6WFE?oc=5) |
 
 ---
