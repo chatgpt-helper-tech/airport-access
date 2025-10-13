@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月13日 22:16:13（北京时间）**
+🕒 更新时间：**2025年10月13日 22:24:47（北京时间）**
 
 ---
 
@@ -26,7 +26,7 @@
 | All living Israeli hostages freed from Gaza as Trump addresses Knesset - live updates - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOZlN0a0k2cUtsZ1lZSnpkTWNIM2gzSzhINFB3aGtjWVlKcG9OUVpvZnN2M1FrRGVhWjZ6SW44U2c5Z2ZManRHZU05NVhUalEzcXhpbHkwczBIRHdzZFEzc2IxNUFCV2pxaXZlaUxoc3E2Y3pfNklsdVNvN0xZTXVCSlJ5U09RN2cw?oc=5) |
 | Amid shutdown, Trump administration guts department overseeing special education - NPR | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOQ3RMalFLWV9LdDBVbHNYbldoSk42X1F1ajhwc0pDcUE2amVXRVVDcTR0c3NUbm5oanhRNEVXbjA1eWVFdEYyY3dJVks3b2pJUkRaWDR5ekVzcFJLUThvNk5oN2gtOWg2Nmo5QnFKX3VmYWxfQ244bW5kRWVJbTh2NmVJZ3R3dGZGUW5zVS1xemlibW9WYks2ODVLQkhxclhFUWk2RHFMd3VtRUVW?oc=5) |
 | Trump urges pardon for Netanyahu during Gaza address to Knesset - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNV2xwRWVodDRZUzhiWWRsdTNnRVhRQ2t5Zm9KRjk1eU8yZ1paM1FXUGNMMjYyeENCQnFmT1c0S1FFdkxUTTZHX2Y0MlVCbGUweXpaUkE5aUU2UlAzVjMzdHNsMmVMRW1xSk5QOGRpUFZFcE9Oc0J3MjdNa2tYeGNaWQ?oc=5) |
-| New York Braces for Potential Flooding and Heavy Winds From Nor’Easter - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQM1VGOExNRjR3UGYyMnQzQjdYTkhBM0lsMDY1V0o2VEY4cl96Rmcwc2Q2OFV2OXp5WHhiNVp2dXB5NjdEUl9vZHRNNU82bF9oVGVCbVdMN0d5TkdUR2lUNzhoTEQwYW0tWUk2bGFGa0lkQ2t5WWg2ZkV1MHhHdkNZak1KODlEcTA?oc=5) |
+| New York Braces for Potential Flooding and Heavy Winds From Nor’easter - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQM1VGOExNRjR3UGYyMnQzQjdYTkhBM0lsMDY1V0o2VEY4cl96Rmcwc2Q2OFV2OXp5WHhiNVp2dXB5NjdEUl9vZHRNNU82bF9oVGVCbVdMN0d5TkdUR2lUNzhoTEQwYW0tWUk2bGFGa0lkQ2t5WWg2ZkV1MHhHdkNZak1KODlEcTA?oc=5) |
 | Dow jumps 400 points as Trump post eases concern around U.S.-China trade tensions: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE1oT1M1bU5tYXhVYTNnNW9jYllzdFZ3eXFDb0lfMGUteUFiZmtJa2NzZG15ZTlMa2hyWTVMYktVX1p3X3VHWUhmRjhiVjk0UEVKcXFVME52Y1VoYllIM0dabnRxdFFhc080b2EwRU5HQVEwTkt2bTQ00gF8QVVfeXFMUG1Ka2h2MkNpVUwtck9nYk1CYTQ4Z2U3ZEpQRjYyYmdKa1NxSDRFaG1ZM2h1WFRlMExGQmYyWUpMZkRPMTk3a09xRU8zMURHVkNZVXB4Q1dseC1GUHA0NDFYYkJXak9rR1Fxd2ZwbkhWWDR2MmJQZ19oM21haA?oc=5) |
 | Why Gradualism Can Help in Gaza - Foreign Affairs | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1nN055SzF2RTQ4Tk9paERnYm9TLUw5TC1kMFJlblJxeDhuSU5Da3A5NDlUMjZqbkdOWFlwMWF5eW1aU0pDaXlERl96UGI1eXdjMkRlWmhSNEFGUDdxRE95dHNsbWlrRkt4UVhTOE5iV042LVdJVjJFMWtKZw?oc=5) |
 | Democrat Helena Moreno wins New Orleans’ mayoral race - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPWFlXT0lwNElVc0RLR0t5TVE3bG14Z3VRTHJSd0ljaVozWTdlSng5akZkVDRRdzlFLWRPeXMyM1UwcFByX0VEQ1JvYU00d0k1UnptOUVpM2F5eHM3UGN1TklGRlE3MlRsZTlCaThMNl9vZXdwUkpNcExHMnZXb044bEEtLVVIZ2M?oc=5) |
