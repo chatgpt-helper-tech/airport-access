@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月13日 20:17:32（北京时间）**
+🕒 更新时间：**2025年10月13日 20:24:20（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | Carmakers go on trial over 'dieselgate' emissions cheat claims | [阅读全文](https://www.bbc.com/news/articles/cjr5epw8dweo?at_medium=RSS&at_campaign=rss) |
 | Two charged with murder of Lostprophets singer Ian Watkins who died in prison attack | [阅读全文](https://www.bbc.com/news/articles/c3drdy5ry2do?at_medium=RSS&at_campaign=rss) |
 | Trump says he may give long-range Tomahawk missiles to Ukraine | [阅读全文](https://www.bbc.com/news/articles/c93xpqgzkv0o?at_medium=RSS&at_campaign=rss) |
-| Tommy Robinson refused to give phone PIN to protect 'journalistic material' | [阅读全文](https://www.bbc.com/news/articles/c2lp1k7pnpno?at_medium=RSS&at_campaign=rss) |
+| Tommy Robinson refused to give phone Pin to protect 'journalistic material' | [阅读全文](https://www.bbc.com/news/articles/c2lp1k7pnpno?at_medium=RSS&at_campaign=rss) |
 | Mortgage rates creep back up as lenders show caution | [阅读全文](https://www.bbc.com/news/articles/cdx4l557n1lo?at_medium=RSS&at_campaign=rss) |
 | First German state visit to UK for 27 years announced | [阅读全文](https://www.bbc.com/news/articles/czxklen5p2qo?at_medium=RSS&at_campaign=rss) |
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Live updates: All living hostages freed from Gaza as Trump to address Israeli parliament - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOZlN0a0k2cUtsZ1lZSnpkTWNIM2gzSzhINFB3aGtjWVlKcG9OUVpvZnN2M1FrRGVhWjZ6SW44U2c5Z2ZManRHZU05NVhUalEzcXhpbHkwczBIRHdzZFEzc2IxNUFCV2pxaXZlaUxoc3E2Y3pfNklsdVNvN0xZTXVCSlJ5U09RN2cw?oc=5) |
+| Live updates: Trump speaks in Israel as last living hostages released by Hamas come back home - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQRjQ1czM2Q05FcXRNYmtuRlFnaUVjVEtBdWZ3U3JvamdINFJ1UmoyQWVqb0JtUDBRMW91V19oM3ZCS1FOc3FPamtmaEtZc2FObTZtVjBlRms4TFZIS2RuYkhJTGVwVDNSejVLSmlTUFB0RWUtcm94N1JIUHNSMkdEbzRYVTlyQlo5SDB3WUN0RkxucDI5S0RxcmMxODl1OXBvSTVOeF9n0gGrAUFVX3lxTFBqMWdqVG1pUG9jdE9vTWFRbi1kWE9mTDZ2WFFfNzB2bGRmeko5QVRPVThGVWh4cFhMcEVLNXNaZ25rYXE2MlN0WXJOU295OHprazRTNng5Ti1adVRfYWJMcjhYa2R1Uzc2M3YyZFpjZkRLNUY0VjRPUnNLaWgwMmgyMmh2RlJTOEQ4cU5aZU4yREpQdmhMbjBvRm5VcWc0UkMtRl9TUGlZTDVqMA?oc=5) |
 | Amid shutdown, Trump administration guts department overseeing special education - NPR | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOQ3RMalFLWV9LdDBVbHNYbldoSk42X1F1ajhwc0pDcUE2amVXRVVDcTR0c3NUbm5oanhRNEVXbjA1eWVFdEYyY3dJVks3b2pJUkRaWDR5ekVzcFJLUThvNk5oN2gtOWg2Nmo5QnFKX3VmYWxfQ244bW5kRWVJbTh2NmVJZ3R3dGZGUW5zVS1xemlibW9WYks2ODVLQkhxclhFUWk2RHFMd3VtRUVW?oc=5) |
 | Trump may speak with Putin about sending Tomahawks to Ukraine in effort to end war - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPV1VKVExVR2ZuWER1amkxZzR5dngyNXNZWEJYQ3N3bllfdXBoWklPZDFsNzRyR3ROeEwzQVpCTTJ3ckFLRWVJOFBCQWR6WnBPRHlpMkZXd0tobmZiQXZWUWw3ejR4MnMyUmU3ZlRLT1NwRTVNamJHd09oSFFYeU5RQmxzZUM0OVBCeFZURFl5YmgxMzFH?oc=5) |
 | Dow futures jump 300 points after Trump says China situation ‘will all be fine’: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE1oT1M1bU5tYXhVYTNnNW9jYllzdFZ3eXFDb0lfMGUteUFiZmtJa2NzZG15ZTlMa2hyWTVMYktVX1p3X3VHWUhmRjhiVjk0UEVKcXFVME52Y1VoYllIM0dabnRxdFFhc080b2EwRU5HQVEwTkt2bTQ00gF8QVVfeXFMUG1Ka2h2MkNpVUwtck9nYk1CYTQ4Z2U3ZEpQRjYyYmdKa1NxSDRFaG1ZM2h1WFRlMExGQmYyWUpMZkRPMTk3a09xRU8zMURHVkNZVXB4Q1dseC1GUHA0NDFYYkJXak9rR1Fxd2ZwbkhWWDR2MmJQZ19oM21haA?oc=5) |
