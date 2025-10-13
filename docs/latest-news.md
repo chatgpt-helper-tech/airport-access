@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 01:41:03（北京时间）**
+🕒 更新时间：**2025年10月14日 01:49:24（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | ‘Locked up for 24 years’: joy and sorrow as Palestinian prisoners and detainees return home - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOVE5EX0k0aDRlUHJpeE1mS2pRYjlfaHh2U1ZIczc3bENOaGNzZ2Jpb1ItQl9zMmVkLWtFaGFyQnRFMEYzN3ZJaDY5QURQUzJRM2M5X1FKRm9rQkdUY1hYTk1QdF95TmxDbzJJbUFOd3dVeWY0UlFSb3RnM3VkS2ZHOVNrbGpmQQ?oc=5) |
 | Helena Moreno's outright victory powered by big turnout as New Orleans voters embraced message - NOLA.com | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNZUtTTjBGUXNjMlFDU3VQczl0dG9FX0lZLUZhMm1WY2phNmtFOVlONTZCUHBKQ3BjeHJvVGsxWHlVQzlnMWtxRHR1akFDUXlxaU96UGsyVFNlNzdtSUFsMnB3Y1E1cmRFYmY2LWtEMmprTDhOd2VwbDlqbnVUdFEydUR5ZkpBbGR2WXdqN2gyLVlCSF9lcGoxR2YtN0hlMjJBdWxYa0k1YjZxTF95QzRWRg?oc=5) |
 | Naked bike riders protest Trump administration in Portland - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPS21GNElJY2JVYmV6WW1PWkVmYTVmRFVVMlFlQzBKdFFBU1Zwa0hlLVhiZXVWWnRXTG80TFcxQjhnaHUyel9Tc0lfZzhEVjRUd0VRclJvWlVxbGZ6ZHpxYmpkWXRNZEZBeE5Fanh2ZjhjQWNZcFM2OXNrYjJrV1Jvc0VxbzZlNm43MmRWQnRZNHo4c2VlNmNaaldtTzHSAaIBQVVfeXFMTmVHUFNWNzdiTXNuNTlxclU3eXphR1p2eFk4bEhwV2RtVndPWEJOTko3ZEVDYmtzdWlIQUs3S0g0UTduRkhFZUdBZHFPN1drVW1NMlpwZE5rVFQ0UldZY0F5QVo4WG1udm4wZDFDTUV6ZTk1S3pUVW9PbDVtZ0tTSkU2T3pTRFhLSFUtdUlxdTVRaXhXOHc5ZVNqOGstNEdoaVhn?oc=5) |
-| Newsom signs age verification law, siding with tech giants over Hollywood - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNUVNLbVpfWUphYXdKdEpiZHNRQmRvc2xFeFQ5dkVVcVA0MkkwSUx3RFM3cUhXSWllNGF3T0FXWXNCRnBVX1ZVNGRiSHREOWs1QjExQWJlam5SQmQwVTFacjlwSUo2ZENKZ3FuT0VfMTd0N3lHalRFTkJXWjlrTUFOYy1KcTBvbVVIcFE?oc=5) |
-| ‘Could End Badly’: Medvedev Threatens Trump Over Tomahawks for Ukraine - The Moscow Times | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOYzZ2dXNsVXhUcUwwVGxBd1dsLTBWdHI1MVZlZmE2aXlHbDZ2cFU4dlJSNzN4Qk9lRWhoTnZ4QmNTVE9teGlVNmhkX0g0dVFJa0pvenRWamUxbHp1aE9IYlNDQUlLOFdZZ0N6QlhLdjA1V3BxelVoWUlZVUs2OU9uaGljSDhtVlBOV3Y4LVFmV3lRZjBlbjNWTTRmdWFvZ3p1ZDR2VVFfb1VuZzZwem5hMG0tcFZKMms?oc=5) |
+| Austin Beutner launches bid to unseat Karen Bass in LA mayoral race - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPV2M2dFUwYlI3c3o0TnpFdEY5WVd5YnFXWDZsY3ZaRE1tQzVpWVlsQjNENTJBc1Q2dnl0TURhTnB2elVLYzlzajluNFRVaUttNkxtX2VuYU1vVkxpY3dOWnEtekFmOER1ejlnWVlPdlJ5RkhOVy1VUTluZ0ZCMm5YOGwzd2lpMFZ5YWJEcWpGVFBPOXg3V1o1anZKbFNiTW5VaXpBVE16RGVydTZtM3MzTGNGZU53WElS?oc=5) |
+| 16 people killed in Tennessee plant explosion remembered by community: "The losses are staggering" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQSk1nV1NvZmRMNHZNODlUaWtmNjBQekhXZTh3TkI1Ml9ta29tc1hLQXp2TVZFSmhjVFVPYklQRnFfeV9KckIwMEptdlh6MTIyaEJjRG52WkNOb0VvNUF5dTZqSHFwMHZhdU44NGJEemJuYlBnWDBTN2U0SDRoaVpOOTdqdkt1YzFCbTRWWU1n0gGTAUFVX3lxTE5oYnd2NXluam9pNUN6M2hUMFhlalRsQXF6b09SbzhZUGVuNTNhdHk4NHVZR19uZkt3YzdZNnowNzdHSEFjT1BkNGN5ZUVidzR2SWhtdlBFektfcnlKakRZVnQ1QV93RFlXeUpUY0hGMnpTbUdiQkllQmxCRUNTTjR2VldUUXJQc3kxTDZDS0pxLWFkNA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
