@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 04:08:40（北京时间）**
+🕒 更新时间：**2025年10月14日 04:17:10（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | Trump plan to invite Netanyahu to Gaza summit aborted after Erdoğan warning - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNdjg5VTYxZkdUQmE0aHhmdDJ5bWhZbF9sT2VvSkxkNkdvSDhMNzhfejZLbkp2QVExMUZfWV9NVVhZV3pNbWZpVF9JZUZqbi1LeHhpM3FaX2czc2hZN25JN0VXX1J4UXJPUXlfUXhYRFNwcDBucHFBcTQwNHhoRmplaGFCYldWc3V3N0VYUXYtSWdVaGhOd1hXVnh2Zy15SzQ5V3N4WGEwUQ?oc=5) |
 | Palestinians celebrate as prisoners are released by Israel under Gaza ceasefire deal - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQNWNRQTBBZWl2cUNTeUlYeEowNngxMWx2V1gxcUFuS3ItaGxaay1aS0lhTFlfLWUyV21YSzdMVUwzcjAySG83N0Ixcm80MEVtb3RnR1BoYXpxRlJRYXNEYzdoN3dka1Z5eHhlZFNuclZWcXRoSVNSS2JDN09Kc0VkdnZB?oc=5) |
 | Historic wave of retirements is putting huge strains on the government - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxORXRnVktXTkJHSjREWmhuTEtFMXdnN2xlUTl0Rm5VRF9UOWJHZjUxSUtuUWotdXNDVnRpNDk1anhPbDItdW54ZXUwMU5kdzRRWEFRZzZFUXZsN255RF8xakNsQTRneFNMejZBcnRuenBMSVgtSTVWSVdKdC1od1Eyam4tNDNWcnVHZ3FrcFNyTDhLandmckJwS2NVU20?oc=5) |
-| Amid shutdown, Trump administration guts department overseeing special education - NPR | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOQ3RMalFLWV9LdDBVbHNYbldoSk42X1F1ajhwc0pDcUE2amVXRVVDcTR0c3NUbm5oanhRNEVXbjA1eWVFdEYyY3dJVks3b2pJUkRaWDR5ekVzcFJLUThvNk5oN2gtOWg2Nmo5QnFKX3VmYWxfQ244bW5kRWVJbTh2NmVJZ3R3dGZGUW5zVS1xemlibW9WYks2ODVLQkhxclhFUWk2RHFMd3VtRUVW?oc=5) |
 | SEA Airport won't play video of Kristi Noem blaming Democrats for government shutdown - KING5.com | [阅读全文](https://news.google.com/rss/articles/CBMi8AFBVV95cUxOc2RIZDdVS250WDkwemlHbEZUREEwVGFLTERkWUxoTnNCUXhPckZTdVBVekJPVy1peG42LUZEYXh4R25ZUWl4NlYzLUN3TC1INTlrRlVuVldVOElLY0ZzSTNCTVNibUFEQ2tydU1ETmdhUnFqWURQQzQ5ZE9HaUZacktmTmRZX3hzYi1tRVE3SERiWndmMHZ0bjRwMjI3dlBYd2c5cks3dFhZR1BwVGxXbnJCd2dKWmxEQmxJQ2hwV3BNZ2pJempLeEU5MktqU3NGTms5UDljVEg2dkM2blUwSEdod0xoZ1lRNjBnZXZoRnQ?oc=5) |
-| Typhoon Halong in Alaska: Dozens rescued, several missing after storm brings violent wind and record storm surge - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNX2ozN3JkSTZ6eW9UY2pVa2o1UlJqMlRoNUhtanRMNW8taGFFQkhlNk9QYjBsY095U1pQbU5YYWJvc2drU1dPQnUxZUVrRF9fMnBCUnF3YS1DNHMyektIOEw5UnZUNFVYM2RFREhHNnJHTVBUb0pUa1NyZ2RkZVg5WXE2VHAxdFJjaGhv?oc=5) |
+| Stock Market Today: Dow Jumps 600 Points After Trump Softens China Threats — Live Updates - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQTzg1dllHWURSbm5JSVhqYjMzZlUySTMxZXZGYy1PSFZpNE1idDRNSk0wcFp0NENpZE02R2hSOHlxaGQ2Vm5NMnpIRHNWR3JZNE5yZ2g0bExlU29uelRodElIOFhiWTdrMk1vckN6X3NIWG9MWEZFMWE4dnA4dXc0b1F0N1VPbVk?oc=5) |
 | New York Braces for Potential Flooding and Heavy Winds From Nor’easter - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQM1VGOExNRjR3UGYyMnQzQjdYTkhBM0lsMDY1V0o2VEY4cl96Rmcwc2Q2OFV2OXp5WHhiNVp2dXB5NjdEUl9vZHRNNU82bF9oVGVCbVdMN0d5TkdUR2lUNzhoTEQwYW0tWUk2bGFGa0lkQ2t5WWg2ZkV1MHhHdkNZak1KODlEcTA?oc=5) |
 | Austin Beutner launches bid to unseat Karen Bass in LA mayoral race - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPV2M2dFUwYlI3c3o0TnpFdEY5WVd5YnFXWDZsY3ZaRE1tQzVpWVlsQjNENTJBc1Q2dnl0TURhTnB2elVLYzlzajluNFRVaUttNkxtX2VuYU1vVkxpY3dOWnEtekFmOER1ejlnWVlPdlJ5RkhOVy1VUTluZ0ZCMm5YOGwzd2lpMFZ5YWJEcWpGVFBPOXg3V1o1anZKbFNiTW5VaXpBVE16RGVydTZtM3MzTGNGZU53WElS?oc=5) |
-| Wall Street rallies on Trump China comments; Broadcom surges - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOeVc2VTBKak5yOU1qa3N1MkFiU0FDVXJtbWxnSENQYldYQmdzaWYxdWtxTE04dFROY1p2YktfNHlKMFFWemxIVEgxV09KMW01b0swamZUS0tuSFdHLXpSWllEelU0dVpuSTVjbXhMMmt0SE5EYlhxVV94Z0RtQ3dOeWttWWFra19lVURWZ1VyUjdXT0Y3bi1pR0Nwd09MMGVZQzBWS2h6VU1mZW55cFcyMW9jdw?oc=5) |
+| Shutdown polls show Democrats’ economic messaging still falling flat - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNTWI5R0EwZDJ6MVNGMjd0SURfMWg2Um5JVjZzOU45dGVsdVhPMmp2UkZScERXRmJ1cXhXRV9KTjdSdDN5X2w5bnZBQVU5R3ljRUZhVm5ZRVpDUXBBVUJWbjA0Rlllc3NGWDFINlpIQ3BZbGNVelZBNG1uM21CSzFiNi1wV1otUUpLejhMblE1Y2tEdw?oc=5) |
+| Democrat Helena Moreno wins New Orleans’ mayoral race - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPWFlXT0lwNElVc0RLR0t5TVE3bG14Z3VRTHJSd0ljaVozWTdlSng5akZkVDRRdzlFLWRPeXMyM1UwcFByX0VEQ1JvYU00d0k1UnptOUVpM2F5eHM3UGN1TklGRlE3MlRsZTlCaThMNl9vZXdwUkpNcExHMnZXb044bEEtLVVIZ2M?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
