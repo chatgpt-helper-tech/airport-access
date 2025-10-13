@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 05:00:48（北京时间）**
+🕒 更新时间：**2025年10月14日 05:08:07（北京时间）**
 
 ---
 
@@ -24,10 +24,10 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Live updates: Israel-Gaza ceasefire deal signed as hostages reunite with families - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOZlN0a0k2cUtsZ1lZSnpkTWNIM2gzSzhINFB3aGtjWVlKcG9OUVpvZnN2M1FrRGVhWjZ6SW44U2c5Z2ZManRHZU05NVhUalEzcXhpbHkwczBIRHdzZFEzc2IxNUFCV2pxaXZlaUxoc3E2Y3pfNklsdVNvN0xZTXVCSlJ5U09RN2cw?oc=5) |
-| Trump plan to invite Netanyahu to Gaza summit aborted after Erdoğan warning - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNdjg5VTYxZkdUQmE0aHhmdDJ5bWhZbF9sT2VvSkxkNkdvSDhMNzhfejZLbkp2QVExMUZfWV9NVVhZV3pNbWZpVF9JZUZqbi1LeHhpM3FaX2czc2hZN25JN0VXX1J4UXJPUXlfUXhYRFNwcDBucHFBcTQwNHhoRmplaGFCYldWc3V3N0VYUXYtSWdVaGhOd1hXVnh2Zy15SzQ5V3N4WGEwUQ?oc=5) |
 | Government shutdown could be the longest ever, Speaker Johnson warns - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPLURHbmZIV1JvTnoxcGpsTmxsWnZVd20xb3FUcGluMWRFbXZZTXpfLVZxUGJzSnRQblZLOWZyc2dYODZmVUZROWVKWHhWaV9wMXN4Qi15Y09LOC0xMUE0NXBGY1lRdFJ0T1VYT1lmTWJzQjkwVDJmYkJCMENvS2Y2WWxyazB5TmUyYXJUaXRyMHVaWE1NbzBHRVhDVS1tZFF0UTZURldCSmN0azliWnY4QnFmWEdPQ1c1?oc=5) |
 | SEA Airport won't play video of Kristi Noem blaming Democrats for government shutdown - KING5.com | [阅读全文](https://news.google.com/rss/articles/CBMi8AFBVV95cUxOc2RIZDdVS250WDkwemlHbEZUREEwVGFLTERkWUxoTnNCUXhPckZTdVBVekJPVy1peG42LUZEYXh4R25ZUWl4NlYzLUN3TC1INTlrRlVuVldVOElLY0ZzSTNCTVNibUFEQ2tydU1ETmdhUnFqWURQQzQ5ZE9HaUZacktmTmRZX3hzYi1tRVE3SERiWndmMHZ0bjRwMjI3dlBYd2c5cks3dFhZR1BwVGxXbnJCd2dKWmxEQmxJQ2hwV3BNZ2pJempLeEU5MktqU3NGTms5UDljVEg2dkM2blUwSEdod0xoZ1lRNjBnZXZoRnQ?oc=5) |
 | Amid shutdown, Trump administration guts department overseeing special education - NPR | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOQ3RMalFLWV9LdDBVbHNYbldoSk42X1F1ajhwc0pDcUE2amVXRVVDcTR0c3NUbm5oanhRNEVXbjA1eWVFdEYyY3dJVks3b2pJUkRaWDR5ekVzcFJLUThvNk5oN2gtOWg2Nmo5QnFKX3VmYWxfQ244bW5kRWVJbTh2NmVJZ3R3dGZGUW5zVS1xemlibW9WYks2ODVLQkhxclhFUWk2RHFMd3VtRUVW?oc=5) |
+| Tackles, projectiles and gunfire: Many fear ICE tactics are growing more violent - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxObnZoWU5hUTBERmdPODkzOEZEVFR2MS05V3RxUEJxd2ZMR2VtbUJCQzJrRWVBQkN5SFV6NXpIcDFleGdTUjQzMjUwLW5yOGcydl9aYnFnTzNlZ0dQRThSSHI4UHI2ak03VEdtOXU3dm9IUDFxSGVTSUxXYVc0dktfUy1XbFMzTGZxVjRuZnZB?oc=5) |
 | New York Braces for Potential Flooding and Heavy Winds From Nor’easter - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQM1VGOExNRjR3UGYyMnQzQjdYTkhBM0lsMDY1V0o2VEY4cl96Rmcwc2Q2OFV2OXp5WHhiNVp2dXB5NjdEUl9vZHRNNU82bF9oVGVCbVdMN0d5TkdUR2lUNzhoTEQwYW0tWUk2bGFGa0lkQ2t5WWg2ZkV1MHhHdkNZak1KODlEcTA?oc=5) |
 | Austin Beutner launches bid to unseat Karen Bass in LA mayoral race - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPV2M2dFUwYlI3c3o0TnpFdEY5WVd5YnFXWDZsY3ZaRE1tQzVpWVlsQjNENTJBc1Q2dnl0TURhTnB2elVLYzlzajluNFRVaUttNkxtX2VuYU1vVkxpY3dOWnEtekFmOER1ejlnWVlPdlJ5RkhOVy1VUTluZ0ZCMm5YOGwzd2lpMFZ5YWJEcWpGVFBPOXg3V1o1anZKbFNiTW5VaXpBVE16RGVydTZtM3MzTGNGZU53WElS?oc=5) |
 | Shutdown polls show Democrats’ economic messaging still falling flat - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNTWI5R0EwZDJ6MVNGMjd0SURfMWg2Um5JVjZzOU45dGVsdVhPMmp2UkZScERXRmJ1cXhXRV9KTjdSdDN5X2w5bnZBQVU5R3ljRUZhVm5ZRVpDUXBBVUJWbjA0Rlllc3NGWDFINlpIQ3BZbGNVelZBNG1uM21CSzFiNi1wV1otUUpLejhMblE1Y2tEdw?oc=5) |
