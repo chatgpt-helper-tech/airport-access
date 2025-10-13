@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月13日 12:00:21（北京时间）**
+🕒 更新时间：**2025年10月13日 12:09:16（北京时间）**
 
 ---
 
@@ -12,12 +12,12 @@
 | Badenoch demands PM address 'unanswered' China spy case questions | [阅读全文](https://www.bbc.com/news/articles/cg424d712q7o?at_medium=RSS&at_campaign=rss) |
 | Carmakers go on trial over emissions cheat claims | [阅读全文](https://www.bbc.com/news/articles/cjr5epw8dweo?at_medium=RSS&at_campaign=rss) |
 | Reeves urged to avoid 'half-baked' tax fixes in Budget | [阅读全文](https://www.bbc.com/news/articles/cx2n08n15w2o?at_medium=RSS&at_campaign=rss) |
+| Trump says he may send Tomahawk missiles to Ukraine | [阅读全文](https://www.bbc.com/news/articles/c93xpqgzkv0o?at_medium=RSS&at_campaign=rss) |
 | Murder arrest over deaths of children aged 2 and 3 | [阅读全文](https://www.bbc.com/news/articles/c78n8y3mlxko?at_medium=RSS&at_campaign=rss) |
 | 'In an instant, they were gone' - small town mourns after Tennessee explosives factory blast | [阅读全文](https://www.bbc.com/news/articles/cwy8y0rnw2eo?at_medium=RSS&at_campaign=rss) |
 | Man charged with stalking after allegedly targeting Ed Davey and family | [阅读全文](https://www.bbc.com/news/articles/c77d702znm4o?at_medium=RSS&at_campaign=rss) |
 | SNP leader says 'precedent on my side' to secure second referendum | [阅读全文](https://www.bbc.com/news/articles/cg424dk03x9o?at_medium=RSS&at_campaign=rss) |
 | 'Painful' job cuts to come if US shutdown drags on, warns Vance | [阅读全文](https://www.bbc.com/news/articles/cp3d554053lo?at_medium=RSS&at_campaign=rss) |
-| 'She left trail of fairy dust': Tributes pour in for Diane Keaton | [阅读全文](https://www.bbc.com/news/articles/cr5q5rp4r64o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | Alaska hit by severe flooding that carries away homes - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE93eDg4N1c4NEs0UTZrM2VwUGZEWGdvNkQySzBLbVZsT0JSMU1mTkQ0OFg4VXlEbjJsR2RHcC1QenZsS1M3d1pYWXF6dklNQy03ckg3eU1WXzdYdlZYei1ZcGpMM29zR2FqOWN1UNIBckFVX3lxTE4xcXVJNEltelBhSFZRLWdkbjRlMnZrVmdGV25HRUxhdDJpZWtxMUhIZnJHN2F3Q1duLVNkRUw4RVZYakZCSFRuQXVhVzdib3ZJcDByU0RjSFlPb2dHTkgyekJGeWg4SHJGa2YyQWpqbVNhUQ?oc=5) |
 | Helena Moreno Is Elected Mayor of New Orleans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPeDluMm1JaDQ0Tnp4aFFkZmF6MURDckkzYnlCUzdhSGdUOUU3d0JadTl4bThoTWdIbERsZURrZU5aRGJpTk9EM2V3RlE4Z19RNHZJakZ0MVVLRkVsd1U3U05hVUw2SHd4SDZlZWZaQ3l4YjhNTDBDR0hMYVpSeWpaa19SYkdYanl6WFE?oc=5) |
 | Shooting at packed South Carolina bar kills 4 and injures at least 20 others - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQTDFxT3pxNFhkNzZ6VTF4MDdaWlZ5dUF3ay1UdkpzZkZESmNzbHFJSGQwTXUxSzFUcHhBQk05VXBMamx2VV92OFk5NDNSTm5yZ2VLZ1JWa1ZPMUczRnUyVGlrZUM0dnVub1lEU0JOV3lBMFEzSlJnb3ZyZV9nUzQ0WVA1eGIzOThIMEZxdUZn?oc=5) |
-| A factory that makes munitions for the military exploded, killing 16 people and leaving no survivors - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQeU9MQ3RoT3lMYU1GNkpocEdWRllzcllxYTFwYWx4Zm0xb2V0a0paS0xGV2NjelRpeFRGZzZjY0hlM1d1R0JpcF9VV0YxQlhZRUdCMzF5WkREZjNvZFpYWXZPN1RRNkY0TzFUanAtZENHcGdxV3ZBT0RhcnJ6U1Q4SXc1VTduWmlZQnIwZWtYcTB6ZzdhY1J4Y3kzRE53T19sUVBNUW1qNkM?oc=5) |
+| New Jersey declares emergency as nor'easter approaches, while Alaska flooding carries away homes - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNMi1jYmVqSG9PQy02Vk5nTS1vdzFEd1ZnVmRvTkl1ZGRyLUVaNzRPenBnMDVKOWhrblhUSzFLT1Uxa2dJZUw4STRKTHR1NkNzNzY0X3NqNkJZOGRZZDhyMFZIeWduZlNvUHpQbTRyUVp5UTY0eGhnc0hVMzZkM0NjeERWVklPR3VsRHUzWVFfVVNEVE5WRk9TQ0JIRTgyb001OGR6TC0xZmt6QQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
