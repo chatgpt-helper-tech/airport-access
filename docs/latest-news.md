@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月13日 17:16:28（北京时间）**
+🕒 更新时间：**2025年10月13日 17:24:35（北京时间）**
 
 ---
 
@@ -10,12 +10,12 @@
 |--------|-------------|
 | Carmakers go on trial over 'dieselgate' emissions cheat claims | [阅读全文](https://www.bbc.com/news/articles/cjr5epw8dweo?at_medium=RSS&at_campaign=rss) |
 | Blowing whistle on racism killed my career, ex-England rugby player says | [阅读全文](https://www.bbc.com/sport/rugby-union/articles/cdr61plm727o?at_medium=RSS&at_campaign=rss) |
-| Badenoch demands PM address 'unanswered' China spy case questions | [阅读全文](https://www.bbc.com/news/articles/cg424d712q7o?at_medium=RSS&at_campaign=rss) |
+| Reeves urged to avoid 'half-baked' tax fixes in Budget | [阅读全文](https://www.bbc.com/news/articles/cx2n08n15w2o?at_medium=RSS&at_campaign=rss) |
 | Two charged with murder of Lostprophets singer Ian Watkins who died in prison attack | [阅读全文](https://www.bbc.com/news/articles/c3drdy5ry2do?at_medium=RSS&at_campaign=rss) |
 | Trump says he may give long-range Tomahawk missiles to Ukraine | [阅读全文](https://www.bbc.com/news/articles/c93xpqgzkv0o?at_medium=RSS&at_campaign=rss) |
-| Reeves urged to avoid 'half-baked' tax fixes in Budget | [阅读全文](https://www.bbc.com/news/articles/cx2n08n15w2o?at_medium=RSS&at_campaign=rss) |
 | Your nose gets colder when you're stressed. These thermal images show the change | [阅读全文](https://www.bbc.com/news/articles/cj076ynnlpgo?at_medium=RSS&at_campaign=rss) |
 | Woman arrested after deaths of children aged 2 and 3 | [阅读全文](https://www.bbc.com/news/articles/c78n8y3mlxko?at_medium=RSS&at_campaign=rss) |
+| Badenoch demands PM address 'unanswered' China spy case questions | [阅读全文](https://www.bbc.com/news/articles/cg424d712q7o?at_medium=RSS&at_campaign=rss) |
 | Heartbreak after modified e-bike fire destroys home | [阅读全文](https://www.bbc.com/news/articles/cj3yk5xvjgmo?at_medium=RSS&at_campaign=rss) |
 | 'We must catch up soon!' How to stop ghosting your friends | [阅读全文](https://www.bbc.com/news/articles/cwyr971q7rxo?at_medium=RSS&at_campaign=rss) |
 
