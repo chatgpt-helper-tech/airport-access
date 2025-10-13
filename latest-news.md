@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 05:24:33（北京时间）**
+🕒 更新时间：**2025年10月14日 05:32:51（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | Middle East 'doomed' without Palestinian state, King of Jordan tells BBC | [阅读全文](https://www.bbc.com/news/articles/c3w965y65zzo?at_medium=RSS&at_campaign=rss) |
 | 'You're my life, my hero': Hostages reunite with families after two years | [阅读全文](https://www.bbc.com/news/articles/cyv8p8m4qg6o?at_medium=RSS&at_campaign=rss) |
 | Palestinians celebrate return of detainees freed by Israel | [阅读全文](https://www.bbc.com/news/articles/cr430epq45go?at_medium=RSS&at_campaign=rss) |
-| 'Long and painful nightmare finally over,' Trump tells Israel's parliament | [阅读全文](https://www.bbc.com/news/articles/c709jxxrrvlo?at_medium=RSS&at_campaign=rss) |
+| 'Now the rebuilding begins,' says Trump  as he signs Gaza peace plan | [阅读全文](https://www.bbc.com/news/articles/c709jxxrrvlo?at_medium=RSS&at_campaign=rss) |
 | SNP will create network of walk-in GP services, says Scotland's first minister Swinney | [阅读全文](https://www.bbc.com/news/articles/ceq052d1ypeo?at_medium=RSS&at_campaign=rss) |
 | Tommy Robinson refused to give phone Pin to police to protect 'journalistic material' | [阅读全文](https://www.bbc.com/news/articles/c2lp1k7pnpno?at_medium=RSS&at_campaign=rss) |
 | Mortgage rates creep back up as lenders show caution | [阅读全文](https://www.bbc.com/news/articles/cdx4l557n1lo?at_medium=RSS&at_campaign=rss) |
