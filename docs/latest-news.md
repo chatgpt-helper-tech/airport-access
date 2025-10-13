@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 03:40:19（北京时间）**
+🕒 更新时间：**2025年10月14日 03:48:45（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | ‘Locked up for 24 years’: joy and sorrow as Palestinian prisoners and detainees return home - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOVE5EX0k0aDRlUHJpeE1mS2pRYjlfaHh2U1ZIczc3bENOaGNzZ2Jpb1ItQl9zMmVkLWtFaGFyQnRFMEYzN3ZJaDY5QURQUzJRM2M5X1FKRm9rQkdUY1hYTk1QdF95TmxDbzJJbUFOd3dVeWY0UlFSb3RnM3VkS2ZHOVNrbGpmQQ?oc=5) |
 | Historic wave of retirements is putting huge strains on the government - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxORXRnVktXTkJHSjREWmhuTEtFMXdnN2xlUTl0Rm5VRF9UOWJHZjUxSUtuUWotdXNDVnRpNDk1anhPbDItdW54ZXUwMU5kdzRRWEFRZzZFUXZsN255RF8xakNsQTRneFNMejZBcnRuenBMSVgtSTVWSVdKdC1od1Eyam4tNDNWcnVHZ3FrcFNyTDhLandmckJwS2NVU20?oc=5) |
 | Amid shutdown, Trump administration guts department overseeing special education - NPR | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOQ3RMalFLWV9LdDBVbHNYbldoSk42X1F1ajhwc0pDcUE2amVXRVVDcTR0c3NUbm5oanhRNEVXbjA1eWVFdEYyY3dJVks3b2pJUkRaWDR5ekVzcFJLUThvNk5oN2gtOWg2Nmo5QnFKX3VmYWxfQ244bW5kRWVJbTh2NmVJZ3R3dGZGUW5zVS1xemlibW9WYks2ODVLQkhxclhFUWk2RHFMd3VtRUVW?oc=5) |
-| Trump, world leaders gather in Egypt for ceasefire deal signing with Netanyahu absent - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQWVZzN053V2hyQXRWRWJlY0VvSWVKZXNrd3FUbW9laFl0QXlXVEN5MkZNdzZPejBpMXNHM1IweGtoaW9XX1UwOGk1STdXVjUzeUNjanQ5cHdYNXNCS3Z6WnJCdG1pck1wRUtTM0U3QlU1cWdBaUhKV0lsV0ozRE1EUGlCSTFac3ZuenQ4RVNLUlg1NVhUMm1WWFEzQW55OS1Mc2loWTBvWnRTanBzck0yONIBtgFBVV95cUxOb1c1U3hfWEE3SlJjLTk3dzJNNlJRT05UYUp6aUFwclp0S1BoX2d3WjMyU1RBMGl0NXFkejlRRFFjckIwSXphYmFLNVNSTHIwMmpmcVM2OGNvNE52eDQwamFHbkpMNHBzTThaWU1qQjZtQnBqeWZUU0pwWng4V2t0VFhUUjNFVUlaZFprLTBiNUN2Q0V6eTFaMl9maExjaVNFZHhUX0JQaHpiWEJmNnVxUnAzRFlIQQ?oc=5) |
+| Stock Market Today: Dow Jumps 600 Points After Trump Softens China Threats — Live Updates - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQTzg1dllHWURSbm5JSVhqYjMzZlUySTMxZXZGYy1PSFZpNE1idDRNSk0wcFp0NENpZE02R2hSOHlxaGQ2Vm5NMnpIRHNWR3JZNE5yZ2g0bExlU29uelRodElIOFhiWTdrMk1vckN6X3NIWG9MWEZFMWE4dnA4dXc0b1F0N1VPbVk?oc=5) |
 | New York Braces for Potential Flooding and Heavy Winds From Nor’easter - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQM1VGOExNRjR3UGYyMnQzQjdYTkhBM0lsMDY1V0o2VEY4cl96Rmcwc2Q2OFV2OXp5WHhiNVp2dXB5NjdEUl9vZHRNNU82bF9oVGVCbVdMN0d5TkdUR2lUNzhoTEQwYW0tWUk2bGFGa0lkQ2t5WWg2ZkV1MHhHdkNZak1KODlEcTA?oc=5) |
 | Austin Beutner launches bid to unseat Karen Bass in LA mayoral race - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPV2M2dFUwYlI3c3o0TnpFdEY5WVd5YnFXWDZsY3ZaRE1tQzVpWVlsQjNENTJBc1Q2dnl0TURhTnB2elVLYzlzajluNFRVaUttNkxtX2VuYU1vVkxpY3dOWnEtekFmOER1ejlnWVlPdlJ5RkhOVy1VUTluZ0ZCMm5YOGwzd2lpMFZ5YWJEcWpGVFBPOXg3V1o1anZKbFNiTW5VaXpBVE16RGVydTZtM3MzTGNGZU53WElS?oc=5) |
 | Shutdown polls show Democrats’ economic messaging still falling flat - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNTWI5R0EwZDJ6MVNGMjd0SURfMWg2Um5JVjZzOU45dGVsdVhPMmp2UkZScERXRmJ1cXhXRV9KTjdSdDN5X2w5bnZBQVU5R3ljRUZhVm5ZRVpDUXBBVUJWbjA0Rlllc3NGWDFINlpIQ3BZbGNVelZBNG1uM21CSzFiNi1wV1otUUpLejhMblE1Y2tEdw?oc=5) |
-| Stocks claw back more than half of Friday's rout after Trump softens China stance, Dow rises 500 points: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE1oT1M1bU5tYXhVYTNnNW9jYllzdFZ3eXFDb0lfMGUteUFiZmtJa2NzZG15ZTlMa2hyWTVMYktVX1p3X3VHWUhmRjhiVjk0UEVKcXFVME52Y1VoYllIM0dabnRxdFFhc080b2EwRU5HQVEwTkt2bTQ00gF8QVVfeXFMUG1Ka2h2MkNpVUwtck9nYk1CYTQ4Z2U3ZEpQRjYyYmdKa1NxSDRFaG1ZM2h1WFRlMExGQmYyWUpMZkRPMTk3a09xRU8zMURHVkNZVXB4Q1dseC1GUHA0NDFYYkJXak9rR1Fxd2ZwbkhWWDR2MmJQZ19oM21haA?oc=5) |
+| Democrat Helena Moreno wins New Orleans’ mayoral race - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPWFlXT0lwNElVc0RLR0t5TVE3bG14Z3VRTHJSd0ljaVozWTdlSng5akZkVDRRdzlFLWRPeXMyM1UwcFByX0VEQ1JvYU00d0k1UnptOUVpM2F5eHM3UGN1TklGRlE3MlRsZTlCaThMNl9vZXdwUkpNcExHMnZXb044bEEtLVVIZ2M?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
