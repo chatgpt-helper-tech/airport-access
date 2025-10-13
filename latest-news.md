@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月13日 09:41:00（北京时间）**
+🕒 更新时间：**2025年10月13日 09:48:05（北京时间）**
 
 ---
 
@@ -23,12 +23,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Trump says 'war is over' in Gaza as Israel awaits release of hostages - follow live - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE9rTjdUSkdTck1KYWptSE13N1dHY3Vfd0FlYXJPdlJiWUs4d2ZyOFdPSFJDN0VySldsX2liZF9yLV9vVGVFLU9wcFpSRkNPSVhrNE02cQ?oc=5) |
 | Israelis and Palestinians Await Hostage-Prisoner Swap With Relief and Elation - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOdldMVFkteVBTdWsyZl8tWFlwTUt6OWhZQlNtQUtBSzZCOE9pRWNIZlNWaFNUVkdDc1ZlT3JCWGhYNUdjV2ZEQ1IwYWdXa3RuWkVXZUVWb3paSGNDaXlxal82TWItLS05Uk9uYW1GZ2FMUmc4VnVzeGZ5NHdqeDFVdlREQ0RWZW84YUt0YjlZN3F1TDdUczZ1YTE2VlhCUQ?oc=5) |
-| Gaza ceasefire live: Israeli hostages due to be released as Trump says ‘war is over’ and flies to Middle East - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQemlFSGJOTi13TklBc0FLRmI2UjJYUTIwUTNnTFAwWFZUQzNXZ0hwdlZvcUdZZWg5VFJvNTBlakI4WW9VYVNhY1Q0SzV5UlYyLUQ2U3p3b3F0TVBHNVhnblBrT1FfS3VVWGxsVlNCZFQ3TDlXWHdhZ01MYlhBdHFjSW1KVmh1YzFZa3JmdnV3VUNiTXVMTDhrZ3B5a0JVN1BERGVYYVgyOVBoeDVicmNPd2k2Nl9OWTE5Sm5RSko5UC05RnJx?oc=5) |
-| Gaza City clashes between Hamas and clan members leave 27 dead - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBWMy1zeHlXSmhVTXNGWGlGd1hIeVVrb2dJQVcwUGdpdk5lS3BKd2dtZGhsNnpzbXNneUhNLWtGZTFqLWhSaXZ3azZtWlNOdHl4eEZ3d1FnN0owQdIBX0FVX3lxTE5WZkdvUnNBcmU0ekFIeDBlM2ZGSGw2TUV4R2VDdXN0V3FRbmRrbmFhYkJyMmVJQjk0Z3dROHdNUENvekZubnA2eFd2NTVlbU9HVHZoMnVqREljMDNHVmpn?oc=5) |
+| Hamas asserts control in Gaza and targets alleged collaborators as ceasefire takes hold - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE9sajdCM2VXVGhKTUN2UWtsZlMtN1NfWkJ1Tm11elVydUdCZkNJMk51aXY4ZkJneFFzQXhYRWxiMXRjOGdkWnFTVnZCeTkyTWhhMnkxZnZyTHRvN3JpSEM4Mkt4NFpkX0JCREpEY0l0ZDRWWmhiaGRUWnRB?oc=5) |
+| Ukraine war briefing: Moscow voices ‘extreme concern’ at Trump threat to send Tomohawk missiles to Kyiv - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxPVXVfVVJOeUh5S29CVzZsdWY5M01penU2dkkwbnV1UVFFYVpCN0NZSUNnamJ6NnlFT2gyMjNxM2owRTR1bmxVX2xJM21Lbmt3c1l5SUQxdmdTWEFyc0hxdGd4VWRUNGxwZ3BDcU5CTk43cWNEbWw1WVFDUWU4cXpuYy05TUgyeWFWNXk0a0c2SHMyNVpLY29UdTFpclhPLURzVERSX1F6d1ZMOXBoanVIZmZvVTcxd2JJTTJsZUdJcWJlZF9ZQ0pITERzWFFId3Q5UXZ3LU9Icm1IZW94WXBj?oc=5) |
 | US Futures Jump as Traders Gauge China Trade Spat: Markets Wrap - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQMldBdnpxU2loV1gtaUU3R2g3cE54Zzd3LTdhdUpBZmZrZjhtTDlpbHVaYi02TW81QzZKNGFKc21sYk9oUEVHVWxVYy01SURFWUFGVWtGZ0xCSzFYcDA4Vjd5ZExGSUg3anNYclJRdW5tSDFabkFuUFVEU3B4NmdPandjUGdNRi1Oc0NsWlM3UHlqUlRJYWlKNmkxRW9QT2V6NHpkZm1rTWJNV3FPWXJEWkVQRQ?oc=5) |
 | Vance says administration will keep fighting to send National Guard to Chicago - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxON0R2d0VkNmFSeGRvc2lqb3ZBSlhQcU5ycU84NWM4SFBKV1RzNE5zUi1PVDA2M2piWVhoQ3Y4MXF2al9NQmpUYm5WSXBaaHF4RmFMNW9HMmJwcnp2bEpNM0dYTm1pUzB6YWlISnZxVGQyZms1OHhOYktoXzJyTUhOV2tpUlhac29WWFBSNVNPcmdHdVQ2d1ktT1NkM29tSGFXcThJWWI4bUppUmM?oc=5) |
-| Trump says he may tell Putin to settle war or he'll give Ukraine Tomahawks - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBCVHRURW1vV0RKd1NLY0VlXzlxSzFXYkNIMXVweFJKem01NzR6eWNDaXNjQXZIenlwQkR5Wnh4Z0dRMTBLUUxkTjk0UlFGY2hUMVZISkkwRHh2WkdScTVyRi1QZ0tybFJNM1pQMDQxdk1HQmVEN09KNFp3TzFDQQ?oc=5) |
 | New Jersey declares emergency as nor'easter approaches, while Alaska flooding carries away homes - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNMi1jYmVqSG9PQy02Vk5nTS1vdzFEd1ZnVmRvTkl1ZGRyLUVaNzRPenBnMDVKOWhrblhUSzFLT1Uxa2dJZUw4STRKTHR1NkNzNzY0X3NqNkJZOGRZZDhyMFZIeWduZlNvUHpQbTRyUVp5UTY0eGhnc0hVMzZkM0NjeERWVklPR3VsRHUzWVFfVVNEVE5WRk9TQ0JIRTgyb001OGR6TC0xZmt6QQ?oc=5) |
 | Live updates: A major storm is bringing dangerous flooding and hurricane-force winds to Western Alaska - Alaska Public Media | [阅读全文](https://news.google.com/rss/articles/CBMi7AFBVV95cUxOUVoxcTExbzlfT1NiZ2kzZjdtUE1ueHVIY2NTT1pwYk1YcGpCYW8waGg4NnhMbnNMS1BZUkwzSGhtaHlNOV9xZ1k0cEJiRWs4YTRMUHV4c29WSjRWU3h5UWJxR3ZwcmNJQV9tbzc1SlViWTNQSk9PYUNnLWhFbTZ6UHBJdDR4cDhlSXFST3BFRE9CQy1jc0FTdzM3d0pLVy1LaW8xR3MtV1FuRnJQT1FsSllRaUYtMnkybGlEQUVDdWp4MDl3N0hrckhwd1AtV0pFcnBuZmJQTC1TamZ5U2V5WHgzT0JlWmQ4R1ZOVg?oc=5) |
 | Helena Moreno Is Elected Mayor of New Orleans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPeDluMm1JaDQ0Tnp4aFFkZmF6MURDckkzYnlCUzdhSGdUOUU3d0JadTl4bThoTWdIbERsZURrZU5aRGJpTk9EM2V3RlE4Z19RNHZJakZ0MVVLRkVsd1U3U05hVUw2SHd4SDZlZWZaQ3l4YjhNTDBDR0hMYVpSeWpaa19SYkdYanl6WFE?oc=5) |
