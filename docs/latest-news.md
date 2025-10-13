@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月13日 13:09:18（北京时间）**
+🕒 更新时间：**2025年10月13日 13:17:44（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Who are the 20 Gaza hostages believed to be alive and expected to be released? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFA2MjlVUFQ3N2VEelBtdmNERlRUUHpwb1JmaFZEQ0ptUDVxRmdpeTR0ZkZZMEtoRm5NSWhRQ0tzYVNERDNxR3pWMF8yVk9JWTJPbnZ0cm5GWExZZUdHV0g1a0wwNWpfbXJfNkgtY2tibEtwQnZtcThXSnBfZw?oc=5) |
-| Trump says Ukraine may get Tomahawk missiles to use against Russia - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1GTGQ0eWZTS0JLVnV2MWpzNG10WjRRcGt1WTRURWtVNGVBUm5YR1JPbDFVTGI1dDUyU2hSNFBBWXhGRGRXTHJYN1dfMVc2c1luaF8xZGV2aFRjd9IBX0FVX3lxTE9RNW5jM2pEWWpDUW1IbGtPVThuSWtQVjB6RlNrdHR4a2JrNHhxaUI5THVvU08yY0stdDV1emFhaFNVQjlVS1JoUERHSWFDMWJQR28zQ0x3aFBBOGM3NzhB?oc=5) |
 | Asia Markets Fall After Trump Threatens New Tariffs on China - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPMkZZYUFyWC05Ujc4UHAybDNscl9Nbzl5Z2pCRVZEZ2dwZnpOakFUWjB1YXBvUndYWVlCdk85QTZCVmRKazBkd2IxQ0lRY3RxcmtOMGxFTjhTNFZvcUs4a1ZKUnB1VFhOczBtTE5rOWdCTmlock8xYkpyN0lGRmlJc0JabEcyZDhsQVNr?oc=5) |
+| Trump says Ukraine may get Tomahawk missiles to use against Russia - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1GTGQ0eWZTS0JLVnV2MWpzNG10WjRRcGt1WTRURWtVNGVBUm5YR1JPbDFVTGI1dDUyU2hSNFBBWXhGRGRXTHJYN1dfMVc2c1luaF8xZGV2aFRjd9IBX0FVX3lxTE9RNW5jM2pEWWpDUW1IbGtPVThuSWtQVjB6RlNrdHR4a2JrNHhxaUI5THVvU08yY0stdDV1emFhaFNVQjlVS1JoUERHSWFDMWJQR28zQ0x3aFBBOGM3NzhB?oc=5) |
 | Active Illinois National Guard members share views on recent troop activations in Chicago area - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPckdfdFVlUDBPZVB0RElMZVhmYVdqeXhjUWgzc3F5OVY4amxXZWx2c2JFc0w3UVFuNXczbzBDM0RMUk1PWlZYM09RSVV5cUpMcEs5UXhGdVF3TGFmVWY1bXVub21PRUFqc3RuelJidU0zdmpEWXFNR3hkVDFVdS02LVRhR3c2UkpuanBuNTZKR05uQnp6Qk0yVDZNZzBfbVFfOEtnR1pDY21SM3czc3JmSg?oc=5) |
 | Vance warns ‘deeper’ cuts ahead for federal workers as shutdown enters 12th day - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOWXVHTzdQaGlyUDdod0dGS0NCRlJyY3dTTkpnSXUwdHp2SkRjNmtEcTBleDNNaXJtOTc4N3FSYUUtZDdRSXVJdjg1bkNBQlRlSjBiajBncEZDbk9Yakg2VHNRWktVMFc4ckl5RkU5Tnd6SUtSbWFlbVhBSTlHTmZ6aExUZkpuUkJFYkZmZHJKWmp1U1BuS1IydkVMclFzZ1c5NlNMcEJuSWhKN1VJc3lIcHFsMGpOdw?oc=5) |
 | A factory that makes munitions for the military exploded, killing 16 people and leaving no survivors - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQeU9MQ3RoT3lMYU1GNkpocEdWRllzcllxYTFwYWx4Zm0xb2V0a0paS0xGV2NjelRpeFRGZzZjY0hlM1d1R0JpcF9VV0YxQlhZRUdCMzF5WkREZjNvZFpYWXZPN1RRNkY0TzFUanAtZENHcGdxV3ZBT0RhcnJ6U1Q4SXc1VTduWmlZQnIwZWtYcTB6ZzdhY1J4Y3kzRE53T19sUVBNUW1qNkM?oc=5) |
