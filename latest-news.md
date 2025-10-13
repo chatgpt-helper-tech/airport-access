@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月13日 08:00:04（北京时间）**
+🕒 更新时间：**2025年10月13日 08:08:52（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump declares Gaza war over, as he heads to Israel ahead of hostages' release - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxONDR4c01mVlVOdUZabnpoVEx5U2NielVuZmc5cTg4RzljTUkybm1zVV94WXV4RTFMVTBIZ1hyWmFxS0toMXN2eWVwZFhXMHRnRlpodHpKb0dQamhsSzl2U1prSWpmSEhxNHhhS3FvaUVOTTIyN3Q3N01NOW5fWFZKakJnY0ZmUlVz?oc=5) |
+| Israelis and Palestinians Await Hostage-Prisoner Swap With Relief and Elation - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOdldMVFkteVBTdWsyZl8tWFlwTUt6OWhZQlNtQUtBSzZCOE9pRWNIZlNWaFNUVkdDc1ZlT3JCWGhYNUdjV2ZEQ1IwYWdXa3RuWkVXZUVWb3paSGNDaXlxal82TWItLS05Uk9uYW1GZ2FMUmc4VnVzeGZ5NHdqeDFVdlREQ0RWZW84YUt0YjlZN3F1TDdUczZ1YTE2VlhCUQ?oc=5) |
+| Stock futures rebound from Friday’s rout after Trump says China situation ‘will all be fine’: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE1oT1M1bU5tYXhVYTNnNW9jYllzdFZ3eXFDb0lfMGUteUFiZmtJa2NzZG15ZTlMa2hyWTVMYktVX1p3X3VHWUhmRjhiVjk0UEVKcXFVME52Y1VoYllIM0dabnRxdFFhc080b2EwRU5HQVEwTkt2bTQ00gF8QVVfeXFMUG1Ka2h2MkNpVUwtck9nYk1CYTQ4Z2U3ZEpQRjYyYmdKa1NxSDRFaG1ZM2h1WFRlMExGQmYyWUpMZkRPMTk3a09xRU8zMURHVkNZVXB4Q1dseC1GUHA0NDFYYkJXak9rR1Fxd2ZwbkhWWDR2MmJQZ19oM21haA?oc=5) |
 | Vance says administration will keep fighting to send National Guard to Chicago - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxON0R2d0VkNmFSeGRvc2lqb3ZBSlhQcU5ycU84NWM4SFBKV1RzNE5zUi1PVDA2M2piWVhoQ3Y4MXF2al9NQmpUYm5WSXBaaHF4RmFMNW9HMmJwcnp2bEpNM0dYTm1pUzB6YWlISnZxVGQyZms1OHhOYktoXzJyTUhOV2tpUlhac29WWFBSNVNPcmdHdVQ2d1ktT1NkM29tSGFXcThJWWI4bUppUmM?oc=5) |
-| Stock futures rebound from Friday’s rout after Trump says China situation ‘will all be fine’: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE1oT1M1bU5tYXhVYTNnNW9jYllzdFZ3eXFDb0lfMGUteUFiZmtJa2NzZG15ZTlMa2hyWTVMYktVX1p3X3VHWUhmRjhiVjk0UEVKcXFVME52Y1VoYllIM0dabnRxdFFhc080b2EwRU5HQVEwTkt2bTQ0?oc=5) |
 | Trump may speak with Putin about sending Tomahawks to Ukraine in effort to end war - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPV1VKVExVR2ZuWER1amkxZzR5dngyNXNZWEJYQ3N3bllfdXBoWklPZDFsNzRyR3ROeEwzQVpCTTJ3ckFLRWVJOFBCQWR6WnBPRHlpMkZXd0tobmZiQXZWUWw3ejR4MnMyUmU3ZlRLT1NwRTVNamJHd09oSFFYeU5RQmxzZUM0OVBCeFZURFl5YmgxMzFH?oc=5) |
-| New Jersey declares state of emergency as nor’easter approaches - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNMi1jYmVqSG9PQy02Vk5nTS1vdzFEd1ZnVmRvTkl1ZGRyLUVaNzRPenBnMDVKOWhrblhUSzFLT1Uxa2dJZUw4STRKTHR1NkNzNzY0X3NqNkJZOGRZZDhyMFZIeWduZlNvUHpQbTRyUVp5UTY0eGhnc0hVMzZkM0NjeERWVklPR3VsRHUzWVFfVVNEVE5WRk9TQ0JIRTgyb001OGR6TC0xZmt6QQ?oc=5) |
+| Vance warns ‘deeper’ cuts ahead for federal workers as shutdown enters 12th day - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOWXVHTzdQaGlyUDdod0dGS0NCRlJyY3dTTkpnSXUwdHp2SkRjNmtEcTBleDNNaXJtOTc4N3FSYUUtZDdRSXVJdjg1bkNBQlRlSjBiajBncEZDbk9Yakg2VHNRWktVMFc4ckl5RkU5Tnd6SUtSbWFlbVhBSTlHTmZ6aExUZkpuUkJFYkZmZHJKWmp1U1BuS1IydkVMclFzZ1c5NlNMcEJuSWhKN1VJc3lIcHFsMGpOdw?oc=5) |
+| State of emergency declared for NYC, Long Island and Westchester County due to nor'easter - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOSnhZbXppaWtNQnU1ZVVMVUJyZTRzaTVycFF5ME15RWFnQ29URk51eXNlb3FPWGlzakRGYWVQUF8weVVZTWY4OEZ5dm9VZVZGQzZMV3k4ZVhzblVXV2MyNDZRRVdUT3VPQ1JaVEVmcGIzT3NxejJwRzE0LTNXSUY3eDl3UHdEdERnZWxrU0hRX1JUa0s0YVZMRUpaakFxS3oxeVIzNUpn?oc=5) |
 | Shooting at crowded South Carolina bar leaves four dead - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1hclJmTUIxWnQtcUZ2X0p6NElNZnhQcXhLTGU3WGZLa2k5Wk9xMG5CTEdzN1hoLWs0RWJsRmp3dmpWZ1F4OFlGSTh2VVQ4MjhpV1poZzZSam1UQdIBX0FVX3lxTE5OREQ4M2lxX0lMZE1LNVNSRWdFMXhfMzQwMFlwdU9Ta2llSkNybnh2WjdNZGk3ZXRvdmY4VEZPWHluME5fVjJfODgyZVY5OUxYX2xoRS1TNzgxMU1vNXc4?oc=5) |
 | Helena Moreno Is Elected Mayor of New Orleans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPeDluMm1JaDQ0Tnp4aFFkZmF6MURDckkzYnlCUzdhSGdUOUU3d0JadTl4bThoTWdIbERsZURrZU5aRGJpTk9EM2V3RlE4Z19RNHZJakZ0MVVLRkVsd1U3U05hVUw2SHd4SDZlZWZaQ3l4YjhNTDBDR0hMYVpSeWpaa19SYkdYanl6WFE?oc=5) |
 | Texas Water Crisis Threatens Booming Industrial Hotspot for Exxon, Koch - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOaVIwTjJ5MzhveGVIV1BYRUUzdDlHVEJNT2R4QU5aZF9TYmVTemF1aERlT3NDX1hvZUxqT0dMT1ZGWVdyMW54YzlEc1JMV2hvNUtOdVAwZmNkdkxOUzZvQ0dMWHhjNGx4ZVRHMVY2NlVBNEtORDFuQ3J5dlRjNFNzUjFmM1BaZGhIeTltWTZuUEp0MFNoWm9oQndGMDF1VDZYVTB2UVRReHhkZDR2TXU1QnVVYWVOUUtaWFdaYmdB?oc=5) |
-| Vance warns ‘deeper’ cuts ahead for federal workers as shutdown enters 12th day - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOWXVHTzdQaGlyUDdod0dGS0NCRlJyY3dTTkpnSXUwdHp2SkRjNmtEcTBleDNNaXJtOTc4N3FSYUUtZDdRSXVJdjg1bkNBQlRlSjBiajBncEZDbk9Yakg2VHNRWktVMFc4ckl5RkU5Tnd6SUtSbWFlbVhBSTlHTmZ6aExUZkpuUkJFYkZmZHJKWmp1U1BuS1IydkVMclFzZ1c5NlNMcEJuSWhKN1VJc3lIcHFsMGpOdw?oc=5) |
-| How Trump’s Chicago Immigration Crackdown Escalated, in 10 Videos - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQX0xCNVN1clRKc1dxa29XQloxVk12NzZ1djhSVWVZN3M1TDN5andOV0kwOGdhUGdpeUVQai15OXNOTjl3ZjFsNVNKNFRGM092NzVyUWY1LVZlQmhZbEVDSjVvVUF2Z2ZzZmtOREVSN2g3V0FLb1BEZGFlYWZTR0xVZnJFWlY4Zw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
