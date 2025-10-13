@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月13日 23:17:13（北京时间）**
+🕒 更新时间：**2025年10月13日 23:25:50（北京时间）**
 
 ---
 
@@ -24,10 +24,10 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Live updates: Israel-Gaza war; Hostages released as Trump addresses Israeli parliament - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOZlN0a0k2cUtsZ1lZSnpkTWNIM2gzSzhINFB3aGtjWVlKcG9OUVpvZnN2M1FrRGVhWjZ6SW44U2c5Z2ZManRHZU05NVhUalEzcXhpbHkwczBIRHdzZFEzc2IxNUFCV2pxaXZlaUxoc3E2Y3pfNklsdVNvN0xZTXVCSlJ5U09RN2cw?oc=5) |
-| Wild Surveillance Footage Shows Plane Crash Into Texas Parking Lot - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPZm4tcmJzT1pCQ0UySExlNFRjSVRmRGt1aDJoaU42bTh6cWZ6YjFGWE96azc4cEdKRTcwR1ctQmNla1lDZ2FwV1g5QWNCSlBST1Y3YUlNZ285X0tpM2xEbkdEbXRqQUpxcVllOU9oZjNfVnN0dWYzMmtmY3A2Wjh6TFQ4SldWZjBhRjkxd1FtMmxWczBHcmRFR3ZnUzU?oc=5) |
 | Historic wave of retirements is putting huge strains on the government - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxORXRnVktXTkJHSjREWmhuTEtFMXdnN2xlUTl0Rm5VRF9UOWJHZjUxSUtuUWotdXNDVnRpNDk1anhPbDItdW54ZXUwMU5kdzRRWEFRZzZFUXZsN255RF8xakNsQTRneFNMejZBcnRuenBMSVgtSTVWSVdKdC1od1Eyam4tNDNWcnVHZ3FrcFNyTDhLandmckJwS2NVU20?oc=5) |
 | New York Braces for Potential Flooding and Heavy Winds From Nor’easter - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQM1VGOExNRjR3UGYyMnQzQjdYTkhBM0lsMDY1V0o2VEY4cl96Rmcwc2Q2OFV2OXp5WHhiNVp2dXB5NjdEUl9vZHRNNU82bF9oVGVCbVdMN0d5TkdUR2lUNzhoTEQwYW0tWUk2bGFGa0lkQ2t5WWg2ZkV1MHhHdkNZak1KODlEcTA?oc=5) |
-| Dow jumps 400 points as Trump post eases concern around U.S.-China trade tensions: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE1oT1M1bU5tYXhVYTNnNW9jYllzdFZ3eXFDb0lfMGUteUFiZmtJa2NzZG15ZTlMa2hyWTVMYktVX1p3X3VHWUhmRjhiVjk0UEVKcXFVME52Y1VoYllIM0dabnRxdFFhc080b2EwRU5HQVEwTkt2bTQ0?oc=5) |
+| Lawmakers ejected from Knesset after disrupting Trump speech - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOXzNFY2dhRTRlZklvY1ZMTXI0LWpJc3pma0d5enZ4bk1udmhMZXZhRE52WDA1bEltaFFnMk9QUWpoY3JfcEp5bHF0LVN4bEw3YWU2X3B6alZZNHFfWEdMVVlmNGMtMWRaZEswSUhxTG1YYUp6OHExdnpCUWRfWi1CelMwWHBlNVNt0gGOAUFVX3lxTE0xSWQyeWpIdS1XLVpVcWVXOGd0WTJxa0ljU2NmWmhtZE5tTzJZV3JHWUx6VkZhbGhHZ3F2dXJyY0dSWV9yZVhnM3ZQR2xNRGV5NUNqVVdvZHBmT2FfMXdQV0FiY19KaEJyUkpGMnM3cDJ3N1UwdFYwOFBiN2l4T3B4LW85NUE0UVNDSUEycWc?oc=5) |
+| Dow jumps 500 points as Trump post eases concern around U.S.-China trade tensions: Live updates - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE1oT1M1bU5tYXhVYTNnNW9jYllzdFZ3eXFDb0lfMGUteUFiZmtJa2NzZG15ZTlMa2hyWTVMYktVX1p3X3VHWUhmRjhiVjk0UEVKcXFVME52Y1VoYllIM0dabnRxdFFhc080b2EwRU5HQVEwTkt2bTQ00gF8QVVfeXFMUG1Ka2h2MkNpVUwtck9nYk1CYTQ4Z2U3ZEpQRjYyYmdKa1NxSDRFaG1ZM2h1WFRlMExGQmYyWUpMZkRPMTk3a09xRU8zMURHVkNZVXB4Q1dseC1GUHA0NDFYYkJXak9rR1Fxd2ZwbkhWWDR2MmJQZ19oM21haA?oc=5) |
 | Growing number of US veterans face arrest over Ice raid protests - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPOVhEVDNCRXM2NzMyRVBSaWo4ZHZqWnFYaEJ5MS1Bd3VUTEhEd1dhcEs3cjlOdzhrTlgxSXNKbUplekxHTm9ORldMSVVlblQwUmN4eFY4RjZ1WGhtdWRiSFNOc1VpeE9TaEwxMi01LUc2eDdhcFZNblI0YW5UMFhmclFhOA?oc=5) |
 | Nor’easter brings flooding to US east coast as storm sweeps away homes in Alaska - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPQzQ2LTVjZG9iX1FuYjVZZ3hOaXRfenZEUzZoLWItRlBCSFJYaU1uNkgyUE55ZmRON0RVMWkwbndBd3NCLTNHemlVLUNjUWVMX1NXUWh3cWhObU1FQUJnbmpNTXM2eEhVRWs3bUs2SFd4QnVDU3FDOFZTbVA2aldKYUlfOHRBLUtPQ2lYTg?oc=5) |
 | A Tennessee Sheriff Becomes the Face of Grief After Plant Explosion - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNT0ozV19PY2ZKMGlCTmxnTUxlV0s5bVcxQ3h6WUVEdEF1LVB5c1NZRmVCRjdldzlpZmpmdnhBa0NZMFZudXNjWHFIeVhDMUVkUUFNYW1tUU4yaG00aEVhWWN6bzBoOTZlRVF3TFlMdWl3TnotbGlna2YzMEZEbFJFLU5icmtiSlc2a2c?oc=5) |
