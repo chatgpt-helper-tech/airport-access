@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 18:09:20（北京时间）**
+🕒 更新时间：**2025年10月14日 18:16:28（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Education Department layoffs hit offices that oversee special education and civil rights enforcement - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNUHF2MGdUVlloZlpfUURJNWYta1U2VGVSWUsxTm9iY2FSUnlwNGlaaFZXVGZHSkwxWnJTT2xWeGV1TGJkQ1hrOHNwVms5MWpMai04bmtZemMzelI3b2lvNzNoZnc4SjVNX0NNVFprcV9nemY1Ylo0RnZvaWFjZFlCTmJzNzk0b3JVQVZXTHNaMmw4M2F5ZW9hNVpoVXprRTZ1MDVTYnduQlF6cl9DSnNaOHhrVjd3Zw?oc=5) |
 | Illinois lawmakers look at limiting federal immigration agents as Broadview shrinks designated protest area - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOT25wV3R1QlUxc3dxNnFZUmoteEgwTHh3ZWd6Tk11TXRFZmdQMjMxMUdzSHZVQkE3STViYlF4d2lGakEyZVVwUWxXcVUzbDNJWnZvTDYyRmtoMThUS2R2dGVVMUhHcFRxSkxTNC0tN2pFVWFiTlpZdTJBM1YyQ0VSUXk5ZF9ndzlT?oc=5) |
 | Photos: Powerful storm pummels U.S. East Coast - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOR3JOMXpYQ1dTVGlmdmR1aGRVNWxscTI2Vnd2aldhZ2VEcE1Sb1A5VFBZdHJQM3VNZENSdG11WEItY2hLbm5JLUdMNWtRZlI2OWVCcEEzZURWaWh4MXZlLU1OVDBqei1mazdWbXl4ZEp3Y2FWcXpQNlh1NmtGUXlHTEwwTXdzcl9MUnh0Mw?oc=5) |
-| China Blasts US After Rubio Condemns Detention of Church Leaders - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOc2xpaGxoTnhfNkd6YnJXRDVNUGV4Ri1INGFZZUwyQ3loTFlodlh3UDlLT3ItLWtoSTREV0RqX0RQLVpaRENuYzhJcWNTcllINVk1Q0hiUHVYb1hTM1dEWmp6WGFkVHRTYkY3OTNFWVpKU0sxQlk5UDJRM055ZmJOM1QyMVFCSUpZTmFIYWJNNEZ2UTdldjFOVnVtVDlFdEZUYWdwckZneXB4Snp4OUNGcFhiaV9vUQ?oc=5) |
+| Opinion: Why I'm handing in my Pentagon press pass - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNZ0swOHhrVGNyWEZ5dnU1dzRNR0NPVFVtdnFaa1hvNl91TkJENkFQUFJCZHo5bGdBMXk5Nk9xUV9IM3oxSzY2WGhfd0RFdHFTQnhVNDNid3V0VWlMTXlfTDBMMWZFWUxGV3FVYnJCeUxqaWRWUVo0QmdZLWJSb3ZyOXZTZkQ0dG8?oc=5) |
 | Woman found dead, dozens rescued and over 1,000 displaced after storm devastates Western Alaska - Anchorage Daily News | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxQLVYxZXRuMFoxVnE5bnBWWHB2bjlzck1qcV8zVjJFT0RrYXlDRzNLMGZnZ0FnanBjaGpTa01MX0tuOGNzMjVzSXJURWVCY3dqTzVQZ2tXV0ZkMURNdjZ2VTJzVzFadVBteUVzY21nc2RLcHdrNjVHVlMwQjBFWWx3SjRDV0lMTm4yZy0yR0U4eXFuX3N1QTE1dDVWWlNfNHREVGJUakt2NDBHRnRTd2R4el9YM0UtUjE4R0c4dXB5Z3ZQRl9UVFRpRTZES19NLWNSYXlMSHhBdlY1eEJY?oc=5) |
 | North Carolina Republicans heed Trump’s call to redraw congressional map - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPWWxwbmpGSWZ6M2txd19CNl8yUFdLMjRhMi1TUFpPTThBNUZBdEE3S0xBNlduRThpY0lYY19xUWlsNXBueGZ3S0p5a0dQcm1SNE4zZTZ0RVJoRlY5cjNhZm5LZlRBcGdQMFpZeW50aEYycXVPdXc2M2ZVbThoaHpDTXRuWFpueF9mVXMxSWdpYmVabkVV?oc=5) |
 | 4 arrests made in connection with Mississippi mass shooting that left 6 dead, FBI says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1GLVJQR3ZBN3JISjBnSGRXX0hTQUwwRUYtSU1EUHltdXZrdDI5c2ZSaHFRdFBxMThfdldYWHFNQ1k0QTVaeDBTLU00U0twdDgzblB0Y2xZLTRyaWlmMWlfazNSdkhNelMyQXYtcGIxUm5SUmtiQlQ5Z9IBfkFVX3lxTFBwMUFJT0R2Wl9tVjJTaFp3RlpoNE01MklONk5RaWdQenRFNEJGYnJJRlIySkg3WElTdXY5SG0zdXMtbUNmSDI5R0k3ZXRCRkREa08zZ3lqcGhiVHRQbFBHOWRoOWpUWVVaVUJVVlRzbi14Y2x0dHRNakt6WlZRdw?oc=5) |
