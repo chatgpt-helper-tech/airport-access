@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 00:56:19（北京时间）**
+🕒 更新时间：**2025年10月15日 01:01:19（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | 'It's not over,' says son of hostage whose body remains in Gaza | [阅读全文](https://www.bbc.com/news/articles/c2056729058o?at_medium=RSS&at_campaign=rss) |
 | UK will be second-fastest-growing G7 economy, IMF predicts | [阅读全文](https://www.bbc.com/news/articles/cn092p27xn0o?at_medium=RSS&at_campaign=rss) |
 | DNA test proved woman accused of stalking McCanns was not missing Madeleine, court hears | [阅读全文](https://www.bbc.com/news/articles/ckgk2g94ll0o?at_medium=RSS&at_campaign=rss) |
-| French PM backs freezing Macron's pension reform to save government | [阅读全文](https://www.bbc.com/news/articles/crkldd02xg8o?at_medium=RSS&at_campaign=rss) |
+| D’Angelo, R&B Grammy-award winning singer, dead at 51 | [阅读全文](https://www.bbc.com/news/articles/cwynv40ly4vo?at_medium=RSS&at_campaign=rss) |
 | Tommy Robinson police stop unlawful, court hears | [阅读全文](https://www.bbc.com/news/articles/c0rpwkp9xz2o?at_medium=RSS&at_campaign=rss) |
-| Man jailed for five years for threatening to kill Nigel Farage | [阅读全文](https://www.bbc.com/news/articles/cj97lkmd23po?at_medium=RSS&at_campaign=rss) |
+| French PM backs freezing Macron's pension reform to save government | [阅读全文](https://www.bbc.com/news/articles/crkldd02xg8o?at_medium=RSS&at_campaign=rss) |
 | Raducanu has blood pressure taken in China defeat | [阅读全文](https://www.bbc.com/sport/tennis/articles/cn51r5xpl2go?at_medium=RSS&at_campaign=rss) |
 | Mental health hospital to install CCTV after mysterious death of patient | [阅读全文](https://www.bbc.com/news/articles/cn51r07ez56o?at_medium=RSS&at_campaign=rss) |
-| YouTubers Dan and Phil confirm relationship after 16 years | [阅读全文](https://www.bbc.com/news/articles/cd7r31p0eyyo?at_medium=RSS&at_campaign=rss) |
 | 24 hours with Trump on diplomatic tornado through Middle East | [阅读全文](https://www.bbc.com/news/articles/c93xprvdy23o?at_medium=RSS&at_campaign=rss) |
+| Recognising Palestinian state helped get ceasefire, PM says | [阅读全文](https://www.bbc.com/news/articles/c0ex18xx9xeo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
