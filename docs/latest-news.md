@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 22:17:00（北京时间）**
+🕒 更新时间：**2025年10月14日 22:24:23（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | LA Rain: Evacuation Warnings In Palisades, Eaton Canyon, Hollywood - Update - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPSTZERjZEOTh6aDlvUG51QXpwb2ZLRUJWanA3NWdhRk9hX0R5TmtXczZIcjdaWk9SamlING1icF9YQ0ZDTDBWQXVmaVN1dFpJZThTUEh3M3JPeUUzYno0QVlQOHYtb2lzMXBUQzEtT25RUFdwTkdnLXpuaWdDUzZ2em54eHVQOFVIZS1zc04zb1E3TnMtY0VLM2JwTmRTdw?oc=5) |
 | What to know about the 20 living hostages released by Hamas - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5DMTFwRkcxanlhNXU3MjBXZ3lTUjlfVHI5ZnpBZkQ0aDZBT08zOG9uMFJYWm13Ymp2VWxZaFllUXlucjJjbGdQRGlMNjNicU9mMTlacjBGbUtnUmZtdXd4b1Q1UEVhZFVKX3Q0ZHl1Q3p6cWJOcnBR?oc=5) |
 | Woman found dead, dozens rescued and over 1,000 displaced after storm devastates Western Alaska - Anchorage Daily News | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxQLVYxZXRuMFoxVnE5bnBWWHB2bjlzck1qcV8zVjJFT0RrYXlDRzNLMGZnZ0FnanBjaGpTa01MX0tuOGNzMjVzSXJURWVCY3dqTzVQZ2tXV0ZkMURNdjZ2VTJzVzFadVBteUVzY21nc2RLcHdrNjVHVlMwQjBFWWx3SjRDV0lMTm4yZy0yR0U4eXFuX3N1QTE1dDVWWlNfNHREVGJUakt2NDBHRnRTd2R4el9YM0UtUjE4R0c4dXB5Z3ZQRl9UVFRpRTZES19NLWNSYXlMSHhBdlY1eEJY?oc=5) |
-| Supreme Court rejects Alex Jones' appeal of $1.4 billion defamation judgment in Sandy Hook shooting - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPc1dJeWRER29ULWNhMEpEVlBlUFpvOEQ2Z0hPZkhCZy1tNEVkTTZGamxNWXN1MmF6YUNWdE9Ld3lGZzVIeV9fZ09Qc0JmVjU0Y3NBYkpFaUNQZmNETS10akMwSUdfOGpyR0s3NDRzVGJTWmQ3SVVMRy13QWh2M1l5UEtyWTVhZlVlZElKcnlkWlBUMDJZRmtEb0ZsZWV6MVc1SkU1eUxLbG1Gb0NLNl9F?oc=5) |
-| Four people arrested after shooting in Mississippi town that left six dead - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxObmN0dVk4R25VbWhlTFVCTktUSm5vQ2xLSVVIZVBWRmUwZHlqcXZMNFZyQWZnandlQlIzTnB1V0NsQXRUSkxVT2h6SlBQMHNISDRNZzYzb1pfZW1kX2V3Vl9nejRyYzhWay1CbGVXWnJ1MW92dlhNSWpOUnk0SmtzTThwMDFEWlVJVENF?oc=5) |
+| Supreme Court turns away Alex Jones' attempt to block $1.5B defamation judgment - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxOZW9iaWpZbTlsTTQ1RFJOdExJRUZZOUV3QVFvQlFGblNZVXNQOTFOYmlJOFhWLVVXb2dqWFNYbERKOThBb01xcUx0VG5TLWxXLVhOX2l3Si0tbTVwS0ZIdHBEUEZFaVJRTjJPRGRwMXcyQWtYSTNjMmk5a2J6NU83RVhhS3JYNEtxeXpYSngwUVhUdkQ5eHFPNmkwSEtYRWJ3NzNDa0VRUy04QWU5eWtiaWhVZWZDR1hzUF9mRGdKYzM1MUtRaTk00gFWQVVfeXFMTlZXLXpiWTUtSFVYNms2dFctYmFnLUxscWxBcURHUzFnMUZ2RThfNjAyVnV1MVdDd1VOU0RJTTF1QzlJa0h1c2ZOQ1doZ2l6c1lJcEgza2c?oc=5) |
 | Capitol agenda: The Senate stalls, ACA buzz builds - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNV29PM1RZd0g3YkN0NE1FNHhkOEJNeTl4Y1NjeVliV3AzZnRxZmpZYXhUQ0FHSEhEdFBTdWo0bVQ2WXFOQ1Rzb1pZc2FPaEhVV0ZmcFVnZS1YUXhqNmVGcGNmc0NwbFdGU3pDRFVhVGJRdHVvQXdTU0lNek9iNF9ZalFOcVVBZnBiUVJqOXprZFJrTWdxbkJ4cnZ4bHNFc1BVN3lqRU1rdThTUGlTQzF4bXpB?oc=5) |
+| Four people arrested after shooting in Mississippi town that left six dead - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxObmN0dVk4R25VbWhlTFVCTktUSm5vQ2xLSVVIZVBWRmUwZHlqcXZMNFZyQWZnandlQlIzTnB1V0NsQXRUSkxVT2h6SlBQMHNISDRNZzYzb1pfZW1kX2V3Vl9nejRyYzhWay1CbGVXWnJ1MW92dlhNSWpOUnk0SmtzTThwMDFEWlVJVENF?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
