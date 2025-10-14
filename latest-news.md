@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 20:56:36（北京时间）**
+🕒 更新时间：**2025年10月14日 21:01:26（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Israel kills several Palestinians in Gaza strikes - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5lbTloSGFMT0tWZDVFZjRxaWM5bzM5OXJ2MUFCZmJxWlllbGc4WlRPbGR6M291TjkxSEVodThRRm9NN0VpNW85R1hmR0tvT1NTdlpQRjc3RnBRMGlWQVlEWUNZZ3lMRjM0YWlHWE55LWQ?oc=5) |
 | Evacuation warnings issued for Palisades, Altadena as wintry storm barrels into California - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQQURxSE14cDZJdXJIbVdYeE9EN3ZpWFlTRmZVN1VkWGNNdDdydkN0QlNyRnh4emF5eTJZQjJfeVVhdTdVU0NWY1paU2dXSHVXajlWaHNNZVFnWDhPeWJ2d2xDeEVGclFfM3BLUE43a3QtdGp0LS1qa041UjNZM3dRQzVyWTVuU3dvVVJocWE0RmtIWHBqZ3l1RWVBcjloLW8xcUJr?oc=5) |
 | 1 dead, 2 missing after severe Alaska flooding Coast Guard official says left "absolute devastation" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPWElyNFY3MXQtZUx6cTFWZ2VER3dRM2R6WlJhLWJ5WWNLMFZxU05fbkNVeHFQZzMxVUJ0X2dNODRFNGx6cHRhQkRXQkV1Q3BzWXdXeGlfU0VZMVQtcWtQdzRoVmhpNmlJenoyLUhDdlAza1hnQU1pbmZidkdwY0lMY0RiZEdZNF9RNlZKRWlFblJyWFcxb0hWN3pwLWtmQ3PSAaQBQVVfeXFMTVcyRmdCa1hkaTZNV21aM3Q0MmFWSW4wM2IxbHVXcmhRT1EtSGw3VTdEWmZOc1dJQTdnMl9IVUpzWlYxQXk3YzJ5S2hVWGF1S1o0TnRydE8ybmdWWl9DSm1kXzdKbnBqcm51VGtnVTREVVB0TFkwNlp0UDV3cUlxdzlKLXc4ZVh1VmlUaC1mV0dxdnROdm9YdVd4c09oRE1uWUFkU0Y?oc=5) |
+| 4 People Arrested in Deadly Mississippi Shooting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1wT25VVEhHSzY5c1E3ZUhkMGNtdHJJNW9OTEdzOUpqM1RRcXN2ekZvZGF0ZkNHcG5iYTFxY0trMk5ERFRqcTZ5OEFYVDJockQ2eWhObDBiVUZ1bnZXcHdlNzcwRzI5MUN2TmN3Tm0ybnhUUlBld0dMQndvaw?oc=5) |
 | Capitol agenda: The Senate stalls, ACA buzz builds - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNV29PM1RZd0g3YkN0NE1FNHhkOEJNeTl4Y1NjeVliV3AzZnRxZmpZYXhUQ0FHSEhEdFBTdWo0bVQ2WXFOQ1Rzb1pZc2FPaEhVV0ZmcFVnZS1YUXhqNmVGcGNmc0NwbFdGU3pDRFVhVGJRdHVvQXdTU0lNek9iNF9ZalFOcVVBZnBiUVJqOXprZFJrTWdxbkJ4cnZ4bHNFc1BVN3lqRU1rdThTUGlTQzF4bXpB?oc=5) |
 | North Carolina Republicans heed Trump’s call to redraw congressional map - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPWWxwbmpGSWZ6M2txd19CNl8yUFdLMjRhMi1TUFpPTThBNUZBdEE3S0xBNlduRThpY0lYY19xUWlsNXBueGZ3S0p5a0dQcm1SNE4zZTZ0RVJoRlY5cjNhZm5LZlRBcGdQMFpZeW50aEYycXVPdXc2M2ZVbThoaHpDTXRuWFpueF9mVXMxSWdpYmVabkVV?oc=5) |
-| Gov. Janet Mills of Maine to Run for Senate, Aiming at Senator Susan Collins - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOcmNGU281Qm01dTlYdHdfRGxxYnpod3BBMXZaRmF2YzR2ZmpfRGRpd3UyVnVwb2tHcU1VU1FGT0RnRFlvNEpNRGhvMzdUa09SNzhraTBnS0x2Z0xwNExnbDdyOElmaDNvZGx2Wl94VHUwMkJZZTlEd2lYQzB6MTd3Um1scDlsZ3VGeXVFNmZuN0F1OTM1SEpvMGIxWQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
