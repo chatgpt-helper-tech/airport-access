@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 14:00:19（北京时间）**
+🕒 更新时间：**2025年10月14日 14:09:00（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Israeli hostages and Palestinian detainees freed as Trump hails 'historic dawn' in Middle East | [阅读全文](https://www.bbc.com/news/articles/c740jx07vz0o?at_medium=RSS&at_campaign=rss) |
-| Firms advised to put plans on paper in case of cyber-attack | [阅读全文](https://www.bbc.com/news/articles/ced61xv967lo?at_medium=RSS&at_campaign=rss) |
+| Cyber attack contingency plans should be put on paper, firms told | [阅读全文](https://www.bbc.com/news/articles/ced61xv967lo?at_medium=RSS&at_campaign=rss) |
 | Tens of thousands of homes fitted with botched eco insulation need fixing, watchdog says | [阅读全文](https://www.bbc.com/news/articles/c3w965gz8zgo?at_medium=RSS&at_campaign=rss) |
 | Chris Mason: SNP are the latest proof that things change quickly in politics | [阅读全文](https://www.bbc.com/news/articles/cdx4lz0789xo?at_medium=RSS&at_campaign=rss) |
 | Authorities identify 16 killed in Tennessee explosives factory blast | [阅读全文](https://www.bbc.com/news/articles/c98n4g3p1x8o?at_medium=RSS&at_campaign=rss) |
