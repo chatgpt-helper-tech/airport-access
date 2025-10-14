@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 04:40:59（北京时间）**
+🕒 更新时间：**2025年10月15日 04:49:00（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Atmospheric river storm slams into Southern California amid evacuation and flood warnings - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxORFM3ZFVnSUh2azMtRGJKWVppSGtuMF80Y09mWGE3Tjd5a3hNeExyejVJRXpHaFB1bmwydVF3bEpJX3FPVTdLeGRNNVNEa3dkSEdwSWNBSkZOcXM3dEloeU1NUEwwcnQxbzZOWDBvVHQ0MG9TZWVrc0NLaW9HMFgxeVNraW0teGRDMC15Ui1oMDcwMkRYaXpaWDJISzc1YTNEWHdINlVoLUgtZUxkT1prdlpyVDM0b2VPSTRwRQ?oc=5) |
 | Supreme Court reopens debate on key part of Voting Rights Act - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOZDU5dzRnRzBsRVJETlJkUnA0UmpfWWV4UlFJWmVYVy02SVVET2tMZzJ4eHp0WGxTUGdzRk9CUVFQMk5TRjl0cUM5VXM3WF9kTGdfUEFPUzlNSGNiekhyS0JjbG5aSTFDRHZZN1FMSXlUcXhZdGEwWVZUcHBwTUM5LW9JNks2WTRrQUIxdkJPb0F4OVRjbmZmUUxDSQ?oc=5) |
 | Supreme Court rejects Alex Jones' appeal of $1.4 billion defamation judgment in Sandy Hook case - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPS01CLXRSZ1ZacVloXy1seTV5S3JoamhXc1J3dUJhTDRiLVVnRWxLblpSWmdrYlVGVEloc0VMTmVtZnF6M29LekEzenJUYjl3bkJlZTlUYUNlWVNFbm5MTzlsOWhyekl6UjE4TXhwQ2JPOHFaUUViZG1GanFnT0c5Zjdn0gGHAUFVX3lxTE93enVtSWMxdlhUZ0pWaUg4SWJ4VXNfTzJ5UDNIalhFaTBlaEhzc096SHd4QmY3TG1jcXlsMy1Pc2owUjN0Z2Qzc3FxdU5scTM1QlN1ajJ5SU5EYkJ0RlRocWtWM3ExUUYtMDJvSjZmY0ZiTm80dENwZmkyNzZKd3F2OWJURTd1bw?oc=5) |
-| Suspect Pleads Guilty in Firebombing of Pennsylvania Governor’s Residence - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNY2l6cXB6Vk93WF9oMzZHVXpVOXBhampZaHFfTVFmMGRRdnFZNXFkNXZURGhDcXJpdmRjOFRiNVJOUUJyU0Rwd2pmem9LUkM1ZXN0N1JTRjFLOURnU2RkQTIxLVBfZjl3aEdfUDl5UlMxaXd4cUtfY244LU4zZDM0RWo1b1Z0NEV1NUViZQ?oc=5) |
+| U.S. Military Kills 6 People in Another Attack on Boat, Trump Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQVmZUcDcwU1lHUV9BUWFVNV9jOHdpc2t5MWRQWEN1bVRLM3JRdDZ0NUluRkFtYXNMOUdGRnB5SXdhM2xDQ1RXaVBBdGhkUThoY0JUNFphSkZoU0RKczVnOHN5RmxyTGI3TkpyUURRbG1hUkdFVUQyU2dJbkQ0OTcxMg?oc=5) |
+| Man pleads guilty in arson attack on Pennsylvania Gov. Josh Shapiro's residence - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPYlV4dWc3cjJkN1Eza2gxM2FBRVdkZ2xCc3R0a0VwMy0zT21zSE1haGdEU05qTXpkT3hYczFaRkVmZTIzYkh0MlRiZDNJRzVxS1cwb0hEQ2lqMzcwUU5LYkpEZTkwOU1yS3p3bTVOaXA3aWNxM0tvekd2SkxIVVVJb1N2cnB4dFJHZjRKVnpkLU9PbHdOTklVY2ttX2JmNGkteEtBMTNUaEtwU0lBNkIzWndhONIBVkFVX3lxTFBYNURoak14UThiS2NUS1NEX1VLNk1tRzcyREF1bF9EalA4bGw3SUVZS0dHYlFUcVV4Y0pnV2s5YWNOQUdIdllOdFFXNk8xakJ4UDE2ZWdR?oc=5) |
 | Woman found dead, dozens rescued and over 1,000 displaced after storm devastates Western Alaska - Anchorage Daily News | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxQLVYxZXRuMFoxVnE5bnBWWHB2bjlzck1qcV8zVjJFT0RrYXlDRzNLMGZnZ0FnanBjaGpTa01MX0tuOGNzMjVzSXJURWVCY3dqTzVQZ2tXV0ZkMURNdjZ2VTJzVzFadVBteUVzY21nc2RLcHdrNjVHVlMwQjBFWWx3SjRDV0lMTm4yZy0yR0U4eXFuX3N1QTE1dDVWWlNfNHREVGJUakt2NDBHRnRTd2R4el9YM0UtUjE4R0c4dXB5Z3ZQRl9UVFRpRTZES19NLWNSYXlMSHhBdlY1eEJY?oc=5) |
 | Thanksgiving travel looms as shutdown risk, GOP leaders say - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPa2pNSXNYX1hDc3pERHZKdERBSnJJYlRfTVFQYXVSc25XTGFVN09TSTZURVoyMEcyWXlaTm92ZmdoclN0S0R2dGNvZzV0aGlyYjZHLVZGa0pwaU9KRjdlQ19LYTFxN1JRMDRTYWRTWUl6T1VxWmtOYXc2X2VDdnNScUM2aS11SXQ4Z2pMYXhULUd1Q1U2dnlsdk9ROURkMnQwMDlmYTNoYTBiNGFONGRuU3NrdjNZV0laOHRLQ0lyR0trOTQ?oc=5) |
-| ‘I love Hitler’: Leaked messages expose Young Republicans’ racist chat - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNYV9DUENBdlZlTkRERGJJMnpUdnhBaEcyTWdNTnBFTkVnZkdiQWhKV0lNRDU1dXg2dnh2c2ROMnNVbE1MWWI3U1VfbmlFa29QTXg4OEE1dU5lRENtMzl1LVh1RGlpYlRfMkRaZm5ITHZSclc3ZkZENVZ2cjJ2MUxGMzctalpFMzNtV1IydG5sci1IRzRmY0E?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
