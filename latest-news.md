@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 12:57:16（北京时间）**
+🕒 更新时间：**2025年10月14日 13:00:27（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | How Broadview, a sleepy Chicago suburb, became a hot-spot for ICE immigration protests - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOSlhDLTBPOWdxZFhBT2FtOVYwSE5vWVViWElNN0htZExfMnduTWNNWDhHc1RvY1RZQkN5aTVlTmduWWd4VmtfWm8yNE5QdEw4ZWtZT3dHRGw3WmM2U0MtSlFRald0dHBCcWF3UHBoVmYtcDBYOVd3aldsRnhabEU4SVhOQ3Y4am1xQ1dDam5PSHR4TUU1M01OY0dvd1dHd2Np0gFWQVVfeXFMTUt5LXpQM2tqWE9CaUE2UnJXN0xybXRpcXZqcUlCSVc4U3Z3cGp3a3dGVi1Dd1ZRYnJYZFZlR0dpLUVTTE52SkpoLTBIVUptc1ZyM19MSUE?oc=5) |
 | Small Plane Crashes on Massachusetts Highway, Killing 2 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOb3U2WUswZ3dXOWZCRVVteE9tLVFPMVl1Mm9wWUd0b3dSd1Izc05LbHFockFET0lKUUFvd2ZlbEdJb2hFVnBKdU9wbDhIaDFpeWU4U0l4LU1ON0FFSXJZVWZteTBxQ181d3lrSlNod2Y3cUtBUk4yZzlKUWl0cF9oOG5n?oc=5) |
 | A powerful storm will continue to hit the East Coast through Tuesday - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOSjlOTEFkQ0gxZ0VBdkY3VURINDNUOG9LTWZrM21rYmlPbUZzbjBfUTRSVVVDSk1UU1RuQWdBZ2pBUEhpQVlQZGs3R0k3T1B6dEJqYzQ3RVNWLUM0U3BvVEo4ZTZkR2s3dk5NbUN6UGFOVXBva3ZGX2FidG96dTJxMF92X2RKR2prOTN1UVFVb0VBZw?oc=5) |
-| Officials say storm 'completely devastated' Southwest Alaska communities - Alaska Public Media | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPcVJfeUdydElWcDZfZkxhV2FhV0U2eXdMSjY4OENUQzFjSFE0M0ZadVMwSHBNbTBkUFpiemJ5S1doWXJHSE1sQ1h3ZmtRdkpKZERCTTJDWWUxRXAybnpEcnJhRUxtSlZpMVV3RlFUSHNlTWlJNlE4RXRBdHFobjdEd0lzTnlIb0ZkTzc5WERQRVR6aUpDWjM2RXpnSng5dTJfXzdxM0ZYSlBsd1RUUFdTUV9oVkNxTUVxb3pTQXlKcE8?oc=5) |
 | 16 killed in Tennessee military explosives plant blast identified - AL.com | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQWGNuQlpFRDllRGdWeFpMSHVjTzlfQTJaU29UZmRsTTlJZUs5NlYyMW1ON0ZVdndSS1RfeGw0ZW9QUU1PV25TYzkzb191ZkVILUpIb1dCUGZzN0xjdFFhQ0ZQd1h6N3F6bTJ5OG1ILXhJSGtFVDNUMXJWbGdBTk90clVtR2dlVEd6cDIzUVhSVkF1cy1sSXZ1dlh4eUJnYjZoaXNIetIBuAFBVV95cUxOLW5RNjRCYmZaeTNGX3RacWZ1Zk1LYVlkZExRSENCSzhCb1pldzRmOUQ2RV82RWZueUIwN3B3blVibjBjMFBDNHFTeVJITGxxWndlTnQ0UDc0ZXNjSGlaLXpHQmdWMjJNX3BEcXNfaHVqR3RTenJHZk1SdGk1b3oxSUUzWmI4ekJ5V2pMaXBVWmhrZHI1UGp5SWVPcVkzRXdXa19aSFhyRUNHX1RISlJwR1c5RWFwdkhw?oc=5) |
 | North Carolina Republicans Plan to Redraw Congressional Map to Add a Seat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNSmxIMjdvd0JYNlFBcHZJbTZsYWdqb2JQQkJvS01GTjRJakdjVDJ6UmE3MjJjenR0cmZlNWxadHhENEZPeHU1RkNBb1hDa2NjQWtBbnBZZFBMYWlGb3RscEtkVDJKM2s4V0RQeFc0R2dBeUxmZGRzVnFyU1BjZXdpS19CeTh4YlhMOUw0?oc=5) |
+| 4 arrests made in connection with mass shooting that left 6 dead in Mississippi, FBI says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQYU1mVDA4M2NnckRUSEViZEwtLXhSZFNjcEVwcWdORml3UUNoUHZkVXpUYkxxZnp1QjdiY29FQmxkY3puR2xQVzJoNVotMG91cjcyT2o4OWJsS3c0Z2ZFY3FYNVpBRmkxR2ZoQmRGNnFXNE1sN1AyaUpSQlZxVzZWVGtYSzFWVl9ycVo0VEFNSHFoUFFhZmtiQTNvTlRDcmlSMWZwQWFxVkc3MHBiWHZFYg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
