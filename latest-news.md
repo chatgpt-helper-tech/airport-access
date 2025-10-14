@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 08:41:52（北京时间）**
+🕒 更新时间：**2025年10月14日 08:48:53（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | CDC purge hits 600 workers in key offices despite reversals - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE4xQ21PUEJGV2ZzamczRWhSUnEzTDJfTmFwaXNsc0tSc0RpWEN6eFM3Q2R5dl9vd29oSU9fT2F6Z3FRdFVtMk1wU2FieTg3SGZDd3huWUtMTW10eWlzN01pdG5VUFVPT201VmhadU54UGNqbkM2NUw4?oc=5) |
 | How Broadview, a sleepy Chicago suburb, became a hot-spot for ICE immigration protests - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOSlhDLTBPOWdxZFhBT2FtOVYwSE5vWVViWElNN0htZExfMnduTWNNWDhHc1RvY1RZQkN5aTVlTmduWWd4VmtfWm8yNE5QdEw4ZWtZT3dHRGw3WmM2U0MtSlFRald0dHBCcWF3UHBoVmYtcDBYOVd3aldsRnhabEU4SVhOQ3Y4am1xQ1dDam5PSHR4TUU1M01OY0dvd1dHd2Np0gFWQVVfeXFMTUt5LXpQM2tqWE9CaUE2UnJXN0xybXRpcXZqcUlCSVc4U3Z3cGp3a3dGVi1Dd1ZRYnJYZFZlR0dpLUVTTE52SkpoLTBIVUptc1ZyM19MSUE?oc=5) |
 | Dozens rescued as remnants of typhoon hits Alaska while nor'easter brings flooding to East Coast - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQb1YtdElUNEZRUGdQNld0NVQ2c2NLdEFnMW85Z1NqMjY1XzZVUnpPaHA4bWlkT0FmNFdxTWZmZHp2cnQzZ3AtbmtEZ0JaOUFXVWFpaDBxS3J5NEdQS2RydWN5eGpqbHEzSXc3ejduZm9xT25EN21mTFhwa2tZZGJtTWJIOEhnZUNDYlRDOTVOWVBrYUJoU0hkeVowd3hiVDVqU1ZJRld3?oc=5) |
+| A powerful storm will continue to hit the East Coast through Tuesday - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOSjlOTEFkQ0gxZ0VBdkY3VURINDNUOG9LTWZrM21rYmlPbUZzbjBfUTRSVVVDSk1UU1RuQWdBZ2pBUEhpQVlQZGs3R0k3T1B6dEJqYzQ3RVNWLUM0U3BvVEo4ZTZkR2s3dk5NbUN6UGFOVXBva3ZGX2FidG96dTJxMF92X2RKR2prOTN1UVFVb0VBZw?oc=5) |
 | Authorities identify 16 killed in Tennessee explosives factory blast - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE44RHZhd0tLTGZVRHdOMXgwbm56VnJWTFVjQVF1X0lyZVpHTkpGXy1aTDFlaFZnaVUzeldheXdLYTZnaHhUc2t3M2xNTjA1ZTN1NEdqZXpOdENXdw?oc=5) |
-| Nor'easter forecast shows when rain, wind storm will end in Boston area - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPM3ZlOVpDczRKdXcyMmI1NGVNWFh0R2lMaXZubVNRQXhXRFRsZEloY2E5ZGpNRDJOcDdRSFhST09vbUpCUHdtOHBTNDNRTzVMZlBvM05tUnhBSE9DMHRGVWVRVjE2akg3TFZWaFZSSmJjclloLXdrRGdqNU5ETzVUQQ?oc=5) |
 | North Carolina Republicans announce plans to vote on a new congressional map - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxPYXUzanh2OTYtelN4eFNQSXVhdDJuRHZEV2J6d3RRdUd3YVJaVExCMlctenhmX3R2TlE1aVY5Z2tfQlNNVkVLMko5dUxwdkZDbWo5Y1NBYm9yUzVrQW5tWkRQZmZkZlNuZ2pPYmVHOWdrRnJrYmtVdk9LSm1qaWhoSmhISWFpT0g5UVNoMVh3dGRwNndkcy0wZ3VEdzBEWkFWc2hlZERjTXJITTdwN2hGa01Lb3JhcnpCRmtsRnBjMNIBVkFVX3lxTE1yNnRmaG1FcEtteTl3OVdsczVMcjIxMGZWVW9aU0t2ZEJQQkhQUWJtM3ZkclM3aDk5Uy1GcHg5OFM3Z3VJZU1IY2w5a29zSVpKYTY5NzBB?oc=5) |
 | Beutner launches bid for L.A. mayor, vowing to fight ‘injustices’ under Trump - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi2wFBVV95cUxPZHRkWVJpMVlvZkl4SG9YaDgyRVdzSG5aOWVYSW1PS09DM0lyaTd2cUpwZG9mTjVuUy1INzNIeU1aN254M0VpOW1WUkJPR0ItNmlGYXFaV0g5TGVQcFFXbFg3SkFjdF9DcHhGakY3cGRRdmplZE0yWHV3cVF1dVdoUUc2OHA3SWZodldIdmprQ3l2QjdVX290ajNiWlBOaWZTVk4zMm1pSEtpazNubEpJR1Q4Uk1qMzBQOXhDUzNpdVFGSjgxd3pnclZZNjY3NHRCdVhyM2Q2S1lBTjQ?oc=5) |
 
