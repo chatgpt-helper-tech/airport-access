@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 17:56:33（北京时间）**
+🕒 更新时间：**2025年10月14日 18:00:49（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Ex-referee David Coote admits child image offence | [阅读全文](https://www.bbc.com/news/articles/cx20negxx11o?at_medium=RSS&at_campaign=rss) |
+| Ex-Premier League referee David Coote admits making indecent image of child | [阅读全文](https://www.bbc.com/news/articles/cx20negxx11o?at_medium=RSS&at_campaign=rss) |
 | Cyber attack contingency plans should be put on paper, firms told | [阅读全文](https://www.bbc.com/news/articles/ced61xv967lo?at_medium=RSS&at_campaign=rss) |
 | Targeted prostate cancer screening could save countless lives, says Rishi Sunak | [阅读全文](https://www.bbc.com/news/articles/cwykxqerk12o?at_medium=RSS&at_campaign=rss) |
 | Tens of thousands of homes insulated under government schemes need repairs, watchdog says | [阅读全文](https://www.bbc.com/news/articles/c3w965gz8zgo?at_medium=RSS&at_campaign=rss) |
