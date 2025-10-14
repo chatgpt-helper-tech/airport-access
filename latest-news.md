@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 15:57:06（北京时间）**
+🕒 更新时间：**2025年10月14日 16:01:13（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | ‘Locked up for 24 years’: release of Palestinian prisoners and detainees sparks joy and sorrow - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOVE5EX0k0aDRlUHJpeE1mS2pRYjlfaHh2U1ZIczc3bENOaGNzZ2Jpb1ItQl9zMmVkLWtFaGFyQnRFMEYzN3ZJaDY5QURQUzJRM2M5X1FKRm9rQkdUY1hYTk1QdF95TmxDbzJJbUFOd3dVeWY0UlFSb3RnM3VkS2ZHOVNrbGpmQQ?oc=5) |
 | North Carolina Republicans heed Trump’s call to redraw congressional map - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPWWxwbmpGSWZ6M2txd19CNl8yUFdLMjRhMi1TUFpPTThBNUZBdEE3S0xBNlduRThpY0lYY19xUWlsNXBueGZ3S0p5a0dQcm1SNE4zZTZ0RVJoRlY5cjNhZm5LZlRBcGdQMFpZeW50aEYycXVPdXc2M2ZVbThoaHpDTXRuWFpueF9mVXMxSWdpYmVabkVV?oc=5) |
 | 4 arrests made in connection with Mississippi mass shooting that left 6 dead, FBI says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1GLVJQR3ZBN3JISjBnSGRXX0hTQUwwRUYtSU1EUHltdXZrdDI5c2ZSaHFRdFBxMThfdldYWHFNQ1k0QTVaeDBTLU00U0twdDgzblB0Y2xZLTRyaWlmMWlfazNSdkhNelMyQXYtcGIxUm5SUmtiQlQ5Z9IBfkFVX3lxTFBwMUFJT0R2Wl9tVjJTaFp3RlpoNE01MklONk5RaWdQenRFNEJGYnJJRlIySkg3WElTdXY5SG0zdXMtbUNmSDI5R0k3ZXRCRkREa08zZ3lqcGhiVHRQbFBHOWRoOWpUWVVaVUJVVlRzbi14Y2x0dHRNakt6WlZRdw?oc=5) |
-| US news outlets refuse to sign new Pentagon rules to report only official information - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPNUxqemtBdTFZMzMteE9CVGhRcXFQZmZLY1ZxODVOOUdVampKMXk3N19MUXExbUZvcjFnc0RxdW5ncnlacUo0M0pET0FTM0NqX21aUnc2ellGT0lnenhqQldtVFlSMXYzN1hKcENQYnZrdTJLMmptc2tsX1UtU1cyV2FSYW5oQmpYUnhJ?oc=5) |
-| Cyclists in the buff and in costume mix with wet weather at Portland ICE protest: Get caught up - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMi2wFBVV95cUxQQjlaV19rMGFvVVhmRmwtZVhHd2JRNEQwTFBuWTI2ZEFYLW8tZ3JCcW4yb3hNQmhJQjlZSkR3Yzc2bjE5U3d0TmpRNmdUVzloVkwxUzRUQnVubjQ1SFo5am1hbHdRanU1LVdFaGRONVlkWUxHZWViY1NrYTB1Ty1PM2IyR3FWdEs2dHZ6dk5PMHV2MFowbmYzQ3d2Rm1IcDNwdXoybmRKQlFyMUF4WENxT1lFbnhCVnFuWjZpWUlXSkl2ekpGT0k4Y3hQZ0F2aUxXUF9ic0N0TnFBQTjSAe8BQVVfeXFMUGpjX0RybEptQ1lpVFRSbnB5NzNCVnNkUUk2cDJPN1BWbnJkOHIyZFRORTlMd1g2V2tmYVJLaXF4Sk5kVkVsSW5TUFlCN2JyS0w0YXVuNENoSkcyV24tcFFyamF0akpZbmVyZWo0aThPb2M5bHFTU2ttUE44VkJCVUZ2dmZWekMwc3JjY3pNdmJtN1dCRG5LYlNURllacHRrbW5lVTFkazFxSzZkVlVXcDR3LTJiSlZiYzIzTGhnMXlvVGJrX0lGWkItZkYwMzRLT2hNWmg1cHRpSXd5RFczYWpEN2cxQkNNVmsxU2pWemc?oc=5) |
+| Latest Updates: Portlanders rally for, against ICE after ‘Emergency Naked Bike Ride’ - KPTV | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPTzZxRklWYzBSMmladkg2M2ZQeTdnT3RoWjZtYkduYUlIb0paeElKZHlhYTlLMm5DSEgxQXBWTXBWR09VeEk0eFFsSXRkYzFnNmFqWC1qbl9STHNWREtVM1p6bHlkZjdDTFpTcVQ2VmdHU3B5ZE1fQjJRWGl4OGViUjFMRDJsQ3phZ3Y2UGFSWmliRlJ3TURwRXE5R3lPdXFpYWlGbVhWWVFGSmZtLXc?oc=5) |
+| New York Times, AP, Newsmax among news outlets who say they won't sign new Pentagon rules - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOTHBRajJMXzhONk5TSXV2ck1FamF1a0lzaEtCVFZwYXFWbzlqZHlGdGs4ZzN2ZXlZYWNwVk8xVG1hZkpWYXZwcHRJS09nV1dac21NbWQyWk9rS0tubGd4QW1zLWVWc0RLRmsxY2kxYUFrc1JGZDNnbTE4ZkFXSU5qUFh3S1pOVWhhelgtSjJiMUZ3MTVXTWFVdUVRQ3VRMDlkSTg5MjhMbkVVUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
