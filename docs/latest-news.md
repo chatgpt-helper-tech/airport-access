@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 12:48:19（北京时间）**
+🕒 更新时间：**2025年10月14日 12:57:16（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | How Broadview, a sleepy Chicago suburb, became a hot-spot for ICE immigration protests - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOSlhDLTBPOWdxZFhBT2FtOVYwSE5vWVViWElNN0htZExfMnduTWNNWDhHc1RvY1RZQkN5aTVlTmduWWd4VmtfWm8yNE5QdEw4ZWtZT3dHRGw3WmM2U0MtSlFRald0dHBCcWF3UHBoVmYtcDBYOVd3aldsRnhabEU4SVhOQ3Y4am1xQ1dDam5PSHR4TUU1M01OY0dvd1dHd2Np0gFWQVVfeXFMTUt5LXpQM2tqWE9CaUE2UnJXN0xybXRpcXZqcUlCSVc4U3Z3cGp3a3dGVi1Dd1ZRYnJYZFZlR0dpLUVTTE52SkpoLTBIVUptc1ZyM19MSUE?oc=5) |
 | Small Plane Crashes on Massachusetts Highway, Killing 2 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOb3U2WUswZ3dXOWZCRVVteE9tLVFPMVl1Mm9wWUd0b3dSd1Izc05LbHFockFET0lKUUFvd2ZlbEdJb2hFVnBKdU9wbDhIaDFpeWU4U0l4LU1ON0FFSXJZVWZteTBxQ181d3lrSlNod2Y3cUtBUk4yZzlKUWl0cF9oOG5n?oc=5) |
 | A powerful storm will continue to hit the East Coast through Tuesday - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOSjlOTEFkQ0gxZ0VBdkY3VURINDNUOG9LTWZrM21rYmlPbUZzbjBfUTRSVVVDSk1UU1RuQWdBZ2pBUEhpQVlQZGs3R0k3T1B6dEJqYzQ3RVNWLUM0U3BvVEo4ZTZkR2s3dk5NbUN6UGFOVXBva3ZGX2FidG96dTJxMF92X2RKR2prOTN1UVFVb0VBZw?oc=5) |
+| Officials say storm 'completely devastated' Southwest Alaska communities - Alaska Public Media | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPcVJfeUdydElWcDZfZkxhV2FhV0U2eXdMSjY4OENUQzFjSFE0M0ZadVMwSHBNbTBkUFpiemJ5S1doWXJHSE1sQ1h3ZmtRdkpKZERCTTJDWWUxRXAybnpEcnJhRUxtSlZpMVV3RlFUSHNlTWlJNlE4RXRBdHFobjdEd0lzTnlIb0ZkTzc5WERQRVR6aUpDWjM2RXpnSng5dTJfXzdxM0ZYSlBsd1RUUFdTUV9oVkNxTUVxb3pTQXlKcE8?oc=5) |
 | 16 killed in Tennessee military explosives plant blast identified - AL.com | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQWGNuQlpFRDllRGdWeFpMSHVjTzlfQTJaU29UZmRsTTlJZUs5NlYyMW1ON0ZVdndSS1RfeGw0ZW9QUU1PV25TYzkzb191ZkVILUpIb1dCUGZzN0xjdFFhQ0ZQd1h6N3F6bTJ5OG1ILXhJSGtFVDNUMXJWbGdBTk90clVtR2dlVEd6cDIzUVhSVkF1cy1sSXZ1dlh4eUJnYjZoaXNIetIBuAFBVV95cUxOLW5RNjRCYmZaeTNGX3RacWZ1Zk1LYVlkZExRSENCSzhCb1pldzRmOUQ2RV82RWZueUIwN3B3blVibjBjMFBDNHFTeVJITGxxWndlTnQ0UDc0ZXNjSGlaLXpHQmdWMjJNX3BEcXNfaHVqR3RTenJHZk1SdGk1b3oxSUUzWmI4ekJ5V2pMaXBVWmhrZHI1UGp5SWVPcVkzRXdXa19aSFhyRUNHX1RISlJwR1c5RWFwdkhw?oc=5) |
-| Dozens rescued as remnants of typhoon hits Alaska while nor'easter brings flooding to East Coast - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxQV1NBWnh0NVdWa2hiNlNnZ01vM29mVFdPSXMxSHVCMEFDVlc1Y1M1WnNsd25mXzhMWkY5Ql9BY293N01Mb1JoNjdfZ0Fua0hZWHdvR2R5ZmNKVjFaRzVEYlJDNnlGazFiVnB6OU14aDBUb0RNNElOdzE1blJVX3pUcXQxOFdodVAwcHpZcUtQbnF4bWRWa3VQcGtOUUdHc2pQV0s4d0ZTTkNQM3ljYUVPUWJET1hLUTNJRzNldjFqelBQWUpqTEpsR0Z2SQ?oc=5) |
 | North Carolina Republicans Plan to Redraw Congressional Map to Add a Seat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNSmxIMjdvd0JYNlFBcHZJbTZsYWdqb2JQQkJvS01GTjRJakdjVDJ6UmE3MjJjenR0cmZlNWxadHhENEZPeHU1RkNBb1hDa2NjQWtBbnBZZFBMYWlGb3RscEtkVDJKM2s4V0RQeFc0R2dBeUxmZGRzVnFyU1BjZXdpS19CeTh4YlhMOUw0?oc=5) |
 
 ---
