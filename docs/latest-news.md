@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 23:32:51（北京时间）**
+🕒 更新时间：**2025年10月14日 23:41:05（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Supreme Court rebuffs Alex Jones’ effort to overturn $1.4 billion Sandy Hook judgment - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNUFYwcDAyTWI1ci1idVdEVGp1QkNsbHlxT3NjOWNBSG5SMHBvYmdiTEVySVpERExEXzIwWEFFUzQ2RWFzLWNBVkd1S1hTNjhlMHJnM3gzNGMtZGRYT0tIVDZ1eEpCSW9WeWRGVjNTa3E0dkhtekgyenBmbEtDQWpzRg?oc=5) |
 | Capitol agenda: The Senate stalls, ACA buzz builds - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNV29PM1RZd0g3YkN0NE1FNHhkOEJNeTl4Y1NjeVliV3AzZnRxZmpZYXhUQ0FHSEhEdFBTdWo0bVQ2WXFOQ1Rzb1pZc2FPaEhVV0ZmcFVnZS1YUXhqNmVGcGNmc0NwbFdGU3pDRFVhVGJRdHVvQXdTU0lNek9iNF9ZalFOcVVBZnBiUVJqOXprZFJrTWdxbkJ4cnZ4bHNFc1BVN3lqRU1rdThTUGlTQzF4bXpB?oc=5) |
 | News outlets broadly reject Pentagon's new press rules - Axios | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQSTljWnBLV3c2aVFYNlJQVVhZZTVuMThsNWxrdXBiUS1xcjRmYS1ORm93Z2VZVUF5RzRYaWlidGdqV2RfdnBZRTl3N1gxclkzcXJyaVZfZEI1M0xjc3dQaDNfa0Z1OWVkVFJ2a2hnMDllSHB0QXM2UmVWMlV0TnV6OVlNbDJ5VUVYaEpZcDNhVmpIQTEyOFE?oc=5) |
-| U.S. Starts Charging Chinese Ships to Dock at Its Ports - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBZNGt4QzFiRHpXOTFrN2hneFV2NGFmYU1lNVF5NG00aG4zOWxCcFVFZHVKTmp6QkFvbl9OVWxkS1MxNXhLb1RGNjEwQVk4OWNRbkpwQ1RmQjZNWWc5QzB5LXdDeE8wdy1jM0xpZlV0ZlN3Y1V3SGFJRW5hYXg?oc=5) |
+| Man pleads guilty to arson attack at Pennsylvania Gov. Shapiro's home, gets 25 to 50 years - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOZ3hMYjFrR3RrN0dnOGt5WV9XUk51VTRDdGVtcHVwT1oycWpXUVhMc2hjdTJ2a1hvVDF5eVVCdFdmQUI2RHdtSlVScUt6VkItTm41dldwX1pLRjFIcGduaW1RS3NvdGtpR1dQYmNqSWg1RHFfc0VPeUdGTExrUldMaC1tRUlyd2NKVGZjUHJLT2RXRWtFSG5nS09UWlLSAaIBQVVfeXFMTjlNMVhZa2xJQzhwdjR5QlU4OHdtckJLVExnY0cweDlwMWs5RnFwUHY5TFVMZlUxYXd3R0F2Wi00MUhreDlMeWhzUDRrWXJ6dHBabG9pM3g3eGZzQVk5RTJaOGFNU210azZGYnl4cjRxUE5TektsTm5EQVFEbHo5dGkxYzNZdTRWR2tGNmZvMWJtRUk1VDN4Nk54bWJCYm9Xb0dn?oc=5) |
 | 1 dead, 2 missing after severe Alaska flooding Coast Guard official says left "absolute devastation" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPWElyNFY3MXQtZUx6cTFWZ2VER3dRM2R6WlJhLWJ5WWNLMFZxU05fbkNVeHFQZzMxVUJ0X2dNODRFNGx6cHRhQkRXQkV1Q3BzWXdXeGlfU0VZMVQtcWtQdzRoVmhpNmlJenoyLUhDdlAza1hnQU1pbmZidkdwY0lMY0RiZEdZNF9RNlZKRWlFblJyWFcxb0hWN3pwLWtmQ3PSAaQBQVVfeXFMTVcyRmdCa1hkaTZNV21aM3Q0MmFWSW4wM2IxbHVXcmhRT1EtSGw3VTdEWmZOc1dJQTdnMl9IVUpzWlYxQXk3YzJ5S2hVWGF1S1o0TnRydE8ybmdWWl9DSm1kXzdKbnBqcm51VGtnVTREVVB0TFkwNlp0UDV3cUlxdzlKLXc4ZVh1VmlUaC1mV0dxdnROdm9YdVd4c09oRE1uWUFkU0Y?oc=5) |
-| Pennsylvania man pleads guilty in arson attack at governor’s mansion while Shapiro’s family slept - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQSTZqaGdxYzliNndrTWQyUEptSG5Odk1iLU1sNFM0ZlJDRDIxU01PYnpKY3R4RXNtRVhQZVc0VTR3VzZpXzhCWHVhOHJyWWRQOGItMGFZSVE0WEZWRHItdHNFNW93cHg1VUExcWFrSDYwR3ROWEVyS3NWU2dOeUZpd1FYeWdETG1UU2NDdlNuTThNTzFyRmwtSzBjbGVDUm9XT1lkS1VaV2EzclE?oc=5) |
 | Four people arrested after shooting in Mississippi town that left six dead - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxObmN0dVk4R25VbWhlTFVCTktUSm5vQ2xLSVVIZVBWRmUwZHlqcXZMNFZyQWZnandlQlIzTnB1V0NsQXRUSkxVT2h6SlBQMHNISDRNZzYzb1pfZW1kX2V3Vl9nejRyYzhWay1CbGVXWnJ1MW92dlhNSWpOUnk0SmtzTThwMDFEWlVJVENF?oc=5) |
-| Maine Gov. Janet Mills enters crowded Democratic race to unseat Susan Collins - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPdHRySHZTYXlaZGxMMkMwbHZPY0IxUWNSMEphVkc2MnBOOWtpT3c3QjM3R2ZjaVk3TkVmYjFpNHc0QXdvX05pSFRhekNkSmpuLXNtSTJPbkR5aFVpZkJvVkhrcmgyWnNBSUh3VXBtNXNLZUpYWEZPWWhRNEFMUWY3RXZRczVVTlFWQnFZ?oc=5) |
+| Maine Gov. Mills plans to confront President Trump again with her campaign for the US Senate - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNUFdIN2Y3STNWYWw4OU5IYV9SRWFIVUNFM1NCOUZ5MzNCUjc5c2VSNmN1MXhBZjhwQ3VOMmdObDQxU3hzUXg3N0J1cW9rOVJuX1RvQjlnV1M5ejdrODdmWXFEcHdZMFhwMXJwTVFmMjF5MlRMdlVQQWgtcFBSckZGcTZSS2dFa1Zuc2lSRkNqNUNXMmY5cnE0?oc=5) |
+| No fly zone: Airports ground Kristi Noem's government shutdown video - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPMVdjZU1sR0ZSbG4tTzRMa2hmMlBqcGlLWnZid2dfSVVudVBleVFJY3BvOXJjSi1mZ0dSOTV2UDBBRmlfUVRha2J6Z0NWOHVKYlB6R0FwYmY2UmswSkRrcms3b0ZzWXEwYVNzaXc5cmVUUkQzN2NkMXhiUUZIWTVwSWJn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
