@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 17:09:47（北京时间）**
+🕒 更新时间：**2025年10月14日 17:16:24（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Hundreds of CDC layoffs reversed, but biodefense preparedness staff hit - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOVDllS0RaY3lUY2JSeHF6MS1yLUlxd0VjajQ0VVY0ZDZKUFN0SWZiQnNMajdsWnhOdHViNVZLVDA0X08zeDEyQWc1VTBMd01xa1RzY1ItUjkzeGNGUG4yeGhPX2dta0w2M09kMFZ0UHpwUXNLRzJKc29felJzbUE5NkNUNjdfMUVfaGc?oc=5) |
 | Photos: Powerful storm pummels U.S. East Coast - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOR3JOMXpYQ1dTVGlmdmR1aGRVNWxscTI2Vnd2aldhZ2VEcE1Sb1A5VFBZdHJQM3VNZENSdG11WEItY2hLbm5JLUdMNWtRZlI2OWVCcEEzZURWaWh4MXZlLU1OVDBqei1mazdWbXl4ZEp3Y2FWcXpQNlh1NmtGUXlHTEwwTXdzcl9MUnh0Mw?oc=5) |
 | Trump plan to invite Netanyahu to Gaza summit aborted after Erdoğan warning - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNdjg5VTYxZkdUQmE0aHhmdDJ5bWhZbF9sT2VvSkxkNkdvSDhMNzhfejZLbkp2QVExMUZfWV9NVVhZV3pNbWZpVF9JZUZqbi1LeHhpM3FaX2czc2hZN25JN0VXX1J4UXJPUXlfUXhYRFNwcDBucHFBcTQwNHhoRmplaGFCYldWc3V3N0VYUXYtSWdVaGhOd1hXVnh2Zy15SzQ5V3N4WGEwUQ?oc=5) |
+| Woman found dead, dozens rescued and over 1,000 displaced after storm devastates Western Alaska - Anchorage Daily News | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxQLVYxZXRuMFoxVnE5bnBWWHB2bjlzck1qcV8zVjJFT0RrYXlDRzNLMGZnZ0FnanBjaGpTa01MX0tuOGNzMjVzSXJURWVCY3dqTzVQZ2tXV0ZkMURNdjZ2VTJzVzFadVBteUVzY21nc2RLcHdrNjVHVlMwQjBFWWx3SjRDV0lMTm4yZy0yR0U4eXFuX3N1QTE1dDVWWlNfNHREVGJUakt2NDBHRnRTd2R4el9YM0UtUjE4R0c4dXB5Z3ZQRl9UVFRpRTZES19NLWNSYXlMSHhBdlY1eEJY?oc=5) |
 | North Carolina Republicans heed Trump’s call to redraw congressional map - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPWWxwbmpGSWZ6M2txd19CNl8yUFdLMjRhMi1TUFpPTThBNUZBdEE3S0xBNlduRThpY0lYY19xUWlsNXBueGZ3S0p5a0dQcm1SNE4zZTZ0RVJoRlY5cjNhZm5LZlRBcGdQMFpZeW50aEYycXVPdXc2M2ZVbThoaHpDTXRuWFpueF9mVXMxSWdpYmVabkVV?oc=5) |
 | 4 arrests made in connection with Mississippi mass shooting that left 6 dead, FBI says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1GLVJQR3ZBN3JISjBnSGRXX0hTQUwwRUYtSU1EUHltdXZrdDI5c2ZSaHFRdFBxMThfdldYWHFNQ1k0QTVaeDBTLU00U0twdDgzblB0Y2xZLTRyaWlmMWlfazNSdkhNelMyQXYtcGIxUm5SUmtiQlQ5Z9IBfkFVX3lxTFBwMUFJT0R2Wl9tVjJTaFp3RlpoNE01MklONk5RaWdQenRFNEJGYnJJRlIySkg3WElTdXY5SG0zdXMtbUNmSDI5R0k3ZXRCRkREa08zZ3lqcGhiVHRQbFBHOWRoOWpUWVVaVUJVVlRzbi14Y2x0dHRNakt6WlZRdw?oc=5) |
 | Daily Show star spotted at Portland’s ‘emergency’ Naked Bike Ride Sunday - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxORkVrQ2dmV1ZCRWRYWjhvZFluMmR1YkE1dmo0Vk5Qd0RicXRPdVhpdnAzYnpJTWMtTlUtVXFpZTMtaTh3a0N1TmtzYy03YkNZTnZ1NWtjU1lOSnBULVJuSnZlNlcwTWZvcnk4Qml6bi1iZXdGSG5DUElQNURGdFR4Y0NSdnAyOVFqcjVlU3hoZE9SMHBJX2xmaUhpNEhpam9waWdmOERiUjFEamZ0OU03MjE5LW_SAcgBQVVfeXFMUHhCMXpjR0JJVVRRZlluZWxGUVRILXZnZHQ0eGtDQWprLU11TGZmX3BnU1VDYW82Rm56dEtpZW9xRUYxeS1EenNUd2w2OEZTeV80Tk1FTEJ6X0RneVNqN3FGZjdkUWdGOEZqekRiSUp0VGUteElfcjYxOEJIdVd6U3pndHV3eVFDY2RNU2RYbDRTYno4VnlENFdQTDlYaFFGLTJMLV9Tczd6T2xzMjJjQlAzNl96VTlQVkprcV9oaldHSFZzak85RHQ?oc=5) |
-| US news outlets refuse to sign new Pentagon rules to report only official information - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPNUxqemtBdTFZMzMteE9CVGhRcXFQZmZLY1ZxODVOOUdVampKMXk3N19MUXExbUZvcjFnc0RxdW5ncnlacUo0M0pET0FTM0NqX21aUnc2ellGT0lnenhqQldtVFlSMXYzN1hKcENQYnZrdTJLMmptc2tsX1UtU1cyV2FSYW5oQmpYUnhJ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
