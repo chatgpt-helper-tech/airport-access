@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 20:25:19（北京时间）**
+🕒 更新时间：**2025年10月14日 20:32:41（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | 1 dead, 2 missing after severe Alaska flooding Coast Guard official says left "absolute devastation" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPWElyNFY3MXQtZUx6cTFWZ2VER3dRM2R6WlJhLWJ5WWNLMFZxU05fbkNVeHFQZzMxVUJ0X2dNODRFNGx6cHRhQkRXQkV1Q3BzWXdXeGlfU0VZMVQtcWtQdzRoVmhpNmlJenoyLUhDdlAza1hnQU1pbmZidkdwY0lMY0RiZEdZNF9RNlZKRWlFblJyWFcxb0hWN3pwLWtmQ3PSAaQBQVVfeXFMTVcyRmdCa1hkaTZNV21aM3Q0MmFWSW4wM2IxbHVXcmhRT1EtSGw3VTdEWmZOc1dJQTdnMl9IVUpzWlYxQXk3YzJ5S2hVWGF1S1o0TnRydE8ybmdWWl9DSm1kXzdKbnBqcm51VGtnVTREVVB0TFkwNlp0UDV3cUlxdzlKLXc4ZVh1VmlUaC1mV0dxdnROdm9YdVd4c09oRE1uWUFkU0Y?oc=5) |
 | 4 People Arrested in Deadly Mississippi Shooting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1wT25VVEhHSzY5c1E3ZUhkMGNtdHJJNW9OTEdzOUpqM1RRcXN2ekZvZGF0ZkNHcG5iYTFxY0trMk5ERFRqcTZ5OEFYVDJockQ2eWhObDBiVUZ1bnZXcHdlNzcwRzI5MUN2TmN3Tm0ybnhUUlBld0dMQndvaw?oc=5) |
 | North Carolina Republicans heed Trump’s call to redraw congressional map - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPWWxwbmpGSWZ6M2txd19CNl8yUFdLMjRhMi1TUFpPTThBNUZBdEE3S0xBNlduRThpY0lYY19xUWlsNXBueGZ3S0p5a0dQcm1SNE4zZTZ0RVJoRlY5cjNhZm5LZlRBcGdQMFpZeW50aEYycXVPdXc2M2ZVbThoaHpDTXRuWFpueF9mVXMxSWdpYmVabkVV?oc=5) |
-| Impacts of government shutdown continue, next vote scheduled for Tuesday night - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQaTg2VEt2MHJYWXQ5QzdDTXRGTTNpcGwtZ0NybVlGaGRoaUdhcnZic0ZQTVlCZVlWWWNSdTdPekhJamhtM0E0MmsyQ0k0UkdseUFZNmI4cFRTRmpXQ2xTejd6V0xTWW44R1JOa0lxSG0xdVdHamdFdFF5SDRZUmV5R1ZOV0Z3VU1JZ0d0X3RFbTl3VGhFQ2hIaUo5YmZzLU5ldzhMSFB6STRBM0xjbXk40gG0AUFVX3lxTE05REtycmpLTzdrTHRlVkN2Y2VreDA3UnRCcnZnR2RjVmVoQU1ZYmdfcDBJMkNFdWYyMndoSFktaWNublNjS1ZKV21yaXpSRjBNTGdsUnFYX0x3TTV0MGxIR0NaVDI3dGNDaTNfXzA3dGgxbTByYUllOU5IMnFfc2VxZlFMdUpJWWo3WUdzcU52YXc1em9BcHNGMnRNQUlVeFVZZTJaNUV4cVVVcWRFUG5MVGZCNQ?oc=5) |
+| What Republicans could offer Democrats on health care after the shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQMmlPbVdsU2dYcTFsRklCY1c0SmdENGpGeFRLMFdTVl9mbWtqRldBVUdXYXBDcWJmMWhpT29WT3NBOVk4eUswVEczM1hEM05aa2h6S0pSU2VXUE5rZnIza04yWmxnQXgweTVNWlJEVDQxZ1dwcEVVRjhHM0U3SjZ4YnVPQ1hsbUFqcW40X0Zwa3BidE5ZUDBnNG0xSFRwdVRWclE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
