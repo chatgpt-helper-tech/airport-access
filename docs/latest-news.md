@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 10:41:28（北京时间）**
+🕒 更新时间：**2025年10月14日 10:49:35（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Names of 16 Tennessee plant explosion victims released as investigators work to identify remains - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5DemsxVUJnY3dOTF9WTmFQbDdDbGN6dEpsWmREVFl1d2VSWTVwcjR0clZ2Um12VFI4QVU1Q3lqbXNsclFmemRTWW9lb0ttUGRKUXdZcEpOcVl2S1VwbGtsSGtZTGdLTU1xRFUxa0lRUHrSAXZBVV95cUxQRjd1LUkwem5UV2oyS1dzVjRlRXd1Qlp4a3VUS2JRZERHal9VRVhPZU1hOVNiWkV5ak1rdHdZS0NVeDE3YjBrbjdJeEdLS19McEJPNTJDYWNoYzU0bDhJVi1JZlpocWlld0w4YTA2OTBMOE5JVlZn?oc=5) |
 | Dozens rescued as remnants of typhoon hits Alaska while nor'easter brings flooding to East Coast - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxQV1NBWnh0NVdWa2hiNlNnZ01vM29mVFdPSXMxSHVCMEFDVlc1Y1M1WnNsd25mXzhMWkY5Ql9BY293N01Mb1JoNjdfZ0Fua0hZWHdvR2R5ZmNKVjFaRzVEYlJDNnlGazFiVnB6OU14aDBUb0RNNElOdzE1blJVX3pUcXQxOFdodVAwcHpZcUtQbnF4bWRWa3VQcGtOUUdHc2pQV0s4d0ZTTkNQM3ljYUVPUWJET1hLUTNJRzNldjFqelBQWUpqTEpsR0Z2SQ?oc=5) |
 | North Carolina Republicans Plan to Redraw Congressional Map to Add a Seat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNSmxIMjdvd0JYNlFBcHZJbTZsYWdqb2JQQkJvS01GTjRJakdjVDJ6UmE3MjJjenR0cmZlNWxadHhENEZPeHU1RkNBb1hDa2NjQWtBbnBZZFBMYWlGb3RscEtkVDJKM2s4V0RQeFc0R2dBeUxmZGRzVnFyU1BjZXdpS19CeTh4YlhMOUw0?oc=5) |
-| 4 arrests made in connection with mass shooting that left 6 dead in Mississippi, FBI says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1WN0NZcVJENGV2TGxxTkRmVFlJZUlnR2ZhcGxHNnZBR3BwOFVXWFV0THp2QjRKeFRRcGN1ZUJYZ055Y3RpaU5ib0RpTEFKNnFvdFRqbW1Ua3l3UEVKNms5OFpOUU01LTc0OTZtVkVCaHpvZXJGajNXUQ?oc=5) |
+| 4 arrests made in connection with mass shooting that left 6 dead in Mississippi, FBI says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQYU1mVDA4M2NnckRUSEViZEwtLXhSZFNjcEVwcWdORml3UUNoUHZkVXpUYkxxZnp1QjdiY29FQmxkY3puR2xQVzJoNVotMG91cjcyT2o4OWJsS3c0Z2ZFY3FYNVpBRmkxR2ZoQmRGNnFXNE1sN1AyaUpSQlZxVzZWVGtYSzFWVl9ycVo0VEFNSHFoUFFhZmtiQTNvTlRDcmlSMWZwQWFxVkc3MHBiWHZFYg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
