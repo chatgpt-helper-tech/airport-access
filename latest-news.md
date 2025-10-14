@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 10:01:57（北京时间）**
+🕒 更新时间：**2025年10月14日 10:09:22（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Hostages freed, prisoners released, as Trump hails ‘golden age’ in Mideast - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxNRlJlT054NFlzUlVaeTdnYmRGc2lJM3pPVzdiYTFxVnlaZ1VFb2FTbGF2eG94SWJPTXc2Tml1RWxIRmRoUlRiRDg1NFBrWmV0WGd6eXZLcFpnNmZNVjJjNGxZQmhSSUNFZHBJU2RxOFJHUjltUTVLOFFTSXBtYmY5MjdTRXhyc1hGUTZNSHlfS1NzWTBZczk2cWp3QVI5Q0ZtWi1qUC1JdjRkb2tUU05UU0VwdktvUklnb0g4dGlFYVBMZkdid0RHSGRUWGc3QTVSUHc?oc=5) |
-| Trump plan to invite Netanyahu to Gaza summit aborted after Erdoğan warning - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNdjg5VTYxZkdUQmE0aHhmdDJ5bWhZbF9sT2VvSkxkNkdvSDhMNzhfejZLbkp2QVExMUZfWV9NVVhZV3pNbWZpVF9JZUZqbi1LeHhpM3FaX2czc2hZN25JN0VXX1J4UXJPUXlfUXhYRFNwcDBucHFBcTQwNHhoRmplaGFCYldWc3V3N0VYUXYtSWdVaGhOd1hXVnh2Zy15SzQ5V3N4WGEwUQ?oc=5) |
+| Jubilation in Israel as hostages returned to families who fought for deal - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPc1FkemRGS0dBZzV2c2hJMzlib0hQanJfRmpYbUM5bVNoT0dYbWNwNllLWnl0YnU5dGp3cHlKLW5lVkdaZjcwNVRxVUxvZHUwWjhaZmhERXprdUVRUS11U1VpZ0NsLW4tWTQxWjhnTzZDUU90Vm9vclB4R3pad2JTUEhIemRMOVVFSDZWRjgwQ1J0UQ?oc=5) |
+| Palestinians celebrate as prisoners are released by Israel under Gaza ceasefire deal - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQNWNRQTBBZWl2cUNTeUlYeEowNngxMWx2V1gxcUFuS3ItaGxaay1aS0lhTFlfLWUyV21YSzdMVUwzcjAySG83N0Ixcm80MEVtb3RnR1BoYXpxRlJRYXNEYzdoN3dka1Z5eHhlZFNuclZWcXRoSVNSS2JDN09Kc0VkdnZB?oc=5) |
 | How Broadview, a sleepy Chicago suburb, became a hot-spot for ICE immigration protests - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOSlhDLTBPOWdxZFhBT2FtOVYwSE5vWVViWElNN0htZExfMnduTWNNWDhHc1RvY1RZQkN5aTVlTmduWWd4VmtfWm8yNE5QdEw4ZWtZT3dHRGw3WmM2U0MtSlFRald0dHBCcWF3UHBoVmYtcDBYOVd3aldsRnhabEU4SVhOQ3Y4am1xQ1dDam5PSHR4TUU1M01OY0dvd1dHd2Np0gFWQVVfeXFMTUt5LXpQM2tqWE9CaUE2UnJXN0xybXRpcXZqcUlCSVc4U3Z3cGp3a3dGVi1Dd1ZRYnJYZFZlR0dpLUVTTE52SkpoLTBIVUptc1ZyM19MSUE?oc=5) |
 | Daily Show star spotted at Portland’s ‘emergency’ Naked Bike Ride Sunday - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxORkVrQ2dmV1ZCRWRYWjhvZFluMmR1YkE1dmo0Vk5Qd0RicXRPdVhpdnAzYnpJTWMtTlUtVXFpZTMtaTh3a0N1TmtzYy03YkNZTnZ1NWtjU1lOSnBULVJuSnZlNlcwTWZvcnk4Qml6bi1iZXdGSG5DUElQNURGdFR4Y0NSdnAyOVFqcjVlU3hoZE9SMHBJX2xmaUhpNEhpam9waWdmOERiUjFEamZ0OU03MjE5LW_SAcgBQVVfeXFMUHhCMXpjR0JJVVRRZlluZWxGUVRILXZnZHQ0eGtDQWprLU11TGZmX3BnU1VDYW82Rm56dEtpZW9xRUYxeS1EenNUd2w2OEZTeV80Tk1FTEJ6X0RneVNqN3FGZjdkUWdGOEZqekRiSUp0VGUteElfcjYxOEJIdVd6U3pndHV3eVFDY2RNU2RYbDRTYno4VnlENFdQTDlYaFFGLTJMLV9Tczd6T2xzMjJjQlAzNl96VTlQVkprcV9oaldHSFZzak85RHQ?oc=5) |
 | CDC purge hits 600 workers in key offices despite reversals - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE4xQ21PUEJGV2ZzamczRWhSUnEzTDJfTmFwaXNsc0tSc0RpWEN6eFM3Q2R5dl9vd29oSU9fT2F6Z3FRdFVtMk1wU2FieTg3SGZDd3huWUtMTW10eWlzN01pdG5VUFVPT201VmhadU54UGNqbkM2NUw4?oc=5) |
