@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 09:01:07（北京时间）**
+🕒 更新时间：**2025年10月14日 09:08:50（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Dozens rescued as remnants of typhoon hits Alaska while nor'easter brings flooding to East Coast - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQb1YtdElUNEZRUGdQNld0NVQ2c2NLdEFnMW85Z1NqMjY1XzZVUnpPaHA4bWlkT0FmNFdxTWZmZHp2cnQzZ3AtbmtEZ0JaOUFXVWFpaDBxS3J5NEdQS2RydWN5eGpqbHEzSXc3ejduZm9xT25EN21mTFhwa2tZZGJtTWJIOEhnZUNDYlRDOTVOWVBrYUJoU0hkeVowd3hiVDVqU1ZJRld3?oc=5) |
 | Government shutdown could be the longest ever, Speaker Johnson warns - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPLURHbmZIV1JvTnoxcGpsTmxsWnZVd20xb3FUcGluMWRFbXZZTXpfLVZxUGJzSnRQblZLOWZyc2dYODZmVUZROWVKWHhWaV9wMXN4Qi15Y09LOC0xMUE0NXBGY1lRdFJ0T1VYT1lmTWJzQjkwVDJmYkJCMENvS2Y2WWxyazB5TmUyYXJUaXRyMHVaWE1NbzBHRVhDVS1tZFF0UTZURldCSmN0azliWnY4QnFmWEdPQ1c1?oc=5) |
 | Authorities identify 16 killed in Tennessee explosives factory blast - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE44RHZhd0tLTGZVRHdOMXgwbm56VnJWTFVjQVF1X0lyZVpHTkpGXy1aTDFlaFZnaVUzeldheXdLYTZnaHhUc2t3M2xNTjA1ZTN1NEdqZXpOdENXdw?oc=5) |
-| A powerful storm will continue to hit the East Coast through Tuesday - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOSjlOTEFkQ0gxZ0VBdkY3VURINDNUOG9LTWZrM21rYmlPbUZzbjBfUTRSVVVDSk1UU1RuQWdBZ2pBUEhpQVlQZGs3R0k3T1B6dEJqYzQ3RVNWLUM0U3BvVEo4ZTZkR2s3dk5NbUN6UGFOVXBva3ZGX2FidG96dTJxMF92X2RKR2prOTN1UVFVb0VBZw?oc=5) |
-| North Carolina Republicans announce plans to vote on a new congressional map - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxPYXUzanh2OTYtelN4eFNQSXVhdDJuRHZEV2J6d3RRdUd3YVJaVExCMlctenhmX3R2TlE1aVY5Z2tfQlNNVkVLMko5dUxwdkZDbWo5Y1NBYm9yUzVrQW5tWkRQZmZkZlNuZ2pPYmVHOWdrRnJrYmtVdk9LSm1qaWhoSmhISWFpT0g5UVNoMVh3dGRwNndkcy0wZ3VEdzBEWkFWc2hlZERjTXJITTdwN2hGa01Lb3JhcnpCRmtsRnBjMNIBVkFVX3lxTE1yNnRmaG1FcEtteTl3OVdsczVMcjIxMGZWVW9aU0t2ZEJQQkhQUWJtM3ZkclM3aDk5Uy1GcHg5OFM3Z3VJZU1IY2w5a29zSVpKYTY5NzBB?oc=5) |
+| North Carolina Republicans Plan to Redraw Congressional Map to Add a Seat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNSmxIMjdvd0JYNlFBcHZJbTZsYWdqb2JQQkJvS01GTjRJakdjVDJ6UmE3MjJjenR0cmZlNWxadHhENEZPeHU1RkNBb1hDa2NjQWtBbnBZZFBMYWlGb3RscEtkVDJKM2s4V0RQeFc0R2dBeUxmZGRzVnFyU1BjZXdpS19CeTh4YlhMOUw0?oc=5) |
 | Beutner launches bid for L.A. mayor, vowing to fight ‘injustices’ under Trump - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi2wFBVV95cUxPZHRkWVJpMVlvZkl4SG9YaDgyRVdzSG5aOWVYSW1PS09DM0lyaTd2cUpwZG9mTjVuUy1INzNIeU1aN254M0VpOW1WUkJPR0ItNmlGYXFaV0g5TGVQcFFXbFg3SkFjdF9DcHhGakY3cGRRdmplZE0yWHV3cVF1dVdoUUc2OHA3SWZodldIdmprQ3l2QjdVX290ajNiWlBOaWZTVk4zMm1pSEtpazNubEpJR1Q4Uk1qMzBQOXhDUzNpdVFGSjgxd3pnclZZNjY3NHRCdVhyM2Q2S1lBTjQ?oc=5) |
+| Newsom rejects bill giving descendants of slaves preference in college admissions - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNb3drV3l2ZnVuczNIZlZzdHN4T003RVJyd0R1WUI4bWdsRjFFaUY5a1pMVjMtcU1oTXlPcnByMlRBRDd2MnNPU1kybTZUaVJWcEZNbloyWFFqNU1CUkNnMk1OazNTaXV5RE1oTVJQMlFzMDIxdl9GcjNMdXJQUXNVQVJKOVdoemszbHQ1YjlZUkRoOVBRSTFKWEdIRTlNdFpRd2xWSVd6N3FNeTU2NEk4MmpiV2lvcFhnVGFvUk5Ma01JWlZH?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
