@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 15:48:19（北京时间）**
+🕒 更新时间：**2025年10月14日 15:57:06（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Illinois lawmakers look at limiting federal immigration agents as Broadview shrinks designated protest area - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOT25wV3R1QlUxc3dxNnFZUmoteEgwTHh3ZWd6Tk11TXRFZmdQMjMxMUdzSHZVQkE3STViYlF4d2lGakEyZVVwUWxXcVUzbDNJWnZvTDYyRmtoMThUS2R2dGVVMUhHcFRxSkxTNC0tN2pFVWFiTlpZdTJBM1YyQ0VSUXk5ZF9ndzlT?oc=5) |
 | Hundreds of CDC layoffs reversed, but biodefense preparedness staff hit - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOVDllS0RaY3lUY2JSeHF6MS1yLUlxd0VjajQ0VVY0ZDZKUFN0SWZiQnNMajdsWnhOdHViNVZLVDA0X08zeDEyQWc1VTBMd01xa1RzY1ItUjkzeGNGUG4yeGhPX2dta0w2M09kMFZ0UHpwUXNLRzJKc29felJzbUE5NkNUNjdfMUVfaGc?oc=5) |
 | Photos: Powerful storm pummels U.S. East Coast - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOR3JOMXpYQ1dTVGlmdmR1aGRVNWxscTI2Vnd2aldhZ2VEcE1Sb1A5VFBZdHJQM3VNZENSdG11WEItY2hLbm5JLUdMNWtRZlI2OWVCcEEzZURWaWh4MXZlLU1OVDBqei1mazdWbXl4ZEp3Y2FWcXpQNlh1NmtGUXlHTEwwTXdzcl9MUnh0Mw?oc=5) |
-| Majority of special education staff in US education department laid off – report - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQaWlpZ3dlWDJzdHdickRlOUJmRGJCemlHRXZsaUN3QlhYbEp6UWFtTlZ2Z0NMRjF0UU1ybVJSWEpRYWEzZW9WaFpKT2pNMGNPUzRYbnBEcnJOa3JTTHBWOVgyMm9UM3p5cXl4UkU5d25tMlFMUXM5SGdpMURZbVZOTEdpbjJXNHlTdG9IVw?oc=5) |
+| ‘Locked up for 24 years’: release of Palestinian prisoners and detainees sparks joy and sorrow - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOVE5EX0k0aDRlUHJpeE1mS2pRYjlfaHh2U1ZIczc3bENOaGNzZ2Jpb1ItQl9zMmVkLWtFaGFyQnRFMEYzN3ZJaDY5QURQUzJRM2M5X1FKRm9rQkdUY1hYTk1QdF95TmxDbzJJbUFOd3dVeWY0UlFSb3RnM3VkS2ZHOVNrbGpmQQ?oc=5) |
 | North Carolina Republicans heed Trump’s call to redraw congressional map - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPWWxwbmpGSWZ6M2txd19CNl8yUFdLMjRhMi1TUFpPTThBNUZBdEE3S0xBNlduRThpY0lYY19xUWlsNXBueGZ3S0p5a0dQcm1SNE4zZTZ0RVJoRlY5cjNhZm5LZlRBcGdQMFpZeW50aEYycXVPdXc2M2ZVbThoaHpDTXRuWFpueF9mVXMxSWdpYmVabkVV?oc=5) |
 | 4 arrests made in connection with Mississippi mass shooting that left 6 dead, FBI says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1GLVJQR3ZBN3JISjBnSGRXX0hTQUwwRUYtSU1EUHltdXZrdDI5c2ZSaHFRdFBxMThfdldYWHFNQ1k0QTVaeDBTLU00U0twdDgzblB0Y2xZLTRyaWlmMWlfazNSdkhNelMyQXYtcGIxUm5SUmtiQlQ5Z9IBfkFVX3lxTFBwMUFJT0R2Wl9tVjJTaFp3RlpoNE01MklONk5RaWdQenRFNEJGYnJJRlIySkg3WElTdXY5SG0zdXMtbUNmSDI5R0k3ZXRCRkREa08zZ3lqcGhiVHRQbFBHOWRoOWpUWVVaVUJVVlRzbi14Y2x0dHRNakt6WlZRdw?oc=5) |
 | US news outlets refuse to sign new Pentagon rules to report only official information - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPNUxqemtBdTFZMzMteE9CVGhRcXFQZmZLY1ZxODVOOUdVampKMXk3N19MUXExbUZvcjFnc0RxdW5ncnlacUo0M0pET0FTM0NqX21aUnc2ellGT0lnenhqQldtVFlSMXYzN1hKcENQYnZrdTJLMmptc2tsX1UtU1cyV2FSYW5oQmpYUnhJ?oc=5) |
