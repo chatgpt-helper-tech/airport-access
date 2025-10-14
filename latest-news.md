@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 20:40:02（北京时间）**
+🕒 更新时间：**2025年10月14日 20:49:03（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump declares end of Israel-Hamas war, but experts see the hard work as just beginning - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPNUI4REJtalp0c2RSWUhpblhsVE9iNUhURFdqRzF6N3JKUDRQYVNtaEhRMDNhUEZPZ3htaGpTbFRubkFua0JCOVNBcnlianhpVnB5cENsMVM3UUlESzdpa0g5Q2lqc2lybnF3cGwxVlM3eE5HOWdFQjRPTjRrTGg5cTBFWnY2VkZ6M0JxNFlRc0h3ZV9WdEFSQ9IBngFBVV95cUxNMllLeEpUVE1TVGNELUV4R1lhaFlXVlVwdWZLUmdZNi1CYVlZZnZIYTdVSmZCZWhLZGxTaFhiRk8zM3BOTHhPbkQ5UnBIMWNHSXNoUmJtaEVjeUJQNG4zXzF4OE9QaW1FUXFXWkx0NHBuMXlRbC15QVdtRzNVYmxmWDFpWXBuMGtENEdYbDJ5aEc4RWpWYlgwRUozcG1Vdw?oc=5) |
-| Video shows execution in Gaza City, plus why are Russians queuing for fuel? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5GRFNudXdrYnZFejlleHd6NHVvUHFUNzJrTnZicFBpRnJrS013XzBTcWtKX0ZoaHJfZzhzblNMUFVYWGtpOXRLOVgtZ0pHell4VTRlcw?oc=5) |
-| US, China roll out tit-for-tat port fees, threatening more turmoil at sea - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOQzZ0OXpWdmxHSWh4dzlFcHpEa2ktaFJmQ2xMbDNreXVJMm53bGhnbEJRYy11UE45TGlZUDRXNnFPWUtOdmhQM1VhVndqRFhIQUpiM0hWbzFyaG5WNy1ySXV0ellxWW1ZdFM3cDVRSnlzQmIxNG5TazgycHdORWpySy1OVC1rUUJtZGRUamI3aHlhZVItWUZCS3VIWXRfb28tMjM2akpXdF9KSGxpYlM5V0ZfdDZXZzg?oc=5) |
+| Assessing the impact Ukrainian strikes are having on Russia's fuel supplies - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5GRFNudXdrYnZFejlleHd6NHVvUHFUNzJrTnZicFBpRnJrS013XzBTcWtKX0ZoaHJfZzhzblNMUFVYWGtpOXRLOVgtZ0pHell4VTRlcw?oc=5) |
+| U.S. Starts Charging Chinese Ships to Dock at Its Ports - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBZNGt4QzFiRHpXOTFrN2hneFV2NGFmYU1lNVF5NG00aG4zOWxCcFVFZHVKTmp6QkFvbl9OVWxkS1MxNXhLb1RGNjEwQVk4OWNRbkpwQ1RmQjZNWWc5QzB5LXdDeE8wdy1jM0xpZlV0ZlN3Y1V3SGFJRW5hYXg?oc=5) |
+| What to know about the 20 living hostages released by Hamas - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5DMTFwRkcxanlhNXU3MjBXZ3lTUjlfVHI5ZnpBZkQ0aDZBT08zOG9uMFJYWm13Ymp2VWxZaFllUXlucjJjbGdQRGlMNjNicU9mMTlacjBGbUtnUmZtdXd4b1Q1UEVhZFVKX3Q0ZHl1Q3p6cWJOcnBR?oc=5) |
 | In reading, the nation's students are still stuck in a pandemic slump - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOd0NIOGh3NGNYbGZaWnUwVE9KZDZFYnpXb0ZOeklkN1J5Wmh6dDNGWEF4OFBpWXFyUWgyZ3oyTGNIb24xWk1mX083T1pWRERwemVjZ1NPcUMwdjFIQklzRVRrWnhJeXZLMFBTWmZxTldpck5jMVJpMTVsM0lBMHgtRFlpY2RoeThZTTV4UTlFMWo?oc=5) |
 | Israel kills several Palestinians in Gaza strikes - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5lbTloSGFMT0tWZDVFZjRxaWM5bzM5OXJ2MUFCZmJxWlllbGc4WlRPbGR6M291TjkxSEVodThRRm9NN0VpNW85R1hmR0tvT1NTdlpQRjc3RnBRMGlWQVlEWUNZZ3lMRjM0YWlHWE55LWQ?oc=5) |
-| Trump plan to invite Netanyahu to Gaza summit aborted after Erdoğan warning - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNdjg5VTYxZkdUQmE0aHhmdDJ5bWhZbF9sT2VvSkxkNkdvSDhMNzhfejZLbkp2QVExMUZfWV9NVVhZV3pNbWZpVF9JZUZqbi1LeHhpM3FaX2czc2hZN25JN0VXX1J4UXJPUXlfUXhYRFNwcDBucHFBcTQwNHhoRmplaGFCYldWc3V3N0VYUXYtSWdVaGhOd1hXVnh2Zy15SzQ5V3N4WGEwUQ?oc=5) |
 | 1 dead, 2 missing after severe Alaska flooding Coast Guard official says left "absolute devastation" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPWElyNFY3MXQtZUx6cTFWZ2VER3dRM2R6WlJhLWJ5WWNLMFZxU05fbkNVeHFQZzMxVUJ0X2dNODRFNGx6cHRhQkRXQkV1Q3BzWXdXeGlfU0VZMVQtcWtQdzRoVmhpNmlJenoyLUhDdlAza1hnQU1pbmZidkdwY0lMY0RiZEdZNF9RNlZKRWlFblJyWFcxb0hWN3pwLWtmQ3PSAaQBQVVfeXFMTVcyRmdCa1hkaTZNV21aM3Q0MmFWSW4wM2IxbHVXcmhRT1EtSGw3VTdEWmZOc1dJQTdnMl9IVUpzWlYxQXk3YzJ5S2hVWGF1S1o0TnRydE8ybmdWWl9DSm1kXzdKbnBqcm51VGtnVTREVVB0TFkwNlp0UDV3cUlxdzlKLXc4ZVh1VmlUaC1mV0dxdnROdm9YdVd4c09oRE1uWUFkU0Y?oc=5) |
-| 4 People Arrested in Deadly Mississippi Shooting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1wT25VVEhHSzY5c1E3ZUhkMGNtdHJJNW9OTEdzOUpqM1RRcXN2ekZvZGF0ZkNHcG5iYTFxY0trMk5ERFRqcTZ5OEFYVDJockQ2eWhObDBiVUZ1bnZXcHdlNzcwRzI5MUN2TmN3Tm0ybnhUUlBld0dMQndvaw?oc=5) |
+| Capitol agenda: The Senate stalls, ACA buzz builds - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNV29PM1RZd0g3YkN0NE1FNHhkOEJNeTl4Y1NjeVliV3AzZnRxZmpZYXhUQ0FHSEhEdFBTdWo0bVQ2WXFOQ1Rzb1pZc2FPaEhVV0ZmcFVnZS1YUXhqNmVGcGNmc0NwbFdGU3pDRFVhVGJRdHVvQXdTU0lNek9iNF9ZalFOcVVBZnBiUVJqOXprZFJrTWdxbkJ4cnZ4bHNFc1BVN3lqRU1rdThTUGlTQzF4bXpB?oc=5) |
 | North Carolina Republicans heed Trump’s call to redraw congressional map - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPWWxwbmpGSWZ6M2txd19CNl8yUFdLMjRhMi1TUFpPTThBNUZBdEE3S0xBNlduRThpY0lYY19xUWlsNXBueGZ3S0p5a0dQcm1SNE4zZTZ0RVJoRlY5cjNhZm5LZlRBcGdQMFpZeW50aEYycXVPdXc2M2ZVbThoaHpDTXRuWFpueF9mVXMxSWdpYmVabkVV?oc=5) |
-| Chuck Schumer gets his preferred candidate, Janet Mills, in crowded Maine Senate race - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNUjY3OUFtQXdmSnZIRWJYb2ZUd3E5MVA3WHVGRXhGUHRaR0sybnluNmZYSE9PVmt0OFNqWnhlT2lWWHA4UUQ5b1ZVTVc0d0R5WDFkbGNEU1pOX1E1eGVEMmpQeTFOa3BBd2VISV9UUGZGNFMybDJvOUFSU2FCRV90LWRwd29JQVdNc1FKTWV6MzAxMmpiMWFrY21R?oc=5) |
+| Gov. Janet Mills of Maine to Run for Senate, Aiming at Senator Susan Collins - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOcmNGU281Qm01dTlYdHdfRGxxYnpod3BBMXZaRmF2YzR2ZmpfRGRpd3UyVnVwb2tHcU1VU1FGT0RnRFlvNEpNRGhvMzdUa09SNzhraTBnS0x2Z0xwNExnbDdyOElmaDNvZGx2Wl94VHUwMkJZZTlEd2lYQzB6MTd3Um1scDlsZ3VGeXVFNmZuN0F1OTM1SEpvMGIxWQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
