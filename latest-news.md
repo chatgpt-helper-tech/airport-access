@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 19:57:32（北京时间）**
+🕒 更新时间：**2025年10月14日 20:01:59（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | News outlets broadly reject Pentagon's new press rules - Axios | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQSTljWnBLV3c2aVFYNlJQVVhZZTVuMThsNWxrdXBiUS1xcjRmYS1ORm93Z2VZVUF5RzRYaWlidGdqV2RfdnBZRTl3N1gxclkzcXJyaVZfZEI1M0xjc3dQaDNfa0Z1OWVkVFJ2a2hnMDllSHB0QXM2UmVWMlV0TnV6OVlNbDJ5VUVYaEpZcDNhVmpIQTEyOFE?oc=5) |
 | Woman found dead, dozens rescued and over 1,000 displaced after storm devastates Western Alaska - Anchorage Daily News | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxQLVYxZXRuMFoxVnE5bnBWWHB2bjlzck1qcV8zVjJFT0RrYXlDRzNLMGZnZ0FnanBjaGpTa01MX0tuOGNzMjVzSXJURWVCY3dqTzVQZ2tXV0ZkMURNdjZ2VTJzVzFadVBteUVzY21nc2RLcHdrNjVHVlMwQjBFWWx3SjRDV0lMTm4yZy0yR0U4eXFuX3N1QTE1dDVWWlNfNHREVGJUakt2NDBHRnRTd2R4el9YM0UtUjE4R0c4dXB5Z3ZQRl9UVFRpRTZES19NLWNSYXlMSHhBdlY1eEJY?oc=5) |
 | Gov. Janet Mills of Maine to Run for Senate, Aiming at Senator Susan Collins - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOcmNGU281Qm01dTlYdHdfRGxxYnpod3BBMXZaRmF2YzR2ZmpfRGRpd3UyVnVwb2tHcU1VU1FGT0RnRFlvNEpNRGhvMzdUa09SNzhraTBnS0x2Z0xwNExnbDdyOElmaDNvZGx2Wl94VHUwMkJZZTlEd2lYQzB6MTd3Um1scDlsZ3VGeXVFNmZuN0F1OTM1SEpvMGIxWQ?oc=5) |
-| Leaf-peeping season hampered by drought: Fall foliage dropping sooner, showing less color - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNSFl5WlpmZUU1QTBGYnNIR0o0OEpDUWNlY2JvWkNhVWtNZnV3ZnFqS0l4RFlfYTdwVVhoclRrUkRtMXZoS2tSVDFnbDd0WHdIY0hSZzhtMEZLX3pxcVpTMjBGX2NxTkhNT0lPdDlDall3VzFzREFwSy1fdVlvajNWZm9Xd0ZWRzVHOHFhQ0RoU0xkc0xFYWh6UkhVUGltZjFEbDlTOVR6YmNON2pkMzNvWGtQaWlwSzBWc0HSAVZBVV95cUxNWUhaUVVaWHBMNUQtTl9BTVpiVndZZVIzaWhyR1V5TFVJYkItUkJ5RzZyVmdMeWdPQmR6SkhBTHR1WUx6TnU5YkVTNEszQkdrN25EbllHQQ?oc=5) |
+| North Carolina Republicans heed Trump’s call to redraw congressional map - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPWWxwbmpGSWZ6M2txd19CNl8yUFdLMjRhMi1TUFpPTThBNUZBdEE3S0xBNlduRThpY0lYY19xUWlsNXBueGZ3S0p5a0dQcm1SNE4zZTZ0RVJoRlY5cjNhZm5LZlRBcGdQMFpZeW50aEYycXVPdXc2M2ZVbThoaHpDTXRuWFpueF9mVXMxSWdpYmVabkVV?oc=5) |
 | 4 arrests made in connection with Mississippi mass shooting that left 6 dead, FBI says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1GLVJQR3ZBN3JISjBnSGRXX0hTQUwwRUYtSU1EUHltdXZrdDI5c2ZSaHFRdFBxMThfdldYWHFNQ1k0QTVaeDBTLU00U0twdDgzblB0Y2xZLTRyaWlmMWlfazNSdkhNelMyQXYtcGIxUm5SUmtiQlQ5Z9IBfkFVX3lxTFBwMUFJT0R2Wl9tVjJTaFp3RlpoNE01MklONk5RaWdQenRFNEJGYnJJRlIySkg3WElTdXY5SG0zdXMtbUNmSDI5R0k3ZXRCRkREa08zZ3lqcGhiVHRQbFBHOWRoOWpUWVVaVUJVVlRzbi14Y2x0dHRNakt6WlZRdw?oc=5) |
 
 ---
