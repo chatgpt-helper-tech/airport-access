@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 22:08:21（北京时间）**
+🕒 更新时间：**2025年10月14日 22:16:59（北京时间）**
 
 ---
 
@@ -17,20 +17,20 @@
 | YouTubers Dan and Phil confirm relationship after 16 years | [阅读全文](https://www.bbc.com/news/articles/cd7r31p0eyyo?at_medium=RSS&at_campaign=rss) |
 | Who are the released hostages? | [阅读全文](https://www.bbc.com/news/articles/cpvl9k4mw8no?at_medium=RSS&at_campaign=rss) |
 | What happens next in Trump's ceasefire plan | [阅读全文](https://www.bbc.com/news/articles/cvgqx7ygq41o?at_medium=RSS&at_campaign=rss) |
-| Could I have saved my parents if I'd been taught CPR? | [阅读全文](https://www.bbc.com/news/articles/cddm1lrjy7lo?at_medium=RSS&at_campaign=rss) |
+| England's striking dilemma - how would you rank Tuchel's options? | [阅读全文](https://www.bbc.com/sport/football/articles/c0ex8xgjp4go?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What issues are still to be resolved in the Gaza ceasefire deal? - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPQ3VwVWl3ZHJ2R3FRWGhrRE15cmloOXJGOVpRTlVwVHN2R3AxS1h0NkRUY1V1MmRRckpCNHFKbE1XUGR2N3dJcXFDbUtzcjdCdGV4Y0VjaTdESXE0UE9GbThucW5tbXdzRm1ZSmF0RlcwYXYyODNnaGNqUW41TmlkZzVzUmMwYlBQc0gwWFg1bk84LXFLMHdqdmMxa3dweDA?oc=5) |
+| Israel reportedly gives Hamas Tuesday deadline for progress on return of hostage bodies - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPQ3FHdi1uVVVBMkdrLXBwXzlBQ2IyX1hHczlmWDBPNmJjRTZkQkNoTXpnaF8zYmo1cnZpTGFwdTlobF9TcDFhai1nUTdZS3pyb2ZfRDJfekxlZ1V2aFoxLXJwdEJaOTc3WmIyNVNrREFCZUl6a09EbFJwd3VHVHl0aEowUHV5ZENBRlh4bjFXV3pHMGFsRTd4UGE5d21paG5PMEJBMkt5cUVZbmRscmc?oc=5) |
+| Trump declares end of Israel-Hamas war, but experts see the hard work as just beginning - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPNUI4REJtalp0c2RSWUhpblhsVE9iNUhURFdqRzF6N3JKUDRQYVNtaEhRMDNhUEZPZ3htaGpTbFRubkFua0JCOVNBcnlianhpVnB5cENsMVM3UUlESzdpa0g5Q2lqc2lybnF3cGwxVlM3eE5HOWdFQjRPTjRrTGg5cTBFWnY2VkZ6M0JxNFlRc0h3ZV9WdEFSQ9IBngFBVV95cUxNMllLeEpUVE1TVGNELUV4R1lhaFlXVlVwdWZLUmdZNi1CYVlZZnZIYTdVSmZCZWhLZGxTaFhiRk8zM3BOTHhPbkQ5UnBIMWNHSXNoUmJtaEVjeUJQNG4zXzF4OE9QaW1FUXFXWkx0NHBuMXlRbC15QVdtRzNVYmxmWDFpWXBuMGtENEdYbDJ5aEc4RWpWYlgwRUozcG1Vdw?oc=5) |
 | Opinion: Why I'm handing in my Pentagon press pass - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNZ0swOHhrVGNyWEZ5dnU1dzRNR0NPVFVtdnFaa1hvNl91TkJENkFQUFJCZHo5bGdBMXk5Nk9xUV9IM3oxSzY2WGhfd0RFdHFTQnhVNDNid3V0VWlMTXlfTDBMMWZFWUxGV3FVYnJCeUxqaWRWUVo0QmdZLWJSb3ZyOXZTZkQ0dG8?oc=5) |
-| U.S. Starts Charging Chinese Ships to Dock at Its Ports - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBZNGt4QzFiRHpXOTFrN2hneFV2NGFmYU1lNVF5NG00aG4zOWxCcFVFZHVKTmp6QkFvbl9OVWxkS1MxNXhLb1RGNjEwQVk4OWNRbkpwQ1RmQjZNWWc5QzB5LXdDeE8wdy1jM0xpZlV0ZlN3Y1V3SGFJRW5hYXg?oc=5) |
+| China sanctions 5 US units of South Korean shipbuilder Hanwha Ocean over probe by Washington - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPNURiYWE2SzIyLVFPMFJnV2lBMEloTUlvWmRxX1pXalBwX0N4dG9kNVI2LUo4dUhHQS1OekdvU0phdjlfNFlWeHdBMGxocnJySk1ROFZBb0p2MVJZLUhJYlFBcDBfS2ZGX0NqUkVpNUJnNm91SS02M3p0bWtpU0VpSXV2ejlSeTY0QWRwTlZFdGktVDhwNEFacFBwajEzUUplZkE?oc=5) |
 | LA Rain: Evacuation Warnings In Palisades, Eaton Canyon, Hollywood - Update - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPSTZERjZEOTh6aDlvUG51QXpwb2ZLRUJWanA3NWdhRk9hX0R5TmtXczZIcjdaWk9SamlING1icF9YQ0ZDTDBWQXVmaVN1dFpJZThTUEh3M3JPeUUzYno0QVlQOHYtb2lzMXBUQzEtT25RUFdwTkdnLXpuaWdDUzZ2em54eHVQOFVIZS1zc04zb1E3TnMtY0VLM2JwTmRTdw?oc=5) |
-| In reading, the nation's students are still stuck in a pandemic slump - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOd0NIOGh3NGNYbGZaWnUwVE9KZDZFYnpXb0ZOeklkN1J5Wmh6dDNGWEF4OFBpWXFyUWgyZ3oyTGNIb24xWk1mX083T1pWRERwemVjZ1NPcUMwdjFIQklzRVRrWnhJeXZLMFBTWmZxTldpck5jMVJpMTVsM0lBMHgtRFlpY2RoeThZTTV4UTlFMWo?oc=5) |
-| Chuck Schumer gets his preferred candidate, Janet Mills, in crowded Maine Senate race - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNUjY3OUFtQXdmSnZIRWJYb2ZUd3E5MVA3WHVGRXhGUHRaR0sybnluNmZYSE9PVmt0OFNqWnhlT2lWWHA4UUQ5b1ZVTVc0d0R5WDFkbGNEU1pOX1E1eGVEMmpQeTFOa3BBd2VISV9UUGZGNFMybDJvOUFSU2FCRV90LWRwd29JQVdNc1FKTWV6MzAxMmpiMWFrY21R?oc=5) |
-| 1 dead, 2 missing after severe Alaska flooding Coast Guard official says left "absolute devastation" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPWElyNFY3MXQtZUx6cTFWZ2VER3dRM2R6WlJhLWJ5WWNLMFZxU05fbkNVeHFQZzMxVUJ0X2dNODRFNGx6cHRhQkRXQkV1Q3BzWXdXeGlfU0VZMVQtcWtQdzRoVmhpNmlJenoyLUhDdlAza1hnQU1pbmZidkdwY0lMY0RiZEdZNF9RNlZKRWlFblJyWFcxb0hWN3pwLWtmQ3PSAaQBQVVfeXFMTVcyRmdCa1hkaTZNV21aM3Q0MmFWSW4wM2IxbHVXcmhRT1EtSGw3VTdEWmZOc1dJQTdnMl9IVUpzWlYxQXk3YzJ5S2hVWGF1S1o0TnRydE8ybmdWWl9DSm1kXzdKbnBqcm51VGtnVTREVVB0TFkwNlp0UDV3cUlxdzlKLXc4ZVh1VmlUaC1mV0dxdnROdm9YdVd4c09oRE1uWUFkU0Y?oc=5) |
-| Supreme Court rebuffs Alex Jones’ effort to overturn $1.4 billion Sandy Hook judgment - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNUFYwcDAyTWI1ci1idVdEVGp1QkNsbHlxT3NjOWNBSG5SMHBvYmdiTEVySVpERExEXzIwWEFFUzQ2RWFzLWNBVkd1S1hTNjhlMHJnM3gzNGMtZGRYT0tIVDZ1eEpCSW9WeWRGVjNTa3E0dkhtekgyenBmbEtDQWpzRg?oc=5) |
+| What to know about the 20 living hostages released by Hamas - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5DMTFwRkcxanlhNXU3MjBXZ3lTUjlfVHI5ZnpBZkQ0aDZBT08zOG9uMFJYWm13Ymp2VWxZaFllUXlucjJjbGdQRGlMNjNicU9mMTlacjBGbUtnUmZtdXd4b1Q1UEVhZFVKX3Q0ZHl1Q3p6cWJOcnBR?oc=5) |
+| Woman found dead, dozens rescued and over 1,000 displaced after storm devastates Western Alaska - Anchorage Daily News | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxQLVYxZXRuMFoxVnE5bnBWWHB2bjlzck1qcV8zVjJFT0RrYXlDRzNLMGZnZ0FnanBjaGpTa01MX0tuOGNzMjVzSXJURWVCY3dqTzVQZ2tXV0ZkMURNdjZ2VTJzVzFadVBteUVzY21nc2RLcHdrNjVHVlMwQjBFWWx3SjRDV0lMTm4yZy0yR0U4eXFuX3N1QTE1dDVWWlNfNHREVGJUakt2NDBHRnRTd2R4el9YM0UtUjE4R0c4dXB5Z3ZQRl9UVFRpRTZES19NLWNSYXlMSHhBdlY1eEJY?oc=5) |
+| Supreme Court rejects Alex Jones' appeal of $1.4 billion defamation judgment in Sandy Hook shooting - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPc1dJeWRER29ULWNhMEpEVlBlUFpvOEQ2Z0hPZkhCZy1tNEVkTTZGamxNWXN1MmF6YUNWdE9Ld3lGZzVIeV9fZ09Qc0JmVjU0Y3NBYkpFaUNQZmNETS10akMwSUdfOGpyR0s3NDRzVGJTWmQ3SVVMRy13QWh2M1l5UEtyWTVhZlVlZElKcnlkWlBUMDJZRmtEb0ZsZWV6MVc1SkU1eUxLbG1Gb0NLNl9F?oc=5) |
 | Four people arrested after shooting in Mississippi town that left six dead - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxObmN0dVk4R25VbWhlTFVCTktUSm5vQ2xLSVVIZVBWRmUwZHlqcXZMNFZyQWZnandlQlIzTnB1V0NsQXRUSkxVT2h6SlBQMHNISDRNZzYzb1pfZW1kX2V3Vl9nejRyYzhWay1CbGVXWnJ1MW92dlhNSWpOUnk0SmtzTThwMDFEWlVJVENF?oc=5) |
 | Capitol agenda: The Senate stalls, ACA buzz builds - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNV29PM1RZd0g3YkN0NE1FNHhkOEJNeTl4Y1NjeVliV3AzZnRxZmpZYXhUQ0FHSEhEdFBTdWo0bVQ2WXFOQ1Rzb1pZc2FPaEhVV0ZmcFVnZS1YUXhqNmVGcGNmc0NwbFdGU3pDRFVhVGJRdHVvQXdTU0lNek9iNF9ZalFOcVVBZnBiUVJqOXprZFJrTWdxbkJ4cnZ4bHNFc1BVN3lqRU1rdThTUGlTQzF4bXpB?oc=5) |
 
