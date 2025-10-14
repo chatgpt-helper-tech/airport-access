@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 20:08:22（北京时间）**
+🕒 更新时间：**2025年10月14日 20:17:05（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Video shows execution in Gaza City as armed groups vie for control - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5GRFNudXdrYnZFejlleHd6NHVvUHFUNzJrTnZicFBpRnJrS013XzBTcWtKX0ZoaHJfZzhzblNMUFVYWGtpOXRLOVgtZ0pHell4VTRlcw?oc=5) |
 | In reading, the nation's students are still stuck in a pandemic slump - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOd0NIOGh3NGNYbGZaWnUwVE9KZDZFYnpXb0ZOeklkN1J5Wmh6dDNGWEF4OFBpWXFyUWgyZ3oyTGNIb24xWk1mX083T1pWRERwemVjZ1NPcUMwdjFIQklzRVRrWnhJeXZLMFBTWmZxTldpck5jMVJpMTVsM0lBMHgtRFlpY2RoeThZTTV4UTlFMWo?oc=5) |
 | Israel says it opens fire on suspects in Gaza, local authorities report six killed - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPZnB4Rm5iQmhkdkMxUzF3OWNIdnpzUmFNODBuUmJpel96azJnQXNJZGZ2TGJoY2tGWU5DUFh2S0Z2bE5jZDlsT09OUi1yWFE2Nk03dlBveGVuUGNoX1hWZm1lbEhPckR1Uk1xRjlScjhGUFVfeTZyTTlBWFoxNXVDNTBkTDZfTk4xZXRBWWhXc3pVYWlRVFVjdk5oTWtYWkxYTmtPZExrM3B5eWtYYks0anBvRmk0cVdLOE1wcVpBbmRIZEVpbFNyWg?oc=5) |
-| News outlets broadly reject Pentagon's new press rules - Axios | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQSTljWnBLV3c2aVFYNlJQVVhZZTVuMThsNWxrdXBiUS1xcjRmYS1ORm93Z2VZVUF5RzRYaWlidGdqV2RfdnBZRTl3N1gxclkzcXJyaVZfZEI1M0xjc3dQaDNfa0Z1OWVkVFJ2a2hnMDllSHB0QXM2UmVWMlV0TnV6OVlNbDJ5VUVYaEpZcDNhVmpIQTEyOFE?oc=5) |
-| Alaska Flooding Leaves 1 Dead and 2 Missing - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFBNSlBlT2ZoenlmY1Z1bzV2WHJWaHhBMi1kTzVEWHh0QXJleWZiZVRFWHczTTdUOW1tcUw4dG5WYkVaOG0tU29QazdfbVVKSVlQSXlzSENJNzJUVEs2eHNlZ01tQ1prbjNCVmZ0S1pkTWtFc2F0NnRN?oc=5) |
-| Gov. Janet Mills of Maine to Run for Senate, Aiming at Senator Susan Collins - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOcmNGU281Qm01dTlYdHdfRGxxYnpod3BBMXZaRmF2YzR2ZmpfRGRpd3UyVnVwb2tHcU1VU1FGT0RnRFlvNEpNRGhvMzdUa09SNzhraTBnS0x2Z0xwNExnbDdyOElmaDNvZGx2Wl94VHUwMkJZZTlEd2lYQzB6MTd3Um1scDlsZ3VGeXVFNmZuN0F1OTM1SEpvMGIxWQ?oc=5) |
+| Chuck Schumer gets his preferred candidate, Janet Mills, in crowded Maine Senate race - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNUjY3OUFtQXdmSnZIRWJYb2ZUd3E5MVA3WHVGRXhGUHRaR0sybnluNmZYSE9PVmt0OFNqWnhlT2lWWHA4UUQ5b1ZVTVc0d0R5WDFkbGNEU1pOX1E1eGVEMmpQeTFOa3BBd2VISV9UUGZGNFMybDJvOUFSU2FCRV90LWRwd29JQVdNc1FKTWV6MzAxMmpiMWFrY21R?oc=5) |
+| 1 dead, 2 missing after severe Alaska flooding Coast Guard official says left "absolute devastation" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPWElyNFY3MXQtZUx6cTFWZ2VER3dRM2R6WlJhLWJ5WWNLMFZxU05fbkNVeHFQZzMxVUJ0X2dNODRFNGx6cHRhQkRXQkV1Q3BzWXdXeGlfU0VZMVQtcWtQdzRoVmhpNmlJenoyLUhDdlAza1hnQU1pbmZidkdwY0lMY0RiZEdZNF9RNlZKRWlFblJyWFcxb0hWN3pwLWtmQ3PSAaQBQVVfeXFMTVcyRmdCa1hkaTZNV21aM3Q0MmFWSW4wM2IxbHVXcmhRT1EtSGw3VTdEWmZOc1dJQTdnMl9IVUpzWlYxQXk3YzJ5S2hVWGF1S1o0TnRydE8ybmdWWl9DSm1kXzdKbnBqcm51VGtnVTREVVB0TFkwNlp0UDV3cUlxdzlKLXc4ZVh1VmlUaC1mV0dxdnROdm9YdVd4c09oRE1uWUFkU0Y?oc=5) |
 | North Carolina Republicans heed Trump’s call to redraw congressional map - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPWWxwbmpGSWZ6M2txd19CNl8yUFdLMjRhMi1TUFpPTThBNUZBdEE3S0xBNlduRThpY0lYY19xUWlsNXBueGZ3S0p5a0dQcm1SNE4zZTZ0RVJoRlY5cjNhZm5LZlRBcGdQMFpZeW50aEYycXVPdXc2M2ZVbThoaHpDTXRuWFpueF9mVXMxSWdpYmVabkVV?oc=5) |
-| 4 arrests made in connection with Mississippi mass shooting that left 6 dead, FBI says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1GLVJQR3ZBN3JISjBnSGRXX0hTQUwwRUYtSU1EUHltdXZrdDI5c2ZSaHFRdFBxMThfdldYWHFNQ1k0QTVaeDBTLU00U0twdDgzblB0Y2xZLTRyaWlmMWlfazNSdkhNelMyQXYtcGIxUm5SUmtiQlQ5Z9IBfkFVX3lxTFBwMUFJT0R2Wl9tVjJTaFp3RlpoNE01MklONk5RaWdQenRFNEJGYnJJRlIySkg3WElTdXY5SG0zdXMtbUNmSDI5R0k3ZXRCRkREa08zZ3lqcGhiVHRQbFBHOWRoOWpUWVVaVUJVVlRzbi14Y2x0dHRNakt6WlZRdw?oc=5) |
+| 4 People Arrested in Deadly Mississippi Shooting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1wT25VVEhHSzY5c1E3ZUhkMGNtdHJJNW9OTEdzOUpqM1RRcXN2ekZvZGF0ZkNHcG5iYTFxY0trMk5ERFRqcTZ5OEFYVDJockQ2eWhObDBiVUZ1bnZXcHdlNzcwRzI5MUN2TmN3Tm0ybnhUUlBld0dMQndvaw?oc=5) |
+| Opinion: Why I'm handing in my Pentagon press pass - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNZ0swOHhrVGNyWEZ5dnU1dzRNR0NPVFVtdnFaa1hvNl91TkJENkFQUFJCZHo5bGdBMXk5Nk9xUV9IM3oxSzY2WGhfd0RFdHFTQnhVNDNid3V0VWlMTXlfTDBMMWZFWUxGV3FVYnJCeUxqaWRWUVo0QmdZLWJSb3ZyOXZTZkQ0dG8?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
