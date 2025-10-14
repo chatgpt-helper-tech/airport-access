@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 15:00:25（北京时间）**
+🕒 更新时间：**2025年10月14日 15:08:53（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Majority of special education staff in US education department laid off – report - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQaWlpZ3dlWDJzdHdickRlOUJmRGJCemlHRXZsaUN3QlhYbEp6UWFtTlZ2Z0NMRjF0UU1ybVJSWEpRYWEzZW9WaFpKT2pNMGNPUzRYbnBEcnJOa3JTTHBWOVgyMm9UM3p5cXl4UkU5d25tMlFMUXM5SGdpMURZbVZOTEdpbjJXNHlTdG9IVw?oc=5) |
 | Hundreds of CDC layoffs reversed, but biodefense preparedness staff hit - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOVDllS0RaY3lUY2JSeHF6MS1yLUlxd0VjajQ0VVY0ZDZKUFN0SWZiQnNMajdsWnhOdHViNVZLVDA0X08zeDEyQWc1VTBMd01xa1RzY1ItUjkzeGNGUG4yeGhPX2dta0w2M09kMFZ0UHpwUXNLRzJKc29felJzbUE5NkNUNjdfMUVfaGc?oc=5) |
 | Photos: Powerful storm pummels U.S. East Coast - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOR3JOMXpYQ1dTVGlmdmR1aGRVNWxscTI2Vnd2aldhZ2VEcE1Sb1A5VFBZdHJQM3VNZENSdG11WEItY2hLbm5JLUdMNWtRZlI2OWVCcEEzZURWaWh4MXZlLU1OVDBqei1mazdWbXl4ZEp3Y2FWcXpQNlh1NmtGUXlHTEwwTXdzcl9MUnh0Mw?oc=5) |
-| Officials say storm 'completely devastated' Southwest Alaska communities - Alaska Public Media | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPcVJfeUdydElWcDZfZkxhV2FhV0U2eXdMSjY4OENUQzFjSFE0M0ZadVMwSHBNbTBkUFpiemJ5S1doWXJHSE1sQ1h3ZmtRdkpKZERCTTJDWWUxRXAybnpEcnJhRUxtSlZpMVV3RlFUSHNlTWlJNlE4RXRBdHFobjdEd0lzTnlIb0ZkTzc5WERQRVR6aUpDWjM2RXpnSng5dTJfXzdxM0ZYSlBsd1RUUFdTUV9oVkNxTUVxb3pTQXlKcE8?oc=5) |
 | North Carolina Republicans heed Trump’s call to redraw congressional map - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPWWxwbmpGSWZ6M2txd19CNl8yUFdLMjRhMi1TUFpPTThBNUZBdEE3S0xBNlduRThpY0lYY19xUWlsNXBueGZ3S0p5a0dQcm1SNE4zZTZ0RVJoRlY5cjNhZm5LZlRBcGdQMFpZeW50aEYycXVPdXc2M2ZVbThoaHpDTXRuWFpueF9mVXMxSWdpYmVabkVV?oc=5) |
 | 4 arrests made in connection with Mississippi mass shooting that left 6 dead, FBI says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1GLVJQR3ZBN3JISjBnSGRXX0hTQUwwRUYtSU1EUHltdXZrdDI5c2ZSaHFRdFBxMThfdldYWHFNQ1k0QTVaeDBTLU00U0twdDgzblB0Y2xZLTRyaWlmMWlfazNSdkhNelMyQXYtcGIxUm5SUmtiQlQ5Z9IBfkFVX3lxTFBwMUFJT0R2Wl9tVjJTaFp3RlpoNE01MklONk5RaWdQenRFNEJGYnJJRlIySkg3WElTdXY5SG0zdXMtbUNmSDI5R0k3ZXRCRkREa08zZ3lqcGhiVHRQbFBHOWRoOWpUWVVaVUJVVlRzbi14Y2x0dHRNakt6WlZRdw?oc=5) |
+| Latest Updates: Portlanders rally for, against ICE after ‘Emergency Naked Bike Ride’ - KPTV | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPTzZxRklWYzBSMmladkg2M2ZQeTdnT3RoWjZtYkduYUlIb0paeElKZHlhYTlLMm5DSEgxQXBWTXBWR09VeEk0eFFsSXRkYzFnNmFqWC1qbl9STHNWREtVM1p6bHlkZjdDTFpTcVQ2VmdHU3B5ZE1fQjJRWGl4OGViUjFMRDJsQ3phZ3Y2UGFSWmliRlJ3TURwRXE5R3lPdXFpYWlGbVhWWVFGSmZtLXc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
