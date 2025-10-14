@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 18:57:04（北京时间）**
+🕒 更新时间：**2025年10月14日 19:00:31（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | 'Now the rebuilding begins,' says Trump  as he signs Gaza peace plan | [阅读全文](https://www.bbc.com/news/articles/c709jxxrrvlo?at_medium=RSS&at_campaign=rss) |
 | Who are the released hostages? | [阅读全文](https://www.bbc.com/news/articles/cpvl9k4mw8no?at_medium=RSS&at_campaign=rss) |
 | Wage growth slows slightly over summer | [阅读全文](https://www.bbc.com/news/articles/cjek274q99xo?at_medium=RSS&at_campaign=rss) |
-| Nato chief jokes about 'limping' Russian submarine | [阅读全文](https://www.bbc.com/news/articles/ckgk2pn4v9lo?at_medium=RSS&at_campaign=rss) |
+| YouTubers Dan and Phil confirm relationship after 16 years | [阅读全文](https://www.bbc.com/news/articles/cd7r31p0eyyo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,8 +30,8 @@
 | Madagascar's president flees country in fear for his life after military rebellion - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNS0U1X2g4MGJNOU5QSGtqREhBZURpdDBROV9YaGlyckZsa3VtWUVWbFQ2ZEN1aUItTHRCc0E3dTFJZWs2b0U4OVM2UlBadXMxdUxFMFJITWNJbXNXSGhQbGRDbVpUVmN0TThXQmsxUFJkTFZCdzIza2NQSWdySm9STEkzWG9NQlJmZzQzR0ZWd0xqOHVVbjZEdlFBOFBMa1k?oc=5) |
 | Education Department layoffs hit offices that oversee special education and civil rights enforcement - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNUHF2MGdUVlloZlpfUURJNWYta1U2VGVSWUsxTm9iY2FSUnlwNGlaaFZXVGZHSkwxWnJTT2xWeGV1TGJkQ1hrOHNwVms5MWpMai04bmtZemMzelI3b2lvNzNoZnc4SjVNX0NNVFprcV9nemY1Ylo0RnZvaWFjZFlCTmJzNzk0b3JVQVZXTHNaMmw4M2F5ZW9hNVpoVXprRTZ1MDVTYnduQlF6cl9DSnNaOHhrVjd3Zw?oc=5) |
 | Woman found dead, dozens rescued and over 1,000 displaced after storm devastates Western Alaska - Anchorage Daily News | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxQLVYxZXRuMFoxVnE5bnBWWHB2bjlzck1qcV8zVjJFT0RrYXlDRzNLMGZnZ0FnanBjaGpTa01MX0tuOGNzMjVzSXJURWVCY3dqTzVQZ2tXV0ZkMURNdjZ2VTJzVzFadVBteUVzY21nc2RLcHdrNjVHVlMwQjBFWWx3SjRDV0lMTm4yZy0yR0U4eXFuX3N1QTE1dDVWWlNfNHREVGJUakt2NDBHRnRTd2R4el9YM0UtUjE4R0c4dXB5Z3ZQRl9UVFRpRTZES19NLWNSYXlMSHhBdlY1eEJY?oc=5) |
-| 4 arrests made in connection with Mississippi mass shooting that left 6 dead, FBI says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1GLVJQR3ZBN3JISjBnSGRXX0hTQUwwRUYtSU1EUHltdXZrdDI5c2ZSaHFRdFBxMThfdldYWHFNQ1k0QTVaeDBTLU00U0twdDgzblB0Y2xZLTRyaWlmMWlfazNSdkhNelMyQXYtcGIxUm5SUmtiQlQ5Z9IBfkFVX3lxTFBwMUFJT0R2Wl9tVjJTaFp3RlpoNE01MklONk5RaWdQenRFNEJGYnJJRlIySkg3WElTdXY5SG0zdXMtbUNmSDI5R0k3ZXRCRkREa08zZ3lqcGhiVHRQbFBHOWRoOWpUWVVaVUJVVlRzbi14Y2x0dHRNakt6WlZRdw?oc=5) |
 | North Carolina Republicans heed Trump’s call to redraw congressional map - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPWWxwbmpGSWZ6M2txd19CNl8yUFdLMjRhMi1TUFpPTThBNUZBdEE3S0xBNlduRThpY0lYY19xUWlsNXBueGZ3S0p5a0dQcm1SNE4zZTZ0RVJoRlY5cjNhZm5LZlRBcGdQMFpZeW50aEYycXVPdXc2M2ZVbThoaHpDTXRuWFpueF9mVXMxSWdpYmVabkVV?oc=5) |
+| 4 arrests made in connection with Mississippi mass shooting that left 6 dead, FBI says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1GLVJQR3ZBN3JISjBnSGRXX0hTQUwwRUYtSU1EUHltdXZrdDI5c2ZSaHFRdFBxMThfdldYWHFNQ1k0QTVaeDBTLU00U0twdDgzblB0Y2xZLTRyaWlmMWlfazNSdkhNelMyQXYtcGIxUm5SUmtiQlQ5Z9IBfkFVX3lxTFBwMUFJT0R2Wl9tVjJTaFp3RlpoNE01MklONk5RaWdQenRFNEJGYnJJRlIySkg3WElTdXY5SG0zdXMtbUNmSDI5R0k3ZXRCRkREa08zZ3lqcGhiVHRQbFBHOWRoOWpUWVVaVUJVVlRzbi14Y2x0dHRNakt6WlZRdw?oc=5) |
 | What Republicans could offer Democrats on health care after the shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQMmlPbVdsU2dYcTFsRklCY1c0SmdENGpGeFRLMFdTVl9mbWtqRldBVUdXYXBDcWJmMWhpT29WT3NBOVk4eUswVEczM1hEM05aa2h6S0pSU2VXUE5rZnIza04yWmxnQXgweTVNWlJEVDQxZ1dwcEVVRjhHM0U3SjZ4YnVPQ1hsbUFqcW40X0Zwa3BidE5ZUDBnNG0xSFRwdVRWclE?oc=5) |
 
 ---
