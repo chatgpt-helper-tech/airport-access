@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月14日 08:57:17（北京时间）**
+🕒 更新时间：**2025年10月14日 09:01:07（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Hostages freed, prisoners released, as Trump hails ‘golden age’ in Mideast - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxNRlJlT054NFlzUlVaeTdnYmRGc2lJM3pPVzdiYTFxVnlaZ1VFb2FTbGF2eG94SWJPTXc2Tml1RWxIRmRoUlRiRDg1NFBrWmV0WGd6eXZLcFpnNmZNVjJjNGxZQmhSSUNFZHBJU2RxOFJHUjltUTVLOFFTSXBtYmY5MjdTRXhyc1hGUTZNSHlfS1NzWTBZczk2cWp3QVI5Q0ZtWi1qUC1JdjRkb2tUU05UU0VwdktvUklnb0g4dGlFYVBMZkdid0RHSGRUWGc3QTVSUHc?oc=5) |
-| CDC purge hits 600 workers in key offices despite reversals - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE4xQ21PUEJGV2ZzamczRWhSUnEzTDJfTmFwaXNsc0tSc0RpWEN6eFM3Q2R5dl9vd29oSU9fT2F6Z3FRdFVtMk1wU2FieTg3SGZDd3huWUtMTW10eWlzN01pdG5VUFVPT201VmhadU54UGNqbkM2NUw4?oc=5) |
 | How Broadview, a sleepy Chicago suburb, became a hot-spot for ICE immigration protests - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOSlhDLTBPOWdxZFhBT2FtOVYwSE5vWVViWElNN0htZExfMnduTWNNWDhHc1RvY1RZQkN5aTVlTmduWWd4VmtfWm8yNE5QdEw4ZWtZT3dHRGw3WmM2U0MtSlFRald0dHBCcWF3UHBoVmYtcDBYOVd3aldsRnhabEU4SVhOQ3Y4am1xQ1dDam5PSHR4TUU1M01OY0dvd1dHd2Np0gFWQVVfeXFMTUt5LXpQM2tqWE9CaUE2UnJXN0xybXRpcXZqcUlCSVc4U3Z3cGp3a3dGVi1Dd1ZRYnJYZFZlR0dpLUVTTE52SkpoLTBIVUptc1ZyM19MSUE?oc=5) |
+| CDC purge hits 600 workers in key offices despite reversals - Axios | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE4xQ21PUEJGV2ZzamczRWhSUnEzTDJfTmFwaXNsc0tSc0RpWEN6eFM3Q2R5dl9vd29oSU9fT2F6Z3FRdFVtMk1wU2FieTg3SGZDd3huWUtMTW10eWlzN01pdG5VUFVPT201VmhadU54UGNqbkM2NUw4?oc=5) |
 | Palestinians celebrate as prisoners are released by Israel under Gaza ceasefire deal - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQNWNRQTBBZWl2cUNTeUlYeEowNngxMWx2V1gxcUFuS3ItaGxaay1aS0lhTFlfLWUyV21YSzdMVUwzcjAySG83N0Ixcm80MEVtb3RnR1BoYXpxRlJRYXNEYzdoN3dka1Z5eHhlZFNuclZWcXRoSVNSS2JDN09Kc0VkdnZB?oc=5) |
 | Dozens rescued as remnants of typhoon hits Alaska while nor'easter brings flooding to East Coast - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQb1YtdElUNEZRUGdQNld0NVQ2c2NLdEFnMW85Z1NqMjY1XzZVUnpPaHA4bWlkT0FmNFdxTWZmZHp2cnQzZ3AtbmtEZ0JaOUFXVWFpaDBxS3J5NEdQS2RydWN5eGpqbHEzSXc3ejduZm9xT25EN21mTFhwa2tZZGJtTWJIOEhnZUNDYlRDOTVOWVBrYUJoU0hkeVowd3hiVDVqU1ZJRld3?oc=5) |
 | Government shutdown could be the longest ever, Speaker Johnson warns - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPLURHbmZIV1JvTnoxcGpsTmxsWnZVd20xb3FUcGluMWRFbXZZTXpfLVZxUGJzSnRQblZLOWZyc2dYODZmVUZROWVKWHhWaV9wMXN4Qi15Y09LOC0xMUE0NXBGY1lRdFJ0T1VYT1lmTWJzQjkwVDJmYkJCMENvS2Y2WWxyazB5TmUyYXJUaXRyMHVaWE1NbzBHRVhDVS1tZFF0UTZURldCSmN0azliWnY4QnFmWEdPQ1c1?oc=5) |
