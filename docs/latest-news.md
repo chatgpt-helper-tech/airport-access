@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 05:56:17（北京时间）**
+🕒 更新时间：**2025年10月16日 06:00:53（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | Government publishes key witness statements in collapsed China spy case | [阅读全文](https://www.bbc.com/news/articles/c0ex172rxwzo?at_medium=RSS&at_campaign=rss) |
 | Funeral director admits fraud charges after inquiry into human remains at his premises in Hull | [阅读全文](https://www.bbc.com/news/articles/cwyplw17897o?at_medium=RSS&at_campaign=rss) |
 | 'Worse than starting from scratch': How big is the task of rebuilding Gaza? | [阅读全文](https://www.bbc.com/news/articles/cr5e4ee9r13o?at_medium=RSS&at_campaign=rss) |
+| Giuffre accuses 'entitled' Andrew in posthumous book | [阅读全文](https://www.bbc.com/news/articles/c0kpjyjyrlno?at_medium=RSS&at_campaign=rss) |
 | Reeves says she is looking at tax rises ahead of Budget | [阅读全文](https://www.bbc.com/news/articles/c2drpzxpkp3o?at_medium=RSS&at_campaign=rss) |
 | Celia Imrie's fart steals the show on Celebrity Traitors | [阅读全文](https://www.bbc.com/news/articles/c4gpr5j3kgdo?at_medium=RSS&at_campaign=rss) |
 | Baroness Mone-linked PPE firm misses deadline to pay £122m | [阅读全文](https://www.bbc.com/news/articles/c629rdgyzl5o?at_medium=RSS&at_campaign=rss) |
 | Cracked windscreen forces US defence secretary's plane to land in UK | [阅读全文](https://www.bbc.com/news/articles/cd67qe0255vo?at_medium=RSS&at_campaign=rss) |
 | Dozens in court over alleged support of Palestine Action | [阅读全文](https://www.bbc.com/news/articles/c051g2q5651o?at_medium=RSS&at_campaign=rss) |
 | Man who murdered girlfriend in hot tub is jailed for life | [阅读全文](https://www.bbc.com/news/articles/cvgvx134d86o?at_medium=RSS&at_campaign=rss) |
-| Controversial UK oil field publishes full scale of climate impact | [阅读全文](https://www.bbc.com/news/articles/ce3xzgdqw3ro?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,7 +30,7 @@
 | ‘This is so vile’: Young Republicans face backlash after racist chats leaked - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxONXVxX1VGdkprTUxJWjJkeGpjWnV1blI1SDRpNU1XQVlTZ2Qzd3I4dUV5elZqWmJfTmRnQnJxTHlyNFVFVkVjS1dhblBNcVgzQmJVYzRNOV9KZWloc0NzdHdhQ2QxZFhSWHEtOFhqRFBLN1M4N29rOEltc1dBQ0gwYWV5dVB2TWRZSGk3d0ItZ0thdEEybUZlOE10RG1KejRJ?oc=5) |
 | Cracked windscreen forces US defence secretary's plane to land in UK - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5wcWROYVdIN09xcDVkd0I5UElyRk1PMjBHUFQ0TXRoWWZlOVdxU2JzWGVPcFpaVDF5VUtqTVZCc2x1eC1UTXh0RVAxY0ZXOU1KMVM5YjdQYXhEd9IBX0FVX3lxTE9rUHhfMEtiR2xZSEJONzVwUmlyRXJmWjdrWXJxYzRiVVdueHF2WEpJYXFBSHF3ektBVVdrRkNsZV9pOWdvOU1GWGdsUV9maE44QWdoQ3RhRFUwTmxadTNN?oc=5) |
 | Capitol Police called to investigate swastika in GOP congressional office - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQWm5xX2puM0drVWs3c1V0Wl9jN3ZGLWV2R1FVcldXWUNvVEdvMGJLOF9yY2x5aTFZVUNmRHpLYzVPdXRobWlmbFpCeC11ZEpLdXNaM2ZUOXhkdGpFM0VsM0ZNTTlXRjV4NHBMVUpvakJwUzIzYk1uRGhZRU05YkExWV9aZ01XVmtDWFlkZkVNcUZwNnhkYS11TnhucGNNQ3BUbTMxZ1c0WmtKc0cydDBTZzk1SVRQdw?oc=5) |
-| Trump Administration Authorizes Covert C.I.A. Action in Venezuela - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOQWZPQV91T09oWEZKOFlFTVA1a25jYmVzc29XaEsxangxQXZIVmw0aE1xUXN2QzEtYkp0T1RLemJrbkF0Uk1MQ250SGM4d0VUeDhyX0IwQ2R0Uk5RTEwtUmpsME9NRFlnLTBraUxnZ3VlVlhwV2g1V0doWnM1Z2hYNXhHc2N1SlAzcU82ZkJ3?oc=5) |
+| Trump confirms that he authorized covert CIA operations in Venezuela - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBTNk81cWhoa1pybUttY1lxTDkzYUltOHNBR1JQUXBLRk05eGlpOW1lREpDWXRnU1liQ2FvdzRrbGxweFVFNjNxWl9yb0VPa1NKYjh0dVF4bXRqR1BNaXZnOXNFR1ptUHZwaEVpaUhUbTc0WEJ2djlFeDNSVkd6VFU?oc=5) |
 | Democratic senator shouldn’t run at age 80, new primary challenger says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPdEJxcHU0RXp2b0xtUWFORW8tV3Vramp1MUZCWW9HQ1VSWnZlMTdZVzRyV01wb2VFWjdGWHJobko4a2dMSDdTYVB1VU91akJpUWNXMkZjaFJ5SmNHenF0UTlwM2NXWUFyMnFfR1VJOUVGNnFwYm9OT3FXWGpNbzY3enMxM2dZamVWV013SUNKdw?oc=5) |
 | Journalists turn in press passes as Pentagon clamps down on access in ‘unprecedented’ move - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNekU0aFVqMHFQT0pCc21UM2dNaGFiTFNZbjRkSnFrTHRNRERDeWsyWUR2Sy1Cb3I3Vmw3bGZIZDdFUVRnUVdvXzR6OVdlbmtVNFJTM0ZUNllLM2t5OGQ1bFFkZktxYWM4RWRreDM2ckhWeHRQT3MwSHZZQUNadXNtN1VyRlhBVXJzU3JoVGZoQnFTdw?oc=5) |
 
