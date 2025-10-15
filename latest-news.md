@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 16:33:11（北京时间）**
+🕒 更新时间：**2025年10月15日 16:41:42（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | You can't escape, says victim of train sexual offence as reports rise | [阅读全文](https://www.bbc.com/news/articles/c39r2zp1dw7o?at_medium=RSS&at_campaign=rss) |
 | Government under pressure to release collapsed China spy case evidence | [阅读全文](https://www.bbc.com/news/articles/cql9v6x4wpzo?at_medium=RSS&at_campaign=rss) |
 | Red Tractor ad banned for misleading environmental claims | [阅读全文](https://www.bbc.com/news/articles/cx2lmnvj3n5o?at_medium=RSS&at_campaign=rss) |
-| Stars pay tribute to D’Angelo, after his death at 51 | [阅读全文](https://www.bbc.com/news/articles/cwynv40ly4vo?at_medium=RSS&at_campaign=rss) |
+| 'He transformed R&B forever' - Stars pay tribute to D’Angelo, after his death at 51 | [阅读全文](https://www.bbc.com/news/articles/cwynv40ly4vo?at_medium=RSS&at_campaign=rss) |
 | British social media star 'Big John' detained in Australia over visa | [阅读全文](https://www.bbc.com/news/articles/cwy196k9p4po?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
