@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 11:40:25（北京时间）**
+🕒 更新时间：**2025年10月15日 11:48:59（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Israel names 4 deceased hostages as Hamas hands over 4 more bodies - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOcXVZTzJBbklBWG9ZU2FCNHEwd1VFMXVqWkp2eWgyU1IwNFVkbjZ0MFE4aXlrOTlueGlpdXoxVnZvdUFuRnp2SmRCcW9FREs0bUZJLTRzYno5WFZERmZYalhFVU8yc0dvZ1JYR2E1ckJYZzdIZ2Ntd0NJZVU4MDl4UVZhWFh6WWlGTXc?oc=5) |
-| Trump Awards Charlie Kirk the Presidential Medal of Freedom - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOZXBQSXNlcEc5c0JsMnBZLU9mY2dwM0t5Z3lrUE5PN1ZvNDNwOUlncE1rVVYwdUNWR1lXSjNtUDVnbHY1Qk1CNU9kXzhFNV9KbmVQRkhpRE9JVXItbHdKU193TXRLaThadF9kbFR4b3lJelM2d3VIb2dXVFNubnpDc3B3?oc=5) |
 | Trump vows to disarm Hamas but won't say how, avoids details on what's next for Gaza - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQSTJZTXZVNXVIdzEtaU9hblJQaXo0QjBUbnBYS29LRGpYOW1rWkhPMEJYTmhtOTNGNGR0aXR1U1RHVlZ6S29WeWdVZi1LaURQVUpZTHN0QmFmTHE3bDAyZlh4Z25oY0dRci1ySzlkRDJ4YjlHbXhYWEJVOFJHNllHYVRFc3dRSVJ3czdKLWNfVng0aEstMWVEbEJ30gGfAUFVX3lxTE9fb3JxUkJUajE2ZkRHRlYzaXd1eFhnbGZiR2pyN01teERmb3l2U2d3LUNHVm9icncwMzg3emFXdHJBY3lFb2lEZmpLWjhfbVU3QWVzOWRiR3IwZFNGMFBnM21aSXZSZEI2ek9GRUg4SHIzTk1xVDBxVk9sUkZzQXNCSXYtOFVvY3B4WEhxU0RKYjNYRHVYUlRRYzlhNzFIMA?oc=5) |
+| Trump Awards Charlie Kirk the Presidential Medal of Freedom - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOZXBQSXNlcEc5c0JsMnBZLU9mY2dwM0t5Z3lrUE5PN1ZvNDNwOUlncE1rVVYwdUNWR1lXSjNtUDVnbHY1Qk1CNU9kXzhFNV9KbmVQRkhpRE9JVXItbHdKU193TXRLaThadF9kbFR4b3lJelM2d3VIb2dXVFNubnpDc3B3?oc=5) |
 | Government shutdown live updates as Senate fails to advance GOP funding bill for 8th time - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOdFhTbV9NNy1uRmZQNmoxVGtZLWVTX2VYcng4bXhXSGtINU1qVTdOVEwwWVlhZHhnRlBROWd3TkVOR0pUcEtwMEhIUWI1YjA2Q0JJRGxJVHQ0Um9aVjBxeEV4NHZnc3VWRWtkS3B3cm56dmVBX2wzYU5tWHUtemdRbXhKUTFJTnRDRUHSAY8BQVVfeXFMTktuVzl3Nk5wd0tIWHpCLTJXbUxNQTRNMmtKTUZhRUNwbXhNMDdSWW1fN1JJVC00X3dBR3lvbGRBY3dVeC1oQTNCMnhJZzkyY0ZtUWhLdkt5ZFMxYjhYQUNLeTZyOV8zR1BnNEthNTQwOF9EUU1oOUU3MnpBTG54TFI0dkYyZE8tem1WZTJoelk?oc=5) |
 | News organizations, including Hegseth's former employer Fox, reject new Pentagon reporting rules - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOd01kdUFZSzlQc19VWkozZ1VRREw0ZXJVN01mZmp6c093d3ZENzVCNVNyekZPUHhRUDRGakZQWGR6T29rNHdyclRzdDFwTWRiTVg3S3R1RjFTLVdmWFdZUVlFY3RNT1k3b2hpNjRMMUJHd05RaVFMdXVrUGlIbGp2a2Zha1lLaFZCRHpyb1VxcFdiNDJtOTJveS1CeTJQSjQyTkowZEM3cGlQYkhiVm9YSFR2MDFTX3g0d3c?oc=5) |
 | With new cuts at CDC, some fear there's 'nobody to answer the phone' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1MTHdHWlNZTm42ejV1NFFFTDhoNVpLejZ0dzdBVnFYOGR4SUh6b01aXzJtVERWMVBSRUM1bDlsR0JCUjFyRDF5eWU0WEljSnpjOXJaRGREa3IyWjdRVzNrbkphRjVfcFVvN05GSG9oWWtxLVdYNERsdmpYQlZLdw?oc=5) |
