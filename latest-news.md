@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 20:56:23（北京时间）**
+🕒 更新时间：**2025年10月15日 21:01:06（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | Reeves says she is looking at tax rises ahead of Budget | [阅读全文](https://www.bbc.com/news/articles/c2drpzxpkp3o?at_medium=RSS&at_campaign=rss) |
 | Vets must publish prices so pet owners not overcharged, watchdog says | [阅读全文](https://www.bbc.com/news/articles/c201r14z6r3o?at_medium=RSS&at_campaign=rss) |
 | Reports of sexual offences on trains up by a third since 2015 | [阅读全文](https://www.bbc.com/news/articles/c39r2zp1dw7o?at_medium=RSS&at_campaign=rss) |
-| D'Angelo: The pioneer who charted a new course for soul music | [阅读全文](https://www.bbc.com/news/articles/c62e5e3j75vo?at_medium=RSS&at_campaign=rss) |
+| D'Angelo: A pioneer who charted a new course for soul music | [阅读全文](https://www.bbc.com/news/articles/c62e5e3j75vo?at_medium=RSS&at_campaign=rss) |
 | Pictured: Winning entries for Wildlife Photographer of the Year 2025 | [阅读全文](https://www.bbc.com/news/articles/cx253vrd931o?at_medium=RSS&at_campaign=rss) |
 | Man guilty of murdering girlfriend in hot tub | [阅读全文](https://www.bbc.com/news/articles/cvgvx134d86o?at_medium=RSS&at_campaign=rss) |
 | Stephen Graham hopes father-son book will 'continue the message of Adolescence' | [阅读全文](https://www.bbc.com/news/articles/cn40yyl8nvyo?at_medium=RSS&at_campaign=rss) |
