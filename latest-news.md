@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 03:57:33（北京时间）**
+🕒 更新时间：**2025年10月16日 04:01:34（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump says Israeli forces could resume fighting in Gaza ‘as soon as I say the word’ if Hamas won’t uphold ceasefire deal - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE16S3R3N0ZEdUxxZGgyUk9tdEg1TmlFOWhvRk1XdlZwU3ljYzhDS1J2S1NtcldCb20tdTRGYTFPUnh2dXViM3NaUGMxQThDY1pFdjNwOE84Z2dOM3J0NF8xUlhCWGI5Vm16cUxnZUlVekYwd040bHFIcEdWWQ?oc=5) |
 | ‘This is so vile’: Young Republicans face backlash after racist chats leaked - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxONXVxX1VGdkprTUxJWjJkeGpjWnV1blI1SDRpNU1XQVlTZ2Qzd3I4dUV5elZqWmJfTmRnQnJxTHlyNFVFVkVjS1dhblBNcVgzQmJVYzRNOV9KZWloc0NzdHdhQ2QxZFhSWHEtOFhqRFBLN1M4N29rOEltc1dBQ0gwYWV5dVB2TWRZSGk3d0ItZ0thdEEybUZlOE10RG1KejRJ?oc=5) |
 | House Democrat and Capitol Police union trade accusations over Tuesday incident - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQaF9IbWJrTkRTT0NmNnJqbW1FTjZ2NWFFU2pVRUtOT3pzZmlKQVRyZjlsOEt0dU1DU0ZacWhYZkVXVkdseWd3dktwaWYzb01CX1VJOXFGaXJmZnQyUDRSVC11Y2hEbWFjRllqcVhqeGNydFJsMkhISEdpRk5wLVVaSUJCQTlkWVVhckhzVC1sTnFlQmY0VE41S0ZPdWFTMUU?oc=5) |
-| Government shutdown live updates as Senate vote on GOP bill fails for 9th time - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNLWpCdy1aODI5TlFKR0Q2U2t6UTZyb0JjWU16SWZESW50UWIwNGJaN2g0aG5HRTh2LVBvOEROOGQwdEJiQ1RpMGlXeVZLbjQ4NHdVTEtIRnVvSTlMQUpscXU4bDdsZWVCS3VTdFp6N0pkSEpDV1FrSVRBRzk3VW5IaHMydGYwYjdIMHRQQlRHLXhEc3ozMVM1V0FEcVJMQdIBowFBVV95cUxQX09IVWdGSUxzeGYyVDVjbm5QRm1ZRy1HR0VldlJCTFpaaGZ4WnNFYUd2aEhCdmFMSXRpS0lMNEdqYWxlMTZWZGM4ajVQMjF0dmhyWXczNFo0MFE4Smd0S0NpWTFZYzZjQmFUY29hWVVZMW1Pajh5Si1uZmxYN1NXNEdoelhGekJ2UVl2MURjZEpKb3BJYkc5YXRaVkFxY3ZRZG5F?oc=5) |
 | ICE Is Cracking Down on Chicago. Some Chicagoans Are Fighting Back. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9oZWxwUENLMnEyeWJDS3c5TEl4Wml1NmxNLWJDYWJfVGtiaDN3RWlpNGgwdzFTM19MQ0IwTGVlRk55c1Q3d3ltZkhzODc1Q0g1V3NuX3RxSGNsRFNGaGFVZTRvdG9ib01sS0Jmaw?oc=5) |
 | More than 1,500 people displaced after typhoon remnants devastate Alaskan villages - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNN0tuZXgzZmRscEtWZ2lXdm1vRU1FS3QwelpVSXVrNU5vdVQ4MWpnOHdpbnRiTmwycDNtWkZWdTlnZU5vQTFpb3ZkTlJPMWkxNnNicVRLenNHVHBteWVaR0M4akh6YTNibFlNdEZ1VjdHQVBaUV8xeGdMdDNlb2J3c0t6Q3Z3UQ?oc=5) |
 | Capitol Police called to investigate swastika in GOP congressional office - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQWm5xX2puM0drVWs3c1V0Wl9jN3ZGLWV2R1FVcldXWUNvVEdvMGJLOF9yY2x5aTFZVUNmRHpLYzVPdXRobWlmbFpCeC11ZEpLdXNaM2ZUOXhkdGpFM0VsM0ZNTTlXRjV4NHBMVUpvakJwUzIzYk1uRGhZRU05YkExWV9aZ01XVmtDWFlkZkVNcUZwNnhkYS11TnhucGNNQ3BUbTMxZ1c0WmtKc0cydDBTZzk1SVRQdw?oc=5) |
+| ‘I’ll Have Eric Call’: Trump Sets Up Son’s Meeting With Indonesian President - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNb0NvR0FySFhkcXVqbTdWVDE3TGZJdWNneVZWcjZnbXhVVnBQNzJKd1lOQi14YWNrOFBEUV9ac216ZHhVb3hzX0lXRVBXVFVHNHNLVzd2MjBYQURFckIwMkFZRWVEVjREd2dHc1dya29TSlBzNXh6T2Fab2d1Ukt0ODR4WWozbVdrYWttbTNrLXNYSldNbTkxMzhnVnhLWEJmSHJtaDF1UTZmejRO?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
