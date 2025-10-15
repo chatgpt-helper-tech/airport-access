@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 16:01:41（北京时间）**
+🕒 更新时间：**2025年10月15日 16:09:37（北京时间）**
 
 ---
 
@@ -8,16 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Bowen: Trump's role in Gaza ceasefire was decisive, but not a roadmap to peace | [阅读全文](https://www.bbc.com/news/articles/ce86118q6ego?at_medium=RSS&at_campaign=rss) |
 | Vets should be made to publish prices, watchdog says | [阅读全文](https://www.bbc.com/news/articles/c201r14z6r3o?at_medium=RSS&at_campaign=rss) |
+| UK must prepare for 2C rise in global warming by 2050, government warned | [阅读全文](https://www.bbc.com/news/articles/cx24kllyye1o?at_medium=RSS&at_campaign=rss) |
 | AI couldn't picture a woman like me - until now | [阅读全文](https://www.bbc.com/news/articles/cj07ley3jnpo?at_medium=RSS&at_campaign=rss) |
 | How singing with other mums is helping women with postnatal depression | [阅读全文](https://www.bbc.com/news/articles/c93127z99yxo?at_medium=RSS&at_campaign=rss) |
-| UK must prepare for 2C rise in global warming by 2050, government warned | [阅读全文](https://www.bbc.com/news/articles/cx24kllyye1o?at_medium=RSS&at_campaign=rss) |
 | Pictured: Winning entries for Wildlife Photographer of the Year 2025 | [阅读全文](https://www.bbc.com/news/articles/cx253vrd931o?at_medium=RSS&at_campaign=rss) |
-| Government under pressure to release collapsed China spy case evidence | [阅读全文](https://www.bbc.com/news/articles/cql9v6x4wpzo?at_medium=RSS&at_campaign=rss) |
 | You can't escape, says victim of train sexual offence as reports rise | [阅读全文](https://www.bbc.com/news/articles/c39r2zp1dw7o?at_medium=RSS&at_campaign=rss) |
+| Government under pressure to release collapsed China spy case evidence | [阅读全文](https://www.bbc.com/news/articles/cql9v6x4wpzo?at_medium=RSS&at_campaign=rss) |
 | Red Tractor ad banned for misleading environmental claims | [阅读全文](https://www.bbc.com/news/articles/cx2lmnvj3n5o?at_medium=RSS&at_campaign=rss) |
 | ChatGPT will soon allow erotica for verified adults, says OpenAI boss | [阅读全文](https://www.bbc.com/news/articles/cpd2qv58yl5o?at_medium=RSS&at_campaign=rss) |
+| British social media star 'Big John' detained in Australia over visa | [阅读全文](https://www.bbc.com/news/articles/cwy196k9p4po?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | Trump administration revokes 6 visas over comments about Charlie Kirk - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNcFBKVHN0QXVEZTJtUXdJWThscjU5TjFrLW1xTHdjZXhwX2JlZ00yNjdaem11bFZ5QkxMZk1YTzZ0Mm1ROWNvTU82VXBfdDRlSHR2eWlUaEQxQ0RqNk05eU1uYXg2ODNFLXVINldLZ1JMZ3hYbHJOWHRhWUdkSXBSTy12RQ?oc=5) |
 | ‘His calling is not by chance’ — Scholars, members respond to Dallin Oaks as new LDS leader and new First Presidency - The Salt Lake Tribune | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQRnRsVEVnSlA4cS1yaDlJMGVuaUIzU2F3cV80V2VZVE9ORVdTTVEwMUxXS3JZSzJUZ1M4SzRubGxlSVY5N1pMQ3pDWVRCZlRCMWpkckttd3MtZU5ReHk2aHRtZllUTkx1aDZ1VVROcFB4akpyLU43Vi01dzRnSEZCRW5xVQ?oc=5) |
 | Judge Temporarily Blocks Transfer of Miami Property for Trump Library - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9CWF9OR3hFbG9HenhWcFpxUXFIczFsYlpua21DMUIwV1VUWnJ6U1d6TURmd1A5X0xkb1NPTjNfaGFrOXBiREYxSXB0aGpCV0JaeXNoX0haSFVxQVFac29mb0s0STRxUlNfUUpPbVVtYw?oc=5) |
-| Who are the Tennessee plant explosion victims? 16 people presumed dead in factory explosion - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNWW9QVm0wMmxyODloc1BJNmZaejQyR0RpOU9NakRiX04zS3NaODduQ1UxQjVLMERpNS1xVWpVVWJON1lvQ1ByMlJENmpJUTVtLXZfMnBWVWtKVDVTeXZMT21pRmNVQk1tNkczYnhneVJfOURTM2E5SVlvX2pjY0h0anVlbVUtNnFCYzlMaUpndnRNNjhrTUpwb3VVQno1Zl90OUtaNUpaaFdQUWctV25tWW11UDljOGNI0gFWQVVfeXFMT0EzWmZzYzA5ZDZvcFRaUG9mWHp2SG9mMktnLTJzdVF1LXR4QXhSNWI0d0JpZ19RUE5LRVFReFZVU2UzeHpQOVpCeHNMYVJUWGJsbXFVa3c?oc=5) |
+| Pennsylvania man pleads guilty in arson attack at governor’s mansion - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxONzFKblVIQlN1WXZsU2Y0Y0p1N1BHV3ZtM1BtcW9Gbl9ZV01TUWRPLXh5SU1KNE5oTXpaU1dKWWhWdEtuclo5cUg4aGEwMWZ6azlPN3lxQWJGeXBTLVNaNlBraC14YUtFN2NDbTlYVEw1eWZ0X0ZIN3o1TnBtZG1BLUNSMlhMUFVRTVctaU92QkJqaU1lQUJXbUVhSWJ1ODdydlQ2ZA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
