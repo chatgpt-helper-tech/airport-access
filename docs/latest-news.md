@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 21:33:52（北京时间）**
+🕒 更新时间：**2025年10月15日 21:41:17（北京时间）**
 
 ---
 
@@ -15,16 +15,16 @@
 | Pictured: Winning entries for Wildlife Photographer of the Year 2025 | [阅读全文](https://www.bbc.com/news/articles/cx253vrd931o?at_medium=RSS&at_campaign=rss) |
 | Man guilty of murdering girlfriend in hot tub | [阅读全文](https://www.bbc.com/news/articles/cvgvx134d86o?at_medium=RSS&at_campaign=rss) |
 | Stephen Graham hopes father-son book will 'continue the message of Adolescence' | [阅读全文](https://www.bbc.com/news/articles/cn40yyl8nvyo?at_medium=RSS&at_campaign=rss) |
+| Oxford student arrested over chants at pro-Palestinian protest | [阅读全文](https://www.bbc.com/news/articles/ce8gdelw79po?at_medium=RSS&at_campaign=rss) |
 | Asylum hotel a 'feeding ground for unrest', High Court told | [阅读全文](https://www.bbc.com/news/articles/cy8v9jzn5zgo?at_medium=RSS&at_campaign=rss) |
-| UK must prepare for 2C rise in global warming by 2050, government warned | [阅读全文](https://www.bbc.com/news/articles/cx24kllyye1o?at_medium=RSS&at_campaign=rss) |
 | 'Time to begin healing together': Israeli hostage couple reunited after 738 days | [阅读全文](https://www.bbc.com/news/articles/c5yp0j0l3glo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Israeli military says one of the bodies handed over by Hamas is not that of a hostage - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOTlA3YkE1ekF6cnE4a04tMGJta0pyeFNjQkttd0FoakRwZnJYcy1QVWVpTEI3cWplRmowbWVyU0RGQk9YejhSR3cxN3pJazVqUERmMDRLdm9ZS2Fhc00zU3lQbzhGM2Q3OWc3MGNwQVpSYWxJdkJsOXdXbjY0dEU0blRDVTAtRVZHeVoyWlZ5OXMtTXpZUVM1ckhPZURvUWpZeXpPck5uSnB1OGM?oc=5) |
 | A Supreme Court ruling on voting rights could boost Republicans' redistricting efforts - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQcDllejJOdU9wNDFYcVdic21yZEgzUm94Z3FyM3ZHYlhkOU9WVXRJbF9EUnkza243c1VodVRwZmVuMnU2eGhvdkwxQTI3dkZmd0pZY2I5enQ3Z2lyYlNhSWpPZEc2VXlycUJXZVZ4WjI2VGIySVkxN2tyblMwV0FIVkJJUDg1clVpN1JPSlJkM0ZsSnJuUmFZU214SThNTkcxZVE?oc=5) |
-| Israel keeps Gaza border crossing closed while reducing aid deliveries - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOSkFjWVdxM2lYbkJqMS10aEpJYzY1R01oOXh0eHZtSlVxTXhKaFZLUG5KWXFNY1FJSGdGdU9jMV9kLVd4ZENoTjVYRXN1Z3VncUpTa1hfQzRNVllPb1cyTHNNcml6bjZJUUlSSHhFblZVVm1OYzFLSGozX1VDeDQwWXlR?oc=5) |
 | Major media outlets, including Hegseth’s former employer Fox News, decline to sign new Pentagon reporting rules - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQZFg0dmRWV1dZSEVYSjBNOHhvTUt0TVNVTjFSSHY5eWN6QW1iRGd5Q1hkZjVCUHZJY1FPM3ZrdTgzMk1IUi11ZEdVZWgxYk9TNW41WEg3Rm5BLUtYb3dsbW5yMm9rbjc5RHlNazlGSzRIaW1xc080UkJQaVF3WlRNYmQyVTZmdUl1aXU4eTFaQQ?oc=5) |
 | Trump targets China cooking oil trade - but sales were already tanking - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOME1ja3ozXzNsRjVhZGhyVDk4R0tJZnR5Ui1XRUoxWmFPZG1sLTBLZkxiQ1dRRm4tTG9zR1pZMWRYMmIyTUFnOElILWREUC1jUmdZZ0Zpd3JIeHBHZGRrYnlGenNfSnptV2p2VmJ3eUdhX2w0V2tEYnNKNWNjdGNZdHRGc2h4Tnp3d1BYeUV6Zjl1MnFqa2tWVkZ1a29PT1pJVzZjZjEtUUtIeFJuWmhLSVlGU1REck9GUTJGRjlB?oc=5) |
 | ICE Is Cracking Down on Chicago. Some Chicagoans Are Fighting Back. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9oZWxwUENLMnEyeWJDS3c5TEl4Wml1NmxNLWJDYWJfVGtiaDN3RWlpNGgwdzFTM19MQ0IwTGVlRk55c1Q3d3ltZkhzODc1Q0g1V3NuX3RxSGNsRFNGaGFVZTRvdG9ib01sS0Jmaw?oc=5) |
