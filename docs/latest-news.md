@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 15:40:56（北京时间）**
+🕒 更新时间：**2025年10月15日 15:49:48（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Multiple Texas airports are refusing to play video from DHS’ Noem blaming Democrats for government shutdown - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPNUhMUVU5THhlc0REMVJ2VVhvN3lzUWtqUGx4UVc4Y2JHMm9MYzR6c1FFeUFoN0hoWldaQ1BKcnF6RDJ0Z2NGNDdmdERVREIwdGhoWEJNbDI3Z3BQcFZOSS1CUTc4dVZXODVoMlRMQmNZYWRtelBhamdtWDEydWVubTBJTUNIY2JBZDBfU2dGOThXcXFBdnNqZDV3VUJUdw?oc=5) |
 | Trump vows to disarm Hamas but won't say how, avoids details on what's next for Gaza - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQSTJZTXZVNXVIdzEtaU9hblJQaXo0QjBUbnBYS29LRGpYOW1rWkhPMEJYTmhtOTNGNGR0aXR1U1RHVlZ6S29WeWdVZi1LaURQVUpZTHN0QmFmTHE3bDAyZlh4Z25oY0dRci1ySzlkRDJ4YjlHbXhYWEJVOFJHNllHYVRFc3dRSVJ3czdKLWNfVng0aEstMWVEbEJ30gGfAUFVX3lxTE9fb3JxUkJUajE2ZkRHRlYzaXd1eFhnbGZiR2pyN01teERmb3l2U2d3LUNHVm9icncwMzg3emFXdHJBY3lFb2lEZmpLWjhfbVU3QWVzOWRiR3IwZFNGMFBnM21aSXZSZEI2ek9GRUg4SHIzTk1xVDBxVk9sUkZzQXNCSXYtOFVvY3B4WEhxU0RKYjNYRHVYUlRRYzlhNzFIMA?oc=5) |
 | Major media outlets, including Hegseth’s former employer Fox News, decline to sign new Pentagon reporting rules - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQZFg0dmRWV1dZSEVYSjBNOHhvTUt0TVNVTjFSSHY5eWN6QW1iRGd5Q1hkZjVCUHZJY1FPM3ZrdTgzMk1IUi11ZEdVZWgxYk9TNW41WEg3Rm5BLUtYb3dsbW5yMm9rbjc5RHlNazlGSzRIaW1xc080UkJQaVF3WlRNYmQyVTZmdUl1aXU4eTFaQQ?oc=5) |
-| Donald Trump says US support for Argentina is ‘gone’ if Javier Milei suffers election losses - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE00UWhTTEgwQVFMVndQYjJBbHBmbHh1VjBxUGpKVkxobVY2QVlRZGxhVzhvWjBTd1JYYWUwaUNsSnRFZzVxQkpmc0xQS3l4aHdEa0QwaUxkQ2poNjJpZ1c1MU81SVljMEo1ZFRWcXRKYUg?oc=5) |
+| US kills 6 people in strike on boat accused of carrying drugs near Venezuela, Trump says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPWlpiSUxZaHB6ZDd1cWl1TG93WWpzU0plLUwwQUNUTW9JRzhGb2FrQ3hjdkFQN3ZYN0ZLWG9FTmpGeUtXeUdVeUFMZ3ZYRGhONWZmck93U25mbHpRNG5xWXBobUFQc1J3VmRSUW1WNzZNcWFYVjlCTEhQeGltdGNHN1hCVDFuWmZ5a0dRLW5PWFNFUVRCb1Z0aG80WFpxcHQ3cGsw?oc=5) |
 | Trump administration revokes 6 visas over comments about Charlie Kirk - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNcFBKVHN0QXVEZTJtUXdJWThscjU5TjFrLW1xTHdjZXhwX2JlZ00yNjdaem11bFZ5QkxMZk1YTzZ0Mm1ROWNvTU82VXBfdDRlSHR2eWlUaEQxQ0RqNk05eU1uYXg2ODNFLXVINldLZ1JMZ3hYbHJOWHRhWUdkSXBSTy12RQ?oc=5) |
 | ‘His calling is not by chance’ — Scholars, members respond to Dallin Oaks as new LDS leader and new First Presidency - The Salt Lake Tribune | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQRnRsVEVnSlA4cS1yaDlJMGVuaUIzU2F3cV80V2VZVE9ORVdTTVEwMUxXS3JZSzJUZ1M4SzRubGxlSVY5N1pMQ3pDWVRCZlRCMWpkckttd3MtZU5ReHk2aHRtZllUTkx1aDZ1VVROcFB4akpyLU43Vi01dzRnSEZCRW5xVQ?oc=5) |
 | Judge Temporarily Blocks Transfer of Miami Property for Trump Library - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9CWF9OR3hFbG9HenhWcFpxUXFIczFsYlpua21DMUIwV1VUWnJ6U1d6TURmd1A5X0xkb1NPTjNfaGFrOXBiREYxSXB0aGpCV0JaeXNoX0haSFVxQVFac29mb0s0STRxUlNfUUpPbVVtYw?oc=5) |
-| Man pleads guilty in arson attack on Pennsylvania governor’s mansion - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxONWVOdHlGQWZqWkN0bXJKaGllVUY3RGxiREduWnBrUDRUTUhma2hkTDRYckp0Y2FGVWJQcEkwbEdRdnR1b1RJbWJoQzRjUm5Zbk5Oc1pXOWJfdzhaTHZEcUY0SlMyNGcwdzJvc1duNmZjeHdWSWRtNUtlamZIaENfMkRmbmNvdkc4VUp3?oc=5) |
+| Who are the Tennessee plant explosion victims? 16 people presumed dead in factory explosion - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNWW9QVm0wMmxyODloc1BJNmZaejQyR0RpOU9NakRiX04zS3NaODduQ1UxQjVLMERpNS1xVWpVVWJON1lvQ1ByMlJENmpJUTVtLXZfMnBWVWtKVDVTeXZMT21pRmNVQk1tNkczYnhneVJfOURTM2E5SVlvX2pjY0h0anVlbVUtNnFCYzlMaUpndnRNNjhrTUpwb3VVQno1Zl90OUtaNUpaaFdQUWctV25tWW11UDljOGNI0gFWQVVfeXFMT0EzWmZzYzA5ZDZvcFRaUG9mWHp2SG9mMktnLTJzdVF1LXR4QXhSNWI0d0JpZ19RUE5LRVFReFZVU2UzeHpQOVpCeHNMYVJUWGJsbXFVa3c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
