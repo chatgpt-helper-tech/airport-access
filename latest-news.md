@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 21:49:12（北京时间）**
+🕒 更新时间：**2025年10月15日 21:57:39（北京时间）**
 
 ---
 
@@ -27,11 +27,11 @@
 | Israeli military says one of the bodies handed over by Hamas is not that of a hostage - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOTlA3YkE1ekF6cnE4a04tMGJta0pyeFNjQkttd0FoakRwZnJYcy1QVWVpTEI3cWplRmowbWVyU0RGQk9YejhSR3cxN3pJazVqUERmMDRLdm9ZS2Fhc00zU3lQbzhGM2Q3OWc3MGNwQVpSYWxJdkJsOXdXbjY0dEU0blRDVTAtRVZHeVoyWlZ5OXMtTXpZUVM1ckhPZURvUWpZeXpPck5uSnB1OGM?oc=5) |
 | Major media outlets, including Hegseth’s former employer Fox News, decline to sign new Pentagon reporting rules - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQZFg0dmRWV1dZSEVYSjBNOHhvTUt0TVNVTjFSSHY5eWN6QW1iRGd5Q1hkZjVCUHZJY1FPM3ZrdTgzMk1IUi11ZEdVZWgxYk9TNW41WEg3Rm5BLUtYb3dsbW5yMm9rbjc5RHlNazlGSzRIaW1xc080UkJQaVF3WlRNYmQyVTZmdUl1aXU4eTFaQQ?oc=5) |
 | Trump targets China cooking oil trade - but sales were already tanking - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOME1ja3ozXzNsRjVhZGhyVDk4R0tJZnR5Ui1XRUoxWmFPZG1sLTBLZkxiQ1dRRm4tTG9zR1pZMWRYMmIyTUFnOElILWREUC1jUmdZZ0Zpd3JIeHBHZGRrYnlGenNfSnptV2p2VmJ3eUdhX2w0V2tEYnNKNWNjdGNZdHRGc2h4Tnp3d1BYeUV6Zjl1MnFqa2tWVkZ1a29PT1pJVzZjZjEtUUtIeFJuWmhLSVlGU1REck9GUTJGRjlB?oc=5) |
-| ICE Is Cracking Down on Chicago. Some Chicagoans Are Fighting Back. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9oZWxwUENLMnEyeWJDS3c5TEl4Wml1NmxNLWJDYWJfVGtiaDN3RWlpNGgwdzFTM19MQ0IwTGVlRk55c1Q3d3ltZkhzODc1Q0g1V3NuX3RxSGNsRFNGaGFVZTRvdG9ib01sS0Jmaw?oc=5) |
 | Seth Moulton to seek Massachusetts Senate seat held by Ed Markey in generational fight - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOYXA3VFRBVzBVRm8tQ3FsZjhfNlBzUHNuU0htdVp1MW5QQS1LMUJOdmtBblVoSzF6enNNa3FVNTNFdDRIaGpxY0x1NlhXekdla2ZMNWRESlNYYUtUWHE0ZE5DdHh0WVJIS3g0M0JITExGUGhlc3BTZVZtVDdXejhQdDlPT2czZw?oc=5) |
+| ICE Is Cracking Down on Chicago. Some Chicagoans Are Fighting Back. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9oZWxwUENLMnEyeWJDS3c5TEl4Wml1NmxNLWJDYWJfVGtiaDN3RWlpNGgwdzFTM19MQ0IwTGVlRk55c1Q3d3ltZkhzODc1Q0g1V3NuX3RxSGNsRFNGaGFVZTRvdG9ib01sS0Jmaw?oc=5) |
 | Man pleads guilty to arson attack on Josh Shapiro's home - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQSy1SWHVndlFpZ3JXN3ZIU29rMHRyMTlUWXdrQTdkS1NBaEhza2dZOXRoUjJxb0ZlUktBNmcxSVFQQjZQSi04UFNYekVjaGY2aGxZYlZ2aUNqTGhubVROWTNYOWc3WS1SbUZydzNfX05NR3FpSXM5dkU2b1hueGprNkpsbnllUnZHZUdB?oc=5) |
-| Trump demands Hamas disarm, as group moves against 'collaborators' in Gaza - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBqTEF1QWhZTzhmcUxfVXFvWDQwbjAtUjc5MXQ5ekd6RDdvUzhPeHI5X3BnRk10VTJOV0xvSnVnRUxCdFp6QzlDZFVrbHJxTmZqYW9JNndqVlhyd9IBX0FVX3lxTFB3cGdVSnBwbHlVUnpWbjFhMEdrdG1pX0JEaXNOX3A5eklfRGZEbUcxU1ctOVVKejFDdi00X1FuMmVfSmF5bW9uSDB3Nkt5REMzLTdUa1NKcWtVTk1kYzBv?oc=5) |
 | U.S. Says It Revoked Visas of Some People Who Criticized Charlie Kirk - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQSXJ6QTB5ZnNfbC1SeEdzUFFkdkRJYThOR0JsRGxWb211Q2tpTFFoRzVBTmw3LTMwaWVuZHlETU40TTdTRVV4Ym5UQUplaWpqT1FYNHRwU3ROdHVmYlRXbnMzVklxNWxPRHJGTDIzazZnUnhBcF9sOExiRHdyQzQ1QTdTT3JVcFRXYUlIQ2hRUFM?oc=5) |
+| Trump demands Hamas disarm, as group moves against 'collaborators' in Gaza - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBqTEF1QWhZTzhmcUxfVXFvWDQwbjAtUjc5MXQ5ekd6RDdvUzhPeHI5X3BnRk10VTJOV0xvSnVnRUxCdFp6QzlDZFVrbHJxTmZqYW9JNndqVlhyd9IBX0FVX3lxTFB3cGdVSnBwbHlVUnpWbjFhMEdrdG1pX0JEaXNOX3A5eklfRGZEbUcxU1ctOVVKejFDdi00X1FuMmVfSmF5bW9uSDB3Nkt5REMzLTdUa1NKcWtVTk1kYzBv?oc=5) |
 | Trump ‘optimistic’ he can bring Russia and Ukraine to peace after Middle East hostage exchange - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxNZXFxLUs0UVItdWRrMDU0N3hQejA1cXQwYUZFRjBKVmdYby1IWWtsck5kaGFucUJBNlotbzRlUEZ5MkNZOENpRWNXLTJ3cy1tdi1YNkNxSkMtd180enZiSF9SQkM3Q0dVNEtJMmZjRkVxcHB4S3BXLVN4OXN2UHZQX3ZrM0puVXdlY0l3RExIRG94M1BPbGNEcnc0MkhvOUQ5QWJjSjBuZHl4OHZmX1hhUUhNYjh5WFowd1Y0TnRPMGM?oc=5) |
 
 ---
