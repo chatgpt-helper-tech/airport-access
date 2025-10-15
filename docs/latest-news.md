@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 06:24:24（北京时间）**
+🕒 更新时间：**2025年10月16日 06:32:52（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Judge blocks Trump from firing federal workers during government shutdown for now - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1HYlZrdXFyU1c1Mm8zT0ZCd2VKM2wyZzNhZEowMVA1Q2JNUExXV3I5bG5zY3Jmc0ktUUlkcXlndnJsV0hTUkJ6MkgxOGtoYnhxSlhYV0didm82Zk9qbmFQOW9GWEl6LWh1VUdPY1cteW5hbk5VWFVSa1Q5NVFsd9IBgwFBVV95cUxOMEFjQjFUaUlvamVMVldqTnRFN1lfalhoMlBjUmpvSDBlZHBoYmFISTBHTkdtdmQyZEhjMmxjTVVneW1YTFRTWHE0XzFITHkyNFU3aFpvTUczY2x0OHZPZURUbHFKNkhXT3NBUmN4ZTQ2QkxIUURCOXV4VUpqS0VYSWI2NA?oc=5) |
-| Live updates: Hamas says it has handed over all hostage bodies it can access - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNb19PYjJzRndvTF9Mdnpfbm45T0Fuc3pWQk9BMXpvcjNicHJuZGc1NmxpTTYwTTU2QkJzQVlHNUg4VjVhNDdyWnBqOUo2N1RNZjFSOHZaanJHQzl1OUh5VE1Gakw3X3JmWnBUWC1sM1p4NXgweXNTN3cyQXpRMGtVSlkzZUZiZ3c?oc=5) |
+| Judge temporarily blocks the Trump administration from firing workers during the government shutdown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOM2ZKYXFhQmVkMU42QUY1RmtzXy1id2VLYjZFcUNsZ3FHdTd2UF9nR3dxYzNKeEhOSFFUMnNpeG1oQm5JOWNadTRvYmR6TDIyVlZmY0pXeTRNSXRaeXRObE1ZTDlpYk16c0k0SFJ4dTRHQVNJUjF4alI4U3hrMks4MG1PWl9XbF9hOU9XT0VkOHNOMzJicjdFZXloanVZb1h4Wmc?oc=5) |
+| Israel keeps Gaza border crossing closed while reducing aid deliveries - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOSkFjWVdxM2lYbkJqMS10aEpJYzY1R01oOXh0eHZtSlVxTXhKaFZLUG5KWXFNY1FJSGdGdU9jMV9kLVd4ZENoTjVYRXN1Z3VncUpTa1hfQzRNVllPb1cyTHNNcml6bjZJUUlSSHhFblZVVm1OYzFLSGozX1VDeDQwWXlR?oc=5) |
 | Bessent says US considers doubling aid to Argentina by tapping outside funding - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPYm4xb1ZrQ3Z5emNJcXFlMUotX2FUVVVpZUVNNW1FMTU0VDZHSFctbmRjSy1nNTZjVmV4LUVtNWZGZ3JPVjhxRmQydV9SVmgydndEX1cwaTRiTXVsSDI2RmRDRm01ODNvcU9aanA3UDl3bFVMS1NVVzBxSTVFVkdDTmMyTHd1V0hoZmNQekRnZDNwcTUteGotbXFCSy1pazAzX01IeWVqci01TEtaVnFlM0h1NkdqUHZOVUxiX0tRVV9yVmdOWjd2Mg?oc=5) |
 | Supreme Court signals willingness to pare back Voting Rights Act - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFA0QVU0U2kyd0g3Yk1qZkRmYVhmVFY3NTdQSjRuTHFRVkd6Tmwwb1hLZHBhRFBFRklfdTdaRGlyX0lsYWROb0p2c0J0MXYxZ25CZDAzRzk0QnRndkx5M2RpbmdUX2JVSExxNTZPX21FTXlCVlNSRGptbnZpQjNjc00?oc=5) |
 | ‘This is so vile’: Young Republicans face backlash after racist chats leaked - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxONXVxX1VGdkprTUxJWjJkeGpjWnV1blI1SDRpNU1XQVlTZ2Qzd3I4dUV5elZqWmJfTmRnQnJxTHlyNFVFVkVjS1dhblBNcVgzQmJVYzRNOV9KZWloc0NzdHdhQ2QxZFhSWHEtOFhqRFBLN1M4N29rOEltc1dBQ0gwYWV5dVB2TWRZSGk3d0ItZ0thdEEybUZlOE10RG1KejRJ?oc=5) |
-| NATIONAL SECURITY PRESIDENTIAL MEMORANDUM/NSPM-8 - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQRjMzdHZRSWlCTGFObkJHZDZnVHE1VjVla1FYbXJJWWtPWU9CQkxKdjEwRGdKYkhUYVhPZ0lLWXdROFI3OHUweWRlaDVUR3JDemo5NkNuVXNwVVpQRlhJX3diRE5RMy1NeERIbDZIMWJFaXpVR2NPU2hXN1ZERW1iRW5FWE9ZZFM5WXJjWXZ4a0RCRzFGdzhGOGZadGZ4VDdaVUtCZ3lqeXM?oc=5) |
-| Government shutdown live updates as Senate vote on GOP bill fails for 9th time - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNLWpCdy1aODI5TlFKR0Q2U2t6UTZyb0JjWU16SWZESW50UWIwNGJaN2g0aG5HRTh2LVBvOEROOGQwdEJiQ1RpMGlXeVZLbjQ4NHdVTEtIRnVvSTlMQUpscXU4bDdsZWVCS3VTdFp6N0pkSEpDV1FrSVRBRzk3VW5IaHMydGYwYjdIMHRQQlRHLXhEc3ozMVM1V0FEcVJMQdIBowFBVV95cUxQX09IVWdGSUxzeGYyVDVjbm5QRm1ZRy1HR0VldlJCTFpaaGZ4WnNFYUd2aEhCdmFMSXRpS0lMNEdqYWxlMTZWZGM4ajVQMjF0dmhyWXczNFo0MFE4Smd0S0NpWTFZYzZjQmFUY29hWVVZMW1Pajh5Si1uZmxYN1NXNEdoelhGekJ2UVl2MURjZEpKb3BJYkc5YXRaVkFxY3ZRZG5F?oc=5) |
+| Trump says Israeli forces could resume fighting in Gaza if Hamas won’t uphold ceasefire deal ｜ CNN Politics - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE16S3R3N0ZEdUxxZGgyUk9tdEg1TmlFOWhvRk1XdlZwU3ljYzhDS1J2S1NtcldCb20tdTRGYTFPUnh2dXViM3NaUGMxQThDY1pFdjNwOE84Z2dOM3J0NF8xUlhCWGI5Vm16cUxnZUlVekYwd040bHFIcEdWWQ?oc=5) |
 | Trump Administration Authorizes Covert C.I.A. Action in Venezuela - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOQWZPQV91T09oWEZKOFlFTVA1a25jYmVzc29XaEsxangxQXZIVmw0aE1xUXN2QzEtYkp0T1RLemJrbkF0Uk1MQ250SGM4d0VUeDhyX0IwQ2R0Uk5RTEwtUmpsME9NRFlnLTBraUxnZ3VlVlhwV2g1V0doWnM1Z2hYNXhHc2N1SlAzcU82ZkJ3?oc=5) |
 | US Capitol police investigating flag with swastika in Republican representative’s office – report - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQZXJhMjFueWZ3a2llalNzSlJpY3V2T05yWkhXbkNkbDRTVXRoZy1YWXVDX0tHY1o3Ui11MXowUW5ybE4wQnNMRnFDalFQOHIteURpdTlkVnp0SUQwNXdSbDhyMEVHV3pHM2syUjdOM0Vmbm5ubEd4eWNoejJ2c3kzQ1NnNUpfdGozcnBwZkxrQW1OdWFNNVU2QXo5Yw?oc=5) |
 | Brown University Rejects White House Deal for Special Treatment - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNanI1TzFUSlZ6Q1p6bFZXYnZPZWVOODJickltTXFhVjNKSFY3N0EtVGZNY0RKNkpubGJLeXZWeThFeVdHeVFPb25Ya2swVEYxRVJZTHdoZnN0Rk5BZF9wcWt0TzlVT241SDNRbU9TcmFBOUJJLWVxS3MwVGlnWkd4TkN6WElUZTRx?oc=5) |
+| Hegseth’s legal fixer at the center of Pentagon’s new media restrictions - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxONWN5TGI0clBEZTFVd0FlTWFGZFU1TEltZThQd2piLW5qSWc3RFVyX3F0UHRBM3gzaUFsaTYtV0F5WWVKSktRall2SFg2LUZkVk5nV0ZYTHNEeDJXMGdDanl4MjZ5WTVlTVVka0Q5MEpIZHhSc09lX3RneDJXSDhKamFnbVVpa2t1bmh0UlZuaEJHZjljbmVaQTJOOFUtX0Jjbmxz?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
