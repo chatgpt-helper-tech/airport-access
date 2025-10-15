@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 08:41:08（北京时间）**
+🕒 更新时间：**2025年10月15日 08:48:42（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Trump says Hamas will be forced to disarm or ‘we will disarm them’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNaHl2UnhjQ2oxVFY0RjhPRkZaNFdMMGZBN015S0N0b0ZyOWxhNlVKLUNsX2lzbm5FakJTSmpmaFhud2FuMG5PTGo1a3NwN3IxRldJN2M3N0lxS3F3b1ZaT2pWS1FuWl9Ba0U1SDlzdl9BSFIzNlZFNWxlOUg4MTVxV21NbGU0VENYX3dueVBsd3g3Uk40eHJaczA0SU5vMXJnSEtlUFlXYTB1RjVERkhlMmdn?oc=5) |
 | Government shutdown live updates as Senate fails to advance GOP funding bill for 8th time - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOdFhTbV9NNy1uRmZQNmoxVGtZLWVTX2VYcng4bXhXSGtINU1qVTdOVEwwWVlhZHhnRlBROWd3TkVOR0pUcEtwMEhIUWI1YjA2Q0JJRGxJVHQ0Um9aVjBxeEV4NHZnc3VWRWtkS3B3cm56dmVBX2wzYU5tWHUtemdRbXhKUTFJTnRDRUE?oc=5) |
 | U.S. kills 6 alleged drug smugglers in new strike off Venezuela, Trump says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNYVVWaWtvSDhWbHczMTJTenBPanRsM2RjS3AtVmstRXh5amdxS25TVVA2WGxvVndEQ2pzTDRwVldpWHhhNURRTTlydHdXck9VYThuVUVBSlFsNUZiX0s4X1lGYnlLTHQ1OVVqVEo0Z2o2RHp2b2RUbWl4OWcwQmNiUGh0ZHZlWWlwMVlsbktXZw?oc=5) |
-| Janet Mills injects Trump into her Maine Senate campaign - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFAzS0pnSVQ4MEI0dWxaQTZkbXh2N04xeEZwTmRySnJPbnF5eV92TGV2TGNDdmJoN1p1M0paQ0FUNWp1NUdITHpGMjRqeVBUT2pwZVJDSjlXR0tzZkR0OXhveVdjRlhsYWVQTDJSdXItdjA?oc=5) |
+| Gov. Janet Mills of Maine to Run for Senate, Aiming at Senator Susan Collins - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOcmNGU281Qm01dTlYdHdfRGxxYnpod3BBMXZaRmF2YzR2ZmpfRGRpd3UyVnVwb2tHcU1VU1FGT0RnRFlvNEpNRGhvMzdUa09SNzhraTBnS0x2Z0xwNExnbDdyOElmaDNvZGx2Wl94VHUwMkJZZTlEd2lYQzB6MTd3Um1scDlsZ3VGeXVFNmZuN0F1OTM1SEpvMGIxWQ?oc=5) |
 | ‘I love Hitler’: Leaked messages expose Young Republicans’ racist chat - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNYV9DUENBdlZlTkRERGJJMnpUdnhBaEcyTWdNTnBFTkVnZkdiQWhKV0lNRDU1dXg2dnh2c2ROMnNVbE1MWWI3U1VfbmlFa29QTXg4OEE1dU5lRENtMzl1LVh1RGlpYlRfMkRaZm5ITHZSclc3ZkZENVZ2cjJ2MUxGMzctalpFMzNtV1IydG5sci1IRzRmY0E?oc=5) |
 | Suspect Pleads Guilty in Firebombing of Pennsylvania Governor’s Residence - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNY2l6cXB6Vk93WF9oMzZHVXpVOXBhampZaHFfTVFmMGRRdnFZNXFkNXZURGhDcXJpdmRjOFRiNVJOUUJyU0Rwd2pmem9LUkM1ZXN0N1JTRjFLOURnU2RkQTIxLVBfZjl3aEdfUDl5UlMxaXd4cUtfY244LU4zZDM0RWo1b1Z0NEV1NUViZQ?oc=5) |
 | Lack of weather data due to Trump’s budget cuts impacted forecast for deadly Alaska storm - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOVUVjMXhxQ1B5c1Iyd2UyLWZ1XzlJQ0RYbF9NN3JmZHZ3RFJGMklnYlJsTTN5aFZjNDU0cVFNWlNrUkVDOVhTWEV3ZTVvSktQVzY0M1NJeHdpdWFRX2w2QmZFUGN2MENKaGdDNzJNVmItWXZreEpNT2xGeDNyb1hpNkk5Q2gzZmdSbm9XNk1LdVlxcnIxLWc?oc=5) |
-| President Dallin H. Oaks announced as 18th church president - Deseret News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxObmo5dHE1YU03RU9vQ3JkdHBfT3RjT3N2TWhScF9EQ096ajJJeXMzZEVjNUNGV2JLUTY5ZDR2MC1tMWRDVG9DZmc5YW9SbUstMVViemVKWTdFelR6UEYxM2wzMzJReDZZZDRZV1Vic0JGQUV1dEpYdlExS3FURzNmV2dkLW5SRWVsMVpPMkZQV2xiekhKcEdDQzdCQ1lEdw?oc=5) |
+| Church of Jesus Christ announces new First Presidency - KSL.com | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNa1ZKZ2VnX01wN1BHZWRnZV9XTlNDZUZPN0lxVU1mbFVYUERJVmFxbGJSWXN1TDRjUmZpazVkYU45bEU4YnpXNzF6ZXZ2RkxRSm85bjVGblZ5Vk5aNUIzUV9yTW55NzVIUjBBRUhYNUN2Wmh6V2JDNTV4YVpMdmpRU0RwcGNaUjZ4UmhCT3FRdzNvQ3Vn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
