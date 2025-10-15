@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 08:57:26（北京时间）**
+🕒 更新时间：**2025年10月15日 09:00:07（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Janet Mills injects Trump into her Maine Senate campaign - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFAzS0pnSVQ4MEI0dWxaQTZkbXh2N04xeEZwTmRySnJPbnF5eV92TGV2TGNDdmJoN1p1M0paQ0FUNWp1NUdITHpGMjRqeVBUT2pwZVJDSjlXR0tzZkR0OXhveVdjRlhsYWVQTDJSdXItdjA?oc=5) |
 | Live updates: Trump says upcoming Argentina elections will decide how 'generous' US will be - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE91T29wT0k1b0FKZnBQNk5ETTdVN3RJOG1oRXpqZFN2VE95US1lM1ctV0VxczVBOEJiZjk3Q2ZScGdNODVNcDNiWUctR1NEY1VNdUFvZQ?oc=5) |
 | ‘I love Hitler’: Leaked messages expose Young Republicans’ racist chat - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNYV9DUENBdlZlTkRERGJJMnpUdnhBaEcyTWdNTnBFTkVnZkdiQWhKV0lNRDU1dXg2dnh2c2ROMnNVbE1MWWI3U1VfbmlFa29QTXg4OEE1dU5lRENtMzl1LVh1RGlpYlRfMkRaZm5ITHZSclc3ZkZENVZ2cjJ2MUxGMzctalpFMzNtV1IydG5sci1IRzRmY0E?oc=5) |
-| Suspect Pleads Guilty in Firebombing of Pennsylvania Governor’s Residence - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNY2l6cXB6Vk93WF9oMzZHVXpVOXBhampZaHFfTVFmMGRRdnFZNXFkNXZURGhDcXJpdmRjOFRiNVJOUUJyU0Rwd2pmem9LUkM1ZXN0N1JTRjFLOURnU2RkQTIxLVBfZjl3aEdfUDl5UlMxaXd4cUtfY244LU4zZDM0RWo1b1Z0NEV1NUViZQ?oc=5) |
 | Lack of weather data due to Trump’s budget cuts impacted forecast for deadly Alaska storm - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOVUVjMXhxQ1B5c1Iyd2UyLWZ1XzlJQ0RYbF9NN3JmZHZ3RFJGMklnYlJsTTN5aFZjNDU0cVFNWlNrUkVDOVhTWEV3ZTVvSktQVzY0M1NJeHdpdWFRX2w2QmZFUGN2MENKaGdDNzJNVmItWXZreEpNT2xGeDNyb1hpNkk5Q2gzZmdSbm9XNk1LdVlxcnIxLWc?oc=5) |
-| Church of Jesus Christ announces new First Presidency - KSL.com | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNa1ZKZ2VnX01wN1BHZWRnZV9XTlNDZUZPN0lxVU1mbFVYUERJVmFxbGJSWXN1TDRjUmZpazVkYU45bEU4YnpXNzF6ZXZ2RkxRSm85bjVGblZ5Vk5aNUIzUV9yTW55NzVIUjBBRUhYNUN2Wmh6V2JDNTV4YVpMdmpRU0RwcGNaUjZ4UmhCT3FRdzNvQ3Vn?oc=5) |
+| Dallin H. Oaks Named President of the Mormon Church - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPZXY2TmF6OU5yc0Y2ajE3eXJnNDNWb0VDZWZGT25tdm5rQVZXc2JCQkV1VDluSmhrMk5IMFIweVVGb3czbHBPUDJERi1lS2FERnFyaDEyaWVNa2RmMklpaTJrTGNwWEtNdVpJbEVDLXlGODFrd0tKYlM2WmZEdUVRa1kzMWJ0QQ?oc=5) |
+| Man pleads guilty in arson attack on Pennsylvania governor’s mansion - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxONWVOdHlGQWZqWkN0bXJKaGllVUY3RGxiREduWnBrUDRUTUhma2hkTDRYckp0Y2FGVWJQcEkwbEdRdnR1b1RJbWJoQzRjUm5Zbk5Oc1pXOWJfdzhaTHZEcUY0SlMyNGcwdzJvc1duNmZjeHdWSWRtNUtlamZIaENfMkRmbmNvdkc4VUp3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
