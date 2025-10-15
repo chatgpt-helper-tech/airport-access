@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 13:49:40（北京时间）**
+🕒 更新时间：**2025年10月15日 13:57:30（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | How singing with other mums is helping women with postnatal depression | [阅读全文](https://www.bbc.com/news/articles/c93127z99yxo?at_medium=RSS&at_campaign=rss) |
 | I felt trapped, says victim of train sexual offence as reports rise | [阅读全文](https://www.bbc.com/news/articles/c39r2zp1dw7o?at_medium=RSS&at_campaign=rss) |
 | Red Tractor ad banned for misleading environmental claims | [阅读全文](https://www.bbc.com/news/articles/cx2lmnvj3n5o?at_medium=RSS&at_campaign=rss) |
-| D’Angelo, R&B Grammy-award winning singer, dies aged 51 | [阅读全文](https://www.bbc.com/news/articles/cwynv40ly4vo?at_medium=RSS&at_campaign=rss) |
+| ChatGPT will soon allow erotica for verified adults, says OpenAI boss | [阅读全文](https://www.bbc.com/news/articles/cpd2qv58yl5o?at_medium=RSS&at_campaign=rss) |
 | Migrants will need A-level standard English to work in UK | [阅读全文](https://www.bbc.com/news/articles/c8679q0pe57o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -31,8 +31,8 @@
 | Trump: Hamas told me they'll disarm. If they don't, we'll disarm them 'perhaps violently' - Haaretz | [阅读全文](https://news.google.com/rss/articles/CBMihwJBVV95cUxQYU1fWE1PWDlmX1pxOFJvOWkwVDlwbW5ncUNzaktwRkV0NndmTnpUb1F5SXVkQTRobDNITGxzUmNfSlZtQ0EyZHpzQ1lIbk15QmpybWNkVktzVEh1dW9TUzNDUGEtY2ZIZmFJZDVpLVZVR0V6MWZMY01WQ0RRcVhqUERUSmRYMnVvLVdObFhiYm15X1VlQ2FyT3ZWN1ZhUnd2SHBiVnVXUHY1Mk8zc0hFZ21JbzBCbl9FRkdOU205OXNIckZkRmxQQXo4WjhzVGhTM0JtYmtWblVSU0V0RmRoMzZVVjY0OHJib1lrcHNmay1scTBWT3VLa0tOX3ZrYl9mNzZPUGpaZw?oc=5) |
 | Vermont Gov. Scott calls on state senator to resign after report on GOP group chat - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQcUlfdndST0ZEejFQUDZGTjBJR3ozOElkVk5UVi16M2IyZ1dRYXhuVzhWWTJBOTQ1LVJ1d0p2LW5sMG1DWEJoTHZ0X1A4cXN4bFBrSTBwRnlUQ3gwdWVhZEctRl9Qdmg5Zm1PcHNab3Q2WjQxWTR5ZTVBUjlfQy1RTl9xMWZzbm1CX25ZVGdaaUZDVy1OWHNxVElVTHkyZ0dvSHpSbGE5anE3b3BVdVHSAbMBQVVfeXFMUEk0UE5hdHBWSGk5aXZLd2VNQkZUYjhzbjZvYkNIQmRZUzZJYkwyT19mZzBtT2dENFdka0VNbzhVWHIxQU9GS2NKR2s2YzIzdEx4S243RV9DMGtpZzdHRGJCZ2VtOHQyQW02aWtvS0hqbEJkYlBXUWVCNU43LWhRSlVVeUFJZk9aNHBWMTZXMlk2T2JNeUdrMDhRV3Vvbm5ySEpTUzhvb2dKV2lha0VCVEtHZXc?oc=5) |
 | Trump administration revokes 6 visas over comments about Charlie Kirk - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNcFBKVHN0QXVEZTJtUXdJWThscjU5TjFrLW1xTHdjZXhwX2JlZ00yNjdaem11bFZ5QkxMZk1YTzZ0Mm1ROWNvTU82VXBfdDRlSHR2eWlUaEQxQ0RqNk05eU1uYXg2ODNFLXVINldLZ1JMZ3hYbHJOWHRhWUdkSXBSTy12RQ?oc=5) |
-| Church of Jesus Christ announces new First Presidency - KSL.com | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNa1ZKZ2VnX01wN1BHZWRnZV9XTlNDZUZPN0lxVU1mbFVYUERJVmFxbGJSWXN1TDRjUmZpazVkYU45bEU4YnpXNzF6ZXZ2RkxRSm85bjVGblZ5Vk5aNUIzUV9yTW55NzVIUjBBRUhYNUN2Wmh6V2JDNTV4YVpMdmpRU0RwcGNaUjZ4UmhCT3FRdzNvQ3Vn?oc=5) |
-| Suspect Pleads Guilty in Firebombing of Pennsylvania Governor’s Residence - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNY2l6cXB6Vk93WF9oMzZHVXpVOXBhampZaHFfTVFmMGRRdnFZNXFkNXZURGhDcXJpdmRjOFRiNVJOUUJyU0Rwd2pmem9LUkM1ZXN0N1JTRjFLOURnU2RkQTIxLVBfZjl3aEdfUDl5UlMxaXd4cUtfY244LU4zZDM0RWo1b1Z0NEV1NUViZQ?oc=5) |
+| Dallin Oaks, former Utah Supreme Court justice, named as new leader of Mormon church - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNQmQ5SHRXNXRLRkN1WTlDcWp2dkhsTl91YTNfTGV6U2lSZU1CSE45czg4aDZFck93Y0prQ3JVbkExUFAtdVlMbzNMbWRJQndXYW1WV0w0eG5WMDMxOUFiWjh1elFUQVJGZUkwQWJ3VmFhWnphTGxkRmUzNmxXTHI0bmkzdHZGTVJUTlY3OFVNQ0RZOUdNbG0xVC1fcHdjVWk2cHNCVjVNeDdCNzlYcTZtRWRfWjlSTng4UlE?oc=5) |
+| Judge Temporarily Blocks Transfer of Miami Property for Trump Library - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9CWF9OR3hFbG9HenhWcFpxUXFIczFsYlpua21DMUIwV1VUWnJ6U1d6TURmd1A5X0xkb1NPTjNfaGFrOXBiREYxSXB0aGpCV0JaeXNoX0haSFVxQVFac29mb0s0STRxUlNfUUpPbVVtYw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
