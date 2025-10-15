@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 00:56:05（北京时间）**
+🕒 更新时间：**2025年10月16日 01:01:59（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | Controversial UK oil field publishes full scale of climate impact | [阅读全文](https://www.bbc.com/news/articles/ce3xzgdqw3ro?at_medium=RSS&at_campaign=rss) |
 | Man who murdered girlfriend in hot tub is jailed for life | [阅读全文](https://www.bbc.com/news/articles/cvgvx134d86o?at_medium=RSS&at_campaign=rss) |
 | Asylum hotel a 'feeding ground for unrest', High Court told | [阅读全文](https://www.bbc.com/news/articles/cy8v9jzn5zgo?at_medium=RSS&at_campaign=rss) |
-| Vets must publish prices so pet owners not overcharged, watchdog says | [阅读全文](https://www.bbc.com/news/articles/c201r14z6r3o?at_medium=RSS&at_campaign=rss) |
 | D'Angelo: A musical pioneer who reshaped soul | [阅读全文](https://www.bbc.com/news/articles/c62e5e3j75vo?at_medium=RSS&at_campaign=rss) |
 | Case dropped for Met officer who shot unarmed man | [阅读全文](https://www.bbc.com/news/articles/c4gjqeyy834o?at_medium=RSS&at_campaign=rss) |
+| Row over bringing back military service splits German government | [阅读全文](https://www.bbc.com/news/articles/cdrzjnrdd2ko?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
