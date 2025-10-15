@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 05:40:58（北京时间）**
+🕒 更新时间：**2025年10月16日 05:49:36（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Cracked windscreen forces US defence secretary's plane to land in UK | [阅读全文](https://www.bbc.com/news/articles/cd67qe0255vo?at_medium=RSS&at_campaign=rss) |
 | Dozens in court over alleged support of Palestine Action | [阅读全文](https://www.bbc.com/news/articles/c051g2q5651o?at_medium=RSS&at_campaign=rss) |
 | Man who murdered girlfriend in hot tub is jailed for life | [阅读全文](https://www.bbc.com/news/articles/cvgvx134d86o?at_medium=RSS&at_campaign=rss) |
-| Ukraine imposes blackouts in most regions after Russian power grid attacks | [阅读全文](https://www.bbc.com/news/articles/c15p32dvy0vo?at_medium=RSS&at_campaign=rss) |
+| Controversial UK oil field publishes full scale of climate impact | [阅读全文](https://www.bbc.com/news/articles/ce3xzgdqw3ro?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,9 +30,9 @@
 | ‘This is so vile’: Young Republicans face backlash after racist chats leaked - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxONXVxX1VGdkprTUxJWjJkeGpjWnV1blI1SDRpNU1XQVlTZ2Qzd3I4dUV5elZqWmJfTmRnQnJxTHlyNFVFVkVjS1dhblBNcVgzQmJVYzRNOV9KZWloc0NzdHdhQ2QxZFhSWHEtOFhqRFBLN1M4N29rOEltc1dBQ0gwYWV5dVB2TWRZSGk3d0ItZ0thdEEybUZlOE10RG1KejRJ?oc=5) |
 | US Defence Secretary Pete Hegseth's plane 'safe' after unscheduled UK landing - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5wcWROYVdIN09xcDVkd0I5UElyRk1PMjBHUFQ0TXRoWWZlOVdxU2JzWGVPcFpaVDF5VUtqTVZCc2x1eC1UTXh0RVAxY0ZXOU1KMVM5YjdQYXhEd9IBX0FVX3lxTE9rUHhfMEtiR2xZSEJONzVwUmlyRXJmWjdrWXJxYzRiVVdueHF2WEpJYXFBSHF3ektBVVdrRkNsZV9pOWdvOU1GWGdsUV9maE44QWdoQ3RhRFUwTmxadTNN?oc=5) |
 | Capitol Police called to investigate swastika in GOP congressional office - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQWm5xX2puM0drVWs3c1V0Wl9jN3ZGLWV2R1FVcldXWUNvVEdvMGJLOF9yY2x5aTFZVUNmRHpLYzVPdXRobWlmbFpCeC11ZEpLdXNaM2ZUOXhkdGpFM0VsM0ZNTTlXRjV4NHBMVUpvakJwUzIzYk1uRGhZRU05YkExWV9aZ01XVmtDWFlkZkVNcUZwNnhkYS11TnhucGNNQ3BUbTMxZ1c0WmtKc0cydDBTZzk1SVRQdw?oc=5) |
-| Democratic senator shouldn’t run at age 80, new primary challenger says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPdEJxcHU0RXp2b0xtUWFORW8tV3Vramp1MUZCWW9HQ1VSWnZlMTdZVzRyV01wb2VFWjdGWHJobko4a2dMSDdTYVB1VU91akJpUWNXMkZjaFJ5SmNHenF0UTlwM2NXWUFyMnFfR1VJOUVGNnFwYm9OT3FXWGpNbzY3enMxM2dZamVWV013SUNKdw?oc=5) |
-| ICE Is Cracking Down on Chicago. Some Chicagoans Are Fighting Back. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9oZWxwUENLMnEyeWJDS3c5TEl4Wml1NmxNLWJDYWJfVGtiaDN3RWlpNGgwdzFTM19MQ0IwTGVlRk55c1Q3d3ltZkhzODc1Q0g1V3NuX3RxSGNsRFNGaGFVZTRvdG9ib01sS0Jmaw?oc=5) |
-| Government shutdown live updates as Senate vote on GOP bill fails for 9th time - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNLWpCdy1aODI5TlFKR0Q2U2t6UTZyb0JjWU16SWZESW50UWIwNGJaN2g0aG5HRTh2LVBvOEROOGQwdEJiQ1RpMGlXeVZLbjQ4NHdVTEtIRnVvSTlMQUpscXU4bDdsZWVCS3VTdFp6N0pkSEpDV1FrSVRBRzk3VW5IaHMydGYwYjdIMHRQQlRHLXhEc3ozMVM1V0FEcVJMQQ?oc=5) |
+| Government shutdown live updates as Senate vote on GOP bill fails for 9th time - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNLWpCdy1aODI5TlFKR0Q2U2t6UTZyb0JjWU16SWZESW50UWIwNGJaN2g0aG5HRTh2LVBvOEROOGQwdEJiQ1RpMGlXeVZLbjQ4NHdVTEtIRnVvSTlMQUpscXU4bDdsZWVCS3VTdFp6N0pkSEpDV1FrSVRBRzk3VW5IaHMydGYwYjdIMHRQQlRHLXhEc3ozMVM1V0FEcVJMQdIBowFBVV95cUxQX09IVWdGSUxzeGYyVDVjbm5QRm1ZRy1HR0VldlJCTFpaaGZ4WnNFYUd2aEhCdmFMSXRpS0lMNEdqYWxlMTZWZGM4ajVQMjF0dmhyWXczNFo0MFE4Smd0S0NpWTFZYzZjQmFUY29hWVVZMW1Pajh5Si1uZmxYN1NXNEdoelhGekJ2UVl2MURjZEpKb3BJYkc5YXRaVkFxY3ZRZG5F?oc=5) |
+| Hegseth’s legal fixer at the center of Pentagon’s new media restrictions - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxONWN5TGI0clBEZTFVd0FlTWFGZFU1TEltZThQd2piLW5qSWc3RFVyX3F0UHRBM3gzaUFsaTYtV0F5WWVKSktRall2SFg2LUZkVk5nV0ZYTHNEeDJXMGdDanl4MjZ5WTVlTVVka0Q5MEpIZHhSc09lX3RneDJXSDhKamFnbVVpa2t1bmh0UlZuaEJHZjljbmVaQTJOOFUtX0Jjbmxz?oc=5) |
+| Kristi Noem’s shutdown airport video may violate Hatch Act, Sen. Cantwell warns - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPLTY5UF9TR0ZJVHhOc3dXMWt0ZlhDZ1puZFdXbnF4eTRyQ0M3TmIwdjdRaWItd2ZoQ0lFdlBkRWRGMDk4YTRDQkpkQmZVa3JPVUJGZXJjTHZoMk5fUFJCNk5KdlhiVlJkU29yOHdxWTI3NS1fZUctU19obVpxaVAyRlpGMnQ1c0pv0gGOAUFVX3lxTE45X21qeW9HOWFGSVhxWUw4UU9JeEoxYjZpejB0cGZoZzJSNWVHbU5IcklTVzJ4MlN1eHZJS2E5TlFTRmhsME04dHdZWTA0ZExnWlI1Nm56MEpyWUxycVcwWDVyR254OXhBYmFiQXM3cFZSYzNMMDlGallsWS1WOU5BaUE0Wkx6S2VqT2s3bkE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
