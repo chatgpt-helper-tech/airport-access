@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 00:16:21（北京时间）**
+🕒 更新时间：**2025年10月16日 00:25:04（北京时间）**
 
 ---
 
@@ -29,7 +29,7 @@
 | Thousands of federal employees are getting laid off. Will a judge intervene? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxORmtCRUVWdnk2LXhXNWM3WFpWSTM4UGRmR1VmUlY2aGJBT1ZkdHNFY2JiMDMtanlHb2dPUWZIcWFTT1M5bENxUF9reGN3UjA2eTNvODZFc3VwWkd3ak5pblhtTmRSdEpCcExrTENlZUluNWVLSUI2R3NxY0laa1d2REpkYTVRX2o0cG5Rc21VLXVTdlB2NGZnTkJ4Yw?oc=5) |
 | Major airports refuse to show DHS Secretary Kristi Noem's video blaming Democrats for the government shutdown - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQVE9HZ0FGak8wQUdhX2lUVEpBUzIyRWNNY19vNVVfY0J0LVNjY3cwZTVudTlyRU0xZXd3V0l5SzVFd3Z1eE9UXzdQdE9HRTBWRE8tclBKd3YxREx6N2JDLXJjaVA2Xy10cWVmTU4wZ0U5anNsNXRiUnppakNuM2dBR2JqWjFmUThQNGFRa3BHT0xzRGtPSjd5cmVVcEVfOU3SAaQBQVVfeXFMUHg2WWhackxCQV9tU1IxVEVEUVdORzJMbmZLbERJZFVSZFhkZktJRzdtRVo1bkozN2dLTGtOb2xmZWphQjBiQkJuQ1NmcDlvWi04WHg1VGMwMzV0UnlVS2xWQnV6WVhrVXd6czJRWmVMMFhWOC1VNGtpS0lPSWtqTFJxLVFDZ0FsYXZQdkZlY2h4VlROYThUYzNvb2JReHNvcHQ1Q2o?oc=5) |
 | Seth Moulton to seek Massachusetts Senate seat held by Ed Markey in generational fight - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOYXA3VFRBVzBVRm8tQ3FsZjhfNlBzUHNuU0htdVp1MW5QQS1LMUJOdmtBblVoSzF6enNNa3FVNTNFdDRIaGpxY0x1NlhXekdla2ZMNWRESlNYYUtUWHE0ZE5DdHh0WVJIS3g0M0JITExGUGhlc3BTZVZtVDdXejhQdDlPT2czZw?oc=5) |
-| ICE Is Cracking Down on Chicago. Some Chicagoans Are Fighting Back. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9oZWxwUENLMnEyeWJDS3c5TEl4Wml1NmxNLWJDYWJfVGtiaDN3RWlpNGgwdzFTM19MQ0IwTGVlRk55c1Q3d3ltZkhzODc1Q0g1V3NuX3RxSGNsRFNGaGFVZTRvdG9ib01sS0Jmaw?oc=5) |
+| More than 1,500 people displaced after typhoon remnants devastate Alaskan villages - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNN0tuZXgzZmRscEtWZ2lXdm1vRU1FS3QwelpVSXVrNU5vdVQ4MWpnOHdpbnRiTmwycDNtWkZWdTlnZU5vQTFpb3ZkTlJPMWkxNnNicVRLenNHVHBteWVaR0M4akh6YTNibFlNdEZ1VjdHQVBaUV8xeGdMdDNlb2J3c0t6Q3Z3UQ?oc=5) |
 | U.S. charges Cambodian tycoon in massive alleged cryptocurrency scam - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOZ0E5RUJxZUxGc09kTjdFbWZhX1JxU2FVUHdMZGpzdy16c0FoM0N3VFQtbjdOekJBUTZRR3RwUFpxQlVDV1YwREZGSzJQeVdtZU5fYkFxcUpmVzNPYW5xdHlISktnb0NGem04UGxCZEZaSXRkUFVkdmFwN0RHRzY0cS1iNnJsVXQxaE84RTkyeU5HMkhRWk4ybTRB?oc=5) |
 | ‘I’ll Have Eric Call’: Trump Sets Up Son’s Meeting With Indonesian President - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNb0NvR0FySFhkcXVqbTdWVDE3TGZJdWNneVZWcjZnbXhVVnBQNzJKd1lOQi14YWNrOFBEUV9ac216ZHhVb3hzX0lXRVBXVFVHNHNLVzd2MjBYQURFckIwMkFZRWVEVjREd2dHc1dya29TSlBzNXh6T2Fab2d1Ukt0ODR4WWozbVdrYWttbTNrLXNYSldNbTkxMzhnVnhLWEJmSHJtaDF1UTZmejRO?oc=5) |
 | Hegseth’s legal fixer at the center of Pentagon’s new media restrictions - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxONWN5TGI0clBEZTFVd0FlTWFGZFU1TEltZThQd2piLW5qSWc3RFVyX3F0UHRBM3gzaUFsaTYtV0F5WWVKSktRall2SFg2LUZkVk5nV0ZYTHNEeDJXMGdDanl4MjZ5WTVlTVVka0Q5MEpIZHhSc09lX3RneDJXSDhKamFnbVVpa2t1bmh0UlZuaEJHZjljbmVaQTJOOFUtX0Jjbmxz?oc=5) |
