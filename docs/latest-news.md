@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 10:32:34（北京时间）**
+🕒 更新时间：**2025年10月15日 10:40:20（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | Pictured: Winning entries for Wildlife Photographer of the Year 2025 | [阅读全文](https://www.bbc.com/news/articles/cx253vrd931o?at_medium=RSS&at_campaign=rss) |
 | D’Angelo, R&B Grammy-award winning singer, dies aged 51 | [阅读全文](https://www.bbc.com/news/articles/cwynv40ly4vo?at_medium=RSS&at_campaign=rss) |
 | AI couldn't picture a woman like me - until now | [阅读全文](https://www.bbc.com/news/articles/cj07ley3jnpo?at_medium=RSS&at_campaign=rss) |
-| Government under pressure to release China spy case evidence | [阅读全文](https://www.bbc.com/news/articles/cql9v6x4wpzo?at_medium=RSS&at_campaign=rss) |
+| Government under pressure to release collapsed China spy case evidence | [阅读全文](https://www.bbc.com/news/articles/cql9v6x4wpzo?at_medium=RSS&at_campaign=rss) |
 | Migrants will need A-level standard English to work in UK | [阅读全文](https://www.bbc.com/news/articles/c8679q0pe57o?at_medium=RSS&at_campaign=rss) |
 | Asylum seeker laughed after killing woman, jury told | [阅读全文](https://www.bbc.com/news/articles/cwy902djzv2o?at_medium=RSS&at_campaign=rss) |
 | 'It gave me my voice back': How group singing is helping new mums with postnatal depression | [阅读全文](https://www.bbc.com/news/articles/c93127z99yxo?at_medium=RSS&at_campaign=rss) |
@@ -27,8 +27,8 @@
 | Trump Awards Charlie Kirk the Presidential Medal of Freedom - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOZXBQSXNlcEc5c0JsMnBZLU9mY2dwM0t5Z3lrUE5PN1ZvNDNwOUlncE1rVVYwdUNWR1lXSjNtUDVnbHY1Qk1CNU9kXzhFNV9KbmVQRkhpRE9JVXItbHdKU193TXRLaThadF9kbFR4b3lJelM2d3VIb2dXVFNubnpDc3B3?oc=5) |
 | Trump says Hamas will be forced to disarm or ‘we will disarm them’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNaHl2UnhjQ2oxVFY0RjhPRkZaNFdMMGZBN015S0N0b0ZyOWxhNlVKLUNsX2lzbm5FakJTSmpmaFhud2FuMG5PTGo1a3NwN3IxRldJN2M3N0lxS3F3b1ZaT2pWS1FuWl9Ba0U1SDlzdl9BSFIzNlZFNWxlOUg4MTVxV21NbGU0VENYX3dueVBsd3g3Uk40eHJaczA0SU5vMXJnSEtlUFlXYTB1RjVERkhlMmdn?oc=5) |
 | Government shutdown live updates as Senate fails to advance GOP funding bill for 8th time - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOdFhTbV9NNy1uRmZQNmoxVGtZLWVTX2VYcng4bXhXSGtINU1qVTdOVEwwWVlhZHhnRlBROWd3TkVOR0pUcEtwMEhIUWI1YjA2Q0JJRGxJVHQ0Um9aVjBxeEV4NHZnc3VWRWtkS3B3cm56dmVBX2wzYU5tWHUtemdRbXhKUTFJTnRDRUHSAY8BQVVfeXFMTktuVzl3Nk5wd0tIWHpCLTJXbUxNQTRNMmtKTUZhRUNwbXhNMDdSWW1fN1JJVC00X3dBR3lvbGRBY3dVeC1oQTNCMnhJZzkyY0ZtUWhLdkt5ZFMxYjhYQUNLeTZyOV8zR1BnNEthNTQwOF9EUU1oOUU3MnpBTG54TFI0dkYyZE8tem1WZTJoelk?oc=5) |
-| Maine Gov. Mills plans to confront President Trump again with her campaign for the US Senate - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNUFdIN2Y3STNWYWw4OU5IYV9SRWFIVUNFM1NCOUZ5MzNCUjc5c2VSNmN1MXhBZjhwQ3VOMmdObDQxU3hzUXg3N0J1cW9rOVJuX1RvQjlnV1M5ejdrODdmWXFEcHdZMFhwMXJwTVFmMjF5MlRMdlVQQWgtcFBSckZGcTZSS2dFa1Zuc2lSRkNqNUNXMmY5cnE0?oc=5) |
-| US strike on alleged drug boat off Venezuela kills six, Trump says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPREJvRjBTRVcxX3RiVUszbnFfdEI5dlVjczlOdzZwVEx3NnZlM1cwaDZrQ2dhWFl1cUMxcFdDLVk1ZTFoaDdpZjMtSUItaXBCMFJsM1ZWU0oxSFZraksxS0lfaWhTcXJwMmhzQnpCYVRsOVJPVkpjWi1VRVFZbEJRRzZ2MzE2T1R1OEVkMWFyTTNKMnpPY1UxUGNB?oc=5) |
+| US kills 6 people in strike on boat accused of carrying drugs near Venezuela, Trump says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPWlpiSUxZaHB6ZDd1cWl1TG93WWpzU0plLUwwQUNUTW9JRzhGb2FrQ3hjdkFQN3ZYN0ZLWG9FTmpGeUtXeUdVeUFMZ3ZYRGhONWZmck93U25mbHpRNG5xWXBobUFQc1J3VmRSUW1WNzZNcWFYVjlCTEhQeGltdGNHN1hCVDFuWmZ5a0dRLW5PWFNFUVRCb1Z0aG80WFpxcHQ3cGsw?oc=5) |
+| Senate Rating Change: Maine Moves from Leans Republican to Toss-up - Center For Politics | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxObE42X01XVGVVbjBnME5XTk1WcDl4U1Q1VkxjVDJiRHcwdjNVVWZzZ1ZKSnZOWk1ycGZTRW9oYWh6cjB3TS1aZG1ZRkFxc2lwTU9RQkN0NW82YnR0dGQ4Z0ZQUlN3VF9UeE9SNUg3ejRWZVp0N3dJR19fUXA3c0RjVmlZblhrUXlCdFNjWGx0TTBWdWVreDlxajdfOEhndWhRZzg4Nmx6eWdRY1Fx?oc=5) |
 | US revokes visas of individuals who ‘celebrated’ Charlie Kirk’s death - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5seUZXbGxIZ2xxM3liSGhHdkk0Q2N0WTRlVklzVjdiS1lLRzdiMUwyRDlXdlllaXg1T3RUUzNCYUdxbl9Fbk1ydnVpMVY4YTR1Qm53cDFBdWNzQjYtQzhyc0FidTFfS3JlYU81cEFITjk?oc=5) |
 | ‘It’s revolting’: More Young Republican chat members out of jobs as condemnation intensifies - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxNWnFVNkJWaFVUOGRIMGx0VE9sNVFEUENNTWpNZ0JILXFkT19fX0lQeDhFRHB3SFdSbHpxVUdfUEl1V1lfYWplenp1V2JRZnpHbUtSQml6S1JEZ082b3FuZTg2SktkMGE4Qmk4czUwRDRQUGpUVnRnWVljQkdBak91Q0kwYWM1OEc2dVN3eDJ6STVKbVdMaWo5cWVVcW9oZVc2VzVlSjhmcHM0cGdDLU52VF9wZ0FEVVMwbGJRYmlIMTNSWXdyYjhyMnMwSEJxdUZkX0hwYg?oc=5) |
 | Dallin Oaks ascends to LDS presidency, concedes ‘we do not have the answers to all of the world’s problems’ - The Salt Lake Tribune | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1Sc0F1VzB4TGdRS25nMGlWT3I4dVA5MWpJYUZrYzdzRmlobVNmNkVENk5CX0hZcXFKSUR4ZWJneEFTQ3hJejhrZzU3QVIya2tMdWlzTENsblkzcnFjRWxrVHlwdjNZcTdiUlJYRWNaU2hySmp0bU9oRXlPMmo?oc=5) |
