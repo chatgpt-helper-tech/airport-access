@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 07:01:07（北京时间）**
+🕒 更新时间：**2025年10月16日 07:09:51（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Gavin Newsom calls for congressional investigation into GOP chat messages - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPLWQ3SkcyYmJCQlYxOHhOWTBLUFJvTVJHa0ZzVkN6UndEb3JNeVZfOUllaVpKWlNQbzRTLWdNRFV4UGcxcmUzd2VCYV81M010Nkw5UkFSOG9VQzBneDQ2V1BkSjQ4Q21TeWpSYzJDUlhSaGFoR2F4YUJrUE5CUF9TWlVpMmliQ3MyVks2dUZSTmh0ejVCYnJVM2FkSGtwTkx1akFxQ0NGZktTVEpHbXBQejc5ekVnLUZBS3Q3QUNuWkM?oc=5) |
 | Republican congressman calls flag with swastika displayed in his office 'vile' and says it's under investigation - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOTHRndW0tb0VQTVVvNzhsTVNJd0FfV0ZZQzc4UXZoNE1JcDBDZGpDaUNmcWJTYzZ1WWhfNkxKRWs2T21JeGVXV3VXUlJZdVMwSHg5cVVFSlhaeXZkM2NFR1lINDlKZE5Xc0tpanBOejM4cVE1U01BbnNqQUI0djlkeFRzQjRuc0NUc1c1c18wMmozOVRraU12cllBVzh4MXFuSzlhOWZHZVZBaGFhUTBGQTVZNE9SWWFGSDhfSktEONIBVkFVX3lxTFA1dlpNWFA3RXY2Mm5LLW5xOTg2MFBNZk5kcHk1aWR1SUQ4U2IxQ2VIYmU3SUV0X1IzbGRORTBLSDBqNF9EamN4NzNNNENieXFYYnVjZk53?oc=5) |
 | Brown University Rejects White House Deal for Special Treatment - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNanI1TzFUSlZ6Q1p6bFZXYnZPZWVOODJickltTXFhVjNKSFY3N0EtVGZNY0RKNkpubGJLeXZWeThFeVdHeVFPb25Ya2swVEYxRVJZTHdoZnN0Rk5BZF9wcWt0TzlVT241SDNRbU9TcmFBOUJJLWVxS3MwVGlnWkd4TkN6WElUZTRx?oc=5) |
+| Democratic senator shouldn’t run at age 80, new primary challenger says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPdEJxcHU0RXp2b0xtUWFORW8tV3Vramp1MUZCWW9HQ1VSWnZlMTdZVzRyV01wb2VFWjdGWHJobko4a2dMSDdTYVB1VU91akJpUWNXMkZjaFJ5SmNHenF0UTlwM2NXWUFyMnFfR1VJOUVGNnFwYm9OT3FXWGpNbzY3enMxM2dZamVWV013SUNKdw?oc=5) |
 | Videos could tank Katie Porter’s bid to become California’s next governor - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOYnRtQlMzTS16YVdGQWRjMjgxQ2xfZmZfTlFEZ242Wl9ab016ejJ4ZmN1VGk3S1lpUkRScEJIOVA5c2V6MGRDc2J1ekdHcFFSempVNFNsYUYzZnY1Ymw3ckZSS0xycFNwUFZRVTN0QlVBQVV2dmc0VzJ3a3F1RjQ5QTVjLXpxQQ?oc=5) |
-| Journalists turn in access badges, exit Pentagon rather than agree to new reporting rules - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPdHh1dDR4ejFwX1JSMDVLRGZpeWdOM0NLOVgxdUcwdE5nVzhSb1JhaUxMSzYzQ1BnNC1LYlgtSFItNy16LWl0THl4emx0Z1pyTTdxUnFTSWljNTNPM1QxSVRBWmw5Ukl3alR3QTZzZXh6MlBPY1BOTmVCSTN0QzVkOGdvb1RJN2pVMzlHSlhiQUFrV01wdW5Ub1k0MkRrOVoxV05TM1FiWUJuaUNC?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
