@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 23:17:06（北京时间）**
+🕒 更新时间：**2025年10月15日 23:25:59（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Israeli military says one of the bodies handed over by Hamas is not that of a hostage - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOTlA3YkE1ekF6cnE4a04tMGJta0pyeFNjQkttd0FoakRwZnJYcy1QVWVpTEI3cWplRmowbWVyU0RGQk9YejhSR3cxN3pJazVqUERmMDRLdm9ZS2Fhc00zU3lQbzhGM2Q3OWc3MGNwQVpSYWxJdkJsOXdXbjY0dEU0blRDVTAtRVZHeVoyWlZ5OXMtTXpZUVM1ckhPZURvUWpZeXpPck5uSnB1OGM?oc=5) |
 | A Supreme Court ruling on voting rights could boost Republicans' redistricting efforts - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQcDllejJOdU9wNDFYcVdic21yZEgzUm94Z3FyM3ZHYlhkOU9WVXRJbF9EUnkza243c1VodVRwZmVuMnU2eGhvdkwxQTI3dkZmd0pZY2I5enQ3Z2lyYlNhSWpPZEc2VXlycUJXZVZ4WjI2VGIySVkxN2tyblMwV0FIVkJJUDg1clVpN1JPSlJkM0ZsSnJuUmFZU214SThNTkcxZVE?oc=5) |
+| Israeli military says one of the bodies handed over by Hamas is not that of a hostage - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOTlA3YkE1ekF6cnE4a04tMGJta0pyeFNjQkttd0FoakRwZnJYcy1QVWVpTEI3cWplRmowbWVyU0RGQk9YejhSR3cxN3pJazVqUERmMDRLdm9ZS2Fhc00zU3lQbzhGM2Q3OWc3MGNwQVpSYWxJdkJsOXdXbjY0dEU0blRDVTAtRVZHeVoyWlZ5OXMtTXpZUVM1ckhPZURvUWpZeXpPck5uSnB1OGM?oc=5) |
 | Seth Moulton to seek Massachusetts Senate seat held by Ed Markey in generational fight - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOYXA3VFRBVzBVRm8tQ3FsZjhfNlBzUHNuU0htdVp1MW5QQS1LMUJOdmtBblVoSzF6enNNa3FVNTNFdDRIaGpxY0x1NlhXekdla2ZMNWRESlNYYUtUWHE0ZE5DdHh0WVJIS3g0M0JITExGUGhlc3BTZVZtVDdXejhQdDlPT2czZw?oc=5) |
 | Fox News declines to sign Pentagon's new press policy - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOSjgxQWZsT3JKQlFNSkRWRFVsazB2aEdQdHdKNExySVBaLWJjSnNTRm1PdDlYNUhZN0J3QXliY0UwdXI2c0pRX0huR2laVFFPTWs0LWJOdE9rTEtIN2dpSm40LW0tYWltZ0RHZWx4cVlacnZzV3N3UjJidDV1amdEcTN3?oc=5) |
 | Trump demands Hamas disarm, as group moves against 'collaborators' in Gaza - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBqTEF1QWhZTzhmcUxfVXFvWDQwbjAtUjc5MXQ5ekd6RDdvUzhPeHI5X3BnRk10VTJOV0xvSnVnRUxCdFp6QzlDZFVrbHJxTmZqYW9JNndqVlhyd9IBX0FVX3lxTFB3cGdVSnBwbHlVUnpWbjFhMEdrdG1pX0JEaXNOX3A5eklfRGZEbUcxU1ctOVVKejFDdi00X1FuMmVfSmF5bW9uSDB3Nkt5REMzLTdUa1NKcWtVTk1kYzBv?oc=5) |
