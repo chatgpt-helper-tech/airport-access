@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 04:56:39（北京时间）**
+🕒 更新时间：**2025年10月16日 05:00:33（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Supreme Court leans toward further weakening landmark Voting Rights Act - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOclUyNFJDRFMyT292MHEwQkhiQzJNd1owTnZIUlRyNnRMbjZ5em0zMUNyZmF1a3F4ekdqVTctVFB4NWFhcC1BVXhNVWx4QlU0ekhGVnoyTGVESjBRcjBOMU5rUGhyZmhOMnFfbVZkRGNTNFRCNVBSYnZ2MW1MdXBWMUpNcjRCY2Z4ekE2UTVvX01EZ3lFQlZTdjhTWG5PVEZhQklMcVZXanhXWExMdFF6cVc4N1AxMERJWFRiaUlWWdIBVkFVX3lxTE5KRmk0N2wyNWFwa3JCQTN4VjRCNWI4UW9mM1NlamM0dnpjM1lORVpWeXJvZDB5V2stTE9wRXVMN1A3N3ZHRGVscVZfSEhFdm1LUVMzeHR3?oc=5) |
 | Judge blocks Trump from firing federal workers during government shutdown for now - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1HYlZrdXFyU1c1Mm8zT0ZCd2VKM2wyZzNhZEowMVA1Q2JNUExXV3I5bG5zY3Jmc0ktUUlkcXlndnJsV0hTUkJ6MkgxOGtoYnhxSlhYV0didm82Zk9qbmFQOW9GWEl6LWh1VUdPY1cteW5hbk5VWFVSa1Q5NVFsd9IBgwFBVV95cUxOMEFjQjFUaUlvamVMVldqTnRFN1lfalhoMlBjUmpvSDBlZHBoYmFISTBHTkdtdmQyZEhjMmxjTVVneW1YTFRTWHE0XzFITHkyNFU3aFpvTUczY2x0OHZPZURUbHFKNkhXT3NBUmN4ZTQ2QkxIUURCOXV4VUpqS0VYSWI2NA?oc=5) |
+| Supreme Court leans toward further weakening landmark Voting Rights Act - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOclUyNFJDRFMyT292MHEwQkhiQzJNd1owTnZIUlRyNnRMbjZ5em0zMUNyZmF1a3F4ekdqVTctVFB4NWFhcC1BVXhNVWx4QlU0ekhGVnoyTGVESjBRcjBOMU5rUGhyZmhOMnFfbVZkRGNTNFRCNVBSYnZ2MW1MdXBWMUpNcjRCY2Z4ekE2UTVvX01EZ3lFQlZTdjhTWG5PVEZhQklMcVZXanhXWExMdFF6cVc4N1AxMERJWFRiaUlWWdIBVkFVX3lxTE5KRmk0N2wyNWFwa3JCQTN4VjRCNWI4UW9mM1NlamM0dnpjM1lORVpWeXJvZDB5V2stTE9wRXVMN1A3N3ZHRGVscVZfSEhFdm1LUVMzeHR3?oc=5) |
 | Senate fails for ninth time to advance government funding plan - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNOVZXeDVaVkZuVmFFdmFROW43OG40Vkl5a0YyRnBYeGFabUx2UWZvMlhLaGhFTk5KN243UTB0Z3ozMjZscWJZc2NjSlM0XzU5eXdmejhyWEk3Ukh0TXU3Q2hPMUtveGZBdTh4TUNKS2lETW5SMXQxaDlLdzhZWTg0RWpYeExTR2lpUW1DUlEwX2RCX3RUMGVmV0NpTDI4cXUyWEw0VTN0VFRqVk5pUC0ydU9WZnk2WFlUUFAxR1Bqb3B6dWV2cmQ3Sg?oc=5) |
 | Trump says Israeli forces could resume fighting in Gaza ‘as soon as I say the word’ if Hamas won’t uphold ceasefire deal - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE16S3R3N0ZEdUxxZGgyUk9tdEg1TmlFOWhvRk1XdlZwU3ljYzhDS1J2S1NtcldCb20tdTRGYTFPUnh2dXViM3NaUGMxQThDY1pFdjNwOE84Z2dOM3J0NF8xUlhCWGI5Vm16cUxnZUlVekYwd040bHFIcEdWWQ?oc=5) |
 | US Defence Secretary Pete Hegseth's plane 'safe' after unscheduled UK landing - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5wcWROYVdIN09xcDVkd0I5UElyRk1PMjBHUFQ0TXRoWWZlOVdxU2JzWGVPcFpaVDF5VUtqTVZCc2x1eC1UTXh0RVAxY0ZXOU1KMVM5YjdQYXhEd9IBX0FVX3lxTE9rUHhfMEtiR2xZSEJONzVwUmlyRXJmWjdrWXJxYzRiVVdueHF2WEpJYXFBSHF3ektBVVdrRkNsZV9pOWdvOU1GWGdsUV9maE44QWdoQ3RhRFUwTmxadTNN?oc=5) |
