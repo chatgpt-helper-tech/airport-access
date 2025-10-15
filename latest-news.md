@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 15:49:47（北京时间）**
+🕒 更新时间：**2025年10月15日 15:56:04（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | Vets should be made to publish prices, watchdog says | [阅读全文](https://www.bbc.com/news/articles/c201r14z6r3o?at_medium=RSS&at_campaign=rss) |
 | AI couldn't picture a woman like me - until now | [阅读全文](https://www.bbc.com/news/articles/cj07ley3jnpo?at_medium=RSS&at_campaign=rss) |
 | How singing with other mums is helping women with postnatal depression | [阅读全文](https://www.bbc.com/news/articles/c93127z99yxo?at_medium=RSS&at_campaign=rss) |
-| Government told to prepare for 2C warming by 2050 | [阅读全文](https://www.bbc.com/news/articles/cx24kllyye1o?at_medium=RSS&at_campaign=rss) |
+| UK must prepare for 2C rise in global warming by 2050, government warned | [阅读全文](https://www.bbc.com/news/articles/cx24kllyye1o?at_medium=RSS&at_campaign=rss) |
 | Pictured: Winning entries for Wildlife Photographer of the Year 2025 | [阅读全文](https://www.bbc.com/news/articles/cx253vrd931o?at_medium=RSS&at_campaign=rss) |
 | Government under pressure to release collapsed China spy case evidence | [阅读全文](https://www.bbc.com/news/articles/cql9v6x4wpzo?at_medium=RSS&at_campaign=rss) |
 | You can't escape, says victim of train sexual offence as reports rise | [阅读全文](https://www.bbc.com/news/articles/c39r2zp1dw7o?at_medium=RSS&at_campaign=rss) |
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Israel names 4 deceased hostages as Hamas hands over 4 more bodies - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOcXVZTzJBbklBWG9ZU2FCNHEwd1VFMXVqWkp2eWgyU1IwNFVkbjZ0MFE4aXlrOTlueGlpdXoxVnZvdUFuRnp2SmRCcW9FREs0bUZJLTRzYno5WFZERmZYalhFVU8yc0dvZ1JYR2E1ckJYZzdIZ2Ntd0NJZVU4MDl4UVZhWFh6WWlGTXc?oc=5) |
 | "Best birthday gift": Charlie Kirk posthumously awarded Presidential Medal of Freedom - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNTk5QRzhZbkl6dHBmWFRydEpyc2I1QUp2R2lJREMwTkV1VzF2ZW5qVWJaSzNuUkV5d0Rjd0NZVjNPeFM1U2RGRk1wLXg2X0txQ0Zib0FsdmNMNV9zRnhPRVBvMWh6VVJNeFUzRGdHbUVDRjEtdmtrMzllTnI4d1ZMZ0U5Z1hVN3Ux?oc=5) |
-| Multiple Texas airports are refusing to play video from DHS’ Noem blaming Democrats for government shutdown - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPNUhMUVU5THhlc0REMVJ2VVhvN3lzUWtqUGx4UVc4Y2JHMm9MYzR6c1FFeUFoN0hoWldaQ1BKcnF6RDJ0Z2NGNDdmdERVREIwdGhoWEJNbDI3Z3BQcFZOSS1CUTc4dVZXODVoMlRMQmNZYWRtelBhamdtWDEydWVubTBJTUNIY2JBZDBfU2dGOThXcXFBdnNqZDV3VUJUdw?oc=5) |
+| Major airports refuse to show DHS Secretary Kristi Noem's video blaming Democrats for the government shutdown - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQVE9HZ0FGak8wQUdhX2lUVEpBUzIyRWNNY19vNVVfY0J0LVNjY3cwZTVudTlyRU0xZXd3V0l5SzVFd3Z1eE9UXzdQdE9HRTBWRE8tclBKd3YxREx6N2JDLXJjaVA2Xy10cWVmTU4wZ0U5anNsNXRiUnppakNuM2dBR2JqWjFmUThQNGFRa3BHT0xzRGtPSjd5cmVVcEVfOU3SAaQBQVVfeXFMUHg2WWhackxCQV9tU1IxVEVEUVdORzJMbmZLbERJZFVSZFhkZktJRzdtRVo1bkozN2dLTGtOb2xmZWphQjBiQkJuQ1NmcDlvWi04WHg1VGMwMzV0UnlVS2xWQnV6WVhrVXd6czJRWmVMMFhWOC1VNGtpS0lPSWtqTFJxLVFDZ0FsYXZQdkZlY2h4VlROYThUYzNvb2JReHNvcHQ1Q2o?oc=5) |
 | Trump vows to disarm Hamas but won't say how, avoids details on what's next for Gaza - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQSTJZTXZVNXVIdzEtaU9hblJQaXo0QjBUbnBYS29LRGpYOW1rWkhPMEJYTmhtOTNGNGR0aXR1U1RHVlZ6S29WeWdVZi1LaURQVUpZTHN0QmFmTHE3bDAyZlh4Z25oY0dRci1ySzlkRDJ4YjlHbXhYWEJVOFJHNllHYVRFc3dRSVJ3czdKLWNfVng0aEstMWVEbEJ30gGfAUFVX3lxTE9fb3JxUkJUajE2ZkRHRlYzaXd1eFhnbGZiR2pyN01teERmb3l2U2d3LUNHVm9icncwMzg3emFXdHJBY3lFb2lEZmpLWjhfbVU3QWVzOWRiR3IwZFNGMFBnM21aSXZSZEI2ek9GRUg4SHIzTk1xVDBxVk9sUkZzQXNCSXYtOFVvY3B4WEhxU0RKYjNYRHVYUlRRYzlhNzFIMA?oc=5) |
 | Major media outlets, including Hegseth’s former employer Fox News, decline to sign new Pentagon reporting rules - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQZFg0dmRWV1dZSEVYSjBNOHhvTUt0TVNVTjFSSHY5eWN6QW1iRGd5Q1hkZjVCUHZJY1FPM3ZrdTgzMk1IUi11ZEdVZWgxYk9TNW41WEg3Rm5BLUtYb3dsbW5yMm9rbjc5RHlNazlGSzRIaW1xc080UkJQaVF3WlRNYmQyVTZmdUl1aXU4eTFaQQ?oc=5) |
 | US kills 6 people in strike on boat accused of carrying drugs near Venezuela, Trump says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPWlpiSUxZaHB6ZDd1cWl1TG93WWpzU0plLUwwQUNUTW9JRzhGb2FrQ3hjdkFQN3ZYN0ZLWG9FTmpGeUtXeUdVeUFMZ3ZYRGhONWZmck93U25mbHpRNG5xWXBobUFQc1J3VmRSUW1WNzZNcWFYVjlCTEhQeGltdGNHN1hCVDFuWmZ5a0dRLW5PWFNFUVRCb1Z0aG80WFpxcHQ3cGsw?oc=5) |
