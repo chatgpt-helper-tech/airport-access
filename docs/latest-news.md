@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 14:09:41（北京时间）**
+🕒 更新时间：**2025年10月15日 14:16:22（北京时间）**
 
 ---
 
@@ -8,7 +8,6 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Hamas returns four more bodies of hostages | [阅读全文](https://www.bbc.com/news/articles/ced60125zyqo?at_medium=RSS&at_campaign=rss) |
 | Bowen: Trump's role in Gaza ceasefire was decisive, but not a roadmap to peace | [阅读全文](https://www.bbc.com/news/articles/ce86118q6ego?at_medium=RSS&at_campaign=rss) |
 | Government under pressure to release collapsed China spy case evidence | [阅读全文](https://www.bbc.com/news/articles/cql9v6x4wpzo?at_medium=RSS&at_campaign=rss) |
 | AI couldn't picture a woman like me - until now | [阅读全文](https://www.bbc.com/news/articles/cj07ley3jnpo?at_medium=RSS&at_campaign=rss) |
@@ -18,6 +17,7 @@
 | I felt trapped, says victim of train sexual offence as reports rise | [阅读全文](https://www.bbc.com/news/articles/c39r2zp1dw7o?at_medium=RSS&at_campaign=rss) |
 | Red Tractor ad banned for misleading environmental claims | [阅读全文](https://www.bbc.com/news/articles/cx2lmnvj3n5o?at_medium=RSS&at_campaign=rss) |
 | ChatGPT will soon allow erotica for verified adults, says OpenAI boss | [阅读全文](https://www.bbc.com/news/articles/cpd2qv58yl5o?at_medium=RSS&at_campaign=rss) |
+| US strikes another vessel off Venezuela coast, killing six | [阅读全文](https://www.bbc.com/news/articles/cg51625lmmgo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
