@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 10:26:02（北京时间）**
+🕒 更新时间：**2025年10月15日 10:32:34（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | Pictured: Winning entries for Wildlife Photographer of the Year 2025 | [阅读全文](https://www.bbc.com/news/articles/cx253vrd931o?at_medium=RSS&at_campaign=rss) |
 | D’Angelo, R&B Grammy-award winning singer, dies aged 51 | [阅读全文](https://www.bbc.com/news/articles/cwynv40ly4vo?at_medium=RSS&at_campaign=rss) |
 | AI couldn't picture a woman like me - until now | [阅读全文](https://www.bbc.com/news/articles/cj07ley3jnpo?at_medium=RSS&at_campaign=rss) |
-| Labour under pressure to release collapsed China spy case evidence | [阅读全文](https://www.bbc.com/news/articles/cql9v6x4wpzo?at_medium=RSS&at_campaign=rss) |
+| Government under pressure to release China spy case evidence | [阅读全文](https://www.bbc.com/news/articles/cql9v6x4wpzo?at_medium=RSS&at_campaign=rss) |
 | Migrants will need A-level standard English to work in UK | [阅读全文](https://www.bbc.com/news/articles/c8679q0pe57o?at_medium=RSS&at_campaign=rss) |
 | Asylum seeker laughed after killing woman, jury told | [阅读全文](https://www.bbc.com/news/articles/cwy902djzv2o?at_medium=RSS&at_campaign=rss) |
 | 'It gave me my voice back': How group singing is helping new mums with postnatal depression | [阅读全文](https://www.bbc.com/news/articles/c93127z99yxo?at_medium=RSS&at_campaign=rss) |
