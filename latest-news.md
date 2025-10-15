@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 10:56:02（北京时间）**
+🕒 更新时间：**2025年10月15日 11:00:29（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Government shutdown live updates as Senate fails to advance GOP funding bill for 8th time - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOdFhTbV9NNy1uRmZQNmoxVGtZLWVTX2VYcng4bXhXSGtINU1qVTdOVEwwWVlhZHhnRlBROWd3TkVOR0pUcEtwMEhIUWI1YjA2Q0JJRGxJVHQ0Um9aVjBxeEV4NHZnc3VWRWtkS3B3cm56dmVBX2wzYU5tWHUtemdRbXhKUTFJTnRDRUHSAY8BQVVfeXFMTktuVzl3Nk5wd0tIWHpCLTJXbUxNQTRNMmtKTUZhRUNwbXhNMDdSWW1fN1JJVC00X3dBR3lvbGRBY3dVeC1oQTNCMnhJZzkyY0ZtUWhLdkt5ZFMxYjhYQUNLeTZyOV8zR1BnNEthNTQwOF9EUU1oOUU3MnpBTG54TFI0dkYyZE8tem1WZTJoelk?oc=5) |
 | Maine Gov. Mills plans to confront President Trump again with her campaign for the US Senate - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNUFdIN2Y3STNWYWw4OU5IYV9SRWFIVUNFM1NCOUZ5MzNCUjc5c2VSNmN1MXhBZjhwQ3VOMmdObDQxU3hzUXg3N0J1cW9rOVJuX1RvQjlnV1M5ejdrODdmWXFEcHdZMFhwMXJwTVFmMjF5MlRMdlVQQWgtcFBSckZGcTZSS2dFa1Zuc2lSRkNqNUNXMmY5cnE0?oc=5) |
 | Major media outlets, including Hegseth’s former employer Fox News, decline to sign new Pentagon reporting rules - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQZFg0dmRWV1dZSEVYSjBNOHhvTUt0TVNVTjFSSHY5eWN6QW1iRGd5Q1hkZjVCUHZJY1FPM3ZrdTgzMk1IUi11ZEdVZWgxYk9TNW41WEg3Rm5BLUtYb3dsbW5yMm9rbjc5RHlNazlGSzRIaW1xc080UkJQaVF3WlRNYmQyVTZmdUl1aXU4eTFaQQ?oc=5) |
-| ‘It’s revolting’: More Young Republican chat members out of jobs as condemnation intensifies - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxNWnFVNkJWaFVUOGRIMGx0VE9sNVFEUENNTWpNZ0JILXFkT19fX0lQeDhFRHB3SFdSbHpxVUdfUEl1V1lfYWplenp1V2JRZnpHbUtSQml6S1JEZ082b3FuZTg2SktkMGE4Qmk4czUwRDRQUGpUVnRnWVljQkdBak91Q0kwYWM1OEc2dVN3eDJ6STVKbVdMaWo5cWVVcW9oZVc2VzVlSjhmcHM0cGdDLU52VF9wZ0FEVVMwbGJRYmlIMTNSWXdyYjhyMnMwSEJxdUZkX0hwYg?oc=5) |
 | US revokes visas of individuals who ‘celebrated’ Charlie Kirk’s death - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5seUZXbGxIZ2xxM3liSGhHdkk0Q2N0WTRlVklzVjdiS1lLRzdiMUwyRDlXdlllaXg1T3RUUzNCYUdxbl9Fbk1ydnVpMVY4YTR1Qm53cDFBdWNzQjYtQzhyc0FidTFfS3JlYU81cEFITjk?oc=5) |
+| ‘It’s revolting’: More Young Republican chat members out of jobs as condemnation intensifies - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxNWnFVNkJWaFVUOGRIMGx0VE9sNVFEUENNTWpNZ0JILXFkT19fX0lQeDhFRHB3SFdSbHpxVUdfUEl1V1lfYWplenp1V2JRZnpHbUtSQml6S1JEZ082b3FuZTg2SktkMGE4Qmk4czUwRDRQUGpUVnRnWVljQkdBak91Q0kwYWM1OEc2dVN3eDJ6STVKbVdMaWo5cWVVcW9oZVc2VzVlSjhmcHM0cGdDLU52VF9wZ0FEVVMwbGJRYmlIMTNSWXdyYjhyMnMwSEJxdUZkX0hwYg?oc=5) |
 | Church of Jesus Christ announces new First Presidency - KSL.com | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNa1ZKZ2VnX01wN1BHZWRnZV9XTlNDZUZPN0lxVU1mbFVYUERJVmFxbGJSWXN1TDRjUmZpazVkYU45bEU4YnpXNzF6ZXZ2RkxRSm85bjVGblZ5Vk5aNUIzUV9yTW55NzVIUjBBRUhYNUN2Wmh6V2JDNTV4YVpMdmpRU0RwcGNaUjZ4UmhCT3FRdzNvQ3Vn?oc=5) |
 | Suspect Pleads Guilty in Firebombing of Pennsylvania Governor’s Residence - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNY2l6cXB6Vk93WF9oMzZHVXpVOXBhampZaHFfTVFmMGRRdnFZNXFkNXZURGhDcXJpdmRjOFRiNVJOUUJyU0Rwd2pmem9LUkM1ZXN0N1JTRjFLOURnU2RkQTIxLVBfZjl3aEdfUDl5UlMxaXd4cUtfY244LU4zZDM0RWo1b1Z0NEV1NUViZQ?oc=5) |
 
