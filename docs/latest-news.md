@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 18:49:34（北京时间）**
+🕒 更新时间：**2025年10月15日 18:56:35（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Major media outlets, including Hegseth’s former employer Fox News, decline to sign new Pentagon reporting rules - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQZFg0dmRWV1dZSEVYSjBNOHhvTUt0TVNVTjFSSHY5eWN6QW1iRGd5Q1hkZjVCUHZJY1FPM3ZrdTgzMk1IUi11ZEdVZWgxYk9TNW41WEg3Rm5BLUtYb3dsbW5yMm9rbjc5RHlNazlGSzRIaW1xc080UkJQaVF3WlRNYmQyVTZmdUl1aXU4eTFaQQ?oc=5) |
 | Trump targets China cooking oil trade - but sales were already tanking - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOME1ja3ozXzNsRjVhZGhyVDk4R0tJZnR5Ui1XRUoxWmFPZG1sLTBLZkxiQ1dRRm4tTG9zR1pZMWRYMmIyTUFnOElILWREUC1jUmdZZ0Zpd3JIeHBHZGRrYnlGenNfSnptV2p2VmJ3eUdhX2w0V2tEYnNKNWNjdGNZdHRGc2h4Tnp3d1BYeUV6Zjl1MnFqa2tWVkZ1a29PT1pJVzZjZjEtUUtIeFJuWmhLSVlGU1REck9GUTJGRjlB?oc=5) |
 | Tear gas used by federal immigration agents following East Side traffic crash, neighborhood uprising - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPYndVX0kxV0pYdnZxRERGS1VIUEExWTZuLTAwN1VfTDd4ZFFXMEZ3QmZSSjJUclo3RHJ4blYyTnhuVHR0MjBvYnBUanNsX1ktaDEzNVJ0VmNuaVg4T1BTZVJzVzdNbVVGQjhpX1hWR1NkMHgxWWY0TDJPMXpZc3Utcg?oc=5) |
-| U.S. kills 6 alleged drug smugglers in new strike off Venezuela, Trump says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNYVVWaWtvSDhWbHczMTJTenBPanRsM2RjS3AtVmstRXh5amdxS25TVVA2WGxvVndEQ2pzTDRwVldpWHhhNURRTTlydHdXck9VYThuVUVBSlFsNUZiX0s4X1lGYnlLTHQ1OVVqVEo0Z2o2RHp2b2RUbWl4OWcwQmNiUGh0ZHZlWWlwMVlsbktXZw?oc=5) |
+| With new cuts at CDC, some fear there's 'nobody to answer the phone' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1MTHdHWlNZTm42ejV1NFFFTDhoNVpLejZ0dzdBVnFYOGR4SUh6b01aXzJtVERWMVBSRUM1bDlsR0JCUjFyRDF5eWU0WEljSnpjOXJaRGREa3IyWjdRVzNrbkphRjVfcFVvN05GSG9oWWtxLVdYNERsdmpYQlZLdw?oc=5) |
 | ‘His calling is not by chance’ — Scholars, members respond to Dallin Oaks as new LDS leader and new First Presidency - The Salt Lake Tribune | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQRnRsVEVnSlA4cS1yaDlJMGVuaUIzU2F3cV80V2VZVE9ORVdTTVEwMUxXS3JZSzJUZ1M4SzRubGxlSVY5N1pMQ3pDWVRCZlRCMWpkckttd3MtZU5ReHk2aHRtZllUTkx1aDZ1VVROcFB4akpyLU43Vi01dzRnSEZCRW5xVQ?oc=5) |
 | US revokes six visas over Charlie Kirk death amid social media crackdown - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPSkJQbld5WEN5bGxfMkNCTzBjR1BNajdRT1V0TnVzNllTQlZDeUVFNGlaWmtiTVp2TERKM3kzNktCWmdQbm1BbjYxZkhIdU5VNS1CYmlKd2JoWXdMXzNDbG0xUXMxTkdtY3BsY3hkU1F3N0xLeS1sbXEtNlMxM2xuQjBNWS1BWlh2anFKY1FYSkFsdmlvMjZpc1J0WVB1VDRLRTlZaWRzNGUxdTlsRTVhQXp6djDSAboBQVVfeXFMT0tBN0RxQWlOdHNSeEl5cUhhd3hyOUMxX1BfWDFsX3ZzeV8zdVZxNFhFcktTbWthUFhFdGtjb0ttQ0R4SFpOc1ZPRlBqNEpOT3B6WjREMnR6UmNOX2lZb3RHOXZCOU9vQlVXMzljeHIzRUQ0S05OZzE4MUZWbU14THA1Z3hEcHlqeWVYWF93MHdRTDJXNzZEdVlwQVNCMFdqa0lGU211SXBVZUs3QVozd2dwX21KWEphYTBB?oc=5) |
 | Pennsylvania man pleads guilty in arson attack at governor’s mansion - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxONzFKblVIQlN1WXZsU2Y0Y0p1N1BHV3ZtM1BtcW9Gbl9ZV01TUWRPLXh5SU1KNE5oTXpaU1dKWWhWdEtuclo5cUg4aGEwMWZ6azlPN3lxQWJGeXBTLVNaNlBraC14YUtFN2NDbTlYVEw1eWZ0X0ZIN3o1TnBtZG1BLUNSMlhMUFVRTVctaU92QkJqaU1lQUJXbUVhSWJ1ODdydlQ2ZA?oc=5) |
