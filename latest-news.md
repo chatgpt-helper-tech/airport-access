@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 13:24:12（北京时间）**
+🕒 更新时间：**2025年10月15日 13:32:54（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Trump: Hamas told me they'll disarm. If they don't, we'll disarm them 'perhaps violently' - Haaretz | [阅读全文](https://news.google.com/rss/articles/CBMihwJBVV95cUxQYU1fWE1PWDlmX1pxOFJvOWkwVDlwbW5ncUNzaktwRkV0NndmTnpUb1F5SXVkQTRobDNITGxzUmNfSlZtQ0EyZHpzQ1lIbk15QmpybWNkVktzVEh1dW9TUzNDUGEtY2ZIZmFJZDVpLVZVR0V6MWZMY01WQ0RRcVhqUERUSmRYMnVvLVdObFhiYm15X1VlQ2FyT3ZWN1ZhUnd2SHBiVnVXUHY1Mk8zc0hFZ21JbzBCbl9FRkdOU205OXNIckZkRmxQQXo4WjhzVGhTM0JtYmtWblVSU0V0RmRoMzZVVjY0OHJib1lrcHNmay1scTBWT3VLa0tOX3ZrYl9mNzZPUGpaZw?oc=5) |
 | Vermont Gov. Scott calls on state senator to resign after report on GOP group chat - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQcUlfdndST0ZEejFQUDZGTjBJR3ozOElkVk5UVi16M2IyZ1dRYXhuVzhWWTJBOTQ1LVJ1d0p2LW5sMG1DWEJoTHZ0X1A4cXN4bFBrSTBwRnlUQ3gwdWVhZEctRl9Qdmg5Zm1PcHNab3Q2WjQxWTR5ZTVBUjlfQy1RTl9xMWZzbm1CX25ZVGdaaUZDVy1OWHNxVElVTHkyZ0dvSHpSbGE5anE3b3BVdVHSAbMBQVVfeXFMUEk0UE5hdHBWSGk5aXZLd2VNQkZUYjhzbjZvYkNIQmRZUzZJYkwyT19mZzBtT2dENFdka0VNbzhVWHIxQU9GS2NKR2s2YzIzdEx4S243RV9DMGtpZzdHRGJCZ2VtOHQyQW02aWtvS0hqbEJkYlBXUWVCNU43LWhRSlVVeUFJZk9aNHBWMTZXMlk2T2JNeUdrMDhRV3Vvbm5ySEpTUzhvb2dKV2lha0VCVEtHZXc?oc=5) |
 | Trump administration revokes 6 visas over comments about Charlie Kirk - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNcFBKVHN0QXVEZTJtUXdJWThscjU5TjFrLW1xTHdjZXhwX2JlZ00yNjdaem11bFZ5QkxMZk1YTzZ0Mm1ROWNvTU82VXBfdDRlSHR2eWlUaEQxQ0RqNk05eU1uYXg2ODNFLXVINldLZ1JMZ3hYbHJOWHRhWUdkSXBSTy12RQ?oc=5) |
-| Church of Jesus Christ announces new First Presidency - KSL.com | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNa1ZKZ2VnX01wN1BHZWRnZV9XTlNDZUZPN0lxVU1mbFVYUERJVmFxbGJSWXN1TDRjUmZpazVkYU45bEU4YnpXNzF6ZXZ2RkxRSm85bjVGblZ5Vk5aNUIzUV9yTW55NzVIUjBBRUhYNUN2Wmh6V2JDNTV4YVpMdmpRU0RwcGNaUjZ4UmhCT3FRdzNvQ3Vn?oc=5) |
+| Dallin Oaks, former Utah Supreme Court justice, named as new leader of Mormon church - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNQmQ5SHRXNXRLRkN1WTlDcWp2dkhsTl91YTNfTGV6U2lSZU1CSE45czg4aDZFck93Y0prQ3JVbkExUFAtdVlMbzNMbWRJQndXYW1WV0w0eG5WMDMxOUFiWjh1elFUQVJGZUkwQWJ3VmFhWnphTGxkRmUzNmxXTHI0bmkzdHZGTVJUTlY3OFVNQ0RZOUdNbG0xVC1fcHdjVWk2cHNCVjVNeDdCNzlYcTZtRWRfWjlSTng4UlE?oc=5) |
 | Suspect Pleads Guilty in Firebombing of Pennsylvania Governor’s Residence - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNY2l6cXB6Vk93WF9oMzZHVXpVOXBhampZaHFfTVFmMGRRdnFZNXFkNXZURGhDcXJpdmRjOFRiNVJOUUJyU0Rwd2pmem9LUkM1ZXN0N1JTRjFLOURnU2RkQTIxLVBfZjl3aEdfUDl5UlMxaXd4cUtfY244LU4zZDM0RWo1b1Z0NEV1NUViZQ?oc=5) |
 
 ---
