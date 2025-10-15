@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 09:00:07（北京时间）**
+🕒 更新时间：**2025年10月15日 09:08:19（北京时间）**
 
 ---
 
@@ -24,11 +24,11 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Hamas Releases Bodies of Four More Hostages Held in Gaza - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNVS02MUZMc2daS1RsakYxSkdSemZ1OUdRUVlNT0JiX2p3UXZybG9sQXc1MzF2RGhrOWtnRjRGazdTTXQyWjNHeWtpa3diWDZJeXY5Uk9xMXhvVW1XYkJKQWY0MUduM2VfbUp0RDFVLTZEQTJFTmNPSkJ6NHpEQkFHNXI5S2tiMGgzeG1YaGVyOTZnNHRld1g3Z2gyMjl0OU5Ea2V1TQ?oc=5) |
-| Trump honors Charlie Kirk with Presidential Medal of Freedom on what would be his 32nd birthday - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPYjZVUi0xcld1ZUtQMWFYcjNKT0JLWExwSTJoV1hMTG02MlVMVXh4ZTYydTE2U01Kel9wOG5MWWt6NUNlX3pPbnJXUk51MjdCTWtKVndBak94aXY0SFNONm9QNHd1Zi1EOGNpeEUtRVZkVDRwa0hrSHpmbFdSTm1GSU1wN0lKTXk0Z18tMmNOc29MMVplNWVOMHl3VGJhTlhWZUJHWA?oc=5) |
+| Trump Awards Charlie Kirk the Presidential Medal of Freedom - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOZXBQSXNlcEc5c0JsMnBZLU9mY2dwM0t5Z3lrUE5PN1ZvNDNwOUlncE1rVVYwdUNWR1lXSjNtUDVnbHY1Qk1CNU9kXzhFNV9KbmVQRkhpRE9JVXItbHdKU193TXRLaThadF9kbFR4b3lJelM2d3VIb2dXVFNubnpDc3B3?oc=5) |
 | Trump says Hamas will be forced to disarm or ‘we will disarm them’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNaHl2UnhjQ2oxVFY0RjhPRkZaNFdMMGZBN015S0N0b0ZyOWxhNlVKLUNsX2lzbm5FakJTSmpmaFhud2FuMG5PTGo1a3NwN3IxRldJN2M3N0lxS3F3b1ZaT2pWS1FuWl9Ba0U1SDlzdl9BSFIzNlZFNWxlOUg4MTVxV21NbGU0VENYX3dueVBsd3g3Uk40eHJaczA0SU5vMXJnSEtlUFlXYTB1RjVERkhlMmdn?oc=5) |
 | Government shutdown live updates as Senate fails to advance GOP funding bill for 8th time - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOdFhTbV9NNy1uRmZQNmoxVGtZLWVTX2VYcng4bXhXSGtINU1qVTdOVEwwWVlhZHhnRlBROWd3TkVOR0pUcEtwMEhIUWI1YjA2Q0JJRGxJVHQ0Um9aVjBxeEV4NHZnc3VWRWtkS3B3cm56dmVBX2wzYU5tWHUtemdRbXhKUTFJTnRDRUE?oc=5) |
 | Janet Mills injects Trump into her Maine Senate campaign - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFAzS0pnSVQ4MEI0dWxaQTZkbXh2N04xeEZwTmRySnJPbnF5eV92TGV2TGNDdmJoN1p1M0paQ0FUNWp1NUdITHpGMjRqeVBUT2pwZVJDSjlXR0tzZkR0OXhveVdjRlhsYWVQTDJSdXItdjA?oc=5) |
-| Live updates: Trump says upcoming Argentina elections will decide how 'generous' US will be - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE91T29wT0k1b0FKZnBQNk5ETTdVN3RJOG1oRXpqZFN2VE95US1lM1ctV0VxczVBOEJiZjk3Q2ZScGdNODVNcDNiWUctR1NEY1VNdUFvZQ?oc=5) |
+| Tear gas used by federal immigration agents following East Side traffic crash, neighborhood uprising - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPYndVX0kxV0pYdnZxRERGS1VIUEExWTZuLTAwN1VfTDd4ZFFXMEZ3QmZSSjJUclo3RHJ4blYyTnhuVHR0MjBvYnBUanNsX1ktaDEzNVJ0VmNuaVg4T1BTZVJzVzdNbVVGQjhpX1hWR1NkMHgxWWY0TDJPMXpZc3Utcg?oc=5) |
 | ‘I love Hitler’: Leaked messages expose Young Republicans’ racist chat - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNYV9DUENBdlZlTkRERGJJMnpUdnhBaEcyTWdNTnBFTkVnZkdiQWhKV0lNRDU1dXg2dnh2c2ROMnNVbE1MWWI3U1VfbmlFa29QTXg4OEE1dU5lRENtMzl1LVh1RGlpYlRfMkRaZm5ITHZSclc3ZkZENVZ2cjJ2MUxGMzctalpFMzNtV1IydG5sci1IRzRmY0E?oc=5) |
 | Lack of weather data due to Trump’s budget cuts impacted forecast for deadly Alaska storm - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOVUVjMXhxQ1B5c1Iyd2UyLWZ1XzlJQ0RYbF9NN3JmZHZ3RFJGMklnYlJsTTN5aFZjNDU0cVFNWlNrUkVDOVhTWEV3ZTVvSktQVzY0M1NJeHdpdWFRX2w2QmZFUGN2MENKaGdDNzJNVmItWXZreEpNT2xGeDNyb1hpNkk5Q2gzZmdSbm9XNk1LdVlxcnIxLWc?oc=5) |
 | Dallin H. Oaks Named President of the Mormon Church - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPZXY2TmF6OU5yc0Y2ajE3eXJnNDNWb0VDZWZGT25tdm5rQVZXc2JCQkV1VDluSmhrMk5IMFIweVVGb3czbHBPUDJERi1lS2FERnFyaDEyaWVNa2RmMklpaTJrTGNwWEtNdVpJbEVDLXlGODFrd0tKYlM2WmZEdUVRa1kzMWJ0QQ?oc=5) |
