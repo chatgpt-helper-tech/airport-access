@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 15:25:49（北京时间）**
+🕒 更新时间：**2025年10月15日 15:32:59（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | Vets should be made to publish prices, watchdog says | [阅读全文](https://www.bbc.com/news/articles/c201r14z6r3o?at_medium=RSS&at_campaign=rss) |
 | AI couldn't picture a woman like me - until now | [阅读全文](https://www.bbc.com/news/articles/cj07ley3jnpo?at_medium=RSS&at_campaign=rss) |
 | How singing with other mums is helping women with postnatal depression | [阅读全文](https://www.bbc.com/news/articles/c93127z99yxo?at_medium=RSS&at_campaign=rss) |
-| Royal Mail fined £21m after missing post delivery targets | [阅读全文](https://www.bbc.com/news/articles/cd67qyw7z3vo?at_medium=RSS&at_campaign=rss) |
+| Government told to prepare for 2C warming by 2050 | [阅读全文](https://www.bbc.com/news/articles/cx24kllyye1o?at_medium=RSS&at_campaign=rss) |
 | Pictured: Winning entries for Wildlife Photographer of the Year 2025 | [阅读全文](https://www.bbc.com/news/articles/cx253vrd931o?at_medium=RSS&at_campaign=rss) |
 | Government under pressure to release collapsed China spy case evidence | [阅读全文](https://www.bbc.com/news/articles/cql9v6x4wpzo?at_medium=RSS&at_campaign=rss) |
 | You can't escape, says victim of train sexual offence as reports rise | [阅读全文](https://www.bbc.com/news/articles/c39r2zp1dw7o?at_medium=RSS&at_campaign=rss) |
