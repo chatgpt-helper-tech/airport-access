@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 01:16:30（北京时间）**
+🕒 更新时间：**2025年10月16日 01:24:45（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | More than 1,500 people displaced after typhoon remnants devastate Alaskan villages - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNN0tuZXgzZmRscEtWZ2lXdm1vRU1FS3QwelpVSXVrNU5vdVQ4MWpnOHdpbnRiTmwycDNtWkZWdTlnZU5vQTFpb3ZkTlJPMWkxNnNicVRLenNHVHBteWVaR0M4akh6YTNibFlNdEZ1VjdHQVBaUV8xeGdMdDNlb2J3c0t6Q3Z3UQ?oc=5) |
 | ICE Is Cracking Down on Chicago. Some Chicagoans Are Fighting Back. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9oZWxwUENLMnEyeWJDS3c5TEl4Wml1NmxNLWJDYWJfVGtiaDN3RWlpNGgwdzFTM19MQ0IwTGVlRk55c1Q3d3ltZkhzODc1Q0g1V3NuX3RxSGNsRFNGaGFVZTRvdG9ib01sS0Jmaw?oc=5) |
 | Trump’s troop pay move is a ‘temporary fix,’ Johnson says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPMmZ3dkY5bHFvT3NlWV9CTjg4V1N4ZkE0SHlmdHVNZEpicXBxX0lOdkp0dWdxMldRSWE4ZjVxOC1FMkh0dnM1cFBhRGdIS1NKOXhTTnYwZ3hheU83b1dZRmZKT1BrT2JSZ0RUQWVkT21QY29GTmROUXg5ZnhIUzhnUmNDWlQwTnlTd2ZsemZwbW1SV0kwaXYw?oc=5) |
-| U.S. charges Cambodian tycoon in massive alleged cryptocurrency scam - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOZ0E5RUJxZUxGc09kTjdFbWZhX1JxU2FVUHdMZGpzdy16c0FoM0N3VFQtbjdOekJBUTZRR3RwUFpxQlVDV1YwREZGSzJQeVdtZU5fYkFxcUpmVzNPYW5xdHlISktnb0NGem04UGxCZEZaSXRkUFVkdmFwN0RHRzY0cS1iNnJsVXQxaE84RTkyeU5HMkhRWk4ybTRB?oc=5) |
+| ‘I’ll Have Eric Call’: Trump Sets Up Son’s Meeting With Indonesian President - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNb0NvR0FySFhkcXVqbTdWVDE3TGZJdWNneVZWcjZnbXhVVnBQNzJKd1lOQi14YWNrOFBEUV9ac216ZHhVb3hzX0lXRVBXVFVHNHNLVzd2MjBYQURFckIwMkFZRWVEVjREd2dHc1dya29TSlBzNXh6T2Fab2d1Ukt0ODR4WWozbVdrYWttbTNrLXNYSldNbTkxMzhnVnhLWEJmSHJtaDF1UTZmejRO?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
