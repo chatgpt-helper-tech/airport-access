@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 16:49:30（北京时间）**
+🕒 更新时间：**2025年10月15日 16:56:39（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | With new cuts at CDC, some fear there's 'nobody to answer the phone' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1MTHdHWlNZTm42ejV1NFFFTDhoNVpLejZ0dzdBVnFYOGR4SUh6b01aXzJtVERWMVBSRUM1bDlsR0JCUjFyRDF5eWU0WEljSnpjOXJaRGREa3IyWjdRVzNrbkphRjVfcFVvN05GSG9oWWtxLVdYNERsdmpYQlZLdw?oc=5) |
 | Trump threatens cooking oil ban as China trade spat deepens - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiaEFVX3lxTE9EQ3BUelRzN2lZZENBNVlrWUk2dHpxNmUtYmRSY1lsUDFESm5aUTA5M19weFZ6dUxkdlA0XzVIaHNBbmhNSWRKcl9vWjZ4R1VITjdxSEFzTW82aEdhQmtBOHlHRDdXS3BL?oc=5) |
 | ‘His calling is not by chance’ — Scholars, members respond to Dallin Oaks as new LDS leader and new First Presidency - The Salt Lake Tribune | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQRnRsVEVnSlA4cS1yaDlJMGVuaUIzU2F3cV80V2VZVE9ORVdTTVEwMUxXS3JZSzJUZ1M4SzRubGxlSVY5N1pMQ3pDWVRCZlRCMWpkckttd3MtZU5ReHk2aHRtZllUTkx1aDZ1VVROcFB4akpyLU43Vi01dzRnSEZCRW5xVQ?oc=5) |
-| Trump administration revokes 6 visas over comments about Charlie Kirk - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNcFBKVHN0QXVEZTJtUXdJWThscjU5TjFrLW1xTHdjZXhwX2JlZ00yNjdaem11bFZ5QkxMZk1YTzZ0Mm1ROWNvTU82VXBfdDRlSHR2eWlUaEQxQ0RqNk05eU1uYXg2ODNFLXVINldLZ1JMZ3hYbHJOWHRhWUdkSXBSTy12RQ?oc=5) |
+| US revokes six visas over Charlie Kirk death amid social media crackdown - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPSkJQbld5WEN5bGxfMkNCTzBjR1BNajdRT1V0TnVzNllTQlZDeUVFNGlaWmtiTVp2TERKM3kzNktCWmdQbm1BbjYxZkhIdU5VNS1CYmlKd2JoWXdMXzNDbG0xUXMxTkdtY3BsY3hkU1F3N0xLeS1sbXEtNlMxM2xuQjBNWS1BWlh2anFKY1FYSkFsdmlvMjZpc1J0WVB1VDRLRTlZaWRzNGUxdTlsRTVhQXp6djDSAboBQVVfeXFMT0tBN0RxQWlOdHNSeEl5cUhhd3hyOUMxX1BfWDFsX3ZzeV8zdVZxNFhFcktTbWthUFhFdGtjb0ttQ0R4SFpOc1ZPRlBqNEpOT3B6WjREMnR6UmNOX2lZb3RHOXZCOU9vQlVXMzljeHIzRUQ0S05OZzE4MUZWbU14THA1Z3hEcHlqeWVYWF93MHdRTDJXNzZEdVlwQVNCMFdqa0lGU211SXBVZUs3QVozd2dwX21KWEphYTBB?oc=5) |
 | Pennsylvania man pleads guilty in arson attack at governor’s mansion - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxONzFKblVIQlN1WXZsU2Y0Y0p1N1BHV3ZtM1BtcW9Gbl9ZV01TUWRPLXh5SU1KNE5oTXpaU1dKWWhWdEtuclo5cUg4aGEwMWZ6azlPN3lxQWJGeXBTLVNaNlBraC14YUtFN2NDbTlYVEw1eWZ0X0ZIN3o1TnBtZG1BLUNSMlhMUFVRTVctaU92QkJqaU1lQUJXbUVhSWJ1ODdydlQ2ZA?oc=5) |
 | Judge Temporarily Blocks Transfer of Miami Property for Trump Library - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9CWF9OR3hFbG9HenhWcFpxUXFIczFsYlpua21DMUIwV1VUWnJ6U1d6TURmd1A5X0xkb1NPTjNfaGFrOXBiREYxSXB0aGpCV0JaeXNoX0haSFVxQVFac29mb0s0STRxUlNfUUpPbVVtYw?oc=5) |
 
