@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月15日 08:25:47（北京时间）**
+🕒 更新时间：**2025年10月15日 08:32:47（北京时间）**
 
 ---
 
@@ -29,7 +29,7 @@
 | Trump says Hamas will be forced to disarm or ‘we will disarm them’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNaHl2UnhjQ2oxVFY0RjhPRkZaNFdMMGZBN015S0N0b0ZyOWxhNlVKLUNsX2lzbm5FakJTSmpmaFhud2FuMG5PTGo1a3NwN3IxRldJN2M3N0lxS3F3b1ZaT2pWS1FuWl9Ba0U1SDlzdl9BSFIzNlZFNWxlOUg4MTVxV21NbGU0VENYX3dueVBsd3g3Uk40eHJaczA0SU5vMXJnSEtlUFlXYTB1RjVERkhlMmdn?oc=5) |
 | U.S. kills 6 alleged drug smugglers in new strike off Venezuela, Trump says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNYVVWaWtvSDhWbHczMTJTenBPanRsM2RjS3AtVmstRXh5amdxS25TVVA2WGxvVndEQ2pzTDRwVldpWHhhNURRTTlydHdXck9VYThuVUVBSlFsNUZiX0s4X1lGYnlLTHQ1OVVqVEo0Z2o2RHp2b2RUbWl4OWcwQmNiUGh0ZHZlWWlwMVlsbktXZw?oc=5) |
 | The Supreme Court Might Net Republicans 19 Congressional Seats in One Fell Swoop - Slate | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOaE8zalQyLUk5WE5fZGs4T2xGUVJMaWgyVm52SzdZVm96ZUdkNmRFUDhyVDltQVFUekJUSGlwMmZJd3ZTLVByakY0TjVkZzRkT29SSl9JMnJybkRHUUtlTVZQM3IzQXBlRU9KYVozMUs0ampFbjN6U0pOeHdSZVN6Zl80eHlZSnVUcExsS2Z2eVBxT2FUN3NPbTlMUTV2b2Y2RmVhMHZHRkQ4blk?oc=5) |
-| Gov. Scott calls on state senator to resign over participation in ‘vile’ chat group - WCAX | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQeXNRT2JWVkhqVzFJZ0VPdmViSGNpSzI5NTQwdUo4Qk5UVFNFNVR3S1NjelVndGFFd3AyVzEyVE1DTXhHOXZDR1R0aGxNSEZWUGd0aFVEeFZadGtHWWp1UFhtZzU5b196Q1EtZ0lUMjU5WU5GS21fN3o3Z2I1MksycUFNN2ZRbTZsMk44QVFvRUpyVnlLNUloU2lRRkJWVy1CUG1LZ0Jfbw?oc=5) |
+| ‘I love Hitler’: Leaked messages expose Young Republicans’ racist chat - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNYV9DUENBdlZlTkRERGJJMnpUdnhBaEcyTWdNTnBFTkVnZkdiQWhKV0lNRDU1dXg2dnh2c2ROMnNVbE1MWWI3U1VfbmlFa29QTXg4OEE1dU5lRENtMzl1LVh1RGlpYlRfMkRaZm5ITHZSclc3ZkZENVZ2cjJ2MUxGMzctalpFMzNtV1IydG5sci1IRzRmY0E?oc=5) |
 | Suspect Pleads Guilty in Firebombing of Pennsylvania Governor’s Residence - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNY2l6cXB6Vk93WF9oMzZHVXpVOXBhampZaHFfTVFmMGRRdnFZNXFkNXZURGhDcXJpdmRjOFRiNVJOUUJyU0Rwd2pmem9LUkM1ZXN0N1JTRjFLOURnU2RkQTIxLVBfZjl3aEdfUDl5UlMxaXd4cUtfY244LU4zZDM0RWo1b1Z0NEV1NUViZQ?oc=5) |
 | Lack of weather data due to Trump’s budget cuts impacted forecast for deadly Alaska storm - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOVUVjMXhxQ1B5c1Iyd2UyLWZ1XzlJQ0RYbF9NN3JmZHZ3RFJGMklnYlJsTTN5aFZjNDU0cVFNWlNrUkVDOVhTWEV3ZTVvSktQVzY0M1NJeHdpdWFRX2w2QmZFUGN2MENKaGdDNzJNVmItWXZreEpNT2xGeDNyb1hpNkk5Q2gzZmdSbm9XNk1LdVlxcnIxLWc?oc=5) |
 | Church of Jesus Christ announces new First Presidency - KSL.com | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNa1ZKZ2VnX01wN1BHZWRnZV9XTlNDZUZPN0lxVU1mbFVYUERJVmFxbGJSWXN1TDRjUmZpazVkYU45bEU4YnpXNzF6ZXZ2RkxRSm85bjVGblZ5Vk5aNUIzUV9yTW55NzVIUjBBRUhYNUN2Wmh6V2JDNTV4YVpMdmpRU0RwcGNaUjZ4UmhCT3FRdzNvQ3Vn?oc=5) |
