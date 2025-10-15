@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 00:25:04（北京时间）**
+🕒 更新时间：**2025年10月16日 00:32:59（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Supreme Court weighs whether to gut key provision of landmark Voting Rights Act - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOclUyNFJDRFMyT292MHEwQkhiQzJNd1owTnZIUlRyNnRMbjZ5em0zMUNyZmF1a3F4ekdqVTctVFB4NWFhcC1BVXhNVWx4QlU0ekhGVnoyTGVESjBRcjBOMU5rUGhyZmhOMnFfbVZkRGNTNFRCNVBSYnZ2MW1MdXBWMUpNcjRCY2Z4ekE2UTVvX01EZ3lFQlZTdjhTWG5PVEZhQklMcVZXanhXWExMdFF6cVc4N1AxMERJWFRiaUlWWdIBVkFVX3lxTE5KRmk0N2wyNWFwa3JCQTN4VjRCNWI4UW9mM1NlamM0dnpjM1lORVpWeXJvZDB5V2stTE9wRXVMN1A3N3ZHRGVscVZfSEhFdm1LUVMzeHR3?oc=5) |
-| Israeli military says one of the bodies handed over by Hamas is not that of a hostage - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOTlA3YkE1ekF6cnE4a04tMGJta0pyeFNjQkttd0FoakRwZnJYcy1QVWVpTEI3cWplRmowbWVyU0RGQk9YejhSR3cxN3pJazVqUERmMDRLdm9ZS2Fhc00zU3lQbzhGM2Q3OWc3MGNwQVpSYWxJdkJsOXdXbjY0dEU0blRDVTAtRVZHeVoyWlZ5OXMtTXpZUVM1ckhPZURvUWpZeXpPck5uSnB1OGM?oc=5) |
+| Israel keeps Gaza border crossing closed while reducing aid deliveries - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOSkFjWVdxM2lYbkJqMS10aEpJYzY1R01oOXh0eHZtSlVxTXhKaFZLUG5KWXFNY1FJSGdGdU9jMV9kLVd4ZENoTjVYRXN1Z3VncUpTa1hfQzRNVllPb1cyTHNNcml6bjZJUUlSSHhFblZVVm1OYzFLSGozX1VDeDQwWXlR?oc=5) |
 | Wildlife Photographer of the Year awards – in pictures - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQZnhoOF9OZHBEZG93NjBvWG5PbkdSMzlhOHFjVDhaNVM5VTBIclBwSGdZV3Z0cTFhSTN3Skp1c1UyVDZwY282RzROWHBXRGttLUZzV09JSk1sTXFXOG1xRGRHM1BacjNEc2E5MDZXdXhaNWV1d1FSVlhOZEJOQ0ZvV0pYV25acUhqVmcwdG4wbHkzVS1IbXlmQk1RQXRESlNaeHdINXJOMmlHYTlxeFRXRWZR?oc=5) |
-| Thousands of federal employees are getting laid off. Will a judge intervene? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxORmtCRUVWdnk2LXhXNWM3WFpWSTM4UGRmR1VmUlY2aGJBT1ZkdHNFY2JiMDMtanlHb2dPUWZIcWFTT1M5bENxUF9reGN3UjA2eTNvODZFc3VwWkd3ak5pblhtTmRSdEpCcExrTENlZUluNWVLSUI2R3NxY0laa1d2REpkYTVRX2o0cG5Rc21VLXVTdlB2NGZnTkJ4Yw?oc=5) |
+| Former federal employees join Democrats to rally against coming RIFs - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOUTBXaVppcHZSLTNGR2d0WU9RdXJ5Y3dETUUzSDdoQnVrckR5S3Z1SnNtalJYY243XzZiZllubHYxR3BhTVNkQ1ZqLURtaTIzT2ljRjhRaUZ0VUR6OW5NTWRRSW1YUjBzNDM4b1Y2RlQwTXVYMjFtZmRYaU5tU1ZWcjh5MmxwYzFONFZCaTZDckxZNmplVV9WQkFGUy1raVp2VHc3VjJwS2p5cjExOWtVT3Bkb3l5aElXREE?oc=5) |
 | Major airports refuse to show DHS Secretary Kristi Noem's video blaming Democrats for the government shutdown - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQVE9HZ0FGak8wQUdhX2lUVEpBUzIyRWNNY19vNVVfY0J0LVNjY3cwZTVudTlyRU0xZXd3V0l5SzVFd3Z1eE9UXzdQdE9HRTBWRE8tclBKd3YxREx6N2JDLXJjaVA2Xy10cWVmTU4wZ0U5anNsNXRiUnppakNuM2dBR2JqWjFmUThQNGFRa3BHT0xzRGtPSjd5cmVVcEVfOU3SAaQBQVVfeXFMUHg2WWhackxCQV9tU1IxVEVEUVdORzJMbmZLbERJZFVSZFhkZktJRzdtRVo1bkozN2dLTGtOb2xmZWphQjBiQkJuQ1NmcDlvWi04WHg1VGMwMzV0UnlVS2xWQnV6WVhrVXd6czJRWmVMMFhWOC1VNGtpS0lPSWtqTFJxLVFDZ0FsYXZQdkZlY2h4VlROYThUYzNvb2JReHNvcHQ1Q2o?oc=5) |
 | Seth Moulton to seek Massachusetts Senate seat held by Ed Markey in generational fight - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOYXA3VFRBVzBVRm8tQ3FsZjhfNlBzUHNuU0htdVp1MW5QQS1LMUJOdmtBblVoSzF6enNNa3FVNTNFdDRIaGpxY0x1NlhXekdla2ZMNWRESlNYYUtUWHE0ZE5DdHh0WVJIS3g0M0JITExGUGhlc3BTZVZtVDdXejhQdDlPT2czZw?oc=5) |
 | More than 1,500 people displaced after typhoon remnants devastate Alaskan villages - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNN0tuZXgzZmRscEtWZ2lXdm1vRU1FS3QwelpVSXVrNU5vdVQ4MWpnOHdpbnRiTmwycDNtWkZWdTlnZU5vQTFpb3ZkTlJPMWkxNnNicVRLenNHVHBteWVaR0M4akh6YTNibFlNdEZ1VjdHQVBaUV8xeGdMdDNlb2J3c0t6Q3Z3UQ?oc=5) |
