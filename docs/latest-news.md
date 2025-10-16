@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 08:24:47（北京时间）**
+🕒 更新时间：**2025年10月16日 08:33:30（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Government publishes key witness statements in collapsed China spy case | [阅读全文](https://www.bbc.com/news/articles/c0ex172rxwzo?at_medium=RSS&at_campaign=rss) |
+| Thousands in UK sue Johnson & Johnson over talcum powder cancer risks | [阅读全文](https://www.bbc.com/news/articles/c797wv928g8o?at_medium=RSS&at_campaign=rss) |
 | Hamas returns remains of two more hostages but says more time needed to reach others | [阅读全文](https://www.bbc.com/news/articles/c3w9py9940go?at_medium=RSS&at_campaign=rss) |
 | Funeral director admits fraud charges after inquiry into human remains at his premises in Hull | [阅读全文](https://www.bbc.com/news/articles/cwyplw17897o?at_medium=RSS&at_campaign=rss) |
 | 'Worse than starting from scratch': How big is the task of rebuilding Gaza? | [阅读全文](https://www.bbc.com/news/articles/cr5e4ee9r13o?at_medium=RSS&at_campaign=rss) |
 | Giuffre accuses 'entitled' Andrew in posthumous book | [阅读全文](https://www.bbc.com/news/articles/c0kpjyjyrlno?at_medium=RSS&at_campaign=rss) |
-| Reeves says she is looking at tax rises ahead of Budget | [阅读全文](https://www.bbc.com/news/articles/c2drpzxpkp3o?at_medium=RSS&at_campaign=rss) |
 | Celia Imrie's fart steals the show on Celebrity Traitors | [阅读全文](https://www.bbc.com/news/articles/c4gpr5j3kgdo?at_medium=RSS&at_campaign=rss) |
+| Reeves urged to make Budget 'bold' or risk future tax rises | [阅读全文](https://www.bbc.com/news/articles/cg7n8v34jvlo?at_medium=RSS&at_campaign=rss) |
 | Baroness Mone-linked PPE firm misses deadline to pay £122m | [阅读全文](https://www.bbc.com/news/articles/c629rdgyzl5o?at_medium=RSS&at_campaign=rss) |
 | Cracked windscreen forces US defence secretary's plane to land in UK | [阅读全文](https://www.bbc.com/news/articles/cd67qe0255vo?at_medium=RSS&at_campaign=rss) |
-| Dozens in court over alleged support of Palestine Action | [阅读全文](https://www.bbc.com/news/articles/c051g2q5651o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
