@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 15:41:23（北京时间）**
+🕒 更新时间：**2025年10月16日 15:48:59（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Alaska airlifting hundreds from storm-devastated coastal villages - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPZlJoaXYzczZXNGJxWlVjRkYza19GVU5jWEtmOElZY2FRZUk2MkVWR1hQeGg2d2tkbUJuUTdNTkQ1a1BaeFVkc0pzSng5WHY2dWNYZUFXYzNXX3ltWmh0YURHa3E2RlRWRTU1THFRYkM0ajg5Rk9sSzZ2SUFZVVpHTzFQNFU?oc=5) |
 | Brown University rejects Trump administration’s compact - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPWUxZbld0Zmt5dEYwWnpBd0NLUWktbGpfUmRDLUh2emEzOURzd2NpWUIxY01KT3Qwa1BHTGZuLTJQbUpXV1ZEOFdTNzNyY0VQYm9JMldGTFpRZThCMVBVUzFQdUQwZEJVeXJiNEsxMUhBUjB1dUtIbmRRSjZHSWpDUGhyVV83aGgtUDExLWsyRdIBlAFBVV95cUxPTFVudzVOeUVLSWNMbHpMQjNGaDRHdFhBQ040STYxWGFDSXVTaEUyYm4wajRRQ3JLM0d6UFFjckJSbnZqYUhqVG94Q0VGUHN6MmE2cmw2b2JQZllWc0lFLUJpRGUwT3I3YmMtT2hFMWpSMXN2WGJMUUhZbFRMdGExLXpHbFM3NDE5TnZtYzNoS2VELTlz?oc=5) |
 | CDC scientist let go during shutdown says "it's truly like an episode of 'Squid Games'" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOOWxCVFZTcUJyaFVDN3Z6ckNOblNzT2R6MzJSM2NGb1IzZEZZOUNGUnFrVDhaWC1aZm5JNmxQNkwwd2RZbEltN1NKd0FDRnVGVnJCSDVrREMxZ2pjWTZGaU1Mcm1pZDAwLXV0dC1MUldSTVY2ZHJXU3UtSGc5YWdrdC0zUlhJNlptdlFJY3lZcUI1MTh3R1VPR3oyYnpFR0kwYk9LVmVCNXc0WFZNcXdpQzFB0gG3AUFVX3lxTE9jOVpkSkthMmF0SFVEMThCRHlkcXlBM3JIdzREN2ZiM3NBTEdaV25BdVRIVkFHRmlUWVNSS19fOU5JOEtZdnFJcWJ4Z1FoUVZkTHBQQmNoZFhlVXViaHpVdkVwazJGM09SRWVTOE5kajN1X1czZjk4dmxSZjEwWEVaYUhxVENDejg2dWN5MmtoQjZTZnY1R1gxQkpWM2F5TnBCX2VQZnc4RW42bHJoVGpsakw1cUpkNA?oc=5) |
-| DNA from discarded straw leads to indictment of murder suspect after 41 years - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNSF9yd0VSQzlwUVRRTV9pamFJbTRWS3ZEaHk1MkJzMzAyUFVKenlwMFk4QTVpa2lWT0IwQmRHWE1tN3IwNk9XYThweDlYTjJCcXgyYmdrM011bEF4VHpBU0RPNkgxMEd4Nko3OEVzTEFMUldTNW9aZ2dYdmx2Nk9UZA?oc=5) |
+| A discarded straw leads to murder charges in 1984 killing of New York teen - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPNVg3WVp6c0ZrclByMm5US09CY3RCR2tBaHh3ck5FdG1oVzczc05zZ1FUUTA1REt2VHdlcFotZUlROUllZkh4dWREZHQ1NGVHcGVVbTl3VjNDRVVLMTRrN2V0WVFfV056bFNQLVlGRVFmRXBEQm9yYmo3akQ1U2xTQVpmblBTd3lmU2NzM2FiS2c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
