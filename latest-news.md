@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月17日 05:57:57（北京时间）**
+🕒 更新时间：**2025年10月17日 06:00:02（北京时间）**
 
 ---
 
@@ -11,12 +11,12 @@
 | Trump says he will meet Putin in Hungary for Ukraine talks after 'very productive' call | [阅读全文](https://www.bbc.com/news/articles/crmxz37nv3zo?at_medium=RSS&at_campaign=rss) |
 | 'Wrong' to block Tel Aviv fans from Aston Villa match, says PM | [阅读全文](https://www.bbc.com/news/articles/c205gnz5p8xo?at_medium=RSS&at_campaign=rss) |
 | MI5 chief says China is daily threat to UK and voices frustration over spy case collapse | [阅读全文](https://www.bbc.com/news/articles/c0ex172rxwzo?at_medium=RSS&at_campaign=rss) |
-| What was alleged against the men who were accused of spying for China? | [阅读全文](https://www.bbc.com/news/articles/cpd2vxzpgl7o?at_medium=RSS&at_campaign=rss) |
 | Former Trump adviser John Bolton criminally indicted | [阅读全文](https://www.bbc.com/news/articles/cgql2qzkz5zo?at_medium=RSS&at_campaign=rss) |
+| Strange shrieks as tensions rise in Celebrity Traitors | [阅读全文](https://www.bbc.com/news/articles/cjr04nwnq57o?at_medium=RSS&at_campaign=rss) |
 | Aid group suspends Gaza operations after ceasefire | [阅读全文](https://www.bbc.com/news/articles/cgjd783ywn3o?at_medium=RSS&at_campaign=rss) |
-| Major UK rare earths refinery scrapped in favour of US | [阅读全文](https://www.bbc.com/news/articles/czxnv7y03nno?at_medium=RSS&at_campaign=rss) |
 | Reeves plans 'targeted action' on bills in Budget | [阅读全文](https://www.bbc.com/news/articles/c8eykkgdze5o?at_medium=RSS&at_campaign=rss) |
 | Netanyahu 'determined' to pressure Hamas to find remaining dead hostages | [阅读全文](https://www.bbc.com/news/articles/c4gkm0243wzo?at_medium=RSS&at_campaign=rss) |
+| Major UK rare earths refinery scrapped in favour of US | [阅读全文](https://www.bbc.com/news/articles/czxnv7y03nno?at_medium=RSS&at_campaign=rss) |
 | Manchester Pride headliner 'yet to be paid for performance' | [阅读全文](https://www.bbc.com/news/articles/cpq1ddje202o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
