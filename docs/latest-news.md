@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 08:57:55（北京时间）**
+🕒 更新时间：**2025年10月16日 09:01:59（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | JD Vance dismisses bipartisan outrage over racist and offensive Young Republican group chat - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPcjBuNFUtNGpfSlJfSDRqdTBUazlWQ0pndU9qZUR1LXUyNDRhQ1Z3Nnh0aE1vV09QNnEyQTVRWWpMUmVmQ19YVlEwOW5mYU9Jbi1rTHlIanBkUkhJZkhvNVhtLVZFV2I1WjRpWDlSemlnZUotZnIxMGV0TWtIbG51dnR6Ny1kWFRNNWc3OGFzcTNFSFNnSEQ3aXVwN0diVF9LU3VoWEJYX1RRdi1RQ2Q4Z1B0QUI1YmozcllNTXBGUk94UVd0d1RVNdIBzgFBVV95cUxNVDhsR09JNEpBUjVIQnFKbGh1SkZ1WnNpRFE5LWUzUUo3aHNiQTQ3WDQ5MlRyWlNaYnVBWnlmdy1CdVFCUGR5Ulh5SVhHY1RDcVhnMlJsbDdxWFpWRVV3SS0tNmxjelVUd1ZyNTNpR0RGMVd2ZGJhM1JxbDFwZ010Mzd3cTJ1ckJMQ1l6MjlhOV9leUVsUFVESGdDaHJkWnpMdmtQcmFJc3A0V0NGNHFlWjdOSmxqRkJVLVpmZTNtT19RMlNmZVhHLTY3a1U0Zw?oc=5) |
 | CIA Authorized to Take Covert Action in Venezuela, Times Says - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPQkJPM3NlZGhsWW8zMVJsRTJhVktEaUxaUjkzQjhRNmhiNnpRcWpsODEyXzhkTktRc250d2NiS0NZOGtvWVNzckttMGVRX0NsS09BdGMxTEtLbFhhbUtyTkZDb3JXOHZ5NkxFYlNQVk02dHJLZ1NHNWN4bGU2TUFGR0dPUlBvcHkwSDMzb2ZRa2pKcnlZQ1JnVm1BTFhXaXpidDJVMk9rSUdvVDk0bkhVVA?oc=5) |
 | Brown University Rejects White House Deal for Special Treatment - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNanI1TzFUSlZ6Q1p6bFZXYnZPZWVOODJickltTXFhVjNKSFY3N0EtVGZNY0RKNkpubGJLeXZWeThFeVdHeVFPb25Ya2swVEYxRVJZTHdoZnN0Rk5BZF9wcWt0TzlVT241SDNRbU9TcmFBOUJJLWVxS3MwVGlnWkd4TkN6WElUZTRx?oc=5) |
-| Democratic senator shouldn’t run at age 80, new primary challenger says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPdEJxcHU0RXp2b0xtUWFORW8tV3Vramp1MUZCWW9HQ1VSWnZlMTdZVzRyV01wb2VFWjdGWHJobko4a2dMSDdTYVB1VU91akJpUWNXMkZjaFJ5SmNHenF0UTlwM2NXWUFyMnFfR1VJOUVGNnFwYm9OT3FXWGpNbzY3enMxM2dZamVWV013SUNKdw?oc=5) |
 | Man charged with murder over 40 years after teen's killing: DA - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOOWNxbG9sSmZFamtSXzMwRXNvUmpPQW1KTGNiUU5Oa2MzcnFuZ3hxMEN1QnNieVlpNFU3QkoyVFV6Z3BxU2dXNTlGalJzb0hkcG14WDBxV1NyQlRjVGlCajhtdWJ0SlRfeGR6Y3J6NXpuWVhvOEVNb2lqT0NYazd0ck1td0FyTk5qWVNKUXZyWWRSR0tFNnhv0gGcAUFVX3lxTFBKTFpBUVRwVkp5TUpYQkdXczR5ejl0X0NjVk1MeWYtSzlVckZYaTJjaUxnbDBXeEZxdmlwX2pWMWNRaC1yVWJ5bWptNjNlWENPSlgtRGliNjdfUzkxTFRqcW81VTVWTVZzN29RQVllN3hmdmQwU1d4cjBIazhKN01vbXhZRjQ2WkpnZGREVzQ4RUxkaHNWb0NCUlNFNw?oc=5) |
+| Seth Moulton to seek Massachusetts Senate seat held by Ed Markey in generational fight - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOYXA3VFRBVzBVRm8tQ3FsZjhfNlBzUHNuU0htdVp1MW5QQS1LMUJOdmtBblVoSzF6enNNa3FVNTNFdDRIaGpxY0x1NlhXekdla2ZMNWRESlNYYUtUWHE0ZE5DdHh0WVJIS3g0M0JITExGUGhlc3BTZVZtVDdXejhQdDlPT2czZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
