@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 21:40:28（北京时间）**
+🕒 更新时间：**2025年10月16日 21:48:49（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | Cardiff may become UK's first city to impose SUV parking premium | [阅读全文](https://www.bbc.com/news/articles/c04gpp4w0rdo?at_medium=RSS&at_campaign=rss) |
 | Guide dog charity welcomes largest litter in years | [阅读全文](https://www.bbc.com/news/articles/c04glp477ygo?at_medium=RSS&at_campaign=rss) |
 | MI5 operating in new era of terror and state threats, says chief | [阅读全文](https://www.bbc.com/news/articles/cgr40w2zereo?at_medium=RSS&at_campaign=rss) |
-| 'I can't afford to save both twins': Sudan's war left one mother with an impossible choice | [阅读全文](https://www.bbc.com/news/articles/cre5rng5808o?at_medium=RSS&at_campaign=rss) |
+| Inquest opened into Hatton death | [阅读全文](https://www.bbc.com/sport/boxing/articles/c2lp9ngz1gvo?at_medium=RSS&at_campaign=rss) |
 | Titan submersible imploded due to poor engineering, say US officials | [阅读全文](https://www.bbc.com/news/articles/cdeg7y4171xo?at_medium=RSS&at_campaign=rss) |
 | BBC rejects Gregg Wallace's 'harassment' damages claim | [阅读全文](https://www.bbc.com/news/articles/ce8z0lx0e71o?at_medium=RSS&at_campaign=rss) |
 | The real problem with Britain's asylum hotels - and the woman with a bold plan to solve it | [阅读全文](https://www.bbc.com/news/articles/cdx4rrrvg8do?at_medium=RSS&at_campaign=rss) |
