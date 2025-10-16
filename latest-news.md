@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 18:16:35（北京时间）**
+🕒 更新时间：**2025年10月16日 18:25:10（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trade standoff with China deepens as Bessent insists the U.S. will 'neither be commanded nor controlled' - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPRE0zT0sxSUFrLTMtN05jajd2bFppLWR1VjhzRUJQNk5VbTdrYWd2TGZnS3VSSEZXYnctUG54czA5UXhlbjI2VUlwOFEyZ0lkdnZZdTg1Vy11MGNjT3dYcnBkLTBFa0Zhd2JjMVVXTDdNWDZXSE5zLVYwZkJ3N3d6U3JJazhOTllSWE1qWTh1Z3l0S1lWU0JJb2pB0gFWQVVfeXFMTWJxUG5Od1YxRHdwUm41SUxJZnNER2RnMUpuNUR6SG5JY0lXUVU4YmF2X0Z2OXp1a1FBUkRTaDhabV9jYUg0YzBzU19wZENMTEMzMFRnQUE?oc=5) |
 | Trump Signs Memo Expanding His Authority to Spend Federal Money - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPeVFDX1NOOUtTLXR4WW1aUkxVT1VTN0FhaUlCQ1VaaUZNb1ZveEJDc3pNMUdfRHFZeF9oek9oa1hOOHJENmpCZS14MzJ2OFJ3OWhHNjdzZnRuY0RFNGNabFBoc2hzenE1dFMxdFR2MXZPSEF0VmFzb3NJTHdLN2RwVndNSk91cktrcDF0U1FDRklidFFNbVE?oc=5) |
 | 2 universities decline White House offer for expanded access to federal funding in exchange for demands. Here’s what we know - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFA5V1VRSkl2U3V6dHFSMUpPOUwyWGt0NHBTR3hweWlyVXZtTFZlejl3MWxDTU9ZNkJ3OUpjdXprN0ZaRzRrMU43UGlPYnJpSlVQem5SN3MxVW1KQ1U1aV9JR1RIMXNtS0ZLYUdmS1NPVTEtR29JbDJn?oc=5) |
+| Trump promised farmers help. It’s complicated. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOQTdrOUNzWEp1WEw5MEk1bmszSzlkdDhhY3hDektCbTBQN3Z0TjZuNlNnRC1ET19EcmUxVlZFVU9YMjVsd2JaOVEzcXBsOTk3X0dac05jMG5PQmlfUDViSXdMbEJTUGpHYUp2UVd2SGo3NGR0cVg2NHJETHdVZ2t1YUs4TlJiRzhtU25YZXN6MWF0ZUhTc2V5aA?oc=5) |
 | Hundreds airlifted from storm-battered Western Alaska villages in historic mass evacuation - Anchorage Daily News | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPMWRleHZnUjF2LVBVZVM4Z20tZEhzTHNlV3Jhc3Y4THlnWEFpblp4V19kZDVjRVZBZkpuUUN5QVE4cGI3a2thQWVoRWJTbEsxUjBqZllubkM3dzZTS3NHSGxlaGhWWDlGaG1Uekx6VzZrUGFYM0lVNF84T2F1Q091dWxXeGF0VTdBVGFrX25vR1JaY1BQUWo3R0FKRDlKY1R1MERIbW0wWFBZemVLLVRxVk9oMS1nQjFlUkdnanhjSnZHcGR2THBCUUxRZUgxQQ?oc=5) |
 | Senate fails to advance GOP funding bill for 9th time as government shutdown enters Day 16 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNLWpCdy1aODI5TlFKR0Q2U2t6UTZyb0JjWU16SWZESW50UWIwNGJaN2g0aG5HRTh2LVBvOEROOGQwdEJiQ1RpMGlXeVZLbjQ4NHdVTEtIRnVvSTlMQUpscXU4bDdsZWVCS3VTdFp6N0pkSEpDV1FrSVRBRzk3VW5IaHMydGYwYjdIMHRQQlRHLXhEc3ozMVM1V0FEcVJMQdIBowFBVV95cUxQX09IVWdGSUxzeGYyVDVjbm5QRm1ZRy1HR0VldlJCTFpaaGZ4WnNFYUd2aEhCdmFMSXRpS0lMNEdqYWxlMTZWZGM4ajVQMjF0dmhyWXczNFo0MFE4Smd0S0NpWTFZYzZjQmFUY29hWVVZMW1Pajh5Si1uZmxYN1NXNEdoelhGekJ2UVl2MURjZEpKb3BJYkc5YXRaVkFxY3ZRZG5F?oc=5) |
-| Journalists turn in access badges, exit Pentagon rather than agree to new reporting rules - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPdHh1dDR4ejFwX1JSMDVLRGZpeWdOM0NLOVgxdUcwdE5nVzhSb1JhaUxMSzYzQ1BnNC1LYlgtSFItNy16LWl0THl4emx0Z1pyTTdxUnFTSWljNTNPM1QxSVRBWmw5Ukl3alR3QTZzZXh6MlBPY1BOTmVCSTN0QzVkOGdvb1RJN2pVMzlHSlhiQUFrV01wdW5Ub1k0MkRrOVoxV05TM1FiWUJuaUNC?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
