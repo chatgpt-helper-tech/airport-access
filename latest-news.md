@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月17日 01:49:29（北京时间）**
+🕒 更新时间：**2025年10月17日 01:57:48（北京时间）**
 
 ---
 
@@ -13,26 +13,26 @@
 | Reeves plans 'targeted action' on bills in Budget | [阅读全文](https://www.bbc.com/news/articles/c8eykkgdze5o?at_medium=RSS&at_campaign=rss) |
 | Netanyahu 'determined' to pressure Hamas to find remaining dead hostages | [阅读全文](https://www.bbc.com/news/articles/c4gkm0243wzo?at_medium=RSS&at_campaign=rss) |
 | Manchester Pride headliner 'yet to be paid for performance' | [阅读全文](https://www.bbc.com/news/articles/cpq1ddje202o?at_medium=RSS&at_campaign=rss) |
+| No Maccabi Tel Aviv fans allowed at Aston Villa match over safety concerns | [阅读全文](https://www.bbc.com/sport/football/articles/cy9pjv59w95o?at_medium=RSS&at_campaign=rss) |
 | Decision on China mega embassy in London delayed again | [阅读全文](https://www.bbc.com/news/articles/cr7mn28drz8o?at_medium=RSS&at_campaign=rss) |
 | Guide dog charity welcomes largest litter in years | [阅读全文](https://www.bbc.com/news/articles/c04glp477ygo?at_medium=RSS&at_campaign=rss) |
 | Major UK rare earths refinery scrapped in favour of US | [阅读全文](https://www.bbc.com/news/articles/czxnv7y03nno?at_medium=RSS&at_campaign=rss) |
 | MI5 operating in new era of terror and state threats, says chief | [阅读全文](https://www.bbc.com/news/articles/cgr40w2zereo?at_medium=RSS&at_campaign=rss) |
-| Omaze house winners to get keys as planning row ends | [阅读全文](https://www.bbc.com/news/articles/c2016p06dpzo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump says he will meet Putin in Hungary for Ukraine talks after 'very productive' phone call - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE9pQTVBcExwU3QyUDQzb1JfZG5xMDQyUjdCTmlMejZYenR3c1FFNkhRR0FMZVpQdlprdjBZdlY2TG5vbzRXbkxBRnV1MmxudTBlQ2NFNg?oc=5) |
-| Thune says he offered Democrats a vote on Obamacare subsidies to end government shutdown - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPSjZrd2NUT19uaHhhZzVtSm5kb1VRWmo4ZXVxLWJIU3JrNW14c29hNWRiaGRuLXhSSDJKazVrcnN1WlZxWHFYNDZkOEgwLXo0SU9YZHVUTC05cm1GcDBaTi12b3ZNVFlhSGU3NFczNTRTeTBiYlcyZnI4SXVCRHhWUGFvckNPXzVjSlc5Vm9mdUZGdUd6VXNGSFRTZE56dXdjZmtoQXl1WE1vSC1SRFRqb0cwWEzSAboBQVVfeXFMUHJMRXA4VE8tSVFDTXpyUmZQeEhaQzJkWUFZSEE1YS1Vd0tkM2hIYXI1QTMwZVRLRjMwZ1RnX0dfSFY2SUNtWE03SGtpLW9aU1RVY21kZDUzeTJBeHZLYXpaX3FwR19QLU93OHFCOGZVNkpHajBDLXBnX3o5ZDR6cUR2MTVXU0JEbFZBVTFHUVp3ZTJCR1NUVEtsYU4yal8yN24yWmhTQ3prUENDTkl0QkJKeXZIUFh0MXR3?oc=5) |
-| Trump says he has authorized covert CIA action in Venezuela - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOVFYzdDlXSXYtMEEwX3cxWklEMGxXU0diNVFDRHBxLTZ0MXdNUWtvaXdMc2xXc0VyY0pLQ0dGV2xGV3FwU1dqc0JvYXRpOTlOLWxWZ29tc1d1UDNrWTByR0JzSFNiRW45eTBkbS1tUW5wT3BTdjJ2aUJpU1pFRFp6NXB5ckRfMjBuT0RpU1pqY1oyTjVJS0FBU2hFUm5QN2pY?oc=5) |
-| Israel warns U.S. Gaza deal could stall if Hamas won't return hostage bodies - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQb3dDT1JDRG5rbGxiaERtdktITWwtakpOY2o5Y2FkT2VvRkJfUGh6d3o5d3c5QUowYmNGdU5zTVJFZXhnejQtU21ncS15amZzUEhJMGJaUnR5VkVSUGxCZ0xRR09rLUNBX1JaS1UxaW1vZWg2Mk9QX3Nadm9rNF9IQ1FNSQ?oc=5) |
+| Donald Trump calls Vladimir Putin on Ukraine war - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9JNlRHdFVoNWxkeVg0cVVDMzlwRERmYXVMN1FLOUROdVRkTGVNM2t3M3pvd1diTHlFVGFiU0xJQUJ1SXJ4ZmtsZTM3Z2Q5ZFpzNVhibi0tRE03cWhBOTM1TDcwYUhKVXhzZkwxVEtNQk4?oc=5) |
+| Senate rejects funding patch for 10th time amid shutdown stalemate - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxQZUY3Q2ZVVjZrczNkanNjZDBxS1lXVUpuTUhqZTUxUS1IWnZTOXA5N3FQRXNUYzlneGkzT2hMbTVzejNJYXctNk9iM1FWcUxPUldETS13aGJ6THZYdzZPRF84ejJJOFNoWEw5MHF2Yi1STjNkWUZsYnBHYjVKVzFIWnpNUFZrampUbExYTDVIb0dSenVhb0lWaTVhQloxN19IU05WREdPRUdQeFZlbXYtMHRvZzRLR1pPZTdhS1dkTHV5Y3ZSLTZWVmtHa3psUQ?oc=5) |
 | Federal judge demands answers from Trump admin on following order to avoid violent encounters with Chicago protesters - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5VVkpDSEt1SWc0SENLMHVnNENZQ29CZTAxdnNwQ3c5QVFNRmtrTjFHS0tUMS1uZ3RWcTUwZ2QtY2sxWUE1emxCWlB0NVJYTk1zNHppU09PWFEtOC1FSTRULVNhYndCZU1vMU9Tak9nV3I5WkNQZGpxQ1Eza1B0Zw?oc=5) |
+| Trump says he has authorized covert CIA action in Venezuela - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOVFYzdDlXSXYtMEEwX3cxWklEMGxXU0diNVFDRHBxLTZ0MXdNUWtvaXdMc2xXc0VyY0pLQ0dGV2xGV3FwU1dqc0JvYXRpOTlOLWxWZ29tc1d1UDNrWTByR0JzSFNiRW45eTBkbS1tUW5wT3BTdjJ2aUJpU1pFRFp6NXB5ckRfMjBuT0RpU1pqY1oyTjVJS0FBU2hFUm5QN2pY?oc=5) |
 | The US supreme court appears ready to nullify the Voting Rights Act ｜ Moira Donegan - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNSmw1MDhqUHlOOU9rQlBkUEdOMWNaaE9QWHJsOW0ybXF0UXhPQzdiMjBYLWhqTG1FRGxMSlJQRFhZMTV3c09rZVg5OUpUVUdQM3B0QXM3bEU4WWV3Y2VZblZwNnNoYVNTb28yRGRFNFh5dnNfTW9ETTRPTlJ2SEtuaHJ0bFY3Ykh4ZmpXZzV3?oc=5) |
-| First Thing: JD Vance brushes off racist texts in Republican group chat as ‘what kids do’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxPOG1ZbWxVejVJMklJVVktaFB3RnZGTk9SRkotWkJESTV6cWYwaEkyeXJwOUItOVJreFpBYXlwbVZUd0FFZ2J1RTlsX2ttdHZRczdhQkFUSnIyeFFSVjZNenFpU21nN3dQQzNNSUhKazd4SnVhRWY3NURGLTVUclJwc2paMVFDTkFHMm4xNVBURXQ3d3VFWHZ1NU1BRDJVQ2UxQm5XaE5TUG9TUF92dmNLZGR4ckJiM3Y1UGYyZ0VVeWlFaW52ZTF1MzY1ODhsV2s?oc=5) |
-| Shutdown fallout hits San Diego ahead of Vance’s Marine Corps visit - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPT2lnYUgxUjdSWUlRcW90dTRIT0wtVkEyYkVYYnhVU2xLS0EtOW5SSW9RRFBJbUlUcVVXVGswVzBTS0NBZ3ZBbXp2ODgwSVA0bk1zUmNCd290WW1PUzVjVDVPci1SNTFrQ1d6MWxodHVGTnktb1AtQ3R0NHlkSWZ2SGNMT2JBZEc0V2g3c0dNSXBFNEdla3pXUEIzTkVBNmRpTHZSZ0llMXdFVjF3QXctYXQwTmI3ZHM?oc=5) |
+| Camp Pendleton weekend live-fire military event won't require shutting down 5 freeway, Marines say - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPUUxrUXM4TS1VNW5jcVFxT2dyNWNFRkxMSGJIdmZIUlU5NVVzaU1scnptT09oUTF5TkxqeWUxZ1FZZ1JOT1FtZFRXWXlCQzJKZElmUzRfTzFHTF9mT0dXb3RnSkJDejFBZWE2Sy1VUkx1Z2dOMEdEZm1mTkZIVFZXNmgtd0dJNG1XRXRKSHJ3UG5IbXZNcmRMand2b3BRcENhNDdSdnkwdzdQaEpT?oc=5) |
+| Waving his flag all over the place: Trump adds ‘Arc de Trump’ to presidential renovations - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOTFI5X2V3VUdhaEIyT01VQjVQM1AtSVR4Y2RBZS1ucVZXV1JTSUVRSlhmbXFIaVdsX29zT085eTJBWXQ2UHhubFR6Rm9aZzh0aDlPd1RPaDJWTDktQnpCOW5tVFhTdEtKTjBRc0Q3eThkeE51enhrM1cyYWptTnIyM3pR?oc=5) |
+| Some GOP leaders call for resignation of Young Republicans who allegedly texted slurs, racist messages - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQWkkwUGlsZV9LbmJ2ZmJfWktuWWpMeWZPWlRLN0xvak1CVWRWLVdsM25kOTR2QVdHS2ZYaDl5ck9DM05QTGFMNjFqbjlYM2RnTG1xaDJOekFPb3FuUlJuUV9TLW96b1hrNno1UDBRU21NUkRPdjlQcV9BMzEwdHJPTWJ6cUZuYkFUWHNDSENQVzl6RFgxbE51VFZ5NnJpbHZxaFo0dlFieXBHWmNpTU1MTWIwckvSAboBQVVfeXFMTjZPWi1sdlBHOVh2YkFaOEYtN2FQakxRZGVJUzhNSDJsaFV5czNqcFU1TVdhdWdxSFJDS3ZOUnIwS25hcGMwMnJMUkdCdEgyZFNhXzYwYktmZHc5M18yZVpzVEJ3dVVOV1luTjFJbGo0eWpMTVNweWtEVDhWYUczWXh3ek9EcFNNWXM0Y1pRMnFfTFJGVVdxZWFxRmVkR3dwTzYxTFBhTW9XT1JqREVMaEk0WnNSdFg2a2N3?oc=5) |
 | Trump Live Updates: Government Shutdown, Federal Layoffs and More News - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTFBhY2d0UnRReDktMjJtRW9wTGhIMEliTFpMNnJXM3Y5SWVveUFuU1RWVDVyYWlBcml2ZjRXLXVDWlVFbmJkUnN2RzJmUHd0SFVXYVFkaS03SXV0a2pVbnR0NzVJdw?oc=5) |
-| Florida teen accused of shooting himself in the leg while faking his own kidnapping - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOdXdmYmFxYmlwYWhRa2NNUEdfTjM4OFk2LXNHRXJhcEpnN3p4V3U4N1hoREpmNmtTOExtZW1fZGFENWxZNlpfZjhtWjFRbjNCYTBGUThkUWQtZHZpVHpjSHMyclhLOFpORjZ3d0N3ZEdnb1RoX241NFFoem9VYjczeERUcVlORkFYRkdmREVfRUNIRUxEQ3NSdWQ5QWYyOG5x0gFWQVVfeXFMUEJNcDhLZW8xTENkcmdWUDBTQ1hUUkx4YVl3aXItaW5uVTFjQkJnZ2VTTlM5WW1lTlZKRFdCRmFyOF9qVnc4M1VhR0NhMEhSeXVhR0kxbXc?oc=5) |
+| India casts doubt as Trump says Modi pledged to stop buying Russian oil - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOa3IySzA5c3B6X2g3WGZPVm5pZUtZeWtVOWFuWjhZczlmOXZKa3cyS2pZc21NbVJyX3hESGlFV21kNlNOaGNueS1lVDVVN0Jvc2dsYXBlbE1CYzVCd2w3d2FOMGx2eEVxV1VZOE5uS3FZbkptdUd2NTRnMjdMTzNrRnViMUkzZ1pK?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
