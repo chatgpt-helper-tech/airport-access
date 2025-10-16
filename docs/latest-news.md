@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 17:56:40（北京时间）**
+🕒 更新时间：**2025年10月16日 18:00:12（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | China carried out 'large scale espionage' in UK, government witness said in collapsed spy case | [阅读全文](https://www.bbc.com/news/articles/c0ex172rxwzo?at_medium=RSS&at_campaign=rss) |
 | Chris Mason: Digesting the key segments and changes in China documents | [阅读全文](https://www.bbc.com/news/articles/ckgyvq754q0o?at_medium=RSS&at_campaign=rss) |
 | Thousands in UK sue Johnson & Johnson over talcum powder cancer risks | [阅读全文](https://www.bbc.com/news/articles/c797wv928g8o?at_medium=RSS&at_campaign=rss) |
-| Andrew believed having sex with me was his birthright, Giuffre claimed in memoir | [阅读全文](https://www.bbc.com/news/articles/c0kpjyjyrlno?at_medium=RSS&at_campaign=rss) |
 | Celia Imrie's fart steals the show on Celebrity Traitors | [阅读全文](https://www.bbc.com/news/articles/c4gpr5j3kgdo?at_medium=RSS&at_campaign=rss) |
-| The real problem with Britain's asylum hotels - and the woman with a bold plan to solve it | [阅读全文](https://www.bbc.com/news/articles/cdx4rrrvg8do?at_medium=RSS&at_campaign=rss) |
+| Andrew believed having sex with me was his birthright, Giuffre claimed in memoir | [阅读全文](https://www.bbc.com/news/articles/c0kpjyjyrlno?at_medium=RSS&at_campaign=rss) |
 | BBC viewers worried about political interference, boss says | [阅读全文](https://www.bbc.com/news/articles/c3w9pld9g61o?at_medium=RSS&at_campaign=rss) |
 | 'I can't afford to save both twins': Sudan's war left one mother with an impossible choice | [阅读全文](https://www.bbc.com/news/articles/cre5rng5808o?at_medium=RSS&at_campaign=rss) |
 | Watch: BBC follows family forced to move four times in a year and live in hotel for months | [阅读全文](https://www.bbc.com/news/videos/cvgwx0n3557o?at_medium=RSS&at_campaign=rss) |
 | Cardiff may become UK's first city to impose SUV parking premium | [阅读全文](https://www.bbc.com/news/articles/c04gpp4w0rdo?at_medium=RSS&at_campaign=rss) |
+| 'I don't want my kids growing up in England,' says ex-Premier League footballer who moved to Dubai | [阅读全文](https://www.bbc.com/sport/football/articles/cx2n8wd2znzo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
