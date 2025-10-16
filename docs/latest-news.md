@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月17日 03:32:19（北京时间）**
+🕒 更新时间：**2025年10月17日 03:41:20（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Trump threatens ‘to go in and kill’ Hamas in Gaza over internal clashes - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOT25vM0JXM3N5MGo0dlpZU2M5OFo2VWxOYkhCajcwTHRtN0RyYzgwN2tZTEhiVFQ1N1BReENGYnJQbnpQMW9VRFIxdVAzcUV4U29LdEJ5alpjUWU2M2FIamNERy04UmtCZk8yMnZ3MnBETG5QdVhlTDFlRHNzUFVGaXFkc0xOaml5eFZiaHd1MjV1RVczdTN5c1U1bFRaVEFWNE54dnNFNFlkMjRDRnlWZ9IBtgFBVV95cUxPbTQwRFc2UTh3Q3dDanVrYU9yN3BkSi0xLXZmVGk1VUl4WWY3aXJWeFgxRkJrUEp6S2RNbHhVeF9KcHM0dHBoeHMtUkdLdkU1dURjWVRpZDR0WXB1THFGenpCMVZNd1VOOHRXRFdIWDh6UkpuZ2s5QmdUckJLZnhPNWRuNm42a2lwMVVLZ3d3cU44VmxSRFlFWnhZNUFGZElMZFF4OWdLUGRES3hrdXJrUTRCUEFvUQ?oc=5) |
 | At least 27 states turned over sensitive data about food stamp recipients to USDA - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE9TZnVJclhNMktYYlhoVzFCc1FPblRqb2NLd0s1MzJoZFljVTlmckFEMjNSdnVPSG9VdU9ZMk4wWlVieDd5WGJUWTdQTmpqc3dfaWdjbUtZNnoyWGx1cnJYMFVDQVdsUGJNckhOclR3dFdpRmliRnlFU3V3?oc=5) |
 | Congressional Black Caucus PAC uses Young Republicans’ texting scandal to hit Lawler - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOcFVaMHZzUHBWdnhHeFdtdDdlZElnNFIxY2kyc0ZjSW9sTEh6TVFvT2FfWHlrcDU1MklyRVA1M180SmEyUlFibzVvM1Jnc3FmRGp3RkZkUTFwX2VKVXRqRmhrSTRZSndKbnlsRXdhQWpXbi01T0gxZGtpa1hvWmo3TWJ0QmloSEs1RjBoYWladFlLckx3MzVNcEE4UUE5RGZQ?oc=5) |
+| Trinidad citizens believed killed in US airstrike off Venezuela coast identified - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQLU5Lb3pBa3lOY19HNUZVN3JWOFV0UEZlSDQ5WnFfN0h2Q1FXS2VTUHpjOGM1cjF2dkFBWmhDaXNULTlRaTVwWXdUaUxuMV9ROGZ1Ykd1NGhONGJ0dnlEM3c2Nk1YWjR4N2ZQbnpnSHk5azdzV3BVRGdZWXFWTEp4SG16UmROb1lLMThNbjk1QUdRVTVXNW02VzJYTmlIZw?oc=5) |
 | Trump administration, Newsom feud over planned live-fire military event - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQYzk4dWNqT3VuNGlVM2xLWTE3VEZzd1RzZXVxcXBGTGFQc2FWX0J5NmZKRHZFOGhGZmcxZDladzFvQnMxcUV5cjRIRDE0bm9pOXJ5TGk5Y19manU4UEd0cDVRYmJHNHlOc0JqNkpxc2cwMURVYWR1Uk9pbmpZdzFMTHl6WkJuRWNyOGZRcg?oc=5) |
-| Judge temporarily blocks Trump administration from firing workers amid government shutdown - KOMO | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxPSDAtdWdsdXhOMWxXbmwxTzMyLTY2OXhDeVVsdHNhR2tTWXktWXpHY3YzWDVWcFRqVm5CSXRaM3JFNGpNRGVaMTNZZGtfU3YzdjJjMXhOWUs0N1ZxcTh3SklTMzBsTFQtUDZZS001ZWd6MHQ2TENycnhTQWlwcHh5YS1laHlqZ0pKOGZDRWxVcEIyZXRxWVZvbjBpOUx1cTg3NXlaZmFPVXZkRi04Skw2Sm9kR3F5Q3A1b3FjSkJhYnZrVjI0WmZ4aFdJLUFOOXo2M3c?oc=5) |
 | Arc de Trump? President shows off model of Independence Arch, says "it's going to be really beautiful" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5tdTlrS2pyTm40MEM4YVdZT3ktekNHd1haZjZSTVlfX1VBa214Y2E4S1pQakdjdGdFTUpPZlV5TW8teGN5bDhLcFRCMWNsSlREMnFNblJxZk5sbmVlTnJYWG5xQzBvNG43Wk8tZ1JrQXgtNXd1TmNWWlljWdIBgAFBVV95cUxPTVZRVWtCZ2Q1OFB4aWFzVlBnQUwtdnZwc1F2NGo3dy1oSkVSYnZPTmVNbkYtcDVHTFI1WnBpbWFRTmhXUDg1NGhTQ2JoR2VGbGRJTmZKTDZQdjJZM2I5VTdDd3VlUXBlWGx4eXRpN3lFVG5sRUhrVUVQb2drRmlOaA?oc=5) |
 
 ---
