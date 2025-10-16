@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月17日 04:16:06（北京时间）**
+🕒 更新时间：**2025年10月17日 04:25:28（北京时间）**
 
 ---
 
@@ -29,7 +29,7 @@
 | NPR 'founding mother' Susan Stamberg has died - NPR | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBOME1HWUFUMmFKQnc4dnBtYTcyZTE4cVh2OER2UXE3YjVqcmUyd1lpUC1Wck4zcHlZRlEyMVZOb3lxUWw4ZVRlcUk1RFBBOUJJMS1XN3hCSXRzNDhUdm1nN1ltTzFkblNmT1lCMjF4Y1QxZUk?oc=5) |
 | Federal immigration officers in Chicago area will be required to wear body cameras, judge says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNZ2tSWnNjd2k3RmdVMkFhQUFYRThybGctOXN5MElNUkpnMmpGcGZaZkNUVHVXa25KZ2Jqa0JQRU8tMENRb0czNGd1NzJndkxaNUZzSTVmd1dScElXVFd4XzdRZ0xDSGJHS0NzZ3hNX2ZQZHhGZUh3RnV3VWVyZ2RWdzE5YXEyQVR0a2hqTVdCR3NtVHJqWnQ5cDNfMA?oc=5) |
 | U.S. Special Operations helicopters near Venezuela expand Caribbean mission - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQd055WXZScXY4Ny1iZTM5QVlUOUJ2WDBjelgtMHBWN2doby1zZTZzLXM1YUNmVlJOZTJMQUFWWEZVQ2RpcUVBOUVDZXU5ZnFRLXA1QmJKUHl5Ym1falVGUTBIc2NDMDd4TXQxSk9TRHpJT1FsMWpJWGVTdnZLVnFDcnVTT3QwYVlSTGlIcHFFdkpDMHRoZkRfNUluLUdZc2VWT1VF?oc=5) |
-| Venture Capitalist Ron Conway Resigns From Board Over Benioff National Guard Comments - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNY3pPR2dKQjExMTBjWnJhUl84Nm1jX3FwSTVWR2lxNE1qRWNiR2VzOGwyOFREVDVKTXJFSVFCR1RReTRSUHlKWHJDaG1MeW83Tnl3X01COHB2X2EyWldsNW1hdDRvNEVWNlU5ZnlNbHc4XzlDUDlmRmVkWXdFU081S1FZdmx4Zw?oc=5) |
+| Top Silicon Valley Democrat breaks with Marc Benioff as rift deepens - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOY0NwSjBMVkg1WVF4VDRPQ0k4Y1pMV1NhU3BST0dKWU1pV29OamR3dXRJSC1wT3ZTNTlLNXc2VEtmTGExcWg0NjZ3SnVOei1Cdk1ZZlAxbTU2dTBhbVVfanE5ZEljQ2V1SFBfc19tc0JiVmw2bWdSUEJXdkxJNnI1NXJrY0ZhQWQzWDk4aV93?oc=5) |
 | Newsom rips into Trump plan to fire missiles over California’s I-5 freeway - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPZF9SMnBnNjZsSWtUUVloMHMycVozb25DUGtDOEtNU25ERTdZSmV2MmhVcldGNUFxMkhxRmptbWhNeHY3Nnd6SnFkQzlrTjktR09KeDJmQVQ3SVNROHl1eHVFLUhHZHd6elFrWDczMGtzalExWDFjMnFWWElpVnNNM3QzcUdYWTl5dGFpYjc2bEpKYnUwd2V6Y3hqRjlSeFdFeDl2cXRXbFJqZVpN?oc=5) |
 | Harvard posts biggest operating loss in 14 years as Trump cuts bite - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1pOVlmTDBlT2pPcVU2Tkl1SVdtcXhINEVaamkxbk12T1pobGxBLWg1MHUtcEl4UEtVbl9qeGJUTEV4aFZ6cXp6U0g4bHowZWVoR0FhbjFZeHlXVDBnZHJOMG1ENEhoLXpfd0dfM1NoUDFIbTRwM0hMaA?oc=5) |
 | Arc de Trump? President shows off model of Independence Arch, says "it's going to be really beautiful" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5tdTlrS2pyTm40MEM4YVdZT3ktekNHd1haZjZSTVlfX1VBa214Y2E4S1pQakdjdGdFTUpPZlV5TW8teGN5bDhLcFRCMWNsSlREMnFNblJxZk5sbmVlTnJYWG5xQzBvNG43Wk8tZ1JrQXgtNXd1TmNWWlljWdIBgAFBVV95cUxPTVZRVWtCZ2Q1OFB4aWFzVlBnQUwtdnZwc1F2NGo3dy1oSkVSYnZPTmVNbkYtcDVHTFI1WnBpbWFRTmhXUDg1NGhTQ2JoR2VGbGRJTmZKTDZQdjJZM2I5VTdDd3VlUXBlWGx4eXRpN3lFVG5sRUhrVUVQb2drRmlOaA?oc=5) |
