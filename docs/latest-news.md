@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 14:00:03（北京时间）**
+🕒 更新时间：**2025年10月16日 14:08:03（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | Months after fall of Assad, families of Syria's missing still seeking justice | [阅读全文](https://www.bbc.com/news/articles/cj07p5zm229o?at_medium=RSS&at_campaign=rss) |
 | The real problem with Britain's asylum hotels - and the woman with a bold idea to solve it | [阅读全文](https://www.bbc.com/news/articles/cdx4rrrvg8do?at_medium=RSS&at_campaign=rss) |
 | Celia Imrie's fart steals the show on Celebrity Traitors | [阅读全文](https://www.bbc.com/news/articles/c4gpr5j3kgdo?at_medium=RSS&at_campaign=rss) |
-| Cabinet Office rejects Cummings' China breach claim | [阅读全文](https://www.bbc.com/news/articles/ce3xz607dpro?at_medium=RSS&at_campaign=rss) |
+| Cabinet Office rejects Cummings' claim China breached 'sensitive' communications | [阅读全文](https://www.bbc.com/news/articles/ce3xz607dpro?at_medium=RSS&at_campaign=rss) |
 | Reeves urged to make Budget 'bold' or risk future tax rises | [阅读全文](https://www.bbc.com/news/articles/cg7n8v34jvlo?at_medium=RSS&at_campaign=rss) |
 | Trump says he authorised CIA in Venezuela as Maduro says 'no to regime change' | [阅读全文](https://www.bbc.com/news/articles/c0ex1jq9pdvo?at_medium=RSS&at_campaign=rss) |
 
