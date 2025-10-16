@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 20:16:26（北京时间）**
+🕒 更新时间：**2025年10月16日 20:25:28（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| China spying a daily threat to UK, warns MI5 chief | [阅读全文](https://www.bbc.com/news/articles/c0ex172rxwzo?at_medium=RSS&at_campaign=rss) |
+| Collapse of spy case frustrating as China presents daily threat to UK security, MI5 head says | [阅读全文](https://www.bbc.com/news/articles/c0ex172rxwzo?at_medium=RSS&at_campaign=rss) |
 | The unanswered questions after release of China spy evidence | [阅读全文](https://www.bbc.com/news/articles/cp3x55rqdy5o?at_medium=RSS&at_campaign=rss) |
 | Thousands in UK sue Johnson & Johnson over talcum powder cancer risks | [阅读全文](https://www.bbc.com/news/articles/c797wv928g8o?at_medium=RSS&at_campaign=rss) |
 | Cardiff may become UK's first city to impose SUV parking premium | [阅读全文](https://www.bbc.com/news/articles/c04gpp4w0rdo?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | What we know about a White House offer to universities for expanded access to funding in exchange for demands - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFA5V1VRSkl2U3V6dHFSMUpPOUwyWGt0NHBTR3hweWlyVXZtTFZlejl3MWxDTU9ZNkJ3OUpjdXprN0ZaRzRrMU43UGlPYnJpSlVQem5SN3MxVW1KQ1U1aV9JR1RIMXNtS0ZLYUdmS1NPVTEtR29JbDJn?oc=5) |
 | Hundreds airlifted from storm-battered Western Alaska villages in historic mass evacuation - Anchorage Daily News | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPMWRleHZnUjF2LVBVZVM4Z20tZEhzTHNlV3Jhc3Y4THlnWEFpblp4V19kZDVjRVZBZkpuUUN5QVE4cGI3a2thQWVoRWJTbEsxUjBqZllubkM3dzZTS3NHSGxlaGhWWDlGaG1Uekx6VzZrUGFYM0lVNF84T2F1Q091dWxXeGF0VTdBVGFrX25vR1JaY1BQUWo3R0FKRDlKY1R1MERIbW0wWFBZemVLLVRxVk9oMS1nQjFlUkdnanhjSnZHcGR2THBCUUxRZUgxQQ?oc=5) |
 | Long Island teen's 1984 murder solved after 41 years, police say - ABC7 New York | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNQnFGWGpiOXloaG1ORHNQMXVCQjBRTk9TcC1VMlZKRGxfamJYTEUzLXdyMEVJWHRDVjFNVnZYaFFWekRlSXQxd3ZtckxsT0NoOVBOZTBKczN5c1VYSDF5VXMza1BIS1g5aGZjeEVLRzhuWUw5SEE4ZXpGT0FzNW5uUUF5ODkxYzVkS0FFTmFNZnRaU0lqMzgyRDNJc05IX0RKRmpLNUF6M0xHQURD?oc=5) |
-| Trump promised farmers a bailout. Time is running out. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOQTdrOUNzWEp1WEw5MEk1bmszSzlkdDhhY3hDektCbTBQN3Z0TjZuNlNnRC1ET19EcmUxVlZFVU9YMjVsd2JaOVEzcXBsOTk3X0dac05jMG5PQmlfUDViSXdMbEJTUGpHYUp2UVd2SGo3NGR0cVg2NHJETHdVZ2t1YUs4TlJiRzhtU25YZXN6MWF0ZUhTc2V5aA?oc=5) |
+| Senate Dems tease hardball defense spending strategy - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPdHJnYzRuNUdtQUVHSHVCYnhyLWFfM1hLdE5JTjdqVEVpUTRuWFNDa2o1cDNMalVTX3BDSWVoY0NFUXlzZ1dNQU1Pc1B5OGI3dC1qYWExZWVlRjNzall1MndQOVNlZkU2TndrWlNzQ2pYWEM5T3R4OTM2ZXBCY3FobFh4RldNc3FBR1lCY29R?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
