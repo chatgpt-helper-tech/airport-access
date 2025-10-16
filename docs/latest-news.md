@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 19:08:03（北京时间）**
+🕒 更新时间：**2025年10月16日 19:16:08（北京时间）**
 
 ---
 
@@ -8,16 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| China carried out 'large scale espionage' in UK, government witness said in collapsed spy case | [阅读全文](https://www.bbc.com/news/articles/c0ex172rxwzo?at_medium=RSS&at_campaign=rss) |
+| Inquiry launched as questions mount over Chinese spying case | [阅读全文](https://www.bbc.com/news/articles/c0ex172rxwzo?at_medium=RSS&at_campaign=rss) |
 | Thousands in UK sue Johnson & Johnson over talcum powder cancer risks | [阅读全文](https://www.bbc.com/news/articles/c797wv928g8o?at_medium=RSS&at_campaign=rss) |
-| Cardiff may become UK's first city to impose SUV parking premium | [阅读全文](https://www.bbc.com/news/articles/c04gpp4w0rdo?at_medium=RSS&at_campaign=rss) |
 | 'I can't afford to save both twins': Sudan's war left one mother with an impossible choice | [阅读全文](https://www.bbc.com/news/articles/cre5rng5808o?at_medium=RSS&at_campaign=rss) |
+| Cardiff may become UK's first city to impose SUV parking premium | [阅读全文](https://www.bbc.com/news/articles/c04gpp4w0rdo?at_medium=RSS&at_campaign=rss) |
+| Guide dog charity welcomes largest litter in years | [阅读全文](https://www.bbc.com/news/articles/c04glp477ygo?at_medium=RSS&at_campaign=rss) |
 | Betting firm Paddy Power to close 57 shops in UK and Ireland | [阅读全文](https://www.bbc.com/news/articles/cvgm444xlllo?at_medium=RSS&at_campaign=rss) |
 | Celia Imrie's fart steals the show on Celebrity Traitors | [阅读全文](https://www.bbc.com/news/articles/c4gpr5j3kgdo?at_medium=RSS&at_campaign=rss) |
 | The real problem with Britain's asylum hotels - and the woman with a bold plan to solve it | [阅读全文](https://www.bbc.com/news/articles/cdx4rrrvg8do?at_medium=RSS&at_campaign=rss) |
 | Diane Keaton's family thank public for 'love and support' after actress's death | [阅读全文](https://www.bbc.com/news/articles/c1e38xqx1qwo?at_medium=RSS&at_campaign=rss) |
 | Titan submersible imploded due to poor engineering, say US officials | [阅读全文](https://www.bbc.com/news/articles/cdeg7y4171xo?at_medium=RSS&at_campaign=rss) |
-| 'I don't want my kids growing up in England,' says ex-Premier League footballer who moved to Dubai | [阅读全文](https://www.bbc.com/sport/football/articles/cx2n8wd2znzo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | Shutdown fallout hits San Diego ahead of Vance’s Marine Corps visit - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPT2lnYUgxUjdSWUlRcW90dTRIT0wtVkEyYkVYYnhVU2xLS0EtOW5SSW9RRFBJbUlUcVVXVGswVzBTS0NBZ3ZBbXp2ODgwSVA0bk1zUmNCd290WW1PUzVjVDVPci1SNTFrQ1d6MWxodHVGTnktb1AtQ3R0NHlkSWZ2SGNMT2JBZEc0V2g3c0dNSXBFNEdla3pXUEIzTkVBNmRpTHZSZ0llMXdFVjF3QXctYXQwTmI3ZHM?oc=5) |
 | 2 universities decline White House offer for expanded access to federal funding in exchange for demands. Here’s what we know - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFA5V1VRSkl2U3V6dHFSMUpPOUwyWGt0NHBTR3hweWlyVXZtTFZlejl3MWxDTU9ZNkJ3OUpjdXprN0ZaRzRrMU43UGlPYnJpSlVQem5SN3MxVW1KQ1U1aV9JR1RIMXNtS0ZLYUdmS1NPVTEtR29JbDJn?oc=5) |
 | Trump promised farmers help. It’s complicated. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOQTdrOUNzWEp1WEw5MEk1bmszSzlkdDhhY3hDektCbTBQN3Z0TjZuNlNnRC1ET19EcmUxVlZFVU9YMjVsd2JaOVEzcXBsOTk3X0dac05jMG5PQmlfUDViSXdMbEJTUGpHYUp2UVd2SGo3NGR0cVg2NHJETHdVZ2t1YUs4TlJiRzhtU25YZXN6MWF0ZUhTc2V5aA?oc=5) |
+| Senate fails to advance GOP funding bill for 9th time as government shutdown enters Day 16 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNLWpCdy1aODI5TlFKR0Q2U2t6UTZyb0JjWU16SWZESW50UWIwNGJaN2g0aG5HRTh2LVBvOEROOGQwdEJiQ1RpMGlXeVZLbjQ4NHdVTEtIRnVvSTlMQUpscXU4bDdsZWVCS3VTdFp6N0pkSEpDV1FrSVRBRzk3VW5IaHMydGYwYjdIMHRQQlRHLXhEc3ozMVM1V0FEcVJMQdIBowFBVV95cUxQX09IVWdGSUxzeGYyVDVjbm5QRm1ZRy1HR0VldlJCTFpaaGZ4WnNFYUd2aEhCdmFMSXRpS0lMNEdqYWxlMTZWZGM4ajVQMjF0dmhyWXczNFo0MFE4Smd0S0NpWTFZYzZjQmFUY29hWVVZMW1Pajh5Si1uZmxYN1NXNEdoelhGekJ2UVl2MURjZEpKb3BJYkc5YXRaVkFxY3ZRZG5F?oc=5) |
 | Hundreds airlifted from storm-battered Western Alaska villages in historic mass evacuation - Anchorage Daily News | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPMWRleHZnUjF2LVBVZVM4Z20tZEhzTHNlV3Jhc3Y4THlnWEFpblp4V19kZDVjRVZBZkpuUUN5QVE4cGI3a2thQWVoRWJTbEsxUjBqZllubkM3dzZTS3NHSGxlaGhWWDlGaG1Uekx6VzZrUGFYM0lVNF84T2F1Q091dWxXeGF0VTdBVGFrX25vR1JaY1BQUWo3R0FKRDlKY1R1MERIbW0wWFBZemVLLVRxVk9oMS1nQjFlUkdnanhjSnZHcGR2THBCUUxRZUgxQQ?oc=5) |
-| DNA from discarded straw leads to indictment of murder suspect after 41 years - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNSF9yd0VSQzlwUVRRTV9pamFJbTRWS3ZEaHk1MkJzMzAyUFVKenlwMFk4QTVpa2lWT0IwQmRHWE1tN3IwNk9XYThweDlYTjJCcXgyYmdrM011bEF4VHpBU0RPNkgxMEd4Nko3OEVzTEFMUldTNW9aZ2dYdmx2Nk9UZA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
