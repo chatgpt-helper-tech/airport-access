@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月17日 00:56:13（北京时间）**
+🕒 更新时间：**2025年10月17日 01:01:49（北京时间）**
 
 ---
 
@@ -24,10 +24,10 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Senate rejects funding patch for 10th time amid shutdown stalemate - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxQZUY3Q2ZVVjZrczNkanNjZDBxS1lXVUpuTUhqZTUxUS1IWnZTOXA5N3FQRXNUYzlneGkzT2hMbTVzejNJYXctNk9iM1FWcUxPUldETS13aGJ6THZYdzZPRF84ejJJOFNoWEw5MHF2Yi1STjNkWUZsYnBHYjVKVzFIWnpNUFZrampUbExYTDVIb0dSenVhb0lWaTVhQloxN19IU05WREdPRUdQeFZlbXYtMHRvZzRLR1pPZTdhS1dkTHV5Y3ZSLTZWVmtHa3psUQ?oc=5) |
-| Trump says he has authorized covert CIA action in Venezuela - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOVFYzdDlXSXYtMEEwX3cxWklEMGxXU0diNVFDRHBxLTZ0MXdNUWtvaXdMc2xXc0VyY0pLQ0dGV2xGV3FwU1dqc0JvYXRpOTlOLWxWZ29tc1d1UDNrWTByR0JzSFNiRW45eTBkbS1tUW5wT3BTdjJ2aUJpU1pFRFp6NXB5ckRfMjBuT0RpU1pqY1oyTjVJS0FBU2hFUm5QN2pY?oc=5) |
-| Federal judge demands answers from Trump admin on following order to avoid violent encounters with Chicago protesters - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5VVkpDSEt1SWc0SENLMHVnNENZQ29CZTAxdnNwQ3c5QVFNRmtrTjFHS0tUMS1uZ3RWcTUwZ2QtY2sxWUE1emxCWlB0NVJYTk1zNHppU09PWFEtOC1FSTRULVNhYndCZU1vMU9Tak9nV3I5WkNQZGpxQ1Eza1B0Zw?oc=5) |
 | Israel warns U.S. Gaza deal could stall if Hamas won't return hostage bodies - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQb3dDT1JDRG5rbGxiaERtdktITWwtakpOY2o5Y2FkT2VvRkJfUGh6d3o5d3c5QUowYmNGdU5zTVJFZXhnejQtU21ncS15amZzUEhJMGJaUnR5VkVSUGxCZ0xRR09rLUNBX1JaS1UxaW1vZWg2Mk9QX3Nadm9rNF9IQ1FNSQ?oc=5) |
-| 'I am speaking to President Putin now,' Trump says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE9pQTVBcExwU3QyUDQzb1JfZG5xMDQyUjdCTmlMejZYenR3c1FFNkhRR0FMZVpQdlprdjBZdlY2TG5vbzRXbkxBRnV1MmxudTBlQ2NFNg?oc=5) |
+| Federal judge demands answers from Trump admin on following order to avoid violent encounters with Chicago protesters - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5VVkpDSEt1SWc0SENLMHVnNENZQ29CZTAxdnNwQ3c5QVFNRmtrTjFHS0tUMS1uZ3RWcTUwZ2QtY2sxWUE1emxCWlB0NVJYTk1zNHppU09PWFEtOC1FSTRULVNhYndCZU1vMU9Tak9nV3I5WkNQZGpxQ1Eza1B0Zw?oc=5) |
+| Trump and Putin speak ahead of Zelensky meeting - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1VeldfOGdPWGVCVXNDUno5YUxKR0d3d043R0tNUVQ5MUZsX0k2S003cDJ3Ync3dDlVcmxfQzBOMV9ZQzRTalU2NjVoeEVMWEQ4a2pGVVNBMkttdUVjSHpsQjJqeURkOTZlN1U1U2tXejJoTWdn?oc=5) |
+| Trump says he has authorized covert CIA action in Venezuela - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOVFYzdDlXSXYtMEEwX3cxWklEMGxXU0diNVFDRHBxLTZ0MXdNUWtvaXdMc2xXc0VyY0pLQ0dGV2xGV3FwU1dqc0JvYXRpOTlOLWxWZ29tc1d1UDNrWTByR0JzSFNiRW45eTBkbS1tUW5wT3BTdjJ2aUJpU1pFRFp6NXB5ckRfMjBuT0RpU1pqY1oyTjVJS0FBU2hFUm5QN2pY?oc=5) |
 | White House Rages at CNN Town Hall in Live-Posting Spree - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNS1pudU5zLVhwVXA3QWsyYTE5c3M1RjFROXp4NUVLb05abFFlcHdTTWtmYUg4cDFuR1BHdS1pYmp3U1V4TXFEdG1WMVF1cjdCSHhSeUFxcEpyQU9TaW42cE5LSHMxZnR1Zmd3ZXh6OUs0X0drczlySGR2ckQ2Q2JhelhodkVpNWp0dU1rMWNGS01ObVlONmJlaVlFODA?oc=5) |
 | First Thing: JD Vance brushes off racist texts in Republican group chat as ‘what kids do’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxPOG1ZbWxVejVJMklJVVktaFB3RnZGTk9SRkotWkJESTV6cWYwaEkyeXJwOUItOVJreFpBYXlwbVZUd0FFZ2J1RTlsX2ttdHZRczdhQkFUSnIyeFFSVjZNenFpU21nN3dQQzNNSUhKazd4SnVhRWY3NURGLTVUclJwc2paMVFDTkFHMm4xNVBURXQ3d3VFWHZ1NU1BRDJVQ2UxQm5XaE5TUG9TUF92dmNLZGR4ckJiM3Y1UGYyZ0VVeWlFaW52ZTF1MzY1ODhsV2s?oc=5) |
 | Why the Supreme Court may erode a key Voting Rights Act tenet - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNRWdFV3F5YjNKbHZQMmlFSmZyWjc3SGtVcTFER3FLcHZIYTU5UVhjYTZqM3JDNlpDMzV3WnBCb2hRdlBYaVBqcmhBWDduMU9yRFFMcXhxd0ZoVnViV2RCck5nVC0ta2VKYndPTnR3d1Jtd2xCTTVNRjNrZUJ0eGJOSlh0WnYyMFU?oc=5) |
