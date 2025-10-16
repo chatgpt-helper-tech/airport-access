@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 18:49:54（北京时间）**
+🕒 更新时间：**2025年10月16日 18:56:30（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump confirms he's authorized CIA operations in Venezuela, looking into land strikes - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOWDZoY3E3NU9CQmxTRE9jeFZYMjYwVFJHVlRyMEdPQlRLVkU2aTFqQlR1SURfOUtPamRCUXVVTFNtWFB6RHpJb2tyVzd2RWp3TzlCNXV3Q3Bxa3gzMkVJdXpEb09ubGpiTnpWTEFLMjVLejdwQ1h0eVBWRU1MTXA3aTJRYXRpemhxclJNOEh1Rzl0N1oySWo4SmRmeFRzUkEtOWkwWUpILXZBclo1bmkwdG1aUl_SAboBQVVfeXFMTzg4Z09vaTFvRlZNYWc0dUpqcThaUmNFM3dRSnRxcHQ0LWUtUlFpbHpVR1VDeDBxSUVBU0ZUTFNIRE9BSER4Yk1jcGFINF91NDh0NEFzbGhSbVlqNEVtMldMSnhQSWxsMWlHb2s1aS12a0tmakZISVJGaVB0Wm9tNHdGSHpoYkFUOUduSW9XUng1aFlSeFZOaF8tcGlMbXpuazNYSlVtaWVfSmNGdkFrRzNTREk3WUZoSURB?oc=5) |
 | Judge orders Trump administration to pause shutdown layoffs - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBKX3RoUFBaNWhEbUFPTDA3dU1pRS13OEdMd0daT2xIcWd4X0J5SXpTUkpoTGk2clVCQ0h1ajhfTFhmZDUxTGZnbk4yZXJQTXU0dm8yN1d3a0thd9IBX0FVX3lxTE9qRVJvRVVaUk8zRzJfZjZTTWpEMkxyTGJZbmJscHhHSm5UbDd6ODNfSDlCMzZLMy02bWdrYzVtUmFPcFZPR3FZWWNRcXNrdndOMlJmVUU3eF9mdkJDbU9n?oc=5) |
-| JD Vance brushes off racist texts by adults in Republican group chat as ‘what kids do’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQaHB6T0JzWXlTZ3o4OWRVa0ZtU1AyX2VUTFZCcjdOa3M4ZHFESkZrSVlIdnl5MEh1UElPN1ZqUGFZSEwwSzYtM3ZwMlYtMlN3TkRiaGhNdjRUSGl4VXk4WVp6U3V6c2l5ZXRQRUh2SjNhWHNwRnJ0NVRnTVE0aUVMVklpQmFNY3BwUS1Pakg2ajVfODJmdVFCa24yZjdRQ3BaWlE?oc=5) |
+| Trump confirms he's authorized CIA operations in Venezuela, looking into land strikes - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOWDZoY3E3NU9CQmxTRE9jeFZYMjYwVFJHVlRyMEdPQlRLVkU2aTFqQlR1SURfOUtPamRCUXVVTFNtWFB6RHpJb2tyVzd2RWp3TzlCNXV3Q3Bxa3gzMkVJdXpEb09ubGpiTnpWTEFLMjVLejdwQ1h0eVBWRU1MTXA3aTJRYXRpemhxclJNOEh1Rzl0N1oySWo4SmRmeFRzUkEtOWkwWUpILXZBclo1bmkwdG1aUl_SAboBQVVfeXFMTzg4Z09vaTFvRlZNYWc0dUpqcThaUmNFM3dRSnRxcHQ0LWUtUlFpbHpVR1VDeDBxSUVBU0ZUTFNIRE9BSER4Yk1jcGFINF91NDh0NEFzbGhSbVlqNEVtMldMSnhQSWxsMWlHb2s1aS12a0tmakZISVJGaVB0Wm9tNHdGSHpoYkFUOUduSW9XUng1aFlSeFZOaF8tcGlMbXpuazNYSlVtaWVfSmNGdkFrRzNTREk3WUZoSURB?oc=5) |
 | China’s Rare Earth Restrictions Aim to Beat U.S. at Its Own Game - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPMHNJWlllTVViSzRaeDVGMEJqQWtoQTdvWHJDaW1uSEQycDRMZ3BMc1AweWgzVHZfajR5NmtoTmxFU3psQmlnNlFUTVd5SW5qWXMzSFFuc0FqajI2TTNzRGtKWnNUdTRLTkh1Nlg5ZEQwTVUyMmt0dmtyVERid2FNalk0MmlQMUVNOF9TbTYteXQ?oc=5) |
+| JD Vance brushes off racist texts by adults in Republican group chat as ‘what kids do’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQaHB6T0JzWXlTZ3o4OWRVa0ZtU1AyX2VUTFZCcjdOa3M4ZHFESkZrSVlIdnl5MEh1UElPN1ZqUGFZSEwwSzYtM3ZwMlYtMlN3TkRiaGhNdjRUSGl4VXk4WVp6U3V6c2l5ZXRQRUh2SjNhWHNwRnJ0NVRnTVE0aUVMVklpQmFNY3BwUS1Pakg2ajVfODJmdVFCa24yZjdRQ3BaWlE?oc=5) |
 | Supreme Court signals willingness to pare back Voting Rights Act - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFA0QVU0U2kyd0g3Yk1qZkRmYVhmVFY3NTdQSjRuTHFRVkd6Tmwwb1hLZHBhRFBFRklfdTdaRGlyX0lsYWROb0p2c0J0MXYxZ25CZDAzRzk0QnRndkx5M2RpbmdUX2JVSExxNTZPX21FTXlCVlNSRGptbnZpQjNjc00?oc=5) |
 | Shutdown fallout hits San Diego ahead of Vance’s Marine Corps visit - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPT2lnYUgxUjdSWUlRcW90dTRIT0wtVkEyYkVYYnhVU2xLS0EtOW5SSW9RRFBJbUlUcVVXVGswVzBTS0NBZ3ZBbXp2ODgwSVA0bk1zUmNCd290WW1PUzVjVDVPci1SNTFrQ1d6MWxodHVGTnktb1AtQ3R0NHlkSWZ2SGNMT2JBZEc0V2g3c0dNSXBFNEdla3pXUEIzTkVBNmRpTHZSZ0llMXdFVjF3QXctYXQwTmI3ZHM?oc=5) |
 | 2 universities decline White House offer for expanded access to federal funding in exchange for demands. Here’s what we know - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFA5V1VRSkl2U3V6dHFSMUpPOUwyWGt0NHBTR3hweWlyVXZtTFZlejl3MWxDTU9ZNkJ3OUpjdXprN0ZaRzRrMU43UGlPYnJpSlVQem5SN3MxVW1KQ1U1aV9JR1RIMXNtS0ZLYUdmS1NPVTEtR29JbDJn?oc=5) |
