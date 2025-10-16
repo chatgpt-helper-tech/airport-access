@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 09:33:29（北京时间）**
+🕒 更新时间：**2025年10月16日 09:40:37（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Democratic senators want investigation into Noem's TSA video that blamed Democrats for the shutdown - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPa25CR082cUU2bXQ4dGw2LXNyZEFpZjZBMnpWQ2sybmxId1hRNUFsTkJCWGxHQkx5SmlQVHBJTlp2VkZJTVN5WXNMNGQwU0RpWm1EZXdXNlh1cmgtVFkxSkh3c0o3czI4MDBGMExtRHhEbDZhcmVLQjBkVlFDMmtseG1ZekpPMy1NZ2YweFRJc2w2Q01vYmFGWFo5Y2NzNzRTQ2VwaDFsMHFsckEwRG53UzFKLUdqSGM10gG-AUFVX3lxTE04dEpzcFBBRWkyOFRnamc3SThlODJrbUU3VUxPMWlScWstclgtMUcxZDBDd091bVIyU19XV1JtclRaT3Ezdy1aWHdyTzJwR1A3STRUUVJzWWJpOGgtN0NWNEZzcHpnUS0tOERGdVB0VHNqc0FKUkNJLThBN00xRV9rTFVxQXI3Nm9OemZ6dTRHTjNfZG0tT1ZfamduT1NZVWxOYXVHTEV4emRUaEFPSGFWTmctTkFRY0FTS0xmbEE?oc=5) |
 | Supreme Court seems open to limiting key section of Voting Rights Act - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOdWFNOS1SMjVVX1JEMVVzc09TaERnOWVPRkExbDdaU1BkY3JrNHo5TXc2SGk5ZlYwYllYRkhrQnhHSHBNT3BTRThBb3hXa2doU2N2VXJRYmxFcUFnQXJmSVJXeVYta3Z4b1hfTkRRcGVsQlhLZ0FESWc4YUNIa181R2dwVzg5SHcwNUlmWVFoamJGWHpGVGlSbXk0eFF2enJpNm5vUg?oc=5) |
 | JD Vance dismisses bipartisan outrage over racist and offensive Young Republican group chat - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPcjBuNFUtNGpfSlJfSDRqdTBUazlWQ0pndU9qZUR1LXUyNDRhQ1Z3Nnh0aE1vV09QNnEyQTVRWWpMUmVmQ19YVlEwOW5mYU9Jbi1rTHlIanBkUkhJZkhvNVhtLVZFV2I1WjRpWDlSemlnZUotZnIxMGV0TWtIbG51dnR6Ny1kWFRNNWc3OGFzcTNFSFNnSEQ3aXVwN0diVF9LU3VoWEJYX1RRdi1RQ2Q4Z1B0QUI1YmozcllNTXBGUk94UVd0d1RVNdIBzgFBVV95cUxNVDhsR09JNEpBUjVIQnFKbGh1SkZ1WnNpRFE5LWUzUUo3aHNiQTQ3WDQ5MlRyWlNaYnVBWnlmdy1CdVFCUGR5Ulh5SVhHY1RDcVhnMlJsbDdxWFpWRVV3SS0tNmxjelVUd1ZyNTNpR0RGMVd2ZGJhM1JxbDFwZ010Mzd3cTJ1ckJMQ1l6MjlhOV9leUVsUFVESGdDaHJkWnpMdmtQcmFJc3A0V0NGNHFlWjdOSmxqRkJVLVpmZTNtT19RMlNmZVhHLTY3a1U0Zw?oc=5) |
-| Brown University Rejects White House Deal for Special Treatment - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNanI1TzFUSlZ6Q1p6bFZXYnZPZWVOODJickltTXFhVjNKSFY3N0EtVGZNY0RKNkpubGJLeXZWeThFeVdHeVFPb25Ya2swVEYxRVJZTHdoZnN0Rk5BZF9wcWt0TzlVT241SDNRbU9TcmFBOUJJLWVxS3MwVGlnWkd4TkN6WElUZTRx?oc=5) |
-| Charles Crawford: Mississippi executes a man convicted of raping and killing a college student - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBTalh0dkRUcmVvRS03S3VaV1dMdngtQ2l6VFMycEhHR1BHVjVzbFo5a3ZRX0xkQUphMFA1Vi1JRXZlQVEzcXVxblpCeFZ1UE0xdFBqbmphd3ZScGRJVF94SHA3ZlBybnhmTXVEUHZ0b2tMV0lDNTNnTTRMNG0?oc=5) |
 | Democrats float a new shutdown demand: Reversing Trump's mass firings - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQckNrbFM0VVIxVWtYc1pKNnZ2ZVZIY3hoTzFHZmFwWVhjZmxkRmpIWmFRUXZ0RmxsZWh5SE5GRHV3LW52d2NmQjh4X1BkRHBaOGtsQkhSNXV4STRXNmh1V3dMY2lEdDEtbHJrYThSU0pyVTdJeU03SDYweE1tNGp3UzRTSHhNNTFBSE9uYzJXQ2xCMGoxNnBKRTZQQUFOd2M?oc=5) |
+| Brown University Rejects White House Deal for Special Treatment - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNanI1TzFUSlZ6Q1p6bFZXYnZPZWVOODJickltTXFhVjNKSFY3N0EtVGZNY0RKNkpubGJLeXZWeThFeVdHeVFPb25Ya2swVEYxRVJZTHdoZnN0Rk5BZF9wcWt0TzlVT241SDNRbU9TcmFBOUJJLWVxS3MwVGlnWkd4TkN6WElUZTRx?oc=5) |
 | A discarded straw leads to murder charges in 1984 killing of New York teen - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPNVg3WVp6c0ZrclByMm5US09CY3RCR2tBaHh3ck5FdG1oVzczc05zZ1FUUTA1REt2VHdlcFotZUlROUllZkh4dWREZHQ1NGVHcGVVbTl3VjNDRVVLMTRrN2V0WVFfV056bFNQLVlGRVFmRXBEQm9yYmo3akQ1U2xTQVpmblBTd3lmU2NzM2FiS2c?oc=5) |
+| Videos could tank Katie Porter’s bid to become California’s next governor - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOYnRtQlMzTS16YVdGQWRjMjgxQ2xfZmZfTlFEZ242Wl9ab016ejJ4ZmN1VGk3S1lpUkRScEJIOVA5c2V6MGRDc2J1ekdHcFFSempVNFNsYUYzZnY1Ymw3ckZSS0xycFNwUFZRVTN0QlVBQVV2dmc0VzJ3a3F1RjQ5QTVjLXpxQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
