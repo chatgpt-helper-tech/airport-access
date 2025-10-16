@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 14:48:45（北京时间）**
+🕒 更新时间：**2025年10月16日 14:56:25（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | Celia Imrie's fart steals the show on Celebrity Traitors | [阅读全文](https://www.bbc.com/news/articles/c4gpr5j3kgdo?at_medium=RSS&at_campaign=rss) |
 | Cabinet Office rejects Cummings' claim China breached 'sensitive' communications | [阅读全文](https://www.bbc.com/news/articles/ce3xz607dpro?at_medium=RSS&at_campaign=rss) |
 | Months after fall of Assad, families of Syria's missing still seeking justice | [阅读全文](https://www.bbc.com/news/articles/cj07p5zm229o?at_medium=RSS&at_campaign=rss) |
-| UK economy grew 0.1% in August | [阅读全文](https://www.bbc.com/news/articles/cq65j9pm508o?at_medium=RSS&at_campaign=rss) |
+| UK economy grew slightly in August ahead of key Budget | [阅读全文](https://www.bbc.com/news/articles/cq65j9pm508o?at_medium=RSS&at_campaign=rss) |
 | Trump says he authorised CIA in Venezuela as Maduro says 'no to regime change' | [阅读全文](https://www.bbc.com/news/articles/c0ex1jq9pdvo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump confirms he's authorized CIA operations in Venezuela, looking into land strikes - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOWDZoY3E3NU9CQmxTRE9jeFZYMjYwVFJHVlRyMEdPQlRLVkU2aTFqQlR1SURfOUtPamRCUXVVTFNtWFB6RHpJb2tyVzd2RWp3TzlCNXV3Q3Bxa3gzMkVJdXpEb09ubGpiTnpWTEFLMjVLejdwQ1h0eVBWRU1MTXA3aTJRYXRpemhxclJNOEh1Rzl0N1oySWo4SmRmeFRzUkEtOWkwWUpILXZBclo1bmkwdG1aUl_SAboBQVVfeXFMTzg4Z09vaTFvRlZNYWc0dUpqcThaUmNFM3dRSnRxcHQ0LWUtUlFpbHpVR1VDeDBxSUVBU0ZUTFNIRE9BSER4Yk1jcGFINF91NDh0NEFzbGhSbVlqNEVtMldMSnhQSWxsMWlHb2s1aS12a0tmakZISVJGaVB0Wm9tNHdGSHpoYkFUOUduSW9XUng1aFlSeFZOaF8tcGlMbXpuazNYSlVtaWVfSmNGdkFrRzNTREk3WUZoSURB?oc=5) |
-| Trump Administration Live Updates: President Suggests Ground Strikes on Venezuela Could Be Next - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9LT3Q1M2hPTl9uNnEwNVg3cGc0SmcwX2lfNlNxNHBTYTZMZ2gtWWtkX1pDNnFxZ09jcmhJM2tjaVRONVVPcmphdzdmb25kVzVxSmQ2TldCZjJlTzlzZ3dUZUZMVG4ySTRqZm5zd0VvNA?oc=5) |
+| Trump Administration Live Updates: Judge Temporarily Blocks Layoffs During Federal Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9LT3Q1M2hPTl9uNnEwNVg3cGc0SmcwX2lfNlNxNHBTYTZMZ2gtWWtkX1pDNnFxZ09jcmhJM2tjaVRONVVPcmphdzdmb25kVzVxSmQ2TldCZjJlTzlzZ3dUZUZMVG4ySTRqZm5zd0VvNA?oc=5) |
 | JD Vance brushes off racist texts by adults in Republican group chat as ‘what kids do’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQaHB6T0JzWXlTZ3o4OWRVa0ZtU1AyX2VUTFZCcjdOa3M4ZHFESkZrSVlIdnl5MEh1UElPN1ZqUGFZSEwwSzYtM3ZwMlYtMlN3TkRiaGhNdjRUSGl4VXk4WVp6U3V6c2l5ZXRQRUh2SjNhWHNwRnJ0NVRnTVE0aUVMVklpQmFNY3BwUS1Pakg2ajVfODJmdVFCa24yZjdRQ3BaWlE?oc=5) |
 | Supreme Court seems open to limiting key section of Voting Rights Act - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOdWFNOS1SMjVVX1JEMVVzc09TaERnOWVPRkExbDdaU1BkY3JrNHo5TXc2SGk5ZlYwYllYRkhrQnhHSHBNT3BTRThBb3hXa2doU2N2VXJRYmxFcUFnQXJmSVJXeVYta3Z4b1hfTkRRcGVsQlhLZ0FESWc4YUNIa181R2dwVzg5SHcwNUlmWVFoamJGWHpGVGlSbXk0eFF2enJpNm5vUg?oc=5) |
 | US plays down claims Hamas is violating ceasefire deal over hostage remains - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBhaVpvUTVnR3dZZmFheXphUmxpX0NoYjVXZGtGSDFScnRfMHd1eGpuRzZ5N09rSnBMUmhVamQ2MjBnczg0ZXhrTHc3MW5sNWVZZjZDQ2pVVWZyUdIBX0FVX3lxTFB0NXNYN2puYUhlMlR5ZG12UlVRM1F3OVR4TUVPTjU3MG5xc3ExT1FzQmRrcFhBeHVXczdZOTNJeEtSbUktZzVvdGxQNTdxRkJxYUttcWtodzlOQi13aHhV?oc=5) |
