@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 08:41:36（北京时间）**
+🕒 更新时间：**2025年10月16日 08:49:28（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump Administration Live Updates: Judge Temporarily Blocks Layoffs During Federal Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9LT3Q1M2hPTl9uNnEwNVg3cGc0SmcwX2lfNlNxNHBTYTZMZ2gtWWtkX1pDNnFxZ09jcmhJM2tjaVRONVVPcmphdzdmb25kVzVxSmQ2TldCZjJlTzlzZ3dUZUZMVG4ySTRqZm5zd0VvNA?oc=5) |
 | Trump confirms he has authorized CIA covert operations in Venezuela - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQeTJZbTJlSFFlNkZjbWdob3pOQWJfYWFIQUlKeTVIc1p0dUF0QzVjd0dUMTRMVk5jUlQxUEI1akN3QWtzOVlqbHdmT3djWV9VQzRIMlBrX1o0VXlBdWsybzh5aDY1M3NRTTB3OFMxZWw2aFVBbHBaUHYyVmpQY3FNYm9KYVNQVDNnRGdfYTBSa2lXazhKY29NY9IBngFBVV95cUxOY1VuSEpWOF9rdk5vMXdOSVh1ZDgwQVBlMF8wOGQzN2RCY3YzVkJ4a1ZFVEhDcVRVelA0Vl9Ec21yNEFMMEF1OENadmpsUGQtTEJER1hwTlpOOFhFcFRBYjV0V2xyT05PNTNQeWFuVUhtWXlHdzBDRDdocmIzMVN5TmxUYzlZNFVjb0ZsamQ4Ynl5Q2IyVjI5SGFUc2lrdw?oc=5) |
+| Trump Administration Live Updates: Judge Temporarily Blocks Layoffs During Federal Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9LT3Q1M2hPTl9uNnEwNVg3cGc0SmcwX2lfNlNxNHBTYTZMZ2gtWWtkX1pDNnFxZ09jcmhJM2tjaVRONVVPcmphdzdmb25kVzVxSmQ2TldCZjJlTzlzZ3dUZUZMVG4ySTRqZm5zd0VvNA?oc=5) |
 | Supreme Court seems open to limiting key section of Voting Rights Act - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOdWFNOS1SMjVVX1JEMVVzc09TaERnOWVPRkExbDdaU1BkY3JrNHo5TXc2SGk5ZlYwYllYRkhrQnhHSHBNT3BTRThBb3hXa2doU2N2VXJRYmxFcUFnQXJmSVJXeVYta3Z4b1hfTkRRcGVsQlhLZ0FESWc4YUNIa181R2dwVzg5SHcwNUlmWVFoamJGWHpGVGlSbXk0eFF2enJpNm5vUg?oc=5) |
 | Live updates: Hamas says it has handed over all hostage bodies it can access - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNb19PYjJzRndvTF9Mdnpfbm45T0Fuc3pWQk9BMXpvcjNicHJuZGc1NmxpTTYwTTU2QkJzQVlHNUg4VjVhNDdyWnBqOUo2N1RNZjFSOHZaanJHQzl1OUh5VE1Gakw3X3JmWnBUWC1sM1p4NXgweXNTN3cyQXpRMGtVSlkzZUZiZ3c?oc=5) |
 | Democratic senators want investigation into Noem's TSA video that blamed Democrats for the shutdown - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPa25CR082cUU2bXQ4dGw2LXNyZEFpZjZBMnpWQ2sybmxId1hRNUFsTkJCWGxHQkx5SmlQVHBJTlp2VkZJTVN5WXNMNGQwU0RpWm1EZXdXNlh1cmgtVFkxSkh3c0o3czI4MDBGMExtRHhEbDZhcmVLQjBkVlFDMmtseG1ZekpPMy1NZ2YweFRJc2w2Q01vYmFGWFo5Y2NzNzRTQ2VwaDFsMHFsckEwRG53UzFKLUdqSGM10gG-AUFVX3lxTE04dEpzcFBBRWkyOFRnamc3SThlODJrbUU3VUxPMWlScWstclgtMUcxZDBDd091bVIyU19XV1JtclRaT3Ezdy1aWHdyTzJwR1A3STRUUVJzWWJpOGgtN0NWNEZzcHpnUS0tOERGdVB0VHNqc0FKUkNJLThBN00xRV9rTFVxQXI3Nm9OemZ6dTRHTjNfZG0tT1ZfamduT1NZVWxOYXVHTEV4emRUaEFPSGFWTmctTkFRY0FTS0xmbEE?oc=5) |
 | JD Vance dismisses bipartisan outrage over racist and offensive Young Republican group chat - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPcjBuNFUtNGpfSlJfSDRqdTBUazlWQ0pndU9qZUR1LXUyNDRhQ1Z3Nnh0aE1vV09QNnEyQTVRWWpMUmVmQ19YVlEwOW5mYU9Jbi1rTHlIanBkUkhJZkhvNVhtLVZFV2I1WjRpWDlSemlnZUotZnIxMGV0TWtIbG51dnR6Ny1kWFRNNWc3OGFzcTNFSFNnSEQ3aXVwN0diVF9LU3VoWEJYX1RRdi1RQ2Q4Z1B0QUI1YmozcllNTXBGUk94UVd0d1RVNdIBzgFBVV95cUxNVDhsR09JNEpBUjVIQnFKbGh1SkZ1WnNpRFE5LWUzUUo3aHNiQTQ3WDQ5MlRyWlNaYnVBWnlmdy1CdVFCUGR5Ulh5SVhHY1RDcVhnMlJsbDdxWFpWRVV3SS0tNmxjelVUd1ZyNTNpR0RGMVd2ZGJhM1JxbDFwZ010Mzd3cTJ1ckJMQ1l6MjlhOV9leUVsUFVESGdDaHJkWnpMdmtQcmFJc3A0V0NGNHFlWjdOSmxqRkJVLVpmZTNtT19RMlNmZVhHLTY3a1U0Zw?oc=5) |
+| Brown University Rejects White House Deal for Special Treatment - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNanI1TzFUSlZ6Q1p6bFZXYnZPZWVOODJickltTXFhVjNKSFY3N0EtVGZNY0RKNkpubGJLeXZWeThFeVdHeVFPb25Ya2swVEYxRVJZTHdoZnN0Rk5BZF9wcWt0TzlVT241SDNRbU9TcmFBOUJJLWVxS3MwVGlnWkd4TkN6WElUZTRx?oc=5) |
 | Democrats float a new shutdown demand: Reversing Trump's mass firings - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQckNrbFM0VVIxVWtYc1pKNnZ2ZVZIY3hoTzFHZmFwWVhjZmxkRmpIWmFRUXZ0RmxsZWh5SE5GRHV3LW52d2NmQjh4X1BkRHBaOGtsQkhSNXV4STRXNmh1V3dMY2lEdDEtbHJrYThSU0pyVTdJeU03SDYweE1tNGp3UzRTSHhNNTFBSE9uYzJXQ2xCMGoxNnBKRTZQQUFOd2M?oc=5) |
 | Democratic senator shouldn’t run at age 80, new primary challenger says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPdEJxcHU0RXp2b0xtUWFORW8tV3Vramp1MUZCWW9HQ1VSWnZlMTdZVzRyV01wb2VFWjdGWHJobko4a2dMSDdTYVB1VU91akJpUWNXMkZjaFJ5SmNHenF0UTlwM2NXWUFyMnFfR1VJOUVGNnFwYm9OT3FXWGpNbzY3enMxM2dZamVWV013SUNKdw?oc=5) |
 | Videos could tank Katie Porter’s bid to become California’s next governor - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOYnRtQlMzTS16YVdGQWRjMjgxQ2xfZmZfTlFEZ242Wl9ab016ejJ4ZmN1VGk3S1lpUkRScEJIOVA5c2V6MGRDc2J1ekdHcFFSempVNFNsYUYzZnY1Ymw3ckZSS0xycFNwUFZRVTN0QlVBQVV2dmc0VzJ3a3F1RjQ5QTVjLXpxQQ?oc=5) |
-| New Oklahoma schools superintendent rescinds mandate for Bible instruction in schools - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOczYzd3RXZzZlX0VlblltdjhTdDF2Qmg5ZWx0RUxTQUVNM2s3R0wyTXdWQkNQUlZMbUNUTWJMZ2tOdm5ITFI3UUFIcVcyTFBCemh3a0doaFU1TTQwX2RyT0U0ZW1mN25nbnlreXVOUXk1dzl3VUdoRjU5ZUxseHhfbVpweWYxbkZaV1lwMldDM0Z4SXJwamlheWRTVG5WVG5xM3hYOEVXSFI?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
