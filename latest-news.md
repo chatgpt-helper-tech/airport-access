@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 12:56:22（北京时间）**
+🕒 更新时间：**2025年10月16日 13:00:40（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump Administration Live Updates: Judge Temporarily Blocks Layoffs During Federal Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9LT3Q1M2hPTl9uNnEwNVg3cGc0SmcwX2lfNlNxNHBTYTZMZ2gtWWtkX1pDNnFxZ09jcmhJM2tjaVRONVVPcmphdzdmb25kVzVxSmQ2TldCZjJlTzlzZ3dUZUZMVG4ySTRqZm5zd0VvNA?oc=5) |
-| Hamas says all reachable hostage bodies recovered amid Israel threat to resume Gaza fighting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNZi05TGcyMVRxR2pFVGdJMmt0QkxINnFkVGJOWDNnSFR5ZEhJWnFWTU9mWUx4TDlpa3piNG05S29iWXl6N2N2cmxpWmxpdGctRUtlcnItanFPWTYxTklyTURzRFN6SVdzNVF2NDNJNXdsNGtDV0ExQnh2Qk54UVYwTWNvZ0xsbW13WENxSXctUTllc0MtV0tZTnkweDA0UUwyYTl3NkNsY0tHZ013N2xud29tTVFxTGpF?oc=5) |
 | Trump says he has authorized covert CIA action in Venezuela - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOVFYzdDlXSXYtMEEwX3cxWklEMGxXU0diNVFDRHBxLTZ0MXdNUWtvaXdMc2xXc0VyY0pLQ0dGV2xGV3FwU1dqc0JvYXRpOTlOLWxWZ29tc1d1UDNrWTByR0JzSFNiRW45eTBkbS1tUW5wT3BTdjJ2aUJpU1pFRFp6NXB5ckRfMjBuT0RpU1pqY1oyTjVJS0FBU2hFUm5QN2pY?oc=5) |
+| Hamas says all reachable hostage bodies recovered amid Israel threat to resume Gaza fighting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNZi05TGcyMVRxR2pFVGdJMmt0QkxINnFkVGJOWDNnSFR5ZEhJWnFWTU9mWUx4TDlpa3piNG05S29iWXl6N2N2cmxpWmxpdGctRUtlcnItanFPWTYxTklyTURzRFN6SVdzNVF2NDNJNXdsNGtDV0ExQnh2Qk54UVYwTWNvZ0xsbW13WENxSXctUTllc0MtV0tZTnkweDA0UUwyYTl3NkNsY0tHZ013N2xud29tTVFxTGpF?oc=5) |
 | Democratic senators want investigation into Noem's TSA video that blamed Democrats for the shutdown - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPa25CR082cUU2bXQ4dGw2LXNyZEFpZjZBMnpWQ2sybmxId1hRNUFsTkJCWGxHQkx5SmlQVHBJTlp2VkZJTVN5WXNMNGQwU0RpWm1EZXdXNlh1cmgtVFkxSkh3c0o3czI4MDBGMExtRHhEbDZhcmVLQjBkVlFDMmtseG1ZekpPMy1NZ2YweFRJc2w2Q01vYmFGWFo5Y2NzNzRTQ2VwaDFsMHFsckEwRG53UzFKLUdqSGM10gG-AUFVX3lxTE04dEpzcFBBRWkyOFRnamc3SThlODJrbUU3VUxPMWlScWstclgtMUcxZDBDd091bVIyU19XV1JtclRaT3Ezdy1aWHdyTzJwR1A3STRUUVJzWWJpOGgtN0NWNEZzcHpnUS0tOERGdVB0VHNqc0FKUkNJLThBN00xRV9rTFVxQXI3Nm9OemZ6dTRHTjNfZG0tT1ZfamduT1NZVWxOYXVHTEV4emRUaEFPSGFWTmctTkFRY0FTS0xmbEE?oc=5) |
 | Supreme Court signals willingness to pare back Voting Rights Act - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFA0QVU0U2kyd0g3Yk1qZkRmYVhmVFY3NTdQSjRuTHFRVkd6Tmwwb1hLZHBhRFBFRklfdTdaRGlyX0lsYWROb0p2c0J0MXYxZ25CZDAzRzk0QnRndkx5M2RpbmdUX2JVSExxNTZPX21FTXlCVlNSRGptbnZpQjNjc00?oc=5) |
 | Gavin Newsom Seeks Congressional Probe Of GOP “I Love Hitler” Texts, Slams VP Vance’s “Kids Do Stupid Things” Response And Says DOJ “Cannot Be Trusted” - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPdEIzZ2h3b19iQkxGSnFhSGpZb084ZWdIYjlJOEhtcWg1dDZZWnlCY1ozS29Rd042TTJ6RG9zZXJtdEdpS2pIanI2RUxVQXlmTUs1ZkNyY1R2MlY5UmhwQmdTcG04ODZEalJDZ3RPa09SSXdwTFNiMXRqUGVvRnRPdWZNd05pVUNmcWln?oc=5) |
 | Alaska airlifting hundreds from storm-devastated coastal villages - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPZlJoaXYzczZXNGJxWlVjRkYza19GVU5jWEtmOElZY2FRZUk2MkVWR1hQeGg2d2tkbUJuUTdNTkQ1a1BaeFVkc0pzSng5WHY2dWNYZUFXYzNXX3ltWmh0YURHa3E2RlRWRTU1THFRYkM0ajg5Rk9sSzZ2SUFZVVpHTzFQNFU?oc=5) |
 | Gavin Newsom Vetoes Reparations Bills in California - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPeE9JMUF1eVd6STJsU1VlRnVaMDBLZ084TXRnOEpfUjV3Z3liZlBwQ2lWSXRkZk1nWktFckQ2YnIzamZ3NEhtZENBLUZBNjlVUWNLTUR1b1NaYnA5V0o3b1hlSjg2LXFSSXE0bWlnSWZYUHNwaDRfOHJNQmFVU25lZHY2bw?oc=5) |
 | Democrats float a new shutdown demand: Reversing Trump's mass firings - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQckNrbFM0VVIxVWtYc1pKNnZ2ZVZIY3hoTzFHZmFwWVhjZmxkRmpIWmFRUXZ0RmxsZWh5SE5GRHV3LW52d2NmQjh4X1BkRHBaOGtsQkhSNXV4STRXNmh1V3dMY2lEdDEtbHJrYThSU0pyVTdJeU03SDYweE1tNGp3UzRTSHhNNTFBSE9uYzJXQ2xCMGoxNnBKRTZQQUFOd2M?oc=5) |
-| Brown University Rejects White House Deal for Special Treatment - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNanI1TzFUSlZ6Q1p6bFZXYnZPZWVOODJickltTXFhVjNKSFY3N0EtVGZNY0RKNkpubGJLeXZWeThFeVdHeVFPb25Ya2swVEYxRVJZTHdoZnN0Rk5BZF9wcWt0TzlVT241SDNRbU9TcmFBOUJJLWVxS3MwVGlnWkd4TkN6WElUZTRx?oc=5) |
+| Man charged with murder over 40 years after teen's killing: DA - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOOWNxbG9sSmZFamtSXzMwRXNvUmpPQW1KTGNiUU5Oa2MzcnFuZ3hxMEN1QnNieVlpNFU3QkoyVFV6Z3BxU2dXNTlGalJzb0hkcG14WDBxV1NyQlRjVGlCajhtdWJ0SlRfeGR6Y3J6NXpuWVhvOEVNb2lqT0NYazd0ck1td0FyTk5qWVNKUXZyWWRSR0tFNnhv0gGcAUFVX3lxTFBKTFpBUVRwVkp5TUpYQkdXczR5ejl0X0NjVk1MeWYtSzlVckZYaTJjaUxnbDBXeEZxdmlwX2pWMWNRaC1yVWJ5bWptNjNlWENPSlgtRGliNjdfUzkxTFRqcW81VTVWTVZzN29RQVllN3hmdmQwU1d4cjBIazhKN01vbXhZRjQ2WkpnZGREVzQ4RUxkaHNWb0NCUlNFNw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。

@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 12:56:22（北京时间）**
+🕒 更新时间：**2025年10月16日 13:00:40（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Alaska airlifting hundreds from storm-devastated coastal villages - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPZlJoaXYzczZXNGJxWlVjRkYza19GVU5jWEtmOElZY2FRZUk2MkVWR1hQeGg2d2tkbUJuUTdNTkQ1a1BaeFVkc0pzSng5WHY2dWNYZUFXYzNXX3ltWmh0YURHa3E2RlRWRTU1THFRYkM0ajg5Rk9sSzZ2SUFZVVpHTzFQNFU?oc=5) |
 | Gavin Newsom Vetoes Reparations Bills in California - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPeE9JMUF1eVd6STJsU1VlRnVaMDBLZ084TXRnOEpfUjV3Z3liZlBwQ2lWSXRkZk1nWktFckQ2YnIzamZ3NEhtZENBLUZBNjlVUWNLTUR1b1NaYnA5V0o3b1hlSjg2LXFSSXE0bWlnSWZYUHNwaDRfOHJNQmFVU25lZHY2bw?oc=5) |
 | Democrats float a new shutdown demand: Reversing Trump's mass firings - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQckNrbFM0VVIxVWtYc1pKNnZ2ZVZIY3hoTzFHZmFwWVhjZmxkRmpIWmFRUXZ0RmxsZWh5SE5GRHV3LW52d2NmQjh4X1BkRHBaOGtsQkhSNXV4STRXNmh1V3dMY2lEdDEtbHJrYThSU0pyVTdJeU03SDYweE1tNGp3UzRTSHhNNTFBSE9uYzJXQ2xCMGoxNnBKRTZQQUFOd2M?oc=5) |
-| Brown University Rejects White House Deal for Special Treatment - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNanI1TzFUSlZ6Q1p6bFZXYnZPZWVOODJickltTXFhVjNKSFY3N0EtVGZNY0RKNkpubGJLeXZWeThFeVdHeVFPb25Ya2swVEYxRVJZTHdoZnN0Rk5BZF9wcWt0TzlVT241SDNRbU9TcmFBOUJJLWVxS3MwVGlnWkd4TkN6WElUZTRx?oc=5) |
+| Man charged with murder over 40 years after teen's killing: DA - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOOWNxbG9sSmZFamtSXzMwRXNvUmpPQW1KTGNiUU5Oa2MzcnFuZ3hxMEN1QnNieVlpNFU3QkoyVFV6Z3BxU2dXNTlGalJzb0hkcG14WDBxV1NyQlRjVGlCajhtdWJ0SlRfeGR6Y3J6NXpuWVhvOEVNb2lqT0NYazd0ck1td0FyTk5qWVNKUXZyWWRSR0tFNnhv0gGcAUFVX3lxTFBKTFpBUVRwVkp5TUpYQkdXczR5ejl0X0NjVk1MeWYtSzlVckZYaTJjaUxnbDBXeEZxdmlwX2pWMWNRaC1yVWJ5bWptNjNlWENPSlgtRGliNjdfUzkxTFRqcW81VTVWTVZzN29RQVllN3hmdmQwU1d4cjBIazhKN01vbXhZRjQ2WkpnZGREVzQ4RUxkaHNWb0NCUlNFNw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
