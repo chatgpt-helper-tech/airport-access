@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 18:25:10（北京时间）**
+🕒 更新时间：**2025年10月16日 18:32:59（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump confirms he's authorized CIA operations in Venezuela, looking into land strikes - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOWDZoY3E3NU9CQmxTRE9jeFZYMjYwVFJHVlRyMEdPQlRLVkU2aTFqQlR1SURfOUtPamRCUXVVTFNtWFB6RHpJb2tyVzd2RWp3TzlCNXV3Q3Bxa3gzMkVJdXpEb09ubGpiTnpWTEFLMjVLejdwQ1h0eVBWRU1MTXA3aTJRYXRpemhxclJNOEh1Rzl0N1oySWo4SmRmeFRzUkEtOWkwWUpILXZBclo1bmkwdG1aUl_SAboBQVVfeXFMTzg4Z09vaTFvRlZNYWc0dUpqcThaUmNFM3dRSnRxcHQ0LWUtUlFpbHpVR1VDeDBxSUVBU0ZUTFNIRE9BSER4Yk1jcGFINF91NDh0NEFzbGhSbVlqNEVtMldMSnhQSWxsMWlHb2s1aS12a0tmakZISVJGaVB0Wm9tNHdGSHpoYkFUOUduSW9XUng1aFlSeFZOaF8tcGlMbXpuazNYSlVtaWVfSmNGdkFrRzNTREk3WUZoSURB?oc=5) |
 | Judge orders Trump administration to pause shutdown layoffs - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOQ3o2OWVfSzFSTDZndmJBNHhManNUREVfSUdXdl9hZjFwWDZFbEVwcEdqRS1NSUo5UFVLMTA5ZEJNbi1ibUJYQ0ZjMnQtTUlFX2k3ZlIzNGkxTkYtWDl5WlBsZnQtUG1FQ1lmT2hWQnptcm5CWXRZRlNfd0pySDVhS2ZNclBQZzBLcUxqRHk1M055TlU?oc=5) |
+| Trump confirms he's authorized CIA operations in Venezuela, looking into land strikes - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOWDZoY3E3NU9CQmxTRE9jeFZYMjYwVFJHVlRyMEdPQlRLVkU2aTFqQlR1SURfOUtPamRCUXVVTFNtWFB6RHpJb2tyVzd2RWp3TzlCNXV3Q3Bxa3gzMkVJdXpEb09ubGpiTnpWTEFLMjVLejdwQ1h0eVBWRU1MTXA3aTJRYXRpemhxclJNOEh1Rzl0N1oySWo4SmRmeFRzUkEtOWkwWUpILXZBclo1bmkwdG1aUl_SAboBQVVfeXFMTzg4Z09vaTFvRlZNYWc0dUpqcThaUmNFM3dRSnRxcHQ0LWUtUlFpbHpVR1VDeDBxSUVBU0ZUTFNIRE9BSER4Yk1jcGFINF91NDh0NEFzbGhSbVlqNEVtMldMSnhQSWxsMWlHb2s1aS12a0tmakZISVJGaVB0Wm9tNHdGSHpoYkFUOUduSW9XUng1aFlSeFZOaF8tcGlMbXpuazNYSlVtaWVfSmNGdkFrRzNTREk3WUZoSURB?oc=5) |
 | JD Vance brushes off racist texts by adults in Republican group chat as ‘what kids do’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQaHB6T0JzWXlTZ3o4OWRVa0ZtU1AyX2VUTFZCcjdOa3M4ZHFESkZrSVlIdnl5MEh1UElPN1ZqUGFZSEwwSzYtM3ZwMlYtMlN3TkRiaGhNdjRUSGl4VXk4WVp6U3V6c2l5ZXRQRUh2SjNhWHNwRnJ0NVRnTVE0aUVMVklpQmFNY3BwUS1Pakg2ajVfODJmdVFCa24yZjdRQ3BaWlE?oc=5) |
 | Supreme Court signals willingness to pare back Voting Rights Act - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFA0QVU0U2kyd0g3Yk1qZkRmYVhmVFY3NTdQSjRuTHFRVkd6Tmwwb1hLZHBhRFBFRklfdTdaRGlyX0lsYWROb0p2c0J0MXYxZ25CZDAzRzk0QnRndkx5M2RpbmdUX2JVSExxNTZPX21FTXlCVlNSRGptbnZpQjNjc00?oc=5) |
 | Trade standoff with China deepens as Bessent insists the U.S. will 'neither be commanded nor controlled' - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPRE0zT0sxSUFrLTMtN05jajd2bFppLWR1VjhzRUJQNk5VbTdrYWd2TGZnS3VSSEZXYnctUG54czA5UXhlbjI2VUlwOFEyZ0lkdnZZdTg1Vy11MGNjT3dYcnBkLTBFa0Zhd2JjMVVXTDdNWDZXSE5zLVYwZkJ3N3d6U3JJazhOTllSWE1qWTh1Z3l0S1lWU0JJb2pB0gFWQVVfeXFMTWJxUG5Od1YxRHdwUm41SUxJZnNER2RnMUpuNUR6SG5JY0lXUVU4YmF2X0Z2OXp1a1FBUkRTaDhabV9jYUg0YzBzU19wZENMTEMzMFRnQUE?oc=5) |
