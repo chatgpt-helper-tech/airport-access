@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 11:25:50（北京时间）**
+🕒 更新时间：**2025年10月16日 11:33:29（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump Administration Authorizes Covert C.I.A. Action in Venezuela - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOQWZPQV91T09oWEZKOFlFTVA1a25jYmVzc29XaEsxangxQXZIVmw0aE1xUXN2QzEtYkp0T1RLemJrbkF0Uk1MQ250SGM4d0VUeDhyX0IwQ2R0Uk5RTEwtUmpsME9NRFlnLTBraUxnZ3VlVlhwV2g1V0doWnM1Z2hYNXhHc2N1SlAzcU82ZkJ3?oc=5) |
+| Trump says he authorized covert CIA operations in Venezuela - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBTNk81cWhoa1pybUttY1lxTDkzYUltOHNBR1JQUXBLRk05eGlpOW1lREpDWXRnU1liQ2FvdzRrbGxweFVFNjNxWl9yb0VPa1NKYjh0dVF4bXRqR1BNaXZnOXNFR1ptUHZwaEVpaUhUbTc0WEJ2djlFeDNSVkd6VFU?oc=5) |
+| Trump Administration Live Updates: Judge Temporarily Blocks Layoffs During Federal Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9LT3Q1M2hPTl9uNnEwNVg3cGc0SmcwX2lfNlNxNHBTYTZMZ2gtWWtkX1pDNnFxZ09jcmhJM2tjaVRONVVPcmphdzdmb25kVzVxSmQ2TldCZjJlTzlzZ3dUZUZMVG4ySTRqZm5zd0VvNA?oc=5) |
 | Supreme Court seems open to limiting key section of Voting Rights Act - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOdWFNOS1SMjVVX1JEMVVzc09TaERnOWVPRkExbDdaU1BkY3JrNHo5TXc2SGk5ZlYwYllYRkhrQnhHSHBNT3BTRThBb3hXa2doU2N2VXJRYmxFcUFnQXJmSVJXeVYta3Z4b1hfTkRRcGVsQlhLZ0FESWc4YUNIa181R2dwVzg5SHcwNUlmWVFoamJGWHpGVGlSbXk0eFF2enJpNm5vUg?oc=5) |
 | October 15, 2025 – Gaza ceasefire news - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNb19PYjJzRndvTF9Mdnpfbm45T0Fuc3pWQk9BMXpvcjNicHJuZGc1NmxpTTYwTTU2QkJzQVlHNUg4VjVhNDdyWnBqOUo2N1RNZjFSOHZaanJHQzl1OUh5VE1Gakw3X3JmWnBUWC1sM1p4NXgweXNTN3cyQXpRMGtVSlkzZUZiZ3c?oc=5) |
-| Judge blocks Trump admin from laying off federal workers during government shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxORnIwMXR5VmJUWWpmZWJJVlBweUo3LXRrTWhYRnZPZVpBMUtfRjBqNGF5TU9FaC1PQUo2bVdTN1gtLThNVlY0U2pIcTdLamlGNjIzRGdWblk1WEtweVgyNkpjb1ZwRHh2Ml9KbzljdDBub1JOS1J3ODRxQXRtVUl4WHd3bWVxYUJuTmNHbQ?oc=5) |
 | Democratic senators want investigation into Noem's TSA video that blamed Democrats for the shutdown - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPa25CR082cUU2bXQ4dGw2LXNyZEFpZjZBMnpWQ2sybmxId1hRNUFsTkJCWGxHQkx5SmlQVHBJTlp2VkZJTVN5WXNMNGQwU0RpWm1EZXdXNlh1cmgtVFkxSkh3c0o3czI4MDBGMExtRHhEbDZhcmVLQjBkVlFDMmtseG1ZekpPMy1NZ2YweFRJc2w2Q01vYmFGWFo5Y2NzNzRTQ2VwaDFsMHFsckEwRG53UzFKLUdqSGM10gG-AUFVX3lxTE04dEpzcFBBRWkyOFRnamc3SThlODJrbUU3VUxPMWlScWstclgtMUcxZDBDd091bVIyU19XV1JtclRaT3Ezdy1aWHdyTzJwR1A3STRUUVJzWWJpOGgtN0NWNEZzcHpnUS0tOERGdVB0VHNqc0FKUkNJLThBN00xRV9rTFVxQXI3Nm9OemZ6dTRHTjNfZG0tT1ZfamduT1NZVWxOYXVHTEV4emRUaEFPSGFWTmctTkFRY0FTS0xmbEE?oc=5) |
 | Gavin Newsom Seeks Congressional Probe Of GOP “I Love Hitler” Texts; Slams VP Vance’s “Kids Do Stupid Things” Response, Says DOJ “Cannot Be Trusted” - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPdEIzZ2h3b19iQkxGSnFhSGpZb084ZWdIYjlJOEhtcWg1dDZZWnlCY1ozS29Rd042TTJ6RG9zZXJtdEdpS2pIanI2RUxVQXlmTUs1ZkNyY1R2MlY5UmhwQmdTcG04ODZEalJDZ3RPa09SSXdwTFNiMXRqUGVvRnRPdWZNd05pVUNmcWln?oc=5) |
 | Democrats float a new shutdown demand: Reversing Trump's mass firings - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQckNrbFM0VVIxVWtYc1pKNnZ2ZVZIY3hoTzFHZmFwWVhjZmxkRmpIWmFRUXZ0RmxsZWh5SE5GRHV3LW52d2NmQjh4X1BkRHBaOGtsQkhSNXV4STRXNmh1V3dMY2lEdDEtbHJrYThSU0pyVTdJeU03SDYweE1tNGp3UzRTSHhNNTFBSE9uYzJXQ2xCMGoxNnBKRTZQQUFOd2M?oc=5) |
 | DNA from discarded straw leads to indictment of murder suspect after 41 years - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNSF9yd0VSQzlwUVRRTV9pamFJbTRWS3ZEaHk1MkJzMzAyUFVKenlwMFk4QTVpa2lWT0IwQmRHWE1tN3IwNk9XYThweDlYTjJCcXgyYmdrM011bEF4VHpBU0RPNkgxMEd4Nko3OEVzTEFMUldTNW9aZ2dYdmx2Nk9UZA?oc=5) |
 | Mississippi executes death row inmate convicted of raping and killing a college student in 1993 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPUGJWbXZtUnVLM2NGM2Z0anpwQUdyRXRBN1lkLXFPY0t4SVhkSk5xNkN0VWRxVk1NcmZBMzVsTEwxdDN3R2UtbDEtQlVXbW5jR1Rya0NsMS1reXRGRHU5d0IxVUhQa0NiWFduMTgyNlFkeUZVZXh4dzI5VWRaalAyRTVUcUQyekVnNnFZN9IBkgFBVV95cUxQTktKbk9tT3E0YXlMXzNJdlpGRlVWdVB2aGNjeGJMUEt2OWh5dHdTakVIeWY1ZXFudzl1ZnYzdVBSaDF0cWZla1FhMTc2ZnptZGpFLXhPV3FzYThkNzJwMWpNVTZ3R0J6ekI3aEpZU3ZSNE1nNVhKSnlPdUNHYUhyNUtuakh6NkljUElaLV9POHl1Zw?oc=5) |
-| Videos could tank Katie Porter’s bid to become California’s next governor - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOYnRtQlMzTS16YVdGQWRjMjgxQ2xfZmZfTlFEZ242Wl9ab016ejJ4ZmN1VGk3S1lpUkRScEJIOVA5c2V6MGRDc2J1ekdHcFFSempVNFNsYUYzZnY1Ymw3ckZSS0xycFNwUFZRVTN0QlVBQVV2dmc0VzJ3a3F1RjQ5QTVjLXpxQQ?oc=5) |
+| Democratic senator shouldn’t run at age 80, new primary challenger says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPdEJxcHU0RXp2b0xtUWFORW8tV3Vramp1MUZCWW9HQ1VSWnZlMTdZVzRyV01wb2VFWjdGWHJobko4a2dMSDdTYVB1VU91akJpUWNXMkZjaFJ5SmNHenF0UTlwM2NXWUFyMnFfR1VJOUVGNnFwYm9OT3FXWGpNbzY3enMxM2dZamVWV013SUNKdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
