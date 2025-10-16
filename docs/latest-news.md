@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 17:48:45（北京时间）**
+🕒 更新时间：**2025年10月16日 17:56:40（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | BBC viewers worried about political interference, boss says | [阅读全文](https://www.bbc.com/news/articles/c3w9pld9g61o?at_medium=RSS&at_campaign=rss) |
 | 'I can't afford to save both twins': Sudan's war left one mother with an impossible choice | [阅读全文](https://www.bbc.com/news/articles/cre5rng5808o?at_medium=RSS&at_campaign=rss) |
 | Watch: BBC follows family forced to move four times in a year and live in hotel for months | [阅读全文](https://www.bbc.com/news/videos/cvgwx0n3557o?at_medium=RSS&at_campaign=rss) |
-| Australia's rainforests are releasing more carbon than they absorb, warn scientists | [阅读全文](https://www.bbc.com/news/articles/cjd05mdz9pdo?at_medium=RSS&at_campaign=rss) |
+| Cardiff may become UK's first city to impose SUV parking premium | [阅读全文](https://www.bbc.com/news/articles/c04gpp4w0rdo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,7 +31,7 @@
 | Duffy pulls $40M from California over English-only trucker rule - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNNzBaa2pONm5SVmdfT0pOcE04dG8zUXFjWXRHeWFfMV9TRGJ3R2I0RkxBRHM4NjlPSDBybXJHRzhRYXp3WVdNX29NWnVSSkhjcXRVMy1JRzBXd3FsaEw1MGw0UzU3ZDg3ZVNGWkdrVlpQLURSX0Njc2t4ZThBOUYzQWNCQnVXQVdxN2pDZ0J3Y3htdFBPRmFoLTZyYkZBRW85Zl9WQ0xB0gGrAUFVX3lxTFBoeXhna25YNDNUcUxaSXl5UU5HTmxHSmdfS2Q5TWs4NzVmT1c3OGpDcThtcUgzRVBUTnRQUHU5NkFEMnJHNkNsOF9VZDEtazRkcmxwVDhyZmxJRG1IRjNVcjBBb1YzS2paWHhTXzFXWEtQOEtPV2FIYVl2YjZYRWI2Wmg5SzNET3FjQ1lRTEs1a25wNVlMUzBUWGF1d3lmb0Y5eUUtZFlfdnMyVQ?oc=5) |
 | 2 universities decline White House offer for expanded access to federal funding in exchange for demands. Here’s what we know - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFA5V1VRSkl2U3V6dHFSMUpPOUwyWGt0NHBTR3hweWlyVXZtTFZlejl3MWxDTU9ZNkJ3OUpjdXprN0ZaRzRrMU43UGlPYnJpSlVQem5SN3MxVW1KQ1U1aV9JR1RIMXNtS0ZLYUdmS1NPVTEtR29JbDJn?oc=5) |
 | Hundreds airlifted from storm-battered Western Alaska villages in historic mass evacuation - Anchorage Daily News | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxPMWRleHZnUjF2LVBVZVM4Z20tZEhzTHNlV3Jhc3Y4THlnWEFpblp4V19kZDVjRVZBZkpuUUN5QVE4cGI3a2thQWVoRWJTbEsxUjBqZllubkM3dzZTS3NHSGxlaGhWWDlGaG1Uekx6VzZrUGFYM0lVNF84T2F1Q091dWxXeGF0VTdBVGFrX25vR1JaY1BQUWo3R0FKRDlKY1R1MERIbW0wWFBZemVLLVRxVk9oMS1nQjFlUkdnanhjSnZHcGR2THBCUUxRZUgxQQ?oc=5) |
-| Journalists leave Pentagon rather than agree to new reporting rules - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxObXh2aXpkR2FITzNkQ2tSZWZ5UmtxSXA0TEt2UDJONjBuZ19IbG5SZzFldG9TQ2RBS0ExMGJ3V1c3VmNlNlc0UWFERWsxUDd0cUhVM2FheUdOMEtWOTN0amQwbDU4MFRmVkdNS2ZKbG1yM2Y0QXZLX3F1c3diclg1a1c3Q1B6R0JrVHo0MWVxOFRmdWhYM0psWDdRTmx1NTU2ajkweHBtUGPSAa4BQVVfeXFMTkItRE1FTHE3SVEtVGJDMDJWbDNXRXZMMm1oWnpRS0JVanFUd3BnNFZwNXlPTFNmanU0eGwwaVZfbXhjU0taR1BPTUJBMXF1cW9mV3otLU83My1xM2FTSUxNM3h0Snd1V1F1ZTdLMTlBS3M4Sk9zTU9Uc2ktYjdjUDNNU1lNWmJzSFN2SXZQajRBR0FHbXlVUFB5bUpmU1d4UUlqQkQ5UzZTWjJFWXB3?oc=5) |
+| Journalists turn in access badges, exit Pentagon rather than agree to new reporting rules - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPdHh1dDR4ejFwX1JSMDVLRGZpeWdOM0NLOVgxdUcwdE5nVzhSb1JhaUxMSzYzQ1BnNC1LYlgtSFItNy16LWl0THl4emx0Z1pyTTdxUnFTSWljNTNPM1QxSVRBWmw5Ukl3alR3QTZzZXh6MlBPY1BOTmVCSTN0QzVkOGdvb1RJN2pVMzlHSlhiQUFrV01wdW5Ub1k0MkRrOVoxV05TM1FiWUJuaUNC?oc=5) |
 | CDC scientist let go during shutdown says "it's truly like an episode of 'Squid Games'" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOOWxCVFZTcUJyaFVDN3Z6ckNOblNzT2R6MzJSM2NGb1IzZEZZOUNGUnFrVDhaWC1aZm5JNmxQNkwwd2RZbEltN1NKd0FDRnVGVnJCSDVrREMxZ2pjWTZGaU1Mcm1pZDAwLXV0dC1MUldSTVY2ZHJXU3UtSGc5YWdrdC0zUlhJNlptdlFJY3lZcUI1MTh3R1VPR3oyYnpFR0kwYk9LVmVCNXc0WFZNcXdpQzFB0gG3AUFVX3lxTE9jOVpkSkthMmF0SFVEMThCRHlkcXlBM3JIdzREN2ZiM3NBTEdaV25BdVRIVkFHRmlUWVNSS19fOU5JOEtZdnFJcWJ4Z1FoUVZkTHBQQmNoZFhlVXViaHpVdkVwazJGM09SRWVTOE5kajN1X1czZjk4dmxSZjEwWEVaYUhxVENDejg2dWN5MmtoQjZTZnY1R1gxQkpWM2F5TnBCX2VQZnc4RW42bHJoVGpsakw1cUpkNA?oc=5) |
 
 ---
