@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 13:33:17（北京时间）**
+🕒 更新时间：**2025年10月16日 13:41:00（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump Administration Live Updates: Judge Temporarily Blocks Layoffs During Federal Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE9LT3Q1M2hPTl9uNnEwNVg3cGc0SmcwX2lfNlNxNHBTYTZMZ2gtWWtkX1pDNnFxZ09jcmhJM2tjaVRONVVPcmphdzdmb25kVzVxSmQ2TldCZjJlTzlzZ3dUZUZMVG4ySTRqZm5zd0VvNA?oc=5) |
-| Hamas returns two more bodies but says it cannot retrieve remaining dead hostages - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBhaVpvUTVnR3dZZmFheXphUmxpX0NoYjVXZGtGSDFScnRfMHd1eGpuRzZ5N09rSnBMUmhVamQ2MjBnczg0ZXhrTHc3MW5sNWVZZjZDQ2pVVWZyUdIBX0FVX3lxTFB0NXNYN2puYUhlMlR5ZG12UlVRM1F3OVR4TUVPTjU3MG5xc3ExT1FzQmRrcFhBeHVXczdZOTNJeEtSbUktZzVvdGxQNTdxRkJxYUttcWtodzlOQi13aHhV?oc=5) |
 | Trump says he has authorized covert CIA action in Venezuela - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOVFYzdDlXSXYtMEEwX3cxWklEMGxXU0diNVFDRHBxLTZ0MXdNUWtvaXdMc2xXc0VyY0pLQ0dGV2xGV3FwU1dqc0JvYXRpOTlOLWxWZ29tc1d1UDNrWTByR0JzSFNiRW45eTBkbS1tUW5wT3BTdjJ2aUJpU1pFRFp6NXB5ckRfMjBuT0RpU1pqY1oyTjVJS0FBU2hFUm5QN2pY?oc=5) |
+| Hamas returns two more bodies but says it cannot retrieve remaining dead hostages - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBhaVpvUTVnR3dZZmFheXphUmxpX0NoYjVXZGtGSDFScnRfMHd1eGpuRzZ5N09rSnBMUmhVamQ2MjBnczg0ZXhrTHc3MW5sNWVZZjZDQ2pVVWZyUdIBX0FVX3lxTFB0NXNYN2puYUhlMlR5ZG12UlVRM1F3OVR4TUVPTjU3MG5xc3ExT1FzQmRrcFhBeHVXczdZOTNJeEtSbUktZzVvdGxQNTdxRkJxYUttcWtodzlOQi13aHhV?oc=5) |
 | Democratic senators want investigation into Noem's TSA video that blamed Democrats for the shutdown - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPa25CR082cUU2bXQ4dGw2LXNyZEFpZjZBMnpWQ2sybmxId1hRNUFsTkJCWGxHQkx5SmlQVHBJTlp2VkZJTVN5WXNMNGQwU0RpWm1EZXdXNlh1cmgtVFkxSkh3c0o3czI4MDBGMExtRHhEbDZhcmVLQjBkVlFDMmtseG1ZekpPMy1NZ2YweFRJc2w2Q01vYmFGWFo5Y2NzNzRTQ2VwaDFsMHFsckEwRG53UzFKLUdqSGM10gG-AUFVX3lxTE04dEpzcFBBRWkyOFRnamc3SThlODJrbUU3VUxPMWlScWstclgtMUcxZDBDd091bVIyU19XV1JtclRaT3Ezdy1aWHdyTzJwR1A3STRUUVJzWWJpOGgtN0NWNEZzcHpnUS0tOERGdVB0VHNqc0FKUkNJLThBN00xRV9rTFVxQXI3Nm9OemZ6dTRHTjNfZG0tT1ZfamduT1NZVWxOYXVHTEV4emRUaEFPSGFWTmctTkFRY0FTS0xmbEE?oc=5) |
 | Supreme Court signals willingness to pare back Voting Rights Act - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFA0QVU0U2kyd0g3Yk1qZkRmYVhmVFY3NTdQSjRuTHFRVkd6Tmwwb1hLZHBhRFBFRklfdTdaRGlyX0lsYWROb0p2c0J0MXYxZ25CZDAzRzk0QnRndkx5M2RpbmdUX2JVSExxNTZPX21FTXlCVlNSRGptbnZpQjNjc00?oc=5) |
 | JD Vance brushes off racist texts by adults in Republican group chat as ‘what kids do’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQaHB6T0JzWXlTZ3o4OWRVa0ZtU1AyX2VUTFZCcjdOa3M4ZHFESkZrSVlIdnl5MEh1UElPN1ZqUGFZSEwwSzYtM3ZwMlYtMlN3TkRiaGhNdjRUSGl4VXk4WVp6U3V6c2l5ZXRQRUh2SjNhWHNwRnJ0NVRnTVE0aUVMVklpQmFNY3BwUS1Pakg2ajVfODJmdVFCa24yZjdRQ3BaWlE?oc=5) |
