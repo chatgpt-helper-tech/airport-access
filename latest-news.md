@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月16日 10:32:37（北京时间）**
+🕒 更新时间：**2025年10月16日 10:40:33（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Brown University Rejects White House Deal for Special Treatment - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNanI1TzFUSlZ6Q1p6bFZXYnZPZWVOODJickltTXFhVjNKSFY3N0EtVGZNY0RKNkpubGJLeXZWeThFeVdHeVFPb25Ya2swVEYxRVJZTHdoZnN0Rk5BZF9wcWt0TzlVT241SDNRbU9TcmFBOUJJLWVxS3MwVGlnWkd4TkN6WElUZTRx?oc=5) |
 | Democrats float a new shutdown demand: Reversing Trump's mass firings - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQckNrbFM0VVIxVWtYc1pKNnZ2ZVZIY3hoTzFHZmFwWVhjZmxkRmpIWmFRUXZ0RmxsZWh5SE5GRHV3LW52d2NmQjh4X1BkRHBaOGtsQkhSNXV4STRXNmh1V3dMY2lEdDEtbHJrYThSU0pyVTdJeU03SDYweE1tNGp3UzRTSHhNNTFBSE9uYzJXQ2xCMGoxNnBKRTZQQUFOd2M?oc=5) |
 | DNA from discarded straw leads to indictment of murder suspect after 41 years - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNSF9yd0VSQzlwUVRRTV9pamFJbTRWS3ZEaHk1MkJzMzAyUFVKenlwMFk4QTVpa2lWT0IwQmRHWE1tN3IwNk9XYThweDlYTjJCcXgyYmdrM011bEF4VHpBU0RPNkgxMEd4Nko3OEVzTEFMUldTNW9aZ2dYdmx2Nk9UZA?oc=5) |
-| Charles Crawford: Mississippi executes a man convicted of raping and killing a college student - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBTalh0dkRUcmVvRS03S3VaV1dMdngtQ2l6VFMycEhHR1BHVjVzbFo5a3ZRX0xkQUphMFA1Vi1JRXZlQVEzcXVxblpCeFZ1UE0xdFBqbmphd3ZScGRJVF94SHA3ZlBybnhmTXVEUHZ0b2tMV0lDNTNnTTRMNG0?oc=5) |
+| Mississippi executes death row inmate convicted of raping and killing a college student in 1993 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPUGJWbXZtUnVLM2NGM2Z0anpwQUdyRXRBN1lkLXFPY0t4SVhkSk5xNkN0VWRxVk1NcmZBMzVsTEwxdDN3R2UtbDEtQlVXbW5jR1Rya0NsMS1reXRGRHU5d0IxVUhQa0NiWFduMTgyNlFkeUZVZXh4dzI5VWRaalAyRTVUcUQyekVnNnFZN9IBkgFBVV95cUxQTktKbk9tT3E0YXlMXzNJdlpGRlVWdVB2aGNjeGJMUEt2OWh5dHdTakVIeWY1ZXFudzl1ZnYzdVBSaDF0cWZla1FhMTc2ZnptZGpFLXhPV3FzYThkNzJwMWpNVTZ3R0J6ekI3aEpZU3ZSNE1nNVhKSnlPdUNHYUhyNUtuakh6NkljUElaLV9POHl1Zw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
