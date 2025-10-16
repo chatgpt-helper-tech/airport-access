@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月17日 01:09:44（北京时间）**
+🕒 更新时间：**2025年10月17日 01:17:07（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | Trump says he has authorized covert CIA action in Venezuela - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOVFYzdDlXSXYtMEEwX3cxWklEMGxXU0diNVFDRHBxLTZ0MXdNUWtvaXdMc2xXc0VyY0pLQ0dGV2xGV3FwU1dqc0JvYXRpOTlOLWxWZ29tc1d1UDNrWTByR0JzSFNiRW45eTBkbS1tUW5wT3BTdjJ2aUJpU1pFRFp6NXB5ckRfMjBuT0RpU1pqY1oyTjVJS0FBU2hFUm5QN2pY?oc=5) |
 | Federal judge demands answers from Trump admin on following order to avoid violent encounters with Chicago protesters - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5VVkpDSEt1SWc0SENLMHVnNENZQ29CZTAxdnNwQ3c5QVFNRmtrTjFHS0tUMS1uZ3RWcTUwZ2QtY2sxWUE1emxCWlB0NVJYTk1zNHppU09PWFEtOC1FSTRULVNhYndCZU1vMU9Tak9nV3I5WkNQZGpxQ1Eza1B0Zw?oc=5) |
 | Israel warns U.S. Gaza deal could stall if Hamas won't return hostage bodies - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQb3dDT1JDRG5rbGxiaERtdktITWwtakpOY2o5Y2FkT2VvRkJfUGh6d3o5d3c5QUowYmNGdU5zTVJFZXhnejQtU21ncS15amZzUEhJMGJaUnR5VkVSUGxCZ0xRR09rLUNBX1JaS1UxaW1vZWg2Mk9QX3Nadm9rNF9IQ1FNSQ?oc=5) |
-| 'I am speaking to President Putin now,' Trump says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE9pQTVBcExwU3QyUDQzb1JfZG5xMDQyUjdCTmlMejZYenR3c1FFNkhRR0FMZVpQdlprdjBZdlY2TG5vbzRXbkxBRnV1MmxudTBlQ2NFNg?oc=5) |
 | China’s Rare Earth Restrictions Aim to Beat U.S. at Its Own Game - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPMHNJWlllTVViSzRaeDVGMEJqQWtoQTdvWHJDaW1uSEQycDRMZ3BMc1AweWgzVHZfajR5NmtoTmxFU3psQmlnNlFUTVd5SW5qWXMzSFFuc0FqajI2TTNzRGtKWnNUdTRLTkh1Nlg5ZEQwTVUyMmt0dmtyVERid2FNalk0MmlQMUVNOF9TbTYteXQ?oc=5) |
+| White House Rages at CNN Town Hall With AOC in Live-Posting Spree - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNS1pudU5zLVhwVXA3QWsyYTE5c3M1RjFROXp4NUVLb05abFFlcHdTTWtmYUg4cDFuR1BHdS1pYmp3U1V4TXFEdG1WMVF1cjdCSHhSeUFxcEpyQU9TaW42cE5LSHMxZnR1Zmd3ZXh6OUs0X0drczlySGR2ckQ2Q2JhelhodkVpNWp0dU1rMWNGS01ObVlONmJlaVlFODA?oc=5) |
 | First Thing: JD Vance brushes off racist texts in Republican group chat as ‘what kids do’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxPOG1ZbWxVejVJMklJVVktaFB3RnZGTk9SRkotWkJESTV6cWYwaEkyeXJwOUItOVJreFpBYXlwbVZUd0FFZ2J1RTlsX2ttdHZRczdhQkFUSnIyeFFSVjZNenFpU21nN3dQQzNNSUhKazd4SnVhRWY3NURGLTVUclJwc2paMVFDTkFHMm4xNVBURXQ3d3VFWHZ1NU1BRDJVQ2UxQm5XaE5TUG9TUF92dmNLZGR4ckJiM3Y1UGYyZ0VVeWlFaW52ZTF1MzY1ODhsV2s?oc=5) |
-| Judge temporarily blocks Trump administration from firing workers amid government shutdown - KOMO | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxPSDAtdWdsdXhOMWxXbmwxTzMyLTY2OXhDeVVsdHNhR2tTWXktWXpHY3YzWDVWcFRqVm5CSXRaM3JFNGpNRGVaMTNZZGtfU3YzdjJjMXhOWUs0N1ZxcTh3SklTMzBsTFQtUDZZS001ZWd6MHQ2TENycnhTQWlwcHh5YS1laHlqZ0pKOGZDRWxVcEIyZXRxWVZvbjBpOUx1cTg3NXlaZmFPVXZkRi04Skw2Sm9kR3F5Q3A1b3FjSkJhYnZrVjI0WmZ4aFdJLUFOOXo2M3c?oc=5) |
 | Why the Supreme Court may erode a key Voting Rights Act tenet - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNRWdFV3F5YjNKbHZQMmlFSmZyWjc3SGtVcTFER3FLcHZIYTU5UVhjYTZqM3JDNlpDMzV3WnBCb2hRdlBYaVBqcmhBWDduMU9yRFFMcXhxd0ZoVnViV2RCck5nVC0ta2VKYndPTnR3d1Jtd2xCTTVNRjNrZUJ0eGJOSlh0WnYyMFU?oc=5) |
-| Thune says he offered Democrats a vote on Obamacare subsidies to end government shutdown - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPSjZrd2NUT19uaHhhZzVtSm5kb1VRWmo4ZXVxLWJIU3JrNW14c29hNWRiaGRuLXhSSDJKazVrcnN1WlZxWHFYNDZkOEgwLXo0SU9YZHVUTC05cm1GcDBaTi12b3ZNVFlhSGU3NFczNTRTeTBiYlcyZnI4SXVCRHhWUGFvckNPXzVjSlc5Vm9mdUZGdUd6VXNGSFRTZE56dXdjZmtoQXl1WE1vSC1SRFRqb0cwWEzSAboBQVVfeXFMUHJMRXA4VE8tSVFDTXpyUmZQeEhaQzJkWUFZSEE1YS1Vd0tkM2hIYXI1QTMwZVRLRjMwZ1RnX0dfSFY2SUNtWE03SGtpLW9aU1RVY21kZDUzeTJBeHZLYXpaX3FwR19QLU93OHFCOGZVNkpHajBDLXBnX3o5ZDR6cUR2MTVXU0JEbFZBVTFHUVp3ZTJCR1NUVEtsYU4yal8yN24yWmhTQ3prUENDTkl0QkJKeXZIUFh0MXR3?oc=5) |
+| Trump Live Updates: Government Shutdown, Federal Layoffs and More News - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTFBhY2d0UnRReDktMjJtRW9wTGhIMEliTFpMNnJXM3Y5SWVveUFuU1RWVDVyYWlBcml2ZjRXLXVDWlVFbmJkUnN2RzJmUHd0SFVXYVFkaS03SXV0a2pVbnR0NzVJdw?oc=5) |
+| Newsom warns of missiles over I-5, but freeway will remain open during live-fire Camp Pendleton event - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPUUxrUXM4TS1VNW5jcVFxT2dyNWNFRkxMSGJIdmZIUlU5NVVzaU1scnptT09oUTF5TkxqeWUxZ1FZZ1JOT1FtZFRXWXlCQzJKZElmUzRfTzFHTF9mT0dXb3RnSkJDejFBZWE2Sy1VUkx1Z2dOMEdEZm1mTkZIVFZXNmgtd0dJNG1XRXRKSHJ3UG5IbXZNcmRMand2b3BRcENhNDdSdnkwdzdQaEpT?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
