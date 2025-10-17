@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月17日 15:48:24（北京时间）**
+🕒 更新时间：**2025年10月17日 15:58:01（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | John Bolton Indicted Over Handling of Classified Information - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPeU04U3VBT2JOelN4QmNpanFxejlhRTMzbTU0SnZFYWdnZFJqWVhhTVRlVkdsZ2p5UzAzeFBSempfX3JvckZZZUs1UENNQ3Y1ZzlTYkxJRjZobkdzTnktR3FSb0RYT2xEaHdBd2NVUWJqQXZwWEZ6amhPY1VSajBOWjdwaEo4Vjg?oc=5) |
-| Venezuelan fishermen in fear after US strikes on boats in the Caribbean - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5PQjVQelJwVGhTY2dGSzlPYzY0Qmg0Z3M4MXFNVWdSVjdvbHNhSkxQY2MzTWRHc0VnaWI1OXpKQ3Iwem13Qy1wUldlMUVVU1ZyNGw3TlJsQ1FkQdIBX0FVX3lxTE5YOGJodnZHclFsLWVuM3VES3FRQllpUFBlemFzTU5WM1FGckNuNmJQSWlyWldvTXIyUmxZeS1PbEZoWWZidjBrTFU4ZXEtQlVqbGY1UjV6bjFpclNFS2hJ?oc=5) |
 | Mamdani, Cuomo and Sliwa spar in New York mayoral debate - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPZEtIVWNWR0tzMlZrS1JILTJOUTBGVjlKdmtkTVpCR3Zlbk1KUm5rTHFrZGhkYWwyZGlEblVtUFIwNjZwUnJ3aGN6UWQ4dFhRWE1uczg3UW1TY01VVmV2bXBwVTRxU2pJZVM2LU41aUUyci1ZS0ZNNGliWUVhSVdhakh0Yk90UlMzZ1JMVUU3cmFYc1pyQnc?oc=5) |
+| Venezuelan fishermen in fear after US strikes on boats in the Caribbean - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5PQjVQelJwVGhTY2dGSzlPYzY0Qmg0Z3M4MXFNVWdSVjdvbHNhSkxQY2MzTWRHc0VnaWI1OXpKQ3Iwem13Qy1wUldlMUVVU1ZyNGw3TlJsQ1FkQdIBX0FVX3lxTE5YOGJodnZHclFsLWVuM3VES3FRQllpUFBlemFzTU5WM1FGckNuNmJQSWlyWldvTXIyUmxZeS1PbEZoWWZidjBrTFU4ZXEtQlVqbGY1UjV6bjFpclNFS2hJ?oc=5) |
 | Zelensky hopes for Trump decision on Tomahawks tomorrow, his top aide tells Axios - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQak5teXhub2RHMEh3VHhEbFNVSTBGQzNUR0ljNkxid0dRb3NYOE1IbVJmc2NNRUhiRVYyR05QTkRsYkgxZXowWGloZFdVeVI0anhWbW5HUWJBYVl1Zk95dTZCZHNUZHgwcFpxT2JCMUxKS1llem5YOGNnU1R0dnJsTVFkZWJ6V0VHdE1n?oc=5) |
 | USC rejects Trump education compact aimed at shifting the university to the right - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOMFQ3cWxpNEducjF4R2hoemdnU0dmX01HSUVXUGdDVk1wRHlUSGdPeHkxRC1vdkJZZExWZjA1VkYxQ1h5UkwyU2xaUEVwbERsbWtEdm5oLWN2WUo4TDdvTkJLbU5oMkZKYUNnb1JBVGlTRWQ4eXQ4SFR3MnlEaWlSYTVRZGk4NWRUSnBoaFdodzU?oc=5) |
 | ‘No Kings’ Protest Organizers Aren’t Afraid of Trump’s Court Jesters - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQeUtnNzV3YnpLTWlnbC12SExWbHZsdHNWR01qd2dkRXh4VEswNVk5V243emY3MjVsWDkzNHNNUExZcXhCUk42OV9VWTAySUZyRnFuOEtMdjdyMC00Y3Y3Q0Y5QkhBUzRiUEhQbC1Md3ZOMDAxS1dqMG9WdTBuMWRlQWMxRVh5WUxGeVhwTk9mV3FWaWZ2NUw0Q1hzRUhLa2RfZE1jWkptN3Q?oc=5) |
