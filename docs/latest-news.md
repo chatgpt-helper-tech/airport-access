@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月17日 16:17:33（北京时间）**
+🕒 更新时间：**2025年10月17日 16:25:39（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Five takeaways from NYC mayoral debate as Mamdani and Cuomo clash | [阅读全文](https://www.bbc.com/news/articles/cn8xlx53jn6o?at_medium=RSS&at_campaign=rss) |
 | US-backed aid group suspends Gaza operations after ceasefire | [阅读全文](https://www.bbc.com/news/articles/cgjd783ywn3o?at_medium=RSS&at_campaign=rss) |
 | Sam Fender wins 2025 Mercury Prize for album of the year | [阅读全文](https://www.bbc.com/news/articles/cp3dnjd9g4go?at_medium=RSS&at_campaign=rss) |
-| Military veterans now able to download digital ID card | [阅读全文](https://www.bbc.com/news/articles/cj3zmjrzegjo?at_medium=RSS&at_campaign=rss) |
+| Author of I Want To Die But I Want To Eat Tteokbokki dies at 35 | [阅读全文](https://www.bbc.com/news/articles/cpq1dy8w3jwo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
