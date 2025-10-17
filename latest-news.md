@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月17日 19:56:53（北京时间）**
+🕒 更新时间：**2025年10月17日 20:00:46（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| John Bolton Indicted Over Handling of Classified Information - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPeU04U3VBT2JOelN4QmNpanFxejlhRTMzbTU0SnZFYWdnZFJqWVhhTVRlVkdsZ2p5UzAzeFBSempfX3JvckZZZUs1UENNQ3Y1ZzlTYkxJRjZobkdzTnktR3FSb0RYT2xEaHdBd2NVUWJqQXZwWEZ6amhPY1VSajBOWjdwaEo4Vjg?oc=5) |
 | Venezuelan fishermen in fear after US strikes on boats in the Caribbean - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5PQjVQelJwVGhTY2dGSzlPYzY0Qmg0Z3M4MXFNVWdSVjdvbHNhSkxQY2MzTWRHc0VnaWI1OXpKQ3Iwem13Qy1wUldlMUVVU1ZyNGw3TlJsQ1FkQdIBX0FVX3lxTE5YOGJodnZHclFsLWVuM3VES3FRQllpUFBlemFzTU5WM1FGckNuNmJQSWlyWldvTXIyUmxZeS1PbEZoWWZidjBrTFU4ZXEtQlVqbGY1UjV6bjFpclNFS2hJ?oc=5) |
 | 'No Kings' organizers project a massive turnout for this weekend's protests - NPR | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9xbWZQbmFOa3lKSHZuOVFlM3U3cHJZcm41VFR0djJEMGRvU3ExdmtScHctQjlrc3kxVWduZ2JWZmowT1A4MGpoVXZORHRJYVYyckVJanZ3V2xKUWRhdU5IT3M2OWpCQVh5YmlDZDV6MW5zSElGeGJv?oc=5) |
-| Read the full indictment of John Bolton, ex-Trump national security adviser turned critic - PBS | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNcVlLZWdla1RtUEE4T3k4aFQ1WGlTR25KU0FuNEMzSHdqLVcweTNNWW5zWDJxdVBqVXpSc0JQaHdZWlVpd0xaLUdvMFFwX0FaaWV6cHlWamRCbUdMVFVQWFdnM2FhQkdFWlpRbHVjZEhkUWgzcUZnSWQ3RjB4ekRncFJjeHQyY2Z5LUZqRTVlaDVFYVNqXzBfV3R2clFRcnRNczV2RE5LblRUbUszRDZmeGFVY05IbU40anlJbVE1SS1JUjM50gHKAUFVX3lxTFBLZ1V5VzcyQXU0STBac01qaHFOM0RDUmxtZmIwdVdKZGF1c3MxZWVaZGRWM0hGUEd0LWdJTmxiWlNPU3dEaWttck5va3d1M1Y4WFRpb0VER3FwalBsUF85bHhpOXNBUzZMNlJsdEhBeGIxQVpVakx1dGc3XzhsNTNhNkxNWEc2dkJKbnk2M2NiVVhKTk0zbm9NaDZneVRMN0hJSng5Ym5CQlZXYjhuMUtTZEZYdld1TXc4b0VteHN3NFY1WXRhRUQ2M0E?oc=5) |
 | Zelensky to make case for missiles at White House, after Trump and Putin agree meeting - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9Fal8wR2g3bE8xR1BJaGExUlp0SE9TN0ZhdVRuNkdBak53akJTM1JFX1kybTVWaHJRY0lDa1pycm9pTm04cHJ4VTMxOWtrUVQ4aVg3VW9UekJnUdIBX0FVX3lxTE4wM0RyMy1vZk9NY3dCMGFtQ0t2eWFOQ1FLTUE3M3BPLVd5bDI1dWN4Y3kzSk9TejFkTEpBUU1sQjVfMGZRSFVoM05mei0tV0NtMmlBVV9Pd0VicDlpbHYw?oc=5) |
 | Trump says he and Putin will meet in Budapest to discuss end to Russia-Ukraine war - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxObUtiN3hyYTV1ZVlOdmJDR3NUTUdsRmFzbHhKRzZfa1E4TEdoa3ZFRHljM3dyeUFRakJvcm54TG4tZzRLYXd5QUpzREJ2VHEyTF9Zbl8ybFBzZ0RyX1hoTFFxNGd2MGdUQlpsZ05xZk9sTTB4V2R6LVZzOEIweTRqVkk3ME1WMFNsTGFGOFBzMWZYX0nSAZgBQVVfeXFMTUR4UXJmT3ZIZEtMMWpfRzhCc0p5NWlicko2YUdGV05WM1ItWXY4SzJkR0lGbF9hZlJWcnhZQnRhSVdTSkRuS18xZ0YwamZXZnFlczlzbkVjdURzSW1zQUZzWUZ3cjNJZUZfVGZyblZxeHQwY2JYRkR3eU1RTExzODJnRFJIeXRocnlEcktxWU05Q184cnF0N0E?oc=5) |
 | Five takeaways from the New York City mayoral debate - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxORE0tNm1aUXNnamtTNk5feV94NjZHTzNLMHBnTjN1Vk9UTjBfeUpieFYtV2s4dlBWNDNZZ1NJbzVZWFNsVzk5ekdFSTd3clNzbHV5VUd3Tlg2bXlXZ1EzaVJROHM2R3k5Q2p3aE80amZPcFdERU1pRF8yb0dDbklkWGt6YWlBUGsxb1Z4TnI4bGlfNkpVSDZQSmhjR1hpS1JwdW9nQg?oc=5) |
