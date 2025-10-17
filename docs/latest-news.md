@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月17日 11:25:07（北京时间）**
+🕒 更新时间：**2025年10月17日 11:33:31（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Former Trump Aide John Bolton Is Said to Be Indicted Over Handling of Classified Information: Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTFBkTDBrdl85TFFnd1ZZTXl5WE5lZEx3ZmFJTnBfeGhKa2ZUeFhRVVBWem1ET1piYnhsZ29sRE4wbko1Y19ER3hqU0FIRHlzUW8zSXRsSFIyc2F4RkxHV2p6TGJubV9DMm5pajBJeGdfVQ?oc=5) |
+| John Bolton Indicted Over Handling of Classified Information - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPeU04U3VBT2JOelN4QmNpanFxejlhRTMzbTU0SnZFYWdnZFJqWVhhTVRlVkdsZ2p5UzAzeFBSempfX3JvckZZZUs1UENNQ3Y1ZzlTYkxJRjZobkdzTnktR3FSb0RYT2xEaHdBd2NVUWJqQXZwWEZ6amhPY1VSajBOWjdwaEo4Vjg?oc=5) |
 | Mamdani debates Cuomo in NYC mayoral race - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFBKRGd6RTdOaGhjQkhLcTh1SDV3Q1JZdFh2MG0yb1Q2cTZtb3U5Tms5blhrTlNGbUxZaURiTzNfbDZCUnN4cms2bHozQUtBbjl5TUc5UQ?oc=5) |
 | Exclusive: In a first, US strike in Caribbean leaves survivors, US official says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPQ2M3dVJFVlNOQ0h0S2NXU3Ric3dxeWhXTURzUkpIQ3pxR1NLcUh5YjdnLVpMdzBzOFRWTzdRdHotakRrV1JBci1QdXBjb1RZeGZCTjgyeVJLTmRVaEtUMEg2cnhWaFRnNlMtMURTd0FnYWhveWV5Y3FRdlNxeTJNUl9UZXAxc0lEWGJxVUVpYjNfb2JTdkhIUUhGdGhOY3Y3a0hBcWlOb2tqODdEMXBTR1p6ZzdkRjk5?oc=5) |
 | Trump says he and Putin will meet in Budapest to discuss end to Russia-Ukraine war - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxObUtiN3hyYTV1ZVlOdmJDR3NUTUdsRmFzbHhKRzZfa1E4TEdoa3ZFRHljM3dyeUFRakJvcm54TG4tZzRLYXd5QUpzREJ2VHEyTF9Zbl8ybFBzZ0RyX1hoTFFxNGd2MGdUQlpsZ05xZk9sTTB4V2R6LVZzOEIweTRqVkk3ME1WMFNsTGFGOFBzMWZYX0nSAZgBQVVfeXFMTUR4UXJmT3ZIZEtMMWpfRzhCc0p5NWlicko2YUdGV05WM1ItWXY4SzJkR0lGbF9hZlJWcnhZQnRhSVdTSkRuS18xZ0YwamZXZnFlczlzbkVjdURzSW1zQUZzWUZ3cjNJZUZfVGZyblZxeHQwY2JYRkR3eU1RTExzODJnRFJIeXRocnlEcktxWU05Q184cnF0N0E?oc=5) |
