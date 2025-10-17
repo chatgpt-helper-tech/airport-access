@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月17日 21:17:01（北京时间）**
+🕒 更新时间：**2025年10月17日 21:24:24（北京时间）**
 
 ---
 
@@ -27,7 +27,7 @@
 | 'No Kings' organizers project a massive turnout for this weekend's protests - NPR | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9xbWZQbmFOa3lKSHZuOVFlM3U3cHJZcm41VFR0djJEMGRvU3ExdmtScHctQjlrc3kxVWduZ2JWZmowT1A4MGpoVXZORHRJYVYyckVJanZ3V2xKUWRhdU5IT3M2OWpCQVh5YmlDZDV6MW5zSElGeGJv?oc=5) |
 | Venezuelan fishermen in fear after US strikes on boats in the Caribbean - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5PQjVQelJwVGhTY2dGSzlPYzY0Qmg0Z3M4MXFNVWdSVjdvbHNhSkxQY2MzTWRHc0VnaWI1OXpKQ3Iwem13Qy1wUldlMUVVU1ZyNGw3TlJsQ1FkQdIBX0FVX3lxTE5YOGJodnZHclFsLWVuM3VES3FRQllpUFBlemFzTU5WM1FGckNuNmJQSWlyWldvTXIyUmxZeS1PbEZoWWZidjBrTFU4ZXEtQlVqbGY1UjV6bjFpclNFS2hJ?oc=5) |
 | Zelenskiy to seek weapons from Trump in the shadow of a new Putin summit - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNVFBncS1CbTdmaGlZZWprcGZLby1lQW95M3JsX0Q0OTBfeEotY25rOFNuT3YyTUp4V19VUmJQc0J0cEY0STVuMUNIRXJHclJSWUxRT0JtdHJPVmloZGx2WFFWc1c0UDdOX0NnWXg5ZjFSbE0wQ3QxXzlVUk5ZOTRrUm82N3NaMmJWN0k3OTI5WmktWEllQ0xqOU9IRXkyWEdHZFNn?oc=5) |
-| Sparks fly at first NYC mayoral debate with Trump weighing heavily in the air - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxObzQ3VVIwOVQ0LThwXzlJbnROREMySUUzMC12Y1dNZlBOSnhTbFdxWHFPdHllQVNDRzVMemN3T2VmZTdhNlU3OERtS0RWSGF2OE9KUDEwV3RNMWFYdFV3WkZ2N1pvb1REWTdGZGZyendobWpiM2poTEl5WF9YWTFtdTF0RDJDaENQX0hveUdZS0hLWXI1NHpjYVY4WDkxbHg4R1dBTjFuNU9sYTZsUzhpV21n0gG3AUFVX3lxTFBiT09melZNcnNLd29JRy1QRjRwSzZSSnNpRThJb09wb0REWXRHYnplT1pqQ1RKOTNYTGc1SlRRZUxMa25JWTJyYVdFSlhaOUttMDhCd1ZaUUpONGV4Smt0SktlSG9MSlI0ZDhxRGI1ZlA1ZUZfbkFieWs3cXB4RDRseXVRVW9EcmdxZ1dhSDZ2Q1g2M0ZaSjNiU19qdzBoLXJVNC1naDJNa253VUhCam5CckxRRlFnZw?oc=5) |
+| NYC Mayoral Debate Live Updates: Mamdani, Cuomo and Sliwa Face Off Tonight - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNN3hVYXNjeUZ1b2tfd3JtdGxJQk9yRHVmTEdEMS10ZHlRbjVUSnRlekdtMTBsb2ZUZTRSLVNwRC0tanBpVXphWVhpYW9YRWJINlE4U2pXcHc4MDZKMVh0RTFkWFZsdkg0dGpWT1hXamdhcUFicDhPZ3BKUXpLcHBzR0RORW5tRmpGMXRUbnpB?oc=5) |
 | Senators will force a vote to prevent war on Venezuela without approval from Congress - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPU05nalBzMGk2dUVhVTVZUjlibmNTRzJNOWsxeE5BOFBuQjhkN3FtQzRta1NrckxfWjZqZUk5Rnhxa2hLMWpwNHYzbDNyenpuc3NjNDZaRWpwajFRNEJ3TDlxSWpnakF5SE1xMGo4Q21xTU5hTGltVUNZTlJ1S21sbnJaQk1iS0k?oc=5) |
 | Anchorage preparing to house more than 1,000 Western Alaska storm evacuees across 4 shelters - Anchorage Daily News | [阅读全文](https://news.google.com/rss/articles/CBMi3gFBVV95cUxPRmsyei1tWDlTdUdvYTlXdUt4TmpybXdiZGM4bEJ6ZC1ReFJTT0N0d1psa3dTRjkzMFpqWTdWNWZWMFQtY3pNMzJGZTVGUU9rdU81aDZKcUlpQ0pPalRPVmdSYlJweGlLMkE2MFBTbUhPMXQ3RE5iRFVzOENjdWc3c2hQNXB6VzlZOTY0dS1nVFl6UDlEQjJyU3RrVmpIZnRwdWJybnhUdXprekJrMWREb3BNbmRvY3k2Y3pxU1IxV0VJVndaZkZRMUZYbUNpbHBOV01XQUhBQ2preHhPLWc?oc=5) |
 | San Francisco Democrats turn on Benioff after Trump troop threat - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPRl9OOTdMQjdodEhKd2E3Q1Z4R3hRRE90MnNpRDJrVzBJNjk1ZWNnVHZKVVJiZmRITkxPY0NvZnpxOUg4R2NMZXFqTFN2RGdkMUpxNnpKQXE4VUprSnBoMTBZeEMtWWtOcmZxRkN6XzhhRTVpTHVYcTVHLWJsQS1GUEpqTC1WSm43cjU2Tk95cFVab3R3MUtZalVpdzNyUEtoMU90emJPUEhyN0c0d2xGVkJ1OHc?oc=5) |
