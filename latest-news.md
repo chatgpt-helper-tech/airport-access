@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 06:32:51（北京时间）**
+🕒 更新时间：**2025年10月18日 06:40:37（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Trump asks Supreme Court to allow deployment of National Guard in Illinois - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOczZmd3lsNWR2TFdRcXcwVExxZ3U0aWNTaXlrZ011bU5OcEVSVGR0QURkaUxLdklRTEprV185WXBDai1uV1FaUFFQdU5wUmxZLVlxZHdRc0ZSazVYOU13LWhTRENXVjd3TXlmazJKV2xQamxraFZfUlJjek1HZXd3WjRIZk9QeG040gGOAUFVX3lxTFA3Q2tRYjllTXlRRy0tUEdpS0c5TVlOdVFod1ZkejA5eGU3dzQzSjFCTklsMFJoRWFvd3BlVXBuZlFCdFJRN0N0LTZhMDdvNUpVREh1REpwS3piWEg2a1ItTVRiVUpBdjBrZi14Z3dFR09oNGpUdHRjWlk5Umdlb20tOGlneGZiMThNU3RKbHc?oc=5) |
 | GOP tries to brand anti-Trump ‘No Kings’ protests as un-American - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQMTNVUkotbEctUGd1dm84NXFYLS0zMVhPWUhsSnhMTGxxZE1Bc3N4UElETTduUFFEdkl6SmJIa0RGME1XZDloUDYyRTBndzhkM1R1V21SdWIybGhhbmRpY25TWEpNaUxoRnlkc0hpOWZhaWVEVGNJZEVCd3l0QjJfVVlJY2lfd1dhTko1T21R?oc=5) |
 | Benioff Apologizes for Saying Trump Should Send Troops to San Francisco - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPZ01PZ0ZfZTZUMENEUHYwV1NKMlV4ZUVuNFYwVjBlcTY3bFYtU09pTjNpMEdKbDV5dnhJd0ppaGlSX3FoaFdpTDBzZDRGWW5MZ0pIWGtBdVRSWkJrVG5hLTk0VkpLS0JhSmZEN29pS21XbUZ3c2l5cEROZHZiaWRwbQ?oc=5) |
-| OpenAI blocks MLK Jr. videos on Sora after 'disrespectful depictions' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTFAzNDBnRjFZMFVfVWpERklvaG1nWDgzeGFUYWlpVHc5WXZKWC1lU1JnRWdDSmlMcjdSRmxadllPWWRKTW1ZT2g1NWYyNThEVmtHR000WDRnYWtfaHczTjVqY2NwaVlQM0tkRnBBaUptWGNBSGZR?oc=5) |
+| Landmark global shipping deal abandoned under US threats - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE51UzBNS0syQ1d3cHNLdzVlUlN6NVpsOUJkMGJkVVkzanRRN2pza3p4N2F2MmRnclNDWEtRT1VtUkd3SkhoZGFUVkxFYl9EWUtSZkpTTUJqcnAxZ9IBX0FVX3lxTE5YbHYyMHdjM0ZRVmFJSDYtN3YxcWRKN3RpaEtyeXpVUGlIWVlQNDV3WnppZ3pGNkozY0gtOGd6ZHg1NExGdmcyNzBuZjZqMmU5cUxxaGR1a0RoWXlSYlp3?oc=5) |
 | With no takers yet, White House sets meeting with colleges still weighing an agreement with Trump - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPOU1FUHJsLUxxMVhPVnQzelJPZ2IzWkx2VkxsN19ZYW5lYjNFNVNpbWlMT0ItR3lsX3VKLWdiam55b0I5OVBMWXdMbFlmTkY5VWRXZG13MEwzbzlZN2p3dVdEbkVfcXJXZXZiN2dONFh3Y2R6T0FDT1dDMHQtTS1zRm5pblBxbVhqZ2s1aUZ1UWdVUE5IOVFCQml5aDlXYmRq?oc=5) |
 | Andrew Cuomo is still behind — and he’s blaming Curtis Sliwa - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOY1RhS0NSWGMzczc4MjltU3d3WUhCb3Y2R21RNEM3UElnYmU1WldCMWxwQzZaYlRiakxKN0hWQk92LVNFTUxabnNBN3ZKVHB0UzRrR1V5dllvRHpYcEYxNGE4U29uWnVTWTNtYnNrZmZVZ240aGFldjRGTnFOUnE3a000RGFnNWdkRV9BMjRDUHdCUjBzNWVVZnh4NnFZSEUwR0dQVFpmV0RtUDg?oc=5) |
-| Trump claims Maduro willing to give ‘everything’ to ease US tensions - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFBNdi0tRzRMdDBObjJ2R3hsU3lsV1Y2MEFLbXBOOGJQbzVNZWk4TElwczNQVFZKVXpQdE9NM1lrUG9MRUduQWlDNkxmM1VIbE9Wd0VVWUpVWVo1amw3NDhreERDU2l4X0xhOThRUkVCVjR3QU51YjhN?oc=5) |
-| Former Trump official John Bolton pleads not guilty to criminal charges - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1HcjZyVnhwYXMxQWtGdjRoS1dybmRMOHpxWXc0bmQ5alduWUFuamFTUHZrSHZfdHRTRDdWa2I3WGZMRXNKUmRZNzFMQU84YUljMV9vSzVXVkVDR18zSWxwR2QtVHV4Z3RORldHWlEwSEZvc1p5QUHSAXtBVV95cUxNS2wyRkZaM29pcHVPQ3o2ejdvSkJxdng2NHdPWUo5WjVBSF9LNWQ5aVNNMkxCYmFBVGR5ZG9GLUcxRTdteHFINFRqanEwRy1tZ2p3SEpKSlRMNTJFUFV6eE5XMXZ0ZXNXWlJtVUtfLWlnZExqVXNpS0RfcW8?oc=5) |
+| John Bolton pleads not guilty to charges of mishandling classified information – live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxOR1VsXzBIVDdRSEpKcG1fZW5KaC1YbDlock9JNkg4QWU2TWpuSHVmNkQ5bzhuOTM4SXBCZ0Fhb0VnbHpLNlRwc1hJMWx3ZHJNS0FqTXdXNGIwNC04b2NRa1JicERreVZFOHhENTRUazFiRnFDdTJnLVNCZkVvU3ZQZGo0LTFJWU5TMjlicDhNSDNfbG9kajV3d2dDNVNDdWJ2VEd2QVJrY0xNVFp3MUF4RHJxNjdreFVrc19aNDFIYzFPOGYyX2MzWQ?oc=5) |
+| Donald Trump says Nicolás Maduro does not want to ‘fuck around’ with the US - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1mZTFqWUdjZHNSQ04wTDVXM3Y2M19vSW1jRHgydWh5eUdNMklvMXl6ZDV6Z2dXYXdWS1Bpc2ppRV9hRXRyOTV0RmZNNXd2SlFvdGJrQWhvdHNCcnMwX05NVnZNcFNXSmF1V0FxcGVxS28?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
