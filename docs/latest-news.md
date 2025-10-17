@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月17日 12:08:14（北京时间）**
+🕒 更新时间：**2025年10月17日 12:16:17（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | Why talking about sweat stopped being a taboo (long before Alan Carr was on Traitors) | [阅读全文](https://www.bbc.com/news/articles/cwy51pgql7eo?at_medium=RSS&at_campaign=rss) |
 | Reese Witherspoon on writing a thriller: 'What do girls in bikinis have to do with solving crime?' | [阅读全文](https://www.bbc.com/news/articles/cn0gl91dwr2o?at_medium=RSS&at_campaign=rss) |
 | Five takeaways from heated Mamdani-Cuomo New York mayoral debate | [阅读全文](https://www.bbc.com/news/articles/cn8xlx53jn6o?at_medium=RSS&at_campaign=rss) |
+| Military veterans now able to download digital ID card | [阅读全文](https://www.bbc.com/news/articles/cj3zmjrzegjo?at_medium=RSS&at_campaign=rss) |
 | KISS founding guitarist Ace Frehley dies aged 74 | [阅读全文](https://www.bbc.com/news/articles/cj41vwgv47no?at_medium=RSS&at_campaign=rss) |
-| Aid group suspends Gaza operations after ceasefire | [阅读全文](https://www.bbc.com/news/articles/cgjd783ywn3o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
