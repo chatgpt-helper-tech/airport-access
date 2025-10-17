@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月17日 19:24:57（北京时间）**
+🕒 更新时间：**2025年10月17日 19:33:21（北京时间）**
 
 ---
 
@@ -9,12 +9,12 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Zelensky to meet Trump at White House to ask for Tomahawk missiles | [阅读全文](https://www.bbc.com/news/articles/crmxz37nv3zo?at_medium=RSS&at_campaign=rss) |
+| Arena bombmaker denies attempted prison murders | [阅读全文](https://www.bbc.com/news/articles/c0mxz2j8jw4o?at_medium=RSS&at_campaign=rss) |
 | Housing designed to combat loneliness wins top architecture award | [阅读全文](https://www.bbc.com/news/articles/c4gwlz6k96no?at_medium=RSS&at_campaign=rss) |
 | BBC Gaza documentary a 'serious' breach of rules, Ofcom says | [阅读全文](https://www.bbc.com/news/articles/c629j5m2n01o?at_medium=RSS&at_campaign=rss) |
 | 'I have a sweating problem': What Alan Carr's Traitors admission tells us about how social taboos changed | [阅读全文](https://www.bbc.com/news/articles/cwy51pgql7eo?at_medium=RSS&at_campaign=rss) |
-| Celebrity MasterChef to air with sacked host John Torode | [阅读全文](https://www.bbc.com/news/articles/c1lqg2j8zj0o?at_medium=RSS&at_campaign=rss) |
+| Celebrity MasterChef to air featuring sacked host John Torode | [阅读全文](https://www.bbc.com/news/articles/c1lqg2j8zj0o?at_medium=RSS&at_campaign=rss) |
 | Far-right extremists jailed for planning attacks on mosques and synagogues | [阅读全文](https://www.bbc.com/news/articles/c4gkm4jyrpdo?at_medium=RSS&at_campaign=rss) |
-| Global stock markets hit by nerves over US banks | [阅读全文](https://www.bbc.com/news/articles/c4gjz82wx4wo?at_medium=RSS&at_campaign=rss) |
 | King Charles to pray with Pope during Vatican trip in historic moment | [阅读全文](https://www.bbc.com/news/articles/czxkrn7jvexo?at_medium=RSS&at_campaign=rss) |
 | Author of I Want To Die But I Want To Eat Tteokbokki dies at 35 | [阅读全文](https://www.bbc.com/news/articles/cpq1dy8w3jwo?at_medium=RSS&at_campaign=rss) |
 | Calls to suspend GP who 'harassed' woman raped by his son | [阅读全文](https://www.bbc.com/news/articles/ce3xylkx2d1o?at_medium=RSS&at_campaign=rss) |
