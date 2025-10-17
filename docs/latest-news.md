@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 07:32:47（北京时间）**
+🕒 更新时间：**2025年10月18日 07:41:06（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | Prince Andrew gives up his title as Duke of York | [阅读全文](https://www.bbc.com/news/articles/cgqlyw9g7weo?at_medium=RSS&at_campaign=rss) |
 | After all those scandals, why did Andrew quit his titles now? | [阅读全文](https://www.bbc.com/news/articles/c3ep8gd1qv3o?at_medium=RSS&at_campaign=rss) |
 | Government 'doing everything' to overturn Maccabi Tel Aviv fan ban | [阅读全文](https://www.bbc.com/news/articles/c5ylxn8g2y2o?at_medium=RSS&at_campaign=rss) |
+| Smuggler jailed for 40 years after shipping ballistic missiles parts from Iran | [阅读全文](https://www.bbc.com/news/articles/cwy534vw28go?at_medium=RSS&at_campaign=rss) |
+| Mystery heatwave warms Pacific Ocean to new record | [阅读全文](https://www.bbc.com/news/articles/ce3xynwwx4yo?at_medium=RSS&at_campaign=rss) |
+| Lamborghini swerves away from all-electric future | [阅读全文](https://www.bbc.com/news/articles/clykvq2955qo?at_medium=RSS&at_campaign=rss) |
 | We're furious the 'Lip King' is selling weight-loss jabs, say dead mother's family | [阅读全文](https://www.bbc.com/news/articles/c4gk0w95jyjo?at_medium=RSS&at_campaign=rss) |
-| Red Cross retrieves body of dead hostage in Gaza, Israel says | [阅读全文](https://www.bbc.com/news/articles/c5yp3eq9knvo?at_medium=RSS&at_campaign=rss) |
-| Landmark deal to cut global shipping emissions in tatters after US pressure | [阅读全文](https://www.bbc.com/news/articles/c3vnl0yxg53o?at_medium=RSS&at_campaign=rss) |
-| Government loses bid to block appeal against Palestine Action ban | [阅读全文](https://www.bbc.com/news/articles/ce9dg5v43vmo?at_medium=RSS&at_campaign=rss) |
+| Red Cross retrieves another body of dead hostage in Gaza, Israel says | [阅读全文](https://www.bbc.com/news/articles/c5yp3eq9knvo?at_medium=RSS&at_campaign=rss) |
 | China warns UK of 'consequences' over mega-embassy delays | [阅读全文](https://www.bbc.com/news/articles/c629j10gln8o?at_medium=RSS&at_campaign=rss) |
 | Euphoria confirms new cast members for season three | [阅读全文](https://www.bbc.com/news/articles/c8eyk31w3j5o?at_medium=RSS&at_campaign=rss) |
-| 'I'm trying to forgive', says mum of baby found in Hull undertakers two years after funeral | [阅读全文](https://www.bbc.com/news/articles/clykvp0424po?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
