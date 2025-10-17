@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 01:57:46（北京时间）**
+🕒 更新时间：**2025年10月18日 02:01:41（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | John Bolton pleads not guilty to charges of mishandling classified information – live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxOR1VsXzBIVDdRSEpKcG1fZW5KaC1YbDlock9JNkg4QWU2TWpuSHVmNkQ5bzhuOTM4SXBCZ0Fhb0VnbHpLNlRwc1hJMWx3ZHJNS0FqTXdXNGIwNC04b2NRa1JicERreVZFOHhENTRUazFiRnFDdTJnLVNCZkVvU3ZQZGo0LTFJWU5TMjlicDhNSDNfbG9kajV3d2dDNVNDdWJ2VEd2QVJrY0xNVFp3MUF4RHJxNjdreFVrc19aNDFIYzFPOGYyX2MzWQ?oc=5) |
+| Organizers expect ‘No Kings’ protests in Chicago to be fueled by anger toward Donald Trump - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBmcGdJX3djVVkzSFhVZjZBVWdzUnJvNVQ1YXBiVjZKb0RqckZhVWM0Y096OWlYMFEyQXp2V3hoNUFxX0NoOFNQQzhxVVo2aFlqT29ZRUZrcWdreUpjbVA4dzlyN29Ra1cyQ3Y1TmdQYkZtYzhTNndOQmVmLTA?oc=5) |
 | Trump plans Putin summit on Ukraine, raising stakes for Zelensky meeting - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPM3AxdE81T2FwNzhWLUxNMkx5WnZ3dndxMHlyZkpWWEhmaldPdGxpMHpzWFFiQjF6OHN6RnFDSkM5NHRoeE1LVmdjYUo3VS1OTnVKR2RobUlGQWhkSlAzMjNjZ0pHM2ctWENZU2p4NmRERXowYmFGcExXTm1wNkxuNk81ZmFsV2s4VTVSbWhpMTl3d1ExQXJPRkhmSHZSaHZqNkE1TTlka0JzLWV5WWV3?oc=5) |
 | Venezuelan fishermen in fear after US strikes on boats in the Caribbean - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5PQjVQelJwVGhTY2dGSzlPYzY0Qmg0Z3M4MXFNVWdSVjdvbHNhSkxQY2MzTWRHc0VnaWI1OXpKQ3Iwem13Qy1wUldlMUVVU1ZyNGw3TlJsQ1FkQdIBX0FVX3lxTE5YOGJodnZHclFsLWVuM3VES3FRQllpUFBlemFzTU5WM1FGckNuNmJQSWlyWldvTXIyUmxZeS1PbEZoWWZidjBrTFU4ZXEtQlVqbGY1UjV6bjFpclNFS2hJ?oc=5) |
-| Organizers expect ‘No Kings’ protests in Chicago to be fueled by anger toward Donald Trump - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFBmcGdJX3djVVkzSFhVZjZBVWdzUnJvNVQ1YXBiVjZKb0RqckZhVWM0Y096OWlYMFEyQXp2V3hoNUFxX0NoOFNQQzhxVVo2aFlqT29ZRUZrcWdreUpjbVA4dzlyN29Ra1cyQ3Y1TmdQYkZtYzhTNndOQmVmLTA?oc=5) |
 | Sparks fly at first NYC mayoral debate with Trump weighing heavily in the air - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxObzQ3VVIwOVQ0LThwXzlJbnROREMySUUzMC12Y1dNZlBOSnhTbFdxWHFPdHllQVNDRzVMemN3T2VmZTdhNlU3OERtS0RWSGF2OE9KUDEwV3RNMWFYdFV3WkZ2N1pvb1REWTdGZGZyendobWpiM2poTEl5WF9YWTFtdTF0RDJDaENQX0hveUdZS0hLWXI1NHpjYVY4WDkxbHg4R1dBTjFuNU9sYTZsUzhpV21n0gG3AUFVX3lxTFBiT09melZNcnNLd29JRy1QRjRwSzZSSnNpRThJb09wb0REWXRHYnplT1pqQ1RKOTNYTGc1SlRRZUxMa25JWTJyYVdFSlhaOUttMDhCd1ZaUUpONGV4Smt0SktlSG9MSlI0ZDhxRGI1ZlA1ZUZfbkFieWs3cXB4RDRseXVRVW9EcmdxZ1dhSDZ2Q1g2M0ZaSjNiU19qdzBoLXJVNC1naDJNa253VUhCam5CckxRRlFnZw?oc=5) |
 | Trump to Meet With Zelensky on Weapons for Ukraine: Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTFBzenpOVVJyekpqT0JSRWl6bWVZOGo1VGx0eXh4dUdYY25yTUxrYks3MV9JUExFenhNZmFyVWhoeldiUURTcW5aei1ISnFZN0JoMzQxeUNLdDZxZ2h0eTNjS3ZLUW9fS0U3emhIdDVWUQ?oc=5) |
 | U.S. Says Louisiana Man Joined Hamas-Led 2023 Attack on Israel - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9GaUpOVkFFV2xvcTRwOFZjZjlnX3hqQnhXY2dMSm0wT2VadWdOa3RLZmVTc3dtazVjaEc3U0xOcDdUdFRRcDhjQ0VUMnplTVdveU93OU50a2NTa0ZnWmlVbFFwWmVMb3FCUGdLUVY1ZFpPTGVkS3p6Ug?oc=5) |
