@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 07:25:30（北京时间）**
+🕒 更新时间：**2025年10月18日 07:32:47（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | With no takers yet, White House sets meeting with colleges still weighing an agreement with Trump - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPOU1FUHJsLUxxMVhPVnQzelJPZ2IzWkx2VkxsN19ZYW5lYjNFNVNpbWlMT0ItR3lsX3VKLWdiam55b0I5OVBMWXdMbFlmTkY5VWRXZG13MEwzbzlZN2p3dVdEbkVfcXJXZXZiN2dONFh3Y2R6T0FDT1dDMHQtTS1zRm5pblBxbVhqZ2s1aUZ1UWdVUE5IOVFCQml5aDlXYmRq?oc=5) |
 | Andrew Cuomo is still behind — and he’s blaming Curtis Sliwa - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOY1RhS0NSWGMzczc4MjltU3d3WUhCb3Y2R21RNEM3UElnYmU1WldCMWxwQzZaYlRiakxKN0hWQk92LVNFTUxabnNBN3ZKVHB0UzRrR1V5dllvRHpYcEYxNGE4U29uWnVTWTNtYnNrZmZVZ240aGFldjRGTnFOUnE3a000RGFnNWdkRV9BMjRDUHdCUjBzNWVVZnh4NnFZSEUwR0dQVFpmV0RtUDg?oc=5) |
 | Man convicted in Etan Patz's murder must be re-tried by June or released: Judge - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPbjN4RWY1UTJBaC1LVzRoZEVYOHgzNS1FT3l4a0JqdmpVekhjZEd5MVJZeE4tUXliQVROaG8tSi1yLTBwd3JPdnlDVEd1em1jMk1uV0tBMmhJam5wLVFwUXBBaEM3RF9pUnd4M3E1alFjZ1JsdVlSOVFPQ2RCcGl4RlN3WlZybXN4OEZoZWdkM2NiQ3pDTGNWdEdRZC3SAaIBQVVfeXFMTjcwcmZLRVdDTjlmcFZQSEJDS3hSOHdiN0piWFJsVXlwbWxpbGZzLVlFU2ZiN1pyakpjTldUaFM1WEVoMTAwRmNXb0FVUU53cXhYSXJYNzE0V2JmRTBrb3MzLWlaZlB3cW9qcklja1Q5dGp1eDc4QlNKWTBpUnNVdnhsdzVqOUg4TXJ1YkFwZjhEZ3Vhb3k1SjVXcjhWTnV1ZF9R?oc=5) |
-| Man who fought for Hamas in October 7 attack fled to US and lived in Louisiana, FBI alleges - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNTkpHcDY5NW9TcUhXZjJxRHVCS0h1YjlSaGlKVlV1cnlNUkpGR3RMWHRnNXZZU25qa216ZWpHZWtHLVF3RWxiQlFTeWg5QjQ4WlhSQ3RSdHdEUkNtejV6dXNOVWZWTWhKbkpDZkhvRGlsOC1BeC1jZmU0blExVjFuaA?oc=5) |
+| Trump says Venezuelan leader Maduro "doesn't want to f*** around with the United States" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE5vSGNUUHA1ZkhuWmxhUGhHNV92NUkxOHV6REUyWHFfNkpQU1U0RHI4dGI5VGo5dE96cnVlLUFOQXRtUDZPOHJxdHIwemhyOFNOdER1TDY0UjJQNTBELXI5emhSQ2dKNVFjOVE4RjhNd0FqamtV0gF6QVVfeXFMUGo1Y0tnY2VUN2FVVFh5ckI0cDJSQlE3MGxRbWgzbUp3ZmJsTnRMTnJCUW9aTkVlZHlEb2NfaWpVRVZrVi13YkRsZHNUdWo1Q3l4SWhPSENVaEVVc0hHaHBLM3BQazRpdTNyNVQxQVJlSDhOQS1jS2V2OFE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
