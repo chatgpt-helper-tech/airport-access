@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 03:57:01（北京时间）**
+🕒 更新时间：**2025年10月18日 04:00:34（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Bessent Stakes Credibility and Taxpayer Money on Argentina Bet - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQRlVQc3hjZ3FnUVFQdkdqNk9CeDRtZTB1LVZrbFN6aTBxTVFDT1dxUmYzNGJCakxNeVNTNk83dk5NYmJWdWI3T2hwQnVKZGVjdlpyYUEzb3ZZQVg5WWxoNW9DLWV3LTdsXzc4a2k0clJtMXBzWHJuTkpncXA1YjlFSHc1MXBMa0R4ZkZN?oc=5) |
 | OpenAI stops 'disrespectful' Martin Luther King Jr Sora videos - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5JLVQ1eXFMbnlqbC1SLVpZVHJvWjFaSHlHYy0zbUd6WUJUMS1tY2F3aHBTc3JfSlAzQWN3MUNmTXNCTEFrZ0dxUVJlNTJiYmhocnk5RE9Fc29iUdIBX0FVX3lxTE9GMkF2OFZBd3ZSM2ZYRC1JSll5M2dQWEQ2ZExSYzJ1anBYZDdUeVhrUnpldDdURzBYelJGS3d5VUpUZmJiWURJbndKdWZ5dlBBbENPOE5OaV9zWF9QRFZz?oc=5) |
 | With no takers yet, White House sets meeting with colleges still weighing an agreement with Trump - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPOU1FUHJsLUxxMVhPVnQzelJPZ2IzWkx2VkxsN19ZYW5lYjNFNVNpbWlMT0ItR3lsX3VKLWdiam55b0I5OVBMWXdMbFlmTkY5VWRXZG13MEwzbzlZN2p3dVdEbkVfcXJXZXZiN2dONFh3Y2R6T0FDT1dDMHQtTS1zRm5pblBxbVhqZ2s1aUZ1UWdVUE5IOVFCQml5aDlXYmRq?oc=5) |
+| Army Corps of Engineers pausing $11 billion in projects over shutdown, Trump budget chief says - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFBTbU5KSGRkUlBwQVdHNC1vcnY1X0Nvc2tZVTJMSGRJRWp1Q2FoMmlzNFhnTjhfanpqSVlxeGJ4Y2ZSV3l0UVE2ZWVBVTFkdC04ODU0UElmZGJSdDhKM0JRUFdULVQzT2hkMWlXX2hQYUhJdjJuSmxfY2lB0gF_QVVfeXFMTUdwSXJ5MGZmb0JFTlNUaFJBSE15cGVfRk9MYlJQUk55SG8zdjlsOE9ncE5CTjNNbVRCU1o5R0VVMmlJaXJQM0phS0xTZ2ZyaG5ENWVhMXBJQUZRTkRWSDlfM3o4czc2OG9VZ0J4Ul93bGk3WTM4c2hLNTZEWDk0TQ?oc=5) |
 | 6 takeaways from the debate in Virginia AG race rocked by a texting scandal - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPVGVDLXBTX0doTTF2YWZGR0xMT1FVdFVYdE9BU3JFZzB4QUR3ZzZOeDVxc1dLTzRkS1pGdXFYMHhQdmVTX3NsbjBLWkdaZnRmZk03Wk5XdXB5T3hqa3FVUzhGUkdpOGdiZ1l2dm05VFhiWWZaSjVkTVhhNnFkRklhTzh2WnNmN1dNcXdpX1laM3NmV3RncGhycEdobkgyN2c?oc=5) |
 | Nancy Pelosi faces primary challenge from California state lawmaker - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOVkVqRVIzc0tlZHBHRVNoc3d2WkdkR2tTTUFlMm9ZNEZjRkgzSW1FSktxZXNVY0d2MFdoS0tuZDhUSWM0SVV2SUtaaGNKdFl1b0pUUDdXU25WcExfcmlFbkdDLXZCV3VXWGlSYzAxYlRkTmVYN2psTUpkSFBpOW5yTS13bXMzQ3pmTTJUaS1Oc21TN3pjQmFfdFJQaFBfUXNSQXRZU1VOLTBIX1NKTVhGaGFsYTFyQk1s?oc=5) |
-| The Top Zingers of the Mayoral Debate - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNMVhEY1ZmclRTVTl3d2FwT2VObUJ2ZmEyNXJic2lyUVFlSEZ1NmRrMWFoU2VySExULTBQY0V5TUhyVjhQX1M5c3ViMlRhWDVfSHlsRjZiSElSYldRQ2g5VHAxQThwWklqbnpDLU53Z2kyYk1saFA2YXVoOEY5eHNneg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
