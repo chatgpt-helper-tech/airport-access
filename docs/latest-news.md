@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 05:09:01（北京时间）**
+🕒 更新时间：**2025年10月18日 05:16:11（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Former Trump official John Bolton pleads not guilty to criminal charges - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1HcjZyVnhwYXMxQWtGdjRoS1dybmRMOHpxWXc0bmQ5alduWUFuamFTUHZrSHZfdHRTRDdWa2I3WGZMRXNKUmRZNzFMQU84YUljMV9vSzVXVkVDR18zSWxwR2QtVHV4Z3RORldHWlEwSEZvc1p5QUHSAXtBVV95cUxNS2wyRkZaM29pcHVPQ3o2ejdvSkJxdng2NHdPWUo5WjVBSF9LNWQ5aVNNMkxCYmFBVGR5ZG9GLUcxRTdteHFINFRqanEwRy1tZ2p3SEpKSlRMNTJFUFV6eE5XMXZ0ZXNXWlJtVUtfLWlnZExqVXNpS0RfcW8?oc=5) |
 | GOP tries to brand anti-Trump ‘No Kings’ protests as un-American - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQMTNVUkotbEctUGd1dm84NXFYLS0zMVhPWUhsSnhMTGxxZE1Bc3N4UElETTduUFFEdkl6SmJIa0RGME1XZDloUDYyRTBndzhkM1R1V21SdWIybGhhbmRpY25TWEpNaUxoRnlkc0hpOWZhaWVEVGNJZEVCd3l0QjJfVVlJY2lfd1dhTko1T21R?oc=5) |
 | Maine Senate candidate downplayed sexual assault concerns in deleted posts - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQLXM4cm9TcGN0WlR6bVhQNmxzNkcyTFlITTVwdmhpN0VqX2JSSEVLNnpaUDBrVTBpdHR3WEZBRHRwMm9vc1QxVTgxREhYUlE0dXczM21QVVRkczJmVWxWeVhzQ3cxbGxyc0o0QjllcTlpNXlGVWg1WVF2Z3RaSEJfRjZRaF9vc3VraEJFUGk0VUdsZUpvOHJGSGhxaUJtczFkUGVnOGdqMHhudw?oc=5) |
-| Senators Move to Force Vote to Bar Ground Strikes in Venezuela - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOcmM4S2R5WWwtUFJ1dl84WDNaZE9faFBPRjllQW1aUk51QWFPWWkxNGFKMVM4ajVSVUdMTXNKclNoME1ndXdwYjFoZmVZRHZJczVaREhjamQ5Vi04ZGlEYzU4aEZNR1I2Y1E1SnZScEhITHdDd1ZhVkVUYVMzX21SSFA2bFBfVkF1QjgwSXVTdWw?oc=5) |
+| Appeals court declines to lift order blocking Trump from deploying National Guard in Illinois, finding scant evidence of 'rebellion' - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOWXdKblZnNXVTV2tURFNMQkVscXc3RGtRQnNTeGZ4d2oxOUFfTElFRWp1QjVWUHVHbHo0aF9lbEJVbnNYQWo4UjVXbjRkekMxTlUzeGFIX20yazE4dTNWWUxmbzJqRFZIMjFsY1RNbEEtTHJJSzFRSEdoRjhFMWVyUkZNNl9ROWNwUnBkTUE0V3ZKZ3Z0Q0s5c3VhVkEzdlRKQmUtdk5B0gGrAUFVX3lxTE0zLS05STJVSHVyNmlzTWJ3YXUtUFA3dkVyakdvSlh2RjAyVEd3THhJUFRFYUQydlNDaHY1UjBHelFIZWlhbWFvSUt4QVFkMFRfejl1NlhPbXlrSjJZUUtCX1lmNkJDYTJXVWFmWEpxd2FlM0szb203LW1VVlc0QXdVMGNueUdGSzNwdWc0SURaQzV2REJ4X3JXcGdpdlptZ05RWEVDZFpiYm5udw?oc=5) |
 | Benioff’s bombshell leaves San Francisco Democrats scrambling - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPRl9OOTdMQjdodEhKd2E3Q1Z4R3hRRE90MnNpRDJrVzBJNjk1ZWNnVHZKVVJiZmRITkxPY0NvZnpxOUg4R2NMZXFqTFN2RGdkMUpxNnpKQXE4VUprSnBoMTBZeEMtWWtOcmZxRkN6XzhhRTVpTHVYcTVHLWJsQS1GUEpqTC1WSm43cjU2Tk95cFVab3R3MUtZalVpdzNyUEtoMU90emJPUEhyN0c0d2xGVkJ1OHc?oc=5) |
 | Cuomo All but Begs Sliwa to Drop Out. No Chance, Sliwa Says. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFBHT1JzQ0RTWHVtTV9HM050ZHJpZ0NaMU5HNHpOR1lPNjJoRWFPV3U0YlVOTU1HeVZDb1dBUmx5MkM0Rm5jZVNRei13RHlUNmp6Nmd2Tm4xRlg3Q2FIMXVxUlBRcllKUEthWU04S3JrTXprUzQzOEUw?oc=5) |
-| California Democrat to run for congressional seat held by Nancy Pelosi - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPX3IydTRmaTdsSmhYb0x0ZHRPNTk5SUxuX1lvMDNKRWQwMkE5MUxENzgtMkw1NElEc3ZBWEFfTktCT3pkQjJFdFZ0ZHRPX1hmYkdCR1llNWFMWnhWNlV2SDdncDNwYi1kX0tOenpSdzd3N2dJZV9EOGpfRWNrVlVpYUdKSEd2c0libWc?oc=5) |
-| Man living in Lafayette arrested, accused of participating in Hamas-led attack in Israel - The Advocate | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxPSzhDZGlFMDZTVmtQcFhYTFhIYnZtckJTYnFYbGM0cXpfbDhvR2hrTlNxaTRGVzJ0OWs2TlpTLVVBcGx1SkpWY3JFRTlQczhCUWlnang0MlhINUlxNVBXYXFNU1NTZTQzckJ5MXUzNklIV0FLVWxxRER2T2hyZnpCaEt4c0ZDMHNHdU9rbjQ1R0Y4UGlYWllGTWpDbWlxVjBVWVYwVzV3RlBIa1BtdTFDaXVDRFFWS08tM0IybktjdjhVMDFaRERUTlJmanU?oc=5) |
+| Man who fought for Hamas in October 7 attack fled to US and lived in Louisiana, FBI alleges - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNTkpHcDY5NW9TcUhXZjJxRHVCS0h1YjlSaGlKVlV1cnlNUkpGR3RMWHRnNXZZU25qa216ZWpHZWtHLVF3RWxiQlFTeWg5QjQ4WlhSQ3RSdHdEUkNtejV6dXNOVWZWTWhKbkpDZkhvRGlsOC1BeC1jZmU0blExVjFuaA?oc=5) |
+| Mahmoud Khalil can freely travel within US, federal judge rules - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPSDEyVnN6LUVHSE1HTVRZWEVzVHBSeTlHb3ZqMmJrQWdCT2t3TWE1dlZyaGJneEhVVnFpTmZfa1k5TmxEcEVQVXdGRlJYWFl6WEJraUkxY3drRGMwNG82SFV3b1UtaW5lUHJBbHVvSGttbFlmNlJSYUItQXR2bFZiYUpFZWM2MHhaUmRpMTFvc0FVQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
