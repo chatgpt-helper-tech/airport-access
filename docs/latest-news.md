@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月17日 15:08:40（北京时间）**
+🕒 更新时间：**2025年10月17日 15:16:33（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | USC rejects Trump education compact aimed at shifting the university to the right - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOMFQ3cWxpNEducjF4R2hoemdnU0dmX01HSUVXUGdDVk1wRHlUSGdPeHkxRC1vdkJZZExWZjA1VkYxQ1h5UkwyU2xaUEVwbERsbWtEdm5oLWN2WUo4TDdvTkJLbU5oMkZKYUNnb1JBVGlTRWQ4eXQ4SFR3MnlEaWlSYTVRZGk4NWRUSnBoaFdodzU?oc=5) |
 | ‘No Kings’ Protest Organizers Aren’t Afraid of Trump’s Court Jesters - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQeUtnNzV3YnpLTWlnbC12SExWbHZsdHNWR01qd2dkRXh4VEswNVk5V243emY3MjVsWDkzNHNNUExZcXhCUk42OV9VWTAySUZyRnFuOEtMdjdyMC00Y3Y3Q0Y5QkhBUzRiUEhQbC1Md3ZOMDAxS1dqMG9WdTBuMWRlQWMxRVh5WUxGeVhwTk9mV3FWaWZ2NUw0Q1hzRUhLa2RfZE1jWkptN3Q?oc=5) |
 | Anchorage prepares for up to 2,000 evacuees from Western Alaska - Alaska Public Media | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPSWZVNGhYMXJlTEtvQ1NRRk1TZHA4U0tKU3I1UXdSTG84QWFzR0piaDlRV3cteXE3SkVZWGZJVXpsdzc2aF9wSEJUbllCLTNOSS1aa2swbFRNMUlmaEdfZTY3akg3ZHdZdlgtQmhsdzAxN09oTkJ6RVAwdldZQTBUcUwxX2tfNzloM1VNaGZsOTZGeThnZldlcGE4UmNCRW5telNRcWIwaWdCcHg4X2MwRnVjMHdBWDNiMl9vTzlfVUJJSTg?oc=5) |
-| Virginia attorney general debate centers on Jay Jones' violent texts - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNb20xeERCUkVXbTFLbXpGeFJSak9tcHUxdk5ySHpwRHZMZ2NqMGhHMmM2U2JGejFiQnQ1RG1QUTZKaHFRR2tJaHZOaDdQM1FyMXY1a24xSVh0UnFIRWFXUHdJSWpsUXBVUldNc3pwMzJTYkM4N29vTm56UENhbzRWNVE2QzFMdExsOTZvdFJwYVVaN19ZdzV0VzJRWlhkMkhfeGJtUVZHUWlGMGkxZDJV0gFWQVVfeXFMT2xXQVFTQTQ2TFRFUTY5UDFYb0J0TS1rOEQ4Rm05Y3U0NzliUFlWSTR2eU1WVGg2MVl3bHZXQXN2d0EzcWxTbVl5WWxpSHVwUlhyclNaVnc?oc=5) |
-| Maine Senate candidate promoted violent political action in since-deleted online posts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxNalRRN2RIQkZWQVRYVW1UZDZIdERHYk56elNXTjJSWkFXbHVaVHpId3lIX01nUXk3ZjJ3eFN6SGtfNXZMU2tDSk9DNTRoVmkwNDlYa1NyTXNxR2ltZ2t5NUdsS0xKanVJeGc2enlSd0YyY0lBN0l3MVVxVExWc2tvbTV0MjByY1ZyelNzb2FFcVVtRDRjRy1wRG9YRVlJMVdtODdCR0dxVFJ6ZXVsbkdNUGh4SHRoYnNWWXl3OW5ic2cxNVlXQVFRQTZXOUhwSnBwZnc?oc=5) |
-| Zohran Mamdani Explains His Rise - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPOGl3b0NfMnRRelhlZ012UkRXQmlLMkxPNUpkaEZObnhRQmdpM3B3aDM1UEdqbnJteUNYQVFqQk1PamFXal9nVGJXaGVjSTZEckktQUhSLU5BRktuY09USUNPODFIRFJybVU3ZTFwNG0tbE84Rkd2ZFhhbC1PMm44dUpRY19vcWVjWlJZ?oc=5) |
+| US Senate hopeful Graham Platner explains old comments on Reddit - newscentermaine.com | [阅读全文](https://news.google.com/rss/articles/CBMirwJBVV95cUxNRXhDSUpRRTVMX09FMmc1aFBvcE1HajlqdVM5WUpPRzMtblhIYUN5UHQtOFBBbzh2MEJ2REtXQkVQMmt0VkVMd3BHSmViZEtPdV9DaHExVGgtc1VQT09IdEZPTzJsOHJPbTdmdHFyRnloOW9ITVNSaHlhNjlFMllGZ1JtazY0T1FDMVZKWGJ3RXk1MTZYeTFLeDNzRXE1R2VoSlo0Ry1HZGZ0Yks2dlhpMjcxM2JHNWl5V245b2lhRTlKWGFnYVAtXzBUVmxSeFJodTdnWnZIVkVWVDMzMDBSN2QtbWR2b1A4MTJSbGU1WWRhOUo4Z0FSR01ZYzM1U3NiZkQ1eW1fVHp4R1RBLVdaUHhCTWdIR0Z3bERORmFEUXBSUHhfVV8yZFJZNVY3VDQ?oc=5) |
+| New York’s Richest Ask ‘How Dare He?’ as Mamdani Closes In on City Hall - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5vNEFObG9xN2ZOZlJ3a3dHajJvUGFWYW85T29mZnd4UVVTa0ZXMEFUZC1GUVhxMFR0RTBWRFlYSnlPZW51RFpTLWV2RkRyYS1LbmNva3hvbWJZNFFxSTFqUmQzTE9KWFBTWFhPMGFLYmc2ZXBwMEhla19hNloyQQ?oc=5) |
+| Senate rejects funding patch for 10th time amid shutdown stalemate - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxQZUY3Q2ZVVjZrczNkanNjZDBxS1lXVUpuTUhqZTUxUS1IWnZTOXA5N3FQRXNUYzlneGkzT2hMbTVzejNJYXctNk9iM1FWcUxPUldETS13aGJ6THZYdzZPRF84ejJJOFNoWEw5MHF2Yi1STjNkWUZsYnBHYjVKVzFIWnpNUFZrampUbExYTDVIb0dSenVhb0lWaTVhQloxN19IU05WREdPRUdQeFZlbXYtMHRvZzRLR1pPZTdhS1dkTHV5Y3ZSLTZWVmtHa3psUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
