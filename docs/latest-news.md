@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月17日 16:09:28（北京时间）**
+🕒 更新时间：**2025年10月17日 16:17:33（北京时间）**
 
 ---
 
@@ -8,8 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| 'Wrong decision' to block Tel Aviv fans from Aston Villa match, says PM | [阅读全文](https://www.bbc.com/news/articles/c205gnz5p8xo?at_medium=RSS&at_campaign=rss) |
-| Zelensky to make Tomahawk missile case in US after Trump-Putin phone call | [阅读全文](https://www.bbc.com/news/articles/crmxz37nv3zo?at_medium=RSS&at_campaign=rss) |
+| Zelensky to meet Trump at White House to ask for Tomahawk missiles | [阅读全文](https://www.bbc.com/news/articles/crmxz37nv3zo?at_medium=RSS&at_campaign=rss) |
 | HIV protection jab to be offered on NHS in England and Wales for first time | [阅读全文](https://www.bbc.com/news/articles/c803egy217xo?at_medium=RSS&at_campaign=rss) |
 | Housing designed to combat loneliness wins top architecture award | [阅读全文](https://www.bbc.com/news/articles/c4gwlz6k96no?at_medium=RSS&at_campaign=rss) |
 | Former Trump adviser John Bolton criminally indicted | [阅读全文](https://www.bbc.com/news/articles/cgql2qzkz5zo?at_medium=RSS&at_campaign=rss) |
@@ -18,6 +17,7 @@
 | Five takeaways from NYC mayoral debate as Mamdani and Cuomo clash | [阅读全文](https://www.bbc.com/news/articles/cn8xlx53jn6o?at_medium=RSS&at_campaign=rss) |
 | US-backed aid group suspends Gaza operations after ceasefire | [阅读全文](https://www.bbc.com/news/articles/cgjd783ywn3o?at_medium=RSS&at_campaign=rss) |
 | Sam Fender wins 2025 Mercury Prize for album of the year | [阅读全文](https://www.bbc.com/news/articles/cp3dnjd9g4go?at_medium=RSS&at_campaign=rss) |
+| Military veterans now able to download digital ID card | [阅读全文](https://www.bbc.com/news/articles/cj3zmjrzegjo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
