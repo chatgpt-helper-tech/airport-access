@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月17日 23:17:06（北京时间）**
+🕒 更新时间：**2025年10月17日 23:25:05（北京时间）**
 
 ---
 
@@ -11,8 +11,8 @@
 | Government loses bid to block appeal against Palestine Action ban | [阅读全文](https://www.bbc.com/news/articles/ce9dg5v43vmo?at_medium=RSS&at_campaign=rss) |
 | China warns UK of 'consequences' over mega-embassy delays | [阅读全文](https://www.bbc.com/news/articles/c629j10gln8o?at_medium=RSS&at_campaign=rss) |
 | Husband guilty in murder case without a body that shocked France | [阅读全文](https://www.bbc.com/news/articles/crexz473pvxo?at_medium=RSS&at_campaign=rss) |
-| Celebrity MasterChef to air featuring sacked host John Torode | [阅读全文](https://www.bbc.com/news/articles/c1lqg2j8zj0o?at_medium=RSS&at_campaign=rss) |
 | Landmark global shipping deal in tatters after US pressure | [阅读全文](https://www.bbc.com/news/articles/c3vnl0yxg53o?at_medium=RSS&at_campaign=rss) |
+| Celebrity MasterChef to air featuring sacked host John Torode | [阅读全文](https://www.bbc.com/news/articles/c1lqg2j8zj0o?at_medium=RSS&at_campaign=rss) |
 | Shares recover after US banks cause a scare | [阅读全文](https://www.bbc.com/news/articles/c4gjz82wx4wo?at_medium=RSS&at_campaign=rss) |
 | Far-right extremists jailed for planning attacks on mosques and synagogues | [阅读全文](https://www.bbc.com/news/articles/c4gkm4jyrpdo?at_medium=RSS&at_campaign=rss) |
 | BBC Gaza documentary a 'serious' breach of rules, Ofcom says | [阅读全文](https://www.bbc.com/news/articles/c629j5m2n01o?at_medium=RSS&at_campaign=rss) |
@@ -29,10 +29,10 @@
 | Sparks fly at first NYC mayoral debate with Trump weighing heavily in the air - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxObzQ3VVIwOVQ0LThwXzlJbnROREMySUUzMC12Y1dNZlBOSnhTbFdxWHFPdHllQVNDRzVMemN3T2VmZTdhNlU3OERtS0RWSGF2OE9KUDEwV3RNMWFYdFV3WkZ2N1pvb1REWTdGZGZyendobWpiM2poTEl5WF9YWTFtdTF0RDJDaENQX0hveUdZS0hLWXI1NHpjYVY4WDkxbHg4R1dBTjFuNU9sYTZsUzhpV21n0gG3AUFVX3lxTFBiT09melZNcnNLd29JRy1QRjRwSzZSSnNpRThJb09wb0REWXRHYnplT1pqQ1RKOTNYTGc1SlRRZUxMa25JWTJyYVdFSlhaOUttMDhCd1ZaUUpONGV4Smt0SktlSG9MSlI0ZDhxRGI1ZlA1ZUZfbkFieWs3cXB4RDRseXVRVW9EcmdxZ1dhSDZ2Q1g2M0ZaSjNiU19qdzBoLXJVNC1naDJNa253VUhCam5CckxRRlFnZw?oc=5) |
 | Venezuelan fishermen in fear after US strikes on boats in the Caribbean - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5PQjVQelJwVGhTY2dGSzlPYzY0Qmg0Z3M4MXFNVWdSVjdvbHNhSkxQY2MzTWRHc0VnaWI1OXpKQ3Iwem13Qy1wUldlMUVVU1ZyNGw3TlJsQ1FkQdIBX0FVX3lxTE5YOGJodnZHclFsLWVuM3VES3FRQllpUFBlemFzTU5WM1FGckNuNmJQSWlyWldvTXIyUmxZeS1PbEZoWWZidjBrTFU4ZXEtQlVqbGY1UjV6bjFpclNFS2hJ?oc=5) |
 | US commander overseeing fatal strikes against alleged drug boats off Venezuela will retire - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOVTdQQnVHcEN1SDY2d2J6Qm9PeTFpY2ktOGVHQWszSHBZNmlvSGw4dE1mNnd4ZlZGb2RkdXRoVDMyQ2xTX2kyalZSbEVxWkc4QnZzRnM2YVFZNWdGdkhmVlJxX2o3dWlLcWo4OWxKM0dTdjVXdDZmVzNsRlpKYS1SelhBb1hoTmxnZ2l1OUtRSTZhb05qOVptOGtKb0Q3bEVCeWY2TWVmSldWZ29FRnpLMklB?oc=5) |
-| Benioff’s bombshell leaves San Francisco Democrats scrambling - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPRl9OOTdMQjdodEhKd2E3Q1Z4R3hRRE90MnNpRDJrVzBJNjk1ZWNnVHZKVVJiZmRITkxPY0NvZnpxOUg4R2NMZXFqTFN2RGdkMUpxNnpKQXE4VUprSnBoMTBZeEMtWWtOcmZxRkN6XzhhRTVpTHVYcTVHLWJsQS1GUEpqTC1WSm43cjU2Tk95cFVab3R3MUtZalVpdzNyUEtoMU90emJPUEhyN0c0d2xGVkJ1OHc?oc=5) |
-| Virginia AG candidates Jay Jones and Jason Miyares clash over Jones' incendiary texts in debate - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQcTAxUFR0aFVfN19ySkNKYnhhT1Z6YnZMT294eWRHNVZYNkxJWE1aTjhUSkxXbzRpOEs1MVMtZnJmZ0F3Y2dEUFU4M2FZTVliSjdleWZJSEpmTGhvZzRKLUZ3b0Y3Q1FyVWdsZGxGblRjTWFUUWg1aHJtYnRTTV9xemI0UnhGMjV5dWUtcUpMYTFuQTdFbjVJ0gGcAUFVX3lxTE5ORUU1eHNwcW91bk9fLVVNelp5MGQ4QmZPVC1va2NQX3dXcHJobTZISVNPZWRBY1Q0c0dmcW01czZQR0FJbGtLc3BYMFhQQ2poOW5pNnBwQ21kZ0JHcElUei1IaHlLQ3FSZFZYR2QtcjBaMUtmNmN0cWlnNlB1Xzh4dEFBV0lPR3BNWjB4bUNmc3FKU19xZF9YRmEtbA?oc=5) |
+| ‘I'm ashamed’: In debate, Virginia’s Jones apologizes for violence-themed texts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPbVh0LTdoLTNfUlN6ZGNfZGs0SHNwUlpQNGQzNkJMM2JwMEJMZXh3bnl4a1dKakJVV0lUNmVPVVVzMkhvQ3RUVEUweGg0UFB3WkFCMlJlUldaQUI2TElpQVd2NDFYcmk2NjNKcFNyN0FuX3l5cG1PRExfYTdGbFVnaG1UempFVS1Sc29qUWVXY094REE?oc=5) |
 | Overdose in America: analysis reveals deaths rising in some regions even as US sees national decline - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQdUNtNVh6RTJHS3ljY3lZbTBnMzRORmJVWFF1REZ6ZzBLVmJoZGZPX181eGpnUU93N212UDdtc2tpQjdRNGZRdXNqejFnRmdQQ1kyY0Uxc1J2eDNpSHZ4ZHV5UF9DTnBTWm1faTRxTXVQNnZndU1aS3M2S3g5RUlUUWpNZ2lVbGUyb0pBajBOR3pLRU9TenJJ?oc=5) |
-| ‘Gas them’: How a leaked pro-Nazi young Republicans chat sparked GOP storm - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQbldudXl2MFliNEZPRFhrbkFBTVR2dVBOcGMxcl9rbktjYzNaUmtZdzJRNHlVRERwRlVxSERmcWlGMzVwaER1UkRlc09SMDhrZDFUNjFmZEFicmpyNUxqbzJ0cEF6QTI1WnJscUNKd3FOOHB3eGdyZGp6cEtNMGNPTGhZVWYzZHcyWjBsUzJwaGhnLVMtRktDWWhTcXV1X0RnbjNqSWhsSVRoR0FYdmxRU2pWUdIBuAFBVV95cUxPbnR0QUZzTXlBY0tGN2lXSGZzVGF0WHdLRmhBVVJIY1lhVnBfSkJ6a0ZvWnh6SXhhUEViSEl3dTNBTGV5STdmNUxIVjlDczBTQWtEckJibGtmR2NBQmxTV2Z3Z2FvVm5HWW5zTHd5WW8tdGwyY1R0eGVvd2Z5MUFMb3pRczI1QlBaTFF5OXVCb1VoeWdCajhhZl9yVlJKelVYN0huT3NlZzhzYk94cllVanZ2MV8xQndN?oc=5) |
+| Anchorage preparing to house more than 1,000 Western Alaska storm evacuees across 4 shelters - Anchorage Daily News | [阅读全文](https://news.google.com/rss/articles/CBMi3gFBVV95cUxPRmsyei1tWDlTdUdvYTlXdUt4TmpybXdiZGM4bEJ6ZC1ReFJTT0N0d1psa3dTRjkzMFpqWTdWNWZWMFQtY3pNMzJGZTVGUU9rdU81aDZKcUlpQ0pPalRPVmdSYlJweGlLMkE2MFBTbUhPMXQ3RE5iRFVzOENjdWc3c2hQNXB6VzlZOTY0dS1nVFl6UDlEQjJyU3RrVmpIZnRwdWJybnhUdXprekJrMWREb3BNbmRvY3k2Y3pxU1IxV0VJVndaZkZRMUZYbUNpbHBOV01XQUhBQ2preHhPLWc?oc=5) |
+| Top San Francisco Lawmaker Expected to Challenge Nancy Pelosi in Primary - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOY2Y3T2pPSEYzQ3F6NmllVEplR3FyRDh4cmZ4bVk3SDlnaF91Wk0tOFVwR1k5aUJYVDU4RFRRY3FnRDJGU2RSaVF4T0ZTZXd4RkpDaDhUUndqZW9GT0Vlc3A5dWs2UDRlbVFDUjhGQUVvTXZEc2hFOEpQbFVESS1EcU9lTQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
