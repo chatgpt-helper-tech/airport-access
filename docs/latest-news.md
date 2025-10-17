@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 06:40:38（北京时间）**
+🕒 更新时间：**2025年10月18日 06:49:15（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Trump resists Zelenskyy’s plea for Tomahawk missiles - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5CS1gwR09CcEoycjdsRG1keDFrMVN5MTZ0OWJpR09GSDJmX0gweV94WkNFa1JpQUlZYTlDTUFxTWRWUnZ2NzktclNXendwWVpBV0ZDOGw5Y0RCTWlmT0Z5bFZYVnFrZzdkd3ZONnRFNU8?oc=5) |
 | US has seized survivors of attack on alleged narco-sub in Caribbean - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPeUdTM0JDN0UwUWVYNDJLVUdtcFhFRXRNb2Q0US10ekQzSFNnb0pLeFltWTZmQ3diMC1oT2RWa3pia19jTWZyclJ3RUJFNFItTEh4c0lMUTFVZWt4QlpGZllka21ySzFHVmxJVmhUM1BEakYzUFRwaDM2VVFTMHVPOVlpcWN1TnNSMWM3bl9qbEI4M0RKRm5BbjFwaDhUS0ZU?oc=5) |
-| Trump backs away from Tomahawk missiles offer in meeting with Zelenskyy - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5CS1gwR09CcEoycjdsRG1keDFrMVN5MTZ0OWJpR09GSDJmX0gweV94WkNFa1JpQUlZYTlDTUFxTWRWUnZ2NzktclNXendwWVpBV0ZDOGw5Y0RCTWlmT0Z5bFZYVnFrZzdkd3ZONnRFNU8?oc=5) |
 | Trump asks Supreme Court to allow deployment of National Guard in Illinois - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOczZmd3lsNWR2TFdRcXcwVExxZ3U0aWNTaXlrZ011bU5OcEVSVGR0QURkaUxLdklRTEprV185WXBDai1uV1FaUFFQdU5wUmxZLVlxZHdRc0ZSazVYOU13LWhTRENXVjd3TXlmazJKV2xQamxraFZfUlJjek1HZXd3WjRIZk9QeG040gGOAUFVX3lxTFA3Q2tRYjllTXlRRy0tUEdpS0c5TVlOdVFod1ZkejA5eGU3dzQzSjFCTklsMFJoRWFvd3BlVXBuZlFCdFJRN0N0LTZhMDdvNUpVREh1REpwS3piWEg2a1ItTVRiVUpBdjBrZi14Z3dFR09oNGpUdHRjWlk5Umdlb20tOGlneGZiMThNU3RKbHc?oc=5) |
 | GOP tries to brand anti-Trump ‘No Kings’ protests as un-American - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQMTNVUkotbEctUGd1dm84NXFYLS0zMVhPWUhsSnhMTGxxZE1Bc3N4UElETTduUFFEdkl6SmJIa0RGME1XZDloUDYyRTBndzhkM1R1V21SdWIybGhhbmRpY25TWEpNaUxoRnlkc0hpOWZhaWVEVGNJZEVCd3l0QjJfVVlJY2lfd1dhTko1T21R?oc=5) |
+| John Bolton pleads not guilty to criminal charges over allegedly storing and sharing classified information - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQOWgtSnlhRlh5NHRGZG5JYnJ5bE9oYVFYOTdRcnNBWGhMakh4MkkyekFmTERHeFJXMmZxaWd6dmZVeThuQ3ZaM1F1b0V5ekc3YXFNUFpubzJpS3ZwdVhPaXNpMFZSajFHcFBBX09fM2VrQW5FM1N1RmV6Wl9LcE4yVDdHa1I1dnpvcWVHR1JxQ0Z2bTlsWklGTjZfUU8?oc=5) |
 | Benioff Apologizes for Saying Trump Should Send Troops to San Francisco - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPZ01PZ0ZfZTZUMENEUHYwV1NKMlV4ZUVuNFYwVjBlcTY3bFYtU09pTjNpMEdKbDV5dnhJd0ppaGlSX3FoaFdpTDBzZDRGWW5MZ0pIWGtBdVRSWkJrVG5hLTk0VkpLS0JhSmZEN29pS21XbUZ3c2l5cEROZHZiaWRwbQ?oc=5) |
-| Landmark global shipping deal abandoned under US threats - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE51UzBNS0syQ1d3cHNLdzVlUlN6NVpsOUJkMGJkVVkzanRRN2pza3p4N2F2MmRnclNDWEtRT1VtUkd3SkhoZGFUVkxFYl9EWUtSZkpTTUJqcnAxZ9IBX0FVX3lxTE5YbHYyMHdjM0ZRVmFJSDYtN3YxcWRKN3RpaEtyeXpVUGlIWVlQNDV3WnppZ3pGNkozY0gtOGd6ZHg1NExGdmcyNzBuZjZqMmU5cUxxaGR1a0RoWXlSYlp3?oc=5) |
 | With no takers yet, White House sets meeting with colleges still weighing an agreement with Trump - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPOU1FUHJsLUxxMVhPVnQzelJPZ2IzWkx2VkxsN19ZYW5lYjNFNVNpbWlMT0ItR3lsX3VKLWdiam55b0I5OVBMWXdMbFlmTkY5VWRXZG13MEwzbzlZN2p3dVdEbkVfcXJXZXZiN2dONFh3Y2R6T0FDT1dDMHQtTS1zRm5pblBxbVhqZ2s1aUZ1UWdVUE5IOVFCQml5aDlXYmRq?oc=5) |
-| Andrew Cuomo is still behind — and he’s blaming Curtis Sliwa - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOY1RhS0NSWGMzczc4MjltU3d3WUhCb3Y2R21RNEM3UElnYmU1WldCMWxwQzZaYlRiakxKN0hWQk92LVNFTUxabnNBN3ZKVHB0UzRrR1V5dllvRHpYcEYxNGE4U29uWnVTWTNtYnNrZmZVZ240aGFldjRGTnFOUnE3a000RGFnNWdkRV9BMjRDUHdCUjBzNWVVZnh4NnFZSEUwR0dQVFpmV0RtUDg?oc=5) |
-| John Bolton pleads not guilty to charges of mishandling classified information – live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxOR1VsXzBIVDdRSEpKcG1fZW5KaC1YbDlock9JNkg4QWU2TWpuSHVmNkQ5bzhuOTM4SXBCZ0Fhb0VnbHpLNlRwc1hJMWx3ZHJNS0FqTXdXNGIwNC04b2NRa1JicERreVZFOHhENTRUazFiRnFDdTJnLVNCZkVvU3ZQZGo0LTFJWU5TMjlicDhNSDNfbG9kajV3d2dDNVNDdWJ2VEd2QVJrY0xNVFp3MUF4RHJxNjdreFVrc19aNDFIYzFPOGYyX2MzWQ?oc=5) |
-| Donald Trump says Nicolás Maduro does not want to ‘fuck around’ with the US - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1mZTFqWUdjZHNSQ04wTDVXM3Y2M19vSW1jRHgydWh5eUdNMklvMXl6ZDV6Z2dXYXdWS1Bpc2ppRV9hRXRyOTV0RmZNNXd2SlFvdGJrQWhvdHNCcnMwX05NVnZNcFNXSmF1V0FxcGVxS28?oc=5) |
+| Cuomo All but Begs Sliwa to Drop Out. No Chance, Sliwa Says. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFBHT1JzQ0RTWHVtTV9HM050ZHJpZ0NaMU5HNHpOR1lPNjJoRWFPV3U0YlVOTU1HeVZDb1dBUmx5MkM0Rm5jZVNRei13RHlUNmp6Nmd2Tm4xRlg3Q2FIMXVxUlBRcllKUEthWU04S3JrTXprUzQzOEUw?oc=5) |
+| Man convicted in Etan Patz's murder must be re-tried by June or released: Judge - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPbjN4RWY1UTJBaC1LVzRoZEVYOHgzNS1FT3l4a0JqdmpVekhjZEd5MVJZeE4tUXliQVROaG8tSi1yLTBwd3JPdnlDVEd1em1jMk1uV0tBMmhJam5wLVFwUXBBaEM3RF9pUnd4M3E1alFjZ1JsdVlSOVFPQ2RCcGl4RlN3WlZybXN4OEZoZWdkM2NiQ3pDTGNWdEdRZC3SAaIBQVVfeXFMTjcwcmZLRVdDTjlmcFZQSEJDS3hSOHdiN0piWFJsVXlwbWxpbGZzLVlFU2ZiN1pyakpjTldUaFM1WEVoMTAwRmNXb0FVUU53cXhYSXJYNzE0V2JmRTBrb3MzLWlaZlB3cW9qcklja1Q5dGp1eDc4QlNKWTBpUnNVdnhsdzVqOUg4TXJ1YkFwZjhEZ3Vhb3k1SjVXcjhWTnV1ZF9R?oc=5) |
+| Man who fought for Hamas in October 7 attack fled to US and lived in Louisiana, FBI alleges - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNTkpHcDY5NW9TcUhXZjJxRHVCS0h1YjlSaGlKVlV1cnlNUkpGR3RMWHRnNXZZU25qa216ZWpHZWtHLVF3RWxiQlFTeWg5QjQ4WlhSQ3RSdHdEUkNtejV6dXNOVWZWTWhKbkpDZkhvRGlsOC1BeC1jZmU0blExVjFuaA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
