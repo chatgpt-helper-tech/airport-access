@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月17日 12:01:29（北京时间）**
+🕒 更新时间：**2025年10月17日 12:08:14（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump says he will meet Putin in Hungary for Ukraine talks after 'very productive' call | [阅读全文](https://www.bbc.com/news/articles/crmxz37nv3zo?at_medium=RSS&at_campaign=rss) |
+| Zelensky to make missile case in US after Trump-Putin phone call | [阅读全文](https://www.bbc.com/news/articles/crmxz37nv3zo?at_medium=RSS&at_campaign=rss) |
 | 'Wrong' to block Tel Aviv fans from Aston Villa match, says PM | [阅读全文](https://www.bbc.com/news/articles/c205gnz5p8xo?at_medium=RSS&at_campaign=rss) |
 | Former Trump adviser John Bolton criminally indicted | [阅读全文](https://www.bbc.com/news/articles/cgql2qzkz5zo?at_medium=RSS&at_campaign=rss) |
 | Sam Fender wins 2025 Mercury Prize for album of the year | [阅读全文](https://www.bbc.com/news/articles/cp3dnjd9g4go?at_medium=RSS&at_campaign=rss) |
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | John Bolton Indicted Over Handling of Classified Information - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPeU04U3VBT2JOelN4QmNpanFxejlhRTMzbTU0SnZFYWdnZFJqWVhhTVRlVkdsZ2p5UzAzeFBSempfX3JvckZZZUs1UENNQ3Y1ZzlTYkxJRjZobkdzTnktR3FSb0RYT2xEaHdBd2NVUWJqQXZwWEZ6amhPY1VSajBOWjdwaEo4Vjg?oc=5) |
+| U.S. military strikes another boat in Caribbean — and there are survivors, official says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBkWkN5OUl1YlJmRFdEVWk2VER6V0ctR2daRkk2eTRWVlJhQThaU3o3ZGxIaU1ZbmNsdmdFVTdVaEhaRzJDMmlpT2tidVhyZTlaUVgtN09wTEUzM2xpQlBWRkhJTXhOZE1GdVcyWTZaN3FZLV9NQnV1Q3kwONIBgAFBVV95cUxOX2JtNzZBZEVCbWtrTFpmb3pnMnlCNVZGaDVnZi1BR19yTU5EWWdmMlZOaV9OZ1FUeFIxMktZXzFtVWQ0WlJnUkJMNnM4OXhYQXgycTRlTmFCV0FGUEl1cHF3T05ycGNuM1IyQXZ3WVFvTnBIZFpFdHlVbllGR2lxSQ?oc=5) |
 | Mamdani, Cuomo and Sliwa spar in New York mayoral debate - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPZEtIVWNWR0tzMlZrS1JILTJOUTBGVjlKdmtkTVpCR3Zlbk1KUm5rTHFrZGhkYWwyZGlEblVtUFIwNjZwUnJ3aGN6UWQ4dFhRWE1uczg3UW1TY01VVmV2bXBwVTRxU2pJZVM2LU41aUUyci1ZS0ZNNGliWUVhSVdhakh0Yk90UlMzZ1JMVUU3cmFYc1pyQnc?oc=5) |
-| Exclusive: In a first, US strike in Caribbean leaves survivors, US official says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPQ2M3dVJFVlNOQ0h0S2NXU3Ric3dxeWhXTURzUkpIQ3pxR1NLcUh5YjdnLVpMdzBzOFRWTzdRdHotakRrV1JBci1QdXBjb1RZeGZCTjgyeVJLTmRVaEtUMEg2cnhWaFRnNlMtMURTd0FnYWhveWV5Y3FRdlNxeTJNUl9UZXAxc0lEWGJxVUVpYjNfb2JTdkhIUUhGdGhOY3Y3a0hBcWlOb2tqODdEMXBTR1p6ZzdkRjk5?oc=5) |
 | Trump says he will meet Putin again after 'great progress' during call - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9Fal8wR2g3bE8xR1BJaGExUlp0SE9TN0ZhdVRuNkdBak53akJTM1JFX1kybTVWaHJRY0lDa1pycm9pTm04cHJ4VTMxOWtrUVQ4aVg3VW9UekJnUdIBX0FVX3lxTE4wM0RyMy1vZk9NY3dCMGFtQ0t2eWFOQ1FLTUE3M3BPLVd5bDI1dWN4Y3kzSk9TejFkTEpBUU1sQjVfMGZRSFVoM05mei0tV0NtMmlBVV9Pd0VicDlpbHYw?oc=5) |
 | In Pictures: Remembering Susan Stamberg, one of NPR's Founding Mothers - NPR | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxQZFpqY3luYzRzMDJyTnh4NUxMd2hLU0ZKTVpCN1NqLXVwZnEyNFNNMmd5eXFKb3V1X3F2N0paTmxPYWhrMEozMWs2NUpiNkJ5TmY4WGtsS3o0V3k5b1p3Q0ZxSVhaeVJzYi1wZVpRRWdILW43RjdFck40U2Q3M2x6eHVXdTBHSlVyeWNsaGdZYjczQXBNMTRTd1V0a0RsODZVelItVS1pVWlJenNLdWdmSGdReDlkekluejlCTjI4MHhTblV4V2xvMEdyWW4wRG9U?oc=5) |
 | USC rejects Trump education compact aimed at shifting the university to the right - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOMFQ3cWxpNEducjF4R2hoemdnU0dmX01HSUVXUGdDVk1wRHlUSGdPeHkxRC1vdkJZZExWZjA1VkYxQ1h5UkwyU2xaUEVwbERsbWtEdm5oLWN2WUo4TDdvTkJLbU5oMkZKYUNnb1JBVGlTRWQ4eXQ4SFR3MnlEaWlSYTVRZGk4NWRUSnBoaFdodzU?oc=5) |
