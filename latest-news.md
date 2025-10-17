@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 00:33:12（北京时间）**
+🕒 更新时间：**2025年10月18日 00:40:14（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | Venezuelan fishermen in fear after US strikes on boats in the Caribbean - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5PQjVQelJwVGhTY2dGSzlPYzY0Qmg0Z3M4MXFNVWdSVjdvbHNhSkxQY2MzTWRHc0VnaWI1OXpKQ3Iwem13Qy1wUldlMUVVU1ZyNGw3TlJsQ1FkQdIBX0FVX3lxTE5YOGJodnZHclFsLWVuM3VES3FRQllpUFBlemFzTU5WM1FGckNuNmJQSWlyWldvTXIyUmxZeS1PbEZoWWZidjBrTFU4ZXEtQlVqbGY1UjV6bjFpclNFS2hJ?oc=5) |
 | U.S. commander overseeing attacks against alleged drug boats off Venezuela to retire - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOZ1k4WlczeFJ0WGJwYW5yRTBmaXp1OVdqN3cyVGtqZFRhSjlqSm02N21zelVDLU9pazVVWDhnc2RhR2d3dF83NEtjbVN1clRUdlZoVmpTZ2FCY2lzSkZzVEdtVUpiY2xwZnV2S285a1ZiOVl2Njk0S1QzanhGTkUyWjdUVnExNkFET19BSXNQR2d3SnplUXc?oc=5) |
 | With some shutdown pain points delayed for now, talks in Congress are 'nowhere' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQaHo2OVdvVl92OTJ2VXBaMnZxaTA1WmtWQmRXcWdPeWhQYi1pcTVuY0dPMkJVd0oxX0c3SlVNMExkWmlhdFFqRVNESW04RjZwWU4wZmZYT1phN1FKOWNPSHFmRTNHQVM3WTZxcC1Cd1JxMkZWVjdlQWx2QjNYU1pHbnRlVlBZdw?oc=5) |
-| Mahmoud Khalil can travel freely around the U.S. as he fights his deportation case, judge rules - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNem1ZVjBKZU96amk0NVpfYmJBOHBMaUJwUnp2d01TUTc4UDZDMUM1UGhYS1llYk85Y0dldk0tVVF0WS1LYVVfNWpncms3T1BYQ0pzdWlOX0dhekRaVDhiUTJ1b2tYWGxnRElQT3BkQ0lUaVVkQTFUSGhvZmlfdHptVHFZdVRHVkt4YzBIRlQzTWpkUk9IVXh2YXctZEN1WmJPNUtHSHU1RzVTWmI3Y3NaYUd6UXNrRVBrTGfSAVZBVV95cUxOMHpDTHBJOFVGakdJRkxiWFNuVWZKdm1Eb19nUGNpb1E4U1NOMkliYTFFek9GTzBGQkd4YWlHb2E4bkNYSUtpU1Z5ZUNNbklDWnVUUU14dw?oc=5) |
+| Mahmoud Khalil can freely travel around US as he fights his deportation case, judge rules - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQY1ctbExscGI3SWVRaEF3ZGJ0UHhDNjlDcnpKVzNZMXdmVHNESURueXNJWk03NzMtaXdyRkJGYml3bjlZcXE1Szh3ZU03TzFXeVJsLXFCSmRfNXVBcHVMckw4RkNUZ3ZzQkFLN3VOTzhTNFdwQUhrLXVndTBPV0JzTFRaVzZtZ0NVeW1zS2E4U3RoWVl5SGQ1Vg?oc=5) |
 | ‘I'm ashamed’: In debate, Virginia’s Jones apologizes for violence-themed texts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPbVh0LTdoLTNfUlN6ZGNfZGs0SHNwUlpQNGQzNkJMM2JwMEJMZXh3bnl4a1dKakJVV0lUNmVPVVVzMkhvQ3RUVEUweGg0UFB3WkFCMlJlUldaQUI2TElpQVd2NDFYcmk2NjNKcFNyN0FuX3l5cG1PRExfYTdGbFVnaG1UempFVS1Sc29qUWVXY094REE?oc=5) |
 | Top San Francisco Lawmaker Expected to Challenge Nancy Pelosi in Primary - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOY2Y3T2pPSEYzQ3F6NmllVEplR3FyRDh4cmZ4bVk3SDlnaF91Wk0tOFVwR1k5aUJYVDU4RFRRY3FnRDJGU2RSaVF4T0ZTZXd4RkpDaDhUUndqZW9GT0Vlc3A5dWs2UDRlbVFDUjhGQUVvTXZEc2hFOEpQbFVESS1EcU9lTQ?oc=5) |
 
