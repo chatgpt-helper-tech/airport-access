@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 03:24:06（北京时间）**
+🕒 更新时间：**2025年10月18日 03:32:52（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Bessent Stakes Credibility and Taxpayer Money on Argentina Bet - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQRlVQc3hjZ3FnUVFQdkdqNk9CeDRtZTB1LVZrbFN6aTBxTVFDT1dxUmYzNGJCakxNeVNTNk83dk5NYmJWdWI3T2hwQnVKZGVjdlpyYUEzb3ZZQVg5WWxoNW9DLWV3LTdsXzc4a2k0clJtMXBzWHJuTkpncXA1YjlFSHc1MXBMa0R4ZkZN?oc=5) |
 | 6 takeaways from the debate in Virginia AG race rocked by a texting scandal - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPVGVDLXBTX0doTTF2YWZGR0xMT1FVdFVYdE9BU3JFZzB4QUR3ZzZOeDVxc1dLTzRkS1pGdXFYMHhQdmVTX3NsbjBLWkdaZnRmZk03Wk5XdXB5T3hqa3FVUzhGUkdpOGdiZ1l2dm05VFhiWWZaSjVkTVhhNnFkRklhTzh2WnNmN1dNcXdpX1laM3NmV3RncGhycEdobkgyN2c?oc=5) |
 | Penn, USC join growing list of universities declining Trump’s federal funding deal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPWlBkZV9VLWNNcWtoU01vOGJuQVZzanl1eWI2UjJTWnFZLUJ1WGNZalNfRGZFa2N2dVVwSjc2R1haMzJreXdKV0NvTGN0ODlDWmloal9ObndhM0NHa2p0OHlsR3E1RGlWWk1IRjJGYnZtWmM2TVh6ZHEwR2dKVzc1cjZHQWlzZw?oc=5) |
-| Man living in Lafayette arrested, accused of participating in Hamas-led attack in Israel - NOLA.com | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQTGRaajJianAycXpNaGg1S3FwaVZnczVMdG8zbnZYR091S1p1WW5ZcTdxRk1icmJSeWdzdVFQa2UxV0JjNzBkTENqeEpEc3RqTHBfYTVuWlRmdFV1RFoyZS1GdTNRT1dudHNvSldzcDhoR3ZieGduM09rYzVPTm5EblhHU1JHWE8xLWpRNEh0Zmg5NU1MU084LW1IZ3dXZTdCX0IwMWpkRmw5S2M0VzluVWxSaDNIREXSAbwBQVVfeXFMTk9pTFdEWFNZdFZ3M3lNMzZuOHdvWG9xUVZrQVBwd19oMTNkc2xkMDJpaTVxY2dCTU9hYXhOdzVHVkVZVVpleVR6Q2xjSHRuSnFvamJ2SUs3SEc0NDd2VEVZVEp4QkZncUdVb1UxWTRHbEEtdTdEaHQybElxX21xem9BZV9aZ0Exck1VQkJqTXVCOU8wbTVMendqU21POWMxNlowY21PdG95TFZqNHE0LWdmNmtKdFZoem1Ybi0?oc=5) |
 | The Top Zingers of the Mayoral Debate - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNMVhEY1ZmclRTVTl3d2FwT2VObUJ2ZmEyNXJic2lyUVFlSEZ1NmRrMWFoU2VySExULTBQY0V5TUhyVjhQX1M5c3ViMlRhWDVfSHlsRjZiSElSYldRQ2g5VHAxQThwWklqbnpDLU53Z2kyYk1saFA2YXVoOEY5eHNneg?oc=5) |
+| ‘Gas them’: How a leaked pro-Nazi young Republicans chat sparked GOP storm - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQbldudXl2MFliNEZPRFhrbkFBTVR2dVBOcGMxcl9rbktjYzNaUmtZdzJRNHlVRERwRlVxSERmcWlGMzVwaER1UkRlc09SMDhrZDFUNjFmZEFicmpyNUxqbzJ0cEF6QTI1WnJscUNKd3FOOHB3eGdyZGp6cEtNMGNPTGhZVWYzZHcyWjBsUzJwaGhnLVMtRktDWWhTcXV1X0RnbjNqSWhsSVRoR0FYdmxRU2pWUdIBuAFBVV95cUxPbnR0QUZzTXlBY0tGN2lXSGZzVGF0WHdLRmhBVVJIY1lhVnBfSkJ6a0ZvWnh6SXhhUEViSEl3dTNBTGV5STdmNUxIVjlDczBTQWtEckJibGtmR2NBQmxTV2Z3Z2FvVm5HWW5zTHd5WW8tdGwyY1R0eGVvd2Z5MUFMb3pRczI1QlBaTFF5OXVCb1VoeWdCajhhZl9yVlJKelVYN0huT3NlZzhzYk94cllVanZ2MV8xQndN?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
