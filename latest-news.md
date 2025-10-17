@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月17日 22:24:35（北京时间）**
+🕒 更新时间：**2025年10月17日 22:33:41（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | A war on drugs or a war on terror? Trump’s military pressure on Venezuela blurs the lines - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNZzA3clF1cml1WDlETjhJaUFBVXRfdy16Z0FUeDJPNHQ4anlEbjFMX3pPSi1MTFR3WnZWandRdEFiaVBNZkgtRjAyN3RxXzM4RkFxZUJBaE1KWWM4LWc4UzE2UlJWUy1lSFdPaklKTGg4am1HMzNWbWlrMkxuX0QzN2FyUzBaY3RRZGM2NEpRQUZqUE5ZUTU5djJzeGlaNzNybEE?oc=5) |
 | With some shutdown pain points delayed for now, talks in Congress are 'nowhere' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQaHo2OVdvVl92OTJ2VXBaMnZxaTA1WmtWQmRXcWdPeWhQYi1pcTVuY0dPMkJVd0oxX0c3SlVNMExkWmlhdFFqRVNESW04RjZwWU4wZmZYT1phN1FKOWNPSHFmRTNHQVM3WTZxcC1Cd1JxMkZWVjdlQWx2QjNYU1pHbnRlVlBZdw?oc=5) |
 | Zelensky to make case for long-range missiles at White House meeting with Trump - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5peHR5d3ZtaUJUcVNiLVBrV29wVkM2aWdzd3BtQTUwdXlXWkxRdVRWOWh0bmxpUWZPZzJMcVlHMVdKbUVFVnhDaHNRQ21mOHlvVGhVcw?oc=5) |
-| Virginia attorney general debate centers on Jay Jones' violent texts - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNb20xeERCUkVXbTFLbXpGeFJSak9tcHUxdk5ySHpwRHZMZ2NqMGhHMmM2U2JGejFiQnQ1RG1QUTZKaHFRR2tJaHZOaDdQM1FyMXY1a24xSVh0UnFIRWFXUHdJSWpsUXBVUldNc3pwMzJTYkM4N29vTm56UENhbzRWNVE2QzFMdExsOTZvdFJwYVVaN19ZdzV0VzJRWlhkMkhfeGJtUVZHUWlGMGkxZDJV0gFWQVVfeXFMT2xXQVFTQTQ2TFRFUTY5UDFYb0J0TS1rOEQ4Rm05Y3U0NzliUFlWSTR2eU1WVGg2MVl3bHZXQXN2d0EzcWxTbVl5WWxpSHVwUlhyclNaVnc?oc=5) |
+| ‘I'm ashamed’: In debate, Virginia’s Jones apologizes for violence-themed texts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPbVh0LTdoLTNfUlN6ZGNfZGs0SHNwUlpQNGQzNkJMM2JwMEJMZXh3bnl4a1dKakJVV0lUNmVPVVVzMkhvQ3RUVEUweGg0UFB3WkFCMlJlUldaQUI2TElpQVd2NDFYcmk2NjNKcFNyN0FuX3l5cG1PRExfYTdGbFVnaG1UempFVS1Sc29qUWVXY094REE?oc=5) |
 | Overdose in America: analysis reveals deaths rising in some regions even as US sees national decline - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQdUNtNVh6RTJHS3ljY3lZbTBnMzRORmJVWFF1REZ6ZzBLVmJoZGZPX181eGpnUU93N212UDdtc2tpQjdRNGZRdXNqejFnRmdQQ1kyY0Uxc1J2eDNpSHZ4ZHV5UF9DTnBTWm1faTRxTXVQNnZndU1aS3M2S3g5RUlUUWpNZ2lVbGUyb0pBajBOR3pLRU9TenJJ?oc=5) |
 
 ---
