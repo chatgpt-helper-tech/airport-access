@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 00:01:25（北京时间）**
+🕒 更新时间：**2025年10月18日 00:09:09（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Sparks fly at first NYC mayoral debate with Trump weighing heavily in the air - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxObzQ3VVIwOVQ0LThwXzlJbnROREMySUUzMC12Y1dNZlBOSnhTbFdxWHFPdHllQVNDRzVMemN3T2VmZTdhNlU3OERtS0RWSGF2OE9KUDEwV3RNMWFYdFV3WkZ2N1pvb1REWTdGZGZyendobWpiM2poTEl5WF9YWTFtdTF0RDJDaENQX0hveUdZS0hLWXI1NHpjYVY4WDkxbHg4R1dBTjFuNU9sYTZsUzhpV21n0gG3AUFVX3lxTFBiT09melZNcnNLd29JRy1QRjRwSzZSSnNpRThJb09wb0REWXRHYnplT1pqQ1RKOTNYTGc1SlRRZUxMa25JWTJyYVdFSlhaOUttMDhCd1ZaUUpONGV4Smt0SktlSG9MSlI0ZDhxRGI1ZlA1ZUZfbkFieWs3cXB4RDRseXVRVW9EcmdxZ1dhSDZ2Q1g2M0ZaSjNiU19qdzBoLXJVNC1naDJNa253VUhCam5CckxRRlFnZw?oc=5) |
 | Venezuelan fishermen in fear after US strikes on boats in the Caribbean - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5PQjVQelJwVGhTY2dGSzlPYzY0Qmg0Z3M4MXFNVWdSVjdvbHNhSkxQY2MzTWRHc0VnaWI1OXpKQ3Iwem13Qy1wUldlMUVVU1ZyNGw3TlJsQ1FkQdIBX0FVX3lxTE5YOGJodnZHclFsLWVuM3VES3FRQllpUFBlemFzTU5WM1FGckNuNmJQSWlyWldvTXIyUmxZeS1PbEZoWWZidjBrTFU4ZXEtQlVqbGY1UjV6bjFpclNFS2hJ?oc=5) |
 | With some shutdown pain points delayed for now, talks in Congress are 'nowhere' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQaHo2OVdvVl92OTJ2VXBaMnZxaTA1WmtWQmRXcWdPeWhQYi1pcTVuY0dPMkJVd0oxX0c3SlVNMExkWmlhdFFqRVNESW04RjZwWU4wZmZYT1phN1FKOWNPSHFmRTNHQVM3WTZxcC1Cd1JxMkZWVjdlQWx2QjNYU1pHbnRlVlBZdw?oc=5) |
-| Virginia AG candidates Jay Jones and Jason Miyares clash over Jones' incendiary texts in debate - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQcTAxUFR0aFVfN19ySkNKYnhhT1Z6YnZMT294eWRHNVZYNkxJWE1aTjhUSkxXbzRpOEs1MVMtZnJmZ0F3Y2dEUFU4M2FZTVliSjdleWZJSEpmTGhvZzRKLUZ3b0Y3Q1FyVWdsZGxGblRjTWFUUWg1aHJtYnRTTV9xemI0UnhGMjV5dWUtcUpMYTFuQTdFbjVJ0gGcAUFVX3lxTE5ORUU1eHNwcW91bk9fLVVNelp5MGQ4QmZPVC1va2NQX3dXcHJobTZISVNPZWRBY1Q0c0dmcW01czZQR0FJbGtLc3BYMFhQQ2poOW5pNnBwQ21kZ0JHcElUei1IaHlLQ3FSZFZYR2QtcjBaMUtmNmN0cWlnNlB1Xzh4dEFBV0lPR3BNWjB4bUNmc3FKU19xZF9YRmEtbA?oc=5) |
+| ‘I'm ashamed’: In debate, Virginia’s Jones apologizes for violence-themed texts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPbVh0LTdoLTNfUlN6ZGNfZGs0SHNwUlpQNGQzNkJMM2JwMEJMZXh3bnl4a1dKakJVV0lUNmVPVVVzMkhvQ3RUVEUweGg0UFB3WkFCMlJlUldaQUI2TElpQVd2NDFYcmk2NjNKcFNyN0FuX3l5cG1PRExfYTdGbFVnaG1UempFVS1Sc29qUWVXY094REE?oc=5) |
 | Overdose in America: analysis reveals deaths rising in some regions even as US sees national decline - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQdUNtNVh6RTJHS3ljY3lZbTBnMzRORmJVWFF1REZ6ZzBLVmJoZGZPX181eGpnUU93N212UDdtc2tpQjdRNGZRdXNqejFnRmdQQ1kyY0Uxc1J2eDNpSHZ4ZHV5UF9DTnBTWm1faTRxTXVQNnZndU1aS3M2S3g5RUlUUWpNZ2lVbGUyb0pBajBOR3pLRU9TenJJ?oc=5) |
-| Top San Francisco Lawmaker Expected to Challenge Nancy Pelosi in Primary - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOY2Y3T2pPSEYzQ3F6NmllVEplR3FyRDh4cmZ4bVk3SDlnaF91Wk0tOFVwR1k5aUJYVDU4RFRRY3FnRDJGU2RSaVF4T0ZTZXd4RkpDaDhUUndqZW9GT0Vlc3A5dWs2UDRlbVFDUjhGQUVvTXZEc2hFOEpQbFVESS1EcU9lTQ?oc=5) |
+| Mahmoud Khalil can travel freely around the U.S. as he fights his deportation case, judge rules - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNem1ZVjBKZU96amk0NVpfYmJBOHBMaUJwUnp2d01TUTc4UDZDMUM1UGhYS1llYk85Y0dldk0tVVF0WS1LYVVfNWpncms3T1BYQ0pzdWlOX0dhekRaVDhiUTJ1b2tYWGxnRElQT3BkQ0lUaVVkQTFUSGhvZmlfdHptVHFZdVRHVkt4YzBIRlQzTWpkUk9IVXh2YXctZEN1WmJPNUtHSHU1RzVTWmI3Y3NaYUd6UXNrRVBrTGfSAVZBVV95cUxOMHpDTHBJOFVGakdJRkxiWFNuVWZKdm1Eb19nUGNpb1E4U1NOMkliYTFFek9GTzBGQkd4YWlHb2E4bkNYSUtpU1Z5ZUNNbklDWnVUUU14dw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
