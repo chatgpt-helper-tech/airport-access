@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月17日 21:33:36（北京时间）**
+🕒 更新时间：**2025年10月17日 21:41:55（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| John Bolton at court to surrender to authorities after being indicted – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxOR1VsXzBIVDdRSEpKcG1fZW5KaC1YbDlock9JNkg4QWU2TWpuSHVmNkQ5bzhuOTM4SXBCZ0Fhb0VnbHpLNlRwc1hJMWx3ZHJNS0FqTXdXNGIwNC04b2NRa1JicERreVZFOHhENTRUazFiRnFDdTJnLVNCZkVvU3ZQZGo0LTFJWU5TMjlicDhNSDNfbG9kajV3d2dDNVNDdWJ2VEd2QVJrY0xNVFp3MUF4RHJxNjdreFVrc19aNDFIYzFPOGYyX2MzWQ?oc=5) |
+| Ex-Trump adviser John Bolton surrenders after indictment - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE85UDFPWEIxUWFBZkJuMnQxaXRMMFhEeU05aFAzeFRxa2lOdFdYMWU1TWpyVDBRN3ZsY3ZuY1hST3lBV0ZKQWVkX19jZzh4NVltUXhJWHRSQUY3Z1hadV9iLVZxVWRveDAwbUVINENpckxJa1N1Vjl5cmd4SXZwTEk?oc=5) |
 | 'No Kings' organizers project a massive turnout for this weekend's protests - NPR | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9xbWZQbmFOa3lKSHZuOVFlM3U3cHJZcm41VFR0djJEMGRvU3ExdmtScHctQjlrc3kxVWduZ2JWZmowT1A4MGpoVXZORHRJYVYyckVJanZ3V2xKUWRhdU5IT3M2OWpCQVh5YmlDZDV6MW5zSElGeGJv?oc=5) |
-| Zelensky to make case for missiles at White House, after Trump and Putin agree meeting - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9Fal8wR2g3bE8xR1BJaGExUlp0SE9TN0ZhdVRuNkdBak53akJTM1JFX1kybTVWaHJRY0lDa1pycm9pTm04cHJ4VTMxOWtrUVQ4aVg3VW9UekJnUdIBX0FVX3lxTE4wM0RyMy1vZk9NY3dCMGFtQ0t2eWFOQ1FLTUE3M3BPLVd5bDI1dWN4Y3kzSk9TejFkTEpBUU1sQjVfMGZRSFVoM05mei0tV0NtMmlBVV9Pd0VicDlpbHYw?oc=5) |
 | U.S. Military Killed Venezuelan Fisherman in Suspected Drug Boat Attack, Family Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQaUs3MXRGd3lUWnBqOGFacFF1VlhPaE5wVXJCZ3ZUVkdmWE5OUWR2RDNGMTBDSjJ3YVd2WDh0QnlEMHJoUzNFUXRuS3JVemZBYVlUcGFJeG0xWVlkZzVCWjJhZ1JjcWduMnkxZlVTcEhXbGlxcEF2aVNOVEY1bUV1TnQxNXVILXN0ZTFZYWpReGdGMFpTdHc?oc=5) |
+| Zelensky to make case for missiles at White House, after Trump and Putin agree meeting - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9Fal8wR2g3bE8xR1BJaGExUlp0SE9TN0ZhdVRuNkdBak53akJTM1JFX1kybTVWaHJRY0lDa1pycm9pTm04cHJ4VTMxOWtrUVQ4aVg3VW9UekJnUdIBX0FVX3lxTE4wM0RyMy1vZk9NY3dCMGFtQ0t2eWFOQ1FLTUE3M3BPLVd5bDI1dWN4Y3kzSk9TejFkTEpBUU1sQjVfMGZRSFVoM05mei0tV0NtMmlBVV9Pd0VicDlpbHYw?oc=5) |
 | Sparks fly at first NYC mayoral debate with Trump weighing heavily in the air - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxObzQ3VVIwOVQ0LThwXzlJbnROREMySUUzMC12Y1dNZlBOSnhTbFdxWHFPdHllQVNDRzVMemN3T2VmZTdhNlU3OERtS0RWSGF2OE9KUDEwV3RNMWFYdFV3WkZ2N1pvb1REWTdGZGZyendobWpiM2poTEl5WF9YWTFtdTF0RDJDaENQX0hveUdZS0hLWXI1NHpjYVY4WDkxbHg4R1dBTjFuNU9sYTZsUzhpV21n0gG3AUFVX3lxTFBiT09melZNcnNLd29JRy1QRjRwSzZSSnNpRThJb09wb0REWXRHYnplT1pqQ1RKOTNYTGc1SlRRZUxMa25JWTJyYVdFSlhaOUttMDhCd1ZaUUpONGV4Smt0SktlSG9MSlI0ZDhxRGI1ZlA1ZUZfbkFieWs3cXB4RDRseXVRVW9EcmdxZ1dhSDZ2Q1g2M0ZaSjNiU19qdzBoLXJVNC1naDJNa253VUhCam5CckxRRlFnZw?oc=5) |
 | Senators will force a vote to prevent war on Venezuela without approval from Congress - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPU05nalBzMGk2dUVhVTVZUjlibmNTRzJNOWsxeE5BOFBuQjhkN3FtQzRta1NrckxfWjZqZUk5Rnhxa2hLMWpwNHYzbDNyenpuc3NjNDZaRWpwajFRNEJ3TDlxSWpnakF5SE1xMGo4Q21xTU5hTGltVUNZTlJ1S21sbnJaQk1iS0k?oc=5) |
 | With some shutdown pain points delayed for now, talks in Congress are 'nowhere' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQaHo2OVdvVl92OTJ2VXBaMnZxaTA1WmtWQmRXcWdPeWhQYi1pcTVuY0dPMkJVd0oxX0c3SlVNMExkWmlhdFFqRVNESW04RjZwWU4wZmZYT1phN1FKOWNPSHFmRTNHQVM3WTZxcC1Cd1JxMkZWVjdlQWx2QjNYU1pHbnRlVlBZdw?oc=5) |
