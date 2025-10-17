@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月17日 12:33:56（北京时间）**
+🕒 更新时间：**2025年10月17日 12:41:44（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | In Pictures: Remembering Susan Stamberg, one of NPR's Founding Mothers - NPR | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxQZFpqY3luYzRzMDJyTnh4NUxMd2hLU0ZKTVpCN1NqLXVwZnEyNFNNMmd5eXFKb3V1X3F2N0paTmxPYWhrMEozMWs2NUpiNkJ5TmY4WGtsS3o0V3k5b1p3Q0ZxSVhaeVJzYi1wZVpRRWdILW43RjdFck40U2Q3M2x6eHVXdTBHSlVyeWNsaGdZYjczQXBNMTRTd1V0a0RsODZVelItVS1pVWlJenNLdWdmSGdReDlkekluejlCTjI4MHhTblV4V2xvMEdyWW4wRG9U?oc=5) |
 | More "No Kings" protests planned for Philadelphia region this weekend - Axios | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNdDlwUXo2MHBBakFxQUZxT2k3czROYjJlNzBEcF9tWWRBUm5RZ3QtSlpWb3hEX29rZU1Vajl2cFF3RFF4UGt3MFU5OG9iQlR3NmxTM29GU29nQmpRcTZ5TmlMbk5QcFFGZTljVy10S3kzMVFOeHJYYWc1UkgxeEhVQ0lLa04zRlBGcmlrRzVtd3JnejlOUklwSVNFZXdEbVJmM2g1RA?oc=5) |
 | USC rejects Trump education compact aimed at shifting the university to the right - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOMFQ3cWxpNEducjF4R2hoemdnU0dmX01HSUVXUGdDVk1wRHlUSGdPeHkxRC1vdkJZZExWZjA1VkYxQ1h5UkwyU2xaUEVwbERsbWtEdm5oLWN2WUo4TDdvTkJLbU5oMkZKYUNnb1JBVGlTRWQ4eXQ4SFR3MnlEaWlSYTVRZGk4NWRUSnBoaFdodzU?oc=5) |
-| One of Alaska’s biggest airlifts is now underway, after massive storm - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOb1ZTSGpQZU94Q2REbWJGOFFSdWNEZ0pmSE40c08xc3ltVG4tdWtYcFVFWEl5c3kyQ1VPYjl4Y2VXSTBIUmhkbFZkcGtxSzlIZWVsaW9ZRUxleG11blZldFc3VkFpc1lfN25YVWljcUg2emhlRlVNemMwcE1wQkpTbTJPaUxYd0xndmRGZFZ0YndaLXBBRzV1ckRkRWJWTmNP?oc=5) |
 | Maine Senate candidate promoted violent political action in since-deleted online posts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxNalRRN2RIQkZWQVRYVW1UZDZIdERHYk56elNXTjJSWkFXbHVaVHpId3lIX01nUXk3ZjJ3eFN6SGtfNXZMU2tDSk9DNTRoVmkwNDlYa1NyTXNxR2ltZ2t5NUdsS0xKanVJeGc2enlSd0YyY0lBN0l3MVVxVExWc2tvbTV0MjByY1ZyelNzb2FFcVVtRDRjRy1wRG9YRVlJMVdtODdCR0dxVFJ6ZXVsbkdNUGh4SHRoYnNWWXl3OW5ic2cxNVlXQVFRQTZXOUhwSnBwZnc?oc=5) |
+| One of Alaska’s biggest airlifts is now underway, after massive storm - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOb1ZTSGpQZU94Q2REbWJGOFFSdWNEZ0pmSE40c08xc3ltVG4tdWtYcFVFWEl5c3kyQ1VPYjl4Y2VXSTBIUmhkbFZkcGtxSzlIZWVsaW9ZRUxleG11blZldFc3VkFpc1lfN25YVWljcUg2emhlRlVNemMwcE1wQkpTbTJPaUxYd0xndmRGZFZ0YndaLXBBRzV1ckRkRWJWTmNP?oc=5) |
 | Senate Democrats, holding out for health care, reject government funding bill for 10th time - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQZlAwM0NMZFdmSlJTeWQwVkJKb0FzMzF5X1c3TGpRSVp5MGZXTTgyVVRDSHBqX3pkMzNRRGZuckJENGNIX3NMYm85M1lOMFNrVGx3b2k4d3ozbnpRdEtnT3JXbmJ4ZXlaaGFFVkt6UkFuY1phRW5mbjV6Rml4TXc5OHA3RUVOV2FtcGFOWVhKdzJmMmFydVE4YzE2S081RWpmc1FnbVRWWQ?oc=5) |
 
 ---
