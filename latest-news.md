@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 03:48:22（北京时间）**
+🕒 更新时间：**2025年10月18日 03:57:01（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | OpenAI stops 'disrespectful' Martin Luther King Jr Sora videos - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5JLVQ1eXFMbnlqbC1SLVpZVHJvWjFaSHlHYy0zbUd6WUJUMS1tY2F3aHBTc3JfSlAzQWN3MUNmTXNCTEFrZ0dxUVJlNTJiYmhocnk5RE9Fc29iUdIBX0FVX3lxTE9GMkF2OFZBd3ZSM2ZYRC1JSll5M2dQWEQ2ZExSYzJ1anBYZDdUeVhrUnpldDdURzBYelJGS3d5VUpUZmJiWURJbndKdWZ5dlBBbENPOE5OaV9zWF9QRFZz?oc=5) |
 | With no takers yet, White House sets meeting with colleges still weighing an agreement with Trump - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPOU1FUHJsLUxxMVhPVnQzelJPZ2IzWkx2VkxsN19ZYW5lYjNFNVNpbWlMT0ItR3lsX3VKLWdiam55b0I5OVBMWXdMbFlmTkY5VWRXZG13MEwzbzlZN2p3dVdEbkVfcXJXZXZiN2dONFh3Y2R6T0FDT1dDMHQtTS1zRm5pblBxbVhqZ2s1aUZ1UWdVUE5IOVFCQml5aDlXYmRq?oc=5) |
 | 6 takeaways from the debate in Virginia AG race rocked by a texting scandal - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPVGVDLXBTX0doTTF2YWZGR0xMT1FVdFVYdE9BU3JFZzB4QUR3ZzZOeDVxc1dLTzRkS1pGdXFYMHhQdmVTX3NsbjBLWkdaZnRmZk03Wk5XdXB5T3hqa3FVUzhGUkdpOGdiZ1l2dm05VFhiWWZaSjVkTVhhNnFkRklhTzh2WnNmN1dNcXdpX1laM3NmV3RncGhycEdobkgyN2c?oc=5) |
-| Sen. Scott Wiener to run for congressional seat held by Rep. Nancy Pelosi, according to report - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxPZXplenVZSFdHTEpJYU5qWnprUEstYWJNaXd6eWtOeUk0bVZ3VElTOHU4bmU2NzlVdUhVbmJZQUJfdEk0ZEVpbkRQcWRBSWhuM0JTU3R0c001N2wzcXByOTBzX3NZN0gwSmFxSWowY2E1NEx1SnZDTHJnQ1k3YUswdk9XcFFuYlhJMGwxZlBmNk5jU0lhRGxud1JQUEJIZFoyQUVnQXlnOGNIUzd1RnZ3aGhzVFg0cVltajRIakExcmZzUHZ2MkVwT3FSWDEwbUk5OFctQ0ZQRQ?oc=5) |
+| Nancy Pelosi faces primary challenge from California state lawmaker - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOVkVqRVIzc0tlZHBHRVNoc3d2WkdkR2tTTUFlMm9ZNEZjRkgzSW1FSktxZXNVY0d2MFdoS0tuZDhUSWM0SVV2SUtaaGNKdFl1b0pUUDdXU25WcExfcmlFbkdDLXZCV3VXWGlSYzAxYlRkTmVYN2psTUpkSFBpOW5yTS13bXMzQ3pmTTJUaS1Oc21TN3pjQmFfdFJQaFBfUXNSQXRZU1VOLTBIX1NKTVhGaGFsYTFyQk1s?oc=5) |
 | The Top Zingers of the Mayoral Debate - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNMVhEY1ZmclRTVTl3d2FwT2VObUJ2ZmEyNXJic2lyUVFlSEZ1NmRrMWFoU2VySExULTBQY0V5TUhyVjhQX1M5c3ViMlRhWDVfSHlsRjZiSElSYldRQ2g5VHAxQThwWklqbnpDLU53Z2kyYk1saFA2YXVoOEY5eHNneg?oc=5) |
 
 ---
