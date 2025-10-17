@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月17日 23:40:32（北京时间）**
+🕒 更新时间：**2025年10月17日 23:49:46（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Venezuelan fishermen in fear after US strikes on boats in the Caribbean - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5PQjVQelJwVGhTY2dGSzlPYzY0Qmg0Z3M4MXFNVWdSVjdvbHNhSkxQY2MzTWRHc0VnaWI1OXpKQ3Iwem13Qy1wUldlMUVVU1ZyNGw3TlJsQ1FkQdIBX0FVX3lxTE5YOGJodnZHclFsLWVuM3VES3FRQllpUFBlemFzTU5WM1FGckNuNmJQSWlyWldvTXIyUmxZeS1PbEZoWWZidjBrTFU4ZXEtQlVqbGY1UjV6bjFpclNFS2hJ?oc=5) |
 | U.S. commander overseeing attacks against alleged drug boats off Venezuela to retire - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOZ1k4WlczeFJ0WGJwYW5yRTBmaXp1OVdqN3cyVGtqZFRhSjlqSm02N21zelVDLU9pazVVWDhnc2RhR2d3dF83NEtjbVN1clRUdlZoVmpTZ2FCY2lzSkZzVEdtVUpiY2xwZnV2S285a1ZiOVl2Njk0S1QzanhGTkUyWjdUVnExNkFET19BSXNQR2d3SnplUXc?oc=5) |
 | With some shutdown pain points delayed for now, talks in Congress are 'nowhere' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQaHo2OVdvVl92OTJ2VXBaMnZxaTA1WmtWQmRXcWdPeWhQYi1pcTVuY0dPMkJVd0oxX0c3SlVNMExkWmlhdFFqRVNESW04RjZwWU4wZmZYT1phN1FKOWNPSHFmRTNHQVM3WTZxcC1Cd1JxMkZWVjdlQWx2QjNYU1pHbnRlVlBZdw?oc=5) |
+| Zelensky to make case for missiles at White House, after Trump and Putin agree meeting - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9Fal8wR2g3bE8xR1BJaGExUlp0SE9TN0ZhdVRuNkdBak53akJTM1JFX1kybTVWaHJRY0lDa1pycm9pTm04cHJ4VTMxOWtrUVQ4aVg3VW9UekJnUdIBX0FVX3lxTE4wM0RyMy1vZk9NY3dCMGFtQ0t2eWFOQ1FLTUE3M3BPLVd5bDI1dWN4Y3kzSk9TejFkTEpBUU1sQjVfMGZRSFVoM05mei0tV0NtMmlBVV9Pd0VicDlpbHYw?oc=5) |
 | ‘I'm ashamed’: In debate, Virginia’s Jones apologizes for violence-themed texts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPbVh0LTdoLTNfUlN6ZGNfZGs0SHNwUlpQNGQzNkJMM2JwMEJMZXh3bnl4a1dKakJVV0lUNmVPVVVzMkhvQ3RUVEUweGg0UFB3WkFCMlJlUldaQUI2TElpQVd2NDFYcmk2NjNKcFNyN0FuX3l5cG1PRExfYTdGbFVnaG1UempFVS1Sc29qUWVXY094REE?oc=5) |
 | Overdose in America: analysis reveals deaths rising in some regions even as US sees national decline - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQdUNtNVh6RTJHS3ljY3lZbTBnMzRORmJVWFF1REZ6ZzBLVmJoZGZPX181eGpnUU93N212UDdtc2tpQjdRNGZRdXNqejFnRmdQQ1kyY0Uxc1J2eDNpSHZ4ZHV5UF9DTnBTWm1faTRxTXVQNnZndU1aS3M2S3g5RUlUUWpNZ2lVbGUyb0pBajBOR3pLRU9TenJJ?oc=5) |
-| Alaskan evacuees describe fleeing their storm-ravaged coastal communities: "We're all thankful that we're all alive" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPRGhPLWktNm1QcVdRNUFXU1FKbl9BX2tQMVVocWItb3MxSFphM1RfclZ1QmQ5dk9EZU1ESXhCNUlPdjJFOWtFaHFWOHlYRkxrbXc4Z2xsTmZVOVZLenRGYWN4NmVadFB1WHp4Y1Uyc2x3M01pYnNaTTNxcFJJQktDelQwQ29yNFpEMmVSME9mOGZ5MkQzQmFyV0FINjh2Z9IBowFBVV95cUxOdmVpUm9QVTVsUHF0MWNQTWNBOHZiUEFQQ05TeTZhaF9xWmZIbGZlRlJSdjVINmkzNW5XOXdOb2lmQ2JkZUEwSXEwalJuekRnZE9vSWtVU242SV82UGdDdkhPSlBrVldrY3RaVWxHYk8ydUF1SXNlU1owUUk3dWZDT2haMHlyZFB0cGY0aUdNVS1wQ1QycE1jUkNHNkxVbFhwdnlv?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
