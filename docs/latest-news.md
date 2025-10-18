@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月19日 03:01:43（北京时间）**
+🕒 更新时间：**2025年10月19日 03:08:54（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Massive crowds gather across US for ‘No Kings’ protests against Trump - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBneGEyc3RWYTlBUmw4QTRHdDVRbFc1cU1keTZiZmdmbVMyNzAxcDM3bk9SS01LTDE0S3BHRXg5cUdtMUtsOTRQc2cxdWVWSWN2R1B1TFlabC1DSjlJUHJPTThwU1dvQVFKLWV1Q2JhV0k?oc=5) |
+| No Kings protests across US kick off with National Guard on standby - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE05cHdmMHdmbU42a3JqNEFSa2p0SC1Qd2tsaWJyczBGbWRFYkFKNDhkaFZRNi1xSDZkZktJSW41Y0N6bTNjcHJmbEM3UVRKOGZ3NUJ3RVpkaDc0QdIBX0FVX3lxTE5UaElCaEMtT2hXUFhSMTFVU3pTN3ZWQUl1NDlHbVpnUVhIMVJEWEVlcFVZeFdsRUVYdGtKeWIwVUFNWkE0Z09uQzRCSGZXdHVlMFFoU0dyWU5aaHJaMGhN?oc=5) |
 | U.S. to Repatriate Survivors of Its Strike on Suspected Drug Vessel - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1oWlFJVWxWdGVCN25vTG5Da1M5a3BmczcyajdmeWdLNmhHMGEyOE5UNTY3Q2t2amNXR3llVEkyQmhOMHE4OEppYk14Mm8zNGFBQjNUU3VGSGZwdHFQYk9oLVNkaFVWbkNRMTZBcERKMEhqdThXMEN6QnhvcU0wdw?oc=5) |
 | White House to fire explosive artillery over major roadway in Southern California, I-5 to be temporarily shut down on Saturday due to life safety risk - CA.gov | [阅读全文](https://news.google.com/rss/articles/CBMikgJBVV95cUxPdGVrMi1oMHExNHFQWmRlNTNIZ3I0aWp2NWpubzUzTnlxZ25iQ25BSVp1ODVBcDB1YkZSRmk3cy1obE9yWVlZWWIwdnlfYlMwZXhZdG5LNkh4WFYwdEloR0ZiSmdUbkFOVXVvN0lTUHVHZDMzWHJScXp1Q1BiRjRzTHVDaFdibFZHRTY5dlVUcGR1QUQxelUteUdWX1BVV0lRT0tzUTlmSDF1MnNES2owU2tJSVRYUGFTdGtrRGxaZ2tEZ1E0MF83b0JORk1jclFrWldPYWtLa3BEYk04X1NZZ2VvZGRicGtWTHJJQVBpZ1Z1SUVpNmllR2U1VTI1OEhUZnRsdkh5ZklELWFOX0NnZ3BB?oc=5) |
 | Trump says he has commuted sentence of former US Rep. George Santos in federal fraud case - Newsday | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNSDEyVUVrMzFDY285NlAxSjhBMVRMdTVZNk5MbFRZMnFZbXJudTAyX1g5cnpncG0xRjVlQXB6a0l6anJrNjNiM2R0T2QxanpnelYzS1E4R0RTTG1HREctb2x3V0pKYTVoeEhMaXBDT2RZdlNHcEpMbXZHcFZhcTRUcDF2bldldlVoVVZjMTJn?oc=5) |
