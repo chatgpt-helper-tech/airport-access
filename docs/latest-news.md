@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 13:09:29（北京时间）**
+🕒 更新时间：**2025年10月18日 13:16:23（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump says both Ukraine and Russia should declare victory after meeting with Zelenskyy: "Let history decide!" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOSWlWbGhSMG4yb0ZETzhmSHNxb21aQlBhXzFEWWs0OEJYWDdmaERaME5saVBxNkxDN0JmQ0FabEVHUlhmSk9ocm1IRkhqckhMR2pSQWoyQmhRVmJaNG5mNm5QY1VzQ2Jhd0VjWDVwN0ExQjB2dS1XbzhOYU5qZUNscGdsV21tVnptLWZLbERUVlM3VDYx0gGaAUFVX3lxTE5Jbk1BNmtSMEZRVkxhR0FoemM0UWtSTFROR1J6SlEyUWFKVVM1UlpQUVZGSUJXek1WdWtFZ09wdWw3dl9NQ1BqZ3Vnb0tQYi1MUmdpZnlCVFdHX2tDTnpLZ0xvSXNLcXktaWt3SURSX25tZDZ4QUVWSTZmdjlVNkxsdzN4WlMyZVlzVGZUVW9VcF9WSFlWbjZ3aUE?oc=5) |
 | Vermont Legislator Resigns Over Racist Republican Texts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQeWk5UTRWLTRYUW5sQ1h0aVZ6b3R3c1JKSGhRbU9XTUhabVFyeG1mRFlPRXI4VTNpMmsxRk5UM244RzhiZmxwRzBkUXFFM2F3UHY0bkxHTTJ0RHR3RE9YZHVNQ1JETURVRnhHNmF3LXdHQk5rZmcxU2c4Ujg3SUltT1JWaHNqQWZDQUo1TldsaDByeUJCSWV5YzJzQzZqMVRMODlj?oc=5) |
 | Benioff apologizes for National Guard comments - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQcTFQcTFDbnJHZ0VFcnJXejZUWWNtS0lselJtS1NTSlhTSUUxMXZxc3pYc0c5eGRsSlNiLXJ1UWxiU0QtdDdaRGZDdmVZUDFhYkNsOUNSWFJDdVNNU00wTWZlNjhQOEVyVEZpeDVUMGFlaG1HMXpvb2ZNQXV0cVd3cmhwWTk2dV9xN3F6VDRqUjRFU01ld0ljdTdlZHo?oc=5) |
-| Alaska storm damage so bad many evacuees won’t go home for at least 18 months, governor says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1qVU0xVklMS2RHU3lrai0tNHI2b3JkZzZsY2tmUE1MMFY4N2hjbHRJYjZtMFhreDJmMFdQVjg1ZHU2eHBmdlNzODBaalZTc1hTcWpPNjR5VXNmd0xOb0FXemIxdmVub3Rqc25uSGg0X3hOSGdi?oc=5) |
 | Man convicted in 1979 kidnapping and killing of Etan Patz must be retried by June, judge rules - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNa1dGdjI0VVYxN2RRaUlZc25HcEJLcnRad0dlRHlNdDFkQ1lfOWZ5bDFsNFc1MVdEbkd4X1FoWkVxNGpYSXJ6ay1mSi1zajRMTGJNZ2pMbU9JT250ZmdPcUNXZUVvc1NmQWdCNmZ1MlFJWHZfbkI5bEdqZk5VeEhLODhOdFNKaFdUclNaOTFSSjNVdndBbzB2bEdDcFozTEVtLTFPLW5rYlpNRTZRZDJDbU5NOEhsNUtwYlHSAVZBVV95cUxOWVdHcS13bms1S0pqYjRua1BvRVUwcS1TZGNKdXlXSXF3c2phdGlHOGFLZDZWY1lDUlp3V3JsU2xxRDdiNmpic0xtUEVXaUVYaG5PYTMtUQ?oc=5) |
+| What we know about the devastating storm in Western Alaska - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNVTROYjJhM25lRmlNc0pIZkNGTFpwZUx0ek5wRXJ0YnF5UnVrTWl3N2lDOXRuQ3E1Qk41YVRTVUxlXzFMT3h1OFhLUlJqMEhmbHJrWHJkT2Njd09ITXg2eXB6NXNkYmU1dWY2SGlKWDI1cjRaZFFDR3hUQ19zQXo3cmVsczY5X2MyeFNsSExTd283SjJQVEFNbG52SzZiZGltTzQ2cGlKRWx6MmNxSnlNbXZNdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
