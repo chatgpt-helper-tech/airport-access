@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 19:01:50（北京时间）**
+🕒 更新时间：**2025年10月18日 19:08:20（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | New blood test could speed up diagnosis of 50 cancer types, study says | [阅读全文](https://www.bbc.com/news/articles/c205g21n1zzo?at_medium=RSS&at_campaign=rss) |
 | 'Have a great life!' Trump orders prison release of disgraced ex-lawmaker Santos | [阅读全文](https://www.bbc.com/news/articles/cy5q3439xpqo?at_medium=RSS&at_campaign=rss) |
 | How an old suitcase revealed a hidden family fortune, lost under Nazi rule | [阅读全文](https://www.bbc.com/news/articles/c33pvlez6yjo?at_medium=RSS&at_campaign=rss) |
-| Smuggler jailed for 40 years after shipping ballistic missile parts from Iran | [阅读全文](https://www.bbc.com/news/articles/cwy534vw28go?at_medium=RSS&at_campaign=rss) |
 | We're furious the 'Lip King' is selling weight-loss jabs, say dead mother's family | [阅读全文](https://www.bbc.com/news/articles/c4gk0w95jyjo?at_medium=RSS&at_campaign=rss) |
 | Ritual, wrestling and Reddit: Grand Sumo meets internet fandom in London | [阅读全文](https://www.bbc.com/news/articles/c4gw7009342o?at_medium=RSS&at_campaign=rss) |
 | 'It's scary to think I could have died': How Americans are coming back from fentanyl addiction | [阅读全文](https://www.bbc.com/news/articles/cm2e471159vo?at_medium=RSS&at_campaign=rss) |
+| 'I'm not putting my ring back on yet,' says Molly-Mae after Tommy reunion | [阅读全文](https://www.bbc.com/news/articles/cg43lg3p7wno?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
