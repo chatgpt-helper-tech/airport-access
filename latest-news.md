@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 22:40:03（北京时间）**
+🕒 更新时间：**2025年10月18日 22:48:58（北京时间）**
 
 ---
 
@@ -26,7 +26,7 @@
 | Millions expected across all 50 US states to march in No Kings protests against Trump - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPZGhjbUEtc2hRbHdPS2VjREtUT3haUDNhdmlOU2l3SXlsdnFQUThQNTFqMFdEVjlOZnk5TkpjXzVWb01DTE1PRDZlVDVKOU5VTmxRMlpOZnpyanlMRVdSTmY1OEJWSzFYRVM3a21tcG1GOUUzSmQzc19SdnZaODJ3M3FxYTBidw?oc=5) |
 | With a phone call, Putin appears to change Trump’s mind on Ukraine. Again. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPNXRCRml3NWlhOFlfaC15azJGbU5yOXFCbldtLXA3LUZOaENhNjNpdVJTXzNQRkNNMl83S2dDV0o4UmlPc3VSZjVYWXZnd1Mwdk5MTnlJYjBWSC1obnpPMG5mUU1Xei1YN0Zrb1hXUXJYbjNabTBMTVFqZXVEUlZHQlRaM3MwSGRB?oc=5) |
 | Trump commutes sentence of former US Rep. George Santos in federal fraud case - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOZzUxMDJLeDNsOG0xZEVEOThvY0lOM0U4WHA0dlNXZlFSbUp3LU9uc2k1cGNhRGR5M1RlSTJ5T3lCRWctaHAxMzRET2JCVnZpaXhpbWthMlZsTklvaXd1YS1UVlJKX1dNQllfMmFCOXhFMTdGQlpXamRTT0ljRE85OERkU0dBVkJPcktULURHYXZtTEx2S25ITzJFZTQzTXM?oc=5) |
-| Israel confirms latest body returned from Gaza is dead hostage - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1UUFd3cVFBVk9ybHBxa2k4aGhiQmJRNXJMR3BXNkE3cUgyTGhGTFp4d1Yyai1BakJGTEo0VDRUby1ncnE1VDZlZzhhc0lMQlZ6ZDItNThseWhNUdIBX0FVX3lxTE5iNjVnNGZ1MTM3eTFVT013OHlPTUlYeGZURmJtNjR1eUN6eHQ1SThOU3ZXNTRaVU5LdWJHYjJpMEM1QTY1Sno5SDB4NXRxVU1wY1RwMERlbGlsekN3UVhF?oc=5) |
+| With shutdown cuts, Trump moves closer to eliminating Education Department - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOTkdCOU9SdjM1dEpsdVJxN3hleUc2U0VkN3ZVNGlBaUdLM3Z5aWZ5NU82OElDVW85UzlwZ0VpRUZJdEsxQ2dFNU9EMHUzWHR0dEFQTmFOelhDV1RQT0E1YW1QemJhNlptdl9oaUs0b2pEZlJuQjB6cTUtNzZTcDBQdG1Xd05QRWNvb0JGVQ?oc=5) |
 | Trump urges Supreme Court to allow National Guard in Chicago - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxON1plVjltODU4aDVZOFlTbkZRNk1kODlHbk5Tc1Y4RXRXc1lqT09sdDNWRjRXWlRnYklNWjdTYW9iaHcwTXJHT0c4V1hmS0o0WHNHYVFrcnlwRWxNODctbkFxcmprOVQweWZXbG1hWmQ5aVVuZzZ3LTBLazNDcE8yTA?oc=5) |
 | Anxiety grows over ACA tax credits stalemate - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNNnRyY1hvZmpJNU9pTDNiZHVLenhFenhUX1k1bng4N3loaTNvampNZ1lkeDk5bld0SWliNlM0T1hqNEtpRHFSRmk1VGNTdXp6QnBBQjB0MWE2ako3VERSUU9sR0wzdkFna1NpOTdGR01nQ1IxQmV5R0NMd2hkWkxvaVV1bGNyelI2akZISWVQQ3BaOXVhVFllTGoyVnBsd9IBowFBVV95cUxNVXZKeUNRbm9DWlFCeXljQ3JjY0pWRm14TXQzN0NFd29aRWFuX0N3VjItNFhISTljbzdlT2RoSkYzTlZsY1JLN1IxbGFpanFSeWRZYWRhNUhQNTVVY1lNYnlGc2ZqU1NxN2REbjlNcUJHelJOU3NKM0lVSlF3VkFQWFNsN3V6YzAxbUVveXdtZ1VCTzB2YU9qd0FBY3JDa2ZDVzBZ?oc=5) |
 | Vermont Legislator Resigns Over Racist Texts in Republican Group Chat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQeWk5UTRWLTRYUW5sQ1h0aVZ6b3R3c1JKSGhRbU9XTUhabVFyeG1mRFlPRXI4VTNpMmsxRk5UM244RzhiZmxwRzBkUXFFM2F3UHY0bkxHTTJ0RHR3RE9YZHVNQ1JETURVRnhHNmF3LXdHQk5rZmcxU2c4Ujg3SUltT1JWaHNqQWZDQUo1TldsaDByeUJCSWV5YzJzQzZqMVRMODlj?oc=5) |
