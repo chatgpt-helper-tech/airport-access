@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 10:33:42（北京时间）**
+🕒 更新时间：**2025年10月18日 10:40:02（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Vermont Legislator Resigns Over Racist Republican Texts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQeWk5UTRWLTRYUW5sQ1h0aVZ6b3R3c1JKSGhRbU9XTUhabVFyeG1mRFlPRXI4VTNpMmsxRk5UM244RzhiZmxwRzBkUXFFM2F3UHY0bkxHTTJ0RHR3RE9YZHVNQ1JETURVRnhHNmF3LXdHQk5rZmcxU2c4Ujg3SUltT1JWaHNqQWZDQUo1TldsaDByeUJCSWV5YzJzQzZqMVRMODlj?oc=5) |
 | Billionaire Marc Benioff apologizes for saying troops should be deployed to San Francisco - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNckdfVW1yZ1NIUzZ6dGtzY25CWVU4N1pUcnB3MHJoa2VxT0ZEeTBIT2d2NzZjQ29wUWFkTnhfN1Q0MHItSW56Z09mdy1QTGU3Znk5LUxEcENiRy1aSVJEZjU4Qm9UUlZ2dHFqMlgzZWxGbEZxcFdlNGxybmRUTGJodjgxOGg2UEVwS1U5TGtYMXRCZ2NhNG1RdkZKS1paOVBSTmc?oc=5) |
 | Universities Are Standing Up to Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQWFlfZ2xhMnQwZXhJcVh0SzlxMENTMHkwUGtJSm4zYkFxTHdnOVFfRDBtbjR6RVhROS11UTZqY1BDRTBxd0JJVzd4RkFnV215MTBhYUpiQUhDZXlBeXluLUVIMENleXE5aFNIOHhDT1ExNmN3eWxmU1ZQT1BmMHlaNnAzdmpGMGM?oc=5) |
-| Andrew Cuomo is still behind — and he’s blaming Curtis Sliwa - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOY1RhS0NSWGMzczc4MjltU3d3WUhCb3Y2R21RNEM3UElnYmU1WldCMWxwQzZaYlRiakxKN0hWQk92LVNFTUxabnNBN3ZKVHB0UzRrR1V5dllvRHpYcEYxNGE4U29uWnVTWTNtYnNrZmZVZ240aGFldjRGTnFOUnE3a000RGFnNWdkRV9BMjRDUHdCUjBzNWVVZnh4NnFZSEUwR0dQVFpmV0RtUDg?oc=5) |
+| Man convicted in 1979 kidnapping and killing of Etan Patz must be retried by June, judge rules - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNa1dGdjI0VVYxN2RRaUlZc25HcEJLcnRad0dlRHlNdDFkQ1lfOWZ5bDFsNFc1MVdEbkd4X1FoWkVxNGpYSXJ6ay1mSi1zajRMTGJNZ2pMbU9JT250ZmdPcUNXZUVvc1NmQWdCNmZ1MlFJWHZfbkI5bEdqZk5VeEhLODhOdFNKaFdUclNaOTFSSjNVdndBbzB2bEdDcFozTEVtLTFPLW5rYlpNRTZRZDJDbU5NOEhsNUtwYlHSAVZBVV95cUxOWVdHcS13bms1S0pqYjRua1BvRVUwcS1TZGNKdXlXSXF3c2phdGlHOGFLZDZWY1lDUlp3V3JsU2xxRDdiNmpic0xtUEVXaUVYaG5PYTMtUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
