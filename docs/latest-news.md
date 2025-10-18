@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 22:32:19（北京时间）**
+🕒 更新时间：**2025年10月18日 22:40:03（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Anxiety grows over ACA tax credits stalemate - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNNnRyY1hvZmpJNU9pTDNiZHVLenhFenhUX1k1bng4N3loaTNvampNZ1lkeDk5bld0SWliNlM0T1hqNEtpRHFSRmk1VGNTdXp6QnBBQjB0MWE2ako3VERSUU9sR0wzdkFna1NpOTdGR01nQ1IxQmV5R0NMd2hkWkxvaVV1bGNyelI2akZISWVQQ3BaOXVhVFllTGoyVnBsd9IBowFBVV95cUxNVXZKeUNRbm9DWlFCeXljQ3JjY0pWRm14TXQzN0NFd29aRWFuX0N3VjItNFhISTljbzdlT2RoSkYzTlZsY1JLN1IxbGFpanFSeWRZYWRhNUhQNTVVY1lNYnlGc2ZqU1NxN2REbjlNcUJHelJOU3NKM0lVSlF3VkFQWFNsN3V6YzAxbUVveXdtZ1VCTzB2YU9qd0FBY3JDa2ZDVzBZ?oc=5) |
 | Vermont Legislator Resigns Over Racist Texts in Republican Group Chat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQeWk5UTRWLTRYUW5sQ1h0aVZ6b3R3c1JKSGhRbU9XTUhabVFyeG1mRFlPRXI4VTNpMmsxRk5UM244RzhiZmxwRzBkUXFFM2F3UHY0bkxHTTJ0RHR3RE9YZHVNQ1JETURVRnhHNmF3LXdHQk5rZmcxU2c4Ujg3SUltT1JWaHNqQWZDQUo1TldsaDByeUJCSWV5YzJzQzZqMVRMODlj?oc=5) |
 | Camp Mystic Security Guard Saved Dozens Amid Deadly Flooding - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPLUtGQXFvZGpOMjVBT2FsOGNKZ1lVTUZrWjMtekEteDBuTC1pYnlnSHlkZlFrbmpCdURYU0ZSVml4S0NWUjNDWGtLSzJKcGExZTlVYVFXaFlHeDM0Q1p6RlBQbkNmOVdqbERzc1dJcElWakVJZHl0LTY4OTJhNmt0X3E3QzFjejAtbURaVQ?oc=5) |
+| An ‘anarcho-capitalist’ is bringing libertarians into RFK Jr.’s fold - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNQk03M0o3QjZfTktGTXk5R0ViWnJUaHVTelc5aXVKOWdWa0tweE9aQjNnOUlhWmJpVE03M3lkN1dxTVBGWDVjS3FRTTJHbTNGNUhrWlFMX0RVNzZtZXJyVDcwU3JMeFFWNHNGZmNoaTVJMnhFR2Y0dUVReFBuQzFIeHFETGFhRWNaYThHeA?oc=5) |
 | Third-floor balcony in Cincinnati collapses, sending 10 people to the hospital - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNb2Rqd2pnbmxiTV9WWTk5amV5cjZZNkUyeE9kQW1QcmhobUJCd2NudDVLTUthdHd4ajk2cklwZ3NaVlJJNThqQndVNk5sbUhJMDBRNF9kWVplZWR4MHJwZVd0bUVXMkt2THdMNG1xZnhOS0VyUWt0dTFjYmpBYVlLWm9QTEg3ODlWeGR6c2lUUjM1OUY4TnNybWRTZ1BZcEhpUTNPSVhyUml2UXfSAbABQVVfeXFMTmpVNUFRSldkWEYxd2ZNcFVjRUNWckRzMzc4aFhlZWpucGpYVXN2VllUZ1ZadmpyRy0tVGFtUzNrbU1Bd0lZODBJbEFmT1RSNGhUempZbFRmMWhsWGVQSEo4RWpOamNYODEyOWJjYzJ5ZXJueFk4ZDA3Y2hNS0J4dWRmUXFVSDJ2cEtJZXh2VVJEN0VlcFFqeU1fQWJPRTNZRUVjdFNCbEgtbngtSmxqWmg?oc=5) |
-| Alaska storm damage could displace some evacuees for at least 18 months, officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPUGtLbXk4NTA3TG1MdGQ1akx5Nl9xWFA5UXgzQS1mdU10OXc0UWtHM3RfY3IxNWFucGNVM0JHNEpGQ3BHZWVWNmFlaDF0Rm8zejZhVTFJVXFWVkp4WEY2Ulp4WDJNbVpyRnJLSFhSUU9hR1FuMlJMS2JleExWTDd0VWpiUdIBiAFBVV95cUxNWG9sZ3l4UlQ2ZGFlbDJhVXF1UG5QMkZTU3ZjUmVqWDlKanNNWkc5VzlxaHdPd25oZzlYX0VXRFZfbmJOVEJRSXJwS1o5S1BndE1PdnFwNkRNWVByeFVzZ3BSRzduelB3U3ZsQzlHLUJZbUpyaEJDN09BWEJBc2lfR2g3THp2YkVH?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
