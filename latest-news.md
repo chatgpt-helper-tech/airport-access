@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 18:01:59（北京时间）**
+🕒 更新时间：**2025年10月18日 18:09:52（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Israel confirms latest body returned from Gaza is dead hostage - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1UUFd3cVFBVk9ybHBxa2k4aGhiQmJRNXJMR3BXNkE3cUgyTGhGTFp4d1Yyai1BakJGTEo0VDRUby1ncnE1VDZlZzhhc0lMQlZ6ZDItNThseWhNUdIBX0FVX3lxTE5iNjVnNGZ1MTM3eTFVT013OHlPTUlYeGZURmJtNjR1eUN6eHQ1SThOU3ZXNTRaVU5LdWJHYjJpMEM1QTY1Sno5SDB4NXRxVU1wY1RwMERlbGlsekN3UVhF?oc=5) |
 | Alaska storm damage so bad many evacuees won’t go home for at least 18 months, governor says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1qVU0xVklMS2RHU3lrai0tNHI2b3JkZzZsY2tmUE1MMFY4N2hjbHRJYjZtMFhreDJmMFdQVjg1ZHU2eHBmdlNzODBaalZTc1hTcWpPNjR5VXNmd0xOb0FXemIxdmVub3Rqc25uSGg0X3hOSGdi?oc=5) |
 | Vermont Legislator Resigns Over Racist Republican Texts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQeWk5UTRWLTRYUW5sQ1h0aVZ6b3R3c1JKSGhRbU9XTUhabVFyeG1mRFlPRXI4VTNpMmsxRk5UM244RzhiZmxwRzBkUXFFM2F3UHY0bkxHTTJ0RHR3RE9YZHVNQ1JETURVRnhHNmF3LXdHQk5rZmcxU2c4Ujg3SUltT1JWaHNqQWZDQUo1TldsaDByeUJCSWV5YzJzQzZqMVRMODlj?oc=5) |
-| UVA rejects Trump administration's 'Compact for Academic Excellence' - VPM | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNTGc3Y0RMQmFnY1NOZmh2UFZaRlhBME1XdW80T1RpVVdISFl3Qjd1M0FQamFOaU5qVlkweTlOOHNyT01RZU5BckRmX3FsdTY5WGo3ak1RQWN0S3lHcUNsTFBmWWhmMGdGcFFYRW4wa0RxR1FuSEdXZFBEZG5ScFpWOTFpVXpNYWhRV2NOazdVYXdRd0pSeXFxZDhxa1RNLUJjcWNDQWR3V2xJcVZrX1E?oc=5) |
+| Salesforce CEO Marc Benioff apologises for San Francisco deployment remark - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE80WEs2LUZ3TzFNd0hFM2VtejN0Vm5pOTlJblp1R0dzbXcxZHJuU3ZWQnVYcGJ1WG5ucV9vaERIb0s4TkItTElrUzBLcnVOUlQzZDZYQ3FkQnp3UdIBX0FVX3lxTE9rVEttc2lOc19DWllKc2pXbDZYU19KTl83NnNWNnJYSjBMelh3TXFiVnJjeXRrT0tMV0RqT2JjMzJZYzRFQkJWeXhnY2pHMVViZEltQ0lkS1JvZ1dVOUtV?oc=5) |
 | 10 injured, 1 seriously after balcony collapse near UC - FOX19 ｜ Cincinnati | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNdjNjNncyRVd3M3E2VVB6MTlBVGdYZkNWMTZZbG8taGJrUlhMd3h5WUQyeVdCWUtLOHcwV3VDYWpVeUp0SU5aVW1SQWI5dUZaaHRXUUhXYVFjMUREbWZ1ZVU5YmxmTVlsQ1JBaDRac2laYm1ZN1g3dXZ5N1JpaGw0QnpwN0hfZTMxVk1aX2lHN0V4aWFqS05XY0h3M2Q0WVhF?oc=5) |
 
 ---
