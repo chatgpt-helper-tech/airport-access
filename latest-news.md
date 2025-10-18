@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 17:24:17（北京时间）**
+🕒 更新时间：**2025年10月18日 17:33:29（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | Trump urges Supreme Court to allow National Guard in Chicago - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxON1plVjltODU4aDVZOFlTbkZRNk1kODlHbk5Tc1Y4RXRXc1lqT09sdDNWRjRXWlRnYklNWjdTYW9iaHcwTXJHT0c4V1hmS0o0WHNHYVFrcnlwRWxNODctbkFxcmprOVQweWZXbG1hWmQ5aVVuZzZ3LTBLazNDcE8yTA?oc=5) |
 | "No Kings" Chicago protest planned for Grant Park Saturday; more demonstrations in suburbs - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOMWRUblJmRDNQSzBUWTV5T3VuSk9oSDVmUUF2aDZQM214dFREOEM3ZXRGc0lqZmhPUFY4SVlIY3N2ZFRSNDhPc3VFN3JWOV8zckN0S0NCMzM1ZFp2ZkRrazZQR05HX2lsVk5GTWhXZ2tLY29lY2puSDJfTElieTh3MjVqdzRwMkRodmc?oc=5) |
 | Government shutdown becomes third-longest in history with no end in sight on Day 18 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPMFVGZlRsNHVFbnRWT0s5cWhUTmUwd0k4dE8tVUhZSk9zR3dEeDdaQjR4VXlBNWdmNVFPajI4NHJmVEtzdFZYSWUxeG9CekR1cjlNYzNLYlJHNmlxZ3dndFM3eDNycnJGVS1nRmJfVTRyTXVRbHBuSGFnQy10cEZsV2cwS2hYVWh2QzNR0gGQAUFVX3lxTE9kd1VHTVBvZmdNaU1GLWtCM29KakVuZnBNS2M3V3JIUldVV05Tdmp6dlpJZlZZV1dhQVZsMXYyTE9vS0Y4U0xkN1kycGJaMlRlZHhVR1JyRDlkQXBndFJqT0g0QWs1TzkxeGNlc2hEYnUxVGpITi1iUEhJNzhneWxfN2EzUGpBemUxXzUteGo3aA?oc=5) |
-| What we know about the devastating storm in Western Alaska - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNVTROYjJhM25lRmlNc0pIZkNGTFpwZUx0ek5wRXJ0YnF5UnVrTWl3N2lDOXRuQ3E1Qk41YVRTVUxlXzFMT3h1OFhLUlJqMEhmbHJrWHJkT2Njd09ITXg2eXB6NXNkYmU1dWY2SGlKWDI1cjRaZFFDR3hUQ19zQXo3cmVsczY5X2MyeFNsSExTd283SjJQVEFNbG52SzZiZGltTzQ2cGlKRWx6MmNxSnlNbXZNdw?oc=5) |
-| Salesforce CEO Marc Benioff apologises for San Francisco deployment remark - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE80WEs2LUZ3TzFNd0hFM2VtejN0Vm5pOTlJblp1R0dzbXcxZHJuU3ZWQnVYcGJ1WG5ucV9vaERIb0s4TkItTElrUzBLcnVOUlQzZDZYQ3FkQnp3UdIBX0FVX3lxTE9rVEttc2lOc19DWllKc2pXbDZYU19KTl83NnNWNnJYSjBMelh3TXFiVnJjeXRrT0tMV0RqT2JjMzJZYzRFQkJWeXhnY2pHMVViZEltQ0lkS1JvZ1dVOUtV?oc=5) |
+| Alaska storm damage so bad many evacuees won’t go home for at least 18 months, governor says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1qVU0xVklMS2RHU3lrai0tNHI2b3JkZzZsY2tmUE1MMFY4N2hjbHRJYjZtMFhreDJmMFdQVjg1ZHU2eHBmdlNzODBaalZTc1hTcWpPNjR5VXNmd0xOb0FXemIxdmVub3Rqc25uSGg0X3hOSGdi?oc=5) |
 | Lawmaker resigns after involvement in racist chat - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOREZVc1laWU1lT3ZrSFBzRWp5dExsVVZNRnZwMzhSV2JPUHV6d3FNYmxOaEJTRnZYV1IxMm5lVDlzZFYzNFcxaW5VcUhVV2xPTTl6NkJYdEdaVkZ0WFJ2UW14Mjl1ajMwenZqNEJQNnBjUTkxTk00cmRRcUl5ejlqS21TUWVUX1g1eHZ5ai1mT3lDRnVXeEVTZ2ZUa0JvUGZ4?oc=5) |
+| Salesforce CEO Marc Benioff apologises for San Francisco deployment remark - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE80WEs2LUZ3TzFNd0hFM2VtejN0Vm5pOTlJblp1R0dzbXcxZHJuU3ZWQnVYcGJ1WG5ucV9vaERIb0s4TkItTElrUzBLcnVOUlQzZDZYQ3FkQnp3UdIBX0FVX3lxTE9rVEttc2lOc19DWllKc2pXbDZYU19KTl83NnNWNnJYSjBMelh3TXFiVnJjeXRrT0tMV0RqT2JjMzJZYzRFQkJWeXhnY2pHMVViZEltQ0lkS1JvZ1dVOUtV?oc=5) |
 | 10 injured, 1 seriously after balcony collapse near UC - FOX19 ｜ Cincinnati | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNdjNjNncyRVd3M3E2VVB6MTlBVGdYZkNWMTZZbG8taGJrUlhMd3h5WUQyeVdCWUtLOHcwV3VDYWpVeUp0SU5aVW1SQWI5dUZaaHRXUUhXYVFjMUREbWZ1ZVU5YmxmTVlsQ1JBaDRac2laYm1ZN1g3dXZ5N1JpaGw0QnpwN0hfZTMxVk1aX2lHN0V4aWFqS05XY0h3M2Q0WVhF?oc=5) |
 
 ---
