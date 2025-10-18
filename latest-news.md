@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 19:57:34（北京时间）**
+🕒 更新时间：**2025年10月18日 20:01:16（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | No Kings protests: What to expect at Saturday's marches around the country - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPTHBaaFJudGhkc2ptUVJpVEJHQWF3bDNrb3JDVjBEMUhNWGpZbkh3c0VEcFFZUzJRT0g2Vnp6VFkzN0ktVFR3b3RyM1I1Sm5vYVRrVUFIeHl5QzdnNTlRZ2taYWJpb0tLbkVsSmhMYXZkM29yVXVaWUwtdjBOSzdyTWlB?oc=5) |
-| Trump says he wants to end Ukraine war without sending Tomahawk missiles - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOUk9vSFRLLXBuUkFnTHVqTzRLVFlMMFB0OTdPbkp2bzRaWFZUMnRrdlJ2NUdWWlNuckpTMThhQ01xSHdJbDAzRmZVUXBZajFvOWdLcmkwOVRiT1pGZndHN3ppVGxpMGJjWWp2Y1JQdDZCNEV1N3hHU3FwY3RoQzcyWXdqX0lLbk9h?oc=5) |
+| Trump denies Ukraine Tomahawk missiles, urges both sides to ‘stop the war immediately’ - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQUTJqMUlicG5kMG04OHJrY0FFQjhvbXNqOGtQNEt2bWVlc0E1d1lTSWFMZEtqdVpfa0pKVGR2LW9NMm9JOFVabzJKaVFYSWpNUUc4UjM5S1hIb043UzFvajg0T1RSMDQ2MGZBUUdjaF9HV2ItMDRGaHVyWVBsRmNoSXhKLUFOelUzRFBpQXhjNnJad1RO?oc=5) |
 | Trump commutes sentence of former US Rep. George Santos in federal fraud case - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOZzUxMDJLeDNsOG0xZEVEOThvY0lOM0U4WHA0dlNXZlFSbUp3LU9uc2k1cGNhRGR5M1RlSTJ5T3lCRWctaHAxMzRET2JCVnZpaXhpbWthMlZsTklvaXd1YS1UVlJKX1dNQllfMmFCOXhFMTdGQlpXamRTT0ljRE85OERkU0dBVkJPcktULURHYXZtTEx2S25ITzJFZTQzTXM?oc=5) |
 | US holding survivors from 'drug boat' off Venezuela - DW | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOWUVFLUhUR2pKM2pIMXFFSVFoMlE0bWpNbm1NSVJtR1JHMElkR0xuZG4zSlNscVdMeExJREdydXV4dE5yd2FaSzdUQ3FKSE5mTmhrdW9QSlhETTU5a2R4YkdNNUtpMk1WQi1kUGg2RGQ0aW8zVURsVG0yNXBpWkN4S1JKWE5tZ0JvdGc?oc=5) |
 | Bernie-backed Maine Senate candidate Graham Platner melts down - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBlem5SMDVCT1Z6bHR4V1FtRVJYMUxaUnIzbGVBS25nM21qdktoSW1iaHd3UWMxRHIyVWlyTVhNNTNocmU1SDk1NS1ZdDdYUVFnRWx2N0QxN2RnRFBvM1VySml3cWRsVmhGb0c4LTJiXzdlV0pXM1E?oc=5) |
