@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 13:56:04（北京时间）**
+🕒 更新时间：**2025年10月18日 14:01:51（北京时间）**
 
 ---
 
@@ -23,11 +23,11 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| George Santos Is Released From Prison, His Lawyer Says, After Trump Commutes His Sentence - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPSnc5X0thZERGTmVSN3dCTjlZQUtULW9ra0NlNzU3QnpCSTFvRGVsVmI0bW9sdnBnNXowYU9rVXNGdllwUEdkNm9EV1oxSk83YmxvdVhkcXFzS2VpQTFhVUJ4YkhSVzBWWnFTZmNoSVB2LWpKU2s5djZNTFl1VThkek5ka1N4RGY1ajVBb1VBNW5Idw?oc=5) |
-| Trump rejects Zelensky on Tomahawk missiles in "tough" meeting - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQd3MzZ3pFVWRvRS0xNzRlZ3Y1Z3V1a2lJZnF4aDhQR0stVG1jS3N5YzF6dkRpVnlXQzhuakJSYXBsSWdVMExsS1M1SVZPTTVVRk85dUpqWEdmUlJNQ1Z5X2M0c2NhUVJpNmVjVWtvU0dwMS1sNnNYSlhhaU91QmFKRXNZdw?oc=5) |
-| GOP tries to brand anti-Trump ‘No Kings’ protests as un-American - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQMTNVUkotbEctUGd1dm84NXFYLS0zMVhPWUhsSnhMTGxxZE1Bc3N4UElETTduUFFEdkl6SmJIa0RGME1XZDloUDYyRTBndzhkM1R1V21SdWIybGhhbmRpY25TWEpNaUxoRnlkc0hpOWZhaWVEVGNJZEVCd3l0QjJfVVlJY2lfd1dhTko1T21R?oc=5) |
+| Trump commutes sentence of former US Rep. George Santos in federal fraud case - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOZzUxMDJLeDNsOG0xZEVEOThvY0lOM0U4WHA0dlNXZlFSbUp3LU9uc2k1cGNhRGR5M1RlSTJ5T3lCRWctaHAxMzRET2JCVnZpaXhpbWthMlZsTklvaXd1YS1UVlJKX1dNQllfMmFCOXhFMTdGQlpXamRTT0ljRE85OERkU0dBVkJPcktULURHYXZtTEx2S25ITzJFZTQzTXM?oc=5) |
+| "No Kings" Chicago protest planned for Grant Park Saturday; more demonstrations in suburbs - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOMWRUblJmRDNQSzBUWTV5T3VuSk9oSDVmUUF2aDZQM214dFREOEM3ZXRGc0lqZmhPUFY4SVlIY3N2ZFRSNDhPc3VFN3JWOV8zckN0S0NCMzM1ZFp2ZkRrazZQR05HX2lsVk5GTWhXZ2tLY29lY2puSDJfTElieTh3MjVqdzRwMkRodmc?oc=5) |
+| Trump Wavers as Zelensky Seeks Long-Range Missiles to Fight Russia: Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTFBzenpOVVJyekpqT0JSRWl6bWVZOGo1VGx0eXh4dUdYY25yTUxrYks3MV9JUExFenhNZmFyVWhoeldiUURTcW5aei1ISnFZN0JoMzQxeUNLdDZxZ2h0eTNjS3ZLUW9fS0U3emhIdDVWUQ?oc=5) |
 | Trump and Maduro are both amassing military forces as tensions build in the Caribbean - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOWV92dF96NEZ2eVpHM1lVcHhvY0lKTmxvalVPRUxQVlVId1k0NUsxcTcwWFVoZFdJWXJ1NDJWNHZtcEppZFFJVk41SFQ2Y2NYTzBNZTdQc1FOajU5UmtTTFpFdndld1pIc1hKMEtjZkE2dmpaYVVoaVBqTVhJbFk0ajJUc0ctanc?oc=5) |
-| Trump says both Ukraine and Russia should declare victory after meeting with Zelenskyy: "Let history decide!" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOSWlWbGhSMG4yb0ZETzhmSHNxb21aQlBhXzFEWWs0OEJYWDdmaERaME5saVBxNkxDN0JmQ0FabEVHUlhmSk9ocm1IRkhqckhMR2pSQWoyQmhRVmJaNG5mNm5QY1VzQ2Jhd0VjWDVwN0ExQjB2dS1XbzhOYU5qZUNscGdsV21tVnptLWZLbERUVlM3VDYx0gGaAUFVX3lxTE5Jbk1BNmtSMEZRVkxhR0FoemM0UWtSTFROR1J6SlEyUWFKVVM1UlpQUVZGSUJXek1WdWtFZ09wdWw3dl9NQ1BqZ3Vnb0tQYi1MUmdpZnlCVFdHX2tDTnpLZ0xvSXNLcXktaWt3SURSX25tZDZ4QUVWSTZmdjlVNkxsdzN4WlMyZVlzVGZUVW9VcF9WSFlWbjZ3aUE?oc=5) |
+| Trump seeks to build on momentum from Gaza deal in a busy diplomatic week - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBZWHVuZEtaMFhtVkdoWXp5QTRoRVNjLVo3Unkxb2lVY0RiSzByd0FNTHpJSUVNOVNjSzl0OWllaDNWWi1HXzFJVlNxUlhkMTR4QlI1V3N0WVNNc2FMZEFpT0M2RElKajBGZGJFQmo4TmwwdEtnTmctRjhuZkpRa2s?oc=5) |
 | Trump administration asks Supreme Court to allow National Guard deployment in Illinois - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNQVVCc3NxSFBBeVVPb2pyYTlzSm83bUszU25QV2xSeVlMMWQzOGZPOTZJaFpDRExBTkZJSjZFem1xRjlRWEFvN1M0OFI3VGdIZ0xURzZ2QlRraXFJbHZUTnNPdXdWblRuQWJ3MXFUZFE4US1XYTZxeklXYkhLVXY2dlMxZWYxQmJvNGJZUTh4VHBYQQ?oc=5) |
 | Vermont Legislator Resigns Over Racist Republican Texts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQeWk5UTRWLTRYUW5sQ1h0aVZ6b3R3c1JKSGhRbU9XTUhabVFyeG1mRFlPRXI4VTNpMmsxRk5UM244RzhiZmxwRzBkUXFFM2F3UHY0bkxHTTJ0RHR3RE9YZHVNQ1JETURVRnhHNmF3LXdHQk5rZmcxU2c4Ujg3SUltT1JWaHNqQWZDQUo1TldsaDByeUJCSWV5YzJzQzZqMVRMODlj?oc=5) |
 | Man convicted in 1979 kidnapping and killing of Etan Patz must be retried by June, judge rules - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNa1dGdjI0VVYxN2RRaUlZc25HcEJLcnRad0dlRHlNdDFkQ1lfOWZ5bDFsNFc1MVdEbkd4X1FoWkVxNGpYSXJ6ay1mSi1zajRMTGJNZ2pMbU9JT250ZmdPcUNXZUVvc1NmQWdCNmZ1MlFJWHZfbkI5bEdqZk5VeEhLODhOdFNKaFdUclNaOTFSSjNVdndBbzB2bEdDcFozTEVtLTFPLW5rYlpNRTZRZDJDbU5NOEhsNUtwYlHSAVZBVV95cUxOWVdHcS13bms1S0pqYjRua1BvRVUwcS1TZGNKdXlXSXF3c2phdGlHOGFLZDZWY1lDUlp3V3JsU2xxRDdiNmpic0xtUEVXaUVYaG5PYTMtUQ?oc=5) |
