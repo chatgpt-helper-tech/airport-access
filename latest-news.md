@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 21:56:07（北京时间）**
+🕒 更新时间：**2025年10月18日 22:00:40（北京时间）**
 
 ---
 
@@ -12,8 +12,8 @@
 | 'It's a joyous moment', says brother of Prince Andrew accuser | [阅读全文](https://www.bbc.com/news/videos/ckgk1eknvzpo?at_medium=RSS&at_campaign=rss) |
 | Zelensky fails to secure Tomahawk missiles at talks with Trump | [阅读全文](https://www.bbc.com/news/articles/c93dqew8l3xo?at_medium=RSS&at_campaign=rss) |
 | New blood test could speed up diagnosis of 50 cancer types, study says | [阅读全文](https://www.bbc.com/news/articles/c205g21n1zzo?at_medium=RSS&at_campaign=rss) |
-| 'Have a great life!' Trump orders prison release of disgraced ex-lawmaker Santos | [阅读全文](https://www.bbc.com/news/articles/cy5q3439xpqo?at_medium=RSS&at_campaign=rss) |
 | How an old suitcase revealed a hidden family fortune, lost under Nazi rule | [阅读全文](https://www.bbc.com/news/articles/c33pvlez6yjo?at_medium=RSS&at_campaign=rss) |
+| Louisiana resident assisted in Hamas 7 October attack, US says | [阅读全文](https://www.bbc.com/news/articles/cdx495n0qn9o?at_medium=RSS&at_campaign=rss) |
 | After all those scandals, why did Andrew quit his titles now? | [阅读全文](https://www.bbc.com/news/articles/c3ep8gd1qv3o?at_medium=RSS&at_campaign=rss) |
 | 'It's scary to think I could have died' - the Americans coming back from fentanyl addiction | [阅读全文](https://www.bbc.com/news/articles/cm2e471159vo?at_medium=RSS&at_campaign=rss) |
 | Grand sumo in London: Why rituals and wrestling are drawing a new fanbase | [阅读全文](https://www.bbc.com/news/articles/c4gw7009342o?at_medium=RSS&at_campaign=rss) |
