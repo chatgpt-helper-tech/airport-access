@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 14:25:13（北京时间）**
+🕒 更新时间：**2025年10月18日 14:32:12（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | Smuggler jailed for 40 years after shipping ballistic missiles parts from Iran | [阅读全文](https://www.bbc.com/news/articles/cwy534vw28go?at_medium=RSS&at_campaign=rss) |
 | Exciting results from blood test for 50 cancers | [阅读全文](https://www.bbc.com/news/articles/c205g21n1zzo?at_medium=RSS&at_campaign=rss) |
 | 'Have a great life!' Trump orders prison release of disgraced ex-lawmaker Santos | [阅读全文](https://www.bbc.com/news/articles/cy5q3439xpqo?at_medium=RSS&at_campaign=rss) |
-| Government 'doing everything' to overturn Maccabi Tel Aviv fan ban | [阅读全文](https://www.bbc.com/news/articles/c5ylxn8g2y2o?at_medium=RSS&at_campaign=rss) |
-| Mystery heatwave warms Pacific Ocean to new record | [阅读全文](https://www.bbc.com/news/articles/ce3xynwwx4yo?at_medium=RSS&at_campaign=rss) |
-| Lamborghini swerves away from all-electric future | [阅读全文](https://www.bbc.com/news/articles/clykvq2955qo?at_medium=RSS&at_campaign=rss) |
+| How an old suitcase revealed a hidden family fortune, lost under Nazi rule | [阅读全文](https://www.bbc.com/news/articles/c33pvlez6yjo?at_medium=RSS&at_campaign=rss) |
+| 'I'm not putting my ring back on yet,' says Molly-Mae after Tommy reunion | [阅读全文](https://www.bbc.com/news/articles/cg43lg3p7wno?at_medium=RSS&at_campaign=rss) |
+| Ritual, wrestling and Reddit: Grand Sumo meets internet fandom in London | [阅读全文](https://www.bbc.com/news/articles/c4gw7009342o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
