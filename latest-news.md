@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 17:49:10（北京时间）**
+🕒 更新时间：**2025年10月18日 17:56:48（北京时间）**
 
 ---
 
@@ -26,8 +26,8 @@
 | Trump denies Ukraine Tomahawk missiles, urges both sides to ‘stop the war immediately’ - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQUTJqMUlicG5kMG04OHJrY0FFQjhvbXNqOGtQNEt2bWVlc0E1d1lTSWFMZEtqdVpfa0pKVGR2LW9NMm9JOFVabzJKaVFYSWpNUUc4UjM5S1hIb043UzFvajg0T1RSMDQ2MGZBUUdjaF9HV2ItMDRGaHVyWVBsRmNoSXhKLUFOelUzRFBpQXhjNnJad1RO?oc=5) |
 | Trump commutes sentence of former US Rep. George Santos in federal fraud case - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOZzUxMDJLeDNsOG0xZEVEOThvY0lOM0U4WHA0dlNXZlFSbUp3LU9uc2k1cGNhRGR5M1RlSTJ5T3lCRWctaHAxMzRET2JCVnZpaXhpbWthMlZsTklvaXd1YS1UVlJKX1dNQllfMmFCOXhFMTdGQlpXamRTT0ljRE85OERkU0dBVkJPcktULURHYXZtTEx2S25ITzJFZTQzTXM?oc=5) |
 | US holding survivors from 'drug boat' off Venezuela - DW | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOWUVFLUhUR2pKM2pIMXFFSVFoMlE0bWpNbm1NSVJtR1JHMElkR0xuZG4zSlNscVdMeExJREdydXV4dE5yd2FaSzdUQ3FKSE5mTmhrdW9QSlhETTU5a2R4YkdNNUtpMk1WQi1kUGg2RGQ0aW8zVURsVG0yNXBpWkN4S1JKWE5tZ0JvdGfSAYoBQVVfeXFMT2d3UV9oTm8zWW9YSWsybTRzS2EzMHI2ckJUU2lQMkl3RzlzdUZTSVpHSVMtN3ZxZUl4LUxkVmdOQmdSNkdCYkdaTTNtZ3l2RjZSMm4zOTFydVoxNXpSWnFrbEhPbmJfWkZDc0prQVB4b2Q3Y3E3TFFoaDViWlRzTFdDRGhESkNCXzR3?oc=5) |
-| Trump urges Supreme Court to allow National Guard in Chicago - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxON1plVjltODU4aDVZOFlTbkZRNk1kODlHbk5Tc1Y4RXRXc1lqT09sdDNWRjRXWlRnYklNWjdTYW9iaHcwTXJHT0c4V1hmS0o0WHNHYVFrcnlwRWxNODctbkFxcmprOVQweWZXbG1hWmQ5aVVuZzZ3LTBLazNDcE8yTA?oc=5) |
 | What to expect from another massive 'No Kings' protest Saturday in Seattle and the region - KOMO | [阅读全文](https://news.google.com/rss/articles/CBMiigJBVV95cUxQYlNyU1ZWdHZ2dTI5S0dra3pmSU9jMDcxRGs0T3NEc2doQ3JhUjdyVTVWV2JwMWFMT3Fta3UzMWs3SkhhVk9odHZMZG1GMGVuUC1fUEloYmxacGZNM253b0ZuOWN6bXVtQVZVRkUzSHBfM3B5S3JRc3JsS0JyTGFUX1BHbG5jMFM2MlI1c1VIZnkxM1ZNNklERnJJdEVVTnV0aml2di1Sb0czVlhka3FCNkY3U09HQkxHSllxQ2RRYUhrdGJTaXh1VjltUUxUMTFlS1ZkRWpYNjlzaldIM3M0LTR6ZXlwUEgxaWVVQS1PdjNmT2Nidkx1WGhvM0VqMWxJTHo0NEt6ZS1WQQ?oc=5) |
+| Trump urges Supreme Court to allow National Guard in Chicago - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxON1plVjltODU4aDVZOFlTbkZRNk1kODlHbk5Tc1Y4RXRXc1lqT09sdDNWRjRXWlRnYklNWjdTYW9iaHcwTXJHT0c4V1hmS0o0WHNHYVFrcnlwRWxNODctbkFxcmprOVQweWZXbG1hWmQ5aVVuZzZ3LTBLazNDcE8yTA?oc=5) |
 | Israel confirms latest body returned from Gaza is dead hostage - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1UUFd3cVFBVk9ybHBxa2k4aGhiQmJRNXJMR3BXNkE3cUgyTGhGTFp4d1Yyai1BakJGTEo0VDRUby1ncnE1VDZlZzhhc0lMQlZ6ZDItNThseWhNUdIBX0FVX3lxTE5iNjVnNGZ1MTM3eTFVT013OHlPTUlYeGZURmJtNjR1eUN6eHQ1SThOU3ZXNTRaVU5LdWJHYjJpMEM1QTY1Sno5SDB4NXRxVU1wY1RwMERlbGlsekN3UVhF?oc=5) |
 | Alaska storm damage so bad many evacuees won’t go home for at least 18 months, governor says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1qVU0xVklMS2RHU3lrai0tNHI2b3JkZzZsY2tmUE1MMFY4N2hjbHRJYjZtMFhreDJmMFdQVjg1ZHU2eHBmdlNzODBaalZTc1hTcWpPNjR5VXNmd0xOb0FXemIxdmVub3Rqc25uSGg0X3hOSGdi?oc=5) |
 | Vermont Legislator Resigns Over Racist Republican Texts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQeWk5UTRWLTRYUW5sQ1h0aVZ6b3R3c1JKSGhRbU9XTUhabVFyeG1mRFlPRXI4VTNpMmsxRk5UM244RzhiZmxwRzBkUXFFM2F3UHY0bkxHTTJ0RHR3RE9YZHVNQ1JETURVRnhHNmF3LXdHQk5rZmcxU2c4Ujg3SUltT1JWaHNqQWZDQUo1TldsaDByeUJCSWV5YzJzQzZqMVRMODlj?oc=5) |
