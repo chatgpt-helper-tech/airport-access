@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 13:49:51（北京时间）**
+🕒 更新时间：**2025年10月18日 13:56:04（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| George Santos' prison sentence commuted, ex-GOP congressman to be released 'immediately': Trump - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNdkVHNl8tN0dWbUJMSUxrc2JMQXF3Sk9tVzBhTllCb1p3QWVkSmI1UDUxd25GUUpiQUh3VnRtNFo1emhrX2NsYk5VSzlXeGRsLUh1cDNQbXBaNTJVM3liU3pBcXAzNlBRYkUxa1N4d1JQbGU3UTNtSkpDQi1UTHY4ZlVvTFFVVk1HNlFDdHNFU3BxbUk2NTZhNGFpWHpsdXphM1pWSV80WFlGY0NXRDU00gG0AUFVX3lxTE5oT0t5YnFwTHRmSUd6V2RVLUdZeVNLc1BJbWFtUC1WY1hidE9RY1M3dUNGc3FsTnF0N0NUc1BuMDBNQ2FBRWpheHhOcjZtWi1OY1N0ZENhTkFyc0p3cTdGbFZNeUVMRFY0WC1vd1BoNzN3Y0xaVm5hc0d2aEhBVGR5R1dGMlZBUnBzRFJacHcyaEMzOWRESFVQczNxVkxrQzV2UzZLa0NWeXRxbjRTSEtRVmpoNg?oc=5) |
-| Trump says he wants to end Ukraine war without sending Tomahawk missiles - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOUk9vSFRLLXBuUkFnTHVqTzRLVFlMMFB0OTdPbkp2bzRaWFZUMnRrdlJ2NUdWWlNuckpTMThhQ01xSHdJbDAzRmZVUXBZajFvOWdLcmkwOVRiT1pGZndHN3ppVGxpMGJjWWp2Y1JQdDZCNEV1N3hHU3FwY3RoQzcyWXdqX0lLbk9h?oc=5) |
+| George Santos Is Released From Prison, His Lawyer Says, After Trump Commutes His Sentence - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPSnc5X0thZERGTmVSN3dCTjlZQUtULW9ra0NlNzU3QnpCSTFvRGVsVmI0bW9sdnBnNXowYU9rVXNGdllwUEdkNm9EV1oxSk83YmxvdVhkcXFzS2VpQTFhVUJ4YkhSVzBWWnFTZmNoSVB2LWpKU2s5djZNTFl1VThkek5ka1N4RGY1ajVBb1VBNW5Idw?oc=5) |
+| Trump rejects Zelensky on Tomahawk missiles in "tough" meeting - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQd3MzZ3pFVWRvRS0xNzRlZ3Y1Z3V1a2lJZnF4aDhQR0stVG1jS3N5YzF6dkRpVnlXQzhuakJSYXBsSWdVMExsS1M1SVZPTTVVRk85dUpqWEdmUlJNQ1Z5X2M0c2NhUVJpNmVjVWtvU0dwMS1sNnNYSlhhaU91QmFKRXNZdw?oc=5) |
 | GOP tries to brand anti-Trump ‘No Kings’ protests as un-American - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQMTNVUkotbEctUGd1dm84NXFYLS0zMVhPWUhsSnhMTGxxZE1Bc3N4UElETTduUFFEdkl6SmJIa0RGME1XZDloUDYyRTBndzhkM1R1V21SdWIybGhhbmRpY25TWEpNaUxoRnlkc0hpOWZhaWVEVGNJZEVCd3l0QjJfVVlJY2lfd1dhTko1T21R?oc=5) |
 | Trump and Maduro are both amassing military forces as tensions build in the Caribbean - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOWV92dF96NEZ2eVpHM1lVcHhvY0lKTmxvalVPRUxQVlVId1k0NUsxcTcwWFVoZFdJWXJ1NDJWNHZtcEppZFFJVk41SFQ2Y2NYTzBNZTdQc1FOajU5UmtTTFpFdndld1pIc1hKMEtjZkE2dmpaYVVoaVBqTVhJbFk0ajJUc0ctanc?oc=5) |
 | Trump says both Ukraine and Russia should declare victory after meeting with Zelenskyy: "Let history decide!" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOSWlWbGhSMG4yb0ZETzhmSHNxb21aQlBhXzFEWWs0OEJYWDdmaERaME5saVBxNkxDN0JmQ0FabEVHUlhmSk9ocm1IRkhqckhMR2pSQWoyQmhRVmJaNG5mNm5QY1VzQ2Jhd0VjWDVwN0ExQjB2dS1XbzhOYU5qZUNscGdsV21tVnptLWZLbERUVlM3VDYx0gGaAUFVX3lxTE5Jbk1BNmtSMEZRVkxhR0FoemM0UWtSTFROR1J6SlEyUWFKVVM1UlpQUVZGSUJXek1WdWtFZ09wdWw3dl9NQ1BqZ3Vnb0tQYi1MUmdpZnlCVFdHX2tDTnpLZ0xvSXNLcXktaWt3SURSX25tZDZ4QUVWSTZmdjlVNkxsdzN4WlMyZVlzVGZUVW9VcF9WSFlWbjZ3aUE?oc=5) |
