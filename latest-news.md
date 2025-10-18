@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 15:56:35（北京时间）**
+🕒 更新时间：**2025年10月18日 16:01:33（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump rejects Zelensky on Tomahawk missiles in "tough" meeting - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQd3MzZ3pFVWRvRS0xNzRlZ3Y1Z3V1a2lJZnF4aDhQR0stVG1jS3N5YzF6dkRpVnlXQzhuakJSYXBsSWdVMExsS1M1SVZPTTVVRk85dUpqWEdmUlJNQ1Z5X2M0c2NhUVJpNmVjVWtvU0dwMS1sNnNYSlhhaU91QmFKRXNZdw?oc=5) |
+| Trump says he wants to end Ukraine war without sending Tomahawk missiles - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOUk9vSFRLLXBuUkFnTHVqTzRLVFlMMFB0OTdPbkp2bzRaWFZUMnRrdlJ2NUdWWlNuckpTMThhQ01xSHdJbDAzRmZVUXBZajFvOWdLcmkwOVRiT1pGZndHN3ppVGxpMGJjWWp2Y1JQdDZCNEV1N3hHU3FwY3RoQzcyWXdqX0lLbk9h?oc=5) |
 | Trump commutes sentence of former US Rep. George Santos in federal fraud case - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOZzUxMDJLeDNsOG0xZEVEOThvY0lOM0U4WHA0dlNXZlFSbUp3LU9uc2k1cGNhRGR5M1RlSTJ5T3lCRWctaHAxMzRET2JCVnZpaXhpbWthMlZsTklvaXd1YS1UVlJKX1dNQllfMmFCOXhFMTdGQlpXamRTT0ljRE85OERkU0dBVkJPcktULURHYXZtTEx2S25ITzJFZTQzTXM?oc=5) |
 | Trump and Maduro are both amassing military forces as tensions build in the Caribbean - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOWV92dF96NEZ2eVpHM1lVcHhvY0lKTmxvalVPRUxQVlVId1k0NUsxcTcwWFVoZFdJWXJ1NDJWNHZtcEppZFFJVk41SFQ2Y2NYTzBNZTdQc1FOajU5UmtTTFpFdndld1pIc1hKMEtjZkE2dmpaYVVoaVBqTVhJbFk0ajJUc0ctanc?oc=5) |
 | Trump administration asks Supreme Court to allow National Guard deployment in Illinois - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNQVVCc3NxSFBBeVVPb2pyYTlzSm83bUszU25QV2xSeVlMMWQzOGZPOTZJaFpDRExBTkZJSjZFem1xRjlRWEFvN1M0OFI3VGdIZ0xURzZ2QlRraXFJbHZUTnNPdXdWblRuQWJ3MXFUZFE4US1XYTZxeklXYkhLVXY2dlMxZWYxQmJvNGJZUTh4VHBYQQ?oc=5) |
