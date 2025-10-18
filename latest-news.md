@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月19日 06:00:37（北京时间）**
+🕒 更新时间：**2025年10月19日 06:09:05（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Case Against Bolton Raises Questions Over Justice Dept.’s Use of Espionage Act - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNblMtNW1NR3ZscXU5NHpHb2FpVGR2alVHZE1XM1Z0eU9KUEtVY2wxM1RQalJ2WTYxQ0FDd0NRbEZOUHBmMnoxdkozakEtZElreDZkUnAwUFQycTFldVlzUzJfdXFOdWl1OHhuQ0M2NGJmTl9kVHlhVUthUFJuUU9ERm5ENzBxYjR6akM2OW5JSU4?oc=5) |
 | Maine Democratic Senate candidate Graham Platner apologizes for past social media posts - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxPT1hvdGwySzB2Mm0wMlhvaHF6SWtGNGp4N2ZobFRHTzI1UjdaZEFPaFRRaHRnVmNtWEVmbHBYeGVaRjVTeXlfMnRBd3BndGVQUXNGSkE4R0VtT1pEeGdNUVg1VXZHVDJpbl94Rml1dG9GNjJpbGlhdF9jcjlNcHlCa0ZtRjhQc2h3NGZnVXdPTUN5RXlmc0V6cDIzYTR4OUZYaXBIR3RGc1kyZ1ZDMmN6cDJmNE80RVY4c2laYdIBVkFVX3lxTFBLeUR3VFRnR2FkbnFLamJSbDQxU0trcDNYcUpIWkJxNTlGWk9PLUZNNE1iRjUxUWlLNGhHVGlJOTFGVkNxMFZFd0EtUE8xS2NDSDdwVzF3?oc=5) |
 | Vermont state senator resigns over racist Young Republican chat messages - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQY21BV0txRzhuY2RDX0h2OUVOaS1ZTlpUMk9qNVh1bkRsT1dWaENwU3B5XzNnN1d5YzhDTUQ1Q3JaMFdKV1pEOUdZUElGaVdZbFFxMl96czdzYi1RQW9WbWR4eWg3R2hEaDF5blA2UmlKdjFxYW81Q3R0VDNDS01NQ2tGRWlOaV9OLWFaLXgtM2VjTnp3cG5NTFFmZWZ4dw?oc=5) |
+| Ex-ICE director says Trump's immigration crackdown putting agents in "terrible position" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPcXc4ZWJHMXl0ZW12Z3cxMnJDWk1ELWxPNDhMYm5lVHE1RllRcXhsT21yQ2NxNE0wejM5NVk3NG5UeWV3M3ZfQVg5RDJoNkM0MFV4MXhtd1JjQjZpdG1DYzUybllLTzVESkV6SGpzOGxXRlN0RWsxcWtpWEZmdHdhMW9Ic25mMUhWWExPSXkwWVE3QXFqWjd4UWs0ZkpSUklBTTZNSm03WldkYl9PVGRhN043di3SAboBQVVfeXFMUGl2Z2pXN3hKN3UzY3dwa1RPV3FNVEh0ajZodHZodGdUQkhZWS05Qlg4UC1iU01HbUdzYXd3QUNxM255V2xfQXRoeFJ6N25mODVHVm1YRXdoclR5R0QtVXVFSG9VYnZETy1uaUx5Y1pxbnpQdHRDc0xwWGpvZk9wRnpGdnJQbEdLcGJVaGt5WGptVUVVNjdYakNVSnkxQWZNeDlDdFJjUkh2aS1aVWN5ekdKNnpHYlNrRUFn?oc=5) |
 | Trump’s reshoring push is tripping over itself - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQeHBhSzd6eHp1U0Q2TkEtQk52WjNTWGJ1VDQ4cl9nZEJDWDBXUnlWR0toM1M0bW4zZkhuSV9BYUdVUTFkbk4zbEczWWp2NGZyNFBlTDZtM2hBLW1vejVNUGRpeXctZVVYczFRTjk2OTM2Z3pvaWhFRWdNVTNlUjl4R2xLWFNjcHlEN0E?oc=5) |
 | With a phone call, Putin appears to change Trump’s mind on Ukraine. Again. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPNXRCRml3NWlhOFlfaC15azJGbU5yOXFCbldtLXA3LUZOaENhNjNpdVJTXzNQRkNNMl83S2dDV0o4UmlPc3VSZjVYWXZnd1Mwdk5MTnlJYjBWSC1obnpPMG5mUU1Xei1YN0Zrb1hXUXJYbjNabTBMTVFqZXVEUlZHQlRaM3MwSGRB?oc=5) |
-| The White House has faced a flurry of rejections after inviting 9 universities to be the first signatories of its higher-ed compact - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNbjVfVkw4Wm5DaVplY21ob09MNjRJRnYzNUJWTHlqbDMwWkF3RkZQTDNHRUE1Q1BmSU1ZZVItOFdITG1rX19TVXY2c3FwNFRIei0wUWVsTGhvX2tZOUhFYTZvVDlhUGxSb2J6WUkzZ25uQ1h5WlhER3h1MU14Zk9SdGNNdTdPZWRPUmp6Z0N5MUpWTkhMTmZjLWczMl9mYklZS2dWQkM3QQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
