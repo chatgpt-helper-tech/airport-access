@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 20:25:50（北京时间）**
+🕒 更新时间：**2025年10月18日 20:33:20（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | US holding survivors from 'drug boat' off Venezuela - DW | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOWUVFLUhUR2pKM2pIMXFFSVFoMlE0bWpNbm1NSVJtR1JHMElkR0xuZG4zSlNscVdMeExJREdydXV4dE5yd2FaSzdUQ3FKSE5mTmhrdW9QSlhETTU5a2R4YkdNNUtpMk1WQi1kUGg2RGQ0aW8zVURsVG0yNXBpWkN4S1JKWE5tZ0JvdGc?oc=5) |
 | Trump administration asks Supreme Court to allow deployment of National Guard in Chicago area - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNeVhkUUItZE91VklWVWZuSnhTT1NuZDVxZUZGamtPYzI2VGNPTTZuLUZNTDFjaEo5WnpZNV94aDMybkYwbEtBODhHQ2tDbTdpdE9sWG1jalh3aTIySklWanlQb2hmSGFPdGhQdzk5Ri1kSGxJeHJlTEVJRFY5UnQtWmFDUDRQYUtjQTd2VGt3?oc=5) |
 | Bernie-backed Maine Senate candidate Graham Platner melts down - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBlem5SMDVCT1Z6bHR4V1FtRVJYMUxaUnIzbGVBS25nM21qdktoSW1iaHd3UWMxRHIyVWlyTVhNNTNocmU1SDk1NS1ZdDdYUVFnRWx2N0QxN2RnRFBvM1VySml3cWRsVmhGb0c4LTJiXzdlV0pXM1E?oc=5) |
+| Alaska storm damage could displace some evacuees for at least 18 months, officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPUGtLbXk4NTA3TG1MdGQ1akx5Nl9xWFA5UXgzQS1mdU10OXc0UWtHM3RfY3IxNWFucGNVM0JHNEpGQ3BHZWVWNmFlaDF0Rm8zejZhVTFJVXFWVkp4WEY2Ulp4WDJNbVpyRnJLSFhSUU9hR1FuMlJMS2JleExWTDd0VWpiUdIBiAFBVV95cUxNWG9sZ3l4UlQ2ZGFlbDJhVXF1UG5QMkZTU3ZjUmVqWDlKanNNWkc5VzlxaHdPd25oZzlYX0VXRFZfbmJOVEJRSXJwS1o5S1BndE1PdnFwNkRNWVByeFVzZ3BSRzduelB3U3ZsQzlHLUJZbUpyaEJDN09BWEJBc2lfR2g3THp2YkVH?oc=5) |
 | Vermont Legislator Resigns Over Racist Texts in Republican Group Chat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQeWk5UTRWLTRYUW5sQ1h0aVZ6b3R3c1JKSGhRbU9XTUhabVFyeG1mRFlPRXI4VTNpMmsxRk5UM244RzhiZmxwRzBkUXFFM2F3UHY0bkxHTTJ0RHR3RE9YZHVNQ1JETURVRnhHNmF3LXdHQk5rZmcxU2c4Ujg3SUltT1JWaHNqQWZDQUo1TldsaDByeUJCSWV5YzJzQzZqMVRMODlj?oc=5) |
 | Salesforce CEO Marc Benioff apologises for San Francisco deployment remark - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE80WEs2LUZ3TzFNd0hFM2VtejN0Vm5pOTlJblp1R0dzbXcxZHJuU3ZWQnVYcGJ1WG5ucV9vaERIb0s4TkItTElrUzBLcnVOUlQzZDZYQ3FkQnp3UdIBX0FVX3lxTE9rVEttc2lOc19DWllKc2pXbDZYU19KTl83NnNWNnJYSjBMelh3TXFiVnJjeXRrT0tMV0RqT2JjMzJZYzRFQkJWeXhnY2pHMVViZEltQ0lkS1JvZ1dVOUtV?oc=5) |
-| Alaska storm damage could displace some evacuees for at least 18 months, officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPUGtLbXk4NTA3TG1MdGQ1akx5Nl9xWFA5UXgzQS1mdU10OXc0UWtHM3RfY3IxNWFucGNVM0JHNEpGQ3BHZWVWNmFlaDF0Rm8zejZhVTFJVXFWVkp4WEY2Ulp4WDJNbVpyRnJLSFhSUU9hR1FuMlJMS2JleExWTDd0VWpiUdIBiAFBVV95cUxNWG9sZ3l4UlQ2ZGFlbDJhVXF1UG5QMkZTU3ZjUmVqWDlKanNNWkc5VzlxaHdPd25oZzlYX0VXRFZfbmJOVEJRSXJwS1o5S1BndE1PdnFwNkRNWVByeFVzZ3BSRzduelB3U3ZsQzlHLUJZbUpyaEJDN09BWEJBc2lfR2g3THp2YkVH?oc=5) |
 | Israel confirms latest body returned from Gaza is dead hostage - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1UUFd3cVFBVk9ybHBxa2k4aGhiQmJRNXJMR3BXNkE3cUgyTGhGTFp4d1Yyai1BakJGTEo0VDRUby1ncnE1VDZlZzhhc0lMQlZ6ZDItNThseWhNUdIBX0FVX3lxTE5iNjVnNGZ1MTM3eTFVT013OHlPTUlYeGZURmJtNjR1eUN6eHQ1SThOU3ZXNTRaVU5LdWJHYjJpMEM1QTY1Sno5SDB4NXRxVU1wY1RwMERlbGlsekN3UVhF?oc=5) |
 
 ---
