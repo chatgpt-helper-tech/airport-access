@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 08:24:50（北京时间）**
+🕒 更新时间：**2025年10月18日 08:33:01（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump administration asks Supreme Court to allow National Guard deployment in Illinois - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNQVVCc3NxSFBBeVVPb2pyYTlzSm83bUszU25QV2xSeVlMMWQzOGZPOTZJaFpDRExBTkZJSjZFem1xRjlRWEFvN1M0OFI3VGdIZ0xURzZ2QlRraXFJbHZUTnNPdXdWblRuQWJ3MXFUZFE4US1XYTZxeklXYkhLVXY2dlMxZWYxQmJvNGJZUTh4VHBYQQ?oc=5) |
 | Alex Acosta cleared Trump of wrongdoing in the Epstein case, GOP says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNUGllWk5aeGVUTmFTbkNqNnEyUEpTYXNqclFmNjNfeS04Q1Y3SVpOdW52ZGN6REE0YTIycGFuR0hkOHZYeVlWNl9YNnpUYlBRQUlmZmlhb2pfMkd2Y1owRDNGdWJUSXBkOHRNS1FORlFab1Y3NWJEdTJLU0pBcjcwSV9lLW1JVm94cVlpWTgydUg1UWVsbGZwMnBzTEF0UmwzdGI5VXF2dTlwWUtiVmxBWklsZ0kzc3BYNkE?oc=5) |
 | GOP tries to brand anti-Trump ‘No Kings’ protests as un-American - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQMTNVUkotbEctUGd1dm84NXFYLS0zMVhPWUhsSnhMTGxxZE1Bc3N4UElETTduUFFEdkl6SmJIa0RGME1XZDloUDYyRTBndzhkM1R1V21SdWIybGhhbmRpY25TWEpNaUxoRnlkc0hpOWZhaWVEVGNJZEVCd3l0QjJfVVlJY2lfd1dhTko1T21R?oc=5) |
+| Benioff Apologizes for Saying Trump Should Send Troops to San Francisco - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPZ01PZ0ZfZTZUMENEUHYwV1NKMlV4ZUVuNFYwVjBlcTY3bFYtU09pTjNpMEdKbDV5dnhJd0ppaGlSX3FoaFdpTDBzZDRGWW5MZ0pIWGtBdVRSWkJrVG5hLTk0VkpLS0JhSmZEN29pS21XbUZ3c2l5cEROZHZiaWRwbQ?oc=5) |
 | University of Virginia Won’t Join White House’s Compact for Colleges - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPbWtoQTBmc1laRkgybFdhU2RqcTJpOTBFVU03M1BIbnlfdl8ybkxHS3ZvM0ZxTUNLTDFFTWpsWDcwSzctbWg2dGV2dlZ4c0Fndm9ac19IdjNCNzhEcU41bWJDalduVDc1aC13VnhmMEF2bmhrNlNNdTdZTXZMaS0zLWQyUkhCSERSU3NEUUFn?oc=5) |
 | New York GOP suspends state Young Republicans chapter over 'vile' group chat messages - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxQUlhSTm41OVFNdXZLUEMzSkRvZURkWVJHeThpdnBsTG9MY2hRb1ZTZTAtbXlWMC1HZXowUkNpVUU0ZXFoYVROQUZ4RVZ3UXFzMzFWSGlIdnBQc3pCS01pNE1GbzZMbWpNVEkzUDdIeDdtSTJ3dVBoeU8zVThaall0bVVyTmVEZG1tNTFST3pJdUlIVS1ONWFwQnQtNnVmM25ia3V2NWJaaHlOSFZtTFlpazJZOE9yUXRFSHJSb2kxN2FwbVlRRGfSAVZBVV95cUxQbVhoXzlhMFJYSTNMUnY1VnhCUWs5N2VNZmdqNUt4dVdJeldMZFYtS2pGQzVxc3JSLWpUVm5BbVRpT1g3VUh4ZWVaaWMxZjVuaFpVNDdlQQ?oc=5) |
 | Andrew Cuomo is still behind — and he’s blaming Curtis Sliwa - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOY1RhS0NSWGMzczc4MjltU3d3WUhCb3Y2R21RNEM3UElnYmU1WldCMWxwQzZaYlRiakxKN0hWQk92LVNFTUxabnNBN3ZKVHB0UzRrR1V5dllvRHpYcEYxNGE4U29uWnVTWTNtYnNrZmZVZ240aGFldjRGTnFOUnE3a000RGFnNWdkRV9BMjRDUHdCUjBzNWVVZnh4NnFZSEUwR0dQVFpmV0RtUDg?oc=5) |
-| Man convicted in Etan Patz's murder must be re-tried by June or released: Judge - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPbjN4RWY1UTJBaC1LVzRoZEVYOHgzNS1FT3l4a0JqdmpVekhjZEd5MVJZeE4tUXliQVROaG8tSi1yLTBwd3JPdnlDVEd1em1jMk1uV0tBMmhJam5wLVFwUXBBaEM3RF9pUnd4M3E1alFjZ1JsdVlSOVFPQ2RCcGl4RlN3WlZybXN4OEZoZWdkM2NiQ3pDTGNWdEdRZC3SAaIBQVVfeXFMTjcwcmZLRVdDTjlmcFZQSEJDS3hSOHdiN0piWFJsVXlwbWxpbGZzLVlFU2ZiN1pyakpjTldUaFM1WEVoMTAwRmNXb0FVUU53cXhYSXJYNzE0V2JmRTBrb3MzLWlaZlB3cW9qcklja1Q5dGp1eDc4QlNKWTBpUnNVdnhsdzVqOUg4TXJ1YkFwZjhEZ3Vhb3k1SjVXcjhWTnV1ZF9R?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
