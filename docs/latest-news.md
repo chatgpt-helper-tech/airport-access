@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 12:08:04（北京时间）**
+🕒 更新时间：**2025年10月18日 12:16:19（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump seeks to build on momentum from Gaza deal in a busy diplomatic week - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBZWHVuZEtaMFhtVkdoWXp5QTRoRVNjLVo3Unkxb2lVY0RiSzByd0FNTHpJSUVNOVNjSzl0OWllaDNWWi1HXzFJVlNxUlhkMTR4QlI1V3N0WVNNc2FMZEFpT0M2RElKajBGZGJFQmo4TmwwdEtnTmctRjhuZkpRa2s?oc=5) |
 | Benioff Apologizes for Saying Trump Should Send Troops to San Francisco - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPZ01PZ0ZfZTZUMENEUHYwV1NKMlV4ZUVuNFYwVjBlcTY3bFYtU09pTjNpMEdKbDV5dnhJd0ppaGlSX3FoaFdpTDBzZDRGWW5MZ0pIWGtBdVRSWkJrVG5hLTk0VkpLS0JhSmZEN29pS21XbUZ3c2l5cEROZHZiaWRwbQ?oc=5) |
 | Lawmaker resigns after involvement in racist chat - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOREZVc1laWU1lT3ZrSFBzRWp5dExsVVZNRnZwMzhSV2JPUHV6d3FNYmxOaEJTRnZYV1IxMm5lVDlzZFYzNFcxaW5VcUhVV2xPTTl6NkJYdEdaVkZ0WFJ2UW14Mjl1ajMwenZqNEJQNnBjUTkxTk00cmRRcUl5ejlqS21TUWVUX1g1eHZ5ai1mT3lDRnVXeEVTZ2ZUa0JvUGZ4?oc=5) |
+| UVA rejects Trump administration's 'Compact for Academic Excellence' - VPM | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNTGc3Y0RMQmFnY1NOZmh2UFZaRlhBME1XdW80T1RpVVdISFl3Qjd1M0FQamFOaU5qVlkweTlOOHNyT01RZU5BckRmX3FsdTY5WGo3ak1RQWN0S3lHcUNsTFBmWWhmMGdGcFFYRW4wa0RxR1FuSEdXZFBEZG5ScFpWOTFpVXpNYWhRV2NOazdVYXdRd0pSeXFxZDhxa1RNLUJjcWNDQWR3V2xJcVZrX1E?oc=5) |
 | Alaska storm damage so bad many evacuees won’t go home for at least 18 months, governor says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE1qVU0xVklMS2RHU3lrai0tNHI2b3JkZzZsY2tmUE1MMFY4N2hjbHRJYjZtMFhreDJmMFdQVjg1ZHU2eHBmdlNzODBaalZTc1hTcWpPNjR5VXNmd0xOb0FXemIxdmVub3Rqc25uSGg0X3hOSGdi?oc=5) |
-| University of Virginia turns down Trump deal for priority federal funding - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQUkdxNGxFek8yQlRLM1M2cFExQzRLN1ptaERIa1V4Y1hTM09TNW1IbklXVnlILWNOaThvZ1pzM25nTEJYYm5FZEdGU2lua0IzMk5zT3hvdUpZUXdUMjVYdUNwamxUeVpsbzlmMC1PVFRxTjdxYlZlR0doUnZTbVgxeE9EaHc5bnJWcFpLTmt5bGFwWkxJ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
