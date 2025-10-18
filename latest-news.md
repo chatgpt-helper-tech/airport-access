@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月19日 00:48:33（北京时间）**
+🕒 更新时间：**2025年10月19日 00:57:44（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | With shutdown cuts, Trump moves closer to eliminating Education Department - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOTkdCOU9SdjM1dEpsdVJxN3hleUc2U0VkN3ZVNGlBaUdLM3Z5aWZ5NU82OElDVW85UzlwZ0VpRUZJdEsxQ2dFNU9EMHUzWHR0dEFQTmFOelhDV1RQT0E1YW1QemJhNlptdl9oaUs0b2pEZlJuQjB6cTUtNzZTcDBQdG1Xd05QRWNvb0JGVQ?oc=5) |
 | Palestinian death toll in Gaza tops 68,000, as Israel identifies the remains of one more hostage - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQM3Z6SVAyc3B0cFhPUnEwVzc4cGJnVVgxMGxrSzFZWF90NkdVOG9acU5uUUY0NTVnS1BBcC0wTTFYazNXM2RsWTgzeDRCeXZiTTNtdm5LajE0UWcwSTBLQ1dYTlM4RGNtQWpMc2w1cTM0cEFYLXc1U1VrWDJlRi0tb3lvRFBfaHFRaXp5eWxiV0RLOUkxMTlvNEZzQjJKQ21XWjd3eU5CSHQ?oc=5) |
 | Vermont state senator resigns over racist Young Republican chat messages - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQY21BV0txRzhuY2RDX0h2OUVOaS1ZTlpUMk9qNVh1bkRsT1dWaENwU3B5XzNnN1d5YzhDTUQ1Q3JaMFdKV1pEOUdZUElGaVdZbFFxMl96czdzYi1RQW9WbWR4eWg3R2hEaDF5blA2UmlKdjFxYW81Q3R0VDNDS01NQ2tGRWlOaV9OLWFaLXgtM2VjTnp3cG5NTFFmZWZ4dw?oc=5) |
-| George Santos Is Released From Prison, His Lawyer Says, After Trump Commutes His Sentence - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPSnc5X0thZERGTmVSN3dCTjlZQUtULW9ra0NlNzU3QnpCSTFvRGVsVmI0bW9sdnBnNXowYU9rVXNGdllwUEdkNm9EV1oxSk83YmxvdVhkcXFzS2VpQTFhVUJ4YkhSVzBWWnFTZmNoSVB2LWpKU2s5djZNTFl1VThkek5ka1N4RGY1ajVBb1VBNW5Idw?oc=5) |
+| Trump commutes sentence of former US Rep. George Santos in federal fraud case - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOZzUxMDJLeDNsOG0xZEVEOThvY0lOM0U4WHA0dlNXZlFSbUp3LU9uc2k1cGNhRGR5M1RlSTJ5T3lCRWctaHAxMzRET2JCVnZpaXhpbWthMlZsTklvaXd1YS1UVlJKX1dNQllfMmFCOXhFMTdGQlpXamRTT0ljRE85OERkU0dBVkJPcktULURHYXZtTEx2S25ITzJFZTQzTXM?oc=5) |
 | Alaska storm damage could displace some evacuees for at least 18 months, officials say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPUGtLbXk4NTA3TG1MdGQ1akx5Nl9xWFA5UXgzQS1mdU10OXc0UWtHM3RfY3IxNWFucGNVM0JHNEpGQ3BHZWVWNmFlaDF0Rm8zejZhVTFJVXFWVkp4WEY2Ulp4WDJNbVpyRnJLSFhSUU9hR1FuMlJMS2JleExWTDd0VWpiUdIBiAFBVV95cUxNWG9sZ3l4UlQ2ZGFlbDJhVXF1UG5QMkZTU3ZjUmVqWDlKanNNWkc5VzlxaHdPd25oZzlYX0VXRFZfbmJOVEJRSXJwS1o5S1BndE1PdnFwNkRNWVByeFVzZ3BSRzduelB3U3ZsQzlHLUJZbUpyaEJDN09BWEJBc2lfR2g3THp2YkVH?oc=5) |
-| 10 people hospitalized after structure collapses in Ohio neighborhood - WHIO TV | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQVzQ2RTQ5U3YzNkJpQjRwdE5XamFWQVAtVUtCZjFFTzV5YzRMRkszQURJQnJPOFlCTUhSbk5TTHZlYjY4T0VJWXgtVDZLd1dIZmhuUHE0TnRJZ0JVYnFkVlZzNlN2NlN4MlZmN0JYdkhYQlRrcWM5U19Cd2p3aUZWS0lQQnF4WGY3X1hRTVRKdEJNaUJyWV9WanFfMXU0WUs3dkNnRDBTNlM3OU5fTkNnMUNOSzRBbC1tRmcxczVXT2Mtc0NI0gHYAUFVX3lxTE9OS2ZXUkdSMjJrUzV5TmhMMjNOeUU0SjQ0dGNzMi1JLW5YREFBWWVHODk3M0Q1S2l5UmEzRmRTUktrdy03VHpMMmRCWkdsVWt3SFNCLXg2amZsMTl2NUVHTzBTbzk4TTU3TWRnUWdSS05fcHVaZHdGSmR5TkhSWHRQcmZ6TjgzLUlCNE0yMnlaQkxzdUVmWWhxYTVHMGQ4UTJ0VmhISldILWp3MVBGQTMxbWZ6OGxILVB5dklxaThuMGZVdmNtWmxZM1Npdk1pb3JkREF3YXQ1bQ?oc=5) |
+| 10 Injured in Balcony Collapse in Cincinnati - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFBtWHphYWp5aVVycHdwdUxRSVhibDNIRzdjLVEwZG53ODlXWlAzRGp1MUpqUVdQbHZIZ1VqYzcyakhRVnFMS1dfR2RDVkg4dW5POC0tWGZxcXVsS0Q0X2JWR3VrMWhrbjJveWVQRHFtQmowYUpqVTl5NFRB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
