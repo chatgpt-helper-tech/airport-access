@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 09:24:23（北京时间）**
+🕒 更新时间：**2025年10月18日 09:32:52（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | Mystery heatwave warms Pacific Ocean to new record | [阅读全文](https://www.bbc.com/news/articles/ce3xynwwx4yo?at_medium=RSS&at_campaign=rss) |
 | Lamborghini swerves away from all-electric future | [阅读全文](https://www.bbc.com/news/articles/clykvq2955qo?at_medium=RSS&at_campaign=rss) |
 | We're furious the 'Lip King' is selling weight-loss jabs, say dead mother's family | [阅读全文](https://www.bbc.com/news/articles/c4gk0w95jyjo?at_medium=RSS&at_campaign=rss) |
-| Red Cross retrieves another body of dead hostage in Gaza, Israel says | [阅读全文](https://www.bbc.com/news/articles/c5yp3eq9knvo?at_medium=RSS&at_campaign=rss) |
 | 'Have a great life!' Trump orders prison release of disgraced ex-lawmaker Santos | [阅读全文](https://www.bbc.com/news/articles/cy5q3439xpqo?at_medium=RSS&at_campaign=rss) |
+| Red Cross retrieves another body of dead hostage in Gaza, Israel says | [阅读全文](https://www.bbc.com/news/articles/c5yp3eq9knvo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
