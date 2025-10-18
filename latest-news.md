@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 20:56:07（北京时间）**
+🕒 更新时间：**2025年10月18日 21:01:10（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | No Kings protests: What to expect at Saturday's marches around the country - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPTHBaaFJudGhkc2ptUVJpVEJHQWF3bDNrb3JDVjBEMUhNWGpZbkh3c0VEcFFZUzJRT0g2Vnp6VFkzN0ktVFR3b3RyM1I1Sm5vYVRrVUFIeHl5QzdnNTlRZ2taYWJpb0tLbkVsSmhMYXZkM29yVXVaWUwtdjBOSzdyTWlB?oc=5) |
-| Trump rejects Zelensky on Tomahawk missiles in "tough" meeting - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQd3MzZ3pFVWRvRS0xNzRlZ3Y1Z3V1a2lJZnF4aDhQR0stVG1jS3N5YzF6dkRpVnlXQzhuakJSYXBsSWdVMExsS1M1SVZPTTVVRk85dUpqWEdmUlJNQ1Z5X2M0c2NhUVJpNmVjVWtvU0dwMS1sNnNYSlhhaU91QmFKRXNZdw?oc=5) |
+| Trump says he wants to end Ukraine war without sending Tomahawk missiles - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOUk9vSFRLLXBuUkFnTHVqTzRLVFlMMFB0OTdPbkp2bzRaWFZUMnRrdlJ2NUdWWlNuckpTMThhQ01xSHdJbDAzRmZVUXBZajFvOWdLcmkwOVRiT1pGZndHN3ppVGxpMGJjWWp2Y1JQdDZCNEV1N3hHU3FwY3RoQzcyWXdqX0lLbk9h?oc=5) |
 | Trump commutes sentence of former US Rep. George Santos in federal fraud case - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOZzUxMDJLeDNsOG0xZEVEOThvY0lOM0U4WHA0dlNXZlFSbUp3LU9uc2k1cGNhRGR5M1RlSTJ5T3lCRWctaHAxMzRET2JCVnZpaXhpbWthMlZsTklvaXd1YS1UVlJKX1dNQllfMmFCOXhFMTdGQlpXamRTT0ljRE85OERkU0dBVkJPcktULURHYXZtTEx2S25ITzJFZTQzTXM?oc=5) |
 | US holding survivors from 'drug boat' off Venezuela - DW | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOWUVFLUhUR2pKM2pIMXFFSVFoMlE0bWpNbm1NSVJtR1JHMElkR0xuZG4zSlNscVdMeExJREdydXV4dE5yd2FaSzdUQ3FKSE5mTmhrdW9QSlhETTU5a2R4YkdNNUtpMk1WQi1kUGg2RGQ0aW8zVURsVG0yNXBpWkN4S1JKWE5tZ0JvdGc?oc=5) |
 | Trump asks Supreme Court to allow deployment of National Guard in Illinois - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOczZmd3lsNWR2TFdRcXcwVExxZ3U0aWNTaXlrZ011bU5OcEVSVGR0QURkaUxLdklRTEprV185WXBDai1uV1FaUFFQdU5wUmxZLVlxZHdRc0ZSazVYOU13LWhTRENXVjd3TXlmazJKV2xQamxraFZfUlJjek1HZXd3WjRIZk9QeG040gGOAUFVX3lxTFA3Q2tRYjllTXlRRy0tUEdpS0c5TVlOdVFod1ZkejA5eGU3dzQzSjFCTklsMFJoRWFvd3BlVXBuZlFCdFJRN0N0LTZhMDdvNUpVREh1REpwS3piWEg2a1ItTVRiVUpBdjBrZi14Z3dFR09oNGpUdHRjWlk5Umdlb20tOGlneGZiMThNU3RKbHc?oc=5) |
