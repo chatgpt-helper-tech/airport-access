@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 15:33:03（北京时间）**
+🕒 更新时间：**2025年10月18日 15:41:36（北京时间）**
 
 ---
 
@@ -26,12 +26,12 @@
 | Trump says he wants to end Ukraine war without sending Tomahawk missiles - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOUk9vSFRLLXBuUkFnTHVqTzRLVFlMMFB0OTdPbkp2bzRaWFZUMnRrdlJ2NUdWWlNuckpTMThhQ01xSHdJbDAzRmZVUXBZajFvOWdLcmkwOVRiT1pGZndHN3ppVGxpMGJjWWp2Y1JQdDZCNEV1N3hHU3FwY3RoQzcyWXdqX0lLbk9h?oc=5) |
 | Trump commutes sentence of former US Rep. George Santos in federal fraud case - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOZzUxMDJLeDNsOG0xZEVEOThvY0lOM0U4WHA0dlNXZlFSbUp3LU9uc2k1cGNhRGR5M1RlSTJ5T3lCRWctaHAxMzRET2JCVnZpaXhpbWthMlZsTklvaXd1YS1UVlJKX1dNQllfMmFCOXhFMTdGQlpXamRTT0ljRE85OERkU0dBVkJPcktULURHYXZtTEx2S25ITzJFZTQzTXM?oc=5) |
 | Trump and Maduro are both amassing military forces as tensions build in the Caribbean - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOWV92dF96NEZ2eVpHM1lVcHhvY0lKTmxvalVPRUxQVlVId1k0NUsxcTcwWFVoZFdJWXJ1NDJWNHZtcEppZFFJVk41SFQ2Y2NYTzBNZTdQc1FOajU5UmtTTFpFdndld1pIc1hKMEtjZkE2dmpaYVVoaVBqTVhJbFk0ajJUc0ctanc?oc=5) |
-| What to expect from another massive 'No Kings' protest Saturday in Seattle and the region - KOMO | [阅读全文](https://news.google.com/rss/articles/CBMiigJBVV95cUxQYlNyU1ZWdHZ2dTI5S0dra3pmSU9jMDcxRGs0T3NEc2doQ3JhUjdyVTVWV2JwMWFMT3Fta3UzMWs3SkhhVk9odHZMZG1GMGVuUC1fUEloYmxacGZNM253b0ZuOWN6bXVtQVZVRkUzSHBfM3B5S3JRc3JsS0JyTGFUX1BHbG5jMFM2MlI1c1VIZnkxM1ZNNklERnJJdEVVTnV0aml2di1Sb0czVlhka3FCNkY3U09HQkxHSllxQ2RRYUhrdGJTaXh1VjltUUxUMTFlS1ZkRWpYNjlzaldIM3M0LTR6ZXlwUEgxaWVVQS1PdjNmT2Nidkx1WGhvM0VqMWxJTHo0NEt6ZS1WQQ?oc=5) |
 | Bessent, Chinese vice premier to meet to try to defuse US tariff hike - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOQV9IeXZtSl91eW81WEdacGdwalFfY0xuMjFxdnRWTWZVdGlvMXdNM3RmODdtdlh4Si1lX0E1VjlNTFQxMEZ6Sk5GOWlxcmNnNkh1MUR2dDI1NE1FbF9pV0ttdThValJ1MTJiMlpBeUJMWDI3akVPUE0xS05ObHVFN1lvdHZwdE81ZmRpeE5Fd29KYkxaUjg4?oc=5) |
 | Trump administration asks Supreme Court to allow National Guard deployment in Illinois - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNQVVCc3NxSFBBeVVPb2pyYTlzSm83bUszU25QV2xSeVlMMWQzOGZPOTZJaFpDRExBTkZJSjZFem1xRjlRWEFvN1M0OFI3VGdIZ0xURzZ2QlRraXFJbHZUTnNPdXdWblRuQWJ3MXFUZFE4US1XYTZxeklXYkhLVXY2dlMxZWYxQmJvNGJZUTh4VHBYQQ?oc=5) |
-| Lawmaker resigns after involvement in racist chat - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOREZVc1laWU1lT3ZrSFBzRWp5dExsVVZNRnZwMzhSV2JPUHV6d3FNYmxOaEJTRnZYV1IxMm5lVDlzZFYzNFcxaW5VcUhVV2xPTTl6NkJYdEdaVkZ0WFJ2UW14Mjl1ajMwenZqNEJQNnBjUTkxTk00cmRRcUl5ejlqS21TUWVUX1g1eHZ5ai1mT3lDRnVXeEVTZ2ZUa0JvUGZ4?oc=5) |
 | Salesforce CEO Marc Benioff apologises for San Francisco deployment remark - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE80WEs2LUZ3TzFNd0hFM2VtejN0Vm5pOTlJblp1R0dzbXcxZHJuU3ZWQnVYcGJ1WG5ucV9vaERIb0s4TkItTElrUzBLcnVOUlQzZDZYQ3FkQnp3UdIBX0FVX3lxTE9rVEttc2lOc19DWllKc2pXbDZYU19KTl83NnNWNnJYSjBMelh3TXFiVnJjeXRrT0tMV0RqT2JjMzJZYzRFQkJWeXhnY2pHMVViZEltQ0lkS1JvZ1dVOUtV?oc=5) |
+| Lawmaker resigns after involvement in racist chat - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOREZVc1laWU1lT3ZrSFBzRWp5dExsVVZNRnZwMzhSV2JPUHV6d3FNYmxOaEJTRnZYV1IxMm5lVDlzZFYzNFcxaW5VcUhVV2xPTTl6NkJYdEdaVkZ0WFJ2UW14Mjl1ajMwenZqNEJQNnBjUTkxTk00cmRRcUl5ejlqS21TUWVUX1g1eHZ5ai1mT3lDRnVXeEVTZ2ZUa0JvUGZ4?oc=5) |
 | Alaska storm damage so bad many evacuees won’t go home for at least 18 months, governor says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQYWc4akctam0xcDdQcERHelFnWW81a2daOG5kUzFOdWUzc05xdzNneWt4Y2V1N0NyS0FFTjNHeEN6WVdURUhGZmdqNXFuaklhcmJzWnVnZzI2V1ZFYUZMWkxIMmVKWGprTkZUQ0tZRHpzUF9nejdBNUN3WW9KZDNYSzRnMVBkakY3cExn?oc=5) |
+| University of Virginia declines Trump deal for priority federal funding - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQUkdxNGxFek8yQlRLM1M2cFExQzRLN1ptaERIa1V4Y1hTM09TNW1IbklXVnlILWNOaThvZ1pzM25nTEJYYm5FZEdGU2lua0IzMk5zT3hvdUpZUXdUMjVYdUNwamxUeVpsbzlmMC1PVFRxTjdxYlZlR0doUnZTbVgxeE9EaHc5bnJWcFpLTmt5bGFwWkxJ?oc=5) |
 | 10 Injured in Balcony Collapse in Cincinnati - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFBtWHphYWp5aVVycHdwdUxRSVhibDNIRzdjLVEwZG53ODlXWlAzRGp1MUpqUVdQbHZIZ1VqYzcyakhRVnFMS1dfR2RDVkg4dW5POC0tWGZxcXVsS0Q0X2JWR3VrMWhrbjJveWVQRHFtQmowYUpqVTl5NFRB?oc=5) |
 
 ---
