@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 19:08:20（北京时间）**
+🕒 更新时间：**2025年10月18日 19:17:25（北京时间）**
 
 ---
 
@@ -9,14 +9,14 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Prince Andrew gives up his title as Duke of York | [阅读全文](https://www.bbc.com/news/articles/cgqlyw9g7weo?at_medium=RSS&at_campaign=rss) |
-| After all those scandals, why did Andrew quit his titles now? | [阅读全文](https://www.bbc.com/news/articles/c3ep8gd1qv3o?at_medium=RSS&at_campaign=rss) |
+| 'It's a joyous moment' - Brother of Prince Andrew accuser | [阅读全文](https://www.bbc.com/news/videos/ckgk1eknvzpo?at_medium=RSS&at_campaign=rss) |
 | Zelensky fails to secure Tomahawk missiles at talks with Trump | [阅读全文](https://www.bbc.com/news/articles/c93dqew8l3xo?at_medium=RSS&at_campaign=rss) |
 | New blood test could speed up diagnosis of 50 cancer types, study says | [阅读全文](https://www.bbc.com/news/articles/c205g21n1zzo?at_medium=RSS&at_campaign=rss) |
 | 'Have a great life!' Trump orders prison release of disgraced ex-lawmaker Santos | [阅读全文](https://www.bbc.com/news/articles/cy5q3439xpqo?at_medium=RSS&at_campaign=rss) |
 | How an old suitcase revealed a hidden family fortune, lost under Nazi rule | [阅读全文](https://www.bbc.com/news/articles/c33pvlez6yjo?at_medium=RSS&at_campaign=rss) |
-| We're furious the 'Lip King' is selling weight-loss jabs, say dead mother's family | [阅读全文](https://www.bbc.com/news/articles/c4gk0w95jyjo?at_medium=RSS&at_campaign=rss) |
+| After all those scandals, why did Andrew quit his titles now? | [阅读全文](https://www.bbc.com/news/articles/c3ep8gd1qv3o?at_medium=RSS&at_campaign=rss) |
 | Ritual, wrestling and Reddit: Grand Sumo meets internet fandom in London | [阅读全文](https://www.bbc.com/news/articles/c4gw7009342o?at_medium=RSS&at_campaign=rss) |
-| 'It's scary to think I could have died': How Americans are coming back from fentanyl addiction | [阅读全文](https://www.bbc.com/news/articles/cm2e471159vo?at_medium=RSS&at_campaign=rss) |
+| 'It's scary to think I could have died' - the Americans coming back from fentanyl addiction | [阅读全文](https://www.bbc.com/news/articles/cm2e471159vo?at_medium=RSS&at_campaign=rss) |
 | 'I'm not putting my ring back on yet,' says Molly-Mae after Tommy reunion | [阅读全文](https://www.bbc.com/news/articles/cg43lg3p7wno?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -31,7 +31,7 @@
 | Israel confirms latest body returned from Gaza is dead hostage - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1UUFd3cVFBVk9ybHBxa2k4aGhiQmJRNXJMR3BXNkE3cUgyTGhGTFp4d1Yyai1BakJGTEo0VDRUby1ncnE1VDZlZzhhc0lMQlZ6ZDItNThseWhNUdIBX0FVX3lxTE5iNjVnNGZ1MTM3eTFVT013OHlPTUlYeGZURmJtNjR1eUN6eHQ1SThOU3ZXNTRaVU5LdWJHYjJpMEM1QTY1Sno5SDB4NXRxVU1wY1RwMERlbGlsekN3UVhF?oc=5) |
 | Lawmaker resigns after involvement in racist chat - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOREZVc1laWU1lT3ZrSFBzRWp5dExsVVZNRnZwMzhSV2JPUHV6d3FNYmxOaEJTRnZYV1IxMm5lVDlzZFYzNFcxaW5VcUhVV2xPTTl6NkJYdEdaVkZ0WFJ2UW14Mjl1ajMwenZqNEJQNnBjUTkxTk00cmRRcUl5ejlqS21TUWVUX1g1eHZ5ai1mT3lDRnVXeEVTZ2ZUa0JvUGZ4?oc=5) |
 | Salesforce CEO Marc Benioff apologises for San Francisco deployment remark - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE80WEs2LUZ3TzFNd0hFM2VtejN0Vm5pOTlJblp1R0dzbXcxZHJuU3ZWQnVYcGJ1WG5ucV9vaERIb0s4TkItTElrUzBLcnVOUlQzZDZYQ3FkQnp3UdIBX0FVX3lxTE9rVEttc2lOc19DWllKc2pXbDZYU19KTl83NnNWNnJYSjBMelh3TXFiVnJjeXRrT0tMV0RqT2JjMzJZYzRFQkJWeXhnY2pHMVViZEltQ0lkS1JvZ1dVOUtV?oc=5) |
-| 10 Injured in Balcony Collapse in Cincinnati - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFBtWHphYWp5aVVycHdwdUxRSVhibDNIRzdjLVEwZG53ODlXWlAzRGp1MUpqUVdQbHZIZ1VqYzcyakhRVnFMS1dfR2RDVkg4dW5POC0tWGZxcXVsS0Q0X2JWR3VrMWhrbjJveWVQRHFtQmowYUpqVTl5NFRB?oc=5) |
+| 10 hospitalized after balcony of apartment near University of Cincinnati collapses - Cincinnati Enquirer | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxOWGlUWDVra0E2QVBac0V3UVBGOG10ZzByQ3VYNkR0OUlZaFZrREN2QVZvQkY4NFoxUkk3VDdUbDlMeFpoSGdWZ2NiTUdxQ254czh5XzRNeGxvbktHUXRTM21tXzdwa18tRm4wRGNTWFNPTFdRanpuQ19QU3VmbEJxSHo3bFkyMFBsRTlmdkduMHdvR2pNdER1Mmw4eUtVNVFsazh3MnhMREtId1FZSVpTMnpIMXBtaEZPSkFuUTlnQ1RDalJVZkdldEd3?oc=5) |
 | What we know about the devastating storm in Western Alaska - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNVTROYjJhM25lRmlNc0pIZkNGTFpwZUx0ek5wRXJ0YnF5UnVrTWl3N2lDOXRuQ3E1Qk41YVRTVUxlXzFMT3h1OFhLUlJqMEhmbHJrWHJkT2Njd09ITXg2eXB6NXNkYmU1dWY2SGlKWDI1cjRaZFFDR3hUQ19zQXo3cmVsczY5X2MyeFNsSExTd283SjJQVEFNbG52SzZiZGltTzQ2cGlKRWx6MmNxSnlNbXZNdw?oc=5) |
 
 ---
