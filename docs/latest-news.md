@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 10:08:42（北京时间）**
+🕒 更新时间：**2025年10月18日 10:16:51（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump administration asks Supreme Court to allow National Guard deployment in Illinois - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNQVVCc3NxSFBBeVVPb2pyYTlzSm83bUszU25QV2xSeVlMMWQzOGZPOTZJaFpDRExBTkZJSjZFem1xRjlRWEFvN1M0OFI3VGdIZ0xURzZ2QlRraXFJbHZUTnNPdXdWblRuQWJ3MXFUZFE4US1XYTZxeklXYkhLVXY2dlMxZWYxQmJvNGJZUTh4VHBYQQ?oc=5) |
 | US has seized survivors of attack on alleged narco-sub in Caribbean - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPeUdTM0JDN0UwUWVYNDJLVUdtcFhFRXRNb2Q0US10ekQzSFNnb0pLeFltWTZmQ3diMC1oT2RWa3pia19jTWZyclJ3RUJFNFItTEh4c0lMUTFVZWt4QlpGZllka21ySzFHVmxJVmhUM1BEakYzUFRwaDM2VVFTMHVPOVlpcWN1TnNSMWM3bl9qbEI4M0RKRm5BbjFwaDhUS0ZU?oc=5) |
 | Alex Acosta cleared Trump of wrongdoing in the Epstein case, GOP says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNUGllWk5aeGVUTmFTbkNqNnEyUEpTYXNqclFmNjNfeS04Q1Y3SVpOdW52ZGN6REE0YTIycGFuR0hkOHZYeVlWNl9YNnpUYlBRQUlmZmlhb2pfMkd2Y1owRDNGdWJUSXBkOHRNS1FORlFab1Y3NWJEdTJLU0pBcjcwSV9lLW1JVm94cVlpWTgydUg1UWVsbGZwMnBzTEF0UmwzdGI5VXF2dTlwWUtiVmxBWklsZ0kzc3BYNkE?oc=5) |
-| Billionaire Marc Benioff apologizes for saying troops should be deployed to San Francisco - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNckdfVW1yZ1NIUzZ6dGtzY25CWVU4N1pUcnB3MHJoa2VxT0ZEeTBIT2d2NzZjQ29wUWFkTnhfN1Q0MHItSW56Z09mdy1QTGU3Znk5LUxEcENiRy1aSVJEZjU4Qm9UUlZ2dHFqMlgzZWxGbEZxcFdlNGxybmRUTGJodjgxOGg2UEVwS1U5TGtYMXRCZ2NhNG1RdkZKS1paOVBSTmc?oc=5) |
-| Vermont Legislator Resigns Over Racist Republican Texts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQeWk5UTRWLTRYUW5sQ1h0aVZ6b3R3c1JKSGhRbU9XTUhabVFyeG1mRFlPRXI4VTNpMmsxRk5UM244RzhiZmxwRzBkUXFFM2F3UHY0bkxHTTJ0RHR3RE9YZHVNQ1JETURVRnhHNmF3LXdHQk5rZmcxU2c4Ujg3SUltT1JWaHNqQWZDQUo1TldsaDByeUJCSWV5YzJzQzZqMVRMODlj?oc=5) |
-| Man convicted in 1979 kidnapping and killing of Etan Patz must be retried by June, judge rules - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNa1dGdjI0VVYxN2RRaUlZc25HcEJLcnRad0dlRHlNdDFkQ1lfOWZ5bDFsNFc1MVdEbkd4X1FoWkVxNGpYSXJ6ay1mSi1zajRMTGJNZ2pMbU9JT250ZmdPcUNXZUVvc1NmQWdCNmZ1MlFJWHZfbkI5bEdqZk5VeEhLODhOdFNKaFdUclNaOTFSSjNVdndBbzB2bEdDcFozTEVtLTFPLW5rYlpNRTZRZDJDbU5NOEhsNUtwYlHSAVZBVV95cUxOWVdHcS13bms1S0pqYjRua1BvRVUwcS1TZGNKdXlXSXF3c2phdGlHOGFLZDZWY1lDUlp3V3JsU2xxRDdiNmpic0xtUEVXaUVYaG5PYTMtUQ?oc=5) |
-| With no takers yet, White House sets meeting with colleges still weighing an agreement with Trump - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPOU1FUHJsLUxxMVhPVnQzelJPZ2IzWkx2VkxsN19ZYW5lYjNFNVNpbWlMT0ItR3lsX3VKLWdiam55b0I5OVBMWXdMbFlmTkY5VWRXZG13MEwzbzlZN2p3dVdEbkVfcXJXZXZiN2dONFh3Y2R6T0FDT1dDMHQtTS1zRm5pblBxbVhqZ2s1aUZ1UWdVUE5IOVFCQml5aDlXYmRq?oc=5) |
+| Benioff Apologizes for Saying Trump Should Send Troops to San Francisco - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPZ01PZ0ZfZTZUMENEUHYwV1NKMlV4ZUVuNFYwVjBlcTY3bFYtU09pTjNpMEdKbDV5dnhJd0ppaGlSX3FoaFdpTDBzZDRGWW5MZ0pIWGtBdVRSWkJrVG5hLTk0VkpLS0JhSmZEN29pS21XbUZ3c2l5cEROZHZiaWRwbQ?oc=5) |
+| Orleans County senator resigns following leaked racist group chat - VTDigger | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQcUtYWUVXY2FTMzE0aEZxSkVEUzBmUWM0bExQa09QS2w2V1JBenZoMWt3eFUzcFBkb0x4UURHWHFGSmgtZDAtNlFNUmZlZ1lTaUpEaXZZSEhtU1NnZHdld3pSQ0cxVThOVURRdldGaVQyeEZWczVlcVFVVTZwUFBrcV9xTkZVYWFOMDJ5dzg3dTJ4YVF6ZTMyeXZ1MFVUbEU?oc=5) |
+| Universities Are Standing Up to Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQWFlfZ2xhMnQwZXhJcVh0SzlxMENTMHkwUGtJSm4zYkFxTHdnOVFfRDBtbjR6RVhROS11UTZqY1BDRTBxd0JJVzd4RkFnV215MTBhYUpiQUhDZXlBeXluLUVIMENleXE5aFNIOHhDT1ExNmN3eWxmU1ZQT1BmMHlaNnAzdmpGMGM?oc=5) |
+| Andrew Cuomo is still behind — and he’s blaming Curtis Sliwa - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOY1RhS0NSWGMzczc4MjltU3d3WUhCb3Y2R21RNEM3UElnYmU1WldCMWxwQzZaYlRiakxKN0hWQk92LVNFTUxabnNBN3ZKVHB0UzRrR1V5dllvRHpYcEYxNGE4U29uWnVTWTNtYnNrZmZVZ240aGFldjRGTnFOUnE3a000RGFnNWdkRV9BMjRDUHdCUjBzNWVVZnh4NnFZSEUwR0dQVFpmV0RtUDg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
