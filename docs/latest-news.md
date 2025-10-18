@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月19日 00:17:57（北京时间）**
+🕒 更新时间：**2025年10月19日 00:25:30（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Giuffre brother calls on King to strip Andrew of prince title | [阅读全文](https://www.bbc.com/news/articles/cdegkd00yz3o?at_medium=RSS&at_campaign=rss) |
+| Accuser's brother urges King to strip Andrew of prince title | [阅读全文](https://www.bbc.com/news/articles/cdegkd00yz3o?at_medium=RSS&at_campaign=rss) |
 | Eleven killed after Israel hits bus in Gaza, Hamas-run civil defence says | [阅读全文](https://www.bbc.com/news/articles/cpv1nk7dy4yo?at_medium=RSS&at_campaign=rss) |
 | Zelensky fails to secure Tomahawk missiles at talks with Trump | [阅读全文](https://www.bbc.com/news/articles/c93dqew8l3xo?at_medium=RSS&at_campaign=rss) |
 | New blood test could speed up diagnosis of 50 cancer types, study says | [阅读全文](https://www.bbc.com/news/articles/c205g21n1zzo?at_medium=RSS&at_campaign=rss) |
