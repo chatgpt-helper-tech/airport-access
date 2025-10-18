@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 12:56:56（北京时间）**
+🕒 更新时间：**2025年10月18日 13:01:41（北京时间）**
 
 ---
 
@@ -26,8 +26,8 @@
 | GOP tries to brand anti-Trump ‘No Kings’ protests as un-American - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQMTNVUkotbEctUGd1dm84NXFYLS0zMVhPWUhsSnhMTGxxZE1Bc3N4UElETTduUFFEdkl6SmJIa0RGME1XZDloUDYyRTBndzhkM1R1V21SdWIybGhhbmRpY25TWEpNaUxoRnlkc0hpOWZhaWVEVGNJZEVCd3l0QjJfVVlJY2lfd1dhTko1T21R?oc=5) |
 | President Trump commutes the prison sentence of George Santos - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPeGpSZjROUGZ5WjJDLThISDJfR2lHN0JwTTVxMVI3cUpVNnNYRjVZNzc1ZU9CTm9oX0hQTVJ4cXVHTFVuT3R0ZkZMNVFNcjRHQW1hdnlGVjlVUGkzV0IwWlJpbFVocEtWZlM4dDBzU1dDMlBQc01xRHlDXzlMZnBRakdhdmU3M1g1MTk3Uk54QmdaaTQ?oc=5) |
 | Trump Wavers as Zelensky Seeks Long-Range Missiles to Fight Russia: Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTFBzenpOVVJyekpqT0JSRWl6bWVZOGo1VGx0eXh4dUdYY25yTUxrYks3MV9JUExFenhNZmFyVWhoeldiUURTcW5aei1ISnFZN0JoMzQxeUNLdDZxZ2h0eTNjS3ZLUW9fS0U3emhIdDVWUQ?oc=5) |
-| US has seized survivors of attack on alleged narco-sub in Caribbean - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPeUdTM0JDN0UwUWVYNDJLVUdtcFhFRXRNb2Q0US10ekQzSFNnb0pLeFltWTZmQ3diMC1oT2RWa3pia19jTWZyclJ3RUJFNFItTEh4c0lMUTFVZWt4QlpGZllka21ySzFHVmxJVmhUM1BEakYzUFRwaDM2VVFTMHVPOVlpcWN1TnNSMWM3bl9qbEI4M0RKRm5BbjFwaDhUS0ZU?oc=5) |
-| Trump seeks to build on momentum from Gaza deal in a busy diplomatic week - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBZWHVuZEtaMFhtVkdoWXp5QTRoRVNjLVo3Unkxb2lVY0RiSzByd0FNTHpJSUVNOVNjSzl0OWllaDNWWi1HXzFJVlNxUlhkMTR4QlI1V3N0WVNNc2FMZEFpT0M2RElKajBGZGJFQmo4TmwwdEtnTmctRjhuZkpRa2s?oc=5) |
+| Trump and Maduro are both amassing military forces as tensions build in the Caribbean - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOWV92dF96NEZ2eVpHM1lVcHhvY0lKTmxvalVPRUxQVlVId1k0NUsxcTcwWFVoZFdJWXJ1NDJWNHZtcEppZFFJVk41SFQ2Y2NYTzBNZTdQc1FOajU5UmtTTFpFdndld1pIc1hKMEtjZkE2dmpaYVVoaVBqTVhJbFk0ajJUc0ctanc?oc=5) |
+| Trump says both Ukraine and Russia should declare victory after meeting with Zelenskyy: "Let history decide!" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOSWlWbGhSMG4yb0ZETzhmSHNxb21aQlBhXzFEWWs0OEJYWDdmaERaME5saVBxNkxDN0JmQ0FabEVHUlhmSk9ocm1IRkhqckhMR2pSQWoyQmhRVmJaNG5mNm5QY1VzQ2Jhd0VjWDVwN0ExQjB2dS1XbzhOYU5qZUNscGdsV21tVnptLWZLbERUVlM3VDYx0gGaAUFVX3lxTE5Jbk1BNmtSMEZRVkxhR0FoemM0UWtSTFROR1J6SlEyUWFKVVM1UlpQUVZGSUJXek1WdWtFZ09wdWw3dl9NQ1BqZ3Vnb0tQYi1MUmdpZnlCVFdHX2tDTnpLZ0xvSXNLcXktaWt3SURSX25tZDZ4QUVWSTZmdjlVNkxsdzN4WlMyZVlzVGZUVW9VcF9WSFlWbjZ3aUE?oc=5) |
 | Trump urges Supreme Court to allow National Guard in Chicago - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxON1plVjltODU4aDVZOFlTbkZRNk1kODlHbk5Tc1Y4RXRXc1lqT09sdDNWRjRXWlRnYklNWjdTYW9iaHcwTXJHT0c4V1hmS0o0WHNHYVFrcnlwRWxNODctbkFxcmprOVQweWZXbG1hWmQ5aVVuZzZ3LTBLazNDcE8yTA?oc=5) |
 | Vermont Legislator Resigns Over Racist Republican Texts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQeWk5UTRWLTRYUW5sQ1h0aVZ6b3R3c1JKSGhRbU9XTUhabVFyeG1mRFlPRXI4VTNpMmsxRk5UM244RzhiZmxwRzBkUXFFM2F3UHY0bkxHTTJ0RHR3RE9YZHVNQ1JETURVRnhHNmF3LXdHQk5rZmcxU2c4Ujg3SUltT1JWaHNqQWZDQUo1TldsaDByeUJCSWV5YzJzQzZqMVRMODlj?oc=5) |
 | Benioff apologizes for National Guard comments - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQcTFQcTFDbnJHZ0VFcnJXejZUWWNtS0lselJtS1NTSlhTSUUxMXZxc3pYc0c5eGRsSlNiLXJ1UWxiU0QtdDdaRGZDdmVZUDFhYkNsOUNSWFJDdVNNU00wTWZlNjhQOEVyVEZpeDVUMGFlaG1HMXpvb2ZNQXV0cVd3cmhwWTk2dV9xN3F6VDRqUjRFU01ld0ljdTdlZHo?oc=5) |
