@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 11:24:28（北京时间）**
+🕒 更新时间：**2025年10月18日 11:33:51（北京时间）**
 
 ---
 
@@ -28,9 +28,9 @@
 | Trump Wavers as Zelensky Seeks Long-Range Missiles to Fight Russia: Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTFBzenpOVVJyekpqT0JSRWl6bWVZOGo1VGx0eXh4dUdYY25yTUxrYks3MV9JUExFenhNZmFyVWhoeldiUURTcW5aei1ISnFZN0JoMzQxeUNLdDZxZ2h0eTNjS3ZLUW9fS0U3emhIdDVWUQ?oc=5) |
 | US has seized survivors of attack on alleged narco-sub in Caribbean - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPeUdTM0JDN0UwUWVYNDJLVUdtcFhFRXRNb2Q0US10ekQzSFNnb0pLeFltWTZmQ3diMC1oT2RWa3pia19jTWZyclJ3RUJFNFItTEh4c0lMUTFVZWt4QlpGZllka21ySzFHVmxJVmhUM1BEakYzUFRwaDM2VVFTMHVPOVlpcWN1TnNSMWM3bl9qbEI4M0RKRm5BbjFwaDhUS0ZU?oc=5) |
 | Trump seeks to build on momentum from Gaza deal in a busy diplomatic week - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBZWHVuZEtaMFhtVkdoWXp5QTRoRVNjLVo3Unkxb2lVY0RiSzByd0FNTHpJSUVNOVNjSzl0OWllaDNWWi1HXzFJVlNxUlhkMTR4QlI1V3N0WVNNc2FMZEFpT0M2RElKajBGZGJFQmo4TmwwdEtnTmctRjhuZkpRa2s?oc=5) |
-| Trump urges Supreme Court to allow National Guard in Chicago - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxON1plVjltODU4aDVZOFlTbkZRNk1kODlHbk5Tc1Y4RXRXc1lqT09sdDNWRjRXWlRnYklNWjdTYW9iaHcwTXJHT0c4V1hmS0o0WHNHYVFrcnlwRWxNODctbkFxcmprOVQweWZXbG1hWmQ5aVVuZzZ3LTBLazNDcE8yTA?oc=5) |
+| Alex Acosta cleared Trump of wrongdoing in the Epstein case, GOP says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNUGllWk5aeGVUTmFTbkNqNnEyUEpTYXNqclFmNjNfeS04Q1Y3SVpOdW52ZGN6REE0YTIycGFuR0hkOHZYeVlWNl9YNnpUYlBRQUlmZmlhb2pfMkd2Y1owRDNGdWJUSXBkOHRNS1FORlFab1Y3NWJEdTJLU0pBcjcwSV9lLW1JVm94cVlpWTgydUg1UWVsbGZwMnBzTEF0UmwzdGI5VXF2dTlwWUtiVmxBWklsZ0kzc3BYNkE?oc=5) |
 | Benioff Apologizes for Saying Trump Should Send Troops to San Francisco - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPZ01PZ0ZfZTZUMENEUHYwV1NKMlV4ZUVuNFYwVjBlcTY3bFYtU09pTjNpMEdKbDV5dnhJd0ppaGlSX3FoaFdpTDBzZDRGWW5MZ0pIWGtBdVRSWkJrVG5hLTk0VkpLS0JhSmZEN29pS21XbUZ3c2l5cEROZHZiaWRwbQ?oc=5) |
-| Lawmaker resigns after involvement in racist chat - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOREZVc1laWU1lT3ZrSFBzRWp5dExsVVZNRnZwMzhSV2JPUHV6d3FNYmxOaEJTRnZYV1IxMm5lVDlzZFYzNFcxaW5VcUhVV2xPTTl6NkJYdEdaVkZ0WFJ2UW14Mjl1ajMwenZqNEJQNnBjUTkxTk00cmRRcUl5ejlqS21TUWVUX1g1eHZ5ai1mT3lDRnVXeEVTZ2ZUa0JvUGZ4?oc=5) |
+| Orleans County senator resigns following leaked racist group chat - VTDigger | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQcUtYWUVXY2FTMzE0aEZxSkVEUzBmUWM0bExQa09QS2w2V1JBenZoMWt3eFUzcFBkb0x4UURHWHFGSmgtZDAtNlFNUmZlZ1lTaUpEaXZZSEhtU1NnZHdld3pSQ0cxVThOVURRdldGaVQyeEZWczVlcVFVVTZwUFBrcV9xTkZVYWFOMDJ5dzg3dTJ4YVF6ZTMyeXZ1MFVUbEU?oc=5) |
 | University of Virginia turns down Trump deal for priority federal funding - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQUkdxNGxFek8yQlRLM1M2cFExQzRLN1ptaERIa1V4Y1hTM09TNW1IbklXVnlILWNOaThvZ1pzM25nTEJYYm5FZEdGU2lua0IzMk5zT3hvdUpZUXdUMjVYdUNwamxUeVpsbzlmMC1PVFRxTjdxYlZlR0doUnZTbVgxeE9EaHc5bnJWcFpLTmt5bGFwWkxJ?oc=5) |
 | Man convicted in 1979 kidnapping and killing of Etan Patz must be retried by June, judge rules - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNa1dGdjI0VVYxN2RRaUlZc25HcEJLcnRad0dlRHlNdDFkQ1lfOWZ5bDFsNFc1MVdEbkd4X1FoWkVxNGpYSXJ6ay1mSi1zajRMTGJNZ2pMbU9JT250ZmdPcUNXZUVvc1NmQWdCNmZ1MlFJWHZfbkI5bEdqZk5VeEhLODhOdFNKaFdUclNaOTFSSjNVdndBbzB2bEdDcFozTEVtLTFPLW5rYlpNRTZRZDJDbU5NOEhsNUtwYlHSAVZBVV95cUxOWVdHcS13bms1S0pqYjRua1BvRVUwcS1TZGNKdXlXSXF3c2phdGlHOGFLZDZWY1lDUlp3V3JsU2xxRDdiNmpic0xtUEVXaUVYaG5PYTMtUQ?oc=5) |
 
