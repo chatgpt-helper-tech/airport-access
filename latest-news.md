@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月18日 08:08:57（北京时间）**
+🕒 更新时间：**2025年10月18日 08:17:37（北京时间）**
 
 ---
 
@@ -23,12 +23,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump Says He Is Commuting George Santos’s Prison Sentence for Fraud - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPSnc5X0thZERGTmVSN3dCTjlZQUtULW9ra0NlNzU3QnpCSTFvRGVsVmI0bW9sdnBnNXowYU9rVXNGdllwUEdkNm9EV1oxSk83YmxvdVhkcXFzS2VpQTFhVUJ4YkhSVzBWWnFTZmNoSVB2LWpKU2s5djZNTFl1VThkek5ka1N4RGY1ajVBb1VBNW5Idw?oc=5) |
+| Trump commutes George Santos sentence, ordering his prison release - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5zNlRCcUxYQjl1Y3lQVy10ejVDV2lXa1ZqMk1vd3NON01oNGkxRG1seVVvQmVKaFBjUEJ3ay1odXBpeTE3WEtTY3Z0SzJmTk9nZy1jVENaeVhXZ9IBX0FVX3lxTE1wTi10VjlmOGwtYlV2SnBUZG5nMnI3VlVGd1Y4OEJCUTZzLWo4T2U4WnpxcFp2cGZGVEUwa2gwemM0alM3cFBiczEtVTlRUjBhSlpDUG1UT0ZFS2d6V3VZ?oc=5) |
 | Trump rejects Zelensky on Tomahawk missiles in "tough" meeting - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQd3MzZ3pFVWRvRS0xNzRlZ3Y1Z3V1a2lJZnF4aDhQR0stVG1jS3N5YzF6dkRpVnlXQzhuakJSYXBsSWdVMExsS1M1SVZPTTVVRk85dUpqWEdmUlJNQ1Z5X2M0c2NhUVJpNmVjVWtvU0dwMS1sNnNYSlhhaU91QmFKRXNZdw?oc=5) |
 | US has seized survivors of attack on alleged narco-sub in Caribbean - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPeUdTM0JDN0UwUWVYNDJLVUdtcFhFRXRNb2Q0US10ekQzSFNnb0pLeFltWTZmQ3diMC1oT2RWa3pia19jTWZyclJ3RUJFNFItTEh4c0lMUTFVZWt4QlpGZllka21ySzFHVmxJVmhUM1BEakYzUFRwaDM2VVFTMHVPOVlpcWN1TnNSMWM3bl9qbEI4M0RKRm5BbjFwaDhUS0ZU?oc=5) |
 | Trump asks Supreme Court to allow deployment of National Guard in Illinois - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOczZmd3lsNWR2TFdRcXcwVExxZ3U0aWNTaXlrZ011bU5OcEVSVGR0QURkaUxLdklRTEprV185WXBDai1uV1FaUFFQdU5wUmxZLVlxZHdRc0ZSazVYOU13LWhTRENXVjd3TXlmazJKV2xQamxraFZfUlJjek1HZXd3WjRIZk9QeG040gGOAUFVX3lxTFA3Q2tRYjllTXlRRy0tUEdpS0c5TVlOdVFod1ZkejA5eGU3dzQzSjFCTklsMFJoRWFvd3BlVXBuZlFCdFJRN0N0LTZhMDdvNUpVREh1REpwS3piWEg2a1ItTVRiVUpBdjBrZi14Z3dFR09oNGpUdHRjWlk5Umdlb20tOGlneGZiMThNU3RKbHc?oc=5) |
-| GOP tries to brand anti-Trump ‘No Kings’ protests as un-American - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQMTNVUkotbEctUGd1dm84NXFYLS0zMVhPWUhsSnhMTGxxZE1Bc3N4UElETTduUFFEdkl6SmJIa0RGME1XZDloUDYyRTBndzhkM1R1V21SdWIybGhhbmRpY25TWEpNaUxoRnlkc0hpOWZhaWVEVGNJZEVCd3l0QjJfVVlJY2lfd1dhTko1T21R?oc=5) |
 | Alex Acosta cleared Trump of wrongdoing in the Epstein case, GOP says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNUGllWk5aeGVUTmFTbkNqNnEyUEpTYXNqclFmNjNfeS04Q1Y3SVpOdW52ZGN6REE0YTIycGFuR0hkOHZYeVlWNl9YNnpUYlBRQUlmZmlhb2pfMkd2Y1owRDNGdWJUSXBkOHRNS1FORlFab1Y3NWJEdTJLU0pBcjcwSV9lLW1JVm94cVlpWTgydUg1UWVsbGZwMnBzTEF0UmwzdGI5VXF2dTlwWUtiVmxBWklsZ0kzc3BYNkE?oc=5) |
+| GOP tries to brand anti-Trump ‘No Kings’ protests as un-American - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQMTNVUkotbEctUGd1dm84NXFYLS0zMVhPWUhsSnhMTGxxZE1Bc3N4UElETTduUFFEdkl6SmJIa0RGME1XZDloUDYyRTBndzhkM1R1V21SdWIybGhhbmRpY25TWEpNaUxoRnlkc0hpOWZhaWVEVGNJZEVCd3l0QjJfVVlJY2lfd1dhTko1T21R?oc=5) |
 | University of Virginia Won’t Join White House’s Compact for Colleges - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPbWtoQTBmc1laRkgybFdhU2RqcTJpOTBFVU03M1BIbnlfdl8ybkxHS3ZvM0ZxTUNLTDFFTWpsWDcwSzctbWg2dGV2dlZ4c0Fndm9ac19IdjNCNzhEcU41bWJDalduVDc1aC13VnhmMEF2bmhrNlNNdTdZTXZMaS0zLWQyUkhCSERSU3NEUUFn?oc=5) |
 | Andrew Cuomo is still behind — and he’s blaming Curtis Sliwa - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOY1RhS0NSWGMzczc4MjltU3d3WUhCb3Y2R21RNEM3UElnYmU1WldCMWxwQzZaYlRiakxKN0hWQk92LVNFTUxabnNBN3ZKVHB0UzRrR1V5dllvRHpYcEYxNGE4U29uWnVTWTNtYnNrZmZVZ240aGFldjRGTnFOUnE3a000RGFnNWdkRV9BMjRDUHdCUjBzNWVVZnh4NnFZSEUwR0dQVFpmV0RtUDg?oc=5) |
 | Man convicted in Etan Patz's murder must be re-tried by June or released: Judge - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPbjN4RWY1UTJBaC1LVzRoZEVYOHgzNS1FT3l4a0JqdmpVekhjZEd5MVJZeE4tUXliQVROaG8tSi1yLTBwd3JPdnlDVEd1em1jMk1uV0tBMmhJam5wLVFwUXBBaEM3RF9pUnd4M3E1alFjZ1JsdVlSOVFPQ2RCcGl4RlN3WlZybXN4OEZoZWdkM2NiQ3pDTGNWdEdRZC3SAaIBQVVfeXFMTjcwcmZLRVdDTjlmcFZQSEJDS3hSOHdiN0piWFJsVXlwbWxpbGZzLVlFU2ZiN1pyakpjTldUaFM1WEVoMTAwRmNXb0FVUU53cXhYSXJYNzE0V2JmRTBrb3MzLWlaZlB3cW9qcklja1Q5dGp1eDc4QlNKWTBpUnNVdnhsdzVqOUg4TXJ1YkFwZjhEZ3Vhb3k1SjVXcjhWTnV1ZF9R?oc=5) |
