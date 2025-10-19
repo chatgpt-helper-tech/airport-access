@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月19日 20:08:41（北京时间）**
+🕒 更新时间：**2025年10月19日 20:16:44（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Pakistan and Afghanistan agree to new ceasefire after more than a week of deadly clashes - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPS0l6U1RlRDJvYnM1UERydnZMbFR3TTBUNmxLQnF2aEdFek1PMHRFRHFpTlMwdVVKMjFUbEQ5d0k2WkdUSXBZR1p2c1A3X05oZU9hSEpiVEVER29mX2VXcWRhZTh2RGJwel9VQXo0QXp2LV8waFBlak0yYjJRRTFnbA?oc=5) |
 | US warns Hamas is planning attack on Palestinians in Gaza - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9jMGl4QVc0dDR2cFREaXh1WWx0eVhjZWR5cHFOQjFFVXFOQkRpc3J2aU9NRlR6T0NYd3pQdzF3VXMzcF9kcWxsaVlQM3dOc21sOW1oR1VlWEtScW92dTkyX3AwYVlQUlEzSkFHUEhpU04?oc=5) |
 | Family of murdered D.C. photographer wonders if his convicted killer acted alone - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNd3VUTmFDdGlWLTZvWDBES3pyXzBVMFFjaXlIeC16YnZCRTFyQjZwU0N0bWxBRVFzWHgyV1M5XzEzZGgzVGJmNFJ1TlFjM1ZvRW42Mi1KLU1XVGpxemxGZVVVNnRIZnEyb0k0M0ZXOHdFNEFBMU5BRzRId3kxTjJKYlVHTTNhZjlmLU9qcDNZWUp0LUNvb2h6N2w2Rjdrcms2ZENlVlFNVEU3NU5ZcjBlMUE1aE9MMzTSAbwBQVVfeXFMUFdoQ3B1Nngwa0d2eFlBZHVnSll3MzJyZm1SamxDcG5faDROWWlCbGw0ci1HeDgta09CeENrSzZQQjI2NnVFSXFaUk84aGFqMWlnNE9WZUJ1ak1kN1h0LWtidmc2a25IZmthSVRwcmlETVg2bjBXNk9HRjZJX0JNek83UHA1Q045bWVaYXZRZS1JYkxVdGMyRzBiRThtcmNjZUZpa3hMMjFyRTUzQjcxTmd6SkRqOE1DRnJqWEI?oc=5) |
+| Human remains believed to be missing Philadelphia beauty queen Kada Scott found after ‘very specific’ anonymous tip - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMi4wFBVV95cUxNNnNaSkVhMDFZZWFSek96NDhURXBwX2JDTXZLNjhXVzNEV05ObkdmeFJiU2J6Q2FDa1VPNzA5MU1vdTRERXQ1TXUtMVpfUFJPaW0xUER2SVRHNFMzV0VmQm84eEJObGdqN3d6MlpiUTQ0NWFvR3VxNmFJREJrdkktSkZpWXpOQV9ZZGFmYW9wZERfMk9UVjUySU5FTkRqVnlSTjJpNGpaMG9WX0l0ZTdfSE1zSFRndlpWTngtdzJFbE96MTVuMHJ5cUI5WXo4dXlaRzRSamUzazFUN2dQLVNHUlZVYw?oc=5) |
 | After Zelenskyy meeting, Trump calls on Ukraine and Russia to 'stop where they are' and end the war - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNaEZKNnFKR0lWa0ZNV0I4N0lYMkZkZG9yQUFYRGcySmw3VjJQOE0xZzByWnl0aDdrN1VoWWptWS1MRnV3UUlmSk9qdEtUOVozUFJKU1Z6cUdIYWdXUFlxNElIUzlvR1ZYTjFNWnJJRURleXYxUkN5RWltMUNNWVJJNGNxWVNQZXcwMjNVZnZHdm0?oc=5) |
 | Vermont state senator resigns over racist Young Republican chat messages - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQY21BV0txRzhuY2RDX0h2OUVOaS1ZTlpUMk9qNVh1bkRsT1dWaENwU3B5XzNnN1d5YzhDTUQ1Q3JaMFdKV1pEOUdZUElGaVdZbFFxMl96czdzYi1RQW9WbWR4eWg3R2hEaDF5blA2UmlKdjFxYW81Q3R0VDNDS01NQ2tGRWlOaV9OLWFaLXgtM2VjTnp3cG5NTFFmZWZ4dw?oc=5) |
-| Why recovery will be tough for Alaska’s villages flooded by an unusually powerful storm - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxPSHpmY2FScVpoQzhhMEtFZkh6SEJfRWhRdmtCeE04LUNYS24ybmJxblh2Z0VpZ0t2aVdRVW5JVUNiWjdWbU50U2NrWVNiaDhQRlVOWFRzX3Z6b0VWZGMzaXpyVk03VzdOV05aeXZfbGRQWms4ZkpwOUR1cU5YX0p2OERXaVp0RnR1dVRsdm94N29MX1czSEwwcDNEYmtlZG1IUDU1c3ZTelBWN0FjVlVSNFRhaUF0Z203Z0pLRlJrbw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
