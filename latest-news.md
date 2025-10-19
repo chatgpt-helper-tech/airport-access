@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月19日 11:41:26（北京时间）**
+🕒 更新时间：**2025年10月19日 11:48:29（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Photos: 'No Kings' protests against Trump administration return nationwide - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPb2ktZWlKclktdDBjQ3gyWXlSUFVDVGNLbGlLMDBfRnh6UTY3bDItSDRzTmpEOXd1eUZYX193MG5PNjJuNWhxdWl5SXAxSFRqMGhUa04yM05BYVpvTklHb2dlV0U5TTQ1WTl0d0JwNzhWNnVSeHBaQUhuVHYwNkNfWXJJVHd0Z3ZPOW14VmctVElwNERVM0pzTdIBVkFVX3lxTE02RUprcy1SU2lBNVBwTW5QWjdubHJYVXZQRklxcmc1Nk4teDVYd2lyVm1sNjhsUDlSRE9wRGwwZHpWMDlMYUY1bjZSQi1acWl4T0NENzBR?oc=5) |
+| ‘No Kings’ Protests Against Trump Draws Thousands Across the U.S. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE0tcWFDUzlEOW5KMjNGX0dNV2xGOFh0X0REXzB0TEJoVUhtREF3WlgtSElLdUNFeVFUcjdLdVlQWkNOZFZSZXRHb0ZVd1FxQ2FIdE12dVEyMEFPVUtfcExTWXZSbWtrY1IybzRtQUluRzUtcVdE?oc=5) |
 | Newsom closes highway section amid feud with White House over Marine exercise - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNRDVKdU9Wb1l4ZGlkTlkyanpON0VBZXpjNjFzY2VnV0MtWklSTFpWNzZFTkRtZGd6UU9vLUZKNG5OSXNjNm5YVDVOTnNvbERQcUNtTjNmVHJqSEhIcHNxRVNtQTdiT3hZQjhKWVZuZlVYNTNHZE5EYkdxTXJhRWVzOWVhZm0yd0tZR3Z4SVFZa1o?oc=5) |
 | Trump says 2 survivors of US strike on submarine being sent to Ecuador, Colombia in move that avoids legal fight - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQQXFaVDV5Z2stR21wVnJJMm9wVG1LWVJSbDhUX3lscGJ6eENDaE0xekJjNGZ3MUhjdXpOUWFzbkU1RzhDV25oaFBOQmw2NGJXMk1VbjYzMjZaYUlUSkNkMHB4endaeEE3ekRoNXZScXhBSkdxckhJaGhweTJGZkhZdFRvS3RuSy03cDl0SnUxUkFmN0tYWVpqUGlaZkVMR3g2R19iY09mZFVkQmM3aGow0gG0AUFVX3lxTE56Qzg3QUlyU3BVZk1OR19RRElFanpPUVI1cUlhNUUzdE00d1RKMjZyMGkyb09mZXR2YUxCQ3ZpekVNc1d2eGJmZWZPN1MwOXZtZkcydTMzVlZMS2FWdE84MUNSb2F2TzBpaWxaUXlRcXFRQmVCanJoakdmVzdYdEQ5ZlFXYzN4YXJBQUs1RGNMZVhOWUk1SExsS3BvUTJHRWJfU0pvWkRFckVvWHNNOWNXQ3lUZA?oc=5) |
 | Trump releases former Rep. George Santos from prison sentence - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE56ekNHQVBXLXVnWEZCUzhrMXJtR0ZuSTZBbmtRbUw0UFB1bkJ3V2dhUWtTQ0QwUDlLaTN2eFAxdkdMNmgwNmQzeUxReWQ3VWRWY3gzcEFVMm8wdVZSVlRpeEhFeFVvZEVUdVJDUTVpSU5mWUw0MXRnWjQ2NA?oc=5) |
