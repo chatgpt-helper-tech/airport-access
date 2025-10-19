@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 00:40:55（北京时间）**
+🕒 更新时间：**2025年10月20日 00:49:46（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | ICE tried to send one immigrant to a country he never lived in. Then he lawyered up. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNd3JybkJGdGpQSDAwX3g3Wm1yUzBZZTBZVjRJMHBGMi01R1RyMFAyUjlyejVraDRlTWtUT1ZfNHB4eWJyaFQ1cmwtdVNvQnBLRGx6ZlJlMDVVSjFHc0c4b0p5aVVFbGotYXUxRGhlcDlLT0dEODFkZnV5dzlPLU4zdjk4Sk5KQQ?oc=5) |
 | 'He’s micro-managing phenomenally': How Trump grabbed all the levers in Washington - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQWlBNd0N0aFpKenY4OVIzYm13QWhJa05Ucm9TMi1rNElPRG9GMlFzNHlMOVhUVnRUUk5fQUxVLThPQ3U4SnBYUngwM0xRa3hvZlNQTGRCWG83R0lLRlNHel9WS1Bhb1RXR1VOWEZHS0U1dHY5emRPcldHZlluNHZTbG9yVFNnMms?oc=5) |
 | Vermont state senator resigns over racist Young Republican chat messages - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQY21BV0txRzhuY2RDX0h2OUVOaS1ZTlpUMk9qNVh1bkRsT1dWaENwU3B5XzNnN1d5YzhDTUQ1Q3JaMFdKV1pEOUdZUElGaVdZbFFxMl96czdzYi1RQW9WbWR4eWg3R2hEaDF5blA2UmlKdjFxYW81Q3R0VDNDS01NQ2tGRWlOaV9OLWFaLXgtM2VjTnp3cG5NTFFmZWZ4dw?oc=5) |
-| Rutgers student critically injured as fraternity probes possible hazing - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQQXFKQ2pYTElVd3RaWDc4R284QVFFNnhlZGZlTGRjUG8tY2gzby1CSXV1cE5CZ3lrR1pvQjV6Mm80RTZhYl9ZSTBUeVRpTlNWd0ZndU9NYV9LMUUtNHdhRHhFQTV4X2Q3bGRjZ0MxUDFGQW05eHJMM1psUWRxQ0lwaldOVmZDeWotcm9mQ25YLTRKV3NmSzJZVTY4X1lMdFhOOGlFMWNnYU5OUFZBSlp3OEVWOHZ2MjjSAVZBVV95cUxPcXNkazlqNlV2bXVHb3NJQUZJUjVaTW5DRXBKN1Z1UXVlZ3NWX25XTmlpcnRzUDJQd1daNjM1S2dVdDhIOE5uTF9WLXZDQTZyam5iaW93UQ?oc=5) |
-| George Santos, freed by Trump, says he wants to reform American prisons - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQcDIwR0U3alNRTUlELWV5N1lFaEcyRnp1am1sVjBxbUNXaHk3cGhHNVkxbWNESWdvUEoxUGktVE80dk9Mei1RXzRqTTRBMnc4YTByMnFXRzYwb2dpQVowV1NrQlBFcWZOcW1kZEdWaUo5UldTWXNlQl82dHQzVlRWTXF0N3N5OURsdFl3OXhnS1psU2JTYXNoQ3FSUk43aUk0WWpKdnJvZw?oc=5) |
+| Rutgers parent says dangerous frat house led to student’s critical injury - NJ.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNU2t0WlA1VmNnZ2xCLTU2d2c5ejlqUl9IajdwSVFNYkhSYWQ4LVdQVlVLZERPUFRMcm80bTRvczNmbDEya3VqZzR6YmZqR3dXX1VUTkZhemVtLTVKS0JjWnVGbHFlZl9tZzBfT01Fc2QwX05LYlhUdVVxMUwxeVBhY0J0dVh1RnluODFjbUozeTFIOE9rQXUwMjVILVMwaXpCUlpjbGplNjBxQmN1NVloa1dB?oc=5) |
+| Human remains believed to be missing Philadelphia beauty queen Kada Scott found after ‘very specific’ anonymous tip - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMi4wFBVV95cUxNNnNaSkVhMDFZZWFSek96NDhURXBwX2JDTXZLNjhXVzNEV05ObkdmeFJiU2J6Q2FDa1VPNzA5MU1vdTRERXQ1TXUtMVpfUFJPaW0xUER2SVRHNFMzV0VmQm84eEJObGdqN3d6MlpiUTQ0NWFvR3VxNmFJREJrdkktSkZpWXpOQV9ZZGFmYW9wZERfMk9UVjUySU5FTkRqVnlSTjJpNGpaMG9WX0l0ZTdfSE1zSFRndlpWTngtdzJFbE96MTVuMHJ5cUI5WXo4dXlaRzRSamUzazFUN2dQLVNHUlZVYw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
