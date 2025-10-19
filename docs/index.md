@@ -85,11 +85,11 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
     <p style="color:#fff;font-weight:bold;font-size:18px;">百变小樱</p>
     <p style="color:#fff;">3天免费体验</p>
     <p style="color:#fff;font-size:14px;">5年老牌+IEPL专线</p>
-    <a href="#free" style="display:inline-block;margin-top:10px;padding:8px 20px;background:#ffeb3b;color:#000;font-weight:bold;border-radius:6px;text-decoration:none;">👉 立即注册</a>
+    <a href="#free" style="display:inline-block;margin-top:10px;padding:8px 20px;background:#ffeb3b;color:#000;font-weight:bold;border-radius:6px;text-decoration:none;">👉 查看详情</a>
   </div>
   
   <div style="flex:1;min-width:200px;padding:20px;background:linear-gradient(90deg,#00c9ff,#92fe9d);border-radius:12px;text-align:center;">
-    <h3 style="color:#000;margin-top:0;">🔥 主推荐</h3>
+    <h3 style="color:#000;margin-top:0;">🔥 编辑首选</h3>
     <p style="color:#000;font-weight:bold;font-size:18px;">小蜜蜂机场</p>
     <p style="color:#000;">年付低至8元/月</p>
     <p style="color:#000;font-size:14px;">全IEPL专线+8折</p>
@@ -101,7 +101,7 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
     <p style="color:#fff;font-weight:bold;font-size:18px;">TNTCloud</p>
     <p style="color:#fff;">海外团队运营</p>
     <p style="color:#fff;font-size:14px;">AI工具专用+8折</p>
-    <a href="#tnt" style="display:inline-block;margin-top:10px;padding:8px 20px;background:#ffeb3b;color:#000;font-weight:bold;border-radius:6px;text-decoration:none;">👉 了解更多</a>
+    <a href="#tnt" style="display:inline-block;margin-top:10px;padding:8px 20px;background:#ffeb3b;color:#000;font-weight:bold;border-radius:6px;text-decoration:none;">👉 查看详情</a>
   </div>
 </div>
 

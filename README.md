@@ -84,10 +84,10 @@
     <p><b>百变小樱</b></p>
     <p>3天免费体验</p>
     <p>5年老牌+IEPL专线</p>
-    <a href="#free">👉 立即注册</a>
+    <a href="#free">👉 查看详情</a>
   </td>
   <td width="33%" align="center">
-    <h3>🔥 主推荐</h3>
+    <h3>🔥 编辑首选</h3>
     <p><b>小蜜蜂机场</b></p>
     <p>年付低至8元/月</p>
     <p>全IEPL专线+8折</p>
@@ -98,7 +98,7 @@
     <p><b>TNTCloud</b></p>
     <p>海外团队运营</p>
     <p>AI工具专用+8折</p>
-    <a href="#tnt">👉 了解更多</a>
+    <a href="#tnt">👉 查看详情</a>
   </td>
 </tr>
 </table>
