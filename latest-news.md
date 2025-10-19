@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月19日 21:40:25（北京时间）**
+🕒 更新时间：**2025年10月19日 21:48:57（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Met Police looking into claims Andrew sought information on accuser | [阅读全文](https://www.bbc.com/news/articles/c3970mxwz9vo?at_medium=RSS&at_campaign=rss) |
+| Police looking into claims Andrew asked officer to seek information on accuser | [阅读全文](https://www.bbc.com/news/articles/c3970mxwz9vo?at_medium=RSS&at_campaign=rss) |
 | Ed Miliband hints at cut to VAT on energy bills | [阅读全文](https://www.bbc.com/news/articles/cdjrg4vylzko?at_medium=RSS&at_campaign=rss) |
 | How BBC secret filming exposed a £28m timeshare fraud | [阅读全文](https://www.bbc.com/news/articles/c33pelk6pmlo?at_medium=RSS&at_campaign=rss) |
 | The Celebrity Traitors cast are closer to each other than you might think | [阅读全文](https://www.bbc.com/news/articles/cj3z5yj4l60o?at_medium=RSS&at_campaign=rss) |
@@ -31,8 +31,8 @@
 | Pakistan and Afghanistan agree to new ceasefire after more than a week of deadly clashes - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPS0l6U1RlRDJvYnM1UERydnZMbFR3TTBUNmxLQnF2aEdFek1PMHRFRHFpTlMwdVVKMjFUbEQ5d0k2WkdUSXBZR1p2c1A3X05oZU9hSEpiVEVER29mX2VXcWRhZTh2RGJwel9VQXo0QXp2LV8waFBlak0yYjJRRTFnbA?oc=5) |
 | 'He’s micro-managing phenomenally': How Trump grabbed all the levers in Washington - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQWlBNd0N0aFpKenY4OVIzYm13QWhJa05Ucm9TMi1rNElPRG9GMlFzNHlMOVhUVnRUUk5fQUxVLThPQ3U4SnBYUngwM0xRa3hvZlNQTGRCWG83R0lLRlNHel9WS1Bhb1RXR1VOWEZHS0U1dHY5emRPcldHZlluNHZTbG9yVFNnMms?oc=5) |
 | Family of murdered D.C. photographer wonders if his convicted killer acted alone - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNd3VUTmFDdGlWLTZvWDBES3pyXzBVMFFjaXlIeC16YnZCRTFyQjZwU0N0bWxBRVFzWHgyV1M5XzEzZGgzVGJmNFJ1TlFjM1ZvRW42Mi1KLU1XVGpxemxGZVVVNnRIZnEyb0k0M0ZXOHdFNEFBMU5BRzRId3kxTjJKYlVHTTNhZjlmLU9qcDNZWUp0LUNvb2h6N2w2Rjdrcms2ZENlVlFNVEU3NU5ZcjBlMUE1aE9MMzTSAbwBQVVfeXFMUFdoQ3B1Nngwa0d2eFlBZHVnSll3MzJyZm1SamxDcG5faDROWWlCbGw0ci1HeDgta09CeENrSzZQQjI2NnVFSXFaUk84aGFqMWlnNE9WZUJ1ak1kN1h0LWtidmc2a25IZmthSVRwcmlETVg2bjBXNk9HRjZJX0JNek83UHA1Q045bWVaYXZRZS1JYkxVdGMyRzBiRThtcmNjZUZpa3hMMjFyRTUzQjcxTmd6SkRqOE1DRnJqWEI?oc=5) |
+| US Warns of ‘Imminent’ Attack by Hamas Against Palestinians - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOWmZpdy1hR0FmcFN5ZTh6aUJGY1FzaEpsU3RBSDA3X0NjSHZkeFZFUlhwODB3MlFPR2dfeDRmd2JtVS1lQmFNdjM3NmJ6OFpWRHp1SmhnYmpTVVROa2VFc0V2NXpTWGpWUTZuQld6VFp1cEtzeGdVNXZBYnJ1eEFGa3ItMGdtV3hSMUhBaUE1a1VHZEk3TWhCb0J1R3kydmlRa1ZKTnZpbnQ2SC1r?oc=5) |
 | Human remains believed to be missing Philadelphia beauty queen Kada Scott found after ‘very specific’ anonymous tip - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMi4wFBVV95cUxNNnNaSkVhMDFZZWFSek96NDhURXBwX2JDTXZLNjhXVzNEV05ObkdmeFJiU2J6Q2FDa1VPNzA5MU1vdTRERXQ1TXUtMVpfUFJPaW0xUER2SVRHNFMzV0VmQm84eEJObGdqN3d6MlpiUTQ0NWFvR3VxNmFJREJrdkktSkZpWXpOQV9ZZGFmYW9wZERfMk9UVjUySU5FTkRqVnlSTjJpNGpaMG9WX0l0ZTdfSE1zSFRndlpWTngtdzJFbE96MTVuMHJ5cUI5WXo4dXlaRzRSamUzazFUN2dQLVNHUlZVYw?oc=5) |
-| Trump Responds to No Kings: AI Video of 'King Trump' Jet Dumps Brown Liquid on Protestors - Variety | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxONEVvbE82QnZxX1AwSFdBMUZIVTNWeHhRMVNJaEk4bVVfVEFfVVF0YWMyMFdnaW1ndXZYdXRjVDM2cVpnNUh6TnZWaTgxQi1nVlhkMGxwSWhDQ1JRaU9RVE1iWHVCQXRJTThzY2pTZXBmQXVkSzFqVENLQU1sRURUdnUyU0thZkR1YV9DYzlvc0FycExjQWpnSjhmZkVIOVJKSHVlT1JkaGVVVEljcmc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
