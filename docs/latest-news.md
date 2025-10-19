@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 06:57:16（北京时间）**
+🕒 更新时间：**2025年10月20日 07:01:53（北京时间）**
 
 ---
 
@@ -15,8 +15,8 @@
 | Why John Bolton case is more serious than those against other Trump critics | [阅读全文](https://www.bbc.com/news/articles/cnvejvr5gn6o?at_medium=RSS&at_campaign=rss) |
 | After 'No Kings' protests, where does Democratic resistance go next? | [阅读全文](https://www.bbc.com/news/articles/cj3zemk2j4ro?at_medium=RSS&at_campaign=rss) |
 | World of cricket's farewell to umpire Dickie Bird | [阅读全文](https://www.bbc.com/news/articles/c7816gyny22o?at_medium=RSS&at_campaign=rss) |
+| Tel Aviv derby called off by police after 'violent riots' | [阅读全文](https://www.bbc.com/sport/football/articles/cgr4n07509wo?at_medium=RSS&at_campaign=rss) |
 | Trump ends aid to Colombia and calls country's leader a 'drug leader' | [阅读全文](https://www.bbc.com/news/articles/cn8xg1jve73o?at_medium=RSS&at_campaign=rss) |
-| Grand Theft Auto made him a legend. His latest game was a disaster | [阅读全文](https://www.bbc.com/news/articles/c4gzn34gwvwo?at_medium=RSS&at_campaign=rss) |
 | How BBC secret filming exposed a £28m timeshare fraud | [阅读全文](https://www.bbc.com/news/articles/c33pelk6pmlo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -27,12 +27,12 @@
 | Thieves steal treasured jewelry from Louvre in 7-minute daylight heist - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOMEE2ODFiSVhqWEdNZW9leXRnX2gtODA5QU1mdkFNVWhpMk1Bd0x0V3dBakJtUnM1ZnM1ZWF4em9qQVRYQWtSTXpqLWwwTU8zMHVxbk9hcDREZGNaNl9RQzMtRzlzZkpPS2ZyZGdrbzk3UGNEbmVPUnk2c0puOTlLWE1UMA?oc=5) |
 | Johnson defends calling anti-Trump protests 'hate America' rallies - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPU25HVDl2THlfMjJxMnlMX3hNTjg1VzEycnZUTVFNWWFJWXBRLV9yZHhwOTlOdlU4NkM4NUw0Ml9SenJJMVZEc29DUXJGM0dMdWd3eXEyRjdlS0JWQzBRYzRUN3RLVmg0NVVIeTdoTE5hZzJpQU9Tdmo5dEVoMU4wMVd3TmRLOHNlTnltd2llcE85MUxBZ3dYdnRvUWdMaWlEWS1RdXE0N2ZOVknSAbABQVVfeXFMT21FOHdfWnFhRkJUOEZTQXV6SlhiNXYwYUpWTG5pMVhwSU9oMUhHbTVrTFZ3a0xpR3NCZXl3Ty0zREhkaW4xZjNua1M1S3FHQjluQ1ZhUXZVOUM0dnlqb1lSUUlrOEdfY0NYMktiSWJubWlxNm1ZT2xEc2U5X0lZY2xhVjlhMTAxbVltZVpZcU4yTVFESUY1ZG45N2hRRnNPdzlDSUVSdE94WFl0RlZuMVI?oc=5) |
 | US says it hit Colombian rebel vessel as Trump calls Petro ‘illegal drug leader’ - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNdkdxaEhGVnNFY3JUbU9UVW5UYU12Y0loM09xdkF1SkdYTnoza2t2d2VRZ2dzNV9DWm00VGo1M3VoYk1GVWItZzk4WEl2TXBtMGExR0VNdmJXU1ZHa3BaOVlsLVBiOXVqcTdDUVZIV01CenQ4dDlDUWk3eDlqR1c0cHBfRVBLYThHZGk5U2c3aV9WZ2k0ZHR0TlRXRlZocXI1M1kxODZTeVdJLU0tNUE5UVpmNHg?oc=5) |
+| Shell Detonated Over Interstate 5 During Marines Event, California Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQdXRCRlJybFJubEFvWGFfdjQ4VVFtRTJjZFUxdDN5M2p3SXBDZW5Kc3FsSEIxaHNPa1huSDA0QUNLVzVpd3R6b05vMEY1Z3BFQVFHZk1DMmVnUFV3TlpZa285a0UxMTVrUmRfa0dRUDA4WWQ1MlEwUTdRU2hfeDF6MG9wZEk4bklUSkJMNW80bXlfam8?oc=5) |
 | Fact-checking Trump’s claim that each boat strike off Venezuela’s coast saves 25,000 lives - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPeHJZTHJqS3R3QVZrUFM3MEp2UUQ1MVBMRVpvdzdXVC1SMEtZMU95cVVPUkdTdWUtVzlKRk93cVBuNEkzbTRnUmFLSV83LVRoYkdobjQzanA1Ty1qUzhUWWpjdXRQYWVLaDBuQk5OX1NwYlo5TnAtOW5va3hkRUpST3pNZmQ3cnplQ1B3anl4VExickR5aFh3UDFUeVNvWnZPRnRNYlVodnZCaV9uQ3B2N3VsR3NBRHZwb3UzOG03RjBvTHPSAcgBQVVfeXFMUDdBU2tHQmZQNHJxTnJsYm85YTRMdUMtV3dRamtIbFd6UVJVYmU1RlFUWkpNcWNtdGptU2lhbTAzU2djekRVZ2gxeG5wNDRjT1A0U18tUHV5TkR6QmNfdDFZZUlsR3pJNW1ZbzB4NEhCa3hNa2Q4Z3BBcXFaRU5meE0xRmdCRGZNRVI4bTUtbTQ5aGwtd2ZsamtNalNBR3BpYXpGMVNxaDNNQVpobF8tQmJHYmd3SnN4ZXNraDlWbnpBX3p0N01McGI?oc=5) |
-| Zelenskyy urges allies not to appease Russia after failing to secure US missiles - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQWFdUYXVIQ3BabmZVc1pfLTFRNnlGUmJGX2RxU2NHbjRqOWFkTlZJVndySE96MlFwRjhjdjdsOWlsOHdaUHIzU0xRa1hNckI5QXllb2FTWENtQXNSNE9RalowMndpQUtJSnJ0QVJ6U3llclRfeEJoaHozQXUzaTQzbTQwY3NIUWMtcDFrTVZVdE9RbzFmdWxDS2M1M1U1QjBVbkRydlZuVXFwZGdKX1h1WHZ3ZVQ0WGNqMUE?oc=5) |
-| ‘Meanest people I have ever met’: Chat leak resurfaces internal fights among Young Republicans - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNR2R2TV9rSlpZVnFZSkxnVjZRREpoeGlKOGZDREwtcktQMHE5bUg2ZGltQVE0ZXRwY1M0TnRpNUhDR0JVN0hfVmhicm95S29xQ2RNdVgwck5lS2JLaDJxOWRVSGxFS05sSFVfcWdaWFV3MzVpTy1fMkJvSE1LeEVJWjFLWW1Kc0xnQkp5MjZQYU9jNnc?oc=5) |
 | Human remains believed to be missing Philadelphia beauty queen Kada Scott found after ‘very specific’ anonymous tip - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMi4wFBVV95cUxNNnNaSkVhMDFZZWFSek96NDhURXBwX2JDTXZLNjhXVzNEV05ObkdmeFJiU2J6Q2FDa1VPNzA5MU1vdTRERXQ1TXUtMVpfUFJPaW0xUER2SVRHNFMzV0VmQm84eEJObGdqN3d6MlpiUTQ0NWFvR3VxNmFJREJrdkktSkZpWXpOQV9ZZGFmYW9wZERfMk9UVjUySU5FTkRqVnlSTjJpNGpaMG9WX0l0ZTdfSE1zSFRndlpWTngtdzJFbE96MTVuMHJ5cUI5WXo4dXlaRzRSamUzazFUN2dQLVNHUlZVYw?oc=5) |
+| ‘Meanest people I have ever met’: Chat leak resurfaces internal fights among Young Republicans - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNR2R2TV9rSlpZVnFZSkxnVjZRREpoeGlKOGZDREwtcktQMHE5bUg2ZGltQVE0ZXRwY1M0TnRpNUhDR0JVN0hfVmhicm95S29xQ2RNdVgwck5lS2JLaDJxOWRVSGxFS05sSFVfcWdaWFV3MzVpTy1fMkJvSE1LeEVJWjFLWW1Kc0xnQkp5MjZQYU9jNnc?oc=5) |
 | Trump struggles to crack tariff piggy bank - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQb3VudFNHU2NwaXladXpKODFseGFPM0JrczR4U0l4V1FRenB6NjhFVThwZnpGMUpQeGtnbXFvQUQxbzRjSzZtVnNLakpzdzBTOTUwZndVNlg3OGl3UDlzTzlOUWZCREFIYjQ0Wjd0UDhXTzdOZzdTMDFQVUVEaE9vb0tCbFJPZEQ5ZUlraG1lcjgwZVlFY29OdDVIUVNuQQ?oc=5) |
-| Vance Hosts Marines Demonstration Amid ‘No Kings’ Mass Protests Against Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPS3EwWkE0cWxucjhFTktFY1lZYkhJRTR2RWhMLV9ESzJkX1E5UkRKUko0aXkxWEtkdUpYNldPamVnbS1qUExLRUpGZGxHc2k3bzh6U1kxaVJOS0FXczdnaHdIZC1fYUlLSWpxRDV1OV92M3BydmxKeXJ5bEFiZXV1WFhvR1lIcHdjTlFna3lB?oc=5) |
+| George Santos, freed by Trump, says he wants to reform American prisons - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQcDIwR0U3alNRTUlELWV5N1lFaEcyRnp1am1sVjBxbUNXaHk3cGhHNVkxbWNESWdvUEoxUGktVE80dk9Mei1RXzRqTTRBMnc4YTByMnFXRzYwb2dpQVowV1NrQlBFcWZOcW1kZEdWaUo5UldTWXNlQl82dHQzVlRWTXF0N3N5OURsdFl3OXhnS1psU2JTYXNoQ3FSUk43aUk0WWpKdnJvZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
