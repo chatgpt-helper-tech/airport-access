@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月19日 20:56:15（北京时间）**
+🕒 更新时间：**2025年10月19日 21:00:03（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | 'He’s micro-managing phenomenally': How Trump grabbed all the levers in Washington - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQWlBNd0N0aFpKenY4OVIzYm13QWhJa05Ucm9TMi1rNElPRG9GMlFzNHlMOVhUVnRUUk5fQUxVLThPQ3U4SnBYUngwM0xRa3hvZlNQTGRCWG83R0lLRlNHel9WS1Bhb1RXR1VOWEZHS0U1dHY5emRPcldHZlluNHZTbG9yVFNnMms?oc=5) |
 | Family of murdered D.C. photographer wonders if his convicted killer acted alone - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNd3VUTmFDdGlWLTZvWDBES3pyXzBVMFFjaXlIeC16YnZCRTFyQjZwU0N0bWxBRVFzWHgyV1M5XzEzZGgzVGJmNFJ1TlFjM1ZvRW42Mi1KLU1XVGpxemxGZVVVNnRIZnEyb0k0M0ZXOHdFNEFBMU5BRzRId3kxTjJKYlVHTTNhZjlmLU9qcDNZWUp0LUNvb2h6N2w2Rjdrcms2ZENlVlFNVEU3NU5ZcjBlMUE1aE9MMzTSAbwBQVVfeXFMUFdoQ3B1Nngwa0d2eFlBZHVnSll3MzJyZm1SamxDcG5faDROWWlCbGw0ci1HeDgta09CeENrSzZQQjI2NnVFSXFaUk84aGFqMWlnNE9WZUJ1ak1kN1h0LWtidmc2a25IZmthSVRwcmlETVg2bjBXNk9HRjZJX0JNek83UHA1Q045bWVaYXZRZS1JYkxVdGMyRzBiRThtcmNjZUZpa3hMMjFyRTUzQjcxTmd6SkRqOE1DRnJqWEI?oc=5) |
 | Trump Responds to No Kings: AI Video of 'King Trump' Jet Dumps Brown Liquid on Protestors - Variety | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxONEVvbE82QnZxX1AwSFdBMUZIVTNWeHhRMVNJaEk4bVVfVEFfVVF0YWMyMFdnaW1ndXZYdXRjVDM2cVpnNUh6TnZWaTgxQi1nVlhkMGxwSWhDQ1JRaU9RVE1iWHVCQXRJTThzY2pTZXBmQXVkSzFqVENLQU1sRURUdnUyU0thZkR1YV9DYzlvc0FycExjQWpnSjhmZkVIOVJKSHVlT1JkaGVVVEljcmc?oc=5) |
-| After Zelenskyy meeting, Trump calls on Ukraine and Russia to 'stop where they are' and end the war - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNaEZKNnFKR0lWa0ZNV0I4N0lYMkZkZG9yQUFYRGcySmw3VjJQOE0xZzByWnl0aDdrN1VoWWptWS1MRnV3UUlmSk9qdEtUOVozUFJKU1Z6cUdIYWdXUFlxNElIUzlvR1ZYTjFNWnJJRURleXYxUkN5RWltMUNNWVJJNGNxWVNQZXcwMjNVZnZHdm0?oc=5) |
+| DHS to spend $200 million on private jets for Noem, other officials - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9fSUkycmhlbjlQN1BoNVVNa0h4amN2TFBEOWhLTFJuTS1yRlI3SHkxQ3FjWUFqV2JGLXNPdnpGSkViNU1qOG51cTFBQlduVjI3eGJzRGdMTEFtMzFqLWlVOHRPTzl3cEQzZTdQYk84VGgxeTVWSEVqbmZhYW9La1U?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
