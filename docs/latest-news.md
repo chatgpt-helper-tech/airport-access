@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月19日 23:09:38（北京时间）**
+🕒 更新时间：**2025年10月19日 23:16:42（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| ‘No Kings’ protests against Trump bring a street party vibe to cities nationwide - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNZHJLWkdodGJRbHc3VFNSTGJuWGxteVdRMkNUaGNrbV9NSUJZRHA4VnhERXZNX3hqSTBldHo3Q1MwWDlPb2V0cjlQVzlxM2x5M0dJcnpBZ0Z1UmhWYl9NaTQtQk9ZTllJM1QtSFpKaFp4TkQwY19RanAtMTBST2NqTFVpQXVyeHRjTGZLY0xfdTZsNVgxSnNYdS1RRkFPSWJQcmxyVzVtNHl4RGlCTDhsejZPYzlFRkQwVFZabUh6dElEOFk5NHNN?oc=5) |
+| Johnson defends calling anti-Trump protests 'hate America' rallies - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPU25HVDl2THlfMjJxMnlMX3hNTjg1VzEycnZUTVFNWWFJWXBRLV9yZHhwOTlOdlU4NkM4NUw0Ml9SenJJMVZEc29DUXJGM0dMdWd3eXEyRjdlS0JWQzBRYzRUN3RLVmg0NVVIeTdoTE5hZzJpQU9Tdmo5dEVoMU4wMVd3TmRLOHNlTnltd2llcE85MUxBZ3dYdnRvUWdMaWlEWS1RdXE0N2ZOVknSAbABQVVfeXFMT21FOHdfWnFhRkJUOEZTQXV6SlhiNXYwYUpWTG5pMVhwSU9oMUhHbTVrTFZ3a0xpR3NCZXl3Ty0zREhkaW4xZjNua1M1S3FHQjluQ1ZhUXZVOUM0dnlqb1lSUUlrOEdfY0NYMktiSWJubWlxNm1ZT2xEc2U5X0lZY2xhVjlhMTAxbVltZVpZcU4yTVFESUY1ZG45N2hRRnNPdzlDSUVSdE94WFl0RlZuMVI?oc=5) |
+| Masked thieves steal ‘priceless’ jewels from the Louvre museum - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPSlpGckN5bzdPbEpwNm43RkZybGRkYW9kTmxUMi1aRS02c29wRnY1aFBsQ29rV2Q0ZEZxckdQQ2FILTViYjRxTnZ6UEJjTmd6endvR1ppcTVCejNiS2pSbXBFRmZtVWstZ18zOTB4UjNPRlJDQnJhWi01eDlKQUlWWWVhdmZiMVR4dVE?oc=5) |
 | Israel launches air strikes in Gaza, accusing Hamas of 'bold violation of ceasefire' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1adHgwVDJ2QU8zSWlVQkZzYnJnWk13YTRqNi1aempyTDR6WmJrdl9hRzB5X25mQzZVTnFad3EwTVdYNVM0QVFLZThaX1cxWWFZZDREdFhjNEVtd9IBX0FVX3lxTE5EXzA5RW0weTI1aVBmTGlJdDNjdWc1RDRwREVjQmw0WXE2dlVTdERsVXdUMkVMZE1xSFVjeVpGa0h5T2t3N2lGRjZ1ZV84T1pXNk1nSldfMjVmNjFwZUEw?oc=5) |
-| Louvre Museum closes after brazen theft of jewels with 'inestimable' value - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQQnJlQTZ2UmlrdEV0NFVybEk1U1RwdHpHdDVFVVA5OVd3OGQyWUhoT2VpTVR2N2RKcERSTGhzclQwX3FhUTgwZU9rM0tndU1GbEpFWEV2cFNhRktRSkZCWEFXSEU0Ml9oV0p4SUxpcXNGeC1yTXdBbjhzNFQtVjVRLW9UZHVpQTFQRTcwVU1JNE9FN093RVpQc3pYcE9CcFdWQUQzV09Dcm9BUdIBrwFBVV95cUxNT0tjOE04MEYtR0ZUUFFyTXdFQVZQX1FfNmJkdWlqS1Y3MUgyNFRTWkhYQ0tIVGFfN24xVjRWRm9lTGVTcDE5a3dzZk44OVctVEl5Q3NJYmxLbk9yZmM5RDctM1g2d2Y0cHJYU1NfY0k0ck5zTVBCQnNkUXRxZXRaOGdsTFNORlZoUTVSdmtJVlNoQWN3R3VlbnNkeGdnX1U3Q0tVSi1RUVBBZklXaUtF?oc=5) |
 | Vance Flexes Marines’ Might as Mass Protests Against Trump’s Agenda Take Place - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPS3EwWkE0cWxucjhFTktFY1lZYkhJRTR2RWhMLV9ESzJkX1E5UkRKUko0aXkxWEtkdUpYNldPamVnbS1qUExLRUpGZGxHc2k3bzh6U1kxaVJOS0FXczdnaHdIZC1fYUlLSWpxRDV1OV92M3BydmxKeXJ5bEFiZXV1WFhvR1lIcHdjTlFna3lB?oc=5) |
 | Trump ends Colombia aid over drug boom - DW | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPNXpkdDAyYVVzVlRnWVlvd2tGVHRLNG5tdDR1SVRMaFJzY0tuS0ZiNUtNcHhndTdrc3YzdzMtazYtbEU1bDVqQWNGQ3lFSnYweGtPUTI3YzQ5aUx5akdTb3hqREVoN21fTFpEODkzZnJaWXVEa3JIdldDTVFsNE84eVJ1aEo2NEJvMmFvS3VOcEgtY21uUTdILVRnSjJ3TUMtZUdZRnZMMHIzdHYyeC1WTlZiTzRJRXpxMnU40gG7AUFVX3lxTE5hY3pDUmg1M0hVaUY1ZGFUZndFajB6SG1XeTB4WnFGTWF0TnZnQmlzN2JWMWZNZXVDekU1SEJPWkRqX0lMbGRMbDZRVktzSDJPYlBFWHFMQzVpUU1VdHdVYzh4Tnk1TE9nNElxdWFUMVh4ZG1NOTNDMmYzd2g0clVVWHhPbUFQOGVobUFjNGYxVDlRMDVnWmtTODlLc3pjNVlpSUtDY3Radkx5WUl5OWlOa0t3MUJiQTRxSUk?oc=5) |
 | ICE tried to send one immigrant to a country he never lived in. Then he lawyered up. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNd3JybkJGdGpQSDAwX3g3Wm1yUzBZZTBZVjRJMHBGMi01R1RyMFAyUjlyejVraDRlTWtUT1ZfNHB4eWJyaFQ1cmwtdVNvQnBLRGx6ZlJlMDVVSjFHc0c4b0p5aVVFbGotYXUxRGhlcDlLT0dEODFkZnV5dzlPLU4zdjk4Sk5KQQ?oc=5) |
