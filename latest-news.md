@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 03:25:32（北京时间）**
+🕒 更新时间：**2025年10月20日 03:32:38（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Johnson defends calling anti-Trump protests 'hate America' rallies - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPU25HVDl2THlfMjJxMnlMX3hNTjg1VzEycnZUTVFNWWFJWXBRLV9yZHhwOTlOdlU4NkM4NUw0Ml9SenJJMVZEc29DUXJGM0dMdWd3eXEyRjdlS0JWQzBRYzRUN3RLVmg0NVVIeTdoTE5hZzJpQU9Tdmo5dEVoMU4wMVd3TmRLOHNlTnltd2llcE85MUxBZ3dYdnRvUWdMaWlEWS1RdXE0N2ZOVknSAbABQVVfeXFMT21FOHdfWnFhRkJUOEZTQXV6SlhiNXYwYUpWTG5pMVhwSU9oMUhHbTVrTFZ3a0xpR3NCZXl3Ty0zREhkaW4xZjNua1M1S3FHQjluQ1ZhUXZVOUM0dnlqb1lSUUlrOEdfY0NYMktiSWJubWlxNm1ZT2xEc2U5X0lZY2xhVjlhMTAxbVltZVpZcU4yTVFESUY1ZG45N2hRRnNPdzlDSUVSdE94WFl0RlZuMVI?oc=5) |
 | Israel strikes Gaza as both IDF and Hamas accuse each other of breaching ceasefire - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOdGdSeG1PcHdXelNfX2tmd2IyemozSFJCNWdxNHNDRXFucGtRdkVwaFM2X1JuUXNYeFZZX1RQSXBtbkJBWldOSVZudV9rdGFaMmVZUmd4bXlzeU9tam9yVmVPQzdGa0FFTDU0U2RiR2hfRU1La0x4ZE5NajNDcXgwbFQ3LXExWHVrb2MwQlJuVjNyOUl2a0xBVDlxVlFoZTE5NEtBbTR3UjZIbDNRb0RGd29JSmFYUG1Jd2c?oc=5) |
-| Louvre Closed After Thieves Steal ‘Priceless’ Jewels in Brazen Daylight Robbery - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5PNDU0NTVucXBOdnNuUTNWWUlUZ0tmZVFVNHA5cWhQcEFJS09tRzVJQUQ3UlA3ZnFRcnd4bEgyNXc4SERhb2dEam5UTVVhWks0U3U5ZUR4TWJ5b0NUUjJGVjBQMG5NbFlXRzZWNTZISWJzSDd5OTdXSEwwMjQ1QQ?oc=5) |
+| ‘Priceless’ jewels stolen from France’s Louvre Museum in four-minute heist - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQYk9kV2QzMUh0cEpnaWdkZC1TVnR0QTdrU0t2SFYyMWR0QUl6YmVnQjVPcnZUUFhEci1HM0g1aXlGWGpmeUNsSmRBMDFCaUJUMGlQNzJoRFBDSW9pZWVMVWxBOVVVaUJfX2ptM19qY0Jka3BWRkFaT3hQQXE2Q1hVN2NhR0ZSSVFJV2l1aEZheXBsdTZ0QldVMFNraFVJM2VmTnk2Nno1Y00xajhyMG5NQjFha9IBuAFBVV95cUxNYmNBUmpVcUpqczBhMzJpNjE1d0NGeUhLUkVoSzFzX1VoMWQ0aFBZclhqZHZfQUpsYnR1R0JHdlVaSkNLQm1PQ1ZZUVcxaUJ5aGxObHU1bVJueXRTSi1PSUJ3dW5Na0U2VngzWTJsOHhCN0hVbzlQa0JoZUdKdE03NnFlS3Z1VmIwQ2MtZmpZOGMxZnBpQW9nN09SazEwUHRpcmtOVXQtMTA0UDd3Y0J2ZldORVdCSTNi?oc=5) |
 | Interstate 5 closure fuels anger and gridlock: ‘There was no coordination’ - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPZFptNHEzelUwUGYwNFJkVklFQnN6bDhIX3ZHMjZwMFRHRnJvRG9Vbk90ZzBmV2pOc3BlMnFxel82aDNaSUU0Q0hMeGhkeFFfZWFpNkpSbTJzVUJ2Z3otcG41ZkhCT2hwWGVtMmxPTFlEWG93MnFaMkxDY0c5Q3lWWjljM2FEZ0prbl9QUmdxUVp5SkdpX3VQRWkyU3RKM29mX0NDWWRFS2xURjRzQ2VZWjNXNjEwMDEtbEQyT1FaUzQ?oc=5) |
 | US says it hit Colombian rebel ship as Trump calls Petro ‘illegal drug leader’ - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNdkdxaEhGVnNFY3JUbU9UVW5UYU12Y0loM09xdkF1SkdYTnoza2t2d2VRZ2dzNV9DWm00VGo1M3VoYk1GVWItZzk4WEl2TXBtMGExR0VNdmJXU1ZHa3BaOVlsLVBiOXVqcTdDUVZIV01CenQ4dDlDUWk3eDlqR1c0cHBfRVBLYThHZGk5U2c3aV9WZ2k0ZHR0TlRXRlZocXI1M1kxODZTeVdJLU0tNUE5UVpmNHg?oc=5) |
 | Little Marco Double-Crosses U.S. Informants for Trump’s Prison Deal - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPTHI4X1dQSTBXZ2gySE5WeVBfa3pGWjJnejZxZnY0SXhiVnNMOXBXQTU2OE1NSEJpNWF5cC1CbFRxLTN3SzZSS09tYjFRakRxRzhnVUhyNW5fZ3VpYlB0dERrM1g0UE1VQUoxRktTRUdJc2N0QVc4VjlweTh5R2M3WkR6ZnRORWZEZ1I0c3VxdXk3NlAtY091cTl3OA?oc=5) |
