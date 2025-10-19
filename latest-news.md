@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 07:01:53（北京时间）**
+🕒 更新时间：**2025年10月20日 07:08:10（北京时间）**
 
 ---
 
@@ -14,8 +14,8 @@
 | New V-level courses to be brought in for students after GCSEs | [阅读全文](https://www.bbc.com/news/articles/clyzjp5n5kro?at_medium=RSS&at_campaign=rss) |
 | Why John Bolton case is more serious than those against other Trump critics | [阅读全文](https://www.bbc.com/news/articles/cnvejvr5gn6o?at_medium=RSS&at_campaign=rss) |
 | After 'No Kings' protests, where does Democratic resistance go next? | [阅读全文](https://www.bbc.com/news/articles/cj3zemk2j4ro?at_medium=RSS&at_campaign=rss) |
-| World of cricket's farewell to umpire Dickie Bird | [阅读全文](https://www.bbc.com/news/articles/c7816gyny22o?at_medium=RSS&at_campaign=rss) |
 | Tel Aviv derby called off by police after 'violent riots' | [阅读全文](https://www.bbc.com/sport/football/articles/cgr4n07509wo?at_medium=RSS&at_campaign=rss) |
+| World of cricket's farewell to umpire Dickie Bird | [阅读全文](https://www.bbc.com/news/articles/c7816gyny22o?at_medium=RSS&at_campaign=rss) |
 | Trump ends aid to Colombia and calls country's leader a 'drug leader' | [阅读全文](https://www.bbc.com/news/articles/cn8xg1jve73o?at_medium=RSS&at_campaign=rss) |
 | How BBC secret filming exposed a £28m timeshare fraud | [阅读全文](https://www.bbc.com/news/articles/c33pelk6pmlo?at_medium=RSS&at_campaign=rss) |
 
