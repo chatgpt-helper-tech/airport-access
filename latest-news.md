@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月19日 20:00:51（北京时间）**
+🕒 更新时间：**2025年10月19日 20:08:41（北京时间）**
 
 ---
 
@@ -10,7 +10,6 @@
 |--------|-------------|
 | Met Police to look into claims Andrew sought information on accuser | [阅读全文](https://www.bbc.com/news/articles/c3970mxwz9vo?at_medium=RSS&at_campaign=rss) |
 | Government vows to create 400,000 jobs in energy sector | [阅读全文](https://www.bbc.com/news/articles/c3vnr45x5qyo?at_medium=RSS&at_campaign=rss) |
-| Betfred says all its shops may close if Reeves hikes gambling tax | [阅读全文](https://www.bbc.com/news/articles/c5ydpmy7mj1o?at_medium=RSS&at_campaign=rss) |
 | How BBC secret filming exposed a £28m timeshare fraud | [阅读全文](https://www.bbc.com/news/articles/c33pelk6pmlo?at_medium=RSS&at_campaign=rss) |
 | The Celebrity Traitors cast are closer to each other than you might think | [阅读全文](https://www.bbc.com/news/articles/cj3z5yj4l60o?at_medium=RSS&at_campaign=rss) |
 | Will giving up his titles really make much difference for Andrew? | [阅读全文](https://www.bbc.com/news/articles/cd670x96600o?at_medium=RSS&at_campaign=rss) |
@@ -18,6 +17,7 @@
 | Young Korean author Baek Se-hee's death has shocked many - here's why her work lives on | [阅读全文](https://www.bbc.com/news/articles/c15p9ndxd4eo?at_medium=RSS&at_campaign=rss) |
 | Mystery lingers weeks after missing schoolgirl found dead in pop star D4vd's Tesla | [阅读全文](https://www.bbc.com/news/articles/c205g10g0nvo?at_medium=RSS&at_campaign=rss) |
 | 'I'm 89 and I saw my homeland rebuilt before - but now I don't believe Gaza has a future' | [阅读全文](https://www.bbc.com/news/articles/c87400e3j5eo?at_medium=RSS&at_campaign=rss) |
+| Father 'finally home', says daughter of dead hostage returned to Israel | [阅读全文](https://www.bbc.com/news/articles/c7v8e1484n5o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | US warns Hamas is planning attack on Palestinians in Gaza - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9jMGl4QVc0dDR2cFREaXh1WWx0eVhjZWR5cHFOQjFFVXFOQkRpc3J2aU9NRlR6T0NYd3pQdzF3VXMzcF9kcWxsaVlQM3dOc21sOW1oR1VlWEtScW92dTkyX3AwYVlQUlEzSkFHUEhpU04?oc=5) |
 | Family of murdered D.C. photographer wonders if his convicted killer acted alone - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNd3VUTmFDdGlWLTZvWDBES3pyXzBVMFFjaXlIeC16YnZCRTFyQjZwU0N0bWxBRVFzWHgyV1M5XzEzZGgzVGJmNFJ1TlFjM1ZvRW42Mi1KLU1XVGpxemxGZVVVNnRIZnEyb0k0M0ZXOHdFNEFBMU5BRzRId3kxTjJKYlVHTTNhZjlmLU9qcDNZWUp0LUNvb2h6N2w2Rjdrcms2ZENlVlFNVEU3NU5ZcjBlMUE1aE9MMzTSAbwBQVVfeXFMUFdoQ3B1Nngwa0d2eFlBZHVnSll3MzJyZm1SamxDcG5faDROWWlCbGw0ci1HeDgta09CeENrSzZQQjI2NnVFSXFaUk84aGFqMWlnNE9WZUJ1ak1kN1h0LWtidmc2a25IZmthSVRwcmlETVg2bjBXNk9HRjZJX0JNek83UHA1Q045bWVaYXZRZS1JYkxVdGMyRzBiRThtcmNjZUZpa3hMMjFyRTUzQjcxTmd6SkRqOE1DRnJqWEI?oc=5) |
 | After Zelenskyy meeting, Trump calls on Ukraine and Russia to 'stop where they are' and end the war - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNaEZKNnFKR0lWa0ZNV0I4N0lYMkZkZG9yQUFYRGcySmw3VjJQOE0xZzByWnl0aDdrN1VoWWptWS1MRnV3UUlmSk9qdEtUOVozUFJKU1Z6cUdIYWdXUFlxNElIUzlvR1ZYTjFNWnJJRURleXYxUkN5RWltMUNNWVJJNGNxWVNQZXcwMjNVZnZHdm0?oc=5) |
-| Human remains found in shallow grave 'believed to be' missing Philadelphia woman Kada Scott: Police - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOX0NZZmZLNWkxcksxTWRjRFpZUU00dkF6a1FyWjZiWS1TdjV6Zzd6bC16emMtVUVfU2FRenc0QzRwRjR6clF4c2FqdmlpdEJQZDE5aEVyNXpxY1lXMGZWNGJHOVB4V2Q3S3A0QXB4dHRWSDFmcV8tei1nczktXzVaeS1fN2E3dTJjV1pfQ01HS085NGVTNzJuQTZDRHpwZTk4YW5mSNIBqgFBVV95cUxOMUt1ZERLT3I2SFJPN3M5X1ZtTjl5S1BzZ2FlY2R2RGVIWFhlM3FWREwzd1RKRkdrLWVFWUVsRWhLQ1g4Z1pTZUtuRm9nMkZxSldqNWpXcE5fQ3FIRzF5MlIxSDBzRXh5dEplcWF2T21CV3BIRnNmOXp4TmdRMnRrTlhzM3AtVHpSR1VYV3dWZEdfQjlEc3o1aW5LQTZxdk4zWEdvZnBRVERPQQ?oc=5) |
-| Santos’s Release Frustrates His Former Colleagues and Constituents - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOVmwwaEg1Y3ROTTM4VmlTR3ZRd0NVaFFncGtzbmhWTEhDY3VMZjFvaEtKLWRPM1hkTXRkekhURzJ5VXo4MTQ4X1VIXzVxb2VHUktNTE4wQS14ZTV3VDl5MVRZU2xkLVhaWWpLODVRZXBxX0dPc1UtOXhObTBXa2h4allyWUJNUkU?oc=5) |
+| Vermont state senator resigns over racist Young Republican chat messages - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQY21BV0txRzhuY2RDX0h2OUVOaS1ZTlpUMk9qNVh1bkRsT1dWaENwU3B5XzNnN1d5YzhDTUQ1Q3JaMFdKV1pEOUdZUElGaVdZbFFxMl96czdzYi1RQW9WbWR4eWg3R2hEaDF5blA2UmlKdjFxYW81Q3R0VDNDS01NQ2tGRWlOaV9OLWFaLXgtM2VjTnp3cG5NTFFmZWZ4dw?oc=5) |
+| Why recovery will be tough for Alaska’s villages flooded by an unusually powerful storm - PBS | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxPSHpmY2FScVpoQzhhMEtFZkh6SEJfRWhRdmtCeE04LUNYS24ybmJxblh2Z0VpZ0t2aVdRVW5JVUNiWjdWbU50U2NrWVNiaDhQRlVOWFRzX3Z6b0VWZGMzaXpyVk03VzdOV05aeXZfbGRQWms4ZkpwOUR1cU5YX0p2OERXaVp0RnR1dVRsdm94N29MX1czSEwwcDNEYmtlZG1IUDU1c3ZTelBWN0FjVlVSNFRhaUF0Z203Z0pLRlJrbw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
