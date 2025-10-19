@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月19日 08:01:38（北京时间）**
+🕒 更新时间：**2025年10月19日 08:09:37（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | Disappointment in Kyiv as Zelensky leaves White House empty-handed | [阅读全文](https://www.bbc.com/news/articles/cn97gjqgq9po?at_medium=RSS&at_campaign=rss) |
 | Watch: Brits row from Peru to Australia in tiny boat | [阅读全文](https://www.bbc.com/news/videos/cd9kx7we4xyo?at_medium=RSS&at_campaign=rss) |
 | The Celebrity Traitors cast are closer to each other than you might think | [阅读全文](https://www.bbc.com/news/articles/cj3z5yj4l60o?at_medium=RSS&at_campaign=rss) |
-| What Prince Andrew's titles loss means for Sarah Ferguson, Beatrice and Eugenie | [阅读全文](https://www.bbc.com/news/articles/cx2p7xzz4lvo?at_medium=RSS&at_campaign=rss) |
 | 'I miss the past, but we like the money': The Bali-fication of a laidback surfers' island | [阅读全文](https://www.bbc.com/news/articles/c5yp87ppk7eo?at_medium=RSS&at_campaign=rss) |
+| Grand Theft Auto made him a legend. His latest game was a disaster | [阅读全文](https://www.bbc.com/news/articles/c4gzn34gwvwo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 

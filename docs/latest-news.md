@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月19日 08:01:38（北京时间）**
+🕒 更新时间：**2025年10月19日 08:09:37（北京时间）**
 
 ---
 
@@ -16,15 +16,15 @@
 | Disappointment in Kyiv as Zelensky leaves White House empty-handed | [阅读全文](https://www.bbc.com/news/articles/cn97gjqgq9po?at_medium=RSS&at_campaign=rss) |
 | Watch: Brits row from Peru to Australia in tiny boat | [阅读全文](https://www.bbc.com/news/videos/cd9kx7we4xyo?at_medium=RSS&at_campaign=rss) |
 | The Celebrity Traitors cast are closer to each other than you might think | [阅读全文](https://www.bbc.com/news/articles/cj3z5yj4l60o?at_medium=RSS&at_campaign=rss) |
-| What Prince Andrew's titles loss means for Sarah Ferguson, Beatrice and Eugenie | [阅读全文](https://www.bbc.com/news/articles/cx2p7xzz4lvo?at_medium=RSS&at_campaign=rss) |
 | 'I miss the past, but we like the money': The Bali-fication of a laidback surfers' island | [阅读全文](https://www.bbc.com/news/articles/c5yp87ppk7eo?at_medium=RSS&at_campaign=rss) |
+| Grand Theft Auto made him a legend. His latest game was a disaster | [阅读全文](https://www.bbc.com/news/articles/c4gzn34gwvwo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Biggest US labor unions fuel No Kings protests against Trump: ‘You need a voice to have freedom’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQNk1OeVktX195SDRDSWZNelpnNFZNc3VRcl9lQ1Y2b2tQbGVQZEx4X2kzMTg2d0JiSVNiWTg3eXloeEU4SUdldE02ODBISy1uRFVQWlJUcjJjb2N3WFFtVUFzLWxKY0ZqZEhrOTktemZhd3AxS19iVi16WlNkTThlaWc4TkI?oc=5) |
-| US to repatriate survivors of strike on 'drug-carrying submarine', Trump says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE92N1ZYOXQ0ejM3V0JhMWxiTjRzYV8zQ3pCM3UzUkhIdF90MjZwUlhvWk5UMkhiVHR0SUx2TkloN1V6VmE3S2JMa09BS0JzbFZkVXBpd2FJMHdHZ9IBX0FVX3lxTE1zd2s5RzZaZHU0OGdfZExpTWNiVVJOYTVVaDV0VFd1ZEpTbEszaUZuYlNXMkxaZ3F1QllRNURjTTFJVXA5ZnE3NkdoN2hLVmZVR2U1SkpkdFFQdVpEX3pZ?oc=5) |
+| No Kings protests against Trump draw huge crowds across the country - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOUlktYnVRdnRjeTg2YWtwS2h0eG5HY3RXSE5naG9zdjZpNWZ1cGJKMjRybG1FMG1JYkM0MF9LbTRwSWREcTVXb0V4US1fbDVuSGwzdWZjLVJqWTRQRy1NTEE2UVFraFpFdmVZM2dwbHBFYmQ5SkpRSFhvRWVtbmtLVg?oc=5) |
+| US will send survivors of strike on suspected drug vessel back to Ecuador and Colombia, Trump says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNRzF2OXhHWjJ1dlltUEpIbTVSaXVBUlVTVkRXbm44b0g3ckdoS0NGbkkwbGtBeGg3cHVqV3U1U2V6T1VnV0czVmNlMjc3cDR2UVNBY0RQSWhDR2dDd1dUMVZvOTJ0cGprTXVISXluLXZrVzUyS1JIQkpNaUd0MGJUVFB0dlNYWko0T2txZDNnOGNWanFlTWx3d1B2cmRna2M1MTE3SkJhVUJvcHlENU5pbUxYbjlzb2ZQUUE?oc=5) |
 | Interstate 5 temporarily reopens but gridlock reigns through Camp Pendleton - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi5gFBVV95cUxQU3hpY2ZWdVVfcXBZbmVnUTJMd1FzU1RKNERDWGpxalZaWE1PeVB5QVJnVnpGeUhBR1JhUkhIVTRUeDRWUjJCSnpVOVNYc3RxM2VaVVlNd2FhSDRNY2pySTNmcW1Vc2hVQVVrNHU3YWtJSFhnR19tS3c1ZGM2WUdsMWVUdVl6ekxCMWczNDdOM0FqYjlaUXQtc0lvSHJVVE12Y18tRTRKRlZFZTFKaGw2OUZPNW9zQzFXQXBDdjNISWNOZHJWaHIwdGZQYVA1Qmd2d0tOUXV3T3pVRHlfNVV0R0c1NWVYdw?oc=5) |
 | U.S. Embassy in Trinidad and Tobago issues warning for Americans amid rising Venezuela tensions - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNUXhyY2lPZkhHaGVLX3pXZ1ZjU1RNOG52bF9BWk9Kcm1LNWFPYzNLandNaFZmN0M1VXRIZWxnNTRvMmh0TjN5YmhkbjliOGsxeUMyYzZlT2JTUllVR1M2MEZneGNoRnp3MFhIMkRxY2I0TGptbHotQ2ZjTkVTa0pob1BhNERCbURQbjhCbnRB0gGTAUFVX3lxTE9pcnkwM2pia0t3WTJ5OC10a1lUZlliVzBIMFIybmRDRUFLdFpQMGl1a2RfT291VHptY3drV2FBVkVFTzJmcklZTVNfTkdwS2Y1SHNsRzVfenBVbTctM1NwencxYlhwbm5LQmpHNlBhelpwQUVueGpwQXJPY0o3amNPbnZISDlnU2JYdjg3SWY2eXJfUQ?oc=5) |
 | Case Against Bolton Raises Questions Over Justice Dept.’s Use of Espionage Act - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNblMtNW1NR3ZscXU5NHpHb2FpVGR2alVHZE1XM1Z0eU9KUEtVY2wxM1RQalJ2WTYxQ0FDd0NRbEZOUHBmMnoxdkozakEtZElreDZkUnAwUFQycTFldVlzUzJfdXFOdWl1OHhuQ0M2NGJmTl9kVHlhVUthUFJuUU9ERm5ENzBxYjR6akM2OW5JSU4?oc=5) |
@@ -32,7 +32,7 @@
 | Vermont Republican lawmaker resigns over racist and antisemitic group chat - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQcXZlZjU2X0duQW1yV1UyUWVQMXA4SWdzeTdWMmo4QVFDUWRoQlgyeDVObFZpcGw4ZHZzS1ZsT3cxOFRaZVVnZEdFX3FLSW1CajlaY2xvNWd3Zjk3UTVDY043MlVQRTNQamFfZWRuVnhiRURMWTljZkRnclhyNWZobXloTGF5aDQ3NTFfNld1MnU4c0NWTUpaTklrTmVkeVU?oc=5) |
 | Ex-ICE director says Trump's immigration crackdown putting agents in "terrible position" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPcXc4ZWJHMXl0ZW12Z3cxMnJDWk1ELWxPNDhMYm5lVHE1RllRcXhsT21yQ2NxNE0wejM5NVk3NG5UeWV3M3ZfQVg5RDJoNkM0MFV4MXhtd1JjQjZpdG1DYzUybllLTzVESkV6SGpzOGxXRlN0RWsxcWtpWEZmdHdhMW9Ic25mMUhWWExPSXkwWVE3QXFqWjd4UWs0ZkpSUklBTTZNSm03WldkYl9PVGRhN043di3SAboBQVVfeXFMUGl2Z2pXN3hKN3UzY3dwa1RPV3FNVEh0ajZodHZodGdUQkhZWS05Qlg4UC1iU01HbUdzYXd3QUNxM255V2xfQXRoeFJ6N25mODVHVm1YRXdoclR5R0QtVXVFSG9VYnZETy1uaUx5Y1pxbnpQdHRDc0xwWGpvZk9wRnpGdnJQbEdLcGJVaGt5WGptVUVVNjdYakNVSnkxQWZNeDlDdFJjUkh2aS1aVWN5ekdKNnpHYlNrRUFn?oc=5) |
 | Santos’s Release Frustrates His Former Colleagues and Constituents - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOVmwwaEg1Y3ROTTM4VmlTR3ZRd0NVaFFncGtzbmhWTEhDY3VMZjFvaEtKLWRPM1hkTXRkekhURzJ5VXo4MTQ4X1VIXzVxb2VHUktNTE4wQS14ZTV3VDl5MVRZU2xkLVhaWWpLODVRZXBxX0dPc1UtOXhObTBXa2h4allyWUJNUkU?oc=5) |
-| Trump’s reshoring push is tripping over itself - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQeHBhSzd6eHp1U0Q2TkEtQk52WjNTWGJ1VDQ4cl9nZEJDWDBXUnlWR0toM1M0bW4zZkhuSV9BYUdVUTFkbk4zbEczWWp2NGZyNFBlTDZtM2hBLW1vejVNUGRpeXctZVVYczFRTjk2OTM2Z3pvaWhFRWdNVTNlUjl4R2xLWFNjcHlEN0E?oc=5) |
+| After Zelenskyy meeting, Trump calls on Ukraine and Russia to 'stop where they are' and end the war - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNaEZKNnFKR0lWa0ZNV0I4N0lYMkZkZG9yQUFYRGcySmw3VjJQOE0xZzByWnl0aDdrN1VoWWptWS1MRnV3UUlmSk9qdEtUOVozUFJKU1Z6cUdIYWdXUFlxNElIUzlvR1ZYTjFNWnJJRURleXYxUkN5RWltMUNNWVJJNGNxWVNQZXcwMjNVZnZHdm0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
