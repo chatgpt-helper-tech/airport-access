@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 06:41:08（北京时间）**
+🕒 更新时间：**2025年10月20日 06:48:02（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Renewed fighting tests Gaza ceasefire and Israel briefly halts aid - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOdVBjSzN1bk1nYmEzWERpd1hkd2ktTlM0MHJvR0NlZHhlTDloQ004MTA2bnFEaGxEM3ZVQ0xlbjhLN2pKR1lTZENxUUplWVJQTDRqWWhySnVaaHV4RnoxV1JHdGdxaDExbm1BcjVfUjdqWW94cmhmODBxRHVtUU9vTjg0TEtmV0NoclI5M1AyYUVHR3plZzFyMkkyWE9tWERJUUIyaTR4WmE?oc=5) |
-| Louvre Robbery: What Was Stolen - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9mSjhPelB3cDBFV05ROHJsNnN5b0pnQ3ZkWFU0QWRuNkRzUWstTFpkaV9VZnZuNWhPeFEyTWVuQU13c0VkcHpJZnZWQW9ibUtTN2l2MzVBSzk0RV9hUnZCSnpNMlJYTDJQVWVlOU9aMEZyNVdSeE94eXRPTQ?oc=5) |
+| Thieves steal treasured jewelry from Louvre in 7-minute daylight heist - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOMEE2ODFiSVhqWEdNZW9leXRnX2gtODA5QU1mdkFNVWhpMk1Bd0x0V3dBakJtUnM1ZnM1ZWF4em9qQVRYQWtSTXpqLWwwTU8zMHVxbk9hcDREZGNaNl9RQzMtRzlzZkpPS2ZyZGdrbzk3UGNEbmVPUnk2c0puOTlLWE1UMA?oc=5) |
 | Johnson defends calling anti-Trump protests 'hate America' rallies - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPU25HVDl2THlfMjJxMnlMX3hNTjg1VzEycnZUTVFNWWFJWXBRLV9yZHhwOTlOdlU4NkM4NUw0Ml9SenJJMVZEc29DUXJGM0dMdWd3eXEyRjdlS0JWQzBRYzRUN3RLVmg0NVVIeTdoTE5hZzJpQU9Tdmo5dEVoMU4wMVd3TmRLOHNlTnltd2llcE85MUxBZ3dYdnRvUWdMaWlEWS1RdXE0N2ZOVknSAbABQVVfeXFMT21FOHdfWnFhRkJUOEZTQXV6SlhiNXYwYUpWTG5pMVhwSU9oMUhHbTVrTFZ3a0xpR3NCZXl3Ty0zREhkaW4xZjNua1M1S3FHQjluQ1ZhUXZVOUM0dnlqb1lSUUlrOEdfY0NYMktiSWJubWlxNm1ZT2xEc2U5X0lZY2xhVjlhMTAxbVltZVpZcU4yTVFESUY1ZG45N2hRRnNPdzlDSUVSdE94WFl0RlZuMVI?oc=5) |
 | US says it hit Colombian rebel vessel as Trump calls Petro ‘illegal drug leader’ - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNdkdxaEhGVnNFY3JUbU9UVW5UYU12Y0loM09xdkF1SkdYTnoza2t2d2VRZ2dzNV9DWm00VGo1M3VoYk1GVWItZzk4WEl2TXBtMGExR0VNdmJXU1ZHa3BaOVlsLVBiOXVqcTdDUVZIV01CenQ4dDlDUWk3eDlqR1c0cHBfRVBLYThHZGk5U2c3aV9WZ2k0ZHR0TlRXRlZocXI1M1kxODZTeVdJLU0tNUE5UVpmNHg?oc=5) |
 | Fact-checking Trump’s claim that each boat strike off Venezuela’s coast saves 25,000 lives - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPeHJZTHJqS3R3QVZrUFM3MEp2UUQ1MVBMRVpvdzdXVC1SMEtZMU95cVVPUkdTdWUtVzlKRk93cVBuNEkzbTRnUmFLSV83LVRoYkdobjQzanA1Ty1qUzhUWWpjdXRQYWVLaDBuQk5OX1NwYlo5TnAtOW5va3hkRUpST3pNZmQ3cnplQ1B3anl4VExickR5aFh3UDFUeVNvWnZPRnRNYlVodnZCaV9uQ3B2N3VsR3NBRHZwb3UzOG03RjBvTHPSAcgBQVVfeXFMUDdBU2tHQmZQNHJxTnJsYm85YTRMdUMtV3dRamtIbFd6UVJVYmU1RlFUWkpNcWNtdGptU2lhbTAzU2djekRVZ2gxeG5wNDRjT1A0U18tUHV5TkR6QmNfdDFZZUlsR3pJNW1ZbzB4NEhCa3hNa2Q4Z3BBcXFaRU5meE0xRmdCRGZNRVI4bTUtbTQ5aGwtd2ZsamtNalNBR3BpYXpGMVNxaDNNQVpobF8tQmJHYmd3SnN4ZXNraDlWbnpBX3p0N01McGI?oc=5) |
