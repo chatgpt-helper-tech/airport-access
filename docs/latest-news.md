@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月19日 17:32:42（北京时间）**
+🕒 更新时间：**2025年10月19日 17:41:05（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Live No Kings protest updates: Massive crowds march, rally throughout Bay Area - ABC7 San Francisco | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNaG1nbDU4dDJPUFVTRVhPZ21JVDFkOTFvUDVMX2VMSUN3b2x5YzFEdXZ1VTZsZ3cwcHBpc1NRS01DbzlmS2tHSV9hcXJ2SzBXeklNNlkzZHZKWFpDMEFhblhzVGJsbnJGZ3FmYjZOQ2Z1QWU1TWdQMGhueHRSM20ycThDa2NRZkI2eEc3aUF5enRGVmFfeVA1elg0cGs3bXBRakpSMVRrYTRGWTNSTjJV?oc=5) |
 | U.S. repatriating survivors of alleged drug boat strike to Colombia, Ecuador - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNa2FvLWp1R1VSeVBXdG1HbkdMR0t6a21xdzZiNWJIMXI1UVNtNWtzckJTaENybi04eWNlb0FBRVY4ZldYODR2bWJYNlc0T1kyNk1KSVJOT3E4N25WbGdGVElISnB4SGJBQWxDZHlTbzMzOTRfNmhsZ2FiUVIySTZJT3lFVmZILUpoTFY2OWxmenNQNWNNTVMwbUpuZXpLamJvRF9jdE4tRmlBRkZVVjM4?oc=5) |
-| Social Media, Pleas From Allies and Prison Essays: How Santos Won His Freedom - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNNGQ4ZE1VaGFfbWxQTncyOTRob29DRExuRmJycDJpZGN2cERhdURhTEtjLVZsSTh6akV2LS1GRGx0aW1DNDhOczJhWDBzeWxReVJQcnN5RG55R1l0UFB2YUQzRE1Qc2lSd2Zma0paQnhHVEJGTm1fWnFCTURGakkzdg?oc=5) |
+| How George Santos Won His Freedom - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNNGQ4ZE1VaGFfbWxQTncyOTRob29DRExuRmJycDJpZGN2cERhdURhTEtjLVZsSTh6akV2LS1GRGx0aW1DNDhOczJhWDBzeWxReVJQcnN5RG55R1l0UFB2YUQzRE1Qc2lSd2Zma0paQnhHVEJGTm1fWnFCTURGakkzdg?oc=5) |
 | Interstate 5 closure brings gridlock, new battle between Trump, California - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi5gFBVV95cUxQU3hpY2ZWdVVfcXBZbmVnUTJMd1FzU1RKNERDWGpxalZaWE1PeVB5QVJnVnpGeUhBR1JhUkhIVTRUeDRWUjJCSnpVOVNYc3RxM2VaVVlNd2FhSDRNY2pySTNmcW1Vc2hVQVVrNHU3YWtJSFhnR19tS3c1ZGM2WUdsMWVUdVl6ekxCMWczNDdOM0FqYjlaUXQtc0lvSHJVVE12Y18tRTRKRlZFZTFKaGw2OUZPNW9zQzFXQXBDdjNISWNOZHJWaHIwdGZQYVA1Qmd2d0tOUXV3T3pVRHlfNVV0R0c1NWVYdw?oc=5) |
 | 11 people hospitalized, including infant, after car crashes into tent in Maryland neighborhood - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPTUtUalpNUEQ2RlRscWdxN1dVZmRhaHYyNGFjcWtKVjA1QlJ2RUtLTmJIM1cxNG96NzBZcUtadGYxQnhKNG14aUhMRlBRTjJwck1zZDlWTjBoaThwZFUxLVJ1QXpxN3hOaVpFdkRia2xUU21uMkFBZnkyalVqYkxEdFdhdlRLWm45UlJtRldPRzg2VFhsR3I0VWJPRFdJWkVJSmZkMNIBqgFBVV95cUxNd2pIeHZEOU5saEU1U1NGYzdCSDNwcFN0WHdVQlFrTUZmUmt5cjBkNHJpeURGWm9UdWZEZUV4d0NMTjNleEtON1hETU5Gc1JISGlISkRfREZTLVNNOHZIZmN3aFFSYmVuZUtaeFlNaUdQZWY2RGZFb1Fid1F5UkFaMGFKSGdfSW5EMlJNY1BlaXBmVHRnOUtMVG4zbUd1aW5ndDFlMC1XZkoxdw?oc=5) |
 | Father 'finally home', says daughter of dead hostage returned to Israel - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE0wX3dvRGxyWnF1M215Y2ZnLUsyME1ScDRQcWM0WkRHYk9GVHZDb1plcTVZdzU5cERyaHBzV3JHbmF5emdLR2pDUEo5akJfOEdoY1BjSUVSR2hzZ9IBX0FVX3lxTE81U1FNXzBlelpTY3hjc2RsSmRsc3FJWmtQM3c5RF9OVzAwQW1YUmR1dTV1TVU0aHZlTGJFenBDc1ZsTlNWb2k1cGRIbEpBUzZqUExlMEU3cGFyWEVNLUtN?oc=5) |
