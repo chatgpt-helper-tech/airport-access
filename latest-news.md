@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 07:40:46（北京时间）**
+🕒 更新时间：**2025年10月20日 07:48:58（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Fact-checking Trump’s claim that each boat strike off Venezuela’s coast saves 25,000 lives - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPeHJZTHJqS3R3QVZrUFM3MEp2UUQ1MVBMRVpvdzdXVC1SMEtZMU95cVVPUkdTdWUtVzlKRk93cVBuNEkzbTRnUmFLSV83LVRoYkdobjQzanA1Ty1qUzhUWWpjdXRQYWVLaDBuQk5OX1NwYlo5TnAtOW5va3hkRUpST3pNZmQ3cnplQ1B3anl4VExickR5aFh3UDFUeVNvWnZPRnRNYlVodnZCaV9uQ3B2N3VsR3NBRHZwb3UzOG03RjBvTHPSAcgBQVVfeXFMUDdBU2tHQmZQNHJxTnJsYm85YTRMdUMtV3dRamtIbFd6UVJVYmU1RlFUWkpNcWNtdGptU2lhbTAzU2djekRVZ2gxeG5wNDRjT1A0U18tUHV5TkR6QmNfdDFZZUlsR3pJNW1ZbzB4NEhCa3hNa2Q4Z3BBcXFaRU5meE0xRmdCRGZNRVI4bTUtbTQ5aGwtd2ZsamtNalNBR3BpYXpGMVNxaDNNQVpobF8tQmJHYmd3SnN4ZXNraDlWbnpBX3p0N01McGI?oc=5) |
 | Philadelphia police find human remains in search for missing woman - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNcWVwS0tQWkdlM2Z4WGFWd3lkLTIzT3c3TEdCanQ5WDlCd3dUUVJ4Rnl2OFVQd2lHTHRYODFHenZzdDEza3l0ZHVFbkU0TTFNMHFPajlpYld4UUJnYVZZd19KTUU0NUJwTjBLYUw2aHlCeVVQUl9xX3IyQWFmOFdsVWxpMkdqTDhHQ0RMS1h3dkdwS0hOOElxQnl0T3dGcUtjdVhDZDBsWQ?oc=5) |
 | Trump struggles to crack tariff piggy bank - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQb3VudFNHU2NwaXladXpKODFseGFPM0JrczR4U0l4V1FRenB6NjhFVThwZnpGMUpQeGtnbXFvQUQxbzRjSzZtVnNLakpzdzBTOTUwZndVNlg3OGl3UDlzTzlOUWZCREFIYjQ0Wjd0UDhXTzdOZzdTMDFQVUVEaE9vb0tCbFJPZEQ5ZUlraG1lcjgwZVlFY29OdDVIUVNuQQ?oc=5) |
+| George Santos, freed by Trump, says he wants to reform American prisons - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQcDIwR0U3alNRTUlELWV5N1lFaEcyRnp1am1sVjBxbUNXaHk3cGhHNVkxbWNESWdvUEoxUGktVE80dk9Mei1RXzRqTTRBMnc4YTByMnFXRzYwb2dpQVowV1NrQlBFcWZOcW1kZEdWaUo5UldTWXNlQl82dHQzVlRWTXF0N3N5OURsdFl3OXhnS1psU2JTYXNoQ3FSUk43aUk0WWpKdnJvZw?oc=5) |
 | ‘Meanest people I have ever met’: Chat leak resurfaces internal fights among Young Republicans - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNR2R2TV9rSlpZVnFZSkxnVjZRREpoeGlKOGZDREwtcktQMHE5bUg2ZGltQVE0ZXRwY1M0TnRpNUhDR0JVN0hfVmhicm95S29xQ2RNdVgwck5lS2JLaDJxOWRVSGxFS05sSFVfcWdaWFV3MzVpTy1fMkJvSE1LeEVJWjFLWW1Kc0xnQkp5MjZQYU9jNnc?oc=5) |
-| Santos says he's not getting away with his crimes after Trump commuted his sentence - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQazZITTJHZjdLSWZFZVItbmtZVlNUcVVBVjNMbEVOWlBxZldJX1RLWTI3UkZydWNHNlVPbU1ncjk4c3ZFT1dtZ1JjbW9NbW94dkhybGdwd3RacWFsR0gzVDJwdlc2Ym9vLVdBdnNZSlJjTUxGOFpJcVdtZlhzS1JoNVdlTloxRlFGa05WeEh6dDM1Ti1LV2hPVU9R0gGfAUFVX3lxTE5HZ2x2V2RlZDMxRmtQUjVkd2FXcmtHWDQxamtFUkE4TkhMbnNNUm01TTdobXd3YlRHSGkydzIycWluanpaMW85OFdaZWFUV2hDVjFTN0xiaFZXVEFOWTRtMUVXaVNZbzBpaF95Z2ZVUU9FS2R2WUZRdS1jeUEwZzRxd00yRDNEbndrTXBTYk9TcUVtemR6MHhkVDFjMGltcw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
