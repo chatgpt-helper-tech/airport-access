@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 01:17:19（北京时间）**
+🕒 更新时间：**2025年10月20日 01:25:12（北京时间）**
 
 ---
 
@@ -24,10 +24,10 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Johnson defends calling anti-Trump protests 'hate America' rallies - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPU25HVDl2THlfMjJxMnlMX3hNTjg1VzEycnZUTVFNWWFJWXBRLV9yZHhwOTlOdlU4NkM4NUw0Ml9SenJJMVZEc29DUXJGM0dMdWd3eXEyRjdlS0JWQzBRYzRUN3RLVmg0NVVIeTdoTE5hZzJpQU9Tdmo5dEVoMU4wMVd3TmRLOHNlTnltd2llcE85MUxBZ3dYdnRvUWdMaWlEWS1RdXE0N2ZOVknSAbABQVVfeXFMT21FOHdfWnFhRkJUOEZTQXV6SlhiNXYwYUpWTG5pMVhwSU9oMUhHbTVrTFZ3a0xpR3NCZXl3Ty0zREhkaW4xZjNua1M1S3FHQjluQ1ZhUXZVOUM0dnlqb1lSUUlrOEdfY0NYMktiSWJubWlxNm1ZT2xEc2U5X0lZY2xhVjlhMTAxbVltZVpZcU4yTVFESUY1ZG45N2hRRnNPdzlDSUVSdE94WFl0RlZuMVI?oc=5) |
-| U.S. scrambles to save Gaza peace deal amid new clashes - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTFBuQk5hY1BFQVY4RWR0c3BBdWxyakFVZjdJSEF5Vy1pTThrOVVoZVJ0bmxJTVU3VE4xclNSUXNRVkJabXc2NVZha3RheUpDMDRuMXIwdnpjamtmNnd0aE9DUFd0MnBGY0RJTzI0X2xR?oc=5) |
-| Masked thieves steal ‘priceless’ jewels from the Louvre museum - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPSlpGckN5bzdPbEpwNm43RkZybGRkYW9kTmxUMi1aRS02c29wRnY1aFBsQ29rV2Q0ZEZxckdQQ2FILTViYjRxTnZ6UEJjTmd6endvR1ppcTVCejNiS2pSbXBFRmZtVWstZ18zOTB4UjNPRlJDQnJhWi01eDlKQUlWWWVhdmZiMVR4dVE?oc=5) |
+| Israel strikes Gaza as both IDF and Hamas accuse each other of breaching ceasefire - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOdGdSeG1PcHdXelNfX2tmd2IyemozSFJCNWdxNHNDRXFucGtRdkVwaFM2X1JuUXNYeFZZX1RQSXBtbkJBWldOSVZudV9rdGFaMmVZUmd4bXlzeU9tam9yVmVPQzdGa0FFTDU0U2RiR2hfRU1La0x4ZE5NajNDcXgwbFQ3LXExWHVrb2MwQlJuVjNyOUl2a0xBVDlxVlFoZTE5NEtBbTR3UjZIbDNRb0RGd29JSmFYUG1Jd2c?oc=5) |
+| Thieves steal priceless jewels from Paris' Louvre in brazen daylight heist - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPbWIxZEdjR3lIYTZvMmZJM1pvUTVENUNOUm5zVG9LQmVZdE00LWNreEdVSy1FM3VMX3pMQ21Lai1wbDIwa25WeWgzXzBneVAxdXNFLWZCU1RIMDlpeWtKMTctVElpYkNZa2FXanNoLTQ4RlVHOUJ4cFA0N1ZPTU8zb3dvY1BCa3EtNGxuUHNVaHRpdXlBbGE0UDBwZDA?oc=5) |
 | Vance Flexes Marines’ Might as Mass Protests Against Trump’s Agenda Take Place - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPS3EwWkE0cWxucjhFTktFY1lZYkhJRTR2RWhMLV9ESzJkX1E5UkRKUko0aXkxWEtkdUpYNldPamVnbS1qUExLRUpGZGxHc2k3bzh6U1kxaVJOS0FXczdnaHdIZC1fYUlLSWpxRDV1OV92M3BydmxKeXJ5bEFiZXV1WFhvR1lIcHdjTlFna3lB?oc=5) |
-| Trump calls Colombian president 'a drug leader', vows end to payments - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNdkdxaEhGVnNFY3JUbU9UVW5UYU12Y0loM09xdkF1SkdYTnoza2t2d2VRZ2dzNV9DWm00VGo1M3VoYk1GVWItZzk4WEl2TXBtMGExR0VNdmJXU1ZHa3BaOVlsLVBiOXVqcTdDUVZIV01CenQ4dDlDUWk3eDlqR1c0cHBfRVBLYThHZGk5U2c3aV9WZ2k0ZHR0TlRXRlZocXI1M1kxODZTeVdJLU0tNUE5UVpmNHg?oc=5) |
+| Trump calls Colombia's Petro an ‘illegal drug dealer’ and announces an end to US aid to the country - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQNmtlNFdaNWtXZVBCcmR2UUNyaDEtYzhFblZmMlZDYUsweGZJdjg1Qk5tQ2Zvbkc3WHZOY05fdkRnVlpjVF94V0lnUEp1QU0wOWNUSG83QlVzcTJlNktYRmVaWnNvdFZ2cGdsRGxsSWd0RVlrN05hWU1rU1liQVVtWk5RekFQMzZCVUtkNTdpVlVfTjZJSzhZcg?oc=5) |
 | ICE tried to send one immigrant to a country he never lived in. Then he lawyered up. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNd3JybkJGdGpQSDAwX3g3Wm1yUzBZZTBZVjRJMHBGMi01R1RyMFAyUjlyejVraDRlTWtUT1ZfNHB4eWJyaFQ1cmwtdVNvQnBLRGx6ZlJlMDVVSjFHc0c4b0p5aVVFbGotYXUxRGhlcDlLT0dEODFkZnV5dzlPLU4zdjk4Sk5KQQ?oc=5) |
 | ‘Meanest people I have ever met’: Chat leak resurfaces internal fights among Young Republicans - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNR2R2TV9rSlpZVnFZSkxnVjZRREpoeGlKOGZDREwtcktQMHE5bUg2ZGltQVE0ZXRwY1M0TnRpNUhDR0JVN0hfVmhicm95S29xQ2RNdVgwck5lS2JLaDJxOWRVSGxFS05sSFVfcWdaWFV3MzVpTy1fMkJvSE1LeEVJWjFLWW1Kc0xnQkp5MjZQYU9jNnc?oc=5) |
 | George Santos, freed by Trump, says he wants to reform American prisons - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQcDIwR0U3alNRTUlELWV5N1lFaEcyRnp1am1sVjBxbUNXaHk3cGhHNVkxbWNESWdvUEoxUGktVE80dk9Mei1RXzRqTTRBMnc4YTByMnFXRzYwb2dpQVowV1NrQlBFcWZOcW1kZEdWaUo5UldTWXNlQl82dHQzVlRWTXF0N3N5OURsdFl3OXhnS1psU2JTYXNoQ3FSUk43aUk0WWpKdnJvZw?oc=5) |
