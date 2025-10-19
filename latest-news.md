@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月19日 19:57:44（北京时间）**
+🕒 更新时间：**2025年10月19日 20:00:51（北京时间）**
 
 ---
 
@@ -8,10 +8,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| 'I'm 89 and I saw my homeland rebuilt before - but now I don't believe Gaza has a future' | [阅读全文](https://www.bbc.com/news/articles/c87400e3j5eo?at_medium=RSS&at_campaign=rss) |
 | Met Police to look into claims Andrew sought information on accuser | [阅读全文](https://www.bbc.com/news/articles/c3970mxwz9vo?at_medium=RSS&at_campaign=rss) |
-| Millions join anti-Trump 'No Kings' protests across US | [阅读全文](https://www.bbc.com/news/articles/c93xgyp1zv4o?at_medium=RSS&at_campaign=rss) |
 | Government vows to create 400,000 jobs in energy sector | [阅读全文](https://www.bbc.com/news/articles/c3vnr45x5qyo?at_medium=RSS&at_campaign=rss) |
+| Betfred says all its shops may close if Reeves hikes gambling tax | [阅读全文](https://www.bbc.com/news/articles/c5ydpmy7mj1o?at_medium=RSS&at_campaign=rss) |
+| How BBC secret filming exposed a £28m timeshare fraud | [阅读全文](https://www.bbc.com/news/articles/c33pelk6pmlo?at_medium=RSS&at_campaign=rss) |
 | The Celebrity Traitors cast are closer to each other than you might think | [阅读全文](https://www.bbc.com/news/articles/cj3z5yj4l60o?at_medium=RSS&at_campaign=rss) |
 | Will giving up his titles really make much difference for Andrew? | [阅读全文](https://www.bbc.com/news/articles/cd670x96600o?at_medium=RSS&at_campaign=rss) |
 | Is this island the new Bali? Some think so - but not everyone's impressed | [阅读全文](https://www.bbc.com/news/articles/c5yp87ppk7eo?at_medium=RSS&at_campaign=rss) |
