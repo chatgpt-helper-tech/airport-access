@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 04:17:23（北京时间）**
+🕒 更新时间：**2025年10月20日 04:24:11（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Johnson defends calling anti-Trump protests 'hate America' rallies - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPU25HVDl2THlfMjJxMnlMX3hNTjg1VzEycnZUTVFNWWFJWXBRLV9yZHhwOTlOdlU4NkM4NUw0Ml9SenJJMVZEc29DUXJGM0dMdWd3eXEyRjdlS0JWQzBRYzRUN3RLVmg0NVVIeTdoTE5hZzJpQU9Tdmo5dEVoMU4wMVd3TmRLOHNlTnltd2llcE85MUxBZ3dYdnRvUWdMaWlEWS1RdXE0N2ZOVknSAbABQVVfeXFMT21FOHdfWnFhRkJUOEZTQXV6SlhiNXYwYUpWTG5pMVhwSU9oMUhHbTVrTFZ3a0xpR3NCZXl3Ty0zREhkaW4xZjNua1M1S3FHQjluQ1ZhUXZVOUM0dnlqb1lSUUlrOEdfY0NYMktiSWJubWlxNm1ZT2xEc2U5X0lZY2xhVjlhMTAxbVltZVpZcU4yTVFESUY1ZG45N2hRRnNPdzlDSUVSdE94WFl0RlZuMVI?oc=5) |
-| Masked thieves steal ‘priceless’ jewels from the Louvre Museum - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPSlpGckN5bzdPbEpwNm43RkZybGRkYW9kTmxUMi1aRS02c29wRnY1aFBsQ29rV2Q0ZEZxckdQQ2FILTViYjRxTnZ6UEJjTmd6endvR1ppcTVCejNiS2pSbXBFRmZtVWstZ18zOTB4UjNPRlJDQnJhWi01eDlKQUlWWWVhdmZiMVR4dVE?oc=5) |
 | Israel launches strikes in Gaza after saying Hamas targeted its forces - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE14Y2FndGxtWW5TWXhOSVdVaVdYUTRidzlXWW9mTE5GRDhGRDE1bDg3bWd4Tk1mMXNTOURIaThKZGxONlZwd0V6ekM0UnN1Q1RVdEh3dzdxT0hEVnZpQWtTa1F5dm1BeFZRU29tSklvVk0ycEhlZHdQTmN3T3NqdE3SAYQBQVVfeXFMTVVnT1NocmFxRXFOUy1oOUx0ZlRHYXhYWEJYQlBKd3VTNkpTQkJwVHZwTjVZR01lN0s5NE9RWHEySFMtZDhYdWFxbEp2Um5SbjBDMW1TLUF1TzlObTJZOUhDcnlxN0oybm5mNGdlS0hza0lweU00M2Mxc1puR0F4TGtrSkRz?oc=5) |
+| Masked thieves steal ‘priceless’ jewels from the Louvre Museum - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPSlpGckN5bzdPbEpwNm43RkZybGRkYW9kTmxUMi1aRS02c29wRnY1aFBsQ29rV2Q0ZEZxckdQQ2FILTViYjRxTnZ6UEJjTmd6endvR1ppcTVCejNiS2pSbXBFRmZtVWstZ18zOTB4UjNPRlJDQnJhWi01eDlKQUlWWWVhdmZiMVR4dVE?oc=5) |
 | Vance Hosts Marines Demonstration Amid ‘No Kings’ Mass Protests Against Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPS3EwWkE0cWxucjhFTktFY1lZYkhJRTR2RWhMLV9ESzJkX1E5UkRKUko0aXkxWEtkdUpYNldPamVnbS1qUExLRUpGZGxHc2k3bzh6U1kxaVJOS0FXczdnaHdIZC1fYUlLSWpxRDV1OV92M3BydmxKeXJ5bEFiZXV1WFhvR1lIcHdjTlFna3lB?oc=5) |
 | US says it hit Colombian rebel ship as Trump calls Petro ‘illegal drug leader’ - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNdkdxaEhGVnNFY3JUbU9UVW5UYU12Y0loM09xdkF1SkdYTnoza2t2d2VRZ2dzNV9DWm00VGo1M3VoYk1GVWItZzk4WEl2TXBtMGExR0VNdmJXU1ZHa3BaOVlsLVBiOXVqcTdDUVZIV01CenQ4dDlDUWk3eDlqR1c0cHBfRVBLYThHZGk5U2c3aV9WZ2k0ZHR0TlRXRlZocXI1M1kxODZTeVdJLU0tNUE5UVpmNHg?oc=5) |
 | Zelenskyy urges allies not to appease Russia after failing to secure US missiles - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQWFdUYXVIQ3BabmZVc1pfLTFRNnlGUmJGX2RxU2NHbjRqOWFkTlZJVndySE96MlFwRjhjdjdsOWlsOHdaUHIzU0xRa1hNckI5QXllb2FTWENtQXNSNE9RalowMndpQUtJSnJ0QVJ6U3llclRfeEJoaHozQXUzaTQzbTQwY3NIUWMtcDFrTVZVdE9RbzFmdWxDS2M1M1U1QjBVbkRydlZuVXFwZGdKX1h1WHZ3ZVQ0WGNqMUE?oc=5) |
