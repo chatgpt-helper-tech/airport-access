@@ -79,31 +79,31 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
 
 ## ⚡ 3 秒快速通道：根据需求立即选择
 
-<table>
-<tr>
-  <td width="33%" align="center" style="padding:20px;background:linear-gradient(135deg,#667eea,#764ba2);border-radius:12px;">
-    <h3 style="color:#fff;">🆓 免费试用</h3>
-    <p style="color:#fff;"><b>百变小樱</b></p>
+<div style="display:flex;gap:20px;margin:20px 0;flex-wrap:wrap;">
+  <div style="flex:1;min-width:200px;padding:20px;background:linear-gradient(135deg,#667eea,#764ba2);border-radius:12px;text-align:center;">
+    <h3 style="color:#fff;margin-top:0;">🆓 免费试用</h3>
+    <p style="color:#fff;font-weight:bold;font-size:18px;">百变小樱</p>
     <p style="color:#fff;">3天免费体验</p>
-    <p style="color:#fff;">5年老牌+IEPL专线</p>
-    <a href="#free" style="color:#ffeb3b;font-weight:bold;">👉 立即注册</a>
-  </td>
-  <td width="33%" align="center" style="padding:20px;background:linear-gradient(90deg,#00c9ff,#92fe9d);border-radius:12px;">
-    <h3 style="color:#000;">🔥 主推荐</h3>
-    <p style="color:#000;"><b>小蜜蜂机场</b></p>
+    <p style="color:#fff;font-size:14px;">5年老牌+IEPL专线</p>
+    <a href="#free" style="display:inline-block;margin-top:10px;padding:8px 20px;background:#ffeb3b;color:#000;font-weight:bold;border-radius:6px;text-decoration:none;">👉 立即注册</a>
+  </div>
+  
+  <div style="flex:1;min-width:200px;padding:20px;background:linear-gradient(90deg,#00c9ff,#92fe9d);border-radius:12px;text-align:center;">
+    <h3 style="color:#000;margin-top:0;">🔥 主推荐</h3>
+    <p style="color:#000;font-weight:bold;font-size:18px;">小蜜蜂机场</p>
     <p style="color:#000;">年付低至8元/月</p>
-    <p style="color:#000;">全IEPL专线+8折</p>
-    <a href="#xiaomifeng" style="color:#d32f2f;font-weight:bold;">👉 查看详情</a>
-  </td>
-  <td width="33%" align="center" style="padding:20px;background:linear-gradient(90deg,#ff6a00,#ee0979);border-radius:12px;">
-    <h3 style="color:#fff;">⚡ IPLC专线</h3>
-    <p style="color:#fff;"><b>TNTCloud</b></p>
+    <p style="color:#000;font-size:14px;">全IEPL专线+8折</p>
+    <a href="#xiaomifeng" style="display:inline-block;margin-top:10px;padding:8px 20px;background:#d32f2f;color:#fff;font-weight:bold;border-radius:6px;text-decoration:none;">👉 查看详情</a>
+  </div>
+  
+  <div style="flex:1;min-width:200px;padding:20px;background:linear-gradient(90deg,#ff6a00,#ee0979);border-radius:12px;text-align:center;">
+    <h3 style="color:#fff;margin-top:0;">⚡ IPLC专线</h3>
+    <p style="color:#fff;font-weight:bold;font-size:18px;">TNTCloud</p>
     <p style="color:#fff;">海外团队运营</p>
-    <p style="color:#fff;">AI工具专用+8折</p>
-    <a href="#tnt" style="color:#ffeb3b;font-weight:bold;">👉 了解更多</a>
-  </td>
-</tr>
-</table>
+    <p style="color:#fff;font-size:14px;">AI工具专用+8折</p>
+    <a href="#tnt" style="display:inline-block;margin-top:10px;padding:8px 20px;background:#ffeb3b;color:#000;font-weight:bold;border-radius:6px;text-decoration:none;">👉 了解更多</a>
+  </div>
+</div>
 
 ---
 
@@ -1098,7 +1098,7 @@ WgetCloud机场作为一家高端全球加速服务提供商，以其稳定的�
 | 🥉 | **龙猫云** | Trojan | Hytron 中转 | ¥15起 | 全解锁 | 不限 | 📱 多设备 |
 | 🥉 | **贝贝云** | Shadowsocks | 江苏隧道 | ¥14.9起 | 部分解锁 | 5台 | 👶 新手 |
 
-**💡 颜色说明：** 🥇 主推荐（35%佣金）｜🥈 辅助推荐 ｜🥉 特定场景
+**💡 推荐等级：** 🥇 编辑首选（综合评分 9.5+）｜🥈 优质推荐（综合评分 9.0+）｜🥉 特定场景
 
 ---
 
