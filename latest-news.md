@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 03:09:47（北京时间）**
+🕒 更新时间：**2025年10月20日 03:16:44（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | What we know about the Louvre jewellery heist | [阅读全文](https://www.bbc.com/news/articles/cg7nrlkg0zxo?at_medium=RSS&at_campaign=rss) |
 | Police looking into claims Andrew asked officer to seek information on accuser | [阅读全文](https://www.bbc.com/news/articles/c3970mxwz9vo?at_medium=RSS&at_campaign=rss) |
 | Green Party leader defends wealth tax proposals | [阅读全文](https://www.bbc.com/news/articles/cly2nyz3ed2o?at_medium=RSS&at_campaign=rss) |
-| Trump ends aid to Colombia and calls country's leader a 'drug leader' | [阅读全文](https://www.bbc.com/news/articles/cn8xg1jve73o?at_medium=RSS&at_campaign=rss) |
+| Why John Bolton case is more serious than those against other Trump critics | [阅读全文](https://www.bbc.com/news/articles/cnvejvr5gn6o?at_medium=RSS&at_campaign=rss) |
+| Taliban and Pakistan agree to ceasefire after days of deadly clashes | [阅读全文](https://www.bbc.com/news/articles/cze6nzpl74do?at_medium=RSS&at_campaign=rss) |
 | The Celebrity Traitors cast are closer to each other than you might think | [阅读全文](https://www.bbc.com/news/articles/cj3z5yj4l60o?at_medium=RSS&at_campaign=rss) |
 | World of cricket's farewell to umpire Dickie Bird | [阅读全文](https://www.bbc.com/news/articles/c7816gyny22o?at_medium=RSS&at_campaign=rss) |
+| Trump ends aid to Colombia and calls country's leader a 'drug leader' | [阅读全文](https://www.bbc.com/news/articles/cn8xg1jve73o?at_medium=RSS&at_campaign=rss) |
 | Grand Theft Auto made him a legend. His latest game was a disaster | [阅读全文](https://www.bbc.com/news/articles/c4gzn34gwvwo?at_medium=RSS&at_campaign=rss) |
 | How BBC secret filming exposed a £28m timeshare fraud | [阅读全文](https://www.bbc.com/news/articles/c33pelk6pmlo?at_medium=RSS&at_campaign=rss) |
-| Is this island the new Bali? Some think so - but not everyone's impressed | [阅读全文](https://www.bbc.com/news/articles/c5yp87ppk7eo?at_medium=RSS&at_campaign=rss) |
-| Taliban and Pakistan agree to ceasefire after days of deadly clashes | [阅读全文](https://www.bbc.com/news/articles/cze6nzpl74do?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | ‘Meanest people I have ever met’: Chat leak resurfaces internal fights among Young Republicans - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNR2R2TV9rSlpZVnFZSkxnVjZRREpoeGlKOGZDREwtcktQMHE5bUg2ZGltQVE0ZXRwY1M0TnRpNUhDR0JVN0hfVmhicm95S29xQ2RNdVgwck5lS2JLaDJxOWRVSGxFS05sSFVfcWdaWFV3MzVpTy1fMkJvSE1LeEVJWjFLWW1Kc0xnQkp5MjZQYU9jNnc?oc=5) |
 | George Santos, freed by Trump, says he wants to reform American prisons - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQcDIwR0U3alNRTUlELWV5N1lFaEcyRnp1am1sVjBxbUNXaHk3cGhHNVkxbWNESWdvUEoxUGktVE80dk9Mei1RXzRqTTRBMnc4YTByMnFXRzYwb2dpQVowV1NrQlBFcWZOcW1kZEdWaUo5UldTWXNlQl82dHQzVlRWTXF0N3N5OURsdFl3OXhnS1psU2JTYXNoQ3FSUk43aUk0WWpKdnJvZw?oc=5) |
 | Trump administration strikes a seventh alleged drug boat, killing 3, Hegseth says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQRmtzU05QQ01oZ3ZSWkRoWkJIUWo3Rm5YNGxpeVhFR2IzYnlGRjV4ZTd1b2hzSE8xRkxOVTY1c21uMTZMTHpJRm1JUUlwTEM2Sm5UT1hocFVsbW1JWGFlMm5leHhxblNyTk9GRkNQaVpBanhjTWRjU2lHUEhZWm9YbktQMUFmRkRS0gGOAUFVX3lxTE5oTEtxZUx6MkVVMlJkZFIzUE44eU1KeDdMaDdtLUE5WG4xczhrQ2tGTkFjZkl1bUk3NGRoeUJaam8tS0piN3BUQ3JETHIydzg0VHJKdUNSbFE1SC13ZS1pZmJJSUFNbVhnZ21tblFIU3oyMXNHY292aEdXSnJlMjFnYkJGdDM2T3Fhb1FzQlE?oc=5) |
-| Trump struggles to crack tariff piggy bank - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQb3VudFNHU2NwaXladXpKODFseGFPM0JrczR4U0l4V1FRenB6NjhFVThwZnpGMUpQeGtnbXFvQUQxbzRjSzZtVnNLakpzdzBTOTUwZndVNlg3OGl3UDlzTzlOUWZCREFIYjQ0Wjd0UDhXTzdOZzdTMDFQVUVEaE9vb0tCbFJPZEQ5ZUlraG1lcjgwZVlFY29OdDVIUVNuQQ?oc=5) |
+| Why case against John Bolton is not like the others against Trump critics - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5ORVU4QWo1bUFFV1hkbVk1TnJDVE1GWmRRQm5LZ0NkZUZMeUYtaWJLekZPUWprdFF4Q2UyRktJMlVJN2gzanhtel93RFcwZmIwZW9yaUxzTWE0UdIBX0FVX3lxTFBLSDhZSFJMMzNVUE1IOW1DakotZURlOUhJUGN0MjJfeXZ0QnpRYUpjVmdpMWo4YmNqVFJNYkQxcEdobGdhdjhkTjlfTVFkTy00MTlROUtMZW11MXlDN1NV?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
