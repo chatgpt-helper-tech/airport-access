@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 01:01:30（北京时间）**
+🕒 更新时间：**2025年10月20日 01:09:31（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Masked thieves steal ‘priceless’ jewels from the Louvre museum - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPSlpGckN5bzdPbEpwNm43RkZybGRkYW9kTmxUMi1aRS02c29wRnY1aFBsQ29rV2Q0ZEZxckdQQ2FILTViYjRxTnZ6UEJjTmd6endvR1ppcTVCejNiS2pSbXBFRmZtVWstZ18zOTB4UjNPRlJDQnJhWi01eDlKQUlWWWVhdmZiMVR4dVE?oc=5) |
 | Vance Flexes Marines’ Might as Mass Protests Against Trump’s Agenda Take Place - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPS3EwWkE0cWxucjhFTktFY1lZYkhJRTR2RWhMLV9ESzJkX1E5UkRKUko0aXkxWEtkdUpYNldPamVnbS1qUExLRUpGZGxHc2k3bzh6U1kxaVJOS0FXczdnaHdIZC1fYUlLSWpxRDV1OV92M3BydmxKeXJ5bEFiZXV1WFhvR1lIcHdjTlFna3lB?oc=5) |
 | Trump calls Colombian president 'a drug leader', vows end to payments - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNdkdxaEhGVnNFY3JUbU9UVW5UYU12Y0loM09xdkF1SkdYTnoza2t2d2VRZ2dzNV9DWm00VGo1M3VoYk1GVWItZzk4WEl2TXBtMGExR0VNdmJXU1ZHa3BaOVlsLVBiOXVqcTdDUVZIV01CenQ4dDlDUWk3eDlqR1c0cHBfRVBLYThHZGk5U2c3aV9WZ2k0ZHR0TlRXRlZocXI1M1kxODZTeVdJLU0tNUE5UVpmNHg?oc=5) |
-| Zelenskyy urges allies not to appease Russia after failing to secure US missiles - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQWFdUYXVIQ3BabmZVc1pfLTFRNnlGUmJGX2RxU2NHbjRqOWFkTlZJVndySE96MlFwRjhjdjdsOWlsOHdaUHIzU0xRa1hNckI5QXllb2FTWENtQXNSNE9RalowMndpQUtJSnJ0QVJ6U3llclRfeEJoaHozQXUzaTQzbTQwY3NIUWMtcDFrTVZVdE9RbzFmdWxDS2M1M1U1QjBVbkRydlZuVXFwZGdKX1h1WHZ3ZVQ0WGNqMUE?oc=5) |
+| ICE tried to send one immigrant to a country he never lived in. Then he lawyered up. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNd3JybkJGdGpQSDAwX3g3Wm1yUzBZZTBZVjRJMHBGMi01R1RyMFAyUjlyejVraDRlTWtUT1ZfNHB4eWJyaFQ1cmwtdVNvQnBLRGx6ZlJlMDVVSjFHc0c4b0p5aVVFbGotYXUxRGhlcDlLT0dEODFkZnV5dzlPLU4zdjk4Sk5KQQ?oc=5) |
 | George Santos, freed by Trump, says he wants to reform American prisons - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQcDIwR0U3alNRTUlELWV5N1lFaEcyRnp1am1sVjBxbUNXaHk3cGhHNVkxbWNESWdvUEoxUGktVE80dk9Mei1RXzRqTTRBMnc4YTByMnFXRzYwb2dpQVowV1NrQlBFcWZOcW1kZEdWaUo5UldTWXNlQl82dHQzVlRWTXF0N3N5OURsdFl3OXhnS1psU2JTYXNoQ3FSUk43aUk0WWpKdnJvZw?oc=5) |
 | The Democratic Mayor Who Thinks Cities Are Handling Trump Wrong - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBUWjBfRGFTUDlYQ2J6aC1WWVM2ZnljSUktTVFWX09iS2s4VHlJbmJmZGpIVDktOFdxalBNbUljSi1JZV9QQlpaOXM1aGlxaDF5TGJWYUJqT052NGN6a0tVOXA2RThSd3dneDhjQ3dIbGx2ejg?oc=5) |
 | 'He’s micro-managing phenomenally': How Trump grabbed all the levers in Washington - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQWlBNd0N0aFpKenY4OVIzYm13QWhJa05Ucm9TMi1rNElPRG9GMlFzNHlMOVhUVnRUUk5fQUxVLThPQ3U4SnBYUngwM0xRa3hvZlNQTGRCWG83R0lLRlNHel9WS1Bhb1RXR1VOWEZHS0U1dHY5emRPcldHZlluNHZTbG9yVFNnMms?oc=5) |
