@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月19日 11:08:49（北京时间）**
+🕒 更新时间：**2025年10月19日 11:17:10（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Ex-ICE director says Trump's immigration crackdown putting agents in "terrible position" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPcXc4ZWJHMXl0ZW12Z3cxMnJDWk1ELWxPNDhMYm5lVHE1RllRcXhsT21yQ2NxNE0wejM5NVk3NG5UeWV3M3ZfQVg5RDJoNkM0MFV4MXhtd1JjQjZpdG1DYzUybllLTzVESkV6SGpzOGxXRlN0RWsxcWtpWEZmdHdhMW9Ic25mMUhWWExPSXkwWVE3QXFqWjd4UWs0ZkpSUklBTTZNSm03WldkYl9PVGRhN043di3SAboBQVVfeXFMUGl2Z2pXN3hKN3UzY3dwa1RPV3FNVEh0ajZodHZodGdUQkhZWS05Qlg4UC1iU01HbUdzYXd3QUNxM255V2xfQXRoeFJ6N25mODVHVm1YRXdoclR5R0QtVXVFSG9VYnZETy1uaUx5Y1pxbnpQdHRDc0xwWGpvZk9wRnpGdnJQbEdLcGJVaGt5WGptVUVVNjdYakNVSnkxQWZNeDlDdFJjUkh2aS1aVWN5ekdKNnpHYlNrRUFn?oc=5) |
 | The White House has faced a flurry of rejections after inviting 9 universities to be the first signatories of its higher-ed compact - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNbjVfVkw4Wm5DaVplY21ob09MNjRJRnYzNUJWTHlqbDMwWkF3RkZQTDNHRUE1Q1BmSU1ZZVItOFdITG1rX19TVXY2c3FwNFRIei0wUWVsTGhvX2tZOUhFYTZvVDlhUGxSb2J6WUkzZ25uQ1h5WlhER3h1MU14Zk9SdGNNdTdPZWRPUmp6Z0N5MUpWTkhMTmZjLWczMl9mYklZS2dWQkM3QQ?oc=5) |
 | Israel receives two bodies that Hamas says are Gaza hostages - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE0wX3dvRGxyWnF1M215Y2ZnLUsyME1ScDRQcWM0WkRHYk9GVHZDb1plcTVZdzU5cERyaHBzV3JHbmF5emdLR2pDUEo5akJfOEdoY1BjSUVSR2hzZ9IBX0FVX3lxTE81U1FNXzBlelpTY3hjc2RsSmRsc3FJWmtQM3c5RF9OVzAwQW1YUmR1dTV1TVU0aHZlTGJFenBDc1ZsTlNWb2k1cGRIbEpBUzZqUExlMEU3cGFyWEVNLUtN?oc=5) |
-| For Prince Andrew, a Steady Fall From Grace Ends in a Hard Landing - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNY2xIdnNpM1premxDWXhsVUtPNUpBSDR0NVNEdG14eTFRVmFwUXlGSXZvNlZYbmtjXzdvOUlnb2Fxck1mbUMyeXBVQjZmcXdmRVZydHU1bUZjb2NPOTdteUxRU19UeVBmODdZNFFNOEp3RGJuaG9IYzlnLXBoMFpWcXRNNzY4RjhBV0E?oc=5) |
+| Border crossing to stay closed, Israel says, as US alleges Hamas ceasefire violation - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxOVXo0Qjg3LWhuZGdNLWNRRmhEWUtuX2paWmxsYXZjNnJlVEFPbU5ZX25vcDJjeExmQXdyWndGSDZ0TWl4ZW5UVmZoLXBwckpiWnR0clVBc2xFMnJXdzd1ZFZHMXhnbHBwblp5ZlZQNW5MMmNYcVZ6aUQzZ1BkeHFORmJ2QnlUbHlNdGNmWUNLVjBLYVVUQnh6V3BCX1liX3JDUGNIY1loQ2djSjktOTVFRkRzYmdYb3NMMktjSm1xRUk3S3lD?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
