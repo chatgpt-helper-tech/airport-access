@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月19日 15:01:06（北京时间）**
+🕒 更新时间：**2025年10月19日 15:08:15（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Protesters decry Trump administration policies in No Kings rallies across the U.S. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPTHBaaFJudGhkc2ptUVJpVEJHQWF3bDNrb3JDVjBEMUhNWGpZbkh3c0VEcFFZUzJRT0g2Vnp6VFkzN0ktVFR3b3RyM1I1Sm5vYVRrVUFIeHl5QzdnNTlRZ2taYWJpb0tLbkVsSmhMYXZkM29yVXVaWUwtdjBOSzdyTWlB?oc=5) |
+| Live No Kings protest updates: Massive crowds march, rally throughout Bay Area - ABC7 San Francisco | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNaG1nbDU4dDJPUFVTRVhPZ21JVDFkOTFvUDVMX2VMSUN3b2x5YzFEdXZ1VTZsZ3cwcHBpc1NRS01DbzlmS2tHSV9hcXJ2SzBXeklNNlkzZHZKWFpDMEFhblhzVGJsbnJGZ3FmYjZOQ2Z1QWU1TWdQMGhueHRSM20ycThDa2NRZkI2eEc3aUF5enRGVmFfeVA1elg0cGs3bXBRakpSMVRrYTRGWTNSTjJV?oc=5) |
 | Vance Flexes the Marines’ Might as Thousands Protest Trump’s Agenda - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPS3EwWkE0cWxucjhFTktFY1lZYkhJRTR2RWhMLV9ESzJkX1E5UkRKUko0aXkxWEtkdUpYNldPamVnbS1qUExLRUpGZGxHc2k3bzh6U1kxaVJOS0FXczdnaHdIZC1fYUlLSWpxRDV1OV92M3BydmxKeXJ5bEFiZXV1WFhvR1lIcHdjTlFna3lB?oc=5) |
 | Trump releases former Rep. George Santos from prison sentence - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE56ekNHQVBXLXVnWEZCUzhrMXJtR0ZuSTZBbmtRbUw0UFB1bkJ3V2dhUWtTQ0QwUDlLaTN2eFAxdkdMNmgwNmQzeUxReWQ3VWRWY3gzcEFVMm8wdVZSVlRpeEhFeFVvZEVUdVJDUTVpSU5mWUw0MXRnWjQ2NA?oc=5) |
 | U.S. repatriating survivors of alleged drug boat strike to Colombia, Ecuador - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNa2FvLWp1R1VSeVBXdG1HbkdMR0t6a21xdzZiNWJIMXI1UVNtNWtzckJTaENybi04eWNlb0FBRVY4ZldYODR2bWJYNlc0T1kyNk1KSVJOT3E4N25WbGdGVElISnB4SGJBQWxDZHlTbzMzOTRfNmhsZ2FiUVIySTZJT3lFVmZILUpoTFY2OWxmenNQNWNNTVMwbUpuZXpLamJvRF9jdE4tRmlBRkZVVjM4?oc=5) |
