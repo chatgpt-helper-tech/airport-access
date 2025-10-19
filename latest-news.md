@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月19日 20:24:12（北京时间）**
+🕒 更新时间：**2025年10月19日 20:32:22（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | ICE tried to send one immigrant to a country he never lived. Then he lawyered up. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNd3JybkJGdGpQSDAwX3g3Wm1yUzBZZTBZVjRJMHBGMi01R1RyMFAyUjlyejVraDRlTWtUT1ZfNHB4eWJyaFQ1cmwtdVNvQnBLRGx6ZlJlMDVVSjFHc0c4b0p5aVVFbGotYXUxRGhlcDlLT0dEODFkZnV5dzlPLU4zdjk4Sk5KQQ?oc=5) |
 | Pakistan and Afghanistan agree to new ceasefire after more than a week of deadly clashes - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPS0l6U1RlRDJvYnM1UERydnZMbFR3TTBUNmxLQnF2aEdFek1PMHRFRHFpTlMwdVVKMjFUbEQ5d0k2WkdUSXBZR1p2c1A3X05oZU9hSEpiVEVER29mX2VXcWRhZTh2RGJwel9VQXo0QXp2LV8waFBlak0yYjJRRTFnbA?oc=5) |
 | Family of murdered D.C. photographer wonders if his convicted killer acted alone - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNd3VUTmFDdGlWLTZvWDBES3pyXzBVMFFjaXlIeC16YnZCRTFyQjZwU0N0bWxBRVFzWHgyV1M5XzEzZGgzVGJmNFJ1TlFjM1ZvRW42Mi1KLU1XVGpxemxGZVVVNnRIZnEyb0k0M0ZXOHdFNEFBMU5BRzRId3kxTjJKYlVHTTNhZjlmLU9qcDNZWUp0LUNvb2h6N2w2Rjdrcms2ZENlVlFNVEU3NU5ZcjBlMUE1aE9MMzTSAbwBQVVfeXFMUFdoQ3B1Nngwa0d2eFlBZHVnSll3MzJyZm1SamxDcG5faDROWWlCbGw0ci1HeDgta09CeENrSzZQQjI2NnVFSXFaUk84aGFqMWlnNE9WZUJ1ak1kN1h0LWtidmc2a25IZmthSVRwcmlETVg2bjBXNk9HRjZJX0JNek83UHA1Q045bWVaYXZRZS1JYkxVdGMyRzBiRThtcmNjZUZpa3hMMjFyRTUzQjcxTmd6SkRqOE1DRnJqWEI?oc=5) |
+| How Trump 2.0 blew up lobbying - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQWlBNd0N0aFpKenY4OVIzYm13QWhJa05Ucm9TMi1rNElPRG9GMlFzNHlMOVhUVnRUUk5fQUxVLThPQ3U4SnBYUngwM0xRa3hvZlNQTGRCWG83R0lLRlNHel9WS1Bhb1RXR1VOWEZHS0U1dHY5emRPcldHZlluNHZTbG9yVFNnMms?oc=5) |
 | Human remains believed to be missing Philadelphia beauty queen Kada Scott found after ‘very specific’ anonymous tip - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMi4wFBVV95cUxNNnNaSkVhMDFZZWFSek96NDhURXBwX2JDTXZLNjhXVzNEV05ObkdmeFJiU2J6Q2FDa1VPNzA5MU1vdTRERXQ1TXUtMVpfUFJPaW0xUER2SVRHNFMzV0VmQm84eEJObGdqN3d6MlpiUTQ0NWFvR3VxNmFJREJrdkktSkZpWXpOQV9ZZGFmYW9wZERfMk9UVjUySU5FTkRqVnlSTjJpNGpaMG9WX0l0ZTdfSE1zSFRndlpWTngtdzJFbE96MTVuMHJ5cUI5WXo4dXlaRzRSamUzazFUN2dQLVNHUlZVYw?oc=5) |
 | After Zelenskyy meeting, Trump calls on Ukraine and Russia to 'stop where they are' and end the war - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNaEZKNnFKR0lWa0ZNV0I4N0lYMkZkZG9yQUFYRGcySmw3VjJQOE0xZzByWnl0aDdrN1VoWWptWS1MRnV3UUlmSk9qdEtUOVozUFJKU1Z6cUdIYWdXUFlxNElIUzlvR1ZYTjFNWnJJRURleXYxUkN5RWltMUNNWVJJNGNxWVNQZXcwMjNVZnZHdm0?oc=5) |
-| Trump Administration Buys 2 New Private Jets for Kristi Noem To Use: What To Know - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxQQk5vZGd4MWFQLUlMdEFBMVZWNXFfWWlTNHlWVnRWbkIyVmQ4RUx5eHQzdkkydi1NWjh3SkZfUWxwZldqZjd4bk1xWUxwYmNSRmE3bFFKSVdtRHhWNUlENlRNQjlOeWtYLU1jeVlpTzVlQm5DcUdZQVN0YzNrbVc2cHRmOHNTc3ZmLVRmQnkzRlBYcHZoMWFRT05GQ0JtMDNIc2JDbC1wNk1SR2xMcHNKT1h3YVhGTDMxSmlMMEYtYmlHUmR5R2c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
