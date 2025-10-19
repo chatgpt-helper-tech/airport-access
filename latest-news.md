@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月19日 23:41:04（北京时间）**
+🕒 更新时间：**2025年10月19日 23:49:57（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | Ed Miliband hints at cut to VAT on energy bills | [阅读全文](https://www.bbc.com/news/articles/cdjrg4vylzko?at_medium=RSS&at_campaign=rss) |
 | Why John Bolton case is more serious than those against other Trump critics | [阅读全文](https://www.bbc.com/news/articles/cnvejvr5gn6o?at_medium=RSS&at_campaign=rss) |
 | Grand Theft Auto made him a legend. His latest game was a disaster | [阅读全文](https://www.bbc.com/news/articles/c4gzn34gwvwo?at_medium=RSS&at_campaign=rss) |
-| Is this island the new Bali? Some think so - but not everyone's impressed | [阅读全文](https://www.bbc.com/news/articles/c5yp87ppk7eo?at_medium=RSS&at_campaign=rss) |
+| What we know about the Louvre jewellery heist | [阅读全文](https://www.bbc.com/news/articles/cg7nrlkg0zxo?at_medium=RSS&at_campaign=rss) |
 | Will giving up his titles really make much difference for Andrew? | [阅读全文](https://www.bbc.com/news/articles/cd670x96600o?at_medium=RSS&at_campaign=rss) |
 | The Celebrity Traitors cast are closer to each other than you might think | [阅读全文](https://www.bbc.com/news/articles/cj3z5yj4l60o?at_medium=RSS&at_campaign=rss) |
 | Mystery lingers weeks after missing schoolgirl found dead in pop star D4vd's Tesla | [阅读全文](https://www.bbc.com/news/articles/c205g10g0nvo?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | 'He’s micro-managing phenomenally': How Trump grabbed all the levers in Washington - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQWlBNd0N0aFpKenY4OVIzYm13QWhJa05Ucm9TMi1rNElPRG9GMlFzNHlMOVhUVnRUUk5fQUxVLThPQ3U4SnBYUngwM0xRa3hvZlNQTGRCWG83R0lLRlNHel9WS1Bhb1RXR1VOWEZHS0U1dHY5emRPcldHZlluNHZTbG9yVFNnMms?oc=5) |
 | Colombia accuses US of 'murder' after strike on boat - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE92N1ZYOXQ0ejM3V0JhMWxiTjRzYV8zQ3pCM3UzUkhIdF90MjZwUlhvWk5UMkhiVHR0SUx2TkloN1V6VmE3S2JMa09BS0JzbFZkVXBpd2FJMHdHZ9IBX0FVX3lxTE1zd2s5RzZaZHU0OGdfZExpTWNiVVJOYTVVaDV0VFd1ZEpTbEszaUZuYlNXMkxaZ3F1QllRNURjTTFJVXA5ZnE3NkdoN2hLVmZVR2U1SkpkdFFQdVpEX3pZ?oc=5) |
 | Rutgers student critically injured as fraternity probes possible hazing - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQQXFKQ2pYTElVd3RaWDc4R284QVFFNnhlZGZlTGRjUG8tY2gzby1CSXV1cE5CZ3lrR1pvQjV6Mm80RTZhYl9ZSTBUeVRpTlNWd0ZndU9NYV9LMUUtNHdhRHhFQTV4X2Q3bGRjZ0MxUDFGQW05eHJMM1psUWRxQ0lwaldOVmZDeWotcm9mQ25YLTRKV3NmSzJZVTY4X1lMdFhOOGlFMWNnYU5OUFZBSlp3OEVWOHZ2MjjSAVZBVV95cUxPcXNkazlqNlV2bXVHb3NJQUZJUjVaTW5DRXBKN1Z1UXVlZ3NWX25XTmlpcnRzUDJQd1daNjM1S2dVdDhIOE5uTF9WLXZDQTZyam5iaW93UQ?oc=5) |
-| Human remains believed to be missing Philadelphia beauty queen Kada Scott found after ‘very specific’ anonymous tip - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMi4wFBVV95cUxNNnNaSkVhMDFZZWFSek96NDhURXBwX2JDTXZLNjhXVzNEV05ObkdmeFJiU2J6Q2FDa1VPNzA5MU1vdTRERXQ1TXUtMVpfUFJPaW0xUER2SVRHNFMzV0VmQm84eEJObGdqN3d6MlpiUTQ0NWFvR3VxNmFJREJrdkktSkZpWXpOQV9ZZGFmYW9wZERfMk9UVjUySU5FTkRqVnlSTjJpNGpaMG9WX0l0ZTdfSE1zSFRndlpWTngtdzJFbE96MTVuMHJ5cUI5WXo4dXlaRzRSamUzazFUN2dQLVNHUlZVYw?oc=5) |
+| After Zelenskyy meeting, Trump calls on Ukraine and Russia to 'stop where they are' and end the war - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNaEZKNnFKR0lWa0ZNV0I4N0lYMkZkZG9yQUFYRGcySmw3VjJQOE0xZzByWnl0aDdrN1VoWWptWS1MRnV3UUlmSk9qdEtUOVozUFJKU1Z6cUdIYWdXUFlxNElIUzlvR1ZYTjFNWnJJRURleXYxUkN5RWltMUNNWVJJNGNxWVNQZXcwMjNVZnZHdm0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
