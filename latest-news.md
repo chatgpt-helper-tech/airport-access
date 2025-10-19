@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 07:48:58（北京时间）**
+🕒 更新时间：**2025年10月20日 07:56:54（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | Everything we know about the Louvre jewellery heist | [阅读全文](https://www.bbc.com/news/articles/cg7nrlkg0zxo?at_medium=RSS&at_campaign=rss) |
 | Green Party leader defends wealth tax proposals | [阅读全文](https://www.bbc.com/news/articles/cly2nyz3ed2o?at_medium=RSS&at_campaign=rss) |
 | New V-level courses to be brought in for students after GCSEs | [阅读全文](https://www.bbc.com/news/articles/clyzjp5n5kro?at_medium=RSS&at_campaign=rss) |
-| Why John Bolton case is more serious than those against other Trump critics | [阅读全文](https://www.bbc.com/news/articles/cnvejvr5gn6o?at_medium=RSS&at_campaign=rss) |
+| From Hollywood to horticulture: Cate Blanchett on a mission to save seeds | [阅读全文](https://www.bbc.com/news/articles/cwy7ekl4yl8o?at_medium=RSS&at_campaign=rss) |
 | After 'No Kings' protests, where does Democratic resistance go next? | [阅读全文](https://www.bbc.com/news/articles/cj3zemk2j4ro?at_medium=RSS&at_campaign=rss) |
 | Cargo plane skids off Hong Kong runway into the sea | [阅读全文](https://www.bbc.com/news/articles/c5y0eeqz732o?at_medium=RSS&at_campaign=rss) |
 | Tel Aviv derby called off by police after 'violent riots' | [阅读全文](https://www.bbc.com/sport/football/articles/cgr4n07509wo?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | Philadelphia police find human remains in search for missing woman - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNcWVwS0tQWkdlM2Z4WGFWd3lkLTIzT3c3TEdCanQ5WDlCd3dUUVJ4Rnl2OFVQd2lHTHRYODFHenZzdDEza3l0ZHVFbkU0TTFNMHFPajlpYld4UUJnYVZZd19KTUU0NUJwTjBLYUw2aHlCeVVQUl9xX3IyQWFmOFdsVWxpMkdqTDhHQ0RMS1h3dkdwS0hOOElxQnl0T3dGcUtjdVhDZDBsWQ?oc=5) |
 | Trump struggles to crack tariff piggy bank - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQb3VudFNHU2NwaXladXpKODFseGFPM0JrczR4U0l4V1FRenB6NjhFVThwZnpGMUpQeGtnbXFvQUQxbzRjSzZtVnNLakpzdzBTOTUwZndVNlg3OGl3UDlzTzlOUWZCREFIYjQ0Wjd0UDhXTzdOZzdTMDFQVUVEaE9vb0tCbFJPZEQ5ZUlraG1lcjgwZVlFY29OdDVIUVNuQQ?oc=5) |
 | George Santos, freed by Trump, says he wants to reform American prisons - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQcDIwR0U3alNRTUlELWV5N1lFaEcyRnp1am1sVjBxbUNXaHk3cGhHNVkxbWNESWdvUEoxUGktVE80dk9Mei1RXzRqTTRBMnc4YTByMnFXRzYwb2dpQVowV1NrQlBFcWZOcW1kZEdWaUo5UldTWXNlQl82dHQzVlRWTXF0N3N5OURsdFl3OXhnS1psU2JTYXNoQ3FSUk43aUk0WWpKdnJvZw?oc=5) |
-| ‘Meanest people I have ever met’: Chat leak resurfaces internal fights among Young Republicans - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNR2R2TV9rSlpZVnFZSkxnVjZRREpoeGlKOGZDREwtcktQMHE5bUg2ZGltQVE0ZXRwY1M0TnRpNUhDR0JVN0hfVmhicm95S29xQ2RNdVgwck5lS2JLaDJxOWRVSGxFS05sSFVfcWdaWFV3MzVpTy1fMkJvSE1LeEVJWjFLWW1Kc0xnQkp5MjZQYU9jNnc?oc=5) |
+| US driver kills one and injures at least 14 in car-ramming attack at child’s party - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQd20yQTQtOUc1TTBBMzh1T2N4YUpZZERFVHJZRDZsd1FkRWFqNmxEd19nNjZDaERQV0plMS1yYVM0N3dPMjc1UTNoRnBFbmtBeG9nWEFCQVNfVjlEYzhZbTdobjJEdDhtVE5vSmdfb3lLX1JBR0RkYTZTY2JxSWJmamtoazM5MGJHRGZr?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
