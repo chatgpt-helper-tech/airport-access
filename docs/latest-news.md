@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月19日 21:09:20（北京时间）**
+🕒 更新时间：**2025年10月19日 21:17:38（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| ‘No Kings’ Protests Against Trump Draws Thousands Across the U.S. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE0tcWFDUzlEOW5KMjNGX0dNV2xGOFh0X0REXzB0TEJoVUhtREF3WlgtSElLdUNFeVFUcjdLdVlQWkNOZFZSZXRHb0ZVd1FxQ2FIdE12dVEyMEFPVUtfcExTWXZSbWtrY1IybzRtQUluRzUtcVdE?oc=5) |
+| Live No Kings protest updates: Massive crowds march, rally throughout Bay Area - ABC7 San Francisco | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNaG1nbDU4dDJPUFVTRVhPZ21JVDFkOTFvUDVMX2VMSUN3b2x5YzFEdXZ1VTZsZ3cwcHBpc1NRS01DbzlmS2tHSV9hcXJ2SzBXeklNNlkzZHZKWFpDMEFhblhzVGJsbnJGZ3FmYjZOQ2Z1QWU1TWdQMGhueHRSM20ycThDa2NRZkI2eEc3aUF5enRGVmFfeVA1elg0cGs3bXBRakpSMVRrYTRGWTNSTjJV?oc=5) |
 | Israel launches air strikes in Gaza accusing Hamas of 'bold violation of ceasefire' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1adHgwVDJ2QU8zSWlVQkZzYnJnWk13YTRqNi1aempyTDR6WmJrdl9hRzB5X25mQzZVTnFad3EwTVdYNVM0QVFLZThaX1cxWWFZZDREdFhjNEVtd9IBX0FVX3lxTE5EXzA5RW0weTI1aVBmTGlJdDNjdWc1RDRwREVjQmw0WXE2dlVTdERsVXdUMkVMZE1xSFVjeVpGa0h5T2t3N2lGRjZ1ZV84T1pXNk1nSldfMjVmNjFwZUEw?oc=5) |
-| Newsom clashes with White House over Marine Corps anniversary celebration highway closure - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPZ3FuVFZxSTZ5QW83ekE4ZzZ0TV9rUkdQMXd3NHpReDBtdVQ3bTBUTklfS2ZRdzJBNnlKTXBvNWp5Sml3alZwTGxmdXBKV2pON2taVFlyQjc2Z1plRHFHRm9PTjlMWmtyVDd3dE1NUDAzYTZTM3pQRWdPTzRCbk1ub3lUQTNyV2VpaWJMaEdMbWNESGwwc0Nwcy1Pd212ZElJbmw5d2QxM2diN2tGQ0NrV1ln?oc=5) |
-| Colombia accuses US of violating sovereignty in strike - DW | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNR3pYaXdqT1BldWFDNkNuQU80a3M0V2F4eHdkVlRIaFlIMy00Vko2QjdSdnJRVWxzZ21vWjJKZkswZkJCLXI1R0FBVERpeHNkcnJ0cGZqYnIxV19wZlNTTHo5Z1BfNFJqZ2NHME83MU1GV3BNdEozN2czU2RTVk9uLXlwRTBOSGJ3TGFzd253amrSAZABQVVfeXFMTWxpUkFjX2NYUTI3T3J6STM1NWNLc2hJT29EN3pKQTZpZlZHamVQajRuYTJHdnhzRzdRRE9zTTlHLWRhT1FxZG1aOGxZdWlmZkpjc1EzbXo4c0RHUUh5WjJmRWwzWFpVa3hZQlJLSnZ3S04yb3U1VHI5dlV2RmJVV2RtNGpHWUh2aHc3WXdzZllh?oc=5) |
+| Vance Flexes the Marines’ Might as Thousands Protest Trump’s Agenda - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPS3EwWkE0cWxucjhFTktFY1lZYkhJRTR2RWhMLV9ESzJkX1E5UkRKUko0aXkxWEtkdUpYNldPamVnbS1qUExLRUpGZGxHc2k3bzh6U1kxaVJOS0FXczdnaHdIZC1fYUlLSWpxRDV1OV92M3BydmxKeXJ5bEFiZXV1WFhvR1lIcHdjTlFna3lB?oc=5) |
+| Trump says 2 survivors of US strike on submarine being sent to Ecuador, Colombia in move that avoids legal fight - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQQXFaVDV5Z2stR21wVnJJMm9wVG1LWVJSbDhUX3lscGJ6eENDaE0xekJjNGZ3MUhjdXpOUWFzbkU1RzhDV25oaFBOQmw2NGJXMk1VbjYzMjZaYUlUSkNkMHB4endaeEE3ekRoNXZScXhBSkdxckhJaGhweTJGZkhZdFRvS3RuSy03cDl0SnUxUkFmN0tYWVpqUGlaZkVMR3g2R19iY09mZFVkQmM3aGow0gG0AUFVX3lxTE56Qzg3QUlyU3BVZk1OR19RRElFanpPUVI1cUlhNUUzdE00d1RKMjZyMGkyb09mZXR2YUxCQ3ZpekVNc1d2eGJmZWZPN1MwOXZtZkcydTMzVlZMS2FWdE84MUNSb2F2TzBpaWxaUXlRcXFRQmVCanJoakdmVzdYdEQ5ZlFXYzN4YXJBQUs1RGNMZVhOWUk1SExsS3BvUTJHRWJfU0pvWkRFckVvWHNNOWNXQ3lUZA?oc=5) |
 | ICE tried to send one immigrant to a country he never lived in. Then he lawyered up. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNd3JybkJGdGpQSDAwX3g3Wm1yUzBZZTBZVjRJMHBGMi01R1RyMFAyUjlyejVraDRlTWtUT1ZfNHB4eWJyaFQ1cmwtdVNvQnBLRGx6ZlJlMDVVSjFHc0c4b0p5aVVFbGotYXUxRGhlcDlLT0dEODFkZnV5dzlPLU4zdjk4Sk5KQQ?oc=5) |
 | Pakistan and Afghanistan agree to new ceasefire after more than a week of deadly clashes - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPS0l6U1RlRDJvYnM1UERydnZMbFR3TTBUNmxLQnF2aEdFek1PMHRFRHFpTlMwdVVKMjFUbEQ5d0k2WkdUSXBZR1p2c1A3X05oZU9hSEpiVEVER29mX2VXcWRhZTh2RGJwel9VQXo0QXp2LV8waFBlak0yYjJRRTFnbA?oc=5) |
 | 'He’s micro-managing phenomenally': How Trump grabbed all the levers in Washington - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQWlBNd0N0aFpKenY4OVIzYm13QWhJa05Ucm9TMi1rNElPRG9GMlFzNHlMOVhUVnRUUk5fQUxVLThPQ3U4SnBYUngwM0xRa3hvZlNQTGRCWG83R0lLRlNHel9WS1Bhb1RXR1VOWEZHS0U1dHY5emRPcldHZlluNHZTbG9yVFNnMms?oc=5) |
