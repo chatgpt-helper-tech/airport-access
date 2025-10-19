@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月19日 23:16:41（北京时间）**
+🕒 更新时间：**2025年10月19日 23:24:38（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trump ends Colombia aid over drug boom - DW | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPNXpkdDAyYVVzVlRnWVlvd2tGVHRLNG5tdDR1SVRMaFJzY0tuS0ZiNUtNcHhndTdrc3YzdzMtazYtbEU1bDVqQWNGQ3lFSnYweGtPUTI3YzQ5aUx5akdTb3hqREVoN21fTFpEODkzZnJaWXVEa3JIdldDTVFsNE84eVJ1aEo2NEJvMmFvS3VOcEgtY21uUTdILVRnSjJ3TUMtZUdZRnZMMHIzdHYyeC1WTlZiTzRJRXpxMnU40gG7AUFVX3lxTE5hY3pDUmg1M0hVaUY1ZGFUZndFajB6SG1XeTB4WnFGTWF0TnZnQmlzN2JWMWZNZXVDekU1SEJPWkRqX0lMbGRMbDZRVktzSDJPYlBFWHFMQzVpUU1VdHdVYzh4Tnk1TE9nNElxdWFUMVh4ZG1NOTNDMmYzd2g0clVVWHhPbUFQOGVobUFjNGYxVDlRMDVnWmtTODlLc3pjNVlpSUtDY3Radkx5WUl5OWlOa0t3MUJiQTRxSUk?oc=5) |
 | ICE tried to send one immigrant to a country he never lived in. Then he lawyered up. - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNd3JybkJGdGpQSDAwX3g3Wm1yUzBZZTBZVjRJMHBGMi01R1RyMFAyUjlyejVraDRlTWtUT1ZfNHB4eWJyaFQ1cmwtdVNvQnBLRGx6ZlJlMDVVSjFHc0c4b0p5aVVFbGotYXUxRGhlcDlLT0dEODFkZnV5dzlPLU4zdjk4Sk5KQQ?oc=5) |
 | 'He’s micro-managing phenomenally': How Trump grabbed all the levers in Washington - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQWlBNd0N0aFpKenY4OVIzYm13QWhJa05Ucm9TMi1rNElPRG9GMlFzNHlMOVhUVnRUUk5fQUxVLThPQ3U4SnBYUngwM0xRa3hvZlNQTGRCWG83R0lLRlNHel9WS1Bhb1RXR1VOWEZHS0U1dHY5emRPcldHZlluNHZTbG9yVFNnMms?oc=5) |
-| Colombia accuses US of 'murder' after strike on boat - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE92N1ZYOXQ0ejM3V0JhMWxiTjRzYV8zQ3pCM3UzUkhIdF90MjZwUlhvWk5UMkhiVHR0SUx2TkloN1V6VmE3S2JMa09BS0JzbFZkVXBpd2FJMHdHZ9IBX0FVX3lxTE1zd2s5RzZaZHU0OGdfZExpTWNiVVJOYTVVaDV0VFd1ZEpTbEszaUZuYlNXMkxaZ3F1QllRNURjTTFJVXA5ZnE3NkdoN2hLVmZVR2U1SkpkdFFQdVpEX3pZ?oc=5) |
-| Why case against John Bolton is not like the others against Trump critics - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5ORVU4QWo1bUFFV1hkbVk1TnJDVE1GWmRRQm5LZ0NkZUZMeUYtaWJLekZPUWprdFF4Q2UyRktJMlVJN2gzanhtel93RFcwZmIwZW9yaUxzTWE0UdIBX0FVX3lxTFBLSDhZSFJMMzNVUE1IOW1DakotZURlOUhJUGN0MjJfeXZ0QnpRYUpjVmdpMWo4YmNqVFJNYkQxcEdobGdhdjhkTjlfTVFkTy00MTlROUtMZW11MXlDN1NV?oc=5) |
 | Rutgers student critically injured as fraternity probes possible hazing - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQQXFKQ2pYTElVd3RaWDc4R284QVFFNnhlZGZlTGRjUG8tY2gzby1CSXV1cE5CZ3lrR1pvQjV6Mm80RTZhYl9ZSTBUeVRpTlNWd0ZndU9NYV9LMUUtNHdhRHhFQTV4X2Q3bGRjZ0MxUDFGQW05eHJMM1psUWRxQ0lwaldOVmZDeWotcm9mQ25YLTRKV3NmSzJZVTY4X1lMdFhOOGlFMWNnYU5OUFZBSlp3OEVWOHZ2MjjSAVZBVV95cUxPcXNkazlqNlV2bXVHb3NJQUZJUjVaTW5DRXBKN1Z1UXVlZ3NWX25XTmlpcnRzUDJQd1daNjM1S2dVdDhIOE5uTF9WLXZDQTZyam5iaW93UQ?oc=5) |
+| US Warns of ‘Imminent’ Attack by Hamas Against Palestinians - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOWmZpdy1hR0FmcFN5ZTh6aUJGY1FzaEpsU3RBSDA3X0NjSHZkeFZFUlhwODB3MlFPR2dfeDRmd2JtVS1lQmFNdjM3NmJ6OFpWRHp1SmhnYmpTVVROa2VFc0V2NXpTWGpWUTZuQld6VFp1cEtzeGdVNXZBYnJ1eEFGa3ItMGdtV3hSMUhBaUE1a1VHZEk3TWhCb0J1R3kydmlRa1ZKTnZpbnQ2SC1r?oc=5) |
+| After Zelenskyy meeting, Trump calls on Ukraine and Russia to 'stop where they are' and end the war - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNaEZKNnFKR0lWa0ZNV0I4N0lYMkZkZG9yQUFYRGcySmw3VjJQOE0xZzByWnl0aDdrN1VoWWptWS1MRnV3UUlmSk9qdEtUOVozUFJKU1Z6cUdIYWdXUFlxNElIUzlvR1ZYTjFNWnJJRURleXYxUkN5RWltMUNNWVJJNGNxWVNQZXcwMjNVZnZHdm0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
