@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 11:24:12（北京时间）**
+🕒 更新时间：**2025年10月20日 11:33:37（北京时间）**
 
 ---
 
@@ -27,7 +27,7 @@
 | Renewed fighting tests Gaza ceasefire and Israel briefly halts aid - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOdVBjSzN1bk1nYmEzWERpd1hkd2ktTlM0MHJvR0NlZHhlTDloQ004MTA2bnFEaGxEM3ZVQ0xlbjhLN2pKR1lTZENxUUplWVJQTDRqWWhySnVaaHV4RnoxV1JHdGdxaDExbm1BcjVfUjdqWW94cmhmODBxRHVtUU9vTjg0TEtmV0NoclI5M1AyYUVHR3plZzFyMkkyWE9tWERJUUIyaTR4WmE?oc=5) |
 | Shrapnel fell onto CHP vehicle during U.S. military live-fire exercise over I-5, agency says - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxQRkU4bm12MUtmYmhKcVVzU0VWYzlrMThMbW92QW0taUxLb2lfOGNwUFhQVGZ2eEZMbDJLdXh5SE9nRm16ZnNUZ0RyUEs0YzBna3VPSVlKaG00UlZiTjR5R3lNcUViNGNjZmlrMFIwanZtbFh6aGx6MmJyVWR4eU96NGNkeV81a1l5M3JzOUwyWHdzUWJ4SnFvSElfMWJiMU5EbjcxVUYwb0o2eEVva3lKYjFpNUNRNVNKU3pJTw?oc=5) |
 | Trump says will hike tariffs on Colombia as drug trade feud escalates - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNdkdxaEhGVnNFY3JUbU9UVW5UYU12Y0loM09xdkF1SkdYTnoza2t2d2VRZ2dzNV9DWm00VGo1M3VoYk1GVWItZzk4WEl2TXBtMGExR0VNdmJXU1ZHa3BaOVlsLVBiOXVqcTdDUVZIV01CenQ4dDlDUWk3eDlqR1c0cHBfRVBLYThHZGk5U2c3aV9WZ2k0ZHR0TlRXRlZocXI1M1kxODZTeVdJLU0tNUE5UVpmNHg?oc=5) |
-| Emirates cargo plane skids off runway into sea at Hong Kong International Airport - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFA4WnZFcjFEWDhqUWZHa2xpQ3lwdXNQZklfemNPaE1TVTYzTmNJSUVkSHFqRlNFMElRQ0I1ejdCSl9kZVBZT3RNc0EyRWtYWXU3SHlaY2ptOHFPQdIBX0FVX3lxTE8zSVdLRl9DM0RONktIdUt4WHg5SmRZRU9vWDRNc01EaDFvZTJidUJUZHpuVzU1ck1xRmhmZHJBMjZfYzdZVUtDSC12TnJWZjNrNEM2Yk0yTDlNZXRGdTdz?oc=5) |
+| Hong Kong: two people reported killed after cargo plane skids off airport runway - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPZ3VrUFVLZHNaY25rU3NqbUtKWXhNSjVfSmdrZ0pCbkxISlZENkNNZ0FuU19ueFJVR21FOUloQzhuTGs3cG9Pa21xVEl5dFNKQzhMU3lvRmt2ejdxLWZnUW9iR0wzLXUxQXJ5SUVqNXNtMjBabV9kUXMtenFqUFNyRmwwOC1iV0RiZXBGV0c4VU1JSEdONW9ETTZrVmEwNGRsXzh4bXJRd01hZw?oc=5) |
 | USSS finds hunting stand with sight line of Trump's Air Force One in Florida - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPaFpmODhuZTZUWGhEQW5KWVRjbGQyOXpXNVV0MHplNFA0SDVWOVRCX0pEV3BGamwzQjZwMlZNV3A4OVFTV1VmSkVtdXVGOTRjSGVEc0dDaGZlYmwta1RwdURGUHdMUmxiOW9nQmsyd09vUjRhdWxvRjNUNkhCbVUtOGloaTlJaVBMVXVxeF81UnppZmc?oc=5) |
 | Philadelphia police find human remains in search for missing woman - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNcWVwS0tQWkdlM2Z4WGFWd3lkLTIzT3c3TEdCanQ5WDlCd3dUUVJ4Rnl2OFVQd2lHTHRYODFHenZzdDEza3l0ZHVFbkU0TTFNMHFPajlpYld4UUJnYVZZd19KTUU0NUJwTjBLYUw2aHlCeVVQUl9xX3IyQWFmOFdsVWxpMkdqTDhHQ0RMS1h3dkdwS0hOOElxQnl0T3dGcUtjdVhDZDBsWQ?oc=5) |
 | For Alaskan Evacuees, Home Is Gone, With No Return in Sight - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNNU9ZZFVxc24wNlFqdkdtQ1AwQUpuc0wwVG5uVmlXRnY2UW1hcEtjWUhteXRJcEVmbUJKbkgzclEzeTNHMkRVQzdHV2ZOX3UzVXUycEQzYjlDcjV0MWFrWFNwQTlsWjBHaDY3WTRJQUt6YzkzXzdIRUNaU3Y3WHBuZmFn?oc=5) |
