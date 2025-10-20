@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月21日 00:33:39（北京时间）**
+🕒 更新时间：**2025年10月21日 00:40:53（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Gaza: Deadly flare-up tests Israel-Hamas ceasefire - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1HakZmcnczRXlaaXhka28tOGc0a2E1a3BSbWJtTXk0STVGcHllSTF1cjMxSXpOMVZ3UmdvbTVCcmUxZlVSYnZlNlk1ZFZxRGNZUmdldWNqNndzd9IBX0FVX3lxTE9LdUpPS2VqRDdHbTMwSTJhY1NGcmhrNkppb1Q1NTQ2TUtweWtTOW9jTDRKWkMwT0FGTVN0eHZpNzdrNWk1UFlZSnNqSFVYc01qS1B6djN6dW83STRIZmlB?oc=5) |
 | How military’s ‘safe’ plan to fire munitions over Interstate 5 went off the rails with CHP cruiser hit - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQbXVSYm1TYkZJVHotWGZuV3pSSzF0eUZtUjdMQ0ZVRGxnUkFuRHVhUFdsQnk2cm5VMVpyMzhfazZkeW5aemlKZGVVbU1oWjdLQXgtdXFVaVZZT2VxN1RpT1pfakJOaWU4Tk00dWxKZ091MGlicjNmdTd0UFpvQ0pXb0VERnEzVEVnY0xNZzNtM2JxNExvcUF2Umx6eXRrQkU?oc=5) |
-| Donald Trump and Australian prime minister Anthony Albanese sign rare earth minerals deal – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPc2hqdFNEdG44LTIyNXZjc1FEZEFGSEFNM0VCLThOT29hY1VuVEVVTjNERUlCd1FXaWRSM1VCdkI0NzFvOW9ZUzhNRXBhUmlteVZCQnM3NDIxdlBtWFAtSWxQMjZlR29aUHJfQmpjVGZxQVNvNmZSNlhZaS1rb3hITjVPcG9GWU1YMjBwaW9DbVIwV2VZbXNORUlRd0NIcGNzUjFqZUdYd09aZWNWT0ZnMExiZDYwcUoxZzVQNHlyZWlieWs?oc=5) |
-| Mike Johnson says Trump was ‘using satire to make a point’ with AI poop-bombing video - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPbEdQWjd6dE9vMzdjRzdzc2xfelZpT1BURjBzekpkNDdDcExtbWF3cXVqemt2eElHU05Lb2E2Sm05WGVVUU9aclktV1E1bmo0cnJQXzNJY2NKcmQydGt6TjJxVUJyZFg4RVBUM3ZmLS1VY2NJMDNBRTVvVlJkWmVJMkZ3MFI4RmlUTnRpZjJTR1R5eW1DWFR3RnQ2enU?oc=5) |
+| Gaza: Deadly flare-up tests Israel-Hamas ceasefire - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1HakZmcnczRXlaaXhka28tOGc0a2E1a3BSbWJtTXk0STVGcHllSTF1cjMxSXpOMVZ3UmdvbTVCcmUxZlVSYnZlNlk1ZFZxRGNZUmdldWNqNndzd9IBX0FVX3lxTE9LdUpPS2VqRDdHbTMwSTJhY1NGcmhrNkppb1Q1NTQ2TUtweWtTOW9jTDRKWkMwT0FGTVN0eHZpNzdrNWk1UFlZSnNqSFVYc01qS1B6djN6dW83STRIZmlB?oc=5) |
+| Trump Live Updates: Australia Prime Minister Meeting, Colombia Tariff Threats and More - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE5DdmJtdlhVVUJPdzVHei1CdGE2cUFFZTJISWV0WDB6YTVtV1Y1YlRrcklOVHQ3RzBUN040bFRLWnV1bnplLUZYbEpjWVhVSHhOUnpQMmpVV0MwWkh2WW9Sb05IYw?oc=5) |
+| Outrage grows over Trump’s 'disgusting' AI response to 'No Kings' - Euronews.com | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxQcXJtandOLXdtN0FZZHhGZ1lPYlZ5Q1h3OFZIVkk0bG9JS2JYVlBoM2hUNVRSdkgya0FFV3JMUF8zZmZ4ZlFsUlpkMFhSSnlJeW1tTG1KS1RRb1RZNWlZWUJ0QmloWHEtaUt0XzF6U29HMzd4RWF6VzlRRnZDUDNRZV8tTXd1RmZ3aDA5Q1lzQ0MteDlZTktJRFVPbVRkSDRDMnVIRzlrejNidG9tdXc3YVFFb3ZRRl95eW9KNWh6b3NrNlVOYXJ1M0l3Q1RMeWc?oc=5) |
 | Officials, locals undercut Trump claims about Venezuela drug boats - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNa2NBY1pFQzgwTUY5M25vNzNlb1I2ZGNDeV9mdTRUc3VfVWVUdXk0Skg5Ul9nOW94cTRnbGVpSThJOVJaZ2k2dk9YbGJ0bVROdmk3V0hZTjBIUEV4WkZDUThJV09DUG9qOG5LeWVJMmkwMTZCVTltWDFCT0NiMFIwRVNPZTcxRGoxSUpV?oc=5) |
 | Secret Service finds ‘suspicious’ hunting stand near Air Force One landing zone in Florida - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxONlM5SHdrOS16WjJsdmJzd0pZUjhaQ0lFWnVVZ01fMXhrME9UcHV1WnBsU19xcFpEbDV0azJTNjJxUkdaOC1YOVI3WV9HN2poSEdRa0dDUl9wdHBqNXpidTVzOGM3TG9ldEJsMm9yLWluOXZfdi00Q0NHTVpqdGFnOUJFYUw?oc=5) |
 | Prosecutors suggest they may move to disqualify Comey's attorney - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQNzVJRUo5NjAtd3ZHTjRTeWdMeWtBR1ZicTFuN3BieU9DT2Iyb1BLT0o5bTc1bHNJRDNUQXE2NDU4Um5aUVpwS0htaVNLZEtaX0NYV0dZdHlJYkN2SEFiZkw4UzBlblpyY0wxWUtrd2pOWWVTdVFtU1RYbGdUandfbVo4R2t6dDdpRzl0M0RkRkJtWkRHTG1ROTk4N0vSAaIBQVVfeXFMTTR2NTRNdzB3VGFlc1pkaVJlZklRWm41YVZuajREZmlOdm8xWUVKSWtTRjR1TmZqUzRZcGstNmN1QWV0VmhWZVVDbXJGTVJWUEZ6VlVwRW56dTBaM2hrbHJjTFQxdndaZFpkMzN2NlFieE9FOThVT01YY1ZmSnFPY1VWUHk5M0E0bHpHV0cyYS1DZ3R4XzdwcXJycGpoM1VZNkhB?oc=5) |
