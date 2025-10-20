@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 19:33:23（北京时间）**
+🕒 更新时间：**2025年10月20日 19:41:52（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Chancellor says Brexit deal caused long-term damage to economy | [阅读全文](https://www.bbc.com/news/articles/cy0ypx859x8o?at_medium=RSS&at_campaign=rss) |
 | Two dead after cargo plane skids off Hong Kong runway into sea | [阅读全文](https://www.bbc.com/news/articles/c5y0eeqz732o?at_medium=RSS&at_campaign=rss) |
 | The two words you need to help you push back at work | [阅读全文](https://www.bbc.com/news/articles/cn09eklpe24o?at_medium=RSS&at_campaign=rss) |
-| Stolen treasures, a crown dropped as thieves fled - and serious questions for Louvre security | [阅读全文](https://www.bbc.com/news/articles/cj0e24rrjz1o?at_medium=RSS&at_campaign=rss) |
+| What Harper Lee's lost short stories reveal about the To Kill A Mockingbird author | [阅读全文](https://www.bbc.com/news/articles/cevzr3n02x2o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,9 +30,9 @@
 | Armed ICE agents break into Gresham home, arrest wrong men, and ‘No Kings’ rallies energize Oregon: Get caugh - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMi7gFBVV95cUxPR2NBX3NHZUZUUmtUSU80cXQtcDVoWk14T3l0S2pNNDVTcENTUkZwWGlPal9vaUhHRkJiSWpaRlRaOWpzTERtR2VjWVJSNEtEQXhrM0JMVndzSU5tNXkwMGhQVmtqUHNmaXhDTnBwci1qWEM0RFRTYkgxQzVtTGFxaFJURDhLMV84djVVMVkzWDM2cHYwYWNyVVVjXy1BMXhFRnk2OGUtNENpSXk3ckUwWnNTRWxQYWFMdFlqVnVVVHd6U1BEMUN1VVRvd3ViUGtoU29QaXhnMktDWGU2TkVEMkVIYlFFdFNhSDVHZV9B0gGCAkFVX3lxTE9sbkdNbFRKTUZFcUZRNVEzeGo5SnE1ZUpvbzVCejNrT0hrSUwta1RoM2FSaU5aUTZuMTNvS0k2Y3BONFZwV1k2aGNwaEtxTWZQSi1DeFE4VEJoaVp6Yy1iNV9mVGk5UVFuaEJiR1VNMkJTQmUyX0lwNE5fblY2NXZxV3FvWldPLTlqUG1BY0xXcU9aSHRMZjNkVGRNYXQ5cWlvbTBLbndMbG5paHh6bDNKZGNoRUpqQ2ZLM21tTjBYclR2LTF0Ynp4eGZqYVl1ZUp2UVhVV3Rub0VELUZCM1gwOUhUOTU3dnFLUzEzOV8wNVpDUmFoM2lUVGtWbGNDWldOdw?oc=5) |
 | Two Dead After Cargo Jet Skids Into the Sea at Hong Kong Airport - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOcEZSVEtrMUxkaXFJZW5PWTBYb05tOFZjM2JUSDBpX1RxOUhsX1BjWHB5Znp3UVA0dDBiZk5vS1ZuVG5YTWFUZ0lrbEN3TlpuR0JQSTE0a010aFI4QTRBaThscDhHMXFXSFpwOWluaUU2eDE3REt6cjJLOWVRdF8tR3ZXRmNaUDk1S0FLNlRMaEEzSkUxdlozU3ZPcHlwdG14S3pVT25BMmRnam5I?oc=5) |
 | Lawmakers bemoan Trump’s latest power grab: Troop pay - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOYmFaTm02Rk1JZDBzNVR3c2tGNW5ZSXNncWlQSFFOb3Bxd3k2T2U3MHByRnBHZnZGZnM5a0tuYzN1d0VqYS1Tak9UMkNGR1EzNzh3ZDA3elNZbU56NDF5SGc1VExpenJHUlpheGFldm9QWTMxOEsxbWRsVEtiNHc5cG5XMF9rZw?oc=5) |
-| Police found Kada Scott's body thanks to anonymous tips, video footage, and her Apple Watch location, sources say - Inquirer.com | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOc2ZJRzlRVGNWSzUwdnBGR3d1c2xkSnB3TlY5a3BDMmp4aU4wOTNRRDAzY0l0NDdmYUoxWkE1RklpcjJTTER4eVBkTnpUMTl3T0JISmdlMHMyOG5WcnpSdmNIcjdldVJDcXRVMHBURmdPSGFZZk9Zc2YwTi12WUEyd2N6d29OblUxN0VzVVQ0dmhndE9t?oc=5) |
 | Judge Demands Answers on Trump Immigration Crackdown in Chicago - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFB4N21ZTE5BYjdBNzY3cGs2SGFtSE5FcW12TS1vaGJqcUZGX3JVV2pJUTNlYkpjTF84VGhPQ3VSaVVrQmZTdzhqTXhDemtoSWg1cDhrdEktRVlWc2FyMUs2cFJrME1Xal9yVkJGaFZhZklBTlVxcjc2dVpEVF93Zw?oc=5) |
-| For Alaskan Evacuees, Home Is Gone, With No Return in Sight - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNNU9ZZFVxc24wNlFqdkdtQ1AwQUpuc0wwVG5uVmlXRnY2UW1hcEtjWUhteXRJcEVmbUJKbkgzclEzeTNHMkRVQzdHV2ZOX3UzVXUycEQzYjlDcjV0MWFrWFNwQTlsWjBHaDY3WTRJQUt6YzkzXzdIRUNaU3Y3WHBuZmFn?oc=5) |
+| Police found Kada Scott's body thanks to anonymous tips, video footage, and her Apple Watch location, sources say - Inquirer.com | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOc2ZJRzlRVGNWSzUwdnBGR3d1c2xkSnB3TlY5a3BDMmp4aU4wOTNRRDAzY0l0NDdmYUoxWkE1RklpcjJTTER4eVBkTnpUMTl3T0JISmdlMHMyOG5WcnpSdmNIcjdldVJDcXRVMHBURmdPSGFZZk9Zc2YwTi12WUEyd2N6d29OblUxN0VzVVQ0dmhndE9t?oc=5) |
+| Trump announces tariffs and an end to U.S. aid to Colombia amid clash over drug trade - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNbkhULWVoR0xMT3BqaU9Cd18tTzRYYnBDVUI5SjB0djBydW9uNktDbnNVQ1M3dGFLcmJxMVFaelRZdkNGOFZLWW9LTmpWaHNZdVRoRDBhME5wOGpndjRURFpOWlN6NGdXYmJQclBwTGRTbVhETklxNVV2aTdjVDZJanp6LWZwOFFKV1U2YjBib0tkdDhzbl9fU2Nn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
