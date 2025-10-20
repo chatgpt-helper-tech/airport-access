@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 10:33:09（北京时间）**
+🕒 更新时间：**2025年10月20日 10:40:30（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Thieves steal treasured jewelry from Louvre in 7-minute daylight heist - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOMEE2ODFiSVhqWEdNZW9leXRnX2gtODA5QU1mdkFNVWhpMk1Bd0x0V3dBakJtUnM1ZnM1ZWF4em9qQVRYQWtSTXpqLWwwTU8zMHVxbk9hcDREZGNaNl9RQzMtRzlzZkpPS2ZyZGdrbzk3UGNEbmVPUnk2c0puOTlLWE1UMA?oc=5) |
 | Renewed fighting tests Gaza ceasefire and Israel briefly halts aid - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOdVBjSzN1bk1nYmEzWERpd1hkd2ktTlM0MHJvR0NlZHhlTDloQ004MTA2bnFEaGxEM3ZVQ0xlbjhLN2pKR1lTZENxUUplWVJQTDRqWWhySnVaaHV4RnoxV1JHdGdxaDExbm1BcjVfUjdqWW94cmhmODBxRHVtUU9vTjg0TEtmV0NoclI5M1AyYUVHR3plZzFyMkkyWE9tWERJUUIyaTR4WmE?oc=5) |
-| Artillery shell exploded prematurely over California freeway during marines celebration - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOTTEyZVMzYXZoNExPSXFkZ3EtZnQycHU0N3BSWHI0YTJTYl93LXI3a2MwejY1T0drQktuLUtUb19uUnk3TjJlaUl1UGpOZlc1a21ESW1BMk9SSnRBazdsUWg2NEJfZ3hsc0dwdTU5TDdCX0N4RU1pcm5mOEd1d3pDVVI4MVdma1FIZ3M4cTlEMjhPMmptN0pJNQ?oc=5) |
 | Trump says will hike tariffs on Colombia as drug trade feud escalates - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNdkdxaEhGVnNFY3JUbU9UVW5UYU12Y0loM09xdkF1SkdYTnoza2t2d2VRZ2dzNV9DWm00VGo1M3VoYk1GVWItZzk4WEl2TXBtMGExR0VNdmJXU1ZHa3BaOVlsLVBiOXVqcTdDUVZIV01CenQ4dDlDUWk3eDlqR1c0cHBfRVBLYThHZGk5U2c3aV9WZ2k0ZHR0TlRXRlZocXI1M1kxODZTeVdJLU0tNUE5UVpmNHg?oc=5) |
+| Artillery shell exploded prematurely over California freeway during marines celebration - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOTTEyZVMzYXZoNExPSXFkZ3EtZnQycHU0N3BSWHI0YTJTYl93LXI3a2MwejY1T0drQktuLUtUb19uUnk3TjJlaUl1UGpOZlc1a21ESW1BMk9SSnRBazdsUWg2NEJfZ3hsc0dwdTU5TDdCX0N4RU1pcm5mOEd1d3pDVVI4MVdma1FIZ3M4cTlEMjhPMmptN0pJNQ?oc=5) |
 | USSS finds hunting stand with sight line of Trump's Air Force One in Florida - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPaFpmODhuZTZUWGhEQW5KWVRjbGQyOXpXNVV0MHplNFA0SDVWOVRCX0pEV3BGamwzQjZwMlZNV3A4OVFTV1VmSkVtdXVGOTRjSGVEc0dDaGZlYmwta1RwdURGUHdMUmxiOW9nQmsyd09vUjRhdWxvRjNUNkhCbVUtOGloaTlJaVBMVXVxeF81UnppZmc?oc=5) |
 | Emirates cargo plane skids off runway into sea at Hong Kong International Airport - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFA4WnZFcjFEWDhqUWZHa2xpQ3lwdXNQZklfemNPaE1TVTYzTmNJSUVkSHFqRlNFMElRQ0I1ejdCSl9kZVBZT3RNc0EyRWtYWXU3SHlaY2ptOHFPQdIBX0FVX3lxTE8zSVdLRl9DM0RONktIdUt4WHg5SmRZRU9vWDRNc01EaDFvZTJidUJUZHpuVzU1ck1xRmhmZHJBMjZfYzdZVUtDSC12TnJWZjNrNEM2Yk0yTDlNZXRGdTdz?oc=5) |
 | Philadelphia police find human remains in search for missing woman - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNcWVwS0tQWkdlM2Z4WGFWd3lkLTIzT3c3TEdCanQ5WDlCd3dUUVJ4Rnl2OFVQd2lHTHRYODFHenZzdDEza3l0ZHVFbkU0TTFNMHFPajlpYld4UUJnYVZZd19KTUU0NUJwTjBLYUw2aHlCeVVQUl9xX3IyQWFmOFdsVWxpMkdqTDhHQ0RMS1h3dkdwS0hOOElxQnl0T3dGcUtjdVhDZDBsWQ?oc=5) |
