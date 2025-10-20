@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 08:00:02（北京时间）**
+🕒 更新时间：**2025年10月20日 08:08:03（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | New V-level courses to be brought in for students after GCSEs | [阅读全文](https://www.bbc.com/news/articles/clyzjp5n5kro?at_medium=RSS&at_campaign=rss) |
 | From Hollywood to horticulture: Cate Blanchett on a mission to save seeds | [阅读全文](https://www.bbc.com/news/articles/cwy7ekl4yl8o?at_medium=RSS&at_campaign=rss) |
 | After 'No Kings' protests, where does Democratic resistance go next? | [阅读全文](https://www.bbc.com/news/articles/cj3zemk2j4ro?at_medium=RSS&at_campaign=rss) |
-| Cargo plane skids off Hong Kong runway into the sea | [阅读全文](https://www.bbc.com/news/articles/c5y0eeqz732o?at_medium=RSS&at_campaign=rss) |
+| Two dead after cargo plane skids off Hong Kong runway into sea | [阅读全文](https://www.bbc.com/news/articles/c5y0eeqz732o?at_medium=RSS&at_campaign=rss) |
 | Tel Aviv derby called off by police after 'violent riots' | [阅读全文](https://www.bbc.com/sport/football/articles/cgr4n07509wo?at_medium=RSS&at_campaign=rss) |
 | MoD probes claims Russian hackers stole files on bases | [阅读全文](https://www.bbc.com/news/articles/clykev1p79xo?at_medium=RSS&at_campaign=rss) |
 | World of cricket's farewell to umpire Dickie Bird | [阅读全文](https://www.bbc.com/news/articles/c7816gyny22o?at_medium=RSS&at_campaign=rss) |
