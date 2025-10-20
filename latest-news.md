@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 11:16:37（北京时间）**
+🕒 更新时间：**2025年10月20日 11:24:12（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Thieves steal treasured jewelry from Louvre in 7-minute daylight heist - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOMEE2ODFiSVhqWEdNZW9leXRnX2gtODA5QU1mdkFNVWhpMk1Bd0x0V3dBakJtUnM1ZnM1ZWF4em9qQVRYQWtSTXpqLWwwTU8zMHVxbk9hcDREZGNaNl9RQzMtRzlzZkpPS2ZyZGdrbzk3UGNEbmVPUnk2c0puOTlLWE1UMA?oc=5) |
-| Israel strikes Gaza as both Israel and Hamas accuse each other of breaching ceasefire - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOdGdSeG1PcHdXelNfX2tmd2IyemozSFJCNWdxNHNDRXFucGtRdkVwaFM2X1JuUXNYeFZZX1RQSXBtbkJBWldOSVZudV9rdGFaMmVZUmd4bXlzeU9tam9yVmVPQzdGa0FFTDU0U2RiR2hfRU1La0x4ZE5NajNDcXgwbFQ3LXExWHVrb2MwQlJuVjNyOUl2a0xBVDlxVlFoZTE5NEtBbTR3UjZIbDNRb0RGd29JSmFYUG1Jd2c?oc=5) |
+| Renewed fighting tests Gaza ceasefire and Israel briefly halts aid - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOdVBjSzN1bk1nYmEzWERpd1hkd2ktTlM0MHJvR0NlZHhlTDloQ004MTA2bnFEaGxEM3ZVQ0xlbjhLN2pKR1lTZENxUUplWVJQTDRqWWhySnVaaHV4RnoxV1JHdGdxaDExbm1BcjVfUjdqWW94cmhmODBxRHVtUU9vTjg0TEtmV0NoclI5M1AyYUVHR3plZzFyMkkyWE9tWERJUUIyaTR4WmE?oc=5) |
 | Shrapnel fell onto CHP vehicle during U.S. military live-fire exercise over I-5, agency says - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxQRkU4bm12MUtmYmhKcVVzU0VWYzlrMThMbW92QW0taUxLb2lfOGNwUFhQVGZ2eEZMbDJLdXh5SE9nRm16ZnNUZ0RyUEs0YzBna3VPSVlKaG00UlZiTjR5R3lNcUViNGNjZmlrMFIwanZtbFh6aGx6MmJyVWR4eU96NGNkeV81a1l5M3JzOUwyWHdzUWJ4SnFvSElfMWJiMU5EbjcxVUYwb0o2eEVva3lKYjFpNUNRNVNKU3pJTw?oc=5) |
 | Trump says will hike tariffs on Colombia as drug trade feud escalates - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNdkdxaEhGVnNFY3JUbU9UVW5UYU12Y0loM09xdkF1SkdYTnoza2t2d2VRZ2dzNV9DWm00VGo1M3VoYk1GVWItZzk4WEl2TXBtMGExR0VNdmJXU1ZHa3BaOVlsLVBiOXVqcTdDUVZIV01CenQ4dDlDUWk3eDlqR1c0cHBfRVBLYThHZGk5U2c3aV9WZ2k0ZHR0TlRXRlZocXI1M1kxODZTeVdJLU0tNUE5UVpmNHg?oc=5) |
 | Emirates cargo plane skids off runway into sea at Hong Kong International Airport - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFA4WnZFcjFEWDhqUWZHa2xpQ3lwdXNQZklfemNPaE1TVTYzTmNJSUVkSHFqRlNFMElRQ0I1ejdCSl9kZVBZT3RNc0EyRWtYWXU3SHlaY2ptOHFPQdIBX0FVX3lxTE8zSVdLRl9DM0RONktIdUt4WHg5SmRZRU9vWDRNc01EaDFvZTJidUJUZHpuVzU1ck1xRmhmZHJBMjZfYzdZVUtDSC12TnJWZjNrNEM2Yk0yTDlNZXRGdTdz?oc=5) |
