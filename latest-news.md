@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月21日 07:09:03（北京时间）**
+🕒 更新时间：**2025年10月21日 07:16:15（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | How Trump-Zelensky meeting turned acrimonious over demands for territorial concessions - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQRXJEeVVXWU5tTVMwUkRUNkU5d3FiLV9pMmJDNXFENEh1M0NiYi1VdmtPZ0FXZmtjdmFsd3pLVnJRaW04SXFwT192Vi13OXN5UkpJZEZzZjFsM1lJUUZiVmZEQ1VXbkFJUExzZEZpcEpqLW1PTU1Ia2d0UlV2dkNpV2xhSzc1Qzdtd0dXSXpxaw?oc=5) |
 | As deadline for Trump’s colleges compact looms, schools signal dissent - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQOTdVV1ZFLWxvSmdIQ0tlbVBzUktQdzhIcmVOalY1ZUUxMXYyLTdhWE0xQ0Q0YW5HcE02enF3a0ZJb0d3eWR6YmpnbGJxNDFoLXZ2Skl2VVVvOEw1MzA4bC1QZTRRMU1NaEdkUmRTR2ZBRngtUmFwNklsQlZsbHN4blVfVGZIUmZxT2lNWVBpdnp2TUI5NnA0RE9jRQ?oc=5) |
 | Man Is Arrested After Threatening to Open Fire at Atlanta Airport, Police Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPUmFTMDZyUTUyUHdWRXhTUHdRd2Z0TjJfb2Q1c05Ld2RTZ2dJdUU4THpEWlh6eExtZks0cHl2WWFLNHQ4M1F5YTdBSDhzeGtONlRQM3UtSlhORDIwWmY0aEttaWxBV1JMTWZjUWNQRG9OdzdlQm1aRU1LQ21CTk9BeHpKMDhObjJI?oc=5) |
-| ‘No Kings’ Protests Sweep the Nation, in Photos - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQbE1IdWEtZElzY2hSYkFDaTk1dzFoanhQalpOOFVXZFRFOG45UXZtamw2RXoyREpQOGsxOXBXMXltR1pXYjhZVVRKQ09rMFhaaEJGbnNQNXQxYmR6T2FnUzNqYzNocXpLRzFVSlJHU3NGV2RlZkxadnZWVXh0MVJOdTZ3RVpIcGVjMjhIUzJaNERmRHJsekRz?oc=5) |
+| Trump nominee reportedly boasted of ‘Nazi streak’ in group chats - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNUUNTalVPWElPSFpHWTloOGN6THBFRVhBZHIwWThob1N6ajlUZl9TSWc2VkdMaVBWOUlUcmJhdXM0QmgzTlB4Rnc4N2VIY1AxaE9HQUVyeGpiSVlPbDUyT2tIek9udW1mUC16MTZ1YUJpa3dOdWJ0UTBhVGUxc20zYjVpalE1VjlBNkxwYTk4UnpOUQ?oc=5) |
 | Trial begins for former Illinois deputy accused of killing Sonya Massey - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNUGxSbnU0dElwMnlDaF9JUDJBT3NsbFdMeVhUUFpVR04zVmRrQjJRMld5b2tRMGtlOXNST3JKNWliNGNJXzA3cVpxS2x3VVFoWHYyQll4T2VOd0w5ZU5aUG52ZktCZFVqU2pyOVpGdUlIQ2wwY3NmaXdKT3BaX0NyY0Y4bEQ5cldjaHprYTQzcV9ISHZIYTJpemt0NzA3aFpiTkVaR3FtOHRmTWZMMGFhOGF30gFWQVVfeXFMUHc5WDZOUTk0N0ZTUnR3eFVCbzFVV2tmRGFuRUotWVBSVDNCd2lITTVKTVk4cHdUSDBPMHpDR0JkYUlZeU0tc3JmS1M3NXpndHlpcE1FZXc?oc=5) |
 | Golf icon calls BS on governor, begs Trump to ‘come save this former great city’ - NJ.com | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNeVloMkI1NXJpTnFMTEc3eHN2WmRaamRmS2thTUp2T2s1VmFGSUthZlJteGd1RjJIaW03ZW8zV0d0T05mbmdIcFQybXBPUnFGSFIxY0NIc0hNWWctekl3MWpoWlRzMVlUS29OUXF3bjgwQzdaMUNiT0hKNmkzYkZUdGhvSHdWY3hLeHhOVmMzdGx6aXktZHRPR2hCWGVUMmFLa0lldExoeGZ1WkF4SGZQMi1fdk5YcU3SAcsBQVVfeXFMTnFYa0tlVk4wa2VoWW5lOFl1YS1fOFJkVjYxcm9HWjZDQXk0T3JYd0hQcTlvbUZaRkg0bDJ2WVdjcGNtbGFfWUh3ck1qejhLLUkxTHBGTWduOTY0Y3RzMVBpY29Zb2daNVNSaUUyMzNFbmJTeklVVXZ5SUlNeDFrRnhRUno1NlRVQjFuempCOEtETGM0N2ZaNURnU0dFSWJ4eG5IbzhMMk43NnR2RG1sZzFCWHhKODNISmMtaXdjR0ZJbktMWDQ0dmE0M2s?oc=5) |
-| Trump's fake video featured 'Danger Zone.' Musician Kenny Loggins wants it scrubbed - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxORVhrZVdlVVN0RDdGYzR6NFp6NlJRWjlPQU1LLThrOVhnY21qRkRhZ0V0R29jQmJ1UktLeTZ1R2g1ZHdhUHVNT2JWWjZDS0VjRnRtaXEwYWdiRmxkVU9nVHBiUG5QUl9VakRueWp5blhlY3N4U0Y4SXJIWnR6OTZ6RU5pR05uWFk?oc=5) |
+| ‘No Kings’ Protests Sweep the Nation, in Photos - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQbE1IdWEtZElzY2hSYkFDaTk1dzFoanhQalpOOFVXZFRFOG45UXZtamw2RXoyREpQOGsxOXBXMXltR1pXYjhZVVRKQ09rMFhaaEJGbnNQNXQxYmR6T2FnUzNqYzNocXpLRzFVSlJHU3NGV2RlZkxadnZWVXh0MVJOdTZ3RVpIcGVjMjhIUzJaNERmRHJsekRz?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
