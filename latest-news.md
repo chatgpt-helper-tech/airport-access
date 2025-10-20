@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 17:32:09（北京时间）**
+🕒 更新时间：**2025年10月20日 17:41:09（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Trump posts fake video dumping brown substance on rally as GOP dismisses No Kings marches - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1EQlRWS0VsRndpR25QSGpkRnZXMFlrbkdSLVFLVjBLdUFtbFNxOHlDWlE1amRZNDU5SE00ZXpOM09BR3hELWNDMmVaaFlXR3I2ZFhMV2Z2Zm9kbDM5elk0RFBrZ09HbWgxRU9PZFNHaW5kREpSVXc?oc=5) |
 | Police found Kada Scott's body thanks to anonymous tips, video footage, and her Apple Watch location, sources say - Inquirer.com | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOc2ZJRzlRVGNWSzUwdnBGR3d1c2xkSnB3TlY5a3BDMmp4aU4wOTNRRDAzY0l0NDdmYUoxWkE1RklpcjJTTER4eVBkTnpUMTl3T0JISmdlMHMyOG5WcnpSdmNIcjdldVJDcXRVMHBURmdPSGFZZk9Zc2YwTi12WUEyd2N6d29OblUxN0VzVVQ0dmhndE9t?oc=5) |
 | Trump announces tariffs and an end to U.S. aid to Colombia amid clash over drug trade - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNbkhULWVoR0xMT3BqaU9Cd18tTzRYYnBDVUI5SjB0djBydW9uNktDbnNVQ1M3dGFLcmJxMVFaelRZdkNGOFZLWW9LTmpWaHNZdVRoRDBhME5wOGpndjRURFpOWlN6NGdXYmJQclBwTGRTbVhETklxNVV2aTdjVDZJanp6LWZwOFFKV1U2YjBib0tkdDhzbl9fU2Nn?oc=5) |
-| Trump urged Ukraine's Zelenskiy to make concessions to Russia in tense meeting, sources say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPWUNLZ1ZvejNTUXNEdFgxYkRDOEkyY2ozNENsQnRyV0FYb1k0VVJHcThuMS16QXlwMWpUZWdhV3g5bDIxRFZObTFRdEFyQlp2Rm9FUXZ1dndwMlY4eFRLSHJaeGZJRG5uRVpjRDNGbWNtZEc5R19QVjcyNW9EQUZmYjFHdWRUWGRLcmtSY3llVk9WdDdORkNpU3FaNWZkMGVRMVpWXzJLWm0xVjNralJyN0ZpNWJFLUF0SU43V0t3?oc=5) |
+| Trump says Ukraine’s Donbas region will have to be ‘cut up’ to end the Russian invasion - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQb0swdko5SHYwYzRaRjNvNmVWQ1RLZnU3UmtoLWdvcmJKNW1CQlhXOGs3QzM1X2hER2hiWURxN1NRQ0pFMDJ0WklLZ2xlcnpuQURKbmJDaEd1LTdwYTR2cEx5SVB1NUNlc3h1LWNFS2ZJVTJpYTdjY3pnX3lZa29Wb0RoR0tPTTRVZnJHaTJ2R2hlSXlYQzlMVDgydmNuVWVTSzQ3ZEJMTQ?oc=5) |
 | China set to push high tech in 5-year plan as tensions with US intensify - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5fd0xoMzBWbHZvbTNfNTFhUFp6bHFMNHl1bVZLRTRhTHFfT0FhY1JfU1EwVVVKTUdWSjU2ZTl6ODM2VXdFUWI5cTVlbXRsNEpvNDAzT3JJY0ZuQ0JDUG5LZVNrdGg5aENSWU4ycnY2VlU?oc=5) |
 
 ---
