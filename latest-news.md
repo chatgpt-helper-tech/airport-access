@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 20:57:58（北京时间）**
+🕒 更新时间：**2025年10月20日 21:01:53（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | Inquiry into 'shocking scale' of Leeds NHS maternity failings after BBC investigation | [阅读全文](https://www.bbc.com/news/articles/c4gpxnk9n4po?at_medium=RSS&at_campaign=rss) |
 | Giuffre thought she might 'die a sex slave' at hands of Epstein and his circle, memoir reveals | [阅读全文](https://www.bbc.com/news/articles/c1e3leqx89zo?at_medium=RSS&at_campaign=rss) |
 | France tightening security at cultural institutions after Louvre heist | [阅读全文](https://www.bbc.com/news/articles/clyz58n65g3o?at_medium=RSS&at_campaign=rss) |
-| BBC at scene of 'brazen' Louvre jewel theft | [阅读全文](https://www.bbc.com/news/videos/cwyp1pn7k4eo?at_medium=RSS&at_campaign=rss) |
+| The two words you need to help you push back at work | [阅读全文](https://www.bbc.com/news/articles/cn09eklpe24o?at_medium=RSS&at_campaign=rss) |
 | What Harper Lee's lost short stories reveal about the To Kill A Mockingbird author | [阅读全文](https://www.bbc.com/news/articles/cevzr3n02x2o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
