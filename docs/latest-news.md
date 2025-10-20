@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 19:48:35（北京时间）**
+🕒 更新时间：**2025年10月20日 19:56:41（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Two Dead After Cargo Jet Skids Into the Sea at Hong Kong Airport - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOcEZSVEtrMUxkaXFJZW5PWTBYb05tOFZjM2JUSDBpX1RxOUhsX1BjWHB5Znp3UVA0dDBiZk5vS1ZuVG5YTWFUZ0lrbEN3TlpuR0JQSTE0a010aFI4QTRBaThscDhHMXFXSFpwOWluaUU2eDE3REt6cjJLOWVRdF8tR3ZXRmNaUDk1S0FLNlRMaEEzSkUxdlozU3ZPcHlwdG14S3pVT25BMmRnam5I?oc=5) |
 | Lawmakers bemoan Trump’s latest power grab: Troop pay - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOYmFaTm02Rk1JZDBzNVR3c2tGNW5ZSXNncWlQSFFOb3Bxd3k2T2U3MHByRnBHZnZGZnM5a0tuYzN1d0VqYS1Tak9UMkNGR1EzNzh3ZDA3elNZbU56NDF5SGc1VExpenJHUlpheGFldm9QWTMxOEsxbWRsVEtiNHc5cG5XMF9rZw?oc=5) |
 | Judge Demands Answers on Trump Immigration Crackdown in Chicago - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFB4N21ZTE5BYjdBNzY3cGs2SGFtSE5FcW12TS1vaGJqcUZGX3JVV2pJUTNlYkpjTF84VGhPQ3VSaVVrQmZTdzhqTXhDemtoSWg1cDhrdEktRVlWc2FyMUs2cFJrME1Xal9yVkJGaFZhZklBTlVxcjc2dVpEVF93Zw?oc=5) |
-| Police found Kada Scott's body thanks to anonymous tips, video footage, and her Apple Watch location, sources say - Inquirer.com | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOc2ZJRzlRVGNWSzUwdnBGR3d1c2xkSnB3TlY5a3BDMmp4aU4wOTNRRDAzY0l0NDdmYUoxWkE1RklpcjJTTER4eVBkTnpUMTl3T0JISmdlMHMyOG5WcnpSdmNIcjdldVJDcXRVMHBURmdPSGFZZk9Zc2YwTi12WUEyd2N6d29OblUxN0VzVVQ0dmhndE9t?oc=5) |
+| For Alaskan Evacuees, Home Is Gone, With No Return in Sight - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNNU9ZZFVxc24wNlFqdkdtQ1AwQUpuc0wwVG5uVmlXRnY2UW1hcEtjWUhteXRJcEVmbUJKbkgzclEzeTNHMkRVQzdHV2ZOX3UzVXUycEQzYjlDcjV0MWFrWFNwQTlsWjBHaDY3WTRJQUt6YzkzXzdIRUNaU3Y3WHBuZmFn?oc=5) |
 | Trump announces tariffs and an end to U.S. aid to Colombia amid clash over drug trade - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNbkhULWVoR0xMT3BqaU9Cd18tTzRYYnBDVUI5SjB0djBydW9uNktDbnNVQ1M3dGFLcmJxMVFaelRZdkNGOFZLWW9LTmpWaHNZdVRoRDBhME5wOGpndjRURFpOWlN6NGdXYmJQclBwTGRTbVhETklxNVV2aTdjVDZJanp6LWZwOFFKV1U2YjBib0tkdDhzbl9fU2Nn?oc=5) |
 
 ---
