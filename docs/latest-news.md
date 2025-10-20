@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月21日 01:57:06（北京时间）**
+🕒 更新时间：**2025年10月21日 02:00:17（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Armed man subdued, arrested after reportedly shoving woman at Kent No Kings protest - Akron Beacon Journal | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNYUpncXQ1WWNxTm4tVGtCcW1HTUlVcHhtOUdZRV9NRGlZc1F0YWdBSUhKd1lwNkZWa1plZjY4UE1tX054SkJ5QXI2WmdwUVlQakY0blFURENzaS1Zbm9lNW82dUF6S29SdjZVZTREY3FjUkhZaE9tRG45SW12b1VlV2ZaejB0ZWZidVM2T1Bqb0tfSWpnVUh2ZFQ3VTJCVzAt?oc=5) |
 | Prosecutors may move to oust James Comey’s defense lawyer - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQaEZHWmxDT3FEdnFNOE5FN2V0QWtWQWJSVU11bE1HQXdhWG1JcEk3RjhXLUZDX2NlZTN6aElZMHltc1E4YUZqNDNqMDVLSmpObGxWX2FmRFZpd25YOUdRVmd2bTliM0JHSzFXQ1F3OXJRanZHekl5ZUFsb0FDNmpZQlpzVUVKb1F1SHc?oc=5) |
 | Golf icon calls BS on governor, begs Trump to ‘come save this former great city’ - NJ.com | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNeVloMkI1NXJpTnFMTEc3eHN2WmRaamRmS2thTUp2T2s1VmFGSUthZlJteGd1RjJIaW03ZW8zV0d0T05mbmdIcFQybXBPUnFGSFIxY0NIc0hNWWctekl3MWpoWlRzMVlUS29OUXF3bjgwQzdaMUNiT0hKNmkzYkZUdGhvSHdWY3hLeHhOVmMzdGx6aXktZHRPR2hCWGVUMmFLa0lldExoeGZ1WkF4SGZQMi1fdk5YcU3SAcsBQVVfeXFMTnFYa0tlVk4wa2VoWW5lOFl1YS1fOFJkVjYxcm9HWjZDQXk0T3JYd0hQcTlvbUZaRkg0bDJ2WVdjcGNtbGFfWUh3ck1qejhLLUkxTHBGTWduOTY0Y3RzMVBpY29Zb2daNVNSaUUyMzNFbmJTeklVVXZ5SUlNeDFrRnhRUno1NlRVQjFuempCOEtETGM0N2ZaNURnU0dFSWJ4eG5IbzhMMk43NnR2RG1sZzFCWHhKODNISmMtaXdjR0ZJbktMWDQ0dmE0M2s?oc=5) |
-| Government shutdown live updates as Senate prepares for 11th vote to fund government - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQd193VUxieldHblJSSUNGQktRZjFFdmROVEZqUHFwYncwMFY2VVowd1ZWelNEY3dGOVotTHVGdDNNZXJ3QkZ0d3I1NGxsYUgxOTE1cTZvRk5KWllEdnY0VUJqOGJoMndtdmhiMUtXUW5aOVJoamRuZk9BX2RyQWkxNjRZUEJiUzI5WmNkQ0dySQ?oc=5) |
 | Trial begins for former Illinois deputy accused of killing Sonya Massey - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNUGxSbnU0dElwMnlDaF9JUDJBT3NsbFdMeVhUUFpVR04zVmRrQjJRMld5b2tRMGtlOXNST3JKNWliNGNJXzA3cVpxS2x3VVFoWHYyQll4T2VOd0w5ZU5aUG52ZktCZFVqU2pyOVpGdUlIQ2wwY3NmaXdKT3BaX0NyY0Y4bEQ5cldjaHprYTQzcV9ISHZIYTJpemt0NzA3aFpiTkVaR3FtOHRmTWZMMGFhOGF30gFWQVVfeXFMUHc5WDZOUTk0N0ZTUnR3eFVCbzFVV2tmRGFuRUotWVBSVDNCd2lITTVKTVk4cHdUSDBPMHpDR0JkYUlZeU0tc3JmS1M3NXpndHlpcE1FZXc?oc=5) |
+| Government shutdown live updates as Senate prepares for 11th vote to fund government - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQd193VUxieldHblJSSUNGQktRZjFFdmROVEZqUHFwYncwMFY2VVowd1ZWelNEY3dGOVotTHVGdDNNZXJ3QkZ0d3I1NGxsYUgxOTE1cTZvRk5KWllEdnY0VUJqOGJoMndtdmhiMUtXUW5aOVJoamRuZk9BX2RyQWkxNjRZUEJiUzI5WmNkQ0dySQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
