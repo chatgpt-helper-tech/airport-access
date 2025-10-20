@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月21日 04:16:40（北京时间）**
+🕒 更新时间：**2025年10月21日 04:24:48（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Gaza: Deadly flare-up tests Israel-Hamas ceasefire - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1HakZmcnczRXlaaXhka28tOGc0a2E1a3BSbWJtTXk0STVGcHllSTF1cjMxSXpOMVZ3UmdvbTVCcmUxZlVSYnZlNlk1ZFZxRGNZUmdldWNqNndzd9IBX0FVX3lxTE9LdUpPS2VqRDdHbTMwSTJhY1NGcmhrNkppb1Q1NTQ2TUtweWtTOW9jTDRKWkMwT0FGTVN0eHZpNzdrNWk1UFlZSnNqSFVYc01qS1B6djN6dW83STRIZmlB?oc=5) |
 | FBI investigates after hunting stand was found near where Trump exits Air Force One - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNand4MHJtQlY0c3hMNkMtT1dOQXpWaUx0QS04djZGcUZtSjV4Y0xjUTB3b002a0MtQkpDd1JfN2JrMTdvanhPdWluVFZ1aWpLMWpDUHNxMnVFeGJfWVlRbDVQNktZWFl1aUhyVm5RZGVvWXoxSWhJanBTVHo3bWNMdzlOdW5qbWctanc?oc=5) |
 | Trump can send troops to Portland, appeals court says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNYU1JcEw2ZU42dElWTXFHNVRma3ZKdV9LajAtV2QtQm1wV1ktaGVXa242aVhGbEhCSVBPbzdra1lhQXNJcE5JTklTdTh3bnZPc2JIZlBFTjU3VjVmcGVwanU1NXFGaVd0WV91dGFhc0FlQ2tTc3lyNl8tNDdhWWRNUTM0ZTc4R0tLeWhzVWhzTGxUZWhTek5ZQmp3?oc=5) |
+| Trump claims ‘unquestioned power’ in vow to send troops to San Francisco - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE52bGlvNUhud0ZFTjdUOHduLTJ2b1VyT2tCM2ozcEZzbk1nTlJWLWMtNVdiUGQtZ1M3Sm5hbk9DSFl0X2h3OVVla1pqMnN1dTN2NkpvanZvdTNZVmM4S3M4ZHI2VFItRnc4ekZBZXRTYjBMeFBWclkteHZmWmJEZ1U?oc=5) |
 | Colombia recalls US ambassador after Trump's tariff threat, drug remarks - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNV1RXYmF5TWI3VkczVWs4a0JYUFZteHg0NGZickQwNlJ5TnBZOE83MUtNZFNLRUp5R2NrU1ppa1h2UGV2REFnbV9acndhc2x5RTRpYl9qcTRqZzZhR0poc29RTkFTaHdaNG55TWdSUmRqTVdMMWlMZTdVUFlvZ05ZYmlXWDRSRlpBbXU4NnVNZjhYanZ1bGU1ZTRaXzlzY0tjSEdJeU93?oc=5) |
-| Trial begins for former Illinois deputy accused of killing Sonya Massey - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNUGxSbnU0dElwMnlDaF9JUDJBT3NsbFdMeVhUUFpVR04zVmRrQjJRMld5b2tRMGtlOXNST3JKNWliNGNJXzA3cVpxS2x3VVFoWHYyQll4T2VOd0w5ZU5aUG52ZktCZFVqU2pyOVpGdUlIQ2wwY3NmaXdKT3BaX0NyY0Y4bEQ5cldjaHprYTQzcV9ISHZIYTJpemt0NzA3aFpiTkVaR3FtOHRmTWZMMGFhOGF30gFWQVVfeXFMUHc5WDZOUTk0N0ZTUnR3eFVCbzFVV2tmRGFuRUotWVBSVDNCd2lITTVKTVk4cHdUSDBPMHpDR0JkYUlZeU0tc3JmS1M3NXpndHlpcE1FZXc?oc=5) |
 | Flight Delays Pile Up Amid Air Traffic Control Shortages Due To Shutdown - HuffPost | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNV2lhMDBRTkk3X1dwa3dYVUg4Z3hFMWxzVkZGb3U1X3ZucjloODhJcjNLdmktcGxGU084amRQN29tNHVYamQ5ZkRiY1Nkd1VpSUVsdUdvbjk1ZVZfMDF6RC00cGxHQWgwTkdJRkF2V2xSX0owMlJoWjctamVESzhSREV4dC1PYnl6clVkR1plOUZjWFRFZW1MbkZiVdIBoAFBVV95cUxPWWJTNWlBZHFZX0tuMlBuY0lZU2JULUR6VnE0amU1VjZLMjdLbVJNOG4tcW1rU3hOM3YxYUpxMDFqanBJcmhLeDYxb2lrMFNSYUcwOW9lMFU4bnZ4Vnkzamo0dlVNZV9FS2hLX29nNHhuYW5xcGdLanVtd3ExcjBnM2d1X2lLelJLTFRzcVVRNDdsdlpGUkFtSzBxN2N6N2FP?oc=5) |
 
 ---
