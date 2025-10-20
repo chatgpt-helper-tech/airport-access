@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 18:25:21（北京时间）**
+🕒 更新时间：**2025年10月20日 18:33:01（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Johnson defends calling anti-Trump protests 'hate America' rallies - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPU25HVDl2THlfMjJxMnlMX3hNTjg1VzEycnZUTVFNWWFJWXBRLV9yZHhwOTlOdlU4NkM4NUw0Ml9SenJJMVZEc29DUXJGM0dMdWd3eXEyRjdlS0JWQzBRYzRUN3RLVmg0NVVIeTdoTE5hZzJpQU9Tdmo5dEVoMU4wMVd3TmRLOHNlTnltd2llcE85MUxBZ3dYdnRvUWdMaWlEWS1RdXE0N2ZOVknSAbABQVVfeXFMT21FOHdfWnFhRkJUOEZTQXV6SlhiNXYwYUpWTG5pMVhwSU9oMUhHbTVrTFZ3a0xpR3NCZXl3Ty0zREhkaW4xZjNua1M1S3FHQjluQ1ZhUXZVOUM0dnlqb1lSUUlrOEdfY0NYMktiSWJubWlxNm1ZT2xEc2U5X0lZY2xhVjlhMTAxbVltZVpZcU4yTVFESUY1ZG45N2hRRnNPdzlDSUVSdE94WFl0RlZuMVI?oc=5) |
 | Fact-checking Trump’s claim that each boat strike off Venezuela’s coast saves 25,000 lives - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPeHJZTHJqS3R3QVZrUFM3MEp2UUQ1MVBMRVpvdzdXVC1SMEtZMU95cVVPUkdTdWUtVzlKRk93cVBuNEkzbTRnUmFLSV83LVRoYkdobjQzanA1Ty1qUzhUWWpjdXRQYWVLaDBuQk5OX1NwYlo5TnAtOW5va3hkRUpST3pNZmQ3cnplQ1B3anl4VExickR5aFh3UDFUeVNvWnZPRnRNYlVodnZCaV9uQ3B2N3VsR3NBRHZwb3UzOG03RjBvTHPSAcgBQVVfeXFMUDdBU2tHQmZQNHJxTnJsYm85YTRMdUMtV3dRamtIbFd6UVJVYmU1RlFUWkpNcWNtdGptU2lhbTAzU2djekRVZ2gxeG5wNDRjT1A0U18tUHV5TkR6QmNfdDFZZUlsR3pJNW1ZbzB4NEhCa3hNa2Q4Z3BBcXFaRU5meE0xRmdCRGZNRVI4bTUtbTQ5aGwtd2ZsamtNalNBR3BpYXpGMVNxaDNNQVpobF8tQmJHYmd3SnN4ZXNraDlWbnpBX3p0N01McGI?oc=5) |
 | Trump Posts Fake A.I. Video of Himself Flying a ‘King Trump’ Jet Over Protesters - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQOENBaDk1NjdYR1ZwVjY1T1FpYWpyN3R2QnpScFUwSG1sSWVoeGcySHdlTEU0R2VSa0VMU2xLdVV4TlRrVE1pTVFyekJ0TE5ZYU5PSFRGbENfN2EweWozQUFuemNTc1RFaGNTX0hkMm9lemdqNUt5em54eW1FWUlKSGNCSQ?oc=5) |
-| Police found Kada Scott's body thanks to anonymous tips, video footage, and her Apple Watch location, sources say - Inquirer.com | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOc2ZJRzlRVGNWSzUwdnBGR3d1c2xkSnB3TlY5a3BDMmp4aU4wOTNRRDAzY0l0NDdmYUoxWkE1RklpcjJTTER4eVBkTnpUMTl3T0JISmdlMHMyOG5WcnpSdmNIcjdldVJDcXRVMHBURmdPSGFZZk9Zc2YwTi12WUEyd2N6d29OblUxN0VzVVQ0dmhndE9t?oc=5) |
 | Lawmakers bemoan Trump’s latest power grab: Troop pay - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOYmFaTm02Rk1JZDBzNVR3c2tGNW5ZSXNncWlQSFFOb3Bxd3k2T2U3MHByRnBHZnZGZnM5a0tuYzN1d0VqYS1Tak9UMkNGR1EzNzh3ZDA3elNZbU56NDF5SGc1VExpenJHUlpheGFldm9QWTMxOEsxbWRsVEtiNHc5cG5XMF9rZw?oc=5) |
+| Police found Kada Scott's body thanks to anonymous tips, video footage, and her Apple Watch location, sources say - Inquirer.com | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOc2ZJRzlRVGNWSzUwdnBGR3d1c2xkSnB3TlY5a3BDMmp4aU4wOTNRRDAzY0l0NDdmYUoxWkE1RklpcjJTTER4eVBkTnpUMTl3T0JISmdlMHMyOG5WcnpSdmNIcjdldVJDcXRVMHBURmdPSGFZZk9Zc2YwTi12WUEyd2N6d29OblUxN0VzVVQ0dmhndE9t?oc=5) |
 | Trump announces tariffs and an end to U.S. aid to Colombia amid clash over drug trade - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNbkhULWVoR0xMT3BqaU9Cd18tTzRYYnBDVUI5SjB0djBydW9uNktDbnNVQ1M3dGFLcmJxMVFaelRZdkNGOFZLWW9LTmpWaHNZdVRoRDBhME5wOGpndjRURFpOWlN6NGdXYmJQclBwTGRTbVhETklxNVV2aTdjVDZJanp6LWZwOFFKV1U2YjBib0tkdDhzbl9fU2Nn?oc=5) |
-| Trump urged Ukraine's Zelenskiy to make concessions to Russia in tense meeting, sources say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPWUNLZ1ZvejNTUXNEdFgxYkRDOEkyY2ozNENsQnRyV0FYb1k0VVJHcThuMS16QXlwMWpUZWdhV3g5bDIxRFZObTFRdEFyQlp2Rm9FUXZ1dndwMlY4eFRLSHJaeGZJRG5uRVpjRDNGbWNtZEc5R19QVjcyNW9EQUZmYjFHdWRUWGRLcmtSY3llVk9WdDdORkNpU3FaNWZkMGVRMVpWXzJLWm0xVjNralJyN0ZpNWJFLUF0SU43V0t3?oc=5) |
+| Trump says Ukraine’s Donbas region will have to be ‘cut up’ to end the Russian invasion - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQb0swdko5SHYwYzRaRjNvNmVWQ1RLZnU3UmtoLWdvcmJKNW1CQlhXOGs3QzM1X2hER2hiWURxN1NRQ0pFMDJ0WklLZ2xlcnpuQURKbmJDaEd1LTdwYTR2cEx5SVB1NUNlc3h1LWNFS2ZJVTJpYTdjY3pnX3lZa29Wb0RoR0tPTTRVZnJHaTJ2R2hlSXlYQzlMVDgydmNuVWVTSzQ3ZEJMTQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
