@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月21日 07:33:47（北京时间）**
+🕒 更新时间：**2025年10月21日 07:41:24（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Trump touts deal with Australia on rare earths ahead of Xi meeting - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQT2xURkVPLXFrWHJIT0Zmb1pxaXpEenFrQVJTUnRUamloeFhvR2hnSlhCSzlmZFU3alZ2Mm40b0wtUGtSendLclV5VDl3VG1WQ1dLQ2JvUFdMMUxQSk92VHQ0TjZYaTdUWUFQQTlXeWhtQm9rdnE3OUlxLTdET2RRbXVfdTVGWXhrOHJEVDRn?oc=5) |
 | James Comey asks judge to toss criminal case, says Trump-picked prosecutor Lindsey Halligan was appointed unlawfully - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9ZTEZpWkJ0Ty1KSDlqTlhwZTU4NmgzYVN3Z0I4UktDSkhkU2xyZlF3Vi1ZWEdybHpTdmplM2ItUEFhRVBKRkNwamFLS0pOdGJGc1RobGNhTzc0WTVoVkprWWFYdXNQUDZDamd4MThnLUxlRE1wZ3VxSm92c9IBgAFBVV95cUxPMGVZVGpRUlNjcURwaU9VY214d00tRlR2WXhCZVZNVS02dGg3ZFBvNm0yRXIxLW00eFA1RVNCUVJsTmdCMWVMZTh5bVY5dUd2S05oNzZmNE5lV1N6UW43Q1ljQ2swbnpxcFExb1RXVkdXWXRUVHlYV2V3emFSeVJfSA?oc=5) |
 | This isn't the Louvre's first high-profile heist. Here's a history of earlier thefts - NPR | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5PVW1Fd3k3TFdTYUZFWWh4Q1RsN0U0cGVZc0ZYM0wwUXZZSzV0eTdDWm9SbWdWVV9MbFYyS1RhZGFFclBDMS1IYzlNalVaZVRMcE5Qa1lGa01kOGdFS2FSM3BpaTBZX2xSMzcyUGh1X2N5SUNjeWUzN3B1UTkyQ3M?oc=5) |
-| Zelenskiy paints meeting with Trump as a success, touts new Patriot systems - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPcGFQeXZCQ2hTNmRaNURWNnlueEFxNFA1SE8wNzhGRFdkR3duaWdhZ25uT1VsT05pUWZ3d29YSElSYVVMRWI0VTF3ZXVJOVlubDNnWl9zTVRXWmlqbTNLVnhqaWo4WV93UW5EQlo2RVpySFNYSEFYR3VNRXFKNEd1cUtzcWhtbjUtbnVkQk1zRHE5ZU9La1RGbEJzWmdQSmNXRGttX2lDZW9MMGQ4aGV4UmxsMA?oc=5) |
+| How Trump-Zelensky meeting turned acrimonious over demands for territorial concessions - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQRXJEeVVXWU5tTVMwUkRUNkU5d3FiLV9pMmJDNXFENEh1M0NiYi1VdmtPZ0FXZmtjdmFsd3pLVnJRaW04SXFwT192Vi13OXN5UkpJZEZzZjFsM1lJUUZiVmZEQ1VXbkFJUExzZEZpcEpqLW1PTU1Ia2d0UlV2dkNpV2xhSzc1Qzdtd0dXSXpxaw?oc=5) |
 | Shutdown could halt SNAP benefits for millions, states say - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1qemZ4YjN1eFVJNk9WV004d3BOQjBLWUQ5NWZISmx2WTRZekxmNTdBY092WnRWSzFQR29naGNPa0hSZmVLRmN1NUw2NUItSWlTZmFUSnMwLUFobG95bWZYa3ZzS2szYmQzU2FnaVo4Zmx3YTNPZ3NsRGd5Yw?oc=5) |
 | Trump nominee reportedly boasted of ‘Nazi streak’ in group chats - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNUUNTalVPWElPSFpHWTloOGN6THBFRVhBZHIwWThob1N6ajlUZl9TSWc2VkdMaVBWOUlUcmJhdXM0QmgzTlB4Rnc4N2VIY1AxaE9HQUVyeGpiSVlPbDUyT2tIek9udW1mUC16MTZ1YUJpa3dOdWJ0UTBhVGUxc20zYjVpalE1VjlBNkxwYTk4UnpOUQ?oc=5) |
 | Trump's fake video featured 'Danger Zone.' Musician Kenny Loggins wants it scrubbed - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxORVhrZVdlVVN0RDdGYzR6NFp6NlJRWjlPQU1LLThrOVhnY21qRkRhZ0V0R29jQmJ1UktLeTZ1R2g1ZHdhUHVNT2JWWjZDS0VjRnRtaXEwYWdiRmxkVU9nVHBiUG5QUl9VakRueWp5blhlY3N4U0Y4SXJIWnR6OTZ6RU5pR05uWFk?oc=5) |
