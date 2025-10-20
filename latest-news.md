@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 17:57:04（北京时间）**
+🕒 更新时间：**2025年10月20日 18:00:39（北京时间）**
 
 ---
 
@@ -17,14 +17,14 @@
 | Two dead after cargo plane skids off Hong Kong runway into sea | [阅读全文](https://www.bbc.com/news/articles/c5y0eeqz732o?at_medium=RSS&at_campaign=rss) |
 | Housing secretary says 'job on the line' over 1.5m housing target | [阅读全文](https://www.bbc.com/news/articles/cj41v5g87w1o?at_medium=RSS&at_campaign=rss) |
 | The two words you need to help you push back at work | [阅读全文](https://www.bbc.com/news/articles/cn09eklpe24o?at_medium=RSS&at_campaign=rss) |
-| UK military to get powers to shoot down drones near bases | [阅读全文](https://www.bbc.com/news/articles/ce8zyyl81m3o?at_medium=RSS&at_campaign=rss) |
+| Stolen treasures, a crown dropped as thieves fled - and serious questions for Louvre security | [阅读全文](https://www.bbc.com/news/articles/cj0e24rrjz1o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | What to know about the heist at Paris' Louvre museum - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9fdDVGWml0R0V1TmRaSjlVVTVkQXBYQ2t6T1M3UEFDdFpTNHpQVWotc1dlSnZHeW1ySUJXSlp2OHRISE5xSVQ1TmptNzk0ZFV5YThNaHc2T0hwRWtBS1ZDWEx6RzFlSUpFeFI4a0hXdmd5R2JkZHNpRw?oc=5) |
-| Ceasefire unravels: Gaza sees deadly strikes; aid flows suspended - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQN1p2Y3N1clA3VjhKMVFJb3lDYVVYaUdqY2tGYkJ1ejlkUDVpajQzalpRd1pBZDc2N0ZWMlk5S3FBLW12dmRhdVBsUkp4eXpzZ0dTX3p2X0x4NGktM2hBdFFQS2hNZy1PSE5lOVljUTNnMG9fbHRVdHJiWnZCRENzLVVNTzVMY3NZdDF1cTZlUVJFbnpOWWVqVVZtREtxZVJEMVQ4aHNtUDBzejhncUQ3MEdiNElDVGZNZE9NMTh5bVlTSEd4Z0VVZ2Rsd2Z0ejAwWGc?oc=5) |
+| Israel strikes Gaza as both Israel and Hamas accuse each other of breaching ceasefire - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOdGdSeG1PcHdXelNfX2tmd2IyemozSFJCNWdxNHNDRXFucGtRdkVwaFM2X1JuUXNYeFZZX1RQSXBtbkJBWldOSVZudV9rdGFaMmVZUmd4bXlzeU9tam9yVmVPQzdGa0FFTDU0U2RiR2hfRU1La0x4ZE5NajNDcXgwbFQ3LXExWHVrb2MwQlJuVjNyOUl2a0xBVDlxVlFoZTE5NEtBbTR3UjZIbDNRb0RGd29JSmFYUG1Jd2c?oc=5) |
 | Patrol vehicle hit by shrapnel as Marines fired live artillery over California interstate, highway patrol says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNWW1iZlpXSFEtNXh5YWhOUlBIUDlzWFAzeWN3Wmp4WnA2aDVQaXNjektjQ1d3NkdoaHZZWkxoR05MM1VCR0duMmZGR3hUSWlOMkJfNkJ1MWZYWl9oMFkzeVoyeFRPcENxZ3pIRWlUMlVzTnUtVzBQNHBvUi1kb0RlVVJ0OF9zMjlCWnFaS0hRLW9LbjhWZmhQa3dfY1kwTVdzQmtUTHFnaVJHMUJTM3Y2b2pSMzJEZ9IBVkFVX3lxTFB4bVJWcGs1YlU3dWNJWjVDRDNGNzZqWkEwVS1rN09UcDZ2R3ZTcmRraWlPSWswU0s3T3J3T3hma3pMZFBIbDNoOV9kaGVBd1pSU2sxR0tn?oc=5) |
 | Johnson defends calling anti-Trump protests 'hate America' rallies - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPU25HVDl2THlfMjJxMnlMX3hNTjg1VzEycnZUTVFNWWFJWXBRLV9yZHhwOTlOdlU4NkM4NUw0Ml9SenJJMVZEc29DUXJGM0dMdWd3eXEyRjdlS0JWQzBRYzRUN3RLVmg0NVVIeTdoTE5hZzJpQU9Tdmo5dEVoMU4wMVd3TmRLOHNlTnltd2llcE85MUxBZ3dYdnRvUWdMaWlEWS1RdXE0N2ZOVknSAbABQVVfeXFMT21FOHdfWnFhRkJUOEZTQXV6SlhiNXYwYUpWTG5pMVhwSU9oMUhHbTVrTFZ3a0xpR3NCZXl3Ty0zREhkaW4xZjNua1M1S3FHQjluQ1ZhUXZVOUM0dnlqb1lSUUlrOEdfY0NYMktiSWJubWlxNm1ZT2xEc2U5X0lZY2xhVjlhMTAxbVltZVpZcU4yTVFESUY1ZG45N2hRRnNPdzlDSUVSdE94WFl0RlZuMVI?oc=5) |
 | Emirates Cargo Plane Slides Off Hong Kong Runway, Killing 2 Ground Crew - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQLVpPTlBsekNlRjNYTjdDeC1yM3pxell2YWpZeUV1WDY3dzY0M1FUNEY1dlhxMTItSTdUZnlBYlNOenp5RklLcjRvWlZlY3ZQZlExaG1IMmMxNFVRM0RRa2tUaWZrUl9Vb1o3Rks4WGFZMDkzZDVXRjVCQmZhbnBCWEtWZC14MUt4?oc=5) |
