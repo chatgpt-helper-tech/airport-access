@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月21日 00:40:53（北京时间）**
+🕒 更新时间：**2025年10月21日 00:48:25（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | Pizza Hut to close 68 UK restaurants with the loss of 1,210 jobs | [阅读全文](https://www.bbc.com/news/articles/c07mk59pzkpo?at_medium=RSS&at_campaign=rss) |
 | Prince Andrew scrutiny continues despite giving up titles | [阅读全文](https://www.bbc.com/news/articles/c4gzp6xgdx4o?at_medium=RSS&at_campaign=rss) |
 | King meets 'hero' survivors of synagogue attack | [阅读全文](https://www.bbc.com/news/articles/ckgzrd3x1pro?at_medium=RSS&at_campaign=rss) |
-| Japan allows over-the-counter 'morning after' pill | [阅读全文](https://www.bbc.com/news/articles/c4gwxkdkyn0o?at_medium=RSS&at_campaign=rss) |
+| Japan allows over-the-counter 'morning after' pill for first time | [阅读全文](https://www.bbc.com/news/articles/c4gwxkdkyn0o?at_medium=RSS&at_campaign=rss) |
 | Deadly Gaza flare-up tests Israel-Hamas ceasefire | [阅读全文](https://www.bbc.com/news/articles/czxk8k4xlv1o?at_medium=RSS&at_campaign=rss) |
 | Penguin and Club bars can no longer be called chocolate | [阅读全文](https://www.bbc.com/news/articles/c86737yg3jlo?at_medium=RSS&at_campaign=rss) |
 | Watch: BBC shows the steps jewel thieves took to break in through Louvre window | [阅读全文](https://www.bbc.com/news/videos/cwyp1pn7k4eo?at_medium=RSS&at_campaign=rss) |
