@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 14:48:06（北京时间）**
+🕒 更新时间：**2025年10月20日 14:56:14（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Marine Corps shrapnel hit patrol car on California's I-5 freeway during demonstration: CHP - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPMVJPMDBaYVR5QWNHRTZiVFAzZzRnVGp2cEYta3JXSldFRWRPdmdCSUlPM0NFYXFSS0wzZGJWSmNHUGNMRGpFZlY0akw5dEwza3JqUTlnekI1d01NQlNINVVrU3BzWEZHS29Dc1ZLekVrUHdfRS1DMDFJaFVSTnBoODJoeFFIc3JHMHdIdjJlSDFSci1MdGJvTU93UdIBoAFBVV95cUxOcTRpaHh4WU5DbTd6SUFuRDEzWXoySEZ3ZEdDUDJuOFJ1aTQtUEUySGJLTmNISUswWEVmRnVSaUZrQjljUjBodS02X3IwaV9NazU3UExLUmhjVVFrYTZzTTB3cVN2bTFxbl9OVVgzOWdqeURMc1hlQW5pTHh1Qm1laUJLU2pieGlFSWRFQk5rYkxYcTlnXzl3TG1VRFVjWjhn?oc=5) |
 | Thieves steal treasured jewelry from Louvre in 7-minute daylight heist - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOMEE2ODFiSVhqWEdNZW9leXRnX2gtODA5QU1mdkFNVWhpMk1Bd0x0V3dBakJtUnM1ZnM1ZWF4em9qQVRYQWtSTXpqLWwwTU8zMHVxbk9hcDREZGNaNl9RQzMtRzlzZkpPS2ZyZGdrbzk3UGNEbmVPUnk2c0puOTlLWE1UMA?oc=5) |
+| Marine Corps shrapnel hit patrol car on California's I-5 freeway during demonstration: CHP - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPMVJPMDBaYVR5QWNHRTZiVFAzZzRnVGp2cEYta3JXSldFRWRPdmdCSUlPM0NFYXFSS0wzZGJWSmNHUGNMRGpFZlY0akw5dEwza3JqUTlnekI1d01NQlNINVVrU3BzWEZHS29Dc1ZLekVrUHdfRS1DMDFJaFVSTnBoODJoeFFIc3JHMHdIdjJlSDFSci1MdGJvTU93UdIBoAFBVV95cUxOcTRpaHh4WU5DbTd6SUFuRDEzWXoySEZ3ZEdDUDJuOFJ1aTQtUEUySGJLTmNISUswWEVmRnVSaUZrQjljUjBodS02X3IwaV9NazU3UExLUmhjVVFrYTZzTTB3cVN2bTFxbl9OVVgzOWdqeURMc1hlQW5pTHh1Qm1laUJLU2pieGlFSWRFQk5rYkxYcTlnXzl3TG1VRFVjWjhn?oc=5) |
 | Israel resumes ceasefire in Gaza and says aid deliveries will restart Monday - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOdVBjSzN1bk1nYmEzWERpd1hkd2ktTlM0MHJvR0NlZHhlTDloQ004MTA2bnFEaGxEM3ZVQ0xlbjhLN2pKR1lTZENxUUplWVJQTDRqWWhySnVaaHV4RnoxV1JHdGdxaDExbm1BcjVfUjdqWW94cmhmODBxRHVtUU9vTjg0TEtmV0NoclI5M1AyYUVHR3plZzFyMkkyWE9tWERJUUIyaTR4WmE?oc=5) |
 | Cargo plane skids off Hong Kong airport runway into sea, leaving two dead - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1STE5UbEVvWk04aXdEdzJJT2RTUkxrUmstYUItWDl6dENVRFMxbDlwd0R1ZmlUdVJGNGFTVlFIblo1YmZhUFV6a3hrMWVqSGZiQ1ljcg?oc=5) |
 | Armed ICE agents break into Gresham home, arrest wrong men, and ‘No Kings’ rallies energize Oregon: Get caugh - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMi7gFBVV95cUxPR2NBX3NHZUZUUmtUSU80cXQtcDVoWk14T3l0S2pNNDVTcENTUkZwWGlPal9vaUhHRkJiSWpaRlRaOWpzTERtR2VjWVJSNEtEQXhrM0JMVndzSU5tNXkwMGhQVmtqUHNmaXhDTnBwci1qWEM0RFRTYkgxQzVtTGFxaFJURDhLMV84djVVMVkzWDM2cHYwYWNyVVVjXy1BMXhFRnk2OGUtNENpSXk3ckUwWnNTRWxQYWFMdFlqVnVVVHd6U1BEMUN1VVRvd3ViUGtoU29QaXhnMktDWGU2TkVEMkVIYlFFdFNhSDVHZV9B0gGCAkFVX3lxTE9sbkdNbFRKTUZFcUZRNVEzeGo5SnE1ZUpvbzVCejNrT0hrSUwta1RoM2FSaU5aUTZuMTNvS0k2Y3BONFZwV1k2aGNwaEtxTWZQSi1DeFE4VEJoaVp6Yy1iNV9mVGk5UVFuaEJiR1VNMkJTQmUyX0lwNE5fblY2NXZxV3FvWldPLTlqUG1BY0xXcU9aSHRMZjNkVGRNYXQ5cWlvbTBLbndMbG5paHh6bDNKZGNoRUpqQ2ZLM21tTjBYclR2LTF0Ynp4eGZqYVl1ZUp2UVhVV3Rub0VELUZCM1gwOUhUOTU3dnFLUzEzOV8wNVpDUmFoM2lUVGtWbGNDWldOdw?oc=5) |
