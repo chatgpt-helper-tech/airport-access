@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 16:32:49（北京时间）**
+🕒 更新时间：**2025年10月20日 16:41:09（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Trump posts fake video dumping brown substance on rally as GOP dismisses No Kings marches - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1EQlRWS0VsRndpR25QSGpkRnZXMFlrbkdSLVFLVjBLdUFtbFNxOHlDWlE1amRZNDU5SE00ZXpOM09BR3hELWNDMmVaaFlXR3I2ZFhMV2Z2Zm9kbDM5elk0RFBrZ09HbWgxRU9PZFNHaW5kREpSVXc?oc=5) |
 | Police found Kada Scott's body thanks to anonymous tips, video footage, and her Apple Watch location, sources say - Inquirer.com | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOc2ZJRzlRVGNWSzUwdnBGR3d1c2xkSnB3TlY5a3BDMmp4aU4wOTNRRDAzY0l0NDdmYUoxWkE1RklpcjJTTER4eVBkTnpUMTl3T0JISmdlMHMyOG5WcnpSdmNIcjdldVJDcXRVMHBURmdPSGFZZk9Zc2YwTi12WUEyd2N6d29OblUxN0VzVVQ0dmhndE9t?oc=5) |
 | Trump announces tariffs and an end to U.S. aid to Colombia amid clash over drug trade - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNbkhULWVoR0xMT3BqaU9Cd18tTzRYYnBDVUI5SjB0djBydW9uNktDbnNVQ1M3dGFLcmJxMVFaelRZdkNGOFZLWW9LTmpWaHNZdVRoRDBhME5wOGpndjRURFpOWlN6NGdXYmJQclBwTGRTbVhETklxNVV2aTdjVDZJanp6LWZwOFFKV1U2YjBib0tkdDhzbl9fU2Nn?oc=5) |
-| Trump told Zelenskyy he’d try to end the war ‘on the current line’ in difficult White House meeting - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNRVJNX3N1ck1panZ2UnlMaklENmtPZm5jWmJQRVVoTmJnR0pGWGhYbk9PSUk4OF9MeC1rdlJFUGpodkprM2w4X3VMVHZtZDJwSVJIQjdHTmhfU0VBbURxaEUtRWcweXBKa0M1VWJ5djRybzJnaHlBbzI4MlRBSkpKWUZUUUZqNnM0ek9oMHBEcDNfOS01OHVqcVlWWFVTVkRlN2JzVA?oc=5) |
+| Trump urged Ukraine's Zelenskiy to make concessions to Russia in tense meeting, sources say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPWUNLZ1ZvejNTUXNEdFgxYkRDOEkyY2ozNENsQnRyV0FYb1k0VVJHcThuMS16QXlwMWpUZWdhV3g5bDIxRFZObTFRdEFyQlp2Rm9FUXZ1dndwMlY4eFRLSHJaeGZJRG5uRVpjRDNGbWNtZEc5R19QVjcyNW9EQUZmYjFHdWRUWGRLcmtSY3llVk9WdDdORkNpU3FaNWZkMGVRMVpWXzJLWm0xVjNralJyN0ZpNWJFLUF0SU43V0t3?oc=5) |
 | Australia Pitches to Be US Fix for China’s Rare Earths Curbs - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQVVBDZ1JQdEFtS04yNkV5Nm9NRXp5ZDJObkJxQy1LOWdvSm5hM1RsWi1EaURSeXJaWlJpWmN5NE5Od096Y0NyWWltX2N3UUxkMGlTYkV4RFozN2Y2em02NnZJZWYtZWtwdFhYam0xeDRpWGQyd1VMN1g4VmZYZDU5TldFdk5qUU55aVE0SldER0FUaGlzR2hvUjJfSHNiRWM2a1I2d2tuNXZCbUxtV1R3SFhOMjI?oc=5) |
 
 ---
