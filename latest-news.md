@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 11:33:37（北京时间）**
+🕒 更新时间：**2025年10月20日 11:40:12（北京时间）**
 
 ---
 
@@ -12,11 +12,11 @@
 | New V-level courses to be brought in for students after GCSEs | [阅读全文](https://www.bbc.com/news/articles/clyzjp5n5kro?at_medium=RSS&at_campaign=rss) |
 | Everything we know about the Louvre jewellery heist | [阅读全文](https://www.bbc.com/news/articles/cg7nrlkg0zxo?at_medium=RSS&at_campaign=rss) |
 | From Hollywood to horticulture: Cate Blanchett on a mission to save seeds | [阅读全文](https://www.bbc.com/news/articles/cwy7ekl4yl8o?at_medium=RSS&at_campaign=rss) |
+| UK military to get powers to shoot down drones near bases | [阅读全文](https://www.bbc.com/news/articles/ce8zyyl81m3o?at_medium=RSS&at_campaign=rss) |
 | Tel Aviv derby called off by police after 'violent riots' | [阅读全文](https://www.bbc.com/sport/football/articles/cgr4n07509wo?at_medium=RSS&at_campaign=rss) |
 | Bereaved families call for inquiry into government response to suicide websites | [阅读全文](https://www.bbc.com/news/articles/c62e9v762pqo?at_medium=RSS&at_campaign=rss) |
 | The two words you need to help you push back at work | [阅读全文](https://www.bbc.com/news/articles/cn09eklpe24o?at_medium=RSS&at_campaign=rss) |
 | MoD probes claims Russian hackers stole files on bases | [阅读全文](https://www.bbc.com/news/articles/clykev1p79xo?at_medium=RSS&at_campaign=rss) |
-| Green Party leader defends wealth tax proposals | [阅读全文](https://www.bbc.com/news/articles/cly2nyz3ed2o?at_medium=RSS&at_campaign=rss) |
 | World of cricket's farewell to umpire Dickie Bird | [阅读全文](https://www.bbc.com/news/articles/c7816gyny22o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
