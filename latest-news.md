@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月21日 00:09:52（北京时间）**
+🕒 更新时间：**2025年10月21日 00:17:47（北京时间）**
 
 ---
 
@@ -8,15 +8,15 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What has caused the outage at more than 1000 companies? | [阅读全文](https://www.bbc.com/news/articles/cev1en9077ro?at_medium=RSS&at_campaign=rss) |
+| What has caused the outage at more than 1,000 companies? | [阅读全文](https://www.bbc.com/news/articles/cev1en9077ro?at_medium=RSS&at_campaign=rss) |
 | 'It's out of this world': Life-changing eye implant helps blind patients read again | [阅读全文](https://www.bbc.com/news/articles/c0qpz39jpj7o?at_medium=RSS&at_campaign=rss) |
-| Prince Andrew scrutiny continues despite giving up titles | [阅读全文](https://www.bbc.com/news/articles/c4gzp6xgdx4o?at_medium=RSS&at_campaign=rss) |
-| Pizza Hut to close 68 UK restaurants with the loss of 1,210 jobs | [阅读全文](https://www.bbc.com/news/articles/c07mk59pzkpo?at_medium=RSS&at_campaign=rss) |
 | Everything we know about the priceless jewels taken from the Louvre | [阅读全文](https://www.bbc.com/news/articles/cg7nrlkg0zxo?at_medium=RSS&at_campaign=rss) |
+| Pizza Hut to close 68 UK restaurants with the loss of 1,210 jobs | [阅读全文](https://www.bbc.com/news/articles/c07mk59pzkpo?at_medium=RSS&at_campaign=rss) |
+| Prince Andrew scrutiny continues despite giving up titles | [阅读全文](https://www.bbc.com/news/articles/c4gzp6xgdx4o?at_medium=RSS&at_campaign=rss) |
 | King meets 'hero' survivors of synagogue attack | [阅读全文](https://www.bbc.com/news/articles/ckgzrd3x1pro?at_medium=RSS&at_campaign=rss) |
-| New V-level courses to be brought in for students after GCSEs | [阅读全文](https://www.bbc.com/news/articles/clyzjp5n5kro?at_medium=RSS&at_campaign=rss) |
+| Japan allows over-the-counter 'morning after' pill | [阅读全文](https://www.bbc.com/news/articles/c4gwxkdkyn0o?at_medium=RSS&at_campaign=rss) |
 | Deadly Gaza flare-up tests Israel-Hamas ceasefire | [阅读全文](https://www.bbc.com/news/articles/czxk8k4xlv1o?at_medium=RSS&at_campaign=rss) |
-| Zelensky ready to join Trump-Putin talks after 'frank' White House meeting | [阅读全文](https://www.bbc.com/news/articles/c93dl93v581o?at_medium=RSS&at_campaign=rss) |
+| Penguin and Club bars can no longer be called chocolate | [阅读全文](https://www.bbc.com/news/articles/c86737yg3jlo?at_medium=RSS&at_campaign=rss) |
 | Watch: BBC shows the steps jewel thieves took to break in through Louvre window | [阅读全文](https://www.bbc.com/news/videos/cwyp1pn7k4eo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -25,7 +25,7 @@
 |--------|-------------|
 | How military’s ‘safe’ plan to fire munitions over Interstate 5 went off the rails with CHP cruiser hit - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQbXVSYm1TYkZJVHotWGZuV3pSSzF0eUZtUjdMQ0ZVRGxnUkFuRHVhUFdsQnk2cm5VMVpyMzhfazZkeW5aemlKZGVVbU1oWjdLQXgtdXFVaVZZT2VxN1RpT1pfakJOaWU4Tk00dWxKZ091MGlicjNmdTd0UFpvQ0pXb0VERnEzVEVnY0xNZzNtM2JxNExvcUF2Umx6eXRrQkU?oc=5) |
 | Israel strikes Gaza as both Israel and Hamas accuse each other of breaching ceasefire - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOdGdSeG1PcHdXelNfX2tmd2IyemozSFJCNWdxNHNDRXFucGtRdkVwaFM2X1JuUXNYeFZZX1RQSXBtbkJBWldOSVZudV9rdGFaMmVZUmd4bXlzeU9tam9yVmVPQzdGa0FFTDU0U2RiR2hfRU1La0x4ZE5NajNDcXgwbFQ3LXExWHVrb2MwQlJuVjNyOUl2a0xBVDlxVlFoZTE5NEtBbTR3UjZIbDNRb0RGd29JSmFYUG1Jd2c?oc=5) |
-| Colombia’s Leader Accuses U.S. of Murder, Prompting Trump to Halt Aid - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOQzliVHVmdEVSTjl1dWdZY19ZNUEteGNXNXpiOTE0OWRLUjh0QzFjbFpFMmZCRnhpdFpHZmpJT3pKdmdjb3VWVzFrejMtYXk2bHl5Z2xoVVZZd0FaWDVLelBteW5mV3ZxRDZ6c1ZSdFpyZ2NOTlBoRGFnMHdRWmNOMkJTY251QQ?oc=5) |
+| Trump to hit Colombia with new tariffs amid clash with Petro over drug trade - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9IX09vR0Z3cU52cXU4MG40LUNPUEhPWndEZ0VPV1ZpZjhuUlMxUFdXRXZYYUxEaWZpMWFpcEpIcE5lbVAyZE9FX2NkTHk5Um9yNUt6OHRyNmRWRUttVmxveDRyMDhWdmVJc1JfR0l3TlZrWnNXem14Y3VFVQ?oc=5) |
 | Supreme Court to decide constitutionality of law barring illegal drug users from having guns - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE0zd1JxbFdQWmR1aFZ4RGpLR1dzOVZCZGVvelNjU1FXYVpTYTZCRlhKdTlQRGZZRTFnV1B0b2h0OEN6YnBFa2p1amc4dTg5cDBtWC1xYVV6aDdsYjJIQkg4Sm9iWURFMTNocERyZ0FhSdIBdEFVX3lxTE5JaW42WFhYSjBlYUFDa0VWeVVhb3QtTkhRcjgtZURxeEVCSkdMTXJhS0FCaXdTdFVmYjJyUzlZRFd1SzFJNmkxWnU2cWd5V2x4ak1Kc19NNjIxZ3ZpVHpHSU1JX2s4cVJ2eFFrYmpzdFR2S3R1?oc=5) |
 | Outrage grows over Trump’s 'disgusting' AI response to 'No Kings' - Euronews.com | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxQcXJtandOLXdtN0FZZHhGZ1lPYlZ5Q1h3OFZIVkk0bG9JS2JYVlBoM2hUNVRSdkgya0FFV3JMUF8zZmZ4ZlFsUlpkMFhSSnlJeW1tTG1KS1RRb1RZNWlZWUJ0QmloWHEtaUt0XzF6U29HMzd4RWF6VzlRRnZDUDNRZV8tTXd1RmZ3aDA5Q1lzQ0MteDlZTktJRFVPbVRkSDRDMnVIRzlrejNidG9tdXc3YVFFb3ZRRl95eW9KNWh6b3NrNlVOYXJ1M0l3Q1RMeWc?oc=5) |
 | Officials, locals undercut Trump claims about Venezuela drug boats - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNa2NBY1pFQzgwTUY5M25vNzNlb1I2ZGNDeV9mdTRUc3VfVWVUdXk0Skg5Ul9nOW94cTRnbGVpSThJOVJaZ2k2dk9YbGJ0bVROdmk3V0hZTjBIUEV4WkZDUThJV09DUG9qOG5LeWVJMmkwMTZCVTltWDFCT0NiMFIwRVNPZTcxRGoxSUpV?oc=5) |
