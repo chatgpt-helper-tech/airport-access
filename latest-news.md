@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 18:33:01（北京时间）**
+🕒 更新时间：**2025年10月20日 18:40:45（北京时间）**
 
 ---
 
@@ -9,13 +9,13 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Giuffre thought she might 'die a sex slave' at hands of Epstein and his circle, memoir reveals | [阅读全文](https://www.bbc.com/news/articles/c1e3leqx89zo?at_medium=RSS&at_campaign=rss) |
-| New V-level courses to be brought in for students after GCSEs | [阅读全文](https://www.bbc.com/news/articles/clyzjp5n5kro?at_medium=RSS&at_campaign=rss) |
 | Inquiry into 'shocking scale' of Leeds NHS maternity failings after BBC investigation | [阅读全文](https://www.bbc.com/news/articles/c4gpxnk9n4po?at_medium=RSS&at_campaign=rss) |
+| Zelensky ready to join Trump-Putin talks if invited | [阅读全文](https://www.bbc.com/news/articles/c93dl93v581o?at_medium=RSS&at_campaign=rss) |
 | Everything we know about the priceless jewels taken from the Louvre | [阅读全文](https://www.bbc.com/news/articles/cg7nrlkg0zxo?at_medium=RSS&at_campaign=rss) |
 | Louvre heist creates 'terrible image' of France, justice minister says | [阅读全文](https://www.bbc.com/news/articles/clyz58n65g3o?at_medium=RSS&at_campaign=rss) |
+| New V-level courses to be brought in for students after GCSEs | [阅读全文](https://www.bbc.com/news/articles/clyzjp5n5kro?at_medium=RSS&at_campaign=rss) |
 | Chancellor says Brexit deal caused long-term damage to economy | [阅读全文](https://www.bbc.com/news/articles/cy0ypx859x8o?at_medium=RSS&at_campaign=rss) |
 | Two dead after cargo plane skids off Hong Kong runway into sea | [阅读全文](https://www.bbc.com/news/articles/c5y0eeqz732o?at_medium=RSS&at_campaign=rss) |
-| Housing secretary says 'job on the line' over 1.5m housing target | [阅读全文](https://www.bbc.com/news/articles/cj41v5g87w1o?at_medium=RSS&at_campaign=rss) |
 | The two words you need to help you push back at work | [阅读全文](https://www.bbc.com/news/articles/cn09eklpe24o?at_medium=RSS&at_campaign=rss) |
 | Stolen treasures, a crown dropped as thieves fled - and serious questions for Louvre security | [阅读全文](https://www.bbc.com/news/articles/cj0e24rrjz1o?at_medium=RSS&at_campaign=rss) |
 
