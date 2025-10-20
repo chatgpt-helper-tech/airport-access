@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月20日 10:00:23（北京时间）**
+🕒 更新时间：**2025年10月20日 10:08:52（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| U.S. scrambles to save Gaza peace deal amid new clashes - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTFBuQk5hY1BFQVY4RWR0c3BBdWxyakFVZjdJSEF5Vy1pTThrOVVoZVJ0bmxJTVU3VE4xclNSUXNRVkJabXc2NVZha3RheUpDMDRuMXIwdnpjamtmNnd0aE9DUFd0MnBGY0RJTzI0X2xR?oc=5) |
 | Thieves steal treasured jewelry from Louvre in 7-minute daylight heist - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOMEE2ODFiSVhqWEdNZW9leXRnX2gtODA5QU1mdkFNVWhpMk1Bd0x0V3dBakJtUnM1ZnM1ZWF4em9qQVRYQWtSTXpqLWwwTU8zMHVxbk9hcDREZGNaNl9RQzMtRzlzZkpPS2ZyZGdrbzk3UGNEbmVPUnk2c0puOTlLWE1UMA?oc=5) |
-| Israel strikes Gaza as both Israel and Hamas accuse each other of breaching ceasefire - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOdGdSeG1PcHdXelNfX2tmd2IyemozSFJCNWdxNHNDRXFucGtRdkVwaFM2X1JuUXNYeFZZX1RQSXBtbkJBWldOSVZudV9rdGFaMmVZUmd4bXlzeU9tam9yVmVPQzdGa0FFTDU0U2RiR2hfRU1La0x4ZE5NajNDcXgwbFQ3LXExWHVrb2MwQlJuVjNyOUl2a0xBVDlxVlFoZTE5NEtBbTR3UjZIbDNRb0RGd29JSmFYUG1Jd2c?oc=5) |
 | Artillery Shell Detonated Over Interstate 5 During Marines’ Celebration, California Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQdXRCRlJybFJubEFvWGFfdjQ4VVFtRTJjZFUxdDN5M2p3SXBDZW5Kc3FsSEIxaHNPa1huSDA0QUNLVzVpd3R6b05vMEY1Z3BFQVFHZk1DMmVnUFV3TlpZa285a0UxMTVrUmRfa0dRUDA4WWQ1MlEwUTdRU2hfeDF6MG9wZEk4bklUSkJMNW80bXlfam8?oc=5) |
 | Trump says will hike tariffs on Colombia as drug trade feud escalates - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNdkdxaEhGVnNFY3JUbU9UVW5UYU12Y0loM09xdkF1SkdYTnoza2t2d2VRZ2dzNV9DWm00VGo1M3VoYk1GVWItZzk4WEl2TXBtMGExR0VNdmJXU1ZHa3BaOVlsLVBiOXVqcTdDUVZIV01CenQ4dDlDUWk3eDlqR1c0cHBfRVBLYThHZGk5U2c3aV9WZ2k0ZHR0TlRXRlZocXI1M1kxODZTeVdJLU0tNUE5UVpmNHg?oc=5) |
 | Secret Service found a "suspicious stand" near Florida airport used by Trump, FBI says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNeFRwbDVXMEtmRDBtM01yaXdEZDh6eUNrSVNtRFY5UUlEcDJFN3JWQmNNQjREYi01Y0paTHotSlB4T0J4VVIyNmxuM1l2UmtRQ0tjamM1OEU4aWlETjVEcjhDa0REa0ZUWUNrT0ZDc0NPWFZyWjdIaS1qVkQxeUdDZmlBdExmUdIBiwFBVV95cUxNNmZpRC01dS0tMHhOUDVfWElLU0h6VS1qTnJGdU0tZ2c5U0dMUEZCdlktdklSRjNQUlM4eE45UjdMRThEUHRha3Z4cDBfRUZlUjV4VmExdVo1dlBPMWZIUkRLd3FjVG44cTFVS29PbGZuanFJTTlPWmg3bXNIY2NrTmhNdmFJMlZ3TFZJ?oc=5) |
