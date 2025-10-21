@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月21日 23:40:17（北京时间）**
+🕒 更新时间：**2025年10月21日 23:48:44（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | British grandmother on Bali death row to return to UK after drug smuggling conviction | [阅读全文](https://www.bbc.com/news/articles/cly9jln834wo?at_medium=RSS&at_campaign=rss) |
 | French ex-president Sarkozy begins jail sentence for campaign finance conspiracy | [阅读全文](https://www.bbc.com/news/articles/cvgkm2j0xelo?at_medium=RSS&at_campaign=rss) |
 | Watch: Woman with Parkinson's plays clarinet during brain surgery | [阅读全文](https://www.bbc.com/news/videos/cn7evl56zpgo?at_medium=RSS&at_campaign=rss) |
-| Holly Willoughby murder plotter Gavin Plumb has appeal dismissed | [阅读全文](https://www.bbc.com/news/articles/c205l7ppd3go?at_medium=RSS&at_campaign=rss) |
+| Hermès appoint British designer to lead menswear | [阅读全文](https://www.bbc.com/news/articles/c3rjnqvv5qqo?at_medium=RSS&at_campaign=rss) |
 | Oxford Union president-elect ousted over Charlie Kirk posts | [阅读全文](https://www.bbc.com/news/articles/ceq0929eyg5o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -31,7 +31,7 @@
 | Chances dwindle of quick Trump-Putin meeting in Budapest - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOVDNjdXdVcE1iWkRwcW0teFhEMDFBVGR5M0JsdW05ZmlzbXNZclBXbXdCTzdQZTJfM2RXcWZiSWJzcnJCT3B4NkxyRjhrdVQ3WkZSbXBvMEtUNV8xUzZva2FXVjNpUHFoOFBfVk5ocHFmVWV3bGRqdGJLUVdzQ2p4UkY1LXRvaVNUUVlpN3pPQVhuUF9IT3Z5Ng?oc=5) |
 | Paul Ingrassia: Report on Trump nominee's "Nazi streak" text threatens Senate confirmation - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPQ2ppWC0zN3MzeTJpSmxjYy03UnVsYzFuQkFJVTF1TkZjWnk0dkg2Q19QV3VvNXhyU1FOUE5wa3o3bm5iTHk5bUpfWUwxZjZkTDJoaVB6Yjd6emNZNHBHX1ZheXpic0RRNmRXS1VfMl9oNGlYMnpZUndaaW5COFEzVkt3cU9udw?oc=5) |
 | Government shutdown live updates as Trump is set to meet with Senate Republicans - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOajJHQWtYSENBbTQtY25xX2ViWDFxUDgwLTFzOFpNdHZ4TFFYMnpZVjBhbi1RT3pYYWpjbGx3R1lVWXIwN3hvV0llU1BERzQ3Skd1bVlWbG9fWWFNM1JZTjdoV1F5Q1VOMmJldTB2TG1nMUJLRmt0UTZEOTFQb251dUtERVJkVEFXYnczNDBWZkNIRWFVM2dIblNndDhfcWtpTXUySNIBqgFBVV95cUxNcXJBd05Lc1BMLWJhQ1I5NUVLNXFJZld0Z0djbmo5a1FSeFhxVFdsczRBQmJ5dkl1d3B0VFl1Z09kT0dEVklJQ0Zvb1RIX2h3QVphSlQ5X01tYkZocGZadXhoNkJ0VlNjMHQxS2lkVk41Q2lGa3dIY1k0eEN3cW4yWFNsMXNDYVlLUVFTbTA5VlplY291TUZiUWt6SzZmQnp5OWxHYml1ZkVFUQ?oc=5) |
-| Ecuador releases survivor of US strike on 'drug sub' in Caribbean - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBTTHJRZVo5c1A4QllwZ1JHdVl4b093Z0xLUWpEejdoemxDSDJYZ1VpM09hRXBqamx1MTR4MDZNVVc5WFd6LUhvQmRza3M2TnhkTU1MTGZVTzRsUdIBX0FVX3lxTE9VV0ZSaHVjS3paRzUwSGFUS1BFQmxQSkRWQWN0dlpNdFRhOGxybnBQdXA4Tzd0SUpGVjNPMllMMlh0Smh5ckdPbExlQ1ZiQy1jb0ZjbG5vbzNYOWd0YmRZ?oc=5) |
+| Republicans aren’t negotiating an Obamacare extension yet. But they’re getting ready. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOSXFWLXFUVXAtT3Y0b0FVX2tIRjlvWFZIU2htN051STdJajZhNENxWndiV0tTcjA0a0pjY3h0UkVUbzRSc29MdzVSaGxvTmFlRXBNN1YwLXIta2x6UGp2ejRMQkF6WFZEVVA1endDRVdOTjZVYXdJNkVJVHBVbmpsRjlKQ0pWUmlsV2NEXzZfbjJrZw?oc=5) |
 | Trump can deploy National Guard troops to Portland, appeals court says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNYU1JcEw2ZU42dElWTXFHNVRma3ZKdV9LajAtV2QtQm1wV1ktaGVXa242aVhGbEhCSVBPbzdra1lhQXNJcE5JTklTdTh3bnZPc2JIZlBFTjU3VjVmcGVwanU1NXFGaVd0WV91dGFhc0FlQ2tTc3lyNl8tNDdhWWRNUTM0ZTc4R0tLeWhzVWhzTGxUZWhTek5ZQmp3?oc=5) |
 
 ---
