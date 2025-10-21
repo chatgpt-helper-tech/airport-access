@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 06:40:51（北京时间）**
+🕒 更新时间：**2025年10月22日 06:49:55（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Vance visits Israel and says ceasefire in Gaza is going better than expected - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOODVsbjM5enViaDZvMU1QUzdRMnd3RXl1Ti1qa0l0Wk5JMVhqM1N2Y1NQQXFDM3BHaXAzUjVCVEFycWJDMURDZk1UaU1RRUp1R1NFbXd3cG9TUnEtLWRaSm1SbWNOQUZPU0hjSTNoTENiQ1FjbDlnRmNVenA1WnJTSFQwdk1NNjdaNGF0WVA0UExPdmFDM3Vaa21UYkxzOVVwaEpYaEY0c3c?oc=5) |
 | Trump wants $230 million from DOJ for investigating him: NYT - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQRExpLS1ZaW00cGE1WDRPNFJEUk55cDFMQnZCWXRPamlMX016SnZ6XzlnbHdnZm02YUY0bXRTb01MUzhlek9YYlJnOUw1aEQzSDdHOGtNUVQzS2RGNzZmSjZaaEROcTR1N0RMeTVfdkxuZkxZYk4xbXNvRjJSY190VjBpTVFZbVhCZDdHaWZjVGfSAZYBQVVfeXFMTjRTZGhLVmZsSzJ5XzU5QWpIYU1wUGw0SjVwNVpuTHE2aUdSclJPSFZnc0tNT0hiR0V4NTJQclp6cHZyVmlMTmRjaGcwR3ByeVA5WWhDeEo5T2FJaElmVXd4WFRFN245SUxWWGdyUnI4Q1VaS214TVhwVXU1UUc3NUZfVjFsWURXcDVUd0dEYmJ3anVkNUJB?oc=5) |
 | Pardoned Capitol rioter arrested for allegedly threatening to kill Hakeem Jeffries - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQSGZodU9BMHV4c0R1dlVONkRvdU0xaFJuR2tYbnplUEtrcjhBTE0wVjAxWENOOXNuTEtEc0NoTXgydVh2eFVHMU9BNXJGWjJkNEdOeVRsRktZS3dEbUJScHBTTVhTY1VhdmM3VVQ5VUdVY3N0Tk9QUElMazdJQlNYQktGaXBWYTg1Sm9UVjFBRWxXZw?oc=5) |
-| Arizona attorney general sues U.S. House over seating Grijalva - MSNBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOR0EyTEZwejVJT29NcnJ6ZzFtbHlpWEJLeHV1YmZiNmZjRlRJcXVPTktjWS1ublRvTlpKWDNqLTZwY1V5OUhIZTB1S2NiVzZhZGJ3eXlBUmpPU092Q0ZIMWtyb2EwRy01cWl1eGtEUUVzUU01WkhQbFkyekJFWUFNUF9Wcl9NVGp5eDNCT0V2VFo3R0NDdDB0TGdseVJLSGhHdmFCNmFlU3FWbWPSAXNBVV95cUxNS1hrUVlpRFNDdnNmZ0o1cHl4djlGVHBDd0hJOTJpVGN3RUZjMHd6bnQ5bVZlMllDa085MVF1OXV0Z0w1LXpZcmluaHVDTWRnMFlJdXlLY3YzQlB4R3BtTGxrRlJBMzd1cmMtWHRFcXBNUWVJ?oc=5) |
 | Trump’s nomination of Paul Ingrassia loses Republican support following racist text messages - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNTHB3WFJXVFl6eUhIMExndlY0d1VPVF9CdXdLVXRaNmVhbE5XQ05jMm5CTkpWZEtsdmdmN2FaZ1M3NlF2UUN3bVdrSnJFSURKeFd3cHU3Ul9hVGVSWm9VdnhPbW5XV1VMMFRyMUp5MGlYc1U3cDh4ZW1BdGc4NWNzUWJHUVY4X3ZJb1l4SHVYU09FOWRPdnVV?oc=5) |
-| "I am not a secret Nazi": Maine Senate candidate responds to tattoo accusations - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNbFI1YV9pY3VOY2o0X1IwWlNjYVVlMm5aVzhOQjNXS1hULTcxWkRMVXdSZk12cm5ha2l2MkdnRVFqeVlic0s3SXBSUzg5SEtJbXNldlBtXzB3TkJNOXl0U3g4eDExUzU1ajU5R2xLWVZLMTJ2WXBqcWlxdDBoU0FWUXZSUQ?oc=5) |
-| North Carolina Senate advances new congressional maps to help Republicans gain additional US House seat - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9PbVN6VXV4ajdaUHJnNTVjMjBKeklLSDFMc0txZmxJaF9aQTVKX3ZSNlo0eUV5ZjVNOXl0djh3RGoybTlRcGNLZE9BMm5QTFVUVUg3bVgxR3QwZ29XSWJpaVZwakpBT0hhT25ZNHZqeDB5S055TFo0?oc=5) |
+| Arizona attorney general sues U.S. House over seating Grijalva - MSNBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOR0EyTEZwejVJT29NcnJ6ZzFtbHlpWEJLeHV1YmZiNmZjRlRJcXVPTktjWS1ublRvTlpKWDNqLTZwY1V5OUhIZTB1S2NiVzZhZGJ3eXlBUmpPU092Q0ZIMWtyb2EwRy01cWl1eGtEUUVzUU01WkhQbFkyekJFWUFNUF9Wcl9NVGp5eDNCT0V2VFo3R0NDdDB0TGdseVJLSGhHdmFCNmFlU3FWbWPSAXNBVV95cUxNS1hrUVlpRFNDdnNmZ0o1cHl4djlGVHBDd0hJOTJpVGN3RUZjMHd6bnQ5bVZlMllDa085MVF1OXV0Z0w1LXpZcmluaHVDTWRnMFlJdXlLY3YzQlB4R3BtTGxrRlJBMzd1cmMtWHRFcXBNUWVJ?oc=5) |
+| Platner says he’ll remove tattoo that resembles Nazi symbol - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQM25EM0ZhZHNFTE9GTm1OZWw0a0xYWkZkOFhBT2swWHBQOUplUFF1OEc2c2gzMDlvaGtXeXFWQ3lzYmsxeXJsVEdTei1KM0tNT0R3ZzlodFBGeHZ1RV9hVGVEdmhiVTZrU3B5UDdwaUxsaVBQZXAwRzI5WEVaSmpJcFdB?oc=5) |
+| North Carolina lawmakers vote to add GOP House seat, in win for Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQMFhEZl8yWGxVVmtTNW9LUi1nN2lNRVE1a2c0Q0xsRXpTZTVLTWwxdXk5T0hqMTNFdVBCWDM2UTFYcXlZdTdySXFLdkdhck9YUjlyYkx3eWhmaGhBSk45by1jTlNQbDNLMmYyOE5faTZ6eWRra1dCcnFBdmdmc3h0YVhkTGM4M0k0SmVwUXd4MHAzbEppenc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
