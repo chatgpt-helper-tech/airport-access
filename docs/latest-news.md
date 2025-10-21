@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月21日 10:25:49（北京时间）**
+🕒 更新时间：**2025年10月21日 10:33:18（北京时间）**
 
 ---
 
@@ -8,8 +8,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Virginia Giuffre would see Prince giving up titles as a victory, co-author says | [阅读全文](https://www.bbc.com/news/articles/c201k3wd65yo?at_medium=RSS&at_campaign=rss) |
-| Palace likely to face questions about what it knew in Andrew scandal | [阅读全文](https://www.bbc.com/news/articles/c0l7zx499deo?at_medium=RSS&at_campaign=rss) |
+| Virginia Giuffre would see Prince Andrew giving up titles as a victory, co-author says | [阅读全文](https://www.bbc.com/news/articles/c201k3wd65yo?at_medium=RSS&at_campaign=rss) |
+| Palace likely to face questions about what it knew in scandal | [阅读全文](https://www.bbc.com/news/articles/c0l7zx499deo?at_medium=RSS&at_campaign=rss) |
 | Maccabi Tel Aviv to decline any tickets offered to Villa match | [阅读全文](https://www.bbc.com/sport/football/articles/c3w98224xx8o?at_medium=RSS&at_campaign=rss) |
 | Amazon services 'recovering' as Snapchat and banks among sites hit by outage | [阅读全文](https://www.bbc.com/news/articles/c20pgp3nx07o?at_medium=RSS&at_campaign=rss) |
 | Thousands of criminals could be released early under government sentencing reform, Tories say | [阅读全文](https://www.bbc.com/news/articles/ce8g5k6kyllo?at_medium=RSS&at_campaign=rss) |
