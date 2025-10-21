@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月21日 14:41:50（北京时间）**
+🕒 更新时间：**2025年10月21日 14:49:00（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Virginia Giuffre would see Prince Andrew giving up titles as a victory, co-author tells BBC | [阅读全文](https://www.bbc.com/news/articles/c201k3wd65yo?at_medium=RSS&at_campaign=rss) |
-| Palace likely to face questions about what it knew in scandal | [阅读全文](https://www.bbc.com/news/articles/c0l7zx499deo?at_medium=RSS&at_campaign=rss) |
+| Questions about what Palace knew in Andrew scandal show no sign of going away | [阅读全文](https://www.bbc.com/news/articles/c0l7zx499deo?at_medium=RSS&at_campaign=rss) |
 | Two grooming gang survivors quit national inquiry panel | [阅读全文](https://www.bbc.com/news/articles/cy5qkq7zex3o?at_medium=RSS&at_campaign=rss) |
 | Maccabi Tel Aviv will decline any tickets offered to Villa match | [阅读全文](https://www.bbc.com/sport/football/articles/c3w98224xx8o?at_medium=RSS&at_campaign=rss) |
 | Hamas ruled Gaza with an iron rod - will it really give up control? | [阅读全文](https://www.bbc.com/news/articles/cn51w77vlp9o?at_medium=RSS&at_campaign=rss) |
