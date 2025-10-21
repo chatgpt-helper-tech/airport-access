@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月21日 13:57:05（北京时间）**
+🕒 更新时间：**2025年10月21日 14:01:17（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | New court filings reveal who the DOJ alleges Comey authorized to leak info - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQZzBHOVNWY21venlnWU9hWWhKUVlnbkx3LUsyaVlxQUo0VFBVeGY3TWtBNDVxSVVqZVoyZkhfLTFMaUpJTnp3TkhSUjZFajlQMTExei1Ya0NmR2gyN21ORTJodFdpMHQ1N1Uxdjd3eU93Vl9zajU4b3B4a1Fub1NZdGI0b1c4MENn0gGOAUFVX3lxTE1DVjlIWkxHOXJXUTNnX2xoaXYtaUFsVWVJRFFra3ZERmYwMlFpYzFrdnF4VFpNNlBQT1VBQmV3Qld5aFNnZGQ4S3dYOEVxSTRDNnlkXy1kLVlrRlVWY2JDSG5MOXRIb1NObDZ0bVVvRWdWM04yenNtTmY3anR0TGNRZmk0N2dTaTFoN0VDQWc?oc=5) |
 | University of Arizona becomes seventh US college to reject Trump’s ‘compact’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQQ2RocmptSkVzLXdKbjN3SUhPZGlfLWhJTnRxWkVWOEJybEprTms3TDdLMUtYdlJnMUpGeFNDTGxQUEF2S3pTREZheTVGcWNnN1VQOVhtSEpXYVRsQ3FibHBpZm9BdnFlR3lVS2tFTW1rYXJkUU5DVWxtb0JnaHBEel9RUWxiWnJrQjRWMUZqUWFhU2x6YlE?oc=5) |
 | Man arrested for allegedly threatening to shoot up Atlanta airport - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOMEYyRUxTZGlIY2lzSzhLLVVUNnFpWkw2Wi1IbGYxemFPYUFVZHlJNWlqOHk5clA1NFdSQjlRNXpyc2JtNWEtcXVERkc5X2dWM1NCZXExY0ZpS21nZ0VpdFBNaWlfNUJWbnl2MFQzYXZwMWpGSkE2Tmx5eDhlYXl0M3pEejREVkVOYmVyZmpJWU52bnNDMVlVR3I2Skl1OUtvTnfSAacBQVVfeXFMTklYenl5ZUtQNmd0MGI3cVZfNi1HMElhV3prQ3ZCUUZlcUhQTUN1dXFNdWNjZ2ctNjN3VndhYmg5RGZoLTBRRVlyY0hJZDBxMDhvUFh6QVBuSUVSQWJ2dkpvTVE5RXVPSnZCak5qdHV1THdwTWM0M0x3N0Z1dUhPczlNRXctZF9PVEZrV1JHR3JrOUhabGMxdzBQNGFhSWVjX2tSdTFuc0U?oc=5) |
-| ‘He’s not going to pass’: Thune says controversial Trump nominee for whistleblower office won’t be confirmed - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNaUlKSlUtS0szWUEycGdZdGZoWG8ydGpZdS1XZ202V0ZEVlp6QlBQV3hodmE4ZnVObjBrQWRsclhfQ1Q4UHZVLWdDNDB3OE1jTHp3OEdRWmtfQnlvMUF3eFBheHZ5QnA2UTJ5UXhYNzlTbUZMMzBGYXhpWHpyY2txMzdYdC1CczQ4SW5Z?oc=5) |
 | States warn SNAP benefits may stop in November if government shutdown continues - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQYzlQcWVNdm8wTkQ2bUNjdktVSENHNVZ1eTlZU0RLSUUxVTA3Rml4RmYwRy0tNUd3RTBtRDVNVXdLNVJOaFl2d09aVnhUZVdBbmhhcU11alItTWJKSFZWM1dfRG9SdXdBZ3BxanJlQndYdEhheEU4Q0tfTUtydEZ0emxn0gGHAUFVX3lxTE83SmpyZlp2cl90MHg4U2FKUDRzSFpUZm9vQVhsaGlwaDljMWFqdWpKQ2ZuZDJ6Y0p1blZZUmw0dDMtWVkybnF1YkJ2LTg5OGhJQ29DVEhoOUVTcDRkeWlTMUE4Y2pSX1J0bVVGaUpGOEZsd2lkaWxxRXJWQUpvREhXZ0FqcVV4cw?oc=5) |
+| ‘He’s not going to pass’: Thune says controversial Trump nominee for whistleblower office won’t be confirmed - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNaUlKSlUtS0szWUEycGdZdGZoWG8ydGpZdS1XZ202V0ZEVlp6QlBQV3hodmE4ZnVObjBrQWRsclhfQ1Q4UHZVLWdDNDB3OE1jTHp3OEdRWmtfQnlvMUF3eFBheHZ5QnA2UTJ5UXhYNzlTbUZMMzBGYXhpWHpyY2txMzdYdC1CczQ4SW5Z?oc=5) |
 | Trump's fake video featured 'Danger Zone.' Musician Kenny Loggins wants it scrubbed - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxORVhrZVdlVVN0RDdGYzR6NFp6NlJRWjlPQU1LLThrOVhnY21qRkRhZ0V0R29jQmJ1UktLeTZ1R2g1ZHdhUHVNT2JWWjZDS0VjRnRtaXEwYWdiRmxkVU9nVHBiUG5QUl9VakRueWp5blhlY3N4U0Y4SXJIWnR6OTZ6RU5pR05uWFk?oc=5) |
 
 ---
