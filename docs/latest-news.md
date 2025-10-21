@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 06:01:11（北京时间）**
+🕒 更新时间：**2025年10月22日 06:09:54（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | PHOTOS: White House starts East Wing demolition to build Trump’s ballroom - PBS | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOTEZPZjZEVWZ1ejYwdXNybUhwQ3BkalNmc1NmdExZY05ZSk44REw5X05feFoyUEFlVHhWZ05KY3d3SGNWamRXQ3N4M3pOS2swbGtvWU1ZcVU4azVOT1VoakZVNklwR0pIQUlTeUdidHNTU2hsb0tTa0xpa0NPZGx3aWt6ZFZIMnh6Sjh6UGVxN0Y0ZUE0LS1SZjZMbkVBNk9sbUNoUHZqdmNrbzVwVVE?oc=5) |
-| Plans for Trump-Putin meeting shelved days after Budapest talks proposed - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBoZ0VVNEI0RVFyQi1IV29Jc2MzWm9EZHlhNFd3dGlNM2lERlNfM3pGakhvV1d0ZzNXTnViblVONVVGUVVnZzdfVkVaaDA1MFQ0a29uSTM3RmdTUdIBX0FVX3lxTE5fZk5zdE9xNl9kYnVRbFRmYk1ucU9PWC1BZjVPVGJLZVlZYkhibThnVU45VFY4NjNPU1pVaENmZnVYVU9nYmNmYnRVaG1vVVEwSGZuOTNtMmpvakhISzlR?oc=5) |
-| Vance visits Israel and says ceasefire in Gaza is going better than expected - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOODVsbjM5enViaDZvMU1QUzdRMnd3RXl1Ti1qa0l0Wk5JMVhqM1N2Y1NQQXFDM3BHaXAzUjVCVEFycWJDMURDZk1UaU1RRUp1R1NFbXd3cG9TUnEtLWRaSm1SbWNOQUZPU0hjSTNoTENiQ1FjbDlnRmNVenA1WnJTSFQwdk1NNjdaNGF0WVA0UExPdmFDM3Vaa21UYkxzOVVwaEpYaEY0c3c?oc=5) |
+| Trump-Putin summit planned for Budapest is on hold after Rubio spoke with Lavrov, US official says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQaGpNcTVNSjJYcm1sLWVQc2ZpTDNoWHE2TXRuX1VqNUhyS2dBTk1odU9FY1hZa0lNUnJxcjZJMkNHbVFDZkxkMklhN3BOZkhuZDRIV1Jud3FzYnZYTndhVzNKTkJGNV9MS0wyMHRmXzYtNE5qOGpRdnpYQjg2OW9GX3RXQVdCNjVUX1BKLUJYN1NPWDhR?oc=5) |
 | U.S. marshal and undocumented immigrant shot during ICE stop in Los Angeles, officials say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPMXhUYjJFUkJEekVJbGlIOHpEdDJPbU5KMTBkNDBJc25yV1gzSjd5MlEwald6TXVLclNqRmpmN2JYR1prQWRMa0VkZFJSeVBOSXFpbThUaWE5c2hubWVqYXI4MEl5Zlc1T01wMVJadkhfQTBNLWItT2wzRDZTQUlTUmRqUlhhRFB4bTNWRWswc1FsMnhpODd1Ui1fbjlEZF93WTJLUHMxVEhKX1Nucl85SHRSZWNKY2U00gFWQVVfeXFMUE45NkhYYUFXVHZfeEo5enJBS1h4dDdaSnlXdzlJT2FVOGFRQ3JZemozYmJmcmJwTy1MMTBvNWdNWVl4NGhRX2hxcy1xYlp2V0k3RGhLUmc?oc=5) |
+| Gaza ceasefire deal 'going better than expected', Vance says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5VZk05Zm1CYkwtVW04UGVLWm5aT1h3VG1ZQ2ptZ20zVHBkVUdkNlRvRUFCQlZkaEVqbm9FSmhua1lsdnB0VnRzS1l6NzM4c0gtVmRyY2lUY212QdIBX0FVX3lxTFBOZlA3SzVWY2JrdVNOZWhFSVpsbkRtVWltd2dxdkJBQTdsS0ZDLWtkSUY0MGp1azAwMVVHczVjbHk2NDBLSmxfbC01UUd2amlkaC1KR0NlY3BBN0EyaW9r?oc=5) |
 | Pardoned Capitol rioter arrested for allegedly threatening to kill Hakeem Jeffries - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQSGZodU9BMHV4c0R1dlVONkRvdU0xaFJuR2tYbnplUEtrcjhBTE0wVjAxWENOOXNuTEtEc0NoTXgydVh2eFVHMU9BNXJGWjJkNEdOeVRsRktZS3dEbUJScHBTTVhTY1VhdmM3VVQ5VUdVY3N0Tk9QUElMazdJQlNYQktGaXBWYTg1Sm9UVjFBRWxXZw?oc=5) |
 | Republicans broach a longer stopgap bill as shutdown enters fourth week - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPVjVaa1hiY2k3NkdMWEE4dEdXLUo1dTlOeTZvUHp4dnVnQVVzZXlCM082dWR0NnNuN2dHS3h5VnRyUDkzSHB1X1RHYjJxaDlaNDN5V3Q4Wngzc0dJVkp0eXNObi1oVnZzRWFBd2hJU2tMSzZ2NXNxTFhFVHdMX2VKMGpkUmRSWXkt?oc=5) |
 | Trump’s nomination of Paul Ingrassia loses Republican support following racist text messages - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNTHB3WFJXVFl6eUhIMExndlY0d1VPVF9CdXdLVXRaNmVhbE5XQ05jMm5CTkpWZEtsdmdmN2FaZ1M3NlF2UUN3bVdrSnJFSURKeFd3cHU3Ul9hVGVSWm9VdnhPbW5XV1VMMFRyMUp5MGlYc1U3cDh4ZW1BdGc4NWNzUWJHUVY4X3ZJb1l4SHVYU09FOWRPdnVV?oc=5) |
