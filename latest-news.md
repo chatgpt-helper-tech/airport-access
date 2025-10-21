@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月21日 21:01:58（北京时间）**
+🕒 更新时间：**2025年10月21日 21:09:59（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | Prince Andrew should share what he saw of Epstein abuse, Giuffre's co-author tells BBC | [阅读全文](https://www.bbc.com/news/articles/c201k3wd65yo?at_medium=RSS&at_campaign=rss) |
 | French ex-president Sarkozy begins jail sentence for campaign finance conspiracy | [阅读全文](https://www.bbc.com/news/articles/cvgkm2j0xelo?at_medium=RSS&at_campaign=rss) |
 | Watch: Woman with Parkinson's plays clarinet during brain surgery | [阅读全文](https://www.bbc.com/news/videos/cn7evl56zpgo?at_medium=RSS&at_campaign=rss) |
+| Willoughby murder plotter fails in sentence appeal | [阅读全文](https://www.bbc.com/news/articles/c205l7ppd3go?at_medium=RSS&at_campaign=rss) |
 | Two grooming gang survivors quit national inquiry panel | [阅读全文](https://www.bbc.com/news/articles/cy5qkq7zex3o?at_medium=RSS&at_campaign=rss) |
 | Vance arrives in Israel as US tries to strengthen Gaza ceasefire deal | [阅读全文](https://www.bbc.com/news/articles/cd9k2dj37wqo?at_medium=RSS&at_campaign=rss) |
-| Weather warnings issued as potential named storm forecast to affect the UK | [阅读全文](https://www.bbc.com/weather/articles/cly9rlzy0vro?at_medium=RSS&at_campaign=rss) |
 | Hamas ruled Gaza with an iron rod - will it really give up control? | [阅读全文](https://www.bbc.com/news/articles/cn51w77vlp9o?at_medium=RSS&at_campaign=rss) |
-| France's crown jewels may have already been broken up to sell on, experts say | [阅读全文](https://www.bbc.com/news/articles/ckgk0y97v0go?at_medium=RSS&at_campaign=rss) |
+| Weather warnings issued as potential named storm forecast to affect the UK | [阅读全文](https://www.bbc.com/weather/articles/cly9rlzy0vro?at_medium=RSS&at_campaign=rss) |
+| Eight countries added to methanol poisoning warning list | [阅读全文](https://www.bbc.com/news/articles/c33p7vvyp2zo?at_medium=RSS&at_campaign=rss) |
 | Japan's first female leader: A historic moment with caveats | [阅读全文](https://www.bbc.com/news/articles/cze6dgxlzwxo?at_medium=RSS&at_campaign=rss) |
-| 'It's harder to be a parent than a space shuttle commander', trailblazing Nasa pilot tells BBC | [阅读全文](https://www.bbc.com/news/articles/c0mxzdg203jo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -29,10 +29,10 @@
 | Japan elects first female leader, a hawk who promotes ‘Japan First’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQVzFQX2VCZTNDSlEyZlFqTkZMd2FkUXRXQk5rbDVvdUlGVnB0X3dfTlRsQTZzbFQ4NW5PeURuVklNSjAzVHJYd2ZDVV83SGs2a0lXaVhPLWhKcmZfdVNkalMwY1ZMNk92Rl9HUEhvVHVmUHhYVkliN28tUk1qUWxUaXZDalFBTDB5WWQxbA?oc=5) |
 | Biden completes round of radiation therapy to treat aggressive prostate cancer - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPLTZkSkQ4S0ZYalVyQnhiMGVVWFpFRE91dWZBaW9CRHhjUUd4NUo3MTVpMW5lN0I4cm45ZzktUkQzNUx5WTdoenExOWxCY2lUM242VEgtYldrSUVvYzczcFgzOWtxcjRjclZoX0MyQlVIcmhlNjRYenoxZ3VuSHhkcUxxLUlNT09pMUM3TVRMQzVUTDdTRVRudHlhNWdCY25X0gGmAUFVX3lxTFB2T3FGcWwyRmZfYXFzc1lVVkNyN3UwZHZxeHlEVUNieHFfUF90Tl9Ud2pBcTdKWDJOMFBIYVRaZHRDWHcydzZTRkpkWURSSXZZTjJranNsaG9GU0x0WUVDaTB6Q290c1hnejFEYjJRWU5TdUxVcFNBbVpGUFVRODBTTHJvODgxNzN1U3NYQ0htVTRoYmtac0ZNaEgzSEFHS3Z2cFlaVnc?oc=5) |
 | Republicans broach a longer stopgap bill as shutdown enters fourth week - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPVjVaa1hiY2k3NkdMWEE4dEdXLUo1dTlOeTZvUHp4dnVnQVVzZXlCM082dWR0NnNuN2dHS3h5VnRyUDkzSHB1X1RHYjJxaDlaNDN5V3Q4Wngzc0dJVkp0eXNObi1oVnZzRWFBd2hJU2tMSzZ2NXNxTFhFVHdMX2VKMGpkUmRSWXkt?oc=5) |
-| Plane makes emergency landing after crew bang on cockpit door over comms problem - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQUUxMcTI2WDFnU1dMd3BNRnBhOXBFbUFyT0pqQTMtUGVueEVfWURZa281Z3hseVRUdW9yQlBaYTV3MEwwalZreDUzSGlxb2xHYmZad2pnd29md1V3ZDVZQTdwVk1EMnE5eFNqdmF0aFhpTnUwMDhDRkUxU0pNU1BqWGpQdnowVWNscF94MWtHTjhWY0dBZmxYUFRzXzd3dXN2bHZBeFUyMUZkb3FGakpwWi15bDJOYzdo0gFWQVVfeXFMUFRSQ2FaeDFSam1ua0F3d0VFVzE4cjVvY3piOWxyY01iU1kyMWl5V3QzNG9Wc2xRNk5QUzFxNU15M1I1aXZDTHI1RldxNEVFeF9ZTFB1N3c?oc=5) |
 | Pardoned Capitol rioter charged with threatening to kill Hakeem Jeffries at NYC event this week - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOcnJzLURNS052dml3RFduVTd6eGNnd1NWanE5MzJqSmptbURDUmsxUXVOYjNtOHh0ZGQ4MEp4clRTRVNmckFBMTRETWZ1SjFSQk5pM2lvS2VucjB4LTVZc28yYUdtQm41RmUzQlMyRzdOUnIwQWZuQWJXelhkUW5XaThNVFFvSlZFdHNBcmQ0UmZ2WGRJbjVVM3R6TXEtX2ZH0gGmAUFVX3lxTE9NVXA3YXVzVE9UZjhIRWJTMWZpVHF5aGdOR2xtSmNsMnl0cS01TEREQ1MzSTlXX3VoZzF3X2dYYlBpY0pyMTJBN3pnZVNEYXhSLWlhYTZFWlltODBqWFVUcmtrTHJIeUw2dU95WmFKZ0FZOHJBd3Rha1RoWFhEaS1UdV90dFQ1NEZoa3gwM3FCcGJmRV9UNUtrcEhxY3BQaE1zanJ2QUE?oc=5) |
-| Can a U.S.-Australia Deal on Rare Earths Counter China’s Dominance? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOMmRxcC1ONUFWSl94Vko2WW1RWE1RYVVvRnpab2FNZlJWakVXRGktNzNoTS1La3pZLUlIbXVlZFB0UWZCNGFvSHAzSVd3cVZyZW4yOFRNb3JlbVZteUVLZUx4cXU4QTAwS0V0N3dOZEdIRV9CUTM3bnBETFlzR1BUR04xaTE2ZWxTaEE?oc=5) |
-| Kathy Hochul’s uneasy Trump relationship will be tested by Mamdani - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPelE2d3FyT3Y5Vmstd240TnNyR0FjbWk3MUpMNW9HNERsMXNNWjdxM193NS1nTE9CS3MyVTRYdjc4SFloNTg5Q0tHZGd4bFNld3pYNkhwdEVvX1dOaWx2UWRsMF83LTAtWUFSX3lFNWp4RGZadkRXb0ppNlZFTHFYOHUtUy0wOFRXZGMxMWxGZXRsMUN4elJKMDZRdS1wMmVCaEs4bFktVFMxeVRPRW83Y3BsN21Ydw?oc=5) |
+| Plane makes emergency landing after crew bang on cockpit door over comms problem - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQUUxMcTI2WDFnU1dMd3BNRnBhOXBFbUFyT0pqQTMtUGVueEVfWURZa281Z3hseVRUdW9yQlBaYTV3MEwwalZreDUzSGlxb2xHYmZad2pnd29md1V3ZDVZQTdwVk1EMnE5eFNqdmF0aFhpTnUwMDhDRkUxU0pNU1BqWGpQdnowVWNscF94MWtHTjhWY0dBZmxYUFRzXzd3dXN2bHZBeFUyMUZkb3FGakpwWi15bDJOYzdo0gFWQVVfeXFMUFRSQ2FaeDFSam1ua0F3d0VFVzE4cjVvY3piOWxyY01iU1kyMWl5V3QzNG9Wc2xRNk5QUzFxNU15M1I1aXZDTHI1RldxNEVFeF9ZTFB1N3c?oc=5) |
+| Congressional Democrats Investigate Arrests of Americans During Raids - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNT2d2ek5uUi1YMXRKVFhqY3hYQlpoaVZJTlMxUkoxWGVzNURVSnBEcUF1bUV3RGpaTFBKaExtSE01aU52VGxha1Bxa2xMTzlWWUtQa21IdnRjVm5iVVRLY0I2WUltUjViZXpaLXZRd0R6WGtwWERpNTNYYllrWTJXcHotV0ZwdlJ2UVRWdTFHNUU?oc=5) |
+| Shares of Australian critical metal companies retreat after early surge on $8.5 billion U.S. minerals deal - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxPZVhLVnJrQjNrZ2V0NHIxVFhwbURDa0puVE1lSkFiZmZPcXNCeVNTeGRwem5HT1ZLN2U1U3U0MF9LeDR4d0UtdFJRQXV6eWE1Rk91WXJ4Zkd5Q0g2VnV0WUkyLVpiT0J6Q09DalBtRWxnalJhSThqeE96WUd5R0FwZ29hc0daWnQ0VkVybHM5NUswb2tWYS1XVEd5RXFxQzQ4YnZRUC1zVkIyY2xiWkdYSGNBVjJ6eWJ3SFo4aHFYV3VwMVJiYXZPVUV3ZWZTQXZnSm5zZUhn0gHbAUFVX3lxTE9nMVhBWkQ5WlFBM2hJbnpTUFd3ZFNxb2RtWEZUQ29rMzc0Q0FLdVVhaEF6UTE0WWZZWFFRdTBLRWVVNU1GZ2h2dnV4eHA5OEh3Y2pmSHdzZHZsbXZSZEhlaG1Rb2gxYWFETGdJR21DdkwtMmFhZ0QwRzdjNHhBV2o2ZVZydlFlbmtaWUVXeXlQd004TkhBU09VM0FUR0tzV3VpOUJSd1VLbnVocFVBb3F4X0V6S2NuSXFTTzE4bVU3eWlzNjZXcnRKRzdaenROcDZJdXR2akg2VVhZaw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
