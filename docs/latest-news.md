@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 02:01:51（北京时间）**
+🕒 更新时间：**2025年10月22日 02:08:24（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Marines investigating errant live-fire blast over California’s I-5 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNUVJDeGFLVjQ1TU5zTl80M05uTjVaaFdqTXpDZlRYQ1hXLWMyeU5EcDhfNllTMndscmZQMDJLZF9MWTBLOThqNWM0YTViMVJhdGxsREJEMVNlbnlBVXJubVVHQU9vQnVyX1JvdWRFSkJITFo2T0ZSX1dTcEFGUnFVb3JkQmpyQUd1MkFOaU1QOTBja2pnZTdOenJ4WGozSWRoLUJj?oc=5) |
 | John Thune casts doubt on hearing for Trump nominee who sent racist texts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQYUdrZHdMdWJHSUZUOFItaFRCcVhHclNPS01Kek83a3MwRFk0dnh0VkM2cDN2T1I5dVNNMGFIVDN1QkR2UkJpdzg1bTZlU0hFUWI1VFJ2ZmotYVRodGUtRVFPbWFOWGMzN3dFNldnWHBEdzJSTEgyQTNfWFFlRll3WnNFTFdLdVBnWkx2djhQTE40NWVSOWhqWXVnTHczV2pyVWc?oc=5) |
 | Vulnerable House Republicans press Johnson on Obamacare subsidies - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxOYVo2bnRNUVM4XzFCWGZiRGR2Y3QyaHdHY3dBXzI5QlR6WFpVNGdMbWlFZTg3U0Z0SkJLT0hQWXJGdmxYTnEwVzgyVnNLby1VZjVGVEJlYzVOZUVrUTFhaGZRMzlLcnNUb2praUxJbFpyeWhNRV9ZUkxueXc3UGhCTE5sQWwzUGRQR0RSV0VGOFZtRmNwX01LVjlOYi1Tb0kxNHk3WEszcXNueVJia3hiNTgtSzBBU0YtaDZBNzdCR2RUazljZEIwSDREdnI?oc=5) |
-| Pardoned Jan. 6 rioter arrested for alleged threat against Hakeem Jeffries - 10TV | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxQLWtneW9kRUo0SnYwVklGX1RON0d1aFI1Z2hvbFFPeEZuby1XOUk3WURGQXhMVllyR0VqQWRXLWJ0RUhraXl0aS1zSVZhbTdFZTVZR0RqSWN5ZFU1VkNPcjQtc1JUREc0UE1wcEF1SUNQbWxDOUp5X1pGcEd6MEprZDFEZkctNEtFbzBxVk9wZ3ZoWTd6c0R4MmlqYmxqQzZGQUVLdEpZVFRzYURIU0ZPVTRoTk1BZC16RkVucU11ZUJ6dVBnTXFTTndpUDZHMzA?oc=5) |
+| Pardoned Jan. 6 rioter accused of threatening to kill Hakeem Jeffries after Trump clemency - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNTUFJeWQwS3l2TTJhc2ZiUDdxYXdMNGVxM1NZNnJnTFNEcFdKbkJGMno1dXZ2T0RHLXh1amR4UzZDVnZuRTJGRTVEdnZaZ3FVNTNzZ1haNTNkQ0IxbURRN3AwRE0tVzdkTUhlaUF4Mm9KQzFuY2lNcUR4OGNVX0hPRDhjLTRyTUtHdXVvWnNWWlBUdzZlZEFUSVVCNmU3WWtVSE9KbDRJR1BBbzJQUHJv?oc=5) |
 | Can a U.S.-Australia Deal on Rare Earths Counter China’s Dominance? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOMmRxcC1ONUFWSl94Vko2WW1RWE1RYVVvRnpab2FNZlJWakVXRGktNzNoTS1La3pZLUlIbXVlZFB0UWZCNGFvSHAzSVd3cVZyZW4yOFRNb3JlbVZteUVLZUx4cXU4QTAwS0V0N3dOZEdIRV9CUTM3bnBETFlzR1BUR04xaTE2ZWxTaEE?oc=5) |
 
 ---
