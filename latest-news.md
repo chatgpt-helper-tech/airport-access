@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月21日 08:09:55（北京时间）**
+🕒 更新时间：**2025年10月21日 08:17:19（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | How the Louvre Jewelry Heist Unfolded - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPS0dfeXlUMDRCX0hjOXZ4N1hhSjVpSm43X1JEU2dQRjZ1U2JZQlQ1ZThqc19RVHJCSU9ZM3RRYW5kNUdoeXk4WnQ5SG9UWnZYYm5xZll0UnZhUUJJMVN0dndiNXFDZUluVkhvNlM5VXcwRlljdHpNbGxRV2U2bTI5allKcUlKVHZ4VTEyXzlKYVdpN1d6WU9ibk9mZWM1V3dEV2JKTmY0TFQ?oc=5) |
 | All but 2 Universities Decline a Trump Offer of Preferential Funding - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOcEs3RGxiSjBwOEVOX1c0TXdzV29Id1BHc3dBSmVEVERsemVjakdwWW1QTk1uRldNX3RZVGJTQmExVUxKWU9RLVNMQXRTOWtJaUJZZTVSOGw4U2ltOTg2dktkWXBGYU9oZjNfS1VSeVZRWUhCWlU3ZkJiUHlza1M5R3MwSV9xZzA?oc=5) |
 | Trump nominee reportedly boasted of ‘Nazi streak’ in group chats - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNUUNTalVPWElPSFpHWTloOGN6THBFRVhBZHIwWThob1N6ajlUZl9TSWc2VkdMaVBWOUlUcmJhdXM0QmgzTlB4Rnc4N2VIY1AxaE9HQUVyeGpiSVlPbDUyT2tIek9udW1mUC16MTZ1YUJpa3dOdWJ0UTBhVGUxc20zYjVpalE1VjlBNkxwYTk4UnpOUQ?oc=5) |
+| What U.S. Forces Face as Venezuela Puts Russian-Armed Military on Wartime Alert - Military.com | [阅读全文](https://news.google.com/rss/articles/CBMi5gFBVV95cUxQMEp5OGUtS0h2VTd3T19RTzJuZGNOS3NBTllwUDlyRUFpN2swQk1jUHE2ZXRRdHkyYWtncHc3aDJyQjlHNHdCY3ZyQUNQQmp2d0NGb1psc05mQ1hjUzdOVkNqbk5QVzZ1NTdUNzEwMGowVGlNbUtRdFRtSmJtOHFxMHRVWDJRNEJfenUza0pMcS1VZmhOOG5kNHk2cFp2OXhKVk9QWTBSY3ZIS0QtbmMyUk9BaDVseFpYVHRSOVdxQ2VpTzNPTjBwN0lTeFlnZFM1NEluaVpvUWI3a25pOVF6dmgwZFJLQdIB6wFBVV95cUxQU2dXaWJ1dnJhS05ONUdJdFFTNVVTX1QySU9pN2pxczRjQnhUTzg3Y0gtN3JDWk1tYlBCZk5QOUkyLXA1SzJQbXQxc0luTVN3RWtGQVhPSDFrTEt1bGlYU1VFUHd2TnVLZ3gxRjYwU2VyNTdGYURyeHdKeXVzU3Q2bUUzLUpWY1ZSNVlaWW43LTU5TDZKSlJTTmlwM2ZxNzBiS2EyaUx4UTF6SEszeXVsQUhHaUZtWTgtTWpkWFRkR0FsenZnQ1VUY0ptRmNDSG9CSVpMSnNvTTJET1lpVmcyWHNIMEhHeTVicVln?oc=5) |
 | Trump's fake video featured 'Danger Zone.' Musician Kenny Loggins wants it scrubbed - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxORVhrZVdlVVN0RDdGYzR6NFp6NlJRWjlPQU1LLThrOVhnY21qRkRhZ0V0R29jQmJ1UktLeTZ1R2g1ZHdhUHVNT2JWWjZDS0VjRnRtaXEwYWdiRmxkVU9nVHBiUG5QUl9VakRueWp5blhlY3N4U0Y4SXJIWnR6OTZ6RU5pR05uWFk?oc=5) |
 | Shutdown could halt SNAP benefits for millions, states say - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1qemZ4YjN1eFVJNk9WV004d3BOQjBLWUQ5NWZISmx2WTRZekxmNTdBY092WnRWSzFQR29naGNPa0hSZmVLRmN1NUw2NUItSWlTZmFUSnMwLUFobG95bWZYa3ZzS2szYmQzU2FnaVo4Zmx3YTNPZ3NsRGd5Yw?oc=5) |
-| Trial begins for former Illinois deputy accused of killing Sonya Massey - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNUGxSbnU0dElwMnlDaF9JUDJBT3NsbFdMeVhUUFpVR04zVmRrQjJRMld5b2tRMGtlOXNST3JKNWliNGNJXzA3cVpxS2x3VVFoWHYyQll4T2VOd0w5ZU5aUG52ZktCZFVqU2pyOVpGdUlIQ2wwY3NmaXdKT3BaX0NyY0Y4bEQ5cldjaHprYTQzcV9ISHZIYTJpemt0NzA3aFpiTkVaR3FtOHRmTWZMMGFhOGF30gFWQVVfeXFMUHc5WDZOUTk0N0ZTUnR3eFVCbzFVV2tmRGFuRUotWVBSVDNCd2lITTVKTVk4cHdUSDBPMHpDR0JkYUlZeU0tc3JmS1M3NXpndHlpcE1FZXc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
