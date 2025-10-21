@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月21日 21:57:27（北京时间）**
+🕒 更新时间：**2025年10月21日 22:00:59（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | A man took videos as his home floated away with him inside in Alaska's storms - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPQ0dOcWJLNkdWZXJDd1pDWU9UcEl4UDl0dkNnaHVUR3l3ZG5fUENJa0F3QzQzcC1FSjIyS1BWb2YzbWFaN2ZMZnlncEh4aHFtWVFKU2RzUkpDcmk5WVBZeWkzVWQzTEJYS2RHM25JbXhJckYyMmc3dHZhSzdFei1FSlBJckRwbU5lbUVzVnVKMzZBVHZibnRwRjJNcWTSAVZBVV95cUxOVFJHTjE1Ylltc2k1TGFOa1lyMHAxRzhybkQyUWdPZ3lfLUxaTWdlaXF1MEdJWU5JRG9JVjRwS0ZXWFdZbE1ScmFPNUFXS2NmTDhYS1h6dw?oc=5) |
 | Plane makes emergency landing after pilots lose contact with flight attendants and hear knocking on cockpit door - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiaEFVX3lxTFBpTE9aYkViTFlZODBtc3NlcVRsSkpXQ0JaUEJ4Ml9FdXd3ckhSanJ0VXVvMXIzSzNoUXh2N0doZDRyS1JnU0xGSlV6T2pYTXZQOUxERlV2QjhEY09LVEl3am1BSG0weThN?oc=5) |
 | Pardoned Capitol rioter charged with threatening to kill Hakeem Jeffries at NYC event this week - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOcnJzLURNS052dml3RFduVTd6eGNnd1NWanE5MzJqSmptbURDUmsxUXVOYjNtOHh0ZGQ4MEp4clRTRVNmckFBMTRETWZ1SjFSQk5pM2lvS2VucjB4LTVZc28yYUdtQm41RmUzQlMyRzdOUnIwQWZuQWJXelhkUW5XaThNVFFvSlZFdHNBcmQ0UmZ2WGRJbjVVM3R6TXEtX2ZH0gGmAUFVX3lxTE9NVXA3YXVzVE9UZjhIRWJTMWZpVHF5aGdOR2xtSmNsMnl0cS01TEREQ1MzSTlXX3VoZzF3X2dYYlBpY0pyMTJBN3pnZVNEYXhSLWlhYTZFWlltODBqWFVUcmtrTHJIeUw2dU95WmFKZ0FZOHJBd3Rha1RoWFhEaS1UdV90dFQ1NEZoa3gwM3FCcGJmRV9UNUtrcEhxY3BQaE1zanJ2QUE?oc=5) |
-| Can a U.S.-Australia Deal on Rare Earths Counter China’s Dominance? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOMmRxcC1ONUFWSl94Vko2WW1RWE1RYVVvRnpab2FNZlJWakVXRGktNzNoTS1La3pZLUlIbXVlZFB0UWZCNGFvSHAzSVd3cVZyZW4yOFRNb3JlbVZteUVLZUx4cXU4QTAwS0V0N3dOZEdIRV9CUTM3bnBETFlzR1BUR04xaTE2ZWxTaEE?oc=5) |
+| Republicans broach a longer stopgap bill as shutdown enters fourth week - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPVjVaa1hiY2k3NkdMWEE4dEdXLUo1dTlOeTZvUHp4dnVnQVVzZXlCM082dWR0NnNuN2dHS3h5VnRyUDkzSHB1X1RHYjJxaDlaNDN5V3Q4Wngzc0dJVkp0eXNObi1oVnZzRWFBd2hJU2tMSzZ2NXNxTFhFVHdMX2VKMGpkUmRSWXkt?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
