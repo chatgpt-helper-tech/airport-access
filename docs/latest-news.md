@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 05:24:27（北京时间）**
+🕒 更新时间：**2025年10月22日 05:32:40（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Plans for Trump-Putin meeting shelved days after Budapest talks proposed - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBoZ0VVNEI0RVFyQi1IV29Jc2MzWm9EZHlhNFd3dGlNM2lERlNfM3pGakhvV1d0ZzNXTnViblVONVVGUVVnZzdfVkVaaDA1MFQ0a29uSTM3RmdTUdIBX0FVX3lxTE5fZk5zdE9xNl9kYnVRbFRmYk1ucU9PWC1BZjVPVGJLZVlZYkhibThnVU45VFY4NjNPU1pVaENmZnVYVU9nYmNmYnRVaG1vVVEwSGZuOTNtMmpvakhISzlR?oc=5) |
 | PHOTOS: White House starts East Wing demolition to build Trump’s ballroom - PBS | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOTEZPZjZEVWZ1ejYwdXNybUhwQ3BkalNmc1NmdExZY05ZSk44REw5X05feFoyUEFlVHhWZ05KY3d3SGNWamRXQ3N4M3pOS2swbGtvWU1ZcVU4azVOT1VoakZVNklwR0pIQUlTeUdidHNTU2hsb0tTa0xpa0NPZGx3aWt6ZFZIMnh6Sjh6UGVxN0Y0ZUE0LS1SZjZMbkVBNk9sbUNoUHZqdmNrbzVwVVE?oc=5) |
+| Plans for Trump-Putin meeting shelved days after Budapest talks proposed - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBoZ0VVNEI0RVFyQi1IV29Jc2MzWm9EZHlhNFd3dGlNM2lERlNfM3pGakhvV1d0ZzNXTnViblVONVVGUVVnZzdfVkVaaDA1MFQ0a29uSTM3RmdTUdIBX0FVX3lxTE5fZk5zdE9xNl9kYnVRbFRmYk1ucU9PWC1BZjVPVGJLZVlZYkhibThnVU45VFY4NjNPU1pVaENmZnVYVU9nYmNmYnRVaG1vVVEwSGZuOTNtMmpvakhISzlR?oc=5) |
 | Vance visits Israel and says ceasefire in Gaza is going better than expected - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOODVsbjM5enViaDZvMU1QUzdRMnd3RXl1Ti1qa0l0Wk5JMVhqM1N2Y1NQQXFDM3BHaXAzUjVCVEFycWJDMURDZk1UaU1RRUp1R1NFbXd3cG9TUnEtLWRaSm1SbWNOQUZPU0hjSTNoTENiQ1FjbDlnRmNVenA1WnJTSFQwdk1NNjdaNGF0WVA0UExPdmFDM3Vaa21UYkxzOVVwaEpYaEY0c3c?oc=5) |
 | Undocumented immigrant, officer hurt in shooting during targeted enforcement stop - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNLThxZTNhQWdzLVpUUDZ6b01LME81MGlyWldmWHdSN1M1NUR3NG9WSG9kV0s3WDgxTGZ1bUtSZ0F2SWNYdkZ2RjVzd1lKdGZ6aU9tNWVzZ1NDSmxram5LNG1ZOFB3eUlaWmxWbjN4S01YZ2JmMjdDSEZqc3QtVV9qNmlGeWpyOVZuRmd1X1ZoTzV5N0c2UWRsYjZuZUlNS3pFa0lVYmNVZVZvVkJKOEFZ?oc=5) |
 | Trump scored a legal victory over National Guard troop deployment to Portland. Here’s what we know - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOMHhSMDhFUDc5TGNtbi03LWF1Szh5WnN5MldmSUExelJFRl85WW9SczdPcnVXMGNkZjE5cEg3a1JPbGdlMV9aY2g1MzgtUTZ1WFdJMnBsMFJWamJDZ2F3dFFkT1BrMV9ETTVkVDlFaEtaQWFzRlc2MTFid2FKZTUxakttSQ?oc=5) |
