@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月21日 12:41:52（北京时间）**
+🕒 更新时间：**2025年10月21日 12:48:53（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | Virginia Giuffre would see Prince Andrew giving up titles as a victory, co-author tells BBC | [阅读全文](https://www.bbc.com/news/articles/c201k3wd65yo?at_medium=RSS&at_campaign=rss) |
 | Palace likely to face questions about what it knew in scandal | [阅读全文](https://www.bbc.com/news/articles/c0l7zx499deo?at_medium=RSS&at_campaign=rss) |
 | Thousands of criminals could be released early under government sentencing reform, Tories say | [阅读全文](https://www.bbc.com/news/articles/ce8g5k6kyllo?at_medium=RSS&at_campaign=rss) |
-| Maccabi Tel Aviv to decline any tickets offered to Villa match | [阅读全文](https://www.bbc.com/sport/football/articles/c3w98224xx8o?at_medium=RSS&at_campaign=rss) |
+| Maccabi Tel Aviv will decline any tickets offered to Villa match | [阅读全文](https://www.bbc.com/sport/football/articles/c3w98224xx8o?at_medium=RSS&at_campaign=rss) |
 | Hamas is a pale shadow of what it was - but it could yet reinvent itself | [阅读全文](https://www.bbc.com/news/articles/cn51w77vlp9o?at_medium=RSS&at_campaign=rss) |
 | Two abuse survivors resign from grooming gang panel | [阅读全文](https://www.bbc.com/news/articles/cy5qkq7zex3o?at_medium=RSS&at_campaign=rss) |
 | Trump tears down part of White House to make way for ballroom | [阅读全文](https://www.bbc.com/news/articles/ced6np51532o?at_medium=RSS&at_campaign=rss) |
