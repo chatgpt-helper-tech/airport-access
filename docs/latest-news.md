@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 02:49:59（北京时间）**
+🕒 更新时间：**2025年10月22日 02:57:41（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | The deal that means Prince Andrew can still afford to live in Royal Lodge | [阅读全文](https://www.bbc.com/news/articles/cgmx1gxv1e7o?at_medium=RSS&at_campaign=rss) |
 | Staff skipped checks and said a vulnerable young woman was safe. Days later, she was dead | [阅读全文](https://www.bbc.com/news/articles/cz91e1e23wzo?at_medium=RSS&at_campaign=rss) |
 | Boris Johnson left the Covid Inquiry in a hurry - he'll be pleased not to come back | [阅读全文](https://www.bbc.com/news/articles/cj6nennz0nyo?at_medium=RSS&at_campaign=rss) |
-| Israel's 'yellow line' in Gaza gives Netanyahu room for manoeuvre | [阅读全文](https://www.bbc.com/news/articles/cx2y9ny653no?at_medium=RSS&at_campaign=rss) |
+| Gaza ceasefire deal 'going better than expected', Vance says | [阅读全文](https://www.bbc.com/news/articles/cd9k2dj37wqo?at_medium=RSS&at_campaign=rss) |
+| Stolen Louvre jewellery worth €88m, prosecutor says | [阅读全文](https://www.bbc.com/news/articles/cj9722wlmj7o?at_medium=RSS&at_campaign=rss) |
 | British grandmother on Bali death row to return to UK after drug smuggling conviction | [阅读全文](https://www.bbc.com/news/articles/cly9jln834wo?at_medium=RSS&at_campaign=rss) |
 | Weather warnings issued as potential named storm forecast to affect the UK | [阅读全文](https://www.bbc.com/weather/articles/cly9rlzy0vro?at_medium=RSS&at_campaign=rss) |
-| Gaza ceasefire deal 'going better than expected', Vance says | [阅读全文](https://www.bbc.com/news/articles/cd9k2dj37wqo?at_medium=RSS&at_campaign=rss) |
-| French ex-president Sarkozy begins jail sentence for campaign finance conspiracy | [阅读全文](https://www.bbc.com/news/articles/cvgkm2j0xelo?at_medium=RSS&at_campaign=rss) |
+| Ukrainian city in total blackout after 'massive' Russian assault | [阅读全文](https://www.bbc.com/news/articles/cn8vrxjdd5go?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
