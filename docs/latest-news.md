@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月21日 08:00:22（北京时间）**
+🕒 更新时间：**2025年10月21日 08:09:55（北京时间）**
 
 ---
 
@@ -23,15 +23,15 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Appeals Court Ruling Allows Trump to Deploy National Guard Troops to Portland - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNcFgta0NqZF9IZnF3dXVrb1gyZDBFM1VsSUtsQlFFTjNwVjJVaHpfOF9mc1pTMzV0RmY0U25jWk1VWklQb1BLTU9qaXFua1lySmJseWE3U3J3RmNnbGYtMzl4Qm92Ty1WTUtNcUc1NmdyOGJWemdnUGFkQmVQbzM4a0N5cG1obHlIT2xLN2lZRTVXQm5vWTltTA?oc=5) |
+| Trump administration can deploy National Guard to Portland, court rules - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNUEpSd0Q2VThXZkZqb2NNdjNqM1Zod3BIQllSYVNSMFU5YTBQdllDdWpmUUlweHcwNERoMkpwcjlQWlNIN2ZnODlGSk8yeUFHLTdfaHJpM1FNclpKY0FGUm1wakJobFA2Z01kQXd0RFNqMzdNbE94VFJIakJaSWdIbEVHRlRLSVN0R09ydlB6SERFNzlIcVVPUDdVNDhKSlZJamx3SU5pcjhoNmw30gGyAUFVX3lxTE1XWWtFa2xrMmdMVUxqMXNndjkxeHZ1OGJiMER4bE1OXzMwUm5VVUFzVVFNZW9KMm9KRXd6dkRQR1lwVzk5SHJYVFRHV0o5MkFHZHB2WDU0WjVZelhxMFNhZGFTdWRxWFM3TTlPV3RKcXJySVV0ZXFmWHM3azNPMUNkUGZNSUd5VFhFUklsbmpYWDljeWgzNklSbnlZdTMyUnpsRnVzUDBPSy1aOGRWdjlqblE?oc=5) |
 | White House begins demolition of part of East Wing for Trump's ballroom - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBmX2huYzdkU2p2TFZwcmtwcFRrc19lRDF6dXUyd0FrWHNiMFd0S3ZUMl9lSTlFOTRBRG9fa21taDZJXzhiSVRYR2FnY0M0c2NTanV6OXUyZDhEeEJ1ek9HbXhjeFhNbjZ6SG5LTWsxdkZlNmpUSkZPYWd1UdIBgAFBVV95cUxQVHV5TFVUS0tlYkE4eURhcFIzX0VRNm80UTlRSFB3QUdCNUlueV9DajNDNXNSVElqX0pwbGNxZVdxTkpzZHlrQ1pXUkhyTEI4SVFlWUlJZEhKSkQ3dndocDg5cUNBcDdYdWpaa1lOZFRjdzJHd2dTWTFZTGJmZlc4Uw?oc=5) |
 | Trump touts deal with Australia on rare earths ahead of Xi meeting - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQT2xURkVPLXFrWHJIT0Zmb1pxaXpEenFrQVJTUnRUamloeFhvR2hnSlhCSzlmZFU3alZ2Mm40b0wtUGtSendLclV5VDl3VG1WQ1dLQ2JvUFdMMUxQSk92VHQ0TjZYaTdUWUFQQTlXeWhtQm9rdnE3OUlxLTdET2RRbXVfdTVGWXhrOHJEVDRn?oc=5) |
 | ‘Egregious abuse of power’: Comey moves to kill the criminal case against him - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNYjY3SWpwV2s4Q0VfNVVCTFpJZElmQXo2b01PNTI3amxWSHo1RExyRVl0RERxNklUNmg5eXBMM1JERmhER1hUNUxKeHdwUmlmYXgzUm5yWEdtVE9rb1FJaEY5YkVSSVBReW4tcmMwX3ptbmhZeElQRzBqeVFmbzY0YXJ4T0ZwRk8wOXc?oc=5) |
-| This isn't the Louvre's first high-profile heist. Here's a history of earlier thefts - NPR | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5PVW1Fd3k3TFdTYUZFWWh4Q1RsN0U0cGVZc0ZYM0wwUXZZSzV0eTdDWm9SbWdWVV9MbFYyS1RhZGFFclBDMS1IYzlNalVaZVRMcE5Qa1lGa01kOGdFS2FSM3BpaTBZX2xSMzcyUGh1X2N5SUNjeWUzN3B1UTkyQ3M?oc=5) |
-| White House hits road block in effort to get top colleges to sign deal - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPMjhNWWNrV0V3cXJYSExCQXAzdi1LbG1GVURIaVo3TXYxam53Zm5USmYweGd1eDhfT0xVaUc0TzVvZl85Q2tUS09BUkVQMUh2UzVFMWEzazhaV1FFVmZwV3lnVXZHbDZzTnpkV3FNbFBCX1ZveXF2WmZyM2pxaExlMTJlNzYxN3RQcGpsMHk3Wl9CYU0?oc=5) |
-| Shutdown could halt SNAP benefits for millions, states say - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1qemZ4YjN1eFVJNk9WV004d3BOQjBLWUQ5NWZISmx2WTRZekxmNTdBY092WnRWSzFQR29naGNPa0hSZmVLRmN1NUw2NUItSWlTZmFUSnMwLUFobG95bWZYa3ZzS2szYmQzU2FnaVo4Zmx3YTNPZ3NsRGd5Yw?oc=5) |
+| How the Louvre Jewelry Heist Unfolded - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPS0dfeXlUMDRCX0hjOXZ4N1hhSjVpSm43X1JEU2dQRjZ1U2JZQlQ1ZThqc19RVHJCSU9ZM3RRYW5kNUdoeXk4WnQ5SG9UWnZYYm5xZll0UnZhUUJJMVN0dndiNXFDZUluVkhvNlM5VXcwRlljdHpNbGxRV2U2bTI5allKcUlKVHZ4VTEyXzlKYVdpN1d6WU9ibk9mZWM1V3dEV2JKTmY0TFQ?oc=5) |
+| All but 2 Universities Decline a Trump Offer of Preferential Funding - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOcEs3RGxiSjBwOEVOX1c0TXdzV29Id1BHc3dBSmVEVERsemVjakdwWW1QTk1uRldNX3RZVGJTQmExVUxKWU9RLVNMQXRTOWtJaUJZZTVSOGw4U2ltOTg2dktkWXBGYU9oZjNfS1VSeVZRWUhCWlU3ZkJiUHlza1M5R3MwSV9xZzA?oc=5) |
 | Trump nominee reportedly boasted of ‘Nazi streak’ in group chats - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNUUNTalVPWElPSFpHWTloOGN6THBFRVhBZHIwWThob1N6ajlUZl9TSWc2VkdMaVBWOUlUcmJhdXM0QmgzTlB4Rnc4N2VIY1AxaE9HQUVyeGpiSVlPbDUyT2tIek9udW1mUC16MTZ1YUJpa3dOdWJ0UTBhVGUxc20zYjVpalE1VjlBNkxwYTk4UnpOUQ?oc=5) |
 | Trump's fake video featured 'Danger Zone.' Musician Kenny Loggins wants it scrubbed - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxORVhrZVdlVVN0RDdGYzR6NFp6NlJRWjlPQU1LLThrOVhnY21qRkRhZ0V0R29jQmJ1UktLeTZ1R2g1ZHdhUHVNT2JWWjZDS0VjRnRtaXEwYWdiRmxkVU9nVHBiUG5QUl9VakRueWp5blhlY3N4U0Y4SXJIWnR6OTZ6RU5pR05uWFk?oc=5) |
+| Shutdown could halt SNAP benefits for millions, states say - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1qemZ4YjN1eFVJNk9WV004d3BOQjBLWUQ5NWZISmx2WTRZekxmNTdBY092WnRWSzFQR29naGNPa0hSZmVLRmN1NUw2NUItSWlTZmFUSnMwLUFobG95bWZYa3ZzS2szYmQzU2FnaVo4Zmx3YTNPZ3NsRGd5Yw?oc=5) |
 | Trial begins for former Illinois deputy accused of killing Sonya Massey - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNUGxSbnU0dElwMnlDaF9JUDJBT3NsbFdMeVhUUFpVR04zVmRrQjJRMld5b2tRMGtlOXNST3JKNWliNGNJXzA3cVpxS2x3VVFoWHYyQll4T2VOd0w5ZU5aUG52ZktCZFVqU2pyOVpGdUlIQ2wwY3NmaXdKT3BaX0NyY0Y4bEQ5cldjaHprYTQzcV9ISHZIYTJpemt0NzA3aFpiTkVaR3FtOHRmTWZMMGFhOGF30gFWQVVfeXFMUHc5WDZOUTk0N0ZTUnR3eFVCbzFVV2tmRGFuRUotWVBSVDNCd2lITTVKTVk4cHdUSDBPMHpDR0JkYUlZeU0tc3JmS1M3NXpndHlpcE1FZXc?oc=5) |
 
 ---
