@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月21日 12:16:51（北京时间）**
+🕒 更新时间：**2025年10月21日 12:24:19（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | United States-Australia Framework For Securing of Supply in the Mining and Processing of Critical Minerals and Rare Earths - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiiwJBVV95cUxQSUtxOW9INHZHaEk0cTZoRk41R0hGUVZWMU5uOTd3eDRPdklVOWs1SkJYMUNkWnpiT3VWRHcyZ3Q3cUItRE45aVFvbGxRRk5vNFZRcTlBTzVoaTlWZXhtcVVNbnBTdGstTGFKc2gyT1QtMmpRNDlEVTlyX3Y1RElKUlBqc29tYXNFZTFNMlVtdXZDel9rUUdVRDRpVmRXRnhLWUpHU3FlM2xvaEpsXzV6djdPMzNrV1dKTUhRNzhWVTRseHdRcFU5clFhaTVIc0U5T25RYzR4ZnB3Mm4taU5HWXpsWXhuSnNab1hMczhxNUFnWVlYY0hHU29rS2t6YUFkYmZBbDVEV0RFZEE?oc=5) |
 | Man arrested for allegedly threatening to shoot up Atlanta airport - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOMEYyRUxTZGlIY2lzSzhLLVVUNnFpWkw2Wi1IbGYxemFPYUFVZHlJNWlqOHk5clA1NFdSQjlRNXpyc2JtNWEtcXVERkc5X2dWM1NCZXExY0ZpS21nZ0VpdFBNaWlfNUJWbnl2MFQzYXZwMWpGSkE2Tmx5eDhlYXl0M3pEejREVkVOYmVyZmpJWU52bnNDMVlVR3I2Skl1OUtvTnfSAacBQVVfeXFMTklYenl5ZUtQNmd0MGI3cVZfNi1HMElhV3prQ3ZCUUZlcUhQTUN1dXFNdWNjZ2ctNjN3VndhYmg5RGZoLTBRRVlyY0hJZDBxMDhvUFh6QVBuSUVSQWJ2dkpvTVE5RXVPSnZCak5qdHV1THdwTWM0M0x3N0Z1dUhPczlNRXctZF9PVEZrV1JHR3JrOUhabGMxdzBQNGFhSWVjX2tSdTFuc0U?oc=5) |
 | Thune hopes White House withdraws Ingrassia nomination - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNS2l1MU1rMDJHaGxkRlFJOHdGT2U5SGZ2WENZdDUxdGVtX3ZNRlE4Qld5VVdrNnFfWXIyTDd1eTFxNExNUF9CYm0ydlR2d2ZEeXZGWlZKWVptNHNiMlhOWUFnbmZaOGxhTndPS3Jwa2s0UTdJam5JYVFJQUFuNDRGMDdlcUNBeUhVWTlQTGtfY2phZ0NhT2FBb0h3?oc=5) |
-| Trump's fake video featured 'Danger Zone.' Musician Kenny Loggins wants it scrubbed - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxORVhrZVdlVVN0RDdGYzR6NFp6NlJRWjlPQU1LLThrOVhnY21qRkRhZ0V0R29jQmJ1UktLeTZ1R2g1ZHdhUHVNT2JWWjZDS0VjRnRtaXEwYWdiRmxkVU9nVHBiUG5QUl9VakRueWp5blhlY3N4U0Y4SXJIWnR6OTZ6RU5pR05uWFk?oc=5) |
 | Trump claims ‘unquestioned power’ in vow to send troops to San Francisco - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE52bGlvNUhud0ZFTjdUOHduLTJ2b1VyT2tCM2ozcEZzbk1nTlJWLWMtNVdiUGQtZ1M3Sm5hbk9DSFl0X2h3OVVla1pqMnN1dTN2NkpvanZvdTNZVmM4S3M4ZHI2VFItRnc4ekZBZXRTYjBMeFBWclkteHZmWmJEZ1U?oc=5) |
+| Trump's fake video featured 'Danger Zone.' Musician Kenny Loggins wants it scrubbed - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxORVhrZVdlVVN0RDdGYzR6NFp6NlJRWjlPQU1LLThrOVhnY21qRkRhZ0V0R29jQmJ1UktLeTZ1R2g1ZHdhUHVNT2JWWjZDS0VjRnRtaXEwYWdiRmxkVU9nVHBiUG5QUl9VakRueWp5blhlY3N4U0Y4SXJIWnR6OTZ6RU5pR05uWFk?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
