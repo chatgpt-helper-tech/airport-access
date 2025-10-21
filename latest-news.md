@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月21日 16:16:29（北京时间）**
+🕒 更新时间：**2025年10月21日 16:25:57（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Georgia man brought rifle to Atlanta airport after threatening to open fire on terminal, police say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNOHdJZUVoY01IeS13RkZWTkduczBqSmxKdF84eDBWZU9mTmR6Wjh2c0VYalZad1hMMnU3Wlh2eDBhZUlZVGRBSTlKVGR3RU5oUjNfc2JYbTNfb3NQM2x3WlEyWExTZ0hXYlAyci1wRkhqMG8tS3hVN2VicElUc2QzV28yVnF2RTZOTk9KOFE5eUx3N1pxbzRoYjViV1JxZw?oc=5) |
 | White House Works to Preserve Gaza Deal Amid Concerns About Netanyahu - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPS0ZJUXlJWW5qd0xacldFWkUwWjRqcldrV1RfMVVJSXlVMThXMkpnOUg2RTk5MVdTLXlnSUJMcUR3MmdXNE1SQ1gyWXRfRFNad3QzOUJiYWdfNHRKeUFTWnNLNEhwNGVnYjVSeGNZa0FsRTZZc01LZFFGelE0SE8yY2ppQlhrdw?oc=5) |
 | Trump claims ‘unquestioned power’ in vow to send troops to San Francisco - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE52bGlvNUhud0ZFTjdUOHduLTJ2b1VyT2tCM2ozcEZzbk1nTlJWLWMtNVdiUGQtZ1M3Sm5hbk9DSFl0X2h3OVVla1pqMnN1dTN2NkpvanZvdTNZVmM4S3M4ZHI2VFItRnc4ekZBZXRTYjBMeFBWclkteHZmWmJEZ1U?oc=5) |
-| ‘He’s not going to pass’: Thune says controversial Trump nominee for whistleblower office won’t be confirmed - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNaUlKSlUtS0szWUEycGdZdGZoWG8ydGpZdS1XZ202V0ZEVlp6QlBQV3hodmE4ZnVObjBrQWRsclhfQ1Q4UHZVLWdDNDB3OE1jTHp3OEdRWmtfQnlvMUF3eFBheHZ5QnA2UTJ5UXhYNzlTbUZMMzBGYXhpWHpyY2txMzdYdC1CczQ4SW5Z?oc=5) |
+| Judge permits questioning of top Border Patrol boss in lawsuit over treatment of protesters in Chicago - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMi6gFBVV95cUxON1A4dE02bVZVZ2VwTC1kTExSOVBBNUxNbGY0YWtsQU9jSjRQdUswbDhmTm1xV09BZFpIM0hjV0tEVmNKaEVjcnQzTWpYRGhWcDFzSTlVTUNwMXZSalhpR2l5TFpneFhfekZoajZueDV1REtSdDRJUGhNTWJUTmFFVmpSSnM4MG9xX3ktRVVubmhpWUxlX0tBLW1PYWVQeTlBUFFXLUNSWTgwSTdncXN5dWV6VVhOZW1OQzBVLThzRVZmdm1qU2h6SXlib1pqMkYyMzFtWkRUWWtic0tYVnJMdHlId3JHRkt4TGc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
