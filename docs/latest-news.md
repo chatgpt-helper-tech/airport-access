@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 07:33:43（北京时间）**
+🕒 更新时间：**2025年10月22日 07:41:48（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | Here are the White House East Wing offices Trump is demolishing, according to sources - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1zLUZaTjQyR0xJYU5teHVDb2pEd1pQQVdQZWdMZEtDN3c1ZWczek1OdVR6RU9PYzhZNFlWbDFISG9yXzVORzI1aGNOY0pEejA1bmdUT0tna0FIX212RTRwVlBRbjI3UGZYOUFlWnlpNjEwQ0FPQ2xURU9TdHDSAYIBQVVfeXFMTm84WU1fS1BGbVZlLUVpeTZkS1pNSEd0MFRrTWpkYnRuTm1Ja0p6MllHdmtqUmRpTXhSVWhSWklucDh4RjJEei1aU3lrSXp4NWFwc0p6OXJ1UnJBM1EwTElDRmhkMTFmUUM4cVQ4VnFDUS1UUG1YMGZ1TW1xOVBaVnpoZw?oc=5) |
 | Trump sought $230M from Justice Dept. to settle past investigations of him - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMkoxMHpUU0UzVnlxV3VnU2dlZVFhNV85TWhudVNKV3Q4TmNBVWt6S2ZKVldMVmFoRnQ4QV9JY0RuZXo2QzhsejYxTEFka3M2dWZvRHJUbnNleUlDTEs0WlNLSWUxdDVKNS1xWUNOY285QVlXNDlrRXEzZjFkaF8wRnRoTW4xNWc?oc=5) |
 | U.S. Marshal and Immigrant Are Shot During L.A. Traffic Stop - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQVk9PeW5ZLUtLU2lfbjFQQVFRVXJWeThsaGJENlN1eWczSmV6ZWxLU3dmYmtrdGFlbjkyUFREaUltSzF4Rm8tLTdhNkpwRnF2blFic3FrRjRGUi1naGRSQVVZcEFPSzl5dGw0M21mOE5oNzBpUGhZTEJ5emtKTDJ2QTk0cTUtU0o0aHRSdg?oc=5) |
-| Pardoned Capitol rioter arrested for allegedly threatening to kill Hakeem Jeffries - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQSGZodU9BMHV4c0R1dlVONkRvdU0xaFJuR2tYbnplUEtrcjhBTE0wVjAxWENOOXNuTEtEc0NoTXgydVh2eFVHMU9BNXJGWjJkNEdOeVRsRktZS3dEbUJScHBTTVhTY1VhdmM3VVQ5VUdVY3N0Tk9QUElMazdJQlNYQktGaXBWYTg1Sm9UVjFBRWxXZw?oc=5) |
-| Republicans broach a longer stopgap bill as shutdown enters fourth week - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPVjVaa1hiY2k3NkdMWEE4dEdXLUo1dTlOeTZvUHp4dnVnQVVzZXlCM082dWR0NnNuN2dHS3h5VnRyUDkzSHB1X1RHYjJxaDlaNDN5V3Q4Wngzc0dJVkp0eXNObi1oVnZzRWFBd2hJU2tMSzZ2NXNxTFhFVHdMX2VKMGpkUmRSWXkt?oc=5) |
-| Trump’s nomination of Paul Ingrassia loses Republican support following racist text messages - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNTHB3WFJXVFl6eUhIMExndlY0d1VPVF9CdXdLVXRaNmVhbE5XQ05jMm5CTkpWZEtsdmdmN2FaZ1M3NlF2UUN3bVdrSnJFSURKeFd3cHU3Ul9hVGVSWm9VdnhPbW5XV1VMMFRyMUp5MGlYc1U3cDh4ZW1BdGc4NWNzUWJHUVY4X3ZJb1l4SHVYU09FOWRPdnVV?oc=5) |
 | Arizona sues over Mike Johnson’s refusal to swear in Democrats’ newest congresswoman - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQYTFMOTNTc285dFFYYmxYWjk5c0twZmJzZ01tUmFTanQ4cnd2WmdoQmNSaEZ1TFY0S3BrcDFiamJXbWo4ajBrTVRfTlZ1aE5mdURVQ2c1THdmZlZTVFFQZE9INzQzVV9lTml3RXBnY0NmRWU5NDExaDNNMU4yU0gtQlp3S2IxQQ?oc=5) |
+| Vance visits Israel and says ceasefire in Gaza is going better than expected - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOODVsbjM5enViaDZvMU1QUzdRMnd3RXl1Ti1qa0l0Wk5JMVhqM1N2Y1NQQXFDM3BHaXAzUjVCVEFycWJDMURDZk1UaU1RRUp1R1NFbXd3cG9TUnEtLWRaSm1SbWNOQUZPU0hjSTNoTENiQ1FjbDlnRmNVenA1WnJTSFQwdk1NNjdaNGF0WVA0UExPdmFDM3Vaa21UYkxzOVVwaEpYaEY0c3c?oc=5) |
+| Trump’s nomination of Paul Ingrassia loses Republican support following racist text messages - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNTHB3WFJXVFl6eUhIMExndlY0d1VPVF9CdXdLVXRaNmVhbE5XQ05jMm5CTkpWZEtsdmdmN2FaZ1M3NlF2UUN3bVdrSnJFSURKeFd3cHU3Ul9hVGVSWm9VdnhPbW5XV1VMMFRyMUp5MGlYc1U3cDh4ZW1BdGc4NWNzUWJHUVY4X3ZJb1l4SHVYU09FOWRPdnVV?oc=5) |
 | Maine Democrat Platner, on defense over tattoo, takes page from Trump playbook to keep up Senate bid - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNb3doaG1IZGsxeE1aNEMwX1B6cFQ5bXhWMXlIRm5lSS1vM3JjNXhsYS1fd3RxVFpHWlRqY1c4cFUtNE9JOFd6YUM0Y053VFV5TDM1NFYxU0tnSjV5RHdfMXNRWUR3M19RNjZlZXNwQmUtM3owQXpXcjVlWmhLVnpuLTdKSnZReVNSdzN1UTFaRENrdzYxNWNyeEZSakFOQnJ0UzNEaXV6OXNKT3c?oc=5) |
 | North Carolina lawmakers vote to add GOP House seat, in win for Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQMFhEZl8yWGxVVmtTNW9LUi1nN2lNRVE1a2c0Q0xsRXpTZTVLTWwxdXk5T0hqMTNFdVBCWDM2UTFYcXlZdTdySXFLdkdhck9YUjlyYkx3eWhmaGhBSk45by1jTlNQbDNLMmYyOE5faTZ6eWRra1dCcnFBdmdmc3h0YVhkTGM4M0k0SmVwUXd4MHAzbEppenc?oc=5) |
+| Pardoned Capitol rioter arrested for allegedly threatening to kill Hakeem Jeffries - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQSGZodU9BMHV4c0R1dlVONkRvdU0xaFJuR2tYbnplUEtrcjhBTE0wVjAxWENOOXNuTEtEc0NoTXgydVh2eFVHMU9BNXJGWjJkNEdOeVRsRktZS3dEbUJScHBTTVhTY1VhdmM3VVQ5VUdVY3N0Tk9QUElMazdJQlNYQktGaXBWYTg1Sm9UVjFBRWxXZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
