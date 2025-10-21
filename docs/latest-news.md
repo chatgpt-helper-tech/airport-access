@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 05:32:40（北京时间）**
+🕒 更新时间：**2025年10月22日 05:41:27（北京时间）**
 
 ---
 
@@ -12,9 +12,9 @@
 | Third survivor quits grooming gang inquiry panel | [阅读全文](https://www.bbc.com/news/articles/cwykd173l3vo?at_medium=RSS&at_campaign=rss) |
 | The deal that means Prince Andrew can still afford to live in Royal Lodge | [阅读全文](https://www.bbc.com/news/articles/cgmx1gxv1e7o?at_medium=RSS&at_campaign=rss) |
 | Staff skipped checks and said a vulnerable young woman was safe. Days later, she was dead | [阅读全文](https://www.bbc.com/news/articles/cz91e1e23wzo?at_medium=RSS&at_campaign=rss) |
-| Boris Johnson left the Covid Inquiry in a hurry - he'll be pleased not to come back | [阅读全文](https://www.bbc.com/news/articles/cj6nennz0nyo?at_medium=RSS&at_campaign=rss) |
 | Israel receives two bodies Hamas says are dead hostages | [阅读全文](https://www.bbc.com/news/articles/cd675jygwp1o?at_medium=RSS&at_campaign=rss) |
 | Police in Dublin attacked at protest outside asylum seeker hotel | [阅读全文](https://www.bbc.com/news/articles/c629zg8v8jpo?at_medium=RSS&at_campaign=rss) |
+| Boris Johnson left the Covid Inquiry in a hurry - he'll be pleased not to come back | [阅读全文](https://www.bbc.com/news/articles/cj6nennz0nyo?at_medium=RSS&at_campaign=rss) |
 | Stolen Louvre jewellery worth £76m, prosecutor says | [阅读全文](https://www.bbc.com/news/articles/cj9722wlmj7o?at_medium=RSS&at_campaign=rss) |
 | Chris Mason: Labour feel the heat in crucial Welsh by-election test | [阅读全文](https://www.bbc.com/news/articles/cy4pv88717po?at_medium=RSS&at_campaign=rss) |
 | Ukrainian city in total blackout after 'massive' Russian assault | [阅读全文](https://www.bbc.com/news/articles/cn8vrxjdd5go?at_medium=RSS&at_campaign=rss) |
@@ -31,8 +31,8 @@
 | Pardoned Capitol rioter arrested for allegedly threatening to kill Hakeem Jeffries - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQSGZodU9BMHV4c0R1dlVONkRvdU0xaFJuR2tYbnplUEtrcjhBTE0wVjAxWENOOXNuTEtEc0NoTXgydVh2eFVHMU9BNXJGWjJkNEdOeVRsRktZS3dEbUJScHBTTVhTY1VhdmM3VVQ5VUdVY3N0Tk9QUElMazdJQlNYQktGaXBWYTg1Sm9UVjFBRWxXZw?oc=5) |
 | Trump’s nomination of Paul Ingrassia loses Republican support following racist text messages - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNTHB3WFJXVFl6eUhIMExndlY0d1VPVF9CdXdLVXRaNmVhbE5XQ05jMm5CTkpWZEtsdmdmN2FaZ1M3NlF2UUN3bVdrSnJFSURKeFd3cHU3Ul9hVGVSWm9VdnhPbW5XV1VMMFRyMUp5MGlYc1U3cDh4ZW1BdGc4NWNzUWJHUVY4X3ZJb1l4SHVYU09FOWRPdnVV?oc=5) |
 | North Carolina lawmakers vote to add GOP House seat, in win for Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQMFhEZl8yWGxVVmtTNW9LUi1nN2lNRVE1a2c0Q0xsRXpTZTVLTWwxdXk5T0hqMTNFdVBCWDM2UTFYcXlZdTdySXFLdkdhck9YUjlyYkx3eWhmaGhBSk45by1jTlNQbDNLMmYyOE5faTZ6eWRra1dCcnFBdmdmc3h0YVhkTGM4M0k0SmVwUXd4MHAzbEppenc?oc=5) |
-| Trump put a new fee on asylum seekers. Many say they don’t know how to pay. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOTGhPdUMtWHQ2TktibUgzNXJsUHdUMkFPR2hEbUg5SExFQ2VBTkdvT1VLejJCbjRUUkVuSGVrYlBUdlRvekU1UFp1bXB2T0dkRW4zY3lnZEZtV2VmS3Z6TkhiNjV4RjM0Y1JMWEExVWZ3T2dpb1hybmg0cDZCZTZCSjY3MzBxZ3F2RnVNR3BiWWVBRTVRNlM3LVNYREN4dmxZSmNaLU9MbTRGQ2VOdXl0eWJLSGJqdmZpSGRrejBoSQ?oc=5) |
 | SNAP benefits to halt in some states amid government shutdown - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQX21LQXVZU2JnV2c1YU9OTFdaRnZYd1pmT1N3WTVUdU9XZFVMMlRFVDJjamFRaEZ6bW9Eb01hVlZydzZTSGdIUnUwMk40VkJvbFkteTQ3Zzl3bVY2MjdtdkVWekFiMTJwYzRzRUF6ellmV2VqanlPTThJcGJtTlEwZWFNQnRsQXZSdEl0ZkpoMEJkeFhQQmdiVUZ0UVJBMHd20gGmAUFVX3lxTFBIVlg4SngweTdoRTdpSkRKMFVPQnVQTmw3MEJLczBoNFZNeUxybml5NFN3S0xGTHZBbVo2UUYtZFd6eDRRNUlZdFBaZllXblZ1VzJFcUotdDYzbGVWcVltTkVzVU4yVV9YOTNsclZlYnhzbnFLZmN0VW0zTDM0enlYSm5LUjM2NWtKT2VOcjQzWGlLQlZMY0lUdjNoUXcxcDBIcXhodFE?oc=5) |
+| Trump put a new fee on asylum seekers. Many say they don’t know how to pay. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOTGhPdUMtWHQ2TktibUgzNXJsUHdUMkFPR2hEbUg5SExFQ2VBTkdvT1VLejJCbjRUUkVuSGVrYlBUdlRvekU1UFp1bXB2T0dkRW4zY3lnZEZtV2VmS3Z6TkhiNjV4RjM0Y1JMWEExVWZ3T2dpb1hybmg0cDZCZTZCSjY3MzBxZ3F2RnVNR3BiWWVBRTVRNlM3LVNYREN4dmxZSmNaLU9MbTRGQ2VOdXl0eWJLSGJqdmZpSGRrejBoSQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
