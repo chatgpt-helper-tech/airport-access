@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月21日 10:17:56（北京时间）**
+🕒 更新时间：**2025年10月21日 10:25:49（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | University of Arizona declines to sign onto Trump administration 'compact' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNV3llWUk0VzdacVJnQlZ5Q29fekY4cV92aTl0SW5GcFNjOUkzRlB3ZHZSLW5vU3N6SUw4cXVUSzZ6RDczbGNOQ2tRSWNZblozZTV6Q3Qwd3ZGR21VdHBBZzBGRktGWVpSLXJMOGZQTW52YVQ0TDhEbDd1aUE1UnZhS1F2ODVzWjZJLWs2VzhsSG9BSnRTOEtuUm9JV25CakxwTFZlS2xYdmVIVWhYTGNnMA?oc=5) |
 | Man arrested for allegedly threatening to shoot up Atlanta airport - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOMEYyRUxTZGlIY2lzSzhLLVVUNnFpWkw2Wi1IbGYxemFPYUFVZHlJNWlqOHk5clA1NFdSQjlRNXpyc2JtNWEtcXVERkc5X2dWM1NCZXExY0ZpS21nZ0VpdFBNaWlfNUJWbnl2MFQzYXZwMWpGSkE2Tmx5eDhlYXl0M3pEejREVkVOYmVyZmpJWU52bnNDMVlVR3I2Skl1OUtvTnfSAacBQVVfeXFMTklYenl5ZUtQNmd0MGI3cVZfNi1HMElhV3prQ3ZCUUZlcUhQTUN1dXFNdWNjZ2ctNjN3VndhYmg5RGZoLTBRRVlyY0hJZDBxMDhvUFh6QVBuSUVSQWJ2dkpvTVE5RXVPSnZCak5qdHV1THdwTWM0M0x3N0Z1dUhPczlNRXctZF9PVEZrV1JHR3JrOUhabGMxdzBQNGFhSWVjX2tSdTFuc0U?oc=5) |
 | Thune hopes White House withdraws Ingrassia nomination - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNS2l1MU1rMDJHaGxkRlFJOHdGT2U5SGZ2WENZdDUxdGVtX3ZNRlE4Qld5VVdrNnFfWXIyTDd1eTFxNExNUF9CYm0ydlR2d2ZEeXZGWlZKWVptNHNiMlhOWUFnbmZaOGxhTndPS3Jwa2s0UTdJam5JYVFJQUFuNDRGMDdlcUNBeUhVWTlQTGtfY2phZ0NhT2FBb0h3?oc=5) |
-| Ecuador says it has no evidence that survivor of a US strike in the Caribbean committed any crime - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOckY1c3ctZXdvYjRDdkxaZ3dmakVKRmxvR2tpSEptNlZJbndhakdxb2ZJaDdXWGNNNEx2QV82YTVCQ1JEME9ETVpLN0hCZldiSnhmcFVjb3k4U3BYQlh0ODJMdVRPTDdQWWdPMkJmamJNVmlPWlRPMmFqYmxhWmg5WUx6QWt6QUh4aUwxTHg4Mkt4eXIxRDlXNjIySkxZbFVPUGFLUmlXMU4zalktVVpYUHpEaEtWblEwalE?oc=5) |
 | Trump's fake video featured 'Danger Zone.' Musician Kenny Loggins wants it scrubbed - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxORVhrZVdlVVN0RDdGYzR6NFp6NlJRWjlPQU1LLThrOVhnY21qRkRhZ0V0R29jQmJ1UktLeTZ1R2g1ZHdhUHVNT2JWWjZDS0VjRnRtaXEwYWdiRmxkVU9nVHBiUG5QUl9VakRueWp5blhlY3N4U0Y4SXJIWnR6OTZ6RU5pR05uWFk?oc=5) |
+| Ecuador says it has no evidence that survivor of a US strike in the Caribbean committed any crime - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOckY1c3ctZXdvYjRDdkxaZ3dmakVKRmxvR2tpSEptNlZJbndhakdxb2ZJaDdXWGNNNEx2QV82YTVCQ1JEME9ETVpLN0hCZldiSnhmcFVjb3k4U3BYQlh0ODJMdVRPTDdQWWdPMkJmamJNVmlPWlRPMmFqYmxhWmg5WUx6QWt6QUh4aUwxTHg4Mkt4eXIxRDlXNjIySkxZbFVPUGFLUmlXMU4zalktVVpYUHpEaEtWblEwalE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
