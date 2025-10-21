@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月21日 09:09:39（北京时间）**
+🕒 更新时间：**2025年10月21日 09:16:20（北京时间）**
 
 ---
 
@@ -13,9 +13,9 @@
 | Virginia Giuffre would see Andrew giving up titles as a victory, co-author says | [阅读全文](https://www.bbc.com/news/articles/c201k3wd65yo?at_medium=RSS&at_campaign=rss) |
 | Maccabi Tel Aviv to decline any tickets offered to Villa match | [阅读全文](https://www.bbc.com/sport/football/articles/c3w98224xx8o?at_medium=RSS&at_campaign=rss) |
 | Hamas is a pale shadow of what it was - but it could yet reinvent itself | [阅读全文](https://www.bbc.com/news/articles/cn51w77vlp9o?at_medium=RSS&at_campaign=rss) |
+| Thousands of criminals could be released early under government sentencing reform, Tories say | [阅读全文](https://www.bbc.com/news/articles/ce8g5k6kyllo?at_medium=RSS&at_campaign=rss) |
 | Penguin and Club bars can no longer be called chocolate | [阅读全文](https://www.bbc.com/news/articles/c86737yg3jlo?at_medium=RSS&at_campaign=rss) |
 | King focusing on 'duty', says spokesman as Andrew questions continue | [阅读全文](https://www.bbc.com/news/articles/c4gzp6xgdx4o?at_medium=RSS&at_campaign=rss) |
-| Lisbon funicular crash initial report reveals litany of failings | [阅读全文](https://www.bbc.com/news/articles/c20pg8pzp2no?at_medium=RSS&at_campaign=rss) |
 | Europe 'ready to deploy' troops to Ukraine if ceasefire secured, Healey says | [阅读全文](https://www.bbc.com/news/articles/cd9kqve398vo?at_medium=RSS&at_campaign=rss) |
 | Met Police says it will no longer investigate non-crime hate incidents | [阅读全文](https://www.bbc.com/news/articles/cwyp1gk0n23o?at_medium=RSS&at_campaign=rss) |
 
