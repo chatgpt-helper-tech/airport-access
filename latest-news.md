@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月21日 10:33:18（北京时间）**
+🕒 更新时间：**2025年10月21日 10:40:11（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Appeals Court Ruling Allows Trump to Deploy National Guard Troops to Portland - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNcFgta0NqZF9IZnF3dXVrb1gyZDBFM1VsSUtsQlFFTjNwVjJVaHpfOF9mc1pTMzV0RmY0U25jWk1VWklQb1BLTU9qaXFua1lySmJseWE3U3J3RmNnbGYtMzl4Qm92Ty1WTUtNcUc1NmdyOGJWemdnUGFkQmVQbzM4a0N5cG1obHlIT2xLN2lZRTVXQm5vWTltTA?oc=5) |
+| Trump can send troops to Portland, appeals court says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNYU1JcEw2ZU42dElWTXFHNVRma3ZKdV9LajAtV2QtQm1wV1ktaGVXa242aVhGbEhCSVBPbzdra1lhQXNJcE5JTklTdTh3bnZPc2JIZlBFTjU3VjVmcGVwanU1NXFGaVd0WV91dGFhc0FlQ2tTc3lyNl8tNDdhWWRNUTM0ZTc4R0tLeWhzVWhzTGxUZWhTek5ZQmp3?oc=5) |
 | The White House starts demolishing part of the East Wing to build Trump's ballroom - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOMlBiM21sOW1HQWpSTDcxd29IN3k1SURKZEh5R2VvUHJwWTEtb3lWOGN0b0VXWTRMNHpsOG1NZ2FKX2FnaGVNQkZlQy1BMTAyeWJaWFdwNGQ3bkpzVWFKTlZvX2w3YlhBWmhKTFNKMkFkbloyR0M5TXQzdnBZVWI2aXVuZWZXbDF0czkzZ0hFeE5YNk4t?oc=5) |
-| Paris Louvre museum to remain shut as police seek 'audacious' thieves - Euronews.com | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxNOTJ5d2ppODk4RXRTblgxSWRFaG1sY3V6bW1xbHZ4ZlZ6RU9zTTBIMW5JZlVja0hxZ05aQ2NxVzdBQmx0XzNrN19ESkFBcDFDY1JpVGxXcDU5RFFzZjRZVl9wa1BKYXJPaFZheFBPdF84ZVhBMndjSGdjQ1hQdU5aNllSVjBRZ3FiR3FyOTdwaG04NERTV0RDTkRIQjFqb0Y5T0hoTGpObkZ6eTRTUkRodzY5RVU5Ynl3RGJrNTN1cVE5Q29h?oc=5) |
+| How the Louvre Jewelry Heist Unfolded - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPS0dfeXlUMDRCX0hjOXZ4N1hhSjVpSm43X1JEU2dQRjZ1U2JZQlQ1ZThqc19RVHJCSU9ZM3RRYW5kNUdoeXk4WnQ5SG9UWnZYYm5xZll0UnZhUUJJMVN0dndiNXFDZUluVkhvNlM5VXcwRlljdHpNbGxRV2U2bTI5allKcUlKVHZ4VTEyXzlKYVdpN1d6WU9ibk9mZWM1V3dEV2JKTmY0TFQ?oc=5) |
 | Lawyers for Comey ask judge to dismiss charges based on prosecutors' 'flagrant misconduct' - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQNzVJRUo5NjAtd3ZHTjRTeWdMeWtBR1ZicTFuN3BieU9DT2Iyb1BLT0o5bTc1bHNJRDNUQXE2NDU4Um5aUVpwS0htaVNLZEtaX0NYV0dZdHlJYkN2SEFiZkw4UzBlblpyY0wxWUtrd2pOWWVTdVFtU1RYbGdUandfbVo4R2t6dDdpRzl0M0RkRkJtWkRHTG1ROTk4N0vSAaIBQVVfeXFMTTR2NTRNdzB3VGFlc1pkaVJlZklRWm41YVZuajREZmlOdm8xWUVKSWtTRjR1TmZqUzRZcGstNmN1QWV0VmhWZVVDbXJGTVJWUEZ6VlVwRW56dTBaM2hrbHJjTFQxdndaZFpkMzN2NlFieE9FOThVT01YY1ZmSnFPY1VWUHk5M0E0bHpHV0cyYS1DZ3R4XzdwcXJycGpoM1VZNkhB?oc=5) |
 | United States-Australia Framework For Securing of Supply in the Mining and Processing of Critical Minerals and Rare Earths - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMiiwJBVV95cUxQSUtxOW9INHZHaEk0cTZoRk41R0hGUVZWMU5uOTd3eDRPdklVOWs1SkJYMUNkWnpiT3VWRHcyZ3Q3cUItRE45aVFvbGxRRk5vNFZRcTlBTzVoaTlWZXhtcVVNbnBTdGstTGFKc2gyT1QtMmpRNDlEVTlyX3Y1RElKUlBqc29tYXNFZTFNMlVtdXZDel9rUUdVRDRpVmRXRnhLWUpHU3FlM2xvaEpsXzV6djdPMzNrV1dKTUhRNzhWVTRseHdRcFU5clFhaTVIc0U5T25RYzR4ZnB3Mm4taU5HWXpsWXhuSnNab1hMczhxNUFnWVlYY0hHU29rS2t6YUFkYmZBbDVEV0RFZEE?oc=5) |
 | University of Arizona declines to sign onto Trump administration 'compact' - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNV3llWUk0VzdacVJnQlZ5Q29fekY4cV92aTl0SW5GcFNjOUkzRlB3ZHZSLW5vU3N6SUw4cXVUSzZ6RDczbGNOQ2tRSWNZblozZTV6Q3Qwd3ZGR21VdHBBZzBGRktGWVpSLXJMOGZQTW52YVQ0TDhEbDd1aUE1UnZhS1F2ODVzWjZJLWs2VzhsSG9BSnRTOEtuUm9JV25CakxwTFZlS2xYdmVIVWhYTGNnMA?oc=5) |
