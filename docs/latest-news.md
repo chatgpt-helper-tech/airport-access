@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 06:24:30（北京时间）**
+🕒 更新时间：**2025年10月22日 06:33:15（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Trump says he did not want 'wasted meeting' after plan for Putin talks shelved - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBoZ0VVNEI0RVFyQi1IV29Jc2MzWm9EZHlhNFd3dGlNM2lERlNfM3pGakhvV1d0ZzNXTnViblVONVVGUVVnZzdfVkVaaDA1MFQ0a29uSTM3RmdTUQ?oc=5) |
 | PHOTOS: White House starts East Wing demolition to build Trump’s ballroom - PBS | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOTEZPZjZEVWZ1ejYwdXNybUhwQ3BkalNmc1NmdExZY05ZSk44REw5X05feFoyUEFlVHhWZ05KY3d3SGNWamRXQ3N4M3pOS2swbGtvWU1ZcVU4azVOT1VoakZVNklwR0pIQUlTeUdidHNTU2hsb0tTa0xpa0NPZGx3aWt6ZFZIMnh6Sjh6UGVxN0Y0ZUE0LS1SZjZMbkVBNk9sbUNoUHZqdmNrbzVwVVE?oc=5) |
-| In a shift, White House says no plan for Trump-Putin summit - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOUEdmTjlNMWpWanFoeVlfY2lQWnl1VksydEg1WnRfWnM0NDdCWmM1U1V4UlZyX3BZdHVlT0tYVlZoX3VTVWZfaGo0aGZ2RUl3TE53LTZJN0x5SGJEOTZpMEE2VFk0dHlxQk5Yb2NCRjZlTHN5NS1vOHA3dy1DLWZ6Sy1rXzU?oc=5) |
 | U.S. Marshal and Immigrant Are Shot During L.A. Traffic Stop - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQVk9PeW5ZLUtLU2lfbjFQQVFRVXJWeThsaGJENlN1eWczSmV6ZWxLU3dmYmtrdGFlbjkyUFREaUltSzF4Rm8tLTdhNkpwRnF2blFic3FrRjRGUi1naGRSQVVZcEFPSzl5dGw0M21mOE5oNzBpUGhZTEJ5emtKTDJ2QTk0cTUtU0o0aHRSdg?oc=5) |
 | Vance visits Israel and says ceasefire in Gaza is going better than expected - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOODVsbjM5enViaDZvMU1QUzdRMnd3RXl1Ti1qa0l0Wk5JMVhqM1N2Y1NQQXFDM3BHaXAzUjVCVEFycWJDMURDZk1UaU1RRUp1R1NFbXd3cG9TUnEtLWRaSm1SbWNOQUZPU0hjSTNoTENiQ1FjbDlnRmNVenA1WnJTSFQwdk1NNjdaNGF0WVA0UExPdmFDM3Vaa21UYkxzOVVwaEpYaEY0c3c?oc=5) |
 | Trump wants $230 million from DOJ for investigating him: NYT - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQRExpLS1ZaW00cGE1WDRPNFJEUk55cDFMQnZCWXRPamlMX016SnZ6XzlnbHdnZm02YUY0bXRTb01MUzhlek9YYlJnOUw1aEQzSDdHOGtNUVQzS2RGNzZmSjZaaEROcTR1N0RMeTVfdkxuZkxZYk4xbXNvRjJSY190VjBpTVFZbVhCZDdHaWZjVGfSAZYBQVVfeXFMTjRTZGhLVmZsSzJ5XzU5QWpIYU1wUGw0SjVwNVpuTHE2aUdSclJPSFZnc0tNT0hiR0V4NTJQclp6cHZyVmlMTmRjaGcwR3ByeVA5WWhDeEo5T2FJaElmVXd4WFRFN245SUxWWGdyUnI4Q1VaS214TVhwVXU1UUc3NUZfVjFsWURXcDVUd0dEYmJ3anVkNUJB?oc=5) |
