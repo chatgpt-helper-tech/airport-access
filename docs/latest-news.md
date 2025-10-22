@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 16:09:28（北京时间）**
+🕒 更新时间：**2025年10月22日 16:16:56（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | Effects of antidepressants on physical health ranked for first time | [阅读全文](https://www.bbc.com/news/articles/c9d65nqgd5zo?at_medium=RSS&at_campaign=rss) |
 | The £5.30 orange juice that tells the story of why supermarket prices are sky high | [阅读全文](https://www.bbc.com/news/articles/c397n3jl3z8o?at_medium=RSS&at_campaign=rss) |
 | Jaguar Land Rover hack is costliest cyber attack in UK history, say analysts | [阅读全文](https://www.bbc.com/news/articles/cy9pdld4y81o?at_medium=RSS&at_campaign=rss) |
-| Six dead in Russian drone and missile strikes on Ukrainian cities, officials say | [阅读全文](https://www.bbc.com/news/articles/czjpe0193geo?at_medium=RSS&at_campaign=rss) |
+| Six dead in Russian airstrikes, hours after Trump shelves bid for Putin talks | [阅读全文](https://www.bbc.com/news/articles/czjpe0193geo?at_medium=RSS&at_campaign=rss) |
 | Gaza health crisis will last for 'generations', WHO chief warns | [阅读全文](https://www.bbc.com/news/articles/cnvezzdnmrno?at_medium=RSS&at_campaign=rss) |
 | Eurostar orders first double-decker trains | [阅读全文](https://www.bbc.com/news/articles/cz6n1w80z1zo?at_medium=RSS&at_campaign=rss) |
 | Six arrested after violent protest outside Dublin migrant hotel | [阅读全文](https://www.bbc.com/news/articles/c629zg8v8jpo?at_medium=RSS&at_campaign=rss) |
