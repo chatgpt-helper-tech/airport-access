@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 04:16:52（北京时间）**
+🕒 更新时间：**2025年10月23日 04:25:20（北京时间）**
 
 ---
 
@@ -9,11 +9,11 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Harvey Willgoose killer sentenced to at least 16 years | [阅读全文](https://www.bbc.com/news/articles/cvg7ezmly8lo?at_medium=RSS&at_campaign=rss) |
+| US to announce 'substantial' Russia sanctions | [阅读全文](https://www.bbc.com/news/articles/cd6758pn6ylo?at_medium=RSS&at_campaign=rss) |
 | No camera covered Louvre wall where jewel thieves broke in, director says | [阅读全文](https://www.bbc.com/news/articles/c9d6e2wv884o?at_medium=RSS&at_campaign=rss) |
 | Migrant removed to France returns to UK on small boat | [阅读全文](https://www.bbc.com/news/articles/clykzx43v0po?at_medium=RSS&at_campaign=rss) |
 | Child abuse expert pulls out of grooming inquiry over political 'point scoring' | [阅读全文](https://www.bbc.com/news/articles/c629zvnd5lno?at_medium=RSS&at_campaign=rss) |
 | King lands in Rome for historic visit to meet Pope | [阅读全文](https://www.bbc.com/news/articles/c07mzye39djo?at_medium=RSS&at_campaign=rss) |
-| US forces kill two in strike on alleged drug boat in the Pacific | [阅读全文](https://www.bbc.com/news/articles/cd9k2w8ell0o?at_medium=RSS&at_campaign=rss) |
 | Council U-turn on fine for coffee poured in drain | [阅读全文](https://www.bbc.com/news/articles/cg435gg66gpo?at_medium=RSS&at_campaign=rss) |
 | Reeves considering tax hike for lawyers and accountants | [阅读全文](https://www.bbc.com/news/articles/c0mxwg70gkeo?at_medium=RSS&at_campaign=rss) |
 | No charges over Trump-Epstein projection on to Windsor Castle | [阅读全文](https://www.bbc.com/news/articles/cgmx1kpgr2do?at_medium=RSS&at_campaign=rss) |
@@ -28,10 +28,10 @@
 | US military kills two people in strike on alleged drug-trafficking boat in Pacific - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNZzl4Q2NWbW1lNUNjSVZ2bm1jX3dXREZkS09ua1NEeFdtc2xXY2Foby11Y19ic2tYYlJmYWRUY19Nejg1c2tsUjV5aGczUjk2M19fNXdnUXNKYm9vdV94NVdwZ1doNFRnSjFjUlcyY083OEZtQTlmVl9rTndZcWRuRGFrSi1UeDlUYUNtMEZ0clNMeXM?oc=5) |
 | Louvre failed to spot jewel thieves early enough, says museum boss - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9WNGVudHdHS21yVGJvWVRnMlZRb00wMkc3NVc2N1hjSjBoejh0V3hYRmw1bHN3bXFFNGhHSXdjbjFneHBBUTBhVng4bjR3dWxsdVg1NDhBMklFdw?oc=5) |
 | Sen. Jeff Merkley delivers marathon Senate speech protesting Trump's policies - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE11LW04ZGhLMmQyZEJ3UzVMaGlPZ0FsMEdqNkhpbklYNmNla2VfZkVtc0RFelZzRTRaZ0tRamR3ejRZazZsU19rZDJEZm9IUW03eWRUX3JQOFkwNHZJMTlyeVJPSDNlZDV2MzN0TkFhY9IBdEFVX3lxTE9adlVaVEhka3ZVTE03ZG03VV9ZUkxkQ2J4N0IzWmF3VV9ULTNVUEtSb0FkUFptOHk5aFQ5cjM4dEtOazJSSnBqU2dKaFFJZ0dIaHBmSnZSV09OU3R6REh4Q2VXX0prbmV0YnpHRmU4TmdEZXFm?oc=5) |
-| Trump sought $230M from Justice Dept. to settle past investigations of him - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMkoxMHpUU0UzVnlxV3VnU2dlZVFhNV85TWhudVNKV3Q4TmNBVWt6S2ZKVldMVmFoRnQ4QV9JY0RuZXo2QzhsejYxTEFka3M2dWZvRHJUbnNleUlDTEs0WlNLSWUxdDVKNS1xWUNOY285QVlXNDlrRXEzZjFkaF8wRnRoTW4xNWc?oc=5) |
+| Russia was smug about Trump-Putin talks. Now they're on hold, Moscow's anxious - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPYzh5eFpmc3I5dVNoYjZZYUlMaTBidEhYeTlLeTNlU0p2ZWF6ZWU0UlhkMXhDZ2oyNTY0NTBZLXlxV3RpalYxaGhoNTJLTzJqM01BaXFRNmdzenJsQ3d6c2tvNXcwRnpjNHlFbFc1Um40OUt0VE9RSUVsUV85WVFUdV9rT2tuVkdiMXhVc245UE10ZGduX3dkdEVOOWLSAaIBQVVfeXFMUHl4RDM4dW04ZzkxUG9SRnlZbG9pSjYxUTNhUVJwNW1xbG92RmJVd1ZHY2hiQ0RjU2JvbEQyV1k3MkhYVmZaUzRMSGQzMlV1SmY2U1hLZHA2d2ZIVi10SkxVNV9xUTA0U0xEandwMEY2VllFSHJFZXlaTWlsaTczOTJ6T3NaX0hWd2xXYzJIc3pPa1g3dW5veUVFRm5zd29BOVJ3?oc=5) |
 | New York officials condemn Manhattan ICE raid: ‘This creates fear and chaos’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPQUZyam5vX1o4Y0FYNGZ6T2JGTExSZnVuY2pQVDZsZHBvdzBuVFRPSmlqOGwxOG8ycVdadXU0dnpQd0NkWkJHLWhMRE1DY0tkRUJTNUoybVdFajMyUzB0SWg1TjM4SlJGTnZTQ2hPQUMyRzU0aDdtd1U0NzdIMXB4STU2ZEUweE41TzEwMA?oc=5) |
-| Maine Senate candidate Platner says tattoo recognized as Nazi symbol has been covered - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPRHdLUDJHa3pkdTA0WW1nM0ZjMElWRDJDRnNFdllER0ZNaXdTZ1dSbjhrSTd1ek9ORzF5WkxTMkhHc01XUGZhZ3dKcmJKbmFzSWlPcG9XRVdfR0NFNWJZZ3VPYjdSU0xJazFNSTktWUpfM0tMRzhkWERJM2JlTmJVek5mMl9QWk5GMUFtbEJfeG95RDVmTmN5VjFKUFJpNVpTb0ZJTFhnTjBRYzA?oc=5) |
 | Government shutdown live updates as funding lapse becomes second-longest in history - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQVnZqTHA3RWVvT3MycGV4cFp4ckJtbUh3S3lsYVp1SjFMOHNwZ1dObFdadkhhc1V6N0xoWHB2VG5PTEJ0SDZublBVLXNjZ1BVdmsxS1ZpMEVpdXRWLTR3aWs0NW1FVXpLSGNINXhXRnZ3MVBoeXRnU3ZEZE9QbWZDb3RsY2g5dkN3SkR6cGtqcXpQcnZTRUFpVlRyLXR0WUZWWElaLUE5YlJjUdIBrwFBVV95cUxNUTBFRkptZlV3dE5tNGZ1T0YwT0VCcDU5OWVPZXJxQ2lIMXJ2b1ZUSU9BZzdsck5oUXBaNWdBM0hRSVJTQWlEU3c5TDZvWjRtN2ktRU5PcGVXMWdESV9NSERseUpfTWotYlRHRTAxaUZHUGxvekRTTVEtV2lpQ00xSGNQZ0liNXVONjJQLUZiSHV4RVk2NVRJUXZWcTZ3NFRIbFJHVG11X0hRYzVhU25r?oc=5) |
+| Maine Senate candidate Platner says tattoo recognized as Nazi symbol has been covered - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPRHdLUDJHa3pkdTA0WW1nM0ZjMElWRDJDRnNFdllER0ZNaXdTZ1dSbjhrSTd1ek9ORzF5WkxTMkhHc01XUGZhZ3dKcmJKbmFzSWlPcG9XRVdfR0NFNWJZZ3VPYjdSU0xJazFNSTktWUpfM0tMRzhkWERJM2JlTmJVek5mMl9QWk5GMUFtbEJfeG95RDVmTmN5VjFKUFJpNVpTb0ZJTFhnTjBRYzA?oc=5) |
 | Day 3: Live updates of Sean Grayson's trial - WICS | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOOUVlb1QxcjE1bW04RVI3LXp6UGZQNWRMcmxjM2oxaFVhb3hQRFBPOVdrMEE3VmxRZzdLenVGZGhyR2F5UTlOTkJBb0ttd1VPNDVIQXgwNFB2bmdKU3N1b0hSbFQ5ZEJGdjlUdlNWRktleUVubUZvZ3dncFVfUVl2STNkTGs?oc=5) |
 
 ---
