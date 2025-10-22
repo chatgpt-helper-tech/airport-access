@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 20:09:02（北京时间）**
+🕒 更新时间：**2025年10月22日 20:17:23（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| ‘We absolutely need him’: Some in GOP say it’s time for Trump to get involved in shutdown talks even as leaders rebuff idea - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNQmYxXzVlTTZkYVQ5ZjJUY0JpQjB4UlI0OHJRbV8wa05qMkhCQ2dtUk9idlVnSHEzSENzcHpVVUQ2eERydFpCRzRVbGhMaFdmZ3V1RDA5UHNZZmljOW90MHllQkJBV2Z5TjBiRDhVYjl5Yk55RWYxMlVzNFBIa3NJVEllWVZTMWZQbkE?oc=5) |
 | Children among dead in Russian air strikes, hours after Trump-Putin talks shelved - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5pX0RtQlMyaGU5M1M4VXJIb0pueE1DVV94T3VQMUNkNXFlRC14WVZ3dEVMZTJ4Uk5oS0JERFNQdTdJZFlYRjZKcV9UbmtoUlNmdnZpU2l0NmJfd9IBX0FVX3lxTE82dzliaFQ3TWtQTHdWa3BUX2tudE45VmNtc1B0QkZZOWhuRTM5X0I2TXJkZ2FxR0J4T09zU1EyMm1CbW9tVlF0SHJYT2tUV09CN3dBWmdicWJLdkhXTG1v?oc=5) |
+| ‘We absolutely need him’: Some in GOP say it’s time for Trump to get involved in shutdown talks even as leaders rebuff idea - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNQmYxXzVlTTZkYVQ5ZjJUY0JpQjB4UlI0OHJRbV8wa05qMkhCQ2dtUk9idlVnSHEzSENzcHpVVUQ2eERydFpCRzRVbGhMaFdmZ3V1RDA5UHNZZmljOW90MHllQkJBV2Z5TjBiRDhVYjl5Yk55RWYxMlVzNFBIa3NJVEllWVZTMWZQbkE?oc=5) |
 | Late Night Watches Trump Go ‘Hulk Smash’ on the White House - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPS3h4dEE0OXV3c19PSVhZT2U3Q2w4TlZzemU0TnZ1NEVyaDZCS2l2ZmhpNGtuNno0alVQTFZzMDBtQU1RN2ZIc2lwMlRWTmMzeUlvUlE1Y0JfQUxvMS0xNjR3bHdITEJzdERfYmI3anZIa0taSXYwaG5SLUEtV2NLekV4NDE1TFItX29hN1B5RGZLOWZOaklwRWlBWVNYWEE?oc=5) |
 | Driver crashes car into White House security gate - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOc212bW8zSFE0RTlwUWcybzlSVi1mbUtId09NQUJWcXpWRGVQc2NIaGRIejFpQVh5RUFXcExObXN3WWZsZTBUSURSOEpRMjQ0anFwNzdHMkI5eUlHMGRacVIyVGRlRkZYeDkxSjJSallCZHlBU2h1MGQ2VEZBeDc0QXEzTFFVbVU?oc=5) |
 | Trump sought $230M from DOJ to settle past investigations of him - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMkoxMHpUU0UzVnlxV3VnU2dlZVFhNV85TWhudVNKV3Q4TmNBVWt6S2ZKVldMVmFoRnQ4QV9JY0RuZXo2QzhsejYxTEFka3M2dWZvRHJUbnNleUlDTEs0WlNLSWUxdDVKNS1xWUNOY285QVlXNDlrRXEzZjFkaF8wRnRoTW4xNWc?oc=5) |
