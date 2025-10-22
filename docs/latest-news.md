@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 10:56:37（北京时间）**
+🕒 更新时间：**2025年10月22日 11:01:51（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | ‘We absolutely need him’: Some in GOP say it’s time for Trump to get involved in shutdown talks even as leaders rebuff idea - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNQmYxXzVlTTZkYVQ5ZjJUY0JpQjB4UlI0OHJRbV8wa05qMkhCQ2dtUk9idlVnSHEzSENzcHpVVUQ2eERydFpCRzRVbGhMaFdmZ3V1RDA5UHNZZmljOW90MHllQkJBV2Z5TjBiRDhVYjl5Yk55RWYxMlVzNFBIa3NJVEllWVZTMWZQbkE?oc=5) |
 | ICE agent wounds deputy U.S. marshal and TikTok streamer, who is charged with assault - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQbWptQlEzamU2a0FPQnozei1nU1VhSGlJV2d5WGYzVjVVWUlmQk03N2x6NHdjYTctS0hTNl9IazNxeUx4V3FtcGJ3NklrUUFnNXlHZnoxM1JONjktektZbks1ODMtckZQajJHTU5QdkdlZzN6TkwwNmZWYkxWN1B2THZkRWtJQkxmaGh1a05GYW15WW1JSVh5UmNQNWw0a2M?oc=5) |
 | North Carolina lawmakers vote to add GOP House seat, in win for Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQMFhEZl8yWGxVVmtTNW9LUi1nN2lNRVE1a2c0Q0xsRXpTZTVLTWwxdXk5T0hqMTNFdVBCWDM2UTFYcXlZdTdySXFLdkdhck9YUjlyYkx3eWhmaGhBSk45by1jTlNQbDNLMmYyOE5faTZ6eWRra1dCcnFBdmdmc3h0YVhkTGM4M0k0SmVwUXd4MHAzbEppenc?oc=5) |
-| Federal agents carry out joint ICE crackdown on NYC's Canal Street: Official - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPRWxKUlFtMEVKaUdOZEJ0Sy1ZMFNNTWdtYjJKNzd1dnU0WTFKTFQ5bkZCeXNuSGJrZ0l0eWxhRWw1QW1jV0ZheV9lY3JQY1lDcXhNUktva3FmM3NscFdRVGstYVIxTFcxR1dGblZZd1F6YzJYMzNHRWJDN2lGMVh6X2w5ZmN6TTdaQm5kc2gyWFJtaHhOVjdPaFIzeV_SAaIBQVVfeXFMT0xjdzllWkZGeHZtbV9QLUZmNEtyRmFxNXNtYWt4VWkzTFB0ckpMVjlFM2M0UXdzajFzNkltdjVsTjJDbm1QMnZjR0FvSWFWVU5MUXd3dHlHSDBXWVFzTURGWnNLbzMwMFRTTy00R0VvSjE5ZjZpRDFUNnJvLVMteVhVYzd6aTN0Z09oQnBXZU1jR25HQ2RkMTdBdkN1NzNqeWl3?oc=5) |
 | Arizona sues US House over delay in Grijalva swearing-in - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxObDR2RC13RzE2T3h4M3JwMG1mZVl5VkFtSkdtclFaNzc2TEhiVk13VGJKWEVEYnJKT1NjNmtkdFZRN0pra2tlMFBmZURZY0RremJRRzJIMzVHNmxkaTNmSXVxVEFpS3ZGSXYxNTFwOHNrdW4xWEM5Uk16aXE3SktBMEVR0gGHAUFVX3lxTFBYY0sxVHFCVTNVakRJTmFZODBlRjNWQWl5SzdRTm9xSzBrb2dVUHppcG9DZENhUE1LREV0YWpjeU5tYm4zeksxYU1MeEV1Y3dlbUlHMVY4cjgweVpHZWNNeDVGR0FpTzhHQWxfd0dCeDlMNnZCYWg4US00UHZ1T3V4THhVeDZQVQ?oc=5) |
+| Federal agents carry out joint ICE crackdown on NYC's Canal Street: Official - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPRWxKUlFtMEVKaUdOZEJ0Sy1ZMFNNTWdtYjJKNzd1dnU0WTFKTFQ5bkZCeXNuSGJrZ0l0eWxhRWw1QW1jV0ZheV9lY3JQY1lDcXhNUktva3FmM3NscFdRVGstYVIxTFcxR1dGblZZd1F6YzJYMzNHRWJDN2lGMVh6X2w5ZmN6TTdaQm5kc2gyWFJtaHhOVjdPaFIzeV_SAaIBQVVfeXFMT0xjdzllWkZGeHZtbV9QLUZmNEtyRmFxNXNtYWt4VWkzTFB0ckpMVjlFM2M0UXdzajFzNkltdjVsTjJDbm1QMnZjR0FvSWFWVU5MUXd3dHlHSDBXWVFzTURGWnNLbzMwMFRTTy00R0VvSjE5ZjZpRDFUNnJvLVMteVhVYzd6aTN0Z09oQnBXZU1jR25HQ2RkMTdBdkN1NzNqeWl3?oc=5) |
 | Man who planned to shoot up Atlanta's airport is arrested in a terminal following a tip from his family, police say - PBS | [阅读全文](https://news.google.com/rss/articles/CBMi4wFBVV95cUxQci1FQ01zMDVDQTAxMk9UQWlBbHBtc0E3Z2hjaHlPV1VQSktwOWFfYlQyRmFQbjRBc3VqanB4cUZIMjRiZVAySElyNGp0a0o5R09HUFdwNEF6dTVsX3lMdHluWlltaFNDejhhZDRJQlRuX21XT0NqZ2Y4ZjdBOGlfUWdQc2hGQVBJNUdHNEg0eDBwekRhZ09qZVMtbE5tb1U0MWFBSHp2dUREOFV1TU5ieTJOenVTMGZRVzVWdXVKR2d4NVM5enptS0RrSVR4N2tCWmJFb19NOGplNlZTX3ByOS1CQQ?oc=5) |
 
 ---
