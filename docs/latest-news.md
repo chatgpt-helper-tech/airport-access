@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 08:24:28（北京时间）**
+🕒 更新时间：**2025年10月22日 08:32:22（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | ICE agent wounds deputy U.S. marshal, TikTok streamer during Los Angeles operation - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQbWptQlEzamU2a0FPQnozei1nU1VhSGlJV2d5WGYzVjVVWUlmQk03N2x6NHdjYTctS0hTNl9IazNxeUx4V3FtcGJ3NklrUUFnNXlHZnoxM1JONjktektZbks1ODMtckZQajJHTU5QdkdlZzN6TkwwNmZWYkxWN1B2THZkRWtJQkxmaGh1a05GYW15WW1JSVh5UmNQNWw0a2M?oc=5) |
 | Ingrassia withdraws from confirmation hearing after racist texts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOX2VXcDNHcHFvdTdHSEhHUU5yRVJRcWZVVXUtenNzUndRTE04ak5UZXJkZk9yZ0E1aWtiSzZ5YjhydHVwZ3F3OXpEM3BxbjNSY25xVWZHUWJfZnVhZG1EY0gxeWROTEtBbnBkVFotUFh6cU1INjZfdk9qN0dIU1hRT2JPaVVTdEVSeW81ZDVEZEt2YUxPbmYxQ0Vqdw?oc=5) |
 | Arizona attorney general sues House over Johnson's delay in swearing in Adelita Grijalva - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNSGlFOWZ3Q25CdlJQUVJmU2plQ2o0MURHaDBpR3FqOGk3VThNZThleUtEcHd4c1g1VURFQjlqWWd2bGR6THdGSENaaWlObE1VX0ZHWFFqWHVkTjlxRGxrUlZ2dzJiX2dNV3ZwSGJkTldtdkpteXVXd3VwLThGazBYcUVDbTcyUVFYUGUtMlRhRTQwWjR2b2pQODhtcy1WNEx0NGRCemdXTzRwc0nSAbABQVVfeXFMT2xBNHZRQmVYamoxNU4yMktEUlRMVlVsUTRMMkI1b3BzZ29kemp0UkI1aDhHM2FRcDlKc2VHMzZSMDJuLWlEeGUzZnd5YmVPcWRMa0RTU2cxR1FhX0QtamdpUjNrUmZ3TnhGUWZYV3BCa3M0Um9JTTBzV1dNSjZxU1I2aU9KOUpBMDNHQ0pNVkswNnl1LTYzRm9CSnlMSGo4a292RmMtYUJJZUZlT2dZUms?oc=5) |
-| ‘I’m not a secret Nazi’: Maine Democratic Senate candidate addresses tattoo - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOUWxYY3VQV2w3OUI3a2R3Mmk3M05YekhJdkM2NzQ1T0RSblZXdlJnWTc3SnRGR3pkMzlmNGxKRkw4SG5PS0ktZS1TTW5vX19fRmFRMnZHclhETmNpaW84VEVqOUZYaXJIS0Q3Y2lxQk9mZXNRRExLclpTS05SOHlVWlFzME5ieHp5LUJOMGE2NlJXbDRRSHc?oc=5) |
+| Maine Democrat Platner, on defense over tattoo, takes page from Trump playbook to keep up Senate bid - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNb3doaG1IZGsxeE1aNEMwX1B6cFQ5bXhWMXlIRm5lSS1vM3JjNXhsYS1fd3RxVFpHWlRqY1c4cFUtNE9JOFd6YUM0Y053VFV5TDM1NFYxU0tnSjV5RHdfMXNRWUR3M19RNjZlZXNwQmUtM3owQXpXcjVlWmhLVnpuLTdKSnZReVNSdzN1UTFaRENrdzYxNWNyeEZSakFOQnJ0UzNEaXV6OXNKT3c?oc=5) |
 | North Carolina lawmakers vote to add GOP House seat, in win for Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQMFhEZl8yWGxVVmtTNW9LUi1nN2lNRVE1a2c0Q0xsRXpTZTVLTWwxdXk5T0hqMTNFdVBCWDM2UTFYcXlZdTdySXFLdkdhck9YUjlyYkx3eWhmaGhBSk45by1jTlNQbDNLMmYyOE5faTZ6eWRra1dCcnFBdmdmc3h0YVhkTGM4M0k0SmVwUXd4MHAzbEppenc?oc=5) |
 | Pardoned Capitol rioter arrested for allegedly threatening to kill Hakeem Jeffries - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQSGZodU9BMHV4c0R1dlVONkRvdU0xaFJuR2tYbnplUEtrcjhBTE0wVjAxWENOOXNuTEtEc0NoTXgydVh2eFVHMU9BNXJGWjJkNEdOeVRsRktZS3dEbUJScHBTTVhTY1VhdmM3VVQ5VUdVY3N0Tk9QUElMazdJQlNYQktGaXBWYTg1Sm9UVjFBRWxXZw?oc=5) |
 
