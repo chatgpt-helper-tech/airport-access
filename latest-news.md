@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 11:01:50（北京时间）**
+🕒 更新时间：**2025年10月22日 11:09:27（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | North Carolina lawmakers vote to add GOP House seat, in win for Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQMFhEZl8yWGxVVmtTNW9LUi1nN2lNRVE1a2c0Q0xsRXpTZTVLTWwxdXk5T0hqMTNFdVBCWDM2UTFYcXlZdTdySXFLdkdhck9YUjlyYkx3eWhmaGhBSk45by1jTlNQbDNLMmYyOE5faTZ6eWRra1dCcnFBdmdmc3h0YVhkTGM4M0k0SmVwUXd4MHAzbEppenc?oc=5) |
 | Arizona sues US House over delay in Grijalva swearing-in - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxObDR2RC13RzE2T3h4M3JwMG1mZVl5VkFtSkdtclFaNzc2TEhiVk13VGJKWEVEYnJKT1NjNmtkdFZRN0pra2tlMFBmZURZY0RremJRRzJIMzVHNmxkaTNmSXVxVEFpS3ZGSXYxNTFwOHNrdW4xWEM5Uk16aXE3SktBMEVR0gGHAUFVX3lxTFBYY0sxVHFCVTNVakRJTmFZODBlRjNWQWl5SzdRTm9xSzBrb2dVUHppcG9DZENhUE1LREV0YWpjeU5tYm4zeksxYU1MeEV1Y3dlbUlHMVY4cjgweVpHZWNNeDVGR0FpTzhHQWxfd0dCeDlMNnZCYWg4US00UHZ1T3V4THhVeDZQVQ?oc=5) |
 | Federal agents carry out joint ICE crackdown on NYC's Canal Street: Official - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPRWxKUlFtMEVKaUdOZEJ0Sy1ZMFNNTWdtYjJKNzd1dnU0WTFKTFQ5bkZCeXNuSGJrZ0l0eWxhRWw1QW1jV0ZheV9lY3JQY1lDcXhNUktva3FmM3NscFdRVGstYVIxTFcxR1dGblZZd1F6YzJYMzNHRWJDN2lGMVh6X2w5ZmN6TTdaQm5kc2gyWFJtaHhOVjdPaFIzeV_SAaIBQVVfeXFMT0xjdzllWkZGeHZtbV9QLUZmNEtyRmFxNXNtYWt4VWkzTFB0ckpMVjlFM2M0UXdzajFzNkltdjVsTjJDbm1QMnZjR0FvSWFWVU5MUXd3dHlHSDBXWVFzTURGWnNLbzMwMFRTTy00R0VvSjE5ZjZpRDFUNnJvLVMteVhVYzd6aTN0Z09oQnBXZU1jR25HQ2RkMTdBdkN1NzNqeWl3?oc=5) |
-| Man who planned to shoot up Atlanta's airport is arrested in a terminal following a tip from his family, police say - PBS | [阅读全文](https://news.google.com/rss/articles/CBMi4wFBVV95cUxQci1FQ01zMDVDQTAxMk9UQWlBbHBtc0E3Z2hjaHlPV1VQSktwOWFfYlQyRmFQbjRBc3VqanB4cUZIMjRiZVAySElyNGp0a0o5R09HUFdwNEF6dTVsX3lMdHluWlltaFNDejhhZDRJQlRuX21XT0NqZ2Y4ZjdBOGlfUWdQc2hGQVBJNUdHNEg0eDBwekRhZ09qZVMtbE5tb1U0MWFBSHp2dUREOFV1TU5ieTJOenVTMGZRVzVWdXVKR2d4NVM5enptS0RrSVR4N2tCWmJFb19NOGplNlZTX3ByOS1CQQ?oc=5) |
+| Billy Joe Cagle: Criminal history of man arrested at Atlanta airport - FOX 5 Atlanta | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPbFhMUVR3cDBVWEtRNVBlWjlsdGJvbmlFVHBsNXJMZXZTWVFmUWhXazViTEY4SGFyeFMxajhRMGhXcVpyenJnSm9fb0FwWU9EWGtQOVRZRGpaeDBxeE5oNUQwYzdWNkYta1cxUjlEMkpUOXdEZFFDX1IxbElrdHdlcWh1RTlZM2RDNGpzVTJJSno3ZXRxWlZnWkJR0gGfAUFVX3lxTFBuMlgyMUtLNTlXMS1vVWNGdGo4UlNSQ0hjYjlhanl4N2t1SGRGb1pGVzBEeTBkd0luVjRnMVZVUzQxc0pKbzVLRG90Uk91a2t1eVBaQlBRYUdRNGtlVHRJcjVYVVA0bU5jbkFCLUxUbW5jV2RhamhHRmlnWkRTZWhMaVEtXzhVYVJEMndMRExOcmhoNEtHRXVaWldRZTNVYw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
