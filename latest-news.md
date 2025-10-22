@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 10:08:50（北京时间）**
+🕒 更新时间：**2025年10月22日 10:17:29（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Pardoned Capitol rioter arrested for allegedly threatening to kill Hakeem Jeffries - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQSGZodU9BMHV4c0R1dlVONkRvdU0xaFJuR2tYbnplUEtrcjhBTE0wVjAxWENOOXNuTEtEc0NoTXgydVh2eFVHMU9BNXJGWjJkNEdOeVRsRktZS3dEbUJScHBTTVhTY1VhdmM3VVQ5VUdVY3N0Tk9QUElMazdJQlNYQktGaXBWYTg1Sm9UVjFBRWxXZw?oc=5) |
 | Arizona attorney general sues U.S. House over seating Grijalva - MSNBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOR0EyTEZwejVJT29NcnJ6ZzFtbHlpWEJLeHV1YmZiNmZjRlRJcXVPTktjWS1ublRvTlpKWDNqLTZwY1V5OUhIZTB1S2NiVzZhZGJ3eXlBUmpPU092Q0ZIMWtyb2EwRy01cWl1eGtEUUVzUU01WkhQbFkyekJFWUFNUF9Wcl9NVGp5eDNCT0V2VFo3R0NDdDB0TGdseVJLSGhHdmFCNmFlU3FWbWPSAXNBVV95cUxNS1hrUVlpRFNDdnNmZ0o1cHl4djlGVHBDd0hJOTJpVGN3RUZjMHd6bnQ5bVZlMllDa085MVF1OXV0Z0w1LXpZcmluaHVDTWRnMFlJdXlLY3YzQlB4R3BtTGxrRlJBMzd1cmMtWHRFcXBNUWVJ?oc=5) |
 | North Carolina lawmakers vote to add GOP House seat, in win for Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQMFhEZl8yWGxVVmtTNW9LUi1nN2lNRVE1a2c0Q0xsRXpTZTVLTWwxdXk5T0hqMTNFdVBCWDM2UTFYcXlZdTdySXFLdkdhck9YUjlyYkx3eWhmaGhBSk45by1jTlNQbDNLMmYyOE5faTZ6eWRra1dCcnFBdmdmc3h0YVhkTGM4M0k0SmVwUXd4MHAzbEppenc?oc=5) |
+| Zohran Mamdani’s 5 Lessons for the Democrats - Jacobin | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBrQWRMTUllZlpfblVwd250TGcyLXlSZjhQSWtQX2JpSjh2NnhVc19NTEp1S3VFX1pENDVKU1VxR2djSzBxTHFOQUFXM1VzS3FiOVhXR0VydUpaYmw3azJDOFJURENabzBfbzhZUVlVY1hDUlU?oc=5) |
 | Maine Democrat Platner, on defense over tattoo, takes page from Trump playbook to keep up Senate bid - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNb3doaG1IZGsxeE1aNEMwX1B6cFQ5bXhWMXlIRm5lSS1vM3JjNXhsYS1fd3RxVFpHWlRqY1c4cFUtNE9JOFd6YUM0Y053VFV5TDM1NFYxU0tnSjV5RHdfMXNRWUR3M19RNjZlZXNwQmUtM3owQXpXcjVlWmhLVnpuLTdKSnZReVNSdzN1UTFaRENrdzYxNWNyeEZSakFOQnJ0UzNEaXV6OXNKT3c?oc=5) |
-| SNAP benefits to halt in some states amid government shutdown - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQX21LQXVZU2JnV2c1YU9OTFdaRnZYd1pmT1N3WTVUdU9XZFVMMlRFVDJjamFRaEZ6bW9Eb01hVlZydzZTSGdIUnUwMk40VkJvbFkteTQ3Zzl3bVY2MjdtdkVWekFiMTJwYzRzRUF6ellmV2VqanlPTThJcGJtTlEwZWFNQnRsQXZSdEl0ZkpoMEJkeFhQQmdiVUZ0UVJBMHd20gGmAUFVX3lxTFBIVlg4SngweTdoRTdpSkRKMFVPQnVQTmw3MEJLczBoNFZNeUxybml5NFN3S0xGTHZBbVo2UUYtZFd6eDRRNUlZdFBaZllXblZ1VzJFcUotdDYzbGVWcVltTkVzVU4yVV9YOTNsclZlYnhzbnFLZmN0VW0zTDM0enlYSm5LUjM2NWtKT2VOcjQzWGlLQlZMY0lUdjNoUXcxcDBIcXhodFE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
