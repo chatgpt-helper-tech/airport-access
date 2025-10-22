@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 20:17:24（北京时间）**
+🕒 更新时间：**2025年10月22日 20:25:11（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Trump sought $230M from DOJ to settle past investigations of him - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMkoxMHpUU0UzVnlxV3VnU2dlZVFhNV85TWhudVNKV3Q4TmNBVWt6S2ZKVldMVmFoRnQ4QV9JY0RuZXo2QzhsejYxTEFka3M2dWZvRHJUbnNleUlDTEs0WlNLSWUxdDVKNS1xWUNOY285QVlXNDlrRXEzZjFkaF8wRnRoTW4xNWc?oc=5) |
 | Judge who blocked National Guard in Portland faces pivotal decision - OregonLive.com | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQZkd1Ry03VHBXVFpuZUgxcU9ndlc2WFE2dEdQdFVNRTZmbHVwSWpyT25oMzFGeU1SZ0hpdkgtSXhLNUZzeXZGYzVCSWl0RU9LWUgxN3pYblNoc0FWdVdNUFloRDM3cmlhNDFFVjIxak1DU2pweWZVYjNxQkVKNWU3VXNzSVZiR2M3T2dCaS1qT0NtbFdLbHBMY2VzQ0lla1JaTDhRRlNzMDZPVEFLUVJrVDdSQdIBxwFBVV95cUxQRVhFbmh3TGxXN2ZQcFNINEZWcHlDeGdYNG9sNWdveXFLV2RoSUFCT1NlaHNjZ21oZGwzMFh1WHp4UzhTQXNfZ3REN05QZWNMbEpKRldRS2N1cG5JLVFkM0lURkhKSjVnQWlyS2Vfal9TNVI2LXk3QS1Ecm5aZWhpdjJ0NGw4X3IwT1RSUXVjWFd5eEpjUWJwVE9nc3d3Qi15UG1VWnhjZDhqdTB4c0R5MXFWekM1WGtCZlhYN2pkNFFJUE96NnRz?oc=5) |
 | Trump nominee Paul Ingrassia withdraws after offensive texts allegedly emerge - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1SekgzeE4wcmRobzJKME8tdWRaczU2LTE2VWd0NjRpQWlhNWZfZWRTVzMwaFVxUXR4SmdfeXFrcndkMlpoM2R1bm01cjhwcWp3N2xGMUstY015d9IBX0FVX3lxTE10bjlCLXkwOFY3a1dEM2JFYzl5N21Ed3NacWlZemNlQ2NkaE5CblRPOVh1NGtaQUk5TEdmenE1UVVXeENKMG9HT0x0em1vR2RJdGtOSFVSVXh1cXBTczFZ?oc=5) |
-| U.S. Marshal and Mexican Immigrant Are Shot During L.A. Traffic Stop - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQVk9PeW5ZLUtLU2lfbjFQQVFRVXJWeThsaGJENlN1eWczSmV6ZWxLU3dmYmtrdGFlbjkyUFREaUltSzF4Rm8tLTdhNkpwRnF2blFic3FrRjRGUi1naGRSQVVZcEFPSzl5dGw0M21mOE5oNzBpUGhZTEJ5emtKTDJ2QTk0cTUtU0o0aHRSdg?oc=5) |
 | Vance Says He’s Not in Israel to Babysit Gaza Cease-Fire - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOd1dhMnJrdC11TmRNcm1DSVBYNmlWOTJNT0FJc2hnZ3AybkJtc1RMNVRrTXJPVGxoR0ZReFJVTnNzdG81cHJDZ1RIZ0Z3VU9IbXpkOXJYUnEtVzFaSzJCc2NlNkJsT2t3cTh5bkdUenl4SjlnTFE3UERPWnk1dDJZNnVqb2JReG4yNXNJSWlZWFJiODJTUEk4cGR3?oc=5) |
+| Shooting by ICE officer in Los Angeles wounds motorist, U.S. marshal - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQeWd6VTVWUFI5aTRPcWJrOWhzQVhhWXAtVVJBN2lxLVV0UGJtYmk2NzhqUzhSQmJhYndwZTB4dDNzaFVPOW9rc25GX1dxckhNR3RlbkZnbTVzbTZINEV5TjFweWNPZkI2R3J0dmFqT2M1S3lETlZkTWFKbGJSTTVpbQ?oc=5) |
 | John E. Sununu jumps into New Hampshire Senate race - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQQy1NVkxBQXRPOWo2Y2wyVXhkTWhiT1dGdzJwR2NHcFZXU1QtQ0t0eFd2QnAyU0lYYXREeS1IYjBQWU5oQ200SkZhd3BIQVBZVHdxZXQ2c2k0cFlYUW1rS01pcGF5RGExZFFwYlN2aTlVZHlQR0o0clRIU3NfQV9CX0hzTWZTc1RGTHc?oc=5) |
 
 ---
