@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 08:56:02（北京时间）**
+🕒 更新时间：**2025年10月22日 09:01:10（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump wants DOJ to pay him $230 million for previous investigations: Sources - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNMS1wTFp2b0ZBVFhRY2FJY281cWlDR3lJZEF1N045Q3c4eGpObWk2RnB4ZUN1WllqaWlyaVp4QjBLbl9EbVlvY0NxRFZTSzU5SjRoUjM0Q3F5c0tzREo0cGM4VnJJSEM2T2pUeGtGQ3QxNmhtbFZOWDVST0l6N0JhYmNJT19MVVotVEM4UEdNTFVyMzZZWjl4aFllbXlDbFh2RXlQRtIBqgFBVV95cUxOX2EycmhvdnJWM08xbXZuNmFyRjFoYkVmb2FqRjRGZ3NJMlcxc0tMdkFHNGFncThsdzBJRGxad0ZQWlV4SS0xSlRMcUhORnRfZ3NMWU1wOWNoWkh0ZlB0ckQtZU11VWU2SmcxTHJhbS16R2pVdkN5d2FLM3plUlhzYXU0bFZ5T1VzaUpPZmkzQmYwaUNSMm5qZERPRmotX3RtZ2VOTDJ5OGdhZw?oc=5) |
+| Trump Said to Demand Justice Dept. Pay Him $230 Million for Past Cases - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOdmd0cEZkM3diYXphOXBCQXE1Q0pzWl9RSmxTYkFUakFWNmJBdl9PUS1kdk9CaUVWMHdmYXVzQ24tdGxiZXowU0xidXNaRFRLV3d6amZNQ1lfejRVb1BGZUk5dEhndHJ5QlpxaW52UEVPS0o4VEVXREJabzhkOWRKeEx3ckROOE5aZ1k3U3lwTTk2QWs?oc=5) |
 | Trump says he doesn’t want ‘wasted meeting’ with Putin, delaying summit - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOd2VuSFAxdTM4TEs0TkozRExFeklEeVh0VkJDVkswcTJzN0lIQVlLMjNWeHhKTTBvWFB4em0tZUlmcU9KcFRlamRSWE5paWpxNXdacGxGckFsNTZwQjF4T0lQcXFJd05SZXhqaWM1ZU9qNzNWMjJsNElVWWVGWWpJMVN4TTc4aTdoc1p6REFKeVducW1ZNnc?oc=5) |
 | Here are the White House East Wing offices Trump is demolishing, according to sources - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1zLUZaTjQyR0xJYU5teHVDb2pEd1pQQVdQZWdMZEtDN3c1ZWczek1OdVR6RU9PYzhZNFlWbDFISG9yXzVORzI1aGNOY0pEejA1bmdUT0tna0FIX212RTRwVlBRbjI3UGZYOUFlWnlpNjEwQ0FPQ2xURU9TdHDSAYIBQVVfeXFMTm84WU1fS1BGbVZlLUVpeTZkS1pNSEd0MFRrTWpkYnRuTm1Ja0p6MllHdmtqUmRpTXhSVWhSWklucDh4RjJEei1aU3lrSXp4NWFwc0p6OXJ1UnJBM1EwTElDRmhkMTFmUUM4cVQ4VnFDUS1UUG1YMGZ1TW1xOVBaVnpoZw?oc=5) |
 | ‘We absolutely need him’: Some in GOP say it’s time for Trump to get involved in shutdown talks even as leaders rebuff idea - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNQmYxXzVlTTZkYVQ5ZjJUY0JpQjB4UlI0OHJRbV8wa05qMkhCQ2dtUk9idlVnSHEzSENzcHpVVUQ2eERydFpCRzRVbGhMaFdmZ3V1RDA5UHNZZmljOW90MHllQkJBV2Z5TjBiRDhVYjl5Yk55RWYxMlVzNFBIa3NJVEllWVZTMWZQbkE?oc=5) |
