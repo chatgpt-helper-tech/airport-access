@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 12:33:33（北京时间）**
+🕒 更新时间：**2025年10月22日 12:41:21（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Paul Ingrassia, Trump Nominee for Watchdog Role, Out After Report of Racist Texts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQLVlCSzlvS2FtQjRTRDViU3ZKRkFhNHQwbmZnemVXNDRISXNPWmthT3FrNXJKU2xzQVpxRFo2WG9MZWtGUWh3bHBfeFVDVTZrdXpMVlRXaFNRbng5cTFwcXJLYmJEZDN5N3BmUkFBQnBwSzJQZmNCN20zT0UtMU5PWFZ4SW0xQQ?oc=5) |
+| Trump nominee Ingrassia bows out amid GOP pushback - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOQUhXVjdFWkdlN2xSUmFuSTkwM19nRVZGdWc0YlN0Q0ZBQlB4eEVXSVcwbWctajl6MDdyQ3lvWHExT3dKVFBwenJBS0RsSEx4RXFsUlRESVo4QnhXT1loZUhzeFpNLW1jakJDY3A4VVZfQUJqbEZFbW1uSXVJblRVM0h3?oc=5) |
 | White House expands East Wing demolition as critics decry Trump overreach - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPSEpRRjFnZmlCZXZpbm9YM0Q1UWJBRVdmWUh6QUdiQTRxYWNOaUpzOC1rQWRCdnU1NldmcXc1anc3VGoxUW4xZEpZc1lKckUwMWRJLVJXbUhYUXZRMUlTSXVxT0d4dGlWSGVZbFRpeE02NDIybHZwRjF0bnRGaFRYMFZsY2s0c2RtZ1I4RU4yTWpScHlSb2pWUlY3amk3RTlfWlphVE0xOGdJSU5yQ2JpTUc5Zjk1RkI4c204Ump3?oc=5) |
 | Now Trump won't meet with Putin on Ukraine, White House official says - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOZUQ5TFBCbXkwWkNZdjQxSldfdE4yWXhBXzByZnVGLTF1cFZtWURBa1ItTVdEd3BISER4U2p0WlBlYUxiMWtKMDlkSzVPRExGRHBRcTNjTzdGSV91VlRBNVlaQnZ2YmFsLVRxTlJzVlZ3UlNOUTB0eTlyWXlDd0oxaUNjdkQxN1ZWTFEwNzFMUzRELUFXT3NxNlhvN1dFaUQ5TWVJMNIBqgFBVV95cUxPQUJiWmFPdGpjLVFqRXV2eU1HdVFJamFOdk1qYWlHZC1QaVRYVDRMOHF3Q09rSXN2ekZlSzRlUHRwSVpFNUlqMmtXVjVYdU40SWZBMHdFa3ctenhtWFBfT3NjMGhNbDAwQk5aY1N6UndDdmtWclhOUTJlMGtyYzR5YkxTMC10bWxFeFNNV2NQU3ZKaFpDWjRRamJ4dDdhRzd6U0ZKWS1jRnhQdw?oc=5) |
 | ICE agent wounds deputy U.S. marshal and TikTok streamer, who is charged with assault - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQbWptQlEzamU2a0FPQnozei1nU1VhSGlJV2d5WGYzVjVVWUlmQk03N2x6NHdjYTctS0hTNl9IazNxeUx4V3FtcGJ3NklrUUFnNXlHZnoxM1JONjktektZbks1ODMtckZQajJHTU5QdkdlZzN6TkwwNmZWYkxWN1B2THZkRWtJQkxmaGh1a05GYW15WW1JSVh5UmNQNWw0a2M?oc=5) |
-| Trump sought $230M from DOJ to settle past investigations of him - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMkoxMHpUU0UzVnlxV3VnU2dlZVFhNV85TWhudVNKV3Q4TmNBVWt6S2ZKVldMVmFoRnQ4QV9JY0RuZXo2QzhsejYxTEFka3M2dWZvRHJUbnNleUlDTEs0WlNLSWUxdDVKNS1xWUNOY285QVlXNDlrRXEzZjFkaF8wRnRoTW4xNWc?oc=5) |
+| Trump says he'd have final say on money he seeks over past federal investigations into his conduct - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQNVh4U19lV1YtREJtQkRoWnpvU1AtRVhtMThJaHJjMHRVTGtVOXBEenlmU3p5UjZGNmhXdGI1Rkg4bDg2MXIwUFpDVEQ2ZWtKblgwcm1hZTA3Vk5hREZIT1VHVHpwdl9UVjZzNHNxY21EclhjMEVzU1FVLU1pN2g0S3JKcUFnT1llY29SVHBFS0NjQQ?oc=5) |
 | ICE raids target vendors selling counterfeit goods on NYC's Canal Street, DHS says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE1tZmNRWGt3cWVUaEVySnMtb21rYUN4YXlncV9CNG1jeEEtWG5jaTF3T0pyeC1YWW9BbTVxTHM5cV90ZUp4X0RxdGd5VkZiUmhYZ2Z5cFMzNmNvVGVpaTNSUlJUR2ZCUUc2TXdnbXlITVBVbEhFTEVR?oc=5) |
 | North Carolina Senate advances new congressional maps to help Republicans gain additional US House seat - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9PbVN6VXV4ajdaUHJnNTVjMjBKeklLSDFMc0txZmxJaF9aQTVKX3ZSNlo0eUV5ZjVNOXl0djh3RGoybTlRcGNLZE9BMm5QTFVUVUg3bVgxR3QwZ29XSWJpaVZwakpBT0hhT25ZNHZqeDB5S055TFo0?oc=5) |
-| Arizona attorney general sues Mike Johnson for failing to seat Adelita Grijalva - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQbXZYSF9HTjlwdVBoa3lXMXNWNHJBMTltZDJSTXA3YXJOOUxkUGFGdDdHTTl6OFFsYmhFc2UtWFpwNVd2YkVHa0tHTVcwTjVfNDRvX1RudFFialRhQmdkNkR2M29VNzQ2aVdYaFFsX3JiS0c1RVo3dzVPU3ZjdmhQbXV3Mi1QeHJiMFQzSTY4QVBGMmZ3SG4tVC1hQQ?oc=5) |
+| Arizona sues US House over delay in Grijalva swearing-in - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxObDR2RC13RzE2T3h4M3JwMG1mZVl5VkFtSkdtclFaNzc2TEhiVk13VGJKWEVEYnJKT1NjNmtkdFZRN0pra2tlMFBmZURZY0RremJRRzJIMzVHNmxkaTNmSXVxVEFpS3ZGSXYxNTFwOHNrdW4xWEM5Uk16aXE3SktBMEVR0gGHAUFVX3lxTFBYY0sxVHFCVTNVakRJTmFZODBlRjNWQWl5SzdRTm9xSzBrb2dVUHppcG9DZENhUE1LREV0YWpjeU5tYm4zeksxYU1MeEV1Y3dlbUlHMVY4cjgweVpHZWNNeDVGR0FpTzhHQWxfd0dCeDlMNnZCYWg4US00UHZ1T3V4THhVeDZQVQ?oc=5) |
 | Billy Joe Cagle: Criminal history of man arrested at Atlanta airport - FOX 5 Atlanta | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPbFhMUVR3cDBVWEtRNVBlWjlsdGJvbmlFVHBsNXJMZXZTWVFmUWhXazViTEY4SGFyeFMxajhRMGhXcVpyenJnSm9fb0FwWU9EWGtQOVRZRGpaeDBxeE5oNUQwYzdWNkYta1cxUjlEMkpUOXdEZFFDX1IxbElrdHdlcWh1RTlZM2RDNGpzVTJJSno3ZXRxWlZnWkJR0gGfAUFVX3lxTFBuMlgyMUtLNTlXMS1vVWNGdGo4UlNSQ0hjYjlhanl4N2t1SGRGb1pGVzBEeTBkd0luVjRnMVZVUzQxc0pKbzVLRG90Uk91a2t1eVBaQlBRYUdRNGtlVHRJcjVYVVA0bU5jbkFCLUxUbW5jV2RhamhHRmlnWkRTZWhMaVEtXzhVYVJEMndMRExOcmhoNEtHRXVaWldRZTNVYw?oc=5) |
-| Zohran Mamdani’s 5 Lessons for the Democrats - Jacobin | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBrQWRMTUllZlpfblVwd250TGcyLXlSZjhQSWtQX2JpSjh2NnhVc19NTEp1S3VFX1pENDVKU1VxR2djSzBxTHFOQUFXM1VzS3FiOVhXR0VydUpaYmw3azJDOFJURENabzBfbzhZUVlVY1hDUlU?oc=5) |
+| Maine Democrat Platner, on defense over tattoo, takes page from Trump playbook to keep up Senate bid - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNb3doaG1IZGsxeE1aNEMwX1B6cFQ5bXhWMXlIRm5lSS1vM3JjNXhsYS1fd3RxVFpHWlRqY1c4cFUtNE9JOFd6YUM0Y053VFV5TDM1NFYxU0tnSjV5RHdfMXNRWUR3M19RNjZlZXNwQmUtM3owQXpXcjVlWmhLVnpuLTdKSnZReVNSdzN1UTFaRENrdzYxNWNyeEZSakFOQnJ0UzNEaXV6OXNKT3c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
