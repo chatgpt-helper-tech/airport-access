@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 17:41:57（北京时间）**
+🕒 更新时间：**2025年10月22日 17:49:07（北京时间）**
 
 ---
 
@@ -23,11 +23,11 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| In a shift, White House says no plan for Trump-Putin summit - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOUEdmTjlNMWpWanFoeVlfY2lQWnl1VksydEg1WnRfWnM0NDdCWmM1U1V4UlZyX3BZdHVlT0tYVlZoX3VTVWZfaGo0aGZ2RUl3TE53LTZJN0x5SGJEOTZpMEE2VFk0dHlxQk5Yb2NCRjZlTHN5NS1vOHA3dy1DLWZ6Sy1rXzU?oc=5) |
 | Trump pick to lead watchdog agency withdraws after offensive text messages revealed - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOVGtfOUppQkxqd3FBcEFqb21aQW1qQ0VLa3NCRHNGVG1qUmV4ZExkaUU3dzNXeUVEMThuWXVNYUtxYXhSNVBxWTVSQU9kcGc4MWx0azZjeDZFdHBSNDNYSGw1QmlqMlN3VnpCR1FmeEgwTHVrODFsQ29ucWZQa0tUOGNHN2d0bXkw?oc=5) |
 | Historic preservation group urges pause on East Wing demolition as Trump pushes ahead with his ballroom - CNN | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPaXBFLWxWQlRpQW5MZ2RKRWhaM0tJY0xWc2loc0ZZYzI4Qjh0YnZKcnptbFhIbXd3R3ZMOEpJai1LQmREalBXa0hKSEJ6cmdKME9KVHFTWGlwOVk1YXpfRDlKOF9nTlB6SHZpX1JtYzBRcC1yNkYwMnZuS3prQ3VoSGpqdEpSX0MzOGx4d0tMeEdEenpOMVJKQ21n?oc=5) |
-| Trump says he did not want 'wasted meeting' after plan for Putin talks shelved - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBoZ0VVNEI0RVFyQi1IV29Jc2MzWm9EZHlhNFd3dGlNM2lERlNfM3pGakhvV1d0ZzNXTnViblVONVVGUVVnZzdfVkVaaDA1MFQ0a29uSTM3RmdTUQ?oc=5) |
 | U.S. Marshal and Mexican Immigrant Are Shot During L.A. Traffic Stop - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQVk9PeW5ZLUtLU2lfbjFQQVFRVXJWeThsaGJENlN1eWczSmV6ZWxLU3dmYmtrdGFlbjkyUFREaUltSzF4Rm8tLTdhNkpwRnF2blFic3FrRjRGUi1naGRSQVVZcEFPSzl5dGw0M21mOE5oNzBpUGhZTEJ5emtKTDJ2QTk0cTUtU0o0aHRSdg?oc=5) |
-| Vehicle crashes into White House security gate, Secret Service says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOc0Y2eE5mUmNHYlA4QU9waHBIZDgxQjUxdHA0ZzlvdXJ1TFUtbTBPSlpFQ0szSVVKaVk0c1JSLWxwVFdnZVNodGRDZ2ctQ0xTV29FNEMyUWFybkhwMGxLdzZ1aHd6eXdWS3dWOFRLQ1lkcTFxdWFDdUdsa0gyNERGZU5naUdGUjFaalNEdjlLaWRXOHc?oc=5) |
+| Man taken into custody after driving his car into security gate outside White House, authorities say - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPYWNUeEFqNG10cXd3SDg1UC1vZGRydjRlTmhqRHNVVk5BN3lDR2lLZk9hUl8xOUpHRDFBU3NQYlNpcno0VURRNFM1STZnQ3NXaFRMWVpocElTWTRueWF6c04tSjRHaXpTbVdaQ1l2dVhJMVMwZW9pVnd3WEduR3FpYmJOaGVIU01xWHZxemlJVzM2QlRkczVEUkNNM3Y3WFQ0bFI2ZTVaeFFOdDQ?oc=5) |
 | Protests erupt in New York City after Ice raids Chinatown over ‘counterfeit goods’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPb1FYODJNZmVjNjNtTnFmMF9KX21TYXFfOXNwWlJvX0hZNUV3dnBETWdPdjB3ZGUzM3BMTjBRZUVuY18yaU8zUElZS3FZN19KeHNrdGo1OXZSWHNNejBQX0xnN2JFMWtlMzVHdFpGdGQ3Rk85ZFdxblpPZTFRdFNWYk5UNmR6cnJ3S0t6N09kYTEtdENU?oc=5) |
 | Arizona AG sues over Speaker Mike Johnson refusing to seat new House member - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQOHgtQlB6TmRuSFNPYmFvQkp4YnBOUFhZX1dla0NvVDFhaG5SN3RHSnJjZFBaN1h4YldxUDEzZWFSU0xGbm5rbU80UkY0SXIyYlJFWFlyVHFUOVJFV0w4OVRJdndzVHlVdXc4RjRIcFFndnpPTnkwYWh5enpBUVY0eDZIME13V3BiU2pr?oc=5) |
 | Maine Democrat Platner, on defense over tattoo, takes page from Trump playbook to keep up Senate bid - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNb3doaG1IZGsxeE1aNEMwX1B6cFQ5bXhWMXlIRm5lSS1vM3JjNXhsYS1fd3RxVFpHWlRqY1c4cFUtNE9JOFd6YUM0Y053VFV5TDM1NFYxU0tnSjV5RHdfMXNRWUR3M19RNjZlZXNwQmUtM3owQXpXcjVlWmhLVnpuLTdKSnZReVNSdzN1UTFaRENrdzYxNWNyeEZSakFOQnJ0UzNEaXV6OXNKT3c?oc=5) |
