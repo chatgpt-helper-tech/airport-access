@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 03:40:08（北京时间）**
+🕒 更新时间：**2025年10月23日 03:48:21（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Democratic senator’s floor speech condemning Trump enters 19th hour - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQSDA1QlRRb19HNXBadXFxNjhmeGV4SlFsaVRJdkI1d3doRm1GbW1hWlJra2c3alF5cGFuVlQ4QnBUb0tiQUhudnV2Z2Vxb0pQVnVON0pzT1FfNmJ4QmdWZXBUVnhISllyZExDTzYwUUVUYVFGc1pmbmlyLTgyMFFxcXg5T1hFZ0ZrN1VObE0zVHc?oc=5) |
 | Israel ‘not a protectorate’ of the U.S., Netanyahu says ahead of meeting with Vance - PBS | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQWHRwTFZWbU84RlE5ZVk2N3FMaXU4ZFY2WWJQOTg0SXlXdDl6OVRhVVdIaHZmcHVCMFBIOUdPaDFIUHI2M25JbUJaM3AzM042NlZoeTNjUnQwY2RBSXBWbURKVWZKX0RnVFpLSDVpTnlVRGo5X0h3dHBYMjlzSUdySkVLQXBhOW9IRXNnU2U3My1JTVNiYXlKeHA0bE8zdG81N2RrWUNRbkhqYkdqR3ZFSlVuNVrSAboBQVVfeXFMUGhwUlYxRTRLWFI3OTVuVlV3dmt1MjZEVWtWTXY4amF2dEVjVGpUODNuNmN5VUJCSXBNZG5odFE5SUFXeFQ3a01RdENqQkZzODgzZkZBZjl1X2JyMmtIYzczeXliLWs1ZkVJSGVPa2hmWllxWHVpaVJqLXQzYlRHVndsbks0eURpMUFxWEQyVnBIU1FYWHNMOHFrQ3JkOGlnSEZSX0hLbEc3OGZEcWsyWmFfa1F6REpZOXdB?oc=5) |
 | New York officials condemn Manhattan ICE raid: ‘This creates fear and chaos’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPQUZyam5vX1o4Y0FYNGZ6T2JGTExSZnVuY2pQVDZsZHBvdzBuVFRPSmlqOGwxOG8ycVdadXU0dnpQd0NkWkJHLWhMRE1DY0tkRUJTNUoybVdFajMyUzB0SWg1TjM4SlJGTnZTQ2hPQUMyRzU0aDdtd1U0NzdIMXB4STU2ZEUweE41TzEwMA?oc=5) |
-| Government shutdown live updates as funding lapse becomes second-longest in history - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQVnZqTHA3RWVvT3MycGV4cFp4ckJtbUh3S3lsYVp1SjFMOHNwZ1dObFdadkhhc1V6N0xoWHB2VG5PTEJ0SDZublBVLXNjZ1BVdmsxS1ZpMEVpdXRWLTR3aWs0NW1FVXpLSGNINXhXRnZ3MVBoeXRnU3ZEZE9QbWZDb3RsY2g5dkN3SkR6cGtqcXpQcnZTRUFpVlRyLXR0WUZWWElaLUE5YlJjUdIBrwFBVV95cUxNUTBFRkptZlV3dE5tNGZ1T0YwT0VCcDU5OWVPZXJxQ2lIMXJ2b1ZUSU9BZzdsck5oUXBaNWdBM0hRSVJTQWlEU3c5TDZvWjRtN2ktRU5PcGVXMWdESV9NSERseUpfTWotYlRHRTAxaUZHUGxvekRTTVEtV2lpQ00xSGNQZ0liNXVONjJQLUZiSHV4RVk2NVRJUXZWcTZ3NFRIbFJHVG11X0hRYzVhU25r?oc=5) |
 | Maine Senate candidate Platner says tattoo recognized as Nazi symbol has been covered - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPRHdLUDJHa3pkdTA0WW1nM0ZjMElWRDJDRnNFdllER0ZNaXdTZ1dSbjhrSTd1ek9ORzF5WkxTMkhHc01XUGZhZ3dKcmJKbmFzSWlPcG9XRVdfR0NFNWJZZ3VPYjdSU0xJazFNSTktWUpfM0tMRzhkWERJM2JlTmJVek5mMl9QWk5GMUFtbEJfeG95RDVmTmN5VjFKUFJpNVpTb0ZJTFhnTjBRYzA?oc=5) |
+| Government shutdown live updates as funding lapse becomes second-longest in history - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQVnZqTHA3RWVvT3MycGV4cFp4ckJtbUh3S3lsYVp1SjFMOHNwZ1dObFdadkhhc1V6N0xoWHB2VG5PTEJ0SDZublBVLXNjZ1BVdmsxS1ZpMEVpdXRWLTR3aWs0NW1FVXpLSGNINXhXRnZ3MVBoeXRnU3ZEZE9QbWZDb3RsY2g5dkN3SkR6cGtqcXpQcnZTRUFpVlRyLXR0WUZWWElaLUE5YlJjUdIBrwFBVV95cUxNUTBFRkptZlV3dE5tNGZ1T0YwT0VCcDU5OWVPZXJxQ2lIMXJ2b1ZUSU9BZzdsck5oUXBaNWdBM0hRSVJTQWlEU3c5TDZvWjRtN2ktRU5PcGVXMWdESV9NSERseUpfTWotYlRHRTAxaUZHUGxvekRTTVEtV2lpQ00xSGNQZ0liNXVONjJQLUZiSHV4RVk2NVRJUXZWcTZ3NFRIbFJHVG11X0hRYzVhU25r?oc=5) |
 | Sheriff’s deputy ‘got mad’ and fatally shot Sonya Massey without justification, prosecutor says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE5SX1EtclB4elNiMXRXbUo1b0tPZFhvVVlHcU5NNHl0a21kMmlwTHBleHVRZXU4cFptMm8yVlNsMVBYN1BGRkozZFpHXzROWFRTaGRrSC10NDBBb3RVV3NVZy1fenFkeXVWWnJiRC1sSVFhSHlmXzQ2ZXFsUUxnY28?oc=5) |
 
 ---
