@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 22:49:38（北京时间）**
+🕒 更新时间：**2025年10月22日 22:56:25（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | The £5.30 orange juice that tells the story of why supermarket prices are sky high | [阅读全文](https://www.bbc.com/news/articles/c397n3jl3z8o?at_medium=RSS&at_campaign=rss) |
 | Relief over inflation, but what now for the Budget? | [阅读全文](https://www.bbc.com/news/articles/cvg4d13p33yo?at_medium=RSS&at_campaign=rss) |
 | Woman fined £150 for pouring coffee down drain | [阅读全文](https://www.bbc.com/news/articles/cg435gg66gpo?at_medium=RSS&at_campaign=rss) |
+| UN's top court says Israel obliged to allow UN aid into Gaza | [阅读全文](https://www.bbc.com/news/articles/c17pqxzl0yzo?at_medium=RSS&at_campaign=rss) |
 | Prince Andrew should face MPs over Royal Lodge lease, says Davey | [阅读全文](https://www.bbc.com/news/articles/c0exgrgd9w2o?at_medium=RSS&at_campaign=rss) |
 | Apple may be forced to allow rival app stores in UK | [阅读全文](https://www.bbc.com/news/articles/c04gz1wx706o?at_medium=RSS&at_campaign=rss) |
 | Storm Benjamin to bring gusty winds and flooding rain to UK on Thursday | [阅读全文](https://www.bbc.com/weather/articles/c1d043xek30o?at_medium=RSS&at_campaign=rss) |
 | Can you spot a traitor? Take our quiz to find out | [阅读全文](https://www.bbc.com/news/articles/cx20545pdedo?at_medium=RSS&at_campaign=rss) |
-| Can shampoo repair hair? Four haircare myths get the chop | [阅读全文](https://www.bbc.com/news/articles/c0lkrnzpzl1o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
