@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 03:17:32（北京时间）**
+🕒 更新时间：**2025年10月23日 03:25:31（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | North Carolina lawmakers pass new map designed to give GOP an extra House seat - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxOQVNycG01YktlMzZETy1RTUJKMVZ3M2ozckRfeG1YTmtJLVNIOHl0REdzcXZ4QjIzNExVZ3loMUZKZWhtbW41Q1dPNXRUMEd0dzlFUUZDcldqR3BIUVdfeEgxdUZQdVB4aVBkU2lDOURIdmZqZ0plRDI2S1FlNGtyanI4V2xmNDNwcVVzaFRsdVNTNzVGZzNIQ0xoMkNaV1V6Z0E5alBPR0Y1VkNZVndNSlB5ckpNMlhFVHFHMFk5Y05WZ9IBVkFVX3lxTFAxTzUwNFRZUjV3VW1lblVRMzV6ZVoxaGdacFRPTklnNjI1WlVwWWlmd3RPeTJuYWVSUkVwOEJmbTBzRC1FWHVjWmlocVhZeTNZNVVTUWln?oc=5) |
-| Trump White House East Wing ballroom project got $22M boost from YouTube legal settlement - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOQnotUkJ1cU5Md1I0cXF2Rzg3cTd6NDc2cENuNFA5eWFzNDFxcnpZR29rNS1INF9DbnVHd0dRaEFlU0ZJbi0yT2sxWFdRZzFYN1B1UENlUXRoQjZMdkc1LWRtRGVpVjU3MjhBWGJjRFdUdjN1LURKRmd0bzZHTWRSODBnV29sX3g3a0R5RDZ6RHRzdzEzNTJV0gGcAUFVX3lxTE1oWEx3WjFvX1FZMEF6RW5rU3htTEhadUc2T29US1VmS0VaXy1FVUpZVC1Za0hPOVRLQkdjZjFfZUlTRnk2NVZINUx6UFpjT1NQcUJWOWdwUzdnM3VTWFdUREZMY19OYTluWG83UTFQM242blZfZktwV2RaeHI5ZXkzT2ttaHMzUFlnck56NjRHM3pwSVpYTnh1dGtLWQ?oc=5) |
+| 'Entirety' of East Wing to be 'modernized' to build Trump ballroom: White House official - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOeVR3QS1nRkttZ282RURUWWIzRkRoWUJZMTB5b01RX2FWd2R6WGFaQ1UtdWxKNmRHdE5tTGlhZjEtVmRuYnd3czg3a0NXZnJwa2dTX2VlbGxLRmNNeUp4TlBqSnZ0SjlWaFFkVmJZV0FicEtLZF9Tak9PVkw5eC1zeXB2Q1dSWUlCYVFaTU9wbjFoVm1jYW5JLTEwX18xLUJDMXU0REtIbVB6NEXSAbABQVVfeXFMT2ZhMEdEOGNrZ2ZvcnJocU80UXhuQllaLXhVTHAwSVFwWWdfdFVRaEZWTUpLZzNueHM0Ml84MmtYODk5eEZJTHBBVmd1VWRULS1tZHdDQ0NudzhYT05ic3NpZTF4d01oTHJBb3R3M3BOR1RkZ3ZGdjBwcHZJYXk3VmZTT2gyUFZpZVgtMGltanQ0SkwydVVBcFVueVA4bWRTY1VXLVYtSmhvcVBCcGMwcWI?oc=5) |
 | US forces said to strike alleged drug boat in the Pacific - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE0tcEE2c1lnTXBuZm93cEZmLW50OEt6ODZ3SlZoNC1rd2pucDVNU041TWV0WkNIQm85U211aW1yLXhUZnJXNzRfeFdYd2hLRlh1ODlhd3k0blF5UdIBX0FVX3lxTE9FVlRxbm5ZTXdUSUJTQTJOSEZDZW9wMlVGMVlDUnJTU0FMaElnRm9fR2V2RFdJNXlLVXB5RHFOQWJaUUJTcHB2djk2cWQxbXlVV3ZjNU5OajVfcVpGMFlz?oc=5) |
 | Democratic senator’s floor speech condemning Trump enters 19th hour - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQSDA1QlRRb19HNXBadXFxNjhmeGV4SlFsaVRJdkI1d3doRm1GbW1hWlJra2c3alF5cGFuVlQ4QnBUb0tiQUhudnV2Z2Vxb0pQVnVON0pzT1FfNmJ4QmdWZXBUVnhISllyZExDTzYwUUVUYVFGc1pmbmlyLTgyMFFxcXg5T1hFZ0ZrN1VObE0zVHc?oc=5) |
 | Israel ‘not a protectorate’ of the U.S., Netanyahu says ahead of meeting with Vance - PBS | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQWHRwTFZWbU84RlE5ZVk2N3FMaXU4ZFY2WWJQOTg0SXlXdDl6OVRhVVdIaHZmcHVCMFBIOUdPaDFIUHI2M25JbUJaM3AzM042NlZoeTNjUnQwY2RBSXBWbURKVWZKX0RnVFpLSDVpTnlVRGo5X0h3dHBYMjlzSUdySkVLQXBhOW9IRXNnU2U3My1JTVNiYXlKeHA0bE8zdG81N2RrWUNRbkhqYkdqR3ZFSlVuNVrSAboBQVVfeXFMUGhwUlYxRTRLWFI3OTVuVlV3dmt1MjZEVWtWTXY4amF2dEVjVGpUODNuNmN5VUJCSXBNZG5odFE5SUFXeFQ3a01RdENqQkZzODgzZkZBZjl1X2JyMmtIYzczeXliLWs1ZkVJSGVPa2hmWllxWHVpaVJqLXQzYlRHVndsbks0eURpMUFxWEQyVnBIU1FYWHNMOHFrQ3JkOGlnSEZSX0hLbEc3OGZEcWsyWmFfa1F6REpZOXdB?oc=5) |
