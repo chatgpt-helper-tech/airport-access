@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 23:40:11（北京时间）**
+🕒 更新时间：**2025年10月22日 23:49:26（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | American 'Bibisitters' try to keep the Israel-Hamas truce on track - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9mN1hSaGd3M2xCMUM3SmxULXhTWWs0anBHVWh2bXFoeXl0OHFjQ0RSV2laUkxRM1dMSE9qNDdzQzlqYi1rZXZvYVRXUzJEQUhPTGVlemR4YThxdGtBdlRYSGZQWGNvNGI5cWpONGRmSUFybVl4cnplS2h4bWE?oc=5) |
 | Late Night Watches Trump Go ‘Hulk Smash’ on the White House - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPS3h4dEE0OXV3c19PSVhZT2U3Q2w4TlZzemU0TnZ1NEVyaDZCS2l2ZmhpNGtuNno0alVQTFZzMDBtQU1RN2ZIc2lwMlRWTmMzeUlvUlE1Y0JfQUxvMS0xNjR3bHdITEJzdERfYmI3anZIa0taSXYwaG5SLUEtV2NLekV4NDE1TFItX29hN1B5RGZLOWZOaklwRWlBWVNYWEE?oc=5) |
 | US Government Shutdown Is Now Second Longest in History - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNemI3V0IwY21pTmFOV3FZUG9NSmgzZEFWWEtyY01KOHc1OThIWUhSYk9mdzFjS3VpR2cxTlV0aVV1TWtfLURGVG1RZzY4UVlEdWE1cGg0NFdnQTNsd1VZeVhMazBDdk54eF9RV2pPaWtPZzBNN0J2Wkg0WTZmdUxSbTNnbFRpQ2pSWl9DTFdsVFQtZWx3TEZNRmYzZXBZSWR5QzA0czc2Wmh5Zw?oc=5) |
-| Louvre Museum director to face French lawmakers after jewel heist - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE9TLVhoSXo0U21ITXFKQW9UX0tEMEJsQk5aVjhPYVFTMHlwVldOQ2RMZFBzSjRSbGhMWGpfb3d4UUdWMGpNc1UzQXBtcllwbnVKNHpwWA?oc=5) |
+| Trump sought $230M from Justice Dept. to settle past investigations of him - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMkoxMHpUU0UzVnlxV3VnU2dlZVFhNV85TWhudVNKV3Q4TmNBVWt6S2ZKVldMVmFoRnQ4QV9JY0RuZXo2QzhsejYxTEFka3M2dWZvRHJUbnNleUlDTEs0WlNLSWUxdDVKNS1xWUNOY285QVlXNDlrRXEzZjFkaF8wRnRoTW4xNWc?oc=5) |
 | Republicans advance Trump's redistricting fight into swing-state North Carolina - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNcm1YMVJ2aGNYY19uNVQ4T1c5MzA0QmJYaDRONGM4MVBuMExCNmdDemxINGNaWDJZRXh1N0U4SlVyS19JZ2IwRmRUcGh2blQ3TmhwQnV0LXphb3NmSkcxTTlGRFFUYW03Tm5FN2tmTHAyWnUxaGhKR0ZUZ0Nsa1R0N0VnaG94dw?oc=5) |
 | New York City ICE raid nets 9 arrests of illegal aliens from West Africa, 4 protesters also arrested - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxNYlQtVmRnRXo4TWlMRmlkNjc2dkNtUlYyNmh4MzUwc2xXZ3Z0dnJrdzNnd1UzU1VKeS02bW9oOVN4YUhiUWVMamlWVVNOd29vTml1TEZ2U3JzNE82a0p6YjBwSWVQaGZuTmNUcl91M1FiYWprcThiLVA2eGVHRW9mT1RNNVBNbnlCTkRsZS1wVHd2QVFDNFVNb3FTRW5OdmsxU3RROFBCWGt1SmhmRElwZjVhSXhORzE2WFZaMkJ1ZnI?oc=5) |
 | Sen. Jeff Merkley delivers marathon Senate speech protesting Trump's policies - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE11LW04ZGhLMmQyZEJ3UzVMaGlPZ0FsMEdqNkhpbklYNmNla2VfZkVtc0RFelZzRTRaZ0tRamR3ejRZazZsU19rZDJEZm9IUW03eWRUX3JQOFkwNHZJMTlyeVJPSDNlZDV2MzN0TkFhY9IBdEFVX3lxTE9adlVaVEhka3ZVTE03ZG03VV9ZUkxkQ2J4N0IzWmF3VV9ULTNVUEtSb0FkUFptOHk5aFQ5cjM4dEtOazJSSnBqU2dKaFFJZ0dIaHBmSnZSV09OU3R6REh4Q2VXX0prbmV0YnpHRmU4TmdEZXFm?oc=5) |
-| How John Bolton’s criminal case stacks up to other high-profile classified docs probes - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPY3dfMlo3SXRmNmRkNk9fZlY1MlM5U2dadmlvak9Zb2VzTVVRSVEzUndvX2JxTjJ1cG9vNTB2R2hfMWUxZ09mRmIwdU51UUVYRHBlR1l0T0w5TVR4ZXhHdml6c0xkNlg3d21YNnRsTzBzZ2ZEV3QyRzhobVFOWTdyeUZwSTRJWkNnOFhlc0h0Y2Q3U0FZQmFOVnMtb3FVeFU?oc=5) |
 | Trump pick to lead federal watchdog agency withdraws after offensive text messages were revealed - PBS | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxOcFVvNU1NektZODZ0VDdmRzhOX1dqOVN3Szd5alE2WWg5WGo3WUZpTHRXSVhrMExyaFc1aWJMRkt2MFVJemI1NnRwTWJSMlZWbzIxYWotb0JTMm9JZGM3aWtjbHhTeHhNOE1lRFluX3J6WWZSM0VJNk13UkExNUVSTmRHMVZhWlhuZjJfcXZkbkJKbE13LS1DcUFrTG5ZT3Y2dG0yY0VuMHBpbVRtUVVFU2xYZ09VSnQySXo4bjZqWUhBd1U5ZS1EcWU1QlJscVXSAdQBQVVfeXFMUGk1QVJsYVZENEJqNlNlN0RvYVd4ak1YUnFyaDljSV9Ma043dGV5NVZ3b3Z2Tm1UTUYydmJwdzlHa1U5V0llTHhoNjFka0k0eHBoT0MwMTFqVjA3djNBQ1JYNmlTZThaamQzdklZMVVVOUpzUnE5ZTJURWJRRnEzMDMzMGFpZWVJaU5sc1NDSmFOQ3lyTmM2M3Y3Z1BfQVQ2cmRENHZUODk0UkRlUzVDUlRRaEpVQ2FYbTdSVXpPc2dJMWRzUmQwamxpdmdQS2xpUTFuR0k?oc=5) |
+| How John Bolton’s criminal case stacks up to other high-profile classified docs probes - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPY3dfMlo3SXRmNmRkNk9fZlY1MlM5U2dadmlvak9Zb2VzTVVRSVEzUndvX2JxTjJ1cG9vNTB2R2hfMWUxZ09mRmIwdU51UUVYRHBlR1l0T0w5TVR4ZXhHdml6c0xkNlg3d21YNnRsTzBzZ2ZEV3QyRzhobVFOWTdyeUZwSTRJWkNnOFhlc0h0Y2Q3U0FZQmFOVnMtb3FVeFU?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
