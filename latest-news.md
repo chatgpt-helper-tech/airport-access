@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 23:09:44（北京时间）**
+🕒 更新时间：**2025年10月22日 23:16:19（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trump sought $230M from Justice Dept. to settle past investigations of him - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPMkoxMHpUU0UzVnlxV3VnU2dlZVFhNV85TWhudVNKV3Q4TmNBVWt6S2ZKVldMVmFoRnQ4QV9JY0RuZXo2QzhsejYxTEFka3M2dWZvRHJUbnNleUlDTEs0WlNLSWUxdDVKNS1xWUNOY285QVlXNDlrRXEzZjFkaF8wRnRoTW4xNWc?oc=5) |
 | US Government Shutdown Is Now Second Longest in History - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNemI3V0IwY21pTmFOV3FZUG9NSmgzZEFWWEtyY01KOHc1OThIWUhSYk9mdzFjS3VpR2cxTlV0aVV1TWtfLURGVG1RZzY4UVlEdWE1cGg0NFdnQTNsd1VZeVhMazBDdk54eF9RV2pPaWtPZzBNN0J2Wkg0WTZmdUxSbTNnbFRpQ2pSWl9DTFdsVFQtZWx3TEZNRmYzZXBZSWR5QzA0czc2Wmh5Zw?oc=5) |
 | NY mayor and police distance themselves from Ice raids amid Chinatown protests – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxNNzZmZTZhRU5SdkJqZ0Y3VUpNUzI2bktOUXd1V3YxbGxVYVVKUHJKWEtLaG1neV9jUlZrY2lkTkxzc0pkYy10WkM4dnFLYjE2dUZGdjhxVkc5blBWdVN6dDRsNFdIaXJYbW9hdHhUMlJWWFlPVFo4dDc1ajJUQnpyYVE0V2tpYkdXREJuYmxvVzVlc1RjUUV5c2tNdW4tTWUzRHhWa0NJRkhKWDU4SkxaTTNSbVJrNzRrdmhicGxzb3pHRnNleUpvYkhGa3A?oc=5) |
-| Trump nominee Paul Ingrassia withdraws after offensive texts allegedly emerge - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1SekgzeE4wcmRobzJKME8tdWRaczU2LTE2VWd0NjRpQWlhNWZfZWRTVzMwaFVxUXR4SmdfeXFrcndkMlpoM2R1bm01cjhwcWp3N2xGMUstY015d9IBX0FVX3lxTE10bjlCLXkwOFY3a1dEM2JFYzl5N21Ed3NacWlZemNlQ2NkaE5CblRPOVh1NGtaQUk5TEdmenE1UVVXeENKMG9HT0x0em1vR2RJdGtOSFVSVXh1cXBTczFZ?oc=5) |
-| Merkley holds Senate floor, saying it's to 'protest Trump's grave threats to democracy' - KATU | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxOWFhWbF9kanhneXJnRkpzNXV1NzZ4NHdPckE3NFpOZDdFVnR3V0ZOcE03b3otblFNMmdlc2xEQkx1OUh4bG1VOVNGNWdfakozWS1za1VnaXB3UjhUQzlEaWsyTFpuYUFmZUI1U2ZnYlAyM3lWNV83dVdQcTJmWUg2OG1rU1JpZ0JjYjVfR3puVEFRcUFsMTRIaElqaWluQmYyQ3VVQW9DNzR4UnV2RGZKOGZEdGFpVHR4TGd4d19mR2hJSDBpa05SYXFnUDhpMndvZUYzTg?oc=5) |
+| Trump pick to lead federal watchdog agency withdraws after offensive text messages were revealed - PBS | [阅读全文](https://news.google.com/rss/articles/CBMizwFBVV95cUxOcFVvNU1NektZODZ0VDdmRzhOX1dqOVN3Szd5alE2WWg5WGo3WUZpTHRXSVhrMExyaFc1aWJMRkt2MFVJemI1NnRwTWJSMlZWbzIxYWotb0JTMm9JZGM3aWtjbHhTeHhNOE1lRFluX3J6WWZSM0VJNk13UkExNUVSTmRHMVZhWlhuZjJfcXZkbkJKbE13LS1DcUFrTG5ZT3Y2dG0yY0VuMHBpbVRtUVVFU2xYZ09VSnQySXo4bjZqWUhBd1U5ZS1EcWU1QlJscVXSAdQBQVVfeXFMUGk1QVJsYVZENEJqNlNlN0RvYVd4ak1YUnFyaDljSV9Ma043dGV5NVZ3b3Z2Tm1UTUYydmJwdzlHa1U5V0llTHhoNjFka0k0eHBoT0MwMTFqVjA3djNBQ1JYNmlTZThaamQzdklZMVVVOUpzUnE5ZTJURWJRRnEzMDMzMGFpZWVJaU5sc1NDSmFOQ3lyTmM2M3Y3Z1BfQVQ2cmRENHZUODk0UkRlUzVDUlRRaEpVQ2FYbTdSVXpPc2dJMWRzUmQwamxpdmdQS2xpUTFuR0k?oc=5) |
 | How John Bolton’s criminal case stacks up to other high-profile classified docs probes - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPY3dfMlo3SXRmNmRkNk9fZlY1MlM5U2dadmlvak9Zb2VzTVVRSVEzUndvX2JxTjJ1cG9vNTB2R2hfMWUxZ09mRmIwdU51UUVYRHBlR1l0T0w5TVR4ZXhHdml6c0xkNlg3d21YNnRsTzBzZ2ZEV3QyRzhobVFOWTdyeUZwSTRJWkNnOFhlc0h0Y2Q3U0FZQmFOVnMtb3FVeFU?oc=5) |
+| Shooting by ICE officer in Los Angeles wounds motorist, U.S. marshal - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQeWd6VTVWUFI5aTRPcWJrOWhzQVhhWXAtVVJBN2lxLVV0UGJtYmk2NzhqUzhSQmJhYndwZTB4dDNzaFVPOW9rc25GX1dxckhNR3RlbkZnbTVzbTZINEV5TjFweWNPZkI2R3J0dmFqT2M1S3lETlZkTWFKbGJSTTVpbQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
