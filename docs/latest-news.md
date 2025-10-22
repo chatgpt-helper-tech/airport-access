@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 14:24:02（北京时间）**
+🕒 更新时间：**2025年10月22日 14:33:11（北京时间）**
 
 ---
 
@@ -12,12 +12,12 @@
 | Focus of grooming inquiry 'will not change', home secretary insists | [阅读全文](https://www.bbc.com/news/articles/c629zvnd5lno?at_medium=RSS&at_campaign=rss) |
 | Effects of antidepressants on physical health ranked for first time | [阅读全文](https://www.bbc.com/news/articles/c9d65nqgd5zo?at_medium=RSS&at_campaign=rss) |
 | Gaza health crisis will last for 'generations', WHO chief warns | [阅读全文](https://www.bbc.com/news/articles/cnvezzdnmrno?at_medium=RSS&at_campaign=rss) |
+| JLR hack 'is costliest cyber attack in UK history' | [阅读全文](https://www.bbc.com/news/articles/cy9pdld4y81o?at_medium=RSS&at_campaign=rss) |
 | The £5.30 orange juice that tells the story of why supermarket prices are sky high | [阅读全文](https://www.bbc.com/news/articles/c397n3jl3z8o?at_medium=RSS&at_campaign=rss) |
-| Israel identifies bodies of two hostages returned by Hamas | [阅读全文](https://www.bbc.com/news/articles/cd675jygwp1o?at_medium=RSS&at_campaign=rss) |
 | Ukraine hits Russian chemical plant with UK-made Storm Shadow missiles | [阅读全文](https://www.bbc.com/news/articles/crmxjverzzro?at_medium=RSS&at_campaign=rss) |
-| Staff skipped checks and said a vulnerable young woman was safe. Days later, she was dead | [阅读全文](https://www.bbc.com/news/articles/cz91e1e23wzo?at_medium=RSS&at_campaign=rss) |
-| Six arrested after violent protest outside Dublin migrant hotel | [阅读全文](https://www.bbc.com/news/articles/c629zg8v8jpo?at_medium=RSS&at_campaign=rss) |
+| Israel identifies bodies of two hostages returned by Hamas | [阅读全文](https://www.bbc.com/news/articles/cd675jygwp1o?at_medium=RSS&at_campaign=rss) |
 | Eurostar orders first double-decker trains | [阅读全文](https://www.bbc.com/news/articles/cz6n1w80z1zo?at_medium=RSS&at_campaign=rss) |
+| Staff skipped checks and said a vulnerable young woman was safe. Days later, she was dead | [阅读全文](https://www.bbc.com/news/articles/cz91e1e23wzo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
