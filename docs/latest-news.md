@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月22日 11:48:53（北京时间）**
+🕒 更新时间：**2025年10月22日 11:56:30（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Ingrassia withdraws nomination after racist texts - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOX2VXcDNHcHFvdTdHSEhHUU5yRVJRcWZVVXUtenNzUndRTE04ak5UZXJkZk9yZ0E1aWtiSzZ5YjhydHVwZ3F3OXpEM3BxbjNSY25xVWZHUWJfZnVhZG1EY0gxeWROTEtBbnBkVFotUFh6cU1INjZfdk9qN0dIU1hRT2JPaVVTdEVSeW81ZDVEZEt2YUxPbmYxQ0Vqdw?oc=5) |
-| Trump Said to Demand Justice Dept. Pay Him $230 Million for Past Cases - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOdmd0cEZkM3diYXphOXBCQXE1Q0pzWl9RSmxTYkFUakFWNmJBdl9PUS1kdk9CaUVWMHdmYXVzQ24tdGxiZXowU0xidXNaRFRLV3d6amZNQ1lfejRVb1BGZUk5dEhndHJ5QlpxaW52UEVPS0o4VEVXREJabzhkOWRKeEx3ckROOE5aZ1k3U3lwTTk2QWs?oc=5) |
 | White House expands East Wing demolition as critics decry Trump overreach - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPSEpRRjFnZmlCZXZpbm9YM0Q1UWJBRVdmWUh6QUdiQTRxYWNOaUpzOC1rQWRCdnU1NldmcXc1anc3VGoxUW4xZEpZc1lKckUwMWRJLVJXbUhYUXZRMUlTSXVxT0d4dGlWSGVZbFRpeE02NDIybHZwRjF0bnRGaFRYMFZsY2s0c2RtZ1I4RU4yTWpScHlSb2pWUlY3amk3RTlfWlphVE0xOGdJSU5yQ2JpTUc5Zjk1RkI4c204Ump3?oc=5) |
 | Now Trump won't meet with Putin on Ukraine, White House official says - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOZUQ5TFBCbXkwWkNZdjQxSldfdE4yWXhBXzByZnVGLTF1cFZtWURBa1ItTVdEd3BISER4U2p0WlBlYUxiMWtKMDlkSzVPRExGRHBRcTNjTzdGSV91VlRBNVlaQnZ2YmFsLVRxTlJzVlZ3UlNOUTB0eTlyWXlDd0oxaUNjdkQxN1ZWTFEwNzFMUzRELUFXT3NxNlhvN1dFaUQ5TWVJMNIBqgFBVV95cUxPQUJiWmFPdGpjLVFqRXV2eU1HdVFJamFOdk1qYWlHZC1QaVRYVDRMOHF3Q09rSXN2ekZlSzRlUHRwSVpFNUlqMmtXVjVYdU40SWZBMHdFa3ctenhtWFBfT3NjMGhNbDAwQk5aY1N6UndDdmtWclhOUTJlMGtyYzR5YkxTMC10bWxFeFNNV2NQU3ZKaFpDWjRRamJ4dDdhRzd6U0ZKWS1jRnhQdw?oc=5) |
+| Trump Said to Demand Justice Dept. Pay Him $230 Million for Past Cases - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOdmd0cEZkM3diYXphOXBCQXE1Q0pzWl9RSmxTYkFUakFWNmJBdl9PUS1kdk9CaUVWMHdmYXVzQ24tdGxiZXowU0xidXNaRFRLV3d6amZNQ1lfejRVb1BGZUk5dEhndHJ5QlpxaW52UEVPS0o4VEVXREJabzhkOWRKeEx3ckROOE5aZ1k3U3lwTTk2QWs?oc=5) |
 | ‘We absolutely need him’: Some in GOP say it’s time for Trump to get involved in shutdown talks even as leaders rebuff idea - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNQmYxXzVlTTZkYVQ5ZjJUY0JpQjB4UlI0OHJRbV8wa05qMkhCQ2dtUk9idlVnSHEzSENzcHpVVUQ2eERydFpCRzRVbGhMaFdmZ3V1RDA5UHNZZmljOW90MHllQkJBV2Z5TjBiRDhVYjl5Yk55RWYxMlVzNFBIa3NJVEllWVZTMWZQbkE?oc=5) |
 | ICE agent wounds deputy U.S. marshal and TikTok streamer, who is charged with assault - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQbWptQlEzamU2a0FPQnozei1nU1VhSGlJV2d5WGYzVjVVWUlmQk03N2x6NHdjYTctS0hTNl9IazNxeUx4V3FtcGJ3NklrUUFnNXlHZnoxM1JONjktektZbks1ODMtckZQajJHTU5QdkdlZzN6TkwwNmZWYkxWN1B2THZkRWtJQkxmaGh1a05GYW15WW1JSVh5UmNQNWw0a2M?oc=5) |
 | Protests erupt in New York City after Ice raids Chinatown over ‘counterfeit goods’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPb1FYODJNZmVjNjNtTnFmMF9KX21TYXFfOXNwWlJvX0hZNUV3dnBETWdPdjB3ZGUzM3BMTjBRZUVuY18yaU8zUElZS3FZN19KeHNrdGo1OXZSWHNNejBQX0xnN2JFMWtlMzVHdFpGdGQ3Rk85ZFdxblpPZTFRdFNWYk5UNmR6cnJ3S0t6N09kYTEtdENU?oc=5) |
