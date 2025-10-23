@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 19:08:32（北京时间）**
+🕒 更新时间：**2025年10月23日 19:16:32（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Semi-truck driver arrested in deadly crash on Southern California freeway was in U.S. illegally, DHS says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPbTZoQVMzOXNUODdPclBlZzJlREV1TW1PNDRmVjVOQXE1UEJNdXJOSzVVOVdfU0dCUGJvQXdLNzJuU1F3ZU9qWEtQMkVnNlhwa1VJSUthdWpkc0U4NU90T2w0T2wzSlNZYnNqaWhyZmpfNElwVVVaWjNoN2JVcUJEYVpMOXlodFFQX3U5dTNsY3dkVXR3UklRUlJ1c0xJcTk2REpr?oc=5) |
 | Trump's multi-million request puts DOJ integrity to the test, legal scholars say - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOeWk4dXppUHZCcW8xNnlZelYyTnhKM3QwcE5GOFR3S2p5S1BBLThFSkdyZkt0ZHU3RmlpZUp5VTNqNXhZd1l4cF9vQ2xldEYtOGRESTR6WXRDcHJrZUFNbUJlUnRhTXVaTmRSbzBXX2pwTXhuNXB6bi1fMmp6dTRJUEZEaDNpWXRZa0E?oc=5) |
 | Confused by the legal battles over troop deployments? Here's what to know - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNNkNROWNZT3g0Q0RoUXVHNmlkWFg0a0xmN3JvS1Z3RkoxYlFrQlJGYU5kbjd6R1J0UGswdTFEcWVkWVl3Z1N5SUZ5R3NoRHpQZE9CUG9XU1E2NGxsVHpEbC01a3RYWlVTa1JuY1lRbDFlZTc1dVoyUlhURUFkUGxzWFZhbkJMSTJXczBBbHBn?oc=5) |
-| Trump plans to send federal agents to San Francisco ‘right out of dictator’s handbook’, says Newsom – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxQTVhHVWY0V0tTbW11QlN3WjBoVjUwNjBSa2ZfRnpxU0lrT2V0M0VoS2hWV2lrLWE0Q2Q1OWlRV3FjR1FKaVFTemJDbWhPeVN4TFVzT2QzX2E5OXNwV0FLUmM3bVBub2JFYVE3OE51X0RnSTVZbDVKaGJHcExjWURRVWdvVU45dHBpZnI0dnZCalQ1SDdWeWhjWmF0bk11WVV1Q0Y3NDVlUHh2dTVyeUljSGpVdTVsMWJWYWQxVkZiLXNBV0JGQUROOUhMQTJ2cjZE?oc=5) |
 | 7 Takeaways From the Final N.Y.C. Mayoral Debate - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNTjJOVmlVSGpOUk14aU1McUo4RmNlOEtteXhWN1JsVklrX2VpdHRLcmFJWU1rM1h6bVVzUWhnM0xYSDRNNl9DWHFMaUphSTJUcmpaZXh5b0hPVU5OVXowM3hfQ0Rnd2RKLUdod1RLNGxzYXk2NHdXSVhCR0Y5WFVVbA?oc=5) |
+| Trump plans to send federal agents to San Francisco ‘right out of dictator’s handbook’, says Newsom – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxQTVhHVWY0V0tTbW11QlN3WjBoVjUwNjBSa2ZfRnpxU0lrT2V0M0VoS2hWV2lrLWE0Q2Q1OWlRV3FjR1FKaVFTemJDbWhPeVN4TFVzT2QzX2E5OXNwV0FLUmM3bVBub2JFYVE3OE51X0RnSTVZbDVKaGJHcExjWURRVWdvVU45dHBpZnI0dnZCalQ1SDdWeWhjWmF0bk11WVV1Q0Y3NDVlUHh2dTVyeUljSGpVdTVsMWJWYWQxVkZiLXNBV0JGQUROOUhMQTJ2cjZE?oc=5) |
 | How Senate Republicans finally said 'no' to Ingrassia - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNSm5aMW00dEtBSWU2cDBYSjliWkpfOWNiMDdjZ3NxRHVmeTN3ZHFzSUttXzRKNEhJNS1nTDBzVGlCUEU2bjJqdEhQVTJ6MlhsQm13SUh6SGNFWVNPLWdaWEV1SXNQOVEwb0ZyYjQwTE9iekdzN0FkamRqT014ZTBidlRZdnk5Z3hNUDNCT0kwMmlqdDBNTzM2eFBPN3hFNmhZdGc?oc=5) |
-| TikTok creator and US marshal shot during LA immigration raid - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5vbXV0Y2J1bWhJWVNqOGdLTDFfLTNERmFaWVZKTnJ2Q2x6aU9aVmhpd19ZdWJld0x6VGRiblBuTHFucDZCdXB0cHpIcWgzanJ6WTVDWFdyUjY3UdIBX0FVX3lxTE9yeUtVc2NQZ3BTS19Bakp0YkRZdmQxRVg2NGZxUFVzOEJNSkZqTkhOamJ0S0dsMnYtWVVQYlEtelNRUUFJWGZFM00wVk1JbjV5MWtyVm1HZ2MwcnhNZWFV?oc=5) |
+| At least 25 states plan to cut off food aid benefits in November - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQTlgwazVteXpkY0hkVlZqemY5X041dVhGbGczVndwRkxzRWlRQ3VwNFNNX21lejRNNk41V1U0TzV1N2FQSzhyekUxZlcwU3hWRGdabzY4eWRJQ2RhQzllZmFTWG1PUmtVNGxTaU5tdDNCejVxdzBJTmxqelNjRFg0MjFvaXV4MGd1dGRuRDIzLW9nclNhRW5JQjJHWEIxNXYt?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
