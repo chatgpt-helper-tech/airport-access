@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 06:24:50（北京时间）**
+🕒 更新时间：**2025年10月24日 06:33:10（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Vance says he was insulted by Israeli lawmakers' "very stupid political stunt" on West Bank annexation - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOeXhmY3RUSVhFaWdhNWdZUmdibE03OGE0eXVyNEVlMzh4dHgzcmExMjE0OVlDUlJsLTk1dERDcVM2VUFXNkMzZW05aVBtUlhpUnlLRnc1aEhZY0ZnVlp3WjBVRUhXaWFVMkltTEZFeTFTTDhHNVpldEQ0RTFfUTdseHZQWWFHQ2FLN1IxWnB30gGTAUFVX3lxTFBGOUZPRUQ1TFU5cnI5V2Z5d3hpdjBKWFhma3lNSkFMdWctSzZHU1lIZXdUaXZxTnNNQktZUWJ0Y2RUVnZTZko5WlhWb1kxaEM5UlgtSllRWlZMV1VSeEZIOXJmY3ZQYmR1SnZQY2JTakJkTE5JazZiUElvY0gzWHJDUWdJMWVYNUExOEpmR1RuY0dLQQ?oc=5) |
 | Effort to pay at least some federal workers fails in Senate - NPR | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBOOHhJZkFSZGRyTklQMnl4d0k4MVkzc1JQdThuTTZBeTZ6U3BLMGhlZHZtekFzUzFZVU1NNGtySVBmQ3dNNXRsVERfVUNBdk03blNZY215aEFWb2RQWXpfOXo2SnZrVF9qaUkxY0hydjZRbG03S3c?oc=5) |
 | At least 25 states plan to cut off food aid benefits in November - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQTlgwazVteXpkY0hkVlZqemY5X041dVhGbGczVndwRkxzRWlRQ3VwNFNNX21lejRNNk41V1U0TzV1N2FQSzhyekUxZlcwU3hWRGdabzY4eWRJQ2RhQzllZmFTWG1PUmtVNGxTaU5tdDNCejVxdzBJTmxqelNjRFg0MjFvaXV4MGd1dGRuRDIzLW9nclNhRW5JQjJHWEIxNXYt?oc=5) |
-| Eric Adams Endorses Andrew Cuomo for Mayor - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPb0tDX0x0dUtZVm1LWF9tdndtUFh6cDZJUGNNVzM0V3dvbEkyclNpc01Hd05hR2c5V2Q1R2FBUkhtRUpIVHNjQk9jOXRQWUk1TXlDSjVjcXpDVGpFZnhQdk5jdE85bTAxeWYybDNfbnY3M0dSS0tQYm1vMnBnVnNoZVBDN2I?oc=5) |
+| Illinois governor candidate's son, daughter-in-law and 2 grandkids killed in helicopter crash - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOdkVESnkwNFNCMFNEQ2ZWdFRVbUpMcldoaURfbnZ4Z25HTktpb3dVYW42UmdMNldsb1hrY0dPZGJVN2VuN0p4a3RQeHRFS3g4M1lLdm9UeE1wVEVaRW41TTFlb0lNclFzYnBkdmJLSVAxZGkxRkM4WGl2LTk5bHdtX1F6eFY5Z2VOcl93dDJLdlhmbUFjWWZTeWdYUjXSAVZBVV95cUxOclNBZGgtdTkweXpYR0E0TF9BRDJXOVhORDByMDdUSGxBem1DOVByMGs0NjEwLWNqS2NscmR1UTR3ZnB5U2RVMFJHa2FyX3pMVlpQRVZFUQ?oc=5) |
+| Eric Adams Will Endorse Andrew Cuomo for NYC Mayor - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPb0tDX0x0dUtZVm1LWF9tdndtUFh6cDZJUGNNVzM0V3dvbEkyclNpc01Hd05hR2c5V2Q1R2FBUkhtRUpIVHNjQk9jOXRQWUk1TXlDSjVjcXpDVGpFZnhQdk5jdE85bTAxeWYybDNfbnY3M0dSS0tQYm1vMnBnVnNoZVBDN2I?oc=5) |
 | Senators eye sanctions vote after Trump targets Russian oil - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxPSWJ2bWFLQ0F3dFRGZDJjR2FrMVpvMTN0TWZBUExWNEZNTUJ6Wm5qNnp4ZmpNRHNsaE1nUzcwdG5ndjdEOWNKVUNaN3ZsRzhPcVIyMXFxbDU5ODVoVVd0R0gtd09qOWp4Q2lYRFBBV3Jod1MtRTdPWmNLOEdydHRTWk5xV3lBa0k3ME1ueEU1MG1EMmo4SEc2ajNPcHBOTzY4Uk1sdUNva0VweTFuMXNpWWFmcXNnZl9GY01WM1UtYnBUS3BO?oc=5) |
 | What scientists saw underwater in Florida left them “shocked” — and devastated - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE5OX1p0MGltM3I4QUQzSG0zeVgxVHZsZ2VaVmsxejBfVV9mVV9OWXRWME1hV0NOX2VuVnljT2pZOGdoWEh2TkJDNWFSZ2Itc2gwNVI2bjNlQmhFc2pfVmtCVGhKSC11dkwxSy1FNDd5WWJidw?oc=5) |
-| DC man who played Darth Vader theme at national guard troops sues over arrest - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPVk1uX2RxWDRtcDVYVDJuRlNRU3BqZVVSOU1DS3l1RTRTYVNLZG5HLTItQzZQTlQ2WEtYa0JPaGI3QnNiWmVUWldDS05NUVViM3lFSU9lSENfaHdlbjM0NTE0cm44NjEzZmRDT1dYVlVDSnh2cHJwQVlrTldIb0hINXRfc0ZBbzBocmFFaHlLV3hFdElLT256NWcxQXBCZGJVdkQtV1lGZDE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
