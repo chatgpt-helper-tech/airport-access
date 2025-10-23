@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 21:08:20（北京时间）**
+🕒 更新时间：**2025年10月23日 21:16:50（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Oil rises 5% on fresh US sanctions against Russia - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxQQUJmWV9TNFpUcWtfaDhCOUh0dE1odTkyeTJrT0VzSUtFSnJDQ05jTWlyMFJ0WENkQ0l2ZVRTVHVGUmFEejE4dHlQZGk5Q2Qxbk1QZXhTbVJqVHVqeDFQLWJPdDFsWXBRVmlnS1laTUtnT3RTLW5tWHR4bEtsYW9CbmV4WGdYNGtMZkZId2VKRFVEb0N0aEt6MmtwU18yRF85OHh3eDZZUXRRYnpILXVLTnpqdW41TV9BaDFySFo3OHhnN2ZhcmVXSjRKaw?oc=5) |
 | Trump expands his lethal attacks on alleged drug traffickers - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPWlRtMkVVdFE1WXVCdEZpMUo0bmxtc081TFFZNmc5d09MTkZLdERlenJOMkJLcUltWmRwaVM2SnFzZ1BnVmtXVjdEbzBvWVgxbXBYczhxRGMzUXZCQ0xaZ19sZUJ0WFRrZnZIRW53OHlHY2RyZ182SXZsWXlnRnA2TlBfWHU5dmlXMV92clpvdHZEM2hBOC1fT0c0YmxzbDY1X0o1Z2JR?oc=5) |
 | Trump's multi-million request puts DOJ integrity to the test, legal scholars say - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOeWk4dXppUHZCcW8xNnlZelYyTnhKM3QwcE5GOFR3S2p5S1BBLThFSkdyZkt0ZHU3RmlpZUp5VTNqNXhZd1l4cF9vQ2xldEYtOGRESTR6WXRDcHJrZUFNbUJlUnRhTXVaTmRSbzBXX2pwTXhuNXB6bi1fMmp6dTRJUEZEaDNpWXRZa0E?oc=5) |
-| Rubio warns against West Bank annexation after Israel's parliament advances move - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9zeGVqNkRqbnByV2YwRERic2FsUDdkQlRQb0xHUE1NalF4QU1TZThvUndHR1dhZG5ETlFpR0t2VDM3R1FQSFFlMWtNc2VxZE16QWlEbVo1cm9Jd9IBX0FVX3lxTE5HTVp4cVRRYXpfYkNXelRpTmt3SjdhUnJ4NXZQNHpNdWgteEZEbnJ3TU1ha0cyRkpIVnc0VTBrc2dfeV9KQmRqb0kxVXAzUVpkSW1YWVBmMFl1TEx2cW9v?oc=5) |
+| Vance slams Israel's parliament vote on West Bank annexation, calling it an 'insult' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5DcWpUUl9QYkNfTHpvSEhRek1QU0s0dk92LVQzazRmNXNuZU55M25MZm96ZmE3QTRNME9jQTU0WlNocXhobmp6dmctMXU2bjRHakpwMEhBZ0hmS0h4ZS1IRHhLMGYtNjdBWHBZRGlkMktIYm85Z1h5R3ZB?oc=5) |
 | Trump plans to send federal agents to San Francisco ‘right out of dictator’s handbook’, says Newsom – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxQTVhHVWY0V0tTbW11QlN3WjBoVjUwNjBSa2ZfRnpxU0lrT2V0M0VoS2hWV2lrLWE0Q2Q1OWlRV3FjR1FKaVFTemJDbWhPeVN4TFVzT2QzX2E5OXNwV0FLUmM3bVBub2JFYVE3OE51X0RnSTVZbDVKaGJHcExjWURRVWdvVU45dHBpZnI0dnZCalQ1SDdWeWhjWmF0bk11WVV1Q0Y3NDVlUHh2dTVyeUljSGpVdTVsMWJWYWQxVkZiLXNBV0JGQUROOUhMQTJ2cjZE?oc=5) |
 | How Senate Republicans finally said 'no' to Ingrassia - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNSm5aMW00dEtBSWU2cDBYSjliWkpfOWNiMDdjZ3NxRHVmeTN3ZHFzSUttXzRKNEhJNS1nTDBzVGlCUEU2bjJqdEhQVTJ6MlhsQm13SUh6SGNFWVNPLWdaWEV1SXNQOVEwb0ZyYjQwTE9iekdzN0FkamRqT014ZTBidlRZdnk5Z3hNUDNCT0kwMmlqdDBNTzM2eFBPN3hFNmhZdGc?oc=5) |
 | Mamdani attacked for refusing to take position on housing questions in NYC mayor debate - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPN0ltMGtCU19kUWNzdXZIcFppRVhQOHFFOXl6d3FSMV96SkZfZHZZSy14V1llSlJUcC1oTFZnZ2VRWHFxV2pZUzZZbGtIS1BycHJmVFJ5RlNKQjZmUktmclNhelNrQlBCaXlOTU9USTJOQ2tyY0F0R0d3T3B1NENLZVZ1b192cndIY1Y0ZXNFMkJoNEZBbXc2clZxZEdXbE93ODhFNkZPVVRLOXdGbmJtWENxaG4?oc=5) |
