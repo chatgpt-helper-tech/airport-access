@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 18:01:36（北京时间）**
+🕒 更新时间：**2025年10月23日 18:08:13（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | France backing away from pledge to intercept migrant boats, sources tell BBC | [阅读全文](https://www.bbc.com/news/articles/cn8vr95n5n3o?at_medium=RSS&at_campaign=rss) |
 | Metal detectorist digs up massive haul of Roman coins in 'virtually untouched' area of Wales | [阅读全文](https://www.bbc.com/news/articles/cd67vv66wxxo?at_medium=RSS&at_campaign=rss) |
 | EU set to endorse deal to turn frozen Russian assets into support for Ukraine | [阅读全文](https://www.bbc.com/news/articles/cwykd4l3dy1o?at_medium=RSS&at_campaign=rss) |
-| Wind and rain warnings issued as Storm Benjamin hits UK | [阅读全文](https://www.bbc.com/news/articles/c797899qdndo?at_medium=RSS&at_campaign=rss) |
+| Weather warnings reduced as Storm Benjamin moves east | [阅读全文](https://www.bbc.com/news/articles/c797899qdndo?at_medium=RSS&at_campaign=rss) |
 | I thought my insides were falling out: The condition affecting one in 12 mums | [阅读全文](https://www.bbc.com/news/articles/ckgk0y18mrvo?at_medium=RSS&at_campaign=rss) |
 | Polls open for Caerphilly by-election | [阅读全文](https://www.bbc.com/news/articles/c993nlyrdglo?at_medium=RSS&at_campaign=rss) |
 | Thames Water given lowest one star rating for repeated sewage spills | [阅读全文](https://www.bbc.com/news/articles/cdjrymnx1e8o?at_medium=RSS&at_campaign=rss) |
