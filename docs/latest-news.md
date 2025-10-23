@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 13:08:22（北京时间）**
+🕒 更新时间：**2025年10月23日 13:17:16（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump has asked Justice Dept. for $230 million for claims involving past criminal cases against him - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQdElXa0MzdGNhVzRIdFU5SHFQbGE3Qzg2OTU5bnFHSjlLaENDamF6aXkzZlNuNkp3Q0tDZDVRNkpUczdHQVlneWlzSHNuRm56N0RvZ2ktS3NNZVp5WE1tOXEzbVR1eTVOVG9rQ3JfSG1NWmE0TFRIaHU2ZXNqLUpNekFZSXZTTndzbUJCLTl3VXd3Uk1QaXfSAZsBQVVfeXFMTUl0OUZtX0o3S25RZVpmVk10OERwRDk0TGRWUVdBY2JWbkd1dUNiZ3RtX3dIVDlQVS0xLXBobzdXYlNGVnAtWUJSQl9Ya1NPX1k0OHc1dWRmS05nbVdYdUViRXE3VkR2X0RHTDZhNjlBSWhHajhuUUI5aENIZWRpQ0dRSG5jRy1XbGdxX1VzNjFaSWxoZ2ZvNFA1d1U?oc=5) |
 | 7 Takeaways From the Final N.Y.C. Mayoral Debate - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNTjJOVmlVSGpOUk14aU1McUo4RmNlOEtteXhWN1JsVklrX2VpdHRLcmFJWU1rM1h6bVVzUWhnM0xYSDRNNl9DWHFMaUphSTJUcmpaZXh5b0hPVU5OVXowM3hfQ0Rnd2RKLUdod1RLNGxzYXk2NHdXSVhCR0Y5WFVVbA?oc=5) |
 | Videos obtained by The Times show ICE raid that left deputy U.S. marshal, TikTok streamer shot - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi2AFBVV95cUxQcUtYZUR5NzBaRXRuZFVxLXQwODhIX3hBa2lEbnY4N0d1S0w4MFVBbTIxQ0tpaFVISEVmazlvM1lrQm45ckhOTkNhbFR4R09WR29JWV9odE5YMEN4UkRJa2xlY0NhNW84ZG4tZlBYRU5hZHFZQ08zZmxiVndjOG9zSVRvVDI1dlQtSy1aZmQ5Vk1HVWVWTnl5NGxEU0wwNUpLMUdORDE3WTRFMTBhcVRRRTl0UlgwbUotWUg3R3J2bjRWc2NLa0NIY2tDRU5ITVVwZnVJX01kd3I?oc=5) |
+| 4 US citizens arrested during ICE crackdown on NYC's Canal Street, congressman says - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPc282LThiaktwdHp4cGh5Q3ZsaHplQWI2MHgwZ2VSOWJFV2NTMmcyb2lZTkpYRk9EMmN2NFoxR2NsLXg3QmFodjVJMGwtcmplUndWbTk4eGgyVWJxaS1HaWdNV2k4eUZVdWdaMzZOOUQtcm9Hb3FBT09ab29GcWFqc1E1Mnhxdm5Ec3lXMUZTc0FnazBuRjl3YUlMb3cxWFd6NlY40gGoAUFVX3lxTE1oTzBVVFVQRVRhelhua0FFT1J0dlRuZVlxc1RrbHMwTWl5SXlvZUl0ZlMxMHgzMUx3TUFDZE1SRGlMQ2pjY0dYZDE5dUxfNUtCOGQ5Um9Zc1lhQTJSR01FT0NnRzJ5TDhDeFZoNkcyNUw3VW1BX1lCelhLSDFDZFY1WWJjMmRSUWFLQmZuY0x1b2x5SnNaVXM4amlIOHc0OHlvVlNzazhVQQ?oc=5) |
 | llinois cop 'got mad' and shot single mom dead as she took coffee off stove - The Mirror US | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPUC1PVENGcFZacmJIc0FCUDNpakF6UkloVTd0Vmt2eThWc2hKc3k4RTRvLUVLRmZZeDJMQmpKeWxCM25mVUVOVDJjWHpqbWVzalktMXNSQVJ3V29rMTljcmxlVFR6cWp6UHgyUVlmU081VWxlSnB6c1BDUkNza0prdmxUMTnSAYoBQVVfeXFMUFpvVjdJaVRBc3F5OTJBTkNHZUloWUoxRVk3bmx3TzRSOTdHcWgyaS02VVR0Ylp3S1RRdFF3WmJ4OUtiOGVXczBLQ3JqMlRXSm5Db1ZYeUhKSDNMWTBQVXdZVVpnLVlmNm1veWlLc09jallOb1F2RU5oQ3VVNXVfVHBZcEdQOWNaMGJ3?oc=5) |
-| 'The world has changed': No longer waiting for Pelosi, Scott Wiener announces run for Congress - SFGATE | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1vcXk3XzRLZFRoWjNLNVNGWU1xMUpCb09HdmlvbFRSVzJNTHZfX00xaHo3OG9uUzdfOFAxbFo4VGhweWJJV1ZUYjJmXzFYUnBNTTA3c3RhTkpLMmJaVFVaMjNfUTRqcDJKUmxCQ0dBUkd2RHFRZUpkdW9ybldWdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
