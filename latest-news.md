@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 00:24:28（北京时间）**
+🕒 更新时间：**2025年10月24日 00:32:56（北京时间）**
 
 ---
 
@@ -25,14 +25,14 @@
 |--------|-------------|
 | Oil rises nearly 5% on fresh US sanctions against Russia - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxQQUJmWV9TNFpUcWtfaDhCOUh0dE1odTkyeTJrT0VzSUtFSnJDQ05jTWlyMFJ0WENkQ0l2ZVRTVHVGUmFEejE4dHlQZGk5Q2Qxbk1QZXhTbVJqVHVqeDFQLWJPdDFsWXBRVmlnS1laTUtnT3RTLW5tWHR4bEtsYW9CbmV4WGdYNGtMZkZId2VKRFVEb0N0aEt6MmtwU18yRF85OHh3eDZZUXRRYnpILXVLTnpqdW41TV9BaDFySFo3OHhnN2ZhcmVXSjRKaw?oc=5) |
 | Trump’s ballroom blitz sparks chorus of disgust: ‘The perfect symbol’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNRVZuYVpJWkhoa2htWWVndUdUdC1IRmpJemRKN1d6bFRTMWNXVzg2d2M5M3ZxUEVQSzdvZVZPZmh5aWxLclJOU0hBVUF5NnEydjQ4WWVnUWpkSndfbUh5ZkVZV285V09WX05FazhqTHFhZERGWFgzaUdaYmw2cjJVbjVvcklvZ0pia1lJ?oc=5) |
-| Pelosi Says Police May Arrest Federal Agents Who Violate California Law - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQWTQybWdtdzkyTWJmMnBVZWtkclJZaXRZTHFmM2ZTcTBSZXJHMnd2Qk8yTjZnUklsaU5xcjEybFVqdEtzYnFDMm16NnJiRXl6ejRacnF3S3VMSnUzZVpVX1dpNEdHbTV2UTF0M0V2NEhfZ1JaZDk2M0FIUU5rbXAwV2FjbC1UWjFS?oc=5) |
 | ‘Stupid political stunt’: White House castigates Israeli vote on the West Bank - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPMkV4ZkRwTXFjUjVrRk9IRDA1YXE2ZFljVFVUcW9icXkxelh3cU5CZC0zLTh1UDBTRkVvWlNlMHhJSks0cnUzbmRoV2xXbXQ1QWc1YXNJbTVmRGk3SmNoTVU0em42R2xuWXJSSC14dDJiel96Q05oLVVaZFNUZ3hCNmxOb1M?oc=5) |
-| Another French museum robbery sees 2,000 gold and silver coins stolen - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFAtWHFWUTdILTA2V003dnhMSl9jU3Ffb0c4c1JjQUVLUm5RVFM3bFRRZlNJclhVUnpJQ0hzdWk3YkZLMU1NbEFNVnNnemZsLWp5dGVRSU1jSG8tUQ?oc=5) |
+| Pelosi Says Police May Arrest Federal Agents Who Violate California Law - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQWTQybWdtdzkyTWJmMnBVZWtkclJZaXRZTHFmM2ZTcTBSZXJHMnd2Qk8yTjZnUklsaU5xcjEybFVqdEtzYnFDMm16NnJiRXl6ejRacnF3S3VMSnUzZVpVX1dpNEdHbTV2UTF0M0V2NEhfZ1JaZDk2M0FIUU5rbXAwV2FjbC1UWjFS?oc=5) |
 | Anglican Church Archbishop accused of sexual misconduct - NPR | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPZ3p4SmdLTXI2cVRvOFNBZlhrVGpaaDhMV1lUQlJmY096WHdQdTB0bW1sTW16U3JKWDJQTmJueWZOcjdZQi12R1NSQkc2aXctdjJXU1Q0R3VfNHU5UmRyT2c0RE5wTUVLNFdmOUtFYUJvZ3RzZkJvU2NZMzdLdVFVY1ZRM2lHNEZrU3JNMF9LbkQzSURHNHFCc0tzZzdKdw?oc=5) |
+| US kills three in second strike on alleged drug boats in the Pacific - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE16cEZJbHhEaTdCWFI5aU9fQ3JqN3JGQjltZjNwRnNGcWtpcTRRR2UyU1dvMFRpaGhWczZ5YUloOERTRVViZ05iX1dPNi1TRUg0S1RCM2dWWlpDZ9IBX0FVX3lxTE5iS2FRalV3VW9VTWwtYnFUdEMtVnBYdTRDSEVwd25ja2NhcjAyczR5bFE0X0E4bjlDdGIxSk5zVGVkMmV2WGlkYW5WbWp5dTdOUlBOVXZPWG9BeEtPLTBV?oc=5) |
 | Eric Adams Will Endorse Andrew Cuomo for Mayor - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPb0tDX0x0dUtZVm1LWF9tdndtUFh6cDZJUGNNVzM0V3dvbEkyclNpc01Hd05hR2c5V2Q1R2FBUkhtRUpIVHNjQk9jOXRQWUk1TXlDSjVjcXpDVGpFZnhQdk5jdE85bTAxeWYybDNfbnY3M0dSS0tQYm1vMnBnVnNoZVBDN2I?oc=5) |
 | US states warn food aid benefits will halt if federal shutdown drags on - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxNYVR1eTZ5aG9KRkJlekhVYXFaa2RFVGpfM25kYklRaW83LTQ1X3hERXdjb3FlYWowLVB5WHFWV1I1WS1KampjUUoyNXhwVG1MdVZlOTdJNkx4MmpCbDRGVmk5RFhYUmdtbEp4MVhMYXR2V1VycWJMNmthMXQ5d3RyZTN0YmZza2FaZGpsa1BYUGtsazVyV01zUEFISWNvWkJfRXBfYjM1MG5mVDRFZmJ4cGg5ektnellDcll0ZVV6XzJpWVk?oc=5) |
 | Inside the Capitol Hill implosion of Paul Ingrassia - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNSm5aMW00dEtBSWU2cDBYSjliWkpfOWNiMDdjZ3NxRHVmeTN3ZHFzSUttXzRKNEhJNS1nTDBzVGlCUEU2bjJqdEhQVTJ6MlhsQm13SUh6SGNFWVNPLWdaWEV1SXNQOVEwb0ZyYjQwTE9iekdzN0FkamRqT014ZTBidlRZdnk5Z3hNUDNCT0kwMmlqdDBNTzM2eFBPN3hFNmhZdGc?oc=5) |
-| Illinois gubernatorial candidate mourns loss of family members in Montana helicopter crash - NBC Montana | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOTzRobXlnRThVM3gzYnIzeVRXbkR0ajliM0lFdUR3MTlMcWlSY0ZJdlNwNEl6UEY1LW5UZHhBTlBiclZrSGVPbi16S2xsa1ZRNElzYzM4S2IwaVdMY0tmdnJaVExIb1FfejgzOHRNNlZEMXpoUjI3ajEwbGpDM1ZWNmY3M0dySGxtRWNiSTkxbklzMmtRZTZoNVhGbDFvbkNmaTFOMHk4dlRVTy1aSlBMSThWSmhVMGRZakt2Tmt2WQ?oc=5) |
+| Former IL State Sen. Darren Bailey's family members killed in Montana helicopter accident - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxObTNJRnJqR2IwaVB6c0c2TTJCRDBocU1Sd09Ta3BYU2NLalNOZlZQdG5mcElPSXZlM095NlV6STBKeGppQ3A5eThJZ0dyaXNmMHdzbTd0MzEwWmF2Z1c3dXd1ck5Bd1diR0M1cmd6RjQ4QXZHOXVuM2I5QWJXU1Z5Z1BVZ0xCUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
