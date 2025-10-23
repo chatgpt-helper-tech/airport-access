@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 03:09:11（北京时间）**
+🕒 更新时间：**2025年10月24日 03:16:40（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Bay Area Protesters Try to Block Base Entrance Before Immigration Operation - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOQ3RESGQ4N0ZNYm9HZDA1ZXdtVmxmX1ZMek5KX1pvUmNGMnREOXFwaDNicVBxRXNZckpXS2cwazRyTG1EM1JIUTY2QkxMS0wzWHR2T0R4UzlLZklfSk1UWWxLQUFhLVBDbXlHd2RSVDd4U1VER3RYSlkxSFdPOWhSZmp3?oc=5) |
 | Senate rejects dueling bills to pay federal workers - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5BcHZJVG8xdDM5Y0dMZXRZZ0dodGlzdG4yUDFFd0x6b09JZnBvZWJUT2dYbE9PZkUxSVFqX0ZyckJPa29Hd3E2Y292RDhqemtvVkVDa0h3SFRmRjJaTGdIcS12TnEzRnhfM2o5N2k1Y3YtUWVXRzh5TFNiVFFvUQ?oc=5) |
 | Exclusive: China state oil majors suspend Russian oil buys due to sanctions, sources say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOekNaamlpYTg4Y2I0TFBFbWlpV2RvQ3FiRnRuOVRWRUozenRha1IwODZ0eGVXZ2JmZUtsT0RPV191ZVdTZ1BfdzFMd3BtVi1hcEtyT3JndXlVT1llNlVhZ1d6Yk9SOW5OM3k4aHBmTUxSTVNuR1djNDlveURDM0FyWGVTd2x3WXdCdmZQdnBiMmUyN0pkVmg1S0U0WFh2QzIxOXUzOTZHWkw4Z2lKWXVYQjdIVGlvMUpRSmpPRjRyWHNuRXc?oc=5) |
-| Rosenberg: Trump abandons carrot and wields stick over Putin in Ukraine talks - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5IR19wYW5WMTBmVTZPMU12ZmJUcTZKTW1mQWhDZExtMVU4Vjl1OVBPNnc2ajBJZUtoU3dCeGlwemh3ekh5MG41NFI4Sk51YXlURHhLS0JsNi1OQdIBX0FVX3lxTE5QTVlvZWtmSDJBcGcxSDF0VFhQUXBUZWhFSWM4emZsT1VVeU02NVB4czJGY0t3a1B0SjRBSXhwRlYtWk5EbFhSWmJaVWZKMjVRcmhUd05PZEZnSk1QcGVj?oc=5) |
+| King Charles and Pope exchange gifts and pray together for first time - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFB0RndDXy1YUXhyUDc1MW1iVzhCSldScHdzQWJsaFZiWVR5WGhiT3JJcFFkeGhCQU5QRHZndnBsVmUtNWp3NmNVd19MQkozXzFrTVpDUA?oc=5) |
 | At least 25 states plan to cut off food aid benefits in November - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQTlgwazVteXpkY0hkVlZqemY5X041dVhGbGczVndwRkxzRWlRQ3VwNFNNX21lejRNNk41V1U0TzV1N2FQSzhyekUxZlcwU3hWRGdabzY4eWRJQ2RhQzllZmFTWG1PUmtVNGxTaU5tdDNCejVxdzBJTmxqelNjRFg0MjFvaXV4MGd1dGRuRDIzLW9nclNhRW5JQjJHWEIxNXYt?oc=5) |
-| What scientists saw underwater in Florida left them “shocked” — and devastated - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE5OX1p0MGltM3I4QUQzSG0zeVgxVHZsZ2VaVmsxejBfVV9mVV9OWXRWME1hV0NOX2VuVnljT2pZOGdoWEh2TkJDNWFSZ2Itc2gwNVI2bjNlQmhFc2pfVmtCVGhKSC11dkwxSy1FNDd5WWJidw?oc=5) |
+| Democrat Shutdown Jeopardizes America’s Skies - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNaU9RRFllVUNXVGw1NGVjVE43SE4xMklYOVl5ODRDUGFTU2lvX2FQVGFacHllcldZSGt1LWRBbm1PRTdDWUhha19xNk14VTJJT0ZpY29BbURlNjF6TzJNQURvOU9FMWNEZTBEVVVlOHlJMUZWamJhZnFRSWh0Y1FZUGlEU1FqQ2tJVlZobWtmUEtVSGs?oc=5) |
 | DC man who played Darth Vader theme at national guard troops sues over arrest - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPVk1uX2RxWDRtcDVYVDJuRlNRU3BqZVVSOU1DS3l1RTRTYVNLZG5HLTItQzZQTlQ2WEtYa0JPaGI3QnNiWmVUWldDS05NUVViM3lFSU9lSENfaHdlbjM0NTE0cm44NjEzZmRDT1dYVlVDSnh2cHJwQVlrTldIb0hINXRfc0ZBbzBocmFFaHlLV3hFdElLT256NWcxQXBCZGJVdkQtV1lGZDE?oc=5) |
-| Duffy warns of travel disruptions as air traffic controllers face missed paycheck - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPRktvMHhTNkZxWjBtbWxqTnpmVEJrQi1ZVVFVYVRvYmhfaEc0NENnN2gzZlBJMUJ1Y0FRdkZmdEIzNll0eFYxQm5FMkUyaVF4el8zR2JrVkFnRkViQklvd21EUGF2eE5zRzh2UXgtSlBiVEI4ck1UVEpoazdLcGU1TnlTOWE3cGVPSWpvNjJBMA?oc=5) |
+| Virginia Democrats Plan to Redraw House Maps in Redistricting Push - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNZGdaQkFPMHh5YzFFb2NoaHQ3MmZOTEQzeXVoNDd5cGpPbkR3NjlNTE1pdlhQakxxY3BRUG9nT1VDTFNuYjFVLTY3LTVQYUxHMkhoMWw1OUkxU1Btd2V6ZWhIZm5ESWVHNFd6RWdISHczR1dEdzZlQWo3SDhzUURVNWZrNGdkR1Vi?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
