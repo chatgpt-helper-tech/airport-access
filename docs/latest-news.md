@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 13:49:52（北京时间）**
+🕒 更新时间：**2025年10月23日 13:57:19（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | I thought my insides were falling out – what I didn't expect after childbirth | [阅读全文](https://www.bbc.com/news/articles/ckgk0y18mrvo?at_medium=RSS&at_campaign=rss) |
 | King to meet Pope later during historic visit to the Vatican | [阅读全文](https://www.bbc.com/news/articles/c07mzye39djo?at_medium=RSS&at_campaign=rss) |
 | British man drowns in Australia after surfboard snaps in wild weather | [阅读全文](https://www.bbc.com/news/articles/cm27xnvz2eyo?at_medium=RSS&at_campaign=rss) |
-| Menopause screening to be included in NHS health checks from next year | [阅读全文](https://www.bbc.com/news/articles/cq50z185d78o?at_medium=RSS&at_campaign=rss) |
+| US kills three in second strike on alleged drug boat in the Pacific | [阅读全文](https://www.bbc.com/news/articles/c98n54ek04go?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,9 +30,9 @@
 | Big beef: GOP pushback grows over Trump’s call to buy beef from Argentina - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFB5MElvXzh5VnFiZk1XWkhWMUx3YlBidG52UU5RZjNCaklreGN5TXJpcEJpWTQ1RzZvX3lvSEUzbWc1NjdtLTNYYUdKOVMzN2pSS1FBaFRLX0N5OG85azlVV3pwSE84Q2h6OTM1MTQ1SU9TaFJNczBtWTN6M0w?oc=5) |
 | Trump says he has final say on paying himself $230m for past investigations - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOV3FGaFpTLW8zakpQa0FlR1B5TkRHaENGYktDVVhkaFpoY1FsblE4ZVlWa0k0bTBsaEctd3RjQUNFdEJnTzVsdUdlRkxLTEtUdi1yazNHOWNJMzNKQlgxbkVFY2FJZFZsaWlId2RNRFcwTy0tSHRCZWZDTlVQSnZFSXRLYmFYZjdYd3JmbE1ObDk2dmN5bGc?oc=5) |
 | Mamdani, Cuomo and Sliwa fling zingers in New York mayoral debate as they try to win over voters - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQS09GcDJEVWViVUttUnI1dnhCUnNWOHB2czFLaU5TLXZkS1FJbFVBeWE4eFp4ckpNYVQ3ZXRzZXhNWG5Eb1FYSnNNY1BiSlJFYTB5UWQyZ1VMLWJqN19FNl9oVk1yeGROeWtLN1dIUjJvR0Jxc0EyNlVXeUF3UGoyeG45NjJpcG1YMWxNWVFDZ1lZdXd1VGRibFc2VWNIUQ?oc=5) |
-| 'The world has changed': No longer waiting for Pelosi, Scott Wiener announces run for Congress - SFGATE | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1vcXk3XzRLZFRoWjNLNVNGWU1xMUpCb09HdmlvbFRSVzJNTHZfX00xaHo3OG9uUzdfOFAxbFo4VGhweWJJV1ZUYjJmXzFYUnBNTTA3c3RhTkpLMmJaVFVaMjNfUTRqcDJKUmxCQ0dBUkd2RHFRZUpkdW9ybldWdw?oc=5) |
 | Videos obtained by The Times show ICE raid that left deputy U.S. marshal, TikTok streamer shot - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi2AFBVV95cUxQcUtYZUR5NzBaRXRuZFVxLXQwODhIX3hBa2lEbnY4N0d1S0w4MFVBbTIxQ0tpaFVISEVmazlvM1lrQm45ckhOTkNhbFR4R09WR29JWV9odE5YMEN4UkRJa2xlY0NhNW84ZG4tZlBYRU5hZHFZQ08zZmxiVndjOG9zSVRvVDI1dlQtSy1aZmQ5Vk1HVWVWTnl5NGxEU0wwNUpLMUdORDE3WTRFMTBhcVRRRTl0UlgwbUotWUg3R3J2bjRWc2NLa0NIY2tDRU5ITVVwZnVJX01kd3I?oc=5) |
 | 4 US citizens arrested during ICE crackdown on NYC's Canal Street, congressman says - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPc282LThiaktwdHp4cGh5Q3ZsaHplQWI2MHgwZ2VSOWJFV2NTMmcyb2lZTkpYRk9EMmN2NFoxR2NsLXg3QmFodjVJMGwtcmplUndWbTk4eGgyVWJxaS1HaWdNV2k4eUZVdWdaMzZOOUQtcm9Hb3FBT09ab29GcWFqc1E1Mnhxdm5Ec3lXMUZTc0FnazBuRjl3YUlMb3cxWFd6NlY40gGoAUFVX3lxTE1oTzBVVFVQRVRhelhua0FFT1J0dlRuZVlxc1RrbHMwTWl5SXlvZUl0ZlMxMHgzMUx3TUFDZE1SRGlMQ2pjY0dYZDE5dUxfNUtCOGQ5Um9Zc1lhQTJSR01FT0NnRzJ5TDhDeFZoNkcyNUw3VW1BX1lCelhLSDFDZFY1WWJjMmRSUWFLQmZuY0x1b2x5SnNaVXM4amlIOHc0OHlvVlNzazhVQQ?oc=5) |
+| U.S. kills two aboard alleged drug boat in Pacific, widening Trump’s campaign - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNV09qT0hDMERPQm9QbmpQS0FVbENzVjNjdnp4c2U5QmVmS05rM2ZIdUp1bzM0YVBEZVFxcDY2OHpkQVRDT2U5OWptRTJ2b3hMNS1hRW9HQkZtY1NnUURQal9ibG1lZ29qWHEzcmxZUVdYajNRd0pYemNfS09XUW1fYnBxTzAxTFdyOHh0M0RDejU1VXBtR1QzeWdnWWxkdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
