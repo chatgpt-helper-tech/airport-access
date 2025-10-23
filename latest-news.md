@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 16:01:24（北京时间）**
+🕒 更新时间：**2025年10月23日 16:09:30（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Videos obtained by The Times show ICE raid that left deputy U.S. marshal, TikTok streamer shot - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi2AFBVV95cUxQcUtYZUR5NzBaRXRuZFVxLXQwODhIX3hBa2lEbnY4N0d1S0w4MFVBbTIxQ0tpaFVISEVmazlvM1lrQm45ckhOTkNhbFR4R09WR29JWV9odE5YMEN4UkRJa2xlY0NhNW84ZG4tZlBYRU5hZHFZQ08zZmxiVndjOG9zSVRvVDI1dlQtSy1aZmQ5Vk1HVWVWTnl5NGxEU0wwNUpLMUdORDE3WTRFMTBhcVRRRTl0UlgwbUotWUg3R3J2bjRWc2NLa0NIY2tDRU5ITVVwZnVJX01kd3I?oc=5) |
 | October 22, 2025: Government shutdown and Trump administration news - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPcmZidXFoLXdqelFzV2dqelNMelo2Njd1YlFuSWpZckhaS21sZFlmbXdxcFpCelNMU1ZTbWFfN2xkc1BqR3FXbUxhdTlVWTFiYnFUbGJ4NWdGdXRrWlEwdDZTS2NFU1hLdDg2UE1kMkZKNzg4Q3Zvd0FjdzA2LW9tUVhPeTU?oc=5) |
 | U.S. kills five on alleged drug boats in Pacific, widening Trump’s campaign - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNV09qT0hDMERPQm9QbmpQS0FVbENzVjNjdnp4c2U5QmVmS05rM2ZIdUp1bzM0YVBEZVFxcDY2OHpkQVRDT2U5OWptRTJ2b3hMNS1hRW9HQkZtY1NnUURQal9ibG1lZ29qWHEzcmxZUVdYajNRd0pYemNfS09XUW1fYnBxTzAxTFdyOHh0M0RDejU1VXBtR1QzeWdnWWxkdw?oc=5) |
-| Scott Wiener is running for Congress. Nancy Pelosi won’t say whether she’ll be his opponent - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPRHVXQ25QSkVNTzZjbTlyY0NrTmg2Nko1T205anV5ODh4eUloRFBzeDJHdjN4YTlwUVlGNXlIM2lFVE5WQUg0WnZUSVc4ZDQ3VzNSQWEwWUhMM3FRUm43R29FQWhZNVVJTG9UaEJjQWJ1UkVmNjkxUUJzN0hKYVlpNThRT0hrLVlkZmhhR1BObGExUG5RRGtXNDJMdEg?oc=5) |
+| University of Virginia reaches deal to halt Justice Dept. civil rights investigations - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOUUs0MlFSYkVYMkJlOVV0Xzl1clhfQ0s1WTFBNnFTOTEtSnV6b2oyY2dZaFVHbFdXbTRyeVhlR0hLSEExUDN5NHEzR1FENU1taGhsZGFlZU5CVW1Ob0pLWGUzWS16ZkRjSnJPV0FMaDN2Q2JWTEd6VktDYmZacHZNSNIBhgFBVV95cUxNR3Q3eEdyNl9VeUFseWZnekQzQ2ppNTAwbGVZbThtNnR4c0d6bl9MNThreGtUSnJDUFl3Z1RFMzAyUkVNMnVxdnFtRU1CVzlPSnZzTDktUGg1ZnF0T2RLZnExSWFyN0RMeFBIZS1nbjFQWTJMOXpJOWt5Z2JCa1BrSkhFbVMyQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
