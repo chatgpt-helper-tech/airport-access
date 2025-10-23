@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 05:25:11（北京时间）**
+🕒 更新时间：**2025年10月24日 05:33:16（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | White House East Wing demolished, new images appear to show - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOQWpBNEV3M3FVZEM4LXJTN2FhTDNldGtfTDZ2aXNXUjBvZVVKdjJMTUliSURhbHZzTkU5WVZzSXIxZG9KcW9DRHBLRF9lUXg1V05HUUVLQWJhQjBCNFdnVk1sM3B1b3hraDJZMHRDMWNtc29SRDcxcElubExGMnoxdG5IV0JtblZCaU9Dc1EyMFMtQWJQLWhMZGVBNA?oc=5) |
-| Trump backs away from sending federal troops to San Francisco after pleas from tech leaders - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPN1hncUc4X0tQbjEyN1VWQlcxRjZGck80RG91MDN2eFNsN1UyWWlFODZ0cS0weFlSZ1lHeWFVUXdXWU96UDJLblE5SU1oQzVNY1g2Yld0VmFVQTVCdVpuTTl1YVIyTG9LeWFGR1lHTDJTQ0NKSUtjVThabGJ0SHkzS0J4YUdHdUstZ3dv0gFWQVVfeXFMTkVuNnF6a3kyakd3SDc1X2hVQWFwczI0TTBfUV8teG1nYWlicThGdXN6dl9PczhhMHE1WlF1V09iS2hoVVpQRjhWRVluN1hKN2NpSHFyLWc?oc=5) |
+| Trump calls off planned federal ‘surge’ in S.F. but plans for Bay Area immigration crackdown unclear - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPT0U4S3dzTnRvV0QtbnJkSEdJLVhaYWEzV0hMb08wUTZZdldLc0g4ZnI0U1hOTjVNMHNLSlV3WmxSZnhjS2EzeGduZk5WRWZjYmhTYzNxOTMtcWVlOC04d1JGQkVCc1lDcUNhN2QxZ3drNjc1UnRZZXVlS1pJei10QktRY05HUldhWGxWakdseFNMMXctSFhqdHd1UQ?oc=5) |
 | Exclusive: China state oil majors suspend Russian oil buys due to sanctions, sources say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOekNaamlpYTg4Y2I0TFBFbWlpV2RvQ3FiRnRuOVRWRUozenRha1IwODZ0eGVXZ2JmZUtsT0RPV191ZVdTZ1BfdzFMd3BtVi1hcEtyT3JndXlVT1llNlVhZ1d6Yk9SOW5OM3k4aHBmTUxSTVNuR1djNDlveURDM0FyWGVTd2x3WXdCdmZQdnBiMmUyN0pkVmg1S0U0WFh2QzIxOXUzOTZHWkw4Z2lKWXVYQjdIVGlvMUpRSmpPRjRyWHNuRXc?oc=5) |
 | Vance says he was insulted by Israeli lawmakers' "very stupid political stunt" on West Bank annexation - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOeXhmY3RUSVhFaWdhNWdZUmdibE03OGE0eXVyNEVlMzh4dHgzcmExMjE0OVlDUlJsLTk1dERDcVM2VUFXNkMzZW05aVBtUlhpUnlLRnc1aEhZY0ZnVlp3WjBVRUhXaWFVMkltTEZFeTFTTDhHNVpldEQ0RTFfUTdseHZQWWFHQ2FLN1IxWnB30gGTAUFVX3lxTFBGOUZPRUQ1TFU5cnI5V2Z5d3hpdjBKWFhma3lNSkFMdWctSzZHU1lIZXdUaXZxTnNNQktZUWJ0Y2RUVnZTZko5WlhWb1kxaEM5UlgtSllRWlZMV1VSeEZIOXJmY3ZQYmR1SnZQY2JTakJkTE5JazZiUElvY0gzWHJDUWdJMWVYNUExOEpmR1RuY0dLQQ?oc=5) |
-| At least 25 states plan to cut off food aid benefits in November - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQTlgwazVteXpkY0hkVlZqemY5X041dVhGbGczVndwRkxzRWlRQ3VwNFNNX21lejRNNk41V1U0TzV1N2FQSzhyekUxZlcwU3hWRGdabzY4eWRJQ2RhQzllZmFTWG1PUmtVNGxTaU5tdDNCejVxdzBJTmxqelNjRFg0MjFvaXV4MGd1dGRuRDIzLW9nclNhRW5JQjJHWEIxNXYt?oc=5) |
 | Effort to pay at least some federal workers fails in Senate - NPR | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBOOHhJZkFSZGRyTklQMnl4d0k4MVkzc1JQdThuTTZBeTZ6U3BLMGhlZHZtekFzUzFZVU1NNGtySVBmQ3dNNXRsVERfVUNBdk03blNZY215aEFWb2RQWXpfOXo2SnZrVF9qaUkxY0hydjZRbG03S3c?oc=5) |
-| What scientists saw underwater in Florida left them “shocked” — and devastated - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE5OX1p0MGltM3I4QUQzSG0zeVgxVHZsZ2VaVmsxejBfVV9mVV9OWXRWME1hV0NOX2VuVnljT2pZOGdoWEh2TkJDNWFSZ2Itc2gwNVI2bjNlQmhFc2pfVmtCVGhKSC11dkwxSy1FNDd5WWJidw?oc=5) |
-| Eric Adams endorses Andrew Cuomo in NYC mayor's race - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNQ1EwYzJzUUlLU3Y0OHd5c3Y1OEVDTE9qNWl4YW5YUFFqSVVCa3hJUGtVVWhZdHRoUXNBMXM3LVNnblhHMWQyekJDNm1Ub0Jlc1ZSUjNTcTExMnpBNHJiLXBkMkZqRnFjUjItTXFlMDFvZlRZeVJ5R2ZPWDN5eXgwWC1mbw?oc=5) |
-| Pritzker to Build Case Against Trump Immigration Forces - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNMGdkdl9Gd1NQTDl0QVNOeVVBdXplWGdvUGR5SXp3TmoxSjhaS0tHQmhnQUlwRzFMdjVudEJabXFVcENGNlhqRXp5emkwNDNUZmxreDhpdHExQndmUXcxY2NDclZ5MXBKRU1RQ3R5bm85RzJfaFJacHJxU2R3SFZ6Y0JlT3pNcTdMbUF0ODRuN3ROeW1iMlgtNjFwWE16ci1iazFuQkFfRHl4NDdUcFE?oc=5) |
+| At least 25 states plan to cut off food aid benefits in November - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQTlgwazVteXpkY0hkVlZqemY5X041dVhGbGczVndwRkxzRWlRQ3VwNFNNX21lejRNNk41V1U0TzV1N2FQSzhyekUxZlcwU3hWRGdabzY4eWRJQ2RhQzllZmFTWG1PUmtVNGxTaU5tdDNCejVxdzBJTmxqelNjRFg0MjFvaXV4MGd1dGRuRDIzLW9nclNhRW5JQjJHWEIxNXYt?oc=5) |
 | DC man who played Darth Vader theme at national guard troops sues over arrest - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPVk1uX2RxWDRtcDVYVDJuRlNRU3BqZVVSOU1DS3l1RTRTYVNLZG5HLTItQzZQTlQ2WEtYa0JPaGI3QnNiWmVUWldDS05NUVViM3lFSU9lSENfaHdlbjM0NTE0cm44NjEzZmRDT1dYVlVDSnh2cHJwQVlrTldIb0hINXRfc0ZBbzBocmFFaHlLV3hFdElLT256NWcxQXBCZGJVdkQtV1lGZDE?oc=5) |
+| What scientists saw underwater in Florida left them “shocked” — and devastated - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE5OX1p0MGltM3I4QUQzSG0zeVgxVHZsZ2VaVmsxejBfVV9mVV9OWXRWME1hV0NOX2VuVnljT2pZOGdoWEh2TkJDNWFSZ2Itc2gwNVI2bjNlQmhFc2pfVmtCVGhKSC11dkwxSy1FNDd5WWJidw?oc=5) |
+| Trump to meet with Xi on Oct. 30 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQTEVaRURFN0hISld3a2wzSHpZLXFPZkh5VHFCLVpDR04tVk1XTW9JS2lial84UjFfWHRRMHc2NEpZNnhuZjlSaFBpUjRRVGdCZ2tsVjdjZnBJM1JQNDNfVXUzdC1uOG5kYjJsUkNhcmNTZ253MzVTUFhJMXNrUkFaY2tIeWRralk?oc=5) |
+| Eric Adams endorses Andrew Cuomo in NYC mayor's race - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNQ1EwYzJzUUlLU3Y0OHd5c3Y1OEVDTE9qNWl4YW5YUFFqSVVCa3hJUGtVVWhZdHRoUXNBMXM3LVNnblhHMWQyekJDNm1Ub0Jlc1ZSUjNTcTExMnpBNHJiLXBkMkZqRnFjUjItTXFlMDFvZlRZeVJ5R2ZPWDN5eXgwWC1mbw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
