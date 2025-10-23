@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 05:40:12（北京时间）**
+🕒 更新时间：**2025年10月24日 05:49:00（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Putin deplores US sanctions as "unfriendly" as EU joins in heaping restrictions on Russia - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPa05xVUJjUW90bVZHcW43RUozTzZJOVpnb0hqbFhsQXpfaC1MaEdGYzJEZ3c1MkZMMExkNWMtbS14bmxORmotV2NPaWhsSlVpUXVTUFh1c3FmVndGdzBxSXNPejA5TzZZRnRZNHctbFZ0a3lNZlctZUxta25oVEdoX1R6TmxaOUV0U0FfRWd2dE1GZ1M4aGIzZXdhd2VMRFU?oc=5) |
 | Effort to pay at least some federal workers fails in Senate - NPR | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBOOHhJZkFSZGRyTklQMnl4d0k4MVkzc1JQdThuTTZBeTZ6U3BLMGhlZHZtekFzUzFZVU1NNGtySVBmQ3dNNXRsVERfVUNBdk03blNZY215aEFWb2RQWXpfOXo2SnZrVF9qaUkxY0hydjZRbG03S3c?oc=5) |
 | Vance says he was insulted by Israeli lawmakers' "very stupid political stunt" on West Bank annexation - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOeXhmY3RUSVhFaWdhNWdZUmdibE03OGE0eXVyNEVlMzh4dHgzcmExMjE0OVlDUlJsLTk1dERDcVM2VUFXNkMzZW05aVBtUlhpUnlLRnc1aEhZY0ZnVlp3WjBVRUhXaWFVMkltTEZFeTFTTDhHNVpldEQ0RTFfUTdseHZQWWFHQ2FLN1IxWnB30gGTAUFVX3lxTFBGOUZPRUQ1TFU5cnI5V2Z5d3hpdjBKWFhma3lNSkFMdWctSzZHU1lIZXdUaXZxTnNNQktZUWJ0Y2RUVnZTZko5WlhWb1kxaEM5UlgtSllRWlZMV1VSeEZIOXJmY3ZQYmR1SnZQY2JTakJkTE5JazZiUElvY0gzWHJDUWdJMWVYNUExOEpmR1RuY0dLQQ?oc=5) |
-| DC police detained man for protesting National Guard patrol with Darth Vader song, lawsuit says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQQU5DTE9SMVA4UWZOdFJoTmNTSjcybDk5VTYtbEZtU1huLUtqSHJEaUFHQW9WWW5hN2J3VGhfOHRIdjZNOUgtUi1tcTc0Y2xYSjNvVkc5RHNOMjhoM2Q2SV9lNXR0dEFSZEQxMlpRNjJyaUd0N0dZRU81b1JpNkNfNWNxOURSZFR2X0JHSFE1bUV3bFJRb1YzN0IyaF9EcF9wQWIwZEl3Q2I?oc=5) |
 | What scientists saw underwater in Florida left them “shocked” — and devastated - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE5OX1p0MGltM3I4QUQzSG0zeVgxVHZsZ2VaVmsxejBfVV9mVV9OWXRWME1hV0NOX2VuVnljT2pZOGdoWEh2TkJDNWFSZ2Itc2gwNVI2bjNlQmhFc2pfVmtCVGhKSC11dkwxSy1FNDd5WWJidw?oc=5) |
+| DC man who played Darth Vader theme at national guard troops sues over arrest - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPVk1uX2RxWDRtcDVYVDJuRlNRU3BqZVVSOU1DS3l1RTRTYVNLZG5HLTItQzZQTlQ2WEtYa0JPaGI3QnNiWmVUWldDS05NUVViM3lFSU9lSENfaHdlbjM0NTE0cm44NjEzZmRDT1dYVlVDSnh2cHJwQVlrTldIb0hINXRfc0ZBbzBocmFFaHlLV3hFdElLT256NWcxQXBCZGJVdkQtV1lGZDE?oc=5) |
 | Trump to meet with Xi on Oct. 30 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQTEVaRURFN0hISld3a2wzSHpZLXFPZkh5VHFCLVpDR04tVk1XTW9JS2lial84UjFfWHRRMHc2NEpZNnhuZjlSaFBpUjRRVGdCZ2tsVjdjZnBJM1JQNDNfVXUzdC1uOG5kYjJsUkNhcmNTZ253MzVTUFhJMXNrUkFaY2tIeWRralk?oc=5) |
 | Watch: Video appears to show alleged Louvre jewel thieves escaping - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiV0FVX3lxTE9kb2R3TXRCUHdDZFRLNmd4R0QwUEJfQ0sxNjViM0JpZ3pZQU9UTlJjSllReWlwMGJ1SHJZOGZPSE9ycHFzLVRDWXpqaU50cFdDZmhmRUFFOA?oc=5) |
 
