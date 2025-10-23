@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 17:48:04（北京时间）**
+🕒 更新时间：**2025年10月23日 17:58:01（北京时间）**
 
 ---
 
@@ -10,13 +10,13 @@
 |--------|-------------|
 | Four survivors say minister must quit for them to rejoin grooming inquiry | [阅读全文](https://www.bbc.com/news/articles/cly285e5ljyo?at_medium=RSS&at_campaign=rss) |
 | France backing away from pledge to intercept migrant boats, sources tell BBC | [阅读全文](https://www.bbc.com/news/articles/cn8vr95n5n3o?at_medium=RSS&at_campaign=rss) |
-| Discovery of 15,000 Roman coins could be nation's biggest ever | [阅读全文](https://www.bbc.com/news/articles/cd67vv66wxxo?at_medium=RSS&at_campaign=rss) |
+| Metal detectorist digs up massive haul of Roman coins in 'virtually untouched' area of Wales | [阅读全文](https://www.bbc.com/news/articles/cd67vv66wxxo?at_medium=RSS&at_campaign=rss) |
 | EU set to endorse deal to turn frozen Russian assets into support for Ukraine | [阅读全文](https://www.bbc.com/news/articles/cwykd4l3dy1o?at_medium=RSS&at_campaign=rss) |
 | Wind and rain warnings issued as Storm Benjamin hits UK | [阅读全文](https://www.bbc.com/news/articles/c797899qdndo?at_medium=RSS&at_campaign=rss) |
 | I thought my insides were falling out: The condition affecting one in 12 mums | [阅读全文](https://www.bbc.com/news/articles/ckgk0y18mrvo?at_medium=RSS&at_campaign=rss) |
 | Polls open for Caerphilly by-election | [阅读全文](https://www.bbc.com/news/articles/c993nlyrdglo?at_medium=RSS&at_campaign=rss) |
 | Thames Water given lowest one star rating for repeated sewage spills | [阅读全文](https://www.bbc.com/news/articles/cdjrymnx1e8o?at_medium=RSS&at_campaign=rss) |
-| Three Send students reflect on their school experience - and what they'd like to change | [阅读全文](https://www.bbc.com/news/articles/c891y5n2de8o?at_medium=RSS&at_campaign=rss) |
+| Having autism should not mean having to fight for our education | [阅读全文](https://www.bbc.com/news/articles/c891y5n2de8o?at_medium=RSS&at_campaign=rss) |
 | Sam Ryder: I lost my self-esteem, my positivity and my optimism | [阅读全文](https://www.bbc.com/news/articles/cj0e2n69gv9o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
