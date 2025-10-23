@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 21:40:53（北京时间）**
+🕒 更新时间：**2025年10月23日 21:49:39（北京时间）**
 
 ---
 
@@ -9,15 +9,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Met officer sacked for gross misconduct after BBC Panorama investigation | [阅读全文](https://www.bbc.com/news/articles/cy0kynx59v0o?at_medium=RSS&at_campaign=rss) |
+| Israel maintaining control deeper inside Gaza than expected, new boundary markers suggest | [阅读全文](https://www.bbc.com/news/articles/cx2y00g4x29o?at_medium=RSS&at_campaign=rss) |
 | PM backs minister as fifth grooming gang survivor urges her to quit | [阅读全文](https://www.bbc.com/news/articles/cly285e5ljyo?at_medium=RSS&at_campaign=rss) |
 | Autistic man ousted from Waitrose voluntary role gets job offer from Asda | [阅读全文](https://www.bbc.com/news/articles/c98n53dpzx6o?at_medium=RSS&at_campaign=rss) |
 | Three held on suspicion of helping Russian intelligence | [阅读全文](https://www.bbc.com/news/articles/c2lpzjvgrp8o?at_medium=RSS&at_campaign=rss) |
 | Amazon apologises to customers impacted by huge AWS outage | [阅读全文](https://www.bbc.com/news/articles/cvgvnp77dy9o?at_medium=RSS&at_campaign=rss) |
-| CQC chief resigns over maternity failings | [阅读全文](https://www.bbc.com/news/articles/c4gp2wgzpp1o?at_medium=RSS&at_campaign=rss) |
 | Polls open for key Caerphilly by-election | [阅读全文](https://www.bbc.com/news/articles/c993nlyrdglo?at_medium=RSS&at_campaign=rss) |
-| Having autism should not mean having to fight for our education | [阅读全文](https://www.bbc.com/news/articles/c891y5n2de8o?at_medium=RSS&at_campaign=rss) |
-| How the prosecution of an Army veteran over Bloody Sunday ended in acquittal | [阅读全文](https://www.bbc.com/news/articles/cy0kgnlk7rpo?at_medium=RSS&at_campaign=rss) |
 | I thought my insides were falling out: The condition affecting one in 12 mums | [阅读全文](https://www.bbc.com/news/articles/ckgk0y18mrvo?at_medium=RSS&at_campaign=rss) |
+| How the prosecution of an Army veteran over Bloody Sunday ended in acquittal | [阅读全文](https://www.bbc.com/news/articles/cy0kgnlk7rpo?at_medium=RSS&at_campaign=rss) |
+| Metal detectorist digs up massive haul of Roman coins in 'virtually untouched' area of Wales | [阅读全文](https://www.bbc.com/news/articles/cd67vv66wxxo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
