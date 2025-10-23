@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 13:57:19（北京时间）**
+🕒 更新时间：**2025年10月23日 14:00:34（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | 'The world has changed': No longer waiting for Pelosi, Scott Wiener announces run for Congress - SFGATE | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1vcXk3XzRLZFRoWjNLNVNGWU1xMUpCb09HdmlvbFRSVzJNTHZfX00xaHo3OG9uUzdfOFAxbFo4VGhweWJJV1ZUYjJmXzFYUnBNTTA3c3RhTkpLMmJaVFVaMjNfUTRqcDJKUmxCQ0dBUkd2RHFRZUpkdW9ybldWdw?oc=5) |
 | Videos obtained by The Times show ICE raid that left deputy U.S. marshal, TikTok streamer shot - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi2AFBVV95cUxQcUtYZUR5NzBaRXRuZFVxLXQwODhIX3hBa2lEbnY4N0d1S0w4MFVBbTIxQ0tpaFVISEVmazlvM1lrQm45ckhOTkNhbFR4R09WR29JWV9odE5YMEN4UkRJa2xlY0NhNW84ZG4tZlBYRU5hZHFZQ08zZmxiVndjOG9zSVRvVDI1dlQtSy1aZmQ5Vk1HVWVWTnl5NGxEU0wwNUpLMUdORDE3WTRFMTBhcVRRRTl0UlgwbUotWUg3R3J2bjRWc2NLa0NIY2tDRU5ITVVwZnVJX01kd3I?oc=5) |
 | 4 US citizens arrested during ICE crackdown on NYC's Canal Street, congressman says - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPc282LThiaktwdHp4cGh5Q3ZsaHplQWI2MHgwZ2VSOWJFV2NTMmcyb2lZTkpYRk9EMmN2NFoxR2NsLXg3QmFodjVJMGwtcmplUndWbTk4eGgyVWJxaS1HaWdNV2k4eUZVdWdaMzZOOUQtcm9Hb3FBT09ab29GcWFqc1E1Mnhxdm5Ec3lXMUZTc0FnazBuRjl3YUlMb3cxWFd6NlY40gGoAUFVX3lxTE1oTzBVVFVQRVRhelhua0FFT1J0dlRuZVlxc1RrbHMwTWl5SXlvZUl0ZlMxMHgzMUx3TUFDZE1SRGlMQ2pjY0dYZDE5dUxfNUtCOGQ5Um9Zc1lhQTJSR01FT0NnRzJ5TDhDeFZoNkcyNUw3VW1BX1lCelhLSDFDZFY1WWJjMmRSUWFLQmZuY0x1b2x5SnNaVXM4amlIOHc0OHlvVlNzazhVQQ?oc=5) |
-| U.S. kills five on alleged drug boats in Pacific, widening Trump’s campaign - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNV09qT0hDMERPQm9QbmpQS0FVbENzVjNjdnp4c2U5QmVmS05rM2ZIdUp1bzM0YVBEZVFxcDY2OHpkQVRDT2U5OWptRTJ2b3hMNS1hRW9HQkZtY1NnUURQal9ibG1lZ29qWHEzcmxZUVdYajNRd0pYemNfS09XUW1fYnBxTzAxTFdyOHh0M0RDejU1VXBtR1QzeWdnWWxkdw?oc=5) |
+| U.S. strikes 2 more alleged drug vessels, this time on the Pacific side, killing 5 people - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5QQkNyMi1FZlk5c0xuZVVfcG1nX2pJbDc0OF9Oalprd01NNHdHbnZUanMwTy1ud2lPX3RLWU56MUIwejd3S2lfaWRCeDI2UVV3cm9IaFoyUTdOTDNEU09jWk1fdVpWX2VHVWpsZ0V6cDFZZk8wdF82MUx30gF_QVVfeXFMTXdTQXY0Z1piODhibnMtb2UtMnNWUUJHTjIzODFMOUZ4QUxFUTdZVlFqMGRDWnJtbDZPVEUyYkROQTR2ckJoUVZYaDdkek9ZQy1xbkxUTUxqZGRsZTV6MHFwMFUwYjdXOXc4RmpUbV91U0w4MkFuQmNsYWh5Q0dGTQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
