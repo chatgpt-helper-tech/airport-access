@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 11:33:50（北京时间）**
+🕒 更新时间：**2025年10月23日 11:40:53（北京时间）**
 
 ---
 
@@ -8,14 +8,14 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump says Putin talks 'don't go anywhere' as he imposes new sanctions | [阅读全文](https://www.bbc.com/news/articles/cd6758pn6ylo?at_medium=RSS&at_campaign=rss) |
-| Child abuse expert pulls out of grooming inquiry over political 'point scoring' | [阅读全文](https://www.bbc.com/news/articles/c629zvnd5lno?at_medium=RSS&at_campaign=rss) |
+| Pressure mounts on No 10 over grooming inquiry as survivors list demands | [阅读全文](https://www.bbc.com/news/articles/cly285e5ljyo?at_medium=RSS&at_campaign=rss) |
 | Person of interest in British girl's disappearance named in Australian state parliament | [阅读全文](https://www.bbc.com/news/articles/cx2082pqyl2o?at_medium=RSS&at_campaign=rss) |
 | Three Send students reflect on their school experience - and what they'd like to change | [阅读全文](https://www.bbc.com/news/articles/c891y5n2de8o?at_medium=RSS&at_campaign=rss) |
 | King to meet Pope later during historic visit to the Vatican | [阅读全文](https://www.bbc.com/news/articles/c07mzye39djo?at_medium=RSS&at_campaign=rss) |
 | Pressure to find Traitors reaches fever pitch - but are they turning on each other? | [阅读全文](https://www.bbc.com/news/articles/c87415422zdo?at_medium=RSS&at_campaign=rss) |
 | I thought my insides were falling out – what I didn't expect after childbirth | [阅读全文](https://www.bbc.com/news/articles/ckgk0y18mrvo?at_medium=RSS&at_campaign=rss) |
 | Mahmood says Home Office 'not yet fit for purpose' | [阅读全文](https://www.bbc.com/news/articles/clyl20gw4y2o?at_medium=RSS&at_campaign=rss) |
+| Trump says Putin talks 'don't go anywhere' as he imposes new sanctions | [阅读全文](https://www.bbc.com/news/articles/cd6758pn6ylo?at_medium=RSS&at_campaign=rss) |
 | Migrant removed to France returns to UK on small boat | [阅读全文](https://www.bbc.com/news/articles/clykzx43v0po?at_medium=RSS&at_campaign=rss) |
 | Agatha Christie meets Mr Men in new children's books | [阅读全文](https://www.bbc.com/news/articles/cdx42rv2wgqo?at_medium=RSS&at_campaign=rss) |
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| White House East Wing will be torn down fully to make way for Trump ballroom - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPaGszTk4wUzlIaGZoSkdFVExIcE1ENjNPdEw5LXhUc1JueGRZWFdXZHk1b0lPaV93WTY2UFlkR2VJWGJQYk5FOVVScjJQb2dmVEZVWWwyeUNkTHRxQVpmUFFHRG1ueXBwWl82S3FWS1Y2ZUI2LWJnejRGUS1TSENqTUxYNGZnUzF5c1AxZWNSY3JxdXd1ekpBS3E3TFZ3Z1JoME5hX0o3cHAzYVRrQVR2MmxZd0NEaEdocF93MU4zVjk?oc=5) |
+| Trump’s White House Ballroom Sparks Questions About Funding and Ethics - FactCheck.org | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNdzJ2cW9vV3R1NUNLbmU1RFRtdE5ta1hnbGx4SS1zcE02UGJETkRmOU5kaEsyeUU4MllyVnZxNnY1QlRWdFc0Y3JTN0lXLWhWVnNRM1hfWHRybktENVR4WEs1eWtoQ2xFVzNReXNOZXlmS2hjRXN4QVRvVFNfRGJuU2otNEY0aERDMlR0bkJqNWpSMkxqbS1TVVVYaDJMVG1wY0JyTmlENA?oc=5) |
 | U.S. sanctions Russia's 2 biggest oil firms after Trump cancels Putin summit - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPc0pjMVRVUVRBOE45RXZGSGJWT2Y0emJFdVdaemY1OEdWazVDVXd5bm5RY0d5Mi11MmFTczBIOGR5Nkk3emdCaVdod3FuNmN3dmcyc2ozMGVaZW9PTGZsSHZPYUJNSlJqVHlVazZXTTFqOU5kSEZ3djdiNlNTcUtjLVJuNmd6eDQ?oc=5) |
 | Federal Agents Head to San Francisco Bay Area for Planned Immigration Crackdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPWUpVQURaTTU5WXkyS0FKaGdjSTBWXy03TkxoUTJiZ1JsbkM0STFmQUIyRXUxbFhoUmQ1R25ZLXl5cmd0Q052N1JsOWxzcTZrYmtwYThPLU0wd1A2U3dfQjhGU0JMZFhOdXlEazFSTGVydHVfUDdOazI1YzR5UEViZnJsZUF6Zw?oc=5) |
 | Trump has asked Justice Dept. for $230 million for claims involving past criminal cases against him - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQdElXa0MzdGNhVzRIdFU5SHFQbGE3Qzg2OTU5bnFHSjlLaENDamF6aXkzZlNuNkp3Q0tDZDVRNkpUczdHQVlneWlzSHNuRm56N0RvZ2ktS3NNZVp5WE1tOXEzbVR1eTVOVG9rQ3JfSG1NWmE0TFRIaHU2ZXNqLUpNekFZSXZTTndzbUJCLTl3VXd3Uk1QaXfSAZsBQVVfeXFMTUl0OUZtX0o3S25RZVpmVk10OERwRDk0TGRWUVdBY2JWbkd1dUNiZ3RtX3dIVDlQVS0xLXBobzdXYlNGVnAtWUJSQl9Ya1NPX1k0OHc1dWRmS05nbVdYdUViRXE3VkR2X0RHTDZhNjlBSWhHajhuUUI5aENIZWRpQ0dRSG5jRy1XbGdxX1VzNjFaSWxoZ2ZvNFA1d1U?oc=5) |
