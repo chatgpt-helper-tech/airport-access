@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 00:41:37（北京时间）**
+🕒 更新时间：**2025年10月24日 00:49:11（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Vance criticizes Israel's parliament vote on West Bank annexation, says the move was an 'insult' - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOQVVKUXhoUzlIWFplcU8tWWIwNVdBRFJ2LTh4ZV93Ml91VDIwbXhXNHdMeG9sbm50WGhQVmxoWTNCTGhIYW5GWWpoTlZicHVPUFZzdzFlTU8xR0hud3U4T0ZsT1ZKcHFCVVh4TDB0TTh0TzlmS1ZrejRZYTA0TWVQSFhWUHYxZ0dLR2JjYURFSl83TG4xOTB5bXpZRkNtaHNNU2FET293bG5vYXRPY0tLbVhCclo?oc=5) |
 | King Charles and Pope exchange gifts and pray together for first time - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFB0RndDXy1YUXhyUDc1MW1iVzhCSldScHdzQWJsaFZiWVR5WGhiT3JJcFFkeGhCQU5QRHZndnBsVmUtNWp3NmNVd19MQkozXzFrTVpDUA?oc=5) |
 | US states warn food aid benefits will halt if federal shutdown drags on - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxNYVR1eTZ5aG9KRkJlekhVYXFaa2RFVGpfM25kYklRaW83LTQ1X3hERXdjb3FlYWowLVB5WHFWV1I1WS1KampjUUoyNXhwVG1MdVZlOTdJNkx4MmpCbDRGVmk5RFhYUmdtbEp4MVhMYXR2V1VycWJMNmthMXQ5d3RyZTN0YmZza2FaZGpsa1BYUGtsazVyV01zUEFISWNvWkJfRXBfYjM1MG5mVDRFZmJ4cGg5ektnellDcll0ZVV6XzJpWVk?oc=5) |
-| 4 Members of Illinois Politician Darren Bailey’s Family Are Killed in Helicopter Crash - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNb1E2Y2hzTHZ6RE81QkZRc1kyWE0zUGpuREJfZUc5cEg1QUdZNzBSRExvMVZreXdwNXN3OWxVT0lzd0FKTkxSbjk2X042SnZaUHJ3UXZWUWtVQnR5TWliQmRWZWpELTlhZ3g2NnJZWmVVSkpxTk52Szh2SFR6VmswdWdqYkszYVF6RXBOSVg0T2hqYVhhYnpWcHBXNWRsZw?oc=5) |
-| Eric Adams to endorse Andrew Cuomo in NYC mayor's race today, sources say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNQ1EwYzJzUUlLU3Y0OHd5c3Y1OEVDTE9qNWl4YW5YUFFqSVVCa3hJUGtVVWhZdHRoUXNBMXM3LVNnblhHMWQyekJDNm1Ub0Jlc1ZSUjNTcTExMnpBNHJiLXBkMkZqRnFjUjItTXFlMDFvZlRZeVJ5R2ZPWDN5eXgwWC1mbw?oc=5) |
-| Senate to vote on paying some federal workers as shutdown hits Day 23 - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNT3VBOTZtWnFfbmpPOXl2UjZqMGkzMS1lTHpqVENYcUoyTXZYZlMwZ2tTQUlac0duS05jNG1oVGp6eEZmcURBb1pRZHN2cnJQM0tNLUIyV3pZZ3RQYlpHUms4ak1EM1lielVCOUNwamNXS2NlOS0wVW8wMTJVX1FldEFBOVJzYzBkUEVWaHA5RlBoRktxWDA5d2N2T1BidXI1TU13RFdR0gGrAUFVX3lxTE1PWU5sTVp3dDlIdzN6VDA1WG45NlVNVDFkRkNvYzZVN2JybWU5SVlmODh0NXpEdUN5V2p3YU9WTVAyMm1FZXRIUVlSNzdFMng4a1BPXzhqQjVOYmdReVZoMXVTTlRRNUNwYUFNTUUxa2ViTUtEekpVUlZnaWtUNWFzNDBiYU9JOE1zRXNkMzRwcWpjc0Y4cWxWenc0bjhBel9YM252UG9YVzYxUQ?oc=5) |
+| 4 family members of Illinois governor candidate killed in Montana helicopter crash, campaign says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNdGJOcUZCNFQ5VXBULU05ZDdfd2VQNVJOSWdTQ1JCWWJRMFpubXFHQUxBM3B3RnZoNHRpVThFVTloNjdIMTBrZWJsUFliZnBhdzdWOWo2ckhrSnAxWUhNVlFXQ0hsRFdGbXpuelBHOTdkS3dpWXJQVFkxd2hfTEhoRlJpSEpvdnNzMm5YR21id2Z0SnM?oc=5) |
+| Government shutdown live updates as Senate votes on GOP bill to pay some federal workers - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQakk4T0s0Zm5iR2dqaUx5UnRLNnF3RWtrNWxJMEZEXzNTejZ3YnlGcDBGbnBNODFRZE12T0VKMUlJSUEyTTQ2RFNpRGFNcG41Wi11MUE4aEF1YmFYbVB6bDVBQkZ0Z2J0Y081WmRXbUdYUERfcHRhUzZzUFREVFBReGpuSkJjQmRXWm5TUzFVaF9fY1lvaFpVUHNB0gGfAUFVX3lxTE9uRGxuQXlXbmdyR2o1eWQ0bU1TYWRnQW9RT1d5TFpvWlN2NlpEUDBuMDFocEg4NlVLd0E1WGlfYzJoUUhLeFN4VTBMalpKcERCQ2xweDJFbmtCSXBzeXZLZ0RyMmtaNjd2c1E3V0dabHRiZ2RZd096Nmo4bzUzZnRyTFZVNW92LUl2YTFHMXJhUUF0eDNUMnRNYzlUY0Nfbw?oc=5) |
+| Trump to quadruple Argentine beef imports while US ranchers fume - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNVGg4d2h0OEZlU3ZkZ3NFTmFMbFFqeXVmb3pkNjhfckoxTmpsSEJNaHdScC0yLXBaTGRXRDgwZjJPOXRiYzE4Rjhwbks0dnF4OHYxY1E3MjdDOEhfX05EaHdpWm1fUU8tQVF5TkdIUXBJQjVrYmM0aU9SWEFyRExYV3MydWZBc0pKY2tQVmlSVFhTQTc2UUhwWHIwR0dpT3BlanpBZzN1eUxsSnNhVTJMLWtVVlVaTjNyVzhv?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
