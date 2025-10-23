@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 20:56:25（北京时间）**
+🕒 更新时间：**2025年10月23日 21:01:22（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump plans to send federal agents to San Francisco ‘right out of dictator’s handbook’, says Newsom – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxQTVhHVWY0V0tTbW11QlN3WjBoVjUwNjBSa2ZfRnpxU0lrT2V0M0VoS2hWV2lrLWE0Q2Q1OWlRV3FjR1FKaVFTemJDbWhPeVN4TFVzT2QzX2E5OXNwV0FLUmM3bVBub2JFYVE3OE51X0RnSTVZbDVKaGJHcExjWURRVWdvVU45dHBpZnI0dnZCalQ1SDdWeWhjWmF0bk11WVV1Q0Y3NDVlUHh2dTVyeUljSGpVdTVsMWJWYWQxVkZiLXNBV0JGQUROOUhMQTJ2cjZE?oc=5) |
 | How Senate Republicans finally said 'no' to Ingrassia - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNSm5aMW00dEtBSWU2cDBYSjliWkpfOWNiMDdjZ3NxRHVmeTN3ZHFzSUttXzRKNEhJNS1nTDBzVGlCUEU2bjJqdEhQVTJ6MlhsQm13SUh6SGNFWVNPLWdaWEV1SXNQOVEwb0ZyYjQwTE9iekdzN0FkamRqT014ZTBidlRZdnk5Z3hNUDNCT0kwMmlqdDBNTzM2eFBPN3hFNmhZdGc?oc=5) |
 | Mamdani attacked for refusing to take position on housing questions in NYC mayor debate - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPN0ltMGtCU19kUWNzdXZIcFppRVhQOHFFOXl6d3FSMV96SkZfZHZZSy14V1llSlJUcC1oTFZnZ2VRWHFxV2pZUzZZbGtIS1BycHJmVFJ5RlNKQjZmUktmclNhelNrQlBCaXlOTU9USTJOQ2tyY0F0R0d3T3B1NENLZVZ1b192cndIY1Y0ZXNFMkJoNEZBbXc2clZxZEdXbE93ODhFNkZPVVRLOXdGbmJtWENxaG4?oc=5) |
-| Government shutdown live updates as Senate readies vote on paying some federal workers - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQakk4T0s0Zm5iR2dqaUx5UnRLNnF3RWtrNWxJMEZEXzNTejZ3YnlGcDBGbnBNODFRZE12T0VKMUlJSUEyTTQ2RFNpRGFNcG41Wi11MUE4aEF1YmFYbVB6bDVBQkZ0Z2J0Y081WmRXbUdYUERfcHRhUzZzUFREVFBReGpuSkJjQmRXWm5TUzFVaF9fY1lvaFpVUHNB0gGfAUFVX3lxTE9uRGxuQXlXbmdyR2o1eWQ0bU1TYWRnQW9RT1d5TFpvWlN2NlpEUDBuMDFocEg4NlVLd0E1WGlfYzJoUUhLeFN4VTBMalpKcERCQ2xweDJFbmtCSXBzeXZLZ0RyMmtaNjd2c1E3V0dabHRiZ2RZd096Nmo4bzUzZnRyTFZVNW92LUl2YTFHMXJhUUF0eDNUMnRNYzlUY0Nfbw?oc=5) |
+| At least 25 states plan to cut off food aid benefits in November - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQTlgwazVteXpkY0hkVlZqemY5X041dVhGbGczVndwRkxzRWlRQ3VwNFNNX21lejRNNk41V1U0TzV1N2FQSzhyekUxZlcwU3hWRGdabzY4eWRJQ2RhQzllZmFTWG1PUmtVNGxTaU5tdDNCejVxdzBJTmxqelNjRFg0MjFvaXV4MGd1dGRuRDIzLW9nclNhRW5JQjJHWEIxNXYt?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
