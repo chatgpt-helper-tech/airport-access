@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 05:56:20（北京时间）**
+🕒 更新时间：**2025年10月24日 06:00:46（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | What scientists saw underwater in Florida left them “shocked” — and devastated - vox.com | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE5OX1p0MGltM3I4QUQzSG0zeVgxVHZsZ2VaVmsxejBfVV9mVV9OWXRWME1hV0NOX2VuVnljT2pZOGdoWEh2TkJDNWFSZ2Itc2gwNVI2bjNlQmhFc2pfVmtCVGhKSC11dkwxSy1FNDd5WWJidw?oc=5) |
 | Senators eye sanctions vote after Trump targets Russian oil - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxPSWJ2bWFLQ0F3dFRGZDJjR2FrMVpvMTN0TWZBUExWNEZNTUJ6Wm5qNnp4ZmpNRHNsaE1nUzcwdG5ndjdEOWNKVUNaN3ZsRzhPcVIyMXFxbDU5ODVoVVd0R0gtd09qOWp4Q2lYRFBBV3Jod1MtRTdPWmNLOEdydHRTWk5xV3lBa0k3ME1ueEU1MG1EMmo4SEc2ajNPcHBOTzY4Uk1sdUNva0VweTFuMXNpWWFmcXNnZl9GY01WM1UtYnBUS3BO?oc=5) |
 | DC man who played Darth Vader theme at national guard troops sues over arrest - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPVk1uX2RxWDRtcDVYVDJuRlNRU3BqZVVSOU1DS3l1RTRTYVNLZG5HLTItQzZQTlQ2WEtYa0JPaGI3QnNiWmVUWldDS05NUVViM3lFSU9lSENfaHdlbjM0NTE0cm44NjEzZmRDT1dYVlVDSnh2cHJwQVlrTldIb0hINXRfc0ZBbzBocmFFaHlLV3hFdElLT256NWcxQXBCZGJVdkQtV1lGZDE?oc=5) |
-| Trump to Meet With China’s Xi Next Week, White House Says - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMi8AFBVV95cUxQdG5PODhubnlDYzdUYXV3UmVJMFRwd2VQZFgyMld1Zi12R1k0blRKVjJYdmZoQ0lPd1JlRFNOa1JBT0YyR3dfeEhMUVBKZFFPSjRSQy1sVkh6bS1BdjlrZnRna2NSVHd1SGJ3TU5MOVpjZFlucEtSZUVJNmtDZTczMFpXOXk4Z3lzV3VqYmlGWno1RmVqQ19nbGJDdGhZRXZCYXVKUUctMHFSd005TTJmVDhXYTQzNGRqdGV2eEwzeG9MVEZFQVE1LVhndTZiQ0lTYjlxajJTV2pjVXhtYUVSWnl0VEhJOEVmX0lpbHdFQ1o?oc=5) |
+| Trump to meet with Xi on Oct. 30 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQTEVaRURFN0hISld3a2wzSHpZLXFPZkh5VHFCLVpDR04tVk1XTW9JS2lial84UjFfWHRRMHc2NEpZNnhuZjlSaFBpUjRRVGdCZ2tsVjdjZnBJM1JQNDNfVXUzdC1uOG5kYjJsUkNhcmNTZ253MzVTUFhJMXNrUkFaY2tIeWRralk?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
