@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 11:56:34（北京时间）**
+🕒 更新时间：**2025年10月23日 12:01:02（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Driver identified, arrested for DUI in deadly chain-reaction crash on 10 Freeway in Ontario - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPbjh4ZHA4NVFpUVdnVlJ0UkZCS2p1RXZ6MmhtdGRTVFU1OV9reVlOcDRONXRBZm1sZU1idmtvQkFVUGR2RDhsYVIxUkh1N1hzbjNRM0tjT0VfYXVwSWtQa0tsMEd4aUNCd0IzYmt6NzlER2M2Rk1vNXBHa2RJeUQ1ZXlIeWtmWGIwaHFXam9jZVRhRzlSVXNaWFpDVmjSAaIBQVVfeXFMTWJoT19NUGdTcHdJRXYxNkF2OE1FOElnbUhDb2Nha0x4ZDR4akF1aGtwaGhwVHlVd2NoXzNPODhoTFdQSXYwc3hVbTVmT2c3Wm5kQ29GNThxUG1pcTJxVm1ZSzVzVThOWERlMXRVcHNTWUtOR01ULUJWeE9DREgxM3RfV0JKS3I1cVFnVi1ETllmN3N2NDV1RGd6QU1pdGdFUTlR?oc=5) |
 | US military strikes suspected drug vessels in the eastern Pacific ocean - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQcG1BeDdFQktNYmIycGVZcnZybk9QQ3RuOEhRajNCckRtSDNUdnZLTkhJTXZxTzJBMl9OTEpCWmVOZF9JTDJpUkJfRnA5Z0FVbXVyeDRXZ0VyUERlLVBzbDhzRW9lZ2R0ZW9RWTdSWm90R2lSNGNWYTdiYW9JNjk5VHZoSEctNThDSEszM0Jsb3RvakhzamJ3ZGZhZ2dUa3B1d1E?oc=5) |
 | Mamdani, Cuomo and Sliwa fling zingers in New York mayoral debate as they try to win over voters - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQS09GcDJEVWViVUttUnI1dnhCUnNWOHB2czFLaU5TLXZkS1FJbFVBeWE4eFp4ckpNYVQ3ZXRzZXhNWG5Eb1FYSnNNY1BiSlJFYTB5UWQyZ1VMLWJqN19FNl9oVk1yeGROeWtLN1dIUjJvR0Jxc0EyNlVXeUF3UGoyeG45NjJpcG1YMWxNWVFDZ1lZdXd1VGRibFc2VWNIUQ?oc=5) |
-| Chaotic shooting of suspect and deputy U.S. marshal highlights increased aggression in ICE crackdowns - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNUlRuUm5FSDhmWU5kWGRyZ2VoN0pkeVowbGZBeFg4MFI2Q1VMaTNOMDR3R0xfR05ScENBdzJKWlVqRFN0TXQzbjREbWZzNUpjN0ZVUHE0RTVSRGNMdC1YY3AyQ3RaVkNiTzRSRnJEblh6dmVsQ0FYdUZNdnFTcExkWEtRci0?oc=5) |
+| Man shot in ICE confrontation was a 'respected and admired' citizen journalist with TikTok following - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNdXFlcjdfdDhCQkJLTFFnYmd2cWptME9xQmhpdHVqMW1ndWJ3X0hfNmx4TUZuWXk3ZzA2U3pZQ29qRlllTEhpd1kwU0lXQ2E1MmZUdTFnS052R3RDblRyQ195VVFEdDhfSlE5QzVhWXRINFVycTVmYkkwWVJPdzJKbDloZ1Z4d2lobHR0TGR0YmFLMl9GUXFiTVItbHEyRGZIZmZHODFrV0ZGV3c2WTF6WG1DSzhOeEFfcXfSAVZBVV95cUxPSFpuUGJrR0NyQVdVX0I0UXVpWmFrRS0xczAxSV9kV0t3T2xOOHZWSEJaLXdJclVBQ0otcVF1WnVIeXEzbTN5WTdwb2pWXzdGU0x3VWgzUQ?oc=5) |
 | 4 US citizens arrested during ICE crackdown on NYC's Canal Street, congressman says - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPc282LThiaktwdHp4cGh5Q3ZsaHplQWI2MHgwZ2VSOWJFV2NTMmcyb2lZTkpYRk9EMmN2NFoxR2NsLXg3QmFodjVJMGwtcmplUndWbTk4eGgyVWJxaS1HaWdNV2k4eUZVdWdaMzZOOUQtcm9Hb3FBT09ab29GcWFqc1E1Mnhxdm5Ec3lXMUZTc0FnazBuRjl3YUlMb3cxWFd6NlY40gGoAUFVX3lxTE1oTzBVVFVQRVRhelhua0FFT1J0dlRuZVlxc1RrbHMwTWl5SXlvZUl0ZlMxMHgzMUx3TUFDZE1SRGlMQ2pjY0dYZDE5dUxfNUtCOGQ5Um9Zc1lhQTJSR01FT0NnRzJ5TDhDeFZoNkcyNUw3VW1BX1lCelhLSDFDZFY1WWJjMmRSUWFLQmZuY0x1b2x5SnNaVXM4amlIOHc0OHlvVlNzazhVQQ?oc=5) |
 
 ---
