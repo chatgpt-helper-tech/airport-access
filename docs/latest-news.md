@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 11:16:16（北京时间）**
+🕒 更新时间：**2025年10月23日 11:24:23（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | Child abuse expert pulls out of grooming inquiry over political 'point scoring' | [阅读全文](https://www.bbc.com/news/articles/c629zvnd5lno?at_medium=RSS&at_campaign=rss) |
 | Person of interest in British girl's disappearance named in Australian state parliament | [阅读全文](https://www.bbc.com/news/articles/cx2082pqyl2o?at_medium=RSS&at_campaign=rss) |
 | Three Send students reflect on their school experience - and what they'd like to change | [阅读全文](https://www.bbc.com/news/articles/c891y5n2de8o?at_medium=RSS&at_campaign=rss) |
-| King lands in Rome for historic visit to meet Pope | [阅读全文](https://www.bbc.com/news/articles/c07mzye39djo?at_medium=RSS&at_campaign=rss) |
+| King to meet Pope during historic visit to the Vatican | [阅读全文](https://www.bbc.com/news/articles/c07mzye39djo?at_medium=RSS&at_campaign=rss) |
 | Pressure to find Traitors reaches fever pitch - but are they turning on each other? | [阅读全文](https://www.bbc.com/news/articles/c87415422zdo?at_medium=RSS&at_campaign=rss) |
 | I thought my insides were falling out – what I didn't expect after childbirth | [阅读全文](https://www.bbc.com/news/articles/ckgk0y18mrvo?at_medium=RSS&at_campaign=rss) |
 | Mahmood says Home Office 'not yet fit for purpose' | [阅读全文](https://www.bbc.com/news/articles/clyl20gw4y2o?at_medium=RSS&at_campaign=rss) |
