@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 01:57:48（北京时间）**
+🕒 更新时间：**2025年10月24日 02:00:08（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | US kills three in second strike on alleged drug boats in the Pacific - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE16cEZJbHhEaTdCWFI5aU9fQ3JqN3JGQjltZjNwRnNGcWtpcTRRR2UyU1dvMFRpaGhWczZ5YUloOERTRVViZ05iX1dPNi1TRUg0S1RCM2dWWlpDZ9IBX0FVX3lxTE5iS2FRalV3VW9VTWwtYnFUdEMtVnBYdTRDSEVwd25ja2NhcjAyczR5bFE0X0E4bjlDdGIxSk5zVGVkMmV2WGlkYW5WbWp5dTdOUlBOVXZPWG9BeEtPLTBV?oc=5) |
 | What went wrong when Marines fired over Interstate 5? California leaders demand answers - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQNDBMYlVnYU85OXI0WTctNkdPUUY2WWx5SWJ3Qy1yLU1IWVRfa0xid2lsYV90NnhKQ2ttUVp4NkNEQU85ZTNtb1dtTHp1OGhkMk9NWl9lYXhrMXpwcUxhTTZjTC1zbE12MUdBcUpIT3ZMUkRkYTNXckt3c3F6RUxXcQ?oc=5) |
 | US states warn food aid benefits will halt if federal shutdown drags on - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxNYVR1eTZ5aG9KRkJlekhVYXFaa2RFVGpfM25kYklRaW83LTQ1X3hERXdjb3FlYWowLVB5WHFWV1I1WS1KampjUUoyNXhwVG1MdVZlOTdJNkx4MmpCbDRGVmk5RFhYUmdtbEp4MVhMYXR2V1VycWJMNmthMXQ5d3RyZTN0YmZza2FaZGpsa1BYUGtsazVyV01zUEFISWNvWkJfRXBfYjM1MG5mVDRFZmJ4cGg5ektnellDcll0ZVV6XzJpWVk?oc=5) |
-| 4 family members of Illinois governor candidate killed in Montana helicopter crash, campaign says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNT1ZrR01BNy11Tkp0bmprUGlNUkhRNVA5Z1h4R1NMSlFHNWstZDJmazJvUURJQ3VvQ2dxUG40TUhubHVKS19PWmQ2SHdMSGNkZzZhUlQyNEo4dnpsdVFSNjl6TWdKMVE5dFB6N05WS2lHVzBEV0ppZmlXNk0tc2hBb2NiaHZJam5laHdMTndkMWNJWG5UTFc4aGw3bUFGdw?oc=5) |
 | Eric Adams Will Endorse Andrew Cuomo for Mayor - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPb0tDX0x0dUtZVm1LWF9tdndtUFh6cDZJUGNNVzM0V3dvbEkyclNpc01Hd05hR2c5V2Q1R2FBUkhtRUpIVHNjQk9jOXRQWUk1TXlDSjVjcXpDVGpFZnhQdk5jdE85bTAxeWYybDNfbnY3M0dSS0tQYm1vMnBnVnNoZVBDN2I?oc=5) |
+| 4 family members of Illinois governor candidate killed in Montana helicopter crash, campaign says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNT1ZrR01BNy11Tkp0bmprUGlNUkhRNVA5Z1h4R1NMSlFHNWstZDJmazJvUURJQ3VvQ2dxUG40TUhubHVKS19PWmQ2SHdMSGNkZzZhUlQyNEo4dnpsdVFSNjl6TWdKMVE5dFB6N05WS2lHVzBEV0ppZmlXNk0tc2hBb2NiaHZJam5laHdMTndkMWNJWG5UTFc4aGw3bUFGdw?oc=5) |
 | Duffy warns of travel disruptions as air traffic controllers face missed paycheck - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPRktvMHhTNkZxWjBtbWxqTnpmVEJrQi1ZVVFVYVRvYmhfaEc0NENnN2gzZlBJMUJ1Y0FRdkZmdEIzNll0eFYxQm5FMkUyaVF4el8zR2JrVkFnRkViQklvd21EUGF2eE5zRzh2UXgtSlBiVEI4ck1UVEpoazdLcGU1TnlTOWE3cGVPSWpvNjJBMA?oc=5) |
 
 ---
