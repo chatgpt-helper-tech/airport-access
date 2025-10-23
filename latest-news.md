@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 04:26:02（北京时间）**
+🕒 更新时间：**2025年10月24日 04:33:50（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | White House East Wing demolished, new images appear to show - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOQWpBNEV3M3FVZEM4LXJTN2FhTDNldGtfTDZ2aXNXUjBvZVVKdjJMTUliSURhbHZzTkU5WVZzSXIxZG9KcW9DRHBLRF9lUXg1V05HUUVLQWJhQjBCNFdnVk1sM3B1b3hraDJZMHRDMWNtc29SRDcxcElubExGMnoxdG5IV0JtblZCaU9Dc1EyMFMtQWJQLWhMZGVBNA?oc=5) |
-| Trump backs off sending National Guard to San Francisco after Huang, Benioff phone calls - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNdF8zVG9LZlBCdTNYQUxuS1l5TmgzY20wajJyRl9CX0lJc2tkZWN5ZXRSVnB4LTdpa29lUGpyODd0al94RGN2NXBBRGZtWDRneFBBbTBoZWg5ajctQm9xbHhmcm80SmhYYTk1cWpWQjlFNVdfd2k4RU9VX2RhNmdsN0c0RzZhbGJVdlYxZVNB0gGTAUFVX3lxTE1nSEdNb0hQQk5RZkhNc1gyS294cnYwcnpKNm1Nbzh6MnBwdjJrTnY4ZV9MM2pyNmFJZlFiU2oxdDJfOTB6ck4yZFlkdW9JZHBDcnFOcmYzS2xvdVliVk5yU2JkY01NZ0NROHZEYi1lSUlKaXBFcHVEanppWUNBWDFudFR5RkF2cXpSSlBLSnJVZEpYVQ?oc=5) |
+| Trump cancels plans to send federal troops to San Francisco for immigration crackdown - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQZDIwX202Sm1VWlk0RHc5T0tHeW9ySlJtX2t0Y2p5S0VRLTRFVzdNM0Q4aG1TYVB5SVZvNllKLS0wOGJrQ2pySUkyMDlpMkZtVFVwTC1wMWphRndjZElFZWh6QnpCbXZURDl2SGVCUzZybENTZmNrNmNUUFdPMVpWaGVqaW94bmg0OEI2NkgyeGR6QzlYNVE?oc=5) |
 | Exclusive: China state oil majors suspend Russian oil buys due to sanctions, sources say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOekNaamlpYTg4Y2I0TFBFbWlpV2RvQ3FiRnRuOVRWRUozenRha1IwODZ0eGVXZ2JmZUtsT0RPV191ZVdTZ1BfdzFMd3BtVi1hcEtyT3JndXlVT1llNlVhZ1d6Yk9SOW5OM3k4aHBmTUxSTVNuR1djNDlveURDM0FyWGVTd2x3WXdCdmZQdnBiMmUyN0pkVmg1S0U0WFh2QzIxOXUzOTZHWkw4Z2lKWXVYQjdIVGlvMUpRSmpPRjRyWHNuRXc?oc=5) |
 | Vance says he was insulted by Israeli lawmakers' "very stupid political stunt" on West Bank annexation - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOeXhmY3RUSVhFaWdhNWdZUmdibE03OGE0eXVyNEVlMzh4dHgzcmExMjE0OVlDUlJsLTk1dERDcVM2VUFXNkMzZW05aVBtUlhpUnlLRnc1aEhZY0ZnVlp3WjBVRUhXaWFVMkltTEZFeTFTTDhHNVpldEQ0RTFfUTdseHZQWWFHQ2FLN1IxWnB30gGTAUFVX3lxTFBGOUZPRUQ1TFU5cnI5V2Z5d3hpdjBKWFhma3lNSkFMdWctSzZHU1lIZXdUaXZxTnNNQktZUWJ0Y2RUVnZTZko5WlhWb1kxaEM5UlgtSllRWlZMV1VSeEZIOXJmY3ZQYmR1SnZQY2JTakJkTE5JazZiUElvY0gzWHJDUWdJMWVYNUExOEpmR1RuY0dLQQ?oc=5) |
 | At least 25 states plan to cut off food aid benefits in November - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQTlgwazVteXpkY0hkVlZqemY5X041dVhGbGczVndwRkxzRWlRQ3VwNFNNX21lejRNNk41V1U0TzV1N2FQSzhyekUxZlcwU3hWRGdabzY4eWRJQ2RhQzllZmFTWG1PUmtVNGxTaU5tdDNCejVxdzBJTmxqelNjRFg0MjFvaXV4MGd1dGRuRDIzLW9nclNhRW5JQjJHWEIxNXYt?oc=5) |
