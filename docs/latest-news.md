@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 22:57:21（北京时间）**
+🕒 更新时间：**2025年10月23日 23:00:19（北京时间）**
 
 ---
 
@@ -29,7 +29,7 @@
 | Vance slams Israel's parliament vote on West Bank annexation, calling it an 'insult' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5DcWpUUl9QYkNfTHpvSEhRek1QU0s0dk92LVQzazRmNXNuZU55M25MZm96ZmE3QTRNME9jQTU0WlNocXhobmp6dmctMXU2bjRHakpwMEhBZ0hmS0h4ZS1IRHhLMGYtNjdBWHBZRGlkMktIYm85Z1h5R3ZB?oc=5) |
 | Trump has asked Justice Dept. for $230 million for claims involving past criminal cases against him - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQdElXa0MzdGNhVzRIdFU5SHFQbGE3Qzg2OTU5bnFHSjlLaENDamF6aXkzZlNuNkp3Q0tDZDVRNkpUczdHQVlneWlzSHNuRm56N0RvZ2ktS3NNZVp5WE1tOXEzbVR1eTVOVG9rQ3JfSG1NWmE0TFRIaHU2ZXNqLUpNekFZSXZTTndzbUJCLTl3VXd3Uk1QaXfSAZsBQVVfeXFMTUl0OUZtX0o3S25RZVpmVk10OERwRDk0TGRWUVdBY2JWbkd1dUNiZ3RtX3dIVDlQVS0xLXBobzdXYlNGVnAtWUJSQl9Ya1NPX1k0OHc1dWRmS05nbVdYdUViRXE3VkR2X0RHTDZhNjlBSWhHajhuUUI5aENIZWRpQ0dRSG5jRy1XbGdxX1VzNjFaSWxoZ2ZvNFA1d1U?oc=5) |
 | He tracked and posted videos of ICE raids in L.A. Now this TikTok streamer is in federal custody - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPVmU0bnNGVHZrOUk0cTVMOHR0TVNHdUNqMUxGYmo4N2E2YnpJQ2ZqZEFpQkFoVTNXWTdnaU5saGxkMkFPTjM0Y1NfM0R0Z1k4akJQMG5EOXNsUUJGQ05hTTl5WEFrWFRoQlB2VG13LTBoX3Q4bVRpY3lheDlRZC1pNQ?oc=5) |
-| At least 25 states plan to cut off food aid benefits in November - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQTlgwazVteXpkY0hkVlZqemY5X041dVhGbGczVndwRkxzRWlRQ3VwNFNNX21lejRNNk41V1U0TzV1N2FQSzhyekUxZlcwU3hWRGdabzY4eWRJQ2RhQzllZmFTWG1PUmtVNGxTaU5tdDNCejVxdzBJTmxqelNjRFg0MjFvaXV4MGd1dGRuRDIzLW9nclNhRW5JQjJHWEIxNXYt?oc=5) |
+| The shutdown cliff that could hit Democrats hard - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQbEplZ1NkNnlOZC15WXVxNklldWh3YUd2MHlLbXhFS3RPcWl1SVc1M1pNUmpSbHlLQVJzSk41QTJxSjJoSG1yVUt0aFBfc2NOdWlWeHZwYTBxTGoxaTRzN3NNLUM1ZUllaEdFWnFiNkZfaDRCWmN2M2JmNUNQWFliakhwaUc5eDF1b1E?oc=5) |
 | Illinois gubernatorial candidate mourns loss of family members in Montana helicopter crash - NBC Montana | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOTzRobXlnRThVM3gzYnIzeVRXbkR0ajliM0lFdUR3MTlMcWlSY0ZJdlNwNEl6UEY1LW5UZHhBTlBiclZrSGVPbi16S2xsa1ZRNElzYzM4S2IwaVdMY0tmdnJaVExIb1FfejgzOHRNNlZEMXpoUjI3ajEwbGpDM1ZWNmY3M0dySGxtRWNiSTkxbklzMmtRZTZoNVhGbDFvbkNmaTFOMHk4dlRVTy1aSlBMSThWSmhVMGRZakt2Tmt2WQ?oc=5) |
 | Inside the Capitol Hill implosion of Paul Ingrassia - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNSm5aMW00dEtBSWU2cDBYSjliWkpfOWNiMDdjZ3NxRHVmeTN3ZHFzSUttXzRKNEhJNS1nTDBzVGlCUEU2bjJqdEhQVTJ6MlhsQm13SUh6SGNFWVNPLWdaWEV1SXNQOVEwb0ZyYjQwTE9iekdzN0FkamRqT014ZTBidlRZdnk5Z3hNUDNCT0kwMmlqdDBNTzM2eFBPN3hFNmhZdGc?oc=5) |
 | Mamdani attacked for refusing to take position on housing questions in NYC mayor debate - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPN0ltMGtCU19kUWNzdXZIcFppRVhQOHFFOXl6d3FSMV96SkZfZHZZSy14V1llSlJUcC1oTFZnZ2VRWHFxV2pZUzZZbGtIS1BycHJmVFJ5RlNKQjZmUktmclNhelNrQlBCaXlOTU9USTJOQ2tyY0F0R0d3T3B1NENLZVZ1b192cndIY1Y0ZXNFMkJoNEZBbXc2clZxZEdXbE93ODhFNkZPVVRLOXdGbmJtWENxaG4?oc=5) |
