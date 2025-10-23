@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 10:49:16（北京时间）**
+🕒 更新时间：**2025年10月23日 10:57:18（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | New York City mayoral debate: Mamdani, Sliwa and Cuomo trade jabs over Israel, rent and Trump - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOSXlEZU9sYXdlc1NYNldJTXR6T0FpTlFFa0NWWlNlT3FkV21vam83SmdQZ2Q2bERpTHRKbHF0b2VTMi1QUFd5MVVUZlhpbUh1UHpabmZ5b2M0YjhNTmRQQ05MeVF2MEpMVFNWOWpzZjBCN0pRSHROeFM4czVHSlFxTFpDVGsyellTSkprVWJNbDJrRnVrV2dWaFRGZ2gzeFU?oc=5) |
 | 4 US citizens arrested during ICE crackdown on NYC's Canal Street, congressman says - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPc282LThiaktwdHp4cGh5Q3ZsaHplQWI2MHgwZ2VSOWJFV2NTMmcyb2lZTkpYRk9EMmN2NFoxR2NsLXg3QmFodjVJMGwtcmplUndWbTk4eGgyVWJxaS1HaWdNV2k4eUZVdWdaMzZOOUQtcm9Hb3FBT09ab29GcWFqc1E1Mnhxdm5Ec3lXMUZTc0FnazBuRjl3YUlMb3cxWFd6NlY40gGoAUFVX3lxTE1oTzBVVFVQRVRhelhua0FFT1J0dlRuZVlxc1RrbHMwTWl5SXlvZUl0ZlMxMHgzMUx3TUFDZE1SRGlMQ2pjY0dYZDE5dUxfNUtCOGQ5Um9Zc1lhQTJSR01FT0NnRzJ5TDhDeFZoNkcyNUw3VW1BX1lCelhLSDFDZFY1WWJjMmRSUWFLQmZuY0x1b2x5SnNaVXM4amlIOHc0OHlvVlNzazhVQQ?oc=5) |
 | U.S. kills two aboard alleged drug boat in Pacific, widening Trump’s campaign - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNV09qT0hDMERPQm9QbmpQS0FVbENzVjNjdnp4c2U5QmVmS05rM2ZIdUp1bzM0YVBEZVFxcDY2OHpkQVRDT2U5OWptRTJ2b3hMNS1hRW9HQkZtY1NnUURQal9ibG1lZ29qWHEzcmxZUVdYajNRd0pYemNfS09XUW1fYnBxTzAxTFdyOHh0M0RDejU1VXBtR1QzeWdnWWxkdw?oc=5) |
-| University of Virginia Makes Deal With White House to Halt Investigations - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQdktYNDlhclJfMUpHZVhSQkQ0a3RyY0VHOUZjT3hMQllzcXJTRE01UG5lQzVCYnhrSUhac2lFQnZBQnlPSjlTb05KNWlCSjNSRmVUV1VCUWptaXJBR0xOb19faFlwSGxnZk1Kd1RtaE9lbHRUaDAySTVOQy1DTlFiLUpNYkp0V2x6aTl1SlBmN3UzUFBF?oc=5) |
+| Trump administration news: Senate Democrats again block GOP-backed funding bill - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPcmZidXFoLXdqelFzV2dqelNMelo2Njd1YlFuSWpZckhaS21sZFlmbXdxcFpCelNMU1ZTbWFfN2xkc1BqR3FXbUxhdTlVWTFiYnFUbGJ4NWdGdXRrWlEwdDZTS2NFU1hLdDg2UE1kMkZKNzg4Q3Zvd0FjdzA2LW9tUVhPeTU?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
