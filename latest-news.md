@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 09:41:51（北京时间）**
+🕒 更新时间：**2025年10月23日 09:50:01（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | 4 US citizens arrested during ICE crackdown on NYC's Canal Street, congressman says - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPc282LThiaktwdHp4cGh5Q3ZsaHplQWI2MHgwZ2VSOWJFV2NTMmcyb2lZTkpYRk9EMmN2NFoxR2NsLXg3QmFodjVJMGwtcmplUndWbTk4eGgyVWJxaS1HaWdNV2k4eUZVdWdaMzZOOUQtcm9Hb3FBT09ab29GcWFqc1E1Mnhxdm5Ec3lXMUZTc0FnazBuRjl3YUlMb3cxWFd6NlY40gGoAUFVX3lxTE1oTzBVVFVQRVRhelhua0FFT1J0dlRuZVlxc1RrbHMwTWl5SXlvZUl0ZlMxMHgzMUx3TUFDZE1SRGlMQ2pjY0dYZDE5dUxfNUtCOGQ5Um9Zc1lhQTJSR01FT0NnRzJ5TDhDeFZoNkcyNUw3VW1BX1lCelhLSDFDZFY1WWJjMmRSUWFLQmZuY0x1b2x5SnNaVXM4amlIOHc0OHlvVlNzazhVQQ?oc=5) |
 | University of Virginia Makes Deal With White House to Halt Investigations - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQdktYNDlhclJfMUpHZVhSQkQ0a3RyY0VHOUZjT3hMQllzcXJTRE01UG5lQzVCYnhrSUhac2lFQnZBQnlPSjlTb05KNWlCSjNSRmVUV1VCUWptaXJBR0xOb19faFlwSGxnZk1Kd1RtaE9lbHRUaDAySTVOQy1DTlFiLUpNYkp0V2x6aTl1SlBmN3UzUFBF?oc=5) |
 | US demands EU reverse new climate rules to allow surge in gas imports - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQUlNYS0l2SXVBOXVEWlYxMENCSFljZ1ltSENBRk8ydVNFM3dnVWtKSGh4XzNiVWZzS2xhRGE3ZVk1dzFSa05sbV9xX1ZLSlFVakUwVUlkd1ZNV0IzLVR1LXgtcWQ3bTQ3Sk9qcHhwdm0zdnJHUjQ2cmdoNGdWSmNVeA?oc=5) |
-| The longer the shutdown lasts, the harder it is to mask - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPY3VyLTN5T2UwcGZuTTFHQ0lpM1psdXpQV0ZZbktDdHNhZGpXMTdsTHlfZngwaGpEdFd5TzZkWFFDZU9YUXpmZHY4X09oeTFwOXBDZjgzYXRXSE1tTW5PdFFXSzEwdUNlY0x6c3BmdjVsWVJNdXM2RlJueU4tczBFSEJVWUhkeFFLWUgwb0F6M1NqbDI4bl81a1VlR2ZUam85MEpjUzZUUQ?oc=5) |
+| New York City mayoral debate: Mamdani, Sliwa and Cuomo trade jabs over Israel, rent and Trump – as it happened - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOSXlEZU9sYXdlc1NYNldJTXR6T0FpTlFFa0NWWlNlT3FkV21vam83SmdQZ2Q2bERpTHRKbHF0b2VTMi1QUFd5MVVUZlhpbUh1UHpabmZ5b2M0YjhNTmRQQ05MeVF2MEpMVFNWOWpzZjBCN0pRSHROeFM4czVHSlFxTFpDVGsyellTSkprVWJNbDJrRnVrV2dWaFRGZ2gzeFU?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
