@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 21:25:27（北京时间）**
+🕒 更新时间：**2025年10月23日 21:33:25（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | Autistic man ousted from Waitrose voluntary role gets job offer from Asda | [阅读全文](https://www.bbc.com/news/articles/c98n53dpzx6o?at_medium=RSS&at_campaign=rss) |
 | Three held on suspicion of helping Russian intelligence | [阅读全文](https://www.bbc.com/news/articles/c2lpzjvgrp8o?at_medium=RSS&at_campaign=rss) |
 | Amazon apologises to customers impacted by huge AWS outage | [阅读全文](https://www.bbc.com/news/articles/cvgvnp77dy9o?at_medium=RSS&at_campaign=rss) |
-| Doctors announce five-day strike in November | [阅读全文](https://www.bbc.com/news/articles/clyk5zr7p71o?at_medium=RSS&at_campaign=rss) |
+| CQC chief resigns over maternity failings | [阅读全文](https://www.bbc.com/news/articles/c4gp2wgzpp1o?at_medium=RSS&at_campaign=rss) |
 | Polls open for key Caerphilly by-election | [阅读全文](https://www.bbc.com/news/articles/c993nlyrdglo?at_medium=RSS&at_campaign=rss) |
 | Having autism should not mean having to fight for our education | [阅读全文](https://www.bbc.com/news/articles/c891y5n2de8o?at_medium=RSS&at_campaign=rss) |
 | How the prosecution of an Army veteran over Bloody Sunday ended in acquittal | [阅读全文](https://www.bbc.com/news/articles/cy0kgnlk7rpo?at_medium=RSS&at_campaign=rss) |

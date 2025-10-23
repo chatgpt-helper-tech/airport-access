@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月23日 21:25:27（北京时间）**
+🕒 更新时间：**2025年10月23日 21:33:25（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | Autistic man ousted from Waitrose voluntary role gets job offer from Asda | [阅读全文](https://www.bbc.com/news/articles/c98n53dpzx6o?at_medium=RSS&at_campaign=rss) |
 | Three held on suspicion of helping Russian intelligence | [阅读全文](https://www.bbc.com/news/articles/c2lpzjvgrp8o?at_medium=RSS&at_campaign=rss) |
 | Amazon apologises to customers impacted by huge AWS outage | [阅读全文](https://www.bbc.com/news/articles/cvgvnp77dy9o?at_medium=RSS&at_campaign=rss) |
-| Doctors announce five-day strike in November | [阅读全文](https://www.bbc.com/news/articles/clyk5zr7p71o?at_medium=RSS&at_campaign=rss) |
+| CQC chief resigns over maternity failings | [阅读全文](https://www.bbc.com/news/articles/c4gp2wgzpp1o?at_medium=RSS&at_campaign=rss) |
 | Polls open for key Caerphilly by-election | [阅读全文](https://www.bbc.com/news/articles/c993nlyrdglo?at_medium=RSS&at_campaign=rss) |
 | Having autism should not mean having to fight for our education | [阅读全文](https://www.bbc.com/news/articles/c891y5n2de8o?at_medium=RSS&at_campaign=rss) |
 | How the prosecution of an Army veteran over Bloody Sunday ended in acquittal | [阅读全文](https://www.bbc.com/news/articles/cy0kgnlk7rpo?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | Trump plans to send federal agents to San Francisco ‘right out of dictator’s handbook’, says Newsom – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxQTVhHVWY0V0tTbW11QlN3WjBoVjUwNjBSa2ZfRnpxU0lrT2V0M0VoS2hWV2lrLWE0Q2Q1OWlRV3FjR1FKaVFTemJDbWhPeVN4TFVzT2QzX2E5OXNwV0FLUmM3bVBub2JFYVE3OE51X0RnSTVZbDVKaGJHcExjWURRVWdvVU45dHBpZnI0dnZCalQ1SDdWeWhjWmF0bk11WVV1Q0Y3NDVlUHh2dTVyeUljSGpVdTVsMWJWYWQxVkZiLXNBV0JGQUROOUhMQTJ2cjZE?oc=5) |
 | Inside the Capitol Hill implosion of Paul Ingrassia - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNSm5aMW00dEtBSWU2cDBYSjliWkpfOWNiMDdjZ3NxRHVmeTN3ZHFzSUttXzRKNEhJNS1nTDBzVGlCUEU2bjJqdEhQVTJ6MlhsQm13SUh6SGNFWVNPLWdaWEV1SXNQOVEwb0ZyYjQwTE9iekdzN0FkamRqT014ZTBidlRZdnk5Z3hNUDNCT0kwMmlqdDBNTzM2eFBPN3hFNmhZdGc?oc=5) |
 | Mamdani attacked for refusing to take position on housing questions in NYC mayor debate - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxPN0ltMGtCU19kUWNzdXZIcFppRVhQOHFFOXl6d3FSMV96SkZfZHZZSy14V1llSlJUcC1oTFZnZ2VRWHFxV2pZUzZZbGtIS1BycHJmVFJ5RlNKQjZmUktmclNhelNrQlBCaXlOTU9USTJOQ2tyY0F0R0d3T3B1NENLZVZ1b192cndIY1Y0ZXNFMkJoNEZBbXc2clZxZEdXbE93ODhFNkZPVVRLOXdGbmJtWENxaG4?oc=5) |
-| At least 25 states plan to cut off food aid benefits in November - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQTlgwazVteXpkY0hkVlZqemY5X041dVhGbGczVndwRkxzRWlRQ3VwNFNNX21lejRNNk41V1U0TzV1N2FQSzhyekUxZlcwU3hWRGdabzY4eWRJQ2RhQzllZmFTWG1PUmtVNGxTaU5tdDNCejVxdzBJTmxqelNjRFg0MjFvaXV4MGd1dGRuRDIzLW9nclNhRW5JQjJHWEIxNXYt?oc=5) |
+| He tracked and posted videos of ICE raids in L.A. Now this TikTok streamer is in federal custody - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPVmU0bnNGVHZrOUk0cTVMOHR0TVNHdUNqMUxGYmo4N2E2YnpJQ2ZqZEFpQkFoVTNXWTdnaU5saGxkMkFPTjM0Y1NfM0R0Z1k4akJQMG5EOXNsUUJGQ05hTTl5WEFrWFRoQlB2VG13LTBoX3Q4bVRpY3lheDlRZC1pNQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
