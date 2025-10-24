@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 04:56:43（北京时间）**
+🕒 更新时间：**2025年10月25日 05:00:03（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | Exclusive: USDA says it can't use emergency funds for food stamps - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQV3RIYUxJaWxLY3NoM0NTQ2NCNjdDNGhPcldyZ21HQUlXTGFUZXNVaEFFOWt6T3lPeWl6aXN3VWNtSTVVUXJuUWtRa0I5SnlNS3JuanVaSU1qUDNGZllwd2lQRmdIbWIzemdGNnJZbjMzZjFIeTYzUDF6UkpXTWloSA?oc=5) |
 | DOD accepts anonymous $130M donation to partially cover troop pay - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxNUWhIVTZiRmZsMVhvMGdWbDh0U2EyeTBHMjh0X3R5Q05nYnIwSzBaTmJiRjVkTFgyaFpCRXZrejNUMTZRVjhxbFZ3Z0hQdVR3YTA0U1hnTG9TY2NvdF9UR3ZjeWlyM0tvd1FiUFU5SmtsVk9oV0hoX2JQVWhZcDNucENlU0ZrdC05N1BZb2hSSnluRlBjVHE2VVhpd0JTMThVc2JSTmZ3cmE4dU1jMFR5Mkh5OHNmT3FQNFBPYzRn?oc=5) |
 | Government shutdown live updates as impasse hits Day 24 with no deal in sight - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNbnJOUFBPWkRiTHRfU0VVZnZ1Z0hrVHM5bmN0S2ZWc3JhRDE1Zm1jSWt1cFZGS1Y4ZFNtRVRFcFdJYjZqVEZvRkxvY01UVEpVMVN1UnBHaElpNG1vT1E2Tm9IR2tUOHJiMTEzd09WTXV2UXk4Y2U1c0cwLUgxQjh4RDg1TG7SAYoBQVVfeXFMUGFyWF9RbXlTbkE4cmZ5UDZhUXVXNUVlbFNVajdteUFTbGtxcFNCdExyeVJlcXFENDBhaVB0MXItTG9pWFhtTGRYdUxqMUplekNPOS1mN3RmOFAwQkM2NTJzWkVQSGZTb2hXa2Q0Y0ttUVBtY2Z6RmtHdTlfcWxIdzJwUE54MFMxMkV3?oc=5) |
-| Hakeem Jeffries endorses Zohran Mamdani for NYC mayor - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE11aVBhd0ZoamhDV0JDbDBHT3JkNFVYR25PQ2p6b2xLWE1ZY3BIWEJ6dW9VTFoyTzYtX2t4N0RhYkVEc0VmQnpteVoyeDU3Q0p5azU4MEpPZWhVb2pyc3lNTWFTZVVOTnEyOVRMR3BOUGdUTEc1THhtMDZ3?oc=5) |
-| Letitia James pleads not guilty to criminal charges related to alleged mortgage fraud - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNamxUc1JINTh6ZFo3LVVqeFdmc0JMbEZCOEwzUlcyczd6ai1qZnZSaFpSNE9mTXUtNnl2bF9xd0ZFUlFycDkyUm5maVdreHlqQnhSQUJ5eFkxWUN6LTl6c2sxR1RxY0pSclVvMVVvSXdXMDZ0aWx3QWNaaWN3QmhjNFlZZGRKeWEwMkhRaGlDSXFkMHc?oc=5) |
+| Hakeem Jeffries Gives Mamdani Last-Minute Endorsement for N.Y.C. Mayor - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQSTgyTlVjc1Mwa3BjOEJpMnRCMHV0WVZ6Tm5sSXRpMlNQQnZncUNMc0V2Mzl6cUxWeHpnQW5VbjI3V05vanB3REMybHlCcHRZUnMwcjJVVlAyOWt6X3J1TV9Xekx4eEdhLVJyT3Q1WnNMdDYzUklyYksxdnJBTThBbk5PLVVmTEJhbDFVWUpkNkRxME5abEE?oc=5) |
 | Newsom on Trump's "laughable" National Guard suggestion: "Nothing happening" in San Francisco - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNWFpMYndxWVhiSFdYejBBWEd0bjVTZWZ6MkhQQkJDLVNpa0JQcloxZGlvcVYtQS1ncllWOXFPYlU4MkpKOWZRb2wwUzQ5R0xNcmtmbUhONFZmSlNUME9lblRPZGRDTTlXNDBpR2RhbDJES0dXTHlqRWpTNnJ2OXVBMUI4b1Q4bUplUGZoNGFpN0FBWEF0Y0IxcjEwb3drYmRqMFVMNlNHZnVWSE5JS2wyd2w1dHdOSzIt0gG-AUFVX3lxTFBsVDcxVDNMdEFyeEZCXzZ0ZzVxRS1va25MdlgwanF5V1JWalRmczV4X0Y3S2RIaURpWFdPdnN1TC1qOHpiNzZtT3NnaU03Q2MwU2ZkV0J4NnJZMXhZa092M0l0SVA0bXU1M0VlT0ZKbzROQy1RVVJCZW9Hd21BQXUwa29JcmxlX011bWYxSXNuNVNnRmdUTk5GTDcwOF9IWWJmZjNtVFcxaXp0MHE0NGo1YzNyenJOMkFjdEUyc2c?oc=5) |
+| Letitia James pleads not guilty to criminal charges related to alleged mortgage fraud - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNamxUc1JINTh6ZFo3LVVqeFdmc0JMbEZCOEwzUlcyczd6ai1qZnZSaFpSNE9mTXUtNnl2bF9xd0ZFUlFycDkyUm5maVdreHlqQnhSQUJ5eFkxWUN6LTl6c2sxR1RxY0pSclVvMVVvSXdXMDZ0aWx3QWNaaWN3QmhjNFlZZGRKeWEwMkhRaGlDSXFkMHc?oc=5) |
 | Shots fired, driver hurt and held after truck rams into Coast Guard base in San Francisco - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQX3NnV1FwLXkycTdKdUFrQlhzV3pHVWpSVC1sbzdSSHgwSFN4eFZxM20ySzF5RDJqT0I1VXRsNTBpNXNadUozdENtdEk0d0loMFExT24tVkJqNWp2ZzZ5ZVJ6elYtb3kyRVFJejN2ZlBIRC00amFqYU5ncWxaTlBxSmJRTkhYSl92eTQ0aTFlNk9xbUhIZEVpS1Ffb1hVbHQ3anFnb3Q0VlUxTjE5V1BFNzZfWQ?oc=5) |
 
 ---
