@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 23:16:35（北京时间）**
+🕒 更新时间：**2025年10月24日 23:24:35（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | Prince Andrew's banner removed from chapel at Windsor Castle | [阅读全文](https://www.bbc.com/news/articles/c867j2wyxj0o?at_medium=RSS&at_campaign=rss) |
 | Lily Allen is 'vicious' and 'raw' on her tell-all break-up album | [阅读全文](https://www.bbc.com/news/articles/c5ypgze4l2zo?at_medium=RSS&at_campaign=rss) |
 | Men jailed over arson attack for Russia on Ukrainian business in London | [阅读全文](https://www.bbc.com/news/articles/c04g5x1wq5vo?at_medium=RSS&at_campaign=rss) |
-| Suitcase murderer jailed for at least 40 years | [阅读全文](https://www.bbc.com/news/articles/cly42l0xpgdo?at_medium=RSS&at_campaign=rss) |
+| Murderer who killed two men and dumped bodies in suitcases jailed for at least 40 years | [阅读全文](https://www.bbc.com/news/articles/cly42l0xpgdo?at_medium=RSS&at_campaign=rss) |
 | 'Behind closed doors it's sheer panic': OCD symptoms among under-25s triple in a decade | [阅读全文](https://www.bbc.com/news/articles/cdr612zrl0no?at_medium=RSS&at_campaign=rss) |
 | Prince Andrew paid by businessman tied to pension rip-off company | [阅读全文](https://www.bbc.com/news/articles/cy5qrp2wne4o?at_medium=RSS&at_campaign=rss) |
 | First snowfall of season possible for some as weekend cold snap arrives | [阅读全文](https://www.bbc.com/weather/articles/cn40jdp7v98o?at_medium=RSS&at_campaign=rss) |
@@ -23,11 +23,11 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Stephen Colbert Tears Into the White House Demolition - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPQjBvRXMxcXNJSVZLMnpjYTZuall0cmdxTzQ2N2pHRG1VZFJWdnVmclViY0dfNmcxY0Nkd1RXemIwdlpZNDBXQk1KYzQxR2hwTG82US1FV1M4aU1SUEdrY3J5SmtkMC1Ba3dTSlI4RW1TMmpTUUhHbFpuNXJfN2haRGFHQ2hFN2VPMUJjWXB0LWRHTVNXODFr?oc=5) |
-| What's in Reagan advert that's caused US-Canada trade talks collapse? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5idEp2QUJLYmtERnlFdWJodE9kT3Y3dko5aVVsOFpxNnN3VGF4YjZDYjFJcnRmb3FaU3doNENXQ3lFR2dyNlIzdjBZdnV2bnFTVXB3a2ZPaDlpUdIBX0FVX3lxTE1iY2lTOWpKWUw3cDhfM0dGV3dFM04tRWZzTE5QZHUyVXVuSHVVZTQ0X19mR0pyaG5GaVlwbG5URzF1bGt4M3FNWHlRa25kcDItRlVFRWFDazZPRVc2YjB3?oc=5) |
-| New U.S. strike on alleged drug-smuggling boat kills 6 on board, Hegseth says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPQ1JLUWg5dHJzSFFYSmZkWnlTWlNOeE1paDFZcUMzMDdxeFI0NDNfb3lNQUpfdnZCTGdxcWFncTI4U3djNTBNRGx6NGpRTTlhekJQWVdGRUFvb1QtbDZzMnBhSFFReV8tOEpvNlRuemxXak1fazV2cmJxZWZ5UXhhQ3I3REJkbThSUnfSAY8BQVVfeXFMTVdWampIVC1XRmF6OS1vRVBkSjRtS0M1SjBLbnY2MEkwblhvQ281Y1BrTTdfUHVUS1dhenRzZm95RGZSdFhFMmNiVHpiZUo0S0w2Q2xxSm03bi1ib3R2OTN0VXBpY1pSMGVBSjU4VlVudXV4Q2s0TUF2MUxhRmEyb0NlU2hXSmwyb2RxQlBhaHM?oc=5) |
-| White House backs beef imports as opposition stews - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE96bWRVNEpPZjJ2Y1ZBVmlxeUtFSnFsRmZVYUVMODloQzhrYjJ1RVdKazlpd3F1TUE1aThpWjhVZ1lCejFhdG1Oa0tIWDNUQ3VtRmVMcWZyVDdvUkxaSFhjYkx5NA?oc=5) |
+| Photos show the White House East Wing before and after demolition began to make way for Trump's ballroom - businessinsider.com | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPN0hNUndnT29fZHNiaDBwOENHSDQ1eDN2ZDd3N1JzZ0JoZGFaSVFjY21vT3cwZVRaYzdiVDJNRk13Z1I0Q3kwVXN2UWgtTnoteVBjd1pYeGVVbjllNTA3bTNQek44Wk5SQUU4WDlER3VxcV9wOHQtVXdsdEw0UUV0Vi0yTHpaWTB6bGtadmVYYlpFUQ?oc=5) |
+| Trump says he’s canceling trade negotiations with Canada over anti-tariff ad - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQUzhMaDFPcWVPUFFPZUxLblpNWDZyeHhkbV9HTDJadUxaUi0zQl9jY2x3dmxLVG9ueU45WDd1bkUycG5NVE1jY0t2U3lUeVRLSXdQYTY4ZzA3dG5IX1ZkQ0szUko0WVhVUzRaelB4SmVocGNWaHBhdUNJU05qdkRUTnh4blF6YjBRbVZmbGNOQm9LaTZoN2JHSS1B?oc=5) |
+| Hegseth announces another strike in the Caribbean - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE95QjlWVEVRemFUd1cwN3FMYl84RnVxNGlIUFNPbmZBamRCRmdCQm1jZllnQjNCZGFXM2ZlRU9KZDBtT1ZYRG1pV3V3dkNqS1NjcHhDeEVDeThxQdIBX0FVX3lxTE91VTREX25Rd0gwOEVGSkhUekdFZEhIZE94dDVKaXRaZEF6U0s3SG1Va19sRUEzOU5QVFJXWDZmNGU5OU1DczctMTJmVHFnM21Ud0hvVC1heDg0Zi1kOEJ3?oc=5) |
 | Letitia James Case Shows Ruthlessness of Justice Dept. in Trump’s Grip - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQcUlsaVBhMUdXS2NFZUZmUUVHdC1Eb2pKTWsxZVM5WTNoSjZhWmZPSFJ4MWM4RTJyaHA4di1vVHVlcHF3ZlItS1JqTTRuSDVsVXp2M0NSX3pfeTFzZW04MmpQaVFOdTNNT2hLdFEwVmtJQVB0U2dQeDhnWFNnYnpaNA?oc=5) |
+| White House backs beef imports as opposition stews - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE96bWRVNEpPZjJ2Y1ZBVmlxeUtFSnFsRmZVYUVMODloQzhrYjJ1RVdKazlpd3F1TUE1aThpWjhVZ1lCejFhdG1Oa0tIWDNUQ3VtRmVMcWZyVDdvUkxaSFhjYkx5NA?oc=5) |
 | It's supposed to be payday for many federal workers. Instead, they're getting nothing - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOcVJlWkFoRldEQnQ5WHdoZWg3bXdOU3lmWExQZDl4RDAzQkZhcm9hTG94Zy1nT1RyZS13R1gwNEN0WTZsR2Z5ZTV5TGczbDU1NklDS3NNcFA0TnMwTTQ0N19yZGxsX1VvZ2hGV2VVYi1KM1FRd0Q1RWRqa0hrbmFkMUlOajFiel9ra3pZYnpReDdYNmFFalE?oc=5) |
 | Republicans are barreling toward an Obamacare subsidy cliff — with no unified plan - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOLWJfYXZtVElPdWNyNDdBNDRhaU9MSnNXa1h4bEVjcTFBNUtrZkMxcWdyQzRZNm81RXR5N2VaZVFrZlpwbFBsNEFsNHJNelh5SWVrTGdLdWJxLXNhVV9xRS1GcGVTNzF3ZWVEb2JRV3E2VVl6R21yVG53RExzaUJBZkp0eGxiVDFnZjdWRmZ3UEYzX1B6MGppeXhjUXY?oc=5) |
 | Trump says federal deployment to San Francisco called off after conversation with Mayor Daniel Lurie - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPRTREcC1OZDdfV1NXaXc3clJ1ZkJTc1R0TmdXcWR1SVJwbFVYZFV5aEk1eklrR2h0N0dSVTFvcFpXcFl0TW1HY3RILVNNN0F5b1FFNW5yUk5jbXNndWlRZWJZcUlXSlBxVlBRY1NlMDZIQWFiSkhJaTF6WG52T05ycExsU2NJcG1fN3V2QWpHT3J4NC1zMXV0VHZ5cFJNMlZXS1B4dDgyMHdWcHl4Ym5YR0xGNXB0UmVjYkx1VU1JeS1lbVVUSkpzZQ?oc=5) |
