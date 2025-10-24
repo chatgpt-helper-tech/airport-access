@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 05:10:03（北京时间）**
+🕒 更新时间：**2025年10月25日 05:17:15（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Letitia James pleads not guilty in Virginia mortgage fraud case - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOQUtOaW5COF9adHJjRExLYnFMYndPeHc5ZEhUWFdvSjNtSWt5RF9RbElDTElReVhnemxyQkNzalBKQURtYVhVY3lYMXdUNksxbE9BTHVLRGVqQnBvckRfemxQTjB6WjVoWU12bHJQU05zb0Z0dG5uM2tqX3ZsZ3lUUTB1T3NoOGxzcHN3?oc=5) |
 | DOD accepts anonymous $130M donation to partially cover troop pay - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxNUWhIVTZiRmZsMVhvMGdWbDh0U2EyeTBHMjh0X3R5Q05nYnIwSzBaTmJiRjVkTFgyaFpCRXZrejNUMTZRVjhxbFZ3Z0hQdVR3YTA0U1hnTG9TY2NvdF9UR3ZjeWlyM0tvd1FiUFU5SmtsVk9oV0hoX2JQVWhZcDNucENlU0ZrdC05N1BZb2hSSnluRlBjVHE2VVhpd0JTMThVc2JSTmZ3cmE4dU1jMFR5Mkh5OHNmT3FQNFBPYzRn?oc=5) |
 | Hakeem Jeffries endorses Zohran Mamdani for NYC mayor - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE11aVBhd0ZoamhDV0JDbDBHT3JkNFVYR25PQ2p6b2xLWE1ZY3BIWEJ6dW9VTFoyTzYtX2t4N0RhYkVEc0VmQnpteVoyeDU3Q0p5azU4MEpPZWhVb2pyc3lNTWFTZVVOTnEyOVRMR3BOUGdUTEc1THhtMDZ3?oc=5) |
-| Newsom on Trump's "laughable" National Guard suggestion: "Nothing happening" in San Francisco - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNWFpMYndxWVhiSFdYejBBWEd0bjVTZWZ6MkhQQkJDLVNpa0JQcloxZGlvcVYtQS1ncllWOXFPYlU4MkpKOWZRb2wwUzQ5R0xNcmtmbUhONFZmSlNUME9lblRPZGRDTTlXNDBpR2RhbDJES0dXTHlqRWpTNnJ2OXVBMUI4b1Q4bUplUGZoNGFpN0FBWEF0Y0IxcjEwb3drYmRqMFVMNlNHZnVWSE5JS2wyd2w1dHdOSzIt0gG-AUFVX3lxTFBsVDcxVDNMdEFyeEZCXzZ0ZzVxRS1va25MdlgwanF5V1JWalRmczV4X0Y3S2RIaURpWFdPdnN1TC1qOHpiNzZtT3NnaU03Q2MwU2ZkV0J4NnJZMXhZa092M0l0SVA0bXU1M0VlT0ZKbzROQy1RVVJCZW9Hd21BQXUwa29JcmxlX011bWYxSXNuNVNnRmdUTk5GTDcwOF9IWWJmZjNtVFcxaXp0MHE0NGo1YzNyenJOMkFjdEUyc2c?oc=5) |
 | Shots fired, driver hurt and held after truck rams into Coast Guard base in San Francisco - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQX3NnV1FwLXkycTdKdUFrQlhzV3pHVWpSVC1sbzdSSHgwSFN4eFZxM20ySzF5RDJqT0I1VXRsNTBpNXNadUozdENtdEk0d0loMFExT24tVkJqNWp2ZzZ5ZVJ6elYtb3kyRVFJejN2ZlBIRC00amFqYU5ncWxaTlBxSmJRTkhYSl92eTQ0aTFlNk9xbUhIZEVpS1Ffb1hVbHQ3anFnb3Q0VlUxTjE5V1BFNzZfWQ?oc=5) |
-| US imposes sanctions on Colombian President Petro over drug accusations - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOM0hSRWdhcTZXY3ZSb0dsQ2dIQjQwVjNuVTVZZFJwRV94aXEwNUxBWk40aWJ2eHBLdmhnS2Z3YzhiR1JRNEVBNlE2Mi1McFJ4N3JTUWNaQmJxZ1RIZE9vakVTMS1nSUwwSDNOSnlGQUJqVEozRldJR3Q2cHVacG1vbzdWNHBCaHFZTVM2SFZxd3pORTBQd083TVRjLWNsbUlhZURNemZBU0huRUFxTUs0?oc=5) |
+| Justice Department to send election monitors to California, New Jersey following requests from state GOPs - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPRWtmR1otV0t1VE8tTUJBblBuRkFBNGNIYlNJZDNXUUlTOXllMkdyelh1RHlxZmNqR1c1UGRsWDJoLUpMMU5XME93WkNveElMN0s4bTdlLXFnQ2pNajJXMmFCdHdsU1YzRHZ6bmtOTWxGcnNudXhob2F1bnFfQk9uc080Vnhoa3ZfcFFBSjEwQlZzUdIBlwFBVV95cUxPR08xTFUxMThNMFliTUVJZ1QtQXB1WUV3SEpxZWZDZVB2bWw2VjU5Ym8wOGNEVVc5cGs1VmxCdjJFQmplcV9aQTBKMllkajZYZnQtMXJTZVdNR0ctOWdCVER2Y2tESFJPM18tZE1VaXoxZGhkbFJwRkx2b3cyQllhbWNyOUU4ZFRwVExGMExVZVNCMkFPNWNR?oc=5) |
+| Federal Immigration Enforcement Surge Called Off Across the Bay Area, Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOTVhZTWk5SEdMTzF1T2NzRVBraEhSUjEyU2htdk1Ta1BWZXJGN3FnZVFSYWlsQjJQdEZnQlZmUGZJd29mcXUyaTBialdaUVRSZDFlVmVHc3VpS2NSYURsNGkzbExCUUlvN1ZpVXQ0QjhaWm51UU1nd1FaaDQzY3Fyb3ZTOGZKVGM2dy1F?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
