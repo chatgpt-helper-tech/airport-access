@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 23:56:59（北京时间）**
+🕒 更新时间：**2025年10月25日 00:01:57（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Trump says federal deployment to San Francisco called off after conversation with Mayor Daniel Lurie - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPRTREcC1OZDdfV1NXaXc3clJ1ZkJTc1R0TmdXcWR1SVJwbFVYZFV5aEk1eklrR2h0N0dSVTFvcFpXcFl0TW1HY3RILVNNN0F5b1FFNW5yUk5jbXNndWlRZWJZcUlXSlBxVlBRY1NlMDZIQWFiSkhJaTF6WG52T05ycExsU2NJcG1fN3V2QWpHT3J4NC1zMXV0VHZ5cFJNMlZXS1B4dDgyMHdWcHl4Ym5YR0xGNXB0UmVjYkx1VU1JeS1lbVVUSkpzZQ?oc=5) |
 | Republicans are barreling toward an Obamacare subsidy cliff — with no unified plan - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOLWJfYXZtVElPdWNyNDdBNDRhaU9MSnNXa1h4bEVjcTFBNUtrZkMxcWdyQzRZNm81RXR5N2VaZVFrZlpwbFBsNEFsNHJNelh5SWVrTGdLdWJxLXNhVV9xRS1GcGVTNzF3ZWVEb2JRV3E2VVl6R21yVG53RExzaUJBZkp0eGxiVDFnZjdWRmZ3UEYzX1B6MGppeXhjUXY?oc=5) |
 | Russia’s Oil Business Takes a Hit From Fight Between Top Traders - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPUXRGb2ZWeU4xcXBueTZjQW02bEJzc1IyWHhiNHplMmJURUlEWlRmUXVVUFVxU1B5UkhVcDROZ19VWUh1bVVvZWJpOFA3dWdmd0Jhd1dIYUVKUWZYYlBPa0JsZ0hQOFBvU2ZDcmM0c1lfMjBiNktqWkdzN0szZF9IN2dScUhNbWlQYmN1c19WVFpGY0thSEFjX04zeExOMHlvNFFoWDhvdmphOEt3aDMtOExJdmNYdw?oc=5) |
-| Unions opposing Trump agenda pouring money into Proposition 50 campaign - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOb05nQVJKeHFfZGxzOWxmd2NSVFhPN0tsMmx5X3FONXRyc0kzSmpUeVZrbUo4LTRRZDR2UU5qNHNtT0kwczF3TWFkVDJqVzVBVXh5dVMwZHFiMnVYZ0VmN2tkYUJDaGpDa1pVNUkxNGpXY1YzSEV2Yzk2Z0VLQnRIRGwxRkpTRksydlh5dFY0R0NPYktLV3JtdlU2VF9feXZnTEhMMXpTM1QyaVE?oc=5) |
+| Live updates: Shots fired at truck outside Alameda Coast Guard Station amid protest activity - ABC7 San Francisco | [阅读全文](https://news.google.com/rss/articles/CBMi9AFBVV95cUxOWmNjbE1ZTWlKaFBORGxmdWE3b3BETmlvM2g2UkgzV05TTnM1TWRVYTJ5WHAwYVlLdDgtMlhNdkdOeUo0MTE5ZmhvNWcyS2ltUGs1ZkZGQkJNRFhpbDB5UFhXaWJoVjhKcXZkVVAtYnEzZlZLdWdWUE1YNjJoN2g0MVUzb2FybE5rN3BVZldfVFlVTEdoNk9nSlA0a3FscXBtdE5neXh2Q3BOTDU5MlEzWm9qdmVuS0o5djE2MUo5V29QcVNTS3V5ZFhES1Y5TUpZeVcxX0paMVpJc0dfeV92SmEzRFJ1Ql9uMlZ2OGZ2Mk8wdmha?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
