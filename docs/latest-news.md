@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 01:57:36（北京时间）**
+🕒 更新时间：**2025年10月25日 02:01:13（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump orders US carrier strike group to Caribbean - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPN3hWaFFuVlZRRGlmZFV0TVB0dS1US003eGRYQlBkTkdiZDBKVVlZR3kySFE5dkk1QmMxdjkyaU5GVDV5dHhzb3RpYUtFODlLRDh0bkdpYTgtTjVtVmRpaG4zSUN3R1NFTV9MQUpNOEFqZGVyX2wxODlxUUQzU1Q5SGw1c0JLaks0eTB2WVB5Q1pxZ1pUWmN2U2VITXRCRUNP?oc=5) |
+| U.S. sending aircraft carrier to Latin America in major buildup - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQYWVIZ3V2R19sYjBTVU9reDQ4WFlOY3VyYnlkaDRfQ3NhUUNvTHh6b01GVjFFS0UtUk9vRkc1RUpBWnI1bzdKbXd6NXM0QWNGUTE5dHpycEdfWVRxanllelAtUjNMd21KWTZJZDJxOFRSLUlvaEctcW1sSWdiVmNWVEdpTGtPZ9IBiwFBVV95cUxOeFdMUl9vVUc2RkE0blhaWlJFRXlsdC0yWTVJSUZNRkhJZk1KVlR0ZDBrdnpuQU9PLWQ3TVRRMWdheFVGLWFfb2ZpbEpIUktlakhwX0tac2x6WnB3YXhhN0hsaWVkLUwxYXVfNy1lcDgzRWZDbEIzYXhKYnRCMzZqN3RfLTFDSEdVcU80?oc=5) |
 | Trump says he’s canceling trade negotiations with Canada over anti-tariff ad - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQUzhMaDFPcWVPUFFPZUxLblpNWDZyeHhkbV9HTDJadUxaUi0zQl9jY2x3dmxLVG9ueU45WDd1bkUycG5NVE1jY0t2U3lUeVRLSXdQYTY4ZzA3dG5IX1ZkQ0szUko0WVhVUzRaelB4SmVocGNWaHBhdUNJU05qdkRUTnh4blF6YjBRbVZmbGNOQm9LaTZoN2JHSS1B?oc=5) |
 | Letitia James Pleads Not Guilty as Battle Over Trump-Urged Prosecution Begins - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9pM3FCUHp1SEpiU1pTVEptX0ZuQnVjTFA1WDcyVHpXdXdNTTFzV1ZSZE4zTlhyZjVDbjZ6aW1TNzJlb1Jubm96Q0NaZE1XZFFndTBWaVpLeFdPMXcxLWpCVXBMTnlLM2FBUWxhREx5ejRRMmtORUZMLUxzdw?oc=5) |
 | At least 2 historic magnolia trees, Kennedy Garden appear to have been removed to make way for Trump's White House ballroom - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPdXRDY0dHV2h5WHZJcHQxZDlLOGRVMF9NZUhqemtLcEFmV20xN25HMndqUzl5ZGlPYkpySkgwbHVEQnZTMWxnM2V2ejFrUTBxQjNORndWZlh6OU5OYWlRQkZpeUpXUlJXR0hZRXFhT1hFVU5hTXFHT1pCbEJSLUhsTlY0VTBUOXZHNE1hQlpMSm5fV2N6OV80azBmc2M2Z1ZlU29Na2R1dXRCU1nSAbABQVVfeXFMTjRJN0lxSFdnQXZ0RHNkSl8zMTV0MFY0ZjFXUGZFZmtKdmVVNnl3R2c5OW05M1pzb2pCRVdGQk1JWmVPR1BoVDBpYUdFLWxDV3E5MWE2Nl84Z0VDZEpROGIyQ3BJQ2NJOFpFWi1ndnJmNTVmbThMMTItblc4V0lVcEo1R1dGbGN3YlIteTl0WnQ3cnJ6RW1WRFVfd2V0RUx5ZWNYc1g0WTMzTDR0QnpWX3g?oc=5) |
