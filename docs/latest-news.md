@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 23:40:11（北京时间）**
+🕒 更新时间：**2025年10月24日 23:49:37（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Photos show the White House East Wing before and after demolition began to make way for Trump's ballroom - businessinsider.com | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPN0hNUndnT29fZHNiaDBwOENHSDQ1eDN2ZDd3N1JzZ0JoZGFaSVFjY21vT3cwZVRaYzdiVDJNRk13Z1I0Q3kwVXN2UWgtTnoteVBjd1pYeGVVbjllNTA3bTNQek44Wk5SQUU4WDlER3VxcV9wOHQtVXdsdEw0UUV0Vi0yTHpaWTB6bGtadmVYYlpFUQ?oc=5) |
 | Trump says he’s canceling trade negotiations with Canada over anti-tariff ad - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQUzhMaDFPcWVPUFFPZUxLblpNWDZyeHhkbV9HTDJadUxaUi0zQl9jY2x3dmxLVG9ueU45WDd1bkUycG5NVE1jY0t2U3lUeVRLSXdQYTY4ZzA3dG5IX1ZkQ0szUko0WVhVUzRaelB4SmVocGNWaHBhdUNJU05qdkRUTnh4blF6YjBRbVZmbGNOQm9LaTZoN2JHSS1B?oc=5) |
+| Photos show the White House East Wing before and after demolition began to make way for Trump's ballroom - businessinsider.com | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPN0hNUndnT29fZHNiaDBwOENHSDQ1eDN2ZDd3N1JzZ0JoZGFaSVFjY21vT3cwZVRaYzdiVDJNRk13Z1I0Q3kwVXN2UWgtTnoteVBjd1pYeGVVbjllNTA3bTNQek44Wk5SQUU4WDlER3VxcV9wOHQtVXdsdEw0UUV0Vi0yTHpaWTB6bGtadmVYYlpFUQ?oc=5) |
 | Hegseth announces another strike in the Caribbean - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE95QjlWVEVRemFUd1cwN3FMYl84RnVxNGlIUFNPbmZBamRCRmdCQm1jZllnQjNCZGFXM2ZlRU9KZDBtT1ZYRG1pV3V3dkNqS1NjcHhDeEVDeThxQdIBX0FVX3lxTE91VTREX25Rd0gwOEVGSkhUekdFZEhIZE94dDVKaXRaZEF6U0s3SG1Va19sRUEzOU5QVFJXWDZmNGU5OU1DczctMTJmVHFnM21Ud0hvVC1heDg0Zi1kOEJ3?oc=5) |
 | Letitia James Case Shows Ruthlessness of Justice Dept. in Trump’s Grip - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQcUlsaVBhMUdXS2NFZUZmUUVHdC1Eb2pKTWsxZVM5WTNoSjZhWmZPSFJ4MWM4RTJyaHA4di1vVHVlcHF3ZlItS1JqTTRuSDVsVXp2M0NSX3pfeTFzZW04MmpQaVFOdTNNT2hLdFEwVmtJQVB0U2dQeDhnWFNnYnpaNA?oc=5) |
 | 'A slap in the face': Ranchers feel betrayed by Trump's plan to buy Argentine beef - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOWmUxOURfUDlqZjRiQVg1R21aeWhlQ0gydzdyNFIzY2RxcGVVb3BXMThFSzlVRkNuLTd4WmVtNEI3LXJJVHJnYWQyN1F1a0hENmdZMExxRFN3OS16V1BtTU0yOWZ6YklZb3VJZjRPOEh0WEVWUXdhcF8zNjVqUkNYQWRJNGpwdw?oc=5) |
