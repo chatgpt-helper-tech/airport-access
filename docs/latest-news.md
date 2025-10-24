@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 21:49:27（北京时间）**
+🕒 更新时间：**2025年10月24日 21:56:08（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | White House backs beef imports as opposition stews - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE96bWRVNEpPZjJ2Y1ZBVmlxeUtFSnFsRmZVYUVMODloQzhrYjJ1RVdKazlpd3F1TUE1aThpWjhVZ1lCejFhdG1Oa0tIWDNUQ3VtRmVMcWZyVDdvUkxaSFhjYkx5NA?oc=5) |
 | U.S. transportation chief doesn't want air traffic controllers driving for Uber during shutdown - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOaWd2SFR0TjVqVXB4ZGNaS1gyZU83QV94bXQ0UFlCMFRLNmhtZ1JRa2dIejdIeGp3bHNIaDJBNVhUVENWeDNyNHo2S1FEclBhaE5mUThGQW9aZmFCdDJYMERJZURYajRJZEEyVjloVmZwNFNwSG5Xd0xCVUE2OEFBUUc1cTNWZ1nSAYwBQVVfeXFMT3h1WXB6WEozRllxQ0FyS1RmUXJoSWFKTGZ1bHVERXoxaDVXeFVFaVhCajY2S2ZzeWJLZU5XdFdSYWMzWUU3eEdPMkxQSHNNLTU0VGtOQ1IzYjlkR0o5TV9BQy01UEx2QTFJV1VOYUR4ZF8yRzQyYnlYT0kxa3VfMVlfZ2ZRRjdGZnNsbXA?oc=5) |
 | As strikes on alleged drug boats grow, so do questions about their legality and goal - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOM0pGaHZaWm9wYTNlQUpCUW5wNkJFWUExZVhsemtMSmRleGNNcm85eGVWckMtNnNjZkZ2VDk3d3lqZUZrLXdHT3kxcmhkUzNIMzVoYkxfdi1WRkZ1WmRWUU1abVN2WHdVWTZLN1Awek5Tb0pRMnFQTS1TY0k2UTRBRjA0OFg?oc=5) |
-| Letitia James Case Shows Ruthlessness of Justice Dept. in Trump’s Grip - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQcUlsaVBhMUdXS2NFZUZmUUVHdC1Eb2pKTWsxZVM5WTNoSjZhWmZPSFJ4MWM4RTJyaHA4di1vVHVlcHF3ZlItS1JqTTRuSDVsVXp2M0NSX3pfeTFzZW04MmpQaVFOdTNNT2hLdFEwVmtJQVB0U2dQeDhnWFNnYnpaNA?oc=5) |
 | Trump says federal deployment to San Francisco called off after conversation with Mayor Daniel Lurie - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPRTREcC1OZDdfV1NXaXc3clJ1ZkJTc1R0TmdXcWR1SVJwbFVYZFV5aEk1eklrR2h0N0dSVTFvcFpXcFl0TW1HY3RILVNNN0F5b1FFNW5yUk5jbXNndWlRZWJZcUlXSlBxVlBRY1NlMDZIQWFiSkhJaTF6WG52T05ycExsU2NJcG1fN3V2QWpHT3J4NC1zMXV0VHZ5cFJNMlZXS1B4dDgyMHdWcHl4Ym5YR0xGNXB0UmVjYkx1VU1JeS1lbVVUSkpzZQ?oc=5) |
+| Governor Glenn Youngkin Declares State of Emergency to Protect Hungry Virginians from Democrats Blocking Federal Funding for the Most Needy - Governor of Virginia (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOMTN4eElkS19YVngwdkNiazFxX3FWMC1kQndGNXY2cXFiRGw0eWw3bksxXzIyU3RpTl9jZXJKb1B4UkpCQjdjQURDQmJaMXdhbjJJeHdSVXBZY2t3RzdPNzBxX3didmZDOE5qNjQtX2NLQmh0LWhPTHdxRkJwMzZkUE9YWGo2WU94eEpVcWdsZm9OTjdM?oc=5) |
 | ‘He didn’t deserve that’: widow speaks out after husband’s violent death at Ice facility - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNYVl0UEszYzE2SXNGd0stcXIzZ212SGJodENCUGVhTWNia1JsVDM0aVZHdlBJWnZ5MGZjRlZEaldyZW9NV2JKT0otSm5FX1A0aTNZeDBIQUY5M3RaVkpZVXUzZllEMkpwVkIxVkRtVEM4cnAwZWR3T1huNnY4UkxfMEpiSmp3NVBwbDFyeFEtMlY1X1E?oc=5) |
 
 ---
