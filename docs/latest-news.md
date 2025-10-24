@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 02:32:33（北京时间）**
+🕒 更新时间：**2025年10月25日 02:40:17（北京时间）**
 
 ---
 
@@ -9,6 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Manhunt after jailed Epping hotel asylum seeker mistakenly released | [阅读全文](https://www.bbc.com/news/articles/cx2d5rl36vgo?at_medium=RSS&at_campaign=rss) |
+| Ukraine allies pledge to take Russian oil and gas off global market | [阅读全文](https://www.bbc.com/news/articles/c17p54edxljo?at_medium=RSS&at_campaign=rss) |
 | Men jailed over arson attack for Russia on Ukrainian business in London | [阅读全文](https://www.bbc.com/news/articles/c04g5x1wq5vo?at_medium=RSS&at_campaign=rss) |
 | Sheffield Wednesday, one of England's oldest football clubs, placed in administration | [阅读全文](https://www.bbc.com/sport/football/articles/c1lqmmml533o?at_medium=RSS&at_campaign=rss) |
 | Four questions raised by Plaid Cymru's by-election victory in Caerphilly | [阅读全文](https://www.bbc.com/news/articles/cd67j50z05po?at_medium=RSS&at_campaign=rss) |
@@ -17,7 +18,6 @@
 | Reeves refuses to rule out income tax rises in Budget | [阅读全文](https://www.bbc.com/news/articles/cgr4g89g1x8o?at_medium=RSS&at_campaign=rss) |
 | Asylum seeker guilty of hotel worker's savage murder at railway station | [阅读全文](https://www.bbc.com/news/articles/cvgkpyr1ep4o?at_medium=RSS&at_campaign=rss) |
 | First snowfall of season possible for some as weekend cold snap arrives | [阅读全文](https://www.bbc.com/weather/articles/cn40jdp7v98o?at_medium=RSS&at_campaign=rss) |
-| Fourth Charing Cross Met Police officer fired after BBC Panorama film | [阅读全文](https://www.bbc.com/news/articles/c4gp2nyxyglo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | Shots fired, driver hurt and held after truck rams into Coast Guard base in San Francisco - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQX3NnV1FwLXkycTdKdUFrQlhzV3pHVWpSVC1sbzdSSHgwSFN4eFZxM20ySzF5RDJqT0I1VXRsNTBpNXNadUozdENtdEk0d0loMFExT24tVkJqNWp2ZzZ5ZVJ6elYtb3kyRVFJejN2ZlBIRC00amFqYU5ncWxaTlBxSmJRTkhYSl92eTQ0aTFlNk9xbUhIZEVpS1Ffb1hVbHQ3anFnb3Q0VlUxTjE5V1BFNzZfWQ?oc=5) |
 | After a lengthy wait, Jeffries to endorse Mamdani - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQaEtUdHVvMWFzeV8zZncwdEdhYWZYZ3RaU2VrZzJybUlmYmxBQ2hPWUFDY0M5dnRLcEhiMjkxY0dFelNDV1RsRFBraVRBa3lXSFBoR0g3WjFfRVdLcTdmZXR1UTMyOEtDd2dUUlNjT3lIRmlUTU5seG43V2l3dlB2ZDU2YUhnbVpNSWM2bnVSZHhkZGlqVWFlaW9HU2pfekE?oc=5) |
 | Trump says federal deployment to San Francisco called off after conversation with Mayor Daniel Lurie - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPRTREcC1OZDdfV1NXaXc3clJ1ZkJTc1R0TmdXcWR1SVJwbFVYZFV5aEk1eklrR2h0N0dSVTFvcFpXcFl0TW1HY3RILVNNN0F5b1FFNW5yUk5jbXNndWlRZWJZcUlXSlBxVlBRY1NlMDZIQWFiSkhJaTF6WG52T05ycExsU2NJcG1fN3V2QWpHT3J4NC1zMXV0VHZ5cFJNMlZXS1B4dDgyMHdWcHl4Ym5YR0xGNXB0UmVjYkx1VU1JeS1lbVVUSkpzZQ?oc=5) |
-| Pentagon to use $130 million donation from anonymous Trump ‘friend’ to pay military members - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPb05xRi05ZEZnSS14MzRiUmlEM3RWX2wxMDRNMEpUYVVFdS1rNFJ3Y25RbG9lZDg1bkN3TlF6LWl5UUxXOTVTYXVVWEJzdXE5THZRa0I1YWxCOE4tcFNwaS1IakRPZEJ2T3pXNTB2RmFDWWdJWGVrbkFTNVQteXoyRVRsTQ?oc=5) |
 | US government workers miss first full paycheques as shutdown drags on - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1XRXd3bjdnc3E3UlMxcFM2YVJKTkVWOHppQ2dqTmNZRnZ1SDduUEQxMDdoU0IxRXE3eUNvVmQ2TFhoSm85TW1jZFZreEw2Rm5SUFdRRQ?oc=5) |
+| Can ICE Stop People Solely Based on Their Race? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5kcTg1MjZNSllnUU9JaHQ5WGlTYllRZXRfZXd6NTBWLUJsWTVSMlRlbDJ0b25aM1BMMUtTWjMwUXJZekJEVk9rcW90LXhLTXFRQW40eE1sWDR2cnBYWUlDN2xMa0pQWFZGd3FwSXVja3RCTXNTVllrVkljbVZuQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
