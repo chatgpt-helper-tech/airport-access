@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 16:40:23（北京时间）**
+🕒 更新时间：**2025年10月24日 16:48:45（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Chris Mason: Extraordinary by-election humbles Westminster's big beasts | [阅读全文](https://www.bbc.com/news/articles/c4gj48q4x39o?at_medium=RSS&at_campaign=rss) |
-| Reports of OCD among under-25s triple in 10 years | [阅读全文](https://www.bbc.com/news/articles/cdr612zrl0no?at_medium=RSS&at_campaign=rss) |
+| ‘OCD is a bully’: Why more under-25s are reporting symptoms | [阅读全文](https://www.bbc.com/news/articles/cdr612zrl0no?at_medium=RSS&at_campaign=rss) |
 | Trump says trade talks with Canada 'terminated' over anti-tariffs advert | [阅读全文](https://www.bbc.com/news/articles/cdjrlmd4pmeo?at_medium=RSS&at_campaign=rss) |
 | Gaza doctors struggle to investigate 'signs of torture' on unnamed dead returned by Israel | [阅读全文](https://www.bbc.com/news/articles/c4gz3r46e37o?at_medium=RSS&at_campaign=rss) |
 | Bank of England chief tops 2026 Powerlist as UK's most influential black person | [阅读全文](https://www.bbc.com/news/articles/cwy7gn1979go?at_medium=RSS&at_campaign=rss) |
