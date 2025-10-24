@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 03:09:16（北京时间）**
+🕒 更新时间：**2025年10月25日 03:17:30（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Letitia James Pleads Not Guilty as Battle Over Trump-Urged Prosecution Begins - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9pM3FCUHp1SEpiU1pTVEptX0ZuQnVjTFA1WDcyVHpXdXdNTTFzV1ZSZE4zTlhyZjVDbjZ6aW1TNzJlb1Jubm96Q0NaZE1XZFFndTBWaVpLeFdPMXcxLWpCVXBMTnlLM2FBUWxhREx5ejRRMmtORUZMLUxzdw?oc=5) |
 | At least 2 historic magnolia trees, Kennedy Garden appear to have been removed to make way for Trump's White House ballroom - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPdXRDY0dHV2h5WHZJcHQxZDlLOGRVMF9NZUhqemtLcEFmV20xN25HMndqUzl5ZGlPYkpySkgwbHVEQnZTMWxnM2V2ejFrUTBxQjNORndWZlh6OU5OYWlRQkZpeUpXUlJXR0hZRXFhT1hFVU5hTXFHT1pCbEJSLUhsTlY0VTBUOXZHNE1hQlpMSm5fV2N6OV80azBmc2M2Z1ZlU29Na2R1dXRCU1nSAbABQVVfeXFMTjRJN0lxSFdnQXZ0RHNkSl8zMTV0MFY0ZjFXUGZFZmtKdmVVNnl3R2c5OW05M1pzb2pCRVdGQk1JWmVPR1BoVDBpYUdFLWxDV3E5MWE2Nl84Z0VDZEpROGIyQ3BJQ2NJOFpFWi1ndnJmNTVmbThMMTItblc4V0lVcEo1R1dGbGN3YlIteTl0WnQ3cnJ6RW1WRFVfd2V0RUx5ZWNYc1g0WTMzTDR0QnpWX3g?oc=5) |
+| Letitia James Pleads Not Guilty as Battle Over Trump-Urged Prosecution Begins - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9pM3FCUHp1SEpiU1pTVEptX0ZuQnVjTFA1WDcyVHpXdXdNTTFzV1ZSZE4zTlhyZjVDbjZ6aW1TNzJlb1Jubm96Q0NaZE1XZFFndTBWaVpLeFdPMXcxLWpCVXBMTnlLM2FBUWxhREx5ejRRMmtORUZMLUxzdw?oc=5) |
 | Trump orders US carrier strike group to Caribbean - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPN3hWaFFuVlZRRGlmZFV0TVB0dS1US003eGRYQlBkTkdiZDBKVVlZR3kySFE5dkk1QmMxdjkyaU5GVDV5dHhzb3RpYUtFODlLRDh0bkdpYTgtTjVtVmRpaG4zSUN3R1NFTV9MQUpNOEFqZGVyX2wxODlxUUQzU1Q5SGw1c0JLaks0eTB2WVB5Q1pxZ1pUWmN2U2VITXRCRUNP?oc=5) |
 | Trump Says He Is Terminating Trade Negotiations With Canada - WSJ - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPS05tYjhqRV9aY1NrTmZMWjFlZHlRcHA1a0RqMEpGUlR1R3doZnRrQkp2TllOdmtxWnU0b21aRzl4WjQ0aDEwXzlCNkFJX280b09raHlDVDZYdjVYckY1dkVNY1dGU1FuTUZKQkV4dmtfb2JOc25UTWhFYlBiVnFrZXpjbXZyQ09oN2Zob0tMeGJVSm5YUnMtR1ZnVldZclNJTGpwb29jOA?oc=5) |
 | U.S. carried out a strike on another alleged drug-carrying boat in the Caribbean Sea, Pete Hegseth says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQTVFQMThvemJYMWgtUF9NSHFwdlBmVzlnZUJ5NHc4WVQtRzRYaTBiN1RqYmNtUGV4Mk4yaXh6SFhwdmR1eTBSaWdVNkZFQTNjeW5FdXQtYWxIS1hSRnlwNXUwdV9QQ1ByQVFISmF4VlZ1dVNmcmZtM01TUzI2em10cXoxWdIBVkFVX3lxTFAwWFRjVDVOekxnZUt1OUUyTjUwYVZKR0dfeXFXZXBaektvODJOZ0J0MnE2Q3FTckpxNUpYNmIyYjktZ3lWX190MVRpaEdBWmF0dVFsZlh3?oc=5) |
-| US government shutdown live updates: No temporary spending deal in sight - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1XRXd3bjdnc3E3UlMxcFM2YVJKTkVWOHppQ2dqTmNZRnZ1SDduUEQxMDdoU0IxRXE3eUNvVmQ2TFhoSm85TW1jZFZreEw2Rm5SUFdRRQ?oc=5) |
+| Shots fired, driver hurt and held after truck rams into Coast Guard base in San Francisco - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQX3NnV1FwLXkycTdKdUFrQlhzV3pHVWpSVC1sbzdSSHgwSFN4eFZxM20ySzF5RDJqT0I1VXRsNTBpNXNadUozdENtdEk0d0loMFExT24tVkJqNWp2ZzZ5ZVJ6elYtb3kyRVFJejN2ZlBIRC00amFqYU5ncWxaTlBxSmJRTkhYSl92eTQ0aTFlNk9xbUhIZEVpS1Ffb1hVbHQ3anFnb3Q0VlUxTjE5V1BFNzZfWQ?oc=5) |
 | After a lengthy wait, Jeffries to endorse Mamdani - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQaEtUdHVvMWFzeV8zZncwdEdhYWZYZ3RaU2VrZzJybUlmYmxBQ2hPWUFDY0M5dnRLcEhiMjkxY0dFelNDV1RsRFBraVRBa3lXSFBoR0g3WjFfRVdLcTdmZXR1UTMyOEtDd2dUUlNjT3lIRmlUTU5seG43V2l3dlB2ZDU2YUhnbVpNSWM2bnVSZHhkZGlqVWFlaW9HU2pfekE?oc=5) |
 | Trump says federal deployment to San Francisco called off after conversation with Mayor Daniel Lurie - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPRTREcC1OZDdfV1NXaXc3clJ1ZkJTc1R0TmdXcWR1SVJwbFVYZFV5aEk1eklrR2h0N0dSVTFvcFpXcFl0TW1HY3RILVNNN0F5b1FFNW5yUk5jbXNndWlRZWJZcUlXSlBxVlBRY1NlMDZIQWFiSkhJaTF6WG52T05ycExsU2NJcG1fN3V2QWpHT3J4NC1zMXV0VHZ5cFJNMlZXS1B4dDgyMHdWcHl4Ym5YR0xGNXB0UmVjYkx1VU1JeS1lbVVUSkpzZQ?oc=5) |
-| Can ICE Stop People Solely Based on Their Race? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5kcTg1MjZNSllnUU9JaHQ5WGlTYllRZXRfZXd6NTBWLUJsWTVSMlRlbDJ0b25aM1BMMUtTWjMwUXJZekJEVk9rcW90LXhLTXFRQW40eE1sWDR2cnBYWUlDN2xMa0pQWFZGd3FwSXVja3RCTXNTVllrVkljbVZuQQ?oc=5) |
-| Hungary’s Orbán vows to ‘circumvent’ US sanctions on Russian oil titans - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQekw2RjNOZ3BlX01kcWFfbUlPanQ3WEVhTllSTHY1ZzU5VzhzYTdhUl9EeEh2TVpuazZnLWhuOEc3aEVPWXhmTlBmZjNkclN0UUNNSXQ1N0Y4NlhtYzl1QTRObjZ0aFB3QWFDY3ZyU2pJbUxEUG1wcVFmTFU1N2x0b3pudTRhWFRvajkwNkZxNVpjUmZKNlYyc0JMby15dVdSa3gzUVRDUU9yYWc?oc=5) |
+| Office of Public Affairs ｜ Justice Department to Monitor Polling Sites in California, New Jersey - Department of Justice (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxONnlvY0ZyR2Vua1M5aS0tbUpHV2c1UmNiZk8wdmdvWUJTYm84R3BTazJVel91R1BOSmhITC1qSldmaWp2UWtRYjlJT3gweWtXNFFBQ3FZbWJYUEZDOWNsdFlvUjIzSUJTZTJyRFZIS1VfZWYzZ0VabU1KREZQcHNpSFE3V25aMXFOcVFiNm9ydGtaR04tOEUzWQ?oc=5) |
+| US government shutdown live updates: No temporary spending deal in sight - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1XRXd3bjdnc3E3UlMxcFM2YVJKTkVWOHppQ2dqTmNZRnZ1SDduUEQxMDdoU0IxRXE3eUNvVmQ2TFhoSm85TW1jZFZreEw2Rm5SUFdRRQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
