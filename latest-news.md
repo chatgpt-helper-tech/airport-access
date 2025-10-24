@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 08:08:57（北京时间）**
+🕒 更新时间：**2025年10月24日 08:17:01（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| White House East Wing demolished, new images appear to show - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOQWpBNEV3M3FVZEM4LXJTN2FhTDNldGtfTDZ2aXNXUjBvZVVKdjJMTUliSURhbHZzTkU5WVZzSXIxZG9KcW9DRHBLRF9lUXg1V05HUUVLQWJhQjBCNFdnVk1sM3B1b3hraDJZMHRDMWNtc29SRDcxcElubExGMnoxdG5IV0JtblZCaU9Dc1EyMFMtQWJQLWhMZGVBNA?oc=5) |
-| Exclusive: China state oil majors suspend Russian oil buys due to sanctions, sources say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOekNaamlpYTg4Y2I0TFBFbWlpV2RvQ3FiRnRuOVRWRUozenRha1IwODZ0eGVXZ2JmZUtsT0RPV191ZVdTZ1BfdzFMd3BtVi1hcEtyT3JndXlVT1llNlVhZ1d6Yk9SOW5OM3k4aHBmTUxSTVNuR1djNDlveURDM0FyWGVTd2x3WXdCdmZQdnBiMmUyN0pkVmg1S0U0WFh2QzIxOXUzOTZHWkw4Z2lKWXVYQjdIVGlvMUpRSmpPRjRyWHNuRXc?oc=5) |
+| White House East Wing demolished, new images appear to show - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOQWpBNEV3M3FVZEM4LXJTN2FhTDNldGtfTDZ2aXNXUjBvZVVKdjJMTUliSURhbHZzTkU5WVZzSXIxZG9KcW9DRHBLRF9lUXg1V05HUUVLQWJhQjBCNFdnVk1sM3B1b3hraDJZMHRDMWNtc29SRDcxcElubExGMnoxdG5IV0JtblZCaU9Dc1EyMFMtQWJQLWhMZGVBNNIBoAFBVV95cUxNS24zRUtwRjhlM3c5OFdQdDBIWVpORXpTdlE4eEZORERfT25EWDh1UGZ0QXh6ZC16dW12YTJOVHpIdzljcjVybFdfSHlDV3dVemNJZ1gwcXd3ZFp4QU5jUkRsejVUOFdtZXBJSURXM2xaSXRMNGlPM3RCX0JfanVfbEo5dVpZU29reTJsMlFKclRBYlZMZHlUZEZKeDNhc2dz?oc=5) |
+| Putin deplores US sanctions as ‘unfriendly’ while EU joins in heaping restrictions on Russia - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPa05xVUJjUW90bVZHcW43RUozTzZJOVpnb0hqbFhsQXpfaC1MaEdGYzJEZ3c1MkZMMExkNWMtbS14bmxORmotV2NPaWhsSlVpUXVTUFh1c3FmVndGdzBxSXNPejA5TzZZRnRZNHctbFZ0a3lNZlctZUxta25oVEdoX1R6TmxaOUV0U0FfRWd2dE1GZ1M4aGIzZXdhd2VMRFU?oc=5) |
 | Trump calls off planned federal ‘surge’ in S.F., but plans for Bay Area immigration crackdown unclear - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPT0U4S3dzTnRvV0QtbnJkSEdJLVhaYWEzV0hMb08wUTZZdldLc0g4ZnI0U1hOTjVNMHNLSlV3WmxSZnhjS2EzeGduZk5WRWZjYmhTYzNxOTMtcWVlOC04d1JGQkVCc1lDcUNhN2QxZ3drNjc1UnRZZXVlS1pJei10QktRY05HUldhWGxWakdseFNMMXctSFhqdHd1UQ?oc=5) |
 | Governor Glenn Youngkin Declares State of Emergency to Protect Hungry Virginians from Democrats Blocking Federal Funding for the Most Needy - Governor of Virginia (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOMTN4eElkS19YVngwdkNiazFxX3FWMC1kQndGNXY2cXFiRGw0eWw3bksxXzIyU3RpTl9jZXJKb1B4UkpCQjdjQURDQmJaMXdhbjJJeHdSVXBZY2t3RzdPNzBxX3didmZDOE5qNjQtX2NLQmh0LWhPTHdxRkJwMzZkUE9YWGo2WU94eEpVcWdsZm9OTjdM?oc=5) |
 | Vance says he was insulted by Israeli lawmakers' "very stupid political stunt" on West Bank annexation - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOeXhmY3RUSVhFaWdhNWdZUmdibE03OGE0eXVyNEVlMzh4dHgzcmExMjE0OVlDUlJsLTk1dERDcVM2VUFXNkMzZW05aVBtUlhpUnlLRnc1aEhZY0ZnVlp3WjBVRUhXaWFVMkltTEZFeTFTTDhHNVpldEQ0RTFfUTdseHZQWWFHQ2FLN1IxWnB30gGTAUFVX3lxTFBGOUZPRUQ1TFU5cnI5V2Z5d3hpdjBKWFhma3lNSkFMdWctSzZHU1lIZXdUaXZxTnNNQktZUWJ0Y2RUVnZTZko5WlhWb1kxaEM5UlgtSllRWlZMV1VSeEZIOXJmY3ZQYmR1SnZQY2JTakJkTE5JazZiUElvY0gzWHJDUWdJMWVYNUExOEpmR1RuY0dLQQ?oc=5) |
