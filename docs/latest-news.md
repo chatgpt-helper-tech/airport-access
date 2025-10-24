@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 19:48:25（北京时间）**
+🕒 更新时间：**2025年10月24日 19:56:54（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | Entire White House East Wing demolished as Trump moves forward with ballroom construction - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOQTlkQkxGVjE5TWxSUUgzQkRoQXZrc0o2bXVteWctY2dlZHVoQm50M1BJSm5jX0h0QlNTOWhLSzI3WlcxX3M4SlFSQ0hIcklJRTFLNUxDMnpGbVBpV0ZvMXI1SjlGeXVLZGlCcjNFV2JXempJUnhRX21yVnFtYmEwaUwyeFUydkQyRHEydkJEbTdjNDJFWUZnR1NSR1dKV2JIdjEtaXBVd0lKTmNMM2FDeGNEdEduUTJSc195VDF6Q3BHSm8?oc=5) |
 | It's supposed to be payday for many federal workers. Instead, they're getting nothing - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOcVJlWkFoRldEQnQ5WHdoZWg3bXdOU3lmWExQZDl4RDAzQkZhcm9hTG94Zy1nT1RyZS13R1gwNEN0WTZsR2Z5ZTV5TGczbDU1NklDS3NNcFA0TnMwTTQ0N19yZGxsX1VvZ2hGV2VVYi1KM1FRd0Q1RWRqa0hrbmFkMUlOajFiel9ra3pZYnpReDdYNmFFalE?oc=5) |
 | Duffy warns of travel disruptions as air traffic controllers face missed paychecks - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPRktvMHhTNkZxWjBtbWxqTnpmVEJrQi1ZVVFVYVRvYmhfaEc0NENnN2gzZlBJMUJ1Y0FRdkZmdEIzNll0eFYxQm5FMkUyaVF4el8zR2JrVkFnRkViQklvd21EUGF2eE5zRzh2UXgtSlBiVEI4ck1UVEpoazdLcGU1TnlTOWE3cGVPSWpvNjJBMA?oc=5) |
-| Louvre thieves’ slow-motion getaway using furniture lift was caught on video - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxORVh2ekk3NHhJZ1hmT2M4VHFFeGQyWENpQ2EyV19fYUNCaUgwY3h3MHJuTjdqUEN6TnUyVENQaFhESDFLUVd6UHFGbGJiMGdwTGdubjRybl9KdGhybUtlTk16TUZuMHFuaVlFLWFPdGRXRG9hM3czVzM2X2NyRHZvcFkySDN0R1R5SGhBcjFsR2RCOEx0VjdKdG92aTU?oc=5) |
 | Trump to quadruple Argentine beef imports while US ranchers fume - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNVGg4d2h0OEZlU3ZkZ3NFTmFMbFFqeXVmb3pkNjhfckoxTmpsSEJNaHdScC0yLXBaTGRXRDgwZjJPOXRiYzE4Rjhwbks0dnF4OHYxY1E3MjdDOEhfX05EaHdpWm1fUU8tQVF5TkdIUXBJQjVrYmM0aU9SWEFyRExYV3MydWZBc0pKY2tQVmlSVFhTQTc2UUhwWHIwR0dpT3BlanpBZzN1eUxsSnNhVTJMLWtVVlVaTjNyVzhv?oc=5) |
+| As strikes on alleged drug boats grow, so do questions about their legality and goal - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOM0pGaHZaWm9wYTNlQUpCUW5wNkJFWUExZVhsemtMSmRleGNNcm85eGVWckMtNnNjZkZ2VDk3d3lqZUZrLXdHT3kxcmhkUzNIMzVoYkxfdi1WRkZ1WmRWUU1abVN2WHdVWTZLN1Awek5Tb0pRMnFQTS1TY0k2UTRBRjA0OFg?oc=5) |
 | New York AG Letitia James set to be arraigned on mortgage fraud charges - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxORlFjQ3RNZlNDVW94c2o3bFA4UU1tTlNTRUQ3OFd1NFAxN0RfcHhNZW1nMWlOcXZJWGVPQ2FoVzJ5OS1lNXZZQmZxV195N0FxT0d4X2J3NkhUR3BTbFV5TFRBaHFkSGZuMEwyNjNjTDBoVm5Ba01LdWpRVHJzZThjRmlrV3QyTkwxanRWbHZHa3NDZ3VhYnEzatIBngFBVV95cUxQZmd3aEx2blRqb09BYmFWUTRGZFdpX2VJY2tKX0tNOENKQWlJOXZmdmE2ZXYwVUVqQWxBckR2VTlLUzBiZW9wWlpDSnlaOHBGRnN6QXNEOVpMVS1NSDFDNnhvR2ZYNGFBYjZQcFJ4SmhoSEFTbzRfdUZ3VzVDLUU5aUJQZVhPWFNUTDQ2VVFKWEkzSnJCWmJIMFJ3VGR6UQ?oc=5) |
+| ‘He didn’t deserve that’: widow speaks out after husband’s violent death at Ice facility - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNYVl0UEszYzE2SXNGd0stcXIzZ212SGJodENCUGVhTWNia1JsVDM0aVZHdlBJWnZ5MGZjRlZEaldyZW9NV2JKT0otSm5FX1A0aTNZeDBIQUY5M3RaVkpZVXUzZllEMkpwVkIxVkRtVEM4cnAwZWR3T1huNnY4UkxfMEpiSmp3NVBwbDFyeFEtMlY1X1E?oc=5) |
 | Trump says federal deployment to San Francisco called off after conversation with Mayor Daniel Lurie - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPRTREcC1OZDdfV1NXaXc3clJ1ZkJTc1R0TmdXcWR1SVJwbFVYZFV5aEk1eklrR2h0N0dSVTFvcFpXcFl0TW1HY3RILVNNN0F5b1FFNW5yUk5jbXNndWlRZWJZcUlXSlBxVlBRY1NlMDZIQWFiSkhJaTF6WG52T05ycExsU2NJcG1fN3V2QWpHT3J4NC1zMXV0VHZ5cFJNMlZXS1B4dDgyMHdWcHl4Ym5YR0xGNXB0UmVjYkx1VU1JeS1lbVVUSkpzZQ?oc=5) |
 | 'Uncharted territory': Ongoing shutdown threatens food aid for 42 million people - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPaDdSeHVVWWhpV0FSZmN4NTJUeU82OTFxaTR6ZHNXRHhtVk4teVFCSFlyRFZtQ2FkbXc5dVZBY3Z5aEh1eHpOb1Y1bkFIeG1nYndMVzZnSXpKdGZON0hWWWdTYk5TUE1oUzF1Njd3Snh4Vkx1alRjcUlnSXhQTFJHMm1GSVRSODN4bFdoZV9CaUdTNnZG?oc=5) |
-| Trump does what Brussels couldn’t: Kill Russian oil in Europe - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOXzNTbmVxbzQ5SFdBSERELTEwMzhoemU1QkZaaG1vaEM0LU9jNnprME8zbDVFT18zT044RXhvMXRFVGNiSDUxNW1NRFQ3amdZY3NNeE15MkZDVm1CTUtUY2VMMzMxVGM3ZDZzZDB3bHZwbVVXVldUQ2JsNGVpVHlWVllibTdrN3BxU194NEtwYlpVWEU?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
