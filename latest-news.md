@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 23:33:20（北京时间）**
+🕒 更新时间：**2025年10月24日 23:40:11（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump Says He’s Cutting Off Trade Negotiations With Canada - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPWHVuYm5VTFhlUGd6cXpBR1JXdk9CMEd3U3lFUnZCdVNfbk92MWN2MEwxb1R6OEFrTjVSbVBZS2VncWlkRlJzUDdvNWZod2g4R3hrTU5mVnFrTllSUEMzZkE3cFRraWRpbEEtbUt0eHJjVUNzQWtzd0VxMFQ3WHJTa1N6UF83V3lNcWc?oc=5) |
-| Hegseth announces another strike in the Caribbean - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE95QjlWVEVRemFUd1cwN3FMYl84RnVxNGlIUFNPbmZBamRCRmdCQm1jZllnQjNCZGFXM2ZlRU9KZDBtT1ZYRG1pV3V3dkNqS1NjcHhDeEVDeThxQdIBX0FVX3lxTE91VTREX25Rd0gwOEVGSkhUekdFZEhIZE94dDVKaXRaZEF6U0s3SG1Va19sRUEzOU5QVFJXWDZmNGU5OU1DczctMTJmVHFnM21Ud0hvVC1heDg0Zi1kOEJ3?oc=5) |
-| N.Y. Attorney General Letitia James set to plead not guilty to bank fraud charges in federal court - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNYlhvQlotVWRRLTB3WEtRY2F4elpMMmgyY2I5ZlM3SlBsanNDVE9ZZFBMU3VLZEg4YTBxX1owRXlMZ0hFU2g0N1NpTGdLNlZBT2JyUTJrVlZLZDVwSUF5cG1sQWtneDc4enM5TEVLMDJtQ00yRVRtRU44NW91dmduNHZFYmd6TDlnMXRPOUVwR3VJVWd1TWJ6azBNdlFITEVGT0NzetIBqgFBVV95cUxOM2dCOFVVOUM4ZmlWS0NhcmNlUDVkal80RWVZR1MzODlmR21hMFdUSUpLNFk1cmZNVnR3RHdvRHJDczQ4eW9WMUw0czdvWjFpMUxlQjFUc29Rd0NBRWhadFVmcHZPWGxaekhNbVQ1SmpCVTM0LXRKY0NIR294RjFhUlF5OE80TklxT0lpZC1QWHN6LXdOdTl4VWVEVWJvdlFPMTFlaWlGcS10QQ?oc=5) |
 | Photos show the White House East Wing before and after demolition began to make way for Trump's ballroom - businessinsider.com | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPN0hNUndnT29fZHNiaDBwOENHSDQ1eDN2ZDd3N1JzZ0JoZGFaSVFjY21vT3cwZVRaYzdiVDJNRk13Z1I0Q3kwVXN2UWgtTnoteVBjd1pYeGVVbjllNTA3bTNQek44Wk5SQUU4WDlER3VxcV9wOHQtVXdsdEw0UUV0Vi0yTHpaWTB6bGtadmVYYlpFUQ?oc=5) |
+| Trump says he’s canceling trade negotiations with Canada over anti-tariff ad - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQUzhMaDFPcWVPUFFPZUxLblpNWDZyeHhkbV9HTDJadUxaUi0zQl9jY2x3dmxLVG9ueU45WDd1bkUycG5NVE1jY0t2U3lUeVRLSXdQYTY4ZzA3dG5IX1ZkQ0szUko0WVhVUzRaelB4SmVocGNWaHBhdUNJU05qdkRUTnh4blF6YjBRbVZmbGNOQm9LaTZoN2JHSS1B?oc=5) |
+| Hegseth announces another strike in the Caribbean - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE95QjlWVEVRemFUd1cwN3FMYl84RnVxNGlIUFNPbmZBamRCRmdCQm1jZllnQjNCZGFXM2ZlRU9KZDBtT1ZYRG1pV3V3dkNqS1NjcHhDeEVDeThxQdIBX0FVX3lxTE91VTREX25Rd0gwOEVGSkhUekdFZEhIZE94dDVKaXRaZEF6U0s3SG1Va19sRUEzOU5QVFJXWDZmNGU5OU1DczctMTJmVHFnM21Ud0hvVC1heDg0Zi1kOEJ3?oc=5) |
+| Letitia James Case Shows Ruthlessness of Justice Dept. in Trump’s Grip - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQcUlsaVBhMUdXS2NFZUZmUUVHdC1Eb2pKTWsxZVM5WTNoSjZhWmZPSFJ4MWM4RTJyaHA4di1vVHVlcHF3ZlItS1JqTTRuSDVsVXp2M0NSX3pfeTFzZW04MmpQaVFOdTNNT2hLdFEwVmtJQVB0U2dQeDhnWFNnYnpaNA?oc=5) |
 | 'A slap in the face': Ranchers feel betrayed by Trump's plan to buy Argentine beef - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOWmUxOURfUDlqZjRiQVg1R21aeWhlQ0gydzdyNFIzY2RxcGVVb3BXMThFSzlVRkNuLTd4WmVtNEI3LXJJVHJnYWQyN1F1a0hENmdZMExxRFN3OS16V1BtTU0yOWZ6YklZb3VJZjRPOEh0WEVWUXdhcF8zNjVqUkNYQWRJNGpwdw?oc=5) |
 | It's supposed to be payday for many federal workers. Instead, they're getting nothing - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOcVJlWkFoRldEQnQ5WHdoZWg3bXdOU3lmWExQZDl4RDAzQkZhcm9hTG94Zy1nT1RyZS13R1gwNEN0WTZsR2Z5ZTV5TGczbDU1NklDS3NNcFA0TnMwTTQ0N19yZGxsX1VvZ2hGV2VVYi1KM1FRd0Q1RWRqa0hrbmFkMUlOajFiel9ra3pZYnpReDdYNmFFalE?oc=5) |
 | Trump says federal deployment to San Francisco called off after conversation with Mayor Daniel Lurie - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPRTREcC1OZDdfV1NXaXc3clJ1ZkJTc1R0TmdXcWR1SVJwbFVYZFV5aEk1eklrR2h0N0dSVTFvcFpXcFl0TW1HY3RILVNNN0F5b1FFNW5yUk5jbXNndWlRZWJZcUlXSlBxVlBRY1NlMDZIQWFiSkhJaTF6WG52T05ycExsU2NJcG1fN3V2QWpHT3J4NC1zMXV0VHZ5cFJNMlZXS1B4dDgyMHdWcHl4Ym5YR0xGNXB0UmVjYkx1VU1JeS1lbVVUSkpzZQ?oc=5) |
