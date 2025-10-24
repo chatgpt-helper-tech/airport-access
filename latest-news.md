@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 02:25:22（北京时间）**
+🕒 更新时间：**2025年10月25日 02:32:32（北京时间）**
 
 ---
 
@@ -28,10 +28,10 @@
 | Trump Says He Is Terminating Trade Negotiations With Canada - WSJ - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPS05tYjhqRV9aY1NrTmZMWjFlZHlRcHA1a0RqMEpGUlR1R3doZnRrQkp2TllOdmtxWnU0b21aRzl4WjQ0aDEwXzlCNkFJX280b09raHlDVDZYdjVYckY1dkVNY1dGU1FuTUZKQkV4dmtfb2JOc25UTWhFYlBiVnFrZXpjbXZyQ09oN2Zob0tMeGJVSm5YUnMtR1ZnVldZclNJTGpwb29jOA?oc=5) |
 | Letitia James Pleads Not Guilty as Battle Over Trump-Urged Prosecution Begins - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9pM3FCUHp1SEpiU1pTVEptX0ZuQnVjTFA1WDcyVHpXdXdNTTFzV1ZSZE4zTlhyZjVDbjZ6aW1TNzJlb1Jubm96Q0NaZE1XZFFndTBWaVpLeFdPMXcxLWpCVXBMTnlLM2FBUWxhREx5ejRRMmtORUZMLUxzdw?oc=5) |
 | U.S. carried out a strike on another alleged drug-carrying boat in the Caribbean Sea, Pete Hegseth says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQTVFQMThvemJYMWgtUF9NSHFwdlBmVzlnZUJ5NHc4WVQtRzRYaTBiN1RqYmNtUGV4Mk4yaXh6SFhwdmR1eTBSaWdVNkZFQTNjeW5FdXQtYWxIS1hSRnlwNXUwdV9QQ1ByQVFISmF4VlZ1dVNmcmZtM01TUzI2em10cXoxWdIBVkFVX3lxTFAwWFRjVDVOekxnZUt1OUUyTjUwYVZKR0dfeXFXZXBaektvODJOZ0J0MnE2Q3FTckpxNUpYNmIyYjktZ3lWX190MVRpaEdBWmF0dVFsZlh3?oc=5) |
+| Shots fired, driver hurt and held after truck rams into Coast Guard base in San Francisco - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQX3NnV1FwLXkycTdKdUFrQlhzV3pHVWpSVC1sbzdSSHgwSFN4eFZxM20ySzF5RDJqT0I1VXRsNTBpNXNadUozdENtdEk0d0loMFExT24tVkJqNWp2ZzZ5ZVJ6elYtb3kyRVFJejN2ZlBIRC00amFqYU5ncWxaTlBxSmJRTkhYSl92eTQ0aTFlNk9xbUhIZEVpS1Ffb1hVbHQ3anFnb3Q0VlUxTjE5V1BFNzZfWQ?oc=5) |
 | After a lengthy wait, Jeffries to endorse Mamdani - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQaEtUdHVvMWFzeV8zZncwdEdhYWZYZ3RaU2VrZzJybUlmYmxBQ2hPWUFDY0M5dnRLcEhiMjkxY0dFelNDV1RsRFBraVRBa3lXSFBoR0g3WjFfRVdLcTdmZXR1UTMyOEtDd2dUUlNjT3lIRmlUTU5seG43V2l3dlB2ZDU2YUhnbVpNSWM2bnVSZHhkZGlqVWFlaW9HU2pfekE?oc=5) |
 | Trump says federal deployment to San Francisco called off after conversation with Mayor Daniel Lurie - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPRTREcC1OZDdfV1NXaXc3clJ1ZkJTc1R0TmdXcWR1SVJwbFVYZFV5aEk1eklrR2h0N0dSVTFvcFpXcFl0TW1HY3RILVNNN0F5b1FFNW5yUk5jbXNndWlRZWJZcUlXSlBxVlBRY1NlMDZIQWFiSkhJaTF6WG52T05ycExsU2NJcG1fN3V2QWpHT3J4NC1zMXV0VHZ5cFJNMlZXS1B4dDgyMHdWcHl4Ym5YR0xGNXB0UmVjYkx1VU1JeS1lbVVUSkpzZQ?oc=5) |
 | Pentagon to use $130 million donation from anonymous Trump ‘friend’ to pay military members - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPb05xRi05ZEZnSS14MzRiUmlEM3RWX2wxMDRNMEpUYVVFdS1rNFJ3Y25RbG9lZDg1bkN3TlF6LWl5UUxXOTVTYXVVWEJzdXE5THZRa0I1YWxCOE4tcFNwaS1IakRPZEJ2T3pXNTB2RmFDWWdJWGVrbkFTNVQteXoyRVRsTQ?oc=5) |
-| Republicans are barreling toward an Obamacare subsidy cliff — with no unified plan - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOLWJfYXZtVElPdWNyNDdBNDRhaU9MSnNXa1h4bEVjcTFBNUtrZkMxcWdyQzRZNm81RXR5N2VaZVFrZlpwbFBsNEFsNHJNelh5SWVrTGdLdWJxLXNhVV9xRS1GcGVTNzF3ZWVEb2JRV3E2VVl6R21yVG53RExzaUJBZkp0eGxiVDFnZjdWRmZ3UEYzX1B6MGppeXhjUXY?oc=5) |
 | US government workers miss first full paycheques as shutdown drags on - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1XRXd3bjdnc3E3UlMxcFM2YVJKTkVWOHppQ2dqTmNZRnZ1SDduUEQxMDdoU0IxRXE3eUNvVmQ2TFhoSm85TW1jZFZreEw2Rm5SUFdRRQ?oc=5) |
 
 ---
