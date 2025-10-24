@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 10:09:28（北京时间）**
+🕒 更新时间：**2025年10月24日 10:17:56（北京时间）**
 
 ---
 
@@ -29,7 +29,7 @@
 | Senate blocks bills to pay federal workers during shutdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOMXJMRGdrY0tQdERVZDVzdWYzaUF2eG1XelJFcU1Pd1ZsQzR5NV92ak1LcmQtY2xHdW5uZXU0cmNpa1FlOC01cEY4cFBDVi1Qc3Y2Mmk5cjhlUl9ibDA0RjJHT1BWWDFsZkFyV0syNE13aHhhanVpNWxlMlVnZGlRZ2tMem1pNnJqMUNFRmwyQXpWMy1DVjBtUVBEcmhzSTg2Q3ExYzg0MXdJTXc?oc=5) |
 | Drug crackdown or regime change - what is Trump's goal in Venezuela? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5mLWR4ZnpMM3M0TnEzLWc4YThySTZ6ZXRKdEljdmx3ZllObTE2d08tLW9qelB0VlBHZ2xWQUZPVEFBUUhtbFpBSGhiaHdqV3IzS3E0dWN2WlJJQdIBX0FVX3lxTE5IbzRzWk5GLWxabWk2ZUU4RVZ1WC1IbjJ4bmFjU2FfbzhBdkhxLWJYMHlkdF9zd2NXMTQwa1BVQlhRYkI0OG9RUUJwUVkwQ3IyOTRxNWMyV3RoOFNwZThz?oc=5) |
 | Trump to meet with Xi on Oct. 30 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQTEVaRURFN0hISld3a2wzSHpZLXFPZkh5VHFCLVpDR04tVk1XTW9JS2lial84UjFfWHRRMHc2NEpZNnhuZjlSaFBpUjRRVGdCZ2tsVjdjZnBJM1JQNDNfVXUzdC1uOG5kYjJsUkNhcmNTZ253MzVTUFhJMXNrUkFaY2tIeWRralk?oc=5) |
-| Lakers 'unofficial coach' allegedly traded info on LeBron James injury in NBA gambling scandal - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxOdkd0czNsci1YZktQREZVY19fQVpja1c2QUZjbkpjQklONGNRRlVqOFVQQlBvLVVUXzFVaEhzcXhUOHpqNjUtVE5haW5jMW83VDVDTXhwdWM5eU5TNHNQSDRjV1NTTmlwU09Bc2lUQ0JVcDkwMnJZR2ozWko1aE5DMUVKeDcyTnY0aEVOTmZza2x1aXNDYlQ2RzFNeG0wdWowVGszdUF4aDJRemVjaVJhc0ltRExUQWxSYTlxdHgtNlJxLU9LYnhKQWMtZmR1dw?oc=5) |
+| U.S. Charges N.B.A. Coach and Players in Gambling Schemes - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQVlNJY1F2TFN2V0VRVC1MM3JUUk94Yi1kVTFsTXFkS0p2azhDbEJGNU93VEhBNlZUT29yTU84T0RkbkhkS0Fmd1RDZzlMdURsUXk0OWtpdHZtSjIwYWNuZUdYd3dMSmZnTEcxTWgyXzJjVVF4WllqVW9HVFZPcUhlTTFFQQ?oc=5) |
 | Senate candidate Graham Platner reveals new tattoo covering up one that resembled a Nazi symbol - Yahoo | [阅读全文](https://news.google.com/rss/articles/CBMi3gFBVV95cUxOeFktYUtia0N5SWFUNHRVUk5FeHNqNUdBSkVyMFRMRm1kR1V5dnN4UUtRekVvSGFJOEkwdWhOQzVEUV9wazMyeldJdlNRbGZybS0zNm5QSGpBS0Vad3pSSzZ1WXZnaTdERllBTXVnY001WmVfU1NoRjVEY1BFZmxrVjNNRkdRV01LVkUwZy1ldm1HZzNfVHkyMTQzXzlmS3hVYjltc1B6UW9XMzJSX0NUT0IzWnJidU9BUE5LSkxDNkFLeUtxQzlsVWowblRPR1BJWWQ3UTJMSjFPcnhSdFE?oc=5) |
 | Supreme Court liberals decry ‘excruciating suffocation’ in nitrogen hypoxia executions - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQWWtBeU9FOUs4OHFCZkJJS1B5d1JZV2UyZmcwX0F1M2VMQmlldlAwYy1GWHNuY2RFTlhxdmwyNVRBVTJXWjRxV3RscXlyVVV2Y1lzWUUwVVFWeXRZNXpjbTk3NVFWclRFR3gwSXBTMDNhUWZBSmdDMjVaWnBXTVI5bjdWV29xWGU3ZnBqUlVfdEhoTDZo?oc=5) |
 | 4 family members of Illinois governor candidate killed in Montana helicopter crash, campaign says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNT1ZrR01BNy11Tkp0bmprUGlNUkhRNVA5Z1h4R1NMSlFHNWstZDJmazJvUURJQ3VvQ2dxUG40TUhubHVKS19PWmQ2SHdMSGNkZzZhUlQyNEo4dnpsdVFSNjl6TWdKMVE5dFB6N05WS2lHVzBEV0ppZmlXNk0tc2hBb2NiaHZJam5laHdMTndkMWNJWG5UTFc4aGw3bUFGdw?oc=5) |
