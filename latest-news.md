@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 20:01:03（北京时间）**
+🕒 更新时间：**2025年10月24日 20:08:20（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump Says He’s Cutting Off Trade Negotiations With Canada - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPWHVuYm5VTFhlUGd6cXpBR1JXdk9CMEd3U3lFUnZCdVNfbk92MWN2MEwxb1R6OEFrTjVSbVBZS2VncWlkRlJzUDdvNWZod2g4R3hrTU5mVnFrTllSUEMzZkE3cFRraWRpbEEtbUt0eHJjVUNzQWtzd0VxMFQ3WHJTa1N6UF83V3lNcWc?oc=5) |
-| New satellite image shows White House wing demolished as part of Trump ballroom plan - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1lVnlsTS1nZ2dCaUlWU0tKVXJrM19SZl80ZXFrYkRXckRoUVR3TTRZdVJDT3hZVnRRekoySzNsbUMxTENpZ1RyZ3ByeHJVM2tRVnRvcA?oc=5) |
+| Entire White House East Wing demolished as Trump moves forward with ballroom construction - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOQTlkQkxGVjE5TWxSUUgzQkRoQXZrc0o2bXVteWctY2dlZHVoQm50M1BJSm5jX0h0QlNTOWhLSzI3WlcxX3M4SlFSQ0hIcklJRTFLNUxDMnpGbVBpV0ZvMXI1SjlGeXVLZGlCcjNFV2JXempJUnhRX21yVnFtYmEwaUwyeFUydkQyRHEydkJEbTdjNDJFWUZnR1NSR1dKV2JIdjEtaXBVd0lKTmNMM2FDeGNEdEduUTJSc195VDF6Q3BHSm8?oc=5) |
 | It's supposed to be payday for many federal workers. Instead, they're getting nothing - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOcVJlWkFoRldEQnQ5WHdoZWg3bXdOU3lmWExQZDl4RDAzQkZhcm9hTG94Zy1nT1RyZS13R1gwNEN0WTZsR2Z5ZTV5TGczbDU1NklDS3NNcFA0TnMwTTQ0N19yZGxsX1VvZ2hGV2VVYi1KM1FRd0Q1RWRqa0hrbmFkMUlOajFiel9ra3pZYnpReDdYNmFFalE?oc=5) |
 | Duffy warns of travel disruptions as air traffic controllers face missed paychecks - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPRktvMHhTNkZxWjBtbWxqTnpmVEJrQi1ZVVFVYVRvYmhfaEc0NENnN2gzZlBJMUJ1Y0FRdkZmdEIzNll0eFYxQm5FMkUyaVF4el8zR2JrVkFnRkViQklvd21EUGF2eE5zRzh2UXgtSlBiVEI4ck1UVEpoazdLcGU1TnlTOWE3cGVPSWpvNjJBMA?oc=5) |
 | Trump to quadruple Argentine beef imports while US ranchers fume - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNVGg4d2h0OEZlU3ZkZ3NFTmFMbFFqeXVmb3pkNjhfckoxTmpsSEJNaHdScC0yLXBaTGRXRDgwZjJPOXRiYzE4Rjhwbks0dnF4OHYxY1E3MjdDOEhfX05EaHdpWm1fUU8tQVF5TkdIUXBJQjVrYmM0aU9SWEFyRExYV3MydWZBc0pKY2tQVmlSVFhTQTc2UUhwWHIwR0dpT3BlanpBZzN1eUxsSnNhVTJMLWtVVlVaTjNyVzhv?oc=5) |
 | Republicans are barreling toward an Obamacare subsidy cliff — with no unified plan - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOLWJfYXZtVElPdWNyNDdBNDRhaU9MSnNXa1h4bEVjcTFBNUtrZkMxcWdyQzRZNm81RXR5N2VaZVFrZlpwbFBsNEFsNHJNelh5SWVrTGdLdWJxLXNhVV9xRS1GcGVTNzF3ZWVEb2JRV3E2VVl6R21yVG53RExzaUJBZkp0eGxiVDFnZjdWRmZ3UEYzX1B6MGppeXhjUXY?oc=5) |
-| Letitia James expected to plead not guilty in mortgage fraud case - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOQUtOaW5COF9adHJjRExLYnFMYndPeHc5ZEhUWFdvSjNtSWt5RF9RbElDTElReVhnemxyQkNzalBKQURtYVhVY3lYMXdUNksxbE9BTHVLRGVqQnBvckRfemxQTjB6WjVoWU12bHJQU05zb0Z0dG5uM2tqX3ZsZ3lUUTB1T3NoOGxzcHN3?oc=5) |
+| Letitia James Case Shows Ruthlessness of Justice Dept. in Trump’s Grip - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQcUlsaVBhMUdXS2NFZUZmUUVHdC1Eb2pKTWsxZVM5WTNoSjZhWmZPSFJ4MWM4RTJyaHA4di1vVHVlcHF3ZlItS1JqTTRuSDVsVXp2M0NSX3pfeTFzZW04MmpQaVFOdTNNT2hLdFEwVmtJQVB0U2dQeDhnWFNnYnpaNA?oc=5) |
+| Bernie Sanders ‘absolutely’ sticking by US Senate candidate after Nazi tattoo revelation - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOZExrNTVOdW4yZW01YTJxeGFMLWlZNVBMcllzNGhrd0FYbEJYTEhWZTJSQUxCWmtLYk5mLWhtWUk4dnZyRklWM0NuTS1iQm1lUFF4Ym1GVEJrNWlCZExMY2V2RVYwcEdRdjViSVB5Y3FjZFdOa3d2d0ppemZybndaam85YXZlZEtrLUUtbGctYkpDY3ZyMU4xMGV4eTdEX3k4Ri1JYmhRcnJ2dHRLLVRDcWluU0c1cHB40gG-AUFVX3lxTE1VSDctNjc5VWlYdk85OEctYlFxcEhUSlRtOHZDbC12Y2VpYTM4SjdNUEg0dTFMVVVnbmIwNjRDOWxwbjZ3b0hMeXRFV0ozQ3o1bnNjM3g2TEIyVFVtMzRXU3V0QzJTU19zMVlFREZ0eDcwMDBPX1JVaWlEMjJfRTJPYzhGaVJkaFhyM3JPSlh3NEVoVDBOVmRmcmVFN09DblE1eG8wSWFsUFlJQ2J6ZmNTRTF1ZmhYeHNOVG5OZFE?oc=5) |
 | ‘He didn’t deserve that’: widow speaks out after husband’s violent death at Ice facility - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNYVl0UEszYzE2SXNGd0stcXIzZ212SGJodENCUGVhTWNia1JsVDM0aVZHdlBJWnZ5MGZjRlZEaldyZW9NV2JKT0otSm5FX1A0aTNZeDBIQUY5M3RaVkpZVXUzZllEMkpwVkIxVkRtVEM4cnAwZWR3T1huNnY4UkxfMEpiSmp3NVBwbDFyeFEtMlY1X1E?oc=5) |
 | Trump says federal deployment to San Francisco called off after conversation with Mayor Daniel Lurie - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPRTREcC1OZDdfV1NXaXc3clJ1ZkJTc1R0TmdXcWR1SVJwbFVYZFV5aEk1eklrR2h0N0dSVTFvcFpXcFl0TW1HY3RILVNNN0F5b1FFNW5yUk5jbXNndWlRZWJZcUlXSlBxVlBRY1NlMDZIQWFiSkhJaTF6WG52T05ycExsU2NJcG1fN3V2QWpHT3J4NC1zMXV0VHZ5cFJNMlZXS1B4dDgyMHdWcHl4Ym5YR0xGNXB0UmVjYkx1VU1JeS1lbVVUSkpzZQ?oc=5) |
-| 'Uncharted territory': Ongoing shutdown threatens food aid for 42 million people - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPaDdSeHVVWWhpV0FSZmN4NTJUeU82OTFxaTR6ZHNXRHhtVk4teVFCSFlyRFZtQ2FkbXc5dVZBY3Z5aEh1eHpOb1Y1bkFIeG1nYndMVzZnSXpKdGZON0hWWWdTYk5TUE1oUzF1Njd3Snh4Vkx1alRjcUlnSXhQTFJHMm1GSVRSODN4bFdoZV9CaUdTNnZG?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
