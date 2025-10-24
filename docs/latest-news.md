@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 19:41:48（北京时间）**
+🕒 更新时间：**2025年10月24日 19:48:25（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump Says He’s Cutting Off Trade Negotiations With Canada - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPWHVuYm5VTFhlUGd6cXpBR1JXdk9CMEd3U3lFUnZCdVNfbk92MWN2MEwxb1R6OEFrTjVSbVBZS2VncWlkRlJzUDdvNWZod2g4R3hrTU5mVnFrTllSUEMzZkE3cFRraWRpbEEtbUt0eHJjVUNzQWtzd0VxMFQ3WHJTa1N6UF83V3lNcWc?oc=5) |
-| New satellite image shows White House wing demolished as part of Trump ballroom plan - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1lVnlsTS1nZ2dCaUlWU0tKVXJrM19SZl80ZXFrYkRXckRoUVR3TTRZdVJDT3hZVnRRekoySzNsbUMxTENpZ1RyZ3ByeHJVM2tRVnRvcA?oc=5) |
+| Entire White House East Wing demolished as Trump moves forward with ballroom construction - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOQTlkQkxGVjE5TWxSUUgzQkRoQXZrc0o2bXVteWctY2dlZHVoQm50M1BJSm5jX0h0QlNTOWhLSzI3WlcxX3M4SlFSQ0hIcklJRTFLNUxDMnpGbVBpV0ZvMXI1SjlGeXVLZGlCcjNFV2JXempJUnhRX21yVnFtYmEwaUwyeFUydkQyRHEydkJEbTdjNDJFWUZnR1NSR1dKV2JIdjEtaXBVd0lKTmNMM2FDeGNEdEduUTJSc195VDF6Q3BHSm8?oc=5) |
 | It's supposed to be payday for many federal workers. Instead, they're getting nothing - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOcVJlWkFoRldEQnQ5WHdoZWg3bXdOU3lmWExQZDl4RDAzQkZhcm9hTG94Zy1nT1RyZS13R1gwNEN0WTZsR2Z5ZTV5TGczbDU1NklDS3NNcFA0TnMwTTQ0N19yZGxsX1VvZ2hGV2VVYi1KM1FRd0Q1RWRqa0hrbmFkMUlOajFiel9ra3pZYnpReDdYNmFFalE?oc=5) |
 | Duffy warns of travel disruptions as air traffic controllers face missed paychecks - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPRktvMHhTNkZxWjBtbWxqTnpmVEJrQi1ZVVFVYVRvYmhfaEc0NENnN2gzZlBJMUJ1Y0FRdkZmdEIzNll0eFYxQm5FMkUyaVF4el8zR2JrVkFnRkViQklvd21EUGF2eE5zRzh2UXgtSlBiVEI4ck1UVEpoazdLcGU1TnlTOWE3cGVPSWpvNjJBMA?oc=5) |
 | Louvre thieves’ slow-motion getaway using furniture lift was caught on video - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxORVh2ekk3NHhJZ1hmT2M4VHFFeGQyWENpQ2EyV19fYUNCaUgwY3h3MHJuTjdqUEN6TnUyVENQaFhESDFLUVd6UHFGbGJiMGdwTGdubjRybl9KdGhybUtlTk16TUZuMHFuaVlFLWFPdGRXRG9hM3czVzM2X2NyRHZvcFkySDN0R1R5SGhBcjFsR2RCOEx0VjdKdG92aTU?oc=5) |
