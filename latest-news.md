@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 13:57:34（北京时间）**
+🕒 更新时间：**2025年10月24日 14:01:32（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump says federal deployment to San Francisco called off after conversation with Mayor Daniel Lurie - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPRTREcC1OZDdfV1NXaXc3clJ1ZkJTc1R0TmdXcWR1SVJwbFVYZFV5aEk1eklrR2h0N0dSVTFvcFpXcFl0TW1HY3RILVNNN0F5b1FFNW5yUk5jbXNndWlRZWJZcUlXSlBxVlBRY1NlMDZIQWFiSkhJaTF6WG52T05ycExsU2NJcG1fN3V2QWpHT3J4NC1zMXV0VHZ5cFJNMlZXS1B4dDgyMHdWcHl4Ym5YR0xGNXB0UmVjYkx1VU1JeS1lbVVUSkpzZQ?oc=5) |
 | Man charged over deadly Palisades fire pleads not guilty in Los Angeles court - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQTnFMSk5JS2hoWDF0VFR2cHpLdlVEODJmbUJ4a0VpdTkycHlmUFpsRkdtbWE1R2dtWnZONFBHbjZWMktmMnFnWEhSTVJGU0VWYWZJTm56NzQ3YXVzR3NKM19Wc0xURl9ramtRM3ZXVmFyUFZNam5Mb3FUaUhic0ZVTXl6cG9vTmcz?oc=5) |
 | Supreme Court liberals decry ‘excruciating suffocation’ in nitrogen hypoxia executions - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQWWtBeU9FOUs4OHFCZkJJS1B5d1JZV2UyZmcwX0F1M2VMQmlldlAwYy1GWHNuY2RFTlhxdmwyNVRBVTJXWjRxV3RscXlyVVV2Y1lzWUUwVVFWeXRZNXpjbTk3NVFWclRFR3gwSXBTMDNhUWZBSmdDMjVaWnBXTVI5bjdWV29xWGU3ZnBqUlVfdEhoTDZo?oc=5) |
+| Bernie Sanders ‘absolutely’ sticking by US Senate candidate after Nazi tattoo revelation - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOZExrNTVOdW4yZW01YTJxeGFMLWlZNVBMcllzNGhrd0FYbEJYTEhWZTJSQUxCWmtLYk5mLWhtWUk4dnZyRklWM0NuTS1iQm1lUFF4Ym1GVEJrNWlCZExMY2V2RVYwcEdRdjViSVB5Y3FjZFdOa3d2d0ppemZybndaam85YXZlZEtrLUUtbGctYkpDY3ZyMU4xMGV4eTdEX3k4Ri1JYmhRcnJ2dHRLLVRDcWluU0c1cHB40gG-AUFVX3lxTE1VSDctNjc5VWlYdk85OEctYlFxcEhUSlRtOHZDbC12Y2VpYTM4SjdNUEg0dTFMVVVnbmIwNjRDOWxwbjZ3b0hMeXRFV0ozQ3o1bnNjM3g2TEIyVFVtMzRXU3V0QzJTU19zMVlFREZ0eDcwMDBPX1JVaWlEMjJfRTJPYzhGaVJkaFhyM3JPSlh3NEVoVDBOVmRmcmVFN09DblE1eG8wSWFsUFlJQ2J6ZmNTRTF1ZmhYeHNOVG5OZFE?oc=5) |
 | 4 family members of Illinois governor candidate killed in Montana helicopter crash, campaign says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNT1ZrR01BNy11Tkp0bmprUGlNUkhRNVA5Z1h4R1NMSlFHNWstZDJmazJvUURJQ3VvQ2dxUG40TUhubHVKS19PWmQ2SHdMSGNkZzZhUlQyNEo4dnpsdVFSNjl6TWdKMVE5dFB6N05WS2lHVzBEV0ppZmlXNk0tc2hBb2NiaHZJam5laHdMTndkMWNJWG5UTFc4aGw3bUFGdw?oc=5) |
-| Black and Hispanic Enrollment Drops, Asian Enrollment Rises for Harvard’s Class of 2029 - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE4tU01yWHJxemhIUndLX1NrUjVxVXpnZDRfaUxQSHc1Sk5FZkRMLVVBcG5KTllaaTZWeV9pNEQ3cjV5c3BvcDVSX0R3enpxVm8tOEdNZ3p3MU1Ob1QydlQ0dXlsblYyd2tuWXNSeGE5bUFaSGNXM1MzVHN6SmdCQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
