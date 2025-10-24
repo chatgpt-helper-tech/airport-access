@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 07:57:39（北京时间）**
+🕒 更新时间：**2025年10月24日 08:00:37（北京时间）**
 
 ---
 
@@ -28,10 +28,10 @@
 | Trump calls off planned federal ‘surge’ in S.F., but plans for Bay Area immigration crackdown unclear - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPT0U4S3dzTnRvV0QtbnJkSEdJLVhaYWEzV0hMb08wUTZZdldLc0g4ZnI0U1hOTjVNMHNLSlV3WmxSZnhjS2EzeGduZk5WRWZjYmhTYzNxOTMtcWVlOC04d1JGQkVCc1lDcUNhN2QxZ3drNjc1UnRZZXVlS1pJei10QktRY05HUldhWGxWakdseFNMMXctSFhqdHd1UQ?oc=5) |
 | Governor Glenn Youngkin Declares State of Emergency to Protect Hungry Virginians from Democrats Blocking Federal Funding for the Most Needy - Governor of Virginia (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOMTN4eElkS19YVngwdkNiazFxX3FWMC1kQndGNXY2cXFiRGw0eWw3bksxXzIyU3RpTl9jZXJKb1B4UkpCQjdjQURDQmJaMXdhbjJJeHdSVXBZY2t3RzdPNzBxX3didmZDOE5qNjQtX2NLQmh0LWhPTHdxRkJwMzZkUE9YWGo2WU94eEpVcWdsZm9OTjdM?oc=5) |
 | Vance says he was insulted by Israeli lawmakers' "very stupid political stunt" on West Bank annexation - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOeXhmY3RUSVhFaWdhNWdZUmdibE03OGE0eXVyNEVlMzh4dHgzcmExMjE0OVlDUlJsLTk1dERDcVM2VUFXNkMzZW05aVBtUlhpUnlLRnc1aEhZY0ZnVlp3WjBVRUhXaWFVMkltTEZFeTFTTDhHNVpldEQ0RTFfUTdseHZQWWFHQ2FLN1IxWnB30gGTAUFVX3lxTFBGOUZPRUQ1TFU5cnI5V2Z5d3hpdjBKWFhma3lNSkFMdWctSzZHU1lIZXdUaXZxTnNNQktZUWJ0Y2RUVnZTZko5WlhWb1kxaEM5UlgtSllRWlZMV1VSeEZIOXJmY3ZQYmR1SnZQY2JTakJkTE5JazZiUElvY0gzWHJDUWdJMWVYNUExOEpmR1RuY0dLQQ?oc=5) |
-| Senate blocks bills to pay federal workers during shutdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOMXJMRGdrY0tQdERVZDVzdWYzaUF2eG1XelJFcU1Pd1ZsQzR5NV92ak1LcmQtY2xHdW5uZXU0cmNpa1FlOC01cEY4cFBDVi1Qc3Y2Mmk5cjhlUl9ibDA0RjJHT1BWWDFsZkFyV0syNE13aHhhanVpNWxlMlVnZGlRZ2tMem1pNnJqMUNFRmwyQXpWMy1DVjBtUVBEcmhzSTg2Q3ExYzg0MXdJTXc?oc=5) |
+| Effort to pay at least some federal workers fails in Senate - NPR | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBOOHhJZkFSZGRyTklQMnl4d0k4MVkzc1JQdThuTTZBeTZ6U3BLMGhlZHZtekFzUzFZVU1NNGtySVBmQ3dNNXRsVERfVUNBdk03blNZY215aEFWb2RQWXpfOXo2SnZrVF9qaUkxY0hydjZRbG03S3c?oc=5) |
+| U.S. Charges N.B.A. Coach and Players in Gambling Schemes - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQVlNJY1F2TFN2V0VRVC1MM3JUUk94Yi1kVTFsTXFkS0p2azhDbEJGNU93VEhBNlZUT29yTU84T0RkbkhkS0Fmd1RDZzlMdURsUXk0OWtpdHZtSjIwYWNuZUdYd3dMSmZnTEcxTWgyXzJjVVF4WllqVW9HVFZPcUhlTTFFQQ?oc=5) |
 | Platner has support of more than twice as many Democratic primary voters as Mills, UNH poll says - The Portland Press Herald | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxNR1pDbGtxRjN5MVFNNm1xblozR2ZXYVgzVW5wR1pTUDQtSXJRaFNibDJxRk5FcmN3ZlJXeTFWc1RTSzJVTXUxOVRDV1N2UnZaaXpPaFdra0JqZlUyTzBlVmRJZ2JWb2VKRXlvc1R1dlJYT1Ntak9qN0xnMnJrV2JOM25iVXg1SVgyMmV0ZEV3ck1JMHEyUl8yT0I5WmFFOEhXVnFlc0loZFVuQl9LR0luMmh3b05zOHR4Z1ZKOHVHSmo?oc=5) |
 | 4 family members of Illinois governor candidate killed in Montana helicopter crash, campaign says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNT1ZrR01BNy11Tkp0bmprUGlNUkhRNVA5Z1h4R1NMSlFHNWstZDJmazJvUURJQ3VvQ2dxUG40TUhubHVKS19PWmQ2SHdMSGNkZzZhUlQyNEo4dnpsdVFSNjl6TWdKMVE5dFB6N05WS2lHVzBEV0ppZmlXNk0tc2hBb2NiaHZJam5laHdMTndkMWNJWG5UTFc4aGw3bUFGdw?oc=5) |
-| U.S. Anglican Church archbishop accused of sexual misconduct, abuse of power - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNRFNMMHVfZmktWHVlZVJoN1BkZThWNFlzaklEUTdFRk56NmhmSlQ4Y2xHWWlwTFpsRTFBTXdUNWlkWS1qLU9BcC1UbVJTRVZRN2NRWjN5QWRpWk9jeE5xZnBzaE9fNzB0OGZrOXhEX095N2ZRZVdHc29jdVk5alpsVkw1Zi1RdFJuQ1NUUkFITjQ0S1haN1YzcWU2aw?oc=5) |
 | Frustrations boil over as Vance delivers ‘firm’ message to Netanyahu - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOX1hYOEU5WHBZMHd6VzJJdDl0SzlrWDdEZGxpUmdZRzhBRGdRS3pjWU0zOUt6N1Rmbm1acWM0RWxnLWd1ZW1vQjcyb2xiLWh1X3V2U09ZOEY0VVV1Ylc3OUFCR21qelJCdGtEOHFRcnV0bWVLRlQ5QjdpQkFqbWRZUkp5N1VILXgxQ1FheW1FdGdBTzMwaFZyODVtYnhELXEyeVdERnQ4TmZCRTNJTll6bnlLU0RHbDQ?oc=5) |
 
 ---
