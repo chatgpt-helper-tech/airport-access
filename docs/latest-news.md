@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 06:57:31（北京时间）**
+🕒 更新时间：**2025年10月25日 07:01:24（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Pentagon deploys top aircraft carrier as Trump militarisation of Caribbean ratchets up - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNeDVYaFRlcGoxVHRkbEd3bmd4eUxmcHRyS1pKX1Z5eTFZSm4zOXBSWkZCWjVyQjJ3dTBod1BTaXNaUm5aM19kRTBfTXVScjZ5aWFDS0M0blpaWWhtcGdIOEZDNEhnaUtfbUR2MWJCVUNJdUlLZW9zRkJZOGFwOE9zelprQjlYU1hBUURrczlRaWo?oc=5) |
 | Government shutdown live updates as impasse hits Day 24 with no deal in sight - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNbnJOUFBPWkRiTHRfU0VVZnZ1Z0hrVHM5bmN0S2ZWc3JhRDE1Zm1jSWt1cFZGS1Y4ZFNtRVRFcFdJYjZqVEZvRkxvY01UVEpVMVN1UnBHaElpNG1vT1E2Tm9IR2tUOHJiMTEzd09WTXV2UXk4Y2U1c0cwLUgxQjh4RDg1TG7SAYoBQVVfeXFMUGFyWF9RbXlTbkE4cmZ5UDZhUXVXNUVlbFNVajdteUFTbGtxcFNCdExyeVJlcXFENDBhaVB0MXItTG9pWFhtTGRYdUxqMUplekNPOS1mN3RmOFAwQkM2NTJzWkVQSGZTb2hXa2Q0Y0ttUVBtY2Z6RmtHdTlfcWxIdzJwUE54MFMxMkV3?oc=5) |
 | As strikes on alleged drug boats grow, so do questions about their legality and goal - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOM0pGaHZaWm9wYTNlQUpCUW5wNkJFWUExZVhsemtMSmRleGNNcm85eGVWckMtNnNjZkZ2VDk3d3lqZUZrLXdHT3kxcmhkUzNIMzVoYkxfdi1WRkZ1WmRWUU1abVN2WHdVWTZLN1Awek5Tb0pRMnFQTS1TY0k2UTRBRjA0OFg?oc=5) |
-| Trump says tech leaders and mayor changed his mind about using federal force in San Francisco - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQUnJwajNQR3pQNVItYy1YZ29uU2IwSEI4bUFOWEN3T3NrYWxhckxpaXlrczlsT0cxaFhtQVFyeWtJMEZOTFA0akI3U3RZOXg1aTlLNTlWWUNIQmg5Mk9yZElpcjdPbkJZbEdFcldfU2dfbTE1NmZTSzZMRXNpeFRiVjBfVkUtYkVjTi1KZTlEZG80Um42YVE?oc=5) |
+| Shots fired, driver hurt and held after truck rams into Coast Guard base in San Francisco - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQX3NnV1FwLXkycTdKdUFrQlhzV3pHVWpSVC1sbzdSSHgwSFN4eFZxM20ySzF5RDJqT0I1VXRsNTBpNXNadUozdENtdEk0d0loMFExT24tVkJqNWp2ZzZ5ZVJ6elYtb3kyRVFJejN2ZlBIRC00amFqYU5ncWxaTlBxSmJRTkhYSl92eTQ0aTFlNk9xbUhIZEVpS1Ffb1hVbHQ3anFnb3Q0VlUxTjE5V1BFNzZfWQ?oc=5) |
+| Federal Immigration Enforcement Surge Called Off Across the Bay Area, Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOTVhZTWk5SEdMTzF1T2NzRVBraEhSUjEyU2htdk1Ta1BWZXJGN3FnZVFSYWlsQjJQdEZnQlZmUGZJd29mcXUyaTBialdaUVRSZDFlVmVHc3VpS2NSYURsNGkzbExCUUlvN1ZpVXQ0QjhaWm51UU1nd1FaaDQzY3Fyb3ZTOGZKVGM2dy1F?oc=5) |
 | US imposes sanctions on Colombia's president in row over illegal drugs - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOM0hSRWdhcTZXY3ZSb0dsQ2dIQjQwVjNuVTVZZFJwRV94aXEwNUxBWk40aWJ2eHBLdmhnS2Z3YzhiR1JRNEVBNlE2Mi1McFJ4N3JTUWNaQmJxZ1RIZE9vakVTMS1nSUwwSDNOSnlGQUJqVEozRldJR3Q2cHVacG1vbzdWNHBCaHFZTVM2SFZxd3pORTBQd083TVRjLWNsbUlhZURNemZBU0huRUFxTUs0?oc=5) |
 | Border Patrol Chief Gregory Bovino says agents' use of force in Chicago "has been exemplary" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQRk5PZVRFQ203RTAteUc1R0J4LXd4MDJtNG5UWlVyaW5KazBNRWZXejhPSkRHRDVBTHk1d2hCSktNUE1TVk1XeHI5Q0VFV0FmelZ1YmFGX2dUbmFjaGJ2dV85RTJ6YUhRTjB5MWZMWUlPSGEwMWJMaFNhdUlCaHQ0djduaXhIbzZMTDV1SFltamoxeHpNZUFab1B2VdIBoAFBVV95cUxNQXhNcVR0b3M3aU9WN2JYMG9lRFBTc0oxM3plT3Yzd1ktUTM5YkZqSVlia3RrbURMSkt0LUdDMzB1VVgzS1M3eXFRQmozWHlTT0FmUWl1T2FPbkRpNTNXby1zTEhOZjgydmRqME5zcVZjeVpPZHRUUzJxcXNEUHpEaE5YVDdrc0F6b2VCN1ZQLUhvaG5UTG4tRGFCNFNYVHZj?oc=5) |
-| Letitia James Pleads Not Guilty as Battle Over Trump-Urged Prosecution Begins - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9pM3FCUHp1SEpiU1pTVEptX0ZuQnVjTFA1WDcyVHpXdXdNTTFzV1ZSZE4zTlhyZjVDbjZ6aW1TNzJlb1Jubm96Q0NaZE1XZFFndTBWaVpLeFdPMXcxLWpCVXBMTnlLM2FBUWxhREx5ejRRMmtORUZMLUxzdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
