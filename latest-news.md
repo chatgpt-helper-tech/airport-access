@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 00:18:01（北京时间）**
+🕒 更新时间：**2025年10月25日 00:24:25（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump says he’s canceling trade negotiations with Canada over anti-tariff ad - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQUzhMaDFPcWVPUFFPZUxLblpNWDZyeHhkbV9HTDJadUxaUi0zQl9jY2x3dmxLVG9ueU45WDd1bkUycG5NVE1jY0t2U3lUeVRLSXdQYTY4ZzA3dG5IX1ZkQ0szUko0WVhVUzRaelB4SmVocGNWaHBhdUNJU05qdkRUTnh4blF6YjBRbVZmbGNOQm9LaTZoN2JHSS1B?oc=5) |
+| Letitia James Pleads Not Guilty as Battle Over Trump-Urged Prosecution Begins - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9pM3FCUHp1SEpiU1pTVEptX0ZuQnVjTFA1WDcyVHpXdXdNTTFzV1ZSZE4zTlhyZjVDbjZ6aW1TNzJlb1Jubm96Q0NaZE1XZFFndTBWaVpLeFdPMXcxLWpCVXBMTnlLM2FBUWxhREx5ejRRMmtORUZMLUxzdw?oc=5) |
 | U.S. carried out a strike on another alleged drug-carrying boat in the Caribbean Sea, Pete Hegseth says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQTVFQMThvemJYMWgtUF9NSHFwdlBmVzlnZUJ5NHc4WVQtRzRYaTBiN1RqYmNtUGV4Mk4yaXh6SFhwdmR1eTBSaWdVNkZFQTNjeW5FdXQtYWxIS1hSRnlwNXUwdV9QQ1ByQVFISmF4VlZ1dVNmcmZtM01TUzI2em10cXoxWdIBVkFVX3lxTFAwWFRjVDVOekxnZUt1OUUyTjUwYVZKR0dfeXFXZXBaektvODJOZ0J0MnE2Q3FTckpxNUpYNmIyYjktZ3lWX190MVRpaEdBWmF0dVFsZlh3?oc=5) |
-| Letitia James Case Shows Ruthlessness of Justice Dept. in Trump’s Grip - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQcUlsaVBhMUdXS2NFZUZmUUVHdC1Eb2pKTWsxZVM5WTNoSjZhWmZPSFJ4MWM4RTJyaHA4di1vVHVlcHF3ZlItS1JqTTRuSDVsVXp2M0NSX3pfeTFzZW04MmpQaVFOdTNNT2hLdFEwVmtJQVB0U2dQeDhnWFNnYnpaNA?oc=5) |
 | Photos show the White House East Wing before and after demolition began to make way for Trump's ballroom - businessinsider.com | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPN0hNUndnT29fZHNiaDBwOENHSDQ1eDN2ZDd3N1JzZ0JoZGFaSVFjY21vT3cwZVRaYzdiVDJNRk13Z1I0Q3kwVXN2UWgtTnoteVBjd1pYeGVVbjllNTA3bTNQek44Wk5SQUU4WDlER3VxcV9wOHQtVXdsdEw0UUV0Vi0yTHpaWTB6bGtadmVYYlpFUQ?oc=5) |
 | Shots fired at vehicle after it backs into US Coast Guard base in the San Francisco Bay Area - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQX3NnV1FwLXkycTdKdUFrQlhzV3pHVWpSVC1sbzdSSHgwSFN4eFZxM20ySzF5RDJqT0I1VXRsNTBpNXNadUozdENtdEk0d0loMFExT24tVkJqNWp2ZzZ5ZVJ6elYtb3kyRVFJejN2ZlBIRC00amFqYU5ncWxaTlBxSmJRTkhYSl92eTQ0aTFlNk9xbUhIZEVpS1Ffb1hVbHQ3anFnb3Q0VlUxTjE5V1BFNzZfWQ?oc=5) |
 | 'A slap in the face': Ranchers feel betrayed by Trump's plan to buy Argentine beef - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOWmUxOURfUDlqZjRiQVg1R21aeWhlQ0gydzdyNFIzY2RxcGVVb3BXMThFSzlVRkNuLTd4WmVtNEI3LXJJVHJnYWQyN1F1a0hENmdZMExxRFN3OS16V1BtTU0yOWZ6YklZb3VJZjRPOEh0WEVWUXdhcF8zNjVqUkNYQWRJNGpwdw?oc=5) |
