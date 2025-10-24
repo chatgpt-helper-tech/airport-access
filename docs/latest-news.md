@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 18:56:48（北京时间）**
+🕒 更新时间：**2025年10月24日 19:01:11（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | Chris Mason: Extraordinary by-election humbles Westminster's big beasts | [阅读全文](https://www.bbc.com/news/articles/c4gj48q4x39o?at_medium=RSS&at_campaign=rss) |
 | ‘OCD is a bully’: Why more under-25s are reporting symptoms | [阅读全文](https://www.bbc.com/news/articles/cdr612zrl0no?at_medium=RSS&at_campaign=rss) |
 | Prince Andrew paid by businessman tied to pension rip-off company | [阅读全文](https://www.bbc.com/news/articles/cy5qrp2wne4o?at_medium=RSS&at_campaign=rss) |
-| Sheffield Wednesday file for administration | [阅读全文](https://www.bbc.com/sport/football/articles/c1lqmmml533o?at_medium=RSS&at_campaign=rss) |
+| Sheffield Wednesday, one of England's oldest football clubs, file for administration | [阅读全文](https://www.bbc.com/sport/football/articles/c1lqmmml533o?at_medium=RSS&at_campaign=rss) |
 | Gaza doctors struggle to investigate 'signs of torture' on unnamed dead returned by Israel | [阅读全文](https://www.bbc.com/news/articles/c4gz3r46e37o?at_medium=RSS&at_campaign=rss) |
 | Trump says trade talks with Canada 'terminated' over anti-tariffs advert | [阅读全文](https://www.bbc.com/news/articles/cdjrlmd4pmeo?at_medium=RSS&at_campaign=rss) |
 | Bank of England chief tops 2026 Powerlist as UK's most influential black person | [阅读全文](https://www.bbc.com/news/articles/cwy7gn1979go?at_medium=RSS&at_campaign=rss) |
