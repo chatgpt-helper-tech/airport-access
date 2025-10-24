@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 09:09:45（北京时间）**
+🕒 更新时间：**2025年10月24日 09:16:22（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Effort to pay at least some federal workers fails in Senate - NPR | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFBOOHhJZkFSZGRyTklQMnl4d0k4MVkzc1JQdThuTTZBeTZ6U3BLMGhlZHZtekFzUzFZVU1NNGtySVBmQ3dNNXRsVERfVUNBdk03blNZY215aEFWb2RQWXpfOXo2SnZrVF9qaUkxY0hydjZRbG03S3c?oc=5) |
 | Governor Glenn Youngkin Declares State of Emergency to Protect Hungry Virginians from Democrats Blocking Federal Funding for the Most Needy - Governor of Virginia (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOMTN4eElkS19YVngwdkNiazFxX3FWMC1kQndGNXY2cXFiRGw0eWw3bksxXzIyU3RpTl9jZXJKb1B4UkpCQjdjQURDQmJaMXdhbjJJeHdSVXBZY2t3RzdPNzBxX3didmZDOE5qNjQtX2NLQmh0LWhPTHdxRkJwMzZkUE9YWGo2WU94eEpVcWdsZm9OTjdM?oc=5) |
 | Trump to meet with Xi on Oct. 30 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQTEVaRURFN0hISld3a2wzSHpZLXFPZkh5VHFCLVpDR04tVk1XTW9JS2lial84UjFfWHRRMHc2NEpZNnhuZjlSaFBpUjRRVGdCZ2tsVjdjZnBJM1JQNDNfVXUzdC1uOG5kYjJsUkNhcmNTZ253MzVTUFhJMXNrUkFaY2tIeWRralk?oc=5) |
-| Portland Trail Blazers' coach Billups arrested in gambling operation scandal, put on leave - KATU | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxOc2dhejhyMzBaUmlMdTJ1MTV0bHZoWFRaTUJldUQ2NTBycm8tRERvSzNSdGwtcjVtY2dvYWhCOTh6TEJ6SG9HRTRWMW1UdkRBQVJzdjIwQUlkQkozV3YyQjQzOTlaZW5wM3dGdU1WbW9fOGxOa1BZWDRGTlhJRnUtSDlUSGJ6OEZqLWEtaGJ6V3N3RS1tY2NVLW9CMXFoSFZBWTJnYWZkLVVLUG9jZWlwSGd6Y0QzZ2JEbWhQdVBicXZLRFlScU1hLWZMTkZDM0V0cVE?oc=5) |
+| Miami Heat's Terry Rozier charged in illegal sports betting case, FBI and prosecutors say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQWHRKaHFrWTZYYTE2ZVZKRWYyMlkwSGdtLWtJUlBYSVBGektVbm82MkIxWl9XVVpZRzJfMGMtZlZ4WVBTS0RwUEJKZThyZ2xBYWctaGxqNUd6ckdHLXZ0d0hZdlRFVGRYcjNKeVJMMVpFRVRjOFNsb09UdVRDd1VqZmFWVDgzYW5WMlcxbkluRlp0cG53WjVIcERHRXVDdGU1YnlB?oc=5) |
 | Maine U.S. Senate Candidate Says He Covered Up Tattoo That Had Nazi Imagery - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQQWpzVXlaS3hDVnprSGlBOTBwZWVDNmw2Z0FKYzVqMjhYR3RnQnVLY1llX0tqVUVJVU5sQkQyY19WTmJNdzFuVUFWbWk2Ukt4ZEJaSnVjejRHNElIcWQ1N2pjVVBCSmliUUhrT0pENFNQbXZ0ei1xNk9tam5jUnhvcEpxeHRsdU55ZTN3Vg?oc=5) |
 | Frustrations boil over as Vance delivers ‘firm’ message to Netanyahu - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOX1hYOEU5WHBZMHd6VzJJdDl0SzlrWDdEZGxpUmdZRzhBRGdRS3pjWU0zOUt6N1Rmbm1acWM0RWxnLWd1ZW1vQjcyb2xiLWh1X3V2U09ZOEY0VVV1Ylc3OUFCR21qelJCdGtEOHFRcnV0bWVLRlQ5QjdpQkFqbWRZUkp5N1VILXgxQ1FheW1FdGdBTzMwaFZyODVtYnhELXEyeVdERnQ4TmZCRTNJTll6bnlLU0RHbDQ?oc=5) |
-| 4 family members of Illinois governor candidate killed in Montana helicopter crash, campaign says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNT1ZrR01BNy11Tkp0bmprUGlNUkhRNVA5Z1h4R1NMSlFHNWstZDJmazJvUURJQ3VvQ2dxUG40TUhubHVKS19PWmQ2SHdMSGNkZzZhUlQyNEo4dnpsdVFSNjl6TWdKMVE5dFB6N05WS2lHVzBEV0ppZmlXNk0tc2hBb2NiaHZJam5laHdMTndkMWNJWG5UTFc4aGw3bUFGdw?oc=5) |
+| Alabama to execute man for 1993 murder in state’s latest nitrogen gas execution - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQMjFCNzl6eWV0X1A3UzVveTZQR2hHWWw3LXdzZ1c3NHNlbnpsQ2gwcVN1aE1pYjg4UUlaem42MFhBSm5KVkFQUUN2cGZmR1RYMy11ZXdoczhZdU1QMldtdWF4NFVlSEVod0NjcmtKTDF6bFVWTWhOWVhwR0pneTBHOTdhbTNaaER3NTkzN2ZSUk05UFBza2k0NTQ5ME0yRzVrVE00Ukl3cDR6MFI3VXRrLUNUODkySjNzTUZCNTAzeE9oQWlWLTh3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
