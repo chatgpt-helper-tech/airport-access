@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月24日 15:40:42（北京时间）**
+🕒 更新时间：**2025年10月24日 15:48:29（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | White House List of Donors for President Trump’s $300 Million Ballroom - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPQ0hsSzhuajJRdFVib0RzV3ZzdFl4Q2Fubm9kc3czU1R1OWxnVjJqS200R2xSVTV4V2ZxQVJZRFhfRGxpR2xRN1RjcG1HbFJyaHkzN1IzLVdfd0NZZ1JPUlFvUmpXYUdKQzJ4S0wyUExLS0VybjIwZEw3REJNZTNCOWZPQUg?oc=5) |
-| Trump says he's ending trade talks with Canada over TV ads - NPR | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE9qQXU5TldOMWJkS1IwaXVWMXRHMUFUNU0xMkRqSjVaWUpWd3dFRmdpRG56cHVUOE02enZocWlPSzBiSExrclBPbldtbkZMa3hTaDJ4d3dQOU9tTU5kT1ZQWjVzdzFRa1ZHeXdlYnhKSjUtbjYta0Fteg?oc=5) |
-| Governor Glenn Youngkin Declares State of Emergency to Protect Hungry Virginians from Democrats Blocking Federal Funding for the Most Needy - Governor of Virginia (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOMTN4eElkS19YVngwdkNiazFxX3FWMC1kQndGNXY2cXFiRGw0eWw3bksxXzIyU3RpTl9jZXJKb1B4UkpCQjdjQURDQmJaMXdhbjJJeHdSVXBZY2t3RzdPNzBxX3didmZDOE5qNjQtX2NLQmh0LWhPTHdxRkJwMzZkUE9YWGo2WU94eEpVcWdsZm9OTjdM?oc=5) |
+| Trump says he is ending trade negotiations with Canada - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1IbWNjNlFhdmNHMmJoajdldkEzeXU4Q08ybzFiWjR0cnNWalFva1I2cmhpeFFaMF94UmotaWlCRWplZXRiTEJBeThqZ3RxOUlfWlhpWnRWVGdSMWpMeDZUbWQ3V0x2LWxDVFQ4VTFNMDM?oc=5) |
+| 'Uncharted territory': Ongoing shutdown threatens food aid for 42 million people - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPaDdSeHVVWWhpV0FSZmN4NTJUeU82OTFxaTR6ZHNXRHhtVk4teVFCSFlyRFZtQ2FkbXc5dVZBY3Z5aEh1eHpOb1Y1bkFIeG1nYndMVzZnSXpKdGZON0hWWWdTYk5TUE1oUzF1Njd3Snh4Vkx1alRjcUlnSXhQTFJHMm1GSVRSODN4bFdoZV9CaUdTNnZG?oc=5) |
 | Why Trump Reached a Breaking Point With Putin Over Russia-Ukraine War - WSJ - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFB4c2xFd2RrcUpyaEd6UE9tSk1uTWIwdFBCV1pzR2xyQThUOFVDSU42N3pNRzhHRXBwbGptS1IwZXVEeXcydGlZY21DSnpOVG1Md015N1M0SFllM2xkczRld3laTGc4UFVDcUdkcDRDREtyc2NGU3V6MXJ0bw?oc=5) |
 | Senate blocks bills to pay federal workers during shutdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOMXJMRGdrY0tQdERVZDVzdWYzaUF2eG1XelJFcU1Pd1ZsQzR5NV92ak1LcmQtY2xHdW5uZXU0cmNpa1FlOC01cEY4cFBDVi1Qc3Y2Mmk5cjhlUl9ibDA0RjJHT1BWWDFsZkFyV0syNE13aHhhanVpNWxlMlVnZGlRZ2tMem1pNnJqMUNFRmwyQXpWMy1DVjBtUVBEcmhzSTg2Q3ExYzg0MXdJTXc?oc=5) |
 | US military flew supersonic B-1 bombers up to the coast of Venezuela - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNQmo3cjd4MjBZQkdWTjJpLXRnaXZwT0JZbGxmZ2pQUEJwU3loZW84U0o5QjVhbnp1ZUxhT2ZKOGd1a1hpaDk4aXVBbURxTEtmdThmdDRwaDhBNHdlUlJORDJMQnlJbGpGb1F4b1dlbDhWOVRHT2hIbThleVZwemdXOGtPR0pRcDJHVmM4QXl5dm1uWVpNek55WWdhM0ZXZE40WDFF?oc=5) |
