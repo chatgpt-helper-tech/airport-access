@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 06:25:42（北京时间）**
+🕒 更新时间：**2025年10月26日 06:32:23（北京时间）**
 
 ---
 
@@ -12,8 +12,8 @@
 | Trump raises tariffs on Canadian goods in response to Reagan advert | [阅读全文](https://www.bbc.com/news/articles/cx2ljgrm78zo?at_medium=RSS&at_campaign=rss) |
 | 'I am not done' - Kamala Harris tells BBC she may run for president again | [阅读全文](https://www.bbc.com/news/articles/cx2n7k2veywo?at_medium=RSS&at_campaign=rss) |
 | Lucy Powell elected Labour's deputy leader | [阅读全文](https://www.bbc.com/news/articles/c620g2gj0x5o?at_medium=RSS&at_campaign=rss) |
-| Parents urged to vaccinate children over half-term as flu cases rise | [阅读全文](https://www.bbc.com/news/articles/cpwv7yw4dz9o?at_medium=RSS&at_campaign=rss) |
 | Connolly declared president of Ireland after landslide win | [阅读全文](https://www.bbc.com/news/articles/c4gk2kml122o?at_medium=RSS&at_campaign=rss) |
+| Trump's week in Asia: BBC correspondents on the wins and potential losses | [阅读全文](https://www.bbc.com/news/articles/c9d6jnn37l2o?at_medium=RSS&at_campaign=rss) |
 | Louvre moves jewels to ultra-secure Bank of France vault after heist | [阅读全文](https://www.bbc.com/news/articles/crmxkl94w3zo?at_medium=RSS&at_campaign=rss) |
 | Will Lucy Powell's win turn things around for Labour? | [阅读全文](https://www.bbc.com/news/articles/cly9g1vnjqjo?at_medium=RSS&at_campaign=rss) |
 | How the anti-establishment candidate won the Irish presidency | [阅读全文](https://www.bbc.com/news/articles/cgjd8z8049do?at_medium=RSS&at_campaign=rss) |
@@ -25,9 +25,9 @@
 |--------|-------------|
 | Trump raises tariffs on Canadian goods in response to Reagan advert - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1jT1c1dG9vRXdOcjB6NXFTUHMzTHBDZ0lYNldXZnNYM2VwMFZsTFE3bXBxX1hsT1hLN0ZBdUVjdXNoYkZGNE5KaEF0OGpIVXdOSWNkSGZxMEM0d9IBX0FVX3lxTE5GdU5KVGxqY3F6LTF0NnYtNFhCYjlCYjVacWlUbWxzdmtJV3lWa2VHeTN3d01ydVJ4LWltS1dKWGs4VHpVZmdEZ3dHUjRrT3Y4NmRpSGZvV3FwcHRiV0c4?oc=5) |
 | Donor Who Gave $130 Million to Pay Troops Is Reclusive Heir to Mellon Fortune - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxObHpFT2J3d3BtZTdNdXluMWd3dkczWjdKUEtoeS0wNjFGakRIQjlSOVJfQ2M1Rkx6N2ZqNnZVckxhMlZCNUF1RnBHR2cxR3FqTGF2M3B1UWZhTGFzemc3cVJ2U05mcjU5LWFFZFMyYlNkYzVQRlJaRDRIYTZFT2dHUG9JTGJIWlV1Rnc?oc=5) |
-| Trump heads to Asia with trade — and tensions with Xi — on the agenda - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQaVk0M0h3Tm0tOU1PVDVqeFU0LUR5bHBvc3hPc2dvTk1rSTIzQWpjZkRrMWUzWEpNNjVybWxMMkl4aFlPVGpjV1oyVWVEMU9MTEV5UE9ZamJYdXQxclp1cEEzVmZBNjA4M0FoNGNnYUUyZXFXUC05V3VxTFVKSllMUVE4dy1xV0pLY1ZUVHhJTjlTY3lleFU0d3JURm1tMzlpRzE3SnlUTURIUVBUdUhqTXNR0gFWQVVfeXFMTndyN2dhY0oxSjFVSm9OaXphYVRpdWJfekVLN2tVUGV0TnBJWXZrMGd6Si14bmFMdmVLcTF5SW96VFUzV3FiRWtvV2w1ZTZPM0U1Q0lIZ3c?oc=5) |
 | Storm Melissa reaches hurricane strength, threatening catastrophic flooding in northern Caribbean - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNeHZMX2VyTGFoVmszZXNZVVlTM3p1bkt3dTZBQ2ttTk1sb1g1VkNIMGRfSjJkQUo3RjloTnl6NUY3TjdUVjktS19sYm8xR2JteUwxN1FHMW9TNG9zX2xySEtOUFh2RWhhVzlRTEdLMnpxcEdGV2lvb3V2MmNyVEpQMWpwV1dtamlIMVN6SXFOXy1mXzhVUldGMFdjNEstY1NvMmlsbDdhUFpBZlU?oc=5) |
 | How Trump’s ballroom will dwarf the White House - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNMmNQMmRqNmk2aTJJbDdudXhnSmhMMW42Y00wWW9JNjAyRmk1QmZjZjJ2M293aDljaFpTS3hJSk1ZM1hCdmZTdXBnNzJOalM4ZTJxcktsbDJlbGd4czd0SmN0bC1uMEF4ZEVwdlFJWjBmaTl5dUNXckxYTVdSZDVIWGd4S3FlU1RnTnN1WE1Hc09xUQ?oc=5) |
+| Keeping the House Absent, Johnson Marginalizes Congress and Himself - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPU3JPOGVqMG9WV1JkZTJjVlVtRGVMUW9rQlFLZ2NOeUt4bUNlV1NzZmZoNlVvYVNSc3h0RjhvSzIyVm1MMnRhbmtSNVVISmxpQXRacFRmVERCSldQNHBLVWt5WndVbkdtQmxjZ2lncE1NTlNXaUJNQ19tQTg0ck1SZU9paVJGR20y?oc=5) |
 | Federal immigration agents deploy tear gas in Chicago’s Irving Park and Avondale neighborhoods - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9RZ2tzMzNjUjlMR2hGS1ZyWDBfcF8wVW1FOHkxdU1CajRHX0hHMHBGaVJsanh4Z1hTSC1EZzRvTFh3YTZjR2ZEclhLZEdFZEl0WWRCTmVKVDExQVg5LU9DUWJHVlZjVnlWTmp3Qy12cGVCZHd1TndtY2F4TQ?oc=5) |
 | ‘After 9/11, my aunt did not feel safe in her hijab’: Zohran Mamdani speaks to New York Muslims; JD Vance - Times of India | [阅读全文](https://news.google.com/rss/articles/CBMiigJBVV95cUxPUHY3c3ZvR1lrTHNURE1UOFpjYW0weDJfMnV1VHh6VjBZZVB2aHg2YThLWWxoWnhyNllXX2hqMXhET1JPZDVLWWg5NS1hNzJhSzdxaGpKaDI3NXdIUnA1NGcxcmpQelpyMlJvUk81NTdINGN0bk44SUlVelpuVHpzbGxIc0hZa0ZQTEl5UXVNS056N29ncVNyR19MU1ZOTXZqV244UnhpbkNRVHVjZ3RkWU41TFJYVlEtYTNDNmxMSXNqaEdORUFZbWRoRFhIVG9hNHNiVUdkbDB5R1JEWDdCaTNZR244N0tNVjNndy1JZTV2ZndGT0lRWFNEUEg2ZDAtOWFvNzhwa1IwUdIBjwJBVV95cUxQcXFxM1RUcWNydGNLRENSZkw4SjdNWTFxZXNMc2tLdHctZkhsOVhYOGRQZDJIc3B3VWVianR5aml2V0NfMThzUjFXQUJudUs4SXpMR3Y2clNMYXppNS1JOTZJVDRuVGo3b2ZUVllnQ2c1UkY1S1FtNnpKODE1UFExMEVuSXdXcnA0TmcxLUFYT2d1ODduMTYzYkZlc05PQ3ViYUxScTV4VFBlWWdYWlAzcDgwMG5tekk5eGoxeG9zQ0JWWUJvT3EwMnhyR1ZhbmRveURNcGtGREZ6bU83SjFsQkhqMWZFNjhRQTUxNDFYZ0Z5R1VDRjI2ai1qRXkxcFBZeXR1NG8xd0JKREo5eEFn?oc=5) |
 | Honduran man killed on Virginia highway as he tried to escape ICE agents - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOTk5qRjBZbmlKUjM0M21RTWNWODhiT0FJeGFDQ3ctLUJNcGRmWmN5WWo1ejZiVmI3QnZncm5mMElvcjNrSEpHMnVta2E2aHRDUnFYd24xZGFmM1VXYWp2MlpEc2UyNTJuX0hDZkN4MUs2MmhRRkFQR0llendyUFRZd1NySmo0OE9VOW9vSTd30gGTAUFVX3lxTE8xa2ZJMmJnMEFqX0ZwX1Z6cl9RQzl1dFppYVVuUGx3ZkVHMlg0d2g5ZG1pdUVLekhvSnBaTzgteVNKOHNaLThPT3h6VTQwNkRIZ1Jhd0VQYllSM3BGTnVZenVfMUM5bWFzWmFrYW51ZWc3U2ZqcGF1MWRBR19GMXFReXZYbGZYclk0M1laeXlHNXoxYw?oc=5) |
