@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 04:17:07（北京时间）**
+🕒 更新时间：**2025年10月26日 04:24:09（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | Trump heads to Asia with trade — and tensions with Xi — on the agenda - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQaVk0M0h3Tm0tOU1PVDVqeFU0LUR5bHBvc3hPc2dvTk1rSTIzQWpjZkRrMWUzWEpNNjVybWxMMkl4aFlPVGpjV1oyVWVEMU9MTEV5UE9ZamJYdXQxclp1cEEzVmZBNjA4M0FoNGNnYUUyZXFXUC05V3VxTFVKSllMUVE4dy1xV0pLY1ZUVHhJTjlTY3lleFU0d3JURm1tMzlpRzE3SnlUTURIUVBUdUhqTXNR0gFWQVVfeXFMTndyN2dhY0oxSjFVSm9OaXphYVRpdWJfekVLN2tVUGV0TnBJWXZrMGd6Si14bmFMdmVLcTF5SW96VFUzV3FiRWtvV2w1ZTZPM0U1Q0lIZ3c?oc=5) |
 | Kamala Harris Suggests She Is Considering Another Presidential Run - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNQWp4RjY2elZ6UEc4ekxxQ3BTMnhIVW1KZjlsT1ZlWm5IWDVSdEZBT0JONzFEcldPRFJkRnV4UHdLRjV6SkxKRmd1bndmS25yWWtwRDhRLWozS1dnMWdCTVlQWHEwcXJHSjJSLUFVaDRWR3JJNDlvTGhDRUowY05MN0ppYXpPd0JVdGpz?oc=5) |
 | Keeping the House Absent, Johnson Marginalizes Congress and Himself - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPU3JPOGVqMG9WV1JkZTJjVlVtRGVMUW9rQlFLZ2NOeUt4bUNlV1NzZmZoNlVvYVNSc3h0RjhvSzIyVm1MMnRhbmtSNVVISmxpQXRacFRmVERCSldQNHBLVWt5WndVbkdtQmxjZ2lncE1NTlNXaUJNQ19tQTg0ck1SZU9paVJGR20y?oc=5) |
-| House Minority Leader Jeffries endorses Zohran Mamdani - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNczI2bWdMTjFjUjRUem1fUThjTkNGRVRjZ0s2VS1aeFFNVlBtLXlYbWV1QmZXRXVlWnVSS3p3WW1KRHRHSjN3UDV1dm1UVUNtQmVzR0ozc0s1MXpyenRVc0RxR1BjNUFZbWlHWmJNMFd4ZGxUQ3B2MXo1a0MtbGhtN0pzQ3B2UDVRRXpLZlZBRkp1NHhPZXRjN2lR?oc=5) |
-| Honduran immigrant dies while fleeing ICE, bringing raids death toll to three - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNVThuZWxQS085c29DZXdSd09iOHNLQWNsQlEtei1kaUhUUmVyQ2dDZEU4bm96SWo4aGczTVlFaC0xcHVZSzZyMXNBME40M2V2TzhWRWExSk9rV056ZVVjeFRpTndLTENndW9BYWd2WDdhUndKOFlMYkRxdDN0OTRwSUpYRkhJV0xWcGpnUGxHVHpSYmV6?oc=5) |
 | Shootings at a party in North Carolina kill 2 and critically injure several others - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNRUhYdkZmaU9VNDB1ckJwcG15SDVKQXJHRXdzeTVldHllVmZZLUxtc2gzQ0JtclVpdDE5dGxYLXh1LV9vNW92X09JN043YURoU3Y1cE1MbDJ6ZGFHUHBMbWtVUUYtR0NmaWhFeVhXU0dyREJic2NYeThDNWg5dnZoeGFPVWdXYnd3dVp5aTA3d2xiTlV2UW8zdU1DX0w?oc=5) |
+| Honduran immigrant dies while fleeing ICE, bringing raids death toll to three - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNVThuZWxQS085c29DZXdSd09iOHNLQWNsQlEtei1kaUhUUmVyQ2dDZEU4bm96SWo4aGczTVlFaC0xcHVZSzZyMXNBME40M2V2TzhWRWExSk9rV056ZVVjeFRpTndLTENndW9BYWd2WDdhUndKOFlMYkRxdDN0OTRwSUpYRkhJV0xWcGpnUGxHVHpSYmV6?oc=5) |
+| House Minority Leader Jeffries endorses Zohran Mamdani - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNczI2bWdMTjFjUjRUem1fUThjTkNGRVRjZ0s2VS1aeFFNVlBtLXlYbWV1QmZXRXVlWnVSS3p3WW1KRHRHSjN3UDV1dm1UVUNtQmVzR0ozc0s1MXpyenRVc0RxR1BjNUFZbWlHWmJNMFd4ZGxUQ3B2MXo1a0MtbGhtN0pzQ3B2UDVRRXpLZlZBRkp1NHhPZXRjN2lR?oc=5) |
 | In Florida, Obamacare Price Hikes Pose an Outsized Threat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOSm14aTlERlE5dmlqMVZPVUFQdU1VMFZkR2dqcmxBS0E0ejhhb0xaWmxrX2V2bk5SVV8wZVlsMGdrSkJqTmNjc1I2eWxKS1dhN3JIdzgyM0drVU1zaTFraVduQ2UtOWtUNzB0MmM2MjZ4TjcyVFBUXzNIUmxDRjBNX1RZWFJvVUNtV3FfbTY5RTh1dEhSZVM5VE15RnFEUQ?oc=5) |
 
 ---
