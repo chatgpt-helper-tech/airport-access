@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 20:56:47（北京时间）**
+🕒 更新时间：**2025年10月25日 21:01:20（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Pentagon accepts anonymous $130 million donation to help pay troops during government shutdown - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPVWtqeDN6eF9xclY4cDRCczlHN3o3Yk5GQTB1ZGtPaF9MNE1vMEhqWk5qb01mdmprWTJUYS1neVRlN0tZSTBUaTBGdHFtTW9oNkxqcWxsR3R5dEFtRnNvVjF6YndnWXVwOXh2VXBPai0xQmdfUVdRV1BtQkFDRDBKeGZ4SmdhOGVXNXhrc0FwVzItWkgxUTBTZWptb05kQTdWd2FPLTM2VTB2MUdCVUhVNk5hRmNWTjRsaGt2cEJR0gFWQVVfeXFMTllnWlJkMVJUUDVMLVQxbGNjWmhEUDBhUE1wNDdGYmZoWmZGbjM4V2RnMkp5bm1VMkV0dEhrU1dGNGNpMTNQS09Cc0VIX21MT2thd21UWGc?oc=5) |
 | Justice Department to monitor polling sites in six counties in California and New Jersey - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNbUFaYk8wajQyd3N3MVE0QlNjZWtYM3NOdkd2c3FDc1YyQlM2R2c2enlTNVo1SElXaEJqcXF4aDQ3cTEzTXpJRWg4ZXVrS2tsaTNaaTJDZDR6eGloRy10OThqRVgxeVlzQzRPU2tudmlnMDV1T3FZM0RrbmNVNnVkdjJTMHFtN3pfUWduNDRabUE?oc=5) |
 | Keeping the House Absent, Johnson Marginalizes Congress and Himself - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPU3JPOGVqMG9WV1JkZTJjVlVtRGVMUW9rQlFLZ2NOeUt4bUNlV1NzZmZoNlVvYVNSc3h0RjhvSzIyVm1MMnRhbmtSNVVISmxpQXRacFRmVERCSldQNHBLVWt5WndVbkdtQmxjZ2lncE1NTlNXaUJNQ19tQTg0ck1SZU9paVJGR20y?oc=5) |
-| Trump’s Asia Tour: Deals, Diplomacy and a Meeting With Xi - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9xck5JSVZ4My1ZRy11ekc0VHRHZ0pwYXVIdGdLRGpWSFVaVDhLa0l5N3JUVEhxd1hyeVE1SHRfcUNYYW5peUtpc1Z2OWFHSjN0ZUlaVEo0WWNDbzk2Y0JyTWNYeGg1MUh0TUp4dHM0WVJtU2dkNWxGNEZYSV81TXc?oc=5) |
+| Exclusive: USDA says it can't use emergency funds for food stamps - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQV3RIYUxJaWxLY3NoM0NTQ2NCNjdDNGhPcldyZ21HQUlXTGFUZXNVaEFFOWt6T3lPeWl6aXN3VWNtSTVVUXJuUWtRa0I5SnlNS3JuanVaSU1qUDNGZllwd2lQRmdIbWIzemdGNnJZbjMzZjFIeTYzUDF6UkpXTWloSA?oc=5) |
 | Trump was planning to send troops to San Francisco. Now he’s not. Here’s why ｜ Joe Eskenazi - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNekNyeFlsRUd3Uk9rZTRVVnZCVjloazhWRFRDOW9xdUVVY1EzMlBOT2M3Zm91cjFzY08tblM5RVhqdXVJSE5keGI0MFBhOFo3ZG5VcW9pSFdEVmRmRzJuMVNSSkE3LXQwYUhMelBLNWU3LWxjV0wtZjRKenBMZlRHb1RJUmFOTG8?oc=5) |
 | Pentagon orders aircraft carrier to Latin America as Trump signals escalation - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNZkNtUGhEamFEMXdvRDRyY3Bici1DTkR5NEdDak5YZ1FyRnRfcTNDYXp4bzRnM243M05ULTJFY0w4NVFWaTdXbE9iVGtFTFF0a1ZDWV9SYlhYbkoyWURrUzdJQmZGUEQxNlNMZHBZa3BIRGJYT2xyLUs2dlRyMVlUX3pEUmNtamJNZFhBQUlNM25GaGJjalItRi1OblpScG15X05HS0pDZGIwS1U?oc=5) |
 | The shutdown layoffs at health agencies followed a familiar, DOGE pattern - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQazRLdjZxWi1pNXNUOWpQZ1Q2RXNUR0pKVDlRckdzdnFOTG5mTE03M2J1WjBUanpnUXoyeEI5TjZCSDlIMXRRYXQwNGtBZnRyOHg0ajliNHk3QkZJaEthemlRVFRpaDhMM2U5QThQUERuSm1KMC1LN0txb2k1WXR2dEJYLVkzLV9fZmc?oc=5) |
