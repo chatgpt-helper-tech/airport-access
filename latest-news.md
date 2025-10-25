@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 09:57:59（北京时间）**
+🕒 更新时间：**2025年10月25日 10:01:11（北京时间）**
 
 ---
 
@@ -24,10 +24,10 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | What donors to Trump's White House ballroom stand to gain from the federal government - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQejY3YXZNTk02M2o3X3UwTFpteW1KU3RLamRYVW5HSnFwWGV0M0tNS0xtSmpiZFVaZ1JEaVZFTWVwMS1tRDBxVEdNaUJIcWhBbVdwUks4MlR3bGV2QnUwX0RSSnZXcXNjYnM2UUZ4LUl3cjBjU2JaTjhmbjFYUElTX2NRa9IBiAFBVV95cUxPeFpmQ0FTdU5HTndiRTNTVC1kS1EtaGJsZkFBeDBwMUxRR0xvY2R5clRJQlh3QU1kVnZhc3hxRTBQVTg3MG9GTzR5VnlvT004YVN3dnlQcnowMS13NTlMWXRFRWhzdWhfVjYzc2hsVUFpUVppOTVqUVhTMjBhc1Zrc3VHT0tXTzdM?oc=5) |
+| Pentagon orders aircraft carrier to Latin America as Trump signals escalation - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNZkNtUGhEamFEMXdvRDRyY3Bici1DTkR5NEdDak5YZ1FyRnRfcTNDYXp4bzRnM243M05ULTJFY0w4NVFWaTdXbE9iVGtFTFF0a1ZDWV9SYlhYbkoyWURrUzdJQmZGUEQxNlNMZHBZa3BIRGJYT2xyLUs2dlRyMVlUX3pEUmNtamJNZFhBQUlNM25GaGJjalItRi1OblpScG15X05HS0pDZGIwS1U?oc=5) |
 | Americans brace for food stamps to run out: ‘The greatest hunger catastrophe since the Great Depression’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQM21XcE9xVW84MUE2SnBvWGY1LXU4bmJ4LUp4eWowTno3VG05MnZuTHRHcFpoTEdDWU9oRlpVVF9iN19CS2ZJY3RSekxBQVlZYkdBb3hhX2dsdGlYZ3VfN1lZeDBIM0ItOWFqeUZrV3Y2cTRyUnNYSm11TUhDYVozYUZsQmhnUXRWTnJCcw?oc=5) |
 | What's in Reagan advert that caused US-Canada trade talks to collapse? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5idEp2QUJLYmtERnlFdWJodE9kT3Y3dko5aVVsOFpxNnN3VGF4YjZDYjFJcnRmb3FaU3doNENXQ3lFR2dyNlIzdjBZdnV2bnFTVXB3a2ZPaDlpUdIBX0FVX3lxTE1iY2lTOWpKWUw3cDhfM0dGV3dFM04tRWZzTE5QZHUyVXVuSHVVZTQ0X19mR0pyaG5GaVlwbG5URzF1bGt4M3FNWHlRa25kcDItRlVFRWFDazZPRVc2YjB3?oc=5) |
-| Pentagon orders aircraft carrier to Latin America as Trump signals escalation - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNZkNtUGhEamFEMXdvRDRyY3Bici1DTkR5NEdDak5YZ1FyRnRfcTNDYXp4bzRnM243M05ULTJFY0w4NVFWaTdXbE9iVGtFTFF0a1ZDWV9SYlhYbkoyWURrUzdJQmZGUEQxNlNMZHBZa3BIRGJYT2xyLUs2dlRyMVlUX3pEUmNtamJNZFhBQUlNM25GaGJjalItRi1OblpScG15X05HS0pDZGIwS1U?oc=5) |
-| Federal Immigration Enforcement Surge Called Off Across the Bay Area, Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOTVhZTWk5SEdMTzF1T2NzRVBraEhSUjEyU2htdk1Ta1BWZXJGN3FnZVFSYWlsQjJQdEZnQlZmUGZJd29mcXUyaTBialdaUVRSZDFlVmVHc3VpS2NSYURsNGkzbExCUUlvN1ZpVXQ0QjhaWm51UU1nd1FaaDQzY3Fyb3ZTOGZKVGM2dy1F?oc=5) |
+| Oakland mayor, sheriff say CBP ‘surge’ operation canceled for East Bay - Berkeleyside | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPdnNzcWwwbHRrS2ctZzFXXzRzMkJmWHBZZ2g1VS1pMjV1aXVEaF9hdFJLVExGbUEzR2pncHZjNmg4SGEzcUFUVjZlWVEtZFVhTzlMU29UQzZ0VnRkQm91UjQ5V3ZGSmw0a3VDLXBiLTVLVXNROWh2TUg5UFlVUTJ6ZThrdnFWZmV5dkFwc0wzMkJ3dWJ0T241eThqS0lfX00?oc=5) |
 | As strikes on alleged drug boats grow, so do questions about their legality and goal - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOM0pGaHZaWm9wYTNlQUpCUW5wNkJFWUExZVhsemtMSmRleGNNcm85eGVWckMtNnNjZkZ2VDk3d3lqZUZrLXdHT3kxcmhkUzNIMzVoYkxfdi1WRkZ1WmRWUU1abVN2WHdVWTZLN1Awek5Tb0pRMnFQTS1TY0k2UTRBRjA0OFg?oc=5) |
 | $10,000 Card Shufflers Hit the Spotlight After NBA Poker Scandal - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPR2lhU2d6VzNuZERITVFuLWZBZFZGdzZCNlhwRTVFSVBpWm9CMDE2V3B0MWJXMm1hbGl6MUpfUHlPLTJOX0pIQ1Bvc3p5bW12YWdJdEJwZjZiWkxjZjAtRXF3LVlVaHVSYy1HNFVNV3RRZHVodG95N1lHaGZWS1FrdlAxQzFfTFVqVFdldVFaTVVDcjVDN2VDV3ItZlNHczNaQ2tuekdQOEotd3M?oc=5) |
 | Shots fired, driver hurt and held after truck rams into Coast Guard base in California - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQX3NnV1FwLXkycTdKdUFrQlhzV3pHVWpSVC1sbzdSSHgwSFN4eFZxM20ySzF5RDJqT0I1VXRsNTBpNXNadUozdENtdEk0d0loMFExT24tVkJqNWp2ZzZ5ZVJ6elYtb3kyRVFJejN2ZlBIRC00amFqYU5ncWxaTlBxSmJRTkhYSl92eTQ0aTFlNk9xbUhIZEVpS1Ffb1hVbHQ3anFnb3Q0VlUxTjE5V1BFNzZfWQ?oc=5) |
