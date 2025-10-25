@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 07:32:40（北京时间）**
+🕒 更新时间：**2025年10月26日 07:40:15（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Kamala Harris says she may run for president again in 2028 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNR0V1cEdOLWNYekZMcEozZkdSZ0hocEIxcnpRdWVaYjZsSnk5MVBrYWFKQmQxRGlCQXVUM3Buc1lRYVNEMFlWZWJKVnBRNnRxdTdubFIzRHJwMmJBMmNGanhPTjRQU3hWdzRKcU84SnNENXNZTUhaNUFhZXl5am00VFJLNnN2dw?oc=5) |
 | How Trump’s ballroom will dwarf the White House - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNMmNQMmRqNmk2aTJJbDdudXhnSmhMMW42Y00wWW9JNjAyRmk1QmZjZjJ2M293aDljaFpTS3hJSk1ZM1hCdmZTdXBnNzJOalM4ZTJxcktsbDJlbGd4czd0SmN0bC1uMEF4ZEVwdlFJWjBmaTl5dUNXckxYTVdSZDVIWGd4S3FlU1RnTnN1WE1Hc09xUQ?oc=5) |
 | ‘After 9/11, my aunt did not feel safe in her hijab’: Zohran Mamdani speaks to New York Muslims; JD Vance - Times of India | [阅读全文](https://news.google.com/rss/articles/CBMiigJBVV95cUxPUHY3c3ZvR1lrTHNURE1UOFpjYW0weDJfMnV1VHh6VjBZZVB2aHg2YThLWWxoWnhyNllXX2hqMXhET1JPZDVLWWg5NS1hNzJhSzdxaGpKaDI3NXdIUnA1NGcxcmpQelpyMlJvUk81NTdINGN0bk44SUlVelpuVHpzbGxIc0hZa0ZQTEl5UXVNS056N29ncVNyR19MU1ZOTXZqV244UnhpbkNRVHVjZ3RkWU41TFJYVlEtYTNDNmxMSXNqaEdORUFZbWRoRFhIVG9hNHNiVUdkbDB5R1JEWDdCaTNZR244N0tNVjNndy1JZTV2ZndGT0lRWFNEUEg2ZDAtOWFvNzhwa1IwUdIBjwJBVV95cUxQcXFxM1RUcWNydGNLRENSZkw4SjdNWTFxZXNMc2tLdHctZkhsOVhYOGRQZDJIc3B3VWVianR5aml2V0NfMThzUjFXQUJudUs4SXpMR3Y2clNMYXppNS1JOTZJVDRuVGo3b2ZUVllnQ2c1UkY1S1FtNnpKODE1UFExMEVuSXdXcnA0TmcxLUFYT2d1ODduMTYzYkZlc05PQ3ViYUxScTV4VFBlWWdYWlAzcDgwMG5tekk5eGoxeG9zQ0JWWUJvT3EwMnhyR1ZhbmRveURNcGtGREZ6bU83SjFsQkhqMWZFNjhRQTUxNDFYZ0Z5R1VDRjI2ai1qRXkxcFBZeXR1NG8xd0JKREo5eEFn?oc=5) |
-| Hispanics’ support of Trump plunges since he started second term - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOampkU1hHZ29jdk9mRnFva3ZlNW5NRm90aVpaR1ZIYkRJZ0xRcG9qR2t5SHZLMXROek81cHdGSVVBRy1iRWJxV1VUWmVOMkRfRWFxWllqYmttQUdqV0NGU1psM3FwX2c1c1ZlenRsRnI2TFpSWnZXaDJyWENqWDFKdFBFQkc?oc=5) |
 | Honduran man killed on Virginia highway as he tried to escape ICE agents - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOTk5qRjBZbmlKUjM0M21RTWNWODhiT0FJeGFDQ3ctLUJNcGRmWmN5WWo1ejZiVmI3QnZncm5mMElvcjNrSEpHMnVta2E2aHRDUnFYd24xZGFmM1VXYWp2MlpEc2UyNTJuX0hDZkN4MUs2MmhRRkFQR0llendyUFRZd1NySmo0OE9VOW9vSTd30gGTAUFVX3lxTE8xa2ZJMmJnMEFqX0ZwX1Z6cl9RQzl1dFppYVVuUGx3ZkVHMlg0d2g5ZG1pdUVLekhvSnBaTzgteVNKOHNaLThPT3h6VTQwNkRIZ1Jhd0VQYllSM3BGTnVZenVfMUM5bWFzWmFrYW51ZWc3U2ZqcGF1MWRBR19GMXFReXZYbGZYclk0M1laeXlHNXoxYw?oc=5) |
+| Hispanics’ support of Trump plunges since he started second term - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOampkU1hHZ29jdk9mRnFva3ZlNW5NRm90aVpaR1ZIYkRJZ0xRcG9qR2t5SHZLMXROek81cHdGSVVBRy1iRWJxV1VUWmVOMkRfRWFxWllqYmttQUdqV0NGU1psM3FwX2c1c1ZlenRsRnI2TFpSWnZXaDJyWENqWDFKdFBFQkc?oc=5) |
 | Meet the alleged mobsters charged in the rigged poker game scheme - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQbWEtZFBmX05fVlliWTdndGg2UG80X20wLXZNNDJLRXJ0MV9yZVViQWlNZnZPRlRWOXVuYUlCbDZncHZtWGItY0MxREc4TVVGbnRyWHNGMkMzUjFDQjJ4V196N0UzVmdlc09URWxqNXhwOE5TOFk3M05UdVpiRVZVSVhmbjFydDJzeGhzR3k4N2xsbjlq0gFWQVVfeXFMUDk2aXZHdGF4cTlDd0sycGNURzNtZzAzVlRhNnBqZ0xMQ3o5RndTMEFhbkdESldpYm5GNVVQem0ybk9NZG1EX296UXRnN2NEOFhUWHU3OXc?oc=5) |
 
 ---
