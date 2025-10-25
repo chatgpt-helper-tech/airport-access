@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 20:40:29（北京时间）**
+🕒 更新时间：**2025年10月25日 20:48:19（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Keeping the House Absent, Johnson Marginalizes Congress and Himself - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPU3JPOGVqMG9WV1JkZTJjVlVtRGVMUW9rQlFLZ2NOeUt4bUNlV1NzZmZoNlVvYVNSc3h0RjhvSzIyVm1MMnRhbmtSNVVISmxpQXRacFRmVERCSldQNHBLVWt5WndVbkdtQmxjZ2lncE1NTlNXaUJNQ19tQTg0ck1SZU9paVJGR20y?oc=5) |
 | Trump was planning to send troops to San Francisco. Now he’s not. Here’s why ｜ Joe Eskenazi - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNekNyeFlsRUd3Uk9rZTRVVnZCVjloazhWRFRDOW9xdUVVY1EzMlBOT2M3Zm91cjFzY08tblM5RVhqdXVJSE5keGI0MFBhOFo3ZG5VcW9pSFdEVmRmRzJuMVNSSkE3LXQwYUhMelBLNWU3LWxjV0wtZjRKenBMZlRHb1RJUmFOTG8?oc=5) |
 | Pentagon orders aircraft carrier to Latin America as Trump signals escalation - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNZkNtUGhEamFEMXdvRDRyY3Bici1DTkR5NEdDak5YZ1FyRnRfcTNDYXp4bzRnM243M05ULTJFY0w4NVFWaTdXbE9iVGtFTFF0a1ZDWV9SYlhYbkoyWURrUzdJQmZGUEQxNlNMZHBZa3BIRGJYT2xyLUs2dlRyMVlUX3pEUmNtamJNZFhBQUlNM25GaGJjalItRi1OblpScG15X05HS0pDZGIwS1U?oc=5) |
-| Immigration Crackdown Spreads Through Chicago, Including Wealthy Neighborhoods - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNV21SVkFGOTFKaUd5Wl9laTBtR1VHQWFpREpFclFXanNjSXF1VlU0X2s3RzBKX1FFcnBVa2k3VktBeDltbGRyT1prbkxQTUlwNDJpM3FTRHdrcGU2MnVKalJIZVNHQVpGN3lQUjRNbjNfOWZnN1g0bUFPU09KQWZyUjUtWldlTjU1aTVWS2h2Sno?oc=5) |
 | The shutdown layoffs at health agencies followed a familiar, DOGE pattern - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQazRLdjZxWi1pNXNUOWpQZ1Q2RXNUR0pKVDlRckdzdnFOTG5mTE03M2J1WjBUanpnUXoyeEI5TjZCSDlIMXRRYXQwNGtBZnRyOHg0ajliNHk3QkZJaEthemlRVFRpaDhMM2U5QThQUERuSm1KMC1LN0txb2k1WXR2dEJYLVkzLV9fZmc?oc=5) |
+| Immigration Crackdown Spreads Through Chicago, Including Wealthy Neighborhoods - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNV21SVkFGOTFKaUd5Wl9laTBtR1VHQWFpREpFclFXanNjSXF1VlU0X2s3RzBKX1FFcnBVa2k3VktBeDltbGRyT1prbkxQTUlwNDJpM3FTRHdrcGU2MnVKalJIZVNHQVpGN3lQUjRNbjNfOWZnN1g0bUFPU09KQWZyUjUtWldlTjU1aTVWS2h2Sno?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
