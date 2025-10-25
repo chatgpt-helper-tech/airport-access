@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 03:33:52（北京时间）**
+🕒 更新时间：**2025年10月26日 03:40:13（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Kamala Harris Suggests She Is Considering Another Presidential Run - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNQWp4RjY2elZ6UEc4ekxxQ3BTMnhIVW1KZjlsT1ZlWm5IWDVSdEZBT0JONzFEcldPRFJkRnV4UHdLRjV6SkxKRmd1bndmS25yWWtwRDhRLWozS1dnMWdCTVlQWHEwcXJHSjJSLUFVaDRWR3JJNDlvTGhDRUowY05MN0ppYXpPd0JVdGpz?oc=5) |
 | Trump heads to Asia with trade — and tensions with Xi — on the agenda - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQaVk0M0h3Tm0tOU1PVDVqeFU0LUR5bHBvc3hPc2dvTk1rSTIzQWpjZkRrMWUzWEpNNjVybWxMMkl4aFlPVGpjV1oyVWVEMU9MTEV5UE9ZamJYdXQxclp1cEEzVmZBNjA4M0FoNGNnYUUyZXFXUC05V3VxTFVKSllMUVE4dy1xV0pLY1ZUVHhJTjlTY3lleFU0d3JURm1tMzlpRzE3SnlUTURIUVBUdUhqTXNR0gFWQVVfeXFMTndyN2dhY0oxSjFVSm9OaXphYVRpdWJfekVLN2tVUGV0TnBJWXZrMGd6Si14bmFMdmVLcTF5SW96VFUzV3FiRWtvV2w1ZTZPM0U1Q0lIZ3c?oc=5) |
 | Keeping the House Absent, Johnson Marginalizes Congress and Himself - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPU3JPOGVqMG9WV1JkZTJjVlVtRGVMUW9rQlFLZ2NOeUt4bUNlV1NzZmZoNlVvYVNSc3h0RjhvSzIyVm1MMnRhbmtSNVVISmxpQXRacFRmVERCSldQNHBLVWt5WndVbkdtQmxjZ2lncE1NTlNXaUJNQ19tQTg0ck1SZU9paVJGR20y?oc=5) |
+| House Minority Leader Jeffries endorses Zohran Mamdani - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNczI2bWdMTjFjUjRUem1fUThjTkNGRVRjZ0s2VS1aeFFNVlBtLXlYbWV1QmZXRXVlWnVSS3p3WW1KRHRHSjN3UDV1dm1UVUNtQmVzR0ozc0s1MXpyenRVc0RxR1BjNUFZbWlHWmJNMFd4ZGxUQ3B2MXo1a0MtbGhtN0pzQ3B2UDVRRXpLZlZBRkp1NHhPZXRjN2lR?oc=5) |
 | 2 killed, 7 in critical condition in North Carolina mass shooting - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPVXZnREdRd1l1S3o0RmNvTzY2Qjh3ZkFhZDdLOVNndU9Kd1VZem9rRmRoMjZnZXd0elZBcGFOZTNiRThzRzFaZGd6OUlzQ1hub3M3TnhLUno5MUJGNTMxQ08tY2RuNFd1bGhQa1ROLXJKcDNZSlNTM0YxYXBiRTNFNHhfX19HZGlUWTFHb25sM2tsOW8yMzVrZXZ30gGfAUFVX3lxTE0tWjVfc3c1QjhTRXJSY3RpZ2owd1hEZUl4ZDhMSlRkRG12c3lFNzFqYmJsQnpMTjhERllZWUR4WTF3UmVjTmU2dy1SaGpOVXB4dm9TR1owUjdWdTBadGhSWldpV3dUZ1JZV1dpdFNRZk5TT2sxRnpaRXhVbldUaHlfa2pKaG9IS080aXRibEN1QTJpbk1tUFFvWmRnV0dScw?oc=5) |
-| Early voting starts for New York mayoral and New Jersey gubernatorial races - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPTE16VUYtSXRCOEd0bS1qNkp0SzNjNHJnc2wxTVNDdjh2YUNoSE4wdWRNczJSbDNhOUlteHlQRWtwUGNsY2l3ekpsNGR2N3hISmFBTlAtSk81elh2Qno4Z3FOSWtKRTNPS3M0ZHZUTjhsTWhvWU9fX2JkTXU1dk1PdFhocXdxWGs?oc=5) |
-| Man dies in crash on Virginia’s I-264 highway while fleeing ICE agents - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQYndHQ21XWEhnblVoajFfYTYxWW4wU3ZjT1dSVzlMMmd0ejU3TDd6akNsY2tnc3lSRFowOXRLRzQ3NzloLXAyUTNUQm9uQ2VpdXFPRnQ4alc3WG9kZl93SDZhWUNBUW5iampaTS0yWW9wQm5XRUFBRE00b0hZcU9hbkdkWlZRUUxMaFlz?oc=5) |
-| Hakeem Jeffries endorses Zohran Mamdani for NYC mayor after months of delay - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQY2xnUVVqMm05aVVuU1FuaGpWUUtMYzhnekFNemthd1MyREZrdTFSYmlRSTNDalYwOGE0dy1FdXY4QWw2d2d5aVh2LWlLU1YxZS16VEJwOFJiTDEyN2lrY0lrUkxJS1BvS29ZWFRYRDhlS1U1NzlSTW5YdDNoMUloVU1DZlRaRHg0c2c?oc=5) |
+| Man was fatally hit by vehicle while fleeing ICE on Virginia highway, officials say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxPRENHQmZuWEw1RmhnakxMVFp4RG5NdUkzYm5veDBCSzJTcm9LNGRXZUJQTFY5S3NkSUNxbk95ekhjMGlmX1ZobmhKdUxwSlVVVmxVSG5aemFueDRZSHczS2labWhjTGV6V0RUZ2wySlgzNWhKWHpFMHpEbi01NmdKNzBwZXdfZnlLTC1sQVlKNEF1WjJmMnZPZ0pGWDQ3eHp4TUJQV0l0bjAtYWlVZ0RUdEtmbXVFTExHd2fSAVZBVV95cUxNNUt3UDZvMHBmTVhPUmpGMm5iX1FFMVFKbS1kbVduNGRPNWxmY01PRFFNeGt2d3dwU3VjWm9zZGdQRGJOS1RKVEU2UmloSE5ROFpfVERjdw?oc=5) |
+| In Florida, Obamacare Price Hikes Pose an Outsized Threat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOSm14aTlERlE5dmlqMVZPVUFQdU1VMFZkR2dqcmxBS0E0ejhhb0xaWmxrX2V2bk5SVV8wZVlsMGdrSkJqTmNjc1I2eWxKS1dhN3JIdzgyM0drVU1zaTFraVduQ2UtOWtUNzB0MmM2MjZ4TjcyVFBUXzNIUmxDRjBNX1RZWFJvVUNtV3FfbTY5RTh1dEhSZVM5VE15RnFEUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
