@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 04:57:05（北京时间）**
+🕒 更新时间：**2025年10月26日 05:00:20（北京时间）**
 
 ---
 
@@ -27,7 +27,7 @@
 | Ukraine war: Trump hopes China will help bring end to Russia war - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9aYmVndmlfakl4cl9leVNWcHJnNUVPaTdwdTVWYUJaTFN5RmRyczgyQ2M5NGRXSVhqdk5kVUdqM2VfQUx2dDFsYXpVOV9hN3dFZDBVckt5NFRHUdIBX0FVX3lxTE5xZV8zRzhwU0hoMmhyTUZhV19CdHhrNWowMWJhV0xYYW1DWHQ3VnV5VUZ2UU5FRTZPbnN0NUpJTjNRUjU0WE9WdVpMMlhWbGR0cVdzcGFiMF8yaDNNUGZB?oc=5) |
 | How Trump’s ballroom will dwarf the White House - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNMmNQMmRqNmk2aTJJbDdudXhnSmhMMW42Y00wWW9JNjAyRmk1QmZjZjJ2M293aDljaFpTS3hJSk1ZM1hCdmZTdXBnNzJOalM4ZTJxcktsbDJlbGd4czd0SmN0bC1uMEF4ZEVwdlFJWjBmaTl5dUNXckxYTVdSZDVIWGd4S3FlU1RnTnN1WE1Hc09xUQ?oc=5) |
 | Trump’s Attack on Ontario’s Reagan Ad Helped Amplify Its Reach - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOMU1mTFBveW1sNkd0bktaMFQ2Y0NDS3YzbGR3V2VyNzBlWVJ3bFFxQnhBQjZ6SjZuQy16NFFLWkF3eTlkUGYzcEV6a004NDZUd28zVWhRZThxT1dIMk1OSzdxTUZhWU41TkdLSGRSRHVsaGNvYkhDRE1icWl2aEhSSGRPMzFWUEJFWnBJa0I1Sm1HOTFlMVN1OVk1M0lnMkp4ODYxZEd5R01SZ3RCT3FhOGI1RQ?oc=5) |
-| Storm Melissa reaches hurricane strength, threatening catastrophic flooding in northern Caribbean - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNeHZMX2VyTGFoVmszZXNZVVlTM3p1bkt3dTZBQ2ttTk1sb1g1VkNIMGRfSjJkQUo3RjloTnl6NUY3TjdUVjktS19sYm8xR2JteUwxN1FHMW9TNG9zX2xySEtOUFh2RWhhVzlRTEdLMnpxcEdGV2lvb3V2MmNyVEpQMWpwV1dtamlIMVN6SXFOXy1mXzhVUldGMFdjNEstY1NvMmlsbDdhUFpBZlU?oc=5) |
+| Hurricane Melissa could be Jamaica's most powerful storm in history - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQZ1FwR3FSeDJYc1M3YXhJV1VvaDczVjFUUVpJc05jU3pUcUN2RGFGUDZVQXc0akVvWlA0ZG1CZnhOUFJEQUF3LWZwU1FYZTE3OEFTb1VCNVJwVExtUi1xN1dRWWRKSk9PLWNGbnFvbFFYejJ6eWQxakRTaHc1ZGpoTTJLTGlKZ0NpMk54WGRBcEpkV1ps0gFWQVVfeXFMTy14TFVaTEN3ak4yYWtfVjZLcUhzWllZVzFjYXdDSHY1SnRGUDJOT0xwS2RUcU5KRVN1Y3ZGM1FBY3ZZUTJlVEduRURWM0phSWhiRUNydlE?oc=5) |
 | Keeping the House Absent, Johnson Marginalizes Congress and Himself - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPU3JPOGVqMG9WV1JkZTJjVlVtRGVMUW9rQlFLZ2NOeUt4bUNlV1NzZmZoNlVvYVNSc3h0RjhvSzIyVm1MMnRhbmtSNVVISmxpQXRacFRmVERCSldQNHBLVWt5WndVbkdtQmxjZ2lncE1NTlNXaUJNQ19tQTg0ck1SZU9paVJGR20y?oc=5) |
 | Shootings at a party in North Carolina kill 2 and critically injure several others - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNRUhYdkZmaU9VNDB1ckJwcG15SDVKQXJHRXdzeTVldHllVmZZLUxtc2gzQ0JtclVpdDE5dGxYLXh1LV9vNW92X09JN043YURoU3Y1cE1MbDJ6ZGFHUHBMbWtVUUYtR0NmaWhFeVhXU0dyREJic2NYeThDNWg5dnZoeGFPVWdXYnd3dVp5aTA3d2xiTlV2UW8zdU1DX0w?oc=5) |
 | Honduran man killed on Virginia highway as he tried to escape ICE agents - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOTk5qRjBZbmlKUjM0M21RTWNWODhiT0FJeGFDQ3ctLUJNcGRmWmN5WWo1ejZiVmI3QnZncm5mMElvcjNrSEpHMnVta2E2aHRDUnFYd24xZGFmM1VXYWp2MlpEc2UyNTJuX0hDZkN4MUs2MmhRRkFQR0llendyUFRZd1NySmo0OE9VOW9vSTd30gGTAUFVX3lxTE8xa2ZJMmJnMEFqX0ZwX1Z6cl9RQzl1dFppYVVuUGx3ZkVHMlg0d2g5ZG1pdUVLekhvSnBaTzgteVNKOHNaLThPT3h6VTQwNkRIZ1Jhd0VQYllSM3BGTnVZenVfMUM5bWFzWmFrYW51ZWc3U2ZqcGF1MWRBR19GMXFReXZYbGZYclk0M1laeXlHNXoxYw?oc=5) |
