@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 15:08:20（北京时间）**
+🕒 更新时间：**2025年10月25日 15:16:44（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Exclusive ｜ Inside the Tech CEO Campaign to Stop Trump From Sending Troops to San Francisco - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNamJUOElnNFJuS1BpM2pRTHJMcFdXVFpUNGVQRk5zYTRKNXFzYUpMVXVaRnk4ajBTU1I0T2g1ajhleTFqa2ZlbXZiNmNHS3BuVGtGWXJ5Q2FJSFprNF9xckY4eWZ1cGVwTnd0Q0dnZ3dpVVduMDVtZ1lPS2Vuem9oSw?oc=5) |
 | US sanctions Colombia's president, accuses him of allowing expansion of drug trade - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOM0hSRWdhcTZXY3ZSb0dsQ2dIQjQwVjNuVTVZZFJwRV94aXEwNUxBWk40aWJ2eHBLdmhnS2Z3YzhiR1JRNEVBNlE2Mi1McFJ4N3JTUWNaQmJxZ1RIZE9vakVTMS1nSUwwSDNOSnlGQUJqVEozRldJR3Q2cHVacG1vbzdWNHBCaHFZTVM2SFZxd3pORTBQd083TVRjLWNsbUlhZURNemZBU0huRUFxTUs0?oc=5) |
 | Immigration Crackdown Spreads Through Chicago, Including Wealthy Neighborhoods - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNV21SVkFGOTFKaUd5Wl9laTBtR1VHQWFpREpFclFXanNjSXF1VlU0X2s3RzBKX1FFcnBVa2k3VktBeDltbGRyT1prbkxQTUlwNDJpM3FTRHdrcGU2MnVKalJIZVNHQVpGN3lQUjRNbjNfOWZnN1g0bUFPU09KQWZyUjUtWldlTjU1aTVWS2h2Sno?oc=5) |
-| Shots fired, driver hurt and held after truck rams into Coast Guard base in California - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQX3NnV1FwLXkycTdKdUFrQlhzV3pHVWpSVC1sbzdSSHgwSFN4eFZxM20ySzF5RDJqT0I1VXRsNTBpNXNadUozdENtdEk0d0loMFExT24tVkJqNWp2ZzZ5ZVJ6elYtb3kyRVFJejN2ZlBIRC00amFqYU5ncWxaTlBxSmJRTkhYSl92eTQ0aTFlNk9xbUhIZEVpS1Ffb1hVbHQ3anFnb3Q0VlUxTjE5V1BFNzZfWQ?oc=5) |
+| Video shows security opening fire on U-Haul truck outside Coast Guard base in California - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNSk1EZzF5bzFOZUtsWDNQQV9weTJtRHhsc2ZETWJRd1NWbnllQTdKVnVIQzVSMk9KNDRhdzdIOC0zMDBGeVl3dFR0akpJdXZRYkpLbzhEaGFsXzlleW5zUXlhZUtCZzVHV09Ha3B3SDRHdlJaeXA1Z0kxeFNlamFocDh2blQzcVg0U1JhME5aRQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
