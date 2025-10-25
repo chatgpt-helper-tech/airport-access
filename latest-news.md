@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 23:00:32（北京时间）**
+🕒 更新时间：**2025年10月25日 23:09:04（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Trump administration says it won't tap emergency funds to pay food aid - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPclR3cF9XWjNtRERuLUlLN2ZBQktsUTA5MHFmWUFOYUd5SzdPWGxzU3JOOFRWU2RZWnc0X0NEVGE0eER5R3FkS00yMXRIc2ZzeUQwMTVVZTA3Z1BWRHJJNGxtWUFlNUlOaER5VFViX0FEOEUxbFJUOXluNjAzVGNlQ2NiMA?oc=5) |
 | Trump was planning to send troops to San Francisco. Now he’s not. Here’s why ｜ Joe Eskenazi - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNekNyeFlsRUd3Uk9rZTRVVnZCVjloazhWRFRDOW9xdUVVY1EzMlBOT2M3Zm91cjFzY08tblM5RVhqdXVJSE5keGI0MFBhOFo3ZG5VcW9pSFdEVmRmRzJuMVNSSkE3LXQwYUhMelBLNWU3LWxjV0wtZjRKenBMZlRHb1RJUmFOTG8?oc=5) |
 | The shutdown layoffs at health agencies followed a familiar, DOGE pattern - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQazRLdjZxWi1pNXNUOWpQZ1Q2RXNUR0pKVDlRckdzdnFOTG5mTE03M2J1WjBUanpnUXoyeEI5TjZCSDlIMXRRYXQwNGtBZnRyOHg0ajliNHk3QkZJaEthemlRVFRpaDhMM2U5QThQUERuSm1KMC1LN0txb2k1WXR2dEJYLVkzLV9fZmc?oc=5) |
-| An Obamacare Hot Spot Where Price Spikes Pose an Outsized Threat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOSm14aTlERlE5dmlqMVZPVUFQdU1VMFZkR2dqcmxBS0E0ejhhb0xaWmxrX2V2bk5SVV8wZVlsMGdrSkJqTmNjc1I2eWxKS1dhN3JIdzgyM0drVU1zaTFraVduQ2UtOWtUNzB0MmM2MjZ4TjcyVFBUXzNIUmxDRjBNX1RZWFJvVUNtV3FfbTY5RTh1dEhSZVM5VE15RnFEUQ?oc=5) |
+| In Florida, Obamacare Price Hikes Pose an Outsized Threat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOSm14aTlERlE5dmlqMVZPVUFQdU1VMFZkR2dqcmxBS0E0ejhhb0xaWmxrX2V2bk5SVV8wZVlsMGdrSkJqTmNjc1I2eWxKS1dhN3JIdzgyM0drVU1zaTFraVduQ2UtOWtUNzB0MmM2MjZ4TjcyVFBUXzNIUmxDRjBNX1RZWFJvVUNtV3FfbTY5RTh1dEhSZVM5VE15RnFEUQ?oc=5) |
 | Pentagon deploys top aircraft carrier as Trump militarisation of Caribbean ratchets up - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNeDVYaFRlcGoxVHRkbEd3bmd4eUxmcHRyS1pKX1Z5eTFZSm4zOXBSWkZCWjVyQjJ3dTBod1BTaXNaUm5aM19kRTBfTXVScjZ5aWFDS0M0blpaWWhtcGdIOEZDNEhnaUtfbUR2MWJCVUNJdUlLZW9zRkJZOGFwOE9zelprQjlYU1hBUURrczlRaWo?oc=5) |
 
 ---
