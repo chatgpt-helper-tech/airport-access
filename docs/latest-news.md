@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 00:01:59（北京时间）**
+🕒 更新时间：**2025年10月26日 00:09:13（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | US could hit Russia with more sanctions to end Ukraine war, but first wants Europe to increase pressure - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxPQXhaTWNUMWpZaXNtcE83YVIzeWt6d2MwaGZnYVU4WU9fM3BIWTJWSUJPczdxamhlRkNtSG1BbVNTQk5QTWZSaENaVjZBLWhZWkt2RTY5RVdYT2xjV3RuOXZ1SDJwbFpwVHZWUUU0U3VpVTFUUE44MGxub0RPcXFYU1M4c3ZQdm9FcGVibnBJS0JPaWk2TVZ5STBDU3ZkaW5wcmZZR0ZaOGEzTURrMVVROWN3OFN4cnROc2Zfand5SjBUYkVDdFE?oc=5) |
 | Early voting starts for New York mayoral and New Jersey gubernatorial races - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPTE16VUYtSXRCOEd0bS1qNkp0SzNjNHJnc2wxTVNDdjh2YUNoSE4wdWRNczJSbDNhOUlteHlQRWtwUGNsY2l3ekpsNGR2N3hISmFBTlAtSk81elh2Qno4Z3FOSWtKRTNPS3M0ZHZUTjhsTWhvWU9fX2JkTXU1dk1PdFhocXdxWGs?oc=5) |
 | Shooting at a party in North Carolina kills 2 and critically injures several others - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNS2tFTGxlWjNSUXJZMVA5b2huQ251VzJxLUJ2QkdiaDlsQVBzaEQzRTlPZ3R4VXlDZ0hNWG1kZzdYWDRULUFDY20zSUZhb1V1Vk1aUl81dkpCaWE4SnFfNFprcXk2Yi1rdXQxdnRjT1dtcEZZSk9kRHJSNGNTQUl6OUNlZkFRMGtCd0JfU2p5em1ScGNleUo0cjMzZ0R1WC1mVVRtTdIBqgFBVV95cUxORFUyb2xnX01NMF9yeFFTVHhMejUtX3pSU1ZyMnpEaXZ1YVdxa3lmZTRJS1NmeWFSQm95SHlJejFaMGc0YXJtVUVuTmVBTVp4ZmF2UlhwTWFITjJlNzZEOS1TemN5Z0NhbEFEUVRlbHhjMjQ4Q0l1U2NIM0FaLW9kcTdwRFNMc2wydV8zQ05tcmFBaWRMa21HTWZsZXpDV1BVY0JUSHMxa1lCZw?oc=5) |
-| Vought promised to use the shutdown to shutter the bureaucracy. It didn’t go as planned. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQazRLdjZxWi1pNXNUOWpQZ1Q2RXNUR0pKVDlRckdzdnFOTG5mTE03M2J1WjBUanpnUXoyeEI5TjZCSDlIMXRRYXQwNGtBZnRyOHg0ajliNHk3QkZJaEthemlRVFRpaDhMM2U5QThQUERuSm1KMC1LN0txb2k1WXR2dEJYLVkzLV9fZmc?oc=5) |
 | In Florida, Obamacare Price Hikes Pose an Outsized Threat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOSm14aTlERlE5dmlqMVZPVUFQdU1VMFZkR2dqcmxBS0E0ejhhb0xaWmxrX2V2bk5SVV8wZVlsMGdrSkJqTmNjc1I2eWxKS1dhN3JIdzgyM0drVU1zaTFraVduQ2UtOWtUNzB0MmM2MjZ4TjcyVFBUXzNIUmxDRjBNX1RZWFJvVUNtV3FfbTY5RTh1dEhSZVM5VE15RnFEUQ?oc=5) |
+| Trump administration says it won't tap emergency funds to pay food aid - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPclR3cF9XWjNtRERuLUlLN2ZBQktsUTA5MHFmWUFOYUd5SzdPWGxzU3JOOFRWU2RZWnc0X0NEVGE0eER5R3FkS00yMXRIc2ZzeUQwMTVVZTA3Z1BWRHJJNGxtWUFlNUlOaER5VFViX0FEOEUxbFJUOXluNjAzVGNlQ2NiMA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
