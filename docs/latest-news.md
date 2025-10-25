@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 02:57:43（北京时间）**
+🕒 更新时间：**2025年10月26日 03:01:13（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | 'I am not done' - Kamala Harris tells BBC she may run for president again | [阅读全文](https://www.bbc.com/news/articles/cx2n7k2veywo?at_medium=RSS&at_campaign=rss) |
 | Lucy Powell elected Labour's deputy leader | [阅读全文](https://www.bbc.com/news/articles/c620g2gj0x5o?at_medium=RSS&at_campaign=rss) |
 | Parents urged to vaccinate children over half-term as flu cases rise | [阅读全文](https://www.bbc.com/news/articles/cpwv7yw4dz9o?at_medium=RSS&at_campaign=rss) |
+| Connolly declared president of Ireland after landslide win | [阅读全文](https://www.bbc.com/news/articles/c4gk2kml122o?at_medium=RSS&at_campaign=rss) |
 | Can 'miracle mineral' magnesium really help us sleep? | [阅读全文](https://www.bbc.com/news/articles/czxn1qxrr32o?at_medium=RSS&at_campaign=rss) |
 | Will Lucy Powell's win turn things around for Labour? | [阅读全文](https://www.bbc.com/news/articles/cly9g1vnjqjo?at_medium=RSS&at_campaign=rss) |
 | Gaza children dying as they wait for Israel to enable evacuations | [阅读全文](https://www.bbc.com/news/articles/cze61zg7zzpo?at_medium=RSS&at_campaign=rss) |
 | How to cope with long winter nights when the clocks go back | [阅读全文](https://www.bbc.com/news/articles/cn4jyrzxmzgo?at_medium=RSS&at_campaign=rss) |
 | Learner drivers face dilemma of whether to choose manual or automatic | [阅读全文](https://www.bbc.com/news/articles/c1wgpr40jeno?at_medium=RSS&at_campaign=rss) |
 | Britney Spears said she was used. Kevin Federline says she needs help | [阅读全文](https://www.bbc.com/news/articles/c620z3gkrnvo?at_medium=RSS&at_campaign=rss) |
-| Met Police reviewing 9,000 grooming cases | [阅读全文](https://www.bbc.com/news/articles/cvgv5vdqzdko?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
