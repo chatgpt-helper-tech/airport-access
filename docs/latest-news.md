@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 21:33:38（北京时间）**
+🕒 更新时间：**2025年10月25日 21:40:37（北京时间）**
 
 ---
 
@@ -29,7 +29,7 @@
 | Keeping the House Absent, Johnson Marginalizes Congress and Himself - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPU3JPOGVqMG9WV1JkZTJjVlVtRGVMUW9rQlFLZ2NOeUt4bUNlV1NzZmZoNlVvYVNSc3h0RjhvSzIyVm1MMnRhbmtSNVVISmxpQXRacFRmVERCSldQNHBLVWt5WndVbkdtQmxjZ2lncE1NTlNXaUJNQ19tQTg0ck1SZU9paVJGR20y?oc=5) |
 | DOJ prepares to send election monitors to California, New Jersey following requests from state GOPs - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQVHFwNWxHMWVOMzNQQ2oxUXVZbGNHQVNyNzVCUzhSSWpEQ2J0dnB0YzR1aTd0MHpkdEp0OGE4TXVuMHlOQllWMi1oT2JKbGk2Nm91aVVZdzV2QUI3a1A0bHZCVHloY0loa2dPWUtJd0t3Slg2end1T2FkWHVPUnhPaHk3MmJFcHplVndNdy1sYWZPNGJuWTY5NTBZSzl3cGNZUVB4b2dPLXE0UWxwQTdn?oc=5) |
 | Trump administration says it won't tap emergency funds to pay food aid - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPclR3cF9XWjNtRERuLUlLN2ZBQktsUTA5MHFmWUFOYUd5SzdPWGxzU3JOOFRWU2RZWnc0X0NEVGE0eER5R3FkS00yMXRIc2ZzeUQwMTVVZTA3Z1BWRHJJNGxtWUFlNUlOaER5VFViX0FEOEUxbFJUOXluNjAzVGNlQ2NiMA?oc=5) |
-| Trump was planning to send troops to San Francisco. Now he’s not. Here’s why ｜ Joe Eskenazi - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNekNyeFlsRUd3Uk9rZTRVVnZCVjloazhWRFRDOW9xdUVVY1EzMlBOT2M3Zm91cjFzY08tblM5RVhqdXVJSE5keGI0MFBhOFo3ZG5VcW9pSFdEVmRmRzJuMVNSSkE3LXQwYUhMelBLNWU3LWxjV0wtZjRKenBMZlRHb1RJUmFOTG8?oc=5) |
+| Exclusive ｜ Inside the Tech CEO Campaign to Stop Trump From Sending Troops to San Francisco - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNamJUOElnNFJuS1BpM2pRTHJMcFdXVFpUNGVQRk5zYTRKNXFzYUpMVXVaRnk4ajBTU1I0T2g1ajhleTFqa2ZlbXZiNmNHS3BuVGtGWXJ5Q2FJSFprNF9xckY4eWZ1cGVwTnd0Q0dnZ3dpVVduMDVtZ1lPS2Vuem9oSw?oc=5) |
 | Pentagon orders aircraft carrier to Latin America as Trump signals escalation - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNZkNtUGhEamFEMXdvRDRyY3Bici1DTkR5NEdDak5YZ1FyRnRfcTNDYXp4bzRnM243M05ULTJFY0w4NVFWaTdXbE9iVGtFTFF0a1ZDWV9SYlhYbkoyWURrUzdJQmZGUEQxNlNMZHBZa3BIRGJYT2xyLUs2dlRyMVlUX3pEUmNtamJNZFhBQUlNM25GaGJjalItRi1OblpScG15X05HS0pDZGIwS1U?oc=5) |
 | The shutdown layoffs at health agencies followed a familiar, DOGE pattern - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQazRLdjZxWi1pNXNUOWpQZ1Q2RXNUR0pKVDlRckdzdnFOTG5mTE03M2J1WjBUanpnUXoyeEI5TjZCSDlIMXRRYXQwNGtBZnRyOHg0ajliNHk3QkZJaEthemlRVFRpaDhMM2U5QThQUERuSm1KMC1LN0txb2k1WXR2dEJYLVkzLV9fZmc?oc=5) |
 | An Obamacare Hot Spot Where Price Spikes Pose an Outsized Threat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOSm14aTlERlE5dmlqMVZPVUFQdU1VMFZkR2dqcmxBS0E0ejhhb0xaWmxrX2V2bk5SVV8wZVlsMGdrSkJqTmNjc1I2eWxKS1dhN3JIdzgyM0drVU1zaTFraVduQ2UtOWtUNzB0MmM2MjZ4TjcyVFBUXzNIUmxDRjBNX1RZWFJvVUNtV3FfbTY5RTh1dEhSZVM5VE15RnFEUQ?oc=5) |
