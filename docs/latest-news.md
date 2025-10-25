@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 01:56:28（北京时间）**
+🕒 更新时间：**2025年10月26日 02:00:39（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Trump's $130 million mystery donor is Mellon heir: NYT - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNVkMwd2JyWkVDZzN1X2Vvemgwb21ENGZ6WU5kT0ctcXhyLTc1RDdDZW1uTXF5aUp4QWRPTU1XeVhLeXZ0LUI0U0RZenNacVdwLVRvQWJESXRrRXgzLWVsMWhMR2pEcGN6Wmo5ZGp4cW51WGs4RDhLVGJ0RXFiSl9CLUVDMGJWQTJWU0FoSk9HV1lBT1hWOG800gGcAUFVX3lxTFB2YzdsZU5TZzZtdWo4UDZvWXlZN0ZkZjdLdnMxRENzSUNjd3hKZGxoYnA3ZjFDOTBnaXYzTTRKQ0pDSlNOZ29mczFGTjVDblZ0YU9zb3V3X1ZQOFhIaWo5WHl4TGZWb195bzhqWEtzbTJlZWQ0anZzT2J6Qk5JcndxNHRLUE9MbVJtRDZxd2NCR3hCa1UwS0lCWGJmTg?oc=5) |
 | Trade tensions hang over Trump's Asia trip, but he still aims to make a deal - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE41bGR5YWdXNWo1Yk9LTnhObG5GYkdoQURVZ3NHRUJuZEFTYlJGSWhIX09SVVhPaWNhLVNMU0ZsQjZ1T2lKajNpT29oREx1WVV4S2lyYW9HUnRHWW1URGpJRV9FdFMxMEM1Ym83NXlsVzJvN0htR0czWDFB?oc=5) |
 | Kamala Harris Suggests She Is Considering Another Presidential Run - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNQWp4RjY2elZ6UEc4ekxxQ3BTMnhIVW1KZjlsT1ZlWm5IWDVSdEZBT0JONzFEcldPRFJkRnV4UHdLRjV6SkxKRmd1bndmS25yWWtwRDhRLWozS1dnMWdCTVlQWHEwcXJHSjJSLUFVaDRWR3JJNDlvTGhDRUowY05MN0ppYXpPd0JVdGpz?oc=5) |
-| US could hit Russia with more sanctions to end Ukraine war, but first wants Europe to increase pressure - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxPQXhaTWNUMWpZaXNtcE83YVIzeWt6d2MwaGZnYVU4WU9fM3BIWTJWSUJPczdxamhlRkNtSG1BbVNTQk5QTWZSaENaVjZBLWhZWkt2RTY5RVdYT2xjV3RuOXZ1SDJwbFpwVHZWUUU0U3VpVTFUUE44MGxub0RPcXFYU1M4c3ZQdm9FcGVibnBJS0JPaWk2TVZ5STBDU3ZkaW5wcmZZR0ZaOGEzTURrMVVROWN3OFN4cnROc2Zfand5SjBUYkVDdFE?oc=5) |
+| Keeping the House Absent, Johnson Marginalizes Congress and Himself - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPU3JPOGVqMG9WV1JkZTJjVlVtRGVMUW9rQlFLZ2NOeUt4bUNlV1NzZmZoNlVvYVNSc3h0RjhvSzIyVm1MMnRhbmtSNVVISmxpQXRacFRmVERCSldQNHBLVWt5WndVbkdtQmxjZ2lncE1NTlNXaUJNQ19tQTg0ck1SZU9paVJGR20y?oc=5) |
 | House Minority Leader Jeffries endorses Zohran Mamdani - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNczI2bWdMTjFjUjRUem1fUThjTkNGRVRjZ0s2VS1aeFFNVlBtLXlYbWV1QmZXRXVlWnVSS3p3WW1KRHRHSjN3UDV1dm1UVUNtQmVzR0ozc0s1MXpyenRVc0RxR1BjNUFZbWlHWmJNMFd4ZGxUQ3B2MXo1a0MtbGhtN0pzQ3B2UDVRRXpLZlZBRkp1NHhPZXRjN2lR?oc=5) |
 | Early voting starts for New York mayoral and New Jersey gubernatorial races - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPTE16VUYtSXRCOEd0bS1qNkp0SzNjNHJnc2wxTVNDdjh2YUNoSE4wdWRNczJSbDNhOUlteHlQRWtwUGNsY2l3ekpsNGR2N3hISmFBTlAtSk81elh2Qno4Z3FOSWtKRTNPS3M0ZHZUTjhsTWhvWU9fX2JkTXU1dk1PdFhocXdxWGs?oc=5) |
 | 2 killed, 7 in critical condition in North Carolina mass shooting - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPVXZnREdRd1l1S3o0RmNvTzY2Qjh3ZkFhZDdLOVNndU9Kd1VZem9rRmRoMjZnZXd0elZBcGFOZTNiRThzRzFaZGd6OUlzQ1hub3M3TnhLUno5MUJGNTMxQ08tY2RuNFd1bGhQa1ROLXJKcDNZSlNTM0YxYXBiRTNFNHhfX19HZGlUWTFHb25sM2tsOW8yMzVrZXZ30gGfAUFVX3lxTE0tWjVfc3c1QjhTRXJSY3RpZ2owd1hEZUl4ZDhMSlRkRG12c3lFNzFqYmJsQnpMTjhERllZWUR4WTF3UmVjTmU2dy1SaGpOVXB4dm9TR1owUjdWdTBadGhSWldpV3dUZ1JZV1dpdFNRZk5TT2sxRnpaRXhVbldUaHlfa2pKaG9IS080aXRibEN1QTJpbk1tUFFvWmRnV0dScw?oc=5) |
