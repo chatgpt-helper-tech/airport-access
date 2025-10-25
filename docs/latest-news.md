@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 22:49:33（北京时间）**
+🕒 更新时间：**2025年10月25日 22:57:15（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | Trump's halt of US-Canada trade talks could impact these prices - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPbVBqRGpRUjcyb1dFalM1aGgzZzk2anZEUm9nWUg5VzRwTFFKWDl5akZjNXFtMW5UenQ3NkhGUUw4LUNnMkNsRmlIeERiclJoTDhrSGN3eW5DWl9hQTZhLV85UHA0d2lBRDVkRE9OZmxkYmJHNGMxSDdaRXFGWFo4cGJYUENYSFozVHNqSlBvUF8tNUREN082UHlDbWVCTE3SAaQBQVVfeXFMTmNwU0QyRmhQb0pudVhseWxtNmxBa1RaVTR0a2FkdEdhbVlqLUVYVmJiT0VBb25EbTFaR3NNZGJ3c0ZINndOWm1JcUZyT0ZkMTk0Yllfd0lTaW5NWU96RHF0VGVET056cWFKVlNyOGF3UjNEMS1kOXA4U2dmSlowUmlnMWVidEk4TnFZQlREc2pnMzA5bjg0dy1ibTh6TENYeHVHY00?oc=5) |
 | Can DoD use private funds to pay troops during shutdown? - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQcHFFYkNwemJFcXFFM2Z5MDRTQXdCWnpFT2Q4cmRucEU5OTJwTXBnWmlmRlpvOWZjbk91d3A4UzBMTl9NS0UzZmQ2VThrbWg0UHdvN2c2aHRBWHpLTzJKZGp6dGN6V0JCa091Q0hKZ2RPYWVEeDZrQURPRGhxUUY5MHB5ZGZkMDBFWlFTQjI5UDEtUTQ5b0Q2aktWTWZpak45QlhQNjdKZmpSRlY5WW1HR3Bxb2wwQQ?oc=5) |
 | Keeping the House Absent, Johnson Marginalizes Congress and Himself - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPU3JPOGVqMG9WV1JkZTJjVlVtRGVMUW9rQlFLZ2NOeUt4bUNlV1NzZmZoNlVvYVNSc3h0RjhvSzIyVm1MMnRhbmtSNVVISmxpQXRacFRmVERCSldQNHBLVWt5WndVbkdtQmxjZ2lncE1NTlNXaUJNQ19tQTg0ck1SZU9paVJGR20y?oc=5) |
-| Justice Department to monitor polling sites in six counties in California and New Jersey - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNbUFaYk8wajQyd3N3MVE0QlNjZWtYM3NOdkd2c3FDc1YyQlM2R2c2enlTNVo1SElXaEJqcXF4aDQ3cTEzTXpJRWg4ZXVrS2tsaTNaaTJDZDR6eGloRy10OThqRVgxeVlzQzRPU2tudmlnMDV1T3FZM0RrbmNVNnVkdjJTMHFtN3pfUWduNDRabUE?oc=5) |
 | Trade tensions hang over Trump's Asia trip, but he still aims to make a deal - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE41bGR5YWdXNWo1Yk9LTnhObG5GYkdoQURVZ3NHRUJuZEFTYlJGSWhIX09SVVhPaWNhLVNMU0ZsQjZ1T2lKajNpT29oREx1WVV4S2lyYW9HUnRHWW1URGpJRV9FdFMxMEM1Ym83NXlsVzJvN0htR0czWDFB?oc=5) |
+| Exclusive: USDA says it can't use emergency funds for food stamps - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQV3RIYUxJaWxLY3NoM0NTQ2NCNjdDNGhPcldyZ21HQUlXTGFUZXNVaEFFOWt6T3lPeWl6aXN3VWNtSTVVUXJuUWtRa0I5SnlNS3JuanVaSU1qUDNGZllwd2lQRmdIbWIzemdGNnJZbjMzZjFIeTYzUDF6UkpXTWloSA?oc=5) |
 | Trump was planning to send troops to San Francisco. Now he’s not. Here’s why ｜ Joe Eskenazi - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNekNyeFlsRUd3Uk9rZTRVVnZCVjloazhWRFRDOW9xdUVVY1EzMlBOT2M3Zm91cjFzY08tblM5RVhqdXVJSE5keGI0MFBhOFo3ZG5VcW9pSFdEVmRmRzJuMVNSSkE3LXQwYUhMelBLNWU3LWxjV0wtZjRKenBMZlRHb1RJUmFOTG8?oc=5) |
 | The shutdown layoffs at health agencies followed a familiar, DOGE pattern - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQazRLdjZxWi1pNXNUOWpQZ1Q2RXNUR0pKVDlRckdzdnFOTG5mTE03M2J1WjBUanpnUXoyeEI5TjZCSDlIMXRRYXQwNGtBZnRyOHg0ajliNHk3QkZJaEthemlRVFRpaDhMM2U5QThQUERuSm1KMC1LN0txb2k1WXR2dEJYLVkzLV9fZmc?oc=5) |
 | An Obamacare Hot Spot Where Price Spikes Pose an Outsized Threat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOSm14aTlERlE5dmlqMVZPVUFQdU1VMFZkR2dqcmxBS0E0ejhhb0xaWmxrX2V2bk5SVV8wZVlsMGdrSkJqTmNjc1I2eWxKS1dhN3JIdzgyM0drVU1zaTFraVduQ2UtOWtUNzB0MmM2MjZ4TjcyVFBUXzNIUmxDRjBNX1RZWFJvVUNtV3FfbTY5RTh1dEhSZVM5VE15RnFEUQ?oc=5) |
-| Trump administration says it won't tap emergency funds to pay food aid - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPclR3cF9XWjNtRERuLUlLN2ZBQktsUTA5MHFmWUFOYUd5SzdPWGxzU3JOOFRWU2RZWnc0X0NEVGE0eER5R3FkS00yMXRIc2ZzeUQwMTVVZTA3Z1BWRHJJNGxtWUFlNUlOaER5VFViX0FEOEUxbFJUOXluNjAzVGNlQ2NiMA?oc=5) |
+| Pentagon deploys top aircraft carrier as Trump militarisation of Caribbean ratchets up - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNeDVYaFRlcGoxVHRkbEd3bmd4eUxmcHRyS1pKX1Z5eTFZSm4zOXBSWkZCWjVyQjJ3dTBod1BTaXNaUm5aM19kRTBfTXVScjZ5aWFDS0M0blpaWWhtcGdIOEZDNEhnaUtfbUR2MWJCVUNJdUlLZW9zRkJZOGFwOE9zelprQjlYU1hBUURrczlRaWo?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
