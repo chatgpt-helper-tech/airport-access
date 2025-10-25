@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 04:24:09（北京时间）**
+🕒 更新时间：**2025年10月26日 04:33:40（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump backer Timothy Mellon identified as donor of $130m for US troop pay during government shutdown - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNVkI2aVhiRWJhUkdIZlRNUkNoNzN4UUVWT0p0aHlaS2ozeWVDYmdZX0Ixb2FRU0t5S013RnBpbGtjeG1CSGRVVHZqUFNXbzRXWmRPZWV6blVnSEVfV3BVemw0YkpnTWVTQ0pPWWs3OVMweUs5RHdhODczSVFFcUNObmd4Vl9vUkU5aUE0UGxDS2hmcFhN?oc=5) |
+| Timothy Mellon is Trump's $130 million mystery military donor: NYT - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNVkMwd2JyWkVDZzN1X2Vvemgwb21ENGZ6WU5kT0ctcXhyLTc1RDdDZW1uTXF5aUp4QWRPTU1XeVhLeXZ0LUI0U0RZenNacVdwLVRvQWJESXRrRXgzLWVsMWhMR2pEcGN6Wmo5ZGp4cW51WGs4RDhLVGJ0RXFiSl9CLUVDMGJWQTJWU0FoSk9HV1lBT1hWOG800gGcAUFVX3lxTFB2YzdsZU5TZzZtdWo4UDZvWXlZN0ZkZjdLdnMxRENzSUNjd3hKZGxoYnA3ZjFDOTBnaXYzTTRKQ0pDSlNOZ29mczFGTjVDblZ0YU9zb3V3X1ZQOFhIaWo5WHl4TGZWb195bzhqWEtzbTJlZWQ0anZzT2J6Qk5JcndxNHRLUE9MbVJtRDZxd2NCR3hCa1UwS0lCWGJmTg?oc=5) |
 | How Trump’s ballroom will dwarf the White House - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNMmNQMmRqNmk2aTJJbDdudXhnSmhMMW42Y00wWW9JNjAyRmk1QmZjZjJ2M293aDljaFpTS3hJSk1ZM1hCdmZTdXBnNzJOalM4ZTJxcktsbDJlbGd4czd0SmN0bC1uMEF4ZEVwdlFJWjBmaTl5dUNXckxYTVdSZDVIWGd4S3FlU1RnTnN1WE1Hc09xUQ?oc=5) |
 | Ontario premier provokes Trump's ire once again with Reagan ad - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxOTThFMFhlbHhCR0hjaXNuSmxvMjNOR0R6ekw4V1gwTkktS1FqQWZDVW9ETHI2QmU3eWFZXzBFaFdJcDZoS3FmOFJSLTlobnFuaEZRX0dDUDZvaEREdDJpMGdla3h2dnBKQWxWdnI5aXVVR2lXNjhrMDU4M3BrcjFRRUV4czdSWUN1SGRZOEdsVnVleWNLT0J5RWg1MDZfZjMtbS1nUDZiOU5JcVNBZFg1VkpQWGdwNFVYMjUyWg?oc=5) |
 | Trump heads to Asia with trade — and tensions with Xi — on the agenda - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQaVk0M0h3Tm0tOU1PVDVqeFU0LUR5bHBvc3hPc2dvTk1rSTIzQWpjZkRrMWUzWEpNNjVybWxMMkl4aFlPVGpjV1oyVWVEMU9MTEV5UE9ZamJYdXQxclp1cEEzVmZBNjA4M0FoNGNnYUUyZXFXUC05V3VxTFVKSllMUVE4dy1xV0pLY1ZUVHhJTjlTY3lleFU0d3JURm1tMzlpRzE3SnlUTURIUVBUdUhqTXNR0gFWQVVfeXFMTndyN2dhY0oxSjFVSm9OaXphYVRpdWJfekVLN2tVUGV0TnBJWXZrMGd6Si14bmFMdmVLcTF5SW96VFUzV3FiRWtvV2w1ZTZPM0U1Q0lIZ3c?oc=5) |
@@ -31,8 +31,8 @@
 | Keeping the House Absent, Johnson Marginalizes Congress and Himself - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPU3JPOGVqMG9WV1JkZTJjVlVtRGVMUW9rQlFLZ2NOeUt4bUNlV1NzZmZoNlVvYVNSc3h0RjhvSzIyVm1MMnRhbmtSNVVISmxpQXRacFRmVERCSldQNHBLVWt5WndVbkdtQmxjZ2lncE1NTlNXaUJNQ19tQTg0ck1SZU9paVJGR20y?oc=5) |
 | Shootings at a party in North Carolina kill 2 and critically injure several others - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNRUhYdkZmaU9VNDB1ckJwcG15SDVKQXJHRXdzeTVldHllVmZZLUxtc2gzQ0JtclVpdDE5dGxYLXh1LV9vNW92X09JN043YURoU3Y1cE1MbDJ6ZGFHUHBMbWtVUUYtR0NmaWhFeVhXU0dyREJic2NYeThDNWg5dnZoeGFPVWdXYnd3dVp5aTA3d2xiTlV2UW8zdU1DX0w?oc=5) |
 | Honduran immigrant dies while fleeing ICE, bringing raids death toll to three - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNVThuZWxQS085c29DZXdSd09iOHNLQWNsQlEtei1kaUhUUmVyQ2dDZEU4bm96SWo4aGczTVlFaC0xcHVZSzZyMXNBME40M2V2TzhWRWExSk9rV056ZVVjeFRpTndLTENndW9BYWd2WDdhUndKOFlMYkRxdDN0OTRwSUpYRkhJV0xWcGpnUGxHVHpSYmV6?oc=5) |
-| House Minority Leader Jeffries endorses Zohran Mamdani - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNczI2bWdMTjFjUjRUem1fUThjTkNGRVRjZ0s2VS1aeFFNVlBtLXlYbWV1QmZXRXVlWnVSS3p3WW1KRHRHSjN3UDV1dm1UVUNtQmVzR0ozc0s1MXpyenRVc0RxR1BjNUFZbWlHWmJNMFd4ZGxUQ3B2MXo1a0MtbGhtN0pzQ3B2UDVRRXpLZlZBRkp1NHhPZXRjN2lR?oc=5) |
-| In Florida, Obamacare Price Hikes Pose an Outsized Threat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOSm14aTlERlE5dmlqMVZPVUFQdU1VMFZkR2dqcmxBS0E0ejhhb0xaWmxrX2V2bk5SVV8wZVlsMGdrSkJqTmNjc1I2eWxKS1dhN3JIdzgyM0drVU1zaTFraVduQ2UtOWtUNzB0MmM2MjZ4TjcyVFBUXzNIUmxDRjBNX1RZWFJvVUNtV3FfbTY5RTh1dEhSZVM5VE15RnFEUQ?oc=5) |
+| ‘After 9/11, my aunt did not feel safe in her hijab’: Zohran Mamdani speaks to New York Muslims; JD Vance - Times of India | [阅读全文](https://news.google.com/rss/articles/CBMiigJBVV95cUxPUHY3c3ZvR1lrTHNURE1UOFpjYW0weDJfMnV1VHh6VjBZZVB2aHg2YThLWWxoWnhyNllXX2hqMXhET1JPZDVLWWg5NS1hNzJhSzdxaGpKaDI3NXdIUnA1NGcxcmpQelpyMlJvUk81NTdINGN0bk44SUlVelpuVHpzbGxIc0hZa0ZQTEl5UXVNS056N29ncVNyR19MU1ZOTXZqV244UnhpbkNRVHVjZ3RkWU41TFJYVlEtYTNDNmxMSXNqaEdORUFZbWRoRFhIVG9hNHNiVUdkbDB5R1JEWDdCaTNZR244N0tNVjNndy1JZTV2ZndGT0lRWFNEUEg2ZDAtOWFvNzhwa1IwUdIBjwJBVV95cUxQcXFxM1RUcWNydGNLRENSZkw4SjdNWTFxZXNMc2tLdHctZkhsOVhYOGRQZDJIc3B3VWVianR5aml2V0NfMThzUjFXQUJudUs4SXpMR3Y2clNMYXppNS1JOTZJVDRuVGo3b2ZUVllnQ2c1UkY1S1FtNnpKODE1UFExMEVuSXdXcnA0TmcxLUFYT2d1ODduMTYzYkZlc05PQ3ViYUxScTV4VFBlWWdYWlAzcDgwMG5tekk5eGoxeG9zQ0JWWUJvT3EwMnhyR1ZhbmRveURNcGtGREZ6bU83SjFsQkhqMWZFNjhRQTUxNDFYZ0Z5R1VDRjI2ai1qRXkxcFBZeXR1NG8xd0JKREo5eEFn?oc=5) |
+| Justice Department to monitor polling sites in six counties in California and New Jersey - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNbUFaYk8wajQyd3N3MVE0QlNjZWtYM3NOdkd2c3FDc1YyQlM2R2c2enlTNVo1SElXaEJqcXF4aDQ3cTEzTXpJRWg4ZXVrS2tsaTNaaTJDZDR6eGloRy10OThqRVgxeVlzQzRPU2tudmlnMDV1T3FZM0RrbmNVNnVkdjJTMHFtN3pfUWduNDRabUE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
