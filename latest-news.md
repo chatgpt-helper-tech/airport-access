@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 20:25:14（北京时间）**
+🕒 更新时间：**2025年10月25日 20:33:39（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Bill Clinton once called the White House movie theater the ‘best perk’ of the job. It was destroyed this week - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOMk9OSDFLM1pnSm9HeldwdHFZQ2wzN21wUV9vSFJxUnBDc0t2OF9NRi15dUZlc3FNMmFpeHpMa2Q2Y3k4ek5IMEY2T3Y4djQ5dmQ5cFZfQWM3OU9GdjNaWVZCRkR3UXlRTlZfNkJiTkpFYThYQVRQNXRTeGdGTVlqZmZSUmpCZWc?oc=5) |
+| What donors to Trump's White House ballroom stand to gain from the federal government - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQejY3YXZNTk02M2o3X3UwTFpteW1KU3RLamRYVW5HSnFwWGV0M0tNS0xtSmpiZFVaZ1JEaVZFTWVwMS1tRDBxVEdNaUJIcWhBbVdwUks4MlR3bGV2QnUwX0RSSnZXcXNjYnM2UUZ4LUl3cjBjU2JaTjhmbjFYUElTX2NRa9IBiAFBVV95cUxPeFpmQ0FTdU5HTndiRTNTVC1kS1EtaGJsZkFBeDBwMUxRR0xvY2R5clRJQlh3QU1kVnZhc3hxRTBQVTg3MG9GTzR5VnlvT004YVN3dnlQcnowMS13NTlMWXRFRWhzdWhfVjYzc2hsVUFpUVppOTVqUVhTMjBhc1Zrc3VHT0tXTzdM?oc=5) |
 | Pentagon orders aircraft carrier to Latin America as Trump signals escalation - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNZkNtUGhEamFEMXdvRDRyY3Bici1DTkR5NEdDak5YZ1FyRnRfcTNDYXp4bzRnM243M05ULTJFY0w4NVFWaTdXbE9iVGtFTFF0a1ZDWV9SYlhYbkoyWURrUzdJQmZGUEQxNlNMZHBZa3BIRGJYT2xyLUs2dlRyMVlUX3pEUmNtamJNZFhBQUlNM25GaGJjalItRi1OblpScG15X05HS0pDZGIwS1U?oc=5) |
 | Trump's halt of US-Canada trade talks could impact these prices - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPbVBqRGpRUjcyb1dFalM1aGgzZzk2anZEUm9nWUg5VzRwTFFKWDl5akZjNXFtMW5UenQ3NkhGUUw4LUNnMkNsRmlIeERiclJoTDhrSGN3eW5DWl9hQTZhLV85UHA0d2lBRDVkRE9OZmxkYmJHNGMxSDdaRXFGWFo4cGJYUENYSFozVHNqSlBvUF8tNUREN082UHlDbWVCTE3SAaQBQVVfeXFMTmNwU0QyRmhQb0pudVhseWxtNmxBa1RaVTR0a2FkdEdhbVlqLUVYVmJiT0VBb25EbTFaR3NNZGJ3c0ZINndOWm1JcUZyT0ZkMTk0Yllfd0lTaW5NWU96RHF0VGVET056cWFKVlNyOGF3UjNEMS1kOXA4U2dmSlowUmlnMWVidEk4TnFZQlREc2pnMzA5bjg0dy1ibTh6TENYeHVHY00?oc=5) |
 | Trade tensions hang over Trump's Asia trip, but he still aims to make a deal - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE41bGR5YWdXNWo1Yk9LTnhObG5GYkdoQURVZ3NHRUJuZEFTYlJGSWhIX09SVVhPaWNhLVNMU0ZsQjZ1T2lKajNpT29oREx1WVV4S2lyYW9HUnRHWW1URGpJRV9FdFMxMEM1Ym83NXlsVzJvN0htR0czWDFB?oc=5) |
-| Justice Department Will Monitor Elections in California and New Jersey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQb2w0X2lvRXJRWmFIUzhxQkRzY0pBblllNVQxMzgyem03eTA3VXdGUEVZMW1FNWFpRTFFNDVoOV8xWnNQZEJvVXVYUU45TXphc0Iwcl9xMHItSVRFbWdwN2ZSRENNWlBQT1owaGRaV1FuT1FuNXZicXhSRTl6OWNYekV0Y2NfQlRnamRDbnBTUjNUWDlhTlJDNUM0RQ?oc=5) |
-| US and China start trade talks ahead of high-stakes Trump-Xi summit - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBSSHQyYWMzS05Td1ItV0tFbjc3M25URnQtNklCS3VJR1FUX2NLc0RKRHlwcVo5TWE4djlhZXJXWnVfdWg0SXlldlJMc0RZUnREUS1KemRyOGdXSm95bDZoM1c2WFNwVlpBb2xXWEhQd2o?oc=5) |
+| Justice Department to monitor polling sites in six counties in California and New Jersey - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNbUFaYk8wajQyd3N3MVE0QlNjZWtYM3NOdkd2c3FDc1YyQlM2R2c2enlTNVo1SElXaEJqcXF4aDQ3cTEzTXpJRWg4ZXVrS2tsaTNaaTJDZDR6eGloRy10OThqRVgxeVlzQzRPU2tudmlnMDV1T3FZM0RrbmNVNnVkdjJTMHFtN3pfUWduNDRabUE?oc=5) |
+| Government shutdown hits Day 25 with no deal in sight - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNbnJOUFBPWkRiTHRfU0VVZnZ1Z0hrVHM5bmN0S2ZWc3JhRDE1Zm1jSWt1cFZGS1Y4ZFNtRVRFcFdJYjZqVEZvRkxvY01UVEpVMVN1UnBHaElpNG1vT1E2Tm9IR2tUOHJiMTEzd09WTXV2UXk4Y2U1c0cwLUgxQjh4RDg1TG7SAYoBQVVfeXFMUGFyWF9RbXlTbkE4cmZ5UDZhUXVXNUVlbFNVajdteUFTbGtxcFNCdExyeVJlcXFENDBhaVB0MXItTG9pWFhtTGRYdUxqMUplekNPOS1mN3RmOFAwQkM2NTJzWkVQSGZTb2hXa2Q0Y0ttUVBtY2Z6RmtHdTlfcWxIdzJwUE54MFMxMkV3?oc=5) |
 | Trump was planning to send troops to San Francisco. Now he’s not. Here’s why ｜ Joe Eskenazi - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNekNyeFlsRUd3Uk9rZTRVVnZCVjloazhWRFRDOW9xdUVVY1EzMlBOT2M3Zm91cjFzY08tblM5RVhqdXVJSE5keGI0MFBhOFo3ZG5VcW9pSFdEVmRmRzJuMVNSSkE3LXQwYUhMelBLNWU3LWxjV0wtZjRKenBMZlRHb1RJUmFOTG8?oc=5) |
 | Immigration Crackdown Spreads Through Chicago, Including Wealthy Neighborhoods - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNV21SVkFGOTFKaUd5Wl9laTBtR1VHQWFpREpFclFXanNjSXF1VlU0X2s3RzBKX1FFcnBVa2k3VktBeDltbGRyT1prbkxQTUlwNDJpM3FTRHdrcGU2MnVKalJIZVNHQVpGN3lQUjRNbjNfOWZnN1g0bUFPU09KQWZyUjUtWldlTjU1aTVWS2h2Sno?oc=5) |
 | The shutdown layoffs at health agencies followed a familiar, DOGE pattern - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQazRLdjZxWi1pNXNUOWpQZ1Q2RXNUR0pKVDlRckdzdnFOTG5mTE03M2J1WjBUanpnUXoyeEI5TjZCSDlIMXRRYXQwNGtBZnRyOHg0ajliNHk3QkZJaEthemlRVFRpaDhMM2U5QThQUERuSm1KMC1LN0txb2k1WXR2dEJYLVkzLV9fZmc?oc=5) |
-| Keeping the House Absent, Johnson Marginalizes Congress and Himself - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPU3JPOGVqMG9WV1JkZTJjVlVtRGVMUW9rQlFLZ2NOeUt4bUNlV1NzZmZoNlVvYVNSc3h0RjhvSzIyVm1MMnRhbmtSNVVISmxpQXRacFRmVERCSldQNHBLVWt5WndVbkdtQmxjZ2lncE1NTlNXaUJNQ19tQTg0ck1SZU9paVJGR20y?oc=5) |
+| Exclusive: USDA says it can't use emergency funds for food stamps - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQV3RIYUxJaWxLY3NoM0NTQ2NCNjdDNGhPcldyZ21HQUlXTGFUZXNVaEFFOWt6T3lPeWl6aXN3VWNtSTVVUXJuUWtRa0I5SnlNS3JuanVaSU1qUDNGZllwd2lQRmdIbWIzemdGNnJZbjMzZjFIeTYzUDF6UkpXTWloSA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
