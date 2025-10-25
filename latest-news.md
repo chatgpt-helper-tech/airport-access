@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 13:01:07（北京时间）**
+🕒 更新时间：**2025年10月25日 13:08:45（北京时间）**
 
 ---
 
@@ -10,14 +10,14 @@
 |--------|-------------|
 | Manhunt after jailed Epping hotel asylum seeker mistakenly released | [阅读全文](https://www.bbc.com/news/articles/cx2d5rl36vgo?at_medium=RSS&at_campaign=rss) |
 | Watch: Video appears to show asylum seeker after accidental release from prison | [阅读全文](https://www.bbc.com/news/videos/c0mxrnyj879o?at_medium=RSS&at_campaign=rss) |
-| Ukraine allies pledge to take Russian oil and gas off global market | [阅读全文](https://www.bbc.com/news/articles/c17p54edxljo?at_medium=RSS&at_campaign=rss) |
 | Venezuela's Maduro says US 'fabricating war' as it deploys world's largest warship | [阅读全文](https://www.bbc.com/news/articles/c891gzx7xn4o?at_medium=RSS&at_campaign=rss) |
 | Men jailed over arson attack for Russia on Ukrainian business in London | [阅读全文](https://www.bbc.com/news/articles/c04g5x1wq5vo?at_medium=RSS&at_campaign=rss) |
+| Gaza children dying as they wait for Israel to enable evacuations | [阅读全文](https://www.bbc.com/news/articles/cze61zg7zzpo?at_medium=RSS&at_campaign=rss) |
 | Thailand's former queen Sirikit dies aged 93 | [阅读全文](https://www.bbc.com/news/articles/cp8ed1ednjdo?at_medium=RSS&at_campaign=rss) |
 | As Strictly is back on screens, bookies take bets on new Tess and Claudia | [阅读全文](https://www.bbc.com/news/articles/ckgk84nzxgko?at_medium=RSS&at_campaign=rss) |
 | Reeves should not cut cash ISA allowance, MPs say | [阅读全文](https://www.bbc.com/news/articles/c5yp57peqw8o?at_medium=RSS&at_campaign=rss) |
 | Prince Andrew's banner removed from chapel at Windsor Castle | [阅读全文](https://www.bbc.com/news/articles/c867j2wyxj0o?at_medium=RSS&at_campaign=rss) |
-| Rubio says lots of countries willing to join Gaza security force | [阅读全文](https://www.bbc.com/news/articles/cn0gwn491dwo?at_medium=RSS&at_campaign=rss) |
+| Ukraine allies pledge to take Russian oil and gas off global market | [阅读全文](https://www.bbc.com/news/articles/c17p54edxljo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | As strikes on alleged drug boats grow, so do questions about their legality and goal - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOM0pGaHZaWm9wYTNlQUpCUW5wNkJFWUExZVhsemtMSmRleGNNcm85eGVWckMtNnNjZkZ2VDk3d3lqZUZrLXdHT3kxcmhkUzNIMzVoYkxfdi1WRkZ1WmRWUU1abVN2WHdVWTZLN1Awek5Tb0pRMnFQTS1TY0k2UTRBRjA0OFg?oc=5) |
 | Exclusive ｜ Inside the Tech CEO Campaign to Stop Trump From Sending Troops to San Francisco - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNamJUOElnNFJuS1BpM2pRTHJMcFdXVFpUNGVQRk5zYTRKNXFzYUpMVXVaRnk4ajBTU1I0T2g1ajhleTFqa2ZlbXZiNmNHS3BuVGtGWXJ5Q2FJSFprNF9xckY4eWZ1cGVwTnd0Q0dnZ3dpVVduMDVtZ1lPS2Vuem9oSw?oc=5) |
 | Shots fired, driver hurt and held after truck rams into Coast Guard base in California - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQX3NnV1FwLXkycTdKdUFrQlhzV3pHVWpSVC1sbzdSSHgwSFN4eFZxM20ySzF5RDJqT0I1VXRsNTBpNXNadUozdENtdEk0d0loMFExT24tVkJqNWp2ZzZ5ZVJ6elYtb3kyRVFJejN2ZlBIRC00amFqYU5ncWxaTlBxSmJRTkhYSl92eTQ0aTFlNk9xbUhIZEVpS1Ffb1hVbHQ3anFnb3Q0VlUxTjE5V1BFNzZfWQ?oc=5) |
-| US sanctions Colombia's president, accuses him of allowing expansion of drug trade - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOM0hSRWdhcTZXY3ZSb0dsQ2dIQjQwVjNuVTVZZFJwRV94aXEwNUxBWk40aWJ2eHBLdmhnS2Z3YzhiR1JRNEVBNlE2Mi1McFJ4N3JTUWNaQmJxZ1RIZE9vakVTMS1nSUwwSDNOSnlGQUJqVEozRldJR3Q2cHVacG1vbzdWNHBCaHFZTVM2SFZxd3pORTBQd083TVRjLWNsbUlhZURNemZBU0huRUFxTUs0?oc=5) |
 | Trump administration aims to auction offshore oil leases along U.S. coastlines that have been off-limits for decades - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1odzhTZ3M2aUpnQkJGbk53dzRCNmFoREF6UHktQTI0QUg5eWtTdzlCRWJ0V0YxSUF3dm0xcVpZM1dHRHFxOFVoN3lqUGpTVHNYeWd2UWk0cEZLVmhGYnRST1pwMTZfRHZBM00wNm9tQXRJNU0zRnRzYtIBfkFVX3lxTE9saXBCOTFWbm1EZ3lrTVBGUXZqZElIbGtEZEZUa0hUYjZCN3AxbW9tdnBGaEpiVWRuSXR6dzJxNjVvTTJ1ZUdoOEpoMlVGMkNvUEdCMGFLclc4NlE0Q241M0VhQTgxN29VZkthdEFrbnFaS2cxOTJ0S0ZzLWJodw?oc=5) |
+| Justice Department Will Monitor Elections in California and New Jersey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQb2w0X2lvRXJRWmFIUzhxQkRzY0pBblllNVQxMzgyem03eTA3VXdGUEVZMW1FNWFpRTFFNDVoOV8xWnNQZEJvVXVYUU45TXphc0Iwcl9xMHItSVRFbWdwN2ZSRENNWlBQT1owaGRaV1FuT1FuNXZicXhSRTl6OWNYekV0Y2NfQlRnamRDbnBTUjNUWDlhTlJDNUM0RQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
