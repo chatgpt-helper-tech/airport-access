@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 08:09:45（北京时间）**
+🕒 更新时间：**2025年10月25日 08:17:51（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | FBI announces takedown of Weymouth Street drug gang in Philadelphia - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPWHcwNkJWSnpyQUVnSlBCblFKM3BUWG1XTkZyT19MZjVnYXAyX1FVQVFpSWU2MlBGZTRJcUIxcDRJbDdnc2QzUFU2czBuVnRIeFZpd3d2T2FnUXUtdE8wUFNBWThBeE1ubW82WlBaNU4tZExfSzdHMC1PVE56dlMtT3VYcVlfQmtsb1NDRXFBQkNXaHc?oc=5) |
 | U.S. kills six in latest strike on alleged drug boat, Hegseth says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQczlIVEN2YnV0Mlpib1Y4cDNNbkowZWd3c2FQSVFmOVY0STVtWElBTER0WUNRLXRUSmZTRm93aF9rN1laNnMwVWtkRjIzSFdPcWtNV1k1aklSN1N2YWNwV3h1N2lLYkpzX0UzNjY5UDBCV0VVcEM1aDVSZXdIaHpLejFZLUxxU0tpZk9uZnRxVFpYT3JBTmlGcw?oc=5) |
 | Video shows security opening fire on U-Haul truck outside Coast Guard base in California - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNSk1EZzF5bzFOZUtsWDNQQV9weTJtRHhsc2ZETWJRd1NWbnllQTdKVnVIQzVSMk9KNDRhdzdIOC0zMDBGeVl3dFR0akpJdXZRYkpLbzhEaGFsXzlleW5zUXlhZUtCZzVHV09Ha3B3SDRHdlJaeXA1Z0kxeFNlamFocDh2blQzcVg0U1JhME5aRQ?oc=5) |
-| U.S. imposes sanctions on Colombia's president and family over drug trade allegations - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNZDJYT1ZrOHhWOG1QTFhjQW5aWHV1ek1DbnBaUHJqMkhUdGg5RUJaNkR6RTZHRnRzMnVqb0JxTW5zSWJibUhOWl95SnhUQUh0TXRXNW5vdi1fVHZIY054VzNzZmZUalVROHdpRWlMS1FiWDVpSUJONUdaQjJycXlRVGFDNlY3RVpvT085MjJKTVpraUVhN2ZtNFotZzg?oc=5) |
+| US imposes sanctions on Colombia’s president and family members over drug trade allegations - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNQ0xQSlRMMzQ4dEhJWms2enpiUzdHZEZqdjY4R2dnTFp0TTVybDdZMHRKZVVqTkdTbnQyRW1vcUpxS3RqcjJxVVVIU1NkZ0lRdUV6TWVJby1SUHk3Y3FqcGtiOUpJeVRwdGFQRHl5cy1Tb3lpdkpkcFAzcmVDdXpPMG5OTG9WTncyY0xHS2NMTmFDSlFzZUtYZ0hxdmh1R2t0QnptMTl2NXp3MEE?oc=5) |
 | Letitia James pleads not guilty to criminal charges related to alleged mortgage fraud - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNamxUc1JINTh6ZFo3LVVqeFdmc0JMbEZCOEwzUlcyczd6ai1qZnZSaFpSNE9mTXUtNnl2bF9xd0ZFUlFycDkyUm5maVdreHlqQnhSQUJ5eFkxWUN6LTl6c2sxR1RxY0pSclVvMVVvSXdXMDZ0aWx3QWNaaWN3QmhjNFlZZGRKeWEwMkhRaGlDSXFkMHc?oc=5) |
 
 ---

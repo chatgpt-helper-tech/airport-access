@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 08:09:45（北京时间）**
+🕒 更新时间：**2025年10月25日 08:17:51（北京时间）**
 
 ---
 
@@ -25,14 +25,14 @@
 |--------|-------------|
 | Trump likely to name White House ballroom after himself, officials say - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPWWk3T2VGX05xN2RCSWlOajBuU1Rhb2ZnbThoS3ZVQXAtX0ZYS0Nwd3paNmlWdjRsMHlNMVo2S3RzSzcxRm9nTVRNMXZ4dnZvOUxfcGR3Z2FQa0lNYm1lUDd1elZNaXpGT0FtRklFWVZWV0ZkTjk2WlJKTm1HaEdMVFAzZ04wdUk4UkxqZ1h4QWo5c3FPcHdEetIBngFBVV95cUxPeW9nb3FjeF8tdTJrMWRjR01pRzR0dFI3cXF2YTV4VU11cDQzT0ppZjVoRXo4cmZ1YTIwSWtZVXBUNXJhdUM1RWVUbFlCZGp1SmVRTElUdV9OMnRyOHhFbmFmOUlSbF9xREVSalpRZjA1dU1hMUR5cDE4SXdEWS10VTRBMi1HcGJwY1BreTR0U2tna29LV01jbjN4YmtKQQ?oc=5) |
 | Trump administration won’t use contingency fund to pay November food stamp benefits - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQWHhnQVZscVp4dkk5dklfWnBtaWJVQWxGemRDN0ptT0ZHdUUtOEQxQjgxa3I4TVFGeWtXZjVtXzFFYUZhcDAzYUFqN0xlVW4xbGpnUF80WFV2aF9XNVRYX3lYNGlqMjBSRjZhQVZ6QjBhN3NKRzZIRTgxb0YyOUdwYQ?oc=5) |
-| Trump says a Canadian ad misstated Ronald Reagan's views on tariffs. Here are the facts and context - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQckZVZWpKNXZ1VWdNUzlUNE9jWGxLTHB1N1N5VmxXWTNERXpDT1RrOUhVSVhteFlkMEQ3bTNKOGhYNnBNN0VGNkpLLWVCd3RNcHYyY24xRlo4WURTSGZWaUlSRHNFem1FODBVRUE3dl9fUUFqOFB4cVZoZ1JTOFlqLTRYako3SXhwV0pnWEZ6UWRnSXFWUEpqdGJlWERJVlFoN004?oc=5) |
+| What's in Reagan advert that caused US-Canada trade talks to collapse? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5idEp2QUJLYmtERnlFdWJodE9kT3Y3dko5aVVsOFpxNnN3VGF4YjZDYjFJcnRmb3FaU3doNENXQ3lFR2dyNlIzdjBZdnV2bnFTVXB3a2ZPaDlpUdIBX0FVX3lxTE1iY2lTOWpKWUw3cDhfM0dGV3dFM04tRWZzTE5QZHUyVXVuSHVVZTQ0X19mR0pyaG5GaVlwbG5URzF1bGt4M3FNWHlRa25kcDItRlVFRWFDazZPRVc2YjB3?oc=5) |
 | Pentagon deploys top aircraft carrier as Trump militarisation of Caribbean ratchets up - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNeDVYaFRlcGoxVHRkbEd3bmd4eUxmcHRyS1pKX1Z5eTFZSm4zOXBSWkZCWjVyQjJ3dTBod1BTaXNaUm5aM19kRTBfTXVScjZ5aWFDS0M0blpaWWhtcGdIOEZDNEhnaUtfbUR2MWJCVUNJdUlLZW9zRkJZOGFwOE9zelprQjlYU1hBUURrczlRaWo?oc=5) |
 | Federal Immigration Enforcement Surge Called Off Across the Bay Area, Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOTVhZTWk5SEdMTzF1T2NzRVBraEhSUjEyU2htdk1Ta1BWZXJGN3FnZVFSYWlsQjJQdEZnQlZmUGZJd29mcXUyaTBialdaUVRSZDFlVmVHc3VpS2NSYURsNGkzbExCUUlvN1ZpVXQ0QjhaWm51UU1nd1FaaDQzY3Fyb3ZTOGZKVGM2dy1F?oc=5) |
 | FBI announces takedown of Weymouth Street drug gang in Philadelphia - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPWHcwNkJWSnpyQUVnSlBCblFKM3BUWG1XTkZyT19MZjVnYXAyX1FVQVFpSWU2MlBGZTRJcUIxcDRJbDdnc2QzUFU2czBuVnRIeFZpd3d2T2FnUXUtdE8wUFNBWThBeE1ubW82WlBaNU4tZExfSzdHMC1PVE56dlMtT3VYcVlfQmtsb1NDRXFBQkNXaHc?oc=5) |
 | U.S. kills six in latest strike on alleged drug boat, Hegseth says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQczlIVEN2YnV0Mlpib1Y4cDNNbkowZWd3c2FQSVFmOVY0STVtWElBTER0WUNRLXRUSmZTRm93aF9rN1laNnMwVWtkRjIzSFdPcWtNV1k1aklSN1N2YWNwV3h1N2lLYkpzX0UzNjY5UDBCV0VVcEM1aDVSZXdIaHpLejFZLUxxU0tpZk9uZnRxVFpYT3JBTmlGcw?oc=5) |
 | Video shows security opening fire on U-Haul truck outside Coast Guard base in California - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNSk1EZzF5bzFOZUtsWDNQQV9weTJtRHhsc2ZETWJRd1NWbnllQTdKVnVIQzVSMk9KNDRhdzdIOC0zMDBGeVl3dFR0akpJdXZRYkpLbzhEaGFsXzlleW5zUXlhZUtCZzVHV09Ha3B3SDRHdlJaeXA1Z0kxeFNlamFocDh2blQzcVg0U1JhME5aRQ?oc=5) |
-| U.S. imposes sanctions on Colombia's president and family over drug trade allegations - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNZDJYT1ZrOHhWOG1QTFhjQW5aWHV1ek1DbnBaUHJqMkhUdGg5RUJaNkR6RTZHRnRzMnVqb0JxTW5zSWJibUhOWl95SnhUQUh0TXRXNW5vdi1fVHZIY054VzNzZmZUalVROHdpRWlMS1FiWDVpSUJONUdaQjJycXlRVGFDNlY3RVpvT085MjJKTVpraUVhN2ZtNFotZzg?oc=5) |
 | Letitia James pleads not guilty to criminal charges related to alleged mortgage fraud - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNamxUc1JINTh6ZFo3LVVqeFdmc0JMbEZCOEwzUlcyczd6ai1qZnZSaFpSNE9mTXUtNnl2bF9xd0ZFUlFycDkyUm5maVdreHlqQnhSQUJ5eFkxWUN6LTl6c2sxR1RxY0pSclVvMVVvSXdXMDZ0aWx3QWNaaWN3QmhjNFlZZGRKeWEwMkhRaGlDSXFkMHc?oc=5) |
+| US imposes sanctions on Colombia’s president and family members over drug trade allegations - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNQ0xQSlRMMzQ4dEhJWms2enpiUzdHZEZqdjY4R2dnTFp0TTVybDdZMHRKZVVqTkdTbnQyRW1vcUpxS3RqcjJxVVVIU1NkZ0lRdUV6TWVJby1SUHk3Y3FqcGtiOUpJeVRwdGFQRHl5cy1Tb3lpdkpkcFAzcmVDdXpPMG5OTG9WTncyY0xHS2NMTmFDSlFzZUtYZ0hxdmh1R2t0QnptMTl2NXp3MEE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
