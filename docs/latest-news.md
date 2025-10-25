@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 00:49:29（北京时间）**
+🕒 更新时间：**2025年10月26日 00:56:19（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Keeping the House Absent, Johnson Marginalizes Congress and Himself - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPU3JPOGVqMG9WV1JkZTJjVlVtRGVMUW9rQlFLZ2NOeUt4bUNlV1NzZmZoNlVvYVNSc3h0RjhvSzIyVm1MMnRhbmtSNVVISmxpQXRacFRmVERCSldQNHBLVWt5WndVbkdtQmxjZ2lncE1NTlNXaUJNQ19tQTg0ck1SZU9paVJGR20y?oc=5) |
 | US could hit Russia with more sanctions to end Ukraine war, but first wants Europe to increase pressure - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxPQXhaTWNUMWpZaXNtcE83YVIzeWt6d2MwaGZnYVU4WU9fM3BIWTJWSUJPczdxamhlRkNtSG1BbVNTQk5QTWZSaENaVjZBLWhZWkt2RTY5RVdYT2xjV3RuOXZ1SDJwbFpwVHZWUUU0U3VpVTFUUE44MGxub0RPcXFYU1M4c3ZQdm9FcGVibnBJS0JPaWk2TVZ5STBDU3ZkaW5wcmZZR0ZaOGEzTURrMVVROWN3OFN4cnROc2Zfand5SjBUYkVDdFE?oc=5) |
 | 2 killed, 7 in critical condition in North Carolina mass shooting - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPVXZnREdRd1l1S3o0RmNvTzY2Qjh3ZkFhZDdLOVNndU9Kd1VZem9rRmRoMjZnZXd0elZBcGFOZTNiRThzRzFaZGd6OUlzQ1hub3M3TnhLUno5MUJGNTMxQ08tY2RuNFd1bGhQa1ROLXJKcDNZSlNTM0YxYXBiRTNFNHhfX19HZGlUWTFHb25sM2tsOW8yMzVrZXZ30gGfAUFVX3lxTE0tWjVfc3c1QjhTRXJSY3RpZ2owd1hEZUl4ZDhMSlRkRG12c3lFNzFqYmJsQnpMTjhERllZWUR4WTF3UmVjTmU2dy1SaGpOVXB4dm9TR1owUjdWdTBadGhSWldpV3dUZ1JZV1dpdFNRZk5TT2sxRnpaRXhVbldUaHlfa2pKaG9IS080aXRibEN1QTJpbk1tUFFvWmRnV0dScw?oc=5) |
-| Trump was planning to send troops to San Francisco. Now he’s not. Here’s why ｜ Joe Eskenazi - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNekNyeFlsRUd3Uk9rZTRVVnZCVjloazhWRFRDOW9xdUVVY1EzMlBOT2M3Zm91cjFzY08tblM5RVhqdXVJSE5keGI0MFBhOFo3ZG5VcW9pSFdEVmRmRzJuMVNSSkE3LXQwYUhMelBLNWU3LWxjV0wtZjRKenBMZlRHb1RJUmFOTG8?oc=5) |
 | Early voting starts for New York mayoral and New Jersey gubernatorial races - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPTE16VUYtSXRCOEd0bS1qNkp0SzNjNHJnc2wxTVNDdjh2YUNoSE4wdWRNczJSbDNhOUlteHlQRWtwUGNsY2l3ekpsNGR2N3hISmFBTlAtSk81elh2Qno4Z3FOSWtKRTNPS3M0ZHZUTjhsTWhvWU9fX2JkTXU1dk1PdFhocXdxWGs?oc=5) |
 | Hakeem Jeffries endorses Zohran Mamdani for NYC mayor after months of delay - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQY2xnUVVqMm05aVVuU1FuaGpWUUtMYzhnekFNemthd1MyREZrdTFSYmlRSTNDalYwOGE0dy1FdXY4QWw2d2d5aVh2LWlLU1YxZS16VEJwOFJiTDEyN2lrY0lrUkxJS1BvS29ZWFRYRDhlS1U1NzlSTW5YdDNoMUloVU1DZlRaRHg0c2c?oc=5) |
+| The shutdown layoffs at health agencies followed a familiar, DOGE pattern - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQazRLdjZxWi1pNXNUOWpQZ1Q2RXNUR0pKVDlRckdzdnFOTG5mTE03M2J1WjBUanpnUXoyeEI5TjZCSDlIMXRRYXQwNGtBZnRyOHg0ajliNHk3QkZJaEthemlRVFRpaDhMM2U5QThQUERuSm1KMC1LN0txb2k1WXR2dEJYLVkzLV9fZmc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
