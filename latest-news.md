@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 22:01:53（北京时间）**
+🕒 更新时间：**2025年10月25日 22:09:10（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | DOJ prepares to send election monitors to California, New Jersey following requests from state GOPs - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQVHFwNWxHMWVOMzNQQ2oxUXVZbGNHQVNyNzVCUzhSSWpEQ2J0dnB0YzR1aTd0MHpkdEp0OGE4TXVuMHlOQllWMi1oT2JKbGk2Nm91aVVZdzV2QUI3a1A0bHZCVHloY0loa2dPWUtJd0t3Slg2end1T2FkWHVPUnhPaHk3MmJFcHplVndNdy1sYWZPNGJuWTY5NTBZSzl3cGNZUVB4b2dPLXE0UWxwQTdn?oc=5) |
 | Pentagon orders aircraft carrier to Latin America as Trump signals escalation - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNZkNtUGhEamFEMXdvRDRyY3Bici1DTkR5NEdDak5YZ1FyRnRfcTNDYXp4bzRnM243M05ULTJFY0w4NVFWaTdXbE9iVGtFTFF0a1ZDWV9SYlhYbkoyWURrUzdJQmZGUEQxNlNMZHBZa3BIRGJYT2xyLUs2dlRyMVlUX3pEUmNtamJNZFhBQUlNM25GaGJjalItRi1OblpScG15X05HS0pDZGIwS1U?oc=5) |
 | Exclusive ｜ Inside the Tech CEO Campaign to Stop Trump From Sending Troops to San Francisco - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNamJUOElnNFJuS1BpM2pRTHJMcFdXVFpUNGVQRk5zYTRKNXFzYUpMVXVaRnk4ajBTU1I0T2g1ajhleTFqa2ZlbXZiNmNHS3BuVGtGWXJ5Q2FJSFprNF9xckY4eWZ1cGVwTnd0Q0dnZ3dpVVduMDVtZ1lPS2Vuem9oSw?oc=5) |
-| An Obamacare Hot Spot Where Price Spikes Pose an Outsized Threat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOSm14aTlERlE5dmlqMVZPVUFQdU1VMFZkR2dqcmxBS0E0ejhhb0xaWmxrX2V2bk5SVV8wZVlsMGdrSkJqTmNjc1I2eWxKS1dhN3JIdzgyM0drVU1zaTFraVduQ2UtOWtUNzB0MmM2MjZ4TjcyVFBUXzNIUmxDRjBNX1RZWFJvVUNtV3FfbTY5RTh1dEhSZVM5VE15RnFEUQ?oc=5) |
 | The shutdown layoffs at health agencies followed a familiar, DOGE pattern - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQazRLdjZxWi1pNXNUOWpQZ1Q2RXNUR0pKVDlRckdzdnFOTG5mTE03M2J1WjBUanpnUXoyeEI5TjZCSDlIMXRRYXQwNGtBZnRyOHg0ajliNHk3QkZJaEthemlRVFRpaDhMM2U5QThQUERuSm1KMC1LN0txb2k1WXR2dEJYLVkzLV9fZmc?oc=5) |
+| An Obamacare Hot Spot Where Price Spikes Pose an Outsized Threat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOSm14aTlERlE5dmlqMVZPVUFQdU1VMFZkR2dqcmxBS0E0ejhhb0xaWmxrX2V2bk5SVV8wZVlsMGdrSkJqTmNjc1I2eWxKS1dhN3JIdzgyM0drVU1zaTFraVduQ2UtOWtUNzB0MmM2MjZ4TjcyVFBUXzNIUmxDRjBNX1RZWFJvVUNtV3FfbTY5RTh1dEhSZVM5VE15RnFEUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
