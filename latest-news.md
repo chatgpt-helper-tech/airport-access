@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 10:25:20（北京时间）**
+🕒 更新时间：**2025年10月25日 10:33:46（北京时间）**
 
 ---
 
@@ -23,11 +23,11 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| With East Wing gone, questions now turn to Trump’s ballroom donors - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPYXlHQUNsaF83TmFtSndabVBWaXdmLXpQbEgxdlhxWjF2VkRXUkhOOTBxaHRfVGZxZXIxenpHSFVaR3MyS2lCX2dMRDQ1dmQ4WlNJNGMyNjdPY0F2RDA2bVprYktGOGRhbEhMeHBYellQaGZfckdqam9CMWZ6d19uRmZhbE8zejdVQ09Zd1M1QnpUSmMz?oc=5) |
-| Trump and Canada’s Trade Spat Spotlights Doug Ford, the Ontario Premier - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPbGtSWWt4VGRwSlBlNU4ybmdhSFFOX3RvQUZQd3FKdzI3ajBHbG55WnBhWWxKdVF5SGlweTNRcjIwa0tsNTRjUmw5QS1JazQ2SU5lYU5Pa3dMTTE1Zkxnb1BtY3RGTjA5bjk5amNHd0hRMFhJb3VmOU5iWnlJUnJqbElDcmY?oc=5) |
+| What donors to Trump's White House ballroom stand to gain from the federal government - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQejY3YXZNTk02M2o3X3UwTFpteW1KU3RLamRYVW5HSnFwWGV0M0tNS0xtSmpiZFVaZ1JEaVZFTWVwMS1tRDBxVEdNaUJIcWhBbVdwUks4MlR3bGV2QnUwX0RSSnZXcXNjYnM2UUZ4LUl3cjBjU2JaTjhmbjFYUElTX2NRa9IBiAFBVV95cUxPeFpmQ0FTdU5HTndiRTNTVC1kS1EtaGJsZkFBeDBwMUxRR0xvY2R5clRJQlh3QU1kVnZhc3hxRTBQVTg3MG9GTzR5VnlvT004YVN3dnlQcnowMS13NTlMWXRFRWhzdWhfVjYzc2hsVUFpUVppOTVqUVhTMjBhc1Zrc3VHT0tXTzdM?oc=5) |
 | Pentagon deploys top aircraft carrier as Trump militarisation of Caribbean ratchets up - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNeDVYaFRlcGoxVHRkbEd3bmd4eUxmcHRyS1pKX1Z5eTFZSm4zOXBSWkZCWjVyQjJ3dTBod1BTaXNaUm5aM19kRTBfTXVScjZ5aWFDS0M0blpaWWhtcGdIOEZDNEhnaUtfbUR2MWJCVUNJdUlLZW9zRkJZOGFwOE9zelprQjlYU1hBUURrczlRaWo?oc=5) |
 | Trump administration says it won't tap emergency funds to pay food aid - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPclR3cF9XWjNtRERuLUlLN2ZBQktsUTA5MHFmWUFOYUd5SzdPWGxzU3JOOFRWU2RZWnc0X0NEVGE0eER5R3FkS00yMXRIc2ZzeUQwMTVVZTA3Z1BWRHJJNGxtWUFlNUlOaER5VFViX0FEOEUxbFJUOXluNjAzVGNlQ2NiMA?oc=5) |
-| Newsom on Trump's "laughable" National Guard suggestion: "Nothing happening" in San Francisco - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNWFpMYndxWVhiSFdYejBBWEd0bjVTZWZ6MkhQQkJDLVNpa0JQcloxZGlvcVYtQS1ncllWOXFPYlU4MkpKOWZRb2wwUzQ5R0xNcmtmbUhONFZmSlNUME9lblRPZGRDTTlXNDBpR2RhbDJES0dXTHlqRWpTNnJ2OXVBMUI4b1Q4bUplUGZoNGFpN0FBWEF0Y0IxcjEwb3drYmRqMFVMNlNHZnVWSE5JS2wyd2w1dHdOSzIt0gG-AUFVX3lxTFBsVDcxVDNMdEFyeEZCXzZ0ZzVxRS1va25MdlgwanF5V1JWalRmczV4X0Y3S2RIaURpWFdPdnN1TC1qOHpiNzZtT3NnaU03Q2MwU2ZkV0J4NnJZMXhZa092M0l0SVA0bXU1M0VlT0ZKbzROQy1RVVJCZW9Hd21BQXUwa29JcmxlX011bWYxSXNuNVNnRmdUTk5GTDcwOF9IWWJmZjNtVFcxaXp0MHE0NGo1YzNyenJOMkFjdEUyc2c?oc=5) |
+| Trump and Canada’s Trade Spat Spotlights Doug Ford, the Ontario Premier - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPbGtSWWt4VGRwSlBlNU4ybmdhSFFOX3RvQUZQd3FKdzI3ajBHbG55WnBhWWxKdVF5SGlweTNRcjIwa0tsNTRjUmw5QS1JazQ2SU5lYU5Pa3dMTTE1Zkxnb1BtY3RGTjA5bjk5amNHd0hRMFhJb3VmOU5iWnlJUnJqbElDcmY?oc=5) |
+| Oakland mayor, sheriff say CBP ‘surge’ operation canceled for East Bay - Berkeleyside | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPdnNzcWwwbHRrS2ctZzFXXzRzMkJmWHBZZ2g1VS1pMjV1aXVEaF9hdFJLVExGbUEzR2pncHZjNmg4SGEzcUFUVjZlWVEtZFVhTzlMU29UQzZ0VnRkQm91UjQ5V3ZGSmw0a3VDLXBiLTVLVXNROWh2TUg5UFlVUTJ6ZThrdnFWZmV5dkFwc0wzMkJ3dWJ0T241eThqS0lfX00?oc=5) |
 | As strikes on alleged drug boats grow, so do questions about their legality and goal - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOM0pGaHZaWm9wYTNlQUpCUW5wNkJFWUExZVhsemtMSmRleGNNcm85eGVWckMtNnNjZkZ2VDk3d3lqZUZrLXdHT3kxcmhkUzNIMzVoYkxfdi1WRkZ1WmRWUU1abVN2WHdVWTZLN1Awek5Tb0pRMnFQTS1TY0k2UTRBRjA0OFg?oc=5) |
 | $10,000 Card Shufflers Hit the Spotlight After NBA Poker Scandal - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPR2lhU2d6VzNuZERITVFuLWZBZFZGdzZCNlhwRTVFSVBpWm9CMDE2V3B0MWJXMm1hbGl6MUpfUHlPLTJOX0pIQ1Bvc3p5bW12YWdJdEJwZjZiWkxjZjAtRXF3LVlVaHVSYy1HNFVNV3RRZHVodG95N1lHaGZWS1FrdlAxQzFfTFVqVFdldVFaTVVDcjVDN2VDV3ItZlNHczNaQ2tuekdQOEotd3M?oc=5) |
 | Shots fired, driver hurt and held after truck rams into Coast Guard base in California - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQX3NnV1FwLXkycTdKdUFrQlhzV3pHVWpSVC1sbzdSSHgwSFN4eFZxM20ySzF5RDJqT0I1VXRsNTBpNXNadUozdENtdEk0d0loMFExT24tVkJqNWp2ZzZ5ZVJ6elYtb3kyRVFJejN2ZlBIRC00amFqYU5ncWxaTlBxSmJRTkhYSl92eTQ0aTFlNk9xbUhIZEVpS1Ffb1hVbHQ3anFnb3Q0VlUxTjE5V1BFNzZfWQ?oc=5) |
