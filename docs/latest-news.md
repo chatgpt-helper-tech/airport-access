@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 02:09:53（北京时间）**
+🕒 更新时间：**2025年10月26日 02:17:03（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| How Trump’s ballroom will dwarf the White House - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNMmNQMmRqNmk2aTJJbDdudXhnSmhMMW42Y00wWW9JNjAyRmk1QmZjZjJ2M293aDljaFpTS3hJSk1ZM1hCdmZTdXBnNzJOalM4ZTJxcktsbDJlbGd4czd0SmN0bC1uMEF4ZEVwdlFJWjBmaTl5dUNXckxYTVdSZDVIWGd4S3FlU1RnTnN1WE1Hc09xUQ?oc=5) |
+| Trump says no plans to name White House ballroom after himself - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPWWk3T2VGX05xN2RCSWlOajBuU1Rhb2ZnbThoS3ZVQXAtX0ZYS0Nwd3paNmlWdjRsMHlNMVo2S3RzSzcxRm9nTVRNMXZ4dnZvOUxfcGR3Z2FQa0lNYm1lUDd1elZNaXpGT0FtRklFWVZWV0ZkTjk2WlJKTm1HaEdMVFAzZ04wdUk4UkxqZ1h4QWo5c3FPcHdEetIBngFBVV95cUxPeW9nb3FjeF8tdTJrMWRjR01pRzR0dFI3cXF2YTV4VU11cDQzT0ppZjVoRXo4cmZ1YTIwSWtZVXBUNXJhdUM1RWVUbFlCZGp1SmVRTElUdV9OMnRyOHhFbmFmOUlSbF9xREVSalpRZjA1dU1hMUR5cDE4SXdEWS10VTRBMi1HcGJwY1BreTR0U2tna29LV01jbjN4YmtKQQ?oc=5) |
 | Trump's $130 million mystery donor is Mellon heir: NYT - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNVkMwd2JyWkVDZzN1X2Vvemgwb21ENGZ6WU5kT0ctcXhyLTc1RDdDZW1uTXF5aUp4QWRPTU1XeVhLeXZ0LUI0U0RZenNacVdwLVRvQWJESXRrRXgzLWVsMWhMR2pEcGN6Wmo5ZGp4cW51WGs4RDhLVGJ0RXFiSl9CLUVDMGJWQTJWU0FoSk9HV1lBT1hWOG800gGcAUFVX3lxTFB2YzdsZU5TZzZtdWo4UDZvWXlZN0ZkZjdLdnMxRENzSUNjd3hKZGxoYnA3ZjFDOTBnaXYzTTRKQ0pDSlNOZ29mczFGTjVDblZ0YU9zb3V3X1ZQOFhIaWo5WHl4TGZWb195bzhqWEtzbTJlZWQ0anZzT2J6Qk5JcndxNHRLUE9MbVJtRDZxd2NCR3hCa1UwS0lCWGJmTg?oc=5) |
-| Trump's halt of US-Canada trade talks could impact these prices - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPbVBqRGpRUjcyb1dFalM1aGgzZzk2anZEUm9nWUg5VzRwTFFKWDl5akZjNXFtMW5UenQ3NkhGUUw4LUNnMkNsRmlIeERiclJoTDhrSGN3eW5DWl9hQTZhLV85UHA0d2lBRDVkRE9OZmxkYmJHNGMxSDdaRXFGWFo4cGJYUENYSFozVHNqSlBvUF8tNUREN082UHlDbWVCTE3SAaQBQVVfeXFMTmNwU0QyRmhQb0pudVhseWxtNmxBa1RaVTR0a2FkdEdhbVlqLUVYVmJiT0VBb25EbTFaR3NNZGJ3c0ZINndOWm1JcUZyT0ZkMTk0Yllfd0lTaW5NWU96RHF0VGVET056cWFKVlNyOGF3UjNEMS1kOXA4U2dmSlowUmlnMWVidEk4TnFZQlREc2pnMzA5bjg0dy1ibTh6TENYeHVHY00?oc=5) |
+| 'I can play dirtier than they can, you know': Trump's fury at a Canadian ad about Reagan, tariffs and trade - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPTXlOcmlYWnJTR29aaTFrX3cyVTVTa0U1ZDFEMm1oTUQ4dzdjX2pRS2J1NC1DdHg5TlF4eWY5OVJITXFBdXhJRW81eDhRdUQzNy12SzhORVE4VWxZU2hsV3hXUGt0aXR2VHM5RUdCN3l2VGJGVEE5SERfc1U0YXpQNE9ZNll3Ujhwc1hpamZiUEZnZw?oc=5) |
 | Lunatic Socialist Zohran Mamdani, Who Is About To Be Mayor Of NYC, Makes Truly Moronic Comments About 9/11 - OutKick | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQNGdxYVh4Y2lzTU9DWm40akJ1bU4zaXhfQ24ydFlrRE5ZaTZlZENfVEtENnRqVEdoVERhbkFhYWFSTGwwejNSY0RhX094b0dGa2tJVkluUE5wRVZ5NXZzRlR4U0M1UWZJZi1LcTlGdHhLX3dRQWFVSzRwU1FONEVXdjJ5VnFFQjFQSmtSODRiR0JhT1p2U3N2WnR1M04xMElNLWdGX1hYVjY3RU41RU90VzZqbDRDc19IY2o0U1JCMjRxQQ?oc=5) |
 | Kamala Harris Suggests She Is Considering Another Presidential Run - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNQWp4RjY2elZ6UEc4ekxxQ3BTMnhIVW1KZjlsT1ZlWm5IWDVSdEZBT0JONzFEcldPRFJkRnV4UHdLRjV6SkxKRmd1bndmS25yWWtwRDhRLWozS1dnMWdCTVlQWHEwcXJHSjJSLUFVaDRWR3JJNDlvTGhDRUowY05MN0ppYXpPd0JVdGpz?oc=5) |
 | Trade tensions hang over Trump's Asia trip, but he still aims to make a deal - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE41bGR5YWdXNWo1Yk9LTnhObG5GYkdoQURVZ3NHRUJuZEFTYlJGSWhIX09SVVhPaWNhLVNMU0ZsQjZ1T2lKajNpT29oREx1WVV4S2lyYW9HUnRHWW1URGpJRV9FdFMxMEM1Ym83NXlsVzJvN0htR0czWDFB?oc=5) |
