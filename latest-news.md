@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 07:50:00（北京时间）**
+🕒 更新时间：**2025年10月26日 07:56:21（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump raises tariffs on Canadian goods in response to Reagan advert - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1jT1c1dG9vRXdOcjB6NXFTUHMzTHBDZ0lYNldXZnNYM2VwMFZsTFE3bXBxX1hsT1hLN0ZBdUVjdXNoYkZGNE5KaEF0OGpIVXdOSWNkSGZxMEM0d9IBX0FVX3lxTE5GdU5KVGxqY3F6LTF0NnYtNFhCYjlCYjVacWlUbWxzdmtJV3lWa2VHeTN3d01ydVJ4LWltS1dKWGs4VHpVZmdEZ3dHUjRrT3Y4NmRpSGZvV3FwcHRiV0c4?oc=5) |
+| Trump Announces Tariff Increase on Canada Over Reagan Ad Spat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOREZ2dF9QOGZnME9jQzBldEpqdE9MQVJmNXFDd1RNLWI4cE4weUhEOWs4R1luN0FOOThFTWdHc1hkQzlOMWNoVVZ6T3o5NlRLemEtVFJJcGxRV0RoZVJDS1FxQmM2OGJRMFBNU3RxVFRMT19XSmQ0MWJYRzNsWlN2NVl3?oc=5) |
+| Timothy Mellon is Trump's $130 million mystery military donor: NYT - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNVkMwd2JyWkVDZzN1X2Vvemgwb21ENGZ6WU5kT0ctcXhyLTc1RDdDZW1uTXF5aUp4QWRPTU1XeVhLeXZ0LUI0U0RZenNacVdwLVRvQWJESXRrRXgzLWVsMWhMR2pEcGN6Wmo5ZGp4cW51WGs4RDhLVGJ0RXFiSl9CLUVDMGJWQTJWU0FoSk9HV1lBT1hWOG800gGcAUFVX3lxTFB2YzdsZU5TZzZtdWo4UDZvWXlZN0ZkZjdLdnMxRENzSUNjd3hKZGxoYnA3ZjFDOTBnaXYzTTRKQ0pDSlNOZ29mczFGTjVDblZ0YU9zb3V3X1ZQOFhIaWo5WHl4TGZWb195bzhqWEtzbTJlZWQ0anZzT2J6Qk5JcndxNHRLUE9MbVJtRDZxd2NCR3hCa1UwS0lCWGJmTg?oc=5) |
 | Trump heads to Asia with trade — and tensions with Xi — on the agenda - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQaVk0M0h3Tm0tOU1PVDVqeFU0LUR5bHBvc3hPc2dvTk1rSTIzQWpjZkRrMWUzWEpNNjVybWxMMkl4aFlPVGpjV1oyVWVEMU9MTEV5UE9ZamJYdXQxclp1cEEzVmZBNjA4M0FoNGNnYUUyZXFXUC05V3VxTFVKSllMUVE4dy1xV0pLY1ZUVHhJTjlTY3lleFU0d3JURm1tMzlpRzE3SnlUTURIUVBUdUhqTXNR0gFWQVVfeXFMTndyN2dhY0oxSjFVSm9OaXphYVRpdWJfekVLN2tVUGV0TnBJWXZrMGd6Si14bmFMdmVLcTF5SW96VFUzV3FiRWtvV2w1ZTZPM0U1Q0lIZ3c?oc=5) |
-| Donor Who Gave $130 Million to Pay Troops Is Reclusive Heir to Mellon Fortune - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxObHpFT2J3d3BtZTdNdXluMWd3dkczWjdKUEtoeS0wNjFGakRIQjlSOVJfQ2M1Rkx6N2ZqNnZVckxhMlZCNUF1RnBHR2cxR3FqTGF2M3B1UWZhTGFzemc3cVJ2U05mcjU5LWFFZFMyYlNkYzVQRlJaRDRIYTZFT2dHUG9JTGJIWlV1Rnc?oc=5) |
 | Storm Melissa reaches hurricane strength, threatening catastrophic flooding in northern Caribbean - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNeHZMX2VyTGFoVmszZXNZVVlTM3p1bkt3dTZBQ2ttTk1sb1g1VkNIMGRfSjJkQUo3RjloTnl6NUY3TjdUVjktS19sYm8xR2JteUwxN1FHMW9TNG9zX2xySEtOUFh2RWhhVzlRTEdLMnpxcEdGV2lvb3V2MmNyVEpQMWpwV1dtamlIMVN6SXFOXy1mXzhVUldGMFdjNEstY1NvMmlsbDdhUFpBZlU?oc=5) |
 | Kamala Harris says she may run for president again in 2028 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNR0V1cEdOLWNYekZMcEozZkdSZ0hocEIxcnpRdWVaYjZsSnk5MVBrYWFKQmQxRGlCQXVUM3Buc1lRYVNEMFlWZWJKVnBRNnRxdTdubFIzRHJwMmJBMmNGanhPTjRQU3hWdzRKcU84SnNENXNZTUhaNUFhZXl5am00VFJLNnN2dw?oc=5) |
 | Federal immigration agents deploy tear gas on Northwest Side streets as Chicagoans bellow, ‘Get out of our city!’ - Chicago Tribune | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9RZ2tzMzNjUjlMR2hGS1ZyWDBfcF8wVW1FOHkxdU1CajRHX0hHMHBGaVJsanh4Z1hTSC1EZzRvTFh3YTZjR2ZEclhLZEdFZEl0WWRCTmVKVDExQVg5LU9DUWJHVlZjVnlWTmp3Qy12cGVCZHd1TndtY2F4TQ?oc=5) |
