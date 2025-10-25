@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 23:48:03（北京时间）**
+🕒 更新时间：**2025年10月25日 23:56:19（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Shooting at a party in North Carolina kills 2 and critically injures several others - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNS2tFTGxlWjNSUXJZMVA5b2huQ251VzJxLUJ2QkdiaDlsQVBzaEQzRTlPZ3R4VXlDZ0hNWG1kZzdYWDRULUFDY20zSUZhb1V1Vk1aUl81dkpCaWE4SnFfNFprcXk2Yi1rdXQxdnRjT1dtcEZZSk9kRHJSNGNTQUl6OUNlZkFRMGtCd0JfU2p5em1ScGNleUo0cjMzZ0R1WC1mVVRtTdIBqgFBVV95cUxORFUyb2xnX01NMF9yeFFTVHhMejUtX3pSU1ZyMnpEaXZ1YVdxa3lmZTRJS1NmeWFSQm95SHlJejFaMGc0YXJtVUVuTmVBTVp4ZmF2UlhwTWFITjJlNzZEOS1TemN5Z0NhbEFEUVRlbHhjMjQ4Q0l1U2NIM0FaLW9kcTdwRFNMc2wydV8zQ05tcmFBaWRMa21HTWZsZXpDV1BVY0JUSHMxa1lCZw?oc=5) |
 | Vought promised to use the shutdown to shutter the bureaucracy. It didn’t go as planned. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQazRLdjZxWi1pNXNUOWpQZ1Q2RXNUR0pKVDlRckdzdnFOTG5mTE03M2J1WjBUanpnUXoyeEI5TjZCSDlIMXRRYXQwNGtBZnRyOHg0ajliNHk3QkZJaEthemlRVFRpaDhMM2U5QThQUERuSm1KMC1LN0txb2k1WXR2dEJYLVkzLV9fZmc?oc=5) |
 | In Florida, Obamacare Price Hikes Pose an Outsized Threat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOSm14aTlERlE5dmlqMVZPVUFQdU1VMFZkR2dqcmxBS0E0ejhhb0xaWmxrX2V2bk5SVV8wZVlsMGdrSkJqTmNjc1I2eWxKS1dhN3JIdzgyM0drVU1zaTFraVduQ2UtOWtUNzB0MmM2MjZ4TjcyVFBUXzNIUmxDRjBNX1RZWFJvVUNtV3FfbTY5RTh1dEhSZVM5VE15RnFEUQ?oc=5) |
-| Exclusive: USDA says it can't use emergency funds for food stamps - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQV3RIYUxJaWxLY3NoM0NTQ2NCNjdDNGhPcldyZ21HQUlXTGFUZXNVaEFFOWt6T3lPeWl6aXN3VWNtSTVVUXJuUWtRa0I5SnlNS3JuanVaSU1qUDNGZllwd2lQRmdIbWIzemdGNnJZbjMzZjFIeTYzUDF6UkpXTWloSA?oc=5) |
+| How to find SNAP alternatives in the Philly area — and how to help - WHYY | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOa2pHYV9mclhsdnZDNnJGSE1zU0pWUXNxQk5CaHFudUFIUVRDcUR0aWdnd2dXZzVPaFlidnl6VG10UWltUm5nYXpIUEJ1a2g2NGR5d2RHbnY4MEN2a2RpYmhfMi1JbzE3V2xNMGhjYVNSd0hEZ3l4VnN1LWhpMzFuSG1ORl9hY1JFSjIzWHJBeEkxdmM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
