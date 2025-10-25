@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 10:09:30（北京时间）**
+🕒 更新时间：**2025年10月25日 10:17:54（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Pentagon deploys top aircraft carrier as Trump militarisation of Caribbean ratchets up - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNeDVYaFRlcGoxVHRkbEd3bmd4eUxmcHRyS1pKX1Z5eTFZSm4zOXBSWkZCWjVyQjJ3dTBod1BTaXNaUm5aM19kRTBfTXVScjZ5aWFDS0M0blpaWWhtcGdIOEZDNEhnaUtfbUR2MWJCVUNJdUlLZW9zRkJZOGFwOE9zelprQjlYU1hBUURrczlRaWo?oc=5) |
 | What donors to Trump's White House ballroom stand to gain from the federal government - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQejY3YXZNTk02M2o3X3UwTFpteW1KU3RLamRYVW5HSnFwWGV0M0tNS0xtSmpiZFVaZ1JEaVZFTWVwMS1tRDBxVEdNaUJIcWhBbVdwUks4MlR3bGV2QnUwX0RSSnZXcXNjYnM2UUZ4LUl3cjBjU2JaTjhmbjFYUElTX2NRa9IBiAFBVV95cUxPeFpmQ0FTdU5HTndiRTNTVC1kS1EtaGJsZkFBeDBwMUxRR0xvY2R5clRJQlh3QU1kVnZhc3hxRTBQVTg3MG9GTzR5VnlvT004YVN3dnlQcnowMS13NTlMWXRFRWhzdWhfVjYzc2hsVUFpUVppOTVqUVhTMjBhc1Zrc3VHT0tXTzdM?oc=5) |
-| Trump administration won’t use contingency fund to pay November food stamp benefits - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQWHhnQVZscVp4dkk5dklfWnBtaWJVQWxGemRDN0ptT0ZHdUUtOEQxQjgxa3I4TVFGeWtXZjVtXzFFYUZhcDAzYUFqN0xlVW4xbGpnUF80WFV2aF9XNVRYX3lYNGlqMjBSRjZhQVZ6QjBhN3NKRzZIRTgxb0YyOUdwYQ?oc=5) |
+| Americans brace for food stamps to run out: ‘The greatest hunger catastrophe since the Great Depression’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQM21XcE9xVW84MUE2SnBvWGY1LXU4bmJ4LUp4eWowTno3VG05MnZuTHRHcFpoTEdDWU9oRlpVVF9iN19CS2ZJY3RSekxBQVlZYkdBb3hhX2dsdGlYZ3VfN1lZeDBIM0ItOWFqeUZrV3Y2cTRyUnNYSm11TUhDYVozYUZsQmhnUXRWTnJCcw?oc=5) |
+| Pentagon orders aircraft carrier to Latin America as Trump signals escalation - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNZkNtUGhEamFEMXdvRDRyY3Bici1DTkR5NEdDak5YZ1FyRnRfcTNDYXp4bzRnM243M05ULTJFY0w4NVFWaTdXbE9iVGtFTFF0a1ZDWV9SYlhYbkoyWURrUzdJQmZGUEQxNlNMZHBZa3BIRGJYT2xyLUs2dlRyMVlUX3pEUmNtamJNZFhBQUlNM25GaGJjalItRi1OblpScG15X05HS0pDZGIwS1U?oc=5) |
 | Trump and Canada’s Trade Spat Spotlights Doug Ford, the Ontario Premier - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPbGtSWWt4VGRwSlBlNU4ybmdhSFFOX3RvQUZQd3FKdzI3ajBHbG55WnBhWWxKdVF5SGlweTNRcjIwa0tsNTRjUmw5QS1JazQ2SU5lYU5Pa3dMTTE1Zkxnb1BtY3RGTjA5bjk5amNHd0hRMFhJb3VmOU5iWnlJUnJqbElDcmY?oc=5) |
 | Oakland mayor, sheriff say CBP ‘surge’ operation canceled for East Bay - Berkeleyside | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPdnNzcWwwbHRrS2ctZzFXXzRzMkJmWHBZZ2g1VS1pMjV1aXVEaF9hdFJLVExGbUEzR2pncHZjNmg4SGEzcUFUVjZlWVEtZFVhTzlMU29UQzZ0VnRkQm91UjQ5V3ZGSmw0a3VDLXBiLTVLVXNROWh2TUg5UFlVUTJ6ZThrdnFWZmV5dkFwc0wzMkJ3dWJ0T241eThqS0lfX00?oc=5) |
 | As strikes on alleged drug boats grow, so do questions about their legality and goal - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOM0pGaHZaWm9wYTNlQUpCUW5wNkJFWUExZVhsemtMSmRleGNNcm85eGVWckMtNnNjZkZ2VDk3d3lqZUZrLXdHT3kxcmhkUzNIMzVoYkxfdi1WRkZ1WmRWUU1abVN2WHdVWTZLN1Awek5Tb0pRMnFQTS1TY0k2UTRBRjA0OFg?oc=5) |
 | $10,000 Card Shufflers Hit the Spotlight After NBA Poker Scandal - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPR2lhU2d6VzNuZERITVFuLWZBZFZGdzZCNlhwRTVFSVBpWm9CMDE2V3B0MWJXMm1hbGl6MUpfUHlPLTJOX0pIQ1Bvc3p5bW12YWdJdEJwZjZiWkxjZjAtRXF3LVlVaHVSYy1HNFVNV3RRZHVodG95N1lHaGZWS1FrdlAxQzFfTFVqVFdldVFaTVVDcjVDN2VDV3ItZlNHczNaQ2tuekdQOEotd3M?oc=5) |
 | Shots fired, driver hurt and held after truck rams into Coast Guard base in California - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQX3NnV1FwLXkycTdKdUFrQlhzV3pHVWpSVC1sbzdSSHgwSFN4eFZxM20ySzF5RDJqT0I1VXRsNTBpNXNadUozdENtdEk0d0loMFExT24tVkJqNWp2ZzZ5ZVJ6elYtb3kyRVFJejN2ZlBIRC00amFqYU5ncWxaTlBxSmJRTkhYSl92eTQ0aTFlNk9xbUhIZEVpS1Ffb1hVbHQ3anFnb3Q0VlUxTjE5V1BFNzZfWQ?oc=5) |
-| U.S. Imposes Sanctions on Colombia’s Leader, One of President Trump’s Harshest Critics - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNMzVRb2NJOHpob19FOWtpVHNIT2gzcGxaMmlFeXRnN0p1MFVPYmJXNkl1N1U4aE9kdWtjSmczU3pTM3AyNEZ3TndydjZHN2lPLWs5RXJhenBNV3RxOGhMWVFwT29rSTdxclQza1JwdThGQlowZkx3TWpOcFY1Z3piX1dwek1ZSmxNOUk5N2pVZU4yU2hCYW9EcXRlVjloc2s?oc=5) |
-| The Louvre thieves used a furniture lift in their heist. Now the company that makes it is hoping to cash in. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQUkRFY2VFVFdMZF9acnZhWllfUTl0RVBjSUVHcUJKajJhRDBfNU9kcGl2YzdXTl80cHhHYVBSdWRxYW9mVHZZV2RIQ1pRZGcyUlI4cXhDTmRwVlRwUTU0OEVBTG1lM1JLOW1TRk5LYWc0cEgzS25JazMySWVIUzBlTEV6OXRUV0VqdHYwdURBOEJ6NElmMEHSAZsBQVVfeXFMT3hqZDA0SzExV0pkQXYteXFPSTJHOUxrVTJVaW9KWnpLSDhCck9nRFZuSEZTOEg3bHRXU0FCYW4wY2lERV9TNGVsd3hmSDhZS2RMQ3A1VTllTHJQX0hSc2lQUGNSbXNLZm9vSWdYVTlJZkNvbFdIVDdSZklvbUJpck5NWVlhNVZfWFZQMldiWktiQTN2eU5wR1RXUTA?oc=5) |
+| U.S. imposes sanctions on Colombia's president and family over drug trade allegations - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNZDJYT1ZrOHhWOG1QTFhjQW5aWHV1ek1DbnBaUHJqMkhUdGg5RUJaNkR6RTZHRnRzMnVqb0JxTW5zSWJibUhOWl95SnhUQUh0TXRXNW5vdi1fVHZIY054VzNzZmZUalVROHdpRWlMS1FiWDVpSUJONUdaQjJycXlRVGFDNlY3RVpvT085MjJKTVpraUVhN2ZtNFotZzg?oc=5) |
+| Trump Aims to Sign Mineral Deals in Asia to Raise Pressure on Xi - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOTnVROGEwcjdqSkZNTlpkVndHZ0pNa3JBdXZQRDV3bzRiYzNWZ0VrR0s0RG5OUUQ1aW91bi1tRm9qWjRvZUE1SWVyZzRJdTVURVZHSDdpeGNaS0ZHOWVzUzBSODRVeFJuTDk5MWZnREtVa25EdzhDbWpTNkM4MldTRHNodTdJNzBNTGhjbWFqMjJMYmY2cEctYXBhcnRweFhlSGx2TEV3dnlSSGE4TVVjUkIwdzhCZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
