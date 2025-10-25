@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 14:25:52（北京时间）**
+🕒 更新时间：**2025年10月25日 14:33:31（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | Gaza children dying as they wait for Israel to enable evacuations | [阅读全文](https://www.bbc.com/news/articles/cze61zg7zzpo?at_medium=RSS&at_campaign=rss) |
 | As Strictly is back on screens, bookies take bets on new Tess and Claudia | [阅读全文](https://www.bbc.com/news/articles/ckgk84nzxgko?at_medium=RSS&at_campaign=rss) |
 | Magnesium: Can this 'miracle mineral' really help us sleep? | [阅读全文](https://www.bbc.com/news/articles/czxn1qxrr32o?at_medium=RSS&at_campaign=rss) |
-| What is driving the decision to learn in a manual or automatic car? | [阅读全文](https://www.bbc.com/news/articles/c1wgpr40jeno?at_medium=RSS&at_campaign=rss) |
 | Britney Spears said she was used. Kevin Federline says she needs help | [阅读全文](https://www.bbc.com/news/articles/c620z3gkrnvo?at_medium=RSS&at_campaign=rss) |
+| 'I just love yapping': Spud sellers, posh-girl comedy and bus-loving gran among  TikTok award nominees | [阅读全文](https://www.bbc.com/news/articles/c986e2r5mdzo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
