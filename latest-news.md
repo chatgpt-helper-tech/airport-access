@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 21:08:31（北京时间）**
+🕒 更新时间：**2025年10月25日 21:18:02（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump’s Asia Tour: Deals, Diplomacy and a Meeting With Xi - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9xck5JSVZ4My1ZRy11ekc0VHRHZ0pwYXVIdGdLRGpWSFVaVDhLa0l5N3JUVEhxd1hyeVE1SHRfcUNYYW5peUtpc1Z2OWFHSjN0ZUlaVEo0WWNDbzk2Y0JyTWNYeGg1MUh0TUp4dHM0WVJtU2dkNWxGNEZYSV81TXc?oc=5) |
 | Trump was planning to send troops to San Francisco. Now he’s not. Here’s why ｜ Joe Eskenazi - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNekNyeFlsRUd3Uk9rZTRVVnZCVjloazhWRFRDOW9xdUVVY1EzMlBOT2M3Zm91cjFzY08tblM5RVhqdXVJSE5keGI0MFBhOFo3ZG5VcW9pSFdEVmRmRzJuMVNSSkE3LXQwYUhMelBLNWU3LWxjV0wtZjRKenBMZlRHb1RJUmFOTG8?oc=5) |
 | Pentagon orders aircraft carrier to Latin America as Trump signals escalation - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNZkNtUGhEamFEMXdvRDRyY3Bici1DTkR5NEdDak5YZ1FyRnRfcTNDYXp4bzRnM243M05ULTJFY0w4NVFWaTdXbE9iVGtFTFF0a1ZDWV9SYlhYbkoyWURrUzdJQmZGUEQxNlNMZHBZa3BIRGJYT2xyLUs2dlRyMVlUX3pEUmNtamJNZFhBQUlNM25GaGJjalItRi1OblpScG15X05HS0pDZGIwS1U?oc=5) |
+| An Obamacare Hot Spot Where Price Spikes Pose an Outsized Threat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOSm14aTlERlE5dmlqMVZPVUFQdU1VMFZkR2dqcmxBS0E0ejhhb0xaWmxrX2V2bk5SVV8wZVlsMGdrSkJqTmNjc1I2eWxKS1dhN3JIdzgyM0drVU1zaTFraVduQ2UtOWtUNzB0MmM2MjZ4TjcyVFBUXzNIUmxDRjBNX1RZWFJvVUNtV3FfbTY5RTh1dEhSZVM5VE15RnFEUQ?oc=5) |
 | The shutdown layoffs at health agencies followed a familiar, DOGE pattern - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQazRLdjZxWi1pNXNUOWpQZ1Q2RXNUR0pKVDlRckdzdnFOTG5mTE03M2J1WjBUanpnUXoyeEI5TjZCSDlIMXRRYXQwNGtBZnRyOHg0ajliNHk3QkZJaEthemlRVFRpaDhMM2U5QThQUERuSm1KMC1LN0txb2k1WXR2dEJYLVkzLV9fZmc?oc=5) |
-| Feds make arrests across North and Near West sides, deploy tear gas on residential street in Lake View - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOemtnTklGdlVydEw1T2l4VmIxUVZXd25oeFdydXZLQUI3WGw3am15d0tTempWejFadl9vbWcxaHQwNFJ3eU9xaFRwQkg5UXhxd2dVQVpFbXpJZFVrc01wMWR1aG5TRjQ2OXUyV0p4c2FRUGIyOGlLcG1TQkxOY2tiel9zSTVuRkpBeGNIOUNBR29aZFJDU004YUhoSFc3VmpvcVBwN1FhVQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
