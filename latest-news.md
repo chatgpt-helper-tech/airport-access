@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月25日 15:40:25（北京时间）**
+🕒 更新时间：**2025年10月25日 15:48:11（北京时间）**
 
 ---
 
@@ -25,13 +25,13 @@
 |--------|-------------|
 | Trump and Canada’s Trade Spat Spotlights Doug Ford, the Ontario Premier - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPbGtSWWt4VGRwSlBlNU4ybmdhSFFOX3RvQUZQd3FKdzI3ajBHbG55WnBhWWxKdVF5SGlweTNRcjIwa0tsNTRjUmw5QS1JazQ2SU5lYU5Pa3dMTTE1Zkxnb1BtY3RGTjA5bjk5amNHd0hRMFhJb3VmOU5iWnlJUnJqbElDcmY?oc=5) |
 | Pentagon orders aircraft carrier to Latin America as Trump signals escalation - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNZkNtUGhEamFEMXdvRDRyY3Bici1DTkR5NEdDak5YZ1FyRnRfcTNDYXp4bzRnM243M05ULTJFY0w4NVFWaTdXbE9iVGtFTFF0a1ZDWV9SYlhYbkoyWURrUzdJQmZGUEQxNlNMZHBZa3BIRGJYT2xyLUs2dlRyMVlUX3pEUmNtamJNZFhBQUlNM25GaGJjalItRi1OblpScG15X05HS0pDZGIwS1U?oc=5) |
-| Americans brace for food stamps to run out: ‘The greatest hunger catastrophe since the Great Depression’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQM21XcE9xVW84MUE2SnBvWGY1LXU4bmJ4LUp4eWowTno3VG05MnZuTHRHcFpoTEdDWU9oRlpVVF9iN19CS2ZJY3RSekxBQVlZYkdBb3hhX2dsdGlYZ3VfN1lZeDBIM0ItOWFqeUZrV3Y2cTRyUnNYSm11TUhDYVozYUZsQmhnUXRWTnJCcw?oc=5) |
 | Pentagon accepts $130 million donation to help pay the military during the government shutdown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQLS1KajBkdS1MX0NXZDY5WnZhNzNlSnhjZHVjenk1TF9VMG1fRWU0UXhWTlJiLXZURzczWjk4ZG13d3hXNXY3NGNFWTVCNFh3YU5GV3F1TVNoeDRscjZBTHFDeDdGRFg4OFJxeDdZZDViSW1Db0VTZlF5cG40bHBlcjhrSDFCOVNaS2x3eVU2RExHc21qMENEYmNIZGZBUHpYZU1kUjBqN3pXTWNVeFc2bS1FYmJrb3pZenR5V193?oc=5) |
+| Americans brace for food stamps to run out: ‘The greatest hunger catastrophe since the Great Depression’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQM21XcE9xVW84MUE2SnBvWGY1LXU4bmJ4LUp4eWowTno3VG05MnZuTHRHcFpoTEdDWU9oRlpVVF9iN19CS2ZJY3RSekxBQVlZYkdBb3hhX2dsdGlYZ3VfN1lZeDBIM0ItOWFqeUZrV3Y2cTRyUnNYSm11TUhDYVozYUZsQmhnUXRWTnJCcw?oc=5) |
 | What donors to Trump's White House ballroom stand to gain from the federal government - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQejY3YXZNTk02M2o3X3UwTFpteW1KU3RLamRYVW5HSnFwWGV0M0tNS0xtSmpiZFVaZ1JEaVZFTWVwMS1tRDBxVEdNaUJIcWhBbVdwUks4MlR3bGV2QnUwX0RSSnZXcXNjYnM2UUZ4LUl3cjBjU2JaTjhmbjFYUElTX2NRa9IBiAFBVV95cUxPeFpmQ0FTdU5HTndiRTNTVC1kS1EtaGJsZkFBeDBwMUxRR0xvY2R5clRJQlh3QU1kVnZhc3hxRTBQVTg3MG9GTzR5VnlvT004YVN3dnlQcnowMS13NTlMWXRFRWhzdWhfVjYzc2hsVUFpUVppOTVqUVhTMjBhc1Zrc3VHT0tXTzdM?oc=5) |
 | Justice Department to monitor polling sites in six counties in California and New Jersey - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNbUFaYk8wajQyd3N3MVE0QlNjZWtYM3NOdkd2c3FDc1YyQlM2R2c2enlTNVo1SElXaEJqcXF4aDQ3cTEzTXpJRWg4ZXVrS2tsaTNaaTJDZDR6eGloRy10OThqRVgxeVlzQzRPU2tudmlnMDV1T3FZM0RrbmNVNnVkdjJTMHFtN3pfUWduNDRabUE?oc=5) |
 | Exclusive ｜ Inside the Tech CEO Campaign to Stop Trump From Sending Troops to San Francisco - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNamJUOElnNFJuS1BpM2pRTHJMcFdXVFpUNGVQRk5zYTRKNXFzYUpMVXVaRnk4ajBTU1I0T2g1ajhleTFqa2ZlbXZiNmNHS3BuVGtGWXJ5Q2FJSFprNF9xckY4eWZ1cGVwTnd0Q0dnZ3dpVVduMDVtZ1lPS2Vuem9oSw?oc=5) |
-| Immigration Crackdown Spreads Through Chicago, Including Wealthy Neighborhoods - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNV21SVkFGOTFKaUd5Wl9laTBtR1VHQWFpREpFclFXanNjSXF1VlU0X2s3RzBKX1FFcnBVa2k3VktBeDltbGRyT1prbkxQTUlwNDJpM3FTRHdrcGU2MnVKalJIZVNHQVpGN3lQUjRNbjNfOWZnN1g0bUFPU09KQWZyUjUtWldlTjU1aTVWS2h2Sno?oc=5) |
 | US sanctions Colombia's president, accuses him of allowing expansion of drug trade - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOM0hSRWdhcTZXY3ZSb0dsQ2dIQjQwVjNuVTVZZFJwRV94aXEwNUxBWk40aWJ2eHBLdmhnS2Z3YzhiR1JRNEVBNlE2Mi1McFJ4N3JTUWNaQmJxZ1RIZE9vakVTMS1nSUwwSDNOSnlGQUJqVEozRldJR3Q2cHVacG1vbzdWNHBCaHFZTVM2SFZxd3pORTBQd083TVRjLWNsbUlhZURNemZBU0huRUFxTUs0?oc=5) |
+| Immigration Crackdown Spreads Through Chicago, Including Wealthy Neighborhoods - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNV21SVkFGOTFKaUd5Wl9laTBtR1VHQWFpREpFclFXanNjSXF1VlU0X2s3RzBKX1FFcnBVa2k3VktBeDltbGRyT1prbkxQTUlwNDJpM3FTRHdrcGU2MnVKalJIZVNHQVpGN3lQUjRNbjNfOWZnN1g0bUFPU09KQWZyUjUtWldlTjU1aTVWS2h2Sno?oc=5) |
 | Video shows security opening fire on U-Haul truck outside Coast Guard base in California - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNSk1EZzF5bzFOZUtsWDNQQV9weTJtRHhsc2ZETWJRd1NWbnllQTdKVnVIQzVSMk9KNDRhdzdIOC0zMDBGeVl3dFR0akpJdXZRYkpLbzhEaGFsXzlleW5zUXlhZUtCZzVHV09Ha3B3SDRHdlJaeXA1Z0kxeFNlamFocDh2blQzcVg0U1JhME5aRQ?oc=5) |
 
 ---
