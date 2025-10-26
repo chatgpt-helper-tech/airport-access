@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 23:49:26（北京时间）**
+🕒 更新时间：**2025年10月26日 23:56:03（北京时间）**
 
 ---
 
@@ -13,9 +13,9 @@
 | Reform MP's comments about adverts 'racist', says Streeting | [阅读全文](https://www.bbc.com/news/articles/cd7rg7wjvgvo?at_medium=RSS&at_campaign=rss) |
 | US and China agree framework of trade deal ahead of Trump-Xi meeting | [阅读全文](https://www.bbc.com/news/articles/c1lqj5lz4geo?at_medium=RSS&at_campaign=rss) |
 | How the nation lost its appetite for Pizza Hut | [阅读全文](https://www.bbc.com/news/articles/cn97vdpv13wo?at_medium=RSS&at_campaign=rss) |
-| The best time to turn on the heating – according to you | [阅读全文](https://www.bbc.com/news/articles/cgqly9ynnd4o?at_medium=RSS&at_campaign=rss) |
-| The 'heroes of Kharkiv' who saved 48 children from kindergarten hit by Russian drone | [阅读全文](https://www.bbc.com/news/articles/c9q1w9ypl8jo?at_medium=RSS&at_campaign=rss) |
 | Dr Chris and Dr Xand: Four things we changed after hosting a health podcast | [阅读全文](https://www.bbc.com/news/articles/c98nd0d61d0o?at_medium=RSS&at_campaign=rss) |
+| The 'heroes of Kharkiv' who saved 48 children from kindergarten hit by Russian drone | [阅读全文](https://www.bbc.com/news/articles/c9q1w9ypl8jo?at_medium=RSS&at_campaign=rss) |
+| The best time to turn on the heating – according to you | [阅读全文](https://www.bbc.com/news/articles/cgqly9ynnd4o?at_medium=RSS&at_campaign=rss) |
 | 'Brothers in the forest' - the fight to protect an isolated Amazon tribe | [阅读全文](https://www.bbc.com/news/articles/cjw92x915xlo?at_medium=RSS&at_campaign=rss) |
 | I watched my stolen phone head to London, Dubai and China | [阅读全文](https://www.bbc.com/news/articles/c620zw40xryo?at_medium=RSS&at_campaign=rss) |
 
@@ -32,7 +32,7 @@
 | Inside the final stretch of New York’s wild mayoral race - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNS1NaVXI1MXRvS1lFT3NMcEYwZzhWNXFJS3MwWVRWakNHbnktY2tmMlBVeDVLVjEtZkpNY0JZSlRwR3plS2p3R0hVU1Q5VnB3WTlIRGVLODlzOUNKV0pUMnhuT1FfLWJuenphOW5NcWdpcGhlOGJXc3VhcWVRcUp0Xw?oc=5) |
 | US Department of Agriculture says no food aid benefits will be issued next month - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNWUVhalFfTXRIa1J3ODEwajBDWEZwNHRtRGlqQ2pCdXY3UWNkOVlxWmVIYV9kOHpJUXo5ODQxdE1QNEJhMG9jc0psakxXbHhWamVPbDNlWTZGdUhrVHZoR1JkOURWNGZJRktUdzBTMnlwZUVKTVRPVDhGR3lOaVhSaEhEdm14U3NjN2FFSXlHZ3dhcGY5SEkwZW9TcXh0TDNUMUNrRHg1UGowUTdJQjd0RVNLc05IYW9BNWd2TW5zZw?oc=5) |
 | In Trump-Friendly Iowa, the President’s Policies Have Hit Hard - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5ubEdVLUlpdHNiS3JHMFpHaHVMNEdoQXB4dWRjdHFOc2NlTkRvM1FfbmM1SUk4ZTZUQ19oNGExbWhzS2ZPNHhvRjdGOWtkWGkwZTRmdDl6enhpMzhfOVI5U0g0Z1drSFVnUmZQV0pORnJnNTVUU2xWV1NB?oc=5) |
-| Argentina votes in crucial test of Milei's reforms - DW | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQMjZycUZsX0RLb0tBOHlDWEhGVDBwXzV3RW1IUV9VYi1WQTRoWXhGNWJyS3VLLUozcVBKYzg5U1Q3UEVNcF92a3FJZ1h0ZFdBdzlObkQ3akY2bEZFX0lkY3ZQdndDQkkydE5FbEFmbVhYYnNLNVRIUGs2UDNCLW53cmNPZGZDYjJkMmfSAYoBQVVfeXFMT283WWlIN2Vremp6Yi1OZ0k4Q0dNdDNVbmVwelpBeVp0RFVrUGhHZjNCbGs1YVgwQWllNzRyblBtbGxFSVhNbWcySjBDSWNXd25SdlR6WVF6aVNuS3VGLXpIa09xV2JremVGQW12NXMtT0dWVXNlc2RrYm1vbDVSWXNzSWRsczZPLUNB?oc=5) |
+| Argentina votes in midterm elections set to test President Milei’s mandate and US support - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQNERoT1FRODNYVS1iYkF0QXU3ZkZ6MURZSXdDaEotN0FZSlBlMFB5WVlIRGhvamw4UmNOSHRia3VDMzFOWjlxS2QxbV92dTlVcVd4Smx6TlM0Qkl2YlRtbHpETTgySU45bzNUMS1PdEdfLVFZZmNKU0M0UndzR012TXNpTkZ6M3JZcXp3OFRwZDA1OUkwcHZXUGFCZGJsQnFs?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
