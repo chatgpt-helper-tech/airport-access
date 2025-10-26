@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 21:25:18（北京时间）**
+🕒 更新时间：**2025年10月26日 21:33:33（北京时间）**
 
 ---
 
@@ -24,10 +24,10 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Suspects in Louvre jewel heist arrested near Paris, prosecutor says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQV19CT3gySzhYN1VJSUFHVVR6anpxdnlOckpCZ2E3cGtOdGlURkhPbFVoRzJLWk5UV3p0U2VyODh0aTZ6M0hJQzdxanJzQlYxSmtuVkkwbzBLWWh4Yzk4S25SbWdqTk14LU9rWFBpM3BSNHlwMkJBenpfVk1sVWZZVWdyWENiQjRzeDQ4LVpVcVEtOVJpR3BXVUk5OVlVVzhZNkZCNVpLUlh3dzgyZFFVT0ZiQjFxcWU4?oc=5) |
-| US and China reach ‘basic consensus’ on trade as Trump begins Asia tour - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1oUEJGcWh5VWQtY1pkRl94UHFyOXdBTTdSeDFlRUVkbjZoVzZCMUZHZnVZZkNsY1RxbWdyZlhMVjJ6ODgyU29GUnNPaE5yZUpvSVpkeWEzeVRtLU1sYUI4LTktUEpDdzNyNlhBVzRLSUhhVHFSVTNvNA?oc=5) |
+| Trump’s Asia tour: US and China ease trade tensions as president arrives to fanfare in Malaysia - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1oUEJGcWh5VWQtY1pkRl94UHFyOXdBTTdSeDFlRUVkbjZoVzZCMUZHZnVZZkNsY1RxbWdyZlhMVjJ6ODgyU29GUnNPaE5yZUpvSVpkeWEzeVRtLU1sYUI4LTktUEpDdzNyNlhBVzRLSUhhVHFSVTNvNA?oc=5) |
 | Meet all 37 White House ballroom donors funding the $300 million build - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNUVBwdi0tWTVVWmZzTWw3VVpOS2Y5eU9EN3lPTE1RbUpJY2dLS05wd21SVC1fR0s3eklTQTNNV0JZdEtBTXZKR0xQUVdPbEtlQ19iQXBMNzZNekZPcVp1VGJzWExNaEIwbVg1dmRxMXZvYkpMZWFQR1RBQnVWNnVzbVJQQWlpLWJQOTBuLUNDZUxKRDJIc09MTXdsdHQ4OUE5SWJhdVB2OA?oc=5) |
-| Hurricane Melissa to intensify into Category 5 storm as it barrels towards Jamaica - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE40dU5lbW5SYmhOMWZWWEl1U1locWk2ZjNDU2dta1IwSVhEeUVZeXA2TlBMR2g0S0FNR3lPWDFXaHZwVHZxQXRFY3hXemdEWDVDUEFRS3hlRWNWZ9IBX0FVX3lxTE1ldGlRMFZNRl9BSHpMcUNPd2w1S3NVVUJGNS02MW50dl90WkdkZzQ1T3NydDdVMXhReUJnbGY3T2V4ZTZuTXpXLW1CTlpVR2J2Znh5RXZ3NVJ3TU1JeHhV?oc=5) |
 | Trump Announces Tariff Increase on Canada Over Reagan Ad Spat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOREZ2dF9QOGZnME9jQzBldEpqdE9MQVJmNXFDd1RNLWI4cE4weUhEOWs4R1luN0FOOThFTWdHc1hkQzlOMWNoVVZ6T3o5NlRLemEtVFJJcGxRV0RoZVJDS1FxQmM2OGJRMFBNU3RxVFRMT19XSmQ0MWJYRzNsWlN2NVl3?oc=5) |
+| Hurricane Melissa to intensify into Category 5 storm as it barrels towards Jamaica - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE40dU5lbW5SYmhOMWZWWEl1U1locWk2ZjNDU2dta1IwSVhEeUVZeXA2TlBMR2g0S0FNR3lPWDFXaHZwVHZxQXRFY3hXemdEWDVDUEFRS3hlRWNWZ9IBX0FVX3lxTE1ldGlRMFZNRl9BSHpMcUNPd2w1S3NVVUJGNS02MW50dl90WkdkZzQ1T3NydDdVMXhReUJnbGY3T2V4ZTZuTXpXLW1CTlpVR2J2Znh5RXZ3NVJ3TU1JeHhV?oc=5) |
 | Russia tested new nuclear-powered Burevestnik cruise missile - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQM3diR3lRYmJEY0NhUDl4ZFU3dDJ2V1E5Qi1RMFFEQW8tZ3B4azRNLXhCRzNGMzFEZkNkV2UyNDRTSzZpSVgwd1RMWHRNem91cFVNUVNKRUpRbXpxbGJvQTlaN0d0V1hrOWZlem1ScEVUQWxiZllveU01NnZrZXdkUUl1em43bHdITHltUTl5cURuaDV2Yy13cEduMG1ycG0zUkN3ajBzWTMzUDdYS2NaTXlaOA?oc=5) |
 | 1 person killed, 6 wounded in shooting at Lincoln University in Pennsylvania - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPc3lQNlRHVEV3OU5WSHlZMElHQWZOS2dQRkVVNDZ3VEl0WFBpTjZnS0ZoQWhYUWtHalk1cDRpSzdnOW0zekZNYTZtYzFRNDRQWWxtcnAyX1V0ZWNSZXk5RDhnZ1BKdkdIUTRxbTBkNGd1bnoxdEVmVzdsb19GcllTeDJqdzU3M21wSGk4YkluUGZXTDVVWEo4Y1ZnVldFUmw5UVlaYzVUVVV4ZDhvSVotSndR0gG3AUFVX3lxTFBXTHdwVjViUTE2OVZPdkhqS3BUUjJ6T00xR1N2bHpkSl95NHYtZDZXZDVFSElNel9zQThFZXI3TkVMcUhPaHpWdVRDWWRpb3JrRnFIampXTGlmOXJQTWd4elVWb01abktLZDhvVWF1a01ObmhTLWNBTDlfRXlBNlBCVXdzX1R5Njd2cDRRTVhhZi1scng0MjFLZ0pEaG4zc0Y2ZmdYa3JHcGFpV3ZlVVFyYVFqdzFjVQ?oc=5) |
 | Inside the final stretch of New York’s wild mayoral race - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNS1NaVXI1MXRvS1lFT3NMcEYwZzhWNXFJS3MwWVRWakNHbnktY2tmMlBVeDVLVjEtZkpNY0JZSlRwR3plS2p3R0hVU1Q5VnB3WTlIRGVLODlzOUNKV0pUMnhuT1FfLWJuenphOW5NcWdpcGhlOGJXc3VhcWVRcUp0Xw?oc=5) |
