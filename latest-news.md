@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 11:01:13（北京时间）**
+🕒 更新时间：**2025年10月26日 11:08:13（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | The White House movie theater demolition ends a storied era in presidential history - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOMi1ncG02VjNlX09wQk9mbDJ5WlhMUmtJc3I2Mm5VMktnRFVPLXpJZUxKa1NlWDR1SG1Ma1lvRUtqSlRyX3dPekM5WHVMUGdMMWRpbURjaXBORThZUV9fWGIwbFFIVEVHaE43bEM0cXNwMF9USzZwUF8yN1pqV1QxdDdsaVZ6a2lkNmFvdEdoZG9RRWdiN2x3ZVR6YzhTOVU?oc=5) |
 | Hurricane Melissa Forecast: Catastrophic Danger For Jamaica, Haiti - The Weather Channel | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPalUwMXgwMXVhSXVMd0pMb0V0cDVSRnlRUjN4aXFFZ1BHSjNBTF8wSGFLXzBBYjBiUEdnLVNDVDJSRURXVjBjYWJ3Mi1JZWVyTmI0UU1ablpveWl6b1B2Z2N2MG9USWh1REFPYjFOME9lWEhSaTZxRTg0TmpkbVR3dThOc3VJRUxXMWtMUzBqLVYxOTNabU1zTXFidjR1b2Npc1R4alVJNTU3NlJl?oc=5) |
 | This mysterious billionaire and top Trump backer is behind a $130 million donation to pay troops during the government shutdown, report says - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQemdWMUlpVmVBS196a0ZGZXR4d0VkaHl0WS1OT3U1YWFWT2cybnZFNXV0amxjUW1pMl9qdnRwSF9rVXE5Z1ZXWEEyZVJ2ejZtRWFmXzFwRXBzTmVfdU5BYmlVQVR2TU8xcWw0X25IYXlxWVpadng0cWUxMGZhYUNyLVZCVXZoMzlfNEFJeUJQdE1Lc0VSaExoTjdEb1hTb0NmWFRxOXd1SEM?oc=5) |
-| Kamala Harris Suggests She Is Considering Another Presidential Run - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNQWp4RjY2elZ6UEc4ekxxQ3BTMnhIVW1KZjlsT1ZlWm5IWDVSdEZBT0JONzFEcldPRFJkRnV4UHdLRjV6SkxKRmd1bndmS25yWWtwRDhRLWozS1dnMWdCTVlQWHEwcXJHSjJSLUFVaDRWR3JJNDlvTGhDRUowY05MN0ppYXpPd0JVdGpz?oc=5) |
+| US and China kick off trade talks ahead of high-stakes Trump-Xi summit - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBSSHQyYWMzS05Td1ItV0tFbjc3M25URnQtNklCS3VJR1FUX2NLc0RKRHlwcVo5TWE4djlhZXJXWnVfdWg0SXlldlJMc0RZUnREUS1KemRyOGdXSm95bDZoM1c2WFNwVlpBb2xXWEhQd2o?oc=5) |
 | Honduran Man Struck and Killed On a Virginia Highway While Fleeing ICE - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBkbG9VZWUtUXRJMGpITHJTU21kZ1l2WG9tYVpOREc3UDR3QU5fbHZmRVBRZ3VjWm5GUTFWRmUxOWhBVjRYQmlKMW1TS2NLUEFkMzZyTTZHdjZTT19MczVRM3l2U0RvU25vRkE5c3psWVk4Zm1Ra2tSNVYzOA?oc=5) |
 | Hispanics’ support of Trump plunges since he started second term - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOampkU1hHZ29jdk9mRnFva3ZlNW5NRm90aVpaR1ZIYkRJZ0xRcG9qR2t5SHZLMXROek81cHdGSVVBRy1iRWJxV1VUWmVOMkRfRWFxWllqYmttQUdqV0NGU1psM3FwX2c1c1ZlenRsRnI2TFpSWnZXaDJyWENqWDFKdFBFQkc?oc=5) |
+| Kamala Harris says she may run for president again in 2028 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNR0V1cEdOLWNYekZMcEozZkdSZ0hocEIxcnpRdWVaYjZsSnk5MVBrYWFKQmQxRGlCQXVUM3Buc1lRYVNEMFlWZWJKVnBRNnRxdTdubFIzRHJwMmJBMmNGanhPTjRQU3hWdzRKcU84SnNENXNZTUhaNUFhZXl5am00VFJLNnN2dw?oc=5) |
 | 2 killed, 7 in critical condition in North Carolina mass shooting - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPVXZnREdRd1l1S3o0RmNvTzY2Qjh3ZkFhZDdLOVNndU9Kd1VZem9rRmRoMjZnZXd0elZBcGFOZTNiRThzRzFaZGd6OUlzQ1hub3M3TnhLUno5MUJGNTMxQ08tY2RuNFd1bGhQa1ROLXJKcDNZSlNTM0YxYXBiRTNFNHhfX19HZGlUWTFHb25sM2tsOW8yMzVrZXZ30gGfAUFVX3lxTE0tWjVfc3c1QjhTRXJSY3RpZ2owd1hEZUl4ZDhMSlRkRG12c3lFNzFqYmJsQnpMTjhERllZWUR4WTF3UmVjTmU2dy1SaGpOVXB4dm9TR1owUjdWdTBadGhSWldpV3dUZ1JZV1dpdFNRZk5TT2sxRnpaRXhVbldUaHlfa2pKaG9IS080aXRibEN1QTJpbk1tUFFvWmRnV0dScw?oc=5) |
-| There’s a war on the bachelor’s degree. Can anything replace it? - MarketWatch | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNdllZTndRUmxTemNoYXlZaDlLXzh2UEpsMFZiT084T0VZd2R3R0R5bnhldVFocVlCUWhQUzdDVnhTNF9rSWlCU2JITUFTS0RxcWxZajBLR3RwZnVhM2JJc0dlQkdkNHBCYjg0UUhsOG9yT1FRRmt1eElqUDN6MDFPamhUeUttNjVlSW1uWkVSMFFDa0FvdklDajdpaUtsWHN6REdiYUhB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
