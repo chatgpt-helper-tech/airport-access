@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 19:56:31（北京时间）**
+🕒 更新时间：**2025年10月26日 20:01:26（北京时间）**
 
 ---
 
@@ -27,8 +27,8 @@
 | US and China reach ‘basic consensus’ on trade as Trump begins Asia tour - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1oUEJGcWh5VWQtY1pkRl94UHFyOXdBTTdSeDFlRUVkbjZoVzZCMUZHZnVZZkNsY1RxbWdyZlhMVjJ6ODgyU29GUnNPaE5yZUpvSVpkeWEzeVRtLU1sYUI4LTktUEpDdzNyNlhBVzRLSUhhVHFSVTNvNA?oc=5) |
 | Meet all 37 White House ballroom donors funding the $300 million build - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNUVBwdi0tWTVVWmZzTWw3VVpOS2Y5eU9EN3lPTE1RbUpJY2dLS05wd21SVC1fR0s3eklTQTNNV0JZdEtBTXZKR0xQUVdPbEtlQ19iQXBMNzZNekZPcVp1VGJzWExNaEIwbVg1dmRxMXZvYkpMZWFQR1RBQnVWNnVzbVJQQWlpLWJQOTBuLUNDZUxKRDJIc09MTXdsdHQ4OUE5SWJhdVB2OA?oc=5) |
 | Trump Announces Tariff Increase on Canada Over Reagan Ad Spat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOREZ2dF9QOGZnME9jQzBldEpqdE9MQVJmNXFDd1RNLWI4cE4weUhEOWs4R1luN0FOOThFTWdHc1hkQzlOMWNoVVZ6T3o5NlRLemEtVFJJcGxRV0RoZVJDS1FxQmM2OGJRMFBNU3RxVFRMT19XSmQ0MWJYRzNsWlN2NVl3?oc=5) |
-| Category 4 Hurricane Melissa threatens catastrophic flooding in Jamaica and Haiti - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQUHhHTVctQ1lONW5SSUdlaDU4ME5FVFU1TDVCMU1iT3I0N0c2V3JNdlg2M0o4QW9RT2oybU1LR0pDVDVTX2V3Z0s0UTN0cEJ2WThySXFBajY3bW5NeTZZNE43S2tqSmJmXzNTd0kxcFRFUEd5UUU5a3lMV2VZVUxJZE9ncDN3LTl1?oc=5) |
-| Trump headlines ASEAN summit, oversees trade deals and Thailand-Cambodia ceasefire - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNMlN1ZUZ4b0FaUllQUXhTaVlfNXRucXFxX2VlOWhUeFlqbFdkQUVrMWZEQUctbjQ0ZkZ4eFdXY2pRMnozM3cybHluR1NfVWNpWjd1bk1fZXVIdU5rSHEwSldqQy15S1E0MWROZG1uLXNiR1pvalNLSlBFcEVEdWxWcHJ5RnV3azZNTVlhcXJtcG1aVmNNbFBoSUNsUUJDeHBQLWJRb3dEdWJwMmZ0XzhQSUlyZ00?oc=5) |
+| Russia tested new nuclear-powered Burevestnik cruise missile - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQM3diR3lRYmJEY0NhUDl4ZFU3dDJ2V1E5Qi1RMFFEQW8tZ3B4azRNLXhCRzNGMzFEZkNkV2UyNDRTSzZpSVgwd1RMWHRNem91cFVNUVNKRUpRbXpxbGJvQTlaN0d0V1hrOWZlem1ScEVUQWxiZllveU01NnZrZXdkUUl1em43bHdITHltUTl5cURuaDV2Yy13cEduMG1ycG0zUkN3ajBzWTMzUDdYS2NaTXlaOA?oc=5) |
+| Shooting leaves 1 dead and 6 hurt at historically Black university's homecoming fest in Pennsylvania - NPR | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxPZzFRZXNIS1pDcjdkaVREVWRzS0VXdFBwNG10Z3FocHFxcFl4ZndNZmZwV0t2dWZLMDQwOUdDTUhQSnAwak1CNjZJWFNabzloeDE1bWlqQWhWWGNGSldEOVU3cl9veng3c09zcU9SM1MxOFV2dXdqMktIRXR5bDdyWGdMR3pwYlBoSjFXcmh0T0RnUGxIVWVVc205UTc2YmNGTmhKRHdCNktIeTlMcWJJMUEzSXlLSnNaR3J2c2xtd3pHam9xb1hz?oc=5) |
 | Inside the final stretch of New York’s wild mayoral race - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNS1NaVXI1MXRvS1lFT3NMcEYwZzhWNXFJS3MwWVRWakNHbnktY2tmMlBVeDVLVjEtZkpNY0JZSlRwR3plS2p3R0hVU1Q5VnB3WTlIRGVLODlzOUNKV0pUMnhuT1FfLWJuenphOW5NcWdpcGhlOGJXc3VhcWVRcUp0Xw?oc=5) |
 | In Trump-Friendly Iowa, the President’s Policies Have Hit Hard - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5ubEdVLUlpdHNiS3JHMFpHaHVMNEdoQXB4dWRjdHFOc2NlTkRvM1FfbmM1SUk4ZTZUQ19oNGExbWhzS2ZPNHhvRjdGOWtkWGkwZTRmdDl6enhpMzhfOVI5U0g0Z1drSFVnUmZQV0pORnJnNTVUU2xWV1NB?oc=5) |
 | Vance Criticizes Mamdani’s Comments About Islamophobia After 9/11 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBSV3pDZGNkZC1kd2loMVZMLXpUa1lodkdsaDRrQ3QzRkxETDV5OEl0UlViMUx5eGNPWDJXT0dVb1ZpVWJlNW9oMGdoMzQ3RWNPczZuN3hBdl95RFJldDEtdGV4SzNPYXFtSjZpdlhkUm9EcmM?oc=5) |
