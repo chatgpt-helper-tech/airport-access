@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月27日 04:17:27（北京时间）**
+🕒 更新时间：**2025年10月27日 04:25:23（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | US and China say a trade deal is drawing closer as Trump and Xi ready for a high-stakes meeting - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNVTNyMDFDcktWbjFQbFM1anAtY1I5OHhEaF9pekNBbnVRa0xJWFhzdUpMd2NSaEdncGJCV1BXeW5iTm9fUFZtbG13NHpUVU1yQ2lpQVM0YU1hWVcwZEhLeW9teklSNENoRWVYTjFOdkFieFBxQ1Q3UThxZWZmU3cwa3dESWVGTHpPWURBX3lWRC1OLWpZcmZteHRXQTJuU0E?oc=5) |
 | French police arrest 2 Louvre jewel heist suspects amid manhunt - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOcmFsRHh1WEZOR3BDYmFrYjhna0hDenRXUjhEYVFwLXlzMmxEQ3NYRGNYYS1CMmNuOUlwVEphd2o4S2ViLXBEdW5vQ0ZGbTdzb1RJZ2pZNEZzQXp1dXdjR1BZSEdwZEQ2aDZETjVhTEtLOEc4X2JIX1FzazRENGh3OURDZGRPYnJTYU5BN1htTXlrVFg0UHJMX2lxazVSVkxOS0hkanZLZEgyZw?oc=5) |
-| Hurricane Melissa strengthens into category 4 as it approaches Jamaica - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPYkJEMXIzdzJtRExfYnJvWVMzUFJzYTIzdTRrb3d4ZVl3eTNVc0JhZi01My1LQ284c0N5QzloQng2LXE3X0NtNkFSZlBZSFNBT19XeVRoVEFIcDVCMTFMWjdCcU5WbjZIZGVOekhCYkpYb0xWZWxFeU9QRXJNN09qVVFJc29iQWRtSWRpYWlfaTJJRmV5MHF5MU80T3JsUnh0TDFxRXdUZXNCNVFtajhZ?oc=5) |
+| Hurricane Melissa Could Hit as One of Jamaica’s Strongest Storms Ever - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOdjhZMzVlN0pMczJ2S3hpVTgtZXZRNGJHZVFnMW1lWWlTUWlHb090NVFWSTExOUkzN29zNi1aM3RtQVo3TTZoLUI2SlNVVTVIbGxlVVNDbTFVMXlhakRKREk1YTNnbTVyWHBEejJ2SlBDdFg3dEhVWE1RVnEwM0ZfcFlEWnU0Yk0zWktzV1RRQQ?oc=5) |
 | Trump raises tariffs on Canadian goods in response to Reagan advert - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1jT1c1dG9vRXdOcjB6NXFTUHMzTHBDZ0lYNldXZnNYM2VwMFZsTFE3bXBxX1hsT1hLN0ZBdUVjdXNoYkZGNE5KaEF0OGpIVXdOSWNkSGZxMEM0d9IBX0FVX3lxTE5GdU5KVGxqY3F6LTF0NnYtNFhCYjlCYjVacWlUbWxzdmtJV3lWa2VHeTN3d01ydVJ4LWltS1dKWGs4VHpVZmdEZ3dHUjRrT3Y4NmRpSGZvV3FwcHRiV0c4?oc=5) |
 | Highlights from Gavin Newsom's "Sunday Morning" interview: Proposition 50, opposing Trump, and 2028 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOZW4tRUtqc1lub1NHdkVqQUFLUkJZcEtCWjJPUDVWRm9lU2h0eW5zNU5DcWZwa2hPdW45MzlwX29LNHBLLW5BcEFmRXFySi1IZWFGZmV1ZmQza19iMzk4NWVvNDM5MEw4c3JFS3g4LUVqOW1zdHJ5NkZDbnRhVkZGZXdpVUhsNENqQlNzQ19IbDJmcVgwQzR1c2o3SGo5OElJb3QxemluTnRaVGJxeFhTRGIwZ0ctbUxjRG80T0VYMXbSAcYBQVVfeXFMT09RRGpEMlJ2SkhocF9VZE1LdU1qV2JfNzRKcW1vMEhPZ1pRRnJVbHFhSjdYZ3BaM3FIYVNjenNvaXlBcTd3V1Y1am1uWW02bVlveUN0QlVUZTZtLXhUVFBiT2lOQTFlY3V4ZmhtU2s0Sm11UjYwT3BvZ1NQMTVlSkR3UlBsWnBINW9pZWtiMWJhOXNDOVdEdkE3eElUekp1ek1sUGtDTXpqUlBtWU9idGE5Ry1NamZfOXZOQUNWcGJBWGhLVDBR?oc=5) |
 | White House donor list for Trump’s ballroom includes Chicago entrepreneur - WBEZ Chicago | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQdmFZbjNhQU0yNE1nVGplSEwxUWpObDZBbmdJWmFEWWNKSGV0XzVtUE5nbFFnNmNyNDhVWS1VMVI0bzlHVko1MURac3E1aXhEMjhsRzB5djdwa0pueUhRMWZlNzZUdmcwaXdKWlBpNjRoUVo3ai1UMjJyQ183OG4zZm9WZUdBS1hUdl9zdVJCOEZzbVRlSUl6bkdqdDMzU0p5T0FoTWdOQlJHXzQ?oc=5) |
