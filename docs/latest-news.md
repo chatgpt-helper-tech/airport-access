@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 15:25:29（北京时间）**
+🕒 更新时间：**2025年10月26日 15:33:20（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | 1 dead, 6 injured in homecoming shooting at Lincoln University in Pennsylvania - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxORlJUV0R1Z1VqbXdGbjFPaFdUM2Jkbm1vR0RlN0lXSVptVUg3LWhzZkxvbUxzaVdra3lESVc3Z3k2Z0Zkbk9VT0loVFl4RTBYMWNUWFN4VjlYVDAxVEdUaWpvazg1VVp3LXdpdUg4WllzRG9JVXlOak5hbENOQ3Q5N201Z1RMX1k?oc=5) |
 | DNA left at crime scene links former soldier to Virginia artist's unsolved murder - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQSjRRRE5PWS15MTNGcVFYQldRUGh4b0ZxWUFVcmNkS0szTzlOVG5KVng1UFNZUGt2UmhHSTljSFBJZDkyU2xkTnNWNEhKbDh3REVldlgyYjA5T05kR2RpOElsZlRLdlVUTmJqR2Nja0FadmNHRjE0MlFiUkw5NkdxTXRMMXhEcDhGSVA4NXBaSE5aLWZqYVpF0gGcAUFVX3lxTE9JV1pTbjlOS25FenZqdV9yNnhhdXBhbTJFc0xDLUo5UDBwV2QxbC1UXzZXRENHaHoyNXZQeGIxX0xGWGxZb21UVXhfajBtWFZ4OGFySXE4UEZqamZiUi16d0ZhUXRWUm5EUmRIQ2JwRHVwY2xxeXdpTTY3NnQyOWdPRUl4b0ZWWEpnejJ4WnRUUnR1U2xaWXNQSXZCUQ?oc=5) |
 | Honduran Man Struck and Killed On a Virginia Highway While Fleeing ICE - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBkbG9VZWUtUXRJMGpITHJTU21kZ1l2WG9tYVpOREc3UDR3QU5fbHZmRVBRZ3VjWm5GUTFWRmUxOWhBVjRYQmlKMW1TS2NLUEFkMzZyTTZHdjZTT19MczVRM3l2U0RvU25vRkE5c3psWVk4Zm1Ra2tSNVYzOA?oc=5) |
-| Black Americans and Latinos feel alienated in Trump's America: poll - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOdjFqZVJ3czkxQlNVNTVfVVRFcHREQlk1YjZQM1B2bExZbnNGd213LW9aY1ltVkZkaFhma1VISFdQU1JSUHl5UEtNcVpQYjRfcnlqWUQydDZ0WjhrUXFZT2k1VkY0WS12OFFoTTZTV2pwVVhlQkxSY0E1VEgxdl9ON1Ftdw?oc=5) |
 | Kamala Harris says she may run for president again in 2028 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNR0V1cEdOLWNYekZMcEozZkdSZ0hocEIxcnpRdWVaYjZsSnk5MVBrYWFKQmQxRGlCQXVUM3Buc1lRYVNEMFlWZWJKVnBRNnRxdTdubFIzRHJwMmJBMmNGanhPTjRQU3hWdzRKcU84SnNENXNZTUhaNUFhZXl5am00VFJLNnN2dw?oc=5) |
+| Black Americans and Latinos feel alienated in Trump's America: poll - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxOdjFqZVJ3czkxQlNVNTVfVVRFcHREQlk1YjZQM1B2bExZbnNGd213LW9aY1ltVkZkaFhma1VISFdQU1JSUHl5UEtNcVpQYjRfcnlqWUQydDZ0WjhrUXFZT2k1VkY0WS12OFFoTTZTV2pwVVhlQkxSY0E1VEgxdl9ON1Ftdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
