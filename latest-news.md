@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 15:49:59（北京时间）**
+🕒 更新时间：**2025年10月26日 15:57:41（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Epping migrant sex offender last seen in Hackney on Friday, Met says | [阅读全文](https://www.bbc.com/news/articles/cn97jpy41n0o?at_medium=RSS&at_campaign=rss) |
-| Harris expresses concern she did not ask Biden not to run | [阅读全文](https://www.bbc.com/news/articles/cj412zgvy4do?at_medium=RSS&at_campaign=rss) |
+| Harris expresses concern she did not ask Biden to quit race | [阅读全文](https://www.bbc.com/news/articles/cj412zgvy4do?at_medium=RSS&at_campaign=rss) |
 | Trump raises tariffs on Canadian goods over Reagan advert | [阅读全文](https://www.bbc.com/news/articles/cx2ljgrm78zo?at_medium=RSS&at_campaign=rss) |
 | 'Brothers in the forest' - the fight to protect an isolated Amazon tribe | [阅读全文](https://www.bbc.com/news/articles/cjw92x915xlo?at_medium=RSS&at_campaign=rss) |
 | Tax rises could push food prices higher, warn supermarkets | [阅读全文](https://www.bbc.com/news/articles/c620gy43pe4o?at_medium=RSS&at_campaign=rss) |
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump raises tariffs on Canadian goods in response to Reagan advert - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1jT1c1dG9vRXdOcjB6NXFTUHMzTHBDZ0lYNldXZnNYM2VwMFZsTFE3bXBxX1hsT1hLN0ZBdUVjdXNoYkZGNE5KaEF0OGpIVXdOSWNkSGZxMEM0d9IBX0FVX3lxTE5GdU5KVGxqY3F6LTF0NnYtNFhCYjlCYjVacWlUbWxzdmtJV3lWa2VHeTN3d01ydVJ4LWltS1dKWGs4VHpVZmdEZ3dHUjRrT3Y4NmRpSGZvV3FwcHRiV0c4?oc=5) |
-| Trump aims to start his Asia trip with dealmaking in Malaysia - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNVTNyMDFDcktWbjFQbFM1anAtY1I5OHhEaF9pekNBbnVRa0xJWFhzdUpMd2NSaEdncGJCV1BXeW5iTm9fUFZtbG13NHpUVU1yQ2lpQVM0YU1hWVcwZEhLeW9teklSNENoRWVYTjFOdkFieFBxQ1Q3UThxZWZmU3cwa3dESWVGTHpPWURBX3lWRC1OLWpZcmZteHRXQTJuU0E?oc=5) |
-| How Trump Barreled Through D.C.’s Bureaucracy to Get His White House Ballroom - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQaFJOVF85LWUzM191UEMxTzl2QUdSbFZmUFVDaGxLNVIzRzdNR04yZFZTRjRodWt5eGQxMWFxYS1YQUJnMDQyVUpNM195eXRiMG56a0hIX084X2tQc2NEVDFmb3N2RHpVRHhqVXNMakxlZlJXYjMxN2NPSXoxV2I3MEhFRk8wZ0xtS3NhbQ?oc=5) |
+| Trump Administration Live Updates: President Arrives in Malaysia for First Leg of Asia Tour - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE1ObE1RMk1sN01GZ0E2cFktdDZMS1lNOW9HRzBlOVZZQnRpc1hQaTBmOFpURlU4aFpUUW56YVZSMEdLWU1zVXdSZTNVNnFGQ1NSaW91Y2M4WXJBUVMxTS1TR1ppODRaUnFfdHc?oc=5) |
+| The White House movie theater demolition ends a storied era in presidential history - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOMi1ncG02VjNlX09wQk9mbDJ5WlhMUmtJc3I2Mm5VMktnRFVPLXpJZUxKa1NlWDR1SG1Ma1lvRUtqSlRyX3dPekM5WHVMUGdMMWRpbURjaXBORThZUV9fWGIwbFFIVEVHaE43bEM0cXNwMF9USzZwUF8yN1pqV1QxdDdsaVZ6a2lkNmFvdEdoZG9RRWdiN2x3ZVR6YzhTOVU?oc=5) |
 | Now a Category 3 storm, Hurricane Melissa expected to continue strengthening - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQNjdHbTZ4NFlXMEpLWmZtMTY4MWNTN01WSTR5Sk5KYUVYZmFXamttcXFLNVlwR1hDS3JXeG9pbWlWSlNjR1hFV0pfZk1aRERWbTliSm81Slp2X21TdS1wdWY4RmFad3duMjVNRUhZMVpST2tEN3BhMEczaGQzeUo5NnJtYUVsRnZKWEltMVkzNDEwM1ppS3pXMjdNWEZ4aFB5d282N29oMTNhUVFvWk55cVFmeEnSAboBQVVfeXFMTzlodkIzek5BVFc5SVpuaVJsN0VoMVBMcXUzRFdJb1kwc0ZJXzRCYURUUlQ0OC1FUTl3VEo4U2lwR0VaaFNTU0VWa1FNTV9BWVh3enR0djFmbEVnV2NTU1BIa1k4RG55dlFpb0U1bV9ERzB1WU8wNVJOUXJpUEJ3LXFWMkRVaUk0QUtpNnRnUUNtR2MwR0R1VDJ3dC12SFNUUWUwaERCLVJ0alRJOXZLYV9VZF9KX2tNM3hn?oc=5) |
 | 1 dead, 6 injured in homecoming shooting at Lincoln University in Pennsylvania - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxORlJUV0R1Z1VqbXdGbjFPaFdUM2Jkbm1vR0RlN0lXSVptVUg3LWhzZkxvbUxzaVdra3lESVc3Z3k2Z0Zkbk9VT0loVFl4RTBYMWNUWFN4VjlYVDAxVEdUaWpvazg1VVp3LXdpdUg4WllzRG9JVXlOak5hbENOQ3Q5N201Z1RMX1k?oc=5) |
 | Argentines vote in high-stakes test of Milei's libertarian vision - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxONUVZZXhjd3RmdnY2OU54WEliYkoycGRDQjlJY09hVzZSU1E3amUxdEwxX3RnM005SDdkNVY3RlpkREVIR28zTW9hSk5lSHdCbkZVN3NCNnIwcWxHZkJvMDBsN1dvWEh2eUM0VHhRazRmaUFXU3BUSjkyaXpEb2JLSFFhaHNBVzZzczdVYjUyS0ZfekdUZVlaYnpkT2xUN2IyTUlreHFhM1lyWWJ4RlE?oc=5) |
