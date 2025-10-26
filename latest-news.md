@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月27日 01:42:01（北京时间）**
+🕒 更新时间：**2025年10月27日 01:48:19（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| French police arrest 2 Louvre jewel heist suspects amid manhunt - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOcmFsRHh1WEZOR3BDYmFrYjhna0hDenRXUjhEYVFwLXlzMmxEQ3NYRGNYYS1CMmNuOUlwVEphd2o4S2ViLXBEdW5vQ0ZGbTdzb1RJZ2pZNEZzQXp1dXdjR1BZSEdwZEQ2aDZETjVhTEtLOEc4X2JIX1FzazRENGh3OURDZGRPYnJTYU5BN1htTXlrVFg0UHJMX2lxazVSVkxOS0hkanZLZEgyZ9IBrwFBVV95cUxPYnJJUmEzX21zMV9LQmNDRmQzb185Z09qa1duRkFySWh1cFJPRUVvck5vVVgzYXgyMXM5MWhTYnNCRDJxNmZPck1PaGVyaWtuV3JTVnpXdzhlSFJLanV1bXJWeHdJaTRMV3lZYlBjNHo3V3YzYzAtVUdlNGhkcy1MX3M4cHpIVk5oaklrUjRLTjJ5OHJNZ2RqZXNPN01LejZEclJLUF9KaXRRSjdMVzM0?oc=5) |
+| Suspects in Louvre jewel heist arrested near Paris, prosecutor says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQV19CT3gySzhYN1VJSUFHVVR6anpxdnlOckpCZ2E3cGtOdGlURkhPbFVoRzJLWk5UV3p0U2VyODh0aTZ6M0hJQzdxanJzQlYxSmtuVkkwbzBLWWh4Yzk4S25SbWdqTk14LU9rWFBpM3BSNHlwMkJBenpfVk1sVWZZVWdyWENiQjRzeDQ4LVpVcVEtOVJpR3BXVUk5OVlVVzhZNkZCNVpLUlh3dzgyZFFVT0ZiQjFxcWU4?oc=5) |
 | Meet all 37 White House ballroom donors funding the $300 million build - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNUVBwdi0tWTVVWmZzTWw3VVpOS2Y5eU9EN3lPTE1RbUpJY2dLS05wd21SVC1fR0s3eklTQTNNV0JZdEtBTXZKR0xQUVdPbEtlQ19iQXBMNzZNekZPcVp1VGJzWExNaEIwbVg1dmRxMXZvYkpMZWFQR1RBQnVWNnVzbVJQQWlpLWJQOTBuLUNDZUxKRDJIc09MTXdsdHQ4OUE5SWJhdVB2OA?oc=5) |
-| US, China reach rare earths, tariff pause for Trump and Xi to consider - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQcTdoT1B6ejFjeFhvaF9vUVBIbWF5MDRScEI4Z2cyU0g0YUx2MzJmeTFXdTZSZnpwdXYtMkNEZnF5STN5b1lMQnA1aGNROHhwSHE2LUM4SHVVNlRCSnNoOG9sZmQwWVBBUnQ3VlBCVkdTekpDZTBzZnAxMEhwSEkxTWpTa1phMjRvdExOdmVnZnJNOHE4cmNPYUd0bDhsYmFVdGVJeGZJUFZqNlBSUlVnc0g4X08xY0s4TGkyVWx2Y3I2VkE?oc=5) |
+| US and China agree framework of trade deal ahead of Trump-Xi meeting - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9NZkNWS29LX1paeU5FeE94MTNmNTV5aXhoNjNuRExMNzJkbTRIMnVka3VXd1MyWlNyemhnVm5YajRUaFEySUcwOUhuYXpJTEZQT1lCQmtaMFkzQdIBX0FVX3lxTE05UV9PX2RXRlA2OFpUeVY4M3hNWm9sSWw3akVQQUM1RzBGLXlERFJ0UUlqckVaLXFLQWJoZUt4OXRzYXBoU29ERks0ZHVGWlNzZGk0TlVESGxWVU1PWTNr?oc=5) |
 | Trump Leans Into Showmanship on Day 1 of His Asia Trip - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNT3NINFM3ZVV3bWRSV3BsSi1UWFBQSFB6S3Jxam1sdFZvQWdxZi1tSHI2TzB1bWVUQTVCaXRmcWZmaDZtY1BwMGdidHNvLVVUcTNiRkpFdHdFZ3plYnV6R0ZZa2pKSTRldHhEajM1SWljSVdtUlBvckdCemR6R0N6cUh3?oc=5) |
 | Trump raises tariffs on Canadian goods in response to Reagan advert - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1jT1c1dG9vRXdOcjB6NXFTUHMzTHBDZ0lYNldXZnNYM2VwMFZsTFE3bXBxX1hsT1hLN0ZBdUVjdXNoYkZGNE5KaEF0OGpIVXdOSWNkSGZxMEM0d9IBX0FVX3lxTE5GdU5KVGxqY3F6LTF0NnYtNFhCYjlCYjVacWlUbWxzdmtJV3lWa2VHeTN3d01ydVJ4LWltS1dKWGs4VHpVZmdEZ3dHUjRrT3Y4NmRpSGZvV3FwcHRiV0c4?oc=5) |
 | Russia tests nuclear-powered Burevestnik missile, military says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5zakMzNmtZbEtNdHBtd016LUxDUjlUOXVrczAwZ0pwa3JldU5xanBlSU9EYnJuX3hncm1RUEhPdW5scF84X3paQk9wa1dqWVZIekFBMVRnRlNCd9IBX0FVX3lxTE54ZE80UV9yRkJoOS1JQ0tnbTdtMUk4azM3YlNucmt3ZHYzbENreVdGZlBkem9tR1FOMHBBZUxfZERCZEVrcUt6cEtsakR5ZDJPTEhWbkJCRUNzVkJuQW1n?oc=5) |
