@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月27日 03:25:59（北京时间）**
+🕒 更新时间：**2025年10月27日 03:33:25（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Gavin Newsom says he will consider White House run after 2026 elections - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOT0VMZTNPak9IejFlaWJRUFl4b2Uxam5DX1drdVJ0YlY0bkhoRmU1WjdMbGhMYThDUnNOUGs2MjQwMG9Ddm9oYmx4M0lEbmJLck95Z1U4WGFVblZTRTcwUG1DNDFGdVltWTRwak5wMTJmVzBRc1N2Y3ZFYm9fYVE3dkl1UWQ3cG4xQ1U2YlhNdEpEdnhjWEthcjYzSdIBoAFBVV95cUxPbUEwQnVuNDRXcDZPd0RSSld3SERWSnFRVU0tREpRbWFHejBGUkNaa3prV0Z6WWU1clVwekdycnlrQnIxcDZuSm14ZGpIeDE0Y0pfMlZaLXd5NklCc3plMzJwZnZMc2VicjVhVFQ0clpKUHdPX29oSjhPQXAxUlBWRWxJTy1QZ0pfRlNneS10MEpFLWdIYlJpblNiMlFWaGVT?oc=5) |
 | One killed and six injured after shooting at Pennsylvania’s Lincoln University - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNTUxoQ2JJWm9MQTFEM2QzWWxnTFpSWFZLM2hOQVlvSTU5a3JDTjlFdmF6dTdVdEdkT1Q1cC1xalNyb0lLWmJhRGJlZ3kwUGlTOHhVYktHaERyNnpncEJ5TTNCTWFYZ0VxamQwaWJZNVVIM09nWDc4TVBnYllteS1DbTg5R1RTY2NWZFZVQnFFOE9wQQ?oc=5) |
 | TikTok deal to be finalized Thursday, Treasury Secretary Scott Bessent says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPTVVKX21PT1pCbDNVM3JTMU1vQkNYQUJ5YjluQlpSVjBpWWVnRjJNSWlGZUJ3a0hjSjJYZVMwMUszWnhVdUNZVFFETWVqOVNYakJzbi1rYTAtWG5pZldlRU1YenM1R3hrV0o4V0RBY09HSTQxaks1Q29WWGk2Q3l1RjJCZE1VUUZ6c1gtRNIBkgFBVV95cUxOYlhZaThITnQ4Z1NSa3JTSkhneG5UMTFaR01KYk56dHZzYi14aENfSTdWRGFZNFBQOEp5NjZudUFObnZPUndFX242d0JJWGx3VnZldmotYTk1aHM1dE5GUkxCMElDT3BOR082RXd6ajhISjdjTEUwQWhvQVRmTDduNkxlN0pqMTZKY09kaEtHbDF2Zw?oc=5) |
-| Transcript: Treasury Secretary Scott Bessent on "Face the Nation with Margaret Brennan," Oct. 26, 2025 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNZXdzT3gya084Tmd6dENoYmJwUUhvaVBmSHhqdU53WFJubU1lSWV2RXd0ZExiUWE2MURFWS1xNEEzQ2ZUUGNuUk1GQmtNX1owcEZfOE4zVUgzU3UtZy1abk15dkZ2ZW9oeUVfOHhVdENxTVpNcUZSVjdOUG1PX2dpTUlULUw3T0gxZ2dDWEc3UDQ2WXA0QlExVV9rUk9yZS1RbEHSAacBQVVfeXFMT3RHb3E2TDBBYXpJSmprUEJIcWFvVmV0Vm1BVXhDY08yTi03Q2wyckkzYzlwR0NwUnZ5MVp4S2NSbnBweFRBd09JbDZSc04wVGFEYmhobjUxek9XV1FrM2t4cGFaTk5FTkZFaDg3Wkt6UmR4M0tTeU1fdDUxbUMzWTB6WWt5RndrbkR3b1VVRUg5b21Jdno0VGZSRTcxZGl6V0cxVG5iMzg?oc=5) |
 | Food benefits set to expire for 41 million people as US shutdown continues - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQS1ZXTkk3WnlZUHR2am9FUklTYXF4RkRYOVNiaGlaVXU1bzZ0WEw2U3ZhTUxGWWU2dUNkOHozdUk2VHRCMERaNzZuVmlfbjBCS1NsbVQwWmcyLXBOb1VCWFVOYnNWeFJYRDJiWWxqVHg5ZlpzX0NXVWp3dkVpRzNadV9FaEg?oc=5) |
+| Lindsey Graham: Venezuelan land strikes a real possibility - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNblNLX2k4UXRYbjNBUnoxbXJoTXNTYkEzbndESnpRTnZ3V2VYVGd0amwyZ09iWlRNckdDeVlvTm1OQzFLUWh5NUJjWHV2WW1PdHVEUUpuMTU3aHlUODhINDlUUGtFYmJIMWxWc1VqU0xFSWF4bGs0TFRQZFJQc21hNFVXUGxaZDVkX29OaHJPN3lzRkx2YXNzZ2RB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
