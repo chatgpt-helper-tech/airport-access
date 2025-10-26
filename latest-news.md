@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 13:17:42（北京时间）**
+🕒 更新时间：**2025年10月26日 13:25:31（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump raises tariffs on Canada by 10% in retaliation for anti-tariff TV ad - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPTGRLT0lFZUdpa3F4bzhQbGdUZjRZZExfcU9fUG5uWlppZ3Q0b0RJTjJvcUJPeUo0ejZCbjNzXzRwU21DdEtDTWdGblhpWHpkWEE1LW9ZZjlSanVUSUMwdnJoT1RkbjE4QnNHMl9ZLWNBTWc5T05UbzM5ZlNNaDN5TUFTTGlBMWRsUXc?oc=5) |
-| Melissa expected to rapidly intensify into major hurricane in the Caribbean - NPR | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxPRGJVNWNOaHFQWHJhLXJLU0hRQUtkbkZEZDJROF9yMXc0VzVfUXRGNW9VeG4wb1pDd01EeXdieVBwTVhDM0xJLWtLU255ZWRRN0plUGw5OTdGVW5VdUk5V2VpM0t0b0l2T1Z5aW5iUlViRUIxX0xRS3pPb1lkRHp6a3lHMnQyQ2hDWlN5c0JoVjk1QXFsQmFiTTJ4MkREUl9Xc1ZoREJCUkRrWkxWVlN6X1E2aVU2LWlVN19Zag?oc=5) |
 | Trump aims to start his Asia trip with dealmaking in Malaysia - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNVTNyMDFDcktWbjFQbFM1anAtY1I5OHhEaF9pekNBbnVRa0xJWFhzdUpMd2NSaEdncGJCV1BXeW5iTm9fUFZtbG13NHpUVU1yQ2lpQVM0YU1hWVcwZEhLeW9teklSNENoRWVYTjFOdkFieFBxQ1Q3UThxZWZmU3cwa3dESWVGTHpPWURBX3lWRC1OLWpZcmZteHRXQTJuU0E?oc=5) |
-| Big Tech and other firms pressed over donations to Trump's East Wing project: 'You owe Americans an explanation' - businessinsider.com | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPdEtBUEhaMWp6ZnV6cUlLMzZ3V1VTUmRxanNTNXJWWEZkbk02Njc1VlZJMTU2dHBJdEdmWDljM0JaQVdQVW9pMV9rZUptTXlXQlJwTXlySDFqYjRMTkkxQmFibXVCSm82Y2dYc0pYRUg5S3B4NXI2aFAyelk1M3hWTnVHTVVMbXMxbXZwQVRxZ2d5V0gyZVF0bA?oc=5) |
+| The White House movie theater demolition ends a storied era in presidential history - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOMi1ncG02VjNlX09wQk9mbDJ5WlhMUmtJc3I2Mm5VMktnRFVPLXpJZUxKa1NlWDR1SG1Ma1lvRUtqSlRyX3dPekM5WHVMUGdMMWRpbURjaXBORThZUV9fWGIwbFFIVEVHaE43bEM0cXNwMF9USzZwUF8yN1pqV1QxdDdsaVZ6a2lkNmFvdEdoZG9RRWdiN2x3ZVR6YzhTOVU?oc=5) |
+| Hurricane Melissa Forecast: Catastrophic Danger For Jamaica, Haiti - The Weather Channel | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPalUwMXgwMXVhSXVMd0pMb0V0cDVSRnlRUjN4aXFFZ1BHSjNBTF8wSGFLXzBBYjBiUEdnLVNDVDJSRURXVjBjYWJ3Mi1JZWVyTmI0UU1ablpveWl6b1B2Z2N2MG9USWh1REFPYjFOME9lWEhSaTZxRTg0TmpkbVR3dThOc3VJRUxXMWtMUzBqLVYxOTNabU1zTXFidjR1b2Npc1R4alVJNTU3NlJl?oc=5) |
 | Trump ally who donated $130 million to pay troops amid shutdown revealed as reclusive billionaire heir: report - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxNeElOUzNHRVZ5Rms5M0hrbmRYcHNlblEzWkstZ3paRmRKdFlmWThNUkN0dEtWRDZZVXF3TjhHTGQyMTZxOTVLdkhFYTZ5RldDaFVzaWdGakxxN0htY1hYXzd3VWNnVVNlQV9heEo0U3p3Mk5NUExKR1BfaERoUG51TElQelR0X0N2SUlGa0hOckpzTFNuYzludURYTnd6OHR1ampyVHRqb3pyY3VOcmRiNFdNOUJhZGVuSTBxM2pRUkhLdw?oc=5) |
 | Kamala Harris says she may run for president again in 2028 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNR0V1cEdOLWNYekZMcEozZkdSZ0hocEIxcnpRdWVaYjZsSnk5MVBrYWFKQmQxRGlCQXVUM3Buc1lRYVNEMFlWZWJKVnBRNnRxdTdubFIzRHJwMmJBMmNGanhPTjRQU3hWdzRKcU84SnNENXNZTUhaNUFhZXl5am00VFJLNnN2dw?oc=5) |
 | Honduran Man Struck and Killed On a Virginia Highway While Fleeing ICE - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBkbG9VZWUtUXRJMGpITHJTU21kZ1l2WG9tYVpOREc3UDR3QU5fbHZmRVBRZ3VjWm5GUTFWRmUxOWhBVjRYQmlKMW1TS2NLUEFkMzZyTTZHdjZTT19MczVRM3l2U0RvU25vRkE5c3psWVk4Zm1Ra2tSNVYzOA?oc=5) |
 | Army Veteran Arrested For 30-Year-Old Murder After DNA Testing - TMZ | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPWDRCeVdSXzk4eXItVy1HZ2Y1Q0lnMWlnSmNVRzRpVmJRZEVhekRxRG5ZbmdyVjB0QldVeXNWQkN5SVpkN2tnMlVVZ1QwTU9ueW0zb01ydnZhNzMzdUdPM3h1dU5qQnltcmg2cGJVcVZvM1FNZGJQVmhQSnNWRm1MLWUwZE4wbE1VZWF30gGLAUFVX3lxTE9lRnNvMHNqT3ZackM4Z0syb1NibHJUdDk1bGREWi1ybzJWRG5Ic1NhTGRSdEJnY2dPTmpObE00dktVZlpJN2Z6NHNESHFDSWNnVGpDcnFRN2lIOUdkOXM2cEZHR1RWdHRmWjFvY1VLV2pINWQ3R0d5cll0b2hIcDc5RWpvZmdzRnVTQWs?oc=5) |
-| In Florida, Obamacare Price Hikes Pose an Outsized Threat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOSm14aTlERlE5dmlqMVZPVUFQdU1VMFZkR2dqcmxBS0E0ejhhb0xaWmxrX2V2bk5SVV8wZVlsMGdrSkJqTmNjc1I2eWxKS1dhN3JIdzgyM0drVU1zaTFraVduQ2UtOWtUNzB0MmM2MjZ4TjcyVFBUXzNIUmxDRjBNX1RZWFJvVUNtV3FfbTY5RTh1dEhSZVM5VE15RnFEUQ?oc=5) |
 | ‘The pro-life movement still has some real juice’: How Trump’s promise of free IVF fizzled - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxOX1daTktYR0o1SGF2SlRHLXpSdHhudWFtdzVJYk1Oc3Z5Qm5UbjltbUt1R1l3X2Z3WGJDMHN5YjJfS1FCQzV6TXB4U0NPOWxSOFNFTnVOMDM4N3pzcWtDTUpYY3NNcXlXb3NGcVo0ZnpKcmdWVXhJWFpraEp6TlMxWTh3a0NCdVlRSWRfQ05Ib29IZllid0lXRnlWSFRMY1JjUk9jZnhENW9NbjdlV1V4bmc0TmhvZE00RU14bmlZUkFZM0NrSHRKUlZnckZoR2hpbWc?oc=5) |
+| Hispanics’ support of Trump plunges since he started second term - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOampkU1hHZ29jdk9mRnFva3ZlNW5NRm90aVpaR1ZIYkRJZ0xRcG9qR2t5SHZLMXROek81cHdGSVVBRy1iRWJxV1VUWmVOMkRfRWFxWllqYmttQUdqV0NGU1psM3FwX2c1c1ZlenRsRnI2TFpSWnZXaDJyWENqWDFKdFBFQkc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
