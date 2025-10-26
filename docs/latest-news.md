@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 09:56:37（北京时间）**
+🕒 更新时间：**2025年10月26日 10:00:45（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Honduran man killed on Virginia highway as he tried to escape ICE agents - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOTk5qRjBZbmlKUjM0M21RTWNWODhiT0FJeGFDQ3ctLUJNcGRmWmN5WWo1ejZiVmI3QnZncm5mMElvcjNrSEpHMnVta2E2aHRDUnFYd24xZGFmM1VXYWp2MlpEc2UyNTJuX0hDZkN4MUs2MmhRRkFQR0llendyUFRZd1NySmo0OE9VOW9vSTd30gGTAUFVX3lxTE8xa2ZJMmJnMEFqX0ZwX1Z6cl9RQzl1dFppYVVuUGx3ZkVHMlg0d2g5ZG1pdUVLekhvSnBaTzgteVNKOHNaLThPT3h6VTQwNkRIZ1Jhd0VQYllSM3BGTnVZenVfMUM5bWFzWmFrYW51ZWc3U2ZqcGF1MWRBR19GMXFReXZYbGZYclk0M1laeXlHNXoxYw?oc=5) |
 | Hispanics’ support of Trump plunges since he started second term - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOampkU1hHZ29jdk9mRnFva3ZlNW5NRm90aVpaR1ZIYkRJZ0xRcG9qR2t5SHZLMXROek81cHdGSVVBRy1iRWJxV1VUWmVOMkRfRWFxWllqYmttQUdqV0NGU1psM3FwX2c1c1ZlenRsRnI2TFpSWnZXaDJyWENqWDFKdFBFQkc?oc=5) |
 | Meet the alleged mobsters charged in the rigged poker game scheme - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQbWEtZFBmX05fVlliWTdndGg2UG80X20wLXZNNDJLRXJ0MV9yZVViQWlNZnZPRlRWOXVuYUlCbDZncHZtWGItY0MxREc4TVVGbnRyWHNGMkMzUjFDQjJ4V196N0UzVmdlc09URWxqNXhwOE5TOFk3M05UdVpiRVZVSVhmbjFydDJzeGhzR3k4N2xsbjlq0gFWQVVfeXFMUDk2aXZHdGF4cTlDd0sycGNURzNtZzAzVlRhNnBqZ0xMQ3o5RndTMEFhbkdESldpYm5GNVVQem0ybk9NZG1EX296UXRnN2NEOFhUWHU3OXc?oc=5) |
-| US could hit Russia with more sanctions over Ukraine war, but also wants Europe to increase pressure - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxPQXhaTWNUMWpZaXNtcE83YVIzeWt6d2MwaGZnYVU4WU9fM3BIWTJWSUJPczdxamhlRkNtSG1BbVNTQk5QTWZSaENaVjZBLWhZWkt2RTY5RVdYT2xjV3RuOXZ1SDJwbFpwVHZWUUU0U3VpVTFUUE44MGxub0RPcXFYU1M4c3ZQdm9FcGVibnBJS0JPaWk2TVZ5STBDU3ZkaW5wcmZZR0ZaOGEzTURrMVVROWN3OFN4cnROc2Zfand5SjBUYkVDdFE?oc=5) |
+| ‘After 9/11, my aunt did not feel safe in her hijab’: Zohran Mamdani speaks to New York Muslims; JD Vance - The Times of India | [阅读全文](https://news.google.com/rss/articles/CBMiigJBVV95cUxPUHY3c3ZvR1lrTHNURE1UOFpjYW0weDJfMnV1VHh6VjBZZVB2aHg2YThLWWxoWnhyNllXX2hqMXhET1JPZDVLWWg5NS1hNzJhSzdxaGpKaDI3NXdIUnA1NGcxcmpQelpyMlJvUk81NTdINGN0bk44SUlVelpuVHpzbGxIc0hZa0ZQTEl5UXVNS056N29ncVNyR19MU1ZOTXZqV244UnhpbkNRVHVjZ3RkWU41TFJYVlEtYTNDNmxMSXNqaEdORUFZbWRoRFhIVG9hNHNiVUdkbDB5R1JEWDdCaTNZR244N0tNVjNndy1JZTV2ZndGT0lRWFNEUEg2ZDAtOWFvNzhwa1IwUdIBjwJBVV95cUxQcXFxM1RUcWNydGNLRENSZkw4SjdNWTFxZXNMc2tLdHctZkhsOVhYOGRQZDJIc3B3VWVianR5aml2V0NfMThzUjFXQUJudUs4SXpMR3Y2clNMYXppNS1JOTZJVDRuVGo3b2ZUVllnQ2c1UkY1S1FtNnpKODE1UFExMEVuSXdXcnA0TmcxLUFYT2d1ODduMTYzYkZlc05PQ3ViYUxScTV4VFBlWWdYWlAzcDgwMG5tekk5eGoxeG9zQ0JWWUJvT3EwMnhyR1ZhbmRveURNcGtGREZ6bU83SjFsQkhqMWZFNjhRQTUxNDFYZ0Z5R1VDRjI2ai1qRXkxcFBZeXR1NG8xd0JKREo5eEFn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
