@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 10:17:07（北京时间）**
+🕒 更新时间：**2025年10月26日 10:25:13（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Met urges Epping migrant sex offender to hand himself in | [阅读全文](https://www.bbc.com/news/articles/cdx4k2d5yxlo?at_medium=RSS&at_campaign=rss) |
+| Epping migrant sex offender last seen in Hackney on Friday, Met says | [阅读全文](https://www.bbc.com/news/articles/cn97jpy41n0o?at_medium=RSS&at_campaign=rss) |
 | Trump raises tariffs on Canadian goods in response to Reagan advert | [阅读全文](https://www.bbc.com/news/articles/cx2ljgrm78zo?at_medium=RSS&at_campaign=rss) |
 | 'Brothers in the forest' - the fight to protect an isolated Amazon tribe | [阅读全文](https://www.bbc.com/news/articles/cjw92x915xlo?at_medium=RSS&at_campaign=rss) |
 | Tax rises could push food prices higher, warn supermarkets | [阅读全文](https://www.bbc.com/news/articles/c620gy43pe4o?at_medium=RSS&at_campaign=rss) |
@@ -29,7 +29,7 @@
 | Storm Melissa reaches hurricane strength, threatening catastrophic flooding in northern Caribbean - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNeHZMX2VyTGFoVmszZXNZVVlTM3p1bkt3dTZBQ2ttTk1sb1g1VkNIMGRfSjJkQUo3RjloTnl6NUY3TjdUVjktS19sYm8xR2JteUwxN1FHMW9TNG9zX2xySEtOUFh2RWhhVzlRTEdLMnpxcEdGV2lvb3V2MmNyVEpQMWpwV1dtamlIMVN6SXFOXy1mXzhVUldGMFdjNEstY1NvMmlsbDdhUFpBZlU?oc=5) |
 | This mysterious billionaire and top Trump backer is behind a $130 million donation to pay troops during the government shutdown, report says - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQemdWMUlpVmVBS196a0ZGZXR4d0VkaHl0WS1OT3U1YWFWT2cybnZFNXV0amxjUW1pMl9qdnRwSF9rVXE5Z1ZXWEEyZVJ2ejZtRWFmXzFwRXBzTmVfdU5BYmlVQVR2TU8xcWw0X25IYXlxWVpadng0cWUxMGZhYUNyLVZCVXZoMzlfNEFJeUJQdE1Lc0VSaExoTjdEb1hTb0NmWFRxOXd1SEM?oc=5) |
 | Kamala Harris hints she is ready to run again for US president - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOTzlxUWM0U1JHNC1nX2pwY3lma1dyTk9qem1QbXFGWTJ1SHctSVc0V3FySlBFT1hWRjFUaDJJZ2RrTEhwVWU1UlllNngxeXRvckg1WjAyZ0kydjd1aHYxU3A1dEZyaG5BSmV6dzdUbGMwODFjTy1vdmxuS0ZxTlhfTw?oc=5) |
-| Honduran Man Struck and Killed On a Virginia Highway While Fleeing ICE - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBkbG9VZWUtUXRJMGpITHJTU21kZ1l2WG9tYVpOREc3UDR3QU5fbHZmRVBRZ3VjWm5GUTFWRmUxOWhBVjRYQmlKMW1TS2NLUEFkMzZyTTZHdjZTT19MczVRM3l2U0RvU25vRkE5c3psWVk4Zm1Ra2tSNVYzOA?oc=5) |
+| Honduran man killed on Virginia highway as he tried to escape ICE agents - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOTk5qRjBZbmlKUjM0M21RTWNWODhiT0FJeGFDQ3ctLUJNcGRmWmN5WWo1ejZiVmI3QnZncm5mMElvcjNrSEpHMnVta2E2aHRDUnFYd24xZGFmM1VXYWp2MlpEc2UyNTJuX0hDZkN4MUs2MmhRRkFQR0llendyUFRZd1NySmo0OE9VOW9vSTd30gGTAUFVX3lxTE8xa2ZJMmJnMEFqX0ZwX1Z6cl9RQzl1dFppYVVuUGx3ZkVHMlg0d2g5ZG1pdUVLekhvSnBaTzgteVNKOHNaLThPT3h6VTQwNkRIZ1Jhd0VQYllSM3BGTnVZenVfMUM5bWFzWmFrYW51ZWc3U2ZqcGF1MWRBR19GMXFReXZYbGZYclk0M1laeXlHNXoxYw?oc=5) |
 | Hispanics’ support of Trump plunges since he started second term - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOampkU1hHZ29jdk9mRnFva3ZlNW5NRm90aVpaR1ZIYkRJZ0xRcG9qR2t5SHZLMXROek81cHdGSVVBRy1iRWJxV1VUWmVOMkRfRWFxWllqYmttQUdqV0NGU1psM3FwX2c1c1ZlenRsRnI2TFpSWnZXaDJyWENqWDFKdFBFQkc?oc=5) |
 | 2 killed, 7 in critical condition in North Carolina mass shooting - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPVXZnREdRd1l1S3o0RmNvTzY2Qjh3ZkFhZDdLOVNndU9Kd1VZem9rRmRoMjZnZXd0elZBcGFOZTNiRThzRzFaZGd6OUlzQ1hub3M3TnhLUno5MUJGNTMxQ08tY2RuNFd1bGhQa1ROLXJKcDNZSlNTM0YxYXBiRTNFNHhfX19HZGlUWTFHb25sM2tsOW8yMzVrZXZ30gGfAUFVX3lxTE0tWjVfc3c1QjhTRXJSY3RpZ2owd1hEZUl4ZDhMSlRkRG12c3lFNzFqYmJsQnpMTjhERllZWUR4WTF3UmVjTmU2dy1SaGpOVXB4dm9TR1owUjdWdTBadGhSWldpV3dUZ1JZV1dpdFNRZk5TT2sxRnpaRXhVbldUaHlfa2pKaG9IS080aXRibEN1QTJpbk1tUFFvWmRnV0dScw?oc=5) |
 | US could hit Russia with more sanctions over Ukraine war, but also wants Europe to increase pressure - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxPQXhaTWNUMWpZaXNtcE83YVIzeWt6d2MwaGZnYVU4WU9fM3BIWTJWSUJPczdxamhlRkNtSG1BbVNTQk5QTWZSaENaVjZBLWhZWkt2RTY5RVdYT2xjV3RuOXZ1SDJwbFpwVHZWUUU0U3VpVTFUUE44MGxub0RPcXFYU1M4c3ZQdm9FcGVibnBJS0JPaWk2TVZ5STBDU3ZkaW5wcmZZR0ZaOGEzTURrMVVROWN3OFN4cnROc2Zfand5SjBUYkVDdFE?oc=5) |
