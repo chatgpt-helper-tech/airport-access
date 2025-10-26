@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 21:33:33（北京时间）**
+🕒 更新时间：**2025年10月26日 21:41:41（北京时间）**
 
 ---
 
@@ -10,22 +10,22 @@
 |--------|-------------|
 | Moment migrant sex offender arrested in London park | [阅读全文](https://www.bbc.com/news/videos/c93dk58ev1do?at_medium=RSS&at_campaign=rss) |
 | Two arrested over theft of jewels at Louvre museum in Paris | [阅读全文](https://www.bbc.com/news/articles/c2em38pdv0do?at_medium=RSS&at_campaign=rss) |
+| Reform MP's comments about adverts 'racist', says Streeting | [阅读全文](https://www.bbc.com/news/articles/cd7rg7wjvgvo?at_medium=RSS&at_campaign=rss) |
 | Harris 'concerned' she did not ask Biden to quit race | [阅读全文](https://www.bbc.com/news/articles/cj412zgvy4do?at_medium=RSS&at_campaign=rss) |
 | 'Brothers in the forest' - the fight to protect an isolated Amazon tribe | [阅读全文](https://www.bbc.com/news/articles/cjw92x915xlo?at_medium=RSS&at_campaign=rss) |
-| Trump's week in Asia: BBC correspondents on the wins and potential losses | [阅读全文](https://www.bbc.com/news/articles/c9d6jnn37l2o?at_medium=RSS&at_campaign=rss) |
 | How the nation lost its appetite for Pizza Hut | [阅读全文](https://www.bbc.com/news/articles/cn97vdpv13wo?at_medium=RSS&at_campaign=rss) |
 | The best time to turn on the heating – according to you | [阅读全文](https://www.bbc.com/news/articles/cgqly9ynnd4o?at_medium=RSS&at_campaign=rss) |
-| Willpower doesn't exist: Doctors bust wellness myths | [阅读全文](https://www.bbc.com/news/articles/c98nd0d61d0o?at_medium=RSS&at_campaign=rss) |
+| Dr Chris and Dr Xand: Four things we changed after hosting a health podcast | [阅读全文](https://www.bbc.com/news/articles/c98nd0d61d0o?at_medium=RSS&at_campaign=rss) |
+| Trump's week in Asia: BBC correspondents on the wins and potential losses | [阅读全文](https://www.bbc.com/news/articles/c9d6jnn37l2o?at_medium=RSS&at_campaign=rss) |
 | I lost thousands of photos when my phone crashed. What should I do? | [阅读全文](https://www.bbc.com/news/articles/cdx4g5ndnkyo?at_medium=RSS&at_campaign=rss) |
-| Representation to red flags: The fall and future of Manchester Pride | [阅读全文](https://www.bbc.com/news/articles/cp8evd7vl6ro?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Suspects in Louvre jewel heist arrested near Paris, prosecutor says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQV19CT3gySzhYN1VJSUFHVVR6anpxdnlOckpCZ2E3cGtOdGlURkhPbFVoRzJLWk5UV3p0U2VyODh0aTZ6M0hJQzdxanJzQlYxSmtuVkkwbzBLWWh4Yzk4S25SbWdqTk14LU9rWFBpM3BSNHlwMkJBenpfVk1sVWZZVWdyWENiQjRzeDQ4LVpVcVEtOVJpR3BXVUk5OVlVVzhZNkZCNVpLUlh3dzgyZFFVT0ZiQjFxcWU4?oc=5) |
-| Trump’s Asia tour: US and China ease trade tensions as president arrives to fanfare in Malaysia - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1oUEJGcWh5VWQtY1pkRl94UHFyOXdBTTdSeDFlRUVkbjZoVzZCMUZHZnVZZkNsY1RxbWdyZlhMVjJ6ODgyU29GUnNPaE5yZUpvSVpkeWEzeVRtLU1sYUI4LTktUEpDdzNyNlhBVzRLSUhhVHFSVTNvNA?oc=5) |
 | Meet all 37 White House ballroom donors funding the $300 million build - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNUVBwdi0tWTVVWmZzTWw3VVpOS2Y5eU9EN3lPTE1RbUpJY2dLS05wd21SVC1fR0s3eklTQTNNV0JZdEtBTXZKR0xQUVdPbEtlQ19iQXBMNzZNekZPcVp1VGJzWExNaEIwbVg1dmRxMXZvYkpMZWFQR1RBQnVWNnVzbVJQQWlpLWJQOTBuLUNDZUxKRDJIc09MTXdsdHQ4OUE5SWJhdVB2OA?oc=5) |
+| Trump’s Asia tour: US and China ease trade tensions as president arrives to fanfare in Malaysia - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1oUEJGcWh5VWQtY1pkRl94UHFyOXdBTTdSeDFlRUVkbjZoVzZCMUZHZnVZZkNsY1RxbWdyZlhMVjJ6ODgyU29GUnNPaE5yZUpvSVpkeWEzeVRtLU1sYUI4LTktUEpDdzNyNlhBVzRLSUhhVHFSVTNvNA?oc=5) |
 | Trump Announces Tariff Increase on Canada Over Reagan Ad Spat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOREZ2dF9QOGZnME9jQzBldEpqdE9MQVJmNXFDd1RNLWI4cE4weUhEOWs4R1luN0FOOThFTWdHc1hkQzlOMWNoVVZ6T3o5NlRLemEtVFJJcGxRV0RoZVJDS1FxQmM2OGJRMFBNU3RxVFRMT19XSmQ0MWJYRzNsWlN2NVl3?oc=5) |
 | Hurricane Melissa to intensify into Category 5 storm as it barrels towards Jamaica - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE40dU5lbW5SYmhOMWZWWEl1U1locWk2ZjNDU2dta1IwSVhEeUVZeXA2TlBMR2g0S0FNR3lPWDFXaHZwVHZxQXRFY3hXemdEWDVDUEFRS3hlRWNWZ9IBX0FVX3lxTE1ldGlRMFZNRl9BSHpMcUNPd2w1S3NVVUJGNS02MW50dl90WkdkZzQ1T3NydDdVMXhReUJnbGY3T2V4ZTZuTXpXLW1CTlpVR2J2Znh5RXZ3NVJ3TU1JeHhV?oc=5) |
 | Russia tested new nuclear-powered Burevestnik cruise missile - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQM3diR3lRYmJEY0NhUDl4ZFU3dDJ2V1E5Qi1RMFFEQW8tZ3B4azRNLXhCRzNGMzFEZkNkV2UyNDRTSzZpSVgwd1RMWHRNem91cFVNUVNKRUpRbXpxbGJvQTlaN0d0V1hrOWZlem1ScEVUQWxiZllveU01NnZrZXdkUUl1em43bHdITHltUTl5cURuaDV2Yy13cEduMG1ycG0zUkN3ajBzWTMzUDdYS2NaTXlaOA?oc=5) |
