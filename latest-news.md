@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月27日 02:49:35（北京时间）**
+🕒 更新时间：**2025年10月27日 02:57:18（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Hurricane Melissa to intensify into Category 5 storm as it barrels towards Jamaica - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE40dU5lbW5SYmhOMWZWWEl1U1locWk2ZjNDU2dta1IwSVhEeUVZeXA2TlBMR2g0S0FNR3lPWDFXaHZwVHZxQXRFY3hXemdEWDVDUEFRS3hlRWNWZ9IBX0FVX3lxTE1ldGlRMFZNRl9BSHpMcUNPd2w1S3NVVUJGNS02MW50dl90WkdkZzQ1T3NydDdVMXhReUJnbGY3T2V4ZTZuTXpXLW1CTlpVR2J2Znh5RXZ3NVJ3TU1JeHhV?oc=5) |
 | Trump Announces Tariff Increase on Canada Over Reagan Ad Spat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOREZ2dF9QOGZnME9jQzBldEpqdE9MQVJmNXFDd1RNLWI4cE4weUhEOWs4R1luN0FOOThFTWdHc1hkQzlOMWNoVVZ6T3o5NlRLemEtVFJJcGxRV0RoZVJDS1FxQmM2OGJRMFBNU3RxVFRMT19XSmQ0MWJYRzNsWlN2NVl3?oc=5) |
 | Trump finalizes trade deals with 2 Southeast Asian countries - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOdURkOWM4end6bHc3a3BjLWlXS3ctTHlBajNYcHdfVzdHeVBwak9jLUFpMWV5ZDJsejNGcm5CZ2xad2FXemlENlVtSVdaVjNiMlpRSkJRU0w3bzQ0aEtsa1NWbGdtcVFYejdkbE01MTMybHlib0k4dGs2S19zOG14Z25DUC1oanpCZW1ZNjl3?oc=5) |
-| Shooting leaves 1 dead and 6 hurt at historically Black university's homecoming fest in Pennsylvania - NPR | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxPZzFRZXNIS1pDcjdkaVREVWRzS0VXdFBwNG10Z3FocHFxcFl4ZndNZmZwV0t2dWZLMDQwOUdDTUhQSnAwak1CNjZJWFNabzloeDE1bWlqQWhWWGNGSldEOVU3cl9veng3c09zcU9SM1MxOFV2dXdqMktIRXR5bDdyWGdMR3pwYlBoSjFXcmh0T0RnUGxIVWVVc205UTc2YmNGTmhKRHdCNktIeTlMcWJJMUEzSXlLSnNaR3J2c2xtd3pHam9xb1hz?oc=5) |
-| US and China reach ‘final deal’ on TikTok sale, treasury secretary says - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPNjA5VDhDcnZvRE5VaGQ0ZnhfczE2ZC1GZFJNbm9xcWo2N1VZUnAzbnFUZ1BUVkJsa2gzODQ4LXdnYVhPeTZJOGtXM21zYlpzYm9vd3BLSm9jSFhkVllJcHhpRUladHdqOGcyZFFGQm9IZVVJR0xJXzU4U2Z5Wk1IaU93UWdsLXRFTFF1ME9R?oc=5) |
-| Transcript: Treasury Secretary Scott Bessent on "Face the Nation with Margaret Brennan," Oct. 26, 2025 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNZXdzT3gya084Tmd6dENoYmJwUUhvaVBmSHhqdU53WFJubU1lSWV2RXd0ZExiUWE2MURFWS1xNEEzQ2ZUUGNuUk1GQmtNX1owcEZfOE4zVUgzU3UtZy1abk15dkZ2ZW9oeUVfOHhVdENxTVpNcUZSVjdOUG1PX2dpTUlULUw3T0gxZ2dDWEc3UDQ2WXA0QlExVV9rUk9yZS1RbEHSAacBQVVfeXFMT3RHb3E2TDBBYXpJSmprUEJIcWFvVmV0Vm1BVXhDY08yTi03Q2wyckkzYzlwR0NwUnZ5MVp4S2NSbnBweFRBd09JbDZSc04wVGFEYmhobjUxek9XV1FrM2t4cGFaTk5FTkZFaDg3Wkt6UmR4M0tTeU1fdDUxbUMzWTB6WWt5RndrbkR3b1VVRUg5b21Jdno0VGZSRTcxZGl6V0cxVG5iMzg?oc=5) |
-| Food benefits set to expire for 41 million people as US shutdown continues - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQS1ZXTkk3WnlZUHR2am9FUklTYXF4RkRYOVNiaGlaVXU1bzZ0WEw2U3ZhTUxGWWU2dUNkOHozdUk2VHRCMERaNzZuVmlfbjBCS1NsbVQwWmcyLXBOb1VCWFVOYnNWeFJYRDJiWWxqVHg5ZlpzX0NXVWp3dkVpRzNadV9FaEg?oc=5) |
+| One killed and six injured after shooting at Pennsylvania’s Lincoln University - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNTUxoQ2JJWm9MQTFEM2QzWWxnTFpSWFZLM2hOQVlvSTU5a3JDTjlFdmF6dTdVdEdkT1Q1cC1xalNyb0lLWmJhRGJlZ3kwUGlTOHhVYktHaERyNnpncEJ5TTNCTWFYZ0VxamQwaWJZNVVIM09nWDc4TVBnYllteS1DbTg5R1RTY2NWZFZVQnFFOE9wQQ?oc=5) |
+| Trump and Xi Could ‘Consummate’ TikTok Deal This Week, Bessent Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPVVVDVERQcjFnSnhQaXJzTks5azBONHRlSnZKSS16b2VJZjVhekF0Q0duZW5MVHBIVDFrYmV3M2tvejJMaG16SmZGUTJZaGI2amFzVUI5Vy1Vd0Q1OUJ0VTZFUDVtTWxoZUd0OC1vUTIxYi1zbi1ndnQxejlmemd4MDl6OFhKNUU?oc=5) |
+| US Department of Agriculture says no food aid benefits will be issued next month - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNWUVhalFfTXRIa1J3ODEwajBDWEZwNHRtRGlqQ2pCdXY3UWNkOVlxWmVIYV9kOHpJUXo5ODQxdE1QNEJhMG9jc0psakxXbHhWamVPbDNlWTZGdUhrVHZoR1JkOURWNGZJRktUdzBTMnlwZUVKTVRPVDhGR3lOaVhSaEhEdm14U3NjN2FFSXlHZ3dhcGY5SEkwZW9TcXh0TDNUMUNrRHg1UGowUTdJQjd0RVNLc05IYW9BNWd2TW5zZw?oc=5) |
+| Argentina votes in midterm elections set to test President Milei’s mandate and US support - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQNERoT1FRODNYVS1iYkF0QXU3ZkZ6MURZSXdDaEotN0FZSlBlMFB5WVlIRGhvamw4UmNOSHRia3VDMzFOWjlxS2QxbV92dTlVcVd4Smx6TlM0Qkl2YlRtbHpETTgySU45bzNUMS1PdEdfLVFZZmNKU0M0UndzR012TXNpTkZ6M3JZcXp3OFRwZDA1OUkwcHZXUGFCZGJsQnFs?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
