@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 17:41:02（北京时间）**
+🕒 更新时间：**2025年10月26日 17:48:58（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Melissa expected to rapidly intensify into major hurricane in the Caribbean - NPR | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxPRGJVNWNOaHFQWHJhLXJLU0hRQUtkbkZEZDJROF9yMXc0VzVfUXRGNW9VeG4wb1pDd01EeXdieVBwTVhDM0xJLWtLU255ZWRRN0plUGw5OTdGVW5VdUk5V2VpM0t0b0l2T1Z5aW5iUlViRUIxX0xRS3pPb1lkRHp6a3lHMnQyQ2hDWlN5c0JoVjk1QXFsQmFiTTJ4MkREUl9Xc1ZoREJCUkRrWkxWVlN6X1E2aVU2LWlVN19Zag?oc=5) |
 | Trump heads to Asia with trade — and tensions with Xi — on the agenda - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxQaVk0M0h3Tm0tOU1PVDVqeFU0LUR5bHBvc3hPc2dvTk1rSTIzQWpjZkRrMWUzWEpNNjVybWxMMkl4aFlPVGpjV1oyVWVEMU9MTEV5UE9ZamJYdXQxclp1cEEzVmZBNjA4M0FoNGNnYUUyZXFXUC05V3VxTFVKSllMUVE4dy1xV0pLY1ZUVHhJTjlTY3lleFU0d3JURm1tMzlpRzE3SnlUTURIUVBUdUhqTXNR0gFWQVVfeXFMTndyN2dhY0oxSjFVSm9OaXphYVRpdWJfekVLN2tVUGV0TnBJWXZrMGd6Si14bmFMdmVLcTF5SW96VFUzV3FiRWtvV2w1ZTZPM0U1Q0lIZ3c?oc=5) |
 | How Trump Barreled Through D.C.’s Bureaucracy to Get His White House Ballroom - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQaFJOVF85LWUzM191UEMxTzl2QUdSbFZmUFVDaGxLNVIzRzdNR04yZFZTRjRodWt5eGQxMWFxYS1YQUJnMDQyVUpNM195eXRiMG56a0hIX084X2tQc2NEVDFmb3N2RHpVRHhqVXNMakxlZlJXYjMxN2NPSXoxV2I3MEhFRk8wZ0xtS3NhbQ?oc=5) |
-| ‘It’s Got to Be an Inside Job’: Jewelry Thieves Weigh In on Louvre Heist - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNQ1NicVRNWlpVdVJ4ellmZVJ0RkNUTnVqODVKc3UwMUstMUJpSnpFNUpqYzRBNU85XzZTRklTbVVQeFJsS0pqaEdFNWVfZ1Y2eWQzdnN6YmNENFRQUlNGUzE5TEk1SjJReUhRMER1R01iT3Rackw1RmZJbXc0ZWhtTkhPNjhlMkhZ?oc=5) |
+| ‘Positive framework’ agreed for Trump-Xi summit, says Scott Bessent - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1YSER4NzN0QWJGcWVPdElXbGxEdzBHQ0JKalZ5Yk9WcWg2c0c2Q2JoNi0wSjhHRFJLeW5lYVdpd1lOWVBQdDFQUEtvZjlKZlhIWXVsWmg4RWJJVEtWU3VrRjFBeHh5YVN5ODJPMmFDWWQ?oc=5) |
 | DNA left at crime scene links former soldier to Virginia artist's unsolved murder - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQSjRRRE5PWS15MTNGcVFYQldRUGh4b0ZxWUFVcmNkS0szTzlOVG5KVng1UFNZUGt2UmhHSTljSFBJZDkyU2xkTnNWNEhKbDh3REVldlgyYjA5T05kR2RpOElsZlRLdlVUTmJqR2Nja0FadmNHRjE0MlFiUkw5NkdxTXRMMXhEcDhGSVA4NXBaSE5aLWZqYVpF0gGcAUFVX3lxTE9JV1pTbjlOS25FenZqdV9yNnhhdXBhbTJFc0xDLUo5UDBwV2QxbC1UXzZXRENHaHoyNXZQeGIxX0xGWGxZb21UVXhfajBtWFZ4OGFySXE4UEZqamZiUi16d0ZhUXRWUm5EUmRIQ2JwRHVwY2xxeXdpTTY3NnQyOWdPRUl4b0ZWWEpnejJ4WnRUUnR1U2xaWXNQSXZCUQ?oc=5) |
 | Honduran Man Struck and Killed On a Virginia Highway While Fleeing ICE - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBkbG9VZWUtUXRJMGpITHJTU21kZ1l2WG9tYVpOREc3UDR3QU5fbHZmRVBRZ3VjWm5GUTFWRmUxOWhBVjRYQmlKMW1TS2NLUEFkMzZyTTZHdjZTT19MczVRM3l2U0RvU25vRkE5c3psWVk4Zm1Ra2tSNVYzOA?oc=5) |
 | Vance Criticizes Mamdani’s Comments About Islamophobia After 9/11 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBSV3pDZGNkZC1kd2loMVZMLXpUa1lodkdsaDRrQ3QzRkxETDV5OEl0UlViMUx5eGNPWDJXT0dVb1ZpVWJlNW9oMGdoMzQ3RWNPczZuN3hBdl95RFJldDEtdGV4SzNPYXFtSjZpdlhkUm9EcmM?oc=5) |
