@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 12:33:51（北京时间）**
+🕒 更新时间：**2025年10月26日 12:41:07（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | The White House movie theater demolition ends a storied era in presidential history - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOMi1ncG02VjNlX09wQk9mbDJ5WlhMUmtJc3I2Mm5VMktnRFVPLXpJZUxKa1NlWDR1SG1Ma1lvRUtqSlRyX3dPekM5WHVMUGdMMWRpbURjaXBORThZUV9fWGIwbFFIVEVHaE43bEM0cXNwMF9USzZwUF8yN1pqV1QxdDdsaVZ6a2lkNmFvdEdoZG9RRWdiN2x3ZVR6YzhTOVU?oc=5) |
 | Hurricane Melissa is strengthening rapidly, threatening catastrophic flooding in northern Caribbean - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNeHZMX2VyTGFoVmszZXNZVVlTM3p1bkt3dTZBQ2ttTk1sb1g1VkNIMGRfSjJkQUo3RjloTnl6NUY3TjdUVjktS19sYm8xR2JteUwxN1FHMW9TNG9zX2xySEtOUFh2RWhhVzlRTEdLMnpxcEdGV2lvb3V2MmNyVEpQMWpwV1dtamlIMVN6SXFOXy1mXzhVUldGMFdjNEstY1NvMmlsbDdhUFpBZlU?oc=5) |
 | Trump ally who donated $130 million to pay troops amid shutdown revealed as reclusive billionaire heir: report - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxNeElOUzNHRVZ5Rms5M0hrbmRYcHNlblEzWkstZ3paRmRKdFlmWThNUkN0dEtWRDZZVXF3TjhHTGQyMTZxOTVLdkhFYTZ5RldDaFVzaWdGakxxN0htY1hYXzd3VWNnVVNlQV9heEo0U3p3Mk5NUExKR1BfaERoUG51TElQelR0X0N2SUlGa0hOckpzTFNuYzludURYTnd6OHR1ampyVHRqb3pyY3VOcmRiNFdNOUJhZGVuSTBxM2pRUkhLdw?oc=5) |
-| Kamala Harris says she may run for president again in 2028 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNR0V1cEdOLWNYekZMcEozZkdSZ0hocEIxcnpRdWVaYjZsSnk5MVBrYWFKQmQxRGlCQXVUM3Buc1lRYVNEMFlWZWJKVnBRNnRxdTdubFIzRHJwMmJBMmNGanhPTjRQU3hWdzRKcU84SnNENXNZTUhaNUFhZXl5am00VFJLNnN2dw?oc=5) |
+| Multiple people shot at Lincoln University in Pennsylvania, Chester County District Attorney say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxORlJUV0R1Z1VqbXdGbjFPaFdUM2Jkbm1vR0RlN0lXSVptVUg3LWhzZkxvbUxzaVdra3lESVc3Z3k2Z0Zkbk9VT0loVFl4RTBYMWNUWFN4VjlYVDAxVEdUaWpvazg1VVp3LXdpdUg4WllzRG9JVXlOak5hbENOQ3Q5N201Z1RMX1k?oc=5) |
 | Honduran Man Struck and Killed On a Virginia Highway While Fleeing ICE - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBkbG9VZWUtUXRJMGpITHJTU21kZ1l2WG9tYVpOREc3UDR3QU5fbHZmRVBRZ3VjWm5GUTFWRmUxOWhBVjRYQmlKMW1TS2NLUEFkMzZyTTZHdjZTT19MczVRM3l2U0RvU25vRkE5c3psWVk4Zm1Ra2tSNVYzOA?oc=5) |
 | ‘The pro-life movement still has some real juice’: How Trump’s promise of free IVF fizzled - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi0gFBVV95cUxOX1daTktYR0o1SGF2SlRHLXpSdHhudWFtdzVJYk1Oc3Z5Qm5UbjltbUt1R1l3X2Z3WGJDMHN5YjJfS1FCQzV6TXB4U0NPOWxSOFNFTnVOMDM4N3pzcWtDTUpYY3NNcXlXb3NGcVo0ZnpKcmdWVXhJWFpraEp6TlMxWTh3a0NCdVlRSWRfQ05Ib29IZllid0lXRnlWSFRMY1JjUk9jZnhENW9NbjdlV1V4bmc0TmhvZE00RU14bmlZUkFZM0NrSHRKUlZnckZoR2hpbWc?oc=5) |
 | Average Obamacare premiums are set to rise 30 percent, documents show - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPamdidlh6SnVTc3duMXdGUTBTYmdydE1qR3hiSHVIRjVNNHloZ0hseUJMZWVqSGdjUFQ5OVVoMGVmNFM1Ml84cWdQd3dMMWY4YmdmZ3llWjZDel96ZmRxcWhRenYxZ0ludG9vX0h6dEhlR2tpNVJMeVp2VTEzNnE1eDZ5ZVJlMC1pSnBmZQ?oc=5) |
