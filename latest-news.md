@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 07:56:21（北京时间）**
+🕒 更新时间：**2025年10月26日 08:01:28（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Hispanics’ support of Trump plunges since he started second term - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOampkU1hHZ29jdk9mRnFva3ZlNW5NRm90aVpaR1ZIYkRJZ0xRcG9qR2t5SHZLMXROek81cHdGSVVBRy1iRWJxV1VUWmVOMkRfRWFxWllqYmttQUdqV0NGU1psM3FwX2c1c1ZlenRsRnI2TFpSWnZXaDJyWENqWDFKdFBFQkc?oc=5) |
 | Honduran man killed on Virginia highway as he tried to escape ICE agents - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOTk5qRjBZbmlKUjM0M21RTWNWODhiT0FJeGFDQ3ctLUJNcGRmWmN5WWo1ejZiVmI3QnZncm5mMElvcjNrSEpHMnVta2E2aHRDUnFYd24xZGFmM1VXYWp2MlpEc2UyNTJuX0hDZkN4MUs2MmhRRkFQR0llendyUFRZd1NySmo0OE9VOW9vSTd30gGTAUFVX3lxTE8xa2ZJMmJnMEFqX0ZwX1Z6cl9RQzl1dFppYVVuUGx3ZkVHMlg0d2g5ZG1pdUVLekhvSnBaTzgteVNKOHNaLThPT3h6VTQwNkRIZ1Jhd0VQYllSM3BGTnVZenVfMUM5bWFzWmFrYW51ZWc3U2ZqcGF1MWRBR19GMXFReXZYbGZYclk0M1laeXlHNXoxYw?oc=5) |
 | Meet the alleged mobsters charged in the rigged poker game scheme - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQbWEtZFBmX05fVlliWTdndGg2UG80X20wLXZNNDJLRXJ0MV9yZVViQWlNZnZPRlRWOXVuYUlCbDZncHZtWGItY0MxREc4TVVGbnRyWHNGMkMzUjFDQjJ4V196N0UzVmdlc09URWxqNXhwOE5TOFk3M05UdVpiRVZVSVhmbjFydDJzeGhzR3k4N2xsbjlq0gFWQVVfeXFMUDk2aXZHdGF4cTlDd0sycGNURzNtZzAzVlRhNnBqZ0xMQ3o5RndTMEFhbkdESldpYm5GNVVQem0ybk9NZG1EX296UXRnN2NEOFhUWHU3OXc?oc=5) |
-| 2 killed, 7 in critical condition in North Carolina mass shooting - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPVXZnREdRd1l1S3o0RmNvTzY2Qjh3ZkFhZDdLOVNndU9Kd1VZem9rRmRoMjZnZXd0elZBcGFOZTNiRThzRzFaZGd6OUlzQ1hub3M3TnhLUno5MUJGNTMxQ08tY2RuNFd1bGhQa1ROLXJKcDNZSlNTM0YxYXBiRTNFNHhfX19HZGlUWTFHb25sM2tsOW8yMzVrZXZ30gGfAUFVX3lxTE0tWjVfc3c1QjhTRXJSY3RpZ2owd1hEZUl4ZDhMSlRkRG12c3lFNzFqYmJsQnpMTjhERllZWUR4WTF3UmVjTmU2dy1SaGpOVXB4dm9TR1owUjdWdTBadGhSWldpV3dUZ1JZV1dpdFNRZk5TT2sxRnpaRXhVbldUaHlfa2pKaG9IS080aXRibEN1QTJpbk1tUFFvWmRnV0dScw?oc=5) |
+| The White House movie theater demolition ends a storied era in presidential history - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOMi1ncG02VjNlX09wQk9mbDJ5WlhMUmtJc3I2Mm5VMktnRFVPLXpJZUxKa1NlWDR1SG1Ma1lvRUtqSlRyX3dPekM5WHVMUGdMMWRpbURjaXBORThZUV9fWGIwbFFIVEVHaE43bEM0cXNwMF9USzZwUF8yN1pqV1QxdDdsaVZ6a2lkNmFvdEdoZG9RRWdiN2x3ZVR6YzhTOVU?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
