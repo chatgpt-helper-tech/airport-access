@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月27日 05:25:29（北京时间）**
+🕒 更新时间：**2025年10月27日 05:32:39（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Suspects In Louvre Jewel Heist Arrested, French Officials Say - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxNX2UycTQzc3ZNVUdLaE1scmR2dGhjX05KS3FILXowWmZja0VlU3pEZXJDc1RLT3FLUVJyNU9EbVJmUjB4VDNLUHdrSzRpWl93bHhJRzdLTGhSQktRWGN6TjJQX0tyc0EwMEtPZFNVQmlReWtkcUNDcXVfLVR2QzJ1R1djbFR4S0xaeXQwdEZkUlphNTJwREhXTnF2amRFOXAyNS1WcnNiSUNCb1B2WDFJU3lHQXNPY3BtLWtqNXAtb0JWNldKZFdHb1FB?oc=5) |
 | Hurricane Melissa Could Hit as One of Jamaica’s Strongest Storms Ever - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOdjhZMzVlN0pMczJ2S3hpVTgtZXZRNGJHZVFnMW1lWWlTUWlHb090NVFWSTExOUkzN29zNi1aM3RtQVo3TTZoLUI2SlNVVTVIbGxlVVNDbTFVMXlhakRKREk1YTNnbTVyWHBEejJ2SlBDdFg3dEhVWE1RVnEwM0ZfcFlEWnU0Yk0zWktzV1RRQQ?oc=5) |
 | Trump’s Ballroom Fundraising Taps Cash from Crypto, Tech Allies - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxONXltamx0MGhXLThKaWVqSTI3d3NTaUc2WW9NSC1VdGQ1aDVBckhvU0VKNEJONUhEaXQzT21VcEtqc2JzT2FWZEMwY0psZnZYSV9IQ05mNHRJVU5BMkpkdDU5anp3WnZ1emZtako3UVJ4NTM2V0MtbWxGOHkyQXB5OGo5QnVObmVhQ1o0Y3F0WE5hMDY4bjNQTVVELXNreEtDekZQTWR1bkoyRFkxQmpZbzRGaw?oc=5) |
-| California Gov. Gavin Newsom says he'd be 'lying' if he denied plans to consider a presidential run - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxPUmtJMk4ydml0dEFrbFBiR2QyWTJUZ0NFdThnTi03RFNCN2txejdvVDB0aks1aTd3anNJaENqbG10bGZFQm9zX3o4Z3pvOUNYMFJJZXJuVC1UZjdYWWZacXg0SEtrbkJueEt4c20yenN6bDVtOG84bmd1NTcwTm01cl81THM5anNVdFM0RkFxeWxjZ2ZjMWV2VmJlMV9hcWRJYk9DVDh3TkpmZV91YWRLQjBMOXhaVkNXT1A2YmRCV2YzODVl0gFWQVVfeXFMTndFWkZEQjR6Vm9sSFhteHBKNFB0UmUwV3NyQmFwWjNtdWo2YkU2UkZEQnhyM0N5MWZFalhyZUI4WkpsSjBiQUZnZFUtelNvWXBLcXQ5YWc?oc=5) |
+| Gavin Newsom confirms he is considering 2028 presidential run - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPYlNFMHBHOWRiMDZheFhCWXFxZVYySUQyeERxX0pDLWNlZUxBM0JDX0hnRE9KcElRVmpIVXp6WnRCN1NlS2tOZjNuU3BmQlV2V25vM0kzbW1tLUJrYUhEeVRVemdlTFVfeHFOYnRpU25yMEFnWWUwTEdkUmV0MlFfaVlZOTNqRjZTVDBB?oc=5) |
 | Federal food aid will not go out starting Nov. 1 amid government shutdown, Trump administration says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE9HenVNSXZFWVhuLUtlZVpXdXlSTS1IYUJrVW5LMVVveC1laDhBaW1pY2VLTzd1R1NGb1JVRFJsYU1EMERzSlozTmFpeVhZUmUyZmlSRkVrQmV4TjFkbElydk92dlpkdTZrS1Fvb2JKbFpIUWhE0gF6QVVfeXFMUHlSWmNTcFV2RTk3YklVdE9RMHJ3TUUxMEszTHJUelp2X3BMTW9TNU1mVUg0VUMwQVpNSnJHLWJpdUVUZ0RHZ1g5VzVPY0FjSTZQQVdxUWVCb09aXzFoSzV1Tms4UDVQUE94RlpaYkd5cUhkbW9taHFOc2c?oc=5) |
 | One killed and six injured after shooting at Pennsylvania’s Lincoln University - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNTUxoQ2JJWm9MQTFEM2QzWWxnTFpSWFZLM2hOQVlvSTU5a3JDTjlFdmF6dTdVdEdkT1Q1cC1xalNyb0lLWmJhRGJlZ3kwUGlTOHhVYktHaERyNnpncEJ5TTNCTWFYZ0VxamQwaWJZNVVIM09nWDc4TVBnYllteS1DbTg5R1RTY2NWZFZVQnFFOE9wQQ?oc=5) |
 | Trump and Xi Could ‘Consummate’ TikTok Deal This Week, Bessent Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPVVVDVERQcjFnSnhQaXJzTks5azBONHRlSnZKSS16b2VJZjVhekF0Q0duZW5MVHBIVDFrYmV3M2tvejJMaG16SmZGUTJZaGI2amFzVUI5Vy1Vd0Q1OUJ0VTZFUDVtTWxoZUd0OC1vUTIxYi1zbi1ndnQxejlmemd4MDl6OFhKNUU?oc=5) |
