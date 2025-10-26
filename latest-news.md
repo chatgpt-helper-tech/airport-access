@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月27日 07:17:19（北京时间）**
+🕒 更新时间：**2025年10月27日 07:25:13（北京时间）**
 
 ---
 
@@ -23,12 +23,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| US, China talks sketch out rare earths, tariff pause for Trump and Xi to consider - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQcTdoT1B6ejFjeFhvaF9vUVBIbWF5MDRScEI4Z2cyU0g0YUx2MzJmeTFXdTZSZnpwdXYtMkNEZnF5STN5b1lMQnA1aGNROHhwSHE2LUM4SHVVNlRCSnNoOG9sZmQwWVBBUnQ3VlBCVkdTekpDZTBzZnAxMEhwSEkxTWpTa1phMjRvdExOdmVnZnJNOHE4cmNPYUd0bDhsYmFVdGVJeGZJUFZqNlBSUlVnc0g4X08xY0s4TGkyVWx2Y3I2VkE?oc=5) |
+| US, China Tee Up Sweeping Trade Deal for Trump, Xi to Finish - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxONTI4aVl2WDVTc0tCR2h0TUJjTnFUMUh3bnpuY2FoWUxlLW9fUms0MzFoRFBjU280M1RBSzM3UUVnV1FtNlFjZndueW5hRFBMeEpPUmRBNnVEbGx5T0IyX2NDX20zbUhERFpfVUZwdGR1bDJya2hoRVBMZEV5T2ZTb0Z1NlNhOUpvU3A3cnllMzZVWmt1NXFlUnhfNllzRW1NNEtXUVJndEw?oc=5) |
 | Hurricane Melissa Could Hit as One of Jamaica’s Strongest Storms Ever - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOdjhZMzVlN0pMczJ2S3hpVTgtZXZRNGJHZVFnMW1lWWlTUWlHb090NVFWSTExOUkzN29zNi1aM3RtQVo3TTZoLUI2SlNVVTVIbGxlVVNDbTFVMXlhakRKREk1YTNnbTVyWHBEejJ2SlBDdFg3dEhVWE1RVnEwM0ZfcFlEWnU0Yk0zWktzV1RRQQ?oc=5) |
 | Trump Reaches Trade Pacts With Southeast Asian Nations - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPY0RndGJCdG1QVkZNQ1dXRWFtQlVxVHVWLTRxUWhhLWd0QWx0UEx6cVpHX2VwOWpham9EWHMzV2hDUG5QLTJjSHZKY0R4bWs4RWs5OWpUWEd2eHpUT2hLekRJdnlLMVh6clh0THVyWk9nYXcwZGEzSnJwSUw5ZjhHd0hIbTk3eUF1M0djZWpQbi1kSmhXMkRMd3E1S0kyZw?oc=5) |
 | Gavin Newsom confirms he is considering 2028 presidential run - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPYlNFMHBHOWRiMDZheFhCWXFxZVYySUQyeERxX0pDLWNlZUxBM0JDX0hnRE9KcElRVmpIVXp6WnRCN1NlS2tOZjNuU3BmQlV2V25vM0kzbW1tLUJrYUhEeVRVemdlTFVfeHFOYnRpU25yMEFnWWUwTEdkUmV0MlFfaVlZOTNqRjZTVDBB?oc=5) |
 | The Louvre theft could make France’s stolen crown jewels as famous as the Mona Lisa - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQeURRUE1TNEFuMU8wdWltRC14T3Y2NlJkUWExU0k4MzdRbGlYMFU3c2RzRnpaLXNpeXZEaEdtU2kzbjlMbXFpbGtpaDF2ZGdSTjhTVjFoVUdZNjV1a2VnVm1YdDZ0RllQMWl6UWppeHFHeUJUMklfY25Rd0tnN0dnbzBIWEIyclZINmNKcE43cw?oc=5) |
-| Argentina votes in crucial test of Milei's reforms - DW | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQMjZycUZsX0RLb0tBOHlDWEhGVDBwXzV3RW1IUV9VYi1WQTRoWXhGNWJyS3VLLUozcVBKYzg5U1Q3UEVNcF92a3FJZ1h0ZFdBdzlObkQ3akY2bEZFX0lkY3ZQdndDQkkydE5FbEFmbVhYYnNLNVRIUGs2UDNCLW53cmNPZGZDYjJkMmfSAYoBQVVfeXFMT283WWlIN2Vremp6Yi1OZ0k4Q0dNdDNVbmVwelpBeVp0RFVrUGhHZjNCbGs1YVgwQWllNzRyblBtbGxFSVhNbWcySjBDSWNXd25SdlR6WVF6aVNuS3VGLXpIa09xV2JremVGQW12NXMtT0dWVXNlc2RrYm1vbDVSWXNzSWRsczZPLUNB?oc=5) |
+| Argentines vote in high-stakes test of Milei's libertarian vision - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxONUVZZXhjd3RmdnY2OU54WEliYkoycGRDQjlJY09hVzZSU1E3amUxdEwxX3RnM005SDdkNVY3RlpkREVIR28zTW9hSk5lSHdCbkZVN3NCNnIwcWxHZkJvMDBsN1dvWEh2eUM0VHhRazRmaUFXU3BUSjkyaXpEb2JLSFFhaHNBVzZzczdVYjUyS0ZfekdUZVlaYnpkT2xUN2IyTUlreHFhM1lyWWJ4RlE?oc=5) |
 | Federal food aid will not go out starting Nov. 1 amid government shutdown, Trump administration says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE9HenVNSXZFWVhuLUtlZVpXdXlSTS1IYUJrVW5LMVVveC1laDhBaW1pY2VLTzd1R1NGb1JVRFJsYU1EMERzSlozTmFpeVhZUmUyZmlSRkVrQmV4TjFkbElydk92dlpkdTZrS1Fvb2JKbFpIUWhE0gF6QVVfeXFMUHlSWmNTcFV2RTk3YklVdE9RMHJ3TUUxMEszTHJUelp2X3BMTW9TNU1mVUg0VUMwQVpNSnJHLWJpdUVUZ0RHZ1g5VzVPY0FjSTZQQVdxUWVCb09aXzFoSzV1Tms4UDVQUE94RlpaYkd5cUhkbW9taHFOc2c?oc=5) |
 | Column ｜ Before Trump gutted the White House, Erdogan built his ‘White Palace’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOamwxaTQ0ajJaMDJrdFhwVUFWTDQtT3JWWE9RQWh0SzgxZWFraUdBWVFueFhNYkpGV0dNa0p6dVpVZmpYSFBKaXpGQWxCQUctYV8wTmpXTXE2bUV6NGlzZ3JxUmRWZzlvc0lGLU9KTHZONmdOQlVqNWpzSEcwdE5scWFkaVZkenE2V09HSmN3MldyN0Y1S3lILXB4dDlsemZO?oc=5) |
 | US airports report over 20 air traffic controller shortage incidents in one day - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOdGpSaWxUMWFFMW9ZU2loY2lUWi1mY2R1dkxwVU9vemdCZkVUZ0UxMXpKaVg1cy05Zm4xZXRxTHVmbUtBRlIzSU5lU0pHU0Y5ejI4bFJDZXc3aXJOZEtLLVl2Q3ZQa3QyS2xsMm1LSnlSRkJ0bzRuMHR0SzlxRHhnMzU2MDZLc1R1ZFBiU1FMV3BqTlU?oc=5) |
