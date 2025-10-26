@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月26日 20:32:18（北京时间）**
+🕒 更新时间：**2025年10月26日 20:40:45（北京时间）**
 
 ---
 
@@ -23,12 +23,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Suspects arrested over jewel theft from Paris’s Louvre museum - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1CZXJ4QzlPdEZpWXJ5bklXOU5IWlk1UE5jS1FYYWhDVjBxWDNkQWJsZlVtRERiY2U2OFUzR0ZNazVpTXRSQXlBcFJFbGxXZUJpR3pHN05TajdseUpNdzdFM0tIX2xrYmd2N1JSbm9JN29CbExTbWRmeGtBeGs?oc=5) |
+| Suspects arrested over brazen jewel theft from Paris’ Louvre museum - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1CZXJ4QzlPdEZpWXJ5bklXOU5IWlk1UE5jS1FYYWhDVjBxWDNkQWJsZlVtRERiY2U2OFUzR0ZNazVpTXRSQXlBcFJFbGxXZUJpR3pHN05TajdseUpNdzdFM0tIX2xrYmd2N1JSbm9JN29CbExTbWRmeGtBeGs?oc=5) |
 | Trump Administration Live Updates: President Arrives in Malaysia for First Leg of Asia Tour - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE1ObE1RMk1sN01GZ0E2cFktdDZMS1lNOW9HRzBlOVZZQnRpc1hQaTBmOFpURlU4aFpUUW56YVZSMEdLWU1zVXdSZTNVNnFGQ1NSaW91Y2M4WXJBUVMxTS1TR1ppODRaUnFfdHc?oc=5) |
 | Meet all 37 White House ballroom donors funding the $300 million build - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNUVBwdi0tWTVVWmZzTWw3VVpOS2Y5eU9EN3lPTE1RbUpJY2dLS05wd21SVC1fR0s3eklTQTNNV0JZdEtBTXZKR0xQUVdPbEtlQ19iQXBMNzZNekZPcVp1VGJzWExNaEIwbVg1dmRxMXZvYkpMZWFQR1RBQnVWNnVzbVJQQWlpLWJQOTBuLUNDZUxKRDJIc09MTXdsdHQ4OUE5SWJhdVB2OA?oc=5) |
 | Hurricane Melissa to intensify into Category 5 storm as it barrels towards Jamaica - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE40dU5lbW5SYmhOMWZWWEl1U1locWk2ZjNDU2dta1IwSVhEeUVZeXA2TlBMR2g0S0FNR3lPWDFXaHZwVHZxQXRFY3hXemdEWDVDUEFRS3hlRWNWZ9IBX0FVX3lxTE1ldGlRMFZNRl9BSHpMcUNPd2w1S3NVVUJGNS02MW50dl90WkdkZzQ1T3NydDdVMXhReUJnbGY3T2V4ZTZuTXpXLW1CTlpVR2J2Znh5RXZ3NVJ3TU1JeHhV?oc=5) |
-| Russia tested new nuclear-powered Burevestnik cruise missile - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQM3diR3lRYmJEY0NhUDl4ZFU3dDJ2V1E5Qi1RMFFEQW8tZ3B4azRNLXhCRzNGMzFEZkNkV2UyNDRTSzZpSVgwd1RMWHRNem91cFVNUVNKRUpRbXpxbGJvQTlaN0d0V1hrOWZlem1ScEVUQWxiZllveU01NnZrZXdkUUl1em43bHdITHltUTl5cURuaDV2Yy13cEduMG1ycG0zUkN3ajBzWTMzUDdYS2NaTXlaOA?oc=5) |
 | Hours after Trump said he'd slap more tariffs on Canada, Ontario's Reagan ad airs again during the World Series - businessinsider.com | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPellYSlllVzh5OFg0YldBMklvT0YtYzB0cTNnSWJ3VDRFLUwyNTQ2aDRnQnpUSm1Ta1AyOWlpME1yZS1tbzhoV2ZhNlBseEstSWZBZnJGOUVnNEZCT2U2OEZoNWpWeklOWnVGZF9va2l4SVZpbmZkQ1p0c0ZpTV9KU3ppTkUtdjVNS1ctQzhYSkhmUzV0UjlyWjlzOVZ6QQ?oc=5) |
+| Russia says it successfully tested nuclear-powered missile as Ukraine hit with more deadly strikes - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQdUxVSnpCOWlHclpUTXQ1NVI3ejZOUUNuSWZ4Q3c5Y3B5cm1fS3I3R3Q4Vk9mVWQybE5hUk5pa0NYSXJwUjEzOWMzQkVnZ2EwbHhZeW1jRl94NEVFSUxHTm8tREJ6V0RydHJnaEtrX05iSEZnaklaQlJncEZRYTVpMEVDMGxKeV9fSk1IdVY3dw?oc=5) |
 | Inside the final stretch of New York’s wild mayoral race - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNS1NaVXI1MXRvS1lFT3NMcEYwZzhWNXFJS3MwWVRWakNHbnktY2tmMlBVeDVLVjEtZkpNY0JZSlRwR3plS2p3R0hVU1Q5VnB3WTlIRGVLODlzOUNKV0pUMnhuT1FfLWJuenphOW5NcWdpcGhlOGJXc3VhcWVRcUp0Xw?oc=5) |
 | DNA left at crime scene links former soldier to Virginia artist's unsolved murder - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQSjRRRE5PWS15MTNGcVFYQldRUGh4b0ZxWUFVcmNkS0szTzlOVG5KVng1UFNZUGt2UmhHSTljSFBJZDkyU2xkTnNWNEhKbDh3REVldlgyYjA5T05kR2RpOElsZlRLdlVUTmJqR2Nja0FadmNHRjE0MlFiUkw5NkdxTXRMMXhEcDhGSVA4NXBaSE5aLWZqYVpF0gGcAUFVX3lxTE9JV1pTbjlOS25FenZqdV9yNnhhdXBhbTJFc0xDLUo5UDBwV2QxbC1UXzZXRENHaHoyNXZQeGIxX0xGWGxZb21UVXhfajBtWFZ4OGFySXE4UEZqamZiUi16d0ZhUXRWUm5EUmRIQ2JwRHVwY2xxeXdpTTY3NnQyOWdPRUl4b0ZWWEpnejJ4WnRUUnR1U2xaWXNQSXZCUQ?oc=5) |
 | In Trump-Friendly Iowa, the President’s Policies Have Hit Hard - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE5ubEdVLUlpdHNiS3JHMFpHaHVMNEdoQXB4dWRjdHFOc2NlTkRvM1FfbmM1SUk4ZTZUQ19oNGExbWhzS2ZPNHhvRjdGOWtkWGkwZTRmdDl6enhpMzhfOVI5U0g0Z1drSFVnUmZQV0pORnJnNTVUU2xWV1NB?oc=5) |
