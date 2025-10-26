@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月27日 01:09:57（北京时间）**
+🕒 更新时间：**2025年10月27日 01:16:07（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Dr Chris and Dr Xand: Four things we changed after hosting a health podcast | [阅读全文](https://www.bbc.com/news/articles/c98nd0d61d0o?at_medium=RSS&at_campaign=rss) |
 | We will not 'be held to ransom' by striking doctors, says minister | [阅读全文](https://www.bbc.com/news/articles/cqjwqll257do?at_medium=RSS&at_campaign=rss) |
 | Russia says it has tested nuclear-powered Burevestnik missile | [阅读全文](https://www.bbc.com/news/articles/c0qp8ed877jo?at_medium=RSS&at_campaign=rss) |
-| Harris 'concerned' she did not ask Biden to quit race | [阅读全文](https://www.bbc.com/news/articles/cj412zgvy4do?at_medium=RSS&at_campaign=rss) |
+| ​​Women welcome arrest of charity boss identified in BBC sex-for-aid investigation | [阅读全文](https://www.bbc.com/news/articles/cgkzg680j7lo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -29,7 +29,7 @@
 | Trump Leans Into Showmanship on Day 1 of His Asia Trip - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNT3NINFM3ZVV3bWRSV3BsSi1UWFBQSFB6S3Jxam1sdFZvQWdxZi1tSHI2TzB1bWVUQTVCaXRmcWZmaDZtY1BwMGdidHNvLVVUcTNiRkpFdHdFZ3plYnV6R0ZZa2pKSTRldHhEajM1SWljSVdtUlBvckdCemR6R0N6cUh3?oc=5) |
 | Trump raises tariffs on Canadian goods in response to Reagan advert - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1jT1c1dG9vRXdOcjB6NXFTUHMzTHBDZ0lYNldXZnNYM2VwMFZsTFE3bXBxX1hsT1hLN0ZBdUVjdXNoYkZGNE5KaEF0OGpIVXdOSWNkSGZxMEM0d9IBX0FVX3lxTE5GdU5KVGxqY3F6LTF0NnYtNFhCYjlCYjVacWlUbWxzdmtJV3lWa2VHeTN3d01ydVJ4LWltS1dKWGs4VHpVZmdEZ3dHUjRrT3Y4NmRpSGZvV3FwcHRiV0c4?oc=5) |
 | Russia tests nuclear-powered Burevestnik missile, military says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5zakMzNmtZbEtNdHBtd016LUxDUjlUOXVrczAwZ0pwa3JldU5xanBlSU9EYnJuX3hncm1RUEhPdW5scF84X3paQk9wa1dqWVZIekFBMVRnRlNCd9IBX0FVX3lxTE54ZE80UV9yRkJoOS1JQ0tnbTdtMUk4azM3YlNucmt3ZHYzbENreVdGZlBkem9tR1FOMHBBZUxfZERCZEVrcUt6cEtsakR5ZDJPTEhWbkJCRUNzVkJuQW1n?oc=5) |
-| 1 person killed, 6 wounded in shooting at Lincoln University in Pennsylvania - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPc3lQNlRHVEV3OU5WSHlZMElHQWZOS2dQRkVVNDZ3VEl0WFBpTjZnS0ZoQWhYUWtHalk1cDRpSzdnOW0zekZNYTZtYzFRNDRQWWxtcnAyX1V0ZWNSZXk5RDhnZ1BKdkdIUTRxbTBkNGd1bnoxdEVmVzdsb19GcllTeDJqdzU3M21wSGk4YkluUGZXTDVVWEo4Y1ZnVldFUmw5UVlaYzVUVVV4ZDhvSVotSndR0gG3AUFVX3lxTFBXTHdwVjViUTE2OVZPdkhqS3BUUjJ6T00xR1N2bHpkSl95NHYtZDZXZDVFSElNel9zQThFZXI3TkVMcUhPaHpWdVRDWWRpb3JrRnFIampXTGlmOXJQTWd4elVWb01abktLZDhvVWF1a01ObmhTLWNBTDlfRXlBNlBCVXdzX1R5Njd2cDRRTVhhZi1scng0MjFLZ0pEaG4zc0Y2ZmdYa3JHcGFpV3ZlVVFyYVFqdzFjVQ?oc=5) |
+| 1 dead, 6 others injured after shooting during homecoming celebration at Lincoln University in Chester County, Pennsylvania - 6abc Philadelphia | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQOVF0MGhqVTlQZEpoamhLbEsyLVdCOHlWWFltUFRLZzZqRmZMZmpmSWgxY1RyUmFRMnJSV3NzdnQwODAtazQyeFVURXczaTZVMG4zLU9uWXVOMV9zWFNDbFE5LXBsRUNMbjh3dTNmSE9hLVVIREZVUjNSN0ZGOEhHTFRYWVQ0dlVBWFczOdIBkgFBVV95cUxQejdRQmxwbWZmTnNRUTNsMWNERXA3Z1hVQnJrTDNLQ0owQklxeEdNcVU2TW15azh6WUt5Um5KWTFBYV82QzBld1dWaUpJQ0Z6T05ESUFOQ3VPVlZscHZ2WWF4Mk1iSzZDZFJGVTJyT2swQlFMRkN6ZEJ0ckNlY2RoNnVhWDBtYjktQksxcTBvNnh2dw?oc=5) |
 | Transcript: Treasury Secretary Scott Bessent on "Face the Nation with Margaret Brennan," Oct. 26, 2025 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNZXdzT3gya084Tmd6dENoYmJwUUhvaVBmSHhqdU53WFJubU1lSWV2RXd0ZExiUWE2MURFWS1xNEEzQ2ZUUGNuUk1GQmtNX1owcEZfOE4zVUgzU3UtZy1abk15dkZ2ZW9oeUVfOHhVdENxTVpNcUZSVjdOUG1PX2dpTUlULUw3T0gxZ2dDWEc3UDQ2WXA0QlExVV9rUk9yZS1RbEHSAacBQVVfeXFMT3RHb3E2TDBBYXpJSmprUEJIcWFvVmV0Vm1BVXhDY08yTi03Q2wyckkzYzlwR0NwUnZ5MVp4S2NSbnBweFRBd09JbDZSc04wVGFEYmhobjUxek9XV1FrM2t4cGFaTk5FTkZFaDg3Wkt6UmR4M0tTeU1fdDUxbUMzWTB6WWt5RndrbkR3b1VVRUg5b21Jdno0VGZSRTcxZGl6V0cxVG5iMzg?oc=5) |
 | Inside the final stretch of New York’s wild mayoral race - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNS1NaVXI1MXRvS1lFT3NMcEYwZzhWNXFJS3MwWVRWakNHbnktY2tmMlBVeDVLVjEtZkpNY0JZSlRwR3plS2p3R0hVU1Q5VnB3WTlIRGVLODlzOUNKV0pUMnhuT1FfLWJuenphOW5NcWdpcGhlOGJXc3VhcWVRcUp0Xw?oc=5) |
 | Food benefits set to expire for 41 million people as US shutdown continues - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQS1ZXTkk3WnlZUHR2am9FUklTYXF4RkRYOVNiaGlaVXU1bzZ0WEw2U3ZhTUxGWWU2dUNkOHozdUk2VHRCMERaNzZuVmlfbjBCS1NsbVQwWmcyLXBOb1VCWFVOYnNWeFJYRDJiWWxqVHg5ZlpzX0NXVWp3dkVpRzNadV9FaEg?oc=5) |
