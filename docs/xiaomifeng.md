@@ -120,8 +120,14 @@ permalink: /xmf/
 
 ## 🎁 限时优惠：8折 专属码
 
-- 优惠码：`100188`
-- 特别提示：**大黄蜂特惠年付版 ¥96 不叠加优惠码，已是极限价**
+> 📋 **优惠码：** `100188`
+> 
+> 💰 **优惠力度：** 全场 **8 折**（活动截止 2025年10月31日）
+> 
+> ⚠️ **重要说明：**
+> - ❌ **大黄蜂特惠年付版（¥96/年）为福利款，不参与本次8折活动**（该套餐已是厂商最低价，无法再享优惠码折扣）
+> - ✅ 其他所有套餐均可使用优惠码享8折优惠
+> - 🔥 年付以上套餐商店显示的已是折扣价，配合优惠码购买3年付可享 **42折优惠**！
 
 <a href="https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A" target="_blank" style="color:#fff;background:linear-gradient(90deg,#ff416c,#ff4b2b);font-weight:600;font-size:16px;padding:12px 24px;border-radius:8px;text-decoration:none;box-shadow:0 4px 14px rgba(0,0,0,0.25);transition:all 0.3s ease;display:inline-block;margin-top:16px;">
 🚀 点击前往 小蜜蜂 官网，享限时 8 折优惠
