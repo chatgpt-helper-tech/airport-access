@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月27日 21:08:29（北京时间）**
+🕒 更新时间：**2025年10月27日 21:17:16（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | People are having fewer kids. Their choice is transforming the world's economy - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5ndUtDNEI5NlpuQlNmQlkza3g0Ul9rNzN1d0xycC1WRVRxNDZnSWpyQ3ZhT2w1RTdUM216c1M1eE1KT09ldDNJZm1HekItMEJhd2g2LXdLaHJoSGdmb0tJOHhBbm1ROFZTTFNYUzFwdjZpWnhqd3FwZ1dSZlRXQQ?oc=5) |
 | Navy helicopter, fighter jet both go down in South China Sea: Navy - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPUkFKWDlXZVE0eUw5SFdkdjFKTGFYSnltMW44Tm12RDFTVmt3TTZibTl0Wk94T3hlOVVuSmFRUEJKMHBjUWd5MmVuTDg0a0hxNDJHZnRqS2hRNEpyYkRHaWZqRFI4Wk1za2xhbDQ2TmRyMEN5RE5iNDB2NE96MlJJUFV5cnZMTHJtMXY3ajY1cFpqZDdsamVwQ21mV1lzQ1FtOXpqUWhINNIBrAFBVV95cUxORG5XdlZZRDEtUkdkQm9ocXlhV2h2czVJV25xM1YxblhmYTE1WW5KWnBrRW1pa19sR3pGSV9SU3lBdmxwU0R4al93emlPaXpQV3ROOWpKdzhMbjBvSlJnSUZBeVpEY1U1ZVlpVk1jTlVrV2l4dkl2d2d4Sm1oUUxTVGVtaU9Bd0M0MTZPeWEzT0VQWmZjY3pFdWRVNWhXSlM4dDJlbUhUeEVqSVhn?oc=5) |
 | 6 ways the shutdown is about to get worse - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPSV9BMldBRnZ4U2QzTzFQZklNSVFneS1pNVctOGpvV0pOWUtHVE91cDRGZ1VpRnk1cVg1ODlaenlYVDJjSGZFaUx6T1o1Ymt0aUtoNk4xTTVvaFpfZDF5RlZEMVFBdmMwRWMwc1A2LV90QnFvcGVDZ0c3Q1hVdXlVeHYzMHdYMTBmU2RiZzAwdw?oc=5) |
-| Trump says he’d ‘love to’ run in 2028 - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNYjlLRkU0OWR5dGJWcllHRWRPeUhjbGpKUFhma1otbmcwTmt0V1RaQ2xzd0hWS1B1U0x3N3pWRE8wUXk0YWpqMzdRd1R2OEJEc0NGdWFqQzc2N2FaMF8xVUg0dW1SQnNkaWNCMWlhTGxVYkQzTldPa2I2c2pZYlkyUDRGaw?oc=5) |
-| Republican senator calls Trump’s military airstrikes ‘extrajudicial killings’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQMVhrdmZkLWFhLWtLUjI2NWs2TUJlbU52QzlWMDV0a05DSEtXdGpwTDBtdkxrbFg4M2FrMnJsMmVDYURQQV9jd1RINC12elZISUV1S08yRUtDMWx2b1FteFlOV01JeE5mbjkwUDdfRDFIZFJCOEFtYnJkWEtFOEVodG5qcnVPMjQ2MjdOVkN2Q0dpN21rU3hPNw?oc=5) |
+| Trump ‘would love’ unconstitutional third term but rules out running for VP - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPZElrdzNPTjdzbWNtR3N0aGM2M253Njd0ZzBEYnBSOG96SmJxQTNpUGk2amR1bFMxSGNTR1pZMHVnWjctcXRFTXh6QnJvc2NFb0Q2RnhHS2RCYU5yUFg1d08yT3JSSV9vN0FQUUFmbkQyQjFEamg0dmlaeXBQS3p3WFJSRHRQTlhYd04xUmMyRQ?oc=5) |
+| Republicans grapple with voter frustration over rising health care premiums - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQSG8wbmw4NWR4QV91RkZwZm44eVhkOFhkaFAzcm10bmZGWDIzOTZqZnZJUGFCVnJxNWZCZ2lIR2tNcDM3QS15WXpxckFZSWh4SnFsT3VwTmY4VWdGM3IydjRaYi1VS015REtncklxYVM4SUs1dzFRZDhMcXVlWmRLYVVWak1hbFBHZEtUZ3NSMTBRZm1DY3dWbTJZUlVEN2lwT1E?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
