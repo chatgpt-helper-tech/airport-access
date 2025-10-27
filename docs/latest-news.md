@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 01:08:41（北京时间）**
+🕒 更新时间：**2025年10月28日 01:16:13（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | US Navy helicopter, fighter jet crash in South China Sea in separate incidents - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNMktIN3hEeE05NGJRaW5QTVg0ZGllMjR6UTZwUDIxQlpoNDVybHBYUnFEZUluWWZma0JBc29fQXhaM0d5bjl1VElRMG8wUVlmOTZaX3phc3kxakxXYkY5WGlBRU5FcVAwd2FnWmpmcm1UQjNnWmZlNlZKSFZxTnFqOTJLdEw3UnpIYnlVdktxU1hnQWNzZzRwWmxCd3dKMjZNWXREbHlEX0NCcEM0R1loeDFvREJ2bmcx?oc=5) |
 | Indiana’s governor calls a special session to redraw the state’s congressional boundaries - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxORmR1TTcyZnhjS0dvdkl0LWpQUDB5cEJpb0xYYmxGcmltNHNXb1RhZWl6dE4wU3FPeHBpN2JfZHBWNkU0WVRLbmNkclNBdGhCdGdSa21tYmNzcDVpa0lVQ2JpSlVmVFdqSklQanA5Y1pxNWU3WU5maGNwYi1PZ2ctc29NcFo4MlBHNW5ReXl3c2Y5ZVNKWkVWQm9yQ21TRXVwelBhRDJR?oc=5) |
 | Republicans grapple with voter frustration over rising health care premiums - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPaV91UWpKZmxCTDZZb1RCb2lzdlJabWl1UU04NnpLVUVtUjJ5c1k1Z1FCcldQWDd2SHd4WlJ5Q2lIWkVnNGRXNmMxUGJ5TkFwemNvb3dFb1hhWFgydHNyNHBiNmNWNi1KbmJmRkdyUkVoVzgyYmJKQWxQbmNWeTJRaEw3WEZBdG1QeUY5TWdBTDJrcTVsUDh2R2lCbl9FMzNRYWFMbHZxaXZ1UGE5NXJlc05yX2J1Vzl00gG-AUFVX3lxTE05YnFFbm5YcEJpVGRyenVnb1ViV2hRbFFKT2VUZ0N3Qnp6ek1VMnB0WlVFbXFkVjJRQTcxMnN6cF8weG4tLUlIeWhIZ1VLZmljR1QwQUNqYmZaeXJmZ3hId0RXeGdMUkRkVF9sdHJRVi1TcGdrY3BncGZGenlYODFsWkF4UUQxRmpCVGZyOTdUWTZXc0d1aW50bW90a0RsNld3dm5aRmYzVU5TX0VqVXBIbDNjYzYwdEEybm9MSEE?oc=5) |
-| Minnesota man arrested for threatening Pam Bondi in alleged "murder-for-hire" TikTok post - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNY1ZFdnAyM3pDOXRqZEFCbi1xcXhObEJUQk1YWThWelZ0NlNhZXY3VG5nbDRYYzZJZmJ2OXREakNsMVJ5dHVCQ3M3dHpyb293NDRhOEptdjRCRFJWaEkzZG1EUTNwaGc5VWsxcGNDeVplbzIyb1l1VU5TVVVqZ2oyYXlfem1GcWE0RDlFUdIBkgFBVV95cUxQUnJTYVRxcGpyVEpmcjJtby1VZVJSVFo1UDc0YjlGWEdmeWdnZkVVM3VyYnZjb2lYaUVWWEU1TlZZZV9ZbUZSTEp6aWNONFpOVnpUQlFfYTg4WWhjTXF0U09FSkoxRFlZRFJUMGlYal9VTnBYVzJPYVA1TjloTU56TkZscE5HNE1Xb2U0RnQzZWlxQQ?oc=5) |
+| Largest federal workers’ union calls for an immediate end to the shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOQU9SMjJRU01IOEM2a2RkLWdhdWw5SVZhU0lXbFd1UUtDa1g4Yzhndmp1c2NIQTJoU21XX3F4X0djSzc2WlB6cExibVZHRFhWUEtFU3pnZ1FyVU1FOFYweGlRX2hwclphU0tVX21KUVE2aDRSX0ZqNDlveHBKTzY3b2oyNGpHUkhmRWZCQnhNbnh5OUE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
