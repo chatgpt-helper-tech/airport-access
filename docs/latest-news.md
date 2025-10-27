@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月27日 13:09:10（北京时间）**
+🕒 更新时间：**2025年10月27日 13:16:59（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | Epping migrant sex offender will be deported 'this week', says Justice Secretary Lammy | [阅读全文](https://www.bbc.com/news/articles/cwyng49vv10o?at_medium=RSS&at_campaign=rss) |
 | Inside Syria's jail for IS suspects as officials say attacks by group are rising | [阅读全文](https://www.bbc.com/news/articles/cze6y5x8np8o?at_medium=RSS&at_campaign=rss) |
-| Why Britain still has a mould problem - years after this toddler was killed | [阅读全文](https://www.bbc.com/news/articles/cpwvzxzzxrxo?at_medium=RSS&at_campaign=rss) |
+| Why so many UK homes are still dangerously mouldy - years after this toddler was killed | [阅读全文](https://www.bbc.com/news/articles/cpwvzxzzxrxo?at_medium=RSS&at_campaign=rss) |
 | Egypt and Red Cross join search for hostage bodies in Gaza | [阅读全文](https://www.bbc.com/news/articles/cx2l0mjkjkvo?at_medium=RSS&at_campaign=rss) |
 | Reform MP's comments about adverts 'racist', says Streeting | [阅读全文](https://www.bbc.com/news/articles/cd7rg7wjvgvo?at_medium=RSS&at_campaign=rss) |
 | Two arrested over theft of jewels at Louvre museum in Paris | [阅读全文](https://www.bbc.com/news/articles/c2em38pdv0do?at_medium=RSS&at_campaign=rss) |
