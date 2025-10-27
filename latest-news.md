@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 07:41:46（北京时间）**
+🕒 更新时间：**2025年10月28日 07:48:11（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump ‘would love’ unconstitutional third term but rules out running for VP - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPZElrdzNPTjdzbWNtR3N0aGM2M253Njd0ZzBEYnBSOG96SmJxQTNpUGk2amR1bFMxSGNTR1pZMHVnWjctcXRFTXh6QnJvc2NFb0Q2RnhHS2RCYU5yUFg1d08yT3JSSV9vN0FQUUFmbkQyQjFEamg0dmlaeXBQS3p3WFJSRHRQTlhYd04xUmMyRQ?oc=5) |
 | Indiana governor calls a special session to redraw US House maps as redistricting battle spreads - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxORmR1TTcyZnhjS0dvdkl0LWpQUDB5cEJpb0xYYmxGcmltNHNXb1RhZWl6dE4wU3FPeHBpN2JfZHBWNkU0WVRLbmNkclNBdGhCdGdSa21tYmNzcDVpa0lVQ2JpSlVmVFdqSklQanA5Y1pxNWU3WU5maGNwYi1PZ2ctc29NcFo4MlBHNW5ReXl3c2Y5ZVNKWkVWQm9yQ21TRXVwelBhRDJR?oc=5) |
 | Charlie Kirk murder suspect can wear civilian clothes in court, judge says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9Iazk4V1lkNkpOMEkzZlNnaDgwZHNPMjRYZVQ0bG80YTFZbzlKWUY4TXRuTUZVc1JSWG0xc1YtYXg3N3puSDlPbk8weFJQcllBQk9jNE15czF5d9IBX0FVX3lxTE5YZkFCSUNIeFlwcERxYTZJOE5yem4tLW5yWDJkN0lZOW9CQjdfZlVEVTA1THJ5d1Y5TVd1Y1NFU2hlNVl2N2xZbTdhTlVBeHU3SnJoVXotaG5ZMkZsWlA0?oc=5) |
+| Another shutdown consequence: Democrats can’t visit ICE detention facilities - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQNVVTS0Q2WWR5Wlp6cmJReFRrYXZOdFBJSUZLN19ac0RMeHlkMmtIM3ZoRGgxXzNYQWhwYzlWa1pSd2h6aUVibEw1MWplZy1ZbWQtV3dTTzJQcnhhUVUzMVBuSUcyaHdKcVhEYnlsRTFjSi1aWG1IOFI4RXVxdmxaX0EzaXNlbDluWHJLbklNbmJpSU9TZUViRmsxcnFuRElteDI2a1JHdUplQQ?oc=5) |
 | Flight delays persist Monday as air traffic controllers face work without pay - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPQXlJVHhlOTRiR3JBeVZWNHdweUhCV2pPR1ZKd0lxNV9vbHU3X0p2d3ZhNndPRXdHbzR2R1lzdTZJbHBRdkVWaXdRcjhfdDJWRlpuS2k2X0ZLeXZFUGp3YzYycUpWVVBjQ2NjMU5NVUJMMGxmdjFPc1c2UXY4NU42OERrcEc3VkNLT2JieEdzenRSUVVSMEJMakhn0gGfAUFVX3lxTE9FRzl3cG5INVM0NmJ5YTk5WDd2LVhjV2xYMHRYbTFKYUFwVzJhUEFGUVc2NmFERzRRdC13Skk3YWNQcGtJeldzZVRHcVUyaWNIV2lSTTFQRFdTUW45QTI4a0VUS1NKX3NlNWpOaXRuekpxdFRHcFRvSk95RHZOcDl4dlRWSlI0NVl2XzBVd0w0dXIzZWpNQms1LXUzdzJiMA?oc=5) |
-| Former cop charged with murdering Sonya Massey testifies his actions ‘matched the threat level’ - WBEZ Chicago | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxQYkVmLXdMcVZ3am96Q3FzbW92QndkdHBLTjZlOURucWtWZHNIVVBUT0VtYUZOWnFRamVtdENFd2g5NVdjakFZRk80Q3RJOURVTEs2LWhtQWdpZFlXR0lMcGtDVXdBM3BlRjZSRHNRczFUb2MzTVJrMmtDdHgxWjdHaEl3R1Q4dEMteGNldW1xdkY1blF2cjdqOEZDSWtuYVFRZGhpUEstZjVsbHhua3dDaUVJZWVxVTI1QkdYdldGOVE4bUthVllTbw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
