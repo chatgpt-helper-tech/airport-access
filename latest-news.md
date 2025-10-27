@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月27日 18:56:58（北京时间）**
+🕒 更新时间：**2025年10月27日 19:00:44（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Hurricane Melissa Forecast: Catastrophic Danger For Jamaica, Haiti - The Weather Channel | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQSGdUamJGdjZDRTBPS1NMcDRWTlJjSXp2LUdjMDNNYmRtbFJKOTZaUnJWRVVQXzNlVGJaR21GNGh2WUpocThzYmtRRGd4S29tVE40VmtGMl9xLVFXZjZLaWNJTkhSbG5LbTVKTDNrUFRNX1JFY3hLRF9senBjcVFwTk5udXNWMk5mVzdjZjVkRXQtR0R1cFNMeVNfNGlTTG51WDlTczFtZ3ZtZXN2alBHYlB3NlpZbW5G?oc=5) |
 | Milei triumphs in Argentine midterm elections closely watched by Washington - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxORVlZVnZpSFlMWFJJYzZsSG9xbks5UXVKQmVFb2NDMnNBTXVrYTRzWDM5SlV3VmZsdEh2VjlySG9HclYtUElkRGtfb3RNTW5MdUF5S21qczZFTnlRTEdqeVJwZDd5MHRNMDhVYVhDNlZRVUxCcER3b3FMaXdGRU9CYnJWczkzbnVjMlhtNg?oc=5) |
 | Trump Administration Live Updates: President Meets With Japan’s Emperor in Tokyo - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE9NbGJiTE5SOHktRlpLNFhVa2NBeV9oSXVuRTZEQ0ZVTjRNREU5M3FuVXhrb1h1VVVmeV9OR0dnZU56MEY4UzhKUjNkaHF3MjJSeVV2S0tzTldkS3pfRHNtRHpIU2ZBeTNBMHc?oc=5) |
 | US and China agree ‘framework’ for trade deal ahead of Xi-Trump meeting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNajZPV3dPdVRPMWMzWkdVWlUwUkZTZTBHX21LeS11SGx6WjYxU3RYQlRPeF81YTZCemhWQzJrNjdnSjN0OGplYkdkLXhldmo2Nkw4U0RjdjU3VU5LdmtMZ19qUlJBVVp3VURhcXNJMjlBMzkteEtBYUZHa21YZ2RZcm1RU2tETGxZbDJjV3dBaEJwUWlTVmxtTU9R?oc=5) |
-| Hurricane Melissa Forecast: Catastrophic Danger For Jamaica, Haiti - The Weather Channel | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQSGdUamJGdjZDRTBPS1NMcDRWTlJjSXp2LUdjMDNNYmRtbFJKOTZaUnJWRVVQXzNlVGJaR21GNGh2WUpocThzYmtRRGd4S29tVE40VmtGMl9xLVFXZjZLaWNJTkhSbG5LbTVKTDNrUFRNX1JFY3hLRF9senBjcVFwTk5udXNWMk5mVzdjZjVkRXQtR0R1cFNMeVNfNGlTTG51WDlTczFtZ3ZtZXN2alBHYlB3NlpZbW5G?oc=5) |
 | Flights to Los Angeles International Airport halted due to air traffic controller shortage - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxQY05JRFFsUDA2b2llVHN6NEdiOE1yNUo3WVJaRUNRUGZtOW1idjRodnBZSXZReGlBWlVIbXhTcUFMdU9IdEVHVmtaUTFKRF9YZTRLUmhkM0NrMzFCeHNIcXhXLTNaQmNDVWVoNGtrUWJ0djRieFc3TWlaakFKeV9DamdKNEpnQU9ZSVZxMy1iRVJXMlNzVkRfWGx6d3d3d3RjQWVWOWtjNVUwRDFEMXFGekdCTkU4UnQ5cmVzSEVOeFBLRENBc180T05hTU85R0x0dU9WSDZ2RQ?oc=5) |
 | People are having fewer kids. Their choice is transforming the world's economy - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5ndUtDNEI5NlpuQlNmQlkza3g0Ul9rNzN1d0xycC1WRVRxNDZnSWpyQ3ZhT2w1RTdUM216c1M1eE1KT09ldDNJZm1HekItMEJhd2g2LXdLaHJoSGdmb0tJOHhBbm1ROFZTTFNYUzFwdjZpWnhqd3FwZ1dSZlRXQQ?oc=5) |
 | US Navy Helicopter and Fighter Jet in Separate South China Sea Crashes - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOcHJpSzhlekVfVWtBSDYzVjBxTFZqdkJsTmRzaVhHanhLRmJXR2ZwcHhXbTZCNUFSNlQ4d0VKT2tCaTNseDFtdy14Tms5RFAwZTNsekViQXhENmZPdlBoUEtFSE95SGR6Mkt0bDIwTzV4aENyQ0J2Smtib0JTYnI4Y2NKV2k3bTVjb1JNSl9HbTdyYTBxeFpBU0NicS04OTZ2NXBmRnc4SVAxMmRQM0Y3akZvUnIxZjcxcVdqb3BB?oc=5) |
