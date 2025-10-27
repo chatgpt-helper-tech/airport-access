@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月27日 19:40:49（北京时间）**
+🕒 更新时间：**2025年10月27日 19:49:46（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Hurricane Melissa threatens to bring catastrophic flooding, landslides to Jamaica, Haiti, Cuba - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPTFF1bVR1djUzREo4N1dybDFXblYxUDF6SEh5d0VZQzFtZnYwQ29LWWV6NElwR2diOF9xa2RrRVVCeHFUc2JLRzVnV0dfczJ3V2NsaWtIdzBQcllBMGJVTVdYV0xqM1NXeWlxaXVVaVFnSGpfUDNpOHJqRko3ODEtUldJQ3ZEVDNZdXFKUTFRRzdPY3lISzFUNGpsTHPSAaIBQVVfeXFMTmFMbUcyX1FkQWEtR0xtQ2dEUHhUODR4dkRlaDFQbjJzQ1lDb1lsaTktMEFDYUd5S3U0NEJPMUhzS0Z3NkdBTWZvMTlneFNoTFAxTUNtNVZ2QzliaW5JeUVoSno5VzFVTVRGM2RzaEFKNkVQaHdPdHE5SVNOaVY1S2lKc3ZEYl9tYkt0RzR0TmJ4MlhqZ3E2ZkhVYmRwVzVMeFdR?oc=5) |
-| Argentina elections: Javier Milei and his 'chainsaw' austerity win big - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9XWnZMSUtwdW05Z1IyaXBxZzlXSkt1S3Utb0hFd2wyalhkamowdmpHaF9OV2hKQlFaTlFuUm9tR20wS3VMS3ZZWmpDa20weXA0NklRUjhvdjJsd9IBX0FVX3lxTE9JYWVBbkVVMWZrODhDM1hZOFh6UzRQS1JSYlU4Q3RlNVNNQmdlNm5VMVJVY21uQ0FkVEt6andzZEQ4d0dGRnBCNG1mOHB0T3BUNjkwWE9Eb1VCMkpoaFk0?oc=5) |
-| US and China agree ‘framework’ for trade deal ahead of Xi-Trump meeting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNajZPV3dPdVRPMWMzWkdVWlUwUkZTZTBHX21LeS11SGx6WjYxU3RYQlRPeF81YTZCemhWQzJrNjdnSjN0OGplYkdkLXhldmo2Nkw4U0RjdjU3VU5LdmtMZ19qUlJBVVp3VURhcXNJMjlBMzkteEtBYUZHa21YZ2RZcm1RU2tETGxZbDJjV3dBaEJwUWlTVmxtTU9R?oc=5) |
+| Trump hails Milei’s Argentina win, says U.S. made ‘lot of money’ - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNa05kVDRET1BxU01qNHQxaC1xRGpoOEdLMmZsT1haUmZDTW1EbHc2RWtHWjNySGdYcVBNMVl1enpySjdteU1COVd1S0h3ODRSVEJ3clNBSEpUREVSRkpwSDZ6cVRsZG9nV2JsbEhqVGVaU1dheDNHYklycnU5N0Z2ekItWE1xLVlYLTFSWnVKNy1VUQ?oc=5) |
 | Trump Visit Spurs Hopes for Least-Loved Emerging-Market Bloc - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOUFVRdVpSUVR3eEpXNVc3cEwtb1pSaExhTG50WWJ2V0g4NXgyblY3Nm5uUWI2QkViYXRGTmNBOXZkbGRhSzVlSDNOX2Q1eWxWQ2d1UE0tdDB2TFJZd091bWhoaFUzUkxMSGlsQXhIV0hrdjhtWjhaYmZNdXd1M1hBSjRqb2tWc0pjV1hFQU5rVWNqdXZOVHFvQ21EVGRfa1NkTXdKVGhEd1RBVHVOV1VUX1JWNEh5Zw?oc=5) |
+| US and China agree ‘framework’ for trade deal ahead of Xi-Trump meeting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNajZPV3dPdVRPMWMzWkdVWlUwUkZTZTBHX21LeS11SGx6WjYxU3RYQlRPeF81YTZCemhWQzJrNjdnSjN0OGplYkdkLXhldmo2Nkw4U0RjdjU3VU5LdmtMZ19qUlJBVVp3VURhcXNJMjlBMzkteEtBYUZHa21YZ2RZcm1RU2tETGxZbDJjV3dBaEJwUWlTVmxtTU9R?oc=5) |
 | Flights to Los Angeles International Airport halted due to air traffic controller shortage - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxQY05JRFFsUDA2b2llVHN6NEdiOE1yNUo3WVJaRUNRUGZtOW1idjRodnBZSXZReGlBWlVIbXhTcUFMdU9IdEVHVmtaUTFKRF9YZTRLUmhkM0NrMzFCeHNIcXhXLTNaQmNDVWVoNGtrUWJ0djRieFc3TWlaakFKeV9DamdKNEpnQU9ZSVZxMy1iRVJXMlNzVkRfWGx6d3d3d3RjQWVWOWtjNVUwRDFEMXFGekdCTkU4UnQ5cmVzSEVOeFBLRENBc180T05hTU85R0x0dU9WSDZ2RQ?oc=5) |
 | People are having fewer kids. Their choice is transforming the world's economy - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5ndUtDNEI5NlpuQlNmQlkza3g0Ul9rNzN1d0xycC1WRVRxNDZnSWpyQ3ZhT2w1RTdUM216c1M1eE1KT09ldDNJZm1HekItMEJhd2g2LXdLaHJoSGdmb0tJOHhBbm1ROFZTTFNYUzFwdjZpWnhqd3FwZ1dSZlRXQQ?oc=5) |
 | US Navy Helicopter and Fighter Jet in Separate South China Sea Crashes - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOcHJpSzhlekVfVWtBSDYzVjBxTFZqdkJsTmRzaVhHanhLRmJXR2ZwcHhXbTZCNUFSNlQ4d0VKT2tCaTNseDFtdy14Tms5RFAwZTNsekViQXhENmZPdlBoUEtFSE95SGR6Mkt0bDIwTzV4aENyQ0J2Smtib0JTYnI4Y2NKV2k3bTVjb1JNSl9HbTdyYTBxeFpBU0NicS04OTZ2NXBmRnc4SVAxMmRQM0Y3akZvUnIxZjcxcVdqb3BB?oc=5) |
