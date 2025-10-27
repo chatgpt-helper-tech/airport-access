@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月27日 11:57:36（北京时间）**
+🕒 更新时间：**2025年10月27日 12:01:07（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | US and China agree framework of trade deal ahead of Trump-Xi meeting - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9NZkNWS29LX1paeU5FeE94MTNmNTV5aXhoNjNuRExMNzJkbTRIMnVka3VXd1MyWlNyemhnVm5YajRUaFEySUcwOUhuYXpJTEZQT1lCQmtaMFkzQdIBX0FVX3lxTE05UV9PX2RXRlA2OFpUeVY4M3hNWm9sSWw3akVQQUM1RzBGLXlERFJ0UUlqckVaLXFLQWJoZUt4OXRzYXBoU29ERks0ZHVGWlNzZGk0TlVESGxWVU1PWTNr?oc=5) |
-| What to Know About Argentina’s Midterm Election - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQZXNkbTVpQ0RFdDlxZ1RPRFpuUE0wekh3VHB4aWtWV1hsNjRvN2tTeU9KWUUwMDF6dkJVNHJSeHdadC1QUEpsZGMxYlY0VG1hc3lIZDR3dkdDVkRVQV9ubnJtWkRvQlRJNGhZVUxFZWVZeFY3a3Y1NXM3Y0lROTJUT1gxYWtsOFlzQnhVYmRKbw?oc=5) |
+| Javier Milei’s Party Triumphs in Argentina Midterm Election - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQZXNkbTVpQ0RFdDlxZ1RPRFpuUE0wekh3VHB4aWtWV1hsNjRvN2tTeU9KWUUwMDF6dkJVNHJSeHdadC1QUEpsZGMxYlY0VG1hc3lIZDR3dkdDVkRVQV9ubnJtWkRvQlRJNGhZVUxFZWVZeFY3a3Y1NXM3Y0lROTJUT1gxYWtsOFlzQnhVYmRKbw?oc=5) |
 | Melissa strengthens into Category 4 hurricane, threatening catastrophic flooding in Jamaica, Haiti - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQS2RuSlctN0FpM2FkaDBGRk9QSVRidmFDRXVzOEsweG9BUi05TDRtNDR1WHNLVS1WOTNPcEJUc2hnNHp0N055Q1p4WWNLclpJLXZGLW1SUkxVaG1KaUhEQjVlZGlWSlZIekhpdUNRcjBkSndXUzVBbjBTNmVxUmp2RmRyaFpqdnNV?oc=5) |
 | The Effort to Court Trump Abroad: Deals, Flattery and Jet Fighters - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPenlYcGc5bEpJMUNlai14OVhPWGRLZGdjYXhtMi1uakJkYTRrdHR3TVNCb1E1eml6eVpJazdXTFVDRm5lSThFMWsyNGhvSUdoaEY3ZDlHd1IxT1lrT2h1V0xkN3prQ3pnMW9XaEJfdjh2eTJoQ2RUMF9WZWp3Z0xYQnV5dTNycUlDRXRFMWdzaFhYa1VnRThpVDdhdjhhejVV?oc=5) |
 | Navy helicopter, fighter jet both go down in South China Sea: Navy - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPUkFKWDlXZVE0eUw5SFdkdjFKTGFYSnltMW44Tm12RDFTVmt3TTZibTl0Wk94T3hlOVVuSmFRUEJKMHBjUWd5MmVuTDg0a0hxNDJHZnRqS2hRNEpyYkRHaWZqRFI4Wk1za2xhbDQ2TmRyMEN5RE5iNDB2NE96MlJJUFV5cnZMTHJtMXY3ajY1cFpqZDdsamVwQ21mV1lzQ1FtOXpqUWhINNIBrAFBVV95cUxORG5XdlZZRDEtUkdkQm9ocXlhV2h2czVJV25xM1YxblhmYTE1WW5KWnBrRW1pa19sR3pGSV9SU3lBdmxwU0R4al93emlPaXpQV3ROOWpKdzhMbjBvSlJnSUZBeVpEY1U1ZVlpVk1jTlVrV2l4dkl2d2d4Sm1oUUxTVGVtaU9Bd0M0MTZPeWEzT0VQWmZjY3pFdWRVNWhXSlM4dDJlbUhUeEVqSVhn?oc=5) |
