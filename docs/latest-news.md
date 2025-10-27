@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月27日 17:09:22（北京时间）**
+🕒 更新时间：**2025年10月27日 17:17:41（北京时间）**
 
 ---
 
@@ -16,15 +16,15 @@
 | Boy thrown from Tate Modern can now run, jump and swim | [阅读全文](https://www.bbc.com/news/articles/cdx4598el5eo?at_medium=RSS&at_campaign=rss) |
 | Lando Norris delivers 'statement win' at Mexico City Grand Prix | [阅读全文](https://www.bbc.com/sport/formula1/articles/clyg2wxppy8o?at_medium=RSS&at_campaign=rss) |
 | King to attend first official LGBT event after veterans' campaign | [阅读全文](https://www.bbc.com/news/articles/cr7m8kzgy77o?at_medium=RSS&at_campaign=rss) |
+| Offshore energy firm Petrofac files for administration | [阅读全文](https://www.bbc.com/news/articles/cg51z1gdj7vo?at_medium=RSS&at_campaign=rss) |
 | NHS needs up to £3bn extra to avoid cuts, health leaders warn | [阅读全文](https://www.bbc.com/news/articles/c9934y423nzo?at_medium=RSS&at_campaign=rss) |
-| Reform MP's comments about adverts 'racist', says Streeting | [阅读全文](https://www.bbc.com/news/articles/cd7rg7wjvgvo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Milei triumphs in Argentine midterm elections closely watched by Washington - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxORVlZVnZpSFlMWFJJYzZsSG9xbks5UXVKQmVFb2NDMnNBTXVrYTRzWDM5SlV3VmZsdEh2VjlySG9HclYtUElkRGtfb3RNTW5MdUF5S21qczZFTnlRTEdqeVJwZDd5MHRNMDhVYVhDNlZRVUxCcER3b3FMaXdGRU9CYnJWczkzbnVjMlhtNg?oc=5) |
-| Trump Administration Live Updates: President Arrives in Japan for Meetings With Emperor and Prime Minister - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE9NbGJiTE5SOHktRlpLNFhVa2NBeV9oSXVuRTZEQ0ZVTjRNREU5M3FuVXhrb1h1VVVmeV9OR0dnZU56MEY4UzhKUjNkaHF3MjJSeVV2S0tzTldkS3pfRHNtRHpIU2ZBeTNBMHc?oc=5) |
+| Trump arrives in Japan for next stop on Asian diplomacy tour - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE5Gb0FRTGJJQ25QUi11cV9raVVva1VsWjNQSG5XczZhOXB1cEt6cEljNWF5czhxZFpXM2ZOTUdRNERUdGVtTDR0RFIxMi1xLXVPR21qd2c4UE9iSlh4c004S1ZEQXBpYU1sZUFSb0FlNWlYd0RkaldPWg?oc=5) |
 | Hurricane Melissa Set To Turn North In Catastrophic Multi-Day Flood, Wind Damage Event In Jamaica, Haiti - The Weather Channel | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQSGdUamJGdjZDRTBPS1NMcDRWTlJjSXp2LUdjMDNNYmRtbFJKOTZaUnJWRVVQXzNlVGJaR21GNGh2WUpocThzYmtRRGd4S29tVE40VmtGMl9xLVFXZjZLaWNJTkhSbG5LbTVKTDNrUFRNX1JFY3hLRF9senBjcVFwTk5udXNWMk5mVzdjZjVkRXQtR0R1cFNMeVNfNGlTTG51WDlTczFtZ3ZtZXN2alBHYlB3NlpZbW5G?oc=5) |
 | US and China agree ‘framework’ for trade deal ahead of Xi-Trump meeting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNajZPV3dPdVRPMWMzWkdVWlUwUkZTZTBHX21LeS11SGx6WjYxU3RYQlRPeF81YTZCemhWQzJrNjdnSjN0OGplYkdkLXhldmo2Nkw4U0RjdjU3VU5LdmtMZ19qUlJBVVp3VURhcXNJMjlBMzkteEtBYUZHa21YZ2RZcm1RU2tETGxZbDJjV3dBaEJwUWlTVmxtTU9R?oc=5) |
 | Flights to Los Angeles International Airport halted due to air traffic controller shortage - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxQY05JRFFsUDA2b2llVHN6NEdiOE1yNUo3WVJaRUNRUGZtOW1idjRodnBZSXZReGlBWlVIbXhTcUFMdU9IdEVHVmtaUTFKRF9YZTRLUmhkM0NrMzFCeHNIcXhXLTNaQmNDVWVoNGtrUWJ0djRieFc3TWlaakFKeV9DamdKNEpnQU9ZSVZxMy1iRVJXMlNzVkRfWGx6d3d3d3RjQWVWOWtjNVUwRDFEMXFGekdCTkU4UnQ5cmVzSEVOeFBLRENBc180T05hTU85R0x0dU9WSDZ2RQ?oc=5) |
