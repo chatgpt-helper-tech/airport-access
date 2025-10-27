@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月27日 17:01:50（北京时间）**
+🕒 更新时间：**2025年10月27日 17:09:21（北京时间）**
 
 ---
 
@@ -13,10 +13,10 @@
 | Prisons begin extra checks after migrant released in error | [阅读全文](https://www.bbc.com/news/articles/c70jrrgjp9xo?at_medium=RSS&at_campaign=rss) |
 | Why so many UK homes are still dangerously mouldy - years after this toddler was killed | [阅读全文](https://www.bbc.com/news/articles/cpwvzxzzxrxo?at_medium=RSS&at_campaign=rss) |
 | Inside Syria's jail for IS suspects as officials say attacks by group are rising | [阅读全文](https://www.bbc.com/news/articles/cze6y5x8np8o?at_medium=RSS&at_campaign=rss) |
-| King to attend first official LGBT event after veterans' campaign | [阅读全文](https://www.bbc.com/news/articles/cr7m8kzgy77o?at_medium=RSS&at_campaign=rss) |
-| NHS needs up to £3bn extra to avoid cuts, health leaders warn | [阅读全文](https://www.bbc.com/news/articles/c9934y423nzo?at_medium=RSS&at_campaign=rss) |
 | Boy thrown from Tate Modern can now run, jump and swim | [阅读全文](https://www.bbc.com/news/articles/cdx4598el5eo?at_medium=RSS&at_campaign=rss) |
 | Lando Norris delivers 'statement win' at Mexico City Grand Prix | [阅读全文](https://www.bbc.com/sport/formula1/articles/clyg2wxppy8o?at_medium=RSS&at_campaign=rss) |
+| King to attend first official LGBT event after veterans' campaign | [阅读全文](https://www.bbc.com/news/articles/cr7m8kzgy77o?at_medium=RSS&at_campaign=rss) |
+| NHS needs up to £3bn extra to avoid cuts, health leaders warn | [阅读全文](https://www.bbc.com/news/articles/c9934y423nzo?at_medium=RSS&at_campaign=rss) |
 | Reform MP's comments about adverts 'racist', says Streeting | [阅读全文](https://www.bbc.com/news/articles/cd7rg7wjvgvo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
