@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 01:01:38（北京时间）**
+🕒 更新时间：**2025年10月28日 01:08:40（北京时间）**
 
 ---
 
@@ -9,6 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Could one of these royal houses be Prince Andrew’s new home? | [阅读全文](https://www.bbc.com/news/articles/c781j7pz87xo?at_medium=RSS&at_campaign=rss) |
+| Alleged McCann stalker 'still questions who she is' | [阅读全文](https://www.bbc.com/news/articles/cj0emv1r33do?at_medium=RSS&at_campaign=rss) |
 | Reform MP's comments 'ugly' but intention was not racist, Farage says | [阅读全文](https://www.bbc.com/news/articles/c78z4eyvnx1o?at_medium=RSS&at_campaign=rss) |
 | Trump does not rule out seeking third term - but says he will not use VP loophole | [阅读全文](https://www.bbc.com/news/articles/c797q57ple9o?at_medium=RSS&at_campaign=rss) |
 | Spending cuts and tax rises both options to increase Budget 'headroom', Reeves says | [阅读全文](https://www.bbc.com/news/articles/c9v1r7zeekro?at_medium=RSS&at_campaign=rss) |
@@ -17,7 +18,6 @@
 | Academic wins payout over portrayal in Steve Coogan's Richard III film | [阅读全文](https://www.bbc.com/news/articles/cdegzx9w16ro?at_medium=RSS&at_campaign=rss) |
 | Trial begins for 10 accused of sexist cyber-bullying of Brigitte Macron | [阅读全文](https://www.bbc.com/news/articles/ce3knel0895o?at_medium=RSS&at_campaign=rss) |
 | Mpox cases in Europe prompt UK officials to issue vaccine reminder | [阅读全文](https://www.bbc.com/news/articles/cp856rvv41eo?at_medium=RSS&at_campaign=rss) |
-| Why so many UK homes are still dangerously mouldy - years after this toddler died | [阅读全文](https://www.bbc.com/news/articles/cpwvzxzzxrxo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -29,9 +29,9 @@
 | Trump won't rule out a third term: "I would love to do it" - Axios | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTFBwc2Z3Y1ZhVlplVGZvb1QwSlJmeHlzTjJOMzE5dUo2QjJrN1FWQTlabkh3YnZIU2xpQWpScVRfNWFqdVdrbnFYNUp0YmYwUkZQZXFObExIaUtWWEVCZmU5MURnQ0l1OHJmNmlsLVFjSXE?oc=5) |
 | Sidelined Russia flexes muscle with missile launch — and Trump is not impressed - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOelloWE1MVWxxWE9jY0hZdUR0TEFSTjVZU0xaRWJnclpjdlp4YjQ2dUdKc1FqNGY2YkdtcHJtdWEtSWlLS0pjam1PRUtFTHB0c0g3Z3NraGh0cUllQjB1VktVLVhCVUdXb1NnRV8wdEY5Z2R4SFV6azFjNUVneUp5ZnJsZnBVRjdVTHFqLdIBkgFBVV95cUxNRl8zeWRKa3RvMks5OXV2aDViNEZnb1R4R2ZCXzl6UDRWUnJXeGM2eGx6aEVpNXVtbi10Vzluam9ORXhXWklpS3JPZ0tmeEF3MmF6Q2t4M0RZVnBGamJ0SXBKZmZFUjljVG9TM2dZeHhBUmVxSXNqS3B1dEZXWG96aHlwOE1ia1hhbWFrQzNETFJkZw?oc=5) |
 | Trump predicts China trade deal finalized in days as his Asia tour continues in Japan - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOd0JoS1FpSDc3TjhsdDZqc1RXSVVGVzQ1SnRmTTZuVlVsR0NsYk5VaWJrVVFoSmV4VmZoZmxqTTU1S2N4Q3lyYkZxVnIzX2lSdHVfN3RoYUVicER6NjNlS0pLdjJYTVBOc1ZOWmtlVmVLa05SX3ZkQ2J6bnZYMWU1cWR0N2oyeVNBWDlPeUphVGZRRG10ZWRvU9IBngFBVV95cUxQdVBhOHM5NlBmYVJiUmg4TjBBQ3FZXy1TSC1YTXJFRk82bHBkVnpVR2V1TWI1cGRHY1JQVWx6NXJ2V3ZwX2lxcXFjNDBUV014UVpESEV4anN3X2ZhS0UzWG9rMVdZVE5JcGVha3hKWGxqbWpWdHJpeFgtX19POUs2TVlnWHhmTzBiM2dnVFV5TXNnUkdfTUlUQjdRTUpxdw?oc=5) |
-| US Navy Helicopter and Fighter Jet in Separate South China Sea Crashes - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOcHJpSzhlekVfVWtBSDYzVjBxTFZqdkJsTmRzaVhHanhLRmJXR2ZwcHhXbTZCNUFSNlQ4d0VKT2tCaTNseDFtdy14Tms5RFAwZTNsekViQXhENmZPdlBoUEtFSE95SGR6Mkt0bDIwTzV4aENyQ0J2Smtib0JTYnI4Y2NKV2k3bTVjb1JNSl9HbTdyYTBxeFpBU0NicS04OTZ2NXBmRnc4SVAxMmRQM0Y3akZvUnIxZjcxcVdqb3BB?oc=5) |
-| Indiana Governor Calls Special Session on Redistricting to Benefit Republicans - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQMEVyb2ZWYlI3NzEtQzdQaGI0cEVmWDA2M09OZFZFYkJiTFNNWGdGZGwxOVEwYkY0QWI1OVNCQXI4enJKakRZZC1KVEVZOGlyU0hiT1lDWG96TXljYXJTd0RETk42bEtMOWtzWFVyU1RzU09hTzlQX18zamlySndQNVU2MEltUE0?oc=5) |
-| Republicans grapple with voter frustration over rising health care premiums - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQSG8wbmw4NWR4QV91RkZwZm44eVhkOFhkaFAzcm10bmZGWDIzOTZqZnZJUGFCVnJxNWZCZ2lIR2tNcDM3QS15WXpxckFZSWh4SnFsT3VwTmY4VWdGM3IydjRaYi1VS015REtncklxYVM4SUs1dzFRZDhMcXVlWmRLYVVWak1hbFBHZEtUZ3NSMTBRZm1DY3dWbTJZUlVEN2lwT1E?oc=5) |
+| US Navy helicopter, fighter jet crash in South China Sea in separate incidents - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNMktIN3hEeE05NGJRaW5QTVg0ZGllMjR6UTZwUDIxQlpoNDVybHBYUnFEZUluWWZma0JBc29fQXhaM0d5bjl1VElRMG8wUVlmOTZaX3phc3kxakxXYkY5WGlBRU5FcVAwd2FnWmpmcm1UQjNnWmZlNlZKSFZxTnFqOTJLdEw3UnpIYnlVdktxU1hnQWNzZzRwWmxCd3dKMjZNWXREbHlEX0NCcEM0R1loeDFvREJ2bmcx?oc=5) |
+| Indiana’s governor calls a special session to redraw the state’s congressional boundaries - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxORmR1TTcyZnhjS0dvdkl0LWpQUDB5cEJpb0xYYmxGcmltNHNXb1RhZWl6dE4wU3FPeHBpN2JfZHBWNkU0WVRLbmNkclNBdGhCdGdSa21tYmNzcDVpa0lVQ2JpSlVmVFdqSklQanA5Y1pxNWU3WU5maGNwYi1PZ2ctc29NcFo4MlBHNW5ReXl3c2Y5ZVNKWkVWQm9yQ21TRXVwelBhRDJR?oc=5) |
+| Republicans grapple with voter frustration over rising health care premiums - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPaV91UWpKZmxCTDZZb1RCb2lzdlJabWl1UU04NnpLVUVtUjJ5c1k1Z1FCcldQWDd2SHd4WlJ5Q2lIWkVnNGRXNmMxUGJ5TkFwemNvb3dFb1hhWFgydHNyNHBiNmNWNi1KbmJmRkdyUkVoVzgyYmJKQWxQbmNWeTJRaEw3WEZBdG1QeUY5TWdBTDJrcTVsUDh2R2lCbl9FMzNRYWFMbHZxaXZ1UGE5NXJlc05yX2J1Vzl00gG-AUFVX3lxTE05YnFFbm5YcEJpVGRyenVnb1ViV2hRbFFKT2VUZ0N3Qnp6ek1VMnB0WlVFbXFkVjJRQTcxMnN6cF8weG4tLUlIeWhIZ1VLZmljR1QwQUNqYmZaeXJmZ3hId0RXeGdMUkRkVF9sdHJRVi1TcGdrY3BncGZGenlYODFsWkF4UUQxRmpCVGZyOTdUWTZXc0d1aW50bW90a0RsNld3dm5aRmYzVU5TX0VqVXBIbDNjYzYwdEEybm9MSEE?oc=5) |
 | Minnesota man arrested for threatening Pam Bondi in alleged "murder-for-hire" TikTok post - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNY1ZFdnAyM3pDOXRqZEFCbi1xcXhObEJUQk1YWThWelZ0NlNhZXY3VG5nbDRYYzZJZmJ2OXREakNsMVJ5dHVCQ3M3dHpyb293NDRhOEptdjRCRFJWaEkzZG1EUTNwaGc5VWsxcGNDeVplbzIyb1l1VU5TVVVqZ2oyYXlfem1GcWE0RDlFUdIBkgFBVV95cUxQUnJTYVRxcGpyVEpmcjJtby1VZVJSVFo1UDc0YjlGWEdmeWdnZkVVM3VyYnZjb2lYaUVWWEU1TlZZZV9ZbUZSTEp6aWNONFpOVnpUQlFfYTg4WWhjTXF0U09FSkoxRFlZRFJUMGlYal9VTnBYVzJPYVA1TjloTU56TkZscE5HNE1Xb2U0RnQzZWlxQQ?oc=5) |
 
 ---
