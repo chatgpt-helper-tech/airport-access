@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月27日 15:00:11（北京时间）**
+🕒 更新时间：**2025年10月27日 15:09:54（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Argentina’s Voters Hand Javier Milei a Crucial Victory in Midterm Election - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQZXNkbTVpQ0RFdDlxZ1RPRFpuUE0wekh3VHB4aWtWV1hsNjRvN2tTeU9KWUUwMDF6dkJVNHJSeHdadC1QUEpsZGMxYlY0VG1hc3lIZDR3dkdDVkRVQV9ubnJtWkRvQlRJNGhZVUxFZWVZeFY3a3Y1NXM3Y0lROTJUT1gxYWtsOFlzQnhVYmRKbw?oc=5) |
+| Javier Milei’s Party Triumphs in Argentina Midterm Election - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQZXNkbTVpQ0RFdDlxZ1RPRFpuUE0wekh3VHB4aWtWV1hsNjRvN2tTeU9KWUUwMDF6dkJVNHJSeHdadC1QUEpsZGMxYlY0VG1hc3lIZDR3dkdDVkRVQV9ubnJtWkRvQlRJNGhZVUxFZWVZeFY3a3Y1NXM3Y0lROTJUT1gxYWtsOFlzQnhVYmRKbw?oc=5) |
 | US and China agree framework of trade deal ahead of Trump-Xi meeting - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9NZkNWS29LX1paeU5FeE94MTNmNTV5aXhoNjNuRExMNzJkbTRIMnVka3VXd1MyWlNyemhnVm5YajRUaFEySUcwOUhuYXpJTEZQT1lCQmtaMFkzQdIBX0FVX3lxTE05UV9PX2RXRlA2OFpUeVY4M3hNWm9sSWw3akVQQUM1RzBGLXlERFJ0UUlqckVaLXFLQWJoZUt4OXRzYXBoU29ERks0ZHVGWlNzZGk0TlVESGxWVU1PWTNr?oc=5) |
 | Hurricane Melissa Set To Turn North In Catastrophic Multi-Day Flood, Wind Damage Event In Jamaica, Haiti - The Weather Channel | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQSGdUamJGdjZDRTBPS1NMcDRWTlJjSXp2LUdjMDNNYmRtbFJKOTZaUnJWRVVQXzNlVGJaR21GNGh2WUpocThzYmtRRGd4S29tVE40VmtGMl9xLVFXZjZLaWNJTkhSbG5LbTVKTDNrUFRNX1JFY3hLRF9senBjcVFwTk5udXNWMk5mVzdjZjVkRXQtR0R1cFNMeVNfNGlTTG51WDlTczFtZ3ZtZXN2alBHYlB3NlpZbW5G?oc=5) |
 | The Effort to Court Trump Abroad: Deals, Flattery and Jet Fighters - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPenlYcGc5bEpJMUNlai14OVhPWGRLZGdjYXhtMi1uakJkYTRrdHR3TVNCb1E1eml6eVpJazdXTFVDRm5lSThFMWsyNGhvSUdoaEY3ZDlHd1IxT1lrT2h1V0xkN3prQ3pnMW9XaEJfdjh2eTJoQ2RUMF9WZWp3Z0xYQnV5dTNycUlDRXRFMWdzaFhYa1VnRThpVDdhdjhhejVV?oc=5) |
