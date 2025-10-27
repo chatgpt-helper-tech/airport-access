@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月27日 10:57:51（北京时间）**
+🕒 更新时间：**2025年10月27日 11:00:22（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Flights to Los Angeles International Airport halted due to air traffic controller shortage - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQNUJvMEJEWXBSUXdNTlZnV0x1ZVBjMnh5eGx3R2xrclhWM0JJWGV3Rm9OVTlCVDBnU2NqbEVxTVRicDNnNlZlR1pRcWEyY3JYRGVkODJhM3E1Q18xb004NVFqRExFak1GNTB1d0N4V01oRko1ZmdndURLWkVIU1o3WE02ODRPSkFJdFRyUkMteEphRFB6RFFDdWItbHBqXzdqODNoamZIS2VwdlhU0gGyAUFVX3lxTFBTeVJuSWhzcE1WaHBkWTFIOThsZjc1b3pHOTZseXJJc0tlN2IwRHBKSjhFbHh5aFhtQXEzUVRCN0l2dzRYQnU0SnlfbGN4X0dxV0xTMVM0WUk1X2Y0cldUTWczQUNmMWRHVEVQVWVpSkdadnNUTjN3eUhnWHVPNTJPRDBjY3U4UWdEVUdZVkhadlMzLUU4b0lBbldLUk1XOHFaaGNWaVVMcHFLbU03MmRTdEE?oc=5) |
 | Federal food aid will not go out starting Nov. 1 amid government shutdown, Trump administration says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE9HenVNSXZFWVhuLUtlZVpXdXlSTS1IYUJrVW5LMVVveC1laDhBaW1pY2VLTzd1R1NGb1JVRFJsYU1EMERzSlozTmFpeVhZUmUyZmlSRkVrQmV4TjFkbElydk92dlpkdTZrS1Fvb2JKbFpIUWhE0gF6QVVfeXFMUHlSWmNTcFV2RTk3YklVdE9RMHJ3TUUxMEszTHJUelp2X3BMTW9TNU1mVUg0VUMwQVpNSnJHLWJpdUVUZ0RHZ1g5VzVPY0FjSTZQQVdxUWVCb09aXzFoSzV1Tms4UDVQUE94RlpaYkd5cUhkbW9taHFOc2c?oc=5) |
 | Column ｜ Before Trump gutted the White House, Erdogan built his ‘White Palace’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOamwxaTQ0ajJaMDJrdFhwVUFWTDQtT3JWWE9RQWh0SzgxZWFraUdBWVFueFhNYkpGV0dNa0p6dVpVZmpYSFBKaXpGQWxCQUctYV8wTmpXTXE2bUV6NGlzZ3JxUmRWZzlvc0lGLU9KTHZONmdOQlVqNWpzSEcwdE5scWFkaVZkenE2V09HSmN3MldyN0Y1S3lILXB4dDlsemZO?oc=5) |
-| 1 person killed, 6 wounded in shooting at Lincoln University in Pennsylvania - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPc3lQNlRHVEV3OU5WSHlZMElHQWZOS2dQRkVVNDZ3VEl0WFBpTjZnS0ZoQWhYUWtHalk1cDRpSzdnOW0zekZNYTZtYzFRNDRQWWxtcnAyX1V0ZWNSZXk5RDhnZ1BKdkdIUTRxbTBkNGd1bnoxdEVmVzdsb19GcllTeDJqdzU3M21wSGk4YkluUGZXTDVVWEo4Y1ZnVldFUmw5UVlaYzVUVVV4ZDhvSVotSndR0gG3AUFVX3lxTFBXTHdwVjViUTE2OVZPdkhqS3BUUjJ6T00xR1N2bHpkSl95NHYtZDZXZDVFSElNel9zQThFZXI3TkVMcUhPaHpWdVRDWWRpb3JrRnFIampXTGlmOXJQTWd4elVWb01abktLZDhvVWF1a01ObmhTLWNBTDlfRXlBNlBCVXdzX1R5Njd2cDRRTVhhZi1scng0MjFLZ0pEaG4zc0Y2ZmdYa3JHcGFpV3ZlVVFyYVFqdzFjVQ?oc=5) |
-| DHS says migrant fatally struck by vehicle while fleeing ICE agents - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOajIwZ240T3hBc1FBR2ttUWZXT20tRy1oTkh3dU5IVlJOUy1RTGVyb21fWHNGX1hQc2JqWUlMZFZ0QW1hMnZJZ0JFMkU3TFNWeDRGTjlLbk92bG82N0JIVmFxMS1lbHZEVjJkc3BOYThqNmJDLW1oUDFtWnBFMDlQM3RoTFV1SlpvLWlNS2M5NFBTU3ZzV1FNZk15Wi0zblk3alk3NGtXd9IBrAFBVV95cUxNVTJITFd4eWlidkx6VWtvVzA5ZWN1RGNpaWRvN05BYzNjYXdGc2F1a3N3cXVUaE83UUZRd0NfeW1RM1gxejJjbER3eUhxeG1Cbkl6ZjFKaVR4VEl3VkFfdWxaOThUUF9wdXItekpvUGFkZGV5WUw4VTR4OWZ1bkRQMk5mMFVfcUhURm9VYUJuVVltU0lKQ3ZwX1pETFUzdjJNVUxIRE52dVNBaEhM?oc=5) |
+| One killed and six injured after shooting at Pennsylvania’s Lincoln University - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNTUxoQ2JJWm9MQTFEM2QzWWxnTFpSWFZLM2hOQVlvSTU5a3JDTjlFdmF6dTdVdEdkT1Q1cC1xalNyb0lLWmJhRGJlZ3kwUGlTOHhVYktHaERyNnpncEJ5TTNCTWFYZ0VxamQwaWJZNVVIM09nWDc4TVBnYllteS1DbTg5R1RTY2NWZFZVQnFFOE9wQQ?oc=5) |
+| Man fleeing immigration agents is fatally struck by a vehicle on a Virginia highway - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNLVFTTFcwakR2NkFNUFZHVFJZMGJGRHBmSTNXaE0wUXN2eFRieW9QWS1oUktjUVUwR0RxN2lGUXVuNXhYTlpWZVJKeExETUFHTWtVLWNFc3paVklObDh6aUVfc214c1E5M0swVVNZeUVvVVNkUEZ0VlBhdGJjLWdMUGZ3N0R1aklIaEVCS3hUNmhuWUJOenhhcGd4alYwY2x6cnNZ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
