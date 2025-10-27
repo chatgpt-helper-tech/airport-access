@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月27日 11:00:22（北京时间）**
+🕒 更新时间：**2025年10月27日 11:09:11（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| US and China agree ‘framework’ for trade deal ahead of Xi-Trump meeting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNajZPV3dPdVRPMWMzWkdVWlUwUkZTZTBHX21LeS11SGx6WjYxU3RYQlRPeF81YTZCemhWQzJrNjdnSjN0OGplYkdkLXhldmo2Nkw4U0RjdjU3VU5LdmtMZ19qUlJBVVp3VURhcXNJMjlBMzkteEtBYUZHa21YZ2RZcm1RU2tETGxZbDJjV3dBaEJwUWlTVmxtTU9R?oc=5) |
+| US and China agree framework of trade deal ahead of Trump-Xi meeting - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9NZkNWS29LX1paeU5FeE94MTNmNTV5aXhoNjNuRExMNzJkbTRIMnVka3VXd1MyWlNyemhnVm5YajRUaFEySUcwOUhuYXpJTEZQT1lCQmtaMFkzQdIBX0FVX3lxTE05UV9PX2RXRlA2OFpUeVY4M3hNWm9sSWw3akVQQUM1RzBGLXlERFJ0UUlqckVaLXFLQWJoZUt4OXRzYXBoU29ERks0ZHVGWlNzZGk0TlVESGxWVU1PWTNr?oc=5) |
 | Argentina’s Javier Milei secures big victory in midterm elections - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9RSUZZQmRPVERLV09TVG9FSjgzeVR3eTBwd2xYY1p0UTY3Y0xOV0hXcnRtYzZFMURnRDNDU3Nxc3BKc3BCQTRIc0Rsc1pWcVVmVGJMVXExMEpsV2JGdHlWUUp1bzZTT3Atb3lKTEZSbXQ?oc=5) |
 | Melissa strengthens into Category 4 hurricane, threatening catastrophic flooding in Jamaica, Haiti - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQS2RuSlctN0FpM2FkaDBGRk9QSVRidmFDRXVzOEsweG9BUi05TDRtNDR1WHNLVS1WOTNPcEJUc2hnNHp0N055Q1p4WWNLclpJLXZGLW1SUkxVaG1KaUhEQjVlZGlWSlZIekhpdUNRcjBkSndXUzVBbjBTNmVxUmp2RmRyaFpqdnNV?oc=5) |
 | Trump Leans Into Showmanship on Day 1 of His Asia Trip - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNT3NINFM3ZVV3bWRSV3BsSi1UWFBQSFB6S3Jxam1sdFZvQWdxZi1tSHI2TzB1bWVUQTVCaXRmcWZmaDZtY1BwMGdidHNvLVVUcTNiRkpFdHdFZ3plYnV6R0ZZa2pKSTRldHhEajM1SWljSVdtUlBvckdCemR6R0N6cUh3?oc=5) |
@@ -31,7 +31,7 @@
 | Flights to Los Angeles International Airport halted due to air traffic controller shortage - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQNUJvMEJEWXBSUXdNTlZnV0x1ZVBjMnh5eGx3R2xrclhWM0JJWGV3Rm9OVTlCVDBnU2NqbEVxTVRicDNnNlZlR1pRcWEyY3JYRGVkODJhM3E1Q18xb004NVFqRExFak1GNTB1d0N4V01oRko1ZmdndURLWkVIU1o3WE02ODRPSkFJdFRyUkMteEphRFB6RFFDdWItbHBqXzdqODNoamZIS2VwdlhU0gGyAUFVX3lxTFBTeVJuSWhzcE1WaHBkWTFIOThsZjc1b3pHOTZseXJJc0tlN2IwRHBKSjhFbHh5aFhtQXEzUVRCN0l2dzRYQnU0SnlfbGN4X0dxV0xTMVM0WUk1X2Y0cldUTWczQUNmMWRHVEVQVWVpSkdadnNUTjN3eUhnWHVPNTJPRDBjY3U4UWdEVUdZVkhadlMzLUU4b0lBbldLUk1XOHFaaGNWaVVMcHFLbU03MmRTdEE?oc=5) |
 | Federal food aid will not go out starting Nov. 1 amid government shutdown, Trump administration says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE9HenVNSXZFWVhuLUtlZVpXdXlSTS1IYUJrVW5LMVVveC1laDhBaW1pY2VLTzd1R1NGb1JVRFJsYU1EMERzSlozTmFpeVhZUmUyZmlSRkVrQmV4TjFkbElydk92dlpkdTZrS1Fvb2JKbFpIUWhE0gF6QVVfeXFMUHlSWmNTcFV2RTk3YklVdE9RMHJ3TUUxMEszTHJUelp2X3BMTW9TNU1mVUg0VUMwQVpNSnJHLWJpdUVUZ0RHZ1g5VzVPY0FjSTZQQVdxUWVCb09aXzFoSzV1Tms4UDVQUE94RlpaYkd5cUhkbW9taHFOc2c?oc=5) |
 | Column ｜ Before Trump gutted the White House, Erdogan built his ‘White Palace’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOamwxaTQ0ajJaMDJrdFhwVUFWTDQtT3JWWE9RQWh0SzgxZWFraUdBWVFueFhNYkpGV0dNa0p6dVpVZmpYSFBKaXpGQWxCQUctYV8wTmpXTXE2bUV6NGlzZ3JxUmRWZzlvc0lGLU9KTHZONmdOQlVqNWpzSEcwdE5scWFkaVZkenE2V09HSmN3MldyN0Y1S3lILXB4dDlsemZO?oc=5) |
-| One killed and six injured after shooting at Pennsylvania’s Lincoln University - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNTUxoQ2JJWm9MQTFEM2QzWWxnTFpSWFZLM2hOQVlvSTU5a3JDTjlFdmF6dTdVdEdkT1Q1cC1xalNyb0lLWmJhRGJlZ3kwUGlTOHhVYktHaERyNnpncEJ5TTNCTWFYZ0VxamQwaWJZNVVIM09nWDc4TVBnYllteS1DbTg5R1RTY2NWZFZVQnFFOE9wQQ?oc=5) |
+| Lincoln University shooting: 1 dead, 6 others injured after gunfire during homecoming celebration in Chester County, Pennsylvania - 6abc Philadelphia | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQOVF0MGhqVTlQZEpoamhLbEsyLVdCOHlWWFltUFRLZzZqRmZMZmpmSWgxY1RyUmFRMnJSV3NzdnQwODAtazQyeFVURXczaTZVMG4zLU9uWXVOMV9zWFNDbFE5LXBsRUNMbjh3dTNmSE9hLVVIREZVUjNSN0ZGOEhHTFRYWVQ0dlVBWFczOdIBkgFBVV95cUxQejdRQmxwbWZmTnNRUTNsMWNERXA3Z1hVQnJrTDNLQ0owQklxeEdNcVU2TW15azh6WUt5Um5KWTFBYV82QzBld1dWaUpJQ0Z6T05ESUFOQ3VPVlZscHZ2WWF4Mk1iSzZDZFJGVTJyT2swQlFMRkN6ZEJ0ckNlY2RoNnVhWDBtYjktQksxcTBvNnh2dw?oc=5) |
 | Man fleeing immigration agents is fatally struck by a vehicle on a Virginia highway - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNLVFTTFcwakR2NkFNUFZHVFJZMGJGRHBmSTNXaE0wUXN2eFRieW9QWS1oUktjUVUwR0RxN2lGUXVuNXhYTlpWZVJKeExETUFHTWtVLWNFc3paVklObDh6aUVfc214c1E5M0swVVNZeUVvVVNkUEZ0VlBhdGJjLWdMUGZ3N0R1aklIaEVCS3hUNmhuWUJOenhhcGd4alYwY2x6cnNZ?oc=5) |
 
 ---
