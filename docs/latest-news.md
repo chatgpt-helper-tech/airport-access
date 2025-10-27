@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 07:01:36（北京时间）**
+🕒 更新时间：**2025年10月28日 07:09:18（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | Migrant sex offender released due to human error, Lammy tells MPs | [阅读全文](https://www.bbc.com/news/articles/cq503p7yjypo?at_medium=RSS&at_campaign=rss) |
 | Prince Andrew hosted Epstein, Maxwell and Weinstein at Royal Lodge | [阅读全文](https://www.bbc.com/news/articles/c4g7d39n6vgo?at_medium=RSS&at_campaign=rss) |
 | Chris Mason: As crises pile up, can the Home Office be fixed? | [阅读全文](https://www.bbc.com/news/articles/c0mx83n8m29o?at_medium=RSS&at_campaign=rss) |
-| Renters' Rights Bill becomes law - here's what it means for you | [阅读全文](https://www.bbc.com/news/articles/cqjwqp72y7ro?at_medium=RSS&at_campaign=rss) |
-| Key figures at odds over collapse of China spy case | [阅读全文](https://www.bbc.com/news/articles/cp8y2pn7l7xo?at_medium=RSS&at_campaign=rss) |
 | Hurricane Melissa: Jamaica braces for world's strongest storm of 2025 | [阅读全文](https://www.bbc.com/news/articles/c2dr0z57nygo?at_medium=RSS&at_campaign=rss) |
+| Key figures at odds over collapse of China spy case | [阅读全文](https://www.bbc.com/news/articles/cp8y2pn7l7xo?at_medium=RSS&at_campaign=rss) |
+| Skip short strolls – a longer daily walk is better for your heart, says study | [阅读全文](https://www.bbc.com/news/articles/cn0gw6p8dllo?at_medium=RSS&at_campaign=rss) |
 | Rodgers resigns as Celtic manager with O'Neill returning | [阅读全文](https://www.bbc.com/sport/football/articles/czxkezdp9z5o?at_medium=RSS&at_campaign=rss) |
 | Trump does not rule out seeking third term - but says he will not use VP loophole | [阅读全文](https://www.bbc.com/news/articles/c797q57ple9o?at_medium=RSS&at_campaign=rss) |
 | Reform MP's comments 'ugly' but intention was not racist, Farage says | [阅读全文](https://www.bbc.com/news/articles/c78z4eyvnx1o?at_medium=RSS&at_campaign=rss) |
-| UK signs £8bn Typhoon fighter jet deal with Turkey | [阅读全文](https://www.bbc.com/news/articles/cvgk8zz7r5lo?at_medium=RSS&at_campaign=rss) |
+| Renters' Rights Bill becomes law - here's what it means for you | [阅读全文](https://www.bbc.com/news/articles/cqjwqp72y7ro?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
