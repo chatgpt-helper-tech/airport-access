@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 03:09:55（北京时间）**
+🕒 更新时间：**2025年10月28日 03:16:53（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Indiana Gov. Mike Braun calls special session to consider new congressional map - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQX0tjR2lDYmFXSDRDYVkyUmJ0WVd6S3RtS1EwLVBUYjE5VGZwTVNEdzFKYjB4VUF6bG9FeUY1b3g1cFRUNWxVN21xakJqYS1aa0NoOUdCRFNrOVBBRHN2RHJSTjdKaF9aRkM5dXEyVTJrcU16bGN3RlBHYm1SNE5ZX0I4Y01LQ1AtZ0VyMElBNlU4QTB5VGNIVzRJWFZYV0pPelBpY2FEUGw4YWFodFp0Vk9aZTRBenNZOUtjWFRmYWZTQdIBVkFVX3lxTE0yTHI5V1hsbU9SZDY2bjVtRHlIRy03eTdyejc3YXZyU2RBUjM2R1NidzRiM21IMHBRN3JfTEIxekpDVXUzU25aZGdUWmtraTBVX3B6eElB?oc=5) |
 | Air traffic control staffing problems spiked over the weekend, raising concerns about growing disruption - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5kSDRnVUJYX2dkaUFYdFF4dnhJRXAwSFZvNC1MYjdERUJlVW5lU3VxdHZVcWdIb25BNnZGalNodFh6cUVDcTdJUmkwRURNUVpYT3gzMzdxQUJXWjFTTEM4dzhlblNOaVUzZXgyZ05vcjlCN2pIbk1Sd0NmV2prUQ?oc=5) |
 | Navy loses 2 aircraft from USS Nimitz aircraft carrier within 30 minutes - KOMO | [阅读全文](https://news.google.com/rss/articles/CBMi-AFBVV95cUxNcU9yQTA2QTVsOVNIbnBWNG9uVy1tTDlpdmZUdnh3alVOWEEyanZqVFJUNWplVXVWcGhYT29Icnk3VS0zUkd5S2hzeUVoaWZ6M0tiRVp6cUdIREFPTWlkWjhGRE9EcktqcTlIYVJFdFpPNmJtdVRYUjlHeHVRRDI5LWlPYWRDb2R1QmVqN2ZEaXZVWGZtY0dTWjJQUFZuMmloUlhWd0xDOXhSNHhYWTJweFYxS2l3WUY4ZWVXV0ZrNFBja2xwMm1kMjhhZVNHU0k4VHpudjIycDBlSHlXSzlPNWZsZktBb1RJUEl3dmdQOTFndDg0UTNIcA?oc=5) |
-| Largest federal workers’ union calls for an immediate end to the shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOQU9SMjJRU01IOEM2a2RkLWdhdWw5SVZhU0lXbFd1UUtDa1g4Yzhndmp1c2NIQTJoU21XX3F4X0djSzc2WlB6cExibVZHRFhWUEtFU3pnZ1FyVU1FOFYweGlRX2hwclphU0tVX21KUVE2aDRSX0ZqNDlveHBKTzY3b2oyNGpHUkhmRWZCQnhNbnh5OUE?oc=5) |
+| Johnson backs Trump's plans not to tap contingency dollars for food aid ahead of funding cliff - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxOTG1qaDg4U2UwMUgwR1dqWUE3aUNhWDZNVHN0R2gzTFFXUmhja1lEcm1jS2R5aG84bXZyMlpfdFFuZl9Ha21tRlRLQkhOMlZBUXQybmxSOHNVNmtGejlHNnN0NGNyY2V1Mm1HcHI3cDh1bW1qa2Q1UlRZX1dmUUFCOGpMcHpqQ3ZweEVjY1YxU1ZzVGhHY3RzMlpGR3czVHZ6VWJ6VG1DMzY2aXBHR1M3RFFENFNZdDFtQXp5UUFoaTZsVlhYMzA4OEZYSkNESWdaMThMUlg1YWVHdFRFNU9vTkloVzNIWEczMHBNek5naTZjUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
