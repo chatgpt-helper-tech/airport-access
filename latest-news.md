@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 12:57:54（北京时间）**
+🕒 更新时间：**2025年10月28日 13:00:20（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Gavin Newsom explains more of his thinking on a 2028 run - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE51N0MxbV9DVzQ5Ti1FTEp1TVUxUkxuVXFkNnNtNGN0amtwOUg1aDlEOHB0Q3gxOS1kQ3BJa3Z3RUFqbElkYmpmN1BoZ25YV3hHTWlFYk1mQjh4VzI0UzlGajJaajQxZ2NqSHRfLU5jQWtURHlXem1n?oc=5) |
 | Some Americans prepare for halt in SNAP benefits: 'I’m going to have hungry kids' - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPOF9JSXR0Ylp2ODZuVVJpcVVjSWdvbUpfWUxQdmM3cWhEUmFFNUpUT2xCM0ZvOG1YaUJ5ci1KY1o4RWVIWVJtaWFUNF9Hd2lfYXVtVGIyX1RodmNmSjY2eG01SWtsdkVkM3puUXpHdTlnUVMzQUFNbHVyVm1oTjA4TnNnUzdlSVJ3VV9UTUItR2pHeG9vOEZTMExkT3RTdko5YmfSAacBQVVfeXFMTXFLWFY5ZWk2TUNjSFl4Q1VaMk1GSktOY0ZWMTFVZXM5Rk1qV3NYX1FGY2RzbHp4WWNGTHFxRktOR1gzMzdSSXlENi1RNU5kRkQtdXl6RldGd3U5UjlHTkFGRGVXWDBmVEg4ZTlsVEo1eEJrZF9IUHdOdTJGM3BMMVNpakVIRTdnMkRzR3E5c0hTVGVqdzdlN1JWOWhQQ29ESjl2b1hrcDA?oc=5) |
 | Milei’s Win in Argentina Was Rebuke of the Past, Aided by Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPZThHRmdlMWhMaEladk9wS0xRbHpEQWs4cE9PdjNlYVVwaklrdzJpbGlibXloUnBQSU43RUJmcEN2QzNlMGtWSzg3N2dhTDBHMDdYZHc2S056TkxFdU5FbWpObWt3Q2NGaTRLZFI1dHVldFhaNE5NZDFWeThvTE9IWTZLZ1NzQQ?oc=5) |
+| AFGE, Top Federal Workers’ Union, Sides With Republicans on Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQeTRVZVVkRElNVkdvUXg5M0tPSnNuR3FMdTRXemswM3ZoWHFzXy1yOVJSbkpJV2hlbDJMMlJxSmtSM29IXzFBQTFIZUNTdkJkNnZ5ZjdwSEtSZ0MzbmpxU0h4UUY2WTh0TXhTQjh5TUh3amJKMHZaWDI1LS14WEt3N3FZT3cxeDVtNUN3bHhhQXdfejBvbGdWbFktSGpaQlU?oc=5) |
 | Suspect in Charlie Kirk killing can wear street clothes in court amid ‘extraordinary’ attention - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNNDgtZ1JQQlhBOWNfOFJlTEVndDd4Ym5kb2w5c3duYkdSdDdWd3RiSGZYTWVjT25LVEE1dVhoeWRKazdpNHl2U2ozNnlHazRrTmtVb3ZOM3NqNEpZSllaUDZmNFRRVjRMR0hWMDQ5cFFFZHk0d2x2SDR5VFNPYXczRXpuRjB2cE9pZHY1SHp4VEpIbW4xalE0bjE3LWlPWUZFSGdmRG9UUkpYM0JSTzRz?oc=5) |
 | How the 7 most vulnerable House Republicans feel about an ACA extension - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQQ3ZyUXpXUEFNa2tqU21xU2JZTzN3YlJLWG4wUUNtQUJsMWhjUnRSNHd3RmJwQ3IwVVNDSXE3am1nTElKY1ctZm9tYmFJaGdzam85VU5SNVNDME11RGwxS01RZjlBRU9waDZYM1VzRzFNNThOdk1MVU5YU0ZOSHM3RkxqZ2ozOVo2M0FSY2YzUkpLeXF6VUp5ZFEwWGlkVTRvcjNIaEo2Vm9CeTNtS2dtbEpPMWZGXzVSUjVZVlZNdDF3QQ?oc=5) |
 | Democrats get aggressive on remapping congressional lines - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQUlJaSWpLSDN6bGlBdHVlNXhHQXE0M0ppWG9UQ281ZEgwRGxxYkZXNGlKRHhlQVd1YVdnMnk1YmM3UVNhODhqY0NuYmFPeFNFRWxiSHNSVjRUMW5ocnFtbGp2RFIzSk1oN3ViUjFJUzhpbEVSZ1dJQnZwcDRwQXFtdlNkbHAxSnVjUzc3LURJbTVwX3B6c2V3UUt1Qko0UEMyNUFWdDI4V2pHYkE?oc=5) |
-| AFGE, Top Federal Workers’ Union, Sides With Republicans on Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQeTRVZVVkRElNVkdvUXg5M0tPSnNuR3FMdTRXemswM3ZoWHFzXy1yOVJSbkpJV2hlbDJMMlJxSmtSM29IXzFBQTFIZUNTdkJkNnZ5ZjdwSEtSZ0MzbmpxU0h4UUY2WTh0TXhTQjh5TUh3amJKMHZaWDI1LS14WEt3N3FZT3cxeDVtNUN3bHhhQXdfejBvbGdWbFktSGpaQlU?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
