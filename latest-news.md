@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 23:16:41（北京时间）**
+🕒 更新时间：**2025年10月28日 23:24:19（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump appeals felony conviction citing Supreme Court immunity - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE9lcGRleGdJbmlSVXdkdHIyOV81UE54VkVhUEtud29UWURidlJCYU9GWkEzUHR5SmpQMnJ4dFhQOFNDQ2tyWUhOUlo3Zmc5QnoycktEM0VQYThTbVh6SV9pc3YycXllcUlJTGxsaUh1SDFwZ2VfeVE?oc=5) |
 | Border Patrol's Gregory Bovino expected in federal court today in tear gas case - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNOHhLcVhTSW9XQV9XWWcwS3JsbjhmZnRrRHMtb1BvdmtONVpGWlh0RGZJWEtnSVY3MlpyRm5LZklkMU9tV0U1Y3VxWHhxQWIyMHpsTldSZDl4TnFqOV8zUDhvYmFJMUhncGhsZTlOcUNJNTVnTy0xZ2hRZnZLSXMwc2RqTGphZGVXYXcxeDJqUnFqc3h6WWtvaF9B?oc=5) |
 | California Republicans retreat as anti-Prop 50 campaign collapses - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQNFl4Q0pYNnlLdGRyRFZnOVpsXzhzRTMyU2pNNDFtTlVzcTk5YjNlVjNrM04tQi1Rc3hLT1k0R2pPUTUzSHYxekxteGxmVUk3Z1VDbV9oN0psMmVqTmNyWjBNbXhSOGdaSFBDSUxvMFVHcVZjUkgyMVJKbkU4RW1LV2lFa2Fxem9yX05Oa1h2d21tUkg2TGN0TW5R?oc=5) |
+| Largest federal workers union demands Congress end "avoidable" shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQRmtva1daRWlwcjVWQ205Zlpmdzd6QWs2eXhOTDkxb0pmT21VMkNTMnV1aEFsekZwUjRPNFd6S2taUDhLMmo2d0VITHhXNEJYemtPVUg4c2RuUkNvbEtKYlp2Ry02ZmNwWVFNYjZILXdWSzE5bVFWY1F2NXN4d0xRemZB?oc=5) |
 | ‘Trump 2028’: Could the US president really go for a third term? - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPRXRyR3dZeDFuMHNRdFUxaUFhcFRIRVJpemlzekRrbUJOaHFHRXdDa3pnbURGeE0wdkFoNnp4eTRkdHI3RWNfQTlHaVAzdDVFQXVsT3NFTktZajVXclVTaDdQa1Nra3FTVWtiUDFCQVRadEt6al9Fb3VhN3VyOENWanZjUVJjbnlWc1pPaVhLQ2dqdFk5RWdvd2hCNTlleXkxbWNoadIBqgFBVV95cUxQWWszY3ZMSXd0S2w5SHNuTllqTkJRWWFuOV81OVJLWEJveTFGb2tOU0t5ZGYxYkdhXzhhZ0JrTC1rbElESUlRSjlwMENHRDNZcFBYNERqdlc2ZXJxMnphZUNFODhZajZrWjJRM1JvcFJNMkUtaU9qNm4xRktCUzJFOHhWY2dFSk9ZRjJrZHZLT0pSZi01OHRnNTdhQnFXdHZzRmQ2SEk1VmFhZw?oc=5) |
-| Capitol agenda: JD Vance heads to the Hill on shutdown Day 28 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxORW9PYTdYUFQ1NVoyZjVUdERhMGo3NEtlQmk4b2g0N1BQbWp6Qk5XcnpYRkVwVkpwRmxUejktMHQ0c1hpSXdDUzRYYlBHdVBiQzhOMm83Q19ZNWVQeHRYQ3ZxaXIxVVVMZ1oxMHJUQ0NOSGJhOU52bWxHaXJZNkJ6SkllS1YyV293NVFPRDdPUmRJX3VQODhsWW8td3hzb0ZrLTB0dHctb3poZ3FOMnl6VHdKeTBBQkVaN0RB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
