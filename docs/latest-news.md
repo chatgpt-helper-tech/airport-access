@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 19:00:57（北京时间）**
+🕒 更新时间：**2025年10月28日 19:09:07（北京时间）**
 
 ---
 
@@ -15,8 +15,8 @@
 | Headlights to be reviewed after drivers complain of being 'blinded' at night | [阅读全文](https://www.bbc.com/news/articles/cn971jlpvvro?at_medium=RSS&at_campaign=rss) |
 | Why one small town with very little immigration turned to Reform UK | [阅读全文](https://www.bbc.com/news/articles/cvgkpjdzv74o?at_medium=RSS&at_campaign=rss) |
 | These robots can clean, exercise - and care for you in old age. Would you trust them to? | [阅读全文](https://www.bbc.com/news/articles/c9wdzyyglq5o?at_medium=RSS&at_campaign=rss) |
+| Amazon confirms 14,000 corporate job losses as it focuses on AI | [阅读全文](https://www.bbc.com/news/articles/c1m3zm9jnl1o?at_medium=RSS&at_campaign=rss) |
 | My wife died in childbirth but wasn't told she'd been given labour drug overdose | [阅读全文](https://www.bbc.com/news/articles/cx24gk2x51xo?at_medium=RSS&at_campaign=rss) |
-| Reeves could face £20bn Budget hole as UK productivity downgraded | [阅读全文](https://www.bbc.com/news/articles/c0rpve82jxvo?at_medium=RSS&at_campaign=rss) |
 | Boyband Five on their reunion: We are spectacularly lucky to get a second chance | [阅读全文](https://www.bbc.com/news/articles/cx2l0525801o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
