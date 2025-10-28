@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月29日 03:33:08（北京时间）**
+🕒 更新时间：**2025年10月29日 03:40:14（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Hurricane Melissa: a visual guide to Jamaica’s strongest storm since 1851 - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxPV2NYQmpzLWdkQlR1YkVxTGN2M2NianN6MXNoUEVjeV9BNHlFcU1yRjdjRi1LYjd5TWdOSVJXT0o1bVdoMExFLXlMNkI5cmR3ZGJ2RFdpai03eUk0Sml3Tm9MdU5Zd3RGZmFPRHpMZ0V0akJKTnViNk5UMldNVzJxV09ZNTkzenJyemhyS1NpYjhNeVFNM216WGctbzFHdXNmanBKSXJ6SkNBYlBpcG1aMnlqb1BwbmZuN3RTSGdReHlkU0xTalBqNW1Td05TT3lENHRLVmgxYw?oc=5) |
-| 25 states sue Trump admin over withholding food aid funding - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNRWhDTm5mMFZ4S1JOQlZQRndHS2J3Q3dOYS1oRlFDTEdhQlZjTm5XUEY1aG9pM2NhSllVSXZ3b0hHMDA2SE1sb2pxNjJLNGNVSHVVRlpMOGhySEo0N1hlR3pJcjFrcmFNcnJSTzJGTzNWRmp6YnE2aktIRFU4TDE3eXlva2t1WU02V2hPTXdGdjNwdFdqVDIw?oc=5) |
+| 25 states sue Trump administration over SNAP food stamp freeze during shutdown - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOV2JaSWhiRHVxWHFBRFJoT3VLWGV2bmhqNzYwT0pPUVF2eEdHbGJTTVhVY0Q1MU9ESHVkMHcwc2RfVXJYWkNDUHowdXJPVFBvemZnNDBfNnhtV3M5RDNhNzNwaTc4TmNQMklmMTZJVDJEZE03MWo5WXdQN2VKbFFCdW9NU1VrdWZrWmU3MXBn0gGTAUFVX3lxTE5nRmhyNXpUSzNXNnVLc05jVVBGWldoeFNLWk1qdmRBSUxITGItN29NdkV1NXNYemZIc3NTaXlLdUdZSU52ekVEakJrcllPWVVub1JEaWxSLTVsN1RDVmpGb0FCUGw4c3prUlhIMEF2WTdtcnNhTlFURjVURGF5VUlFNHlESlBQWUhmTFYzTWFoRGdnNA?oc=5) |
 | Netanyahu orders 'forceful' Israeli strikes in Gaza - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPUlJMNHROa3gzSFhRRGVmY0d0azNtbTJWTlptcm0yV1h0eXVmU2VsZ3NkNFBUZnRVYXh3RDM0V3MySm81eFZndkZkNVVrOU5NTGhaMVMtVTJySHVtWW1rZUFURWNPc1RCVkZNcGczbkVIMFhja3dOdGQ3bkRhc1hOQWdpbw?oc=5) |
 | Judge Blasts Border Patrol Boss Greg Bovino For Violating Excessive Force Order - Block Club Chicago | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxNY3FPNUlmWXV2NEJaNlJUMl9FZkFlZWh1QkNtSVJaWFBEUHBpbUJuSnkyanFhdkNaa2NjVjVpTTRRRzFuaFF0TFpyYy00YTlTdzM1eXdsbkdDOGE2a2FDeXNHQUNzSmdJYmtyMWM0QXRmVG1zYm85cktPOGpVa2VHXy1iNmZWN2ZRT20yODNHOVdyOXJWY1JLbXp6cC1hdGFpWTdPdzVENEIzRW5rY1VhU193dGNVV2hFemZraA?oc=5) |
 | US launches 3 strikes on alleged drug-running boats off Colombia, killing 14 - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPRVAtZkFnd2hTMXRYWjF1U1BFcUpWOU9NamJSMGd6Yk9Pd2gzbUJyV0RGNDRDOURZRmh5SkxhSGduazNkckZFQkEtdkRVOHpTaVNYcEpNcW50Q0F4ZWNkakl1dGJjNmJERGVBZXVYNHU2ZWlXWGxMWVZFOUloUnBCY3BTZEVjeW9hTy01TU80dWxRdw?oc=5) |
-| Citing autopen use, GOP-led House Oversight Committee calls Biden actions ‘illegitimate’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxObHluSjJlRGpvWXpDbkx5b3hkZUxVcmJOOVU1NU1BNEF1cEFuZjMwNHMzZTZFTE95b1pUZHJUbTRZR3NvajZnZFdqS05ocTlGT0tKMC1OOHk0dGdCQ3R4Z3lqWWdXWmcyeElWX1g4VUhSbmI4ZHlza3R3REpyTTRlZ2x4UzZZYjAydXZaSnZPaFhxdlJnN3o4VV9Kd2ZHZFdzdEgtZ3NucUVhMjFvSTNPak5B?oc=5) |
+| House GOP concludes investigation into Biden's alleged mental decline - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQM0pMTF9vV1ZmeFMtamR3OVNmNzBKcEh4N1I0bHk0c2lTVzJmU1NVLVVMVVRRajBZc29USTNJd1FjOElXRnkwVjZac1Bqc2FHNjFBdXd3V1lpUkxZMlI5RFRaS1duN3dVZ3VtaU1TVm1qZmJUUHVxNEZjMmVCa2hUMlRqYVk3ajFOaXdZWHNwUURIZnJCWFFUVHBB?oc=5) |
 | Congress must act before FAA can pay air traffic controllers, Duffy says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOcUladlNlZVZxLU1qQWVkLVJIS0RnR2YxV0JTNkFkUG5YdnU4NlVtUGRRSzdMOG42NEc0M0NxSGlPYTVqanR1NEtCcjZTb2diVnlkSGtWaVFMUFRyeVB4LWEtQlNHWDhwN0FqSHk5am10QTFSYjBmTWU2aFJDUlFFNVZuZWNYSWJudWtmU21uNXFQWUVLcnMxOTlLSkxmTmhoSUZHNlB3Rnkzdw?oc=5) |
-| Johnson says he’s spoken with Trump about ‘the constrictions of the Constitution’ on a third term - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE14ZWpyN1ExWVRMQkFtemhCVmhHZHFvUGZ2YTFER1VUa1FDdFdjZW55T0ROUW1aREZWUG1vYnB0cHR1WEtqV1lsZDI3dXFpZDIzUTF2Q3NmcVphcEt5N0xtZHFDOFpWTHZTNzM1RnB2b1NRUk81Q0RTWA?oc=5) |
 | Vice President Vance says troops will be paid as pressure builds on Congress to end the shutdown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPS0JHZkNmR2Q2OEh2THNPSk1jSU9iS2IxMTF2Z1lGd3dQaThrS0w5am5pazZMMXJKNUExTTdQV0lfWTVfaW9yY0xKWUREM1h3cDQ1ZTZpdy14QURwMGZHMmpyOF9WTWhLZlhWTXk3RjMwWUZ3alNBVHN5Z2Y2QllYWElqYVQ5eFlKTkJ4YlVNSW1RYXhGNmRVdUNFZ0o2X0FtY1ZlTV9XdlE?oc=5) |
-| A democratic socialist is poised to become New York mayor. Democrats are nervous. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQNFBYVFBSUWdLT21qcHUwUDV5Y2JacDlVdkl4ZmdURm95MTNISGpoWlFIUVQyd0ZRQTRHeFFYOVZpRnZZZFdCWGszY3FiWG5pa1VOV1JoU2p0Q3Fqcno2RHZaWmdoMUhqZWYxMmcxZnl6ZTZHaDV6ajRtQmRJbEFkR05LY2pReUlmb2pMVHRDOXY?oc=5) |
+| Johnson says he’s spoken with Trump about ‘the constrictions of the Constitution’ on a third term - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE14ZWpyN1ExWVRMQkFtemhCVmhHZHFvUGZ2YTFER1VUa1FDdFdjZW55T0ROUW1aREZWUG1vYnB0cHR1WEtqV1lsZDI3dXFpZDIzUTF2Q3NmcVphcEt5N0xtZHFDOFpWTHZTNzM1RnB2b1NRUk81Q0RTWA?oc=5) |
+| ‘The Beginning of a Movement’: Snapshots From a Mamdani Rally - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQRVFtcDdzUFJlcUdVMkNwRGU4VUZ6cENIcTFxVkU2dVNOSU1IX3BwVDRIT1FUcWVHc1R6RTJ1c0d5V3pkd1lhSWxQTk56ZmR5dE0wUUlaVUlTZ2E4S1NWOVBlMHJlczhfTl95U01tckFmZGR4MlVaZjF3Zzhhb0w5aWRQbG5hWTg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
