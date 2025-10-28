@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月29日 00:49:09（北京时间）**
+🕒 更新时间：**2025年10月29日 00:57:29（北京时间）**
 
 ---
 
@@ -28,10 +28,10 @@
 | On the Menu for Trump in Tokyo: American Rice - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOdlFwVHFqMjh3T294SDJ1dWdZdmhoSGRFbFZ6bVdmWHZySDJyU2VGY1VQc1JTUXd1TzhyWU1sa2FOTHNsOVREWnFhdFlWazJiMnk4VTJ0aVVnYW12ekctQzdFd01wT1AtNnFpWjVkS1A5STI3ZWU1c0VHMzNRa1JCcQ?oc=5) |
 | Border Patrol's Gregory Bovino begins testimony before federal judge - WBEZ Chicago | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQdlNncjFQMWZlNWtaWXNZTjdGVV9HZjJhT1NfODZUZkRxQmpGZ1VBMFZWd0xONkJ6Y1U5WlpCRzNKSDBpaks3TUZXV1RrZmRRMEl4NlBlN3NzdEFJcFItMXhuUDZEVGV0d3dRZHdRYWlYcmZBeDNWaUxpSkVkakI3VXdTVUlnbl8tZDFrNlJWTQ?oc=5) |
 | Citing autopen use, GOP-led House Oversight Committee finds Biden actions ‘illegitimate’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxObHluSjJlRGpvWXpDbkx5b3hkZUxVcmJOOVU1NU1BNEF1cEFuZjMwNHMzZTZFTE95b1pUZHJUbTRZR3NvajZnZFdqS05ocTlGT0tKMC1OOHk0dGdCQ3R4Z3lqWWdXWmcyeElWX1g4VUhSbmI4ZHlza3R3REpyTTRlZ2x4UzZZYjAydXZaSnZPaFhxdlJnN3o4VV9Kd2ZHZFdzdEgtZ3NucUVhMjFvSTNPak5B?oc=5) |
-| Government shutdown live updates as Senate fails to advance GOP funding bill for 13th time - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQZG9PYmNBWC0yRHdLRWpackhYb3hMWVUxQ3FPdm9fSmxBNWhrV29aWURXdXk1V0kwMWd2S29jc2EteEZUN1ZUeTFjdEY0cmFHNWgwN3hRYnI1dFY1MHZxTWptdzlHSkE3ZUV5UUVqbGQ1R1FSR2MzTmxOS2FtRVU0eHlYYlhBbWZGZ21wQWdpZFM0cWs?oc=5) |
+| Government shutdown live updates as Senate fails to advance GOP funding bill for 13th time - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQZG9PYmNBWC0yRHdLRWpackhYb3hMWVUxQ3FPdm9fSmxBNWhrV29aWURXdXk1V0kwMWd2S29jc2EteEZUN1ZUeTFjdEY0cmFHNWgwN3hRYnI1dFY1MHZxTWptdzlHSkE3ZUV5UUVqbGQ1R1FSR2MzTmxOS2FtRVU0eHlYYlhBbWZGZ21wQWdpZFM0cWvSAZgBQVVfeXFMTUhwcURJQ3U5WmJRN19xYjJGT2Fib3ZPOXJxZmRKN3o5T0dIMzhZaFhwZEQtZVNWelQ5NUU5NG41YzFQWk50TnIwVERFeThaTlFtN0NjdzYwdk9raGtYSC1zblE0SzU2SDNHbjVMT1duLW9KbEItdU9BLWNtVGxiazB4U2d1ZUxKRFdfY1VFOVFWdVJGOG1TcjE?oc=5) |
 | Trump appeals felony conviction citing Supreme Court immunity - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE9lcGRleGdJbmlSVXdkdHIyOV81UE54VkVhUEtud29UWURidlJCYU9GWkEzUHR5SmpQMnJ4dFhQOFNDQ2tyWUhOUlo3Zmc5QnoycktEM0VQYThTbVh6SV9pc3YycXllcUlJTGxsaUh1SDFwZ2VfeVE?oc=5) |
-| GOP voters in Northern California brace for loss of representation in fight for US House - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxObDRNN1UxNmNjcnltcFI1ZEgwdkxLdjJ5UVdQeW54TmdmN0JZc1RnbmFBUTVsOVJCMWRnVE00LVg2LUI1czVoR3k4UG8za19aakZGWFJtZjgxa2FoTjdBZWlweUpBUTA1QTFVaWhoSEg3WW90YjFnY2R1Q3ZqeUZFcnUweXdYcXY3SlpkcDlHdTRKSTR3NnVVRVhheEFaZklILXQ4T0hsbHM2N09Qdm84?oc=5) |
 | No ‘path’ for a third Trump term , Mike Johnson says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOMGYxcF9mQjh1MzBwZFdYTXRoWUNpdHZyTF9sUE03TElHc21GXzlYdWx4TWMtR0VJQ2NlbVM4cWtXMXhtRmh0dEJDNERvR3BFSWQwYTIzNkZaUDJscmh6bDZKTVdXOFRieV91RWJGSTFHX3lHQlhPOFNZeTN4VzlILUc5dDR6RkEzQzVxOE4wN2hnS0huRk9MeF9DU1RVQ2MwZk5mNWJDTQ?oc=5) |
+| GOP voters in Northern California brace for loss of representation in fight for US House - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxObDRNN1UxNmNjcnltcFI1ZEgwdkxLdjJ5UVdQeW54TmdmN0JZc1RnbmFBUTVsOVJCMWRnVE00LVg2LUI1czVoR3k4UG8za19aakZGWFJtZjgxa2FoTjdBZWlweUpBUTA1QTFVaWhoSEg3WW90YjFnY2R1Q3ZqeUZFcnUweXdYcXY3SlpkcDlHdTRKSTR3NnVVRVhheEFaZklILXQ4T0hsbHM2N09Qdm84?oc=5) |
 | Turning Point faces first big test of its legacy in Arizona - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOYUIxSHFCQmVnbTQ4TnpzSnA4aEFCUlFsNGRiVmNYdDBjcVRNUU5yRHlRMWEwN3pjenlJMGhOZDV1V0ZfNXhWV2ZtaGl3NFluZmIxSVBKSnRiNDVBRmljNV9xWXppLVctbnZrb0hxSHEydEJRYmp4WThGNGF4YlVaVERQalhaS1luWGZNMUl5Mkk3NVd6LTVwNkF3?oc=5) |
 
 ---
