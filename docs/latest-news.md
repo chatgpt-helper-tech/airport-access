@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月29日 03:48:42（北京时间）**
+🕒 更新时间：**2025年10月29日 03:57:10（北京时间）**
 
 ---
 
@@ -26,7 +26,7 @@
 | Jamaica braces for catastrophic winds and flooding as Hurricane Melissa approaches - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQMWFacWZWdFhsOV9PZU8yYlpqUjF3M2Zna0pMbExlYzJvRkdUUVNhTy1JamtyU0YxdEZIRy0wX1N3MGtrMFpIR2RCUjh6akgtOVpjdVBsckdmTHVITmc1U2Vidlo0bnBxOG5tM0ppWElNcFJnb1Ntei15UTNBejQwYlJUbTNqVTVFOFVvbC1QM2N6SUM0NEFSTEM0UmFsb1JfWWlTOEtVdjlncW8?oc=5) |
 | 25 states sue Trump administration over SNAP food stamp freeze during shutdown - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOV2JaSWhiRHVxWHFBRFJoT3VLWGV2bmhqNzYwT0pPUVF2eEdHbGJTTVhVY0Q1MU9ESHVkMHcwc2RfVXJYWkNDUHowdXJPVFBvemZnNDBfNnhtV3M5RDNhNzNwaTc4TmNQMklmMTZJVDJEZE03MWo5WXdQN2VKbFFCdW9NU1VrdWZrWmU3MXBn0gGTAUFVX3lxTE5nRmhyNXpUSzNXNnVLc05jVVBGWldoeFNLWk1qdmRBSUxITGItN29NdkV1NXNYemZIc3NTaXlLdUdZSU52ekVEakJrcllPWVVub1JEaWxSLTVsN1RDVmpGb0FCUGw4c3prUlhIMEF2WTdtcnNhTlFURjVURGF5VUlFNHlESlBQWUhmTFYzTWFoRGdnNA?oc=5) |
 | Netanyahu orders 'forceful' Israeli strikes in Gaza - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPUlJMNHROa3gzSFhRRGVmY0d0azNtbTJWTlptcm0yV1h0eXVmU2VsZ3NkNFBUZnRVYXh3RDM0V3MySm81eFZndkZkNVVrOU5NTGhaMVMtVTJySHVtWW1rZUFURWNPc1RCVkZNcGczbkVIMFhja3dOdGQ3bkRhc1hOQWdpbw?oc=5) |
-| Judge Blasts Border Patrol Boss Greg Bovino For Violating Excessive Force Order - Block Club Chicago | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxNY3FPNUlmWXV2NEJaNlJUMl9FZkFlZWh1QkNtSVJaWFBEUHBpbUJuSnkyanFhdkNaa2NjVjVpTTRRRzFuaFF0TFpyYy00YTlTdzM1eXdsbkdDOGE2a2FDeXNHQUNzSmdJYmtyMWM0QXRmVG1zYm85cktPOGpVa2VHXy1iNmZWN2ZRT20yODNHOVdyOXJWY1JLbXp6cC1hdGFpWTdPdzVENEIzRW5rY1VhU193dGNVV2hFemZraA?oc=5) |
+| Border Patrol boss Gregory Bovino in court to answer questions on aggressive tactics, live updates - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOS0F1dElveGRBMmpmbmNoWFIwSndzZWJ3Qy1ZVFdFQ0prbmRuUWkyQk9ncGNWbUMxbEI4cUlxMVQtUG5GRlZCdGRDTXg0Q3pUZ1Y0S1NnTU9zVDU0dk1MWjRvbjFqMjJ3aUdyd0hNNVVBMkV0WlF3RFN3MUh6NnV4eTBBak1Zd1ZZN2Q1X1hfZ01MeGhJZDdrbnBneWx1SHA5bFE?oc=5) |
 | U.S. military strikes four alleged drug boats in eastern Pacific, killing 14 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQbm10WXhrbnBVVU1hYXczYl83WlBYc0stRURkU1RIQ3pfSnllMFpuT205NEMtSUZOcUVYdHRRN2RqSmlzZk9laVo5NlR1c18tMmQwX09FcV80cjBGejhXSXZyS3h4bUZMTzBUY3BQclp0a2JNZkVJcDVTM1gxWDE3cGtZZVZqNjJxWU9KTGIyLXk3Y1F5SnpLMHBqNWw0TGV3Nnc?oc=5) |
 | Democrats still not supporting GOP bill to end the shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQc0cwbTNFRDV5VW5CUHMtQk5qWFNnb012TklQTERMOHo3UXBuakVKWl9QbEh1NV81dGc2Z19GUGNsWmNWbFJNME5oaFpGSU9iYy1QSS1YRkw0XzBrbjIwWWYtMVQwb3NEMVBlVDJ4VGxTcU51N1F6TjFhbWNGR212c1dwdHZoWkI4d2VRVkhaOHAtNHRJNHo5SjNFbTdFNE1PQkxJdnZR?oc=5) |
 | Congress must act before FAA can pay air traffic controllers, Duffy says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOcUladlNlZVZxLU1qQWVkLVJIS0RnR2YxV0JTNkFkUG5YdnU4NlVtUGRRSzdMOG42NEc0M0NxSGlPYTVqanR1NEtCcjZTb2diVnlkSGtWaVFMUFRyeVB4LWEtQlNHWDhwN0FqSHk5am10QTFSYjBmTWU2aFJDUlFFNVZuZWNYSWJudWtmU21uNXFQWUVLcnMxOTlLSkxmTmhoSUZHNlB3Rnkzdw?oc=5) |
