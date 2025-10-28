@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 15:56:31（北京时间）**
+🕒 更新时间：**2025年10月28日 16:00:48（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Charlie Kirk murder suspect can wear street clothes in court but must be physically restrained, judge rules - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPWVNOUlpabm9ELWNFVmhPLWU4TVRTVzZ6NHV5eWZGaFc2Y1RUVFJrNGp6b09RSExRS0c1cWdWaXZybEV4VE5abHhUOTN6QlQtdXpjb01JR291TlhPZ1QxYU9XMmRYeU1KX3NSVFI2c25SM1pUbjhKOHYwbFNoWkd0UGJpV0hfd9IBiwFBVV95cUxOSWR2YXNJYWFiNndlMzJGY2tEOWxjbGVCbXN3WWVYZjVYZmp3UURzb0pQMFAxRHpBX2lUUkIwd0xxSll1ZnBySllQMF85bFBPNE9TWjE2QXh2NFNmT3lrNWhhWlctMmNWNVVIZ0dmR0RPYWdhT2JhLWhKV1h2QVFhVkliRWk1c0R3ME5B?oc=5) |
 | How the 7 most vulnerable House Republicans feel about an ACA extension - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQQ3ZyUXpXUEFNa2tqU21xU2JZTzN3YlJLWG4wUUNtQUJsMWhjUnRSNHd3RmJwQ3IwVVNDSXE3am1nTElKY1ctZm9tYmFJaGdzam85VU5SNVNDME11RGwxS01RZjlBRU9waDZYM1VzRzFNNThOdk1MVU5YU0ZOSHM3RkxqZ2ozOVo2M0FSY2YzUkpLeXF6VUp5ZFEwWGlkVTRvcjNIaEo2Vm9CeTNtS2dtbEpPMWZGXzVSUjVZVlZNdDF3QQ?oc=5) |
 | Democrats get aggressive on remapping congressional lines - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQUlJaSWpLSDN6bGlBdHVlNXhHQXE0M0ppWG9UQ281ZEgwRGxxYkZXNGlKRHhlQVd1YVdnMnk1YmM3UVNhODhqY0NuYmFPeFNFRWxiSHNSVjRUMW5ocnFtbGp2RFIzSk1oN3ViUjFJUzhpbEVSZ1dJQnZwcDRwQXFtdlNkbHAxSnVjUzc3LURJbTVwX3B6c2V3UUt1Qko0UEMyNUFWdDI4V2pHYkE?oc=5) |
-| Man accused of stabbing two teens with metal fork during flight - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPVFM5TWxIZ3Q2S0RpSDM4TXI4SUFPUExmRTl5Sk43Y3U2SE9SbDhZUVFkOEZ1emdKdzJNV3UtV0t1WnA0THd2ei1OVTdPUklMQU1SWm00X0xVal9tZEs2RmZmM0NBY0hCS0FMRUxYTUlFRVRNa1BtcmYyTjN6NFFjUGFMelRJLS0yaVlyWlhZc2RUUQ?oc=5) |
+| Indiana governor calls a special session to redraw US House maps as redistricting battle spreads - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxORmR1TTcyZnhjS0dvdkl0LWpQUDB5cEJpb0xYYmxGcmltNHNXb1RhZWl6dE4wU3FPeHBpN2JfZHBWNkU0WVRLbmNkclNBdGhCdGdSa21tYmNzcDVpa0lVQ2JpSlVmVFdqSklQanA5Y1pxNWU3WU5maGNwYi1PZ2ctc29NcFo4MlBHNW5ReXl3c2Y5ZVNKWkVWQm9yQ21TRXVwelBhRDJR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
