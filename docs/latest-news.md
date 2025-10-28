@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 14:41:22（北京时间）**
+🕒 更新时间：**2025年10月28日 14:49:42（北京时间）**
 
 ---
 
@@ -8,16 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Watch: Storm chasers fly inside the eye of Hurricane Melissa | [阅读全文](https://www.bbc.com/news/videos/cwypk4e3v3lo?at_medium=RSS&at_campaign=rss) |
 | Military sites to house asylum seekers in bid to end hotel use | [阅读全文](https://www.bbc.com/news/articles/cjr0lx7n0y3o?at_medium=RSS&at_campaign=rss) |
 | Chris Mason: As crises pile up, can the Home Office be fixed? | [阅读全文](https://www.bbc.com/news/articles/c0mx83n8m29o?at_medium=RSS&at_campaign=rss) |
 | Prince Andrew hosted Epstein, Maxwell and Weinstein at Royal Lodge | [阅读全文](https://www.bbc.com/news/articles/c4g7d39n6vgo?at_medium=RSS&at_campaign=rss) |
-| These robots can clean, exercise - and care for your elderly parents. Would you trust them to? | [阅读全文](https://www.bbc.com/news/articles/c9wdzyyglq5o?at_medium=RSS&at_campaign=rss) |
-| Skip short strolls – a longer daily walk is better for your heart, says study | [阅读全文](https://www.bbc.com/news/articles/cn0gw6p8dllo?at_medium=RSS&at_campaign=rss) |
-| Headlights to be reviewed after drivers complain of being 'blinded' at night | [阅读全文](https://www.bbc.com/news/articles/cn971jlpvvro?at_medium=RSS&at_campaign=rss) |
 | Productivity downgrade may add £20bn to Budget hole | [阅读全文](https://www.bbc.com/news/articles/c0rpve82jxvo?at_medium=RSS&at_campaign=rss) |
+| These robots can clean, exercise - and care for your elderly parents. Would you trust them to? | [阅读全文](https://www.bbc.com/news/articles/c9wdzyyglq5o?at_medium=RSS&at_campaign=rss) |
+| Headlights to be reviewed after drivers complain of being 'blinded' at night | [阅读全文](https://www.bbc.com/news/articles/cn971jlpvvro?at_medium=RSS&at_campaign=rss) |
+| Skip short strolls – a longer daily walk is better for your heart, says study | [阅读全文](https://www.bbc.com/news/articles/cn0gw6p8dllo?at_medium=RSS&at_campaign=rss) |
 | Why one small town with very little immigration turned to Reform UK | [阅读全文](https://www.bbc.com/news/articles/cvgkpjdzv74o?at_medium=RSS&at_campaign=rss) |
 | 'My wife died in childbirth but wasn't told she'd been given labour drug overdose' | [阅读全文](https://www.bbc.com/news/articles/cx24gk2x51xo?at_medium=RSS&at_campaign=rss) |
-| Is my mobile lying to me? When 5G doesn't mean 5G | [阅读全文](https://www.bbc.com/news/articles/crexqyj7n5lo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
