@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 20:32:45（北京时间）**
+🕒 更新时间：**2025年10月28日 20:40:21（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | California Republicans retreat as Prop 50 campaign collapses - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQNFl4Q0pYNnlLdGRyRFZnOVpsXzhzRTMyU2pNNDFtTlVzcTk5YjNlVjNrM04tQi1Rc3hLT1k0R2pPUTUzSHYxekxteGxmVUk3Z1VDbV9oN0psMmVqTmNyWjBNbXhSOGdaSFBDSUxvMFVHcVZjUkgyMVJKbkU4RW1LV2lFa2Fxem9yX05Oa1h2d21tUkg2TGN0TW5R?oc=5) |
 | Suspect in Charlie Kirk killing can wear street clothes in court amid ‘extraordinary’ attention - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNNDgtZ1JQQlhBOWNfOFJlTEVndDd4Ym5kb2w5c3duYkdSdDdWd3RiSGZYTWVjT25LVEE1dVhoeWRKazdpNHl2U2ozNnlHazRrTmtVb3ZOM3NqNEpZSllaUDZmNFRRVjRMR0hWMDQ5cFFFZHk0d2x2SDR5VFNPYXczRXpuRjB2cE9pZHY1SHp4VEpIbW4xalE0bjE3LWlPWUZFSGdmRG9UUkpYM0JSTzRz?oc=5) |
 | Man accused of stabbing two teens with metal fork during flight - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPVFM5TWxIZ3Q2S0RpSDM4TXI4SUFPUExmRTl5Sk43Y3U2SE9SbDhZUVFkOEZ1emdKdzJNV3UtV0t1WnA0THd2ei1OVTdPUklMQU1SWm00X0xVal9tZEs2RmZmM0NBY0hCS0FMRUxYTUlFRVRNa1BtcmYyTjN6NFFjUGFMelRJLS0yaVlyWlhZc2RUUQ?oc=5) |
-| Hochul says she thought ‘tax the rich’ chant was ‘let’s go Bills’ - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBOcDJFS2lWcGE2eUpDVEhpeXdtcGxNc2wxN1R1WTNTOVpESW96OXBFRXpDYXRINy1Gb1o3NDRDWGVnRVI1TVl6SDV5eVRtNFZrR2hVOHNKbERaWjA3QXZPSGFybkppNTBFRkY2OGFxNkRXVlAySVBnVDdDUnd3WWvSAYQBQVVfeXFMUDg0bDhwSS1pU09PNm5QbXFMVnZlTjZubVhSRWxDRXNQNGFQRDZybG1iM1lfZHJsZXJXRFpWOXFDT0MxbkZ1S3l5d3JvMEFtSjBEYnBDcWRFdHJ2bHVVeHN1NlZfZjdLUWNNbTk2bG1ka0hCeG1RRjZRZTZZYU8yeFZhdlpx?oc=5) |
+| Trump put allies on obscure board set to decide White House ballroom’s fate - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPemc1T01MQmhJclJLVG1oSHhNNTRrOXVld2dONXNSbnduTE4tN1hOMkotTGpQNzV1Q1MyNHQ4ZHh2U3hfZ0l0YmU5QkNjbXF3UDdKUHdmOXdVNTFHcmdWSTNvbGlIOG9wMnh3QUtFZXRGLXdUaHppMmJuXzZnRlp2by1TSUwyRWJIZ29GeGg0RQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
