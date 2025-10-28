@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月29日 06:49:36（北京时间）**
+🕒 更新时间：**2025年10月29日 06:57:05（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Hurricane Melissa plows across Jamaica, its eye now moving toward Cuba: Live updates - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQNFNBSzZzSk0zOF9QMjJqLV80akN4MFVINWt2UkdPa2RERGM1dFJPNUkyamhGY213c3E5WDd6MzVNRm5pTllkNjJEbm1DX1oxN1JmbVFad1YxdnpyRHU4d0hTb3RBY0NOTDdPUG55enJHVjcxWmRBUmZPNDI2eUs1TWlGc2dXNjJkRmdIU2hwVlhzUQ?oc=5) |
 | States sue over Trump administration suspending food benefits during shutdown - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNZmc4ZXF5clhERmduX3R3SjF6UGV5ODh4bGIxcmg1eC02SjFoQlFfWTdONWRQZUl0SC1ucVVkbDVuNmYya2lqUnVxazFBZFNib2JoNVp2RllBWjl3TDE1SFhsRnluWGEtQVZhckZQMS0wU19JZnJNZm1OZGY5dDF5cnJUVXlreldXZG12ejRPYXV3eVFrRXpzQTdwNmxPNEtXOWh2WUdrZVEwMnNGcndqd1Ryb3VUTXZzV3RUWEc2NA?oc=5) |
-| Border Patrol chief leading Trump immigration crackdown in Chicago ordered to report daily to federal judge - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOb3N1SzVuN1oyel9hV0FPdkxPeDRfSzZaRmNUazNSVmdKc0h1MXZOd3o1R2lOd051cDIyN3NtRG1TNF9rSTUwZ2dXa3hLMTlxV25kVmNZMHlmNUFkZFJSZjBIckxrM0w5Q3QtMWdadlgyTmZtU2F2VlVUYk4xMW9vRGpLUW1YU25RdjRlWnFDMEN2Ml9y?oc=5) |
 | Israel launches renewed strikes in Gaza less than 3 weeks into Trump's ceasefire deal - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPUlJMNHROa3gzSFhRRGVmY0d0azNtbTJWTlptcm0yV1h0eXVmU2VsZ3NkNFBUZnRVYXh3RDM0V3MySm81eFZndkZkNVVrOU5NTGhaMVMtVTJySHVtWW1rZUFURWNPc1RCVkZNcGczbkVIMFhja3dOdGQ3bkRhc1hOQWdpbw?oc=5) |
+| Border Patrol chief leading Trump immigration crackdown in Chicago ordered to report daily to federal judge - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOb3N1SzVuN1oyel9hV0FPdkxPeDRfSzZaRmNUazNSVmdKc0h1MXZOd3o1R2lOd051cDIyN3NtRG1TNF9rSTUwZ2dXa3hLMTlxV25kVmNZMHlmNUFkZFJSZjBIckxrM0w5Q3QtMWdadlgyTmZtU2F2VlVUYk4xMW9vRGpLUW1YU25RdjRlWnFDMEN2Ml9y?oc=5) |
 | Trump indefinitely barred from firing federal workers during shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNVXRhZXo4MFp3emtpM1M1QVF6VVQzQ3haVW8zeG5iMWhxX1daXzhRUzlzM3JBVWtQNUxWVjFnUndLbnJzOGo2N0hqNFh6emhyX183RGdTUlpzVTVyZ01qQ0loNWNHMmtERjlsZW1EczBrUmpDMm1wQnRTYVpOVTZ2V2tfelB0UQ?oc=5) |
 | Daughter says Brigitte Macron's life 'deteriorated' after alleged cyber-bullying - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFByd3VZdHR3bHFRSDN1NUJ4TTlmNVJQX3Q3N01hNnJPVDBXNzI3TUZQS3BvWWxDN1dVMFRFejA1eXR0Rk5rZ3RXRXI3eVY0dVVEUVRSa2hsUlk4Z9IBX0FVX3lxTE45cDJYcktMUTJsdWszODZ6M19VNnA5bjhfMUlZb2ozUFJGZHJWT3BOMmtBWl9DM2pzb0MyU3Y0eU4wd0JXdkFZYU5KdEVEZkdCUlB6ZkVrelpSZ3BvQ2Rj?oc=5) |
 | Congress must act before FAA can pay air traffic controllers, Duffy says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOcUladlNlZVZxLU1qQWVkLVJIS0RnR2YxV0JTNkFkUG5YdnU4NlVtUGRRSzdMOG42NEc0M0NxSGlPYTVqanR1NEtCcjZTb2diVnlkSGtWaVFMUFRyeVB4LWEtQlNHWDhwN0FqSHk5am10QTFSYjBmTWU2aFJDUlFFNVZuZWNYSWJudWtmU21uNXFQWUVLcnMxOTlLSkxmTmhoSUZHNlB3Rnkzdw?oc=5) |
