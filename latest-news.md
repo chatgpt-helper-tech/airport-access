@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 09:41:56（北京时间）**
+🕒 更新时间：**2025年10月28日 09:48:24（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | AFGE, Top Federal Workers’ Union, Sides With Republicans on Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQeTRVZVVkRElNVkdvUXg5M0tPSnNuR3FMdTRXemswM3ZoWHFzXy1yOVJSbkpJV2hlbDJMMlJxSmtSM29IXzFBQTFIZUNTdkJkNnZ5ZjdwSEtSZ0MzbmpxU0h4UUY2WTh0TXhTQjh5TUh3amJKMHZaWDI1LS14WEt3N3FZT3cxeDVtNUN3bHhhQXdfejBvbGdWbFktSGpaQlU?oc=5) |
 | Indiana governor calls a special session to redraw US House maps as redistricting battle spreads - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxORmR1TTcyZnhjS0dvdkl0LWpQUDB5cEJpb0xYYmxGcmltNHNXb1RhZWl6dE4wU3FPeHBpN2JfZHBWNkU0WVRLbmNkclNBdGhCdGdSa21tYmNzcDVpa0lVQ2JpSlVmVFdqSklQanA5Y1pxNWU3WU5maGNwYi1PZ2ctc29NcFo4MlBHNW5ReXl3c2Y5ZVNKWkVWQm9yQ21TRXVwelBhRDJR?oc=5) |
 | Charlie Kirk murder suspect can wear civilian clothes in court, judge says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9Iazk4V1lkNkpOMEkzZlNnaDgwZHNPMjRYZVQ0bG80YTFZbzlKWUY4TXRuTUZVc1JSWG0xc1YtYXg3N3puSDlPbk8weFJQcllBQk9jNE15czF5d9IBX0FVX3lxTE5YZkFCSUNIeFlwcERxYTZJOE5yem4tLW5yWDJkN0lZOW9CQjdfZlVEVTA1THJ5d1Y5TVd1Y1NFU2hlNVl2N2xZbTdhTlVBeHU3SnJoVXotaG5ZMkZsWlA0?oc=5) |
-| Former cop charged with murdering Sonya Massey testifies his actions ‘matched the threat level’ - WBEZ Chicago | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxQYkVmLXdMcVZ3am96Q3FzbW92QndkdHBLTjZlOURucWtWZHNIVVBUT0VtYUZOWnFRamVtdENFd2g5NVdjakFZRk80Q3RJOURVTEs2LWhtQWdpZFlXR0lMcGtDVXdBM3BlRjZSRHNRczFUb2MzTVJrMmtDdHgxWjdHaEl3R1Q4dEMteGNldW1xdkY1blF2cjdqOEZDSWtuYVFRZGhpUEstZjVsbHhua3dDaUVJZWVxVTI1QkdYdldGOVE4bUthVllTbw?oc=5) |
+| Navy Probes USS Nimitz Fuel Supply After Crashes, Trump Points to ‘Bad Fuel’ - USNI News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQY2M1eFBpTEdveC1TUldiRzBTTk5lcmZGTEd3ZDNtNVRhN1YyT1hiV21pYXBlZXpyY1Mxd0dHRVliSThzNFRON1d2OEVWOUdFaVVUNjBVMWRVa1NWLTRsTjJ2ZnJ2YXlfUFZEc2xvQkNReFZiZG42S1NZN1V4RXM0ZEJkME1jenN3eFNWc3JubkhEYngyVUlvaDd4SFB4Rkh3a0RIQzRtQkdzQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
