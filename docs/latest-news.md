@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月29日 07:41:43（北京时间）**
+🕒 更新时间：**2025年10月29日 07:49:36（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Judge extends order barring mass firings of federal workers during shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPemh6RS1YSnYwR01KcmZWVV84TnQ4YXZ2UENhWU1SRjllaENIZjVKOTVUYndsaDZxWk1qaDF6TmdlTFRCMnA3dTlobzZrdHZJcWF2VlNjOFhKUnRuS0p5OU1RVGpBTWs5WjcydUlHTWpZbndzSmV4Q2I0OUM2cFo2ZklyUGY3SEktODhXUWZxdExEXzFEM2JoX1k1TWxYUQ?oc=5) |
 | Senate rejects Trump tariffs on Brazil - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPeTdJZjJEZUxVUXZKcmZ5eXg0Q2VTTzA5WUJLcDZDbGhnb1NCVlowMEZibWIzMVQzSXQyb0QtcVhRR0w0TXo0bncxVzU4T3llYWZ1eUloZUoySGJ6dHZ4YWliVTJmTDhneGp1UngtUkV3ZlQ2dDRlNlFnRmlnczdJQUlEaw?oc=5) |
 | A deputy killed. A 150-mph chase. Then, an off-duty cop took dramatic action on live television - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPNEhQcDFnTzhMRl96OUFiWEJCZjBrUnNGMHhLTC1fcFBiYTUzZlNNOE9ZSmk3RGRrU0NUUHVwYlNzTmVFRWNhQW9yWWxtS2M1RnY1RGF0Q0xjWkJOVkozNktHeXI5MllWel9rWDNib3FtdVQ5OFlzZFRQOW9Vb0hWQUVYOUhXS1VZcEd0dnNrajR3clJ4QWs3YXZ3YnNoU09ERGE1SVROZFBRWGxNSkRr?oc=5) |
-| Airlines are feeding air traffic controllers as they miss their first full paychecks - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOSUItYUFQRGtyaUlISXltWHVVRXVoVmpkS3RmR0VlTmtfZ0Z4QzJ4QXRqV2dpSjJxSmFYWHNCenJfaE1ySGRGU2dyRm5LS09pVlhreEF5dW45b1RoZjJpaUdraFEzblJCLUk1Y2ZjcDlfTjNLMUZwZVQ3UUxiaEhIb2Z6dTQ5T3B1blh4M29yR0tzSm1QX3ZhWDJaNENuTDZ0dHlOMUln0gGrAUFVX3lxTE9jQmM0R2llM2Z6TGIyWkp3NW95allFX1JfRTJIOUI5dGVnNkVhdlhJV0cwOEF4QkkxejljR0JFQmlBb2NqZGNFT0RuNWRRWnNycDh5d3B1T2RlS1hVdHgweGlwQ3RBaTFra0NYMnZDa2VlcHRZSVpNWFZnYmJoYXQxYmtJdFc0cHo4MW9GbEg0NXlGeVlGZWM1NUtnZFhZcXp2bnlkYy15U3BiWQ?oc=5) |
+| Monkeys escape after truck overturns on Mississippi highway, 1 still missing - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE94aldodUYwQnVjbF9WNTFvcEJTYUJudjZkdTJFZHRHRW9UeW1uazRaUkZleHlnSjFkZXpzc3hQQnJ4VTczSWJ5SHk1N09aNXE3cjlTUWRZdHE1N2V1bDdNeU1maHN1RThGRElfWGlic182TGdqaUVGbVJrRHFHQdIBgwFBVV95cUxPZkJ2TkVzT2NwU3BzcmxEd2xFT041VWgtdHcyZkVuVm9ZNHEtMHBxRDdSQzBySkxtTUxhR0xOc1hCaFRGbzhiQllLRHdWeXBxRUcyNjZDcW14N2p6MzJqMExIbTNXeGZjZ3ZtYXZRSHZjeHVleUMycHoxNV9hN0dHa0JlUQ?oc=5) |
+| As shutdown leads to flight disruptions, pilot says 'political fight is trying to invade my airplane' - WBUR | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE1malRKLUg2MG9NUGNsTVdBTXFVazRmSE1kMFJvcTV1d205dFNxZ0NuY3ZlUUh3YjNYRFpQY0RLNHotYUplRHB3bE5MYTVVNXh6dEs1U2gwNk9ySDJxX3VqX1MtMHc2WnM2QXkycHN4Q3YtMEZyQVZJ?oc=5) |
 | Speaker Johnson says no 'path' for a 3rd Trump term - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOVXgyTDN6bUsyWFRCSHBwbVI2eE04Y3c3V3kya3puem1QcXVuNm5uazY4LUN4OU15SDdWR3J5UWgteGZCUk1Hdy1hRjBqWEl6Rjk4WGVlQ1gtbHBuY09QQVJpMGpubThZaE9PWWJGQmVELVVTb1NqM1VWLWRMRjF6WUJ2T0k1N3ZYVXZLYTB5WdIBlAFBVV95cUxONGNwcks1bTlJdzFta3V2bDZzUHFZSHlaQU9zbFdfUi1acFB2eTZXRjVtUm5pZUVzNWo0YVRQZVVyNWJ5VFdiWmtQUjFVbTA5WTVZSGlPOGUyekRnNktwZEl0S052VlNOUlRhUE9nMFYySHI4T0dIbnpSQl9seVlkODlvdWdrUG9uZ2ZqNEZ4ME52V1NN?oc=5) |
-| House GOP concludes investigation into Biden's alleged mental decline - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQM0pMTF9vV1ZmeFMtamR3OVNmNzBKcEh4N1I0bHk0c2lTVzJmU1NVLVVMVVRRajBZc29USTNJd1FjOElXRnkwVjZac1Bqc2FHNjFBdXd3V1lpUkxZMlI5RFRaS1duN3dVZ3VtaU1TVm1qZmJUUHVxNEZjMmVCa2hUMlRqYVk3ajFOaXdZWHNwUURIZnJCWFFUVHBB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
