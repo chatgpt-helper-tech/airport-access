@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 19:17:01（北京时间）**
+🕒 更新时间：**2025年10月28日 19:24:47（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | Watch: Storm chasers fly inside the eye of Hurricane Melissa | [阅读全文](https://www.bbc.com/news/videos/cwypk4e3v3lo?at_medium=RSS&at_campaign=rss) |
 | Two military sites earmarked as asylum seeker accommodation | [阅读全文](https://www.bbc.com/news/articles/cjr0lx7n0y3o?at_medium=RSS&at_campaign=rss) |
 | Fawlty Towers star Prunella Scales dies aged 93 | [阅读全文](https://www.bbc.com/news/articles/cjd0yn5gyndo?at_medium=RSS&at_campaign=rss) |
-| Prince Andrew hosted Epstein, Maxwell and Weinstein at Royal Lodge | [阅读全文](https://www.bbc.com/news/articles/c4g7d39n6vgo?at_medium=RSS&at_campaign=rss) |
 | Headlights to be reviewed after drivers complain of being 'blinded' at night | [阅读全文](https://www.bbc.com/news/articles/cn971jlpvvro?at_medium=RSS&at_campaign=rss) |
 | Why one small town with very little immigration turned to Reform UK | [阅读全文](https://www.bbc.com/news/articles/cvgkpjdzv74o?at_medium=RSS&at_campaign=rss) |
-| These robots can clean, exercise - and care for you in old age. Would you trust them to? | [阅读全文](https://www.bbc.com/news/articles/c9wdzyyglq5o?at_medium=RSS&at_campaign=rss) |
+| Prince Andrew hosted Epstein, Maxwell and Weinstein at Royal Lodge | [阅读全文](https://www.bbc.com/news/articles/c4g7d39n6vgo?at_medium=RSS&at_campaign=rss) |
 | Amazon confirms 14,000 corporate job losses as it focuses on AI | [阅读全文](https://www.bbc.com/news/articles/c1m3zm9jnl1o?at_medium=RSS&at_campaign=rss) |
 | My wife died in childbirth but wasn't told she'd been given labour drug overdose | [阅读全文](https://www.bbc.com/news/articles/cx24gk2x51xo?at_medium=RSS&at_campaign=rss) |
-| Boyband Five on their reunion: We are spectacularly lucky to get a second chance | [阅读全文](https://www.bbc.com/news/articles/cx2l0525801o?at_medium=RSS&at_campaign=rss) |
+| Prunella Scales: From Fawlty Towers to Great Canal Journeys | [阅读全文](https://www.bbc.com/news/articles/cyjjkdrje13o?at_medium=RSS&at_campaign=rss) |
+| These robots can clean, exercise - and care for you in old age. Would you trust them to? | [阅读全文](https://www.bbc.com/news/articles/c9wdzyyglq5o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | GOP gives up on defeating California gerrymander - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQNFl4Q0pYNnlLdGRyRFZnOVpsXzhzRTMyU2pNNDFtTlVzcTk5YjNlVjNrM04tQi1Rc3hLT1k0R2pPUTUzSHYxekxteGxmVUk3Z1VDbV9oN0psMmVqTmNyWjBNbXhSOGdaSFBDSUxvMFVHcVZjUkgyMVJKbkU4RW1LV2lFa2Fxem9yX05Oa1h2d21tUkg2TGN0TW5R?oc=5) |
 | Charlie Kirk murder suspect can wear street clothes in court but must be physically restrained, judge rules - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPWVNOUlpabm9ELWNFVmhPLWU4TVRTVzZ6NHV5eWZGaFc2Y1RUVFJrNGp6b09RSExRS0c1cWdWaXZybEV4VE5abHhUOTN6QlQtdXpjb01JR291TlhPZ1QxYU9XMmRYeU1KX3NSVFI2c25SM1pUbjhKOHYwbFNoWkd0UGJpV0hfd9IBiwFBVV95cUxOSWR2YXNJYWFiNndlMzJGY2tEOWxjbGVCbXN3WWVYZjVYZmp3UURzb0pQMFAxRHpBX2lUUkIwd0xxSll1ZnBySllQMF85bFBPNE9TWjE2QXh2NFNmT3lrNWhhWlctMmNWNVVIZ0dmR0RPYWdhT2JhLWhKV1h2QVFhVkliRWk1c0R3ME5B?oc=5) |
 | Republicans not on the same page about future health care plans - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOTmxHclg1ai1aRWplR3YtSGlMWFVwNHR1dlVZbkgzbzJyNmE1OVNUTmpJNFpNeDU5V1JlUEdUTnVLOUxhM0ozRHN4bnVfR0JCbkUtOFRsM3lfbXJkamlZVUFrSkdYVElCczl3WThiVDhJQUIxdjZPM1RwakhfQ3JCcG5NbG90VUw1QlkxVndpeEt2ZXB2V0tsM3pvZ1hEd0ZSc2JzSzFjd9IBrAFBVV95cUxQbnJpbld6UVVGSy1rWnFjVFJHRm5GUzFBOVROakR2aGlLcTB2Uk5BejBNR1VudUJlZEk3d3pyRVdoa3I4ZzRycGVTMGxpcVBSdFlmdTdyYVg3TFczcHJwaXBRSUxEeUUxQW1RU3d4bXNWNTZwZmh2eW1CWUdlZi15TGxWLW93d2k2RldPRGQzSzRwN3R6Zmg3cGI4SEkzYkFWSzZDZERzZE5CSG84?oc=5) |
-| Man accused of stabbing two teens with metal fork during flight - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPVFM5TWxIZ3Q2S0RpSDM4TXI4SUFPUExmRTl5Sk43Y3U2SE9SbDhZUVFkOEZ1emdKdzJNV3UtV0t1WnA0THd2ei1OVTdPUklMQU1SWm00X0xVal9tZEs2RmZmM0NBY0hCS0FMRUxYTUlFRVRNa1BtcmYyTjN6NFFjUGFMelRJLS0yaVlyWlhZc2RUUQ?oc=5) |
+| Early Addition: Kathy Hochul heckled at Zohran Mamdani rally - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQb2F3YXpFN3NUS09kal9OaU01UkZjNk5LdXJVRG82TVVGVGN4LUMtczQxbGpGam90YVMzbzMyQzFLS08xRmpab0ZVOUQxTTNsbmpZZkM4YXU2U0o5UDh1amxQWGlvNmNaelZ0OE02elZISmlQVHAyUzJMUS1vVWd1NjNhRGVfUzlkQkhYaG1BSQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
