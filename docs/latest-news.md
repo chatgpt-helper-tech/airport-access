@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 19:56:40（北京时间）**
+🕒 更新时间：**2025年10月28日 20:00:11（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Hurricane Melissa bears down on Jamaica as its strongest storm in recorded history - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQMWFacWZWdFhsOV9PZU8yYlpqUjF3M2Zna0pMbExlYzJvRkdUUVNhTy1JamtyU0YxdEZIRy0wX1N3MGtrMFpIR2RCUjh6akgtOVpjdVBsckdmTHVITmc1U2Vidlo0bnBxOG5tM0ppWElNcFJnb1Ntei15UTNBejQwYlJUbTNqVTVFOFVvbC1QM2N6SUM0NEFSTEM0UmFsb1JfWWlTOEtVdjlncW8?oc=5) |
-| Trump praises Japan's new prime minister during visit - NPR | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE5rY2paTEFUYTV6dkhpZkZYQUpxQVJkcU8zSWQtUHFVMWtla0JyUkpMOFA3bzlFQ2tQajB1al9qU0tUZzNRZy1aZUpvWG5yMEhTd2JXcUdzR1kwdHFkNFBkNGFYUFduN1VUcnFV?oc=5) |
+| Trump ends Japan leg of Asia tour after meeting Sanae Takaichi - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBEUDNYZVhfaXNqZnAzcmFNV2k3QlVBbGppYUY1OU9Pa1VheTVMbW9pUFFpOHk2ZC1sUEdWQWZNblhBYzREazlCQmo1RFR6anBYMlB4VEZrWDJ6UdIBX0FVX3lxTE9XY0JKSmlndHp6MTA2X0dTUnVXeVRLT2tNQmZOR0hDLUVMSy1kVUMxaVlvcndPRE9rTkRpRGE3VFBQNTUtUExkdlYxS2N6S3EyRnlHLTdKMC0yaDlJV3BZ?oc=5) |
 | With food stamps set to dry up Nov. 1, SNAP recipients say they fear what's next - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBhcmk3NWxvVXhKWG1vMnVaYW50eHlRODJFcDJmN2dpVTI4YUNTZ05PX3B2ckdBNUpRY2Y3UWdYakJUTXBPbWd2TUM3a1h0dm5UZ2V5bTNSN2Z0R1pBY0ZIeWRzdF9yRHhCN250UGN6R0FYMGtRX2ZYeDR4aDJwZ9IBgwFBVV95cUxOQVhOTmNlbXBtSHBUSUtlMFoxeFJiUmpYNURJR2gwMFZYbEx0bDFUUVFxWEZFclZDXy1JZW9SNUs2aTVlQnVNeVRCb3NRQUt1SjlOOEE5dm5UWGFLNTFWc3VoZ3ZVY053YXduY2VYamQ1S2lza0ZGVnZ4RVY0bnhFN2NhZw?oc=5) |
 | GOP-led Oversight Committee says Biden pardons signed by autopen are ‘void’ in final report - CNN | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOS09JT0w5ZVVhSTlZZldvdGxRTXJnRm1FRHNQQ1NabWxZWUd2Ym9DTHcwYWJybGFHbUgxNGNHcWhjQjB5T2RWVlFKMDlSSkhJZjM4bllaN2wzcU5VcDhVT3UtZnowLU9DS3BTQ2VzMXE0RTAyZVJKWW5OZnZkWWlFSEFpNm9oSy1xSUtMTDVYdEh4TnZNVGRoOG82WnM?oc=5) |
 | China controls the rare earths the world buys - can Trump's new deals change that? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9XOS00OVZjTG1OZkpKZXVhbUtMVzRHNkk2SU5pOV9tbXRtckNIZUZnellNTUxXQ0lTR2JzMG9US0sxUTBwWGljeXJZM21BRlhRYXJIR3F5RG1Qd9IBX0FVX3lxTE9WMzhpX1d1QmpqbHNrS1M2SC00dXFHbkREd3d2Snhack9RbE5SUllPdDdzWWZFREpkZ0o2VGtVM1h0SmJRczdSU3Q5d0ZhajZZQktHd2s5MEVUbmtjc2I4?oc=5) |
