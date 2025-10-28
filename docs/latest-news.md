@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 15:32:03（北京时间）**
+🕒 更新时间：**2025年10月28日 15:40:14（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Hurricane Melissa is now the strongest storm on the planet this year - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOQTNGdW8yclFZODRCQ0NCY2wyWTAwM1FjYzF5TVkxZzRZVWJhUnpMWjF1cVF5TGZZb2wtYWUzTlNBX21yMmJ3bGdKbHBXUndVQXJIMlY1MTRTMUVkOXlIbWFuUGZ5c2puT3NjMlVjMFVSVmROT195eE1BVjhJbkVYbTBqTDc1Ql9wRXpBSENkc2M?oc=5) |
-| Trump boards US carrier to address troops in Japan with PM Takaichi by his side - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTFBEOHUweXRGTzh1eHQzQXp0U3VzcmVHNzRqRm9oWEFWN1ROaHNFdzhBeFNkckQ2T3JPVmxJYmlXVkpkQzh0R005djFiaG5UU2EzSm5aYg?oc=5) |
+| October 27, 2025: News on Hurricane Melissa - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOQTNGdW8yclFZODRCQ0NCY2wyWTAwM1FjYzF5TVkxZzRZVWJhUnpMWjF1cVF5TGZZb2wtYWUzTlNBX21yMmJ3bGdKbHBXUndVQXJIMlY1MTRTMUVkOXlIbWFuUGZ5c2puT3NjMlVjMFVSVmROT195eE1BVjhJbkVYbTBqTDc1Ql9wRXpBSENkc2M?oc=5) |
+| Trump praises Japan's 'great' female leader in talks on trade, critical minerals - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPR3ZxRVdjOGhoWFFoWnpqb2ZmemJhQW1HbGtnLURINzl1Z1Z1U3NSYmFuZENXeUhFYW1DQ3EtOF9rZ2dPckFIMV9pRFNaWWpYcC1Oa3NhMHJZOEFTR2owcXlUUWVsQjM0UG9fcW1DbU83N0NCX3JKQ09wNXFpWDVVTS1mc3dONHAtM3U5YTlKd1lPQzJ6c1I1T0pIeXlMU0toSXNpejZtTFo?oc=5) |
 | Trump administration to reassign ICE officials in bid to intensify deportation campaign - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOUTBOSkMxV251d0Q1M2lZeG42bUJwVkhlU09YOE5YLWxnek5QamFIRlowRXdUQkxXZ1hUTUU0OGx0TlRqRjdVMkVwMldWRXZVR0xOUEozc3lDLS1QOWRVMTl5bFRUbTlvRHNCQkNWTVB1M1VqaG00STQtMmVLMDBrYU1va0h3Y1FwWmQ1MEFhUUhvMW5yM2xmdTNIZXloLVI0enNIV3VGUVBvUmlp0gGyAUFVX3lxTE5HV1NUMFdrMVhScjBDaXBreElLblNpZkYzSlBsQVAxdFdOaDZ4dGNVTzlXNWNHbi1uTmhoRkh0eUVjV0s0ekxZdkNFVlNUcWUxTDNiVzBMNVhTY1FqQkhSdVYxak9uVDYwX3BCZ245Z0duaVdEZWs2SEZmOGlMdXRocVU0NFlSWVpJdVA4cTh5V294QlpsMVRDWW8zbFNhbFd4ZWNPUlliQkQwQjdxT2NQS3c?oc=5) |
 | All the times Trump has promoted 2028 run with merch and rhetoric - Axios | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE0tRnBaTmQ2YlpYdjNfS3lPcldGamYtS0lKV1E5cmJIUEh4TFM2MmFwQ1VGN19NQlVTRlprSmlRU1l1alJHZnJMRWpRWl81SzNPS082ZVJRZHNERV92ZW5GRFlXWGhaZHU5Vmd5TTVEOA?oc=5) |
 | Gavin Newsom explains more of his thinking on a 2028 run - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE51N0MxbV9DVzQ5Ti1FTEp1TVUxUkxuVXFkNnNtNGN0amtwOUg1aDlEOHB0Q3gxOS1kQ3BJa3Z3RUFqbElkYmpmN1BoZ25YV3hHTWlFYk1mQjh4VzI0UzlGajJaajQxZ2NqSHRfLU5jQWtURHlXem1n?oc=5) |
