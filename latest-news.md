@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 21:49:19（北京时间）**
+🕒 更新时间：**2025年10月28日 21:57:00（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Hurricane Melissa strengthens again as its eye nears landfall in Jamaica - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQNFNBSzZzSk0zOF9QMjJqLV80akN4MFVINWt2UkdPa2RERGM1dFJPNUkyamhGY213c3E5WDd6MzVNRm5pTllkNjJEbm1DX1oxN1JmbVFad1YxdnpyRHU4d0hTb3RBY0NOTDdPUG55enJHVjcxWmRBUmZPNDI2eUs1TWlGc2dXNjJkRmdIU2hwVlhzUQ?oc=5) |
 | US, Japan leaders ink rare earths, nuclear power tie-ups ahead of Trump-Xi meet this week - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPeEVLd3d4X1VaaVFBWllaVmViY19OOW9wZlZDeUxuWG5RN2lqVDJES1NoS3JmUUpvQWdSWEJPamkwNHY3MVBzVFFmdW16bFM2a1NILWNZSHhmWVBpcU9mQ0dURjBrQU1kYlJETXZCanh4QThqQ0NZLXpCS3UzeTZRSW1WNmtKYk5qNkFXQVRITVp4U0dsZjAyVTA4dUljbUVyY3lPUmN1YmRJei1nSFFaZQ?oc=5) |
-| With food stamps set to dry up Nov. 1, SNAP recipients say they fear what's next - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFBhcmk3NWxvVXhKWG1vMnVaYW50eHlRODJFcDJmN2dpVTI4YUNTZ05PX3B2ckdBNUpRY2Y3UWdYakJUTXBPbWd2TUM3a1h0dm5UZ2V5bTNSN2Z0R1pBY0ZIeWRzdF9yRHhCN250UGN6R0FYMGtRX2ZYeDR4aDJwZ9IBgwFBVV95cUxOQVhOTmNlbXBtSHBUSUtlMFoxeFJiUmpYNURJR2gwMFZYbEx0bDFUUVFxWEZFclZDXy1JZW9SNUs2aTVlQnVNeVRCb3NRQUt1SjlOOEE5dm5UWGFLNTFWc3VoZ3ZVY053YXduY2VYamQ1S2lza0ZGVnZ4RVY0bnhFN2NhZw?oc=5) |
+| Some Americans prepare for halt in SNAP benefits: 'I’m going to have hungry kids' - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPOF9JSXR0Ylp2ODZuVVJpcVVjSWdvbUpfWUxQdmM3cWhEUmFFNUpUT2xCM0ZvOG1YaUJ5ci1KY1o4RWVIWVJtaWFUNF9Hd2lfYXVtVGIyX1RodmNmSjY2eG01SWtsdkVkM3puUXpHdTlnUVMzQUFNbHVyVm1oTjA4TnNnUzdlSVJ3VV9UTUItR2pHeG9vOEZTMExkT3RTdko5YmfSAacBQVVfeXFMTXFLWFY5ZWk2TUNjSFl4Q1VaMk1GSktOY0ZWMTFVZXM5Rk1qV3NYX1FGY2RzbHp4WWNGTHFxRktOR1gzMzdSSXlENi1RNU5kRkQtdXl6RldGd3U5UjlHTkFGRGVXWDBmVEg4ZTlsVEo1eEJrZF9IUHdOdTJGM3BMMVNpakVIRTdnMkRzR3E5c0hTVGVqdzdlN1JWOWhQQ29ESjl2b1hrcDA?oc=5) |
 | House report reveals post-debate turmoil on Biden's team - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOZlpqQjFyMjRxbWNweG83YnMxRHdBTUIzVFJmOTZjeDBIMGp2SW5DalNlNS1aMjE3N1NNM3BJanRjLUdYbURGc01vNVpieFpyRmZ5dWRxdkVSdTVZaGRzdnM1V1ZhSVZudVdpSEphNXQ4RFQ3QVpTUFJ0MGdzWkxGdW5XaHhhMXc?oc=5) |
 | ‘Trump 2028’: Could the US president really go for a third term? - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPRXRyR3dZeDFuMHNRdFUxaUFhcFRIRVJpemlzekRrbUJOaHFHRXdDa3pnbURGeE0wdkFoNnp4eTRkdHI3RWNfQTlHaVAzdDVFQXVsT3NFTktZajVXclVTaDdQa1Nra3FTVWtiUDFCQVRadEt6al9Fb3VhN3VyOENWanZjUVJjbnlWc1pPaVhLQ2dqdFk5RWdvd2hCNTlleXkxbWNoadIBqgFBVV95cUxQWWszY3ZMSXd0S2w5SHNuTllqTkJRWWFuOV81OVJLWEJveTFGb2tOU0t5ZGYxYkdhXzhhZ0JrTC1rbElESUlRSjlwMENHRDNZcFBYNERqdlc2ZXJxMnphZUNFODhZajZrWjJRM1JvcFJNMkUtaU9qNm4xRktCUzJFOHhWY2dFSk9ZRjJrZHZLT0pSZi01OHRnNTdhQnFXdHZzRmQ2SEk1VmFhZw?oc=5) |
 | China controls the rare earths the world buys - can Trump's new deals change that? - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9XOS00OVZjTG1OZkpKZXVhbUtMVzRHNkk2SU5pOV9tbXRtckNIZUZnellNTUxXQ0lTR2JzMG9US0sxUTBwWGljeXJZM21BRlhRYXJIR3F5RG1Qd9IBX0FVX3lxTE9WMzhpX1d1QmpqbHNrS1M2SC00dXFHbkREd3d2Snhack9RbE5SUllPdDdzWWZFREpkZ0o2VGtVM1h0SmJRczdSU3Q5d0ZhajZZQktHd2s5MEVUbmtjc2I4?oc=5) |
