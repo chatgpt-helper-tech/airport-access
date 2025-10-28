@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 09:09:00（北京时间）**
+🕒 更新时间：**2025年10月28日 09:17:56（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trump rebukes Putin for testing new missiles, tells him to end the war - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPVEZHOHdYNW0teW9hXzRJeHJYWkdlTUxPNzZtVFRiRjlIZC0xTzA2OV9oV2M3MGRXcHB6QVJzbjlBYU1rRmVkRlFSeUZlT2xWYjYzWEVJQVEtaENsMHctMk1ZSHp4QWdydm5SZlozS01rWUQ2SjU1enZxNFQ3azA5WnJpWXNuQVZENk5r?oc=5) |
 | Trump plans to install Border Patrol officials to lead a more aggressive migrant crackdown - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxPUVdWeWF5ejFXc2N2UjRvWDQ5aHFuMlllTGR5RlBIblJfNDRVcXZDdWw3czY0RlFSN0xmdUVSOXlWVFhIYkRkVzFqcVlNR1M3OEw3bldVZnFlNlY1M29UYXZvRVhoYW1ONlNwR3dkT18zcll2cHlCV0Y3UlRkWlNEbFJVMXVCZ1lmbXNoT2NhQVlLd21qb3JPQzJIbTZqZktUSlV3LWlDYzVBZmVTTXZOUDlRUjh1cnFnTnduWXFhQVF3M0pX0gFWQVVfeXFMTVgxNnhNdERXb3RRbjlHYUFIbld0R3AyN1FiMjBsT3JEOUM5WmEyMk1Ia0drSDFCemVTSU1WQzFVUXZWaXdubU90cGtHcGc2enJxdkpUNlE?oc=5) |
 | As federal employees face worsening financial challenges, AFGE calls for a ‘clean’ CR - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxQaFlUR0NacjNPcnY0bE4wOEhvNWRXXy11QzFzVGpfSFUteHRudTRTN255LTEtYjdlVFlsX2ZoTndSRTVnWFc5VTJHalg3Mmx1aFFCbzdSdDluakd0M3lhcDNYXzdPdWNwbUVaYXRIOU5JdURfWWJkY1M4bk9XRGhsVkNnNG1TSlRYeWdwSEtJc1V6dUpNcENuV0E4eXAzeVU1d1I1ZmdKYi05bU9CVVM3dDEwNl9waDZHWVlHYzZLWWJaanZwbU5PdGQ5VTh3S0xHTEY4?oc=5) |
-| Democrats get aggressive on remapping congressional lines - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQUlJaSWpLSDN6bGlBdHVlNXhHQXE0M0ppWG9UQ281ZEgwRGxxYkZXNGlKRHhlQVd1YVdnMnk1YmM3UVNhODhqY0NuYmFPeFNFRWxiSHNSVjRUMW5ocnFtbGp2RFIzSk1oN3ViUjFJUzhpbEVSZ1dJQnZwcDRwQXFtdlNkbHAxSnVjUzc3LURJbTVwX3B6c2V3UUt1Qko0UEMyNUFWdDI4V2pHYkE?oc=5) |
 | Indiana’s governor calls a special session to redraw the state’s congressional boundaries - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxORmR1TTcyZnhjS0dvdkl0LWpQUDB5cEJpb0xYYmxGcmltNHNXb1RhZWl6dE4wU3FPeHBpN2JfZHBWNkU0WVRLbmNkclNBdGhCdGdSa21tYmNzcDVpa0lVQ2JpSlVmVFdqSklQanA5Y1pxNWU3WU5maGNwYi1PZ2ctc29NcFo4MlBHNW5ReXl3c2Y5ZVNKWkVWQm9yQ21TRXVwelBhRDJR?oc=5) |
 | Former cop charged with murdering Sonya Massey testifies his actions ‘matched the threat level’ - WBEZ Chicago | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxQYkVmLXdMcVZ3am96Q3FzbW92QndkdHBLTjZlOURucWtWZHNIVVBUT0VtYUZOWnFRamVtdENFd2g5NVdjakFZRk80Q3RJOURVTEs2LWhtQWdpZFlXR0lMcGtDVXdBM3BlRjZSRHNRczFUb2MzTVJrMmtDdHgxWjdHaEl3R1Q4dEMteGNldW1xdkY1blF2cjdqOEZDSWtuYVFRZGhpUEstZjVsbHhua3dDaUVJZWVxVTI1QkdYdldGOVE4bUthVllTbw?oc=5) |
+| Charlie Kirk murder suspect can wear civilian clothes in court, judge says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9Iazk4V1lkNkpOMEkzZlNnaDgwZHNPMjRYZVQ0bG80YTFZbzlKWUY4TXRuTUZVc1JSWG0xc1YtYXg3N3puSDlPbk8weFJQcllBQk9jNE15czF5d9IBX0FVX3lxTE5YZkFCSUNIeFlwcERxYTZJOE5yem4tLW5yWDJkN0lZOW9CQjdfZlVEVTA1THJ5d1Y5TVd1Y1NFU2hlNVl2N2xZbTdhTlVBeHU3SnJoVXotaG5ZMkZsWlA0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
