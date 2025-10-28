@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 21:16:14（北京时间）**
+🕒 更新时间：**2025年10月28日 21:24:20（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | Why one small town with very little immigration turned to Reform UK | [阅读全文](https://www.bbc.com/news/articles/cvgkpjdzv74o?at_medium=RSS&at_campaign=rss) |
 | Councils paying school transport costs for 470,000 pupils in England | [阅读全文](https://www.bbc.com/news/articles/c14pg0xj7mzo?at_medium=RSS&at_campaign=rss) |
 | Amazon confirms 14,000 corporate job losses as it focuses on AI | [阅读全文](https://www.bbc.com/news/articles/c1m3zm9jnl1o?at_medium=RSS&at_campaign=rss) |
-| Prince Andrew hosted Epstein, Maxwell and Weinstein at Royal Lodge | [阅读全文](https://www.bbc.com/news/articles/c4g7d39n6vgo?at_medium=RSS&at_campaign=rss) |
+| Israel says coffin from Hamas did not contain another hostage's body | [阅读全文](https://www.bbc.com/news/articles/cly9z0mvzyko?at_medium=RSS&at_campaign=rss) |
 | ChatGPT shares data on how many users exhibit psychosis or suicidal thoughts | [阅读全文](https://www.bbc.com/news/articles/c5yd90g0q43o?at_medium=RSS&at_campaign=rss) |
 | Prunella Scales: From Fawlty Towers to Great Canal Journeys | [阅读全文](https://www.bbc.com/news/articles/cyjjkdrje13o?at_medium=RSS&at_campaign=rss) |
 | These robots can clean, exercise - and care for you in old age. Would you trust them to? | [阅读全文](https://www.bbc.com/news/articles/c9wdzyyglq5o?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | California Republicans retreat as anti-Prop 50 campaign collapses - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQNFl4Q0pYNnlLdGRyRFZnOVpsXzhzRTMyU2pNNDFtTlVzcTk5YjNlVjNrM04tQi1Rc3hLT1k0R2pPUTUzSHYxekxteGxmVUk3Z1VDbV9oN0psMmVqTmNyWjBNbXhSOGdaSFBDSUxvMFVHcVZjUkgyMVJKbkU4RW1LV2lFa2Fxem9yX05Oa1h2d21tUkg2TGN0TW5R?oc=5) |
 | ICE in Chicago news: Nearly 3K arrested in Chicago immigration crackdown, Border Patrol Chief Gregory Bovino says - ABC7 Chicago | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxORlcxTjMxelpPY29qYklfemJmOWxmTDkycU5RbmwyZzVSYXZ1R29pam1nTHdia1JYamxQSl91UGVLOGQtdTc2S0lFMER4LVkyVVFNUHVKMm9QX2tVRzl1a2NzaGJSbmhMaENPRndkZkRXZS03MVBVWmxmZjRCNjFjbVRsZGkzVWZ5R05VSDY5Yk5DUklVcE1WdlFmNGt2blA2bnl4YmJmdmVqVlZoS2lEUDNLNzJ1Zkp4eFJ5OERvQ25jd9IBxwFBVV95cUxOQWp1cTdjWS0tWWw5emFwTnFxa0RmQUlXVmItX1RDaWFMenpkamlibGV1aHRlaUlMZ3gwb0dkR25mUXllRGVKR0sxdjhhU2tyXzhoSE1uZWlXcHV5R0JmNkl1M0haR2xES3ZTQXpJRFk1N0prbUItbUhlcEx6b3RvNXhwU3pfLWRyZkdNZHR0MFpzV0pWSC1zRXpvVHZfQ01TRFozRXNCSW9Kb3p6blZrRlRXcWlrVk45dU9oSS1mdHFOaG56T0RV?oc=5) |
 | Government shutdown live updates as Vance set to meet with Senate Republicans - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQZG9PYmNBWC0yRHdLRWpackhYb3hMWVUxQ3FPdm9fSmxBNWhrV29aWURXdXk1V0kwMWd2S29jc2EteEZUN1ZUeTFjdEY0cmFHNWgwN3hRYnI1dFY1MHZxTWptdzlHSkE3ZUV5UUVqbGQ1R1FSR2MzTmxOS2FtRVU0eHlYYlhBbWZGZ21wQWdpZFM0cWvSAZgBQVVfeXFMTUhwcURJQ3U5WmJRN19xYjJGT2Fib3ZPOXJxZmRKN3o5T0dIMzhZaFhwZEQtZVNWelQ5NUU5NG41YzFQWk50TnIwVERFeThaTlFtN0NjdzYwdk9raGtYSC1zblE0SzU2SDNHbjVMT1duLW9KbEItdU9BLWNtVGxiazB4U2d1ZUxKRFdfY1VFOVFWdVJGOG1TcjE?oc=5) |
-| Suspect in Charlie Kirk killing can wear street clothes in court amid ‘extraordinary’ attention - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNQXdSWE5UclVEZUZCSVZFVXBxQVZKZjU0czNjTGhjOEVIUVc3VE9pV2RpVU9Ua05YS1lkZzhVMFVzbURaTWtESFdrUXMyOTJjYW9FZ2NhQUxJbkd6QmRKeXVpbzl2QVhndlliNExhalByVDREMjR4dndTVXNPa29vMkhXX2VUTEptdW8xZ3M5Q1gwWFBfMWZXeEVINFNLbDVrbXlXWHE1dTZ3NWZUTWRaN0d5QnFfbFczNTAzelk2c3dPQk9sRE5wOA?oc=5) |
+| Suspect in Charlie Kirk killing can wear street clothes in court amid ‘extraordinary’ attention - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNNDgtZ1JQQlhBOWNfOFJlTEVndDd4Ym5kb2w5c3duYkdSdDdWd3RiSGZYTWVjT25LVEE1dVhoeWRKazdpNHl2U2ozNnlHazRrTmtVb3ZOM3NqNEpZSllaUDZmNFRRVjRMR0hWMDQ5cFFFZHk0d2x2SDR5VFNPYXczRXpuRjB2cE9pZHY1SHp4VEpIbW4xalE0bjE3LWlPWUZFSGdmRG9UUkpYM0JSTzRz?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。

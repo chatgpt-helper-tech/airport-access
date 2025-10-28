@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 21:16:14（北京时间）**
+🕒 更新时间：**2025年10月28日 21:24:21（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | Why one small town with very little immigration turned to Reform UK | [阅读全文](https://www.bbc.com/news/articles/cvgkpjdzv74o?at_medium=RSS&at_campaign=rss) |
 | Councils paying school transport costs for 470,000 pupils in England | [阅读全文](https://www.bbc.com/news/articles/c14pg0xj7mzo?at_medium=RSS&at_campaign=rss) |
 | Amazon confirms 14,000 corporate job losses as it focuses on AI | [阅读全文](https://www.bbc.com/news/articles/c1m3zm9jnl1o?at_medium=RSS&at_campaign=rss) |
-| Prince Andrew hosted Epstein, Maxwell and Weinstein at Royal Lodge | [阅读全文](https://www.bbc.com/news/articles/c4g7d39n6vgo?at_medium=RSS&at_campaign=rss) |
+| Israel says coffin from Hamas did not contain another hostage's body | [阅读全文](https://www.bbc.com/news/articles/cly9z0mvzyko?at_medium=RSS&at_campaign=rss) |
 | ChatGPT shares data on how many users exhibit psychosis or suicidal thoughts | [阅读全文](https://www.bbc.com/news/articles/c5yd90g0q43o?at_medium=RSS&at_campaign=rss) |
 | Prunella Scales: From Fawlty Towers to Great Canal Journeys | [阅读全文](https://www.bbc.com/news/articles/cyjjkdrje13o?at_medium=RSS&at_campaign=rss) |
 | These robots can clean, exercise - and care for you in old age. Would you trust them to? | [阅读全文](https://www.bbc.com/news/articles/c9wdzyyglq5o?at_medium=RSS&at_campaign=rss) |
