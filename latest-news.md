@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 23:57:03（北京时间）**
+🕒 更新时间：**2025年10月29日 00:01:14（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | Fawlty Towers star Prunella Scales dies aged 93 | [阅读全文](https://www.bbc.com/news/articles/cjd0yn5gyndo?at_medium=RSS&at_campaign=rss) |
 | Councils paying school transport costs for 470,000 pupils in England | [阅读全文](https://www.bbc.com/news/articles/c14pg0xj7mzo?at_medium=RSS&at_campaign=rss) |
 | Two military sites earmarked as asylum seeker accommodation | [阅读全文](https://www.bbc.com/news/articles/cjr0lx7n0y3o?at_medium=RSS&at_campaign=rss) |
-| Alleged stalker tells of tears outside McCann home | [阅读全文](https://www.bbc.com/news/articles/cdjr2d8jdrlo?at_medium=RSS&at_campaign=rss) |
+| Kate McCann cried during encounter outside family home, alleged stalker tells trial | [阅读全文](https://www.bbc.com/news/articles/cdjr2d8jdrlo?at_medium=RSS&at_campaign=rss) |
 | Why one small town with very little immigration turned to Reform UK | [阅读全文](https://www.bbc.com/news/articles/cvgkpjdzv74o?at_medium=RSS&at_campaign=rss) |
 | Amazon confirms 14,000 corporate job losses as it focuses on AI | [阅读全文](https://www.bbc.com/news/articles/c1m3zm9jnl1o?at_medium=RSS&at_campaign=rss) |
 | Man dies in triple stabbing as suspect arrested | [阅读全文](https://www.bbc.com/news/articles/c5ypkd57n97o?at_medium=RSS&at_campaign=rss) |
@@ -30,9 +30,9 @@
 | Oversight Committee Releases Report on the Biden Autopen Presidency - House.gov | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPNHNwUXNiRmdVNXpjeWRqMXhkSzRTUldNT09oaEw4dUF0QzREaUpMal9DQUpmSFkzUzdKeGhMMGpsUElHdXRBODRJVC1wVFVEZjloRnhRNXIzaDBoYlNqNDRxUlBuNkdWWmUtYWZZSDhBMWpMdzdjMlRFWVV0aVNEalpjZHJYTlJiLXF4dThDQkdOZUp1VE1acnphSTZVQ0M0MUNTcWttMA?oc=5) |
 | Trump appeals felony conviction citing Supreme Court immunity - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE9lcGRleGdJbmlSVXdkdHIyOV81UE54VkVhUEtud29UWURidlJCYU9GWkEzUHR5SmpQMnJ4dFhQOFNDQ2tyWUhOUlo3Zmc5QnoycktEM0VQYThTbVh6SV9pc3YycXllcUlJTGxsaUh1SDFwZ2VfeVE?oc=5) |
 | Border Patrol's Gregory Bovino expected in federal court today in tear gas case - WBEZ Chicago | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQdlNncjFQMWZlNWtaWXNZTjdGVV9HZjJhT1NfODZUZkRxQmpGZ1VBMFZWd0xONkJ6Y1U5WlpCRzNKSDBpaks3TUZXV1RrZmRRMEl4NlBlN3NzdEFJcFItMXhuUDZEVGV0d3dRZHdRYWlYcmZBeDNWaUxpSkVkakI3VXdTVUlnbl8tZDFrNlJWTQ?oc=5) |
-| California Republicans retreat as anti-Prop 50 campaign collapses - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQNFl4Q0pYNnlLdGRyRFZnOVpsXzhzRTMyU2pNNDFtTlVzcTk5YjNlVjNrM04tQi1Rc3hLT1k0R2pPUTUzSHYxekxteGxmVUk3Z1VDbV9oN0psMmVqTmNyWjBNbXhSOGdaSFBDSUxvMFVHcVZjUkgyMVJKbkU4RW1LV2lFa2Fxem9yX05Oa1h2d21tUkg2TGN0TW5R?oc=5) |
+| GOP voters in Northern California brace for loss of representation in fight for US House - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxObDRNN1UxNmNjcnltcFI1ZEgwdkxLdjJ5UVdQeW54TmdmN0JZc1RnbmFBUTVsOVJCMWRnVE00LVg2LUI1czVoR3k4UG8za19aakZGWFJtZjgxa2FoTjdBZWlweUpBUTA1QTFVaWhoSEg3WW90YjFnY2R1Q3ZqeUZFcnUweXdYcXY3SlpkcDlHdTRKSTR3NnVVRVhheEFaZklILXQ4T0hsbHM2N09Qdm84?oc=5) |
 | FAA warns of possible ground stop at Houston airports as shutdown drags on - KHOU | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxNSGpOSnRycFVYc0RENGRtSVk2NlY2SnJMRnFnaWVScnIzOFAtWVdMMHRwbGc5WXl4RXhPVTdVWm43cVItOEE2N2ZhMWhlQ0ZUbnU0aFROQUJIWFE3Ty1iazVONk1iYXFhQ1B0Tk52V1hPdDB6TDQ3NFdOZGZtcl9zLS1FdE9rQk9PdHJaSXIzRWFrcDdmczNReUs3WFVQMC1LdGVQdzZfQ1o0YzJLVW5Dak5YWHRMYWdnVzB0U2ozdGdIY3RzdHBhWGtIUQ?oc=5) |
-| ‘Trump 2028’: Could the US president really go for a third term? - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPRXRyR3dZeDFuMHNRdFUxaUFhcFRIRVJpemlzekRrbUJOaHFHRXdDa3pnbURGeE0wdkFoNnp4eTRkdHI3RWNfQTlHaVAzdDVFQXVsT3NFTktZajVXclVTaDdQa1Nra3FTVWtiUDFCQVRadEt6al9Fb3VhN3VyOENWanZjUVJjbnlWc1pPaVhLQ2dqdFk5RWdvd2hCNTlleXkxbWNoadIBqgFBVV95cUxQWWszY3ZMSXd0S2w5SHNuTllqTkJRWWFuOV81OVJLWEJveTFGb2tOU0t5ZGYxYkdhXzhhZ0JrTC1rbElESUlRSjlwMENHRDNZcFBYNERqdlc2ZXJxMnphZUNFODhZajZrWjJRM1JvcFJNMkUtaU9qNm4xRktCUzJFOHhWY2dFSk9ZRjJrZHZLT0pSZi01OHRnNTdhQnFXdHZzRmQ2SEk1VmFhZw?oc=5) |
+| No ‘path’ for a third Trump term , Mike Johnson says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOMGYxcF9mQjh1MzBwZFdYTXRoWUNpdHZyTF9sUE03TElHc21GXzlYdWx4TWMtR0VJQ2NlbVM4cWtXMXhtRmh0dEJDNERvR3BFSWQwYTIzNkZaUDJscmh6bDZKTVdXOFRieV91RWJGSTFHX3lHQlhPOFNZeTN4VzlILUc5dDR6RkEzQzVxOE4wN2hnS0huRk9MeF9DU1RVQ2MwZk5mNWJDTQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
