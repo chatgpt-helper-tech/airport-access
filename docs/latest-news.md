@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月29日 01:01:18（北京时间）**
+🕒 更新时间：**2025年10月29日 01:09:05（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | Councils paying school transport costs for 470,000 pupils in England | [阅读全文](https://www.bbc.com/news/articles/c14pg0xj7mzo?at_medium=RSS&at_campaign=rss) |
 | What are the government's options on asylum seeker accommodation? | [阅读全文](https://www.bbc.com/news/articles/c9d60ejn41wo?at_medium=RSS&at_campaign=rss) |
 | Kate McCann cried during encounter outside family home, alleged stalker tells trial | [阅读全文](https://www.bbc.com/news/articles/cdjr2d8jdrlo?at_medium=RSS&at_campaign=rss) |
-| Fear of mass killings as thousands trapped in besieged Sudan city taken by militia group | [阅读全文](https://www.bbc.com/news/articles/clyld9w0283o?at_medium=RSS&at_campaign=rss) |
 | Man dies in triple stabbing as suspect arrested | [阅读全文](https://www.bbc.com/news/articles/c5ypkd57n97o?at_medium=RSS&at_campaign=rss) |
 | Why one small town with very little immigration turned to Reform UK | [阅读全文](https://www.bbc.com/news/articles/cvgkpjdzv74o?at_medium=RSS&at_campaign=rss) |
+| Fear of mass killings as thousands trapped in besieged Sudan city taken by militia group | [阅读全文](https://www.bbc.com/news/articles/clyld9w0283o?at_medium=RSS&at_campaign=rss) |
 | Amazon confirms 14,000 corporate job losses as it focuses on AI | [阅读全文](https://www.bbc.com/news/articles/c1m3zm9jnl1o?at_medium=RSS&at_campaign=rss) |
-| Watch Prunella Scales's memorable moments in Fawlty Towers | [阅读全文](https://www.bbc.com/news/videos/cvgwv8jjjyno?at_medium=RSS&at_campaign=rss) |
+| Headlights to be reviewed after drivers complain of being 'blinded' at night | [阅读全文](https://www.bbc.com/news/articles/cn971jlpvvro?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
