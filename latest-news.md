@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月28日 16:49:08（北京时间）**
+🕒 更新时间：**2025年10月28日 16:57:18（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | These robots can clean, exercise - and care for you in old age. Would you trust them to? | [阅读全文](https://www.bbc.com/news/articles/c9wdzyyglq5o?at_medium=RSS&at_campaign=rss) |
 | 'My wife died in childbirth but wasn't told she'd been given labour drug overdose' | [阅读全文](https://www.bbc.com/news/articles/cx24gk2x51xo?at_medium=RSS&at_campaign=rss) |
 | Productivity downgrade may add £20bn to Budget hole | [阅读全文](https://www.bbc.com/news/articles/c0rpve82jxvo?at_medium=RSS&at_campaign=rss) |
-| Chris Mason: As crises pile up, can the Home Office be fixed? | [阅读全文](https://www.bbc.com/news/articles/c0mx83n8m29o?at_medium=RSS&at_campaign=rss) |
 | Skip short strolls – a longer daily walk is better for your heart, says study | [阅读全文](https://www.bbc.com/news/articles/cn0gw6p8dllo?at_medium=RSS&at_campaign=rss) |
+| Global efforts not enough to curb temperature rise, UN says ahead of climate summit | [阅读全文](https://www.bbc.com/news/articles/czdrv8m5v4lo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
