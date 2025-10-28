@@ -451,13 +451,13 @@
 
 ---
 
-#### 2. [**青云梯**｜五年老牌 · 年付¥96/60G · 8折](https://ivt02.qytaff.cc/register?aff=zcIlh0VY)
+#### 2. [**青云梯**｜五年老牌 · 年付¥96/60G · 8折](https://realvtest.qytvipaff.cc/register?aff=zcIlh0VY)
 
 - ✅ 2020年运营至今，企业级IPLC专线
 - ✅ 全平台解锁 + 海外团队7x24维护
 - ✅ 80+节点覆盖全球，真人客服在线
 
-> 🎁 **8折码：**`10180`（¥96年付除外，至11.1）｜ [👉 完整测评](https://gptvpnhelper.com/airport-access/qingyunti/)
+> 🎁 **8折码：**`10180`（¥96年付除外，至11.11）｜ [👉 完整测评](https://gptvpnhelper.com/airport-access/qingyunti/)
 
 ---
 
@@ -610,7 +610,7 @@
 ---
 
 <a id="qingyunti"></a>
-### 2. <a href="https://ivt02.qytaff.cc/register?aff=zcIlh0VY" target="_blank" style="color:#1a73e8;text-decoration:underline;">🌤 青云梯 — 五年实力老牌，性价比 IPLC 专线，年付¥8/月</a>
+### 2. <a href="https://realvtest.qytvipaff.cc/register?aff=zcIlh0VY" target="_blank" style="color:#1a73e8;text-decoration:underline;">🌤 青云梯 — 五年实力老牌，性价比 IPLC 专线，年付¥8/月</a>
 
 **综合评分：9.4 / 10** 🔥 **性价比拉满的实力一线**  
 **关键词标签**：五年老牌 | 企业级IPLC专线 | 智能负载均衡 | 年付¥96 | 80+全球节点 | 8折优惠
@@ -671,7 +671,7 @@
 - ✅ **新手入门** - 真人客服在线指导，支持主流客户端
 
 <div align="left" style="margin: 10px 0 20px 0;">
-  <a href="https://ivt02.qytaff.cc/register?aff=zcIlh0VY" target="_blank" style="
+  <a href="https://realvtest.qytvipaff.cc/register?aff=zcIlh0VY" target="_blank" style="
     display:inline-block;
     background:linear-gradient(90deg,#00bcd4,#2196f3);
     color:#fff;
@@ -687,13 +687,13 @@
   </a>
 </div>
 
-🎁 **国庆·中秋限时活动**
+🎁 **双十一限时活动**
 
 > 📋 **优惠码：** `10180`
 > 
 > 💰 **优惠力度：** 全场 **8 折**（20% OFF）
 > 
-> ⏱ **活动时间：** 即日起 ～ 2025年11月1日 23:59
+> ⏱ **活动时间：** 即日起 ～ 2025年11月11日 23:59
 > 
 > ⚠️ **重要说明：**
 > - ❌ **青云·诀年付套餐（¥96/年）为福利款，不参与本次8折活动**（该套餐已是厂商最低价，无法再享优惠码折扣）

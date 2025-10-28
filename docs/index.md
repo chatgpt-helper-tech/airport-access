@@ -468,14 +468,14 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
 
 ---
 
-#### 2. <a href="https://ivt02.qytaff.cc/register?aff=zcIlh0VY" target="_blank">**青云梯**｜五年老牌 · 年付¥96/60G · 8折</a>
+#### 2. <a href="https://realvtest.qytvipaff.cc/register?aff=zcIlh0VY" target="_blank">**青云梯**｜五年老牌 · 年付¥96/60G · 8折</a>
 
 - ✅ 2020年运营至今，企业级IPLC专线
 - ✅ 全平台解锁 + 海外团队7x24维护
 - ✅ 80+节点覆盖全球，真人客服在线
 
 <div style="background:#fff3cd;border-left:4px solid #ffc107;padding:12px;margin:12px 0;">
-  <p>🎁 <b>8折码：</b><code style="background:#fff;padding:3px 10px;color:#d63031;font-weight:bold;">10180</code>（¥96年付除外，至11.1）｜ <a href="https://gptvpnhelper.com/airport-access/qingyunti/" target="_blank" style="color:#1976d2;">👉 完整测评</a></p>
+  <p>🎁 <b>8折码：</b><code style="background:#fff;padding:3px 10px;color:#d63031;font-weight:bold;">10180</code>（¥96年付除外，至11.11）｜ <a href="https://gptvpnhelper.com/airport-access/qingyunti/" target="_blank" style="color:#1976d2;">👉 完整测评</a></p>
 </div>
 
 ---
@@ -630,7 +630,7 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
 ---
 
 <a id="qingyunti"></a>
-### 2. <a href="https://ivt02.qytaff.cc/register?aff=zcIlh0VY" target="_blank" style="color:#1a73e8;text-decoration:underline;">🌤 青云梯 — 五年实力老牌，性价比 IPLC 专线，年付¥8/月</a>
+### 2. <a href="https://realvtest.qytvipaff.cc/register?aff=zcIlh0VY" target="_blank" style="color:#1a73e8;text-decoration:underline;">🌤 青云梯 — 五年实力老牌，性价比 IPLC 专线，年付¥8/月</a>
 
 **综合评分：9.4 / 10** 🔥 **性价比拉满的实力一线**  
 **关键词标签**：五年老牌 | 企业级IPLC专线 | 智能负载均衡 | 年付¥96 | 80+全球节点 | 8折优惠
@@ -691,7 +691,7 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
 - ✅ **新手入门** - 真人客服在线指导，支持主流客户端
 
 <div align="left" style="margin: 10px 0 20px 0;">
-  <a href="https://ivt02.qytaff.cc/register?aff=zcIlh0VY" target="_blank" style="
+  <a href="https://realvtest.qytvipaff.cc/register?aff=zcIlh0VY" target="_blank" style="
     display:inline-block;
     background:linear-gradient(90deg,#00bcd4,#2196f3);
     color:#fff;
@@ -707,12 +707,12 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
   </a>
 </div>
 
-🎁 **国庆·中秋限时活动**
+🎁 **双十一限时活动**
 
 <div style="background:#fff3cd;border-left:4px solid #ffc107;padding:15px;margin:15px 0;">
   <p><b>📋 优惠码：</b><code style="background:#fff;padding:5px 15px;font-size:19px;color:#d63031;font-weight:bold;">10180</code></p>
   <p><b>💰 优惠力度：</b>全场 <b style="color:#d63031;">8 折</b>（20% OFF）</p>
-  <p><b>⏱ 活动时间：</b>即日起 ～ 2025年11月1日 23:59</p>
+  <p><b>⏱ 活动时间：</b>即日起 ～ 2025年11月11日 23:59</p>
   <p><b>⚠️ 重要说明：</b></p>
   <ul style="margin:5px 0 0 20px;">
     <li>❌ <b style="color:#d63031;">青云·诀年付套餐（¥96/年）为福利款，不参与本次8折活动</b>（该套餐已是厂商最低价，无法再享优惠码折扣）</li>
