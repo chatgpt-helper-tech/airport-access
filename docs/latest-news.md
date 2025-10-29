@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月29日 21:01:54（北京时间）**
+🕒 更新时间：**2025年10月29日 21:08:51（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | Israeli strikes in Gaza kill 104, health ministry says, after Hamas accused of killing soldier | [阅读全文](https://www.bbc.com/news/articles/cgjdy5eevn2o?at_medium=RSS&at_campaign=rss) |
 | Police failed to tell me about my partner's violent past. He ended up choking me | [阅读全文](https://www.bbc.com/news/articles/c629gz5g0emo?at_medium=RSS&at_campaign=rss) |
 | Investigation after woman left behind by cruise ship dies on island | [阅读全文](https://www.bbc.com/news/articles/c62eww646wjo?at_medium=RSS&at_campaign=rss) |
-| David Attenborough backs bid to buy £30m estate for wildlife conservation | [阅读全文](https://www.bbc.com/news/articles/c1d0x39x270o?at_medium=RSS&at_campaign=rss) |
+| S Korea announces lowering of tariffs as part of new US trade deal | [阅读全文](https://www.bbc.com/news/articles/cly4jz9zr50o?at_medium=RSS&at_campaign=rss) |
 | Messages in a bottle from WWI soldiers found on Australian coast | [阅读全文](https://www.bbc.com/news/articles/clyg6pny0e8o?at_medium=RSS&at_campaign=rss) |
 | Former MP Mhairi Black to play detective in BBC legal drama | [阅读全文](https://www.bbc.com/news/articles/cpv103wl3d1o?at_medium=RSS&at_campaign=rss) |
 | Jamaicans wake to devastation - floods, power cuts and crippled communications | [阅读全文](https://www.bbc.com/news/articles/c5yl09v025lo?at_medium=RSS&at_campaign=rss) |
-| Submerged streets and tangled power lines - Jamaicans assess damage | [阅读全文](https://www.bbc.com/news/videos/cg43xevpvw5o?at_medium=RSS&at_campaign=rss) |
+| How do hurricanes form and are they getting stronger? | [阅读全文](https://www.bbc.com/news/articles/cz913gxlw3jo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
