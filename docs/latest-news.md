@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月29日 23:09:16（北京时间）**
+🕒 更新时间：**2025年10月29日 23:17:36（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | Investigation after woman left behind by cruise ship dies on island | [阅读全文](https://www.bbc.com/news/articles/c62eww646wjo?at_medium=RSS&at_campaign=rss) |
 | Attorney general blames outdated law for collapse of China spy case | [阅读全文](https://www.bbc.com/news/articles/cn972plvv43o?at_medium=RSS&at_campaign=rss) |
 | Character.ai to ban teens from talking to its AI chatbots | [阅读全文](https://www.bbc.com/news/articles/cq837y3v9y1o?at_medium=RSS&at_campaign=rss) |
-| Government set to miss 1.5m new homes target, housebuilders warn | [阅读全文](https://www.bbc.com/news/articles/cr5er1dpmn8o?at_medium=RSS&at_campaign=rss) |
+| Council backtracks on Zoë Bread parking fine | [阅读全文](https://www.bbc.com/news/articles/cx2pxkp80pzo?at_medium=RSS&at_campaign=rss) |
 | Jamaicans wake to devastation - floods, power cuts and crippled communications | [阅读全文](https://www.bbc.com/news/articles/c5yl09v025lo?at_medium=RSS&at_campaign=rss) |
 | How do hurricanes form and are they getting stronger? | [阅读全文](https://www.bbc.com/news/articles/cz913gxlw3jo?at_medium=RSS&at_campaign=rss) |
 
@@ -29,10 +29,10 @@
 | Trump seems to acknowledge he can't run for a third term: "It's too bad" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOSm50dS1laWpkOWl6UHZtblRYOURjUTc0emVyWll4ZkM2Tzk1aG5JQ1k2SlJPQ25GOTBSS2ZhWWlaYVNCQW9wdjFmdFRweVhiMWhQLTRIMDVFcUhRa21XcmJjMG5XNFltSm1nYVpBSk02c2xKRlh1SEZydTNtc09ESWZnWHU3cmRXbTdZcXFWdWRMT3PSAZgBQVVfeXFMUHBTWm5MdDFGeWV1WGstcWNyaGplRzJwZUREaHRuWWpJUFFFOC02VG13UVA1dWFPWWE0NFFFNHJ2NnFXNVB4Vl9wdW1ZMWxpb3E4UFdEb3d5LW1zdlJ2M1FSX2RnbHlsczZNMGxmbTJ1Z1VyT1poVy1WdmE2STdxamM2bHFXOFBxZlEwdFk3NFVRSW5JMjY5ZHI?oc=5) |
 | Trump says he's confident of a deal ahead of Xi meeting - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQc2tFcEJaN3V5NVFJNl9BNzhucWd2QUNaVUg5VEJSOXlwaEVMbkJuWmNyendqMUJPMWVqTXljNG9mdDdOT25iYWNSQmtsMjhFYzROeTZkVzk4LWYwazVkajE0TDA3enljMVJUWGR1bnpDbUxwVnZhekFLZVR4bXQ1bg?oc=5) |
 | IDF reservist killed in Tuesday attack in Rafah; Israel says ceasefire restored - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNTGR4eGVwOWQyRXhQUllwWUxPQ3d2V0FxRllmdUNtTHlyNmZkQUxLY3V1VC1JZlhVc2hacndMV1FDN1ZBS1N5Q3BsdHBXVmFqMUNFZDRDel9tVTJSVnpURlN5Y2o5ZFEzWXBpajgxNHd6MlZzVlZwM0pjS1hmaG1WQWYzWHo2N1JSbG5kZzhvSmprMDNocldGQzFrZi00QUZvelBGeF9WSUh4OWNaSlZHYU83NG7SAboBQVVfeXFMUFVwTl94Z01WZnNJYXIxcE9GN2tub1FZblFOMjVPTk4wZ1ZaU01GZ3lJNEg0V0xZSjlHR1RQSmdpNjJaV2lMMFktVjQ2QjFvM0FrczBSWF9iRV9TTnZOTFp2c1JtVzYtamM0eUhmLVhKTkxhUGVYLWdiUDRmeWlMWWJGNGZBdDJ6Y0RfUzhyNFBRLTU3Sy1ySV82Z19aM3RlU1FBUl9rV05QbE9YZ3ZLclFtTGZLQzR1MzV3?oc=5) |
+| Capitol agenda: Thune says shutdown talks are picking up - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOdV9mRHBsM25fdjQzNFNVc0o1SkNWaWozU25rTkhseXVnMnlzblRNU2FySnFrV1k0MnFreDU4RW1UQUtUNzZvalkwOEZVd1dDN21HY2hscHVqY3pYam5XX0tSQ3hhRjJuMHN0aTBDOGQyV3BpREljZVd2Y1ZzRWpTYnRkeWZGZEFtT1Nhd3lnM01rVlRfaG9GZ1dEcWs4ZmFFa1dadjZYOW5wSW1lR1Y3cQ?oc=5) |
 | Judge orders Border Patrol's Bovino to return to court daily, wear a bodycam, follow rules on tear gas - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNOHhLcVhTSW9XQV9XWWcwS3JsbjhmZnRrRHMtb1BvdmtONVpGWlh0RGZJWEtnSVY3MlpyRm5LZklkMU9tV0U1Y3VxWHhxQWIyMHpsTldSZDl4TnFqOV8zUDhvYmFJMUhncGhsZTlOcUNJNTVnTy0xZ2hRZnZLSXMwc2RqTGphZGVXYXcxeDJqUnFqc3h6WWtvaF9B?oc=5) |
 | Federal judge rules U.S. attorney in California has been 'unlawfully serving' in role - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNcW55MDFQOXZNaGNhOGFaUHc0bDRMQzhacnRqWVNJZXpRdXpHR1cybHl4OGw2cWU5T0RQcllzeDRCdl80Vzh1NDc3QUFuU2VWWlFOY1dNTFVlZmE1WXZxazcyOG5WYTNDZ21rZHBjTUFRLTh6eE0zLUI3MWMxMXN6RGFSZ3A1RTNoTWlNX2lRdk5yTllRc3VTejd5YU5ueFhFeGh5VFRVNXc4TFdOT0hlU1Q3Z01zZE1mWVk5M0VlcW52WEVSVk9OSNIBVkFVX3lxTE5pclZ0WGZQbjRrRzI4VF9WejhJLUl6RjNwek9XRWo2dnhjcUtIaHFRa3JfZVJTWk5zTzVQaEJ6c2FVeGVibnVvbnUtOGpxaDVYMXFkbmtB?oc=5) |
 | Lab monkeys on loose after Mississippi crash were disease-free, university says - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOYzVJdGVMVHRiZUFRcWZGMHlFendPazNGd1c4WVV6Q3A0RG1ocHM0Q081Tnl4Vzc3dXRyS0tFS215ZVUxZGR3R2NSdHJiZmhLOG1qbGdVRlVOaFhiQ3lWMjlFb2cwZ1dDYnVGRXVUSnJSYk5aemx1ZHNTRmdRZzNsbGtjb01RU2RTU0ZTbXZXZ0g?oc=5) |
-| Trump’s Campaign to Blow Up Boats in Drug War Gets a Caribbean Ally - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQYXFkUm9nanBNdHhzbVd2N1AyT3lVMEY0TURaU2d5bnJDa293dVlYNzVzWDl6SFNYUmNqb0p0cW5MNWpxTnBLUU8weG1YWkx4N3BXRXYyUDlRdldxM0NZZjV3QnpqTFFHVFRvUnNfMTVST1pMSVpnaWttZHd6UGN0bTBkM0FuVmJZUEhQd1Jzdmk3VnJxM3lRc3ZvX21oNmFUemF6SzZLdGdRUjlfbTF6YlhzZE5tQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
