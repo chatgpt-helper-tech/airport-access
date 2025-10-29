@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月29日 19:56:14（北京时间）**
+🕒 更新时间：**2025年10月29日 20:01:23（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | Jamaicans wake to devastation - floods, power cuts and crippled communications | [阅读全文](https://www.bbc.com/news/articles/c5yl09v025lo?at_medium=RSS&at_campaign=rss) |
 | Afghan man held after dog walker dies in stabbing | [阅读全文](https://www.bbc.com/news/articles/c5ypkd57n97o?at_medium=RSS&at_campaign=rss) |
 | Police failed to tell me about my partner's violent past. He ended up strangling me | [阅读全文](https://www.bbc.com/news/articles/c629gz5g0emo?at_medium=RSS&at_campaign=rss) |
-| Migrant sex offender deported from UK after mistaken release | [阅读全文](https://www.bbc.com/news/articles/cly9rxlvp85o?at_medium=RSS&at_campaign=rss) |
+| Migrant sex offender given £500 after threat to disrupt deportation | [阅读全文](https://www.bbc.com/news/articles/cly9rxlvp85o?at_medium=RSS&at_campaign=rss) |
 | David Attenborough backs bid to buy £30m estate for wildlife conservation | [阅读全文](https://www.bbc.com/news/articles/c1d0x39x270o?at_medium=RSS&at_campaign=rss) |
 | Investigation after woman left behind by cruise ship dies on island | [阅读全文](https://www.bbc.com/news/articles/c62eww646wjo?at_medium=RSS&at_campaign=rss) |
 | Israeli strikes in Gaza kill 104, health ministry says, after Hamas accused of killing soldier | [阅读全文](https://www.bbc.com/news/articles/cgjdy5eevn2o?at_medium=RSS&at_campaign=rss) |
