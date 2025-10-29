@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月29日 23:01:13（北京时间）**
+🕒 更新时间：**2025年10月29日 23:09:15（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | IDF reservist killed in Tuesday attack in Rafah; Israel says ceasefire restored - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxNTGR4eGVwOWQyRXhQUllwWUxPQ3d2V0FxRllmdUNtTHlyNmZkQUxLY3V1VC1JZlhVc2hacndMV1FDN1ZBS1N5Q3BsdHBXVmFqMUNFZDRDel9tVTJSVnpURlN5Y2o5ZFEzWXBpajgxNHd6MlZzVlZwM0pjS1hmaG1WQWYzWHo2N1JSbG5kZzhvSmprMDNocldGQzFrZi00QUZvelBGeF9WSUh4OWNaSlZHYU83NG7SAboBQVVfeXFMUFVwTl94Z01WZnNJYXIxcE9GN2tub1FZblFOMjVPTk4wZ1ZaU01GZ3lJNEg0V0xZSjlHR1RQSmdpNjJaV2lMMFktVjQ2QjFvM0FrczBSWF9iRV9TTnZOTFp2c1JtVzYtamM0eUhmLVhKTkxhUGVYLWdiUDRmeWlMWWJGNGZBdDJ6Y0RfUzhyNFBRLTU3Sy1ySV82Z19aM3RlU1FBUl9rV05QbE9YZ3ZLclFtTGZLQzR1MzV3?oc=5) |
 | Judge orders Border Patrol's Bovino to return to court daily, wear a bodycam, follow rules on tear gas - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNOHhLcVhTSW9XQV9XWWcwS3JsbjhmZnRrRHMtb1BvdmtONVpGWlh0RGZJWEtnSVY3MlpyRm5LZklkMU9tV0U1Y3VxWHhxQWIyMHpsTldSZDl4TnFqOV8zUDhvYmFJMUhncGhsZTlOcUNJNTVnTy0xZ2hRZnZLSXMwc2RqTGphZGVXYXcxeDJqUnFqc3h6WWtvaF9B?oc=5) |
 | Federal judge rules U.S. attorney in California has been 'unlawfully serving' in role - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNcW55MDFQOXZNaGNhOGFaUHc0bDRMQzhacnRqWVNJZXpRdXpHR1cybHl4OGw2cWU5T0RQcllzeDRCdl80Vzh1NDc3QUFuU2VWWlFOY1dNTFVlZmE1WXZxazcyOG5WYTNDZ21rZHBjTUFRLTh6eE0zLUI3MWMxMXN6RGFSZ3A1RTNoTWlNX2lRdk5yTllRc3VTejd5YU5ueFhFeGh5VFRVNXc4TFdOT0hlU1Q3Z01zZE1mWVk5M0VlcW52WEVSVk9OSNIBVkFVX3lxTE5pclZ0WGZQbjRrRzI4VF9WejhJLUl6RjNwek9XRWo2dnhjcUtIaHFRa3JfZVJTWk5zTzVQaEJ6c2FVeGVibnVvbnUtOGpxaDVYMXFkbmtB?oc=5) |
-| Lab monkeys that escaped captivity in Mississippi are not carrying diseases, university says - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOYzVJdGVMVHRiZUFRcWZGMHlFendPazNGd1c4WVV6Q3A0RG1ocHM0Q081Tnl4Vzc3dXRyS0tFS215ZVUxZGR3R2NSdHJiZmhLOG1qbGdVRlVOaFhiQ3lWMjlFb2cwZ1dDYnVGRXVUSnJSYk5aemx1ZHNTRmdRZzNsbGtjb01RU2RTU0ZTbXZXZ0g?oc=5) |
-| Obamacare Prices Become Public, Highlighting Big Increases - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNSWNnNUhuT0NlakVFcTJmbVpnU0xmS0cwbEVNQUNRRXVubHRyU29IbWZRZVM4OXhFbm5Vb0JIaHZ4bVZqZzNqZExpVC1Sd2tUbTV1SVhVNW1LZjZwZGFDYkVncFgtWmZteFN3djlxMHNMWVE5MDR5LU5BbnJ5V0VoN1FHV09tX2s?oc=5) |
+| Lab monkeys on loose after Mississippi crash were disease-free, university says - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOYzVJdGVMVHRiZUFRcWZGMHlFendPazNGd1c4WVV6Q3A0RG1ocHM0Q081Tnl4Vzc3dXRyS0tFS215ZVUxZGR3R2NSdHJiZmhLOG1qbGdVRlVOaFhiQ3lWMjlFb2cwZ1dDYnVGRXVUSnJSYk5aemx1ZHNTRmdRZzNsbGtjb01RU2RTU0ZTbXZXZ0g?oc=5) |
+| Trump’s Campaign to Blow Up Boats in Drug War Gets a Caribbean Ally - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQYXFkUm9nanBNdHhzbVd2N1AyT3lVMEY0TURaU2d5bnJDa293dVlYNzVzWDl6SFNYUmNqb0p0cW5MNWpxTnBLUU8weG1YWkx4N3BXRXYyUDlRdldxM0NZZjV3QnpqTFFHVFRvUnNfMTVST1pMSVpnaWttZHd6UGN0bTBkM0FuVmJZUEhQd1Jzdmk3VnJxM3lRc3ZvX21oNmFUemF6SzZLdGdRUjlfbTF6YlhzZE5tQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
