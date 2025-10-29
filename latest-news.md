@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 02:08:47（北京时间）**
+🕒 更新时间：**2025年10月30日 02:16:32（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Hurricane Melissa Aftermath Photos and Video: Jamaica and the Caribbean - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOSE1NUks0Ym5vaXlvb3ZDOGxaaDFVZ0doa3ZYbWlOenc3V2oyaEFsa1JpM1hxMVliZEJfZGs3TWx3Y3ZoekFnaG9nSVlxcWxGM2pJdnZsQ3RrNHYxN3VFNTJ4TzZNMm1xeTFaaW42VThqUGV3SmxxUVZuX3puUkNJaWd3anFzb3ZfcGZTeTR0Z1ZkZw?oc=5) |
-| Fact Sheet: President Donald J. Trump Brings Home More Billion Dollar Deals During State Visit to the Republic of Korea - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMi-AFBVV95cUxNcm45M1VLdlVRUHRRakFDNHZ1V0tKMUhHRFA0b2wyZUpKaEg0YVRlQzNTSlVVekJlTW5TUWJqeFJXZmRCU3o4R19ZR2xQTHF1X3JpdHJIakRSOVpQelNzci1FQmxTNlRHRzJaREZDaGQ1dkQ1Q1Jka3JQNjlyZnR4ZHZsZW5pejRnYnJ3M0J6ZEVmU3VPelhCTUFINkVLNl8yVER0UER3SkxLZmlBSDM5UERHN1FqelA5LTFtVDZNMWJRdGFZalBaWFhqbWM1M1JIeWRpOWR1VXlmbTFtSHlqNWJiVjA2MHdBd29uZlB6OFpoR2hzV0JhMA?oc=5) |
+| Trump scores golden gifts as United States and Seoul advance trade talks - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQZVladEl3YlJmZmNMN3NqNlRBMXJzTF9WRDdhcHpMWm0tX29lOTlmMDZLU2RfWmhJZXg3MGc0SzBTaThNUVpzUHFuMUVjRUc0bU9uaG0xVVNfQ0p4MUlCZjRaQWhCUGNmY09FQnJ6Tm5xeXdOaWhFTGFYbGxhTXZVeWROSm1PMDBIWFFBOFdGQjNkOEVMV05VYTFjdw?oc=5) |
 | Obamacare enrollees get first look at 2026 prices as premiums soar - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQZjdlRDdaV284bkhDeTZzdGNpM2x0QjJCdkM5V1VBRVNvd1BndHE5SzdwNTdlZkMxRE5FaTJDaE9PNlRtMUQzekVlT3hKWW1XWEpxVGhTdjhjcmZWaGRRc1pKZlJtaG5nTWxaYTlfRWo0OW1VUGdab0hUYUlXaXkyYVBqam42Z1dZ?oc=5) |
 | At least 132 killed in Rio police raid, officials say - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9kam9GMHVHeWpJdkRFVkZCZ0lZVmN4ejZyX281UjB0aUxubWxKV2FsODVPNTY1VTFvMDAwbHFGOFl5c1l2VlNtRmgyc0RtaTE4VFc2RlhnUEU4Z9IBX0FVX3lxTE00N0x1aENYaXA0ZjhST2F1ejIxbDB3Z0tndHRqVzNYOGZ6Rjh2dy1NTThmXy1qZy1EWUpyOXFyNU01OUxLYWlkUGhYNUNRdkVBekRZbk94S3RoT1VvRHJV?oc=5) |
 | What happens to SNAP benefits already loaded to EBT cards in November - Axios | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE0xUE9HWDhPVTZIVHRaUjJJRWZJSDFXbm1kUDU5cC0zZWJyQUFWSTVwbzhHQUhDamptMXNYeVo2SXNtWlFKcjJNa1hSdWpycTNnUHhLNHpqOWJuNjViZGFSZTFnaUhRc0l4MW83XzNLaFhBSW8?oc=5) |
