@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 07:18:00（北京时间）**
+🕒 更新时间：**2025年10月30日 07:25:03（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Senate approves Democratic resolution to block Trump's tariffs on Canada - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiaEFVX3lxTE9DaS1UdXBMZmhHRVlsT2ZVMTF3b3VfeE5FT3QxWnBMM0VjQXFIOUZrb3VMVFVpaHFvVTVuUE5xejNGVG1KN3BnYjBSYVBORjFDVjg3SDczbEJibDk4bXBRTUpHc2dWMGF40gFuQVVfeXFMTXhjZU11MjN0ZWd4cHp4QTVhcFo1M3RvcWs5eWlhWHU0cTl1RkZMQmZRbTJ2bWZCb1UzZk9RM2F5c1Fld05Xa2RJOEdQcnFvVWJBUWZjQzVBdkF6YjlhN0lYTTRWZTNTQVlzX0JROHc?oc=5) |
 | Democrats ramp up probes into Trump’s $300 million White House ballroom - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOYW1Za1Y1VU1kY2Iyb3p3SVA1MTJHRDhxSE9xS3FJWTBXRDV2WVcwb2t4WWQ1OThSQkM1MDhFc3VBbDlVSHpyU2d0aGhDQUwtSmJWYXFsa1dFdVhtdzBnVUUzcHY0OExwaFhLX21pa3B3Vl9heXdOM0s3bUZhWkNxeXlxdnl3RWYxYXVhQ2g5N014MFRw?oc=5) |
 | ICE shake-up will increase arrest numbers. That doesn’t mean there will be more deportations. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxPajdYSzM5d1pQZHRBRGZ0TVdzYkJ0aElERmY3WHIzckJnNUE3SUI5cFozNFo5MFZySHF3VXBHQ3haMTN1UjdpN040ZHVVYnBablBxaE9OWS10di1RN3Rkb1Y2U2dWakdBak5lYi1SOVJDRklTeDlBYnNWZGlBcXRUc2I0djVjNjlWcEI5eDB4RURISWdhTzRESW5ZeEJrcnVZWDJycnB2SHMwWlFiX0dWdExqQVpqNHlHUlo4Um5EOGdETDNtVUdBLW5teTZmSzJNRHM5Mm1ORQ?oc=5) |
-| Government shutdown live updates as senators express cautious optimism about talks - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOb193QllWRkh4WTdjTUoyMk0tdjN4VWNLRUJrSnJrdzUwTW5PTUk4XzlMbjkzb3NraDZ5eE9ZV3lkUDV2MjNkX3pvUUpyVG00YjZoUGR2S25lb3pBY1RnMXlvNm1TYmFQVjhpQWUyNV9LTDlQQkdUakYtbWt1c0ZYcS1tRXo1QV9ucVhZTWtVQdIBlAFBVV95cUxQekpVN0NURkEzbTBXOGFETHV5Szc4NEp6T2lxU0UwbHd2RXZSMVdzYnZaQmZRUzUyZWpqRjlJbVd4UzlHTEowbTlKb1QzZTUzNFEyZ3FjM0oxODRQaTc3RElrYjBZMndMdE05UWE3c0VVaFRFSE1LaEJtQll3aU5PbTR1cHNROUtKTURLYzhzdnhxX2VH?oc=5) |
+| Judge rules Trump’s top federal prosecutor in L.A. is ‘unlawfully serving’ - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOLWpSR0hEYmM0MDk0TUdCNzU0Rl9tX25GaE5DVkxqLUdoVUczTG1ITGJyVlZGaGxudjRrMkc2SHc3Rnpvb2tuOHY2dUhBRVI3QjJOSlB4dWFfclFRYUFvVjVHc2dPZm52aGhiY1BKYXljLUYyQzlZd1JITXFLMTl2YS1xTHVGQnBaaTFhTTZjdF9Ec2hVZXhVVXJ3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
