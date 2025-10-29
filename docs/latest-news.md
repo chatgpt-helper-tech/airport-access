@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月29日 18:56:31（北京时间）**
+🕒 更新时间：**2025年10月29日 19:00:22（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Jamaicans wake to devastation - floods, power cuts and crippled communcations | [阅读全文](https://www.bbc.com/news/articles/c5yl09v025lo?at_medium=RSS&at_campaign=rss) |
+| Jamaicans wake to devastation - floods, power cuts and crippled communications | [阅读全文](https://www.bbc.com/news/articles/c5yl09v025lo?at_medium=RSS&at_campaign=rss) |
 | Migrant sex offender deported from UK after mistaken release | [阅读全文](https://www.bbc.com/news/articles/cly9rxlvp85o?at_medium=RSS&at_campaign=rss) |
 | Police failed to tell me about my partner's violent past. He ended up strangling me | [阅读全文](https://www.bbc.com/news/articles/c629gz5g0emo?at_medium=RSS&at_campaign=rss) |
 | Next continues to profit after M&S cyber-attack | [阅读全文](https://www.bbc.com/news/articles/cn0g28wgjzlo?at_medium=RSS&at_campaign=rss) |
