@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月29日 21:49:08（北京时间）**
+🕒 更新时间：**2025年10月29日 21:56:32（北京时间）**
 
 ---
 
@@ -27,7 +27,7 @@
 | S Korea announces lowering of some tariffs as part of new US trade deal - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9pZ1lQTlZhTFh5M0xsVVh4bUppWU85by1FeThjQWdpNlYxVmxXdkFtcVhGcGRjQ2R2WXhVMTh3WWpuWGVhV2dpRDNFa0NHbEFJVkp6U2tUOU9wZ9IBX0FVX3lxTE5oajBkcUVQWXlQT09jck02NUJrWDYwLWJpYUY0TFNDWVplUUstTHUyOTdwcDRmek4xdnRuODE5U1gxNGZraVJCZzNOMnpRTE1ic2EtQjZwNTQ1dzNRcC1J?oc=5) |
 | What happens to SNAP benefits already loaded to EBT cards in November - Axios | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE0xUE9HWDhPVTZIVHRaUjJJRWZJSDFXbm1kUDU5cC0zZWJyQUFWSTVwbzhHQUhDamptMXNYeVo2SXNtWlFKcjJNa1hSdWpycTNnUHhLNHpqOWJuNjViZGFSZTFnaUhRc0l4MW83XzNLaFhBSW8?oc=5) |
 | Trump says ‘it’s too bad’ he can’t run for a third term - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOX09aNUJQcnVfVXJCSk9FUmFvR1JTeExkQVlPV3QwbkNHX3NsVGNqVHRzcXNpb3hpMUVpRWZhSUVOREViQWtwY01jWnlLQ21WZlh2XzBQX1k0bjVEdEktTl9uSnVQOEdIT1U3VVlXblVyTHBWRWpGUnJSemNJLW1seWh5VlJyblB1ckFaZ0k0SmxCM2FtNl9KMkRvQ0puank5V2I0aTJ3?oc=5) |
-| Israel says it's resuming the ceasefire after its strikes in Gaza kill over 100 people - NPR | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1QdlRSRUtrcHpSZURCOGtmRWNZdlFTWGN5RGtmdGxjeXpiUEo0RVBkZzZKUUNNWHRzdElEUEgxX2JlcEUxSmQ1dW9wLVVmN3Nla2MzZWNxRktQeER6WXNfemowZi1HeldVMnRidlpfWW56ai1Uamw4UQ?oc=5) |
+| Israeli Strikes in Gaza Kill at Least 100, Local Health Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPMW1EV2lrVlZ6UC15VnJYUXlxVldFVGExTjQ0ZzczMkcxcmhRbmlHelJ4ZW91MXN0Z1d1bE5rMG14MlJUZDZ4QkNBakw3b3MtRDVlTk1qaF9ONm9uY0drVy1kcUV0eWJuRldIMEJnY0lDRWdSTlBKS0xtTWMwNi0wSnRqNEI1THE0MXlxbnZqQ3hlaXcyZmVzT2tjSnRyaHpJd1pvNV93?oc=5) |
 | Camouflaging cars and swapping license plates: How agents make immigration arrests - NPR | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNcUpvb1Zyem5WaExtQkpsNnhrTHF5SHB3am1DNXBhYjJUOEtuZDVfZFV5Q0RoWVZiUjJ0dHhNRkJuU2lGSG9mdjBpUEpqbXl3bmtlM2JIZENBZTRhZ1NNQ3g1cFcza1UtSjRGM1JFXzNQV3pvaGYzZzFaMi10cER4T18wYi1nNmlWMVF0ak9MdVBDckJmY1IzTzM2b0RjYmVi?oc=5) |
 | Border Patrol, ICE in Chicago news: During Greg Bovino hearing, Judge Sara Ellis orders daily meetings on immigration ops - ABC7 Chicago | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxQZkNrMGdfVGdMZWFXUTZlc1I2YjlmNXdJNnlTS0NfMzlGRWpqbFJqeFVIQUZuUlB5WVZRN2o3SWpDZm9uU0k4d29yTFNWSnFhdlhFcTZ5SGpZaHpSUUR3bFZTaTdXRG9LWTh6TFN2OXUzRXJlUzZsNVRlX0Qtd3F3bGpDRGZicUF1NlBwVWs0dHU4bC13cUQ0aFRVVWd5cVNFalFQQUcyYzhwS2ZBSmdBRDhtS25sZnM4UkF3RnlfOG5YYUVxZkRjQ1NDa9IB0AFBVV95cUxQcTdyT2c5eFBDdzFhTzdGUmhBN3p0eGNUMlVfX2VTOWpQVkFlSlhKZm5ZbWZJQjExaTRRdnJmal80VmM1QlBPcjhmcFRPNHJReHhYLXBhUndvRHNPMXlyVlpKS21FYzBuN2dBMUhSd0JzTU00d01pZXRXVFJVVGdIWHBMT3BGaE01T3cybWxVWkxUOGhpdlVKSnppdWZqUW1icmlMNFBpandzQ3FYNmt0VU9SeFg4R21BOHNLb0YxaGR5VFQ3S3BJMjVUbEVTSy1q?oc=5) |
 | Federal Judge Disqualifies Trump-Backed Prosecutor in Los Angeles - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQd2pfQjVOQW9oeE5RcWxtQ2hhbHlZRzVnVUl1ZUoxMkFwU0pmN3o2TzNhNUdqTWdMeDdQUnZjeEF2SFJXS1VEaTZwRTkxNy1sLVVxUlZJZUFFcWdBM3MxbUlrSzdDZUJWMl92a2hkVkpYRTJldkl0T3E0ZVI2Y1Nlb2lpRTBRUktOZDUwOHR0NA?oc=5) |
