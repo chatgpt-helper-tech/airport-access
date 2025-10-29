@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月29日 14:24:45（北京时间）**
+🕒 更新时间：**2025年10月29日 14:32:35（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Home Office has struggled to deal with crises, says Mahmood | [阅读全文](https://www.bbc.com/news/articles/cp3d7ljx71do?at_medium=RSS&at_campaign=rss) |
 | Illegal teeth-whitening industry exposed by BBC | [阅读全文](https://www.bbc.com/news/articles/c20z7xx6nr4o?at_medium=RSS&at_campaign=rss) |
 | BBC 'deeply concerned' about journalist unable to leave Vietnam | [阅读全文](https://www.bbc.com/news/articles/cvg70064d2vo?at_medium=RSS&at_campaign=rss) |
-| Brigitte Macron's life 'deteriorated' after alleged cyber-bullying, daughter says | [阅读全文](https://www.bbc.com/news/articles/czr16vjk8zlo?at_medium=RSS&at_campaign=rss) |
+| Elderly woman left behind by cruise ship on Great Barrier Reef island found dead | [阅读全文](https://www.bbc.com/news/articles/c62eww646wjo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | States sue over Trump administration suspending food benefits during shutdown - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNZmc4ZXF5clhERmduX3R3SjF6UGV5ODh4bGIxcmg1eC02SjFoQlFfWTdONWRQZUl0SC1ucVVkbDVuNmYya2lqUnVxazFBZFNib2JoNVp2RllBWjl3TDE1SFhsRnluWGEtQVZhckZQMS0wU19JZnJNZm1OZGY5dDF5cnJUVXlreldXZG12ejRPYXV3eVFrRXpzQTdwNmxPNEtXOWh2WUdrZVEwMnNGcndqd1Ryb3VUTXZzV3RUWEc2NA?oc=5) |
 | Federal Judge Disqualifies Trump-Backed Prosecutor in Los Angeles - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQd2pfQjVOQW9oeE5RcWxtQ2hhbHlZRzVnVUl1ZUoxMkFwU0pmN3o2TzNhNUdqTWdMeDdQUnZjeEF2SFJXS1VEaTZwRTkxNy1sLVVxUlZJZUFFcWdBM3MxbUlrSzdDZUJWMl92a2hkVkpYRTJldkl0T3E0ZVI2Y1Nlb2lpRTBRUktOZDUwOHR0NA?oc=5) |
 | A deputy killed. A 150-mph chase. Then, an off-duty cop took dramatic action on live television - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPNEhQcDFnTzhMRl96OUFiWEJCZjBrUnNGMHhLTC1fcFBiYTUzZlNNOE9ZSmk3RGRrU0NUUHVwYlNzTmVFRWNhQW9yWWxtS2M1RnY1RGF0Q0xjWkJOVkozNktHeXI5MllWel9rWDNib3FtdVQ5OFlzZFRQOW9Vb0hWQUVYOUhXS1VZcEd0dnNrajR3clJ4QWs3YXZ3YnNoU09ERGE1SVROZFBRWGxNSkRr?oc=5) |
-| Airlines are feeding air traffic controllers as they miss their first full paychecks - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOSUItYUFQRGtyaUlISXltWHVVRXVoVmpkS3RmR0VlTmtfZ0Z4QzJ4QXRqV2dpSjJxSmFYWHNCenJfaE1ySGRGU2dyRm5LS09pVlhreEF5dW45b1RoZjJpaUdraFEzblJCLUk1Y2ZjcDlfTjNLMUZwZVQ3UUxiaEhIb2Z6dTQ5T3B1blh4M29yR0tzSm1QX3ZhWDJaNENuTDZ0dHlOMUln0gGrAUFVX3lxTE9jQmM0R2llM2Z6TGIyWkp3NW95allFX1JfRTJIOUI5dGVnNkVhdlhJV0cwOEF4QkkxejljR0JFQmlBb2NqZGNFT0RuNWRRWnNycDh5d3B1T2RlS1hVdHgweGlwQ3RBaTFra0NYMnZDa2VlcHRZSVpNWFZnYmJoYXQxYmtJdFc0cHo4MW9GbEg0NXlGeVlGZWM1NUtnZFhZcXp2bnlkYy15U3BiWQ?oc=5) |
 | Poll: Most Californians say they’ll vote yes on Proposition 50 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOQ3dEcFY5bXFCdjZBbm13SHBXN2FOaTU1ZWRfRHBlOVRpQ3VsbV93M3NfRE0yaVl6WC1nVjQzZDcxUDdFTXB0ME00MDBkYXliaV9hTGoxRGg0UEpGMXpnRXJmTnNLZFNwRVZXNTMtYWZ2MXVNcGF5c2NXbjZIcjB4dloyRHc5YVRlcHBzRG15Q0dOdVZhNDlESzd2eGI?oc=5) |
+| Airlines are feeding air traffic controllers as they miss their first full paychecks - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOSUItYUFQRGtyaUlISXltWHVVRXVoVmpkS3RmR0VlTmtfZ0Z4QzJ4QXRqV2dpSjJxSmFYWHNCenJfaE1ySGRGU2dyRm5LS09pVlhreEF5dW45b1RoZjJpaUdraFEzblJCLUk1Y2ZjcDlfTjNLMUZwZVQ3UUxiaEhIb2Z6dTQ5T3B1blh4M29yR0tzSm1QX3ZhWDJaNENuTDZ0dHlOMUln0gGrAUFVX3lxTE9jQmM0R2llM2Z6TGIyWkp3NW95allFX1JfRTJIOUI5dGVnNkVhdlhJV0cwOEF4QkkxejljR0JFQmlBb2NqZGNFT0RuNWRRWnNycDh5d3B1T2RlS1hVdHgweGlwQ3RBaTFra0NYMnZDa2VlcHRZSVpNWFZnYmJoYXQxYmtJdFc0cHo4MW9GbEg0NXlGeVlGZWM1NUtnZFhZcXp2bnlkYy15U3BiWQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
