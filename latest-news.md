@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月29日 10:56:17（北京时间）**
+🕒 更新时间：**2025年10月29日 11:01:57（北京时间）**
 
 ---
 
@@ -26,7 +26,7 @@
 | Category 5 Hurricane Melissa brings flooding and catastrophic winds to Jamaica - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQMWFacWZWdFhsOV9PZU8yYlpqUjF3M2Zna0pMbExlYzJvRkdUUVNhTy1JamtyU0YxdEZIRy0wX1N3MGtrMFpIR2RCUjh6akgtOVpjdVBsckdmTHVITmc1U2Vidlo0bnBxOG5tM0ppWElNcFJnb1Ntei15UTNBejQwYlJUbTNqVTVFOFVvbC1QM2N6SUM0NEFSTEM0UmFsb1JfWWlTOEtVdjlncW8?oc=5) |
 | Israel launches renewed strikes in Gaza less than 3 weeks into Trump's ceasefire deal - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPUlJMNHROa3gzSFhRRGVmY0d0azNtbTJWTlptcm0yV1h0eXVmU2VsZ3NkNFBUZnRVYXh3RDM0V3MySm81eFZndkZkNVVrOU5NTGhaMVMtVTJySHVtWW1rZUFURWNPc1RCVkZNcGczbkVIMFhja3dOdGQ3bkRhc1hOQWdpbw?oc=5) |
 | Border Patrol’s Bovino agrees to return to court daily, as he and federal judge talk body cams, tear gas, IDs - WBEZ Chicago | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQdlNncjFQMWZlNWtaWXNZTjdGVV9HZjJhT1NfODZUZkRxQmpGZ1VBMFZWd0xONkJ6Y1U5WlpCRzNKSDBpaks3TUZXV1RrZmRRMEl4NlBlN3NzdEFJcFItMXhuUDZEVGV0d3dRZHdRYWlYcmZBeDNWaUxpSkVkakI3VXdTVUlnbl8tZDFrNlJWTQ?oc=5) |
-| Senate Votes to End Trump’s Brazil Tariffs, With Some G.O.P. Backing - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQMndMM00wVFNqblBYby1EMHYta1A4Q19nVDllUS1JZE1ZeEMtLVQxaGhJVm1PUDNzVm1sY0VHdEJtbXM3b2Z6ZGpMXzlhWEdRclhDR2UwVUVhWDhTMzduRkN1S3dCc09iZTJqclFkdk4yRlRhRndhMEVJR2FOQUNobHN6UGxNSXVWdHpkcQ?oc=5) |
+| US Senate passes bill with Republican support to rescind Trump’s tariffs on Brazil - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNa002ckUyNlgwZXp2U2xkYWFlVkxzSW54VUdFeF9UcExTR1NIVUgyN3RWTVBNV01BaUxZSllXcm9ubE9NS1RmMTExaGhRZ2lKbzI4cjVfTERDc2M0XzZjWVpTS2NRQmRTQWJHVXo5TndSWnhCR2pXN1RkX2haRGI3bEgyUWU?oc=5) |
 | Judge extends order barring mass firings of federal workers during shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPemh6RS1YSnYwR01KcmZWVV84TnQ4YXZ2UENhWU1SRjllaENIZjVKOTVUYndsaDZxWk1qaDF6TmdlTFRCMnA3dTlobzZrdHZJcWF2VlNjOFhKUnRuS0p5OU1RVGpBTWs5WjcydUlHTWpZbndzSmV4Q2I0OUM2cFo2ZklyUGY3SEktODhXUWZxdExEXzFEM2JoX1k1TWxYUQ?oc=5) |
 | Timeline: US strikes on alleged drug boats - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOVnF6OG41bktkeVBkUVpKcXJHbC0ycjF0aTJKQTNfclM1SDhYN2V4S0l1bVZrQWZpMVdyQXk4bWRBY2htTmdLdVBhRHRyYjNFQjEtQkJoQlN1c0dxTm1XYjhIS3lvcnJNbzFFOU16T0g2TlhPQk1pbVFYdVpDUW16ZG5VQ1ZBTGpGRVpsVk5NUjFGRGPSAZgBQVVfeXFMTkFiNVhOZmNXOFRMZXR3c0R0bDE0VHdDS3FZQ2lRQU8yb3JRdjRlQl92NVJicXdabk1obmdXUFc5dzdza0k3S0w1Vi1sY1hfNWVJaUpIMFdtU0N1UWV0TzdoOXVmbkdMN3Eya2VMRi1mQ2JsODBBRjRKLS1LRjAwbUd4bks0Y1ZtTjZMNjEyd2Jhc0lIa3h4LVY?oc=5) |
 | Democratic states sue to force SNAP payments during government shutdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPc3RQSlV0MDdhMUg5UHVtUlcwTG5Ia19mSnZNMHBwZDBfZk0zRXRYQzBySjlUZ0QxdHk1RG9wcDB1bDR6LThnVVljS19aMC13dTBFUkhPcXQ3MVdIdlVwTmc2dGZBU2pCMU9LZDRvX3lVakdmRmVVYkV1TGthejJoR3BNOXlfTHo3NTZrSHhyNnU5QQ?oc=5) |
