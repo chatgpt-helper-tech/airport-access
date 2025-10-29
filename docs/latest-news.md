@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月29日 22:32:26（北京时间）**
+🕒 更新时间：**2025年10月29日 22:41:30（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Federal Judge Disqualifies Trump-Backed Prosecutor in Los Angeles - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQd2pfQjVOQW9oeE5RcWxtQ2hhbHlZRzVnVUl1ZUoxMkFwU0pmN3o2TzNhNUdqTWdMeDdQUnZjeEF2SFJXS1VEaTZwRTkxNy1sLVVxUlZJZUFFcWdBM3MxbUlrSzdDZUJWMl92a2hkVkpYRTJldkl0T3E0ZVI2Y1Nlb2lpRTBRUktOZDUwOHR0NA?oc=5) |
 | Lab monkeys that escaped captivity in Mississippi are not carrying diseases, university says - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOYzVJdGVMVHRiZUFRcWZGMHlFendPazNGd1c4WVV6Q3A0RG1ocHM0Q081Tnl4Vzc3dXRyS0tFS215ZVUxZGR3R2NSdHJiZmhLOG1qbGdVRlVOaFhiQ3lWMjlFb2cwZ1dDYnVGRXVUSnJSYk5aemx1ZHNTRmdRZzNsbGtjb01RU2RTU0ZTbXZXZ0g?oc=5) |
 | Dictionary.com reveals '67' is its 2025 Word of the Year - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNdGtaT0dYWHdNS25GcU0zLWZPR0lOWl9USUh2ZHV0UGFrZ2JPd0oxOXRqWmNPM1BsaVdlcXN1aXVLUWpoOG4tSXBIMVdDNW9KRjFoNXJHX1NsSFk2bmxuVjZaOHlXNV85bjJZS3hROGQtNHhQcG5HTTNrUkdhMDV5c2N0a3dab2Z20gGOAUFVX3lxTE5VN2w3eXl6UW1oX3c5MTBxQzZPeG1LU0s0dUYtZmtVN2RrOUVVaGpTQUk0VE4xUi0wa1YtMmltQ0VhUFdFUmVaM0luUm1Md0g5WndkRXFnVmlYSGx0S2J6SWg1UzZxRGtMTjJISTFGbmZBb0Z6SnVNSkxWY08tR3VYcU9HQTE1V1RJRzFOSHc?oc=5) |
-| Trump fires federal arts board in charge of reviewing White House ballroom and ‘Arc de Trump’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNOThQZThjMzNlWWdCSXN5bmJjUnZnYXljT2o4eUZ6b2hWZ1V2YjVPTjhwVjdXQTZkWE5jeVlqOFBDQl8xUlVoTzRSS0RnbHVMZ2VJOVRwajVuam12V0szcmtJSTVCUzE5bUthWXBmckU3V2pIdF80Y3pTQ0JPbEEwOVZvWjVFVEdkSDNr?oc=5) |
+| White House Fires Arts Commission Overseeing Trump’s D.C. Building Projects - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNV3hnbWtic1FLd3diVnpGMWlEb2VZQmc4N2JSY2hXUlpVSDlfRWdKUWZKTFdvYUVUVjhJWHpjSm8wa2RRamphRXdkUENhQnVNMy1idnRpS3hodFFvRGVvSVZ3TC1iUGVHeFNVZGZyVUhxY1c0dW9tREpIU0hyX1pLX3d6Sy1jMGZ4VXNSVkdJUmZzQXgt?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
