@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月29日 14:42:00（北京时间）**
+🕒 更新时间：**2025年10月29日 14:48:05（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump seems to close the door on trying for another term - Politico | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE85elowMnpoZlJxMGRsSXRUZ2l3UjlSaFpiQW9ocmtfVEtJblhReHFWZ2t1cnJ0WkFVdkNVNm5pV3I5em92M2lkTXF3VkptVnhZVTBvWURoSkk3MnJVT0V5YUNLSE1vUk9XR2RyOENQMWZSYTV3TDZR?oc=5) |
 | Democratic states sue to force SNAP payments during government shutdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPc3RQSlV0MDdhMUg5UHVtUlcwTG5Ia19mSnZNMHBwZDBfZk0zRXRYQzBySjlUZ0QxdHk1RG9wcDB1bDR6LThnVVljS19aMC13dTBFUkhPcXQ3MVdIdlVwTmc2dGZBU2pCMU9LZDRvX3lVakdmRmVVYkV1TGthejJoR3BNOXlfTHo3NTZrSHhyNnU5QQ?oc=5) |
 | Federal Judge Disqualifies Trump-Backed Prosecutor in Los Angeles - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQd2pfQjVOQW9oeE5RcWxtQ2hhbHlZRzVnVUl1ZUoxMkFwU0pmN3o2TzNhNUdqTWdMeDdQUnZjeEF2SFJXS1VEaTZwRTkxNy1sLVVxUlZJZUFFcWdBM3MxbUlrSzdDZUJWMl92a2hkVkpYRTJldkl0T3E0ZVI2Y1Nlb2lpRTBRUktOZDUwOHR0NA?oc=5) |
-| Poll: Most Californians say they’ll vote yes on Proposition 50 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOQ3dEcFY5bXFCdjZBbm13SHBXN2FOaTU1ZWRfRHBlOVRpQ3VsbV93M3NfRE0yaVl6WC1nVjQzZDcxUDdFTXB0ME00MDBkYXliaV9hTGoxRGg0UEpGMXpnRXJmTnNLZFNwRVZXNTMtYWZ2MXVNcGF5c2NXbjZIcjB4dloyRHc5YVRlcHBzRG15Q0dOdVZhNDlESzd2eGI?oc=5) |
 | A deputy killed. A 150-mph chase. Then, an off-duty cop took dramatic action on live television - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPNEhQcDFnTzhMRl96OUFiWEJCZjBrUnNGMHhLTC1fcFBiYTUzZlNNOE9ZSmk3RGRrU0NUUHVwYlNzTmVFRWNhQW9yWWxtS2M1RnY1RGF0Q0xjWkJOVkozNktHeXI5MllWel9rWDNib3FtdVQ5OFlzZFRQOW9Vb0hWQUVYOUhXS1VZcEd0dnNrajR3clJ4QWs3YXZ3YnNoU09ERGE1SVROZFBRWGxNSkRr?oc=5) |
+| Poll: Most Californians say they’ll vote yes on Proposition 50 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOQ3dEcFY5bXFCdjZBbm13SHBXN2FOaTU1ZWRfRHBlOVRpQ3VsbV93M3NfRE0yaVl6WC1nVjQzZDcxUDdFTXB0ME00MDBkYXliaV9hTGoxRGg0UEpGMXpnRXJmTnNLZFNwRVZXNTMtYWZ2MXVNcGF5c2NXbjZIcjB4dloyRHc5YVRlcHBzRG15Q0dOdVZhNDlESzd2eGI?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
