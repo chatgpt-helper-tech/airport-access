@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月29日 15:00:36（北京时间）**
+🕒 更新时间：**2025年10月29日 15:08:45（北京时间）**
 
 ---
 
@@ -27,8 +27,8 @@
 | South Korea trade deal appears elusive as Trump seeks $350B investment - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQZVladEl3YlJmZmNMN3NqNlRBMXJzTF9WRDdhcHpMWm0tX29lOTlmMDZLU2RfWmhJZXg3MGc0SzBTaThNUVpzUHFuMUVjRUc0bU9uaG0xVVNfQ0p4MUlCZjRaQWhCUGNmY09FQnJ6Tm5xeXdOaWhFTGFYbGxhTXZVeWROSm1PMDBIWFFBOFdGQjNkOEVMV05VYTFjdw?oc=5) |
 | Timeline: US strikes on alleged drug boats - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOVnF6OG41bktkeVBkUVpKcXJHbC0ycjF0aTJKQTNfclM1SDhYN2V4S0l1bVZrQWZpMVdyQXk4bWRBY2htTmdLdVBhRHRyYjNFQjEtQkJoQlN1c0dxTm1XYjhIS3lvcnJNbzFFOU16T0g2TlhPQk1pbVFYdVpDUW16ZG5VQ1ZBTGpGRVpsVk5NUjFGRGPSAZgBQVVfeXFMTkFiNVhOZmNXOFRMZXR3c0R0bDE0VHdDS3FZQ2lRQU8yb3JRdjRlQl92NVJicXdabk1obmdXUFc5dzdza0k3S0w1Vi1sY1hfNWVJaUpIMFdtU0N1UWV0TzdoOXVmbkdMN3Eya2VMRi1mQ2JsODBBRjRKLS1LRjAwbUd4bks0Y1ZtTjZMNjEyd2Jhc0lIa3h4LVY?oc=5) |
 | White House Fires Arts Commission Overseeing Trump’s D.C. Building Projects - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNV3hnbWtic1FLd3diVnpGMWlEb2VZQmc4N2JSY2hXUlpVSDlfRWdKUWZKTFdvYUVUVjhJWHpjSm8wa2RRamphRXdkUENhQnVNMy1idnRpS3hodFFvRGVvSVZ3TC1iUGVHeFNVZGZyVUhxY1c0dW9tREpIU0hyX1pLX3d6Sy1jMGZ4VXNSVkdJUmZzQXgt?oc=5) |
-| Senate approves bipartisan resolution to end tariffs on Brazil - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNMVlDc3lsSWRXb2U5Q1ZIR2U5bjJvZmZZbFlWWkRuTDNxc3ZHS1ZxOXJUREVZSVRwNDBCUDFsRzc2UnhTTjgyUS1PeWc0UEhNRFg0TU55NW02UUtLSzZMSGRnNEdsT2FMc1BFSnRubEdSeE5KRWtfWGJhcXdBQWgzNGFzVVdLalpjT1FIYmltZm5aVm5FcHFJWWwwektQWlptamlmZGxnMGxRRGNJ?oc=5) |
 | Trump seems to close the door on trying for another term - Politico | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE85elowMnpoZlJxMGRsSXRUZ2l3UjlSaFpiQW9ocmtfVEtJblhReHFWZ2t1cnJ0WkFVdkNVNm5pV3I5em92M2lkTXF3VkptVnhZVTBvWURoSkk3MnJVT0V5YUNLSE1vUk9XR2RyOENQMWZSYTV3TDZR?oc=5) |
+| Senate approves bipartisan resolution to end tariffs on Brazil - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNMVlDc3lsSWRXb2U5Q1ZIR2U5bjJvZmZZbFlWWkRuTDNxc3ZHS1ZxOXJUREVZSVRwNDBCUDFsRzc2UnhTTjgyUS1PeWc0UEhNRFg0TU55NW02UUtLSzZMSGRnNEdsT2FMc1BFSnRubEdSeE5KRWtfWGJhcXdBQWgzNGFzVVdLalpjT1FIYmltZm5aVm5FcHFJWWwwektQWlptamlmZGxnMGxRRGNJ?oc=5) |
 | Democratic states sue to force SNAP payments during government shutdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPc3RQSlV0MDdhMUg5UHVtUlcwTG5Ia19mSnZNMHBwZDBfZk0zRXRYQzBySjlUZ0QxdHk1RG9wcDB1bDR6LThnVVljS19aMC13dTBFUkhPcXQ3MVdIdlVwTmc2dGZBU2pCMU9LZDRvX3lVakdmRmVVYkV1TGthejJoR3BNOXlfTHo3NTZrSHhyNnU5QQ?oc=5) |
 | Federal Judge Disqualifies Trump-Backed Prosecutor in Los Angeles - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQd2pfQjVOQW9oeE5RcWxtQ2hhbHlZRzVnVUl1ZUoxMkFwU0pmN3o2TzNhNUdqTWdMeDdQUnZjeEF2SFJXS1VEaTZwRTkxNy1sLVVxUlZJZUFFcWdBM3MxbUlrSzdDZUJWMl92a2hkVkpYRTJldkl0T3E0ZVI2Y1Nlb2lpRTBRUktOZDUwOHR0NA?oc=5) |
 | Poll: Most Californians say they’ll vote yes on Proposition 50 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOQ3dEcFY5bXFCdjZBbm13SHBXN2FOaTU1ZWRfRHBlOVRpQ3VsbV93M3NfRE0yaVl6WC1nVjQzZDcxUDdFTXB0ME00MDBkYXliaV9hTGoxRGg0UEpGMXpnRXJmTnNLZFNwRVZXNTMtYWZ2MXVNcGF5c2NXbjZIcjB4dloyRHc5YVRlcHBzRG15Q0dOdVZhNDlESzd2eGI?oc=5) |
