@@ -38,13 +38,13 @@ permalink: /qingyunti/
 
 ---
 
-> 📅 测试时间：2025-09-04
+> 📅 测试时间：2025-10-29
 > 
 > 🛠️ 工具环境：1G 宽带 + MiaoKo测速脚本
 
 ## 📷 测速与解锁结果
 
-![青云梯 解锁与测速图](./assets/qingyunti.webp)
+![青云梯 解锁与测速图](./assets/qingyunti/qingyunti251029.webp)
 
 ---
 
@@ -113,5 +113,14 @@ permalink: /qingyunti/
 ## 📚 延伸阅读
 
 > [🏆 机场推荐榜单 2025（持续更新）](https://gptvpnhelper.com/airport-access/)
+ 
+---
+
+## 历史测速结果
+
+### 2025-01-15
+
+![青云梯 解锁与测速图1](./assets/qingyunti/qingyunti.webp)
+
 
 
