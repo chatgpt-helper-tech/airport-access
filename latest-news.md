@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 05:25:47（北京时间）**
+🕒 更新时间：**2025年10月30日 05:32:49（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | Afghan man charged after dog walker killed in London triple stabbing | [阅读全文](https://www.bbc.com/news/articles/c2lp7wx740go?at_medium=RSS&at_campaign=rss) |
 | MPs question value for money of Prince Andrew's Royal Lodge lease | [阅读全文](https://www.bbc.com/news/articles/cwyp5z049dlo?at_medium=RSS&at_campaign=rss) |
 | Sudanese RSF militia killed many civilians at hospital, WHO chief and doctors say | [阅读全文](https://www.bbc.com/news/articles/c364jgkge46o?at_medium=RSS&at_campaign=rss) |
-| Heathrow, NatWest and Minecraft sites down in Microsoft global outage | [阅读全文](https://www.bbc.com/news/articles/c3rj45n4x5eo?at_medium=RSS&at_campaign=rss) |
+| Websites disabled in Microsoft global outage come back online | [阅读全文](https://www.bbc.com/news/articles/c3rj45n4x5eo?at_medium=RSS&at_campaign=rss) |
 | Why the survival of the Gaza ceasefire depends heavily on Trump | [阅读全文](https://www.bbc.com/news/articles/ckgk4x5ze3mo?at_medium=RSS&at_campaign=rss) |
 | Starmer declines to rule out breaking manifesto tax pledges | [阅读全文](https://www.bbc.com/news/articles/cz7p15z1y45o?at_medium=RSS&at_campaign=rss) |
 | Cancelling TikTok creator Zoë Bread's parking fine was incorrect, council says | [阅读全文](https://www.bbc.com/news/articles/cx2pxkp80pzo?at_medium=RSS&at_campaign=rss) |
