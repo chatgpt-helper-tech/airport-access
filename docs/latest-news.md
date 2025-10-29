@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月29日 16:56:14（北京时间）**
+🕒 更新时间：**2025年10月29日 17:00:42（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Federal judge rules U.S. attorney in California has been 'unlawfully serving' in role - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNcW55MDFQOXZNaGNhOGFaUHc0bDRMQzhacnRqWVNJZXpRdXpHR1cybHl4OGw2cWU5T0RQcllzeDRCdl80Vzh1NDc3QUFuU2VWWlFOY1dNTFVlZmE1WXZxazcyOG5WYTNDZ21rZHBjTUFRLTh6eE0zLUI3MWMxMXN6RGFSZ3A1RTNoTWlNX2lRdk5yTllRc3VTejd5YU5ueFhFeGh5VFRVNXc4TFdOT0hlU1Q3Z01zZE1mWVk5M0VlcW52WEVSVk9OSNIBVkFVX3lxTE5pclZ0WGZQbjRrRzI4VF9WejhJLUl6RjNwek9XRWo2dnhjcUtIaHFRa3JfZVJTWk5zTzVQaEJ6c2FVeGVibnVvbnUtOGpxaDVYMXFkbmtB?oc=5) |
 | Trump says US blocks him from running for third term - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOSkZEN2FIQ1g5dGFEVkpzZ25haFktZ1pwNEZkTDVFVUdmWTlfMmdCbjJFamo1RTRjd2ZKUHBCd3h5emdxMUc2Ti1JWXNSLXdFU1A3M3Zyd0ktSmEwd2s5VmpqdHU0aVN5OGVuYUZRcGtheFNjM0VIS2ctOVVpREttX2IxQ0djb1lyMl9hR290UWVLQQ?oc=5) |
 | Airlines are feeding air traffic controllers as they miss their first full paychecks - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOSUItYUFQRGtyaUlISXltWHVVRXVoVmpkS3RmR0VlTmtfZ0Z4QzJ4QXRqV2dpSjJxSmFYWHNCenJfaE1ySGRGU2dyRm5LS09pVlhreEF5dW45b1RoZjJpaUdraFEzblJCLUk1Y2ZjcDlfTjNLMUZwZVQ3UUxiaEhIb2Z6dTQ5T3B1blh4M29yR0tzSm1QX3ZhWDJaNENuTDZ0dHlOMUln0gGrAUFVX3lxTE9jQmM0R2llM2Z6TGIyWkp3NW95allFX1JfRTJIOUI5dGVnNkVhdlhJV0cwOEF4QkkxejljR0JFQmlBb2NqZGNFT0RuNWRRWnNycDh5d3B1T2RlS1hVdHgweGlwQ3RBaTFra0NYMnZDa2VlcHRZSVpNWFZnYmJoYXQxYmtJdFc0cHo4MW9GbEg0NXlGeVlGZWM1NUtnZFhZcXp2bnlkYy15U3BiWQ?oc=5) |
-| Poll: Most Californians say they’ll vote yes on Proposition 50 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOQ3dEcFY5bXFCdjZBbm13SHBXN2FOaTU1ZWRfRHBlOVRpQ3VsbV93M3NfRE0yaVl6WC1nVjQzZDcxUDdFTXB0ME00MDBkYXliaV9hTGoxRGg0UEpGMXpnRXJmTnNLZFNwRVZXNTMtYWZ2MXVNcGF5c2NXbjZIcjB4dloyRHc5YVRlcHBzRG15Q0dOdVZhNDlESzd2eGI?oc=5) |
+| The East Wing demolition was ‘jarring.’ But a White House history buff sees a silver lining - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNRzJxVVJCRzNiQ0lBX21lSkJLVFRncm05blBGdWE1RGtSVE9jQzkxZFBwaC1pMFpoZVlqZThJUTlyQy0wX0RhNG11MlR4cWpMLXkxS0NEOXJFdWVQTUpMU1F5RjV2M3p3Zm83dFNlSWR3QmcyUmZMLWJuUTdiRGk5YU9Ndmh0bjdTZTVCWnBGNk5QcGczMVhiRmNaeGNJMDNVUUllOW05Ylc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
