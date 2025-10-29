@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 05:56:33（北京时间）**
+🕒 更新时间：**2025年10月30日 06:01:02（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Western Mass. Healey aide arrested; police say cocaine was sent to Springfield state office - The Boston Globe | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOaTBTeGxvMzJuTkNEVDk1VDZlSmkzUzBuQTRpUlpJQVlfV3dseUNLY2lIeThBc0NuemxMNFNKcTNDOU8yZVVfOXVWVUxpX2VUQzRtaEppUF9mVnZlcDdqMkhYSzVaRkViTEVIaENZeUhoalQwUXRtb0YtdUd1V01HS05rY3FFZGFfTTVDYXNab0F5R3F5?oc=5) |
 | Hundreds reportedly killed at Sudanese hospital as evidence of RSF atrocities mounts - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiygFBVV95cUxNWTFCQTFnTkRKVTY2WC1VWTZkVFNtb3JxVEd6ZzU1bThRYXcwNW03V21DZE9vSlVRWlNlTnFMdk1kNW4yN1QtVW1yR05fRDFBcHBEMnljZ0NMcUVWMTRmN3dLS0pyS19tZUhOU3h6TFg0azJZVTIxVE1aN2dmaVFYeFpMWExWQzlDZFVqbmlKUjJMT2hXSkREX2VmT1Fxd0RwaC1jVkpsZElFdzJWOFk0QTh1S1NaNlpIdURjcW44dENuQnR6ZWppYVZn?oc=5) |
 | Death toll in police raid on drug gang in Rio rises 119, Brazilian police say - AP News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQNmVmaFF1STlNWkVzb3U0V2pKWmoxTVB1YVE0alAxUlFBMVVWUVFKMHhzelRRM2gzR0kxV2RBQWhBRGRkWXMxMV9XRVk4cm1OWFFMZWdUV3c4NmFEYk9ENlRjWnBnRWhfajloVVZrWFQxTkVJUUFGbHNLclY4S1BsQVVhVmxaQjg?oc=5) |
-| Democratic House candidate Kat Abughazaleh indicted over ICE confrontation - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPV0VtYndnWjlUVG1JLWp1clQ2NXlwd2wwZkZVZFJqQmJncTMwVlBDQUpDX1V5eEVhVHZUb3l3blktVVJoYm1fMl9IMHYtUDYxRVY3TlY1U3A3a01uUlpkMmNiYm5qMWZMTW1DUEUzMGdZa1lINVJQM1FVX0hqM0hBdWUtNA?oc=5) |
+| White House fires entire commission that reviews designs for federal buildings - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPUXRCcmNVMmxrTndwS3NBR05vclllaVpOVENvRkcyOTAxZi1yV2YtZXA1NVNCOG9TN1lrMjdEZ21vbnFMalZtQ09VNUpIWDZCUlp5NTYtZ2dEOU53VlRiMlhPa0RfaXZlc3NhNFViWXR3UThFNlZQTV9tX2JadE44NFJ1aEE?oc=5) |
 | Democrats ramp up probes into Trump’s $300 million White House ballroom - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOYW1Za1Y1VU1kY2Iyb3p3SVA1MTJHRDhxSE9xS3FJWTBXRDV2WVcwb2t4WWQ1OThSQkM1MDhFc3VBbDlVSHpyU2d0aGhDQUwtSmJWYXFsa1dFdVhtdzBnVUUzcHY0OExwaFhLX21pa3B3Vl9heXdOM0s3bUZhWkNxeXlxdnl3RWYxYXVhQ2g5N014MFRw?oc=5) |
 | Another blow for Trump as judge disqualifies ‘unlawfully serving’ top prosecutor in Los Angeles - The Independent | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxOUXZWYXNfdDdpREswSmVNOUhxVEJWSGR4RW10eFo2RDBnZm9qWk5hTHMxMGtUcmpJXzYyT2pJNjVvYVdnUUNfcUFKcGpMWGRGQjg5b3V1REJ6RExKNXNMa3ItVXExZGJ0cTM3LURQeEpIczlrMGYwQWZ6WmRvMEp0SXREaTZCdUF6bkVycV9xYWl3QnB6UGxFNGpnSzNsNmVvTkc1ZWN3LXZOOVJnNlRQUVU4UzBqdTVacC1YSmNJYVVBR09x?oc=5) |
 | ICE shake-up will increase arrest numbers. That doesn’t mean there will be more deportations. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxPajdYSzM5d1pQZHRBRGZ0TVdzYkJ0aElERmY3WHIzckJnNUE3SUI5cFozNFo5MFZySHF3VXBHQ3haMTN1UjdpN040ZHVVYnBablBxaE9OWS10di1RN3Rkb1Y2U2dWakdBak5lYi1SOVJDRklTeDlBYnNWZGlBcXRUc2I0djVjNjlWcEI5eDB4RURISWdhTzRESW5ZeEJrcnVZWDJycnB2SHMwWlFiX0dWdExqQVpqNHlHUlo4Um5EOGdETDNtVUdBLW5teTZmSzJNRHM5Mm1ORQ?oc=5) |
