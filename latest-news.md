@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月29日 18:17:35（北京时间）**
+🕒 更新时间：**2025年10月29日 18:24:15（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | Trump Expects to Cut Fentanyl Tariff, Discuss Nvidia in Xi Talks - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNc1VmR0VPMlVkdmkwUGVDUUg3OVlZbVVvQmFLdFZkRldQeFpVTmpLSS1vU2s5WHo1bVctekg2dzhZTnlZQ3hBZzR6enNkZmd2N1dvbWxES09aZzdqcWp3NXRGNE9FOVRDN0Q2OGNGQmpidUZkb3ZsLXBZRWVld1psVTl3NHEySzdKNElhVHFwdXhmeE9tTTFla2tIVExEX1JkZThjWVItNUhWRjBY?oc=5) |
 | Woman left behind by cruise ship on Australian island found dead - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5Ebkk3aXdET1hRQ05MdFU1QjE2U1hFMUo1a3R5dll2VWJKdDVWMUJMd3BsaVlYV0VSTk1kcHZvSGdjYUpmWjk2Nm5TRVFDU1JiaFBzQjMyU3V5d9IBX0FVX3lxTFBBY2xQczlfLTNGdzUyR3M1bGk0X1BpQnIzd0dDMUl2Y0stLV9DaEtFUW1lZndzNEtkSDJCeEd3VVVGVzAzMFlQaDg3cGFEVVR6TUhIeXprYTdxbHVhMmFj?oc=5) |
 | Judge orders Border Patrol's Bovino to return to court daily, wear a bodycam, follow rules on tear gas - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNOHhLcVhTSW9XQV9XWWcwS3JsbjhmZnRrRHMtb1BvdmtONVpGWlh0RGZJWEtnSVY3MlpyRm5LZklkMU9tV0U1Y3VxWHhxQWIyMHpsTldSZDl4TnFqOV8zUDhvYmFJMUhncGhsZTlOcUNJNTVnTy0xZ2hRZnZLSXMwc2RqTGphZGVXYXcxeDJqUnFqc3h6WWtvaF9B?oc=5) |
-| Federal judge rules U.S. attorney in California has been 'unlawfully serving' in role - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNcW55MDFQOXZNaGNhOGFaUHc0bDRMQzhacnRqWVNJZXpRdXpHR1cybHl4OGw2cWU5T0RQcllzeDRCdl80Vzh1NDc3QUFuU2VWWlFOY1dNTFVlZmE1WXZxazcyOG5WYTNDZ21rZHBjTUFRLTh6eE0zLUI3MWMxMXN6RGFSZ3A1RTNoTWlNX2lRdk5yTllRc3VTejd5YU5ueFhFeGh5VFRVNXc4TFdOT0hlU1Q3Z01zZE1mWVk5M0VlcW52WEVSVk9OSNIBVkFVX3lxTE5pclZ0WGZQbjRrRzI4VF9WejhJLUl6RjNwek9XRWo2dnhjcUtIaHFRa3JfZVJTWk5zTzVQaEJ6c2FVeGVibnVvbnUtOGpxaDVYMXFkbmtB?oc=5) |
+| Federal Judge Disqualifies Trump-Backed Prosecutor in Los Angeles - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQd2pfQjVOQW9oeE5RcWxtQ2hhbHlZRzVnVUl1ZUoxMkFwU0pmN3o2TzNhNUdqTWdMeDdQUnZjeEF2SFJXS1VEaTZwRTkxNy1sLVVxUlZJZUFFcWdBM3MxbUlrSzdDZUJWMl92a2hkVkpYRTJldkl0T3E0ZVI2Y1Nlb2lpRTBRUktOZDUwOHR0NA?oc=5) |
 | Democratic states sue to force SNAP payments during government shutdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPc3RQSlV0MDdhMUg5UHVtUlcwTG5Ia19mSnZNMHBwZDBfZk0zRXRYQzBySjlUZ0QxdHk1RG9wcDB1bDR6LThnVVljS19aMC13dTBFUkhPcXQ3MVdIdlVwTmc2dGZBU2pCMU9LZDRvX3lVakdmRmVVYkV1TGthejJoR3BNOXlfTHo3NTZrSHhyNnU5QQ?oc=5) |
 | Senate Republicans deal Trump a rare rebuke on trade with vote against Brazil tariffs - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFBfSUkzdXU4ZHdNemppY2tYZGtKZlNXWV95YjVId1VqZ19va0VsNEVMWkNSSmUzekZBT1QzZTJOakhBaVdZaS1qRzlJYmRpMC1QdUJvUWU2bGNZUGJYbktWeThwLVdxT1J5YWladGFER0tBcWEweGxWT2dR?oc=5) |
 
