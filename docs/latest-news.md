@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 01:24:52（北京时间）**
+🕒 更新时间：**2025年10月31日 01:33:58（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | Alleged McCann stalker cries and tells court 'I just want to know who I am' | [阅读全文](https://www.bbc.com/news/articles/c4gkvrww3yyo?at_medium=RSS&at_campaign=rss) |
 | Israel receives coffins Hamas says contain two Gaza hostages' bodies | [阅读全文](https://www.bbc.com/news/articles/c4gj90j2g8jo?at_medium=RSS&at_campaign=rss) |
 | Lily Allen to tour new break-up album in UK theatres | [阅读全文](https://www.bbc.com/news/articles/cly91q251ljo?at_medium=RSS&at_campaign=rss) |
-| Backstabbing, dirty work and an iconic exit speech in Celebrity Traitors | [阅读全文](https://www.bbc.com/news/articles/c98n7k67y95o?at_medium=RSS&at_campaign=rss) |
-| Reports of mass killings in Sudan have echoes of its dark past | [阅读全文](https://www.bbc.com/news/articles/c20pezegv1zo?at_medium=RSS&at_campaign=rss) |
+| Watchdog slams O2 over unexpected price rise | [阅读全文](https://www.bbc.com/news/articles/cd047vl9ylpo?at_medium=RSS&at_campaign=rss) |
+| The witches of Dumbarton - tortured, executed and falsely accused | [阅读全文](https://www.bbc.com/news/articles/cdxr0ez1py1o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
