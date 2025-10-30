@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 20:01:48（北京时间）**
+🕒 更新时间：**2025年10月30日 20:08:28（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Cruise operator 'failed' woman who was left on island and died, family says | [阅读全文](https://www.bbc.com/news/articles/cwyndvj3640o?at_medium=RSS&at_campaign=rss) |
 | First UK phones to get satellite connectivity in signal blackspots announced | [阅读全文](https://www.bbc.com/news/articles/c993m88jer9o?at_medium=RSS&at_campaign=rss) |
 | Lily Allen to tour new break-up album in UK theatres | [阅读全文](https://www.bbc.com/news/articles/cly91q251ljo?at_medium=RSS&at_campaign=rss) |
-| How China really spies on the UK | [阅读全文](https://www.bbc.com/news/articles/cgr4xpyrkdqo?at_medium=RSS&at_campaign=rss) |
+| Backstabbing, dirty work and an iconic exit speech in Celebrity Traitors | [阅读全文](https://www.bbc.com/news/articles/c98n7k67y95o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | Former Illinois sheriff’s deputy convicted in killing of Sonya Massey - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPWHVnSnZrZVBrbTFVX0lwdlNDZVRrd21IQzRFZWRkSTE2c1ZyankwelA4bjBFY3A0b0tnR09KY3diN1M4U3pZVEhoVXVMRy1xdHBaakR5T0VuNy0tSE5vdjBkUml6Q0N2bGFUX1c0V1Qtb0laczdaN3FXOVJ6V3dQbVM0NVo?oc=5) |
 | Farm-state Republicans finally reach their breaking point - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNNENPZ00zOUphZ2pBNlE1dmNxU3oyblBBNXJVV0kweWtZR3IwM18yR3ZhWmtkd3J1WEtiMlU3dVl3b1BxQ1ZUbjU2NU15cXNQVVpMSDlnOVB0LTE0WUZKZmFNMGJEN2hiMDl6Ylp1ZnpEYlY2RHlaY2NuTW1sYTFHMWUzUmVzRHRVSWlNQndyTlZfYXRmeWc?oc=5) |
 | Both Democratic and GOP-led states are starting to rebel against the national redistricting push - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE4zOHYxZUIyMVJjZ0lUUmhXRS1hOFJ0M0JVa29fN1c4WFpvQldYWTJYdWEtN2VCNTJLeXZpX2ZReldWNXJlWE9iQ2lQSEJibjhfX184OXhXdVVrbG9PWHlYa1ppVk45UXJRWVp0YlBHNGRJX3czLUlieg?oc=5) |
-| Testimony is underway in a $40 million lawsuit over a 6-year-old student shooting a teacher. Here’s what we know - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9uNTNySEJ5Zmg1d0p6ZG01cFVaMDhCWVVsMzkwaEVtWEplX05XNGFURHJkNUloZXN2YU0wazh2bXN1Vjh5VDliTVljaVluMlIxVDhheEpuYlB1Wkk1N1Z2WXlBTVZ3cXB4aW9GYUVFNXl5TEdHakZ4RFN5RmRrdw?oc=5) |
+| Late Night Shades South Korea for Giving Trump a Crown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPdGtXc0xkem1SRlNHakFUMVp2M01NMzljUWUtNTU0X2NrWV84bzFCR3pFdEhuUDZ3X2RIVG02Nm1tcm9qV19yNHh6cEhITnBJLU55elVEWUxsbXQteEtHYUJXV2tEQzRPSDUwV2hOOC1kMVo3emFZVm5HUlA2NkhqNEFmalhlc2JJQ2d2RHZwb0lPMGhO?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
