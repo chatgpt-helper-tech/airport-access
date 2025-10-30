@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 00:41:02（北京时间）**
+🕒 更新时间：**2025年10月31日 00:49:44（北京时间）**
 
 ---
 
@@ -10,9 +10,9 @@
 |--------|-------------|
 | England's most deprived areas named - see how your area is affected | [阅读全文](https://www.bbc.com/news/articles/cly137089yyo?at_medium=RSS&at_campaign=rss) |
 | Man dies and three injured in helicopter crash | [阅读全文](https://www.bbc.com/news/articles/cx203g3j416o?at_medium=RSS&at_campaign=rss) |
-| Trump hails 'amazing' meeting with China's Xi but no formal trade deal agreed | [阅读全文](https://www.bbc.com/news/articles/crl25xl1gjpo?at_medium=RSS&at_campaign=rss) |
-| Xi and Trump find temporary truce as China plays longer game | [阅读全文](https://www.bbc.com/news/articles/c8eyx718pz2o?at_medium=RSS&at_campaign=rss) |
+| Xi and Trump find temporary truce at meeting as China plays longer game | [阅读全文](https://www.bbc.com/news/articles/c8eyx718pz2o?at_medium=RSS&at_campaign=rss) |
 | William and Kate win legal battle over ski holiday pictures | [阅读全文](https://www.bbc.com/news/articles/crmxevlye9po?at_medium=RSS&at_campaign=rss) |
+| Health officials worried as flu season comes five weeks early | [阅读全文](https://www.bbc.com/news/articles/c20pe6llg2zo?at_medium=RSS&at_campaign=rss) |
 | Reports of mass killings in Sudan have echoes of its dark past | [阅读全文](https://www.bbc.com/news/articles/c20pezegv1zo?at_medium=RSS&at_campaign=rss) |
 | Alleged McCann stalker cries and tells court 'I just want to know who I am' | [阅读全文](https://www.bbc.com/news/articles/c4gkvrww3yyo?at_medium=RSS&at_campaign=rss) |
 | Israel receives coffins Hamas says contain two Gaza hostages' bodies | [阅读全文](https://www.bbc.com/news/articles/c4gj90j2g8jo?at_medium=RSS&at_campaign=rss) |
@@ -30,9 +30,9 @@
 | Poll: Voters side with Newsom, Democrats on Prop. 50 — a potential blow to Trump and GOP - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5Wckl3a1ItQTJPcG9NaUcxXzhKYnJSTWd2Zmwtcmh0LVd4SjA2LUY2UTRnLUhzTW1iZzRQSDZtRktHcFBlb25IcmhrTjFnTjZvSG9ILUxzMHNoOE1kR3RPTGFCMnl4Zi14UXRYblhlcDRiendfMFh6eGtQdw?oc=5) |
 | Elderly cruise passenger found dead after being abandoned on tropical island - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxONXhYN3Y0Vlg4Y1BTV3dKcmhyY3dFc1hiamlpWVlUcUVnbDRVbTNZRURFMmt1czgzNHc2XzBVWjVtcEU2eEVGbXk1R1NjZThEMnFYeHp1QlpJVXRCUXRweld5YjN1XzJnT0tmeVluV0hrQi1BSlhCZ2dnd2lUZ0ZKS19BV2VMVWpCa1RIZUNzeFdTNDEwWndVbWRSMlRjeFVhM21wRUV3c1hPNFprb3YyVHo0NNIBVkFVX3lxTE1uMkV5Nm04Z2NZaHMxR0J5b1lJOUp5WllSQmhEd3VGWEpKQU91Y2ZDNW5UYXY4dmRVbXRXQW5uMFhzMlN2eTdVQ2pPOWd6RGx1R3hjcmx3?oc=5) |
 | Sonya Massey's father expresses anger after ex-deputy convicted on lesser charge in fatal shooting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxORjFsUkM4RFFmTnRCNjZiSEZWRk1ISDdtMFpsbk5qR3o2Z1lTb1hJOE9FUEotUWZRaDl4TkVnQlJYVmhteC1INGY0b2tkYVNYMTFNakIwaG5VRWVXVS1mTnREelhwZC1uRklnZFZjTHVGQzNmRDdiYVpQVHBBTzItY3ZoN3VJdkNvZnhlazF3RWdhQknSAZgBQVVfeXFMTjBMMHN4OHM2TE4zNmpRODJwbmJ6RjY3VmN1Tzg2U19GSE02cm5RNnJuYzNCMmVFc2I5UE1jWjJmMFI2a0wzN0R5ZGRQSDY3NVdJQm5ZMHFMdEdVbF9jZ2tDUHJGaDR0eVZLSzFVZEMtLVNtR3JmdVh1blZMTU40a3V5YjJJeW1DUzQ1SnBhVmJPaWtRMGtHTjg?oc=5) |
-| Judge to consider demand to force the government to keep funding SNAP food aid despite the shutdown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPOWdsRWFPamg0cjlqeUU2ZmNjY1VQRjhsTXJvc2tsMndEUnpwRFJmX2dTa3g4V0dOUkplQmxHNVFFT19oZktDajY2WGllalJJdV9MR05pWlZsZDczMFcxUVJOdGlQSjBXaUdhZGtnUnMwdXBpSHhsdV80UV9ocjlRQlFXancxMV9lMnY5MkxaWmdoOVZxNmFqeHctZw?oc=5) |
-| Farm-state Republicans finally reach their breaking point - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNNENPZ00zOUphZ2pBNlE1dmNxU3oyblBBNXJVV0kweWtZR3IwM18yR3ZhWmtkd3J1WEtiMlU3dVl3b1BxQ1ZUbjU2NU15cXNQVVpMSDlnOVB0LTE0WUZKZmFNMGJEN2hiMDl6Ylp1ZnpEYlY2RHlaY2NuTW1sYTFHMWUzUmVzRHRVSWlNQndyTlZfYXRmeWc?oc=5) |
+| Trump Administration Tells Court It Has Money It Can’t Spend to Prevent Food Stamp Cuts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9VeUU1RXpISWFsNU9jcUxLd1p2dTd6YzdhN0E3M1lVVEpsYnZKYXNldDd5MWdWWVRqbDlQSFhqV3Q1d1ZRRVB3bVZ2VUMxRFhacmlIWWlZdEt0V2Z2LXRJekZ1bWdkbURzVlJ5cXQ4cm1ZeHZCcDNMZWlsbVY?oc=5) |
 | Spanberger courts Trump voters in rural Virginia - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNTmQwWGlZT2RKVDN0eTBaNERlX1BHZmE4dmstRk5Kb0FkdGtGOTlQQXRKSVRPcjdRb1JIeFZieEZ4M1BIWXgyb1Q3M0hHejhwLUZscUFaSXNvWFM4WmQxdjlBOWVyZDlzZmYwLVlqWGNSVE5oSWRyZWNVTzFCX0tJWnBZYnV4SmRhM2tPeDZyZDRTNkZhYnFvX0JTS0xLTFk4eWd3?oc=5) |
+| 14 Republican lawmakers say Argentinian beef imports ‘undermine American cattle producers’ in new letter - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOYlE0aVVVLVgzaHhrSEZ0Q0c3Y3lKWFVkLW5Zb19NUjBDeUNVdjl1Vk1lY0RrYWxMc2pMbjFWQWFoWkRxY1VYRXBBYTRMUm4ybnVBQ0xOT05UT0oyUHV0eTh6R21SbVl5NVZkWXdCcmYwdDR5MG1tRUhvdWFCMEYyeVpPejdfQXZFZnpVU0VoNXhiZWpvQ2NHblBFd0hucWl2ejB3MG1nVUJVaEtlQldsZFdWOEFyOUpueEszWnd3RXktRDjSAcgBQVVfeXFMTzdQYTlwOS1aTlplSl9vbkI3VmV4WEZqUmpGOUNQQWtMMU1ubXgzeGhSY2hNTFFNOFJLemhhRmtfbzNYQm50a2xxTVNHZHlaWW8zOWZCTmkyYzRDTTdJMHRtUGJqenJxeWVybkR1cFBWanFsUFFWTzVoSnlDREIwX1hVazdqWkVpZXJEOU1aQUk0bDBDb2lnWGRRUTYwamNTN1lDekVPOW9FNlhvbHF4UERaT3d3d2ZxZjhGN2x3OWZHNGlTZTFNYV8?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
