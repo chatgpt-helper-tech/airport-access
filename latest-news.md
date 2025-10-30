@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 06:08:10（北京时间）**
+🕒 更新时间：**2025年10月31日 06:17:49（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | What we know about Andrew losing titles and Windsor mansion | [阅读全文](https://www.bbc.com/news/articles/c5ylk9r336zo?at_medium=RSS&at_campaign=rss) |
-| Buckingham Palace statement in full | [阅读全文](https://www.bbc.com/news/articles/c0qp75z3dw4o?at_medium=RSS&at_campaign=rss) |
+| King's statement on Andrew in full | [阅读全文](https://www.bbc.com/news/articles/c0qp75z3dw4o?at_medium=RSS&at_campaign=rss) |
 | Moment Question Time audience claps as they react to news | [阅读全文](https://www.bbc.com/news/videos/clyz6m8ml71o?at_medium=RSS&at_campaign=rss) |
 | Letting agent apologises for 'oversight' on Reeves rental licence | [阅读全文](https://www.bbc.com/news/articles/cx2p55ejy88o?at_medium=RSS&at_campaign=rss) |
 | What the Reeves emails tell us in rental licence row | [阅读全文](https://www.bbc.com/news/articles/cj41y1ze9jyo?at_medium=RSS&at_campaign=rss) |
@@ -30,9 +30,9 @@
 | Before and after: Satellite images reveal hurricane devastation in Jamaica - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9ROEt4M0dIV1dCb1N4M2tfOFo4MXJ3Vy1XemJMMGI3bUEwb1E5b2RPZGNicnNtRHd2N25yNFFja1BjVElEOUNhLWUtMUhkRjZKZWFKazRaeXp5d9IBX0FVX3lxTFB1QlhLalAxSlpQWEREOExMRU5mUVpIM01yaXFySUJ5Z2hXdGg4UC1NTDc0NXV2Wk5GNTZJQVFJOVMzWUFlcHZaRGlCVjhrY3pKT25xazlJZktTQllpVmdv?oc=5) |
 | Dems rage at "unsatisfactory" Trump briefing on drug boat strikes - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPT1V5UzUzMmpaOXZEbnlwN0hLLVdfbjRfYzlqZVFabnZBd3pQYXVGOGNjRzlicVhBcEZJNDUtdjRmRVo3dThrUm13MVBFdFdHTkhwclNYMnEwVUcyNFc5Zm9YMW1fTFpUSlBfOHhDMkJPYU5vSTVkTjAyM0N5YWVNaV9hM24ydEg2?oc=5) |
 | Trump-appointed judge praises prosecutors placed on leave after calling Jan. 6 a 'riot' - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNVlFwNnFIMnJzNkRYbGhCNjhvakdUbWl3V1hMd0RpZnBkd3p4dlNweFR4QVl3ZDBIemM5TEIyM3NteGhDcHY4QXBhX0Y4RW9wRjVsdzRhWmJMUVRXVGg4X2JhN0dmLTRfTlVZNnZYN0ZHYVVyRE1QaGQ2QlNpZXZFMjk2UnlzR1dwRTc0ZGtqSGZvY1lER1lWUkJod3lXRHRwMzVHS3dNb1RsWVpxV1czLXFOd0FkZ3F1WjN0Zk5aZWg0bjhhczl3cVN5SVY3Z9IBVkFVX3lxTE54bVIwWkFPVE1CY016QzBzc0tWbVRPZFhPOTlERmgySXJuZXV6bV90ZFJGQ2VscTNaV1RGWXB2MndSMVVSVDVYeXdMaVhsbi13YXd6dzRn?oc=5) |
-| Spanberger courts Trump voters in rural Virginia - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNTmQwWGlZT2RKVDN0eTBaNERlX1BHZmE4dmstRk5Kb0FkdGtGOTlQQXRKSVRPcjdRb1JIeFZieEZ4M1BIWXgyb1Q3M0hHejhwLUZscUFaSXNvWFM4WmQxdjlBOWVyZDlzZmYwLVlqWGNSVE5oSWRyZWNVTzFCX0tJWnBZYnV4SmRhM2tPeDZyZDRTNkZhYnFvX0JTS0xLTFk4eWd3?oc=5) |
-| Teacher suing for $40 million after being shot by her 6-year-old student testifies in civil trial - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQUm9WVWJXalBZZlQ3VjdMdDJFYXBoVkZSZVlvcGJsa3IySlIzeGlUMGpVZmtUaHd6bHR2aG5zbElBcjVNbkdnaGJ3SlhpaGI0TFU3Yl9xNFZxYUlVTFVjbnVEeVNLdmNWWGlNd0dvNWljSUxPeW5fQjBNa3VEYVRGOFBJcWo3Tk80bHFwNHptQWfSAZYBQVVfeXFMUEl0Rm9xUFM4WjQ4Skk5OG02OTRrMlF2Tmo5OEZvdG53OFBzbVZ4Z1lWbDlQMWZPSFlFdW5YcXVwRG9XZjRoYzlaZHhKbnJldlVHTlhXektzbWlIMnhxV2syT1phMkhqdVNKX1Z4eEZKRTJyWktrNkhsRVdFX3ZmTC13U0JhSGx5NXhKdzBkeDQ0UHVWd3Vn?oc=5) |
-| Here’s How Much Obamacare Prices Are Rising Across the Country - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPMUpURXkzSF81R196RWdkbFhqS2gwUVRyWk1kWExFb3RTWVhtSjRxd0tqb3NzOGRyVWlPcHp5am9Sa1BIMnhUeUZFNGZneEd1RnRaZ1hWNFExY2o1NkQ1NVNzdEp4UDRwYmV0TXlNd28tR3ROZExkTk1wZFdMTTBBeGJweERUb2xXX1JoSGt0WkZ2dG8?oc=5) |
+| Zohran Mamdani and Democratic Socialists prepare for complicated partnership - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOckZUWnZpa0UtbHJSZWtQdFk2SkxGT0JDM3duM2dPek9jbHFPaVNPa1d0aUZmTFBMbWY0N3dGWUp2Y2dZQTJWS1BZM3BLeElHaHhGLXBlQ1ZXRkIzY1RjMEg3ZG5sNHlpa2FCampwM2NkSGg4ZGZaTmF5YW5wc1Q3Q2hEWWpkRUZiV016Yg?oc=5) |
+| US Senate votes to end Trump’s global tariffs on more than 100 countries - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1qckNIUWdtNnVhazREOXZlSFAyZ1dyTDRWRWxJZmNxMFh1WDdjSjhCMi11Z2ZrR2dGQmRLTUxaUDVwa3FxUnBFTG9reDNCSHhYZGJ4WHk0aW9hUk5UMlpqekhWckdtcEhJSGpKMlRTWnpMN2d0X3ZLLVJhTzg1Zw?oc=5) |
+| Abby Zwerner, teacher shot by 6-year-old student at school, testifies about shooting: "I thought I had died" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPTUFkQW1YdXN3YWI2cVZvT0Ria3F6UC1nZkRCcXF0SnllWHBMbS0wRmpRNkRRQlNmSWlnYVlyRy15MGVOY3BydmdLQTZ5MHdEeXRqZ25SMjJYVXhyTWR6eHhZYTJ2dmU4MWJYcWR0MmZCR0d0YTZWcUZ6M3BSRmpPTzBtZ01wdWlOY1dYLUIzYnpKaXdGTzVR0gGcAUFVX3lxTE9wenBPYVhUMkNneEFPMnozTjVBZ3NvWDFVT2JhUkwzdVc3WVhDdWhlSC15Z1dieHViUW1HNmZjM1N0WEhxbzF0elJydFRqd0hUYlgtNElqUTJUajhld0x4enprVmM0TTZ1OTJiWHAwaFJIVkNWckhUYy0ydHhGVHFVVzBmN0txSjJfQUVyQlA5SWhoZEVROVJ4WUVyRQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
