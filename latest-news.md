@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 16:33:43（北京时间）**
+🕒 更新时间：**2025年10月30日 16:41:03（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | Homeowners plagued by damp urge government to fix 'botched' insulation | [阅读全文](https://www.bbc.com/news/articles/ce8g3018krro?at_medium=RSS&at_campaign=rss) |
 | Why the real national security threats China poses today go beyond human spies | [阅读全文](https://www.bbc.com/news/articles/cgr4xpyrkdqo?at_medium=RSS&at_campaign=rss) |
 | Backstabbing, dirty work and an iconic exit speech in Celebrity Traitors | [阅读全文](https://www.bbc.com/news/articles/c98n7k67y95o?at_medium=RSS&at_campaign=rss) |
-| Thousands on benefits could have energy debt cancelled | [阅读全文](https://www.bbc.com/news/articles/c4gpzynky88o?at_medium=RSS&at_campaign=rss) |
+| Cruise operator 'failed' woman who was left on island and died, family says | [阅读全文](https://www.bbc.com/news/articles/cwyndvj3640o?at_medium=RSS&at_campaign=rss) |
 | First UK phones to get satellite connectivity in signal blackspots announced | [阅读全文](https://www.bbc.com/news/articles/c993m88jer9o?at_medium=RSS&at_campaign=rss) |
-| Trump directs nuclear weapons testing to resume for first time in over 30 years | [阅读全文](https://www.bbc.com/news/articles/c4gzq2p0yk4o?at_medium=RSS&at_campaign=rss) |
-| Dutch centrist liberals neck and neck with populist Wilders in tight election | [阅读全文](https://www.bbc.com/news/articles/cpwvy4w875vo?at_medium=RSS&at_campaign=rss) |
+| Thousands on benefits could have energy debt cancelled | [阅读全文](https://www.bbc.com/news/articles/c4gpzynky88o?at_medium=RSS&at_campaign=rss) |
+| 'I'll never forgive the woman responsible for my wife's paddleboard death' | [阅读全文](https://www.bbc.com/news/articles/c9wv8gpneywo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,9 +30,9 @@
 | Two Louvre heist suspects 'partially admit' involvement, prosecutor says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFB4TFNEUzNSSWU2YXpaa2dpbmNVbUtPamx4RlV1ZWZLZHdtd1lxYTd2Uy0wQUhBWVZ3Q1VON0stdXVuRm5VQWF6OGVxOEpsQXg0SWM1LUlCcFd2UdIBX0FVX3lxTE0wT2pucFZ2d1ZxUk9qeTIwdFhHbFB2TmJpYk8wQk0weTBwM0hibnRSUW5adVVuWHU2MnFTNUFOallZZTk4czhJQmRhQVpEci1Iejc2ajFfZ3lRSVdfV0Mw?oc=5) |
 | JD Vance calls for reduction in legal immigration at Turning Point event - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPOUVlNlMwLTVFNlpRYkR4YWhIQVdVbjRXdDBGUWVjUHQ1NnY1N2JVazRwejZ2SE1rRnJXdTdTai1IMEF5aDRyTzZyMkNwZmszdXpvTlhXZ0FZSE1tV2VOT2pxNlc2U1pKelFzX0k5VTFHeFZIRFc0bzJMRkpXTENfR19FbGtOWk9SdjJ6c3VRbVRLOW9CcFBtRVYzdUxFT1JlbW9ZSzVJUQ?oc=5) |
 | Former Illinois sheriff’s deputy convicted in killing of Sonya Massey - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPWHVnSnZrZVBrbTFVX0lwdlNDZVRrd21IQzRFZWRkSTE2c1ZyankwelA4bjBFY3A0b0tnR09KY3diN1M4U3pZVEhoVXVMRy1xdHBaakR5T0VuNy0tSE5vdjBkUml6Q0N2bGFUX1c0V1Qtb0laczdaN3FXOVJ6V3dQbVM0NVo?oc=5) |
-| Ukraine war briefing: Putin boasts of nuclear-driven torpedo that would swamp cities with radioactive tsunami - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi6gFBVV95cUxQT2xMYUI2dUNieXhhRWthb1hPa3pSeHdDU3gzX2J0Z2dZcmNXSmduLVp5cG5pOGFoY09xMlNaYjVtQnN3V0lEMXIwVWxnSDI0cjBhY241dkJNdlNVUEhGQ0dqVnViNVhlalFwN2pxS3p1ODhPY05uOHVsQUZ6eTZWRmVEWDFuMFFhZWpPam81TTFQamRTczZUektpY0hHN2pIcjdLY2dCWmZQUWNFaS1xYk83Q2VzdTFXdmlKdFR0MjdyZWxRanNmMWFzMHFSd0M0UWFad05rdmU2cTduNzZfR01zb3Fna1BqaHc?oc=5) |
+| Trump says South Korea can build nuclear-powered submarine - DW | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPR1U4VHBuWUlGWWxtNHN3ZE94T3l0SGlnSUV0ZmNTZXJIdGk0enRVOUZGNmdQVGRmSkxjbUs5enFOb1V5SWhDa2pMTkp2cW1vcG9oMGZJQW1ZLWpjeFZmRWxFcTVDV1hESE80Y0g5T1NEMllxaVZBaGVCY1N5Y2NnUVhvbXhSdFBTa0dYYktubkNsc2xsT3fSAZYBQVVfeXFMTVliUjczalRxNHBpT2VNXzVLOEpGMzZtSmtaZWttdHRkV0JpOEREOWZtTGx4MlJuNWZTdDF0eTVXZmdtTEcyRHU5MjBabVpxMUs5YkNZOWFiOF9lZFJ0WmFqU2MwZElOS04xXzJ0b2FGUTZJYTJyTWdyUXlUQzdMWnJ0bFNXM3dvREwwU2REa2RfcmZhZVZB?oc=5) |
 | Senate Rebuffs Trump on Canada Tariffs Amid GOP Dissent on Trade - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNZjUzUncxZnNxT3RKMWtNMHZZZFFqbXR5VzNUenRzaWR3ZmZQVUJoalJobmNsLXN0NG5oRDBTTV9wN1hwa2FqNXM5Y05KQmh2dXpMaG5oeDlSZldlRjNtRDl0bGczemgyLVJxMkY3Umdad1g4b01SVS1UVFdWekxaaVdicFNEa1NsRGRGVWJZRUpMOWxYRGxUelJpMEJQTmp4QVU3aE92NkRTcFh6emVfSDBYQTlIdw?oc=5) |
-| Government shutdown continues as senators express cautious optimism about talks - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOb193QllWRkh4WTdjTUoyMk0tdjN4VWNLRUJrSnJrdzUwTW5PTUk4XzlMbjkzb3NraDZ5eE9ZV3lkUDV2MjNkX3pvUUpyVG00YjZoUGR2S25lb3pBY1RnMXlvNm1TYmFQVjhpQWUyNV9LTDlQQkdUakYtbWt1c0ZYcS1tRXo1QV9ucVhZTWtVQdIBlAFBVV95cUxQekpVN0NURkEzbTBXOGFETHV5Szc4NEp6T2lxU0UwbHd2RXZSMVdzYnZaQmZRUzUyZWpqRjlJbVd4UzlHTEowbTlKb1QzZTUzNFEyZ3FjM0oxODRQaTc3RElrYjBZMndMdE05UWE3c0VVaFRFSE1LaEJtQll3aU5PbTR1cHNROUtKTURLYzhzdnhxX2VH?oc=5) |
+| Jury convicts California activist who took chickens from Perdue Farms plant - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPS3ZOTWJ0czRreXViYy0wSzJVdWZRdFJtTy1jVXpLQTZkYnpwVkhKSzdYaUUxTkNrOW1BLUVuR1pqTGhmczJzZVh1bEIxbkhhZG5KMmt4UFQ3SUllUWZwc0tDME95Ri1qNXRHb1lYSll5VWw1OFB1MEZhYjF3WS1ON2stQjJVUmF1UWRaTzhHWGdtRE5laFlOMkVoSXo2U1M4MEJDcjJpY09mLWpN?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
