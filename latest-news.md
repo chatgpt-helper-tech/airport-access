@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 23:56:17（北京时间）**
+🕒 更新时间：**2025年10月31日 00:02:01（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | How much trouble is Rachel Reeves in over rental rule break? | [阅读全文](https://www.bbc.com/news/articles/cvgkvd3jg2no?at_medium=RSS&at_campaign=rss) |
 | England's most deprived areas named - see how your area is affected | [阅读全文](https://www.bbc.com/news/articles/cly137089yyo?at_medium=RSS&at_campaign=rss) |
 | Man dies and three injured in helicopter crash | [阅读全文](https://www.bbc.com/news/articles/cx203g3j416o?at_medium=RSS&at_campaign=rss) |
-| UK charters flights to get Britons out of Jamaica | [阅读全文](https://www.bbc.com/news/articles/cp8yw58w50eo?at_medium=RSS&at_campaign=rss) |
 | Reports of mass killings in Sudan have echoes of its dark past | [阅读全文](https://www.bbc.com/news/articles/c20pezegv1zo?at_medium=RSS&at_campaign=rss) |
 | I'll never forgive the woman responsible for my wife's paddleboard death | [阅读全文](https://www.bbc.com/news/articles/c9wv8gpneywo?at_medium=RSS&at_campaign=rss) |
 | Israel receives coffins Hamas says contain two Gaza hostages' bodies | [阅读全文](https://www.bbc.com/news/articles/c4gj90j2g8jo?at_medium=RSS&at_campaign=rss) |
 | Lily Allen to tour new break-up album in UK theatres | [阅读全文](https://www.bbc.com/news/articles/cly91q251ljo?at_medium=RSS&at_campaign=rss) |
+| Backstabbing, dirty work and an iconic exit speech in Celebrity Traitors | [阅读全文](https://www.bbc.com/news/articles/c98n7k67y95o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -28,10 +28,10 @@
 | China will return U.S. soybean purchases to regular levels, Bessent says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE0yY3NaZEZoTzZnUG5nZHYxTFZnN3FJX2F5OXFKVUZuLWQ1eFBqSWFDXzBnYkpYQy1nUThHMEJaa0lGNDkyaUs1VXVZenRFdFE5bmZQZlNkcVhjWHF6ZUVPODhxdkZ3REk2S3dtRXA2Wl9Fb1J6RzNaQ1VHOUU?oc=5) |
 | Americans oppose Trump’s White House ballroom by 2-to-1 ratio, new poll finds - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQZWNJYmRQaXJzVkZ5eXI2Vm82MEYtbHJzQlZ0eTcya042TW94cDlkaFhyWmxlcUlqV09pRW9hRFdSenJ0V2J1aUpVa2pzUU5SZF8yYVhLN25SUWxLX2JpY2JidjMxc3R1eUlXWHZOOTJnNkNvaVpaTUQ1ck1kbTlEQ29hRzRnUQ?oc=5) |
 | Poll: Voters side with Newsom, Democrats on Prop. 50 — a potential blow to Trump and GOP - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE5Wckl3a1ItQTJPcG9NaUcxXzhKYnJSTWd2Zmwtcmh0LVd4SjA2LUY2UTRnLUhzTW1iZzRQSDZtRktHcFBlb25IcmhrTjFnTjZvSG9ILUxzMHNoOE1kR3RPTGFCMnl4Zi14UXRYblhlcDRiendfMFh6eGtQdw?oc=5) |
-| Elderly cruise passenger found dead after being abandoned on tropical island - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxONXhYN3Y0Vlg4Y1BTV3dKcmhyY3dFc1hiamlpWVlUcUVnbDRVbTNZRURFMmt1czgzNHc2XzBVWjVtcEU2eEVGbXk1R1NjZThEMnFYeHp1QlpJVXRCUXRweld5YjN1XzJnT0tmeVluV0hrQi1BSlhCZ2dnd2lUZ0ZKS19BV2VMVWpCa1RIZUNzeFdTNDEwWndVbWRSMlRjeFVhM21wRUV3c1hPNFprb3YyVHo0NNIBVkFVX3lxTE1uMkV5Nm04Z2NZaHMxR0J5b1lJOUp5WllSQmhEd3VGWEpKQU91Y2ZDNW5UYXY4dmRVbXRXQW5uMFhzMlN2eTdVQ2pPOWd6RGx1R3hjcmx3?oc=5) |
+| Hurricane Melissa's destruction in Jamaica seen in before-and-after satellite images - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQOVRQamR3N2NGNHlVQWdubVVSNlpNSmpTUlctWTFFc0hCSkZUd1pVMEZiZnI5N2lVVkE0U2NzWm1wdXNUcGgya29kUzNTZm5XazNNTTRxaC1fandLMTUtelM4MzBjaWxVa3gzMUpXSkF5WUhLaVRkeWpFcjh5QWtZbTlkblgydm5OQmRCbEdn0gGTAUFVX3lxTE84VExYdjlFRDZDY1c1ZUZUYlZNVlNjNnZjTG9PdzZNR0JvelRmM09RYmhtVHJHV0MwaXpEbGZNZ21qeGZHMUJlY3RRYUppOE9rTGJneFlPa0NhV0tUclZmbTYyZUtDUzVRYmpWSHNXblk2VUVtOHdlLWhKR2ZOVzhSMGRyUEczOEhHaTBfekpTWHZNYw?oc=5) |
 | Former Illinois sheriff’s deputy convicted in killing of Sonya Massey - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPWHVnSnZrZVBrbTFVX0lwdlNDZVRrd21IQzRFZWRkSTE2c1ZyankwelA4bjBFY3A0b0tnR09KY3diN1M4U3pZVEhoVXVMRy1xdHBaakR5T0VuNy0tSE5vdjBkUml6Q0N2bGFUX1c0V1Qtb0laczdaN3FXOVJ6V3dQbVM0NVo?oc=5) |
 | Food Pantries Brace For Huge Increase In Need As Feds Cut Off SNAP Funding - Block Club Chicago | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQT2dPRjA3NTdvNGdTcGwyMXhfWmdzam9mRHpFV2dtYkFCaVdDMEZrTmdmQTJhR21kRVBZaExiRnJuSzFNclZaZXVJVmZfb2ZIMG5TLWtjQ2VVNWx3X3AwX1lxR1BQZF9GcVl5OHVpd2h5Z2c0anNFcm54RFdiaVRESTVLNDZlOHdFbDZiektYSXJ5M09JNTlJaFdHNGhpbjR1UmFVY0ZFNHo1NTA2M09PN0N6ZzJOUQ?oc=5) |
-| Farm-state Republicans finally reach their breaking point - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNNENPZ00zOUphZ2pBNlE1dmNxU3oyblBBNXJVV0kweWtZR3IwM18yR3ZhWmtkd3J1WEtiMlU3dVl3b1BxQ1ZUbjU2NU15cXNQVVpMSDlnOVB0LTE0WUZKZmFNMGJEN2hiMDl6Ylp1ZnpEYlY2RHlaY2NuTW1sYTFHMWUzUmVzRHRVSWlNQndyTlZfYXRmeWc?oc=5) |
+| 14 Republican lawmakers say Argentinian beef imports ‘undermine American cattle producers’ in new letter - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOYlE0aVVVLVgzaHhrSEZ0Q0c3Y3lKWFVkLW5Zb19NUjBDeUNVdjl1Vk1lY0RrYWxMc2pMbjFWQWFoWkRxY1VYRXBBYTRMUm4ybnVBQ0xOT05UT0oyUHV0eTh6R21SbVl5NVZkWXdCcmYwdDR5MG1tRUhvdWFCMEYyeVpPejdfQXZFZnpVU0VoNXhiZWpvQ2NHblBFd0hucWl2ejB3MG1nVUJVaEtlQldsZFdWOEFyOUpueEszWnd3RXktRDjSAcgBQVVfeXFMTzdQYTlwOS1aTlplSl9vbkI3VmV4WEZqUmpGOUNQQWtMMU1ubXgzeGhSY2hNTFFNOFJLemhhRmtfbzNYQm50a2xxTVNHZHlaWW8zOWZCTmkyYzRDTTdJMHRtUGJqenJxeWVybkR1cFBWanFsUFFWTzVoSnlDREIwX1hVazdqWkVpZXJEOU1aQUk0bDBDb2lnWGRRUTYwamNTN1lDekVPOW9FNlhvbHF4UERaT3d3d2ZxZjhGN2x3OWZHNGlTZTFNYV8?oc=5) |
 | Senate postpones confirmation hearing for Trump surgeon general pick after Casey Means goes into labor – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPZ3FwWFhaalNIMm5YcUcwT19rNTVhdWRkM3hEUXc0QzVtRnIwZDV5cWdycThjX3dTWjNXM3RaS2xVN1JkOFpoQmdVZXlvMGxyMDROV29NXzFKVXRfNEtLeVRFeHJSZVF0c3l0Y1NjSEdvS0tIeHlqZTU1V3RMdXRCUWk2b2VGQkVXTkQ0dEk1RnI1N1hGZUk2QTYzUQ?oc=5) |
 
 ---
