@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 02:17:31（北京时间）**
+🕒 更新时间：**2025年10月31日 02:24:25（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump cuts tariffs on China after meeting Xi in South Korea - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQbFhKTE9obGI4bzBOa2VkejRidUg4UlpIa2ZnX3Q3V3RMN0F3ajdhdEJ0aDhtT1F1b25zWkRfdEMxRW90cHh5X0lGS01HRWo2Z3NZTVczNURLUy1sblFoVGJnV19QLUlXTEpWeTJFd0FrLWhEWXREODNuN1oybW12NHdjYjNnNV9WSzVaTg?oc=5) |
-| Trump directs Pentagon to test nuclear weapons for first time since 1992 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQNlZyTTVfLU9sSTJFbHVUZkpESFFFRkt6ek1Lck1LY1MxUVZPRjFQYktGYWxUTHRQUWdITXVfMVJqRGhLSDN2bEJVUjR5YUtLSkhsdjBDaHFZcG05dmFHVGZTRkMxRDRnaXZyaVdCMDd2MWxqcVBrWDRVSlJzZWFPM0F3?oc=5) |
+| Trump cuts tariffs on China after ‘truly great’ meeting with Xi - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPZlpNTEdyYnlfbXJxcjNtRXBBd3E5Z2stazBoQUp6b2MyMXZTMFZUSTRxdS0tZWpOckNiRVVrMnhWV05MNnR6WHM4M0Z3VkhsdWRCVm5WWTZ3RkZCdm5GNGdqWUxWVUhHaVRLYmppTkZiZEQ5cFREeFBwSWo4d05oZjBIb0hhUTA?oc=5) |
+| Trump says he wants to resume nuclear testing. Here's what that would mean - NPR | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTFBSdmU5Zk1KOVY0cVVBbkdsVnRraXVSdE9Obk1JV1o4QXI1OVo3aEUwQTJvTXE4TnFWSXlITVZ5RC1GbTBNaVRoUmxVQ05iQzBxVm81Q2RPYkFzYndtX3dOejMxVk45V3h5U29SVkJBVmQyTnU1?oc=5) |
 | Trump Administration Tells Court It Has Money It Can’t Spend to Prevent Food Stamp Cuts - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9VeUU1RXpISWFsNU9jcUxLd1p2dTd6YzdhN0E3M1lVVEpsYnZKYXNldDd5MWdWWVRqbDlQSFhqV3Q1d1ZRRVB3bVZ2VUMxRFhacmlIWWlZdEt0V2Z2LXRJekZ1bWdkbURzVlJ5cXQ4cm1ZeHZCcDNMZWlsbVY?oc=5) |
-| Senate rejects Trump’s global tariffs, the final vote in a series of rebukes - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQV3R2OGwwOVYwOFF6dkRkdEl0ZlJhREJBMW9IeXBYS3R0ekh1YmRDY1F0TnpJUTlSR1p4TXJOSGdZVDdPYmlHVFVBV21scnk2OWdydWFtUldmcV9FUEFSN2o3Wjh0Um5wUEhOWkppZVhlMXd1bEZ5RlNSOUhvMC16UWVxeDNKLVZONElveTRGa2prQnRMVHZPUURsc3liSTU0R2I4Z3pB?oc=5) |
+| Most Americans oppose East Wing demolition for Trump ballroom, poll finds - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPV2NodkNCY0dkNFJoSDJaZGIwdEFlY1FmcjV5c1hFRmhVM3dGSU1nSkFhS2VVTFNOMWZ5dERLNFpvUDZzaE81R09Wb0syMXg4WF85YUtsTjV3Y290VWhDdmROWjYwb3RrdmVQMExoMzJkcHVaMzJubWZsUnJNOTBfaUROb05uRFBweW9n?oc=5) |
 | Hurricane Melissa's destruction in Jamaica seen in before-and-after satellite images - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQOVRQamR3N2NGNHlVQWdubVVSNlpNSmpTUlctWTFFc0hCSkZUd1pVMEZiZnI5N2lVVkE0U2NzWm1wdXNUcGgya29kUzNTZm5XazNNTTRxaC1fandLMTUtelM4MzBjaWxVa3gzMUpXSkF5WUhLaVRkeWpFcjh5QWtZbTlkblgydm5OQmRCbEdn0gGTAUFVX3lxTE84VExYdjlFRDZDY1c1ZUZUYlZNVlNjNnZjTG9PdzZNR0JvelRmM09RYmhtVHJHV0MwaXpEbGZNZ21qeGZHMUJlY3RRYUppOE9rTGJneFlPa0NhV0tUclZmbTYyZUtDUzVRYmpWSHNXblk2VUVtOHdlLWhKR2ZOVzhSMGRyUEczOEhHaTBfekpTWHZNYw?oc=5) |
 | Federal Workers Are Barely Making It Through the Government Shutdown - WIRED | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOQUlUSWwwRmxPa3BaQ2RHdjdUUHdhTFV5Y0x0RXBiWlhQVlNMLS1vdGIxdFBySl9SZjRfQWs1UkhpVFhOR2xFdWlCUURSY21tR0J2cTdqellnQlBMeWp1MnNUREpnR18wWWZUMGRFUUF5Rmx4WEJNLWNEa3R1S1QxTnhtSUhrdXZ1LWlCRW02Q3JwNlE?oc=5) |
 | Abigail Zwerner testifies she thought she was dead or dying after being shot by 6-year-old student - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOcnVjcWhPY1d0eFNmZWpmMnA2bEt3OFJ3eHV6OS1namJ5SVpxdXRlZ1pUci1TMGt2SkJCUmNYUEVIUDM3cGxPenR4bmhUU1c4X1NkM2p0UkFPeUxycWYzcEYxUklMVUx3RW12azJXV2I1LXZIV3Bpdk1wcHBQdFJIVzhKTHVKQVplaXNxenlBUmluRURISVhDY2dsdGFObENnMC0yVEdOclUxV0RNOWxHS0F6XzNGdmllLUHSAVZBVV95cUxOM1JOZXlfNWhGWE83dDd6WlJ2WW1yVlFsZjBWYUhBaGJ4ekpvX3hLNy1NTkdiajdFYS1STl9oQWdNM3BCVDQ1LVIyQlJaM0tkUFN1cnB2UQ?oc=5) |
+| Senate rejects Trump’s global tariffs, the final vote in a series of rebukes - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQV3R2OGwwOVYwOFF6dkRkdEl0ZlJhREJBMW9IeXBYS3R0ekh1YmRDY1F0TnpJUTlSR1p4TXJOSGdZVDdPYmlHVFVBV21scnk2OWdydWFtUldmcV9FUEFSN2o3Wjh0Um5wUEhOWkppZVhlMXd1bEZ5RlNSOUhvMC16UWVxeDNKLVZONElveTRGa2prQnRMVHZPUURsc3liSTU0R2I4Z3pB?oc=5) |
+| Live updates: Trump administration limits refugee admissions to mostly white South Africans - AP News | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9ibnF2U0EtWXVYbm11akY5ZFJOT1JXRk9TMFhoa2ZDbVd4dGYydURzOVIxLVBCT2ZFZUt5OTVKZ3JVdVBEOW8ycjAxclUwMng0OVByWlNaNWRwc3ZlNGF4SjhMTXBaSElkcTE3Tg?oc=5) |
 | Virginia judge lets Democrats' redistricting plan move forward - Axios | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQR0RpOHFmNnJ4bDNZRGF6V1pBSHc1WlVSRmU5ZW94dXFLb2lUZXNtdGJJcXFrVzJ0ZFlZSkZEWWpYbVhpWVQxeDRQWXZ4UllOMmo1bEJXbXY0S3BMR1RmYjZPbDBrWERHX1ZtbVdZLXZERGpiR1ZTaGQ2UWxQbEt6QTNNOVVqVVdBUWVwR0tYY2o4VVJ5X3c?oc=5) |
-| Spanberger courts Trump voters in rural Virginia - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNTmQwWGlZT2RKVDN0eTBaNERlX1BHZmE4dmstRk5Kb0FkdGtGOTlQQXRKSVRPcjdRb1JIeFZieEZ4M1BIWXgyb1Q3M0hHejhwLUZscUFaSXNvWFM4WmQxdjlBOWVyZDlzZmYwLVlqWGNSVE5oSWRyZWNVTzFCX0tJWnBZYnV4SmRhM2tPeDZyZDRTNkZhYnFvX0JTS0xLTFk4eWd3?oc=5) |
-| Former Illinois sheriff’s deputy convicted in killing of Sonya Massey - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPWHVnSnZrZVBrbTFVX0lwdlNDZVRrd21IQzRFZWRkSTE2c1ZyankwelA4bjBFY3A0b0tnR09KY3diN1M4U3pZVEhoVXVMRy1xdHBaakR5T0VuNy0tSE5vdjBkUml6Q0N2bGFUX1c0V1Qtb0laczdaN3FXOVJ6V3dQbVM0NVo?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
