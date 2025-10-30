@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 17:40:15（北京时间）**
+🕒 更新时间：**2025年10月30日 17:48:34（北京时间）**
 
 ---
 
@@ -24,11 +24,11 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Donald Trump says rare earths dispute ‘settled’ after Xi Jinping meeting in South Korea – live updates - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPZ3FwWFhaalNIMm5YcUcwT19rNTVhdWRkM3hEUXc0QzVtRnIwZDV5cWdycThjX3dTWjNXM3RaS2xVN1JkOFpoQmdVZXlvMGxyMDROV29NXzFKVXRfNEtLeVRFeHJSZVF0c3l0Y1NjSEdvS0tIeHlqZTU1V3RMdXRCUWk2b2VGQkVXTkQ0dEk1RnI1N1hGZUk2QTYzUQ?oc=5) |
-| Trump directs Pentagon to test nuclear weapons for first time since 1992 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQNlZyTTVfLU9sSTJFbHVUZkpESFFFRkt6ek1Lck1LY1MxUVZPRjFQYktGYWxUTHRQUWdITXVfMVJqRGhLSDN2bEJVUjR5YUtLSkhsdjBDaHFZcG05dmFHVGZTRkMxRDRnaXZyaVdCMDd2MWxqcVBrWDRVSlJzZWFPM0F3?oc=5) |
+| Trump tells Pentagon to immediately resume testing US nuclear weapons - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPdGpEUFNoN1BxQ0VhUEJHMm4wbHNHZURIbUI4OWdHb2xYTXZ3SDlrXzhLSWNxb2hSX2N0enFmcER6UXdLOG8xWU5PQ3h5MnR4XzZjWmladGhZYkpvendyMTRTVEc5VlVEVWVCOEdWRXdoZVN2dnFfTEtuWkpwcUJSR1BaTHFnX0xDZXNqdTBjS3JHZ0d1dXJZRjJOcFQ4RE5sU1B1bjM4UzdabUhwbE1lLXd3?oc=5) |
 | Hurricane Melissa devastates Jamaica: in pictures - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOaUVhZzZ4WWNscU50NEF5TVROOEZZUWQteEhWRHBQdk9HR3BrOEpyYlItUi1zaUpDY28xYWhfVGhRVEo1MnRSanl0UjJERkdDYkU3M2tNT0ZZekRTRF9XQU84ak1Ya090ZEctM0RhUjhJS193VzdWWFVyU05WTlVJNjZtWTVXdkRBUTUtSWhDRDdLQUluTkhoemNFZWhXX3RBZ0xONHoyY25ZX3M?oc=5) |
 | Dutch centrist liberals neck and neck in close finish with populist Wilders - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5nWUFZaTJhYmxRalJpWTJ0eWdBVE83OUU0TUplMlFwRTg3LWphcnlwVGdBTW5NaVFrR3Z4SmtCbHpYRDlvMU1iaFFvakFWLXpCMWhHWlFjdFZ3QdIBX0FVX3lxTFA1ajQ2ajk5MEVTeW9Ld1drQ3ZpSVJRbkppdmhXNnpHY0lWX0VHM1VoeDZvbTQwSG50czhnc1lYQ0ZPWUl3Q1piQ2FKYXVMMHBNeG5jOFh5UnR4Y2VoRmRv?oc=5) |
 | JD Vance calls for reduction in legal immigration at Turning Point event - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPOUVlNlMwLTVFNlpRYkR4YWhIQVdVbjRXdDBGUWVjUHQ1NnY1N2JVazRwejZ2SE1rRnJXdTdTai1IMEF5aDRyTzZyMkNwZmszdXpvTlhXZ0FZSE1tV2VOT2pxNlc2U1pKelFzX0k5VTFHeFZIRFc0bzJMRkpXTENfR19FbGtOWk9SdjJ6c3VRbVRLOW9CcFBtRVYzdUxFT1JlbW9ZSzVJUQ?oc=5) |
-| Ex-Illinois Deputy Convicted in Fatal Shooting of Sonya Massey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPRGRrVElMQkpGSGpvTTdYbk40dXdVMTRiSUdYM241OUNoSDQ3RVE4NHJ0LWd5NC1FUjhRVFpuenZfbWhFdWJlV0l2aG04VDk0eXoxQUFHSlY0LVFYSjU4dU12clVOMi01dC1tSFM5dnhCN0RCeUdjMG9KQWxEVFQ2aEhvZ1lsNlBrdlI4UE5R?oc=5) |
+| Former Illinois sheriff’s deputy convicted in killing of Sonya Massey - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPWHVnSnZrZVBrbTFVX0lwdlNDZVRrd21IQzRFZWRkSTE2c1ZyankwelA4bjBFY3A0b0tnR09KY3diN1M4U3pZVEhoVXVMRy1xdHBaakR5T0VuNy0tSE5vdjBkUml6Q0N2bGFUX1c0V1Qtb0laczdaN3FXOVJ6V3dQbVM0NVo?oc=5) |
 | Farm-state Republicans finally reach their breaking point - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNNENPZ00zOUphZ2pBNlE1dmNxU3oyblBBNXJVV0kweWtZR3IwM18yR3ZhWmtkd3J1WEtiMlU3dVl3b1BxQ1ZUbjU2NU15cXNQVVpMSDlnOVB0LTE0WUZKZmFNMGJEN2hiMDl6Ylp1ZnpEYlY2RHlaY2NuTW1sYTFHMWUzUmVzRHRVSWlNQndyTlZfYXRmeWc?oc=5) |
 | Testimony is underway in a $40 million lawsuit over a 6-year-old student shooting a teacher. Here’s what we know - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9uNTNySEJ5Zmg1d0p6ZG01cFVaMDhCWVVsMzkwaEVtWEplX05XNGFURHJkNUloZXN2YU0wazh2bXN1Vjh5VDliTVljaVluMlIxVDhheEpuYlB1Wkk1N1Z2WXlBTVZ3cXB4aW9GYUVFNXl5TEdHakZ4RFN5RmRrdw?oc=5) |
 | Jury convicts California activist who took chickens from Perdue Farms plant - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPS3ZOTWJ0czRreXViYy0wSzJVdWZRdFJtTy1jVXpLQTZkYnpwVkhKSzdYaUUxTkNrOW1BLUVuR1pqTGhmczJzZVh1bEIxbkhhZG5KMmt4UFQ3SUllUWZwc0tDME95Ri1qNXRHb1lYSll5VWw1OFB1MEZhYjF3WS1ON2stQjJVUmF1UWRaTzhHWGdtRE5laFlOMkVoSXo2U1M4MEJDcjJpY09mLWpN?oc=5) |
