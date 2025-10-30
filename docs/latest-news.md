@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 02:50:02（北京时间）**
+🕒 更新时间：**2025年10月31日 02:56:48（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| ‘Amazing meeting’: Trump touts progress on multiple fronts with China after meeting Xi - Politico | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxQeU5LblozdEZ3RlJQU01YWThBaTE4QklyR1RCamdGVEY5ZW9LY01lTzhXazk4OXN3X0gzLS1LVE5jNU9RRWJaYmJ2RW40OGljSE1Nb29LUmxNWDdSUUxkb2NoQjFnbEJteFRSYlR5WHlyZ0U1QVVtZURwTlF4RXk3bm5rY0ZGNjZxVGo4RzhaQlNaVjU0dHdKeDdFTjRpWC02UFlCLXIxOFdHNkliVTBPZTQ4cTd2ZWZTMWlpOHZObU11Qy1feThWSDNBRzg4Zw?oc=5) |
+| Trump cuts tariffs on China after ‘truly great’ meeting with Xi - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPZlpNTEdyYnlfbXJxcjNtRXBBd3E5Z2stazBoQUp6b2MyMXZTMFZUSTRxdS0tZWpOckNiRVVrMnhWV05MNnR6WHM4M0Z3VkhsdWRCVm5WWTZ3RkZCdm5GNGdqWUxWVUhHaVRLYmppTkZiZEQ5cFREeFBwSWo4d05oZjBIb0hhUTA?oc=5) |
 | Trump says he wants to resume nuclear testing. Here's what that would mean - NPR | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTFBSdmU5Zk1KOVY0cVVBbkdsVnRraXVSdE9Obk1JV1o4QXI1OVo3aEUwQTJvTXE4TnFWSXlITVZ5RC1GbTBNaVRoUmxVQ05iQzBxVm81Q2RPYkFzYndtX3dOejMxVk45V3h5U29SVkJBVmQyTnU1?oc=5) |
-| Most Americans oppose East Wing demolition for Trump ballroom, poll finds - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPV2NodkNCY0dkNFJoSDJaZGIwdEFlY1FmcjV5c1hFRmhVM3dGSU1nSkFhS2VVTFNOMWZ5dERLNFpvUDZzaE81R09Wb0syMXg4WF85YUtsTjV3Y290VWhDdmROWjYwb3RrdmVQMExoMzJkcHVaMzJubWZsUnJNOTBfaUROb05uRFBweW9n?oc=5) |
 | Judge Skeptical Over Trump Administration Decision to Suspend Food Stamps - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9VeUU1RXpISWFsNU9jcUxLd1p2dTd6YzdhN0E3M1lVVEpsYnZKYXNldDd5MWdWWVRqbDlQSFhqV3Q1d1ZRRVB3bVZ2VUMxRFhacmlIWWlZdEt0V2Z2LXRJekZ1bWdkbURzVlJ5cXQ4cm1ZeHZCcDNMZWlsbVY?oc=5) |
+| Senate approves Democratic resolution that would block Trump's global tariffs - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFByamJBMEpWUnFDeFdHTGpBakprMWRPTHk1VTdTQnBvU3J6OUdTemY5cV82ckVVcVI1OXVCMG5EWV9DWnpScElNcjJfX0VHTTJ4THBoT0cxTHZ0OVFqcC0tbGVzVzhrQkg0NjB2VHFwQTY4WnJSM2Vna3dMcGLSAYIBQVVfeXFMTzhHYXAzWWp5M1ZNTFFPSmt0ZV9OaTFXbl9jQ1JlRmZOaFpNbWZRYzc5a084YWNWVmlUS1RvRTRhaGxNb0FlLUNybDZpNHpiS3ppQTF4RnhtR3dhZGtleEs4WkNJSW9EcDhRbHRZc1MxYlhhbGxXOUtlY2xGWkZxT0liUQ?oc=5) |
 | Hurricane Melissa devastates Jamaica, Haiti and Cuba; at least 28 dead - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPOG9xQ0g3TGxueWRSUXNYZ1AwWk5JSU5fdXhadk82MXExM2R4N1pkTkU1Um12TTlKN0tXdHF5Zjk4SXd1cWFNSDJEZFlaZFM2eDI4Y2pmbEVyRGR0SXQ2X01kTzVKUVQwWUNwLVBfRm93SVlKMGprYlR1RXNya3ZReGRENGTSAYoBQVVfeXFMTXFIZWRIdmxycUgza1hwUFFSY2VBVVJiVms2bzd4ejRPS3I3WjJ4TFVGSFVqWmN6VjFHdTdFZ0ttNlQzMURYQnk2MFp2dE9tQjBVbWJObG5lRUxzZ1E0NnNPTVplU3JLVFgzdEk5ZXBfWFJXc2tSWlVCc09ZdFRMTVlvOUY1a0ZnS1hn?oc=5) |
-| Federal Workers Are Barely Making It Through the Government Shutdown - WIRED | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOQUlUSWwwRmxPa3BaQ2RHdjdUUHdhTFV5Y0x0RXBiWlhQVlNMLS1vdGIxdFBySl9SZjRfQWs1UkhpVFhOR2xFdWlCUURSY21tR0J2cTdqellnQlBMeWp1MnNUREpnR18wWWZUMGRFUUF5Rmx4WEJNLWNEa3R1S1QxTnhtSUhrdXZ1LWlCRW02Q3JwNlE?oc=5) |
-| Teacher who was shot by 6-year-old student at school testifies she thought she had died - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQTXpVTnNpQm81bVFSc2ZuTlM2VE5wZldaS3h2ZVZiQmxfcE1wSzg2eE9Xb2d3M0YtWnNtWWtKTzJyaDltdDBrLWFuM1lxN0VVdnFST3FFYkFQS0VQeEV1TVN6S3NzYllwdjNWVXVEcGFfdTYtUVIzUUhsRmR4enNtVTNZUnhQNUR3Mng5YW1VOFZxZU1WbFVTQmRn?oc=5) |
 | US will limit number of refugees to 7,500 and give priority to white South Africans - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQYXczZnNvN2JCbC1jekNFQWNTUXF2S1ZwMUdmdF8tZkdVNzY4RG5aMXRlYy10R2JzWXVYb2ZyYU9zTzNneHQ0MGVnYm5xOThpU2pEc0lnUVRjdmQ2WDIwLWNqdmRhRHhrR1NTV0NiRWVTUjdvWmhRZW9zSjdVcTFFX3p2SlFHWk0wa3BhY000ZkVrMHJzdDNsekdiZw?oc=5) |
+| Teacher who was shot by 6-year-old student at school testifies she thought she had died - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQTXpVTnNpQm81bVFSc2ZuTlM2VE5wZldaS3h2ZVZiQmxfcE1wSzg2eE9Xb2d3M0YtWnNtWWtKTzJyaDltdDBrLWFuM1lxN0VVdnFST3FFYkFQS0VQeEV1TVN6S3NzYllwdjNWVXVEcGFfdTYtUVIzUUhsRmR4enNtVTNZUnhQNUR3Mng5YW1VOFZxZU1WbFVTQmRn?oc=5) |
 | Spanberger courts Trump voters in rural Virginia - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNTmQwWGlZT2RKVDN0eTBaNERlX1BHZmE4dmstRk5Kb0FkdGtGOTlQQXRKSVRPcjdRb1JIeFZieEZ4M1BIWXgyb1Q3M0hHejhwLUZscUFaSXNvWFM4WmQxdjlBOWVyZDlzZmYwLVlqWGNSVE5oSWRyZWNVTzFCX0tJWnBZYnV4SmRhM2tPeDZyZDRTNkZhYnFvX0JTS0xLTFk4eWd3?oc=5) |
 | Downstate jury finds ex-cop guilty of second-degree murder for fatally shooting Sonya Massey - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOR2xCYi04b2RuNGR5OWNSUGtMQTJUNEQwX1FjenpVY0tvUlVUMXlMaVI4NFdad0ZSbDdDY0tsZ2FnMk41UG8xX3dJVnUwYkF3OUF6eWs1emFRVmsycU12T05KeWZzWnFQNmtkNU9kZWEzWFJES3JvTWd2SF9mTktBclNWU2dNY3MyQm41OWxaSnpYZ1ZyTmNSb0Y3Si0xTzRUR3pITnhONlRlVmlNYWd5T2V3?oc=5) |
+| Pritzker asks Trump admin to suspend immigration raids for Halloween - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNdjdrTm14RXd3T0REYTBMcng2M1JVVU41Ql9MaGZpRFh4LXhwLWZqelFvS19Kd2tncFU5V0o2bXhUeXN2ZlJvQzE2eDNadWFkQkszMlptSkNIVkw3cUJtVXp2LUtQbElGOHNDUmhkc05uaThxX2tBVFg1cXBka3Zpdk9rdUlaUk1M?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。

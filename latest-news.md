@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 02:50:02（北京时间）**
+🕒 更新时间：**2025年10月31日 02:56:48（北京时间）**
 
 ---
 
@@ -26,8 +26,8 @@
 | Trump cuts tariffs on China after ‘truly great’ meeting with Xi - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPZlpNTEdyYnlfbXJxcjNtRXBBd3E5Z2stazBoQUp6b2MyMXZTMFZUSTRxdS0tZWpOckNiRVVrMnhWV05MNnR6WHM4M0Z3VkhsdWRCVm5WWTZ3RkZCdm5GNGdqWUxWVUhHaVRLYmppTkZiZEQ5cFREeFBwSWo4d05oZjBIb0hhUTA?oc=5) |
 | Trump says he wants to resume nuclear testing. Here's what that would mean - NPR | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTFBSdmU5Zk1KOVY0cVVBbkdsVnRraXVSdE9Obk1JV1o4QXI1OVo3aEUwQTJvTXE4TnFWSXlITVZ5RC1GbTBNaVRoUmxVQ05iQzBxVm81Q2RPYkFzYndtX3dOejMxVk45V3h5U29SVkJBVmQyTnU1?oc=5) |
 | Judge Skeptical Over Trump Administration Decision to Suspend Food Stamps - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE9VeUU1RXpISWFsNU9jcUxLd1p2dTd6YzdhN0E3M1lVVEpsYnZKYXNldDd5MWdWWVRqbDlQSFhqV3Q1d1ZRRVB3bVZ2VUMxRFhacmlIWWlZdEt0V2Z2LXRJekZ1bWdkbURzVlJ5cXQ4cm1ZeHZCcDNMZWlsbVY?oc=5) |
+| Senate approves Democratic resolution that would block Trump's global tariffs - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFByamJBMEpWUnFDeFdHTGpBakprMWRPTHk1VTdTQnBvU3J6OUdTemY5cV82ckVVcVI1OXVCMG5EWV9DWnpScElNcjJfX0VHTTJ4THBoT0cxTHZ0OVFqcC0tbGVzVzhrQkg0NjB2VHFwQTY4WnJSM2Vna3dMcGLSAYIBQVVfeXFMTzhHYXAzWWp5M1ZNTFFPSmt0ZV9OaTFXbl9jQ1JlRmZOaFpNbWZRYzc5a084YWNWVmlUS1RvRTRhaGxNb0FlLUNybDZpNHpiS3ppQTF4RnhtR3dhZGtleEs4WkNJSW9EcDhRbHRZc1MxYlhhbGxXOUtlY2xGWkZxT0liUQ?oc=5) |
 | Hurricane Melissa devastates Jamaica, Haiti and Cuba; at least 28 dead - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPOG9xQ0g3TGxueWRSUXNYZ1AwWk5JSU5fdXhadk82MXExM2R4N1pkTkU1Um12TTlKN0tXdHF5Zjk4SXd1cWFNSDJEZFlaZFM2eDI4Y2pmbEVyRGR0SXQ2X01kTzVKUVQwWUNwLVBfRm93SVlKMGprYlR1RXNya3ZReGRENGTSAYoBQVVfeXFMTXFIZWRIdmxycUgza1hwUFFSY2VBVVJiVms2bzd4ejRPS3I3WjJ4TFVGSFVqWmN6VjFHdTdFZ0ttNlQzMURYQnk2MFp2dE9tQjBVbWJObG5lRUxzZ1E0NnNPTVplU3JLVFgzdEk5ZXBfWFJXc2tSWlVCc09ZdFRMTVlvOUY1a0ZnS1hn?oc=5) |
-| Senate rejects Trump’s global tariffs, the final vote in a series of rebukes - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQV3R2OGwwOVYwOFF6dkRkdEl0ZlJhREJBMW9IeXBYS3R0ekh1YmRDY1F0TnpJUTlSR1p4TXJOSGdZVDdPYmlHVFVBV21scnk2OWdydWFtUldmcV9FUEFSN2o3Wjh0Um5wUEhOWkppZVhlMXd1bEZ5RlNSOUhvMC16UWVxeDNKLVZONElveTRGa2prQnRMVHZPUURsc3liSTU0R2I4Z3pB?oc=5) |
 | US will limit number of refugees to 7,500 and give priority to white South Africans - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQYXczZnNvN2JCbC1jekNFQWNTUXF2S1ZwMUdmdF8tZkdVNzY4RG5aMXRlYy10R2JzWXVYb2ZyYU9zTzNneHQ0MGVnYm5xOThpU2pEc0lnUVRjdmQ2WDIwLWNqdmRhRHhrR1NTV0NiRWVTUjdvWmhRZW9zSjdVcTFFX3p2SlFHWk0wa3BhY000ZkVrMHJzdDNsekdiZw?oc=5) |
 | Teacher who was shot by 6-year-old student at school testifies she thought she had died - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQTXpVTnNpQm81bVFSc2ZuTlM2VE5wZldaS3h2ZVZiQmxfcE1wSzg2eE9Xb2d3M0YtWnNtWWtKTzJyaDltdDBrLWFuM1lxN0VVdnFST3FFYkFQS0VQeEV1TVN6S3NzYllwdjNWVXVEcGFfdTYtUVIzUUhsRmR4enNtVTNZUnhQNUR3Mng5YW1VOFZxZU1WbFVTQmRn?oc=5) |
 | Spanberger courts Trump voters in rural Virginia - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNTmQwWGlZT2RKVDN0eTBaNERlX1BHZmE4dmstRk5Kb0FkdGtGOTlQQXRKSVRPcjdRb1JIeFZieEZ4M1BIWXgyb1Q3M0hHejhwLUZscUFaSXNvWFM4WmQxdjlBOWVyZDlzZmYwLVlqWGNSVE5oSWRyZWNVTzFCX0tJWnBZYnV4SmRhM2tPeDZyZDRTNkZhYnFvX0JTS0xLTFk4eWd3?oc=5) |
