@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 01:33:58（北京时间）**
+🕒 更新时间：**2025年10月31日 01:41:54（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | William and Kate win legal battle over ski holiday pictures | [阅读全文](https://www.bbc.com/news/articles/crmxevlye9po?at_medium=RSS&at_campaign=rss) |
 | Health officials worried as flu season comes five weeks early | [阅读全文](https://www.bbc.com/news/articles/c20pe6llg2zo?at_medium=RSS&at_campaign=rss) |
 | Xi and Trump find temporary truce at meeting as China plays longer game | [阅读全文](https://www.bbc.com/news/articles/c8eyx718pz2o?at_medium=RSS&at_campaign=rss) |
-| Alleged McCann stalker cries and tells court 'I just want to know who I am' | [阅读全文](https://www.bbc.com/news/articles/c4gkvrww3yyo?at_medium=RSS&at_campaign=rss) |
+| Alleged McCann stalker cries and tells court 'I did not do anything wrong' | [阅读全文](https://www.bbc.com/news/articles/c4gkvrww3yyo?at_medium=RSS&at_campaign=rss) |
 | Israel receives coffins Hamas says contain two Gaza hostages' bodies | [阅读全文](https://www.bbc.com/news/articles/c4gj90j2g8jo?at_medium=RSS&at_campaign=rss) |
 | Lily Allen to tour new break-up album in UK theatres | [阅读全文](https://www.bbc.com/news/articles/cly91q251ljo?at_medium=RSS&at_campaign=rss) |
 | Watchdog slams O2 over unexpected price rise | [阅读全文](https://www.bbc.com/news/articles/cd047vl9ylpo?at_medium=RSS&at_campaign=rss) |
@@ -31,8 +31,8 @@
 | Americans oppose Trump’s White House ballroom by 2-to-1 ratio, new poll finds - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQZWNJYmRQaXJzVkZ5eXI2Vm82MEYtbHJzQlZ0eTcya042TW94cDlkaFhyWmxlcUlqV09pRW9hRFdSenJ0V2J1aUpVa2pzUU5SZF8yYVhLN25SUWxLX2JpY2JidjMxc3R1eUlXWHZOOTJnNkNvaVpaTUQ1ck1kbTlEQ29hRzRnUQ?oc=5) |
 | Sonya Massey's father expresses anger after ex-deputy convicted on lesser charge in fatal shooting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxORjFsUkM4RFFmTnRCNjZiSEZWRk1ISDdtMFpsbk5qR3o2Z1lTb1hJOE9FUEotUWZRaDl4TkVnQlJYVmhteC1INGY0b2tkYVNYMTFNakIwaG5VRWVXVS1mTnREelhwZC1uRklnZFZjTHVGQzNmRDdiYVpQVHBBTzItY3ZoN3VJdkNvZnhlazF3RWdhQknSAZgBQVVfeXFMTjBMMHN4OHM2TE4zNmpRODJwbmJ6RjY3VmN1Tzg2U19GSE02cm5RNnJuYzNCMmVFc2I5UE1jWjJmMFI2a0wzN0R5ZGRQSDY3NVdJQm5ZMHFMdEdVbF9jZ2tDUHJGaDR0eVZLSzFVZEMtLVNtR3JmdVh1blZMTU40a3V5YjJJeW1DUzQ1SnBhVmJPaWtRMGtHTjg?oc=5) |
 | Abigail Zwerner testifies she thought she was dead or dying after being shot by 6-year-old student - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOcnVjcWhPY1d0eFNmZWpmMnA2bEt3OFJ3eHV6OS1namJ5SVpxdXRlZ1pUci1TMGt2SkJCUmNYUEVIUDM3cGxPenR4bmhUU1c4X1NkM2p0UkFPeUxycWYzcEYxUklMVUx3RW12azJXV2I1LXZIV3Bpdk1wcHBQdFJIVzhKTHVKQVplaXNxenlBUmluRURISVhDY2dsdGFObENnMC0yVEdOclUxV0RNOWxHS0F6XzNGdmllLUHSAVZBVV95cUxOM1JOZXlfNWhGWE83dDd6WlJ2WW1yVlFsZjBWYUhBaGJ4ekpvX3hLNy1NTkdiajdFYS1STl9oQWdNM3BCVDQ1LVIyQlJaM0tkUFN1cnB2UQ?oc=5) |
-| Dr. Casey Means, Trump’s surgeon general nominee, has hearing delayed - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNY1F0RXlBYnJaWFp3V08waTVkbWphT1cxdF9wc0VjZlM0OUtySHhDOUU4d1I3VXVjVjdYVWhidFp0T1FJTlZLdWFMa0FTZUxwTGlKUFVaRlNVZGFGcDZPX2JrYXhTV3E0NFJRRFUwanpBeERNa1pwUnMtSDdrTVg1QkliYkFFSkxLcmRKelk3OThRUUltWXlmdjVEcDdhZDJJOWtv0gGoAUFVX3lxTE11T0hlOExkRVkydG4ta0JTaVZkQUdYVVZLaGNDbmdKREJXYVlZZDhTTVV3YnY3d1JiY0JRb0ZxTVVlYXVwckwwUk5GZDhZWllOemoxTVlXVzJsYnQxX25mT3B0dWRFU2RiZnE4VE5RNzJjb3gtSmRTREV3TmN1R1FQdHJ3ak53MkIxTWpFNGIzODhyVFlza0JnbmNFa003eTNaWEs4Ml9qeQ?oc=5) |
 | Spanberger courts Trump voters in rural Virginia - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNTmQwWGlZT2RKVDN0eTBaNERlX1BHZmE4dmstRk5Kb0FkdGtGOTlQQXRKSVRPcjdRb1JIeFZieEZ4M1BIWXgyb1Q3M0hHejhwLUZscUFaSXNvWFM4WmQxdjlBOWVyZDlzZmYwLVlqWGNSVE5oSWRyZWNVTzFCX0tJWnBZYnV4SmRhM2tPeDZyZDRTNkZhYnFvX0JTS0xLTFk4eWd3?oc=5) |
+| Dr. Casey Means, Trump’s surgeon general nominee, has hearing delayed - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNY1F0RXlBYnJaWFp3V08waTVkbWphT1cxdF9wc0VjZlM0OUtySHhDOUU4d1I3VXVjVjdYVWhidFp0T1FJTlZLdWFMa0FTZUxwTGlKUFVaRlNVZGFGcDZPX2JrYXhTV3E0NFJRRFUwanpBeERNa1pwUnMtSDdrTVg1QkliYkFFSkxLcmRKelk3OThRUUltWXlmdjVEcDdhZDJJOWtv0gGoAUFVX3lxTE11T0hlOExkRVkydG4ta0JTaVZkQUdYVVZLaGNDbmdKREJXYVlZZDhTTVV3YnY3d1JiY0JRb0ZxTVVlYXVwckwwUk5GZDhZWllOemoxTVlXVzJsYnQxX25mT3B0dWRFU2RiZnE4VE5RNzJjb3gtSmRTREV3TmN1R1FQdHJ3ak53MkIxTWpFNGIzODhyVFlza0JnbmNFa003eTNaWEs4Ml9qeQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
