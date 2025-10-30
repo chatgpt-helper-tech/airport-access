@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 11:08:41（北京时间）**
+🕒 更新时间：**2025年10月30日 11:16:32（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Hurricane Melissa devastates Jamaica: in pictures - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOaUVhZzZ4WWNscU50NEF5TVROOEZZUWQteEhWRHBQdk9HR3BrOEpyYlItUi1zaUpDY28xYWhfVGhRVEo1MnRSanl0UjJERkdDYkU3M2tNT0ZZekRTRF9XQU84ak1Ya090ZEctM0RhUjhJS193VzdWWFVyU05WTlVJNjZtWTVXdkRBUTUtSWhDRDdLQUluTkhoemNFZWhXX3RBZ0xONHoyY25ZX3M?oc=5) |
-| Trump-Xi meeting nears with high stakes and hopes, but few details - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTFBfWGprMDVfblZOb1FFM2NoNDhrYzZpcTBSbi1XZURkSFFQT2RWM0VYWnJFOS1ma3NwNzJiTWMteHBXaXdIODRBZjBMckxvUHZ1b1VNSDRYdUFOYnpIaTZTNzlUNGVGWlNkYW1r0gFwQVVfeXFMT2U3U0trTGg1NmFzMzRDWGpFVngyYlkwc0liTDAtMG1FSjJkRlcwOTVILTB6VGNkdjhTamFfQ0gwakxXTG9uMzVueEdVMFpYMVVuSXlIdnlUUEZQeUFhbFAyX3JMb2NjQVJjOHZwX2tUaA?oc=5) |
+| Trump seeks trade war truce with China's Xi in South Korea talks - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNRUN6ajZWR1MxcEY1VUpYNjVtYTFKM2g2ZkFqcmZubVJKTXZ2bHF3dkRWSVl4cXJJdXBBUkZxLUNmNkpoaWxYeHVQOHBkS1pfZ3hIdHkzN05fSU9CTERNZ1EyTDk0VGJUYUFjRENFVURTdWNhVjIxb0RQQ25qS0NfZnQtamhIZ1pld1FUbFJCeC1jSEpVT2laeHhKcE1ocUpBRVFTTkZNXzkxZw?oc=5) |
 | Trump orders Pentagon to begin testing nuclear weapons 'immediately' - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQMEZnTm4yNG1yOWg0X1pfSDFkSUdTNkR3bVNaWjQ0cU5sRlgzZWdDTENmQ3RkZjRoaUc1ck41SmY0OGI5UW5qTHhkSDhXaGE5STFWMW1UaUdNNWs0VG9wOXA4M2QtaVpSZ1dhYWxBMF92TnBJNW9LNXFSMnAwdEp0eUd1c0xWZE1iY0JJbGZPRjhnS3pTYmhERkRBcDR1M0NrdVpZUkpqU3ZHbEhtaGtPUGgybEJZenMtdWhyV0ZtSVpjMTDSAVZBVV95cUxPNGROdUV3ZmFmRVh5RTUzbmZzR0pwdkNscEJNaWYzVWFyQUFPa2U4QXE2NWxhQWJKTVhud2RmNG5LUkFQbVFxcW5KRlJUZDhZTHhRRm00Zw?oc=5) |
 | Border Patrol takes lead role in Trump administration's Chicago crackdown, carrying out more arrests than ICE - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNUkN3WlNqZjEwbE9mSzZ4TVpvUjJkQlFGNzhYS3JHSmNMTGZpS2NPZkt0ZVJQR3dVT21BNGRPU29TdDBKaU1tVTRpdjFqaS1NcWRQN3FacEpJdjAwNzNib0JmTmR4ZXlnTEpWYTNWZXZQNjItM3dqMkVEUm4wOTNNc29BVVBKVzJsSHIyeThNRDZNM0VEOGM1M3ROUEdCeW9jYXN2Qm05Rm_SAa4BQVVfeXFMUGYtckI2OEY1QVpXY3NQZG03cVN2VTZGODl5alNZMVF5OFB4YmkzVWdSa0VIeVdWVWd1SXJMUEFNN0c2Z0gxaW1kRjl3NnMwUnBCU045YmVWTnVZX2dvNkNVbVFJR1k1WFN0emFmMld3SXhGQkUxYThwWWUzNy15a2x2bF9RQnY5Ung4UEhyZnZXYWs4OGtaQ0tmX25IU2lZMmVNZjN2QzF6RHBIbU1n?oc=5) |
 | Protests erupt after police raid in Brazil leaves 119 dead and draws accusations of excessive force - AP News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQNmVmaFF1STlNWkVzb3U0V2pKWmoxTVB1YVE0alAxUlFBMVVWUVFKMHhzelRRM2gzR0kxV2RBQWhBRGRkWXMxMV9XRVk4cm1OWFFMZWdUV3c4NmFEYk9ENlRjWnBnRWhfajloVVZrWFQxTkVJUUFGbHNLclY4S1BsQVVhVmxaQjg?oc=5) |

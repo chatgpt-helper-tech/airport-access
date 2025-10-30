@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 11:08:41（北京时间）**
+🕒 更新时间：**2025年10月30日 11:16:32（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Jurors convict Illinois deputy of killing Sonya Massey but can't agree on first-degree murder charge - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQOG5uQ0w0NXd6dWtVR0JyN1pVRGFCQWhkSmEyMkF0eDRrUjVSNTh0OTA5R3l6dHdzMDM3S01ZNUo1RG5SLXhMSmhLSG9kMUVqcGRXOXlYSmlHamFLZ1pEdG9mQld1d3JjVm9ka0lZbVd2TXR5OGg4M1VQYjVlc1lYVU9TTDVtM2wzMVFFUWV3QUhWSm5vOXc?oc=5) |
 | Virginia Moves Closer to Redistricting Plan That Would Help Democrats - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPYjhuMFNleDROdFdOX21PaHRNbERVekwzRnVKbElUX2ZuOFRkMVN6djZYZ2NWaG5xU09ubHhKVU8yWDV0M2dQaUR1d3Z4dHgtMG9RdWhzaWlBM1ZXLWt2dV9BVzAwQ3dfMXpEU0h1RF8tdGhYbDYwNVRIbHR0eE53VHFZQ2kyLWk0TjdB?oc=5) |
 | Bill Essayli says he isn’t going anywhere - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQeFJ3S29MTjJfNC1iRjZ2V040YjZORExNSkpWdHBaMktFT2I2b05pcGI4aE4yM2cySUlxd29kLUlpOEg2WkZ2enpZUzlzeV85RmtmQTNaanBaNm5BbUdLbHVHdWZMallVZy0zb0pWV2t3Q192eVlEN25PZnMwcm9sRVdLRUhSb0w4ekE?oc=5) |
-| ICE officials replaced with Border Patrol, cementing hard tactics that originated in California - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi4AFBVV95cUxOLTdBejBqaUhTNlZtUlZhR29sWFJIaHA5UlVfeUx4Z1FfTEtveXZ1UjBPekhiTDRKV2VaVEU3Z3g1cjRPc0FraDFFcl9PNUliUUxKSGYtWEdpeGZoU1VzZ0ZTMUdkdnZXY3VNaTUtVVFrcGJTV2RHM2hPa3BfT1k3aVdIelhuWDZRSFdQVXBsLWNGdHJvTUw5RVdkR25UTTN6aHZsMmRJdW02dlZhbDVlSTNISVZJYU5BdHJVOXl1VFlubmhuR1JNUGxReC1WdkdDcnRaZldYOHd2Z3JFbTZubQ?oc=5) |
+| Exclusive: National Guard orders in DC extended through February 2026 - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNbTZ1LW9DZkJmeHp5TTRJMFJhdk5DaXhhR0N1OFlqcEVxb1hpQWFaQUNwaXlnaURwd0E2MDZVdkxhMlhncEIyU2VNSk5rUkt2VENEZlhzN1JsWDRXZ283LTM1cDFoc3Z4bnRyX3k2b3hFRVBlOWEyVXlhamtHbHZtaVB3TEM4RWFM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
