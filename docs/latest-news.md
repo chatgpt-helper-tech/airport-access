@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 12:41:13（北京时间）**
+🕒 更新时间：**2025年10月30日 12:49:23（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Majority of California likely voters say they support Prop 50, poll shows - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOY2tHUnpTR3Z5T3hFbXJnVzZpRnZCS3ZXM3k1Sm9GVUNnU1dXcWRMTlI1SXpCMmkwMTRBRy1TNndMWWhsUzZvLUxYSGJBakVYWGFEd01Ud3BIdHF3VlhqSC1lMklZaEpyVmJmUE5pTzlVcDQxdTFSek4zU1paQi1qdWhHS1ZDME9TdnNZdlhlWmh2YVdVZ1BPVFhoRGxjRm4tOTZYaGxlUdIBrAFBVV95cUxPeldEdkpORGFqdThRWHdKQlBvVl9RWEU2V0RiVTBOWEpNXzFzdHZlT3dtaUJhcDEzaC02ZTBFNUpmR0pPWEZzRWc2RmxlejQ1UFVVRTQwQUVIaEJ0RTgwVU9fMUh2dWlZQWpRMVdTd0dlYmlpbEJKeWRUY2l5bnAtZnJRb2VteUZjREdMZEoxcGJqdHVaOFVNUVpkWkJKNXVLZzBuM3NDS1JlNWpD?oc=5) |
 | Former Illinois sheriff’s deputy convicted in killing of Sonya Massey - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPWHVnSnZrZVBrbTFVX0lwdlNDZVRrd21IQzRFZWRkSTE2c1ZyankwelA4bjBFY3A0b0tnR09KY3diN1M4U3pZVEhoVXVMRy1xdHBaakR5T0VuNy0tSE5vdjBkUml6Q0N2bGFUX1c0V1Qtb0laczdaN3FXOVJ6V3dQbVM0NVo?oc=5) |
 | Louisiana and Virginia take steps toward redistricting in a growing battle for US House power - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNRkdNUjRscTJsWEdmMmFVQkYzZU1kNGdkQzR3cXRLcXdzRGtKQ0pqczRJXzYzUDJfbk9QSFJrMG8ybkJLR0RRU1ItVHVUM0tsSFVWYXdLV043ZE9oZi1yU0JQM25mcy0wamhXQXZQcS1yUElDUnhzLVlpdlhVWXVzMHJtZWNnWXBJR2M0MmZYZUM4RWJxVnA4M19fVTZxS2lQTy1XUmhyTVpGVG1GcWhzUHpLOW4wR2NDZ3hR?oc=5) |
-| Exclusive: National Guard orders in DC extended through February 2026 - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNbTZ1LW9DZkJmeHp5TTRJMFJhdk5DaXhhR0N1OFlqcEVxb1hpQWFaQUNwaXlnaURwd0E2MDZVdkxhMlhncEIyU2VNSk5rUkt2VENEZlhzN1JsWDRXZ283LTM1cDFoc3Z4bnRyX3k2b3hFRVBlOWEyVXlhamtHbHZtaVB3TEM4RWFM?oc=5) |
 | Shake-up at ICE will boost immigration numbers — just not the ones that matter most to Trump - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxPajdYSzM5d1pQZHRBRGZ0TVdzYkJ0aElERmY3WHIzckJnNUE3SUI5cFozNFo5MFZySHF3VXBHQ3haMTN1UjdpN040ZHVVYnBablBxaE9OWS10di1RN3Rkb1Y2U2dWakdBak5lYi1SOVJDRklTeDlBYnNWZGlBcXRUc2I0djVjNjlWcEI5eDB4RURISWdhTzRESW5ZeEJrcnVZWDJycnB2SHMwWlFiX0dWdExqQVpqNHlHUlo4Um5EOGdETDNtVUdBLW5teTZmSzJNRHM5Mm1ORQ?oc=5) |
+| Exclusive: National Guard orders in DC extended through February 2026 - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNbTZ1LW9DZkJmeHp5TTRJMFJhdk5DaXhhR0N1OFlqcEVxb1hpQWFaQUNwaXlnaURwd0E2MDZVdkxhMlhncEIyU2VNSk5rUkt2VENEZlhzN1JsWDRXZ283LTM1cDFoc3Z4bnRyX3k2b3hFRVBlOWEyVXlhamtHbHZtaVB3TEM4RWFM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
