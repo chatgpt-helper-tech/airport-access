@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 18:01:58（北京时间）**
+🕒 更新时间：**2025年10月30日 18:08:26（北京时间）**
 
 ---
 
@@ -9,7 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Starmer rules out investigation after Reeves admits rental rules ‘mistake’ | [阅读全文](https://www.bbc.com/news/articles/cd04d0yxnrvo?at_medium=RSS&at_campaign=rss) |
-| Homeowners plagued by damp urge government to fix 'botched' insulation | [阅读全文](https://www.bbc.com/news/articles/ce8g3018krro?at_medium=RSS&at_campaign=rss) |
+| 'Poor' insulation that left houses mouldy needs wider investigation, government told | [阅读全文](https://www.bbc.com/news/articles/ce8g3018krro?at_medium=RSS&at_campaign=rss) |
 | Dozens dead in 'total devastation' left behind by Hurricane Melissa | [阅读全文](https://www.bbc.com/news/articles/cy0kvrnyy4wo?at_medium=RSS&at_campaign=rss) |
 | 'I'll never forgive the woman responsible for my wife's paddleboard death' | [阅读全文](https://www.bbc.com/news/articles/c9wv8gpneywo?at_medium=RSS&at_campaign=rss) |
 | Backstabbing, dirty work and an iconic exit speech in Celebrity Traitors | [阅读全文](https://www.bbc.com/news/articles/c98n7k67y95o?at_medium=RSS&at_campaign=rss) |
