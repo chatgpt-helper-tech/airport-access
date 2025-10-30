@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 10:56:03（北京时间）**
+🕒 更新时间：**2025年10月30日 11:00:15（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Protests erupt after police raid in Brazil leaves 119 dead and draws accusations of excessive force - AP News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQNmVmaFF1STlNWkVzb3U0V2pKWmoxTVB1YVE0alAxUlFBMVVWUVFKMHhzelRRM2gzR0kxV2RBQWhBRGRkWXMxMV9XRVk4cm1OWFFMZWdUV3c4NmFEYk9ENlRjWnBnRWhfajloVVZrWFQxTkVJUUFGbHNLclY4S1BsQVVhVmxaQjg?oc=5) |
 | Majority of California likely voters say they support Prop 50, poll shows - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOY2tHUnpTR3Z5T3hFbXJnVzZpRnZCS3ZXM3k1Sm9GVUNnU1dXcWRMTlI1SXpCMmkwMTRBRy1TNndMWWhsUzZvLUxYSGJBakVYWGFEd01Ud3BIdHF3VlhqSC1lMklZaEpyVmJmUE5pTzlVcDQxdTFSek4zU1paQi1qdWhHS1ZDME9TdnNZdlhlWmh2YVdVZ1BPVFhoRGxjRm4tOTZYaGxlUdIBrAFBVV95cUxPeldEdkpORGFqdThRWHdKQlBvVl9RWEU2V0RiVTBOWEpNXzFzdHZlT3dtaUJhcDEzaC02ZTBFNUpmR0pPWEZzRWc2RmxlejQ1UFVVRTQwQUVIaEJ0RTgwVU9fMUh2dWlZQWpRMVdTd0dlYmlpbEJKeWRUY2l5bnAtZnJRb2VteUZjREdMZEoxcGJqdHVaOFVNUVpkWkJKNXVLZzBuM3NDS1JlNWpD?oc=5) |
 | Jurors convict Illinois deputy of killing Sonya Massey but can't agree on first-degree murder charge - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQOG5uQ0w0NXd6dWtVR0JyN1pVRGFCQWhkSmEyMkF0eDRrUjVSNTh0OTA5R3l6dHdzMDM3S01ZNUo1RG5SLXhMSmhLSG9kMUVqcGRXOXlYSmlHamFLZ1pEdG9mQld1d3JjVm9ka0lZbVd2TXR5OGg4M1VQYjVlc1lYVU9TTDVtM2wzMVFFUWV3QUhWSm5vOXc?oc=5) |
-| Virginia Moves Closer to Redistricting Plan That Would Help Democrats - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPYjhuMFNleDROdFdOX21PaHRNbERVekwzRnVKbElUX2ZuOFRkMVN6djZYZ2NWaG5xU09ubHhKVU8yWDV0M2dQaUR1d3Z4dHgtMG9RdWhzaWlBM1ZXLWt2dV9BVzAwQ3dfMXpEU0h1RF8tdGhYbDYwNVRIbHR0eE53VHFZQ2kyLWk0TjdB?oc=5) |
 | Bill Essayli says he isn’t going anywhere - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQeFJ3S29MTjJfNC1iRjZ2V040YjZORExNSkpWdHBaMktFT2I2b05pcGI4aE4yM2cySUlxd29kLUlpOEg2WkZ2enpZUzlzeV85RmtmQTNaanBaNm5BbUdLbHVHdWZMallVZy0zb0pWV2t3Q192eVlEN25PZnMwcm9sRVdLRUhSb0w4ekE?oc=5) |
+| Virginia Moves Closer to Redistricting Plan That Would Help Democrats - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPYjhuMFNleDROdFdOX21PaHRNbERVekwzRnVKbElUX2ZuOFRkMVN6djZYZ2NWaG5xU09ubHhKVU8yWDV0M2dQaUR1d3Z4dHgtMG9RdWhzaWlBM1ZXLWt2dV9BVzAwQ3dfMXpEU0h1RF8tdGhYbDYwNVRIbHR0eE53VHFZQ2kyLWk0TjdB?oc=5) |
 | ICE officials replaced with Border Patrol, cementing hard tactics that originated in California - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi4AFBVV95cUxOLTdBejBqaUhTNlZtUlZhR29sWFJIaHA5UlVfeUx4Z1FfTEtveXZ1UjBPekhiTDRKV2VaVEU3Z3g1cjRPc0FraDFFcl9PNUliUUxKSGYtWEdpeGZoU1VzZ0ZTMUdkdnZXY3VNaTUtVVFrcGJTV2RHM2hPa3BfT1k3aVdIelhuWDZRSFdQVXBsLWNGdHJvTUw5RVdkR25UTTN6aHZsMmRJdW02dlZhbDVlSTNISVZJYU5BdHJVOXl1VFlubmhuR1JNUGxReC1WdkdDcnRaZldYOHd2Z3JFbTZubQ?oc=5) |
 
 ---
