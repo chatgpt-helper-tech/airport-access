@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 15:41:58（北京时间）**
+🕒 更新时间：**2025年10月30日 15:49:37（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | Thousands on benefits could have energy debt cancelled | [阅读全文](https://www.bbc.com/news/articles/c4gpzynky88o?at_medium=RSS&at_campaign=rss) |
 | Trump directs nuclear weapons testing to resume for first time in over 30 years | [阅读全文](https://www.bbc.com/news/articles/c4gzq2p0yk4o?at_medium=RSS&at_campaign=rss) |
 | Dutch centrist liberals neck and neck with populist Wilders in tight election | [阅读全文](https://www.bbc.com/news/articles/cpwvy4w875vo?at_medium=RSS&at_campaign=rss) |
+| First UK phones to get satellite connectivity in signal blackspots announced | [阅读全文](https://www.bbc.com/news/articles/c993m88jer9o?at_medium=RSS&at_campaign=rss) |
 | Dependants of Gazan students can join them in UK, government says | [阅读全文](https://www.bbc.com/news/articles/cly91lj9y47o?at_medium=RSS&at_campaign=rss) |
-| How dads are helping daughters through their periods | [阅读全文](https://www.bbc.com/news/articles/cy8v5xn8gdvo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | Former Illinois sheriff’s deputy convicted in killing of Sonya Massey - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPWHVnSnZrZVBrbTFVX0lwdlNDZVRrd21IQzRFZWRkSTE2c1ZyankwelA4bjBFY3A0b0tnR09KY3diN1M4U3pZVEhoVXVMRy1xdHBaakR5T0VuNy0tSE5vdjBkUml6Q0N2bGFUX1c0V1Qtb0laczdaN3FXOVJ6V3dQbVM0NVo?oc=5) |
 | Ukraine war briefing: Putin boasts of nuclear-driven torpedo that would swamp cities with radioactive tsunami - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi6gFBVV95cUxQT2xMYUI2dUNieXhhRWthb1hPa3pSeHdDU3gzX2J0Z2dZcmNXSmduLVp5cG5pOGFoY09xMlNaYjVtQnN3V0lEMXIwVWxnSDI0cjBhY241dkJNdlNVUEhGQ0dqVnViNVhlalFwN2pxS3p1ODhPY05uOHVsQUZ6eTZWRmVEWDFuMFFhZWpPam81TTFQamRTczZUektpY0hHN2pIcjdLY2dCWmZQUWNFaS1xYk83Q2VzdTFXdmlKdFR0MjdyZWxRanNmMWFzMHFSd0M0UWFad05rdmU2cTduNzZfR01zb3Fna1BqaHc?oc=5) |
 | Virginia judge lets Democrats' redistricting plan move forward - Axios | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQR0RpOHFmNnJ4bDNZRGF6V1pBSHc1WlVSRmU5ZW94dXFLb2lUZXNtdGJJcXFrVzJ0ZFlZSkZEWWpYbVhpWVQxeDRQWXZ4UllOMmo1bEJXbXY0S3BMR1RmYjZPbDBrWERHX1ZtbVdZLXZERGpiR1ZTaGQ2UWxQbEt6QTNNOVVqVVdBUWVwR0tYY2o4VVJ5X3c?oc=5) |
-| With SNAP benefits set to halt, Thune says he can't clarify Trump's plan to fund program - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQdFZFVm01clZEOWRiX081WF9RaURweEV3Z25hbzJUTHkyUE1BeXhSMjVCSGVLODdDU0ZmQTliOGlsNUhoSm10VHduR3Q1RE9ScmJZdnhIcjVsaklJZFltNGVrUml2RkpJcE8ySTM3WkdyaGRvYlZicTBabDlkWFNwRXRUUk5iMXdNQ2RmVlhCNmw1WGs4Nl84WmdlV3pvanhS0gGmAUFVX3lxTE1hWGNmZXcxQk1YZmF4R0ktZjUwWGJjRi1vMEVOdmxZZjV4c2ExVGk5YUxzQ3dkYVozYlpIaGpEN2x0bVFiaHZ0M2I3YTRjSFlYT013WG9yNUxtZTcwdzRYZEVqYVpnQy1uR1NZck5FRHBUbk1sZkFGR3l6c2pHQS1ZR3B5TlRYeHhHTzB1Rno1dl92YkNFV0JOUDYyNzRzVjM5OWNPMkE?oc=5) |
+| Trump, South Korea Reach Terms on Trade Deal - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPVXdwTGpLT2x3SFpYOWJNdHVRNzIxSXl4dkJSREtJZFlJcklHRzYtRDNQcTZiaFA5SVR0LUdrMEI2WW82bTc3dFVTVWpkU3JDSnpIWk1mSmg2SGFFMGY5NnhhMTZIdXJRcWJuME44eVhlR3ZjMjFFZWs3Y3BaTFJ3SXFvRXhNLVdQM3FQa051Q0FkVW1pM1UyYnB3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
