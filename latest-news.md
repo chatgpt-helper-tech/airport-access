@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 15:08:19（北京时间）**
+🕒 更新时间：**2025年10月30日 15:16:41（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Majority of California likely voters say they support Prop 50, poll shows - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOY2tHUnpTR3Z5T3hFbXJnVzZpRnZCS3ZXM3k1Sm9GVUNnU1dXcWRMTlI1SXpCMmkwMTRBRy1TNndMWWhsUzZvLUxYSGJBakVYWGFEd01Ud3BIdHF3VlhqSC1lMklZaEpyVmJmUE5pTzlVcDQxdTFSek4zU1paQi1qdWhHS1ZDME9TdnNZdlhlWmh2YVdVZ1BPVFhoRGxjRm4tOTZYaGxlUdIBrAFBVV95cUxPeldEdkpORGFqdThRWHdKQlBvVl9RWEU2V0RiVTBOWEpNXzFzdHZlT3dtaUJhcDEzaC02ZTBFNUpmR0pPWEZzRWc2RmxlejQ1UFVVRTQwQUVIaEJ0RTgwVU9fMUh2dWlZQWpRMVdTd0dlYmlpbEJKeWRUY2l5bnAtZnJRb2VteUZjREdMZEoxcGJqdHVaOFVNUVpkWkJKNXVLZzBuM3NDS1JlNWpD?oc=5) |
 | Police Raid in Rio de Janeiro Leaves Over 130 Dead - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPYVVkN3pQbGJBOUhtRWR4b2JiNVdmMWdOcGlDSVJYWXBoMFhSbk1iT24wV1JTVjZ0UlhRa3F5ZmpUYjdadnUycjllQnZrdktHcXR6QUF2Z1JEWUJmVWhtVnZSUy1kaFk2bUh0d0I2em5sUGhpX1Uwek1fbE9YWnM4emM5Rk9aSnJJTWhpcQ?oc=5) |
 | Former Illinois sheriff’s deputy convicted in killing of Sonya Massey - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPWHVnSnZrZVBrbTFVX0lwdlNDZVRrd21IQzRFZWRkSTE2c1ZyankwelA4bjBFY3A0b0tnR09KY3diN1M4U3pZVEhoVXVMRy1xdHBaakR5T0VuNy0tSE5vdjBkUml6Q0N2bGFUX1c0V1Qtb0laczdaN3FXOVJ6V3dQbVM0NVo?oc=5) |
+| Virginia judge lets Democrats' redistricting plan move forward - Axios | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQR0RpOHFmNnJ4bDNZRGF6V1pBSHc1WlVSRmU5ZW94dXFLb2lUZXNtdGJJcXFrVzJ0ZFlZSkZEWWpYbVhpWVQxeDRQWXZ4UllOMmo1bEJXbXY0S3BMR1RmYjZPbDBrWERHX1ZtbVdZLXZERGpiR1ZTaGQ2UWxQbEt6QTNNOVVqVVdBUWVwR0tYY2o4VVJ5X3c?oc=5) |
 | Ukraine war briefing: Putin boasts of nuclear-driven torpedo that would swamp cities with radioactive tsunami - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi6gFBVV95cUxQT2xMYUI2dUNieXhhRWthb1hPa3pSeHdDU3gzX2J0Z2dZcmNXSmduLVp5cG5pOGFoY09xMlNaYjVtQnN3V0lEMXIwVWxnSDI0cjBhY241dkJNdlNVUEhGQ0dqVnViNVhlalFwN2pxS3p1ODhPY05uOHVsQUZ6eTZWRmVEWDFuMFFhZWpPam81TTFQamRTczZUektpY0hHN2pIcjdLY2dCWmZQUWNFaS1xYk83Q2VzdTFXdmlKdFR0MjdyZWxRanNmMWFzMHFSd0M0UWFad05rdmU2cTduNzZfR01zb3Fna1BqaHc?oc=5) |
-| Shake-up at ICE will boost immigration numbers — just not the ones that matter most to Trump - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxPajdYSzM5d1pQZHRBRGZ0TVdzYkJ0aElERmY3WHIzckJnNUE3SUI5cFozNFo5MFZySHF3VXBHQ3haMTN1UjdpN040ZHVVYnBablBxaE9OWS10di1RN3Rkb1Y2U2dWakdBak5lYi1SOVJDRklTeDlBYnNWZGlBcXRUc2I0djVjNjlWcEI5eDB4RURISWdhTzRESW5ZeEJrcnVZWDJycnB2SHMwWlFiX0dWdExqQVpqNHlHUlo4Um5EOGdETDNtVUdBLW5teTZmSzJNRHM5Mm1ORQ?oc=5) |
-| SNAP deadline becomes Democrats' sharpest leverage - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBKbENhWGk1Y091UHBHRHlyUGxsR29WTDczOE5rZ2lvbFB6NFhDVk5sS0NwRjZQeUowWXRzSkkzVHNsRC02cWJpNUZtY3BxTzlUU2hoR0tkMVJoalZCUE9BMHdxXzZLbFZENDBIVGNWYTl2bzFobmtYZTZXTQ?oc=5) |
+| With SNAP benefits set to halt, Thune says he can't clarify Trump's plan to fund program - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQdFZFVm01clZEOWRiX081WF9RaURweEV3Z25hbzJUTHkyUE1BeXhSMjVCSGVLODdDU0ZmQTliOGlsNUhoSm10VHduR3Q1RE9ScmJZdnhIcjVsaklJZFltNGVrUml2RkpJcE8ySTM3WkdyaGRvYlZicTBabDlkWFNwRXRUUk5iMXdNQ2RmVlhCNmw1WGs4Nl84WmdlV3pvanhS0gGmAUFVX3lxTE1hWGNmZXcxQk1YZmF4R0ktZjUwWGJjRi1vMEVOdmxZZjV4c2ExVGk5YUxzQ3dkYVozYlpIaGpEN2x0bVFiaHZ0M2I3YTRjSFlYT013WG9yNUxtZTcwdzRYZEVqYVpnQy1uR1NZck5FRHBUbk1sZkFGR3l6c2pHQS1ZR3B5TlRYeHhHTzB1Rno1dl92YkNFV0JOUDYyNzRzVjM5OWNPMkE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
