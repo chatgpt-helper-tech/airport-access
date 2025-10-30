@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 08:24:57（北京时间）**
+🕒 更新时间：**2025年10月30日 08:33:33（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | White House fires members of commission that is to weigh in on Trump’s construction projects - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxONmFqVGxYSVlnWHY2QTVoNml2SWE4c3UtdzBVYXRRTXhDT3J5TVRDbnhoRUF1Nzl1MDBTQWp1WkFtQklEcUlMWWNfSVJUM3dlWW5iVzZxYlc5UXFnaWh1UUNDaDAxdFp5R3U4WXlGdHI3NWI5TXlYRkxHQzM0NnNnMTlBbGZxSTdlenVlWDk3LU9QcE9xeHh3U1hWTjRfZHlYSFJ2Nm9lUG15LVJSdTZybmk0SdIBuAFBVV95cUxPSkZFTjkwMEhvRTBWbnljVUhvWnZFOXVZQmRoT3hzU2pTellkQmJXcEYxZzY1OHJIUmp3Q0lnNjdvLWVYZmJuX194cDJtQnlqY3Q0UEdRcUVDM2xDdW5rUXd6ZmZHdnRMcktwbFhPbkxtaVhTdndEYWRyTVh4M0MyTXhmQTN2Y2VJZTBOS2FiR1JFWW9PdUFSVlVqZ1c1ampla1pDNkZFT0N6TzZfaWJtcWE5YUdSOFpY?oc=5) |
 | Death toll in Brazilian police raid rises to 119, drawing criticism of excessive force - AP News | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQNmVmaFF1STlNWkVzb3U0V2pKWmoxTVB1YVE0alAxUlFBMVVWUVFKMHhzelRRM2gzR0kxV2RBQWhBRGRkWXMxMV9XRVk4cm1OWFFMZWdUV3c4NmFEYk9ENlRjWnBnRWhfajloVVZrWFQxTkVJUUFGbHNLclY4S1BsQVVhVmxaQjg?oc=5) |
 | Senate approves Democratic resolution to block Trump's tariffs on Canada - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiaEFVX3lxTE9DaS1UdXBMZmhHRVlsT2ZVMTF3b3VfeE5FT3QxWnBMM0VjQXFIOUZrb3VMVFVpaHFvVTVuUE5xejNGVG1KN3BnYjBSYVBORjFDVjg3SDczbEJibDk4bXBRTUpHc2dWMGF40gFuQVVfeXFMTXhjZU11MjN0ZWd4cHp4QTVhcFo1M3RvcWs5eWlhWHU0cTl1RkZMQmZRbTJ2bWZCb1UzZk9RM2F5c1Fld05Xa2RJOEdQcnFvVWJBUWZjQzVBdkF6YjlhN0lYTTRWZTNTQVlzX0JROHc?oc=5) |
+| Judge rules Trump’s top federal prosecutor in L.A. is ‘unlawfully serving’ - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOLWpSR0hEYmM0MDk0TUdCNzU0Rl9tX25GaE5DVkxqLUdoVUczTG1ITGJyVlZGaGxudjRrMkc2SHc3Rnpvb2tuOHY2dUhBRVI3QjJOSlB4dWFfclFRYUFvVjVHc2dPZm52aGhiY1BKYXljLUYyQzlZd1JITXFLMTl2YS1xTHVGQnBaaTFhTTZjdF9Ec2hVZXhVVXJ3?oc=5) |
 | Shake-up at ICE will boost immigration numbers — just not the ones that matter most to Trump - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxPajdYSzM5d1pQZHRBRGZ0TVdzYkJ0aElERmY3WHIzckJnNUE3SUI5cFozNFo5MFZySHF3VXBHQ3haMTN1UjdpN040ZHVVYnBablBxaE9OWS10di1RN3Rkb1Y2U2dWakdBak5lYi1SOVJDRklTeDlBYnNWZGlBcXRUc2I0djVjNjlWcEI5eDB4RURISWdhTzRESW5ZeEJrcnVZWDJycnB2SHMwWlFiX0dWdExqQVpqNHlHUlo4Um5EOGdETDNtVUdBLW5teTZmSzJNRHM5Mm1ORQ?oc=5) |
 | Thieves disguised as construction workers pull off $3.2 million New York City jewelry and safe heist - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxQakVLaFZ0bTdCRGVoVDVET0xOajZfZ0NIdHpFUngwT1RjTVJROEtRTXA2YWdLZDRUT3djWHY3Y2dsYVREZGxlU1VPWUU0M1RjOTZKR05FWG92SVRDcWtmZEl4dlVWNmp6UzR5Zlc5X0pEb0Z0RFdZVWhub0F1bEVMV09YYlZSbldRbTdNdVBIV3JoQjZueE1lR2hWb0xpYVpSMnowY1lyN1EtMHZacjBnZGpCZ19qbFlXZHfSAVZBVV95cUxNTlBkbEpRVXoxMUl2c3RxREpOME0xckVVMHhybkpraGk2T2h2ZC1od2gyRDEzRllqSFMwb0tSd2xXSERseW9mOWI2NjZXamdMd21pbWR2QQ?oc=5) |
-| How a lapse in SNAP benefits could affect consumers and retailers - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQTHRSaGlVemxBXy0wallrZ0RjZGlJMjZGNjNYemh5ajlaQ2xiUVpnelYwazNLSE8yZmIyUXIweElMWXd1V0pUakczY1o2WmtHWENWR0ZmbndjN29QbUhzNFdCdDBLVk5wdzJ0SVhyS0xFZkYwN3NDSVBaWFVZN2lVc2c0U0kxbkV4Rm040gGQAUFVX3lxTFBQWDBTODJwNFpFSXkwU0VidlRBWHU1Yk5Xcl9lSmtYNnlMaUoxY01PbDg1Tm9wanhCZ2tTSWNzZllmWlBzQ3ZJSDdZeXFhR0Q5REE1Y1hDa1NVdU5sRXhsM2k2TkM1dlR3Tm5fYmdYU0pfRDQyYnp6em5FNXk0MGJjTWdiZllWWHljX1NtZDZVdg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
