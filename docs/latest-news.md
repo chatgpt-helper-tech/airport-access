@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 15:01:53（北京时间）**
+🕒 更新时间：**2025年10月30日 15:08:20（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Donald Trump speaks after Xi Jinping meeting in South Korea – live updates - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPZ3FwWFhaalNIMm5YcUcwT19rNTVhdWRkM3hEUXc0QzVtRnIwZDV5cWdycThjX3dTWjNXM3RaS2xVN1JkOFpoQmdVZXlvMGxyMDROV29NXzFKVXRfNEtLeVRFeHJSZVF0c3l0Y1NjSEdvS0tIeHlqZTU1V3RMdXRCUWk2b2VGQkVXTkQ0dEk1RnI1N1hGZUk2QTYzUQ?oc=5) |
+| Donald Trump says rare earths dispute ‘settled’ after Xi Jinping meeting in South Korea – live updates - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPZ3FwWFhaalNIMm5YcUcwT19rNTVhdWRkM3hEUXc0QzVtRnIwZDV5cWdycThjX3dTWjNXM3RaS2xVN1JkOFpoQmdVZXlvMGxyMDROV29NXzFKVXRfNEtLeVRFeHJSZVF0c3l0Y1NjSEdvS0tIeHlqZTU1V3RMdXRCUWk2b2VGQkVXTkQ0dEk1RnI1N1hGZUk2QTYzUQ?oc=5) |
+| Trump tells Pentagon to immediately resume testing US nuclear weapons - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPdGpEUFNoN1BxQ0VhUEJHMm4wbHNHZURIbUI4OWdHb2xYTXZ3SDlrXzhLSWNxb2hSX2N0enFmcER6UXdLOG8xWU5PQ3h5MnR4XzZjWmladGhZYkpvendyMTRTVEc5VlVEVWVCOEdWRXdoZVN2dnFfTEtuWkpwcUJSR1BaTHFnX0xDZXNqdTBjS3JHZ0d1dXJZRjJOcFQ4RE5sU1B1bjM4UzdabUhwbE1lLXd3?oc=5) |
 | Hurricane Melissa devastates Jamaica: in pictures - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOaUVhZzZ4WWNscU50NEF5TVROOEZZUWQteEhWRHBQdk9HR3BrOEpyYlItUi1zaUpDY28xYWhfVGhRVEo1MnRSanl0UjJERkdDYkU3M2tNT0ZZekRTRF9XQU84ak1Ya090ZEctM0RhUjhJS193VzdWWFVyU05WTlVJNjZtWTVXdkRBUTUtSWhDRDdLQUluTkhoemNFZWhXX3RBZ0xONHoyY25ZX3M?oc=5) |
 | Dutch centrist liberals neck and neck in close finish with populist Wilders - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5nWUFZaTJhYmxRalJpWTJ0eWdBVE83OUU0TUplMlFwRTg3LWphcnlwVGdBTW5NaVFrR3Z4SmtCbHpYRDlvMU1iaFFvakFWLXpCMWhHWlFjdFZ3QdIBX0FVX3lxTFA1ajQ2ajk5MEVTeW9Ld1drQ3ZpSVJRbkppdmhXNnpHY0lWX0VHM1VoeDZvbTQwSG50czhnc1lYQ0ZPWUl3Q1piQ2FKYXVMMHBNeG5jOFh5UnR4Y2VoRmRv?oc=5) |
-| South Korea gives Trump a crown weeks after No Kings protests - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1LanhxWjhsRTd2SEVma3RWYzJQWkRReVM3b3djOE9kS2ZxLW1yQmVZeDgzNzVxdXdxVEw1bE5tRTBOTDNMaDU3Z0VWeUlpLW8xZENuMUl3UTRtc0szaEwyc2JockFoV1N4UWp6SDFTbVlGZmhOQ2c1OHJB?oc=5) |
 | Majority of California likely voters say they support Prop 50, poll shows - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOY2tHUnpTR3Z5T3hFbXJnVzZpRnZCS3ZXM3k1Sm9GVUNnU1dXcWRMTlI1SXpCMmkwMTRBRy1TNndMWWhsUzZvLUxYSGJBakVYWGFEd01Ud3BIdHF3VlhqSC1lMklZaEpyVmJmUE5pTzlVcDQxdTFSek4zU1paQi1qdWhHS1ZDME9TdnNZdlhlWmh2YVdVZ1BPVFhoRGxjRm4tOTZYaGxlUdIBrAFBVV95cUxPeldEdkpORGFqdThRWHdKQlBvVl9RWEU2V0RiVTBOWEpNXzFzdHZlT3dtaUJhcDEzaC02ZTBFNUpmR0pPWEZzRWc2RmxlejQ1UFVVRTQwQUVIaEJ0RTgwVU9fMUh2dWlZQWpRMVdTd0dlYmlpbEJKeWRUY2l5bnAtZnJRb2VteUZjREdMZEoxcGJqdHVaOFVNUVpkWkJKNXVLZzBuM3NDS1JlNWpD?oc=5) |
 | Police Raid in Rio de Janeiro Leaves Over 130 Dead - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPYVVkN3pQbGJBOUhtRWR4b2JiNVdmMWdOcGlDSVJYWXBoMFhSbk1iT24wV1JTVjZ0UlhRa3F5ZmpUYjdadnUycjllQnZrdktHcXR6QUF2Z1JEWUJmVWhtVnZSUy1kaFk2bUh0d0I2em5sUGhpX1Uwek1fbE9YWnM4emM5Rk9aSnJJTWhpcQ?oc=5) |
 | Former Illinois sheriff’s deputy convicted in killing of Sonya Massey - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPWHVnSnZrZVBrbTFVX0lwdlNDZVRrd21IQzRFZWRkSTE2c1ZyankwelA4bjBFY3A0b0tnR09KY3diN1M4U3pZVEhoVXVMRy1xdHBaakR5T0VuNy0tSE5vdjBkUml6Q0N2bGFUX1c0V1Qtb0laczdaN3FXOVJ6V3dQbVM0NVo?oc=5) |
