@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 13:56:54（北京时间）**
+🕒 更新时间：**2025年10月30日 14:00:46（北京时间）**
 
 ---
 
@@ -10,14 +10,14 @@
 |--------|-------------|
 | Starmer rules out investigation as Reeves apologises for breaking housing rules | [阅读全文](https://www.bbc.com/news/articles/cd04d0yxnrvo?at_medium=RSS&at_campaign=rss) |
 | Dozens dead in 'total devastation' left behind by Hurricane Melissa | [阅读全文](https://www.bbc.com/news/articles/cy0kvrnyy4wo?at_medium=RSS&at_campaign=rss) |
-| Thousands on benefits could have energy debt cancelled | [阅读全文](https://www.bbc.com/news/articles/c4gpzynky88o?at_medium=RSS&at_campaign=rss) |
+| Despairing homeowners plagued by damp urge government to fix 'botched' insulation | [阅读全文](https://www.bbc.com/news/articles/ce8g3018krro?at_medium=RSS&at_campaign=rss) |
 | The dads helping daughters through their periods | [阅读全文](https://www.bbc.com/news/articles/cy8v5xn8gdvo?at_medium=RSS&at_campaign=rss) |
 | How China really spies on the UK | [阅读全文](https://www.bbc.com/news/articles/cgr4xpyrkdqo?at_medium=RSS&at_campaign=rss) |
 | Backstabbing, dirty work and an iconic exit speech in Celebrity Traitors | [阅读全文](https://www.bbc.com/news/articles/c98n7k67y95o?at_medium=RSS&at_campaign=rss) |
+| Thousands on benefits could have energy debt cancelled | [阅读全文](https://www.bbc.com/news/articles/c4gpzynky88o?at_medium=RSS&at_campaign=rss) |
 | Afghan man charged after dog walker killed in London triple stabbing | [阅读全文](https://www.bbc.com/news/articles/c2lp7wx740go?at_medium=RSS&at_campaign=rss) |
 | Trump directs nuclear weapons testing to resume for first time in over 30 years | [阅读全文](https://www.bbc.com/news/articles/c4gzq2p0yk4o?at_medium=RSS&at_campaign=rss) |
 | Dutch centrist liberals neck and neck with populist Wilders in tight election | [阅读全文](https://www.bbc.com/news/articles/cpwvy4w875vo?at_medium=RSS&at_campaign=rss) |
-| Cruise operator 'failed' woman who was left on island and died, family says | [阅读全文](https://www.bbc.com/news/articles/cwyndvj3640o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
