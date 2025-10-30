@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 00:56:59（北京时间）**
+🕒 更新时间：**2025年10月31日 01:00:24（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| England's most deprived areas named - see how your area is affected | [阅读全文](https://www.bbc.com/news/articles/cly137089yyo?at_medium=RSS&at_campaign=rss) |
+| England's most deprived areas named - see how yours is affected | [阅读全文](https://www.bbc.com/news/articles/cly137089yyo?at_medium=RSS&at_campaign=rss) |
 | Man dies and three injured in helicopter crash | [阅读全文](https://www.bbc.com/news/articles/cx203g3j416o?at_medium=RSS&at_campaign=rss) |
 | Xi and Trump find temporary truce at meeting as China plays longer game | [阅读全文](https://www.bbc.com/news/articles/c8eyx718pz2o?at_medium=RSS&at_campaign=rss) |
 | William and Kate win legal battle over ski holiday pictures | [阅读全文](https://www.bbc.com/news/articles/crmxevlye9po?at_medium=RSS&at_campaign=rss) |
