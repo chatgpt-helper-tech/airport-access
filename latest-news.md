@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 22:09:02（北京时间）**
+🕒 更新时间：**2025年10月30日 22:17:31（北京时间）**
 
 ---
 
@@ -13,10 +13,10 @@
 | How much trouble is Rachel Reeves in over rental rule break? | [阅读全文](https://www.bbc.com/news/articles/cvgkvd3jg2no?at_medium=RSS&at_campaign=rss) |
 | England's most deprived areas named - see how your area is affected | [阅读全文](https://www.bbc.com/news/articles/cly137089yyo?at_medium=RSS&at_campaign=rss) |
 | UK charters flights to get Britons out of Jamaica | [阅读全文](https://www.bbc.com/news/articles/cp8yw58w50eo?at_medium=RSS&at_campaign=rss) |
-| Five new suspects arrested over Louvre jewellery theft | [阅读全文](https://www.bbc.com/news/articles/cz91jnyelq2o?at_medium=RSS&at_campaign=rss) |
 | I'll never forgive the woman responsible for my wife's paddleboard death | [阅读全文](https://www.bbc.com/news/articles/c9wv8gpneywo?at_medium=RSS&at_campaign=rss) |
-| Virgin cleared to challenge Eurostar on Channel Tunnel route | [阅读全文](https://www.bbc.com/news/articles/cy8v5z15551o?at_medium=RSS&at_campaign=rss) |
 | Reports of mass killings in Sudan have echoes of its dark past | [阅读全文](https://www.bbc.com/news/articles/c20pezegv1zo?at_medium=RSS&at_campaign=rss) |
+| Virgin cleared to challenge Eurostar on Channel Tunnel route | [阅读全文](https://www.bbc.com/news/articles/cy8v5z15551o?at_medium=RSS&at_campaign=rss) |
+| Five new suspects arrested over Louvre jewellery theft | [阅读全文](https://www.bbc.com/news/articles/cz91jnyelq2o?at_medium=RSS&at_campaign=rss) |
 | Lily Allen to tour new break-up album in UK theatres | [阅读全文](https://www.bbc.com/news/articles/cly91q251ljo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -27,8 +27,8 @@
 | Trump directs Pentagon to test nuclear weapons for first time since 1992 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQNlZyTTVfLU9sSTJFbHVUZkpESFFFRkt6ek1Lck1LY1MxUVZPRjFQYktGYWxUTHRQUWdITXVfMVJqRGhLSDN2bEJVUjR5YUtLSkhsdjBDaHFZcG05dmFHVGZTRkMxRDRnaXZyaVdCMDd2MWxqcVBrWDRVSlJzZWFPM0F3?oc=5) |
 | Hurricane Melissa leaves trail of destruction across Caribbean - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFAzeDdkeURkUVRtT3lfc3hjV3VDVWY5LUNlUkNCdDBkVDJUOUhiTnpHTW9jcGFpLXlQQ0JYWUZYNlZ5dlRTWnhOZkN5VzNDYzV6cmNpTzVyNHI1QdIBX0FVX3lxTE84WXBCeFpueHA3VnF4ei1SY1p1aGp1cEZIYnlwbjIyUUxqMVlEMGNhOUUwTVBCRllBS1RuZUQ1d3V4NXlXZExJdjJGQTF0SjhWdDhGM1U4TGNqb29hM2ZJ?oc=5) |
 | California Divided: Here’s What’s at Stake for Californians Whose Districts Could Get Rewritten by Proposition 50 - KQED | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxObU03ZFpoM3F6d284N1E1YUo5TDlURzdXSWU3Mkd3b1ZNWlc3MzgxM3ZpQUlkdGl5azBBNk40ZTFfdHA0NVdrNmpRYVZMRWYySWtfMEJlc0N4bUdYdkt1eURtcnAzT3pKVnpKS25rTlpUOGs4TWtqNy1iLXg1QTVhUHRLWHlvVmREUENrX1lFOExWbXhiNlBJN2tlM0lWRFlyazdja0J4ZEhCdEFiYjJoTUNVb1pUOFp6N0hxbWVBRGQ2RTJub3lKbkdXYXFTRUd6NmE3eA?oc=5) |
+| ‘Not So Bulletproof’: A Far-Right Party Faces Rebuke in the Netherlands - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxOLUZleTZ5ZmNtYzRQZ0FxR1hwamFzQ3l2T2FLWmloRmpfRTFPc1RjdW5LY1ZvZlVISFlzZG9Fc3pEVXc1VEgzel9CV3FZT2tGN0R3LUpYaXBibDFzVzc5dnpkeTVkZ05LNlVMRGlEUWhubFRIemVWalFCZk1fRzlVVWtRZ08zdUxuVXpFeUN4YzNqU3dITm9J?oc=5) |
 | Why car insurance costs have soared (and what drivers are doing about it) - NPR | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE94UDVic2g1N3IxVjJmUmdNZXAwRGJ5NG5aZW9UOTdXd25RS2JIVm51S0xrZDQzcVprMFFUWVZ0a0UxdDlMdjZRWHFXS1hhSlhzUU5uZU8zOVMtSzlBUGFsV05OZUxHaWJ5MWZnaWg5MHdyY09wcTRIY0x4cXVoUWs?oc=5) |
-| Grieving daughter of cruise ship passenger left behind on remote Australian island says ‘there was a failure of care’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxOeHpncjdQR0ExLWlUajRPeldBRVZxOWNGRTdvMHhYQjRrbnZ6dDQtdnJMRzRNR2h3MlFxdE9wWE9jb3RHUWkzbk1mSTJTbVhQSTBLVUh2MjVNWC1EX04tajFhTEtPRWwxSXZfNTJ3eXlIZ1lrYXNxUE0tOWNUOWx1Wks1bkwxd19TZjg5azBjT1gxS3FBTm05bFRHbHpkU1F6SlVLY1NTTFRxWTY3MDdUMllvU3VnNmhPOGJxTjZnNFowUXBiS3lCUFE5VnJMNmhRM0RwLQ?oc=5) |
 | Former Illinois sheriff’s deputy convicted in killing of Sonya Massey - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPWHVnSnZrZVBrbTFVX0lwdlNDZVRrd21IQzRFZWRkSTE2c1ZyankwelA4bjBFY3A0b0tnR09KY3diN1M4U3pZVEhoVXVMRy1xdHBaakR5T0VuNy0tSE5vdjBkUml6Q0N2bGFUX1c0V1Qtb0laczdaN3FXOVJ6V3dQbVM0NVo?oc=5) |
 | Farm-state Republicans finally reach their breaking point - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNNENPZ00zOUphZ2pBNlE1dmNxU3oyblBBNXJVV0kweWtZR3IwM18yR3ZhWmtkd3J1WEtiMlU3dVl3b1BxQ1ZUbjU2NU15cXNQVVpMSDlnOVB0LTE0WUZKZmFNMGJEN2hiMDl6Ylp1ZnpEYlY2RHlaY2NuTW1sYTFHMWUzUmVzRHRVSWlNQndyTlZfYXRmeWc?oc=5) |
 | Senate postpones confirmation hearing for Trump surgeon general pick after Casey Means goes into labor – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPZ3FwWFhaalNIMm5YcUcwT19rNTVhdWRkM3hEUXc0QzVtRnIwZDV5cWdycThjX3dTWjNXM3RaS2xVN1JkOFpoQmdVZXlvMGxyMDROV29NXzFKVXRfNEtLeVRFeHJSZVF0c3l0Y1NjSEdvS0tIeHlqZTU1V3RMdXRCUWk2b2VGQkVXTkQ0dEk1RnI1N1hGZUk2QTYzUQ?oc=5) |
