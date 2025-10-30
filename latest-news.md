@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 07:32:27（北京时间）**
+🕒 更新时间：**2025年10月31日 07:40:37（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Live updates: Trump administration limits refugee admissions to mostly white South Africans - AP News | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9ibnF2U0EtWXVYbm11akY5ZFJOT1JXRk9TMFhoa2ZDbVd4dGYydURzOVIxLVBCT2ZFZUt5OTVKZ3JVdVBEOW8ycjAxclUwMng0OVByWlNaNWRwc3ZlNGF4SjhMTXBaSElkcTE3Tg?oc=5) |
 | US Senate votes to end Trump’s global tariffs on more than 100 countries - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1qckNIUWdtNnVhazREOXZlSFAyZ1dyTDRWRWxJZmNxMFh1WDdjSjhCMi11Z2ZrR2dGQmRLTUxaUDVwa3FxUnBFTG9reDNCSHhYZGJ4WHk0aW9hUk5UMlpqekhWckdtcEhJSGpKMlRTWnpMN2d0X3ZLLVJhTzg1Zw?oc=5) |
 | Dems rage at "unsatisfactory" Trump briefing on drug boat strikes - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPT1V5UzUzMmpaOXZEbnlwN0hLLVdfbjRfYzlqZVFabnZBd3pQYXVGOGNjRzlicVhBcEZJNDUtdjRmRVo3dThrUm13MVBFdFdHTkhwclNYMnEwVUcyNFc5Zm9YMW1fTFpUSlBfOHhDMkJPYU5vSTVkTjAyM0N5YWVNaV9hM24ydEg2?oc=5) |
-| Teacher suing for $40 million after being shot by her 6-year-old student testifies in civil trial - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQUm9WVWJXalBZZlQ3VjdMdDJFYXBoVkZSZVlvcGJsa3IySlIzeGlUMGpVZmtUaHd6bHR2aG5zbElBcjVNbkdnaGJ3SlhpaGI0TFU3Yl9xNFZxYUlVTFVjbnVEeVNLdmNWWGlNd0dvNWljSUxPeW5fQjBNa3VEYVRGOFBJcWo3Tk80bHFwNHptQWfSAZYBQVVfeXFMUEl0Rm9xUFM4WjQ4Skk5OG02OTRrMlF2Tmo5OEZvdG53OFBzbVZ4Z1lWbDlQMWZPSFlFdW5YcXVwRG9XZjRoYzlaZHhKbnJldlVHTlhXektzbWlIMnhxV2syT1phMkhqdVNKX1Z4eEZKRTJyWktrNkhsRVdFX3ZmTC13U0JhSGx5NXhKdzBkeDQ0UHVWd3Vn?oc=5) |
 | Judge sentences former Jan. 6 defendant for hoax threat near Obama's home - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQV0pLaEJaV2cwNDZweTFDYVU0cW5UX3ZFYjdWU09jd2tlN1lWZmJteEFNV2llZUJjT0wyTm4talZLQVRIVXMyWmJhMWJ1X2JOWmFHM0pFZDdxcVp2QTN3ME5NVVdIVnloMW9OR1ZuSU93X3VkSjlERm5jOGd0N05YaTZZcGlfZDNrVFhNYw?oc=5) |
+| Teacher suing for $40 million after being shot by her 6-year-old student testifies in civil trial - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQUm9WVWJXalBZZlQ3VjdMdDJFYXBoVkZSZVlvcGJsa3IySlIzeGlUMGpVZmtUaHd6bHR2aG5zbElBcjVNbkdnaGJ3SlhpaGI0TFU3Yl9xNFZxYUlVTFVjbnVEeVNLdmNWWGlNd0dvNWljSUxPeW5fQjBNa3VEYVRGOFBJcWo3Tk80bHFwNHptQWfSAZYBQVVfeXFMUEl0Rm9xUFM4WjQ4Skk5OG02OTRrMlF2Tmo5OEZvdG53OFBzbVZ4Z1lWbDlQMWZPSFlFdW5YcXVwRG9XZjRoYzlaZHhKbnJldlVHTlhXektzbWlIMnhxV2syT1phMkhqdVNKX1Z4eEZKRTJyWktrNkhsRVdFX3ZmTC13U0JhSGx5NXhKdzBkeDQ0UHVWd3Vn?oc=5) |
 | Zohran Mamdani and Democratic Socialists prepare for complicated partnership - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOckZUWnZpa0UtbHJSZWtQdFk2SkxGT0JDM3duM2dPek9jbHFPaVNPa1d0aUZmTFBMbWY0N3dGWUp2Y2dZQTJWS1BZM3BLeElHaHhGLXBlQ1ZXRkIzY1RjMEg3ZG5sNHlpa2FCampwM2NkSGg4ZGZaTmF5YW5wc1Q3Q2hEWWpkRUZiV016Yg?oc=5) |
 | DOD can’t say who it killed in military strikes against drug smugglers - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOUzZ1cjN3U1NVeGZwZzdaWUZaYVFGSEVPTVhRb0VsT2VDZXJueHY0SkJIckhVQTR2NTZiaXg4Nk1nSnZQbzFJSUlJQUVnczVnVndNZXUtejczVXMzLWZNaHYzb1lnby1HX0xydjJQSmdkbDFqXzNPWHdJZXY3TGN6V25Va0E2WUNMNVM2ai1R?oc=5) |
 
