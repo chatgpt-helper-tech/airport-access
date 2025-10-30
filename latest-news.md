@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 18:50:02（北京时间）**
+🕒 更新时间：**2025年10月30日 18:56:20（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Downstate jury finds ex-cop guilty of second-degree murder for fatally shooting Sonya Massey - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOR2xCYi04b2RuNGR5OWNSUGtMQTJUNEQwX1FjenpVY0tvUlVUMXlMaVI4NFdad0ZSbDdDY0tsZ2FnMk41UG8xX3dJVnUwYkF3OUF6eWs1emFRVmsycU12T05KeWZzWnFQNmtkNU9kZWEzWFJES3JvTWd2SF9mTktBclNWU2dNY3MyQm41OWxaSnpYZ1ZyTmNSb0Y3Si0xTzRUR3pITnhONlRlVmlNYWd5T2V3?oc=5) |
 | Farm-state Republicans finally reach their breaking point - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNNENPZ00zOUphZ2pBNlE1dmNxU3oyblBBNXJVV0kweWtZR3IwM18yR3ZhWmtkd3J1WEtiMlU3dVl3b1BxQ1ZUbjU2NU15cXNQVVpMSDlnOVB0LTE0WUZKZmFNMGJEN2hiMDl6Ylp1ZnpEYlY2RHlaY2NuTW1sYTFHMWUzUmVzRHRVSWlNQndyTlZfYXRmeWc?oc=5) |
 | Trump says South Korea can build nuclear-powered submarine - dw.com | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPR1U4VHBuWUlGWWxtNHN3ZE94T3l0SGlnSUV0ZmNTZXJIdGk0enRVOUZGNmdQVGRmSkxjbUs5enFOb1V5SWhDa2pMTkp2cW1vcG9oMGZJQW1ZLWpjeFZmRWxFcTVDV1hESE80Y0g5T1NEMllxaVZBaGVCY1N5Y2NnUVhvbXhSdFBTa0dYYktubkNsc2xsT3fSAZYBQVVfeXFMTVliUjczalRxNHBpT2VNXzVLOEpGMzZtSmtaZWttdHRkV0JpOEREOWZtTGx4MlJuNWZTdDF0eTVXZmdtTEcyRHU5MjBabVpxMUs5YkNZOWFiOF9lZFJ0WmFqU2MwZElOS04xXzJ0b2FGUTZJYTJyTWdyUXlUQzdMWnJ0bFNXM3dvREwwU2REa2RfcmZhZVZB?oc=5) |
-| Opinion ｜ A turning point in the government shutdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOUEtPNlZvLWxOWVMtekR6RTNVcGNDYjRMNGZTaEt4bWJwQi1DQTRYNmJsOWI0TVpieHFHQ2JPdDhILXpiRmdDeGVMbmNRS2tLVzlPU2dnSGxmRTVvTndjUDd6TThkOTN1bjZzdjJpX1ZpSVp5bmRQbGtIV1BSUExaYVBlTGJlNUdRUWFUNzBUMEpzeTBTQm4xTmlpdENDUQ?oc=5) |
+| Government shutdown continues as senators express cautious optimism about talks - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOb193QllWRkh4WTdjTUoyMk0tdjN4VWNLRUJrSnJrdzUwTW5PTUk4XzlMbjkzb3NraDZ5eE9ZV3lkUDV2MjNkX3pvUUpyVG00YjZoUGR2S25lb3pBY1RnMXlvNm1TYmFQVjhpQWUyNV9LTDlQQkdUakYtbWt1c0ZYcS1tRXo1QV9ucVhZTWtVQdIBlAFBVV95cUxQekpVN0NURkEzbTBXOGFETHV5Szc4NEp6T2lxU0UwbHd2RXZSMVdzYnZaQmZRUzUyZWpqRjlJbVd4UzlHTEowbTlKb1QzZTUzNFEyZ3FjM0oxODRQaTc3RElrYjBZMndMdE05UWE3c0VVaFRFSE1LaEJtQll3aU5PbTR1cHNROUtKTURLYzhzdnhxX2VH?oc=5) |
 | Jury convicts California activist who took chickens from Perdue Farms plant - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPS3ZOTWJ0czRreXViYy0wSzJVdWZRdFJtTy1jVXpLQTZkYnpwVkhKSzdYaUUxTkNrOW1BLUVuR1pqTGhmczJzZVh1bEIxbkhhZG5KMmt4UFQ3SUllUWZwc0tDME95Ri1qNXRHb1lYSll5VWw1OFB1MEZhYjF3WS1ON2stQjJVUmF1UWRaTzhHWGdtRE5laFlOMkVoSXo2U1M4MEJDcjJpY09mLWpN?oc=5) |
 
 ---
