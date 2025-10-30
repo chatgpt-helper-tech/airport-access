@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 09:01:36（北京时间）**
+🕒 更新时间：**2025年10月30日 09:08:21（北京时间）**
 
 ---
 
@@ -14,8 +14,8 @@
 | Thousands on benefits could have energy debt cancelled | [阅读全文](https://www.bbc.com/news/articles/c4gpzynky88o?at_medium=RSS&at_campaign=rss) |
 | Centrist liberals head for shock victory  in Dutch election, exit poll says | [阅读全文](https://www.bbc.com/news/articles/cpwvy4w875vo?at_medium=RSS&at_campaign=rss) |
 | How China really spies on the UK | [阅读全文](https://www.bbc.com/news/articles/cgr4xpyrkdqo?at_medium=RSS&at_campaign=rss) |
-| Tit-for-tat tariffs, a shaky truce and turmoil: How we got to the Trump-Xi meeting | [阅读全文](https://www.bbc.com/news/articles/c986j98qmj1o?at_medium=RSS&at_campaign=rss) |
 | The dads helping daughters through their periods | [阅读全文](https://www.bbc.com/news/articles/cy8v5xn8gdvo?at_medium=RSS&at_campaign=rss) |
+| Dependants of Gazan students can join them in UK, government says | [阅读全文](https://www.bbc.com/news/articles/cly91lj9y47o?at_medium=RSS&at_campaign=rss) |
 | Sudanese RSF militia killed many civilians at hospital, WHO chief and doctors say | [阅读全文](https://www.bbc.com/news/articles/c364jgkge46o?at_medium=RSS&at_campaign=rss) |
 | Backstabbing, dirty work and an iconic exit speech in Celebrity Traitors | [阅读全文](https://www.bbc.com/news/articles/c98n7k67y95o?at_medium=RSS&at_campaign=rss) |
 
