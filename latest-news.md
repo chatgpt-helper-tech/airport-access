@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 15:32:38（北京时间）**
+🕒 更新时间：**2025年10月30日 15:41:58（北京时间）**
 
 ---
 
@@ -10,14 +10,14 @@
 |--------|-------------|
 | Starmer rules out investigation after Reeves admits rental rules ‘mistake’ | [阅读全文](https://www.bbc.com/news/articles/cd04d0yxnrvo?at_medium=RSS&at_campaign=rss) |
 | Dozens dead in 'total devastation' left behind by Hurricane Melissa | [阅读全文](https://www.bbc.com/news/articles/cy0kvrnyy4wo?at_medium=RSS&at_campaign=rss) |
-| Despairing homeowners plagued by damp urge government to fix 'botched' insulation | [阅读全文](https://www.bbc.com/news/articles/ce8g3018krro?at_medium=RSS&at_campaign=rss) |
+| Homeowners plagued by damp urge government to fix 'botched' insulation | [阅读全文](https://www.bbc.com/news/articles/ce8g3018krro?at_medium=RSS&at_campaign=rss) |
 | How China really spies on the UK | [阅读全文](https://www.bbc.com/news/articles/cgr4xpyrkdqo?at_medium=RSS&at_campaign=rss) |
 | Backstabbing, dirty work and an iconic exit speech in Celebrity Traitors | [阅读全文](https://www.bbc.com/news/articles/c98n7k67y95o?at_medium=RSS&at_campaign=rss) |
 | Thousands on benefits could have energy debt cancelled | [阅读全文](https://www.bbc.com/news/articles/c4gpzynky88o?at_medium=RSS&at_campaign=rss) |
 | Trump directs nuclear weapons testing to resume for first time in over 30 years | [阅读全文](https://www.bbc.com/news/articles/c4gzq2p0yk4o?at_medium=RSS&at_campaign=rss) |
 | Dutch centrist liberals neck and neck with populist Wilders in tight election | [阅读全文](https://www.bbc.com/news/articles/cpwvy4w875vo?at_medium=RSS&at_campaign=rss) |
 | Dependants of Gazan students can join them in UK, government says | [阅读全文](https://www.bbc.com/news/articles/cly91lj9y47o?at_medium=RSS&at_campaign=rss) |
-| The dads helping daughters through their periods | [阅读全文](https://www.bbc.com/news/articles/cy8v5xn8gdvo?at_medium=RSS&at_campaign=rss) |
+| How dads are helping daughters through their periods | [阅读全文](https://www.bbc.com/news/articles/cy8v5xn8gdvo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,8 +30,8 @@
 | Majority of California likely voters say they support Prop 50, poll shows - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOY2tHUnpTR3Z5T3hFbXJnVzZpRnZCS3ZXM3k1Sm9GVUNnU1dXcWRMTlI1SXpCMmkwMTRBRy1TNndMWWhsUzZvLUxYSGJBakVYWGFEd01Ud3BIdHF3VlhqSC1lMklZaEpyVmJmUE5pTzlVcDQxdTFSek4zU1paQi1qdWhHS1ZDME9TdnNZdlhlWmh2YVdVZ1BPVFhoRGxjRm4tOTZYaGxlUdIBrAFBVV95cUxPeldEdkpORGFqdThRWHdKQlBvVl9RWEU2V0RiVTBOWEpNXzFzdHZlT3dtaUJhcDEzaC02ZTBFNUpmR0pPWEZzRWc2RmxlejQ1UFVVRTQwQUVIaEJ0RTgwVU9fMUh2dWlZQWpRMVdTd0dlYmlpbEJKeWRUY2l5bnAtZnJRb2VteUZjREdMZEoxcGJqdHVaOFVNUVpkWkJKNXVLZzBuM3NDS1JlNWpD?oc=5) |
 | JD Vance calls for reduction in legal immigration at Turning Point event - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPOUVlNlMwLTVFNlpRYkR4YWhIQVdVbjRXdDBGUWVjUHQ1NnY1N2JVazRwejZ2SE1rRnJXdTdTai1IMEF5aDRyTzZyMkNwZmszdXpvTlhXZ0FZSE1tV2VOT2pxNlc2U1pKelFzX0k5VTFHeFZIRFc0bzJMRkpXTENfR19FbGtOWk9SdjJ6c3VRbVRLOW9CcFBtRVYzdUxFT1JlbW9ZSzVJUQ?oc=5) |
 | Former Illinois sheriff’s deputy convicted in killing of Sonya Massey - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPWHVnSnZrZVBrbTFVX0lwdlNDZVRrd21IQzRFZWRkSTE2c1ZyankwelA4bjBFY3A0b0tnR09KY3diN1M4U3pZVEhoVXVMRy1xdHBaakR5T0VuNy0tSE5vdjBkUml6Q0N2bGFUX1c0V1Qtb0laczdaN3FXOVJ6V3dQbVM0NVo?oc=5) |
-| Virginia judge lets Democrats' redistricting plan move forward - Axios | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQR0RpOHFmNnJ4bDNZRGF6V1pBSHc1WlVSRmU5ZW94dXFLb2lUZXNtdGJJcXFrVzJ0ZFlZSkZEWWpYbVhpWVQxeDRQWXZ4UllOMmo1bEJXbXY0S3BMR1RmYjZPbDBrWERHX1ZtbVdZLXZERGpiR1ZTaGQ2UWxQbEt6QTNNOVVqVVdBUWVwR0tYY2o4VVJ5X3c?oc=5) |
 | Ukraine war briefing: Putin boasts of nuclear-driven torpedo that would swamp cities with radioactive tsunami - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi6gFBVV95cUxQT2xMYUI2dUNieXhhRWthb1hPa3pSeHdDU3gzX2J0Z2dZcmNXSmduLVp5cG5pOGFoY09xMlNaYjVtQnN3V0lEMXIwVWxnSDI0cjBhY241dkJNdlNVUEhGQ0dqVnViNVhlalFwN2pxS3p1ODhPY05uOHVsQUZ6eTZWRmVEWDFuMFFhZWpPam81TTFQamRTczZUektpY0hHN2pIcjdLY2dCWmZQUWNFaS1xYk83Q2VzdTFXdmlKdFR0MjdyZWxRanNmMWFzMHFSd0M0UWFad05rdmU2cTduNzZfR01zb3Fna1BqaHc?oc=5) |
+| Virginia judge lets Democrats' redistricting plan move forward - Axios | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQR0RpOHFmNnJ4bDNZRGF6V1pBSHc1WlVSRmU5ZW94dXFLb2lUZXNtdGJJcXFrVzJ0ZFlZSkZEWWpYbVhpWVQxeDRQWXZ4UllOMmo1bEJXbXY0S3BMR1RmYjZPbDBrWERHX1ZtbVdZLXZERGpiR1ZTaGQ2UWxQbEt6QTNNOVVqVVdBUWVwR0tYY2o4VVJ5X3c?oc=5) |
 | With SNAP benefits set to halt, Thune says he can't clarify Trump's plan to fund program - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQdFZFVm01clZEOWRiX081WF9RaURweEV3Z25hbzJUTHkyUE1BeXhSMjVCSGVLODdDU0ZmQTliOGlsNUhoSm10VHduR3Q1RE9ScmJZdnhIcjVsaklJZFltNGVrUml2RkpJcE8ySTM3WkdyaGRvYlZicTBabDlkWFNwRXRUUk5iMXdNQ2RmVlhCNmw1WGs4Nl84WmdlV3pvanhS0gGmAUFVX3lxTE1hWGNmZXcxQk1YZmF4R0ktZjUwWGJjRi1vMEVOdmxZZjV4c2ExVGk5YUxzQ3dkYVozYlpIaGpEN2x0bVFiaHZ0M2I3YTRjSFlYT013WG9yNUxtZTcwdzRYZEVqYVpnQy1uR1NZck5FRHBUbk1sZkFGR3l6c2pHQS1ZR3B5TlRYeHhHTzB1Rno1dl92YkNFV0JOUDYyNzRzVjM5OWNPMkE?oc=5) |
 
 ---
