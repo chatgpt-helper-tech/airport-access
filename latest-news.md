@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 21:56:45（北京时间）**
+🕒 更新时间：**2025年10月30日 22:00:36（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Former Illinois sheriff’s deputy convicted in killing of Sonya Massey - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPWHVnSnZrZVBrbTFVX0lwdlNDZVRrd21IQzRFZWRkSTE2c1ZyankwelA4bjBFY3A0b0tnR09KY3diN1M4U3pZVEhoVXVMRy1xdHBaakR5T0VuNy0tSE5vdjBkUml6Q0N2bGFUX1c0V1Qtb0laczdaN3FXOVJ6V3dQbVM0NVo?oc=5) |
 | Farm-state Republicans finally reach their breaking point - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNNENPZ00zOUphZ2pBNlE1dmNxU3oyblBBNXJVV0kweWtZR3IwM18yR3ZhWmtkd3J1WEtiMlU3dVl3b1BxQ1ZUbjU2NU15cXNQVVpMSDlnOVB0LTE0WUZKZmFNMGJEN2hiMDl6Ylp1ZnpEYlY2RHlaY2NuTW1sYTFHMWUzUmVzRHRVSWlNQndyTlZfYXRmeWc?oc=5) |
 | Americans largely oppose Trump tearing down White House East Wing to make way for his ballroom: Poll - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNakktSWhxVHlWYkRwakQtSjBQZXpRZUk5Z0hFSTNSNXR1cmdLdDFrZUtRSGZaY1FlZ0VtWUVyNHRJbTRlM2JDNWF6alF6eFpTUk5WY0tUMU9UcjhDTmpLVTZKZm10Z2NPZ2g1QmtpTEZMbURyUndFVHJKN0haUEVDUWtXSFlGWWVTMzBvZ0lKelVqOTAwV1MzMGVZbXVNZHRTdGw4T3J6R1ZlZ9IBrwFBVV95cUxPQmItYzA5UV9LU0hJdmw3Zk1QRENIRUNGVzFkMEJPN0xSTWlMbkxxc0hZVFEyalV2VFlFVG8xaXllbnZ4WUpmX3pqN0FVSEdrTXp1ZW9mX0NXX0VYTExqOGdUUXBXRVhCajg5azdQTjhTSkRpQ3lDOW5lV1ZRYzFENE1CUHhsemh0aDh1SENOYk1JN3hISTNFdVZZcDNEYmNpNGlvNzVVeWE5TGNYQmg4?oc=5) |
-| Virginia judge lets Democrats' redistricting plan move forward - Axios | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQR0RpOHFmNnJ4bDNZRGF6V1pBSHc1WlVSRmU5ZW94dXFLb2lUZXNtdGJJcXFrVzJ0ZFlZSkZEWWpYbVhpWVQxeDRQWXZ4UllOMmo1bEJXbXY0S3BMR1RmYjZPbDBrWERHX1ZtbVdZLXZERGpiR1ZTaGQ2UWxQbEt6QTNNOVVqVVdBUWVwR0tYY2o4VVJ5X3c?oc=5) |
+| Senate postpones confirmation hearing for Trump surgeon general pick after Casey Means goes into labor – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPZ3FwWFhaalNIMm5YcUcwT19rNTVhdWRkM3hEUXc0QzVtRnIwZDV5cWdycThjX3dTWjNXM3RaS2xVN1JkOFpoQmdVZXlvMGxyMDROV29NXzFKVXRfNEtLeVRFeHJSZVF0c3l0Y1NjSEdvS0tIeHlqZTU1V3RMdXRCUWk2b2VGQkVXTkQ0dEk1RnI1N1hGZUk2QTYzUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
