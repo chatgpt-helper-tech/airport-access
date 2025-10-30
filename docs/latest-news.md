@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月30日 14:32:57（北京时间）**
+🕒 更新时间：**2025年10月30日 14:40:33（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Donald Trump speaks after Xi Jinping meeting in South Korea – live updates - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPZ3FwWFhaalNIMm5YcUcwT19rNTVhdWRkM3hEUXc0QzVtRnIwZDV5cWdycThjX3dTWjNXM3RaS2xVN1JkOFpoQmdVZXlvMGxyMDROV29NXzFKVXRfNEtLeVRFeHJSZVF0c3l0Y1NjSEdvS0tIeHlqZTU1V3RMdXRCUWk2b2VGQkVXTkQ0dEk1RnI1N1hGZUk2QTYzUQ?oc=5) |
-| Trump says nuclear weapons testing to resume in US after more than 30 years - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE50V1NDa2tFY1FaZGJOS0tDQ21jY1lsZjI3YzZTNHVpRnV3QnRaMlYwMXk1VEJ6YTE3MXhnWE5hWFlZSG16a0xzQVJ6WmRHWVhRTDRtOHVINm4xUdIBX0FVX3lxTFBUQmM3bWZPRFhKbWMzVDRUdWF0RXowb0kxNEpWcHlOM0tzek1fYnRVUU00QkdpMGQ5clF6WUxwb3VmMEk2Y2E4X2FsX2tkQWtsYVZaRmUyZkJtblhzUlRR?oc=5) |
+| Trump tells Pentagon to immediately resume testing US nuclear weapons - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPdGpEUFNoN1BxQ0VhUEJHMm4wbHNHZURIbUI4OWdHb2xYTXZ3SDlrXzhLSWNxb2hSX2N0enFmcER6UXdLOG8xWU5PQ3h5MnR4XzZjWmladGhZYkpvendyMTRTVEc5VlVEVWVCOEdWRXdoZVN2dnFfTEtuWkpwcUJSR1BaTHFnX0xDZXNqdTBjS3JHZ0d1dXJZRjJOcFQ4RE5sU1B1bjM4UzdabUhwbE1lLXd3?oc=5) |
 | Hurricane Melissa devastates Jamaica: in pictures - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOaUVhZzZ4WWNscU50NEF5TVROOEZZUWQteEhWRHBQdk9HR3BrOEpyYlItUi1zaUpDY28xYWhfVGhRVEo1MnRSanl0UjJERkdDYkU3M2tNT0ZZekRTRF9XQU84ak1Ya090ZEctM0RhUjhJS193VzdWWFVyU05WTlVJNjZtWTVXdkRBUTUtSWhDRDdLQUluTkhoemNFZWhXX3RBZ0xONHoyY25ZX3M?oc=5) |
-| Geert Wilders’s Party for Freedom Loses Seats in Dutch Election - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPTTRFZjB2clZUVVB5Nm1kdGlPTzRRM0UwY2NTQnZRcHZROE5ydTRYQlJCQ19PYkRwTlBpUEpFbjkxTmNqeWNEdUEzYmh2LXBiQkpEVDVmXzIwOTAzTXdvR05vbmNGV0Q2WWJhUGtEYy1NUjJrc2tfNnZXczBoU0MyT2NGUnNUTzRGTDB6UUlxOGU5Zw?oc=5) |
-| South Korea gives Trump a crown weeks after No Kings protests - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1LanhxWjhsRTd2SEVma3RWYzJQWkRReVM3b3djOE9kS2ZxLW1yQmVZeDgzNzVxdXdxVEw1bE5tRTBOTDNMaDU3Z0VWeUlpLW8xZENuMUl3UTRtc0szaEwyc2JockFoV1N4UWp6SDFTbVlGZmhOQ2c1OHJB?oc=5) |
+| Dutch centrist liberals neck and neck in close finish with populist Wilders - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5nWUFZaTJhYmxRalJpWTJ0eWdBVE83OUU0TUplMlFwRTg3LWphcnlwVGdBTW5NaVFrR3Z4SmtCbHpYRDlvMU1iaFFvakFWLXpCMWhHWlFjdFZ3QdIBX0FVX3lxTFA1ajQ2ajk5MEVTeW9Ld1drQ3ZpSVJRbkppdmhXNnpHY0lWX0VHM1VoeDZvbTQwSG50czhnc1lYQ0ZPWUl3Q1piQ2FKYXVMMHBNeG5jOFh5UnR4Y2VoRmRv?oc=5) |
 | Majority of California likely voters say they support Prop 50, poll shows - ABC News - Breaking News, Latest News and Videos | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOY2tHUnpTR3Z5T3hFbXJnVzZpRnZCS3ZXM3k1Sm9GVUNnU1dXcWRMTlI1SXpCMmkwMTRBRy1TNndMWWhsUzZvLUxYSGJBakVYWGFEd01Ud3BIdHF3VlhqSC1lMklZaEpyVmJmUE5pTzlVcDQxdTFSek4zU1paQi1qdWhHS1ZDME9TdnNZdlhlWmh2YVdVZ1BPVFhoRGxjRm4tOTZYaGxlUdIBrAFBVV95cUxPeldEdkpORGFqdThRWHdKQlBvVl9RWEU2V0RiVTBOWEpNXzFzdHZlT3dtaUJhcDEzaC02ZTBFNUpmR0pPWEZzRWc2RmxlejQ1UFVVRTQwQUVIaEJ0RTgwVU9fMUh2dWlZQWpRMVdTd0dlYmlpbEJKeWRUY2l5bnAtZnJRb2VteUZjREdMZEoxcGJqdHVaOFVNUVpkWkJKNXVLZzBuM3NDS1JlNWpD?oc=5) |
+| US will share tech to let South Korea build a nuclear-powered submarine, Trump says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQRDRlVktaWnJQamk5NE9zTFVlZVBJQVFYRXNrcDlNUDhZUm5jYUQzQWM1Vm02QlNYYS1wRnRndkl2QlhIUTRXT19RTkFoWkl1RUNHd1hMcVdRVE4zWUEwTGxnM3lkY0U0ZGRYdUJyOW5uMl9YT25pRXlYbkttWVcxYjVjVk9UdmlLR1hYODVncDM2c0xiWnlCemZjT2hMbGIwVldUMzJB?oc=5) |
 | Former Illinois sheriff’s deputy convicted in killing of Sonya Massey - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPWHVnSnZrZVBrbTFVX0lwdlNDZVRrd21IQzRFZWRkSTE2c1ZyankwelA4bjBFY3A0b0tnR09KY3diN1M4U3pZVEhoVXVMRy1xdHBaakR5T0VuNy0tSE5vdjBkUml6Q0N2bGFUX1c0V1Qtb0laczdaN3FXOVJ6V3dQbVM0NVo?oc=5) |
 | Ukraine war briefing: Putin boasts of nuclear-driven torpedo that would swamp cities with radioactive tsunami - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi6gFBVV95cUxQT2xMYUI2dUNieXhhRWthb1hPa3pSeHdDU3gzX2J0Z2dZcmNXSmduLVp5cG5pOGFoY09xMlNaYjVtQnN3V0lEMXIwVWxnSDI0cjBhY241dkJNdlNVUEhGQ0dqVnViNVhlalFwN2pxS3p1ODhPY05uOHVsQUZ6eTZWRmVEWDFuMFFhZWpPam81TTFQamRTczZUektpY0hHN2pIcjdLY2dCWmZQUWNFaS1xYk83Q2VzdTFXdmlKdFR0MjdyZWxRanNmMWFzMHFSd0M0UWFad05rdmU2cTduNzZfR01zb3Fna1BqaHc?oc=5) |
 | SNAP deadline becomes Democrats' sharpest leverage - Axios | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFBKbENhWGk1Y091UHBHRHlyUGxsR29WTDczOE5rZ2lvbFB6NFhDVk5sS0NwRjZQeUowWXRzSkkzVHNsRC02cWJpNUZtY3BxTzlUU2hoR0tkMVJoalZCUE9BMHdxXzZLbFZENDBIVGNWYTl2bzFobmtYZTZXTQ?oc=5) |
-| Virginia judge lets Democrats' redistricting plan move forward - Axios | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQR0RpOHFmNnJ4bDNZRGF6V1pBSHc1WlVSRmU5ZW94dXFLb2lUZXNtdGJJcXFrVzJ0ZFlZSkZEWWpYbVhpWVQxeDRQWXZ4UllOMmo1bEJXbXY0S3BMR1RmYjZPbDBrWERHX1ZtbVdZLXZERGpiR1ZTaGQ2UWxQbEt6QTNNOVVqVVdBUWVwR0tYY2o4VVJ5X3c?oc=5) |
+| Trump, South Korea Reach Terms on Trade Deal - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPVXdwTGpLT2x3SFpYOWJNdHVRNzIxSXl4dkJSREtJZFlJcklHRzYtRDNQcTZiaFA5SVR0LUdrMEI2WW82bTc3dFVTVWpkU3JDSnpIWk1mSmg2SGFFMGY5NnhhMTZIdXJRcWJuME44eVhlR3ZjMjFFZWs3Y3BaTFJ3SXFvRXhNLVdQM3FQa051Q0FkVW1pM1UyYnB3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
