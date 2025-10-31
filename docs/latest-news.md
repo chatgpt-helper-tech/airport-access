@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 19:32:57（北京时间）**
+🕒 更新时间：**2025年10月31日 19:40:11（北京时间）**
 
 ---
 
@@ -12,12 +12,12 @@
 | Why did Andrew lose his titles and where will he live? | [阅读全文](https://www.bbc.com/news/articles/c5ylk9r336zo?at_medium=RSS&at_campaign=rss) |
 | Reeves rebuked by PM over 'regrettable' rental confusion but faces no further action | [阅读全文](https://www.bbc.com/news/articles/cvgk40l8jm7o?at_medium=RSS&at_campaign=rss) |
 | Hurricane Melissa death toll rises as aid struggles to reach parts of Jamaica | [阅读全文](https://www.bbc.com/news/articles/clylqpyg8pjo?at_medium=RSS&at_campaign=rss) |
-| Heartbreak, headless dummies and  'eggy' Shakespeare - Celebrity Traitors fight to the death | [阅读全文](https://www.bbc.com/news/articles/cvgvqj5w233o?at_medium=RSS&at_campaign=rss) |
+| Synagogue attacker shot multiple times by police | [阅读全文](https://www.bbc.com/news/articles/c629qyndq89o?at_medium=RSS&at_campaign=rss) |
 | 'She'd be so proud,' Virginia Giuffre's family tell BBC | [阅读全文](https://www.bbc.com/news/articles/cy9pn12w4n8o?at_medium=RSS&at_campaign=rss) |
 | Watch: Question Time audience reacts to Andrew news | [阅读全文](https://www.bbc.com/news/videos/clyz6m8ml71o?at_medium=RSS&at_campaign=rss) |
 | King's statement on Andrew in full | [阅读全文](https://www.bbc.com/news/articles/c0qp75z3dw4o?at_medium=RSS&at_campaign=rss) |
 | No free bus passes for under 22s, says government | [阅读全文](https://www.bbc.com/news/articles/ce9drlgenjno?at_medium=RSS&at_campaign=rss) |
-| Long A&E waits causing heartbreaking suffering, charity says | [阅读全文](https://www.bbc.com/news/articles/c4gwkjzx088o?at_medium=RSS&at_campaign=rss) |
+| Israel confirms identities of hostages' bodies returned by Hamas | [阅读全文](https://www.bbc.com/news/articles/c4gj90j2g8jo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
