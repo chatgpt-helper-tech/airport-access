@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 17:57:19（北京时间）**
+🕒 更新时间：**2025年10月31日 18:00:32（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | Hurricane Melissa death toll rises as aid struggles to reach parts of Jamaica | [阅读全文](https://www.bbc.com/news/articles/clylqpyg8pjo?at_medium=RSS&at_campaign=rss) |
 | Pornhub says UK visitors down 77% since age checks came in | [阅读全文](https://www.bbc.com/news/articles/cgkz3m3re1zo?at_medium=RSS&at_campaign=rss) |
 | Heartbreak, headless dummies and  'eggy' Shakespeare - Celebrity Traitors fight to the death | [阅读全文](https://www.bbc.com/news/articles/cvgvqj5w233o?at_medium=RSS&at_campaign=rss) |
+| 'She'd be so proud,' Virginia Giuffre's family tell BBC | [阅读全文](https://www.bbc.com/news/articles/cy9pn12w4n8o?at_medium=RSS&at_campaign=rss) |
+| Watch: Question Time audience reacts to Andrew news | [阅读全文](https://www.bbc.com/news/videos/clyz6m8ml71o?at_medium=RSS&at_campaign=rss) |
+| King's statement on Andrew in full | [阅读全文](https://www.bbc.com/news/articles/c0qp75z3dw4o?at_medium=RSS&at_campaign=rss) |
 | Martha Kearney: I'm worried about Britain’s wildflowers - so I planted a meadow | [阅读全文](https://www.bbc.com/news/articles/c3rjnlv8ejxo?at_medium=RSS&at_campaign=rss) |
-| Long A&E waits causing heartbreaking suffering, charity says | [阅读全文](https://www.bbc.com/news/articles/c4gwkjzx088o?at_medium=RSS&at_campaign=rss) |
-| Sultana says new party is aiming to 'run government' | [阅读全文](https://www.bbc.com/news/articles/cly2xjgpg92o?at_medium=RSS&at_campaign=rss) |
-| Four easy ways to manage your money better - starting today | [阅读全文](https://www.bbc.com/news/articles/c6258nn89dgo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | Government shutdown likely to extend to next week as Senate adjourns with no breakthrough - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOZXpvTWM3cWxtZV9vV3RSMWVCdGJpeEJDX2c1Yjh1MXFoY0t1YV9kMlNYazdINmhJOWxNOVY0QXJ0dWkyZm1ZSXhxSExjZmgxbUZNTWtlQ19Td1dTY29OX3lseXR2cVNYNXR2R3hCLXl3T3Zhb1JnV0ROWUhJbXA5UG1tbEZLX2loU3FORDUxYmQ4dkVoU0E0a1NR0gGfAUFVX3lxTFB5cGdxbXloOEJ6RDE2akU1ZzIyZDNoWW1oWFpsMl9WNkVNNmRWSEh5aHVUSVFvc3A2R1FiblJpRHUtODlIODdrdmQ2RVFQV1UwZ01pR0dOc25pT3FOLWZ6SXhUMG1UdFhOUHc4c2NsZlVnTGxBZHdmbERxYlg5Qi0xWTNZelVKSm8wdTRuaWNOMlNSSDFTemJQS1liZ1lBRQ?oc=5) |
 | Air Controller Shortage Causes Delays in Orlando and at Other Major Airports - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPZGpaTnZ4NFNWY1lBRVdKNDJVdFNVYU93a0piT3lseTg5UFNvN2hKbnBMTjRybHUtcGdKVlByaFdjZlE0T0lHLUE4c1Y2T2xIQ0ZHaE5mdXZPU3RNRlV4LUF3amR4bmtnQUxrWExEbFhRbTNtS0JNZmxYT1QwMDhRMWZzQjhTTlR4cXQxa3phM3BUcTA3b3Q1eUl0andWQQ?oc=5) |
 | Trump Returns to White House in Time to Greet Trick-or-Treaters - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPSGk1QWhDOV9jeXdjN2YyeHBPTV84ZXktal9YR2p5bElsQl9rOGRZOG1HYUxkNk9Pby1zQVNSSzlGXzhtYmpqaTR1Zll2UVdaM1BKR2tWWU9BcmtaLUs0bWNYLS1CV0FQaEw1S0k4UDJUeG1UODhvcDFVWnZuMWFWWnZ2UlpJUzluZFF0TEtn?oc=5) |
-| The ACA premium surge hits home - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE1QNnhyX3MxMUlndEZocXZmNGlTUDZFSlkwT2YtRUFDR1RuZVJuRG1KZUxJem51QUtGQ1lLTDJFRmhLYmMtRnZvcVVPY1NPYmxLclc1ejZsSlVBNXY5MU4yWDFxSDUtSmZwb2dnMnZR?oc=5) |
-| US Senate votes to reject Trump’s global tariffs on more than 100 countries - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1qckNIUWdtNnVhazREOXZlSFAyZ1dyTDRWRWxJZmNxMFh1WDdjSjhCMi11Z2ZrR2dGQmRLTUxaUDVwa3FxUnBFTG9reDNCSHhYZGJ4WHk0aW9hUk5UMlpqekhWckdtcEhJSGpKMlRTWnpMN2d0X3ZLLVJhTzg1Zw?oc=5) |
+| Here’s How Much Obamacare Prices Are Rising Across the Country - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPMUpURXkzSF81R196RWdkbFhqS2gwUVRyWk1kWExFb3RTWVhtSjRxd0tqb3NzOGRyVWlPcHp5am9Sa1BIMnhUeUZFNGZneEd1RnRaZ1hWNFExY2o1NkQ1NVNzdEp4UDRwYmV0TXlNd28tR3ROZExkTk1wZFdMTTBBeGJweERUb2xXX1JoSGt0WkZ2dG8?oc=5) |
+| National Guard in each state is ordered to create ‘quick reaction forces’ trained in civil unrest - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNTUlsV3FOX1FVeENrbzJBOW9xWDQ2c1JZNjZQUzNzUjN2dTMxLXc2U2FLVDdHMVoxV2U1aEhxR0t4QkYtcEVMaXpzeXh4eWl2VEdjb2hxVmxEd0I5dVJGR2xGVzdsVUIxZzVmczVZVkYtZy1hODdYQ0EwS0ZhVzN1UzZRdnJmRXNoRWV3ancyX3lJWnpESWhMNjlMTmJBWnQ5bEY1Znc2eFYtdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
