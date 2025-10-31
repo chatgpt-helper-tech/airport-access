@@ -61,19 +61,8 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
 
 ---
 
-💡 **觉得这篇内容对你有帮助？**  
-欢迎 Star + 分享给身边人，让更多人轻松、安全、稳定地连接全球网络！
----
-
-📌 **如果你在墙内访问 Github 太慢，看不到测速图表？**  
-👉 推荐访问本站同步镜像：  
-🔗 <a href="https://gptvpnhelper.com/airport-access/" target="_blank">https://gptvpnhelper.com/airport-access/</a>
-
----
-
 📅 **内容最后更新：2025年10月29日**  
 🔗 来源：<a href="https://gptvpnhelper.com/airport-access/" target="_blank">ChatGPT 中文导航站</a>
-
 
 ---
 
@@ -480,14 +469,15 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
 
 ---
 
-#### 3. <a href="https://tanu095.tntvipaff.cc/#/register?code=7MPbfr89" target="_blank">**TNTCloud**｜AI工具专用 · IPLC专线 · 85折</a>
+#### 3. <a href="https://tanu095.tntvipaff.cc/#/register?code=7MPbfr89" target="_blank">**TNTCloud**｜AI工具专用 · IPLC专线 · 双11限时8折</a>
 
 - ✅ IPLC专线，延迟<30ms，海外团队运营
 - ✅ ChatGPT/Claude/Gemini 原生IP 100%解锁
 - ✅ 流媒体全解锁，不限速不限设备
 
 <div style="background:#fff3e0;border-left:4px solid #ff9800;padding:12px;margin:12px 0;">
-  <p>🎁 <b>85折码：</b><code style="background:#fff;padding:3px 10px;color:#d32f2f;font-weight:bold;">TNT85</code>（¥30季付除外）｜ <a href="https://gptvpnhelper.com/airport-access/tntcloud/" target="_blank" style="color:#1976d2;">👉 完整测评</a></p>
+  <p>🎉 <b>双11 8折码：</b><code style="background:#fff;padding:3px 10px;color:#d32f2f;font-weight:bold;">Crazy1111</code></p>
+  <p>🎁 <b>长期 85 折码：</b><code style="background:#fff;padding:3px 10px;color:#d32f2f;font-weight:bold;">TNT85</code> ｜ <a href="https://gptvpnhelper.com/airport-access/tntcloud/" target="_blank" style="color:#1976d2;">👉 完整测评</a></p>
 </div>
 
 ---
@@ -734,7 +724,7 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
 ### 3. <a href="https://tanu095.tntvipaff.cc/#/register?code=7MPbfr89" target="_blank" style="color:#1a73e8;text-decoration:underline;">🔥 TNTCloud — AI工具专用，IPLC专线，海外团队运营</a>
 
 **综合评分：9.3 / 10** 🏆 **AI工具首选**  
-**关键词标签**：IPLC专线 | Trojan协议 | 海外团队 | 不限速不限设备 | ChatGPT完美支持 | 原生IP | 85折优惠
+**关键词标签**：IPLC专线 | Trojan协议 | 海外团队 | 不限速不限设备 | ChatGPT完美支持 | 原生IP | 双11限时8折 | 长期85折
 
 > **TNTCloud** 是一家成立于 2024 年的海外团队运营的专线级机场服务商，采用 Trojan 协议 + 全线 IPLC 专线通道（速度比IEPL更快），节点速度极快、晚高峰稳定性极高。**特别适合 AI 工具深度用户**（ChatGPT、Claude、Copilot、Midjourney 等），原生IP确保100%解锁，不受国内政策影响。同时也是流媒体重度用户、TikTok 运营者、跨境电商的绝佳选择。
 
@@ -813,19 +803,19 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
     box-shadow:0 4px 14px rgba(0,0,0,0.25);
     transition:all 0.3s ease;
   " onmouseover="this.style.transform='scale(1.05)'" onmouseout="this.style.transform='scale(1)'">
-    <strong>🦦 立即注册 TNTCloud（IPLC专线+85折优惠）</strong>
+    <strong>🦦 立即注册 TNTCloud（IPLC专线·双11限时8折）</strong>
   </a>
 </div>
 
-#### 🎁 专属 85 折优惠码
+#### 🎉 双11限时 8 折 + 长期 85 折优惠
 
 <div style="background:#fff3cd;border-left:4px solid #ffc107;padding:15px;margin:15px 0;">
-  <p><b>📋 优惠码：</b><code style="background:#fff;padding:5px 15px;font-size:19px;color:#d32f2f;font-weight:bold;">TNT85</code></p>
-  <p><b>💰 优惠力度：</b>全场 <b style="color:#d32f2f;">85 折</b>（长期有效）</p>
+  <p><b>💥 双11专享 8 折码：</b><code style="background:#fff;padding:5px 15px;font-size:19px;color:#d32f2f;font-weight:bold;">Crazy1111</code></p>
+  <p><b>🎁 长期 85 折码：</b><code style="background:#fff;padding:5px 15px;font-size:19px;color:#d32f2f;font-weight:bold;">TNT85</code></p>
   <p><b>⚠️ 重要说明：</b></p>
   <ul style="margin:5px 0 0 20px;">
-    <li>❌ <b style="color:#d32f2f;">30元季付限量包为福利款，不参与本次85折活动</b>（该套餐已是厂商最低价，无法再享优惠码折扣）</li>
-    <li>✅ 其他所有套餐（月付、年付等）均可使用优惠码享85折优惠</li>
+    <li>❌ <b style="color:#d32f2f;">30元季付限量包为福利款，任何优惠码均不参与折扣</b></li>
+    <li>✅ 其他所有套餐（月付、年付等）可按上述优惠码享对应折扣</li>
   </ul>
 </div>
 

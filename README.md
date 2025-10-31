@@ -461,13 +461,15 @@
 
 ---
 
-#### 3. [**TNTCloud**｜AI工具专用 · IPLC专线 · 85折](https://tanu095.tntvipaff.cc/#/register?code=7MPbfr89)
+#### 3. [**TNTCloud**｜AI工具专用 · IPLC专线 · 双11限时8折](https://tanu095.tntvipaff.cc/#/register?code=7MPbfr89)
 
 - ✅ IPLC专线，延迟<30ms，海外团队运营
 - ✅ ChatGPT/Claude/Gemini 原生IP 100%解锁
 - ✅ 流媒体全解锁，不限速不限设备
 
-> 🎁 **85折码：**`TNT85`（¥30季付除外）｜ [👉 完整测评](https://gptvpnhelper.com/airport-access/tntcloud/)
+> 🎉 **双11 8折码：**`Crazy1111`
+>
+> 🎁 **长期 85 折码：**`TNT85` ｜ [👉 完整测评](https://gptvpnhelper.com/airport-access/tntcloud/)
 
 ---
 
@@ -713,7 +715,7 @@
 ### 3. <a href="https://tanu095.tntvipaff.cc/#/register?code=7MPbfr89" target="_blank" style="color:#1a73e8;text-decoration:underline;">🔥 TNTCloud — AI工具专用，IPLC专线，海外团队运营</a>
 
 **综合评分：9.3 / 10** 🏆 **AI工具首选**  
-**关键词标签**：IPLC专线 | Trojan协议 | 海外团队 | 不限速不限设备 | ChatGPT完美支持 | 原生IP | 85折优惠
+**关键词标签**：IPLC专线 | Trojan协议 | 海外团队 | 不限速不限设备 | ChatGPT完美支持 | 原生IP | 双11限时8折 | 长期85折
 
 > **TNTCloud** 是一家成立于 2024 年的海外团队运营的专线级机场服务商，采用 Trojan 协议 + 全线 IPLC 专线通道（速度比IEPL更快），节点速度极快、晚高峰稳定性极高。**特别适合 AI 工具深度用户**（ChatGPT、Claude、Copilot、Midjourney 等），原生IP确保100%解锁，不受国内政策影响。同时也是流媒体重度用户、TikTok 运营者、跨境电商的绝佳选择。
 
@@ -792,19 +794,17 @@
     box-shadow:0 4px 14px rgba(0,0,0,0.25);
     transition:all 0.3s ease;
   " onmouseover="this.style.transform='scale(1.05)'" onmouseout="this.style.transform='scale(1)'">
-    <strong>🦦 立即注册 TNTCloud（IPLC专线+85折优惠）</strong>
+    <strong>🦦 立即注册 TNTCloud（IPLC专线·双11限时8折）</strong>
   </a>
 </div>
 
-🎁 **专属 85 折优惠码**
+🎉 **双11限时 8 折 + 长期 85 折优惠**
 
-> 📋 **优惠码：** `TNT85`
+> 💥 **双11专享 8 折码：** `Crazy1111`
 > 
-> 💰 **优惠力度：** 全场 **85 折**（长期有效）
+> 🎁 **长期 85 折码：** `TNT85`
 > 
-> ⚠️ **重要说明：**
-> - ❌ **30元季付限量包为福利款，不参与本次85折活动**（该套餐已是厂商最低价，无法再享优惠码折扣）
-> - ✅ 其他所有套餐（月付、年付等）均可使用优惠码享85折优惠
+> ⚠️ **重要说明：** 30元季付限量包为福利款，任何优惠码均不参与折扣；其余套餐均可按上述优惠码享对应折扣
 
 --- 
 
@@ -1546,5 +1546,3 @@
 ## 🏆 GitHub 成就墙
 
 [![Trophy](https://github-profile-trophy.vercel.app/?username=chatgpt-helper-tech&theme=gruvbox&row=1&column=7&no-bg=true)](https://github.com/ryo-ma/github-profile-trophy)
-
-
