@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 07:49:38（北京时间）**
+🕒 更新时间：**2025年11月01日 07:56:33（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump Administration Ordered to Pay for SNAP Benefits Amid Shutdown: Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE8tRUFsakxRdUtPM0RxamNmcjhjbloxc3QtbW4wZDl3VXE3NUpsN3VqSnNhUUI1MXVObERSamFFZFZPN0FIejY2WWtCak8tNTZ1LWJCejdMQ2V3b00tWng0d1ZTQQ?oc=5) |
-| Republicans quickly push back on Trump’s call to nix filibuster - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQNWRRRjZxdmVMOXpZR0U5Mk43T04tQ0lQNzJrdFMwemhpLThKTDVnNXhONFkyS29UaFVZdlRGV242UFNSUnhybnZtNGNuVUVHQzV3YUVfY2ROekRVVWl0OGZCdGEyZFBuckxtb0s1TUx0RjNnUTg2RktBV3VvbXIwM3lJMGVFVkd6Z0phS2xxT2I?oc=5) |
+| What’s the filibuster and why does Trump want to get rid of it during the shutdown? - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPOUhRQy1tUkJ5ZERsb1lPQ0hIZGJmQVVGNENnZGUxNUNWNHl2OG1sNXdDT2d3bm9FMUphcC1xVEptS0x1b0RnOW5RZVJGNXFzRWxqc3p6elRlWXI5S0dpWE8wRDFpSlJQTHcxNnNVTWxLelRoX3lCZUtid3U3VjFLZXNldDY1emxlSUJjMm5PWmc4YnJfek1TTnJn?oc=5) |
 | Hurricane Melissa death toll surpasses 50, mostly in Jamaica and Haiti, as focus turns to recovery - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOSHRNMEdnc3ByVWE0VWRkREIwYzZkSldNNm0zdXF1d0swMVNTbW5nNS1HUjdqVTRXZ3A2aDkzUi1Cb3BfaWk5bU1jNWpXY1BvUnE0UHR4aTlPZlZ2OG1YMnBRVVY2ck14XzN0TjV1LXc3bDBwXzhQbGd4b2dZTTR5ZVVUX1p0NUtfN3pkeVhzb1Y4Z2tVdnRzMzVSWTnSAaIBQVVfeXFMTjA5VkpfYjI4U0FxWmhZaGdONnRqT1duZHNMeUxxbmoyY1pBeDlaTlAzV2ZRc2FuV3lMb0JMUnZrR3VCZmxkWEtUT29DalQ1SHZaZEx4dUhYN3gyQnRDX09wY2d3bkZhTHhwbGhSSnZnTEdydFVMNEpvcXdYY2M5WE1jMWxRV2N6WTNJRF9DOER4dUFPN0NoVDRhQTZjVDR3eG53?oc=5) |
 | Kash Patel says FBI thwarted alleged ‘terrorist attack’ in Michigan - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOYmVTSTE0VzcxeG1wSU5TbDNLa21Rb25IcDgzUVZJVkpXTUZWQnUzZ3IyRVBqeWRmZmpFRkoyeXdDRUlBcTZyTTRIMTRtT2VDSlhJeDFhTEpCNTNNMTJOd2NzdDNqa1V3Mm4zdXBLVFozMlpXSWRaNEhhN0ZaN3pmRmZKUTNRcnJCTWZlQnRVOUllWEZYaEs3TXVTV19CUnlLVWxCMDd6QVBKVjDSAbABQVVfeXFMUHpJV3NoTTJQVm5jdmhBNXpyYndUay1UMXFTSE5LTS1QUjZQZmZBN3ppMHAwMkNLVmwzMmE2M2Izak1CeG00Y01fRDhJNm95dzdoTDkyV05LZnFkNnIxTEdKQzBlTW1rSXNzTElUcEhjQ2Z4YzQ2SXlWTm9VN2FGZTUydThNU1h0SkR2ckMwdEdzcGZ2Q25GU0hKWkNWS1BPdU1FX2JjZ0lwYjgydzZtX3g?oc=5) |
 | Trump Denies Reports That He’s Planning Strikes on Venezuela - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxORlhTWW9FekpaLVJvZXNQUFFwb2lSekFWSWdWc19HYndiTjJ1MG5aZURrdktaM1NGNG16SG9IRGlpenExcG1tNWtKaDA5VmItUEVzSjJiLVdGekd5VExJdmI4UDFzVGMtdzBRaUMxMEdCTy1mZEpPMjVLSDJrRXBua1kzVVdJNVFpYWZabkxPU1pxNkxyOWpvNzNzakxYeGVFWTNfdWE2clFuZGti?oc=5) |
