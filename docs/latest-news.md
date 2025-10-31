@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 10:41:47（北京时间）**
+🕒 更新时间：**2025年10月31日 10:49:37（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | China emerges as US ‘peer rival’ at Xi-Trump summit - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1mVVV1aUtBU2Z3SGZtNWJhbFRocDVxV0ttVF83eDZzdkF4V3pHZ2J6S1VrNXZCMmw2enJGaWNMSk5CNFh5OWQ5cEVUb0lZcTQ5aklUWGEyazY4UWgyNWNUeEpkaVJteXF3TDE3S2YyaEg?oc=5) |
 | US Senate votes to reject Trump’s global tariffs on more than 100 countries - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1qckNIUWdtNnVhazREOXZlSFAyZ1dyTDRWRWxJZmNxMFh1WDdjSjhCMi11Z2ZrR2dGQmRLTUxaUDVwa3FxUnBFTG9reDNCSHhYZGJ4WHk0aW9hUk5UMlpqekhWckdtcEhJSGpKMlRTWnpMN2d0X3ZLLVJhTzg1Zw?oc=5) |
 | Trump Returns to White House in Time to Greet Trick-or-Treaters - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPSGk1QWhDOV9jeXdjN2YyeHBPTV84ZXktal9YR2p5bElsQl9rOGRZOG1HYUxkNk9Pby1zQVNSSzlGXzhtYmpqaTR1Zll2UVdaM1BKR2tWWU9BcmtaLUs0bWNYLS1CV0FQaEw1S0k4UDJUeG1UODhvcDFVWnZuMWFWWnZ2UlpJUzluZFF0TEtn?oc=5) |
-| Judge sentences former Jan. 6 defendant for hoax threat near Obama's home - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQV0pLaEJaV2cwNDZweTFDYVU0cW5UX3ZFYjdWU09jd2tlN1lWZmJteEFNV2llZUJjT0wyTm4talZLQVRIVXMyWmJhMWJ1X2JOWmFHM0pFZDdxcVp2QTN3ME5NVVdIVnloMW9OR1ZuSU93X3VkSjlERm5jOGd0N05YaTZZcGlfZDNrVFhNYw?oc=5) |
 | White House taps multiple accounts to pay troops amid shutdown - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNd1BzS0F1LUR5NTczRFg1Ukdqd290aXE3dFJIT0FfdE1vTG5saEs1dWlfZDBqSUNHdnpvWWtfeXV2VFFybEZFempobkZtM05UOERXNzlodHQ5YV80Y210Zk5mbXVVMnVJTFpGcjNOMktEZFNDVzNBSUlfRlJYakFBVElDemZpYjg1b19zajIxWHc0RDV2ZFE5NHdsYzJXcG9xNmFLTUtaRTNBdw?oc=5) |
 | Zohran Mamdani and Democratic Socialists prepare for complicated partnership - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOckZUWnZpa0UtbHJSZWtQdFk2SkxGT0JDM3duM2dPek9jbHFPaVNPa1d0aUZmTFBMbWY0N3dGWUp2Y2dZQTJWS1BZM3BLeElHaHhGLXBlQ1ZXRkIzY1RjMEg3ZG5sNHlpa2FCampwM2NkSGg4ZGZaTmF5YW5wc1Q3Q2hEWWpkRUZiV016Yg?oc=5) |
+| Judge sentences former Jan. 6 defendant for hoax threat near Obama's home - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQV0pLaEJaV2cwNDZweTFDYVU0cW5UX3ZFYjdWU09jd2tlN1lWZmJteEFNV2llZUJjT0wyTm4talZLQVRIVXMyWmJhMWJ1X2JOWmFHM0pFZDdxcVp2QTN3ME5NVVdIVnloMW9OR1ZuSU93X3VkSjlERm5jOGd0N05YaTZZcGlfZDNrVFhNYw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
