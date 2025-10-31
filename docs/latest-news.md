@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 03:40:43（北京时间）**
+🕒 更新时间：**2025年11月01日 03:49:04（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Jamaica Prepared a Financial Fortress for Disaster. Hurricane Melissa Will Test It. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQUDRZR0tyTFE5cm1jTGU4SjJrT0FpYnFLNkJ4cXl1a1RXcXdDTVRiQmdGQjV0SS1YazVTbjFuZEY3WHhiRWZUZS14MUg5YjNXYkxXTDk4NWxkOGEzdHhGdWlVVmhtelRkZ1BUVzlOcUJ6ZlpYbzZ2R185Wmc4YWtIdTFmRnk3U1VJSjl0UUFuVEt2aDYyN18waXhST1FFSDg1dEpJbGJ2NmVuTGc4dm5QQQ?oc=5) |
 | Trump Officials Identify Venezuela Strike Targets, Reports Say - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNb0lWS0tFa2dJalpqaVBubHNFMFJGNVIzVFRjZUJ3eWZpMU52YkNzaFlfSDF2OWpVVVZxcFZPS3ZyenV5d3B6WXlhSXREM3ZrQ1lFQzd6M3EzaFZZUlpIMFQwdk9aa3VwVWtsTDhqNWR5MFJQWk9ZQmU2Vm56UGcxelA5N3hDVjlzZDQ1MGh4d3h3ekczcEdqd1RzNkRmT2g3STVldHd0QTgzM1psVUdLTFNn?oc=5) |
 | Virginia Advances Redistricting Plan Toward New Congressional Maps - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE05elJNV0JUR2NYdzV3RVQyN3NFNGpzNzFlWDhUSFY2SlV4dXlmVnRuSUptLWpHT21XMjJYLVB6RDdxbjgxRlFCZlZGcGlWZnlyRTZYV2VHRlBIQVpMTzd6ekJFZ0RkLWhhVXVBaG4zS2s2Nmc?oc=5) |
+| Ohio lawmakers pass new congressional map after reaching an unexpected deal - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQVnZLMzJxS0c2RmhwTWdjYzY4MER2SWVvejI4MlJIMko3OG50N3hhNWZKY0Q2SGN1cUhlZUI0a1NONkxyaUNoeEhmcDZlOE1BTFlaT29qSWtjU0ZXMlludUJjQzlJNGRtRHBPSnVxckZBRUJJQzVodGg5UEZGT1prdTRPMGRNbnVUMXNkV0phQ3ZTcExkRE5uWUZqdC1mVHI0b2V5M1RVbzk2d9IBVkFVX3lxTFBPWkZZd2pMSndqUWt1bGZTOXRnVnFxNWUtYXFOS1l1MGRoME5rZDNVRGVrUWhXdDk0VGU4NUJpdWl1VkU5a1o3bTBEYzQ1c2FsQmFDdWlR?oc=5) |
 | Lawsuit Alleges ‘Horrific And Inhumane’ Conditions At Broadview ICE Facility - Block Club Chicago | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOMW5RUXVfZnBlbnJaXzNibnIyUUgwekFSNVN2Tlc2NzFEWFltYnhJMVdsd0RfZWw5XzdVRExOenVYYTczbDVIaFZjSi1DeHZZd3FjcXVGU2YtYnFlNlI2azFTd1VCNFd5cTBPYUM5dzlPc2c5bU1rb1JBZUtoTlM0eDY1Tk5jQlRyYzMwbU13NE84UnM5WnhVNVp1TXc5QVhXekZnaElWX2x4aENxX1J2R0dRWnpjZw?oc=5) |
 | President Trump shows off White House's Lincoln Bathroom renovated entirely in marble - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOMHdzV01rYlJWTmRPSVRYdUJscGF2aWZwT2NnOE1INklzTldGdGE2emhXckRwTTdUSUF5WGtjUk5nb1JmMWVQV3haN01ETFFodUtnMG5CcXlNcnp6c1lZRUNGcHdsRjI4ZDgxLXdyT0VXOHVMUU1uWGVuaTEtX1lKNVAyTS1XMmF1cjJnTWFCV2VrUHQ2bzJCcUxPRjlweWkxLVpWa1lZV3XSAa4BQVVfeXFMUHNKNWl5d0hYQWRoQ1lWNS1COGhqTmZwSTFwelRNREw5c0lUQkhrLXl4cGE1Y3huczdncC14YUFjTXZnenZCWlE0UFV3Mm0yeDBDb2JHN25vVTRnc3plSEV2MUlRbVY5WjhybWgzXy1iM1RGZVMtUnlJeHJ5M0YtdGJsaWdIeG5vTG1NT2RWMVRPWHEtZUY3bHNxaUZ3R3hLNWQ4cU5uMk5FUnFPNWlB?oc=5) |
-| Ohio lawmakers pass new congressional map after reaching an unexpected deal - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQVnZLMzJxS0c2RmhwTWdjYzY4MER2SWVvejI4MlJIMko3OG50N3hhNWZKY0Q2SGN1cUhlZUI0a1NONkxyaUNoeEhmcDZlOE1BTFlaT29qSWtjU0ZXMlludUJjQzlJNGRtRHBPSnVxckZBRUJJQzVodGg5UEZGT1prdTRPMGRNbnVUMXNkV0phQ3ZTcExkRE5uWUZqdC1mVHI0b2V5M1RVbzk2d9IBVkFVX3lxTFBPWkZZd2pMSndqUWt1bGZTOXRnVnFxNWUtYXFOS1l1MGRoME5rZDNVRGVrUWhXdDk0VGU4NUJpdWl1VkU5a1o3bTBEYzQ1c2FsQmFDdWlR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
