@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 16:24:24（北京时间）**
+🕒 更新时间：**2025年10月31日 16:32:29（北京时间）**
 
 ---
 
@@ -13,8 +13,8 @@
 | Letting agent apologises for 'oversight' on Reeves rental licence | [阅读全文](https://www.bbc.com/news/articles/cx2p55ejy88o?at_medium=RSS&at_campaign=rss) |
 | Hurricane Melissa death toll rises as aid struggles to reach parts of Jamaica | [阅读全文](https://www.bbc.com/news/articles/clylqpyg8pjo?at_medium=RSS&at_campaign=rss) |
 | Pornhub says UK visitors down 77% since age checks came in | [阅读全文](https://www.bbc.com/news/articles/cgkz3m3re1zo?at_medium=RSS&at_campaign=rss) |
-| How our vanishing wildflower meadows affects bees - and risks driving up food prices | [阅读全文](https://www.bbc.com/news/articles/c3rjnlv8ejxo?at_medium=RSS&at_campaign=rss) |
 | Heartbreak, headless dummies and  'eggy' Shakespeare - Celebrity Traitors fight to the death | [阅读全文](https://www.bbc.com/news/articles/cvgvqj5w233o?at_medium=RSS&at_campaign=rss) |
+| How our vanishing wildflower meadows affects bees - and risks driving up food prices | [阅读全文](https://www.bbc.com/news/articles/c3rjnlv8ejxo?at_medium=RSS&at_campaign=rss) |
 | Long A&E waits causing heartbreaking suffering, charity says | [阅读全文](https://www.bbc.com/news/articles/c4gwkjzx088o?at_medium=RSS&at_campaign=rss) |
 | Sultana says new party is aiming to 'run government' | [阅读全文](https://www.bbc.com/news/articles/cly2xjgpg92o?at_medium=RSS&at_campaign=rss) |
 | Stop avoiding your bank balance and other ways to manage your money better | [阅读全文](https://www.bbc.com/news/articles/c6258nn89dgo?at_medium=RSS&at_campaign=rss) |
