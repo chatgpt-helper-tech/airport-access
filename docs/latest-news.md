@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 22:57:18（北京时间）**
+🕒 更新时间：**2025年10月31日 23:00:32（北京时间）**
 
 ---
 
@@ -17,22 +17,22 @@
 | Is this finally rock bottom for Mr Andrew Mountbatten Windsor? | [阅读全文](https://www.bbc.com/news/articles/c62elnjnqqxo?at_medium=RSS&at_campaign=rss) |
 | Diana's childhood home or the gardener's house - where might Andrew live? | [阅读全文](https://www.bbc.com/news/articles/c201zvrpvw9o?at_medium=RSS&at_campaign=rss) |
 | 'She'd be so proud,' Virginia Giuffre's family tell BBC | [阅读全文](https://www.bbc.com/news/articles/cy9pn12w4n8o?at_medium=RSS&at_campaign=rss) |
-| Hurricane Melissa death toll rises as aid struggles to reach parts of Jamaica | [阅读全文](https://www.bbc.com/news/articles/clylqpyg8pjo?at_medium=RSS&at_campaign=rss) |
+| Hurricane death toll rises as Jamaica aid effort struggles | [阅读全文](https://www.bbc.com/news/articles/clylqpyg8pjo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump Calls on Republicans to End Filibuster in Shutdown Fight - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNRGZoNS0xQTd3WmlUVWJuZ09OOEVUaGJwZ29qTnNnWDQ0LWVzR2V2Yzl6TlhDVXl2V2tMZGtqT3YxeHlOeE5KTGNLSkgtUWxqak9LOTR5M0pzNG5vYi1EcXlfZXlEd1JtaVFXLVJ0ejVURHJZSkk1TDVFYmZDdkVFd3RIRQ?oc=5) |
-| FBI foiled a 'potential terrorist attack' in Michigan planned for Halloween weekend, Director Kash Patel says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNOEk5NmRUa3JIVmNqSXNjaF8wTHl1aGtlQ1k4YjZpRks0VGVuNWZEdlZxT0x3ejVsWC1JMTBQQ2c5N3JkRUs4UDRkanhWSHBtLWZlb2hwaXNVMFdCYzhxM2E3Rmd2TFh3SHo1MFcwdDhKSXJrNGE1clRueUNtWVZ3aTBoTkNZTjl3MmwyaF9KTU1BdG10UUw1STZlYkJ6eDZOcFpLbUdhLV9TRDh3Q1lTZ3RkSnF4TFdVb1HSAVZBVV95cUxPYmVVcFJWV0FrQTY0RTFrdUFKNWgzdTNZRlRCRXdyY21KeElmeXd0YXE0QXpZRVdPWVUzYjB2anRyYjBHaWNfLVY5RFQtMFlMem5qSkVNQQ?oc=5) |
 | Trump muddles nuke-testing message - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQUXdmdEszNlExZnFpeUhKdWNHSzhkQl9iZVhhOEJXQWpDTjZITUtJeTZFZkhhZ1I3R2t2SjZVaU5nQkJtWHZuZkU5cldiVy1BaXJ6V2VwZEpwd09yT2dld2Vta2xKa3dxYzQ5Qk1zTVp4TTV4NjlGWXdsb1ZwczBfTQ?oc=5) |
 | Millions face 'huge sticker shock' when ACA open enrollment starts Nov. 1 - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPRllydE04UHB0QmN4Vk5KOGhobThCQmJLQk0zMnJGeHR2czhoZGEzQ3Y1TnpfNmFibUI3UHRCRDZCckJ5MnNrclc1SjFXVzYzdnNobllFMzhKYmVNVHFUSWdLeVdpVjdKOGtuQUhxSThFSVM4V1Z0WXViZVEwcGpxdFVsUzN6d3p4VGfSAY8BQVVfeXFMT25feEtpcmpxcXZsZE1LcEdpTEQtRVJINFNjejJuY2R5QTljdXBGV2tXZHN4cTdNWHQzNzUtbFRMc1BtSjllYlY1OVZ5eWdTQkgySlFDUHM0MEpxZm9tbmRJTElTZGJJejlxQkdsM1pEQ3VTQ2NQenFYcHlzX2RscThRVk43ckY5NDBjbzRJRFU?oc=5) |
+| FBI foiled a 'potential terrorist attack' in Michigan planned for Halloween weekend, Director Kash Patel says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNOEk5NmRUa3JIVmNqSXNjaF8wTHl1aGtlQ1k4YjZpRks0VGVuNWZEdlZxT0x3ejVsWC1JMTBQQ2c5N3JkRUs4UDRkanhWSHBtLWZlb2hwaXNVMFdCYzhxM2E3Rmd2TFh3SHo1MFcwdDhKSXJrNGE1clRueUNtWVZ3aTBoTkNZTjl3MmwyaF9KTU1BdG10UUw1STZlYkJ6eDZOcFpLbUdhLV9TRDh3Q1lTZ3RkSnF4TFdVb1HSAVZBVV95cUxPYmVVcFJWV0FrQTY0RTFrdUFKNWgzdTNZRlRCRXdyY21KeElmeXd0YXE0QXpZRVdPWVUzYjB2anRyYjBHaWNfLVY5RFQtMFlMem5qSkVNQQ?oc=5) |
 | Rob Jetten's Dutch centrist liberal party wins neck-and-neck election race, vote analysis says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9KclU5YWN4X3lMUUVuS0JuR2FvanZTUndjY1BrM19WVFJCcFl2TEkwUDFxbUNYQ0ZSNnc2Yi1MVEZIUk9rYlJ1YklJTWV1RjIxVGxPVnA5SlpmUdIBX0FVX3lxTE5CWVM1UjdjdXJSanVQT09GcHJ4ZFJjazZtS3JkdEQ3WUlZNW1rTnZxNDhodURUMHl0d2RwRkxwdV9QX0lGRkVmVmU2SXBfWEtLc3cta2QybmlYWldIU080?oc=5) |
 | Judge says she’ll likely order Trump administration to send SNAP funds to states - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQWjRyNWRIaHdmb1lnSno3NHI2NW5FZ1lNTjktaWVFTVhRd2hZUnItZUZTLTMtbWpWMW8xNXVlb0dRRW9MOWVvOU9jRURFV2NiREV6eDF6OENqSHZleFBteWxkazFrbUZfeThWTWxvR21KeW9LNlZrOFRPT010ajVOZzB3bXdjanlGbmc?oc=5) |
 | Why has the shutdown gone 31 days? Look at Mark Warner. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNMUQ1Wk56bmZ1NS1MWHowU3g2bUpkbXpHT2M2NXBxalA2eG85ZWNMdWlKNkFLUHFnb3FsTGVjdmZya0VjU0FtTWRuVjJRanR2dUY5TFZDUThvZ0h4LU5BNXRfWmFvT0pXYUROUmtVaUhBbmxPVVMzblRaWS00TjRMLUZXVQ?oc=5) |
-| Air Controller Shortage Causes Delays in Orlando and at Other Major Airports - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPZGpaTnZ4NFNWY1lBRVdKNDJVdFNVYU93a0piT3lseTg5UFNvN2hKbnBMTjRybHUtcGdKVlByaFdjZlE0T0lHLUE4c1Y2T2xIQ0ZHaE5mdXZPU3RNRlV4LUF3amR4bmtnQUxrWExEbFhRbTNtS0JNZmxYT1QwMDhRMWZzQjhTTlR4cXQxa3phM3BUcTA3b3Q1eUl0andWQQ?oc=5) |
 | In Zach Bryan's hometown, many support tougher immigration enforcement, with some caveats - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPMURxU21feU9HTHdzNTN1MDNHb0tjLThQWlpoM2l1OGNVamdBa1pTU3o4MDd3T2lPUml3TEdDYUY3MDlxNVM2THZZQi1reDVseWNXdmRlNjhiZDEzbnlNU0hKdGF6dGdtY0dNbHZqUnpYYW5SUzhDV0hYLWt1a25QVGtoQXN4aXFWUE10anBFSWFlSGtKbmtOb0RmS0ZMMVHSAVZBVV95cUxPYnl3c0tnc0VQUThDM1ZBRUtPWXdrRFEzZ1pmUnl0eWs5UWdoWUI4UmlXc1oyN0M5MjNGeWMycGdyWTU2alB5b3EzdDVGY2daaXVCX2Y5dw?oc=5) |
 | UN human rights chief says US strikes on alleged drug boats are ‘unacceptable’ - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPWnNKWE56M0NPWG1lYlFVWWNzWC1ySk1Eb2hheS1fY1k4SzFDSXo1VFFqbFFzQU1OT01aZmU5Z3pUME5hRW9udlFUN3ZUdHdIRzJZVGxwSURqWjV6TDEzSTBPb0xZSWFuWHZTWko1NnVtVHhnSTVMZS1HUG45bjF0WlFVRkRJZElRT0F2MFpHVUc2ZnBfQ2EtdkxFaFY?oc=5) |
+| Illinois lawmakers approve $1.5B legislative package to buoy mass transit - Chicago Sun-Times | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxNR2FkRGIwZWh1VGlWOFR1OUxWdXp0QXA4VXhrTW5pRktzYzNEZ0tDeURzWVZzWDFPOS1Hb21JV19zdVhmZGNfdDhQMHAtX2RfRWdYVU5MNmVfOFNwakpscllta0cyQXVlSzBCZ2JOWEk1S1NibG5udTEzNzVXcEdGN1M1MkVPUTU4WWZtWksydzZPb0pUUXVLMEp2OUYwUTJtY3JnUGxXbVBpTVhiRi1YMXFibXFxaHV2VzYzWlpTX21MTWttdldnUVlFSU1IbGk0N1dNTDktVkcxUkJTY1VN?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
