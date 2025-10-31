@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 23:41:42（北京时间）**
+🕒 更新时间：**2025年10月31日 23:49:29（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Who receives SNAP? Food aid for 1 in 8 Americans is threatened in November. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOZzdoa045ODV4ZkRlenI1bHladWtZcFdONlJ0V081Y0FnOENHcE11ZktOT2xjSGx3cklLZGcyVHhPV09GWWpibm14WkpWbHVqYUJuaktnTnZRMzJLb0hiTFBmRDl0WXhuX3Z2Q3RpT0M3SGcybHQzUkdQQnExeUM3YnU4X0VySGRtTlRtNUh6S0w?oc=5) |
 | UN human rights chief says US strikes on alleged drug boats are ‘unacceptable’ - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPWnNKWE56M0NPWG1lYlFVWWNzWC1ySk1Eb2hheS1fY1k4SzFDSXo1VFFqbFFzQU1OT01aZmU5Z3pUME5hRW9udlFUN3ZUdHdIRzJZVGxwSURqWjV6TDEzSTBPb0xZSWFuWHZTWko1NnVtVHhnSTVMZS1HUG45bjF0WlFVRkRJZElRT0F2MFpHVUc2ZnBfQ2EtdkxFaFY?oc=5) |
 | In Zach Bryan's hometown, many support tougher immigration enforcement, with some caveats - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPMURxU21feU9HTHdzNTN1MDNHb0tjLThQWlpoM2l1OGNVamdBa1pTU3o4MDd3T2lPUml3TEdDYUY3MDlxNVM2THZZQi1reDVseWNXdmRlNjhiZDEzbnlNU0hKdGF6dGdtY0dNbHZqUnpYYW5SUzhDV0hYLWt1a25QVGtoQXN4aXFWUE10anBFSWFlSGtKbmtOb0RmS0ZMMVHSAVZBVV95cUxPYnl3c0tnc0VQUThDM1ZBRUtPWXdrRFEzZ1pmUnl0eWs5UWdoWUI4UmlXc1oyN0M5MjNGeWMycGdyWTU2alB5b3EzdDVGY2daaXVCX2Y5dw?oc=5) |
-| Who Walked Away Stronger in U.S.-China Trade Talks? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE9IcTFOTl9Pd2RaSm90dU1vcldORE81RUk2cjZzQkYzTWJ5cGVGLXRJWldvUWdTT3ptSWtYYzJPU21lSHRDaHdIQTdva2xkc2lxaXEyX2VOVWQ4Vmw2NHlFTjhUc0VMcWtwVjFyT0t2aTd5bHZr?oc=5) |
+| Ohio Redistricting Commission proposes a map the day before its deadline - The Statehouse News Bureau | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNNU5QcVhyeVBQb0k5cVZuSHRzZzRMVTdOdzRlRG9TRlJaaXZBYS1rcUowV3d2enl2QU44blhQOWlrZm5SekUyWkpPMzFPS3BPNGkweHdHSzZZbTdkWllxZ01wNGN1WTdSYjU5V3dMMGJSM2JZQ1FJZkxyalROcEZvYlo5YWtNRUxuWEM1X2xDTEZEalNvOVRacktJYndaNUxBZEJMQmluMm9xS3dRamxYUDRpUGhaTVl3SndjTWlLc2gxb291c2tkYmY2OGlEU3l4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
