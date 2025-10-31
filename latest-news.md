@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 14:56:33（北京时间）**
+🕒 更新时间：**2025年10月31日 15:00:22（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What to Know About US Nuclear Weapons as Trump Threatens to Restart Testing - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQcml2X1RFSGJSTG96MWlyemVOZXU4TWU4WEFuUnUwNllfR3VNWmJvYV9PV2h0cFI5MXlYTVR6N3B2SW5PZ2d4aEZqbW8yeVJuc3RmSnJIM3VyOHV1RWVpbUdlYWJpUkFGd2FhZ1ZIalJQRWVTNHRuZ2NlNmtkOVZjLVZfZzFZUQ?oc=5) |
+| What does Trump mean by 'nuclear testing?' - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1WYmNsVUhOWnFTeWZRcXN3MG52LW1oM0tQZDVkSC0xRzZGc1pTVkYtbnZ4NmZYWjdYUnE3aWo5UzJZTExOLVdiRFczelZ5Y3ZjUkRXNEkyTzRIcGpPSnRSYUFRdzloSWlwR0lneG15bHA4WnI1VGRyM1BfZ3nSAYIBQVVfeXFMTVMzamhZcDNEUlh4UUM0a2hfVlB0VS1RbS1TektHUExSSVZTUEdXS0xoMUFXb1U5Nl9kcDVDdmpJR0FEeW9GLWgzUEVwM0tYMlNLZVF3UHE5RDlMcmZfcnR5S0VUbnotaVBray1qcmp0REkyTE1WVTBNMjVYUUY1TVFIUQ?oc=5) |
 | Haiti, Jamaica and Cuba pick up the pieces after Melissa's destruction - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxONkowQmg0T04wb0YzRkZLX09lWGpob2ZGN1labkNNMklOZWlKMjFmbjhYNmR5cGFoZGFyOExzNDc4SjBqYUtsdXZHYUFWd0U5VWFSeEtIYjV3aDJWdTMtMUJGLTNvRVBIb3R6ZHRfRkt2cTB1U0hocnd0WHo2MjVmc0ZSckhpenpoVkRod1pjT2E?oc=5) |
 | Trump calls for end of Senate filibuster to break funding stalemate - CNN | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOam9scTE4dUdUcGxnakVxMDluNDNHYlR0NVN1bUVYMjc5MVhYWDVibUpQbUktLXdBMXBlM3c2YmlPQWRPOGpyQ1N6WV9CVHUwYjhGM1lsVlYtb3BIWEN3eGdEblpVMC10T21jLVZuV0FNNTZVeHQ5UE1aNkZZY2VQajN1ek1Uc3JvN01ZMW5MaW5vUl9JNkduN01wVG5WWWc?oc=5) |
 | Judge says she’ll likely order Trump administration to send SNAP funds to states - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQWjRyNWRIaHdmb1lnSno3NHI2NW5FZ1lNTjktaWVFTVhRd2hZUnItZUZTLTMtbWpWMW8xNXVlb0dRRW9MOWVvOU9jRURFV2NiREV6eDF6OENqSHZleFBteWxkazFrbUZfeThWTWxvR21KeW9LNlZrOFRPT010ajVOZzB3bXdjanlGbmc?oc=5) |

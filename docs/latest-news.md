@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 14:56:33（北京时间）**
+🕒 更新时间：**2025年10月31日 15:00:22（北京时间）**
 
 ---
 
@@ -23,12 +23,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What to Know About US Nuclear Weapons as Trump Threatens to Restart Testing - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQcml2X1RFSGJSTG96MWlyemVOZXU4TWU4WEFuUnUwNllfR3VNWmJvYV9PV2h0cFI5MXlYTVR6N3B2SW5PZ2d4aEZqbW8yeVJuc3RmSnJIM3VyOHV1RWVpbUdlYWJpUkFGd2FhZ1ZIalJQRWVTNHRuZ2NlNmtkOVZjLVZfZzFZUQ?oc=5) |
+| What does Trump mean by 'nuclear testing?' - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1WYmNsVUhOWnFTeWZRcXN3MG52LW1oM0tQZDVkSC0xRzZGc1pTVkYtbnZ4NmZYWjdYUnE3aWo5UzJZTExOLVdiRFczelZ5Y3ZjUkRXNEkyTzRIcGpPSnRSYUFRdzloSWlwR0lneG15bHA4WnI1VGRyM1BfZ3nSAYIBQVVfeXFMTVMzamhZcDNEUlh4UUM0a2hfVlB0VS1RbS1TektHUExSSVZTUEdXS0xoMUFXb1U5Nl9kcDVDdmpJR0FEeW9GLWgzUEVwM0tYMlNLZVF3UHE5RDlMcmZfcnR5S0VUbnotaVBray1qcmp0REkyTE1WVTBNMjVYUUY1TVFIUQ?oc=5) |
 | Haiti, Jamaica and Cuba pick up the pieces after Melissa's destruction - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxONkowQmg0T04wb0YzRkZLX09lWGpob2ZGN1labkNNMklOZWlKMjFmbjhYNmR5cGFoZGFyOExzNDc4SjBqYUtsdXZHYUFWd0U5VWFSeEtIYjV3aDJWdTMtMUJGLTNvRVBIb3R6ZHRfRkt2cTB1U0hocnd0WHo2MjVmc0ZSckhpenpoVkRod1pjT2E?oc=5) |
 | Trump calls for end of Senate filibuster to break funding stalemate - CNN | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOam9scTE4dUdUcGxnakVxMDluNDNHYlR0NVN1bUVYMjc5MVhYWDVibUpQbUktLXdBMXBlM3c2YmlPQWRPOGpyQ1N6WV9CVHUwYjhGM1lsVlYtb3BIWEN3eGdEblpVMC10T21jLVZuV0FNNTZVeHQ5UE1aNkZZY2VQajN1ek1Uc3JvN01ZMW5MaW5vUl9JNkduN01wVG5WWWc?oc=5) |
 | Judge says she’ll likely order Trump administration to send SNAP funds to states - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQWjRyNWRIaHdmb1lnSno3NHI2NW5FZ1lNTjktaWVFTVhRd2hZUnItZUZTLTMtbWpWMW8xNXVlb0dRRW9MOWVvOU9jRURFV2NiREV6eDF6OENqSHZleFBteWxkazFrbUZfeThWTWxvR21KeW9LNlZrOFRPT010ajVOZzB3bXdjanlGbmc?oc=5) |
 | Trump sets lowest-ever refugee cap. See how other presidents compare. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPVzBONDdMamtrQml0XzFGR0lkRkRwTG1jN044Wm9Bd1NhLXFVeUwxbDIweU11anFWc2JxdHAwUklCVnZXODRZV1ZuSEdsWjJTRVBZd290SDhtMVJmMWE1X2JfcTMySG1KanRqNUFGbDJNWFpHeGwzbTZDd0pmVkhIcWplVVNNcGxWTVVUN1dB?oc=5) |
-| China emerges as US ‘peer rival’ at Xi Jinping-Donald Trump summit - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1mVVV1aUtBU2Z3SGZtNWJhbFRocDVxV0ttVF83eDZzdkF4V3pHZ2J6S1VrNXZCMmw2enJGaWNMSk5CNFh5OWQ5cEVUb0lZcTQ5aklUWGEyazY4UWgyNWNUeEpkaVJteXF3TDE3S2YyaEg?oc=5) |
+| Government shutdown likely to extend to next week as Senate adjourns with no breakthrough - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOZXpvTWM3cWxtZV9vV3RSMWVCdGJpeEJDX2c1Yjh1MXFoY0t1YV9kMlNYazdINmhJOWxNOVY0QXJ0dWkyZm1ZSXhxSExjZmgxbUZNTWtlQ19Td1dTY29OX3lseXR2cVNYNXR2R3hCLXl3T3Zhb1JnV0ROWUhJbXA5UG1tbEZLX2loU3FORDUxYmQ4dkVoU0E0a1NR0gGfAUFVX3lxTFB5cGdxbXloOEJ6RDE2akU1ZzIyZDNoWW1oWFpsMl9WNkVNNmRWSEh5aHVUSVFvc3A2R1FiblJpRHUtODlIODdrdmQ2RVFQV1UwZ01pR0dOc25pT3FOLWZ6SXhUMG1UdFhOUHc4c2NsZlVnTGxBZHdmbERxYlg5Qi0xWTNZelVKSm8wdTRuaWNOMlNSSDFTemJQS1liZ1lBRQ?oc=5) |
 | Air Controller Shortage Causes Delays in Orlando and at Other Major Airports - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPZGpaTnZ4NFNWY1lBRVdKNDJVdFNVYU93a0piT3lseTg5UFNvN2hKbnBMTjRybHUtcGdKVlByaFdjZlE0T0lHLUE4c1Y2T2xIQ0ZHaE5mdXZPU3RNRlV4LUF3amR4bmtnQUxrWExEbFhRbTNtS0JNZmxYT1QwMDhRMWZzQjhTTlR4cXQxa3phM3BUcTA3b3Q1eUl0andWQQ?oc=5) |
 | Trump hosts White House Halloween bash with superheroes and presidential lookalikes amid shutdown - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNTnJ1WGxPalBLT1RkQnk5THE1alUza3MtX1lJQklWcFNhT2hNUW1qR3ktYWx1b0NLODNFQ2lwWENYT0ZPMXZDcFFGU2gycXZaTE80MU1pbFR2S19aREVOTjBTdHJHREs3SXlBMjdjZUJ3LXE3ZmdmaWVSYVRJaUdoM3FYS2FQNXNhd0lKSloyQlBDbGV1ZmJ2MUFKSFdEbmFjZHRVV3Y0c0dod1NkZEpBeUx2T2F6UdIBuwFBVV95cUxOR1U5TE4xOWJYUUZXdjlwaFFSVDREUVU3NHM1aWRpX09YLVAweGtyTTliMlhQamcwTTNCMV9kakVVNFVCemtHS0g0Q0R3V1hkN2x4dGk0SE5mM0JnekJNYVMxZUEtRnI0NS1lTTdlZG14bGs5S2tOTDlNREhtdWRXY1B1Rmo2UTltMDN1dm9mSnI0dFBOUC01aHZWdkFocjdacVBPMlN4bmh1WUkxbkhURHNCUWpRem91RWRF?oc=5) |
 | Trump isn’t issuing Oval invites to end shutdown — yet - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQNzNiOFFiemJhLXoxZU5Ba0FudlhxenNZMDNxTmdrUzBEV0tldjQ0U0p1ZExqRnhmNjl6cFBZZnN3TkhIYzl1YWh3bHlDTEZZVWNzZGpXN1hoSHV2d2FWcEh0RUZ6SXU1amhOMUFMcEtkN2U1bnJaeWowMFhraFY5NmRjdTY2Zw?oc=5) |
