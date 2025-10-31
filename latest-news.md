@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 06:08:37（北京时间）**
+🕒 更新时间：**2025年11月01日 06:17:57（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | South Africa hits back at US plan to favour white Afrikaner 'refugees' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE84ajFfM213NXlXZVVSZ2RpUzJkUHJnWEVpS1BJQmFGRzI5YnlsejhrVWtnWjZSMDhQbVVPTGlhSnAtWEY3dmFuMUZqNE9EN2ZNMmdTZWdKdDVLUdIBX0FVX3lxTE9FUUNycG9KeDFRcFhob3VCbmQtcUJWR0hYRUJMMDZwOGFFWnlCRXpaU3hONkZ1QUMwR3F0ZXhpb1BvXzJKVWZoa0RTMnlBcEJIdUpzSEVHNGpiYW1YVVVv?oc=5) |
 | Health insurance premiums for 1.7 million Californians on Obamacare will soar as federal subsidies end - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi6AFBVV95cUxNTWRfdk9nSzZzTXRvYV9OWnRzRWx3T2R6RHdoMXYycTctQTQ4RXU4NmI3Z3R6SWlMVDdQM1diTk54ZDRQalZabkZYaHpHbU1mTE1kRWRqc01lRUxsWi13MFp2Wmxic3N6aUo4U042Zk5GcF9uR1pfU29LVUw4MHB6UEFCdVJnTWlTY3NhbG93THBxUnU1RV9ZTWZZbXk0amRjYzQ3Z0RHbXZUZDY3UzhrSDVtb2Z0eEFrd0xydUZnTW5taFNzaXd4QU12U1FXQU93eEhkUUZkQ2NnT0o5OG5tei1WZHNIT0dQ?oc=5) |
 | Virginia Advances Redistricting Plan Toward New Congressional Maps - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE05elJNV0JUR2NYdzV3RVQyN3NFNGpzNzFlWDhUSFY2SlV4dXlmVnRuSUptLWpHT21XMjJYLVB6RDdxbjgxRlFCZlZGcGlWZnlyRTZYV2VHRlBIQVpMTzd6ekJFZ0RkLWhhVXVBaG4zS2s2Nmc?oc=5) |
-| US judge permanently blocks Trump order requiring voters to prove citizenship - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOMnNSQldVdkRFbXRlOGdWMjA3ajZXNFB4UnRsNFl3TUVSVEFTcTVQWmtKdVNTMm5PeE43cmJpYm9pZGFZVS1EeDE5dlliaGRxdTU5U1pJVVh0NE02c0E5YV9rTHBrUmxsYUgwbEloUnVYTm40MFZ4a3RzRWRFSEJuZkFVZkFmN1JSWl82LVV5eTdOc2pDNXpZRWowZUtsa2dzNVA0SkFESVltMjkzZ21GR2o3bHhhR2s?oc=5) |
-| Lawsuit Alleges ‘Horrific And Inhumane’ Conditions At Broadview ICE Facility - Block Club Chicago | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOMW5RUXVfZnBlbnJaXzNibnIyUUgwekFSNVN2Tlc2NzFEWFltYnhJMVdsd0RfZWw5XzdVRExOenVYYTczbDVIaFZjSi1DeHZZd3FjcXVGU2YtYnFlNlI2azFTd1VCNFd5cTBPYUM5dzlPc2c5bU1rb1JBZUtoTlM0eDY1Tk5jQlRyYzMwbU13NE84UnM5WnhVNVp1TXc5QVhXekZnaElWX2x4aENxX1J2R0dRWnpjZw?oc=5) |
+| Federal judge rules Trump can’t require citizenship proof on the federal voting form - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOVXhtc2VRLXZDdmdqQUVUMDZxUk0tLTJHN3A1ZUhqQlpXdzlCZGRGLWt3N2lZa2NiX1N0WEl0SUEwX3NBRlNHS2V4OWZDUGpackJHcmZLSFlkZURRdzdrNi0xZ3hZeHN6T19tMG9rR1E4eDBTdzJwX0t2dURoRWtkdUViWkFuU241QXA3emxzemp4VlNIbm1zVGI5VExGTFdOUGZvZU5Zc3UteEtmdDJCbWhYbw?oc=5) |
+| Air traffic controller shortages lead to broader US flight delays as shutdown nears one-month mark - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPV3ZibnBaYnA1c0JyUTRtblhkTDFneTlla0ZUZ19qWDhVbGlEbi05UWtkOFJJZzVWdXp0eV9hS05UVkVsVzgtNXBfVGtoTTlFOXBjdTBUNW5QWU9lQUJiR2w2dGZZV2lYVjVlZ21RTDdGSWFpYTBUb0ExSldXWTNkYzUwck5DU1NQSUNMVk9lbzQ2eGR3eGstaFRrVzg5UnFkcEtGa2xINHZMQ3M?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
