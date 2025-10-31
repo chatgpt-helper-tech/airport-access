@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 22:09:08（北京时间）**
+🕒 更新时间：**2025年10月31日 22:17:56（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Judge says she’ll likely order Trump administration to send SNAP funds to states - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQWjRyNWRIaHdmb1lnSno3NHI2NW5FZ1lNTjktaWVFTVhRd2hZUnItZUZTLTMtbWpWMW8xNXVlb0dRRW9MOWVvOU9jRURFV2NiREV6eDF6OENqSHZleFBteWxkazFrbUZfeThWTWxvR21KeW9LNlZrOFRPT010ajVOZzB3bXdjanlGbmc?oc=5) |
 | Rob Jetten's Dutch centrist liberal party wins neck-and-neck election race, vote analysis says - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9KclU5YWN4X3lMUUVuS0JuR2FvanZTUndjY1BrM19WVFJCcFl2TEkwUDFxbUNYQ0ZSNnc2Yi1MVEZIUk9rYlJ1YklJTWV1RjIxVGxPVnA5SlpmUdIBX0FVX3lxTE5CWVM1UjdjdXJSanVQT09GcHJ4ZFJjazZtS3JkdEQ3WUlZNW1rTnZxNDhodURUMHl0d2RwRkxwdV9QX0lGRkVmVmU2SXBfWEtLc3cta2QybmlYWldIU080?oc=5) |
 | FBI thwarts 'potential terrorist attack' in Michigan - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQLWYwYnlycllOZk1xVVVrdlFTd3dXbFpVelBvSTJXTk96X210MmNKVHRZUTNTeEFSMnpNR1BoOE5DQkZfcG52U2dTSTRhYmR3UUdnVGNWbVpzNkRjeHlXd2NlNFlTbjRQMlJiXzlSMUJ3eUZKVGFSdll1a1ZEQ084TjNUdjdYcEcwV0FJR1lSVHYyQXB2RUVQbkIwWE9rc3FzUEhvSENWRDLSAa4BQVVfeXFMUDlQd09jdG82LVZiTWlzVk5mRHZYemEyVjAwQkUtOUhZcE8zVTZWYlBNQVJQRFJGZEV4NUhRMmVsaFRjMlJFYm9xVXBuVDB6NHF6QjdwT1d6TExzTWxMcHJVYVFSa2hOU2dlek85aGpJMmZCdVhQcVZfd0puUzJpblY2Tzlld2ZFT29VaW1QTzNhb09JTWdtQW5aY2tOVnVsSUI3ckg3ZjRkelY1ZUhn?oc=5) |
-| Trump hosts White House Halloween bash with superheroes and presidential lookalikes amid shutdown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOVjVVRFFEYV9KZklCUEJzOUZZekh5NDZWWUFmR0luc0NJWlJDYVlhYUFkVFRkNzNqY1BRLV9Ja01xZnRBTlVRSkxIdko5c05YVnFQdHU1Qk1malB4MU8xUnZOSHBoVHVjVENpVDd1bzRNdFZzZjdSYlJObk5hRWpFRlpEU3ctZzZQN2JpZkt6RjltSnhFMFZveFYwOXlVR2h0ZUp5c2VYdmtUVFM3MnBrUU1ZUDdYVDg?oc=5) |
+| MCO expecting over four-hour flight delays on Thursday due to staffing issues, FAA says - WESH | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQTzg5bk9heXNnWmoyUEtTVGxOMWtTSUlyZmFtN1hJYy1UTXhFb0ttcDlaZm5HSDBOeFFlNFBBOVNlY2s4OVJpZmJ6TF8ybURfX1ZOV3I4QVg4V3lNYmV3TDNKLUlqTnBpc2Nxd09PVEVKMng2d1VJeXFkSFd3enBzQ3FxVXBpRlNGY1V1cFJERVVfelZkdWxfcg?oc=5) |
+| The Long Road to a U.S.-China Trade Pact - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQX0NBRUZOMUJsQ0FxcDB6TWpsRHJvRy1UOUtsNlQxVzEzT1lXbWYxVkFheEd1X3RrVGxnOTl3bUhKSXdlZGc2ZGtRdlJyNlk1R1lwZXBWOExTVXVyQzdJZkRRLUlkMjNXdHVhSEJ0SDl1Vm9CX3JSVktfSW5ETEd1aUgtUDF5Ul9qZkE?oc=5) |
 | Government shutdown likely to extend to next week as Senate adjourns with no breakthrough - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOZXpvTWM3cWxtZV9vV3RSMWVCdGJpeEJDX2c1Yjh1MXFoY0t1YV9kMlNYazdINmhJOWxNOVY0QXJ0dWkyZm1ZSXhxSExjZmgxbUZNTWtlQ19Td1dTY29OX3lseXR2cVNYNXR2R3hCLXl3T3Zhb1JnV0ROWUhJbXA5UG1tbEZLX2loU3FORDUxYmQ4dkVoU0E0a1NR0gGfAUFVX3lxTFB5cGdxbXloOEJ6RDE2akU1ZzIyZDNoWW1oWFpsMl9WNkVNNmRWSEh5aHVUSVFvc3A2R1FiblJpRHUtODlIODdrdmQ2RVFQV1UwZ01pR0dOc25pT3FOLWZ6SXhUMG1UdFhOUHc4c2NsZlVnTGxBZHdmbERxYlg5Qi0xWTNZelVKSm8wdTRuaWNOMlNSSDFTemJQS1liZ1lBRQ?oc=5) |
-| China emerges as US ‘peer rival’ at Xi Jinping-Donald Trump summit - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1mVVV1aUtBU2Z3SGZtNWJhbFRocDVxV0ttVF83eDZzdkF4V3pHZ2J6S1VrNXZCMmw2enJGaWNMSk5CNFh5OWQ5cEVUb0lZcTQ5aklUWGEyazY4UWgyNWNUeEpkaVJteXF3TDE3S2YyaEg?oc=5) |
-| Air Controller Shortage Causes Delays in Orlando and at Other Major Airports - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPZGpaTnZ4NFNWY1lBRVdKNDJVdFNVYU93a0piT3lseTg5UFNvN2hKbnBMTjRybHUtcGdKVlByaFdjZlE0T0lHLUE4c1Y2T2xIQ0ZHaE5mdXZPU3RNRlV4LUF3amR4bmtnQUxrWExEbFhRbTNtS0JNZmxYT1QwMDhRMWZzQjhTTlR4cXQxa3phM3BUcTA3b3Q1eUl0andWQQ?oc=5) |
+| Trump hosts White House Halloween bash with superheroes and presidential lookalikes amid shutdown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOVjVVRFFEYV9KZklCUEJzOUZZekh5NDZWWUFmR0luc0NJWlJDYVlhYUFkVFRkNzNqY1BRLV9Ja01xZnRBTlVRSkxIdko5c05YVnFQdHU1Qk1malB4MU8xUnZOSHBoVHVjVENpVDd1bzRNdFZzZjdSYlJObk5hRWpFRlpEU3ctZzZQN2JpZkt6RjltSnhFMFZveFYwOXlVR2h0ZUp5c2VYdmtUVFM3MnBrUU1ZUDdYVDg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
