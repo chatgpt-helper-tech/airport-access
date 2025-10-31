@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 14:49:24（北京时间）**
+🕒 更新时间：**2025年10月31日 14:56:33（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Air Controller Shortage Causes Delays in Orlando and at Other Major Airports - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPZGpaTnZ4NFNWY1lBRVdKNDJVdFNVYU93a0piT3lseTg5UFNvN2hKbnBMTjRybHUtcGdKVlByaFdjZlE0T0lHLUE4c1Y2T2xIQ0ZHaE5mdXZPU3RNRlV4LUF3amR4bmtnQUxrWExEbFhRbTNtS0JNZmxYT1QwMDhRMWZzQjhTTlR4cXQxa3phM3BUcTA3b3Q1eUl0andWQQ?oc=5) |
 | Trump hosts White House Halloween bash with superheroes and presidential lookalikes amid shutdown - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxNTnJ1WGxPalBLT1RkQnk5THE1alUza3MtX1lJQklWcFNhT2hNUW1qR3ktYWx1b0NLODNFQ2lwWENYT0ZPMXZDcFFGU2gycXZaTE80MU1pbFR2S19aREVOTjBTdHJHREs3SXlBMjdjZUJ3LXE3ZmdmaWVSYVRJaUdoM3FYS2FQNXNhd0lKSloyQlBDbGV1ZmJ2MUFKSFdEbmFjZHRVV3Y0c0dod1NkZEpBeUx2T2F6UdIBuwFBVV95cUxOR1U5TE4xOWJYUUZXdjlwaFFSVDREUVU3NHM1aWRpX09YLVAweGtyTTliMlhQamcwTTNCMV9kakVVNFVCemtHS0g0Q0R3V1hkN2x4dGk0SE5mM0JnekJNYVMxZUEtRnI0NS1lTTdlZG14bGs5S2tOTDlNREhtdWRXY1B1Rmo2UTltMDN1dm9mSnI0dFBOUC01aHZWdkFocjdacVBPMlN4bmh1WUkxbkhURHNCUWpRem91RWRF?oc=5) |
 | Trump isn’t issuing Oval invites to end shutdown — yet - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQNzNiOFFiemJhLXoxZU5Ba0FudlhxenNZMDNxTmdrUzBEV0tldjQ0U0p1ZExqRnhmNjl6cFBZZnN3TkhIYzl1YWh3bHlDTEZZVWNzZGpXN1hoSHV2d2FWcEh0RUZ6SXU1amhOMUFMcEtkN2U1bnJaeWowMFhraFY5NmRjdTY2Zw?oc=5) |
-| 2 California ICE shootings in nine days: Latest confrontation leaves bloody scene - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOYmtBdjRaR1FXNmpGaHdnZmFId0hJZVU3aUtlaW8tSTRqdjFiek01RGYxYXNMR1dUVUVsZFgyNXA3aXNhSm5PWUNiOFltbUJiMmdsNmZ1dUpuTUpMaGVoRWFCZFoxMHpSMXZXNW9YcDZQaGNCNHZwaERZUjZNMWpCejdUVkgzSDZm?oc=5) |
+| US Senate votes to reject Trump’s global tariffs on more than 100 countries - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1qckNIUWdtNnVhazREOXZlSFAyZ1dyTDRWRWxJZmNxMFh1WDdjSjhCMi11Z2ZrR2dGQmRLTUxaUDVwa3FxUnBFTG9reDNCSHhYZGJ4WHk0aW9hUk5UMlpqekhWckdtcEhJSGpKMlRTWnpMN2d0X3ZLLVJhTzg1Zw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
