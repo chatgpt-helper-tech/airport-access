@@ -92,7 +92,7 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
     <h3 style="color:#000;margin-top:0;">🔥 编辑首选</h3>
     <p style="color:#000;font-weight:bold;font-size:18px;">小蜜蜂机场</p>
     <p style="color:#000;">年付低至8元/月</p>
-    <p style="color:#000;font-size:14px;">全IEPL专线+8折</p>
+    <p style="color:#000;font-size:14px;">全IEPL专线+85折</p>
     <a href="#xiaomifeng" style="display:inline-block;margin-top:10px;padding:8px 20px;background:#d32f2f;color:#fff;font-weight:bold;border-radius:6px;text-decoration:none;">👉 查看详情</a>
   </div>
   
@@ -456,14 +456,14 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
 
 ### 🔥 主力推荐（适合 80% 用户）
 
-#### 1. <a href="https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A" target="_blank">**小蜜蜂机场**｜性价比王者 · 年付¥8/月 · 8折</a>
+#### 1. <a href="https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A" target="_blank">**小蜜蜂机场**｜性价比王者 · 年付¥8/月 · 85折</a>
 
 - ✅ 年付¥96（≈¥8/月）全IEPL专线，不限速不限设备
 - ✅ Netflix/Disney+/ChatGPT/TikTok 全解锁
 - ✅ 提供美区ID下载小火箭，新手友好
 
 <div style="background:#e8f5e9;border-left:4px solid #4caf50;padding:12px;margin:12px 0;">
-  <p>🎁 <b>8折码：</b><code style="background:#fff;padding:3px 10px;color:#d32f2f;font-weight:bold;">100188</code>（¥96年付除外）｜ <a href="https://gptvpnhelper.com/airport-access/xmf/" target="_blank" style="color:#1976d2;">👉 完整测评</a></p>
+  <p>🎁 <b>85折码：</b><code style="background:#fff;padding:3px 10px;color:#d32f2f;font-weight:bold;">xmfwww85</code>（¥96年付除外）｜ <a href="https://gptvpnhelper.com/airport-access/xmf/" target="_blank" style="color:#1976d2;">👉 完整测评</a></p>
 </div>
 
 ---
@@ -480,14 +480,14 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
 
 ---
 
-#### 3. <a href="https://tanu095.tntvipaff.cc/#/register?code=7MPbfr89" target="_blank">**TNTCloud**｜AI工具专用 · IPLC专线 · 8折</a>
+#### 3. <a href="https://tanu095.tntvipaff.cc/#/register?code=7MPbfr89" target="_blank">**TNTCloud**｜AI工具专用 · IPLC专线 · 85折</a>
 
 - ✅ IPLC专线，延迟<30ms，海外团队运营
 - ✅ ChatGPT/Claude/Gemini 原生IP 100%解锁
 - ✅ 流媒体全解锁，不限速不限设备
 
 <div style="background:#fff3e0;border-left:4px solid #ff9800;padding:12px;margin:12px 0;">
-  <p>🎁 <b>8折码：</b><code style="background:#fff;padding:3px 10px;color:#d32f2f;font-weight:bold;">2510815</code>（¥30季付除外）｜ <a href="https://gptvpnhelper.com/airport-access/tntcloud/" target="_blank" style="color:#1976d2;">👉 完整测评</a></p>
+  <p>🎁 <b>85折码：</b><code style="background:#fff;padding:3px 10px;color:#d32f2f;font-weight:bold;">TNT85</code>（¥30季付除外）｜ <a href="https://gptvpnhelper.com/airport-access/tntcloud/" target="_blank" style="color:#1976d2;">👉 完整测评</a></p>
 </div>
 
 ---
@@ -540,7 +540,7 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
 ### 1. <a href="https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A" target="_blank" style="color:#1a73e8;text-decoration:underline;">🔥 小蜜蜂机场 — 性价比王者，全IEPL专线，年付低至8元/月</a>
 
 **综合评分：9.6 / 10** 🏆 **编辑首选推荐**  
-**关键词标签**：全IEPL专线 | 不限速不限设备 | 年付低至¥8/月 | 全平台解锁 | 美区ID赠送
+**关键词标签**：全IEPL专线 | 不限速不限设备 | 年付低至¥8/月 | 全平台解锁 | 美区ID赠送 | 85折优惠
 
 > **小蜜蜂机场**是性价比最高的全IEPL专线机场之一，适合80%的用户。所有套餐不限速、不限设备，原生IP解锁全球流媒体（Netflix、Disney+、HBO等）和AI工具（ChatGPT、Copilot、Gemini），特色年付套餐低至¥8/月，还提供美区ID下载小火箭。无论是日常使用、流媒体追剧还是AI工具开发，都是不二之选。
 
@@ -602,20 +602,20 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
     box-shadow:0 4px 14px rgba(0,0,0,0.2);
     transition:all 0.3s ease;
   " onmouseover="this.style.transform='scale(1.05)'" onmouseout="this.style.transform='scale(1)'">
-    <strong>🐝 立即注册小蜜蜂（年付低至8元/月+8折优惠）</strong>
+    <strong>🐝 立即注册小蜜蜂（年付低至8元/月+85折优惠）</strong>
   </a>
 </div>
 
-#### 🎁 专属 8 折优惠码
+#### 🎁 专属 85 折优惠码
 
 <div style="background:#e8f5e9;border-left:4px solid #4caf50;padding:15px;margin:15px 0;">
-  <p><b>📋 优惠码：</b><code style="background:#fff;padding:5px 15px;font-size:19px;color:#d32f2f;font-weight:bold;">100188</code></p>
-  <p><b>💰 优惠力度：</b>全场 <b style="color:#d32f2f;">8 折</b>（活动截止 2025年10月31日）</p>
+  <p><b>📋 优惠码：</b><code style="background:#fff;padding:5px 15px;font-size:19px;color:#d32f2f;font-weight:bold;">xmfwww85</code></p>
+  <p><b>💰 优惠力度：</b>全场 <b style="color:#d32f2f;">85 折</b>（长期有效）</p>
   <p><b>⚠️ 重要说明：</b></p>
   <ul style="margin:5px 0 0 20px;">
-    <li>❌ <b style="color:#d32f2f;">大黄蜂特惠年付版（¥96/年）为福利款，不参与本次8折活动</b>（该套餐已是厂商最低价，无法再享优惠码折扣）</li>
-    <li>✅ 其他所有套餐均可使用优惠码享8折优惠</li>
-    <li>🔥 年付以上套餐商店显示的已是折扣价，配合优惠码购买3年付可享 <b style="color:#d32f2f;">42折优惠</b>！</li>
+    <li>❌ <b style="color:#d32f2f;">大黄蜂特惠年付版（¥96/年）为福利款，不参与本次85折活动</b>（该套餐已是厂商最低价，无法再享优惠码折扣）</li>
+    <li>✅ 其他所有套餐均可使用优惠码享85折优惠</li>
+    <li>🔥 年付以上套餐商店显示的已是折扣价，配合优惠码购买可享更多折扣！</li>
   </ul>
 </div>
 
@@ -734,7 +734,7 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
 ### 3. <a href="https://tanu095.tntvipaff.cc/#/register?code=7MPbfr89" target="_blank" style="color:#1a73e8;text-decoration:underline;">🔥 TNTCloud — AI工具专用，IPLC专线，海外团队运营</a>
 
 **综合评分：9.3 / 10** 🏆 **AI工具首选**  
-**关键词标签**：IPLC专线 | Trojan协议 | 海外团队 | 不限速不限设备 | ChatGPT完美支持 | 原生IP
+**关键词标签**：IPLC专线 | Trojan协议 | 海外团队 | 不限速不限设备 | ChatGPT完美支持 | 原生IP | 85折优惠
 
 > **TNTCloud** 是一家成立于 2024 年的海外团队运营的专线级机场服务商，采用 Trojan 协议 + 全线 IPLC 专线通道（速度比IEPL更快），节点速度极快、晚高峰稳定性极高。**特别适合 AI 工具深度用户**（ChatGPT、Claude、Copilot、Midjourney 等），原生IP确保100%解锁，不受国内政策影响。同时也是流媒体重度用户、TikTok 运营者、跨境电商的绝佳选择。
 
@@ -813,19 +813,19 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
     box-shadow:0 4px 14px rgba(0,0,0,0.25);
     transition:all 0.3s ease;
   " onmouseover="this.style.transform='scale(1.05)'" onmouseout="this.style.transform='scale(1)'">
-    <strong>🦦 立即注册 TNTCloud（IPLC专线+8折优惠）</strong>
+    <strong>🦦 立即注册 TNTCloud（IPLC专线+85折优惠）</strong>
   </a>
 </div>
 
-#### 🎁 专属 8 折优惠码
+#### 🎁 专属 85 折优惠码
 
 <div style="background:#fff3cd;border-left:4px solid #ffc107;padding:15px;margin:15px 0;">
-  <p><b>📋 优惠码：</b><code style="background:#fff;padding:5px 15px;font-size:19px;color:#d32f2f;font-weight:bold;">2510815</code></p>
-  <p><b>💰 优惠力度：</b>全场 <b style="color:#d32f2f;">8 折</b>（活动截止 2025年10月31日）</p>
+  <p><b>📋 优惠码：</b><code style="background:#fff;padding:5px 15px;font-size:19px;color:#d32f2f;font-weight:bold;">TNT85</code></p>
+  <p><b>💰 优惠力度：</b>全场 <b style="color:#d32f2f;">85 折</b>（长期有效）</p>
   <p><b>⚠️ 重要说明：</b></p>
   <ul style="margin:5px 0 0 20px;">
-    <li>❌ <b style="color:#d32f2f;">30元季付限量包为福利款，不参与本次8折活动</b>（该套餐已是厂商最低价，无法再享优惠码折扣）</li>
-    <li>✅ 其他所有套餐（月付、年付等）均可使用优惠码享8折优惠</li>
+    <li>❌ <b style="color:#d32f2f;">30元季付限量包为福利款，不参与本次85折活动</b>（该套餐已是厂商最低价，无法再享优惠码折扣）</li>
+    <li>✅ 其他所有套餐（月付、年付等）均可使用优惠码享85折优惠</li>
   </ul>
 </div>
 
@@ -843,7 +843,7 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
 ### 4. <a href="https://inv03.galaxyaff.cc/register?aff=tcOd0ob7" target="_blank" style="color:#1a73e8;text-decoration:underline;">🌌 银河云 Galaxy — 年付爆款¥98，Trojan专线，节点丰富</a>
 
 **综合评分：9 / 10** 💰 **年付性价比之王**  
-**关键词标签**：Trojan协议 | IEPL专线 | 年付¥98起 | 不限速不限设备 | 支持退款 | 全球节点
+**关键词标签**：Trojan协议 | IEPL专线 | 年付¥98起 | 不限速不限设备 | 支持退款 | 全球节点 | 最高8折优惠
 
 > **银河云 Galaxy** 是预算有限用户的最佳选择！由新加坡团队运营，采用 Trojan 协议 + IEPL 专线传输，**年付套餐低至¥98/年（每月不到10元）**，是专线机场中性价比最高的选择之一。拥有超强稳定性和全球丰富节点覆盖，支持全平台客户端，不限设备数。无论你是日常上网、AI工具使用、流媒体观看，还是跨境远程办公，都能以极低的价格享受专线品质。
 
@@ -929,19 +929,24 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
     box-shadow:0 4px 14px rgba(0,0,0,0.25);
     transition:all 0.3s ease;
   " onmouseover="this.style.transform='scale(1.05)'" onmouseout="this.style.transform='scale(1)'">
-    <strong>🚀 立即注册银河云（年付¥98起+8折优惠）</strong>
+    <strong>🚀 立即注册银河云（年付¥98起+最高8折优惠）</strong>
   </a>
 </div>
 
-#### 🎁 专属 8 折优惠码
+#### 🎁 专属优惠码（分阶梯）
 
 <div style="background:#e1f5fe;border-left:4px solid #0288d1;padding:15px;margin:15px 0;">
-  <p><b>📋 优惠码：</b><code style="background:#fff;padding:5px 15px;font-size:19px;color:#d32f2f;font-weight:bold;">10180</code></p>
-  <p><b>💰 优惠力度：</b>全场 <b style="color:#d32f2f;">8 折</b>（活动截止 2025年11月1日）</p>
+  <p><b>📋 优惠码（月付/季付/半年付）：</b><code style="background:#fff;padding:5px 15px;font-size:19px;color:#d32f2f;font-weight:bold;">gptvpnhelper85</code></p>
+  <p><b>💰 优惠力度：</b><b style="color:#d32f2f;">85 折</b>（长期有效）</p>
+  <hr style="border:none;border-top:1px solid #ccc;margin:10px 0;">
+  <p><b>📋 优惠码（年付及以上）：</b><code style="background:#fff;padding:5px 15px;font-size:19px;color:#d32f2f;font-weight:bold;">gptvpnhelper80</code></p>
+  <p><b>💰 优惠力度：</b><b style="color:#d32f2f;">8 折</b>（最高可折合 <b>4.8 折</b>）（长期有效）</p>
+  <hr style="border:none;border-top:1px solid #ccc;margin:10px 0;">
   <p><b>⚠️ 重要说明：</b></p>
   <ul style="margin:5px 0 0 20px;">
-    <li>❌ <b style="color:#d32f2f;">银河云年付套餐（¥98/年）为福利款，不参与本次8折活动</b>（该套餐已是厂商最低价，无法再享优惠码折扣）</li>
-    <li>✅ 其他所有套餐均可使用优惠码享8折优惠</li>
+    <li>❌ <b style="color:#d32f2f;">银河云年付轻量包（¥98/年）为福利款，不参与优惠活动</b>（该套餐已是厂商最低价，无法再享优惠码折扣）</li>
+    <li>✅ 月付、季付、半年付套餐使用 <code>gptvpnhelper85</code> 享85折</li>
+    <li>✅ 年付、两年付、三年付套餐使用 <code>gptvpnhelper80</code> 享8折</li>
   </ul>
 </div>
 
@@ -1171,7 +1176,7 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
 | 机场 | 特点 | 价格 | 优惠 | 注册链接 |
 |------|------|------|------|---------|
 | 🌸 **百变小樱** | 免费试用 3 天 | ¥0 试用 | 95折码：`bbxy-5th` | [立即注册](#free) |
-| 🐝 **小蜜蜂** | 性价比最高 | ¥20/月起 | 8折码：`100188` | [立即注册](#xiaomifeng) |
+| 🐝 **小蜜蜂** | 性价比最高 | ¥20/月起 | 85折码：`xmfwww85` | [立即注册](#xiaomifeng) |
 | 💸 **贝贝云** | 最便宜 | ¥14.9/月 | 95折码：`beibei.cloud` | [立即注册](#bby) |
 
 #### 📋 注册步骤：
