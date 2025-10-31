@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 02:56:05（北京时间）**
+🕒 更新时间：**2025年11月01日 03:01:42（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | What will happen to Sarah Ferguson and the princesses as Andrew loses titles? | [阅读全文](https://www.bbc.com/news/articles/c5ylk9r336zo?at_medium=RSS&at_campaign=rss) |
 | Ex-sergeant major jailed for six months for sexual assault of soldier who took her own life | [阅读全文](https://www.bbc.com/news/articles/cvgd1zk5nrgo?at_medium=RSS&at_campaign=rss) |
 | Just Stop Oil trio cleared over Stonehenge orange powder protest | [阅读全文](https://www.bbc.com/news/articles/cjekdqj7529o?at_medium=RSS&at_campaign=rss) |
-| Several hundred feared dead as Tanzania election protests continue | [阅读全文](https://www.bbc.com/news/articles/cz0x8vdvkjgo?at_medium=RSS&at_campaign=rss) |
+| More than 60,000 flee Sudanese city after its capture by RSF militia - UN | [阅读全文](https://www.bbc.com/news/articles/c0qppe4vdevo?at_medium=RSS&at_campaign=rss) |
 | Manchester synagogue attacker shot multiple times by police, inquest hears | [阅读全文](https://www.bbc.com/news/articles/c629qyndq89o?at_medium=RSS&at_campaign=rss) |
 | The King is expected to fund Andrew's move - but where does he get his money? | [阅读全文](https://www.bbc.com/news/articles/cwy5lzq94gqo?at_medium=RSS&at_campaign=rss) |
 | The houses on the sprawling Sandringham Estate that could become Andrew's next home | [阅读全文](https://www.bbc.com/news/articles/c201zvrpvw9o?at_medium=RSS&at_campaign=rss) |
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Government shutdown live updates as Thune rebuffs Trump's call to end Senate filibuster - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOMjV1cDkwVTgxU2dSSmFOSFhSdTZWc2lVdVVUaVd4c2pLU3dHbTRNUjRPYXA1R0dnTHRpZkdfNU9yS1NvcmJPODV2YmxRMUZvTWNhREtRWDdJN3p4N2M4NVFHNXlON0haV1g3WW1ndUJKYWQ3TkpTRHV4bUY4UXVDNFdaamtHVGJsR2k4dHMwYWRFTFpFNXB6U29XMmRHVVRIN2fSAacBQVVfeXFMT01uZ3gtZXBNUi16bXd6OXZaWGNTY2V4aEFxb3lwWW1CbWZ6enVOaU1hSW1ueUxmdUFPdGdsRG9Xb0xrVVVYc2t0amQyOFhORWM0QkNyLXRWdzE0dVlCQXVXakxmYjQtam1tV21fdWFEOUVvVnZqeUVJcEJoYjQzSE42UF9BdTdiQ1J6bE5Ya3RoX0NCUVJpREZtNV8yRHpTM3d0Yy1XZGs?oc=5) |
-| Who receives SNAP? Food aid for 1 in 8 Americans is threatened in November. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOZzdoa045ODV4ZkRlenI1bHladWtZcFdONlJ0V081Y0FnOENHcE11ZktOT2xjSGx3cklLZGcyVHhPV09GWWpibm14WkpWbHVqYUJuaktnTnZRMzJLb0hiTFBmRDl0WXhuX3Z2Q3RpT0M3SGcybHQzUkdQQnExeUM3YnU4X0VySGRtTlRtNUh6S0w?oc=5) |
-| Kash Patel says FBI thwarted alleged ‘terrorist attack’ in Michigan - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOYmVTSTE0VzcxeG1wSU5TbDNLa21Rb25IcDgzUVZJVkpXTUZWQnUzZ3IyRVBqeWRmZmpFRkoyeXdDRUlBcTZyTTRIMTRtT2VDSlhJeDFhTEpCNTNNMTJOd2NzdDNqa1V3Mm4zdXBLVFozMlpXSWRaNEhhN0ZaN3pmRmZKUTNRcnJCTWZlQnRVOUllWEZYaEs3TXVTV19CUnlLVWxCMDd6QVBKVjDSAbABQVVfeXFMUHpJV3NoTTJQVm5jdmhBNXpyYndUay1UMXFTSE5LTS1QUjZQZmZBN3ppMHAwMkNLVmwzMmE2M2Izak1CeG00Y01fRDhJNm95dzdoTDkyV05LZnFkNnIxTEdKQzBlTW1rSXNzTElUcEhjQ2Z4YzQ2SXlWTm9VN2FGZTUydThNU1h0SkR2ckMwdEdzcGZ2Q25GU0hKWkNWS1BPdU1FX2JjZ0lwYjgydzZtX3g?oc=5) |
+| Judge rules Trump's attempt to suspend SNAP funding is unlawful - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQSFQzN0ozby1FZERFQ0NrQlh4dTZRSHVSS01SamM2YkY1ck5nMllkTmlqTFRiX2Q1dHE5b3g5ZHF0S2w3cVVrM3lCRHJaN0xXTUdaZDRaRUNRU2NxUzlJVUxnajNyRGMwTnBFdy1meXhPUF9nQk5VUW9VeDVEMXBydWxyZkpDWS1nb2ZmMFFjbzhSTGNFeWdfVmxYVXVONU9nT1RB0gGoAUFVX3lxTE1ZTUN4WndKN1hXdG9laEZuTFBHdUQzX0otWGJWYTlUbXRJSjhHMGtrZFI4dUl4LXllUDVpcVktT3NWaHpfek9GTFJyMzJfbi1HQVpqellrb3JkVmlfbExtNFBGR1NmWThDYlh4bnNUN0ZXbnZUc0F4VFZwWXlocnhudlJDNllENGk5S0pHZ1E0QzZfOUdtak9JWGZiZTV5RmVpVUVLeXhYbQ?oc=5) |
+| Republicans quickly push back on Trump’s call to nix filibuster - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQNWRRRjZxdmVMOXpZR0U5Mk43T04tQ0lQNzJrdFMwemhpLThKTDVnNXhONFkyS29UaFVZdlRGV242UFNSUnhybnZtNGNuVUVHQzV3YUVfY2ROekRVVWl0OGZCdGEyZFBuckxtb0s1TUx0RjNnUTg2RktBV3VvbXIwM3lJMGVFVkd6Z0phS2xxT2I?oc=5) |
+| FBI says "potential terrorist attack" thwarted in Michigan, 5 people arrested - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQRnBIaUY4SFBqc280TzhTX19zSkxrTHpETkF4RnF1RjQyWGNOOWVJVGFYQzVYTnBJWEo3TTQzUE8xVFFza2MxZk51dmJwdy1oc09fMlBHWF8zSTE3QldyenZUSUtXRmMyZF9pWnJvZFNCS01UT3dwblhZTVMzbzNUUE9rdXJTZ2ktYUZFZzNqS3BUazRRTS1HWFlBMFhRRTV3YXBKSXp30gGrAUFVX3lxTE1saFl5dW9nNUJtM0RoR2N3dmo2bHlkWmhVUXJwc0dvLWVZUlgxUjBhUEMtd05LaUExUmhjZnp5alNsNGdxR0p1S1FEQmg0NVFYa2QyWjZFeDF5dkdtUTd2bUdZWXA3ZHZkcTloWTVjd2REY3RuZGJkTTFnX1NzQk95TjFBZXh5b2F2eGdscFBYd0FmbFJUdG9EcXJ3dFo5bXYzaDIwa0pHbEFnSQ?oc=5) |
 | Trump Officials Identify Venezuela Strike Targets, Reports Say - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNb0lWS0tFa2dJalpqaVBubHNFMFJGNVIzVFRjZUJ3eWZpMU52YkNzaFlfSDF2OWpVVVZxcFZPS3ZyenV5d3B6WXlhSXREM3ZrQ1lFQzd6M3EzaFZZUlpIMFQwdk9aa3VwVWtsTDhqNWR5MFJQWk9ZQmU2Vm56UGcxelA5N3hDVjlzZDQ1MGh4d3h3ekczcEdqd1RzNkRmT2g3STVldHd0QTgzM1psVUdLTFNn?oc=5) |
 | Jamaica Prepared a Financial Fortress for Disaster. Hurricane Melissa Will Test It. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQUDRZR0tyTFE5cm1jTGU4SjJrT0FpYnFLNkJ4cXl1a1RXcXdDTVRiQmdGQjV0SS1YazVTbjFuZEY3WHhiRWZUZS14MUg5YjNXYkxXTDk4NWxkOGEzdHhGdWlVVmhtelRkZ1BUVzlOcUJ6ZlpYbzZ2R185Wmc4YWtIdTFmRnk3U1VJSjl0UUFuVEt2aDYyN18waXhST1FFSDg1dEpJbGJ2NmVuTGc4dm5QQQ?oc=5) |
 | Millions face 'huge sticker shock' when ACA open enrollment starts Nov. 1 - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPRllydE04UHB0QmN4Vk5KOGhobThCQmJLQk0zMnJGeHR2czhoZGEzQ3Y1TnpfNmFibUI3UHRCRDZCckJ5MnNrclc1SjFXVzYzdnNobllFMzhKYmVNVHFUSWdLeVdpVjdKOGtuQUhxSThFSVM4V1Z0WXViZVEwcGpxdFVsUzN6d3p4VGfSAY8BQVVfeXFMT25feEtpcmpxcXZsZE1LcEdpTEQtRVJINFNjejJuY2R5QTljdXBGV2tXZHN4cTdNWHQzNzUtbFRMc1BtSjllYlY1OVZ5eWdTQkgySlFDUHM0MEpxZm9tbmRJTElTZGJJejlxQkdsM1pEQ3VTQ2NQenFYcHlzX2RscThRVk43ckY5NDBjbzRJRFU?oc=5) |
