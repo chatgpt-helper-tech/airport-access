@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 16:56:49（北京时间）**
+🕒 更新时间：**2025年10月31日 17:01:24（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | Is this finally rock bottom for Mr Andrew Mountbatten Windsor? | [阅读全文](https://www.bbc.com/news/articles/c62elnjnqqxo?at_medium=RSS&at_campaign=rss) |
 | What we know about Andrew losing titles and Windsor mansion | [阅读全文](https://www.bbc.com/news/articles/c5ylk9r336zo?at_medium=RSS&at_campaign=rss) |
-| Letting agent apologises for 'oversight' on Reeves rental licence | [阅读全文](https://www.bbc.com/news/articles/cx2p55ejy88o?at_medium=RSS&at_campaign=rss) |
+| Reeves rebuked by PM over 'regrettable' rental confusion but faces no further action | [阅读全文](https://www.bbc.com/news/articles/cvgk40l8jm7o?at_medium=RSS&at_campaign=rss) |
 | Hurricane Melissa death toll rises as aid struggles to reach parts of Jamaica | [阅读全文](https://www.bbc.com/news/articles/clylqpyg8pjo?at_medium=RSS&at_campaign=rss) |
 | Pornhub says UK visitors down 77% since age checks came in | [阅读全文](https://www.bbc.com/news/articles/cgkz3m3re1zo?at_medium=RSS&at_campaign=rss) |
 | Heartbreak, headless dummies and  'eggy' Shakespeare - Celebrity Traitors fight to the death | [阅读全文](https://www.bbc.com/news/articles/cvgvqj5w233o?at_medium=RSS&at_campaign=rss) |
