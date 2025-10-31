@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 13:40:44（北京时间）**
+🕒 更新时间：**2025年10月31日 13:49:31（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Trump calls for end of Senate filibuster to break funding stalemate - CNN | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOam9scTE4dUdUcGxnakVxMDluNDNHYlR0NVN1bUVYMjc5MVhYWDVibUpQbUktLXdBMXBlM3c2YmlPQWRPOGpyQ1N6WV9CVHUwYjhGM1lsVlYtb3BIWEN3eGdEblpVMC10T21jLVZuV0FNNTZVeHQ5UE1aNkZZY2VQajN1ek1Uc3JvN01ZMW5MaW5vUl9JNkduN01wVG5WWWc?oc=5) |
 | Judge says she’ll likely order Trump administration to send SNAP funds to states - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQWjRyNWRIaHdmb1lnSno3NHI2NW5FZ1lNTjktaWVFTVhRd2hZUnItZUZTLTMtbWpWMW8xNXVlb0dRRW9MOWVvOU9jRURFV2NiREV6eDF6OENqSHZleFBteWxkazFrbUZfeThWTWxvR21KeW9LNlZrOFRPT010ajVOZzB3bXdjanlGbmc?oc=5) |
 | Trump sets lowest-ever refugee cap. See how other presidents compare. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPVzBONDdMamtrQml0XzFGR0lkRkRwTG1jN044Wm9Bd1NhLXFVeUwxbDIweU11anFWc2JxdHAwUklCVnZXODRZV1ZuSEdsWjJTRVBZd290SDhtMVJmMWE1X2JfcTMySG1KanRqNUFGbDJNWFpHeGwzbTZDd0pmVkhIcWplVVNNcGxWTVVUN1dB?oc=5) |
-| US Senate votes to reject Trump’s global tariffs on more than 100 countries - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1qckNIUWdtNnVhazREOXZlSFAyZ1dyTDRWRWxJZmNxMFh1WDdjSjhCMi11Z2ZrR2dGQmRLTUxaUDVwa3FxUnBFTG9reDNCSHhYZGJ4WHk0aW9hUk5UMlpqekhWckdtcEhJSGpKMlRTWnpMN2d0X3ZLLVJhTzg1Zw?oc=5) |
+| China emerges as US ‘peer rival’ at Xi Jinping-Donald Trump summit - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1mVVV1aUtBU2Z3SGZtNWJhbFRocDVxV0ttVF83eDZzdkF4V3pHZ2J6S1VrNXZCMmw2enJGaWNMSk5CNFh5OWQ5cEVUb0lZcTQ5aklUWGEyazY4UWgyNWNUeEpkaVJteXF3TDE3S2YyaEg?oc=5) |
 | Air Controller Shortage Causes Delays in Orlando and at Other Major Airports - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPZGpaTnZ4NFNWY1lBRVdKNDJVdFNVYU93a0piT3lseTg5UFNvN2hKbnBMTjRybHUtcGdKVlByaFdjZlE0T0lHLUE4c1Y2T2xIQ0ZHaE5mdXZPU3RNRlV4LUF3amR4bmtnQUxrWExEbFhRbTNtS0JNZmxYT1QwMDhRMWZzQjhTTlR4cXQxa3phM3BUcTA3b3Q1eUl0andWQQ?oc=5) |
 | Photos: Trump hosts trick-or-treaters for White House Halloween bash - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBVNDMyeVlMcWVzUENDY2VUS09wS0VmeXljR0Nrc255Tk5YSGNBMFlMc0NwT2U2ZFQzd3VrRHVydDkzTk5Sc2Y3VXNJOHQzTjFpR1RuV2NpR2NTUVoyNFdBN292ZldBeWJra2tlZ3AzVnExeDVwRk5qQtIBfkFVX3lxTE1jVXBRQVN2Mlh5M1FfMHE3Mm9KRUZMRFU4b252LXZ3YzVlcTY5NG14REVtZ3FVd093aFduNHJYeE1GSVBkNU94VEIzTnhsNzdTaWEzSkhtTF83d2Nrd3hia1NId2ZFbjN6NWhXclJraFlWUUFkTW1zMjhfeUVLdw?oc=5) |
-| An animal rights activist said she ‘rescued’ chickens. A jury convicted her of conspiracy - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQZTRDUkZpaTRuNzJnLUY1Rk9nTHh5b3NfX1daa2Q2Z3lxci1jY0hCRThrbXhfT25qNVY1N1lwV2U0Z1dLbHVIWkxDS1VlcDlaV1ZmR0F1MzJ3cmZka3JaUmhraC1CNVZiNFpFdzhGRXA4QVM2aTA5OU1pcmZGd3RxWVFlT0pTNy1lOE1iX2VZMElERWI3Q2NvM3NfMmd2MjZVUUF4cjNlTEVpRWd0?oc=5) |
-| National Guard in each state is ordered to create ‘quick reaction forces’ trained in civil unrest - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNTUlsV3FOX1FVeENrbzJBOW9xWDQ2c1JZNjZQUzNzUjN2dTMxLXc2U2FLVDdHMVoxV2U1aEhxR0t4QkYtcEVMaXpzeXh4eWl2VEdjb2hxVmxEd0I5dVJGR2xGVzdsVUIxZzVmczVZVkYtZy1hODdYQ0EwS0ZhVzN1UzZRdnJmRXNoRWV3ancyX3lJWnpESWhMNjlMTmJBWnQ5bEY1Znc2eFYtdw?oc=5) |
+| 2 California ICE shootings in nine days: Latest confrontation leaves bloody scene - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOYmtBdjRaR1FXNmpGaHdnZmFId0hJZVU3aUtlaW8tSTRqdjFiek01RGYxYXNMR1dUVUVsZFgyNXA3aXNhSm5PWUNiOFltbUJiMmdsNmZ1dUpuTUpMaGVoRWFCZFoxMHpSMXZXNW9YcDZQaGNCNHZwaERZUjZNMWpCejdUVkgzSDZm?oc=5) |
+| Trump isn’t issuing Oval invites to end shutdown — yet - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQNzNiOFFiemJhLXoxZU5Ba0FudlhxenNZMDNxTmdrUzBEV0tldjQ0U0p1ZExqRnhmNjl6cFBZZnN3TkhIYzl1YWh3bHlDTEZZVWNzZGpXN1hoSHV2d2FWcEh0RUZ6SXU1amhOMUFMcEtkN2U1bnJaeWowMFhraFY5NmRjdTY2Zw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
