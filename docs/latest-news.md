@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 01:41:06（北京时间）**
+🕒 更新时间：**2025年11月01日 01:49:31（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Republicans quickly push back on Trump’s call to nix filibuster - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQNWRRRjZxdmVMOXpZR0U5Mk43T04tQ0lQNzJrdFMwemhpLThKTDVnNXhONFkyS29UaFVZdlRGV242UFNSUnhybnZtNGNuVUVHQzV3YUVfY2ROekRVVWl0OGZCdGEyZFBuckxtb0s1TUx0RjNnUTg2RktBV3VvbXIwM3lJMGVFVkd6Z0phS2xxT2I?oc=5) |
-| FBI says "potential terrorist attack" thwarted in Michigan, multiple people arrested - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQRnBIaUY4SFBqc280TzhTX19zSkxrTHpETkF4RnF1RjQyWGNOOWVJVGFYQzVYTnBJWEo3TTQzUE8xVFFza2MxZk51dmJwdy1oc09fMlBHWF8zSTE3QldyenZUSUtXRmMyZF9pWnJvZFNCS01UT3dwblhZTVMzbzNUUE9rdXJTZ2ktYUZFZzNqS3BUazRRTS1HWFlBMFhRRTV3YXBKSXp30gGrAUFVX3lxTE1saFl5dW9nNUJtM0RoR2N3dmo2bHlkWmhVUXJwc0dvLWVZUlgxUjBhUEMtd05LaUExUmhjZnp5alNsNGdxR0p1S1FEQmg0NVFYa2QyWjZFeDF5dkdtUTd2bUdZWXA3ZHZkcTloWTVjd2REY3RuZGJkTTFnX1NzQk95TjFBZXh5b2F2eGdscFBYd0FmbFJUdG9EcXJ3dFo5bXYzaDIwa0pHbEFnSQ?oc=5) |
+| Kash Patel says FBI thwarted alleged ‘terrorist attack’ in Michigan - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOYmVTSTE0VzcxeG1wSU5TbDNLa21Rb25IcDgzUVZJVkpXTUZWQnUzZ3IyRVBqeWRmZmpFRkoyeXdDRUlBcTZyTTRIMTRtT2VDSlhJeDFhTEpCNTNNMTJOd2NzdDNqa1V3Mm4zdXBLVFozMlpXSWRaNEhhN0ZaN3pmRmZKUTNRcnJCTWZlQnRVOUllWEZYaEs3TXVTV19CUnlLVWxCMDd6QVBKVjDSAbABQVVfeXFMUHpJV3NoTTJQVm5jdmhBNXpyYndUay1UMXFTSE5LTS1QUjZQZmZBN3ppMHAwMkNLVmwzMmE2M2Izak1CeG00Y01fRDhJNm95dzdoTDkyV05LZnFkNnIxTEdKQzBlTW1rSXNzTElUcEhjQ2Z4YzQ2SXlWTm9VN2FGZTUydThNU1h0SkR2ckMwdEdzcGZ2Q25GU0hKWkNWS1BPdU1FX2JjZ0lwYjgydzZtX3g?oc=5) |
 | Millions face 'huge sticker shock' when ACA open enrollment starts Nov. 1 - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPRllydE04UHB0QmN4Vk5KOGhobThCQmJLQk0zMnJGeHR2czhoZGEzQ3Y1TnpfNmFibUI3UHRCRDZCckJ5MnNrclc1SjFXVzYzdnNobllFMzhKYmVNVHFUSWdLeVdpVjdKOGtuQUhxSThFSVM4V1Z0WXViZVEwcGpxdFVsUzN6d3p4VGfSAY8BQVVfeXFMT25feEtpcmpxcXZsZE1LcEdpTEQtRVJINFNjejJuY2R5QTljdXBGV2tXZHN4cTdNWHQzNzUtbFRMc1BtSjllYlY1OVZ5eWdTQkgySlFDUHM0MEpxZm9tbmRJTElTZGJJejlxQkdsM1pEQ3VTQ2NQenFYcHlzX2RscThRVk43ckY5NDBjbzRJRFU?oc=5) |
 | Trump muddles nuke-testing message - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQUXdmdEszNlExZnFpeUhKdWNHSzhkQl9iZVhhOEJXQWpDTjZITUtJeTZFZkhhZ1I3R2t2SjZVaU5nQkJtWHZuZkU5cldiVy1BaXJ6V2VwZEpwd09yT2dld2Vta2xKa3dxYzQ5Qk1zTVp4TTV4NjlGWXdsb1ZwczBfTQ?oc=5) |
 | Dutch centrist Rob Jetten claims victory over Wilders in neck-and-neck election race - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9KclU5YWN4X3lMUUVuS0JuR2FvanZTUndjY1BrM19WVFJCcFl2TEkwUDFxbUNYQ0ZSNnc2Yi1MVEZIUk9rYlJ1YklJTWV1RjIxVGxPVnA5SlpmUdIBX0FVX3lxTE5CWVM1UjdjdXJSanVQT09GcHJ4ZFJjazZtS3JkdEQ3WUlZNW1rTnZxNDhodURUMHl0d2RwRkxwdV9QX0lGRkVmVmU2SXBfWEtLc3cta2QybmlYWldIU080?oc=5) |
