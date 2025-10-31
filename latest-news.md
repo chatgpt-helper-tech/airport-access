@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 10:57:18（北京时间）**
+🕒 更新时间：**2025年10月31日 11:01:06（北京时间）**
 
 ---
 
@@ -27,8 +27,8 @@
 | Judge says she’ll likely order Trump administration to send SNAP funds to states - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQWjRyNWRIaHdmb1lnSno3NHI2NW5FZ1lNTjktaWVFTVhRd2hZUnItZUZTLTMtbWpWMW8xNXVlb0dRRW9MOWVvOU9jRURFV2NiREV6eDF6OENqSHZleFBteWxkazFrbUZfeThWTWxvR21KeW9LNlZrOFRPT010ajVOZzB3bXdjanlGbmc?oc=5) |
 | Haiti, Jamaica and Cuba pick up the pieces after Melissa's destruction - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxONkowQmg0T04wb0YzRkZLX09lWGpob2ZGN1labkNNMklOZWlKMjFmbjhYNmR5cGFoZGFyOExzNDc4SjBqYUtsdXZHYUFWd0U5VWFSeEtIYjV3aDJWdTMtMUJGLTNvRVBIb3R6ZHRfRkt2cTB1U0hocnd0WHo2MjVmc0ZSckhpenpoVkRod1pjT2E?oc=5) |
 | Trump sets lowest-ever refugee cap. See how other presidents compare. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPVzBONDdMamtrQml0XzFGR0lkRkRwTG1jN044Wm9Bd1NhLXFVeUwxbDIweU11anFWc2JxdHAwUklCVnZXODRZV1ZuSEdsWjJTRVBZd290SDhtMVJmMWE1X2JfcTMySG1KanRqNUFGbDJNWFpHeGwzbTZDd0pmVkhIcWplVVNNcGxWTVVUN1dB?oc=5) |
-| US Senate votes to reject Trump’s global tariffs on more than 100 countries - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1qckNIUWdtNnVhazREOXZlSFAyZ1dyTDRWRWxJZmNxMFh1WDdjSjhCMi11Z2ZrR2dGQmRLTUxaUDVwa3FxUnBFTG9reDNCSHhYZGJ4WHk0aW9hUk5UMlpqekhWckdtcEhJSGpKMlRTWnpMN2d0X3ZLLVJhTzg1Zw?oc=5) |
 | China emerges as US ‘peer rival’ at Xi-Trump summit - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1mVVV1aUtBU2Z3SGZtNWJhbFRocDVxV0ttVF83eDZzdkF4V3pHZ2J6S1VrNXZCMmw2enJGaWNMSk5CNFh5OWQ5cEVUb0lZcTQ5aklUWGEyazY4UWgyNWNUeEpkaVJteXF3TDE3S2YyaEg?oc=5) |
+| US Senate votes to reject Trump’s global tariffs on more than 100 countries - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1qckNIUWdtNnVhazREOXZlSFAyZ1dyTDRWRWxJZmNxMFh1WDdjSjhCMi11Z2ZrR2dGQmRLTUxaUDVwa3FxUnBFTG9reDNCSHhYZGJ4WHk0aW9hUk5UMlpqekhWckdtcEhJSGpKMlRTWnpMN2d0X3ZLLVJhTzg1Zw?oc=5) |
 | Trump Returns to White House in Time to Greet Trick-or-Treaters - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPSGk1QWhDOV9jeXdjN2YyeHBPTV84ZXktal9YR2p5bElsQl9rOGRZOG1HYUxkNk9Pby1zQVNSSzlGXzhtYmpqaTR1Zll2UVdaM1BKR2tWWU9BcmtaLUs0bWNYLS1CV0FQaEw1S0k4UDJUeG1UODhvcDFVWnZuMWFWWnZ2UlpJUzluZFF0TEtn?oc=5) |
 | Ground delays issued amid shortage of air controllers as shutdown continues - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOeGs1WHNOenc2R1hmbm9nV1pVQm5RNmt4dldMMTRLRGxUWXowalk4ZG1vdjFXSVRUaDZuQVQyTFJqXzJlUEZlNFRPSUhyanhxMnFNVnJLcnNwTTRQS29RUUc0d0RyYi1jbzZUVG5qYlJtWEJsOTBsRzVNdmtnRGtaTEoxN1l3SHdUeU4tSkNLRV80Uml1dTI4ZWtoWHdQWldYSUcxaTRaSE5GRzhXQVBfeEJ30gFWQVVfeXFMTzFjbTNINGlsd0h5cTB5MHgxZ3MxN04zTzc0alR6bzVvREdkNGVhVGVfRDF6QkhybG9tSmtZVWI3WVNEUjlRSnowSXVzM25fZ3FNbDZMa0E?oc=5) |
 | White House taps multiple accounts to pay troops amid shutdown - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNd1BzS0F1LUR5NTczRFg1Ukdqd290aXE3dFJIT0FfdE1vTG5saEs1dWlfZDBqSUNHdnpvWWtfeXV2VFFybEZFempobkZtM05UOERXNzlodHQ5YV80Y210Zk5mbXVVMnVJTFpGcjNOMktEZFNDVzNBSUlfRlJYakFBVElDemZpYjg1b19zajIxWHc0RDV2ZFE5NHdsYzJXcG9xNmFLTUtaRTNBdw?oc=5) |
