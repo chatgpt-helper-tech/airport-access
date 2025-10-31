@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 02:49:10（北京时间）**
+🕒 更新时间：**2025年11月01日 02:56:05（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Millions face 'huge sticker shock' when ACA open enrollment starts Nov. 1 - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPRllydE04UHB0QmN4Vk5KOGhobThCQmJLQk0zMnJGeHR2czhoZGEzQ3Y1TnpfNmFibUI3UHRCRDZCckJ5MnNrclc1SjFXVzYzdnNobllFMzhKYmVNVHFUSWdLeVdpVjdKOGtuQUhxSThFSVM4V1Z0WXViZVEwcGpxdFVsUzN6d3p4VGfSAY8BQVVfeXFMT25feEtpcmpxcXZsZE1LcEdpTEQtRVJINFNjejJuY2R5QTljdXBGV2tXZHN4cTdNWHQzNzUtbFRMc1BtSjllYlY1OVZ5eWdTQkgySlFDUHM0MEpxZm9tbmRJTElTZGJJejlxQkdsM1pEQ3VTQ2NQenFYcHlzX2RscThRVk43ckY5NDBjbzRJRFU?oc=5) |
 | Ohio lawmakers pass new congressional map after reaching an unexpected deal - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQVnZLMzJxS0c2RmhwTWdjYzY4MER2SWVvejI4MlJIMko3OG50N3hhNWZKY0Q2SGN1cUhlZUI0a1NONkxyaUNoeEhmcDZlOE1BTFlaT29qSWtjU0ZXMlludUJjQzlJNGRtRHBPSnVxckZBRUJJQzVodGg5UEZGT1prdTRPMGRNbnVUMXNkV0phQ3ZTcExkRE5uWUZqdC1mVHI0b2V5M1RVbzk2d9IBVkFVX3lxTFBPWkZZd2pMSndqUWt1bGZTOXRnVnFxNWUtYXFOS1l1MGRoME5rZDNVRGVrUWhXdDk0VGU4NUJpdWl1VkU5a1o3bTBEYzQ1c2FsQmFDdWlR?oc=5) |
 | Lawsuit Alleges ‘Horrific And Inhumane’ Conditions At Broadview ICE Facility - Block Club Chicago | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOMW5RUXVfZnBlbnJaXzNibnIyUUgwekFSNVN2Tlc2NzFEWFltYnhJMVdsd0RfZWw5XzdVRExOenVYYTczbDVIaFZjSi1DeHZZd3FjcXVGU2YtYnFlNlI2azFTd1VCNFd5cTBPYUM5dzlPc2c5bU1rb1JBZUtoTlM0eDY1Tk5jQlRyYzMwbU13NE84UnM5WnhVNVp1TXc5QVhXekZnaElWX2x4aENxX1J2R0dRWnpjZw?oc=5) |
-| Democrats plot messaging blitz ahead of Obamacare hikes - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNMjVCUFlDQnl2T1lyZVNfd3Y3dFhWN2xmUXkzc1d0eUVZb3JUMXN2V3Fma3JkVF95X2NVTVRPWjQ4czRSZi1keWVFamczRzBmNmk5aGRXRjhuTFVmd21rRlQ1aTdFU3hFeTMtNVdmTXR0U1VhVHVoMFV4UmNyOXpBeHhmS1N3MTJTVmpCR21jallOZTVLR2VGb25Mb0k?oc=5) |
-| Trump muddles nuke-testing message - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQUXdmdEszNlExZnFpeUhKdWNHSzhkQl9iZVhhOEJXQWpDTjZITUtJeTZFZkhhZ1I3R2t2SjZVaU5nQkJtWHZuZkU5cldiVy1BaXJ6V2VwZEpwd09yT2dld2Vta2xKa3dxYzQ5Qk1zTVp4TTV4NjlGWXdsb1ZwczBfTQ?oc=5) |
+| President Trump shows off White House's Lincoln Bathroom renovated entirely in marble - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOMHdzV01rYlJWTmRPSVRYdUJscGF2aWZwT2NnOE1INklzTldGdGE2emhXckRwTTdUSUF5WGtjUk5nb1JmMWVQV3haN01ETFFodUtnMG5CcXlNcnp6c1lZRUNGcHdsRjI4ZDgxLXdyT0VXOHVMUU1uWGVuaTEtX1lKNVAyTS1XMmF1cjJnTWFCV2VrUHQ2bzJCcUxPRjlweWkxLVpWa1lZV3XSAa4BQVVfeXFMUHNKNWl5d0hYQWRoQ1lWNS1COGhqTmZwSTFwelRNREw5c0lUQkhrLXl4cGE1Y3huczdncC14YUFjTXZnenZCWlE0UFV3Mm0yeDBDb2JHN25vVTRnc3plSEV2MUlRbVY5WjhybWgzXy1iM1RGZVMtUnlJeHJ5M0YtdGJsaWdIeG5vTG1NT2RWMVRPWHEtZUY3bHNxaUZ3R3hLNWQ4cU5uMk5FUnFPNWlB?oc=5) |
+| Graham Platner’s finance director resigns in latest personnel shakeup - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNU3NDLVcwdWIwM2s2UXViZGtJTnR4NWp2a2dQQVNwQ0FRcGQtWEhqXzhMZDB5Q2JkRzJ4UVpKR1NsOTVlZXhHOGJwQ1FLT1cwLW5VQWNvb1ZvcnJOWWVwclVCMVdENEtobm4zTE5yQklQRzRrOGJuOWxvNGdaOUdKRnFtNjFpQUg5bmtzUENVWjdtRk9Z?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
