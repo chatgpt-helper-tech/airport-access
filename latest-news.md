@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 12:17:42（北京时间）**
+🕒 更新时间：**2025年10月31日 12:24:27（北京时间）**
 
 ---
 
@@ -25,14 +25,14 @@
 |--------|-------------|
 | What does Trump mean by 'nuclear testing?' - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1WYmNsVUhOWnFTeWZRcXN3MG52LW1oM0tQZDVkSC0xRzZGc1pTVkYtbnZ4NmZYWjdYUnE3aWo5UzJZTExOLVdiRFczelZ5Y3ZjUkRXNEkyTzRIcGpPSnRSYUFRdzloSWlwR0lneG15bHA4WnI1VGRyM1BfZ3nSAYIBQVVfeXFMTVMzamhZcDNEUlh4UUM0a2hfVlB0VS1RbS1TektHUExSSVZTUEdXS0xoMUFXb1U5Nl9kcDVDdmpJR0FEeW9GLWgzUEVwM0tYMlNLZVF3UHE5RDlMcmZfcnR5S0VUbnotaVBray1qcmp0REkyTE1WVTBNMjVYUUY1TVFIUQ?oc=5) |
 | Haiti, Jamaica and Cuba pick up the pieces after Melissa's destruction - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxONkowQmg0T04wb0YzRkZLX09lWGpob2ZGN1labkNNMklOZWlKMjFmbjhYNmR5cGFoZGFyOExzNDc4SjBqYUtsdXZHYUFWd0U5VWFSeEtIYjV3aDJWdTMtMUJGLTNvRVBIb3R6ZHRfRkt2cTB1U0hocnd0WHo2MjVmc0ZSckhpenpoVkRod1pjT2E?oc=5) |
-| Judge says she’ll likely order Trump administration to send SNAP funds to states - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQWjRyNWRIaHdmb1lnSno3NHI2NW5FZ1lNTjktaWVFTVhRd2hZUnItZUZTLTMtbWpWMW8xNXVlb0dRRW9MOWVvOU9jRURFV2NiREV6eDF6OENqSHZleFBteWxkazFrbUZfeThWTWxvR21KeW9LNlZrOFRPT010ajVOZzB3bXdjanlGbmc?oc=5) |
 | Trump calls for end of Senate filibuster to break funding stalemate - CNN | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOam9scTE4dUdUcGxnakVxMDluNDNHYlR0NVN1bUVYMjc5MVhYWDVibUpQbUktLXdBMXBlM3c2YmlPQWRPOGpyQ1N6WV9CVHUwYjhGM1lsVlYtb3BIWEN3eGdEblpVMC10T21jLVZuV0FNNTZVeHQ5UE1aNkZZY2VQajN1ek1Uc3JvN01ZMW5MaW5vUl9JNkduN01wVG5WWWc?oc=5) |
+| Judge says she’ll likely order Trump administration to send SNAP funds to states - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQWjRyNWRIaHdmb1lnSno3NHI2NW5FZ1lNTjktaWVFTVhRd2hZUnItZUZTLTMtbWpWMW8xNXVlb0dRRW9MOWVvOU9jRURFV2NiREV6eDF6OENqSHZleFBteWxkazFrbUZfeThWTWxvR21KeW9LNlZrOFRPT010ajVOZzB3bXdjanlGbmc?oc=5) |
 | Trump sets lowest-ever refugee cap. See how other presidents compare. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPVzBONDdMamtrQml0XzFGR0lkRkRwTG1jN044Wm9Bd1NhLXFVeUwxbDIweU11anFWc2JxdHAwUklCVnZXODRZV1ZuSEdsWjJTRVBZd290SDhtMVJmMWE1X2JfcTMySG1KanRqNUFGbDJNWFpHeGwzbTZDd0pmVkhIcWplVVNNcGxWTVVUN1dB?oc=5) |
-| China emerges as US ‘peer rival’ at Xi Jinping-Donald Trump summit - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1mVVV1aUtBU2Z3SGZtNWJhbFRocDVxV0ttVF83eDZzdkF4V3pHZ2J6S1VrNXZCMmw2enJGaWNMSk5CNFh5OWQ5cEVUb0lZcTQ5aklUWGEyazY4UWgyNWNUeEpkaVJteXF3TDE3S2YyaEg?oc=5) |
+| More than half of Americans disapprove of Trump demolishing East Wing – poll - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNUFoyN2tDYWtPOFRyOXZydTlNbWd0MUEyV1dZSVNWUHQ0dURIN2NNakZ1MFlXa3hHVW5YV1JGWGJNUjZoZ2hyWnJVQl9GMG5zNTNRNndrcW9ZYTc5Z3BrZlJta1ZGa2lUWDVHUkc3SWFWN1hsVG40ZEZXcUlZeGlmMm1sMTNHblNjaDAzSlAwQ1hnNkE?oc=5) |
 | Trump Returns to White House in Time to Greet Trick-or-Treaters - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPSGk1QWhDOV9jeXdjN2YyeHBPTV84ZXktal9YR2p5bElsQl9rOGRZOG1HYUxkNk9Pby1zQVNSSzlGXzhtYmpqaTR1Zll2UVdaM1BKR2tWWU9BcmtaLUs0bWNYLS1CV0FQaEw1S0k4UDJUeG1UODhvcDFVWnZuMWFWWnZ2UlpJUzluZFF0TEtn?oc=5) |
 | MCO expecting over four-hour flight delays on Thursday due to staffing issues, FAA says - WESH | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQTzg5bk9heXNnWmoyUEtTVGxOMWtTSUlyZmFtN1hJYy1UTXhFb0ttcDlaZm5HSDBOeFFlNFBBOVNlY2s4OVJpZmJ6TF8ybURfX1ZOV3I4QVg4V3lNYmV3TDNKLUlqTnBpc2Nxd09PVEVKMng2d1VJeXFkSFd3enBzQ3FxVXBpRlNGY1V1cFJERVVfelZkdWxfcg?oc=5) |
 | Zohran Mamdani and Democratic Socialists prepare for complicated partnership - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOckZUWnZpa0UtbHJSZWtQdFk2SkxGT0JDM3duM2dPek9jbHFPaVNPa1d0aUZmTFBMbWY0N3dGWUp2Y2dZQTJWS1BZM3BLeElHaHhGLXBlQ1ZXRkIzY1RjMEg3ZG5sNHlpa2FCampwM2NkSGg4ZGZaTmF5YW5wc1Q3Q2hEWWpkRUZiV016Yg?oc=5) |
-| An animal rights activist said she ‘rescued’ chickens. A jury convicted her of conspiracy - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQZTRDUkZpaTRuNzJnLUY1Rk9nTHh5b3NfX1daa2Q2Z3lxci1jY0hCRThrbXhfT25qNVY1N1lwV2U0Z1dLbHVIWkxDS1VlcDlaV1ZmR0F1MzJ3cmZka3JaUmhraC1CNVZiNFpFdzhGRXA4QVM2aTA5OU1pcmZGd3RxWVFlT0pTNy1lOE1iX2VZMElERWI3Q2NvM3NfMmd2MjZVUUF4cjNlTEVpRWd0?oc=5) |
+| The federal government is still shut down. Here's what that means across the country - NPR | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBSQXFJVk40UHRDaF9UbDZ4SzQ5NExDbnJEb1h5bXBGRXd3UEZBTTJmenFuMVRTR2JPOU9PRk9xcDVXNGZCNjVmWldtSE9lbGFrRzJFZWxXdVBjMkJUWE9udlo4NVJpR0JiNVhQUTZPblNmQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
