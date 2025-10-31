@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 10:00:59（北京时间）**
+🕒 更新时间：**2025年10月31日 10:08:39（北京时间）**
 
 ---
 
@@ -27,11 +27,11 @@
 | Judge says she’ll likely order Trump administration to send SNAP funds to states - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQWjRyNWRIaHdmb1lnSno3NHI2NW5FZ1lNTjktaWVFTVhRd2hZUnItZUZTLTMtbWpWMW8xNXVlb0dRRW9MOWVvOU9jRURFV2NiREV6eDF6OENqSHZleFBteWxkazFrbUZfeThWTWxvR21KeW9LNlZrOFRPT010ajVOZzB3bXdjanlGbmc?oc=5) |
 | Before and after: Satellite images reveal hurricane devastation in Jamaica - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9ROEt4M0dIV1dCb1N4M2tfOFo4MXJ3Vy1XemJMMGI3bUEwb1E5b2RPZGNicnNtRHd2N25yNFFja1BjVElEOUNhLWUtMUhkRjZKZWFKazRaeXp5d9IBX0FVX3lxTFB1QlhLalAxSlpQWEREOExMRU5mUVpIM01yaXFySUJ5Z2hXdGg4UC1NTDc0NXV2Wk5GNTZJQVFJOVMzWUFlcHZaRGlCVjhrY3pKT25xazlJZktTQllpVmdv?oc=5) |
 | Trump sets lowest-ever refugee cap. See how other presidents compare. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPVzBONDdMamtrQml0XzFGR0lkRkRwTG1jN044Wm9Bd1NhLXFVeUwxbDIweU11anFWc2JxdHAwUklCVnZXODRZV1ZuSEdsWjJTRVBZd290SDhtMVJmMWE1X2JfcTMySG1KanRqNUFGbDJNWFpHeGwzbTZDd0pmVkhIcWplVVNNcGxWTVVUN1dB?oc=5) |
-| China emerges as US ‘peer rival’ at Xi-Trump summit - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1mVVV1aUtBU2Z3SGZtNWJhbFRocDVxV0ttVF83eDZzdkF4V3pHZ2J6S1VrNXZCMmw2enJGaWNMSk5CNFh5OWQ5cEVUb0lZcTQ5aklUWGEyazY4UWgyNWNUeEpkaVJteXF3TDE3S2YyaEg?oc=5) |
 | MCO expecting over four-hour flight delays on Thursday due to staffing issues, FAA says - WESH | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQTzg5bk9heXNnWmoyUEtTVGxOMWtTSUlyZmFtN1hJYy1UTXhFb0ttcDlaZm5HSDBOeFFlNFBBOVNlY2s4OVJpZmJ6TF8ybURfX1ZOV3I4QVg4V3lNYmV3TDNKLUlqTnBpc2Nxd09PVEVKMng2d1VJeXFkSFd3enBzQ3FxVXBpRlNGY1V1cFJERVVfelZkdWxfcg?oc=5) |
+| China emerges as US ‘peer rival’ at Xi-Trump summit - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1mVVV1aUtBU2Z3SGZtNWJhbFRocDVxV0ttVF83eDZzdkF4V3pHZ2J6S1VrNXZCMmw2enJGaWNMSk5CNFh5OWQ5cEVUb0lZcTQ5aklUWGEyazY4UWgyNWNUeEpkaVJteXF3TDE3S2YyaEg?oc=5) |
 | Trump Returns to White House in Time to Greet Trick-or-Treaters - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPSGk1QWhDOV9jeXdjN2YyeHBPTV84ZXktal9YR2p5bElsQl9rOGRZOG1HYUxkNk9Pby1zQVNSSzlGXzhtYmpqaTR1Zll2UVdaM1BKR2tWWU9BcmtaLUs0bWNYLS1CV0FQaEw1S0k4UDJUeG1UODhvcDFVWnZuMWFWWnZ2UlpJUzluZFF0TEtn?oc=5) |
-| Zohran Mamdani and Democratic Socialists prepare for complicated partnership - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOckZUWnZpa0UtbHJSZWtQdFk2SkxGT0JDM3duM2dPek9jbHFPaVNPa1d0aUZmTFBMbWY0N3dGWUp2Y2dZQTJWS1BZM3BLeElHaHhGLXBlQ1ZXRkIzY1RjMEg3ZG5sNHlpa2FCampwM2NkSGg4ZGZaTmF5YW5wc1Q3Q2hEWWpkRUZiV016Yg?oc=5) |
 | Judge sentences former Jan. 6 defendant for hoax threat near Obama's home - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQV0pLaEJaV2cwNDZweTFDYVU0cW5UX3ZFYjdWU09jd2tlN1lWZmJteEFNV2llZUJjT0wyTm4talZLQVRIVXMyWmJhMWJ1X2JOWmFHM0pFZDdxcVp2QTN3ME5NVVdIVnloMW9OR1ZuSU93X3VkSjlERm5jOGd0N05YaTZZcGlfZDNrVFhNYw?oc=5) |
+| Zohran Mamdani and Democratic Socialists prepare for complicated partnership - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOckZUWnZpa0UtbHJSZWtQdFk2SkxGT0JDM3duM2dPek9jbHFPaVNPa1d0aUZmTFBMbWY0N3dGWUp2Y2dZQTJWS1BZM3BLeElHaHhGLXBlQ1ZXRkIzY1RjMEg3ZG5sNHlpa2FCampwM2NkSGg4ZGZaTmF5YW5wc1Q3Q2hEWWpkRUZiV016Yg?oc=5) |
 | An animal rights activist said she ‘rescued’ chickens. A jury convicted her of conspiracy - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQZTRDUkZpaTRuNzJnLUY1Rk9nTHh5b3NfX1daa2Q2Z3lxci1jY0hCRThrbXhfT25qNVY1N1lwV2U0Z1dLbHVIWkxDS1VlcDlaV1ZmR0F1MzJ3cmZka3JaUmhraC1CNVZiNFpFdzhGRXA4QVM2aTA5OU1pcmZGd3RxWVFlT0pTNy1lOE1iX2VZMElERWI3Q2NvM3NfMmd2MjZVUUF4cjNlTEVpRWd0?oc=5) |
 
 ---
