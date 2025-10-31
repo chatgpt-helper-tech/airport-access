@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 06:56:16（北京时间）**
+🕒 更新时间：**2025年11月01日 07:00:54（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump Administration Ordered to Pay for SNAP Benefits Amid Shutdown: Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE8tRUFsakxRdUtPM0RxamNmcjhjbloxc3QtbW4wZDl3VXE3NUpsN3VqSnNhUUI1MXVObERSamFFZFZPN0FIejY2WWtCak8tNTZ1LWJCejdMQ2V3b00tWng0d1ZTQQ?oc=5) |
-| Republicans quickly push back on Trump’s call to nix filibuster - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQNWRRRjZxdmVMOXpZR0U5Mk43T04tQ0lQNzJrdFMwemhpLThKTDVnNXhONFkyS29UaFVZdlRGV242UFNSUnhybnZtNGNuVUVHQzV3YUVfY2ROekRVVWl0OGZCdGEyZFBuckxtb0s1TUx0RjNnUTg2RktBV3VvbXIwM3lJMGVFVkd6Z0phS2xxT2I?oc=5) |
 | In One Jamaican Town, Hurricane Melissa Left Behind Floodwaters and Dead Livestock - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQaUs0bmNXeFFZTGJtRTAzaEZpdm1TM0NFSTNmNVBaVF95RTJiUlQxUTJTNFpOam9RMXhoU28tVUNUQ1BfRUwxQXpwUGJYZUJITHFMSWN3clBsNEczVmJpTTRaVW1uYl9MZXFob3hIOERlTkdVX3NSS19DMGwwY0RvRmFyR2xmZXJZdGpoOVhBb3NvMzA?oc=5) |
+| Republicans quickly push back on Trump’s call to nix filibuster - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQNWRRRjZxdmVMOXpZR0U5Mk43T04tQ0lQNzJrdFMwemhpLThKTDVnNXhONFkyS29UaFVZdlRGV242UFNSUnhybnZtNGNuVUVHQzV3YUVfY2ROekRVVWl0OGZCdGEyZFBuckxtb0s1TUx0RjNnUTg2RktBV3VvbXIwM3lJMGVFVkd6Z0phS2xxT2I?oc=5) |
 | Kash Patel says FBI thwarted alleged ‘terrorist attack’ in Michigan - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOYmVTSTE0VzcxeG1wSU5TbDNLa21Rb25IcDgzUVZJVkpXTUZWQnUzZ3IyRVBqeWRmZmpFRkoyeXdDRUlBcTZyTTRIMTRtT2VDSlhJeDFhTEpCNTNNMTJOd2NzdDNqa1V3Mm4zdXBLVFozMlpXSWRaNEhhN0ZaN3pmRmZKUTNRcnJCTWZlQnRVOUllWEZYaEs3TXVTV19CUnlLVWxCMDd6QVBKVjDSAbABQVVfeXFMUHpJV3NoTTJQVm5jdmhBNXpyYndUay1UMXFTSE5LTS1QUjZQZmZBN3ppMHAwMkNLVmwzMmE2M2Izak1CeG00Y01fRDhJNm95dzdoTDkyV05LZnFkNnIxTEdKQzBlTW1rSXNzTElUcEhjQ2Z4YzQ2SXlWTm9VN2FGZTUydThNU1h0SkR2ckMwdEdzcGZ2Q25GU0hKWkNWS1BPdU1FX2JjZ0lwYjgydzZtX3g?oc=5) |
 | Trump Denies Reports That He’s Planning Strikes on Venezuela - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxORlhTWW9FekpaLVJvZXNQUFFwb2lSekFWSWdWc19HYndiTjJ1MG5aZURrdktaM1NGNG16SG9IRGlpenExcG1tNWtKaDA5VmItUEVzSjJiLVdGekd5VExJdmI4UDFzVGMtdzBRaUMxMEdCTy1mZEpPMjVLSDJrRXBua1kzVVdJNVFpYWZabkxPU1pxNkxyOWpvNzNzakxYeGVFWTNfdWE2clFuZGti?oc=5) |
 | South Africa hits back at US plan to favour white Afrikaner 'refugees' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE84ajFfM213NXlXZVVSZ2RpUzJkUHJnWEVpS1BJQmFGRzI5YnlsejhrVWtnWjZSMDhQbVVPTGlhSnAtWEY3dmFuMUZqNE9EN2ZNMmdTZWdKdDVLUdIBX0FVX3lxTE9FUUNycG9KeDFRcFhob3VCbmQtcUJWR0hYRUJMMDZwOGFFWnlCRXpaU3hONkZ1QUMwR3F0ZXhpb1BvXzJKVWZoa0RTMnlBcEJIdUpzSEVHNGpiYW1YVVVv?oc=5) |
