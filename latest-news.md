@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 05:57:32（北京时间）**
+🕒 更新时间：**2025年11月01日 06:00:08（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| US judge blocks Trump administration from halting Snap benefits - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBxX25wMUxHS3lrYklPeWU3MVhYcHpVUnFsOWJLUmpOVlFoazZNMXBOX1hCTkNCblJTSjMxemhpV1F3UVFEcE5wcV9xMVMxWllmQ25qQmtoR1Zqd9IBX0FVX3lxTE1LamNpVVM3MnRpcTJXc0k4bWpCSFpGQWJLeVVjTUltWVpncjllSG1ZNDVUWEFuTERZZDRtdzdlMnd6d0F2ZlBqaVcwYTR2UW9BY0h0TjhGc2E5REl1M1hv?oc=5) |
+| US judges say Trump administration must keep paying Snap food benefits during US shutdown - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBxX25wMUxHS3lrYklPeWU3MVhYcHpVUnFsOWJLUmpOVlFoazZNMXBOX1hCTkNCblJTSjMxemhpV1F3UVFEcE5wcV9xMVMxWllmQ25qQmtoR1Zqd9IBX0FVX3lxTE1LamNpVVM3MnRpcTJXc0k4bWpCSFpGQWJLeVVjTUltWVpncjllSG1ZNDVUWEFuTERZZDRtdzdlMnd6d0F2ZlBqaVcwYTR2UW9BY0h0TjhGc2E5REl1M1hv?oc=5) |
+| In One Jamaican Town, Hurricane Melissa Left Behind Floodwaters and Dead Livestock - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQaUs0bmNXeFFZTGJtRTAzaEZpdm1TM0NFSTNmNVBaVF95RTJiUlQxUTJTNFpOam9RMXhoU28tVUNUQ1BfRUwxQXpwUGJYZUJITHFMSWN3clBsNEczVmJpTTRaVW1uYl9MZXFob3hIOERlTkdVX3NSS19DMGwwY0RvRmFyR2xmZXJZdGpoOVhBb3NvMzA?oc=5) |
 | Kash Patel says FBI thwarted alleged ‘terrorist attack’ in Michigan - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOYmVTSTE0VzcxeG1wSU5TbDNLa21Rb25IcDgzUVZJVkpXTUZWQnUzZ3IyRVBqeWRmZmpFRkoyeXdDRUlBcTZyTTRIMTRtT2VDSlhJeDFhTEpCNTNNMTJOd2NzdDNqa1V3Mm4zdXBLVFozMlpXSWRaNEhhN0ZaN3pmRmZKUTNRcnJCTWZlQnRVOUllWEZYaEs3TXVTV19CUnlLVWxCMDd6QVBKVjDSAbABQVVfeXFMUHpJV3NoTTJQVm5jdmhBNXpyYndUay1UMXFTSE5LTS1QUjZQZmZBN3ppMHAwMkNLVmwzMmE2M2Izak1CeG00Y01fRDhJNm95dzdoTDkyV05LZnFkNnIxTEdKQzBlTW1rSXNzTElUcEhjQ2Z4YzQ2SXlWTm9VN2FGZTUydThNU1h0SkR2ckMwdEdzcGZ2Q25GU0hKWkNWS1BPdU1FX2JjZ0lwYjgydzZtX3g?oc=5) |
 | Trump says he is not considering strikes within Venezuela - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQQzlBYmxUdl9PTThXVXJXZHBLMWtObkc2ZlRWeWloLUliQ3lQM2E3TjVydUx2ZW02dnhQY1lobWlCcE5FY2JScVpEbGphU0Z1YlUyMzNzMUhNelM4UmNYbnpHcGdpdXRWb2JEVHkzNEw0RVJZM1E5TGpqTEQwUWs2Z0tRNWF2X2syZ1RmYTNWeGpuNnZFbjZ2d0MyaGpGRmxDWk1GcjRnbzFrc2Vj?oc=5) |
-| Hurricane Melissa death toll surpasses 50, mostly in Jamaica and Haiti, as focus turns to recovery - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOSHRNMEdnc3ByVWE0VWRkREIwYzZkSldNNm0zdXF1d0swMVNTbW5nNS1HUjdqVTRXZ3A2aDkzUi1Cb3BfaWk5bU1jNWpXY1BvUnE0UHR4aTlPZlZ2OG1YMnBRVVY2ck14XzN0TjV1LXc3bDBwXzhQbGd4b2dZTTR5ZVVUX1p0NUtfN3pkeVhzb1Y4Z2tVdnRzMzVSWTnSAaIBQVVfeXFMTjA5VkpfYjI4U0FxWmhZaGdONnRqT1duZHNMeUxxbmoyY1pBeDlaTlAzV2ZRc2FuV3lMb0JMUnZrR3VCZmxkWEtUT29DalQ1SHZaZEx4dUhYN3gyQnRDX09wY2d3bkZhTHhwbGhSSnZnTEdydFVMNEpvcXdYY2M5WE1jMWxRV2N6WTNJRF9DOER4dUFPN0NoVDRhQTZjVDR3eG53?oc=5) |
 | Pentagon shifts to Pacific strikes seeking stronger link between targets and US drug trafficking - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNS0F3Z09hSTFhQUN5WHJ1SzhpRzQ5QWk5cy1TMjRXR2lEWkdIcmxFVlZ1Vm5kcVRlODhaTW43T0JzYWcyUXZ5TzRMSGdVOUJ4YjBpQkppWXJDX09jVThtTGVOT3BSQWkwQUpLUlFDczFZNC1TR0tUc3pBLUtfRW1SUUdQRmQ0aEtJ?oc=5) |
 | South Africa hits back at US plan to favour white Afrikaner 'refugees' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE84ajFfM213NXlXZVVSZ2RpUzJkUHJnWEVpS1BJQmFGRzI5YnlsejhrVWtnWjZSMDhQbVVPTGlhSnAtWEY3dmFuMUZqNE9EN2ZNMmdTZWdKdDVLUdIBX0FVX3lxTE9FUUNycG9KeDFRcFhob3VCbmQtcUJWR0hYRUJMMDZwOGFFWnlCRXpaU3hONkZ1QUMwR3F0ZXhpb1BvXzJKVWZoa0RTMnlBcEJIdUpzSEVHNGpiYW1YVVVv?oc=5) |
 | Health insurance premiums for 1.7 million Californians on Obamacare will soar as federal subsidies end - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMi6AFBVV95cUxNTWRfdk9nSzZzTXRvYV9OWnRzRWx3T2R6RHdoMXYycTctQTQ4RXU4NmI3Z3R6SWlMVDdQM1diTk54ZDRQalZabkZYaHpHbU1mTE1kRWRqc01lRUxsWi13MFp2Wmxic3N6aUo4U042Zk5GcF9uR1pfU29LVUw4MHB6UEFCdVJnTWlTY3NhbG93THBxUnU1RV9ZTWZZbXk0amRjYzQ3Z0RHbXZUZDY3UzhrSDVtb2Z0eEFrd0xydUZnTW5taFNzaXd4QU12U1FXQU93eEhkUUZkQ2NnT0o5OG5tei1WZHNIT0dQ?oc=5) |
