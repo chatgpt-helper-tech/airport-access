@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 08:25:12（北京时间）**
+🕒 更新时间：**2025年10月31日 08:32:40（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| What does Trump mean by 'nuclear testing?' - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1WYmNsVUhOWnFTeWZRcXN3MG52LW1oM0tQZDVkSC0xRzZGc1pTVkYtbnZ4NmZYWjdYUnE3aWo5UzJZTExOLVdiRFczelZ5Y3ZjUkRXNEkyTzRIcGpPSnRSYUFRdzloSWlwR0lneG15bHA4WnI1VGRyM1BfZ3nSAYIBQVVfeXFMTVMzamhZcDNEUlh4UUM0a2hfVlB0VS1RbS1TektHUExSSVZTUEdXS0xoMUFXb1U5Nl9kcDVDdmpJR0FEeW9GLWgzUEVwM0tYMlNLZVF3UHE5RDlMcmZfcnR5S0VUbnotaVBray1qcmp0REkyTE1WVTBNMjVYUUY1TVFIUQ?oc=5) |
 | Judge says she’ll likely order Trump administration to send SNAP funds to states - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQWjRyNWRIaHdmb1lnSno3NHI2NW5FZ1lNTjktaWVFTVhRd2hZUnItZUZTLTMtbWpWMW8xNXVlb0dRRW9MOWVvOU9jRURFV2NiREV6eDF6OENqSHZleFBteWxkazFrbUZfeThWTWxvR21KeW9LNlZrOFRPT010ajVOZzB3bXdjanlGbmc?oc=5) |
+| What does Trump mean by 'nuclear testing?' - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1WYmNsVUhOWnFTeWZRcXN3MG52LW1oM0tQZDVkSC0xRzZGc1pTVkYtbnZ4NmZYWjdYUnE3aWo5UzJZTExOLVdiRFczelZ5Y3ZjUkRXNEkyTzRIcGpPSnRSYUFRdzloSWlwR0lneG15bHA4WnI1VGRyM1BfZ3nSAYIBQVVfeXFMTVMzamhZcDNEUlh4UUM0a2hfVlB0VS1RbS1TektHUExSSVZTUEdXS0xoMUFXb1U5Nl9kcDVDdmpJR0FEeW9GLWgzUEVwM0tYMlNLZVF3UHE5RDlMcmZfcnR5S0VUbnotaVBray1qcmp0REkyTE1WVTBNMjVYUUY1TVFIUQ?oc=5) |
 | Live updates: Trump administration limits refugee admissions to mostly white South Africans - AP News | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTE9ibnF2U0EtWXVYbm11akY5ZFJOT1JXRk9TMFhoa2ZDbVd4dGYydURzOVIxLVBCT2ZFZUt5OTVKZ3JVdVBEOW8ycjAxclUwMng0OVByWlNaNWRwc3ZlNGF4SjhMTXBaSElkcTE3Tg?oc=5) |
 | Before and after: Satellite images reveal hurricane devastation in Jamaica - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9ROEt4M0dIV1dCb1N4M2tfOFo4MXJ3Vy1XemJMMGI3bUEwb1E5b2RPZGNicnNtRHd2N25yNFFja1BjVElEOUNhLWUtMUhkRjZKZWFKazRaeXp5d9IBX0FVX3lxTFB1QlhLalAxSlpQWEREOExMRU5mUVpIM01yaXFySUJ5Z2hXdGg4UC1NTDc0NXV2Wk5GNTZJQVFJOVMzWUFlcHZaRGlCVjhrY3pKT25xazlJZktTQllpVmdv?oc=5) |
 | Trump goes back to the future with China deal - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE9ZNF9LZlpGVDdNSEhxRlNzZ0tHbU1IcVpJZFNSZlM1QWpuaXhsVkpfc0FNVFRsUWFpdy1yNWhGRjlzVXlOXzk4MjFLZUh6aWY3eDU0TGs4R2pHY3Q1U1FlbDdQdUctWGU3cnc?oc=5) |
