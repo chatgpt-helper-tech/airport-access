@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 01:32:45（北京时间）**
+🕒 更新时间：**2025年11月01日 01:41:05（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump muddles nuke-testing message - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxQUXdmdEszNlExZnFpeUhKdWNHSzhkQl9iZVhhOEJXQWpDTjZITUtJeTZFZkhhZ1I3R2t2SjZVaU5nQkJtWHZuZkU5cldiVy1BaXJ6V2VwZEpwd09yT2dld2Vta2xKa3dxYzQ5Qk1zTVp4TTV4NjlGWXdsb1ZwczBfTQ?oc=5) |
 | Dutch centrist Rob Jetten claims victory over Wilders in neck-and-neck election race - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9KclU5YWN4X3lMUUVuS0JuR2FvanZTUndjY1BrM19WVFJCcFl2TEkwUDFxbUNYQ0ZSNnc2Yi1MVEZIUk9rYlJ1YklJTWV1RjIxVGxPVnA5SlpmUdIBX0FVX3lxTE5CWVM1UjdjdXJSanVQT09GcHJ4ZFJjazZtS3JkdEQ3WUlZNW1rTnZxNDhodURUMHl0d2RwRkxwdV9QX0lGRkVmVmU2SXBfWEtLc3cta2QybmlYWldIU080?oc=5) |
 | ‘I feel guilty eating a meal’: Low-income families prepare to lose access to billions in federal aid - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOSFN0S2FwOGpsSzB1RjlIWTVLRFpvNVhGWGsxMkhkelRXRVQzeDZXNGFuVERlYVEzUjBhVHZaanFzMWNrTi1oZXZudlFjb2NnZEhyTGxxVFhVRk1iVDFFaml0M1lQTzQ0SUFmdXgzc2luR2o4UFZTcW9CV3ZtbWF2Z29xRG51MS1OTGVkcXo0VnllRXc?oc=5) |
-| Ohio lawmakers pass new congressional map after reaching an unexpected deal - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQVnZLMzJxS0c2RmhwTWdjYzY4MER2SWVvejI4MlJIMko3OG50N3hhNWZKY0Q2SGN1cUhlZUI0a1NONkxyaUNoeEhmcDZlOE1BTFlaT29qSWtjU0ZXMlludUJjQzlJNGRtRHBPSnVxckZBRUJJQzVodGg5UEZGT1prdTRPMGRNbnVUMXNkV0phQ3ZTcExkRE5uWUZqdC1mVHI0b2V5M1RVbzk2d9IBVkFVX3lxTFBPWkZZd2pMSndqUWt1bGZTOXRnVnFxNWUtYXFOS1l1MGRoME5rZDNVRGVrUWhXdDk0VGU4NUJpdWl1VkU5a1o3bTBEYzQ1c2FsQmFDdWlR?oc=5) |
 | Advocates allege ‘inhumane’ conditions at Chicago-area ICE facility in new lawsuit - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOV0ExUkdCMm0yd1k5MlpFTTFibFVpT0RBanF2TnhnX2t5NjhTSEg0NmN1aWZZX2JkenBXRlZaUEpxc21GNV9hU3BheWt2eTZlYldNcWY2djVEUVZCQTlsY0kwWklPY0RubFdOQmMyZHNNLVNQcHo1Z0JOSkgwQVZjVGhRYVVqeHNHRHRTX2xmNm0tcVlVTnNCTjFnRG9FT0VKQWNB?oc=5) |
-| Graham Platner’s finance director resigns, citing differences in ‘professional standards’ - The Portland Press Herald | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOVDU4eXpTa290ZExWVHR0eVhicVhjRTc1cFU3Tlk2ZURuMG1tQUpmZlh4R09xT2pLMEhjQ0JLYnljb0x2RC1uUTNPSC1zT1dROFNDOEhGT3J1MUtEY1JlSEhsdWI5aEJFTmRETnRxWXctNTRQTTFUTFNnLWlvT1V1WENTMHdWOWtDTGpabDdRbGRhLUs2Ml9BalNRLUhzVEVLd2haYVhMM0ZtUnFPdnMzcXJNcDZTU0lwNVAtY0tJNXRMTmM?oc=5) |
-| Teacher shot by 6-year-old student: ‘I thought I had died’ - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNU2ZJVVA5dFhqUXlfZVEwY1c3aVYtVW1EejZTM1BJZnYtNkZoN05pVkZmemMweXFiUzBSaEFjRG9vanJRSjJadHc1NWFFRnNTdml6QmJpenE1dDhQMUpKOUNUVXdsUUxCb1VqOV9qNGNUTGR2TEtRdlgtVkVSbEJILWpTQ2Z1RzNQZ3YtQVZ0MThrdnRNTU1zb1dkVFlsYS03Z1ZsRzNB?oc=5) |
+| Graham Platner’s finance director resigns in latest personnel shakeup - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNU3NDLVcwdWIwM2s2UXViZGtJTnR4NWp2a2dQQVNwQ0FRcGQtWEhqXzhMZDB5Q2JkRzJ4UVpKR1NsOTVlZXhHOGJwQ1FLT1cwLW5VQWNvb1ZvcnJOWWVwclVCMVdENEtobm4zTE5yQklQRzRrOGJuOWxvNGdaOUdKRnFtNjFpQUg5bmtzUENVWjdtRk9Z?oc=5) |
+| Ohio lawmakers pass new congressional map after reaching an unexpected deal - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQVnZLMzJxS0c2RmhwTWdjYzY4MER2SWVvejI4MlJIMko3OG50N3hhNWZKY0Q2SGN1cUhlZUI0a1NONkxyaUNoeEhmcDZlOE1BTFlaT29qSWtjU0ZXMlludUJjQzlJNGRtRHBPSnVxckZBRUJJQzVodGg5UEZGT1prdTRPMGRNbnVUMXNkV0phQ3ZTcExkRE5uWUZqdC1mVHI0b2V5M1RVbzk2d9IBVkFVX3lxTFBPWkZZd2pMSndqUWt1bGZTOXRnVnFxNWUtYXFOS1l1MGRoME5rZDNVRGVrUWhXdDk0VGU4NUJpdWl1VkU5a1o3bTBEYzQ1c2FsQmFDdWlR?oc=5) |
+| Deadly storm shatters NYC rainfall records. Central Park sees highest total in more than 100 years - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE4yOFF2d3FsLTFsREY1Q1QwaXd6YWpQal9BZlNKYWpaZUw4Tm90dTdpX2xMSEhIV0xENnpQN2lLNi11QW12d3c3dlFTelQ5aDFuZ042U21yTWpPbGhEN01iLW13SDk2d3Z2YVIxMl9tLUFLUDVpVkFhSGdTTFFuUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
