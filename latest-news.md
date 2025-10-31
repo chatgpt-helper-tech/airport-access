@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年10月31日 08:41:38（北京时间）**
+🕒 更新时间：**2025年10月31日 08:48:35（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Trump sets 7,500 annual limit for refugees entering US. It’ll be mostly white South Africans - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPU2I3TXgyOHNxVl95X0lxdUhMUHpVaWxCcWFidnNoSjJjYWphZjN2NWZSTkxCcGozVXhFNUJkZ3B6YXBQLVFWcU5SNG84YVZ0aWo2endYb216SXdQV1JmcUJWS1ljZ3V2LVhnR0FOM2l5aGZ0MU5pWEtiY3NBZ214bHBKak5abS1zU1RnTjA4aE5nb090a3d5eERuWkJYTnJUUjRUc0Z2ZGRJMkZOSWxWNURYc1k4YWs?oc=5) |
 | US Senate votes to reject Trump’s global tariffs on more than 100 countries - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1qckNIUWdtNnVhazREOXZlSFAyZ1dyTDRWRWxJZmNxMFh1WDdjSjhCMi11Z2ZrR2dGQmRLTUxaUDVwa3FxUnBFTG9reDNCSHhYZGJ4WHk0aW9hUk5UMlpqekhWckdtcEhJSGpKMlRTWnpMN2d0X3ZLLVJhTzg1Zw?oc=5) |
 | Democrats leave classified briefing on US military strikes unsatisfied after Trump administration pulls Pentagon lawyers - CNN | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxQSktBd2d0V2pIWjhhWER0SnAyNjFPTVhBZTlpSVRYcWRxX1I0a3RkWTlPb3dtaDZtVmRTUVpxNTlZZUJaRHpMTTh5OF9tbXdVOFZfUURxZWtXMTNiQi1SVTNIdF9wQjA2RS1ucUhLaTZKVGxucEx2Qnp4dTN3YXRwSkwtcFhIYjNfb3BTQjB4aVVEV1M4Skx3SUl6MmRmTFIzTmZTZXAzcmNWNHc4dVVBdUFIOW9ZUzdNTXg4MmJzZTU5aGlSYnZxN1JSdThZZUtReElGQnd3?oc=5) |
-| Before and after: Satellite images reveal hurricane devastation in Jamaica - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9ROEt4M0dIV1dCb1N4M2tfOFo4MXJ3Vy1XemJMMGI3bUEwb1E5b2RPZGNicnNtRHd2N25yNFFja1BjVElEOUNhLWUtMUhkRjZKZWFKazRaeXp5d9IBX0FVX3lxTFB1QlhLalAxSlpQWEREOExMRU5mUVpIM01yaXFySUJ5Z2hXdGg4UC1NTDc0NXV2Wk5GNTZJQVFJOVMzWUFlcHZaRGlCVjhrY3pKT25xazlJZktTQllpVmdv?oc=5) |
+| Trump goes back to the future with China deal - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE9ZNF9LZlpGVDdNSEhxRlNzZ0tHbU1IcVpJZFNSZlM1QWpuaXhsVkpfc0FNVFRsUWFpdy1yNWhGRjlzVXlOXzk4MjFLZUh6aWY3eDU0TGs4R2pHY3Q1U1FlbDdQdUctWGU3cnc?oc=5) |
 | Judge sentences former Jan. 6 defendant for hoax threat near Obama's home - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQV0pLaEJaV2cwNDZweTFDYVU0cW5UX3ZFYjdWU09jd2tlN1lWZmJteEFNV2llZUJjT0wyTm4talZLQVRIVXMyWmJhMWJ1X2JOWmFHM0pFZDdxcVp2QTN3ME5NVVdIVnloMW9OR1ZuSU93X3VkSjlERm5jOGd0N05YaTZZcGlfZDNrVFhNYw?oc=5) |
 | Zohran Mamdani and Democratic Socialists prepare for complicated partnership - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOckZUWnZpa0UtbHJSZWtQdFk2SkxGT0JDM3duM2dPek9jbHFPaVNPa1d0aUZmTFBMbWY0N3dGWUp2Y2dZQTJWS1BZM3BLeElHaHhGLXBlQ1ZXRkIzY1RjMEg3ZG5sNHlpa2FCampwM2NkSGg4ZGZaTmF5YW5wc1Q3Q2hEWWpkRUZiV016Yg?oc=5) |
-| Teacher suing for $40 million after being shot by her 6-year-old student testifies in civil trial - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQUm9WVWJXalBZZlQ3VjdMdDJFYXBoVkZSZVlvcGJsa3IySlIzeGlUMGpVZmtUaHd6bHR2aG5zbElBcjVNbkdnaGJ3SlhpaGI0TFU3Yl9xNFZxYUlVTFVjbnVEeVNLdmNWWGlNd0dvNWljSUxPeW5fQjBNa3VEYVRGOFBJcWo3Tk80bHFwNHptQWfSAZYBQVVfeXFMUEl0Rm9xUFM4WjQ4Skk5OG02OTRrMlF2Tmo5OEZvdG53OFBzbVZ4Z1lWbDlQMWZPSFlFdW5YcXVwRG9XZjRoYzlaZHhKbnJldlVHTlhXektzbWlIMnhxV2syT1phMkhqdVNKX1Z4eEZKRTJyWktrNkhsRVdFX3ZmTC13U0JhSGx5NXhKdzBkeDQ0UHVWd3Vn?oc=5) |
 | An animal rights activist said she ‘rescued’ chickens. A jury convicted her of conspiracy - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQZTRDUkZpaTRuNzJnLUY1Rk9nTHh5b3NfX1daa2Q2Z3lxci1jY0hCRThrbXhfT25qNVY1N1lwV2U0Z1dLbHVIWkxDS1VlcDlaV1ZmR0F1MzJ3cmZka3JaUmhraC1CNVZiNFpFdzhGRXA4QVM2aTA5OU1pcmZGd3RxWVFlT0pTNy1lOE1iX2VZMElERWI3Q2NvM3NfMmd2MjZVUUF4cjNlTEVpRWd0?oc=5) |
+| Abby Zwerner, teacher shot by 6-year-old student at school, testifies about shooting: "I thought I had died" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPTUFkQW1YdXN3YWI2cVZvT0Ria3F6UC1nZkRCcXF0SnllWHBMbS0wRmpRNkRRQlNmSWlnYVlyRy15MGVOY3BydmdLQTZ5MHdEeXRqZ25SMjJYVXhyTWR6eHhZYTJ2dmU4MWJYcWR0MmZCR0d0YTZWcUZ6M3BSRmpPTzBtZ01wdWlOY1dYLUIzYnpKaXdGTzVR0gGcAUFVX3lxTE9wenBPYVhUMkNneEFPMnozTjVBZ3NvWDFVT2JhUkwzdVc3WVhDdWhlSC15Z1dieHViUW1HNmZjM1N0WEhxbzF0elJydFRqd0hUYlgtNElqUTJUajhld0x4enprVmM0TTZ1OTJiWHAwaFJIVkNWckhUYy0ydHhGVHFVVzBmN0txSjJfQUVyQlA5SWhoZEVROVJ4WUVyRQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
