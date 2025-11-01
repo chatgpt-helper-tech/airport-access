@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 08:24:40（北京时间）**
+🕒 更新时间：**2025年11月01日 08:33:38（北京时间）**
 
 ---
 
@@ -12,9 +12,9 @@
 | Why Sarah Ferguson, Beatrice and Eugenie can't escape the taint of family scandal | [阅读全文](https://www.bbc.com/news/articles/cy8vrzpgxnro?at_medium=RSS&at_campaign=rss) |
 | Scavenging for food in streets - desperation takes hold in Jamaica after hurricane | [阅读全文](https://www.bbc.com/news/articles/c0jdd186l0go?at_medium=RSS&at_campaign=rss) |
 | Ex-sergeant major jailed for six months for sexual assault of soldier who took her own life | [阅读全文](https://www.bbc.com/news/articles/cvgd1zk5nrgo?at_medium=RSS&at_campaign=rss) |
+| Strictly pros transform into ghouls for Halloween week - and a Celebrity Traitor guest stars | [阅读全文](https://www.bbc.com/news/articles/c2lp72n0p0vo?at_medium=RSS&at_campaign=rss) |
 | Just Stop Oil trio cleared over Stonehenge orange powder protest | [阅读全文](https://www.bbc.com/news/articles/cjekdqj7529o?at_medium=RSS&at_campaign=rss) |
 | Former England goalkeeper Mary Earps announces 'happy' same-sex relationship | [阅读全文](https://www.bbc.com/news/articles/c620lyx5p17o?at_medium=RSS&at_campaign=rss) |
-| French actor Tchéky Karyo, star of Nikita and The Missing, dies at 72 | [阅读全文](https://www.bbc.com/news/articles/cx2dd7yyly9o?at_medium=RSS&at_campaign=rss) |
 | How will Andrew's titles be removed and what happens next? | [阅读全文](https://www.bbc.com/news/articles/c5ylk9r336zo?at_medium=RSS&at_campaign=rss) |
 | The King is expected to fund Andrew's move - but where does he get his money? | [阅读全文](https://www.bbc.com/news/articles/cwy5lzq94gqo?at_medium=RSS&at_campaign=rss) |
 | The houses on the sprawling Sandringham Estate that could become Andrew's next home | [阅读全文](https://www.bbc.com/news/articles/c201zvrpvw9o?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | Virginia Democrats take first step toward redrawing the state's congressional map - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOWXJOUEp4WDdCSktlTmNhMXRsSW4tYThobExzbUdOWVRKd2FMQVR0U1FRdUxycHNmX0RhUUZjWUZlMEE4VGNWY0JZRkV0U29tTUkyeGw4ajUwQzJHaWNLV3BwcExXaDBNY1NOSnk5MG9hMTdLenVLWjRHckotanFVM1NiaTJxLUhfWVVtMHdYVWstTjFGSzI5eWx4TWZoTmhacHJfMlE3LXVBNTBxdzVfcGJULUdlRUxWc0RLWVJpQkLSAVZBVV95cUxNZnNhZUdRYk9Cdl9QQ0l6QmlKUkxEV1pLcGFRWEF6UWlXbFhmR01tSm9kaUlRbWo5VEcxNEltYzZDV3ozbzV0S0p4OGRvaGlHQ1NzWkJNZw?oc=5) |
 | Millions face 'huge sticker shock' when ACA open enrollment starts Nov. 1 - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPRllydE04UHB0QmN4Vk5KOGhobThCQmJLQk0zMnJGeHR2czhoZGEzQ3Y1TnpfNmFibUI3UHRCRDZCckJ5MnNrclc1SjFXVzYzdnNobllFMzhKYmVNVHFUSWdLeVdpVjdKOGtuQUhxSThFSVM4V1Z0WXViZVEwcGpxdFVsUzN6d3p4VGfSAY8BQVVfeXFMT25feEtpcmpxcXZsZE1LcEdpTEQtRVJINFNjejJuY2R5QTljdXBGV2tXZHN4cTdNWHQzNzUtbFRMc1BtSjllYlY1OVZ5eWdTQkgySlFDUHM0MEpxZm9tbmRJTElTZGJJejlxQkdsM1pEQ3VTQ2NQenFYcHlzX2RscThRVk43ckY5NDBjbzRJRFU?oc=5) |
 | Staffing Issues Cause More Air Travel Delays, as Controllers’ Union Backs G.O.P.’s Plan to End Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE9zWHJLVEpyWDFEd3FqcDI1UXI0LUhMQURuN1ZJOGtpNkVwbkJFRkVOZklSTEgtdE9acnd5OC02c0JQTDFCbURnWFdXMUVaN1VJendYRXU1TDhSMDFybGJiYUNzQ2twZVY0YkN2N2ZEX0Vudw?oc=5) |
-| JD Vance defends saying he wants his wife Usha to convert to Christianity - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPYXF0bkxwVllkY1JZa0hnRGFaUVNCRHlzbWRQbk11SkZHOHF5dGZFeUZaUjI2MThuNUQwbWQxRTBJeTZXQ2tITFlQZkhaaWs5REVvUWU2TTZWQU5HdHFlVzVzU1lHajF4czJCZDVMUWUtbWlkdXZtLXpEdmhSQ3VLLV9Qb1NIR19HV2hFaEVpSHJ1UnU2Zzctd256Nzl2dlXSAaQBQVVfeXFMT2FkYXBQcER3MU9Hcy1RVTR1b1lEa2FSNGZGMzVxeE4tNzJhRlBScGxSUFB3SkZHWm9jdm1xNDlQSDlQb29LRHBad3d4TXo2M2k1dS15NmxzekZXS0ZQcDNKVFRVWHo5RjRYM0M3WVhjVmJibnNMTng5R1NXV296VWZRTFFjcll6TW9mVV9PZkF3V0FobHR1cmhHQ0xSdXdVX1dBN20?oc=5) |
+| All the U.S. military strikes against alleged drug boats - PBS | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQdUZETTRzRjhMSlY5a01wTXlqN1RtMG4tMTRQZjNrNnQzNzJBcnEyYTNIUEVIUU12VGprVjliVUVzQ3NaTWtPQ0lWV2dYekFEMTNTNnVPNXRXZUhNc296QUY3R0xtSUp5RFdyalo5QzgtQUVvNGVvc2M4LVN5SXBsTFhBMXdGWXE0TTAzQy1NdWxHc3df0gGaAUFVX3lxTFBLd3M1dV9zdWRDVlRyUFo0c3huTm5xT2ZuZ2xNQ01FNjRGM0d4SmY2US1HclZNbF9ZVDJodWxrZThFLUNDNkRydmpqeVh6SUlFeW1DTUFOaEpjd1ZIeTdjOXY0dFJzUUlWcTFfMlFOdWxqZHhyUWdwTDQ0UWktdEQxelB2M3ZrdXdQdWgwa29INkdnWERobzRxZEE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
