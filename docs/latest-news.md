@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 03:57:15（北京时间）**
+🕒 更新时间：**2025年11月02日 04:00:57（北京时间）**
 
 ---
 
@@ -29,7 +29,7 @@
 | After a month of the shutdown, workers face mounting bills, car repossessions - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOY1NZbUVGcTRMWkRuU29OUlpqcTNKQU5WOVhlZVZjUkoxblF3YnVncll6MGF0OWZxaHFfazBzbzl5SVRZM05WNjJzWU9kNXFwdzdyMTBoR2Z2LUZKZ0JVY2IzcDJJTDdHM0U5M05PTjFVMTFMc2tSaXNCd1J1RlFJeUFjdGdXSFpQT1BJ?oc=5) |
 | What early voting data says about NYC, Virginia and New Jersey elections - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNTWI3UDRITGpFTDl3dGFLZ1pEVlRwd1dMVVo4SThJY09JTDRhQU5FbWNIQm92TU1ZTkJiVm9fUkFaTW41SWt6SWpuZEFLQmdhaHVCZjduUzN4UzdjekFENmVKVnpBM0pXeXdodjluYUFYTy1rNHNnZVZqRS1hSXJpbFhqTUoxdkFnM0lqNlBkUQ?oc=5) |
 | Trump’s Demands Throw Wrench Into Delicate Shutdown Talks - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPQUJVamlBZnpVd1NscnYtRmRrZU1hSExJZDRHUnV0eWg4UzR4a01lMkJEVzBySzJFMVRWUlhaTjRTS05pcVd1Ylc4dmd1V2tqVEZLLXNLWUdZc2VHVU1jdlJCaG84NnVCYkdrTHNxVlFKVEN5eXZfS2JvckhVekRfaGY5YzUtdHFNT3FIZGlLUUJMaUxiak1jbTEwWi1DY1d0RktV?oc=5) |
-| What to Know About the New York City Mayoral Election - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdVZ0MW9FTDJWcG9IVUN6d2dSSUhZbmJ4Wkdmd2dYSmdKaGhMM0pobmF5R3VFUjZoX3BROWRQai1fS2VyNThTQlpFaEVfRmlNaHZmcU9TNEpWWG5NbTg1cUJ4Vm1CMHpuMUVibGdFVXoyMGV2Zkh3Qzd2YVRkN3Qwa25ubEg?oc=5) |
+| New York City Mayor's Race: Live News and Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE91aGJsbjFaMHFuVVVMNldYRk84ZzEwcDBkQ3lISjVZWEZIRy1EV0pXRVVvcG9FbldiRk5YNDktYmwtTldnQ0txaVlxUmJucjFqaVdpZGtlUC1oMmdVUHpsNmFNQ3hKa0xWNUo4YWlfUUJXOFZid2pPR0g2U3E?oc=5) |
 | Maduro braces for a U.S. attack; Venezuelans worry more about dinner - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPRVRiclRtSlRDcllQMzVMQkxCNUdVa0VERHdRbm1KRUFlRmk1MmRLSUZESHVkcFQ4TVJhUGZNZTRnN1VQOWVjelZ5d2hXWmFsLV9uRC0zT255VDl4YUNBa05HVUJ3VzhsenFqRFZhTHUwN0JlckNyT0hubEp5M2pqZWJqX0M0eVk?oc=5) |
 | Air traffic controller shortages cause widespread flight delays amid government shutdown - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPVk9xUFh0RGxvU2dsOTJUdkFtell4LUJ0d25lbi1felIyS05VLTlweGV3SHpsUURwREQ1aFF5d2pJeGNITHBaV1JESHVUSFBCWDhyNkw5VTB4cy1IdkpQU3JVSmtjS3pfS0h4NUw1ZE9IVnVFZ1JqRmUyTzg3UHhuODdRWmg4dVFGeldkcENiM3Z0LWhSbGkzRUlmRnpkZkNiclRjUDZtQklEazRXdE44atIBVkFVX3lxTE5nRnB6MWl3RndTaDNMSUpaSWx2eGJCaDdMMVYyVTRRclRsb29kWVJIcUdZdk9GNmhEdlhhOFR5bk4yN2hvVU5TZmZEbHBvckJWTDJ4MFVB?oc=5) |
 | Trump tells Ilhan Omar to leave the country - Politico | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFA1RGFoNUdGY3hVZDJYcUp0eGQwcnRra3pmcnBJSWpQN0g4Z0tPcl8zVzU2dHY3V2dscTZjT01TQ2VrbzltR3dHUzN4d1BSMUpXRGI4Q3gxM05zc1kzMG1tV0ZBMFY4V3Q4NlhHYm1xS2ZwMkVrUjJUbk9FZHd1dms?oc=5) |
