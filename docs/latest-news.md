@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 22:00:47（北京时间）**
+🕒 更新时间：**2025年11月01日 22:09:01（北京时间）**
 
 ---
 
@@ -26,7 +26,7 @@
 | With the outlook for SNAP benefits uncertain, food banks are warning of a crisis - NPR | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBWaUUxRXJvclVOTUQtVWxOU3ZlbDJKak92YkstblN0MDIxNjlXcFBYN3lNZ2JTLWEwQjFGZVVfS1hiazlWRGpfdFU5MUJFQi1CT3Q5c1dfZFJGUV90d2ZJMlc3MzQ4a243dlNZVVlPOHZoSHo4R1U4UA?oc=5) |
 | Trump faces critical point in government shutdown, SNAP cutoff - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOdkRJYkktMVQydzVFVTc3Z1NGTzI1MGkyM1l3cm9kbllvUmN1ODJ2RVlydEZqX1ExLTRDdGc4Y2lkRFQ0Z0I1QU9HUE5nX1ZIMThXQkd6Q1JyTG40c2V2N0FMTHpXU2g4eVdvYXRTU3NRTWx6TXJBSExzZ3MxU0Q3cjFJd1JFenpDVlIwUmxJYkV0aDFaRm13eHJSNkFxOGVNWVY2RTVTSHBQY2Jyb1HSAbMBQVVfeXFMUFF6Q1ViLVY5ekNjVUt2akNmNlQzZkNCUWxXaER4cDVIck1zWi1FRGJVa1VsOFFCck95Zk9wSGQzY1RfUVZqLTAwYy1FYVFEMVRwTmxjdkNMNENVSmE1Y0trUFJpYTZSZjZzNWlGYlNva3p0a0tXdFZJSXFNY3dsdEFvZDFaNGRFdDRUSzJaeGtJTlN4V3NDWTNzMkJfR2VlYmM1c2VXZXgzc0tzVE5kd3JTUmc?oc=5) |
 | Tracking the Early Vote in New York, New Jersey and Virginia - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE45bGpkbDRfckpGNnBTcGJlempWZHQ3Nzh0UHoyZlNHNVJhOEJBaWhJcURzV1J6LUlwNW5ROUgta2diUW5EQjYxTFpmcHZHRi1zaGlWMkFoYm92ZnFuemVDSDFDRkRZM1NFVExyaHY5MEp5c3E5QU9wSU42Tmkzdw?oc=5) |
-| In One Jamaican Town, Hurricane Melissa Left Behind Floodwaters and Dead Livestock - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQaUs0bmNXeFFZTGJtRTAzaEZpdm1TM0NFSTNmNVBaVF95RTJiUlQxUTJTNFpOam9RMXhoU28tVUNUQ1BfRUwxQXpwUGJYZUJITHFMSWN3clBsNEczVmJpTTRaVW1uYl9MZXFob3hIOERlTkdVX3NSS19DMGwwY0RvRmFyR2xmZXJZdGpoOVhBb3NvMzA?oc=5) |
+| ‘How do you rebuild all this?’ Black River residents assess damage after Hurricane Melissa - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNQjlaUTN5WWczbV9MZ2hsZGZWc0E0TzBfcUFPYUlMQzZvb1c3ek54M3ZPd3NzTDNfaEllRzRvUnpBei1Dd3IxTUdjNzNNYndicHpXLTFFbmxucl9DMUdPOXlZb1dQSGJxVGU0bVRqQldBc1VpMFQ0LUNuQXJERzBZblJNT3hNb3pOb0Q2R1JmY01DMG0zS3pTazNFWkREUVp0eUdaeUJ0UV9pTlNBQ3JXekV3dw?oc=5) |
 | Appeals Court Rules Border Patrol Chief Greg Bovino Does Not Have to Check In Every Day With Federal Judge - WTTW | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOd3pBSjFlckl1UWprWE9VWlNUc1N6X2FWcVhiRGNBMmdadzlfWUF1Sk9RQndGY1ZoamxLUklSSnZMNnZPbjBWM25mNDIwSEpRREQxeWVJQ2dpTlY3WnU2SGR6Sy0tSFZtbDVvZG1jVUFNM2tobm01NExCMVRHQ3pDTU5yWmZsbmx2QnBHUHkwTTZLR3FmMUQzX21JLXd1clMwZ2pUTFRZdEZXMU0yTzM5d08zVVo?oc=5) |
 | Maduro braces for a U.S. attack; Venezuelans worry more about dinner - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPRVRiclRtSlRDcllQMzVMQkxCNUdVa0VERHdRbm1KRUFlRmk1MmRLSUZESHVkcFQ4TVJhUGZNZTRnN1VQOWVjelZ5d2hXWmFsLV9uRC0zT255VDl4YUNBa05HVUJ3VzhsenFqRFZhTHUwN0JlckNyT0hubEp5M2pqZWJqX0M0eVk?oc=5) |
 | Trump lays low in 2025 elections as Democrats attack him - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNTnVISnV1eXc3MDlvVXVZcHlWbUFRNmtiNzFjNnktWFdabGZsTXBYenNsdHpUek1UR2t6QTB4X0xWR282SXZ6UUt3aTF4SV9yeTE4OXFRdVlRZHdoTTl2S2lvcmdtTVlOcElIbWMzbnh3Qks4WVFadEVZc2p4dExrenlJZTN6UHU4WUYtbE1BMHdoQjVxcDVFNVRBSmI1QQ?oc=5) |
