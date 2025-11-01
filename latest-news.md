@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 19:25:21（北京时间）**
+🕒 更新时间：**2025年11月01日 19:32:26（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | ‘How do you rebuild all this?’ Black River residents assess damage after Hurricane Melissa - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNQjlaUTN5WWczbV9MZ2hsZGZWc0E0TzBfcUFPYUlMQzZvb1c3ek54M3ZPd3NzTDNfaEllRzRvUnpBei1Dd3IxTUdjNzNNYndicHpXLTFFbmxucl9DMUdPOXlZb1dQSGJxVGU0bVRqQldBc1VpMFQ0LUNuQXJERzBZblJNT3hNb3pOb0Q2R1JmY01DMG0zS3pTazNFWkREUVp0eUdaeUJ0UV9pTlNBQ3JXekV3dw?oc=5) |
 | Election Day is Tuesday. Here are 5 questions about what the results might mean - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOai1yWFJRQzNaZVZQN2RvdXh6OExrSGoxVEdtNmpSblNXam5sVFZMaExodDBTVWpnWGp1YTFIa2libUhkZ0hFZVRvbXNKQWFzczI1RDFsNWhqc0VYQkZjdkxMNEJURWpuLXhpa012U2hNQ3U3dVAwLUpWWUpRTWl5dw?oc=5) |
 | JD Vance Savaged as He Desperately Tries to Get In On the Joke - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNYURvcE9LejBKTmY5SnNFeXFJVDVPLXlDVGZxajRmNVlBXzh1OUdCNmdxS2RoeDY4UGktT2xjREJOd19fd3ZvcWt1bGJ1N3ZzTWNjZjJzUy1wRVl6T1JJWEVhU09sbEc3ZnJFUWFFa0RNem9BUW15Um1vNElVQ3NPTVQ5d29kN0NsTkp3Y0xjTWp3eFJ3T3Fhaw?oc=5) |
-| Judge Permanently Bars Trump From Requiring Proof of Citizenship for Voter Registration - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQdU15X2FkMks3dThGQkZsRm1ReVluaDItT2Y2NDQ4NmpKQmdyWWZiWTZTQm03U2RtY3Q3c2pIdEV6Wl94dzdFY3Z2YTlPX255dE9WcXdSUmNUVXRjS1g1NzF5YXBVTnpySXpQdzR6S1R0UFdaaTI3LXZkbVRrcHZNWFpTOEZuUUpVdHZadTZuQTc0STd1bW9xRWVB?oc=5) |
-| High schoolers in Alabama town spark good-natured Halloween prank war with local police - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNYzROcGtfdlhGX0RlVDJ3a19oWEY0WExSUUxaMVBTX1lHZU4zUGo1WTV1NV9fUGlQTXJPcTZVTFU1LUI5TUx4ckYxUXM4VGUwQ1RpNHBDWGFCQWQtZnV2WTllSER2OVREc0d6eFk4NHZfS0tSbnVJa056MllENXBublVRWnlIWnlzc1VZNmJ0WdIBlAFBVV95cUxPbVVnaGFCcC1rMUV4T0FMcTA4WElyVjZ6eUs5RU5SZ1dyakQyc0NJLW1LaVdXTm1yQllHVGJKMXVmQXpybVNxZE1KTVJHZTFZcmg5eEdHLUJKWUlUazFzd3dPb1Q1RzVKdnBVZ19Zbmxvd0JEaXR3dnYwMm92V0hQZWwxOVMtUjB6OHd4ci1mUEJpYS02?oc=5) |
-| Maduro braces for a U.S. attack; Venezuelans worry more about dinner - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPRVRiclRtSlRDcllQMzVMQkxCNUdVa0VERHdRbm1KRUFlRmk1MmRLSUZESHVkcFQ4TVJhUGZNZTRnN1VQOWVjelZ5d2hXWmFsLV9uRC0zT255VDl4YUNBa05HVUJ3VzhsenFqRFZhTHUwN0JlckNyT0hubEp5M2pqZWJqX0M0eVk?oc=5) |
 | What Tuesday’s Elections Might Tell Us About Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPNVdhRXpXWG1IR21LTU5FREVRTVhLVnZaUjRiT2tGUzBEOHd4dkdJaFNkRWNhYzJyY0xveVZzS1E4cTNyNWg4TXNtLS1tcVVNYm5CUUpjaHh4UktGYXV5WE8wNHVoRGJna1lUbHRXMGVISTZIZGRrNF9LaDJlMC1XSkV6RWU3cmIwUjV1SVNEbXd4aEE?oc=5) |
+| High schoolers in Alabama town spark good-natured Halloween prank war with local police - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNYzROcGtfdlhGX0RlVDJ3a19oWEY0WExSUUxaMVBTX1lHZU4zUGo1WTV1NV9fUGlQTXJPcTZVTFU1LUI5TUx4ckYxUXM4VGUwQ1RpNHBDWGFCQWQtZnV2WTllSER2OVREc0d6eFk4NHZfS0tSbnVJa056MllENXBublVRWnlIWnlzc1VZNmJ0WdIBlAFBVV95cUxPbVVnaGFCcC1rMUV4T0FMcTA4WElyVjZ6eUs5RU5SZ1dyakQyc0NJLW1LaVdXTm1yQllHVGJKMXVmQXpybVNxZE1KTVJHZTFZcmg5eEdHLUJKWUlUazFzd3dPb1Q1RzVKdnBVZ19Zbmxvd0JEaXR3dnYwMm92V0hQZWwxOVMtUjB6OHd4ci1mUEJpYS02?oc=5) |
+| Trump news at a glance: Friday rulings hamper administration on food stamps, voting access - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNUzFmQ05OT1FGWmpDMWdMNjBpTFgwa2J3RTlqbXpTZTJnWnBqVmVVamVyMVBCQmU2SmRPZ0tvZjJEUTVnd2s2Z0YxR1VYaURsM2RXeW9hSU1iRDA3WTZNcGROc1I4LVVEdHI3Sk13czVhUFl4TzFZZGtrMmw3aGVZX1l1TTJ6TXBEdm1LZFA5WmI?oc=5) |
+| Maduro braces for a U.S. attack; Venezuelans worry more about dinner - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPRVRiclRtSlRDcllQMzVMQkxCNUdVa0VERHdRbm1KRUFlRmk1MmRLSUZESHVkcFQ4TVJhUGZNZTRnN1VQOWVjelZ5d2hXWmFsLV9uRC0zT255VDl4YUNBa05HVUJ3VzhsenFqRFZhTHUwN0JlckNyT0hubEp5M2pqZWJqX0M0eVk?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
