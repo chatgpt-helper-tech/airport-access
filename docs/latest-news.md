@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 16:33:35（北京时间）**
+🕒 更新时间：**2025年11月01日 16:40:14（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Federal judge rules Trump can’t require citizenship proof on the federal voting form - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOVXhtc2VRLXZDdmdqQUVUMDZxUk0tLTJHN3A1ZUhqQlpXdzlCZGRGLWt3N2lZa2NiX1N0WEl0SUEwX3NBRlNHS2V4OWZDUGpackJHcmZLSFlkZURRdzdrNi0xZ3hZeHN6T19tMG9rR1E4eDBTdzJwX0t2dURoRWtkdUViWkFuU241QXA3emxzemp4VlNIbm1zVGI5VExGTFdOUGZvZU5Zc3UteEtmdDJCbWhYbw?oc=5) |
 | About 700 killed in Tanzania election protests, opposition says - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQY2k0cHhLMWxEYWFmZ1lPY0pndTAySTdOc2x1SXhObnlBb3pCNWNNeUdxb1BzYUE5VGRYV2FFN255cE5pNnM4SmpQWWtXME9udW5fUE84SFYxMmExU2V3SE0xQjFVNFBlLWZjZzhQcHFnZUswY1BSTUlHczdpRGpEWlA4TWhoNm5yT0Qw?oc=5) |
 | Kash Patel says FBI thwarted alleged ‘terrorist attack’ in Michigan - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOYmVTSTE0VzcxeG1wSU5TbDNLa21Rb25IcDgzUVZJVkpXTUZWQnUzZ3IyRVBqeWRmZmpFRkoyeXdDRUlBcTZyTTRIMTRtT2VDSlhJeDFhTEpCNTNNMTJOd2NzdDNqa1V3Mm4zdXBLVFozMlpXSWRaNEhhN0ZaN3pmRmZKUTNRcnJCTWZlQnRVOUllWEZYaEs3TXVTV19CUnlLVWxCMDd6QVBKVjDSAbABQVVfeXFMUHpJV3NoTTJQVm5jdmhBNXpyYndUay1UMXFTSE5LTS1QUjZQZmZBN3ppMHAwMkNLVmwzMmE2M2Izak1CeG00Y01fRDhJNm95dzdoTDkyV05LZnFkNnIxTEdKQzBlTW1rSXNzTElUcEhjQ2Z4YzQ2SXlWTm9VN2FGZTUydThNU1h0SkR2ckMwdEdzcGZ2Q25GU0hKWkNWS1BPdU1FX2JjZ0lwYjgydzZtX3g?oc=5) |
-| Staff Shortages at 35 Air Traffic Control Sites Disrupt Travel - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE9zWHJLVEpyWDFEd3FqcDI1UXI0LUhMQURuN1ZJOGtpNkVwbkJFRkVOZklSTEgtdE9acnd5OC02c0JQTDFCbURnWFdXMUVaN1VJendYRXU1TDhSMDFybGJiYUNzQ2twZVY0YkN2N2ZEX0Vudw?oc=5) |
 | High schoolers in Alabama town spark good-natured Halloween prank war with local police - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNYzROcGtfdlhGX0RlVDJ3a19oWEY0WExSUUxaMVBTX1lHZU4zUGo1WTV1NV9fUGlQTXJPcTZVTFU1LUI5TUx4ckYxUXM4VGUwQ1RpNHBDWGFCQWQtZnV2WTllSER2OVREc0d6eFk4NHZfS0tSbnVJa056MllENXBublVRWnlIWnlzc1VZNmJ0WdIBlAFBVV95cUxPbVVnaGFCcC1rMUV4T0FMcTA4WElyVjZ6eUs5RU5SZ1dyakQyc0NJLW1LaVdXTm1yQllHVGJKMXVmQXpybVNxZE1KTVJHZTFZcmg5eEdHLUJKWUlUazFzd3dPb1Q1RzVKdnBVZ19Zbmxvd0JEaXR3dnYwMm92V0hQZWwxOVMtUjB6OHd4ci1mUEJpYS02?oc=5) |
+| Staff Shortages at 35 Air Traffic Control Sites Disrupt Travel - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE9zWHJLVEpyWDFEd3FqcDI1UXI0LUhMQURuN1ZJOGtpNkVwbkJFRkVOZklSTEgtdE9acnd5OC02c0JQTDFCbURnWFdXMUVaN1VJendYRXU1TDhSMDFybGJiYUNzQ2twZVY0YkN2N2ZEX0Vudw?oc=5) |
 | Trump faces critical point in government shutdown, SNAP cutoff - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOdkRJYkktMVQydzVFVTc3Z1NGTzI1MGkyM1l3cm9kbllvUmN1ODJ2RVlydEZqX1ExLTRDdGc4Y2lkRFQ0Z0I1QU9HUE5nX1ZIMThXQkd6Q1JyTG40c2V2N0FMTHpXU2g4eVdvYXRTU3NRTWx6TXJBSExzZ3MxU0Q3cjFJd1JFenpDVlIwUmxJYkV0aDFaRm13eHJSNkFxOGVNWVY2RTVTSHBQY2Jyb1HSAbMBQVVfeXFMUFF6Q1ViLVY5ekNjVUt2akNmNlQzZkNCUWxXaER4cDVIck1zWi1FRGJVa1VsOFFCck95Zk9wSGQzY1RfUVZqLTAwYy1FYVFEMVRwTmxjdkNMNENVSmE1Y0trUFJpYTZSZjZzNWlGYlNva3p0a0tXdFZJSXFNY3dsdEFvZDFaNGRFdDRUSzJaeGtJTlN4V3NDWTNzMkJfR2VlYmM1c2VXZXgzc0tzVE5kd3JTUmc?oc=5) |
-| Virginia Democrats take first step toward redrawing the state's congressional map - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOWXJOUEp4WDdCSktlTmNhMXRsSW4tYThobExzbUdOWVRKd2FMQVR0U1FRdUxycHNmX0RhUUZjWUZlMEE4VGNWY0JZRkV0U29tTUkyeGw4ajUwQzJHaWNLV3BwcExXaDBNY1NOSnk5MG9hMTdLenVLWjRHckotanFVM1NiaTJxLUhfWVVtMHdYVWstTjFGSzI5eWx4TWZoTmhacHJfMlE3LXVBNTBxdzVfcGJULUdlRUxWc0RLWVJpQkLSAVZBVV95cUxNZnNhZUdRYk9Cdl9QQ0l6QmlKUkxEV1pLcGFRWEF6UWlXbFhmR01tSm9kaUlRbWo5VEcxNEltYzZDV3ozbzV0S0p4OGRvaGlHQ1NzWkJNZw?oc=5) |
+| Trump Says He’s Not Planning Venezuela Strike - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxONmo1bXVlWlNMbmVqTy1nVVBwTmVlS0FSWTFaS3lqaGJrdkRMb0VqdklhenJhTmNUU25JV3BqNkRtRHhnSzVvWjVLNkFSbUc5OWp5c3ZLZE5tQjZQRDRsdDNYcjY2UDkxeGxDSzlJUTVxNkE1dnZTLVc0VzB4Tl9iWEpfUDYtdXRTNjIyNzhJMHQ4QQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
