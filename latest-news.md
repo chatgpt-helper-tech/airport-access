@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 00:08:30（北京时间）**
+🕒 更新时间：**2025年11月02日 00:17:04（北京时间）**
 
 ---
 
@@ -10,14 +10,14 @@
 |--------|-------------|
 | Andrew should answer Epstein questions in US, Democrats say | [阅读全文](https://www.bbc.com/news/articles/c3dnnpvjkjvo?at_medium=RSS&at_campaign=rss) |
 | Politicians rarely comment on the royals. That could all change after the Andrew saga | [阅读全文](https://www.bbc.com/news/articles/c2emj9r4j22o?at_medium=RSS&at_campaign=rss) |
+| UK aid for Hurricane Melissa reaches Jamaica as Britons to be evacuated | [阅读全文](https://www.bbc.com/news/articles/cvg441qyv2xo?at_medium=RSS&at_campaign=rss) |
 | Homes without lounges now a reality for renters | [阅读全文](https://www.bbc.com/news/articles/c93063q2lzeo?at_medium=RSS&at_campaign=rss) |
 | Helicopter crash victim named by family | [阅读全文](https://www.bbc.com/news/articles/c78zzezd5rlo?at_medium=RSS&at_campaign=rss) |
-| Cruise cancelled following death of woman left behind on island | [阅读全文](https://www.bbc.com/news/articles/c5y44ly3vg2o?at_medium=RSS&at_campaign=rss) |
+| Woman charged over Louvre jewellery heist | [阅读全文](https://www.bbc.com/news/articles/cvgkk1mkg0po?at_medium=RSS&at_campaign=rss) |
 | At 21, I was crushed by a stranger's joke about going bald. Then the way I looked at myself changed | [阅读全文](https://www.bbc.com/news/articles/c993ygv9g25o?at_medium=RSS&at_campaign=rss) |
 | She's a pop star, he's a former PM - why Katy Perry and Justin Trudeau just might work | [阅读全文](https://www.bbc.com/news/articles/cn09r01k9yqo?at_medium=RSS&at_campaign=rss) |
 | Why Sarah Ferguson, Beatrice and Eugenie can't escape the taint of family scandal | [阅读全文](https://www.bbc.com/news/articles/cy8vrzpgxnro?at_medium=RSS&at_campaign=rss) |
 | The best looks from Heidi Klum's Halloween party | [阅读全文](https://www.bbc.com/news/articles/c4gpwn5v072o?at_medium=RSS&at_campaign=rss) |
-| 'Nobody owns the sand': The 12-metre fence dividing an affluent beach town | [阅读全文](https://www.bbc.com/news/articles/cgkznrjme1po?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
