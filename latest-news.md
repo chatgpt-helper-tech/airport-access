@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 07:18:01（北京时间）**
+🕒 更新时间：**2025年11月02日 07:25:29（北京时间）**
 
 ---
 
@@ -29,7 +29,7 @@
 | Canadian PM Carney says he told Ontario’s premier not to run anti-tariff ad that upset Trump - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQSUljQ0hPVEUyN285amZVV3NwT2RUbThlbUxFdXk0WXVYV3lLWTF3RHlpYi1xR2VaMEIwWlVYclNuYjV6Y21BalluZ2FycER4cUlzdWlBbkRCTlZQZGxaYVloVHVrYXA0bFdhT2hxTnh0dW56bDBkUkdRajFRNTJpOUoxWjR6Rm1kaDhLVEtTblltR0k?oc=5) |
 | Top labor groups break with federal union's demand to end shutdown - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNaURyeWlTV0xiODNtVDNwTVRLLXZZRjlmeUpoQWwxUnBmRURBNEdmWmdIZ3FKMEdVY2pZSjFaaEhSd19SVWV0Q1Vva3o4SUlJNEJkUXRpb2ctRzIwYkxudDNZWDRuRjg0dWlMTnBmT0FaRVZaRmx2VjNTZmdhZUNOSzBQYURwSHRHX3FTMDloV2NwSENTd0J6NNIBngFBVV95cUxNcHdVX3JNazQ1V1hVVnhCWXhoS2R1TDRtT1ZBZUpNcldwSWwzbU9lZl9mVzZxWTMtTDl1N1JPbzh5OU1rc3NYamVmbU9CQncxX2h6OWlPMW90VlZWR0diT1lqMjgzeEdIZW16SEV0ZHBHbEtGRm5WY3RhaTk1dlF0TGRvRkllbnptbXd5STZtWEQwSExoMXZLelBPdlRtZw?oc=5) |
 | Maduro braces for a U.S. attack; Venezuelans worry more about dinner - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPRVRiclRtSlRDcllQMzVMQkxCNUdVa0VERHdRbm1KRUFlRmk1MmRLSUZESHVkcFQ4TVJhUGZNZTRnN1VQOWVjelZ5d2hXWmFsLV9uRC0zT255VDl4YUNBa05HVUJ3VzhsenFqRFZhTHUwN0JlckNyT0hubEp5M2pqZWJqX0M0eVk?oc=5) |
-| Trump tells Defense Department to 'prepare for possible action' in Nigeria - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxOX1RoVDhrUVpuNVFwOUFsX3NkOFhnTUdGbktBbzE3Qm1heW1sNi1aSHRLUlA3QkR3SURzWDBsa3FsamVvbUlnREF5Y081dDY1U0phakNILXY4LTc2Q2Zldmg3X1VaTXNQaWJrLS0zaXoxVC1ObWRaODE1UU0ydXZUY2Jab0dqWXJvVldnZkYxUFdVSVBjX3plMlNyNm16UUVmcnpkOGp2SWs3ak1EZFdrRkhiVjFScklXVVM2VW94WGtFdw?oc=5) |
+| Trump threatens Nigeria with potential military action, escalates claim of Christian persecution - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNSElOSjl1SXBEQlF0WEJ5dUhvVXBOWjQycy1wdFpEcG9CQ2tPaFdSTnc1LUFoWEJoS1k0MHZGSW8wRXNrR2hIbENSOERFWHRYU190YXo5VnEtRlFtRFF0OTBETEl2aDltNkwzR21sRUVsZjJhNzkwRVNNR2ltSFk1akJoTFpKMDZkbmpEdTNSOGthSXZUelhj?oc=5) |
 | JD Vance repeats comments he wants wife Usha to convert to Christianity - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1adW5JSk9qUjYzNmVfZTlBOUtNcHZsNVVONG9RcHhGRW9GSDVlVWFBWFZhdU5MNmZFdW9YU1d2RUoxR3o1c1E2VnNNREVxX3lCLTZJaWJkcHVJSlZIcDFOSlAwT2Q3NFYzdThQTEl4WnI0TmdGNGY4bS12WHIwQWM?oc=5) |
 | Obama Calls Mamdani to Praise His Campaign and Offers to Be Sounding Board - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPaXh0OUFpTktNZmMzcDZVbzBwMV9KaDlmeWJWSExCek4yTEtHTlFRLWtnTmpPaHFIajltN0xtQkM1ZGpjVndadDR1LUdUZG5IdHZuTTFhVVRYZFpBSVVRMjNham9yLTFNZHI5Q0xTaWlrdkQtTGNSZUpZUXI5alVTV2RTeTVmUzZTeGQwdEZ3?oc=5) |
 | 'Counting pennies': Houston families seek food aid as SNAP hangs in limbo - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1xU3pPa1BTUnNzck1OZ2lpdGlfMVFRME9CMVNrdklsU1RWV2RvTklPOG9MVU5lZUQ5TmFWdHd6d3djeGczUElMaW91TVVoYkN1U3p4V1VkeWYzeWZCWGhIZGZkRWRWcGdTVFk3bFVpSW5PWnAxT2R2SUZR?oc=5) |
