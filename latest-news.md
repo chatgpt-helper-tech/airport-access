@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 05:41:43（北京时间）**
+🕒 更新时间：**2025年11月02日 05:48:47（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | JD Vance repeats comments he wants wife Usha to convert to Christianity - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1adW5JSk9qUjYzNmVfZTlBOUtNcHZsNVVONG9RcHhGRW9GSDVlVWFBWFZhdU5MNmZFdW9YU1d2RUoxR3o1c1E2VnNNREVxX3lCLTZJaWJkcHVJSlZIcDFOSlAwT2Q3NFYzdThQTEl4WnI0TmdGNGY4bS12WHIwQWM?oc=5) |
 | What to Know About the New York City Mayoral Election - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdVZ0MW9FTDJWcG9IVUN6d2dSSUhZbmJ4Wkdmd2dYSmdKaGhMM0pobmF5R3VFUjZoX3BROWRQai1fS2VyNThTQlpFaEVfRmlNaHZmcU9TNEpWWG5NbTg1cUJ4Vm1CMHpuMUVibGdFVXoyMGV2Zkh3Qzd2YVRkN3Qwa25ubEg?oc=5) |
 | Daca recipients in Texas await judge’s ruling that could upend their lives - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPT19PdVRrMmZrN1ZBWF9MMU1PQUMxZTdlY1ZFOFFHLU1FMHdtbGRTc0Y0dFk0WHJxWk0tSmZmWTRDZlB1dTBKM1M3T2xHTWZsc0V2ZE8yNTRHT1FVLWhDRHhLeERSR0Z6a3F5aFVWY0xIZGdaVTBOR1ZScnRZQ0V3aG0zYw?oc=5) |
-| All the U.S. military strikes against alleged drug boats - PBS | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQdUZETTRzRjhMSlY5a01wTXlqN1RtMG4tMTRQZjNrNnQzNzJBcnEyYTNIUEVIUU12VGprVjliVUVzQ3NaTWtPQ0lWV2dYekFEMTNTNnVPNXRXZUhNc296QUY3R0xtSUp5RFdyalo5QzgtQUVvNGVvc2M4LVN5SXBsTFhBMXdGWXE0TTAzQy1NdWxHc3df0gGaAUFVX3lxTFBLd3M1dV9zdWRDVlRyUFo0c3huTm5xT2ZuZ2xNQ01FNjRGM0d4SmY2US1HclZNbF9ZVDJodWxrZThFLUNDNkRydmpqeVh6SUlFeW1DTUFOaEpjd1ZIeTdjOXY0dFJzUUlWcTFfMlFOdWxqZHhyUWdwTDQ0UWktdEQxelB2M3ZrdXdQdWgwa29INkdnWERobzRxZEE?oc=5) |
+| Air traffic controller shortages cause widespread flight delays amid government shutdown - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPVk9xUFh0RGxvU2dsOTJUdkFtell4LUJ0d25lbi1felIyS05VLTlweGV3SHpsUURwREQ1aFF5d2pJeGNITHBaV1JESHVUSFBCWDhyNkw5VTB4cy1IdkpQU3JVSmtjS3pfS0h4NUw1ZE9IVnVFZ1JqRmUyTzg3UHhuODdRWmg4dVFGeldkcENiM3Z0LWhSbGkzRUlmRnpkZkNiclRjUDZtQklEazRXdE44atIBVkFVX3lxTE5nRnB6MWl3RndTaDNMSUpaSWx2eGJCaDdMMVYyVTRRclRsb29kWVJIcUdZdk9GNmhEdlhhOFR5bk4yN2hvVU5TZmZEbHBvckJWTDJ4MFVB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
