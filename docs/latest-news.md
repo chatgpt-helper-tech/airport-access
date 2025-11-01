@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 07:01:19（北京时间）**
+🕒 更新时间：**2025年11月02日 07:09:05（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Trump Administration Must Make Food Stamp Payments Within Days, Judge Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNSDZ3V3JPbzFKc01HOWVNREpiM3U3YjJhS2IwOFZneTJHUkxOcDB4QjdPQkN2MUdmMm53aW9BTEEySFdNaTdVemkxRVNjMEtVcFhkMlhWTXBBdXYtSTJKWkh1a2E0QkRESDNRMUNHZ3pHQlkyV29FM3BlZ0lWZlpwQll5OA?oc=5) |
 | Hurricane Melissa: Britons to be evacuated from Jamaica as UK sends aid - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9NeFA1eUhqMWppeDQxTnBVS214VUdiYktNQm0yeTRPZTI0WE4xdjFESXRpaVBnTW56SmgtbWhNNHZOY2Vyeld2LTVLZU91V1ZXa2E0Sm8yTzF4d9IBX0FVX3lxTE9rS09FOF93LWhzTjR5WjlVQm9xeUJYbzA0U3c3VTI1bS1YZDdvV19MYmxoYVE2ekxESWpUdUJzbHJCNVpCWVVZeDMyRXo2VzVNeFRNOUFTbUN1aVZFVU1v?oc=5) |
-| Canadian PM Carney says he told Ontario’s premier not to run anti-tariff ad that upset Trump - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQSUljQ0hPVEUyN285amZVV3NwT2RUbThlbUxFdXk0WXVYV3lLWTF3RHlpYi1xR2VaMEIwWlVYclNuYjV6Y21BalluZ2FycER4cUlzdWlBbkRCTlZQZGxaYVloVHVrYXA0bFdhT2hxTnh0dW56bDBkUkdRajFRNTJpOUoxWjR6Rm1kaDhLVEtTblltR0k?oc=5) |
 | Explosion at Harvard Medical School building deemed intentional, police seek 2 suspects - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNNm9PckJVVHNkT3pPVEFOejBVSFVad0drNEdHWE9LVUNhUzhhNzBaakdYT1licm53Y0RCZUNXN25GUFhBYlhxZDE2LU8wa0piSkNkeXRvaGpiSUZRU0d2Ui04MEtaemF3R0VVZjJUazJadWJjNlVRUzZMdkpTU19KbjlkMERZV2hBNXVhR1V2bWpLZw?oc=5) |
+| Canadian PM Carney says he told Ontario’s premier not to run anti-tariff ad that upset Trump - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQSUljQ0hPVEUyN285amZVV3NwT2RUbThlbUxFdXk0WXVYV3lLWTF3RHlpYi1xR2VaMEIwWlVYclNuYjV6Y21BalluZ2FycER4cUlzdWlBbkRCTlZQZGxaYVloVHVrYXA0bFdhT2hxTnh0dW56bDBkUkdRajFRNTJpOUoxWjR6Rm1kaDhLVEtTblltR0k?oc=5) |
 | Top labor groups break with federal union's demand to end shutdown - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNaURyeWlTV0xiODNtVDNwTVRLLXZZRjlmeUpoQWwxUnBmRURBNEdmWmdIZ3FKMEdVY2pZSjFaaEhSd19SVWV0Q1Vva3o4SUlJNEJkUXRpb2ctRzIwYkxudDNZWDRuRjg0dWlMTnBmT0FaRVZaRmx2VjNTZmdhZUNOSzBQYURwSHRHX3FTMDloV2NwSENTd0J6NNIBngFBVV95cUxNcHdVX3JNazQ1V1hVVnhCWXhoS2R1TDRtT1ZBZUpNcldwSWwzbU9lZl9mVzZxWTMtTDl1N1JPbzh5OU1rc3NYamVmbU9CQncxX2h6OWlPMW90VlZWR0diT1lqMjgzeEdIZW16SEV0ZHBHbEtGRm5WY3RhaTk1dlF0TGRvRkllbnptbXd5STZtWEQwSExoMXZLelBPdlRtZw?oc=5) |
 | What early voting data says about NYC, Virginia and New Jersey elections - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNTWI3UDRITGpFTDl3dGFLZ1pEVlRwd1dMVVo4SThJY09JTDRhQU5FbWNIQm92TU1ZTkJiVm9fUkFaTW41SWt6SWpuZEFLQmdhaHVCZjduUzN4UzdjekFENmVKVnpBM0pXeXdodjluYUFYTy1rNHNnZVZqRS1hSXJpbFhqTUoxdkFnM0lqNlBkUQ?oc=5) |
 | Trump tells Defense Department to 'prepare for possible action' in Nigeria - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxOX1RoVDhrUVpuNVFwOUFsX3NkOFhnTUdGbktBbzE3Qm1heW1sNi1aSHRLUlA3QkR3SURzWDBsa3FsamVvbUlnREF5Y081dDY1U0phakNILXY4LTc2Q2Zldmg3X1VaTXNQaWJrLS0zaXoxVC1ObWRaODE1UU0ydXZUY2Jab0dqWXJvVldnZkYxUFdVSVBjX3plMlNyNm16UUVmcnpkOGp2SWs3ak1EZFdrRkhiVjFScklXVVM2VW94WGtFdw?oc=5) |
