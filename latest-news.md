@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 04:16:44（北京时间）**
+🕒 更新时间：**2025年11月02日 04:24:34（北京时间）**
 
 ---
 
@@ -25,14 +25,14 @@
 |--------|-------------|
 | Trump asking court how to "legally fund SNAP" after judge's order - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNaG44S3RKSjhiRndwaDAzc2pxNnZfY2l3YnBQVEZMMXIxcGpoMkZaS0RJbVFrRnlPUTFRQWFDeWF1TWxralVNdkt4ZWdqWG5XNVMyNDBpSklFMEpxV1lZSFIwNEtVUml0VjhoNTJQYmNrcVBNRmo1eDNBMlhTLWlVWVo5aHdUdw?oc=5) |
 | UK aid for Hurricane Melissa reaches Jamaica as Britons to be evacuated - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9NeFA1eUhqMWppeDQxTnBVS214VUdiYktNQm0yeTRPZTI0WE4xdjFESXRpaVBnTW56SmgtbWhNNHZOY2Vyeld2LTVLZU91V1ZXa2E0Sm8yTzF4d9IBX0FVX3lxTE9rS09FOF93LWhzTjR5WjlVQm9xeUJYbzA0U3c3VTI1bS1YZDdvV19MYmxoYVE2ekxESWpUdUJzbHJCNVpCWVVZeDMyRXo2VzVNeFRNOUFTbUN1aVZFVU1v?oc=5) |
-| JD Vance repeats comments he wants wife Usha to convert to Christianity - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1adW5JSk9qUjYzNmVfZTlBOUtNcHZsNVVONG9RcHhGRW9GSDVlVWFBWFZhdU5MNmZFdW9YU1d2RUoxR3o1c1E2VnNNREVxX3lCLTZJaWJkcHVJSlZIcDFOSlAwT2Q3NFYzdThQTEl4WnI0TmdGNGY4bS12WHIwQWM?oc=5) |
 | What early voting data says about NYC, Virginia and New Jersey elections - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNTWI3UDRITGpFTDl3dGFLZ1pEVlRwd1dMVVo4SThJY09JTDRhQU5FbWNIQm92TU1ZTkJiVm9fUkFaTW41SWt6SWpuZEFLQmdhaHVCZjduUzN4UzdjekFENmVKVnpBM0pXeXdodjluYUFYTy1rNHNnZVZqRS1hSXJpbFhqTUoxdkFnM0lqNlBkUQ?oc=5) |
 | Top labor groups break with federal union's demand to end shutdown - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNaURyeWlTV0xiODNtVDNwTVRLLXZZRjlmeUpoQWwxUnBmRURBNEdmWmdIZ3FKMEdVY2pZSjFaaEhSd19SVWV0Q1Vva3o4SUlJNEJkUXRpb2ctRzIwYkxudDNZWDRuRjg0dWlMTnBmT0FaRVZaRmx2VjNTZmdhZUNOSzBQYURwSHRHX3FTMDloV2NwSENTd0J6NNIBngFBVV95cUxNcHdVX3JNazQ1V1hVVnhCWXhoS2R1TDRtT1ZBZUpNcldwSWwzbU9lZl9mVzZxWTMtTDl1N1JPbzh5OU1rc3NYamVmbU9CQncxX2h6OWlPMW90VlZWR0diT1lqMjgzeEdIZW16SEV0ZHBHbEtGRm5WY3RhaTk1dlF0TGRvRkllbnptbXd5STZtWEQwSExoMXZLelBPdlRtZw?oc=5) |
 | After a month of the shutdown, workers face mounting bills, car repossessions - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOY1NZbUVGcTRMWkRuU29OUlpqcTNKQU5WOVhlZVZjUkoxblF3YnVncll6MGF0OWZxaHFfazBzbzl5SVRZM05WNjJzWU9kNXFwdzdyMTBoR2Z2LUZKZ0JVY2IzcDJJTDdHM0U5M05PTjFVMTFMc2tSaXNCd1J1RlFJeUFjdGdXSFpQT1BJ?oc=5) |
-| New York City Mayor's Race: Live News and Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE91aGJsbjFaMHFuVVVMNldYRk84ZzEwcDBkQ3lISjVZWEZIRy1EV0pXRVVvcG9FbldiRk5YNDktYmwtTldnQ0txaVlxUmJucjFqaVdpZGtlUC1oMmdVUHpsNmFNQ3hKa0xWNUo4YWlfUUJXOFZid2pPR0g2U3E?oc=5) |
+| Trump’s Demands Throw Wrench Into Delicate Shutdown Talks - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPQUJVamlBZnpVd1NscnYtRmRrZU1hSExJZDRHUnV0eWg4UzR4a01lMkJEVzBySzJFMVRWUlhaTjRTS05pcVd1Ylc4dmd1V2tqVEZLLXNLWUdZc2VHVU1jdlJCaG84NnVCYkdrTHNxVlFKVEN5eXZfS2JvckhVekRfaGY5YzUtdHFNT3FIZGlLUUJMaUxiak1jbTEwWi1DY1d0RktV?oc=5) |
+| What to Know About the New York City Mayoral Election - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdVZ0MW9FTDJWcG9IVUN6d2dSSUhZbmJ4Wkdmd2dYSmdKaGhMM0pobmF5R3VFUjZoX3BROWRQai1fS2VyNThTQlpFaEVfRmlNaHZmcU9TNEpWWG5NbTg1cUJ4Vm1CMHpuMUVibGdFVXoyMGV2Zkh3Qzd2YVRkN3Qwa25ubEg?oc=5) |
+| JD Vance repeats comments he wants wife Usha to convert to Christianity - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1adW5JSk9qUjYzNmVfZTlBOUtNcHZsNVVONG9RcHhGRW9GSDVlVWFBWFZhdU5MNmZFdW9YU1d2RUoxR3o1c1E2VnNNREVxX3lCLTZJaWJkcHVJSlZIcDFOSlAwT2Q3NFYzdThQTEl4WnI0TmdGNGY4bS12WHIwQWM?oc=5) |
 | Maduro braces for a U.S. attack; Venezuelans worry more about dinner - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPRVRiclRtSlRDcllQMzVMQkxCNUdVa0VERHdRbm1KRUFlRmk1MmRLSUZESHVkcFQ4TVJhUGZNZTRnN1VQOWVjelZ5d2hXWmFsLV9uRC0zT255VDl4YUNBa05HVUJ3VzhsenFqRFZhTHUwN0JlckNyT0hubEp5M2pqZWJqX0M0eVk?oc=5) |
 | Air traffic controller shortages cause widespread flight delays amid government shutdown - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPVk9xUFh0RGxvU2dsOTJUdkFtell4LUJ0d25lbi1felIyS05VLTlweGV3SHpsUURwREQ1aFF5d2pJeGNITHBaV1JESHVUSFBCWDhyNkw5VTB4cy1IdkpQU3JVSmtjS3pfS0h4NUw1ZE9IVnVFZ1JqRmUyTzg3UHhuODdRWmg4dVFGeldkcENiM3Z0LWhSbGkzRUlmRnpkZkNiclRjUDZtQklEazRXdE44atIBVkFVX3lxTE5nRnB6MWl3RndTaDNMSUpaSWx2eGJCaDdMMVYyVTRRclRsb29kWVJIcUdZdk9GNmhEdlhhOFR5bk4yN2hvVU5TZmZEbHBvckJWTDJ4MFVB?oc=5) |
-| Fact Sheet: President Donald J. Trump Strikes Deal on Economic and Trade Relations with China - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxPYU54V29IYkgxMmlUeldrVDlQbC05T3FpYXZucHRyRTFubzRIRF9NTFJfaWxLWGNxQ3FNakt3MTA4ZFZmUWNOTGZsRExqT0h4dHFfUEhPeUZOdDNXSWQ0X2l6ZEN5NGNZVWxWYTYwTVRMRHJmNXJJM3pWcHBNT1EtRXdBaXlDM1pDX2hXaWFQajVqMTAybnBGQVEtalI1X2JtM1NsWkI5RTlMaU5zZzdtM2V3bDJlUXVLdUVJWlE0WFR4UmlzdXVCeDFBcnZKcHFkN1FZY3FB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
