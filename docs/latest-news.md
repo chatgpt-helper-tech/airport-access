@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 12:17:38（北京时间）**
+🕒 更新时间：**2025年11月01日 12:25:05（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump administration must release billions in SNAP funds, judge says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOeUdGNW11ekVsZEhibHpfLU5NVEpvSUdqTjBYallVRUJTOVo4SVdQdGhfQVpSbmdoeTdQWG50YlZFU2stN0R0ZUY2N3NMMjN2LVd1OXNmdUI1UU5XcXY3QnV3UzZWRlFoaFRGSUdJN0dTSzY1YWRiZVRDcHdfQkZTbzJlQU13X1c3d2Z6b3hDY2s?oc=5) |
+| Trump asking court how to "legally fund SNAP" after judge's order - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNaG44S3RKSjhiRndwaDAzc2pxNnZfY2l3YnBQVEZMMXIxcGpoMkZaS0RJbVFrRnlPUTFRQWFDeWF1TWxralVNdkt4ZWdqWG5XNVMyNDBpSklFMEpxV1lZSFIwNEtVUml0VjhoNTJQYmNrcVBNRmo1eDNBMlhTLWlVWVo5aHdUdw?oc=5) |
 | What’s the filibuster and why does Trump want to get rid of it during the shutdown? - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPOUhRQy1tUkJ5ZERsb1lPQ0hIZGJmQVVGNENnZGUxNUNWNHl2OG1sNXdDT2d3bm9FMUphcC1xVEptS0x1b0RnOW5RZVJGNXFzRWxqc3p6elRlWXI5S0dpWE8wRDFpSlJQTHcxNnNVTWxLelRoX3lCZUtid3U3VjFLZXNldDY1emxlSUJjMm5PWmc4YnJfek1TTnJn?oc=5) |
 | In One Jamaican Town, Hurricane Melissa Left Behind Floodwaters and Dead Livestock - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQaUs0bmNXeFFZTGJtRTAzaEZpdm1TM0NFSTNmNVBaVF95RTJiUlQxUTJTNFpOam9RMXhoU28tVUNUQ1BfRUwxQXpwUGJYZUJITHFMSWN3clBsNEczVmJpTTRaVW1uYl9MZXFob3hIOERlTkdVX3NSS19DMGwwY0RvRmFyR2xmZXJZdGpoOVhBb3NvMzA?oc=5) |
-| Trump Reveals Photos Of Remodeled Lincoln Bathroom—Latest White House Renovation - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNaE9nQWpmaEluOE81WUNkck1nVzlTVXlKNUs2TlE1SV9iMEpneDY2RTNFMHljLU5YWDA3OXQ0ZkFkZEJxOV84c3NHTVhSWVJwYTQwQjZUTFVyLU9rc2dfOGNHUjhhUnBJcF9DcWhIelJ3Z0ZJT1BBMGZINEF5OEVBSWpBNUNTUzJzNElScEhyelFtc1RxbkpsN281Z1lsY0hUVWtTRVVmTFVZZV9EMllYYVFGWElaQzFUWWZ6dkVxOG4yZUlMTk4zaXU0QWpzQQ?oc=5) |
+| Trump touts Lincoln Bathroom overhaul featuring marble, gold fixtures - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPTnFVZ0U2STVOMFNsbk56ZHdYSmRpU3AwQ2UxVXdTejNZOTR5a05NeFhRc0prU2VyQTZJSzBjRTNkb3NFTVNndzQ3dHFzQUNwMVBabW0yc082REVqTTk2dWt2S0N6VTl5MXNJaHE3ZGd4QlFHekItOGxNbExLM0R6QTZCa3pqYjlDdWZUeA?oc=5) |
 | Kash Patel says FBI thwarted alleged ‘terrorist attack’ in Michigan - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOYmVTSTE0VzcxeG1wSU5TbDNLa21Rb25IcDgzUVZJVkpXTUZWQnUzZ3IyRVBqeWRmZmpFRkoyeXdDRUlBcTZyTTRIMTRtT2VDSlhJeDFhTEpCNTNNMTJOd2NzdDNqa1V3Mm4zdXBLVFozMlpXSWRaNEhhN0ZaN3pmRmZKUTNRcnJCTWZlQnRVOUllWEZYaEs3TXVTV19CUnlLVWxCMDd6QVBKVjDSAbABQVVfeXFMUHpJV3NoTTJQVm5jdmhBNXpyYndUay1UMXFTSE5LTS1QUjZQZmZBN3ppMHAwMkNLVmwzMmE2M2Izak1CeG00Y01fRDhJNm95dzdoTDkyV05LZnFkNnIxTEdKQzBlTW1rSXNzTElUcEhjQ2Z4YzQ2SXlWTm9VN2FGZTUydThNU1h0SkR2ckMwdEdzcGZ2Q25GU0hKWkNWS1BPdU1FX2JjZ0lwYjgydzZtX3g?oc=5) |
 | Trump Denies Reports That He’s Planning Strikes on Venezuela - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxORlhTWW9FekpaLVJvZXNQUFFwb2lSekFWSWdWc19HYndiTjJ1MG5aZURrdktaM1NGNG16SG9IRGlpenExcG1tNWtKaDA5VmItUEVzSjJiLVdGekd5VExJdmI4UDFzVGMtdzBRaUMxMEdCTy1mZEpPMjVLSDJrRXBua1kzVVdJNVFpYWZabkxPU1pxNkxyOWpvNzNzakxYeGVFWTNfdWE2clFuZGti?oc=5) |
 | Republicans notch redistricting win in Ohio — but it could have been worse for Democrats - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQN1lxZE5sSDloZmpwQzRsakh4OFhaNXBmeHNBQWxRYkNOd2ozY3hzeWJCenZfUlh3QmNOY3dLN001RUN1VGhxdjlaTk5aQTZGa3ZDaU1qajlUVTlyd0IxTENJRWl0Q2NQN0FSMHZZSl90QU1VeUt2OG1VTlBSeTBTakpCbVVXakg5bXU3cjdnNk9GUQ?oc=5) |
