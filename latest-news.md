@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 00:00:26（北京时间）**
+🕒 更新时间：**2025年11月02日 00:08:30（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | What to Know About the New York City Mayoral Election - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdVZ0MW9FTDJWcG9IVUN6d2dSSUhZbmJ4Wkdmd2dYSmdKaGhMM0pobmF5R3VFUjZoX3BROWRQai1fS2VyNThTQlpFaEVfRmlNaHZmcU9TNEpWWG5NbTg1cUJ4Vm1CMHpuMUVibGdFVXoyMGV2Zkh3Qzd2YVRkN3Qwa25ubEg?oc=5) |
 | Judge orders arrest of ex-Green Beret accused of plotting to invade Venezuela after he fails to show up in court - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNcUwzckxWSUVYZEtNdFNnYjNXU2dVNnhyNTJicGVacGUxVm9FcnFZVHljdUROdXdxN00wdjRhZDBiZ2JGM2RHODhJcVh0STIxU2NocXNXOU5QaEs3VUhnUjNtYkc5U1hRWmRoRHZsRlAzaGg1WFpjVEZ6X1EtUndZdjRVX0pCSS1uQmtUbVdmY0FXZXNBRENmeWhKMFRaRlFV0gGmAUFVX3lxTFAzMk40MF9RNUs1Z1cyT3lwNVJISDlKcVdESmNGNVpHVFdlRTF1cVd3aFhvc2JINFp4VTMwUzdKUWFiOEhxNlNDcW15ZFZPbFZQTlByWW15ZEtMRW82OHZjVTBfLV9MQVFMYmszSjZhR21SSzl5UzFnMkV5S2UxQlJZRUdUeHc4LVhUbkUxa21oZVo4Qy03VzM4OU50R2dobDBabFFjT1E?oc=5) |
 | All the U.S. military strikes against alleged drug boats - PBS | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQdUZETTRzRjhMSlY5a01wTXlqN1RtMG4tMTRQZjNrNnQzNzJBcnEyYTNIUEVIUU12VGprVjliVUVzQ3NaTWtPQ0lWV2dYekFEMTNTNnVPNXRXZUhNc296QUY3R0xtSUp5RFdyalo5QzgtQUVvNGVvc2M4LVN5SXBsTFhBMXdGWXE0TTAzQy1NdWxHc3df0gGaAUFVX3lxTFBLd3M1dV9zdWRDVlRyUFo0c3huTm5xT2ZuZ2xNQ01FNjRGM0d4SmY2US1HclZNbF9ZVDJodWxrZThFLUNDNkRydmpqeVh6SUlFeW1DTUFOaEpjd1ZIeTdjOXY0dFJzUUlWcTFfMlFOdWxqZHhyUWdwTDQ0UWktdEQxelB2M3ZrdXdQdWgwa29INkdnWERobzRxZEE?oc=5) |
-| Trump lays low in 2025 elections as Democrats attack him - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNTnVISnV1eXc3MDlvVXVZcHlWbUFRNmtiNzFjNnktWFdabGZsTXBYenNsdHpUek1UR2t6QTB4X0xWR282SXZ6UUt3aTF4SV9yeTE4OXFRdVlRZHdoTTl2S2lvcmdtTVlOcElIbWMzbnh3Qks4WVFadEVZc2p4dExrenlJZTN6UHU4WUYtbE1BMHdoQjVxcDVFNVRBSmI1QQ?oc=5) |
+| Airlines plead for end of government shutdown as unpaid air traffic controllers prepare for busy holiday travel - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQZXNsaEZOSWJtSnpmYW1GTE5hcV9hOHdqTzF5NEpPeEVsamh0T1phMTRLMDdDdUZYb0l2SVdfLW8zZmM4RUV0aXNFY0pIdGxGX3RJeG9IVjA3UmxnX3JaNkxGYVE1akF5WVR5dVlBbVdybnNpMmgyRTdtbC0xeVltSGJwam5EdjFzU01Ob2JsQzluV3Q0bnVOTC1TRDA0cHNDeGp1bVJRTmR5QUhC?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
