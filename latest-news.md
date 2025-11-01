@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 08:09:55（北京时间）**
+🕒 更新时间：**2025年11月01日 08:17:19（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | Andrew's move out of Royal Lodge may not happen until new year | [阅读全文](https://www.bbc.com/news/articles/c2emmdnw82yo?at_medium=RSS&at_campaign=rss) |
 | Why Sarah Ferguson, Beatrice and Eugenie can't escape the taint of family scandal | [阅读全文](https://www.bbc.com/news/articles/cy8vrzpgxnro?at_medium=RSS&at_campaign=rss) |
-| 'No inch here was spared': Hurricane Melissa destroys Jamaica town | [阅读全文](https://www.bbc.com/news/videos/ce3xxzg09gro?at_medium=RSS&at_campaign=rss) |
+| Scavenging for food in streets - desperation takes hold in Jamaica after hurricane | [阅读全文](https://www.bbc.com/news/articles/c0jdd186l0go?at_medium=RSS&at_campaign=rss) |
 | Ex-sergeant major jailed for six months for sexual assault of soldier who took her own life | [阅读全文](https://www.bbc.com/news/articles/cvgd1zk5nrgo?at_medium=RSS&at_campaign=rss) |
 | Just Stop Oil trio cleared over Stonehenge orange powder protest | [阅读全文](https://www.bbc.com/news/articles/cjekdqj7529o?at_medium=RSS&at_campaign=rss) |
 | Former England goalkeeper Mary Earps announces 'happy' same-sex relationship | [阅读全文](https://www.bbc.com/news/articles/c620lyx5p17o?at_medium=RSS&at_campaign=rss) |
@@ -28,11 +28,11 @@
 | Hurricane Melissa death toll surpasses 50, mostly in Jamaica and Haiti, as focus turns to recovery - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOSHRNMEdnc3ByVWE0VWRkREIwYzZkSldNNm0zdXF1d0swMVNTbW5nNS1HUjdqVTRXZ3A2aDkzUi1Cb3BfaWk5bU1jNWpXY1BvUnE0UHR4aTlPZlZ2OG1YMnBRVVY2ck14XzN0TjV1LXc3bDBwXzhQbGd4b2dZTTR5ZVVUX1p0NUtfN3pkeVhzb1Y4Z2tVdnRzMzVSWTnSAaIBQVVfeXFMTjA5VkpfYjI4U0FxWmhZaGdONnRqT1duZHNMeUxxbmoyY1pBeDlaTlAzV2ZRc2FuV3lMb0JMUnZrR3VCZmxkWEtUT29DalQ1SHZaZEx4dUhYN3gyQnRDX09wY2d3bkZhTHhwbGhSSnZnTEdydFVMNEpvcXdYY2M5WE1jMWxRV2N6WTNJRF9DOER4dUFPN0NoVDRhQTZjVDR3eG53?oc=5) |
 | US judge permanently blocks Trump order requiring voters to prove citizenship - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOMnNSQldVdkRFbXRlOGdWMjA3ajZXNFB4UnRsNFl3TUVSVEFTcTVQWmtKdVNTMm5PeE43cmJpYm9pZGFZVS1EeDE5dlliaGRxdTU5U1pJVVh0NE02c0E5YV9rTHBrUmxsYUgwbEloUnVYTm40MFZ4a3RzRWRFSEJuZkFVZkFmN1JSWl82LVV5eTdOc2pDNXpZRWowZUtsa2dzNVA0SkFESVltMjkzZ21GR2o3bHhhR2s?oc=5) |
 | President Trump shows off White House's Lincoln Bathroom renovated entirely in marble - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOMHdzV01rYlJWTmRPSVRYdUJscGF2aWZwT2NnOE1INklzTldGdGE2emhXckRwTTdUSUF5WGtjUk5nb1JmMWVQV3haN01ETFFodUtnMG5CcXlNcnp6c1lZRUNGcHdsRjI4ZDgxLXdyT0VXOHVMUU1uWGVuaTEtX1lKNVAyTS1XMmF1cjJnTWFCV2VrUHQ2bzJCcUxPRjlweWkxLVpWa1lZV3XSAa4BQVVfeXFMUHNKNWl5d0hYQWRoQ1lWNS1COGhqTmZwSTFwelRNREw5c0lUQkhrLXl4cGE1Y3huczdncC14YUFjTXZnenZCWlE0UFV3Mm0yeDBDb2JHN25vVTRnc3plSEV2MUlRbVY5WjhybWgzXy1iM1RGZVMtUnlJeHJ5M0YtdGJsaWdIeG5vTG1NT2RWMVRPWHEtZUY3bHNxaUZ3R3hLNWQ4cU5uMk5FUnFPNWlB?oc=5) |
+| Trump Denies Reports That He’s Planning Strikes on Venezuela - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxORlhTWW9FekpaLVJvZXNQUFFwb2lSekFWSWdWc19HYndiTjJ1MG5aZURrdktaM1NGNG16SG9IRGlpenExcG1tNWtKaDA5VmItUEVzSjJiLVdGekd5VExJdmI4UDFzVGMtdzBRaUMxMEdCTy1mZEpPMjVLSDJrRXBua1kzVVdJNVFpYWZabkxPU1pxNkxyOWpvNzNzakxYeGVFWTNfdWE2clFuZGti?oc=5) |
 | Kash Patel says FBI thwarted alleged ‘terrorist attack’ in Michigan - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOYmVTSTE0VzcxeG1wSU5TbDNLa21Rb25IcDgzUVZJVkpXTUZWQnUzZ3IyRVBqeWRmZmpFRkoyeXdDRUlBcTZyTTRIMTRtT2VDSlhJeDFhTEpCNTNNMTJOd2NzdDNqa1V3Mm4zdXBLVFozMlpXSWRaNEhhN0ZaN3pmRmZKUTNRcnJCTWZlQnRVOUllWEZYaEs3TXVTV19CUnlLVWxCMDd6QVBKVjDSAbABQVVfeXFMUHpJV3NoTTJQVm5jdmhBNXpyYndUay1UMXFTSE5LTS1QUjZQZmZBN3ppMHAwMkNLVmwzMmE2M2Izak1CeG00Y01fRDhJNm95dzdoTDkyV05LZnFkNnIxTEdKQzBlTW1rSXNzTElUcEhjQ2Z4YzQ2SXlWTm9VN2FGZTUydThNU1h0SkR2ckMwdEdzcGZ2Q25GU0hKWkNWS1BPdU1FX2JjZ0lwYjgydzZtX3g?oc=5) |
 | Virginia Democrats take first step toward redrawing the state's congressional map - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOWXJOUEp4WDdCSktlTmNhMXRsSW4tYThobExzbUdOWVRKd2FMQVR0U1FRdUxycHNmX0RhUUZjWUZlMEE4VGNWY0JZRkV0U29tTUkyeGw4ajUwQzJHaWNLV3BwcExXaDBNY1NOSnk5MG9hMTdLenVLWjRHckotanFVM1NiaTJxLUhfWVVtMHdYVWstTjFGSzI5eWx4TWZoTmhacHJfMlE3LXVBNTBxdzVfcGJULUdlRUxWc0RLWVJpQkLSAVZBVV95cUxNZnNhZUdRYk9Cdl9QQ0l6QmlKUkxEV1pLcGFRWEF6UWlXbFhmR01tSm9kaUlRbWo5VEcxNEltYzZDV3ozbzV0S0p4OGRvaGlHQ1NzWkJNZw?oc=5) |
 | Millions face 'huge sticker shock' when ACA open enrollment starts Nov. 1 - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPRllydE04UHB0QmN4Vk5KOGhobThCQmJLQk0zMnJGeHR2czhoZGEzQ3Y1TnpfNmFibUI3UHRCRDZCckJ5MnNrclc1SjFXVzYzdnNobllFMzhKYmVNVHFUSWdLeVdpVjdKOGtuQUhxSThFSVM4V1Z0WXViZVEwcGpxdFVsUzN6d3p4VGfSAY8BQVVfeXFMT25feEtpcmpxcXZsZE1LcEdpTEQtRVJINFNjejJuY2R5QTljdXBGV2tXZHN4cTdNWHQzNzUtbFRMc1BtSjllYlY1OVZ5eWdTQkgySlFDUHM0MEpxZm9tbmRJTElTZGJJejlxQkdsM1pEQ3VTQ2NQenFYcHlzX2RscThRVk43ckY5NDBjbzRJRFU?oc=5) |
 | Trump Eyes Slashing China’s Tariff Rate by Another 10% - TipRanks | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPMHZvSlpka211ald0RWRZUVZJTTV5M2NrZVlWU3BHNFBDSDBYMGZoVG9QSjdzeTZndGZfaE92STdVOHVWWVk0dWtFUU0tNnY1cGdNZXd0c3JVZDhPbU5FTWkxQnVmMzAtalUwcjhzNHQyWloyckVuYXdXcXVoVm1tMVpVWQ?oc=5) |
-| Air traffic controller shortages lead to broader US flight delays as shutdown nears one-month mark - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPV3ZibnBaYnA1c0JyUTRtblhkTDFneTlla0ZUZ19qWDhVbGlEbi05UWtkOFJJZzVWdXp0eV9hS05UVkVsVzgtNXBfVGtoTTlFOXBjdTBUNW5QWU9lQUJiR2w2dGZZV2lYVjVlZ21RTDdGSWFpYTBUb0ExSldXWTNkYzUwck5DU1NQSUNMVk9lbzQ2eGR3eGstaFRrVzg5UnFkcEtGa2xINHZMQ3M?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
