@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 19:16:29（北京时间）**
+🕒 更新时间：**2025年11月01日 19:25:21（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Election Day is Tuesday. Here are 5 questions about what the results might mean - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOai1yWFJRQzNaZVZQN2RvdXh6OExrSGoxVEdtNmpSblNXam5sVFZMaExodDBTVWpnWGp1YTFIa2libUhkZ0hFZVRvbXNKQWFzczI1RDFsNWhqc0VYQkZjdkxMNEJURWpuLXhpa012U2hNQ3U3dVAwLUpWWUpRTWl5dw?oc=5) |
 | JD Vance Savaged as He Desperately Tries to Get In On the Joke - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNYURvcE9LejBKTmY5SnNFeXFJVDVPLXlDVGZxajRmNVlBXzh1OUdCNmdxS2RoeDY4UGktT2xjREJOd19fd3ZvcWt1bGJ1N3ZzTWNjZjJzUy1wRVl6T1JJWEVhU09sbEc3ZnJFUWFFa0RNem9BUW15Um1vNElVQ3NPTVQ5d29kN0NsTkp3Y0xjTWp3eFJ3T3Fhaw?oc=5) |
 | Trump touts Lincoln Bathroom overhaul featuring marble, gold fixtures - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPTnFVZ0U2STVOMFNsbk56ZHdYSmRpU3AwQ2UxVXdTejNZOTR5a05NeFhRc0prU2VyQTZJSzBjRTNkb3NFTVNndzQ3dHFzQUNwMVBabW0yc082REVqTTk2dWt2S0N6VTl5MXNJaHE3ZGd4QlFHekItOGxNbExLM0R6QTZCa3pqYjlDdWZUeA?oc=5) |
-| What Tuesday’s Elections Might Tell Us About Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPNVdhRXpXWG1IR21LTU5FREVRTVhLVnZaUjRiT2tGUzBEOHd4dkdJaFNkRWNhYzJyY0xveVZzS1E4cTNyNWg4TXNtLS1tcVVNYm5CUUpjaHh4UktGYXV5WE8wNHVoRGJna1lUbHRXMGVISTZIZGRrNF9LaDJlMC1XSkV6RWU3cmIwUjV1SVNEbXd4aEE?oc=5) |
+| Federal judge rules Trump can’t require citizenship proof on the federal voting form - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOVXhtc2VRLXZDdmdqQUVUMDZxUk0tLTJHN3A1ZUhqQlpXdzlCZGRGLWt3N2lZa2NiX1N0WEl0SUEwX3NBRlNHS2V4OWZDUGpackJHcmZLSFlkZURRdzdrNi0xZ3hZeHN6T19tMG9rR1E4eDBTdzJwX0t2dURoRWtkdUViWkFuU241QXA3emxzemp4VlNIbm1zVGI5VExGTFdOUGZvZU5Zc3UteEtmdDJCbWhYbw?oc=5) |
 | High schoolers in Alabama town spark good-natured Halloween prank war with local police - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNYzROcGtfdlhGX0RlVDJ3a19oWEY0WExSUUxaMVBTX1lHZU4zUGo1WTV1NV9fUGlQTXJPcTZVTFU1LUI5TUx4ckYxUXM4VGUwQ1RpNHBDWGFCQWQtZnV2WTllSER2OVREc0d6eFk4NHZfS0tSbnVJa056MllENXBublVRWnlIWnlzc1VZNmJ0WdIBlAFBVV95cUxPbVVnaGFCcC1rMUV4T0FMcTA4WElyVjZ6eUs5RU5SZ1dyakQyc0NJLW1LaVdXTm1yQllHVGJKMXVmQXpybVNxZE1KTVJHZTFZcmg5eEdHLUJKWUlUazFzd3dPb1Q1RzVKdnBVZ19Zbmxvd0JEaXR3dnYwMm92V0hQZWwxOVMtUjB6OHd4ci1mUEJpYS02?oc=5) |
+| What Tuesday’s Elections Might Tell Us About Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPNVdhRXpXWG1IR21LTU5FREVRTVhLVnZaUjRiT2tGUzBEOHd4dkdJaFNkRWNhYzJyY0xveVZzS1E4cTNyNWg4TXNtLS1tcVVNYm5CUUpjaHh4UktGYXV5WE8wNHVoRGJna1lUbHRXMGVISTZIZGRrNF9LaDJlMC1XSkV6RWU3cmIwUjV1SVNEbXd4aEE?oc=5) |
 | FAA warns of ‘surge’ in air traffic controllers calling out of work - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPSXcxSFR4SU5VdThPZDFmbm85ZWNWd0x6dGxiNmM4RW0xbG9kTV96em53LWo4X1lKY0RmMGpCQ3NnZ1ZrVlhSb21YMXhEd0pBVUxOMmh2eGc5ZmlWamZ5MU5VRnhleG9kbWdjbjZ2WHMzVnI5QlNvRFo2aHZFSDNLaFNLdFVmaTRtTDdWdy1HTEFDak1VaVhiZEFIUWhDd214NnN1N0JvQ0diWmw3bzZJUUtuOEo0dw?oc=5) |
-| Trump faces critical point in government shutdown, SNAP cutoff - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOdkRJYkktMVQydzVFVTc3Z1NGTzI1MGkyM1l3cm9kbllvUmN1ODJ2RVlydEZqX1ExLTRDdGc4Y2lkRFQ0Z0I1QU9HUE5nX1ZIMThXQkd6Q1JyTG40c2V2N0FMTHpXU2g4eVdvYXRTU3NRTWx6TXJBSExzZ3MxU0Q3cjFJd1JFenpDVlIwUmxJYkV0aDFaRm13eHJSNkFxOGVNWVY2RTVTSHBQY2Jyb1HSAbMBQVVfeXFMUFF6Q1ViLVY5ekNjVUt2akNmNlQzZkNCUWxXaER4cDVIck1zWi1FRGJVa1VsOFFCck95Zk9wSGQzY1RfUVZqLTAwYy1FYVFEMVRwTmxjdkNMNENVSmE1Y0trUFJpYTZSZjZzNWlGYlNva3p0a0tXdFZJSXFNY3dsdEFvZDFaNGRFdDRUSzJaeGtJTlN4V3NDWTNzMkJfR2VlYmM1c2VXZXgzc0tzVE5kd3JTUmc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
