@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 23:32:06（北京时间）**
+🕒 更新时间：**2025年11月01日 23:40:53（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | Tutankhamun tomb on display in full for first time as Grand Museum opens in Egypt | [阅读全文](https://www.bbc.com/news/articles/ckg4q403rpzo?at_medium=RSS&at_campaign=rss) |
 | At 21, I was crushed by a stranger's joke about going bald. Then the way I looked at myself changed | [阅读全文](https://www.bbc.com/news/articles/c993ygv9g25o?at_medium=RSS&at_campaign=rss) |
 | She's a pop star, he's a former PM - why Katy Perry and Justin Trudeau just might work | [阅读全文](https://www.bbc.com/news/articles/cn09r01k9yqo?at_medium=RSS&at_campaign=rss) |
+| Why Sarah Ferguson, Beatrice and Eugenie can't escape the taint of family scandal | [阅读全文](https://www.bbc.com/news/articles/cy8vrzpgxnro?at_medium=RSS&at_campaign=rss) |
 | The best looks from Heidi Klum's Halloween party | [阅读全文](https://www.bbc.com/news/articles/c4gpwn5v072o?at_medium=RSS&at_campaign=rss) |
 | 'Nobody owns the sand': The 12-metre fence dividing an affluent beach town | [阅读全文](https://www.bbc.com/news/articles/cgkznrjme1po?at_medium=RSS&at_campaign=rss) |
-| Strictly gears up for Halloween week - and a Celebrity Traitor guest stars | [阅读全文](https://www.bbc.com/news/articles/c2lp72n0p0vo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -29,10 +29,10 @@
 | What’s the filibuster and why does Trump want to get rid of it during the shutdown? - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPOUhRQy1tUkJ5ZERsb1lPQ0hIZGJmQVVGNENnZGUxNUNWNHl2OG1sNXdDT2d3bm9FMUphcC1xVEptS0x1b0RnOW5RZVJGNXFzRWxqc3p6elRlWXI5S0dpWE8wRDFpSlJQTHcxNnNVTWxLelRoX3lCZUtid3U3VjFLZXNldDY1emxlSUJjMm5PWmc4YnJfek1TTnJn?oc=5) |
 | Hurricane Melissa dies over the cold waters of the North Atlantic - Yale Climate Connections | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNWDgtN3dHUkZCY1NoLTUxV1AwY1Fack9fWmtSYXdGdjh5bUR1a3R4WDdnVEQ0QldYdEhVSzk4c0NKRDA2NF9PT1Vad1NsRjVRT2dDQU5hcW50VTg4LTFBOHpsbnctVXQ0VnQ2dU5icWdabVd2ZXc4U2pzT0RhS0dNSk5UcjRPZ1dLSzRvNUpWM09GVkpobHk4Rk9TMFIwS3FzWm55UnFVYkNBV1VtT2c?oc=5) |
 | Trump’s military pressure on Maduro evokes Latin America’s coup-ridden past - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE4xcHo5c09mMV9FTmpnSk1xYnlmbjFnSERqcUVpS1Y4NXFyV1E3OVVZYTNRZ2Q2c0RQRmhIMzNtckRTS1FMYUZXUGRPRjhWbGxjdTF4NlpIMEctanJtVEd1cGZtWmJucTlqWEVyTWptTGszdU94NUZrQzA2QXRnWVU?oc=5) |
+| JD Vance Says He Hopes Usha Vance Embraces Christianity, Setting Off Backlash - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPeVdaMDNDTXJwQ1lBX1l1WXprSFZNRktwUUR0MUM0LTlKdzc4QzE0WVVTLVA2MTFlTXJCOWVqdWZac25kdjNqMUFtVmlaaThoV3BJckEtN0Jnc193U2xaTXNMMkpsbXd5YkFjVWlzZlVhb09uTmRBNElPNmh3aFpQRW5Ec0tqVkZ2UENqNXN6cTJiVkd6clFuVQ?oc=5) |
+| What to Know About the New York City Mayoral Election - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdVZ0MW9FTDJWcG9IVUN6d2dSSUhZbmJ4Wkdmd2dYSmdKaGhMM0pobmF5R3VFUjZoX3BROWRQai1fS2VyNThTQlpFaEVfRmlNaHZmcU9TNEpWWG5NbTg1cUJ4Vm1CMHpuMUVibGdFVXoyMGV2Zkh3Qzd2YVRkN3Qwa25ubEg?oc=5) |
 | Trump lays low in 2025 elections as Democrats attack him - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNTnVISnV1eXc3MDlvVXVZcHlWbUFRNmtiNzFjNnktWFdabGZsTXBYenNsdHpUek1UR2t6QTB4X0xWR282SXZ6UUt3aTF4SV9yeTE4OXFRdVlRZHdoTTl2S2lvcmdtTVlOcElIbWMzbnh3Qks4WVFadEVZc2p4dExrenlJZTN6UHU4WUYtbE1BMHdoQjVxcDVFNVRBSmI1QQ?oc=5) |
-| New York City Mayor's Race: Live News and Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE91aGJsbjFaMHFuVVVMNldYRk84ZzEwcDBkQ3lISjVZWEZIRy1EV0pXRVVvcG9FbldiRk5YNDktYmwtTldnQ0txaVlxUmJucjFqaVdpZGtlUC1oMmdVUHpsNmFNQ3hKa0xWNUo4YWlfUUJXOFZid2pPR0g2U3E?oc=5) |
 | Judge orders arrest of ex-Green Beret accused of plotting to invade Venezuela after he fails to show up in court - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNcUwzckxWSUVYZEtNdFNnYjNXU2dVNnhyNTJicGVacGUxVm9FcnFZVHljdUROdXdxN00wdjRhZDBiZ2JGM2RHODhJcVh0STIxU2NocXNXOU5QaEs3VUhnUjNtYkc5U1hRWmRoRHZsRlAzaGg1WFpjVEZ6X1EtUndZdjRVX0pCSS1uQmtUbVdmY0FXZXNBRENmeWhKMFRaRlFV0gGmAUFVX3lxTFAzMk40MF9RNUs1Z1cyT3lwNVJISDlKcVdESmNGNVpHVFdlRTF1cVd3aFhvc2JINFp4VTMwUzdKUWFiOEhxNlNDcW15ZFZPbFZQTlByWW15ZEtMRW82OHZjVTBfLV9MQVFMYmszSjZhR21SSzl5UzFnMkV5S2UxQlJZRUdUeHc4LVhUbkUxa21oZVo4Qy03VzM4OU50R2dobDBabFFjT1E?oc=5) |
-| FBI says shooter in deadly Michigan church attack was motivated by hatred toward the Mormon faith - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE1mbHdKc2ktUGFFMTVESmRSb3VZZUtWaTUwMzY3S2hCcUx4YU1UeTRlM0VvQjFYRnpiSTI1MXNWSVU5X3JCV2Z6SlZrOTd0YUZTYjF1Y0Rsc1Z5M2I1TUJFa0tpQXl1WFFMY0E?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
