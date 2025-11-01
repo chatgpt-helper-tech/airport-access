@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 10:01:10（北京时间）**
+🕒 更新时间：**2025年11月01日 10:09:33（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | Ex-sergeant major jailed for six months for sexual assault of soldier who took her own life | [阅读全文](https://www.bbc.com/news/articles/cvgd1zk5nrgo?at_medium=RSS&at_campaign=rss) |
 | Strictly pros transform into ghouls for Halloween week - and a Celebrity Traitor guest stars | [阅读全文](https://www.bbc.com/news/articles/c2lp72n0p0vo?at_medium=RSS&at_campaign=rss) |
 | Just Stop Oil trio cleared over Stonehenge orange powder protest | [阅读全文](https://www.bbc.com/news/articles/cjekdqj7529o?at_medium=RSS&at_campaign=rss) |
-| 'I was accused of spying and beaten' - a boy's escape from captured Sudan city | [阅读全文](https://www.bbc.com/news/articles/clyk1nq6v4lo?at_medium=RSS&at_campaign=rss) |
+| Halloween 2025: The best celebrity costumes so far | [阅读全文](https://www.bbc.com/news/articles/c4gpwn5v072o?at_medium=RSS&at_campaign=rss) |
 | How will Andrew's titles be removed and what happens next? | [阅读全文](https://www.bbc.com/news/articles/c5ylk9r336zo?at_medium=RSS&at_campaign=rss) |
 | The King is expected to fund Andrew's move - but where does he get his money? | [阅读全文](https://www.bbc.com/news/articles/cwy5lzq94gqo?at_medium=RSS&at_campaign=rss) |
 | The houses on the sprawling Sandringham Estate that could become Andrew's next home | [阅读全文](https://www.bbc.com/news/articles/c201zvrpvw9o?at_medium=RSS&at_campaign=rss) |
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Trump administration must release billions in SNAP funds, judge says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOeUdGNW11ekVsZEhibHpfLU5NVEpvSUdqTjBYallVRUJTOVo4SVdQdGhfQVpSbmdoeTdQWG50YlZFU2stN0R0ZUY2N3NMMjN2LVd1OXNmdUI1UU5XcXY3QnV3UzZWRlFoaFRGSUdJN0dTSzY1YWRiZVRDcHdfQkZTbzJlQU13X1c3d2Z6b3hDY2s?oc=5) |
 | Top Republican rebuffs Trump calls to scrap filibuster rule in shutdown standoff - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE80cl9yMUs5aUVJd01sc1hIdlVTNFFMTmZXRGhzVTFoOUQ5X3l1NVFIY2ZLTVJvVEUxdVJvdmo5RHFlUDVXLWN1NEZNZExLOWR1ckJMcFN6Z0h1UdIBX0FVX3lxTE8zYTYwT3pyRWQxMmNvN1g4UVJMS1pBN1N4VTJZNnpMSHo5T1pNVjdMTmY3WW5HbnFycVZqM0VPQXVOa3ZTODBtaE5iTjlwd1h0dlctNzRSWkFvb1Boa1k4?oc=5) |
-| In One Jamaican Town, Hurricane Melissa Left Behind Floodwaters and Dead Livestock - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQaUs0bmNXeFFZTGJtRTAzaEZpdm1TM0NFSTNmNVBaVF95RTJiUlQxUTJTNFpOam9RMXhoU28tVUNUQ1BfRUwxQXpwUGJYZUJITHFMSWN3clBsNEczVmJpTTRaVW1uYl9MZXFob3hIOERlTkdVX3NSS19DMGwwY0RvRmFyR2xmZXJZdGpoOVhBb3NvMzA?oc=5) |
 | Trump can't require proof of citizenship for voter registration, judge says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQLWdZVmRvbC1UaF9SS1pHOUZQWHNlWkhLUm56cUVWbGQ3Z1dJeGYyYXE1V2V6OUNSNElqMlVZNk4xWlE0SUw0WkZzODZDZUhYQVpWYXNhalMwd1BpWU9YdTRKc0c3a3VMQUdxdmxNVktrU3R0UGJTbkhwX3JRR3NHd3dB?oc=5) |
+| In One Jamaican Town, Hurricane Melissa Left Behind Floodwaters and Dead Livestock - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQaUs0bmNXeFFZTGJtRTAzaEZpdm1TM0NFSTNmNVBaVF95RTJiUlQxUTJTNFpOam9RMXhoU28tVUNUQ1BfRUwxQXpwUGJYZUJITHFMSWN3clBsNEczVmJpTTRaVW1uYl9MZXFob3hIOERlTkdVX3NSS19DMGwwY0RvRmFyR2xmZXJZdGpoOVhBb3NvMzA?oc=5) |
 | President Trump shows off White House's Lincoln Bathroom renovated entirely in marble - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOMHdzV01rYlJWTmRPSVRYdUJscGF2aWZwT2NnOE1INklzTldGdGE2emhXckRwTTdUSUF5WGtjUk5nb1JmMWVQV3haN01ETFFodUtnMG5CcXlNcnp6c1lZRUNGcHdsRjI4ZDgxLXdyT0VXOHVMUU1uWGVuaTEtX1lKNVAyTS1XMmF1cjJnTWFCV2VrUHQ2bzJCcUxPRjlweWkxLVpWa1lZV3XSAa4BQVVfeXFMUHNKNWl5d0hYQWRoQ1lWNS1COGhqTmZwSTFwelRNREw5c0lUQkhrLXl4cGE1Y3huczdncC14YUFjTXZnenZCWlE0UFV3Mm0yeDBDb2JHN25vVTRnc3plSEV2MUlRbVY5WjhybWgzXy1iM1RGZVMtUnlJeHJ5M0YtdGJsaWdIeG5vTG1NT2RWMVRPWHEtZUY3bHNxaUZ3R3hLNWQ4cU5uMk5FUnFPNWlB?oc=5) |
 | Kash Patel says FBI thwarted alleged ‘terrorist attack’ in Michigan - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOYmVTSTE0VzcxeG1wSU5TbDNLa21Rb25IcDgzUVZJVkpXTUZWQnUzZ3IyRVBqeWRmZmpFRkoyeXdDRUlBcTZyTTRIMTRtT2VDSlhJeDFhTEpCNTNNMTJOd2NzdDNqa1V3Mm4zdXBLVFozMlpXSWRaNEhhN0ZaN3pmRmZKUTNRcnJCTWZlQnRVOUllWEZYaEs3TXVTV19CUnlLVWxCMDd6QVBKVjDSAbABQVVfeXFMUHpJV3NoTTJQVm5jdmhBNXpyYndUay1UMXFTSE5LTS1QUjZQZmZBN3ppMHAwMkNLVmwzMmE2M2Izak1CeG00Y01fRDhJNm95dzdoTDkyV05LZnFkNnIxTEdKQzBlTW1rSXNzTElUcEhjQ2Z4YzQ2SXlWTm9VN2FGZTUydThNU1h0SkR2ckMwdEdzcGZ2Q25GU0hKWkNWS1BPdU1FX2JjZ0lwYjgydzZtX3g?oc=5) |
 | Republicans notch redistricting win in Ohio — but it could have been worse for Democrats - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQN1lxZE5sSDloZmpwQzRsakh4OFhaNXBmeHNBQWxRYkNOd2ozY3hzeWJCenZfUlh3QmNOY3dLN001RUN1VGhxdjlaTk5aQTZGa3ZDaU1qajlUVTlyd0IxTENJRWl0Q2NQN0FSMHZZSl90QU1VeUt2OG1VTlBSeTBTakpCbVVXakg5bXU3cjdnNk9GUQ?oc=5) |
