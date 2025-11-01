@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 09:33:01（北京时间）**
+🕒 更新时间：**2025年11月01日 09:40:26（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump administration must release billions in SNAP funds, judge says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOeUdGNW11ekVsZEhibHpfLU5NVEpvSUdqTjBYallVRUJTOVo4SVdQdGhfQVpSbmdoeTdQWG50YlZFU2stN0R0ZUY2N3NMMjN2LVd1OXNmdUI1UU5XcXY3QnV3UzZWRlFoaFRGSUdJN0dTSzY1YWRiZVRDcHdfQkZTbzJlQU13X1c3d2Z6b3hDY2s?oc=5) |
-| What’s the filibuster and why does Trump want to get rid of it during the shutdown? - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPOUhRQy1tUkJ5ZERsb1lPQ0hIZGJmQVVGNENnZGUxNUNWNHl2OG1sNXdDT2d3bm9FMUphcC1xVEptS0x1b0RnOW5RZVJGNXFzRWxqc3p6elRlWXI5S0dpWE8wRDFpSlJQTHcxNnNVTWxLelRoX3lCZUtid3U3VjFLZXNldDY1emxlSUJjMm5PWmc4YnJfek1TTnJn?oc=5) |
+| Top Republican rebuffs Trump calls to scrap filibuster rule in shutdown standoff - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE80cl9yMUs5aUVJd01sc1hIdlVTNFFMTmZXRGhzVTFoOUQ5X3l1NVFIY2ZLTVJvVEUxdVJvdmo5RHFlUDVXLWN1NEZNZExLOWR1ckJMcFN6Z0h1UdIBX0FVX3lxTE8zYTYwT3pyRWQxMmNvN1g4UVJMS1pBN1N4VTJZNnpMSHo5T1pNVjdMTmY3WW5HbnFycVZqM0VPQXVOa3ZTODBtaE5iTjlwd1h0dlctNzRSWkFvb1Boa1k4?oc=5) |
 | In One Jamaican Town, Hurricane Melissa Left Behind Floodwaters and Dead Livestock - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQaUs0bmNXeFFZTGJtRTAzaEZpdm1TM0NFSTNmNVBaVF95RTJiUlQxUTJTNFpOam9RMXhoU28tVUNUQ1BfRUwxQXpwUGJYZUJITHFMSWN3clBsNEczVmJpTTRaVW1uYl9MZXFob3hIOERlTkdVX3NSS19DMGwwY0RvRmFyR2xmZXJZdGpoOVhBb3NvMzA?oc=5) |
 | Trump can't require proof of citizenship for voter registration, judge says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQLWdZVmRvbC1UaF9SS1pHOUZQWHNlWkhLUm56cUVWbGQ3Z1dJeGYyYXE1V2V6OUNSNElqMlVZNk4xWlE0SUw0WkZzODZDZUhYQVpWYXNhalMwd1BpWU9YdTRKc0c3a3VMQUdxdmxNVktrU3R0UGJTbkhwX3JRR3NHd3dB?oc=5) |
 | President Trump shows off White House's Lincoln Bathroom renovated entirely in marble - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOMHdzV01rYlJWTmRPSVRYdUJscGF2aWZwT2NnOE1INklzTldGdGE2emhXckRwTTdUSUF5WGtjUk5nb1JmMWVQV3haN01ETFFodUtnMG5CcXlNcnp6c1lZRUNGcHdsRjI4ZDgxLXdyT0VXOHVMUU1uWGVuaTEtX1lKNVAyTS1XMmF1cjJnTWFCV2VrUHQ2bzJCcUxPRjlweWkxLVpWa1lZV3XSAa4BQVVfeXFMUHNKNWl5d0hYQWRoQ1lWNS1COGhqTmZwSTFwelRNREw5c0lUQkhrLXl4cGE1Y3huczdncC14YUFjTXZnenZCWlE0UFV3Mm0yeDBDb2JHN25vVTRnc3plSEV2MUlRbVY5WjhybWgzXy1iM1RGZVMtUnlJeHJ5M0YtdGJsaWdIeG5vTG1NT2RWMVRPWHEtZUY3bHNxaUZ3R3hLNWQ4cU5uMk5FUnFPNWlB?oc=5) |
@@ -32,7 +32,7 @@
 | Republicans notch redistricting win in Ohio — but it could have been worse for Democrats - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQN1lxZE5sSDloZmpwQzRsakh4OFhaNXBmeHNBQWxRYkNOd2ozY3hzeWJCenZfUlh3QmNOY3dLN001RUN1VGhxdjlaTk5aQTZGa3ZDaU1qajlUVTlyd0IxTENJRWl0Q2NQN0FSMHZZSl90QU1VeUt2OG1VTlBSeTBTakpCbVVXakg5bXU3cjdnNk9GUQ?oc=5) |
 | Staffing Issues Cause More Air Travel Delays, as Controllers’ Union Backs G.O.P.’s Plan to End Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE9zWHJLVEpyWDFEd3FqcDI1UXI0LUhMQURuN1ZJOGtpNkVwbkJFRkVOZklSTEgtdE9acnd5OC02c0JQTDFCbURnWFdXMUVaN1VJendYRXU1TDhSMDFybGJiYUNzQ2twZVY0YkN2N2ZEX0Vudw?oc=5) |
 | Millions face 'huge sticker shock' when ACA open enrollment starts Nov. 1 - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPRllydE04UHB0QmN4Vk5KOGhobThCQmJLQk0zMnJGeHR2czhoZGEzQ3Y1TnpfNmFibUI3UHRCRDZCckJ5MnNrclc1SjFXVzYzdnNobllFMzhKYmVNVHFUSWdLeVdpVjdKOGtuQUhxSThFSVM4V1Z0WXViZVEwcGpxdFVsUzN6d3p4VGfSAY8BQVVfeXFMT25feEtpcmpxcXZsZE1LcEdpTEQtRVJINFNjejJuY2R5QTljdXBGV2tXZHN4cTdNWHQzNzUtbFRMc1BtSjllYlY1OVZ5eWdTQkgySlFDUHM0MEpxZm9tbmRJTElTZGJJejlxQkdsM1pEQ3VTQ2NQenFYcHlzX2RscThRVk43ckY5NDBjbzRJRFU?oc=5) |
-| All the U.S. military strikes against alleged drug boats - PBS | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQdUZETTRzRjhMSlY5a01wTXlqN1RtMG4tMTRQZjNrNnQzNzJBcnEyYTNIUEVIUU12VGprVjliVUVzQ3NaTWtPQ0lWV2dYekFEMTNTNnVPNXRXZUhNc296QUY3R0xtSUp5RFdyalo5QzgtQUVvNGVvc2M4LVN5SXBsTFhBMXdGWXE0TTAzQy1NdWxHc3df0gGaAUFVX3lxTFBLd3M1dV9zdWRDVlRyUFo0c3huTm5xT2ZuZ2xNQ01FNjRGM0d4SmY2US1HclZNbF9ZVDJodWxrZThFLUNDNkRydmpqeVh6SUlFeW1DTUFOaEpjd1ZIeTdjOXY0dFJzUUlWcTFfMlFOdWxqZHhyUWdwTDQ0UWktdEQxelB2M3ZrdXdQdWgwa29INkdnWERobzRxZEE?oc=5) |
+| JD Vance defends saying he wants his wife Usha to convert to Christianity - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPYXF0bkxwVllkY1JZa0hnRGFaUVNCRHlzbWRQbk11SkZHOHF5dGZFeUZaUjI2MThuNUQwbWQxRTBJeTZXQ2tITFlQZkhaaWs5REVvUWU2TTZWQU5HdHFlVzVzU1lHajF4czJCZDVMUWUtbWlkdXZtLXpEdmhSQ3VLLV9Qb1NIR19HV2hFaEVpSHJ1UnU2Zzctd256Nzl2dlXSAaQBQVVfeXFMT2FkYXBQcER3MU9Hcy1RVTR1b1lEa2FSNGZGMzVxeE4tNzJhRlBScGxSUFB3SkZHWm9jdm1xNDlQSDlQb29LRHBad3d4TXo2M2k1dS15NmxzekZXS0ZQcDNKVFRVWHo5RjRYM0M3WVhjVmJibnNMTng5R1NXV296VWZRTFFjcll6TW9mVV9PZkF3V0FobHR1cmhHQ0xSdXdVX1dBN20?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
