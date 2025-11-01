@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 04:24:34（北京时间）**
+🕒 更新时间：**2025年11月02日 04:34:00（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | Andrew should answer Epstein questions in US, Democrats say | [阅读全文](https://www.bbc.com/news/articles/c3dnnpvjkjvo?at_medium=RSS&at_campaign=rss) |
 | Politicians rarely comment on the royals. That could all change after the Andrew saga | [阅读全文](https://www.bbc.com/news/articles/c2emj9r4j22o?at_medium=RSS&at_campaign=rss) |
-| UK aid for Hurricane Melissa reaches Jamaica as Britons to be evacuated | [阅读全文](https://www.bbc.com/news/articles/cvg441qyv2xo?at_medium=RSS&at_campaign=rss) |
+| Britons to be evacuated from Jamaica as UK sends Hurricane Melissa aid | [阅读全文](https://www.bbc.com/news/articles/cvg441qyv2xo?at_medium=RSS&at_campaign=rss) |
 | Two more charged over Louvre jewellery heist | [阅读全文](https://www.bbc.com/news/articles/cvgkk1mkg0po?at_medium=RSS&at_campaign=rss) |
 | Helicopter crash victim named by family | [阅读全文](https://www.bbc.com/news/articles/c78zzezd5rlo?at_medium=RSS&at_campaign=rss) |
 | Trump remodels Lincoln bathroom in latest White House renovation | [阅读全文](https://www.bbc.com/news/articles/c1d0066ew7lo?at_medium=RSS&at_campaign=rss) |
