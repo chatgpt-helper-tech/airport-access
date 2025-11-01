@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 23:01:49（北京时间）**
+🕒 更新时间：**2025年11月01日 23:09:21（北京时间）**
 
 ---
 
@@ -28,10 +28,10 @@
 | Tracking the Early Vote in New York, New Jersey and Virginia - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE45bGpkbDRfckpGNnBTcGJlempWZHQ3Nzh0UHoyZlNHNVJhOEJBaWhJcURzV1J6LUlwNW5ROUgta2diUW5EQjYxTFpmcHZHRi1zaGlWMkFoYm92ZnFuemVDSDFDRkRZM1NFVExyaHY5MEp5c3E5QU9wSU42Tmkzdw?oc=5) |
 | What’s the filibuster and why does Trump want to get rid of it during the shutdown? - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPOUhRQy1tUkJ5ZERsb1lPQ0hIZGJmQVVGNENnZGUxNUNWNHl2OG1sNXdDT2d3bm9FMUphcC1xVEptS0x1b0RnOW5RZVJGNXFzRWxqc3p6elRlWXI5S0dpWE8wRDFpSlJQTHcxNnNVTWxLelRoX3lCZUtid3U3VjFLZXNldDY1emxlSUJjMm5PWmc4YnJfek1TTnJn?oc=5) |
 | Hurricane Melissa dies over the cold waters of the North Atlantic - Yale Climate Connections | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNWDgtN3dHUkZCY1NoLTUxV1AwY1Fack9fWmtSYXdGdjh5bUR1a3R4WDdnVEQ0QldYdEhVSzk4c0NKRDA2NF9PT1Vad1NsRjVRT2dDQU5hcW50VTg4LTFBOHpsbnctVXQ0VnQ2dU5icWdabVd2ZXc4U2pzT0RhS0dNSk5UcjRPZ1dLSzRvNUpWM09GVkpobHk4Rk9TMFIwS3FzWm55UnFVYkNBV1VtT2c?oc=5) |
-| Trump’s military pressure on Maduro evokes Latin America’s coup-ridden past - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE4xcHo5c09mMV9FTmpnSk1xYnlmbjFnSERqcUVpS1Y4NXFyV1E3OVVZYTNRZ2Q2c0RQRmhIMzNtckRTS1FMYUZXUGRPRjhWbGxjdTF4NlpIMEctanJtVEd1cGZtWmJucTlqWEVyTWptTGszdU94NUZrQzA2QXRnWVU?oc=5) |
+| In redistricting vote, some Californians fear losing out, others want to face Trump - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPb2RjUUdaOWhiek9xTm1zVEZiUVlCZEs1LVlsVTJuaFdvWVhoR0pOVVZ5V04xMk80S3RVeTFiUzlDSXlZWjZ1Y1FqdWFjOFBYWExwTkFmSnN1RnJ0T1EzQk9xSFB4ZWxaSXdnTVlwM1doMHRSdWNkWXdWUXZQXy1LTHhCcEt2U3NXdXFNaVJVQQ?oc=5) |
 | Trump lays low in 2025 elections as Democrats attack him - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNTnVISnV1eXc3MDlvVXVZcHlWbUFRNmtiNzFjNnktWFdabGZsTXBYenNsdHpUek1UR2t6QTB4X0xWR282SXZ6UUt3aTF4SV9yeTE4OXFRdVlRZHdoTTl2S2lvcmdtTVlOcElIbWMzbnh3Qks4WVFadEVZc2p4dExrenlJZTN6UHU4WUYtbE1BMHdoQjVxcDVFNVRBSmI1QQ?oc=5) |
-| Here’s what we know and don’t know about the thwarted potential terror attack in Michigan - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1aMEFXeHBkR0ZGSGFuYVAxY2tsdDNheFdyejE2TW04V3I4a0p4OEFKQ0NJNDc1VUxpTG9aUUtpNzd5b1BXSHJfRV9ucy16RVVwTEJZZzBLN3l4OHVvLWFsQm1CdGNWbHctWUwyQkRCSDR5bURjQ09MNQ?oc=5) |
-| N.Y.C. Mayor’s Race Live Updates: Campaign Enters Final Weekend Before Election Day - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE91aGJsbjFaMHFuVVVMNldYRk84ZzEwcDBkQ3lISjVZWEZIRy1EV0pXRVVvcG9FbldiRk5YNDktYmwtTldnQ0txaVlxUmJucjFqaVdpZGtlUC1oMmdVUHpsNmFNQ3hKa0xWNUo4YWlfUUJXOFZid2pPR0g2U3E?oc=5) |
+| Staff Shortages at 35 Air Traffic Control Sites Disrupt Travel - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE9zWHJLVEpyWDFEd3FqcDI1UXI0LUhMQURuN1ZJOGtpNkVwbkJFRkVOZklSTEgtdE9acnd5OC02c0JQTDFCbURnWFdXMUVaN1VJendYRXU1TDhSMDFybGJiYUNzQ2twZVY0YkN2N2ZEX0Vudw?oc=5) |
+| What to Know About the New York City Mayoral Election - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdVZ0MW9FTDJWcG9IVUN6d2dSSUhZbmJ4Wkdmd2dYSmdKaGhMM0pobmF5R3VFUjZoX3BROWRQai1fS2VyNThTQlpFaEVfRmlNaHZmcU9TNEpWWG5NbTg1cUJ4Vm1CMHpuMUVibGdFVXoyMGV2Zkh3Qzd2YVRkN3Qwa25ubEg?oc=5) |
 | Judge orders arrest of ex-Green Beret accused of plotting to invade Venezuela after he fails to show up in court - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNcUwzckxWSUVYZEtNdFNnYjNXU2dVNnhyNTJicGVacGUxVm9FcnFZVHljdUROdXdxN00wdjRhZDBiZ2JGM2RHODhJcVh0STIxU2NocXNXOU5QaEs3VUhnUjNtYkc5U1hRWmRoRHZsRlAzaGg1WFpjVEZ6X1EtUndZdjRVX0pCSS1uQmtUbVdmY0FXZXNBRENmeWhKMFRaRlFV0gGmAUFVX3lxTFAzMk40MF9RNUs1Z1cyT3lwNVJISDlKcVdESmNGNVpHVFdlRTF1cVd3aFhvc2JINFp4VTMwUzdKUWFiOEhxNlNDcW15ZFZPbFZQTlByWW15ZEtMRW82OHZjVTBfLV9MQVFMYmszSjZhR21SSzl5UzFnMkV5S2UxQlJZRUdUeHc4LVhUbkUxa21oZVo4Qy03VzM4OU50R2dobDBabFFjT1E?oc=5) |
 
 ---
