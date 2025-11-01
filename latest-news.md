@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 02:16:55（北京时间）**
+🕒 更新时间：**2025年11月02日 02:25:00（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | What to Know About the New York City Mayoral Election - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdVZ0MW9FTDJWcG9IVUN6d2dSSUhZbmJ4Wkdmd2dYSmdKaGhMM0pobmF5R3VFUjZoX3BROWRQai1fS2VyNThTQlpFaEVfRmlNaHZmcU9TNEpWWG5NbTg1cUJ4Vm1CMHpuMUVibGdFVXoyMGV2Zkh3Qzd2YVRkN3Qwa25ubEg?oc=5) |
 | All the U.S. military strikes against alleged drug boats - PBS | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQdUZETTRzRjhMSlY5a01wTXlqN1RtMG4tMTRQZjNrNnQzNzJBcnEyYTNIUEVIUU12VGprVjliVUVzQ3NaTWtPQ0lWV2dYekFEMTNTNnVPNXRXZUhNc296QUY3R0xtSUp5RFdyalo5QzgtQUVvNGVvc2M4LVN5SXBsTFhBMXdGWXE0TTAzQy1NdWxHc3df0gGaAUFVX3lxTFBLd3M1dV9zdWRDVlRyUFo0c3huTm5xT2ZuZ2xNQ01FNjRGM0d4SmY2US1HclZNbF9ZVDJodWxrZThFLUNDNkRydmpqeVh6SUlFeW1DTUFOaEpjd1ZIeTdjOXY0dFJzUUlWcTFfMlFOdWxqZHhyUWdwTDQ0UWktdEQxelB2M3ZrdXdQdWgwa29INkdnWERobzRxZEE?oc=5) |
 | Trump’s military pressure on Maduro evokes Latin America’s coup-ridden past - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE4xcHo5c09mMV9FTmpnSk1xYnlmbjFnSERqcUVpS1Y4NXFyV1E3OVVZYTNRZ2Q2c0RQRmhIMzNtckRTS1FMYUZXUGRPRjhWbGxjdTF4NlpIMEctanJtVEd1cGZtWmJucTlqWEVyTWptTGszdU94NUZrQzA2QXRnWVU?oc=5) |
-| JD Vance’s comments on Usha’s religion raise a question: Can MAGA base accept his Hindu-Indian wife? - The Times of India | [阅读全文](https://news.google.com/rss/articles/CBMi-wFBVV95cUxPc0c4a1JZYmhQRWhyM19YYkRQbnNJNTFMakZ5YjhEQzdEWWlyd2Npd2tsYUNOY3AxY0t4LUh4QTVkNW1BSGJVMlJweXhJUE5NV1o1bFZpYmRfT3o3YnJVbFN3R3pFZjY1WDdKMkU4bnBEWlUtVmZrd1owZUFkd19qNU1BS0RnVHVMNHl4Y3ZfT0xOQzlnQ05Hbkk1cFQyeUZQMWJoRUUwWEJJN1dYUVB3VTYtVmZUNUlTMGZ6NmhYc012bG5kdWtOamg1cHFZS040X0FDUzlRU1pHajN0dDQ1Mks0R3g0ekh6Wm1DTUVUODZNSlhPclNWUm5ka9IBgAJBVV95cUxORGpfT05wQ1dTVDRwVTkyOUFvYkNqN212ZV9pZXlnUHktMlNqZjAzcEFPVVVVenFSUUdUa2UtM1lZTkQ1Q2w1UHZFS0V5YkptZE1qc25BZDdCejlyNUxkS3ZPdURBb1hDMzhLS1F5WThiUFlBUm1kVXZQVlM5a3ppT25YNWJyY285b0ZvXzR0aFZiYVdUNl9JQkFPb3VOanZrOFNpN29PaE1oX2lzdFJyUW9IcmpCMHZpYi1BOWs0MG44d1V6S3BEUWp0VlZ4V29nXzBmSnd3YkJsbElqM2ZfeE9hcURLdjVsQk5FdzZjWHRaSnlMRXI1WENtcUd3cGVH?oc=5) |
+| JD Vance Says He Hopes Usha Vance Embraces Christianity, Setting Off Backlash - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPeVdaMDNDTXJwQ1lBX1l1WXprSFZNRktwUUR0MUM0LTlKdzc4QzE0WVVTLVA2MTFlTXJCOWVqdWZac25kdjNqMUFtVmlaaThoV3BJckEtN0Jnc193U2xaTXNMMkpsbXd5YkFjVWlzZlVhb09uTmRBNElPNmh3aFpQRW5Ec0tqVkZ2UENqNXN6cTJiVkd6clFuVQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
