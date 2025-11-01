@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 00:33:32（北京时间）**
+🕒 更新时间：**2025年11月02日 00:40:13（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Election Day is Tuesday. Here are 5 questions about what the results might mean - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOai1yWFJRQzNaZVZQN2RvdXh6OExrSGoxVEdtNmpSblNXam5sVFZMaExodDBTVWpnWGp1YTFIa2libUhkZ0hFZVRvbXNKQWFzczI1RDFsNWhqc0VYQkZjdkxMNEJURWpuLXhpa012U2hNQ3U3dVAwLUpWWUpRTWl5dw?oc=5) |
 | Hurricane Melissa dies over the cold waters of the North Atlantic - Yale Climate Connections | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNWDgtN3dHUkZCY1NoLTUxV1AwY1Fack9fWmtSYXdGdjh5bUR1a3R4WDdnVEQ0QldYdEhVSzk4c0NKRDA2NF9PT1Vad1NsRjVRT2dDQU5hcW50VTg4LTFBOHpsbnctVXQ0VnQ2dU5icWdabVd2ZXc4U2pzT0RhS0dNSk5UcjRPZ1dLSzRvNUpWM09GVkpobHk4Rk9TMFIwS3FzWm55UnFVYkNBV1VtT2c?oc=5) |
 | Tanzania election: Samia Suluhu Hassan wins vote as hundreds feared dead in unrest - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFA2QVRZMVlsblU2eEc4VDNPcTVTRHVHWUt6Mmx3SXNJUVY5YXc4SFdDS2ZyTjQ4Y2RsQTlfZ0UyX29LRi1tbkZxTW1nNXJLLWxQSm9hXzE3YWxDZ9IBX0FVX3lxTFB5T1ZUcGxJOGg3MU5vRjZYVTBraHFNbXlCMHVDeXJkRm5VMVlIRzg0dXh6clI1VjFkSWRsZXNGd20xV010SDI4LVVpZWVVeV9rcjVHbFFUZ0NybnRRSW9r?oc=5) |
-| Trump lays low in 2025 elections as Democrats attack him - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNTnVISnV1eXc3MDlvVXVZcHlWbUFRNmtiNzFjNnktWFdabGZsTXBYenNsdHpUek1UR2t6QTB4X0xWR282SXZ6UUt3aTF4SV9yeTE4OXFRdVlRZHdoTTl2S2lvcmdtTVlOcElIbWMzbnh3Qks4WVFadEVZc2p4dExrenlJZTN6UHU4WUYtbE1BMHdoQjVxcDVFNVRBSmI1QQ?oc=5) |
 | What to Know About the New York City Mayoral Election - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdVZ0MW9FTDJWcG9IVUN6d2dSSUhZbmJ4Wkdmd2dYSmdKaGhMM0pobmF5R3VFUjZoX3BROWRQai1fS2VyNThTQlpFaEVfRmlNaHZmcU9TNEpWWG5NbTg1cUJ4Vm1CMHpuMUVibGdFVXoyMGV2Zkh3Qzd2YVRkN3Qwa25ubEg?oc=5) |
 | Judge orders arrest of ex-Green Beret accused of plotting to invade Venezuela after he fails to show up in court - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNcUwzckxWSUVYZEtNdFNnYjNXU2dVNnhyNTJicGVacGUxVm9FcnFZVHljdUROdXdxN00wdjRhZDBiZ2JGM2RHODhJcVh0STIxU2NocXNXOU5QaEs3VUhnUjNtYkc5U1hRWmRoRHZsRlAzaGg1WFpjVEZ6X1EtUndZdjRVX0pCSS1uQmtUbVdmY0FXZXNBRENmeWhKMFRaRlFV0gGmAUFVX3lxTFAzMk40MF9RNUs1Z1cyT3lwNVJISDlKcVdESmNGNVpHVFdlRTF1cVd3aFhvc2JINFp4VTMwUzdKUWFiOEhxNlNDcW15ZFZPbFZQTlByWW15ZEtMRW82OHZjVTBfLV9MQVFMYmszSjZhR21SSzl5UzFnMkV5S2UxQlJZRUdUeHc4LVhUbkUxa21oZVo4Qy03VzM4OU50R2dobDBabFFjT1E?oc=5) |
-| FBI says shooter in deadly Michigan church attack was motivated by hatred toward the Mormon faith - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE1mbHdKc2ktUGFFMTVESmRSb3VZZUtWaTUwMzY3S2hCcUx4YU1UeTRlM0VvQjFYRnpiSTI1MXNWSVU5X3JCV2Z6SlZrOTd0YUZTYjF1Y0Rsc1Z5M2I1TUJFa0tpQXl1WFFMY0E?oc=5) |
+| Trump isn’t acting confidently about the 2025 elections - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNTnVISnV1eXc3MDlvVXVZcHlWbUFRNmtiNzFjNnktWFdabGZsTXBYenNsdHpUek1UR2t6QTB4X0xWR282SXZ6UUt3aTF4SV9yeTE4OXFRdVlRZHdoTTl2S2lvcmdtTVlOcElIbWMzbnh3Qks4WVFadEVZc2p4dExrenlJZTN6UHU4WUYtbE1BMHdoQjVxcDVFNVRBSmI1QQ?oc=5) |
+| All the U.S. military strikes against alleged drug boats - PBS | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQdUZETTRzRjhMSlY5a01wTXlqN1RtMG4tMTRQZjNrNnQzNzJBcnEyYTNIUEVIUU12VGprVjliVUVzQ3NaTWtPQ0lWV2dYekFEMTNTNnVPNXRXZUhNc296QUY3R0xtSUp5RFdyalo5QzgtQUVvNGVvc2M4LVN5SXBsTFhBMXdGWXE0TTAzQy1NdWxHc3df0gGaAUFVX3lxTFBLd3M1dV9zdWRDVlRyUFo0c3huTm5xT2ZuZ2xNQ01FNjRGM0d4SmY2US1HclZNbF9ZVDJodWxrZThFLUNDNkRydmpqeVh6SUlFeW1DTUFOaEpjd1ZIeTdjOXY0dFJzUUlWcTFfMlFOdWxqZHhyUWdwTDQ0UWktdEQxelB2M3ZrdXdQdWgwa29INkdnWERobzRxZEE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
