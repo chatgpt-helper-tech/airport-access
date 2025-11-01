@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 12:49:02（北京时间）**
+🕒 更新时间：**2025年11月01日 12:57:45（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Kash Patel says FBI thwarted alleged ‘terrorist attack’ in Michigan - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOYmVTSTE0VzcxeG1wSU5TbDNLa21Rb25IcDgzUVZJVkpXTUZWQnUzZ3IyRVBqeWRmZmpFRkoyeXdDRUlBcTZyTTRIMTRtT2VDSlhJeDFhTEpCNTNNMTJOd2NzdDNqa1V3Mm4zdXBLVFozMlpXSWRaNEhhN0ZaN3pmRmZKUTNRcnJCTWZlQnRVOUllWEZYaEs3TXVTV19CUnlLVWxCMDd6QVBKVjDSAbABQVVfeXFMUHpJV3NoTTJQVm5jdmhBNXpyYndUay1UMXFTSE5LTS1QUjZQZmZBN3ppMHAwMkNLVmwzMmE2M2Izak1CeG00Y01fRDhJNm95dzdoTDkyV05LZnFkNnIxTEdKQzBlTW1rSXNzTElUcEhjQ2Z4YzQ2SXlWTm9VN2FGZTUydThNU1h0SkR2ckMwdEdzcGZ2Q25GU0hKWkNWS1BPdU1FX2JjZ0lwYjgydzZtX3g?oc=5) |
 | In One Jamaican Town, Hurricane Melissa Left Behind Floodwaters and Dead Livestock - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQaUs0bmNXeFFZTGJtRTAzaEZpdm1TM0NFSTNmNVBaVF95RTJiUlQxUTJTNFpOam9RMXhoU28tVUNUQ1BfRUwxQXpwUGJYZUJITHFMSWN3clBsNEczVmJpTTRaVW1uYl9MZXFob3hIOERlTkdVX3NSS19DMGwwY0RvRmFyR2xmZXJZdGpoOVhBb3NvMzA?oc=5) |
 | Trump Denies Reports That He’s Planning Strikes on Venezuela - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxORlhTWW9FekpaLVJvZXNQUFFwb2lSekFWSWdWc19HYndiTjJ1MG5aZURrdktaM1NGNG16SG9IRGlpenExcG1tNWtKaDA5VmItUEVzSjJiLVdGekd5VExJdmI4UDFzVGMtdzBRaUMxMEdCTy1mZEpPMjVLSDJrRXBua1kzVVdJNVFpYWZabkxPU1pxNkxyOWpvNzNzakxYeGVFWTNfdWE2clFuZGti?oc=5) |
-| More than 47 million Americans — including one in five children — don’t have reliable, affordable access to nutritious food. And as the cost of living skyrockets, more families are depending on SNAP benefits, or food stamps, to put food on the table. - X | [阅读全文](https://news.google.com/rss/articles/CBMiYkFVX3lxTE53Q3dpc0xpZnFOOTRXNlM2aHdQbjNkeWNrTU9PYmdPa25XeVhQY1dhQkVNOU8wZm9Od2ZxZUY0VG1GOVFDa3RwSUxQY05kV1lONmNyQlZNLWFJSGluNEtfUFhn?oc=5) |
+| Judge Permanently Bars Trump From Requiring Proof of Citizenship for Voter Registration - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQdU15X2FkMks3dThGQkZsRm1ReVluaDItT2Y2NDQ4NmpKQmdyWWZiWTZTQm03U2RtY3Q3c2pIdEV6Wl94dzdFY3Z2YTlPX255dE9WcXdSUmNUVXRjS1g1NzF5YXBVTnpySXpQdzR6S1R0UFdaaTI3LXZkbVRrcHZNWFpTOEZuUUpVdHZadTZuQTc0STd1bW9xRWVB?oc=5) |
 | FAA warns of ‘surge’ in air traffic controllers calling out of work - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPSXcxSFR4SU5VdThPZDFmbm85ZWNWd0x6dGxiNmM4RW0xbG9kTV96em53LWo4X1lKY0RmMGpCQ3NnZ1ZrVlhSb21YMXhEd0pBVUxOMmh2eGc5ZmlWamZ5MU5VRnhleG9kbWdjbjZ2WHMzVnI5QlNvRFo2aHZFSDNLaFNLdFVmaTRtTDdWdy1HTEFDak1VaVhiZEFIUWhDd214NnN1N0JvQ0diWmw3bzZJUUtuOEo0dw?oc=5) |
 | Ohio approves new House map giving Republicans a leg up in two more seats - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNNy1MV2EtZXBOdzdUdDhfT0twUl9zQjZVQlBuXzNaRTE1WUZrM1lTblNCLURqU0kyREkzdnc0YkNZTEsza0wyal9IU1ZhYlp5REZFd0hPa21oWmc2VmhHQTJDQk9EX0pXVDRuZ0V0Y21rX1QwR0FIeS1TTERFenQxekVXOFNOeWVVak9kZXN4RQ?oc=5) |
-| Judge Permanently Bars Trump From Requiring Proof of Citizenship for Voter Registration - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQdU15X2FkMks3dThGQkZsRm1ReVluaDItT2Y2NDQ4NmpKQmdyWWZiWTZTQm03U2RtY3Q3c2pIdEV6Wl94dzdFY3Z2YTlPX255dE9WcXdSUmNUVXRjS1g1NzF5YXBVTnpySXpQdzR6S1R0UFdaaTI3LXZkbVRrcHZNWFpTOEZuUUpVdHZadTZuQTc0STd1bW9xRWVB?oc=5) |
+| JD Vance defends saying he wants his wife Usha to convert to Christianity - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPYXF0bkxwVllkY1JZa0hnRGFaUVNCRHlzbWRQbk11SkZHOHF5dGZFeUZaUjI2MThuNUQwbWQxRTBJeTZXQ2tITFlQZkhaaWs5REVvUWU2TTZWQU5HdHFlVzVzU1lHajF4czJCZDVMUWUtbWlkdXZtLXpEdmhSQ3VLLV9Qb1NIR19HV2hFaEVpSHJ1UnU2Zzctd256Nzl2dlXSAaQBQVVfeXFMT2FkYXBQcER3MU9Hcy1RVTR1b1lEa2FSNGZGMzVxeE4tNzJhRlBScGxSUFB3SkZHWm9jdm1xNDlQSDlQb29LRHBad3d4TXo2M2k1dS15NmxzekZXS0ZQcDNKVFRVWHo5RjRYM0M3WVhjVmJibnNMTng5R1NXV296VWZRTFFjcll6TW9mVV9PZkF3V0FobHR1cmhHQ0xSdXdVX1dBN20?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
