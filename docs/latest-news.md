@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 09:24:54（北京时间）**
+🕒 更新时间：**2025年11月01日 09:33:01（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Ohio approves new House map giving Republicans a leg up in two more seats - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNNy1MV2EtZXBOdzdUdDhfT0twUl9zQjZVQlBuXzNaRTE1WUZrM1lTblNCLURqU0kyREkzdnc0YkNZTEsza0wyal9IU1ZhYlp5REZFd0hPa21oWmc2VmhHQTJDQk9EX0pXVDRuZ0V0Y21rX1QwR0FIeS1TTERFenQxekVXOFNOeWVVak9kZXN4RQ?oc=5) |
 | Air traffic controller shortages lead to broader US flight delays as shutdown nears one-month mark - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPV3ZibnBaYnA1c0JyUTRtblhkTDFneTlla0ZUZ19qWDhVbGlEbi05UWtkOFJJZzVWdXp0eV9hS05UVkVsVzgtNXBfVGtoTTlFOXBjdTBUNW5QWU9lQUJiR2w2dGZZV2lYVjVlZ21RTDdGSWFpYTBUb0ExSldXWTNkYzUwck5DU1NQSUNMVk9lbzQ2eGR3eGstaFRrVzg5UnFkcEtGa2xINHZMQ3M?oc=5) |
 | Millions face 'huge sticker shock' when ACA open enrollment starts Nov. 1 - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPRllydE04UHB0QmN4Vk5KOGhobThCQmJLQk0zMnJGeHR2czhoZGEzQ3Y1TnpfNmFibUI3UHRCRDZCckJ5MnNrclc1SjFXVzYzdnNobllFMzhKYmVNVHFUSWdLeVdpVjdKOGtuQUhxSThFSVM4V1Z0WXViZVEwcGpxdFVsUzN6d3p4VGfSAY8BQVVfeXFMT25feEtpcmpxcXZsZE1LcEdpTEQtRVJINFNjejJuY2R5QTljdXBGV2tXZHN4cTdNWHQzNzUtbFRMc1BtSjllYlY1OVZ5eWdTQkgySlFDUHM0MEpxZm9tbmRJTElTZGJJejlxQkdsM1pEQ3VTQ2NQenFYcHlzX2RscThRVk43ckY5NDBjbzRJRFU?oc=5) |
-| Top Senators Say Pentagon Has Not Shared Key Information on Trump’s Boat Strikes - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNT2RwSU1NSXVZZnJidHVGZ3ZlR19reUxjeHVCNHJvdHAyWXZEOHg2TGxOXzZfX2FSODdMUUJDZHlKdmY1LTNJOGxsUzNfX0cyczVuc3MxV2piZ2xxTGtGSWVFOXY1akJpb1Zwb1A2Nl9fc1NtN09XQ0dKd3hmeTg0dHZLLUc5d3JrbVdPUGR3?oc=5) |
+| Trump Eyes Slashing China’s Tariff Rate by Another 10% - TipRanks | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPMHZvSlpka211ald0RWRZUVZJTTV5M2NrZVlWU3BHNFBDSDBYMGZoVG9QSjdzeTZndGZfaE92STdVOHVWWVk0dWtFUU0tNnY1cGdNZXd0c3JVZDhPbU5FTWkxQnVmMzAtalUwcjhzNHQyWloyckVuYXdXcXVoVm1tMVpVWQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
