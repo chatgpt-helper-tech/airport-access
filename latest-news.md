@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 08:01:09（北京时间）**
+🕒 更新时间：**2025年11月01日 08:09:55（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump Administration Ordered to Pay for SNAP Benefits Amid Shutdown: Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE8tRUFsakxRdUtPM0RxamNmcjhjbloxc3QtbW4wZDl3VXE3NUpsN3VqSnNhUUI1MXVObERSamFFZFZPN0FIejY2WWtCak8tNTZ1LWJCejdMQ2V3b00tWng0d1ZTQQ?oc=5) |
-| Trump wants to shatter the filibuster, another Senate norm. Republicans are pushing back. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFA4NE1BX1lybU9iSUtEMGdfbnRnOXZXTm9NS2xfOXhkQVFrc2ZVdng2Zm9pTkVCVkV4OTdmcUlsR2Z6Y0M0Z1ZKZDZJRDdxcVhJTjNiTzhYMjB1bDcwV2lFWVRQd3lCV1k3alRaV3FZbWFUQk1GaVE?oc=5) |
+| Republicans quickly push back on Trump’s call to nix filibuster - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQNWRRRjZxdmVMOXpZR0U5Mk43T04tQ0lQNzJrdFMwemhpLThKTDVnNXhONFkyS29UaFVZdlRGV242UFNSUnhybnZtNGNuVUVHQzV3YUVfY2ROekRVVWl0OGZCdGEyZFBuckxtb0s1TUx0RjNnUTg2RktBV3VvbXIwM3lJMGVFVkd6Z0phS2xxT2I?oc=5) |
 | Hurricane Melissa death toll surpasses 50, mostly in Jamaica and Haiti, as focus turns to recovery - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOSHRNMEdnc3ByVWE0VWRkREIwYzZkSldNNm0zdXF1d0swMVNTbW5nNS1HUjdqVTRXZ3A2aDkzUi1Cb3BfaWk5bU1jNWpXY1BvUnE0UHR4aTlPZlZ2OG1YMnBRVVY2ck14XzN0TjV1LXc3bDBwXzhQbGd4b2dZTTR5ZVVUX1p0NUtfN3pkeVhzb1Y4Z2tVdnRzMzVSWTnSAaIBQVVfeXFMTjA5VkpfYjI4U0FxWmhZaGdONnRqT1duZHNMeUxxbmoyY1pBeDlaTlAzV2ZRc2FuV3lMb0JMUnZrR3VCZmxkWEtUT29DalQ1SHZaZEx4dUhYN3gyQnRDX09wY2d3bkZhTHhwbGhSSnZnTEdydFVMNEpvcXdYY2M5WE1jMWxRV2N6WTNJRF9DOER4dUFPN0NoVDRhQTZjVDR3eG53?oc=5) |
 | US judge permanently blocks Trump order requiring voters to prove citizenship - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOMnNSQldVdkRFbXRlOGdWMjA3ajZXNFB4UnRsNFl3TUVSVEFTcTVQWmtKdVNTMm5PeE43cmJpYm9pZGFZVS1EeDE5dlliaGRxdTU5U1pJVVh0NE02c0E5YV9rTHBrUmxsYUgwbEloUnVYTm40MFZ4a3RzRWRFSEJuZkFVZkFmN1JSWl82LVV5eTdOc2pDNXpZRWowZUtsa2dzNVA0SkFESVltMjkzZ21GR2o3bHhhR2s?oc=5) |
 | President Trump shows off White House's Lincoln Bathroom renovated entirely in marble - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOMHdzV01rYlJWTmRPSVRYdUJscGF2aWZwT2NnOE1INklzTldGdGE2emhXckRwTTdUSUF5WGtjUk5nb1JmMWVQV3haN01ETFFodUtnMG5CcXlNcnp6c1lZRUNGcHdsRjI4ZDgxLXdyT0VXOHVMUU1uWGVuaTEtX1lKNVAyTS1XMmF1cjJnTWFCV2VrUHQ2bzJCcUxPRjlweWkxLVpWa1lZV3XSAa4BQVVfeXFMUHNKNWl5d0hYQWRoQ1lWNS1COGhqTmZwSTFwelRNREw5c0lUQkhrLXl4cGE1Y3huczdncC14YUFjTXZnenZCWlE0UFV3Mm0yeDBDb2JHN25vVTRnc3plSEV2MUlRbVY5WjhybWgzXy1iM1RGZVMtUnlJeHJ5M0YtdGJsaWdIeG5vTG1NT2RWMVRPWHEtZUY3bHNxaUZ3R3hLNWQ4cU5uMk5FUnFPNWlB?oc=5) |
