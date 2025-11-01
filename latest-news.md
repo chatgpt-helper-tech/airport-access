@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 02:01:09（北京时间）**
+🕒 更新时间：**2025年11月02日 02:09:21（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Trump asking court how to "legally fund SNAP" after judge's order - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNaG44S3RKSjhiRndwaDAzc2pxNnZfY2l3YnBQVEZMMXIxcGpoMkZaS0RJbVFrRnlPUTFRQWFDeWF1TWxralVNdkt4ZWdqWG5XNVMyNDBpSklFMEpxV1lZSFIwNEtVUml0VjhoNTJQYmNrcVBNRmo1eDNBMlhTLWlVWVo5aHdUdw?oc=5) |
 | UK aid for Hurricane Melissa reaches Jamaica as Britons to be evacuated - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9NeFA1eUhqMWppeDQxTnBVS214VUdiYktNQm0yeTRPZTI0WE4xdjFESXRpaVBnTW56SmgtbWhNNHZOY2Vyeld2LTVLZU91V1ZXa2E0Sm8yTzF4d9IBX0FVX3lxTE9rS09FOF93LWhzTjR5WjlVQm9xeUJYbzA0U3c3VTI1bS1YZDdvV19MYmxoYVE2ekxESWpUdUJzbHJCNVpCWVVZeDMyRXo2VzVNeFRNOUFTbUN1aVZFVU1v?oc=5) |
-| Republican leaders reject Trump’s demands to scrap the Senate filibuster to end the shutdown - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMi7AFBVV95cUxOTmUwUG1nYVpodW4wVXRlMDBxVnNZeVNxYk9jU1BINDdhS3lqSFRLT2VXWF9wOWs2NzZRWWdpSWhRTTFnbGtzbkxFMlZxNlI3VnVjU1RmUkNWZENqYkJSMG5qVGt4dmtFbjk2U2lRRERaTlhtdEtkUFh5anUtQ2lZeE41Vk0yVkg5TDlCMm1qOWZpbXlMd1MzUXFtajE2UWlEblRERjAxZmdNVTgzUU0wOGNVaS1Uc25UdlFUeEZzM2hRZGktTURWZ1htN2dkQWF0TFFjaGQwXzlTSHZoOWlOYU5ZT1VuUDVvZWxoYw?oc=5) |
-| As shutdown hits one-month mark, federal workers are not okay - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOY1NZbUVGcTRMWkRuU29OUlpqcTNKQU5WOVhlZVZjUkoxblF3YnVncll6MGF0OWZxaHFfazBzbzl5SVRZM05WNjJzWU9kNXFwdzdyMTBoR2Z2LUZKZ0JVY2IzcDJJTDdHM0U5M05PTjFVMTFMc2tSaXNCd1J1RlFJeUFjdGdXSFpQT1BJ?oc=5) |
+| After a month of the shutdown, workers face mounting bills, car repossessions - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOY1NZbUVGcTRMWkRuU29OUlpqcTNKQU5WOVhlZVZjUkoxblF3YnVncll6MGF0OWZxaHFfazBzbzl5SVRZM05WNjJzWU9kNXFwdzdyMTBoR2Z2LUZKZ0JVY2IzcDJJTDdHM0U5M05PTjFVMTFMc2tSaXNCd1J1RlFJeUFjdGdXSFpQT1BJ?oc=5) |
+| Trump’s Demands Throw Wrench Into Delicate Shutdown Talks - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPQUJVamlBZnpVd1NscnYtRmRrZU1hSExJZDRHUnV0eWg4UzR4a01lMkJEVzBySzJFMVRWUlhaTjRTS05pcVd1Ylc4dmd1V2tqVEZLLXNLWUdZc2VHVU1jdlJCaG84NnVCYkdrTHNxVlFKVEN5eXZfS2JvckhVekRfaGY5YzUtdHFNT3FIZGlLUUJMaUxiak1jbTEwWi1DY1d0RktV?oc=5) |
 | What early voting data says about NYC, Virginia and New Jersey elections - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNTWI3UDRITGpFTDl3dGFLZ1pEVlRwd1dMVVo4SThJY09JTDRhQU5FbWNIQm92TU1ZTkJiVm9fUkFaTW41SWt6SWpuZEFLQmdhaHVCZjduUzN4UzdjekFENmVKVnpBM0pXeXdodjluYUFYTy1rNHNnZVZqRS1hSXJpbFhqTUoxdkFnM0lqNlBkUQ?oc=5) |
 | Tanzanian president wins disputed election with more than 97% of the vote - NPR | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOYk14Y3UwQ2EtRVpMM0xOemgxTkVPTkM5dzhPVXFVMy05Vjd5RWhXTzltNzM3aFluUkFzVUs0cDI4Y29BMWZ0Si1lZ1lGeGRXRjBoNWFsM0htQ2xrWVJiaUlOZkFFQ3VCUTdjWmNzeExidTdleGFzVGFfS3dpb0lMbEI0Y0p1SktBbUFFQWUtME5MNzMyUDNlUjBoZXpGZw?oc=5) |
 | What to Know About the New York City Mayoral Election - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdVZ0MW9FTDJWcG9IVUN6d2dSSUhZbmJ4Wkdmd2dYSmdKaGhMM0pobmF5R3VFUjZoX3BROWRQai1fS2VyNThTQlpFaEVfRmlNaHZmcU9TNEpWWG5NbTg1cUJ4Vm1CMHpuMUVibGdFVXoyMGV2Zkh3Qzd2YVRkN3Qwa25ubEg?oc=5) |
