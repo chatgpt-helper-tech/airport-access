@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 21:01:39（北京时间）**
+🕒 更新时间：**2025年11月01日 21:09:24（北京时间）**
 
 ---
 
@@ -23,13 +23,13 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Judges order USDA to restart SNAP funding, but hungry families won’t get immediate relief - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNR3JRM2VwVW1jSEdUUDk3VzAwN0dqZ3J2S0xnTk81SGVRczZ1cklkblBGTmpTWFVJbGZCUVNSMXdoM0dVZFJ5eU83Y2tDUExqdnRSVVl2aUp4OWRNTzFmX2RmNm9tdG5NNk9SMF9ZZWVVRXFHODNuZTRvQUxGaFVLOHcwSEg3YzhkQUNZOERoUHZYbk9UeXl0Nk9LcG1nQQ?oc=5) |
+| Uncertainty Persists for Americans Waiting for Food Benefits After SNAP Ruling - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE44Q0hyMHB1a0JCMWRVQTdqVGN4TEZHdXMxN0JaQ191a3pzZVZaR1RvTXE0VDFjM3oxTnNjOFpYRndBLWRwOHZhRWJGZ0szOVotalJaSmswNkFIVzhTVlJ4Yk9IMGtsWGdxeUpCTmdrN1c?oc=5) |
 | What’s the filibuster and why does Trump want to get rid of it during the shutdown? - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPOUhRQy1tUkJ5ZERsb1lPQ0hIZGJmQVVGNENnZGUxNUNWNHl2OG1sNXdDT2d3bm9FMUphcC1xVEptS0x1b0RnOW5RZVJGNXFzRWxqc3p6elRlWXI5S0dpWE8wRDFpSlJQTHcxNnNVTWxLelRoX3lCZUtid3U3VjFLZXNldDY1emxlSUJjMm5PWmc4YnJfek1TTnJn?oc=5) |
 | In One Jamaican Town, Hurricane Melissa Left Behind Floodwaters and Dead Livestock - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQaUs0bmNXeFFZTGJtRTAzaEZpdm1TM0NFSTNmNVBaVF95RTJiUlQxUTJTNFpOam9RMXhoU28tVUNUQ1BfRUwxQXpwUGJYZUJITHFMSWN3clBsNEczVmJpTTRaVW1uYl9MZXFob3hIOERlTkdVX3NSS19DMGwwY0RvRmFyR2xmZXJZdGpoOVhBb3NvMzA?oc=5) |
+| Here’s what we know and don’t know about the thwarted potential terror attack in Michigan - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1aMEFXeHBkR0ZGSGFuYVAxY2tsdDNheFdyejE2TW04V3I4a0p4OEFKQ0NJNDc1VUxpTG9aUUtpNzd5b1BXSHJfRV9ucy16RVVwTEJZZzBLN3l4OHVvLWFsQm1CdGNWbHctWUwyQkRCSDR5bURjQ09MNQ?oc=5) |
 | JD Vance Savaged as He Desperately Tries to Get In On the Joke - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNYURvcE9LejBKTmY5SnNFeXFJVDVPLXlDVGZxajRmNVlBXzh1OUdCNmdxS2RoeDY4UGktT2xjREJOd19fd3ZvcWt1bGJ1N3ZzTWNjZjJzUy1wRVl6T1JJWEVhU09sbEc3ZnJFUWFFa0RNem9BUW15Um1vNElVQ3NPTVQ5d29kN0NsTkp3Y0xjTWp3eFJ3T3Fhaw?oc=5) |
 | Election Day is Tuesday. Here are 5 questions about what the results might mean - NPR | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOai1yWFJRQzNaZVZQN2RvdXh6OExrSGoxVEdtNmpSblNXam5sVFZMaExodDBTVWpnWGp1YTFIa2libUhkZ0hFZVRvbXNKQWFzczI1RDFsNWhqc0VYQkZjdkxMNEJURWpuLXhpa012U2hNQ3U3dVAwLUpWWUpRTWl5dw?oc=5) |
-| White House restricts media access in key area of the West Wing - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQUWRINXVKLXNkbjJKUWhKZVF1clZuQUxGRVZQalAxRHl1S2wtTHpzQUxlamIwYXNzZXFaU2VjNFZTODJRSmE1MU96c0hWS3JwbWRlYm00NjZLQ3p3OXp1cG9oYUdiTTJqWmhqWm5WcDRobmpyM3BocGo4dDJHTlBQTHZ2WHVCRXNkQUJiLWhyMA?oc=5) |
-| Trump lays low in 2025 elections as Democrats attack him - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNTnVISnV1eXc3MDlvVXVZcHlWbUFRNmtiNzFjNnktWFdabGZsTXBYenNsdHpUek1UR2t6QTB4X0xWR282SXZ6UUt3aTF4SV9yeTE4OXFRdVlRZHdoTTl2S2lvcmdtTVlOcElIbWMzbnh3Qks4WVFadEVZc2p4dExrenlJZTN6UHU4WUYtbE1BMHdoQjVxcDVFNVRBSmI1QQ?oc=5) |
+| What Tuesday’s Elections Might Tell Us About Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPNVdhRXpXWG1IR21LTU5FREVRTVhLVnZaUjRiT2tGUzBEOHd4dkdJaFNkRWNhYzJyY0xveVZzS1E4cTNyNWg4TXNtLS1tcVVNYm5CUUpjaHh4UktGYXV5WE8wNHVoRGJna1lUbHRXMGVISTZIZGRrNF9LaDJlMC1XSkV6RWU3cmIwUjV1SVNEbXd4aEE?oc=5) |
 | US food banks are rushing to stock supplies amid Snap lapse: ‘garner all the resources that we can’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQVEJGVkxpQ2NyMTZvVTFUMlZLajNyZEI4Uk0yWDdydVNFZDJueXBic0FpZnE3cFVvSF9YQlVUQm9rY0FQaEFDODBxUzhCZHE5M2lKV3VoODA0SFVTdEZ5d3VXcW9pSE5BaDhYUEJJU1dtbmhuUUJlRXFzdXUwLVpvS1EtNU5uZFZYaWd5NVdB?oc=5) |
 | What to Know About the New York City Mayoral Election - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdVZ0MW9FTDJWcG9IVUN6d2dSSUhZbmJ4Wkdmd2dYSmdKaGhMM0pobmF5R3VFUjZoX3BROWRQai1fS2VyNThTQlpFaEVfRmlNaHZmcU9TNEpWWG5NbTg1cUJ4Vm1CMHpuMUVibGdFVXoyMGV2Zkh3Qzd2YVRkN3Qwa25ubEg?oc=5) |
 | Judge orders arrest of ex-Green Beret accused of plotting to invade Venezuela after he fails to show up in court - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNcUwzckxWSUVYZEtNdFNnYjNXU2dVNnhyNTJicGVacGUxVm9FcnFZVHljdUROdXdxN00wdjRhZDBiZ2JGM2RHODhJcVh0STIxU2NocXNXOU5QaEs3VUhnUjNtYkc5U1hRWmRoRHZsRlAzaGg1WFpjVEZ6X1EtUndZdjRVX0pCSS1uQmtUbVdmY0FXZXNBRENmeWhKMFRaRlFV0gGmAUFVX3lxTFAzMk40MF9RNUs1Z1cyT3lwNVJISDlKcVdESmNGNVpHVFdlRTF1cVd3aFhvc2JINFp4VTMwUzdKUWFiOEhxNlNDcW15ZFZPbFZQTlByWW15ZEtMRW82OHZjVTBfLV9MQVFMYmszSjZhR21SSzl5UzFnMkV5S2UxQlJZRUdUeHc4LVhUbkUxa21oZVo4Qy03VzM4OU50R2dobDBabFFjT1E?oc=5) |
