@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 08:56:30（北京时间）**
+🕒 更新时间：**2025年11月01日 09:00:20（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Judges order Trump administration to use emergency reserves for SNAP payments during the shutdown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPYWZ6T1NoZU1TVXVXTmc3amphUFN5bElGZ3FJWGVTRWtmVXQwSk9kWS1TcnppM1V0WUxGc2tCY1FLbU1XTWpfc2U1UjFPQVhzbVo0cmVvbUJESVJYWTBSelNlRnRLcWgyR3YtLVUyMEZrVUlSMlAwbWpwNWQxZER4WTA4cG5oS3RhTTFmXzFIMXR2VlRMX2c?oc=5) |
-| Republicans quickly push back on Trump’s call to nix filibuster - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQNWRRRjZxdmVMOXpZR0U5Mk43T04tQ0lQNzJrdFMwemhpLThKTDVnNXhONFkyS29UaFVZdlRGV242UFNSUnhybnZtNGNuVUVHQzV3YUVfY2ROekRVVWl0OGZCdGEyZFBuckxtb0s1TUx0RjNnUTg2RktBV3VvbXIwM3lJMGVFVkd6Z0phS2xxT2I?oc=5) |
+| Trump administration must release billions in SNAP funds, judge says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOeUdGNW11ekVsZEhibHpfLU5NVEpvSUdqTjBYallVRUJTOVo4SVdQdGhfQVpSbmdoeTdQWG50YlZFU2stN0R0ZUY2N3NMMjN2LVd1OXNmdUI1UU5XcXY3QnV3UzZWRlFoaFRGSUdJN0dTSzY1YWRiZVRDcHdfQkZTbzJlQU13X1c3d2Z6b3hDY2s?oc=5) |
+| What’s the filibuster and why does Trump want to get rid of it during the shutdown? - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPOUhRQy1tUkJ5ZERsb1lPQ0hIZGJmQVVGNENnZGUxNUNWNHl2OG1sNXdDT2d3bm9FMUphcC1xVEptS0x1b0RnOW5RZVJGNXFzRWxqc3p6elRlWXI5S0dpWE8wRDFpSlJQTHcxNnNVTWxLelRoX3lCZUtid3U3VjFLZXNldDY1emxlSUJjMm5PWmc4YnJfek1TTnJn?oc=5) |
 | In One Jamaican Town, Hurricane Melissa Left Behind Floodwaters and Dead Livestock - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQaUs0bmNXeFFZTGJtRTAzaEZpdm1TM0NFSTNmNVBaVF95RTJiUlQxUTJTNFpOam9RMXhoU28tVUNUQ1BfRUwxQXpwUGJYZUJITHFMSWN3clBsNEczVmJpTTRaVW1uYl9MZXFob3hIOERlTkdVX3NSS19DMGwwY0RvRmFyR2xmZXJZdGpoOVhBb3NvMzA?oc=5) |
 | President Trump shows off White House's Lincoln Bathroom renovated entirely in marble - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOMHdzV01rYlJWTmRPSVRYdUJscGF2aWZwT2NnOE1INklzTldGdGE2emhXckRwTTdUSUF5WGtjUk5nb1JmMWVQV3haN01ETFFodUtnMG5CcXlNcnp6c1lZRUNGcHdsRjI4ZDgxLXdyT0VXOHVMUU1uWGVuaTEtX1lKNVAyTS1XMmF1cjJnTWFCV2VrUHQ2bzJCcUxPRjlweWkxLVpWa1lZV3XSAa4BQVVfeXFMUHNKNWl5d0hYQWRoQ1lWNS1COGhqTmZwSTFwelRNREw5c0lUQkhrLXl4cGE1Y3huczdncC14YUFjTXZnenZCWlE0UFV3Mm0yeDBDb2JHN25vVTRnc3plSEV2MUlRbVY5WjhybWgzXy1iM1RGZVMtUnlJeHJ5M0YtdGJsaWdIeG5vTG1NT2RWMVRPWHEtZUY3bHNxaUZ3R3hLNWQ4cU5uMk5FUnFPNWlB?oc=5) |
 | US judge permanently blocks Trump order requiring voters to prove citizenship - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOMnNSQldVdkRFbXRlOGdWMjA3ajZXNFB4UnRsNFl3TUVSVEFTcTVQWmtKdVNTMm5PeE43cmJpYm9pZGFZVS1EeDE5dlliaGRxdTU5U1pJVVh0NE02c0E5YV9rTHBrUmxsYUgwbEloUnVYTm40MFZ4a3RzRWRFSEJuZkFVZkFmN1JSWl82LVV5eTdOc2pDNXpZRWowZUtsa2dzNVA0SkFESVltMjkzZ21GR2o3bHhhR2s?oc=5) |
