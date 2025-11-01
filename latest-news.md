@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 23:40:53（北京时间）**
+🕒 更新时间：**2025年11月01日 23:48:56（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Hurricane Melissa dies over the cold waters of the North Atlantic - Yale Climate Connections | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNWDgtN3dHUkZCY1NoLTUxV1AwY1Fack9fWmtSYXdGdjh5bUR1a3R4WDdnVEQ0QldYdEhVSzk4c0NKRDA2NF9PT1Vad1NsRjVRT2dDQU5hcW50VTg4LTFBOHpsbnctVXQ0VnQ2dU5icWdabVd2ZXc4U2pzT0RhS0dNSk5UcjRPZ1dLSzRvNUpWM09GVkpobHk4Rk9TMFIwS3FzWm55UnFVYkNBV1VtT2c?oc=5) |
 | Trump’s military pressure on Maduro evokes Latin America’s coup-ridden past - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE4xcHo5c09mMV9FTmpnSk1xYnlmbjFnSERqcUVpS1Y4NXFyV1E3OVVZYTNRZ2Q2c0RQRmhIMzNtckRTS1FMYUZXUGRPRjhWbGxjdTF4NlpIMEctanJtVEd1cGZtWmJucTlqWEVyTWptTGszdU94NUZrQzA2QXRnWVU?oc=5) |
 | New York City Mayor's Race: Live News and Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE91aGJsbjFaMHFuVVVMNldYRk84ZzEwcDBkQ3lISjVZWEZIRy1EV0pXRVVvcG9FbldiRk5YNDktYmwtTldnQ0txaVlxUmJucjFqaVdpZGtlUC1oMmdVUHpsNmFNQ3hKa0xWNUo4YWlfUUJXOFZid2pPR0g2U3E?oc=5) |
-| JD Vance Says He Hopes Usha Vance Embraces Christianity, Setting Off Backlash - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPeVdaMDNDTXJwQ1lBX1l1WXprSFZNRktwUUR0MUM0LTlKdzc4QzE0WVVTLVA2MTFlTXJCOWVqdWZac25kdjNqMUFtVmlaaThoV3BJckEtN0Jnc193U2xaTXNMMkpsbXd5YkFjVWlzZlVhb09uTmRBNElPNmh3aFpQRW5Ec0tqVkZ2UENqNXN6cTJiVkd6clFuVQ?oc=5) |
 | Judge orders arrest of ex-Green Beret accused of plotting to invade Venezuela after he fails to show up in court - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNcUwzckxWSUVYZEtNdFNnYjNXU2dVNnhyNTJicGVacGUxVm9FcnFZVHljdUROdXdxN00wdjRhZDBiZ2JGM2RHODhJcVh0STIxU2NocXNXOU5QaEs3VUhnUjNtYkc5U1hRWmRoRHZsRlAzaGg1WFpjVEZ6X1EtUndZdjRVX0pCSS1uQmtUbVdmY0FXZXNBRENmeWhKMFRaRlFV0gGmAUFVX3lxTFAzMk40MF9RNUs1Z1cyT3lwNVJISDlKcVdESmNGNVpHVFdlRTF1cVd3aFhvc2JINFp4VTMwUzdKUWFiOEhxNlNDcW15ZFZPbFZQTlByWW15ZEtMRW82OHZjVTBfLV9MQVFMYmszSjZhR21SSzl5UzFnMkV5S2UxQlJZRUdUeHc4LVhUbkUxa21oZVo4Qy03VzM4OU50R2dobDBabFFjT1E?oc=5) |
+| Trump lays low in 2025 elections as Democrats attack him - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNTnVISnV1eXc3MDlvVXVZcHlWbUFRNmtiNzFjNnktWFdabGZsTXBYenNsdHpUek1UR2t6QTB4X0xWR282SXZ6UUt3aTF4SV9yeTE4OXFRdVlRZHdoTTl2S2lvcmdtTVlOcElIbWMzbnh3Qks4WVFadEVZc2p4dExrenlJZTN6UHU4WUYtbE1BMHdoQjVxcDVFNVRBSmI1QQ?oc=5) |
 | All the U.S. military strikes against alleged drug boats - PBS | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQdUZETTRzRjhMSlY5a01wTXlqN1RtMG4tMTRQZjNrNnQzNzJBcnEyYTNIUEVIUU12VGprVjliVUVzQ3NaTWtPQ0lWV2dYekFEMTNTNnVPNXRXZUhNc296QUY3R0xtSUp5RFdyalo5QzgtQUVvNGVvc2M4LVN5SXBsTFhBMXdGWXE0TTAzQy1NdWxHc3df0gGaAUFVX3lxTFBLd3M1dV9zdWRDVlRyUFo0c3huTm5xT2ZuZ2xNQ01FNjRGM0d4SmY2US1HclZNbF9ZVDJodWxrZThFLUNDNkRydmpqeVh6SUlFeW1DTUFOaEpjd1ZIeTdjOXY0dFJzUUlWcTFfMlFOdWxqZHhyUWdwTDQ0UWktdEQxelB2M3ZrdXdQdWgwa29INkdnWERobzRxZEE?oc=5) |
 
 ---
