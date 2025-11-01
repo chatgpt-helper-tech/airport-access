@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 10:41:42（北京时间）**
+🕒 更新时间：**2025年11月01日 10:48:03（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | Ex-sergeant major jailed for six months for sexual assault of soldier who took her own life | [阅读全文](https://www.bbc.com/news/articles/cvgd1zk5nrgo?at_medium=RSS&at_campaign=rss) |
 | Strictly pros transform into ghouls for Halloween week - and a Celebrity Traitor guest stars | [阅读全文](https://www.bbc.com/news/articles/c2lp72n0p0vo?at_medium=RSS&at_campaign=rss) |
 | Just Stop Oil trio cleared over Stonehenge orange powder protest | [阅读全文](https://www.bbc.com/news/articles/cjekdqj7529o?at_medium=RSS&at_campaign=rss) |
-| Halloween 2025: The best celebrity costumes so far | [阅读全文](https://www.bbc.com/news/articles/c4gpwn5v072o?at_medium=RSS&at_campaign=rss) |
+| Halloween 2025: All the celebrity costumes, including Heidi Klum's party | [阅读全文](https://www.bbc.com/news/articles/c4gpwn5v072o?at_medium=RSS&at_campaign=rss) |
 | How will Andrew's titles be removed and what happens next? | [阅读全文](https://www.bbc.com/news/articles/c5ylk9r336zo?at_medium=RSS&at_campaign=rss) |
 | The King is expected to fund Andrew's move - but where does he get his money? | [阅读全文](https://www.bbc.com/news/articles/cwy5lzq94gqo?at_medium=RSS&at_campaign=rss) |
 | The houses on the sprawling Sandringham Estate that could become Andrew's next home | [阅读全文](https://www.bbc.com/news/articles/c201zvrpvw9o?at_medium=RSS&at_campaign=rss) |
