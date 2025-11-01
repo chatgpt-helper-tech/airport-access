@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 23:24:18（北京时间）**
+🕒 更新时间：**2025年11月01日 23:32:06（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | Cruise cancelled following death of woman left behind on island | [阅读全文](https://www.bbc.com/news/articles/c5y44ly3vg2o?at_medium=RSS&at_campaign=rss) |
 | Tutankhamun tomb on display in full for first time as Grand Museum opens in Egypt | [阅读全文](https://www.bbc.com/news/articles/ckg4q403rpzo?at_medium=RSS&at_campaign=rss) |
 | At 21, I was crushed by a stranger's joke about going bald. Then the way I looked at myself changed | [阅读全文](https://www.bbc.com/news/articles/c993ygv9g25o?at_medium=RSS&at_campaign=rss) |
-| Why Sarah Ferguson, Beatrice and Eugenie can't escape the taint of family scandal | [阅读全文](https://www.bbc.com/news/articles/cy8vrzpgxnro?at_medium=RSS&at_campaign=rss) |
-| The houses on the sprawling Sandringham Estate that could become Andrew's next home | [阅读全文](https://www.bbc.com/news/articles/c201zvrpvw9o?at_medium=RSS&at_campaign=rss) |
-| The King is expected to fund Andrew's move - but where does he get his money? | [阅读全文](https://www.bbc.com/news/articles/cwy5lzq94gqo?at_medium=RSS&at_campaign=rss) |
 | She's a pop star, he's a former PM - why Katy Perry and Justin Trudeau just might work | [阅读全文](https://www.bbc.com/news/articles/cn09r01k9yqo?at_medium=RSS&at_campaign=rss) |
+| The best looks from Heidi Klum's Halloween party | [阅读全文](https://www.bbc.com/news/articles/c4gpwn5v072o?at_medium=RSS&at_campaign=rss) |
+| 'Nobody owns the sand': The 12-metre fence dividing an affluent beach town | [阅读全文](https://www.bbc.com/news/articles/cgkznrjme1po?at_medium=RSS&at_campaign=rss) |
+| Strictly gears up for Halloween week - and a Celebrity Traitor guest stars | [阅读全文](https://www.bbc.com/news/articles/c2lp72n0p0vo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | Trump’s military pressure on Maduro evokes Latin America’s coup-ridden past - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE4xcHo5c09mMV9FTmpnSk1xYnlmbjFnSERqcUVpS1Y4NXFyV1E3OVVZYTNRZ2Q2c0RQRmhIMzNtckRTS1FMYUZXUGRPRjhWbGxjdTF4NlpIMEctanJtVEd1cGZtWmJucTlqWEVyTWptTGszdU94NUZrQzA2QXRnWVU?oc=5) |
 | Trump lays low in 2025 elections as Democrats attack him - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNTnVISnV1eXc3MDlvVXVZcHlWbUFRNmtiNzFjNnktWFdabGZsTXBYenNsdHpUek1UR2t6QTB4X0xWR282SXZ6UUt3aTF4SV9yeTE4OXFRdVlRZHdoTTl2S2lvcmdtTVlOcElIbWMzbnh3Qks4WVFadEVZc2p4dExrenlJZTN6UHU4WUYtbE1BMHdoQjVxcDVFNVRBSmI1QQ?oc=5) |
 | New York City Mayor's Race: Live News and Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE91aGJsbjFaMHFuVVVMNldYRk84ZzEwcDBkQ3lISjVZWEZIRy1EV0pXRVVvcG9FbldiRk5YNDktYmwtTldnQ0txaVlxUmJucjFqaVdpZGtlUC1oMmdVUHpsNmFNQ3hKa0xWNUo4YWlfUUJXOFZid2pPR0g2U3E?oc=5) |
-| FAA warns of ‘surge’ in air traffic controllers calling out of work - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPSXcxSFR4SU5VdThPZDFmbm85ZWNWd0x6dGxiNmM4RW0xbG9kTV96em53LWo4X1lKY0RmMGpCQ3NnZ1ZrVlhSb21YMXhEd0pBVUxOMmh2eGc5ZmlWamZ5MU5VRnhleG9kbWdjbjZ2WHMzVnI5QlNvRFo2aHZFSDNLaFNLdFVmaTRtTDdWdy1HTEFDak1VaVhiZEFIUWhDd214NnN1N0JvQ0diWmw3bzZJUUtuOEo0dw?oc=5) |
 | Judge orders arrest of ex-Green Beret accused of plotting to invade Venezuela after he fails to show up in court - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNcUwzckxWSUVYZEtNdFNnYjNXU2dVNnhyNTJicGVacGUxVm9FcnFZVHljdUROdXdxN00wdjRhZDBiZ2JGM2RHODhJcVh0STIxU2NocXNXOU5QaEs3VUhnUjNtYkc5U1hRWmRoRHZsRlAzaGg1WFpjVEZ6X1EtUndZdjRVX0pCSS1uQmtUbVdmY0FXZXNBRENmeWhKMFRaRlFV0gGmAUFVX3lxTFAzMk40MF9RNUs1Z1cyT3lwNVJISDlKcVdESmNGNVpHVFdlRTF1cVd3aFhvc2JINFp4VTMwUzdKUWFiOEhxNlNDcW15ZFZPbFZQTlByWW15ZEtMRW82OHZjVTBfLV9MQVFMYmszSjZhR21SSzl5UzFnMkV5S2UxQlJZRUdUeHc4LVhUbkUxa21oZVo4Qy03VzM4OU50R2dobDBabFFjT1E?oc=5) |
+| FBI says shooter in deadly Michigan church attack was motivated by hatred toward the Mormon faith - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiakFVX3lxTE1mbHdKc2ktUGFFMTVESmRSb3VZZUtWaTUwMzY3S2hCcUx4YU1UeTRlM0VvQjFYRnpiSTI1MXNWSVU5X3JCV2Z6SlZrOTd0YUZTYjF1Y0Rsc1Z5M2I1TUJFa0tpQXl1WFFMY0E?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
