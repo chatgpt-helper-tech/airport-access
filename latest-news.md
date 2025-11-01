@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 15:32:41（北京时间）**
+🕒 更新时间：**2025年11月01日 15:40:12（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Trump administration must release billions in SNAP funds, judge says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOeUdGNW11ekVsZEhibHpfLU5NVEpvSUdqTjBYallVRUJTOVo4SVdQdGhfQVpSbmdoeTdQWG50YlZFU2stN0R0ZUY2N3NMMjN2LVd1OXNmdUI1UU5XcXY3QnV3UzZWRlFoaFRGSUdJN0dTSzY1YWRiZVRDcHdfQkZTbzJlQU13X1c3d2Z6b3hDY2s?oc=5) |
 | Trump wants to shatter the filibuster, another Senate norm. Republicans are pushing back. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTFA4NE1BX1lybU9iSUtEMGdfbnRnOXZXTm9NS2xfOXhkQVFrc2ZVdng2Zm9pTkVCVkV4OTdmcUlsR2Z6Y0M0Z1ZKZDZJRDdxcVhJTjNiTzhYMjB1bDcwV2lFWVRQd3lCV1k3alRaV3FZbWFUQk1GaVE?oc=5) |
-| Judge Permanently Bars Trump From Requiring Proof of Citizenship for Voter Registration - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQdU15X2FkMks3dThGQkZsRm1ReVluaDItT2Y2NDQ4NmpKQmdyWWZiWTZTQm03U2RtY3Q3c2pIdEV6Wl94dzdFY3Z2YTlPX255dE9WcXdSUmNUVXRjS1g1NzF5YXBVTnpySXpQdzR6S1R0UFdaaTI3LXZkbVRrcHZNWFpTOEZuUUpVdHZadTZuQTc0STd1bW9xRWVB?oc=5) |
-| Trump Reveals Photos Of Remodeled Lincoln Bathroom—Latest White House Renovation - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNaE9nQWpmaEluOE81WUNkck1nVzlTVXlKNUs2TlE1SV9iMEpneDY2RTNFMHljLU5YWDA3OXQ0ZkFkZEJxOV84c3NHTVhSWVJwYTQwQjZUTFVyLU9rc2dfOGNHUjhhUnBJcF9DcWhIelJ3Z0ZJT1BBMGZINEF5OEVBSWpBNUNTUzJzNElScEhyelFtc1RxbkpsN281Z1lsY0hUVWtTRVVmTFVZZV9EMllYYVFGWElaQzFUWWZ6dkVxOG4yZUlMTk4zaXU0QWpzQQ?oc=5) |
+| Federal judge rules Trump can’t require citizenship proof on the federal voting form - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOVXhtc2VRLXZDdmdqQUVUMDZxUk0tLTJHN3A1ZUhqQlpXdzlCZGRGLWt3N2lZa2NiX1N0WEl0SUEwX3NBRlNHS2V4OWZDUGpackJHcmZLSFlkZURRdzdrNi0xZ3hZeHN6T19tMG9rR1E4eDBTdzJwX0t2dURoRWtkdUViWkFuU241QXA3emxzemp4VlNIbm1zVGI5VExGTFdOUGZvZU5Zc3UteEtmdDJCbWhYbw?oc=5) |
+| Trump Remodels Lincoln Bathroom With Marble In Latest White House Renovation: Photos - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxNaE9nQWpmaEluOE81WUNkck1nVzlTVXlKNUs2TlE1SV9iMEpneDY2RTNFMHljLU5YWDA3OXQ0ZkFkZEJxOV84c3NHTVhSWVJwYTQwQjZUTFVyLU9rc2dfOGNHUjhhUnBJcF9DcWhIelJ3Z0ZJT1BBMGZINEF5OEVBSWpBNUNTUzJzNElScEhyelFtc1RxbkpsN281Z1lsY0hUVWtTRVVmTFVZZV9EMllYYVFGWElaQzFUWWZ6dkVxOG4yZUlMTk4zaXU0QWpzQQ?oc=5) |
 | Kash Patel says FBI thwarted alleged ‘terrorist attack’ in Michigan - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOYmVTSTE0VzcxeG1wSU5TbDNLa21Rb25IcDgzUVZJVkpXTUZWQnUzZ3IyRVBqeWRmZmpFRkoyeXdDRUlBcTZyTTRIMTRtT2VDSlhJeDFhTEpCNTNNMTJOd2NzdDNqa1V3Mm4zdXBLVFozMlpXSWRaNEhhN0ZaN3pmRmZKUTNRcnJCTWZlQnRVOUllWEZYaEs3TXVTV19CUnlLVWxCMDd6QVBKVjDSAbABQVVfeXFMUHpJV3NoTTJQVm5jdmhBNXpyYndUay1UMXFTSE5LTS1QUjZQZmZBN3ppMHAwMkNLVmwzMmE2M2Izak1CeG00Y01fRDhJNm95dzdoTDkyV05LZnFkNnIxTEdKQzBlTW1rSXNzTElUcEhjQ2Z4YzQ2SXlWTm9VN2FGZTUydThNU1h0SkR2ckMwdEdzcGZ2Q25GU0hKWkNWS1BPdU1FX2JjZ0lwYjgydzZtX3g?oc=5) |
 | ‘How do you rebuild all this?’ Black River residents assess damage after Hurricane Melissa - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNQjlaUTN5WWczbV9MZ2hsZGZWc0E0TzBfcUFPYUlMQzZvb1c3ek54M3ZPd3NzTDNfaEllRzRvUnpBei1Dd3IxTUdjNzNNYndicHpXLTFFbmxucl9DMUdPOXlZb1dQSGJxVGU0bVRqQldBc1VpMFQ0LUNuQXJERzBZblJNT3hNb3pOb0Q2R1JmY01DMG0zS3pTazNFWkREUVp0eUdaeUJ0UV9pTlNBQ3JXekV3dw?oc=5) |
 | Staff Shortages at 35 Air Traffic Control Sites Disrupt Travel - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE9zWHJLVEpyWDFEd3FqcDI1UXI0LUhMQURuN1ZJOGtpNkVwbkJFRkVOZklSTEgtdE9acnd5OC02c0JQTDFCbURnWFdXMUVaN1VJendYRXU1TDhSMDFybGJiYUNzQ2twZVY0YkN2N2ZEX0Vudw?oc=5) |
