@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 22:17:56（北京时间）**
+🕒 更新时间：**2025年11月01日 22:25:22（北京时间）**
 
 ---
 
@@ -27,8 +27,8 @@
 | Trump faces critical point in government shutdown, SNAP cutoff - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOdkRJYkktMVQydzVFVTc3Z1NGTzI1MGkyM1l3cm9kbllvUmN1ODJ2RVlydEZqX1ExLTRDdGc4Y2lkRFQ0Z0I1QU9HUE5nX1ZIMThXQkd6Q1JyTG40c2V2N0FMTHpXU2g4eVdvYXRTU3NRTWx6TXJBSExzZ3MxU0Q3cjFJd1JFenpDVlIwUmxJYkV0aDFaRm13eHJSNkFxOGVNWVY2RTVTSHBQY2Jyb1HSAbMBQVVfeXFMUFF6Q1ViLVY5ekNjVUt2akNmNlQzZkNCUWxXaER4cDVIck1zWi1FRGJVa1VsOFFCck95Zk9wSGQzY1RfUVZqLTAwYy1FYVFEMVRwTmxjdkNMNENVSmE1Y0trUFJpYTZSZjZzNWlGYlNva3p0a0tXdFZJSXFNY3dsdEFvZDFaNGRFdDRUSzJaeGtJTlN4V3NDWTNzMkJfR2VlYmM1c2VXZXgzc0tzVE5kd3JTUmc?oc=5) |
 | Tracking the Early Vote in New York, New Jersey and Virginia - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE45bGpkbDRfckpGNnBTcGJlempWZHQ3Nzh0UHoyZlNHNVJhOEJBaWhJcURzV1J6LUlwNW5ROUgta2diUW5EQjYxTFpmcHZHRi1zaGlWMkFoYm92ZnFuemVDSDFDRkRZM1NFVExyaHY5MEp5c3E5QU9wSU42Tmkzdw?oc=5) |
 | In One Jamaican Town, Hurricane Melissa Left Behind Floodwaters and Dead Livestock - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQaUs0bmNXeFFZTGJtRTAzaEZpdm1TM0NFSTNmNVBaVF95RTJiUlQxUTJTNFpOam9RMXhoU28tVUNUQ1BfRUwxQXpwUGJYZUJITHFMSWN3clBsNEczVmJpTTRaVW1uYl9MZXFob3hIOERlTkdVX3NSS19DMGwwY0RvRmFyR2xmZXJZdGpoOVhBb3NvMzA?oc=5) |
-| Appeals Court Rules Border Patrol Chief Greg Bovino Does Not Have to Check In Every Day With Federal Judge - WTTW | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOd3pBSjFlckl1UWprWE9VWlNUc1N6X2FWcVhiRGNBMmdadzlfWUF1Sk9RQndGY1ZoamxLUklSSnZMNnZPbjBWM25mNDIwSEpRREQxeWVJQ2dpTlY3WnU2SGR6Sy0tSFZtbDVvZG1jVUFNM2tobm01NExCMVRHQ3pDTU5yWmZsbmx2QnBHUHkwTTZLR3FmMUQzX21JLXd1clMwZ2pUTFRZdEZXMU0yTzM5d08zVVo?oc=5) |
 | Maduro braces for a U.S. attack; Venezuelans worry more about dinner - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPRVRiclRtSlRDcllQMzVMQkxCNUdVa0VERHdRbm1KRUFlRmk1MmRLSUZESHVkcFQ4TVJhUGZNZTRnN1VQOWVjelZ5d2hXWmFsLV9uRC0zT255VDl4YUNBa05HVUJ3VzhsenFqRFZhTHUwN0JlckNyT0hubEp5M2pqZWJqX0M0eVk?oc=5) |
+| Here’s what we know and don’t know about the thwarted potential terror attack in Michigan - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1aMEFXeHBkR0ZGSGFuYVAxY2tsdDNheFdyejE2TW04V3I4a0p4OEFKQ0NJNDc1VUxpTG9aUUtpNzd5b1BXSHJfRV9ucy16RVVwTEJZZzBLN3l4OHVvLWFsQm1CdGNWbHctWUwyQkRCSDR5bURjQ09MNQ?oc=5) |
 | Trump lays low in 2025 elections as Democrats attack him - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNTnVISnV1eXc3MDlvVXVZcHlWbUFRNmtiNzFjNnktWFdabGZsTXBYenNsdHpUek1UR2t6QTB4X0xWR282SXZ6UUt3aTF4SV9yeTE4OXFRdVlRZHdoTTl2S2lvcmdtTVlOcElIbWMzbnh3Qks4WVFadEVZc2p4dExrenlJZTN6UHU4WUYtbE1BMHdoQjVxcDVFNVRBSmI1QQ?oc=5) |
 | US food banks are rushing to stock supplies amid Snap lapse: ‘garner all the resources that we can’ - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQVEJGVkxpQ2NyMTZvVTFUMlZLajNyZEI4Uk0yWDdydVNFZDJueXBic0FpZnE3cFVvSF9YQlVUQm9rY0FQaEFDODBxUzhCZHE5M2lKV3VoODA0SFVTdEZ5d3VXcW9pSE5BaDhYUEJJU1dtbmhuUUJlRXFzdXUwLVpvS1EtNU5uZFZYaWd5NVdB?oc=5) |
 | N.Y.C. Mayor’s Race Live Updates: Campaign Enters Final Weekend Before Election Day - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE91aGJsbjFaMHFuVVVMNldYRk84ZzEwcDBkQ3lISjVZWEZIRy1EV0pXRVVvcG9FbldiRk5YNDktYmwtTldnQ0txaVlxUmJucjFqaVdpZGtlUC1oMmdVUHpsNmFNQ3hKa0xWNUo4YWlfUUJXOFZid2pPR0g2U3E?oc=5) |
