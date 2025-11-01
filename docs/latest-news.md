@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 08:49:09（北京时间）**
+🕒 更新时间：**2025年11月01日 08:56:30（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump administration must release billions in SNAP funds, judge says - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOeUdGNW11ekVsZEhibHpfLU5NVEpvSUdqTjBYallVRUJTOVo4SVdQdGhfQVpSbmdoeTdQWG50YlZFU2stN0R0ZUY2N3NMMjN2LVd1OXNmdUI1UU5XcXY3QnV3UzZWRlFoaFRGSUdJN0dTSzY1YWRiZVRDcHdfQkZTbzJlQU13X1c3d2Z6b3hDY2s?oc=5) |
-| What’s the filibuster and why does Trump want to get rid of it during the shutdown? - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPOUhRQy1tUkJ5ZERsb1lPQ0hIZGJmQVVGNENnZGUxNUNWNHl2OG1sNXdDT2d3bm9FMUphcC1xVEptS0x1b0RnOW5RZVJGNXFzRWxqc3p6elRlWXI5S0dpWE8wRDFpSlJQTHcxNnNVTWxLelRoX3lCZUtid3U3VjFLZXNldDY1emxlSUJjMm5PWmc4YnJfek1TTnJn?oc=5) |
+| Judges order Trump administration to use emergency reserves for SNAP payments during the shutdown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPYWZ6T1NoZU1TVXVXTmc3amphUFN5bElGZ3FJWGVTRWtmVXQwSk9kWS1TcnppM1V0WUxGc2tCY1FLbU1XTWpfc2U1UjFPQVhzbVo0cmVvbUJESVJYWTBSelNlRnRLcWgyR3YtLVUyMEZrVUlSMlAwbWpwNWQxZER4WTA4cG5oS3RhTTFmXzFIMXR2VlRMX2c?oc=5) |
+| Republicans quickly push back on Trump’s call to nix filibuster - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQNWRRRjZxdmVMOXpZR0U5Mk43T04tQ0lQNzJrdFMwemhpLThKTDVnNXhONFkyS29UaFVZdlRGV242UFNSUnhybnZtNGNuVUVHQzV3YUVfY2ROekRVVWl0OGZCdGEyZFBuckxtb0s1TUx0RjNnUTg2RktBV3VvbXIwM3lJMGVFVkd6Z0phS2xxT2I?oc=5) |
 | In One Jamaican Town, Hurricane Melissa Left Behind Floodwaters and Dead Livestock - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQaUs0bmNXeFFZTGJtRTAzaEZpdm1TM0NFSTNmNVBaVF95RTJiUlQxUTJTNFpOam9RMXhoU28tVUNUQ1BfRUwxQXpwUGJYZUJITHFMSWN3clBsNEczVmJpTTRaVW1uYl9MZXFob3hIOERlTkdVX3NSS19DMGwwY0RvRmFyR2xmZXJZdGpoOVhBb3NvMzA?oc=5) |
 | President Trump shows off White House's Lincoln Bathroom renovated entirely in marble - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOMHdzV01rYlJWTmRPSVRYdUJscGF2aWZwT2NnOE1INklzTldGdGE2emhXckRwTTdUSUF5WGtjUk5nb1JmMWVQV3haN01ETFFodUtnMG5CcXlNcnp6c1lZRUNGcHdsRjI4ZDgxLXdyT0VXOHVMUU1uWGVuaTEtX1lKNVAyTS1XMmF1cjJnTWFCV2VrUHQ2bzJCcUxPRjlweWkxLVpWa1lZV3XSAa4BQVVfeXFMUHNKNWl5d0hYQWRoQ1lWNS1COGhqTmZwSTFwelRNREw5c0lUQkhrLXl4cGE1Y3huczdncC14YUFjTXZnenZCWlE0UFV3Mm0yeDBDb2JHN25vVTRnc3plSEV2MUlRbVY5WjhybWgzXy1iM1RGZVMtUnlJeHJ5M0YtdGJsaWdIeG5vTG1NT2RWMVRPWHEtZUY3bHNxaUZ3R3hLNWQ4cU5uMk5FUnFPNWlB?oc=5) |
 | US judge permanently blocks Trump order requiring voters to prove citizenship - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOMnNSQldVdkRFbXRlOGdWMjA3ajZXNFB4UnRsNFl3TUVSVEFTcTVQWmtKdVNTMm5PeE43cmJpYm9pZGFZVS1EeDE5dlliaGRxdTU5U1pJVVh0NE02c0E5YV9rTHBrUmxsYUgwbEloUnVYTm40MFZ4a3RzRWRFSEJuZkFVZkFmN1JSWl82LVV5eTdOc2pDNXpZRWowZUtsa2dzNVA0SkFESVltMjkzZ21GR2o3bHhhR2s?oc=5) |
@@ -32,7 +32,7 @@
 | These are Ohio's new congressional districts - News 5 Cleveland WEWS | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQZDRDTjRhS2tWMDhObnVJUm9UU2JRODJ4MmhXU1RObXFYVmpTY0QyMXNZTGZmWWJMNFFMRXhUM3E5empQTVNLaVhqREJvbmp0QkxaZUM0eWItNkVPUWdKaUhRdTR5b0s4YTloeHFwMXZub2E1ZGdMR1V1bFdDR2ZmbTUwXy1zbG4tT1ZncXF2amVlNWd2QURJMFdhZXZXZDA1Nm8xNg?oc=5) |
 | Air traffic controller shortages lead to broader US flight delays as shutdown nears one-month mark - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPV3ZibnBaYnA1c0JyUTRtblhkTDFneTlla0ZUZ19qWDhVbGlEbi05UWtkOFJJZzVWdXp0eV9hS05UVkVsVzgtNXBfVGtoTTlFOXBjdTBUNW5QWU9lQUJiR2w2dGZZV2lYVjVlZ21RTDdGSWFpYTBUb0ExSldXWTNkYzUwck5DU1NQSUNMVk9lbzQ2eGR3eGstaFRrVzg5UnFkcEtGa2xINHZMQ3M?oc=5) |
 | Millions face 'huge sticker shock' when ACA open enrollment starts Nov. 1 - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPRllydE04UHB0QmN4Vk5KOGhobThCQmJLQk0zMnJGeHR2czhoZGEzQ3Y1TnpfNmFibUI3UHRCRDZCckJ5MnNrclc1SjFXVzYzdnNobllFMzhKYmVNVHFUSWdLeVdpVjdKOGtuQUhxSThFSVM4V1Z0WXViZVEwcGpxdFVsUzN6d3p4VGfSAY8BQVVfeXFMT25feEtpcmpxcXZsZE1LcEdpTEQtRVJINFNjejJuY2R5QTljdXBGV2tXZHN4cTdNWHQzNzUtbFRMc1BtSjllYlY1OVZ5eWdTQkgySlFDUHM0MEpxZm9tbmRJTElTZGJJejlxQkdsM1pEQ3VTQ2NQenFYcHlzX2RscThRVk43ckY5NDBjbzRJRFU?oc=5) |
-| JD Vance Says He Hopes Usha Vance Embraces Christianity, Setting Off Backlash - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPeVdaMDNDTXJwQ1lBX1l1WXprSFZNRktwUUR0MUM0LTlKdzc4QzE0WVVTLVA2MTFlTXJCOWVqdWZac25kdjNqMUFtVmlaaThoV3BJckEtN0Jnc193U2xaTXNMMkpsbXd5YkFjVWlzZlVhb09uTmRBNElPNmh3aFpQRW5Ec0tqVkZ2UENqNXN6cTJiVkd6clFuVQ?oc=5) |
+| Virginia Democrats take first step toward redrawing the state's congressional map - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOWXJOUEp4WDdCSktlTmNhMXRsSW4tYThobExzbUdOWVRKd2FMQVR0U1FRdUxycHNmX0RhUUZjWUZlMEE4VGNWY0JZRkV0U29tTUkyeGw4ajUwQzJHaWNLV3BwcExXaDBNY1NOSnk5MG9hMTdLenVLWjRHckotanFVM1NiaTJxLUhfWVVtMHdYVWstTjFGSzI5eWx4TWZoTmhacHJfMlE3LXVBNTBxdzVfcGJULUdlRUxWc0RLWVJpQkLSAVZBVV95cUxNZnNhZUdRYk9Cdl9QQ0l6QmlKUkxEV1pLcGFRWEF6UWlXbFhmR01tSm9kaUlRbWo5VEcxNEltYzZDV3ozbzV0S0p4OGRvaGlHQ1NzWkJNZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。

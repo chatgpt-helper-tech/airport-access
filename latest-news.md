@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月01日 08:49:08（北京时间）**
+🕒 更新时间：**2025年11月01日 08:56:30（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | These are Ohio's new congressional districts - News 5 Cleveland WEWS | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQZDRDTjRhS2tWMDhObnVJUm9UU2JRODJ4MmhXU1RObXFYVmpTY0QyMXNZTGZmWWJMNFFMRXhUM3E5empQTVNLaVhqREJvbmp0QkxaZUM0eWItNkVPUWdKaUhRdTR5b0s4YTloeHFwMXZub2E1ZGdMR1V1bFdDR2ZmbTUwXy1zbG4tT1ZncXF2amVlNWd2QURJMFdhZXZXZDA1Nm8xNg?oc=5) |
 | Air traffic controller shortages lead to broader US flight delays as shutdown nears one-month mark - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPV3ZibnBaYnA1c0JyUTRtblhkTDFneTlla0ZUZ19qWDhVbGlEbi05UWtkOFJJZzVWdXp0eV9hS05UVkVsVzgtNXBfVGtoTTlFOXBjdTBUNW5QWU9lQUJiR2w2dGZZV2lYVjVlZ21RTDdGSWFpYTBUb0ExSldXWTNkYzUwck5DU1NQSUNMVk9lbzQ2eGR3eGstaFRrVzg5UnFkcEtGa2xINHZMQ3M?oc=5) |
 | Millions face 'huge sticker shock' when ACA open enrollment starts Nov. 1 - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPRllydE04UHB0QmN4Vk5KOGhobThCQmJLQk0zMnJGeHR2czhoZGEzQ3Y1TnpfNmFibUI3UHRCRDZCckJ5MnNrclc1SjFXVzYzdnNobllFMzhKYmVNVHFUSWdLeVdpVjdKOGtuQUhxSThFSVM4V1Z0WXViZVEwcGpxdFVsUzN6d3p4VGfSAY8BQVVfeXFMT25feEtpcmpxcXZsZE1LcEdpTEQtRVJINFNjejJuY2R5QTljdXBGV2tXZHN4cTdNWHQzNzUtbFRMc1BtSjllYlY1OVZ5eWdTQkgySlFDUHM0MEpxZm9tbmRJTElTZGJJejlxQkdsM1pEQ3VTQ2NQenFYcHlzX2RscThRVk43ckY5NDBjbzRJRFU?oc=5) |
-| JD Vance Says He Hopes Usha Vance Embraces Christianity, Setting Off Backlash - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPeVdaMDNDTXJwQ1lBX1l1WXprSFZNRktwUUR0MUM0LTlKdzc4QzE0WVVTLVA2MTFlTXJCOWVqdWZac25kdjNqMUFtVmlaaThoV3BJckEtN0Jnc193U2xaTXNMMkpsbXd5YkFjVWlzZlVhb09uTmRBNElPNmh3aFpQRW5Ec0tqVkZ2UENqNXN6cTJiVkd6clFuVQ?oc=5) |
+| Virginia Democrats take first step toward redrawing the state's congressional map - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOWXJOUEp4WDdCSktlTmNhMXRsSW4tYThobExzbUdOWVRKd2FMQVR0U1FRdUxycHNmX0RhUUZjWUZlMEE4VGNWY0JZRkV0U29tTUkyeGw4ajUwQzJHaWNLV3BwcExXaDBNY1NOSnk5MG9hMTdLenVLWjRHckotanFVM1NiaTJxLUhfWVVtMHdYVWstTjFGSzI5eWx4TWZoTmhacHJfMlE3LXVBNTBxdzVfcGJULUdlRUxWc0RLWVJpQkLSAVZBVV95cUxNZnNhZUdRYk9Cdl9QQ0l6QmlKUkxEV1pLcGFRWEF6UWlXbFhmR01tSm9kaUlRbWo5VEcxNEltYzZDV3ozbzV0S0p4OGRvaGlHQ1NzWkJNZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
