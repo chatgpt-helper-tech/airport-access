@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 20:24:26（北京时间）**
+🕒 更新时间：**2025年11月02日 20:33:17（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Donald Trump orders military to prepare plans for 'action' in Nigeria - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9iOE9oTnpxT0pIa2xJRDRuVEQyREZUSEh6cklNeDJZX1VDUE5TOUJ4WmlYMG54RW5WSUVxSUF3RDE1TjkxdlR2NW90Yzh4Q2tNRHp1ZmljWnRHZ9IBX0FVX3lxTE5BcUd6MVJ1YjZyRDVyMzB0NVptZDl2dF8yNGlIZTJad2xyMTFOcVEtWkEzWktTV0lGVTlucGthM1lYSHJBX2VFWlVrVmM5Tkh3YUxDektmcHNObmo5MDJv?oc=5) |
 | UK train stabbings injure nine, police arrest two suspects - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNeXB5V3V1dG9uU1BwOHBLT2lEZmdhWm5KSDdfQWVwTHYxSVFMSFhsUkdkNlU4V2lTM2xYRGo0OFhscDJ2czhDUmZUekF5MnV2V0VCZEJJMVFmcXpiMF9YX3M1NGw5blJ1WXZQMlZTd0tnZXRmUGFvUGdSbXVBdmR3UmM3SEtTSS1mMzJSWWJjRVdWbmNCc2U4dFFjQ2N4ZktWX1FERHpIdmlSR0U?oc=5) |
+| Donald Trump orders military to prepare plans for 'action' in Nigeria - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9iOE9oTnpxT0pIa2xJRDRuVEQyREZUSEh6cklNeDJZX1VDUE5TOUJ4WmlYMG54RW5WSUVxSUF3RDE1TjkxdlR2NW90Yzh4Q2tNRHp1ZmljWnRHZ9IBX0FVX3lxTE5BcUd6MVJ1YjZyRDVyMzB0NVptZDl2dF8yNGlIZTJad2xyMTFOcVEtWkEzWktTV0lGVTlucGthM1lYSHJBX2VFWlVrVmM5Tkh3YUxDektmcHNObmo5MDJv?oc=5) |
 | Food Stamp Cuts Expose Trump’s Strategy to Use Shutdown to Advance Agenda - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOaTR4X2ZHeWtCbUJKSkwyQTNsNnhhUG5LUWowVHlPcXdCc09zUkdMc0ZBOGNlbXA5T1ozblJqRzVhbDRGNWFwckt2YmZqN0VEaS16TWt0RWdCaUktcGpTQXBYY293cGR6OUtjTEdvUWVPQzg4bUJfYV81YjFBX0o5a29YV3c?oc=5) |
 | U.S. military strikes alleged drug boat in the Caribbean killing 3, Hegseth says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNN0pJRVM5RnJ3ZXloTzZ2NjZYV21EZjBZOE9SakMyYVdGRzgtOFNld0RWTGR0VXFDMFpRams3cU5YRW9QQlFnQzJELUgyVmF6S0NWVFlzVEhsNC1wWFBCUlBWcjhvcWpodzdjTi1hRzBGVFFha0s4YURXbWRqV3NEVmtMYnFmUkdfZzlrVDd4TXdRRkxleU8xRE43QU9zbDVhMTNZTTNIZHNWYUtRN0ktN1NjRmdHYVo0MHfSAVZBVV95cUxNRVdGV3Q0T3gwZEE1eXlFM0VKS1VWNUxtU245ZHBuRjhXNDRxUmc2S2dKY0w0OTdhMHRBQWtkTzlCZktFQjl2YXNCUk5CbzY1b0NiRTZhZw?oc=5) |
 | Most Americans say country is on the wrong track, blame Trump for inflation: Poll - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPYUZrSGNtVmNfbmU0ZU9tMWg1Slg5dlJfQ01zY0k5eHI1dDJfTGl6dFd6c3RFTVBCQXBhbkZmbWhQWDRZVEZ3dFYyYnNhTWZLME1ydXlvWF9pRWxMUVVhMllsZ3ptczVZN3ljVHlxRV9CeG02VUpYTEUtbW5CRjlDT0FybkplQzdnUjRTVlVLS0FLU1VuQTVSM2FwN1RIdE0zNzJzQ1RxRE1pV28?oc=5) |
