@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 03:10:01（北京时间）**
+🕒 更新时间：**2025年11月03日 03:16:10（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Treasury Secretary Bessent says SNAP food benefits could restart by Wednesday - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNa3ZHM05kTDNVZHUwUUZveldnNHRMZ1BlckVhWEs1dDFlekYwWUktaVFhZWJGaDl6SUFHMlFQem9PRnVJVnl6U1pjUVByVHFqN09tZ3VLcFMtSzhjTWNqRXJZNktnTlh2NURwc0o5SDhiNksxZVRoV1pwRU9pOWo1UTNB0gGHAUFVX3lxTE9HcmJmUkFOSWFlamZWQ2hoaV9sR2V6UGVqcjlzSXh0MXdZcUNEWGVmNk5UMEFxSXUtNGRheXIyaUZLdmZVRENvRll1ajRZVmprZ29HRGFEYjJ2c3BPUmM5TEwwazgwd19EMzFpTzdPbC1qY2dXVHRBTVF3VUpWYTdBTmdLQ1dRNA?oc=5) |
 | Nigeria rejects US military threat over alleged Christian killings - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQTlo3emg1eFFoS1F6SjliR3ZjS1k1RWlJUG5lc3BlM0RjaWVENkVwR2d6WlMwUUFJMU9ReVZFbEpQYjhCalhyUXNjUWdhZHJCZVF4Z3dibHlOMFNKY2Vhc0VPbWg3cE5ycmx1c1V6ZF9PX3RpS3pNWERQN19YZzk0ZS1JZXhmWlhBX3M5X2lwc2tFQ3hWak1OZnU1emVUeHR2WmZ4aG00Ry1SbmFHekMxaFFDTmdkWlU?oc=5) |
 | Barack Obama, Kamala Harris campaign for Democrats, as Donald Trump's political operation invests in turnout - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOaERaNVcwRHMzcDhYX3JiUDFKU0tURHIyMFpIWTRPOHVPOHVKekExV2Z1aW9WbUdUQkFZZjRXQlJ3T2pMRGZHWDAwRXBleWpUSk5FS29xeXp3NzNFNlB6U090VlMxZnoybXk1dkxEMVZhOXVmLVJTZXpid3JuQUFrcV9iRldWRVpsMVhDU19EdHdTMm14MnRzRTE5X0hRenFaMVdwTlhsU0RhWVF2cEZZ?oc=5) |
-| Treasury Secretary Bessent says SNAP food benefits could restart by Wednesday - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNa3ZHM05kTDNVZHUwUUZveldnNHRMZ1BlckVhWEs1dDFlekYwWUktaVFhZWJGaDl6SUFHMlFQem9PRnVJVnl6U1pjUVByVHFqN09tZ3VLcFMtSzhjTWNqRXJZNktnTlh2NURwc0o5SDhiNksxZVRoV1pwRU9pOWo1UTNB0gGHAUFVX3lxTE9HcmJmUkFOSWFlamZWQ2hoaV9sR2V6UGVqcjlzSXh0MXdZcUNEWGVmNk5UMEFxSXUtNGRheXIyaUZLdmZVRENvRll1ajRZVmprZ29HRGFEYjJ2c3BPUmM5TEwwazgwd19EMzFpTzdPbC1qY2dXVHRBTVF3VUpWYTdBTmdLQ1dRNA?oc=5) |
 | CBS News poll finds rising concern over government shutdown impact on economy, Americans personally - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPWVJjS3MxbHpIb2NOQ21CXzBhRTJUc1M5MTRSaG5Mclk1bjdhOFRYVzZBOWdCT3BDUGloYWl5ZjFxVXhMRFZqQnQyYkI2aTNJLUVLRW1haUVvRV9pY0R5TWZ2TWJVOHgtcWI3R3hNaEFIMlVzdlRtNGJ2T1dCdFE0ekJ30gGHAUFVX3lxTE8tQmpTMERDY1A5NUN6Z1dlV1pUaWVMN2hyTW82MEZDY0pfOE5nOFdvTzhpRFRGdkJ2a1N2MkRPRlljQVVyZDZaRTRrTE5NZTgxUDRmeGUwbHBHa2JSN2xSeFBNcjJsRm1iLXVNV2Zlc3h4S1hCVjZGZ0QtVW83SERlR085bmpBVQ?oc=5) |
 | 'We will delay, we will cancel' flights to make sure people are safe: Duffy on ATC issues - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNOWMwTDBabzFoVXlEY1paRUZVcEc3TUxqa3JnYkpTc2xzOGQ2ZGRQM25GVlozT0t4UkhuQ1ZnR0RWRGZzdnlScFowZklpVUFVVU94X2xYbnpIQXVhS3Q1Ml9uQWlLRG14cTdWbEl5dS1BdENVby1qSXNpbTdja1lQVGo0dnlmWGFYTC1BaUtxXzZqNDBrcElYSFUwRkJ4Y2PSAaQBQVVfeXFMT0xYMWtpOTdPOVJ6RHVTUVFrUkcyZUtoRktjdi0xYV9PcnR2aFNWR2pfaVRTbTFVeVJLRXdnbHZfeDEwS25yUDRwbUhGZkNCZ3owV3RLS3VVMlZyS2g4YlZYS1pXUXphdFo3dGNBWEdoQnJxQm5GdllvbjNXUHVnVkZLNjdFLUpPcjhsMFNoYkI0ZWFIQU1abjM0OXVoSl8zLVpRNzk?oc=5) |
 | Mamdani's youth support goes beyond New York. For many, he's now a national leader - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOcXU2LW9vQ2U3WkNaajR5VDhtUW84SDBvTlRRZXBDWEtVU3NDSHZnZGNGWjdiM1Y3OEpQOFdnc1R2YnFhRFJvbGtVaWN2d1Rzcnd1RTFNRnZRd1RjUE5pUFpuQXZneVdkVXptd1BTYWV5NzNTbGNmQWJuUUxCemVJeFZySTlmZkhP?oc=5) |
