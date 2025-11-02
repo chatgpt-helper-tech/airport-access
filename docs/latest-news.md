@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 09:57:27（北京时间）**
+🕒 更新时间：**2025年11月02日 10:00:55（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Hurricane Melissa: Britons to be evacuated from Jamaica as UK sends aid - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9NeFA1eUhqMWppeDQxTnBVS214VUdiYktNQm0yeTRPZTI0WE4xdjFESXRpaVBnTW56SmgtbWhNNHZOY2Vyeld2LTVLZU91V1ZXa2E0Sm8yTzF4d9IBX0FVX3lxTE9rS09FOF93LWhzTjR5WjlVQm9xeUJYbzA0U3c3VTI1bS1YZDdvV19MYmxoYVE2ekxESWpUdUJzbHJCNVpCWVVZeDMyRXo2VzVNeFRNOUFTbUN1aVZFVU1v?oc=5) |
 | Obama, Mamdani talk as Election Day approaches in New York City mayor's race - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPOXpVRVVMbV9mY1BCcEh3cVdFclh3QXBWRlBqRW9GUFNZamJmS01IS0c0eF9OQXZPSTlxZmJqTm5jOVdjOXgwM2VYUW9OUldWdDJ4RVN0VGdHREV1R1FtdXdhT0JGSjQ1VWxubzQwSC1CX0pQT184WU15M0VZOXZ6YVJTbE8zN1A5T3NSTFlYVUx0bWtNbVN1cVVob0hjV0d2X1hZ0gGoAUFVX3lxTE9XbU51S01Cc3dYWHJwSkQ3OFdtQTB6V0tDMTZyU0hEbjJyelVJWm42RzQzSmpVNDMxV08yNk9KelQteHZ0WDJNM0cwY0dzcFRKOWY0UTFub1NlaW5nVV9XTHdBSWFxNTVxOUdySjJqdnBTTkRHXzlta0N2eTdDZ0NyN0ttY1BucmFyX05RNWJLRjJMdTdOVGNGZGZ4SzQ5LUN1QkItczktNQ?oc=5) |
 | Here’s What Happens When Your Phone’s Clock Changes Itself on Nov. 2 - Gizmodo | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPaTVUbTQ3cTNKLWVoa09SNHpIczBJZVBpRHVmNDhzQXY2MFNvSlFTcXNVTTdBanFGMnZoODhIQkNrZ1NxZHVINmd1enRSR2lDQzVDdXM5UTEwVnQ2anR6OWFnNnpZNU9TVFNIeVB5V3FGNnRQQ1phYTNFX3pqdTRDLTh3ZTdNVlp1Qm5KRGloRlRuYnZ0MVROYkZscVA?oc=5) |
-| ‘Hindus realising Christian nationalists are not friends’: Mehdi Hasan weighs in on JD Vance’s remarks ab - The Times of India | [阅读全文](https://news.google.com/rss/articles/CBMioAJBVV95cUxOXy00cnhmaVFWMGdLV2J6bzhaSFZUMlo4QWJGM1ptOGhnM1dIX2FjR2R3bGVNbVA3QUpwRmQ3U2h3S2pZWEdfc2FiblBHZ244azBLcldGbEs1aXFYbnZiR1dyYTJ4QXBmQk1xdmx1d3NCeG5pajFPNkxOODBZUWFVLU1VOFpqVWVxam9hMnlzVG1UNGt4S3BaeUlGQ04yVXYyN01VTTZvS04tZTl6RTB2b0RnUUdlZlg0S3pIQlBCNjVKc0tqZ1Y0SGpLVnJvZC0xVGw2WExWUDc0UHpqdE1VS3dNU2lidWg1cnlJQnBIT29USjdpRnZVcUpadXBsWHE4b2NRY0Z0MmNkTzhodWpxRlhEOUZmSERmdTZTN2p3OFPSAaYCQVVfeXFMTWx5UGNaWU1RZUR1S2VzOUp0ZU1waE52SVdtOGNTWmUycFNuTVVfT2xqdXhBenZDZklOLWJqZFFSUi11MmJKTjZyZjdKazM3WWNsUWY5TlpFaVB6czE4bjdyTnJxRWc1eEpldmpDQndYTEVVTzhaaXNDZDBOTFVGaVNGZk14V0ZnVVhHTXRkRnJPODU3SWYwTkNCenBiUk5DREJYS01FbWY0djNaOXlPbC1VdEh0MDh2LUVEYUItckRNdVNiN0U5cUg1SlBMdXBqbE44N2ZNREgyaFlndTU3WmtnYWJXdnBwUDYzeUF3ZUVVR1VEWDFFb1p3TFl3X2N4WXZGbG83aUY5U0ZkSlZUcl9mUktWU2lfVmdmTHBLUGU4Qy14bnVB?oc=5) |
 | Mamdani targets Cuomo’s Black base in final days of campaign - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNbXlXQXJSSnRSeThfLXZuS24wanRVWThFLUJwbmpRcVd0T2tVd2lxdWREQnRGOVl2X2h1eUJCUHhnenI5MFU1aDlyZEpTZVdRdkYzSThsZFN1RXNaUEJOZmk4cVlWeGlyaHZkVHo1OXYyd0twa2U0NUlQVi1sSDhSMXJ1MWRaUGNIVWQtTWR5R2Y0UW9Sc2ZCd01McUxvQTNmY1FxZ1pueGU1QmxPUHc?oc=5) |
+| JD Vance repeats comments he wants wife Usha to convert to Christianity - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1adW5JSk9qUjYzNmVfZTlBOUtNcHZsNVVONG9RcHhGRW9GSDVlVWFBWFZhdU5MNmZFdW9YU1d2RUoxR3o1c1E2VnNNREVxX3lCLTZJaWJkcHVJSlZIcDFOSlAwT2Q3NFYzdThQTEl4WnI0TmdGNGY4bS12WHIwQWM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
