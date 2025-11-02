@@ -648,7 +648,12 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
 
 ---
 
-![小蜜蜂 节点测速图](./assets/xiaomifeng.webp)
+<details>
+  <summary style="cursor:pointer;font-weight:600;color:#1a73e8;">📈 最新测速图（点击展开）｜小蜜蜂</summary>
+
+  <img src="./assets/xiaomifeng.webp" alt="小蜜蜂机场测速图" loading="lazy" />
+
+</details>
 
 ---
 
@@ -749,7 +754,12 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
 >  👉 <a href="https://gptvpnhelper.com/airport-access/qingyunti/" target="_blank">青云梯 机场详细测评,如需了解更多测速、解锁、套餐信息、使用教程请前往</a>
 ---
 
-![青云梯 解锁与测速图](./assets/qingyunti.webp)
+<details>
+  <summary style="cursor:pointer;font-weight:600;color:#1a73e8;">📈 最新测速图（点击展开）｜青云梯</summary>
+
+  <img src="./assets/qingyunti.webp" alt="青云梯机场测速图" loading="lazy" />
+
+</details>
 
 ---
 
@@ -857,7 +867,12 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
 
 ---
 
-![TNTCloud 节点测速图](./assets/tnt250828.webp)
+<details>
+  <summary style="cursor:pointer;font-weight:600;color:#1a73e8;">📈 最新测速图（点击展开）｜TNTCloud</summary>
+
+  <img src="./assets/tnt250828.webp" alt="TNTCloud 机场测速图" loading="lazy" />
+
+</details>
 
 ---
 
@@ -982,7 +997,12 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
 
 ---
 
-![银河云 节点测速图](./assets/yinheyun250610.webp)
+<details>
+  <summary style="cursor:pointer;font-weight:600;color:#1a73e8;">📈 最新测速图（点击展开）｜银河云</summary>
+
+  <img src="./assets/yinheyun250610.webp" alt="银河云机场测速图" loading="lazy" />
+
+</details>
 
 ---
 
@@ -1081,7 +1101,12 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
 
 ---
 
-![WgetCloud 节点测速图](./assets/wgetspeed.webp)
+<details>
+  <summary style="cursor:pointer;font-weight:600;color:#1a73e8;">📈 最新测速图（点击展开）｜WgetCloud</summary>
+
+  <img src="./assets/wgetspeed.webp" alt="WgetCloud 机场测速图" loading="lazy" />
+
+</details>
 
 ---
 
@@ -1150,7 +1175,12 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
 >  👉 <a href="https://gptvpnhelper.com/airport-access/bby/" target="_blank">贝贝云 机场详细测评,如需了解更多测速、解锁、套餐信息、使用教程请前往</a>
 ---
 
-![贝贝云 节点测速图](./assets/BeiBei-Test.webp)
+<details>
+  <summary style="cursor:pointer;font-weight:600;color:#1a73e8;">📈 最新测速图（点击展开）｜贝贝云</summary>
+
+  <img src="./assets/BeiBei-Test.webp" alt="贝贝云机场测速图" loading="lazy" />
+
+</details>
 
 ---
 
