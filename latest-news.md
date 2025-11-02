@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 17:32:55（北京时间）**
+🕒 更新时间：**2025年11月02日 17:40:37（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Poll shows Zohran Mamdani's lead in NYC mayoral race narrowing during final weekend of early voting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOa0FlN2pZTEZVOVI0aDlNT3VQVmlPWGw2b0VROExpanNPTXRUWWZRNUY2aHZueVE4cFVGX3dpQXNlVW93TW84eGtUdFdlMU1PNzY1ZWV0QUhNV3d0UXBkNnV1S3p5RmVCa0Y0MkZPU0Y3aFlHSlVDMnhibDhERG5tMXg3amI?oc=5) |
 | Obama Calls Mamdani to Praise His Campaign and Offers to Be Sounding Board - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPaXh0OUFpTktNZmMzcDZVbzBwMV9KaDlmeWJWSExCek4yTEtHTlFRLWtnTmpPaHFIajltN0xtQkM1ZGpjVndadDR1LUdUZG5IdHZuTTFhVVRYZFpBSVVRMjNham9yLTFNZHI5Q0xTaWlrdkQtTGNSZUpZUXI5alVTV2RTeTVmUzZTeGQwdEZ3?oc=5) |
 | Daylight saving time ends Sunday. Here’s what to know - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOSjV2UTZXRnpVN0tEYkJScEpTYVpTQVVhcVdQdmRVMXY4djQ0RXNpUV9mY0hfdGxQTU9mUnktY0dObGF1WVlrNlZCeVg0aGVleGZtMTVWMV9KdFJucHU1bkFBWHNnQk9NTy12RU9RSWczbFpNazlQdkVwenRwN0R1aUZ5c0pEZ1FxT0thLQ?oc=5) |
-| Maduro braces for a U.S. attack; Venezuelans worry more about dinner - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPRVRiclRtSlRDcllQMzVMQkxCNUdVa0VERHdRbm1KRUFlRmk1MmRLSUZESHVkcFQ4TVJhUGZNZTRnN1VQOWVjelZ5d2hXWmFsLV9uRC0zT255VDl4YUNBa05HVUJ3VzhsenFqRFZhTHUwN0JlckNyT0hubEp5M2pqZWJqX0M0eVk?oc=5) |
+| White House discloses details of China trade truce - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOX3pnd21EOVFzNnFfU1ZZTWhIT3phSTRaRm9rNnh6LUxJb0xDQzAyMThYbnpuMUFLdnFtVk9LSnNwRkJJTFl5dy1WQVAyeUV0c1cyd25OUnBzNDJROURMLXFXV0NqN3FXZnp3WHdWUGlKVzNQeVJIVlBDYmhlbVp4VXQyczhKdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
