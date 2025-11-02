@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 07:56:42（北京时间）**
+🕒 更新时间：**2025年11月02日 08:00:22（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Multiple people stabbed on UK train: Police - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNQ2VSWE5oZUNOZ0dTQnRxRHh2THdzOEtsaXF5akZTSHVoUGl2YjlOMER6dnZObURPVGxnS3RLd0hETC1yNE04aWI4aW5zWWJPTXZXRXNKQnc0bHlGZ28zMDJ4SUFIUG1JdUxXcDV3eVZwUVFQc2pjbXZReTk1NndKY3NZWFExVHI2SnNBamdXTkVsQWxMcHVBR2ZMNNIBoAFBVV95cUxPMXRsY1o5SGwyd0hzSHhMbmdqLVh4eHUwQjdLSDBBdk92Z1kxSURaVmQ0MXpGOE9Zc1d5UXVQeTNaZTlPVXIzUzJObnRpUE1rQ3RNRU05MXJYdEVFZWt2aC0wME9oaUU0R1BiYk5WNXBNQkFJb2FnVW4ydjF4Z0xmYXRMVk8zY3JQeXF0VlRsQWhxMDhzRVp2dnNaWDF0NjZ5?oc=5) |
 | Hurricane Melissa: Britons to be evacuated from Jamaica as UK sends aid - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9NeFA1eUhqMWppeDQxTnBVS214VUdiYktNQm0yeTRPZTI0WE4xdjFESXRpaVBnTW56SmgtbWhNNHZOY2Vyeld2LTVLZU91V1ZXa2E0Sm8yTzF4d9IBX0FVX3lxTE9rS09FOF93LWhzTjR5WjlVQm9xeUJYbzA0U3c3VTI1bS1YZDdvV19MYmxoYVE2ekxESWpUdUJzbHJCNVpCWVVZeDMyRXo2VzVNeFRNOUFTbUN1aVZFVU1v?oc=5) |
 | Canadian PM Carney says he told Ontario’s premier not to run anti-tariff ad that upset Trump - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQSUljQ0hPVEUyN285amZVV3NwT2RUbThlbUxFdXk0WXVYV3lLWTF3RHlpYi1xR2VaMEIwWlVYclNuYjV6Y21BalluZ2FycER4cUlzdWlBbkRCTlZQZGxaYVloVHVrYXA0bFdhT2hxTnh0dW56bDBkUkdRajFRNTJpOUoxWjR6Rm1kaDhLVEtTblltR0k?oc=5) |
+| JD Vance repeats comments he wants wife Usha to convert to Christianity - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1adW5JSk9qUjYzNmVfZTlBOUtNcHZsNVVONG9RcHhGRW9GSDVlVWFBWFZhdU5MNmZFdW9YU1d2RUoxR3o1c1E2VnNNREVxX3lCLTZJaWJkcHVJSlZIcDFOSlAwT2Q3NFYzdThQTEl4WnI0TmdGNGY4bS12WHIwQWM?oc=5) |
 | Obama Calls Mamdani to Praise His Campaign and Offers to Be Sounding Board - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPaXh0OUFpTktNZmMzcDZVbzBwMV9KaDlmeWJWSExCek4yTEtHTlFRLWtnTmpPaHFIajltN0xtQkM1ZGpjVndadDR1LUdUZG5IdHZuTTFhVVRYZFpBSVVRMjNham9yLTFNZHI5Q0xTaWlrdkQtTGNSZUpZUXI5alVTV2RTeTVmUzZTeGQwdEZ3?oc=5) |
 | 'Counting pennies': Houston families seek food aid as SNAP hangs in limbo - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1xU3pPa1BTUnNzck1OZ2lpdGlfMVFRME9CMVNrdklsU1RWV2RvTklPOG9MVU5lZUQ5TmFWdHd6d3djeGczUElMaW91TVVoYkN1U3p4V1VkeWYzeWZCWGhIZGZkRWRWcGdTVFk3bFVpSW5PWnAxT2R2SUZR?oc=5) |
 | Daca recipients in Texas await judge’s ruling that could upend their lives - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPT19PdVRrMmZrN1ZBWF9MMU1PQUMxZTdlY1ZFOFFHLU1FMHdtbGRTc0Y0dFk0WHJxWk0tSmZmWTRDZlB1dTBKM1M3T2xHTWZsc0V2ZE8yNTRHT1FVLWhDRHhLeERSR0Z6a3F5aFVWY0xIZGdaVTBOR1ZScnRZQ0V3aG0zYw?oc=5) |
-| Democrats are searching for their next leader. But they still have Obama. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQNTd1YTBkLUFoX0FiV2c1S1dNVHNoMW1EemhSRnl4emZnbkZWUFdDZzgzUHhMSVM0YVdpd2stSWdXZ1pPY29aM3FndHVUN3FrZ2xvNnR3V0NNemRWRTVwYmtkclhrRjhoNk9iN3lIZExBOWFpWjloUGxtTzFaZTRzdEVaVVlYeXF5dTF6LWNGR2U0Vm9Mb2pnVkhEOU1yUjdPNEx2R0lYQzg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
