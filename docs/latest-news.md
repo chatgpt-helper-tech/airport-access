@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 06:49:18（北京时间）**
+🕒 更新时间：**2025年11月03日 06:56:36（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| One suspect in train stabbings as rail worker critical | [阅读全文](https://www.bbc.com/news/articles/c797x8v0nvno?at_medium=RSS&at_campaign=rss) |
+| Man, 32, only suspect in train stabbing as staff member in life-threatening condition, police say | [阅读全文](https://www.bbc.com/news/articles/c797x8v0nvno?at_medium=RSS&at_campaign=rss) |
 | What we know about stabbings on Doncaster to London train | [阅读全文](https://www.bbc.com/news/articles/c8r007d4kk2o?at_medium=RSS&at_campaign=rss) |
 | 'No help, no food, no water': Hurricane-hit Jamaican towns desperately wait for aid | [阅读全文](https://www.bbc.com/news/articles/cpv11w8ez10o?at_medium=RSS&at_campaign=rss) |
 | Louvre heist was by petty criminals not organised crime professionals, prosecutor says | [阅读全文](https://www.bbc.com/news/articles/c4gw42j29lqo?at_medium=RSS&at_campaign=rss) |
@@ -30,9 +30,9 @@
 | CBS News poll finds rising concern over government shutdown impact on economy, Americans personally - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPWVJjS3MxbHpIb2NOQ21CXzBhRTJUc1M5MTRSaG5Mclk1bjdhOFRYVzZBOWdCT3BDUGloYWl5ZjFxVXhMRFZqQnQyYkI2aTNJLUVLRW1haUVvRV9pY0R5TWZ2TWJVOHgtcWI3R3hNaEFIMlVzdlRtNGJ2T1dCdFE0ekJ30gGHAUFVX3lxTE8tQmpTMERDY1A5NUN6Z1dlV1pUaWVMN2hyTW82MEZDY0pfOE5nOFdvTzhpRFRGdkJ2a1N2MkRPRlljQVVyZDZaRTRrTE5NZTgxUDRmeGUwbHBHa2JSN2xSeFBNcjJsRm1iLXVNV2Zlc3h4S1hCVjZGZ0QtVW83SERlR085bmpBVQ?oc=5) |
 | No one hurt after ‘intentional’ explosion at Harvard medical campus, officials say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQM3E1TWZ4eTUwSTVDZmhjX0hNQmd5OHdZRU1NTVI0VnFiV1kwT05WQjhpdFZWZmc1eVJyZHR5cXUxamNCZTVZWjFvaWhjcXE5Unlya1Q2MG53dWdEUGxFQ25nZGdsVTB6QUdNQkNMNmNoa3F0bGNDYXJNX3VWMDR6aXRxTGdNaHhZWmc?oc=5) |
 | Zohran Mamdani inching away from NYC mayoral win? Poll shows his lead narrowing just before results ｜ World News - Hindustan Times | [阅读全文](https://news.google.com/rss/articles/CBMi8wFBVV95cUxPQ1dvWlR3d3Y4NXljTWh1WWduUG9fVENpUW5SSWpteFd1WTlVQjc4dVgtM1hROVR2QmxRNHZZck91dzBXaHJUM3NBdDg3VGM1TEttRXdBNDZPTkpwMkhpNFBqNV91MHU5VDVKZ2tUdk1pOGExNU9yaWNCWmlBTHVPaXVpZzdSbzlBVXlPYi16eUtnaHMwUElJSF9LRV9xNEgwM1AyMDM2RV9lMkNWbUFFSjMteGJnVkZiMG1pQUNmYzdTVzEya0EtRmlMS1otRkhISVRvN2RPc2hrV0RyYkVqRFN1WG5MQUluZkdFZzNJNG5WbmvSAfgBQVVfeXFMTXVpYllBSWNVaW1xRGxiX3FTRzRfb1BsLUl0SnlHMG14T2E1RDc5YzdGRW9BcmozbF9sNnp1ZzFXcjQ2ODV3Ni1RR0lXMEJzQzNGWEVaZ1pHRUlmbkh4T3dURDlZU2IxZ3lBMzEyekJqVVJBY1pjT0J2RHRFMHV0dURTR280Tk1kYlB4MnJSY0VYVTgzaGRjTG1xQkduNk5pVHkybDVJUlVqdFcwd1FKX1JheXBjMzVpbnZBOUU0NXZsWjBXelc3NlBiVHlQcGtvR2FXYktkVUZMYnVpUjV1Y0trVmVEcHNWVW1WUWdlZnhkWmNldXFzZUg?oc=5) |
-| Latest U.S. Military Boat Strike in Caribbean Sea Kills 3, Pete Hegseth Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQY0hna3NUdGEtcVUwZzJvcWN3dUw5QUdYWmVRMTVONEZLM3pScGRMTDR3STV3ZkJzcWYtNDI3d1RnNDZZanRtaVg4SGd3NUJWZVJTdlhDcGxKU1MyNDJmLXphaW56S2E2dEh0WXZNV2ZUem4wUW1CM3JQZjdsZlp0M1Nn?oc=5) |
+| Shooting at Airbnb rental in Bath Township leaves 9 injured - News 5 Cleveland WEWS | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNNUJjT0FkalQyYjFuWmZMdDV3M0sySzc1S2VaM1NMYmdnTEhfSm1BM2kwckJCalVBY2d2VUZudmx0MkdLbDFBekJmV01NVkJwVTlnVWhZZXQ5OEZaNmtxckRKTlJtZUJlc2JMOENHRHh6YlFvLW9GdV80R1J5c2hxcUtVclFrRUl3UllOVmJhLVp6TnppVGt2UmhRNlEzSEdWbEs1bzN3NTdrRkRuaUFIZUFTZHJJMWc?oc=5) |
 | 'We will delay, we will cancel' flights to make sure people are safe: Duffy on ATC issues - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNOWMwTDBabzFoVXlEY1paRUZVcEc3TUxqa3JnYkpTc2xzOGQ2ZGRQM25GVlozT0t4UkhuQ1ZnR0RWRGZzdnlScFowZklpVUFVVU94X2xYbnpIQXVhS3Q1Ml9uQWlLRG14cTdWbEl5dS1BdENVby1qSXNpbTdja1lQVGo0dnlmWGFYTC1BaUtxXzZqNDBrcElYSFUwRkJ4Y2PSAaQBQVVfeXFMT0xYMWtpOTdPOVJ6RHVTUVFrUkcyZUtoRktjdi0xYV9PcnR2aFNWR2pfaVRTbTFVeVJLRXdnbHZfeDEwS25yUDRwbUhGZkNCZ3owV3RLS3VVMlZyS2g4YlZYS1pXUXphdFo3dGNBWEdoQnJxQm5GdllvbjNXUHVnVkZLNjdFLUpPcjhsMFNoYkI0ZWFIQU1abjM0OXVoSl8zLVpRNzk?oc=5) |
-| Shooting at teen birthday party in Ohio rental home leaves 9 injured - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTFBfTDFiY2gzUE1JN3JlLVVVV1I1aUhJei02WGFDZTdMVjBvYWNCVnhTOFRoZ1VPZ1ZpNEM4eGxBYnk0TS1JUWJ0Y0g0N1M2djYxYkFFR2Z5RU56Wi00ampNTXROeEVQbnQ0UHgwa1piT084UdIBd0FVX3lxTE1ybU8zcFVnaDZ6NTVNVl9pbUJnZHhMVDFxSXZ1dXpvbno0OGdfLXVvX0ZkckhGSnR6QW1jUFJIb3hjWW4taVB1ZXRqWVBaeTl0U3FkQWhPVmVrRl9aZF9HUklhZlhZVmZLeFJ5YzVUbTRtZEFKWjF3?oc=5) |
+| Three killed in latest US strike on alleged drug boat in Caribbean - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE14UWMyYllJNTVKNEE2Nk1EWmxyX3BYVlFnbU1rTlMxWHBlcFJZQWx3OFZkM1dZazA5RTFrSzZhZWJEVHFJRkN2UE9tSzZ6SU50UGRHenoyZmhSZ9IBX0FVX3lxTE9UcVB4WXlTcEtSLWdSQjBFaC1ya1lKT2tXa3VPa1lTd1c5a245emVBOVk2cFV3aWxKYzhfU3NWYVdzaUlaekN3cE8zdFU4cWJZcnVaTjhnTTU1N3pPZ2Ew?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
