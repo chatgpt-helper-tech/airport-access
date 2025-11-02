@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 08:08:24（北京时间）**
+🕒 更新时间：**2025年11月02日 08:17:37（北京时间）**
 
 ---
 
@@ -10,8 +10,8 @@
 |--------|-------------|
 | Andrew should answer Epstein questions in US, Democrats say | [阅读全文](https://www.bbc.com/news/articles/c3dnnpvjkjvo?at_medium=RSS&at_campaign=rss) |
 | Politicians rarely comment on the royals. That could all change after the Andrew saga | [阅读全文](https://www.bbc.com/news/articles/c2emj9r4j22o?at_medium=RSS&at_campaign=rss) |
+| Military homes to be renovated in £9bn government plan | [阅读全文](https://www.bbc.com/news/articles/c6200r15lp1o?at_medium=RSS&at_campaign=rss) |
 | Britons to be evacuated from Jamaica as UK sends Hurricane Melissa aid | [阅读全文](https://www.bbc.com/news/articles/cvg441qyv2xo?at_medium=RSS&at_campaign=rss) |
-| Kenyan landslide kills 21 after heavy rainfall | [阅读全文](https://www.bbc.com/news/articles/c20eeqn2qlyo?at_medium=RSS&at_campaign=rss) |
 | Anger lingers in Serbia a year after train station tragedy | [阅读全文](https://www.bbc.com/news/articles/ckgkk841r4eo?at_medium=RSS&at_campaign=rss) |
 | Two more charged over Louvre jewellery heist | [阅读全文](https://www.bbc.com/news/articles/cvgkk1mkg0po?at_medium=RSS&at_campaign=rss) |
 | Homes without lounges now a reality for renters | [阅读全文](https://www.bbc.com/news/articles/c93063q2lzeo?at_medium=RSS&at_campaign=rss) |
@@ -24,14 +24,14 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump Administration Must Make Food Stamp Payments Within Days, Judge Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNSDZ3V3JPbzFKc01HOWVNREpiM3U3YjJhS2IwOFZneTJHUkxOcDB4QjdPQkN2MUdmMm53aW9BTEEySFdNaTdVemkxRVNjMEtVcFhkMlhWTXBBdXYtSTJKWkh1a2E0QkRESDNRMUNHZ3pHQlkyV29FM3BlZ0lWZlpwQll5OA?oc=5) |
-| Trump says he’s ordered Pentagon to ‘prepare for possible action’ in Nigeria - CNN | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBBOUJuRXZNcGxBQlRtQnduakQ1OXdWdEhjQzhyUS1mYVhpN2tWaHVkQlRMLVhRdXlEZkIzelpHMl9KQWZTREtOTVdVakZLbkVOcnRtRkEwd2NKQTJWTlBpVmxXLTJnbmNzMmQwcTF0VFhqczA2R3JpbA?oc=5) |
-| Hurricane Melissa: Britons to be evacuated from Jamaica as UK sends aid - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9NeFA1eUhqMWppeDQxTnBVS214VUdiYktNQm0yeTRPZTI0WE4xdjFESXRpaVBnTW56SmgtbWhNNHZOY2Vyeld2LTVLZU91V1ZXa2E0Sm8yTzF4d9IBX0FVX3lxTE9rS09FOF93LWhzTjR5WjlVQm9xeUJYbzA0U3c3VTI1bS1YZDdvV19MYmxoYVE2ekxESWpUdUJzbHJCNVpCWVVZeDMyRXo2VzVNeFRNOUFTbUN1aVZFVU1v?oc=5) |
+| Trump threatens to go into Nigeria ‘guns-a-blazing’ over attacks on Christians - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOVURLZ00wU2xSZ0Yzb2VWdmxhUzFOMS1pR2xUOE9nX1pIY3NqYV9LelhnOV9rb1ZkQlhBV0FEdG5WNmtPOV9yTXF4N3EycEhPbTBxZm5BbFF5cGZ3SUhJUnhmaV9CRWsyOVlkTnAyZkJSZkZ4X3g4cDlXS3VrR3pxLTk3TU1HRGZBODFR?oc=5) |
 | Tens of thousands protest in Serbia on anniversary of deadly roof collapse - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNbE1NNXI1NnRfUUFiVHZOVWxwbnhmLVFQeXpwU0VRMU9WczJBRElLV3Nxb05uOUdBb0dlcjluekxPRWk4ZGI1U191RlJEYjNGOGRaN05NTlI4anBHMUZWQU5qSzdKSlJLNThHNTBZY3d1aFNrUzAzeHVxWWhGaTJUaEN3bTBmLU1TLVRlM1FTWnFWWlJTd2hnaURHRFR6UHA3SHVTdDc3VXFvejh1SXF5WQ?oc=5) |
-| Multiple people stabbed on UK train: Police - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNQ2VSWE5oZUNOZ0dTQnRxRHh2THdzOEtsaXF5akZTSHVoUGl2YjlOMER6dnZObURPVGxnS3RLd0hETC1yNE04aWI4aW5zWWJPTXZXRXNKQnc0bHlGZ28zMDJ4SUFIUG1JdUxXcDV3eVZwUVFQc2pjbXZReTk1NndKY3NZWFExVHI2SnNBamdXTkVsQWxMcHVBR2ZMNNIBoAFBVV95cUxPMXRsY1o5SGwyd0hzSHhMbmdqLVh4eHUwQjdLSDBBdk92Z1kxSURaVmQ0MXpGOE9Zc1d5UXVQeTNaZTlPVXIzUzJObnRpUE1rQ3RNRU05MXJYdEVFZWt2aC0wME9oaUU0R1BiYk5WNXBNQkFJb2FnVW4ydjF4Z0xmYXRMVk8zY3JQeXF0VlRsQWhxMDhzRVp2dnNaWDF0NjZ5?oc=5) |
+| Hurricane Melissa: Britons to be evacuated from Jamaica as UK sends aid - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9NeFA1eUhqMWppeDQxTnBVS214VUdiYktNQm0yeTRPZTI0WE4xdjFESXRpaVBnTW56SmgtbWhNNHZOY2Vyeld2LTVLZU91V1ZXa2E0Sm8yTzF4d9IBX0FVX3lxTE9rS09FOF93LWhzTjR5WjlVQm9xeUJYbzA0U3c3VTI1bS1YZDdvV19MYmxoYVE2ekxESWpUdUJzbHJCNVpCWVVZeDMyRXo2VzVNeFRNOUFTbUN1aVZFVU1v?oc=5) |
 | Explosion at Harvard Medical School building deemed intentional, police seek 2 suspects - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNNm9PckJVVHNkT3pPVEFOejBVSFVad0drNEdHWE9LVUNhUzhhNzBaakdYT1licm53Y0RCZUNXN25GUFhBYlhxZDE2LU8wa0piSkNkeXRvaGpiSUZRU0d2Ui04MEtaemF3R0VVZjJUazJadWJjNlVRUzZMdkpTU19KbjlkMERZV2hBNXVhR1V2bWpLZw?oc=5) |
+| Maduro braces for a U.S. attack; Venezuelans worry more about dinner - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxPRVRiclRtSlRDcllQMzVMQkxCNUdVa0VERHdRbm1KRUFlRmk1MmRLSUZESHVkcFQ4TVJhUGZNZTRnN1VQOWVjelZ5d2hXWmFsLV9uRC0zT255VDl4YUNBa05HVUJ3VzhsenFqRFZhTHUwN0JlckNyT0hubEp5M2pqZWJqX0M0eVk?oc=5) |
+| Obama rallies Virginia and New Jersey in weekend campaign push before Election Day - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNX1Rsc3Z1Y0lHbE9CT0tra0hPdGtvNWtEWU44VFFxRG5PajhTSzNNcDBoSDBCUmRUWWtFOVBLQVUwX1R1YnBDMGp2Xy03SkQ1ZGlwUVNZcFFjMnhWTFZCcnVBdHNtVnlHcUFIcmFXeEZQbjl1M3dqSHd1MXlsTFVqSUR6V09wQUhlS2M3TVBKT1NqTWxaR3UzYUNWS0JzSW8xenpMeEVUZEpPZw?oc=5) |
 | JD Vance repeats comments he wants wife Usha to convert to Christianity - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1adW5JSk9qUjYzNmVfZTlBOUtNcHZsNVVONG9RcHhGRW9GSDVlVWFBWFZhdU5MNmZFdW9YU1d2RUoxR3o1c1E2VnNNREVxX3lCLTZJaWJkcHVJSlZIcDFOSlAwT2Q3NFYzdThQTEl4WnI0TmdGNGY4bS12WHIwQWM?oc=5) |
 | Obama Calls Mamdani to Praise His Campaign and Offers to Be Sounding Board - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPaXh0OUFpTktNZmMzcDZVbzBwMV9KaDlmeWJWSExCek4yTEtHTlFRLWtnTmpPaHFIajltN0xtQkM1ZGpjVndadDR1LUdUZG5IdHZuTTFhVVRYZFpBSVVRMjNham9yLTFNZHI5Q0xTaWlrdkQtTGNSZUpZUXI5alVTV2RTeTVmUzZTeGQwdEZ3?oc=5) |
-| 'Counting pennies': Houston families seek food aid as SNAP hangs in limbo - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1xU3pPa1BTUnNzck1OZ2lpdGlfMVFRME9CMVNrdklsU1RWV2RvTklPOG9MVU5lZUQ5TmFWdHd6d3djeGczUElMaW91TVVoYkN1U3p4V1VkeWYzeWZCWGhIZGZkRWRWcGdTVFk3bFVpSW5PWnAxT2R2SUZR?oc=5) |
 | Daca recipients in Texas await judge’s ruling that could upend their lives - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPT19PdVRrMmZrN1ZBWF9MMU1PQUMxZTdlY1ZFOFFHLU1FMHdtbGRTc0Y0dFk0WHJxWk0tSmZmWTRDZlB1dTBKM1M3T2xHTWZsc0V2ZE8yNTRHT1FVLWhDRHhLeERSR0Z6a3F5aFVWY0xIZGdaVTBOR1ZScnRZQ0V3aG0zYw?oc=5) |
 
 ---
