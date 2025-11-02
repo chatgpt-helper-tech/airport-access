@@ -1,5 +1,33 @@
 # 🚀 2025年最新机场推荐 | 科学上网工具测评 | Clash / V2Ray 节点实测与选购指南
 
+📅 **内容最后更新：2025年11月2日**  
+🆕 **最近更新：**
+- 新增银河云双11限时 8 折码 `1180`（至 2025-11-30
+
+## 🔝 快速注册入口
+
+| 机场 | 优惠力度              | 截止日期 | 优惠码 | 快捷跳转 |
+| --- |-------------------| --- | --- | --- |
+| 百变小樱 | 3 天免费 + 95 折      | 长期 | `bbxy-5th` | [立即注册](https://bbxy.xn--cesw6hd3s99f.com/auth/register?code=FFHk) |
+| 小蜜蜂机场 | 全场 85 折（¥96 年付除外） | 长期 | `xmfwww85` | [立即注册](https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A) |
+| 青云梯 | 双11 8 折（¥96 年付除外） | 2025-11-11 | `10180` | [立即注册](https://realvtest.qytvipaff.cc/register?aff=zcIlh0VY) |
+| TNTCloud | 双11 8 折 （季付小包除外）  | 2025-11-30 23:59  | `Crazy1111`  | [立即注册](https://tanu095.tntvipaff.cc/#/register?code=7MPbfr89) |
+| 银河云 | 双11 8 折（年付小包除外）   | 2025-11-30 | `1180` | [立即注册](https://inv03.galaxyaff.cc/register?aff=tcOd0ob7) |
+
+\* 以官方公告为准，如活动调整请以官网提示为准。
+
+## ⚡ 快速选择
+
+- **完全无法翻墙？** 先用 [百变小樱 3 天免费试用](#free) 恢复基础联网。
+- **主力机场讲究性价比？** 锁定 [小蜜蜂 85 折](#xiaomifeng) 或 [青云梯 8 折](#qingyunti)。
+- **需要专线或 AI/远程办公场景？** 选择 [TNTCloud IPLC 专线](#tnt)。
+
+📌 **墙内访问 Github 太慢？**  
+👉 推荐使用镜像站查看测速图与完整内容：  
+🔗 [https://gptvpnhelper.com/airport-access/](https://gptvpnhelper.com/airport-access/)
+
+---
+
 **2025年网络封锁持续升级，ChatGPT 打不开？YouTube 加载慢？Netflix 无法播放？**
 
 本指南为你提供经过 **3年实测验证** 的机场推荐方案，覆盖从 **免费试用** 到 **企业级专线** 的全价位段选择。无论你是科学上网新手还是资深用户，都能在 **3 分钟内** 找到最适合的解决方案。
@@ -60,49 +88,6 @@
 
 💡 **觉得这篇内容对你有帮助？**  
 欢迎 Star + 分享给身边人，让更多人轻松、安全、稳定地连接全球网络！
----
-
-📌 **如果你在墙内访问 Github 太慢，看不到测速图表？**  
-👉 推荐访问本站同步镜像：  
-🔗 [https://gptvpnhelper.com/airport-access/](https://gptvpnhelper.com/airport-access/)
-
----
-
-📅 **内容最后更新：2025年11月2日**  
-🔗 来源：[ChatGPT 中文导航站](https://gptvpnhelper.com/airport-access/)
-
-
-
----
-
-## ⚡ 3 秒快速通道：根据需求立即选择
-
-<table>
-<tr>
-  <td width="33%" align="center">
-    <h3>🆓 免费试用</h3>
-    <p><b>百变小樱</b></p>
-    <p>3天免费体验</p>
-    <p>5年老牌+IEPL专线</p>
-    <a href="#free">👉 查看详情</a>
-  </td>
-  <td width="33%" align="center">
-    <h3>🔥 编辑首选</h3>
-    <p><b>小蜜蜂机场</b></p>
-    <p>年付低至8元/月</p>
-    <p>全IEPL专线+85折</p>
-    <a href="#xiaomifeng">👉 查看详情</a>
-  </td>
-  <td width="33%" align="center">
-    <h3>🌤 年付省心</h3>
-    <p><b>青云梯</b></p>
-    <p>年付¥96 / 60G</p>
-    <p>IPLC专线 + 8折</p>
-    <a href="#qingyunti">👉 查看详情</a>
-  </td>
-</tr>
-</table>
-
 ---
 
 ## 📚 目录
@@ -467,9 +452,7 @@
 - ✅ ChatGPT/Claude/Gemini 原生IP 100%解锁
 - ✅ 流媒体全解锁，不限速不限设备
 
-> 🎉 **双11 8折码：**`Crazy1111`
->
-> 🎁 **长期 85 折码：**`TNT85` ｜ [👉 完整测评](https://gptvpnhelper.com/airport-access/tntcloud/)
+> 🎉 **双11 8折码：**`Crazy1111`（即日起至 2025年11月30日 23:59）｜ [👉 完整测评](https://gptvpnhelper.com/airport-access/tntcloud/)
 
 ---
 
@@ -800,11 +783,11 @@
 
 🎉 **双11限时 8 折 + 长期 85 折优惠**
 
-> 💥 **双11专享 8 折码：** `Crazy1111`
-> 
-> 🎁 **长期 85 折码：** `TNT85`
-> 
-> ⚠️ **重要说明：** 30元季付限量包为福利款，任何优惠码均不参与折扣；其余套餐均可按上述优惠码享对应折扣
+> 💥 **双11专享 8 折码：** `Crazy1111`（即日起至 2025年11月30日 23:59）
+>
+> 🎁 **长期 85 折码：** `TNT85`（常年有效）
+>
+> ⚠️ **重要说明：** 30元季付限量包为福利款，任何优惠码均不参与折扣；其余套餐（月付、半年付、年付等）可在双11 活动期间使用 `Crazy1111` 享 8 折，活动结束后可继续使用 `TNT85` 享 85 折
 
 --- 
 
