@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 16:00:04（北京时间）**
+🕒 更新时间：**2025年11月02日 16:08:04（北京时间）**
 
 ---
 
@@ -27,7 +27,7 @@
 | Barack Obama, Kamala Harris campaign for Democrats, as Donald Trump's political operation invests in turnout - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOaERaNVcwRHMzcDhYX3JiUDFKU0tURHIyMFpIWTRPOHVPOHVKekExV2Z1aW9WbUdUQkFZZjRXQlJ3T2pMRGZHWDAwRXBleWpUSk5FS29xeXp3NzNFNlB6U090VlMxZnoybXk1dkxEMVZhOXVmLVJTZXpid3JuQUFrcV9iRldWRVpsMVhDU19EdHdTMm14MnRzRTE5X0hRenFaMVdwTlhsU0RhWVF2cEZZ0gG0AUFVX3lxTE5mUnktR2wwXzFScldHUHpZZ2J6R3U1UTZmZU1vUXZZcThGcXQ3SExQdGU2ZTR2RmZJblhLeVlUeVdkTEs4Q1JBc2hwNFR4TWI0NEQ0SF84TW11VkdUZzhkV29rMGdFMTZOOVhINmFpQXVGQ1plRGRpRy1rVVRQOHpHY0duNy1VUnQxNTZfdDhjUHc4aDZnTUo1ODk3MkwwcllDbzJ4WGhuMnJ2bmJQTVJTZlZZZQ?oc=5) |
 | Nine people with life-threatening injuries after mass stabbing on train in Cambridgeshire - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE15b2EzYmlpbVpyR1JhcTdJX1BIOEtYUm42bHlSSl9TeXVOLS1Rd3VOT0pSM2FSSXZfQXZnNWg1SklpdXE4c05DWlpKTWRWYjJYR0ZHTA?oc=5) |
 | ‘Intentional’ Explosion Took Place at Harvard Medical School, Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOTEZzcmZfcnNGQjZMcjluRy15Z01UT3MxanVGejdrdWlidDV6V3ZDTjBzV0pRZUNaV0F4QUlpbC1RdFAzNkZEVXBqNzBRMkw1clhlVTNEMnRKcnZiT3VnVm9rM3AtMl9HVHlNTi0yTGV3ajJ0c2FqYUEwU29XNUczcw?oc=5) |
-| Two additional suspects charged in Louvre jewel heist that shocked France - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQSnlJQlBBd21jREtyUERhcUZ0cGRnb0JzamhZaXJqRFRTRUctd2FKdEFIU195TjR5UFVrMndNQkl1NktRZHhsc2hHLTluU3JGdTdrVVhyMm1uenJOekxiVWI3WFZkTVVsMzRySG5JaHlNejNGbnJvOG1yVnFRNHNwd3J3?oc=5) |
+| Trump administration tells Congress war law doesn’t apply to cartel strikes - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPOUxDRzF4dEdzcmNWWG5ZQWx0UExwZ2x5SFVuZWtuSHYzcHk5T1BpWU9qaERnTFVYMm1RRXNvZ0gzRUNndlZxTGtjSW9rc1hjb29tUEwwNWwxYTJlTFk3RkFZdkpPNWFjLXg4TV9hWm9KVkVydWZBYTAxY2kxQkFnMVcxSzZKcWNYaWQ3TDllOVZKS0lz?oc=5) |
 | Number of dead in Jamaica due to Hurricane Melissa rises to 28 - Sky News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNRlI2RkxXblV5SGJtODhPa3RrOGxBbi1pdURGYTlILWxpV084UEg2dTVjeURsd21pUlJvYkpMWXdRQlNHVzk4dFFmTDcwWnFUYVZ0Z0haQ1d3MXpPMU9xNjA1c3Mwd1ZJYTRUTlF3N2RmcnpwSEhDdjlieDNHMmtVRnNIX0dFbVhvT3FsOTYtOXdDWEN4dUwwU2MyTHNxbjA?oc=5) |
 | Federal judge thanks Trump, orders him to make SNAP payments - Roll Call | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNMHBCU1lRbDBvYVlyRlFtcnU0a1dqdUJlTm9WVnItY1B0c19ZRnVmMmpSajVuS1FhSEdDTGowWG1QVFFpLTVZLXhCbXVMZGpkT0FnUVBXbTR6bWNLck4wb29UT2xtU0Z5VVdDNDBtcmsyTlJjdC1KZDhMektDZWI2Zl85aWVQYWNjUkxhTDNZT2NCVUdSZTJR?oc=5) |
 | Poll shows Zohran Mamdani's lead in NYC mayoral race narrowing during final weekend of early voting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOa0FlN2pZTEZVOVI0aDlNT3VQVmlPWGw2b0VROExpanNPTXRUWWZRNUY2aHZueVE4cFVGX3dpQXNlVW93TW84eGtUdFdlMU1PNzY1ZWV0QUhNV3d0UXBkNnV1S3p5RmVCa0Y0MkZPU0Y3aFlHSlVDMnhibDhERG5tMXg3amI?oc=5) |
