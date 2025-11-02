@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 15:49:37（北京时间）**
+🕒 更新时间：**2025年11月02日 15:57:33（北京时间）**
 
 ---
 
@@ -16,16 +16,16 @@
 | Military homes to be renovated in £9bn government plan | [阅读全文](https://www.bbc.com/news/articles/c6200r15lp1o?at_medium=RSS&at_campaign=rss) |
 | Not having the time of your life at uni? You're not alone | [阅读全文](https://www.bbc.com/news/articles/cn4jw1xxz7lo?at_medium=RSS&at_campaign=rss) |
 | Tracking the ICE tactics used in Trump's mass deportation drive | [阅读全文](https://www.bbc.com/news/videos/c6299nrj76yo?at_medium=RSS&at_campaign=rss) |
-| The Papers: 'More pressure on Andrew' and 'Reeves eyes doubling of council tax' | [阅读全文](https://www.bbc.com/news/articles/cn511903ekvo?at_medium=RSS&at_campaign=rss) |
 | Young Russians are being seduced by a cheap, dangerous weight-loss pill called Molecule | [阅读全文](https://www.bbc.com/news/articles/c201xe61x0lo?at_medium=RSS&at_campaign=rss) |
+| New Yorkers could pick a political newcomer to run their city - and take on Trump | [阅读全文](https://www.bbc.com/news/articles/c3rjjdvx5r5o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump threatens US military action in Nigeria over treatment of Christians - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQT0ktVElkZTZ5Nmw1TWU3dTFCNUJBUG9xWkhRUjZldjhwZ2MtZWl6cWxHTnpsek5hYmRpTGFFZTY4S2RFTUdidDZwTFd5cVVWcTE0YVJKRHhrbnZLMlE1REZ4WU9fSmI5d29FZVg5akV0RjdnYlJDQm1ybnBOSi1RcGRtbGI3MHdrbmFhVThZOW9SWlFKM0R4YVJZbHlxSGlLMnV4bHNIUC1mWWp0eFBpdlNnQnZXTlNQa1AzTDdIVTVUYVk?oc=5) |
+| Trump threatens military action in Nigeria over Christian persecution claims - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNYzRiV0J6cTluSFdwWnNzTlBTdlhCTndONEItNzZyc3JmOEhEQThSWWI4LTl3RFR4b0JIdXJtVjRBbU1DZnN4eTBab0dpRXZtN1k2M0RXWnJTLU9ERWtuTFlETllXX2xvN0FJZXBEQV9rUThrdjBKakZSOEYtb2treFhNX041OTBaYmFpSQ?oc=5) |
 | Barack Obama, Kamala Harris campaign for Democrats, as Donald Trump's political operation invests in turnout - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOaERaNVcwRHMzcDhYX3JiUDFKU0tURHIyMFpIWTRPOHVPOHVKekExV2Z1aW9WbUdUQkFZZjRXQlJ3T2pMRGZHWDAwRXBleWpUSk5FS29xeXp3NzNFNlB6U090VlMxZnoybXk1dkxEMVZhOXVmLVJTZXpid3JuQUFrcV9iRldWRVpsMVhDU19EdHdTMm14MnRzRTE5X0hRenFaMVdwTlhsU0RhWVF2cEZZ0gG0AUFVX3lxTE5mUnktR2wwXzFScldHUHpZZ2J6R3U1UTZmZU1vUXZZcThGcXQ3SExQdGU2ZTR2RmZJblhLeVlUeVdkTEs4Q1JBc2hwNFR4TWI0NEQ0SF84TW11VkdUZzhkV29rMGdFMTZOOVhINmFpQXVGQ1plRGRpRy1rVVRQOHpHY0duNy1VUnQxNTZfdDhjUHc4aDZnTUo1ODk3MkwwcllDbzJ4WGhuMnJ2bmJQTVJTZlZZZQ?oc=5) |
-| 10 people hospitalized after UK train stabbing attack, 9 with life-threatening injuries - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxOOFBPTndpblBmaElSVWpTTnpDbTg2UU1lV05CaVV1dFIzOEZoMGhCRkR6QkNDSG5DQzFYdW5CejB2NkJCZXBXZC1KMDN0YWJBSnBlWDFYZHdncEJSRTNMOHBOczBTcVNxVFd0Ym5vNTI0NFBHdGVMM3hxVTI1ZHJTNWtuakFyek0xV0ZfQzlUMEpfNFZuX25MRV90YWRRSzF4Wnc3eVpGRDBYN0VmMUxhU3c0U0FZbmprYlJXWmQtVnpkMFhlNnFZZWF0MA?oc=5) |
+| Nine people with life-threatening injuries after mass stabbing on train in Cambridgeshire - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE15b2EzYmlpbVpyR1JhcTdJX1BIOEtYUm42bHlSSl9TeXVOLS1Rd3VOT0pSM2FSSXZfQXZnNWg1SklpdXE4c05DWlpKTWRWYjJYR0ZHTA?oc=5) |
 | ‘Intentional’ Explosion Took Place at Harvard Medical School, Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOTEZzcmZfcnNGQjZMcjluRy15Z01UT3MxanVGejdrdWlidDV6V3ZDTjBzV0pRZUNaV0F4QUlpbC1RdFAzNkZEVXBqNzBRMkw1clhlVTNEMnRKcnZiT3VnVm9rM3AtMl9HVHlNTi0yTGV3ajJ0c2FqYUEwU29XNUczcw?oc=5) |
 | Two additional suspects charged in Louvre jewel heist that shocked France - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQSnlJQlBBd21jREtyUERhcUZ0cGRnb0JzamhZaXJqRFRTRUctd2FKdEFIU195TjR5UFVrMndNQkl1NktRZHhsc2hHLTluU3JGdTdrVVhyMm1uenJOekxiVWI3WFZkTVVsMzRySG5JaHlNejNGbnJvOG1yVnFRNHNwd3J3?oc=5) |
 | Federal judge thanks Trump, orders him to make SNAP payments - Roll Call | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNMHBCU1lRbDBvYVlyRlFtcnU0a1dqdUJlTm9WVnItY1B0c19ZRnVmMmpSajVuS1FhSEdDTGowWG1QVFFpLTVZLXhCbXVMZGpkT0FnUVBXbTR6bWNLck4wb29UT2xtU0Z5VVdDNDBtcmsyTlJjdC1KZDhMektDZWI2Zl85aWVQYWNjUkxhTDNZT2NCVUdSZTJR?oc=5) |
