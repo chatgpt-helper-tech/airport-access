@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 11:00:31（北京时间）**
+🕒 更新时间：**2025年11月02日 11:08:12（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Nine people with life-threatening injuries after mass stabbing on train in Cambridgeshire - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE15b2EzYmlpbVpyR1JhcTdJX1BIOEtYUm42bHlSSl9TeXVOLS1Rd3VOT0pSM2FSSXZfQXZnNWg1SklpdXE4c05DWlpKTWRWYjJYR0ZHTA?oc=5) |
+| 'Multiple people' stabbed on train in Cambridgeshire - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE15b2EzYmlpbVpyR1JhcTdJX1BIOEtYUm42bHlSSl9TeXVOLS1Rd3VOT0pSM2FSSXZfQXZnNWg1SklpdXE4c05DWlpKTWRWYjJYR0ZHTA?oc=5) |
 | Trump Administration Must Make Food Stamp Payments Within Days, Judge Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNSDZ3V3JPbzFKc01HOWVNREpiM3U3YjJhS2IwOFZneTJHUkxOcDB4QjdPQkN2MUdmMm53aW9BTEEySFdNaTdVemkxRVNjMEtVcFhkMlhWTXBBdXYtSTJKWkh1a2E0QkRESDNRMUNHZ3pHQlkyV29FM3BlZ0lWZlpwQll5OA?oc=5) |
 | Trump threatens military action in Nigeria over Christian persecution claims - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNYzRiV0J6cTluSFdwWnNzTlBTdlhCTndONEItNzZyc3JmOEhEQThSWWI4LTl3RFR4b0JIdXJtVjRBbU1DZnN4eTBab0dpRXZtN1k2M0RXWnJTLU9ERWtuTFlETllXX2xvN0FJZXBEQV9rUThrdjBKakZSOEYtb2treFhNX041OTBaYmFpSQ?oc=5) |
 | As Barack Obama stumps for other Democrats, the party gets to see what it lost - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNTW9FeTlaY1BzMXlEckZ1TGt6dm5YX0VOVGhGOWxGLU50MURmVjVCeTNKNHJsTHFjaFg0Y3pHc1A4bk41MDNSX2NJV2ROMG1TbFB4MHZHT3JrRWNmemRpcjVON3FVVDY5V3NsTXhZd2V1aDN2NVE1aEZweFFVZjJ0SDJTbw?oc=5) |
