@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 17:40:37（北京时间）**
+🕒 更新时间：**2025年11月02日 17:48:18（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | Mum of drug smuggler Bella Culley describes pregnant teen’s life in Georgian prison | [阅读全文](https://www.bbc.com/news/articles/c62065ynx5xo?at_medium=RSS&at_campaign=rss) |
 | Not having the time of your life at uni? You're not alone | [阅读全文](https://www.bbc.com/news/articles/cn4jw1xxz7lo?at_medium=RSS&at_campaign=rss) |
 | I blew the whistle on a massive tax scam - and they sued me | [阅读全文](https://www.bbc.com/news/articles/c2kp19ed78wo?at_medium=RSS&at_campaign=rss) |
-| Tracking the ICE tactics used in Trump's mass deportation drive | [阅读全文](https://www.bbc.com/news/videos/c6299nrj76yo?at_medium=RSS&at_campaign=rss) |
+| Football Manager has finally added women's teams after 20 years. I put the game to the test | [阅读全文](https://www.bbc.com/news/articles/clyz8de5p57o?at_medium=RSS&at_campaign=rss) |
 | Young Russians are being seduced by a cheap, dangerous weight-loss pill called Molecule | [阅读全文](https://www.bbc.com/news/articles/c201xe61x0lo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
