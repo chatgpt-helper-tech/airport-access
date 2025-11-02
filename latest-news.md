@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 13:01:39（北京时间）**
+🕒 更新时间：**2025年11月02日 13:09:19（北京时间）**
 
 ---
 
@@ -15,24 +15,24 @@
 | Britons to be evacuated from Jamaica as UK sends Hurricane Melissa aid | [阅读全文](https://www.bbc.com/news/articles/cvg441qyv2xo?at_medium=RSS&at_campaign=rss) |
 | Military homes to be renovated in £9bn government plan | [阅读全文](https://www.bbc.com/news/articles/c6200r15lp1o?at_medium=RSS&at_campaign=rss) |
 | Not having the time of your life at uni? You're not alone | [阅读全文](https://www.bbc.com/news/articles/cn4jw1xxz7lo?at_medium=RSS&at_campaign=rss) |
+| Train attack victim shouted 'someone's got a knife', eyewitness tells BBC | [阅读全文](https://www.bbc.com/news/videos/cp3xxg07gzyo?at_medium=RSS&at_campaign=rss) |
 | The Papers: 'More pressure on Andrew' and 'Reeves eyes doubling of council tax' | [阅读全文](https://www.bbc.com/news/articles/cn511903ekvo?at_medium=RSS&at_campaign=rss) |
 | Young Russians are being seduced by a cheap, dangerous weight-loss pill called Molecule | [阅读全文](https://www.bbc.com/news/articles/c201xe61x0lo?at_medium=RSS&at_campaign=rss) |
-| Football Manager has finally added women's teams after 20 years. I put the game to the test | [阅读全文](https://www.bbc.com/news/articles/clyz8de5p57o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| LIVE: Dodgers-Blue Jays World Series Game 7 (FOX) - MLB.com | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQZktydFk1cDdZeVJGVm9zLVpvV3BEcU81bXFSbHFrOXJnTXU1Z2xTRDFBOGdvVkdaV2dZd0l3S1JwdGtQT21QYUR2Mi1Bb0ZleHJfOEwzSVRyNkVOWWoxTjZMVFQ3ZHdCZ1RKZmxLX0tvWnlZQ3BLdXJ1Zm83NU9lY2thTEE5bkFmSWpPcTQ3MjdBdGgwTlYtLUVDWmlUUEJGZHpmbGZ30gGyAUFVX3lxTE14TUhJOUR4Nm5vUUo2aG5DeVAxVnlpLUZTMGc3YWdBdUVONjIyOEF5ZFpKbnJTc2pQX0RDbmlYR2xqTzFkb1M1dTJocVR2aXJHWHEteTNjOUxpVHFsb0x2NDFOdHRwLWwtNk1EZW5CTjNhWkZPVE1NTzR0ZWVXX3FEeHBMN3BVMmQyUXhvV1VEQ0lfVXdQZ25qTmRBdHI0WGhfWTU4UG9fYmtxbFpNemtmMWc?oc=5) |
 | Trump threatens military action in Nigeria over Christian persecution claims - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNYzRiV0J6cTluSFdwWnNzTlBTdlhCTndONEItNzZyc3JmOEhEQThSWWI4LTl3RFR4b0JIdXJtVjRBbU1DZnN4eTBab0dpRXZtN1k2M0RXWnJTLU9ERWtuTFlETllXX2xvN0FJZXBEQV9rUThrdjBKakZSOEYtb2treFhNX041OTBaYmFpSQ?oc=5) |
 | UK police say 10 people in hospital after train stabbing attack, 9 with life-threatening injuries - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOWUtJYkZHLWNYUzZ2WVVoQ25CNm1IcUttRUhGUm80WGphcmdHYmJCWElkLWNacmFmWGVNVDNKalQ4aUVYRlhydnFMUzhfTGFHWjA2Y1lfc3l4WGRQLVdLYVN0Vm1KVXNjWWQwV05LTDZ3ZzdyUmpLclpWUk5STGdsenc4Rm9OZy1WMmVrYkZTXzdveUds?oc=5) |
 | As Barack Obama stumps for other Democrats, the party gets to see what it lost - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNTW9FeTlaY1BzMXlEckZ1TGt6dm5YX0VOVGhGOWxGLU50MURmVjVCeTNKNHJsTHFjaFg0Y3pHc1A4bk41MDNSX2NJV2ROMG1TbFB4MHZHT3JrRWNmemRpcjVON3FVVDY5V3NsTXhZd2V1aDN2NVE1aEZweFFVZjJ0SDJTbw?oc=5) |
 | Clocks fall back Sunday with an "extra hour" — but Congress remains split on time change - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPaUxMSFZhRnBVS2ZkaEpJXzVxNTdXa3phZDdLUXNEa3phdWRUTjVVcXV3UlFCYVVIeHNna0hRV1NjX2owbjZrb3lteXRJbVNVYXFQQ0R6ZVdua0NVeHdJV0xUTzktSjB0aFp3NUxLNnZYLUFOTks3RmFVOUVpb3Nvb0FvaDgxcUth?oc=5) |
 | Trump Administration Must Make Food Stamp Payments Within Days, Judge Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNSDZ3V3JPbzFKc01HOWVNREpiM3U3YjJhS2IwOFZneTJHUkxOcDB4QjdPQkN2MUdmMm53aW9BTEEySFdNaTdVemkxRVNjMEtVcFhkMlhWTXBBdXYtSTJKWkh1a2E0QkRESDNRMUNHZ3pHQlkyV29FM3BlZ0lWZlpwQll5OA?oc=5) |
-| Explosion at Harvard Medical School appears to have been intentional, authorities say. No one hurt - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPSi1GbS14UE13TGFwTW5rMUdvMHB5cHJlb0lKZnczLW82NllENnFscWxNXzBleWhRZlFvT0xXSEVicDE0UEZXWFRjUkJGT0JESFdLYWllLUtPbmlZenoweHhRb1VWM0s2T0htcUV6TjNtMjdqZDNtUFZGSXZTNVZWX0Q4OHh3bUdjdHBFSGJSeHpYcUFrdTVXWFJlbUR0T1ZvZnhRemVlZU54bURBR3d4bks3dVRkUdIBuwFBVV95cUxNaUJaLUdIWGsta3dnUHp5czhhdXpVTWJua2NTZTFIRU5WN3JiUkZNNEZJc1BJMU40WS1kZDh2TVg2R1ltdnVlVE9nS3ItY1RWblNFM29UemtTU3RXZm5hWjZxbDlSR0x4NklvNFFPTWU4WnppSFFic0l2dmtPUjk5OTlwRDRoM1kyVjZvNUowZjdLc1V1cnB3T0xiZjhhTUJQRVZoMlg0U3ZJNWhsUXNONHo5QmdNcF9aNkZN?oc=5) |
-| Obama, Mamdani talk as Election Day approaches in New York City mayor's race - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPOXpVRVVMbV9mY1BCcEh3cVdFclh3QXBWRlBqRW9GUFNZamJmS01IS0c0eF9OQXZPSTlxZmJqTm5jOVdjOXgwM2VYUW9OUldWdDJ4RVN0VGdHREV1R1FtdXdhT0JGSjQ1VWxubzQwSC1CX0pQT184WU15M0VZOXZ6YVJTbE8zN1A5T3NSTFlYVUx0bWtNbVN1cVVob0hjV0d2X1hZ0gGoAUFVX3lxTE9XbU51S01Cc3dYWHJwSkQ3OFdtQTB6V0tDMTZyU0hEbjJyelVJWm42RzQzSmpVNDMxV08yNk9KelQteHZ0WDJNM0cwY0dzcFRKOWY0UTFub1NlaW5nVV9XTHdBSWFxNTVxOUdySjJqdnBTTkRHXzlta0N2eTdDZ0NyN0ttY1BucmFyX05RNWJLRjJMdTdOVGNGZGZ4SzQ5LUN1QkItczktNQ?oc=5) |
+| Poll shows Zohran Mamdani's lead in NYC mayoral race narrowing during final weekend of early voting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOa0FlN2pZTEZVOVI0aDlNT3VQVmlPWGw2b0VROExpanNPTXRUWWZRNUY2aHZueVE4cFVGX3dpQXNlVW93TW84eGtUdFdlMU1PNzY1ZWV0QUhNV3d0UXBkNnV1S3p5RmVCa0Y0MkZPU0Y3aFlHSlVDMnhibDhERG5tMXg3amI?oc=5) |
+| Obama calls Mamdani, offers help as 'sounding board' in the future: Sources - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOUVdjRkJHVkZpRE1kLXVDUVpHM25YaXk1a0FNUEpjUzNyaWdBWDYtT2ZlNkFqcWNLRkJfaFkxdUJUWGpEN3c0RDRJZGh5cm5mRU5KTVB3RjlvaGMySjdIbk1PVHZleGhuTTd6VUhKTGxWeDFhNnBCMW5SV0xJM1pReXZmbDhZMXdFRWJ4Mm5FVEx4S1REQmJzV0dQNGN6TWFidDhUNWpfUFJ3SEXSAbABQVVfeXFMUGlFdk9xZU04dmtRdFlzN2VxT3ZORm0zTTFsd3JscER4b1BscjVRbVlVMVJqVDNBbjBJRUdSNURYX2QzTjVuN1U0T0FVdzV4YkRZTGhEdzFCVGJ6b0poUFBTRW04UTVaRFVjYmd1OUJfTTAwRFF1VjlKNlpYSFVKR2g4Y0VfaVVPaGJpRHpBUGpPcFJRRVEzSGZRdUJQQnQ3bWFKTmJralp0eFBtR2pVMXo?oc=5) |
+| ‘Intentional’ Explosion Took Place at Harvard Medical School, Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOTEZzcmZfcnNGQjZMcjluRy15Z01UT3MxanVGejdrdWlidDV6V3ZDTjBzV0pRZUNaV0F4QUlpbC1RdFAzNkZEVXBqNzBRMkw1clhlVTNEMnRKcnZiT3VnVm9rM3AtMl9HVHlNTi0yTGV3ajJ0c2FqYUEwU29XNUczcw?oc=5) |
 | JD Vance repeats comments he wants wife Usha to convert to Christianity - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1adW5JSk9qUjYzNmVfZTlBOUtNcHZsNVVONG9RcHhGRW9GSDVlVWFBWFZhdU5MNmZFdW9YU1d2RUoxR3o1c1E2VnNNREVxX3lCLTZJaWJkcHVJSlZIcDFOSlAwT2Q3NFYzdThQTEl4WnI0TmdGNGY4bS12WHIwQWM?oc=5) |
-| Mamdani targets Cuomo’s Black base in final days of campaign - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNbXlXQXJSSnRSeThfLXZuS24wanRVWThFLUJwbmpRcVd0T2tVd2lxdWREQnRGOVl2X2h1eUJCUHhnenI5MFU1aDlyZEpTZVdRdkYzSThsZFN1RXNaUEJOZmk4cVlWeGlyaHZkVHo1OXYyd0twa2U0NUlQVi1sSDhSMXJ1MWRaUGNIVWQtTWR5R2Y0UW9Sc2ZCd01McUxvQTNmY1FxZ1pueGU1QmxPUHc?oc=5) |
-| Fact Sheet: President Donald J. Trump Strikes Deal on Economic and Trade Relations with China - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxPYU54V29IYkgxMmlUeldrVDlQbC05T3FpYXZucHRyRTFubzRIRF9NTFJfaWxLWGNxQ3FNakt3MTA4ZFZmUWNOTGZsRExqT0h4dHFfUEhPeUZOdDNXSWQ0X2l6ZEN5NGNZVWxWYTYwTVRMRHJmNXJJM3pWcHBNT1EtRXdBaXlDM1pDX2hXaWFQajVqMTAybnBGQVEtalI1X2JtM1NsWkI5RTlMaU5zZzdtM2V3bDJlUXVLdUVJWlE0WFR4UmlzdXVCeDFBcnZKcHFkN1FZY3FB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
