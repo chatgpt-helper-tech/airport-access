@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 00:49:45（北京时间）**
+🕒 更新时间：**2025年11月03日 00:57:40（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | 'We have no idea what lies ahead': Aid struggles to reach Jamaican towns devastated by hurricane | [阅读全文](https://www.bbc.com/news/articles/cpv11w8ez10o?at_medium=RSS&at_campaign=rss) |
 | Louvre heist was by petty criminals not organised crime professionals, prosecutor says | [阅读全文](https://www.bbc.com/news/articles/c4gw42j29lqo?at_medium=RSS&at_campaign=rss) |
 | I blew the whistle on a massive tax scam - and they sued me | [阅读全文](https://www.bbc.com/news/articles/c2kp19ed78wo?at_medium=RSS&at_campaign=rss) |
-| Devastation on repeat: How climate change is worsening Pakistan's deadly floods | [阅读全文](https://www.bbc.com/news/articles/cgmx2e3nnw0o?at_medium=RSS&at_campaign=rss) |
+| How Pakistan is struggling to recover from deadly floods worsened by climate change | [阅读全文](https://www.bbc.com/news/articles/cgmx2e3nnw0o?at_medium=RSS&at_campaign=rss) |
 | New Yorkers could pick a political newcomer to run their city - and take on Trump | [阅读全文](https://www.bbc.com/news/articles/c3rjjdvx5r5o?at_medium=RSS&at_campaign=rss) |
 | 300 million tourists just visited this breathtaking corner of China. There's a side they didn't see | [阅读全文](https://www.bbc.com/news/articles/c8x1rnnd5gjo?at_medium=RSS&at_campaign=rss) |
 | Mum of drug smuggler Bella Culley describes pregnant teen’s life in Georgian prison | [阅读全文](https://www.bbc.com/news/articles/c62065ynx5xo?at_medium=RSS&at_campaign=rss) |
@@ -31,8 +31,8 @@
 | 'We will delay, we will cancel' flights to make sure people are safe: Duffy on ATC issues - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNOWMwTDBabzFoVXlEY1paRUZVcEc3TUxqa3JnYkpTc2xzOGQ2ZGRQM25GVlozT0t4UkhuQ1ZnR0RWRGZzdnlScFowZklpVUFVVU94X2xYbnpIQXVhS3Q1Ml9uQWlLRG14cTdWbEl5dS1BdENVby1qSXNpbTdja1lQVGo0dnlmWGFYTC1BaUtxXzZqNDBrcElYSFUwRkJ4Y2PSAaQBQVVfeXFMT0xYMWtpOTdPOVJ6RHVTUVFrUkcyZUtoRktjdi0xYV9PcnR2aFNWR2pfaVRTbTFVeVJLRXdnbHZfeDEwS25yUDRwbUhGZkNCZ3owV3RLS3VVMlZyS2g4YlZYS1pXUXphdFo3dGNBWEdoQnJxQm5GdllvbjNXUHVnVkZLNjdFLUpPcjhsMFNoYkI0ZWFIQU1abjM0OXVoSl8zLVpRNzk?oc=5) |
 | No one hurt after ‘intentional’ explosion at Harvard medical campus, officials say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQM3E1TWZ4eTUwSTVDZmhjX0hNQmd5OHdZRU1NTVI0VnFiV1kwT05WQjhpdFZWZmc1eVJyZHR5cXUxamNCZTVZWjFvaWhjcXE5Unlya1Q2MG53dWdEUGxFQ25nZGdsVTB6QUdNQkNMNmNoa3F0bGNDYXJNX3VWMDR6aXRxTGdNaHhZWmc?oc=5) |
 | U.S. carries out lethal strike against alleged drug carriers in Caribbean, killing at least 3 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQSnhpWFpNZi1UbEc1dnc4ZlV3V092Vll0anlOOEFqMzJFQ2ZSZHZSNEhEQ21jUTcza0NTZ2hvQ25vMktpVXhqU2lOLUQxVXRDYTlpV0MtUTlQTVIyR2JrejBaYlpIX1c2ZkhjTnRVVE9QcGRwOTBiSW94ZXVmaUQ4OE5sT1FvZ9IBiwFBVV95cUxNWGZWOWt3M3Qyb0wzV0ZmQndSV3pEU254RTBJRnQxWXg5U1Eta2V6bTZDODdqaTZWRkF0YzU2bERGdEVPNUFSb2QySWNVb04wV1BSTjZzRTRmQkhTVkF1V1FzVHpoQ0RCQXlpV3FjYWZRVl8yb2UxclhfeGhCdnFIUE02bldyWHZxRnlv?oc=5) |
-| Trump Live Updates: SNAP Funding, Nigeria Threats and More - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE94VVc4cTNCdWZTNVVaTTVrVEE3OEwtRGdOT3RWeUJWRUFiS1JmS2ZRVjFJTXYxZ1d6TEUtTGYtU1paRGhPaDNWZGtPSEVBZHB0SkVSd0VvSjAyLVR5V25EV1BJWQ?oc=5) |
 | Dems say the American Dream is dead. A lot of Trump voters agree. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQWlNWSlBmZ2JHTFg4OE9rZ3FLQk90RHI1c19GX0xHT0p1OGRxQmJXeEV4bWtBRGlOc1laWkwxNml4aUtNQ0x5Y29fdXFPVGdSbERnOThPdFB0ZnVmamRKZm51b2RDcXpKdjVNQUhIWWNFVUlSMDFCS1E3SU1SSGkyUFlhZGs4TWpDU3c?oc=5) |
+| Trump Live Updates: SNAP Funding, Nigeria Threats and More - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE94VVc4cTNCdWZTNVVaTTVrVEE3OEwtRGdOT3RWeUJWRUFiS1JmS2ZRVjFJTXYxZ1d6TEUtTGYtU1paRGhPaDNWZGtPSEVBZHB0SkVSd0VvSjAyLVR5V25EV1BJWQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
