@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 00:08:51（北京时间）**
+🕒 更新时间：**2025年11月03日 00:16:03（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | King to strip Andrew of his final military title, minister says | [阅读全文](https://www.bbc.com/news/articles/c8675l25591o?at_medium=RSS&at_campaign=rss) |
 | Andrew arranged palace visit for crypto-mining firm which had £1.4m deal with ex-wife | [阅读全文](https://www.bbc.com/news/articles/cy5q05v0q1xo?at_medium=RSS&at_campaign=rss) |
 | Young Russians are being seduced by a cheap, dangerous weight-loss pill called Molecule | [阅读全文](https://www.bbc.com/news/articles/c201xe61x0lo?at_medium=RSS&at_campaign=rss) |
-| Three killed in latest US strike on alleged drug boat in Caribbean | [阅读全文](https://www.bbc.com/news/articles/cn401vzjx48o?at_medium=RSS&at_campaign=rss) |
-| Mum of drug smuggler Bella Culley describes pregnant teen’s life in Georgian prison | [阅读全文](https://www.bbc.com/news/articles/c62065ynx5xo?at_medium=RSS&at_campaign=rss) |
+| 'We have no idea what lies ahead': Aid struggles to reach Jamaican towns devastated by hurricane | [阅读全文](https://www.bbc.com/news/articles/cpv11w8ez10o?at_medium=RSS&at_campaign=rss) |
 | I blew the whistle on a massive tax scam - and they sued me | [阅读全文](https://www.bbc.com/news/articles/c2kp19ed78wo?at_medium=RSS&at_campaign=rss) |
-| Not having the time of your life at uni? You're not alone | [阅读全文](https://www.bbc.com/news/articles/cn4jw1xxz7lo?at_medium=RSS&at_campaign=rss) |
+| Devastation on repeat: How climate change is worsening Pakistan's deadly floods | [阅读全文](https://www.bbc.com/news/articles/cgmx2e3nnw0o?at_medium=RSS&at_campaign=rss) |
 | New Yorkers could pick a political newcomer to run their city - and take on Trump | [阅读全文](https://www.bbc.com/news/articles/c3rjjdvx5r5o?at_medium=RSS&at_campaign=rss) |
+| 300 million tourists just visited this breathtaking corner of China. There's a side they didn't see | [阅读全文](https://www.bbc.com/news/articles/c8x1rnnd5gjo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -28,7 +28,7 @@
 | Barack Obama, Kamala Harris campaign for Democrats, as Donald Trump's political operation invests in turnout - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOaERaNVcwRHMzcDhYX3JiUDFKU0tURHIyMFpIWTRPOHVPOHVKekExV2Z1aW9WbUdUQkFZZjRXQlJ3T2pMRGZHWDAwRXBleWpUSk5FS29xeXp3NzNFNlB6U090VlMxZnoybXk1dkxEMVZhOXVmLVJTZXpid3JuQUFrcV9iRldWRVpsMVhDU19EdHdTMm14MnRzRTE5X0hRenFaMVdwTlhsU0RhWVF2cEZZ0gG0AUFVX3lxTE5mUnktR2wwXzFScldHUHpZZ2J6R3U1UTZmZU1vUXZZcThGcXQ3SExQdGU2ZTR2RmZJblhLeVlUeVdkTEs4Q1JBc2hwNFR4TWI0NEQ0SF84TW11VkdUZzhkV29rMGdFMTZOOVhINmFpQXVGQ1plRGRpRy1rVVRQOHpHY0duNy1VUnQxNTZfdDhjUHc4aDZnTUo1ODk3MkwwcllDbzJ4WGhuMnJ2bmJQTVJTZlZZZQ?oc=5) |
 | Even for Some Mamdani Supporters, His Thin Résumé Is Cause for Concern - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5GTmF0NHlubTB0VlJDUlMwSjFvcVhua19qWkRUc1dRb3FqUnZKTUxGdkhpaENubXpLdmVKNEFDOVgybzdvaTlSejF6X0hUUWMtakY1WkM3OTFVa3Y5MTdZTzRHbEFSRy1FYTFnU1UxdVBRal9mSk9oSHR1TFhpZw?oc=5) |
 | UK train stabbings injure nine, police arrest two suspects - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNeXB5V3V1dG9uU1BwOHBLT2lEZmdhWm5KSDdfQWVwTHYxSVFMSFhsUkdkNlU4V2lTM2xYRGo0OFhscDJ2czhDUmZUekF5MnV2V0VCZEJJMVFmcXpiMF9YX3M1NGw5blJ1WXZQMlZTd0tnZXRmUGFvUGdSbXVBdmR3UmM3SEtTSS1mMzJSWWJjRVdWbmNCc2U4dFFjQ2N4ZktWX1FERHpIdmlSR0U?oc=5) |
-| Donald Trump’s Approval Rating Falls to All-Time Low With White Voters - Newsweek | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQb2V1NEhCWG9iYUlWTFNFamVubmlpYURBRkxUXzBXVDdPR3NhSDFFdy1mbk5SUGxlSGpFSmZLd0JFd3FQUlc4NjJ4S0Q2ZWxqOVJTX3RuTlp2d2VHNHU3T244QUNqVFQtSEN6cGRiajZfZ1RmMDZhRUZKaDYySFJKcjRtTi0xM3E4Q1hVdU5TY1NvcEpYMVN2eThzbzFNdU0?oc=5) |
+| 'We will delay, we will cancel' flights to make sure people are safe: Duffy on ATC issues - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNOWMwTDBabzFoVXlEY1paRUZVcEc3TUxqa3JnYkpTc2xzOGQ2ZGRQM25GVlozT0t4UkhuQ1ZnR0RWRGZzdnlScFowZklpVUFVVU94X2xYbnpIQXVhS3Q1Ml9uQWlLRG14cTdWbEl5dS1BdENVby1qSXNpbTdja1lQVGo0dnlmWGFYTC1BaUtxXzZqNDBrcElYSFUwRkJ4Y2PSAaQBQVVfeXFMT0xYMWtpOTdPOVJ6RHVTUVFrUkcyZUtoRktjdi0xYV9PcnR2aFNWR2pfaVRTbTFVeVJLRXdnbHZfeDEwS25yUDRwbUhGZkNCZ3owV3RLS3VVMlZyS2g4YlZYS1pXUXphdFo3dGNBWEdoQnJxQm5GdllvbjNXUHVnVkZLNjdFLUpPcjhsMFNoYkI0ZWFIQU1abjM0OXVoSl8zLVpRNzk?oc=5) |
 | No one hurt after ‘intentional’ explosion at Harvard medical campus, officials say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQM3E1TWZ4eTUwSTVDZmhjX0hNQmd5OHdZRU1NTVI0VnFiV1kwT05WQjhpdFZWZmc1eVJyZHR5cXUxamNCZTVZWjFvaWhjcXE5Unlya1Q2MG53dWdEUGxFQ25nZGdsVTB6QUdNQkNMNmNoa3F0bGNDYXJNX3VWMDR6aXRxTGdNaHhZWmc?oc=5) |
 | Judge Praises Trump, Issues Deadline for November SNAP Benefit Payments - Newsweek | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQdk1yX3JWb19DTVZ5R0VVTnRwbDJVZW55MUFsdHZtWGxmMGstUWxUSDNWRTcwTy1HQkE1c2ZkXzUxNXk4MDRuM3pvV2Z5Q1RENno2b3NvMzV4Ul9IY2hoT05EWk93MVFHeFpidEVqWkplcEJVczlsMzZRNzltc0tJZGJVUWxNNF9PYUZpRGN6bzZxRERQMHBha1dSZ0h5ZGZ0cUxUbUVRbw?oc=5) |
 | Dems say the American Dream is dead. A lot of Trump voters agree. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQWlNWSlBmZ2JHTFg4OE9rZ3FLQk90RHI1c19GX0xHT0p1OGRxQmJXeEV4bWtBRGlOc1laWkwxNml4aUtNQ0x5Y29fdXFPVGdSbERnOThPdFB0ZnVmamRKZm51b2RDcXpKdjVNQUhIWWNFVUlSMDFCS1E3SU1SSGkyUFlhZGs4TWpDU3c?oc=5) |
