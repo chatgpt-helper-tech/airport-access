@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 22:32:50（北京时间）**
+🕒 更新时间：**2025年11月02日 22:40:43（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Explosion at Harvard Medical School appears to have been intentional, authorities say. No one hurt - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPSi1GbS14UE13TGFwTW5rMUdvMHB5cHJlb0lKZnczLW82NllENnFscWxNXzBleWhRZlFvT0xXSEVicDE0UEZXWFRjUkJGT0JESFdLYWllLUtPbmlZenoweHhRb1VWM0s2T0htcUV6TjNtMjdqZDNtUFZGSXZTNVZWX0Q4OHh3bUdjdHBFSGJSeHpYcUFrdTVXWFJlbUR0T1ZvZnhRemVlZU54bURBR3d4bks3dVRkUdIBuwFBVV95cUxNaUJaLUdIWGsta3dnUHp5czhhdXpVTWJua2NTZTFIRU5WN3JiUkZNNEZJc1BJMU40WS1kZDh2TVg2R1ltdnVlVE9nS3ItY1RWblNFM29UemtTU3RXZm5hWjZxbDlSR0x4NklvNFFPTWU4WnppSFFic0l2dmtPUjk5OTlwRDRoM1kyVjZvNUowZjdLc1V1cnB3T0xiZjhhTUJQRVZoMlg0U3ZJNWhsUXNONHo5QmdNcF9aNkZN?oc=5) |
 | Judge Praises Trump, Issues Deadline for November SNAP Benefit Payments - Newsweek | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQdk1yX3JWb19DTVZ5R0VVTnRwbDJVZW55MUFsdHZtWGxmMGstUWxUSDNWRTcwTy1HQkE1c2ZkXzUxNXk4MDRuM3pvV2Z5Q1RENno2b3NvMzV4Ul9IY2hoT05EWk93MVFHeFpidEVqWkplcEJVczlsMzZRNzltc0tJZGJVUWxNNF9PYUZpRGN6bzZxRERQMHBha1dSZ0h5ZGZ0cUxUbUVRbw?oc=5) |
 | Poll: Most Americans think the government lies. Many say the American Dream is dead. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQWlNWSlBmZ2JHTFg4OE9rZ3FLQk90RHI1c19GX0xHT0p1OGRxQmJXeEV4bWtBRGlOc1laWkwxNml4aUtNQ0x5Y29fdXFPVGdSbERnOThPdFB0ZnVmamRKZm51b2RDcXpKdjVNQUhIWWNFVUlSMDFCS1E3SU1SSGkyUFlhZGs4TWpDU3c?oc=5) |
-| Obama, Mamdani talk as Election Day approaches in New York City mayor's race - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPOXpVRVVMbV9mY1BCcEh3cVdFclh3QXBWRlBqRW9GUFNZamJmS01IS0c0eF9OQXZPSTlxZmJqTm5jOVdjOXgwM2VYUW9OUldWdDJ4RVN0VGdHREV1R1FtdXdhT0JGSjQ1VWxubzQwSC1CX0pQT184WU15M0VZOXZ6YVJTbE8zN1A5T3NSTFlYVUx0bWtNbVN1cVVob0hjV0d2X1hZ0gGoAUFVX3lxTE9XbU51S01Cc3dYWHJwSkQ3OFdtQTB6V0tDMTZyU0hEbjJyelVJWm42RzQzSmpVNDMxV08yNk9KelQteHZ0WDJNM0cwY0dzcFRKOWY0UTFub1NlaW5nVV9XTHdBSWFxNTVxOUdySjJqdnBTTkRHXzlta0N2eTdDZ0NyN0ttY1BucmFyX05RNWJLRjJMdTdOVGNGZGZ4SzQ5LUN1QkItczktNQ?oc=5) |
+| Obama blasts Trump ahead of Election Day in Virginia and New Jersey. Republicans keep it local - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNX1Rsc3Z1Y0lHbE9CT0tra0hPdGtvNWtEWU44VFFxRG5PajhTSzNNcDBoSDBCUmRUWWtFOVBLQVUwX1R1YnBDMGp2Xy03SkQ1ZGlwUVNZcFFjMnhWTFZCcnVBdHNtVnlHcUFIcmFXeEZQbjl1M3dqSHd1MXlsTFVqSUR6V09wQUhlS2M3TVBKT1NqTWxaR3UzYUNWS0JzSW8xenpMeEVUZEpPZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
