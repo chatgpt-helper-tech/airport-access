@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 17:16:53（北京时间）**
+🕒 更新时间：**2025年11月02日 17:25:05（北京时间）**
 
 ---
 
@@ -25,14 +25,14 @@
 |--------|-------------|
 | Trump threatens military action in Nigeria over Christian persecution claims - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNYzRiV0J6cTluSFdwWnNzTlBTdlhCTndONEItNzZyc3JmOEhEQThSWWI4LTl3RFR4b0JIdXJtVjRBbU1DZnN4eTBab0dpRXZtN1k2M0RXWnJTLU9ERWtuTFlETllXX2xvN0FJZXBEQV9rUThrdjBKakZSOEYtb2treFhNX041OTBaYmFpSQ?oc=5) |
 | Barack Obama, Kamala Harris campaign for Democrats, as Donald Trump's political operation invests in turnout - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOaERaNVcwRHMzcDhYX3JiUDFKU0tURHIyMFpIWTRPOHVPOHVKekExV2Z1aW9WbUdUQkFZZjRXQlJ3T2pMRGZHWDAwRXBleWpUSk5FS29xeXp3NzNFNlB6U090VlMxZnoybXk1dkxEMVZhOXVmLVJTZXpid3JuQUFrcV9iRldWRVpsMVhDU19EdHdTMm14MnRzRTE5X0hRenFaMVdwTlhsU0RhWVF2cEZZ0gG0AUFVX3lxTE5mUnktR2wwXzFScldHUHpZZ2J6R3U1UTZmZU1vUXZZcThGcXQ3SExQdGU2ZTR2RmZJblhLeVlUeVdkTEs4Q1JBc2hwNFR4TWI0NEQ0SF84TW11VkdUZzhkV29rMGdFMTZOOVhINmFpQXVGQ1plRGRpRy1rVVRQOHpHY0duNy1VUnQxNTZfdDhjUHc4aDZnTUo1ODk3MkwwcllDbzJ4WGhuMnJ2bmJQTVJTZlZZZQ?oc=5) |
+| Nine people with life-threatening injuries after mass stabbing on train in Cambridgeshire - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE15b2EzYmlpbVpyR1JhcTdJX1BIOEtYUm42bHlSSl9TeXVOLS1Rd3VOT0pSM2FSSXZfQXZnNWg1SklpdXE4c05DWlpKTWRWYjJYR0ZHTA?oc=5) |
 | Hurricane Melissa: Britons evacuated from Jamaica as UK sends aid - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9NeFA1eUhqMWppeDQxTnBVS214VUdiYktNQm0yeTRPZTI0WE4xdjFESXRpaVBnTW56SmgtbWhNNHZOY2Vyeld2LTVLZU91V1ZXa2E0Sm8yTzF4d9IBX0FVX3lxTE9rS09FOF93LWhzTjR5WjlVQm9xeUJYbzA0U3c3VTI1bS1YZDdvV19MYmxoYVE2ekxESWpUdUJzbHJCNVpCWVVZeDMyRXo2VzVNeFRNOUFTbUN1aVZFVU1v?oc=5) |
-| UK police say 10 people in hospital after train stabbing attack, 9 with life-threatening injuries - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOWUtJYkZHLWNYUzZ2WVVoQ25CNm1IcUttRUhGUm80WGphcmdHYmJCWElkLWNacmFmWGVNVDNKalQ4aUVYRlhydnFMUzhfTGFHWjA2Y1lfc3l4WGRQLVdLYVN0Vm1KVXNjWWQwV05LTDZ3ZzdyUmpLclpWUk5STGdsenc4Rm9OZy1WMmVrYkZTXzdveUds?oc=5) |
 | ‘Intentional’ Explosion Took Place at Harvard Medical School, Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOTEZzcmZfcnNGQjZMcjluRy15Z01UT3MxanVGejdrdWlidDV6V3ZDTjBzV0pRZUNaV0F4QUlpbC1RdFAzNkZEVXBqNzBRMkw1clhlVTNEMnRKcnZiT3VnVm9rM3AtMl9HVHlNTi0yTGV3ajJ0c2FqYUEwU29XNUczcw?oc=5) |
 | Federal judge thanks Trump, orders him to make SNAP payments - Roll Call | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNMHBCU1lRbDBvYVlyRlFtcnU0a1dqdUJlTm9WVnItY1B0c19ZRnVmMmpSajVuS1FhSEdDTGowWG1QVFFpLTVZLXhCbXVMZGpkT0FnUVBXbTR6bWNLck4wb29UT2xtU0Z5VVdDNDBtcmsyTlJjdC1KZDhMektDZWI2Zl85aWVQYWNjUkxhTDNZT2NCVUdSZTJR?oc=5) |
 | Poll shows Zohran Mamdani's lead in NYC mayoral race narrowing during final weekend of early voting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOa0FlN2pZTEZVOVI0aDlNT3VQVmlPWGw2b0VROExpanNPTXRUWWZRNUY2aHZueVE4cFVGX3dpQXNlVW93TW84eGtUdFdlMU1PNzY1ZWV0QUhNV3d0UXBkNnV1S3p5RmVCa0Y0MkZPU0Y3aFlHSlVDMnhibDhERG5tMXg3amI?oc=5) |
 | Obama Calls Mamdani to Praise His Campaign and Offers to Be Sounding Board - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPaXh0OUFpTktNZmMzcDZVbzBwMV9KaDlmeWJWSExCek4yTEtHTlFRLWtnTmpPaHFIajltN0xtQkM1ZGpjVndadDR1LUdUZG5IdHZuTTFhVVRYZFpBSVVRMjNham9yLTFNZHI5Q0xTaWlrdkQtTGNSZUpZUXI5alVTV2RTeTVmUzZTeGQwdEZ3?oc=5) |
-| Clocks fall back Sunday with an "extra hour" — but Congress remains split on time change - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPaUxMSFZhRnBVS2ZkaEpJXzVxNTdXa3phZDdLUXNEa3phdWRUTjVVcXV3UlFCYVVIeHNna0hRV1NjX2owbjZrb3lteXRJbVNVYXFQQ0R6ZVdua0NVeHdJV0xUTzktSjB0aFp3NUxLNnZYLUFOTks3RmFVOUVpb3Nvb0FvaDgxcUth?oc=5) |
-| What did Trump, Xi agree to on tariffs, export controls and fentanyl - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPSHRaWXZXNmNQZlNRWk14SVFrYWdrOFJUWDZtVUwyQ2Mwakx4VC1ZOUdFcHdCaGtBVm9CX0ZKSzJXZFM2SXBfdERWY1hoVFRKbm1VUnNCRUt1emxuMG5Ha1lZMmNLVHo2UWdGS2tUNXNkM0FteHEzZEpUVWlyNWhKUWFCRHlBTnh3T3ktVl9CYnlhT0pSbElpdHBSc2dydGw0azFv?oc=5) |
+| Daylight saving time ends Sunday. Here’s what to know - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOSjV2UTZXRnpVN0tEYkJScEpTYVpTQVVhcVdQdmRVMXY4djQ0RXNpUV9mY0hfdGxQTU9mUnktY0dObGF1WVlrNlZCeVg0aGVleGZtMTVWMV9KdFJucHU1bkFBWHNnQk9NTy12RU9RSWczbFpNazlQdkVwenRwN0R1aUZ5c0pEZ1FxT0thLQ?oc=5) |
+| White House discloses details of China trade truce - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOX3pnd21EOVFzNnFfU1ZZTWhIT3phSTRaRm9rNnh6LUxJb0xDQzAyMThYbnpuMUFLdnFtVk9LSnNwRkJJTFl5dy1WQVAyeUV0c1cyd25OUnBzNDJROURMLXFXV0NqN3FXZnp3WHdWUGlKVzNQeVJIVlBDYmhlbVp4VXQyczhKdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
