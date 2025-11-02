@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 23:24:21（北京时间）**
+🕒 更新时间：**2025年11月02日 23:32:29（北京时间）**
 
 ---
 
@@ -27,7 +27,7 @@
 | Police Arrest Two British Men in Stabbing Rampage on Train - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOU25qcVlOa2dMVWlHd1BLNW5rakhSVXJGYm9LRVJMR1ZnQ1hJdEFDV3QtdUdVWmQ0WkZ2aE9qWTRWR0JOVUlqdXRSYWk2djBJUXQzajFQWi1lTVJxdUE4ajN4OTVsbi1iRDh3RGJqcTNZb2F5elY4Xy14Wk4yR3JQQ0pWYTl6M3h1?oc=5) |
 | The luxury gap: Trump builds his palace as Americans face going hungry - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPUlQ4UVVwQXd3VlBYekdUdXFXNmM2eGtaUGVveF9wWFVQRktibGQzRGI4RW1GOFpnQWVtWXpYR2lsX2ZkQ1hya2oyQ1NqWE1XckFxU19ENGZhVVM4U1BJeHEtOU9WTlVMem9sc0pMOUVXeDJELURsVllnUTQ5TVFqSE5aMkhZbVpsWXhGeDlDQWk?oc=5) |
 | Zohran Mamdani: Who is the likely new mayor of New York? - DW | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQMEFZdGptdXBZaVNXYk1tdHlrcTJheThteE0tS3FxOFlUdmdvcnhkUjBaWm94TG9vT2pjb0hhbF9ZclFfUEEtQ3l5OEJoQUc1YkgwSHBFN2hvVGZYNC1ST04xem5yanN6NFFOdUJpMnRvZVlSV0xOb2FzRlJfVFFxLURvYmxzZGQtNjBnNktxdHjSAZABQVVfeXFMTkhjdF9yaUZLdkNwTER5XzhYZVEyLXdKUWYxWHlOVjRzd3M0ZmxrMEhCTkVIc0xCd2kzOVZiRTRQRDlDbEtlbFk3a1V5Qk5BZDV2cVNMOGl1X0pTcmdEZmFPMHU1YUlXMUl1TkZWR1psWUltbjVyeW9fbnJ5a1ExUWR6VWZ4d0VIbW82SXpGb3VQ?oc=5) |
-| Donald Trump’s Approval Rating Falls to All-Time Low With White Voters - Newsweek | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQb2V1NEhCWG9iYUlWTFNFamVubmlpYURBRkxUXzBXVDdPR3NhSDFFdy1mbk5SUGxlSGpFSmZLd0JFd3FQUlc4NjJ4S0Q2ZWxqOVJTX3RuTlp2d2VHNHU3T244QUNqVFQtSEN6cGRiajZfZ1RmMDZhRUZKaDYySFJKcjRtTi0xM3E4Q1hVdU5TY1NvcEpYMVN2eThzbzFNdU0?oc=5) |
+| 'We will delay, we will cancel' flights to make sure people are safe: Duffy on ATC issues - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNOWMwTDBabzFoVXlEY1paRUZVcEc3TUxqa3JnYkpTc2xzOGQ2ZGRQM25GVlozT0t4UkhuQ1ZnR0RWRGZzdnlScFowZklpVUFVVU94X2xYbnpIQXVhS3Q1Ml9uQWlLRG14cTdWbEl5dS1BdENVby1qSXNpbTdja1lQVGo0dnlmWGFYTC1BaUtxXzZqNDBrcElYSFUwRkJ4Y2PSAaQBQVVfeXFMT0xYMWtpOTdPOVJ6RHVTUVFrUkcyZUtoRktjdi0xYV9PcnR2aFNWR2pfaVRTbTFVeVJLRXdnbHZfeDEwS25yUDRwbUhGZkNCZ3owV3RLS3VVMlZyS2g4YlZYS1pXUXphdFo3dGNBWEdoQnJxQm5GdllvbjNXUHVnVkZLNjdFLUpPcjhsMFNoYkI0ZWFIQU1abjM0OXVoSl8zLVpRNzk?oc=5) |
 | Gov. Gavin Newsom, Kamala Harris rally Californians to vote on Prop. 50 - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPeWZlTXZZYVNRLTRmd0dMdFZEdjJ0Y0pVbllacU13QWF1ZzVsTDM1bEZ0SkRJQjZrZkRUc213Qm4wbGZOQWtEOVlYVl9XLW1ZLWU4aXAtcFlYOEU3NVRwTlJpYWg0LUpJbHJnaU91U0p3cUpKelJkTnFJV0Y1QllvdGNLYUYyWlRpQnUyYlVEaW8wZXZUS21HTllwUkwxNFowbzNlMjJDeE4tREdhdnFYWlZLa2JMbTJyMU5UVk1qd3Y?oc=5) |
 | Explosion at Harvard medical campus appears intentional, authorities say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQM3E1TWZ4eTUwSTVDZmhjX0hNQmd5OHdZRU1NTVI0VnFiV1kwT05WQjhpdFZWZmc1eVJyZHR5cXUxamNCZTVZWjFvaWhjcXE5Unlya1Q2MG53dWdEUGxFQ25nZGdsVTB6QUdNQkNMNmNoa3F0bGNDYXJNX3VWMDR6aXRxTGdNaHhZWmc?oc=5) |
 | Dems say the American Dream is dead. A lot of Trump voters agree. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQWlNWSlBmZ2JHTFg4OE9rZ3FLQk90RHI1c19GX0xHT0p1OGRxQmJXeEV4bWtBRGlOc1laWkwxNml4aUtNQ0x5Y29fdXFPVGdSbERnOThPdFB0ZnVmamRKZm51b2RDcXpKdjVNQUhIWWNFVUlSMDFCS1E3SU1SSGkyUFlhZGs4TWpDU3c?oc=5) |
