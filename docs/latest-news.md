@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 14:25:31（北京时间）**
+🕒 更新时间：**2025年11月02日 14:33:24（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Obama, Mamdani talk as Election Day approaches in New York City mayor's race - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPOXpVRVVMbV9mY1BCcEh3cVdFclh3QXBWRlBqRW9GUFNZamJmS01IS0c0eF9OQXZPSTlxZmJqTm5jOVdjOXgwM2VYUW9OUldWdDJ4RVN0VGdHREV1R1FtdXdhT0JGSjQ1VWxubzQwSC1CX0pQT184WU15M0VZOXZ6YVJTbE8zN1A5T3NSTFlYVUx0bWtNbVN1cVVob0hjV0d2X1hZ0gGoAUFVX3lxTE9XbU51S01Cc3dYWHJwSkQ3OFdtQTB6V0tDMTZyU0hEbjJyelVJWm42RzQzSmpVNDMxV08yNk9KelQteHZ0WDJNM0cwY0dzcFRKOWY0UTFub1NlaW5nVV9XTHdBSWFxNTVxOUdySjJqdnBTTkRHXzlta0N2eTdDZ0NyN0ttY1BucmFyX05RNWJLRjJMdTdOVGNGZGZ4SzQ5LUN1QkItczktNQ?oc=5) |
 | What to Know About the New York City Mayoral Election - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQdVZ0MW9FTDJWcG9IVUN6d2dSSUhZbmJ4Wkdmd2dYSmdKaGhMM0pobmF5R3VFUjZoX3BROWRQai1fS2VyNThTQlpFaEVfRmlNaHZmcU9TNEpWWG5NbTg1cUJ4Vm1CMHpuMUVibGdFVXoyMGV2Zkh3Qzd2YVRkN3Qwa25ubEg?oc=5) |
 | Daylight saving time ends Sunday. Here’s what to know - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOSjV2UTZXRnpVN0tEYkJScEpTYVpTQVVhcVdQdmRVMXY4djQ0RXNpUV9mY0hfdGxQTU9mUnktY0dObGF1WVlrNlZCeVg0aGVleGZtMTVWMV9KdFJucHU1bkFBWHNnQk9NTy12RU9RSWczbFpNazlQdkVwenRwN0R1aUZ5c0pEZ1FxT0thLQ?oc=5) |
-| JD Vance repeats comments he wants wife Usha to convert to Christianity - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE1adW5JSk9qUjYzNmVfZTlBOUtNcHZsNVVONG9RcHhGRW9GSDVlVWFBWFZhdU5MNmZFdW9YU1d2RUoxR3o1c1E2VnNNREVxX3lCLTZJaWJkcHVJSlZIcDFOSlAwT2Q3NFYzdThQTEl4WnI0TmdGNGY4bS12WHIwQWM?oc=5) |
+| White House discloses details of China trade truce - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOX3pnd21EOVFzNnFfU1ZZTWhIT3phSTRaRm9rNnh6LUxJb0xDQzAyMThYbnpuMUFLdnFtVk9LSnNwRkJJTFl5dy1WQVAyeUV0c1cyd25OUnBzNDJROURMLXFXV0NqN3FXZnp3WHdWUGlKVzNQeVJIVlBDYmhlbVp4VXQyczhKdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
