@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 12:48:09（北京时间）**
+🕒 更新时间：**2025年11月02日 12:56:24（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump threatens military action in Nigeria over Christian persecution claims - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNYzRiV0J6cTluSFdwWnNzTlBTdlhCTndONEItNzZyc3JmOEhEQThSWWI4LTl3RFR4b0JIdXJtVjRBbU1DZnN4eTBab0dpRXZtN1k2M0RXWnJTLU9ERWtuTFlETllXX2xvN0FJZXBEQV9rUThrdjBKakZSOEYtb2treFhNX041OTBaYmFpSQ?oc=5) |
+| Trump threatens to cut off aid to Nigeria, possible military action over claims of 'killing of Christians' - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQQ09vRTRzSU9KLW1KOWdNSldRRlRHQ2xtQlV5emJ3dlp5czg1MHJaaXFfYTFFbmRyREU3S1hMa0hwaUU2NHp3c2c1dXpwbTZfSzhjNzFFaDFrczBzMWtVY1E2ZkdOQ25zdU1HUmJIaEJXX2dhSUFMQkliOEdGbWV4dVI2Zk55UVd4LTltVnVoYzJBN202YnJwbGloTnFOOVZMOVVpTHFMTkN5aHfSAbABQVVfeXFMT2ZKMEEyN0hVU1lCbnZtUm5seWpnYURGOXZUZ2JlZkdyMEFKaWc5aWYxekVkRkZtNThvTmdRM21zZDJCeFh3MlBWdzVHUnhiTjA2OHlXRVowaGpJQzF5OGRSbzFVbmJBalA3dWNxaFF0Mk1yaXduR2l6V1NFTXNpeEpkVkV6NVhPc0IwN0NoYmFEa0FndWNqSjdCandkZHdDaWRoTzZqbElxaVRrUUxwQ2E?oc=5) |
 | UK police say 10 people in hospital after train stabbing attack, 9 with life-threatening injuries - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOWUtJYkZHLWNYUzZ2WVVoQ25CNm1IcUttRUhGUm80WGphcmdHYmJCWElkLWNacmFmWGVNVDNKalQ4aUVYRlhydnFMUzhfTGFHWjA2Y1lfc3l4WGRQLVdLYVN0Vm1KVXNjWWQwV05LTDZ3ZzdyUmpLclpWUk5STGdsenc4Rm9OZy1WMmVrYkZTXzdveUds?oc=5) |
 | As Barack Obama stumps for other Democrats, the party gets to see what it lost - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNTW9FeTlaY1BzMXlEckZ1TGt6dm5YX0VOVGhGOWxGLU50MURmVjVCeTNKNHJsTHFjaFg0Y3pHc1A4bk41MDNSX2NJV2ROMG1TbFB4MHZHT3JrRWNmemRpcjVON3FVVDY5V3NsTXhZd2V1aDN2NVE1aEZweFFVZjJ0SDJTbw?oc=5) |
-| Clocks fall back Sunday with an "extra hour" — but Congress remains split on time change - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPaUxMSFZhRnBVS2ZkaEpJXzVxNTdXa3phZDdLUXNEa3phdWRUTjVVcXV3UlFCYVVIeHNna0hRV1NjX2owbjZrb3lteXRJbVNVYXFQQ0R6ZVdua0NVeHdJV0xUTzktSjB0aFp3NUxLNnZYLUFOTks3RmFVOUVpb3Nvb0FvaDgxcUth?oc=5) |
+| Daylight saving time ends Sunday. Here’s what to know - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOSjV2UTZXRnpVN0tEYkJScEpTYVpTQVVhcVdQdmRVMXY4djQ0RXNpUV9mY0hfdGxQTU9mUnktY0dObGF1WVlrNlZCeVg0aGVleGZtMTVWMV9KdFJucHU1bkFBWHNnQk9NTy12RU9RSWczbFpNazlQdkVwenRwN0R1aUZ5c0pEZ1FxT0thLQ?oc=5) |
 | ‘Intentional’ Explosion Took Place at Harvard Medical School, Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOTEZzcmZfcnNGQjZMcjluRy15Z01UT3MxanVGejdrdWlidDV6V3ZDTjBzV0pRZUNaV0F4QUlpbC1RdFAzNkZEVXBqNzBRMkw1clhlVTNEMnRKcnZiT3VnVm9rM3AtMl9HVHlNTi0yTGV3ajJ0c2FqYUEwU29XNUczcw?oc=5) |
 | Two additional suspects charged in Louvre jewel heist that shocked France - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQSnlJQlBBd21jREtyUERhcUZ0cGRnb0JzamhZaXJqRFRTRUctd2FKdEFIU195TjR5UFVrMndNQkl1NktRZHhsc2hHLTluU3JGdTdrVVhyMm1uenJOekxiVWI3WFZkTVVsMzRySG5JaHlNejNGbnJvOG1yVnFRNHNwd3J3?oc=5) |
 | Trump Administration Must Make Food Stamp Payments Within Days, Judge Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNSDZ3V3JPbzFKc01HOWVNREpiM3U3YjJhS2IwOFZneTJHUkxOcDB4QjdPQkN2MUdmMm53aW9BTEEySFdNaTdVemkxRVNjMEtVcFhkMlhWTXBBdXYtSTJKWkh1a2E0QkRESDNRMUNHZ3pHQlkyV29FM3BlZ0lWZlpwQll5OA?oc=5) |
