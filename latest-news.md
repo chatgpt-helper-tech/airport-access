@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 20:17:01（北京时间）**
+🕒 更新时间：**2025年11月02日 20:24:26（北京时间）**
 
 ---
 
@@ -12,11 +12,11 @@
 | What we know about stabbings on Doncaster to London train | [阅读全文](https://www.bbc.com/news/articles/c8r007d4kk2o?at_medium=RSS&at_campaign=rss) |
 | King wants Andrew to lose final military title, minister says | [阅读全文](https://www.bbc.com/news/articles/c8675l25591o?at_medium=RSS&at_campaign=rss) |
 | Andrew arranged palace visit for crypto-mining firm which had £1.4m deal with ex-wife | [阅读全文](https://www.bbc.com/news/articles/cy5q05v0q1xo?at_medium=RSS&at_campaign=rss) |
-| Mum of drug smuggler Bella Culley describes pregnant teen’s life in Georgian prison | [阅读全文](https://www.bbc.com/news/articles/c62065ynx5xo?at_medium=RSS&at_campaign=rss) |
-| Hurricane Melissa death toll rises to 28 in Jamaica | [阅读全文](https://www.bbc.com/news/articles/c1e34p92q0vo?at_medium=RSS&at_campaign=rss) |
-| 300 million tourists just visited this breathtaking corner of China. There's a side they didn't see | [阅读全文](https://www.bbc.com/news/articles/c8x1rnnd5gjo?at_medium=RSS&at_campaign=rss) |
-| Not having the time of your life at uni? You're not alone | [阅读全文](https://www.bbc.com/news/articles/cn4jw1xxz7lo?at_medium=RSS&at_campaign=rss) |
 | I blew the whistle on a massive tax scam - and they sued me | [阅读全文](https://www.bbc.com/news/articles/c2kp19ed78wo?at_medium=RSS&at_campaign=rss) |
+| Britons evacuated from Jamaica as UK sends Hurricane Melissa aid | [阅读全文](https://www.bbc.com/news/articles/cvg441qyv2xo?at_medium=RSS&at_campaign=rss) |
+| 300 million tourists just visited this breathtaking corner of China. There's a side they didn't see | [阅读全文](https://www.bbc.com/news/articles/c8x1rnnd5gjo?at_medium=RSS&at_campaign=rss) |
+| Mum of drug smuggler Bella Culley describes pregnant teen’s life in Georgian prison | [阅读全文](https://www.bbc.com/news/articles/c62065ynx5xo?at_medium=RSS&at_campaign=rss) |
+| Not having the time of your life at uni? You're not alone | [阅读全文](https://www.bbc.com/news/articles/cn4jw1xxz7lo?at_medium=RSS&at_campaign=rss) |
 | Women afraid to be out in public after racially aggravated rapes | [阅读全文](https://www.bbc.com/news/articles/czxkw014rg9o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -27,11 +27,11 @@
 | UK train stabbings injure nine, police arrest two suspects - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNeXB5V3V1dG9uU1BwOHBLT2lEZmdhWm5KSDdfQWVwTHYxSVFMSFhsUkdkNlU4V2lTM2xYRGo0OFhscDJ2czhDUmZUekF5MnV2V0VCZEJJMVFmcXpiMF9YX3M1NGw5blJ1WXZQMlZTd0tnZXRmUGFvUGdSbXVBdmR3UmM3SEtTSS1mMzJSWWJjRVdWbmNCc2U4dFFjQ2N4ZktWX1FERHpIdmlSR0U?oc=5) |
 | Food Stamp Cuts Expose Trump’s Strategy to Use Shutdown to Advance Agenda - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOaTR4X2ZHeWtCbUJKSkwyQTNsNnhhUG5LUWowVHlPcXdCc09zUkdMc0ZBOGNlbXA5T1ozblJqRzVhbDRGNWFwckt2YmZqN0VEaS16TWt0RWdCaUktcGpTQXBYY293cGR6OUtjTEdvUWVPQzg4bUJfYV81YjFBX0o5a29YV3c?oc=5) |
 | U.S. military strikes alleged drug boat in the Caribbean killing 3, Hegseth says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxNN0pJRVM5RnJ3ZXloTzZ2NjZYV21EZjBZOE9SakMyYVdGRzgtOFNld0RWTGR0VXFDMFpRams3cU5YRW9QQlFnQzJELUgyVmF6S0NWVFlzVEhsNC1wWFBCUlBWcjhvcWpodzdjTi1hRzBGVFFha0s4YURXbWRqV3NEVmtMYnFmUkdfZzlrVDd4TXdRRkxleU8xRE43QU9zbDVhMTNZTTNIZHNWYUtRN0ktN1NjRmdHYVo0MHfSAVZBVV95cUxNRVdGV3Q0T3gwZEE1eXlFM0VKS1VWNUxtU245ZHBuRjhXNDRxUmc2S2dKY0w0OTdhMHRBQWtkTzlCZktFQjl2YXNCUk5CbzY1b0NiRTZhZw?oc=5) |
-| Jamaica relief efforts continue in aftermath of Hurricane Melissa - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNMkltSmJaTTNKMmZnS1IwZzItMUFGdUExSk15QmpkUU40SGhFSmxvOHphYmtpVU9LV0FCOUNLQWtyVDhTMlJXZjRmSnVVdWZhR3JmZnN3bmhPRFExRG9mVDBSd0hlUkY2U1pFS1hrNnY4TU4ydEJ4UzQySjUtSG5DaDA1c2wyZzVYd1hvb0tXUEpQX2dleEZZ0gGcAUFVX3lxTFAzbjRlX0QwZHJCNkFvY2xuekJtTWdzU0VLTTlyMWNtRHRlMHNPak45cWRUSThfbzlzaktTYzZvbGYyQmhlZC1CYnlpVUtVS0RKQWpUZ2RqM3ozaXR6MUlBV2NibmFvX3c1dmpEZ21lMWZfaFZISVZGQ1ltV1E1OGJjdTB6eThCM3ZhOTlUMGo4c2k0bVZqVHZtQUFPbw?oc=5) |
 | Most Americans say country is on the wrong track, blame Trump for inflation: Poll - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPYUZrSGNtVmNfbmU0ZU9tMWg1Slg5dlJfQ01zY0k5eHI1dDJfTGl6dFd6c3RFTVBCQXBhbkZmbWhQWDRZVEZ3dFYyYnNhTWZLME1ydXlvWF9pRWxMUVVhMllsZ3ptczVZN3ljVHlxRV9CeG02VUpYTEUtbW5CRjlDT0FybkplQzdnUjRTVlVLS0FLU1VuQTVSM2FwN1RIdE0zNzJzQ1RxRE1pV28?oc=5) |
+| Jamaica relief efforts continue in aftermath of Hurricane Melissa - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNMkltSmJaTTNKMmZnS1IwZzItMUFGdUExSk15QmpkUU40SGhFSmxvOHphYmtpVU9LV0FCOUNLQWtyVDhTMlJXZjRmSnVVdWZhR3JmZnN3bmhPRFExRG9mVDBSd0hlUkY2U1pFS1hrNnY4TU4ydEJ4UzQySjUtSG5DaDA1c2wyZzVYd1hvb0tXUEpQX2dleEZZ0gGcAUFVX3lxTFAzbjRlX0QwZHJCNkFvY2xuekJtTWdzU0VLTTlyMWNtRHRlMHNPak45cWRUSThfbzlzaktTYzZvbGYyQmhlZC1CYnlpVUtVS0RKQWpUZ2RqM3ozaXR6MUlBV2NibmFvX3c1dmpEZ21lMWZfaFZISVZGQ1ltV1E1OGJjdTB6eThCM3ZhOTlUMGo4c2k0bVZqVHZtQUFPbw?oc=5) |
 | Federal judge thanks Trump, orders him to make SNAP payments - Roll Call | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNMHBCU1lRbDBvYVlyRlFtcnU0a1dqdUJlTm9WVnItY1B0c19ZRnVmMmpSajVuS1FhSEdDTGowWG1QVFFpLTVZLXhCbXVMZGpkT0FnUVBXbTR6bWNLck4wb29UT2xtU0Z5VVdDNDBtcmsyTlJjdC1KZDhMektDZWI2Zl85aWVQYWNjUkxhTDNZT2NCVUdSZTJR?oc=5) |
-| Republican Jewish leaders planned a ceasefire celebration, pivoted to take on antisemitism within - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPcDh0SWtmZjc4ZWlSVzRZRDNDWnFlTlpNUE1fVnRORGstS2pqcDY2anhxMXI4VlpqWGl3RlJzWGJNcGRtQmh1bm4ySEFUaXpUWTVCQm9yb2RzWENfSWJkM0tjZ244RVRreUhyMlptV2V0SGUyWTlfNi1NV1IyalVuLXBMY09UX2ZHN0dFYWlpczVUTmJQN3Nrb1FUM3RjdUdDMVE?oc=5) |
 | Obama, Mamdani talk as Election Day approaches in New York City mayor's race - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPOXpVRVVMbV9mY1BCcEh3cVdFclh3QXBWRlBqRW9GUFNZamJmS01IS0c0eF9OQXZPSTlxZmJqTm5jOVdjOXgwM2VYUW9OUldWdDJ4RVN0VGdHREV1R1FtdXdhT0JGSjQ1VWxubzQwSC1CX0pQT184WU15M0VZOXZ6YVJTbE8zN1A5T3NSTFlYVUx0bWtNbVN1cVVob0hjV0d2X1hZ0gGoAUFVX3lxTE9XbU51S01Cc3dYWHJwSkQ3OFdtQTB6V0tDMTZyU0hEbjJyelVJWm42RzQzSmpVNDMxV08yNk9KelQteHZ0WDJNM0cwY0dzcFRKOWY0UTFub1NlaW5nVV9XTHdBSWFxNTVxOUdySjJqdnBTTkRHXzlta0N2eTdDZ0NyN0ttY1BucmFyX05RNWJLRjJMdTdOVGNGZGZ4SzQ5LUN1QkItczktNQ?oc=5) |
+| Republican Jewish leaders planned a ceasefire celebration, pivoted to take on antisemitism within - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPcDh0SWtmZjc4ZWlSVzRZRDNDWnFlTlpNUE1fVnRORGstS2pqcDY2anhxMXI4VlpqWGl3RlJzWGJNcGRtQmh1bm4ySEFUaXpUWTVCQm9yb2RzWENfSWJkM0tjZ244RVRreUhyMlptV2V0SGUyWTlfNi1NV1IyalVuLXBMY09UX2ZHN0dFYWlpczVUTmJQN3Nrb1FUM3RjdUdDMVE?oc=5) |
 | Daylight saving time ends Sunday. Here’s what to know - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOSjV2UTZXRnpVN0tEYkJScEpTYVpTQVVhcVdQdmRVMXY4djQ0RXNpUV9mY0hfdGxQTU9mUnktY0dObGF1WVlrNlZCeVg0aGVleGZtMTVWMV9KdFJucHU1bkFBWHNnQk9NTy12RU9RSWczbFpNazlQdkVwenRwN0R1aUZ5c0pEZ1FxT0thLQ?oc=5) |
 
 ---
