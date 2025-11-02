@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 01:57:11（北京时间）**
+🕒 更新时间：**2025年11月03日 02:02:00（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Clocks fall back Sunday with an "extra hour" — but Congress remains split on time change - axios.com | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPaUxMSFZhRnBVS2ZkaEpJXzVxNTdXa3phZDdLUXNEa3phdWRUTjVVcXV3UlFCYVVIeHNna0hRV1NjX2owbjZrb3lteXRJbVNVYXFQQ0R6ZVdua0NVeHdJV0xUTzktSjB0aFp3NUxLNnZYLUFOTks3RmFVOUVpb3Nvb0FvaDgxcUth?oc=5) |
 | 'We will delay, we will cancel' flights to make sure people are safe: Duffy on ATC issues - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNOWMwTDBabzFoVXlEY1paRUZVcEc3TUxqa3JnYkpTc2xzOGQ2ZGRQM25GVlozT0t4UkhuQ1ZnR0RWRGZzdnlScFowZklpVUFVVU94X2xYbnpIQXVhS3Q1Ml9uQWlLRG14cTdWbEl5dS1BdENVby1qSXNpbTdja1lQVGo0dnlmWGFYTC1BaUtxXzZqNDBrcElYSFUwRkJ4Y2PSAaQBQVVfeXFMT0xYMWtpOTdPOVJ6RHVTUVFrUkcyZUtoRktjdi0xYV9PcnR2aFNWR2pfaVRTbTFVeVJLRXdnbHZfeDEwS25yUDRwbUhGZkNCZ3owV3RLS3VVMlZyS2g4YlZYS1pXUXphdFo3dGNBWEdoQnJxQm5GdllvbjNXUHVnVkZLNjdFLUpPcjhsMFNoYkI0ZWFIQU1abjM0OXVoSl8zLVpRNzk?oc=5) |
 | Three killed in latest US strike on alleged drug boat in Caribbean - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE14UWMyYllJNTVKNEE2Nk1EWmxyX3BYVlFnbU1rTlMxWHBlcFJZQWx3OFZkM1dZazA5RTFrSzZhZWJEVHFJRkN2UE9tSzZ6SU50UGRHenoyZmhSZ9IBX0FVX3lxTE9UcVB4WXlTcEtSLWdSQjBFaC1ya1lKT2tXa3VPa1lTd1c5a245emVBOVk2cFV3aWxKYzhfU3NWYVdzaUlaekN3cE8zdFU4cWJZcnVaTjhnTTU1N3pPZ2Ew?oc=5) |
-| Explosion at Harvard Medical School appears to have been intentional, authorities say. No one hurt - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxPSi1GbS14UE13TGFwTW5rMUdvMHB5cHJlb0lKZnczLW82NllENnFscWxNXzBleWhRZlFvT0xXSEVicDE0UEZXWFRjUkJGT0JESFdLYWllLUtPbmlZenoweHhRb1VWM0s2T0htcUV6TjNtMjdqZDNtUFZGSXZTNVZWX0Q4OHh3bUdjdHBFSGJSeHpYcUFrdTVXWFJlbUR0T1ZvZnhRemVlZU54bURBR3d4bks3dVRkUdIBuwFBVV95cUxNaUJaLUdIWGsta3dnUHp5czhhdXpVTWJua2NTZTFIRU5WN3JiUkZNNEZJc1BJMU40WS1kZDh2TVg2R1ltdnVlVE9nS3ItY1RWblNFM29UemtTU3RXZm5hWjZxbDlSR0x4NklvNFFPTWU4WnppSFFic0l2dmtPUjk5OTlwRDRoM1kyVjZvNUowZjdLc1V1cnB3T0xiZjhhTUJQRVZoMlg0U3ZJNWhsUXNONHo5QmdNcF9aNkZN?oc=5) |
-| Dems say the American Dream is dead. A lot of Trump voters agree. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQWlNWSlBmZ2JHTFg4OE9rZ3FLQk90RHI1c19GX0xHT0p1OGRxQmJXeEV4bWtBRGlOc1laWkwxNml4aUtNQ0x5Y29fdXFPVGdSbERnOThPdFB0ZnVmamRKZm51b2RDcXpKdjVNQUhIWWNFVUlSMDFCS1E3SU1SSGkyUFlhZGs4TWpDU3c?oc=5) |
+| Most Americans say country is on the wrong track, blame Trump for inflation: Poll - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPYUZrSGNtVmNfbmU0ZU9tMWg1Slg5dlJfQ01zY0k5eHI1dDJfTGl6dFd6c3RFTVBCQXBhbkZmbWhQWDRZVEZ3dFYyYnNhTWZLME1ydXlvWF9pRWxMUVVhMllsZ3ptczVZN3ljVHlxRV9CeG02VUpYTEUtbW5CRjlDT0FybkplQzdnUjRTVlVLS0FLU1VuQTVSM2FwN1RIdE0zNzJzQ1RxRE1pV28?oc=5) |
+| No one hurt after ‘intentional’ explosion at Harvard medical campus, officials say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQM3E1TWZ4eTUwSTVDZmhjX0hNQmd5OHdZRU1NTVI0VnFiV1kwT05WQjhpdFZWZmc1eVJyZHR5cXUxamNCZTVZWjFvaWhjcXE5Unlya1Q2MG53dWdEUGxFQ25nZGdsVTB6QUdNQkNMNmNoa3F0bGNDYXJNX3VWMDR6aXRxTGdNaHhZWmc?oc=5) |
 | 'We're not a violent city': Chicago locals take on ICE block-by-block - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQZVVvMzhVTEdNbk1sWWFUM0R2Q2VMeUw3bTZoeFB0NTJlX24ycGJSOEQxeUVja2dydjhScFpBXy1kUzZ0eUVvRlNUajZSeTNHRnE4UG9aeTV6WFZuUnRnNlJBTkNLbXYwNmxzenZ5TWVfTTFQWkNJUFhVNVhwTEF6ZG9EZGtrRnp6aENSZDdLcjdoamEyRmx1V1VLWjVzZXY1QUlnQzFUS0Q?oc=5) |
 
 ---
