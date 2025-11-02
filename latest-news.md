@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 15:57:33（北京时间）**
+🕒 更新时间：**2025年11月02日 16:00:04（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Nine people with life-threatening injuries after mass stabbing on train in Cambridgeshire - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE15b2EzYmlpbVpyR1JhcTdJX1BIOEtYUm42bHlSSl9TeXVOLS1Rd3VOT0pSM2FSSXZfQXZnNWg1SklpdXE4c05DWlpKTWRWYjJYR0ZHTA?oc=5) |
 | ‘Intentional’ Explosion Took Place at Harvard Medical School, Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOTEZzcmZfcnNGQjZMcjluRy15Z01UT3MxanVGejdrdWlidDV6V3ZDTjBzV0pRZUNaV0F4QUlpbC1RdFAzNkZEVXBqNzBRMkw1clhlVTNEMnRKcnZiT3VnVm9rM3AtMl9HVHlNTi0yTGV3ajJ0c2FqYUEwU29XNUczcw?oc=5) |
 | Two additional suspects charged in Louvre jewel heist that shocked France - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQSnlJQlBBd21jREtyUERhcUZ0cGRnb0JzamhZaXJqRFRTRUctd2FKdEFIU195TjR5UFVrMndNQkl1NktRZHhsc2hHLTluU3JGdTdrVVhyMm1uenJOekxiVWI3WFZkTVVsMzRySG5JaHlNejNGbnJvOG1yVnFRNHNwd3J3?oc=5) |
+| Number of dead in Jamaica due to Hurricane Melissa rises to 28 - Sky News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNRlI2RkxXblV5SGJtODhPa3RrOGxBbi1pdURGYTlILWxpV084UEg2dTVjeURsd21pUlJvYkpMWXdRQlNHVzk4dFFmTDcwWnFUYVZ0Z0haQ1d3MXpPMU9xNjA1c3Mwd1ZJYTRUTlF3N2RmcnpwSEhDdjlieDNHMmtVRnNIX0dFbVhvT3FsOTYtOXdDWEN4dUwwU2MyTHNxbjA?oc=5) |
 | Federal judge thanks Trump, orders him to make SNAP payments - Roll Call | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNMHBCU1lRbDBvYVlyRlFtcnU0a1dqdUJlTm9WVnItY1B0c19ZRnVmMmpSajVuS1FhSEdDTGowWG1QVFFpLTVZLXhCbXVMZGpkT0FnUVBXbTR6bWNLck4wb29UT2xtU0Z5VVdDNDBtcmsyTlJjdC1KZDhMektDZWI2Zl85aWVQYWNjUkxhTDNZT2NCVUdSZTJR?oc=5) |
 | Poll shows Zohran Mamdani's lead in NYC mayoral race narrowing during final weekend of early voting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOa0FlN2pZTEZVOVI0aDlNT3VQVmlPWGw2b0VROExpanNPTXRUWWZRNUY2aHZueVE4cFVGX3dpQXNlVW93TW84eGtUdFdlMU1PNzY1ZWV0QUhNV3d0UXBkNnV1S3p5RmVCa0Y0MkZPU0Y3aFlHSlVDMnhibDhERG5tMXg3amI?oc=5) |
-| Is Barack Obama supporting Zohran Mamdani in NYC Mayoral Race? Inside their 30-minutes call - The Times of India | [阅读全文](https://news.google.com/rss/articles/CBMi8wFBVV95cUxPRm9MUkRGb2REalpkeWlMV0FHeGMxTENfQTMxdE5zVTFMMHZ2cXRfaWw3aUNfdXFOOGIxSXZLMHp4MTVzZkdaV0piLWVBV2hrLW5MZUlYclp6bnIzUkRXd2wtcGRLTHJXMWc5d1hKaXBnamFhZUYwZlByU1hqSXZDTGJUSEtFNERpUTNzUHR6ZWMycDhpNlR6X3Z1Y0JhU3FUUkhFMllhWWV3aUFjQkJZN2VUT0FWWHNTOUpuRW1WeGpUZWRuX2dlZW40cjdicDdndV82RDA2RTJlYUYyN0toTXBiNzdEV1F1VVlZd2RZTUNyYnfSAfgBQVVfeXFMTmhJZGdQdXp0STJQM0NwS3FBMmJILTZHR3M1V1EzWEEteHBUWGdPMkNONVFoNWZZOVBDR0pHZzk4aGFpZVZmVDAzUFI0Ym5ucXJOV09qbHhBQ0NwZElxSTI1eHp2Y2ZPWU9EUmhDalBVY0szRWNyWTk3MmNKYXdxSlI5VTBSOTNwT29TaXJORXc1LUlUT3pmN1o0SlJoSlg2bVFsMzUya0huNUNMd0Qxa2hVOWJUeXdrZU5pMkZWRldJY1l3U0VqVGU0Sl8wTTFuX01lNkZxa0c3X0xKQXVpdGc3X1IwaEJmc3lCcHB3bHVDQTB6Z3V6VHk?oc=5) |
 | Daylight saving time ends Sunday. Here’s what to know - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOSjV2UTZXRnpVN0tEYkJScEpTYVpTQVVhcVdQdmRVMXY4djQ0RXNpUV9mY0hfdGxQTU9mUnktY0dObGF1WVlrNlZCeVg0aGVleGZtMTVWMV9KdFJucHU1bkFBWHNnQk9NTy12RU9RSWczbFpNazlQdkVwenRwN0R1aUZ5c0pEZ1FxT0thLQ?oc=5) |
-| White House discloses details of China trade truce - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOX3pnd21EOVFzNnFfU1ZZTWhIT3phSTRaRm9rNnh6LUxJb0xDQzAyMThYbnpuMUFLdnFtVk9LSnNwRkJJTFl5dy1WQVAyeUV0c1cyd25OUnBzNDJROURMLXFXV0NqN3FXZnp3WHdWUGlKVzNQeVJIVlBDYmhlbVp4VXQyczhKdw?oc=5) |
+| Mamdani targets Cuomo’s Black base in final days of campaign - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNbXlXQXJSSnRSeThfLXZuS24wanRVWThFLUJwbmpRcVd0T2tVd2lxdWREQnRGOVl2X2h1eUJCUHhnenI5MFU1aDlyZEpTZVdRdkYzSThsZFN1RXNaUEJOZmk4cVlWeGlyaHZkVHo1OXYyd0twa2U0NUlQVi1sSDhSMXJ1MWRaUGNIVWQtTWR5R2Y0UW9Sc2ZCd01McUxvQTNmY1FxZ1pueGU1QmxPUHc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
