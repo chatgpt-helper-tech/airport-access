@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 16:08:05（北京时间）**
+🕒 更新时间：**2025年11月02日 16:17:40（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Federal judge thanks Trump, orders him to make SNAP payments - Roll Call | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNMHBCU1lRbDBvYVlyRlFtcnU0a1dqdUJlTm9WVnItY1B0c19ZRnVmMmpSajVuS1FhSEdDTGowWG1QVFFpLTVZLXhCbXVMZGpkT0FnUVBXbTR6bWNLck4wb29UT2xtU0Z5VVdDNDBtcmsyTlJjdC1KZDhMektDZWI2Zl85aWVQYWNjUkxhTDNZT2NCVUdSZTJR?oc=5) |
 | Poll shows Zohran Mamdani's lead in NYC mayoral race narrowing during final weekend of early voting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOa0FlN2pZTEZVOVI0aDlNT3VQVmlPWGw2b0VROExpanNPTXRUWWZRNUY2aHZueVE4cFVGX3dpQXNlVW93TW84eGtUdFdlMU1PNzY1ZWV0QUhNV3d0UXBkNnV1S3p5RmVCa0Y0MkZPU0Y3aFlHSlVDMnhibDhERG5tMXg3amI?oc=5) |
 | Daylight saving time ends Sunday. Here’s what to know - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOSjV2UTZXRnpVN0tEYkJScEpTYVpTQVVhcVdQdmRVMXY4djQ0RXNpUV9mY0hfdGxQTU9mUnktY0dObGF1WVlrNlZCeVg0aGVleGZtMTVWMV9KdFJucHU1bkFBWHNnQk9NTy12RU9RSWczbFpNazlQdkVwenRwN0R1aUZ5c0pEZ1FxT0thLQ?oc=5) |
+| White House discloses details of China trade truce - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOX3pnd21EOVFzNnFfU1ZZTWhIT3phSTRaRm9rNnh6LUxJb0xDQzAyMThYbnpuMUFLdnFtVk9LSnNwRkJJTFl5dy1WQVAyeUV0c1cyd25OUnBzNDJROURMLXFXV0NqN3FXZnp3WHdWUGlKVzNQeVJIVlBDYmhlbVp4VXQyczhKdw?oc=5) |
 | Mamdani targets Cuomo’s Black base in final days of campaign - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNbXlXQXJSSnRSeThfLXZuS24wanRVWThFLUJwbmpRcVd0T2tVd2lxdWREQnRGOVl2X2h1eUJCUHhnenI5MFU1aDlyZEpTZVdRdkYzSThsZFN1RXNaUEJOZmk4cVlWeGlyaHZkVHo1OXYyd0twa2U0NUlQVi1sSDhSMXJ1MWRaUGNIVWQtTWR5R2Y0UW9Sc2ZCd01McUxvQTNmY1FxZ1pueGU1QmxPUHc?oc=5) |
-| Fact Sheet: President Donald J. Trump Strikes Deal on Economic and Trade Relations with China - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxPYU54V29IYkgxMmlUeldrVDlQbC05T3FpYXZucHRyRTFubzRIRF9NTFJfaWxLWGNxQ3FNakt3MTA4ZFZmUWNOTGZsRExqT0h4dHFfUEhPeUZOdDNXSWQ0X2l6ZEN5NGNZVWxWYTYwTVRMRHJmNXJJM3pWcHBNT1EtRXdBaXlDM1pDX2hXaWFQajVqMTAybnBGQVEtalI1X2JtM1NsWkI5RTlMaU5zZzdtM2V3bDJlUXVLdUVJWlE0WFR4UmlzdXVCeDFBcnZKcHFkN1FZY3FB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
