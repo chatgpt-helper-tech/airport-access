@@ -61,7 +61,7 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
 
 ---
 
-📅 **内容最后更新：2025年10月29日**  
+📅 **内容最后更新：2025年11月2日**  
 🔗 来源：<a href="https://gptvpnhelper.com/airport-access/" target="_blank">ChatGPT 中文导航站</a>
 
 ---
@@ -925,7 +925,9 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
 
 #### 🎁 专属优惠码（分阶梯）
 
+
 <div style="background:#e1f5fe;border-left:4px solid #0288d1;padding:15px;margin:15px 0;">
+  <p><b>📋 优惠码（双11活动)<code style="background:#fff;padding:5px 15px;font-size:19px;color:#d32f2f;font-weight:bold;">1180</code></b></p> 
   <p><b>📋 优惠码（月付/季付/半年付）：</b><code style="background:#fff;padding:5px 15px;font-size:19px;color:#d32f2f;font-weight:bold;">gptvpnhelper85</code></p>
   <p><b>💰 优惠力度：</b><b style="color:#d32f2f;">85 折</b>（长期有效）</p>
   <hr style="border:none;border-top:1px solid #ccc;margin:10px 0;">
@@ -935,6 +937,7 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
   <p><b>⚠️ 重要说明：</b></p>
   <ul style="margin:5px 0 0 20px;">
     <li>❌ <b style="color:#d32f2f;">银河云年付轻量包（¥98/年）为福利款，不参与优惠活动</b>（该套餐已是厂商最低价，无法再享优惠码折扣）</li>
+    <li>✅      🧧双11折扣｜优惠力度：8折｜截止：2025-11-30 23:59｜折扣码：<code>1180</code></li>
     <li>✅ 月付、季付、半年付套餐使用 <code>gptvpnhelper85</code> 享85折</li>
     <li>✅ 年付、两年付、三年付套餐使用 <code>gptvpnhelper80</code> 享8折</li>
   </ul>
