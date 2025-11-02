@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 19:16:51（北京时间）**
+🕒 更新时间：**2025年11月02日 19:24:43（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Barack Obama, Kamala Harris campaign for Democrats, as Donald Trump's political operation invests in turnout - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOaERaNVcwRHMzcDhYX3JiUDFKU0tURHIyMFpIWTRPOHVPOHVKekExV2Z1aW9WbUdUQkFZZjRXQlJ3T2pMRGZHWDAwRXBleWpUSk5FS29xeXp3NzNFNlB6U090VlMxZnoybXk1dkxEMVZhOXVmLVJTZXpid3JuQUFrcV9iRldWRVpsMVhDU19EdHdTMm14MnRzRTE5X0hRenFaMVdwTlhsU0RhWVF2cEZZ0gG0AUFVX3lxTE5mUnktR2wwXzFScldHUHpZZ2J6R3U1UTZmZU1vUXZZcThGcXQ3SExQdGU2ZTR2RmZJblhLeVlUeVdkTEs4Q1JBc2hwNFR4TWI0NEQ0SF84TW11VkdUZzhkV29rMGdFMTZOOVhINmFpQXVGQ1plRGRpRy1rVVRQOHpHY0duNy1VUnQxNTZfdDhjUHc4aDZnTUo1ODk3MkwwcllDbzJ4WGhuMnJ2bmJQTVJTZlZZZQ?oc=5) |
 | Federal judge thanks Trump, orders him to make SNAP payments - Roll Call | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNMHBCU1lRbDBvYVlyRlFtcnU0a1dqdUJlTm9WVnItY1B0c19ZRnVmMmpSajVuS1FhSEdDTGowWG1QVFFpLTVZLXhCbXVMZGpkT0FnUVBXbTR6bWNLck4wb29UT2xtU0Z5VVdDNDBtcmsyTlJjdC1KZDhMektDZWI2Zl85aWVQYWNjUkxhTDNZT2NCVUdSZTJR?oc=5) |
 | ‘Intentional’ Explosion Took Place at Harvard Medical School, Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxOTEZzcmZfcnNGQjZMcjluRy15Z01UT3MxanVGejdrdWlidDV6V3ZDTjBzV0pRZUNaV0F4QUlpbC1RdFAzNkZEVXBqNzBRMkw1clhlVTNEMnRKcnZiT3VnVm9rM3AtMl9HVHlNTi0yTGV3ajJ0c2FqYUEwU29XNUczcw?oc=5) |
-| War Powers Law Does Not Apply to Trump’s Boat Strikes, Administration Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPQjlVVUF6M01uckZpa2d6bTV4RlBWcmhyaWVWXzRjMVhBTC15bEVUZlh2Z1JzTlhNQWNiQl9ScmFyZmZEMG1fMklZZVg1bkdvNms0N0NUdmc1RS1oLTlLZ1VIejZSS2NmNk5ac0J5YlRGcTNKNENqSVkyb0RGYzVIUkQxaXNhRlhF?oc=5) |
+| Hurricane Melissa: Britons evacuated from Jamaica as UK sends aid - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9NeFA1eUhqMWppeDQxTnBVS214VUdiYktNQm0yeTRPZTI0WE4xdjFESXRpaVBnTW56SmgtbWhNNHZOY2Vyeld2LTVLZU91V1ZXa2E0Sm8yTzF4d9IBX0FVX3lxTE9rS09FOF93LWhzTjR5WjlVQm9xeUJYbzA0U3c3VTI1bS1YZDdvV19MYmxoYVE2ekxESWpUdUJzbHJCNVpCWVVZeDMyRXo2VzVNeFRNOUFTbUN1aVZFVU1v?oc=5) |
 | Poll shows Zohran Mamdani's lead in NYC mayoral race narrowing during final weekend of early voting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOa0FlN2pZTEZVOVI0aDlNT3VQVmlPWGw2b0VROExpanNPTXRUWWZRNUY2aHZueVE4cFVGX3dpQXNlVW93TW84eGtUdFdlMU1PNzY1ZWV0QUhNV3d0UXBkNnV1S3p5RmVCa0Y0MkZPU0Y3aFlHSlVDMnhibDhERG5tMXg3amI?oc=5) |
 | Obama Calls Mamdani to Praise His Campaign and Offers to Be Sounding Board - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPaXh0OUFpTktNZmMzcDZVbzBwMV9KaDlmeWJWSExCek4yTEtHTlFRLWtnTmpPaHFIajltN0xtQkM1ZGpjVndadDR1LUdUZG5IdHZuTTFhVVRYZFpBSVVRMjNham9yLTFNZHI5Q0xTaWlrdkQtTGNSZUpZUXI5alVTV2RTeTVmUzZTeGQwdEZ3?oc=5) |
 | US military kills three in strike on drug-trafficking vessel in Caribbean, Hegseth says - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNMkxGak80XzZCQ3c1SVV3SHpGME9rN3ZtSGZUWHRneXFXdGtveEFIZG42djQ5T0NZaDFxUksydmhpcGNkRWloX2J5NHU1ODBETWZIaU9DeTNsUHFQUlFCVHZNUDY1bm9jb21aNmpONEtRVFNEalN1aFlRUnBKbFZyRjlVZ3BzZjk2XzNLR0FlUFllSHlKRFAybHZuVkUzVmw4NGZNYk1CU3p5cnlscEl2R21DMG04WHVHSmYxVnUwOA?oc=5) |
