@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 00:41:32（北京时间）**
+🕒 更新时间：**2025年11月03日 00:49:45（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | Train stabbing witnesses describe bloodied seats and people arming themselves with bottle | [阅读全文](https://www.bbc.com/news/articles/cvgvvg337x8o?at_medium=RSS&at_campaign=rss) |
 | King to strip Andrew of his final military title, minister says | [阅读全文](https://www.bbc.com/news/articles/c8675l25591o?at_medium=RSS&at_campaign=rss) |
 | 'We have no idea what lies ahead': Aid struggles to reach Jamaican towns devastated by hurricane | [阅读全文](https://www.bbc.com/news/articles/cpv11w8ez10o?at_medium=RSS&at_campaign=rss) |
-| Young Russians are being seduced by a cheap, dangerous weight-loss pill called Molecule | [阅读全文](https://www.bbc.com/news/articles/c201xe61x0lo?at_medium=RSS&at_campaign=rss) |
+| Louvre heist was by petty criminals not organised crime professionals, prosecutor says | [阅读全文](https://www.bbc.com/news/articles/c4gw42j29lqo?at_medium=RSS&at_campaign=rss) |
 | I blew the whistle on a massive tax scam - and they sued me | [阅读全文](https://www.bbc.com/news/articles/c2kp19ed78wo?at_medium=RSS&at_campaign=rss) |
 | Devastation on repeat: How climate change is worsening Pakistan's deadly floods | [阅读全文](https://www.bbc.com/news/articles/cgmx2e3nnw0o?at_medium=RSS&at_campaign=rss) |
 | New Yorkers could pick a political newcomer to run their city - and take on Trump | [阅读全文](https://www.bbc.com/news/articles/c3rjjdvx5r5o?at_medium=RSS&at_campaign=rss) |
