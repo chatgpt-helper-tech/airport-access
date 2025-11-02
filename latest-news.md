@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 04:41:33（北京时间）**
+🕒 更新时间：**2025年11月03日 04:48:31（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | CBS News poll finds rising concern over government shutdown impact on economy, Americans personally - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPWVJjS3MxbHpIb2NOQ21CXzBhRTJUc1M5MTRSaG5Mclk1bjdhOFRYVzZBOWdCT3BDUGloYWl5ZjFxVXhMRFZqQnQyYkI2aTNJLUVLRW1haUVvRV9pY0R5TWZ2TWJVOHgtcWI3R3hNaEFIMlVzdlRtNGJ2T1dCdFE0ekJ30gGHAUFVX3lxTE8tQmpTMERDY1A5NUN6Z1dlV1pUaWVMN2hyTW82MEZDY0pfOE5nOFdvTzhpRFRGdkJ2a1N2MkRPRlljQVVyZDZaRTRrTE5NZTgxUDRmeGUwbHBHa2JSN2xSeFBNcjJsRm1iLXVNV2Zlc3h4S1hCVjZGZ0QtVW83SERlR085bmpBVQ?oc=5) |
 | 'We will delay, we will cancel' flights to make sure people are safe: Duffy on ATC issues - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNOWMwTDBabzFoVXlEY1paRUZVcEc3TUxqa3JnYkpTc2xzOGQ2ZGRQM25GVlozT0t4UkhuQ1ZnR0RWRGZzdnlScFowZklpVUFVVU94X2xYbnpIQXVhS3Q1Ml9uQWlLRG14cTdWbEl5dS1BdENVby1qSXNpbTdja1lQVGo0dnlmWGFYTC1BaUtxXzZqNDBrcElYSFUwRkJ4Y2PSAaQBQVVfeXFMT0xYMWtpOTdPOVJ6RHVTUVFrUkcyZUtoRktjdi0xYV9PcnR2aFNWR2pfaVRTbTFVeVJLRXdnbHZfeDEwS25yUDRwbUhGZkNCZ3owV3RLS3VVMlZyS2g4YlZYS1pXUXphdFo3dGNBWEdoQnJxQm5GdllvbjNXUHVnVkZLNjdFLUpPcjhsMFNoYkI0ZWFIQU1abjM0OXVoSl8zLVpRNzk?oc=5) |
 | Latest U.S. Military Boat Strike in Caribbean Sea Kills 3, Pete Hegseth Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQY0hna3NUdGEtcVUwZzJvcWN3dUw5QUdYWmVRMTVONEZLM3pScGRMTDR3STV3ZkJzcWYtNDI3d1RnNDZZanRtaVg4SGd3NUJWZVJTdlhDcGxKU1MyNDJmLXphaW56S2E2dEh0WXZNV2ZUem4wUW1CM3JQZjdsZlp0M1Nn?oc=5) |
+| Transcript: Transportation Secretary Sean Duffy on "Face the Nation with Margaret Brennan," Nov. 2, 2025 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPaEpxdE5ENVJLM2ZfbUQ5TVV1VnZJV0VZUUpmQ3I1RUY4cEstZzBHLWVJQS1xYlh2WmpXTlhtczBSOG1PQXJVdndDazFmWTJDS01mQU9yLXFaNlRFaFJPdTA0MHJORFpJT0RScHd3MV9wTjNBdzN1QUJXMzVXb3Z5d1JBd0tpdTkwaUZYSjBpSnpfU3FpZEpmQnNCb3lqVllHZ2xPMtIBqgFBVV95cUxONjJrOWhQRnU5TEpOOUpoZkl5R1l6ZEFWejQ2bG96RHB4eUhtR3ZFM3VhS2RudFh0M3Vsa1JkcV9OXy1ZdE83S3NkaGRlWFFXeG9zWFBIOWpDNGNKRjgybXhyMHFCb1JOQTlPbHVCSGoxWkxwM2FUeXlwZHhaM05Yc2hjZnBYQktQMnFqUVB6UGQwbERBaVYyZTZidjc2S0tubHdxekhKUW5WQQ?oc=5) |
 | Shooting at Airbnb rental in Bath Township leaves 9 injured - News 5 Cleveland WEWS | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNNUJjT0FkalQyYjFuWmZMdDV3M0sySzc1S2VaM1NMYmdnTEhfSm1BM2kwckJCalVBY2d2VUZudmx0MkdLbDFBekJmV01NVkJwVTlnVWhZZXQ5OEZaNmtxckRKTlJtZUJlc2JMOENHRHh6YlFvLW9GdV80R1J5c2hxcUtVclFrRUl3UllOVmJhLVp6TnppVGt2UmhRNlEzSEdWbEs1bzN3NTdrRkRuaUFIZUFTZHJJMWc?oc=5) |
-| 'We're not a violent city': Chicago locals take on ICE block-by-block - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQZVVvMzhVTEdNbk1sWWFUM0R2Q2VMeUw3bTZoeFB0NTJlX24ycGJSOEQxeUVja2dydjhScFpBXy1kUzZ0eUVvRlNUajZSeTNHRnE4UG9aeTV6WFZuUnRnNlJBTkNLbXYwNmxzenZ5TWVfTTFQWkNJUFhVNVhwTEF6ZG9EZGtrRnp6aENSZDdLcjdoamEyRmx1V1VLWjVzZXY1QUlnQzFUS0Q?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
