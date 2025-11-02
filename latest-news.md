@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 04:17:05（北京时间）**
+🕒 更新时间：**2025年11月03日 04:25:37（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Even for Some Mamdani Supporters, His Thin Résumé Is Cause for Concern - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5GTmF0NHlubTB0VlJDUlMwSjFvcVhua19qWkRUc1dRb3FqUnZKTUxGdkhpaENubXpLdmVKNEFDOVgybzdvaTlSejF6X0hUUWMtakY1WkM3OTFVa3Y5MTdZTzRHbEFSRy1FYTFnU1UxdVBRal9mSk9oSHR1TFhpZw?oc=5) |
 | CBS News poll finds rising concern over government shutdown impact on economy, Americans personally - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPWVJjS3MxbHpIb2NOQ21CXzBhRTJUc1M5MTRSaG5Mclk1bjdhOFRYVzZBOWdCT3BDUGloYWl5ZjFxVXhMRFZqQnQyYkI2aTNJLUVLRW1haUVvRV9pY0R5TWZ2TWJVOHgtcWI3R3hNaEFIMlVzdlRtNGJ2T1dCdFE0ekJ30gGHAUFVX3lxTE8tQmpTMERDY1A5NUN6Z1dlV1pUaWVMN2hyTW82MEZDY0pfOE5nOFdvTzhpRFRGdkJ2a1N2MkRPRlljQVVyZDZaRTRrTE5NZTgxUDRmeGUwbHBHa2JSN2xSeFBNcjJsRm1iLXVNV2Zlc3h4S1hCVjZGZ0QtVW83SERlR085bmpBVQ?oc=5) |
 | No one hurt after ‘intentional’ explosion at Harvard medical campus, officials say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQM3E1TWZ4eTUwSTVDZmhjX0hNQmd5OHdZRU1NTVI0VnFiV1kwT05WQjhpdFZWZmc1eVJyZHR5cXUxamNCZTVZWjFvaWhjcXE5Unlya1Q2MG53dWdEUGxFQ25nZGdsVTB6QUdNQkNMNmNoa3F0bGNDYXJNX3VWMDR6aXRxTGdNaHhZWmc?oc=5) |
-| Latest U.S. Military Boat Strike in Caribbean Sea Kills 3, Pete Hegseth Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQY0hna3NUdGEtcVUwZzJvcWN3dUw5QUdYWmVRMTVONEZLM3pScGRMTDR3STV3ZkJzcWYtNDI3d1RnNDZZanRtaVg4SGd3NUJWZVJTdlhDcGxKU1MyNDJmLXphaW56S2E2dEh0WXZNV2ZUem4wUW1CM3JQZjdsZlp0M1Nn?oc=5) |
 | 'We will delay, we will cancel' flights to make sure people are safe: Duffy on ATC issues - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNOWMwTDBabzFoVXlEY1paRUZVcEc3TUxqa3JnYkpTc2xzOGQ2ZGRQM25GVlozT0t4UkhuQ1ZnR0RWRGZzdnlScFowZklpVUFVVU94X2xYbnpIQXVhS3Q1Ml9uQWlLRG14cTdWbEl5dS1BdENVby1qSXNpbTdja1lQVGo0dnlmWGFYTC1BaUtxXzZqNDBrcElYSFUwRkJ4Y2PSAaQBQVVfeXFMT0xYMWtpOTdPOVJ6RHVTUVFrUkcyZUtoRktjdi0xYV9PcnR2aFNWR2pfaVRTbTFVeVJLRXdnbHZfeDEwS25yUDRwbUhGZkNCZ3owV3RLS3VVMlZyS2g4YlZYS1pXUXphdFo3dGNBWEdoQnJxQm5GdllvbjNXUHVnVkZLNjdFLUpPcjhsMFNoYkI0ZWFIQU1abjM0OXVoSl8zLVpRNzk?oc=5) |
+| Latest U.S. Military Boat Strike in Caribbean Sea Kills 3, Pete Hegseth Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQY0hna3NUdGEtcVUwZzJvcWN3dUw5QUdYWmVRMTVONEZLM3pScGRMTDR3STV3ZkJzcWYtNDI3d1RnNDZZanRtaVg4SGd3NUJWZVJTdlhDcGxKU1MyNDJmLXphaW56S2E2dEh0WXZNV2ZUem4wUW1CM3JQZjdsZlp0M1Nn?oc=5) |
 | 'We're not a violent city': Chicago locals take on ICE block-by-block - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQZVVvMzhVTEdNbk1sWWFUM0R2Q2VMeUw3bTZoeFB0NTJlX24ycGJSOEQxeUVja2dydjhScFpBXy1kUzZ0eUVvRlNUajZSeTNHRnE4UG9aeTV6WFZuUnRnNlJBTkNLbXYwNmxzenZ5TWVfTTFQWkNJUFhVNVhwTEF6ZG9EZGtrRnp6aENSZDdLcjdoamEyRmx1V1VLWjVzZXY1QUlnQzFUS0Q?oc=5) |
 | Poll shows Zohran Mamdani's lead in NYC mayoral race narrowing during final weekend of early voting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOa0FlN2pZTEZVOVI0aDlNT3VQVmlPWGw2b0VROExpanNPTXRUWWZRNUY2aHZueVE4cFVGX3dpQXNlVW93TW84eGtUdFdlMU1PNzY1ZWV0QUhNV3d0UXBkNnV1S3p5RmVCa0Y0MkZPU0Y3aFlHSlVDMnhibDhERG5tMXg3amI?oc=5) |
 
