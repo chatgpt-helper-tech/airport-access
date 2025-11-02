@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月02日 23:08:15（北京时间）**
+🕒 更新时间：**2025年11月02日 23:17:02（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Even for Some Mamdani Supporters, His Thin Résumé Is Cause for Concern - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5GTmF0NHlubTB0VlJDUlMwSjFvcVhua19qWkRUc1dRb3FqUnZKTUxGdkhpaENubXpLdmVKNEFDOVgybzdvaTlSejF6X0hUUWMtakY1WkM3OTFVa3Y5MTdZTzRHbEFSRy1FYTFnU1UxdVBRal9mSk9oSHR1TFhpZw?oc=5) |
 | Dems say the American Dream is dead. A lot of Trump voters agree. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQWlNWSlBmZ2JHTFg4OE9rZ3FLQk90RHI1c19GX0xHT0p1OGRxQmJXeEV4bWtBRGlOc1laWkwxNml4aUtNQ0x5Y29fdXFPVGdSbERnOThPdFB0ZnVmamRKZm51b2RDcXpKdjVNQUhIWWNFVUlSMDFCS1E3SU1SSGkyUFlhZGs4TWpDU3c?oc=5) |
 | Explosion at Harvard medical campus appears intentional, authorities say - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQM3E1TWZ4eTUwSTVDZmhjX0hNQmd5OHdZRU1NTVI0VnFiV1kwT05WQjhpdFZWZmc1eVJyZHR5cXUxamNCZTVZWjFvaWhjcXE5Unlya1Q2MG53dWdEUGxFQ25nZGdsVTB6QUdNQkNMNmNoa3F0bGNDYXJNX3VWMDR6aXRxTGdNaHhZWmc?oc=5) |
-| N.Y.C. Mayor’s Race Live Updates: Candidates Court Supporters on Last Day of Early Voting - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1ac0luZkVnWHI5VzNsbDhJZjVFY19KZ2FwU0dudFZlTVVOM1pPdmc2U1NNOEZDOHlvS2VJNDMteUZ2RFFzbkFZTGJaajhQOHNpTjVETHV3T1RUYnJyVFRnQXlzbEZId0R4TGtWWW9tNGF2OEpNdDVlblYtRFM?oc=5) |
 | Federal judge thanks Trump, orders him to make SNAP payments - Roll Call | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNMHBCU1lRbDBvYVlyRlFtcnU0a1dqdUJlTm9WVnItY1B0c19ZRnVmMmpSajVuS1FhSEdDTGowWG1QVFFpLTVZLXhCbXVMZGpkT0FnUVBXbTR6bWNLck4wb29UT2xtU0Z5VVdDNDBtcmsyTlJjdC1KZDhMektDZWI2Zl85aWVQYWNjUkxhTDNZT2NCVUdSZTJR?oc=5) |
+| Tuesday’s key races: What to know about the NYC election and other contests - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPVWhSQjRVM3ltYWdzRTlQWGFOeDlIUnNBU1dsc0RhWjZzd09venR6cHR1RWV1TXNITjlhbXhVZ2NUU0JfVlQxZjhEbXRPcE1TeEY1ZVNHVjRTb1NvX0pjc3JLenBhMllSTkdPZ3dZVENYQTFINnhvcGltcEJIX1lQZkdVNEd4UUE4clB5S21UVkhpT1RlUVE?oc=5) |
 | Barack Obama, Kamala Harris campaign for Democrats, as Donald Trump's political operation invests in turnout - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxOaERaNVcwRHMzcDhYX3JiUDFKU0tURHIyMFpIWTRPOHVPOHVKekExV2Z1aW9WbUdUQkFZZjRXQlJ3T2pMRGZHWDAwRXBleWpUSk5FS29xeXp3NzNFNlB6U090VlMxZnoybXk1dkxEMVZhOXVmLVJTZXpid3JuQUFrcV9iRldWRVpsMVhDU19EdHdTMm14MnRzRTE5X0hRenFaMVdwTlhsU0RhWVF2cEZZ0gG0AUFVX3lxTE5mUnktR2wwXzFScldHUHpZZ2J6R3U1UTZmZU1vUXZZcThGcXQ3SExQdGU2ZTR2RmZJblhLeVlUeVdkTEs4Q1JBc2hwNFR4TWI0NEQ0SF84TW11VkdUZzhkV29rMGdFMTZOOVhINmFpQXVGQ1plRGRpRy1rVVRQOHpHY0duNy1VUnQxNTZfdDhjUHc4aDZnTUo1ODk3MkwwcllDbzJ4WGhuMnJ2bmJQTVJTZlZZZQ?oc=5) |
 
 ---
