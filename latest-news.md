@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月04日 02:56:20（北京时间）**
+🕒 更新时间：**2025年11月04日 03:01:26（北京时间）**
 
 ---
 
@@ -15,9 +15,9 @@
 | China intimidated UK university to ditch human rights research, documents show | [阅读全文](https://www.bbc.com/news/articles/cq50j5vwny6o?at_medium=RSS&at_campaign=rss) |
 | French climber among at least three killed in Nepal avalanche | [阅读全文](https://www.bbc.com/news/articles/c2kp42y5y81o?at_medium=RSS&at_campaign=rss) |
 | Strictly's Amy Dowden to undergo second mastectomy | [阅读全文](https://www.bbc.com/news/articles/c3vn16krv0go?at_medium=RSS&at_campaign=rss) |
+| Peter Mandelson was not interviewed for US ambassador job, MPs hear | [阅读全文](https://www.bbc.com/news/articles/cglg63n63wdo?at_medium=RSS&at_campaign=rss) |
 | Unexpected O2 price rise is disappointing, government says | [阅读全文](https://www.bbc.com/news/articles/c5y02797xygo?at_medium=RSS&at_campaign=rss) |
 | Conservative Party nearly ran out of money, says Badenoch | [阅读全文](https://www.bbc.com/news/articles/cvg410w770lo?at_medium=RSS&at_campaign=rss) |
-| Jamaica's hurricane aftermath 'overwhelming', Sean Paul says | [阅读全文](https://www.bbc.com/news/articles/c93xn2xg6r4o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,8 +31,8 @@
 | One year out from Election Day 2026, Tuesday's results could shape 2026 midterms - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOR0ZVaUtsRGU0MDZIR3d2MGg0bWY0ODV0Tmt0MnFWTzJfZ1Eya1J0c3pwRFJ0ejdfcmQwQ0Fxcnhsa0dTQ0c0N29KMmdCQ3FnRFEwbnNrMVJrdEJrUkctZ3NqMGJ2RXhrNDF2Y0dTeWo2V1JEaEFvR21YdVpoT0Z6OFFEVG9rYjFhQTdiRGh1R1owRlNiVWRFY2xSdEFJSldrZ2ttdEZRSEzSAa4BQVVfeXFMTzhZUWg0VFFxWV9WZWdIOFpYRDdIZlVUWTRvU2p3aHlxbmRFMF9xN1Axd0ZoZEU0NzNDY1lPamhoUG0yeW9FRG5UcldaeDRmblZSX3lVN1JuclBkRzNSWHhEMUNJVWZOSy1ZRk1WOUJ5YjlsTUVobXpaLXV5RGN3ZVBEWFpOYkM0RFROZzAtNmZFa0RvcGM0aEF2MG9VaURkc3ppSnE5MHkxZDJ2ZjV3?oc=5) |
 | What the latest polls are showing in the Mamdani vs Cuomo NYC mayoral race - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQN2FJVzJQYUFPaWdzWU9EYXB5MS1qSEVNWmdPYmFaY29CcmlXLTZEZU8tTWdBNlhoT1ZKOWR6bTJGZFNjN0szNzdoMnc3TWF5akdiY2h0SzYzTDZXNS1KTW1YVmFxaEk2ZGIwbTJJNXh1OG4yLXhPek1IVnFGVktvX19LanVtREcxQUFKM2djOVVHQnV0eUVsT2dNMktzZnVGZzNzOVMwVU1hMVJlOHZxX3VQbF9pd9IBuwFBVV95cUxNZE41ZjNnN2R0OEY4THAwSHNUa29Kd2hocFRJZmhXWXRwVnV4ZktPeUdPSWwzbUpub0FPcUhsZ2NzMWkyTkMyOEsxRExKNEFyVEc5aU5EUUktVmVCXzV5ai1jM2JwZklZdE4wbXEtd1FHWnlxOFFvNkZGTzRuODFwMTkycFBaNU5HSmdabzFhSTdpUDhiSGZ6bV93RzNZaDAtM3gwcXlObVlpRElxN3dqMVdyakc1QlJ0Z3kw?oc=5) |
 | Understaffed and unpaid: Syracuse air traffic controllers pushed to limit during shutdown - Syracuse.com | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxOVHgydlRwRzlTOW4xTkJkYTU4SnZWa2RMNmtIMGVIMFY3d2VuSDloZkZlY2xiak5MRExkNE10b0MxbHRNYVRfbC1MRktYNXhreGxiODNKTGVIcVVxR0pVMlV5ekpXVDA5TENBTDhHU2hQbHB4V3N4R1VVY1ZJR0RQcmZpVFRqTnRaNU5hTkRZNzNKbnlURDRyUFYybzdJYTdkbzA5NjJha29mN1ByYUJBOFR4ZzJhTHJ2T2M3b241V2I4b29qcFpnTDNJSUFrUGFIb0licjlR0gHqAUFVX3lxTFB6OVhVRkpIOVEyR0QzcGFRYkZMaUxXR25nbF9aV2V1ekJDWk9XWkY4SUJQT0lnUkVXZVZ1b0lsajNIM3R2NkFSYjJNTVhDZ21weTdyY1hHMUdqMWlQYk5zNHhUU0oxMWNSRGh4UE5pMDFESFVTUUdyUjRJQXFmZDVRSDIwVFBfVWtVRnd5MkpXS1FDQlpJOGlUaXpyS0dRRV9JSWIzeWVSU2RSZnBHUXliSlV0alRkRWJpTDBlTUt1c2pUV1lJeGVNRDFzVlZ4RVRoX2gwQTgwS1BmM056SVRxSEdYOTQ0ZWFqdw?oc=5) |
-| Government shutdown live updates as funding impasse nears record for longest ever - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPaUVhMW5OcWY0Z1R4c1NBODFNOWpRYm5ReklXYTdFZ2JMam1oQjNqZ1ZseTF2cTZqa25MckNYWFVPS1N5Rm5ObDlCVE1HUDM3a2FLQ2RpRWtLU0tSdnJYbXhhMEt2ZGxIaFAtd0I4S2NCV000ZHZESU9yRnQ0TzlyM2lMXzRkYzFhSzJ1eFpUVnF5b1YwRHg0dNIBngFBVV95cUxQVkdzZkRWcGNmc3NhUlc1bUxJeGhoU2wyNkhhZ19fMlpVdEZsN19ZZnVpTjBiYVAtbmVESmdhcXlac2FfMC11MjUtejRtUVpiSnUzTjhLaEJXYjE2eWd5RkdjVkhHYl9UbG5LbHBQZDRTbkdWTGR2ZDE4S0cyNHRldW53blNuV2hnN3hJZEF5alVjd1ZHWVdLN3hLYm1LQQ?oc=5) |
-| Two young girls hurt after being dumped out of Ferris wheel at Louisiana festival - The Independent | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPZnY4VTlTN1hpZ2hvU2o4eW9uRHg3RFhnTzZwcnVEOHhrUFN1dE10TVNQemp1ZHVfZVhDaUZiTWhsNlFsX0dRaV9xRlRVUnRfSFdYcXdvX3dmaEFsRk9zejFDVXlWeVVmSFVScDRaZW04Wkh6TUxwcmlub3lONmtsUS1ZWi1GbmZ3TDlsVDRiRkFLOFZ1QlJYVzUzQ0E3WE5X?oc=5) |
+| 2 girls hospitalized after being thrown from Ferris wheel in Louisiana - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOck03OUpMdVE0Sk9NOHRQZG1kQlN5aHY5Y2stSkE4WFJDdUhfdWJqWGtpM0piaEhnWHRGRG1GRkI2YzYyWnRpWnFncXFOUXFqNHVDNFpXVjZWUHQ1eUV5dXNUVDcyNldPU1dzUHFmeHVmSzc5Mm40NVlvRkJtbEVGQWY4bENEaUJkWW04bVdZRi1Belc3WTlfRTRPV1hJcHVQdVHSAacBQVVfeXFMTzdUaWZuVlFyVVY0cVNJcGtudlQtbi12aFdZWGhrYkVrekpac3k4ck9GbmxTTDhQaGRRdGZpSlY3Z1VueDlwNWR0eDZ2cmN2eGZXa0NGSkpsdEExYXJndTlGUzc1cnRKNjFhbXBZY1l5WWRqZXo1dVpqOXBBa2FjUldPbTlhdzB0VGJISTA1YWtpVjQ2eXdmNFB5OHlsS3FOWTMyX1VJbGs?oc=5) |
+| Capitol agenda : New hope and pain as shutdown nears record - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOWTJiMFFvVVhzU19vVDZlZkFqdFZxNldhV09hU1ZHZXZOMXdMZGNfYlZqWGtvSkI0U08tMFY3ZlRaMDluS2UzTGFMN1kwVExQNzNLSFZfQkZYajA1bjg1OWwxUlhzNkUtS2dRTzcteFFjVkUzekZ4U0lJZGRxMWtPUzJFeDdzY2x1dFFBTWFOeVRRZldEYURQMnA4OA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
