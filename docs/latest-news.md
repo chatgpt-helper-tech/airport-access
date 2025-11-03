@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 22:56:36（北京时间）**
+🕒 更新时间：**2025年11月03日 23:01:41（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump administration faces Monday deadline on use of contingency funds for SNAP - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNLTNia1FWbTdhS3REVGNkd2JlWjI1SXBDakltekhmbC1jOE01SFByV3Y1QlgweEE3bFdVa2V5YW4tb0ZxRkhkWmpWeHVmbkJYMVlDdUY3V1Z2cGVCTXVLZmFNTDdlZXlkaHEtWkxCNFhCSVhiNng2VWpma3duSjZYcFM0TjFsUQ?oc=5) |
 | NYC mayoral candidates ratchet up intensity on final day of early voting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNTzdkN0d6WEg0c3J2Y3dydzZCWnVRd3pucHV0SWhRcFh6VDkxdVYwMHVQbm1zcnZJVmYzNkZYRDR1YnJzajRCNG12WDJqRkhyVjhyQktzdnZYZzVDcGttdVNsa19hTlQ1MXV3MmtKNVRNelNXbFVpd0FQWTJlSDN1Y0RqLUlEMV9LZE1ybHJNVHhRVHNfREl6eU9iVkpZVF95Tmgwb1FRRnVZb00?oc=5) |
 | Government shutdown could become longest ever as Trump says he 'won't be extorted' by Democrats - AP News | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPY3hKcktnVENoSklPUnFwRVI1YldkaXd5ZnNQWTRsbW85UW9KbkJhMFZxTDh1U2ZCZkx5QktlLXdCUFpicEFSOWdMYVExUXJZczJtNHpHS29jYnJYQmFZTGJEOUhqclV1Y05SZGl2TjVrTU9ZNE8wY0ZsazB2VUFkYXdvQjJkMXVPcjh5S1ZFWjRtYVBxdlpLWXpvYUJLTlBNNGF4cENYUERSYmt3WERjSm9pc3BTTDJIcDNncmpB?oc=5) |
-| Federal judge blocks National Guard deployment to Portland through Friday - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQaG1KQ2swcUUzWW1uYjhSME1SdHd1MlJGYVp3WlNHeDFaT1pzRWgwUVVYVnlMSnJOWXVObFRwZkdFemJBczNNeWFVVXhrYUNGMm9MUTJ0QVg4M1JkTU05TTlGRE50cFVWc29rNW5OclJJendRSEFPdlZvOWhFTFFwdFVlMGY2QTFVLXc?oc=5) |
 | Two young girls hurt after being dumped out of Ferris wheel at Louisiana festival - The Independent | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPZnY4VTlTN1hpZ2hvU2o4eW9uRHg3RFhnTzZwcnVEOHhrUFN1dE10TVNQemp1ZHVfZVhDaUZiTWhsNlFsX0dRaV9xRlRVUnRfSFdYcXdvX3dmaEFsRk9zejFDVXlWeVVmSFVScDRaZW04Wkh6TUxwcmlub3lONmtsUS1ZWi1GbmZ3TDlsVDRiRkFLOFZ1QlJYVzUzQ0E3WE5X?oc=5) |
+| Federal judge blocks National Guard deployment to Portland through Friday - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQaG1KQ2swcUUzWW1uYjhSME1SdHd1MlJGYVp3WlNHeDFaT1pzRWgwUVVYVnlMSnJOWXVObFRwZkdFemJBczNNeWFVVXhrYUNGMm9MUTJ0QVg4M1JkTU05TTlGRE50cFVWc29rNW5OclJJendRSEFPdlZvOWhFTFFwdFVlMGY2QTFVLXc?oc=5) |
 | Christian, Muslim Nigerians Push Back On Threatened US Strikes - Barron's | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPUnNkUmw5bTFXc1RKd0NsZ0loM3ZDSEJsR3JIOXNMWEx6UldlT0lxQVBoX256eFRoeFN2eWtJQnNYYng5SUFZOUVEOVdrTEt0eDZfWEpxbnZMek1zRTZOZmxjLWF5RHFZVkR1UkpJNjBVM3dFcUVsdzNzYzZYYVdjRVJKWXhvVEtENGUzNHFuRXlMVmI1SEpJTE5sRDR0TE5qcVE?oc=5) |
-| Staffing shortages mire air travel as shutdown stretches on - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQUVdiWFpDRW1XS2JqZGZWOW9sakY1cGVYWDFoa0t3VGI4bWdLcGFpZUhVVkNCZUYtbGRvWjduMFlsbUlQVU96RC02ODhXMWM0VEJxNWRMTXp5YjRxRXFhMjAzSmlHLWNMYkRRRjJWbUQ4dVhhaVdxcXduRUhHYTMyODFQNHh6ZnUyeFNBRXNR?oc=5) |
+| Trump Claims He's 'Much Better Looking' Than 1 Rising Democratic Star - HuffPost | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxORlRaR0ZCUGpjWTNsRTRMcWRBZ2RCUGZmUDJHVnJuY1FxOUFMR3diTnc5ZWQtWnRobDNISmVkR2F3WmJGbHFWV2JlblV3OHByRFpUcmlveXk4aUpOSWs3dXA1cE5hd1REa2tlUlJSTkFDUWRCcWM4dXVseXJZUEJ0UGZhdnlvenRZUGdBYlBkd9IBlAFBVV95cUxOZjZNaFE4Q3k5OGZ1Tm82aFZxU0J3a0NpSWVMSG56aXB2SVgxMXNRTEdtd3ZiY1VLMWtsTUtOeXJ0Snh4SFU0cjVxdXZaM2hMbm9OMGgxM2pLWTIxalFuSVdSeGZfNG5WM1NXcUpvZWVMeUo1bGVTY2NJQlltYXM3emhtQVlvUVNSTzdwS3FIS0F1eFZz?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
