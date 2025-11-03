@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月04日 03:08:46（北京时间）**
+🕒 更新时间：**2025年11月04日 03:16:44（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | French climber among at least three killed in Nepal avalanche | [阅读全文](https://www.bbc.com/news/articles/c2kp42y5y81o?at_medium=RSS&at_campaign=rss) |
 | China intimidated UK university to ditch human rights research, documents show | [阅读全文](https://www.bbc.com/news/articles/cq50j5vwny6o?at_medium=RSS&at_campaign=rss) |
 | Strictly's Amy Dowden to undergo second mastectomy | [阅读全文](https://www.bbc.com/news/articles/c3vn16krv0go?at_medium=RSS&at_campaign=rss) |
+| Huge tax cuts not currently realistic, Farage says | [阅读全文](https://www.bbc.com/news/articles/c4gw941pp4ko?at_medium=RSS&at_campaign=rss) |
 | Unexpected O2 price rise is disappointing, government says | [阅读全文](https://www.bbc.com/news/articles/c5y02797xygo?at_medium=RSS&at_campaign=rss) |
-| Conservative Party nearly ran out of money, says Badenoch | [阅读全文](https://www.bbc.com/news/articles/cvg410w770lo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | Government shutdown could become longest ever as Trump says he 'won't be extorted' by Democrats - AP News | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPY3hKcktnVENoSklPUnFwRVI1YldkaXd5ZnNQWTRsbW85UW9KbkJhMFZxTDh1U2ZCZkx5QktlLXdCUFpicEFSOWdMYVExUXJZczJtNHpHS29jYnJYQmFZTGJEOUhqclV1Y05SZGl2TjVrTU9ZNE8wY0ZsazB2VUFkYXdvQjJkMXVPcjh5S1ZFWjRtYVBxdlpLWXpvYUJLTlBNNGF4cENYUERSYmt3WERjSm9pc3BTTDJIcDNncmpB?oc=5) |
 | Understaffed and unpaid: Syracuse air traffic controllers pushed to limit during shutdown - Syracuse.com | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxOVHgydlRwRzlTOW4xTkJkYTU4SnZWa2RMNmtIMGVIMFY3d2VuSDloZkZlY2xiak5MRExkNE10b0MxbHRNYVRfbC1MRktYNXhreGxiODNKTGVIcVVxR0pVMlV5ekpXVDA5TENBTDhHU2hQbHB4V3N4R1VVY1ZJR0RQcmZpVFRqTnRaNU5hTkRZNzNKbnlURDRyUFYybzdJYTdkbzA5NjJha29mN1ByYUJBOFR4ZzJhTHJ2T2M3b241V2I4b29qcFpnTDNJSUFrUGFIb0licjlR0gHqAUFVX3lxTFB6OVhVRkpIOVEyR0QzcGFRYkZMaUxXR25nbF9aV2V1ekJDWk9XWkY4SUJQT0lnUkVXZVZ1b0lsajNIM3R2NkFSYjJNTVhDZ21weTdyY1hHMUdqMWlQYk5zNHhUU0oxMWNSRGh4UE5pMDFESFVTUUdyUjRJQXFmZDVRSDIwVFBfVWtVRnd5MkpXS1FDQlpJOGlUaXpyS0dRRV9JSWIzeWVSU2RSZnBHUXliSlV0alRkRWJpTDBlTUt1c2pUV1lJeGVNRDFzVlZ4RVRoX2gwQTgwS1BmM056SVRxSEdYOTQ0ZWFqdw?oc=5) |
 | What the latest polls are showing in the Mamdani vs Cuomo NYC mayoral race - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQN2FJVzJQYUFPaWdzWU9EYXB5MS1qSEVNWmdPYmFaY29CcmlXLTZEZU8tTWdBNlhoT1ZKOWR6bTJGZFNjN0szNzdoMnc3TWF5akdiY2h0SzYzTDZXNS1KTW1YVmFxaEk2ZGIwbTJJNXh1OG4yLXhPek1IVnFGVktvX19LanVtREcxQUFKM2djOVVHQnV0eUVsT2dNMktzZnVGZzNzOVMwVU1hMVJlOHZxX3VQbF9pd9IBuwFBVV95cUxNZE41ZjNnN2R0OEY4THAwSHNUa29Kd2hocFRJZmhXWXRwVnV4ZktPeUdPSWwzbUpub0FPcUhsZ2NzMWkyTkMyOEsxRExKNEFyVEc5aU5EUUktVmVCXzV5ai1jM2JwZklZdE4wbXEtd1FHWnlxOFFvNkZGTzRuODFwMTkycFBaNU5HSmdabzFhSTdpUDhiSGZ6bV93RzNZaDAtM3gwcXlObVlpRElxN3dqMVdyakc1QlJ0Z3kw?oc=5) |
-| Elections Across the U.S. Will Test Democrats’ Momentum Ahead of 2026 Midterms - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOZTlIaUZoc1hDbW54cy1FclJFWkpXREdMbXRZMllBekdoMzZXazVyWEFzUENBaWxPTy1iZ25QWVVSSzA4Y0J0a2xYRHJnejh2NDRkb2lEREItSDJrZ1YwdHo4YWdiZ09DWnRXUFhZcjJyTjExaExCZzNpaVhEdkJqS3dKZVYtTWs?oc=5) |
+| Two young girls hurt after being dumped out of Ferris wheel at Louisiana festival - The Independent | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPZnY4VTlTN1hpZ2hvU2o4eW9uRHg3RFhnTzZwcnVEOHhrUFN1dE10TVNQemp1ZHVfZVhDaUZiTWhsNlFsX0dRaV9xRlRVUnRfSFdYcXdvX3dmaEFsRk9zejFDVXlWeVVmSFVScDRaZW04Wkh6TUxwcmlub3lONmtsUS1ZWi1GbmZ3TDlsVDRiRkFLOFZ1QlJYVzUzQ0E3WE5X?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
