@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 13:01:39（北京时间）**
+🕒 更新时间：**2025年11月03日 13:08:28（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Nine people injured in mass shooting at Ohio party held in Airbnb - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPTHh0dVNvRFdPTW8xd1gyZkRCd1lMTXgtYTJyRTJPbXlIc3RDcENBRjduZGRiajQzWmcybDZMbk1VeWd2VndyTW5FRUxYYVBxb1FrSmFoN1JfUlNpeDJwUkxyZWdYTU5HNGx5SHBrOFItQWNvZlRZRHNYb0xzNncwMkliUkN4UQ?oc=5) |
 | Trump reverses course on attending Supreme Court arguments this week - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPMDh3TXV3OEMzang2LUVpcWE3WHpTcEJwV2Q3TUVmUlpWUE9zaXBETk5yQkhkeExNOXM0Njk0TEhWRWdya182WjFNTG9GNmh2a05CQjY0SmtmdGRBUFkxY0ZwQ2k0ZXlrdklWZXUzaDI2YzFURE41SVFJeEdTRVYxM2U5TW9SRmZFWjl3U0RWUjRKZGJqQzY0Yg?oc=5) |
 | Mississippi woman kills escaped rhesus monkey, saying she feared for her children’s safety - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxOX1l6U0NwWXNGZG8yT25UQ0p4U1lBb1lOWVpEX3hVcWFDS3lmbHpUc3NkVy1ncW5PdFRBVDNCOTBGUzlfVWR3NTE1a0VMN2h0NFJXSGFhU19oa1lnTEYwem1Wek45UUtzMEVpdm9QVUpqNUJac0p0bG9lZHQxQ05lZ3FkSXBvN2hqYmpNYVcwalppaUVlZ2Nsb1pRa0syZUU2OUlhcVpaUThDNnRWbklGOVhHRHVwaHpMbU1Jcm93NVdPUQ?oc=5) |
-| Big delays at LAX and San Diego airport amid air traffic control staffing shortage - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQSWY4YXFGWEd3bzNHakN5ZWV0bkQwc2tHRWJ1WFRBbkxZVjZvYXRFUVJYbkdhTmpiVmEwME83Qy1xQk4wb254RXJQb3JvYWM0WmtvRENCYVpNY2xGVXFrVWpNc0lzWEViNEdyU28zWGxmdUZhOFZqcFVCVUlNaURTRFktTGpEcGxxTWxJM0FSN1FhQ2E1QmpUOW9acVJaNXZiWEV1SVcyMG10NEIwR200ejZOdGQ?oc=5) |
+| Flight delays persist as government shutdown leads to air traffic controller shortages - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPbGZkdkJoQms5bG5hakk2V0tKY19zQzBUeVR6VlNMQloycDJuQlRaZjVrSjBhaVFIdmVvOEktN01GVy1BRzRVaDJadGpvdU5HTWRrWk83bjh1dHpYVEU2MGRodkg4Y2xiN2sxWUFKeGlGcjRoT0tLV2RMRGpCRVRmR3UtV0ExaF9HMmVqSkE1cHRHTVBBWHk0?oc=5) |
 | Indiana Republican Tries Different Approach in Debate on Voting Maps: Listening - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPNnNHQTdQTFV2VU5wZUZTWVlEVzJQZzRocWtyRnVJdGxYWEZFVFZJVEF4enJ3cjlpOE04clBDRnhXU0ZmVDhmZ2JaRnJEa25uSXJVSm5PaWxDSnJXVDR3S1dQT2NWSmZRUFRTN0ttZGE1NklYTlN1M25RX1RzY0duazdR?oc=5) |
 
 ---
