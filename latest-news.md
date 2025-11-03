@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 21:33:22（北京时间）**
+🕒 更新时间：**2025年11月03日 21:41:14（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Israeli military's ex-top lawyer arrested as scandal over video leak deepens | [阅读全文](https://www.bbc.com/news/articles/cy0kpd97qqko?at_medium=RSS&at_campaign=rss) |
 | Strictly's Amy Dowden to undergo second mastectomy | [阅读全文](https://www.bbc.com/news/articles/c3vn16krv0go?at_medium=RSS&at_campaign=rss) |
 | 'I worry about unity' - Southgate on St George's flag | [阅读全文](https://www.bbc.com/sport/football/articles/cly951008eeo?at_medium=RSS&at_campaign=rss) |
-| What do we know about the man charged over Cambridgeshire train stabbing? | [阅读全文](https://www.bbc.com/news/articles/c8r007d4kk2o?at_medium=RSS&at_campaign=rss) |
+| What the suspect is charged with | [阅读全文](https://www.bbc.com/news/articles/c8r007d4kk2o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -27,11 +27,11 @@
 | Trump administration faces Monday deadline on use of contingency funds for SNAP - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNLTNia1FWbTdhS3REVGNkd2JlWjI1SXBDakltekhmbC1jOE01SFByV3Y1QlgweEE3bFdVa2V5YW4tb0ZxRkhkWmpWeHVmbkJYMVlDdUY3V1Z2cGVCTXVLZmFNTDdlZXlkaHEtWkxCNFhCSVhiNng2VWpma3duSjZYcFM0TjFsUQ?oc=5) |
 | Israeli military's ex-top lawyer arrested as scandal over video leak deepens - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE55TEFLMml1dXJ5UVRpbDNhZDRaNGhLM3pxZ09OU0pfY3hmX0tqX2s5dklNRkY4T2ZhTG5qcjk0MzFOamFSd1dSSERINzd6T0tBWWp1Q2F6Y1lJUdIBX0FVX3lxTFAtZ2VrRmRLZGRtNDNnQ3FrNW4ta2hlN2k2RWlVeFA2cF9mdVR0WEJaS09pN2ZTWmx0eWp1UHhUeVRlZ19ja0JlaWtlU1M4X2tEcDB2aDd5QWhtNzhaaWxF?oc=5) |
 | Democrats are more enthusiastic about the midterms as Trump’s approval hits a second-term low, CNN poll finds - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFA5WEdxQkpFVjdJbUt5bjdHenJXQ05ENGQ3MXpGQmZrbTVLZi1YNXJXLU9IclA1RThWZHB4VnFkOERsZXRQdmlKTThLMmRZQ3kzMWpzTndGS2RKTXQ1QUJncWprMG56QzJUcENraC1Nc1FCNllXakJkWE1kYXVJUQ?oc=5) |
-| UK police charge man with attempted murder over train stabbing that wounded 11 people - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPX3VVVktNa1k3T3BMQ1paWDFudmlJU1V5alA1OEx4WGdtTnlRLUdabG9KN0Q1Y1VHV0lfTlVwRkdxVm5oNzg5SlQ5WE5nSUlaRk92ZDB6dW9oN0h6TTZNRzNVSVRJcjZKUHJlTHJ0d2Vxdy1MVENHNDQ1Z2duQVJzdGFCdGExWVowUWlN?oc=5) |
 | At least 20 dead after magnitude-6.3 earthquake hits Afghanistan - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1aaTg5Sks0c1E2ZnI4a1JPR3A0aWZRNUlTUzFzUDNEU2NZYktHUVgtMjYzZ2paR2hrekVINGdPYk5BclhFWVhEWkFJS1NCUThKalRkeXNaZGRpZw?oc=5) |
+| UK police charge man with attempted murder over train stabbing that wounded 11 people - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPX3VVVktNa1k3T3BMQ1paWDFudmlJU1V5alA1OEx4WGdtTnlRLUdabG9KN0Q1Y1VHV0lfTlVwRkdxVm5oNzg5SlQ5WE5nSUlaRk92ZDB6dW9oN0h6TTZNRzNVSVRJcjZKUHJlTHJ0d2Vxdy1MVENHNDQ1Z2duQVJzdGFCdGExWVowUWlN?oc=5) |
 | 'Utterly shameful': Congress to crush US record this week for longest shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOZUU1aml6TmhndXNrT2RxTGJIVEVnVlBtTy02TmRGaXNmMl9KckdOT3VMT3JYeGh4dlhSLUk1TExrUVZham1wdDNkRGlnd1FpZ1Q1MjZBVFJnODdsUnJuZF9pTktKY3FVcVBCbDdoRUJLcFlaQ0xTOUZWRE12ZTZPYk0yQnVxS0Q4dFE?oc=5) |
 | Federal judge blocks National Guard deployment to Portland through Friday - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQaG1KQ2swcUUzWW1uYjhSME1SdHd1MlJGYVp3WlNHeDFaT1pzRWgwUVVYVnlMSnJOWXVObFRwZkdFemJBczNNeWFVVXhrYUNGMm9MUTJ0QVg4M1JkTU05TTlGRE50cFVWc29rNW5OclJJendRSEFPdlZvOWhFTFFwdFVlMGY2QTFVLXc?oc=5) |
-| Europe’s left flocks to New York to take notes on Mamdani’s meteoric rise - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPUEJLVFNpcURKSUUtNG84U1VuV1FEYXVILVpRUmdVX0h1NTJYa3dsdlR4WTV4NWpyOUVNcVhUMXRwcE1wZGFLZERGT2p2cnJiUEpIclBpd3ZMS3MwcE5LQUlEek9SRXl3T2hHcjByVGl6RVRMZk1STVNpTWxCbnRNUm9PWjBWdw?oc=5) |
+| Elections Across the U.S. Will Test Democrats’ Momentum Ahead of 2026 Midterms - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOZTlIaUZoc1hDbW54cy1FclJFWkpXREdMbXRZMllBekdoMzZXazVyWEFzUENBaWxPTy1iZ25QWVVSSzA4Y0J0a2xYRHJnejh2NDRkb2lEREItSDJrZ1YwdHo4YWdiZ09DWnRXUFhZcjJyTjExaExCZzNpaVhEdkJqS3dKZVYtTWs?oc=5) |
 | Trump threat of military action in Nigeria prompts confusion and alarm - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUjFhVjhKU2h5ZnM2TDlsQkwwbTZIbDMtSVFOb2pFVDMzT0haRmZyUHlVb1V3d1NKQWRlNzZMbWdFX2QxM0p5cHM2bGZRc2gyUjFwYmNxTVpTYXdiYkwxN0piUHNNdXVqTVdkSy0xZXRjV3hsOFV5VVdKTEZ4QVpab2VhTzAyd003Zkd4T1BtWGY?oc=5) |
 
 ---
