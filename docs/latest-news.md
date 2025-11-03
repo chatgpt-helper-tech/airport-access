@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 17:57:01（北京时间）**
+🕒 更新时间：**2025年11月03日 18:01:57（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | Bessent says SNAP payments "could be" made this week - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNSGtyZlNFVkd4cXhWRHVCWEVtdFdHLXhEUXlKcE11dGZ4eHhZdFBicGY2Q1NxRW1SNDJiSW5RdHdxTGVvaXpsekpVdm9OSEpHWW1wOGRLd215bU16azJIejdMYjdCTWxVN0hMWnFkaHMtSk1vWWQzQUN0akNWODdpZHY3TjlUUnVwZWlZ?oc=5) |
 | Trump Boasts Of Getting Paid “A Lot Of Money” By Paramount & Praises New CBS Owners In Unaired Clip From Wide-Ranging ’60 Minutes’ Interview - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQR0lhZFZ2MXZBdEMtS0dlbTg0VVpGdDFmSm9LU1NWZmdodHE2VWJiZDNCQXM2S1RQQ09SMUI5VHVReDZlaC1GcWc4cGU1V1dlX0RaRkhQdUpQM1VZYUJnOTR3NkM4TlVmMENYZ1NBMTZCQnJ6V2tjVXpFVFNGdTNEbWtQZ0JaMXlW?oc=5) |
 | What to know about a stabbing attack aboard a train in Britain - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOZ2gxNWpqclNueTl1QVAybXZNZ3FrWE1kSEdTbnAyR1VNTjZHUURnaE9MbHBqSzQxdGQ5NHJYZ3hBMVFoMFM4Qm9sN2FjTVU0aGhia2ktUmljdjROVWVfZmpQT2psZ0ZSQTEyNktQZ1lXUWMwN3RHMTd2cGdJOVVjcWZQQnUzLW5MeEo1UmtJZ3N3Tjc0NWc?oc=5) |
-| Federal judge blocks National Guard deployment to Portland through Friday - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQaG1KQ2swcUUzWW1uYjhSME1SdHd1MlJGYVp3WlNHeDFaT1pzRWgwUVVYVnlMSnJOWXVObFRwZkdFemJBczNNeWFVVXhrYUNGMm9MUTJ0QVg4M1JkTU05TTlGRE50cFVWc29rNW5OclJJendRSEFPdlZvOWhFTFFwdFVlMGY2QTFVLXc?oc=5) |
 | At least 20 dead after magnitude-6.3 earthquake hits Afghanistan - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1aaTg5Sks0c1E2ZnI4a1JPR3A0aWZRNUlTUzFzUDNEU2NZYktHUVgtMjYzZ2paR2hrekVINGdPYk5BclhFWVhEWkFJS1NCUThKalRkeXNaZGRpZ9IBX0FVX3lxTE4zR1B1RzU1NC1oeGh3aS12NkdTNVhOTTMzQnV1dVFzdER5Ti1xUDhEaVBrU25xaUx2MGRaRFRJYXlxYndnX0w4VXlmeEJIcUxldmdORVhfcFlDSVhrd3pr?oc=5) |
+| Europe’s left flocks to New York to take notes on Mamdani’s meteoric rise - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPUEJLVFNpcURKSUUtNG84U1VuV1FEYXVILVpRUmdVX0h1NTJYa3dsdlR4WTV4NWpyOUVNcVhUMXRwcE1wZGFLZERGT2p2cnJiUEpIclBpd3ZMS3MwcE5LQUlEek9SRXl3T2hHcjByVGl6RVRMZk1STVNpTWxCbnRNUm9PWjBWdw?oc=5) |
 | N.Y.C. Early Voting Ends With 735,000 Ballots Cast, as Younger Voters Surge - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9KbVdVLURpekRfb3U1LUhRZGwyakNrOGJqN0kzTC1UQzBOalNIcjl3QW1VWVQxRnBTQWZRSjNsaWVqWl84TUpHdk9sTDJ5QXVJcjc1ZEFoZlVxVS12ZG1RTFhhcF9mTlVUVU9mbVlNbmZTV19BQlo0Rk1GQQ?oc=5) |
+| Federal judge blocks National Guard deployment to Portland through Friday - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQaG1KQ2swcUUzWW1uYjhSME1SdHd1MlJGYVp3WlNHeDFaT1pzRWgwUVVYVnlMSnJOWXVObFRwZkdFemJBczNNeWFVVXhrYUNGMm9MUTJ0QVg4M1JkTU05TTlGRE50cFVWc29rNW5OclJJendRSEFPdlZvOWhFTFFwdFVlMGY2QTFVLXc?oc=5) |
 | Trump says no Tomahawks for Ukraine, for now - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQTTRlLTZsaHp6c1hRSmpKQU5zMHBaUGJpZ0FGNUdWYTM3MlF6MU5zWTB5ZUp6WXVFSEtud2JJVUtvZDdpX2lLX2F5UHl1ckNsakJxVS1NT2xGMjFycFExLS1ET0poMUV0b2tMRnZOUXJ0b1pCd3Q1LURtb2xUY0tLa3dTZmhSU0VrM3BBdw?oc=5) |
 | Mississippi woman kills escaped monkey, fearing for her children's safety - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQZzZjOTUweFNBN244MjNMMVIwcHVKQ19oMkZTLVgxZ0JGR0tVRkk3cjZTSVFIZzJBdnNzM25aRHRfc0FWWWdfdHF5T3pnMlJyaVNUU0JjMU9oUjFtZ2NERE8yY00yNkxqdUtUczFDSUw0WWg4VUw1QW8wRTZQUnpZLW4tNGJJVTV3Tmk2NUZwbkhwVTltbkJYX1N1NHLSAaIBQVVfeXFMUHU4RFBxUXg1OWxTOTd5Y0k2UGRrSXptN0NiNHB1MHRwT2ZvWlpFc0sycWxObm5GczVGOXM0bS10eXVTb0JoV3Bnc2s1OFNNd3BIeTR3Q1E3NjBMbzNaeWk2eEE2Y3ZvQXVMMkxEdEM5MDBSUHQ0ZU5zbW9mS3MtSE84TzhmTU5DQ0VLUHhhbFJyZVpzeE5KSWQ4NG1laVNZOWhB?oc=5) |
-| Trump threat of military action in Nigeria prompts confusion and alarm - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUjFhVjhKU2h5ZnM2TDlsQkwwbTZIbDMtSVFOb2pFVDMzT0haRmZyUHlVb1V3d1NKQWRlNzZMbWdFX2QxM0p5cHM2bGZRc2gyUjFwYmNxTVpTYXdiYkwxN0piUHNNdXVqTVdkSy0xZXRjV3hsOFV5VVdKTEZ4QVpab2VhTzAyd003Zkd4T1BtWGY?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
