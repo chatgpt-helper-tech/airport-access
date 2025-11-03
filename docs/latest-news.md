@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 14:40:59（北京时间）**
+🕒 更新时间：**2025年11月03日 14:49:43（北京时间）**
 
 ---
 
@@ -8,7 +8,6 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| 'Heroic' train worker saved lives, police say, as man, 32, only suspect in stabbing | [阅读全文](https://www.bbc.com/news/articles/c797x8v0nvno?at_medium=RSS&at_campaign=rss) |
 | What we know about stabbings on Doncaster to London train | [阅读全文](https://www.bbc.com/news/articles/c8r007d4kk2o?at_medium=RSS&at_campaign=rss) |
 | I'm luckiest man alive, it's a miracle, says Air India crash sole survivor | [阅读全文](https://www.bbc.com/news/articles/cp85zvne1m3o?at_medium=RSS&at_campaign=rss) |
 | China intimidated UK university to ditch human rights research, documents show | [阅读全文](https://www.bbc.com/news/articles/cq50j5vwny6o?at_medium=RSS&at_campaign=rss) |
@@ -18,21 +17,22 @@
 | 'No help, no food, no water': Hurricane-hit Jamaican towns desperately wait for aid | [阅读全文](https://www.bbc.com/news/articles/cpv11w8ez10o?at_medium=RSS&at_campaign=rss) |
 | Nato 'will stand with Ukraine' to get long-lasting peace, senior official tells BBC | [阅读全文](https://www.bbc.com/news/articles/czxng7kxnp9o?at_medium=RSS&at_campaign=rss) |
 | Nine-month-old baby killed in dog attack | [阅读全文](https://www.bbc.com/news/articles/c0exdqpv3vvo?at_medium=RSS&at_campaign=rss) |
+| India beat South Africa for historic World Cup win | [阅读全文](https://www.bbc.com/sport/cricket/articles/ckgkzn4enqko?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| President Trump's extended 60 Minutes interview - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPMFZrZzIwTGFoVHJaZmVJTWJoWWhETll6WTg3SXNESEhOVDlEWlB6SHVpbnFDNzlOVFlUMkJaTE1JZlQ0c29TOEtPYkl0ZFVySXFIQmhnYTFJeGxFOHB1MEVGdFZuYUY0X0dYTDJSbERFaFNJU19DTEotNTFRU1JsUnZR0gGHAUFVX3lxTE0yN2xEYjdyM2d5RUNuZ0lzRXBubVRpWEIxQUJXSnpMV3VHbVdMWmJJT1g5blF2MWN5cXFaZExjSERVLW9qTXpPVXpOSUlkcV8zc3RCNWt2MVZ1VW1mM0dNdVhaSkRqcWVXa1VaZ282VTZwQXoyOWY5UDhZelJHanlGYzRzcHBLaw?oc=5) |
 | Trump administration faces Monday deadline to respond to judge's SNAP order - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxORGxsLTBNdzJSTnRwSFJKSHh1WlhKcWVmeThuRXFsbHJUc2kteU5jczMtQVBXU1RVMHp4bWtKMnN5a09MSjRWRWJpTmZmUDVxRDJZYkEzX0pxQjRYYUZIMU9hZTdFcU1XSE0yUHFKZXRYUVY5YjBwWmxuLWZNQVFwRnNn0gFWQVVfeXFMTzUtYi1KbThseG12LW5jbDFQRndUNTZqTU8tdXc1Y1o5cWk3MTdCdjBIMTB0MnlvQWFTX2xjak9oNWg5MHh3WnZRdEh2Q3RiVjhWazFGdFE?oc=5) |
-| Trump Boasts Of Getting Paid “A Lot Of Money” By Paramount & Praises New CBS Owners In Unaired Clip From Wide-Ranging ’60 Minutes’ Interview - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQR0lhZFZ2MXZBdEMtS0dlbTg0VVpGdDFmSm9LU1NWZmdodHE2VWJiZDNCQXM2S1RQQ09SMUI5VHVReDZlaC1GcWc4cGU1V1dlX0RaRkhQdUpQM1VZYUJnOTR3NkM4TlVmMENYZ1NBMTZCQnJ6V2tjVXpFVFNGdTNEbWtQZ0JaMXlW?oc=5) |
 | Man, 32, only suspect after Huntingdon train stabbings - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9OTHlDbVhCTkpzNXVfSU1YMm5VRlNkYmtpbmhlcnpYLUNNYjI4TEZTekxCX1VnMGFSakNQNEJzc3RZRkJrTGtKX3kyOUJJNlBlUEs4RHV6VFpUZ9IBX0FVX3lxTFBuWGZuQ0JwbGlVNlpYZGVoeUI3WElvMTlKOGs2UjdrZnNDVTZRdGp4ZHJraFJLZmhrTjlNTmZINS1NWl9KYlY3bDN6RGRuNEs2UGZPX3g1a0JhS19JWGNB?oc=5) |
 | Trump reverses course on attending Supreme Court arguments this week - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPMDh3TXV3OEMzang2LUVpcWE3WHpTcEJwV2Q3TUVmUlpWUE9zaXBETk5yQkhkeExNOXM0Njk0TEhWRWdya182WjFNTG9GNmh2a05CQjY0SmtmdGRBUFkxY0ZwQ2k0ZXlrdklWZXUzaDI2YzFURE41SVFJeEdTRVYxM2U5TW9SRmZFWjl3U0RWUjRKZGJqQzY0Yg?oc=5) |
-| NYC mayoral candidates ratchet up intensity on final day of early voting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNTzdkN0d6WEg0c3J2Y3dydzZCWnVRd3pucHV0SWhRcFh6VDkxdVYwMHVQbm1zcnZJVmYzNkZYRDR1YnJzajRCNG12WDJqRkhyVjhyQktzdnZYZzVDcGttdVNsa19hTlQ1MXV3MmtKNVRNelNXbFVpd0FQWTJlSDN1Y0RqLUlEMV9LZE1ybHJNVHhRVHNfREl6eU9iVkpZVF95Tmgwb1FRRnVZb00?oc=5) |
 | At Least 10 Dead and Hundreds Injured After Strong Quake Hits Afghanistan - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQdjFfeWlvb09pbmp4b1paZGZiSmkxMXROc0lkbVdnZlYzX2hMTWFQQXV5NnZPYjdsbGZOTkwtOHA0M29DNk5NcVN0RG0yb0pQSG1zOC1RSWI2d3BKc1FRSEhuQkpNc0NjeHNRQnRqaThPRFpWdU9GdWtPTmVwMURxdGdaNWlDdnF3VGdRTGx3?oc=5) |
+| NYC mayoral candidates ratchet up intensity on final day of early voting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNTzdkN0d6WEg0c3J2Y3dydzZCWnVRd3pucHV0SWhRcFh6VDkxdVYwMHVQbm1zcnZJVmYzNkZYRDR1YnJzajRCNG12WDJqRkhyVjhyQktzdnZYZzVDcGttdVNsa19hTlQ1MXV3MmtKNVRNelNXbFVpd0FQWTJlSDN1Y0RqLUlEMV9LZE1ybHJNVHhRVHNfREl6eU9iVkpZVF95Tmgwb1FRRnVZb00?oc=5) |
 | Federal judge again blocks National Guard deployment to Portland, will issue final order Friday - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQaG1KQ2swcUUzWW1uYjhSME1SdHd1MlJGYVp3WlNHeDFaT1pzRWgwUVVYVnlMSnJOWXVObFRwZkdFemJBczNNeWFVVXhrYUNGMm9MUTJ0QVg4M1JkTU05TTlGRE50cFVWc29rNW5OclJJendRSEFPdlZvOWhFTFFwdFVlMGY2QTFVLXc?oc=5) |
 | Big delays at LAX and San Diego airport amid air traffic control staffing shortage - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQSWY4YXFGWEd3bzNHakN5ZWV0bkQwc2tHRWJ1WFRBbkxZVjZvYXRFUVJYbkdhTmpiVmEwME83Qy1xQk4wb254RXJQb3JvYWM0WmtvRENCYVpNY2xGVXFrVWpNc0lzWEViNEdyU28zWGxmdUZhOFZqcFVCVUlNaURTRFktTGpEcGxxTWxJM0FSN1FhQ2E1QmpUOW9acVJaNXZiWEV1SVcyMG10NEIwR200ejZOdGQ?oc=5) |
-| Kash Patel Slams ‘Clickbait Haters’ After Backlash to Alleged FBI Jet Travel - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxOVkJfSU1MSndDYWtWVnpzNENJMHJZMFZCMjF3U2FpMEt2c2hOT0d4ZFh0MW02elMzZzlOT2JCOTl5czFkblZHOElzczhBSnJsVnJFQncwVWtrZ2xuOFctdjdVcmJfbEtTd3FXY1dhNlBueUFxYXVkUUlOM2JlRXhIZUVVclYzbE0xdl9QclRtWkJkLTZrVm8yT3V3djgyUjl2aDNESkpBQ1NsRU1YbUhpSXROSmhNVGt6R1VHUTVwdWliRUM0WjRF?oc=5) |
-| Mississippi woman kills escaped monkey fearing for her children’s safety - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQYWwtS252cnpheHBtVFNwTUcwaTM1YWl5T29wRFdXRDJ0OW1Ba1RCellQRmd2QjI3LXFWV1YwLXUxRGJvMDBkYlVKN1JLcVJZZWotZW13WWJEcTJpemN3TEEzTWJ1Vm1jVlhvZXBLUUdReFBYUmJQRXBuUEU0UHA5ZHBFOEdDQlNxYzZaeHVwYzlDWDhDeVAxcEtmc28yTzdVRURB?oc=5) |
+| Nine people injured in mass shooting at Ohio party held in Airbnb - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPTHh0dVNvRFdPTW8xd1gyZkRCd1lMTXgtYTJyRTJPbXlIc3RDcENBRjduZGRiajQzWmcybDZMbk1VeWd2VndyTW5FRUxYYVBxb1FrSmFoN1JfUlNpeDJwUkxyZWdYTU5HNGx5SHBrOFItQWNvZlRZRHNYb0xzNncwMkliUkN4UQ?oc=5) |
+| Indiana Republican Tries Different Approach in Debate on Voting Maps: Listening - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPNnNHQTdQTFV2VU5wZUZTWVlEVzJQZzRocWtyRnVJdGxYWEZFVFZJVEF4enJ3cjlpOE04clBDRnhXU0ZmVDhmZ2JaRnJEa25uSXJVSm5PaWxDSnJXVDR3S1dQT2NWSmZRUFRTN0ttZGE1NklYTlN1M25RX1RzY0duazdR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
