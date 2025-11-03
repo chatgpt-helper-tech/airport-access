@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 10:41:02（北京时间）**
+🕒 更新时间：**2025年11月03日 10:48:12（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump threat of military action in Nigeria prompts confusion and alarm - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUjFhVjhKU2h5ZnM2TDlsQkwwbTZIbDMtSVFOb2pFVDMzT0haRmZyUHlVb1V3d1NKQWRlNzZMbWdFX2QxM0p5cHM2bGZRc2gyUjFwYmNxTVpTYXdiYkwxN0piUHNNdXVqTVdkSy0xZXRjV3hsOFV5VVdKTEZ4QVpab2VhTzAyd003Zkd4T1BtWGY?oc=5) |
 | Bessent says SNAP payments "could be" made this week - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNSGtyZlNFVkd4cXhWRHVCWEVtdFdHLXhEUXlKcE11dGZ4eHhZdFBicGY2Q1NxRW1SNDJiSW5RdHdxTGVvaXpsekpVdm9OSEpHWW1wOGRLd215bU16azJIejdMYjdCTWxVN0hMWnFkaHMtSk1vWWQzQUN0akNWODdpZHY3TjlUUnVwZWlZ?oc=5) |
 | NYC mayoral candidates ratchet up intensity on final day of early voting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNTzdkN0d6WEg0c3J2Y3dydzZCWnVRd3pucHV0SWhRcFh6VDkxdVYwMHVQbm1zcnZJVmYzNkZYRDR1YnJzajRCNG12WDJqRkhyVjhyQktzdnZYZzVDcGttdVNsa19hTlQ1MXV3MmtKNVRNelNXbFVpd0FQWTJlSDN1Y0RqLUlEMV9LZE1ybHJNVHhRVHNfREl6eU9iVkpZVF95Tmgwb1FRRnVZb00?oc=5) |
+| World awaits landmark US Supreme Court decision on Trump's tariffs - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBkZGQ1X3E4bENfTHMwNE5jYWRtdmpNYTZmMUtfanV3OUhUaEo3MW5sRXVldTd4c1BWRTAtTy1zaDR5YzBEV09QQ2JZVmpKRnVzc3pZS3RyVWY3Z9IBX0FVX3lxTFBLdEVTQVU1b2ZaTW5uS2duUk1xQTFFZGdELXhGcFVSeUstNV9SQ0dTck4xOWYydVZNemtaS00wUDQ3SmgxUVB1dEVaWTlITVJqVjlPajNiZDU5LWFyNi1F?oc=5) |
 | Mississippi woman kills escaped monkey fearing for her children’s safety - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQYWwtS252cnpheHBtVFNwTUcwaTM1YWl5T29wRFdXRDJ0OW1Ba1RCellQRmd2QjI3LXFWV1YwLXUxRGJvMDBkYlVKN1JLcVJZZWotZW13WWJEcTJpemN3TEEzTWJ1Vm1jVlhvZXBLUUdReFBYUmJQRXBuUEU0UHA5ZHBFOEdDQlNxYzZaeHVwYzlDWDhDeVAxcEtmc28yTzdVRURB?oc=5) |
-| Sean Duffy says airport delays will continue as shutdown drags on - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNY2RyQkVOQ3pUUlZoYjhQMnhWRkVNVk9DSm5EUllmbDZkSUZ4bzJ2cHZtMEluU1hvNDkyN2ExSlJVVFlKQlU0VF9LakppVU1STlZzdmw2LU93eTE4dVV1VlJEbEdqdTI4TnhRUE16N0E1ZE5KS0NRbnVpWUdsQnZIeVNMM1NOWS1iMGFmUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
