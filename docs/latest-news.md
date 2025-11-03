@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 22:18:01（北京时间）**
+🕒 更新时间：**2025年11月03日 22:24:53（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Supreme Court Confronts Trump and His Tariffs in Test of Presidential Power - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPdFRSbDVNWlN1akd2ZkliQWdNTm1aRDZ5MUpYS3haNjFQQlBxSHdhMVlVRktNXzZwMHhreFJTcEhlekVCcjBHOGp5LU1TVExNRkJOUUszNnFFX1htanZzdEFhSDltREJKN0NhSjdVWWszS1drY01vSWlFV295aUpjcGkwRHktUQ?oc=5) |
-| Trump administration faces Monday deadline on use of contingency funds for SNAP - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNLTNia1FWbTdhS3REVGNkd2JlWjI1SXBDakltekhmbC1jOE01SFByV3Y1QlgweEE3bFdVa2V5YW4tb0ZxRkhkWmpWeHVmbkJYMVlDdUY3V1Z2cGVCTXVLZmFNTDdlZXlkaHEtWkxCNFhCSVhiNng2VWpma3duSjZYcFM0TjFsUQ?oc=5) |
-| Israeli military's ex-top lawyer arrested as scandal over video leak deepens - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE55TEFLMml1dXJ5UVRpbDNhZDRaNGhLM3pxZ09OU0pfY3hmX0tqX2s5dklNRkY4T2ZhTG5qcjk0MzFOamFSd1dSSERINzd6T0tBWWp1Q2F6Y1lJUdIBX0FVX3lxTFAtZ2VrRmRLZGRtNDNnQ3FrNW4ta2hlN2k2RWlVeFA2cF9mdVR0WEJaS09pN2ZTWmx0eWp1UHhUeVRlZ19ja0JlaWtlU1M4X2tEcDB2aDd5QWhtNzhaaWxF?oc=5) |
 | Democratic voters say California's Prop 50 gives them a way to 'counteract' Trump - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOOE5oYVZ6T1lBZ29uYnpFUEd4MmFXcWRGanB0U2k1SXpnVUNVdXpoc2s2ZnduOVV0Skp4QndNLXlTdWh1WjhVdWFReTgzTGY5bG1tMmlMRmlkdDZRcEhwZmE1di1nVHB0dXcydlYtUURvZ3kzZUd6RnRDSXVuMVlia0dvbmlwdlE?oc=5) |
+| Israeli military's ex-top lawyer arrested as scandal over video leak deepens - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE55TEFLMml1dXJ5UVRpbDNhZDRaNGhLM3pxZ09OU0pfY3hmX0tqX2s5dklNRkY4T2ZhTG5qcjk0MzFOamFSd1dSSERINzd6T0tBWWp1Q2F6Y1lJUdIBX0FVX3lxTFAtZ2VrRmRLZGRtNDNnQ3FrNW4ta2hlN2k2RWlVeFA2cF9mdVR0WEJaS09pN2ZTWmx0eWp1UHhUeVRlZ19ja0JlaWtlU1M4X2tEcDB2aDd5QWhtNzhaaWxF?oc=5) |
+| Trump administration faces a deadline to tell judges whether it will use contingency funds for SNAP - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOOWJaZHdaVW5fbDY0V3pNTXhGTU5xWnhtdWR5WHJJcmppN0doMlU5RXBpMHN5RFJFa3BST20waWFma01JSnQtY05BNVhNVFZRYzBlQWNhbXVjNHV5ZnRrMWZ0N210SXpYUlhoenNkMHJ6V1BjVDZKWGw2TGZ1OEFtTzlfOGg1Y1NxWjV3NjRIbGF3eGJjREpuTWR2dUc?oc=5) |
 | Democrats are more enthusiastic about the midterms as Trump’s approval hits a second-term low, CNN poll finds - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFA5WEdxQkpFVjdJbUt5bjdHenJXQ05ENGQ3MXpGQmZrbTVLZi1YNXJXLU9IclA1RThWZHB4VnFkOERsZXRQdmlKTThLMmRZQ3kzMWpzTndGS2RKTXQ1QUJncWprMG56QzJUcENraC1Nc1FCNllXakJkWE1kYXVJUQ?oc=5) |
 | Trump Claims He's 'Much Better Looking' Than 1 Rising Democratic Star - HuffPost | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxORlRaR0ZCUGpjWTNsRTRMcWRBZ2RCUGZmUDJHVnJuY1FxOUFMR3diTnc5ZWQtWnRobDNISmVkR2F3WmJGbHFWV2JlblV3OHByRFpUcmlveXk4aUpOSWs3dXA1cE5hd1REa2tlUlJSTkFDUWRCcWM4dXVseXJZUEJ0UGZhdnlvenRZUGdBYlBkd9IBlAFBVV95cUxOZjZNaFE4Q3k5OGZ1Tm82aFZxU0J3a0NpSWVMSG56aXB2SVgxMXNRTEdtd3ZiY1VLMWtsTUtOeXJ0Snh4SFU0cjVxdXZaM2hMbm9OMGgxM2pLWTIxalFuSVdSeGZfNG5WM1NXcUpvZWVMeUo1bGVTY2NJQlltYXM3emhtQVlvUVNSTzdwS3FIS0F1eFZz?oc=5) |
 | Capitol agenda : New hope and pain as shutdown nears record - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOWTJiMFFvVVhzU19vVDZlZkFqdFZxNldhV09hU1ZHZXZOMXdMZGNfYlZqWGtvSkI0U08tMFY3ZlRaMDluS2UzTGFMN1kwVExQNzNLSFZfQkZYajA1bjg1OWwxUlhzNkUtS2dRTzcteFFjVkUzekZ4U0lJZGRxMWtPUzJFeDdzY2x1dFFBTWFOeVRRZldEYURQMnA4OA?oc=5) |
