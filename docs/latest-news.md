@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 23:09:27（北京时间）**
+🕒 更新时间：**2025年11月03日 23:17:44（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | I'm the luckiest man alive but I'm suffering, says Air India crash sole survivor | [阅读全文](https://www.bbc.com/news/articles/cp85zvne1m3o?at_medium=RSS&at_campaign=rss) |
 | China intimidated UK university to ditch human rights research, documents show | [阅读全文](https://www.bbc.com/news/articles/cq50j5vwny6o?at_medium=RSS&at_campaign=rss) |
 | Private baby scan clinics putting women at risk with dangerous advice, warn experts | [阅读全文](https://www.bbc.com/news/articles/cx27pm8d0p3o?at_medium=RSS&at_campaign=rss) |
-| Israeli military's ex-top lawyer arrested as scandal over video leak deepens | [阅读全文](https://www.bbc.com/news/articles/cy0kpd97qqko?at_medium=RSS&at_campaign=rss) |
+| Israeli military's ex-top lawyer arrested over leak of video allegedly showing Palestinian detainee abuse | [阅读全文](https://www.bbc.com/news/articles/cy0kpd97qqko?at_medium=RSS&at_campaign=rss) |
 | Strictly's Amy Dowden to undergo second mastectomy | [阅读全文](https://www.bbc.com/news/articles/c3vn16krv0go?at_medium=RSS&at_campaign=rss) |
 | Conservative Party nearly ran out of money, says Badenoch | [阅读全文](https://www.bbc.com/news/articles/cvg410w770lo?at_medium=RSS&at_campaign=rss) |
 | 'I worry about unity' - Southgate on St George's flag | [阅读全文](https://www.bbc.com/sport/football/articles/cly951008eeo?at_medium=RSS&at_campaign=rss) |
@@ -30,9 +30,9 @@
 | NYC mayoral candidates ratchet up intensity on final day of early voting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNTzdkN0d6WEg0c3J2Y3dydzZCWnVRd3pucHV0SWhRcFh6VDkxdVYwMHVQbm1zcnZJVmYzNkZYRDR1YnJzajRCNG12WDJqRkhyVjhyQktzdnZYZzVDcGttdVNsa19hTlQ1MXV3MmtKNVRNelNXbFVpd0FQWTJlSDN1Y0RqLUlEMV9LZE1ybHJNVHhRVHNfREl6eU9iVkpZVF95Tmgwb1FRRnVZb00?oc=5) |
 | Government shutdown could become longest ever as Trump says he 'won't be extorted' by Democrats - AP News | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPY3hKcktnVENoSklPUnFwRVI1YldkaXd5ZnNQWTRsbW85UW9KbkJhMFZxTDh1U2ZCZkx5QktlLXdCUFpicEFSOWdMYVExUXJZczJtNHpHS29jYnJYQmFZTGJEOUhqclV1Y05SZGl2TjVrTU9ZNE8wY0ZsazB2VUFkYXdvQjJkMXVPcjh5S1ZFWjRtYVBxdlpLWXpvYUJLTlBNNGF4cENYUERSYmt3WERjSm9pc3BTTDJIcDNncmpB?oc=5) |
 | Government shutdown live updates as impasse nears record length - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPaUVhMW5OcWY0Z1R4c1NBODFNOWpRYm5ReklXYTdFZ2JMam1oQjNqZ1ZseTF2cTZqa25MckNYWFVPS1N5Rm5ObDlCVE1HUDM3a2FLQ2RpRWtLU0tSdnJYbXhhMEt2ZGxIaFAtd0I4S2NCV000ZHZESU9yRnQ0TzlyM2lMXzRkYzFhSzJ1eFpUVnF5b1YwRHg0dNIBngFBVV95cUxQVkdzZkRWcGNmc3NhUlc1bUxJeGhoU2wyNkhhZ19fMlpVdEZsN19ZZnVpTjBiYVAtbmVESmdhcXlac2FfMC11MjUtejRtUVpiSnUzTjhLaEJXYjE2eWd5RkdjVkhHYl9UbG5LbHBQZDRTbkdWTGR2ZDE4S0cyNHRldW53blNuV2hnN3hJZEF5alVjd1ZHWVdLN3hLYm1LQQ?oc=5) |
+| Democratic voters say California's Prop 50 gives them a way to 'counteract' Trump - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOOE5oYVZ6T1lBZ29uYnpFUEd4MmFXcWRGanB0U2k1SXpnVUNVdXpoc2s2ZnduOVV0Skp4QndNLXlTdWh1WjhVdWFReTgzTGY5bG1tMmlMRmlkdDZRcEhwZmE1di1nVHB0dXcydlYtUURvZ3kzZUd6RnRDSXVuMVlia0dvbmlwdlE?oc=5) |
 | Federal judge blocks National Guard deployment to Portland through Friday - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQaG1KQ2swcUUzWW1uYjhSME1SdHd1MlJGYVp3WlNHeDFaT1pzRWgwUVVYVnlMSnJOWXVObFRwZkdFemJBczNNeWFVVXhrYUNGMm9MUTJ0QVg4M1JkTU05TTlGRE50cFVWc29rNW5OclJJendRSEFPdlZvOWhFTFFwdFVlMGY2QTFVLXc?oc=5) |
 | The FBI says it thwarted a potential terror attack in a Michigan city. But the community’s residents are skeptical - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOX0xvWlFyTFhMaEZGVng4RnhnRTRySGx3TmxUWVdiejlHNUc0c1o4Y2szeXoxdnFtSE44ay1OTmtsTG9xU2x3OXY1STBFby1NeE1fZ1dnNWQyQlBRdGpLNWNObmE4MldEeXlSV09Bam1BTE1qVFBmQjEyVElYWWhtZ2N3?oc=5) |
-| Christian, Muslim Nigerians Push Back On Threatened US Strikes - Barron's | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPUnNkUmw5bTFXc1RKd0NsZ0loM3ZDSEJsR3JIOXNMWEx6UldlT0lxQVBoX256eFRoeFN2eWtJQnNYYng5SUFZOUVEOVdrTEt0eDZfWEpxbnZMek1zRTZOZmxjLWF5RHFZVkR1UkpJNjBVM3dFcUVsdzNzYzZYYVdjRVJKWXhvVEtENGUzNHFuRXlMVmI1SEpJTE5sRDR0TE5qcVE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。

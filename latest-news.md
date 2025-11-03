@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 23:09:26（北京时间）**
+🕒 更新时间：**2025年11月03日 23:17:44（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | I'm the luckiest man alive but I'm suffering, says Air India crash sole survivor | [阅读全文](https://www.bbc.com/news/articles/cp85zvne1m3o?at_medium=RSS&at_campaign=rss) |
 | China intimidated UK university to ditch human rights research, documents show | [阅读全文](https://www.bbc.com/news/articles/cq50j5vwny6o?at_medium=RSS&at_campaign=rss) |
 | Private baby scan clinics putting women at risk with dangerous advice, warn experts | [阅读全文](https://www.bbc.com/news/articles/cx27pm8d0p3o?at_medium=RSS&at_campaign=rss) |
-| Israeli military's ex-top lawyer arrested as scandal over video leak deepens | [阅读全文](https://www.bbc.com/news/articles/cy0kpd97qqko?at_medium=RSS&at_campaign=rss) |
+| Israeli military's ex-top lawyer arrested over leak of video allegedly showing Palestinian detainee abuse | [阅读全文](https://www.bbc.com/news/articles/cy0kpd97qqko?at_medium=RSS&at_campaign=rss) |
 | Strictly's Amy Dowden to undergo second mastectomy | [阅读全文](https://www.bbc.com/news/articles/c3vn16krv0go?at_medium=RSS&at_campaign=rss) |
 | Conservative Party nearly ran out of money, says Badenoch | [阅读全文](https://www.bbc.com/news/articles/cvg410w770lo?at_medium=RSS&at_campaign=rss) |
 | 'I worry about unity' - Southgate on St George's flag | [阅读全文](https://www.bbc.com/sport/football/articles/cly951008eeo?at_medium=RSS&at_campaign=rss) |
