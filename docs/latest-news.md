@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 15:00:04（北京时间）**
+🕒 更新时间：**2025年11月03日 15:08:17（北京时间）**
 
 ---
 
@@ -14,8 +14,8 @@
 | Firms ordered to reduce forever chemicals in drinking water sources for 6 million people | [阅读全文](https://www.bbc.com/news/articles/c9q1nzyzyjeo?at_medium=RSS&at_campaign=rss) |
 | At least 20 dead after magnitude-6.3 earthquake hits Afghanistan | [阅读全文](https://www.bbc.com/news/articles/c8jrw12d3edo?at_medium=RSS&at_campaign=rss) |
 | Private baby scan clinics 'putting expectant mothers at risk' | [阅读全文](https://www.bbc.com/news/articles/cx27pm8d0p3o?at_medium=RSS&at_campaign=rss) |
-| 'No help, no food, no water': Hurricane-hit Jamaican towns desperately wait for aid | [阅读全文](https://www.bbc.com/news/articles/cpv11w8ez10o?at_medium=RSS&at_campaign=rss) |
 | Nato 'will stand with Ukraine' to get long-lasting peace, senior official tells BBC | [阅读全文](https://www.bbc.com/news/articles/czxng7kxnp9o?at_medium=RSS&at_campaign=rss) |
+| 'No idea who he is', says Trump after pardoning crypto tycoon | [阅读全文](https://www.bbc.com/news/articles/cn7ek63e5xyo?at_medium=RSS&at_campaign=rss) |
 | Nine-month-old baby killed in dog attack | [阅读全文](https://www.bbc.com/news/articles/c0exdqpv3vvo?at_medium=RSS&at_campaign=rss) |
 | India beat South Africa for historic World Cup win | [阅读全文](https://www.bbc.com/sport/cricket/articles/ckgkzn4enqko?at_medium=RSS&at_campaign=rss) |
 
@@ -28,7 +28,7 @@
 | What to know about a stabbing attack aboard a train in Britain - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOZ2gxNWpqclNueTl1QVAybXZNZ3FrWE1kSEdTbnAyR1VNTjZHUURnaE9MbHBqSzQxdGQ5NHJYZ3hBMVFoMFM4Qm9sN2FjTVU0aGhia2ktUmljdjROVWVfZmpQT2psZ0ZSQTEyNktQZ1lXUWMwN3RHMTd2cGdJOVVjcWZQQnUzLW5MeEo1UmtJZ3N3Tjc0NWc?oc=5) |
 | Trump reverses course on attending Supreme Court arguments this week - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPMDh3TXV3OEMzang2LUVpcWE3WHpTcEJwV2Q3TUVmUlpWUE9zaXBETk5yQkhkeExNOXM0Njk0TEhWRWdya182WjFNTG9GNmh2a05CQjY0SmtmdGRBUFkxY0ZwQ2k0ZXlrdklWZXUzaDI2YzFURE41SVFJeEdTRVYxM2U5TW9SRmZFWjl3U0RWUjRKZGJqQzY0Yg?oc=5) |
 | At Least 10 Dead and Hundreds Injured After Strong Quake Hits Afghanistan - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQdjFfeWlvb09pbmp4b1paZGZiSmkxMXROc0lkbVdnZlYzX2hMTWFQQXV5NnZPYjdsbGZOTkwtOHA0M29DNk5NcVN0RG0yb0pQSG1zOC1RSWI2d3BKc1FRSEhuQkpNc0NjeHNRQnRqaThPRFpWdU9GdWtPTmVwMURxdGdaNWlDdnF3VGdRTGx3?oc=5) |
-| Trump threat of military action in Nigeria prompts confusion and alarm - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUjFhVjhKU2h5ZnM2TDlsQkwwbTZIbDMtSVFOb2pFVDMzT0haRmZyUHlVb1V3d1NKQWRlNzZMbWdFX2QxM0p5cHM2bGZRc2gyUjFwYmNxTVpTYXdiYkwxN0piUHNNdXVqTVdkSy0xZXRjV3hsOFV5VVdKTEZ4QVpab2VhTzAyd003Zkd4T1BtWGY?oc=5) |
+| Trump says he doubts US will go to war with Venezuela - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1UQ3BTc0xmUkt4WnQzRnZhaDRXYmdPRlF6QWdaLUw3ZW51c3pPT21yaGJFVmpiM0FvS2JsZ1d4YXNsYURVZUFUOHczMHI5MGlwcktnS1FSekJGZ9IBX0FVX3lxTE43dU9Kck5OY0lLcXZGTWdreGpqQnlqZ2dJaU0xdTYtb201Z0VhN1lGSFgxNWZLNzkwLW1zT2FNNHhTSEdfM3ZFbXpqNGpIOUNCQy0zMWhMN1NUTzV6blhN?oc=5) |
 | N.Y.C. Early Voting Ends With 735,000 Ballots Cast, as Younger Voters Surge - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9KbVdVLURpekRfb3U1LUhRZGwyakNrOGJqN0kzTC1UQzBOalNIcjl3QW1VWVQxRnBTQWZRSjNsaWVqWl84TUpHdk9sTDJ5QXVJcjc1ZEFoZlVxVS12ZG1RTFhhcF9mTlVUVU9mbVlNbmZTV19BQlo0Rk1GQQ?oc=5) |
 | Federal judge blocks National Guard deployment to Portland through Friday - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQaG1KQ2swcUUzWW1uYjhSME1SdHd1MlJGYVp3WlNHeDFaT1pzRWgwUVVYVnlMSnJOWXVObFRwZkdFemJBczNNeWFVVXhrYUNGMm9MUTJ0QVg4M1JkTU05TTlGRE50cFVWc29rNW5OclJJendRSEFPdlZvOWhFTFFwdFVlMGY2QTFVLXc?oc=5) |
 | Kash Patel Slams ‘Clickbait Haters’ After Backlash to Alleged FBI Jet Travel - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxOVkJfSU1MSndDYWtWVnpzNENJMHJZMFZCMjF3U2FpMEt2c2hOT0d4ZFh0MW02elMzZzlOT2JCOTl5czFkblZHOElzczhBSnJsVnJFQncwVWtrZ2xuOFctdjdVcmJfbEtTd3FXY1dhNlBueUFxYXVkUUlOM2JlRXhIZUVVclYzbE0xdl9QclRtWkJkLTZrVm8yT3V3djgyUjl2aDNESkpBQ1NsRU1YbUhpSXROSmhNVGt6R1VHUTVwdWliRUM0WjRF?oc=5) |
