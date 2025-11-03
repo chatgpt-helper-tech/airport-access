@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 15:32:42（北京时间）**
+🕒 更新时间：**2025年11月03日 15:40:02（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump administration faces Monday deadline to respond to judge's SNAP order - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxORGxsLTBNdzJSTnRwSFJKSHh1WlhKcWVmeThuRXFsbHJUc2kteU5jczMtQVBXU1RVMHp4bWtKMnN5a09MSjRWRWJpTmZmUDVxRDJZYkEzX0pxQjRYYUZIMU9hZTdFcU1XSE0yUHFKZXRYUVY5YjBwWmxuLWZNQVFwRnNn0gFWQVVfeXFMTzUtYi1KbThseG12LW5jbDFQRndUNTZqTU8tdXc1Y1o5cWk3MTdCdjBIMTB0MnlvQWFTX2xjak9oNWg5MHh3WnZRdEh2Q3RiVjhWazFGdFE?oc=5) |
-| President Trump's extended 60 Minutes interview - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPMFZrZzIwTGFoVHJaZmVJTWJoWWhETll6WTg3SXNESEhOVDlEWlB6SHVpbnFDNzlOVFlUMkJaTE1JZlQ0c29TOEtPYkl0ZFVySXFIQmhnYTFJeGxFOHB1MEVGdFZuYUY0X0dYTDJSbERFaFNJU19DTEotNTFRU1JsUnZR0gGHAUFVX3lxTE0yN2xEYjdyM2d5RUNuZ0lzRXBubVRpWEIxQUJXSnpMV3VHbVdMWmJJT1g5blF2MWN5cXFaZExjSERVLW9qTXpPVXpOSUlkcV8zc3RCNWt2MVZ1VW1mM0dNdVhaSkRqcWVXa1VaZ282VTZwQXoyOWY5UDhZelJHanlGYzRzcHBLaw?oc=5) |
+| Trump Boasts Of Getting Paid “A Lot Of Money” By Paramount & Praises New CBS Owners In Unaired Clip From Wide-Ranging ’60 Minutes’ Interview - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQR0lhZFZ2MXZBdEMtS0dlbTg0VVpGdDFmSm9LU1NWZmdodHE2VWJiZDNCQXM2S1RQQ09SMUI5VHVReDZlaC1GcWc4cGU1V1dlX0RaRkhQdUpQM1VZYUJnOTR3NkM4TlVmMENYZ1NBMTZCQnJ6V2tjVXpFVFNGdTNEbWtQZ0JaMXlW?oc=5) |
 | Trump reverses course on attending Supreme Court arguments this week - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPMDh3TXV3OEMzang2LUVpcWE3WHpTcEJwV2Q3TUVmUlpWUE9zaXBETk5yQkhkeExNOXM0Njk0TEhWRWdya182WjFNTG9GNmh2a05CQjY0SmtmdGRBUFkxY0ZwQ2k0ZXlrdklWZXUzaDI2YzFURE41SVFJeEdTRVYxM2U5TW9SRmZFWjl3U0RWUjRKZGJqQzY0Yg?oc=5) |
 | 'Heroic' rail worker saved many lives in Huntingdon train stabbings, police say - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9OTHlDbVhCTkpzNXVfSU1YMm5VRlNkYmtpbmhlcnpYLUNNYjI4TEZTekxCX1VnMGFSakNQNEJzc3RZRkJrTGtKX3kyOUJJNlBlUEs4RHV6VFpUZ9IBX0FVX3lxTFBuWGZuQ0JwbGlVNlpYZGVoeUI3WElvMTlKOGs2UjdrZnNDVTZRdGp4ZHJraFJLZmhrTjlNTmZINS1NWl9KYlY3bDN6RGRuNEs2UGZPX3g1a0JhS19JWGNB?oc=5) |
 | At Least 10 Dead and Hundreds Injured After Strong Quake Hits Afghanistan - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQdjFfeWlvb09pbmp4b1paZGZiSmkxMXROc0lkbVdnZlYzX2hMTWFQQXV5NnZPYjdsbGZOTkwtOHA0M29DNk5NcVN0RG0yb0pQSG1zOC1RSWI2d3BKc1FRSEhuQkpNc0NjeHNRQnRqaThPRFpWdU9GdWtPTmVwMURxdGdaNWlDdnF3VGdRTGx3?oc=5) |
