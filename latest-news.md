@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 12:41:20（北京时间）**
+🕒 更新时间：**2025年11月03日 12:49:36（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Man, 32, only suspect in train stabbing as staff member in life-threatening condition, police say | [阅读全文](https://www.bbc.com/news/articles/c797x8v0nvno?at_medium=RSS&at_campaign=rss) |
+| 'Heroic' train worker saved lives, police say, as man, 32, only suspect in stabbing | [阅读全文](https://www.bbc.com/news/articles/c797x8v0nvno?at_medium=RSS&at_campaign=rss) |
 | What we know about stabbings on Doncaster to London train | [阅读全文](https://www.bbc.com/news/articles/c8r007d4kk2o?at_medium=RSS&at_campaign=rss) |
 | Firms ordered to reduce forever chemicals in drinking water for 6m people | [阅读全文](https://www.bbc.com/news/articles/c9q1nzyzyjeo?at_medium=RSS&at_campaign=rss) |
 | 'No help, no food, no water': Hurricane-hit Jamaican towns desperately wait for aid | [阅读全文](https://www.bbc.com/news/articles/cpv11w8ez10o?at_medium=RSS&at_campaign=rss) |
@@ -30,7 +30,7 @@
 | NYC mayoral candidates ratchet up intensity on final day of early voting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNTzdkN0d6WEg0c3J2Y3dydzZCWnVRd3pucHV0SWhRcFh6VDkxdVYwMHVQbm1zcnZJVmYzNkZYRDR1YnJzajRCNG12WDJqRkhyVjhyQktzdnZYZzVDcGttdVNsa19hTlQ1MXV3MmtKNVRNelNXbFVpd0FQWTJlSDN1Y0RqLUlEMV9LZE1ybHJNVHhRVHNfREl6eU9iVkpZVF95Tmgwb1FRRnVZb00?oc=5) |
 | Nine people injured in mass shooting at Ohio party held in Airbnb - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPTHh0dVNvRFdPTW8xd1gyZkRCd1lMTXgtYTJyRTJPbXlIc3RDcENBRjduZGRiajQzWmcybDZMbk1VeWd2VndyTW5FRUxYYVBxb1FrSmFoN1JfUlNpeDJwUkxyZWdYTU5HNGx5SHBrOFItQWNvZlRZRHNYb0xzNncwMkliUkN4UQ?oc=5) |
 | Trump reverses course on attending Supreme Court arguments this week - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPMDh3TXV3OEMzang2LUVpcWE3WHpTcEJwV2Q3TUVmUlpWUE9zaXBETk5yQkhkeExNOXM0Njk0TEhWRWdya182WjFNTG9GNmh2a05CQjY0SmtmdGRBUFkxY0ZwQ2k0ZXlrdklWZXUzaDI2YzFURE41SVFJeEdTRVYxM2U5TW9SRmZFWjl3U0RWUjRKZGJqQzY0Yg?oc=5) |
-| Mississippi woman kills escaped monkey fearing for her children’s safety - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQYWwtS252cnpheHBtVFNwTUcwaTM1YWl5T29wRFdXRDJ0OW1Ba1RCellQRmd2QjI3LXFWV1YwLXUxRGJvMDBkYlVKN1JLcVJZZWotZW13WWJEcTJpemN3TEEzTWJ1Vm1jVlhvZXBLUUdReFBYUmJQRXBuUEU0UHA5ZHBFOEdDQlNxYzZaeHVwYzlDWDhDeVAxcEtmc28yTzdVRURB?oc=5) |
+| Mississippi woman kills escaped rhesus monkey, saying she feared for her children’s safety - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxOX1l6U0NwWXNGZG8yT25UQ0p4U1lBb1lOWVpEX3hVcWFDS3lmbHpUc3NkVy1ncW5PdFRBVDNCOTBGUzlfVWR3NTE1a0VMN2h0NFJXSGFhU19oa1lnTEYwem1Wek45UUtzMEVpdm9QVUpqNUJac0p0bG9lZHQxQ05lZ3FkSXBvN2hqYmpNYVcwalppaUVlZ2Nsb1pRa0syZUU2OUlhcVpaUThDNnRWbklGOVhHRHVwaHpMbU1Jcm93NVdPUQ?oc=5) |
 | Big delays at LAX and San Diego airport amid air traffic control staffing shortage - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQSWY4YXFGWEd3bzNHakN5ZWV0bkQwc2tHRWJ1WFRBbkxZVjZvYXRFUVJYbkdhTmpiVmEwME83Qy1xQk4wb254RXJQb3JvYWM0WmtvRENCYVpNY2xGVXFrVWpNc0lzWEViNEdyU28zWGxmdUZhOFZqcFVCVUlNaURTRFktTGpEcGxxTWxJM0FSN1FhQ2E1QmpUOW9acVJaNXZiWEV1SVcyMG10NEIwR200ejZOdGQ?oc=5) |
 | Indiana Republican Tries Different Approach in Debate on Voting Maps: Listening - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPNnNHQTdQTFV2VU5wZUZTWVlEVzJQZzRocWtyRnVJdGxYWEZFVFZJVEF4enJ3cjlpOE04clBDRnhXU0ZmVDhmZ2JaRnJEa25uSXJVSm5PaWxDSnJXVDR3S1dQT2NWSmZRUFRTN0ttZGE1NklYTlN1M25RX1RzY0duazdR?oc=5) |
 
