@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 08:17:14（北京时间）**
+🕒 更新时间：**2025年11月03日 08:24:52（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | How this week's elections in Virginia became about ... everything - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOcEZMd0dPdmtfZWhDUFJpWVhDZ3BhYTBMSnRGMjFlLUt1S2IwRWVvMF8tdnd0SjVJOUZQSjk2Z0pRdmEtRkktRTFDNjZfdllVQnZkdUJzUTlQRVM0cWpQXzAyUXJEOURicVR6ZFV2Qmx1bEdHVWhOaWpRTGhrNVJfZUNuR0hmU0dKclNVdUhaLVZwWUxNblBMZ2VpQWVNTHA5azd6Ug?oc=5) |
 | Bessent says SNAP payments "could be" made this week - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNSGtyZlNFVkd4cXhWRHVCWEVtdFdHLXhEUXlKcE11dGZ4eHhZdFBicGY2Q1NxRW1SNDJiSW5RdHdxTGVvaXpsekpVdm9OSEpHWW1wOGRLd215bU16azJIejdMYjdCTWxVN0hMWnFkaHMtSk1vWWQzQUN0akNWODdpZHY3TjlUUnVwZWlZ?oc=5) |
 | Zohran Mamdani inching away from NYC mayoral win? Poll shows his lead narrowing just before results ｜ World News - Hindustan Times | [阅读全文](https://news.google.com/rss/articles/CBMi8wFBVV95cUxPQ1dvWlR3d3Y4NXljTWh1WWduUG9fVENpUW5SSWpteFd1WTlVQjc4dVgtM1hROVR2QmxRNHZZck91dzBXaHJUM3NBdDg3VGM1TEttRXdBNDZPTkpwMkhpNFBqNV91MHU5VDVKZ2tUdk1pOGExNU9yaWNCWmlBTHVPaXVpZzdSbzlBVXlPYi16eUtnaHMwUElJSF9LRV9xNEgwM1AyMDM2RV9lMkNWbUFFSjMteGJnVkZiMG1pQUNmYzdTVzEya0EtRmlMS1otRkhISVRvN2RPc2hrV0RyYkVqRFN1WG5MQUluZkdFZzNJNG5WbmvSAfgBQVVfeXFMTXVpYllBSWNVaW1xRGxiX3FTRzRfb1BsLUl0SnlHMG14T2E1RDc5YzdGRW9BcmozbF9sNnp1ZzFXcjQ2ODV3Ni1RR0lXMEJzQzNGWEVaZ1pHRUlmbkh4T3dURDlZU2IxZ3lBMzEyekJqVVJBY1pjT0J2RHRFMHV0dURTR280Tk1kYlB4MnJSY0VYVTgzaGRjTG1xQkduNk5pVHkybDVJUlVqdFcwd1FKX1JheXBjMzVpbnZBOUU0NXZsWjBXelc3NlBiVHlQcGtvR2FXYktkVUZMYnVpUjV1Y0trVmVEcHNWVW1WUWdlZnhkWmNldXFzZUg?oc=5) |
-| Transportation Secretary Sean Duffy says airport delays are "going to get worse" as shutdown drags on - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNcTA4OWc3UVJVdEcwZVpjRXZtcklLS3lEQXVEaEZpaGtsc1JBRUJFY0VNUzRwcndzQ0ZNeWRHY0U0S0xyY2VwLTNRU0tFTnNVdUNiY2NJZUJZNVRvUTFoTjNKYWFLaWNpWjRrVGFnRFM1RS1ySkZUVzhpazdRckZkT2loejRFLU1mbnpfX1Rld1ZVTkxncHdrSHNOcm02cjlyRFlGXzQtRnLSAa4BQVVfeXFMUEJnNktwcVFodVBvMVNQTXJqU0Z2bmo1cW1tTFcwLURwd1hyaU1qUDRobmVvYUl3UG5EWDVjanRBekQ5OERVM0xzUm10ejdNdF85amhCOEE0Z1plNWJ3Y0dfT2xsa3dIZkJLQ1FBeV9VQkhZeE5KM04yT1dNbms5M3M1dkQ3QVkwZTNQOHp2djgyRnJiZ1NJT01yczNBTjVUWG02aU12YVhrNjdBa0tn?oc=5) |
 | Mississippi woman fatally shoots monkey escaped from overturned truck - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQaWV2LW9ZNWg0R3QzelBwRVNXSDNlN0psd1FTaGFiUi1nT19qUEZiNDI5TlYzN3lUd20wRENlRnVILUZ0bHdDU0ZzSlBsOFk3Uk1vWmpwejROWFRQWTkzdjBLLURyNFczV3VWSGhYenFjYm41cEctX182V0NpcjhoUmwzQzBNZkp6OGswaFMxY1Y?oc=5) |
+| Latest U.S. Military Boat Strike in Caribbean Sea Kills 3, Pete Hegseth Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQY0hna3NUdGEtcVUwZzJvcWN3dUw5QUdYWmVRMTVONEZLM3pScGRMTDR3STV3ZkJzcWYtNDI3d1RnNDZZanRtaVg4SGd3NUJWZVJTdlhDcGxKU1MyNDJmLXphaW56S2E2dEh0WXZNV2ZUem4wUW1CM3JQZjdsZlp0M1Nn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
