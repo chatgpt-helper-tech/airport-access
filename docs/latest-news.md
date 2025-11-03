@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 19:08:09（北京时间）**
+🕒 更新时间：**2025年11月03日 19:16:58（北京时间）**
 
 ---
 
@@ -25,13 +25,13 @@
 |--------|-------------|
 | Supreme Court won't stop Trump's tariffs. Deal with it, officials say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNYy1FWTdtMm13Wjlqa0VXZnlONHdobjlzcG5nUVhMMkhqVndVZENUdDIweE1CZDh1RHFFb0lXU2RLYVZzRXExdVVSMklNNTY2T0JsUFRQNEVfQ2dVWjB2UG9BUmwxSVM3bE0tXzhjVjdHUUhyMWpTTGdvc0dRcUt5anNyUWgyc1REdXp5MWU3eERIcUZ5bGVTX2hMbWRvYTdvTGFQTzJzSVdsY0V6WjdKdTU0SQ?oc=5) |
 | Trump Boasts Of Getting Paid “A Lot Of Money” By Paramount & Praises New CBS Owners In Unaired Clip From Wide-Ranging ’60 Minutes’ Interview - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQR0lhZFZ2MXZBdEMtS0dlbTg0VVpGdDFmSm9LU1NWZmdodHE2VWJiZDNCQXM2S1RQQ09SMUI5VHVReDZlaC1GcWc4cGU1V1dlX0RaRkhQdUpQM1VZYUJnOTR3NkM4TlVmMENYZ1NBMTZCQnJ6V2tjVXpFVFNGdTNEbWtQZ0JaMXlW?oc=5) |
-| Trump Administration Highlights: Federal Judge Temporarily Blocks Guard Deployment in Portland - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE94VVc4cTNCdWZTNVVaTTVrVEE3OEwtRGdOT3RWeUJWRUFiS1JmS2ZRVjFJTXYxZ1d6TEUtTGYtU1paRGhPaDNWZGtPSEVBZHB0SkVSd0VvSjAyLVR5V25EV1BJWQ?oc=5) |
+| Judge Extends Block of Trump’s National Guard Deployment to Portland - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOb240b0s5Qy1oYVNBU3RiR2pUeFpmZEJCT3RqeC1LajlRZzlHUEZTLVAzdG53M3RpTFJfbGMyb3FTandUUHZiTk4wOUUyT1h6TWxrS2paMlhTUXhZM2RubHV6cElwRTJuV0pEbVdDV0lZUzVZYXpzSnlDV29XZFA4bFEtZ3dqbmZqOWxhZFhCYjJGWmNE?oc=5) |
 | Trump administration faces Monday deadline on use of contingency funds for SNAP - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNLTNia1FWbTdhS3REVGNkd2JlWjI1SXBDakltekhmbC1jOE01SFByV3Y1QlgweEE3bFdVa2V5YW4tb0ZxRkhkWmpWeHVmbkJYMVlDdUY3V1Z2cGVCTXVLZmFNTDdlZXlkaHEtWkxCNFhCSVhiNng2VWpma3duSjZYcFM0TjFsUQ?oc=5) |
-| At least 20 dead after magnitude-6.3 earthquake hits Afghanistan - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1aaTg5Sks0c1E2ZnI4a1JPR3A0aWZRNUlTUzFzUDNEU2NZYktHUVgtMjYzZ2paR2hrekVINGdPYk5BclhFWVhEWkFJS1NCUThKalRkeXNaZGRpZw?oc=5) |
-| Trump's National Guard deployments aren't random. They were planned years ago - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPLVBSRmF1QXdyby1SejBlWWpBczYwcEJQcjhpV0Y3V0RPeHZBQmtxTm5tY1NnT3NHNTlldHJUcXRndjZIbXpVZzJRUS1xV2xMWGxTRXFjTTJxc2s0b0c0UHNSc0ZoeTdGVzI0T2ZGcGNWeFBUemZyZVVobDhFUkdubW84RFhydHdrODRaaFMzTW84QQ?oc=5) |
+| At Least 15 Dead and Hundreds More Injured After Quake Hits Afghanistan - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQdjFfeWlvb09pbmp4b1paZGZiSmkxMXROc0lkbVdnZlYzX2hMTWFQQXV5NnZPYjdsbGZOTkwtOHA0M29DNk5NcVN0RG0yb0pQSG1zOC1RSWI2d3BKc1FRSEhuQkpNc0NjeHNRQnRqaThPRFpWdU9GdWtPTmVwMURxdGdaNWlDdnF3VGdRTGx3?oc=5) |
+| What to know about a stabbing attack aboard a train in Britain - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOZ2gxNWpqclNueTl1QVAybXZNZ3FrWE1kSEdTbnAyR1VNTjZHUURnaE9MbHBqSzQxdGQ5NHJYZ3hBMVFoMFM4Qm9sN2FjTVU0aGhia2ktUmljdjROVWVfZmpQT2psZ0ZSQTEyNktQZ1lXUWMwN3RHMTd2cGdJOVVjcWZQQnUzLW5MeEo1UmtJZ3N3Tjc0NWc?oc=5) |
 | 'Utterly shameful': Congress to crush US record this week for longest shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOZUU1aml6TmhndXNrT2RxTGJIVEVnVlBtTy02TmRGaXNmMl9KckdOT3VMT3JYeGh4dlhSLUk1TExrUVZham1wdDNkRGlnd1FpZ1Q1MjZBVFJnODdsUnJuZF9pTktKY3FVcVBCbDdoRUJLcFlaQ0xTOUZWRE12ZTZPYk0yQnVxS0Q4dFE?oc=5) |
-| NYC mayoral candidates ratchet up intensity on final day of early voting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNTzdkN0d6WEg0c3J2Y3dydzZCWnVRd3pucHV0SWhRcFh6VDkxdVYwMHVQbm1zcnZJVmYzNkZYRDR1YnJzajRCNG12WDJqRkhyVjhyQktzdnZYZzVDcGttdVNsa19hTlQ1MXV3MmtKNVRNelNXbFVpd0FQWTJlSDN1Y0RqLUlEMV9LZE1ybHJNVHhRVHNfREl6eU9iVkpZVF95Tmgwb1FRRnVZb00?oc=5) |
 | Trump says no Tomahawks for Ukraine, for now - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQTTRlLTZsaHp6c1hRSmpKQU5zMHBaUGJpZ0FGNUdWYTM3MlF6MU5zWTB5ZUp6WXVFSEtud2JJVUtvZDdpX2lLX2F5UHl1ckNsakJxVS1NT2xGMjFycFExLS1ET0poMUV0b2tMRnZOUXJ0b1pCd3Q1LURtb2xUY0tLa3dTZmhSU0VrM3BBdw?oc=5) |
+| NYC mayoral candidates ratchet up intensity on final day of early voting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNTzdkN0d6WEg0c3J2Y3dydzZCWnVRd3pucHV0SWhRcFh6VDkxdVYwMHVQbm1zcnZJVmYzNkZYRDR1YnJzajRCNG12WDJqRkhyVjhyQktzdnZYZzVDcGttdVNsa19hTlQ1MXV3MmtKNVRNelNXbFVpd0FQWTJlSDN1Y0RqLUlEMV9LZE1ybHJNVHhRVHNfREl6eU9iVkpZVF95Tmgwb1FRRnVZb00?oc=5) |
 | Mississippi woman kills escaped monkey fearing for her children’s safety - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQYWwtS252cnpheHBtVFNwTUcwaTM1YWl5T29wRFdXRDJ0OW1Ba1RCellQRmd2QjI3LXFWV1YwLXUxRGJvMDBkYlVKN1JLcVJZZWotZW13WWJEcTJpemN3TEEzTWJ1Vm1jVlhvZXBLUUdReFBYUmJQRXBuUEU0UHA5ZHBFOEdDQlNxYzZaeHVwYzlDWDhDeVAxcEtmc28yTzdVRURB?oc=5) |
 
 ---
