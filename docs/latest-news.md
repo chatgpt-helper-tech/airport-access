@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 19:57:19（北京时间）**
+🕒 更新时间：**2025年11月03日 20:00:19（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | 'I worry about unity' - Southgate on St George's flag | [阅读全文](https://www.bbc.com/sport/football/articles/cly951008eeo?at_medium=RSS&at_campaign=rss) |
 | Firms ordered to reduce forever chemicals in drinking water sources for 6 million people | [阅读全文](https://www.bbc.com/news/articles/c9q1nzyzyjeo?at_medium=RSS&at_campaign=rss) |
 | Justin Baldoni case against Blake Lively dismissed after deadline lapse | [阅读全文](https://www.bbc.com/news/articles/c986npp638qo?at_medium=RSS&at_campaign=rss) |
-| 'Incredible bravery' of train crew and passengers saved lives | [阅读全文](https://www.bbc.com/news/articles/cvgvvg337x8o?at_medium=RSS&at_campaign=rss) |
+| 'He put himself in harm's way': How crew and passengers saved lives onboard train | [阅读全文](https://www.bbc.com/news/articles/cvgvvg337x8o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
