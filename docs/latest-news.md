@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 22:08:09（北京时间）**
+🕒 更新时间：**2025年11月03日 22:18:01（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Supreme Court Confronts Trump and His Tariffs in Test of Presidential Power - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPdFRSbDVNWlN1akd2ZkliQWdNTm1aRDZ5MUpYS3haNjFQQlBxSHdhMVlVRktNXzZwMHhreFJTcEhlekVCcjBHOGp5LU1TVExNRkJOUUszNnFFX1htanZzdEFhSDltREJKN0NhSjdVWWszS1drY01vSWlFV295aUpjcGkwRHktUQ?oc=5) |
-| Israeli military's ex-top lawyer arrested as scandal over video leak deepens - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE55TEFLMml1dXJ5UVRpbDNhZDRaNGhLM3pxZ09OU0pfY3hmX0tqX2s5dklNRkY4T2ZhTG5qcjk0MzFOamFSd1dSSERINzd6T0tBWWp1Q2F6Y1lJUdIBX0FVX3lxTFAtZ2VrRmRLZGRtNDNnQ3FrNW4ta2hlN2k2RWlVeFA2cF9mdVR0WEJaS09pN2ZTWmx0eWp1UHhUeVRlZ19ja0JlaWtlU1M4X2tEcDB2aDd5QWhtNzhaaWxF?oc=5) |
 | Trump administration faces Monday deadline on use of contingency funds for SNAP - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNLTNia1FWbTdhS3REVGNkd2JlWjI1SXBDakltekhmbC1jOE01SFByV3Y1QlgweEE3bFdVa2V5YW4tb0ZxRkhkWmpWeHVmbkJYMVlDdUY3V1Z2cGVCTXVLZmFNTDdlZXlkaHEtWkxCNFhCSVhiNng2VWpma3duSjZYcFM0TjFsUQ?oc=5) |
+| Israeli military's ex-top lawyer arrested as scandal over video leak deepens - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE55TEFLMml1dXJ5UVRpbDNhZDRaNGhLM3pxZ09OU0pfY3hmX0tqX2s5dklNRkY4T2ZhTG5qcjk0MzFOamFSd1dSSERINzd6T0tBWWp1Q2F6Y1lJUdIBX0FVX3lxTFAtZ2VrRmRLZGRtNDNnQ3FrNW4ta2hlN2k2RWlVeFA2cF9mdVR0WEJaS09pN2ZTWmx0eWp1UHhUeVRlZ19ja0JlaWtlU1M4X2tEcDB2aDd5QWhtNzhaaWxF?oc=5) |
 | Democratic voters say California's Prop 50 gives them a way to 'counteract' Trump - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOOE5oYVZ6T1lBZ29uYnpFUEd4MmFXcWRGanB0U2k1SXpnVUNVdXpoc2s2ZnduOVV0Skp4QndNLXlTdWh1WjhVdWFReTgzTGY5bG1tMmlMRmlkdDZRcEhwZmE1di1nVHB0dXcydlYtUURvZ3kzZUd6RnRDSXVuMVlia0dvbmlwdlE?oc=5) |
+| Democrats are more enthusiastic about the midterms as Trump’s approval hits a second-term low, CNN poll finds - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFA5WEdxQkpFVjdJbUt5bjdHenJXQ05ENGQ3MXpGQmZrbTVLZi1YNXJXLU9IclA1RThWZHB4VnFkOERsZXRQdmlKTThLMmRZQ3kzMWpzTndGS2RKTXQ1QUJncWprMG56QzJUcENraC1Nc1FCNllXakJkWE1kYXVJUQ?oc=5) |
 | Trump Claims He's 'Much Better Looking' Than 1 Rising Democratic Star - HuffPost | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxORlRaR0ZCUGpjWTNsRTRMcWRBZ2RCUGZmUDJHVnJuY1FxOUFMR3diTnc5ZWQtWnRobDNISmVkR2F3WmJGbHFWV2JlblV3OHByRFpUcmlveXk4aUpOSWs3dXA1cE5hd1REa2tlUlJSTkFDUWRCcWM4dXVseXJZUEJ0UGZhdnlvenRZUGdBYlBkd9IBlAFBVV95cUxOZjZNaFE4Q3k5OGZ1Tm82aFZxU0J3a0NpSWVMSG56aXB2SVgxMXNRTEdtd3ZiY1VLMWtsTUtOeXJ0Snh4SFU0cjVxdXZaM2hMbm9OMGgxM2pLWTIxalFuSVdSeGZfNG5WM1NXcUpvZWVMeUo1bGVTY2NJQlltYXM3emhtQVlvUVNSTzdwS3FIS0F1eFZz?oc=5) |
-| NYC mayoral candidates ratchet up intensity on final day of early voting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNTzdkN0d6WEg0c3J2Y3dydzZCWnVRd3pucHV0SWhRcFh6VDkxdVYwMHVQbm1zcnZJVmYzNkZYRDR1YnJzajRCNG12WDJqRkhyVjhyQktzdnZYZzVDcGttdVNsa19hTlQ1MXV3MmtKNVRNelNXbFVpd0FQWTJlSDN1Y0RqLUlEMV9LZE1ybHJNVHhRVHNfREl6eU9iVkpZVF95Tmgwb1FRRnVZb00?oc=5) |
 | Capitol agenda : New hope and pain as shutdown nears record - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOWTJiMFFvVVhzU19vVDZlZkFqdFZxNldhV09hU1ZHZXZOMXdMZGNfYlZqWGtvSkI0U08tMFY3ZlRaMDluS2UzTGFMN1kwVExQNzNLSFZfQkZYajA1bjg1OWwxUlhzNkUtS2dRTzcteFFjVkUzekZ4U0lJZGRxMWtPUzJFeDdzY2x1dFFBTWFOeVRRZldEYURQMnA4OA?oc=5) |
 | Federal judge blocks National Guard deployment to Portland through Friday - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQaG1KQ2swcUUzWW1uYjhSME1SdHd1MlJGYVp3WlNHeDFaT1pzRWgwUVVYVnlMSnJOWXVObFRwZkdFemJBczNNeWFVVXhrYUNGMm9MUTJ0QVg4M1JkTU05TTlGRE50cFVWc29rNW5OclJJendRSEFPdlZvOWhFTFFwdFVlMGY2QTFVLXc?oc=5) |
+| Two girls injured after being thrown from Ferris wheel at Louisiana festival - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPY05CRHNsUmUzckFBQS1wRnVVLXBPNEEyYjZfT01oM3E3ZDN2c0phV3JEUDJVWWl0eV9ISHF6Z1hhV0FLbE9pTHFFYjNJWnRVX25zbDU1MUhQSDRSMFJHX0h3NzR5RERDOGRlYVF2VF9qM0hkMEtmWG45N0hRT3EwRFdIY1owUVk2YVRHcEhueXlrVlhBR3U2ekpZbWpQRDFPU2pfQ0lra9IBVkFVX3lxTFBiRXIxazZhNkJTMDNyenBSSW9UeXVCa1JxUjNUd3hDYVRCY3ZIZXZ5c2MwRml1TUtGT2lXa2Ffb2VyeHdzaGNyR2ZNeHhQTzNzSWxiZEtB?oc=5) |
 | Elections Across the U.S. Will Test Democrats’ Momentum Ahead of 2026 Midterms - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOZTlIaUZoc1hDbW54cy1FclJFWkpXREdMbXRZMllBekdoMzZXazVyWEFzUENBaWxPTy1iZ25QWVVSSzA4Y0J0a2xYRHJnejh2NDRkb2lEREItSDJrZ1YwdHo4YWdiZ09DWnRXUFhZcjJyTjExaExCZzNpaVhEdkJqS3dKZVYtTWs?oc=5) |
-| Trump threat of military action in Nigeria prompts confusion and alarm - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUjFhVjhKU2h5ZnM2TDlsQkwwbTZIbDMtSVFOb2pFVDMzT0haRmZyUHlVb1V3d1NKQWRlNzZMbWdFX2QxM0p5cHM2bGZRc2gyUjFwYmNxTVpTYXdiYkwxN0piUHNNdXVqTVdkSy0xZXRjV3hsOFV5VVdKTEZ4QVpab2VhTzAyd003Zkd4T1BtWGY?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
