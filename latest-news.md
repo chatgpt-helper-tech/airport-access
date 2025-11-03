@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 23:49:34（北京时间）**
+🕒 更新时间：**2025年11月03日 23:57:34（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Gender inequality accelerates Japan's rural depopulation - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNYnlnU2dlRGNveFZTc2IxaTR0TzhQUFZKMkFjU1VGZVN0THBnek02cUhCWTVDRlNkb0IwY2R5dUduUG9xRWc3MWlGWGtWTW9BMTlEVkxwS293OTFuZ0VreGpvMUo3SUNuWGRzejlpdXQtVWNhbVpTN1c0QWJFMm9LSVBZbnZjQngxbFhxRw?oc=5) |
 | Capitol agenda : New hope and pain as shutdown nears record - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOWTJiMFFvVVhzU19vVDZlZkFqdFZxNldhV09hU1ZHZXZOMXdMZGNfYlZqWGtvSkI0U08tMFY3ZlRaMDluS2UzTGFMN1kwVExQNzNLSFZfQkZYajA1bjg1OWwxUlhzNkUtS2dRTzcteFFjVkUzekZ4U0lJZGRxMWtPUzJFeDdzY2x1dFFBTWFOeVRRZldEYURQMnA4OA?oc=5) |
 | 2 girls hospitalized after being thrown from Ferris wheel in Louisiana - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOck03OUpMdVE0Sk9NOHRQZG1kQlN5aHY5Y2stSkE4WFJDdUhfdWJqWGtpM0piaEhnWHRGRG1GRkI2YzYyWnRpWnFncXFOUXFqNHVDNFpXVjZWUHQ1eUV5dXNUVDcyNldPU1dzUHFmeHVmSzc5Mm40NVlvRkJtbEVGQWY4bENEaUJkWW04bVdZRi1Belc3WTlfRTRPV1hJcHVQdVHSAacBQVVfeXFMTzdUaWZuVlFyVVY0cVNJcGtudlQtbi12aFdZWGhrYkVrekpac3k4ck9GbmxTTDhQaGRRdGZpSlY3Z1VueDlwNWR0eDZ2cmN2eGZXa0NGSkpsdEExYXJndTlGUzc1cnRKNjFhbXBZY1l5WWRqZXo1dVpqOXBBa2FjUldPbTlhdzB0VGJISTA1YWtpVjQ2eXdmNFB5OHlsS3FOWTMyX1VJbGs?oc=5) |
-| Federal judge blocks National Guard deployment to Portland through Friday - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQaG1KQ2swcUUzWW1uYjhSME1SdHd1MlJGYVp3WlNHeDFaT1pzRWgwUVVYVnlMSnJOWXVObFRwZkdFemJBczNNeWFVVXhrYUNGMm9MUTJ0QVg4M1JkTU05TTlGRE50cFVWc29rNW5OclJJendRSEFPdlZvOWhFTFFwdFVlMGY2QTFVLXc?oc=5) |
 | The FBI says it thwarted a potential terror attack in a Michigan city. But the community’s residents are skeptical - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOX0xvWlFyTFhMaEZGVng4RnhnRTRySGx3TmxUWVdiejlHNUc0c1o4Y2szeXoxdnFtSE44ay1OTmtsTG9xU2x3OXY1STBFby1NeE1fZ1dnNWQyQlBRdGpLNWNObmE4MldEeXlSV09Bam1BTE1qVFBmQjEyVElYWWhtZ2N3?oc=5) |
+| Federal judge blocks National Guard deployment to Portland through Friday - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQaG1KQ2swcUUzWW1uYjhSME1SdHd1MlJGYVp3WlNHeDFaT1pzRWgwUVVYVnlMSnJOWXVObFRwZkdFemJBczNNeWFVVXhrYUNGMm9MUTJ0QVg4M1JkTU05TTlGRE50cFVWc29rNW5OclJJendRSEFPdlZvOWhFTFFwdFVlMGY2QTFVLXc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
