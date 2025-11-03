@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 13:25:51（北京时间）**
+🕒 更新时间：**2025年11月03日 13:33:02（北京时间）**
 
 ---
 
@@ -27,9 +27,9 @@
 | Trump administration faces Monday deadline to respond to judge's SNAP order - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxORGxsLTBNdzJSTnRwSFJKSHh1WlhKcWVmeThuRXFsbHJUc2kteU5jczMtQVBXU1RVMHp4bWtKMnN5a09MSjRWRWJpTmZmUDVxRDJZYkEzX0pxQjRYYUZIMU9hZTdFcU1XSE0yUHFKZXRYUVY5YjBwWmxuLWZNQVFwRnNn0gFWQVVfeXFMTzUtYi1KbThseG12LW5jbDFQRndUNTZqTU8tdXc1Y1o5cWk3MTdCdjBIMTB0MnlvQWFTX2xjak9oNWg5MHh3WnZRdEh2Q3RiVjhWazFGdFE?oc=5) |
 | Man, 32, only suspect after Huntingdon train stabbings - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9OTHlDbVhCTkpzNXVfSU1YMm5VRlNkYmtpbmhlcnpYLUNNYjI4TEZTekxCX1VnMGFSakNQNEJzc3RZRkJrTGtKX3kyOUJJNlBlUEs4RHV6VFpUZ9IBX0FVX3lxTFBuWGZuQ0JwbGlVNlpYZGVoeUI3WElvMTlKOGs2UjdrZnNDVTZRdGp4ZHJraFJLZmhrTjlNTmZINS1NWl9KYlY3bDN6RGRuNEs2UGZPX3g1a0JhS19JWGNB?oc=5) |
 | Trump threat of military action in Nigeria prompts confusion and alarm - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUjFhVjhKU2h5ZnM2TDlsQkwwbTZIbDMtSVFOb2pFVDMzT0haRmZyUHlVb1V3d1NKQWRlNzZMbWdFX2QxM0p5cHM2bGZRc2gyUjFwYmNxTVpTYXdiYkwxN0piUHNNdXVqTVdkSy0xZXRjV3hsOFV5VVdKTEZ4QVpab2VhTzAyd003Zkd4T1BtWGY?oc=5) |
-| NYC mayoral candidates ratchet up intensity on final day of early voting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNTzdkN0d6WEg0c3J2Y3dydzZCWnVRd3pucHV0SWhRcFh6VDkxdVYwMHVQbm1zcnZJVmYzNkZYRDR1YnJzajRCNG12WDJqRkhyVjhyQktzdnZYZzVDcGttdVNsa19hTlQ1MXV3MmtKNVRNelNXbFVpd0FQWTJlSDN1Y0RqLUlEMV9LZE1ybHJNVHhRVHNfREl6eU9iVkpZVF95Tmgwb1FRRnVZb00?oc=5) |
 | Nine people injured in mass shooting at Ohio party held in Airbnb - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPTHh0dVNvRFdPTW8xd1gyZkRCd1lMTXgtYTJyRTJPbXlIc3RDcENBRjduZGRiajQzWmcybDZMbk1VeWd2VndyTW5FRUxYYVBxb1FrSmFoN1JfUlNpeDJwUkxyZWdYTU5HNGx5SHBrOFItQWNvZlRZRHNYb0xzNncwMkliUkN4UQ?oc=5) |
 | Trump reverses course on attending Supreme Court arguments this week - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPMDh3TXV3OEMzang2LUVpcWE3WHpTcEJwV2Q3TUVmUlpWUE9zaXBETk5yQkhkeExNOXM0Njk0TEhWRWdya182WjFNTG9GNmh2a05CQjY0SmtmdGRBUFkxY0ZwQ2k0ZXlrdklWZXUzaDI2YzFURE41SVFJeEdTRVYxM2U5TW9SRmZFWjl3U0RWUjRKZGJqQzY0Yg?oc=5) |
+| N.Y.C. Early Voting Ends With 735,000 Ballots Cast, as Younger Voters Surge - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9KbVdVLURpekRfb3U1LUhRZGwyakNrOGJqN0kzTC1UQzBOalNIcjl3QW1VWVQxRnBTQWZRSjNsaWVqWl84TUpHdk9sTDJ5QXVJcjc1ZEFoZlVxVS12ZG1RTFhhcF9mTlVUVU9mbVlNbmZTV19BQlo0Rk1GQQ?oc=5) |
 | Federal judge again blocks National Guard deployment to Portland, will issue final order Friday - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQaG1KQ2swcUUzWW1uYjhSME1SdHd1MlJGYVp3WlNHeDFaT1pzRWgwUVVYVnlMSnJOWXVObFRwZkdFemJBczNNeWFVVXhrYUNGMm9MUTJ0QVg4M1JkTU05TTlGRE50cFVWc29rNW5OclJJendRSEFPdlZvOWhFTFFwdFVlMGY2QTFVLXc?oc=5) |
 | Mississippi woman kills escaped monkey fearing for her children’s safety - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQYWwtS252cnpheHBtVFNwTUcwaTM1YWl5T29wRFdXRDJ0OW1Ba1RCellQRmd2QjI3LXFWV1YwLXUxRGJvMDBkYlVKN1JLcVJZZWotZW13WWJEcTJpemN3TEEzTWJ1Vm1jVlhvZXBLUUdReFBYUmJQRXBuUEU0UHA5ZHBFOEdDQlNxYzZaeHVwYzlDWDhDeVAxcEtmc28yTzdVRURB?oc=5) |
 | Indiana Republican Tries Different Approach in Debate on Voting Maps: Listening - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPNnNHQTdQTFV2VU5wZUZTWVlEVzJQZzRocWtyRnVJdGxYWEZFVFZJVEF4enJ3cjlpOE04clBDRnhXU0ZmVDhmZ2JaRnJEa25uSXJVSm5PaWxDSnJXVDR3S1dQT2NWSmZRUFRTN0ttZGE1NklYTlN1M25RX1RzY0duazdR?oc=5) |
