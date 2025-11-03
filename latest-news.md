@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 17:40:45（北京时间）**
+🕒 更新时间：**2025年11月03日 17:48:42（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | At least 20 dead after magnitude-6.3 earthquake hits Afghanistan - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1aaTg5Sks0c1E2ZnI4a1JPR3A0aWZRNUlTUzFzUDNEU2NZYktHUVgtMjYzZ2paR2hrekVINGdPYk5BclhFWVhEWkFJS1NCUThKalRkeXNaZGRpZ9IBX0FVX3lxTE4zR1B1RzU1NC1oeGh3aS12NkdTNVhOTTMzQnV1dVFzdER5Ti1xUDhEaVBrU25xaUx2MGRaRFRJYXlxYndnX0w4VXlmeEJIcUxldmdORVhfcFlDSVhrd3pr?oc=5) |
 | What to know about a stabbing attack aboard a train in Britain - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOZ2gxNWpqclNueTl1QVAybXZNZ3FrWE1kSEdTbnAyR1VNTjZHUURnaE9MbHBqSzQxdGQ5NHJYZ3hBMVFoMFM4Qm9sN2FjTVU0aGhia2ktUmljdjROVWVfZmpQT2psZ0ZSQTEyNktQZ1lXUWMwN3RHMTd2cGdJOVVjcWZQQnUzLW5MeEo1UmtJZ3N3Tjc0NWc?oc=5) |
 | N.Y.C. Early Voting Ends With 735,000 Ballots Cast, as Younger Voters Surge - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE9KbVdVLURpekRfb3U1LUhRZGwyakNrOGJqN0kzTC1UQzBOalNIcjl3QW1VWVQxRnBTQWZRSjNsaWVqWl84TUpHdk9sTDJ5QXVJcjc1ZEFoZlVxVS12ZG1RTFhhcF9mTlVUVU9mbVlNbmZTV19BQlo0Rk1GQQ?oc=5) |
+| Mississippi woman kills escaped monkey, fearing for her children's safety - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxQZzZjOTUweFNBN244MjNMMVIwcHVKQ19oMkZTLVgxZ0JGR0tVRkk3cjZTSVFIZzJBdnNzM25aRHRfc0FWWWdfdHF5T3pnMlJyaVNUU0JjMU9oUjFtZ2NERE8yY00yNkxqdUtUczFDSUw0WWg4VUw1QW8wRTZQUnpZLW4tNGJJVTV3Tmk2NUZwbkhwVTltbkJYX1N1NHLSAaIBQVVfeXFMUHU4RFBxUXg1OWxTOTd5Y0k2UGRrSXptN0NiNHB1MHRwT2ZvWlpFc0sycWxObm5GczVGOXM0bS10eXVTb0JoV3Bnc2s1OFNNd3BIeTR3Q1E3NjBMbzNaeWk2eEE2Y3ZvQXVMMkxEdEM5MDBSUHQ0ZU5zbW9mS3MtSE84TzhmTU5DQ0VLUHhhbFJyZVpzeE5KSWQ4NG1laVNZOWhB?oc=5) |
 | Trump threat of military action in Nigeria prompts confusion and alarm - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUjFhVjhKU2h5ZnM2TDlsQkwwbTZIbDMtSVFOb2pFVDMzT0haRmZyUHlVb1V3d1NKQWRlNzZMbWdFX2QxM0p5cHM2bGZRc2gyUjFwYmNxTVpTYXdiYkwxN0piUHNNdXVqTVdkSy0xZXRjV3hsOFV5VVdKTEZ4QVpab2VhTzAyd003Zkd4T1BtWGY?oc=5) |
 | Staffing shortages mire air travel as shutdown stretches on - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQUVdiWFpDRW1XS2JqZGZWOW9sakY1cGVYWDFoa0t3VGI4bWdLcGFpZUhVVkNCZUYtbGRvWjduMFlsbUlQVU96RC02ODhXMWM0VEJxNWRMTXp5YjRxRXFhMjAzSmlHLWNMYkRRRjJWbUQ4dVhhaVdxcXduRUhHYTMyODFQNHh6ZnUyeFNBRXNR?oc=5) |
-| Nine people injured in mass shooting at Ohio party held in Airbnb - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPTHh0dVNvRFdPTW8xd1gyZkRCd1lMTXgtYTJyRTJPbXlIc3RDcENBRjduZGRiajQzWmcybDZMbk1VeWd2VndyTW5FRUxYYVBxb1FrSmFoN1JfUlNpeDJwUkxyZWdYTU5HNGx5SHBrOFItQWNvZlRZRHNYb0xzNncwMkliUkN4UQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
