@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 08:56:35（北京时间）**
+🕒 更新时间：**2025年11月03日 09:01:11（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | How this week's elections in Virginia became about ... everything - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOcEZMd0dPdmtfZWhDUFJpWVhDZ3BhYTBMSnRGMjFlLUt1S2IwRWVvMF8tdnd0SjVJOUZQSjk2Z0pRdmEtRkktRTFDNjZfdllVQnZkdUJzUTlQRVM0cWpQXzAyUXJEOURicVR6ZFV2Qmx1bEdHVWhOaWpRTGhrNVJfZUNuR0hmU0dKclNVdUhaLVZwWUxNblBMZ2VpQWVNTHA5azd6Ug?oc=5) |
 | Bessent says SNAP payments "could be" made this week - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNSGtyZlNFVkd4cXhWRHVCWEVtdFdHLXhEUXlKcE11dGZ4eHhZdFBicGY2Q1NxRW1SNDJiSW5RdHdxTGVvaXpsekpVdm9OSEpHWW1wOGRLd215bU16azJIejdMYjdCTWxVN0hMWnFkaHMtSk1vWWQzQUN0akNWODdpZHY3TjlUUnVwZWlZ?oc=5) |
 | Zohran Mamdani inching away from NYC mayoral win? Poll shows his lead narrowing just before results ｜ World News - Hindustan Times | [阅读全文](https://news.google.com/rss/articles/CBMi8wFBVV95cUxPQ1dvWlR3d3Y4NXljTWh1WWduUG9fVENpUW5SSWpteFd1WTlVQjc4dVgtM1hROVR2QmxRNHZZck91dzBXaHJUM3NBdDg3VGM1TEttRXdBNDZPTkpwMkhpNFBqNV91MHU5VDVKZ2tUdk1pOGExNU9yaWNCWmlBTHVPaXVpZzdSbzlBVXlPYi16eUtnaHMwUElJSF9LRV9xNEgwM1AyMDM2RV9lMkNWbUFFSjMteGJnVkZiMG1pQUNmYzdTVzEya0EtRmlMS1otRkhISVRvN2RPc2hrV0RyYkVqRFN1WG5MQUluZkdFZzNJNG5WbmvSAfgBQVVfeXFMTXVpYllBSWNVaW1xRGxiX3FTRzRfb1BsLUl0SnlHMG14T2E1RDc5YzdGRW9BcmozbF9sNnp1ZzFXcjQ2ODV3Ni1RR0lXMEJzQzNGWEVaZ1pHRUlmbkh4T3dURDlZU2IxZ3lBMzEyekJqVVJBY1pjT0J2RHRFMHV0dURTR280Tk1kYlB4MnJSY0VYVTgzaGRjTG1xQkduNk5pVHkybDVJUlVqdFcwd1FKX1JheXBjMzVpbnZBOUU0NXZsWjBXelc3NlBiVHlQcGtvR2FXYktkVUZMYnVpUjV1Y0trVmVEcHNWVW1WUWdlZnhkWmNldXFzZUg?oc=5) |
-| Latest U.S. Military Boat Strike in Caribbean Sea Kills 3, Pete Hegseth Says - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQY0hna3NUdGEtcVUwZzJvcWN3dUw5QUdYWmVRMTVONEZLM3pScGRMTDR3STV3ZkJzcWYtNDI3d1RnNDZZanRtaVg4SGd3NUJWZVJTdlhDcGxKU1MyNDJmLXphaW56S2E2dEh0WXZNV2ZUem4wUW1CM3JQZjdsZlp0M1Nn?oc=5) |
+| Three killed in latest US strike on alleged drug boat in Caribbean - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE14UWMyYllJNTVKNEE2Nk1EWmxyX3BYVlFnbU1rTlMxWHBlcFJZQWx3OFZkM1dZazA5RTFrSzZhZWJEVHFJRkN2UE9tSzZ6SU50UGRHenoyZmhSZ9IBX0FVX3lxTE9UcVB4WXlTcEtSLWdSQjBFaC1ya1lKT2tXa3VPa1lTd1c5a245emVBOVk2cFV3aWxKYzhfU3NWYVdzaUlaekN3cE8zdFU4cWJZcnVaTjhnTTU1N3pPZ2Ew?oc=5) |
 | Flight delays persist as government shutdown leads to air traffic controller shortages - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPbGZkdkJoQms5bG5hakk2V0tKY19zQzBUeVR6VlNMQloycDJuQlRaZjVrSjBhaVFIdmVvOEktN01GVy1BRzRVaDJadGpvdU5HTWRrWk83bjh1dHpYVEU2MGRodkg4Y2xiN2sxWUFKeGlGcjRoT0tLV2RMRGpCRVRmR3UtV0ExaF9HMmVqSkE1cHRHTVBBWHk0?oc=5) |
 
 ---
