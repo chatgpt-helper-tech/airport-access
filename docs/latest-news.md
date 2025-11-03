@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月04日 07:00:58（北京时间）**
+🕒 更新时间：**2025年11月04日 07:08:59（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Supreme Court cannot stop all of Trump's tariffs. Deal with it, officials say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNYy1FWTdtMm13Wjlqa0VXZnlONHdobjlzcG5nUVhMMkhqVndVZENUdDIweE1CZDh1RHFFb0lXU2RLYVZzRXExdVVSMklNNTY2T0JsUFRQNEVfQ2dVWjB2UG9BUmwxSVM3bE0tXzhjVjdHUUhyMWpTTGdvc0dRcUt5anNyUWgyc1REdXp5MWU3eERIcUZ5bGVTX2hMbWRvYTdvTGFQTzJzSVdsY0V6WjdKdTU0SQ?oc=5) |
 | Israel’s top military lawyer arrested after she admitted leaking video of soldiers’ abuse - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxQQ1NteTFMbHdHUmp0b25EMlVSQlBHYlFrYU5qRVBDdW5kVjZXWFEtc09acWlfRUl5aFlwZHprUVBYNUVzYUIza1NQLWxaYmY5clZ4ZE5qamZFdjZyd0pLQjFwYkx5T3huYk5yMnFJTVZqaUxEM2NvRDZwVXYtckphZXJDZm5NSUdEZWh2MUlhQTBKWmYya25OSk5WcFNGSkM1eHNSRmJIdHNGOXlUSHFwMTgwdy1GaGcwMUQyNnlNdFVBX1dLeTZ6RkZXMmtrZw?oc=5) |
 | 2 US citizens arrested in alleged ISIS-inspired Halloween plot: DOJ - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxORHp5d3pMNThjZE5QaXhaMTdYTDNtWGcwVzNQampJSl8wYjZUTHVKRlRsRmlSOUdzaDd3aWd5MEhBMnNoNEw2WkkzRU94RGllazhZTHZlcXU2d2xrYjBKdzk1U1VDaEUtekkxS3RrVVJTQkJDNTE3R3NlRmRUYW1aV2VFSm5KeGhLN0xtWGtCZXdSRksyWFFIaVJxWEFLeHF20gGmAUFVX3lxTE5Kd1hEVDZZeEVnMVpOQnpsZ0ZTdTRlVC11ellLaHZTeF9uazVVVmFpM2p4bGxQdTJyVFZGTkk0cjFIWndnY2tNVXY1dU12cGYzZ1JUMjVBb3hJRmdFY0tCTURqY043UWwxZmNQYzJGM0Fpek5HODRCelZDMlVCVjQzazR4UVdQVnA3UUJIcWtfTGZVcVpGejhDRGY0MUZ0WmVuaTFiOUE?oc=5) |
-| Government shutdown live updates as Thune says he's "optimistic" about ending impasse this week - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPaUVhMW5OcWY0Z1R4c1NBODFNOWpRYm5ReklXYTdFZ2JMam1oQjNqZ1ZseTF2cTZqa25MckNYWFVPS1N5Rm5ObDlCVE1HUDM3a2FLQ2RpRWtLU0tSdnJYbXhhMEt2ZGxIaFAtd0I4S2NCV000ZHZESU9yRnQ0TzlyM2lMXzRkYzFhSzJ1eFpUVnF5b1YwRHg0dNIBngFBVV95cUxQVkdzZkRWcGNmc3NhUlc1bUxJeGhoU2wyNkhhZ19fMlpVdEZsN19ZZnVpTjBiYVAtbmVESmdhcXlac2FfMC11MjUtejRtUVpiSnUzTjhLaEJXYjE2eWd5RkdjVkhHYl9UbG5LbHBQZDRTbkdWTGR2ZDE4S0cyNHRldW53blNuV2hnN3hJZEF5alVjd1ZHWVdLN3hLYm1LQQ?oc=5) |
+| Five key moments from Trump’s ‘60 Minutes’ interview - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQZ282U05BSnRJUU1hU0FNZGNvYXFFeXJTNEc1bWJ0YnZiN19fbTd1d3hBd3k1UTBodE5feVpiLWl5SFg1VlZHUXZ6OWdaQ0VTb3lmbWRxTW44RFJmU0xqejZPQmZZLXNBeExwc2FOaDJhSy1SNjlLS2cxakNXelhCdnFpcWxCeUZoc2oxUw?oc=5) |
 | Live Results: New York City 2025 mayoral election - PBS | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQdUJIdmRXZU1LVUxkLXlQLV9ycGVEcEpQQm5FWDJLV1JvYjBHX01ZVVhVX0xFSmpRVU04enpKOE5rYXZTQVUydXBsMTJ3SzNFcU9IUVhLV1JqMUpqazIwMGxsSVFMSzBjWVRSZ2FzdTJRU25XSTVaNUpKQ3JZeWcydkYxbDN4aVF0VlJ5VFZTNA?oc=5) |
+| Government shutdown live updates as Thune says he's "optimistic" about ending impasse this week - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPaUVhMW5OcWY0Z1R4c1NBODFNOWpRYm5ReklXYTdFZ2JMam1oQjNqZ1ZseTF2cTZqa25MckNYWFVPS1N5Rm5ObDlCVE1HUDM3a2FLQ2RpRWtLU0tSdnJYbXhhMEt2ZGxIaFAtd0I4S2NCV000ZHZESU9yRnQ0TzlyM2lMXzRkYzFhSzJ1eFpUVnF5b1YwRHg0dA?oc=5) |
 | Thank a Democrat for Five-Hour TSA Lines, Mass Flight Delays - The White House (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPdXpRN1VkeXlNR1luTzREeVB5a3Y4eXZDamFnTG41S0F2NDY2X042Sm5rN0pXcVhaV09FVXZmUXFGaWJ0YlNMVDRSUzhOeGVFNFFDOVJzV2hUYkNhb3dZUUVuLUY3NHp5WjBGdHF4WkU2UFppLTNobDUwS0ZWNklwamhuckxZTE1ReldJbVdSZ09kdHVpUEhyMVhyc1B1TnBDZDR1LUNrNA?oc=5) |
 | Trump approval rating falls to second-term low of 37% - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBPdWNHWUxmX3d1OGNBbkVIUXZ6Z3NMYURtQVYtUEdlNVZFUUxsbzRhLWNjck1uclFMd0VQMWF1eXFkUUp4VEtVbE9CZHRXTXdLSFdvRU5INkhiMjhnTWJBdmVUREpNclhaZ0xLLUdiMHl1ZllVcDJncQ?oc=5) |
-| ‘It’s insane’: This Calif. couple is a facing an 800% hike in health care costs - SFGATE | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPcjZBNFEzVEMxQTdFc2pQWmNwUnhVX2J1dGhJaUhucFMzSEJ0dUhsWFU4ZXN0aVZJdlJ2emRBcGF0ODJDa3hwVGlCVE9qOWRLMWFFbGlFWFlPdUc2S21wcDFQNVhsR05RSFJySTc2QjFQQ1Z5Tkd1SkNjb1BmejVOUWtnZjVUU1NzaUQ4Z2h2SV9DaVhXdHdBZWJ5WVd6VjZLWnRMMg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
