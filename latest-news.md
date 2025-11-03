@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 13:08:27（北京时间）**
+🕒 更新时间：**2025年11月03日 13:16:39（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | NYC mayoral candidates ratchet up intensity on final day of early voting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNTzdkN0d6WEg0c3J2Y3dydzZCWnVRd3pucHV0SWhRcFh6VDkxdVYwMHVQbm1zcnZJVmYzNkZYRDR1YnJzajRCNG12WDJqRkhyVjhyQktzdnZYZzVDcGttdVNsa19hTlQ1MXV3MmtKNVRNelNXbFVpd0FQWTJlSDN1Y0RqLUlEMV9LZE1ybHJNVHhRVHNfREl6eU9iVkpZVF95Tmgwb1FRRnVZb00?oc=5) |
 | Nine people injured in mass shooting at Ohio party held in Airbnb - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPTHh0dVNvRFdPTW8xd1gyZkRCd1lMTXgtYTJyRTJPbXlIc3RDcENBRjduZGRiajQzWmcybDZMbk1VeWd2VndyTW5FRUxYYVBxb1FrSmFoN1JfUlNpeDJwUkxyZWdYTU5HNGx5SHBrOFItQWNvZlRZRHNYb0xzNncwMkliUkN4UQ?oc=5) |
 | Trump reverses course on attending Supreme Court arguments this week - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPMDh3TXV3OEMzang2LUVpcWE3WHpTcEJwV2Q3TUVmUlpWUE9zaXBETk5yQkhkeExNOXM0Njk0TEhWRWdya182WjFNTG9GNmh2a05CQjY0SmtmdGRBUFkxY0ZwQ2k0ZXlrdklWZXUzaDI2YzFURE41SVFJeEdTRVYxM2U5TW9SRmZFWjl3U0RWUjRKZGJqQzY0Yg?oc=5) |
-| Mississippi woman kills escaped rhesus monkey, saying she feared for her children’s safety - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxOX1l6U0NwWXNGZG8yT25UQ0p4U1lBb1lOWVpEX3hVcWFDS3lmbHpUc3NkVy1ncW5PdFRBVDNCOTBGUzlfVWR3NTE1a0VMN2h0NFJXSGFhU19oa1lnTEYwem1Wek45UUtzMEVpdm9QVUpqNUJac0p0bG9lZHQxQ05lZ3FkSXBvN2hqYmpNYVcwalppaUVlZ2Nsb1pRa0syZUU2OUlhcVpaUThDNnRWbklGOVhHRHVwaHpMbU1Jcm93NVdPUQ?oc=5) |
+| Federal judge again blocks National Guard deployment to Portland, will issue final order Friday - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQaG1KQ2swcUUzWW1uYjhSME1SdHd1MlJGYVp3WlNHeDFaT1pzRWgwUVVYVnlMSnJOWXVObFRwZkdFemJBczNNeWFVVXhrYUNGMm9MUTJ0QVg4M1JkTU05TTlGRE50cFVWc29rNW5OclJJendRSEFPdlZvOWhFTFFwdFVlMGY2QTFVLXc?oc=5) |
+| Mississippi woman fatally shoots monkey escaped from overturned truck - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQaWV2LW9ZNWg0R3QzelBwRVNXSDNlN0psd1FTaGFiUi1nT19qUEZiNDI5TlYzN3lUd20wRENlRnVILUZ0bHdDU0ZzSlBsOFk3Uk1vWmpwejROWFRQWTkzdjBLLURyNFczV3VWSGhYenFjYm41cEctX182V0NpcjhoUmwzQzBNZkp6OGswaFMxY1Y?oc=5) |
 | Flight delays persist as government shutdown leads to air traffic controller shortages - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPbGZkdkJoQms5bG5hakk2V0tKY19zQzBUeVR6VlNMQloycDJuQlRaZjVrSjBhaVFIdmVvOEktN01GVy1BRzRVaDJadGpvdU5HTWRrWk83bjh1dHpYVEU2MGRodkg4Y2xiN2sxWUFKeGlGcjRoT0tLV2RMRGpCRVRmR3UtV0ExaF9HMmVqSkE1cHRHTVBBWHk0?oc=5) |
-| Indiana Republican Tries Different Approach in Debate on Voting Maps: Listening - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxPNnNHQTdQTFV2VU5wZUZTWVlEVzJQZzRocWtyRnVJdGxYWEZFVFZJVEF4enJ3cjlpOE04clBDRnhXU0ZmVDhmZ2JaRnJEa25uSXJVSm5PaWxDSnJXVDR3S1dQT2NWSmZRUFRTN0ttZGE1NklYTlN1M25RX1RzY0duazdR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
