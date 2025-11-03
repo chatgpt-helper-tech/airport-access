@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 10:57:53（北京时间）**
+🕒 更新时间：**2025年11月03日 11:01:20（北京时间）**
 
 ---
 
@@ -27,8 +27,8 @@
 | Man, 32, only suspect after Huntingdon train stabbings - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9OTHlDbVhCTkpzNXVfSU1YMm5VRlNkYmtpbmhlcnpYLUNNYjI4TEZTekxCX1VnMGFSakNQNEJzc3RZRkJrTGtKX3kyOUJJNlBlUEs4RHV6VFpUZ9IBX0FVX3lxTFBuWGZuQ0JwbGlVNlpYZGVoeUI3WElvMTlKOGs2UjdrZnNDVTZRdGp4ZHJraFJLZmhrTjlNTmZINS1NWl9KYlY3bDN6RGRuNEs2UGZPX3g1a0JhS19JWGNB?oc=5) |
 | Trump threat of military action in Nigeria prompts confusion and alarm - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOUjFhVjhKU2h5ZnM2TDlsQkwwbTZIbDMtSVFOb2pFVDMzT0haRmZyUHlVb1V3d1NKQWRlNzZMbWdFX2QxM0p5cHM2bGZRc2gyUjFwYmNxTVpTYXdiYkwxN0piUHNNdXVqTVdkSy0xZXRjV3hsOFV5VVdKTEZ4QVpab2VhTzAyd003Zkd4T1BtWGY?oc=5) |
 | Even for Some Mamdani Supporters, His Thin Résumé Is Cause for Concern - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE5GTmF0NHlubTB0VlJDUlMwSjFvcVhua19qWkRUc1dRb3FqUnZKTUxGdkhpaENubXpLdmVKNEFDOVgybzdvaTlSejF6X0hUUWMtakY1WkM3OTFVa3Y5MTdZTzRHbEFSRy1FYTFnU1UxdVBRal9mSk9oSHR1TFhpZw?oc=5) |
-| Trump says he is ‘on it’ after ‘Dilbert’ creator Scott Adams pleads for lifesaving help - Yahoo | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNUFpsVFhRZmYtS0JERzNuR3Y0NTlhY1hnNzIwcHpfeHRyUHBXVkVvV0dveER6WUZWMDFJUDNVZThUa2x5UXdrVjg5aGxCRXZIUFY4RTFhMHZZckVLOXRTU0hWRV93XzFZb2xwWWtZa2xTd2VneUVtQm8xVTc3WWE5Z0Nld1EzOXlyR05z?oc=5) |
 | Nine people injured in mass shooting at Ohio party held in Airbnb - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPTHh0dVNvRFdPTW8xd1gyZkRCd1lMTXgtYTJyRTJPbXlIc3RDcENBRjduZGRiajQzWmcybDZMbk1VeWd2VndyTW5FRUxYYVBxb1FrSmFoN1JfUlNpeDJwUkxyZWdYTU5HNGx5SHBrOFItQWNvZlRZRHNYb0xzNncwMkliUkN4UQ?oc=5) |
+| Trump says he is ‘on it’ after ‘Dilbert’ creator Scott Adams pleads for lifesaving help - Yahoo | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNUFpsVFhRZmYtS0JERzNuR3Y0NTlhY1hnNzIwcHpfeHRyUHBXVkVvV0dveER6WUZWMDFJUDNVZThUa2x5UXdrVjg5aGxCRXZIUFY4RTFhMHZZckVLOXRTU0hWRV93XzFZb2xwWWtZa2xTd2VneUVtQm8xVTc3WWE5Z0Nld1EzOXlyR05z?oc=5) |
 | Bessent says SNAP payments "could be" made this week - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNSGtyZlNFVkd4cXhWRHVCWEVtdFdHLXhEUXlKcE11dGZ4eHhZdFBicGY2Q1NxRW1SNDJiSW5RdHdxTGVvaXpsekpVdm9OSEpHWW1wOGRLd215bU16azJIejdMYjdCTWxVN0hMWnFkaHMtSk1vWWQzQUN0akNWODdpZHY3TjlUUnVwZWlZ?oc=5) |
 | NYC mayoral candidates ratchet up intensity on final day of early voting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNTzdkN0d6WEg0c3J2Y3dydzZCWnVRd3pucHV0SWhRcFh6VDkxdVYwMHVQbm1zcnZJVmYzNkZYRDR1YnJzajRCNG12WDJqRkhyVjhyQktzdnZYZzVDcGttdVNsa19hTlQ1MXV3MmtKNVRNelNXbFVpd0FQWTJlSDN1Y0RqLUlEMV9LZE1ybHJNVHhRVHNfREl6eU9iVkpZVF95Tmgwb1FRRnVZb00?oc=5) |
 | Mississippi woman kills escaped monkey fearing for her children’s safety - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQYWwtS252cnpheHBtVFNwTUcwaTM1YWl5T29wRFdXRDJ0OW1Ba1RCellQRmd2QjI3LXFWV1YwLXUxRGJvMDBkYlVKN1JLcVJZZWotZW13WWJEcTJpemN3TEEzTWJ1Vm1jVlhvZXBLUUdReFBYUmJQRXBuUEU0UHA5ZHBFOEdDQlNxYzZaeHVwYzlDWDhDeVAxcEtmc28yTzdVRURB?oc=5) |
