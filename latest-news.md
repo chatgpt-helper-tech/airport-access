@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月04日 04:26:00（北京时间）**
+🕒 更新时间：**2025年11月04日 04:32:20（北京时间）**
 
 ---
 
@@ -8,16 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Police investigating whether train attack suspect linked to stabbing of 14-year-old on Friday | [阅读全文](https://www.bbc.com/news/articles/c986n2q6qy0o?at_medium=RSS&at_campaign=rss) |
 | Scunthorpe player and Forest fan among train attack victims | [阅读全文](https://www.bbc.com/news/articles/cpv1dprv2w2o?at_medium=RSS&at_campaign=rss) |
 | Pregnant British teen freed from Georgia jail after drug smuggling charge | [阅读全文](https://www.bbc.com/news/articles/cwy1870g8x7o?at_medium=RSS&at_campaign=rss) |
 | Rescue under way after medieval tower partially collapses in Rome | [阅读全文](https://www.bbc.com/news/articles/ce3kz7jxe0po?at_medium=RSS&at_campaign=rss) |
+| William poses for selfies as he arrives in Rio for Earthshot Prize | [阅读全文](https://www.bbc.com/news/articles/clylxv52pdeo?at_medium=RSS&at_campaign=rss) |
 | 'A thud, then train rocked and tilted': Passengers tell of Glasgow-London derailment | [阅读全文](https://www.bbc.com/news/articles/c8x1dydwg2jo?at_medium=RSS&at_campaign=rss) |
 | French climber among at least three killed in Nepal avalanche | [阅读全文](https://www.bbc.com/news/articles/c2kp42y5y81o?at_medium=RSS&at_campaign=rss) |
-| William poses for selfies as he arrives in Rio for Earthshot Prize | [阅读全文](https://www.bbc.com/news/articles/clylxv52pdeo?at_medium=RSS&at_campaign=rss) |
 | Peter Mandelson was not interviewed for US ambassador job, MPs hear | [阅读全文](https://www.bbc.com/news/articles/cglg63n63wdo?at_medium=RSS&at_campaign=rss) |
 | Strictly's Amy Dowden to undergo second mastectomy | [阅读全文](https://www.bbc.com/news/articles/c3vn16krv0go?at_medium=RSS&at_campaign=rss) |
 | Huge tax cuts not currently realistic, Farage says | [阅读全文](https://www.bbc.com/news/articles/c4gw941pp4ko?at_medium=RSS&at_campaign=rss) |
-| Unexpected O2 price rise is disappointing, government says | [阅读全文](https://www.bbc.com/news/articles/c5y02797xygo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,7 +30,7 @@
 | What’s on the ballot in the first general election since Donald Trump became president - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPcXgwXzFhYURFcUpLRWU2cTlKVENsOXhwMXBETnhyVzFqa2N5ZV91R24wU09xVHlnQkJBcWlzUHFJa1ltQnB5RDNIejZ5Z1MtRjd3VlhLYUtteTc5Nmd4U05TdzRTZndNTzZuM3k3SE5UMDFVS2hZN20xSGlZRnlKY1N2aHBvX3FjUVB4a2hWYTNOZ2tkM2xyWHVXOERGRHZRWHNmR2VEcVVmczlp?oc=5) |
 | Rome's medieval Torre dei Conti tower partially collapses during renovation work, injuring a worker - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNbDVPZDI3LXl3YmNkRTRORmlfczVsVEtVMzlFSmd5YWxfcXRDVnhsNDQwNUNHcTNvRVRBQXVIWGRSZEN1MXlxRDYyWHU4c3RFWVljOE4zUnhoaVFaRjg1WDF3eGpSblZzdXVzT2RFZjlRYklyVXYyYVFMdXZ3MGhXVktGN3BKcml5ZjFlcF9rMXlxOTRFLWsyMXh5YlA0NW9wREHSAacBQVVfeXFMTzV6REcwSFhlZjloV01aM3Y5VXNRTXJtZ243RWxrRGwzRmZSSDFRZzdSUWo0YnZ2a3RfNDk3aXR3ZFRFc2pfWVB4d0QzdnBMenVZakIxelh2Y3pyZm14U2RiNElJMjVfSzByOE1YWHNJa3hpLVpNQU9iVzY4THlLNTQtOWp2RTRDalFvOWx4Y1Q5clNpUUFHVFVUM0hTcUpFTEFUajRqdFk?oc=5) |
 | What the latest polls are showing in the Mamdani vs Cuomo NYC mayoral race - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQN2FJVzJQYUFPaWdzWU9EYXB5MS1qSEVNWmdPYmFaY29CcmlXLTZEZU8tTWdBNlhoT1ZKOWR6bTJGZFNjN0szNzdoMnc3TWF5akdiY2h0SzYzTDZXNS1KTW1YVmFxaEk2ZGIwbTJJNXh1OG4yLXhPek1IVnFGVktvX19LanVtREcxQUFKM2djOVVHQnV0eUVsT2dNMktzZnVGZzNzOVMwVU1hMVJlOHZxX3VQbF9pd9IBuwFBVV95cUxNZE41ZjNnN2R0OEY4THAwSHNUa29Kd2hocFRJZmhXWXRwVnV4ZktPeUdPSWwzbUpub0FPcUhsZ2NzMWkyTkMyOEsxRExKNEFyVEc5aU5EUUktVmVCXzV5ai1jM2JwZklZdE4wbXEtd1FHWnlxOFFvNkZGTzRuODFwMTkycFBaNU5HSmdabzFhSTdpUDhiSGZ6bV93RzNZaDAtM3gwcXlObVlpRElxN3dqMVdyakc1QlJ0Z3kw?oc=5) |
-| Government shutdown live updates as funding impasse nears record for longest ever - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPaUVhMW5OcWY0Z1R4c1NBODFNOWpRYm5ReklXYTdFZ2JMam1oQjNqZ1ZseTF2cTZqa25MckNYWFVPS1N5Rm5ObDlCVE1HUDM3a2FLQ2RpRWtLU0tSdnJYbXhhMEt2ZGxIaFAtd0I4S2NCV000ZHZESU9yRnQ0TzlyM2lMXzRkYzFhSzJ1eFpUVnF5b1YwRHg0dA?oc=5) |
+| Government shutdown live updates as funding impasse nears record for longest ever - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPaUVhMW5OcWY0Z1R4c1NBODFNOWpRYm5ReklXYTdFZ2JMam1oQjNqZ1ZseTF2cTZqa25MckNYWFVPS1N5Rm5ObDlCVE1HUDM3a2FLQ2RpRWtLU0tSdnJYbXhhMEt2ZGxIaFAtd0I4S2NCV000ZHZESU9yRnQ0TzlyM2lMXzRkYzFhSzJ1eFpUVnF5b1YwRHg0dNIBngFBVV95cUxQVkdzZkRWcGNmc3NhUlc1bUxJeGhoU2wyNkhhZ19fMlpVdEZsN19ZZnVpTjBiYVAtbmVESmdhcXlac2FfMC11MjUtejRtUVpiSnUzTjhLaEJXYjE2eWd5RkdjVkhHYl9UbG5LbHBQZDRTbkdWTGR2ZDE4S0cyNHRldW53blNuV2hnN3hJZEF5alVjd1ZHWVdLN3hLYm1LQQ?oc=5) |
 | Understaffed and unpaid: Syracuse air traffic controllers pushed to limit during shutdown - Syracuse.com | [阅读全文](https://news.google.com/rss/articles/CBMi1gFBVV95cUxOVHgydlRwRzlTOW4xTkJkYTU4SnZWa2RMNmtIMGVIMFY3d2VuSDloZkZlY2xiak5MRExkNE10b0MxbHRNYVRfbC1MRktYNXhreGxiODNKTGVIcVVxR0pVMlV5ekpXVDA5TENBTDhHU2hQbHB4V3N4R1VVY1ZJR0RQcmZpVFRqTnRaNU5hTkRZNzNKbnlURDRyUFYybzdJYTdkbzA5NjJha29mN1ByYUJBOFR4ZzJhTHJ2T2M3b241V2I4b29qcFpnTDNJSUFrUGFIb0licjlR0gHqAUFVX3lxTFB6OVhVRkpIOVEyR0QzcGFRYkZMaUxXR25nbF9aV2V1ekJDWk9XWkY4SUJQT0lnUkVXZVZ1b0lsajNIM3R2NkFSYjJNTVhDZ21weTdyY1hHMUdqMWlQYk5zNHhUU0oxMWNSRGh4UE5pMDFESFVTUUdyUjRJQXFmZDVRSDIwVFBfVWtVRnd5MkpXS1FDQlpJOGlUaXpyS0dRRV9JSWIzeWVSU2RSZnBHUXliSlV0alRkRWJpTDBlTUt1c2pUV1lJeGVNRDFzVlZ4RVRoX2gwQTgwS1BmM056SVRxSEdYOTQ0ZWFqdw?oc=5) |
 | Trump approval rating falls to second-term low of 37% - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBPdWNHWUxmX3d1OGNBbkVIUXZ6Z3NMYURtQVYtUEdlNVZFUUxsbzRhLWNjck1uclFMd0VQMWF1eXFkUUp4VEtVbE9CZHRXTXdLSFdvRU5INkhiMjhnTWJBdmVUREpNclhaZ0xLLUdiMHl1ZllVcDJncQ?oc=5) |
 
