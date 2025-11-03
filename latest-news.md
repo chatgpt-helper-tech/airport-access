@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月03日 20:56:28（北京时间）**
+🕒 更新时间：**2025年11月03日 21:00:10（北京时间）**
 
 ---
 
@@ -12,11 +12,11 @@
 | Pregnant British teen freed from Georgia jail after drug smuggling charge | [阅读全文](https://www.bbc.com/news/articles/cwy1870g8x7o?at_medium=RSS&at_campaign=rss) |
 | I'm the luckiest man alive but I'm suffering, says Air India crash sole survivor | [阅读全文](https://www.bbc.com/news/articles/cp85zvne1m3o?at_medium=RSS&at_campaign=rss) |
 | China intimidated UK university to ditch human rights research, documents show | [阅读全文](https://www.bbc.com/news/articles/cq50j5vwny6o?at_medium=RSS&at_campaign=rss) |
+| 'Anger and revenge': Anthony Hopkins on how being bullied at school spurred him on | [阅读全文](https://www.bbc.com/news/articles/crmxv3m8mwzo?at_medium=RSS&at_campaign=rss) |
 | Private baby scan clinics putting women at risk with dangerous advice, warn experts | [阅读全文](https://www.bbc.com/news/articles/cx27pm8d0p3o?at_medium=RSS&at_campaign=rss) |
 | Israeli military's ex-top lawyer arrested as scandal over video leak deepens | [阅读全文](https://www.bbc.com/news/articles/cy0kpd97qqko?at_medium=RSS&at_campaign=rss) |
 | Strictly's Amy Dowden to undergo second mastectomy | [阅读全文](https://www.bbc.com/news/articles/c3vn16krv0go?at_medium=RSS&at_campaign=rss) |
 | 'I worry about unity' - Southgate on St George's flag | [阅读全文](https://www.bbc.com/sport/football/articles/cly951008eeo?at_medium=RSS&at_campaign=rss) |
-| Firms ordered to reduce forever chemicals in drinking water sources for 6 million people | [阅读全文](https://www.bbc.com/news/articles/c9q1nzyzyjeo?at_medium=RSS&at_campaign=rss) |
 | 'He put himself in harm's way': How train driver, crew and passengers saved lives | [阅读全文](https://www.bbc.com/news/articles/cvgvvg337x8o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -30,9 +30,9 @@
 | Democrats are more enthusiastic about the midterms as Trump’s approval hits a second-term low, CNN poll finds - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFA5WEdxQkpFVjdJbUt5bjdHenJXQ05ENGQ3MXpGQmZrbTVLZi1YNXJXLU9IclA1RThWZHB4VnFkOERsZXRQdmlKTThLMmRZQ3kzMWpzTndGS2RKTXQ1QUJncWprMG56QzJUcENraC1Nc1FCNllXakJkWE1kYXVJUQ?oc=5) |
 | At least 20 dead after magnitude-6.3 earthquake hits Afghanistan - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1aaTg5Sks0c1E2ZnI4a1JPR3A0aWZRNUlTUzFzUDNEU2NZYktHUVgtMjYzZ2paR2hrekVINGdPYk5BclhFWVhEWkFJS1NCUThKalRkeXNaZGRpZw?oc=5) |
 | 'Utterly shameful': Congress to crush US record this week for longest shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOZUU1aml6TmhndXNrT2RxTGJIVEVnVlBtTy02TmRGaXNmMl9KckdOT3VMT3JYeGh4dlhSLUk1TExrUVZham1wdDNkRGlnd1FpZ1Q1MjZBVFJnODdsUnJuZF9pTktKY3FVcVBCbDdoRUJLcFlaQ0xTOUZWRE12ZTZPYk0yQnVxS0Q4dFE?oc=5) |
-| Trump Administration Highlights: Federal Judge Temporarily Blocks Guard Deployment in Portland - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE94VVc4cTNCdWZTNVVaTTVrVEE3OEwtRGdOT3RWeUJWRUFiS1JmS2ZRVjFJTXYxZ1d6TEUtTGYtU1paRGhPaDNWZGtPSEVBZHB0SkVSd0VvSjAyLVR5V25EV1BJWQ?oc=5) |
-| ‘Let Them Fight’ – Trump Cools on Tomahawk Missiles for Ukraine, Urges Self-Settlement - Kyiv Post | [阅读全文](https://news.google.com/rss/articles/CBMiS0FVX3lxTE5WQWRUQTBpb01SQllNYlBXemhfdkJhR2hyMjNmdllhRktONEYzd01CblJuUmZHRGxpd0E0NjdVVjAzdW5tNktLWVM4OA?oc=5) |
-| NYC mayoral candidates ratchet up intensity on final day of early voting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNTzdkN0d6WEg0c3J2Y3dydzZCWnVRd3pucHV0SWhRcFh6VDkxdVYwMHVQbm1zcnZJVmYzNkZYRDR1YnJzajRCNG12WDJqRkhyVjhyQktzdnZYZzVDcGttdVNsa19hTlQ1MXV3MmtKNVRNelNXbFVpd0FQWTJlSDN1Y0RqLUlEMV9LZE1ybHJNVHhRVHNfREl6eU9iVkpZVF95Tmgwb1FRRnVZb00?oc=5) |
+| Federal judge blocks National Guard deployment to Portland through Friday - Oregon Public Broadcasting - OPB | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQaG1KQ2swcUUzWW1uYjhSME1SdHd1MlJGYVp3WlNHeDFaT1pzRWgwUVVYVnlMSnJOWXVObFRwZkdFemJBczNNeWFVVXhrYUNGMm9MUTJ0QVg4M1JkTU05TTlGRE50cFVWc29rNW5OclJJendRSEFPdlZvOWhFTFFwdFVlMGY2QTFVLXc?oc=5) |
+| Europe’s left flocks to New York to take notes on Mamdani’s meteoric rise - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPUEJLVFNpcURKSUUtNG84U1VuV1FEYXVILVpRUmdVX0h1NTJYa3dsdlR4WTV4NWpyOUVNcVhUMXRwcE1wZGFLZERGT2p2cnJiUEpIclBpd3ZMS3MwcE5LQUlEek9SRXl3T2hHcjByVGl6RVRMZk1STVNpTWxCbnRNUm9PWjBWdw?oc=5) |
+| What’s on the ballot in the first general election since Donald Trump became president - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPcXgwXzFhYURFcUpLRWU2cTlKVENsOXhwMXBETnhyVzFqa2N5ZV91R24wU09xVHlnQkJBcWlzUHFJa1ltQnB5RDNIejZ5Z1MtRjd3VlhLYUtteTc5Nmd4U05TdzRTZndNTzZuM3k3SE5UMDFVS2hZN20xSGlZRnlKY1N2aHBvX3FjUVB4a2hWYTNOZ2tkM2xyWHVXOERGRHZRWHNmR2VEcVVmczlp?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
