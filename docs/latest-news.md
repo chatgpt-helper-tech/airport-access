@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月04日 14:26:00（北京时间）**
+🕒 更新时间：**2025年11月04日 14:32:27（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump Endorses Cuomo for NYC Mayor and Attacks Mamdani Before Election - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNal8wSDFjcEo1dWtJSFhrdGp6YU9hSE5wMU1jNERMQTN3NW9Cb3BvbFRVcl9oMm5RY1A4OEtyVlFRa3l2bEhYNGVXN0JxNERVZXRXb2xNVzJQOWdoNFZRRTRhYlV6SDdwOW1pdGFaWGdZRFNFMWN4ZXNSNF9fSXJJZTZXRVY?oc=5) |
-| Trump administration says it is paying out half of November’s SNAP benefits - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNY1RXSmh2c3pLaHo5VFNGWFB2cFZqSjFaRkxWcVk4WW12ejBiSWFPYmFrc2NERHhWQnJuQUFxMUFxTm9mdEZCM3lsTDNqZnZYLTRGRTM5eGF5RmRzcVdTbGhhOURDOHNhWXBpcXBZeTV6SFNQMDNaTVd0QW5tY1RUeWpCU1cxWExVSnlCdUlLdw?oc=5) |
+| Trump Administration Live Updates: White House Says It Will Make Only Partial SNAP Payments This Month - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTFBDN01jdUhYMWRXd3IzOG84TlJySUZUMVoxYk5Mal9pcC1RNnNpRXItYmlrY1VaMFQ2UkN5ekJqcDVVTTdDdnR0bk1fY0N0MGpBLXhPR1prVVc0b3I4WnRoRXd5cw?oc=5) |
+| Trump threatens to cut funds if ‘communist’ Mamdani wins mayoral election - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQT0FWS05tSGNTOWdvTUthZldGTTNKSXJsUS1wTkNnTW5vY1lfZTJjTWRYSW9hcWV0b1M4Ml9XVUdsTWdGQjZOX2lMd3ZTeTBiWFdWb0s2SWRzRXhnVEFHWDZCTzN3OHY5RTY5OTZtUkhQQmMwSFBjTGtmMWM3eWEwUC01X0FVRTVXemh6dzdlT1JFcHltcEE?oc=5) |
 | Education Department sued over controversial loan forgiveness rule - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNQmZKM04xMUF4QjlPMTJnc3dZcE9ab0plRndxNzJrTnVqZ0sxSXFaM0NQTmZTLVdDT2ZIXzIwaThuSFQ0cmRsWVo2TTh6NGNnMm1KUHV5akRIcG1Jb2U0b0JkQWJTYmNRSGo0b3Vuem81Z3BRQmJRNEhBeFA2SmhNY2Znc0tQeEd6bm1mY1ZycDY3cDlmODd2c25aSnNGV3kxVmxPVVNmREhkaGtjbnJ3MkN3WW1fc28?oc=5) |
 | Trump saw a segment on Fox News. Within an hour, he was laser-focused on Christians’ treatment in Nigeria - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOSWxiUUs1SjRZWG1lN1lxOUpCYzFLdUJfNUd4WF8zTldFNmxJTExUTFJjUmk4cGFwUGlTM2h1LVVnc0dFb1BMSWs2WENTb0I3XzBZbklCMVJaWGh4N1BFVmlmUW9tUlVHRndTdUVEU3N1RFNxcFk5Mi1GQ0tWQVJvY1F3?oc=5) |
 | Live Results: California 2025 election on Proposition 50 - PBS | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNMjd4R0JXQ2NneXR3dkxKdTUtU19ZRnNpckVhQjB4dGk4d0RIQW1HZFVPQ1VzbkRCRi1mZ0loMlhReUZoTGlHV2xmS1Z1Qm9sTl9PUWgyTGJlWUVrQlgwWTlPeUQtbkptOGszYkF3bkZUUlhUQUZRczZBNXhMQWJpQVI2d0Y5eHRKT1dBRU5Wd2hOblJ1U0dqeg?oc=5) |
@@ -32,7 +32,7 @@
 | NYC mayoral candidates make final push ahead of Election Day - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPWXExQi1mX3AwSjNMbXJRN21SWHRyTTdDWHMwcGlJd2FhWWhkQzUwT0FxR0ttejRkbzNhSU9PVkdLZEZnXzR5N0JmT05vWkIwYUl4NlhVam9HWlFBenlpTERlQ3dFQUV4cHZfenNnb3ZUbFhlLUJFOVdGUFZKZk5Qdlo2NjdaY2J0OEc4QzJlYXBTT2U5QUxDc3RnaDRRa281S19jNXRmUm4?oc=5) |
 | Orange County Mayor Demings makes bid for Florida governor official - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQekdGalB4S1ZVN3phVjVuWlJDOWRkaDRLQjZ6ME04RERpLXJ4Ylg5dFVOMjNueDZqTVRRc2RUeWF2VTd0aThLZE9Fak9lRHRCcTN1RjlocGVvTmNzaUFXMUp6aWFqYU1uckphQXlic2Yxb1VBbUtrLUZVYllacjVKSUNsYkRtX1hGRzE0T3pIclE2SjhhaFowZjRB?oc=5) |
 | Pakistan "will not be the first to resume nuclear tests," official says in response to Trump's 60 Minutes claim - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE84d0JSSjZPV2NwUWdCUGRsRDNBWWVxbjNrd1gzSHhMUDhMVDk1bkxrdVVXcjhzcWFzRGI1bV9JUjdBX0Z3a05hWHdjMEE2a1ZOdXpGRU45QjFUSHZxNWo5bExzb2dFTmFCeWJCeUY1RVl4eDNQOWV3N9IBfkFVX3lxTE9YMUdpaEEyWDA3SHFjQUpxcDZaNFhkRWhIdDlSeDhfT3psN1RTV0dQajZta2hpX0g2NmxwZUpkTlhJLTU1R0VkRTExM3U0bVQ4Zmt6MGdrbUJqV3FxR2dlUno4MjYzS25KdEtCWThBWHJGVGZSek9nUkVoaXdCZw?oc=5) |
-| Trump’s ‘60 Minutes’ interview: Fact-checking his statements on nuclear weapons, Mamdani, ICE - PolitiFact | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPOXBKUjZwUVRPc011WjNibHhXeG5YVEhTQTFMR2Q3UFNEV1Y0VWlHcjVGaGIzc0doSWZhbUFKb0w1MEE3UXpqVTN6YlQtYjMwSmNQNzRCNENVMlRjT20xZTYzSGNVM0F2S21CbTVEYlB4TU1PZl9tNkxyLXk1VnE0c3JvZE4xR0NYMTk0Zy1tTnM3MWZsTXVhck51RDdYQQ?oc=5) |
+| Supreme Court cannot stop all of Trump's tariffs. Deal with it, officials say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNYy1FWTdtMm13Wjlqa0VXZnlONHdobjlzcG5nUVhMMkhqVndVZENUdDIweE1CZDh1RHFFb0lXU2RLYVZzRXExdVVSMklNNTY2T0JsUFRQNEVfQ2dVWjB2UG9BUmwxSVM3bE0tXzhjVjdHUUhyMWpTTGdvc0dRcUt5anNyUWgyc1REdXp5MWU3eERIcUZ5bGVTX2hMbWRvYTdvTGFQTzJzSVdsY0V6WjdKdTU0SQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
