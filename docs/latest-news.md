@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月04日 15:32:41（北京时间）**
+🕒 更新时间：**2025年11月04日 15:41:47（北京时间）**
 
 ---
 
@@ -13,7 +13,7 @@
 | Online porn showing choking to be made illegal, government says | [阅读全文](https://www.bbc.com/news/articles/clyk3qzq7k7o?at_medium=RSS&at_campaign=rss) |
 | China academic intimidation claim referred to counter-terrorism police | [阅读全文](https://www.bbc.com/news/articles/cj0e1lyyvdlo?at_medium=RSS&at_campaign=rss) |
 | Rare footage reveals survival secrets of Africa’s top predators in new Attenborough documentary | [阅读全文](https://www.bbc.com/news/articles/cn51l324p7lo?at_medium=RSS&at_campaign=rss) |
-| Calls for legal right to paid leave for IVF treatment | [阅读全文](https://www.bbc.com/news/articles/ckgyk0w5n8go?at_medium=RSS&at_campaign=rss) |
+| 'I've been using sick days to get fertility treatment' - calls for legal right to paid leave for IVF | [阅读全文](https://www.bbc.com/news/articles/ckgyk0w5n8go?at_medium=RSS&at_campaign=rss) |
 | Trump backs Cuomo for New York City mayor and threatens to cut funding if Mamdani wins | [阅读全文](https://www.bbc.com/news/articles/c231e284345o?at_medium=RSS&at_campaign=rss) |
 | More people using family help than Buy Now Pay Later Loans - but even that can come at a cost | [阅读全文](https://www.bbc.com/news/articles/cze6822y135o?at_medium=RSS&at_campaign=rss) |
 | We are ready to discuss human rights law changes, top ECHR boss tells BBC | [阅读全文](https://www.bbc.com/news/articles/cpd26yd2759o?at_medium=RSS&at_campaign=rss) |
@@ -30,9 +30,9 @@
 | Live Results: California 2025 election on Proposition 50 - PBS | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNMjd4R0JXQ2NneXR3dkxKdTUtU19ZRnNpckVhQjB4dGk4d0RIQW1HZFVPQ1VzbkRCRi1mZ0loMlhReUZoTGlHV2xmS1Z1Qm9sTl9PUWgyTGJlWUVrQlgwWTlPeUQtbkptOGszYkF3bkZUUlhUQUZRczZBNXhMQWJpQVI2d0Y5eHRKT1dBRU5Wd2hOblJ1U0dqeg?oc=5) |
 | Thune says extended shutdown means Senate needs to shift date on funding government - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOcVdmMzdTa1hnME5SRG1QcnhrTmdQNzdPRWxleVQ5NXpYV2djRHlQUlpySWZUNW1DN0lFU3cydDJZcnV3ZldtSVM0a1ptNzdUS1hKeHQ4S0pQQndtUFZ1U2ZaSkhrcFo0bXNwTGNabXVNNW43VGFTRi1NSURsXy10M0JJM3Q0OWZVSmMtZG1NQU9sUGYzdzFnaGxkZFhuSHJuaVNsLWlzb2pIUdIBrwFBVV95cUxOek9LYXBXRG1TX01jSEhZaTNaS0VOZVBtdExwX3J2aXVhekdEeVlEZk1YVV9VSFcyUEtHN1dWd0M5emdFQVJ1YkMzaXRaVjM2TTlyTzBXYU16R3h3ei1YcllULUdNUVBVRWhqTVU5Qjh1WUhQdVRLOVEwM1EtTFhUVzB4dU9EVXU4R212OERobWFGRnN1RzBwZWltZlBHMjhBU0Zqb3o5WDBnbXlObFZj?oc=5) |
 | NYC mayoral candidates make final push ahead of Election Day - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPWXExQi1mX3AwSjNMbXJRN21SWHRyTTdDWHMwcGlJd2FhWWhkQzUwT0FxR0ttejRkbzNhSU9PVkdLZEZnXzR5N0JmT05vWkIwYUl4NlhVam9HWlFBenlpTERlQ3dFQUV4cHZfenNnb3ZUbFhlLUJFOVdGUFZKZk5Qdlo2NjdaY2J0OEc4QzJlYXBTT2U5QUxDc3RnaDRRa281S19jNXRmUm4?oc=5) |
+| Trump's plans to restart nuclear testing likely won't produce any mushroom clouds, experts say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZDg3bG52b203VllUUExybW9feGVUTl9hNjRPVTRHRmtBbTI1RmU3dm9HR291YUhXUHhtYnJSUTNXX1pMTi1kQVBhWEJHWnlsUzVCcWk4SWlna21UM1NBaG5WMW5KNjZRd0E5MEVpWXFnVmRSUVlNRTZweWJUWjQyOTVaWdIBiAFBVV95cUxQSEdNLV9iVEtpUWRrdmY2d0I3UFVLVXgtRWowRWtjYkFLWDR5ZW83U3VHeENWYnJYN2FJV3ctRWQzZUZLenNfX05sMzNydmx5ZlhYOGF2UUR0R2VsUkIyemhBMWwyYktUaWItcXhwa2F6Wm8xLXVzWktQZE5XdEVVWGVMeTNDbHpn?oc=5) |
 | Orange County Mayor Demings makes bid for Florida governor official - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQekdGalB4S1ZVN3phVjVuWlJDOWRkaDRLQjZ6ME04RERpLXJ4Ylg5dFVOMjNueDZqTVRRc2RUeWF2VTd0aThLZE9Fak9lRHRCcTN1RjlocGVvTmNzaUFXMUp6aWFqYU1uckphQXlic2Yxb1VBbUtrLUZVYllacjVKSUNsYkRtX1hGRzE0T3pIclE2SjhhaFowZjRB?oc=5) |
-| Pakistan "will not be the first to resume nuclear tests," official says in response to Trump's 60 Minutes claim - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE84d0JSSjZPV2NwUWdCUGRsRDNBWWVxbjNrd1gzSHhMUDhMVDk1bkxrdVVXcjhzcWFzRGI1bV9JUjdBX0Z3a05hWHdjMEE2a1ZOdXpGRU45QjFUSHZxNWo5bExzb2dFTmFCeWJCeUY1RVl4eDNQOWV3N9IBfkFVX3lxTE9YMUdpaEEyWDA3SHFjQUpxcDZaNFhkRWhIdDlSeDhfT3psN1RTV0dQajZta2hpX0g2NmxwZUpkTlhJLTU1R0VkRTExM3U0bVQ4Zmt6MGdrbUJqV3FxR2dlUno4MjYzS25KdEtCWThBWHJGVGZSek9nUkVoaXdCZw?oc=5) |
-| Violent threats, once concentrated in Washington, are increasing against local public servants, new data shows - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOUlIySnFZbGpwazJwekZhSlJjTXlfTHN6bGhtS0dXaWZMSXNONWl2T2tzYVE1VjRwdmVNR3drSktRV3MzR1lUbHNUbENYLUw1RThJZDlHUUh0R3JVNDBzWVdBektlQjRrT2lXUTE3ek1ZdjhrdzRkOThUTWUxVFQtUUxfcVVSRElNbEUyN1lianJjSTVrUnFsbUdubk94MjQ5YU1F0gGoAUFVX3lxTFA5VXdwWlVnX2FDYVFIYTI3Uy1id09nWnVPVXJ2RXR5X19va3UxQ1EtaEJ3cDk0VmxHNWNwR2Rxb0xZNXNqSWVSU0NuUjJSRW9xcjZMZjhXWlZpbUthbW9EUElMV25jb2Z6Q2xfXzR4TGxSNS0tUEE1Z1cxZkI4dXV0RVVKMXZDQVBUajBsQWVYQ09LWGpiSEpIN1RCVkZqbGJPQ2dyLTFPMQ?oc=5) |
+| Supreme Court cannot stop all of Trump's tariffs. Deal with it, officials say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNYy1FWTdtMm13Wjlqa0VXZnlONHdobjlzcG5nUVhMMkhqVndVZENUdDIweE1CZDh1RHFFb0lXU2RLYVZzRXExdVVSMklNNTY2T0JsUFRQNEVfQ2dVWjB2UG9BUmwxSVM3bE0tXzhjVjdHUUhyMWpTTGdvc0dRcUt5anNyUWgyc1REdXp5MWU3eERIcUZ5bGVTX2hMbWRvYTdvTGFQTzJzSVdsY0V6WjdKdTU0SQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
