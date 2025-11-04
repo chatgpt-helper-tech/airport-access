@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月05日 02:57:32（北京时间）**
+🕒 更新时间：**2025年11月05日 03:00:29（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | 2 men arrested in explosion at Harvard Medical School: FBI - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOVUd1Y21iQVhmekhmclp2akdubzZKWWQwTzVUb29peWNmbGdZczRwNGFzTkZFOHQwUEcxeEVvbjhpaEFna3hJSGhLOVBMbllKYmVlaXdldEFoWExac281Y0FDYXNaajhxNUJmQ29FdEFabDMzWHBudHNjOTFOVmhmY202UU9XRFViTUpoYXNDUUFCUzNMa1hWMjdadUzSAaIBQVVfeXFMUHpuUjJvQ1UxNjNJN2t5a0ZDUFNpSU92TmRLX1dyWXIxb2Q0bEJCY2ZxakhzX0swa2NhUm83S1FlMGlWdUROazdMblRWWEd6UDFyZ05hWEQ5VWE1bVYyTVJRbjhjcEVyZEVzdk9QMjBQT01XclQyQzVqQndWY3FsZi1OaUxrR1RmZGpXODVzMWRudF9WaXA4Y3FBRUptUUV6S0JR?oc=5) |
 | California redistricting goes before voters alongside major races across the U.S. on pivotal election day - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPUUdtQ1d5ajJubkNsaVRtUGV4cEk0UHM2cndJRHlqLVBNRF96SU9EUm5iWThJNFJKQmdtSnhNSTRMTEZYZzJxbm1oVWUtWHliOFFtSEVmZzd0dk9SbEVzTjZSMlhNOU5vY0tyMUdYcWNWdENpemwzTW5mSVVaN2NSXzZ4N1JzNXRWdlFEYjJB?oc=5) |
 | Bessent Plans to Attend Tariff Arguments at the Supreme Court - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOYzFjbTJBN21BcnFPQkF1NjVyYkJrQUR5azJEQjd6UGkwemFXdHlwcEhxQ2pKR2VQaXF6RkpHWlI0WDR0dFoxQ3FiWkVZOTFrcUhpSHBSb2xJMWotODZMOVlCYUhvU3NOYm5vSmEzRjRMWDNjc1BpV0I1WHZPYWpJY1FOMHNYa3RG?oc=5) |
-| Trump’s policies and inflation drive governor’s race in New Jersey, where GOP has been making gains - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOaTNtaEpvdTM1cWplUW40NnlEd0dmRnhRdkJSZXZaZWg0WEFibTdSN05MZVYzSUc5RzgyNlViSEEtb3RNNnlpUXZOYXd3N1E5bVZsUTRrcHROWXE0bldNZG5pWTNpd0lfOHRnZmRfdHhtbmFQRkp4ZV8weTRzYng5U09nUkNJQ3RqbmRaam9YZWxsUFdzS3ZCcDVZV2pqRmd0QU43MlJVSUdNUjEydlNLQw?oc=5) |
+| Setting up clash with AG, Levin names judge to probe Sde Teiman leak in her stead - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQU0tSZDNtQUo2N3QwM2JyLVRxSVdrYWZYRjc5MUFYeFl3UkhsM2lxMXNxaHI4QUUyQW1Ud01vOTgzUk8zNFVEd2hLR2tlVkladFF1d2hjbTZIdy1ULUstU0JxYzhtQ0EzcGQwdDgwdXdjcER3Y3dnclA5YVl3MFdydm9Nek5UZ3JmX2dHdjlXMzdYNDRlbmtMcC04MTNDNUJmNHFobzh1ZHVhZlVPR3VZV9IBtgFBVV95cUxPMkVndVpXMFE0QldaOHQ5VUhic3RqU2RCT294UWRuZTAwQzFjOFJ4ektLSk50YXJQckVEMXRuVUlZRG01NmhLdFdCVzJGTWhQd0RDT2V1R3lYZTR0TlVoRHhEZzQwUUgwZ3lEdjZxN2dsLW11a1IxV2pST2hoTU9vdGQ5SFg4VjRBLTl6RXpkVjg2VnhOT2ZQaU5IbFR4STFhSGh5TFhJVks1YVdJZTI1VGFGdjgzZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
