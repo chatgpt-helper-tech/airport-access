@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月04日 15:41:47（北京时间）**
+🕒 更新时间：**2025年11月04日 15:48:51（北京时间）**
 
 ---
 
@@ -10,12 +10,12 @@
 |--------|-------------|
 | Police investigating whether train attack suspect linked to stabbing of 14-year-old on Friday | [阅读全文](https://www.bbc.com/news/articles/c986n2q6qy0o?at_medium=RSS&at_campaign=rss) |
 | Worker dies after partial collapse of medieval tower in Rome | [阅读全文](https://www.bbc.com/news/articles/ce3kz7jxe0po?at_medium=RSS&at_campaign=rss) |
-| Online porn showing choking to be made illegal, government says | [阅读全文](https://www.bbc.com/news/articles/clyk3qzq7k7o?at_medium=RSS&at_campaign=rss) |
 | China academic intimidation claim referred to counter-terrorism police | [阅读全文](https://www.bbc.com/news/articles/cj0e1lyyvdlo?at_medium=RSS&at_campaign=rss) |
 | Rare footage reveals survival secrets of Africa’s top predators in new Attenborough documentary | [阅读全文](https://www.bbc.com/news/articles/cn51l324p7lo?at_medium=RSS&at_campaign=rss) |
+| More people using family help than Buy Now Pay Later loans - but even that can come at a cost | [阅读全文](https://www.bbc.com/news/articles/cze6822y135o?at_medium=RSS&at_campaign=rss) |
 | 'I've been using sick days to get fertility treatment' - calls for legal right to paid leave for IVF | [阅读全文](https://www.bbc.com/news/articles/ckgyk0w5n8go?at_medium=RSS&at_campaign=rss) |
 | Trump backs Cuomo for New York City mayor and threatens to cut funding if Mamdani wins | [阅读全文](https://www.bbc.com/news/articles/c231e284345o?at_medium=RSS&at_campaign=rss) |
-| More people using family help than Buy Now Pay Later Loans - but even that can come at a cost | [阅读全文](https://www.bbc.com/news/articles/cze6822y135o?at_medium=RSS&at_campaign=rss) |
+| Online porn showing choking to be made illegal, government says | [阅读全文](https://www.bbc.com/news/articles/clyk3qzq7k7o?at_medium=RSS&at_campaign=rss) |
 | We are ready to discuss human rights law changes, top ECHR boss tells BBC | [阅读全文](https://www.bbc.com/news/articles/cpd26yd2759o?at_medium=RSS&at_campaign=rss) |
 | William poses for selfies as he arrives in Rio for Earthshot Prize | [阅读全文](https://www.bbc.com/news/articles/clylxv52pdeo?at_medium=RSS&at_campaign=rss) |
 
