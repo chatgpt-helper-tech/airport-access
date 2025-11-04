@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月04日 13:48:27（北京时间）**
+🕒 更新时间：**2025年11月04日 13:56:40（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | Trump administration will provide half of usual funds to Snap recipients in November - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPLVR4aHE1UkVvczNoUXZNLW9jS29zWTJIb3daOFBPN0Y2cjFHazRhMWxmajNPWkNZeXpaMmJfWmU3NkRISjlOZHJXaGFYcmU0aV9hVXZOYXcwMFNVVVBfUVRzcUdBU1BxQnFmLU1TRmdLb29CbWFmR0wwSnZDZnN5d3JZc0x4Wl9hTk5Sb2hB?oc=5) |
 | Education Department sued over controversial loan forgiveness rule - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNQmZKM04xMUF4QjlPMTJnc3dZcE9ab0plRndxNzJrTnVqZ0sxSXFaM0NQTmZTLVdDT2ZIXzIwaThuSFQ0cmRsWVo2TTh6NGNnMm1KUHV5akRIcG1Jb2U0b0JkQWJTYmNRSGo0b3Vuem81Z3BRQmJRNEhBeFA2SmhNY2Znc0tQeEd6bm1mY1ZycDY3cDlmODd2c25aSnNGV3kxVmxPVVNmREhkaGtjbnJ3MkN3WW1fc28?oc=5) |
 | Trump saw a segment on Fox News. Within an hour, he was laser-focused on Christians’ treatment in Nigeria - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOSWxiUUs1SjRZWG1lN1lxOUpCYzFLdUJfNUd4WF8zTldFNmxJTExUTFJjUmk4cGFwUGlTM2h1LVVnc0dFb1BMSWs2WENTb0I3XzBZbklCMVJaWGh4N1BFVmlmUW9tUlVHRndTdUVEU3N1RFNxcFk5Mi1GQ0tWQVJvY1F3?oc=5) |
-| Anatomy of a news story: '60 Minutes' invites audience into the editing process with Trump interview - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNVEFhaWxlUFdudEw1SmM3SWg3NlVzVzBIWnVHX2xIODJabHAxRjFuTkpXQ3FtNnVrd18weDNMaVZ1eWFmSm4tT2lKTXN4YmRyV09ma1RJdTFOSWtMaENjVFZxRjRLdEhfNUFQTmJTWFZMMkVCYUVlaEdxSS1zQk9KYWZiRENCN3puc0dJYmRFMjVLZw?oc=5) |
 | Thune says extended shutdown means Senate needs to shift date on funding government - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOcVdmMzdTa1hnME5SRG1QcnhrTmdQNzdPRWxleVQ5NXpYV2djRHlQUlpySWZUNW1DN0lFU3cydDJZcnV3ZldtSVM0a1ptNzdUS1hKeHQ4S0pQQndtUFZ1U2ZaSkhrcFo0bXNwTGNabXVNNW43VGFTRi1NSURsXy10M0JJM3Q0OWZVSmMtZG1NQU9sUGYzdzFnaGxkZFhuSHJuaVNsLWlzb2pIUdIBrwFBVV95cUxOek9LYXBXRG1TX01jSEhZaTNaS0VOZVBtdExwX3J2aXVhekdEeVlEZk1YVV9VSFcyUEtHN1dWd0M5emdFQVJ1YkMzaXRaVjM2TTlyTzBXYU16R3h3ei1YcllULUdNUVBVRWhqTVU5Qjh1WUhQdVRLOVEwM1EtTFhUVzB4dU9EVXU4R212OERobWFGRnN1RzBwZWltZlBHMjhBU0Zqb3o5WDBnbXlObFZj?oc=5) |
+| Live Results: California 2025 election on Proposition 50 - PBS | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNMjd4R0JXQ2NneXR3dkxKdTUtU19ZRnNpckVhQjB4dGk4d0RIQW1HZFVPQ1VzbkRCRi1mZ0loMlhReUZoTGlHV2xmS1Z1Qm9sTl9PUWgyTGJlWUVrQlgwWTlPeUQtbkptOGszYkF3bkZUUlhUQUZRczZBNXhMQWJpQVI2d0Y5eHRKT1dBRU5Wd2hOblJ1U0dqeg?oc=5) |
 | NYC mayoral candidates make final push ahead of Election Day - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPWXExQi1mX3AwSjNMbXJRN21SWHRyTTdDWHMwcGlJd2FhWWhkQzUwT0FxR0ttejRkbzNhSU9PVkdLZEZnXzR5N0JmT05vWkIwYUl4NlhVam9HWlFBenlpTERlQ3dFQUV4cHZfenNnb3ZUbFhlLUJFOVdGUFZKZk5Qdlo2NjdaY2J0OEc4QzJlYXBTT2U5QUxDc3RnaDRRa281S19jNXRmUm4?oc=5) |
 | Orange County Mayor Demings makes bid for Florida governor official - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQekdGalB4S1ZVN3phVjVuWlJDOWRkaDRLQjZ6ME04RERpLXJ4Ylg5dFVOMjNueDZqTVRRc2RUeWF2VTd0aThLZE9Fak9lRHRCcTN1RjlocGVvTmNzaUFXMUp6aWFqYU1uckphQXlic2Yxb1VBbUtrLUZVYllacjVKSUNsYkRtX1hGRzE0T3pIclE2SjhhaFowZjRB?oc=5) |
 | Pakistan "will not be the first to resume nuclear tests," official says in response to Trump's 60 Minutes claim - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE84d0JSSjZPV2NwUWdCUGRsRDNBWWVxbjNrd1gzSHhMUDhMVDk1bkxrdVVXcjhzcWFzRGI1bV9JUjdBX0Z3a05hWHdjMEE2a1ZOdXpGRU45QjFUSHZxNWo5bExzb2dFTmFCeWJCeUY1RVl4eDNQOWV3N9IBfkFVX3lxTE9YMUdpaEEyWDA3SHFjQUpxcDZaNFhkRWhIdDlSeDhfT3psN1RTV0dQajZta2hpX0g2NmxwZUpkTlhJLTU1R0VkRTExM3U0bVQ4Zmt6MGdrbUJqV3FxR2dlUno4MjYzS25KdEtCWThBWHJGVGZSek9nUkVoaXdCZw?oc=5) |
-| A confidential manifesto lays out Isaacman's sweeping new vision for NASA - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPbjBsdXItaFNkUVpzMDkyX0I5NS0tS0x1bG1QbUttZ19BUWJFdkhGUG5qS2NjRW5VMVhnRTFpQmVJaTZaRzl6SGM2Z08yY0pZR2twLXVlVzZDUW1PTTZCRjNzZFhpRmpaMGJicm1rXzBDZUxBQ1AwOFhJLXVKbXJvM2NUYk8xZTktRGlMQmk3dExPR0FRdjJr?oc=5) |
+| Read: Trump transcript on crypto corruption claims that "60 Minutes" cut - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOdzRnYnNjOWx0NTdzRXJoeEFKc3NraHhscVkzT3ljOEM1bkdlOWRJbWpIVEQtcXlKamNyTzdkd3owT0tCbmJqUEkwMFVzRHZuUUFoNjNUSEVySTVXcGhreDRmY1FjUi0zNlh3a3I4SW1QWFBTSldMM1lxUXpRYm5CYzlqNjQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
