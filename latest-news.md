@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月04日 09:17:55（北京时间）**
+🕒 更新时间：**2025年11月04日 09:25:13（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | What the latest polls are showing in the Mamdani vs Cuomo NYC mayoral race - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQN2FJVzJQYUFPaWdzWU9EYXB5MS1qSEVNWmdPYmFaY29CcmlXLTZEZU8tTWdBNlhoT1ZKOWR6bTJGZFNjN0szNzdoMnc3TWF5akdiY2h0SzYzTDZXNS1KTW1YVmFxaEk2ZGIwbTJJNXh1OG4yLXhPek1IVnFGVktvX19LanVtREcxQUFKM2djOVVHQnV0eUVsT2dNMktzZnVGZzNzOVMwVU1hMVJlOHZxX3VQbF9pd9IBuwFBVV95cUxNZE41ZjNnN2R0OEY4THAwSHNUa29Kd2hocFRJZmhXWXRwVnV4ZktPeUdPSWwzbUpub0FPcUhsZ2NzMWkyTkMyOEsxRExKNEFyVEc5aU5EUUktVmVCXzV5ai1jM2JwZklZdE4wbXEtd1FHWnlxOFFvNkZGTzRuODFwMTkycFBaNU5HSmdabzFhSTdpUDhiSGZ6bV93RzNZaDAtM3gwcXlObVlpRElxN3dqMVdyakc1QlJ0Z3kw?oc=5) |
 | Pakistan "will not be the first to resume nuclear tests," official says in response to Trump's 60 Minutes claim - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE84d0JSSjZPV2NwUWdCUGRsRDNBWWVxbjNrd1gzSHhMUDhMVDk1bkxrdVVXcjhzcWFzRGI1bV9JUjdBX0Z3a05hWHdjMEE2a1ZOdXpGRU45QjFUSHZxNWo5bExzb2dFTmFCeWJCeUY1RVl4eDNQOWV3N9IBfkFVX3lxTE9YMUdpaEEyWDA3SHFjQUpxcDZaNFhkRWhIdDlSeDhfT3psN1RTV0dQajZta2hpX0g2NmxwZUpkTlhJLTU1R0VkRTExM3U0bVQ4Zmt6MGdrbUJqV3FxR2dlUno4MjYzS25KdEtCWThBWHJGVGZSek9nUkVoaXdCZw?oc=5) |
 | Two men accused of plotting terror attacks at LGBTQ+ bars in the Detroit area - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPS3pMM3cwZU1sMnZPMVdCRGFxRmhSMzZBMm5qYWhvT3RQX2NnSmdycmNBVnB6YlVkVlRRSXpZX2JIYUs5YzVrNUp0VUd0Q21mUG5lbTBENmxFak9JTHpDaW0wc0w3RVN6RWpZUTRUenNBcXFzaDJRSlF3ZVI3eWJIdWhwMm9Ndk1NV3dDUzk4cHBOUQ?oc=5) |
-| ‘The votes aren’t there’ to kill filibuster, Thune says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiugFBVV95cUxOdUZtYWNrNkdqYmxjbnNsdnBqek9KeHRDdnRZd05EbUoySlVEVFo3NWdOQ0ZqZ2NGSjlEYlJWN3BhVk5pakEweHNWM0RnN2dBV0EwWHR4MHk5WnhlVmZNYkhVZnk5N3ZPcldhaXYwRnRuMEZoalRiYTUxS2FvX2o4ZWZkNU0zbncwZXVSNkg3Y2JUd3dFZXdiemMyRmFxTnBiZC1ZZ3VLSkpyNVZ2cXRXOVVqbFdnZTF5T1E?oc=5) |
+| A confidential manifesto lays out Isaacman's sweeping new vision for NASA - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPbjBsdXItaFNkUVpzMDkyX0I5NS0tS0x1bG1QbUttZ19BUWJFdkhGUG5qS2NjRW5VMVhnRTFpQmVJaTZaRzl6SGM2Z08yY0pZR2twLXVlVzZDUW1PTTZCRjNzZFhpRmpaMGJicm1rXzBDZUxBQ1AwOFhJLXVKbXJvM2NUYk8xZTktRGlMQmk3dExPR0FRdjJr?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
