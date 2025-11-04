@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月04日 17:56:50（北京时间）**
+🕒 更新时间：**2025年11月04日 18:00:33（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Thune says extended shutdown means Senate needs to shift date on funding government - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOcVdmMzdTa1hnME5SRG1QcnhrTmdQNzdPRWxleVQ5NXpYV2djRHlQUlpySWZUNW1DN0lFU3cydDJZcnV3ZldtSVM0a1ptNzdUS1hKeHQ4S0pQQndtUFZ1U2ZaSkhrcFo0bXNwTGNabXVNNW43VGFTRi1NSURsXy10M0JJM3Q0OWZVSmMtZG1NQU9sUGYzdzFnaGxkZFhuSHJuaVNsLWlzb2pIUQ?oc=5) |
 | NYC mayoral candidates make final push ahead of Election Day - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPWXExQi1mX3AwSjNMbXJRN21SWHRyTTdDWHMwcGlJd2FhWWhkQzUwT0FxR0ttejRkbzNhSU9PVkdLZEZnXzR5N0JmT05vWkIwYUl4NlhVam9HWlFBenlpTERlQ3dFQUV4cHZfenNnb3ZUbFhlLUJFOVdGUFZKZk5Qdlo2NjdaY2J0OEc4QzJlYXBTT2U5QUxDc3RnaDRRa281S19jNXRmUm4?oc=5) |
 | US nuclear weapons testing can forever scar a nation. Just ask the Marshall Islands - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPSTlRb3dXTnBnTlZ6MXNIVUJNb1Vqc1hvdTRZOGpaVnBMQ3hmLWl4c2FGX2pWNjZreTFqRXFKNmR2WUZweTdlck53MFpNMXk1dnk5YnQ5SHkzU21uTzRPdGc3aW0wZEFyX05vLWdBdjIxRmxIVVN0elpxSXFjNjVITHlaT2dCZC13Uko4Yy1aRU5aZw?oc=5) |
-| Reaganomics in Jersey: Jack Ciattarelli has a supply-side dream if he’s elected governor this week - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxObURWQm9PM2N6bUxYY2ppTk5rVlhtVkQ5SHNTUjQ0a0ZrQmdBVTVHbTNEcUpzRW80X0NuemVYdWQzSHdWTDFyZ2Z1WWJaZHRrMy1NeUJ3T3p0dnRHQUpZbFJEM013d0tNSDZpNWZGNGQta21rQzJleDY1aklNckQwNU82dFpFRi1xdUs3NXU5b09hbUFMbjZRSWJKaEh2Ykk5cmJpMk9GQXZ3VHlLRjVhMFk4eS14WW9jZE1Ca3hIbG5EbHB4UTRIVnZJMU9JcU9NZmpyTUJWQm1PR2FTMmhB?oc=5) |
-| What the Virginia Governor Election Might Portend for Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNVDFlTHhKdExEMmJIUlRNQ0kwbmdfYkxmUl9xcGtBcTdpLVQ3TUtWNm1UMVliSFlYT3UxMXFtYlF4TGYzZkVOZzcyRnlkTjhhZU9jbERhb3EyVDNNRHZsbkMxOThZVWEtbE1Ha200T3ktXzI0ZElLVFZUczlHYWh6Sw?oc=5) |
+| Mayor of Orange County Will Run for Florida Governor as a Democrat - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOVU9VZ3RoUVUxTDgybVhiaTBqWFRhc21GMFltNmp0MmRTaGM3U3F3NHZTU2JuTUN3OFQzVjhwMTRwWGp0bkotYnhidVVMd3FSdmxIVHFqZW5kcEZqeXA0dWtqc1EwdWE3ektlN0pxNTdJVHJkUXZFbjZGNjZVQTlYTmlRcUFSaktC?oc=5) |
+| Trump’s policies and inflation drive governor’s race in New Jersey, where GOP has been making gains - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOaTNtaEpvdTM1cWplUW40NnlEd0dmRnhRdkJSZXZaZWg0WEFibTdSN05MZVYzSUc5RzgyNlViSEEtb3RNNnlpUXZOYXd3N1E5bVZsUTRrcHROWXE0bldNZG5pWTNpd0lfOHRnZmRfdHhtbmFQRkp4ZV8weTRzYng5U09nUkNJQ3RqbmRaam9YZWxsUFdzS3ZCcDVZV2pqRmd0QU43MlJVSUdNUjEydlNLQw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。

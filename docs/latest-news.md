@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月04日 17:56:50（北京时间）**
+🕒 更新时间：**2025年11月04日 18:00:34（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | NYC mayoral candidates make final push ahead of Election Day - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPWXExQi1mX3AwSjNMbXJRN21SWHRyTTdDWHMwcGlJd2FhWWhkQzUwT0FxR0ttejRkbzNhSU9PVkdLZEZnXzR5N0JmT05vWkIwYUl4NlhVam9HWlFBenlpTERlQ3dFQUV4cHZfenNnb3ZUbFhlLUJFOVdGUFZKZk5Qdlo2NjdaY2J0OEc4QzJlYXBTT2U5QUxDc3RnaDRRa281S19jNXRmUm4?oc=5) |
 | US nuclear weapons testing can forever scar a nation. Just ask the Marshall Islands - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPSTlRb3dXTnBnTlZ6MXNIVUJNb1Vqc1hvdTRZOGpaVnBMQ3hmLWl4c2FGX2pWNjZreTFqRXFKNmR2WUZweTdlck53MFpNMXk1dnk5YnQ5SHkzU21uTzRPdGc3aW0wZEFyX05vLWdBdjIxRmxIVVN0elpxSXFjNjVITHlaT2dCZC13Uko4Yy1aRU5aZw?oc=5) |
 | Reaganomics in Jersey: Jack Ciattarelli has a supply-side dream if he’s elected governor this week - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi3wFBVV95cUxObURWQm9PM2N6bUxYY2ppTk5rVlhtVkQ5SHNTUjQ0a0ZrQmdBVTVHbTNEcUpzRW80X0NuemVYdWQzSHdWTDFyZ2Z1WWJaZHRrMy1NeUJ3T3p0dnRHQUpZbFJEM013d0tNSDZpNWZGNGQta21rQzJleDY1aklNckQwNU82dFpFRi1xdUs3NXU5b09hbUFMbjZRSWJKaEh2Ykk5cmJpMk9GQXZ3VHlLRjVhMFk4eS14WW9jZE1Ca3hIbG5EbHB4UTRIVnZJMU9JcU9NZmpyTUJWQm1PR2FTMmhB?oc=5) |
-| What the Virginia Governor Election Might Portend for Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNVDFlTHhKdExEMmJIUlRNQ0kwbmdfYkxmUl9xcGtBcTdpLVQ3TUtWNm1UMVliSFlYT3UxMXFtYlF4TGYzZkVOZzcyRnlkTjhhZU9jbERhb3EyVDNNRHZsbkMxOThZVWEtbE1Ha200T3ktXzI0ZElLVFZUczlHYWh6Sw?oc=5) |
+| Virginia governor’s race will test Trump and Democrats nationally — and make history - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNN1cxM0RYeWdHN2NtSWc3NmctOTNIQmM1UDRLemtYclJvejFnVW5HMWZfU25KNm5mWkRqcV85d1RDUDZjWUhCNVAzT2VHTGNWeTVtd0FiMVV5eDdFNnhDalhyRVFSMmY2bTBCQTF2N2w3bkJGMzNOcVZ0ZjBwSTMxY3ZSalQwLS0xOTVWdUlxY0ZjV3d3NUNYRVEzRXdBeW1uWkxraS1TMnJiVEZoTExjckRR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
