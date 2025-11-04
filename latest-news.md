@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月04日 12:17:15（北京时间）**
+🕒 更新时间：**2025年11月04日 12:25:08（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump Administration Live Updates: White House Says It Will Make Only Partial SNAP Payments This Month - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTFBDN01jdUhYMWRXd3IzOG84TlJySUZUMVoxYk5Mal9pcC1RNnNpRXItYmlrY1VaMFQ2UkN5ekJqcDVVTTdDdnR0bk1fY0N0MGpBLXhPR1prVVc0b3I4WnRoRXd5cw?oc=5) |
-| Trump threatens to cut funds if ‘communist’ Mamdani wins mayoral election - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQT0FWS05tSGNTOWdvTUthZldGTTNKSXJsUS1wTkNnTW5vY1lfZTJjTWRYSW9hcWV0b1M4Ml9XVUdsTWdGQjZOX2lMd3ZTeTBiWFdWb0s2SWRzRXhnVEFHWDZCTzN3OHY5RTY5OTZtUkhQQmMwSFBjTGtmMWM3eWEwUC01X0FVRTVXemh6dzdlT1JFcHltcEE?oc=5) |
+| Trump Endorses Cuomo for NYC Mayor and Attacks Mamdani Before Election - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNal8wSDFjcEo1dWtJSFhrdGp6YU9hSE5wMU1jNERMQTN3NW9Cb3BvbFRVcl9oMm5RY1A4OEtyVlFRa3l2bEhYNGVXN0JxNERVZXRXb2xNVzJQOWdoNFZRRTRhYlV6SDdwOW1pdGFaWGdZRFNFMWN4ZXNSNF9fSXJJZTZXRVY?oc=5) |
+| Trump administration will provide half of usual funds to Snap recipients in November - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPLVR4aHE1UkVvczNoUXZNLW9jS29zWTJIb3daOFBPN0Y2cjFHazRhMWxmajNPWkNZeXpaMmJfWmU3NkRISjlOZHJXaGFYcmU0aV9hVXZOYXcwMFNVVVBfUVRzcUdBU1BxQnFmLU1TRmdLb29CbWFmR0wwSnZDZnN5d3JZc0x4Wl9hTk5Sb2hB?oc=5) |
 | Supreme Court cannot stop all of Trump's tariffs. Deal with it, officials say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNYy1FWTdtMm13Wjlqa0VXZnlONHdobjlzcG5nUVhMMkhqVndVZENUdDIweE1CZDh1RHFFb0lXU2RLYVZzRXExdVVSMklNNTY2T0JsUFRQNEVfQ2dVWjB2UG9BUmwxSVM3bE0tXzhjVjdHUUhyMWpTTGdvc0dRcUt5anNyUWgyc1REdXp5MWU3eERIcUZ5bGVTX2hMbWRvYTdvTGFQTzJzSVdsY0V6WjdKdTU0SQ?oc=5) |
 | Trump saw a segment on Fox News. Within an hour, he was laser-focused on Christians’ treatment in Nigeria - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOSWxiUUs1SjRZWG1lN1lxOUpCYzFLdUJfNUd4WF8zTldFNmxJTExUTFJjUmk4cGFwUGlTM2h1LVVnc0dFb1BMSWs2WENTb0I3XzBZbklCMVJaWGh4N1BFVmlmUW9tUlVHRndTdUVEU3N1RFNxcFk5Mi1GQ0tWQVJvY1F3?oc=5) |
 | Education Department sued over controversial loan forgiveness rule - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNQmZKM04xMUF4QjlPMTJnc3dZcE9ab0plRndxNzJrTnVqZ0sxSXFaM0NQTmZTLVdDT2ZIXzIwaThuSFQ0cmRsWVo2TTh6NGNnMm1KUHV5akRIcG1Jb2U0b0JkQWJTYmNRSGo0b3Vuem81Z3BRQmJRNEhBeFA2SmhNY2Znc0tQeEd6bm1mY1ZycDY3cDlmODd2c25aSnNGV3kxVmxPVVNmREhkaGtjbnJ3MkN3WW1fc28?oc=5) |
 | Thune says extended shutdown means Senate needs to shift date on funding government - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOcVdmMzdTa1hnME5SRG1QcnhrTmdQNzdPRWxleVQ5NXpYV2djRHlQUlpySWZUNW1DN0lFU3cydDJZcnV3ZldtSVM0a1ptNzdUS1hKeHQ4S0pQQndtUFZ1U2ZaSkhrcFo0bXNwTGNabXVNNW43VGFTRi1NSURsXy10M0JJM3Q0OWZVSmMtZG1NQU9sUGYzdzFnaGxkZFhuSHJuaVNsLWlzb2pIUdIBrwFBVV95cUxOek9LYXBXRG1TX01jSEhZaTNaS0VOZVBtdExwX3J2aXVhekdEeVlEZk1YVV9VSFcyUEtHN1dWd0M5emdFQVJ1YkMzaXRaVjM2TTlyTzBXYU16R3h3ei1YcllULUdNUVBVRWhqTVU5Qjh1WUhQdVRLOVEwM1EtTFhUVzB4dU9EVXU4R212OERobWFGRnN1RzBwZWltZlBHMjhBU0Zqb3o5WDBnbXlObFZj?oc=5) |
 | NYC mayoral candidates make final push ahead of Election Day - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPWXExQi1mX3AwSjNMbXJRN21SWHRyTTdDWHMwcGlJd2FhWWhkQzUwT0FxR0ttejRkbzNhSU9PVkdLZEZnXzR5N0JmT05vWkIwYUl4NlhVam9HWlFBenlpTERlQ3dFQUV4cHZfenNnb3ZUbFhlLUJFOVdGUFZKZk5Qdlo2NjdaY2J0OEc4QzJlYXBTT2U5QUxDc3RnaDRRa281S19jNXRmUm4?oc=5) |
 | Pakistan "will not be the first to resume nuclear tests," official says in response to Trump's 60 Minutes claim - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE84d0JSSjZPV2NwUWdCUGRsRDNBWWVxbjNrd1gzSHhMUDhMVDk1bkxrdVVXcjhzcWFzRGI1bV9JUjdBX0Z3a05hWHdjMEE2a1ZOdXpGRU45QjFUSHZxNWo5bExzb2dFTmFCeWJCeUY1RVl4eDNQOWV3N9IBfkFVX3lxTE9YMUdpaEEyWDA3SHFjQUpxcDZaNFhkRWhIdDlSeDhfT3psN1RTV0dQajZta2hpX0g2NmxwZUpkTlhJLTU1R0VkRTExM3U0bVQ4Zmt6MGdrbUJqV3FxR2dlUno4MjYzS25KdEtCWThBWHJGVGZSek9nUkVoaXdCZw?oc=5) |
-| A confidential manifesto lays out Isaacman's sweeping new vision for NASA - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPbjBsdXItaFNkUVpzMDkyX0I5NS0tS0x1bG1QbUttZ19BUWJFdkhGUG5qS2NjRW5VMVhnRTFpQmVJaTZaRzl6SGM2Z08yY0pZR2twLXVlVzZDUW1PTTZCRjNzZFhpRmpaMGJicm1rXzBDZUxBQ1AwOFhJLXVKbXJvM2NUYk8xZTktRGlMQmk3dExPR0FRdjJr?oc=5) |
 | Trump’s ‘60 Minutes’ interview: Fact-checking his statements on nuclear weapons, Mamdani, ICE - PolitiFact | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPOXBKUjZwUVRPc011WjNibHhXeG5YVEhTQTFMR2Q3UFNEV1Y0VWlHcjVGaGIzc0doSWZhbUFKb0w1MEE3UXpqVTN6YlQtYjMwSmNQNzRCNENVMlRjT20xZTYzSGNVM0F2S21CbTVEYlB4TU1PZl9tNkxyLXk1VnE0c3JvZE4xR0NYMTk0Zy1tTnM3MWZsTXVhck51RDdYQQ?oc=5) |
+| A confidential manifesto lays out Isaacman's sweeping new vision for NASA - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPbjBsdXItaFNkUVpzMDkyX0I5NS0tS0x1bG1QbUttZ19BUWJFdkhGUG5qS2NjRW5VMVhnRTFpQmVJaTZaRzl6SGM2Z08yY0pZR2twLXVlVzZDUW1PTTZCRjNzZFhpRmpaMGJicm1rXzBDZUxBQ1AwOFhJLXVKbXJvM2NUYk8xZTktRGlMQmk3dExPR0FRdjJr?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
