@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月04日 12:48:07（北京时间）**
+🕒 更新时间：**2025年11月04日 12:57:09（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | NYC mayoral candidates make final push ahead of Election Day - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPWXExQi1mX3AwSjNMbXJRN21SWHRyTTdDWHMwcGlJd2FhWWhkQzUwT0FxR0ttejRkbzNhSU9PVkdLZEZnXzR5N0JmT05vWkIwYUl4NlhVam9HWlFBenlpTERlQ3dFQUV4cHZfenNnb3ZUbFhlLUJFOVdGUFZKZk5Qdlo2NjdaY2J0OEc4QzJlYXBTT2U5QUxDc3RnaDRRa281S19jNXRmUm4?oc=5) |
 | Pakistan "will not be the first to resume nuclear tests," official says in response to Trump's 60 Minutes claim - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE84d0JSSjZPV2NwUWdCUGRsRDNBWWVxbjNrd1gzSHhMUDhMVDk1bkxrdVVXcjhzcWFzRGI1bV9JUjdBX0Z3a05hWHdjMEE2a1ZOdXpGRU45QjFUSHZxNWo5bExzb2dFTmFCeWJCeUY1RVl4eDNQOWV3N9IBfkFVX3lxTE9YMUdpaEEyWDA3SHFjQUpxcDZaNFhkRWhIdDlSeDhfT3psN1RTV0dQajZta2hpX0g2NmxwZUpkTlhJLTU1R0VkRTExM3U0bVQ4Zmt6MGdrbUJqV3FxR2dlUno4MjYzS25KdEtCWThBWHJGVGZSek9nUkVoaXdCZw?oc=5) |
 | A confidential manifesto lays out Isaacman's sweeping new vision for NASA - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPbjBsdXItaFNkUVpzMDkyX0I5NS0tS0x1bG1QbUttZ19BUWJFdkhGUG5qS2NjRW5VMVhnRTFpQmVJaTZaRzl6SGM2Z08yY0pZR2twLXVlVzZDUW1PTTZCRjNzZFhpRmpaMGJicm1rXzBDZUxBQ1AwOFhJLXVKbXJvM2NUYk8xZTktRGlMQmk3dExPR0FRdjJr?oc=5) |
-| An Altercation With ICE Prompts a Police Chief to Push Back - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPQ2RJTXBhOEN4YnVjdlhMZzBlZXpUSzkwSDBNd2FxLTRsTjZRUVRpaUdNYUNERFYySUxnQ3lFZl83dHRNOGJBcElIbXRXNXljdW5GS0tFVmpsaGZUbmRzT2t6elRRQ0ZHeWdjd05aSUVpUWt1OFRFbmRLN2Q4bWctcEhEekJNZnZWMXc?oc=5) |
+| An altercation with ICE prompts a police chief to push back - The Seattle Times | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQeWNrSllpNUY0UFdNX2ptNm9rdWQ3c1FFYW05MnRUeVpEVEM5Vmtjd2FhT3h0NUR5RFhLZ29tS3hBZEFFMy1TTkNXTVdnRGZNTlFOVENEX1lBdklMOV9kc241Z2l3NHpLNHpKR0VtWDR6SDE5bDJQLXRHLXF0MUNvU1lSSGRXUklxTGRHWkc2MERUZXppWloyblNIeHNhQ1oxR2ZWd2JQa0VFZlFWV2c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
