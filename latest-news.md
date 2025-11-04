@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月04日 15:57:08（北京时间）**
+🕒 更新时间：**2025年11月04日 16:00:32（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump administration says it is paying out half of November’s SNAP benefits - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNY1RXSmh2c3pLaHo5VFNGWFB2cFZqSjFaRkxWcVk4WW12ejBiSWFPYmFrc2NERHhWQnJuQUFxMUFxTm9mdEZCM3lsTDNqZnZYLTRGRTM5eGF5RmRzcVdTbGhhOURDOHNhWXBpcXBZeTV6SFNQMDNaTVd0QW5tY1RUeWpCU1cxWExVSnlCdUlLdw?oc=5) |
+| Trump Administration Live Updates: White House Says It Will Make Only Partial SNAP Payments This Month - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTFBDN01jdUhYMWRXd3IzOG84TlJySUZUMVoxYk5Mal9pcC1RNnNpRXItYmlrY1VaMFQ2UkN5ekJqcDVVTTdDdnR0bk1fY0N0MGpBLXhPR1prVVc0b3I4WnRoRXd5cw?oc=5) |
 | Trump threatens to cut funds if ‘communist’ Mamdani wins mayoral election - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQT0FWS05tSGNTOWdvTUthZldGTTNKSXJsUS1wTkNnTW5vY1lfZTJjTWRYSW9hcWV0b1M4Ml9XVUdsTWdGQjZOX2lMd3ZTeTBiWFdWb0s2SWRzRXhnVEFHWDZCTzN3OHY5RTY5OTZtUkhQQmMwSFBjTGtmMWM3eWEwUC01X0FVRTVXemh6dzdlT1JFcHltcEE?oc=5) |
-| Education Department sued over new student loan forgiveness rule - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNbktBM01NVTlSQ3BhZmJVbXIxaVB3RFZ3S2hSemQ4ajg2MFdDLXZvWGJKRnVHemJwYldXa0RhZE1EcEp2c1hiUUNTUEZiV2ZYdGxSZ1JSOHh5aHdtNDJOc01Oa3ZXaG1XSWdFbmUya0hqR2pIOWJBcUJZd2o3X0lQcHJ2YXNqZklrR29FUmZGRWI?oc=5) |
 | Trump saw a segment on Fox News. Within an hour, he was laser-focused on Christians’ treatment in Nigeria - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOSWxiUUs1SjRZWG1lN1lxOUpCYzFLdUJfNUd4WF8zTldFNmxJTExUTFJjUmk4cGFwUGlTM2h1LVVnc0dFb1BMSWs2WENTb0I3XzBZbklCMVJaWGh4N1BFVmlmUW9tUlVHRndTdUVEU3N1RFNxcFk5Mi1GQ0tWQVJvY1F3?oc=5) |
+| Education Department sued over new student loan forgiveness rule - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNbktBM01NVTlSQ3BhZmJVbXIxaVB3RFZ3S2hSemQ4ajg2MFdDLXZvWGJKRnVHemJwYldXa0RhZE1EcEp2c1hiUUNTUEZiV2ZYdGxSZ1JSOHh5aHdtNDJOc01Oa3ZXaG1XSWdFbmUya0hqR2pIOWJBcUJZd2o3X0lQcHJ2YXNqZklrR29FUmZGRWI?oc=5) |
 | Live Results: California 2025 election on Proposition 50 - PBS | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNMjd4R0JXQ2NneXR3dkxKdTUtU19ZRnNpckVhQjB4dGk4d0RIQW1HZFVPQ1VzbkRCRi1mZ0loMlhReUZoTGlHV2xmS1Z1Qm9sTl9PUWgyTGJlWUVrQlgwWTlPeUQtbkptOGszYkF3bkZUUlhUQUZRczZBNXhMQWJpQVI2d0Y5eHRKT1dBRU5Wd2hOblJ1U0dqeg?oc=5) |
 | Thune says extended shutdown means Senate needs to shift date on funding government - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOcVdmMzdTa1hnME5SRG1QcnhrTmdQNzdPRWxleVQ5NXpYV2djRHlQUlpySWZUNW1DN0lFU3cydDJZcnV3ZldtSVM0a1ptNzdUS1hKeHQ4S0pQQndtUFZ1U2ZaSkhrcFo0bXNwTGNabXVNNW43VGFTRi1NSURsXy10M0JJM3Q0OWZVSmMtZG1NQU9sUGYzdzFnaGxkZFhuSHJuaVNsLWlzb2pIUdIBrwFBVV95cUxOek9LYXBXRG1TX01jSEhZaTNaS0VOZVBtdExwX3J2aXVhekdEeVlEZk1YVV9VSFcyUEtHN1dWd0M5emdFQVJ1YkMzaXRaVjM2TTlyTzBXYU16R3h3ei1YcllULUdNUVBVRWhqTVU5Qjh1WUhQdVRLOVEwM1EtTFhUVzB4dU9EVXU4R212OERobWFGRnN1RzBwZWltZlBHMjhBU0Zqb3o5WDBnbXlObFZj?oc=5) |
 | NYC mayoral candidates make final push ahead of Election Day - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPWXExQi1mX3AwSjNMbXJRN21SWHRyTTdDWHMwcGlJd2FhWWhkQzUwT0FxR0ttejRkbzNhSU9PVkdLZEZnXzR5N0JmT05vWkIwYUl4NlhVam9HWlFBenlpTERlQ3dFQUV4cHZfenNnb3ZUbFhlLUJFOVdGUFZKZk5Qdlo2NjdaY2J0OEc4QzJlYXBTT2U5QUxDc3RnaDRRa281S19jNXRmUm4?oc=5) |
