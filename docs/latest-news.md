@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月04日 15:24:11（北京时间）**
+🕒 更新时间：**2025年11月04日 15:32:41（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | NYC mayoral candidates make final push ahead of Election Day - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPWXExQi1mX3AwSjNMbXJRN21SWHRyTTdDWHMwcGlJd2FhWWhkQzUwT0FxR0ttejRkbzNhSU9PVkdLZEZnXzR5N0JmT05vWkIwYUl4NlhVam9HWlFBenlpTERlQ3dFQUV4cHZfenNnb3ZUbFhlLUJFOVdGUFZKZk5Qdlo2NjdaY2J0OEc4QzJlYXBTT2U5QUxDc3RnaDRRa281S19jNXRmUm4?oc=5) |
 | Orange County Mayor Demings makes bid for Florida governor official - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQekdGalB4S1ZVN3phVjVuWlJDOWRkaDRLQjZ6ME04RERpLXJ4Ylg5dFVOMjNueDZqTVRRc2RUeWF2VTd0aThLZE9Fak9lRHRCcTN1RjlocGVvTmNzaUFXMUp6aWFqYU1uckphQXlic2Yxb1VBbUtrLUZVYllacjVKSUNsYkRtX1hGRzE0T3pIclE2SjhhaFowZjRB?oc=5) |
 | Pakistan "will not be the first to resume nuclear tests," official says in response to Trump's 60 Minutes claim - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE84d0JSSjZPV2NwUWdCUGRsRDNBWWVxbjNrd1gzSHhMUDhMVDk1bkxrdVVXcjhzcWFzRGI1bV9JUjdBX0Z3a05hWHdjMEE2a1ZOdXpGRU45QjFUSHZxNWo5bExzb2dFTmFCeWJCeUY1RVl4eDNQOWV3N9IBfkFVX3lxTE9YMUdpaEEyWDA3SHFjQUpxcDZaNFhkRWhIdDlSeDhfT3psN1RTV0dQajZta2hpX0g2NmxwZUpkTlhJLTU1R0VkRTExM3U0bVQ4Zmt6MGdrbUJqV3FxR2dlUno4MjYzS25KdEtCWThBWHJGVGZSek9nUkVoaXdCZw?oc=5) |
-| Supreme Court cannot stop all of Trump's tariffs. Deal with it, officials say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNYy1FWTdtMm13Wjlqa0VXZnlONHdobjlzcG5nUVhMMkhqVndVZENUdDIweE1CZDh1RHFFb0lXU2RLYVZzRXExdVVSMklNNTY2T0JsUFRQNEVfQ2dVWjB2UG9BUmwxSVM3bE0tXzhjVjdHUUhyMWpTTGdvc0dRcUt5anNyUWgyc1REdXp5MWU3eERIcUZ5bGVTX2hMbWRvYTdvTGFQTzJzSVdsY0V6WjdKdTU0SQ?oc=5) |
+| Violent threats, once concentrated in Washington, are increasing against local public servants, new data shows - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOUlIySnFZbGpwazJwekZhSlJjTXlfTHN6bGhtS0dXaWZMSXNONWl2T2tzYVE1VjRwdmVNR3drSktRV3MzR1lUbHNUbENYLUw1RThJZDlHUUh0R3JVNDBzWVdBektlQjRrT2lXUTE3ek1ZdjhrdzRkOThUTWUxVFQtUUxfcVVSRElNbEUyN1lianJjSTVrUnFsbUdubk94MjQ5YU1F0gGoAUFVX3lxTFA5VXdwWlVnX2FDYVFIYTI3Uy1id09nWnVPVXJ2RXR5X19va3UxQ1EtaEJ3cDk0VmxHNWNwR2Rxb0xZNXNqSWVSU0NuUjJSRW9xcjZMZjhXWlZpbUthbW9EUElMV25jb2Z6Q2xfXzR4TGxSNS0tUEE1Z1cxZkI4dXV0RVVKMXZDQVBUajBsQWVYQ09LWGpiSEpIN1RCVkZqbGJPQ2dyLTFPMQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
