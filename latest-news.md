@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月04日 14:10:02（北京时间）**
+🕒 更新时间：**2025年11月04日 14:16:14（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump Endorses Cuomo for NYC Mayor and Attacks Mamdani Before Election - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNal8wSDFjcEo1dWtJSFhrdGp6YU9hSE5wMU1jNERMQTN3NW9Cb3BvbFRVcl9oMm5RY1A4OEtyVlFRa3l2bEhYNGVXN0JxNERVZXRXb2xNVzJQOWdoNFZRRTRhYlV6SDdwOW1pdGFaWGdZRFNFMWN4ZXNSNF9fSXJJZTZXRVY?oc=5) |
-| Trump administration will provide half of usual funds to Snap recipients in November - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPLVR4aHE1UkVvczNoUXZNLW9jS29zWTJIb3daOFBPN0Y2cjFHazRhMWxmajNPWkNZeXpaMmJfWmU3NkRISjlOZHJXaGFYcmU0aV9hVXZOYXcwMFNVVVBfUVRzcUdBU1BxQnFmLU1TRmdLb29CbWFmR0wwSnZDZnN5d3JZc0x4Wl9hTk5Sb2hB?oc=5) |
+| Trump administration says it is paying out half of November’s SNAP benefits - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNY1RXSmh2c3pLaHo5VFNGWFB2cFZqSjFaRkxWcVk4WW12ejBiSWFPYmFrc2NERHhWQnJuQUFxMUFxTm9mdEZCM3lsTDNqZnZYLTRGRTM5eGF5RmRzcVdTbGhhOURDOHNhWXBpcXBZeTV6SFNQMDNaTVd0QW5tY1RUeWpCU1cxWExVSnlCdUlLdw?oc=5) |
 | Education Department sued over controversial loan forgiveness rule - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNQmZKM04xMUF4QjlPMTJnc3dZcE9ab0plRndxNzJrTnVqZ0sxSXFaM0NQTmZTLVdDT2ZIXzIwaThuSFQ0cmRsWVo2TTh6NGNnMm1KUHV5akRIcG1Jb2U0b0JkQWJTYmNRSGo0b3Vuem81Z3BRQmJRNEhBeFA2SmhNY2Znc0tQeEd6bm1mY1ZycDY3cDlmODd2c25aSnNGV3kxVmxPVVNmREhkaGtjbnJ3MkN3WW1fc28?oc=5) |
 | Trump saw a segment on Fox News. Within an hour, he was laser-focused on Christians’ treatment in Nigeria - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOSWxiUUs1SjRZWG1lN1lxOUpCYzFLdUJfNUd4WF8zTldFNmxJTExUTFJjUmk4cGFwUGlTM2h1LVVnc0dFb1BMSWs2WENTb0I3XzBZbklCMVJaWGh4N1BFVmlmUW9tUlVHRndTdUVEU3N1RFNxcFk5Mi1GQ0tWQVJvY1F3?oc=5) |
 | Live Results: California 2025 election on Proposition 50 - PBS | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNMjd4R0JXQ2NneXR3dkxKdTUtU19ZRnNpckVhQjB4dGk4d0RIQW1HZFVPQ1VzbkRCRi1mZ0loMlhReUZoTGlHV2xmS1Z1Qm9sTl9PUWgyTGJlWUVrQlgwWTlPeUQtbkptOGszYkF3bkZUUlhUQUZRczZBNXhMQWJpQVI2d0Y5eHRKT1dBRU5Wd2hOblJ1U0dqeg?oc=5) |
