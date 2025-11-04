@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月04日 15:48:51（北京时间）**
+🕒 更新时间：**2025年11月04日 15:57:08（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump Administration Live Updates: White House Says It Will Make Only Partial SNAP Payments This Month - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTFBDN01jdUhYMWRXd3IzOG84TlJySUZUMVoxYk5Mal9pcC1RNnNpRXItYmlrY1VaMFQ2UkN5ekJqcDVVTTdDdnR0bk1fY0N0MGpBLXhPR1prVVc0b3I4WnRoRXd5cw?oc=5) |
+| Trump administration says it is paying out half of November’s SNAP benefits - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNY1RXSmh2c3pLaHo5VFNGWFB2cFZqSjFaRkxWcVk4WW12ejBiSWFPYmFrc2NERHhWQnJuQUFxMUFxTm9mdEZCM3lsTDNqZnZYLTRGRTM5eGF5RmRzcVdTbGhhOURDOHNhWXBpcXBZeTV6SFNQMDNaTVd0QW5tY1RUeWpCU1cxWExVSnlCdUlLdw?oc=5) |
 | Trump threatens to cut funds if ‘communist’ Mamdani wins mayoral election - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQT0FWS05tSGNTOWdvTUthZldGTTNKSXJsUS1wTkNnTW5vY1lfZTJjTWRYSW9hcWV0b1M4Ml9XVUdsTWdGQjZOX2lMd3ZTeTBiWFdWb0s2SWRzRXhnVEFHWDZCTzN3OHY5RTY5OTZtUkhQQmMwSFBjTGtmMWM3eWEwUC01X0FVRTVXemh6dzdlT1JFcHltcEE?oc=5) |
 | Education Department sued over new student loan forgiveness rule - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNbktBM01NVTlSQ3BhZmJVbXIxaVB3RFZ3S2hSemQ4ajg2MFdDLXZvWGJKRnVHemJwYldXa0RhZE1EcEp2c1hiUUNTUEZiV2ZYdGxSZ1JSOHh5aHdtNDJOc01Oa3ZXaG1XSWdFbmUya0hqR2pIOWJBcUJZd2o3X0lQcHJ2YXNqZklrR29FUmZGRWI?oc=5) |
 | Trump saw a segment on Fox News. Within an hour, he was laser-focused on Christians’ treatment in Nigeria - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOSWxiUUs1SjRZWG1lN1lxOUpCYzFLdUJfNUd4WF8zTldFNmxJTExUTFJjUmk4cGFwUGlTM2h1LVVnc0dFb1BMSWs2WENTb0I3XzBZbklCMVJaWGh4N1BFVmlmUW9tUlVHRndTdUVEU3N1RFNxcFk5Mi1GQ0tWQVJvY1F3?oc=5) |
