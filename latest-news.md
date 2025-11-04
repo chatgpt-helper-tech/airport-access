@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月04日 14:42:02（北京时间）**
+🕒 更新时间：**2025年11月04日 14:48:09（北京时间）**
 
 ---
 
@@ -13,11 +13,11 @@
 | Online porn showing choking to be made illegal, government says | [阅读全文](https://www.bbc.com/news/articles/clyk3qzq7k7o?at_medium=RSS&at_campaign=rss) |
 | China academic intimidation claim referred to counter-terrorism police | [阅读全文](https://www.bbc.com/news/articles/cj0e1lyyvdlo?at_medium=RSS&at_campaign=rss) |
 | Rare footage reveals survival secrets of Africa’s top predators in new Attenborough documentary | [阅读全文](https://www.bbc.com/news/articles/cn51l324p7lo?at_medium=RSS&at_campaign=rss) |
-| William poses for selfies as he arrives in Rio for Earthshot Prize | [阅读全文](https://www.bbc.com/news/articles/clylxv52pdeo?at_medium=RSS&at_campaign=rss) |
 | Calls for legal right to paid leave for IVF treatment | [阅读全文](https://www.bbc.com/news/articles/ckgyk0w5n8go?at_medium=RSS&at_campaign=rss) |
+| Trump backs Cuomo for New York City mayor and threatens to cut funding if Mamdani wins | [阅读全文](https://www.bbc.com/news/articles/c231e284345o?at_medium=RSS&at_campaign=rss) |
 | More people are ditching Buy Now Pay Later loans in favour of family help - but even they are charging interest | [阅读全文](https://www.bbc.com/news/articles/cze6822y135o?at_medium=RSS&at_campaign=rss) |
 | We are ready to discuss human rights law changes, top ECHR boss tells BBC | [阅读全文](https://www.bbc.com/news/articles/cpd26yd2759o?at_medium=RSS&at_campaign=rss) |
-| Trump backs Cuomo for New York City mayor and threatens to cut funding if Mamdani wins | [阅读全文](https://www.bbc.com/news/articles/c231e284345o?at_medium=RSS&at_campaign=rss) |
+| William poses for selfies as he arrives in Rio for Earthshot Prize | [阅读全文](https://www.bbc.com/news/articles/clylxv52pdeo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | NYC mayoral candidates make final push ahead of Election Day - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPWXExQi1mX3AwSjNMbXJRN21SWHRyTTdDWHMwcGlJd2FhWWhkQzUwT0FxR0ttejRkbzNhSU9PVkdLZEZnXzR5N0JmT05vWkIwYUl4NlhVam9HWlFBenlpTERlQ3dFQUV4cHZfenNnb3ZUbFhlLUJFOVdGUFZKZk5Qdlo2NjdaY2J0OEc4QzJlYXBTT2U5QUxDc3RnaDRRa281S19jNXRmUm4?oc=5) |
 | Orange County Mayor Demings makes bid for Florida governor official - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQekdGalB4S1ZVN3phVjVuWlJDOWRkaDRLQjZ6ME04RERpLXJ4Ylg5dFVOMjNueDZqTVRRc2RUeWF2VTd0aThLZE9Fak9lRHRCcTN1RjlocGVvTmNzaUFXMUp6aWFqYU1uckphQXlic2Yxb1VBbUtrLUZVYllacjVKSUNsYkRtX1hGRzE0T3pIclE2SjhhaFowZjRB?oc=5) |
 | Pakistan "will not be the first to resume nuclear tests," official says in response to Trump's 60 Minutes claim - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE84d0JSSjZPV2NwUWdCUGRsRDNBWWVxbjNrd1gzSHhMUDhMVDk1bkxrdVVXcjhzcWFzRGI1bV9JUjdBX0Z3a05hWHdjMEE2a1ZOdXpGRU45QjFUSHZxNWo5bExzb2dFTmFCeWJCeUY1RVl4eDNQOWV3N9IBfkFVX3lxTE9YMUdpaEEyWDA3SHFjQUpxcDZaNFhkRWhIdDlSeDhfT3psN1RTV0dQajZta2hpX0g2NmxwZUpkTlhJLTU1R0VkRTExM3U0bVQ4Zmt6MGdrbUJqV3FxR2dlUno4MjYzS25KdEtCWThBWHJGVGZSek9nUkVoaXdCZw?oc=5) |
-| Trump says he 'won’t be extorted' as the shutdown is about to become the longest ever - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPeGQyS3lYWnpsRmxCbzlyNDBGdmRXSEtmenAtbng3azhDY2JQY2xySnYtUW9qeGVwX09HOGViRGt1V1BSN1RvNE8xV0VMU2hSanItalVmQTBCTTdjcER3UHd1SGpIU3Y3RVVaLUlmX2ZUY3NYM1AzZFB4d1dTWndaUFh2WjBxbG10b2gtR2Y0QVFjNl9j?oc=5) |
+| A confidential manifesto lays out Isaacman's sweeping new vision for NASA - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPbjBsdXItaFNkUVpzMDkyX0I5NS0tS0x1bG1QbUttZ19BUWJFdkhGUG5qS2NjRW5VMVhnRTFpQmVJaTZaRzl6SGM2Z08yY0pZR2twLXVlVzZDUW1PTTZCRjNzZFhpRmpaMGJicm1rXzBDZUxBQ1AwOFhJLXVKbXJvM2NUYk8xZTktRGlMQmk3dExPR0FRdjJr?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
