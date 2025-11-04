@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月04日 17:08:46（北京时间）**
+🕒 更新时间：**2025年11月04日 17:17:39（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Trump threatens to cut funds if ‘communist’ Mamdani wins mayoral election - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQT0FWS05tSGNTOWdvTUthZldGTTNKSXJsUS1wTkNnTW5vY1lfZTJjTWRYSW9hcWV0b1M4Ml9XVUdsTWdGQjZOX2lMd3ZTeTBiWFdWb0s2SWRzRXhnVEFHWDZCTzN3OHY5RTY5OTZtUkhQQmMwSFBjTGtmMWM3eWEwUC01X0FVRTVXemh6dzdlT1JFcHltcEE?oc=5) |
 | NYC mayoral election and other things to watch in US elections - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5MYUUwVk1uSzk4TnZOTkJGRmJxNjVOS3VwMTN0bFVOQ3N3YUNYanJGZkQyUGRwR2pTdXlvZ0d0U0VGZDl1UExxS3dHWXlxOG9CaHptUDRBZlRnQdIBX0FVX3lxTE85aDBnWFRsMDFMRUZtOTJfb0ltcU9oQ2xKMGUxUGxXY01fNFpWUldjV2hNajNMbHZZWlNxLS1tVE5OQXVQRTdRQVZyTjFhb2NROFZ4MEZ3dWs3RVNJT1k0?oc=5) |
 | Trump administration says it is paying out half of November’s SNAP benefits - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNY1RXSmh2c3pLaHo5VFNGWFB2cFZqSjFaRkxWcVk4WW12ejBiSWFPYmFrc2NERHhWQnJuQUFxMUFxTm9mdEZCM3lsTDNqZnZYLTRGRTM5eGF5RmRzcVdTbGhhOURDOHNhWXBpcXBZeTV6SFNQMDNaTVd0QW5tY1RUeWpCU1cxWExVSnlCdUlLdw?oc=5) |
-| Trump threatens to cut funds if ‘communist’ Mamdani wins mayoral election - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQT0FWS05tSGNTOWdvTUthZldGTTNKSXJsUS1wTkNnTW5vY1lfZTJjTWRYSW9hcWV0b1M4Ml9XVUdsTWdGQjZOX2lMd3ZTeTBiWFdWb0s2SWRzRXhnVEFHWDZCTzN3OHY5RTY5OTZtUkhQQmMwSFBjTGtmMWM3eWEwUC01X0FVRTVXemh6dzdlT1JFcHltcEE?oc=5) |
 | Education Department sued over new student loan forgiveness rule - Axios | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNbktBM01NVTlSQ3BhZmJVbXIxaVB3RFZ3S2hSemQ4ajg2MFdDLXZvWGJKRnVHemJwYldXa0RhZE1EcEp2c1hiUUNTUEZiV2ZYdGxSZ1JSOHh5aHdtNDJOc01Oa3ZXaG1XSWdFbmUya0hqR2pIOWJBcUJZd2o3X0lQcHJ2YXNqZklrR29FUmZGRWI?oc=5) |
 | Trump’s Tariffs and Push Against Limits Face Election and Court Tests - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOclcxendzdHNIYm84WGZXVkk2Nk04VTYzckVDYU5Rc2haY0VfbXJDZ3JqWW96M3V5bUEyWHVNRExlU0s0T05oUXF5cFJ5Z3haSFJGb3pUZnJjQW9oN2VOZjRYa3BVM2xJVlliaGpXdGJRdnoxR1dqNDQyYngyWkdTUDlWajh0WkUtQ3c?oc=5) |
 | Thune says extended shutdown means Senate needs to shift date on funding government - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOcVdmMzdTa1hnME5SRG1QcnhrTmdQNzdPRWxleVQ5NXpYV2djRHlQUlpySWZUNW1DN0lFU3cydDJZcnV3ZldtSVM0a1ptNzdUS1hKeHQ4S0pQQndtUFZ1U2ZaSkhrcFo0bXNwTGNabXVNNW43VGFTRi1NSURsXy10M0JJM3Q0OWZVSmMtZG1NQU9sUGYzdzFnaGxkZFhuSHJuaVNsLWlzb2pIUQ?oc=5) |
