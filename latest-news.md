@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月04日 20:41:07（北京时间）**
+🕒 更新时间：**2025年11月04日 20:49:36（北京时间）**
 
 ---
 
@@ -10,7 +10,7 @@
 |--------|-------------|
 | Train hero who saved passengers during attack named | [阅读全文](https://www.bbc.com/news/articles/cdxr4qn6d66o?at_medium=RSS&at_campaign=rss) |
 | Chris Mason: Could Reeves break a 50-year taboo by raising income tax? | [阅读全文](https://www.bbc.com/news/articles/c74jvm17d79o?at_medium=RSS&at_campaign=rss) |
-| Alan Bates reaches settlement over Post Office scandal | [阅读全文](https://www.bbc.com/news/articles/cr5e723qv0no?at_medium=RSS&at_campaign=rss) |
+| Alan Bates to get multi-million-pound payout over Post Office scandal | [阅读全文](https://www.bbc.com/news/articles/cr5e723qv0no?at_medium=RSS&at_campaign=rss) |
 | Arise, Sir David - Beckham receives knighthood | [阅读全文](https://www.bbc.com/sport/football/articles/c17pzezw7l9o?at_medium=RSS&at_campaign=rss) |
 | Claim UK university stopped research after China pressure referred to counter-terror police | [阅读全文](https://www.bbc.com/news/articles/cj0e1lyyvdlo?at_medium=RSS&at_campaign=rss) |
 | New Attenborough documentary captures lion saving pregnant hyena from wild dogs | [阅读全文](https://www.bbc.com/news/articles/cn51l324p7lo?at_medium=RSS&at_campaign=rss) |
@@ -30,9 +30,9 @@
 | The White House’s Plan A is winning its Supreme Court tariff case. It also has a Plan B. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQamg5aHptUmVHRldqSHRjWktWcENDMnJqblpsTlpCTENmNEF3Ri00ZGlsVlR4M2lOeHZJaktiSUR4N1ZybUF2QWl5ckZ0V2JoV1BqcU5fYjJXWmhmVlcxcUprMVc2QnJNWjF2alNtQzVLbllYTWpjeW1wRTM2OTUxQVZmb0hRMVBvdUpIbzNMeWFzeGJmY2ZzekFfY1h3MUJpbTlJYlIyOWhTakx4QnNQRUc5UnFCM29CcGQxaExwLXV0VlhScDc0?oc=5) |
 | Democrat Sherrill holds edge over Ciattarelli as New Jersey’s governor’s race tightens - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxOZkd2clNqNUlDRU9hV0Vvb3E3dDRubk1IQzZkdDhYS3o4Y2dFQmtkbzl0bkI1U21zVkFNblFYQktFWXJ3dHR1NHUyQ0t4MWxLVFpMUEZKd0xha25OcHpmUzh5a1FvTXhyUEtwSTFISXBKR2Y5V0EyWG9oY0lKVUxqSGViNlJ4aDFYbmN4ejZ0c2V4eUxPUDd0RFNkRUt4QUlUOXVtXzkzSE1RQVNUY3NNUE1Td9IBuAFBVV95cUxNLUJwNjdLaVUyTzFGTzZxbDhsbE45N1cyRXduZ1lqX1BCcUNjdzN6YnZILTdPc2RHX2x4UW9LdnFrQlctR0tKNTJKUlpXejZJRGZNVTRfZjdFZnRNR1VNMnVsbVY4elBrTUFqWEJNWUttbXdNOFBTTFVVcEk5TDJKRjhOQm1KUEZyXzJETkh5X0tIN2FSaHZJbDNtSklBS0tNUFJBTjdMM3Z4eWdIdGZXMFY5X2xPX2hn?oc=5) |
 | Can Democrats mount a comeback? Look to Tuesday's elections for clues. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQR0FuTWVrcHZ3d251eEpNNEx6X0ZTUUpYdWV2NjZSSWJIa2NuUk9ZbXk5WWE0ajhYcUxEeTNROFZ6R0pXYTJLRXh4a2ZrNEcybGhQNGF2ZFdGdnFySy14c0hEN0xuOHlXQWlTOFJ0Z0kxUVNISEVaZ3RhcHV2U2lCZGZvSXhndmdWX29rUGI2OA?oc=5) |
-| Trump's plans to restart nuclear testing likely won't produce any mushroom clouds, experts say - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZDg3bG52b203VllUUExybW9feGVUTl9hNjRPVTRHRmtBbTI1RmU3dm9HR291YUhXUHhtYnJSUTNXX1pMTi1kQVBhWEJHWnlsUzVCcWk4SWlna21UM1NBaG5WMW5KNjZRd0E5MEVpWXFnVmRSUVlNRTZweWJUWjQyOTVaWdIBiAFBVV95cUxQSEdNLV9iVEtpUWRrdmY2d0I3UFVLVXgtRWowRWtjYkFLWDR5ZW83U3VHeENWYnJYN2FJV3ctRWQzZUZLenNfX05sMzNydmx5ZlhYOGF2UUR0R2VsUkIyemhBMWwyYktUaWItcXhwa2F6Wm8xLXVzWktQZE5XdEVVWGVMeTNDbHpn?oc=5) |
+| Government shutdown on verge of surpassing record as Thune says he's "optimistic" about ending impasse this week - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPaUVhMW5OcWY0Z1R4c1NBODFNOWpRYm5ReklXYTdFZ2JMam1oQjNqZ1ZseTF2cTZqa25MckNYWFVPS1N5Rm5ObDlCVE1HUDM3a2FLQ2RpRWtLU0tSdnJYbXhhMEt2ZGxIaFAtd0I4S2NCV000ZHZESU9yRnQ0TzlyM2lMXzRkYzFhSzJ1eFpUVnF5b1YwRHg0dNIBngFBVV95cUxQVkdzZkRWcGNmc3NhUlc1bUxJeGhoU2wyNkhhZ19fMlpVdEZsN19ZZnVpTjBiYVAtbmVESmdhcXlac2FfMC11MjUtejRtUVpiSnUzTjhLaEJXYjE2eWd5RkdjVkhHYl9UbG5LbHBQZDRTbkdWTGR2ZDE4S0cyNHRldW53blNuV2hnN3hJZEF5alVjd1ZHWVdLN3hLYm1LQQ?oc=5) |
 | Virginia governor’s race will test Trump and Democrats nationally — and make history - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNN1cxM0RYeWdHN2NtSWc3NmctOTNIQmM1UDRLemtYclJvejFnVW5HMWZfU25KNm5mWkRqcV85d1RDUDZjWUhCNVAzT2VHTGNWeTVtd0FiMVV5eDdFNnhDalhyRVFSMmY2bTBCQTF2N2w3bkJGMzNOcVZ0ZjBwSTMxY3ZSalQwLS0xOTVWdUlxY0ZjV3d3NUNYRVEzRXdBeW1uWkxraS1TMnJiVEZoTExjckRR?oc=5) |
-| Typhoon leaves at least 2 dead, traps people on roofs and submerges cars in central Philippines - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPUkgyNWh3UXM2LWstZXJ4ZEZCMmNDTC14VV85TVpWWFQxeU5VdDRadVpuaGl6LTJnRGlSNGRudDhRRDV3S1V2YkttQUVjSDdUaWpuYXVsR2I4LWNERHkzbzdJc2NWb1NnOE9rQnExbE5KcmlqaUZwbWVqRTdwU0JUYmZ0a0FrWE1aM2l3a2o3R25xWExRN1E5cnlLcWJTcGlmZlRDNFRUdk5odE9M?oc=5) |
+| The Dalai Lama created a Tibetan capital in exile in India. It's shrinking - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQc2VSR1dqLWZ4T2c5c09rbFc2NDRsanliZDREY3VuUEhvOWh5aVd5d3VjSmdFc1hYN285MDN6YnFONUx6eGFqVFhiSlRrbWNyZE52TWllM1hKbDVSMWdoR2lra0xYaXk5YjBpRk9uS2hMRjhUVG54WTljWWJHNnhIbWVWTnBtZmstZThF?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
