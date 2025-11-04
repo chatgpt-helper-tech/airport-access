@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月04日 08:09:51（北京时间）**
+🕒 更新时间：**2025年11月04日 08:16:05（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Education Department sued over controversial loan forgiveness rule - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNQmZKM04xMUF4QjlPMTJnc3dZcE9ab0plRndxNzJrTnVqZ0sxSXFaM0NQTmZTLVdDT2ZIXzIwaThuSFQ0cmRsWVo2TTh6NGNnMm1KUHV5akRIcG1Jb2U0b0JkQWJTYmNRSGo0b3Vuem81Z3BRQmJRNEhBeFA2SmhNY2Znc0tQeEd6bm1mY1ZycDY3cDlmODd2c25aSnNGV3kxVmxPVVNmREhkaGtjbnJ3MkN3WW1fc28?oc=5) |
 | Supreme Court cannot stop all of Trump's tariffs. Deal with it, officials say - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNYy1FWTdtMm13Wjlqa0VXZnlONHdobjlzcG5nUVhMMkhqVndVZENUdDIweE1CZDh1RHFFb0lXU2RLYVZzRXExdVVSMklNNTY2T0JsUFRQNEVfQ2dVWjB2UG9BUmwxSVM3bE0tXzhjVjdHUUhyMWpTTGdvc0dRcUt5anNyUWgyc1REdXp5MWU3eERIcUZ5bGVTX2hMbWRvYTdvTGFQTzJzSVdsY0V6WjdKdTU0SQ?oc=5) |
 | New CR date under discussion, Johnson says - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOUVVHV3l4VFRqblVHQUlTQ3h1Y19UTnBmUVFaamh6ZE50Tld3QmRPQ2M4S3F5ZXZkQUp0cXlid01Oa3pxWFZqaXlXeEd2VS0zSWZ1OGZQamN1YlQwTUVTaHdMeXFlTnVwUEZKSlRoal9IR1I1SW13aXZITXJJd0ZuZGx4dDF4T2VlcTBhaU5sZEJHODRUVUdQdnFSZ3Fhc2lTZVgyWmEyekc4eFhH?oc=5) |
-| Live Results: New York City 2025 mayoral election - PBS | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQdUJIdmRXZU1LVUxkLXlQLV9ycGVEcEpQQm5FWDJLV1JvYjBHX01ZVVhVX0xFSmpRVU04enpKOE5rYXZTQVUydXBsMTJ3SzNFcU9IUVhLV1JqMUpqazIwMGxsSVFMSzBjWVRSZ2FzdTJRU25XSTVaNUpKQ3JZeWcydkYxbDN4aVF0VlJ5VFZTNA?oc=5) |
+| What the latest polls are showing in the Mamdani vs Cuomo NYC mayoral race - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQN2FJVzJQYUFPaWdzWU9EYXB5MS1qSEVNWmdPYmFaY29CcmlXLTZEZU8tTWdBNlhoT1ZKOWR6bTJGZFNjN0szNzdoMnc3TWF5akdiY2h0SzYzTDZXNS1KTW1YVmFxaEk2ZGIwbTJJNXh1OG4yLXhPek1IVnFGVktvX19LanVtREcxQUFKM2djOVVHQnV0eUVsT2dNMktzZnVGZzNzOVMwVU1hMVJlOHZxX3VQbF9pd9IBuwFBVV95cUxNZE41ZjNnN2R0OEY4THAwSHNUa29Kd2hocFRJZmhXWXRwVnV4ZktPeUdPSWwzbUpub0FPcUhsZ2NzMWkyTkMyOEsxRExKNEFyVEc5aU5EUUktVmVCXzV5ai1jM2JwZklZdE4wbXEtd1FHWnlxOFFvNkZGTzRuODFwMTkycFBaNU5HSmdabzFhSTdpUDhiSGZ6bV93RzNZaDAtM3gwcXlObVlpRElxN3dqMVdyakc1QlJ0Z3kw?oc=5) |
 | US flight delays spike as air traffic controller absences increase - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNa3pURmxYeFdkSEwtNlRqbmE3ckgtRTcxc2tFSXZoNTN2VXZoa2RiZFJWLUpwaU1VTVpSenU1WEhnam5JUG05SHRTV2JKS3JHS1ZDd083bHdHXzZYTlRYLXV0VUY1LVBxczZsLU5LWFk2SlFOQjdSM3FqY0FMWHR0THBzZnA4Z1pvTE1GVmVIUnFFVEFfXy1NS002WWpHdHpsUU1PZ0MwZ3VTOWJEbXF2NzZB?oc=5) |
+| When will a winner be named in N.J.’s governor race? New law will make vote count faster. - NJ.com | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPdDZ5czFzS3FwRGoya1I2dHBEaFNGY0p2LXJvQmZjWWduckpvOUlIS3Bqbi15SUFSQlNZcjJKRm92X1hKa0h6aWVocC1neVBCRVdCVFhNR2lhYkplTzh2WllENFRWdGVEblJzN0FJM3pQRUd0WUdxVmVuUnlzUG9BOUtIVVpxdGxFSFQxeXNmenduSlM4VVV3QTdGMmNrek1uZGJGM2dWb1RZZEVSaVF6bGd1ODlfLUlPMzhMZlhoSGVPMWvSAdcBQVVfeXFMUHh3VzdjZzE1U0pKZ1Z6M0ZqMXRjSmlDOGRXY1Qzc21iNUxsYy10OHN6dk1LeTdna2l4elk1UXNGVHIxNnhWS1EwMk0xOGxqWlIxZnUwMWpmMXdsWFdtdUNhZ2NFZ3BGUzZtQzROdjMzRVFsT1BkcEJNbEZLSV9BTjdaNUpQUFZTT1JmWWJPS1pYdF93LW9mcUtKeXB0azZ6N0NwdkgtUXNDbXl1c0VzMjJTT2ZJNUJGZVBwVVBnNzNFSGpZWVdrdzZOY2VpX3JBTUFreXpTaDg?oc=5) |
 | Trump approval rating falls to second-term low of 37% - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTFBPdWNHWUxmX3d1OGNBbkVIUXZ6Z3NMYURtQVYtUEdlNVZFUUxsbzRhLWNjck1uclFMd0VQMWF1eXFkUUp4VEtVbE9CZHRXTXdLSFdvRU5INkhiMjhnTWJBdmVUREpNclhaZ0xLLUdiMHl1ZllVcDJncQ?oc=5) |
-| ‘It’s insane’: This Calif. couple is a facing an 800% hike in health care costs - SFGATE | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPcjZBNFEzVEMxQTdFc2pQWmNwUnhVX2J1dGhJaUhucFMzSEJ0dUhsWFU4ZXN0aVZJdlJ2emRBcGF0ODJDa3hwVGlCVE9qOWRLMWFFbGlFWFlPdUc2S21wcDFQNVhsR05RSFJySTc2QjFQQ1Z5Tkd1SkNjb1BmejVOUWtnZjVUU1NzaUQ4Z2h2SV9DaVhXdHdBZWJ5WVd6VjZLWnRMMg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
