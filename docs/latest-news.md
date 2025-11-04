@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月04日 22:01:28（北京时间）**
+🕒 更新时间：**2025年11月04日 22:08:50（北京时间）**
 
 ---
 
@@ -13,8 +13,8 @@
 | Chris Mason: Could Reeves break a 50-year taboo by raising income tax? | [阅读全文](https://www.bbc.com/news/articles/c74jvm17d79o?at_medium=RSS&at_campaign=rss) |
 | Alan Bates to get multi-million-pound payout over Post Office scandal | [阅读全文](https://www.bbc.com/news/articles/cr5e723qv0no?at_medium=RSS&at_campaign=rss) |
 | Arise, Sir David - Beckham receives knighthood | [阅读全文](https://www.bbc.com/sport/football/articles/c17pzezw7l9o?at_medium=RSS&at_campaign=rss) |
-| Claim UK university stopped research after China pressure referred to counter-terror police | [阅读全文](https://www.bbc.com/news/articles/cj0e1lyyvdlo?at_medium=RSS&at_campaign=rss) |
 | Stone tool discovery suggests very first humans were inventors | [阅读全文](https://www.bbc.com/news/articles/ce8zn4ln85ro?at_medium=RSS&at_campaign=rss) |
+| Claim UK university stopped research after China pressure referred to counter-terror police | [阅读全文](https://www.bbc.com/news/articles/cj0e1lyyvdlo?at_medium=RSS&at_campaign=rss) |
 | Tommy Robinson cleared of terror offence after not giving police access to his phone | [阅读全文](https://www.bbc.com/news/articles/cd9ken44n0eo?at_medium=RSS&at_campaign=rss) |
 | New Attenborough documentary captures lion saving pregnant hyena from wild dogs | [阅读全文](https://www.bbc.com/news/articles/cn51l324p7lo?at_medium=RSS&at_campaign=rss) |
 | Couple took in six passengers after train attack | [阅读全文](https://www.bbc.com/news/articles/cy0y7j0x897o?at_medium=RSS&at_campaign=rss) |
@@ -31,8 +31,8 @@
 | Supreme Court prepares to weigh tariffs fight in test of Trump's power - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTFBaVEYzUVlDOTJXYVROZkVmOFkxOV9FbnJfb1JUUExtMEFLRkJzMnMyQ0Y4ZnRJRkhnQy0wQ1hqR0czYzNRaUotMTRDOGx3ZkxyYUp6YTlYVWlLNFN0dFVDR2otM0ZWdDBXNmpCMERNeHFmWS1O0gF6QVVfeXFMT2ZiUm1GZTZZaTVnLWFpZzNMSXl0OTd1VFA1NWpYcV84UkVOdnV6QzlMVVo3SlAxUmJGQy1TaTJjTmF3amxfR3ZpSFdUcWVTX21oUVpaSTIzcnUzeURaUWJJWVdWX3I1UDdpc2tqYi12YjZIaXVXY0ZHdWc?oc=5) |
 | California's 'Prop 50' congressional map election could have major impact for midterms - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNcVlFTnVObHp2cFVFMTlnaGEycGY3di1MLU9OSWZUOC03VmdLaHhCalBKVlhlR1FKTHQ3SFBhUFJmUGxGcVJ5Z2prTHJYeEljNG1meHJueTZodGtlVEp6WVNkcmQ4bHpNUm5VTThHOGMySnRlZm9CTXdWSXFWdlpZTEFYSVFubjN4NnpOV0hEcXk5cHZIcWpIbGVXZGhTZEljNU52T2ktLTFwdUtCdnZ30gG0AUFVX3lxTE9YcE9jdm5uWkZBcV9ITGxMeUhWRmxQMkNSU3JMTUFXeGYwVWluWl9QRTd1U19lZlhRLVNNU29mN3pWZGdjQllreFp5LUdPUEJaRFpsVzlqY2xTSjlPOUtZT3BFckJ0QUF5am1CVHFXdWN3eXgwbENJcG9PNzRCYzRlVWZGNGdwR3d2aGRDNlF3U0QxWkxxd1ZWdU1VZHVYSEU4bVcxb3lXdXZfNFJhWS1tbW5mRA?oc=5) |
 | Trump’s policies and inflation drive governor’s race in New Jersey, where GOP has been making gains - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOaTNtaEpvdTM1cWplUW40NnlEd0dmRnhRdkJSZXZaZWg0WEFibTdSN05MZVYzSUc5RzgyNlViSEEtb3RNNnlpUXZOYXd3N1E5bVZsUTRrcHROWXE0bldNZG5pWTNpd0lfOHRnZmRfdHhtbmFQRkp4ZV8weTRzYng5U09nUkNJQ3RqbmRaam9YZWxsUFdzS3ZCcDVZV2pqRmd0QU43MlJVSUdNUjEydlNLQw?oc=5) |
-| Deal to end government shutdown takes shape in Senate - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOSnNNdmFhaG5aWjlCRjVWM0VEZ1JCQkNtYTUxWi1EZjhDN1FQMGR4MlZpd194MnVzTUprUWtfZGVUajhxOU4wWU9NQnZhd1RNUTB6cGxPX2lmQkM4bk93Nzk1UFJMaTdmRlI3WEhaa1Z0T1Q1RGZwN3hMQk1kbm1ENnF3?oc=5) |
 | Trump threatens to cut federal funds for New York City if Mamdani wins mayoral race - France 24 | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOVFZoX25sZWk2cE1JZF9lZjNsTnpoTXZGTGpnSVlTZVVyWnVjOVJWaHJMNGc4ZkxsRmlBZ1F0WlJWUTB5SGs4c3pfdDk5VEo4cmJGS3FhX2dUMGw2RzdLUmdPSG5FQjI0dWE2cHZOclNIdjVkODRjMERKTUl5ZURGdG9jS0NxUVdFM1FjMVc4cE1udjFuNmh4S1pBQ1JtY29rMUw1bWZoR3lQbTNsdGpOUkt4aGdPaElySEdhRDN6MTE?oc=5) |
+| Deal to end government shutdown takes shape in Senate - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOSnNNdmFhaG5aWjlCRjVWM0VEZ1JCQkNtYTUxWi1EZjhDN1FQMGR4MlZpd194MnVzTUprUWtfZGVUajhxOU4wWU9NQnZhd1RNUTB6cGxPX2lmQkM4bk93Nzk1UFJMaTdmRlI3WEhaa1Z0T1Q1RGZwN3hMQk1kbm1ENnF3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
