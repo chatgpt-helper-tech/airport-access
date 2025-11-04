@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月05日 03:32:49（北京时间）**
+🕒 更新时间：**2025年11月05日 03:40:24（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Can Democrats mount a comeback? Look to Tuesday’s elections for clues. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQR0FuTWVrcHZ3d251eEpNNEx6X0ZTUUpYdWV2NjZSSWJIa2NuUk9ZbXk5WWE0ajhYcUxEeTNROFZ6R0pXYTJLRXh4a2ZrNEcybGhQNGF2ZFdGdnFySy14c0hEN0xuOHlXQWlTOFJ0Z0kxUVNISEVaZ3RhcHV2U2lCZGZvSXhndmdWX29rUGI2OA?oc=5) |
-| Dick Cheney remains divisive in death, drawing tributes and condemnation - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5kZ3dvdS0wQk5wWHdaOV9BU2VQQ1FyVV96RHdGZk9EMFkwVDdzelg4OTlVNHRibTlEUGluemQ3bEVFT3VqWFVKOTFVUnBWS21MLU5QS0J4RFFzTFphSktyblNoaVNtNEpiNnJVYndSLXVvNVpRRnltZXBVQXo?oc=5) |
-| New York City mayoral election results: Mamdani, Cuomo, Sliwa face off - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNWjU0SzM1M1RHbkZWalhhWXRncjZFUHJobDNGS01UNUZZU0RYbnduUFBJQkRvaTAzQWpGUXdSb1RUdDhBa3RjMWtXb0hRYXY2VkxYZ2NqZVVCR1E4dnFpaGZfRU4xTXRIUkF0WHM4djRRZ25jZkpiQWk2d3Vac2VpUmtRdzFPbEZaMTd6aHNWeG1ZLVBkX1FuZ01IeG9RaXFkdlVvV9IBqgFBVV95cUxNNmxsU1VsNWx6b19kVXhGcHRVTGNzWVZ2aENYS2d3RTUzcHhSWER0bkpoTnh3VlhtUVJKYXBicU9XcHRiZWFsMjZUdWYxNThQQ3o4ckhmRDk5Y3N3TjdPOW9Fcmk3WGY2VXNoS2t4Z2FoQXZzOUJwWDhrRHljem54ZlBGUDZETW9CMGdfZ1NRdG9tWV93d2h4M09ubzJmbUpYMVlQU195Y3Fqdw?oc=5) |
+| The First Big Elections of the New Trump Era Are Today. Here’s What to Look For. - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPcWRsM2FYclVsOU5nRTg3Z1BVQ3pwMjMzQWx4TjBHWmtHeGRJRlJKd2JIVU1qNlRrWXM2QW1xUm1aSDl5V01TM3VHYlNCMDk4bG9sSFJYamszdFZqR1RVcXIwY1BCV2dJVWg3M05IYTdQTEJIZkpkVW9UZmV1SnJFLUN1dHJsUVNTeVc2ZXhJR0ppQ3dT?oc=5) |
+| Former Vice President Dick Cheney dead at 84 - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQTk9seWpvWWs3elN5WjlDOUxnVy1MU0F0cmU5SE5maGxtbU84UlQ1YzlYRGdfeDBaekNuQmY3UFZOSEpJU2IyUmx3d3dvelFNVUVzLWc1S1dlOUQtQkRZQUJPY05oelQtbDBTT3dVSmNEeDJ6d2RIQ2x5LWoxTXNhQk1HQWlHR3B0eF9PakRhVUtNYktYQnfSAZsBQVVfeXFMT3JsLUVSZHRpMklXQVlHek1CNGx3QlJ3UkJHTE90VnJpR21jOWhhTUdlY1RYVW00RjdHRGUxN2h4TE9yaVNpWUw3UkJoeWZUYWlNZ3lhRm9UNUZDV3o0Wm8tQUJpV2l0Qk1zaENNY2t6QTU4dUFPNDJSVmVybmFKWkZ1UksycWx6QUxXZ3pPVmdEZGlXM1hTdWFNZ2c?oc=5) |
+| Live NYC mayoral election results: Zohran Mamdani, Andrew Cuomo and Curtis Sliwa face off - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNR1hRVXdZNnhHdU9LWWRmc1lFYlRJRUtuZmtBcmRZQ1ViUW9RSFFVd2FGTWlqTVFtNkFFa0lEYjV0Q3Znd0g2LXcwelMydDd5SEYwZzh0R0dGQ2V0aERISlpYOW4zVXFVTTlwNTkxUGY2SXdwY29GejdZaFg5a1ZpZVpHeHpkbGQ4WWlrRHZkWkFZaFJQNjV4VzByWW9XVkQ3RTVPdGlTNFdUc3NYS09CbU80cWdrNVJv?oc=5) |
 | Government shutdown set to become longest ever after latest Senate vote fails - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1peTFRNjhEVWsxX3I4eUZvNVI2RGlsYmljOGc3WkktNU8yR3hma2hjeVVCb3Uwek5OYWNNNG9qR2FKNEdNWnJ1ZnA0M2R1aWI3WXVXaFF3WUM4bzRGM0dGRlRzeWhRYlQ3dThNMVdpcU5Vd3Z5NVJvRNIBfkFVX3lxTE1XamppVUVnajR5TWM1bVdjSUtqWi1NTVZBWDBGVHJpQ3dNcS1vLUpfdnhRMHNKYlRfbTdNWnpHYzVfbWJlWVA1T0hyeTM1bEZoVlpzNEV6c2pXaU9HUW5nTXU3VTlETEs2WTJyWHluZFJMWU82TnBzczhzSUZDQQ?oc=5) |
 | Trump says SNAP food stamp benefits won't be paid until shutdown ends, sparking confusion - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1YaXlOQUJ0WC0yNFE3UzE2ZGpwU0NSc2hTUjUzcVlUcENFRC1VZ215d1RCTWNWNV90eF83cXFVeXFjTFVHaENBU2Y5dkp4LUd1NlVPMVhuTXZaTGhVZkNuRWRqRGhCQTM3U0lmUHI2Q1laVXpCX2x2cUxnZEnSAYIBQVVfeXFMTjh0V25Bd3lKenBqWG01WF9HZG1vUDFnSGtGT2EydXJPdEl5M2dIejA0X3FOZVJ0SGVjS0I3UC1pd1NILTRNYThISm5BRFFkVlB1ZDdfemwtZGlXN3picEZwN2tvUkdva2R3R0lRd01JQ21iUHlFcHBIMmJMSnpwOWhTZw?oc=5) |
 | Virginia governor’s race will test Trump and Democrats nationally — and make history - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNN1cxM0RYeWdHN2NtSWc3NmctOTNIQmM1UDRLemtYclJvejFnVW5HMWZfU25KNm5mWkRqcV85d1RDUDZjWUhCNVAzT2VHTGNWeTVtd0FiMVV5eDdFNnhDalhyRVFSMmY2bTBCQTF2N2w3bkJGMzNOcVZ0ZjBwSTMxY3ZSalQwLS0xOTVWdUlxY0ZjV3d3NUNYRVEzRXdBeW1uWkxraS1TMnJiVEZoTExjckRR?oc=5) |

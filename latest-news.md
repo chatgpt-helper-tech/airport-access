@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月05日 03:32:48（北京时间）**
+🕒 更新时间：**2025年11月05日 03:40:24（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Can Democrats mount a comeback? Look to Tuesday’s elections for clues. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQR0FuTWVrcHZ3d251eEpNNEx6X0ZTUUpYdWV2NjZSSWJIa2NuUk9ZbXk5WWE0ajhYcUxEeTNROFZ6R0pXYTJLRXh4a2ZrNEcybGhQNGF2ZFdGdnFySy14c0hEN0xuOHlXQWlTOFJ0Z0kxUVNISEVaZ3RhcHV2U2lCZGZvSXhndmdWX29rUGI2OA?oc=5) |
+| Election Day live updates: Key races unfold in New York City, New Jersey and Virginia - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQQkIyRTZ1eU9qclVSeXlQMDF2OGMzTDlVQmc2Z2lLTFFQbVRzU0lKV3VmSWtSaTFQRnV1elhZbGtIN0txVzZ6ZDF6R3VjSnRfSks4OWY1WGFjQWdBa2xKOEt4NmdNOVAtOHU1djJjdWtvdDh2Z3U1dmZtZkdHV0VlRktEZ1JmMVIzQmIwenE0WFNOTEJRVnYwYmJCNzRfbEcz?oc=5) |
 | Dick Cheney remains divisive in death, drawing tributes and condemnation - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5kZ3dvdS0wQk5wWHdaOV9BU2VQQ1FyVV96RHdGZk9EMFkwVDdzelg4OTlVNHRibTlEUGluemQ3bEVFT3VqWFVKOTFVUnBWS21MLU5QS0J4RFFzTFphSktyblNoaVNtNEpiNnJVYndSLXVvNVpRRnltZXBVQXo?oc=5) |
-| New York City mayoral election results: Mamdani, Cuomo, Sliwa face off - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNWjU0SzM1M1RHbkZWalhhWXRncjZFUHJobDNGS01UNUZZU0RYbnduUFBJQkRvaTAzQWpGUXdSb1RUdDhBa3RjMWtXb0hRYXY2VkxYZ2NqZVVCR1E4dnFpaGZfRU4xTXRIUkF0WHM4djRRZ25jZkpiQWk2d3Vac2VpUmtRdzFPbEZaMTd6aHNWeG1ZLVBkX1FuZ01IeG9RaXFkdlVvV9IBqgFBVV95cUxNNmxsU1VsNWx6b19kVXhGcHRVTGNzWVZ2aENYS2d3RTUzcHhSWER0bkpoTnh3VlhtUVJKYXBicU9XcHRiZWFsMjZUdWYxNThQQ3o4ckhmRDk5Y3N3TjdPOW9Fcmk3WGY2VXNoS2t4Z2FoQXZzOUJwWDhrRHljem54ZlBGUDZETW9CMGdfZ1NRdG9tWV93d2h4M09ubzJmbUpYMVlQU195Y3Fqdw?oc=5) |
+| New York City Mayor Election 2025 Live Results: Mamdani, Cuomo, Sliwa - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPaUpIbXRHUXlUdm91aVdhU0U1THhzUkFKZkNaczZMUGxVbEhXbnVkWjB4dWkxU2xROW9uTnNHN2xnZU5uZWtnUldtM05kV2p6Sjc3Q3U5T0FuWE1zZHVQaUxfdXNVdmVZQnpzQXNpcGFrTlhQSERaX05JU1pxSnZnOQ?oc=5) |
 | Government shutdown set to become longest ever after latest Senate vote fails - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE1peTFRNjhEVWsxX3I4eUZvNVI2RGlsYmljOGc3WkktNU8yR3hma2hjeVVCb3Uwek5OYWNNNG9qR2FKNEdNWnJ1ZnA0M2R1aWI3WXVXaFF3WUM4bzRGM0dGRlRzeWhRYlQ3dThNMVdpcU5Vd3Z5NVJvRNIBfkFVX3lxTE1XamppVUVnajR5TWM1bVdjSUtqWi1NTVZBWDBGVHJpQ3dNcS1vLUpfdnhRMHNKYlRfbTdNWnpHYzVfbWJlWVA1T0hyeTM1bEZoVlpzNEV6c2pXaU9HUW5nTXU3VTlETEs2WTJyWHluZFJMWU82TnBzczhzSUZDQQ?oc=5) |
 | Trump says SNAP food stamp benefits won't be paid until shutdown ends, sparking confusion - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1YaXlOQUJ0WC0yNFE3UzE2ZGpwU0NSc2hTUjUzcVlUcENFRC1VZ215d1RCTWNWNV90eF83cXFVeXFjTFVHaENBU2Y5dkp4LUd1NlVPMVhuTXZaTGhVZkNuRWRqRGhCQTM3U0lmUHI2Q1laVXpCX2x2cUxnZEnSAYIBQVVfeXFMTjh0V25Bd3lKenBqWG01WF9HZG1vUDFnSGtGT2EydXJPdEl5M2dIejA0X3FOZVJ0SGVjS0I3UC1pd1NILTRNYThISm5BRFFkVlB1ZDdfemwtZGlXN3picEZwN2tvUkdva2R3R0lRd01JQ21iUHlFcHBIMmJMSnpwOWhTZw?oc=5) |
 | Virginia governor’s race will test Trump and Democrats nationally — and make history - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxNN1cxM0RYeWdHN2NtSWc3NmctOTNIQmM1UDRLemtYclJvejFnVW5HMWZfU25KNm5mWkRqcV85d1RDUDZjWUhCNVAzT2VHTGNWeTVtd0FiMVV5eDdFNnhDalhyRVFSMmY2bTBCQTF2N2w3bkJGMzNOcVZ0ZjBwSTMxY3ZSalQwLS0xOTVWdUlxY0ZjV3d3NUNYRVEzRXdBeW1uWkxraS1TMnJiVEZoTExjckRR?oc=5) |
