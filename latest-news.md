@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月04日 14:01:45（北京时间）**
+🕒 更新时间：**2025年11月04日 14:10:02（北京时间）**
 
 ---
 
@@ -13,18 +13,18 @@
 | Worker dies after partial collapse of medieval tower in Rome | [阅读全文](https://www.bbc.com/news/articles/ce3kz7jxe0po?at_medium=RSS&at_campaign=rss) |
 | Online porn showing choking to be made illegal, government says | [阅读全文](https://www.bbc.com/news/articles/clyk3qzq7k7o?at_medium=RSS&at_campaign=rss) |
 | China academic intimidation claim referred to counter-terrorism police | [阅读全文](https://www.bbc.com/news/articles/cj0e1lyyvdlo?at_medium=RSS&at_campaign=rss) |
-| New Attenborough doc captures lion saving pregnant hyena from wild dogs | [阅读全文](https://www.bbc.com/news/articles/cn51l324p7lo?at_medium=RSS&at_campaign=rss) |
+| Rare footage reveals survival secrets of Africa’s top predators | [阅读全文](https://www.bbc.com/news/articles/cn51l324p7lo?at_medium=RSS&at_campaign=rss) |
 | William poses for selfies as he arrives in Rio for Earthshot Prize | [阅读全文](https://www.bbc.com/news/articles/clylxv52pdeo?at_medium=RSS&at_campaign=rss) |
 | Calls for legal right to paid leave for IVF treatment | [阅读全文](https://www.bbc.com/news/articles/ckgyk0w5n8go?at_medium=RSS&at_campaign=rss) |
 | More people are ditching Buy Now Pay Later loans in favour of family help - but even they are charging interest | [阅读全文](https://www.bbc.com/news/articles/cze6822y135o?at_medium=RSS&at_campaign=rss) |
-| Oscar-nominated US actress Diane Ladd dies at 89 | [阅读全文](https://www.bbc.com/news/articles/cvg41x3w1zvo?at_medium=RSS&at_campaign=rss) |
+| We are ready to discuss human rights law changes, top ECHR boss tells BBC | [阅读全文](https://www.bbc.com/news/articles/cpd26yd2759o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump threatens to cut funds if ‘communist’ Mamdani wins mayoral election - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQT0FWS05tSGNTOWdvTUthZldGTTNKSXJsUS1wTkNnTW5vY1lfZTJjTWRYSW9hcWV0b1M4Ml9XVUdsTWdGQjZOX2lMd3ZTeTBiWFdWb0s2SWRzRXhnVEFHWDZCTzN3OHY5RTY5OTZtUkhQQmMwSFBjTGtmMWM3eWEwUC01X0FVRTVXemh6dzdlT1JFcHltcEE?oc=5) |
-| Trump Administration Live Updates: White House Says It Will Make Only Partial SNAP Payments This Month - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTFBDN01jdUhYMWRXd3IzOG84TlJySUZUMVoxYk5Mal9pcC1RNnNpRXItYmlrY1VaMFQ2UkN5ekJqcDVVTTdDdnR0bk1fY0N0MGpBLXhPR1prVVc0b3I4WnRoRXd5cw?oc=5) |
+| Trump Endorses Cuomo for NYC Mayor and Attacks Mamdani Before Election - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNal8wSDFjcEo1dWtJSFhrdGp6YU9hSE5wMU1jNERMQTN3NW9Cb3BvbFRVcl9oMm5RY1A4OEtyVlFRa3l2bEhYNGVXN0JxNERVZXRXb2xNVzJQOWdoNFZRRTRhYlV6SDdwOW1pdGFaWGdZRFNFMWN4ZXNSNF9fSXJJZTZXRVY?oc=5) |
+| Trump administration will provide half of usual funds to Snap recipients in November - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPLVR4aHE1UkVvczNoUXZNLW9jS29zWTJIb3daOFBPN0Y2cjFHazRhMWxmajNPWkNZeXpaMmJfWmU3NkRISjlOZHJXaGFYcmU0aV9hVXZOYXcwMFNVVVBfUVRzcUdBU1BxQnFmLU1TRmdLb29CbWFmR0wwSnZDZnN5d3JZc0x4Wl9hTk5Sb2hB?oc=5) |
 | Education Department sued over controversial loan forgiveness rule - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNQmZKM04xMUF4QjlPMTJnc3dZcE9ab0plRndxNzJrTnVqZ0sxSXFaM0NQTmZTLVdDT2ZIXzIwaThuSFQ0cmRsWVo2TTh6NGNnMm1KUHV5akRIcG1Jb2U0b0JkQWJTYmNRSGo0b3Vuem81Z3BRQmJRNEhBeFA2SmhNY2Znc0tQeEd6bm1mY1ZycDY3cDlmODd2c25aSnNGV3kxVmxPVVNmREhkaGtjbnJ3MkN3WW1fc28?oc=5) |
 | Trump saw a segment on Fox News. Within an hour, he was laser-focused on Christians’ treatment in Nigeria - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOSWxiUUs1SjRZWG1lN1lxOUpCYzFLdUJfNUd4WF8zTldFNmxJTExUTFJjUmk4cGFwUGlTM2h1LVVnc0dFb1BMSWs2WENTb0I3XzBZbklCMVJaWGh4N1BFVmlmUW9tUlVHRndTdUVEU3N1RFNxcFk5Mi1GQ0tWQVJvY1F3?oc=5) |
 | Live Results: California 2025 election on Proposition 50 - PBS | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNMjd4R0JXQ2NneXR3dkxKdTUtU19ZRnNpckVhQjB4dGk4d0RIQW1HZFVPQ1VzbkRCRi1mZ0loMlhReUZoTGlHV2xmS1Z1Qm9sTl9PUWgyTGJlWUVrQlgwWTlPeUQtbkptOGszYkF3bkZUUlhUQUZRczZBNXhMQWJpQVI2d0Y5eHRKT1dBRU5Wd2hOblJ1U0dqeg?oc=5) |
