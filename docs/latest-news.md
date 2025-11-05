@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月05日 11:57:46（北京时间）**
+🕒 更新时间：**2025年11月05日 12:00:49（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | California voters take up Prop 50, a Democratic push for more US House seats - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNdEpfQS1pN1JkMjhGWmhPYWlZSnI2bzBodmx2YklOZnZpQzZvT0poWktNeTQzY1hlSmR5MW5zYVNzZ2tNUVVfS3BGZ3h5TE1HQlUzR1hlWTZERWpnMnZHbUw2WjU5ZE1zMUI4Mm94OGVZbUVkUVctVmtGeWhqeXlBZlRTMjV6bDFmWFhwQ2JjYXVfbVJEbWRNbW5VeEU0RkZBTEJZWlhsdlI?oc=5) |
 | 2 young men arrested in explosion at Harvard Medical School: FBI - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOVUd1Y21iQVhmekhmclp2akdubzZKWWQwTzVUb29peWNmbGdZczRwNGFzTkZFOHQwUEcxeEVvbjhpaEFna3hJSGhLOVBMbllKYmVlaXdldEFoWExac281Y0FDYXNaajhxNUJmQ29FdEFabDMzWHBudHNjOTFOVmhmY202UU9XRFViTUpoYXNDUUFCUzNMa1hWMjdadUw?oc=5) |
 | D.C. ‘sandwich guy’ goes on trial, says prosecution is half-baked - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPeG5GY2hjN1UxVkNXalllOGQyUTNBUzYyWGEwb2xNdmhKZ0dnblNHZ0ZoRmhrNmNwUUdiQUg3SDN0VUlhc2U5VVhuRmxsTjM5bmFMcXBQbEpfeWVVdWFGRGJuVHgyQmc0d3BvWDVrR3NWVDNXcEFhSWw3R25MVEVUWDNXOVRoVGZJVWc?oc=5) |
-| Body of IDF soldier Itay Chen, killed fighting Hamas on Oct. 7, returned to Israel - The Times of Israel | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxObTQ0RUhDX2ZLRGVuT2FHcTNTMklVMW51QnNtRUhURHBqWG1xTTUyWFFHUm5pOTFMOHlDX0c0U21PZldiZTBaZ0NacXlBRDFlZHppWWk1d21nU1VydGhmQWx5WkQ1UHI2SmwxUjZLZWRJNlJvRnBJWHVGNGFVOTRHYmxjbzdUVl9zTkRFd0hBNHY4YThNajVzVFNnaWlvZW_SAaQBQVVfeXFMTVJTOFNCNHVoMlN6dWNjVTZIU1VfaVV3eFNnZDF0bGlfeTFJcmU5RXlheGJ5MVg1M3gtbGpEcnMzc180SVJGc3ZaczBSTVhNYTROYkFhQ3kxUkR2OGdKYVNSbDBUX1ZET0JxR0pPQWphQjBtM0w2ekxTZ2h6VFZUXzk2bmt0Qm50LWgyYjA1V3dwVmREakFSaEdka0hwUFFFRllhNDQ?oc=5) |
+| See Election Day 2025 results as Democrats sweep major races in NYC, VA, NJ with Mamdani, Spanberger, Sherrill victories - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFByWEdZTTVQSTBCMVZLWUxWX1MxWGpXN09falpIbG5rSXZONVoyRC1GZ25RZDlCUEJzMWdXVnVlR2k1VDFVZkpST1NSMHF6UnAtOEo1QnEwNUtMcjJzYy1GYW5mZ01NQ2hvQ2ZNZmhVa3BMSHhpOGZ5QjV30gF_QVVfeXFMUGh4YzdkZFJRUDhPRUc1M05sTzFJeDRDNktDeDlReFNJU1Q4QWdNSGpvUGZobWl5ZUlKR2U1MV9PZ21Rb0pJRV9Ednp4ZkZrYlpyeDNmYmFqVjhRZk1raVc5S1gxYmhxVjlPWGd0QnVscS1zWWxXQV9MR1BELTlGZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
