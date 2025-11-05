@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月05日 14:57:34（北京时间）**
+🕒 更新时间：**2025年11月05日 15:00:32（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Wall Street offers cautious support to NY mayor-elect Zohran Mamdani - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1uMWE1TEM5NjBEaXZmcVpqMzJYTncyc1pZZktrNFpwMFVDSXVKOG43TVJHaExEZTZBMFgycFhPaWxWaS1odFQxWUd3ckpCSHRTaGJGODY2RkV3NDZlRE5iLVZ0Y2h1RGhTMzRRVFI4OWM?oc=5) |
 | Democrats sweep key races in 2025 elections in early referendum on Trump - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFByWEdZTTVQSTBCMVZLWUxWX1MxWGpXN09falpIbG5rSXZONVoyRC1GZ25RZDlCUEJzMWdXVnVlR2k1VDFVZkpST1NSMHF6UnAtOEo1QnEwNUtMcjJzYy1GYW5mZ01NQ2hvQ2ZNZmhVa3BMSHhpOGZ5QjV30gF_QVVfeXFMUGh4YzdkZFJRUDhPRUc1M05sTzFJeDRDNktDeDlReFNJU1Q4QWdNSGpvUGZobWl5ZUlKR2U1MV9PZ21Rb0pJRV9Ednp4ZkZrYlpyeDNmYmFqVjhRZk1raVc5S1gxYmhxVjlPWGd0QnVscS1zWWxXQV9MR1BELTlGZw?oc=5) |
+| Wall Street offers cautious support to NY mayor-elect Zohran Mamdani - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1uMWE1TEM5NjBEaXZmcVpqMzJYTncyc1pZZktrNFpwMFVDSXVKOG43TVJHaExEZTZBMFgycFhPaWxWaS1odFQxWUd3ckpCSHRTaGJGODY2RkV3NDZlRE5iLVZ0Y2h1RGhTMzRRVFI4OWM?oc=5) |
 | Live update: UPS plane crash near Louisville, Kentucky, airport, at least 7 killed, 11 injured - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1acGttdEFMQnBuX1I4TkwtbU1CS0xaMXNVendabUZCWFQwUzNHem5CWFJjRVZsYWJzRG9kenJ5cXNkSFpDS0dQWjF4S0ZTX3RWenFrT0JyRGtQY05BQUloSHhDS1RNeEIzcDk0alBRb21XcWJocnc?oc=5) |
 | California voters OK new congressional lines, boosting Democrats ahead of midterms - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOV240Ny1aWmFLbE5WeGdaQ3JQT0ZTZHdwNFFXU2xFWnphT3hTdXh6dG1xcklISkU0QmUyXzhXcnVrSEtrUjFoNFNNQzhUQlBETnhpcTBmOUQ5REtGT0toT0h2Rzh1a1kySHIzZUUzYVZVMWd2aW1VaHNEbWZKLWlIRGRwLUdqX09JMl9TSVJUUFNVWUR4SzZDRmhhMGtVR2Qzd3ow?oc=5) |
 | Talks to end the government shutdown intensify as federal closure nears longest ever - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQZGUwUlEyMG9FVFZ0N2lfLU9oZFE1eVlUeW5tcGVBRVR1dkJJNkZQZHlsMFBPRDBXTE5NZjRnbUtJUlM1ampydmN4c1BXMkhVZGNENVRRWG95NWxZMlRvLVk2VTd0aS1td1EtREM5UEVweGRIVF9ULUZOWHNGY2pCZjhJSXdITXYtZm1PTmlCV1hxODJLOTNSVGlnMjk2NXZaRUt4a1RfQ1o0RmNuamN0Sg?oc=5) |
