@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月05日 13:49:36（北京时间）**
+🕒 更新时间：**2025年11月05日 13:57:22（北京时间）**
 
 ---
 
@@ -27,11 +27,11 @@
 | Zohran Mamdani elected mayor of New York City in historic win - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQcmdyTjVWRnpDdHJfdzlIUjRnOHJpSERFVl9CcFBGTnZUeGxhelJiREVZbzNIcDhmdUU4b1NaTHFSdjFzc0hRVHFFck5EZWM1eU5sbzNWd3NhSnZQMGxnaEZUdUVDS3BtSTZ6N3l1VVc0Rm1xZ2RNMng4SURBRUNkNWFpQ1NMRVgwOXc?oc=5) |
 | Live update: UPS plane crash near Louisville, Kentucky, airport, at least 7 killed, 11 injured - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1acGttdEFMQnBuX1I4TkwtbU1CS0xaMXNVendabUZCWFQwUzNHem5CWFJjRVZsYWJzRG9kenJ5cXNkSFpDS0dQWjF4S0ZTX3RWenFrT0JyRGtQY05BQUloSHhDS1RNeEIzcDk0alBRb21XcWJocnc?oc=5) |
 | Democrats sweep key races in 2025 elections in early referendum on Trump - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFByWEdZTTVQSTBCMVZLWUxWX1MxWGpXN09falpIbG5rSXZONVoyRC1GZ25RZDlCUEJzMWdXVnVlR2k1VDFVZkpST1NSMHF6UnAtOEo1QnEwNUtMcjJzYy1GYW5mZ01NQ2hvQ2ZNZmhVa3BMSHhpOGZ5QjV3?oc=5) |
-| New Jersey governor election results 2025 live updates - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPQkFjTDIzRFpZZmpuNEtBRW1vSVI1MjkxZ1VOUEJ2emg5cElyalJqaGlkSXJWYzhyaXpPckdOSFh5QkNUUEM4XzgyRjY3eGJ6R1NGd0RRMlNpb25MY29zNm9FTHRXY0c1QmlvUVljczRYTmR2U0F2emhpMXQ1dGFZQkZIVEpleXVBSlc3RF9jSktEUQ?oc=5) |
-| George W. Bush remembers Dick Cheney: ‘A calm and steady presence’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNRHlaWnRBRjlFdzNVWTB1MkQwc0ZKRV91a2g3b3JTTnRXS0JpSDRxMzVJQXdWVnBCbVNvVDdRZURjTFMyVkpfRXdfV1JTcW5HMUJtUGJfaFFsZ0tUMU9Cc2NHeVFDeV9jTHE1SUpUV2ZBWURvTVZlZ2RtOXo3MWVPY01GaXp2clRRZ2J1RQ?oc=5) |
+| Mikie Sherrill projected winner in New Jersey governor race - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1MZjIwUm02M243OUtJZXUzajBULU5ZNWQtaTF4UEdSWmw4bEdTeS0yb2NVYkFPS3FtM01IdGhPV0s4LVdRNGlOSERKWmlPbU5XMnB4endrY0k1Z9IBX0FVX3lxTFBLNnB1MzFiVUFVN3hEMi1MUHR3Y3ByYmhLZFdhR01CS1YtUWN6b21Ja2dEVXpzN0dWa0prWkZIZHYtQ3VTWXNHVHJ5cml0enZVTHBZaER6bTl0ZDhwRkxN?oc=5) |
+| Spanberger wins Virginia gubernatorial race as Dems sweep statewide races - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNNENEZmZEcURqY3YxX2RyRlplcWZuWDBCOXl0MFdCTVdaOF80czJpaktaU19tb3pKblNlQU9VWFl2U0ozSFJ3UGdqYzZ2T1RGOTBTeHp6OENRWmM4YVZTSXB3R3Ziemo5WW9PMFZGQTlRVG9ReDdvclBwOS1EMldobUUwUG5ESk5yeEh0d3FLMHZwV0U?oc=5) |
 | 2 young men arrested in explosion at Harvard Medical School: FBI - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOVUd1Y21iQVhmekhmclp2akdubzZKWWQwTzVUb29peWNmbGdZczRwNGFzTkZFOHQwUEcxeEVvbjhpaEFna3hJSGhLOVBMbllKYmVlaXdldEFoWExac281Y0FDYXNaajhxNUJmQ29FdEFabDMzWHBudHNjOTFOVmhmY202UU9XRFViTUpoYXNDUUFCUzNMa1hWMjdadUzSAaIBQVVfeXFMUHpuUjJvQ1UxNjNJN2t5a0ZDUFNpSU92TmRLX1dyWXIxb2Q0bEJCY2ZxakhzX0swa2NhUm83S1FlMGlWdUROazdMblRWWEd6UDFyZ05hWEQ5VWE1bVYyTVJRbjhjcEVyZEVzdk9QMjBQT01XclQyQzVqQndWY3FsZi1OaUxrR1RmZGpXODVzMWRudF9WaXA4Y3FBRUptUUV6S0JR?oc=5) |
 | Judge calls alleged conditions at Chicago-area immigration site ‘disgusting’ - PBS | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPbWx2SUU0UUF5ay1OR3hHdFU2d0dDZHpGNDZkaklGVDkxZ3l0V1dUQTFQMGs5bFBRRWRsc2hoc3ViWDZGVUhFOVFGaU5FR21JNVhSY0JEQ05UM1VndjdVUjJyQ1RvWXNSSy0yLUF3R2hCcm9QSnVwYjdYdjV3MzhZeTJKYmxxWFloQUhyRktTZ1FPUzh2TzFYcC1QUV8zb1lWUUI3NHEwZzU1UHA5TkJN?oc=5) |
-| Virginia election results - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiX0FVX3lxTE1vUW16TVpBM0dhQVFmN2ViYlplVEFfX2tjd3N0eDlxcm5wdG1NZUU1aVhGY0pudUZTaTFULTIxYWhMak02YUVQZWU0bU0zUDFLLUpiN3JWT1VULXgtTWNF?oc=5) |
+| D.C. ‘sandwich guy’ goes on trial, says prosecution is half-baked - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPeG5GY2hjN1UxVkNXalllOGQyUTNBUzYyWGEwb2xNdmhKZ0dnblNHZ0ZoRmhrNmNwUUdiQUg3SDN0VUlhc2U5VVhuRmxsTjM5bmFMcXBQbEpfeWVVdWFGRGJuVHgyQmc0d3BvWDVrR3NWVDNXcEFhSWw3R25MVEVUWDNXOVRoVGZJVWc?oc=5) |
 | Trump's closing argument: Tariff case is "life or death" for the U.S. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE8yQUpFOGtzX1dGck5wZUtQQnk3Vkg1YmJIajJRclRwNFI5VzVlNmFLRmgySUJ1QjU2cTVYTTExbXY2OVZJbnVib1BnWE5reDBXekN5LVRUUkJoWFYzTnZGMy1ZOVhlSlJ1dHlub05DaHA2WG41UFpYOFdCSjE?oc=5) |
 
 ---
