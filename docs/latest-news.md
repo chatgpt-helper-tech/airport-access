@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月05日 14:41:01（北京时间）**
+🕒 更新时间：**2025年11月05日 14:48:39（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | New Jersey governor election results 2025 live updates - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPQkFjTDIzRFpZZmpuNEtBRW1vSVI1MjkxZ1VOUEJ2emg5cElyalJqaGlkSXJWYzhyaXpPckdOSFh5QkNUUEM4XzgyRjY3eGJ6R1NGd0RRMlNpb25MY29zNm9FTHRXY0c1QmlvUVljczRYTmR2U0F2emhpMXQ1dGFZQkZIVEpleXVBSlc3RF9jSktEUQ?oc=5) |
 | Talks to end the government shutdown intensify as federal closure nears longest ever - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQZGUwUlEyMG9FVFZ0N2lfLU9oZFE1eVlUeW5tcGVBRVR1dkJJNkZQZHlsMFBPRDBXTE5NZjRnbUtJUlM1ampydmN4c1BXMkhVZGNENVRRWG95NWxZMlRvLVk2VTd0aS1td1EtREM5UEVweGRIVF9ULUZOWHNGY2pCZjhJSXdITXYtZm1PTmlCV1hxODJLOTNSVGlnMjk2NXZaRUt4a1RfQ1o0RmNuamN0Sg?oc=5) |
 | Spanberger Wins Virginia Governor’s Race With Forceful Anti-Trump Campaign - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPYjEyLW1HekhrNW1qc0FFcl91S0F5azBSZEtDQlpCOUlkOXVtYzk1WkhBUFp2aDRoaDEyRC1ORkhIRVRDTWhVTV96RjdwV29nMW80VTRfNkZxWVR4dms2eG4yXzg0WWdGaElvdDFrSWxKZG5ibFZHN0tRcm5OeHJZVXhrZkdVWnM3N0g3ekJITE94eGs?oc=5) |
+| Two Massachusetts Men Charged in Explosion at Harvard Medical School - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOSm9ILWFnX1R0bHBnYUpNUTVxOXlBMExJWVBESEFYckVGOG54THg4M244RlV5SFQyMUpjbTRIQzA5LTlncUY5NGdQUWZYY29UWnhoM3VlVjFhcVNkMmxVRmxIVmhpZ3RXazYzcFYwN3MtZWYwMzUyaUJTNlQ0UEQwM2F6dnVCd0xlcERJ?oc=5) |
 | The tariff case puts the Supreme Court’s conservatives in a bind - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNVXZUTmRINXhUR3lGUEpkdzQzOWYybVh4WFRwbHM2eTg1b2w3dmZlWTFCdnlVSHlQQWdRQjJfUXpvMHIxN0R5U0xEV2swbHVSU0FNSVRIN3BaZHFKYUhqS0tJZWN0SEZHTGFGMFhNb191a2RwakthSVd3NXRYeUI5NmY4UXpvMFVnOU5ZeTlSazdCdHVqeFRWNUJXYndleTdQ?oc=5) |
 | Trump Moans Democrats’ Big Wins In Virginia, New Jersey & NYC Not His Fault – Update - Deadline | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE44aXI4MzlfSHBEUVFpNFo5M2pzVzlNVHp5QzJKMnRGalB0WDczVUlhR1Q3S3Yya0t1M252VmRnQzU4bHU3U2dlR3BBV1FDYnNwZVJnSUE5WFNLTV9ZUENGbmpRU2Y1enRwZEtLNW0yLVdyODVQREJ5cw?oc=5) |
-| Two Massachusetts men arrested after explosion at Harvard Medical School, says FBI - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQeWNWNDhWOEFBUXlCTnpBbVN5X3BOR2hMWmp5Yk8yblhFVWNhWS1lcmtEUl95T3lSMGhWV1VZWmZGOVl5VlpBNnFhenNETjl2QXA5M2FqZUhDWFlCM19rZThKeGpoZTg0bWpnTEdES1NWS0kxU0FlYkhWemsxLUNaQWhGX082UkhxbjVETXdIbmVLdw?oc=5) |
 | Judge calls alleged conditions at Chicago-area immigration site ‘disgusting’ - PBS | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPbWx2SUU0UUF5ay1OR3hHdFU2d0dDZHpGNDZkaklGVDkxZ3l0V1dUQTFQMGs5bFBRRWRsc2hoc3ViWDZGVUhFOVFGaU5FR21JNVhSY0JEQ05UM1VndjdVUjJyQ1RvWXNSSy0yLUF3R2hCcm9QSnVwYjdYdjV3MzhZeTJKYmxxWFloQUhyRktTZ1FPUzh2TzFYcC1QUV8zb1lWUUI3NHEwZzU1UHA5TkJN?oc=5) |
 
 ---
