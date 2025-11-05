@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月05日 18:41:36（北京时间）**
+🕒 更新时间：**2025年11月05日 18:48:26（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Trump blames shutdown for Republicans' election losses to Democrats - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOSGpsaVZRWUZaRllJb1YwejJqemN4RkFOcEV5RFhocEtvTnpFcXJpZ1V0TjY5UVB4WjNKU3FuWGw0cTBlRlZzV3JEcFl4YjJGYkk5QTk5OVNkMDlNVnJsWHYyZWkzU19MVVB5cThDeVJtaUVRTDU2c2hWWm02WndESktWTVQ?oc=5) |
 | District of Massachusetts ｜ Two Arrested in Connection with Explosion on Harvard Medical School Campus - Department of Justice (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOUFdNbXNqQTlZZTBrcmF1Q3VFeTA3TFRJNGpOWGFHdkpuc2pvTmZPVXNsSURhaTFBWkxOcVl4T0xaaU80N2lvQi1ndktIODB4dVl6NEZPR3RsSGtQVGVZaWw3VDFGdmNVSVR0Y1pKZ3NCLWVQeGlweFY0cTVxaHRCYnpoQ0ZJV3J1VFczSmN6Y0FhOXh3OWJodzFndVdoOGM?oc=5) |
 | Mikie Sherrill, a Democrat, Wins New Jersey Governor’s Race - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNb2lsbUFUdUhwTTUxUEp5Tm1ENloyVklXeUpLOGhaRTdzSnlZQmIxYjNGNTEtVVpNWVhudHVhWlJxaC1PbXNDRHdQSGo5TXpOR1NSdUxtSHVTd015OW5jZkRLbVhZOUtjMzNUN3VwOHhRbVR3Z0M3V0VmY0poWkkwRnZXTGc?oc=5) |
-| Mary Sheffield wins Detroit mayoral election - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQT2NTYlZacVZkdlZvZXRDRXZrWU5uTGVEakxLdVhxcnFRNVVnSGl2SjJkcGR6UlpSaVBxQzFVU2xhVEVyQkY0T2gxLVJWZmt0a3h6SlZLX0VFTjVXS25uSzdHamQxSGF6S191TTd5RnU4OFZ2ZnBkdFlldXlVMU5jam94U0FfR3VuQVHSAY8BQVVfeXFMTTE1VnFaNkh1UG5KQ0NmdlZvRUdzNHBBU19WcDlyUmZjMl9wbVhKNERNTjNLMFVSYnZGaDl0aThWbDJZQzU0Y3huNWVOSUk5azZQaEliR1V2ajAwcmlFS2tVVDlxMXRNRlJENDRMSnl1c3BQelV5YXp3VmZRaC1zZTVJZnRHNTlVeDVncTRiN2s?oc=5) |
+| Pennsylvania voters retain Supreme Court justices Dougherty, Donohue, Wecht - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNN0NGbzRrd3dyeU5jT1BOeGVqb1VCSHpPNTRCSm83N3Zld2RGZnJZenRrQmVnRDR3UHVIMUJqZlpFaXlxZkEtQjhWU3FmdTlkOG9uX3h3ejkwNU5xUHY3YnJ3N1dJYThhWFpMcEpLV2E0WGRZWU9wNGUzX1dDSTRoSnYtQmJVUGtUcGl5OHk0MURhVkxRUVpRNVJDaXZrOGxxd0NUSEJmMTFpc2JXZHZianYwdnhWS1XSAVZBVV95cUxOR3RQZmlGZXBmWTlBdEZ6SnBGNnR2N3UxWVBIQ0VueXZrY1otUWlrNzhLZFptemNVNjlFd1QxaVNaUmRkWkV5bWVBcXY2RDE1YXdIc0p0UQ?oc=5) |
 | Israel says Hamas returned body of Israeli-US soldier held hostage - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5iZjdvVEJ5SnZjcF9CVVE0aV9kWEdSUHp0V2o3amFSY2N3NGd0aEhtdmZOWklOUFNFMlRQY2hLTDd1X1pPOURuYkpPVTJBNnZrVHhfb2M2VGhjUdIBX0FVX3lxTFAxTS0taXpJNEhQUl9WRUcwdWZzWnJIUks0ZU9tTUJxMHA2WE5nNTJxazRGdlJQMkpqUndBcG1vaWxTS0h5d19GcjhDRFpjaVg4WVk0ajFpeG05b3Bvdldr?oc=5) |
 
 ---
