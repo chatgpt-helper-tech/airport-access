@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月05日 16:17:20（北京时间）**
+🕒 更新时间：**2025年11月05日 16:25:42（北京时间）**
 
 ---
 
@@ -16,23 +16,23 @@
 | Mortgages and AI to be added to the curriculum in English schools | [阅读全文](https://www.bbc.com/news/articles/cddr3v6j9mmo?at_medium=RSS&at_campaign=rss) |
 | At least seven people killed after UPS cargo plane crashes in Kentucky | [阅读全文](https://www.bbc.com/news/articles/ce9dyyydjr0o?at_medium=RSS&at_campaign=rss) |
 | Human error may have led to grooming gang cases being dropped, says NCA | [阅读全文](https://www.bbc.com/news/articles/cn4j0l3rlmlo?at_medium=RSS&at_campaign=rss) |
+| Sexism, racism and bullying did happen at top rowing club, investigation finds | [阅读全文](https://www.bbc.com/news/articles/c201gk44102o?at_medium=RSS&at_campaign=rss) |
 | Swap crisps for popcorn and other ways to improve gut health | [阅读全文](https://www.bbc.com/news/articles/c4gp4dey32vo?at_medium=RSS&at_campaign=rss) |
-| Israel says Hamas returned body of Israeli-US soldier held hostage | [阅读全文](https://www.bbc.com/news/articles/c1wlz8j8lr4o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Wall Street offers cautious support to NY mayor-elect Zohran Mamdani - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1uMWE1TEM5NjBEaXZmcVpqMzJYTncyc1pZZktrNFpwMFVDSXVKOG43TVJHaExEZTZBMFgycFhPaWxWaS1odFQxWUd3ckpCSHRTaGJGODY2RkV3NDZlRE5iLVZ0Y2h1RGhTMzRRVFI4OWM?oc=5) |
-| Democrats sweep key races in 2025 elections in early referendum on Trump - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFByWEdZTTVQSTBCMVZLWUxWX1MxWGpXN09falpIbG5rSXZONVoyRC1GZ25RZDlCUEJzMWdXVnVlR2k1VDFVZkpST1NSMHF6UnAtOEo1QnEwNUtMcjJzYy1GYW5mZ01NQ2hvQ2ZNZmhVa3BMSHhpOGZ5QjV30gF_QVVfeXFMUGh4YzdkZFJRUDhPRUc1M05sTzFJeDRDNktDeDlReFNJU1Q4QWdNSGpvUGZobWl5ZUlKR2U1MV9PZ21Rb0pJRV9Ednp4ZkZrYlpyeDNmYmFqVjhRZk1raVc5S1gxYmhxVjlPWGd0QnVscS1zWWxXQV9MR1BELTlGZw?oc=5) |
-| How Newsom and allies delivered a redistricting counterpunch against Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNcTF5XzlkSnNXU2hfd3IzdXBVTHJrRDlaUjN0bXNBb1BURGFFREpmb2lHYlNhV29SYS1BNnhaR3hmOFF4RHltclR6NG1QbExHdUw5cDJ5MjBjZlk5elR2Z2I2Rm1GNU44WFRSbTV3cFVoWGJRVThRNFhRalRCcWVXUXBNRGw0TDdIN2h1WktUTDEyRGxhODJTVUJhZ1d6QQ?oc=5) |
+| Five takeaways as Democrats sweep elections in New Jersey, Virginia - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPNTk5UUwwakxocXNXTXpwYXdBOGY5RnpRdzgzYndpMXcxTXJVd3ItMk13UktocVRmX0l6aS04Y3p6aF9XQTdUbXgwTHQ4UGtfSjUwYkhWWWZCVGktT0NIaUhPRnI4OHhsSDJ5TGRmTmNtMUItUWEyaUVuVVRqRWpORHhuWVFjajBo?oc=5) |
 | Live update: UPS plane crash near Louisville, Kentucky, airport, at least 7 killed, 11 injured - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1acGttdEFMQnBuX1I4TkwtbU1CS0xaMXNVendabUZCWFQwUzNHem5CWFJjRVZsYWJzRG9kenJ5cXNkSFpDS0dQWjF4S0ZTX3RWenFrT0JyRGtQY05BQUloSHhDS1RNeEIzcDk0alBRb21XcWJocnc?oc=5) |
 | The tariff case puts the Supreme Court’s conservatives in a bind - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNVXZUTmRINXhUR3lGUEpkdzQzOWYybVh4WFRwbHM2eTg1b2w3dmZlWTFCdnlVSHlQQWdRQjJfUXpvMHIxN0R5U0xEV2swbHVSU0FNSVRIN3BaZHFKYUhqS0tJZWN0SEZHTGFGMFhNb191a2RwakthSVd3NXRYeUI5NmY4UXpvMFVnOU5ZeTlSazdCdHVqeFRWNUJXYndleTdQ?oc=5) |
+| California voters OK new congressional lines, boosting Democrats ahead of midterms - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOV240Ny1aWmFLbE5WeGdaQ3JQT0ZTZHdwNFFXU2xFWnphT3hTdXh6dG1xcklISkU0QmUyXzhXcnVrSEtrUjFoNFNNQzhUQlBETnhpcTBmOUQ5REtGT0toT0h2Rzh1a1kySHIzZUUzYVZVMWd2aW1VaHNEbWZKLWlIRGRwLUdqX09JMl9TSVJUUFNVWUR4SzZDRmhhMGtVR2Qzd3ow?oc=5) |
+| Government shutdown becomes longest in U.S. history after failed Senate vote - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxQODEwcDg3VjBIRVIxQzJXNzh4aWJjM3JPVm1TN0REY2FNNUVTc2F6Rmx5UFRhMkNockVBbjVQZ2lQNWE5emlxQVBlNzY3cXIyOTg5R2FyalZTV2stN2R0N1dWektBWXByc3NwTTNwQ0hQN2ZUVHZCTXZSN3ZnYUNhb2R4VnZsUmp4aTI3cFNyMjZTVG9RZGFuTWlaMUw0Y0XSAaQBQVVfeXFMT3FNaWZaMjVvaTF5MEtUR3RyaFBuREVZa1hPU3pvQ2Jic2Qxb05NUWtQQ1k0QkluSFlsVjVmZEFkdjJIR3dNQVdaR1JfLUtzWTlzNVNabXhUWVYxZDZYOWlxcUlyaHBkY1FSWWpKdllianlFbXQ4enFTNnhRTW92Q3lIN2wzT0xveURJQ1F0YVFvamVMMXZtbXpyak8xX1FJdzBNQ2Y?oc=5) |
+| District of Massachusetts ｜ Two Arrested in Connection with Explosion on Harvard Medical School Campus - Department of Justice (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOUFdNbXNqQTlZZTBrcmF1Q3VFeTA3TFRJNGpOWGFHdkpuc2pvTmZPVXNsSURhaTFBWkxOcVl4T0xaaU80N2lvQi1ndktIODB4dVl6NEZPR3RsSGtQVGVZaWw3VDFGdmNVSVR0Y1pKZ3NCLWVQeGlweFY0cTVxaHRCYnpoQ0ZJV3J1VFczSmN6Y0FhOXh3OWJodzFndVdoOGM?oc=5) |
+| Maine voters approve 'red flag' law on guns as states consider ballot measures - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxOTXZ0QVVHanRZQnF3SDREcnVidU9oUmNlRVBTQ0NHN3UySUZDNjBIRmpTeURrWEdHY0huSnJHWEdfN2U0RjV1R1dPRm9pdXM3NkFlMGp6eEVmWFJqd29Mc3lOYkNuR1FkeGtSRkVSRGxoVS00WXdtRDVkaVJjS2h2MUw0RzhMLVFRRXl0cWY4c1ZIbkNUVll3WFhJamhsWVRkRXpyYzdQTl9aOTRLek5CdGhFMUJ2R01vcVFId3dnSGFNUdIBVkFVX3lxTE1Db0YzZUVCSlJ3M3lRZk5WcEJBX2NiWHpfcldzRXRrcVRyUk93TWtsTHJGMFZ3QWtxMDFhaEFVcGh5UHctXzFsUWRITkNpbHYxM2poTWh3?oc=5) |
 | Democrat Abigail Spanberger elected governor of Virginia - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPVy1aQ3ZKTE01dlAzWUM4QjR6V1ptb1lOVXdrTEZZSk9LNlV3NHE5dURiZVVURXpsdkE2VFVGMjBkdGM3ZGtGdXlncVhvVE5IZ0tDYU9MbmdJelN2V3V5MHU3UnNIUzRlT08yOGlrNUJ3ZVpoWW5oeFE2Y1ROM0RMdXh3N0taUTF5cnhxZw?oc=5) |
-| Two Massachusetts Men Charged in Explosion at Harvard Medical School - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOSm9ILWFnX1R0bHBnYUpNUTVxOXlBMExJWVBESEFYckVGOG54THg4M244RlV5SFQyMUpjbTRIQzA5LTlncUY5NGdQUWZYY29UWnhoM3VlVjFhcVNkMmxVRmxIVmhpZ3RXazYzcFYwN3MtZWYwMzUyaUJTNlQ0UEQwM2F6dnVCd0xlcERJ?oc=5) |
-| 'A new day' - Democrat Mikie Sherrill wins New Jersey governor race - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1MZjIwUm02M243OUtJZXUzajBULU5ZNWQtaTF4UEdSWmw4bEdTeS0yb2NVYkFPS3FtM01IdGhPV0s4LVdRNGlOSERKWmlPbU5XMnB4endrY0k1Zw?oc=5) |
-| Pennsylvania voters retain Supreme Court justices Dougherty, Donohue, Wecht - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNN0NGbzRrd3dyeU5jT1BOeGVqb1VCSHpPNTRCSm83N3Zld2RGZnJZenRrQmVnRDR3UHVIMUJqZlpFaXlxZkEtQjhWU3FmdTlkOG9uX3h3ejkwNU5xUHY3YnJ3N1dJYThhWFpMcEpLV2E0WGRZWU9wNGUzX1dDSTRoSnYtQmJVUGtUcGl5OHk0MURhVkxRUVpRNVJDaXZrOGxxd0NUSEJmMTFpc2JXZHZianYwdnhWS1XSAVZBVV95cUxOR3RQZmlGZXBmWTlBdEZ6SnBGNnR2N3UxWVBIQ0VueXZrY1otUWlrNzhLZFptemNVNjlFd1QxaVNaUmRkWkV5bWVBcXY2RDE1YXdIc0p0UQ?oc=5) |
-| Typhoon Kalmaegi: death toll rises to 66 as widespread flooding hits central Philippines - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi5AFBVV95cUxNeEFxNENUMHR2alBmV1JxM3laSlR1YmdOUGN2LVJPT1VCY2o4N2hLWGNvdnlKWXVXcHlEVmxDQWthR25jczhfWElwaGgtRkJrM2FGWThIa0hHY21DVll4UFR6QmxpbWlUVTFpNXVjOWFUZlFmdTNPWFRpRHpRaGc4ZnA4MGRZdUtWVXl5QTduQ1FqOXRiRmcwOGFwdXI1WERrX1lmTmJfbkNkRXFtc05yU3M1cEtHVHByTk1GdEd3aExHSnFMSWVVSUpmdTFUcTYtUi1veGdBY1BDWl96VUg3eFA5MGQ?oc=5) |
+| Judge calls alleged conditions at Chicago-area immigration site ‘disgusting’ - PBS | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPbWx2SUU0UUF5ay1OR3hHdFU2d0dDZHpGNDZkaklGVDkxZ3l0V1dUQTFQMGs5bFBRRWRsc2hoc3ViWDZGVUhFOVFGaU5FR21JNVhSY0JEQ05UM1VndjdVUjJyQ1RvWXNSSy0yLUF3R2hCcm9QSnVwYjdYdjV3MzhZeTJKYmxxWFloQUhyRktTZ1FPUzh2TzFYcC1QUV8zb1lWUUI3NHEwZzU1UHA5TkJN?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
