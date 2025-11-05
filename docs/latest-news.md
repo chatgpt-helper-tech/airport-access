@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月05日 15:57:00（北京时间）**
+🕒 更新时间：**2025年11月05日 16:01:45（北京时间）**
 
 ---
 
@@ -23,12 +23,12 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Wall Street offers cautious support to NY mayor-elect Zohran Mamdani - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1uMWE1TEM5NjBEaXZmcVpqMzJYTncyc1pZZktrNFpwMFVDSXVKOG43TVJHaExEZTZBMFgycFhPaWxWaS1odFQxWUd3ckpCSHRTaGJGODY2RkV3NDZlRE5iLVZ0Y2h1RGhTMzRRVFI4OWM?oc=5) |
 | Democrats sweep key races in 2025 elections in early referendum on Trump - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFByWEdZTTVQSTBCMVZLWUxWX1MxWGpXN09falpIbG5rSXZONVoyRC1GZ25RZDlCUEJzMWdXVnVlR2k1VDFVZkpST1NSMHF6UnAtOEo1QnEwNUtMcjJzYy1GYW5mZ01NQ2hvQ2ZNZmhVa3BMSHhpOGZ5QjV30gF_QVVfeXFMUGh4YzdkZFJRUDhPRUc1M05sTzFJeDRDNktDeDlReFNJU1Q4QWdNSGpvUGZobWl5ZUlKR2U1MV9PZ21Rb0pJRV9Ednp4ZkZrYlpyeDNmYmFqVjhRZk1raVc5S1gxYmhxVjlPWGd0QnVscS1zWWxXQV9MR1BELTlGZw?oc=5) |
-| California Prop 50 results 2025 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNR19jenVUdlNGTFNyWEpFeDRmMGdHTUxqWkVSMTE2bVRpRnZvTjl6RUd2LWZ1WEJrSFJYTU1rMkIzd3I3UjlBR0Q2eGZGcGpiZlJmTS1lR3doMmFPVURHN05PSGRFbWZVckxrdml1WEV6aUt2M1NkRzRhd1RBUmstczFpVG5iM3VrYldhOWRmOWQ?oc=5) |
+| Wall Street offers cautious support to NY mayor-elect Zohran Mamdani - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1uMWE1TEM5NjBEaXZmcVpqMzJYTncyc1pZZktrNFpwMFVDSXVKOG43TVJHaExEZTZBMFgycFhPaWxWaS1odFQxWUd3ckpCSHRTaGJGODY2RkV3NDZlRE5iLVZ0Y2h1RGhTMzRRVFI4OWM?oc=5) |
 | At least 7 dead after UPS aircraft crashes departing Louisville airport, shelter-in-place issued: Officials - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQV083bVgtSHlpblBFX1FVUWloOEs3SXlFUUc2S2Ffdm5lLVNuOHlEblU1anh0Nm5weGVybzloTUtBb1I3TExaQzcxQnpMeUtEeXRLTjBCLVJSSm5aZjhXM0VVcEtINEtMb0VXVjZqNF95WVdEMFdNRzhMc3NiTDBsMlN0QXVwdUhMa1hLaFJwdUxnSzVjbnJIQ3JHTWJrck4xYUJBR2tuWELSAa4BQVVfeXFMUFJwN2pzOVNRcnhhNGYtaXJOSU0xV3pxTGFIc0x6eTVVMjJ5X3RBS1BraHBneU9KU3FRZTFPVjdCdkN6Ukw5NmMyZ1Y1VTUwU19oQjhaMjV6SXJUcDFvcTJvbnFEbWpKUzY0d2EtOVZlWndxY20yMk1LVnVldUswOW1vMTBBZnFKcW9RdGgtdjZHR25IWXA5em55VmFNUklrMlRlYTctSGVqa1JEVjdn?oc=5) |
 | The tariff case puts the Supreme Court’s conservatives in a bind - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNVXZUTmRINXhUR3lGUEpkdzQzOWYybVh4WFRwbHM2eTg1b2w3dmZlWTFCdnlVSHlQQWdRQjJfUXpvMHIxN0R5U0xEV2swbHVSU0FNSVRIN3BaZHFKYUhqS0tJZWN0SEZHTGFGMFhNb191a2RwakthSVd3NXRYeUI5NmY4UXpvMFVnOU5ZeTlSazdCdHVqeFRWNUJXYndleTdQ?oc=5) |
 | Talks to end the government shutdown intensify as federal closure nears longest ever - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQZGUwUlEyMG9FVFZ0N2lfLU9oZFE1eVlUeW5tcGVBRVR1dkJJNkZQZHlsMFBPRDBXTE5NZjRnbUtJUlM1ampydmN4c1BXMkhVZGNENVRRWG95NWxZMlRvLVk2VTd0aS1td1EtREM5UEVweGRIVF9ULUZOWHNGY2pCZjhJSXdITXYtZm1PTmlCV1hxODJLOTNSVGlnMjk2NXZaRUt4a1RfQ1o0RmNuamN0Sg?oc=5) |
+| California Prop 50 results 2025 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNR19jenVUdlNGTFNyWEpFeDRmMGdHTUxqWkVSMTE2bVRpRnZvTjl6RUd2LWZ1WEJrSFJYTU1rMkIzd3I3UjlBR0Q2eGZGcGpiZlJmTS1lR3doMmFPVURHN05PSGRFbWZVckxrdml1WEV6aUt2M1NkRzRhd1RBUmstczFpVG5iM3VrYldhOWRmOWQ?oc=5) |
 | Two Massachusetts Men Charged in Explosion at Harvard Medical School - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOSm9ILWFnX1R0bHBnYUpNUTVxOXlBMExJWVBESEFYckVGOG54THg4M244RlV5SFQyMUpjbTRIQzA5LTlncUY5NGdQUWZYY29UWnhoM3VlVjFhcVNkMmxVRmxIVmhpZ3RXazYzcFYwN3MtZWYwMzUyaUJTNlQ0UEQwM2F6dnVCd0xlcERJ?oc=5) |
 | Democrat Abigail Spanberger elected governor of Virginia - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPVy1aQ3ZKTE01dlAzWUM4QjR6V1ptb1lOVXdrTEZZSk9LNlV3NHE5dURiZVVURXpsdkE2VFVGMjBkdGM3ZGtGdXlncVhvVE5IZ0tDYU9MbmdJelN2V3V5MHU3UnNIUzRlT08yOGlrNUJ3ZVpoWW5oeFE2Y1ROM0RMdXh3N0taUTF5cnhxZw?oc=5) |
 | Rep. Mikie Sherrill wins N.J. governor in Tuesday's second victory for Democrats - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOaDZFS2dtUmN2dW8xdEF5WTJ1eDFBaUZ5aXhYVW1Vbm1reEp3TXlPYzhyblhZU3g5ODlBbko4YUZER2dtWUhaNXcyZzJrOGp3ZVY2VDlVbEh1X1MyUGNQMFJuNzJvZ1p6U2RYYzk3bVI4M2RXbVlPaG5wTDJLMlhvWmlrcDRRekNlMjdJWEplUEYtQVNQ?oc=5) |
