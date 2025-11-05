@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月05日 23:25:01（北京时间）**
+🕒 更新时间：**2025年11月05日 23:33:54（北京时间）**
 
 ---
 
@@ -24,10 +24,10 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump blames shutdown for GOP election losses - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPdDlGcm5Md0tYZXJrcjZyeHR4TklJZmd1UUZLMDZ1Y1YxNUx0dllKQjFVSWplWG9aemZxN295MDlGS1JfZm1NMzJzVldZSHdrUktDeF9TdzhFVWk3bEJQWVJ0UVFCNlp5VjkxWG9qeW1pdUVZRXQ2UFRTWGI4SWZ2OTh5MFBsdw?oc=5) |
-| Fox News calls NYC for Mamdani, VA for Spanberger; polls close across the US on Election Day 2025 - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE96SVp2d0RkNVpjZFZrV0lOY05BTUVIcWpVR2h2amI2R1VOdl9yYnVMZzJQbEtDWmc4N0xGSjNvMGZLcVRuWGgyMm83YnFpMXBJQlhjelNVa0hLdlpYVDRfZFVoRTBrSnl4V1FB0gFwQVVfeXFMT1dqQTd0YVZjMHhSVEp2b1NDcnZfb05RMmNhbXQwanJZb215d2lqRmdIeU9kWmhZVlJERERDaXBiUmZQSUYyQ3FQanVvM2d5NWQzOUlROEpZWko2RnBZejJSa2hiRzVXbVZKVmlEWklyTw?oc=5) |
 | Mamdani’s Historic Win, and Democrats’ Big Night Nationwide - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOd2twVGhFbDlVLXUxRXlSZHNvODE2aW12ZDJfQzFnSUNGWXgtZnZlOU5jR3pyTjE3RFlCSC16bkVXT05pS1VJRThlcmlaWDJZVzN6X0RUUldaQ0RoUjBvSjN1THhyc0FfbjA4blFIS3dWcDNoR3M3c2wzQVZoMFFUUjBvSF9rSzZxMExCNHZRN1ZpRl9E?oc=5) |
-| Supreme Court enters the lion’s den on Trump tariffs - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFB2N3otS0ZqSjNMWXUyZFR2R2hoamNhNUVQRGpFZkRkclRMVXVQUUxMQm95aFR6VDJaSkk1eWU2eFFuaUdibEszeHB3M19fT1p3UUtCRjhqYmRoQTZpVlJRMDc1NkpxOXFmd1hpVlVoQWJ2eGJhVC1yUl9wU2k?oc=5) |
-| California's Prop 50 redistricting measure may have consequences beyond its borders - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOaUVWTjZaLXJhV3hKbXBYTXU2N0dQZHhrcmVmYnRaNlhQUTZicmdJZ2Z4MURUU0xvXzVmeDBWZ29NV1ZOTjJCSzlPdGxpc0hTZEo2UDhaRkdkaGY3NW5ad3FjOUJ2dDhGbnpiRDhRdEU4SVJoYzh4eTRpRjJlLW1ZbE9LaU50U3UzOXNaMFZDZk5RelBKOXk1dEtpbDdZa2vSAaQBQVVfeXFMTVJvSTNiWTBPLXphZngwZWhaaXh6Y2lUVnBVdEc1UkVkRDdDaXpTNUZSbWZlYlVNZDd6dU1UTlFZOEprS0Q2TzVfNHZ2aHQyaVlBLWdDY18wX0JGem5GV3lVZFdhY1JHX2FFSVowUEt2WlhnRDZadU5rUlFfX1U5QUFyeWFjYWkzSGFKTHZJVWE2V19XY1dobkEzMW9GTk9Yd0dHMzQ?oc=5) |
+| Supreme Court hears arguments in dispute over Trump's sweeping tariffs - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1GRGFIWXR3LTVLTGJ0cEREa2VUelA4d3R3OWJucmdLYmtDaXhNY1h0bVpRYmhMVzNWMW5NR0pkSzNta2thVDFnbTJBcFNHdFp0NjRJanZiQVQtZk45eHlaX3d3Nlp0NU9YQTBfUUFjM0RfZkNSeWfSAXtBVV95cUxPWnNyaEJkcjBNNUR6bjdhVDNVM3pvdG90N1VmZ1hDaGNEQ0pScGk2SlFTWFZxNWJ4UWJ4Szc2c25pRk84R1RGaHRXY1ZRZUltbGN3WkZjejNkcmFFVzJYU3pkNFhzazROTHJVMmN3ME9tYU1SWFIxbTVIZ2s?oc=5) |
+| Live election results: See how Californians are voting on Proposition 50 - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQVnFJdlQ4bmlWYzBDcHlTY25oNm1HQ1lrbHlpNlhKT3Zycm9ESzhEWkk2dzZsNVIxYzMwRGlUdDljb2l2dDhLWUxhdHpDMHhlVjN1d1NmbHRJQkhKMU1GdmM2eGdqSkhSS1Z3X1lzZTNER014MG5oWTN2cG1vN0ZpVV9kS3RRQmVtWFE?oc=5) |
+| Fox News calls NYC for Mamdani, VA for Spanberger; polls close across the US on Election Day 2025 - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE96SVp2d0RkNVpjZFZrV0lOY05BTUVIcWpVR2h2amI2R1VOdl9yYnVMZzJQbEtDWmc4N0xGSjNvMGZLcVRuWGgyMm83YnFpMXBJQlhjelNVa0hLdlpYVDRfZFVoRTBrSnl4V1FB0gFwQVVfeXFMT1dqQTd0YVZjMHhSVEp2b1NDcnZfb05RMmNhbXQwanJZb215d2lqRmdIeU9kWmhZVlJERERDaXBiUmZQSUYyQ3FQanVvM2d5NWQzOUlROEpZWko2RnBZejJSa2hiRzVXbVZKVmlEWklyTw?oc=5) |
 | Analysing footage of UPS cargo plane take-off moments before crash in Kentucky - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5qRTZkamdQWXNMNVU4T2hsZXdjdHJ4LVRXbE9ZZ0EtQVQwUVk1cVRaWGpaTDFhWW9hdWRYM3hrb2l4dUMyMU5RbzN2OEp3QVVWb3FOVQ?oc=5) |
 | The government shutdown is now the longest - and likely the most damaging in US history - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1hYzcyNEdzeDlKNDhlVmVFaTBLaUF5U0NJcnlyNlJHRE4xeENZZmZkdnNiRDg1T0hiaUlRRkJMa1Jtb2ZBRTIwc0tVekotWVRTNFRhTFI5NkRuOTV5Vk5PZ2VqM3BUbGRYMnNMMDFnWVUtMEhvdU12b3dWVXM?oc=5) |
 | Air traffic controllers warn of 'tipping point' as U.S. government shutdown drags on - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPZ2J5aHByVW1VdzZDMkNua2xQSlQ3R3lmYjBPN3NHT1NJTnFxMUYzdlpERUs5d2VkYXE5TkZsZGFlMkw2TUhaVHlCMW5vYTFUdDNOZGp6LXhmc3NSZHgtajlZUWRDVWlRWXhYWnhzOVFSZm9ZMk53RjFHY1paM1FNNjhUcDBJMThhZU9Nd3pPV1NWQQ?oc=5) |

@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月05日 23:25:01（北京时间）**
+🕒 更新时间：**2025年11月05日 23:33:54（北京时间）**
 
 ---
 
@@ -25,14 +25,14 @@
 |--------|-------------|
 | Trump blames shutdown for GOP election losses - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPdDlGcm5Md0tYZXJrcjZyeHR4TklJZmd1UUZLMDZ1Y1YxNUx0dllKQjFVSWplWG9aemZxN295MDlGS1JfZm1NMzJzVldZSHdrUktDeF9TdzhFVWk3bEJQWVJ0UVFCNlp5VjkxWG9qeW1pdUVZRXQ2UFRTWGI4SWZ2OTh5MFBsdw?oc=5) |
 | Fox News calls NYC for Mamdani, VA for Spanberger; polls close across the US on Election Day 2025 - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE96SVp2d0RkNVpjZFZrV0lOY05BTUVIcWpVR2h2amI2R1VOdl9yYnVMZzJQbEtDWmc4N0xGSjNvMGZLcVRuWGgyMm83YnFpMXBJQlhjelNVa0hLdlpYVDRfZFVoRTBrSnl4V1FB0gFwQVVfeXFMT1dqQTd0YVZjMHhSVEp2b1NDcnZfb05RMmNhbXQwanJZb215d2lqRmdIeU9kWmhZVlJERERDaXBiUmZQSUYyQ3FQanVvM2d5NWQzOUlROEpZWko2RnBZejJSa2hiRzVXbVZKVmlEWklyTw?oc=5) |
-| Mamdani’s Historic Win, and Democrats’ Big Night Nationwide - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOd2twVGhFbDlVLXUxRXlSZHNvODE2aW12ZDJfQzFnSUNGWXgtZnZlOU5jR3pyTjE3RFlCSC16bkVXT05pS1VJRThlcmlaWDJZVzN6X0RUUldaQ0RoUjBvSjN1THhyc0FfbjA4blFIS3dWcDNoR3M3c2wzQVZoMFFUUjBvSF9rSzZxMExCNHZRN1ZpRl9E?oc=5) |
+| First Thing: Zohran Mamdani elected New York City mayor - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPcVJGeXA2SmpTTTdzMVpWdWppMFhOUUNaQkhBQUxLOHVmeDBLeGRTS2lhOGtPX20xRTFIRDRUQ0pMY01ManJZR2M0R013OUhwdjY1M2FCR0RIN3pGand2b2p3QXFyWktWOTFfVm4yMlgyWUR4VHBFcnRuTG1ROEFmLWdYalZfaE9NeS00RGU1ZmxST1VzbWRZaXgwYUplS0dSeEtPcg?oc=5) |
 | Supreme Court hears arguments in dispute over Trump's sweeping tariffs - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1GRGFIWXR3LTVLTGJ0cEREa2VUelA4d3R3OWJucmdLYmtDaXhNY1h0bVpRYmhMVzNWMW5NR0pkSzNta2thVDFnbTJBcFNHdFp0NjRJanZiQVQtZk45eHlaX3d3Nlp0NU9YQTBfUUFjM0RfZkNSeWfSAXtBVV95cUxPWnNyaEJkcjBNNUR6bjdhVDNVM3pvdG90N1VmZ1hDaGNEQ0pScGk2SlFTWFZxNWJ4UWJ4Szc2c25pRk84R1RGaHRXY1ZRZUltbGN3WkZjejNkcmFFVzJYU3pkNFhzazROTHJVMmN3ME9tYU1SWFIxbTVIZ2s?oc=5) |
-| Prop 50: Californians pass redistricting measure that helps Democrats flip up to five House seats - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxON3NSbW5fS2FESVJrbjBUdmpvdjZLcHpNSVU5UTdWWVdfTzBkZDFuMy15NkhRY24yVGxMZ1J6dDhrQVhpZmxvRjRmUjRyYXJfNjdkOUZWTDdQb3Nfd1pHNnlLUEQtYnAzZ2xCMy1qTWdWRndIVWtNcm8zellBcVVseVRuY0IzbFE?oc=5) |
+| Live election results: See how Californians are voting on Proposition 50 - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQVnFJdlQ4bmlWYzBDcHlTY25oNm1HQ1lrbHlpNlhKT3Zycm9ESzhEWkk2dzZsNVIxYzMwRGlUdDljb2l2dDhLWUxhdHpDMHhlVjN1d1NmbHRJQkhKMU1GdmM2eGdqSkhSS1Z3X1lzZTNER014MG5oWTN2cG1vN0ZpVV9kS3RRQmVtWFE?oc=5) |
 | Analysing footage of UPS cargo plane take-off moments before crash in Kentucky - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5qRTZkamdQWXNMNVU4T2hsZXdjdHJ4LVRXbE9ZZ0EtQVQwUVk1cVRaWGpaTDFhWW9hdWRYM3hrb2l4dUMyMU5RbzN2OEp3QVVWb3FOVQ?oc=5) |
 | Air traffic controllers warn of 'tipping point' as U.S. government shutdown drags on - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPZ2J5aHByVW1VdzZDMkNua2xQSlQ3R3lmYjBPN3NHT1NJTnFxMUYzdlpERUs5d2VkYXE5TkZsZGFlMkw2TUhaVHlCMW5vYTFUdDNOZGp6LXhmc3NSZHgtajlZUWRDVWlRWXhYWnhzOVFSZm9ZMk53RjFHY1paM1FNNjhUcDBJMThhZU9Nd3pPV1NWQQ?oc=5) |
 | The government shutdown is now the longest - and likely the most damaging in US history - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1hYzcyNEdzeDlKNDhlVmVFaTBLaUF5U0NJcnlyNlJHRE4xeENZZmZkdnNiRDg1T0hiaUlRRkJMa1Jtb2ZBRTIwc0tVekotWVRTNFRhTFI5NkRuOTV5Vk5PZ2VqM3BUbGRYMnNMMDFnWVUtMEhvdU12b3dWVXM?oc=5) |
 | Democrat Mikie Sherrill wins New Jersey governor’s race - New Jersey Monitor | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNTnlocFBHNU9RRDA0QTI2d0FFRlN2aUkwb1RFU0g1Y254bU9DSTNtRXJFSklZRmJGZkVuMHRvYmdheE16ZkVweXdoeTJjbWZWWXRfVmQzZUVMclNKNGZ1RWlydDNQUHlodWJRMmZSVFlWLUlkc2xqYnZWQ0JzU1pCN3ZVMmhkU2VtWWhYZlBYbFNJc0dSWFhrNFRCQzB3anBVTlFKSlFTbW85Nms?oc=5) |
-| EU agrees weakened climate target in final-hour deal for COP30 - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQc0pkVk9JZFdqUTlMTThnN05iSnZSUThKenFTNTBvTmRLRzh1LVJOVEpSRER4cERWNGJ2R240OER2ZFN5SUVvelZhUWpqcU0tZ21nZElfQ0p3c0QwUzBKWnQ5TGcwY1JhckdZUDgtVFpTaVp3amxwOE1JSUdNaG16cnJidmVRVHU5LUIwR2o1UzVlODhQSGV6eUZHQkxiTjZNU0lsZHhtYUw0R2ZsanBpRXhkUXFybkNH?oc=5) |
+| Two critically injured after driver rams into people on French island - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE8xeTdtSFZIR3JNb2xOdXZyVkNqUkhqemo5QzR1bHU0TDVPTW5ra2tfaE1FSDJLUUlLVjVEN25nLW9sY2N1amFvZXlNTFdBdkZ1YzdiT1R2UkY5Z9IBX0FVX3lxTE5ab3NlaGdiVEhaMFdydG1qZEJHbWw5NlVmUm9JeG1may0yNWNwdl9panJnNXg2ZjJBS056aWU5NGlFd3JlOERfbmhJMmlQbk9xaWhqaVNzNDVaMVJISGlF?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
