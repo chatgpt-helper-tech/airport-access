@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月05日 21:57:29（北京时间）**
+🕒 更新时间：**2025年11月05日 22:01:53（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | The government shutdown is now the longest in U.S. history. See how it compares - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNcHlFMHJSMTlQa2JQYWtjVm4yY09jd0JMaktzemJ5S0VBd21feXVRY3VHenJEZkpwNi16UW02UUd0YndmdVk2Q25uZHhWRkx0S1lWZF96bmk1VDVHLWhDVUZzMm55cFV4YTl6NWNkWnl5Q1Nva2dHUUloaEN2TFpyNXRtODJGTmc?oc=5) |
 | A UPS plane with three crew members crashed after takeoff at the Louisville airport - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOakNPcjFpdEx4OHF1OHk4SVc5Y3ZJdFJxUlB1VEVJMTBYM3VUTU5Eb28xd0V6YU96VVF5MkJ5emF3SFZ0c0U1aGd5Wm5ndnJuU2RTOE1WbnRVYlpZQjl6cHNvZjE4eFFPeHdENnUxaVlDbXBtVFBfNV9ZWHBhWkpDaEFB?oc=5) |
 | Trump Tariffs Case at Supreme Court Today; Dow Futures Waver — Live Updates - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOeDNpTVNmN0xaU3N6TERTMDFIclBRVHVHZlgyRV9nNlhFeVNIVFR2YXhsb0RTdjRKa0ZjY3NVTmlBSkYyaGk3V2ZIYXpTbGVxOXJFOXhjQ3ZlM1hPUUFfQUgySEx1MEhEaVhHbk5iVkY3SkxZNFVMaHBYMDlpMFIwV3lrSXI5ZmJ1UFdj?oc=5) |
-| Democrats flip two seats on the Georgia Public Service Commission - Georgia Recorder | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNUWhxNGpiRG1hQlpRdVIzVnBrMmpKdDVueVVfRmxhWUZXb0xiWjd6QS05dXp0bVBmTlVaVUd6QVNpbDl4OXBaUFJDQXlCSVJ0WC1GWV9nckhMLXVCODZ3RTZnSklyYmw5U2ZvckZodF91U082ZFNxQ25VN2RMdzQ2eVJPWlNyZGNscG9NV0cwS2JqUzAydjJwWTllaVp1aGFFejUzNl92N2d5cS1fOHQybzM0Y1VxMWs?oc=5) |
 | Air traffic controllers warn of 'tipping point' as U.S. government shutdown drags on - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPZ2J5aHByVW1VdzZDMkNua2xQSlQ3R3lmYjBPN3NHT1NJTnFxMUYzdlpERUs5d2VkYXE5TkZsZGFlMkw2TUhaVHlCMW5vYTFUdDNOZGp6LXhmc3NSZHgtajlZUWRDVWlRWXhYWnhzOVFSZm9ZMk53RjFHY1paM1FNNjhUcDBJMThhZU9Nd3pPV1NWQQ?oc=5) |
 | Mikie Sherrill: What to Know About New Jersey’s Next Governor - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPNmNvZ2dZODRYeUhRYmFGUWNLaUs1UEdsb3RWb2FIVEZoWENUSTN2R0JHWi03RmVpLTRhX0RsLVoteTZsYlVYTUgyaEg0TjJvcDRvSzNJbUFBMHJDV3RPYm5aRnRjRml6UGlOTE9MLVFrNDlndzVKcEU4cnY5R2hKUHpjdzI?oc=5) |
+| Israel says Hamas returned body of Israeli-US soldier held hostage - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5iZjdvVEJ5SnZjcF9CVVE0aV9kWEdSUHp0V2o3amFSY2N3NGd0aEhtdmZOWklOUFNFMlRQY2hLTDd1X1pPOURuYkpPVTJBNnZrVHhfb2M2VGhjUdIBX0FVX3lxTFAxTS0taXpJNEhQUl9WRUcwdWZzWnJIUks0ZU9tTUJxMHA2WE5nNTJxazRGdlJQMkpqUndBcG1vaWxTS0h5d19GcjhDRFpjaVg4WVk0ajFpeG05b3Bvdldr?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
