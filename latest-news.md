@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月05日 20:41:26（北京时间）**
+🕒 更新时间：**2025年11月05日 20:48:19（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | Democrats sweep key races in 2025 elections in early referendum on Trump - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFByWEdZTTVQSTBCMVZLWUxWX1MxWGpXN09falpIbG5rSXZONVoyRC1GZ25RZDlCUEJzMWdXVnVlR2k1VDFVZkpST1NSMHF6UnAtOEo1QnEwNUtMcjJzYy1GYW5mZ01NQ2hvQ2ZNZmhVa3BMSHhpOGZ5QjV30gF_QVVfeXFMUGh4YzdkZFJRUDhPRUc1M05sTzFJeDRDNktDeDlReFNJU1Q4QWdNSGpvUGZobWl5ZUlKR2U1MV9PZ21Rb0pJRV9Ednp4ZkZrYlpyeDNmYmFqVjhRZk1raVc5S1gxYmhxVjlPWGd0QnVscS1zWWxXQV9MR1BELTlGZw?oc=5) |
 | Inside the bumbling, dysfunctional tin-cup campaign to block Newsom’s gerrymander - Politico | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE9jRGF4R1pvQ09wWW9kTlB4WU1sTDRoOXNXbXphZ0M0V3pNMFlmSlgyNmlfelBfeDc5bUs2eWpobUxENU9kVk9nOVZUZGJNdWNTNWppQWRHZ0JVLVYtRUY0REJMN015Ml8tTEJNRHkzcEtQVW1l?oc=5) |
 | What the Trump tariffs Supreme Court case could mean for the economy - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxQc0dNU1hILTFuNDBQdDRyZDRiWEoxSGpvODQyc3BBWTZDcWNrSnF3MFd2aUE5allqMVllYmRHSEpqRWdLNDNSWlFiTzNYZHVzd0RRaDNyMDJnUHBrWk1ISDFXaFIta0s2bDJvdmtnaC15amIxRF9jR3oxaDExWVFKWEZTN19tSEVid3AzWVNyc2tHZ296cWfSAZsBQVVfeXFMTmE2RGZ5bTJ5TVZGRFN1VHhzbGlHdGdzNGU4ZE9qS3ZudXdQNjZBZUE2QzlVMVRSQ3Y0Q2thNFRVbFVlUTNzb0NCYXVDaFpPUmx4cDU5Y3RHSVFZdHlGSG5USHNqTjlsVm5PYW9DaE1aSDRKNkEwS0ltWXVLdmpHdTZSQzBQVWc3cDNYRnRiTHU2dkFfQUt4dXhuU3c?oc=5) |
+| The government shutdown is now the longest in U.S. history. See how it compares - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNcHlFMHJSMTlQa2JQYWtjVm4yY09jd0JMaktzemJ5S0VBd21feXVRY3VHenJEZkpwNi16UW02UUd0YndmdVk2Q25uZHhWRkx0S1lWZF96bmk1VDVHLWhDVUZzMm55cFV4YTl6NWNkWnl5Q1Nva2dHUUloaEN2TFpyNXRtODJGTmc?oc=5) |
 | Verifying video of deadly Kentucky cargo plane crash - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5qRTZkamdQWXNMNVU4T2hsZXdjdHJ4LVRXbE9ZZ0EtQVQwUVk1cVRaWGpaTDFhWW9hdWRYM3hrb2l4dUMyMU5RbzN2OEp3QVVWb3FOVQ?oc=5) |
-| Trump blames shutdown for Republicans' election losses to Democrats - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOSGpsaVZRWUZaRllJb1YwejJqemN4RkFOcEV5RFhocEtvTnpFcXJpZ1V0TjY5UVB4WjNKU3FuWGw0cTBlRlZzV3JEcFl4YjJGYkk5QTk5OVNkMDlNVnJsWHYyZWkzU19MVVB5cThDeVJtaUVRTDU2c2hWWm02WndESktWTVQ?oc=5) |
 | Here's what CBS News exit polls told us about the 2025 elections - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQbDZKeFdDSWM2aVREcnZfYkRETm5BMXlXUG9QbzI5eUFfalRIXy1BanBGU1Y1ZkNHOGJJZnJHYXoxSEZmMGU2cm9aUEJhY1h1RHg3YnpPZ3BBZi1iNm5MelFOQ3ZGWV9NRi1yX3pkR0JBQThkX3MyOFNCSFBxM0prVHhxYVd4dnNwZUN6TdIBkgFBVV95cUxPNjIyc0c4VmtNWXFIUDVVN3hlNkppSmQxcFlwMjlUck41VUNfVlBVNlUzOG00X1RabHh3RHdiWmQ4dFB1bjExcjZKQXhzWUFSY2kxTEFYRUhYN0RRN1JxVjRfRnh2Z1lsNkJQVFFoMUJrX3UyYjZMYjVyeXRCanJoVDNuVHMzVHNBV2xFUXBENXhKZw?oc=5) |
 | Mikie Sherrill, a Democrat, Wins New Jersey Governor’s Race - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNb2lsbUFUdUhwTTUxUEp5Tm1ENloyVklXeUpLOGhaRTdzSnlZQmIxYjNGNTEtVVpNWVhudHVhWlJxaC1PbXNDRHdQSGo5TXpOR1NSdUxtSHVTd015OW5jZkRLbVhZOUtjMzNUN3VwOHhRbVR3Z0M3V0VmY0poWkkwRnZXTGc?oc=5) |
-| The government shutdown is now the longest in U.S. history. See how it compares - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNcHlFMHJSMTlQa2JQYWtjVm4yY09jd0JMaktzemJ5S0VBd21feXVRY3VHenJEZkpwNi16UW02UUd0YndmdVk2Q25uZHhWRkx0S1lWZF96bmk1VDVHLWhDVUZzMm55cFV4YTl6NWNkWnl5Q1Nva2dHUUloaEN2TFpyNXRtODJGTmc?oc=5) |
 | Live results: Key elections in Minnesota - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQZlFlSGhEa0lQWUo5Q0dGdWFsdjc1S3FXWlVkMHIxV0tPdVFtcmhMMFZKWVI4bTA0a1VjZ1o5YmVkNWFrS3FpaWpyQU5CbHNjUWxEUkJ1OGI4bXdnSDBZWHRGSUZHU1Z4dTNJanplcVdUVENnMnVTMXh0TkZ2bEJ5eW5BeWRiOTJzdzdUejNrTnoydGRJQ3VmRW5R?oc=5) |
+| Several critically hurt on Ile d'Oléron in France after driver rams into 10 people - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE8xeTdtSFZIR3JNb2xOdXZyVkNqUkhqemo5QzR1bHU0TDVPTW5ra2tfaE1FSDJLUUlLVjVEN25nLW9sY2N1amFvZXlNTFdBdkZ1YzdiT1R2UkY5Z9IBX0FVX3lxTE5ab3NlaGdiVEhaMFdydG1qZEJHbWw5NlVmUm9JeG1may0yNWNwdl9panJnNXg2ZjJBS056aWU5NGlFd3JlOERfbmhJMmlQbk9xaWhqaVNzNDVaMVJISGlF?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
