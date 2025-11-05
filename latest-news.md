@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月05日 22:01:53（北京时间）**
+🕒 更新时间：**2025年11月05日 22:09:07（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | The government shutdown is now the longest in U.S. history. See how it compares - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNcHlFMHJSMTlQa2JQYWtjVm4yY09jd0JMaktzemJ5S0VBd21feXVRY3VHenJEZkpwNi16UW02UUd0YndmdVk2Q25uZHhWRkx0S1lWZF96bmk1VDVHLWhDVUZzMm55cFV4YTl6NWNkWnl5Q1Nva2dHUUloaEN2TFpyNXRtODJGTmc?oc=5) |
 | A UPS plane with three crew members crashed after takeoff at the Louisville airport - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOakNPcjFpdEx4OHF1OHk4SVc5Y3ZJdFJxUlB1VEVJMTBYM3VUTU5Eb28xd0V6YU96VVF5MkJ5emF3SFZ0c0U1aGd5Wm5ndnJuU2RTOE1WbnRVYlpZQjl6cHNvZjE4eFFPeHdENnUxaVlDbXBtVFBfNV9ZWHBhWkpDaEFB?oc=5) |
 | Trump Tariffs Case at Supreme Court Today; Dow Futures Waver — Live Updates - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOeDNpTVNmN0xaU3N6TERTMDFIclBRVHVHZlgyRV9nNlhFeVNIVFR2YXhsb0RTdjRKa0ZjY3NVTmlBSkYyaGk3V2ZIYXpTbGVxOXJFOXhjQ3ZlM1hPUUFfQUgySEx1MEhEaVhHbk5iVkY3SkxZNFVMaHBYMDlpMFIwV3lrSXI5ZmJ1UFdj?oc=5) |
+| Trump administration ending Temporary Protected Status for South Sudanese nationals - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQbjlzWEZmNnVQNlMzWGJkcWlYWFZ0V29XTXI0b1Y5WTBncXhJNjR0TE5TQWNjaTM2S3lLcnRua0xwbGUtcjdXbWk1Q2I2TlhUaDQ1TWhQQkpQWmVqTVNFN25FR0VKNVEwSGM4MU5sX3g5YWg4ZHo1WVh5RXgzeXJ5U0xkUnFHd9IBiwFBVV95cUxNMGhVdC1kT25JY1ZTbTd6SHdQQjEwZEtjRkxFTjdITVQ1UVNwZTBsZDl6ZzI4RkZ2RXFVazV0ZV9XZW1JQ2dqbTcwd2NJQTYtWXpFSFAwVXpmZXpfajFYRnJhVlB6cC1OS25seW95LXRJMnhwMW42cWpsN2Y4Nk9wOXlOVjlkdjlTbzhR?oc=5) |
+| In an Upset, Democrats Oust Two Republicans on Georgia’s Utility Board - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOaUNNQy1SYmlST2dyU3Q3TzhZV2FJMjEyUUpDNkltcnh6QXdOY0ZVR0lEeDVHTkRiendFNDdfYWEzV0o4anNxaU9KeFFCWF9ROXZnV3hpVEREQ1NTTFE4dHhYa2VmRDJwOHQ2cU1KVllTVFAxNGV0TG90TGhpaW55UGtVaWE3bUFs?oc=5) |
 | Air traffic controllers warn of 'tipping point' as U.S. government shutdown drags on - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPZ2J5aHByVW1VdzZDMkNua2xQSlQ3R3lmYjBPN3NHT1NJTnFxMUYzdlpERUs5d2VkYXE5TkZsZGFlMkw2TUhaVHlCMW5vYTFUdDNOZGp6LXhmc3NSZHgtajlZUWRDVWlRWXhYWnhzOVFSZm9ZMk53RjFHY1paM1FNNjhUcDBJMThhZU9Nd3pPV1NWQQ?oc=5) |
-| Mikie Sherrill: What to Know About New Jersey’s Next Governor - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPNmNvZ2dZODRYeUhRYmFGUWNLaUs1UEdsb3RWb2FIVEZoWENUSTN2R0JHWi03RmVpLTRhX0RsLVoteTZsYlVYTUgyaEg0TjJvcDRvSzNJbUFBMHJDV3RPYm5aRnRjRml6UGlOTE9MLVFrNDlndzVKcEU4cnY5R2hKUHpjdzI?oc=5) |
-| Israel says Hamas returned body of Israeli-US soldier held hostage - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5iZjdvVEJ5SnZjcF9CVVE0aV9kWEdSUHp0V2o3amFSY2N3NGd0aEhtdmZOWklOUFNFMlRQY2hLTDd1X1pPOURuYkpPVTJBNnZrVHhfb2M2VGhjUdIBX0FVX3lxTFAxTS0taXpJNEhQUl9WRUcwdWZzWnJIUks0ZU9tTUJxMHA2WE5nNTJxazRGdlJQMkpqUndBcG1vaWxTS0h5d19GcjhDRFpjaVg4WVk0ajFpeG05b3Bvdldr?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
