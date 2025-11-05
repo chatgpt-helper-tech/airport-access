@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月05日 19:32:22（北京时间）**
+🕒 更新时间：**2025年11月05日 19:41:06（北京时间）**
 
 ---
 
@@ -9,9 +9,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Criminal network behind UK mini-marts enables migrants to work illegally - BBC investigation | [阅读全文](https://www.bbc.com/news/articles/c0mx99ple17o?at_medium=RSS&at_campaign=rss) |
+| Several critically injured after driver rams into 10 people on French island | [阅读全文](https://www.bbc.com/news/articles/c205z4963vyo?at_medium=RSS&at_campaign=rss) |
 | Britain sliding 'into economic crisis' over £85bn sickness bill, ex-John Lewis boss warns | [阅读全文](https://www.bbc.com/news/articles/c7v80n7mz2jo?at_medium=RSS&at_campaign=rss) |
 | What a UK government led by Reform would really look like | [阅读全文](https://www.bbc.com/news/articles/cm2kyjrg77eo?at_medium=RSS&at_campaign=rss) |
-| Several critically injured after driver rams into pedestrians on French island | [阅读全文](https://www.bbc.com/news/articles/c205z4963vyo?at_medium=RSS&at_campaign=rss) |
 | Oldest victim of Post Office scandal, 92, receives final payout | [阅读全文](https://www.bbc.com/news/articles/c74jvd0drvvo?at_medium=RSS&at_campaign=rss) |
 | Bonfire Night's Beaver supermoon to be biggest and brightest of 2025 | [阅读全文](https://www.bbc.com/weather/articles/cj97v84gyw0o?at_medium=RSS&at_campaign=rss) |
 | Mortgages and AI to be added to the curriculum in English schools | [阅读全文](https://www.bbc.com/news/articles/cddr3v6j9mmo?at_medium=RSS&at_campaign=rss) |
@@ -30,9 +30,9 @@
 | Verifying video of deadly Kentucky cargo plane crash - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5qRTZkamdQWXNMNVU4T2hsZXdjdHJ4LVRXbE9ZZ0EtQVQwUVk1cVRaWGpaTDFhWW9hdWRYM3hrb2l4dUMyMU5RbzN2OEp3QVVWb3FOVQ?oc=5) |
 | Trump dismisses bad election results by blaming his not being on ballot, shutdown - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPejlnZzlReElfeVh4MWd4RldCWjJaUmxQYWEwRElLUEo1cGh1TmxDc1dGS1NjYlJGZFFpVkxfZ2hWRDlwOEtqYnFVOUxHUkRzNkQ0eVNTZThxSzNvVlpEcEUzQWNhc29sVExNb1FlZk1QTl9MMDBiSkRwLVJFc3ozUVZ1ZFVMSGtOTXdBM05QMktJRmZxMnNFT2NIc1F5UzFrYy0xZEZ6MkJjV0RtUE5Rc9IBtgFBVV95cUxPZE1JUm5TZ1F6TGg1dzhmU0dPMlpibHVqY25JM2VUd2VZa1JPV0t6S2VadV9ZWk1ObmxSUDdpdldnNHZEbTQtUmlCdHRXbVpRUmU4UnUxN2JUM0N6cE1HZ2hDN2ktZ3VzVnpPSmVBNEJsSDRPdlFSOXhiY3IyR2s0OE0yakgzUTVELXJLbXo1aVp5eVZhNHBRN1YyNDk1dVRFZU5Tc1NFdWNmRlp0c0d6czFjbFNiUQ?oc=5) |
 | Live results: Key elections in Minnesota - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQZlFlSGhEa0lQWUo5Q0dGdWFsdjc1S3FXWlVkMHIxV0tPdVFtcmhMMFZKWVI4bTA0a1VjZ1o5YmVkNWFrS3FpaWpyQU5CbHNjUWxEUkJ1OGI4bXdnSDBZWHRGSUZHU1Z4dTNJanplcVdUVENnMnVTMXh0TkZ2bEJ5eW5BeWRiOTJzdzdUejNrTnoydGRJQ3VmRW5R?oc=5) |
+| Mikie Sherrill, a Democrat, Wins New Jersey Governor’s Race - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNb2lsbUFUdUhwTTUxUEp5Tm1ENloyVklXeUpLOGhaRTdzSnlZQmIxYjNGNTEtVVpNWVhudHVhWlJxaC1PbXNDRHdQSGo5TXpOR1NSdUxtSHVTd015OW5jZkRLbVhZOUtjMzNUN3VwOHhRbVR3Z0M3V0VmY0poWkkwRnZXTGc?oc=5) |
 | District of Massachusetts ｜ Two Arrested in Connection with Explosion on Harvard Medical School Campus - Department of Justice (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOUFdNbXNqQTlZZTBrcmF1Q3VFeTA3TFRJNGpOWGFHdkpuc2pvTmZPVXNsSURhaTFBWkxOcVl4T0xaaU80N2lvQi1ndktIODB4dVl6NEZPR3RsSGtQVGVZaWw3VDFGdmNVSVR0Y1pKZ3NCLWVQeGlweFY0cTVxaHRCYnpoQ0ZJV3J1VFczSmN6Y0FhOXh3OWJodzFndVdoOGM?oc=5) |
-| Democrat Abigail Spanberger elected governor of Virginia - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPVy1aQ3ZKTE01dlAzWUM4QjR6V1ptb1lOVXdrTEZZSk9LNlV3NHE5dURiZVVURXpsdkE2VFVGMjBkdGM3ZGtGdXlncVhvVE5IZ0tDYU9MbmdJelN2V3V5MHU3UnNIUzRlT08yOGlrNUJ3ZVpoWW5oeFE2Y1ROM0RMdXh3N0taUTF5cnhxZw?oc=5) |
-| Israel says Hamas returned body of Israeli-US soldier held hostage - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5iZjdvVEJ5SnZjcF9CVVE0aV9kWEdSUHp0V2o3amFSY2N3NGd0aEhtdmZOWklOUFNFMlRQY2hLTDd1X1pPOURuYkpPVTJBNnZrVHhfb2M2VGhjUdIBX0FVX3lxTFAxTS0taXpJNEhQUl9WRUcwdWZzWnJIUks0ZU9tTUJxMHA2WE5nNTJxazRGdlJQMkpqUndBcG1vaWxTS0h5d19GcjhDRFpjaVg4WVk0ajFpeG05b3Bvdldr?oc=5) |
+| Democrats flip two seats on the Georgia Public Service Commission - Georgia Recorder | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNUWhxNGpiRG1hQlpRdVIzVnBrMmpKdDVueVVfRmxhWUZXb0xiWjd6QS05dXp0bVBmTlVaVUd6QVNpbDl4OXBaUFJDQXlCSVJ0WC1GWV9nckhMLXVCODZ3RTZnSklyYmw5U2ZvckZodF91U082ZFNxQ25VN2RMdzQ2eVJPWlNyZGNscG9NV0cwS2JqUzAydjJwWTllaVp1aGFFejUzNl92N2d5cS1fOHQybzM0Y1VxMWs?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
