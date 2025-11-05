@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月06日 06:08:26（北京时间）**
+🕒 更新时间：**2025年11月06日 06:16:08（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | Mapping a Democratic sweep across Virginia, New Jersey and New York - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOczlORkNMU1d4OG1JQ0swaGxxSDNyTzFPRDVGbk9oSWxlSEhXblFRTncwbnBkV0NTQmVXWEFqSW42UmlTREFERkpWRkViVU9qdHRtbW52aEtPZWthRVpuMlZleW4tdU8xd0V0R2pKUF9EcDMtNnhaUk5vdjU0OFdzR0F4M2MzVEZWaFdpZUI4TE0tNW5XeHc?oc=5) |
 | Republicans file lawsuit to block new congressional map approved by California voters - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQelBDZHVvZjl3bWRFRkpoQ1RYTS00UlZJWXpfUDdIS0E1RTlNN2dVRTcxUjJSOXJrR19aVi1IN2tUZnNjY0xJRW90dzlnTWV3a0RDekZsLXVnOXJVdWprRUE5VzVBVGtSZ2ZFQUlJdGhsZkRpT1dweGJEUzFnNmlsdWpObGUwdUh5TzZfSmt6TG5ua296SXc5UzdlVVJGRjRIMC1pczE3dmxZLTV3amExLTNQYjVscW04SHZ5b2cyZk7SAcYBQVVfeXFMTTlCdGNfeV9PbGJyZm9lLWZTQ2xNQW8tZnM5WmpwUlNoMWxldW9yUEgzSGdrZVlaQW5BQkIwak9wc2ZWeHlBSHVfRjlvSVU1a19JbzZvUmpIVExjOVlDU25WaEZicVVSX1h4QjVmbHVJVVdyMHUtd1hpSVduVjhCOUtIYnppQnBUSWRucnhZUERsUXFMdWp4Q1RhYjIwYVFKdzlyckt0RWpiRjZobS1HZXNNSXZBSTQ1REZRTlVsY1VLb3l3S2tR?oc=5) |
 | Video of UPS plane crash in Louisville provides clues as investigators try to determine cause of disaster - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9ReTZ4YjI0YldjVF9veV9NekRHRmQ5dFFFay1jSzFhMVFNN0tvdUNJeC1IRjk0b3Y1ZE82OWZhWDgzS0N1QnIxT3JBM3QwOHFkZG5xa05Kb2U2dGg3N05BN1VGMFIzNmVwRnZSQVZsZWFkbHpEQU9F0gF8QVVfeXFMTVpTQmpUWjJaZFFMRjEweFdKZ2l3UEhRZGRScUU5V1ZZQUFaUk1wY21GV0t1MGY3ZDVyX3RuMkZ1bTFUS05VTmVCYTZEZEZmNy12VGFsRTRfT094RVlqU2Z2TGFhbW10QWFfY3A0MUdRMVVuMGZPTERzRW05NQ?oc=5) |
-| Democrats gird for a longer shutdown fight after election romp - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNaFRINVBjVUxRRWhSTEltaHhfM2p6WTNGZzlpTTNhR3hSa2pXWlNPZW5lU3VtZ2czNVBfRWozSTFyaEdSX0NpZVgzemozcDBZaVZNanpkbkdOWWRmcEFFUUhQZF96dnpfM2ZKVmV0aHE3azhPWTYybEluUHdBWjFlRWQ4RVlHcDV6cDVpRg?oc=5) |
-| Mikie Sherrill says New Jersey voters want 'leadership' in face of Trump's challenges - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOT3VoTEl1NGZWUzRmMVF0SWMtR0k4V0hGXzQtbzlfeGcySXNSWml0RlN6U0ZZNldWY2w1aXhIekx3SHNYUW1rOWJhbWpDV0dwY2NkTlFyajFkaWR2Y3JRNU1hNGY4WU1sYjJlMlhVSGV3eWlXc0FSZVZJaF9Fd0V5d0stVWZVdWFRY25aQ213cVdUQQ?oc=5) |
-| Judge Berates Justice Dept. in Its Prosecution of Comey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNSVpzSWFaSlpEV3lHY2Jab0JXNVFxV2VGR00xM0xDc19tekJPeG9xSGJTYzRVNnJFaTRsMEkwTTZoMUFYay1GTmNSeTFOdi1sWF9MWFI3WHlYSURPaVlxbHg3RVRoekMtSjNyZnQzOTE0bGU3c1VoU01GQmJKZWFUcUIwR0RXdG8?oc=5) |
+| After election wins, Democrats split on how to end government shutdown - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNMFVwZ3hJV1hKN2ltSXdMZUpRXzdJMW43ZWRtWnZCR1VtYmRpRFpOQ1pHd3lwOHdtUy1QY0t1dnhtQ3l6amhPbXB0dXlia0FSeF9GWXI2NnJGbnNBM25QTlZFeW0yV09aaHF6NU5UTXI0aTMyQmNXUTRJQk9mZHA5cVB0R1E5SkdyS2pz?oc=5) |
+| New Jersey election results 2025: Here’s who won and who lost - WHYY | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9FbFhKaFNkY3ZFLS02UjQ1SzNZblhWVHJNa05CcGhrMWhzLTA5bVdDb0lPemdFZzBTUlI2VXoxYkktSlpHZ3pxemRGWXg2X29fY0x2ekJYMFplcUF6cmRaRVlXRURLWWJSdi1oYVM0eWdRY3BDa1ltVjRwem01QQ?oc=5) |
+| What’s really concerning Republicans after Tuesday night’s romp - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOMFhnX1B5blR5TkNTYWdJZ0dsT1laNU55bGZLWU1tcWI5dVdwSy1hdFdFT0NTQm5UMGtJdDNPS1pLTjNZXzdUR3YtYVJjLVJlN1JNVzZKTFkwNVpvZ1V0WHdBUExJUl9FdlppS1ZRNmNubm9vZmtybzFfTWplSVRLSloxaTRfTjgtbnR0aFdiS3E2TkozSFZEU1M5RXE2dnZlU2hYY2p0bTNmQzI0Rnl6cw?oc=5) |
 | Israel receives body of another hostage as Palestinian deaths reported in Gaza - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxNMnVDdlNRM0NWNkV0VGVQVWtRZmZINS1kM2o3Zkt6S1RWZHJtSWFXRmdEVjM4OGd2dFFkRFQ5MHNPZG05R0VSSkVEMFoyeHhtZzRqd2RlMlNlWGhhSnBlRTlTVGJSN3MwSFRhYlh3d0dHM3JBb2FPbzJzYmhQN0QwUDBLMWhuQWRsb2tMdWxzdHQ4ZHB3X2Jwc2VZd0c1a29ReE5GZ25DTUdRU194UWFGTzFXM0tUbmNUcW5YeXFRMWZGaExFWmc?oc=5) |
 
 ---
