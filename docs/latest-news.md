@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月05日 21:32:15（北京时间）**
+🕒 更新时间：**2025年11月05日 21:40:29（北京时间）**
 
 ---
 
@@ -23,15 +23,15 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Fox News calls NYC for Mamdani, VA for Spanberger; polls close across the US on Election Day 2025 - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTE96SVp2d0RkNVpjZFZrV0lOY05BTUVIcWpVR2h2amI2R1VOdl9yYnVMZzJQbEtDWmc4N0xGSjNvMGZLcVRuWGgyMm83YnFpMXBJQlhjelNVa0hLdlpYVDRfZFVoRTBrSnl4V1FB0gFwQVVfeXFMT1dqQTd0YVZjMHhSVEp2b1NDcnZfb05RMmNhbXQwanJZb215d2lqRmdIeU9kWmhZVlJERERDaXBiUmZQSUYyQ3FQanVvM2d5NWQzOUlROEpZWko2RnBZejJSa2hiRzVXbVZKVmlEWklyTw?oc=5) |
+| 7 election takeaways — from Trump the foil to post-cancellation politics - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxPaVh4T3o1YU1EVkx3SmYzNGtVMFlycHhWMW0tWW1YaVo4QmoxTTFQanFWaS1iWHNCQXczTjdNM0VuZG5CVlQ2QkRydW9JZ1llRVE1M041bllPX1B6UTBxaDF1eEZpenctbDBLeVBseDl1ZjkyUFFrUW03NmExS3NxSkFPVmVWbURYRUJNMGQ0OERtc2YxNkhUVmEyeExyNDRselF5QzdYNURzY0pmZ1p3Q3BTb2tyR1k4Zi14akJJUENiT3AtVVFKZXVkT1U0RUNaaThZdA?oc=5) |
 | Mamdani Walks Offstage to Bollywood Song After Victory Speech - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPdDZyVURuMUxaZi1WWGQ3YkhTMWx3dmdWNU1XdGludG04YU9rZVVzbnprVjJ0MWhYUVE5SjVkMHFxTFdUa2pHSHpXelRRbnRXbDQ0QlRzN2JmQWl5d1VCVVlUSlhWNzduYmYtNlBLU1BfV2pwUFhVak5HNUF2NjFWX2dadWR3am5YR21IYThaaE4?oc=5) |
-| California Republicans thought they could beat Newsom's gerrymander. They crashed and burned. - Politico | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE9jRGF4R1pvQ09wWW9kTlB4WU1sTDRoOXNXbXphZ0M0V3pNMFlmSlgyNmlfelBfeDc5bUs2eWpobUxENU9kVk9nOVZUZGJNdWNTNWppQWRHZ0JVLVYtRUY0REJMN015Ml8tTEJNRHkzcEtQVW1l?oc=5) |
-| Virginia election results - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiX0FVX3lxTE1vUW16TVpBM0dhQVFmN2ViYlplVEFfX2tjd3N0eDlxcm5wdG1NZUU1aVhGY0pudUZTaTFULTIxYWhMak02YUVQZWU0bU0zUDFLLUpiN3JWT1VULXgtTWNF?oc=5) |
+| Live election results: See how Californians are voting on Proposition 50 - CalMatters | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQVnFJdlQ4bmlWYzBDcHlTY25oNm1HQ1lrbHlpNlhKT3Zycm9ESzhEWkk2dzZsNVIxYzMwRGlUdDljb2l2dDhLWUxhdHpDMHhlVjN1d1NmbHRJQkhKMU1GdmM2eGdqSkhSS1Z3X1lzZTNER014MG5oWTN2cG1vN0ZpVV9kS3RRQmVtWFE?oc=5) |
+| Virginia election results 2025 live updates - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPNnFkZVhBeU9RbkZnTjJ1MTNqdXNhbE1HdVpsaXN1V2FGUlVSZWhZZ0dTSDluRG4zY3N0dFNmWWhvQTZEMk9iR1NMVHhOeVB2Tk04eVFhcXdsaXpuTS0xOUlpNzU1Qjc4aElGRnZMMDF0VDlEaEZLdk4wV3psTmtYSE16X3NaSnViZ19IaDRoV1YzNXJBMnc?oc=5) |
 | The government shutdown is now the longest in U.S. history. See how it compares - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNcHlFMHJSMTlQa2JQYWtjVm4yY09jd0JMaktzemJ5S0VBd21feXVRY3VHenJEZkpwNi16UW02UUd0YndmdVk2Q25uZHhWRkx0S1lWZF96bmk1VDVHLWhDVUZzMm55cFV4YTl6NWNkWnl5Q1Nva2dHUUloaEN2TFpyNXRtODJGTmc?oc=5) |
 | A UPS plane with three crew members crashed after takeoff at the Louisville airport - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOakNPcjFpdEx4OHF1OHk4SVc5Y3ZJdFJxUlB1VEVJMTBYM3VUTU5Eb28xd0V6YU96VVF5MkJ5emF3SFZ0c0U1aGd5Wm5ndnJuU2RTOE1WbnRVYlpZQjl6cHNvZjE4eFFPeHdENnUxaVlDbXBtVFBfNV9ZWHBhWkpDaEFB?oc=5) |
-| Supreme Court enters the lion’s den on Trump tariffs - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFB2N3otS0ZqSjNMWXUyZFR2R2hoamNhNUVQRGpFZkRkclRMVXVQUUxMQm95aFR6VDJaSkk1eWU2eFFuaUdibEszeHB3M19fT1p3UUtCRjhqYmRoQTZpVlJRMDc1NkpxOXFmd1hpVlVoQWJ2eGJhVC1yUl9wU2k?oc=5) |
+| Supreme Court weighs Trump tariffs in a trillion-dollar test of executive power - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQdGFkLW5kN3RwejhweDlQZnRUckdQWURyMV94U2JCTnM2eWl2d21aZUhsUElaVzNMWXhpLUZ4ZVpyUkhIVlc1d2d3QkVBSGwxNnYzVVNFS1VzWFJzMHB3Y2k0R3pISlVjWnIxa0JEQWV3bnUtS1k0TXhuMnRvYlJOOXQ2UEdIUmxLX0VwUWF5bEY?oc=5) |
+| Here's what CBS News exit polls told us about the 2025 elections - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQbDZKeFdDSWM2aVREcnZfYkRETm5BMXlXUG9QbzI5eUFfalRIXy1BanBGU1Y1ZkNHOGJJZnJHYXoxSEZmMGU2cm9aUEJhY1h1RHg3YnpPZ3BBZi1iNm5MelFOQ3ZGWV9NRi1yX3pkR0JBQThkX3MyOFNCSFBxM0prVHhxYVd4dnNwZUN6TdIBkgFBVV95cUxPNjIyc0c4VmtNWXFIUDVVN3hlNkppSmQxcFlwMjlUck41VUNfVlBVNlUzOG00X1RabHh3RHdiWmQ4dFB1bjExcjZKQXhzWUFSY2kxTEFYRUhYN0RRN1JxVjRfRnh2Z1lsNkJQVFFoMUJrX3UyYjZMYjVyeXRCanJoVDNuVHMzVHNBV2xFUXBENXhKZw?oc=5) |
 | Air traffic controllers warn of 'tipping point' as U.S. government shutdown drags on - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPZ2J5aHByVW1VdzZDMkNua2xQSlQ3R3lmYjBPN3NHT1NJTnFxMUYzdlpERUs5d2VkYXE5TkZsZGFlMkw2TUhaVHlCMW5vYTFUdDNOZGp6LXhmc3NSZHgtajlZUWRDVWlRWXhYWnhzOVFSZm9ZMk53RjFHY1paM1FNNjhUcDBJMThhZU9Nd3pPV1NWQQ?oc=5) |
-| In an Upset, Democrats Oust Two Republicans on Georgia’s Utility Board - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOaUNNQy1SYmlST2dyU3Q3TzhZV2FJMjEyUUpDNkltcnh6QXdOY0ZVR0lEeDVHTkRiendFNDdfYWEzV0o4anNxaU9KeFFCWF9ROXZnV3hpVEREQ1NTTFE4dHhYa2VmRDJwOHQ2cU1KVllTVFAxNGV0TG90TGhpaW55UGtVaWE3bUFs?oc=5) |
 | Democrat Mikie Sherrill wins New Jersey governor’s race - New Jersey Monitor | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNTnlocFBHNU9RRDA0QTI2d0FFRlN2aUkwb1RFU0g1Y254bU9DSTNtRXJFSklZRmJGZkVuMHRvYmdheE16ZkVweXdoeTJjbWZWWXRfVmQzZUVMclNKNGZ1RWlydDNQUHlodWJRMmZSVFlWLUlkc2xqYnZWQ0JzU1pCN3ZVMmhkU2VtWWhYZlBYbFNJc0dSWFhrNFRCQzB3anBVTlFKSlFTbW85Nms?oc=5) |
 
 ---
