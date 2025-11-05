@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月05日 16:41:35（北京时间）**
+🕒 更新时间：**2025年11月05日 16:49:08（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Live update: UPS plane crash near Louisville, Kentucky, airport, at least 7 killed, 11 injured - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1acGttdEFMQnBuX1I4TkwtbU1CS0xaMXNVendabUZCWFQwUzNHem5CWFJjRVZsYWJzRG9kenJ5cXNkSFpDS0dQWjF4S0ZTX3RWenFrT0JyRGtQY05BQUloSHhDS1RNeEIzcDk0alBRb21XcWJocnc?oc=5) |
 | The tariff case puts the Supreme Court’s conservatives in a bind - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNVXZUTmRINXhUR3lGUEpkdzQzOWYybVh4WFRwbHM2eTg1b2w3dmZlWTFCdnlVSHlQQWdRQjJfUXpvMHIxN0R5U0xEV2swbHVSU0FNSVRIN3BaZHFKYUhqS0tJZWN0SEZHTGFGMFhNb191a2RwakthSVd3NXRYeUI5NmY4UXpvMFVnOU5ZeTlSazdCdHVqeFRWNUJXYndleTdQ?oc=5) |
 | On Eve of Shutdown Record, Trump Administration Threatens Pain Could Worsen - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNQjF4SUtkdXhtWGxyUF9ySjdpNFRzR2E1QjM2akNhWTJ1Wm0zSTZFbmE5cEV1U1N5VUMteUJaM3VNMkdSSEl6YWJGWjAyRC1VNXN6Uk0zeTRTUmVHR3FKY3lIRGdseUhCZVVZS1c0djQxbXd3VzZOOGU1ZEhvZ0c1cTk1RDZpUzZFdFlfYmdNbw?oc=5) |
-| 2 young men arrested in explosion at Harvard Medical School: FBI - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOVUd1Y21iQVhmekhmclp2akdubzZKWWQwTzVUb29peWNmbGdZczRwNGFzTkZFOHQwUEcxeEVvbjhpaEFna3hJSGhLOVBMbllKYmVlaXdldEFoWExac281Y0FDYXNaajhxNUJmQ29FdEFabDMzWHBudHNjOTFOVmhmY202UU9XRFViTUpoYXNDUUFCUzNMa1hWMjdadUzSAaIBQVVfeXFMUHpuUjJvQ1UxNjNJN2t5a0ZDUFNpSU92TmRLX1dyWXIxb2Q0bEJCY2ZxakhzX0swa2NhUm83S1FlMGlWdUROazdMblRWWEd6UDFyZ05hWEQ5VWE1bVYyTVJRbjhjcEVyZEVzdk9QMjBQT01XclQyQzVqQndWY3FsZi1OaUxrR1RmZGpXODVzMWRudF9WaXA4Y3FBRUptUUV6S0JR?oc=5) |
-| Mikie Sherrill, a Democrat, Wins New Jersey Governor’s Race - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNb2lsbUFUdUhwTTUxUEp5Tm1ENloyVklXeUpLOGhaRTdzSnlZQmIxYjNGNTEtVVpNWVhudHVhWlJxaC1PbXNDRHdQSGo5TXpOR1NSdUxtSHVTd015OW5jZkRLbVhZOUtjMzNUN3VwOHhRbVR3Z0M3V0VmY0poWkkwRnZXTGc?oc=5) |
+| District of Massachusetts ｜ Two Arrested in Connection with Explosion on Harvard Medical School Campus - Department of Justice (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOUFdNbXNqQTlZZTBrcmF1Q3VFeTA3TFRJNGpOWGFHdkpuc2pvTmZPVXNsSURhaTFBWkxOcVl4T0xaaU80N2lvQi1ndktIODB4dVl6NEZPR3RsSGtQVGVZaWw3VDFGdmNVSVR0Y1pKZ3NCLWVQeGlweFY0cTVxaHRCYnpoQ0ZJV3J1VFczSmN6Y0FhOXh3OWJodzFndVdoOGM?oc=5) |
+| Pennsylvania voters retain Supreme Court justices Dougherty, Donohue, Wecht - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNN0NGbzRrd3dyeU5jT1BOeGVqb1VCSHpPNTRCSm83N3Zld2RGZnJZenRrQmVnRDR3UHVIMUJqZlpFaXlxZkEtQjhWU3FmdTlkOG9uX3h3ejkwNU5xUHY3YnJ3N1dJYThhWFpMcEpLV2E0WGRZWU9wNGUzX1dDSTRoSnYtQmJVUGtUcGl5OHk0MURhVkxRUVpRNVJDaXZrOGxxd0NUSEJmMTFpc2JXZHZianYwdnhWS1XSAVZBVV95cUxOR3RQZmlGZXBmWTlBdEZ6SnBGNnR2N3UxWVBIQ0VueXZrY1otUWlrNzhLZFptemNVNjlFd1QxaVNaUmRkWkV5bWVBcXY2RDE1YXdIc0p0UQ?oc=5) |
 | All 17 Texas Constitution amendments on verge of approval - The Texas Tribune | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNRVdiNkJWLVJGQXM1OUdwNVpRSnVBT3otcDhIMFFPRUhtZzhZMm5Jd2l1WmUwazJDTzJOZ0prNHEyZXRDd2U4M3IycHNBMDl6SXhSUXJnU3dpUUFZYTRMMUVIeVFrWWQ0azJkcVVXcm1ya1dpZGUtNTBFWHFBLVQ0MGktV3YwaWpRaWp3?oc=5) |
 | Typhoon Kalmaegi: death toll rises to 66 as widespread flooding hits central Philippines - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi5AFBVV95cUxNeEFxNENUMHR2alBmV1JxM3laSlR1YmdOUGN2LVJPT1VCY2o4N2hLWGNvdnlKWXVXcHlEVmxDQWthR25jczhfWElwaGgtRkJrM2FGWThIa0hHY21DVll4UFR6QmxpbWlUVTFpNXVjOWFUZlFmdTNPWFRpRHpRaGc4ZnA4MGRZdUtWVXl5QTduQ1FqOXRiRmcwOGFwdXI1WERrX1lmTmJfbkNkRXFtc05yU3M1cEtHVHByTk1GdEd3aExHSnFMSWVVSUpmdTFUcTYtUi1veGdBY1BDWl96VUg3eFA5MGQ?oc=5) |
 
