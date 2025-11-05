@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月05日 16:57:18（北京时间）**
+🕒 更新时间：**2025年11月05日 17:01:22（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Mamdani is New York’s First Muslim and South Asian Mayor-Elect - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPZ3VkU2FRNlRLLW9IMjF4WEo5VjZqbmYzem50bzJNakFqU2EwRGNpRDlud3l0djJrLWRtMWUwYkNxMFZrQ2ZMeXhjWDN6aGlvblQ5Y0ZacXRNZ1pyNFQtcjlWaUVOaUFPemt6UmZlTWhOa3pDRHpMeXZ2Z3E3c2NVc3otbmVSTElEaXVJUmZn?oc=5) |
 | Democrats sweep key races in 2025 elections in early referendum on Trump - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFByWEdZTTVQSTBCMVZLWUxWX1MxWGpXN09falpIbG5rSXZONVoyRC1GZ25RZDlCUEJzMWdXVnVlR2k1VDFVZkpST1NSMHF6UnAtOEo1QnEwNUtMcjJzYy1GYW5mZ01NQ2hvQ2ZNZmhVa3BMSHhpOGZ5QjV30gF_QVVfeXFMUGh4YzdkZFJRUDhPRUc1M05sTzFJeDRDNktDeDlReFNJU1Q4QWdNSGpvUGZobWl5ZUlKR2U1MV9PZ21Rb0pJRV9Ednp4ZkZrYlpyeDNmYmFqVjhRZk1raVc5S1gxYmhxVjlPWGd0QnVscS1zWWxXQV9MR1BELTlGZw?oc=5) |
-| Live update: UPS plane crash near Louisville, Kentucky, airport, at least 7 killed, 11 injured - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1acGttdEFMQnBuX1I4TkwtbU1CS0xaMXNVendabUZCWFQwUzNHem5CWFJjRVZsYWJzRG9kenJ5cXNkSFpDS0dQWjF4S0ZTX3RWenFrT0JyRGtQY05BQUloSHhDS1RNeEIzcDk0alBRb21XcWJocnc?oc=5) |
+| Zohran Mamdani elected mayor of New York on winning night for Democrats - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQcmdyTjVWRnpDdHJfdzlIUjRnOHJpSERFVl9CcFBGTnZUeGxhelJiREVZbzNIcDhmdUU4b1NaTHFSdjFzc0hRVHFFck5EZWM1eU5sbzNWd3NhSnZQMGxnaEZUdUVDS3BtSTZ6N3l1VVc0Rm1xZ2RNMng4SURBRUNkNWFpQ1NMRVgwOXc?oc=5) |
 | The tariff case puts the Supreme Court’s conservatives in a bind - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNVXZUTmRINXhUR3lGUEpkdzQzOWYybVh4WFRwbHM2eTg1b2w3dmZlWTFCdnlVSHlQQWdRQjJfUXpvMHIxN0R5U0xEV2swbHVSU0FNSVRIN3BaZHFKYUhqS0tJZWN0SEZHTGFGMFhNb191a2RwakthSVd3NXRYeUI5NmY4UXpvMFVnOU5ZeTlSazdCdHVqeFRWNUJXYndleTdQ?oc=5) |
+| Live update: UPS plane crash near Louisville, Kentucky, airport, at least 7 killed, 11 injured - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1acGttdEFMQnBuX1I4TkwtbU1CS0xaMXNVendabUZCWFQwUzNHem5CWFJjRVZsYWJzRG9kenJ5cXNkSFpDS0dQWjF4S0ZTX3RWenFrT0JyRGtQY05BQUloSHhDS1RNeEIzcDk0alBRb21XcWJocnc?oc=5) |
 | California Prop 50 results 2025 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNR19jenVUdlNGTFNyWEpFeDRmMGdHTUxqWkVSMTE2bVRpRnZvTjl6RUd2LWZ1WEJrSFJYTU1rMkIzd3I3UjlBR0Q2eGZGcGpiZlJmTS1lR3doMmFPVURHN05PSGRFbWZVckxrdml1WEV6aUt2M1NkRzRhd1RBUmstczFpVG5iM3VrYldhOWRmOWQ?oc=5) |
 | On Eve of Shutdown Record, Trump Administration Threatens Pain Could Worsen - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNQjF4SUtkdXhtWGxyUF9ySjdpNFRzR2E1QjM2akNhWTJ1Wm0zSTZFbmE5cEV1U1N5VUMteUJaM3VNMkdSSEl6YWJGWjAyRC1VNXN6Uk0zeTRTUmVHR3FKY3lIRGdseUhCZVVZS1c0djQxbXd3VzZOOGU1ZEhvZ0c1cTk1RDZpUzZFdFlfYmdNbw?oc=5) |
+| Mikie Sherrill projected winner in New Jersey governor race - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1MZjIwUm02M243OUtJZXUzajBULU5ZNWQtaTF4UEdSWmw4bEdTeS0yb2NVYkFPS3FtM01IdGhPV0s4LVdRNGlOSERKWmlPbU5XMnB4endrY0k1Z9IBX0FVX3lxTFBLNnB1MzFiVUFVN3hEMi1MUHR3Y3ByYmhLZFdhR01CS1YtUWN6b21Ja2dEVXpzN0dWa0prWkZIZHYtQ3VTWXNHVHJ5cml0enZVTHBZaER6bTl0ZDhwRkxN?oc=5) |
 | District of Massachusetts ｜ Two Arrested in Connection with Explosion on Harvard Medical School Campus - Department of Justice (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOUFdNbXNqQTlZZTBrcmF1Q3VFeTA3TFRJNGpOWGFHdkpuc2pvTmZPVXNsSURhaTFBWkxOcVl4T0xaaU80N2lvQi1ndktIODB4dVl6NEZPR3RsSGtQVGVZaWw3VDFGdmNVSVR0Y1pKZ3NCLWVQeGlweFY0cTVxaHRCYnpoQ0ZJV3J1VFczSmN6Y0FhOXh3OWJodzFndVdoOGM?oc=5) |
-| Mikie Sherrill, a Democrat, Wins New Jersey Governor’s Race - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNb2lsbUFUdUhwTTUxUEp5Tm1ENloyVklXeUpLOGhaRTdzSnlZQmIxYjNGNTEtVVpNWVhudHVhWlJxaC1PbXNDRHdQSGo5TXpOR1NSdUxtSHVTd015OW5jZkRLbVhZOUtjMzNUN3VwOHhRbVR3Z0M3V0VmY0poWkkwRnZXTGc?oc=5) |
 | Maine voters approve 'red flag' law on guns as states consider ballot measures - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxOTXZ0QVVHanRZQnF3SDREcnVidU9oUmNlRVBTQ0NHN3UySUZDNjBIRmpTeURrWEdHY0huSnJHWEdfN2U0RjV1R1dPRm9pdXM3NkFlMGp6eEVmWFJqd29Mc3lOYkNuR1FkeGtSRkVSRGxoVS00WXdtRDVkaVJjS2h2MUw0RzhMLVFRRXl0cWY4c1ZIbkNUVll3WFhJamhsWVRkRXpyYzdQTl9aOTRLek5CdGhFMUJ2R01vcVFId3dnSGFNUdIBVkFVX3lxTE1Db0YzZUVCSlJ3M3lRZk5WcEJBX2NiWHpfcldzRXRrcVRyUk93TWtsTHJGMFZ3QWtxMDFhaEFVcGh5UHctXzFsUWRITkNpbHYxM2poTWh3?oc=5) |
-| Pennsylvania voters retain Supreme Court justices Dougherty, Donohue, Wecht - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNN0NGbzRrd3dyeU5jT1BOeGVqb1VCSHpPNTRCSm83N3Zld2RGZnJZenRrQmVnRDR3UHVIMUJqZlpFaXlxZkEtQjhWU3FmdTlkOG9uX3h3ejkwNU5xUHY3YnJ3N1dJYThhWFpMcEpLV2E0WGRZWU9wNGUzX1dDSTRoSnYtQmJVUGtUcGl5OHk0MURhVkxRUVpRNVJDaXZrOGxxd0NUSEJmMTFpc2JXZHZianYwdnhWS1XSAVZBVV95cUxOR3RQZmlGZXBmWTlBdEZ6SnBGNnR2N3UxWVBIQ0VueXZrY1otUWlrNzhLZFptemNVNjlFd1QxaVNaUmRkWkV5bWVBcXY2RDE1YXdIc0p0UQ?oc=5) |
+| Mary Sheffield wins Detroit mayoral election - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxQT2NTYlZacVZkdlZvZXRDRXZrWU5uTGVEakxLdVhxcnFRNVVnSGl2SjJkcGR6UlpSaVBxQzFVU2xhVEVyQkY0T2gxLVJWZmt0a3h6SlZLX0VFTjVXS25uSzdHamQxSGF6S191TTd5RnU4OFZ2ZnBkdFlldXlVMU5jam94U0FfR3VuQVHSAY8BQVVfeXFMTTE1VnFaNkh1UG5KQ0NmdlZvRUdzNHBBU19WcDlyUmZjMl9wbVhKNERNTjNLMFVSYnZGaDl0aThWbDJZQzU0Y3huNWVOSUk5azZQaEliR1V2ajAwcmlFS2tVVDlxMXRNRlJENDRMSnl1c3BQelV5YXp3VmZRaC1zZTVJZnRHNTlVeDVncTRiN2s?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
