@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月05日 19:57:12（北京时间）**
+🕒 更新时间：**2025年11月05日 20:00:52（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Mikie Sherrill, a Democrat, Wins New Jersey Governor’s Race - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNb2lsbUFUdUhwTTUxUEp5Tm1ENloyVklXeUpLOGhaRTdzSnlZQmIxYjNGNTEtVVpNWVhudHVhWlJxaC1PbXNDRHdQSGo5TXpOR1NSdUxtSHVTd015OW5jZkRLbVhZOUtjMzNUN3VwOHhRbVR3Z0M3V0VmY0poWkkwRnZXTGc?oc=5) |
 | Live results: Key elections in Minnesota - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQZlFlSGhEa0lQWUo5Q0dGdWFsdjc1S3FXWlVkMHIxV0tPdVFtcmhMMFZKWVI4bTA0a1VjZ1o5YmVkNWFrS3FpaWpyQU5CbHNjUWxEUkJ1OGI4bXdnSDBZWHRGSUZHU1Z4dTNJanplcVdUVENnMnVTMXh0TkZ2bEJ5eW5BeWRiOTJzdzdUejNrTnoydGRJQ3VmRW5R?oc=5) |
 | The government shutdown is now the longest in U.S. history. See how it compares - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNcHlFMHJSMTlQa2JQYWtjVm4yY09jd0JMaktzemJ5S0VBd21feXVRY3VHenJEZkpwNi16UW02UUd0YndmdVk2Q25uZHhWRkx0S1lWZF96bmk1VDVHLWhDVUZzMm55cFV4YTl6NWNkWnl5Q1Nva2dHUUloaEN2TFpyNXRtODJGTmc?oc=5) |
-| Japan sends troops to northern region to help stop bear attacks after a record number of casualties - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQZHE2aDFPSUROazlSbEE2X21wTS1uZTNwZF9laGhlQVR4alVPSlR1d0kxX0lPTlFvVkFwVENsTGI4dWdCNjZrMDFZMEhVMlhEekpUcVQzamxGRXpKTTFadWhWN0FuTmpBd0dGTkFMdjZVYVhZN3lBUU9GSk04TEZLajJXbTd3RmlEQWozcFJIcjR6YjZZZ0ItaDFNeFhBUXRkbGNfX3UxWU9ld9IBrwFBVV95cUxOcmRTc0tUdFZRSVRaY0J3TldqV0U0RUs1RW1NMTNKVGpTUExOa05KRXJpZ3A4U09TUHZmNHYtb2JoSEl0elNTOVRfR3NOY1phR1VkT1VqNzZpVjc0dUdCN1V3M01UUjhDUmJaLVdQcy1fQ1ZaR1NRTHNvR0NKNER1UmRYc0diMlBVR0FKY3Rsckc0bGxnT1p6aGt2c1dfLWlORTQ2bG9qMDdBNWlpa3Fv?oc=5) |
+| District of Massachusetts ｜ Two Arrested in Connection with Explosion on Harvard Medical School Campus - Department of Justice (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOUFdNbXNqQTlZZTBrcmF1Q3VFeTA3TFRJNGpOWGFHdkpuc2pvTmZPVXNsSURhaTFBWkxOcVl4T0xaaU80N2lvQi1ndktIODB4dVl6NEZPR3RsSGtQVGVZaWw3VDFGdmNVSVR0Y1pKZ3NCLWVQeGlweFY0cTVxaHRCYnpoQ0ZJV3J1VFczSmN6Y0FhOXh3OWJodzFndVdoOGM?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
