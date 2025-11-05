@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月06日 03:57:02（北京时间）**
+🕒 更新时间：**2025年11月06日 04:00:04（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Democrats' 2025 election wins go beyond big races to places like Georgia, Pennsylvania - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQX0ZkdTYxMmNiZWZEMDlNeW5WR0R0bnFGRXgxWlNaYWM0NHRndUw2OUpvTFhrOHk2LVVPMWFlSGtiVXBUc2E5eGlVbUFSUUNYWVVsZTYtOGxyWjlDaE40NlUwMUR2MUpSVURWaUhsOW5kd0U2Q0tKeFRVLWJVVTFuYUYyYkoyTlgtZ2I2OXk0SW9jRGRoU0VZWENxdDU5TUlQWWhR?oc=5) |
 | Biggest winners and losers of California's redistricting war - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOQ0NXSm1rUEZJME91clhjM2VrajY0anRIMVdMNTFWYkZFVmYwZHlLdzlrU2FFSlRMbk5BTV82clktV1RuLWxHQ0UyMkctOXItNTRfQ3NrQ3U1QWp2YW9yQ1hEc2RLZ3BuV1dYbkh1MkZzc0VXQ19nRTFkSTZzaHNhQWlQOV9Tdl9OdDFKU2pZUUFrYVpIZTFaajk4Vm10ZTRxcHA1UnVmWnROMnZSeXc?oc=5) |
 | U.S. could see closed airspace, "mass chaos" next week if shutdown doesn't end, Duffy warns - Axios | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPMjRXcVZoUW5ENlZUZ0Myc1F4TWdGSDZXWXB2VlhSMzNaMDRHR3dxLV92c0VLbFc0VGJTWF9kRUcxQnBmOHNYSTZJRWxCampubnh0cy1HR0FnVTRmajZuVDZXTWJ4Q2p6RG9WcF9IT2h4a2VvTlR3ZmhfbTBGLVN5X3FVV0pHRGFsTFBjQWxxeWM3V2JDdGczSA?oc=5) |
-| Why UPS was still flying the 34-year-old MD-11 plane that crashed - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiaEFVX3lxTFBIdkVLQjdIWmtxZnNYZ0Q0V3pUMS1COElIXzV6aVhwc2JaS2toejdDcXhwNENJdlNpcFl1SGh2S1ZqTTBwZ1RJbVdlZWtRZFNTNzMyNlpZVGU4T19JcXdlSmdJMnR4cHha?oc=5) |
+| Analysing footage of UPS cargo plane crash in Kentucky which killed nine - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5qRTZkamdQWXNMNVU4T2hsZXdjdHJ4LVRXbE9ZZ0EtQVQwUVk1cVRaWGpaTDFhWW9hdWRYM3hrb2l4dUMyMU5RbzN2OEp3QVVWb3FOVQ?oc=5) |
 | What’s really concerning Republicans after Tuesday night’s romp - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOMFhnX1B5blR5TkNTYWdJZ0dsT1laNU55bGZLWU1tcWI5dVdwSy1hdFdFT0NTQm5UMGtJdDNPS1pLTjNZXzdUR3YtYVJjLVJlN1JNVzZKTFkwNVpvZ1V0WHdBUExJUl9FdlppS1ZRNmNubm9vZmtybzFfTWplSVRLSloxaTRfTjgtbnR0aFdiS3E2TkozSFZEU1M5RXE2dnZlU2hYY2p0bTNmQzI0Rnl6cw?oc=5) |
 | New Jersey election results 2025: Here’s who won and who lost - WHYY | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9FbFhKaFNkY3ZFLS02UjQ1SzNZblhWVHJNa05CcGhrMWhzLTA5bVdDb0lPemdFZzBTUlI2VXoxYkktSlpHZ3pxemRGWXg2X29fY0x2ekJYMFplcUF6cmRaRVlXRURLWWJSdi1oYVM0eWdRY3BDa1ltVjRwem01QQ?oc=5) |
 | Jacob Frey wins third term as Minneapolis mayor - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPOHJjU0NEU1hCNl94WWFOcVNja1hGMkxWNXRHakh4dS03eGdWMTRzYlpMbndBcWpaaWlOZTRwNTVsb3pQTEVIT3ZzQkpMTG1NYlh6STlfZVhuTF9PQmlRSTVzd3U0aTFMSm9SUVBud2kxYlZsYnFkbnliQ0dOakY3TUNlT1ZZMzFZSktB?oc=5) |
