@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月06日 04:56:28（北京时间）**
+🕒 更新时间：**2025年11月06日 05:01:31（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Republicans file lawsuit challenging California’s redistricting measure - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPMjdZaGZlT3o0OGZxc0V5cTFKYXpnQzVLNG9TYW9OQ0k5cGx6c0M4QWhNN1J3MU9JMzhvOEpRT1J3MndaMTBsODFNck5zX09fTmUxbTdMTlV4LXRhaUt4QXEyQm1nNGotX1Bqcm9aX1ZwTmhFdXo0bnNDY3NtU2hKODNDbDhLdW95aXpSRk5rdWJ4WFNSM085cmRLbVFkejlo?oc=5) |
 | Video of UPS plane crash in Louisville provides clues as investigators try to determine cause of disaster - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9ReTZ4YjI0YldjVF9veV9NekRHRmQ5dFFFay1jSzFhMVFNN0tvdUNJeC1IRjk0b3Y1ZE82OWZhWDgzS0N1QnIxT3JBM3QwOHFkZG5xa05Kb2U2dGg3N05BN1VGMFIzNmVwRnZSQVZsZWFkbHpEQU9F0gF8QVVfeXFMTVpTQmpUWjJaZFFMRjEweFdKZ2l3UEhRZGRScUU5V1ZZQUFaUk1wY21GV0t1MGY3ZDVyX3RuMkZ1bTFUS05VTmVCYTZEZEZmNy12VGFsRTRfT094RVlqU2Z2TGFhbW10QWFfY3A0MUdRMVVuMGZPTERzRW05NQ?oc=5) |
 | White House ‘open to discussing’ back pay for furloughed workers, following mixed messages on earlier guarantee - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMi5gFBVV95cUxNalVUenMyaG03N192RVNuR1EtMXhpT09oZ0MtY3VzQ2p2OWpMVHAxNWh4LVV2V3g5ZXozMlV3WGF0WlY5cndDdXBvX200N0hEU1RaTGtMWkJZOURaSnREMmJLNFJ1Y0RONHBfWjg3M2hsblpSbkpNTjd3ZjlYV0RwVFlWTzV4TmJqeUFIbzZwTWZFaGxZS3RzS2dRaXhUSHhzdGpWc0g5RmlXYV81RXB0Y1lDTFNfemN0cXFndXlNbWhhc3lOZFZ3SHNqa0JZY09fV0RUUzc5RGF3cjZRXzdDS3lDdWhLdw?oc=5) |
-| Experts weigh in on ‘blue wave’ in Va. after Democrats sweep statewide races - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOalh1VWJnWXdablRJaElvZDJCME5xZzFrSEdWMjc2dEdobGFVc1FSSFEwMEthWFpMYjNNc3A3U1NyNUhXSlVQRkJycUU2UDV0LWljQXVMZmgyZWV6RE92YTlhTmRXSGxiNHg4Y0drRDRjYmNhQldOWGNfUUZTczJpZkpjQWpMZnMzUTVVZkh4cURjQkt6V09udmxEb2pwMEtnMXh3akh6M0MyWXVoLWVmUWJCLVotLW9Ob29NaVhkdw?oc=5) |
 | What’s really concerning Republicans after Tuesday night’s romp - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOMFhnX1B5blR5TkNTYWdJZ0dsT1laNU55bGZLWU1tcWI5dVdwSy1hdFdFT0NTQm5UMGtJdDNPS1pLTjNZXzdUR3YtYVJjLVJlN1JNVzZKTFkwNVpvZ1V0WHdBUExJUl9FdlppS1ZRNmNubm9vZmtybzFfTWplSVRLSloxaTRfTjgtbnR0aFdiS3E2TkozSFZEU1M5RXE2dnZlU2hYY2p0bTNmQzI0Rnl6cw?oc=5) |
-| Trump disparages Zohran Mamdani’s victory after Democrats sweep key 2025 elections – live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi8AFBVV95cUxNVzJpclR1NVJqRGFTX3g0UEoyU2ZiNDhEV3QzSU5OWllubU13VWhDaFpLazJSUjBycG1QNzVDMl94Y01MY2RJZTY3VDYxQzA3X3YyeFBRdmtnRndfb0F0VW4yeFktXzllcjNzazR5aEt2REVCYVhDZ0pOeFdhUk9sbFV3RWh6Qy1FQXhDR3JfN1F4Z05JSFIwX1R4bkgxb1lBdzY0VHVnMnQwelBMWGdMUGtCc2ZzMEZwM0FkYk9qbThfM2hHRUpMU1NDeno4dWdXOEtIajBjRDZNSlhGbmtpRmJPcDRXYmctMDZWb3lheU4?oc=5) |
 | New Jersey election results 2025: Here’s who won and who lost - WHYY | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9FbFhKaFNkY3ZFLS02UjQ1SzNZblhWVHJNa05CcGhrMWhzLTA5bVdDb0lPemdFZzBTUlI2VXoxYkktSlpHZ3pxemRGWXg2X29fY0x2ekJYMFplcUF6cmRaRVlXRURLWWJSdi1oYVM0eWdRY3BDa1ltVjRwem01QQ?oc=5) |
+| Trump dismisses bad election results by blaming his not being on ballot, shutdown - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPejlnZzlReElfeVh4MWd4RldCWjJaUmxQYWEwRElLUEo1cGh1TmxDc1dGS1NjYlJGZFFpVkxfZ2hWRDlwOEtqYnFVOUxHUkRzNkQ0eVNTZThxSzNvVlpEcEUzQWNhc29sVExNb1FlZk1QTl9MMDBiSkRwLVJFc3ozUVZ1ZFVMSGtOTXdBM05QMktJRmZxMnNFT2NIc1F5UzFrYy0xZEZ6MkJjV0RtUE5Rc9IBtgFBVV95cUxPZE1JUm5TZ1F6TGg1dzhmU0dPMlpibHVqY25JM2VUd2VZa1JPV0t6S2VadV9ZWk1ObmxSUDdpdldnNHZEbTQtUmlCdHRXbVpRUmU4UnUxN2JUM0N6cE1HZ2hDN2ktZ3VzVnpPSmVBNEJsSDRPdlFSOXhiY3IyR2s0OE0yakgzUTVELXJLbXo1aVp5eVZhNHBRN1YyNDk1dVRFZU5Tc1NFdWNmRlp0c0d6czFjbFNiUQ?oc=5) |
+| Judge Berates Justice Dept. in Its Prosecution of Comey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNSVpzSWFaSlpEV3lHY2Jab0JXNVFxV2VGR00xM0xDc19tekJPeG9xSGJTYzRVNnJFaTRsMEkwTTZoMUFYay1GTmNSeTFOdi1sWF9MWFI3WHlYSURPaVlxbHg3RVRoekMtSjNyZnQzOTE0bGU3c1VoU01GQmJKZWFUcUIwR0RXdG8?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
