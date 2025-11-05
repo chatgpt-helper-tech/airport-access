@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月05日 14:17:54（北京时间）**
+🕒 更新时间：**2025年11月05日 14:25:59（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| California voters OK new congressional lines, boosting Democrats ahead of midterms - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOV240Ny1aWmFLbE5WeGdaQ3JQT0ZTZHdwNFFXU2xFWnphT3hTdXh6dG1xcklISkU0QmUyXzhXcnVrSEtrUjFoNFNNQzhUQlBETnhpcTBmOUQ5REtGT0toT0h2Rzh1a1kySHIzZUUzYVZVMWd2aW1VaHNEbWZKLWlIRGRwLUdqX09JMl9TSVJUUFNVWUR4SzZDRmhhMGtVR2Qzd3ow?oc=5) |
-| Zohran Mamdani: meteoric rise of New York’s visionary new mayor - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE0xMHRsSjQzUTlCSWlxMUtKN1I2OXZxbE1ncTJmYWp0dXNXZlNHYWU2Qi1OQUhXcWFYODU0LXp5UWswSGZOUmxnRENyY3UzWDN2ODd0MUNndjUzLVRBZ0hEcUVaNEtLazNOWGNDXzRwbm9Sa2dSZUY1YzV3?oc=5) |
+| Democrats win big on Election Night in key races - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxON2tPaGw1TXNfcFZZRURXUGdOenRIVFYtbXR4azZjM05IRmZUNnpTUzYyeE5aNm1nVkRZR2NROU9XbHNScXpfLU5aa0E0NmNKekJacUlHR2dweWFOVTNqZ0J4QzFtaXgwd3g3cVd3a2RxaW53Wml3TG8zdGtZV2F5NGJJREVsY2RiZzdxMm0waUpHaWZMUTZ6VtIBngFBVV95cUxNWVZZQWU3bEtTV1BQdDkwcjRlNl9UUUwzRmExTEpuS2U0RE9wR1gxWURJNF9DUndZaXZWRTZneHZPeG9tZzJMaTBFVmJCTldZUXhnbTZsSmpIb1NoSnFITS1GSC1EUE1WV0ttSWU5aVE2N2l4LU4telFjY29sVnFCckp5TjNkODhvay1kXzRXeEVMbzNJLWVfUWJFXzdfQQ?oc=5) |
 | Live update: UPS plane crash near Louisville, Kentucky, airport, at least 7 killed, 11 injured - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1acGttdEFMQnBuX1I4TkwtbU1CS0xaMXNVendabUZCWFQwUzNHem5CWFJjRVZsYWJzRG9kenJ5cXNkSFpDS0dQWjF4S0ZTX3RWenFrT0JyRGtQY05BQUloSHhDS1RNeEIzcDk0alBRb21XcWJocnc?oc=5) |
-| Cheney Worried About Trump Abusing Power. He Had Himself to Blame - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQUUtuMkt0dkFvcWdZR1pUYlEzbUdfQXZycU1YSTJfb2FseDE5RVFLREtFbUszUjduY1QyWmtPWVJGRjJxRVdadmFZbVM4UlVwUUpkN2ZHOFlUMDFzUVF5WDJvV2FndU9RVi1PZ1dXZmJmQVAxQWZCaEZVVlY0WVJnRkZVNnNuRGdWVFVyTUowdXFqcGNXNWc1RG1FVkhteTBTMnpTSjVwR0hJaEk5aG9oYk1NRzJnOXBnNGtqTDVB?oc=5) |
+| California voters OK new congressional lines, boosting Democrats ahead of midterms - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOV240Ny1aWmFLbE5WeGdaQ3JQT0ZTZHdwNFFXU2xFWnphT3hTdXh6dG1xcklISkU0QmUyXzhXcnVrSEtrUjFoNFNNQzhUQlBETnhpcTBmOUQ5REtGT0toT0h2Rzh1a1kySHIzZUUzYVZVMWd2aW1VaHNEbWZKLWlIRGRwLUdqX09JMl9TSVJUUFNVWUR4SzZDRmhhMGtVR2Qzd3ow?oc=5) |
+| New Jersey governor election results 2025 live updates - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPQkFjTDIzRFpZZmpuNEtBRW1vSVI1MjkxZ1VOUEJ2emg5cElyalJqaGlkSXJWYzhyaXpPckdOSFh5QkNUUEM4XzgyRjY3eGJ6R1NGd0RRMlNpb25MY29zNm9FTHRXY0c1QmlvUVljczRYTmR2U0F2emhpMXQ1dGFZQkZIVEpleXVBSlc3RF9jSktEUQ?oc=5) |
 | Six takeaways from Canada's federal budget - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE14SE1IeFpxNVdrLXlOZWRDdHNDQnpkNmVUa2pCdzJURTQtdkhUZFRVbWNUVEtxNnBZeHQxdHJrQVhnYl9LX1RkODItdFFXWS1hUnBHb1dNZXlod9IBX0FVX3lxTE1KY2F4XzVLMlFhMENKRTJJbmRlZmJDeldUQkxIUWxWa1VxNTlLZE1xc2Q5UE1ocGlUX0FkREp3d3ozeFJGRkIwTC02YnZxODRURXNmbzgxbnhGNXhXeWxV?oc=5) |
-| Democrat Spanberger wins Virginia governor race with message on DOGE, cost of living - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOZTBjOG0ydElxcWk3WnpzVFlXU1BUMWF3MUhTcmFmc1ZNcFR4OWM3YmU2cmFYODFEX3g0SGNaaUVETERDRUM2NTBoamhMNUNfZ1hLVDVxYVkzZWY0Q09WT1pINlJoQ011QnFuZWFPUm83cWNjNkdMUkxzbWtBWjBGMkhPSE5QaW1ua0w2SFlwR2pzN2Iz?oc=5) |
+| Cheney Worried About Trump Abusing Power. He Had Himself to Blame - Rolling Stone | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQUUtuMkt0dkFvcWdZR1pUYlEzbUdfQXZycU1YSTJfb2FseDE5RVFLREtFbUszUjduY1QyWmtPWVJGRjJxRVdadmFZbVM4UlVwUUpkN2ZHOFlUMDFzUVF5WDJvV2FndU9RVi1PZ1dXZmJmQVAxQWZCaEZVVlY0WVJnRkZVNnNuRGdWVFVyTUowdXFqcGNXNWc1RG1FVkhteTBTMnpTSjVwR0hJaEk5aG9oYk1NRzJnOXBnNGtqTDVB?oc=5) |
 | 2 young men arrested in explosion at Harvard Medical School: FBI - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOVUd1Y21iQVhmekhmclp2akdubzZKWWQwTzVUb29peWNmbGdZczRwNGFzTkZFOHQwUEcxeEVvbjhpaEFna3hJSGhLOVBMbllKYmVlaXdldEFoWExac281Y0FDYXNaajhxNUJmQ29FdEFabDMzWHBudHNjOTFOVmhmY202UU9XRFViTUpoYXNDUUFCUzNMa1hWMjdadUzSAaIBQVVfeXFMUHpuUjJvQ1UxNjNJN2t5a0ZDUFNpSU92TmRLX1dyWXIxb2Q0bEJCY2ZxakhzX0swa2NhUm83S1FlMGlWdUROazdMblRWWEd6UDFyZ05hWEQ5VWE1bVYyTVJRbjhjcEVyZEVzdk9QMjBQT01XclQyQzVqQndWY3FsZi1OaUxrR1RmZGpXODVzMWRudF9WaXA4Y3FBRUptUUV6S0JR?oc=5) |
 | Trump's closing argument: Tariff case is "life or death" for the U.S. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE8yQUpFOGtzX1dGck5wZUtQQnk3Vkg1YmJIajJRclRwNFI5VzVlNmFLRmgySUJ1QjU2cTVYTTExbXY2OVZJbnVib1BnWE5reDBXekN5LVRUUkJoWFYzTnZGMy1ZOVhlSlJ1dHlub05DaHA2WG41UFpYOFdCSjE?oc=5) |
 | Judge calls alleged conditions at Chicago-area immigration site ‘disgusting’ - PBS | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPbWx2SUU0UUF5ay1OR3hHdFU2d0dDZHpGNDZkaklGVDkxZ3l0V1dUQTFQMGs5bFBRRWRsc2hoc3ViWDZGVUhFOVFGaU5FR21JNVhSY0JEQ05UM1VndjdVUjJyQ1RvWXNSSy0yLUF3R2hCcm9QSnVwYjdYdjV3MzhZeTJKYmxxWFloQUhyRktTZ1FPUzh2TzFYcC1QUV8zb1lWUUI3NHEwZzU1UHA5TkJN?oc=5) |
-| Mikie Sherrill, a Democrat, Wins New Jersey Governor’s Race - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxNb2lsbUFUdUhwTTUxUEp5Tm1ENloyVklXeUpLOGhaRTdzSnlZQmIxYjNGNTEtVVpNWVhudHVhWlJxaC1PbXNDRHdQSGo5TXpOR1NSdUxtSHVTd015OW5jZkRLbVhZOUtjMzNUN3VwOHhRbVR3Z0M3V0VmY0poWkkwRnZXTGc?oc=5) |
+| D.C. ‘sandwich guy’ goes on trial, says prosecution is half-baked - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPeG5GY2hjN1UxVkNXalllOGQyUTNBUzYyWGEwb2xNdmhKZ0dnblNHZ0ZoRmhrNmNwUUdiQUg3SDN0VUlhc2U5VVhuRmxsTjM5bmFMcXBQbEpfeWVVdWFGRGJuVHgyQmc0d3BvWDVrR3NWVDNXcEFhSWw3R25MVEVUWDNXOVRoVGZJVWc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
