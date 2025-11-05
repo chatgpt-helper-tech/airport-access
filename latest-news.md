@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月05日 18:48:26（北京时间）**
+🕒 更新时间：**2025年11月05日 18:56:50（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Election Day live updates: Mamdani celebrates victory in 'reborn' New York City - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQQkIyRTZ1eU9qclVSeXlQMDF2OGMzTDlVQmc2Z2lLTFFQbVRzU0lKV3VmSWtSaTFQRnV1elhZbGtIN0txVzZ6ZDF6R3VjSnRfSks4OWY1WGFjQWdBa2xKOEt4NmdNOVAtOHU1djJjdWtvdDh2Z3U1dmZtZkdHV0VlRktEZ1JmMVIzQmIwenE0WFNOTEJRVnYwYmJCNzRfbEcz?oc=5) |
 | How Zohran Mamdani rose from Queens lawmaker to mayor of New York - PBS | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQOC14X2tuY1Y2d29qUHFNMEpfVFVXZGxxdG9ITWp4MWZKaFZOTGNWSnFHdzA3a1hIcGpmdURUZG1yU0dZSGx2Qi1TUllLeWliaGhGcG53dFVzSUd3M2JhbnNOdG5CODdCR2JndktnNWFjZnpyOUMwNUJlUUJ3MkoxWjFmcmNzZ251cklZbzNZRWg0N3pFSkdnNTQyT3NXTnYxeDB4Vm130gGrAUFVX3lxTE5fazFOQmlRQ0pQUmtFQ292V1hCMExlMFhJZ3dSbnZxZmNJRjdIOHlwMk9Pa3VsYmJOYjdPYTQ5VmE3SHgtX3ZZMlJkWEVqWmFMUU5senlFTVVxbE5zZ2RLTG8zanNsTW9faDhNcnZmcHpNaFl1NTdzWnFIN2xweDVMYnpMdEo4dTczeVBDM3lUa2h5Vk5PWmNDczBydEhJNVhWZDhHWTdadE5EQQ?oc=5) |
+| Election Day live updates: Mamdani celebrates victory in 'reborn' New York City - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQQkIyRTZ1eU9qclVSeXlQMDF2OGMzTDlVQmc2Z2lLTFFQbVRzU0lKV3VmSWtSaTFQRnV1elhZbGtIN0txVzZ6ZDF6R3VjSnRfSks4OWY1WGFjQWdBa2xKOEt4NmdNOVAtOHU1djJjdWtvdDh2Z3U1dmZtZkdHV0VlRktEZ1JmMVIzQmIwenE0WFNOTEJRVnYwYmJCNzRfbEcz?oc=5) |
 | California Prop 50 results 2025 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxNR19jenVUdlNGTFNyWEpFeDRmMGdHTUxqWkVSMTE2bVRpRnZvTjl6RUd2LWZ1WEJrSFJYTU1rMkIzd3I3UjlBR0Q2eGZGcGpiZlJmTS1lR3doMmFPVURHN05PSGRFbWZVckxrdml1WEV6aUt2M1NkRzRhd1RBUmstczFpVG5iM3VrYldhOWRmOWQ?oc=5) |
 | The tariff case puts the Supreme Court’s conservatives in a bind - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNVXZUTmRINXhUR3lGUEpkdzQzOWYybVh4WFRwbHM2eTg1b2w3dmZlWTFCdnlVSHlQQWdRQjJfUXpvMHIxN0R5U0xEV2swbHVSU0FNSVRIN3BaZHFKYUhqS0tJZWN0SEZHTGFGMFhNb191a2RwakthSVd3NXRYeUI5NmY4UXpvMFVnOU5ZeTlSazdCdHVqeFRWNUJXYndleTdQ?oc=5) |
 | Live update: UPS plane crash near Louisville, Kentucky, airport, at least 7 killed, 11 injured - CNN | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1acGttdEFMQnBuX1I4TkwtbU1CS0xaMXNVendabUZCWFQwUzNHem5CWFJjRVZsYWJzRG9kenJ5cXNkSFpDS0dQWjF4S0ZTX3RWenFrT0JyRGtQY05BQUloSHhDS1RNeEIzcDk0alBRb21XcWJocnc?oc=5) |
