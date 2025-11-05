@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月05日 17:57:59（北京时间）**
+🕒 更新时间：**2025年11月05日 18:01:08（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | District of Massachusetts ｜ Two Arrested in Connection with Explosion on Harvard Medical School Campus - Department of Justice (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOUFdNbXNqQTlZZTBrcmF1Q3VFeTA3TFRJNGpOWGFHdkpuc2pvTmZPVXNsSURhaTFBWkxOcVl4T0xaaU80N2lvQi1ndktIODB4dVl6NEZPR3RsSGtQVGVZaWw3VDFGdmNVSVR0Y1pKZ3NCLWVQeGlweFY0cTVxaHRCYnpoQ0ZJV3J1VFczSmN6Y0FhOXh3OWJodzFndVdoOGM?oc=5) |
 | Democrats flip two seats on the Georgia Public Service Commission - Georgia Recorder | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNUWhxNGpiRG1hQlpRdVIzVnBrMmpKdDVueVVfRmxhWUZXb0xiWjd6QS05dXp0bVBmTlVaVUd6QVNpbDl4OXBaUFJDQXlCSVJ0WC1GWV9nckhMLXVCODZ3RTZnSklyYmw5U2ZvckZodF91U082ZFNxQ25VN2RMdzQ2eVJPWlNyZGNscG9NV0cwS2JqUzAydjJwWTllaVp1aGFFejUzNl92N2d5cS1fOHQybzM0Y1VxMWs?oc=5) |
 | Pennsylvania voters retain Supreme Court justices Dougherty, Donohue, Wecht - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxNN0NGbzRrd3dyeU5jT1BOeGVqb1VCSHpPNTRCSm83N3Zld2RGZnJZenRrQmVnRDR3UHVIMUJqZlpFaXlxZkEtQjhWU3FmdTlkOG9uX3h3ejkwNU5xUHY3YnJ3N1dJYThhWFpMcEpLV2E0WGRZWU9wNGUzX1dDSTRoSnYtQmJVUGtUcGl5OHk0MURhVkxRUVpRNVJDaXZrOGxxd0NUSEJmMTFpc2JXZHZianYwdnhWS1XSAVZBVV95cUxOR3RQZmlGZXBmWTlBdEZ6SnBGNnR2N3UxWVBIQ0VueXZrY1otUWlrNzhLZFptemNVNjlFd1QxaVNaUmRkWkV5bWVBcXY2RDE1YXdIc0p0UQ?oc=5) |
-| Hamas returns the body of Itay Chen, the last U.S. hostage held in Gaza - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQcnZDeGdsYTBYWFc1bEVUMlNXeXBscjFEM3ZFMHlLeldWTk5oMlE1YU43TzRDREdJazc1dC04Q3lzZWtqUFp6Y3NYYWJTOFJLZWdZdVQweExucnZ1UGxST2RTVGU0T0V6amY5UnV2NEdKNFU1a054bUxoMmE4QnhBZDBvUFlKVUdyTmx4WVktNnZpYkNfbHhNQmdrWXdKdVh0RUkw?oc=5) |
+| Newspaper headlines: Reeves poised to break 50-year tax 'taboo' and 'Arise, Sir Becks' - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE9NclZWVUx1eUdHRXg2dW1JOU16TDdhLTBrWEtSQzlyMUxMdDVsWGw4XzhQVS1vOENjYlBmTUpNbUFtQVpZM1MyTzB1MlRoZTRrMk9MNUZLM2Y4UdIBX0FVX3lxTFBGRVlCVGxiMkdXbEF5cnhUQm1FNThCaTdJcUZxQ1RlRDc0RmlSa1gwcVBfS3A0NVZRNEdtZzA2OUx0YnFmOEpEU0NIRTdkSk9ydlVZc3ZIWkNNWEZBaU9N?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
