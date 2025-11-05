@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月05日 09:48:42（北京时间）**
+🕒 更新时间：**2025年11月05日 09:56:04（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump's closing argument: Tariff case is "life or death" for the U.S. - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE8yQUpFOGtzX1dGck5wZUtQQnk3Vkg1YmJIajJRclRwNFI5VzVlNmFLRmgySUJ1QjU2cTVYTTExbXY2OVZJbnVib1BnWE5reDBXekN5LVRUUkJoWFYzTnZGMy1ZOVhlSlJ1dHlub05DaHA2WG41UFpYOFdCSjE?oc=5) |
 | Dick Cheney, powerful vice president during war on terrorism, dies at 84 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNQ202a2tjbmdDUjI2Z2VlakM3VjVMZmg0ejd6SlIxdUNVUEtJZjNhVHZscGRzNHlndDg0MFRMenFzUnJDSld6NkNtSl9UQWVyTlAzcVZpWkJ1S1dGVGFUZGR4X2tpUkxLaVdsd3RpUlFxUkFWa3ZXMUhRRDYtVmtUQnVYQ1lxbll2Z2QyS3ZLUVNrUQ?oc=5) |
 | Everything you need to know about California Democrats' redistricting measure - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNbnpteGVNQUk5QzI3RWltSUV0R2dILV9FRHBtUHJzRW14T1pNVFRIZURmQXhNS1FVT2ZuZlZWajdUdFMzWUFYc0pWV2E1Sm52WTNLWlZFLVoxSXNyanUwN3BrWXgzY0F5OXNLa203QWVGOEowaUc5R2tjMVpRZHFyZmpsY3UyU2k3clR3VlozZkllUm1CMUE2b1k1U25qdzdxVWZEVzhQOA?oc=5) |
-| Outline of potential deal to end government shutdown emerges as senators continue talks - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQNl9pSUFaMTNLWDYzakZTLTRYUzNRU3JWUV90Y0dvVTl5MkN1RnFEdWJUSE5QeDNvUWhPV0RmSzVRU285a2pTazNJbklRNExLWURfOEE2TU40cEcxNVZYZm1YdHQ5NERrd0RFaDlnZ2lGZXhLYUhDbDdOME55QklZbFlTNNIBiAFBVV95cUxPbTNya1hqRF9uN3k1TDNqNlVBdnBOR0wwV2VPQ09kbVRYMGVfRFFHaGdoRVQ2MF9ISnlmVVpqNXR4NHFaRGFzRWRyaG1YOXE5NUYteG1pel9tNlo5aHBjc2p5aXRQOWkxc2k1VDFPR2RId2NTUzdWalRXYzNramwwWTFVczRHd3Ut?oc=5) |
 | New Jersey governor election results 2025 live updates - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPQkFjTDIzRFpZZmpuNEtBRW1vSVI1MjkxZ1VOUEJ2emg5cElyalJqaGlkSXJWYzhyaXpPckdOSFh5QkNUUEM4XzgyRjY3eGJ6R1NGd0RRMlNpb25MY29zNm9FTHRXY0c1QmlvUVljczRYTmR2U0F2emhpMXQ1dGFZQkZIVEpleXVBSlc3RF9jSktEUQ?oc=5) |
+| Outline of potential deal to end government shutdown emerges as senators continue talks - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQNl9pSUFaMTNLWDYzakZTLTRYUzNRU3JWUV90Y0dvVTl5MkN1RnFEdWJUSE5QeDNvUWhPV0RmSzVRU285a2pTazNJbklRNExLWURfOEE2TU40cEcxNVZYZm1YdHQ5NERrd0RFaDlnZ2lGZXhLYUhDbDdOME55QklZbFlTNNIBiAFBVV95cUxPbTNya1hqRF9uN3k1TDNqNlVBdnBOR0wwV2VPQ09kbVRYMGVfRFFHaGdoRVQ2MF9ISnlmVVpqNXR4NHFaRGFzRWRyaG1YOXE5NUYteG1pel9tNlo5aHBjc2p5aXRQOWkxc2k1VDFPR2RId2NTUzdWalRXYzNramwwWTFVczRHd3Ut?oc=5) |
+| Two Arrested, Face Federal Charges in Harvard Medical School Explosion Case - The Harvard Crimson | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1JWEN4clYtU25uVk1tUU1YNnpFUlYtY1NYSk1fYVpnZ2w4MS1ETFNmWUR5bF9NNFF1UW9KaG9XcXFkVWpHNjdnZTVacDU1TEpaaWtEelp1ckZJVGluQmN2X2tVdERjc1dqWVVXZUhVd3RsM3gydnc?oc=5) |
 | It Smelled of Mustard: Sandwich-Thrower Trial in D.C. Focuses on Moment of Impact - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPd1I3TVpFbUhvVG9ERHdMdTNtNlNxQ1VKXzQxTWw3Y0hZc29Na0NBek1UOE1XSlppZHFydjV5VnBYZ2RSdVpCcWJscGJsTG0zdEpnYWt6bUtrSnBWalZOWUZhMndRTk83UldGREo0dkxUT19GZDlQNmJyanhfMWZwSzNwYXM?oc=5) |
-| 2 young men arrested in explosion at Harvard Medical School: FBI - ABC News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOVUd1Y21iQVhmekhmclp2akdubzZKWWQwTzVUb29peWNmbGdZczRwNGFzTkZFOHQwUEcxeEVvbjhpaEFna3hJSGhLOVBMbllKYmVlaXdldEFoWExac281Y0FDYXNaajhxNUJmQ29FdEFabDMzWHBudHNjOTFOVmhmY202UU9XRFViTUpoYXNDUUFCUzNMa1hWMjdadUzSAaIBQVVfeXFMUHpuUjJvQ1UxNjNJN2t5a0ZDUFNpSU92TmRLX1dyWXIxb2Q0bEJCY2ZxakhzX0swa2NhUm83S1FlMGlWdUROazdMblRWWEd6UDFyZ05hWEQ5VWE1bVYyTVJRbjhjcEVyZEVzdk9QMjBQT01XclQyQzVqQndWY3FsZi1OaUxrR1RmZGpXODVzMWRudF9WaXA4Y3FBRUptUUV6S0JR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
