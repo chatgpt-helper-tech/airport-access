@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月06日 03:49:23（北京时间）**
+🕒 更新时间：**2025年11月06日 03:57:02（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Democrats' 2025 election wins go beyond big races to places like Georgia, Pennsylvania - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQX0ZkdTYxMmNiZWZEMDlNeW5WR0R0bnFGRXgxWlNaYWM0NHRndUw2OUpvTFhrOHk2LVVPMWFlSGtiVXBUc2E5eGlVbUFSUUNYWVVsZTYtOGxyWjlDaE40NlUwMUR2MUpSVURWaUhsOW5kd0U2Q0tKeFRVLWJVVTFuYUYyYkoyTlgtZ2I2OXk0SW9jRGRoU0VZWENxdDU5TUlQWWhR?oc=5) |
 | Biggest winners and losers of California's redistricting war - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOQ0NXSm1rUEZJME91clhjM2VrajY0anRIMVdMNTFWYkZFVmYwZHlLdzlrU2FFSlRMbk5BTV82clktV1RuLWxHQ0UyMkctOXItNTRfQ3NrQ3U1QWp2YW9yQ1hEc2RLZ3BuV1dYbkh1MkZzc0VXQ19nRTFkSTZzaHNhQWlQOV9Tdl9OdDFKU2pZUUFrYVpIZTFaajk4Vm10ZTRxcHA1UnVmWnROMnZSeXc?oc=5) |
 | U.S. could see closed airspace, "mass chaos" next week if shutdown doesn't end, Duffy warns - Axios | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPMjRXcVZoUW5ENlZUZ0Myc1F4TWdGSDZXWXB2VlhSMzNaMDRHR3dxLV92c0VLbFc0VGJTWF9kRUcxQnBmOHNYSTZJRWxCampubnh0cy1HR0FnVTRmajZuVDZXTWJ4Q2p6RG9WcF9IT2h4a2VvTlR3ZmhfbTBGLVN5X3FVV0pHRGFsTFBjQWxxeWM3V2JDdGczSA?oc=5) |
-| Analysing footage of UPS cargo plane crash in Kentucky which killed nine - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5qRTZkamdQWXNMNVU4T2hsZXdjdHJ4LVRXbE9ZZ0EtQVQwUVk1cVRaWGpaTDFhWW9hdWRYM3hrb2l4dUMyMU5RbzN2OEp3QVVWb3FOVQ?oc=5) |
-| Experts weigh in on ‘blue wave’ in Va. after Democrats sweep statewide races - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxOalh1VWJnWXdablRJaElvZDJCME5xZzFrSEdWMjc2dEdobGFVc1FSSFEwMEthWFpMYjNNc3A3U1NyNUhXSlVQRkJycUU2UDV0LWljQXVMZmgyZWV6RE92YTlhTmRXSGxiNHg4Y0drRDRjYmNhQldOWGNfUUZTczJpZkpjQWpMZnMzUTVVZkh4cURjQkt6V09udmxEb2pwMEtnMXh3akh6M0MyWXVoLWVmUWJCLVotLW9Ob29NaVhkdw?oc=5) |
-| Mikie Sherrill says New Jersey voters want 'leadership' in face of Trump's challenges - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOT3VoTEl1NGZWUzRmMVF0SWMtR0k4V0hGXzQtbzlfeGcySXNSWml0RlN6U0ZZNldWY2w1aXhIekx3SHNYUW1rOWJhbWpDV0dwY2NkTlFyajFkaWR2Y3JRNU1hNGY4WU1sYjJlMlhVSGV3eWlXc0FSZVZJaF9Fd0V5d0stVWZVdWFRY25aQ213cVdUQQ?oc=5) |
-| Trump dismisses bad election results by blaming his not being on ballot, shutdown - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPejlnZzlReElfeVh4MWd4RldCWjJaUmxQYWEwRElLUEo1cGh1TmxDc1dGS1NjYlJGZFFpVkxfZ2hWRDlwOEtqYnFVOUxHUkRzNkQ0eVNTZThxSzNvVlpEcEUzQWNhc29sVExNb1FlZk1QTl9MMDBiSkRwLVJFc3ozUVZ1ZFVMSGtOTXdBM05QMktJRmZxMnNFT2NIc1F5UzFrYy0xZEZ6MkJjV0RtUE5Rc9IBtgFBVV95cUxPZE1JUm5TZ1F6TGg1dzhmU0dPMlpibHVqY25JM2VUd2VZa1JPV0t6S2VadV9ZWk1ObmxSUDdpdldnNHZEbTQtUmlCdHRXbVpRUmU4UnUxN2JUM0N6cE1HZ2hDN2ktZ3VzVnpPSmVBNEJsSDRPdlFSOXhiY3IyR2s0OE0yakgzUTVELXJLbXo1aVp5eVZhNHBRN1YyNDk1dVRFZU5Tc1NFdWNmRlp0c0d6czFjbFNiUQ?oc=5) |
+| Why UPS was still flying the 34-year-old MD-11 plane that crashed - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiaEFVX3lxTFBIdkVLQjdIWmtxZnNYZ0Q0V3pUMS1COElIXzV6aVhwc2JaS2toejdDcXhwNENJdlNpcFl1SGh2S1ZqTTBwZ1RJbVdlZWtRZFNTNzMyNlpZVGU4T19JcXdlSmdJMnR4cHha?oc=5) |
+| What’s really concerning Republicans after Tuesday night’s romp - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOMFhnX1B5blR5TkNTYWdJZ0dsT1laNU55bGZLWU1tcWI5dVdwSy1hdFdFT0NTQm5UMGtJdDNPS1pLTjNZXzdUR3YtYVJjLVJlN1JNVzZKTFkwNVpvZ1V0WHdBUExJUl9FdlppS1ZRNmNubm9vZmtybzFfTWplSVRLSloxaTRfTjgtbnR0aFdiS3E2TkozSFZEU1M5RXE2dnZlU2hYY2p0bTNmQzI0Rnl6cw?oc=5) |
+| New Jersey election results 2025: Here’s who won and who lost - WHYY | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9FbFhKaFNkY3ZFLS02UjQ1SzNZblhWVHJNa05CcGhrMWhzLTA5bVdDb0lPemdFZzBTUlI2VXoxYkktSlpHZ3pxemRGWXg2X29fY0x2ekJYMFplcUF6cmRaRVlXRURLWWJSdi1oYVM0eWdRY3BDa1ltVjRwem01QQ?oc=5) |
 | Jacob Frey wins third term as Minneapolis mayor - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPOHJjU0NEU1hCNl94WWFOcVNja1hGMkxWNXRHakh4dS03eGdWMTRzYlpMbndBcWpaaWlOZTRwNTVsb3pQTEVIT3ZzQkpMTG1NYlh6STlfZVhuTF9PQmlRSTVzd3U0aTFMSm9SUVBud2kxYlZsYnFkbnliQ0dOakY3TUNlT1ZZMzFZSktB?oc=5) |
+| Federal judge warns Justice Department it may be veering close to mishandling evidence in Comey case - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPX0J2S2lWZEY0OXFTbkZRV2haS2o0bF9lOXFKVEhlbGdYMVVfdl8yTzlvYndUV19ySDExMi1tZG9uNm1Id2FqSHN6OXh4ZjVlQXdQeDNERUFacHFESU80bnRzc05VSTViYTNSREpPV0toX2xkUFhuS0R3Q3BBcDJuZHFNRWRlQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
