@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月05日 20:56:19（北京时间）**
+🕒 更新时间：**2025年11月05日 21:01:05（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| 7 election takeaways — from Trump the foil to post-cancellation politics - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi1AFBVV95cUxPaVh4T3o1YU1EVkx3SmYzNGtVMFlycHhWMW0tWW1YaVo4QmoxTTFQanFWaS1iWHNCQXczTjdNM0VuZG5CVlQ2QkRydW9JZ1llRVE1M041bllPX1B6UTBxaDF1eEZpenctbDBLeVBseDl1ZjkyUFFrUW03NmExS3NxSkFPVmVWbURYRUJNMGQ0OERtc2YxNkhUVmEyeExyNDRselF5QzdYNURzY0pmZ1p3Q3BTb2tyR1k4Zi14akJJUENiT3AtVVFKZXVkT1U0RUNaaThZdA?oc=5) |
 | Zohran Mamdani Is Elected Mayor of New York City - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9BczdmYnVOUl9iSV9ld1Z0cktrYUNwTFJnemswVWNuUXRfdHhLTnZOOWQ0dVVvZjRNM0RTRjBReUV1M1kyYkdvWGFBWEhtM2s0M3p5YWdhRlo4MXc1aHhpMURZTkpjNWttMG1mQkxlUzdENFY5MXNFSDZWV2kwOGc?oc=5) |
-| Democrats sweep key races in 2025 elections in early referendum on Trump - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTFByWEdZTTVQSTBCMVZLWUxWX1MxWGpXN09falpIbG5rSXZONVoyRC1GZ25RZDlCUEJzMWdXVnVlR2k1VDFVZkpST1NSMHF6UnAtOEo1QnEwNUtMcjJzYy1GYW5mZ01NQ2hvQ2ZNZmhVa3BMSHhpOGZ5QjV30gF_QVVfeXFMUGh4YzdkZFJRUDhPRUc1M05sTzFJeDRDNktDeDlReFNJU1Q4QWdNSGpvUGZobWl5ZUlKR2U1MV9PZ21Rb0pJRV9Ednp4ZkZrYlpyeDNmYmFqVjhRZk1raVc5S1gxYmhxVjlPWGd0QnVscS1zWWxXQV9MR1BELTlGZw?oc=5) |
-| Inside the bumbling, dysfunctional tin-cup campaign to block Newsom’s gerrymander - Politico | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTE9jRGF4R1pvQ09wWW9kTlB4WU1sTDRoOXNXbXphZ0M0V3pNMFlmSlgyNmlfelBfeDc5bUs2eWpobUxENU9kVk9nOVZUZGJNdWNTNWppQWRHZ0JVLVYtRUY0REJMN015Ml8tTEJNRHkzcEtQVW1l?oc=5) |
+| Proposition 50 live election results: California voters projected to pass redistricting measure - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxQY0Q3WVpZQnVUby1kOUxOOE5mRlFWcWlTWWlMZlUyMGxrUDJoU0RkaHpVQkowSUUzRlM0OTBEdFJrWTYzVXRneVJXVzlTNFFHNXFMRGFkOElCNE9pVTl4N1l6QWNnTWFId2k1T2pPLUJRWXZlWkxGT1pYMU5VS013TGk3MHp2RE1nSlViN0NJcm9lYmI4cFRkN0FSLS0tZktQTjR3RVZ0QU1zREZCdnU1YdIBtgFBVV95cUxNYUVCNlo0dkc3bnowVHY4LU5QRlpFSkdoNlhLeUpHOG8yeG4ycFdTcGtHQkp6NUtmSjRwdG1XcEdmTUlydWV3SGVPclljdVA5blZqWjdHLW9UWk5aZ1V3emNJcWJQMjNfcl9IU3lkZ0lvaUZHTnR4cnlhUm9Db0ZUWjhJVy1weGUyZ21MSFV3TTJXZjZWUXdaM1hNLTAyb3VkaDdpcHduLU9FbkNlVVRQLVJGcUNZQQ?oc=5) |
 | Supreme Court enters the lion’s den on Trump tariffs - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTFB2N3otS0ZqSjNMWXUyZFR2R2hoamNhNUVQRGpFZkRkclRMVXVQUUxMQm95aFR6VDJaSkk1eWU2eFFuaUdibEszeHB3M19fT1p3UUtCRjhqYmRoQTZpVlJRMDc1NkpxOXFmd1hpVlVoQWJ2eGJhVC1yUl9wU2k?oc=5) |
 | The government shutdown is now the longest - and likely the most damaging in US history - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1hYzcyNEdzeDlKNDhlVmVFaTBLaUF5U0NJcnlyNlJHRE4xeENZZmZkdnNiRDg1T0hiaUlRRkJMa1Jtb2ZBRTIwc0tVekotWVRTNFRhTFI5NkRuOTV5Vk5PZ2VqM3BUbGRYMnNMMDFnWVUtMEhvdU12b3dWVXM?oc=5) |
 | Verifying video of deadly Kentucky cargo plane crash - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5qRTZkamdQWXNMNVU4T2hsZXdjdHJ4LVRXbE9ZZ0EtQVQwUVk1cVRaWGpaTDFhWW9hdWRYM3hrb2l4dUMyMU5RbzN2OEp3QVVWb3FOVQ?oc=5) |
