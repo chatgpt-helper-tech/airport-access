@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月06日 19:56:27（北京时间）**
+🕒 更新时间：**2025年11月06日 20:00:37（北京时间）**
 
 ---
 
@@ -29,7 +29,7 @@
 | President Sheinbaum presses charges after groping incident in Mexico street - Axios | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPMFRBNk91UjI1VUsyWjIyVHl5MDRSLWxvZW1wQ2lIbEhNT2hDbGl4eXdBWE1rOXpTRXhpcFRIYWE0LTVrMWRqb2VFc3FaalJJdXYtVVBYbERXTk9LQjRyT29JOWYzVllCZkFOLXh6ZXlmb3NnREpFeVNxRmNHXzJhRnZXNTgyWThpVWNQdTNMaHhLMWlM?oc=5) |
 | Trump wants GOP to focus more on his economic achievements. But he’s often changing the subject. - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPUXY0aU1vTkFfMHFhdjYyTzRTOXJfSkFiSEVRMGZiUlNhUG9NcE5Qd2c0RnU5ZWp0cGItY2ZLVnFEWHY5anlQbGw2SmhnS2Y4Zm9OaEswb2QteFlkVTNCZm5QbllYQWd5NXJPa0hfMkNON0JoM2ZjWmdwdWZuOWVyUHlGb2pLS2ZYLVE?oc=5) |
 | What to know about the deadly UPS plane crash in Louisville, Kentucky - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1wanBlX2ZYRW1IUURadXdPdDM1aEVYbzhBQ3g0TDllYTE2VlFLYTUtZ0cxYnBqTkwyakRvNF91Ti01UVQ1cjhRcWpoeGhfMWwycjJHSXY5Um55S3pmWnhGRERiT3Mtb2F6bXJFQ2VpU1AwWHIydkVLdVVjRnhXZw?oc=5) |
-| Senators closing in on key piece of shutdown deal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQaTJQR0xzVGQydzdvQnlZM0Ztb3JOZnZLcnhsSzQtWllCd2M3YWw5TVAtQXBjOEJ5d25nUUdGdHlZV2VNTVQ2aV9oN3dqYk1FZFlLWmxfUThuX1AtS29UWlRKSWxOSnpJWE81NVVNT3A0WV9DMkt0OXk1ZVB4VnhMajlxenJVVnNRSTMyUlpUcTl2SDdCWDBaYm5CNG4ySFQ0cExRMlRjVFFBSHQwRzVFWGRfTHA0MFk?oc=5) |
+| Democrats tap the brakes on ending government shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPRDhwUnlRdHVhaWs1Mi1PQTZhNzRnRGhnTjhlN1Jqa3VOVTEyMlVJQV9VT01vNzYyWExBbUhha3RLVjZuTFpjVmZTN0kzMkdmbGx1ZkhQcERlaGp6QU1MRW9YNl8ySFB2NTRFWHZYVUh5TUVxMnVXSFRha0UzVjh6YjNuQ1Q?oc=5) |
 | Donald Trump enters his lame duck era - Politico | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE4wRGRSalhKaEh4Yno4eXROclRXVGlKd0lCb0ZBWkhrLVpURlkxcmp0aUdaWE51OG1jdVVaTlNOcjBCLThuZU8wZlg1SHZ6bjV4d29NYjljMkc5Q0hLbGF3TkF6enRpYk42X1FkZWhVaW5kMlM1N1AtVWJaeGc?oc=5) |
 | Democrats Won Big Because They Won Over Trump Supporters - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOdFhiLWJCOFhOUjc5SFM1TVFYcDZIZXY3aVdxRGNZSmhvSlpZUXBoaDBfQVlYbmtBQ2Nva29ONDVwYU1sTWlWTU9uZks5N3piVW8wWHg4bnJOMzdXVXRib1JEQl9BQnFFeWs4TDZ1ZF82OHRsZHY1VF80RnpKbGFGRmJmam9YUQ?oc=5) |
 | Mississippi Democrats appear to break Republican supermajority in state Senate - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNUjF2RGFpSm9aUlAxdmp0eE1nWlN6eUNYbUxyRzFzdEVPeTZDMkxVbm9uZG5WcnFXVG1QSVFOZzNxYTJJS3BtbHltN1FTMWVwdGNHTS1ub0RRYmhGVXUyckEtN1pYcUVsRG0zUTNjTlNnTk1SQ0YxSm9IdGxpd1U3QUlHRGZrcmN0THJSZ0ZUdWFfZWdnMHNJdFVXZERUSXAzM3Myem5ac050b1ZOWnU3b2FFWG1RNGtFY3dqNkYtLUwzeUVSV3lj?oc=5) |
