@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月06日 20:49:14（北京时间）**
+🕒 更新时间：**2025年11月06日 20:56:16（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | President Sheinbaum presses charges after groping incident in Mexico street - Axios | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPMFRBNk91UjI1VUsyWjIyVHl5MDRSLWxvZW1wQ2lIbEhNT2hDbGl4eXdBWE1rOXpTRXhpcFRIYWE0LTVrMWRqb2VFc3FaalJJdXYtVVBYbERXTk9LQjRyT29JOWYzVllCZkFOLXh6ZXlmb3NnREpFeVNxRmNHXzJhRnZXNTgyWThpVWNQdTNMaHhLMWlM?oc=5) |
 | Democrats tap the brakes on ending government shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPRDhwUnlRdHVhaWs1Mi1PQTZhNzRnRGhnTjhlN1Jqa3VOVTEyMlVJQV9VT01vNzYyWExBbUhha3RLVjZuTFpjVmZTN0kzMkdmbGx1ZkhQcERlaGp6QU1MRW9YNl8ySFB2NTRFWHZYVUh5TUVxMnVXSFRha0UzVjh6YjNuQ1Q?oc=5) |
 | Trump has other tariff options if the Supreme Court strikes down his worldwide import taxes - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxNdnVXR2FrVGtnQ2NPS1cwRm5lY3hybmpCNkotdzBQak5DQlllUnZ2UWlhLXRXenBPaTlIckVmWlM5ZllpSVUtVmJtUzVoMEdfXzFTYUprZW1BY29LWF94THBRUS1ENk9KVzQyTk9ja3RaeGZHYUl5SmRQN0pYMjNMUm1QOVBZTlNhZGM5WVZrcnlCdDJZYS1YblozRQ?oc=5) |
+| Explosion at Mississippi chemical plant causes ammonia leak and evacuations - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxPUXBJOXVDTU16MDBOU1FhWnprSlUycDdISlZSTUxfLVVUZ2ota3pSVkJad2EzcmhQLXN4MklwcEZ2bF9QQUxYd2lfaWZ3eHRCZTI5LWV6NkU2SzJ2b0kxREI5bEh5YVJTdkZUSlZXTC1aLWljVC1wRjhRUTRId29icXp3bmJJcXQ0OUZwaWYwcW9OdTdKQmUtZWxTamI4VkF4U244WXZhUjI1Y01VS254WE1WdkNDaEnSAVZBVV95cUxNcFVnSC1OX3FlVE14dUtkczZVX3dTSnJxcEdGdmxDX0tSTWRWQnZ1M09TZF9wOEtqaEhZM085UmcyYmZaWTk5MzhMVk1mTVJIaW5VbjBqdw?oc=5) |
 | Mississippi Democrats appear to break Republican supermajority in state Senate - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNUjF2RGFpSm9aUlAxdmp0eE1nWlN6eUNYbUxyRzFzdEVPeTZDMkxVbm9uZG5WcnFXVG1QSVFOZzNxYTJJS3BtbHltN1FTMWVwdGNHTS1ub0RRYmhGVXUyckEtN1pYcUVsRG0zUTNjTlNnTk1SQ0YxSm9IdGxpd1U3QUlHRGZrcmN0THJSZ0ZUdWFfZWdnMHNJdFVXZERUSXAzM3Myem5ac050b1ZOWnU3b2FFWG1RNGtFY3dqNkYtLUwzeUVSV3lj?oc=5) |
-| Republicans file lawsuit to block new congressional map approved by California voters - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQelBDZHVvZjl3bWRFRkpoQ1RYTS00UlZJWXpfUDdIS0E1RTlNN2dVRTcxUjJSOXJrR19aVi1IN2tUZnNjY0xJRW90dzlnTWV3a0RDekZsLXVnOXJVdWprRUE5VzVBVGtSZ2ZFQUlJdGhsZkRpT1dweGJEUzFnNmlsdWpObGUwdUh5TzZfSmt6TG5ua296SXc5UzdlVVJGRjRIMC1pczE3dmxZLTV3amExLTNQYjVscW04SHZ5b2cyZk7SAcYBQVVfeXFMTTlCdGNfeV9PbGJyZm9lLWZTQ2xNQW8tZnM5WmpwUlNoMWxldW9yUEgzSGdrZVlaQW5BQkIwak9wc2ZWeHlBSHVfRjlvSVU1a19JbzZvUmpIVExjOVlDU25WaEZicVVSX1h4QjVmbHVJVVdyMHUtd1hpSVduVjhCOUtIYnppQnBUSWRucnhZUERsUXFMdWp4Q1RhYjIwYVFKdzlyckt0RWpiRjZobS1HZXNNSXZBSTQ1REZRTlVsY1VLb3l3S2tR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
