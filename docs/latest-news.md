@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月06日 09:17:31（北京时间）**
+🕒 更新时间：**2025年11月06日 09:24:47（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Republicans file lawsuit to block new congressional map approved by California voters - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQelBDZHVvZjl3bWRFRkpoQ1RYTS00UlZJWXpfUDdIS0E1RTlNN2dVRTcxUjJSOXJrR19aVi1IN2tUZnNjY0xJRW90dzlnTWV3a0RDekZsLXVnOXJVdWprRUE5VzVBVGtSZ2ZFQUlJdGhsZkRpT1dweGJEUzFnNmlsdWpObGUwdUh5TzZfSmt6TG5ua296SXc5UzdlVVJGRjRIMC1pczE3dmxZLTV3amExLTNQYjVscW04SHZ5b2cyZk7SAcYBQVVfeXFMTTlCdGNfeV9PbGJyZm9lLWZTQ2xNQW8tZnM5WmpwUlNoMWxldW9yUEgzSGdrZVlaQW5BQkIwak9wc2ZWeHlBSHVfRjlvSVU1a19JbzZvUmpIVExjOVlDU25WaEZicVVSX1h4QjVmbHVJVVdyMHUtd1hpSVduVjhCOUtIYnppQnBUSWRucnhZUERsUXFMdWp4Q1RhYjIwYVFKdzlyckt0RWpiRjZobS1HZXNNSXZBSTQ1REZRTlVsY1VLb3l3S2tR?oc=5) |
 | 2 New Jersey teens arrested in connection with alleged Halloween terror attack plot - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNcHNLNmRHNjZaOFZtNWtQTGNlNFYtTjhySzgxSVpDQWlGWGRyTi1BQ2dTTS05ZXFoc3dWM3R3anRkd0o1enQ2LXNqd3RxYTNLN2VGbDI0d1REclE1a09CWU96YlVuOV9RTDBMRzZGV01uZnl4b2RFUFVJdVFYdmlXa0VPUTNaX2syRDl0MnluRk9QaW1DVmtGRm1pM3ZlNEVnLWJR0gGoAUFVX3lxTE5ZbTBrZzNkUFFBa1ZQeUhXbTlCNFVTOE95TFRBYTdGUG5lQnZBbnFWcHJudDhYVDhLRUtrX0RXZkVCMlB6QTRvZW9CaUtpZ2hwQmp2MndjVGVCYnM4Z2tiWF9CUWNfaVpDTTQyWTZoVlQ4UzYyXzhMaDRId1JiZWlSVnFyMEE2STd0ZGRZMDNtM2dDRkNjaEhfSjRkdEhwSENXcW13T2ZobQ?oc=5) |
 | Democrats gird for longer shutdown fight after election sweep - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNaFRINVBjVUxRRWhSTEltaHhfM2p6WTNGZzlpTTNhR3hSa2pXWlNPZW5lU3VtZ2czNVBfRWozSTFyaEdSX0NpZVgzemozcDBZaVZNanpkbkdOWWRmcEFFUUhQZF96dnpfM2ZKVmV0aHE3azhPWTYybEluUHdBWjFlRWQ4RVlHcDV6cDVpRg?oc=5) |
-| Federal judge orders immigration facility in Chicago to improve its conditions – live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi8AFBVV95cUxNVzJpclR1NVJqRGFTX3g0UEoyU2ZiNDhEV3QzSU5OWllubU13VWhDaFpLazJSUjBycG1QNzVDMl94Y01MY2RJZTY3VDYxQzA3X3YyeFBRdmtnRndfb0F0VW4yeFktXzllcjNzazR5aEt2REVCYVhDZ0pOeFdhUk9sbFV3RWh6Qy1FQXhDR3JfN1F4Z05JSFIwX1R4bkgxb1lBdzY0VHVnMnQwelBMWGdMUGtCc2ZzMEZwM0FkYk9qbThfM2hHRUpMU1NDeno4dWdXOEtIajBjRDZNSlhGbmtpRmJPcDRXYmctMDZWb3lheU4?oc=5) |
+| New Jersey election results 2025: Here’s who won and who lost - WHYY | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9FbFhKaFNkY3ZFLS02UjQ1SzNZblhWVHJNa05CcGhrMWhzLTA5bVdDb0lPemdFZzBTUlI2VXoxYkktSlpHZ3pxemRGWXg2X29fY0x2ekJYMFplcUF6cmRaRVlXRURLWWJSdi1oYVM0eWdRY3BDa1ltVjRwem01QQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
