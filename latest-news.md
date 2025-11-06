@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 07:40:45（北京时间）**
+🕒 更新时间：**2025年11月07日 07:50:00（北京时间）**
 
 ---
 
@@ -23,15 +23,15 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Elon Musk's $1tn pay deal approved by Tesla shareholders - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBvaFRaUko5UWM2a2dOWkNRaHdFTklpTVduMkxEajlkWWxXbWVqdWJ2WHg5aWVrNlRSamJqX3RrYmgtOTNJUlNZQ0RROElYT1g3dXBnMjRwZDVDZ9IBX0FVX3lxTE5Gdzk5UUJYMEFEdkV5a3E3UUQ0ZDcxUlpZYXViR2U4ckpCb0Zna3BwVENxc2Z4VVpuR2JsQURkN3RnVFl6YWNHNkthUE1CY0N4eUhPRVV4bGQwZzVOY1BV?oc=5) |
 | Judge Orders Trump Administration to Fully Fund Food Stamps This Month - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQcVdCY0tDdnJIWGFzRm1RTHFpbm1NQmZhYXRVQmg4U0licjRZb2pYYUVmSWVyWXp3NjJVX0JfcjhDWkxnTlNzc0w4NzktOVJhM3FPRVFabV9Rb2w0cEJ0WVNVckd2N1BDRVVIMjFJOUZ2ajNwVDNCbWNLLS1iNDFXNGZoYk5xa01TeXVN?oc=5) |
 | Trump's tariffs run into revenue problem at the Supreme Court - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9udEpFWjFfLVpFdUduRjFVNWlWUHpMNmo1LVR5ZWp0d2dCRDNsaGZTLVB4eTBTaVdSaXVtWlo4eXRXTjhXVk03NzdLSkRaR1ZiRlIwYjdYQTFDWlNfSF85MVZWcVA3M3I0RWJCTHNWSW8zR1NZUzdGTnhrSDgzR2c?oc=5) |
-| Here's how much weight loss drugs could cost you under Trump's deals with Eli Lilly, Novo Nordisk - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPUW5hQmJ6ZHpSQkFBaWpNcDBqWXBleExGV29FMUQtMkRvU3BoM0xUSHdUSERHNnJEYlFSYk81ZGxsM3JLU0lCZXFpZGJGUlBKWGxiVnczRU5iT0VqSldpc2hrQ09GT1N5eXdQcFloYUtubVhmVERvQ09uQWk3M3JMSmxqZWZYdV96dmFwT0FuanBVUzg0Y0HSAZsBQVVfeXFMT1BUZmlJN2pjNUtoVTB4eWlhdVFhOWo4cnJzY084UU1jMU9zSFYtLVdtZjktVllUR3dJNGtpMW1JZFluRE9pVnFQTE9fRGhTVndLOFJWelJnSUZHWGtqX1hnRVVkNUR5WHVtWkdSRnhOdXdPRVR5bUczWm1uZGUxZzBjNktkZlhsOWJiMmpZTEk5NEhoYmlsOEVtZ2s?oc=5) |
 | After California’s vote to counter Trump, here’s where redistricting stands - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNbjNSbms5dUxVcE82QzhRbWc4R3k4NnJJanFlNlk2RWlzYzBiNW9qZHhhdFhydGpwT2F2Nm95bDlLOS1XZlJ2Ql96SWtucFZWY0s2Z25kSmxmUWNHa3h1WmtNeDEwM0Y3ZDBVV3M2OTFHTVFIQ0xhYllhaGpoVFoxOXQtNlBLYzBFQTg1S1B5YXVlVjRYdEZMajJ3?oc=5) |
 | Senate will vote Friday to advance shutdown-ending deal, Thune tells Republicans - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQWVJ4MjhWcHlHNnpxdXZwdUNPdVJLaHhteWxDT1U1UjUwb2pHSldFbVZkeFlBOHlTMXl5aWRPNGpoaHd5ejF0QllpUTdwdGhjSnFORlVOZlIza2dtcV83SDdudFhFNHp2TER2WXN3UnVZNFF3TUVlMmNkZkxPS2xaTVlJaFlMNDVKV3FWV0E0bDZiTjRlUi1Ia25B?oc=5) |
+| Trump calls Nancy Pelosi 'evil woman' after she announces retirement - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPYWk1cVA5OHBpbmF5QW9RMV96Y1VNNHBZT1d1WERjamNwT0I2cGlJRGIwMmRHWnBMa0d6Z1BqX3lwNmNQNkpHRktSMVdGT00wSmpyUGI1bk13bXlHcGtzZUlUUHVSX3FWNnNSZTFPaVN4Q0RZLV9EamxDajdnalpXcWU2WDBySWIweVlyOWJwM1BWTnFWYWE2MXBzdUJMWGI5S3NSZ9IBqgFBVV95cUxQRUVfdTRyMURuOS1udFQzUWY4T1MxOUpOVng2bTNqWVdlVF9vNV9CZlJYYXYzdzg4UU45TlNBc3hVVGdSX1FXeDhnTHh4bUdzdmRqNE5EeU1Fa2QyWjA5NHZINDVlbVk2dzd6dExpeTdtOTN0MlBFWldmZFhXMXdOWXExS1lucnhvN05rNTYwOW5tdHNXSnJTOFBCYmd3cmFiWTM2OEU5TUYwZw?oc=5) |
 | Jury acquits D.C. 'sandwich guy' charged with chucking a sub at a federal agent - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNY1A3RGJWV1BOZEtzT0dZOTI2dHYxU2VYd1RWdWVPTzZpVDZlUlBTSUpyclRxRGpRRmZXTlRoMUFNMTNxRE5KT1JUV3g0V3VCNlRMTnJRUkZWUVo4VkRsOFBQYVZkb0RmY0FBRnl3TEhvWEVLU1BISkdpbmRvY0tBVUotVEpiTE5LLTkwQktXQdIBVkFVX3lxTE50cnlUeFE0bzh2MzJhVDZPMG9QWGVVV1VkNHFMLThvSnBSWHh3TC1FSGZpTEN4OTdXOW5TWnptbEpEUXZjdkxORGZzY0plQjdETzE4NmVn?oc=5) |
 | A former teacher shot by her 6-year-old student wins a $10 million jury verdict - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPWjMweDNFWmRHOVZVNmJ0Z2RuOVhwMWxPSXdnMjZLQlZ1dTZTd2FVSDlXcy0yZ0w5SF9MTjN0X0ZLYVo5ZjhER1JyWWJSc0Q3dzhjamR4bHgxUzdMNUJUcUloMXhidXl0WXAtS0VUYVc5UDZnek5SQWxCX05Td0J1LVlXeDJhcFlwWjhjV2tuZXBqNFhIQ3RpM1RBWC02aVNyQnFJ?oc=5) |
 | Federal Judge Imposes Strict Restrictions on Immigration Agents’ Use of Force Against Protesters, Media, Clergy - WTTW News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNTmZFWFEtT2s2WU5WcUxxa1J2UWFOYUhnMDhFdmt5UzQ4dFlEUGlGc0JfVFZzaHpoV1VkbU1ZWmZFM0RNUFRtNEZvSU5DQkM2cEFRcFB4RGdFQVdOYmpsS0tIT3lnYjl5aEV5X0hweHZEODc3eGxXS3B3X2R3NGpISWExSmdhOTZwUWFBVGhBVko2WDVjNnRYam10Ty1RR0hlY2p4YnYyNU1TazNkaUllSVVMQTVNLVdtSE8w?oc=5) |
+| Senate to vote on legislation to limit Trump administration from attacking Venezuela - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQUzNES0VobTBYUElFMlJfUGdoSmFJTzN6WkdrZzM4Um5HSGhNM0xzVEFId3JubUJSRzJ0TEExT0xCNVdZMkVXU0wzbXNBVWhqeHowbE9yNjdCRFhyQV8yYWx4TFA5dXhyMHJ2Qkpic3ktTGxyTEJjd0JjaGFTTktsb20yN0lZcE1hUE13b1FlVnAyMlFKT013?oc=5) |
 | FAA orders 10% cut in flights at several airports as shutdown drags on - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQVVo1YzVNa3R4SWxreklLNkMzaHk0QllfQVhJWG5oRXlqMDVzWFZ5bzZtaGpuWHFQSUE0amo2UmZJcVZMNGRKdG5QbUpLeDd0czFmcDI5aGd2dXZTZHh3eWUxSTBHaV91WEk0dnhwSTdxYU1WVm1fNEdSRFUxMFBMd3RFTUNhMTEtTXJVaQ?oc=5) |
 
 ---
