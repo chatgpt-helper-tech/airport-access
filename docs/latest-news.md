@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月06日 22:56:55（北京时间）**
+🕒 更新时间：**2025年11月06日 23:01:52（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | Man who murdered 'Good Samaritan' after ploughing car into him during wedding brawl jailed | [阅读全文](https://www.bbc.com/news/articles/cm2lxm71r7lo?at_medium=RSS&at_campaign=rss) |
 | Martine Croxall broke rules over 'pregnant people' facial expression, BBC says | [阅读全文](https://www.bbc.com/news/articles/c3epwz08ewzo?at_medium=RSS&at_campaign=rss) |
 | Will Bank of England governor play Santa or Scrooge on interest rates? | [阅读全文](https://www.bbc.com/news/articles/cy0y34dxl7lo?at_medium=RSS&at_campaign=rss) |
+| 'Secret' underground energy could heat every home in Cardiff | [阅读全文](https://www.bbc.com/news/articles/cy5q9e1e4zpo?at_medium=RSS&at_campaign=rss) |
 | Are Christians being persecuted in Nigeria as Trump claims? | [阅读全文](https://www.bbc.com/news/articles/cgqlzkdeeqjo?at_medium=RSS&at_campaign=rss) |
-| Watch: BBC reporter confronts man at centre of illegal worker network | [阅读全文](https://www.bbc.com/news/videos/cgr4dr4rp74o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
