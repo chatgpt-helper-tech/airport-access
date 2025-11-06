@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月06日 19:41:03（北京时间）**
+🕒 更新时间：**2025年11月06日 19:49:08（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trump wants GOP to focus more on his economic achievements. But he’s often changing the subject. - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPUXY0aU1vTkFfMHFhdjYyTzRTOXJfSkFiSEVRMGZiUlNhUG9NcE5Qd2c0RnU5ZWp0cGItY2ZLVnFEWHY5anlQbGw2SmhnS2Y4Zm9OaEswb2QteFlkVTNCZm5QbllYQWd5NXJPa0hfMkNON0JoM2ZjWmdwdWZuOWVyUHlGb2pLS2ZYLVE?oc=5) |
 | What to know about the deadly UPS plane crash in Louisville, Kentucky - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1wanBlX2ZYRW1IUURadXdPdDM1aEVYbzhBQ3g0TDllYTE2VlFLYTUtZ0cxYnBqTkwyakRvNF91Ti01UVQ1cjhRcWpoeGhfMWwycjJHSXY5Um55S3pmWnhGRERiT3Mtb2F6bXJFQ2VpU1AwWHIydkVLdVVjRnhXZw?oc=5) |
 | Senators closing in on key piece of shutdown deal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQaTJQR0xzVGQydzdvQnlZM0Ztb3JOZnZLcnhsSzQtWllCd2M3YWw5TVAtQXBjOEJ5d25nUUdGdHlZV2VNTVQ2aV9oN3dqYk1FZFlLWmxfUThuX1AtS29UWlRKSWxOSnpJWE81NVVNT3A0WV9DMkt0OXk1ZVB4VnhMajlxenJVVnNRSTMyUlpUcTl2SDdCWDBaYm5CNG4ySFQ0cExRMlRjVFFBSHQwRzVFWGRfTHA0MFk?oc=5) |
-| Democrats in Mississippi Break the G.O.P.’s State House Supermajority - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNQ3FLUy1qUFlTRVhHbzIzVTFIYlF5RXdDWUpIdlhqX1hyc2I1V0VhYUVZQ0tTdU53Sm9iSkhWY2ZmLXIxTmd2ZWc0X1Nra0wtcGpqOTVROWw1SnRzZFUwVVVRSGtfVnRvN2RUaGNRUlNteDVrRFBURDZwQjdwRGdnX082LUgySTJ6NVRUQkNZdG1tUQ?oc=5) |
-| 'Folks are tired of the chaos': Pa. Gov. Shapiro reacts to Democrats' big election night wins - 6abc Philadelphia | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPcWhPWXlhLWVzMHNQcnJjY24wVXRncmdiTkJjTEZiSXN5eHctRFNLcDVyaG9aNGg2eWtpcDB3d19wSGs2LUZ4emFnUFZvSVR6ai1ONXFCdEJJN3kwam94SElTeHlLNWlTSm5CMjJ1OExNQm5CSWZ2ZW9fQTI3TVlEYTBMM3JueXhOS1ptTmJoQ0dubG5lSmVkSTUtTndrRTFaZHdMQldJWjByTjhmMFHSAbMBQVVfeXFMUHJGVVlqOHBydjdsUWJiWkNOY2F6eVNoWFB1dXdMWkpncWZiYXJCUVR0SE5ibERFS0gwV1VhYkVQbW5wT3RiaXhIN1BGakdac1QzRy1UQ283VFNmNDJoZnVGR1N4TnYtLTRwSEVfTUhYaDJvWmJWaG5oOWZpbmtUMkVobFBkMWdnSzVGdVpXcmp2MkFCaGo0ZDBwZnBDRldVcDVFamRVZHFaeXFNcVpMalllUjg?oc=5) |
-| ICE officer seriously injured by detainee as threats against agents rise, Homeland Security says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOcTBEX0pqR19JaG5KaTI4dGFzQ1ZzNDEzWXhyV081dVBHRTlWTmtlcm9oal9mY3hUY3VfZl9yVTZWTDNVbUE2RWRPcF92WU50ZnFKZ0tWTC1BUkdRem1WRmlRYjdYN21rdmlHbU9CTmlHY256WHFSdk92U2E4S2YzRHB1ZXVEcjZoNVhjVEhYVFpUd3Z4cTlzNGdseTl6bVFFTmtr0gGoAUFVX3lxTFBhbWh6UVRYNjIzZlA4OTZGUTd3cjBPRTBQd2U1MjFnMzdmaDhKY0VQaXJqQ0duelV0QmtfQUg3ZmY5NXFXTjJrVndfX2xBQ0JDU1FCMmllcVRocDY1UUkxU3NTUlN0RXduR29YdmcwSkpkSkc0N2prTEttYW91cUdjX09OSkhZdmptVGh2NlQ4TDdZQUI1cVRwWWhzSk13ZWxfRjJyVUwtXw?oc=5) |
+| Donald Trump enters his lame duck era - Politico | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE4wRGRSalhKaEh4Yno4eXROclRXVGlKd0lCb0ZBWkhrLVpURlkxcmp0aUdaWE51OG1jdVVaTlNOcjBCLThuZU8wZlg1SHZ6bjV4d29NYjljMkc5Q0hLbGF3TkF6enRpYk42X1FkZWhVaW5kMlM1N1AtVWJaeGc?oc=5) |
+| Democrats Won Big Because They Won Over Trump Supporters - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxOdFhiLWJCOFhOUjc5SFM1TVFYcDZIZXY3aVdxRGNZSmhvSlpZUXBoaDBfQVlYbmtBQ2Nva29ONDVwYU1sTWlWTU9uZks5N3piVW8wWHg4bnJOMzdXVXRib1JEQl9BQnFFeWs4TDZ1ZF82OHRsZHY1VF80RnpKbGFGRmJmam9YUQ?oc=5) |
+| Mississippi Democrats appear to break Republican supermajority in state Senate - Politico | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNUjF2RGFpSm9aUlAxdmp0eE1nWlN6eUNYbUxyRzFzdEVPeTZDMkxVbm9uZG5WcnFXVG1QSVFOZzNxYTJJS3BtbHltN1FTMWVwdGNHTS1ub0RRYmhGVXUyckEtN1pYcUVsRG0zUTNjTlNnTk1SQ0YxSm9IdGxpd1U3QUlHRGZrcmN0THJSZ0ZUdWFfZWdnMHNJdFVXZERUSXAzM3Myem5ac050b1ZOWnU3b2FFWG1RNGtFY3dqNkYtLUwzeUVSV3lj?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
