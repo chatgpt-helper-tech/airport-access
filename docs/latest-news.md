@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月06日 09:56:14（北京时间）**
+🕒 更新时间：**2025年11月06日 10:00:23（北京时间）**
 
 ---
 
@@ -11,21 +11,21 @@
 | Crime fixer caught by BBC offering to erase £60K fines on migrant workers | [阅读全文](https://www.bbc.com/news/articles/ce3kevkl3pdo?at_medium=RSS&at_campaign=rss) |
 | Watch: BBC reporter confronts man at centre of illegal worker network | [阅读全文](https://www.bbc.com/news/videos/cgr4dr4rp74o?at_medium=RSS&at_campaign=rss) |
 | Police hunt for two men mistakenly released from prison | [阅读全文](https://www.bbc.com/news/articles/c1d0kll2vn4o?at_medium=RSS&at_campaign=rss) |
-| The justice system is failing - the buck stops with Lammy | [阅读全文](https://www.bbc.com/news/articles/crmx82ng9gyo?at_medium=RSS&at_campaign=rss) |
 | Inside Gaza, BBC sees total devastation after two years of war | [阅读全文](https://www.bbc.com/news/articles/c0rp4lrdv8ko?at_medium=RSS&at_campaign=rss) |
 | Patients left in limbo - how the NHS is closing the door on ADHD cases | [阅读全文](https://www.bbc.com/news/articles/c4gpl150ze4o?at_medium=RSS&at_campaign=rss) |
 | William announces Earthshot Prize 2025 winners in Rio | [阅读全文](https://www.bbc.com/news/articles/cy0y50457y9o?at_medium=RSS&at_campaign=rss) |
 | Mexico president to seek charges after being groped on street | [阅读全文](https://www.bbc.com/news/articles/cy9pgev02pno?at_medium=RSS&at_campaign=rss) |
 | 'It was fight or flight': Man drove car at train stabbings suspect after attack | [阅读全文](https://www.bbc.com/news/articles/c0jdvzdww35o?at_medium=RSS&at_campaign=rss) |
 | Interest rates expected to be held as Budget looms | [阅读全文](https://www.bbc.com/news/articles/c77zkg5504eo?at_medium=RSS&at_campaign=rss) |
+| Huge estates in Scotland could be broken up as MSPs pass land reform bill | [阅读全文](https://www.bbc.com/news/articles/cgr4d770znpo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| FAA will reduce air traffic by 10% at many airports to maintain safety - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOTDFxUUEzakh2b0ZNcTdsZjRXa29pSUNqZmJyd1A2LWlCUUVnWjFrUF9pazYwUGM4Sk1zSFJ3c0ZsRm9MYUw0U2dKcnZoeXhNakNGbVdzc1pYRWhwYXRoeVhkY2dNRUZ3UXBIc3JDVWltbjc2bms4UjY5eXNmUHlaQk5fZXAzeGhhVEpxVA?oc=5) |
+| 40 airports to cut flights by 10% if shutdown continues, FAA says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9sajFoMFoyak1MUjVUTW1WY1VMWmt1d3hWQ0MySTcyM0w0M2FRcXVBVUYydVRrR085YloxUmRlTkNTMGxhS2FESV9QQ2F2NHhRUk9Cb3drVW5POE15aW9XdEg5ZGxKZ0d1aXZfUXZUWjdFc2JheWc2X1Y3N25mazA?oc=5) |
 | Mayor-elect Zohran Mamdani says New York will resist Trump 'intimidation' - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOU20xd0JSeFlKSkk5RnpWYjNHcTNHby1ZYnFkYjVJU1FYSXlZSkpDREtCZGZCLUQ1X1RsV3VpRWNDZEJneXkyVjQybGNGUDd1UmhQbkNpN0dSc0pSR0ZsV0wyaGoxeGNzRWxPRTctTEt6bTB6NlkyVVhaWVItRzh2TjhWOXFNcGYxOE1OWm9DT3Q0enpXbk1HNUNDTFFZYnI1ZzY3OVVHY9IBrAFBVV95cUxNbWJrV0piemNDdmgySzc2QnduNE1ORWdhWndQUjY3dS1CWFNjVnc5RFJ4T0FmYWFBVDd6MUU0b3ZiaTFvSjNrUDB0YkxZUnQ0Uk1PUXN2LVRiR09udXFTeU1pOGk2cU00OTV2ano5bXpRUWNGdGdKaEVncHBSNjBFZ1QwVEEyM2FMdjNaemNqTHo0X2FKeXB2NzJSMC1UemhRREVoOWxxWHAzU3ZW?oc=5) |
-| It could all come down to the word ‘tax’ — and other takeaways from the tariff arguments - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPT0VYMnBGamVHb0g1Qk5hUkhabFd0eGR2cXZzV1J1SU5IelNrUVJfeTdFdDE5c3IyMTZqVXZSUk5YOWtEalBHMDlqeUtjRWJMeFJkOGJBZ0gxQ2xKNFljeTROZUtxaE1UM1FuR1NHelBsSm42NUN6NllkbnNhd0UtaHZZaTc4WXFHWUd6ODJ0a3R5R2p5X01HNWhDVUgwSjNiVFBfeg?oc=5) |
+| Supreme Court put Trump tariffs on a high-fire grill, in bipartisan scrutiny - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5NbDFIc1BFLUdDSWNjclNkMGNxR2ljb0NuY0d4WTBTMnNWSGJaNjRHanFhOU9CX0ZsYXBmR09Eb2FWTG1vVkJBSkZrc010WlcwY0hEc2dHcUtpdlVLWjV5SlRMUXVNNWhrSElSeU5EXzlZZmFLcjY0RDhQNlQ?oc=5) |
 | Mapping a Democratic sweep across Virginia, New Jersey and New York - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOczlORkNMU1d4OG1JQ0swaGxxSDNyTzFPRDVGbk9oSWxlSEhXblFRTncwbnBkV0NTQmVXWEFqSW42UmlTREFERkpWRkViVU9qdHRtbW52aEtPZWthRVpuMlZleW4tdU8xd0V0R2pKUF9EcDMtNnhaUk5vdjU0OFdzR0F4M2MzVEZWaFdpZUI4TE0tNW5XeHc?oc=5) |
 | UPS plane engine fell off during crash in Louisville, NTSB official says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQZ3hKMHlDc2tJTzlvbF9LSmRrcU5LQXM5eHJqOEZ4TGs1V01jM0hmTktXUXR5RkFYenBqaTNrTkZHMk50a2tmYlROMl9feFVZQmxudWxlS09JeXh3aVIxaGVUSFBRZjd0OGNpQWhhdUtmaWVHLTVZXzJoYkhrblBpWTZoTWN0NmVkaTVpenpTZ9IBlAFBVV95cUxNbjBCRkhvd202M1RKQlRTa1VuVWZtR3ZPQUJlcEpIX04wOGtsRTFJUExvSDR1b3lDS3ctQ29VNURQakhUa2l5MDdfRm9RN0FyU25uLXpXV2UwTmdFTVpGSUU2RVRBNU9vRDl6Y3hxNFdmMDRldzhlRFNNNm81dzhHTW5yWHcyYTdaR05FQ0V5a0ZtYlBP?oc=5) |
 | What’s really concerning Republicans after Tuesday’s romp - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOMFhnX1B5blR5TkNTYWdJZ0dsT1laNU55bGZLWU1tcWI5dVdwSy1hdFdFT0NTQm5UMGtJdDNPS1pLTjNZXzdUR3YtYVJjLVJlN1JNVzZKTFkwNVpvZ1V0WHdBUExJUl9FdlppS1ZRNmNubm9vZmtybzFfTWplSVRLSloxaTRfTjgtbnR0aFdiS3E2TkozSFZEU1M5RXE2dnZlU2hYY2p0bTNmQzI0Rnl6cw?oc=5) |
