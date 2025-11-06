@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月06日 07:57:41（北京时间）**
+🕒 更新时间：**2025年11月06日 08:00:48（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Supreme Court appears sceptical of legal basis for Trump tariffs - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE5RVk90N1hPalJNQVZMRmM1ZWhiUkplWVhXNkRENjY4Y1lod3JtSktCbDBvNlVPeWV3aWRtSFo4Vkh5U3VvWW5jaGgzdUZpRmlYMUowWERQTkhZWmxrYWVELXN6TmdsSkVzMk8taGRxOGQ?oc=5) |
 | Democrats' 2025 election wins go beyond big races to places like Georgia, Pennsylvania - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQX0ZkdTYxMmNiZWZEMDlNeW5WR0R0bnFGRXgxWlNaYWM0NHRndUw2OUpvTFhrOHk2LVVPMWFlSGtiVXBUc2E5eGlVbUFSUUNYWVVsZTYtOGxyWjlDaE40NlUwMUR2MUpSVURWaUhsOW5kd0U2Q0tKeFRVLWJVVTFuYUYyYkoyTlgtZ2I2OXk0SW9jRGRoU0VZWENxdDU5TUlQWWhR?oc=5) |
 | Republican incumbents set for face-off in redrawn California district post-Proposition 50 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE80ekZNYzEwdnpkMEtHZk1IdWlocGQxblhwbkxzMUVaVG9wSjlIU3hveUEwdk1HSzFpaUFhenZjVG0tQk9fTlNKRmtHUGFLOUthV3VDUFY1MWFKRG9xYU5pVk91anFQcldrcWZLenRyMktjSFZXbVJtZA?oc=5) |
-| Video of UPS plane crash in Louisville provides clues as investigators try to determine cause of disaster - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9ReTZ4YjI0YldjVF9veV9NekRHRmQ5dFFFay1jSzFhMVFNN0tvdUNJeC1IRjk0b3Y1ZE82OWZhWDgzS0N1QnIxT3JBM3QwOHFkZG5xa05Kb2U2dGg3N05BN1VGMFIzNmVwRnZSQVZsZWFkbHpEQU9F0gF8QVVfeXFMTVpTQmpUWjJaZFFMRjEweFdKZ2l3UEhRZGRScUU5V1ZZQUFaUk1wY21GV0t1MGY3ZDVyX3RuMkZ1bTFUS05VTmVCYTZEZEZmNy12VGFsRTRfT094RVlqU2Z2TGFhbW10QWFfY3A0MUdRMVVuMGZPTERzRW05NQ?oc=5) |
-| Federal judge warns Justice Department it may be veering close to mishandling evidence in Comey case - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPX0J2S2lWZEY0OXFTbkZRV2haS2o0bF9lOXFKVEhlbGdYMVVfdl8yTzlvYndUV19ySDExMi1tZG9uNm1Id2FqSHN6OXh4ZjVlQXdQeDNERUFacHFESU80bnRzc05VSTViYTNSREpPV0toX2xkUFhuS0R3Q3BBcDJuZHFNRWRlQQ?oc=5) |
+| What’s really concerning Republicans after Tuesday’s romp - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOMFhnX1B5blR5TkNTYWdJZ0dsT1laNU55bGZLWU1tcWI5dVdwSy1hdFdFT0NTQm5UMGtJdDNPS1pLTjNZXzdUR3YtYVJjLVJlN1JNVzZKTFkwNVpvZ1V0WHdBUExJUl9FdlppS1ZRNmNubm9vZmtybzFfTWplSVRLSloxaTRfTjgtbnR0aFdiS3E2TkozSFZEU1M5RXE2dnZlU2hYY2p0bTNmQzI0Rnl6cw?oc=5) |
+| UPS plane engine fell off during crash in Louisville, NTSB official says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQZ3hKMHlDc2tJTzlvbF9LSmRrcU5LQXM5eHJqOEZ4TGs1V01jM0hmTktXUXR5RkFYenBqaTNrTkZHMk50a2tmYlROMl9feFVZQmxudWxlS09JeXh3aVIxaGVUSFBRZjd0OGNpQWhhdUtmaWVHLTVZXzJoYkhrblBpWTZoTWN0NmVkaTVpenpTZ9IBlAFBVV95cUxNbjBCRkhvd202M1RKQlRTa1VuVWZtR3ZPQUJlcEpIX04wOGtsRTFJUExvSDR1b3lDS3ctQ29VNURQakhUa2l5MDdfRm9RN0FyU25uLXpXV2UwTmdFTVpGSUU2RVRBNU9vRDl6Y3hxNFdmMDRldzhlRFNNNm81dzhHTW5yWHcyYTdaR05FQ0V5a0ZtYlBP?oc=5) |
+| Trump breaks his own record for the longest government shutdown in history - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxNdEhURzRJelQwbl95MktSSUp2UWp2VF9Md0xWVE5LTk1XTXJtQVA4WEtJYUNxVWpNUFprWDdVR0I4NVFCX0daZ0Vid0p0dEF1SWh5RTNYdkdKNVlpZHNkdzg2Uy1tLU9Xa3NqQ0l5TW5ISTZLaGpSTHhUdTl6elJCbDdfRQ?oc=5) |
+| Judge Berates Justice Dept. in Its Prosecution of Comey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNSVpzSWFaSlpEV3lHY2Jab0JXNVFxV2VGR00xM0xDc19tekJPeG9xSGJTYzRVNnJFaTRsMEkwTTZoMUFYay1GTmNSeTFOdi1sWF9MWFI3WHlYSURPaVlxbHg3RVRoekMtSjNyZnQzOTE0bGU3c1VoU01GQmJKZWFUcUIwR0RXdG8?oc=5) |
 | Trump Blames Shutdown for Republican Losses on Election Day - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOak5SRFl0TmdNaFpOUFRLNWJtdC1zaHdyLXBIRjdINlhOMVF5VkVWOGN3Nlo5SUYwSTZOcjJqR0tGdXBqYUpJYTNYM1ZQaTBxQ3NGRmVtR3VFX1Y5TnA0RUcyWEFpUHptZHE0VUFHWUs5STBsWjdabUk1Qk80ck9KTWZZNFhqenlUMFE?oc=5) |
-| Frey wins third term as Minneapolis mayor, says it will be his last - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPOHJjU0NEU1hCNl94WWFOcVNja1hGMkxWNXRHakh4dS03eGdWMTRzYlpMbndBcWpaaWlOZTRwNTVsb3pQTEVIT3ZzQkpMTG1NYlh6STlfZVhuTF9PQmlRSTVzd3U0aTFMSm9SUVBud2kxYlZsYnFkbnliQ0dOakY3TUNlT1ZZMzFZSktB?oc=5) |
-| Photos from inside Gaza show destruction wrought by Israeli military efforts to root out Hamas - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQNkpKTjFvQUdROTZRQXBrUVEwZVFOTS1PSFBZdnA1cjRZbU9CcHh1dTdIMU5pamNYNlFranpKeUJ0NmlsVmI3Rm9RZ1BSS1ktdWZKdmRHbmhmTlRPdkxUZndMYTZEdHRKdzVPd1o3QmVBcGxJNk9iWVZxa3JfZzFzN3ZFYmdWYzNNY25LQm5hblF3Q2tjT1NaV3ZLRVJnSnZUM3FEWFl3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
