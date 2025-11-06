@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 00:25:34（北京时间）**
+🕒 更新时间：**2025年11月07日 00:33:08（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Dallas Cowboys' Kneeland dies aged 24 - BBC | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBNN1FEaUs5elFEUlRqZ1FoTmRzaTBNMEJONm84YjExUXVMYWFHeVJ2Q01SYjF1dUd1dURGaXg0R21iYnpncGJsLXVENXpoTjRCaUhqb0ItWi1neDZRbUVHSF92a3dvUjFSSDRWRkJzeUZzSkk?oc=5) |
 | How would the government shutdown affect Thanksgiving travel? Here's what to know - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPRmV0YVRjWmVoaUpoSFU5dHNxbkQ4cEdSNlJGNHRBb3BqTGR0X1ozUjVIS3JTTWdNbWlRLWlIa2p3aXlaRlpiNG94MTMzOGo0d3l3OVFrWFI5cEc2M3diSVp1SV96U1hGSlZqc0R3d0J2UTZ2TExOU2JTM3ZYeGt0dTUyYlppOG15TG9YWExSN2l2VW1oeGU4?oc=5) |
-| Nancy Pelosi, first woman to be House speaker, announces retirement - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQN2pFd21LY0piYzVQd0ZkeGdfVmZGVTVBLURyQTctdEVhQWoxV28ybXNPdThyVFRHZVZraVV0c1BoMWNLUmFRXzY0Q0JmNk0zNmctMVJ5VC1CZWx5U3dQdTd2UkxsLTgwXzFSRk56WEVhY1F2b0VmUWV2R1hDX29jSlNGWFR6bU1CdGdXUG1yTWQyRkhOYWNPSjdBaU9tNEVLUEZMSy1pdw?oc=5) |
+| Nancy Pelosi, a force on Capitol Hill for decades, to retire from Congress - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQUFRBZW43QTRCZmFxOXIwXzdfQ2wwQXRBQ09qVk5ZV0llOGpESURhSHBuTnlNSTQ2bGNNdWdpOTRPRmh0QS1KcVVVZ3NSZnp3cHZCS3dnT1oxMHg1MkRDQlUzVnNpVnQ4b1VrUjRSVldKNFBZOUJMTHdVQVhPVmpfUnJB?oc=5) |
 | CNBC Daily Open: The Supreme Court might not have the last word on Trump tariffs - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPSnVYSWlyTnY1SEN2QWZDQzg1bERKVFlHaVk5WkZrWEZ6Z2Y3LS0tMXlvOWxVRURhUURwZHdraTk2Zmo4a044MWJJQ1NFOTJ6Y3dobGFZdDBJckhSOVlGNTUtU1ZNb1ZkbnNYdkFpTlFkWnNaMFNsdm5IYVpkNFk1V2cxSVdaSThKV2JzaUF1MHBtNjRCT241a2FKV0FCc254cHlLaEwwWGpObmFT0gGyAUFVX3lxTE9WQXZiVVhyTEg1Tl91VVpYM05WeGQzdkVwQjh1OVFKc1NPR2dFTHlYM3RBOThlQUs3aVBxZXpKTWxzZ05YWWN2UzhiNXhkUWUxWW0yMXlmSE1WQmM0cTJIUDEwSWJqR2V6MGhXNFdQMUtuM3BPdkVFdVJ3M1Bzek5Pc1RfRVh5clVYdkNDcVRwQmpmN0tEVnE4Y3NoMjBRcTltUUplT0pJRFNlNUlrTHZVWUE?oc=5) |
 | New video shows explosive moment of UPS plane crash - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBCMWVFRmhRZXphUEVMc2RPZmtUbmR6eXdXSWtXMXczUHJYT0NJQ01NdkhGbDVJMTZMSjUwQUNGeTZFdjlYOVhsT3lBZmhJX3J6TmhEQ3ZQN3dlNDdReVZVS2dlZzR1UnJBeTBFaEpscXUyVm5lRWdWOGVWTVFleEnSAVZBVV95cUxNOHVNckdhelJWcXBuR29RbjNMRU11dzhTUnNncXBQWlFxX1ZSMUx3dEt0ck5jeFZlQ0EydUIzejg0akd2S2lGNFkyN0RGX0lpbkNUNUJGZw?oc=5) |
 | Republicans take stock of Newsom, a ‘Tier 1 Democrat’ after Prop 50 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOaXlzSFRXc3ZvbkRTbDh2R29NZ09hVVI4TmhBRlZTQzVfYU5Ea0I0ZndBYmYxOGYtRnNxWVNFYTl4QW5KTE8tTEdrMnpaLW1SVURKSU5fVE5KTFJ3WkpYODYzWkhwUzhxZHd5ejgyYWw3X3ljT2VQZzN6N0xLbml0WnpjN0kyTWdwbGhad09MNm1KLTVOdDlsb0wzZndOMlE?oc=5) |
