@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月06日 10:16:54（北京时间）**
+🕒 更新时间：**2025年11月06日 10:25:39（北京时间）**
 
 ---
 
@@ -17,22 +17,22 @@
 | Mexico president to seek charges after being groped on street | [阅读全文](https://www.bbc.com/news/articles/cy9pgev02pno?at_medium=RSS&at_campaign=rss) |
 | 'It was fight or flight': Man drove car at train stabbings suspect after attack | [阅读全文](https://www.bbc.com/news/articles/c0jdvzdww35o?at_medium=RSS&at_campaign=rss) |
 | Interest rates expected to be held as Budget looms | [阅读全文](https://www.bbc.com/news/articles/c77zkg5504eo?at_medium=RSS&at_campaign=rss) |
-| Huge estates in Scotland could be broken up as MSPs pass land reform bill | [阅读全文](https://www.bbc.com/news/articles/cgr4d770znpo?at_medium=RSS&at_campaign=rss) |
+| 'Vibe coding' named word of the year by Collins Dictionary | [阅读全文](https://www.bbc.com/news/articles/cpd2y053nleo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | 40 airports to cut flights by 10% if shutdown continues, FAA says - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9sajFoMFoyak1MUjVUTW1WY1VMWmt1d3hWQ0MySTcyM0w0M2FRcXVBVUYydVRrR085YloxUmRlTkNTMGxhS2FESV9QQ2F2NHhRUk9Cb3drVW5POE15aW9XdEg5ZGxKZ0d1aXZfUXZUWjdFc2JheWc2X1Y3N25mazA?oc=5) |
-| Mayor-elect Zohran Mamdani says New York will resist Trump 'intimidation' - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOU20xd0JSeFlKSkk5RnpWYjNHcTNHby1ZYnFkYjVJU1FYSXlZSkpDREtCZGZCLUQ1X1RsV3VpRWNDZEJneXkyVjQybGNGUDd1UmhQbkNpN0dSc0pSR0ZsV0wyaGoxeGNzRWxPRTctTEt6bTB6NlkyVVhaWVItRzh2TjhWOXFNcGYxOE1OWm9DT3Q0enpXbk1HNUNDTFFZYnI1ZzY3OVVHY9IBrAFBVV95cUxNbWJrV0piemNDdmgySzc2QnduNE1ORWdhWndQUjY3dS1CWFNjVnc5RFJ4T0FmYWFBVDd6MUU0b3ZiaTFvSjNrUDB0YkxZUnQ0Uk1PUXN2LVRiR09udXFTeU1pOGk2cU00OTV2ano5bXpRUWNGdGdKaEVncHBSNjBFZ1QwVEEyM2FMdjNaemNqTHo0X2FKeXB2NzJSMC1UemhRREVoOWxxWHAzU3ZW?oc=5) |
 | Supreme Court put Trump tariffs on a high-fire grill, in bipartisan scrutiny - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5NbDFIc1BFLUdDSWNjclNkMGNxR2ljb0NuY0d4WTBTMnNWSGJaNjRHanFhOU9CX0ZsYXBmR09Eb2FWTG1vVkJBSkZrc010WlcwY0hEc2dHcUtpdlVLWjV5SlRMUXVNNWhrSElSeU5EXzlZZmFLcjY0RDhQNlQ?oc=5) |
 | Mapping a Democratic sweep across Virginia, New Jersey and New York - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOczlORkNMU1d4OG1JQ0swaGxxSDNyTzFPRDVGbk9oSWxlSEhXblFRTncwbnBkV0NTQmVXWEFqSW42UmlTREFERkpWRkViVU9qdHRtbW52aEtPZWthRVpuMlZleW4tdU8xd0V0R2pKUF9EcDMtNnhaUk5vdjU0OFdzR0F4M2MzVEZWaFdpZUI4TE0tNW5XeHc?oc=5) |
+| Mayor-elect Zohran Mamdani says New York will resist Trump 'intimidation' - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOU20xd0JSeFlKSkk5RnpWYjNHcTNHby1ZYnFkYjVJU1FYSXlZSkpDREtCZGZCLUQ1X1RsV3VpRWNDZEJneXkyVjQybGNGUDd1UmhQbkNpN0dSc0pSR0ZsV0wyaGoxeGNzRWxPRTctTEt6bTB6NlkyVVhaWVItRzh2TjhWOXFNcGYxOE1OWm9DT3Q0enpXbk1HNUNDTFFZYnI1ZzY3OVVHY9IBrAFBVV95cUxNbWJrV0piemNDdmgySzc2QnduNE1ORWdhWndQUjY3dS1CWFNjVnc5RFJ4T0FmYWFBVDd6MUU0b3ZiaTFvSjNrUDB0YkxZUnQ0Uk1PUXN2LVRiR09udXFTeU1pOGk2cU00OTV2ano5bXpRUWNGdGdKaEVncHBSNjBFZ1QwVEEyM2FMdjNaemNqTHo0X2FKeXB2NzJSMC1UemhRREVoOWxxWHAzU3ZW?oc=5) |
 | UPS plane engine fell off during crash in Louisville, NTSB official says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQZ3hKMHlDc2tJTzlvbF9LSmRrcU5LQXM5eHJqOEZ4TGs1V01jM0hmTktXUXR5RkFYenBqaTNrTkZHMk50a2tmYlROMl9feFVZQmxudWxlS09JeXh3aVIxaGVUSFBRZjd0OGNpQWhhdUtmaWVHLTVZXzJoYkhrblBpWTZoTWN0NmVkaTVpenpTZ9IBlAFBVV95cUxNbjBCRkhvd202M1RKQlRTa1VuVWZtR3ZPQUJlcEpIX04wOGtsRTFJUExvSDR1b3lDS3ctQ29VNURQakhUa2l5MDdfRm9RN0FyU25uLXpXV2UwTmdFTVpGSUU2RVRBNU9vRDl6Y3hxNFdmMDRldzhlRFNNNm81dzhHTW5yWHcyYTdaR05FQ0V5a0ZtYlBP?oc=5) |
 | What’s really concerning Republicans after Tuesday’s romp - Politico | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOMFhnX1B5blR5TkNTYWdJZ0dsT1laNU55bGZLWU1tcWI5dVdwSy1hdFdFT0NTQm5UMGtJdDNPS1pLTjNZXzdUR3YtYVJjLVJlN1JNVzZKTFkwNVpvZ1V0WHdBUExJUl9FdlppS1ZRNmNubm9vZmtybzFfTWplSVRLSloxaTRfTjgtbnR0aFdiS3E2TkozSFZEU1M5RXE2dnZlU2hYY2p0bTNmQzI0Rnl6cw?oc=5) |
-| Republicans file lawsuit to block new congressional map approved by California voters - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwAFBVV95cUxQelBDZHVvZjl3bWRFRkpoQ1RYTS00UlZJWXpfUDdIS0E1RTlNN2dVRTcxUjJSOXJrR19aVi1IN2tUZnNjY0xJRW90dzlnTWV3a0RDekZsLXVnOXJVdWprRUE5VzVBVGtSZ2ZFQUlJdGhsZkRpT1dweGJEUzFnNmlsdWpObGUwdUh5TzZfSmt6TG5ua296SXc5UzdlVVJGRjRIMC1pczE3dmxZLTV3amExLTNQYjVscW04SHZ5b2cyZk7SAcYBQVVfeXFMTTlCdGNfeV9PbGJyZm9lLWZTQ2xNQW8tZnM5WmpwUlNoMWxldW9yUEgzSGdrZVlaQW5BQkIwak9wc2ZWeHlBSHVfRjlvSVU1a19JbzZvUmpIVExjOVlDU25WaEZicVVSX1h4QjVmbHVJVVdyMHUtd1hpSVduVjhCOUtIYnppQnBUSWRucnhZUERsUXFMdWp4Q1RhYjIwYVFKdzlyckt0RWpiRjZobS1HZXNNSXZBSTQ1REZRTlVsY1VLb3l3S2tR?oc=5) |
+| California Republicans sue over new US House map approved by voters - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxPLUxRdEtXTDh6NVJQclBObzhuWVRnbHduUUJBX2NjR0lMWnlhWkpTQk9XcGpIcU5aYlpMMW9Ja0RWdEZ6VGxjZlhsUjdfZ1JFYkNtQmZnNk5sUFNxMHE5Y0xZUGhDZG8yZ1JuTnh2V0pYWFgxWl9lN2VHYVRTMjVzVkQwQVZUS0dwQ194a2NOeldWeVdPMlBRMmd0QkliNk5yZXpZRzNpTDJITlNidmZBRFh3?oc=5) |
 | Democrats tap the brakes on ending government shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPRDhwUnlRdHVhaWs1Mi1PQTZhNzRnRGhnTjhlN1Jqa3VOVTEyMlVJQV9VT01vNzYyWExBbUhha3RLVjZuTFpjVmZTN0kzMkdmbGx1ZkhQcERlaGp6QU1MRW9YNl8ySFB2NTRFWHZYVUh5TUVxMnVXSFRha0UzVjh6YjNuQ1Q?oc=5) |
+| A State-by-State Guide to the Gerrymandering Fight for Congress - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNTUV3Z3B2N2kxZW1RTmtqTEw2a0hOVjNOSXV5d1Y5OUNqNmRpSlFvT1ZpYVVVT09KOC1RcEdpdnpfU2dqcFdULXZaYXowM3V3eWVtbFkyeWtXVGVORTBKZmlCd1NVSWExc1p2VG5kcURsUVkzVHV6NkRteGlfOGpVYzBocVBlTHlJcFY4WmpGdmN5MGV2dGhtYm9GM1I?oc=5) |
 | Federal judge warns Justice Department it may be veering close to mishandling evidence in Comey case - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPX0J2S2lWZEY0OXFTbkZRV2haS2o0bF9lOXFKVEhlbGdYMVVfdl8yTzlvYndUV19ySDExMi1tZG9uNm1Id2FqSHN6OXh4ZjVlQXdQeDNERUFacHFESU80bnRzc05VSTViYTNSREpPV0toX2xkUFhuS0R3Q3BBcDJuZHFNRWRlQQ?oc=5) |
-| ‘Giant scam’: Trump calls for changes to voting after Democratic wins on election night - Syracuse.com | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxPR2pVLUdFNUdkOEtmUl9YNjhMYTYtakVrN3M4NFVLTFRZbi1vZXdyaVFsZnNRQkliVXlnNXVDWjJ3MV82QzE0RTdUbXlnU1YtamJUeWRLY1NDaUw3clAtTWtyNG42YXBMUDhxekZuSUp4Y3BKd3Z0OUtzX2s1VW1SUWx2aUdRbGYzUkQtc2dCWFdYNzRzbFR4OVdtTThHRC1vdE9mUHVBUmU1NnU5M3pEeFY5TEJYaUtPZFlhX0lQNTV4RENPODhFN3FYWdIB3wFBVV95cUxNOE5INnQ0MDItVElYV0RYUWhKenBDNmdXSzBkMkdXdllGanBkdnpVanpwQkVIUW0yNms0UzZGdzlfNVVZQjRUZlY0c0lhZWUyTC1tSlc1YTlhaXVfdzVwLXZ5R0NaS1hvN3RreDMtekhTY0N6dlBNQzk4YnZVTkJRV2NsaVZyZTJEUDdXZGEzM0tEa0pZbmdNOFpHd0hSZU1TT1o4NktRTTdsZjVIREdPdUtoNmtHNU5KaUFYNXVRM0luc1J3aWliTXpidEZGREVHUTdnOHdQQnhMbS1fdEI4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
