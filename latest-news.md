@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月06日 20:17:43（北京时间）**
+🕒 更新时间：**2025年11月06日 20:25:44（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| All 3 DC-area airports affected by FAA air traffic cuts, report says - WTOP | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQMU5pOVlFQUF2Rk40X3dHYThudU5QWVJETVNaTXR3MDVydFc5a1h1eVUtVS1WcUFSZjRRWXNyaWNNS3RzNDBkQzdTQzNOUmxGSU12endsTDk4MmdfbklTTFZEUzI5SHQwYTFhTWhyanY0N25menRkVmxsbGZlQ0Nfc3hqSFJ1emtvMWx4ck1rOEtub3M?oc=5) |
+| Government shutdown prompts FAA to float flight cancellations as Senate talks continue - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOSi1xcGVUVWpBSjFGRGI4SzhyTm9NWVphSGhhQjNkTVVmY0FhT0NMVGNHMmZFanBoNExHWmtYdUVZdU1sd1hpYjlXN3ZfU0JLdEhUMGVvZ1drSEdXbGV2aDctTDZaX2haenVaZlNXZy1XMTdQRGNkZWctMkdGOUh3c3VjMVRvX1pwMElKRkN2c1FTMmpRSG9HQVJVa25yaTk0NUxFdVVKRzFKZFoyYkdJa2NYZ3RLOUnSAbwBQVVfeXFMUG9YZ0JZTnRIbkxhTFhGZDNtRWZxNkRmSk1NVnBNdGlGRzdQalVVNDd2M0FTR1dEZ3RIOWpOelhZOEJXaC0zdlBVM1pQUTFOckY2MnRYOGgtMElXb0o5Z0diNW8tUWZUS2ctTmp1WFRPclRGZHRpdmVxNWNxbUNnQ3dpU2VzdmJYR3M2SnBVQUQ2VHNza1pIS3FKX0xiNVkwUXRvVkdmcW9HdDEya1MxZHNNOGZ0S0h1MHRSTVA?oc=5) |
 | Zohran Mamdani announces all-female transition team as he prepares for New York mayoralty - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOWWpEUGIzVTdacEtQNFM3SFp0eHQ5VS1May1DMGRmQ2FkdmcyMkRtVHo1OTNjX3pmOEQtVThYNXZMWlp1X3VzZ19FT0NYRG14TlVWWXpsMHI0Nk9Td2NTNEdwUnlFSGQwUzNQaWNaeWpoRmVBQkVMRXdWQVlld3JsTUV0V0U?oc=5) |
 | White House tells Supreme Court it doesn’t care about the tariff money raised - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNemZOT0lOdG9GQmpqQV9TdG5QamJrUjZzanJFMUVueVNheEEwM2hXRk4zcGxjNnVjbTVyU01RbmN5a2hpS0o5UF9mNzlWamVxRnJ6MDlCYzBibnJrWE9UbUlwcUZ3S2IwMVFoNEFMNUNYYklZU0JrNTg3R0M4aWo4bFFlcUdqRUdKWmdxcnlYM08wR0U4T2Z1c1hTbl9CQQ?oc=5) |
 | 'Folks are tired of the chaos': Pa. Gov. Shapiro reacts to Democrats' big election night wins - 6abc Philadelphia | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPcWhPWXlhLWVzMHNQcnJjY24wVXRncmdiTkJjTEZiSXN5eHctRFNLcDVyaG9aNGg2eWtpcDB3d19wSGs2LUZ4emFnUFZvSVR6ai1ONXFCdEJJN3kwam94SElTeHlLNWlTSm5CMjJ1OExNQm5CSWZ2ZW9fQTI3TVlEYTBMM3JueXhOS1ptTmJoQ0dubG5lSmVkSTUtTndrRTFaZHdMQldJWjByTjhmMFHSAbMBQVVfeXFMUHJGVVlqOHBydjdsUWJiWkNOY2F6eVNoWFB1dXdMWkpncWZiYXJCUVR0SE5ibERFS0gwV1VhYkVQbW5wT3RiaXhIN1BGakdac1QzRy1UQ283VFNmNDJoZnVGR1N4TnYtLTRwSEVfTUhYaDJvWmJWaG5oOWZpbmtUMkVobFBkMWdnSzVGdVpXcmp2MkFCaGo0ZDBwZnBDRldVcDVFamRVZHFaeXFNcVpMalllUjg?oc=5) |
