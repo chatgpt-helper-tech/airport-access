@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 05:16:41（北京时间）**
+🕒 更新时间：**2025年11月07日 05:24:44（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Senators push toward deal to end shutdown as final sticking points remain - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1GcF9NbnNRMFJKMVBEVnF0RnhRcWJNT0g4RFRTTTFIUWVFX2JhMHRfVDhTczhPUWFuQVk4LVhrUGpVdGRpb1FWcldOemplczZKcUMyQlVrUGxpMG90Ylpyc2NKckJYNjNscURnU0htN0Z3MG1FLTRzOGhB?oc=5) |
 | Officials scour charred site of Kentucky UPS plane crash for victims and answers - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOaENwQ0NkbzdtNndtMGRPUmRGeFZFWjVsdGNEOTFXREtnaVZ4dkhqVV9pY01kUXFPNWVKTzNkUW1naU1IbmlVQVFmVjRXQUFRZHJrWDVJNWxObjZpQmtOVmZ2MWFRVk9Lb3UyQWlPaTNJSm1OVEVzU1c2R3NORG4tRER4Q3NackE3bExDZDhWdzF6a1p0RV9raTBCOVBibTJfcEdhTw?oc=5) |
 | Zohran Mamdani and the Wall Street vibe shift - Axios | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE9Yc3hYOFVsMzBIVC1SLW4tOFNSTW9KdE93TjZaSERLc0dEYXdGVHZfWDcwSzdrbFN6QnJEMEM5SlVLY2ZTWTZKVGF1Zmc1LWhWMUI0SmdFVWg4Vkd1dlRHa0Mta2xFUVRLaFduSkJ6QlY2eEE?oc=5) |
-| Republicans, including ‘cowardly’ Schwarzenegger, take heat for lopsided loss on Prop. 50 - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPYTZMX0pNLTlRdC1oYm9FVTBpdW9vMUxsT3JMSzVxYTZ1VmduLXRUMTc2QlhzVmxhc2lGLUR2SVZLNVg3QWgwWXhiZjRWZDExRE15UXBtTGFQY2ZkNVREOG5pRHc2LVNJNEt5R05pNlRyaGFvRnJiLXVIRjhvb2FHbTNDdUFzd0NHNzFmRE5FVy1pbmt1Z2VnWTZkZFBwcndINXc?oc=5) |
+| Here's how much weight loss drugs could cost you under Trump's deals with Eli Lilly, Novo Nordisk - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPUW5hQmJ6ZHpSQkFBaWpNcDBqWXBleExGV29FMUQtMkRvU3BoM0xUSHdUSERHNnJEYlFSYk81ZGxsM3JLU0lCZXFpZGJGUlBKWGxiVnczRU5iT0VqSldpc2hrQ09GT1N5eXdQcFloYUtubVhmVERvQ09uQWk3M3JMSmxqZWZYdV96dmFwT0FuanBVUzg0Y0HSAZsBQVVfeXFMT1BUZmlJN2pjNUtoVTB4eWlhdVFhOWo4cnJzY084UU1jMU9zSFYtLVdtZjktVllUR3dJNGtpMW1JZFluRE9pVnFQTE9fRGhTVndLOFJWelJnSUZHWGtqX1hnRVVkNUR5WHVtWkdSRnhOdXdPRVR5bUczWm1uZGUxZzBjNktkZlhsOWJiMmpZTEk5NEhoYmlsOEVtZ2s?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
