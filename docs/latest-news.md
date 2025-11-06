@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 01:25:29（北京时间）**
+🕒 更新时间：**2025年11月07日 01:32:06（北京时间）**
 
 ---
 
@@ -14,16 +14,16 @@
 | King officially strips Andrew of prince title | [阅读全文](https://www.bbc.com/news/articles/cvgmkm8516ko?at_medium=RSS&at_campaign=rss) |
 | Nancy Pelosi announces retirement after decades in US Congress | [阅读全文](https://www.bbc.com/news/articles/ce3xw3dw0zxo?at_medium=RSS&at_campaign=rss) |
 | 'He threw himself at the attacker': Train stabbing survivor says hero passenger saved her | [阅读全文](https://www.bbc.com/news/articles/c3643k02yzpo?at_medium=RSS&at_campaign=rss) |
-| Bank says inflation has 'peaked' as it holds interest rates | [阅读全文](https://www.bbc.com/news/articles/c77zkg5504eo?at_medium=RSS&at_campaign=rss) |
-| Crime fixer caught by BBC offering to erase £60k fines on migrant workers | [阅读全文](https://www.bbc.com/news/articles/ce3kevkl3pdo?at_medium=RSS&at_campaign=rss) |
-| Joey Barton says he is victim of 'political prosecution' | [阅读全文](https://www.bbc.com/news/articles/czxn40ep4x2o?at_medium=RSS&at_campaign=rss) |
 | Will Bank of England governor play Santa or Scrooge on interest rates? | [阅读全文](https://www.bbc.com/news/articles/cy0y34dxl7lo?at_medium=RSS&at_campaign=rss) |
+| Joey Barton says he is victim of 'political prosecution' | [阅读全文](https://www.bbc.com/news/articles/czxn40ep4x2o?at_medium=RSS&at_campaign=rss) |
+| Who, moi? Jennifer Lawrence reveals Miss Piggy movie plans | [阅读全文](https://www.bbc.com/news/articles/c9q15x0q9v4o?at_medium=RSS&at_campaign=rss) |
+| Will quantum be bigger than AI? | [阅读全文](https://www.bbc.com/news/articles/c04gvx7egw5o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| US will publish list of 40 airports where air traffic will be reduced - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQaDZ6aHRUUzl1YUpKSEw5VVl5cmU5RFVrQ2RKVF9hLVNIMlhUM1RaeTJIMzhvS1pIelk3MnR5TEFrbFBjSHJkSTZVVzNMQ1A1QXN0ODA2aGFvdXdubi1aY1cycGV3Mi1ZdGItQ1lHWXJDVzJSSjVSNkhYUTRicDZKSG9n?oc=5) |
+| New York, LA and Chicago airports among 40 facing air traffic reductions - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQaDZ6aHRUUzl1YUpKSEw5VVl5cmU5RFVrQ2RKVF9hLVNIMlhUM1RaeTJIMzhvS1pIelk3MnR5TEFrbFBjSHJkSTZVVzNMQ1A1QXN0ODA2aGFvdXdubi1aY1cycGV3Mi1ZdGItQ1lHWXJDVzJSSjVSNkhYUTRicDZKSG9n?oc=5) |
 | Nancy Pelosi, first woman to be House speaker, announces retirement - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQN2pFd21LY0piYzVQd0ZkeGdfVmZGVTVBLURyQTctdEVhQWoxV28ybXNPdThyVFRHZVZraVV0c1BoMWNLUmFRXzY0Q0JmNk0zNmctMVJ5VC1CZWx5U3dQdTd2UkxsLTgwXzFSRk56WEVhY1F2b0VmUWV2R1hDX29jSlNGWFR6bU1CdGdXUG1yTWQyRkhOYWNPSjdBaU9tNEVLUEZMSy1pd9IBrAFBVV95cUxPTnAwTFdBRGN1cnFTX0JLNzQwUzBsY1lBSUFmYzBYN3JrVEgxc0hlNHhGZFBFckdMUUh0VXJMQ2hlWVJYbGxPR1JFTTc4WmxFZnRpTW54VGJfMDBxV1ZwQ2Z3QzZVUnRFaDZtY1ZzZFlFMzM2YWRiTE5aSHF1YVYxcWp6RUtiUUp1cU4tYURacmtrV29WMEw5QlVuVC1VdUpLbmxCZFA3TTdoUWFY?oc=5) |
 | Wall Street reckons with life under Zohran Mamdani - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNYWRLT0xJQTNBT0xIcldZMTNvN2hTeGpReUU3dDBUdDRFQV9mMFg0Um5fR29BTElNemtPSHFNdFh2b2ZySFNsX3JPcDFkRGt4b0g4MEdlN3ZHRXM2SkNRNHlQM0N6R3paNUEzLUpVeU1kOFJuLVkwNnZKNk5JZW95bC1CUWhlV3R1VUVIUWM5cmh6TXpGSFE?oc=5) |
 | Tariff refunds are now a very real possibility … and a giant ‘mess’ - CNN | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTFBtZkZFVExhSjZoSGEzVjBKejBoRXFPTjI2THQwTXlRTWRBSHRJZWVERXptQU5fUWt6WV90bms3TzhQbGFRVV9LdXp5VmtzeFhGMXRZcTdYaXM2a2J1V1lTc0ZNcjBCcWN5ZXEtag?oc=5) |
