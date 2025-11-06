@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月06日 16:08:48（北京时间）**
+🕒 更新时间：**2025年11月06日 16:16:42（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | 'Folks are tired of the chaos': Pa. Gov. Shapiro reacts to Democrats' big election night wins - 6abc Philadelphia | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPcWhPWXlhLWVzMHNQcnJjY24wVXRncmdiTkJjTEZiSXN5eHctRFNLcDVyaG9aNGg2eWtpcDB3d19wSGs2LUZ4emFnUFZvSVR6ai1ONXFCdEJJN3kwam94SElTeHlLNWlTSm5CMjJ1OExNQm5CSWZ2ZW9fQTI3TVlEYTBMM3JueXhOS1ptTmJoQ0dubG5lSmVkSTUtTndrRTFaZHdMQldJWjByTjhmMFHSAbMBQVVfeXFMUHJGVVlqOHBydjdsUWJiWkNOY2F6eVNoWFB1dXdMWkpncWZiYXJCUVR0SE5ibERFS0gwV1VhYkVQbW5wT3RiaXhIN1BGakdac1QzRy1UQ283VFNmNDJoZnVGR1N4TnYtLTRwSEVfTUhYaDJvWmJWaG5oOWZpbmtUMkVobFBkMWdnSzVGdVpXcmp2MkFCaGo0ZDBwZnBDRldVcDVFamRVZHFaeXFNcVpMalllUjg?oc=5) |
 | Court Orders ICE to Clean Up Chicago Detention Conditions - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOY3MyNTlyd2RyS1pDWjhYTzlPTXBKQkxmZGpzOUVYZlFnajc0NTBGU0ZEQmR5WU9WWGctOFUzQ3pDT19WYmFUMFkxeWpremxNc1hteEt4ZmdwZDVLZVdBc1EzMUZ3dnRQRTBfRlFENF9tYVNhLXBUWTBreTRITTJDTzlXVE9ybUF3S3FkXzFJd200NHRoeFhSQ3ZR?oc=5) |
 | Democrats emboldened by election results mobilize against centrists’ emerging shutdown deal - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9vRUZib1dfc3d1WG8xeFJPb2lKOHR0N1ItUWotbjZYVVJTTUM2MHJ5NmN6OE51c0ZZUXB3SVB4T0t6MjJidVFMYWhsYmU3cnJxM090SzhoNUlYRXo4ZzlzVEdUYXBvZkw0TGMwcVVkbEhNd1ZXYlVXS0dsZ3lpdw?oc=5) |
-| Democrats in Mississippi Break the G.O.P.’s State House Supermajority - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNQ3FLUy1qUFlTRVhHbzIzVTFIYlF5RXdDWUpIdlhqX1hyc2I1V0VhYUVZQ0tTdU53Sm9iSkhWY2ZmLXIxTmd2ZWc0X1Nra0wtcGpqOTVROWw1SnRzZFUwVVVRSGtfVnRvN2RUaGNRUlNteDVrRFBURDZwQjdwRGdnX082LUgySTJ6NVRUQkNZdG1tUQ?oc=5) |
+| After ‘Seismic’ Win, New Jersey’s Next Governor Says She Has a Mandate - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNWjJWdDVHcFdDSFhhcnZuTmxKV3l2TXp3RklHNEo1cC1PZ3FTM0lmMlpXNl9tTVNJLVhkRGM5bUlDdGJrekRqUzJUc0pNYUtXM0hHeHNuT2hTNUpTSnAzSlI2LWx4UThEcFNpQWhfRWdNRkQwZHZzRnhGVXZKa3RmQXhHV0ZyZjBBeXc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
