@@ -28,11 +28,12 @@ permalink: /yinheyun/
 > ---
 > 
 > ⚠️ **重要说明：**
-> - ❌ **银河云年付轻量包（¥98/年）为福利款，不参与优惠活动**（该套餐已是厂商最低价，无法再享优惠码折扣）
+> - ❌ **银河云年付轻量包（¥98/年）为福利款，官方公告写着“不参与优惠活动”**
 
 > - 🧧 双11折扣｜优惠力度：8折｜截止：2025-11-30 23:59｜折扣码：`1180`
 > - ✅ 月付、季付、半年付套餐使用 `gptvpnhelper85` 享85折
 > - ✅ 年付、两年付、三年付套餐使用 `gptvpnhelper80` 享8折
+> - 🚨 **薅羊毛提示：实测发现 `1180` 可以给年付轻量包打 8 折（折后 ¥70+），疑似尚未被关闭，建议立即下单锁价。** 👉 [点击直达银河云后台](https://inv03.galaxyaff.cc/register?aff=tcOd0ob7)
 
 ---
 
@@ -136,9 +137,10 @@ Speedtest 使用 Galaxy 银河云香港节点实测结果如下：
 > ---
 > 
 > ⚠️ **重要说明：**
-> - ❌ **银河云年付轻量包（¥98/年）为福利款，不参与优惠活动**（该套餐已是厂商最低价，无法再享优惠码折扣）
+> - ❌ **银河云年付轻量包（¥98/年）为福利款，官方公告写着“不参与优惠活动”**
 > - ✅ 月付、季付、半年付套餐使用 `gptvpnhelper85` 享85折
 > - ✅ 年付、两年付、三年付套餐使用 `gptvpnhelper80` 享8折
+> - 🚨 **额外福利：`1180` 当前可为年付轻量包打 8 折（折后约 ¥70+），疑似漏洞，随时可能失效，建议尽快下单锁价。** 👉 [直达银河云后台抢购](https://inv03.galaxyaff.cc/register?aff=tcOd0ob7)
 
 <a href="https://inv03.galaxyaff.cc/register?aff=tcOd0ob7" target="_blank" style="color:#fff;background:linear-gradient(90deg,#ff416c,#ff4b2b);font-weight:600;font-size:16px;padding:12px 24px;border-radius:8px;text-decoration:none;box-shadow:0 4px 14px rgba(0,0,0,0.25);transition:all 0.3s ease;display:inline-block;margin-top:16px;">
 🚀 点击前往 银河云 官网，最高享8折优惠

@@ -1,26 +1,33 @@
 # 🚀 2025 机场推荐与梯子推荐合集，覆盖科学上网/魔法上网/VPN推荐，提供 Clash/V2Ray/Trojan 订阅、免费试用活动、测速实测与完整上手教程。
 
-📅 **内容最后更新：2025年11月2日**  
-🆕 **最近更新：**
-- 新增银河云双11限时 8 折码 `1180`（至 2025-11-30
+📅 **内容最后更新：2025年11月8日**  
+> 🚨 **薅羊毛机会：银河云年付小包还能打 8 折**  
+> 双11 期间大部分机场的季付/年付小包都禁用了优惠码，但银河云的 **¥98 年付小包** 目前输入 `1180` 仍可打 **8 折**，实付仅需 ¥70+。  
+> 官网公告同样写着“年付小包不参加本次活动”，显然机场主还没发现这个漏洞，随时可能关闭。  
+> ⚠️ 操作步骤：复制优惠码 → 登录后选择年付小包 → 结算时输入 `1180` → 立即锁价。  
+> 👉 [立即直达银河云后台注册](https://inv03.galaxyaff.cc/register?aff=tcOd0ob7)
 
 ## 🔝 快速注册入口
 
-| 机场 | 优惠力度                        | 截止日期             | 优惠码 | 快捷跳转 |
-| --- |-----------------------------|------------------| --- | --- |
-| 百变小樱 | 3 天免费 + 95 折                | 长期               | `bbxy-5th` | [立即注册](https://bbxy.xn--cesw6hd3s99f.com/auth/register?code=FFHk) |
-| 小蜜蜂机场 | 双11 8 折（活动年付小包除外）  | 2025-11-30   | `11118` / `xmfwww85` | [立即注册](https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A) |
-| 青云梯 | 双11 8 折（活动年付小包除外）           | 2025-11-30       | `10180` | [立即注册](https://realvtest.qytvipaff.cc/register?aff=zcIlh0VY) |
-| TNTCloud | 双11 8 折 （季付小包除外）            | 2025-11-30  | `Crazy1111`  | [立即注册](https://tanu095.tntvipaff.cc/#/register?code=7MPbfr89) |
-| 银河云 | 双11 8 折（年付小包除外）             | 2025-11-30       | `1180` | [立即注册](https://inv03.galaxyaff.cc/register?aff=tcOd0ob7) |
+| 机场 | 优惠力度 | 截止日期 | 优惠码 | 过境线路 | 快捷跳转 |
+| --- |---------|----------| --- | -------- | --- |
+| 百变小樱 | 3 天免费 + 95 折 | 长期 | `bbxy-5th` | 三网 IEPL 专线 | [立即注册](https://bbxy.xn--cesw6hd3s99f.com/auth/register?code=FFHk) |
+| 小蜜蜂机场 | 双11 8 折（96元年付小包除外） | 2025-11-30 | `11118` | 全节点 IEPL 专线 | [立即注册](https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A) |
+| 青云梯 | 双11 8 折（96元活动年付小包除外） | 2025-11-11 | `10180` | 企业级 IPLC 专线 | [立即注册](https://realvtest.qytvipaff.cc/register?aff=zcIlh0VY) |
+| TNTCloud | 双11 8 折（30元季付小包除外） | 2025-11-30 | `Crazy1111` | 全节点 IPLC 专线 | [立即注册](https://tanu095.tntvipaff.cc/#/register?code=7MPbfr89) |
+| 银河云 | 双11 8 折（98元年付小包除外） | 2025-11-30 | `1180` | Trojan + IEPL 专线 | [立即注册](https://inv03.galaxyaff.cc/register?aff=tcOd0ob7) |
+| 贝贝云 | 95 折（新手福利） | 长期 | `beibei.cloud` | 江苏隧道中转线路 | [立即注册](https://beibeilink.top/register?code=Oa86Fbs3) |
+| WgetCloud | 新用户 85 折 | 长期 | 注册赠送 85 折券 | BGP 中转 + IEPL 专线 | [立即注册](https://invite.wgetcloud.ltd/auth/register?code=xEgJKS) |
 
 \* 以官方公告为准，如活动调整请以官网提示为准。
 
 ## ⚡ 快速选择
 
-- **完全无法翻墙？** 先用 [百变小樱 3 天免费试用](#free) 恢复基础联网。
-- **主力机场讲究性价比？** 锁定 [小蜜蜂 双11 8 折 ](#xiaomifeng) 或 [青云梯 8 折](#qingyunti)。
-- **需要专线或 AI/远程办公场景？** 选择 [TNTCloud IPLC 专线](#tnt)。
+- **高端旗舰首选**：追求企业级稳定与自研面板，直接上车 [WgetCloud](#wgetcloud)。
+- **主力性价比组合**：日常主力使用AI或者流媒体锁定 [小蜜蜂](#xiaomifeng)、[青云梯](#qingyunti) 搭配 [TNTCloud 专线](#tnt)。
+- **限时薅羊毛**：抓紧捡漏 [银河云 年付小包 8 折](#yinheyun)，随时可能被封口。
+- **免费快速救急**：完全无法翻墙时，用 [百变小樱 3 天免费试用](#free) 先恢复连接。
+- **轻度备用线路**：预算有限或需要备用线就用 [贝贝云 95 折套餐](#bby)。
 
 📌 **墙内访问 Github 太慢？**  
 👉 推荐使用镜像站查看测速图与完整内容：  
@@ -206,7 +213,7 @@
 - ✅ **一键导入**：全面兼容 **Clash / Shadowrocket / SSR** 等主流客户端，订阅链接一键导入即用。
 - ✅ **强力解锁**：**ChatGPT、YouTube、TikTok、Netflix、Disney+、HBO Max** 等平台稳定解锁，**4K 串流无压力**。
 - ✅ **会员福利**：**LV3+** 用户可享 **Netflix / Disney+ / Prime Video** 等会员福利（以官方活动为准）。
-- ✅ **影视党福音**：内置 **Emby 服务器**，精选高清片库，开箱即看更省心。
+- ~~✅ **影视党福音**：内置 **Emby 服务器**，精选高清片库，开箱即看更省心。~~（官方已下架）
 ---
 
 > 🧠 **作者实测使用超过3年，稳定性极高**。日常办公、AI 使用、高清观影、海外游戏、跨境电商访问，**全场景表现优秀，值得长期使用**！
@@ -826,6 +833,7 @@
 ---
 
 <a id="yhy"></a>
+<a id="yinheyun"></a>
 ### 4. <a href="https://inv03.galaxyaff.cc/register?aff=tcOd0ob7" target="_blank" style="color:#1a73e8;text-decoration:underline;">🌌 银河云 Galaxy — 年付爆款¥98，Trojan专线，节点丰富</a>
 
 **综合评分：9 / 10** 💰 **年付性价比之王**  

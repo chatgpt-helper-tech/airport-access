@@ -4,11 +4,14 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
 ---
 
 <div style="background:linear-gradient(135deg,rgba(26,115,232,0.08),rgba(26,115,232,0.18));border:1px solid rgba(26,115,232,0.25);border-left-width:6px;border-radius:12px;padding:18px 22px;margin:20px 0;">
-  <p style="margin:0 0 8px 0;font-weight:600;">📅 <strong>内容最后更新：</strong>2025年11月2日</p>
-  <p style="margin:0 0 8px 0;font-weight:600;">🆕 <strong>最近更新：</strong></p>
-  <ul style="margin:0 0 0 18px;color:#1a3b5d;line-height:1.6;font-size:15px;">
-    <li>新增银河云双11限时 8 折码 <code style="background:#fff;padding:2px 6px;border-radius:4px;">1180</code>（至 2025-11-30）</li>
-  </ul>
+  <p style="margin:0 0 8px 0;font-weight:600;">📅 <strong>内容最后更新：</strong>2025年11月8日</p>
+</div>
+
+<div style="background:linear-gradient(135deg,#ffecd2,#fcf4ff);border:1px solid rgba(255,138,76,0.35);border-radius:16px;padding:20px 24px;margin:0 0 20px 0;box-shadow:0 16px 40px rgba(255,138,76,0.25);">
+  <h3 style="margin:0 0 10px 0;font-size:18px;color:#d55b00;">🚨 薅羊毛机会：银河云年付小包还能打 8 折</h3>
+  <p style="margin:0 0 10px 0;color:#4b3a2f;line-height:1.7;">双11 期间大多数机场的季付 / 年付小包都禁用了优惠码，但银河云的 <strong>¥98 年付小包</strong> 目前输入 <code style="background:#fff0d6;padding:2px 6px;border-radius:6px;">1180</code> 仍可立减至 ¥70+。官网公告同样写着“年付小包不参加本次活动”，显然机场主还没发现，随时可能关闭。</p>
+  <p style="margin:0 0 12px 0;color:#4b3a2f;line-height:1.7;"><strong>操作步骤：</strong>复制优惠码 → 登录后台选择年付小包 → 结算时填入 <code style="background:#fff0d6;padding:2px 6px;border-radius:6px;">1180</code> → 秒锁 8 折价。</p>
+  <a href="https://inv03.galaxyaff.cc/register?aff=tcOd0ob7" target="_blank" style="display:inline-block;background:linear-gradient(90deg,#ffa751,#ff7b1b);color:#fff;font-weight:600;font-size:15px;padding:10px 20px;border-radius:10px;text-decoration:none;box-shadow:0 10px 28px rgba(255,123,27,0.32);">🚀 立即直达银河云后台捡漏</a>
 </div>
 
 <div style="overflow-x:auto;margin:20px 0;border:1px solid #e0e7ff;border-radius:12px;box-shadow:0 12px 32px rgba(26,115,232,0.08);">
@@ -19,6 +22,7 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
         <th style="padding:12px 16px;text-align:left;">优惠力度</th>
         <th style="padding:12px 16px;text-align:left;">截止日期</th>
         <th style="padding:12px 16px;text-align:left;">优惠码</th>
+        <th style="padding:12px 16px;text-align:left;">过境线路</th>
         <th style="padding:12px 16px;text-align:left;">快捷跳转</th>
       </tr>
     </thead>
@@ -28,13 +32,15 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
         <td style="padding:12px 16px;">3 天免费 + 95 折</td>
         <td style="padding:12px 16px;">长期</td>
         <td style="padding:12px 16px;"><code>bbxy-5th</code></td>
+        <td style="padding:12px 16px;">三网 IEPL 专线</td>
         <td style="padding:12px 16px;"><a href="https://bbxy.xn--cesw6hd3s99f.com/auth/register?code=FFHk" target="_blank" style="color:#1a73e8;font-weight:600;">立即注册</a></td>
       </tr>
       <tr style="background:#fafbff;">
         <td style="padding:12px 16px;font-weight:600;">小蜜蜂机场</td>
-        <td style="padding:12px 16px;">双11 8 折（活动年付小包除外</td>
-        <td style="padding:12px 16px;">2025-11-30 </td>
+        <td style="padding:12px 16px;">双11 8 折（活动年付小包除外）</td>
+        <td style="padding:12px 16px;">2025-11-30</td>
         <td style="padding:12px 16px;"><code>11118</code></td>
+        <td style="padding:12px 16px;">全节点 IEPL 专线</td>
         <td style="padding:12px 16px;"><a href="https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A" target="_blank" style="color:#1a73e8;font-weight:600;">立即注册</a></td>
       </tr>
       <tr>
@@ -42,13 +48,15 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
         <td style="padding:12px 16px;">双11 8 折（年付小包除外）</td>
         <td style="padding:12px 16px;">2025-11-11</td>
         <td style="padding:12px 16px;"><code>10180</code></td>
+        <td style="padding:12px 16px;">企业级 IPLC 专线</td>
         <td style="padding:12px 16px;"><a href="https://realvtest.qytvipaff.cc/register?aff=zcIlh0VY" target="_blank" style="color:#1a73e8;font-weight:600;">立即注册</a></td>
       </tr>
       <tr style="background:#fafbff;">
         <td style="padding:12px 16px;font-weight:600;">TNTCloud</td>
-        <td style="padding:12px 16px;">双11 8 折 (季付小包除外)</td>
-        <td style="padding:12px 16px;">2025-11-30 </td>
+        <td style="padding:12px 16px;">双11 8 折（季付小包除外）</td>
+        <td style="padding:12px 16px;">2025-11-30</td>
         <td style="padding:12px 16px;"><code>Crazy1111</code></td>
+        <td style="padding:12px 16px;">全节点 IPLC 专线</td>
         <td style="padding:12px 16px;"><a href="https://tanu095.tntvipaff.cc/#/register?code=7MPbfr89" target="_blank" style="color:#1a73e8;font-weight:600;">立即注册</a></td>
       </tr>
       <tr>
@@ -56,7 +64,24 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
         <td style="padding:12px 16px;">双11 8 折（年付小包除外）</td>
         <td style="padding:12px 16px;">2025-11-30</td>
         <td style="padding:12px 16px;"><code>1180</code></td>
+        <td style="padding:12px 16px;">Trojan + IEPL 专线</td>
         <td style="padding:12px 16px;"><a href="https://inv03.galaxyaff.cc/register?aff=tcOd0ob7" target="_blank" style="color:#1a73e8;font-weight:600;">立即注册</a></td>
+      </tr>
+      <tr style="background:#fafbff;">
+        <td style="padding:12px 16px;font-weight:600;">贝贝云</td>
+        <td style="padding:12px 16px;">95 折（新手福利）</td>
+        <td style="padding:12px 16px;">长期</td>
+        <td style="padding:12px 16px;"><code>beibei.cloud</code></td>
+        <td style="padding:12px 16px;">江苏隧道中转线路</td>
+        <td style="padding:12px 16px;"><a href="https://beibeilink.top/register?code=Oa86Fbs3" target="_blank" style="color:#1a73e8;font-weight:600;">立即注册</a></td>
+      </tr>
+      <tr>
+        <td style="padding:12px 16px;font-weight:600;">WgetCloud</td>
+        <td style="padding:12px 16px;">新用户 85 折</td>
+        <td style="padding:12px 16px;">长期</td>
+        <td style="padding:12px 16px;">注册赠送 85 折券</td>
+        <td style="padding:12px 16px;">BGP 中转 + IEPL 专线</td>
+        <td style="padding:12px 16px;"><a href="https://invite.wgetcloud.ltd/auth/register?code=xEgJKS" target="_blank" style="color:#1a73e8;font-weight:600;">立即注册</a></td>
       </tr>
     </tbody>
   </table>
@@ -66,9 +91,11 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
 <div style="background:#f9fbff;border:1px solid #e0e7ff;border-radius:12px;padding:18px 22px;margin:16px 0;">
   <h3 style="margin:0 0 10px 0;color:#1a3b5d;">⚡ 快速选择</h3>
   <ul style="margin:0 0 10px 20px;color:#1a3b5d;line-height:1.7;font-size:15px;">
-    <li>完全无法翻墙？先用 <a href="#free" style="color:#1a73e8;font-weight:600;">百变小樱 3 天免费试用</a> 恢复基础联网。</li>
-    <li>主力机场讲究性价比？选择 <a href="#xiaomifeng" style="color:#1a73e8;font-weight:600;">小蜜蜂 双11 8 折 </a> 或 <a href="#qingyunti" style="color:#1a73e8;font-weight:600;">青云梯 8 折</a>。</li>
-    <li>AI 工具 / 远程办公？优先 <a href="#tnt" style="color:#1a73e8;font-weight:600;">TNTCloud IPLC 专线(季付小包30元)</a>。</li>
+    <li>高端旗舰首选：追求企业级稳定，直接上车 <a href="#wgetcloud" style="color:#1a73e8;font-weight:600;">WgetCloud</a>。</li>
+    <li>主力性价比组合：日常主力使用AI或者流媒体锁定 <a href="#xiaomifeng" style="color:#1a73e8;font-weight:600;">小蜜蜂</a>、<a href="#qingyunti" style="color:#1a73e8;font-weight:600;">青云梯</a>，搭配 <a href="#tnt" style="color:#1a73e8;font-weight:600;">TNTCloud 专线</a> </li>
+    <li>限时薅羊毛：抓紧捡漏 <a href="#yinheyun" style="color:#d55b00;font-weight:600;">银河云 年付小包 8 折</a>，随时可能失效。</li>
+    <li>免费快速救急：完全无法翻墙时，用 <a href="#free" style="color:#1a73e8;font-weight:600;">百变小樱 3 天免费试用</a> 恢复连接。</li>
+    <li>轻度备用线路：预算有限或需要备用线就选 <a href="#bby" style="color:#1a73e8;font-weight:600;">贝贝云 95 折套餐</a>。</li>
   </ul>
 </div>
 
@@ -245,7 +272,7 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
 - ✅ **一键导入**：全面兼容 **Clash / Shadowrocket / SSR** 等主流客户端，订阅链接一键导入即用。
 - ✅ **强力解锁**：**ChatGPT、YouTube、TikTok、Netflix、Disney+、HBO Max** 等平台稳定解锁，**4K 串流无压力**。
 - ✅ **会员福利**：**LV3+** 用户可享 **Netflix / Disney+ / Prime Video** 等会员福利（以官方活动为准）。
-- ✅ **影视党福音**：内置 **Emby 服务器**，精选高清片库，开箱即看更省心。
+- ~~✅ **影视党福音**：内置 **Emby 服务器**，精选高清片库，开箱即看更省心。~~（官方已下架）
 ---
 
 > 🧠 **作者实测使用超过3年，稳定性极高**。日常办公、AI 使用、高清观影、海外游戏、跨境电商访问，**全场景表现优秀，值得长期使用**！
@@ -889,6 +916,7 @@ description: 2025年机场推荐榜单，实测Clash、V2Ray、Trojan节点速�
 ---
 
 <a id="yhy"></a>
+<a id="yinheyun"></a>
 ### 4. <a href="https://inv03.galaxyaff.cc/register?aff=tcOd0ob7" target="_blank" style="color:#1a73e8;text-decoration:underline;">🌌 银河云 Galaxy — 年付爆款¥98，Trojan专线，节点丰富</a>
 
 **综合评分：9 / 10** 💰 **年付性价比之王**  
