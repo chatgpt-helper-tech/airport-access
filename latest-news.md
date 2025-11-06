@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月06日 10:49:54（北京时间）**
+🕒 更新时间：**2025年11月06日 10:56:59（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | 3 teens charged in connection with alleged Halloween terror attack plot - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNcHNLNmRHNjZaOFZtNWtQTGNlNFYtTjhySzgxSVpDQWlGWGRyTi1BQ2dTTS05ZXFoc3dWM3R3anRkd0o1enQ2LXNqd3RxYTNLN2VGbDI0d1REclE1a09CWU96YlVuOV9RTDBMRzZGV01uZnl4b2RFUFVJdVFYdmlXa0VPUTNaX2syRDl0MnluRk9QaW1DVmtGRm1pM3ZlNEVnLWJR0gGoAUFVX3lxTE5ZbTBrZzNkUFFBa1ZQeUhXbTlCNFVTOE95TFRBYTdGUG5lQnZBbnFWcHJudDhYVDhLRUtrX0RXZkVCMlB6QTRvZW9CaUtpZ2hwQmp2MndjVGVCYnM4Z2tiWF9CUWNfaVpDTTQyWTZoVlQ4UzYyXzhMaDRId1JiZWlSVnFyMEE2STd0ZGRZMDNtM2dDRkNjaEhfSjRkdEhwSENXcW13T2ZobQ?oc=5) |
 | Democrats tap the brakes on ending government shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPRDhwUnlRdHVhaWs1Mi1PQTZhNzRnRGhnTjhlN1Jqa3VOVTEyMlVJQV9VT01vNzYyWExBbUhha3RLVjZuTFpjVmZTN0kzMkdmbGx1ZkhQcERlaGp6QU1MRW9YNl8ySFB2NTRFWHZYVUh5TUVxMnVXSFRha0UzVjh6YjNuQ1Q?oc=5) |
 | Republicans Point Fingers After Election Losses, but Not at Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxONWJGZGZhX1FRN0NxMlRBTVRnX1JiVTRxVzNWSG9lcmJtQmpzZF9Ia1VkanJIc09WdWRtVE50dFJJQi1lQjJ1OWF3MHYtMy1SYzRkMjZHUE9JNDRLZElqdXIzdVhYOFc1SThuRlBXcDVVRndvQXdtUTdaMXhWT0dxY25ReF9VUQ?oc=5) |
-| A State-by-State Guide to the Gerrymandering Fight for Congress - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNTUV3Z3B2N2kxZW1RTmtqTEw2a0hOVjNOSXV5d1Y5OUNqNmRpSlFvT1ZpYVVVT09KOC1RcEdpdnpfU2dqcFdULXZaYXowM3V3eWVtbFkyeWtXVGVORTBKZmlCd1NVSWExc1p2VG5kcURsUVkzVHV6NkRteGlfOGpVYzBocVBlTHlJcFY4WmpGdmN5MGV2dGhtYm9GM1I?oc=5) |
+| Federal judge warns Justice Department it may be veering close to mishandling evidence in Comey case - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPX0J2S2lWZEY0OXFTbkZRV2haS2o0bF9lOXFKVEhlbGdYMVVfdl8yTzlvYndUV19ySDExMi1tZG9uNm1Id2FqSHN6OXh4ZjVlQXdQeDNERUFacHFESU80bnRzc05VSTViYTNSREpPV0toX2xkUFhuS0R3Q3BBcDJuZHFNRWRlQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
