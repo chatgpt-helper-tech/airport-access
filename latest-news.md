@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月06日 18:57:25（北京时间）**
+🕒 更新时间：**2025年11月06日 19:00:16（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Trump wants GOP to focus more on his economic achievements. But he’s often changing the subject. - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPUXY0aU1vTkFfMHFhdjYyTzRTOXJfSkFiSEVRMGZiUlNhUG9NcE5Qd2c0RnU5ZWp0cGItY2ZLVnFEWHY5anlQbGw2SmhnS2Y4Zm9OaEswb2QteFlkVTNCZm5QbllYQWd5NXJPa0hfMkNON0JoM2ZjWmdwdWZuOWVyUHlGb2pLS2ZYLVE?oc=5) |
 | What to know about the deadly UPS plane crash in Louisville, Kentucky - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1wanBlX2ZYRW1IUURadXdPdDM1aEVYbzhBQ3g0TDllYTE2VlFLYTUtZ0cxYnBqTkwyakRvNF91Ti01UVQ1cjhRcWpoeGhfMWwycjJHSXY5Um55S3pmWnhGRERiT3Mtb2F6bXJFQ2VpU1AwWHIydkVLdVVjRnhXZw?oc=5) |
 | Court Orders ICE to Clean Up Chicago Detention Conditions - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOY3MyNTlyd2RyS1pDWjhYTzlPTXBKQkxmZGpzOUVYZlFnajc0NTBGU0ZEQmR5WU9WWGctOFUzQ3pDT19WYmFUMFkxeWpremxNc1hteEt4ZmdwZDVLZVdBc1EzMUZ3dnRQRTBfRlFENF9tYVNhLXBUWTBreTRITTJDTzlXVE9ybUF3S3FkXzFJd200NHRoeFhSQ3ZR?oc=5) |
-| Democrats tap the brakes on ending government shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPRDhwUnlRdHVhaWs1Mi1PQTZhNzRnRGhnTjhlN1Jqa3VOVTEyMlVJQV9VT01vNzYyWExBbUhha3RLVjZuTFpjVmZTN0kzMkdmbGx1ZkhQcERlaGp6QU1MRW9YNl8ySFB2NTRFWHZYVUh5TUVxMnVXSFRha0UzVjh6YjNuQ1Q?oc=5) |
+| Senators closing in on key piece of shutdown deal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxQaTJQR0xzVGQydzdvQnlZM0Ztb3JOZnZLcnhsSzQtWllCd2M3YWw5TVAtQXBjOEJ5d25nUUdGdHlZV2VNTVQ2aV9oN3dqYk1FZFlLWmxfUThuX1AtS29UWlRKSWxOSnpJWE81NVVNT3A0WV9DMkt0OXk1ZVB4VnhMajlxenJVVnNRSTMyUlpUcTl2SDdCWDBaYm5CNG4ySFQ0cExRMlRjVFFBSHQwRzVFWGRfTHA0MFk?oc=5) |
 | 'Folks are tired of the chaos': Pa. Gov. Shapiro reacts to Democrats' big election night wins - 6abc Philadelphia | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPcWhPWXlhLWVzMHNQcnJjY24wVXRncmdiTkJjTEZiSXN5eHctRFNLcDVyaG9aNGg2eWtpcDB3d19wSGs2LUZ4emFnUFZvSVR6ai1ONXFCdEJJN3kwam94SElTeHlLNWlTSm5CMjJ1OExNQm5CSWZ2ZW9fQTI3TVlEYTBMM3JueXhOS1ptTmJoQ0dubG5lSmVkSTUtTndrRTFaZHdMQldJWjByTjhmMFHSAbMBQVVfeXFMUHJGVVlqOHBydjdsUWJiWkNOY2F6eVNoWFB1dXdMWkpncWZiYXJCUVR0SE5ibERFS0gwV1VhYkVQbW5wT3RiaXhIN1BGakdac1QzRy1UQ283VFNmNDJoZnVGR1N4TnYtLTRwSEVfTUhYaDJvWmJWaG5oOWZpbmtUMkVobFBkMWdnSzVGdVpXcmp2MkFCaGo0ZDBwZnBDRldVcDVFamRVZHFaeXFNcVpMalllUjg?oc=5) |
 
 ---
