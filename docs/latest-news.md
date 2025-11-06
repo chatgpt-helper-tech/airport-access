@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月06日 23:09:10（北京时间）**
+🕒 更新时间：**2025年11月06日 23:16:44（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | 'Folks are tired of the chaos': Pa. Gov. Shapiro reacts to Democrats' big election night wins - 6abc Philadelphia | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPcWhPWXlhLWVzMHNQcnJjY24wVXRncmdiTkJjTEZiSXN5eHctRFNLcDVyaG9aNGg2eWtpcDB3d19wSGs2LUZ4emFnUFZvSVR6ai1ONXFCdEJJN3kwam94SElTeHlLNWlTSm5CMjJ1OExNQm5CSWZ2ZW9fQTI3TVlEYTBMM3JueXhOS1ptTmJoQ0dubG5lSmVkSTUtTndrRTFaZHdMQldJWjByTjhmMFHSAbMBQVVfeXFMUHJGVVlqOHBydjdsUWJiWkNOY2F6eVNoWFB1dXdMWkpncWZiYXJCUVR0SE5ibERFS0gwV1VhYkVQbW5wT3RiaXhIN1BGakdac1QzRy1UQ283VFNmNDJoZnVGR1N4TnYtLTRwSEVfTUhYaDJvWmJWaG5oOWZpbmtUMkVobFBkMWdnSzVGdVpXcmp2MkFCaGo0ZDBwZnBDRldVcDVFamRVZHFaeXFNcVpMalllUjg?oc=5) |
 | Democrats tap the brakes on ending government shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPRDhwUnlRdHVhaWs1Mi1PQTZhNzRnRGhnTjhlN1Jqa3VOVTEyMlVJQV9VT01vNzYyWExBbUhha3RLVjZuTFpjVmZTN0kzMkdmbGx1ZkhQcERlaGp6QU1MRW9YNl8ySFB2NTRFWHZYVUh5TUVxMnVXSFRha0UzVjh6YjNuQ1Q?oc=5) |
 | What to know about the deadly UPS plane crash in Louisville, Kentucky - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1wanBlX2ZYRW1IUURadXdPdDM1aEVYbzhBQ3g0TDllYTE2VlFLYTUtZ0cxYnBqTkwyakRvNF91Ti01UVQ1cjhRcWpoeGhfMWwycjJHSXY5Um55S3pmWnhGRERiT3Mtb2F6bXJFQ2VpU1AwWHIydkVLdVVjRnhXZw?oc=5) |
-| California Republicans vow to continue fighting Prop 50 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOU0hwdG51bE9zOUdsM2hGWThFNXAwYk50cUwtaUVpNURvUkM3Rms0aGFXSDFpM0ZPVk1oQnk4YWxLTlFDVFN6RUh5UnpIczJjVE1Bb09TU3JuSWVQUjVjVXlVZGdHOURtUFBWVjJhT1pERm9sZ0VzeUc4T190em1hWmg0QlBvYXZjc1dmQzlyZERWODg?oc=5) |
+| Republicans take stock of Newsom, a ‘Tier 1 Democrat’ after Prop 50 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOaXlzSFRXc3ZvbkRTbDh2R29NZ09hVVI4TmhBRlZTQzVfYU5Ea0I0ZndBYmYxOGYtRnNxWVNFYTl4QW5KTE8tTEdrMnpaLW1SVURKSU5fVE5KTFJ3WkpYODYzWkhwUzhxZHd5ejgyYWw3X3ljT2VQZzN6N0xLbml0WnpjN0kyTWdwbGhad09MNm1KLTVOdDlsb0wzZndOMlE?oc=5) |
+| USDA revises SNAP reduction plan to provide more partial benefits in November - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE1WR0VkaDhyZEpYSnVkRmYtUFg1WmQ4ZzFKWUNoTnZjSl9nYzhTTWhMaGw4eGxoamIxbGZvSHVrMVdEX3QyZFlrSEFHX016eThDSUhMRnpSRDY0MUtlWWtYYzZMNE82a1FfUVZqTDFGY0Z0WjZfUVJ1V3hpaDc?oc=5) |
 | From Jamie Dimon to Bill Ackman, Wall Street's billionaires are now changing their tune and offering to help Zohran Mamdani - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxQTURuR2FvdmdGaWJxU2VacWoxMEtwUmx5eTRfQUVGSG1vVlRZdkcwQ1BjM01odmZoR3k3VTE0SURoOVMwc0VEQnd1YWw2bHRWUVhLLXFaMFJhNDNVOUZkX1BMb0Jka2c4ZV9rQldscEM0ZGc0MWtjMVhCNE8tQkxiRHp2WS1iT1NyR0JjbTBDM19Qbm9PWXhZUFR3NU9CYVZDZUNz?oc=5) |
-| Senate to vote on legislation to stop unauthorized war against Venezuela – US politics live - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxPRjF5LTRhQkRBTk01S29UcWxhVUZrWko2ZFJxQy1QRkJ2U2V4d0UyUGt5Z3B3OTRhT0kxRzFzT05ZWG9SbFRCdVJlWk0xcTVvbm5wSHpLM2VJcWlMMDNsNGJ4UTZHd0hTcDZTWnhpZDlwSE1OMjRselcyeWtMZTVhTWs4R3dQWUdVWExTNEJ4cDc3dTFFNjR6QWU0anEyX2ZYSUFvRlZLZ2F4SkZ0d2MxaFFWbEt4dnNMNHM3Nmx4UGlVem5YemVseC1tVGk3UmtSdEJj?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
