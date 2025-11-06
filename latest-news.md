@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月06日 10:56:59（北京时间）**
+🕒 更新时间：**2025年11月06日 11:01:55（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Mayor-elect Zohran Mamdani says New York will resist Trump 'intimidation' - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxOU20xd0JSeFlKSkk5RnpWYjNHcTNHby1ZYnFkYjVJU1FYSXlZSkpDREtCZGZCLUQ1X1RsV3VpRWNDZEJneXkyVjQybGNGUDd1UmhQbkNpN0dSc0pSR0ZsV0wyaGoxeGNzRWxPRTctTEt6bTB6NlkyVVhaWVItRzh2TjhWOXFNcGYxOE1OWm9DT3Q0enpXbk1HNUNDTFFZYnI1ZzY3OVVHY9IBrAFBVV95cUxNbWJrV0piemNDdmgySzc2QnduNE1ORWdhWndQUjY3dS1CWFNjVnc5RFJ4T0FmYWFBVDd6MUU0b3ZiaTFvSjNrUDB0YkxZUnQ0Uk1PUXN2LVRiR09udXFTeU1pOGk2cU00OTV2ano5bXpRUWNGdGdKaEVncHBSNjBFZ1QwVEEyM2FMdjNaemNqTHo0X2FKeXB2NzJSMC1UemhRREVoOWxxWHAzU3ZW?oc=5) |
 | California Republicans vow to continue fighting Prop 50 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOU0hwdG51bE9zOUdsM2hGWThFNXAwYk50cUwtaUVpNURvUkM3Rms0aGFXSDFpM0ZPVk1oQnk4YWxLTlFDVFN6RUh5UnpIczJjVE1Bb09TU3JuSWVQUjVjVXlVZGdHOURtUFBWVjJhT1pERm9sZ0VzeUc4T190em1hWmg0QlBvYXZjc1dmQzlyZERWODg?oc=5) |
 | Deadly Louisville Air Crash Disrupts One of World’s Busiest Cargo Hubs - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQTTlPNkluRmNjWXp1QlRkZEZUT1VZemNMdUY2UWJmZVZZUXpQTHJ5RUdlRzNYTE9SX0hoSHhYdWFDUVF1WVlOc3lEQUhrcUdWT0xEZFJDS01tMTZKQUMyRThMSFF2Q1Y1cUlId20ySXluNU5RU1J5UWZsVTY2LXhqbE9vNkxCU2hEbmhJ?oc=5) |
-| 3 teens charged in connection with alleged Halloween terror attack plot - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNcHNLNmRHNjZaOFZtNWtQTGNlNFYtTjhySzgxSVpDQWlGWGRyTi1BQ2dTTS05ZXFoc3dWM3R3anRkd0o1enQ2LXNqd3RxYTNLN2VGbDI0d1REclE1a09CWU96YlVuOV9RTDBMRzZGV01uZnl4b2RFUFVJdVFYdmlXa0VPUTNaX2syRDl0MnluRk9QaW1DVmtGRm1pM3ZlNEVnLWJR0gGoAUFVX3lxTE5ZbTBrZzNkUFFBa1ZQeUhXbTlCNFVTOE95TFRBYTdGUG5lQnZBbnFWcHJudDhYVDhLRUtrX0RXZkVCMlB6QTRvZW9CaUtpZ2hwQmp2MndjVGVCYnM4Z2tiWF9CUWNfaVpDTTQyWTZoVlQ4UzYyXzhMaDRId1JiZWlSVnFyMEE2STd0ZGRZMDNtM2dDRkNjaEhfSjRkdEhwSENXcW13T2ZobQ?oc=5) |
 | Democrats tap the brakes on ending government shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPRDhwUnlRdHVhaWs1Mi1PQTZhNzRnRGhnTjhlN1Jqa3VOVTEyMlVJQV9VT01vNzYyWExBbUhha3RLVjZuTFpjVmZTN0kzMkdmbGx1ZkhQcERlaGp6QU1MRW9YNl8ySFB2NTRFWHZYVUh5TUVxMnVXSFRha0UzVjh6YjNuQ1Q?oc=5) |
 | Republicans Point Fingers After Election Losses, but Not at Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxONWJGZGZhX1FRN0NxMlRBTVRnX1JiVTRxVzNWSG9lcmJtQmpzZF9Ia1VkanJIc09WdWRtVE50dFJJQi1lQjJ1OWF3MHYtMy1SYzRkMjZHUE9JNDRLZElqdXIzdVhYOFc1SThuRlBXcDVVRndvQXdtUTdaMXhWT0dxY25ReF9VUQ?oc=5) |
 | Federal judge warns Justice Department it may be veering close to mishandling evidence in Comey case - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPX0J2S2lWZEY0OXFTbkZRV2haS2o0bF9lOXFKVEhlbGdYMVVfdl8yTzlvYndUV19ySDExMi1tZG9uNm1Id2FqSHN6OXh4ZjVlQXdQeDNERUFacHFESU80bnRzc05VSTViYTNSREpPV0toX2xkUFhuS0R3Q3BBcDJuZHFNRWRlQQ?oc=5) |
+| Mayor Jacob Frey declared winner of Minneapolis election, earning a third term - Star Tribune | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPb2FDNXR1U1NzcFpkRjBCRW9QQVZTWFNhbUMyLS1sd3U0UXhubWNCY2N6U2hIeXd0T2dJNU1yQ3hPanRxdm5Hbm4xRy1VZk5XNFowWHB4cWtGT0ZwZnRBZFViNUgxYlN3enZfWGRwRi1kd1EwaW5rdlFTdmx1U3lheDBFSTdwdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
