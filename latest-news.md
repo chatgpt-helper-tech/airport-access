@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 03:33:20（北京时间）**
+🕒 更新时间：**2025年11月07日 03:41:29（北京时间）**
 
 ---
 
@@ -14,7 +14,7 @@
 | Labour should stick to manifesto pledge on tax, deputy leader says | [阅读全文](https://www.bbc.com/news/articles/c62e0e0q4pgo?at_medium=RSS&at_campaign=rss) |
 | Pauline Collins, star of Shirley Valentine, dies aged 85 | [阅读全文](https://www.bbc.com/news/articles/c62e0n957y9o?at_medium=RSS&at_campaign=rss) |
 | Southport killer's parents failed girls, families say | [阅读全文](https://www.bbc.com/news/articles/c78zjzppm2mo?at_medium=RSS&at_campaign=rss) |
-| Police operation for Aston Villa v Maccabi Tel Aviv match 'unprecedented' | [阅读全文](https://www.bbc.com/news/articles/cjeknklzn39o?at_medium=RSS&at_campaign=rss) |
+| Hundreds of protesters at Aston Villa v Maccabi Tel Aviv match | [阅读全文](https://www.bbc.com/news/articles/cjeknklzn39o?at_medium=RSS&at_campaign=rss) |
 | COP30: World leaders take aim at Trump for climate inaction | [阅读全文](https://www.bbc.com/news/articles/cn4j8dgnj1wo?at_medium=RSS&at_campaign=rss) |
 | 'He threw himself at the attacker': Train stabbing survivor says hero passenger saved her | [阅读全文](https://www.bbc.com/news/articles/c3643k02yzpo?at_medium=RSS&at_campaign=rss) |
 | Sudan's RSF paramilitaries agree humanitarian ceasefire | [阅读全文](https://www.bbc.com/news/articles/c74070y9e3go?at_medium=RSS&at_campaign=rss) |
@@ -30,9 +30,9 @@
 | Wall Street reckons with life under Zohran Mamdani - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNYWRLT0xJQTNBT0xIcldZMTNvN2hTeGpReUU3dDBUdDRFQV9mMFg0Um5fR29BTElNemtPSHFNdFh2b2ZySFNsX3JPcDFkRGt4b0g4MEdlN3ZHRXM2SkNRNHlQM0N6R3paNUEzLUpVeU1kOFJuLVkwNnZKNk5JZW95bC1CUWhlV3R1VUVIUWM5cmh6TXpGSFE?oc=5) |
 | Government shutdown live updates as Senate talks continue over deal to resolve impasse - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQRUQ5amFya0k3QkswS1NVb3VMdFFYVjl6NTFOVThac05WanVYNEFlQWxmTl94UUMtOHpNcjBZMzIxdnQwUk5mQWxod2N5dTZUMDdSOFlHVE4weWNaWHg2U1RzT25GYzAxdVRqZzNENnZ4UW9WRGlWVzFwWjhpQ0RxVGI3U2xDR2hiMFpUSTJn0gGTAUFVX3lxTFAzS1Ffd0tycnJQYjNMbm5CZVV5OXR3aGFrbGRxbmVyZUNjWlRVd251TDZydkVMaU9CcDhqdzFRV0l2TjBHaEZuVGdoMnFibGhHblNKVUNOYU5TNzVtSVp2VEdSeFFqSWlZd2ctb2poVjk0aXVYcW1pcTJHU1VreHZQcFE2M0J4eGJzb2VWVFlLQ3MyYw?oc=5) |
 | Virginia teacher shot by first grader wins civil trial against school administrator, awarded $10 million - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOX0laRHN6UjJqNXQ0MWlZZElBbHN0VjdpRng3bWtqVWduajdJV0hCSHBHdDhtQkM4dHprR3N4eVAtYW5rTE1mMEdWWVhTSVZxWkJUOUZocjdaeWlVWkg0bDlCZHZoWXAtaXdTTllDYWp4UExSVlBjRm5EQnppakRzS0lnQTFaelBxci1RRW5uZHFIRFhuOHV2ZDBEVUJXUFZUR1HSAacBQVVfeXFMTUg3UVJNemoyZmF3bVNzcklsVmdrU095WDB0X01mM0NHSVdyNm1EUU1EVEhXa0VOakJBN3MzeWprOWpMU1RUOU55V19IR1h0ZDBqVlFEU3IySmxJeW9OYmZkZkFid3dFOU1adkhDb2NRamRnOTdneHFiZmhzbkEtdXQta1hEWGVBNzdOeklyaXV6MXdTdFVvaFJRQlNWZndKWjhyZWhlU1U?oc=5) |
-| Officials scour charred site of Kentucky UPS plane crash for victims and answers - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOaENwQ0NkbzdtNndtMGRPUmRGeFZFWjVsdGNEOTFXREtnaVZ4dkhqVV9pY01kUXFPNWVKTzNkUW1naU1IbmlVQVFmVjRXQUFRZHJrWDVJNWxObjZpQmtOVmZ2MWFRVk9Lb3UyQWlPaTNJSm1OVEVzU1c2R3NORG4tRER4Q3NackE3bExDZDhWdzF6a1p0RV9raTBCOVBibTJfcEdhTw?oc=5) |
+| Nine people remain missing from UPS plane crash, Louisville mayor says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBCMWVFRmhRZXphUEVMc2RPZmtUbmR6eXdXSWtXMXczUHJYT0NJQ01NdkhGbDVJMTZMSjUwQUNGeTZFdjlYOVhsT3lBZmhJX3J6TmhEQ3ZQN3dlNDdReVZVS2dlZzR1UnJBeTBFaEpscXUyVm5lRWdWOGVWTVFleEnSAVZBVV95cUxNOHVNckdhelJWcXBuR29RbjNMRU11dzhTUnNncXBQWlFxX1ZSMUx3dEt0ck5jeFZlQ0EydUIzejg0akd2S2lGNFkyN0RGX0lpbkNUNUJGZw?oc=5) |
+| The federal government is still shut down. Here's what that means across the country - NPR | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE5vcjB6azh0ZW1xUWJtYlEwV25yVFlUU2RPVGdsZkNycXVNY3BnNU5hbmk0cFRUVDZxZTdoVXlnWGFnMm8wZnBqX1dway1adTlGVlpLRXlvNmxkVmhYNDROa0k0dXFGcEdJQXlQUDZB?oc=5) |
 | Donald Trump enters his lame duck era - Politico | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE4wRGRSalhKaEh4Yno4eXROclRXVGlKd0lCb0ZBWkhrLVpURlkxcmp0aUdaWE51OG1jdVVaTlNOcjBCLThuZU8wZlg1SHZ6bjV4d29NYjljMkc5Q0hLbGF3TkF6enRpYk42X1FkZWhVaW5kMlM1N1AtVWJaeGc?oc=5) |
-| Democrats tap the brakes on ending government shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPRDhwUnlRdHVhaWs1Mi1PQTZhNzRnRGhnTjhlN1Jqa3VOVTEyMlVJQV9VT01vNzYyWExBbUhha3RLVjZuTFpjVmZTN0kzMkdmbGx1ZkhQcERlaGp6QU1MRW9YNl8ySFB2NTRFWHZYVUh5TUVxMnVXSFRha0UzVjh6YjNuQ1Q?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
