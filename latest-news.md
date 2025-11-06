@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月06日 18:08:26（北京时间）**
+🕒 更新时间：**2025年11月06日 18:16:57（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | What could help – and hurt – the investigation into the Louisville UPS plane crash - CNN | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE5SMjlSMHZaeWhrRWdYRVJFbFpwYXh6MlFnWW9TUFNFRmNZd0xiWk54WnBHcmxYbkdGWGxkMlh2VnFUSElHWUlsX1VvTzB4MklNY3kyWjU4RGYycjczYkI3bGNTWnl5SlFRRFgzUnlpZUZIUllXajlz?oc=5) |
 | California Republicans vow to continue fighting Prop 50 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOU0hwdG51bE9zOUdsM2hGWThFNXAwYk50cUwtaUVpNURvUkM3Rms0aGFXSDFpM0ZPVk1oQnk4YWxLTlFDVFN6RUh5UnpIczJjVE1Bb09TU3JuSWVQUjVjVXlVZGdHOURtUFBWVjJhT1pERm9sZ0VzeUc4T190em1hWmg0QlBvYXZjc1dmQzlyZERWODg?oc=5) |
 | Elections Show Trump’s Edge on the Economy Slipping - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPTzAxc2pVaFR1UHF2eW03Y2xoakpmM3Z0WnZ6SEI4X0VRc01xWXJQVlZIdXZGYzVGcWRuMXJIcWs4bnVkblp1bDdDTnFpWGp6SHlJdUF5UmNOWXN4Qk5RMlR2UzFiZFlKdEg4ci1VbDVmVXlLMWpobUdiMDZfbDh5VWJfLVFmMHoyWmhOTk5R?oc=5) |
+| Court Orders ICE to Clean Up Chicago Detention Conditions - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOY3MyNTlyd2RyS1pDWjhYTzlPTXBKQkxmZGpzOUVYZlFnajc0NTBGU0ZEQmR5WU9WWGctOFUzQ3pDT19WYmFUMFkxeWpremxNc1hteEt4ZmdwZDVLZVdBc1EzMUZ3dnRQRTBfRlFENF9tYVNhLXBUWTBreTRITTJDTzlXVE9ybUF3S3FkXzFJd200NHRoeFhSQ3ZR?oc=5) |
 | Democrats tap the brakes on ending government shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPRDhwUnlRdHVhaWs1Mi1PQTZhNzRnRGhnTjhlN1Jqa3VOVTEyMlVJQV9VT01vNzYyWExBbUhha3RLVjZuTFpjVmZTN0kzMkdmbGx1ZkhQcERlaGp6QU1MRW9YNl8ySFB2NTRFWHZYVUh5TUVxMnVXSFRha0UzVjh6YjNuQ1Q?oc=5) |
 | 'Folks are tired of the chaos': Pa. Gov. Shapiro reacts to Democrats' big election night wins - 6abc Philadelphia | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPcWhPWXlhLWVzMHNQcnJjY24wVXRncmdiTkJjTEZiSXN5eHctRFNLcDVyaG9aNGg2eWtpcDB3d19wSGs2LUZ4emFnUFZvSVR6ai1ONXFCdEJJN3kwam94SElTeHlLNWlTSm5CMjJ1OExNQm5CSWZ2ZW9fQTI3TVlEYTBMM3JueXhOS1ptTmJoQ0dubG5lSmVkSTUtTndrRTFaZHdMQldJWjByTjhmMFHSAbMBQVVfeXFMUHJGVVlqOHBydjdsUWJiWkNOY2F6eVNoWFB1dXdMWkpncWZiYXJCUVR0SE5ibERFS0gwV1VhYkVQbW5wT3RiaXhIN1BGakdac1QzRy1UQ283VFNmNDJoZnVGR1N4TnYtLTRwSEVfTUhYaDJvWmJWaG5oOWZpbmtUMkVobFBkMWdnSzVGdVpXcmp2MkFCaGo0ZDBwZnBDRldVcDVFamRVZHFaeXFNcVpMalllUjg?oc=5) |
 | Democrats in Mississippi Break the G.O.P.’s State House Supermajority - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNQ3FLUy1qUFlTRVhHbzIzVTFIYlF5RXdDWUpIdlhqX1hyc2I1V0VhYUVZQ0tTdU53Sm9iSkhWY2ZmLXIxTmd2ZWc0X1Nra0wtcGpqOTVROWw1SnRzZFUwVVVRSGtfVnRvN2RUaGNRUlNteDVrRFBURDZwQjdwRGdnX082LUgySTJ6NVRUQkNZdG1tUQ?oc=5) |
-| Government shutdown prompts FAA to float flight cancellations as Senate talks continue - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOSi1xcGVUVWpBSjFGRGI4SzhyTm9NWVphSGhhQjNkTVVmY0FhT0NMVGNHMmZFanBoNExHWmtYdUVZdU1sd1hpYjlXN3ZfU0JLdEhUMGVvZ1drSEdXbGV2aDctTDZaX2haenVaZlNXZy1XMTdQRGNkZWctMkdGOUh3c3VjMVRvX1pwMElKRkN2c1FTMmpRSG9HQVJVa25yaTk0NUxFdVVKRzFKZFoyYkdJa2NYZ3RLOUk?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
