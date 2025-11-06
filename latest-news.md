@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月06日 13:56:25（北京时间）**
+🕒 更新时间：**2025年11月06日 14:00:07（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | 'Folks are tired of the chaos': Pa. Gov. Shapiro reacts to Democrats' big election night wins - 6abc Philadelphia | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxPcWhPWXlhLWVzMHNQcnJjY24wVXRncmdiTkJjTEZiSXN5eHctRFNLcDVyaG9aNGg2eWtpcDB3d19wSGs2LUZ4emFnUFZvSVR6ai1ONXFCdEJJN3kwam94SElTeHlLNWlTSm5CMjJ1OExNQm5CSWZ2ZW9fQTI3TVlEYTBMM3JueXhOS1ptTmJoQ0dubG5lSmVkSTUtTndrRTFaZHdMQldJWjByTjhmMFHSAbMBQVVfeXFMUHJGVVlqOHBydjdsUWJiWkNOY2F6eVNoWFB1dXdMWkpncWZiYXJCUVR0SE5ibERFS0gwV1VhYkVQbW5wT3RiaXhIN1BGakdac1QzRy1UQ283VFNmNDJoZnVGR1N4TnYtLTRwSEVfTUhYaDJvWmJWaG5oOWZpbmtUMkVobFBkMWdnSzVGdVpXcmp2MkFCaGo0ZDBwZnBDRldVcDVFamRVZHFaeXFNcVpMalllUjg?oc=5) |
 | An engine fell off a UPS plane before a deadly crash and explosion in Kentucky, the NTSB says - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQeHpJOFExMy1leWhSeW9ybzZBeEh1Q28tQ0EwRG4tbzU1aWp5ZVY2Q19jYWo2aWw2Z3plb3ZRQUlBeVN1Q0F5MTY1ejV2elVIMUJ2V2s0a3lINHVadzZpZVFTUHd3VXYwZE9rM1JZaXRjMkIwY3pObWVhbVkyWGVfOWFzV1VkZHh1aS1lWWhTS241QlJfTHlPQy05VdIBoAFBVV95cUxPVjdkVy1QR1lsOWtfSzZfUGxVWDJ1R2pCRnc2SVYzLXVxQnMtSmNUSDJTc0g3SzAzYWp0VGdKMGZsUjZCQXVlQnFlNHlIM1RpeE5lUWNRLWlhX1lSaG9DYnRNUUt4RE9wOXRvTGhEUC1LVmhFMlpZdTFPckV4WHV2NXd0SjY3N0U5NGowWG56N0VVZEtDWEt6ZDcxbmRvcjBz?oc=5) |
 | Supreme Court put Trump tariffs on a high-fire grill, in bipartisan scrutiny - NPR | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE5NbDFIc1BFLUdDSWNjclNkMGNxR2ljb0NuY0d4WTBTMnNWSGJaNjRHanFhOU9CX0ZsYXBmR09Eb2FWTG1vVkJBSkZrc010WlcwY0hEc2dHcUtpdlVLWjV5SlRMUXVNNWhrSElSeU5EXzlZZmFLcjY0RDhQNlQ?oc=5) |
+| Democrats tap the brakes on ending government shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPRDhwUnlRdHVhaWs1Mi1PQTZhNzRnRGhnTjhlN1Jqa3VOVTEyMlVJQV9VT01vNzYyWExBbUhha3RLVjZuTFpjVmZTN0kzMkdmbGx1ZkhQcERlaGp6QU1MRW9YNl8ySFB2NTRFWHZYVUh5TUVxMnVXSFRha0UzVjh6YjNuQ1Q?oc=5) |
 | Court Orders ICE to Clean Up Chicago Detention Conditions - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOY3MyNTlyd2RyS1pDWjhYTzlPTXBKQkxmZGpzOUVYZlFnajc0NTBGU0ZEQmR5WU9WWGctOFUzQ3pDT19WYmFUMFkxeWpremxNc1hteEt4ZmdwZDVLZVdBc1EzMUZ3dnRQRTBfRlFENF9tYVNhLXBUWTBreTRITTJDTzlXVE9ybUF3S3FkXzFJd200NHRoeFhSQ3ZR?oc=5) |
-| Democrats emboldened by election results mobilize against centrists’ emerging shutdown deal - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9vRUZib1dfc3d1WG8xeFJPb2lKOHR0N1ItUWotbjZYVVJTTUM2MHJ5NmN6OE51c0ZZUXB3SVB4T0t6MjJidVFMYWhsYmU3cnJxM090SzhoNUlYRXo4ZzlzVEdUYXBvZkw0TGMwcVVkbEhNd1ZXYlVXS0dsZ3lpdw?oc=5) |
-| Democrats in Mississippi Break the G.O.P.’s State House Supermajority - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNQ3FLUy1qUFlTRVhHbzIzVTFIYlF5RXdDWUpIdlhqX1hyc2I1V0VhYUVZQ0tTdU53Sm9iSkhWY2ZmLXIxTmd2ZWc0X1Nra0wtcGpqOTVROWw1SnRzZFUwVVVRSGtfVnRvN2RUaGNRUlNteDVrRFBURDZwQjdwRGdnX082LUgySTJ6NVRUQkNZdG1tUQ?oc=5) |
 | Mexico President Sheinbaum presses charges after street groping incident - Politico | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNdUNEbV9HRlFBSGFDTndidUFubVl2Y2lUN193YVVQaVJCWmc5M1RYNDExbllvZzczaXA4QUZsNWNXckpGQVZ0VEJta0tTM2F0amlIalZDWEpCLU9xUXZMTVQ0c3N2YzZYbVF1RGN5UmVEamY2ZmFNdTVNMkRSNlpDQTFPRURtbHZSam0xTnpfR2FmalFxTkJCNnBob2UzcHYyQjB1QnNYbjAxM3JGb29pb20zaVZwcHl4dnRWcllwOA?oc=5) |
+| Typhoon Kalmaegi death toll hits 114 in Philippines; storm rebuilds strength as it heads to Vietnam - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxPTUY2ZjNtSjRKbzJJQ2JHamtmQXFEVXZGbmZQNS1PVlVCdmkyNUVUVlF6SVF5UEFZVUFUVjJEQ3JCQzZKaVNiNG5NLVZJeWh5YWhpRVFaUXBnZE9DX0JMTGZBMUZWNXlnRmNfdVlZZ1Bmdk4tR05od3BXLXJTYVZ6TGU0SERsWXd0ZUk4VmpoUEtGdlh5MjNkb2lNN0tvMTl2WVpYTnprN2dCaW5uVFRTUDdxc0U1Yld6WHJSSDYzVGVQdmlkcThMZm5VRFg?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
