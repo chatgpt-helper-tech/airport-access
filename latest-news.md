@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 01:57:53（北京时间）**
+🕒 更新时间：**2025年11月07日 02:00:17（北京时间）**
 
 ---
 
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump announces deals with Eli Lilly, Novo Nordisk to slash weight loss drug prices, offer some Medicare coverage - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNaldfWk52dE5rbUJNa2RXNzhuRmdzRkJlRjRqX1BuWGJZR2VjNklIM0E3UHFvSm92NFRVTmRmaDl5NXJfM3Q3UjNpWGNyVlpMOUpqSzl0OE5lV3hxbm56Yk1OMnBVNXJMRlVjemJkY0pfMGtPLUVUTWxLNVZxZzRJTVdYQnN6TVdqSTRwUllERm1RRGU20gGaAUFVX3lxTE9EVkc0c0JUbGx2aVB6OUtKZ2hKdmRDdHYybTNPRFg4VnRYQUx5N0QzN0VORlc2NjlzNm9yc2wzMEhqS0toa215cEV1bFdWTXo3UkxNeFJoWFJleWtzNE51RHVaMElGZENqSzFhV1NTSDB4M2dhcVJsWkhmRzJvRU83a1JmbDdvMFJKMGRSaGF6VGdxT0dZOHptOGc?oc=5) |
-| FAA orders 10% cut in flights at several airports as shutdown drags on - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQVVo1YzVNa3R4SWxreklLNkMzaHk0QllfQVhJWG5oRXlqMDVzWFZ5bzZtaGpuWHFQSUE0amo2UmZJcVZMNGRKdG5QbUpLeDd0czFmcDI5aGd2dXZTZHh3eWUxSTBHaV91WEk0dnhwSTdxYU1WVm1fNEdSRFUxMFBMd3RFTUNhMTEtTXJVaQ?oc=5) |
+| Here’s a list of airports that will have to reduce flights during the government shutdown - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPcTFiZndzYUlYN2xka1hUQ3FET0dscENhc0o1U0VVTWtlODVLRUwwNUV2Q0hMcVVJWmdOVk5JZ09VcUhNampndHk2SkNDTV9FdzlfazZtelcwRWgxQXl3QURxQktpQzJySS1SUlhGTURxRTN3NmFVZnRDa2V1NWJjWFZGcTMzR1JqN2xmNnVHQ0J3bWxNVTVkR1lKRXUtWndreFA0RFk0R2d2SGtpUHVZMENTZlZITWd0OGlNd0RFVjBRUQ?oc=5) |
 | Nancy Pelosi, a force on Capitol Hill for decades, to retire from Congress - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQUFRBZW43QTRCZmFxOXIwXzdfQ2wwQXRBQ09qVk5ZV0llOGpESURhSHBuTnlNSTQ2bGNNdWdpOTRPRmh0QS1KcVVVZ3NSZnp3cHZCS3dnT1oxMHg1MkRDQlUzVnNpVnQ4b1VrUjRSVldKNFBZOUJMTHdVQVhPVmpfUnJB?oc=5) |
-| GOP’s latest shutdown offer includes possible reversal of some mass firings - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOU1pWTHFDRXFJVzZicDBiM3QwY2ZwdWdiUjFrWm13Sl92ejB5WjdTNG15bU9KeDYxVDd3WnM3Wm9pWXE0cTdvWWV5Ukd2a0ozQUc0NDB0d1NFLTRQS2thbTFxek9IMV9xQV84WDctei1NQ3I5UFhfVjlZV3RpTEpnS3lCMnlhVWZPek5seWpKNTVpd2VzYkoxaFpB?oc=5) |
+| Government shutdown live updates as Senate talks continue over deal to resolve impasse - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQRUQ5amFya0k3QkswS1NVb3VMdFFYVjl6NTFOVThac05WanVYNEFlQWxmTl94UUMtOHpNcjBZMzIxdnQwUk5mQWxod2N5dTZUMDdSOFlHVE4weWNaWHg2U1RzT25GYzAxdVRqZzNENnZ4UW9WRGlWVzFwWjhpQ0RxVGI3U2xDR2hiMFpUSTJn?oc=5) |
 | Wall Street reckons with life under Zohran Mamdani - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNYWRLT0xJQTNBT0xIcldZMTNvN2hTeGpReUU3dDBUdDRFQV9mMFg0Um5fR29BTElNemtPSHFNdFh2b2ZySFNsX3JPcDFkRGt4b0g4MEdlN3ZHRXM2SkNRNHlQM0N6R3paNUEzLUpVeU1kOFJuLVkwNnZKNk5JZW95bC1CUWhlV3R1VUVIUWM5cmh6TXpGSFE?oc=5) |
 | Tariff refunds are now a very real possibility … and a giant ‘mess’ - CNN | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTFBtZkZFVExhSjZoSGEzVjBKejBoRXFPTjI2THQwTXlRTWRBSHRJZWVERXptQU5fUWt6WV90bms3TzhQbGFRVV9LdXp5VmtzeFhGMXRZcTdYaXM2a2J1V1lTc0ZNcjBCcWN5ZXEtag?oc=5) |
 | Nine people remain missing from UPS plane crash, Louisville mayor says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBCMWVFRmhRZXphUEVMc2RPZmtUbmR6eXdXSWtXMXczUHJYT0NJQ01NdkhGbDVJMTZMSjUwQUNGeTZFdjlYOVhsT3lBZmhJX3J6TmhEQ3ZQN3dlNDdReVZVS2dlZzR1UnJBeTBFaEpscXUyVm5lRWdWOGVWTVFleEnSAVZBVV95cUxNOHVNckdhelJWcXBuR29RbjNMRU11dzhTUnNncXBQWlFxX1ZSMUx3dEt0ck5jeFZlQ0EydUIzejg0akd2S2lGNFkyN0RGX0lpbkNUNUJGZw?oc=5) |
