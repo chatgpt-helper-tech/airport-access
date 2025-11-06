@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月06日 21:48:06（北京时间）**
+🕒 更新时间：**2025年11月06日 21:56:44（北京时间）**
 
 ---
 
@@ -12,8 +12,8 @@
 | Watch: BBC reporter confronts man at centre of illegal worker network | [阅读全文](https://www.bbc.com/news/videos/cgr4dr4rp74o?at_medium=RSS&at_campaign=rss) |
 | ADHD services shutting door to new NHS patients as demand soars, BBC finds | [阅读全文](https://www.bbc.com/news/articles/c4gpl150ze4o?at_medium=RSS&at_campaign=rss) |
 | Celebrity Traitors final briefly uploaded 24 hours early outside UK | [阅读全文](https://www.bbc.com/news/articles/c24ldv0p67yo?at_medium=RSS&at_campaign=rss) |
-| Record referrals to Prevent anti-terror programme | [阅读全文](https://www.bbc.com/news/articles/crrexq1zqp9o?at_medium=RSS&at_campaign=rss) |
 | Man who murdered 'Good Samaritan' after ploughing car into him during wedding brawl jailed | [阅读全文](https://www.bbc.com/news/articles/cm2lxm71r7lo?at_medium=RSS&at_campaign=rss) |
+| Martine Croxall broke rules over 'pregnant people' facial expression, BBC says | [阅读全文](https://www.bbc.com/news/articles/c3epwz08ewzo?at_medium=RSS&at_campaign=rss) |
 | UK facing long, tough flu season, NHS chiefs warn | [阅读全文](https://www.bbc.com/news/articles/c8r01ykl0xgo?at_medium=RSS&at_campaign=rss) |
 | Chris Mason: The justice system is failing - the buck stops with Lammy | [阅读全文](https://www.bbc.com/news/articles/crmx82ng9gyo?at_medium=RSS&at_campaign=rss) |
 | Are Christians being persecuted in Nigeria as Trump claims? | [阅读全文](https://www.bbc.com/news/articles/cgqlzkdeeqjo?at_medium=RSS&at_campaign=rss) |
@@ -32,7 +32,7 @@
 | Trump wants GOP to focus more on his economic achievements. But he’s often changing the subject. - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPUXY0aU1vTkFfMHFhdjYyTzRTOXJfSkFiSEVRMGZiUlNhUG9NcE5Qd2c0RnU5ZWp0cGItY2ZLVnFEWHY5anlQbGw2SmhnS2Y4Zm9OaEswb2QteFlkVTNCZm5QbllYQWd5NXJPa0hfMkNON0JoM2ZjWmdwdWZuOWVyUHlGb2pLS2ZYLVE?oc=5) |
 | The federal government is still shut down. Here's what that means across the country - NPR | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE5vcjB6azh0ZW1xUWJtYlEwV25yVFlUU2RPVGdsZkNycXVNY3BnNU5hbmk0cFRUVDZxZTdoVXlnWGFnMm8wZnBqX1dway1adTlGVlpLRXlvNmxkVmhYNDROa0k0dXFGcEdJQXlQUDZB?oc=5) |
 | Trump plan for smaller SNAP benefits this month may leave millions with none at all - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPYXQ5c25pSUdhSElwYjYyX282cy13LWZfSEVMU1A2UmE3RWFzNkttZTEtSFFwcTg2ZnA5VkJIUFZFSS10eG10bnpWTzRhaFR4OHVlYzFEVXhxVlYtVjQtaDBta1I5OW0yUDhSTE5aSFJBY1NSNWh4ejAyWlBzTm5EVU9RTDJZUGZZZFNNZ2swQXI?oc=5) |
-| Judge in Comey case admonishes Justice Department for "indict first, investigate second" posture - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQbHd2N0JpYnkxdjdTWGt1ZjZFQ3NyYnhHRFUwbmRTdmJiajZaNFI4WlFWOE1RZko1YmVHS0t0T2doX1lYSFJBY3RiS01QRjF6NTBvNF9raGVlSWNoTXJhUE9vNXRzTldaSWpnQU53NUVXNXdlc25IR0pGTndCcXluZFppYkZ3NnZtT0F6aNIBkgFBVV95cUxPdmVES01TcWNmNE9RdVRHR0QwUjVlelJ0RkgtU3h2WVh4T0U0bUw5UThVd2RqckpuNGl6elpVbUtKOVVZcmtMSTAwcmMyOVlqSEhKVkxwRWhDd2pHYVJWNFJ2YldmYi1HUy1BSTlmdDBYUnBqallac0s2V2dzNjhSZm5yOFA5TThnZlB2bmxKcFlwUQ?oc=5) |
+| In Chicago immigration crackdown, agents raid daycare, senior living center - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOelRuTjJHbVAtcExFc1FRSUU2M1FJeWRYY3dvdjNSQlh4ODlIUlZhNFJxN1VqZTFtV0N0SWVCRF9YdU5vZk5iR3hjWTc5Q0N4STZoRlMycUw1dktHSERwbWdvQWZBdTJ3cFowOTE2RnpBdGk3eWlxSmZxUzJJY2c4TUVNYjBvaUFUeF9lak92T0Vuek05MVJBQWlvNV9vWVVOLW5zOUdUbXprTkdUc0xCVXpaYm5Sdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
