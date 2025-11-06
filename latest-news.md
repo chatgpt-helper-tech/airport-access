@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月06日 11:32:10（北京时间）**
+🕒 更新时间：**2025年11月06日 11:40:05（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Kentucky declares state of emergency after UPS plane crash kills at least 9 - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxNSnRHRldtdWxrZDZKUjA2VmM3ZGZmSEFncjVjSzFlTkxkTnMzOVVQQTlFYm5NemFmU1RyY0hqX3RrLVhvMDA2WW9WVzNZRkhhTjA3SThQRlNqUXIxajRld2wxUjdheVU0azhrS0lZQ0JTRGhuVHB0U2lFRWt5VzlhNXZpMWNrMlFoTjNuNXlQODN5WEdpaklUZDZpa2x6R0xVaG8yN1BDek9VM2U1?oc=5) |
 | Democrats emboldened by election results mobilize against centrists’ emerging shutdown deal - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9vRUZib1dfc3d1WG8xeFJPb2lKOHR0N1ItUWotbjZYVVJTTUM2MHJ5NmN6OE51c0ZZUXB3SVB4T0t6MjJidVFMYWhsYmU3cnJxM090SzhoNUlYRXo4ZzlzVEdUYXBvZkw0TGMwcVVkbEhNd1ZXYlVXS0dsZ3lpdw?oc=5) |
 | Republicans Point Fingers After Election Losses, but Not at Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxONWJGZGZhX1FRN0NxMlRBTVRnX1JiVTRxVzNWSG9lcmJtQmpzZF9Ia1VkanJIc09WdWRtVE50dFJJQi1lQjJ1OWF3MHYtMy1SYzRkMjZHUE9JNDRLZElqdXIzdVhYOFc1SThuRlBXcDVVRndvQXdtUTdaMXhWT0dxY25ReF9VUQ?oc=5) |
-| Judge Berates Justice Dept. in Its Prosecution of Comey - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNSVpzSWFaSlpEV3lHY2Jab0JXNVFxV2VGR00xM0xDc19tekJPeG9xSGJTYzRVNnJFaTRsMEkwTTZoMUFYay1GTmNSeTFOdi1sWF9MWFI3WHlYSURPaVlxbHg3RVRoekMtSjNyZnQzOTE0bGU3c1VoU01GQmJKZWFUcUIwR0RXdG8?oc=5) |
+| ‘Highly unusual’: New warning signs for DOJ’s Trump-ordered case against Comey - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxObW1ReUx0ZnpWcjdPSDB0aGNleVhhc0hNNTVFWk41b0FObGhGRE5uRVExcldhMzEwblFyNjZKclo2Nm84VkFXM1lFbVRVQ3RENlZ6bjZOV045OUVjWnNrbU5qZGoxQzNON2wxY0FiOHUydEhIeUVNa1VwXzJlWmd4cGpRM05wZkFxdU8yd0loSVhuLVpTTUo2Y3ZiTmNseFJac1h1b3BMeGRLWkFUVDBRRnJzQV9LQVo2Mkx6dmNZQ2JvZw?oc=5) |
 | Government shutdown live updates as Senate talks continue after Democrats' election victories - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOSi1xcGVUVWpBSjFGRGI4SzhyTm9NWVphSGhhQjNkTVVmY0FhT0NMVGNHMmZFanBoNExHWmtYdUVZdU1sd1hpYjlXN3ZfU0JLdEhUMGVvZ1drSEdXbGV2aDctTDZaX2haenVaZlNXZy1XMTdQRGNkZWctMkdGOUh3c3VjMVRvX1pwMElKRkN2c1FTMmpRSG9HQVJVa25yaTk0NUxFdVVKRzFKZFoyYkdJa2NYZ3RLOUnSAbwBQVVfeXFMUG9YZ0JZTnRIbkxhTFhGZDNtRWZxNkRmSk1NVnBNdGlGRzdQalVVNDd2M0FTR1dEZ3RIOWpOelhZOEJXaC0zdlBVM1pQUTFOckY2MnRYOGgtMElXb0o5Z0diNW8tUWZUS2ctTmp1WFRPclRGZHRpdmVxNWNxbUNnQ3dpU2VzdmJYR3M2SnBVQUQ2VHNza1pIS3FKX0xiNVkwUXRvVkdmcW9HdDEya1MxZHNNOGZ0S0h1MHRSTVA?oc=5) |
 
 ---
