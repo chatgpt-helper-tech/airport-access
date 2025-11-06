@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 05:24:44（北京时间）**
+🕒 更新时间：**2025年11月07日 05:32:11（北京时间）**
 
 ---
 
@@ -13,10 +13,10 @@
 | Andrew asked by Democrats in US Congress to appear for questioning over Epstein links | [阅读全文](https://www.bbc.com/news/articles/cdjrm87731mo?at_medium=RSS&at_campaign=rss) |
 | Labour should stick to manifesto pledge on tax, deputy leader says | [阅读全文](https://www.bbc.com/news/articles/c62e0e0q4pgo?at_medium=RSS&at_campaign=rss) |
 | Hundreds of protesters at Aston Villa v Maccabi Tel Aviv match | [阅读全文](https://www.bbc.com/news/articles/cjeknklzn39o?at_medium=RSS&at_campaign=rss) |
+| Holocaust survivor and educator Manfred Goldberg dies aged 95 | [阅读全文](https://www.bbc.com/news/articles/c7v8jjny8nmo?at_medium=RSS&at_campaign=rss) |
 | Southport killer's parents failed girls, families say | [阅读全文](https://www.bbc.com/news/articles/c78zjzppm2mo?at_medium=RSS&at_campaign=rss) |
 | Pauline Collins, star of Shirley Valentine, dies aged 85 | [阅读全文](https://www.bbc.com/news/articles/c62e0n957y9o?at_medium=RSS&at_campaign=rss) |
 | World leaders take aim at Trump for climate inaction ahead of COP30 | [阅读全文](https://www.bbc.com/news/articles/cn4j8dgnj1wo?at_medium=RSS&at_campaign=rss) |
-| 'He threw himself at the attacker': Train stabbing survivor says hero passenger saved her | [阅读全文](https://www.bbc.com/news/articles/c3643k02yzpo?at_medium=RSS&at_campaign=rss) |
 | Sudan's RSF paramilitaries agree humanitarian ceasefire | [阅读全文](https://www.bbc.com/news/articles/c74070y9e3go?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -26,13 +26,13 @@
 | Jury acquits D.C. 'sandwich guy' charged with chucking a sub at a federal agent - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNY1A3RGJWV1BOZEtzT0dZOTI2dHYxU2VYd1RWdWVPTzZpVDZlUlBTSUpyclRxRGpRRmZXTlRoMUFNMTNxRE5KT1JUV3g0V3VCNlRMTnJRUkZWUVo4VkRsOFBQYVZkb0RmY0FBRnl3TEhvWEVLU1BISkdpbmRvY0tBVUotVEpiTE5LLTkwQktXQdIBVkFVX3lxTE50cnlUeFE0bzh2MzJhVDZPMG9QWGVVV1VkNHFMLThvSnBSWHh3TC1FSGZpTEN4OTdXOW5TWnptbEpEUXZjdkxORGZzY0plQjdETzE4NmVn?oc=5) |
 | Supreme Court allows Trump to limit passport sex markers for trans and nonbinary Americans - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNN3ZOWTVUZnNFQ3o0RzdXZHVTYVdSRE1hTXdpSDc3a2xlQnhtNWQ2Q014UlBfVG5iVTJlRzZtT3VxMWM0T1p4aXBZRkM2eDRKSUx0UHNmMGJtbWhCY1VZNkRGcTBaX0RaMTVRVGlJQ3RWV3U4cWlDRUlOU2p4Q3gxVXZGNExMQkhyX285QTNQOA?oc=5) |
 | What travelers should expect at airports as FAA cuts flights across the country - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQc0daZXpCM2J6UlZhajg0czFVQ2RJZFR6THZreVRLalhGdkllNUJPY3Jnb0NXQmlpSjV1a0lXYVVJRHg5dksxUVdKQklXQXJuTXZnMVZoWC0tMmVZVTFuUnJJdk1odmNDeWdJV2VadkpGTjlGMTFwbGtzSkp2OWZXT25OQzV5eGRCaE1sTGlLMmdielhXZGZBaXZLTWI3bllfOWxYQlJR0gGrAUFVX3lxTE5OTlo5WFd6SG9pWFRCTTNlSldYTks0MkRiM2NfZzd6U2VhajZXajV1WDBKVm5zeXFYY05XUnZCVWZRQmVZdFhrQjRxcGFtYzhoNE9aVGw4MndpVWRNTDMwUFN2b3dZM1pvd1JJcng4WnJUSGJEa3NhWHdzRUYyU0d2c1FpYXc1LUtYRU5GSDkyRHB5bFBveVRfMno3RmgtVUhFRzRpUUFnRTgtTQ?oc=5) |
-| Nancy Pelosi announces retirement after decades in US Congress - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5SSjByeVFrNHhabkpYZFQ3NHNBMkNaamNLc0M2NVp5WEZLUDNkTzhKMDNEZ1ZqQ1pCTUxUOHFldm51Q1oxR0FGWTFKRXVVc2l6eUtVLU9ZYUlodw?oc=5) |
-| A former teacher shot by her 6-year-old student wins a $10 million jury verdict - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPWjMweDNFWmRHOVZVNmJ0Z2RuOVhwMWxPSXdnMjZLQlZ1dTZTd2FVSDlXcy0yZ0w5SF9MTjN0X0ZLYVo5ZjhER1JyWWJSc0Q3dzhjamR4bHgxUzdMNUJUcUloMXhidXl0WXAtS0VUYVc5UDZnek5SQWxCX05Td0J1LVlXeDJhcFlwWjhjV2tuZXBqNFhIQ3RpM1RBWC02aVNyQnFJ?oc=5) |
+| For almost four decades, Nancy Pelosi has served the American people and worked to make our country better. No one was more skilled at bringing people together and getting legislation passed – and I will always be grateful for her support of the Affordable - X | [阅读全文](https://news.google.com/rss/articles/CBMiYkFVX3lxTE51RV9nNUZaMm9VM3lGRHgxS3djOEk5YTh1cVFfZTA5aEplcGRVaWsxWkxDVmZTYm1iOWx0OHBCUW1WUTkzaUgzWGdadFlXX09rcXc1WVdxUXU2dHJhRWRQZ3Vn?oc=5) |
 | Trump’s Tariffs Are a Massive Money Grab. That’s Why They Are in Trouble. - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQNTI0SWctZXJrOWJSOE91Q3h0NGVmMm83WTExU3ZsUVBiTnQ1S015MG9nNXJkVlBWUUhiX3UtSG5TLVhmczlZM3VJSEJWSVZwSTB3eFo2RW5tZm0teE9tWVlKaXREdUZMQl9fYVdKQjNMMTdmaFVXYVMyTVB6M1psa0F2S19ySVRDaXAzQk43Q0hDWlRpWnVOdG9zanlrWnp1QlBqOEdLU3NXYnZEZ0ZZM2U2MXo?oc=5) |
-| Senators push toward deal to end shutdown as final sticking points remain - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE1GcF9NbnNRMFJKMVBEVnF0RnhRcWJNT0g4RFRTTTFIUWVFX2JhMHRfVDhTczhPUWFuQVk4LVhrUGpVdGRpb1FWcldOemplczZKcUMyQlVrUGxpMG90Ylpyc2NKckJYNjNscURnU0htN0Z3MG1FLTRzOGhB?oc=5) |
-| Officials scour charred site of Kentucky UPS plane crash for victims and answers - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxOaENwQ0NkbzdtNndtMGRPUmRGeFZFWjVsdGNEOTFXREtnaVZ4dkhqVV9pY01kUXFPNWVKTzNkUW1naU1IbmlVQVFmVjRXQUFRZHJrWDVJNWxObjZpQmtOVmZ2MWFRVk9Lb3UyQWlPaTNJSm1OVEVzU1c2R3NORG4tRER4Q3NackE3bExDZDhWdzF6a1p0RV9raTBCOVBibTJfcEdhTw?oc=5) |
-| Zohran Mamdani and the Wall Street vibe shift - Axios | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE9Yc3hYOFVsMzBIVC1SLW4tOFNSTW9KdE93TjZaSERLc0dEYXdGVHZfWDcwSzdrbFN6QnJEMEM5SlVLY2ZTWTZKVGF1Zmc1LWhWMUI0SmdFVWg4Vkd1dlRHa0Mta2xFUVRLaFduSkJ6QlY2eEE?oc=5) |
 | Here's how much weight loss drugs could cost you under Trump's deals with Eli Lilly, Novo Nordisk - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPUW5hQmJ6ZHpSQkFBaWpNcDBqWXBleExGV29FMUQtMkRvU3BoM0xUSHdUSERHNnJEYlFSYk81ZGxsM3JLU0lCZXFpZGJGUlBKWGxiVnczRU5iT0VqSldpc2hrQ09GT1N5eXdQcFloYUtubVhmVERvQ09uQWk3M3JMSmxqZWZYdV96dmFwT0FuanBVUzg0Y0HSAZsBQVVfeXFMT1BUZmlJN2pjNUtoVTB4eWlhdVFhOWo4cnJzY084UU1jMU9zSFYtLVdtZjktVllUR3dJNGtpMW1JZFluRE9pVnFQTE9fRGhTVndLOFJWelJnSUZHWGtqX1hnRVVkNUR5WHVtWkdSRnhOdXdPRVR5bUczWm1uZGUxZzBjNktkZlhsOWJiMmpZTEk5NEhoYmlsOEVtZ2s?oc=5) |
+| Trump admin will pay for more November SNAP benefits than expected - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNY1M3LWxzOEdxWGFJd1J0U0h6cklDTEdxQ2tOc0pPZmZVMWF1bC0yNExjQnhjMGxwZzFsOERydHZOd2hyemV0SVN6OHJJS1hnU1FoMGpRTEozc0htMUY2TXQtUXJIWEtVWVNNMHdzYlZ3YkgwLWpJSl81a2ljMmRoWjlXeXFTLXRsSVVxTWdUZjNUTjhUdWJZ?oc=5) |
+| Bipartisan talks to end the shutdown intensify, but agreement elusive - AP News | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxNc1Vnc2ZzdEw1dGhqV09kWGlEdVREVVlNRUtYWWE2Mm1mTThOLUdzc01JWmRJMXJiZUJ1aS1NZm8zYUdOd3djR2hTSU55RFo4cjJvdWxwMmxQZi0wb1FvU1VkOXJnanh0U1FKVnRrYVdQMFRXLTltbDd6bG1TdWV3RTJyeE1tTDIzOGNRYkhZMUpzWDZNeFZsQlJya3dfVDk3WHlZczdVMTlOVG96V0xkdA?oc=5) |
+| Investigators Sift Through Plane Crash Wreckage in Louisville - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxONElzRVBVNC1IRDdsWGVqZW5pV0djWEhJVVdOR2dfSHY4cEZTMkRJNm1kU2w0czZ0UHl2dy1ONk03SlltMmJqRE0yYWV6dXAtMDBfUF83cmtjN0RJaGVqQ3R6a21NRkZNSnRybzB4T2hZa2Jma0Jac295MWRJRmhWSzlKYU9QYjNpTnl1ZlJQQjV0WFlYc1Iw?oc=5) |
+| A former teacher shot by her 6-year-old student wins a $10 million jury verdict - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPWjMweDNFWmRHOVZVNmJ0Z2RuOVhwMWxPSXdnMjZLQlZ1dTZTd2FVSDlXcy0yZ0w5SF9MTjN0X0ZLYVo5ZjhER1JyWWJSc0Q3dzhjamR4bHgxUzdMNUJUcUloMXhidXl0WXAtS0VUYVc5UDZnek5SQWxCX05Td0J1LVlXeDJhcFlwWjhjV2tuZXBqNFhIQ3RpM1RBWC02aVNyQnFJ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
