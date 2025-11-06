@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 00:56:13（北京时间）**
+🕒 更新时间：**2025年11月07日 01:01:26（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | 'He threw himself at the attacker': Train stabbing survivor says hero passenger saved her | [阅读全文](https://www.bbc.com/news/articles/c3643k02yzpo?at_medium=RSS&at_campaign=rss) |
 | Bank says inflation has 'peaked' as it holds interest rates | [阅读全文](https://www.bbc.com/news/articles/c77zkg5504eo?at_medium=RSS&at_campaign=rss) |
 | Crime fixer caught by BBC offering to erase £60k fines on migrant workers | [阅读全文](https://www.bbc.com/news/articles/ce3kevkl3pdo?at_medium=RSS&at_campaign=rss) |
-| Louvre criticised for spending money on art instead of security in years before heist | [阅读全文](https://www.bbc.com/news/articles/c93dj92d5y0o?at_medium=RSS&at_campaign=rss) |
-| UK facing long, tough flu season, NHS chiefs warn | [阅读全文](https://www.bbc.com/news/articles/c8r01ykl0xgo?at_medium=RSS&at_campaign=rss) |
+| Labour should stick to manifesto pledge on tax, deputy leader says | [阅读全文](https://www.bbc.com/news/articles/c62e0e0q4pgo?at_medium=RSS&at_campaign=rss) |
+| Barton says he is victim of 'political prosecution' | [阅读全文](https://www.bbc.com/news/articles/czxn40ep4x2o?at_medium=RSS&at_campaign=rss) |
 | Will Bank of England governor play Santa or Scrooge on interest rates? | [阅读全文](https://www.bbc.com/news/articles/cy0y34dxl7lo?at_medium=RSS&at_campaign=rss) |
-| How 'secret' underground energy could heat every home in Cardiff | [阅读全文](https://www.bbc.com/news/articles/cy5q9e1e4zpo?at_medium=RSS&at_campaign=rss) |
+| Sudan's life-saving community kitchens on verge of collapse | [阅读全文](https://www.bbc.com/news/articles/ckgkl4nx784o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
