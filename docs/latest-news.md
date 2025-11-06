@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 03:57:25（北京时间）**
+🕒 更新时间：**2025年11月07日 04:00:40（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | Former Speaker Nancy Pelosi will not seek reelection - NPR | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE81dmRRNzQzbC1zbDk1SHdRQmJpZHJ3MlpUYUlzQlRUdUxyZUtjMS1ha2F1SnJQZ0VEYkdfcWt3MWp1VkhsUC1yaC00WnN0T0tWa1gyNzF0cV9PaHUtWGFTLUJkbTd1WllmT1ByMEFR?oc=5) |
 | Man who threw sandwich at federal agent in D.C. found not guilty of misdemeanor after trial - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE4wQnYzTkZHeEZvQWdPeHFaMklwZnJtaHMxVkJrRzltaUZOTEZZSVNwWVJyUG9tWWVhY2o5RURFYTdibEZETVg5eXRKZmFRZFZ6b090a2FuTFZzc3B6RkRDbENoSGZVWU1TRkQ3M2RpU3NFRzB2cFBNRl9Ibkl3QdIBgwFBVV95cUxNRjhLY0ltT215OVZtS0VYemVZblZwRmhOZE5lSmFyM0VJVGhmdVIxTmtBOF9ibmRuTnlreW1CLWtTUTIyUzBoZXRiMkMyNlduWWFuWFE0b3ZDTkZTYnBQZkkxMTdLTjUxbVhPRWUtSnQ4RFdJY2EySmxWT2VncVBnVkFRRQ?oc=5) |
 | Zohran Mamdani and the Wall Street vibe shift - Axios | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE9Yc3hYOFVsMzBIVC1SLW4tOFNSTW9KdE93TjZaSERLc0dEYXdGVHZfWDcwSzdrbFN6QnJEMEM5SlVLY2ZTWTZKVGF1Zmc1LWhWMUI0SmdFVWg4Vkd1dlRHa0Mta2xFUVRLaFduSkJ6QlY2eEE?oc=5) |
-| Jury Awards $10 Million to Teacher Shot by 6-Year-Old Student - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOaE9ZeWJRRHZ1Vzc0NHNkSkI5REQ5UGFIZWw0Wk01b1hqLWR2RU82MVZUQ2UwUHc2ajktUnF1YXNQdGt0NXpDQkwzZUpPb2FQeGZBVWxkUjdJRWFVOExLcVZ1ckRnX3g2Wmc3Z3UtV3JZNUppd1EzYVoxdUJiVGJBQWxZd2N6WWJBVVk0VS1CT0pIbmc?oc=5) |
+| A former teacher shot her 6-year-old student wins a $10 million jury verdict - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPWjMweDNFWmRHOVZVNmJ0Z2RuOVhwMWxPSXdnMjZLQlZ1dTZTd2FVSDlXcy0yZ0w5SF9MTjN0X0ZLYVo5ZjhER1JyWWJSc0Q3dzhjamR4bHgxUzdMNUJUcUloMXhidXl0WXAtS0VUYVc5UDZnek5SQWxCX05Td0J1LVlXeDJhcFlwWjhjV2tuZXBqNFhIQ3RpM1RBWC02aVNyQnFJ?oc=5) |
 | Nine people remain missing from UPS plane crash, Louisville mayor says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBCMWVFRmhRZXphUEVMc2RPZmtUbmR6eXdXSWtXMXczUHJYT0NJQ01NdkhGbDVJMTZMSjUwQUNGeTZFdjlYOVhsT3lBZmhJX3J6TmhEQ3ZQN3dlNDdReVZVS2dlZzR1UnJBeTBFaEpscXUyVm5lRWdWOGVWTVFleEnSAVZBVV95cUxNOHVNckdhelJWcXBuR29RbjNMRU11dzhTUnNncXBQWlFxX1ZSMUx3dEt0ck5jeFZlQ0EydUIzejg0akd2S2lGNFkyN0RGX0lpbkNUNUJGZw?oc=5) |
-| Republicans take stock of Newsom, a ‘Tier 1 Democrat’ after Prop 50 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOaXlzSFRXc3ZvbkRTbDh2R29NZ09hVVI4TmhBRlZTQzVfYU5Ea0I0ZndBYmYxOGYtRnNxWVNFYTl4QW5KTE8tTEdrMnpaLW1SVURKSU5fVE5KTFJ3WkpYODYzWkhwUzhxZHd5ejgyYWw3X3ljT2VQZzN6N0xLbml0WnpjN0kyTWdwbGhad09MNm1KLTVOdDlsb0wzZndOMlE?oc=5) |
+| Democrats emboldened by election results mobilize against centrists’ emerging shutdown deal - CNN | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE9vRUZib1dfc3d1WG8xeFJPb2lKOHR0N1ItUWotbjZYVVJTTUM2MHJ5NmN6OE51c0ZZUXB3SVB4T0t6MjJidVFMYWhsYmU3cnJxM090SzhoNUlYRXo4ZzlzVEdUYXBvZkw0TGMwcVVkbEhNd1ZXYlVXS0dsZ3lpdw?oc=5) |
 | Typhoon Kalmaegi hits Vietnam after killing at least 114 in Philippines - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTFBlajJNaXpCTWxsTlNXWFZWa0haRVU4X1BRcXdVdllhTFVpSTV1UVRRVUI1d09CVDQ2dnl2eEVFZTVNamU0NDlWVV9kMDZLT2VhWHprLVE2UUFUQdIBX0FVX3lxTE9BSnJ2bURzU1VXQkFvaUZSVVlaVkxjZjA4Z2hCRVBRTncyTnd4eFdMeGZDa0JxVHVFRFplYlI3UFJIZThWMDU1bnlzMF92WU1HMUVDSzNlM3Jlcjc4b05n?oc=5) |
 
 ---
