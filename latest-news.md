@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月08日 05:17:11（北京时间）**
+🕒 更新时间：**2025年11月08日 05:24:02（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | USDA says it's working to comply with judge’s order to pay full SNAP benefits - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNUHR5b2RBT284alZWd05TWi1xdTdXZlJPeW41ZlA1ZVFWblRsQjNkMG9kek9ma1JQWm8xeEYxa0sxWnBEVTU4Tmh3RnU5U2lJengwN0oxZ2Q5OTQxUnh4dktPOXJ1MlNqV3NFdlc2WG1XSFNDVWpxaFZoMEd4amxWQTlqaEV1ekJqTk5CMXVSN1JhTk5G?oc=5) |
 | Two ways countries could respond to the Supreme Court ruling on Trump's tariffs - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTFA2OExDY3pPZ2dPSmhaZXdfSzJ2ckJWbS1TdU1kdVpSZ3h1OHZKcnJhUmtNUVliaGtoYzJhcHFCYnRIclNfeVNHeDBXeTRRd3VKTjBsZk1CV1dPRWtBM20tbVdUZFhYeThTTU91Yg?oc=5) |
 | Trump opens the door for an exemption for Hungary on Russian oil sanctions - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQS3dFSzE5YkZvQzdveEVEaEVBOTRSbTRDN1dMWjEtN0NmRFFiQmZxbWZqQURkYVloQmRMdkFfT3lKTVRvM0haRGoxRVdMSGM4T0l4czJfNk1DVUhnVTBIU3lwZkZkQ3RxQkxGWlMtYWNOT3NhOHNEb2xsYU0teGRYa0lJaUZReUFrWExxM2E2enZFWmhxcGhpdHI4ZzVQQUd6cXozbFlWbkZCUkhLQ2ZyU1JnSUdkeDRoMG03bW5kOWM5UQ?oc=5) |
-| Food banks are in 'disaster response mode' due to shutdown and SNAP cuts, leaders say: 'The damage gets worse and worse' every day - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQU1pYdExzTU55MGdXRkNtOXlOM2lIQjNKMll2UHMtcjc2OHJoLWtXZm9YUjdtNDA1QWswUm1XbGx5V0VRVEZtVXZxNllnbUNUQ0ZhYmhHVC00YmtFU2h6QW1oa3ZuTUUwQlFxUWt4dUpzM04yVXBJQTMtNndxMWNmZmVWdlZXYjdQWXhwdV9Fb2tLRmtSY1dGeHo3R0JocU01UnJSZkY2VUg0THJiWXhPSnd3UFFna1VUaW9R0gHAAUFVX3lxTE9XWEVTdS0yeDF2LWZ4MVlSN2NRb2E3bklQcW0tcUVLWG1jTE92TGppaWVEMGlreG82NW5vdUU5enV6Yy1fYTQyY3NtV2JIQ0d4RWF0bmE3aGNTY2hMcnpEYUtJNEowc2l1SXVFQzBaYzF4Qm9LWkVjZEZIMkYwVEJDQVh6VXVhWlBKb2h4Z1Y4MmtzX3dCVTktd0p5VkNSbVBXM0l0UERJektUVFJsR2M4U3k4RlhPNGRUYnNSQkR0dw?oc=5) |
 | Poll: Democrats have no idea who their leader is - Politico | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFB4VTFNRXhHRDItTTJXT0k5Ykdkb2tiQndNd3cxVkhiLXdYSlpTb2NjNjhITzVyakxKSG5yWnR5cExJbVBIZW5BOWZjRnlHZDJ2M0lwa3RmRFc4UlRLN2RJZ0Z2RkQtQV9hUnptWlp3dWNuZUdNcERnaVhjNA?oc=5) |
 | Trump loyalist Elise Stefanik announces run for New York governor - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQeWREWDRULTc3LUtndl9vV3R0aFR5WVJBUEp5bHVaVk5HWkZuVnJGalhIbERETTdIQ2JzcTAxaFplZ0dKYzlKWUc1Nm10NEpNdWljLTI3elBZNFgyQko2UVROYU80Ri1JdWRHZFQ1TEN0TV9xRFp5ZmFkemZ0OFpiU2JXQjU3TFE?oc=5) |
-| Supreme Court lets Trump block transgender and nonbinary people from choosing passport sex markers - ABC7 Los Angeles | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxPZkpmNWlQOVNMMWdJWVc1SVJ4Wkp2TVZCLVc3MGF1ejJUQTdvTmFUbjliREN5bFlWU1FpOVN4QVhUQjgzaWNpajZ3SXZBR3RkeVVVNURJbjNrRnRGbFQzTlhYVjJGcldCUUc0ampoWTZYZ3VsWGNieFlSOWcxNzFnUDZ6OUYxbFEzS2dIS1B3Tl9YOXNtRzYxbjlvb3dYV25jRW5sUS04R1BpSXZUNFFLdmszeW4xdlVBbUFUUDZ30gHDAUFVX3lxTE9WdjliZzliQ0t5NFh4R2dKWHFqakRKcjhtd29uZTdWMWdSRzB2Rloydmk1UlBHWjEyUllWTWo1Ujd3bERZb1ozWWpSUk1tTWFCa3NLV2NvLXQtZFJVczB3d0dLZHJNQno2emZjQndkR1FCV1U4UUtMRjh1Um1LTU9uTFhiSmxrN2cyRmhrYXdxbXZ0UnZMeGpLU1V1Z0Y5RlNfeXFMWm9EY1RtMWpOdmZTNFpzSlZZcGgtVmpRSk9paDFjNA?oc=5) |
+| Supermarket Billionaire Threatens To Cut Workforce, Move To Florida After Mamdani’s Win - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxQTFlVVFN0ZTA3RVFpbkh4bmxtSkxmcXdWUmZfT0tiVm5Da1lmQkltNWlLVmhNamtJZU1ndjlnMkZjMUtYWnNtdmFOc1pKcjFPSFJ3RE11MlFtblpZLTRXZnZhUFJSczVXZXJaVVQ3RVJtaDlNZVhCTXUwTEtQMXJwT2pFS0RGY0psaXp6a0ZrdWstRVNmeDNKNEtlNVN5Y2V6TnVnNnZYWHc4T2VZQkhSVDFOV3kzc0s5Sm1teU5uNjdJaU5vZG50czJBNi1tVUliM1dwb2RFRW5teDMwdlZZQWFxQW84LW9WT2RMZm1YYmh1QQ?oc=5) |
+| It’s not assault to throw a Subway sandwich at a border patrol agent, DC jury rules - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPSFI1aDVQV2tqSFR2MmltWWU3SUZTeWhrWWs4RzRHNUhJN3BmYW9NOFB6VVkxU0hoRzdtSjRTTHgzdERfcnRPYTZROFhsS1ZIQ2NZM3dNOGJrSzZsRi10Szg3NC11TlYxRHNhVGpGcjMzQWJuUi1HYVJjclIxeFhNUWRhUHFJQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
