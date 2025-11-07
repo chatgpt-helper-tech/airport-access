@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 21:09:48（北京时间）**
+🕒 更新时间：**2025年11月07日 21:16:26（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Late Night Laments the Effects of the Longest-Ever Government Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQYkZnV25XSDFhcERyTmlKSk5TdnNKZTlYdWNDMVRxUU9MeDdnb243bnZpQVd3Mk5QRUNORXJzbTNvODV1Q212MGhUU0x3M29hNjgwbFlIVURlSm9Rb0ZJeW5saG9lREhWaUdiX1ZxU2hLazVPOUFoMWR3Y1h2YVdlejJldXU2Nk1WdUhqUk5aOGdvT0dSN29zLWcyYw?oc=5) |
 | Judge orders Trump administration to release full SNAP benefits by Friday - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPd09PeDNveS16SFBoSHRwaVpFRmoxT0pfSzRFLWZ3QW9BdVBBT3FPamdHeTNlNzltZXZFUHVOUHY1YzRjcGFmTmpiT0hld1VRQXBJanBJeHIzb2pUYXBxcU9LQmluR09NcjRCMUhFOGxhWUJ6ZXpLaUVQdTlLNnVNOG00ZFZGNDAzbVE?oc=5) |
 | An NPR reporter's journey into Gaza, for the first time since the war began - NPR | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9EZUhKc1hCN2RSckNUU2FtTEpkcWF3Z3dVZDFFYUJRWEcxbk1hWFJvNkdXTkE2TUhwOEh3ZmFyS29CTGYwYlRVTFJVVFJ2N2lZV29fOENIUGd2aVJsakMwWlAzQkU3Ni1HYThLclp5c0VMclRBMXdZ?oc=5) |
-| "Follow her example": Pelosi's retirement reignites Democrats' generational warfare - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQSS1IVGRLUXJKYnpZRTV6aTE0T3ItbzdaTGxvaUlENWpCVUVwZWZtVHhEY2hqQVl6Vi1jTThOYlk0RHhJU3A0Ul85U1p0TVJUczFKMkFiNFJMdGxsSHlFZzlDb19kTEdlNmVfT0NmLUFoWmcxdjVYS3Z2QmU5dDlRQXY4VTBqZw?oc=5) |
 | Hopes for shutdown resolution fade after Democrats balk at GOP offer - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPYTFDVjVVdkx1NTZYS2xHNC15cURvNEtOb0gzTy1ULXFTZ0RCRXUzd3RBM2xaa1EtN1RYbVJaREhONVJuMEY4eXF6cTdDSTktbnFEbDRqWk54NkVGYncxTHVyWG91dXlGZnMwenJMd2VlWF9KQ2EyUENHVEh6VlhzUGNueTUtQkFVSkg2bGI5WTM1UQ?oc=5) |
+| "Follow her example": Pelosi's retirement reignites Democrats' generational warfare - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQSS1IVGRLUXJKYnpZRTV6aTE0T3ItbzdaTGxvaUlENWpCVUVwZWZtVHhEY2hqQVl6Vi1jTThOYlk0RHhJU3A0Ul85U1p0TVJUczFKMkFiNFJMdGxsSHlFZzlDb19kTEdlNmVfT0NmLUFoWmcxdjVYS3Z2QmU5dDlRQXY4VTBqZw?oc=5) |
 | Man who threw sandwich at federal agent in D.C. found not guilty of assault - PBS | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPMTNTUER0bmcxZXlkTHc0WE1mODFmRlpPQ0JtbUhHa2dIWWVGekZwbGRZUU1sNU5FTG4tZWxZQWZrOXJzZ0tNbFVDWXpteUZaeG56SXk1OV9XRGlTQjU1Y1M1eWpXcHlaT0xaVHBvY2NUYWFESF9YYzgydXpqTEVvM0xhRjl0SGJ5cm9vdUg4OWpIUDd1NVAzVUM3WG8wUDNOUEpEbEVJbTRIVW9IaXZF?oc=5) |
+| Trump Team Now Claims Its Trillions in Tariff Revenue Are ‘Incidental’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQWHl5M1FlM0p5VXdaU1ZHWXZMYWIwUUhGZWNPaW13ZXlvQ3RVUUVmcWlaMEJpV09NR0g2NXBiV0NrdVQ3MTlxVFdaNFhjRU1uSDB0RVhXaHhsZHNTVE1xUlJrZmk5aUZuX3RKcVNYcTNRNE0zYUpZRmJNY0h0ZjBPWVpIUjlMeDgzUHBfX1JDc0Q?oc=5) |
 | The FAA's order to cut flights due to the government shutdown is set to take effect - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNZlFWYXdZV3dIWG1JTEZwcnpRRlcxWW5sOXVQemNDUWNJcFFqaHlJWG1SbTN0OENFNnh5a1N1VDdwZDNQdm1LRlpTbFR3ZDc2QlVfZnY2R2Z5QVg1SlU4X0MxYktVbnVDbDg1V25SOENVV0d2YmswWmtuY19xWTVHbnFB?oc=5) |
 | US strikes another alleged drug boat bringing death toll from campaign in Latin America to 70 - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPLWFKeEcwSUZaWktkUTNnai1QUk11OEx4dGdFMmZES0JGMjliSUVjY2lfaFV3R3gxZjFiOGxQRVFidXBrXzVVZGNCcWQxRkUxN1A3VFRzdVFKZVBCQlJTTFRtUndEajNScWNhdG91LXN6Ry0tY2V1RkVWVGhuRlZsNTNGemVyRzJkOE9TdUhvRFpfTC12d3ZOSE1yZFFvTzA?oc=5) |
-| 3 pilots killed in fiery UPS plane crash ID’d — as missing mom of two believed to be among victims - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOZzdqWVBRUmVka3N5a0RLaDgzOW55M2ZUMGdLSktoV2dSZV9rT0owR0JxOFV1SlVETzFOa3hnZ2ZwZEdRLWlTQzM5dzVTSF9kb2dzYXhfU3J6Z1ViN2xnMndmTWdPSC1LYWFXQWxMaVpmN3RaX25vaXpqMzJqTFBBYXU0SDdENFlja3M0M2JSN1dyU0ZhSThqeEcxOUdhcEVoWnhEWVFJU21QRHc3M3NrZ1UxM3FSZXVSbVpz?oc=5) |
 | Supermarket Billionaire Threatens To Cut Workforce, Move To Florida After Mamdani’s Win - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxQTFlVVFN0ZTA3RVFpbkh4bmxtSkxmcXdWUmZfT0tiVm5Da1lmQkltNWlLVmhNamtJZU1ndjlnMkZjMUtYWnNtdmFOc1pKcjFPSFJ3RE11MlFtblpZLTRXZnZhUFJSczVXZXJaVVQ3RVJtaDlNZVhCTXUwTEtQMXJwT2pFS0RGY0psaXp6a0ZrdWstRVNmeDNKNEtlNVN5Y2V6TnVnNnZYWHc4T2VZQkhSVDFOV3kzc0s5Sm1teU5uNjdJaU5vZG50czJBNi1tVUliM1dwb2RFRW5teDMwdlZZQWFxQW84LW9WT2RMZm1YYmh1QQ?oc=5) |
+| 3 pilots killed in fiery UPS plane crash ID’d — as missing mom of two believed to be among victims - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOZzdqWVBRUmVka3N5a0RLaDgzOW55M2ZUMGdLSktoV2dSZV9rT0owR0JxOFV1SlVETzFOa3hnZ2ZwZEdRLWlTQzM5dzVTSF9kb2dzYXhfU3J6Z1ViN2xnMndmTWdPSC1LYWFXQWxMaVpmN3RaX25vaXpqMzJqTFBBYXU0SDdENFlja3M0M2JSN1dyU0ZhSThqeEcxOUdhcEVoWnhEWVFJU21QRHc3M3NrZ1UxM3FSZXVSbVpz?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
