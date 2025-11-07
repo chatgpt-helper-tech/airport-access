@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月08日 03:16:07（北京时间）**
+🕒 更新时间：**2025年11月08日 03:25:47（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Longest government shutdown in US history causes unprecedented disruptions - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPc19xRUVPblJRaElCalJ6TkhIS2NkQ20zd0dXMWhpY1JCWXBKeHpkdGdYbzBSdkxSaDkwbTh3SGlYYl8yOU1MTEZkZ09UZWtuWUw1M3h2bm9rYzVrR0FTaVBnV201NERPWTFLNWlOSlZHbm5FbDVuWG11ZldSU3RrNU1icnJfZC1MQnlvd1o3UQ?oc=5) |
+| Government shutdown live updates as Senate GOP searches for path forward on votes - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQeWFxVTNQVGhFREF4REZOaGhKTTAzN2toNF8wTUV6RnhsMktUYkZEVE9BOGRFTlNfbFJFcFByWElNejUwc1pkRTd2NU93Y3MxbnQ3WUxSTlBKTUM1RV9yVjdIeHowZW4xUVd4M1RxRVBKX2lIZUctYnBnRXlPaHE0S2FEeFpaVUJPOElR0gGQAUFVX3lxTE9PX01OSEU1eXFnSGFrQU5Lb0Z0M3pzRE9EdUFSUGFHVTNyMnU5VEJwVEVmQzFzbkgwVHJxbzVyamNBNUJSeHotNHo1LXRhYkJLMUpwS2ZRbkdSTjY5RW9fXzdrOWo0eUNnUkpSWGtDWmlPcmhlTDdzR2FLNjZRT2I1SDdPN05Bb2x5RFo5aWtlTw?oc=5) |
 | ADL explains its Mamdani Monitor initiative: 'Never had a candidate like this before' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOajBkLUhVcVZsMEdKWUlwa29nM0pYRkhBaW50b3hiSjg2NG9yOFprYUZBakJ5bGdqZnhjQUFrYzNSTjJDN0Zxbk1qZnk0cWdLdUlZR19ISjcwejRFMHQ1ejJCdjZPSk02N1ZxWFJMSU5RYl9WV0pUUUtubGlGbS0yV2NqTC13NzdSQi1oRW1YcE1sSWthZ1RMNS1ibUpQdzVEa1hOX21n?oc=5) |
 | Cornell Reaches Deal with Trump Administration to Restore Research Funds - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxQLVR0RW5lb2txQkVMcWNTdEdTMHktQkxuTFJ5ZEZYNHdsNGdONVdFOV9WZzJmck9hbzh2c1NrQjRrV1htSlRJRUYwTlJKQmxKSTR3VjkwSDJLeVlRdThlSDUxVk1zUFlIYzYzS2lHVzdhTjFIVHROLURoRG56UFA3NDRR?oc=5) |
-| Trump administration asks for emergency pause on judge's order to fully fund SNAP - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNVWkwZURhSVUwejJiV2dtZHVKRnd5T1IxclFlT3pvbUxBQ3hUY2JYXzZjeGhORzdtUXltUEZ0aS1jRENMbmhDVWoyVFZMYkl2Nnc1VUdmWThzQk5NS0R3U2QySlJheWl5TmdCSllXNUl4X2RTTkdJWnU2YlVPRlZuM0lBak1mYW5ZQ3FnaG5jeG9xTE8tM2FVYmwzU0dJVmNxbXp5WUZ1R0x2UWV5ZVlUc1A3VDdLY1RKc1l3WTRzOTZtR05CNVhZ0gFWQVVfeXFMTWNSdzNxY1V6a1dCc2RFTjVPVDJsN0wxc2M5WjFqVlVaZjJ5dDBDTGhxc2lrc09TdzV6MDlMY3UwVGY2QVhzNXNLUUFVbl83RUptQ25HbFE?oc=5) |
+| White House asks court to block order to fully distribute November’s food stamps - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPbnZQRFpPeFJXV3Q5Y2doZFhjMERaa1ZTVnNSTmhVR2J5UnZ2SDh2MGVjQmhtQzRjbjQyZ1g3bGhtOWlGbHBYaURVb3hfOUpGNVc1NTNTS0l1cGNVU0JPODdkMzc1bTVNSlYteVMtaTJFRld5cFdmZ1Bxd1U4SXc2X0hhbVpQWW9oT0g0QVln?oc=5) |
 | SCOTUS weighs whether to hear appeal seeking to overturn marriage equality - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPZWtxQURtRUhtRFYyTUhZTUpHZDBRcll3UHVGdXE3SktvZy1iNHBOMk9Hb2lka2pYMmVVU29oV3A3VjE0VFFGd3JDSWlGNzZBVzREbk5GTWF1TnFNMmljZFE3cnhROW5mUGxGZGZKZlppR09pU0hKYW1kYlJ4NTFoWnpMdWJteEdheDItUG9R?oc=5) |
-| Uncommon Knowledge: Trump’s Obesity Fix—SNAP Bans and Subsidized Drugs - Newsweek | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPNUs5RXU4YlY1TmFoUU5RcWNxRDFXM1JnWVlEd0tYUDQ2Tk1SQlU0SjZWal9XMzJ4bDJlMk5VVHJxWXlwdXhsZUo2V3VkT0pVN29ZeEF5NHAtblA2bjMyUXloS0ZYZWJJd3pvaWFiZXBJWWg0dldkazUyM0tfbE5GWDVLeC1jdw?oc=5) |
+| Trump calls Nancy Pelosi 'evil woman' after she announces retirement - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPYWk1cVA5OHBpbmF5QW9RMV96Y1VNNHBZT1d1WERjamNwT0I2cGlJRGIwMmRHWnBMa0d6Z1BqX3lwNmNQNkpHRktSMVdGT00wSmpyUGI1bk13bXlHcGtzZUlUUHVSX3FWNnNSZTFPaVN4Q0RZLV9EamxDajdnalpXcWU2WDBySWIweVlyOWJwM1BWTnFWYWE2MXBzdUJMWGI5S3NSZ9IBqgFBVV95cUxQRUVfdTRyMURuOS1udFQzUWY4T1MxOUpOVng2bTNqWVdlVF9vNV9CZlJYYXYzdzg4UU45TlNBc3hVVGdSX1FXeDhnTHh4bUdzdmRqNE5EeU1Fa2QyWjA5NHZINDVlbVk2dzd6dExpeTdtOTN0MlBFWldmZFhXMXdOWXExS1lucnhvN05rNTYwOW5tdHNXSnJTOFBCYmd3cmFiWTM2OEU5TUYwZw?oc=5) |
+| Hundreds of US flights cancelled as airport restrictions take effect - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE9EMUszdjA2cktkLVZWOUlrVGNOUC1YZms5SnpIY3VxZzBoeVF1WlpHaF9ZYWs2YmhfMFZiREJCRGlVd0hKTDdNMnlyTXpWM29OTnBZOElTRk1aWEU0RDYxcVFZb0cxcURoUEthQjkzd0w?oc=5) |
 | How Families Are Coping with SNAP Cuts During the Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPYTR5VFhIQ0RBb0Z6WjZGTUE4SWxRT182VGtWeFZwV3dtZDRiTWg1dGlxVzV3bHdpT0wzclZYRmNiQ21iMWpQTFNxMjVDTF9CTEc1Tk5ra1FNU3dEZ3UxRkNuY3pVblZsVVFyOHlpX2s1clZwMHhIdUtfZ2kxVl9vUWdUUFUwUQ?oc=5) |
 | Ted Cruz accuses GOP senators of being ‘frightened’ to call out Tucker Carlson - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPWG1iSjB2WHpCanVyZThITHEzRm14SVNIMnJaVXBEaG9pbUVXMWZlTWtTbl9CRFFUWVFaZkJNcXhVZkxUNF9hdjZtUVlrOUhHUjgyWkd4YlJFd1N5eTZseEd6UDBCdktIOHdZcmJaRlBWWXJqaHZLdHZqc2t3UEM2MlVtNVhRSG92Qm9TeWNaOFBxeUx5QUN5bEZ3?oc=5) |
 | Poll: Here’s who Democrats think is their leader - Politico | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFB4VTFNRXhHRDItTTJXT0k5Ykdkb2tiQndNd3cxVkhiLXdYSlpTb2NjNjhITzVyakxKSG5yWnR5cExJbVBIZW5BOWZjRnlHZDJ2M0lwa3RmRFc4UlRLN2RJZ0Z2RkQtQV9hUnptWlp3dWNuZUdNcERnaVhjNA?oc=5) |
-| Supermarket Billionaire Threatens To Cut Workforce, Move To Florida After Mamdani’s Win - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxQTFlVVFN0ZTA3RVFpbkh4bmxtSkxmcXdWUmZfT0tiVm5Da1lmQkltNWlLVmhNamtJZU1ndjlnMkZjMUtYWnNtdmFOc1pKcjFPSFJ3RE11MlFtblpZLTRXZnZhUFJSczVXZXJaVVQ3RVJtaDlNZVhCTXUwTEtQMXJwT2pFS0RGY0psaXp6a0ZrdWstRVNmeDNKNEtlNVN5Y2V6TnVnNnZYWHc4T2VZQkhSVDFOV3kzc0s5Sm1teU5uNjdJaU5vZG50czJBNi1tVUliM1dwb2RFRW5teDMwdlZZQWFxQW84LW9WT2RMZm1YYmh1QQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
