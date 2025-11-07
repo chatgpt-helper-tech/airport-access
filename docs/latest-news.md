@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月08日 04:08:14（北京时间）**
+🕒 更新时间：**2025年11月08日 04:17:31（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Cornell reaches $60 million deal with Trump administration to restore funding - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOaGFtbWluc3NNLXgzVWV3ZEJhM3E5TlkwTWpDaVg5QUFkaW1scGxDR0JyVDZma19qdE51Z3B3bHhDQ0R2UWpWZW9Hd0MxWXdsd0xscm1KQWppR3hEb3JzLXdraDNJbzhwTkdiNXRqVVA0RFVycHhGU0JoOFFNT1ozRE1sZVdGUGc4ZHVEcUZwY2s2SzcyS2syOWQtMzkzWndFcWxZNGZ2MEppeDd2WWx2QXJyNURKbG_SAVZBVV95cUxQWV9STFpHQktucnRnSlhhWjF3bTZ6MnBqWk4wdmVSZWpiNmdPT1FSZHhpcjBwYXQwdGFfaUl5SmVFYW9rQkNYb3JEYXduNEZKUmxYd0FDZw?oc=5) |
 | Trump administration asks appeals court to immediately halt ruling on SNAP funding - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQTUstQ3NONEVIdWxWSkhDQVpKeVBGaEI1QzZIVzFMRXd4Y2FzTmppcjg0bGN1Y0gyQi1nM3FBcXQxR0I1aWJGeE80NHhHTlJqVUxlTTlEU19uNzdnR2dPMWk1TjFtRFI1aVFna2JkMmljRGFtODZtaTByRXJ2SzFaZmozaUV4RzU4Ql9kbW5vN2otZldCX2JKT0o4MVd4cUJMeVdDSGk0X3E5eGM10gGyAUFVX3lxTE5CSmU4cHY2UU9oV29Cb0hRT2NZaDY3RDVlZHFLLWUxN2w0WHhpV0g0TDd6cVNZMUcxMm1raVEydXNKaE9PZWxMUnJJY0dsUG5aRjZYNHZTeW5mbnpaWC1qUUxDcTJpNXlHMzRDLTg0RkRLZjhHMEgzNFRlUjFTQ0tKSWdrVjdqUVZ4M2pnWWNVa29iVERyMjQzNFpsNG9aaDQ1RE43NnlZWlk4VTZZWGJyYkE?oc=5) |
 | How Families Are Coping with SNAP Cuts During the Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPYTR5VFhIQ0RBb0Z6WjZGTUE4SWxRT182VGtWeFZwV3dtZDRiTWg1dGlxVzV3bHdpT0wzclZYRmNiQ21iMWpQTFNxMjVDTF9CTEc1Tk5ra1FNU3dEZ3UxRkNuY3pVblZsVVFyOHlpX2s1clZwMHhIdUtfZ2kxVl9vUWdUUFUwUQ?oc=5) |
-| Travelers face cancellations and frustration as the FAA orders flight cuts due to the shutdown - KSL.com | [阅读全文](https://news.google.com/rss/articles/CBMiywFBVV95cUxOblgtZjEwVjJsVWdrcHJSRHktSkpWNnREeHgwS2hsdHYzQ3NxMG1PQ0Z1MzJUNl9OTnhfYTBDV0ZhWkN2Mm15WDNSUERhWUNtdkQxZmFFdmhkWmhHY25XZkpEdDB2Z003OExVMXBsenVRVW9RNmlYemRVTWpnc1FUUk85ZTVHem9PNS1WR2xVSTExRUliYk55Q2d0X0piYW45S2FwOWtaTHV5UW9LbVJzWERCQlUyMko4Wk5LWEhXVDl1cENrU0cyUEhycw?oc=5) |
+| Passengers start to feel bite of flight cuts amid US government shutdown - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNczc0LXNHXzAzSm0tZ1Z5emxfMlFNWUI3bjllQ3JSQ3llaTRGWUk2Q3FuMnJWSE56U1JreXpmMUtrWUxCc092cjZMWUllZkhiZHk1UzgxdlFIXzhqSlJ5REJXaXNfMTFWRWpGRW5odS1mTEE3X3R1eUM3SWRYVlJFcHBRODF5am8xZDFTV3R2UmFIa1AyclozaEpMZXB3QmM1cXJJMGh2SjRVNnhxUWlRaU8waDJ0UkVUc04zZG55QQ?oc=5) |
 | The most conservative Supreme Court justices will likely join the liberals against Trump's tariffs, analyst says - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOR2tScHZVVXZJa3FYVzBzdEM0eE8tbFpqVU5rUGhZSkRVWVY0X2t1a21kM19ZMHB6N1dZQXp0aHZtRW1uNHZkY3I4bnh4aVhWLVdNVV9ZLTctUVNETFdDTkR0ZmRzaEhIVEh2RUtjVldST1djeld0bDd3a2RCTjFSVE1EYXl6SXlFZ3RTcUJYZjR4bkpCOFhlR3dRVF9EM3JfT1RnQzhiek1UbTRUZXdWdURtRjNDYlFX?oc=5) |
-| Trump suggests he’s open to exempting Hungary from sanctions on Russian oil - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQVTJfcWg1NHRPdkJmWHktd1lFajljV2h6UEFuN0xZWTFidzhjR2cweVV0Rm5BNDh3SW5QaThnTGo4Qnh1ekEzQ2tJNWExTUlkVUFUWXViZlE2RlFBZVVrbV9LM2RJU0hWeVRTQl93ZTNPaHZwUUVtNFRVcU1CNzFpUERtS0tndw?oc=5) |
 | Trump pardons former Tennessee House speaker and his aide, who were convicted on federal corruption charges - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxNaUhHRG1sb1BWa1loTnZ1ZUJQYlViT1JnNVB5WHBuZUJRajRpb3A1NTRiV1hkazYtdGd1alBvU1BpOE15WTVpbTIzLXVpZWVYZXpaaUhXNFkybDZQX1k0MWpWRDdsbDJVTlRKNFJham9VNWxUVUlBUkNLOW9BdDIyVTdGZl9CQ0JGNkZ5V3Q4UFBOUnAyOFNPeFBzUmF1S3p0akE2ZVl6SlBSRmk5NzlXdTg1QmkzdnlGNjY3T1JsSDI1N3BnOHfSAVZBVV95cUxPYjMtdG42TXE3QklQSER5LXhfMFh4Q1BLZ2JGNjZ2aHRvR1Z2WDg4UXdTVkJka2ZaaEI5b0VuTHZxd0ZwVDg5YVVOQUhYZnR3bzlhMlkzQQ?oc=5) |
+| Poll: Here’s who Democrats think is their leader - Politico | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFB4VTFNRXhHRDItTTJXT0k5Ykdkb2tiQndNd3cxVkhiLXdYSlpTb2NjNjhITzVyakxKSG5yWnR5cExJbVBIZW5BOWZjRnlHZDJ2M0lwa3RmRFc4UlRLN2RJZ0Z2RkQtQV9hUnptWlp3dWNuZUdNcERnaVhjNA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
