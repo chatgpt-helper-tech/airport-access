@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 22:33:01（北京时间）**
+🕒 更新时间：**2025年11月07日 22:41:39（北京时间）**
 
 ---
 
@@ -24,15 +24,15 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | What happens if the Supreme Court strikes down Trump’s tariffs? More tariffs - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZ1duQVgtdmFSd1Y1dVRKcjdtM0gyTGw0MjFOT1ZOXzJuWUcxQ2t1Y0xiTWl2a2pDUXZUZ0w2UTBxalN4Mm53Zk5kcnpaZi1rY2hJR1Brak9lejhhUHFvZFg5R1pxUWJLaTlvZno1eGhhbFFuZU9SRk9fNjRZaUJjSW9ZNA?oc=5) |
-| Capitol agenda: Decision day for Senate Dems - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQRk50bjI0aW1ib3U2aUl4Q210REFCRmxfS19PYlBVRXhPUnR1NW1zVmQ3a3E5TE9NeFM2UUVqSGEzZDl5QTZqRkZOcWl0azVWRlhCS0k4TzNkMzhZTTRvNlQyUlFJbkhHQXlCeVhwWmR4YkFpSlBTZjBJRFB0MXJiQnJNOXBEYzRGb3ZOZmZEZi1UVU5MdG4xcGpCLU0yNTBMZkJRM2RLQQ?oc=5) |
+| Late Night Laments the Effects of the Longest-Ever Government Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQYkZnV25XSDFhcERyTmlKSk5TdnNKZTlYdWNDMVRxUU9MeDdnb243bnZpQVd3Mk5QRUNORXJzbTNvODV1Q212MGhUU0x3M29hNjgwbFlIVURlSm9Rb0ZJeW5saG9lREhWaUdiX1ZxU2hLazVPOUFoMWR3Y1h2YVdlejJldXU2Nk1WdUhqUk5aOGdvT0dSN29zLWcyYw?oc=5) |
+| Mamdani Wants to Tax the Rich. Can He Persuade State Leaders? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQM3hwZGFjSjFQQTMzVm9CMjV2ZTVvODhJdEJkTG9rX2Q0Vy1aRlR6SElvcWJwaTRwc2hmZ1V4MkljaG9fSjRidmRBU2phOVhwUG02dHg4U1daNFFuQjJHMHQ2UXFvd2RPODBzYXY5eVhtSnZBREx0bVEzRVdwTDhrTkkyVQ?oc=5) |
 | An NPR reporter's journey into Gaza, for the first time since the war began - NPR | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9EZUhKc1hCN2RSckNUU2FtTEpkcWF3Z3dVZDFFYUJRWEcxbk1hWFJvNkdXTkE2TUhwOEh3ZmFyS29CTGYwYlRVTFJVVFJ2N2lZV29fOENIUGd2aVJsakMwWlAzQkU3Ni1HYThLclp5c0VMclRBMXdZ?oc=5) |
-| Judge orders Trump administration to release full SNAP benefits by Friday - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPd09PeDNveS16SFBoSHRwaVpFRmoxT0pfSzRFLWZ3QW9BdVBBT3FPamdHeTNlNzltZXZFUHVOUHY1YzRjcGFmTmpiT0hld1VRQXBJanBJeHIzb2pUYXBxcU9LQmluR09NcjRCMUhFOGxhWUJ6ZXpLaUVQdTlLNnVNOG00ZFZGNDAzbVE?oc=5) |
-| New York’s Billionaires Are Bending the Knee to Zohran Mamdani - The Intercept | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQa3Qwd09ncFVUajBkUzE1NkpSaWZxRXlyQUdKZlk1RzAxVlMxT29HdmhwdkdmUXc2NFRKRVprVnRvMWNiTzRvTTRsQ3dyS0lQa2toR2F2dTY0V040cXhOaFNHQWZ6dV9YSXFEY0lFckNJbjFrRTVMSUp0aWNhQzhib2RLdmU?oc=5) |
-| D.C. "sandwich guy" found not guilty of assaulting officer - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPVjItNFRYeFM4aUYzTGh2bjByUjJPT3lqQ2FISUlEMExGWHVVanZXcmdYaXRFMzhEM3oteWZDanFYUTltTDhabmJSb0pOcEF2WHd4RnNWRlM1al9MTkJfVDdlN0ZJRzl4YlFOR25tMkUyS21YWG1XSG1RRUFSQlN2ai1WTDl2alZsVTB4VA?oc=5) |
+| "Follow her example": Pelosi's retirement reignites Democrats' generational warfare - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQSS1IVGRLUXJKYnpZRTV6aTE0T3ItbzdaTGxvaUlENWpCVUVwZWZtVHhEY2hqQVl6Vi1jTThOYlk0RHhJU3A0Ul85U1p0TVJUczFKMkFiNFJMdGxsSHlFZzlDb19kTEdlNmVfT0NmLUFoWmcxdjVYS3Z2QmU5dDlRQXY4VTBqZw?oc=5) |
+| Man who threw sandwich at federal agent in D.C. found not guilty of assault - PBS | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPMTNTUER0bmcxZXlkTHc0WE1mODFmRlpPQ0JtbUhHa2dIWWVGekZwbGRZUU1sNU5FTG4tZWxZQWZrOXJzZ0tNbFVDWXpteUZaeG56SXk1OV9XRGlTQjU1Y1M1eWpXcHlaT0xaVHBvY2NUYWFESF9YYzgydXpqTEVvM0xhRjl0SGJ5cm9vdUg4OWpIUDd1NVAzVUM3WG8wUDNOUEpEbEVJbTRIVW9IaXZF?oc=5) |
 | Flights canceled as government shutdown leaves airlines scrambling to comply with FAA order — live updates - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNNFpqekZEZTdsWTdjSzFkNzU5NWpTSGpVSl8xbmpFX2t0MmJ2TlNKZzl2Rjk0dWM4Z0p4OE5kMk54T0t2NFZJekYySUpsY1JCNlFSR0JuRXpRRUllc0lGNXNqNnpHdGlGWGp6VW5tYzlleFotVEkyeGw1S1ZOTU8wY3U1cDFKRGQ2aWUteFFkTV9oV2FzNi1r?oc=5) |
+| Republican US Rep. Elise Stefanik is running for governor of New York - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQMWo1ZXVVSU1zcEZ5Yk5VS21rR25kRzl1UFlTZlFhUnRtdFdqRmZFYU1OUjdkMl9vcTc2SXdELTBlNFpKUGRDQWRyMGwtbkpNQnA4LXhsZDBVMkM0WlRFVDNfU2hKalBDTXJLQTRHcFNVallfeEpSWFF1X2tZaVlHSHJoSl8tVFBMalNGZHpaaWRlb3BrQ1o3TXVxYW1LN2x0NF9XQWN2MWI?oc=5) |
 | Vance is the frontrunner for 2028, Rubio privately confides - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPeFh0UlhhYmtteGV0enFOQmVqei00UTdmdzV4MktYMXhxZmVpNUpiZHdMa0tQbGZfMHpqc2JPOWlTNTlqLUtkaGZTaTh3eEFJckY3UkNtU0VQRmVFaVZRY0R1TWFXSWVIYXo1TTdZd0N4UWg1TTJuZHRNR1AwS2YxNGZOa0E5eGcyaWZmb3Vn?oc=5) |
 | Multiple people fall ill after package delivered to Air Force One base - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE05LWxuc0djM2psTkdFM19tTXllQzVMTU5OVEFiVHFpelRNQUE3emd1anBGNDBGcWNZaHg0OWRQRU81Z0U5cGluREp0bmNCTWNlOHgxMDdjYW5sQdIBX0FVX3lxTFBYcmlqUFVjMTZKVTFQcUwxX2oyRk04dzhESjlwV1FxeGFjSVVhQnROSWpfR2dCbEUweDlWV2NtNHJabHhJTVVJSXpYWEZSLTRRV3ZFclpCb2MyREdvdnE4?oc=5) |
-| Death toll from UPS plane crash at Louisville airport rises to 13 - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPTXIxX3h3VzBtcGl3bDdqZlFMUTZjQjl2OUtTQWY3YXFzWmd5X2NnaWtEWktEU3E4eDZVdVJIa3Zsb2xzNFZMMUZLV1pmUWZSZFN2ZUJTSG5BQnI5M1ZURW84WTgxWjZjMzctd3dLcHZCb19lS1c5MWpLM2RySkdHYlMtY3o5bXBpN3RVaFVR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
