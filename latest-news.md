@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 23:41:22（北京时间）**
+🕒 更新时间：**2025年11月07日 23:49:28（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump administration asks for emergency pause on judge's order to fully fund SNAP - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNVWkwZURhSVUwejJiV2dtZHVKRnd5T1IxclFlT3pvbUxBQ3hUY2JYXzZjeGhORzdtUXltUEZ0aS1jRENMbmhDVWoyVFZMYkl2Nnc1VUdmWThzQk5NS0R3U2QySlJheWl5TmdCSllXNUl4X2RTTkdJWnU2YlVPRlZuM0lBak1mYW5ZQ3FnaG5jeG9xTE8tM2FVYmwzU0dJVmNxbXp5WUZ1R0x2UWV5ZVlUc1A3VDdLY1RKc1l3WTRzOTZtR05CNVhZ0gFWQVVfeXFMTWNSdzNxY1V6a1dCc2RFTjVPVDJsN0wxc2M5WjFqVlVaZjJ5dDBDTGhxc2lrc09TdzV6MDlMY3UwVGY2QVhzNXNLUUFVbl83RUptQ25HbFE?oc=5) |
+| SNAP benefits: Trump admin seeks emergency block on order to pay food stamps in full - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE1QUmh1OFlReS0xNU1xcGpNNlZLUDRmODZzMEtyRTdta0pnNmdheVY3b09DTFR2cVZrVFVncnA2al9vWHVjUmJHUjhaOXdWOHJYRzIwcDVTcGFqTGlJME1tLS1wMTRXbU1nQ2FYeENNMDQ3eEg4SGfSAXtBVV95cUxPY1kzajZaMXFrallXYVlMeWhLVVl4Q2pWM1J4akhvOXJ6T2pSR0p3cmdMWC0tOTg1TzVRZTBkVU9idU9rVWg4RlZkd2dmeGRpVm1zMmxhT2Q4UkdpcUZFaWFWVjNhcnZCTlN5cmhUV0lJWllnRFZ5aTdDdUE?oc=5) |
+| What happens if the Supreme Court strikes down Trump’s tariffs? More tariffs - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZ1duQVgtdmFSd1Y1dVRKcjdtM0gyTGw0MjFOT1ZOXzJuWUcxQ2t1Y0xiTWl2a2pDUXZUZ0w2UTBxalN4Mm53Zk5kcnpaZi1rY2hJR1Brak9lejhhUHFvZFg5R1pxUWJLaTlvZno1eGhhbFFuZU9SRk9fNjRZaUJjSW9ZNA?oc=5) |
 | Government shutdown live updates with Senate set to vote on new approach to end impasse - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQeWFxVTNQVGhFREF4REZOaGhKTTAzN2toNF8wTUV6RnhsMktUYkZEVE9BOGRFTlNfbFJFcFByWElNejUwc1pkRTd2NU93Y3MxbnQ3WUxSTlBKTUM1RV9yVjdIeHowZW4xUVd4M1RxRVBKX2lIZUctYnBnRXlPaHE0S2FEeFpaVUJPOElR?oc=5) |
-| D.C. "sandwich guy" found not guilty of assaulting officer - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPVjItNFRYeFM4aUYzTGh2bjByUjJPT3lqQ2FISUlEMExGWHVVanZXcmdYaXRFMzhEM3oteWZDanFYUTltTDhabmJSb0pOcEF2WHd4RnNWRlM1al9MTkJfVDdlN0ZJRzl4YlFOR25tMkUyS21YWG1XSG1RRUFSQlN2ai1WTDl2alZsVTB4VA?oc=5) |
 | Mamdani Wants to Tax the Rich. Can He Persuade State Leaders? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQM3hwZGFjSjFQQTMzVm9CMjV2ZTVvODhJdEJkTG9rX2Q0Vy1aRlR6SElvcWJwaTRwc2hmZ1V4MkljaG9fSjRidmRBU2phOVhwUG02dHg4U1daNFFuQjJHMHQ2UXFvd2RPODBzYXY5eVhtSnZBREx0bVEzRVdwTDhrTkkyVQ?oc=5) |
-| Trump urges GOP to end shutdown. And, SCOTUS skeptical of reasoning behind tariffs - NPR | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOV2dnM0Y4bkVQc1NPSl9nQW5meEZHdTRsYTBWU1I3TTlaUkE2MFg0WDU1M0tZQ3pRYWRob1otTXFsSzhWdHc5Ni1mVU1HaEctZnRNNXBzenZjRWtLSWlkakJvM05jcGZpSDNDaTZOclh3eXhWVy1GSlVNRktiNkZscF9DekcwMVNSNkJtV3pSaVFpU0ZPVU1uNmhXOVJfRlppNS1yTjJqVFlVWEV6U21jdVFGT2o?oc=5) |
+| D.C. "sandwich guy" found not guilty of assaulting officer - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPVjItNFRYeFM4aUYzTGh2bjByUjJPT3lqQ2FISUlEMExGWHVVanZXcmdYaXRFMzhEM3oteWZDanFYUTltTDhabmJSb0pOcEF2WHd4RnNWRlM1al9MTkJfVDdlN0ZJRzl4YlFOR25tMkUyS21YWG1XSG1RRUFSQlN2ai1WTDl2alZsVTB4VA?oc=5) |
 | Stefanik officially launches campaign for New York governor - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOdzZRNHlSQ0RHZUJHWEFuQ0w0QWtmck1lekx0ZWVyaUZJWkhXNGRtUms1V2o4SEVpbEt5aXo1em02eVcwTTVsM05lZjB6aENlLTY0Wko5VjBOcXF3LTJhYnAwVVJmSG9UWThMVUFZTDFuaHZ4amxseVI4NUR3YzZFRVVaUkJuSktUNHlSX2xvbVhxeW1fREoxSzBhczBXTTg?oc=5) |
 | The FAA's order to cut flights due to the government shutdown is set to take effect - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNZlFWYXdZV3dIWG1JTEZwcnpRRlcxWW5sOXVQemNDUWNJcFFqaHlJWG1SbTN0OENFNnh5a1N1VDdwZDNQdm1LRlpTbFR3ZDc2QlVfZnY2R2Z5QVg1SlU4X0MxYktVbnVDbDg1V25SOENVV0d2YmswWmtuY19xWTVHbnFB?oc=5) |
 | Poll: Democrats have no idea who their leader is - Politico | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFB4VTFNRXhHRDItTTJXT0k5Ykdkb2tiQndNd3cxVkhiLXdYSlpTb2NjNjhITzVyakxKSG5yWnR5cExJbVBIZW5BOWZjRnlHZDJ2M0lwa3RmRFc4UlRLN2RJZ0Z2RkQtQV9hUnptWlp3dWNuZUdNcERnaVhjNA?oc=5) |
 | How Families Are Coping with SNAP Cuts During the Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPYTR5VFhIQ0RBb0Z6WjZGTUE4SWxRT182VGtWeFZwV3dtZDRiTWg1dGlxVzV3bHdpT0wzclZYRmNiQ21iMWpQTFNxMjVDTF9CTEc1Tk5ra1FNU3dEZ3UxRkNuY3pVblZsVVFyOHlpX2s1clZwMHhIdUtfZ2kxVl9vUWdUUFUwUQ?oc=5) |
-| 3 pilots killed in fiery UPS plane crash ID’d — as missing mom of two believed to be among victims - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOZzdqWVBRUmVka3N5a0RLaDgzOW55M2ZUMGdLSktoV2dSZV9rT0owR0JxOFV1SlVETzFOa3hnZ2ZwZEdRLWlTQzM5dzVTSF9kb2dzYXhfU3J6Z1ViN2xnMndmTWdPSC1LYWFXQWxMaVpmN3RaX25vaXpqMzJqTFBBYXU0SDdENFlja3M0M2JSN1dyU0ZhSThqeEcxOUdhcEVoWnhEWVFJU21QRHc3M3NrZ1UxM3FSZXVSbVpz?oc=5) |
+| New U.S. strike on alleged drug boat in Caribbean kills 3 people, bringing campaign's death toll to at least 70 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPeWlqdFZPcldIb3ZrVlh3TmpTcU9OcDNLYkhBLWF6c1NLcUJoUWVoMFVHTVhqU3ZCY3BHUVdwbGhnZGhQQVFHOE1lVl9EWEdORGJHdVpxSGxUMUpaQlhua182UlZwRVYwU2Jvazlrc1BfLV8tbEptTjRfWHVKbksxRUxnZURlY1d2ekh4cGhvZ2lLcmvSAZgBQVVfeXFMTk9ESW1NcmZpY3VUa1BzY052cndUejJqd2ZuS0xFS1JxRnE1dHRreTVFVDJjMkpaQWtxSUxNa3NJdnNHYVJueFdaVlJNMWtsVTZnbkxGR21RRk5MbGNqbVhRcEd4QUlUb01WRmFRWVFOTFhVRmg5blZkNmtLR3VidkFsSTkwRHcwVE5qdV90c3NUZjBhYVRMVko?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
