@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月08日 03:08:48（北京时间）**
+🕒 更新时间：**2025年11月08日 03:16:07（北京时间）**
 
 ---
 
@@ -8,6 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Algerian sex offender mistakenly released from Wandsworth prison arrested | [阅读全文](https://www.bbc.com/news/articles/c625grkxg05o?at_medium=RSS&at_campaign=rss) |
 | Woman who claimed to be Madeleine McCann found guilty of harassing family | [阅读全文](https://www.bbc.com/news/articles/c9q15qdqq4po?at_medium=RSS&at_campaign=rss) |
 | Ex-footballer Joey Barton guilty over 'grossly offensive' X posts | [阅读全文](https://www.bbc.com/news/articles/cwykwlkewr7o?at_medium=RSS&at_campaign=rss) |
 | Kendrick Lamar and Lady Gaga lead 2026 Grammy nominations | [阅读全文](https://www.bbc.com/news/articles/cvgv3g7enkqo?at_medium=RSS&at_campaign=rss) |
@@ -17,7 +18,6 @@
 | Released Israeli hostage says he was sexually assaulted in Gaza captivity | [阅读全文](https://www.bbc.com/news/articles/cgkz0yzde80o?at_medium=RSS&at_campaign=rss) |
 | Six officers face misconduct hearing over Cardiff triple death crash | [阅读全文](https://www.bbc.com/news/articles/c2lpw1rj924o?at_medium=RSS&at_campaign=rss) |
 | Stand-off over £800,000 Your Party membership fees | [阅读全文](https://www.bbc.com/news/articles/c9wvqk22epyo?at_medium=RSS&at_campaign=rss) |
-| Kim Kardashian laughs off savage reviews for her TV drama | [阅读全文](https://www.bbc.com/news/articles/c9q1dv1vywwo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -29,10 +29,10 @@
 | Trump administration asks for emergency pause on judge's order to fully fund SNAP - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNVWkwZURhSVUwejJiV2dtZHVKRnd5T1IxclFlT3pvbUxBQ3hUY2JYXzZjeGhORzdtUXltUEZ0aS1jRENMbmhDVWoyVFZMYkl2Nnc1VUdmWThzQk5NS0R3U2QySlJheWl5TmdCSllXNUl4X2RTTkdJWnU2YlVPRlZuM0lBak1mYW5ZQ3FnaG5jeG9xTE8tM2FVYmwzU0dJVmNxbXp5WUZ1R0x2UWV5ZVlUc1A3VDdLY1RKc1l3WTRzOTZtR05CNVhZ0gFWQVVfeXFMTWNSdzNxY1V6a1dCc2RFTjVPVDJsN0wxc2M5WjFqVlVaZjJ5dDBDTGhxc2lrc09TdzV6MDlMY3UwVGY2QVhzNXNLUUFVbl83RUptQ25HbFE?oc=5) |
 | SCOTUS weighs whether to hear appeal seeking to overturn marriage equality - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPZWtxQURtRUhtRFYyTUhZTUpHZDBRcll3UHVGdXE3SktvZy1iNHBOMk9Hb2lka2pYMmVVU29oV3A3VjE0VFFGd3JDSWlGNzZBVzREbk5GTWF1TnFNMmljZFE3cnhROW5mUGxGZGZKZlppR09pU0hKYW1kYlJ4NTFoWnpMdWJteEdheDItUG9R?oc=5) |
 | Uncommon Knowledge: Trump’s Obesity Fix—SNAP Bans and Subsidized Drugs - Newsweek | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPNUs5RXU4YlY1TmFoUU5RcWNxRDFXM1JnWVlEd0tYUDQ2Tk1SQlU0SjZWal9XMzJ4bDJlMk5VVHJxWXlwdXhsZUo2V3VkT0pVN29ZeEF5NHAtblA2bjMyUXloS0ZYZWJJd3pvaWFiZXBJWWg0dldkazUyM0tfbE5GWDVLeC1jdw?oc=5) |
+| How Families Are Coping with SNAP Cuts During the Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPYTR5VFhIQ0RBb0Z6WjZGTUE4SWxRT182VGtWeFZwV3dtZDRiTWg1dGlxVzV3bHdpT0wzclZYRmNiQ21iMWpQTFNxMjVDTF9CTEc1Tk5ra1FNU3dEZ3UxRkNuY3pVblZsVVFyOHlpX2s1clZwMHhIdUtfZ2kxVl9vUWdUUFUwUQ?oc=5) |
+| Ted Cruz accuses GOP senators of being ‘frightened’ to call out Tucker Carlson - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPWG1iSjB2WHpCanVyZThITHEzRm14SVNIMnJaVXBEaG9pbUVXMWZlTWtTbl9CRFFUWVFaZkJNcXhVZkxUNF9hdjZtUVlrOUhHUjgyWkd4YlJFd1N5eTZseEd6UDBCdktIOHdZcmJaRlBWWXJqaHZLdHZqc2t3UEM2MlVtNVhRSG92Qm9TeWNaOFBxeUx5QUN5bEZ3?oc=5) |
 | Poll: Here’s who Democrats think is their leader - Politico | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFB4VTFNRXhHRDItTTJXT0k5Ykdkb2tiQndNd3cxVkhiLXdYSlpTb2NjNjhITzVyakxKSG5yWnR5cExJbVBIZW5BOWZjRnlHZDJ2M0lwa3RmRFc4UlRLN2RJZ0Z2RkQtQV9hUnptWlp3dWNuZUdNcERnaVhjNA?oc=5) |
 | Supermarket Billionaire Threatens To Cut Workforce, Move To Florida After Mamdani’s Win - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxQTFlVVFN0ZTA3RVFpbkh4bmxtSkxmcXdWUmZfT0tiVm5Da1lmQkltNWlLVmhNamtJZU1ndjlnMkZjMUtYWnNtdmFOc1pKcjFPSFJ3RE11MlFtblpZLTRXZnZhUFJSczVXZXJaVVQ3RVJtaDlNZVhCTXUwTEtQMXJwT2pFS0RGY0psaXp6a0ZrdWstRVNmeDNKNEtlNVN5Y2V6TnVnNnZYWHc4T2VZQkhSVDFOV3kzc0s5Sm1teU5uNjdJaU5vZG50czJBNi1tVUliM1dwb2RFRW5teDMwdlZZQWFxQW84LW9WT2RMZm1YYmh1QQ?oc=5) |
-| Border Patrol commander admitted he lied about tear gas incident, judge says, as she restricts use of force by immigration agents in Chicago - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxORjlERkdMTUczSHN0XzRGTGNONWJSUkdLdXl1YXBBdk0wSVJEMlIzM19vcWpoVmJQM1FqS29YaV9RZ0JNRk4tdmVtNkJEb2FKTU1jaUVTb2dDdFBlellNRVB0V1A2NWpabHc4b3NSa0JUdXYzMTMzMzFsRmZ4OXRYMU1vTGQtUXpjX1pEb3BDZTVFcF9laXkzTENoQ25JTWFJcHfSAacBQVVfeXFMT0lScFZwX0ZNeFJxa2VRdWNSUGJHTnlRZHB2LXoxWE9rcnl0ckVDZlpoX1JLcjNQMW9fRVVaMWwwc2FLWG1NNzdPSHpKcDJDRWUxLUhBN3RyVXo2SW9mWkNnZzhLLThrVjhsWVJpWEVYN29HaEJCaFUzVE1reEpjOXp6dWlRMENkMDFyb1E0dXdVbi1JTTFuOW0teGR5Wjg5eUo1dm01cVk?oc=5) |
-| The most conservative Supreme Court justices will likely join the liberals against Trump's tariffs, analyst says - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOR2tScHZVVXZJa3FYVzBzdEM0eE8tbFpqVU5rUGhZSkRVWVY0X2t1a21kM19ZMHB6N1dZQXp0aHZtRW1uNHZkY3I4bnh4aVhWLVdNVV9ZLTctUVNETFdDTkR0ZmRzaEhIVEh2RUtjVldST1djeld0bDd3a2RCTjFSVE1EYXl6SXlFZ3RTcUJYZjR4bkpCOFhlR3dRVF9EM3JfT1RnQzhiek1UbTRUZXdWdURtRjNDYlFX?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
