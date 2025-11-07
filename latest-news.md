@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 08:56:02（北京时间）**
+🕒 更新时间：**2025年11月07日 09:01:13（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Shutdown flight cuts at 40 of the busiest US airports will be phased in - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQdG8xQUs5NUw5aEVtdGhyVDFWQk5qbWI4UnZEUnpObDRXemV3YUlQLTBTTHhjcjUyMzZlMExBZkUtY1F2XzZRRm9sYkM4U0ZwOUt0RG5uOVc0S1k1UDNTM1hna1RuOVZ2Z3dHdV9uT2VLTGlqWE01ZHA2M1Q2Y1Izc19xNkVtRmd5aldla3RndVhwVnQ1X0xpY0lnRQ?oc=5) |
 | Investigators Sift Through Plane Crash Wreckage in Louisville - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxONElzRVBVNC1IRDdsWGVqZW5pV0djWEhJVVdOR2dfSHY4cEZTMkRJNm1kU2w0czZ0UHl2dy1ONk03SlltMmJqRE0yYWV6dXAtMDBfUF83cmtjN0RJaGVqQ3R6a21NRkZNSnRybzB4T2hZa2Jma0Jac295MWRJRmhWSzlKYU9QYjNpTnl1ZlJQQjV0WFlYc1Iw?oc=5) |
 | A former teacher shot by her 6-year-old student wins a $10 million jury verdict - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPWjMweDNFWmRHOVZVNmJ0Z2RuOVhwMWxPSXdnMjZLQlZ1dTZTd2FVSDlXcy0yZ0w5SF9MTjN0X0ZLYVo5ZjhER1JyWWJSc0Q3dzhjamR4bHgxUzdMNUJUcUloMXhidXl0WXAtS0VUYVc5UDZnek5SQWxCX05Td0J1LVlXeDJhcFlwWjhjV2tuZXBqNFhIQ3RpM1RBWC02aVNyQnFJ?oc=5) |
-| Trump calls Nancy Pelosi 'evil woman' after she announces retirement - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPYWk1cVA5OHBpbmF5QW9RMV96Y1VNNHBZT1d1WERjamNwT0I2cGlJRGIwMmRHWnBMa0d6Z1BqX3lwNmNQNkpHRktSMVdGT00wSmpyUGI1bk13bXlHcGtzZUlUUHVSX3FWNnNSZTFPaVN4Q0RZLV9EamxDajdnalpXcWU2WDBySWIweVlyOWJwM1BWTnFWYWE2MXBzdUJMWGI5S3NSZ9IBqgFBVV95cUxQRUVfdTRyMURuOS1udFQzUWY4T1MxOUpOVng2bTNqWVdlVF9vNV9CZlJYYXYzdzg4UU45TlNBc3hVVGdSX1FXeDhnTHh4bUdzdmRqNE5EeU1Fa2QyWjA5NHZINDVlbVk2dzd6dExpeTdtOTN0MlBFWldmZFhXMXdOWXExS1lucnhvN05rNTYwOW5tdHNXSnJTOFBCYmd3cmFiWTM2OEU5TUYwZw?oc=5) |
+| Jury acquits D.C. 'sandwich guy' charged with chucking a sub at a federal agent - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxNY1A3RGJWV1BOZEtzT0dZOTI2dHYxU2VYd1RWdWVPTzZpVDZlUlBTSUpyclRxRGpRRmZXTlRoMUFNMTNxRE5KT1JUV3g0V3VCNlRMTnJRUkZWUVo4VkRsOFBQYVZkb0RmY0FBRnl3TEhvWEVLU1BISkdpbmRvY0tBVUotVEpiTE5LLTkwQktXQdIBVkFVX3lxTE50cnlUeFE0bzh2MzJhVDZPMG9QWGVVV1VkNHFMLThvSnBSWHh3TC1FSGZpTEN4OTdXOW5TWnptbEpEUXZjdkxORGZzY0plQjdETzE4NmVn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
