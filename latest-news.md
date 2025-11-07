@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月08日 04:48:54（北京时间）**
+🕒 更新时间：**2025年11月08日 04:56:02（北京时间）**
 
 ---
 
@@ -12,12 +12,12 @@
 | Why this woman believed she was Madeleine McCann - and what she did next | [阅读全文](https://www.bbc.com/news/articles/c2lpgz1rx8xo?at_medium=RSS&at_campaign=rss) |
 | Ex-footballer Joey Barton guilty over 'grossly offensive' X posts | [阅读全文](https://www.bbc.com/news/articles/cwykwlkewr7o?at_medium=RSS&at_campaign=rss) |
 | British ex-soldier arrested over alleged murder of Kenyan woman in 2012 | [阅读全文](https://www.bbc.com/news/articles/c8jrkyzn8dvo?at_medium=RSS&at_campaign=rss) |
+| DNA pioneer James Watson dies at 97 | [阅读全文](https://www.bbc.com/news/articles/cn8xdypnz32o?at_medium=RSS&at_campaign=rss) |
 | Kendrick Lamar and Lady Gaga lead 2026 Grammy nominations | [阅读全文](https://www.bbc.com/news/articles/cvgv3g7enkqo?at_medium=RSS&at_campaign=rss) |
 | Elon Musk's $1 trillion pay deal approved by Tesla shareholders | [阅读全文](https://www.bbc.com/news/articles/cwyk6kvyxvzo?at_medium=RSS&at_campaign=rss) |
 | Test yourself: How many zeros are in Elon Musk's $1 trillion pay package? | [阅读全文](https://www.bbc.com/news/articles/c20p8ldy32yo?at_medium=RSS&at_campaign=rss) |
 | Released Israeli hostage says he was sexually assaulted in Gaza captivity | [阅读全文](https://www.bbc.com/news/articles/cgkz0yzde80o?at_medium=RSS&at_campaign=rss) |
 | Stand-off over £800,000 Your Party membership fees | [阅读全文](https://www.bbc.com/news/articles/c9wvqk22epyo?at_medium=RSS&at_campaign=rss) |
-| Kim Kardashian laughs off savage reviews for her TV drama | [阅读全文](https://www.bbc.com/news/articles/c9q1dv1vywwo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -31,7 +31,7 @@
 | Day care worker detained by immigration agents had valid work permit, temporarily barred from removal - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQbW0yanZSWWZTSUo1ZGZfTGVFRG5KTDJzNUI1aElKdU44SE1FQ1lla0NyWWZfcU5vNnltaTllQ1JqWHhaU0wyRnAwSE1hT2dNcnc1U3ZDbjdjSlJVbUVXclZZRmNIWnNUYmZpWDNHNE1MdkpNamlmNkNGV3JTdHBEMGtCaW02VWRscWQzbTZNMTFySW82X1RmX0NFWXB4ZG560gGmAUFVX3lxTE1PM1FGRExPdHhRdmE3RWpzc0RMdVVSc2FxS3RUVVl1QXVBSF9VY2w5XzNxUVBRS2VETS1uX293Z3kzRElGUHlZN0RHUnJLczJuQ0hyRFdzaGV6U3pwZld0N0tjTERtYTlBTjhsRFRlWm1ZTlJnWHAwRWpGdHZCSllPTHN2VHZYMXdjT0FrdVFRRU9HR3Z3RWVUSE4tRXdlVDRuYlh3ekE?oc=5) |
 | Republican US Rep. Elise Stefanik is running for governor of New York - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQMWo1ZXVVSU1zcEZ5Yk5VS21rR25kRzl1UFlTZlFhUnRtdFdqRmZFYU1OUjdkMl9vcTc2SXdELTBlNFpKUGRDQWRyMGwtbkpNQnA4LXhsZDBVMkM0WlRFVDNfU2hKalBDTXJLQTRHcFNVallfeEpSWFF1X2tZaVlHSHJoSl8tVFBMalNGZHpaaWRlb3BrQ1o3TXVxYW1LN2x0NF9XQWN2MWI?oc=5) |
 | Food banks are in 'disaster response mode' due to shutdown and SNAP cuts, leaders say: 'The damage gets worse and worse' every day - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQU1pYdExzTU55MGdXRkNtOXlOM2lIQjNKMll2UHMtcjc2OHJoLWtXZm9YUjdtNDA1QWswUm1XbGx5V0VRVEZtVXZxNllnbUNUQ0ZhYmhHVC00YmtFU2h6QW1oa3ZuTUUwQlFxUWt4dUpzM04yVXBJQTMtNndxMWNmZmVWdlZXYjdQWXhwdV9Fb2tLRmtSY1dGeHo3R0JocU01UnJSZkY2VUg0THJiWXhPSnd3UFFna1VUaW9R0gHAAUFVX3lxTE9XWEVTdS0yeDF2LWZ4MVlSN2NRb2E3bklQcW0tcUVLWG1jTE92TGppaWVEMGlreG82NW5vdUU5enV6Yy1fYTQyY3NtV2JIQ0d4RWF0bmE3aGNTY2hMcnpEYUtJNEowc2l1SXVFQzBaYzF4Qm9LWkVjZEZIMkYwVEJDQVh6VXVhWlBKb2h4Z1Y4MmtzX3dCVTktd0p5VkNSbVBXM0l0UERJektUVFJsR2M4U3k4RlhPNGRUYnNSQkR0dw?oc=5) |
-| Trump pardons former Tennessee House speaker convicted of fraud charges - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPS0ZmVV9Xb3BpbEZTVUVobzBpNjhPR2FUR3ctUmhydExGR0lpOEVhZnBkNHl2MG5HcXAzdG5GQUNWY1Q5ajlQQ1BTZzVhZHBoS2E3RnpyR3E3SGk5alBFX2NJdEl1UDQwU0w4LWgxdjNrd3ZvRUhGRllSVXg3X2pnYkl3eF9HQ1FBejJPSC1fSTZwVEFlazBBVUdB?oc=5) |
+| Trump pardons former Tennessee House speaker and his aide, who were convicted on federal corruption charges - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxNaUhHRG1sb1BWa1loTnZ1ZUJQYlViT1JnNVB5WHBuZUJRajRpb3A1NTRiV1hkazYtdGd1alBvU1BpOE15WTVpbTIzLXVpZWVYZXpaaUhXNFkybDZQX1k0MWpWRDdsbDJVTlRKNFJham9VNWxUVUlBUkNLOW9BdDIyVTdGZl9CQ0JGNkZ5V3Q4UFBOUnAyOFNPeFBzUmF1S3p0akE2ZVl6SlBSRmk5NzlXdTg1QmkzdnlGNjY3T1JsSDI1N3BnOHfSAVZBVV95cUxPYjMtdG42TXE3QklQSER5LXhfMFh4Q1BLZ2JGNjZ2aHRvR1Z2WDg4UXdTVkJka2ZaaEI5b0VuTHZxd0ZwVDg5YVVOQUhYZnR3bzlhMlkzQQ?oc=5) |
 | Poll: Democrats have no idea who their leader is - Politico | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFB4VTFNRXhHRDItTTJXT0k5Ykdkb2tiQndNd3cxVkhiLXdYSlpTb2NjNjhITzVyakxKSG5yWnR5cExJbVBIZW5BOWZjRnlHZDJ2M0lwa3RmRFc4UlRLN2RJZ0Z2RkQtQV9hUnptWlp3dWNuZUdNcERnaVhjNA?oc=5) |
 
 ---
