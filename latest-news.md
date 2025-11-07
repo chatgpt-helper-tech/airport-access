@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 13:01:25（北京时间）**
+🕒 更新时间：**2025年11月07日 13:08:57（北京时间）**
 
 ---
 
@@ -27,7 +27,7 @@
 | 'Reduced to almost Third World status': Trump pleads with Supreme Court not to slap down his tariffs - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOVzlOU3RLNE5tVUVQcGptNGRTLVkwZmwyQ25JR1QzZWlFVXEzdjgtOHhxd0ppMHVQVml6R21vSGRxRlJXcnZkT21nZmJldVNaTXFURy1JX29zV3QzVkZoWkVJcGJVajhBS0c2V205RC13VHFFY1hWS0NmbDU5TzR6WXl1R2E?oc=5) |
 | The federal government is still shut down. Here's what that means across the country - NPR | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE5vcjB6azh0ZW1xUWJtYlEwV25yVFlUU2RPVGdsZkNycXVNY3BnNU5hbmk0cFRUVDZxZTdoVXlnWGFnMm8wZnBqX1dway1adTlGVlpLRXlvNmxkVmhYNDROa0k0dXFGcEdJQXlQUDZB?oc=5) |
 | Republicans, including ‘cowardly’ Schwarzenegger, take heat for lopsided loss on Prop. 50 - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPYTZMX0pNLTlRdC1oYm9FVTBpdW9vMUxsT3JMSzVxYTZ1VmduLXRUMTc2QlhzVmxhc2lGLUR2SVZLNVg3QWgwWXhiZjRWZDExRE15UXBtTGFQY2ZkNVREOG5pRHc2LVNJNEt5R05pNlRyaGFvRnJiLXVIRjhvb2FHbTNDdUFzd0NHNzFmRE5FVy1pbmt1Z2VnWTZkZFBwcndINXc?oc=5) |
-| Chicago judge says Border Patrol official lied about threats before restricting agents' use force - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOYmphVU9TV20yZ25xUWNMdml3SFR1b2ZoYXFYdmtkMVA4elRyd2pmVzYxR1BXVTR5QWt4QVFDOVlKanhYYklpOWJfeVgwVG1yTlIxLU5xVnl0TDBhYmZBaUN4akhuZEd6S2JWWElCNURBNEFtVUVRWFYwT3hFdWlKUmNuQ1haSGttazFmX3FBNmdSNHAzLUVEM255NUUtaVpSS2k0Y3lhWXRSZw?oc=5) |
+| Judge will order federal agents in Chicago to restrict using force against protesters and media - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOYmphVU9TV20yZ25xUWNMdml3SFR1b2ZoYXFYdmtkMVA4elRyd2pmVzYxR1BXVTR5QWt4QVFDOVlKanhYYklpOWJfeVgwVG1yTlIxLU5xVnl0TDBhYmZBaUN4akhuZEd6S2JWWElCNURBNEFtVUVRWFYwT3hFdWlKUmNuQ1haSGttazFmX3FBNmdSNHAzLUVEM255NUUtaVpSS2k0Y3lhWXRSZw?oc=5) |
 | D.C. "sandwich guy" found not guilty of assaulting officer - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPVjItNFRYeFM4aUYzTGh2bjByUjJPT3lqQ2FISUlEMExGWHVVanZXcmdYaXRFMzhEM3oteWZDanFYUTltTDhabmJSb0pOcEF2WHd4RnNWRlM1al9MTkJfVDdlN0ZJRzl4YlFOR25tMkUyS21YWG1XSG1RRUFSQlN2ai1WTDl2alZsVTB4VA?oc=5) |
 | Death toll from UPS plane crash at Louisville airport rises to 13 - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPTXIxX3h3VzBtcGl3bDdqZlFMUTZjQjl2OUtTQWY3YXFzWmd5X2NnaWtEWktEU3E4eDZVdVJIa3Zsb2xzNFZMMUZLV1pmUWZSZFN2ZUJTSG5BQnI5M1ZURW84WTgxWjZjMzctd3dLcHZCb19lS1c5MWpLM2RySkdHYlMtY3o5bXBpN3RVaFVR?oc=5) |
 | "Follow her example": Pelosi's retirement reignites Democrats' generational warfare - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQSS1IVGRLUXJKYnpZRTV6aTE0T3ItbzdaTGxvaUlENWpCVUVwZWZtVHhEY2hqQVl6Vi1jTThOYlk0RHhJU3A0Ul85U1p0TVJUczFKMkFiNFJMdGxsSHlFZzlDb19kTEdlNmVfT0NmLUFoWmcxdjVYS3Z2QmU5dDlRQXY4VTBqZw?oc=5) |
