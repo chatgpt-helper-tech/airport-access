@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月08日 00:17:32（北京时间）**
+🕒 更新时间：**2025年11月08日 00:24:06（北京时间）**
 
 ---
 
@@ -9,8 +9,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Woman who claimed to be Madeleine McCann found guilty of harassing family | [阅读全文](https://www.bbc.com/news/articles/c9q15qdqq4po?at_medium=RSS&at_campaign=rss) |
-| Six officers face misconduct hearing over Cardiff triple death crash | [阅读全文](https://www.bbc.com/news/articles/c2lpw1rj924o?at_medium=RSS&at_campaign=rss) |
 | Ex-footballer Joey Barton guilty over 'offensive' X posts | [阅读全文](https://www.bbc.com/news/articles/cwykwlkewr7o?at_medium=RSS&at_campaign=rss) |
+| Six officers face misconduct hearing over Cardiff triple death crash | [阅读全文](https://www.bbc.com/news/articles/c2lpw1rj924o?at_medium=RSS&at_campaign=rss) |
 | Elon Musk's $1 trillion pay deal approved by Tesla shareholders | [阅读全文](https://www.bbc.com/news/articles/cwyk6kvyxvzo?at_medium=RSS&at_campaign=rss) |
 | Test yourself: How many zeros are in Elon Musk's $1 trillion pay package? | [阅读全文](https://www.bbc.com/news/articles/c20p8ldy32yo?at_medium=RSS&at_campaign=rss) |
 | Lose weight or lose your jobs, North Sea offshore workers told | [阅读全文](https://www.bbc.com/news/articles/cx274xp00zxo?at_medium=RSS&at_campaign=rss) |
@@ -29,10 +29,10 @@
 | D.C. "sandwich guy" found not guilty of assaulting officer - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPVjItNFRYeFM4aUYzTGh2bjByUjJPT3lqQ2FISUlEMExGWHVVanZXcmdYaXRFMzhEM3oteWZDanFYUTltTDhabmJSb0pOcEF2WHd4RnNWRlM1al9MTkJfVDdlN0ZJRzl4YlFOR25tMkUyS21YWG1XSG1RRUFSQlN2ai1WTDl2alZsVTB4VA?oc=5) |
 | Mamdani Wants to Tax the Rich. Can He Persuade State Leaders? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQM3hwZGFjSjFQQTMzVm9CMjV2ZTVvODhJdEJkTG9rX2Q0Vy1aRlR6SElvcWJwaTRwc2hmZ1V4MkljaG9fSjRidmRBU2phOVhwUG02dHg4U1daNFFuQjJHMHQ2UXFvd2RPODBzYXY5eVhtSnZBREx0bVEzRVdwTDhrTkkyVQ?oc=5) |
 | Stefanik officially launches campaign for New York governor - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxOdzZRNHlSQ0RHZUJHWEFuQ0w0QWtmck1lekx0ZWVyaUZJWkhXNGRtUms1V2o4SEVpbEt5aXo1em02eVcwTTVsM05lZjB6aENlLTY0Wko5VjBOcXF3LTJhYnAwVVJmSG9UWThMVUFZTDFuaHZ4amxseVI4NUR3YzZFRVVaUkJuSktUNHlSX2xvbVhxeW1fREoxSzBhczBXTTg?oc=5) |
+| Death toll from UPS plane crash at Louisville airport rises to 13 - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPTXIxX3h3VzBtcGl3bDdqZlFMUTZjQjl2OUtTQWY3YXFzWmd5X2NnaWtEWktEU3E4eDZVdVJIa3Zsb2xzNFZMMUZLV1pmUWZSZFN2ZUJTSG5BQnI5M1ZURW84WTgxWjZjMzctd3dLcHZCb19lS1c5MWpLM2RySkdHYlMtY3o5bXBpN3RVaFVR?oc=5) |
 | How Families Are Coping with SNAP Cuts During the Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPYTR5VFhIQ0RBb0Z6WjZGTUE4SWxRT182VGtWeFZwV3dtZDRiTWg1dGlxVzV3bHdpT0wzclZYRmNiQ21iMWpQTFNxMjVDTF9CTEc1Tk5ra1FNU3dEZ3UxRkNuY3pVblZsVVFyOHlpX2s1clZwMHhIdUtfZ2kxVl9vUWdUUFUwUQ?oc=5) |
 | The FAA's order to cut flights due to the government shutdown is set to take effect - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNZlFWYXdZV3dIWG1JTEZwcnpRRlcxWW5sOXVQemNDUWNJcFFqaHlJWG1SbTN0OENFNnh5a1N1VDdwZDNQdm1LRlpTbFR3ZDc2QlVfZnY2R2Z5QVg1SlU4X0MxYktVbnVDbDg1V25SOENVV0d2YmswWmtuY19xWTVHbnFB?oc=5) |
-| Poll: Democrats have no idea who their leader is - Politico | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFB4VTFNRXhHRDItTTJXT0k5Ykdkb2tiQndNd3cxVkhiLXdYSlpTb2NjNjhITzVyakxKSG5yWnR5cExJbVBIZW5BOWZjRnlHZDJ2M0lwa3RmRFc4UlRLN2RJZ0Z2RkQtQV9hUnptWlp3dWNuZUdNcERnaVhjNA?oc=5) |
-| Supreme Court considers Kim Davis petition to overturn same-sex marriage ruling - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPTWJTWjRVb2I2YkVEUHpZS0JPMkRpQ005YW8xWlVwdndjcTBQR25IN1c1U1lJTDZHem9acWFVUWh2bFBKTUtBWjJhUzdWdU1wMjRkbzlILW8tTnhRazRVOWViMDg4YVBOdklHSmMxcXBMMmhUeHkzRGZ1YVBCUnBGY0lmRXVKc0I2SUk3Z24xcUxpSGhFQkc2QWNxSGNJbF9UZTduMEtxTlZpdVHSAbABQVVfeXFMT0ltdnFkMEFEbDBBbldDYnQydElPMU12TEpEVUsxMkd5R0F1dlNRU1Q3a05DUkE0TWR0RGt4SWNjOU5qMWpiZFFYTXp5ZTA3dnNOUmVrbkRvbF9fc2Y0TU5zek1wbHhBRXBKZ1IzZTZ1X3hiUVdPN0NtRVBRdXhJSkJyTVlneUhxTkJ0Z0RIX1IwTFo1OWk5VDZnb3J6VERDVDUzdDVRSnd2NUp4V3VobzA?oc=5) |
+| Poll: Here’s who Democrats think is their leader - Politico | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFB4VTFNRXhHRDItTTJXT0k5Ykdkb2tiQndNd3cxVkhiLXdYSlpTb2NjNjhITzVyakxKSG5yWnR5cExJbVBIZW5BOWZjRnlHZDJ2M0lwa3RmRFc4UlRLN2RJZ0Z2RkQtQV9hUnptWlp3dWNuZUdNcERnaVhjNA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
