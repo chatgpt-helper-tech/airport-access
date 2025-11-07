@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 21:34:01（北京时间）**
+🕒 更新时间：**2025年11月07日 21:41:26（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Capitol agenda: Decision day for Senate Dems - Politico | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQRk50bjI0aW1ib3U2aUl4Q210REFCRmxfS19PYlBVRXhPUnR1NW1zVmQ3a3E5TE9NeFM2UUVqSGEzZDl5QTZqRkZOcWl0azVWRlhCS0k4TzNkMzhZTTRvNlQyUlFJbkhHQXlCeVhwWmR4YkFpSlBTZjBJRFB0MXJiQnJNOXBEYzRGb3ZOZmZEZi1UVU5MdG4xcGpCLU0yNTBMZkJRM2RLQQ?oc=5) |
 | An NPR reporter's journey into Gaza, for the first time since the war began - NPR | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9EZUhKc1hCN2RSckNUU2FtTEpkcWF3Z3dVZDFFYUJRWEcxbk1hWFJvNkdXTkE2TUhwOEh3ZmFyS29CTGYwYlRVTFJVVFJ2N2lZV29fOENIUGd2aVJsakMwWlAzQkU3Ni1HYThLclp5c0VMclRBMXdZ?oc=5) |
 | "Follow her example": Pelosi's retirement reignites Democrats' generational warfare - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQSS1IVGRLUXJKYnpZRTV6aTE0T3ItbzdaTGxvaUlENWpCVUVwZWZtVHhEY2hqQVl6Vi1jTThOYlk0RHhJU3A0Ul85U1p0TVJUczFKMkFiNFJMdGxsSHlFZzlDb19kTEdlNmVfT0NmLUFoWmcxdjVYS3Z2QmU5dDlRQXY4VTBqZw?oc=5) |
-| Hopes for shutdown resolution fade after Democrats balk at GOP offer - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPYTFDVjVVdkx1NTZYS2xHNC15cURvNEtOb0gzTy1ULXFTZ0RCRXUzd3RBM2xaa1EtN1RYbVJaREhONVJuMEY4eXF6cTdDSTktbnFEbDRqWk54NkVGYncxTHVyWG91dXlGZnMwenJMd2VlWF9KQ2EyUENHVEh6VlhzUGNueTUtQkFVSkg2bGI5WTM1UQ?oc=5) |
 | Man who threw sandwich at federal agent in D.C. found not guilty of assault - PBS | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPMTNTUER0bmcxZXlkTHc0WE1mODFmRlpPQ0JtbUhHa2dIWWVGekZwbGRZUU1sNU5FTG4tZWxZQWZrOXJzZ0tNbFVDWXpteUZaeG56SXk1OV9XRGlTQjU1Y1M1eWpXcHlaT0xaVHBvY2NUYWFESF9YYzgydXpqTEVvM0xhRjl0SGJ5cm9vdUg4OWpIUDd1NVAzVUM3WG8wUDNOUEpEbEVJbTRIVW9IaXZF?oc=5) |
 | Trump Team Now Claims Its Trillions in Tariff Revenue Are ‘Incidental’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQWHl5M1FlM0p5VXdaU1ZHWXZMYWIwUUhGZWNPaW13ZXlvQ3RVUUVmcWlaMEJpV09NR0g2NXBiV0NrdVQ3MTlxVFdaNFhjRU1uSDB0RVhXaHhsZHNTVE1xUlJrZmk5aUZuX3RKcVNYcTNRNE0zYUpZRmJNY0h0ZjBPWVpIUjlMeDgzUHBfX1JDc0Q?oc=5) |
 | New York’s Billionaires Are Bending the Knee to Zohran Mamdani - The Intercept | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQa3Qwd09ncFVUajBkUzE1NkpSaWZxRXlyQUdKZlk1RzAxVlMxT29HdmhwdkdmUXc2NFRKRVprVnRvMWNiTzRvTTRsQ3dyS0lQa2toR2F2dTY0V040cXhOaFNHQWZ6dV9YSXFEY0lFckNJbjFrRTVMSUp0aWNhQzhib2RLdmU?oc=5) |
