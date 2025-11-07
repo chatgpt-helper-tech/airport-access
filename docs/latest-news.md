@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 09:24:04（北京时间）**
+🕒 更新时间：**2025年11月07日 09:32:24（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Trump punches new $35 billion hole in national debt with deal for Medicare to cover your Ozempic - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNUlFfY0hEdFJKaUdsSzdUN1ZUYTNWWnZPdzlJZ2dwN1ljUmtzc2RDaS1ZVGptMkIxU2FyN19EWEVLdHh1YXVJNEFId050TzdUNTV4ejhwS0Z5RWFDWWlIVWN5Vi1EWlN5eG92eWN0dXdfYjQzV0lOWHFmMHY5VFVWVkhSV09TMEtFV09mQg?oc=5) |
 | Senate will vote Friday to advance shutdown-ending deal, Thune tells Republicans - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQWVJ4MjhWcHlHNnpxdXZwdUNPdVJLaHhteWxDT1U1UjUwb2pHSldFbVZkeFlBOHlTMXl5aWRPNGpoaHd5ejF0QllpUTdwdGhjSnFORlVOZlIza2dtcV83SDdudFhFNHp2TER2WXN3UnVZNFF3TUVlMmNkZkxPS2xaTVlJaFlMNDVKV3FWV0E0bDZiTjRlUi1Ia25B?oc=5) |
 | Supreme Court allows Trump to end policy of self-identifying gender on passports - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNT0FqcHh6Ujk2ZzFIY1VpUkJ5eVNXb1hsaVVRbFRUWU96bjBQeW42c2lMbFJZcExoeG1sUUgzYjZ0WVRHMkJfenAtc0duZEZvYlAySXZIYmVpUEV0TXczNmFvSFdnRkllTnRwWm92dWV4ZXVaTkpOVTRQdk9aR3JPSDh2VndaQzhidS1td29ONURkM1hyRnQwTHByR2Z1YlVwLTJCVW13?oc=5) |
-| Trump calls Nancy Pelosi 'evil woman' after she announces retirement - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPYWk1cVA5OHBpbmF5QW9RMV96Y1VNNHBZT1d1WERjamNwT0I2cGlJRGIwMmRHWnBMa0d6Z1BqX3lwNmNQNkpHRktSMVdGT00wSmpyUGI1bk13bXlHcGtzZUlUUHVSX3FWNnNSZTFPaVN4Q0RZLV9EamxDajdnalpXcWU2WDBySWIweVlyOWJwM1BWTnFWYWE2MXBzdUJMWGI5S3NSZ9IBqgFBVV95cUxQRUVfdTRyMURuOS1udFQzUWY4T1MxOUpOVng2bTNqWVdlVF9vNV9CZlJYYXYzdzg4UU45TlNBc3hVVGdSX1FXeDhnTHh4bUdzdmRqNE5EeU1Fa2QyWjA5NHZINDVlbVk2dzd6dExpeTdtOTN0MlBFWldmZFhXMXdOWXExS1lucnhvN05rNTYwOW5tdHNXSnJTOFBCYmd3cmFiWTM2OEU5TUYwZw?oc=5) |
+| Judge will order federal agents in Chicago to restrict using force against protesters and media - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOYmphVU9TV20yZ25xUWNMdml3SFR1b2ZoYXFYdmtkMVA4elRyd2pmVzYxR1BXVTR5QWt4QVFDOVlKanhYYklpOWJfeVgwVG1yTlIxLU5xVnl0TDBhYmZBaUN4akhuZEd6S2JWWElCNURBNEFtVUVRWFYwT3hFdWlKUmNuQ1haSGttazFmX3FBNmdSNHAzLUVEM255NUUtaVpSS2k0Y3lhWXRSZw?oc=5) |
 | Investigators Sift Through Plane Crash Wreckage in Louisville - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxONElzRVBVNC1IRDdsWGVqZW5pV0djWEhJVVdOR2dfSHY4cEZTMkRJNm1kU2w0czZ0UHl2dy1ONk03SlltMmJqRE0yYWV6dXAtMDBfUF83cmtjN0RJaGVqQ3R6a21NRkZNSnRybzB4T2hZa2Jma0Jac295MWRJRmhWSzlKYU9QYjNpTnl1ZlJQQjV0WFlYc1Iw?oc=5) |
 | A former teacher shot by her 6-year-old student wins a $10 million jury verdict - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPWjMweDNFWmRHOVZVNmJ0Z2RuOVhwMWxPSXdnMjZLQlZ1dTZTd2FVSDlXcy0yZ0w5SF9MTjN0X0ZLYVo5ZjhER1JyWWJSc0Q3dzhjamR4bHgxUzdMNUJUcUloMXhidXl0WXAtS0VUYVc5UDZnek5SQWxCX05Td0J1LVlXeDJhcFlwWjhjV2tuZXBqNFhIQ3RpM1RBWC02aVNyQnFJ?oc=5) |
+| Trump calls Nancy Pelosi 'evil woman' after she announces retirement - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPYWk1cVA5OHBpbmF5QW9RMV96Y1VNNHBZT1d1WERjamNwT0I2cGlJRGIwMmRHWnBMa0d6Z1BqX3lwNmNQNkpHRktSMVdGT00wSmpyUGI1bk13bXlHcGtzZUlUUHVSX3FWNnNSZTFPaVN4Q0RZLV9EamxDajdnalpXcWU2WDBySWIweVlyOWJwM1BWTnFWYWE2MXBzdUJMWGI5S3NSZ9IBqgFBVV95cUxQRUVfdTRyMURuOS1udFQzUWY4T1MxOUpOVng2bTNqWVdlVF9vNV9CZlJYYXYzdzg4UU45TlNBc3hVVGdSX1FXeDhnTHh4bUdzdmRqNE5EeU1Fa2QyWjA5NHZINDVlbVk2dzd6dExpeTdtOTN0MlBFWldmZFhXMXdOWXExS1lucnhvN05rNTYwOW5tdHNXSnJTOFBCYmd3cmFiWTM2OEU5TUYwZw?oc=5) |
 | Senate sinks measure to block military action against Venezuela - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPR3I5cmdOOTBYcFp6VTJOY0R6bXk0bUxad0dWVGVZczNRcEVjWTMxOW50cVA5cjlDanhGc3UxRTRha3d5blIyLW1wdF96TnBuRW1SaTRPWU1PVXZJVlJlLWt2UmExUzBCWVFTWUM2S3pyNmNRSDJjeFFMSFBjT3hhRENsZUNrTzJTdjBNMGkzcnlYUQ?oc=5) |
-| Nation’s busiest airports face FAA’s cut in flights, initial list shows - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQVVo1YzVNa3R4SWxreklLNkMzaHk0QllfQVhJWG5oRXlqMDVzWFZ5bzZtaGpuWHFQSUE0amo2UmZJcVZMNGRKdG5QbUpLeDd0czFmcDI5aGd2dXZTZHh3eWUxSTBHaV91WEk0dnhwSTdxYU1WVm1fNEdSRFUxMFBMd3RFTUNhMTEtTXJVaQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
