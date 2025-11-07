@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 10:25:14（北京时间）**
+🕒 更新时间：**2025年11月07日 10:33:06（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Judge grants preliminary injunction against Bovino, federal agents over use of force: "Shocks the conscience" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOVFFpbGFvdlZXUUVQbldfWEtCV2tPVWtOMW5kS3hYSl9WbUFBLWRzTXpCUEV6VG9xaHZ0LVdvWFhDNnFaS29GN0I1QmRvcmhhemZLZjlQdnpiTkI3cmMwYVBiMWxmcWlUMlU5LVJNd2lKSjhuMzZoYUxwdlQ4YUVmWFNZd20xLUpxRTNtZW5UVnZJajRoajZHdEppaWdXcXk3ZTBxc0stSXhhV24weGxJWFlB?oc=5) |
 | Republicans, including ‘cowardly’ Schwarzenegger, take heat for lopsided loss on Prop. 50 - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPYTZMX0pNLTlRdC1oYm9FVTBpdW9vMUxsT3JMSzVxYTZ1VmduLXRUMTc2QlhzVmxhc2lGLUR2SVZLNVg3QWgwWXhiZjRWZDExRE15UXBtTGFQY2ZkNVREOG5pRHc2LVNJNEt5R05pNlRyaGFvRnJiLXVIRjhvb2FHbTNDdUFzd0NHNzFmRE5FVy1pbmt1Z2VnWTZkZFBwcndINXc?oc=5) |
 | Trump, stung by Republican losses, stands his ground on affordability - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQRlMybHA3eU9uUWx2TnJ6YkFEOEtJMHVGWmRqeEpGRlUzNjY0RjFNczRyd1FVbmN4REVZLUo0dmdRM1dFOTVHVVpnVDJxUmhnZWtGZktpV0hsZXhzZkNkSFdvVW9xQ05rMmNoYVEtMHZMVjJmb1dXYXEzY1p2ZkRHOUkyX05TLXRSVHJGb2x3?oc=5) |
-| Investigators Sift Through Plane Crash Wreckage in Louisville - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxONElzRVBVNC1IRDdsWGVqZW5pV0djWEhJVVdOR2dfSHY4cEZTMkRJNm1kU2w0czZ0UHl2dy1ONk03SlltMmJqRE0yYWV6dXAtMDBfUF83cmtjN0RJaGVqQ3R6a21NRkZNSnRybzB4T2hZa2Jma0Jac295MWRJRmhWSzlKYU9QYjNpTnl1ZlJQQjV0WFlYc1Iw?oc=5) |
-| A former teacher shot by her 6-year-old student wins a $10 million jury verdict - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPWjMweDNFWmRHOVZVNmJ0Z2RuOVhwMWxPSXdnMjZLQlZ1dTZTd2FVSDlXcy0yZ0w5SF9MTjN0X0ZLYVo5ZjhER1JyWWJSc0Q3dzhjamR4bHgxUzdMNUJUcUloMXhidXl0WXAtS0VUYVc5UDZnek5SQWxCX05Td0J1LVlXeDJhcFlwWjhjV2tuZXBqNFhIQ3RpM1RBWC02aVNyQnFJ?oc=5) |
+| Death toll from UPS plane crash at Louisville airport rises to 13 - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPTXIxX3h3VzBtcGl3bDdqZlFMUTZjQjl2OUtTQWY3YXFzWmd5X2NnaWtEWktEU3E4eDZVdVJIa3Zsb2xzNFZMMUZLV1pmUWZSZFN2ZUJTSG5BQnI5M1ZURW84WTgxWjZjMzctd3dLcHZCb19lS1c5MWpLM2RySkdHYlMtY3o5bXBpN3RVaFVR?oc=5) |
+| Jury Awards $10 Million to Abigail Zwerner, Teacher Shot by 6-Year-Old Student - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOaE9ZeWJRRHZ1Vzc0NHNkSkI5REQ5UGFIZWw0Wk01b1hqLWR2RU82MVZUQ2UwUHc2ajktUnF1YXNQdGt0NXpDQkwzZUpPb2FQeGZBVWxkUjdJRWFVOExLcVZ1ckRnX3g2Wmc3Z3UtV3JZNUppd1EzYVoxdUJiVGJBQWxZd2N6WWJBVVk0VS1CT0pIbmc?oc=5) |
 | Trump calls Nancy Pelosi 'evil woman' after she announces retirement - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPYWk1cVA5OHBpbmF5QW9RMV96Y1VNNHBZT1d1WERjamNwT0I2cGlJRGIwMmRHWnBMa0d6Z1BqX3lwNmNQNkpHRktSMVdGT00wSmpyUGI1bk13bXlHcGtzZUlUUHVSX3FWNnNSZTFPaVN4Q0RZLV9EamxDajdnalpXcWU2WDBySWIweVlyOWJwM1BWTnFWYWE2MXBzdUJMWGI5S3NSZ9IBqgFBVV95cUxQRUVfdTRyMURuOS1udFQzUWY4T1MxOUpOVng2bTNqWVdlVF9vNV9CZlJYYXYzdzg4UU45TlNBc3hVVGdSX1FXeDhnTHh4bUdzdmRqNE5EeU1Fa2QyWjA5NHZINDVlbVk2dzd6dExpeTdtOTN0MlBFWldmZFhXMXdOWXExS1lucnhvN05rNTYwOW5tdHNXSnJTOFBCYmd3cmFiWTM2OEU5TUYwZw?oc=5) |
 | US Supreme Court allows Trump's passport policy targeting transgender people - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPZEViVUU5MzVadWZSSjhvUURyeGpwUmFkY0J5RXkyd29vd3NjMjNERUZ0SjFmN0xkTzdnNk92Yk96TmxIXzI2T3MtWTlObm9sekdPZG5NLU9Yc1NJLXV1aE9DcDNVellfXzNRYnpCdFFQWEJkMWYxWksxWjVTN2k3VU5nMjgyT0I2c3RsLXY4Q0IwRTMtRVcxMHBta2g0UDFXcGQwT2pfYnJxOUNyQmNONmpiLTl2el9G?oc=5) |
 
