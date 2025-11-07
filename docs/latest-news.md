@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 21:48:23（北京时间）**
+🕒 更新时间：**2025年11月07日 21:56:30（北京时间）**
 
 ---
 
@@ -28,10 +28,10 @@
 | "Follow her example": Pelosi's retirement reignites Democrats' generational warfare - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQSS1IVGRLUXJKYnpZRTV6aTE0T3ItbzdaTGxvaUlENWpCVUVwZWZtVHhEY2hqQVl6Vi1jTThOYlk0RHhJU3A0Ul85U1p0TVJUczFKMkFiNFJMdGxsSHlFZzlDb19kTEdlNmVfT0NmLUFoWmcxdjVYS3Z2QmU5dDlRQXY4VTBqZw?oc=5) |
 | Man who threw sandwich at federal agent in D.C. found not guilty of assault - PBS | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPMTNTUER0bmcxZXlkTHc0WE1mODFmRlpPQ0JtbUhHa2dIWWVGekZwbGRZUU1sNU5FTG4tZWxZQWZrOXJzZ0tNbFVDWXpteUZaeG56SXk1OV9XRGlTQjU1Y1M1eWpXcHlaT0xaVHBvY2NUYWFESF9YYzgydXpqTEVvM0xhRjl0SGJ5cm9vdUg4OWpIUDd1NVAzVUM3WG8wUDNOUEpEbEVJbTRIVW9IaXZF?oc=5) |
 | Trump Team Now Claims Its Trillions in Tariff Revenue Are ‘Incidental’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQWHl5M1FlM0p5VXdaU1ZHWXZMYWIwUUhGZWNPaW13ZXlvQ3RVUUVmcWlaMEJpV09NR0g2NXBiV0NrdVQ3MTlxVFdaNFhjRU1uSDB0RVhXaHhsZHNTVE1xUlJrZmk5aUZuX3RKcVNYcTNRNE0zYUpZRmJNY0h0ZjBPWVpIUjlMeDgzUHBfX1JDc0Q?oc=5) |
-| New York’s Billionaires Are Bending the Knee to Zohran Mamdani - The Intercept | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQa3Qwd09ncFVUajBkUzE1NkpSaWZxRXlyQUdKZlk1RzAxVlMxT29HdmhwdkdmUXc2NFRKRVprVnRvMWNiTzRvTTRsQ3dyS0lQa2toR2F2dTY0V040cXhOaFNHQWZ6dV9YSXFEY0lFckNJbjFrRTVMSUp0aWNhQzhib2RLdmU?oc=5) |
+| Joint Base Andrews investigates "suspicious package" after multiple people fall ill - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFA4VzVwcHhrLXlOQ3hzeU0yWjlYanBIQ3l6ekpxUVNYcGYtUUdidDlSdVh5MkprRkUwLTFxQkNzMXdzZVBwX2FobnNtOVc0dmd0eE5aZVlCVjBoeFBSYzdzdE9fa1Vva0dEMG9fd0hXbFRTMGdKY05xbGJhX0d6ZTg?oc=5) |
 | The FAA's order to cut flights due to the government shutdown is set to take effect - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNZlFWYXdZV3dIWG1JTEZwcnpRRlcxWW5sOXVQemNDUWNJcFFqaHlJWG1SbTN0OENFNnh5a1N1VDdwZDNQdm1LRlpTbFR3ZDc2QlVfZnY2R2Z5QVg1SlU4X0MxYktVbnVDbDg1V25SOENVV0d2YmswWmtuY19xWTVHbnFB?oc=5) |
-| New U.S. strike on alleged drug boat in Caribbean kills 3 people, bringing campaign's death toll to at least 70 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPeWlqdFZPcldIb3ZrVlh3TmpTcU9OcDNLYkhBLWF6c1NLcUJoUWVoMFVHTVhqU3ZCY3BHUVdwbGhnZGhQQVFHOE1lVl9EWEdORGJHdVpxSGxUMUpaQlhua182UlZwRVYwU2Jvazlrc1BfLV8tbEptTjRfWHVKbksxRUxnZURlY1d2ekh4cGhvZ2lLcmvSAZgBQVVfeXFMTk9ESW1NcmZpY3VUa1BzY052cndUejJqd2ZuS0xFS1JxRnE1dHRreTVFVDJjMkpaQWtxSUxNa3NJdnNHYVJueFdaVlJNMWtsVTZnbkxGR21RRk5MbGNqbVhRcEd4QUlUb01WRmFRWVFOTFhVRmg5blZkNmtLR3VidkFsSTkwRHcwVE5qdV90c3NUZjBhYVRMVko?oc=5) |
-| Death toll from UPS plane crash at Louisville airport rises to 13 - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPTXIxX3h3VzBtcGl3bDdqZlFMUTZjQjl2OUtTQWY3YXFzWmd5X2NnaWtEWktEU3E4eDZVdVJIa3Zsb2xzNFZMMUZLV1pmUWZSZFN2ZUJTSG5BQnI5M1ZURW84WTgxWjZjMzctd3dLcHZCb19lS1c5MWpLM2RySkdHYlMtY3o5bXBpN3RVaFVR?oc=5) |
+| US strikes another alleged drug boat bringing death toll from campaign in Latin America to 70 - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPLWFKeEcwSUZaWktkUTNnai1QUk11OEx4dGdFMmZES0JGMjliSUVjY2lfaFV3R3gxZjFiOGxQRVFidXBrXzVVZGNCcWQxRkUxN1A3VFRzdVFKZVBCQlJTTFRtUndEajNScWNhdG91LXN6Ry0tY2V1RkVWVGhuRlZsNTNGemVyRzJkOE9TdUhvRFpfTC12d3ZOSE1yZFFvTzA?oc=5) |
+| Supermarket Billionaire Threatens To Cut Workforce, Move To Florida After Mamdani’s Win - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxQTFlVVFN0ZTA3RVFpbkh4bmxtSkxmcXdWUmZfT0tiVm5Da1lmQkltNWlLVmhNamtJZU1ndjlnMkZjMUtYWnNtdmFOc1pKcjFPSFJ3RE11MlFtblpZLTRXZnZhUFJSczVXZXJaVVQ3RVJtaDlNZVhCTXUwTEtQMXJwT2pFS0RGY0psaXp6a0ZrdWstRVNmeDNKNEtlNVN5Y2V6TnVnNnZYWHc4T2VZQkhSVDFOV3kzc0s5Sm1teU5uNjdJaU5vZG50czJBNi1tVUliM1dwb2RFRW5teDMwdlZZQWFxQW84LW9WT2RMZm1YYmh1QQ?oc=5) |
 | Vance is the frontrunner for 2028, Rubio privately confides - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPeFh0UlhhYmtteGV0enFOQmVqei00UTdmdzV4MktYMXhxZmVpNUpiZHdMa0tQbGZfMHpqc2JPOWlTNTlqLUtkaGZTaTh3eEFJckY3UkNtU0VQRmVFaVZRY0R1TWFXSWVIYXo1TTdZd0N4UWg1TTJuZHRNR1AwS2YxNGZOa0E5eGcyaWZmb3Vn?oc=5) |
 
 ---
