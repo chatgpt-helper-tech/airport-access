@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 20:16:21（北京时间）**
+🕒 更新时间：**2025年11月07日 20:25:27（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | "Follow her example": Pelosi's retirement reignites Democrats' generational warfare - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQSS1IVGRLUXJKYnpZRTV6aTE0T3ItbzdaTGxvaUlENWpCVUVwZWZtVHhEY2hqQVl6Vi1jTThOYlk0RHhJU3A0Ul85U1p0TVJUczFKMkFiNFJMdGxsSHlFZzlDb19kTEdlNmVfT0NmLUFoWmcxdjVYS3Z2QmU5dDlRQXY4VTBqZw?oc=5) |
 | New York’s Billionaires Are Bending the Knee to Zohran Mamdani - The Intercept | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQa3Qwd09ncFVUajBkUzE1NkpSaWZxRXlyQUdKZlk1RzAxVlMxT29HdmhwdkdmUXc2NFRKRVprVnRvMWNiTzRvTTRsQ3dyS0lQa2toR2F2dTY0V040cXhOaFNHQWZ6dV9YSXFEY0lFckNJbjFrRTVMSUp0aWNhQzhib2RLdmU?oc=5) |
 | Subway sandwich thrower found not guilty in D.C. jury rebuke - NPR | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPcEg5TE1SSmNpNTVwWUNpeEJTTVljd0hMLUpOSmk0TXczUVZ0QjhKdHJLbUtsUVRrSWt0bnFiNnRMMDBNdkRPZ0ZNY1hRaVhudUp3a3oyUUJWQ0toQkIzNkwxTXY5T25ZUlplWVBqOXkxNXRCRnNGbGZEX2tqUkotVW5sNDdVcjVNd3BFVVktcFltUQ?oc=5) |
+| Jury returns in trial of women accused of stalking McCann family - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1WRWtSWVpUdFZ0Q3dJRXBGNjZiTGNnX1BQdVlfdDlVcVZXbWF1TTZ0czhCTUg2QU9qZ2QtWHViZlZtLVNUWEUzMVR2VWswbzhOY0hxMw?oc=5) |
 | US strikes another alleged drug boat bringing death toll from campaign in Latin America to 70 - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPLWFKeEcwSUZaWktkUTNnai1QUk11OEx4dGdFMmZES0JGMjliSUVjY2lfaFV3R3gxZjFiOGxQRVFidXBrXzVVZGNCcWQxRkUxN1A3VFRzdVFKZVBCQlJTTFRtUndEajNScWNhdG91LXN6Ry0tY2V1RkVWVGhuRlZsNTNGemVyRzJkOE9TdUhvRFpfTC12d3ZOSE1yZFFvTzA?oc=5) |
+| 3 pilots killed in fiery UPS plane crash ID’d — as missing mom of two believed to be among victims - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOZzdqWVBRUmVka3N5a0RLaDgzOW55M2ZUMGdLSktoV2dSZV9rT0owR0JxOFV1SlVETzFOa3hnZ2ZwZEdRLWlTQzM5dzVTSF9kb2dzYXhfU3J6Z1ViN2xnMndmTWdPSC1LYWFXQWxMaVpmN3RaX25vaXpqMzJqTFBBYXU0SDdENFlja3M0M2JSN1dyU0ZhSThqeEcxOUdhcEVoWnhEWVFJU21QRHc3M3NrZ1UxM3FSZXVSbVpz?oc=5) |
 | Multiple people at Joint Base Andrews fall ill after suspicious package delivered with white powder, sources say - CNN | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOS3pLaWZCVXQ2blp5aWJoalJOQzRHR0c2cWpXam5EZzVqalhNcFRTMHFWWEhob0xFZlBqeHlWOUdkMTNGSnA0UzZCZlpJNktWcnNDWjNfYjRucjR6U0JBMzM1b0xtSkpQbHFjZTZ4ZndaMnA2eXFMMVZYOGh3bTViNzFoSFZnZUNSQ1h0UDdEbHVGVWxWZHc?oc=5) |
-| What to Know About U.S. Flight Reductions - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMifEFVX3lxTE94Nng4akRpZkt1TmM5QjU1RHo1TXpkSmtnTVhieVJNQkMySGdyQUx2ZFFNcXQzQlVkcFRnY3NHQ1k1NzJDQ0NCTmhQUjNJakVCU2RMRTZXV24yeEx6N2ZhWTBzbHdUN0VmZkxRRGlGeFRmT290YmtvQzg4VmI?oc=5) |
 | Rubio privately expects Vance to be the 2028 GOP nominee - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPeFh0UlhhYmtteGV0enFOQmVqei00UTdmdzV4MktYMXhxZmVpNUpiZHdMa0tQbGZfMHpqc2JPOWlTNTlqLUtkaGZTaTh3eEFJckY3UkNtU0VQRmVFaVZRY0R1TWFXSWVIYXo1TTdZd0N4UWg1TTJuZHRNR1AwS2YxNGZOa0E5eGcyaWZmb3Vn?oc=5) |
-| Death toll rises to 13 after UPS plane crashed at Louisville airport: Officials - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPZF9rNDB0VlllaG5OdU9iNm9WTEdIMlhWTzhQdnl5UUcyUWh2VWdSSjE5SXlVOG5ZRUgyTmxrNUpMVXdZbXZpSUZ3eWJ3WldzT19jNzV1eE12VjgxakhBcFBCWWRicVVXOVdUZUs4Zlc2TUtKaVMyeTdMVVhfbU4tSVVkSG5rT3FjOWRhS3lPa21QMGJu0gGaAUFVX3lxTE1hM0JHRW9TX3pZMlZxeGpCV3dLZ1hYbktieURrN0xSV1M1WmlyeWl2bjA2a0ZPdmpxUEJwR1lwbjc1YjBsYnh1UUdVU0JGSnlleWMyYXlOVUpVY2tpQ1lLbUxOZG1oRmpoSW5wS1BKYVZvVndOeUR2NnphRGhfaUp6cW5rQmZpOVFsVjlTZmxLbVFsRmZiRlMzTEE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
