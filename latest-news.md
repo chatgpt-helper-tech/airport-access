@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 21:16:25（北京时间）**
+🕒 更新时间：**2025年11月07日 21:24:45（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Trump Team Now Claims Its Trillions in Tariff Revenue Are ‘Incidental’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQWHl5M1FlM0p5VXdaU1ZHWXZMYWIwUUhGZWNPaW13ZXlvQ3RVUUVmcWlaMEJpV09NR0g2NXBiV0NrdVQ3MTlxVFdaNFhjRU1uSDB0RVhXaHhsZHNTVE1xUlJrZmk5aUZuX3RKcVNYcTNRNE0zYUpZRmJNY0h0ZjBPWVpIUjlMeDgzUHBfX1JDc0Q?oc=5) |
 | The FAA's order to cut flights due to the government shutdown is set to take effect - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNZlFWYXdZV3dIWG1JTEZwcnpRRlcxWW5sOXVQemNDUWNJcFFqaHlJWG1SbTN0OENFNnh5a1N1VDdwZDNQdm1LRlpTbFR3ZDc2QlVfZnY2R2Z5QVg1SlU4X0MxYktVbnVDbDg1V25SOENVV0d2YmswWmtuY19xWTVHbnFB?oc=5) |
 | US strikes another alleged drug boat bringing death toll from campaign in Latin America to 70 - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPLWFKeEcwSUZaWktkUTNnai1QUk11OEx4dGdFMmZES0JGMjliSUVjY2lfaFV3R3gxZjFiOGxQRVFidXBrXzVVZGNCcWQxRkUxN1A3VFRzdVFKZVBCQlJTTFRtUndEajNScWNhdG91LXN6Ry0tY2V1RkVWVGhuRlZsNTNGemVyRzJkOE9TdUhvRFpfTC12d3ZOSE1yZFFvTzA?oc=5) |
-| Supermarket Billionaire Threatens To Cut Workforce, Move To Florida After Mamdani’s Win - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxQTFlVVFN0ZTA3RVFpbkh4bmxtSkxmcXdWUmZfT0tiVm5Da1lmQkltNWlLVmhNamtJZU1ndjlnMkZjMUtYWnNtdmFOc1pKcjFPSFJ3RE11MlFtblpZLTRXZnZhUFJSczVXZXJaVVQ3RVJtaDlNZVhCTXUwTEtQMXJwT2pFS0RGY0psaXp6a0ZrdWstRVNmeDNKNEtlNVN5Y2V6TnVnNnZYWHc4T2VZQkhSVDFOV3kzc0s5Sm1teU5uNjdJaU5vZG50czJBNi1tVUliM1dwb2RFRW5teDMwdlZZQWFxQW84LW9WT2RMZm1YYmh1QQ?oc=5) |
 | 3 pilots killed in fiery UPS plane crash ID’d — as missing mom of two believed to be among victims - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOZzdqWVBRUmVka3N5a0RLaDgzOW55M2ZUMGdLSktoV2dSZV9rT0owR0JxOFV1SlVETzFOa3hnZ2ZwZEdRLWlTQzM5dzVTSF9kb2dzYXhfU3J6Z1ViN2xnMndmTWdPSC1LYWFXQWxMaVpmN3RaX25vaXpqMzJqTFBBYXU0SDdENFlja3M0M2JSN1dyU0ZhSThqeEcxOUdhcEVoWnhEWVFJU21QRHc3M3NrZ1UxM3FSZXVSbVpz?oc=5) |
+| Supermarket Billionaire Threatens To Cut Workforce, Move To Florida After Mamdani’s Win - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxQTFlVVFN0ZTA3RVFpbkh4bmxtSkxmcXdWUmZfT0tiVm5Da1lmQkltNWlLVmhNamtJZU1ndjlnMkZjMUtYWnNtdmFOc1pKcjFPSFJ3RE11MlFtblpZLTRXZnZhUFJSczVXZXJaVVQ3RVJtaDlNZVhCTXUwTEtQMXJwT2pFS0RGY0psaXp6a0ZrdWstRVNmeDNKNEtlNVN5Y2V6TnVnNnZYWHc4T2VZQkhSVDFOV3kzc0s5Sm1teU5uNjdJaU5vZG50czJBNi1tVUliM1dwb2RFRW5teDMwdlZZQWFxQW84LW9WT2RMZm1YYmh1QQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
