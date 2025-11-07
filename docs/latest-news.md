@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 22:16:57（北京时间）**
+🕒 更新时间：**2025年11月07日 22:24:43（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Sudan capital hit by drone attacks a day after RSF agrees to truce, reports say | [阅读全文](https://www.bbc.com/news/articles/c5y4j155g49o?at_medium=RSS&at_campaign=rss) |
 | Mammoth ratings as Celebrity Traitors comes to a nail-biting end | [阅读全文](https://www.bbc.com/news/articles/cdjrny1m4rxo?at_medium=RSS&at_campaign=rss) |
 | Why human-shaped robots loom large in Musk's Tesla plans | [阅读全文](https://www.bbc.com/news/articles/cdrz2rdlykdo?at_medium=RSS&at_campaign=rss) |
-| Quiz: How big is one trillion? | [阅读全文](https://www.bbc.com/news/articles/c20p8ldy32yo?at_medium=RSS&at_campaign=rss) |
+| The battle over Gaza's future: Why no-one can agree on the rebuild | [阅读全文](https://www.bbc.com/news/articles/cj41y42qxq8o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -29,10 +29,10 @@
 | Trump Team Now Claims Its Trillions in Tariff Revenue Are ‘Incidental’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQWHl5M1FlM0p5VXdaU1ZHWXZMYWIwUUhGZWNPaW13ZXlvQ3RVUUVmcWlaMEJpV09NR0g2NXBiV0NrdVQ3MTlxVFdaNFhjRU1uSDB0RVhXaHhsZHNTVE1xUlJrZmk5aUZuX3RKcVNYcTNRNE0zYUpZRmJNY0h0ZjBPWVpIUjlMeDgzUHBfX1JDc0Q?oc=5) |
 | New York’s Billionaires Are Bending the Knee to Zohran Mamdani - The Intercept | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQa3Qwd09ncFVUajBkUzE1NkpSaWZxRXlyQUdKZlk1RzAxVlMxT29HdmhwdkdmUXc2NFRKRVprVnRvMWNiTzRvTTRsQ3dyS0lQa2toR2F2dTY0V040cXhOaFNHQWZ6dV9YSXFEY0lFckNJbjFrRTVMSUp0aWNhQzhib2RLdmU?oc=5) |
 | Rep. Elise Stefanik launches run for New York governor - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPTmtQU2lGeERKTnFvWDJGRXpLWV9Ha1lGNmpxTmxMS3dvWmFpTi1LMVA2b1YzTFVWcnBySE5mNlJZZ0owS0lfUVhVdzJ6eUc5ZTlpdTBjbEcxQjdDem9QQlVkcWNsUzBpbk11bFNKRWxreDl3azRYWGxYcDdwV3hhVC04aTNLVVhQRFE2R1ZnY1VVMUxoekd5S3h5Y05zX2NKNkxVVlV0MG9hOGvSAVZBVV95cUxNbWpPWEN6eE5ITmJBNDV2OEFyRXFIUmt6Um50dkFIUmpQNXlhUEJUZ3I4eERuSGtvU2Y0emJ6WlpkWmVBMFRnZ0dIVUpCaWZFNTkyVC1VQQ?oc=5) |
-| Flights canceled as government shutdown leaves airlines scrambling to comply with FAA order — live updates - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNNFpqekZEZTdsWTdjSzFkNzU5NWpTSGpVSl8xbmpFX2t0MmJ2TlNKZzl2Rjk0dWM4Z0p4OE5kMk54T0t2NFZJekYySUpsY1JCNlFSR0JuRXpRRUllc0lGNXNqNnpHdGlGWGp6VW5tYzlleFotVEkyeGw1S1ZOTU8wY3U1cDFKRGQ2aWUteFFkTV9oV2FzNi1r?oc=5) |
+| Flight cancellations ramp up as airlines scramble to comply with FAA order to cut air traffic — live updates - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNNFpqekZEZTdsWTdjSzFkNzU5NWpTSGpVSl8xbmpFX2t0MmJ2TlNKZzl2Rjk0dWM4Z0p4OE5kMk54T0t2NFZJekYySUpsY1JCNlFSR0JuRXpRRUllc0lGNXNqNnpHdGlGWGp6VW5tYzlleFotVEkyeGw1S1ZOTU8wY3U1cDFKRGQ2aWUteFFkTV9oV2FzNi1r0gGcAUFVX3lxTE4zTm50b2cwVENCVW82Y2FkLUduS0xaTjVyVWUyWnVaTkZWWHhLNDhhaGZwUjRkcnFHakhyR1BwWnI1ZDUzVmo0VlRORXpHZXdSbjV1UXZ4TExaN1hURmI1YkEtelRCOXg1ZnVsLTNXVG54a21HTjdXbExOOFYzNHRvTXRQUG1zLW41VG0xa2J3bkQtMmctNTUxQnZ2Vg?oc=5) |
 | "Follow her example": Pelosi's retirement reignites Democrats' generational warfare - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQSS1IVGRLUXJKYnpZRTV6aTE0T3ItbzdaTGxvaUlENWpCVUVwZWZtVHhEY2hqQVl6Vi1jTThOYlk0RHhJU3A0Ul85U1p0TVJUczFKMkFiNFJMdGxsSHlFZzlDb19kTEdlNmVfT0NmLUFoWmcxdjVYS3Z2QmU5dDlRQXY4VTBqZw?oc=5) |
-| US strikes another alleged drug boat bringing death toll from campaign in Latin America to 70 - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxPLWFKeEcwSUZaWktkUTNnai1QUk11OEx4dGdFMmZES0JGMjliSUVjY2lfaFV3R3gxZjFiOGxQRVFidXBrXzVVZGNCcWQxRkUxN1A3VFRzdVFKZVBCQlJTTFRtUndEajNScWNhdG91LXN6Ry0tY2V1RkVWVGhuRlZsNTNGemVyRzJkOE9TdUhvRFpfTC12d3ZOSE1yZFFvTzA?oc=5) |
 | Vance is the frontrunner for 2028, Rubio privately confides - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPeFh0UlhhYmtteGV0enFOQmVqei00UTdmdzV4MktYMXhxZmVpNUpiZHdMa0tQbGZfMHpqc2JPOWlTNTlqLUtkaGZTaTh3eEFJckY3UkNtU0VQRmVFaVZRY0R1TWFXSWVIYXo1TTdZd0N4UWg1TTJuZHRNR1AwS2YxNGZOa0E5eGcyaWZmb3Vn?oc=5) |
+| Multiple people fall ill after package delivered to Air Force One base - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE05LWxuc0djM2psTkdFM19tTXllQzVMTU5OVEFiVHFpelRNQUE3emd1anBGNDBGcWNZaHg0OWRQRU81Z0U5cGluREp0bmNCTWNlOHgxMDdjYW5sQdIBX0FVX3lxTFBYcmlqUFVjMTZKVTFQcUwxX2oyRk04dzhESjlwV1FxeGFjSVVhQnROSWpfR2dCbEUweDlWV2NtNHJabHhJTVVJSXpYWEZSLTRRV3ZFclpCb2MyREdvdnE4?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
