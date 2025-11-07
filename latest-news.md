@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 12:24:08（北京时间）**
+🕒 更新时间：**2025年11月07日 12:33:02（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Judge Orders Trump Administration to Fully Fund SNAP Benefits This Month - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQcVdCY0tDdnJIWGFzRm1RTHFpbm1NQmZhYXRVQmg4U0licjRZb2pYYUVmSWVyWXp3NjJVX0JfcjhDWkxnTlNzc0w4NzktOVJhM3FPRVFabV9Rb2w0cEJ0WVNVckd2N1BDRVVIMjFJOUZ2ajNwVDNCbWNLLS1iNDFXNGZoYk5xa01TeXVN?oc=5) |
-| Trump's tariffs run into revenue problem at the Supreme Court - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9udEpFWjFfLVpFdUduRjFVNWlWUHpMNmo1LVR5ZWp0d2dCRDNsaGZTLVB4eTBTaVdSaXVtWlo4eXRXTjhXVk03NzdLSkRaR1ZiRlIwYjdYQTFDWlNfSF85MVZWcVA3M3I0RWJCTHNWSW8zR1NZUzdGTnhrSDgzR2c?oc=5) |
+| Two ways countries could respond to the Supreme Court ruling on Trump's tariffs - Axios | [阅读全文](https://news.google.com/rss/articles/CBMibEFVX3lxTFA2OExDY3pPZ2dPSmhaZXdfSzJ2ckJWbS1TdU1kdVpSZ3h1OHZKcnJhUmtNUVliaGtoYzJhcHFCYnRIclNfeVNHeDBXeTRRd3VKTjBsZk1CV1dPRWtBM20tbVdUZFhYeThTTU91Yg?oc=5) |
 | After California’s vote to counter Trump, here’s where redistricting stands - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNbjNSbms5dUxVcE82QzhRbWc4R3k4NnJJanFlNlk2RWlzYzBiNW9qZHhhdFhydGpwT2F2Nm95bDlLOS1XZlJ2Ql96SWtucFZWY0s2Z25kSmxmUWNHa3h1WmtNeDEwM0Y3ZDBVV3M2OTFHTVFIQ0xhYllhaGpoVFoxOXQtNlBLYzBFQTg1S1B5YXVlVjRYdEZMajJ3?oc=5) |
 | US Shutdown Dealmaking Hits New Roadblocks as Tensions Flare - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPRXc0UGtJNkcwWHJEU1FqQ29IVk5CYzR6RklfYjFxUHIxSUp1VXNDZmVORXpQdElCSWFEX0Y4Ym5QbVhFVjlaMDZpUENIb3RnNmc3M0wyVmVuYko2X3R6Wk9WWjdtMS1MclJvV3FuS3QzaWlIWW1SMXI4T3pOc25sY29mSXkyRnJFN1pXX0FTMUVKaW54a3hrQmJWMHZ0UGF1MFZUd3B6N3czbG5uWkdpNA?oc=5) |
 | Man who threw sandwich at US federal agent found not guilty of assault - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNZTd2MzZrdHRzODRXbnVNNEJCQlI5dzVTY3BXVTZIYjZIT3o5bkswUzRKd0p6ZmQ4aXl2OFdmTnJuTnd1NTNXZy1SUk9lcTAyRkRHN3VWVHVMbXdMeUp5SDVzQXVQblFaMDcxUHRPcF92STBDNGs4SVE2M1FlSzFZbC1JZ2dnZnAwbDMxR2NEU19mckppMDJ6U28wUExYUWphS1RxbA?oc=5) |
@@ -32,7 +32,7 @@
 | Death toll from UPS plane crash at Louisville airport rises to 13 - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPTXIxX3h3VzBtcGl3bDdqZlFMUTZjQjl2OUtTQWY3YXFzWmd5X2NnaWtEWktEU3E4eDZVdVJIa3Zsb2xzNFZMMUZLV1pmUWZSZFN2ZUJTSG5BQnI5M1ZURW84WTgxWjZjMzctd3dLcHZCb19lS1c5MWpLM2RySkdHYlMtY3o5bXBpN3RVaFVR?oc=5) |
 | "Follow her example": Pelosi's retirement reignites Democrats' generational warfare - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQSS1IVGRLUXJKYnpZRTV6aTE0T3ItbzdaTGxvaUlENWpCVUVwZWZtVHhEY2hqQVl6Vi1jTThOYlk0RHhJU3A0Ul85U1p0TVJUczFKMkFiNFJMdGxsSHlFZzlDb19kTEdlNmVfT0NmLUFoWmcxdjVYS3Z2QmU5dDlRQXY4VTBqZw?oc=5) |
 | Supreme Court lets Trump block transgender and nonbinary people from choosing passport sex markers - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPbU9HWU9wNVIydmg5b2VFN3BBQ01nWWxqaElhakhaX2Y4YnRvTnQxb1ZJOWNZX3hRaGltcDB6TjIySG1Lbk1RcjVMSGVjRklGTnFWRU1oTkI3cWpUWEhIZ052VUVUdURWX0tsYXgxdXF4cnYwQ05rZGRKMXhCd3NmY215YnJzUzhFeGxmcndXNmVlNjhNZ1U3VDI5cWlKbTliMWhIdEgyT3lXNlE?oc=5) |
-| Cleaning worker who mistakenly went to wrong home fatally shot: Police - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPeGI0WnVUX1dMMzNCdTZSclBCbkMwSGlFTVVLTUg5NFoteW45WlUtNzRTM1pJWUNHN0t3MFRNcUt5VEFlcng1TVNMWkJ6c1BNVThkZWtKSlZsaE5RVlp6bnRFSFZPSTNtTkkzTEN2dTNwOHlzeURaZEJ0WjRMLS1lTlBka2w5TklGbFdnXzc0VllmcU4wd0Fr0gGcAUFVX3lxTE9GM1F4VGxYX0ZWaWhWbmZuMkFXQlNtcmFBS2p0UWpudXQ3a3Rsc0VwazlMajFwTDljeUtrbEFBeU42VWYwVjJHT2phYkZ3SUMwU1I2T21NNkRERVNMV19tYzBFUnlxb1dHZlJKcFZMSVc5ekwxOG9KSHU4eEhjRmtEZjVoWHE3ejhmcnlaMDJDb2JyaEtiRnRxbFFHMQ?oc=5) |
+| Republicans Block Measure to Bar Military Strike on Venezuela - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQeTNhMUFOMnd5UFVwUTNIcWl1aktRdS1XQW5SSUpnQW1kdGwzQ2h6UW5ZNENFbmVPTmlBaktCMm5UV2xMbllaNl9ZSE9wYTVRLUVvQng0Vkdfb0h2Ujk1cndpUnlJSFowSXdrRnJTRFBtakVBS0xjYXRnclNjUEpYbGlIOE5lVXZEUHFDYUI2NDktaGs?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
