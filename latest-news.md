@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 08:09:17（北京时间）**
+🕒 更新时间：**2025年11月07日 08:16:52（北京时间）**
 
 ---
 
@@ -16,8 +16,8 @@
 | I wanted ChatGPT to help me. So why did it advise me how to kill myself? | [阅读全文](https://www.bbc.com/news/articles/cp3x71pv1qno?at_medium=RSS&at_campaign=rss) |
 | Andrew asked by Democrats in US Congress to appear for questioning over Epstein links | [阅读全文](https://www.bbc.com/news/articles/cdjrm87731mo?at_medium=RSS&at_campaign=rss) |
 | Holocaust survivor and educator Manfred Goldberg dies aged 95 | [阅读全文](https://www.bbc.com/news/articles/c7v8jjny8nmo?at_medium=RSS&at_campaign=rss) |
+| Failing care homes not reinspected within a year | [阅读全文](https://www.bbc.com/news/articles/c14pvyn473ro?at_medium=RSS&at_campaign=rss) |
 | Hundreds of protesters at Aston Villa v Maccabi Tel Aviv match | [阅读全文](https://www.bbc.com/news/articles/cjeknklzn39o?at_medium=RSS&at_campaign=rss) |
-| Labour should stick to manifesto pledge on tax, deputy leader says | [阅读全文](https://www.bbc.com/news/articles/c62e0e0q4pgo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
