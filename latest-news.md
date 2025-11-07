@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月08日 00:32:46（北京时间）**
+🕒 更新时间：**2025年11月08日 00:40:06（北京时间）**
 
 ---
 
@@ -10,13 +10,13 @@
 |--------|-------------|
 | Woman who claimed to be Madeleine McCann found guilty of harassing family | [阅读全文](https://www.bbc.com/news/articles/c9q15qdqq4po?at_medium=RSS&at_campaign=rss) |
 | Ex-footballer Joey Barton guilty over 'grossly offensive' X posts | [阅读全文](https://www.bbc.com/news/articles/cwykwlkewr7o?at_medium=RSS&at_campaign=rss) |
-| Six officers face misconduct hearing over Cardiff triple death crash | [阅读全文](https://www.bbc.com/news/articles/c2lpw1rj924o?at_medium=RSS&at_campaign=rss) |
+| Kendrick Lamar and Lady Gaga lead 2026 Grammy nominations | [阅读全文](https://www.bbc.com/news/articles/cvgv3g7enkqo?at_medium=RSS&at_campaign=rss) |
 | Elon Musk's $1 trillion pay deal approved by Tesla shareholders | [阅读全文](https://www.bbc.com/news/articles/cwyk6kvyxvzo?at_medium=RSS&at_campaign=rss) |
 | Test yourself: How many zeros are in Elon Musk's $1 trillion pay package? | [阅读全文](https://www.bbc.com/news/articles/c20p8ldy32yo?at_medium=RSS&at_campaign=rss) |
+| Six officers face misconduct hearing over Cardiff triple death crash | [阅读全文](https://www.bbc.com/news/articles/c2lpw1rj924o?at_medium=RSS&at_campaign=rss) |
 | Lose weight or lose your jobs, North Sea offshore workers told | [阅读全文](https://www.bbc.com/news/articles/cx274xp00zxo?at_medium=RSS&at_campaign=rss) |
 | A 20-minute date with a Tinder predator destroyed my life for years | [阅读全文](https://www.bbc.com/news/articles/cm2wxd278n7o?at_medium=RSS&at_campaign=rss) |
 | Released Israeli hostage says he was sexually assaulted in Gaza captivity | [阅读全文](https://www.bbc.com/news/articles/cgkz0yzde80o?at_medium=RSS&at_campaign=rss) |
-| 'Our job is only killing' - how Sudan's brutal militia carried out a massacre | [阅读全文](https://www.bbc.com/news/articles/c8dr5e30m5ro?at_medium=RSS&at_campaign=rss) |
 | Perimenopause at 38? I felt robbed, says Emma Barnett | [阅读全文](https://www.bbc.com/news/articles/c891kd3q401o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
