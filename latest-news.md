@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 21:41:26（北京时间）**
+🕒 更新时间：**2025年11月07日 21:48:22（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | The FAA's order to cut flights due to the government shutdown is set to take effect - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNZlFWYXdZV3dIWG1JTEZwcnpRRlcxWW5sOXVQemNDUWNJcFFqaHlJWG1SbTN0OENFNnh5a1N1VDdwZDNQdm1LRlpTbFR3ZDc2QlVfZnY2R2Z5QVg1SlU4X0MxYktVbnVDbDg1V25SOENVV0d2YmswWmtuY19xWTVHbnFB?oc=5) |
 | New U.S. strike on alleged drug boat in Caribbean kills 3 people, bringing campaign's death toll to at least 70 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxPeWlqdFZPcldIb3ZrVlh3TmpTcU9OcDNLYkhBLWF6c1NLcUJoUWVoMFVHTVhqU3ZCY3BHUVdwbGhnZGhQQVFHOE1lVl9EWEdORGJHdVpxSGxUMUpaQlhua182UlZwRVYwU2Jvazlrc1BfLV8tbEptTjRfWHVKbksxRUxnZURlY1d2ekh4cGhvZ2lLcmvSAZgBQVVfeXFMTk9ESW1NcmZpY3VUa1BzY052cndUejJqd2ZuS0xFS1JxRnE1dHRreTVFVDJjMkpaQWtxSUxNa3NJdnNHYVJueFdaVlJNMWtsVTZnbkxGR21RRk5MbGNqbVhRcEd4QUlUb01WRmFRWVFOTFhVRmg5blZkNmtLR3VidkFsSTkwRHcwVE5qdV90c3NUZjBhYVRMVko?oc=5) |
 | Death toll from UPS plane crash at Louisville airport rises to 13 - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPTXIxX3h3VzBtcGl3bDdqZlFMUTZjQjl2OUtTQWY3YXFzWmd5X2NnaWtEWktEU3E4eDZVdVJIa3Zsb2xzNFZMMUZLV1pmUWZSZFN2ZUJTSG5BQnI5M1ZURW84WTgxWjZjMzctd3dLcHZCb19lS1c5MWpLM2RySkdHYlMtY3o5bXBpN3RVaFVR?oc=5) |
-| Joint Base Andrews investigates "suspicious package" after multiple people fall ill - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFA4VzVwcHhrLXlOQ3hzeU0yWjlYanBIQ3l6ekpxUVNYcGYtUUdidDlSdVh5MkprRkUwLTFxQkNzMXdzZVBwX2FobnNtOVc0dmd0eE5aZVlCVjBoeFBSYzdzdE9fa1Vva0dEMG9fd0hXbFRTMGdKY05xbGJhX0d6ZTg?oc=5) |
+| Vance is the frontrunner for 2028, Rubio privately confides - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPeFh0UlhhYmtteGV0enFOQmVqei00UTdmdzV4MktYMXhxZmVpNUpiZHdMa0tQbGZfMHpqc2JPOWlTNTlqLUtkaGZTaTh3eEFJckY3UkNtU0VQRmVFaVZRY0R1TWFXSWVIYXo1TTdZd0N4UWg1TTJuZHRNR1AwS2YxNGZOa0E5eGcyaWZmb3Vn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
