@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 16:00:22（北京时间）**
+🕒 更新时间：**2025年11月07日 16:09:48（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump Team Now Claims Its Trillions in Tariff Revenue Are ‘Incidental’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQWHl5M1FlM0p5VXdaU1ZHWXZMYWIwUUhGZWNPaW13ZXlvQ3RVUUVmcWlaMEJpV09NR0g2NXBiV0NrdVQ3MTlxVFdaNFhjRU1uSDB0RVhXaHhsZHNTVE1xUlJrZmk5aUZuX3RKcVNYcTNRNE0zYUpZRmJNY0h0ZjBPWVpIUjlMeDgzUHBfX1JDc0Q?oc=5) |
 | After California’s vote to counter Trump, here’s where redistricting stands - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNbjNSbms5dUxVcE82QzhRbWc4R3k4NnJJanFlNlk2RWlzYzBiNW9qZHhhdFhydGpwT2F2Nm95bDlLOS1XZlJ2Ql96SWtucFZWY0s2Z25kSmxmUWNHa3h1WmtNeDEwM0Y3ZDBVV3M2OTFHTVFIQ0xhYllhaGpoVFoxOXQtNlBLYzBFQTg1S1B5YXVlVjRYdEZMajJ3?oc=5) |
 | Judge will order federal agents in Chicago to restrict using force against protesters and media - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOYmphVU9TV20yZ25xUWNMdml3SFR1b2ZoYXFYdmtkMVA4elRyd2pmVzYxR1BXVTR5QWt4QVFDOVlKanhYYklpOWJfeVgwVG1yTlIxLU5xVnl0TDBhYmZBaUN4akhuZEd6S2JWWElCNURBNEFtVUVRWFYwT3hFdWlKUmNuQ1haSGttazFmX3FBNmdSNHAzLUVEM255NUUtaVpSS2k0Y3lhWXRSZw?oc=5) |
-| San Francisco Sees Nancy Pelosi as a Tireless Leader for the City - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxObUxXa2pOQ0EyX2l5M3l2cVJZbmNYaUkxZG9icDhuVjhRNl9Fd0hNT1hkSGdPdVNDSWhoSFNDYk5QY3NoLTBZejBzYWtieUZqRE8xZTVLOFFlSUx2VkdQUVpmWEV1YmszNHZWN2kwbVJiLTlOa2dYZUZvRkdFZWNEZlBkai1NVVU?oc=5) |
-| UPS plane crash death toll rises to 13 as authorities begin identifying some victims - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQNnB2ZFZBR3hVWXB0T21wNWlPNUJhNGxvbEJuaEVJNUdBa2I0cEV2cUVHeDZCSlNENnR6NFBhUDRVLTZLRkljS1I1NWw1Sk5uVm9JeUJtT2Fwb09vUHNLMlE2eDRyNEtiMDJEOEhDaFBJRjh4UGJBMm1UT0JHZHV1dGg5QW03bnFaX3VNVW4yVTNxUkUzWGNoNHBWQWlaTnpvdlVpUTNmTGTSAa4BQVVfeXFMTVhOdlpwWjJCOFp1MjhLYUhUMFlwTWtJakwya2dfNVZ0LTJaNU9CbGNfS3UtT0FZSzl5c3ZTandxWVExYm9Cb2NZNUVkNUU2V3BiRUVsMUVPOExBdVNmYk41dEIwN0cwWFg5NENkQkNOazRKYUx1N19sRUtidm5oT0NQM3I2eUt3LW9LaWQxOG0wamZmS2YxWGpBQjVwb0NKeUNzRldhYUNGMVZTaWZB?oc=5) |
-| Supreme Court lets Trump block transgender and nonbinary people from choosing passport sex markers - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPbU9HWU9wNVIydmg5b2VFN3BBQ01nWWxqaElhakhaX2Y4YnRvTnQxb1ZJOWNZX3hRaGltcDB6TjIySG1Lbk1RcjVMSGVjRklGTnFWRU1oTkI3cWpUWEhIZ052VUVUdURWX0tsYXgxdXF4cnYwQ05rZGRKMXhCd3NmY215YnJzUzhFeGxmcndXNmVlNjhNZ1U3VDI5cWlKbTliMWhIdEgyT3lXNlE?oc=5) |
-| Cleaning worker who mistakenly went to wrong home fatally shot: Police - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPeGI0WnVUX1dMMzNCdTZSclBCbkMwSGlFTVVLTUg5NFoteW45WlUtNzRTM1pJWUNHN0t3MFRNcUt5VEFlcng1TVNMWkJ6c1BNVThkZWtKSlZsaE5RVlp6bnRFSFZPSTNtTkkzTEN2dTNwOHlzeURaZEJ0WjRMLS1lTlBka2w5TklGbFdnXzc0VllmcU4wd0Fr0gGcAUFVX3lxTE9GM1F4VGxYX0ZWaWhWbmZuMkFXQlNtcmFBS2p0UWpudXQ3a3Rsc0VwazlMajFwTDljeUtrbEFBeU42VWYwVjJHT2phYkZ3SUMwU1I2T21NNkRERVNMV19tYzBFUnlxb1dHZlJKcFZMSVc5ekwxOG9KSHU4eEhjRmtEZjVoWHE3ejhmcnlaMDJDb2JyaEtiRnRxbFFHMQ?oc=5) |
+| "Follow her example": Pelosi's retirement reignites Democrats' generational warfare - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQSS1IVGRLUXJKYnpZRTV6aTE0T3ItbzdaTGxvaUlENWpCVUVwZWZtVHhEY2hqQVl6Vi1jTThOYlk0RHhJU3A0Ul85U1p0TVJUczFKMkFiNFJMdGxsSHlFZzlDb19kTEdlNmVfT0NmLUFoWmcxdjVYS3Z2QmU5dDlRQXY4VTBqZw?oc=5) |
+| Dramatic videos show the burning UPS cargo plane crash in a massive fireball - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPazQzakJxRnZYVms1RmRSdWxEVExlMDROSDhCNDlFWVYyVm1hLXJDYkFVckxEcFhBbUJzbUUyZEdaV3otRkNGLUhVd2pvYnduYTFDQlBYaEE1S1BvTG5kT3d0bkZJVmhtZ05SWVR2V29veUxZVy05MFhlX1ZWblhwV2U1OU9VTHJFbWhRRVVJdXIzMl8tSzJETnBFOHAzVFp6?oc=5) |
+| Cleaning Woman Killed in Indiana Shooting After Arriving at Wrong Home - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOQVF4NFNmamxxcVJxYUtoNVFTSzdENlhjQU5LT0dobERvWlVWVW5obXlBLVVHMFJIY2NDMHRCaHR0UDZ6QndpSUsxRFo0NzRaLWlPRmJUMF9VTzJYSGFoZmlvMTNMZVF1eUZSb2Q0WlkxZFpHVFRLM1M3V3RjdnRvQnQxNkxscWtTQmhR?oc=5) |
+| Senate blocks Democrats’ bid to check Trump power over Venezuela strikes - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiekFVX3lxTE9UdXRSemM2ZnYxbUE4Nmc5ZnJycXNheDNDM3pUTHQtMktOLWg5bU50RmI2SUd4S3RNNHhaUWJhNTNPM2FJZEJUczhfT3R0bXB4dEhfR3R5d0czNXgwNDBfajdlVkNadVB6ZWlXNmhTTHRQb01LOW5ha29B?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
