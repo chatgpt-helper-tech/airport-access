@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 19:49:48（北京时间）**
+🕒 更新时间：**2025年11月07日 19:57:50（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Judge orders Trump administration to release full SNAP benefits by Friday - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPd09PeDNveS16SFBoSHRwaVpFRmoxT0pfSzRFLWZ3QW9BdVBBT3FPamdHeTNlNzltZXZFUHVOUHY1YzRjcGFmTmpiT0hld1VRQXBJanBJeHIzb2pUYXBxcU9LQmluR09NcjRCMUhFOGxhWUJ6ZXpLaUVQdTlLNnVNOG00ZFZGNDAzbVE?oc=5) |
-| Late Night Laments the Effects of the Longest-Ever Government Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQYkZnV25XSDFhcERyTmlKSk5TdnNKZTlYdWNDMVRxUU9MeDdnb243bnZpQVd3Mk5QRUNORXJzbTNvODV1Q212MGhUU0x3M29hNjgwbFlIVURlSm9Rb0ZJeW5saG9lREhWaUdiX1ZxU2hLazVPOUFoMWR3Y1h2YVdlejJldXU2Nk1WdUhqUk5aOGdvT0dSN29zLWcyYw?oc=5) |
+| Government shutdown drags on as Senate GOP eyes key Friday vote - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxQRUQ5amFya0k3QkswS1NVb3VMdFFYVjl6NTFOVThac05WanVYNEFlQWxmTl94UUMtOHpNcjBZMzIxdnQwUk5mQWxod2N5dTZUMDdSOFlHVE4weWNaWHg2U1RzT25GYzAxdVRqZzNENnZ4UW9WRGlWVzFwWjhpQ0RxVGI3U2xDR2hiMFpUSTJn0gGTAUFVX3lxTFAzS1Ffd0tycnJQYjNMbm5CZVV5OXR3aGFrbGRxbmVyZUNjWlRVd251TDZydkVMaU9CcDhqdzFRV0l2TjBHaEZuVGdoMnFibGhHblNKVUNOYU5TNzVtSVp2VEdSeFFqSWlZd2ctb2poVjk0aXVYcW1pcTJHU1VreHZQcFE2M0J4eGJzb2VWVFlLQ3MyYw?oc=5) |
 | Voters voiced dissatisfaction, anger as they turned out to vote in this week's elections - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQRjgzbHRaZ1lHalR6V1hLcFpCQXh2RVhFSWUwNzF6UWFRdkxzWjRSVTQ1eDZreDBjQkh4OThjZGp0dUticGo5aXAyaW9fenUwTG1OM2F3SllVT0l5c1F4UEFwQ0VRdGlMcWxjaEtPd0h3NVNJcEJjQ2hSZy1vd2pKS2dobTdUdXowdnAyRWhEdng2TFJ1QVNuUGNVWHl5aGZtd3ljbWNWTTV6UDNrMEFnbTlTOEzSAboBQVVfeXFMT0xvRkNNU0JiNzhST2FDVDJ0U095WWNoMUhnd0s3c0xZYVd2TXZnOG9lWTdUWXBhODdIalItaENxTEZZNnJPbG92UTNGR1ZwajhCVFNla19GY2tuLTQxSW9pY0V1ZUhONGlobWRfdmNHbEVaRWVfbHpnYWMtOU5BdWN0SGJiRDA5MnNQQkhGMVhWb20yMEF4M3NXNEw4VGR2SElRM3YxQ1Bva1BiT0NNclVFTGNyUWdORlp3?oc=5) |
 | "Follow her example": Pelosi's retirement reignites Democrats' generational warfare - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQSS1IVGRLUXJKYnpZRTV6aTE0T3ItbzdaTGxvaUlENWpCVUVwZWZtVHhEY2hqQVl6Vi1jTThOYlk0RHhJU3A0Ul85U1p0TVJUczFKMkFiNFJMdGxsSHlFZzlDb19kTEdlNmVfT0NmLUFoWmcxdjVYS3Z2QmU5dDlRQXY4VTBqZw?oc=5) |
 | New York’s Billionaires Are Bending the Knee to Zohran Mamdani - The Intercept | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQa3Qwd09ncFVUajBkUzE1NkpSaWZxRXlyQUdKZlk1RzAxVlMxT29HdmhwdkdmUXc2NFRKRVprVnRvMWNiTzRvTTRsQ3dyS0lQa2toR2F2dTY0V040cXhOaFNHQWZ6dV9YSXFEY0lFckNJbjFrRTVMSUp0aWNhQzhib2RLdmU?oc=5) |
