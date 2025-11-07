@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 14:00:30（北京时间）**
+🕒 更新时间：**2025年11月07日 14:08:14（北京时间）**
 
 ---
 
@@ -12,10 +12,10 @@
 | 'Our job is only killing' - how Sudan's brutal militia carried out a massacre | [阅读全文](https://www.bbc.com/news/articles/c8dr5e30m5ro?at_medium=RSS&at_campaign=rss) |
 | After weeks of tension, plots and sabotage, Celebrity Traitors has come to a nail-biting end | [阅读全文](https://www.bbc.com/news/articles/cdjrny1m4rxo?at_medium=RSS&at_campaign=rss) |
 | Elon Musk's $1tn pay deal approved by Tesla shareholders | [阅读全文](https://www.bbc.com/news/articles/cwyk6kvyxvzo?at_medium=RSS&at_campaign=rss) |
-| Government recovers £74m from asylum hotel firms | [阅读全文](https://www.bbc.com/news/articles/c709k1zx0ljo?at_medium=RSS&at_campaign=rss) |
-| How a 'swimming cap' could transform care for brain-injured babies | [阅读全文](https://www.bbc.com/news/articles/cly42gvrq2ko?at_medium=RSS&at_campaign=rss) |
+| The battle over Gaza's future: Why no one can agree on the rebuild | [阅读全文](https://www.bbc.com/news/articles/cj41y42qxq8o?at_medium=RSS&at_campaign=rss) |
 | Harry apologises to Canada for wearing LA Dodgers cap during World Series | [阅读全文](https://www.bbc.com/news/articles/cd9kgpvzlndo?at_medium=RSS&at_campaign=rss) |
-| Anti-black racism 'baked' into Met, review finds | [阅读全文](https://www.bbc.com/news/articles/c1lq711n2e2o?at_medium=RSS&at_campaign=rss) |
+| How a 'swimming cap' could transform care for brain-injured babies | [阅读全文](https://www.bbc.com/news/articles/cly42gvrq2ko?at_medium=RSS&at_campaign=rss) |
+| Government recovers £74m from asylum hotel firms | [阅读全文](https://www.bbc.com/news/articles/c709k1zx0ljo?at_medium=RSS&at_campaign=rss) |
 | PM 'angry and frustrated' at mistaken prisoner releases | [阅读全文](https://www.bbc.com/news/articles/cyv89mv0y6lo?at_medium=RSS&at_campaign=rss) |
 | Andrew asked by Democrats in US Congress to appear for questioning over Epstein links | [阅读全文](https://www.bbc.com/news/articles/cdjrm87731mo?at_medium=RSS&at_campaign=rss) |
 
