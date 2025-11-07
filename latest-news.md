@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月08日 05:48:11（北京时间）**
+🕒 更新时间：**2025年11月08日 05:56:43（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | ADL explains its Mamdani Monitor initiative: 'Never had an elected official like this before' - NPR | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOajBkLUhVcVZsMEdKWUlwa29nM0pYRkhBaW50b3hiSjg2NG9yOFprYUZBakJ5bGdqZnhjQUFrYzNSTjJDN0Zxbk1qZnk0cWdLdUlZR19ISjcwejRFMHQ1ejJCdjZPSk02N1ZxWFJMSU5RYl9WV0pUUUtubGlGbS0yV2NqTC13NzdSQi1oRW1YcE1sSWthZ1RMNS1ibUpQdzVEa1hOX21n?oc=5) |
 | Did Trump’s Supreme Court Tariffs Brief Include a Strategic Blunder? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxORTBheWpyOVFmNlRiRC04YWZHZTFZZGtNMzhyR0RpcDlzeGVwclc0YUwtZ0lNbzlvc2NtQkdKZXdJRzZLV3N0THBSSm9CYnYtRC1ta3k1OGpFUmZBZWRYNERDaHRVSVBQVElMZzVaYzdabTE0aExjdFRPRUhvMkxVNTZIdDU4cVg5?oc=5) |
 | Cornell University to pay $60M in deal with Trump administration to restore federal funding - AP News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxQcVU1NDJBX3Q3bGlaeXpVcHFKeFdDUXY0T0NFTncyQjFKb1dIMU5VSHFEbHMyTmxoQ29OU0d1ZkhIaEZfRnpnSUp5V0NOOTVrbHJMYnZMREw2S1RweUlUTTUzQTBlTXlWSlFaYWxTeTA0VFMzZE1kVnNzNVNkelh0UGpQWTM1aGFxNF9ZSWdySXhHV2s?oc=5) |
-| Flight delays are causing chaos at SFO this week. Here’s how bad it is - San Francisco Chronicle | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQaW9ubl84U2tkOXBtcnc2RXNSNTIyNTEyQUNfZmlobE96X3R0X19zMWhPckNUSUFDZ1M2cENjc05MNHFvWWEwU3hxWEp5WDhBd2pjZ2hMTEhHdTRCWkhNc3RwT2lzQUtrWUJZN3lXLW10MUZfLWNXcllmUHdzbFBNYWhGUmduclU?oc=5) |
-| Stefanik hit by GOP rival after launching NY governor bid - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQOGlfTzh5Z0NTSFRGVlNmamZIUkxFVUZGdGdKQXd1b1NrbUFhSHJhYUYtcm4wUUxwVHJ6bmZQekR3Y1UzTHFOZHVkLU80THEzckwySEZIdzdBSml6NFhncm1vLXg1TV9KWVhkNmVJbUxxaFdfT1RQS0V3TERVVGprWWpxWUJLM3NGQmlwcjFPazE1eEEwUHpZdlVLbkVUSE95bWpMcnVpSXNtVGM?oc=5) |
-| Poll: Democrats have no idea who their leader is - Politico | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFB4VTFNRXhHRDItTTJXT0k5Ykdkb2tiQndNd3cxVkhiLXdYSlpTb2NjNjhITzVyakxKSG5yWnR5cExJbVBIZW5BOWZjRnlHZDJ2M0lwa3RmRFc4UlRLN2RJZ0Z2RkQtQV9hUnptWlp3dWNuZUdNcERnaVhjNA?oc=5) |
+| Transportation Secretary Duffy says flight data was "concerning," prompting FAA-ordered cancellations - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPcUFVaTNNc1RaYU9vdk0zY05xeEo0aDVzcWU4WGZWRWRtMWxtekFhNENaZG5UMVdmcHdReG1WUGJQTDZfUGg4NEpDWXM3VEtjU1piS1V3Q3l5bXItYXB0TW9QSm93aEp0QVkzMmFhOXVFazFlaDRkc08zNEFuWE9jN2pObzJkQ0U1MVY2SXMtdVBYTVFRaXFSRG9DbWdxazdiUUhzREdtNmYwZw?oc=5) |
+| Elise Stefanik to run for governor of New York - PBS | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPYWdWSlJ2RlMzUWxwdGhMbkhXWTYxWTlLaWF5TjlySDYwMTJaSHpYSlV5X2NjT2hBNnBzRWFVT1RrWWFudEdKZW90cklOSF9BUU1JWW9qa0U5YTM2cFlWNGN5RnNKNlBlbW5YdWI1X3hYVlo4NEQxb0NvV1puQlBqRHVpUlE0dFd5OW9LY9IBkgFBVV95cUxPbWExMWV1b0d3SC1KaEJjQzJseFdVM01iT2YxSFFUX192Nms5ZW0yTGQ3UkxqdzlTVS1OTnlLMEQzYTVHREtEM21OOTFKcDFpSFktbDhPSnpCVjNLbzhmalBRSVA4am14amxxWWhJQlNXbWhyX1d4M0FoTUROXzYyaV83NTdRdzlrLVh3UnZfRUxGdw?oc=5) |
 | D.C. "sandwich guy" found not guilty of assaulting officer - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPVjItNFRYeFM4aUYzTGh2bjByUjJPT3lqQ2FISUlEMExGWHVVanZXcmdYaXRFMzhEM3oteWZDanFYUTltTDhabmJSb0pOcEF2WHd4RnNWRlM1al9MTkJfVDdlN0ZJRzl4YlFOR25tMkUyS21YWG1XSG1RRUFSQlN2ai1WTDl2alZsVTB4VA?oc=5) |
+| Supermarket Billionaire Threatens To Cut Workforce, Move To Florida After Mamdani’s Win - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxQTFlVVFN0ZTA3RVFpbkh4bmxtSkxmcXdWUmZfT0tiVm5Da1lmQkltNWlLVmhNamtJZU1ndjlnMkZjMUtYWnNtdmFOc1pKcjFPSFJ3RE11MlFtblpZLTRXZnZhUFJSczVXZXJaVVQ3RVJtaDlNZVhCTXUwTEtQMXJwT2pFS0RGY0psaXp6a0ZrdWstRVNmeDNKNEtlNVN5Y2V6TnVnNnZYWHc4T2VZQkhSVDFOV3kzc0s5Sm1teU5uNjdJaU5vZG50czJBNi1tVUliM1dwb2RFRW5teDMwdlZZQWFxQW84LW9WT2RMZm1YYmh1QQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
