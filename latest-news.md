@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月08日 07:17:47（北京时间）**
+🕒 更新时间：**2025年11月08日 07:25:42（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | 'A battlefield victory': Trump's tariff critics doubt they'll win the war, even if Supreme Court steps in - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNTVkxQnZtQ3NTQUFCT1Fia1lSQ0x6b2FTS1VYeHFwekxsakxnS1hsZTFNZE84TFA5U2prVEdjeGpMU2EydHpXWl9EWHFKazlldHJ3d3ZWRGMta2hyeGpYaURILWc5NzZISDdFLVFTckhob3R6OWExcFZ6SU1aVERUOXRvWTQxUGZaRUVWWXhkbXpTUU1LSGJtR2VNelEwcmVXVzhFVkJPSE5mTWIxcTIzNHdncw?oc=5) |
 | James D. Watson, Co-Discoverer of the Structure of DNA, Is Dead at 97 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBRZEVBWE5ZemJzcV9sTXo4dFFONUZfcGplMnFCNm5Bc1doVmdpSF9wZ2hGVXBIY0U1bWdGYUg5YmhCRUdNME5Pb0dyaHFzWEZ1NG9nWHFBMG9yNVVsSFY3ejNxNk1tdmhGNDVNQ2NXa1pNUWM?oc=5) |
 | As millions of Americans struggle with SNAP lapses, food banks are swamped with demand - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOd29CZnVtc1BNakFwSW43VFZldjlpMDV2VTRrdWNYWDQ4Y2hKMzNPUEVJM01iSEd0NlV3S09nNkRNdWoybUhQRXhXejlwaDdfaFRuNTFrX2doYUJpWUl6TTAwOERYQ0dUWm1JZjZhamY5QmJCU08tRU1JbkNjV1NaR0VLUjVORzJvc0xXV293U2twRE9FZUZFa0dn?oc=5) |
-| Editing federal employees’ emails to blame Democrats for shutdown violated their First Amendment rights, judge says - CNN | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQdHJRcWVpVUhaSjRnWlQ0VkdIZnpMRHowUHhVSDBrN2h4M0U4SUM2ZXZVLXBxRFJQcVF3ejZVdUFUMVdiR0dvN2tnOTNXTnVLM2c1VXhJMUozcVQ5aW00a3pIWWRKRnZiS2JWNzJtN05xc052NHVUczQ2SWlOckZVc0tLRGdsQlZ2eldycmhEYm1iT2gxQ1hKVVVtbTVmUQ?oc=5) |
 | Hegseth says he wants the Pentagon to prioritize speed over cost when buying weapons - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPNWF4RTVyNlpHbHh3ak9RbXB4ZzhiYVJrV25mR0F1OHlkR1NYVFlRQ2k4LXM4ZGd5bVV3bFZXREtGQ1dXbzh1eXlyS3RKeHZ5ZEMyZFVVLW5kZ0p1bGV2VHJXMXRmQzdOZFlXQ1RYai1mVkt3UTJKMXFwUGx4VEdnQ0dHQWVEVWM5VFZxSkk4UDlTZmY4VFhFenJ3?oc=5) |
+| Congressional Democrats hit wall in requests for Trump ballroom information - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNMG9CYWtnXzBmYklPSGRURjluSDFCUVpDVjZVZHhxZ3ZrZWFzUjdzTUMxc1d0V0dtWTZvanFZNDczRWFZcUJ5YjJnZHozZXN3bzBUV19fenoxN1JEZzFYOUF5aHJOUl9oRHh4TnhVWV9UajJpWkhKalJNV2dFYzdJUGdRMzFrVmU0aklVWWxCZU5LaWPSAZgBQVVfeXFMUHRSUzBPc3RyZjJxRV9RVWhodk81Ml94VWNJMHFwY1JjU21aNDJzQjExSEhsWE0wUmFzRzBkY2lZSWptaFZXNGtMU0pOcGFyanBuRGRDT0RDQjZ4a2k2MkwwTVFGejlDVk5DaTAySlV3dXE4UVFSeVFXOThCelpTX0VBY0ZUYjJiQ1E2N3lkY2JYMmI0b2tMNnc?oc=5) |
 | Transportation Secretary Duffy says flight data was "concerning," prompting FAA-ordered cancellations - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPcUFVaTNNc1RaYU9vdk0zY05xeEo0aDVzcWU4WGZWRWRtMWxtekFhNENaZG5UMVdmcHdReG1WUGJQTDZfUGg4NEpDWXM3VEtjU1piS1V3Q3l5bXItYXB0TW9QSm93aEp0QVkzMmFhOXVFazFlaDRkc08zNEFuWE9jN2pObzJkQ0U1MVY2SXMtdVBYTVFRaXFSRG9DbWdxazdiUUhzREdtNmYwZw?oc=5) |
 | Sudan’s bloody conflict is plagued by foreign influence – here is what we know - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPWHpybTBiTFlJTnV2RGNJOHRjd1JvOW1NS0xrRjJfT1h3TU9LTUFPVThMSjA3bUtRaHV3b1VvMkJQWXlyY3IxemtWN2MzX2Rsb2l6bjVua3F4aGJseFRINjNpZlQ4T29nekFuaUJrRnAxaHZ6RmhyNnlhTUdGT1FTMHFRZC14QQ?oc=5) |
 
