@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月08日 01:08:04（北京时间）**
+🕒 更新时间：**2025年11月08日 01:16:04（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump administration asks for emergency pause on judge's order to fully fund SNAP - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxNVWkwZURhSVUwejJiV2dtZHVKRnd5T1IxclFlT3pvbUxBQ3hUY2JYXzZjeGhORzdtUXltUEZ0aS1jRENMbmhDVWoyVFZMYkl2Nnc1VUdmWThzQk5NS0R3U2QySlJheWl5TmdCSllXNUl4X2RTTkdJWnU2YlVPRlZuM0lBak1mYW5ZQ3FnaG5jeG9xTE8tM2FVYmwzU0dJVmNxbXp5WUZ1R0x2UWV5ZVlUc1A3VDdLY1RKc1l3WTRzOTZtR05CNVhZ0gFWQVVfeXFMTWNSdzNxY1V6a1dCc2RFTjVPVDJsN0wxc2M5WjFqVlVaZjJ5dDBDTGhxc2lrc09TdzV6MDlMY3UwVGY2QVhzNXNLUUFVbl83RUptQ25HbFE?oc=5) |
-| Government shutdown live updates with Senate set to vote on new approach to end impasse - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQeWFxVTNQVGhFREF4REZOaGhKTTAzN2toNF8wTUV6RnhsMktUYkZEVE9BOGRFTlNfbFJFcFByWElNejUwc1pkRTd2NU93Y3MxbnQ3WUxSTlBKTUM1RV9yVjdIeHowZW4xUVd4M1RxRVBKX2lIZUctYnBnRXlPaHE0S2FEeFpaVUJPOElR?oc=5) |
+| Government shutdown live updates with Senate set to vote on new approach to end impasse - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQeWFxVTNQVGhFREF4REZOaGhKTTAzN2toNF8wTUV6RnhsMktUYkZEVE9BOGRFTlNfbFJFcFByWElNejUwc1pkRTd2NU93Y3MxbnQ3WUxSTlBKTUM1RV9yVjdIeHowZW4xUVd4M1RxRVBKX2lIZUctYnBnRXlPaHE0S2FEeFpaVUJPOElR0gGQAUFVX3lxTE9PX01OSEU1eXFnSGFrQU5Lb0Z0M3pzRE9EdUFSUGFHVTNyMnU5VEJwVEVmQzFzbkgwVHJxbzVyamNBNUJSeHotNHo1LXRhYkJLMUpwS2ZRbkdSTjY5RW9fXzdrOWo0eUNnUkpSWGtDWmlPcmhlTDdzR2FLNjZRT2I1SDdPN05Bb2x5RFo5aWtlTw?oc=5) |
 | What happens if the Supreme Court strikes down Trump’s tariffs? More tariffs - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZ1duQVgtdmFSd1Y1dVRKcjdtM0gyTGw0MjFOT1ZOXzJuWUcxQ2t1Y0xiTWl2a2pDUXZUZ0w2UTBxalN4Mm53Zk5kcnpaZi1rY2hJR1Brak9lejhhUHFvZFg5R1pxUWJLaTlvZno1eGhhbFFuZU9SRk9fNjRZaUJjSW9ZNA?oc=5) |
 | D.C. "sandwich guy" found not guilty of assaulting officer - Axios | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPVjItNFRYeFM4aUYzTGh2bjByUjJPT3lqQ2FISUlEMExGWHVVanZXcmdYaXRFMzhEM3oteWZDanFYUTltTDhabmJSb0pOcEF2WHd4RnNWRlM1al9MTkJfVDdlN0ZJRzl4YlFOR25tMkUyS21YWG1XSG1RRUFSQlN2ai1WTDl2alZsVTB4VA?oc=5) |
 | Uncommon Knowledge: Trump’s Obesity Fix—SNAP Bans and Subsidized Drugs - Newsweek | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPNUs5RXU4YlY1TmFoUU5RcWNxRDFXM1JnWVlEd0tYUDQ2Tk1SQlU0SjZWal9XMzJ4bDJlMk5VVHJxWXlwdXhsZUo2V3VkT0pVN29ZeEF5NHAtblA2bjMyUXloS0ZYZWJJd3pvaWFiZXBJWWg0dldkazUyM0tfbE5GWDVLeC1jdw?oc=5) |
