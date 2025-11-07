@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月07日 12:17:15（北京时间）**
+🕒 更新时间：**2025年11月07日 12:24:08（北京时间）**
 
 ---
 
@@ -25,8 +25,8 @@
 |--------|-------------|
 | Judge Orders Trump Administration to Fully Fund SNAP Benefits This Month - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQcVdCY0tDdnJIWGFzRm1RTHFpbm1NQmZhYXRVQmg4U0licjRZb2pYYUVmSWVyWXp3NjJVX0JfcjhDWkxnTlNzc0w4NzktOVJhM3FPRVFabV9Rb2w0cEJ0WVNVckd2N1BDRVVIMjFJOUZ2ajNwVDNCbWNLLS1iNDFXNGZoYk5xa01TeXVN?oc=5) |
 | Trump's tariffs run into revenue problem at the Supreme Court - Axios | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTE9udEpFWjFfLVpFdUduRjFVNWlWUHpMNmo1LVR5ZWp0d2dCRDNsaGZTLVB4eTBTaVdSaXVtWlo4eXRXTjhXVk03NzdLSkRaR1ZiRlIwYjdYQTFDWlNfSF85MVZWcVA3M3I0RWJCTHNWSW8zR1NZUzdGTnhrSDgzR2c?oc=5) |
-| The federal government is still shut down. Here's what that means across the country - NPR | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE5vcjB6azh0ZW1xUWJtYlEwV25yVFlUU2RPVGdsZkNycXVNY3BnNU5hbmk0cFRUVDZxZTdoVXlnWGFnMm8wZnBqX1dway1adTlGVlpLRXlvNmxkVmhYNDROa0k0dXFGcEdJQXlQUDZB?oc=5) |
-| Republicans, including ‘cowardly’ Schwarzenegger, take heat for lopsided loss on Prop. 50 - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxPYTZMX0pNLTlRdC1oYm9FVTBpdW9vMUxsT3JMSzVxYTZ1VmduLXRUMTc2QlhzVmxhc2lGLUR2SVZLNVg3QWgwWXhiZjRWZDExRE15UXBtTGFQY2ZkNVREOG5pRHc2LVNJNEt5R05pNlRyaGFvRnJiLXVIRjhvb2FHbTNDdUFzd0NHNzFmRE5FVy1pbmt1Z2VnWTZkZFBwcndINXc?oc=5) |
+| After California’s vote to counter Trump, here’s where redistricting stands - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNbjNSbms5dUxVcE82QzhRbWc4R3k4NnJJanFlNlk2RWlzYzBiNW9qZHhhdFhydGpwT2F2Nm95bDlLOS1XZlJ2Ql96SWtucFZWY0s2Z25kSmxmUWNHa3h1WmtNeDEwM0Y3ZDBVV3M2OTFHTVFIQ0xhYllhaGpoVFoxOXQtNlBLYzBFQTg1S1B5YXVlVjRYdEZMajJ3?oc=5) |
+| US Shutdown Dealmaking Hits New Roadblocks as Tensions Flare - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxPRXc0UGtJNkcwWHJEU1FqQ29IVk5CYzR6RklfYjFxUHIxSUp1VXNDZmVORXpQdElCSWFEX0Y4Ym5QbVhFVjlaMDZpUENIb3RnNmc3M0wyVmVuYko2X3R6Wk9WWjdtMS1MclJvV3FuS3QzaWlIWW1SMXI4T3pOc25sY29mSXkyRnJFN1pXX0FTMUVKaW54a3hrQmJWMHZ0UGF1MFZUd3B6N3czbG5uWkdpNA?oc=5) |
 | Man who threw sandwich at US federal agent found not guilty of assault - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxNZTd2MzZrdHRzODRXbnVNNEJCQlI5dzVTY3BXVTZIYjZIT3o5bkswUzRKd0p6ZmQ4aXl2OFdmTnJuTnd1NTNXZy1SUk9lcTAyRkRHN3VWVHVMbXdMeUp5SDVzQXVQblFaMDcxUHRPcF92STBDNGs4SVE2M1FlSzFZbC1JZ2dnZnAwbDMxR2NEU19mckppMDJ6U28wUExYUWphS1RxbA?oc=5) |
 | Judge grants preliminary injunction against Bovino, federal agents over use of force: "Shocks the conscience" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOVFFpbGFvdlZXUUVQbldfWEtCV2tPVWtOMW5kS3hYSl9WbUFBLWRzTXpCUEV6VG9xaHZ0LVdvWFhDNnFaS29GN0I1QmRvcmhhemZLZjlQdnpiTkI3cmMwYVBiMWxmcWlUMlU5LVJNd2lKSjhuMzZoYUxwdlQ4YUVmWFNZd20xLUpxRTNtZW5UVnZJajRoajZHdEppaWdXcXk3ZTBxc0stSXhhV24weGxJWFlB?oc=5) |
 | Death toll from UPS plane crash at Louisville airport rises to 13 - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPTXIxX3h3VzBtcGl3bDdqZlFMUTZjQjl2OUtTQWY3YXFzWmd5X2NnaWtEWktEU3E4eDZVdVJIa3Zsb2xzNFZMMUZLV1pmUWZSZFN2ZUJTSG5BQnI5M1ZURW84WTgxWjZjMzctd3dLcHZCb19lS1c5MWpLM2RySkdHYlMtY3o5bXBpN3RVaFVR?oc=5) |
