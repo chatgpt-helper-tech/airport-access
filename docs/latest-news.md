@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月08日 00:48:48（北京时间）**
+🕒 更新时间：**2025年11月08日 00:57:12（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | Uncommon Knowledge: Trump’s Obesity Fix—SNAP Bans and Subsidized Drugs - Newsweek | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPNUs5RXU4YlY1TmFoUU5RcWNxRDFXM1JnWVlEd0tYUDQ2Tk1SQlU0SjZWal9XMzJ4bDJlMk5VVHJxWXlwdXhsZUo2V3VkT0pVN29ZeEF5NHAtblA2bjMyUXloS0ZYZWJJd3pvaWFiZXBJWWg0dldkazUyM0tfbE5GWDVLeC1jdw?oc=5) |
 | How Families Are Coping with SNAP Cuts During the Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPYTR5VFhIQ0RBb0Z6WjZGTUE4SWxRT182VGtWeFZwV3dtZDRiTWg1dGlxVzV3bHdpT0wzclZYRmNiQ21iMWpQTFNxMjVDTF9CTEc1Tk5ra1FNU3dEZ3UxRkNuY3pVblZsVVFyOHlpX2s1clZwMHhIdUtfZ2kxVl9vUWdUUFUwUQ?oc=5) |
 | Death toll from UPS plane crash at Louisville airport rises to 13 - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPTXIxX3h3VzBtcGl3bDdqZlFMUTZjQjl2OUtTQWY3YXFzWmd5X2NnaWtEWktEU3E4eDZVdVJIa3Zsb2xzNFZMMUZLV1pmUWZSZFN2ZUJTSG5BQnI5M1ZURW84WTgxWjZjMzctd3dLcHZCb19lS1c5MWpLM2RySkdHYlMtY3o5bXBpN3RVaFVR?oc=5) |
-| Poll: Democrats have no idea who their leader is - Politico | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFB4VTFNRXhHRDItTTJXT0k5Ykdkb2tiQndNd3cxVkhiLXdYSlpTb2NjNjhITzVyakxKSG5yWnR5cExJbVBIZW5BOWZjRnlHZDJ2M0lwa3RmRFc4UlRLN2RJZ0Z2RkQtQV9hUnptWlp3dWNuZUdNcERnaVhjNA?oc=5) |
+| Poll: Here’s who Democrats think is their leader - Politico | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFB4VTFNRXhHRDItTTJXT0k5Ykdkb2tiQndNd3cxVkhiLXdYSlpTb2NjNjhITzVyakxKSG5yWnR5cExJbVBIZW5BOWZjRnlHZDJ2M0lwa3RmRFc4UlRLN2RJZ0Z2RkQtQV9hUnptWlp3dWNuZUdNcERnaVhjNA?oc=5) |
 | Supermarket Billionaire Threatens To Cut Workforce, Move To Florida After Mamdani’s Win - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMi8gFBVV95cUxQTFlVVFN0ZTA3RVFpbkh4bmxtSkxmcXdWUmZfT0tiVm5Da1lmQkltNWlLVmhNamtJZU1ndjlnMkZjMUtYWnNtdmFOc1pKcjFPSFJ3RE11MlFtblpZLTRXZnZhUFJSczVXZXJaVVQ3RVJtaDlNZVhCTXUwTEtQMXJwT2pFS0RGY0psaXp6a0ZrdWstRVNmeDNKNEtlNVN5Y2V6TnVnNnZYWHc4T2VZQkhSVDFOV3kzc0s5Sm1teU5uNjdJaU5vZG50czJBNi1tVUliM1dwb2RFRW5teDMwdlZZQWFxQW84LW9WT2RMZm1YYmh1QQ?oc=5) |
 | The FAA's order to cut flights due to the government shutdown is set to take effect - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNZlFWYXdZV3dIWG1JTEZwcnpRRlcxWW5sOXVQemNDUWNJcFFqaHlJWG1SbTN0OENFNnh5a1N1VDdwZDNQdm1LRlpTbFR3ZDc2QlVfZnY2R2Z5QVg1SlU4X0MxYktVbnVDbDg1V25SOENVV0d2YmswWmtuY19xWTVHbnFB?oc=5) |
 
