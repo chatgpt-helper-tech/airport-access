@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月08日 19:57:48（北京时间）**
+🕒 更新时间：**2025年11月08日 20:00:03（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | In Israel, Mamdani’s win in New York stirs alarm over shifting US attitudes - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQS1IzMjJHbkhZcU9WZjRZam95cDhNTUhjdTQtc09yZEg0b1NZRWJrUWtHZGk1TFpRUFcxd2t6a1c1ZC14M25YUXpxZjF1cnFjSkI0Nm55Y1FFR3FKdFBpSmlLMDB6Qkd0c3RlQm9RSTZpS3VtZXYyeTVaa2ZSdzc3eXFkNE5id0xTc2QtcDVaVC1OLU1wY2sxQ2o1TTFscWlkbG1pSlZXamFUNmoyRXNF?oc=5) |
 | Flights canceled at 40 U.S. airports: Follow live updates as FAA cuts to air traffic take effect amid government shutdown - Yahoo | [阅读全文](https://news.google.com/rss/articles/CBMi_AFBVV95cUxQM0J2SWRCcUpWX1J2QlF5X3duekhTRHpHWjBJMlFLbjBYUzQwN1ViUXhDZzM5NFF4NjY5RjNvWmt1dTVBbFQxV25iUWNNT3JVcWVnMnZ0UkxTS1dWOGViYWpZeUktbTlXTnlUTnczdWxWTVRkQTd3OHZvZFhkZVFtRVQ1bGtBUk1NX0xSVHQ0NmJGV0s0ODZRREt3WFhMc1hlLWd0VWFZYkNJQmxuTEc1czVXdXhmRUtuU2tXUjN4OVpQYlNEb05Od1BlcFNoa2JkYUJza0x4bGlNM0xnV1REcmpJRjlhZExBRkNPXzR5UVJkSjNRTXhURnZnNEk?oc=5) |
 | Trump gives Hungary one-year exemption from Russian energy sanctions - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE02WFZ6a3ZBVk8yTTduenJlbUxCdV93VktpU1FxX0cwVlpPZGpRQ1puVVdDOERocndZei1iYmZMYTAtbWktWG1GNE03bkI5SkdBeGw1T0JhbkgzQdIBX0FVX3lxTFBpUF8zVklDT21hYmJOSi03Z1RubkV3UTlvMUY5YTV2aDVtaEFXQzhia3ZGQlc3Yl9uTlZ1RV80ZW9lSGJSTDRCbzFJUFNTcHhzaHg5RWw3bnBtSXBqVmJB?oc=5) |
-| James D. Watson, Co-Discoverer of the Structure of DNA, Is Dead at 97 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBRZEVBWE5ZemJzcV9sTXo4dFFONUZfcGplMnFCNm5Bc1doVmdpSF9wZ2hGVXBIY0U1bWdGYUg5YmhCRUdNME5Pb0dyaHFzWEZ1NG9nWHFBMG9yNVVsSFY3ejNxNk1tdmhGNDVNQ2NXa1pNUWM?oc=5) |
+| Trump says GOP would never lose an election again if filibuster is eliminated - Axios | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOQXY1azBTREl5aFpLaFF1TDl4QmQ4M3c3eTFlWGgxQWlFYXcybEN0Y1dBQzRXMkpBdVNxUVJvSE9Jd2RaMjZmbEZYRUtJQ2hlV3poWkp3SlFJbllYXzVSY3V3WnhUWHRIaXdqQXhSeDJYYzlEYmx5di1FdEdkQm1iSllxOWpqWTJybU9LQ0dsMkR0XzVWblE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
