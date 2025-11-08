@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月08日 07:57:07（北京时间）**
+🕒 更新时间：**2025年11月08日 08:00:43（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump orders Justice Department probe of meatpackers over prices - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiW0FVX3lxTE5pckFhWkxyUzFIY3VMR3F2Q3hlOFJZb3RVa0Rfb2pjTnRzWkV3bHdWRmxTeTIxUGZxNjhwN3BoeUpDZmlSTFRvZTQyckRsSVU4a1BCTjA2aGV4blE?oc=5) |
 | Supreme Court weighs longshot appeal to overturn decision legalizing same-sex marriage nationwide - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNN2o3cDh2emZwSUVDVUpCaUx0aTlyVl9iOUVCOXdOMm9vUHpHcS1KM0pNbUFwT3ZVazI3OTI5OXJiZ1NCVXlxd09jTGQ2dmstbGQ4X1gtY3Q3RU1QUHM0bHlISzdiRkcycnY5NU9Qa0NfMG9vaHVHNmtHZUNVTDRQS0NQc2ZpQzZ5Yi1fajVyLWVVd29FaDZQdHdSdm1KeUtLWExJ?oc=5) |
 | DHS Sets the Record Straight on Misleading Video, Leaving Out Key Facts Including that the Woman Arrested Repeatedly Stabbed Her Coworker with Scissors - Homeland Security (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxORVNXYVZOMHZVd0V6T2lOMmZuX2x4WWc2NjRPNDdvTU1TcGdPM0RVZnVWdGJLVllhNG1XY2JpV0MyMlZqOU5xWmtOYU5iNmlzeENnLXJiUDZ0Q3pybVZfdU5KdFRCYkkxOFRReFQtOEJoOUlsejZCZWFqcXIzS2p2T2xVMENDYlFGYjZvRjlwWFdYUE1ReDhFYTlOUnpuUVloenJHdEFsVm1YUjc3ajkzM2U4dHNUZw?oc=5) |
-| Flight cancellations ramp up as airlines scramble to comply with FAA order to cut air traffic — live updates - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxNNFpqekZEZTdsWTdjSzFkNzU5NWpTSGpVSl8xbmpFX2t0MmJ2TlNKZzl2Rjk0dWM4Z0p4OE5kMk54T0t2NFZJekYySUpsY1JCNlFSR0JuRXpRRUllc0lGNXNqNnpHdGlGWGp6VW5tYzlleFotVEkyeGw1S1ZOTU8wY3U1cDFKRGQ2aWUteFFkTV9oV2FzNi1r0gGcAUFVX3lxTE4zTm50b2cwVENCVW82Y2FkLUduS0xaTjVyVWUyWnVaTkZWWHhLNDhhaGZwUjRkcnFHakhyR1BwWnI1ZDUzVmo0VlRORXpHZXdSbjV1UXZ4TExaN1hURmI1YkEtelRCOXg1ZnVsLTNXVG54a21HTjdXbExOOFYzNHRvTXRQUG1zLW41VG0xa2J3bkQtMmctNTUxQnZ2Vg?oc=5) |
 | Trump says GOP would never lose an election again if filibuster is eliminated - Axios | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOQXY1azBTREl5aFpLaFF1TDl4QmQ4M3c3eTFlWGgxQWlFYXcybEN0Y1dBQzRXMkpBdVNxUVJvSE9Jd2RaMjZmbEZYRUtJQ2hlV3poWkp3SlFJbllYXzVSY3V3WnhUWHRIaXdqQXhSeDJYYzlEYmx5di1FdEdkQm1iSllxOWpqWTJybU9LQ0dsMkR0XzVWblE?oc=5) |
-| A lesser-known Farmers’ Almanac will fold after 2 centuries, citing money trouble - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPM09xdWZTdHZjLU9aT1JnTDRtT2x2M2Z5aU4xMW9JZ0ZPQkdRMnBNM0VQc1Zha3JRSTl5WWVvT3lQdVF6SUw3S3RTWExSME9ZaGgydkdoSXJvN2hUNVF1M3FHSFRSVmJxSlFoamtPbXh3aUZxcnhMMXp5UERDaDQxNVd6RDdjcEIyM3YtbnY3M0dWRGdoQ3NEOU9R?oc=5) |
+| Letitia James asks judge to dismiss charges, arguing they are the result of Trump’s personal revenge - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFA2VndpeDR4MzhCYVVhU0JQNVkxbmFMNk1JTk1DWFc4bjNEZmxhTkVfbFk3SVpySjc1bVoxQmJOcTZQSG9ZM1JkNFBmT1d0WVZCeDVidXV1ZG1RUXlwNFFhZF9GZHpYZGJmM3BSMEVtaHVhb19FSWJtajRnTQ?oc=5) |
 | Food banks are in 'disaster response mode' due to shutdown and SNAP cuts, leaders say: 'The damage gets worse and worse' every day - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQU1pYdExzTU55MGdXRkNtOXlOM2lIQjNKMll2UHMtcjc2OHJoLWtXZm9YUjdtNDA1QWswUm1XbGx5V0VRVEZtVXZxNllnbUNUQ0ZhYmhHVC00YmtFU2h6QW1oa3ZuTUUwQlFxUWt4dUpzM04yVXBJQTMtNndxMWNmZmVWdlZXYjdQWXhwdV9Fb2tLRmtSY1dGeHo3R0JocU01UnJSZkY2VUg0THJiWXhPSnd3UFFna1VUaW9R0gHAAUFVX3lxTE9XWEVTdS0yeDF2LWZ4MVlSN2NRb2E3bklQcW0tcUVLWG1jTE92TGppaWVEMGlreG82NW5vdUU5enV6Yy1fYTQyY3NtV2JIQ0d4RWF0bmE3aGNTY2hMcnpEYUtJNEowc2l1SXVFQzBaYzF4Qm9LWkVjZEZIMkYwVEJDQVh6VXVhWlBKb2h4Z1Y4MmtzX3dCVTktd0p5VkNSbVBXM0l0UERJektUVFJsR2M4U3k4RlhPNGRUYnNSQkR0dw?oc=5) |
+| Judge orders Education Department to halt ‘partisan’ employee email messages - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPT2F3LUdSUTFhaXZUYy1Kd3YtbU80bXRsOFlpVXc0LXhBY0ZMWWd5a05SaDhPTWFodHdzaDJIU29BMi1vai1BRGxOd21idjJ0WlRKWlFqWWZ3ZFJuM3FDVDBoaUw4SV9nZG5HbFVINWFyWDc5YUxVbVY2S3pFeVVnV1dTckwwRm5Zanl4b1FmUzMxeVNJbEFLbW4wQVhWQWVxUXdfQ19jeFVHaGNNYWwxcXlPUTlKczlUU21ndjM2bk1mUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
