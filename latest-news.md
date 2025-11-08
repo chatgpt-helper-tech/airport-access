@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月08日 11:56:16（北京时间）**
+🕒 更新时间：**2025年11月08日 12:00:55（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Supreme Court temporarily blocks full SNAP benefits even as they'd started to go out - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxPWTBvRVItcUJYSk9QMWVkTTJnRDYxYmRQU0ZDcWFkQ2hEcnVSWTNXemhFUGhZRnhRNDUtUElyZDQzakdhYjBRM2dJSWhoRE00bUZiTnBvRjAyVWRucGZGZW1GdVRwSmtzbDIwR0p1TFdidjVrcUl6aUVFOTlZUXdTVlluRjFrOFdVdTFaY0RB?oc=5) |
 | Senate Democrats propose 1-year Obamacare subsidies punt in new shutdown offer - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQWjM4WU5HRGtaX2loam45RjZRQ2pjck50R09MRC1SdkNBMHRRZGtSUXFsYk9pQUFXR2M1ZzlSZ1NTQnJfNHBQemlpd2pRUWFEeGQ3ZnRxbXlNNURxYjFIUFotLXN2b1BWc2RqbUszaEpxTlVMa2NQb1dKV3FWQ1VjRTlrVzcwMXpUYml6QkpDeWtvNFJTVFMyazVTd1R3bVhSYWc?oc=5) |
-| ‘Huge victory’ in Portland as judge’s final order bars Trump from sending national guard - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxOUzZmdFBJX2VvMnNaUHpISVRPaHIyWnBZaGxnSUx0a003NEtYa192YWZkU2JTMnFnbjlOQ3FadDVQWm1GUGdVOUgxLXc4SlJmRWNrcUIxeXA3b0NTLUdjOTRONUItY080T21HeU5yeUhLX29pWFl2RHNGM1M0aWI5YkR3T00tQnZoMDIxM21DZVBFVnM?oc=5) |
+| Judge permanently bars Trump from deploying National Guard troops to Portland in response to immigration protests - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQQWdXQmRXdE9jUy1pZzZneVlSS0dvLW9wQjhYam1vbXhRNzl0M1R5QzhxWm1jU1pvbGF5TWVnNmlMc1k0bEN3bW9GX0tHandaQ19ZNjJrSVFyU3NUVkpjNnFnblAwdlk2OG9KZk4zU2RQWXhXUUYycFBpOTU3NldvYVlacGs3ZVF1dll1cDc0MWVxLS0yQ1cxNEpMLVp3alRuX0xwbTU1Q0NNNXpTRW03ZWRUVkV0a2RL0gFWQVVfeXFMUGx0amlia0I0Z3pnaEtQNU41R29yUnBaSVNvenhxdTdfMXdMZnY2UjJuSThrYjZZbWkzRl9ta3FCY3RlY3NpY0ltd2Z2b2dUT3hhQWxldnc?oc=5) |
 | Trump considers giving Hungary an exemption on Russian oil sanctions - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE02WFZ6a3ZBVk8yTTduenJlbUxCdV93VktpU1FxX0cwVlpPZGpRQ1puVVdDOERocndZei1iYmZMYTAtbWktWG1GNE03bkI5SkdBeGw1T0JhbkgzQdIBX0FVX3lxTFBpUF8zVklDT21hYmJOSi03Z1RubkV3UTlvMUY5YTV2aDVtaEFXQzhia3ZGQlc3Yl9uTlZ1RV80ZW9lSGJSTDRCbzFJUFNTcHhzaHg5RWw3bnBtSXBqVmJB?oc=5) |
 | Final moments before UPS plane crash detailed by NTSB - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPa3EyZjZpVFB0dm9UMHYzeFRBX19jeWZGQXJiQUJ4VU1yUHIyWXNxd082UjM5M1ItaVZlMi15OVVVRTNVcVJuZDVJZ2ZBMHJteUw4dGtuUVI5eFJIS292OTFfRXVvd3c4SlJ2WHBvRnBJdGEySmh2MGNXRm5NTVUxQVlYaDd6ZjBSTEhPWEhKSkpId9IBlwFBVV95cUxNa24wbkNjTXRYeVd0bkRFT1U0RHVRcVVlUVRKaTVtdVVxMmVQT19XWHNNLXpxN0dCTzJIN0d0M2EwZmlsZ0EwNWY4a2tRSDZ4N1dGMGNfLW45dXZ2RlhXVnhVTmxQalpOM28xcVdxbUNqOHh6b1Y5dk5uMlBHZUZmc0MyS1FTQ0hvWHdfUjVxYTgwR1N1eFg0?oc=5) |
 | Supreme Court weighs longshot appeal to overturn decision legalizing same-sex marriage nationwide - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNN2o3cDh2emZwSUVDVUpCaUx0aTlyVl9iOUVCOXdOMm9vUHpHcS1KM0pNbUFwT3ZVazI3OTI5OXJiZ1NCVXlxd09jTGQ2dmstbGQ4X1gtY3Q3RU1QUHM0bHlISzdiRkcycnY5NU9Qa0NfMG9vaHVHNmtHZUNVTDRQS0NQc2ZpQzZ5Yi1fajVyLWVVd29FaDZQdHdSdm1KeUtLWExJ?oc=5) |
