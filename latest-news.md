@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月08日 15:32:56（北京时间）**
+🕒 更新时间：**2025年11月08日 15:40:11（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | Blame game over Air India crash goes on | [阅读全文](https://www.bbc.com/news/articles/c33pzypkkdzo?at_medium=RSS&at_campaign=rss) |
 | Why we went undercover for the BBC to expose crime in the Kurdish community | [阅读全文](https://www.bbc.com/news/articles/cy5qgyx6e5xo?at_medium=RSS&at_campaign=rss) |
 | UK seeks Danish inspiration to shake up immigration system | [阅读全文](https://www.bbc.com/news/articles/cm2lknr2d3go?at_medium=RSS&at_campaign=rss) |
-| US firms ground some cargo planes after Kentucky air disaster | [阅读全文](https://www.bbc.com/news/articles/cx2pr5y7p90o?at_medium=RSS&at_campaign=rss) |
+| US firms ground MD-11 cargo planes after Kentucky air disaster | [阅读全文](https://www.bbc.com/news/articles/cx2pr5y7p90o?at_medium=RSS&at_campaign=rss) |
 | DNA pioneer James Watson dies at 97 | [阅读全文](https://www.bbc.com/news/articles/cn8xdypnz32o?at_medium=RSS&at_campaign=rss) |
 | 'We had to create a human chain to evacuate' - Jamaican hospital rebuilds after hurricane | [阅读全文](https://www.bbc.com/news/articles/c20p87m541xo?at_medium=RSS&at_campaign=rss) |
 
