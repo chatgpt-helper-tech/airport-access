@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月09日 00:01:11（北京时间）**
+🕒 更新时间：**2025年11月09日 00:09:52（北京时间）**
 
 ---
 
@@ -12,9 +12,9 @@
 | Chatbots encouraged our sons to kill themselves, mothers say | [阅读全文](https://www.bbc.com/news/articles/ce3xgwyywe4o?at_medium=RSS&at_campaign=rss) |
 | UK seeks Danish inspiration to shake up immigration system | [阅读全文](https://www.bbc.com/news/articles/cm2lknr2d3go?at_medium=RSS&at_campaign=rss) |
 | Woman critically injured in 'unprovoked' stabbing attack in Birmingham | [阅读全文](https://www.bbc.com/news/articles/cj3z7z6x32eo?at_medium=RSS&at_campaign=rss) |
-| Davina McCall reveals breast cancer surgery | [阅读全文](https://www.bbc.com/news/articles/c74j7v1d9g9o?at_medium=RSS&at_campaign=rss) |
-| US to boycott G20 in South Africa, Trump says | [阅读全文](https://www.bbc.com/news/articles/ckgzek4rl8lo?at_medium=RSS&at_campaign=rss) |
+| Former Top Gear presenter Quentin Willson dies | [阅读全文](https://www.bbc.com/news/articles/c2lpww7pw72o?at_medium=RSS&at_campaign=rss) |
 | You can now book online to see your GP. But not everyone is finding it easier | [阅读全文](https://www.bbc.com/news/articles/c8x19k50dlpo?at_medium=RSS&at_campaign=rss) |
+| Davina McCall reveals breast cancer surgery | [阅读全文](https://www.bbc.com/news/articles/c74j7v1d9g9o?at_medium=RSS&at_campaign=rss) |
 | How Trump could hamper Zohran Mamdani's New York agenda | [阅读全文](https://www.bbc.com/news/articles/cvg4337rxy1o?at_medium=RSS&at_campaign=rss) |
 | Behind the facade of 2000s girl bands - 'at one stage we were on drips' | [阅读全文](https://www.bbc.com/news/articles/c205zwv2dpzo?at_medium=RSS&at_campaign=rss) |
 | Who are the real winners of Celebrity Traitors? | [阅读全文](https://www.bbc.com/news/articles/cwy1w0lj44ro?at_medium=RSS&at_campaign=rss) |
@@ -28,11 +28,11 @@
 | UPS and FedEx Ground MD-11 Fleets After Deadly Kentucky Plane Crash - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPakp2X2hzZ1BsWFM3ZW9VbmhmTDFsZXZ6ZGhVd2NFT3Fiai1DNmg1dVZqWXN0UHMxV1VnZ0xlUEhCNEw1VEJpalZLMnJDMEN5aEM0b2NRbW1nOGI2NDBXa0RVTFNOemR4OHlQMEZ0TmJTRlFsOWRoOGV3M2dkRHBBbGdFQXVhRkFMdDRjSm04VGlqX1ltdlVsNjFVYnZYSzFoVWZMX2JlOA?oc=5) |
 | Supreme Court weighs appeal to overturn ruling that legalized same-sex marriage nationwide - PBS | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQOC11SFo4T1dqa19sMjVEeHhONTRyNld0VzU3elBFbWpEM0lFeUUybHpuUE5JUWhyZElJZWdFMERIQVZBYWx5eVItdWtYYWtHVmFNY3E0VXVIZWZzY09nXzhZakdCVFhQYTZ2UmJzZjRfYXBNUWdUZmlvSklnNFRrTk9rS0tiZ3lOeWRYR19zQVhRME82aF8xRU51RU9rRFRXUEJYOEx5MEUzZS0wSE1nM2gxZDhmbm1UTmpDNURaQjNHUGc4TFp30gHMAUFVX3lxTE9YMURXcXpVTndHMXg4YU9NREI2cDlMcGhvd2x3VGc4SkdIY2hFVGhHZVQyN3o3MWRBcDV6ZmNwX2hPYUpIaXVodjRHRmo0WEZMamVlSFRMVnd3bnF3OXQ4T1o1NGtRRGF4dDI2VFN0dGxOTWYtaFNfRzR4cDc2Y0FmbXJ5Y1VvQ1FVNlVlMVFwVVVUak9RZS11NGhnSF9rS1RyS0VUVV9ZTVJNRTgtTE5nQnpsLXFzQ01CcTVMdDZiMk51RXZsXzQtVXVlcA?oc=5) |
 | Biden says Trump has ‘taken a wrecking ball’ to democracy in sharp criticism - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNci1taWI5RnJPaVdlMUI2a3daM1Jteno3V2Uwb3BIR2p1dHpjUXFsUkVBY0g1NXJPMG1zUTg4SlFwd3Rjb0hyWWlfd2RlXzFsM2xpWENoSXhFcGZQMVNoT1pta0Njd1YxRG96ODZVWlR3cG1URGEzMEJ4cGpjYTlSWg?oc=5) |
-| Ghislaine Maxwell's prison emails show she is 'happier' at minimum-security Texas facility - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOSjdSVDgxbkJvLW5WakdxQjlvakFLcGUtdnJLelNpM09Oc1BIdVJIR05ISGEyQ0NrU2tzUjNxalVOQ0ZmeFBaZV9iUENyQkhyNGduVmo5THZVQlJNNHd6V2xYUjJVNWFfYlhuSUZxS3MyS3JxNnVqSXlYVUd3NnBIa3pvYVF4STRHdEVfTklJY1MtWkZDSkNweXkzajh0V09IOFVHbU5OWF9wclNq0gFWQVVfeXFMTjQwWVVzSXRnR3ZCSXdfZFRubXNhMTY5LUE3Z1Q3ZGtvVE94ZXp4RUJ0b2JDZ3hTaGc3Y1NWdklsU3BybE9CbWZOSl9hdThsSFBYSnJWZ1E?oc=5) |
+| Philippines warns of deadly storm surges as Typhoon Fung-wong nears super typhoon strength - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxOSEVwN0I1dW5CU18xdHM3NldLLUdBVnFYUzdTRUo4WjhRWnN6Y3MyRDhlc1JtVWRkYTR2MUZ5Qy1BMzBGYVB1d0FrcGN0RVpSVGpzUlg0ODc5SHU2OG9rbi1wN1VCNzdULXE2bThuLVJEaDFDZzBmTXJyQzVFSFhOU3paOEJlNV9ZT05DRUdtQmc4N253TjYzdzlOV0RLb0JUTzRXVDIyMk5XcmY4S1d3UXM1cTlhZVZGTE44X3liWGNsUUxZZWd2Q1RkQjk?oc=5) |
 | Democrats swept elections far beyond the big races in referendum on Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQcGNfZThjSkJQanJtZHQtZXplWXFQaUxGZmVNRUlPSWtWWFliU09hQ3NLeUtRZHR6ZmFZbkNJUmZJLUpmM0twNHd3UXlfQ2ZZM05zWGFTOEl3YUltaGlYWk5xQmQwb2tnVVRNMWRZaFJwVFc0Y3ozN2FZR0RMcFNuMHJjV1oxNDZSLUJDRmJoOEg2UQ?oc=5) |
 | From Bollywood to bodegas, Mamdani’s mayoral campaign found visual inspiration in unlikely corners - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPUmkxR2o1SUN4blhFeGpTaExvTTVfTnNFMlVzZE5HS0pSQy1MT2kxZFdDX0lYOTNzV0lKMlowLTh3SXN1UWVkR1B5UDJ2XzFqT2dUZFk2ajVKeDF0QzlkRlY0VnFJOTdaRTJOTW5ibDluckYzNGF5U2s5bHh3OTgwOERuTjhfTEpaUFdBVkx5S2dVS014T2Z2Zno2WkZsdjZscDlKWEEteFBaekZ2?oc=5) |
+| Ghislaine Maxwell's prison emails show she is 'happier' at minimum-security Texas facility - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOSjdSVDgxbkJvLW5WakdxQjlvakFLcGUtdnJLelNpM09Oc1BIdVJIR05ISGEyQ0NrU2tzUjNxalVOQ0ZmeFBaZV9iUENyQkhyNGduVmo5THZVQlJNNHd6V2xYUjJVNWFfYlhuSUZxS3MyS3JxNnVqSXlYVUd3NnBIa3pvYVF4STRHdEVfTklJY1MtWkZDSkNweXkzajh0V09IOFVHbU5OWF9wclNq0gFWQVVfeXFMTjQwWVVzSXRnR3ZCSXdfZFRubXNhMTY5LUE3Z1Q3ZGtvVE94ZXp4RUJ0b2JDZ3hTaGc3Y1NWdklsU3BybE9CbWZOSl9hdThsSFBYSnJWZ1E?oc=5) |
 | Pete Hegseth Takes On the Military-Industrial Complex. (Guess Who’s Likely to Win?) - Slate | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPbXZZNlppMEkxVm15UVZqWUJTUlluNzFhWDUwYUpDMzZhUnBOanp0eF9PYkZ5TndJVHZ3cVUzMmhFUkF0dWVjc3BKR3RFanhjLW1ydThpakNtRC1GbjczY01ZUGVYMlc4ZW1scE9Iem1vMU9Ha09CX2gzOEx4Tzl1dGdPWDBycnBxcFduVF9hQ3Vrai1uNEc1VQ?oc=5) |
-| Trump gives Hungary one-year exemption from Russian energy sanctions - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE02WFZ6a3ZBVk8yTTduenJlbUxCdV93VktpU1FxX0cwVlpPZGpRQ1puVVdDOERocndZei1iYmZMYTAtbWktWG1GNE03bkI5SkdBeGw1T0JhbkgzQdIBX0FVX3lxTFBpUF8zVklDT21hYmJOSi03Z1RubkV3UTlvMUY5YTV2aDVtaEFXQzhia3ZGQlc3Yl9uTlZ1RV80ZW9lSGJSTDRCbzFJUFNTcHhzaHg5RWw3bnBtSXBqVmJB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。

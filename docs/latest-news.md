@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月09日 00:01:11（北京时间）**
+🕒 更新时间：**2025年11月09日 00:09:52（北京时间）**
 
 ---
 
@@ -12,9 +12,9 @@
 | Chatbots encouraged our sons to kill themselves, mothers say | [阅读全文](https://www.bbc.com/news/articles/ce3xgwyywe4o?at_medium=RSS&at_campaign=rss) |
 | UK seeks Danish inspiration to shake up immigration system | [阅读全文](https://www.bbc.com/news/articles/cm2lknr2d3go?at_medium=RSS&at_campaign=rss) |
 | Woman critically injured in 'unprovoked' stabbing attack in Birmingham | [阅读全文](https://www.bbc.com/news/articles/cj3z7z6x32eo?at_medium=RSS&at_campaign=rss) |
-| Davina McCall reveals breast cancer surgery | [阅读全文](https://www.bbc.com/news/articles/c74j7v1d9g9o?at_medium=RSS&at_campaign=rss) |
-| US to boycott G20 in South Africa, Trump says | [阅读全文](https://www.bbc.com/news/articles/ckgzek4rl8lo?at_medium=RSS&at_campaign=rss) |
+| Former Top Gear presenter Quentin Willson dies | [阅读全文](https://www.bbc.com/news/articles/c2lpww7pw72o?at_medium=RSS&at_campaign=rss) |
 | You can now book online to see your GP. But not everyone is finding it easier | [阅读全文](https://www.bbc.com/news/articles/c8x19k50dlpo?at_medium=RSS&at_campaign=rss) |
+| Davina McCall reveals breast cancer surgery | [阅读全文](https://www.bbc.com/news/articles/c74j7v1d9g9o?at_medium=RSS&at_campaign=rss) |
 | How Trump could hamper Zohran Mamdani's New York agenda | [阅读全文](https://www.bbc.com/news/articles/cvg4337rxy1o?at_medium=RSS&at_campaign=rss) |
 | Behind the facade of 2000s girl bands - 'at one stage we were on drips' | [阅读全文](https://www.bbc.com/news/articles/c205zwv2dpzo?at_medium=RSS&at_campaign=rss) |
 | Who are the real winners of Celebrity Traitors? | [阅读全文](https://www.bbc.com/news/articles/cwy1w0lj44ro?at_medium=RSS&at_campaign=rss) |
