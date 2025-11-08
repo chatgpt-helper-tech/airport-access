@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月08日 23:49:12（北京时间）**
+🕒 更新时间：**2025年11月08日 23:57:16（北京时间）**
 
 ---
 
@@ -14,10 +14,10 @@
 | Woman critically injured in 'unprovoked' stabbing attack in Birmingham | [阅读全文](https://www.bbc.com/news/articles/cj3z7z6x32eo?at_medium=RSS&at_campaign=rss) |
 | Davina McCall reveals breast cancer surgery | [阅读全文](https://www.bbc.com/news/articles/c74j7v1d9g9o?at_medium=RSS&at_campaign=rss) |
 | US to boycott G20 in South Africa, Trump says | [阅读全文](https://www.bbc.com/news/articles/ckgzek4rl8lo?at_medium=RSS&at_campaign=rss) |
-| Who are the real winners of Celebrity Traitors? | [阅读全文](https://www.bbc.com/news/articles/cwy1w0lj44ro?at_medium=RSS&at_campaign=rss) |
+| You can now book online to see your GP. But not everyone is finding it easier | [阅读全文](https://www.bbc.com/news/articles/c8x19k50dlpo?at_medium=RSS&at_campaign=rss) |
 | How Trump could hamper Zohran Mamdani's New York agenda | [阅读全文](https://www.bbc.com/news/articles/cvg4337rxy1o?at_medium=RSS&at_campaign=rss) |
 | Behind the facade of 2000s girl bands - 'at one stage we were on drips' | [阅读全文](https://www.bbc.com/news/articles/c205zwv2dpzo?at_medium=RSS&at_campaign=rss) |
-| You can now book online to see your GP. But not everyone is finding it easier | [阅读全文](https://www.bbc.com/news/articles/c8x19k50dlpo?at_medium=RSS&at_campaign=rss) |
+| Who are the real winners of Celebrity Traitors? | [阅读全文](https://www.bbc.com/news/articles/cwy1w0lj44ro?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -26,13 +26,13 @@
 | Supreme Court temporarily blocks order on releasing SNAP benefits - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxNN3NibWg5Qm5UUHZfUE1sLWphdFBab0h1NjN3YUl6LWVYQ0I1UjRqMURpQlA4ZUg1R2lrclVYWHpDOEJ4X3huUFZpc1k2Wjc1S2I2eVdJNV9uMDA2VjZkeWhlZ0xKYmJOb3I1Vk9lOHJFSFJINDVYNEZUeW5Qa3JrcTRpdGtRMTVpRERqZ1dqMThHcVNVUGlBYWd3?oc=5) |
 | Judge permanently blocks deployment of National Guard to Portland, saying Trump exceeded his authority - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxQYXdYLXpZamxIZ1Y5eWZTX3UzSS1sN09SRzV1ekstRmtSMnNDSU1zaGtOYkdPUG1SNmhwWVNsUWsyZ2Q3bW5qUUd0M1MybHZsa0hObWNxbGk4azZtTHRDaWRiNHc2OGkyYVFoUU5BV1loVVFtWkVFZm9IOVVlMjVpeFJHNDVHNW5KQmJwcmI5ZjhUQ3dmUjJNajA4cmd2Ui1jX0xFYk03NXdGZjZtOHIw0gG0AUFVX3lxTFBFdWJiVnBhcTRhaV9JWlQ3VV9Pd1gzZTdUZnBxSnY0bnpBT3o4TDZqQTBwb2YzT2M4RDFEZktYM1JZQnZBRTZGdUZ3WWQ0RjZ1c0ZsUjBoVE14Wk10bmpxNzREdW9OcGc2bk9HUHo2NTlqYzZpYlRUMm1Ba1hlcmNUSmNpQW1pb3hHVTNSdnpxUjNUaUJaYWREcm9SVzI3cGJMVUVqakw4M1JTSFZXVGZTX3RaRA?oc=5) |
 | UPS and FedEx Ground MD-11 Fleets After Deadly Kentucky Plane Crash - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPakp2X2hzZ1BsWFM3ZW9VbmhmTDFsZXZ6ZGhVd2NFT3Fiai1DNmg1dVZqWXN0UHMxV1VnZ0xlUEhCNEw1VEJpalZLMnJDMEN5aEM0b2NRbW1nOGI2NDBXa0RVTFNOemR4OHlQMEZ0TmJTRlFsOWRoOGV3M2dkRHBBbGdFQXVhRkFMdDRjSm04VGlqX1ltdlVsNjFVYnZYSzFoVWZMX2JlOA?oc=5) |
-| Democrats Scale Back Shutdown Demands, but G.O.P. Digs In - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNUGt4SzZOc1dWbWVnT2xZQ1FRSC13eDZ5UlA2RWl2emFndUxuNTZoZXg3eUFDZzdFNmMyRy1GMVFpUFE4X3RhdXpBZGtwcjJRQWZ5MTAxSmVvbHVhaEstZUNzNld5RExDdUw0Zi1VckFLUFNPbUF2UzFmZk1La1JOblNhUWUtOWlldWdYXw?oc=5) |
 | Supreme Court weighs appeal to overturn ruling that legalized same-sex marriage nationwide - PBS | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQOC11SFo4T1dqa19sMjVEeHhONTRyNld0VzU3elBFbWpEM0lFeUUybHpuUE5JUWhyZElJZWdFMERIQVZBYWx5eVItdWtYYWtHVmFNY3E0VXVIZWZzY09nXzhZakdCVFhQYTZ2UmJzZjRfYXBNUWdUZmlvSklnNFRrTk9rS0tiZ3lOeWRYR19zQVhRME82aF8xRU51RU9rRFRXUEJYOEx5MEUzZS0wSE1nM2gxZDhmbm1UTmpDNURaQjNHUGc4TFp30gHMAUFVX3lxTE9YMURXcXpVTndHMXg4YU9NREI2cDlMcGhvd2x3VGc4SkdIY2hFVGhHZVQyN3o3MWRBcDV6ZmNwX2hPYUpIaXVodjRHRmo0WEZMamVlSFRMVnd3bnF3OXQ4T1o1NGtRRGF4dDI2VFN0dGxOTWYtaFNfRzR4cDc2Y0FmbXJ5Y1VvQ1FVNlVlMVFwVVVUak9RZS11NGhnSF9rS1RyS0VUVV9ZTVJNRTgtTE5nQnpsLXFzQ01CcTVMdDZiMk51RXZsXzQtVXVlcA?oc=5) |
 | Biden says Trump has ‘taken a wrecking ball’ to democracy in sharp criticism - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNci1taWI5RnJPaVdlMUI2a3daM1Jteno3V2Uwb3BIR2p1dHpjUXFsUkVBY0g1NXJPMG1zUTg4SlFwd3Rjb0hyWWlfd2RlXzFsM2xpWENoSXhFcGZQMVNoT1pta0Njd1YxRG96ODZVWlR3cG1URGEzMEJ4cGpjYTlSWg?oc=5) |
+| Ghislaine Maxwell's prison emails show she is 'happier' at minimum-security Texas facility - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOSjdSVDgxbkJvLW5WakdxQjlvakFLcGUtdnJLelNpM09Oc1BIdVJIR05ISGEyQ0NrU2tzUjNxalVOQ0ZmeFBaZV9iUENyQkhyNGduVmo5THZVQlJNNHd6V2xYUjJVNWFfYlhuSUZxS3MyS3JxNnVqSXlYVUd3NnBIa3pvYVF4STRHdEVfTklJY1MtWkZDSkNweXkzajh0V09IOFVHbU5OWF9wclNq0gFWQVVfeXFMTjQwWVVzSXRnR3ZCSXdfZFRubXNhMTY5LUE3Z1Q3ZGtvVE94ZXp4RUJ0b2JDZ3hTaGc3Y1NWdklsU3BybE9CbWZOSl9hdThsSFBYSnJWZ1E?oc=5) |
 | A year after devastating Trump loss, have the Democrats begun to find their way back? - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1wanZpSzQyWlY2dF84aVN5TE01bTgxZnZ3dXVTU2JXSE9GSVRMNTd2V1VBSVdleWVSUFhoQ1FTV1NvVF9EeUpmcWFzOHBBZHVWaWw4Ujg4MFhEVFZVb1pLbmZzWi1UcWFtMzJSNkphUmYyZlRVeElyOXJxMXpMdw?oc=5) |
 | From Bollywood to bodegas, Mamdani’s mayoral campaign found visual inspiration in unlikely corners - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPUmkxR2o1SUN4blhFeGpTaExvTTVfTnNFMlVzZE5HS0pSQy1MT2kxZFdDX0lYOTNzV0lKMlowLTh3SXN1UWVkR1B5UDJ2XzFqT2dUZFk2ajVKeDF0QzlkRlY0VnFJOTdaRTJOTW5ibDluckYzNGF5U2s5bHh3OTgwOERuTjhfTEpaUFdBVkx5S2dVS014T2Z2Zno2WkZsdjZscDlKWEEteFBaekZ2?oc=5) |
+| Senate Republicans decline Democratic offer to reopen the government as shutdown enters 38th day - Euronews.com | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQX2E5eG42VVkyaE9Oa19pNnBHaXRHb0VJTlM5bDFMcE1yd2YzRjRZZ1Bsd0pWUEkzQ2NPdERKczMxbXFIUFVhZ2pMcFA4YUR6WnIwWWRFSHZ4UWptZklpMFc0YjZEUlNiMk03Z213dmxpTElmN3lVMUgzTWt3clk2TEE3ZEROZFp1Um5sUFNPOEJtU0lEZU1zNXAtUWZaTW1JTV9OTnU5cXo3akNaanQ3OUx4cU11Q3NUcGFfdTJFLUhhM1NB?oc=5) |
 | Pete Hegseth Takes On the Military-Industrial Complex. (Guess Who’s Likely to Win?) - Slate | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPbXZZNlppMEkxVm15UVZqWUJTUlluNzFhWDUwYUpDMzZhUnBOanp0eF9PYkZ5TndJVHZ3cVUzMmhFUkF0dWVjc3BKR3RFanhjLW1ydThpakNtRC1GbjczY01ZUGVYMlc4ZW1scE9Iem1vMU9Ha09CX2gzOEx4Tzl1dGdPWDBycnBxcFduVF9hQ3Vrai1uNEc1VQ?oc=5) |
-| Trump gives Hungary one-year exemption from Russian energy sanctions - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE02WFZ6a3ZBVk8yTTduenJlbUxCdV93VktpU1FxX0cwVlpPZGpRQ1puVVdDOERocndZei1iYmZMYTAtbWktWG1GNE03bkI5SkdBeGw1T0JhbkgzQdIBX0FVX3lxTFBpUF8zVklDT21hYmJOSi03Z1RubkV3UTlvMUY5YTV2aDVtaEFXQzhia3ZGQlc3Yl9uTlZ1RV80ZW9lSGJSTDRCbzFJUFNTcHhzaHg5RWw3bnBtSXBqVmJB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
