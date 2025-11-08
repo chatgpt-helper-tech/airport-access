@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月08日 09:17:33（北京时间）**
+🕒 更新时间：**2025年11月08日 09:24:14（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Algerian sex offender mistakenly released from Wandsworth prison arrested | [阅读全文](https://www.bbc.com/news/articles/c625grkxg05o?at_medium=RSS&at_campaign=rss) |
+| At least four prisoners freed in error still at large, BBC told | [阅读全文](https://www.bbc.com/news/articles/cn51329exkqo?at_medium=RSS&at_campaign=rss) |
 | Trump says he may give Hungary an exemption on Russian oil sanctions | [阅读全文](https://www.bbc.com/news/articles/cp85dvnkpv4o?at_medium=RSS&at_campaign=rss) |
 | Why this woman believed she was Madeleine McCann - and what she did next | [阅读全文](https://www.bbc.com/news/articles/c2lpgz1rx8xo?at_medium=RSS&at_campaign=rss) |
 | 'We had to create a human chain to evacuate' - Jamaican hospital rebuilds after hurricane | [阅读全文](https://www.bbc.com/news/articles/c20p87m541xo?at_medium=RSS&at_campaign=rss) |
