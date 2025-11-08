@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月08日 15:56:57（北京时间）**
+🕒 更新时间：**2025年11月08日 16:00:22（北京时间）**
 
 ---
 
@@ -11,10 +11,10 @@
 | At least four prisoners freed in error still at large, BBC told | [阅读全文](https://www.bbc.com/news/articles/cn51329exkqo?at_medium=RSS&at_campaign=rss) |
 | Trump gives Hungary one-year exemption from Russian energy sanctions | [阅读全文](https://www.bbc.com/news/articles/cp85dvnkpv4o?at_medium=RSS&at_campaign=rss) |
 | Tesla plans to pay Musk $1tn - do they really need him that much? | [阅读全文](https://www.bbc.com/news/articles/c5yp8w5k5q9o?at_medium=RSS&at_campaign=rss) |
-| British ex-soldier arrested over alleged murder of Kenyan woman in 2012 | [阅读全文](https://www.bbc.com/news/articles/c8jrkyzn8dvo?at_medium=RSS&at_campaign=rss) |
+| UK seeks Danish inspiration to shake up immigration system | [阅读全文](https://www.bbc.com/news/articles/cm2lknr2d3go?at_medium=RSS&at_campaign=rss) |
 | Blame game over Air India crash goes on | [阅读全文](https://www.bbc.com/news/articles/c33pzypkkdzo?at_medium=RSS&at_campaign=rss) |
 | Why we went undercover for the BBC to expose crime in the Kurdish community | [阅读全文](https://www.bbc.com/news/articles/cy5qgyx6e5xo?at_medium=RSS&at_campaign=rss) |
-| UK seeks Danish inspiration to shake up immigration system | [阅读全文](https://www.bbc.com/news/articles/cm2lknr2d3go?at_medium=RSS&at_campaign=rss) |
+| British ex-soldier arrested over alleged murder of Kenyan woman in 2012 | [阅读全文](https://www.bbc.com/news/articles/c8jrkyzn8dvo?at_medium=RSS&at_campaign=rss) |
 | US firms ground MD-11 cargo planes after Kentucky air disaster | [阅读全文](https://www.bbc.com/news/articles/cx2pr5y7p90o?at_medium=RSS&at_campaign=rss) |
 | DNA pioneer James Watson dies at 97 | [阅读全文](https://www.bbc.com/news/articles/cn8xdypnz32o?at_medium=RSS&at_campaign=rss) |
 | 'We had to create a human chain to evacuate' - Jamaican hospital rebuilds after hurricane | [阅读全文](https://www.bbc.com/news/articles/c20p87m541xo?at_medium=RSS&at_campaign=rss) |
