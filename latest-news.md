@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月08日 08:16:11（北京时间）**
+🕒 更新时间：**2025年11月08日 08:25:12（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Air travel reductions could increase if shutdown continues, Duffy says - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPTndKR01BbmNjTWZOU0NuMUtnWllBcVBDaF9MWU9GV2FJREVUZnQ2Z0k3YWNDbUFjOXJQZW5GaDNZVG9EaXk5WWtReEZobWxETDRHLW9xNW5zWHlqblBwbWk0UU43b2ZPNm56aVpyajZuQm83UWpwUG9wdnBEM1dzOWEzV0JiVkE3Uk14QXZ1NTk5SS1Bc3BPcFJvZzJKbkR1d2lUU3d30gGrAUFVX3lxTE1YZXdmM0ZXd2g1OHU1VHdkcjJWbWwtdzRBU1h1OEhiTFMwOXNfTTJ1eEJ6NTZhVFVtdGJ0RTZ6SnlWRl80VU5qZTBxMk9CTEt0SFhOUzFEWTZwaUVxaWFKVUtDU2lVb3o3dGxieUZ2WGJKdEs4NHRZU2JtcXlxbkp2cnJXa0Zqcjh5ekZaRHNoUjVEbFRobDZNWjRmc0FvNGJ0eVB0ejctc1lWVQ?oc=5) |
 | Trump says GOP would never lose an election again if filibuster is eliminated - Axios | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxOQXY1azBTREl5aFpLaFF1TDl4QmQ4M3c3eTFlWGgxQWlFYXcybEN0Y1dBQzRXMkpBdVNxUVJvSE9Jd2RaMjZmbEZYRUtJQ2hlV3poWkp3SlFJbllYXzVSY3V3WnhUWHRIaXdqQXhSeDJYYzlEYmx5di1FdEdkQm1iSllxOWpqWTJybU9LQ0dsMkR0XzVWblE?oc=5) |
 | A lesser-known Farmers’ Almanac will fold after 2 centuries, citing money trouble - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPM09xdWZTdHZjLU9aT1JnTDRtT2x2M2Z5aU4xMW9JZ0ZPQkdRMnBNM0VQc1Zha3JRSTl5WWVvT3lQdVF6SUw3S3RTWExSME9ZaGgydkdoSXJvN2hUNVF1M3FHSFRSVmJxSlFoamtPbXh3aUZxcnhMMXp5UERDaDQxNVd6RDdjcEIyM3YtbnY3M0dWRGdoQ3NEOU9R?oc=5) |
-| Letitia James asks judge to dismiss charges, arguing they are the result of Trump’s personal revenge - CNN | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTFA2VndpeDR4MzhCYVVhU0JQNVkxbmFMNk1JTk1DWFc4bjNEZmxhTkVfbFk3SVpySjc1bVoxQmJOcTZQSG9ZM1JkNFBmT1d0WVZCeDVidXV1ZG1RUXlwNFFhZF9GZHpYZGJmM3BSMEVtaHVhb19FSWJtajRnTQ?oc=5) |
+| US judge bars Education Department emails blaming shutdown on Democrats - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQc1RpbWZrWm95ZlBGM1NTTmM4NmYzNE9sZVctSUZtZE4zSWxIbDhLODgzWkZ1UDhMNW9RcExWQVlLbFptMDU5QWdPMW5FNEt4OHl6aEtxeUY5Zl8yNkxubDl5Ymg1ajJmckttZzF5OTZqRXhvb3JyN2w1MEh6WE02RVF1bVN1VndmcEYxUWExT0RabWVkMUV0SWFlS2lkRGpLdkZlQVo3ejg1WG1xQVRITmQ5amM5eG1tVUdNQjN3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
