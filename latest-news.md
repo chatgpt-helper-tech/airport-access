@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月09日 05:24:35（北京时间）**
+🕒 更新时间：**2025年11月09日 05:32:22（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | US airlines again cancel more than 1,000 flights on second day of cuts tied to government shutdown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQcXEzNlVxa0F5ZTV0c3YyQmxJX3p5VDJGdDNjNjg5WFd4aGJ3SWNHVGFidGg2VG80bGJOdk9JN3BvQ2FZbC1vb3NTTWIwUzdOR1JoSTNxZ01GbS1YeS1jVHN2ZzhaNkRET1hXOG9PSFh5amRuWXBscFA4ZFFfY2hfVjB1Tmo4VGNPV01Wc05TZ01rLTE3OTdWSDhZM2RMb2Y2ZW1TZHBVc256N0lfMW5VZmNRaw?oc=5) |
 | UPS and FedEx Ground MD-11 Cargo Planes After Louisville Crash - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBmZDJIbm00MVRjWjZJZmFvalpSX0FnNVIyYnVyZGd5YlI3eVIxUXI5SU9tN2dCOEc4YnZGSUFuYUJiY1VHUE01ZW9fOWV6b0Q5Q1VudjNkbUhGV0pwMm5TdUVhT08yMlJ4OEhOTnJLeDZrdXg1Ni02MnhGOGFaWDg?oc=5) |
 | Democrats swept elections far beyond the big races in referendum on Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQcGNfZThjSkJQanJtZHQtZXplWXFQaUxGZmVNRUlPSWtWWFliU09hQ3NLeUtRZHR6ZmFZbkNJUmZJLUpmM0twNHd3UXlfQ2ZZM05zWGFTOEl3YUltaGlYWk5xQmQwb2tnVVRNMWRZaFJwVFc0Y3ozN2FZR0RMcFNuMHJjV1oxNDZSLUJDRmJoOEg2UQ?oc=5) |
-| Stefanik's playbook in N.Y. governor's race: Tie Hochul to Mamdani - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNVzdxLWc4Tndaa0VrLUNlR0Z5Y09oYUkzeC1MSWVkb1ZSM3YwZy1TZ3J2X1NidjUybGhQN05YS1hCeTlHZ2QzR2NUYTdEWlhzQVdzSVZwTEptTWlzMk10RkYzd2tBcmhEN0xoTGMwOFdIWW1ETzVhTGdGaEE4VXJJQ2tqTU1yMXhCZlE?oc=5) |
+| From Bollywood to bodegas, Mamdani’s mayoral campaign found visual inspiration in unlikely corners - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxOcWlPaHVFZE5ZY1hCc0JXcjVRZ0tRNmxWaXBXN3ZKMjVQZkxkZlJWSHo2aDVlWXV6dnZBb0d4WEl1SU9EaFVYdGV1cGZ2cGhHNXo3NTlKekhKeC1reG82OXpWWkplcDFydEI0bTg5aG9ERTZIMWFRaFJKcXktc2I4NHdZNm1ad1lTQkJpUmlPZWY2X2hHTzFGSnhicDNUa2JnSF8zMWZ6dTNndUtueEhmUUZQU1XSAboBQVVfeXFMTnN1RHNfQWtpbHozdkE3RVljWmRjc3ZtZnhnUFNVa29YMTlmdkRMYzAweW92TnRydlZkQkNkYUctOFBLZ3ZlUHRyY2haMDJLVmp6bnFxT2JYcnRHU040TmctZmZ3MWRsX1E2YVZEWG9JSUNrQ2lHZmpCbUk5S3EzMjlWcW9EUmZYZ0s2MTZ2UllvQnYxenpMbTJ2aW5wNGlKWllNUGlZVktkQ1RjTjlNemxLS2JkUXlQNEZB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
