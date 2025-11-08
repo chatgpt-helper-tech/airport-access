@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月09日 02:48:41（北京时间）**
+🕒 更新时间：**2025年11月09日 02:57:50（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Voters’ anger at high electricity bills and data centers looms over 2026 midterms - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPSHJJQkg0VTlST3BKZmhLS1VEb3NxTUtWZjZJT0dtbEJNOWpEQTBTQ3QwcV9yMEVHZ05Id1VvcGlQMllsNVhFZlc1ZU5ENDIxNl92aEQ4cGdoRjVtYVVoMndKSlkzT3BqNVRSSnlwY3Q4enNjYTZtUDNHaEhCZ3VFWlQwMDljbG5sWk1QTzgzZWYxOW9fOG5NNUVlbVhVR1RDbWdZaVpR?oc=5) |
 | Trump tells Senate Republicans to send federal health insurance money 'directly to the people' - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE1qNFk5bmZ4Nl9mMzJXT0lHcWt3cjNhc2tzbHRqS1JVd1FxZlNGR0RNazU0VGtFdXM2bmpkMmZtbU03b0k5ZlVWN2tCcVZsczJPWF9NTEVRVHhQODB3YTNWaDlxTDVPRW0wemsyWG4xTW53MmRiX0N6R3NfNNIBgAFBVV95cUxPbWZ4bkNBeUR4NElsVV92MnQwNmg2VVV4TmM1d29odkM4RWdQM1RzbUtKSzdfY3lBaTZBTDBpb0Jwa0luNUVEaW0yZ2NqWUN5ZE82S1lIdDZOdHVvLUxfanRQa1g4N3JLWE5GRWdOdWdvT3FRM3VEWDlBRURINWJfVg?oc=5) |
 | ACA health care premiums are rising. These 8 Americans showed us how much. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQNm5PbzRfbnA1LTBEdDBKR3RFRE5jbW9wNlp0Y3g3WTlUV1Fid2EwRnNJS0VTaV9sck1ublhwMVBKWXlNZmdpcVU1clRXZnFERnhuN0s1UFNBeGlXcVV5MC02N3U2b3dKRThpWlp1NDhrMWJCTEZqODYtU1Q0UlNUWElibXdCS3FydnpLOUhjdjhNdw?oc=5) |
-| UPS and FedEx grounding MD-11 planes following deadly Kentucky crash - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQOWNJd196eDRHYzIxRkdDSk5BS2xRdDhvcUtQZ1NWMzlDalY4VmljN1V3aktpYmxCNWxBUlpFYUNJUnVpOXQwVE85bGJyWnI5QmNUTWVCd2V6RTJKajh6b2hkOGpHRElQWnhGZlpiUDBtRTZxTlNPVzhPY09LSHhFeGx2Z0dsdWplQVhrWnpRZVlVdUVMRVgwQmR1WUsyT0lC?oc=5) |
-| Government shutdown live updates as Senate works through the weekend to end impasse - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQM3BScFNpZGtNb0cxQkw4NzV0dGprRWxfZWdvWEltVE9EbjYyUFBVQ3RsbUdITzRsY2VTQk80eEsxTDlURjR6OFk4NUFQZi0zZ1ZGX2xDT1liQXI2ZGViV2tmQ1VyekRHTlREQkFFTXdYa0xFNC00U1VRRmp4UlBHLUQwcWxrY202WGR2STd1WW4?oc=5) |
+| Flight cancelations to worsen next week if shutdown continues - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQTnZKYldpUGtqSFdNSmlYRkFBRFJsbTJGa0FUTUtZa19hQVpGNEwwX21EUGNWOHNlZFFrc0k0bTJVMTQ5MnNEMXdxZm5xUDhxc0gtWnpIRDQxWFlSdTRQMVZydkRXVVlPdjlHRGF5US0tWWVhZ2l4d1NUYnhaWUJUMWE1elNkaUHSAYwBQVVfeXFMTkJMei02V0k1VlVUbXY2Y2ZQQW01d2QzSUl5eFdyMU9zczA0VFRrellyTndtTWpmc3Vsc0Nib3ZYNlJfYzJydFdJTjFHcFJCMlBzWm1LMFBUaG5xSUhnZXFyRkV4ZG03SVQ3dk9Ba1JCVjJONF9YcDcwcDBsNzN6M3paUFIyMThITlBSS0Y?oc=5) |
+| UPS and FedEx Ground MD-11 Cargo Planes After Louisville Crash - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBmZDJIbm00MVRjWjZJZmFvalpSX0FnNVIyYnVyZGd5YlI3eVIxUXI5SU9tN2dCOEc4YnZGSUFuYUJiY1VHUE01ZW9fOWV6b0Q5Q1VudjNkbUhGV0pwMm5TdUVhT08yMlJ4OEhOTnJLeDZrdXg1Ni02MnhGOGFaWDg?oc=5) |
+| Government shutdown live updates as Senate works through the weekend to end impasse - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQM3BScFNpZGtNb0cxQkw4NzV0dGprRWxfZWdvWEltVE9EbjYyUFBVQ3RsbUdITzRsY2VTQk80eEsxTDlURjR6OFk4NUFQZi0zZ1ZGX2xDT1liQXI2ZGViV2tmQ1VyekRHTlREQkFFTXdYa0xFNC00U1VRRmp4UlBHLUQwcWxrY202WGR2STd1WW7SAZYBQVVfeXFMTVpuMFY3NjdrX09zdlVUclkxVG1nb3JkRlpKbW0tam5lOWxHdFN5N192SUNzYXpnWEMyLTNPZndOa1lyZ2pqZ0VjdVF5alc2MGlZc1NWcEVYOVVySVNhdWJFZk1jTzIwNFdQWUJjeW1YTkxQQzJuNlk3cy12cW1hSnByS2phRHQxSnA1Xy1JNWMxSTI2YnJB?oc=5) |
 | Democrats swept elections far beyond the big races in referendum on Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQcGNfZThjSkJQanJtZHQtZXplWXFQaUxGZmVNRUlPSWtWWFliU09hQ3NLeUtRZHR6ZmFZbkNJUmZJLUpmM0twNHd3UXlfQ2ZZM05zWGFTOEl3YUltaGlYWk5xQmQwb2tnVVRNMWRZaFJwVFc0Y3ozN2FZR0RMcFNuMHJjV1oxNDZSLUJDRmJoOEg2UQ?oc=5) |
-| Man falls 130 feet to his death at Grand Canyon after slipping over edge - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOUGdCbVlCX2JPamY4dXhMT281WDFTcWRyREtiUWhRWjJKemUwRUdWcHhuTDBISG9fR1IzVWtmc1lUX0F2YzU1QXRSUUVoeE9fZEFlRkstN3JxVWtzdXNzTjJvSFQ3b1I2YUFrMEh1Wl9hYURGS2U2TGlWRm1HS1c3c1lOMW82QmtsSXFEaF930gFWQVVfeXFMUGtnaHR4eTFRaEdmVFlnSXZORVRLckdwUlRnekRiVVNSdENnM2xIU0hKc2owTHBDVlZMZXozbTdzbm1iUF9lMnk1a0c5QktkR0FkdTNjYmc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
