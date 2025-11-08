@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月09日 01:09:47（北京时间）**
+🕒 更新时间：**2025年11月09日 01:17:35（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Biden says Trump has ‘taken a wrecking ball’ to democracy in sharp criticism - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNci1taWI5RnJPaVdlMUI2a3daM1Jteno3V2Uwb3BIR2p1dHpjUXFsUkVBY0g1NXJPMG1zUTg4SlFwd3Rjb0hyWWlfd2RlXzFsM2xpWENoSXhFcGZQMVNoT1pta0Njd1YxRG96ODZVWlR3cG1URGEzMEJ4cGpjYTlSWg?oc=5) |
 | Republicans swat down Democratic offer to end shutdown as impasse continues into 38th day - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMi6wFBVV95cUxPUWdaa3E1enZ0Zzh6UDVsT1pKTmRmMkQ4TklYQ3VtS1VvSDNfV0JGemtWejFWY0hMYU9kbGdCYnNiZHNGSjUtYm45WFNWS25KS2doeTBCMmxjLU8zT0U5RUJMc29RVVpraE4xSkRVc3FlVkJ3akliR2pmSldsZHZieXFuczYyWG42LWRTU0JxQ1pWUHpmd3VQMTBueGkwOGZNaDUwVW1wYXJEZHk1RUNEa2RZZEUzOXhYQXYyOGFyLVh0OS1UVmh4em9tS2FYR1NyM2JqSFJMTUs3UzRpVUJ5eFdhWHhfTDhzWW1R?oc=5) |
 | Trump clings to filibuster demand as shutdown drags on - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxNRkVfWU9nTXdId0syZENhajI4NWNyX2VHR25EaUgtS3VQSmhHb0l3QWhhM0k5MmJhU3F0eVdCQ180WUFaSk5jOGI2MlhzLW12TzhHUHNsNWthanFNdUhwQ2FzdGJrU2lSMnZSdVc4ZTBUNzlJalNwMnJZb3V3dHR4UnhZV1hjYU0?oc=5) |
-| 4 dead, 11 injured in Ybor City after law enforcement pursuit ends in crash - Tampa Bay Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNS2RWNnp6SEZkam9qMDFkZlk0TEJOSWIyRGxwdFcyVUNxczU2REhXM1hfX3VVYWhVY3diNWJRTGxNVVNfVmt5VVF4RFFHUGwyQkx6T2N6enBycjRGZ2Fic0VuVGJFYnlPRTZMMnVlZEs1b2hsTVNoaUFnSk9RQnBucC1zUHFGQk1LQ0xv?oc=5) |
+| At Least 4 Dead After Driver Slams Into Crowd Outside a Tampa Bar, Police Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidEFVX3lxTFBLYnM1OFgwdHRjSV9kamVkZmg1Mks2VVdoYlJ0WDJMLUVINndKeGZwVnpFXzJZS0IxdmhFZ3Jod1YyUlpqdE5JTFFvVTNxdnNPQ1RhaGNfdGdNOXJ3VVVGbVZ6MEVHZlFfSGNJRGdZVTdhV0ds?oc=5) |
 | Democrats swept elections far beyond the big races in referendum on Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQcGNfZThjSkJQanJtZHQtZXplWXFQaUxGZmVNRUlPSWtWWFliU09hQ3NLeUtRZHR6ZmFZbkNJUmZJLUpmM0twNHd3UXlfQ2ZZM05zWGFTOEl3YUltaGlYWk5xQmQwb2tnVVRNMWRZaFJwVFc0Y3ozN2FZR0RMcFNuMHJjV1oxNDZSLUJDRmJoOEg2UQ?oc=5) |
-| Man dies after slipping and falling off edge of the Grand Canyon: Sheriff's office - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPUExKUXlGd2VGRm5tcEtrMDFuWkgzcEtRSmE4ZVJoRkJSek9pVlViVDlVU1Qtb2l6NVV0Xzk3elJPX2JYVHNRSFRpTjRYRkdxZzFKZDdpZUlLVDVDMTVuZ1N2RkllMUlGenFSb2FIN0Zpanhrd1dhdDV4Rmt2S2EyUkN6TWVkSWlyMW8xN19iaGFDOEltekHSAZsBQVVfeXFMTThJT1RwdkpoWElXdkJac2U0VDFOeE5ya0tiWFRvRDdLRnpCY3JGekhwYk5RbHZsMk1WMXg5UDNlbDRxWEo5ak1GRUZRa3owNEI0VS16ZGh3ZFU3dkJwV2JuUzNNQXQ5WXFQdEg3NDhkMUJScEFkaUJRVlpEdW4xQl9sZjdkZzRwdW5Tb3dERHdPQjVLbFh6ZG9VaGc?oc=5) |
+| Pelosi’s retirement announcement could open floodgates for a wave of new candidates - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPMHUteDhCeDd3SEhlVk5rVTBkNFhTeVlvNWtsZUpTSTdHSXpsYlpBUHF6a1laS1hfRjVYVXdzR3hMbkZOTUFsUUw2b0FieXJqR003Vjh3YzFwZ2dEVW5MdFgtRXprYTJuM25wUFJkZ3lkQnBGV1dVS0tzZ3VvNU4zaldSajVBdG4tUnc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
