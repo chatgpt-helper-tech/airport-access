@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月08日 11:24:58（北京时间）**
+🕒 更新时间：**2025年11月08日 11:32:55（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | James D. Watson, Co-Discoverer of the Structure of DNA, Is Dead at 97 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBRZEVBWE5ZemJzcV9sTXo4dFFONUZfcGplMnFCNm5Bc1doVmdpSF9wZ2hGVXBIY0U1bWdGYUg5YmhCRUdNME5Pb0dyaHFzWEZ1NG9nWHFBMG9yNVVsSFY3ejNxNk1tdmhGNDVNQ2NXa1pNUWM?oc=5) |
 | Flights delayed, canceled as airport chaos begins: ‘People are just fed up’ - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPQndvMlp4V3A3SEpQN3A1Qk4xTWJWM3FlSGJZd3N2OEVTUmJjd0tFME9wcGtxYmJ4LXc1dGwzZEdvRFZqTk00clNBanllV19OYUx3Tk8zV2JSLWdNVnNYSV83WllncVJmQVdoWWJMQVhoLTJlbExRa1dPY1hMUGhjRG5QWW1yWktaOUMwOG5tazJsNHZTc2Y0MkIxQlljUQ?oc=5) |
 | Zohran Mamdani wants to make universal child care a reality in NYC. Here's a look at the costs, and the savings. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOYmpDSzBoMHZnRHROT1dtbzV6ZGZNcTU2SGJhWXhONk1MQm5SMy0tUW9pZmdiNnFEOXVMZ2J6VWxweERUakhZd0ZnckNaWF9iU2k5cFJiR3VqZHByb195amt2ZkpkYmJiYVhQLVhQYW5POWg1SzY0Q2VLZ3I5aC1HV0FsSzl1SjA3VlEydzZqYWQ?oc=5) |
+| Indiana woman who was at wrong home address to clean fatally shot by resident - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQbWFKY1A0TExoVU9TUklmNDNscnFUTUoyMnA0WkpsOWRCQTNCTUdWSmpKMXgtV1hkRFhFc1hfYVlQY0xsZ2J2ZER3QXFEckN4UTlVb3Y5Zm82aDdrUE80MTBGRzRiM01helJjUVpTUnR6QUVNckZaaC1EaEFjZzQxUDI1TnpodUZ2cUx5NHZzbw?oc=5) |
 | 'A battlefield victory': Trump's tariff critics doubt they'll win the war, even if Supreme Court steps in - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNTVkxQnZtQ3NTQUFCT1Fia1lSQ0x6b2FTS1VYeHFwekxsakxnS1hsZTFNZE84TFA5U2prVEdjeGpMU2EydHpXWl9EWHFKazlldHJ3d3ZWRGMta2hyeGpYaURILWc5NzZISDdFLVFTckhob3R6OWExcFZ6SU1aVERUOXRvWTQxUGZaRUVWWXhkbXpTUU1LSGJtR2VNelEwcmVXVzhFVkJPSE5mTWIxcTIzNHdncw?oc=5) |
-| A lesser-known Farmers’ Almanac will fold after 2 centuries, citing money trouble - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPM09xdWZTdHZjLU9aT1JnTDRtT2x2M2Z5aU4xMW9JZ0ZPQkdRMnBNM0VQc1Zha3JRSTl5WWVvT3lQdVF6SUw3S3RTWExSME9ZaGgydkdoSXJvN2hUNVF1M3FHSFRSVmJxSlFoamtPbXh3aUZxcnhMMXp5UERDaDQxNVd6RDdjcEIyM3YtbnY3M0dWRGdoQ3NEOU9R?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
