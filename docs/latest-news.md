@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月08日 23:57:16（北京时间）**
+🕒 更新时间：**2025年11月09日 00:01:11（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Supreme Court weighs appeal to overturn ruling that legalized same-sex marriage nationwide - PBS | [阅读全文](https://news.google.com/rss/articles/CBMixwFBVV95cUxQOC11SFo4T1dqa19sMjVEeHhONTRyNld0VzU3elBFbWpEM0lFeUUybHpuUE5JUWhyZElJZWdFMERIQVZBYWx5eVItdWtYYWtHVmFNY3E0VXVIZWZzY09nXzhZakdCVFhQYTZ2UmJzZjRfYXBNUWdUZmlvSklnNFRrTk9rS0tiZ3lOeWRYR19zQVhRME82aF8xRU51RU9rRFRXUEJYOEx5MEUzZS0wSE1nM2gxZDhmbm1UTmpDNURaQjNHUGc4TFp30gHMAUFVX3lxTE9YMURXcXpVTndHMXg4YU9NREI2cDlMcGhvd2x3VGc4SkdIY2hFVGhHZVQyN3o3MWRBcDV6ZmNwX2hPYUpIaXVodjRHRmo0WEZMamVlSFRMVnd3bnF3OXQ4T1o1NGtRRGF4dDI2VFN0dGxOTWYtaFNfRzR4cDc2Y0FmbXJ5Y1VvQ1FVNlVlMVFwVVVUak9RZS11NGhnSF9rS1RyS0VUVV9ZTVJNRTgtTE5nQnpsLXFzQ01CcTVMdDZiMk51RXZsXzQtVXVlcA?oc=5) |
 | Biden says Trump has ‘taken a wrecking ball’ to democracy in sharp criticism - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNci1taWI5RnJPaVdlMUI2a3daM1Jteno3V2Uwb3BIR2p1dHpjUXFsUkVBY0g1NXJPMG1zUTg4SlFwd3Rjb0hyWWlfd2RlXzFsM2xpWENoSXhFcGZQMVNoT1pta0Njd1YxRG96ODZVWlR3cG1URGEzMEJ4cGpjYTlSWg?oc=5) |
 | Ghislaine Maxwell's prison emails show she is 'happier' at minimum-security Texas facility - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOSjdSVDgxbkJvLW5WakdxQjlvakFLcGUtdnJLelNpM09Oc1BIdVJIR05ISGEyQ0NrU2tzUjNxalVOQ0ZmeFBaZV9iUENyQkhyNGduVmo5THZVQlJNNHd6V2xYUjJVNWFfYlhuSUZxS3MyS3JxNnVqSXlYVUd3NnBIa3pvYVF4STRHdEVfTklJY1MtWkZDSkNweXkzajh0V09IOFVHbU5OWF9wclNq0gFWQVVfeXFMTjQwWVVzSXRnR3ZCSXdfZFRubXNhMTY5LUE3Z1Q3ZGtvVE94ZXp4RUJ0b2JDZ3hTaGc3Y1NWdklsU3BybE9CbWZOSl9hdThsSFBYSnJWZ1E?oc=5) |
-| A year after devastating Trump loss, have the Democrats begun to find their way back? - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE1wanZpSzQyWlY2dF84aVN5TE01bTgxZnZ3dXVTU2JXSE9GSVRMNTd2V1VBSVdleWVSUFhoQ1FTV1NvVF9EeUpmcWFzOHBBZHVWaWw4Ujg4MFhEVFZVb1pLbmZzWi1UcWFtMzJSNkphUmYyZlRVeElyOXJxMXpMdw?oc=5) |
+| Democrats swept elections far beyond the big races in referendum on Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQcGNfZThjSkJQanJtZHQtZXplWXFQaUxGZmVNRUlPSWtWWFliU09hQ3NLeUtRZHR6ZmFZbkNJUmZJLUpmM0twNHd3UXlfQ2ZZM05zWGFTOEl3YUltaGlYWk5xQmQwb2tnVVRNMWRZaFJwVFc0Y3ozN2FZR0RMcFNuMHJjV1oxNDZSLUJDRmJoOEg2UQ?oc=5) |
 | From Bollywood to bodegas, Mamdani’s mayoral campaign found visual inspiration in unlikely corners - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPUmkxR2o1SUN4blhFeGpTaExvTTVfTnNFMlVzZE5HS0pSQy1MT2kxZFdDX0lYOTNzV0lKMlowLTh3SXN1UWVkR1B5UDJ2XzFqT2dUZFk2ajVKeDF0QzlkRlY0VnFJOTdaRTJOTW5ibDluckYzNGF5U2s5bHh3OTgwOERuTjhfTEpaUFdBVkx5S2dVS014T2Z2Zno2WkZsdjZscDlKWEEteFBaekZ2?oc=5) |
-| Senate Republicans decline Democratic offer to reopen the government as shutdown enters 38th day - Euronews.com | [阅读全文](https://news.google.com/rss/articles/CBMixAFBVV95cUxQX2E5eG42VVkyaE9Oa19pNnBHaXRHb0VJTlM5bDFMcE1yd2YzRjRZZ1Bsd0pWUEkzQ2NPdERKczMxbXFIUFVhZ2pMcFA4YUR6WnIwWWRFSHZ4UWptZklpMFc0YjZEUlNiMk03Z213dmxpTElmN3lVMUgzTWt3clk2TEE3ZEROZFp1Um5sUFNPOEJtU0lEZU1zNXAtUWZaTW1JTV9OTnU5cXo3akNaanQ3OUx4cU11Q3NUcGFfdTJFLUhhM1NB?oc=5) |
 | Pete Hegseth Takes On the Military-Industrial Complex. (Guess Who’s Likely to Win?) - Slate | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPbXZZNlppMEkxVm15UVZqWUJTUlluNzFhWDUwYUpDMzZhUnBOanp0eF9PYkZ5TndJVHZ3cVUzMmhFUkF0dWVjc3BKR3RFanhjLW1ydThpakNtRC1GbjczY01ZUGVYMlc4ZW1scE9Iem1vMU9Ha09CX2gzOEx4Tzl1dGdPWDBycnBxcFduVF9hQ3Vrai1uNEc1VQ?oc=5) |
+| Trump gives Hungary one-year exemption from Russian energy sanctions - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE02WFZ6a3ZBVk8yTTduenJlbUxCdV93VktpU1FxX0cwVlpPZGpRQ1puVVdDOERocndZei1iYmZMYTAtbWktWG1GNE03bkI5SkdBeGw1T0JhbkgzQdIBX0FVX3lxTFBpUF8zVklDT21hYmJOSi03Z1RubkV3UTlvMUY5YTV2aDVtaEFXQzhia3ZGQlc3Yl9uTlZ1RV80ZW9lSGJSTDRCbzFJUFNTcHhzaHg5RWw3bnBtSXBqVmJB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
