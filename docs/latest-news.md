@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月08日 13:01:24（北京时间）**
+🕒 更新时间：**2025年11月08日 13:08:40（北京时间）**
 
 ---
 
@@ -12,11 +12,11 @@
 | Trump exempts Hungary from Russian oil sanctions for a year | [阅读全文](https://www.bbc.com/news/articles/cp85dvnkpv4o?at_medium=RSS&at_campaign=rss) |
 | Tesla plans to pay Musk $1tn - do they really need him that much? | [阅读全文](https://www.bbc.com/news/articles/c5yp8w5k5q9o?at_medium=RSS&at_campaign=rss) |
 | British ex-soldier arrested over alleged murder of Kenyan woman in 2012 | [阅读全文](https://www.bbc.com/news/articles/c8jrkyzn8dvo?at_medium=RSS&at_campaign=rss) |
-| 'We had to create a human chain to evacuate' - Jamaican hospital rebuilds after hurricane | [阅读全文](https://www.bbc.com/news/articles/c20p87m541xo?at_medium=RSS&at_campaign=rss) |
+| Blame game over Air India crash goes on | [阅读全文](https://www.bbc.com/news/articles/c33pzypkkdzo?at_medium=RSS&at_campaign=rss) |
 | Why we went undercover for the BBC to expose crime in the Kurdish community | [阅读全文](https://www.bbc.com/news/articles/cy5qgyx6e5xo?at_medium=RSS&at_campaign=rss) |
 | DNA pioneer James Watson dies at 97 | [阅读全文](https://www.bbc.com/news/articles/cn8xdypnz32o?at_medium=RSS&at_campaign=rss) |
-| Blame game over Air India crash goes on | [阅读全文](https://www.bbc.com/news/articles/c33pzypkkdzo?at_medium=RSS&at_campaign=rss) |
 | Tories call for Starmer to face probe over football watchdog | [阅读全文](https://www.bbc.com/news/articles/cp85dxd60gko?at_medium=RSS&at_campaign=rss) |
+| 'We had to create a human chain to evacuate' - Jamaican hospital rebuilds after hurricane | [阅读全文](https://www.bbc.com/news/articles/c20p87m541xo?at_medium=RSS&at_campaign=rss) |
 | Thousands of US flights cancelled or delayed over government shutdown cuts | [阅读全文](https://www.bbc.com/news/articles/c20eq1vnjj5o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Trump Appeals to Supreme Court After Losing Bid to Halt SNAP Funding: Live Updates - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE94RUd0VTY2V2tLanh1MFhXeWtWVHQ4MmRsU2tnWUp0Q3MwUWdnODNPOXE0TTBGZ1BmVmhSNXBubGtTMFFJM3hwclROdVluTFBkMTk2R203MlQyVjZTMzJxQlpocnhheXd6SFZTemVEZw?oc=5) |
 | Judge permanently blocks Trump administration from deploying National Guard troops to Portland - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOUktHUTlnMl9iVk9sSFNzb1BTb0FJd0VkU193Qm1qd0FMVTEwVGlITXhBYmx6bUhJMVFXZjlkeWhRYmtSUlBydXlKZTJUNVV0b0VlVHo5WktrbVMzaUJMT2VlSHkxTU9WYmY5QTFQanRmYWh2TmltaElweWVYQUhpaDBNWDlxd3FwclNsM1hFRWVZZXJGRnF5dnZoTmpZUHJDeEFSVF9EYlZfLTM3bk5keGlYQndYNmfSAbwBQVVfeXFMTVVxd2c3OTZ5ZWV5WktCWnk5LVVZODZOT2NuVWJOT3NzZ05ENmFzWUFYLV8wUU9sb2ZodUxoZ3RPVm95V2NWUTVfTGRhV3lteC1WeU04VDJ5QnhBNnNFbEc5Qld3Y1NicHdjY0tISGxGbEpfYkM3dkdrSHh1akNJMTNNaTFJMkFmM3RUVTdNOG1kZW1McnVnZEVCSXdYMFMwdkYyRGFYOUI3QndBR0pGN053d3lkLW9xZ3hWVFM?oc=5) |
-| Democrats name their price on ending government shutdown - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOYnlsd3g0Q2M5VGVZSDVMNFRFWm1aQzRNTEJmMDdOZ29HZnd3bzhSUnFETXRyLVB0MzdTNFlhYWlWcmE1UGhmUXEwZGUzMHZlbHVwQzJ6OWluUGdEbXBYdzhvRW9FT3hEMEl4UmlaZGFqRHlYU3dvcUhrWmRSb2l1OWM5cjUxOG43amc?oc=5) |
+| Senate Democrats propose 1-year Obamacare subsidies punt in new shutdown offer - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQWjM4WU5HRGtaX2loam45RjZRQ2pjck50R09MRC1SdkNBMHRRZGtSUXFsYk9pQUFXR2M1ZzlSZ1NTQnJfNHBQemlpd2pRUWFEeGQ3ZnRxbXlNNURxYjFIUFotLXN2b1BWc2RqbUszaEpxTlVMa2NQb1dKV3FWQ1VjRTlrVzcwMXpUYml6QkpDeWtvNFJTVFMyazVTd1R3bVhSYWc?oc=5) |
 | Trump considers giving Hungary an exemption on Russian oil sanctions - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE02WFZ6a3ZBVk8yTTduenJlbUxCdV93VktpU1FxX0cwVlpPZGpRQ1puVVdDOERocndZei1iYmZMYTAtbWktWG1GNE03bkI5SkdBeGw1T0JhbkgzQdIBX0FVX3lxTFBpUF8zVklDT21hYmJOSi03Z1RubkV3UTlvMUY5YTV2aDVtaEFXQzhia3ZGQlc3Yl9uTlZ1RV80ZW9lSGJSTDRCbzFJUFNTcHhzaHg5RWw3bnBtSXBqVmJB?oc=5) |
 | Indiana woman who was at wrong home address to clean fatally shot by resident - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQbWFKY1A0TExoVU9TUklmNDNscnFUTUoyMnA0WkpsOWRCQTNCTUdWSmpKMXgtV1hkRFhFc1hfYVlQY0xsZ2J2ZER3QXFEckN4UTlVb3Y5Zm82aDdrUE80MTBGRzRiM01helJjUVpTUnR6QUVNckZaaC1EaEFjZzQxUDI1TnpodUZ2cUx5NHZzbw?oc=5) |
 | Feds move to subpoena former CIA director and others who investigated Russian interference in Trump’s 2016 campaign - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxQekVWTkQ2aHZ5QU9hX1FXX0xwZ0hYSGFtNTZTOFJkZE5EOUJ0NVFxdFBweDhKSktFallYWjl1UXFCaW51MXZJR1luVWNuWlBhLUJINWdhdE8tcGF2RmVDWnQ2ZHVXTHlwTWx2bzk1ZjlKaU1fLTRNSEt4bmpqY2tNd1FRQQ?oc=5) |
