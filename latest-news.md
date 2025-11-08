@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月09日 00:49:01（北京时间）**
+🕒 更新时间：**2025年11月09日 00:56:35（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Republicans swat down Democratic offer to end shutdown as impasse continues into 38th day - Federal News Network | [阅读全文](https://news.google.com/rss/articles/CBMi6wFBVV95cUxPUWdaa3E1enZ0Zzh6UDVsT1pKTmRmMkQ4TklYQ3VtS1VvSDNfV0JGemtWejFWY0hMYU9kbGdCYnNiZHNGSjUtYm45WFNWS25KS2doeTBCMmxjLU8zT0U5RUJMc29RVVpraE4xSkRVc3FlVkJ3akliR2pmSldsZHZieXFuczYyWG42LWRTU0JxQ1pWUHpmd3VQMTBueGkwOGZNaDUwVW1wYXJEZHk1RUNEa2RZZEUzOXhYQXYyOGFyLVh0OS1UVmh4em9tS2FYR1NyM2JqSFJMTUs3UzRpVUJ5eFdhWHhfTDhzWW1R?oc=5) |
 | From Bollywood to bodegas, Mamdani’s mayoral campaign found visual inspiration in unlikely corners - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPUmkxR2o1SUN4blhFeGpTaExvTTVfTnNFMlVzZE5HS0pSQy1MT2kxZFdDX0lYOTNzV0lKMlowLTh3SXN1UWVkR1B5UDJ2XzFqT2dUZFk2ajVKeDF0QzlkRlY0VnFJOTdaRTJOTW5ibDluckYzNGF5U2s5bHh3OTgwOERuTjhfTEpaUFdBVkx5S2dVS014T2Z2Zno2WkZsdjZscDlKWEEteFBaekZ2?oc=5) |
 | Biden says Trump has ‘taken a wrecking ball’ to democracy in sharp criticism - CNN | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNci1taWI5RnJPaVdlMUI2a3daM1Jteno3V2Uwb3BIR2p1dHpjUXFsUkVBY0g1NXJPMG1zUTg4SlFwd3Rjb0hyWWlfd2RlXzFsM2xpWENoSXhFcGZQMVNoT1pta0Njd1YxRG96ODZVWlR3cG1URGEzMEJ4cGpjYTlSWg?oc=5) |
-| 4 dead, 11 injured in Ybor City after law enforcement pursuit ends in crash - Tampa Bay Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNS2RWNnp6SEZkam9qMDFkZlk0TEJOSWIyRGxwdFcyVUNxczU2REhXM1hfX3VVYWhVY3diNWJRTGxNVVNfVmt5VVF4RFFHUGwyQkx6T2N6enBycjRGZ2Fic0VuVGJFYnlPRTZMMnVlZEs1b2hsTVNoaUFnSk9RQnBucC1zUHFGQk1LQ0xv?oc=5) |
 | Democrats swept elections far beyond the big races in referendum on Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQcGNfZThjSkJQanJtZHQtZXplWXFQaUxGZmVNRUlPSWtWWFliU09hQ3NLeUtRZHR6ZmFZbkNJUmZJLUpmM0twNHd3UXlfQ2ZZM05zWGFTOEl3YUltaGlYWk5xQmQwb2tnVVRNMWRZaFJwVFc0Y3ozN2FZR0RMcFNuMHJjV1oxNDZSLUJDRmJoOEg2UQ?oc=5) |
+| 4 dead, 11 injured in Ybor City after law enforcement pursuit ends in crash - Tampa Bay Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNS2RWNnp6SEZkam9qMDFkZlk0TEJOSWIyRGxwdFcyVUNxczU2REhXM1hfX3VVYWhVY3diNWJRTGxNVVNfVmt5VVF4RFFHUGwyQkx6T2N6enBycjRGZ2Fic0VuVGJFYnlPRTZMMnVlZEs1b2hsTVNoaUFnSk9RQnBucC1zUHFGQk1LQ0xv?oc=5) |
+| Man dies after slipping and falling off edge of the Grand Canyon: Sheriff's office - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPUExKUXlGd2VGRm5tcEtrMDFuWkgzcEtRSmE4ZVJoRkJSek9pVlViVDlVU1Qtb2l6NVV0Xzk3elJPX2JYVHNRSFRpTjRYRkdxZzFKZDdpZUlLVDVDMTVuZ1N2RkllMUlGenFSb2FIN0Zpanhrd1dhdDV4Rmt2S2EyUkN6TWVkSWlyMW8xN19iaGFDOEltekHSAZsBQVVfeXFMTThJT1RwdkpoWElXdkJac2U0VDFOeE5ya0tiWFRvRDdLRnpCY3JGekhwYk5RbHZsMk1WMXg5UDNlbDRxWEo5ak1GRUZRa3owNEI0VS16ZGh3ZFU3dkJwV2JuUzNNQXQ5WXFQdEg3NDhkMUJScEFkaUJRVlpEdW4xQl9sZjdkZzRwdW5Tb3dERHdPQjVLbFh6ZG9VaGc?oc=5) |
 | Ghislaine Maxwell's prison emails show she is 'happier' at minimum-security Texas facility - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxOSjdSVDgxbkJvLW5WakdxQjlvakFLcGUtdnJLelNpM09Oc1BIdVJIR05ISGEyQ0NrU2tzUjNxalVOQ0ZmeFBaZV9iUENyQkhyNGduVmo5THZVQlJNNHd6V2xYUjJVNWFfYlhuSUZxS3MyS3JxNnVqSXlYVUd3NnBIa3pvYVF4STRHdEVfTklJY1MtWkZDSkNweXkzajh0V09IOFVHbU5OWF9wclNq0gFWQVVfeXFMTjQwWVVzSXRnR3ZCSXdfZFRubXNhMTY5LUE3Z1Q3ZGtvVE94ZXp4RUJ0b2JDZ3hTaGc3Y1NWdklsU3BybE9CbWZOSl9hdThsSFBYSnJWZ1E?oc=5) |
-| Pete Hegseth Takes On the Military-Industrial Complex. (Guess Who’s Likely to Win?) - Slate | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPbXZZNlppMEkxVm15UVZqWUJTUlluNzFhWDUwYUpDMzZhUnBOanp0eF9PYkZ5TndJVHZ3cVUzMmhFUkF0dWVjc3BKR3RFanhjLW1ydThpakNtRC1GbjczY01ZUGVYMlc4ZW1scE9Iem1vMU9Ha09CX2gzOEx4Tzl1dGdPWDBycnBxcFduVF9hQ3Vrai1uNEc1VQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
