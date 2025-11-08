@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月09日 02:41:04（北京时间）**
+🕒 更新时间：**2025年11月09日 02:48:41（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | ACA health care premiums are rising. These 8 Americans showed us how much. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQNm5PbzRfbnA1LTBEdDBKR3RFRE5jbW9wNlp0Y3g3WTlUV1Fid2EwRnNJS0VTaV9sck1ublhwMVBKWXlNZmdpcVU1clRXZnFERnhuN0s1UFNBeGlXcVV5MC02N3U2b3dKRThpWlp1NDhrMWJCTEZqODYtU1Q0UlNUWElibXdCS3FydnpLOUhjdjhNdw?oc=5) |
 | UPS and FedEx grounding MD-11 planes following deadly Kentucky crash - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQOWNJd196eDRHYzIxRkdDSk5BS2xRdDhvcUtQZ1NWMzlDalY4VmljN1V3aktpYmxCNWxBUlpFYUNJUnVpOXQwVE85bGJyWnI5QmNUTWVCd2V6RTJKajh6b2hkOGpHRElQWnhGZlpiUDBtRTZxTlNPVzhPY09LSHhFeGx2Z0dsdWplQVhrWnpRZVlVdUVMRVgwQmR1WUsyT0lC?oc=5) |
 | Government shutdown live updates as Senate works through the weekend to end impasse - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQM3BScFNpZGtNb0cxQkw4NzV0dGprRWxfZWdvWEltVE9EbjYyUFBVQ3RsbUdITzRsY2VTQk80eEsxTDlURjR6OFk4NUFQZi0zZ1ZGX2xDT1liQXI2ZGViV2tmQ1VyekRHTlREQkFFTXdYa0xFNC00U1VRRmp4UlBHLUQwcWxrY202WGR2STd1WW4?oc=5) |
-| 4 dead, 11 injured after a car chased by police plows into a crowd outside Tampa bar - NPR | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQT19RQVRrLUVnLUEzYmVvT3dxcFlncVBwcWlTaW5MNDM0QUVSV2tBaldmcThXMDdmdkswd0t5N1RpY2VTalpoRVdFbVhuMEtEV1MwdS1fSVFyd3ZHZ0pMMHpPV3hUSUlMUC1KczJIdmJYa3kzMHQ1Y1JjQVFhYVdtZERlS3kwNlp6dWhENjZid21MSXNv?oc=5) |
 | Democrats swept elections far beyond the big races in referendum on Trump - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQcGNfZThjSkJQanJtZHQtZXplWXFQaUxGZmVNRUlPSWtWWFliU09hQ3NLeUtRZHR6ZmFZbkNJUmZJLUpmM0twNHd3UXlfQ2ZZM05zWGFTOEl3YUltaGlYWk5xQmQwb2tnVVRNMWRZaFJwVFc0Y3ozN2FZR0RMcFNuMHJjV1oxNDZSLUJDRmJoOEg2UQ?oc=5) |
+| Man falls 130 feet to his death at Grand Canyon after slipping over edge - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOUGdCbVlCX2JPamY4dXhMT281WDFTcWRyREtiUWhRWjJKemUwRUdWcHhuTDBISG9fR1IzVWtmc1lUX0F2YzU1QXRSUUVoeE9fZEFlRkstN3JxVWtzdXNzTjJvSFQ3b1I2YUFrMEh1Wl9hYURGS2U2TGlWRm1HS1c3c1lOMW82QmtsSXFEaF930gFWQVVfeXFMUGtnaHR4eTFRaEdmVFlnSXZORVRLckdwUlRnekRiVVNSdENnM2xIU0hKc2owTHBDVlZMZXozbTdzbm1iUF9lMnk1a0c5QktkR0FkdTNjYmc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
