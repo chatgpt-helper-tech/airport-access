@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月08日 16:56:58（北京时间）**
+🕒 更新时间：**2025年11月08日 17:01:34（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | UPS temporarily grounds part of its aircraft fleet after crash - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPa3EyZjZpVFB0dm9UMHYzeFRBX19jeWZGQXJiQUJ4VU1yUHIyWXNxd082UjM5M1ItaVZlMi15OVVVRTNVcVJuZDVJZ2ZBMHJteUw4dGtuUVI5eFJIS292OTFfRXVvd3c4SlJ2WHBvRnBJdGEySmh2MGNXRm5NTVUxQVlYaDd6ZjBSTEhPWEhKSkpId9IBlwFBVV95cUxNa24wbkNjTXRYeVd0bkRFT1U0RHVRcVVlUVRKaTVtdVVxMmVQT19XWHNNLXpxN0dCTzJIN0d0M2EwZmlsZ0EwNWY4a2tRSDZ4N1dGMGNfLW45dXZ2RlhXVnhVTmxQalpOM28xcVdxbUNqOHh6b1Y5dk5uMlBHZUZmc0MyS1FTQ0hvWHdfUjVxYTgwR1N1eFg0?oc=5) |
 | Indiana woman who was at wrong home address to clean fatally shot by resident - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQbWFKY1A0TExoVU9TUklmNDNscnFUTUoyMnA0WkpsOWRCQTNCTUdWSmpKMXgtV1hkRFhFc1hfYVlQY0xsZ2J2ZER3QXFEckN4UTlVb3Y5Zm82aDdrUE80MTBGRzRiM01helJjUVpTUnR6QUVNckZaaC1EaEFjZzQxUDI1TnpodUZ2cUx5NHZzbw?oc=5) |
 | Flights canceled at 40 U.S. airports: Follow live updates as FAA cuts to air traffic take effect amid government shutdown - Yahoo | [阅读全文](https://news.google.com/rss/articles/CBMi_AFBVV95cUxQM0J2SWRCcUpWX1J2QlF5X3duekhTRHpHWjBJMlFLbjBYUzQwN1ViUXhDZzM5NFF4NjY5RjNvWmt1dTVBbFQxV25iUWNNT3JVcWVnMnZ0UkxTS1dWOGViYWpZeUktbTlXTnlUTnczdWxWTVRkQTd3OHZvZFhkZVFtRVQ1bGtBUk1NX0xSVHQ0NmJGV0s0ODZRREt3WFhMc1hlLWd0VWFZYkNJQmxuTEc1czVXdXhmRUtuU2tXUjN4OVpQYlNEb05Od1BlcFNoa2JkYUJza0x4bGlNM0xnV1REcmpJRjlhZExBRkNPXzR5UVJkSjNRTXhURnZnNEk?oc=5) |
-| James Watson, co-discoverer of DNA's double helix, dead at 97 - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxNWW1xM29PZDBmc0pYNGhYaW9KMkl2Y3ExQ0I2cVhNVkJSdlUxZ2NSVTZDYXZTMjJNVWVWbzRrOFlrSVJodU1NdDRLcmtoYUlVTmRBb2dMQjB6Z3F5ajZfaUx5T21xZllnTGtGVE8yVXg3ZFJGR0t1YUZjaUtPWGJZMEJEdkljRXBzN0dfX2hLbUhBRmhYcl90QXNxVldNS19RaTIyMDRZdVIwLW9wNkFsWXpXVkJZS1VMVFJuby1SN18xZw?oc=5) |
-| Zohran Mamdani wants to make universal child care a reality in NYC. Here's a look at the costs, and the savings. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxOYmpDSzBoMHZnRHROT1dtbzV6ZGZNcTU2SGJhWXhONk1MQm5SMy0tUW9pZmdiNnFEOXVMZ2J6VWxweERUakhZd0ZnckNaWF9iU2k5cFJiR3VqZHByb195amt2ZkpkYmJiYVhQLVhQYW5POWg1SzY0Q2VLZ3I5aC1HV0FsSzl1SjA3VlEydzZqYWQ?oc=5) |
+| Bronx Science students, rejoicing at alum Mamdani’s victory, sound note of caution - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNYjl3dktXV2lQNnpFRWhwUGhxZTRkV0N5UkxVeHZ0UE1jY3lsVmpLQmljX1NDSFlfQi1LV1h2bkJHdWpJY21BNWkwUDc3c1VsOWhpOEJ2ODJ4Z1QybTUwSXRSWGdyZWFjaDdhdnA3VU9nZFNrOE1rdW5qWS1hNGM5Rm9Qakd2ZXpaVmEzSW5PUG1FTmV6OGJVakZQUnBvVTQtZ01pOUZrNUUwZw?oc=5) |
+| Trump orders Justice Department probe of meatpackers over prices - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiW0FVX3lxTE5pckFhWkxyUzFIY3VMR3F2Q3hlOFJZb3RVa0Rfb2pjTnRzWkV3bHdWRmxTeTIxUGZxNjhwN3BoeUpDZmlSTFRvZTQyckRsSVU4a1BCTjA2aGV4blE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
