@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月08日 15:48:18（北京时间）**
+🕒 更新时间：**2025年11月08日 15:56:57（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | US airlines cancel 1,000 flights while complying with shutdown order - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNTF9fcjBrdHNOVlZ5dWpkYTBwcHVXeGd1SDNRWktnS0ZScXpnZ1Q1SDFFZ3hZZEVfbzhLM3pQYTd3a0tPQnRYTWluTUVCaHVTWEVIbnBoSW5qZmpSRmRXR3FzZU9TZnVkbl9DWVJFV3BfMy1GYU8xZ2JkS0JieFVvUFU1VUlqVHFCSnVJWmkxQzh6RmIzNkpKSXIxR3NKTHlWcVE?oc=5) |
 | James D. Watson, Co-Discoverer of the Structure of DNA, Is Dead at 97 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBRZEVBWE5ZemJzcV9sTXo4dFFONUZfcGplMnFCNm5Bc1doVmdpSF9wZ2hGVXBIY0U1bWdGYUg5YmhCRUdNME5Pb0dyaHFzWEZ1NG9nWHFBMG9yNVVsSFY3ejNxNk1tdmhGNDVNQ2NXa1pNUWM?oc=5) |
 | Bronx Science students, rejoicing at alum Mamdani’s victory, sound note of caution - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNYjl3dktXV2lQNnpFRWhwUGhxZTRkV0N5UkxVeHZ0UE1jY3lsVmpLQmljX1NDSFlfQi1LV1h2bkJHdWpJY21BNWkwUDc3c1VsOWhpOEJ2ODJ4Z1QybTUwSXRSWGdyZWFjaDdhdnA3VU9nZFNrOE1rdW5qWS1hNGM5Rm9Qakd2ZXpaVmEzSW5PUG1FTmV6OGJVakZQUnBvVTQtZ01pOUZrNUUwZw?oc=5) |
-| Iraq’s election may ensure stability but leave militias in control - economist.com | [阅读全文](https://news.google.com/rss/articles/CBMiwwFBVV95cUxNOEItNFc0TkM5b25BVDFCdjZyUUlKYURaTnk2OHpSMGtnUXVnMGJHdWxtcW1aZDhzTFZib2t2bW1POGhqRHBtbFk0ZXY4ejR4bmk5Znk1cHFNS0xUaWFQcV94OEdBUmRQZHI5MFd5ZFo2WjlWcXhocGZjdW14a1dHXzBEcXN3RFVVa1Nickg3b0VxUlcxelIwYTdZMW9WbFVVbzNEMXpWdnE0VTNfbzlkbk5GWVJNM1hndllXQnZTb1VQNzQ?oc=5) |
+| Taiwan’s Vice President Asks for Support in Rare Brussels Speech - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxQc0ROU3QwX3JOYkE2SVdhR0s4amVIbjhPY0J6ZWNKV3g1ZUp5b21WMV9ZSXltZXhvc0hLN3QzVEFtMlhmZTZYenlNci1MQ2gzWFp4WkpGNXpBLXN6SDhaYWk0VFFQSk5LMzJXOVRZUk1oaDdOWHBGY0JqN0V6ZUdfTWJ2R1NKTUxWcDdlSXRxYnV3TWt0eWE1MHk5RFhGY2E3OVBQR19sV3Njd2ZWN0VzQTJHLWkyZw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
