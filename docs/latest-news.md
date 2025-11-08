@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月08日 16:32:57（北京时间）**
+🕒 更新时间：**2025年11月08日 16:40:36（北京时间）**
 
 ---
 
@@ -11,7 +11,7 @@
 | At least four prisoners freed in error still at large, BBC told | [阅读全文](https://www.bbc.com/news/articles/cn51329exkqo?at_medium=RSS&at_campaign=rss) |
 | UK seeks Danish inspiration to shake up immigration system | [阅读全文](https://www.bbc.com/news/articles/cm2lknr2d3go?at_medium=RSS&at_campaign=rss) |
 | Trump gives Hungary one-year exemption from sanctions over Russian energy | [阅读全文](https://www.bbc.com/news/articles/cp85dvnkpv4o?at_medium=RSS&at_campaign=rss) |
-| Tesla plans to pay Musk $1tn - do they really need him that much? | [阅读全文](https://www.bbc.com/news/articles/c5yp8w5k5q9o?at_medium=RSS&at_campaign=rss) |
+| 'Tesla without Musk is like pizza without cheese' - why they're willing to pay him $1tn | [阅读全文](https://www.bbc.com/news/articles/c5yp8w5k5q9o?at_medium=RSS&at_campaign=rss) |
 | Blame game over Air India crash goes on | [阅读全文](https://www.bbc.com/news/articles/c33pzypkkdzo?at_medium=RSS&at_campaign=rss) |
 | British ex-soldier arrested over alleged murder of Kenyan woman in 2012 | [阅读全文](https://www.bbc.com/news/articles/c8jrkyzn8dvo?at_medium=RSS&at_campaign=rss) |
 | Who are the real winners of Celebrity Traitors? | [阅读全文](https://www.bbc.com/news/articles/cwy1w0lj44ro?at_medium=RSS&at_campaign=rss) |
@@ -31,7 +31,7 @@
 | UPS temporarily grounds part of its aircraft fleet after crash - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPa3EyZjZpVFB0dm9UMHYzeFRBX19jeWZGQXJiQUJ4VU1yUHIyWXNxd082UjM5M1ItaVZlMi15OVVVRTNVcVJuZDVJZ2ZBMHJteUw4dGtuUVI5eFJIS292OTFfRXVvd3c4SlJ2WHBvRnBJdGEySmh2MGNXRm5NTVUxQVlYaDd6ZjBSTEhPWEhKSkpId9IBlwFBVV95cUxNa24wbkNjTXRYeVd0bkRFT1U0RHVRcVVlUVRKaTVtdVVxMmVQT19XWHNNLXpxN0dCTzJIN0d0M2EwZmlsZ0EwNWY4a2tRSDZ4N1dGMGNfLW45dXZ2RlhXVnhVTmxQalpOM28xcVdxbUNqOHh6b1Y5dk5uMlBHZUZmc0MyS1FTQ0hvWHdfUjVxYTgwR1N1eFg0?oc=5) |
 | Indiana woman who was at wrong home address to clean fatally shot by resident - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQbWFKY1A0TExoVU9TUklmNDNscnFUTUoyMnA0WkpsOWRCQTNCTUdWSmpKMXgtV1hkRFhFc1hfYVlQY0xsZ2J2ZER3QXFEckN4UTlVb3Y5Zm82aDdrUE80MTBGRzRiM01helJjUVpTUnR6QUVNckZaaC1EaEFjZzQxUDI1TnpodUZ2cUx5NHZzbw?oc=5) |
 | US airlines cancel 1,000 flights while complying with shutdown order - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNTF9fcjBrdHNOVlZ5dWpkYTBwcHVXeGd1SDNRWktnS0ZScXpnZ1Q1SDFFZ3hZZEVfbzhLM3pQYTd3a0tPQnRYTWluTUVCaHVTWEVIbnBoSW5qZmpSRmRXR3FzZU9TZnVkbl9DWVJFV3BfMy1GYU8xZ2JkS0JieFVvUFU1VUlqVHFCSnVJWmkxQzh6RmIzNkpKSXIxR3NKTHlWcVE?oc=5) |
-| James D. Watson, Co-Discoverer of the Structure of DNA, Is Dead at 97 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTFBRZEVBWE5ZemJzcV9sTXo4dFFONUZfcGplMnFCNm5Bc1doVmdpSF9wZ2hGVXBIY0U1bWdGYUg5YmhCRUdNME5Pb0dyaHFzWEZ1NG9nWHFBMG9yNVVsSFY3ejNxNk1tdmhGNDVNQ2NXa1pNUWM?oc=5) |
+| James Watson, who helped unravel genetic blueprint for life, dies at 97 - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxPOUtfek9SdFlCR2JCVW9WSkJGcUdKSnpwdEhtaWdWVTFYczdOQXd0ajQ4dUU4bW1aRF9FUkw2clJPaHpfR1huWDlJcVJGbXE1SFA3ejBMOXlNQXBTUEtTVWpMVlJocEZxNG5HazFZN1ZLZ0FyR1FFZmlSUWZaTS1sUg?oc=5) |
 | Bronx Science students, rejoicing at alum Mamdani’s victory, sound note of caution - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNYjl3dktXV2lQNnpFRWhwUGhxZTRkV0N5UkxVeHZ0UE1jY3lsVmpLQmljX1NDSFlfQi1LV1h2bkJHdWpJY21BNWkwUDc3c1VsOWhpOEJ2ODJ4Z1QybTUwSXRSWGdyZWFjaDdhdnA3VU9nZFNrOE1rdW5qWS1hNGM5Rm9Qakd2ZXpaVmEzSW5PUG1FTmV6OGJVakZQUnBvVTQtZ01pOUZrNUUwZw?oc=5) |
 
 ---
