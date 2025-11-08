@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月08日 21:49:21（北京时间）**
+🕒 更新时间：**2025年11月08日 21:56:29（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Prisoner freed by mistake in March 2024 still at large | [阅读全文](https://www.bbc.com/news/articles/cr4315ev559o?at_medium=RSS&at_campaign=rss) |
+| Two prisoners still at large after being freed by mistake in 2024 | [阅读全文](https://www.bbc.com/news/articles/cr4315ev559o?at_medium=RSS&at_campaign=rss) |
 | Chatbots encouraged our sons to kill themselves, mothers say | [阅读全文](https://www.bbc.com/news/articles/ce3xgwyywe4o?at_medium=RSS&at_campaign=rss) |
 | UK seeks Danish inspiration to shake up immigration system | [阅读全文](https://www.bbc.com/news/articles/cm2lknr2d3go?at_medium=RSS&at_campaign=rss) |
 | Woman critically injured in 'unprovoked' stabbing attack in Birmingham | [阅读全文](https://www.bbc.com/news/articles/cj3z7z6x32eo?at_medium=RSS&at_campaign=rss) |
