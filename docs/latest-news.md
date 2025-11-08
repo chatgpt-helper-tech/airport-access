@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月08日 08:33:07（北京时间）**
+🕒 更新时间：**2025年11月08日 08:40:25（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | Senate Democrats propose 1-year Obamacare subsidies punt in new shutdown offer - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQWjM4WU5HRGtaX2loam45RjZRQ2pjck50R09MRC1SdkNBMHRRZGtSUXFsYk9pQUFXR2M1ZzlSZ1NTQnJfNHBQemlpd2pRUWFEeGQ3ZnRxbXlNNURxYjFIUFotLXN2b1BWc2RqbUszaEpxTlVMa2NQb1dKV3FWQ1VjRTlrVzcwMXpUYml6QkpDeWtvNFJTVFMyazVTd1R3bVhSYWc?oc=5) |
 | James Watson, who co-discovered the structure of DNA, has died at age 97 - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNS1NNQVRYbldJMlhXcVZQck5Td2RSWU15cGE0LTItQkN4elBYeDN6TDhSZk1vdmt1RWhZNEp2cjFrb3FMd0pYdWUyUUNjbmNGRW53eE54Q01HTjloS3FLbUVKbHhBSjhyYkZidldRRHFEdmtVeTA1TzA5aHdfOVhjUGctaHV0UQ?oc=5) |
 | Trump orders Justice Department probe of meatpackers over prices - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiW0FVX3lxTE5pckFhWkxyUzFIY3VMR3F2Q3hlOFJZb3RVa0Rfb2pjTnRzWkV3bHdWRmxTeTIxUGZxNjhwN3BoeUpDZmlSTFRvZTQyckRsSVU4a1BCTjA2aGV4blE?oc=5) |
-| Ted Cruz accuses GOP senators of being ‘frightened’ to call out Tucker Carlson - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPWG1iSjB2WHpCanVyZThITHEzRm14SVNIMnJaVXBEaG9pbUVXMWZlTWtTbl9CRFFUWVFaZkJNcXhVZkxUNF9hdjZtUVlrOUhHUjgyWkd4YlJFd1N5eTZseEd6UDBCdktIOHdZcmJaRlBWWXJqaHZLdHZqc2t3UEM2MlVtNVhRSG92Qm9TeWNaOFBxeUx5QUN5bEZ3?oc=5) |
 | Supreme Court weighs longshot appeal to overturn decision legalizing same-sex marriage nationwide - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxNN2o3cDh2emZwSUVDVUpCaUx0aTlyVl9iOUVCOXdOMm9vUHpHcS1KM0pNbUFwT3ZVazI3OTI5OXJiZ1NCVXlxd09jTGQ2dmstbGQ4X1gtY3Q3RU1QUHM0bHlISzdiRkcycnY5NU9Qa0NfMG9vaHVHNmtHZUNVTDRQS0NQc2ZpQzZ5Yi1fajVyLWVVd29FaDZQdHdSdm1KeUtLWExJ?oc=5) |
+| DHS Sets the Record Straight on Misleading Video, Leaving Out Key Facts Including that the Woman Arrested Repeatedly Stabbed Her Coworker with Scissors - Homeland Security (.gov) | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxORVNXYVZOMHZVd0V6T2lOMmZuX2x4WWc2NjRPNDdvTU1TcGdPM0RVZnVWdGJLVllhNG1XY2JpV0MyMlZqOU5xWmtOYU5iNmlzeENnLXJiUDZ0Q3pybVZfdU5KdFRCYkkxOFRReFQtOEJoOUlsejZCZWFqcXIzS2p2T2xVMENDYlFGYjZvRjlwWFdYUE1ReDhFYTlOUnpuUVloenJHdEFsVm1YUjc3ajkzM2U4dHNUZw?oc=5) |
 | Air travel reductions could increase if shutdown continues, Duffy says - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPTndKR01BbmNjTWZOU0NuMUtnWllBcVBDaF9MWU9GV2FJREVUZnQ2Z0k3YWNDbUFjOXJQZW5GaDNZVG9EaXk5WWtReEZobWxETDRHLW9xNW5zWHlqblBwbWk0UU43b2ZPNm56aVpyajZuQm83UWpwUG9wdnBEM1dzOWEzV0JiVkE3Uk14QXZ1NTk5SS1Bc3BPcFJvZzJKbkR1d2lUU3d30gGrAUFVX3lxTE1YZXdmM0ZXd2g1OHU1VHdkcjJWbWwtdzRBU1h1OEhiTFMwOXNfTTJ1eEJ6NTZhVFVtdGJ0RTZ6SnlWRl80VU5qZTBxMk9CTEt0SFhOUzFEWTZwaUVxaWFKVUtDU2lVb3o3dGxieUZ2WGJKdEs4NHRZU2JtcXlxbkp2cnJXa0Zqcjh5ekZaRHNoUjVEbFRobDZNWjRmc0FvNGJ0eVB0ejctc1lWVQ?oc=5) |
 | A lesser-known Farmers’ Almanac will fold after 2 centuries, citing money trouble - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPM09xdWZTdHZjLU9aT1JnTDRtT2x2M2Z5aU4xMW9JZ0ZPQkdRMnBNM0VQc1Zha3JRSTl5WWVvT3lQdVF6SUw3S3RTWExSME9ZaGgydkdoSXJvN2hUNVF1M3FHSFRSVmJxSlFoamtPbXh3aUZxcnhMMXp5UERDaDQxNVd6RDdjcEIyM3YtbnY3M0dWRGdoQ3NEOU9R?oc=5) |
+| Ted Cruz accuses GOP senators of being ‘frightened’ to call out Tucker Carlson - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPWG1iSjB2WHpCanVyZThITHEzRm14SVNIMnJaVXBEaG9pbUVXMWZlTWtTbl9CRFFUWVFaZkJNcXhVZkxUNF9hdjZtUVlrOUhHUjgyWkd4YlJFd1N5eTZseEd6UDBCdktIOHdZcmJaRlBWWXJqaHZLdHZqc2t3UEM2MlVtNVhRSG92Qm9TeWNaOFBxeUx5QUN5bEZ3?oc=5) |
 | US judge bars Education Department emails blaming shutdown on Democrats - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxQc1RpbWZrWm95ZlBGM1NTTmM4NmYzNE9sZVctSUZtZE4zSWxIbDhLODgzWkZ1UDhMNW9RcExWQVlLbFptMDU5QWdPMW5FNEt4OHl6aEtxeUY5Zl8yNkxubDl5Ymg1ajJmckttZzF5OTZqRXhvb3JyN2w1MEh6WE02RVF1bVN1VndmcEYxUWExT0RabWVkMUV0SWFlS2lkRGpLdkZlQVo3ejg1WG1xQVRITmQ5amM5eG1tVUdNQjN3?oc=5) |
-| Final moments before UPS plane crash detailed by NTSB - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxPa3EyZjZpVFB0dm9UMHYzeFRBX19jeWZGQXJiQUJ4VU1yUHIyWXNxd082UjM5M1ItaVZlMi15OVVVRTNVcVJuZDVJZ2ZBMHJteUw4dGtuUVI5eFJIS292OTFfRXVvd3c4SlJ2WHBvRnBJdGEySmh2MGNXRm5NTVUxQVlYaDd6ZjBSTEhPWEhKSkpIdw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
