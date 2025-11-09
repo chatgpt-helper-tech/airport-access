@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月09日 11:17:31（北京时间）**
+🕒 更新时间：**2025年11月09日 11:25:07（北京时间）**
 
 ---
 
@@ -10,11 +10,11 @@
 |--------|-------------|
 | UK to announce asylum system shake-up as it considers Denmark model | [阅读全文](https://www.bbc.com/news/articles/cm2lknr2d3go?at_medium=RSS&at_campaign=rss) |
 | Experts say this could be the worst flu season for a decade - here's why | [阅读全文](https://www.bbc.com/news/articles/c2dr8gzdz1wo?at_medium=RSS&at_campaign=rss) |
-| Chatbots encouraged our sons to kill themselves, mothers say | [阅读全文](https://www.bbc.com/news/articles/ce3xgwyywe4o?at_medium=RSS&at_campaign=rss) |
 | Prince George joins Kate, King and Queen at Festival of Remembrance | [阅读全文](https://www.bbc.com/news/articles/clyl67527zyo?at_medium=RSS&at_campaign=rss) |
 | 'Great bloke': Clarkson and May lead tributes to ex-Top Gear host Quentin Willson | [阅读全文](https://www.bbc.com/news/articles/c2lpww7pw72o?at_medium=RSS&at_campaign=rss) |
 | Man charged with attempted murder after woman stabbed in Birmingham | [阅读全文](https://www.bbc.com/news/articles/c2dr8743w13o?at_medium=RSS&at_campaign=rss) |
-| Two prisoners still at large after being freed by mistake in 2024 | [阅读全文](https://www.bbc.com/news/articles/cr4315ev559o?at_medium=RSS&at_campaign=rss) |
+| Storm declared 'super typhoon' as it hits Philippines | [阅读全文](https://www.bbc.com/news/articles/cq509yj82y8o?at_medium=RSS&at_campaign=rss) |
+| Women are hiding their boyfriends online and there's more than one reason why | [阅读全文](https://www.bbc.com/news/articles/c93x1q5395do?at_medium=RSS&at_campaign=rss) |
 | 'The best friend you'd love to have' - How Claudia Winkleman conquered TV | [阅读全文](https://www.bbc.com/news/articles/cjw96xw8v93o?at_medium=RSS&at_campaign=rss) |
 | Ever feel the need to switch off? Your vagus nerve might hold the key | [阅读全文](https://www.bbc.com/news/articles/cy0k9yz5wexo?at_medium=RSS&at_campaign=rss) |
 | How this year’s Christmas ads ‘let real life in,’ from cost of living to masculinity | [阅读全文](https://www.bbc.com/news/articles/c0rp7exwq8ko?at_medium=RSS&at_campaign=rss) |
