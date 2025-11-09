@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月09日 23:41:10（北京时间）**
+🕒 更新时间：**2025年11月09日 23:48:06（北京时间）**
 
 ---
 
@@ -13,8 +13,8 @@
 | BBC bosses treating 'systemic bias' allegations seriously, culture secretary says | [阅读全文](https://www.bbc.com/news/articles/c9wvqx50jpqo?at_medium=RSS&at_campaign=rss) |
 | HMRC to review suspending 23,500 child benefit payments | [阅读全文](https://www.bbc.com/news/articles/cjr0p4l2qryo?at_medium=RSS&at_campaign=rss) |
 | New flu virus mutation could see 'worst season in a decade' | [阅读全文](https://www.bbc.com/news/articles/c2dr8gzdz1wo?at_medium=RSS&at_campaign=rss) |
-| Lisa Nandy apologises for breaking rules on football regulator appointment | [阅读全文](https://www.bbc.com/news/articles/cqjwp0rq7d7o?at_medium=RSS&at_campaign=rss) |
 | Super typhoon makes landfall in Philippines as nearly a million evacuated | [阅读全文](https://www.bbc.com/news/articles/cq509yj82y8o?at_medium=RSS&at_campaign=rss) |
+| Care workers charged following BBC Panorama probe | [阅读全文](https://www.bbc.com/news/articles/c14p2jkrvy7o?at_medium=RSS&at_campaign=rss) |
 | 'The best friend you'd love to have' - How Claudia Winkleman conquered TV | [阅读全文](https://www.bbc.com/news/articles/cjw96xw8v93o?at_medium=RSS&at_campaign=rss) |
 | Women are hiding their boyfriends online and there's more than one reason why | [阅读全文](https://www.bbc.com/news/articles/c93x1q5395do?at_medium=RSS&at_campaign=rss) |
 | Thousands of Chinese lured abroad and forced to be scammers - now Beijing is cracking down | [阅读全文](https://www.bbc.com/news/articles/c1lq95j1yp9o?at_medium=RSS&at_campaign=rss) |
@@ -24,9 +24,9 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Trump Administration Demands States ‘Undo’ Work to Send Full Food Stamps - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOdGJXYy14cjRCVnN5Q0RxeXdUNHAwU3EySVlORE4xUjdodjJrRi13YUpjQ0hXUndfQ1R5ZUw3OTYxbEh3UHU3amptc2JHOGhHZk45UFV1Qk5Ha1U0YzlNMzJSWEtFLTdVTjRfc3RwZ2o5NF9yZkZaMWx5aXRCSkwybm1fb1J3elNTSEo0UDVYX3dDNUd1aDdIN19wNE1VMGpNSEt3Z2tn?oc=5) |
-| Nearly a million people evacuate as Super Typhoon Fung-wong threatens the Philippines - NPR | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxOc0JqQTM0SWswdFpIOUhabnNhNUpGbUNaYmVkTnE0V3J3LThTTTNvOVZjMm5YYXFDbUlEaTlMYkgzclB3Tzl6dklUY2p4MmlaWTUxNmMtZ09MU01iMVQtZURMZjllZWVaNk5vQ0ZTU0xfNGdSZEVWdjNjelRwWHdSSC1SMkZZVTY0RUZVMlA4NVRoMXA4RWtUR1FTUUF5enhpd28zQ1NIc1Rqd3M1X1l5OTVlbi03NGpMY2VVTGo5U0tYeTUzcHc?oc=5) |
+| Super Typhoon Fung-wong slams into Philippines after already killing 2 and displacing 1 million - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOTzd1cWRDdlAzVFpMb1ZvVlhPOEhjd1R4aDFqbmFYcmlRUkpmZTZpdXBTX29KaENPcjd0bjRvTlp0dmtVY2o2d1p2Z090aHR1NllGWkFYQjl6V0pxTVpUaWoyZ3UySVdQQTdTSTdwSjJKWFFhaGRKaHRXOENpSlgycnB5TG5ZamNtSXVsMWRTZ1BiTzREaWVsY0pxbDJXQ1NoYmlMWlNFZENsamVNMTJGVDZuaWhjdw?oc=5) |
 | Where Democrats Will Duel Next for the Party’s Future - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNZ3lCNDgzZms0c3NTb1lYamdSVHZ6WFBMT1NBNGFEN0lYSm5YUExrdm9vNFFaU21ZZlJtdEFBNEJnd0NERVllZ04zYW54WjM5TFl6UkdIeG1zaWxEMWZTcGdMdldpUk92MzNZclBkQ2kyVzZRemRJSVBobmFLb1RkMGRTNFFpczgtcHNN?oc=5) |
-| Government shutdown reaches its 40th day as senators work through a crucial weekend - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQbG9UajMzY19TYzBKbmpPOGw1d1NJdGkxQWJnZ1F5TVA3SjBYenFQaElPenV5WGJYRk5TLVJlUHc4UW9RbjYxYlVYMTNGRHlKWjdOa2gxY2RjWGt5WUJaOWFFRTNHY210Tndud2ZSaGUxZlV2d0owYm5UZ3VfVmxqVjNVLTFFODFmLXB6VTBMSUNRYUV6WlNYYl9B?oc=5) |
+| Talks to end government shutdown take a promising turn, Senate majority leader says - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQTldHcVRtWUJLT2RXVFhJT0JwUVRUVl8weDExck5oc0trTmpBeTZiYkhJMEVyeWw1V0FXMjFYWEhPSGl2TVY2Mm14bUlKT1dXX1c5aFFBbjlncFRwbHFMalYwa1BIOEJiaC02MGs3bTl3Ry1aeXRnYS1VSllreWNhSzNlVy3SAYoBQVVfeXFMTTZ5OVU2NzVuMmpQVHBaWi1IdmozSmJqQ0ZLX2M1aW1qaUNjSEpGNHZaS2JubGZRZk5iRGFXYnp5cGRBSlVoNEhJS2ZRWHQ1eHVFQnJkVVFxNkxteUdFcmhuNzFMTWhNaHQ2M0QwUDJIVFh2VWlOc184alk0dU4yME9TM1RzVldqaXlR?oc=5) |
 | Powerful earthquake rattles the northern coast of Japan; earlier tsunami advisory lifted - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxQSEp1dlNKOTAyd2tBRUpkNkhEUHNwUEZINVM1T2hlcnM1clY1WXVTWDVMdDBxcS1lV3luNzRzZ2l2cDBibGpkZlZ6SldzTmlZQl9EeDJreUJSaEUzdzhwRFlDeF9ZaUEwWWVOZlBZQ1FCaW5BMC1HS19mR1NsM2RUMjU2eDdFaGdWX2ZMUm8yMDc1S0Y3Rkprb0lPTEJPb3BIREUzcdIBqgFBVV95cUxOM0tvMUxxdDYyWU55QnRqQTQtMDdTVWZvLUFNX3pnWGZsdmxoR1FIa2I2b0NsMzQ4UnMzSE9EVC0wUkJVQzNIYndsMXM2QWpKQWxlTkVxeThsXzZzczMxWFBkeEhGcnpTS1VQeVlYZGwzZ3AxcS1BVHlETDl1TlUydHFTTWNGUHpNcnItai1vRS1ad1dCNjlIRUZMbzJUYUczRjNfc3JlbFBuQQ?oc=5) |
 | Meet the Philadelphia-based graphic designer who took inspiration from bodegas, Bollywood and hot dog carts for Zohran Mamdani's iconic campaign - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQYXYyVG1tQlJyRVhOTHFYSFFhd0hOQjQzWHNpOXNZVkU0Q0FmdW9zcmFlS1dDV09QXzZFY19IOW04TENkcUdScWNqV1h4MmlVSTBFQWRVaFVPcmh6Zm85X1BYRkVaajlNajZDeGZYa3hVT0ZDUkJsY2ZKV2xJUXVUYVRrRDdQMnVtb2xDMGtmUkdKNmhNU1Nwc2RkaERtUQ?oc=5) |
 | Flight cuts from government shutdown strain a supply chain that’s already stretched thin - AP News | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQekIzTDRNQVE3ekdLZWVidmdGWmNDOE1SYmMxT1FBVTBtc0ZjVlhQZTlzdXJKaFI5THVKUEQwakJPZDVZSlo4R2RkbENWYVhLT3hWVktKUFFucEoxWGM2LW5PZHpNWFg4bHpueGJKSWx0YkNCNzBITmpEZi13SVhxZnhxdjBqbVJEM0tIRDNqNWprS1V6RW9DSC1uSlBUQQ?oc=5) |
