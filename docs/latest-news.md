@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月09日 22:56:46（北京时间）**
+🕒 更新时间：**2025年11月09日 23:00:41（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Meet the Philadelphia-based graphic designer who took inspiration from bodegas, Bollywood and hot dog carts for Zohran Mamdani's iconic campaign - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQYXYyVG1tQlJyRVhOTHFYSFFhd0hOQjQzWHNpOXNZVkU0Q0FmdW9zcmFlS1dDV09QXzZFY19IOW04TENkcUdScWNqV1h4MmlVSTBFQWRVaFVPcmh6Zm85X1BYRkVaajlNajZDeGZYa3hVT0ZDUkJsY2ZKV2xJUXVUYVRrRDdQMnVtb2xDMGtmUkdKNmhNU1Nwc2RkaERtUQ?oc=5) |
 | FAA bars MD-11 flights after fiery UPS jet crash - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNVWhrOXF0YTlDSTZRQjRNN2FaZHRwLUxwOHJyX18yZFhnU1dQUXQyNFhLVzh4YUh2czY4b3BuT2FKazhtR2x5c1NmVlRlSXNZQ1hHNGlxSXNYNGp5ME53ZkZXUjFhLVMtQ1NOR0hOcUkyWk1YVzUxRmZfUGZIb2Ytc210VElDQWNQWFE4MmNxV3JUMWNSbmx0UXlrYTV5UGx5d0JFVnZkeWNCRzJKSG1nbnNKOGhFWGo4ZTJRbWZJVQ?oc=5) |
 | Trump calls for ACA subsidies to be sent to consumers - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPdjVkTG5rSHVWUGdkTm5VZ09yUEd4YmE4Z2FfcHVxRG8tc1kyQkV0SDJoclZoWllOZWxxVFlxYkttNURITnV6Y1o3S2dpaVV0aDBQOVNudmFwMnBRMXU0NUxhaU5PaVhSa0ZtNXhFS1JHczJoZ2s3dEVLYWw4RWVQQjc5dw?oc=5) |
-| Border patrol chief reprimanded for lying claims shots were fired at immigration officers in Chicago - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPamVWYjA3RlRDLTh6ZC04blpBZmRtal9DS3NBR09XVmlGYTBjM0xvVUZXYlc0c1BjYU1STkRHNm16a1JGVExyUHQ4ZmtfdUJNZmc3a0tDREZjYzNJRmlqd3JNU24wc2FCNHptN3UwWS1jRExkVEgtZjVGNnN1SWs1ZVRhYXlpWXVseTdmSA?oc=5) |
 | How an Adam Schiff indictment could shake the Senate - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOaUxUM1lHOERDQUFwVE40NjBYb1Y2djdod2tnVzBxZjhqT184cVZCYXl2Tno5WlpOWWNaVG1fR3NpbVJIbUUzRjlEdzhoOGhDYk0zU1RBVTNPR3VmbE9JRFhtVVZGRVVGa0RCVlZQZnYzRHU2ZlVuRU1LdFNNWWt0Ymdoel8xejV4VVE?oc=5) |
+| Suspect in murder of California family asked online psychic: "will I get caught for what I did"? - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOV1drX0NaRGJIY2xTY2s2ODZwUzN3V1NVVmtpN1dZYWZWS29uVFJvUWVEb0s1UFEwaldSd1NyUE1RZi0tR0JVMnBGUjZVcmx6TDkyME1xT0tWTENnR2d4YzJMWWNtellTSFpJUVg4X2pseHA5bUhEc2JLWV94VGQ5XzRQcU9kVFprRUp2Z01fTHNWMldkbHF5V1BNQnbSAaIBQVVfeXFMTjY0YXl2cF95SW5YY2ZHdjFLbk01RnFuanZpWE9oeGpQbHJ3bFpXU3U3TTlxbEZvcFBqSFpWNzZ6Z0lkcE8yV3VmcU9oQmhNOFBmNUZBc1BYbU9mTGNOa3lxWnQ0S1RmLS1vLWxmTmgwcjhnZlZSYkVGcFJPWDVQeVFnQ1JoSkVQQ0piVFR2empmUlM3NXpVdGVYMWhEV0pVVXl3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
