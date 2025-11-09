@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 00:25:39（北京时间）**
+🕒 更新时间：**2025年11月10日 00:33:14（北京时间）**
 
 ---
 
@@ -24,7 +24,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | A Timeline of the Legal Saga Surrounding SNAP Payments - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBfdEFfRERwMjZxaktwOGVhM3B2YWRpeHQ3VV9hTmoxZ2pIclQwQTRIZFpCckVEWHg3QWYzOS1HSnJod0pxQVM3ZTJNQjlFZmJkMV8tczVyWEc1MUJBMUxzWHJicjl4WFB0dzAzUG1DRlhBcUNTRHlGRnNVRGZHSlk?oc=5) |
-| Nearly a million people evacuate as Super Typhoon Fung-wong threatens the Philippines - NPR | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxOc0JqQTM0SWswdFpIOUhabnNhNUpGbUNaYmVkTnE0V3J3LThTTTNvOVZjMm5YYXFDbUlEaTlMYkgzclB3Tzl6dklUY2p4MmlaWTUxNmMtZ09MU01iMVQtZURMZjllZWVaNk5vQ0ZTU0xfNGdSZEVWdjNjelRwWHdSSC1SMkZZVTY0RUZVMlA4NVRoMXA4RWtUR1FTUUF5enhpd28zQ1NIc1Rqd3M1X1l5OTVlbi03NGpMY2VVTGo5U0tYeTUzcHc?oc=5) |
+| Super Typhoon Fung-wong slams into Philippines after already killing 2 and displacing 1 million - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOTzd1cWRDdlAzVFpMb1ZvVlhPOEhjd1R4aDFqbmFYcmlRUkpmZTZpdXBTX29KaENPcjd0bjRvTlp0dmtVY2o2d1p2Z090aHR1NllGWkFYQjl6V0pxTVpUaWoyZ3UySVdQQTdTSTdwSjJKWFFhaGRKaHRXOENpSlgycnB5TG5ZamNtSXVsMWRTZ1BiTzREaWVsY0pxbDJXQ1NoYmlMWlNFZENsamVNMTJGVDZuaWhjdw?oc=5) |
 | Coachella Valley Republicans fear alienation after Tuesday election - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPa1pLN3ZNU3VmU0lvOWNoQno3X1BsLW13VGJGNVRMZzhLbEV6VFY1b2t0cHRXWi1qQ0c0SWZ4VXp1Vlo5dFpaZ2hGVHpFc2dXckdOaW54dmQ4SzZ1NHBKZ3RCV0FGa1NhOWMtZUVUejQtVXJnTXZvcElURldwYlpMX3hfNTRoT1RpUUxPQ2ZMUm41bWpWWEJuU243VHBMQWFiZDFvVE1R?oc=5) |
 | Where Democrats Will Duel Next for the Party’s Future - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNZ3lCNDgzZms0c3NTb1lYamdSVHZ6WFBMT1NBNGFEN0lYSm5YUExrdm9vNFFaU21ZZlJtdEFBNEJnd0NERVllZ04zYW54WjM5TFl6UkdIeG1zaWxEMWZTcGdMdldpUk92MzNZclBkQ2kyVzZRemRJSVBobmFLb1RkMGRTNFFpczgtcHNN?oc=5) |
 | Trump calls tariff opponents 'fools,' promises $2K dividend payments for Americans - Fox Business | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxNdEg1d3RJcHBBOXNEbVhBeTcxOHkzS2hzbTRkd2hVVEVkdUNTM0p1ODdiYVRCLVNHTnA0bFZRSmE4OHlfQVNLRjZSdlhtRVhienFTd2NNZXdScXBBWV91anlDZUFYLXp3c0VVQ3RMaUF4RG5mNTZCN0NKODBic1dvMDNnQXE1d2ZKV1J1RmRCV0M3TWVKTTNHc00zel9BUlUwUXlXOC0tamp4dGFzV1d1WFB0RdIBuAFBVV95cUxPcFZyUEpNVXJPVU9HVWxCazFZZkdhdWFBeHljcUwtaDBwVExDVDhfMktSdk9TLTZPUENYejdNdEk2QndyaTFVSW9RSFI4OUE0MTkxYVpTcGg5alM0eHptcm1ONGdRd0RENnhTOGZVTHBfMktZZWtHNFJrb3ZKNUw2eHhwTkZTdFRocTRTXzFENGEyTWNUZFZFVGN3Y0xDc2k0YW9yQ0pzekRGSVpfcVdYV05YTkFPS1B3?oc=5) |
@@ -32,7 +32,7 @@
 | FAA bars MD-11 flights after fiery UPS jet crash - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNVWhrOXF0YTlDSTZRQjRNN2FaZHRwLUxwOHJyX18yZFhnU1dQUXQyNFhLVzh4YUh2czY4b3BuT2FKazhtR2x5c1NmVlRlSXNZQ1hHNGlxSXNYNGp5ME53ZkZXUjFhLVMtQ1NOR0hOcUkyWk1YVzUxRmZfUGZIb2Ytc210VElDQWNQWFE4MmNxV3JUMWNSbmx0UXlrYTV5UGx5d0JFVnZkeWNCRzJKSG1nbnNKOGhFWGo4ZTJRbWZJVQ?oc=5) |
 | Bessent says no formal White House health care proposal as shutdown drags on - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNTmZNY3J6bkMwWktUajFDZGRSajU3ODFHY1FRWVd5M0liUUxKRzNmWlcxZWIzbEE2cVpyOUZBX3JLNjBTRzFGcG5OYWRLVHVvNWhDREVXc0p1ZVBnZm93QTI4XzVIVndSU3RWaFJUdDdBQktleXJLa1lhSFN3THBBRERkUlg4d1VRZDVWWnI2Q2RlT0FrdW5ldGZGbEJDRGlvZjYyNnpiWkV6M0U?oc=5) |
 | Border patrol chief reprimanded for lying claims shots were fired at immigration officers in Chicago - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPamVWYjA3RlRDLTh6ZC04blpBZmRtal9DS3NBR09XVmlGYTBjM0xvVUZXYlc0c1BjYU1STkRHNm16a1JGVExyUHQ4ZmtfdUJNZmc3a0tDREZjYzNJRmlqd3JNU24wc2FCNHptN3UwWS1jRExkVEgtZjVGNnN1SWs1ZVRhYXlpWXVseTdmSA?oc=5) |
-| Travelers face mounting delays this weekend as airlines cut hundreds of flights due to the shutdown. Here’s what to know - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOM05PeEZXY0c5YXk2Vnppa01rdmRSOTdFTllFZThrX2R0X2MtWlZtVXZaOVU1ZndiYzN1YnpRTlE4R2wtbi1XeWdrWm9tWEs4VkNNeHRYREFEakVhZjR5eFlrcTNmRTZXNEowNVJzdzY0M2wtdi1jZHdtN195cEFUTEEwc013RUFnRTFaYw?oc=5) |
+| One photo, a deluge of threats: Inside the Arizona high school turned upside down by right-wing activists - Yahoo | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxONVZDQVN6Znc5V1JHa1dldnpnbmpTUmNFR3A4V3l2b0NLR2VmemtDRlAtOXpMNHJmTVNyNFdFWHczdlR1anNRMGVIem9nS3R5bjFEcW1FbHRNaHJtT1NJOFctOTBlR1czYkVtMWRnOXpQRzdGai1BbWxoMWR6Njc4VzRDQ2NQN05UZHc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
