@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 06:56:43（北京时间）**
+🕒 更新时间：**2025年11月10日 07:00:03（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Thune Says Deal to Reopen Government Is ‘Coming Together’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNTVhIMWlxc1M4WFBUdVl1UVNWMXhOSFhvWm56cElwRUc0RFVHWjNrUzExWEQ4YzdhU3hBSVVET3IwUVRadmVZaWhZQ0U0OGV4bnhRcmJUY0JuVU5JeW96QlNUX3RCeS1xV0U0LXo2eHFSU1k3aG9RNENTVFN0MC0xaF9MUXhkbktGT3BR?oc=5) |
-| Trump administration orders states to pause paying full SNAP benefits - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNWEdGVXhyR2lYRWw0dXo2RnQtOFpJZmJ4ZU5aS0ZRWHF0UXhMdzlkSlBsZndVaExzaG1CamJOTC0xRGUyTG41QjQ3YWo1MkV6SUJfWF9XMHg5cU1GX3pUWUtuMGxVRERYYTJ3WXltckxRLUpxUE84TW5lNTJuVzlUbUxpOGRrdncwSm1v?oc=5) |
+| Trump Live Updates: Airport and SNAP Benefit Disruptions Amid Government Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE1tcV91dXZEeTBOdUJsQ2c2YW9ZaW9qbmZLR3l0OEJTNGxjSHdNY2lSc2c5VERJd2xDWTQza3dNcVJ3VHpCUW9tSGQwcW1WeFJ5NUF2X01vQWcwVWhlYjQ3T2k4Yw?oc=5) |
+| Government shutdown live updates as Thune plans Senate vote amid rare Sunday session - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQM3BScFNpZGtNb0cxQkw4NzV0dGprRWxfZWdvWEltVE9EbjYyUFBVQ3RsbUdITzRsY2VTQk80eEsxTDlURjR6OFk4NUFQZi0zZ1ZGX2xDT1liQXI2ZGViV2tmQ1VyekRHTlREQkFFTXdYa0xFNC00U1VRRmp4UlBHLUQwcWxrY202WGR2STd1WW7SAZYBQVVfeXFMTVpuMFY3NjdrX09zdlVUclkxVG1nb3JkRlpKbW0tam5lOWxHdFN5N192SUNzYXpnWEMyLTNPZndOa1lyZ2pqZ0VjdVF5alc2MGlZc1NWcEVYOVVySVNhdWJFZk1jTzIwNFdQWUJjeW1YTkxQQzJuNlk3cy12cW1hSnByS2phRHQxSnA1Xy1JNWMxSTI2YnJB?oc=5) |
 | Trump says tariffs to yield dividends 'of at least $2,000 a person' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQWDQwSlRjZDNJbVRvaTEyRWg2ZnNhQXZpYzNwQlJ6cWRTek9fNGRyQVpXNDhwc1hQVGlxWUFidW9JQm9lcWNIMGhLQk11bERtdmZxSGJtdkdTM05LRVFNZ2dKVjNEZ3RTYnJ5Qk4wMVZocVUzQkdwbkoxTzhzXzdFN1J4V2lfajQ?oc=5) |
 | Bessent says no formal White House health care proposal as shutdown drags on - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNTmZNY3J6bkMwWktUajFDZGRSajU3ODFHY1FRWVd5M0liUUxKRzNmWlcxZWIzbEE2cVpyOUZBX3JLNjBTRzFGcG5OYWRLVHVvNWhDREVXc0p1ZVBnZm93QTI4XzVIVndSU3RWaFJUdDdBQktleXJLa1lhSFN3THBBRERkUlg4d1VRZDVWWnI2Q2RlT0FrdW5ldGZGbEJDRGlvZjYyNnpiWkV6M0XSAbABQVVfeXFMTXJ3dHlEbjNlMVFDM0FLRHk3UVI1cXhhZWpaRGU2TU1BZy1LX3RQQlpCaE80SUE0NXNMaWtsTERiNm1aeklyZGNsZ2ZFeVNZT2JfZ29uNVBDb25KTE90ODJPaEh0U1BKTkJzUWRiak9vTGdSTU1qZUl6SklRWG0taEFsMWRSRVJrVHFaV1NoX0xuSGktV2ZWRTQ0QUFQaFdBbjJwNGI2ekQxTFo4Z3ZHa3k?oc=5) |
 | Newsom at Texas rally celebrates Prop. 50 victory, take swipes at Trump - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOLVdvRU4xMmpHbndQMFM5SW5NWHVFT1RTLWx2aVFFRUZWZjAzWExIWnpYal9nM0hVRDF1aVFzNXVXdHhwbW9wdk5kX0tBekpfNWx1MElCTmYtU3ZYRmUyRElTUmZLR1BMc1JXOFRtSWZBQWlKaXREczMwa05oVDljekIxN1BNcmZINHo3T2ZiZTBPUU9kalhwZWMtRFNpZV9pclprdHJ1Wmt1QUNvNjhnSQ?oc=5) |
