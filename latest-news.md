@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 04:41:46（北京时间）**
+🕒 更新时间：**2025年11月10日 04:48:50（北京时间）**
 
 ---
 
@@ -28,11 +28,11 @@
 | Super Typhoon Fung-wong slams into Philippines, killing 2 and displacing 1 million - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOTzd1cWRDdlAzVFpMb1ZvVlhPOEhjd1R4aDFqbmFYcmlRUkpmZTZpdXBTX29KaENPcjd0bjRvTlp0dmtVY2o2d1p2Z090aHR1NllGWkFYQjl6V0pxTVpUaWoyZ3UySVdQQTdTSTdwSjJKWFFhaGRKaHRXOENpSlgycnB5TG5ZamNtSXVsMWRTZ1BiTzREaWVsY0pxbDJXQ1NoYmlMWlNFZENsamVNMTJGVDZuaWhjdw?oc=5) |
 | Newsom at Texas rally celebrates Prop. 50 victory, take swipes at Trump - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOLVdvRU4xMmpHbndQMFM5SW5NWHVFT1RTLWx2aVFFRUZWZjAzWExIWnpYal9nM0hVRDF1aVFzNXVXdHhwbW9wdk5kX0tBekpfNWx1MElCTmYtU3ZYRmUyRElTUmZLR1BMc1JXOFRtSWZBQWlKaXREczMwa05oVDljekIxN1BNcmZINHo3T2ZiZTBPUU9kalhwZWMtRFNpZV9pclprdHJ1Wmt1QUNvNjhnSQ?oc=5) |
 | Trump Renews Attacks on Obamacare in New Push Over Government Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOTC0wQjAwWXhzYW9wbDNRMDZRajdJUkNaVkx4dFU3SmxreXVIQ2E2S294NTZndHo0cUtsdENtWlBTdmg1QlhOTlhjWmpXQ1ZGdTBRYmJ0Z2JxbDNPTG1nMTItTEx3Nng2RDlzdHBPR2g5dkdqblJ6N1IxaURzQXF5SFR3?oc=5) |
+| Jeffries: Democrats will ‘definitely’ win back House in 2026 - Politico | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOUU11aGM1cW4wQjUtbTR1U1o5eEJ1ZXB1bFVXdF9EelJpTFBzd04wWVEzQ1ctd3lJcWRFMms5bEJ2VjBiS1dydGYwVDhGYnNFU01DWTRkSVZSTloyQ2ZwZnBwWkhxclBzUnBFWG9neEs3LTEteHBTVFVseV9FcUJjRGV5SHhZckF1UDZfSUwxTnM2Zw?oc=5) |
+| Longtime NFL commissioner Paul Tagliabue dies at 84 - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNaHExc3E0STdlbnllaWhGcTRzYk12c3d3Szg2VllHYnhZR3BjZ25SZzdfZ1ZUR19aVDR0WkVJdWtOYTBYZmJKVWZCWU4wY3ZZRFUxRFFPNTNDSGpNZk9uaFczOG5HcnNtY1F0Z19lZHZBeElmN0poWGgzdFc3M2dvYU0wcGMzdXJ6TG96UlhjSG5yQkk?oc=5) |
 | Deal to end government shutdown in reach - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOMVRFNU1OTXBvTk5MSThfNkdSRWtfSk9jc2pYZFpRYXBTS3ZNeEJ6cm1HMmhhdkRWNk1YU3VQNGdxZHd5Z0tUS1VkamJZVmdiSXNNWkFCLW1PVkduZ1RPTFB0SWtaZWI3NFh1NWhVbnZNc1BMdVBJRGRtMElHZUlYTVFkYnh6QmNuLUpZ?oc=5) |
 | FAA bars MD-11 flights after fiery UPS jet crash - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNVWhrOXF0YTlDSTZRQjRNN2FaZHRwLUxwOHJyX18yZFhnU1dQUXQyNFhLVzh4YUh2czY4b3BuT2FKazhtR2x5c1NmVlRlSXNZQ1hHNGlxSXNYNGp5ME53ZkZXUjFhLVMtQ1NOR0hOcUkyWk1YVzUxRmZfUGZIb2Ytc210VElDQWNQWFE4MmNxV3JUMWNSbmx0UXlrYTV5UGx5d0JFVnZkeWNCRzJKSG1nbnNKOGhFWGo4ZTJRbWZJVQ?oc=5) |
 | BBC director resigns after criticism of the broadcaster’s editing of a Trump speech - NPR | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxQcTIwaUpzcXVDMWRSbEdTamk4V1ZOcTRhRWxycmI5N1BWajhNeGFtTm9FaTVpX0xmNWt5ZlZ5ay14N2pJb0RqSnVUWk85WEJFNUh4b2VPa1FWaDlqYUhUbXY5OWwwb0pfZkg4aEZDT25JaEdiUTd2amJRYUVFUEdaWGFpYTI0NmFsSEVQTHA3dUxRYVhGOE1HR0pjN2hfbmRIVmJaUDRBdkIyV3NvemZNTlJTTzhFVFRHQUhjNWh0NFJUaHhzWVE?oc=5) |
-| Escape from New York: Bankers flee Mamdani for Texas - The Telegraph | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQMkdBS195U19uVDhvaXZWTWdiZDNiX2hkX1FmOGNUUnZRNVBZaExiTGV2U2p0aDdoQURMYVlRdjNGWFR5Z2Z5VG54RW5teFJIN2VyemYyemZWSmxMV1I4TlRmVk1wSjM3OTZLeHVvS2RKd1BsclJ2S2xqZTdjRDZYNk5SMUFkQ0xPT3h3WFhFbUw3LU5RdlZjbFI5ckZQal9CWG1vWUNn?oc=5) |
-| Border patrol chief reprimanded for lying claims shots were fired at immigration officers in Chicago - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPamVWYjA3RlRDLTh6ZC04blpBZmRtal9DS3NBR09XVmlGYTBjM0xvVUZXYlc0c1BjYU1STkRHNm16a1JGVExyUHQ4ZmtfdUJNZmc3a0tDREZjYzNJRmlqd3JNU24wc2FCNHptN3UwWS1jRExkVEgtZjVGNnN1SWs1ZVRhYXlpWXVseTdmSA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
