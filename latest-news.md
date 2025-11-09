@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 02:40:31（北京时间）**
+🕒 更新时间：**2025年11月10日 02:49:25（北京时间）**
 
 ---
 
@@ -27,7 +27,7 @@
 | Super Typhoon Fung-wong slams into Philippines, killing 2 and displacing 1 million - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOTzd1cWRDdlAzVFpMb1ZvVlhPOEhjd1R4aDFqbmFYcmlRUkpmZTZpdXBTX29KaENPcjd0bjRvTlp0dmtVY2o2d1p2Z090aHR1NllGWkFYQjl6V0pxTVpUaWoyZ3UySVdQQTdTSTdwSjJKWFFhaGRKaHRXOENpSlgycnB5TG5ZamNtSXVsMWRTZ1BiTzREaWVsY0pxbDJXQ1NoYmlMWlNFZENsamVNMTJGVDZuaWhjdw?oc=5) |
 | Trump says tariffs to yield dividends 'of at least $2,000 a person' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQWDQwSlRjZDNJbVRvaTEyRWg2ZnNhQXZpYzNwQlJ6cWRTek9fNGRyQVpXNDhwc1hQVGlxWUFidW9JQm9lcWNIMGhLQk11bERtdmZxSGJtdkdTM05LRVFNZ2dKVjNEZ3RTYnJ5Qk4wMVZocVUzQkdwbkoxTzhzXzdFN1J4V2lfajQ?oc=5) |
 | Coachella Valley Republicans fear alienation after Tuesday election - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPa1pLN3ZNU3VmU0lvOWNoQno3X1BsLW13VGJGNVRMZzhLbEV6VFY1b2t0cHRXWi1qQ0c0SWZ4VXp1Vlo5dFpaZ2hGVHpFc2dXckdOaW54dmQ4SzZ1NHBKZ3RCV0FGa1NhOWMtZUVUejQtVXJnTXZvcElURldwYlpMX3hfNTRoT1RpUUxPQ2ZMUm41bWpWWEJuU243VHBMQWFiZDFvVE1R?oc=5) |
-| Border patrol chief reprimanded for lying claims shots were fired at immigration officers in Chicago - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPamVWYjA3RlRDLTh6ZC04blpBZmRtal9DS3NBR09XVmlGYTBjM0xvVUZXYlc0c1BjYU1STkRHNm16a1JGVExyUHQ4ZmtfdUJNZmc3a0tDREZjYzNJRmlqd3JNU24wc2FCNHptN3UwWS1jRExkVEgtZjVGNnN1SWs1ZVRhYXlpWXVseTdmSA?oc=5) |
+| Bessent says no formal White House health care proposal as shutdown drags on - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNTmZNY3J6bkMwWktUajFDZGRSajU3ODFHY1FRWVd5M0liUUxKRzNmWlcxZWIzbEE2cVpyOUZBX3JLNjBTRzFGcG5OYWRLVHVvNWhDREVXc0p1ZVBnZm93QTI4XzVIVndSU3RWaFJUdDdBQktleXJLa1lhSFN3THBBRERkUlg4d1VRZDVWWnI2Q2RlT0FrdW5ldGZGbEJDRGlvZjYyNnpiWkV6M0XSAbABQVVfeXFMTXJ3dHlEbjNlMVFDM0FLRHk3UVI1cXhhZWpaRGU2TU1BZy1LX3RQQlpCaE80SUE0NXNMaWtsTERiNm1aeklyZGNsZ2ZFeVNZT2JfZ29uNVBDb25KTE90ODJPaEh0U1BKTkJzUWRiak9vTGdSTU1qZUl6SklRWG0taEFsMWRSRVJrVHFaV1NoX0xuSGktV2ZWRTQ0QUFQaFdBbjJwNGI2ekQxTFo4Z3ZHa3k?oc=5) |
 | BBC director general Tim Davie and News CEO Deborah Turness resign over Trump documentary edit - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiVEFVX3lxTE84WXFzYmxrYVpqS1kyWnpXN1FmazBGYlZSYkJJb080d3lLV25vLTZxRzdKb0N2M0RPOFUwaWk2cENGRDJMYzlWN2YwR0Z2Uy1OOXp2ag?oc=5) |
 | FAA bars MD-11 flights after fiery UPS jet crash - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNVWhrOXF0YTlDSTZRQjRNN2FaZHRwLUxwOHJyX18yZFhnU1dQUXQyNFhLVzh4YUh2czY4b3BuT2FKazhtR2x5c1NmVlRlSXNZQ1hHNGlxSXNYNGp5ME53ZkZXUjFhLVMtQ1NOR0hOcUkyWk1YVzUxRmZfUGZIb2Ytc210VElDQWNQWFE4MmNxV3JUMWNSbmx0UXlrYTV5UGx5d0JFVnZkeWNCRzJKSG1nbnNKOGhFWGo4ZTJRbWZJVQ?oc=5) |
 | Virginia Republicans turn on each other after crushing losses - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPZWRxbUUxRjRaTDBGX2lDMEh5QnhQdGJlaHhFZk9NejhCem90UXNnT1hZRmRCZUtqUlBiN1piY2hvRm5nUzNUWkVSYTE3bk5xeHVuS0R4MERyNHllZVhrc0Y3cUNTS2U1V1FKT29fRllNakVxQ211STZqY2tSX0JJZm05ZkVWbm95YzJxUVliU294d0RVcUpz?oc=5) |
