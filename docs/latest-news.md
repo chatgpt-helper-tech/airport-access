@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月09日 18:57:22（北京时间）**
+🕒 更新时间：**2025年11月09日 19:01:14（北京时间）**
 
 ---
 
@@ -16,7 +16,7 @@
 | Women are hiding their boyfriends online and there's more than one reason why | [阅读全文](https://www.bbc.com/news/articles/c93x1q5395do?at_medium=RSS&at_campaign=rss) |
 | Claudia Winkleman's unstoppable rise to become woman of the moment | [阅读全文](https://www.bbc.com/news/articles/cjw96xw8v93o?at_medium=RSS&at_campaign=rss) |
 | Ever feel the need to switch off? Your vagus nerve might hold the key | [阅读全文](https://www.bbc.com/news/articles/cy0k9yz5wexo?at_medium=RSS&at_campaign=rss) |
-| Chatbots encouraged our sons to kill themselves, mothers say | [阅读全文](https://www.bbc.com/news/articles/ce3xgwyywe4o?at_medium=RSS&at_campaign=rss) |
+| Bend It Like Beckham director has a sequel - and a spin on a Christmas classic | [阅读全文](https://www.bbc.com/news/articles/c2lpgen877ko?at_medium=RSS&at_campaign=rss) |
 | How this year’s Christmas ads ‘let real life in,’ from cost of living to masculinity | [阅读全文](https://www.bbc.com/news/articles/c0rp7exwq8ko?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -29,10 +29,10 @@
 | SNAP food aid gets to people in some states while others remain in limbo amid court battles - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPLVlLM180WVBvWG9fWGtwbWVweU5QaW1BaGJPdE9GNHA0VWZEX1FFS3lhMGF0SUFPSDduUG1aQXRMWVQ5RkVYaGVsWXF0WC1WREpWeUYxNWhkOTIxck8wcHFOVVdJczNQNzBGRjZ1MHZYWXZtdl9tZUt1VUVzQ0h0bnI3X3hRSTgzbUJvOXlNbno1bE81TnFucU9sWQ?oc=5) |
 | Mayor-elect Mamdani reeks of Lenin — but NYC’s wise safeguard against Marxism stands in his way - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxQb3d3dnVfLUhlMThadVZsRXpqTlBrbl9fOTl1cU1oYTUzbWhTTVV1T3ZwR0dPdlFCN3VhTnRCYXE0OTZSY0NlQXBsVU9wQmlDUDBiYWRYSTVGdzhWNzJuRFZmajdTM1RXLTBDMFg3bGV6SVJ5UkthYmNpckYtcC0zNTd0WklDSDhFOFQxbUNVeHItS0tLX0pQYWg2SUhBMmMwcVV2NVhVM3hCWkJ6MXFtNC1lbHVPQktDdVFDVjMwWExqTzREZ1JGR0hta1U5NFJmQTNmdWVpaw?oc=5) |
 | 4 dead, 13 injured in Ybor City after law enforcement pursuit ends in crash - Tampa Bay Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNS2RWNnp6SEZkam9qMDFkZlk0TEJOSWIyRGxwdFcyVUNxczU2REhXM1hfX3VVYWhVY3diNWJRTGxNVVNfVmt5VVF4RFFHUGwyQkx6T2N6enBycjRGZ2Fic0VuVGJFYnlPRTZMMnVlZEs1b2hsTVNoaUFnSk9RQnBucC1zUHFGQk1LQ0xv?oc=5) |
-| Nearly 1,500 flights canceled on second day of cuts tied to government shutdown - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOVjN3d2dkUTJ1V2hqWFBTSF9KMl85T0k0ZF9FSjV0dlktVXo5S2txdXJHS2gyN2hOVWFfbUdOZnNtU2xpY3ozNVY3cFNUc25LY28xY3V3ZXpyVER6QnZ4NXFjcHJ0aG1nVHNaXzVBdXQzamdZbURBZlBaYWR2NWQ0aVpqTmpHRTNMcXprRlBfQWdzUQ?oc=5) |
 | FAA grounds MD-11 planes following deadly Kentucky crash - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQOWNJd196eDRHYzIxRkdDSk5BS2xRdDhvcUtQZ1NWMzlDalY4VmljN1V3aktpYmxCNWxBUlpFYUNJUnVpOXQwVE85bGJyWnI5QmNUTWVCd2V6RTJKajh6b2hkOGpHRElQWnhGZlpiUDBtRTZxTlNPVzhPY09LSHhFeGx2Z0dsdWplQVhrWnpRZVlVdUVMRVgwQmR1WUsyT0lC?oc=5) |
 | Trump signals no shutdown compromise on the Affordable Care Act, calling it 'the worst Healthcare anywhere in the world' - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNWnZiQ2c5T0t6ZDFRNkNvTmtqSHVGSG1zLW5VazR1b2t3TGVfaWpsaGRtZ0l1b2NCdGF0c1NUQ08wRmNNanc1TDI3ekVzQ0ZXRmpWQWEtMkdTUGdvNzNZRHotNUdPZjBvSVR0czU5X3dUUmNnV2Z4WWRmQVptZm1RQlUxeE9QVTI5ZGt5bDJCQm9td2pIOVlLRmZ4LVc4WC1fQktqdjI2bmpkN0tFYy02MDBFODJHWmdyckdqS2h0b1I4TURLR09TRXBNU0hTYXZR?oc=5) |
 | Newsom appears onstage at Texas rally to celebrate Prop. 50 victory, take swipes at Trump - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOLVdvRU4xMmpHbndQMFM5SW5NWHVFT1RTLWx2aVFFRUZWZjAzWExIWnpYal9nM0hVRDF1aVFzNXVXdHhwbW9wdk5kX0tBekpfNWx1MElCTmYtU3ZYRmUyRElTUmZLR1BMc1JXOFRtSWZBQWlKaXREczMwa05oVDljekIxN1BNcmZINHo3T2ZiZTBPUU9kalhwZWMtRFNpZV9pclprdHJ1Wmt1QUNvNjhnSQ?oc=5) |
+| Syrian president arrives in U.S. for meeting with Trump - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMic0FVX3lxTE5ma21PMlh6VjZ2dnZ2cUs2R2hUYmRNNXUwVjhrU05BbGVISzctU0hnVTFSNDlYRnVGbmE2dVpyUFE0Xy0zN2l6SV9jSGR3RllCaU40YkJtZEVUWndBeXFtWGx1TU1YWm9jVHV2QTE0SHFhb2vSAXhBVV95cUxNNkdzMHlvRW9obHJybnB4SV9EbGItdndEUUNfTC16NlVnR3NGRjFvc2hXVE5TTk95WVZCNEhBRDFUMmY2QUZaR2hkSUdHZjFpaGtVWVJJLUpNZ1E2Q0ZVR2NxamVYVm9IcTJXZW5zVVBOSUdpVHdsSTA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
