@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 03:56:23（北京时间）**
+🕒 更新时间：**2025年11月10日 04:00:46（北京时间）**
 
 ---
 
@@ -9,6 +9,7 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Davie and Turness resignation statements in full | [阅读全文](https://www.bbc.com/news/articles/c1k02vr1my2o?at_medium=RSS&at_campaign=rss) |
+| Watch: How Tim Davie addressed BBC controversies over the years | [阅读全文](https://www.bbc.com/news/videos/czxk2ed2780o?at_medium=RSS&at_campaign=rss) |
 | UK to help protect Belgium after suspected Russian drone incursions | [阅读全文](https://www.bbc.com/news/articles/c3dn2ep584ko?at_medium=RSS&at_campaign=rss) |
 | A moment of stillness for Royal Family and veterans at poignant Remembrance | [阅读全文](https://www.bbc.com/news/articles/cdx4dpl0g97o?at_medium=RSS&at_campaign=rss) |
 | HMRC to review suspending 23,500 child benefit payments | [阅读全文](https://www.bbc.com/news/articles/cjr0p4l2qryo?at_medium=RSS&at_campaign=rss) |
@@ -17,13 +18,12 @@
 | Israel receives body of soldier killed in 2014 in Gaza | [阅读全文](https://www.bbc.com/news/articles/c2kp3yjy8q7o?at_medium=RSS&at_campaign=rss) |
 | New flu virus mutation could see 'worst season in a decade' | [阅读全文](https://www.bbc.com/news/articles/c2dr8gzdz1wo?at_medium=RSS&at_campaign=rss) |
 | Super typhoon makes landfall in Philippines as nearly a million evacuated | [阅读全文](https://www.bbc.com/news/articles/cq509yj82y8o?at_medium=RSS&at_campaign=rss) |
-| Trump administration tells states to stop paying full food aid benefits | [阅读全文](https://www.bbc.com/news/articles/cly9pggxydeo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump Live Updates: Airport and SNAP Benefit Disruptions Amid Government Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE1tcV91dXZEeTBOdUJsQ2c2YW9ZaW9qbmZLR3l0OEJTNGxjSHdNY2lSc2c5VERJd2xDWTQza3dNcVJ3VHpCUW9tSGQwcW1WeFJ5NUF2X01vQWcwVWhlYjQ3T2k4Yw?oc=5) |
+| Trump Officials Push States to ‘Undo’ Work to Send Full SNAP Benefits - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOdGJXYy14cjRCVnN5Q0RxeXdUNHAwU3EySVlORE4xUjdodjJrRi13YUpjQ0hXUndfQ1R5ZUw3OTYxbEh3UHU3amptc2JHOGhHZk45UFV1Qk5Ha1U0YzlNMzJSWEtFLTdVTjRfc3RwZ2o5NF9yZkZaMWx5aXRCSkwybm1fb1J3elNTSEo0UDVYX3dDNUd1aDdIN19wNE1VMGpNSEt3Z2tn?oc=5) |
 | Trump says he'll issue $2,000 tariff dividend to all except 'high-income people' - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNWHRCZjl6MGR4YVlicU5BNTQyTFdsYmdfcFpqcy13UmxKTVMtSzh6X28xeGhBNDNURUI3TXJKVU9SWVkzcDVfcmRUbU9DUUluajRWX2ZTWFZMdGtuRVUxWWJsMzk5ZERGOWl0T0pjb3dyemJJTzYzWU5DWlgzNlJQaVpKamhXOExodW9wNVZQdE56cTlNTHNpYXJ5WEJ6d3V5dUHSAacBQVVfeXFMT19UOF80RE1qa2RGZkVwMWVkT0Z1b205bS1IMVlOeU5fSS0wTVlsWC1FR0pOUDZHU0dWZzZxUFZYejVRQmpQVEk4OFlSRlBzYTBNTDJNSmN1WUszR2tOZmhlQ0h0RTBVclJpVVBMcXRSZTVTeTB2MXhON2FqRUwwVXUyZ0FOZXl5U0Y4aVNBVWtMZkpNa3pXLWhpYVR2NGRTZlpaZlhFTDg?oc=5) |
 | Super Typhoon Fung-wong slams into Philippines, killing 2 and displacing 1 million - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOTzd1cWRDdlAzVFpMb1ZvVlhPOEhjd1R4aDFqbmFYcmlRUkpmZTZpdXBTX29KaENPcjd0bjRvTlp0dmtVY2o2d1p2Z090aHR1NllGWkFYQjl6V0pxTVpUaWoyZ3UySVdQQTdTSTdwSjJKWFFhaGRKaHRXOENpSlgycnB5TG5ZamNtSXVsMWRTZ1BiTzREaWVsY0pxbDJXQ1NoYmlMWlNFZENsamVNMTJGVDZuaWhjdw?oc=5) |
 | Coachella Valley Republicans fear alienation after Tuesday election - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPa1pLN3ZNU3VmU0lvOWNoQno3X1BsLW13VGJGNVRMZzhLbEV6VFY1b2t0cHRXWi1qQ0c0SWZ4VXp1Vlo5dFpaZ2hGVHpFc2dXckdOaW54dmQ4SzZ1NHBKZ3RCV0FGa1NhOWMtZUVUejQtVXJnTXZvcElURldwYlpMX3hfNTRoT1RpUUxPQ2ZMUm41bWpWWEJuU243VHBMQWFiZDFvVE1R?oc=5) |
