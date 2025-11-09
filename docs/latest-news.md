@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 00:56:27（北京时间）**
+🕒 更新时间：**2025年11月10日 01:00:51（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Trump again promises $2,000 tariff dividend as SCOTUS decision looms - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE05SzJuRm51cEtIVHBNZV9rQ3Nzam9BNkhRTG9JQVl2RkI1RnE3U0ZUaGlndzNvNVlHeXl4dnIyQzN2Mmc5NWZGREtiWTAyam9XeWJKYWx2TTFERzNxVHNucFV4bEhhbkRfakVwZjlCai1sdHdvMlFzNVhUeC14UQ?oc=5) |
 | Where Democrats Will Duel Next for the Party’s Future - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNZ3lCNDgzZms0c3NTb1lYamdSVHZ6WFBMT1NBNGFEN0lYSm5YUExrdm9vNFFaU21ZZlJtdEFBNEJnd0NERVllZ04zYW54WjM5TFl6UkdIeG1zaWxEMWZTcGdMdldpUk92MzNZclBkQ2kyVzZRemRJSVBobmFLb1RkMGRTNFFpczgtcHNN?oc=5) |
 | Talks to end government shutdown take a promising turn, Senate majority leader says - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQTldHcVRtWUJLT2RXVFhJT0JwUVRUVl8weDExck5oc0trTmpBeTZiYkhJMEVyeWw1V0FXMjFYWEhPSGl2TVY2Mm14bUlKT1dXX1c5aFFBbjlncFRwbHFMalYwa1BIOEJiaC02MGs3bTl3Ry1aeXRnYS1VSllreWNhSzNlVy3SAYoBQVVfeXFMTTZ5OVU2NzVuMmpQVHBaWi1IdmozSmJqQ0ZLX2M1aW1qaUNjSEpGNHZaS2JubGZRZk5iRGFXYnp5cGRBSlVoNEhJS2ZRWHQ1eHVFQnJkVVFxNkxteUdFcmhuNzFMTWhNaHQ2M0QwUDJIVFh2VWlOc184alk0dU4yME9TM1RzVldqaXlR?oc=5) |
-| FAA bars MD-11 flights after fiery UPS jet crash - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNVWhrOXF0YTlDSTZRQjRNN2FaZHRwLUxwOHJyX18yZFhnU1dQUXQyNFhLVzh4YUh2czY4b3BuT2FKazhtR2x5c1NmVlRlSXNZQ1hHNGlxSXNYNGp5ME53ZkZXUjFhLVMtQ1NOR0hOcUkyWk1YVzUxRmZfUGZIb2Ytc210VElDQWNQWFE4MmNxV3JUMWNSbmx0UXlrYTV5UGx5d0JFVnZkeWNCRzJKSG1nbnNKOGhFWGo4ZTJRbWZJVQ?oc=5) |
 | Bessent says no formal White House health care proposal as shutdown drags on - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNTmZNY3J6bkMwWktUajFDZGRSajU3ODFHY1FRWVd5M0liUUxKRzNmWlcxZWIzbEE2cVpyOUZBX3JLNjBTRzFGcG5OYWRLVHVvNWhDREVXc0p1ZVBnZm93QTI4XzVIVndSU3RWaFJUdDdBQktleXJLa1lhSFN3THBBRERkUlg4d1VRZDVWWnI2Q2RlT0FrdW5ldGZGbEJDRGlvZjYyNnpiWkV6M0XSAbABQVVfeXFMTXJ3dHlEbjNlMVFDM0FLRHk3UVI1cXhhZWpaRGU2TU1BZy1LX3RQQlpCaE80SUE0NXNMaWtsTERiNm1aeklyZGNsZ2ZFeVNZT2JfZ29uNVBDb25KTE90ODJPaEh0U1BKTkJzUWRiak9vTGdSTU1qZUl6SklRWG0taEFsMWRSRVJrVHFaV1NoX0xuSGktV2ZWRTQ0QUFQaFdBbjJwNGI2ekQxTFo4Z3ZHa3k?oc=5) |
+| FAA bars MD-11 flights after fiery UPS jet crash - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNVWhrOXF0YTlDSTZRQjRNN2FaZHRwLUxwOHJyX18yZFhnU1dQUXQyNFhLVzh4YUh2czY4b3BuT2FKazhtR2x5c1NmVlRlSXNZQ1hHNGlxSXNYNGp5ME53ZkZXUjFhLVMtQ1NOR0hOcUkyWk1YVzUxRmZfUGZIb2Ytc210VElDQWNQWFE4MmNxV3JUMWNSbmx0UXlrYTV5UGx5d0JFVnZkeWNCRzJKSG1nbnNKOGhFWGo4ZTJRbWZJVQ?oc=5) |
 | Border patrol chief reprimanded for lying claims shots were fired at immigration officers in Chicago - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPamVWYjA3RlRDLTh6ZC04blpBZmRtal9DS3NBR09XVmlGYTBjM0xvVUZXYlc0c1BjYU1STkRHNm16a1JGVExyUHQ4ZmtfdUJNZmc3a0tDREZjYzNJRmlqd3JNU24wc2FCNHptN3UwWS1jRExkVEgtZjVGNnN1SWs1ZVRhYXlpWXVseTdmSA?oc=5) |
 | One photo, a deluge of threats: Inside the Arizona high school turned upside down by right-wing activists - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOelNMUXZRSjZmYl8zN3pFRzZ3VHJ2QlJzd1N0M1prSkpMZWU0WmxhZDgybzRuNm5UbjdpUmc1cTJyczdRVlcxcHFpZDIxN0h4LXh0V0tjaFVJTzNOMEhES0EzNVRXX2FzRmZaeExPNXU1cUNfVWpyZ3dteWMtZGZjRUp6T0tVQ3JtOHBiT0NpQUpNZnBJY1lKdWVhc0x2eEdXdThLOVF0dWw2cGVYX3ZpSTkxWDB5RXJH0gFWQVVfeXFMUGc3TFdsT2cxcWdwaHNmTFM1RmRzaXBfVjc5c1BBMHJkVGJhd2NQeTNFWGI4d0tTU0JkUmRJVHlTN3hTendpa0NwQXNOQk9mT0ltbnZQMkE?oc=5) |
 
