@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 03:09:41（北京时间）**
+🕒 更新时间：**2025年11月10日 03:17:39（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump Live Updates: Airport and SNAP Benefit Disruptions Amid Government Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE1tcV91dXZEeTBOdUJsQ2c2YW9ZaW9qbmZLR3l0OEJTNGxjSHdNY2lSc2c5VERJd2xDWTQza3dNcVJ3VHpCUW9tSGQwcW1WeFJ5NUF2X01vQWcwVWhlYjQ3T2k4Yw?oc=5) |
+| Trump Officials Push States to ‘Undo’ Work to Send Full SNAP Benefits - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOdGJXYy14cjRCVnN5Q0RxeXdUNHAwU3EySVlORE4xUjdodjJrRi13YUpjQ0hXUndfQ1R5ZUw3OTYxbEh3UHU3amptc2JHOGhHZk45UFV1Qk5Ha1U0YzlNMzJSWEtFLTdVTjRfc3RwZ2o5NF9yZkZaMWx5aXRCSkwybm1fb1J3elNTSEo0UDVYX3dDNUd1aDdIN19wNE1VMGpNSEt3Z2tn?oc=5) |
 | Trump says tariffs to yield dividends 'of at least $2,000 a person' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQWDQwSlRjZDNJbVRvaTEyRWg2ZnNhQXZpYzNwQlJ6cWRTek9fNGRyQVpXNDhwc1hQVGlxWUFidW9JQm9lcWNIMGhLQk11bERtdmZxSGJtdkdTM05LRVFNZ2dKVjNEZ3RTYnJ5Qk4wMVZocVUzQkdwbkoxTzhzXzdFN1J4V2lfajQ?oc=5) |
 | Super Typhoon Fung-wong slams into Philippines, killing 2 and displacing 1 million - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOTzd1cWRDdlAzVFpMb1ZvVlhPOEhjd1R4aDFqbmFYcmlRUkpmZTZpdXBTX29KaENPcjd0bjRvTlp0dmtVY2o2d1p2Z090aHR1NllGWkFYQjl6V0pxTVpUaWoyZ3UySVdQQTdTSTdwSjJKWFFhaGRKaHRXOENpSlgycnB5TG5ZamNtSXVsMWRTZ1BiTzREaWVsY0pxbDJXQ1NoYmlMWlNFZENsamVNMTJGVDZuaWhjdw?oc=5) |
 | Coachella Valley Republicans fear alienation after Tuesday election - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPa1pLN3ZNU3VmU0lvOWNoQno3X1BsLW13VGJGNVRMZzhLbEV6VFY1b2t0cHRXWi1qQ0c0SWZ4VXp1Vlo5dFpaZ2hGVHpFc2dXckdOaW54dmQ4SzZ1NHBKZ3RCV0FGa1NhOWMtZUVUejQtVXJnTXZvcElURldwYlpMX3hfNTRoT1RpUUxPQ2ZMUm41bWpWWEJuU243VHBMQWFiZDFvVE1R?oc=5) |
