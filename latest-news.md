@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月09日 10:08:53（北京时间）**
+🕒 更新时间：**2025年11月09日 10:17:02（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Two prisoners still at large after being freed by mistake in 2024 | [阅读全文](https://www.bbc.com/news/articles/cr4315ev559o?at_medium=RSS&at_campaign=rss) |
 | 'The best friend you'd love to have' - How Claudia Winkleman conquered TV | [阅读全文](https://www.bbc.com/news/articles/cjw96xw8v93o?at_medium=RSS&at_campaign=rss) |
 | Ever feel the need to switch off? Your vagus nerve might hold the key | [阅读全文](https://www.bbc.com/news/articles/cy0k9yz5wexo?at_medium=RSS&at_campaign=rss) |
-| Women are hiding their boyfriends online and there's more than one reason why | [阅读全文](https://www.bbc.com/news/articles/c93x1q5395do?at_medium=RSS&at_campaign=rss) |
+| How this year’s Christmas ads ‘let real life in,’ from cost of living to masculinity | [阅读全文](https://www.bbc.com/news/articles/c0rp7exwq8ko?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | US airlines cancel over 1,000 flights for a second straight day largely due to government shutdown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQcXEzNlVxa0F5ZTV0c3YyQmxJX3p5VDJGdDNjNjg5WFd4aGJ3SWNHVGFidGg2VG80bGJOdk9JN3BvQ2FZbC1vb3NTTWIwUzdOR1JoSTNxZ01GbS1YeS1jVHN2ZzhaNkRET1hXOG9PSFh5amRuWXBscFA4ZFFfY2hfVjB1Tmo4VGNPV01Wc05TZ01rLTE3OTdWSDhZM2RMb2Y2ZW1TZHBVc256N0lfMW5VZmNRaw?oc=5) |
 | FAA Orders Grounding of MD-11 Planes After Kentucky Crash - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPakp2X2hzZ1BsWFM3ZW9VbmhmTDFsZXZ6ZGhVd2NFT3Fiai1DNmg1dVZqWXN0UHMxV1VnZ0xlUEhCNEw1VEJpalZLMnJDMEN5aEM0b2NRbW1nOGI2NDBXa0RVTFNOemR4OHlQMEZ0TmJTRlFsOWRoOGV3M2dkRHBBbGdFQXVhRkFMdDRjSm04VGlqX1ltdlVsNjFVYnZYSzFoVWZMX2JlOA?oc=5) |
 | Stefanik’s run for New York governor could be a gift to Democrats - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQelZsZHltb3VlN1RLTDduZ0FKaUQyY2c4MEsxeXVfVFF4SkFGenU2bW9Id1Z5WWRrMVRHaFRFS3RjTHlselpRUU5TamZKYmpfOGFJcmFCcnNfQnZxY3dld1k0NkRBZHRSV2FyNXJzc1dyQkpCd0QwZi1UNzRuTXZUTU5ZRjdKN1pTSk9vNktWaTVXQ3pfZEhHRTdVOTNXVEdjWlBHbExkZHdKZDJCQmprLTBabXY?oc=5) |
-| 3 shot dead at landscape supply company in San Antonio, suspect 'down' - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxQOFVPLUtUOHpQVzRaSG4yU1dfNGwwczVzeHBaMkpnekIzdTVsWERyT3FEVnVFUFJIZzNWU25kTWV2VjBESW9YTTRwazB4c3Y5NTJXTnJJcWdNUUl2dXZQTlQtRms2bGtDM2tQM3lSa0NfVkxidVVoVWhLVU1heDE2ZEl0NFFRd2VHNDVCdDhWc01ReXJWekRhLdIBngFBVV95cUxNYmtXdGhKNkhFbHp6X2VQUWNFTEZaeUg0bkZnQ2ZHeWppR0NoWEk2S0pocEJxaFk5dUlKOFJnOHoyRlh1RmtFWlBZQnRpb2REYVFDUDVuYmJqOUFBZHlmYW9VMndONUhlVWFpcWVLblBSWElZRVg2T3hLZk55YXpUaU85NmxUSDlrWngxemhTS0FoYmo4MHNhaTY4QzEtdw?oc=5) |
+| Four people dead after shooting at landscaping business, including suspect - WOAI | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQai1TR1FlQjVVeXZTN1M1dEthd0NPQ3JLQXdsc0trYUJKOEx3TjcwSHg4ZFJMc3prX3hoRkVuZXE0UlI0U2NteF9HR3d4YlJnSHdHOWQ3RXNVQmdxUWhuNmRUNk5VbTY0aURXZFN6WDlRR05CbDlJaWVFam5nLWlKb09QMFNtTnRPQTJua3dUaERWdkd5UjFVTG1yN2JYSFFGSENRcDJMV0pvNUF0?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
