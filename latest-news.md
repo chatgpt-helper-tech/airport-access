@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月09日 14:50:02（北京时间）**
+🕒 更新时间：**2025年11月09日 14:57:17（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Voter fury emerges over skyrocketing electricity bills as AI stokes demand — and fears of a stock market bubble - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQTE8yNy1LaERxcllyN185d2hvVWpiUk1zTkNESEZqb3VkdEpvLXV1ejMxTHhuUWRWQzdrdnhEUXV0V1lMcFNLR05KX3lvQ05uQ1FLN3RGTXNTc1VBU1VJYUU5R3g5Wld4SGRCdmVNYTZNWXJlOUFwcUZyLXU1MkFXa1ZKckZjbWZPeDgtcWEwZmZIZmNxU0wyZ01LaTF0Ykk5WmdfSXl3?oc=5) |
 | Mayor-elect Mamdani reeks of Lenin — but NYC’s wise safeguard against Marxism stands in his way - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxQb3d3dnVfLUhlMThadVZsRXpqTlBrbl9fOTl1cU1oYTUzbWhTTVV1T3ZwR0dPdlFCN3VhTnRCYXE0OTZSY0NlQXBsVU9wQmlDUDBiYWRYSTVGdzhWNzJuRFZmajdTM1RXLTBDMFg3bGV6SVJ5UkthYmNpckYtcC0zNTd0WklDSDhFOFQxbUNVeHItS0tLX0pQYWg2SUhBMmMwcVV2NVhVM3hCWkJ6MXFtNC1lbHVPQktDdVFDVjMwWExqTzREZ1JGR0hta1U5NFJmQTNmdWVpaw?oc=5) |
 | FAA grounds MD-11 planes following deadly Kentucky crash - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQOWNJd196eDRHYzIxRkdDSk5BS2xRdDhvcUtQZ1NWMzlDalY4VmljN1V3aktpYmxCNWxBUlpFYUNJUnVpOXQwVE85bGJyWnI5QmNUTWVCd2V6RTJKajh6b2hkOGpHRElQWnhGZlpiUDBtRTZxTlNPVzhPY09LSHhFeGx2Z0dsdWplQVhrWnpRZVlVdUVMRVgwQmR1WUsyT0lC?oc=5) |
-| US airlines cancel more than 2,500 weekend flights largely due to government shutdown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQcXEzNlVxa0F5ZTV0c3YyQmxJX3p5VDJGdDNjNjg5WFd4aGJ3SWNHVGFidGg2VG80bGJOdk9JN3BvQ2FZbC1vb3NTTWIwUzdOR1JoSTNxZ01GbS1YeS1jVHN2ZzhaNkRET1hXOG9PSFh5amRuWXBscFA4ZFFfY2hfVjB1Tmo4VGNPV01Wc05TZ01rLTE3OTdWSDhZM2RMb2Y2ZW1TZHBVc256N0lfMW5VZmNRaw?oc=5) |
+| Worries Increase on Second Day of Flight Cancellations - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNaWotTHA5ZXBrZFI1dkstY3Y0RTAySHpkM05rUnNsRHNiQXBWMTFPck1SX1pjc3I4dHBrV2JaeTNzVGNnVjg2VFA2bFZjTE9rcW5UMkdjczl6OFN0VHNjN0ZXbk55RGh5bVg3R2ZlaGhBRVVNRXJqVUtWVDI4bFAydTFvVmVMdmo0bVBrRmJ4NmVoSEstajZzY3NrMkc5T2hFM0E?oc=5) |
 | Trump calls for ACA subsidies to be sent to consumers - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPdjVkTG5rSHVWUGdkTm5VZ09yUEd4YmE4Z2FfcHVxRG8tc1kyQkV0SDJoclZoWllOZWxxVFlxYkttNURITnV6Y1o3S2dpaVV0aDBQOVNudmFwMnBRMXU0NUxhaU5PaVhSa0ZtNXhFS1JHczJoZ2s3dEVLYWw4RWVQQjc5dw?oc=5) |
 | Man kills Florida deputy with his own weapon during traffic stop, police say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOSVA2R0xuay1jWS1tS2pVQWVqU0pGNlNSa3RXcVMxT0ZpU1VNZFo1VldvYW9xUlVEdEdVVWNSOXZ1aXhpMDJ1dHh0dGh1Rm5FWUhNSmlmRkk4eWUySDU4ZG5jWFpwcnN3eXN6cklvaEZNeHpwaTE0QXNCc25tT01WdHNlTG1oWnF2Y2JfVk55eWVRMUVXaFR6UENtT3B1d3dFd292NWdxU1LSAVZBVV95cUxQZHpSdElkUUpTLXRRUkFyR2pDcXltTkFnOVpsM3FNMzNzQV8wZk90NzI2M25rTm50TzFBSk5iTGlza3R1bzYwOTRrYnQ3RTY0VFdBOHFwQQ?oc=5) |
-| 4 dead, 13 injured after street racer slams into crowd at Tampa bar - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE5ISUJGcnlJaHRNeDBzZE11UE1mTmp1MllMa1Y4WGJYWm5GckhiNWxxOGV4SGxRZDdEOWJacTdDLWVlTksyZW5WeWZaUkN4emZhd3FFMHlneFRmUdIBX0FVX3lxTFBYU2NMNEZ0S255Q2s4akh6dm9HQ3lEZ0ZfY2ZwaUFjY3k1dW1FNGpqaFZHTzRiZm1HQUtFQ0p3dGdwcTRRMTd3aHIxaGpBcTNyLVFFNGVIaGZHWTQyODYw?oc=5) |
+| Government shutdown reaches its 40th day as senators work through a crucial weekend - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQbG9UajMzY19TYzBKbmpPOGw1d1NJdGkxQWJnZ1F5TVA3SjBYenFQaElPenV5WGJYRk5TLVJlUHc4UW9RbjYxYlVYMTNGRHlKWjdOa2gxY2RjWGt5WUJaOWFFRTNHY210Tndud2ZSaGUxZlV2d0owYm5UZ3VfVmxqVjNVLTFFODFmLXB6VTBMSUNRYUV6WlNYYl9B?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
