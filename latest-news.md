@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月09日 13:57:00（北京时间）**
+🕒 更新时间：**2025年11月09日 14:00:58（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | US airlines cancel more than 2,500 weekend flights largely due to government shutdown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQcXEzNlVxa0F5ZTV0c3YyQmxJX3p5VDJGdDNjNjg5WFd4aGJ3SWNHVGFidGg2VG80bGJOdk9JN3BvQ2FZbC1vb3NTTWIwUzdOR1JoSTNxZ01GbS1YeS1jVHN2ZzhaNkRET1hXOG9PSFh5amRuWXBscFA4ZFFfY2hfVjB1Tmo4VGNPV01Wc05TZ01rLTE3OTdWSDhZM2RMb2Y2ZW1TZHBVc256N0lfMW5VZmNRaw?oc=5) |
 | FAA Orders Grounding of MD-11 Planes After Kentucky Crash - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPakp2X2hzZ1BsWFM3ZW9VbmhmTDFsZXZ6ZGhVd2NFT3Fiai1DNmg1dVZqWXN0UHMxV1VnZ0xlUEhCNEw1VEJpalZLMnJDMEN5aEM0b2NRbW1nOGI2NDBXa0RVTFNOemR4OHlQMEZ0TmJTRlFsOWRoOGV3M2dkRHBBbGdFQXVhRkFMdDRjSm04VGlqX1ltdlVsNjFVYnZYSzFoVWZMX2JlOA?oc=5) |
 | Man kills Florida deputy with his own weapon during traffic stop, police say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOSVA2R0xuay1jWS1tS2pVQWVqU0pGNlNSa3RXcVMxT0ZpU1VNZFo1VldvYW9xUlVEdEdVVWNSOXZ1aXhpMDJ1dHh0dGh1Rm5FWUhNSmlmRkk4eWUySDU4ZG5jWFpwcnN3eXN6cklvaEZNeHpwaTE0QXNCc25tT01WdHNlTG1oWnF2Y2JfVk55eWVRMUVXaFR6UENtT3B1d3dFd292NWdxU1LSAVZBVV95cUxQZHpSdElkUUpTLXRRUkFyR2pDcXltTkFnOVpsM3FNMzNzQV8wZk90NzI2M25rTm50TzFBSk5iTGlza3R1bzYwOTRrYnQ3RTY0VFdBOHFwQQ?oc=5) |
-| Suspect in murder of California family asked online psychic: "will I get caught for what I did"? - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOV1drX0NaRGJIY2xTY2s2ODZwUzN3V1NVVmtpN1dZYWZWS29uVFJvUWVEb0s1UFEwaldSd1NyUE1RZi0tR0JVMnBGUjZVcmx6TDkyME1xT0tWTENnR2d4YzJMWWNtellTSFpJUVg4X2pseHA5bUhEc2JLWV94VGQ5XzRQcU9kVFprRUp2Z01fTHNWMldkbHF5V1BNQnbSAaIBQVVfeXFMTjY0YXl2cF95SW5YY2ZHdjFLbk01RnFuanZpWE9oeGpQbHJ3bFpXU3U3TTlxbEZvcFBqSFpWNzZ6Z0lkcE8yV3VmcU9oQmhNOFBmNUZBc1BYbU9mTGNOa3lxWnQ0S1RmLS1vLWxmTmgwcjhnZlZSYkVGcFJPWDVQeVFnQ1JoSkVQQ0piVFR2empmUlM3NXpVdGVYMWhEV0pVVXl3?oc=5) |
+| Senate holds rare Saturday session aimed at ending government shutdown, will reconvene Sunday - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQM3BScFNpZGtNb0cxQkw4NzV0dGprRWxfZWdvWEltVE9EbjYyUFBVQ3RsbUdITzRsY2VTQk80eEsxTDlURjR6OFk4NUFQZi0zZ1ZGX2xDT1liQXI2ZGViV2tmQ1VyekRHTlREQkFFTXdYa0xFNC00U1VRRmp4UlBHLUQwcWxrY202WGR2STd1WW7SAZYBQVVfeXFMTVpuMFY3NjdrX09zdlVUclkxVG1nb3JkRlpKbW0tam5lOWxHdFN5N192SUNzYXpnWEMyLTNPZndOa1lyZ2pqZ0VjdVF5alc2MGlZc1NWcEVYOVVySVNhdWJFZk1jTzIwNFdQWUJjeW1YTkxQQzJuNlk3cy12cW1hSnByS2phRHQxSnA1Xy1JNWMxSTI2YnJB?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
