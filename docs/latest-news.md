@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月09日 11:49:57（北京时间）**
+🕒 更新时间：**2025年11月09日 11:56:15（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | More than 1,000 flights canceled on second day of cuts tied to government shutdown - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxOVjN3d2dkUTJ1V2hqWFBTSF9KMl85T0k0ZF9FSjV0dlktVXo5S2txdXJHS2gyN2hOVWFfbUdOZnNtU2xpY3ozNVY3cFNUc25LY28xY3V3ZXpyVER6QnZ4NXFjcHJ0aG1nVHNaXzVBdXQzamdZbURBZlBaYWR2NWQ0aVpqTmpHRTNMcXprRlBfQWdzUQ?oc=5) |
 | FAA grounds MD-11 planes following deadly Kentucky crash - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQOWNJd196eDRHYzIxRkdDSk5BS2xRdDhvcUtQZ1NWMzlDalY4VmljN1V3aktpYmxCNWxBUlpFYUNJUnVpOXQwVE85bGJyWnI5QmNUTWVCd2V6RTJKajh6b2hkOGpHRElQWnhGZlpiUDBtRTZxTlNPVzhPY09LSHhFeGx2Z0dsdWplQVhrWnpRZVlVdUVMRVgwQmR1WUsyT0lC?oc=5) |
 | Man kills Florida deputy with his own weapon during traffic stop, police say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOSVA2R0xuay1jWS1tS2pVQWVqU0pGNlNSa3RXcVMxT0ZpU1VNZFo1VldvYW9xUlVEdEdVVWNSOXZ1aXhpMDJ1dHh0dGh1Rm5FWUhNSmlmRkk4eWUySDU4ZG5jWFpwcnN3eXN6cklvaEZNeHpwaTE0QXNCc25tT01WdHNlTG1oWnF2Y2JfVk55eWVRMUVXaFR6UENtT3B1d3dFd292NWdxU1LSAVZBVV95cUxQZHpSdElkUUpTLXRRUkFyR2pDcXltTkFnOVpsM3FNMzNzQV8wZk90NzI2M25rTm50TzFBSk5iTGlza3R1bzYwOTRrYnQ3RTY0VFdBOHFwQQ?oc=5) |
-| Stefanik’s run for New York governor could be a gift to Democrats - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQelZsZHltb3VlN1RLTDduZ0FKaUQyY2c4MEsxeXVfVFF4SkFGenU2bW9Id1Z5WWRrMVRHaFRFS3RjTHlselpRUU5TamZKYmpfOGFJcmFCcnNfQnZxY3dld1k0NkRBZHRSV2FyNXJzc1dyQkpCd0QwZi1UNzRuTXZUTU5ZRjdKN1pTSk9vNktWaTVXQ3pfZEhHRTdVOTNXVEdjWlBHbExkZHdKZDJCQmprLTBabXY?oc=5) |
+| 4 dead, 13 injured in Ybor City after law enforcement pursuit ends in crash - Tampa Bay Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNS2RWNnp6SEZkam9qMDFkZlk0TEJOSWIyRGxwdFcyVUNxczU2REhXM1hfX3VVYWhVY3diNWJRTGxNVVNfVmt5VVF4RFFHUGwyQkx6T2N6enBycjRGZ2Fic0VuVGJFYnlPRTZMMnVlZEs1b2hsTVNoaUFnSk9RQnBucC1zUHFGQk1LQ0xv?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
