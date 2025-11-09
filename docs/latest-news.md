@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 04:17:46（北京时间）**
+🕒 更新时间：**2025年11月10日 04:26:02（北京时间）**
 
 ---
 
@@ -8,6 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Tim Davie: A 20-year BBC career that finally ran out of road | [阅读全文](https://www.bbc.com/news/articles/ckgyk7ylpd5o?at_medium=RSS&at_campaign=rss) |
 | Davie and Turness resignation statements in full | [阅读全文](https://www.bbc.com/news/articles/c1k02vr1my2o?at_medium=RSS&at_campaign=rss) |
 | Watch: How Tim Davie addressed BBC controversies over the years | [阅读全文](https://www.bbc.com/news/videos/czxk2ed2780o?at_medium=RSS&at_campaign=rss) |
 | UK to help protect Belgium after suspected Russian drone incursions | [阅读全文](https://www.bbc.com/news/articles/c3dn2ep584ko?at_medium=RSS&at_campaign=rss) |
@@ -17,7 +18,6 @@
 | Three dead and 15 injured in Tenerife tidal surge | [阅读全文](https://www.bbc.com/news/articles/cpd2pzxe59go?at_medium=RSS&at_campaign=rss) |
 | Israel receives body of soldier killed in 2014 in Gaza | [阅读全文](https://www.bbc.com/news/articles/c2kp3yjy8q7o?at_medium=RSS&at_campaign=rss) |
 | New flu virus mutation could see 'worst season in a decade' | [阅读全文](https://www.bbc.com/news/articles/c2dr8gzdz1wo?at_medium=RSS&at_campaign=rss) |
-| Super typhoon makes landfall in Philippines as nearly a million evacuated | [阅读全文](https://www.bbc.com/news/articles/cq509yj82y8o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
