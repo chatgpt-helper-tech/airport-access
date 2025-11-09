@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月09日 17:08:11（北京时间）**
+🕒 更新时间：**2025年11月09日 17:16:25（北京时间）**
 
 ---
 
@@ -12,7 +12,7 @@
 | Experts say flu season could be worst for a decade | [阅读全文](https://www.bbc.com/news/articles/c2dr8gzdz1wo?at_medium=RSS&at_campaign=rss) |
 | UK to announce asylum system shake-up as it considers Denmark model | [阅读全文](https://www.bbc.com/news/articles/cm2lknr2d3go?at_medium=RSS&at_campaign=rss) |
 | Inquiry to review rise in young people not working or studying | [阅读全文](https://www.bbc.com/news/articles/c0l7elxrr7ko?at_medium=RSS&at_campaign=rss) |
-| Storm declared 'super typhoon' as it hits Philippines | [阅读全文](https://www.bbc.com/news/articles/cq509yj82y8o?at_medium=RSS&at_campaign=rss) |
+| Nearly a million evacuated as Philippines braces for 'super typhoon' | [阅读全文](https://www.bbc.com/news/articles/cq509yj82y8o?at_medium=RSS&at_campaign=rss) |
 | Women are hiding their boyfriends online and there's more than one reason why | [阅读全文](https://www.bbc.com/news/articles/c93x1q5395do?at_medium=RSS&at_campaign=rss) |
 | 'The best friend you'd love to have' - How Claudia Winkleman conquered TV | [阅读全文](https://www.bbc.com/news/articles/cjw96xw8v93o?at_medium=RSS&at_campaign=rss) |
 | Ever feel the need to switch off? Your vagus nerve might hold the key | [阅读全文](https://www.bbc.com/news/articles/cy0k9yz5wexo?at_medium=RSS&at_campaign=rss) |
@@ -26,7 +26,7 @@
 | Philippines evacuates 100,000 people as Fung-wong intensifies into super typhoon - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxQM0lMOURwdWNUalpaMVU0ODFGUzlkMnk5VGpfYm9pRWJKNTFZOVpCVGlPM3ZGN3NoX1pORE1heEwyRHJ1SU16TklueG9uQ0NQWkFMNnhleGs2bzlwODlPZTRVb0k3Smk0ZlVrXy1Ic1JVQW1mdHdqcHR2N1ZUdjZzNE1WNnZaVk56YU5CZVMzRFV2SlpkVGlPQVNsbHpXMF9zWmpjMVNOMHdRYTgzOXZqaDNsTzBLZHVGUmU1YXZYeGdYVnlUMEtkM3ltVm5oUQ?oc=5) |
 | Trump news at a glance: President suggests scrapping Obamacare as shutdown flight chaos continues - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxQcXBybWlDTS0xV1RBMVFjaDNmSmdNUEdPOXlXeWpzb2NGal9fb243T2JTTG5ZdE1VeEdYVW5MMFhHQXhYQ3R5Y3dEOVVOOHdZZFd6amt1NXphRWRkTlBCSmJjU0xYNXRMMDV2RWtiNXRVWHhBeW1xMGQ5YU1OWHo3emZZS1d4aUZuMHduemdadW1sNEJFUldwUDhyYVlpN2xaYTJEOVpUWmpEeWtnaWEyNVpkdkRNbzlOQVFIRmtraWdWcWFtamlwbG50azdMSGFXd1Q5SjJrdVFMZlJV?oc=5) |
 | Shots Fired at Border Patrol Agents in Chicago, Federal Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE16M2ZmOU1RUjl5Vk1OZFJkcTRJMXBCUHJvUnNhSTNETHB0Z0Z4YzhUUmhCNDJuZ3k1WGZUWW1KOGh4aU1NejVXVHJjNkJUR2VtYjM5Ty1UMWZwYjdnb1JMS3ZKQjFOMktvNXNVYUVScnZkd0EwVzdZbTlaTQ?oc=5) |
-| Senate holds rare Saturday session aimed at ending government shutdown, will reconvene Sunday - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQM3BScFNpZGtNb0cxQkw4NzV0dGprRWxfZWdvWEltVE9EbjYyUFBVQ3RsbUdITzRsY2VTQk80eEsxTDlURjR6OFk4NUFQZi0zZ1ZGX2xDT1liQXI2ZGViV2tmQ1VyekRHTlREQkFFTXdYa0xFNC00U1VRRmp4UlBHLUQwcWxrY202WGR2STd1WW7SAZYBQVVfeXFMTVpuMFY3NjdrX09zdlVUclkxVG1nb3JkRlpKbW0tam5lOWxHdFN5N192SUNzYXpnWEMyLTNPZndOa1lyZ2pqZ0VjdVF5alc2MGlZc1NWcEVYOVVySVNhdWJFZk1jTzIwNFdQWUJjeW1YTkxQQzJuNlk3cy12cW1hSnByS2phRHQxSnA1Xy1JNWMxSTI2YnJB?oc=5) |
+| Government shutdown reaches its 40th day as senators work through a crucial weekend - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQbG9UajMzY19TYzBKbmpPOGw1d1NJdGkxQWJnZ1F5TVA3SjBYenFQaElPenV5WGJYRk5TLVJlUHc4UW9RbjYxYlVYMTNGRHlKWjdOa2gxY2RjWGt5WUJaOWFFRTNHY210Tndud2ZSaGUxZlV2d0owYm5UZ3VfVmxqVjNVLTFFODFmLXB6VTBMSUNRYUV6WlNYYl9B?oc=5) |
 | Mayor-elect Mamdani reeks of Lenin — but NYC’s wise safeguard against Marxism stands in his way - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxQb3d3dnVfLUhlMThadVZsRXpqTlBrbl9fOTl1cU1oYTUzbWhTTVV1T3ZwR0dPdlFCN3VhTnRCYXE0OTZSY0NlQXBsVU9wQmlDUDBiYWRYSTVGdzhWNzJuRFZmajdTM1RXLTBDMFg3bGV6SVJ5UkthYmNpckYtcC0zNTd0WklDSDhFOFQxbUNVeHItS0tLX0pQYWg2SUhBMmMwcVV2NVhVM3hCWkJ6MXFtNC1lbHVPQktDdVFDVjMwWExqTzREZ1JGR0hta1U5NFJmQTNmdWVpaw?oc=5) |
 | Minnesota restores full SNAP benefits to families in need - Star Tribune | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPUEdJMEFLaE1zRHFZVDJWNThuSEY4SlpJZURod1J0NENGYXpHa0hneGxoMXJVUU01WERoVEgwSDBURmdNam9BNmFmd0FRQThEUHNtNVNkOWhZZ0djcUdWQVJDNVlIQ2RuaF93aFNvOTRYNnZoN1BnLUtvTzBOejNaeDhyNF9VUHAycGNWQy1obUtVQ05kWW81NWVIaw?oc=5) |
 | FAA grounds MD-11 planes following deadly Kentucky crash - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQOWNJd196eDRHYzIxRkdDSk5BS2xRdDhvcUtQZ1NWMzlDalY4VmljN1V3aktpYmxCNWxBUlpFYUNJUnVpOXQwVE85bGJyWnI5QmNUTWVCd2V6RTJKajh6b2hkOGpHRElQWnhGZlpiUDBtRTZxTlNPVzhPY09LSHhFeGx2Z0dsdWplQVhrWnpRZVlVdUVMRVgwQmR1WUsyT0lC?oc=5) |
