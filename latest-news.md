@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月09日 09:09:38（北京时间）**
+🕒 更新时间：**2025年11月09日 09:16:18（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | US airlines cancel over 1,000 flights for a second straight day largely due to government shutdown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQcXEzNlVxa0F5ZTV0c3YyQmxJX3p5VDJGdDNjNjg5WFd4aGJ3SWNHVGFidGg2VG80bGJOdk9JN3BvQ2FZbC1vb3NTTWIwUzdOR1JoSTNxZ01GbS1YeS1jVHN2ZzhaNkRET1hXOG9PSFh5amRuWXBscFA4ZFFfY2hfVjB1Tmo4VGNPV01Wc05TZ01rLTE3OTdWSDhZM2RMb2Y2ZW1TZHBVc256N0lfMW5VZmNRaw?oc=5) |
 | Stefanik’s run for New York governor could be a gift to Democrats - Politico | [阅读全文](https://news.google.com/rss/articles/CBMitAFBVV95cUxQelZsZHltb3VlN1RLTDduZ0FKaUQyY2c4MEsxeXVfVFF4SkFGenU2bW9Id1Z5WWRrMVRHaFRFS3RjTHlselpRUU5TamZKYmpfOGFJcmFCcnNfQnZxY3dld1k0NkRBZHRSV2FyNXJzc1dyQkpCd0QwZi1UNzRuTXZUTU5ZRjdKN1pTSk9vNktWaTVXQ3pfZEhHRTdVOTNXVEdjWlBHbExkZHdKZDJCQmprLTBabXY?oc=5) |
 | Four people dead after shooting at landscaping business, including suspect - WOAI | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQai1TR1FlQjVVeXZTN1M1dEthd0NPQ3JLQXdsc0trYUJKOEx3TjcwSHg4ZFJMc3prX3hoRkVuZXE0UlI0U2NteF9HR3d4YlJnSHdHOWQ3RXNVQmdxUWhuNmRUNk5VbTY0aURXZFN6WDlRR05CbDlJaWVFam5nLWlKb09QMFNtTnRPQTJua3dUaERWdkd5UjFVTG1yN2JYSFFGSENRcDJMV0pvNUF0?oc=5) |
-| From Bollywood to bodegas, Mamdani’s mayoral campaign found visual inspiration in unlikely corners - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPUmkxR2o1SUN4blhFeGpTaExvTTVfTnNFMlVzZE5HS0pSQy1MT2kxZFdDX0lYOTNzV0lKMlowLTh3SXN1UWVkR1B5UDJ2XzFqT2dUZFk2ajVKeDF0QzlkRlY0VnFJOTdaRTJOTW5ibDluckYzNGF5U2s5bHh3OTgwOERuTjhfTEpaUFdBVkx5S2dVS014T2Z2Zno2WkZsdjZscDlKWEEteFBaekZ2?oc=5) |
+| 4 dead, 13 injured in Ybor City after law enforcement pursuit ends in crash - Tampa Bay Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNS2RWNnp6SEZkam9qMDFkZlk0TEJOSWIyRGxwdFcyVUNxczU2REhXM1hfX3VVYWhVY3diNWJRTGxNVVNfVmt5VVF4RFFHUGwyQkx6T2N6enBycjRGZ2Fic0VuVGJFYnlPRTZMMnVlZEs1b2hsTVNoaUFnSk9RQnBucC1zUHFGQk1LQ0xv?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
