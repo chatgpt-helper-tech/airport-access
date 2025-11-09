@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 01:16:44（北京时间）**
+🕒 更新时间：**2025年11月10日 01:24:11（北京时间）**
 
 ---
 
@@ -13,9 +13,9 @@
 | HMRC to review suspending 23,500 child benefit payments | [阅读全文](https://www.bbc.com/news/articles/cjr0p4l2qryo?at_medium=RSS&at_campaign=rss) |
 | BBC bosses treating 'systemic bias' allegations seriously, culture secretary says | [阅读全文](https://www.bbc.com/news/articles/c9wvqx50jpqo?at_medium=RSS&at_campaign=rss) |
 | Care workers charged following BBC Panorama probe | [阅读全文](https://www.bbc.com/news/articles/c14p2jkrvy7o?at_medium=RSS&at_campaign=rss) |
+| New flu virus mutation could see 'worst season in a decade' | [阅读全文](https://www.bbc.com/news/articles/c2dr8gzdz1wo?at_medium=RSS&at_campaign=rss) |
 | Super typhoon makes landfall in Philippines as nearly a million evacuated | [阅读全文](https://www.bbc.com/news/articles/cq509yj82y8o?at_medium=RSS&at_campaign=rss) |
 | BBC on Luzon Island as super typhoon hits Philippines | [阅读全文](https://www.bbc.com/news/videos/c20p2m83p5go?at_medium=RSS&at_campaign=rss) |
-| New flu virus mutation could see 'worst season in a decade' | [阅读全文](https://www.bbc.com/news/articles/c2dr8gzdz1wo?at_medium=RSS&at_campaign=rss) |
 | Lisa Nandy apologises for breaking rules on football regulator appointment | [阅读全文](https://www.bbc.com/news/articles/cqjwp0rq7d7o?at_medium=RSS&at_campaign=rss) |
 | Dozens missing after migrant boat sinks near Malaysia-Thailand border | [阅读全文](https://www.bbc.com/news/articles/cd7rp5zj484o?at_medium=RSS&at_campaign=rss) |
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Trump Administration Demands States ‘Undo’ Work to Send Full Food Stamps - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOdGJXYy14cjRCVnN5Q0RxeXdUNHAwU3EySVlORE4xUjdodjJrRi13YUpjQ0hXUndfQ1R5ZUw3OTYxbEh3UHU3amptc2JHOGhHZk45UFV1Qk5Ha1U0YzlNMzJSWEtFLTdVTjRfc3RwZ2o5NF9yZkZaMWx5aXRCSkwybm1fb1J3elNTSEo0UDVYX3dDNUd1aDdIN19wNE1VMGpNSEt3Z2tn?oc=5) |
 | Super Typhoon Fung-wong slams into Philippines, killing 2 and displacing 1 million - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOTzd1cWRDdlAzVFpMb1ZvVlhPOEhjd1R4aDFqbmFYcmlRUkpmZTZpdXBTX29KaENPcjd0bjRvTlp0dmtVY2o2d1p2Z090aHR1NllGWkFYQjl6V0pxTVpUaWoyZ3UySVdQQTdTSTdwSjJKWFFhaGRKaHRXOENpSlgycnB5TG5ZamNtSXVsMWRTZ1BiTzREaWVsY0pxbDJXQ1NoYmlMWlNFZENsamVNMTJGVDZuaWhjdw?oc=5) |
-| Trump again promises $2,000 tariff dividend as SCOTUS decision looms - Axios | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTE05SzJuRm51cEtIVHBNZV9rQ3Nzam9BNkhRTG9JQVl2RkI1RnE3U0ZUaGlndzNvNVlHeXl4dnIyQzN2Mmc5NWZGREtiWTAyam9XeWJKYWx2TTFERzNxVHNucFV4bEhhbkRfakVwZjlCai1sdHdvMlFzNVhUeC14UQ?oc=5) |
+| Trump says tariffs to yield dividends 'of at least $2,000 a person' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQWDQwSlRjZDNJbVRvaTEyRWg2ZnNhQXZpYzNwQlJ6cWRTek9fNGRyQVpXNDhwc1hQVGlxWUFidW9JQm9lcWNIMGhLQk11bERtdmZxSGJtdkdTM05LRVFNZ2dKVjNEZ3RTYnJ5Qk4wMVZocVUzQkdwbkoxTzhzXzdFN1J4V2lfajQ?oc=5) |
 | Coachella Valley Republicans fear alienation after Tuesday election - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPa1pLN3ZNU3VmU0lvOWNoQno3X1BsLW13VGJGNVRMZzhLbEV6VFY1b2t0cHRXWi1qQ0c0SWZ4VXp1Vlo5dFpaZ2hGVHpFc2dXckdOaW54dmQ4SzZ1NHBKZ3RCV0FGa1NhOWMtZUVUejQtVXJnTXZvcElURldwYlpMX3hfNTRoT1RpUUxPQ2ZMUm41bWpWWEJuU243VHBMQWFiZDFvVE1R?oc=5) |
 | Where Democrats Will Duel Next for the Party’s Future - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNZ3lCNDgzZms0c3NTb1lYamdSVHZ6WFBMT1NBNGFEN0lYSm5YUExrdm9vNFFaU21ZZlJtdEFBNEJnd0NERVllZ04zYW54WjM5TFl6UkdIeG1zaWxEMWZTcGdMdldpUk92MzNZclBkQ2kyVzZRemRJSVBobmFLb1RkMGRTNFFpczgtcHNN?oc=5) |
 | Talks to end government shutdown take a promising turn, Senate majority leader says - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxQTldHcVRtWUJLT2RXVFhJT0JwUVRUVl8weDExck5oc0trTmpBeTZiYkhJMEVyeWw1V0FXMjFYWEhPSGl2TVY2Mm14bUlKT1dXX1c5aFFBbjlncFRwbHFMalYwa1BIOEJiaC02MGs3bTl3Ry1aeXRnYS1VSllreWNhSzNlVy3SAYoBQVVfeXFMTTZ5OVU2NzVuMmpQVHBaWi1IdmozSmJqQ0ZLX2M1aW1qaUNjSEpGNHZaS2JubGZRZk5iRGFXYnp5cGRBSlVoNEhJS2ZRWHQ1eHVFQnJkVVFxNkxteUdFcmhuNzFMTWhNaHQ2M0QwUDJIVFh2VWlOc184alk0dU4yME9TM1RzVldqaXlR?oc=5) |
