@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 05:32:30（北京时间）**
+🕒 更新时间：**2025年11月10日 05:40:05（北京时间）**
 
 ---
 
@@ -25,9 +25,9 @@
 |--------|-------------|
 | Trump Live Updates: Airport and SNAP Benefit Disruptions Amid Government Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiY0FVX3lxTE1tcV91dXZEeTBOdUJsQ2c2YW9ZaW9qbmZLR3l0OEJTNGxjSHdNY2lSc2c5VERJd2xDWTQza3dNcVJ3VHpCUW9tSGQwcW1WeFJ5NUF2X01vQWcwVWhlYjQ3T2k4Yw?oc=5) |
 | Trump says tariffs to yield dividends 'of at least $2,000 a person' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQWDQwSlRjZDNJbVRvaTEyRWg2ZnNhQXZpYzNwQlJ6cWRTek9fNGRyQVpXNDhwc1hQVGlxWUFidW9JQm9lcWNIMGhLQk11bERtdmZxSGJtdkdTM05LRVFNZ2dKVjNEZ3RTYnJ5Qk4wMVZocVUzQkdwbkoxTzhzXzdFN1J4V2lfajQ?oc=5) |
-| Lawmakers release first pieces of funding package to sweeten shutdown endgame - Politico | [阅读全文](https://news.google.com/rss/articles/CBMi3gFBVV95cUxOUzN0N0xaNnhmWDd5bmNjUHI5OXdESE9RWGt3c0hGSS16d3doS2V2UkxhczR4dkZ4QmJIQWljb3l1Z0cweGh5c044c2hvT0p3dzRoZzFla2hIUGhPMV9fcnBfREtuWEhHZjM0UWRHSjF0WHZReUttWlNfbVc5azJpbFpjS3UzRHlpWk5pV2M2OXd3Y3RUTFhMbHNodE5wSVZhQjhKc0FEQnNlSFBwM2tqX203ZnAyVGtnU3JBQm9uU2hNQ0xxRnBTdUtzVFduOXhvWjBZVkV1VVgyM21HRnc?oc=5) |
 | Super Typhoon Fung-wong slams into Philippines, killing 2 and displacing 1 million - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOTzd1cWRDdlAzVFpMb1ZvVlhPOEhjd1R4aDFqbmFYcmlRUkpmZTZpdXBTX29KaENPcjd0bjRvTlp0dmtVY2o2d1p2Z090aHR1NllGWkFYQjl6V0pxTVpUaWoyZ3UySVdQQTdTSTdwSjJKWFFhaGRKaHRXOENpSlgycnB5TG5ZamNtSXVsMWRTZ1BiTzREaWVsY0pxbDJXQ1NoYmlMWlNFZENsamVNMTJGVDZuaWhjdw?oc=5) |
 | Newsom at Texas rally celebrates Prop. 50 victory, take swipes at Trump - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOLVdvRU4xMmpHbndQMFM5SW5NWHVFT1RTLWx2aVFFRUZWZjAzWExIWnpYal9nM0hVRDF1aVFzNXVXdHhwbW9wdk5kX0tBekpfNWx1MElCTmYtU3ZYRmUyRElTUmZLR1BMc1JXOFRtSWZBQWlKaXREczMwa05oVDljekIxN1BNcmZINHo3T2ZiZTBPUU9kalhwZWMtRFNpZV9pclprdHJ1Wmt1QUNvNjhnSQ?oc=5) |
+| Bessent says no formal White House health care proposal as shutdown drags on - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNTmZNY3J6bkMwWktUajFDZGRSajU3ODFHY1FRWVd5M0liUUxKRzNmWlcxZWIzbEE2cVpyOUZBX3JLNjBTRzFGcG5OYWRLVHVvNWhDREVXc0p1ZVBnZm93QTI4XzVIVndSU3RWaFJUdDdBQktleXJLa1lhSFN3THBBRERkUlg4d1VRZDVWWnI2Q2RlT0FrdW5ldGZGbEJDRGlvZjYyNnpiWkV6M0XSAbABQVVfeXFMTXJ3dHlEbjNlMVFDM0FLRHk3UVI1cXhhZWpaRGU2TU1BZy1LX3RQQlpCaE80SUE0NXNMaWtsTERiNm1aeklyZGNsZ2ZFeVNZT2JfZ29uNVBDb25KTE90ODJPaEh0U1BKTkJzUWRiak9vTGdSTU1qZUl6SklRWG0taEFsMWRSRVJrVHFaV1NoX0xuSGktV2ZWRTQ0QUFQaFdBbjJwNGI2ekQxTFo4Z3ZHa3k?oc=5) |
 | BBC director resigns after criticism of the broadcaster’s editing of a Trump speech - NPR | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxQcTIwaUpzcXVDMWRSbEdTamk4V1ZOcTRhRWxycmI5N1BWajhNeGFtTm9FaTVpX0xmNWt5ZlZ5ay14N2pJb0RqSnVUWk85WEJFNUh4b2VPa1FWaDlqYUhUbXY5OWwwb0pfZkg4aEZDT25JaEdiUTd2amJRYUVFUEdaWGFpYTI0NmFsSEVQTHA3dUxRYVhGOE1HR0pjN2hfbmRIVmJaUDRBdkIyV3NvemZNTlJTTzhFVFRHQUhjNWh0NFJUaHhzWVE?oc=5) |
 | Longtime NFL commissioner Paul Tagliabue dies at 84 - CNN | [阅读全文](https://news.google.com/rss/articles/CBMikwFBVV95cUxNaHExc3E0STdlbnllaWhGcTRzYk12c3d3Szg2VllHYnhZR3BjZ25SZzdfZ1ZUR19aVDR0WkVJdWtOYTBYZmJKVWZCWU4wY3ZZRFUxRFFPNTNDSGpNZk9uaFczOG5HcnNtY1F0Z19lZHZBeElmN0poWGgzdFc3M2dvYU0wcGMzdXJ6TG96UlhjSG5yQkk?oc=5) |
 | Deal to end government shutdown in reach - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOMVRFNU1OTXBvTk5MSThfNkdSRWtfSk9jc2pYZFpRYXBTS3ZNeEJ6cm1HMmhhdkRWNk1YU3VQNGdxZHd5Z0tUS1VkamJZVmdiSXNNWkFCLW1PVkduZ1RPTFB0SWtaZWI3NFh1NWhVbnZNc1BMdVBJRGRtMElHZUlYTVFkYnh6QmNuLUpZ?oc=5) |
