@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 03:32:05（北京时间）**
+🕒 更新时间：**2025年11月10日 03:41:27（北京时间）**
 
 ---
 
@@ -30,7 +30,7 @@
 | Bessent says no formal White House health care proposal as shutdown drags on - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNTmZNY3J6bkMwWktUajFDZGRSajU3ODFHY1FRWVd5M0liUUxKRzNmWlcxZWIzbEE2cVpyOUZBX3JLNjBTRzFGcG5OYWRLVHVvNWhDREVXc0p1ZVBnZm93QTI4XzVIVndSU3RWaFJUdDdBQktleXJLa1lhSFN3THBBRERkUlg4d1VRZDVWWnI2Q2RlT0FrdW5ldGZGbEJDRGlvZjYyNnpiWkV6M0XSAbABQVVfeXFMTXJ3dHlEbjNlMVFDM0FLRHk3UVI1cXhhZWpaRGU2TU1BZy1LX3RQQlpCaE80SUE0NXNMaWtsTERiNm1aeklyZGNsZ2ZFeVNZT2JfZ29uNVBDb25KTE90ODJPaEh0U1BKTkJzUWRiak9vTGdSTU1qZUl6SklRWG0taEFsMWRSRVJrVHFaV1NoX0xuSGktV2ZWRTQ0QUFQaFdBbjJwNGI2ekQxTFo4Z3ZHa3k?oc=5) |
 | Deal to end government shutdown in reach - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOMVRFNU1OTXBvTk5MSThfNkdSRWtfSk9jc2pYZFpRYXBTS3ZNeEJ6cm1HMmhhdkRWNk1YU3VQNGdxZHd5Z0tUS1VkamJZVmdiSXNNWkFCLW1PVkduZ1RPTFB0SWtaZWI3NFh1NWhVbnZNc1BMdVBJRGRtMElHZUlYTVFkYnh6QmNuLUpZ?oc=5) |
 | Paul Tagliabue, NFL commissioner who ran league in era of riches and expansion, dies at 84 - AP News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxNaV9udjdxTlM0UkVMZ2pBdWtIX2VweWh1ODFWclByQzJBQk1jZlVvcl9mb21kMWY0TjNzMEkyNlZTdTAxU2FIS19PaG1mUTRoMzBSZFAyNVdhN1dZb1ZYTmJaM3ZJOElLMUQ5cjFNdl9YSm52d1ptMEFPVGlVQmpDNVE1ZGk4MHlCdnJ2aWEtYWNjd0Y4Qkd0RGFCckk?oc=5) |
-| BBC director general Tim Davie and News CEO Deborah Turness resign over Trump documentary edit - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE91ZzR6eGhvR1hMN2MxTHBvYlE2UVdtT0ZnSWc3ZUpyXzJnTDVHUnVLRW8weG1rZFlHdVQ1UUNLdjlNclUxUWtnX2JKblAxa3AySkxaRnVTbW9WZ9IBX0FVX3lxTE5oaF91Z3J0amhDTFRoNWxaTlUtOW5BWi1XNThSbnYxMW1faUNrTzFVdTEyVjg2eHU2MXQ3bDlfV1RnOElFdDVwU1pOZ2k5cGc0ai1WVEZuUUd4SEVvLUh3?oc=5) |
+| BBC director resigns after criticism of the broadcaster’s editing of a Trump speech - NPR | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxQcTIwaUpzcXVDMWRSbEdTamk4V1ZOcTRhRWxycmI5N1BWajhNeGFtTm9FaTVpX0xmNWt5ZlZ5ay14N2pJb0RqSnVUWk85WEJFNUh4b2VPa1FWaDlqYUhUbXY5OWwwb0pfZkg4aEZDT25JaEdiUTd2amJRYUVFUEdaWGFpYTI0NmFsSEVQTHA3dUxRYVhGOE1HR0pjN2hfbmRIVmJaUDRBdkIyV3NvemZNTlJTTzhFVFRHQUhjNWh0NFJUaHhzWVE?oc=5) |
 | FAA bars MD-11 flights after fiery UPS jet crash - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNVWhrOXF0YTlDSTZRQjRNN2FaZHRwLUxwOHJyX18yZFhnU1dQUXQyNFhLVzh4YUh2czY4b3BuT2FKazhtR2x5c1NmVlRlSXNZQ1hHNGlxSXNYNGp5ME53ZkZXUjFhLVMtQ1NOR0hOcUkyWk1YVzUxRmZfUGZIb2Ytc210VElDQWNQWFE4MmNxV3JUMWNSbmx0UXlrYTV5UGx5d0JFVnZkeWNCRzJKSG1nbnNKOGhFWGo4ZTJRbWZJVQ?oc=5) |
 | Virginia Republicans turn on each other after crushing losses - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxPZWRxbUUxRjRaTDBGX2lDMEh5QnhQdGJlaHhFZk9NejhCem90UXNnT1hZRmRCZUtqUlBiN1piY2hvRm5nUzNUWkVSYTE3bk5xeHVuS0R4MERyNHllZVhrc0Y3cUNTS2U1V1FKT29fRllNakVxQ211STZqY2tSX0JJZm05ZkVWbm95YzJxUVliU294d0RVcUpz?oc=5) |
 
