@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月09日 09:01:05（北京时间）**
+🕒 更新时间：**2025年11月09日 09:09:38（北京时间）**
 
 ---
 
@@ -23,8 +23,8 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Shots fired at Border Patrol agents on Chicago's West Side, DHS says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQZGVEdjhlME8yc0RZQlNrNGFHOHEwc1d0ZnF4YmxROUMwek9xRGI4Q1d2R3VtSWdsSG9meGJNLVk5MEFxQVVUYVdhY3J1aG9ubmhCQzlGNkhzcXRqa21NcFIwc0VvYWE5VlFFemxCbXZmVHNuaktNMy1LeVhwZVp4S2tXNXczeG1oUWd3SGdGUnZyb25RbFBZUkdjYXNXazd4bGIzTTJGTQ?oc=5) |
 | Supreme Court Ruling on SNAP Benefits Leaves Families in Limbo - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQVDVSN2hVclVVRnF1TEJpTXNKaHpFeWFyRmVsa1ZEUWoyLXRrbFhFd2NWd0hXQWVYN0NQallBSXJrMEJqV2JFYzcyOXVCVndLOWI0Z0VmcnhQQ3UtSl94YnJvVlpaUTM5cWs1cmpmZGJmeFB1Yk81cjNjS1pEd3J4QVZadVBwbUdNN0JGQ2hHUExmY01lZ0V3?oc=5) |
+| Shots fired at Border Patrol agents on Chicago's West Side, DHS says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxQZGVEdjhlME8yc0RZQlNrNGFHOHEwc1d0ZnF4YmxROUMwek9xRGI4Q1d2R3VtSWdsSG9meGJNLVk5MEFxQVVUYVdhY3J1aG9ubmhCQzlGNkhzcXRqa21NcFIwc0VvYWE5VlFFemxCbXZmVHNuaktNMy1LeVhwZVp4S2tXNXczeG1oUWd3SGdGUnZyb25RbFBZUkdjYXNXazd4bGIzTTJGTQ?oc=5) |
 | Senate Republicans embrace Trump’s call – from his Florida golf course – to replace Obamacare - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOOWhSTnhCUFk3UldVak1BYjJ6d0VsT0NrNzJnTjZmT3NvM3hHVFBWX3R4SjJiMV9qTk5lbVcyZThUTFE1LTIwdEhaT1cxZlVPNHlQMFRlMXdiWnJPallfbTZXQm5NMU5rN3dYRGJzdjN6eW5zblYwTmVZWWZzaXpST3N0NjZ5dnA3bXc?oc=5) |
 | Judge says Education Dept. partisan out-of-office emails violated First Amendment - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOeFlxaGNoeWh1WTkxVG41SEo0cXRBaVVMSVJRRkktY1dWdExqejZ1V1RGbVQ1QmVJVXp2RzQxM2YxSmpkVHJ3MmZVVDVubWk1amY1ODRJWWNxbVNxWGx2a0JrUnN0ZDRtVE1pVGotLUpGd1lMVVVNZmFQUjRmU2xKRWJKbENPcV9ETWo2Y2sxSnNrX1Ftc1VMRQ?oc=5) |
 | Voter fury emerges over skyrocketing electricity bills as AI stokes demand — and fears of a stock market bubble - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQTE8yNy1LaERxcllyN185d2hvVWpiUk1zTkNESEZqb3VkdEpvLXV1ejMxTHhuUWRWQzdrdnhEUXV0V1lMcFNLR05KX3lvQ05uQ1FLN3RGTXNTc1VBU1VJYUU5R3g5Wld4SGRCdmVNYTZNWXJlOUFwcUZyLXU1MkFXa1ZKckZjbWZPeDgtcWEwZmZIZmNxU0wyZ01LaTF0Ykk5WmdfSXl3?oc=5) |
