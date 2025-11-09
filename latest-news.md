@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月09日 18:08:03（北京时间）**
+🕒 更新时间：**2025年11月09日 18:17:43（北京时间）**
 
 ---
 
@@ -28,7 +28,7 @@
 | Shots Fired at Border Patrol Agents in Chicago, Federal Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE16M2ZmOU1RUjl5Vk1OZFJkcTRJMXBCUHJvUnNhSTNETHB0Z0Z4YzhUUmhCNDJuZ3k1WGZUWW1KOGh4aU1NejVXVHJjNkJUR2VtYjM5Ty1UMWZwYjdnb1JMS3ZKQjFOMktvNXNVYUVScnZkd0EwVzdZbTlaTQ?oc=5) |
 | Mayor-elect Mamdani reeks of Lenin — but NYC’s wise safeguard against Marxism stands in his way - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxQb3d3dnVfLUhlMThadVZsRXpqTlBrbl9fOTl1cU1oYTUzbWhTTVV1T3ZwR0dPdlFCN3VhTnRCYXE0OTZSY0NlQXBsVU9wQmlDUDBiYWRYSTVGdzhWNzJuRFZmajdTM1RXLTBDMFg3bGV6SVJ5UkthYmNpckYtcC0zNTd0WklDSDhFOFQxbUNVeHItS0tLX0pQYWg2SUhBMmMwcVV2NVhVM3hCWkJ6MXFtNC1lbHVPQktDdVFDVjMwWExqTzREZ1JGR0hta1U5NFJmQTNmdWVpaw?oc=5) |
 | Minnesota restores full SNAP benefits to families in need - Star Tribune | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPUEdJMEFLaE1zRHFZVDJWNThuSEY4SlpJZURod1J0NENGYXpHa0hneGxoMXJVUU01WERoVEgwSDBURmdNam9BNmFmd0FRQThEUHNtNVNkOWhZZ0djcUdWQVJDNVlIQ2RuaF93aFNvOTRYNnZoN1BnLUtvTzBOejNaeDhyNF9VUHAycGNWQy1obUtVQ05kWW81NWVIaw?oc=5) |
-| Senate holds rare Saturday session aimed at ending government shutdown, will reconvene Sunday - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQM3BScFNpZGtNb0cxQkw4NzV0dGprRWxfZWdvWEltVE9EbjYyUFBVQ3RsbUdITzRsY2VTQk80eEsxTDlURjR6OFk4NUFQZi0zZ1ZGX2xDT1liQXI2ZGViV2tmQ1VyekRHTlREQkFFTXdYa0xFNC00U1VRRmp4UlBHLUQwcWxrY202WGR2STd1WW7SAZYBQVVfeXFMTVpuMFY3NjdrX09zdlVUclkxVG1nb3JkRlpKbW0tam5lOWxHdFN5N192SUNzYXpnWEMyLTNPZndOa1lyZ2pqZ0VjdVF5alc2MGlZc1NWcEVYOVVySVNhdWJFZk1jTzIwNFdQWUJjeW1YTkxQQzJuNlk3cy12cW1hSnByS2phRHQxSnA1Xy1JNWMxSTI2YnJB?oc=5) |
+| Government shutdown reaches its 40th day as senators work through a crucial weekend - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxQbG9UajMzY19TYzBKbmpPOGw1d1NJdGkxQWJnZ1F5TVA3SjBYenFQaElPenV5WGJYRk5TLVJlUHc4UW9RbjYxYlVYMTNGRHlKWjdOa2gxY2RjWGt5WUJaOWFFRTNHY210Tndud2ZSaGUxZlV2d0owYm5UZ3VfVmxqVjNVLTFFODFmLXB6VTBMSUNRYUV6WlNYYl9B?oc=5) |
 | FAA grounds MD-11 planes following deadly Kentucky crash - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQOWNJd196eDRHYzIxRkdDSk5BS2xRdDhvcUtQZ1NWMzlDalY4VmljN1V3aktpYmxCNWxBUlpFYUNJUnVpOXQwVE85bGJyWnI5QmNUTWVCd2V6RTJKajh6b2hkOGpHRElQWnhGZlpiUDBtRTZxTlNPVzhPY09LSHhFeGx2Z0dsdWplQVhrWnpRZVlVdUVMRVgwQmR1WUsyT0lC?oc=5) |
 | 4 dead, 13 injured in Ybor City after law enforcement pursuit ends in crash - Tampa Bay Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNS2RWNnp6SEZkam9qMDFkZlk0TEJOSWIyRGxwdFcyVUNxczU2REhXM1hfX3VVYWhVY3diNWJRTGxNVVNfVmt5VVF4RFFHUGwyQkx6T2N6enBycjRGZ2Fic0VuVGJFYnlPRTZMMnVlZEs1b2hsTVNoaUFnSk9RQnBucC1zUHFGQk1LQ0xv?oc=5) |
 | Newsom appears onstage at Texas rally to celebrate Prop. 50 victory, take swipes at Trump - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOLVdvRU4xMmpHbndQMFM5SW5NWHVFT1RTLWx2aVFFRUZWZjAzWExIWnpYal9nM0hVRDF1aVFzNXVXdHhwbW9wdk5kX0tBekpfNWx1MElCTmYtU3ZYRmUyRElTUmZLR1BMc1JXOFRtSWZBQWlKaXREczMwa05oVDljekIxN1BNcmZINHo3T2ZiZTBPUU9kalhwZWMtRFNpZV9pclprdHJ1Wmt1QUNvNjhnSQ?oc=5) |
