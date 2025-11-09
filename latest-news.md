@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 01:57:32（北京时间）**
+🕒 更新时间：**2025年11月10日 02:00:47（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Trump tells states to 'immediately undo' steps to fund November SNAP benefits - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOa1RFYW5iaHozVHdlZHZ6RXAtQXRTNFYwbXBSb2pTQTI1Y1NzUWdKM3ZrNmE5cVl0R1VsdzE3ajZtZDNYWnNWMDJMSWZmV3ZTSmY2dWhsMThFTVIyQzVQVWlMTG81WTdqRDZSdmN1QlRTdWNQaEx3ekFUMTV1OFg1dFJfN2ZTbWtGanc?oc=5) |
+| Trump admin tells states to 'immediately undo' steps to fund November SNAP benefits - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOa1RFYW5iaHozVHdlZHZ6RXAtQXRTNFYwbXBSb2pTQTI1Y1NzUWdKM3ZrNmE5cVl0R1VsdzE3ajZtZDNYWnNWMDJMSWZmV3ZTSmY2dWhsMThFTVIyQzVQVWlMTG81WTdqRDZSdmN1QlRTdWNQaEx3ekFUMTV1OFg1dFJfN2ZTbWtGanc?oc=5) |
 | Super Typhoon Fung-wong slams into Philippines, killing 2 and displacing 1 million - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitgFBVV95cUxOTzd1cWRDdlAzVFpMb1ZvVlhPOEhjd1R4aDFqbmFYcmlRUkpmZTZpdXBTX29KaENPcjd0bjRvTlp0dmtVY2o2d1p2Z090aHR1NllGWkFYQjl6V0pxTVpUaWoyZ3UySVdQQTdTSTdwSjJKWFFhaGRKaHRXOENpSlgycnB5TG5ZamNtSXVsMWRTZ1BiTzREaWVsY0pxbDJXQ1NoYmlMWlNFZENsamVNMTJGVDZuaWhjdw?oc=5) |
 | Trump says tariffs to yield dividends 'of at least $2,000 a person' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQWDQwSlRjZDNJbVRvaTEyRWg2ZnNhQXZpYzNwQlJ6cWRTek9fNGRyQVpXNDhwc1hQVGlxWUFidW9JQm9lcWNIMGhLQk11bERtdmZxSGJtdkdTM05LRVFNZ2dKVjNEZ3RTYnJ5Qk4wMVZocVUzQkdwbkoxTzhzXzdFN1J4V2lfajQ?oc=5) |
 | Coachella Valley Republicans fear alienation after Tuesday election - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPa1pLN3ZNU3VmU0lvOWNoQno3X1BsLW13VGJGNVRMZzhLbEV6VFY1b2t0cHRXWi1qQ0c0SWZ4VXp1Vlo5dFpaZ2hGVHpFc2dXckdOaW54dmQ4SzZ1NHBKZ3RCV0FGa1NhOWMtZUVUejQtVXJnTXZvcElURldwYlpMX3hfNTRoT1RpUUxPQ2ZMUm41bWpWWEJuU243VHBMQWFiZDFvVE1R?oc=5) |
