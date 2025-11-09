@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月09日 15:33:48（北京时间）**
+🕒 更新时间：**2025年11月09日 15:40:16（北京时间）**
 
 ---
 
@@ -29,8 +29,8 @@
 | Chicago police respond to report of shots fired at federal agents amid immigration operations - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPdTh6SDl1dUp2YThTa2VGS0xKNHNBdU13c1o0TkVRclB5TDVqYzdfV1VKLXNpekFNR01VS2FSSGtDVl9WT2s1eVNNb2NOQkZEdFdxNmxueTlzaVR5cWF2WDI3ME5VbTYtT0JyZHcxOVlGU1ZXckpnYWJhblBnTUxDcTNiS0doNG5xNlRHWkNDd2JwVW91Q3ZERE9teVVOWmxvR0xORlVKNTRFLUdQ?oc=5) |
 | Mayor-elect Mamdani reeks of Lenin — but NYC’s wise safeguard against Marxism stands in his way - New York Post | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxQb3d3dnVfLUhlMThadVZsRXpqTlBrbl9fOTl1cU1oYTUzbWhTTVV1T3ZwR0dPdlFCN3VhTnRCYXE0OTZSY0NlQXBsVU9wQmlDUDBiYWRYSTVGdzhWNzJuRFZmajdTM1RXLTBDMFg3bGV6SVJ5UkthYmNpckYtcC0zNTd0WklDSDhFOFQxbUNVeHItS0tLX0pQYWg2SUhBMmMwcVV2NVhVM3hCWkJ6MXFtNC1lbHVPQktDdVFDVjMwWExqTzREZ1JGR0hta1U5NFJmQTNmdWVpaw?oc=5) |
 | 4 dead, 13 injured in Ybor City after law enforcement pursuit ends in crash - Tampa Bay Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNS2RWNnp6SEZkam9qMDFkZlk0TEJOSWIyRGxwdFcyVUNxczU2REhXM1hfX3VVYWhVY3diNWJRTGxNVVNfVmt5VVF4RFFHUGwyQkx6T2N6enBycjRGZ2Fic0VuVGJFYnlPRTZMMnVlZEs1b2hsTVNoaUFnSk9RQnBucC1zUHFGQk1LQ0xv?oc=5) |
-| Worries Increase on Second Day of Flight Cancellations - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNaWotTHA5ZXBrZFI1dkstY3Y0RTAySHpkM05rUnNsRHNiQXBWMTFPck1SX1pjc3I4dHBrV2JaeTNzVGNnVjg2VFA2bFZjTE9rcW5UMkdjczl6OFN0VHNjN0ZXbk55RGh5bVg3R2ZlaGhBRVVNRXJqVUtWVDI4bFAydTFvVmVMdmo0bVBrRmJ4NmVoSEstajZzY3NrMkc5T2hFM0E?oc=5) |
 | FAA grounds MD-11 planes following deadly Kentucky crash - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQOWNJd196eDRHYzIxRkdDSk5BS2xRdDhvcUtQZ1NWMzlDalY4VmljN1V3aktpYmxCNWxBUlpFYUNJUnVpOXQwVE85bGJyWnI5QmNUTWVCd2V6RTJKajh6b2hkOGpHRElQWnhGZlpiUDBtRTZxTlNPVzhPY09LSHhFeGx2Z0dsdWplQVhrWnpRZVlVdUVMRVgwQmR1WUsyT0lC?oc=5) |
+| Travelers face mounting delays this weekend as airlines cut hundreds of flights due to the shutdown. Here’s what to know - CNN | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxOM05PeEZXY0c5YXk2Vnppa01rdmRSOTdFTllFZThrX2R0X2MtWlZtVXZaOVU1ZndiYzN1YnpRTlE4R2wtbi1XeWdrWm9tWEs4VkNNeHRYREFEakVhZjR5eFlrcTNmRTZXNEowNVJzdzY0M2wtdi1jZHdtN195cEFUTEEwc013RUFnRTFaYw?oc=5) |
 | Suspect in murder of California family asked online psychic: "will I get caught for what I did"? - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOV1drX0NaRGJIY2xTY2s2ODZwUzN3V1NVVmtpN1dZYWZWS29uVFJvUWVEb0s1UFEwaldSd1NyUE1RZi0tR0JVMnBGUjZVcmx6TDkyME1xT0tWTENnR2d4YzJMWWNtellTSFpJUVg4X2pseHA5bUhEc2JLWV94VGQ5XzRQcU9kVFprRUp2Z01fTHNWMldkbHF5V1BNQnbSAaIBQVVfeXFMTjY0YXl2cF95SW5YY2ZHdjFLbk01RnFuanZpWE9oeGpQbHJ3bFpXU3U3TTlxbEZvcFBqSFpWNzZ6Z0lkcE8yV3VmcU9oQmhNOFBmNUZBc1BYbU9mTGNOa3lxWnQ0S1RmLS1vLWxmTmgwcjhnZlZSYkVGcFJPWDVQeVFnQ1JoSkVQQ0piVFR2empmUlM3NXpVdGVYMWhEV0pVVXl3?oc=5) |
 | Man kills Florida deputy with his own weapon during traffic stop, police say - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOSVA2R0xuay1jWS1tS2pVQWVqU0pGNlNSa3RXcVMxT0ZpU1VNZFo1VldvYW9xUlVEdEdVVWNSOXZ1aXhpMDJ1dHh0dGh1Rm5FWUhNSmlmRkk4eWUySDU4ZG5jWFpwcnN3eXN6cklvaEZNeHpwaTE0QXNCc25tT01WdHNlTG1oWnF2Y2JfVk55eWVRMUVXaFR6UENtT3B1d3dFd292NWdxU1LSAVZBVV95cUxQZHpSdElkUUpTLXRRUkFyR2pDcXltTkFnOVpsM3FNMzNzQV8wZk90NzI2M25rTm50TzFBSk5iTGlza3R1bzYwOTRrYnQ3RTY0VFdBOHFwQQ?oc=5) |
 
