@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月09日 19:32:57（北京时间）**
+🕒 更新时间：**2025年11月09日 19:40:31（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | 4 dead, 13 injured in Ybor City after law enforcement pursuit ends in crash - Tampa Bay Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNS2RWNnp6SEZkam9qMDFkZlk0TEJOSWIyRGxwdFcyVUNxczU2REhXM1hfX3VVYWhVY3diNWJRTGxNVVNfVmt5VVF4RFFHUGwyQkx6T2N6enBycjRGZ2Fic0VuVGJFYnlPRTZMMnVlZEs1b2hsTVNoaUFnSk9RQnBucC1zUHFGQk1LQ0xv?oc=5) |
 | Flight delays and cancellations mount as FAA cuts to air traffic enter second day - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOVVFCejFVRUQwMmNXYnhoVTRIbTU2NDlJaHlhZllrc3RBbTVYcTJrMk5kZGdKa1FqRWJyWGhoNHRwaEstQ0FzaTY4aHRQM1R0MVpiSnN5alBaNGdzOTdYb0J2andpQmxIajdjUWpuZlNfMGNKVG8wUnRoLU9rSmRBYVdBa1phNkxQZEhjWVByTFNDWVpEelN0OEtpc9IBoAFBVV95cUxNSXZPVEhTZ0c0Y20tUERrTld3THJoaVM3Y1BCRVRoeldDeWtzU3VnQW1BR09nOWJzc1lzTndlUmNnUUFFMmRYcWIwRVZYbm1reHh5N3hwSzIweXVhZ090cGpvUEFDMGs5ekFHTnY1NlRMRi0tXzB6TjhIZlFuTXdLb0cyMWNDUzA4aWliNkhiMENtWWt0dTBpYV9ORTJGY2pv?oc=5) |
 | FAA grounds MD-11 planes following deadly Kentucky crash - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQOWNJd196eDRHYzIxRkdDSk5BS2xRdDhvcUtQZ1NWMzlDalY4VmljN1V3aktpYmxCNWxBUlpFYUNJUnVpOXQwVE85bGJyWnI5QmNUTWVCd2V6RTJKajh6b2hkOGpHRElQWnhGZlpiUDBtRTZxTlNPVzhPY09LSHhFeGx2Z0dsdWplQVhrWnpRZVlVdUVMRVgwQmR1WUsyT0lC?oc=5) |
-| Trump signals no shutdown compromise on the Affordable Care Act, calling it 'the worst Healthcare anywhere in the world' - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNWnZiQ2c5T0t6ZDFRNkNvTmtqSHVGSG1zLW5VazR1b2t3TGVfaWpsaGRtZ0l1b2NCdGF0c1NUQ08wRmNNanc1TDI3ekVzQ0ZXRmpWQWEtMkdTUGdvNzNZRHotNUdPZjBvSVR0czU5X3dUUmNnV2Z4WWRmQVptZm1RQlUxeE9QVTI5ZGt5bDJCQm9td2pIOVlLRmZ4LVc4WC1fQktqdjI2bmpkN0tFYy02MDBFODJHWmdyckdqS2h0b1I4TURLR09TRXBNU0hTYXZR?oc=5) |
-| Newsom appears onstage at Texas rally to celebrate Prop. 50 victory, take swipes at Trump - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOLVdvRU4xMmpHbndQMFM5SW5NWHVFT1RTLWx2aVFFRUZWZjAzWExIWnpYal9nM0hVRDF1aVFzNXVXdHhwbW9wdk5kX0tBekpfNWx1MElCTmYtU3ZYRmUyRElTUmZLR1BMc1JXOFRtSWZBQWlKaXREczMwa05oVDljekIxN1BNcmZINHo3T2ZiZTBPUU9kalhwZWMtRFNpZV9pclprdHJ1Wmt1QUNvNjhnSQ?oc=5) |
+| Senate holds rare Saturday session aimed at ending government shutdown, will reconvene Sunday - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQM3BScFNpZGtNb0cxQkw4NzV0dGprRWxfZWdvWEltVE9EbjYyUFBVQ3RsbUdITzRsY2VTQk80eEsxTDlURjR6OFk4NUFQZi0zZ1ZGX2xDT1liQXI2ZGViV2tmQ1VyekRHTlREQkFFTXdYa0xFNC00U1VRRmp4UlBHLUQwcWxrY202WGR2STd1WW7SAZYBQVVfeXFMTVpuMFY3NjdrX09zdlVUclkxVG1nb3JkRlpKbW0tam5lOWxHdFN5N192SUNzYXpnWEMyLTNPZndOa1lyZ2pqZ0VjdVF5alc2MGlZc1NWcEVYOVVySVNhdWJFZk1jTzIwNFdQWUJjeW1YTkxQQzJuNlk3cy12cW1hSnByS2phRHQxSnA1Xy1JNWMxSTI2YnJB?oc=5) |
+| Trump’s unprecedented move to withhold SNAP benefits has nation’s largest food charity despairing: ‘The situation is catastrophic’ - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQRktJaTUwOExXN0IwWk9Ra2w3QllMT2VpQXhOT3dzdVgwU3lrYWM4eHNfSjN2ajFyb0xRSVhObFVJMVB3cVhpdFduQkVqYVhWUUNxZTlzbTMtc1VaaUNjcmIwNVpiSHB2TXNrTms1LW9UblVwdmFaSE9LOVRuZ05ybm9mTzdOeHZYYTktT0p5VnplZWo3aEVzc21IWWdHcExqTzVaYXJn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
