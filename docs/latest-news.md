@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月09日 17:48:19（北京时间）**
+🕒 更新时间：**2025年11月09日 17:57:30（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Senate holds rare Saturday session aimed at ending government shutdown, will reconvene Sunday - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQM3BScFNpZGtNb0cxQkw4NzV0dGprRWxfZWdvWEltVE9EbjYyUFBVQ3RsbUdITzRsY2VTQk80eEsxTDlURjR6OFk4NUFQZi0zZ1ZGX2xDT1liQXI2ZGViV2tmQ1VyekRHTlREQkFFTXdYa0xFNC00U1VRRmp4UlBHLUQwcWxrY202WGR2STd1WW7SAZYBQVVfeXFMTVpuMFY3NjdrX09zdlVUclkxVG1nb3JkRlpKbW0tam5lOWxHdFN5N192SUNzYXpnWEMyLTNPZndOa1lyZ2pqZ0VjdVF5alc2MGlZc1NWcEVYOVVySVNhdWJFZk1jTzIwNFdQWUJjeW1YTkxQQzJuNlk3cy12cW1hSnByS2phRHQxSnA1Xy1JNWMxSTI2YnJB?oc=5) |
 | FAA grounds MD-11 planes following deadly Kentucky crash - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQOWNJd196eDRHYzIxRkdDSk5BS2xRdDhvcUtQZ1NWMzlDalY4VmljN1V3aktpYmxCNWxBUlpFYUNJUnVpOXQwVE85bGJyWnI5QmNUTWVCd2V6RTJKajh6b2hkOGpHRElQWnhGZlpiUDBtRTZxTlNPVzhPY09LSHhFeGx2Z0dsdWplQVhrWnpRZVlVdUVMRVgwQmR1WUsyT0lC?oc=5) |
 | 4 dead, 13 injured in Ybor City after law enforcement pursuit ends in crash - Tampa Bay Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNS2RWNnp6SEZkam9qMDFkZlk0TEJOSWIyRGxwdFcyVUNxczU2REhXM1hfX3VVYWhVY3diNWJRTGxNVVNfVmt5VVF4RFFHUGwyQkx6T2N6enBycjRGZ2Fic0VuVGJFYnlPRTZMMnVlZEs1b2hsTVNoaUFnSk9RQnBucC1zUHFGQk1LQ0xv?oc=5) |
-| Suspect in murder of California family asked online psychic: "will I get caught for what I did"? - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOV1drX0NaRGJIY2xTY2s2ODZwUzN3V1NVVmtpN1dZYWZWS29uVFJvUWVEb0s1UFEwaldSd1NyUE1RZi0tR0JVMnBGUjZVcmx6TDkyME1xT0tWTENnR2d4YzJMWWNtellTSFpJUVg4X2pseHA5bUhEc2JLWV94VGQ5XzRQcU9kVFprRUp2Z01fTHNWMldkbHF5V1BNQnbSAaIBQVVfeXFMTjY0YXl2cF95SW5YY2ZHdjFLbk01RnFuanZpWE9oeGpQbHJ3bFpXU3U3TTlxbEZvcFBqSFpWNzZ6Z0lkcE8yV3VmcU9oQmhNOFBmNUZBc1BYbU9mTGNOa3lxWnQ0S1RmLS1vLWxmTmgwcjhnZlZSYkVGcFJPWDVQeVFnQ1JoSkVQQ0piVFR2empmUlM3NXpVdGVYMWhEV0pVVXl3?oc=5) |
 | Newsom appears onstage at Texas rally to celebrate Prop. 50 victory, take swipes at Trump - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOLVdvRU4xMmpHbndQMFM5SW5NWHVFT1RTLWx2aVFFRUZWZjAzWExIWnpYal9nM0hVRDF1aVFzNXVXdHhwbW9wdk5kX0tBekpfNWx1MElCTmYtU3ZYRmUyRElTUmZLR1BMc1JXOFRtSWZBQWlKaXREczMwa05oVDljekIxN1BNcmZINHo3T2ZiZTBPUU9kalhwZWMtRFNpZV9pclprdHJ1Wmt1QUNvNjhnSQ?oc=5) |
+| Suspect in murder of California family asked online psychic: "will I get caught for what I did"? - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOV1drX0NaRGJIY2xTY2s2ODZwUzN3V1NVVmtpN1dZYWZWS29uVFJvUWVEb0s1UFEwaldSd1NyUE1RZi0tR0JVMnBGUjZVcmx6TDkyME1xT0tWTENnR2d4YzJMWWNtellTSFpJUVg4X2pseHA5bUhEc2JLWV94VGQ5XzRQcU9kVFprRUp2Z01fTHNWMldkbHF5V1BNQnbSAaIBQVVfeXFMTjY0YXl2cF95SW5YY2ZHdjFLbk01RnFuanZpWE9oeGpQbHJ3bFpXU3U3TTlxbEZvcFBqSFpWNzZ6Z0lkcE8yV3VmcU9oQmhNOFBmNUZBc1BYbU9mTGNOa3lxWnQ0S1RmLS1vLWxmTmgwcjhnZlZSYkVGcFJPWDVQeVFnQ1JoSkVQQ0piVFR2empmUlM3NXpVdGVYMWhEV0pVVXl3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
