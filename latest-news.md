@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月09日 12:41:15（北京时间）**
+🕒 更新时间：**2025年11月09日 12:49:41（北京时间）**
 
 ---
 
@@ -23,11 +23,11 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
+| Philippines evacuates 100,000 people as Fung-wong intensifies into super typhoon - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxQM0lMOURwdWNUalpaMVU0ODFGUzlkMnk5VGpfYm9pRWJKNTFZOVpCVGlPM3ZGN3NoX1pORE1heEwyRHJ1SU16TklueG9uQ0NQWkFMNnhleGs2bzlwODlPZTRVb0k3Smk0ZlVrXy1Ic1JVQW1mdHdqcHR2N1ZUdjZzNE1WNnZaVk56YU5CZVMzRFV2SlpkVGlPQVNsbHpXMF9zWmpjMVNOMHdRYTgzOXZqaDNsTzBLZHVGUmU1YXZYeGdYVnlUMEtkM3ltVm5oUQ?oc=5) |
 | Supreme Court Ruling on SNAP Benefits Leaves Families in Limbo - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilwFBVV95cUxQVDVSN2hVclVVRnF1TEJpTXNKaHpFeWFyRmVsa1ZEUWoyLXRrbFhFd2NWd0hXQWVYN0NQallBSXJrMEJqV2JFYzcyOXVCVndLOWI0Z0VmcnhQQ3UtSl94YnJvVlpaUTM5cWs1cmpmZGJmeFB1Yk81cjNjS1pEd3J4QVZadVBwbUdNN0JGQ2hHUExmY01lZ0V3?oc=5) |
 | Trump news at a glance: President suggests scrapping Obamacare as shutdown flight chaos continues - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxQcXBybWlDTS0xV1RBMVFjaDNmSmdNUEdPOXlXeWpzb2NGal9fb243T2JTTG5ZdE1VeEdYVW5MMFhHQXhYQ3R5Y3dEOVVOOHdZZFd6amt1NXphRWRkTlBCSmJjU0xYNXRMMDV2RWtiNXRVWHhBeW1xMGQ5YU1OWHo3emZZS1d4aUZuMHduemdadW1sNEJFUldwUDhyYVlpN2xaYTJEOVpUWmpEeWtnaWEyNVpkdkRNbzlOQVFIRmtraWdWcWFtamlwbG50azdMSGFXd1Q5SjJrdVFMZlJV?oc=5) |
 | Little Village, Chicago shooting: Shots fired at Border Patrol agents during immigration operation near 26th and Kedzie, DHS says - ABC7 Chicago | [阅读全文](https://news.google.com/rss/articles/CBMi5wFBVV95cUxOUEdKdzlfVUdhRTltVXhSNk4xSDQxd0Q4TlpWUjNOMk5Yb0xmV3JKRktRS2JPYmxWWnA4b2Y2ZlMweGluUDcyVkQtOGpnS0VYUjNLajBvM0x2NkJFNjJhZW5XT1I0NUNIWlpqUmJSQUJ4QnNya29tLTY5ZFZXdW1JQXNraEtvaHhwaVdxZ21McjhXNTRvTzF4VExsUGlfUHA5bkdwcjRfNzlWZENVN2IxTmpPTGdfdWM3X3h5TTFlbENucWllWEJKUEhTdG5OYkhjQmlxUHZPWHpoRHdlWUE4c01oY05LRWPSAewBQVVfeXFMUHBKcm51R1FZZUtCRHVKU2diZk9WSndldUl0dzc0aUtuanFQWkFUTWlQMTU0d3NfTS1XVmpvLWJZXzFnb04tRU5fRUpTTEpzanRmeE1hNFZTQnNHNFZXSkM0dTlyRngyVHZPZnY3NTM4ZW14blMxUzZ0a0pac29IWlJsY3lCM01QeDJzdkpjTkxYSmUyeGJoendMQjZJTlBxNlhOMThTUUMteHF5YVhDTEtZUXY1b2lyUUZQVktPN1lXS1N0N2hjcGNVNFZTNXlCVUNNbWhiMDZHMkE3Ulk4anpXYjBYTTc0bzd0ZjM?oc=5) |
 | Judge says Education Dept. partisan out-of-office emails violated First Amendment - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOeFlxaGNoeWh1WTkxVG41SEo0cXRBaVVMSVJRRkktY1dWdExqejZ1V1RGbVQ1QmVJVXp2RzQxM2YxSmpkVHJ3MmZVVDVubWk1amY1ODRJWWNxbVNxWGx2a0JrUnN0ZDRtVE1pVGotLUpGd1lMVVVNZmFQUjRmU2xKRWJKbENPcV9ETWo2Y2sxSnNrX1Ftc1VMRQ?oc=5) |
-| Philippines warns of deadly storm surges as Typhoon Fung-wong nears super typhoon strength - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxOSEVwN0I1dW5CU18xdHM3NldLLUdBVnFYUzdTRUo4WjhRWnN6Y3MyRDhlc1JtVWRkYTR2MUZ5Qy1BMzBGYVB1d0FrcGN0RVpSVGpzUlg0ODc5SHU2OG9rbi1wN1VCNzdULXE2bThuLVJEaDFDZzBmTXJyQzVFSFhOU3paOEJlNV9ZT05DRUdtQmc4N253TjYzdzlOV0RLb0JUTzRXVDIyMk5XcmY4S1d3UXM1cTlhZVZGTE44X3liWGNsUUxZZWd2Q1RkQjk?oc=5) |
 | ACA health care premiums are rising. These 8 Americans showed us how much. - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxQNm5PbzRfbnA1LTBEdDBKR3RFRE5jbW9wNlp0Y3g3WTlUV1Fid2EwRnNJS0VTaV9sck1ublhwMVBKWXlNZmdpcVU1clRXZnFERnhuN0s1UFNBeGlXcVV5MC02N3U2b3dKRThpWlp1NDhrMWJCTEZqODYtU1Q0UlNUWElibXdCS3FydnpLOUhjdjhNdw?oc=5) |
 | US airlines cancel more than 2,500 weekend flights largely due to government shutdown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQcXEzNlVxa0F5ZTV0c3YyQmxJX3p5VDJGdDNjNjg5WFd4aGJ3SWNHVGFidGg2VG80bGJOdk9JN3BvQ2FZbC1vb3NTTWIwUzdOR1JoSTNxZ01GbS1YeS1jVHN2ZzhaNkRET1hXOG9PSFh5amRuWXBscFA4ZFFfY2hfVjB1Tmo4VGNPV01Wc05TZ01rLTE3OTdWSDhZM2RMb2Y2ZW1TZHBVc256N0lfMW5VZmNRaw?oc=5) |
 | FAA Orders Grounding of MD-11 Planes After Kentucky Crash - The Wall Street Journal | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxPakp2X2hzZ1BsWFM3ZW9VbmhmTDFsZXZ6ZGhVd2NFT3Fiai1DNmg1dVZqWXN0UHMxV1VnZ0xlUEhCNEw1VEJpalZLMnJDMEN5aEM0b2NRbW1nOGI2NDBXa0RVTFNOemR4OHlQMEZ0TmJTRlFsOWRoOGV3M2dkRHBBbGdFQXVhRkFMdDRjSm04VGlqX1ltdlVsNjFVYnZYSzFoVWZMX2JlOA?oc=5) |
