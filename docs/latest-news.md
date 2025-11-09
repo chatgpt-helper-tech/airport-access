@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月09日 21:17:14（北京时间）**
+🕒 更新时间：**2025年11月09日 21:24:05（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | New flu virus mutation could see 'worst season in a decade' | [阅读全文](https://www.bbc.com/news/articles/c2dr8gzdz1wo?at_medium=RSS&at_campaign=rss) |
 | Nearly a million evacuated as Philippines braces for 'super typhoon' | [阅读全文](https://www.bbc.com/news/articles/cq509yj82y8o?at_medium=RSS&at_campaign=rss) |
 | Women are hiding their boyfriends online and there's more than one reason why | [阅读全文](https://www.bbc.com/news/articles/c93x1q5395do?at_medium=RSS&at_campaign=rss) |
-| 'The number one presenter in the country right now': Claudia Winkleman's unstoppable rise | [阅读全文](https://www.bbc.com/news/articles/cjw96xw8v93o?at_medium=RSS&at_campaign=rss) |
+| 'The best friend you'd love to have' - How Claudia Winkleman conquered TV | [阅读全文](https://www.bbc.com/news/articles/cjw96xw8v93o?at_medium=RSS&at_campaign=rss) |
 | Thousands of Chinese lured abroad and forced to be scammers - now Beijing is cracking down | [阅读全文](https://www.bbc.com/news/articles/c1lq95j1yp9o?at_medium=RSS&at_campaign=rss) |
 | How this year’s Christmas ads ‘let real life in,’ from cost of living to masculinity | [阅读全文](https://www.bbc.com/news/articles/c0rp7exwq8ko?at_medium=RSS&at_campaign=rss) |
 
@@ -28,11 +28,11 @@
 | Images of Trump appearing to close his eyes during Oval Office event spread across social media - CNN | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE4wcjhPX3p2Q3lWdFV0MEJ3WFphbmd4d1Q0Tm04bk1pUnVaTzhFUjdxSmpDZVFFUDlIZFBHZUFwTWhQc0E1bXBMQUhhejRVNk16dk1xMTlHby10QjQyZHhRdVl3RnR5R0ZWcE5vVmdwd2U?oc=5) |
 | Meet the Philadelphia-based graphic designer who took inspiration from bodegas, Bollywood and hot dog carts for Zohran Mamdani's iconic campaign - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQYXYyVG1tQlJyRVhOTHFYSFFhd0hOQjQzWHNpOXNZVkU0Q0FmdW9zcmFlS1dDV09QXzZFY19IOW04TENkcUdScWNqV1h4MmlVSTBFQWRVaFVPcmh6Zm85X1BYRkVaajlNajZDeGZYa3hVT0ZDUkJsY2ZKV2xJUXVUYVRrRDdQMnVtb2xDMGtmUkdKNmhNU1Nwc2RkaERtUQ?oc=5) |
 | Minnesota restores full SNAP benefits to families in need - Star Tribune | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPUEdJMEFLaE1zRHFZVDJWNThuSEY4SlpJZURod1J0NENGYXpHa0hneGxoMXJVUU01WERoVEgwSDBURmdNam9BNmFmd0FRQThEUHNtNVNkOWhZZ0djcUdWQVJDNVlIQ2RuaF93aFNvOTRYNnZoN1BnLUtvTzBOejNaeDhyNF9VUHAycGNWQy1obUtVQ05kWW81NWVIaw?oc=5) |
-| Trump news at a glance: President suggests scrapping Obamacare as shutdown flight chaos continues - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxQcXBybWlDTS0xV1RBMVFjaDNmSmdNUEdPOXlXeWpzb2NGal9fb243T2JTTG5ZdE1VeEdYVW5MMFhHQXhYQ3R5Y3dEOVVOOHdZZFd6amt1NXphRWRkTlBCSmJjU0xYNXRMMDV2RWtiNXRVWHhBeW1xMGQ5YU1OWHo3emZZS1d4aUZuMHduemdadW1sNEJFUldwUDhyYVlpN2xaYTJEOVpUWmpEeWtnaWEyNVpkdkRNbzlOQVFIRmtraWdWcWFtamlwbG50azdMSGFXd1Q5SjJrdVFMZlJV?oc=5) |
-| More than 1,100 flights canceled Sunday amid nationwide air travel disruption - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQb1FFemV3RGJLaXJzQjRtY01hOTUybl9hNVcxcWtPLVA1SnlXSnFzZnVRSVBfejJsMVN5Si1TOVJXX2hLbzU1R2ZwLWlCczVLQlg2UHlOaklLaUUzNFB4M1R5Tl82Z2VTYmFwTUVxUnR4QlNSd1JqTkNRUWhmOFBiT1FZSkViZVlYT1Z3WE9XTEUtWXp5SVdOTE9Lc0tnNkE3TXfSAacBQVVfeXFMTnd6dHR4eGVWbEFLc3NsVGFZUm1OVU04amt5WTk3WEY4aWRjSTlQZDg2ZEsxRjRtOFhZeWphSTBxV0FBV0hsZUpFSGlnbkhRVDNNbVRzSVB1bzYtbzBENDBfSzItMDQ5Q2J3QmJGS3dFT1RuR0VHY05LTk9hUGh6V0R4Y2JFRUQ2SVdDbkdOY3hxVE5nNlFmbEItcXFuM29FaW5qa0VGdWM?oc=5) |
+| Syria's Sharaa arrives in US for Trump talks after sanctions lifted - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE94NnJ4ZzgybTJqSzJGVmlENWZZa1ZZRzkteW05d05kSndXWkE4Tnhxa0xsb2tzS2ZmWURnQzRFUTR5d2lVVWttaXQtSEg4a0hIenJsbEpZd1Vid9IBX0FVX3lxTE5jc2VWdlhjeVo1dHNPWlBjY3NINFhQVGJvckVwOTVjZ3FUdy1IZW5lZDhKaV9XbXBUUXlZOVhDNjNRSHRkU210dy1UWjk0bVVoRmNDdnV6VGdXbXBGRFFj?oc=5) |
+| Flight delays and cancellations mount as FAA cuts to air traffic enter second day - Fox News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOVVFCejFVRUQwMmNXYnhoVTRIbTU2NDlJaHlhZllrc3RBbTVYcTJrMk5kZGdKa1FqRWJyWGhoNHRwaEstQ0FzaTY4aHRQM1R0MVpiSnN5alBaNGdzOTdYb0J2andpQmxIajdjUWpuZlNfMGNKVG8wUnRoLU9rSmRBYVdBa1phNkxQZEhjWVByTFNDWVpEelN0OEtpc9IBoAFBVV95cUxNSXZPVEhTZ0c0Y20tUERrTld3THJoaVM3Y1BCRVRoeldDeWtzU3VnQW1BR09nOWJzc1lzTndlUmNnUUFFMmRYcWIwRVZYbm1reHh5N3hwSzIweXVhZ090cGpvUEFDMGs5ekFHTnY1NlRMRi0tXzB6TjhIZlFuTXdLb0cyMWNDUzA4aWliNkhiMENtWWt0dTBpYV9ORTJGY2pv?oc=5) |
 | No people thought unaccounted for as UPS cargo plane crash toll stands at 14, Louisville mayor says - AP News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxQaURsaUxEWG5VQmd5WVdKSFR5YTdyekVwcV9RcFNYcGhJTVZLZWp0cTZ5QlJpNmRPenRxTDFjcUNEdlp3cEFXY21laVN0b2wyUXEwQzl0UmRLeDloV1ItWTl5ZDJ6aXN6XzBGa3FHdngzdE9VWk1kVHZ3SlVLWnNEU0NrM2VaaEFsYi1BeUJvQXNoTGVwcjFGel8zYUc1Tm4x?oc=5) |
+| Trump news at a glance: President suggests scrapping Obamacare as shutdown flight chaos continues - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxQcXBybWlDTS0xV1RBMVFjaDNmSmdNUEdPOXlXeWpzb2NGal9fb243T2JTTG5ZdE1VeEdYVW5MMFhHQXhYQ3R5Y3dEOVVOOHdZZFd6amt1NXphRWRkTlBCSmJjU0xYNXRMMDV2RWtiNXRVWHhBeW1xMGQ5YU1OWHo3emZZS1d4aUZuMHduemdadW1sNEJFUldwUDhyYVlpN2xaYTJEOVpUWmpEeWtnaWEyNVpkdkRNbzlOQVFIRmtraWdWcWFtamlwbG50azdMSGFXd1Q5SjJrdVFMZlJV?oc=5) |
 | How an Adam Schiff indictment could shake the Senate - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOaUxUM1lHOERDQUFwVE40NjBYb1Y2djdod2tnVzBxZjhqT184cVZCYXl2Tno5WlpOWWNaVG1fR3NpbVJIbUUzRjlEdzhoOGhDYk0zU1RBVTNPR3VmbE9JRFhtVVZGRVVGa0RCVlZQZnYzRHU2ZlVuRU1LdFNNWWt0Ymdoel8xejV4VVE?oc=5) |
-| As millions of Americans struggle with SNAP lapses, food banks are swamped with demand - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxOd29CZnVtc1BNakFwSW43VFZldjlpMDV2VTRrdWNYWDQ4Y2hKMzNPUEVJM01iSEd0NlV3S09nNkRNdWoybUhQRXhXejlwaDdfaFRuNTFrX2doYUJpWUl6TTAwOERYQ0dUWm1JZjZhamY5QmJCU08tRU1JbkNjV1NaR0VLUjVORzJvc0xXV293U2twRE9FZUZFa0dn?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
