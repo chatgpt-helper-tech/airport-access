@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月09日 13:17:37（北京时间）**
+🕒 更新时间：**2025年11月09日 13:24:55（北京时间）**
 
 ---
 
@@ -26,7 +26,7 @@
 | Philippines evacuates 100,000 people as Fung-wong intensifies into super typhoon - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMizgFBVV95cUxQM0lMOURwdWNUalpaMVU0ODFGUzlkMnk5VGpfYm9pRWJKNTFZOVpCVGlPM3ZGN3NoX1pORE1heEwyRHJ1SU16TklueG9uQ0NQWkFMNnhleGs2bzlwODlPZTRVb0k3Smk0ZlVrXy1Ic1JVQW1mdHdqcHR2N1ZUdjZzNE1WNnZaVk56YU5CZVMzRFV2SlpkVGlPQVNsbHpXMF9zWmpjMVNOMHdRYTgzOXZqaDNsTzBLZHVGUmU1YXZYeGdYVnlUMEtkM3ltVm5oUQ?oc=5) |
 | Minnesota restores full SNAP benefits to families in need - Star Tribune | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxPUEdJMEFLaE1zRHFZVDJWNThuSEY4SlpJZURod1J0NENGYXpHa0hneGxoMXJVUU01WERoVEgwSDBURmdNam9BNmFmd0FRQThEUHNtNVNkOWhZZ0djcUdWQVJDNVlIQ2RuaF93aFNvOTRYNnZoN1BnLUtvTzBOejNaeDhyNF9VUHAycGNWQy1obUtVQ05kWW81NWVIaw?oc=5) |
 | Trump news at a glance: President suggests scrapping Obamacare as shutdown flight chaos continues - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMi3AFBVV95cUxQcXBybWlDTS0xV1RBMVFjaDNmSmdNUEdPOXlXeWpzb2NGal9fb243T2JTTG5ZdE1VeEdYVW5MMFhHQXhYQ3R5Y3dEOVVOOHdZZFd6amt1NXphRWRkTlBCSmJjU0xYNXRMMDV2RWtiNXRVWHhBeW1xMGQ5YU1OWHo3emZZS1d4aUZuMHduemdadW1sNEJFUldwUDhyYVlpN2xaYTJEOVpUWmpEeWtnaWEyNVpkdkRNbzlOQVFIRmtraWdWcWFtamlwbG50azdMSGFXd1Q5SjJrdVFMZlJV?oc=5) |
-| Chicago police respond to report of shots fired at federal agents amid immigration operations - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxPdTh6SDl1dUp2YThTa2VGS0xKNHNBdU13c1o0TkVRclB5TDVqYzdfV1VKLXNpekFNR01VS2FSSGtDVl9WT2s1eVNNb2NOQkZEdFdxNmxueTlzaVR5cWF2WDI3ME5VbTYtT0JyZHcxOVlGU1ZXckpnYWJhblBnTUxDcTNiS0doNG5xNlRHWkNDd2JwVW91Q3ZERE9teVVOWmxvR0xORlVKNTRFLUdQ?oc=5) |
+| Shots Fired at Border Patrol Agents in Chicago, Federal Officials Say - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMie0FVX3lxTE16M2ZmOU1RUjl5Vk1OZFJkcTRJMXBCUHJvUnNhSTNETHB0Z0Z4YzhUUmhCNDJuZ3k1WGZUWW1KOGh4aU1NejVXVHJjNkJUR2VtYjM5Ty1UMWZwYjdnb1JMS3ZKQjFOMktvNXNVYUVScnZkd0EwVzdZbTlaTQ?oc=5) |
 | Judge says Education Dept. partisan out-of-office emails violated First Amendment - NPR | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOeFlxaGNoeWh1WTkxVG41SEo0cXRBaVVMSVJRRkktY1dWdExqejZ1V1RGbVQ1QmVJVXp2RzQxM2YxSmpkVHJ3MmZVVDVubWk1amY1ODRJWWNxbVNxWGx2a0JrUnN0ZDRtVE1pVGotLUpGd1lMVVVNZmFQUjRmU2xKRWJKbENPcV9ETWo2Y2sxSnNrX1Ftc1VMRQ?oc=5) |
 | Voter fury emerges over skyrocketing electricity bills as AI stokes demand — and fears of a stock market bubble - Fortune | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxQTE8yNy1LaERxcllyN185d2hvVWpiUk1zTkNESEZqb3VkdEpvLXV1ejMxTHhuUWRWQzdrdnhEUXV0V1lMcFNLR05KX3lvQ05uQ1FLN3RGTXNTc1VBU1VJYUU5R3g5Wld4SGRCdmVNYTZNWXJlOUFwcUZyLXU1MkFXa1ZKckZjbWZPeDgtcWEwZmZIZmNxU0wyZ01LaTF0Ykk5WmdfSXl3?oc=5) |
 | US airlines cancel more than 2,500 weekend flights largely due to government shutdown - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxQcXEzNlVxa0F5ZTV0c3YyQmxJX3p5VDJGdDNjNjg5WFd4aGJ3SWNHVGFidGg2VG80bGJOdk9JN3BvQ2FZbC1vb3NTTWIwUzdOR1JoSTNxZ01GbS1YeS1jVHN2ZzhaNkRET1hXOG9PSFh5amRuWXBscFA4ZFFfY2hfVjB1Tmo4VGNPV01Wc05TZ01rLTE3OTdWSDhZM2RMb2Y2ZW1TZHBVc256N0lfMW5VZmNRaw?oc=5) |
