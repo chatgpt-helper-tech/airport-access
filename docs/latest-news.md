@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 18:09:27（北京时间）**
+🕒 更新时间：**2025年11月10日 18:17:40（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | Arctic Blast Is Sweeping East, Bringing First Snow of the Season - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBlVmEyb0pwNDZodlVHTmdkM29rcHlHM0k4TmNFdm9kVnluMmpiR2dLX2NiSkFCYmM4Y25YV09KSlJrbXV1ZGxHVDFnX2VBeElvX2M0NHdvTHd4b250ZkVRVGd4dzZUSmlGZ0xXckdGV2hOOVprWXgxQmx5U0pOSWs?oc=5) |
 | Some UPS and FedEx planes are grounded. What does that mean for holiday shipping? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNSnFpVjVpNVcwMWJGZ3pvWnBCSWxFTVZramJHMmJRMEExNENNSVNhdWVfVVlDemZ3cTVBR3MtMFRvUWxIOXlkbDBrNFVhaTBZRVJfaFdCTFNLQk83MVlYMHltU0tKc2VKSTUwTjh2VkhhakpJZS04VkdsQW5ZanR2VktGTmlfaXlUWHNwTG5B?oc=5) |
 | Trump floats using tariff revenue to send $2,000 checks to Americans. Here's how that could hurt people in the long run. - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNa0ZEcVpaOEZaYks1QmF4VG5uaFlNSFlwckRSRlloLWNzT1Bjd1ZUS3I2a0J2bXdUUXdndnJaSFN6MmVuWmlIZEQwbUhDUVJLVEJOVEU1YkU2aTRvLXhET2VYbGtISU5DQ0NnYUpjZTZQdWQ2ZWNGajRTVlhoVGpseVJKRmp1WEI1a0RKUQ?oc=5) |
-| Gavin Newsom Slams ‘Pathetic’ Shutdown Deal as ‘Surrender’ - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOSlBVdFhJM3laQzdyWjU2TmFJaGoya2F6NnFuam5tNThBcTJ6LUpuVGN3QUstbkJ0VG12LUQxajNtU04waUtvT05sZWFHWngzOFJGYWp5SzZCeGNIYUI0UHo2Z3RCSWdsaThQMnhsc1VsekNFSmJrQ1VFZy1XM2tJT3NDcnlxN1pmSzhKbGFR?oc=5) |
+| Group of Senate Dems Joins With GOP to End Shutdown Without Extending Obamacare Funding - Talking Points Memo | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxPU2pGQVFsaXJub09uVGl5b3hsR3lsRjdZSmxXOTlnTHBQd1RFX25ucHFRMy1lR1dxeHNqa1pQOVh1eG00WFlob3NzeG9Rc1dJMWlXMXRsb0RRQXJkWU5DOWdfYUdrTDFGRXN2N0otUVl1amZkbGFTMXZsYUpkTWJzeE9yQll1V2lkQ1lYM2RMcU9tSEN2ZzRFN3V4UWFQRlFTSTBBY085ZFpzUDRWLWotSGh4Ry1HRWJLMGtGaWs2WG41ajZKU01XRWxUZzA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
