@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 20:41:18（北京时间）**
+🕒 更新时间：**2025年11月10日 20:48:13（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Two dead and more than a million displaced after super typhoon Fung-wong slams the Philippines - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPTGdrTUpXN21zWHUxNWRWMGhvdUI5SkptVEFkc0RTanl5a3BGVVlIWlVuUEt2YkZ4WnV4QTdCcWo5Q21vOEkzQ0M5bFpSVWhKaDk0a0k2Wmc2bUlfTm1paV85X0IwNnE5SVNwd2l1VWFNSXEzM1VCMjYtdzc0YkxSNHhDTFVsSFJj?oc=5) |
 | Winter Storm Warning continues for Chicago area as heavy snow falls - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNZXdZU0wxVHh0OGgzcDFWZHQ3elh6cldvRUFaUDJvZEo3NVhFRjZKV2dteFJZTGlHVjFNd1N3d2puQTJjaGU3M1llbWU3ZXNMMnk2QWVzd3JwSktBT0Q5emRzcWFSVnVwWGxIYTZWaWJyeW16aERZVFF4UzNmQ3pmTEx2SkVIRXNJcDlYMlh1QTROZw?oc=5) |
 | Ghislaine Maxwell's alleged prison perks spark Raskin probe into Trump administration - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNSHhIcDQ5emxpQWZNUnhhc0k3TzByQWF5ck9EclhlYmpUTkF3bzYybE9VWlpfRzFtWlczWkxhVzBhOVExWkVGOXcyelI0ZXZGd2JRU1djZzFaTU9VZndHTGsxUlBXaVkwR2V3MzU3TGUwc1RuUDZ4dDhwY2JIUERsVjVGQmlteDVSRmVNSTVDUTVEQWpPZUZta3YzeGJpdHc5LUdxTEpn0gGrAUFVX3lxTFA2NGp4T1l6OXFCWXR1RDB5eXhrbGI3LXJiLUFfVFprRzVZQUtxdDVLSE5lQTFYcHc4RUhVMEVDTDF0c2VWZU1HTTg2NGhNbEhQZlVXbVNVd25tYmM1RG9tc1dmTTlHTUU4c1Z5YnB0RU9BRm1MZ0FKU0hpS3FRTl8ycHNQTXFEUXI4R1g2dGlTckM1R21sMkpRTHNzbW84c09pS0dBU3VHQk9wNA?oc=5) |
+| Syria al-Shara al-Baghdadi Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPeE1aY2ZMWnUzSmhlVWp4UE9lRURrb2VHRXFDQnVJclIxNEVwRHFpZzlPRXlKMVhmaU9BVHdGdTBjbFVETW5RX3RWQUpfUDVTLThwaldzcTZHejB1NGVIYUN6dF9CSEF0eHREQ1Z3UnB5R0kxM05fdHgyRGEtSmZOUE9aZ3FpTV95YTRCcGNYNnF3ZFdSVmRFcTBxWW5mR0NIQUdwY3pNeXZNb3JfZFVz?oc=5) |
 | Legal immigrants face loss of Obamacare help, threatening insurance markets - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPOFg1alpvZkZ3Q3ItT3BiS0RPbzMwT3dJT3FNck5IeFhVMTV3aUdlUDZJNm9sNEVqcGt6Sm40ZEhyRzBXRk5iVVJjVUUtWVdaclBrVjkzc0p6TlViT0hkQ29UZkdBSFJzVzFJSTlpOE9kVlZIUkNRaW15T3dOWjhERlZXY0V0QW5BRlNieVhkWS1PTm1GX2VjOFFHaDdoT2R5VHJNOWJRaktzMTByUTRwbm9JMEp0NmZMVkpNdXJ1OXBXdw?oc=5) |
 | Trump says he'll issue $2,000 tariff dividend to all except 'high-income people' - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNWHRCZjl6MGR4YVlicU5BNTQyTFdsYmdfcFpqcy13UmxKTVMtSzh6X28xeGhBNDNURUI3TXJKVU9SWVkzcDVfcmRUbU9DUUluajRWX2ZTWFZMdGtuRVUxWWJsMzk5ZERGOWl0T0pjb3dyemJJTzYzWU5DWlgzNlJQaVpKamhXOExodW9wNVZQdE56cTlNTHNpYXJ5WEJ6d3V5dUHSAacBQVVfeXFMT19UOF80RE1qa2RGZkVwMWVkT0Z1b205bS1IMVlOeU5fSS0wTVlsWC1FR0pOUDZHU0dWZzZxUFZYejVRQmpQVEk4OFlSRlBzYTBNTDJNSmN1WUszR2tOZmhlQ0h0RTBVclJpVVBMcXRSZTVTeTB2MXhON2FqRUwwVXUyZ0FOZXl5U0Y4aVNBVWtMZkpNa3pXLWhpYVR2NGRTZlpaZlhFTDg?oc=5) |
-| Some UPS and FedEx planes are grounded. What does that mean for holiday shipping? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNSnFpVjVpNVcwMWJGZ3pvWnBCSWxFTVZramJHMmJRMEExNENNSVNhdWVfVVlDemZ3cTVBR3MtMFRvUWxIOXlkbDBrNFVhaTBZRVJfaFdCTFNLQk83MVlYMHltU0tKc2VKSTUwTjh2VkhhakpJZS04VkdsQW5ZanR2VktGTmlfaXlUWHNwTG5B?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
