@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月11日 07:25:00（北京时间）**
+🕒 更新时间：**2025年11月11日 07:32:15（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Trump pardons Rudy Giuliani and others who backed efforts to overturn his 2020 election loss - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQWlNXNllET1pVNXk5dHQ2Tlp0R09ldlhIV3JISVM1ckRFa1JoMTRGTEFqLUZNaEFHRFh3TXRXUExwcWQzS3RlamlCRkphWllza3lUTWIySGlrdzkwN2lUTzhSYjFqUzlmMDlMWF8xN3dBSGJtTVZWQkdwVVhkVG1tSlh6MjlNaHd1WkxzcE5kdUlHNG5EQzBFd2J5dWM5TXpyU1RlTXhLY3R3RVdr?oc=5) |
 | Hemp rule creates turbulence for Senate vote to end shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNWnlQem82VnlpdHY2SGZFVlhKbmlzbXF3cUlmWTJVMXpOWHB4RVBRM3ZDZzMtWTlyVmFFNkNKTnlEV1JROF9KMVdyUmp5bTlTWnhKV3JPTndVVDhWNU9nYWpDbHVIYVY1LVVUNnlKN2w5WUZ5XzlzTXVpRnFaRHdnNnhjUjdibjZXc1VXT2M4bFdEclVuUHY2aGdwZDZ0UG1mYTQtUy1PWFBZV00yNDd3?oc=5) |
 | Bonnie Watson Coleman will not seek re-election - New Jersey Globe | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxPVi1ra3JrT0NGTE12dmdUWUtNeWxCZ2pHTHRSUUs0dVlEenNtMjNsVU1lbDl1RFFiV3VYTUxTakJvZW1fMElXYWo5Nkd4WU1RdmNfVnBuTmctNXJGUnp1UXBTeEZZRm8tT0VQb0VrVkhZUjVEaTc1LXdMdGdtaGJwTmVqc1h5SjFYZW1zQQ?oc=5) |
+| Khanna explains his call for Schumer to be replaced over shutdown deal: "He is not meeting the moment" - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxPYnkwcGJRcXdmd1kwblhHSHZUTnV4RGcyLWFDZjZCRzhHVEhBZlFCVTZzQm02MmpCb3pCbnJ4MUMzWnNDQWhhUHc3b3c5Vmx1aGluR1UwN0dmam1kaXBucjRHbmxaV1V3bGhjQkpNbGdUUTZqdC1xWl90bUViNlFuaXlYMmE1MUxGQ3o0ZGx4RnTSAZYBQVVfeXFMTXVNblpqQlNPcmgtaE53VkM3R1A4YVQwbVRqZGp5NHZYYUxsX2FjR0wwWjN2YVFFV01CV2FfcUpmLWFCekNSS0dYM3NSTFh5S1JsZnRSdzVRb2Y3U2toRHpvXzVWS1ZxR2h1VV9TRm16RlFJcl9odVF6UDNPVC1sNWJsQ29Rek55Rk4zUlBrSnFtZ281UDBR?oc=5) |
 | Arctic air hits much of the US, bringing snow to some areas and very chilly temperatures to Florida - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQVk5XbzRLeVhoMS1XUzRFLUJ2NEJTU3ptWmhpNWtUM1NwdXkxUjV0RlFuNllSTW1JZm1FUFFaMUp0bjgyQjQwODRldmZiZDhfSWhNSHhPYTRVRC15c1NjWDBLTDJJZ2NLVS0zRlJxWk5DaUdqakpadVNvdHBTc25PQXNuaE1vZS1lVnlORHJBUQ?oc=5) |
 | Democrat’s Win May Upend a Conservative Push in Virginia Universities - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQRVFNMnQtbVV6NVlOazgzRzRkTHJmdU5wcGxFUy1yMHBjTUVYdlh1cGxocDFhbDQzQTBVWEZxQi13UEM0VVFSOUJBeFhvbkJHeHhoSmdya1hFNDlhNnNVd2Y5c1NIeC16T09SS3pfRTZEOEdld1FOa2dyRzFvYXozdkcyYkxoX1hoRGRZaVFvVGdCdmxyNUh4VTFncmZXdw?oc=5) |
-| Mamdani picks his top 2 City Hall deputies - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxORXU4aUxmdzZNXzhOYlhQc0VwdHlFc25WdnpjLThld3lPdFBZZWxOWlhGNzRTV0F0bi0yV0RRLWM4S1lCVjJvdlhFWnJWQ3Rvb2FPQnVBeXlyWmR6Qnp6WUN6dGZVRC1ZOVFBeERIZ3lQNmVrc1M2MGlySmJveFdOZU92LUdEYklhd19NeDE2V3ludnN1aEJWSkNn?oc=5) |
-| Trump threatens to sue BBC over edited speech that sparked resignations by news bosses - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPTjJTZGZBQWRoWmdicmJSUndMY1BWRjVDOFpFanh2MXQ2OXF4Vks3TmlTbUFfNk8yYmtJV1YydFVXblVVby1HaXVZWTFsNVl5am5TLVdmbUUtSXIzajZ2VXJPdm5hUE5sU3A3OG9MTXlLMVdpSEZ5aXlDdW96Yll2QjMycTFKZ2h0NTk5ZloxblY4YmMxTjJtcQ?oc=5) |
+| Trump threatens to sue BBC as broadcaster faces ‘fight for its survival’ - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxNdUY3UnRaZWZLaGFzY0JHOXZTR3V3Y2VfdkxSaG1oSndDUVZGU2tkSi1LRlJFQkhWR3dSWFBQZW9WV1FkNjhVcmFsUkJ3N05QdzdQOFZ4SFJIWFBndHp3Z0NFSzJqU01kVTFjRjNmanJtRGhrY2h1cXZrd2hCRkwwcTgwZzRrQQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
