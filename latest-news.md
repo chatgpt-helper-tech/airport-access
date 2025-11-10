@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 18:56:22（北京时间）**
+🕒 更新时间：**2025年11月10日 19:00:22（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Senators take first step to end US government shutdown - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1CRHFSVU1WLUw4TlhfQ1hIdzNBUEhXWmxJSGlwdFVDU09VSzYyLWtJQzA4NEo2UUt6NDdBLTNtNE9zVzN3aWtyUlJVam14V1hscV9tVWwtaF95dEc2THI5d2ZuTUt1c29sSFZVZWVMVm8?oc=5) |
+| Senate advances funding bill to end longest US government shutdown in history - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNeTlOWnpRSU5PMWcxTWpLUWJUTXVwLXZoMlpsc2Z1eVdab2xQa1doMEFIdUxiaWpJWjJ3ZFBUOU5BbHhIXzY5QzhiRnZueE1lVjdYM3otcXRXV0wxMzJjR3FtQWVYUXVUUlJ5SW9pc3Z1SmJXNFNnZXpvM25DNnlERW0yTDFtUld6LW13bHdoWnhXSC1wdGRNNHRaZkcxQQ?oc=5) |
 | SNAP benefits: Appeals court again rejects Trump admin bid to halt full payment order - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxOelNoaWhWeDRGWVNSdGNxTHFSZkwtaTR0MGw2Nkd4OGxWZXh1d1BkajhCZnMyRUVHSWdUamQ1dG03WVNrWkhrSVlFSDlHUUp2ZjFlRXV4SGxSQU9kTnE0OFYzTmN5QmRyRk10dFppNkc1ckZzaW5mYWNwWjR2U2VsNXVKcTlhYUZPVEt5bS12TUY3Y2Yw0gGaAUFVX3lxTFBTcEV1dFF0RjFZS0toQU53aEhNbm5ybWNia2J1OFRueVBOcFVmQWZxdjRNLXE5dWIzTjJERkFiSG00NmttTUZ6ZFh6RmxBVHNialJYb3VjeUlPUHFBclRtV040SFlxcjdfdFExVWoyOG1GSEI2TkVaa3hNcFJOUXNQMDUtSWk2Qm5PcFdDekRlclNvZ255S2g2ZXc?oc=5) |
 | BBC leaders quit after backlash over edit of Trump's Jan. 6 speech in documentary - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNeFRFQ1BGVUJKNzJHN1F0VVlaM0RNUW56cGo0eFFqTmNYdFUzcC1BV0N6dFloZnJnQktFYzN4dU1CR2U4NnJRMWFjcHFoSm5BcFVabnRZdWxJUXctRURjMWVuS0NoNFdJRXJ2bU82NWRycGpCRFZEQTlPeG9sd2FpZ1B3?oc=5) |
 | Trump Renews Attacks on Obamacare in New Push Over Government Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOTC0wQjAwWXhzYW9wbDNRMDZRajdJUkNaVkx4dFU3SmxreXVIQ2E2S294NTZndHo0cUtsdENtWlBTdmg1QlhOTlhjWmpXQ1ZGdTBRYmJ0Z2JxbDNPTG1nMTItTEx3Nng2RDlzdHBPR2g5dkdqblJ6N1IxaURzQXF5SFR3?oc=5) |
