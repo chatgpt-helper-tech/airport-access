@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 13:56:06（北京时间）**
+🕒 更新时间：**2025年11月10日 14:00:38（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Senators take first step toward reopening the government after historic shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNbFc5UU51UF9oWW56S2hzOHo3eWpQTDNDaFc4VFotY1o5dm9JZ2d5WmxhOXZfd1ZJWnZJN1NYMUlLd2hXTHFNMF9KdXlxOFRNR25CM2xma05kQWZ0LWRWNGJwaFl0M0dvUVp5Y1NqaXdubEVMWGZ3c29mRUU5cUpkYmtqcmtldTBL?oc=5) |
 | BBC leaders quit after backlash over edit of Trump's Jan. 6 speech in documentary - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNeFRFQ1BGVUJKNzJHN1F0VVlaM0RNUW56cGo0eFFqTmNYdFUzcC1BV0N6dFloZnJnQktFYzN4dU1CR2U4NnJRMWFjcHFoSm5BcFVabnRZdWxJUXctRURjMWVuS0NoNFdJRXJ2bU82NWRycGpCRFZEQTlPeG9sd2FpZ1B3?oc=5) |
-| Trump administration orders states to pause paying full SNAP benefits - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNWEdGVXhyR2lYRWw0dXo2RnQtOFpJZmJ4ZU5aS0ZRWHF0UXhMdzlkSlBsZndVaExzaG1CamJOTC0xRGUyTG41QjQ3YWo1MkV6SUJfWF9XMHg5cU1GX3pUWUtuMGxVRERYYTJ3WXltckxRLUpxUE84TW5lNTJuVzlUbUxpOGRrdncwSm1v?oc=5) |
+| Trump Officials Push States to ‘Undo’ Work to Send Full SNAP Benefits - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOdGJXYy14cjRCVnN5Q0RxeXdUNHAwU3EySVlORE4xUjdodjJrRi13YUpjQ0hXUndfQ1R5ZUw3OTYxbEh3UHU3amptc2JHOGhHZk45UFV1Qk5Ha1U0YzlNMzJSWEtFLTdVTjRfc3RwZ2o5NF9yZkZaMWx5aXRCSkwybm1fb1J3elNTSEo0UDVYX3dDNUd1aDdIN19wNE1VMGpNSEt3Z2tn?oc=5) |
 | Some UPS and FedEx planes are grounded. What does that mean for holiday shipping? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNSnFpVjVpNVcwMWJGZ3pvWnBCSWxFTVZramJHMmJRMEExNENNSVNhdWVfVVlDemZ3cTVBR3MtMFRvUWxIOXlkbDBrNFVhaTBZRVJfaFdCTFNLQk83MVlYMHltU0tKc2VKSTUwTjh2VkhhakpJZS04VkdsQW5ZanR2VktGTmlfaXlUWHNwTG5B?oc=5) |
 | Trump says he'll issue $2,000 tariff dividend to all except 'high-income people' - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNWHRCZjl6MGR4YVlicU5BNTQyTFdsYmdfcFpqcy13UmxKTVMtSzh6X28xeGhBNDNURUI3TXJKVU9SWVkzcDVfcmRUbU9DUUluajRWX2ZTWFZMdGtuRVUxWWJsMzk5ZERGOWl0T0pjb3dyemJJTzYzWU5DWlgzNlJQaVpKamhXOExodW9wNVZQdE56cTlNTHNpYXJ5WEJ6d3V5dUHSAacBQVVfeXFMT19UOF80RE1qa2RGZkVwMWVkT0Z1b205bS1IMVlOeU5fSS0wTVlsWC1FR0pOUDZHU0dWZzZxUFZYejVRQmpQVEk4OFlSRlBzYTBNTDJNSmN1WUszR2tOZmhlQ0h0RTBVclJpVVBMcXRSZTVTeTB2MXhON2FqRUwwVXUyZ0FOZXl5U0Y4aVNBVWtMZkpNa3pXLWhpYVR2NGRTZlpaZlhFTDg?oc=5) |
 | What is Trump’s proposal to pay Americans directly for health care costs? - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPcnA5Mk9HdnFobkVVZHBvcWlOR0d6QllHZjFUSG5KQzBiTmJrYVFZa01yVGNCUXh3VjhVTXRWUXZINXBtd1JUdDhELUxUc3FVc1lBc2F0VEo2V3hKQXZIeVhBUUxSeENKUUlHTFFGbWpYenZaMkV2XzhhQU9UcEcwVUpSdm9OZw?oc=5) |
