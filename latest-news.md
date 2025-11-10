@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月11日 04:57:59（北京时间）**
+🕒 更新时间：**2025年11月11日 05:00:38（北京时间）**
 
 ---
 
@@ -32,7 +32,7 @@
 | ‘Complete betrayal’: 2026 Democrats slam shutdown deal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxNSGYzUWpacVA2R0VybjdMX05Ra0pFSTJzYnktdmpDR1JTdUlpUzRBcm1NSW13X000dnVra1RYcHJTVGw4cnd3QldNbFNjMkFvdWxUZDRBb0xOTk5KWExMenlwaG1vdzg4WUxzTEdFMHc2VGFNeGZjNHE0dVVPenRqU2RRR19aWlBHZ1BZQ18xMURsU2k1Vjl1eA?oc=5) |
 | Arctic air hits much of the US, bringing snow to some areas and very chilly temperatures to Florida - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQVk5XbzRLeVhoMS1XUzRFLUJ2NEJTU3ptWmhpNWtUM1NwdXkxUjV0RlFuNllSTW1JZm1FUFFaMUp0bjgyQjQwODRldmZiZDhfSWhNSHhPYTRVRC15c1NjWDBLTDJJZ2NLVS0zRlJxWk5DaUdqakpadVNvdHBTc25PQXNuaE1vZS1lVnlORHJBUQ?oc=5) |
 | Mayor-elect Zohran Mamdani picks Bill de Blasio veteran for top deputy - Gothamist | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxNVkhrZ3d6WWVUbXo4dDlZV3VuMHMwaC14cjRWVmJjbGJzQk9BUEtnTEE0SkxpeGViWnM5dy03Y0xuaFVJanFvaEJNLXgwbTRqRUo3QlVSZ0dsZUFZZ01RZXVEWWppTkZuY0VLRUJDNWFlN2JoT1cwa05OenpYcHhVaGZVZWRDM0lkQWxVNjg3MF95YkNlaVI3OVBwbnlzdw?oc=5) |
-| Government shutdown: House will vote on Senate deal ASAP, Speaker Johnson says - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQa2FwY3B6aUQ5ZmNDdUttUTZZX0g5T0hpY2tiSlhua3lEUW5yODMtTFppc3IzS1REUlZpTXVBUm5QbUlDSFBYUGRxaVlRTWs2bWpEQ0x1NTVyU1lseEZFc2I2VVY4UTNQUjI1UVkxQ2RFZVJpaVBwdUtoU3I1NVNxZGdPY3ZRNlhGb2VrQ0NXRdIBlAFBVV95cUxPb01FSlJOTnZPTnJxa0tncXJwSlZoQXpENEZKdDlJTjV5dmpvLU1BRF9Qd1puUmhnY3RGLTkyRGROdEE5R0J4WER4VmpkaFFBczdxYTExektaV1BqYVZwb3FDMExoX0kxai1fbHo5RFdITnZrT3pOcDRkN3lGNXVtMkt3em95aC1iblNNSThwVG1iQ2VS?oc=5) |
+| Government shutdown updates: Johnson commits to House vote on Senate funding deal - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOOFVUVzJtcUNQYVhEcWRWcG9odVRtQnFOTW5ncko5UUloTGlQSnlXRTR3NnJiZDNaMW8tYUU4d040UkRpYjdmT1Q0Tm91VTBNSTh2dVFvU2VYdGVwa1BFSndUMWs0YWFDaVk2d0I5VVJUR0JTaldjNnk4b1dnRmhsOE5GVUZvRXJLY1NSMWxiTdIBlAFBVV95cUxPNGhudG9kUXNwczNHbTYwS0FQdXpWSENja1pVdFN2Y0pZbUxzeHNtVVNsQ3ExVkZYd01jRVRCOFBjOHJKbmYxM2pLMlRHSmZiVmxtZ1c4TDNaQnpZMTlMS1dLUE1vTVB6YkxYLTcwejFlamJRVzFVWXhaRVl1VmxVUXRQRmtRZHFZeHU3RVRrQUJLc0NH?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
