@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 17:24:09（北京时间）**
+🕒 更新时间：**2025年11月10日 17:32:39（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Trump Renews Attacks on Obamacare in New Push Over Government Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOTC0wQjAwWXhzYW9wbDNRMDZRajdJUkNaVkx4dFU3SmxreXVIQ2E2S294NTZndHo0cUtsdENtWlBTdmg1QlhOTlhjWmpXQ1ZGdTBRYmJ0Z2JxbDNPTG1nMTItTEx3Nng2RDlzdHBPR2g5dkdqblJ6N1IxaURzQXF5SFR3?oc=5) |
 | Trump pardons Rudy Giuliani, other key figures allegedly involved in efforts to overturn the 2020 election - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNcWxkME50WER1emFJTjdGMlhjWkZHdk1BWkhuNTBOVlFTSlB5elhUNHdEYmVIaFo5ZkhtMlpfZnB2UDYtWkxtbjhlV0xOUkZKMVB6alRnVDBsMkdEdi1LTWVUVUZWMXJZZ3BqZ1JXS3FZQmFvUWRmTkIxT1p1d09xcG5zdnBnZXQ5eFRNUGZFTGthMHRCNC1lc2d0ZnNpN3Z3dklSQU5BemdUOGPSAbABQVVfeXFMTW1qR2k3RGVZczUtUzJMMXl1TEZzTHd3SEo2Q3BhcVVYUkFXaFhpU2I3ZGdrenJOOENGSEUwVms1RHBCTjB3b2NaZjlCZWpUcWJydGJRQkg5RG14eDJCWHZFTzVkWThUX3BUU2dodmZEaGoxTzZQbXBINHRxN3pMTTY5T25keEhiclJPbWtJTHpWaEdvTHFCYTQ4U3M5cjBjd1BybE1uNVQzSnVJQXZRejg?oc=5) |
 | Some UPS and FedEx planes are grounded. What does that mean for holiday shipping? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNSnFpVjVpNVcwMWJGZ3pvWnBCSWxFTVZramJHMmJRMEExNENNSVNhdWVfVVlDemZ3cTVBR3MtMFRvUWxIOXlkbDBrNFVhaTBZRVJfaFdCTFNLQk83MVlYMHltU0tKc2VKSTUwTjh2VkhhakpJZS04VkdsQW5ZanR2VktGTmlfaXlUWHNwTG5B?oc=5) |
-| What to know about Trump’s $2K tariff check proposal - The Hill | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxOZFprWXY2ZV9zeHBaWVR2OVlxbmY2cXlDbGNlaWNUdHBPQkJXSzJfRU9GMEJuMllGTHh1cklRUW9QVl9ESVVtVGt5VzQ2SFlqa2thYnVTdjZ5NWhVbExRNHhOTDlEMWM0dXM4SElxR1RPQ2Q0Z0l6OUswSk1WY19EMmFkYlhmekVYaUpIYmtVbm5SVnRjSHVwU0F2Y1JmZ9IBowFBVV95cUxPZU9fdEZiSmgzSzVWVUpFREREWXZZRF9LV3Qzcmh3UTRYelFtUFRxalRJTktwNFJkWVdKZllFUFJVZWJhWWZ6a3JNU3l0R21ZT3Bxc0xfUHBWaDhQUUwwZUlUd3BEVjNVNW52ZUZQeWRBNS1Jc2NJRE1uak4wVDN3M0NENWhxVTF0VzUtUDFmSEtHVHpmLTQ4Y2lCLTZTaGVjOG1V?oc=5) |
+| Trump floats using tariff revenue to send $2,000 checks to Americans. Here's how that could hurt people in the long run. - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNa0ZEcVpaOEZaYks1QmF4VG5uaFlNSFlwckRSRlloLWNzT1Bjd1ZUS3I2a0J2bXdUUXdndnJaSFN6MmVuWmlIZEQwbUhDUVJLVEJOVEU1YkU2aTRvLXhET2VYbGtISU5DQ0NnYUpjZTZQdWQ2ZWNGajRTVlhoVGpseVJKRmp1WEI1a0RKUQ?oc=5) |
 | Gavin Newsom Slams ‘Pathetic’ Shutdown Deal as ‘Surrender’ - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOSlBVdFhJM3laQzdyWjU2TmFJaGoya2F6NnFuam5tNThBcTJ6LUpuVGN3QUstbkJ0VG12LUQxajNtU04waUtvT05sZWFHWngzOFJGYWp5SzZCeGNIYUI0UHo2Z3RCSWdsaThQMnhsc1VsekNFSmJrQ1VFZy1XM2tJT3NDcnlxN1pmSzhKbGFR?oc=5) |
-| Maryland Gov. Wes Moore says "we're not going to sit on our hands because Donald Trump tells us to" on redistricting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOamIxcGVoWTJRQ2o2RE13aXl0Mzc5d0hjcHlUSGNOUGthSGNjV3NZUHlZcDhKN0pWUEt6TW4yNFJXRW1JMFpuVGlGRzFVc3d4Ymg5Yi1BSjluaDl4YTZNUDJkODZBRVp5MWhKMnprbTAwNjFGM0VQNzFHZE8tTHZEUnRpZVbSAYoBQVVfeXFMUERpSUZvM2VJMGs0RVY3YmE5a21WeG8xaTBJOUtTXzAzQzljNE5SSmtJMjAtTTRaR2JrOEkzTXJMaEtEdXFzZUFTRnZ4Q1l5MGRNNXpfNHBxTDRMSEViZ2FwZWhwSkVxcUpEaEkyN0pNbmtHZDJTWHdIR3NCREI3VXVpbDRGMFBwd1l3?oc=5) |
+| Coachella Valley Republicans fear alienation after Tuesday election - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPa1pLN3ZNU3VmU0lvOWNoQno3X1BsLW13VGJGNVRMZzhLbEV6VFY1b2t0cHRXWi1qQ0c0SWZ4VXp1Vlo5dFpaZ2hGVHpFc2dXckdOaW54dmQ4SzZ1NHBKZ3RCV0FGa1NhOWMtZUVUejQtVXJnTXZvcElURldwYlpMX3hfNTRoT1RpUUxPQ2ZMUm41bWpWWEJuU243VHBMQWFiZDFvVE1R?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
