@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 13:25:13（北京时间）**
+🕒 更新时间：**2025年11月10日 13:32:07（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| US senators advance bill to end record government shutdown - Al Jazeera | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxQN09qN3p3d0J2SFBpWWliTG5nRUdoeEpLUVdDVEQwcjBiQlQtb3dxUGoyZHJsSzZrR3lxZlJuU2cxWUw2SVJMcTJIVm5PMDF2QV9ZZGVXcGRreG5BYmNjX3BZbnhUOW11MHA2SjB2N24yWFB6ejAxa0R0T050MmxJejBLSmpGcFNGVEpCRjZRX3VMZmsya2UxeEs0UUNFaU14VGfSAacBQVVfeXFMT2NhaThvb01ra0tDdjlRY0VpTk1wTmY2VEI3TmNZOTFGYlZUM2NmMWpVSUk5eU5MU1luRzcwUDR5TTF1MEhEb211UnV0VzAyN1BJMjU4ZUQ4d3V2clEzV0hZUWh6VlBPSGZfaG5IYWhYZ01WV1pZRVhiWEpjcnczdHlDbTZrOUlfVE9sTHlUTU1Ka1F5TS0yUmh6WXAyZEJaaWpYMVJKY0U?oc=5) |
+| US senators take first step to end government shutdown - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1CRHFSVU1WLUw4TlhfQ1hIdzNBUEhXWmxJSGlwdFVDU09VSzYyLWtJQzA4NEo2UUt6NDdBLTNtNE9zVzN3aWtyUlJVam14V1hscV9tVWwtaF95dEc2THI5d2ZuTUt1c29sSFZVZWVMVm8?oc=5) |
 | Top BBC bosses resign after criticism of the broadcaster’s editing of a Trump speech - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPQ3VhUkJZeHBHbXZDRXJtdzNYRmNtR1p5QTBHSnFBVzB6ZnJfelF2blQtdW12VWRSNndtdXBHV1FuTy11NERWWk1tQlVrbzFXcy1OampYS0ktckVyTmJLeHhGUlVUN2l2YVdhdHQ0XzhER2FoWXVqd1dUemNKMlU1VHdKWmRUcDI3QzdKR0dfUW1oOTVqT0RvaGdrQkdHaEtQLTJJ?oc=5) |
 | Trump admin order to 'immediately undo' full SNAP benefits leaves states scrambling - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxOa1RFYW5iaHozVHdlZHZ6RXAtQXRTNFYwbXBSb2pTQTI1Y1NzUWdKM3ZrNmE5cVl0R1VsdzE3ajZtZDNYWnNWMDJMSWZmV3ZTSmY2dWhsMThFTVIyQzVQVWlMTG81WTdqRDZSdmN1QlRTdWNQaEx3ekFUMTV1OFg1dFJfN2ZTbWtGanc?oc=5) |
 | Trump floats using tariff revenue to send $2,000 checks to Americans. Here's how that could hurt people in the long run. - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNa0ZEcVpaOEZaYks1QmF4VG5uaFlNSFlwckRSRlloLWNzT1Bjd1ZUS3I2a0J2bXdUUXdndnJaSFN6MmVuWmlIZEQwbUhDUVJLVEJOVEU1YkU2aTRvLXhET2VYbGtISU5DQ0NnYUpjZTZQdWQ2ZWNGajRTVlhoVGpseVJKRmp1WEI1a0RKUQ?oc=5) |
-| What is Trump’s proposal to pay Americans directly for health care costs? - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPcnA5Mk9HdnFobkVVZHBvcWlOR0d6QllHZjFUSG5KQzBiTmJrYVFZa01yVGNCUXh3VjhVTXRWUXZINXBtd1JUdDhELUxUc3FVc1lBc2F0VEo2V3hKQXZIeVhBUUxSeENKUUlHTFFGbWpYenZaMkV2XzhhQU9UcEcwVUpSdm9OZw?oc=5) |
+| One photo that captures tenderness amid chaos in the Philippines as Typhoon Fung-wong hits - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOcE1TQnBlQ0h4UHY4b2h5bmU0XzUwdmJZdE9iWHZKalpKZUlnR0pUVC1SdjlOYU9EQ01rV1pTZ2dTM09icHhsSzg0ai1WbXpPMGMzYWk2UGY2QXo0Z0w1bnhyZ2QyVEJBeGkyNTIyUGJabEx4U3N0TTJlMXloRFV4SWoxUE56SnVaS0txTnZXd0tjVEJXdUV2LTR2bDVTWTF5am45SWtB?oc=5) |
 | Some UPS and FedEx planes are grounded. What does that mean for holiday shipping? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNSnFpVjVpNVcwMWJGZ3pvWnBCSWxFTVZramJHMmJRMEExNENNSVNhdWVfVVlDemZ3cTVBR3MtMFRvUWxIOXlkbDBrNFVhaTBZRVJfaFdCTFNLQk83MVlYMHltU0tKc2VKSTUwTjh2VkhhakpJZS04VkdsQW5ZanR2VktGTmlfaXlUWHNwTG5B?oc=5) |
 | US airlines’ daily cancellations exceed 2,700 as shutdown impact extends - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxOaG5IVkZGRnYzZG1uZGc5SFZ5bFE2V1VPdmo5cWdnUHFlSWNUdGpFTWVQX1dqMURuTHJLa3IzSlowbV9PZkJkaVV6RXc3dkc0cExZTVpYeHBQVlVGcUlITjFKdVVLRE5QYklIbjktSDhjR19pdnE0ZXBKd0F6Z2p2VXQ0THJhRFd6bXZ5cmc2V2xLVGRYMTVwT3Z6Z21DRy10Nnc?oc=5) |
 | 'Ferocious' Winter Storm Could Drop 8 Inches Of Snow Overnight Sunday, Weather Service Says - Block Club Chicago | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxQRnk0aFVzQWtUWTZ2MnRaMXpYdDg0VkRKRUZPdlFlMGxxUE9JaGcxaWVidVhoemRhR3Qycm05SndRbHk1MVRFOXRIVkI3ZHpNdVpTZ1ZBbS11TXRNSWJfUFU4Y0VLZDc1X1F4RWg3S0JjTm16LW9KSUVCMHhwMzRITnctM3VpQUluTXY0NEtJOGlvMWNPZEk4MGlJNmxZN3N5ejhWNzAzMllBUE5EdkpRbThWd0lwOXE3dTMzakE0QmlSV3h6TXJtRy1rTUJXVHp3NmpqVGtvVQ?oc=5) |
+| What is Trump’s proposal to pay Americans directly for health care costs? - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPcnA5Mk9HdnFobkVVZHBvcWlOR0d6QllHZjFUSG5KQzBiTmJrYVFZa01yVGNCUXh3VjhVTXRWUXZINXBtd1JUdDhELUxUc3FVc1lBc2F0VEo2V3hKQXZIeVhBUUxSeENKUUlHTFFGbWpYenZaMkV2XzhhQU9UcEcwVUpSdm9OZw?oc=5) |
 | Abigail Spanberger says Democrats' election wins aren't a green light to extend shutdown - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPQW9QREJBckJUUFVhQmFPdm9xYVlKNjY2bUNkRG54YklJcnFkVG5Rd1BzN0xzUjdNZkpUaDFXZUJoTEtnSlV0OGx4Si1KS1hNX0NyRlY0ZHJESGVnN2pjT3NmTjVDTXFJSzdiWk1Rb3VicEJQVV9NSFNHTVcxbGxGVnZpR1hrWW01U0lJYjZYc2pUVEJRaUo3a3JZamJCWHpJanFkYmxyQThvQ3ZwWTNWVUpHbGxYOTk3OGpfVHVZOGVqZ9IBVkFVX3lxTE91OV9iVVMzNEFQVE10T1JoU1dTRzlEOGVMbS13bWU5UW1fcllGZnZWNVc5U3UtVGV1bHI3ZUhiWHI0a212VTctZ3FXdjVIdFpXRFNXckxn?oc=5) |
-| Israel receives remains of Hadar Goldin, an Israeli soldier who was killed in Gaza in 2014 - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTE9zRHd0d0FXQjYySGg0ODZRMkI5c1dPU2JMLUc1bFl0RTc3TkgxakJ6Ry1rOFZsMTl5Z25HRGFwWlFuMURwWWtvUnVmSTNGVV8teDNGWnNPUnFrX3ZhZWF3bDMzZmFQRFdWSlk4ODM0MXAxNnhZLVQ40gF8QVVfeXFMTWgwOFJOSHRnS202aW9XSkJQM0EtVFRzWXRSc01mclhKdXItTEJJbTZ0b1ZUMUpWZlQ2MFE1LWtyVEtSSXBveXY2X19WYzJkU1BwdGpZdHd5TEhYU3NYZnZ0eUdPTENWWjF5bmRybWxUWExKbXRyUlh5S055Uw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
