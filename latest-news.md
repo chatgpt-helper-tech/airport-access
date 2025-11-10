@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月11日 04:49:49（北京时间）**
+🕒 更新时间：**2025年11月11日 04:57:59（北京时间）**
 
 ---
 
@@ -25,7 +25,7 @@
 |--------|-------------|
 | Which Senators Broke Ranks With Democrats to Advance the GOP Plan to End the Government Shutdown? - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQMTMxWXpCTFhlWXR5dDdLVXJsdVB3ZXJybTFvSFdPal95RUowOVhuQmpPY0N1aXdyNWZGOGJEMC1BTVZkR2djcFpCOFNzSnV6M2JsMW9WVE5rMXdlMlRpQ3p3aWVWZjF4dnNJN3JGMjBPVVJGcUIycXlNOWZLZFJ0VWdrR3ZZT25ielFr?oc=5) |
 | US Supreme Court rejects bid to overturn same-sex marriage right - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPT3hDT3Uzd2tJQ19SMFFCSzRNYWRZZElOUjQyV19paXE5M29YbU5XTlAwZVpKamZPVjZKWXFLQm8wN0l1alhBdkhzbkRkUmZ4cTlxMUtnZUNnMEhYd1lETDhZaWl4LUNwZGZGRllRNnFEMWNhNmUxcno5NmtrX3h1d1E2TEx2a1FWUmV0eUZWRDJtdHpGRVc3ZkFqenNDYzd6Q1JuQ3ZR?oc=5) |
-| ‘REPORT TO WORK IMMEDIATELY’: Trump threatens to replace absent air traffic controllers with ‘true Patriots’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxPTXRCZ28wMlJrdDZZdUdTR2FweldtUXVrS2hESngzdEYtUG1xdnVNWkpvTnFFUEJTWVU4QTNzMktHcFJfdG5yZFR0XzNYOTAtaDRKZ3N2OXdsZTJObUpPMVRYekI5dHZpR2hXSkg4Y3VXWF9oNTdsdkRwbzVJdEh6Um5uZ3NqcDdqYzV1Ykh4NlAzLTdjcDV4QnE3dFUyQQ?oc=5) |
+| Even after the government shutdown ends, U.S. flight cancellations are expected to drag on - PBS | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxON3ZwZWNnZUJuWXR0a0laU2NyT3RBY0xQeU9fUVhxUV9PaDlXa2haaDVXMzBPWmZxeE93djdHbENnTU15NVpfVnhxU3FETHp0UC1HQ2liYi1zQzJNR3VfNlFsbzF1Ujh3U2poRk1sQVR5RkcwdUd0ajZhYzBsMk5XcXFHQThOMnNWVEdJRWIwQ1M5X2h4djlidm1RanVjU25Ydm1kMjVEUEtxQnd0T1RuOUlDUk4yczJ4dHhxWFB6QVo4UQ?oc=5) |
 | Trump pardons Rudy Giuliani and others who backed efforts to overturn his 2020 election loss - AP News | [阅读全文](https://news.google.com/rss/articles/CBMirAFBVV95cUxQWlNXNllET1pVNXk5dHQ2Tlp0R09ldlhIV3JISVM1ckRFa1JoMTRGTEFqLUZNaEFHRFh3TXRXUExwcWQzS3RlamlCRkphWllza3lUTWIySGlrdzkwN2lUTzhSYjFqUzlmMDlMWF8xN3dBSGJtTVZWQkdwVVhkVG1tSlh6MjlNaHd1WkxzcE5kdUlHNG5EQzBFd2J5dWM5TXpyU1RlTXhLY3R3RVdr?oc=5) |
 | Trump administration still asking Supreme Court to block SNAP funding order - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOMWZTYnd6V3RPcUl3cDVoNExhNExDelRoZmFVRkpnTXV3eUJ1WVBWcDhiQklhTm9RX25pcVBleG9MOF9tTmVHOXlvbktOOWpMUlBtRWRXTndRZXAtU2VPNWtjYjRWN2NYdnJmWGlTNDJPTUE4dndRNHJkTlBfMEpYWE1zSFA3aE5pU2hnbzE0VE5sbkVFMTQwMlNGc9IBoAFBVV95cUxPNWo1bkhaUzZudUNFZk1BSUw5bVZDaEVtUDlISjFIY2xFN0p3SEowS3hsXzFaaldLckt6NFlXaVJpd3MxblJpb3EtV0VfaXI5OUM2YXVkV1NGcGVTVGZhLWthTjNwRGhaZVN3OWZZeTNQRk1LbFhZeXZlTGpnaUhSekk4NUlTTm5oRlRSSzJHUEdrVUcyLWk5MnFoSkE0THJY?oc=5) |
 | Supreme Court takes up major elections dispute over counting of late-arriving mail ballots - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxObTIzNy11UmtQazlWSUtKSXBlSjZmVkw1cFdUbUlOWVUza3c5cldNNDQyRENsNEMwT2x1YkZCelVzdDB2WE90LW1xU05OVmoyMkR2empweU1aNldGTzEzNDFNREx2TFo0TjNYa05ORFFlU0NPd1N5Y0c2Nm9zQWdyVTEzUUNibTIyeTRN0gGQAUFVX3lxTE95ajJrQXV2MUlLYTNJMExDT0JudExqdHdYQ1pYRXpYc09kcGpJUkdvWUxzdG5ENEJHMTUwQ2hILW5xVlVxbVBIVldOdGlDenFtelh0ajlyQ2VfZnp2N1hiVjlINi1UMzNvNFJGeHR0UlJKTFQzQndWS3VRUnBMMGtHWVpiZVNsRVZGbnc0SUt2cQ?oc=5) |
