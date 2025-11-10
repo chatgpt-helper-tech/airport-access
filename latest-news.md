@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 20:01:54（北京时间）**
+🕒 更新时间：**2025年11月10日 20:08:27（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Two dead and more than a million displaced after super typhoon Fung-wong slams the Philippines - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPTGdrTUpXN21zWHUxNWRWMGhvdUI5SkptVEFkc0RTanl5a3BGVVlIWlVuUEt2YkZ4WnV4QTdCcWo5Q21vOEkzQ0M5bFpSVWhKaDk0a0k2Wmc2bUlfTm1paV85X0IwNnE5SVNwd2l1VWFNSXEzM1VCMjYtdzc0YkxSNHhDTFVsSFJj?oc=5) |
 | Ghislaine Maxwell's alleged prison perks spark Raskin probe into Trump administration - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNSHhIcDQ5emxpQWZNUnhhc0k3TzByQWF5ck9EclhlYmpUTkF3bzYybE9VWlpfRzFtWlczWkxhVzBhOVExWkVGOXcyelI0ZXZGd2JRU1djZzFaTU9VZndHTGsxUlBXaVkwR2V3MzU3TGUwc1RuUDZ4dDhwY2JIUERsVjVGQmlteDVSRmVNSTVDUTVEQWpPZUZta3YzeGJpdHc5LUdxTEpn0gGrAUFVX3lxTFA2NGp4T1l6OXFCWXR1RDB5eXhrbGI3LXJiLUFfVFprRzVZQUtxdDVLSE5lQTFYcHc4RUhVMEVDTDF0c2VWZU1HTTg2NGhNbEhQZlVXbVNVd25tYmM1RG9tc1dmTTlHTUU4c1Z5YnB0RU9BRm1MZ0FKU0hpS3FRTl8ycHNQTXFEUXI4R1g2dGlTckM1R21sMkpRTHNzbW84c09pS0dBU3VHQk9wNA?oc=5) |
 | Legal immigrants face loss of Obamacare help, threatening insurance markets - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPOFg1alpvZkZ3Q3ItT3BiS0RPbzMwT3dJT3FNck5IeFhVMTV3aUdlUDZJNm9sNEVqcGt6Sm40ZEhyRzBXRk5iVVJjVUUtWVdaclBrVjkzc0p6TlViT0hkQ29UZkdBSFJzVzFJSTlpOE9kVlZIUkNRaW15T3dOWjhERlZXY0V0QW5BRlNieVhkWS1PTm1GX2VjOFFHaDdoT2R5VHJNOWJRaktzMTByUTRwbm9JMEp0NmZMVkpNdXJ1OXBXdw?oc=5) |
-| Trump floats using tariff revenue to send $2,000 checks to Americans. Here's how that could hurt people in the long run. - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNa0ZEcVpaOEZaYks1QmF4VG5uaFlNSFlwckRSRlloLWNzT1Bjd1ZUS3I2a0J2bXdUUXdndnJaSFN6MmVuWmlIZEQwbUhDUVJLVEJOVEU1YkU2aTRvLXhET2VYbGtISU5DQ0NnYUpjZTZQdWQ2ZWNGajRTVlhoVGpseVJKRmp1WEI1a0RKUQ?oc=5) |
+| Trump says Americans will receive $2,000 tariff dividend - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxNcVdsTnMxOXlOeElMVVZsYTZINHlYOEQzbVJUOFRtYVdLZkVzZzdZX2pSaTZUZ3BxSEstMjMyemRuejVvVm9PQlRndElBOG9tSnBrVmNwWXZRLWI2RGQ3NEk4OEJoX3FnVVFBNENLZzg4OWFoSTZ0ZHZTOXlnNmdWLWZxYTN6UVFZbTdLSmtQWGlIR290cVZrWWJOUWVMV01hRWZDeVN3Q0FTVEN4R1E?oc=5) |
 | Winter Storm Warning continues for Chicago area as heavy snow falls - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikgFBVV95cUxNZXdZU0wxVHh0OGgzcDFWZHQ3elh6cldvRUFaUDJvZEo3NVhFRjZKV2dteFJZTGlHVjFNd1N3d2puQTJjaGU3M1llbWU3ZXNMMnk2QWVzd3JwSktBT0Q5emRzcWFSVnVwWGxIYTZWaWJyeW16aERZVFF4UzNmQ3pmTEx2SkVIRXNJcDlYMlh1QTROZw?oc=5) |
 
 ---
