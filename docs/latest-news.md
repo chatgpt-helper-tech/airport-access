@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月11日 03:00:51（北京时间）**
+🕒 更新时间：**2025年11月11日 03:08:52（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Chicago snow accumulation: Winter Storm Warning issued, dangerous driving conditions prompts some CPS school closings Monday - ABC7 Chicago | [阅读全文](https://news.google.com/rss/articles/CBMi7AFBVV95cUxOUGZRWjNBSlJkbnZYVnZLTlQxaFRoVWQzZE1PaVIxXzRCVXdGMy1PaWYwYkdsSjNaQVdHRmswVW95bnZvQ3hTOFlvSkEtd0g1d0RiZ0lmRUN2c3ZfZ2w1VXpTQVJQVzV4T3dXeVo3VVQwYkFOeXJBRjZmWTVrT0hDZ0V2NFYybzBLdDVuUHY5MHc4MndhSjRsVUgtdXRoQmtiOUFpYk9IYnFwRXNJOVRwdHpUdlNzQjc4SFpXWFprSS0zUHhyV0hsVWZvU1pNU2VWMEktd0ZVS0swN0JDNDBYMlpya2wzbDM2Z09XM9IB8gFBVV95cUxNaFJqQ2lyejJrOFBpaVdHb3lsVTR0aU5XS3MzODR1LVE4VmdXTjA2a0hiWUgwbjUwaFZDeER1NWNVNDBHeFlKU1ZlTzN0amlQYnROZkdjOVliQ1A2VmxKTkJ0Ml9BWUtVbS1rMVo3SVNLRGc2OEJyNlhBWWJoQ2JrWk1KUUhoVVdJNWctOFNZenZKSVFhN0hwSzBNZDNYYnZBeWFtSmJTVDAwd0NvM2c1eWNEQXlySWtXTkpWMmtxMWRsRkRTRU41MWtWcmxpNVJ5em9OMUlLbDdSX3oxNWtpZ1pRdFJ5cEkxSjhrVm1ld1pDZw?oc=5) |
 | As flight cancellations rise, people are turning to trains, car rentals and creative solutions to get to their destinations - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNU285dkVVTzZjU29QUlNva2lhQXZGVDlyS1AySlgteWxadGszM2V2X2syY2hUQzlrYTk4c3NQRFNNQ0VaQ05LUDBvcWxSTjZfcU9QOGFkd0x3MGdzMXV3b2ZIZmM2OEFCM2xWNUlNTlo4bUZsdnhUSDlfTHRmSHdxSTN4OUpodUpS?oc=5) |
 | Arctic air hits much of the US, bringing snow to some areas and very chilly temperatures to Florida - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQVk5XbzRLeVhoMS1XUzRFLUJ2NEJTU3ptWmhpNWtUM1NwdXkxUjV0RlFuNllSTW1JZm1FUFFaMUp0bjgyQjQwODRldmZiZDhfSWhNSHhPYTRVRC15c1NjWDBLTDJJZ2NLVS0zRlJxWk5DaUdqakpadVNvdHBTc25PQXNuaE1vZS1lVnlORHJBUQ?oc=5) |
-| Trump says BBC ‘defamed’ him, threatens to sue over Jan. 6 editing scandal - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPQ211bXQ0SS1VNUk5WHZkWTJPQ3NqMmJsRVRQc0ZtaXltODFpRm5xSnJPLWw2M0Vqak1peWVxdkhaY1RIemhJV01HaVNaSFpsQ3RTbklUdXFxNFlDbDlkeWxqN0tUMDUzTmYzNUtvLVF6SVJjR2dta0RVUmd3QkEtMjJ6MDI4R3gzSkduVi1RcWdqdDF1NXd2WmYxUWhiSktMV3l3T2VraDZHM09xSWxyMGVlQQ?oc=5) |
-| U.S. military blows up 2 more alleged drug boats in Pacific, killing 6 "narco-terrorists," Pentagon chief says - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxNa0tIRlVRaWh3WXVpMjNZU1lNWUlqSnUwLUI0WTdwOVZkWjVGWm9hWHV6cEQ4cTgwV0Z0YXlGMVZ0VkJmUEJTSmV5TnYtTkNPMVJzdGVQOHVmSzZVVVh6QXh0U0tDNlpjYXh1Q1B4ZlB2MzRMMS1TYTJ4NU1XRV9aYnNRX1UwcUJtNGpjTXp4MnduWWxRV1RyQmhxZlhHeXpQ0gGmAUFVX3lxTE5DaU84QkdxTGY3cFFINU56bDFDMjY5S0dNUWt3Nlp0TEtyeVJkSjJXenl5dFNxY0pvZUJHdjdOQ0hHUGdEUTQ2TDl5bEh0M2VvOHJDZXktQnVJQTB2ZDZfNTA5b29NbF9ncVprakV4a0hNZ01lNjR1UVp6M3JWejdWOUt0RFhnSG5BdUdpVGxKNUlHQjFyY3VJWWxyZXo2RTVtb2s0NEE?oc=5) |
+| Trump Threatens to Sue the BBC for $1 Billion After Jan. 6 Documentary - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNMVk4T19mRnhxR1NTXzBGSm9hODVpV0UzVkJ3REhQQ0NZN0V2R18taUpDd0I3YU9ERGRvU1hDODdic084RmhIRzhVY2pQTEx1dGpyVEJwbHJnUGl4djlTUV9haW02YWxwZEtlVUZtUVJvRnd5bUlNejhGY1NhRGV5TEpCYTU4eWlWOXc?oc=5) |
+| Government shutdown: House will vote on Senate deal ASAP, Speaker Johnson says - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQa2FwY3B6aUQ5ZmNDdUttUTZZX0g5T0hpY2tiSlhua3lEUW5yODMtTFppc3IzS1REUlZpTXVBUm5QbUlDSFBYUGRxaVlRTWs2bWpEQ0x1NTVyU1lseEZFc2I2VVY4UTNQUjI1UVkxQ2RFZVJpaVBwdUtoU3I1NVNxZGdPY3ZRNlhGb2VrQ0NXRdIBlAFBVV95cUxPb01FSlJOTnZPTnJxa0tncXJwSlZoQXpENEZKdDlJTjV5dmpvLU1BRF9Qd1puUmhnY3RGLTkyRGROdEE5R0J4WER4VmpkaFFBczdxYTExektaV1BqYVZwb3FDMExoX0kxai1fbHo5RFdITnZrT3pOcDRkN3lGNXVtMkt3em95aC1iblNNSThwVG1iQ2VS?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
