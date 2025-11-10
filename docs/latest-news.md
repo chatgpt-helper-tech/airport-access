@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 19:33:06（北京时间）**
+🕒 更新时间：**2025年11月10日 19:41:36（北京时间）**
 
 ---
 
@@ -15,8 +15,8 @@
 | 'Killed because they are Alawites': Fear among Syria's minorities after the fall of Assad | [阅读全文](https://www.bbc.com/news/articles/crex1zp3213o?at_medium=RSS&at_campaign=rss) |
 | Trump and many leaders are skipping COP30 - so does the summit still have a point? | [阅读全文](https://www.bbc.com/news/articles/c205jvyg3wjo?at_medium=RSS&at_campaign=rss) |
 | Guinness maker appoints former Tesco boss to stem falling sales | [阅读全文](https://www.bbc.com/news/articles/cy4021v7wepo?at_medium=RSS&at_campaign=rss) |
-| Mystery 'fedora man' at Louvre heist scene revealed as teenage detective fan | [阅读全文](https://www.bbc.com/news/articles/c5ylx0g6w76o?at_medium=RSS&at_campaign=rss) |
 | Surgeons from Scotland and US achieve world-first stroke surgery using robot | [阅读全文](https://www.bbc.com/news/articles/cjw983pvz6lo?at_medium=RSS&at_campaign=rss) |
+| Former Radio 1 DJ Tim Westwood bailed over rape charges | [阅读全文](https://www.bbc.com/news/articles/c2em2wyezpwo?at_medium=RSS&at_campaign=rss) |
 | Sex schedules and curiosity: How I keep my relationship alive | [阅读全文](https://www.bbc.com/news/articles/cj97rd0zvejo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
@@ -32,7 +32,7 @@
 | Ghislaine Maxwell's alleged prison perks spark Raskin probe into Trump administration - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNSHhIcDQ5emxpQWZNUnhhc0k3TzByQWF5ck9EclhlYmpUTkF3bzYybE9VWlpfRzFtWlczWkxhVzBhOVExWkVGOXcyelI0ZXZGd2JRU1djZzFaTU9VZndHTGsxUlBXaVkwR2V3MzU3TGUwc1RuUDZ4dDhwY2JIUERsVjVGQmlteDVSRmVNSTVDUTVEQWpPZUZta3YzeGJpdHc5LUdxTEpn0gGrAUFVX3lxTFA2NGp4T1l6OXFCWXR1RDB5eXhrbGI3LXJiLUFfVFprRzVZQUtxdDVLSE5lQTFYcHc4RUhVMEVDTDF0c2VWZU1HTTg2NGhNbEhQZlVXbVNVd25tYmM1RG9tc1dmTTlHTUU4c1Z5YnB0RU9BRm1MZ0FKU0hpS3FRTl8ycHNQTXFEUXI4R1g2dGlTckM1R21sMkpRTHNzbW84c09pS0dBU3VHQk9wNA?oc=5) |
 | Arctic Blast Is Sweeping East, Bringing First Snow of the Season - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBlVmEyb0pwNDZodlVHTmdkM29rcHlHM0k4TmNFdm9kVnluMmpiR2dLX2NiSkFCYmM4Y25YV09KSlJrbXV1ZGxHVDFnX2VBeElvX2M0NHdvTHd4b250ZkVRVGd4dzZUSmlGZ0xXckdGV2hOOVprWXgxQmx5U0pOSWs?oc=5) |
 | Some UPS and FedEx planes are grounded. What does that mean for holiday shipping? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNSnFpVjVpNVcwMWJGZ3pvWnBCSWxFTVZramJHMmJRMEExNENNSVNhdWVfVVlDemZ3cTVBR3MtMFRvUWxIOXlkbDBrNFVhaTBZRVJfaFdCTFNLQk83MVlYMHltU0tKc2VKSTUwTjh2VkhhakpJZS04VkdsQW5ZanR2VktGTmlfaXlUWHNwTG5B?oc=5) |
-| Bessent says no formal White House health care proposal as shutdown drags on - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNTmZNY3J6bkMwWktUajFDZGRSajU3ODFHY1FRWVd5M0liUUxKRzNmWlcxZWIzbEE2cVpyOUZBX3JLNjBTRzFGcG5OYWRLVHVvNWhDREVXc0p1ZVBnZm93QTI4XzVIVndSU3RWaFJUdDdBQktleXJLa1lhSFN3THBBRERkUlg4d1VRZDVWWnI2Q2RlT0FrdW5ldGZGbEJDRGlvZjYyNnpiWkV6M0XSAbABQVVfeXFMTXJ3dHlEbjNlMVFDM0FLRHk3UVI1cXhhZWpaRGU2TU1BZy1LX3RQQlpCaE80SUE0NXNMaWtsTERiNm1aeklyZGNsZ2ZFeVNZT2JfZ29uNVBDb25KTE90ODJPaEh0U1BKTkJzUWRiak9vTGdSTU1qZUl6SklRWG0taEFsMWRSRVJrVHFaV1NoX0xuSGktV2ZWRTQ0QUFQaFdBbjJwNGI2ekQxTFo4Z3ZHa3k?oc=5) |
+| 'Pathetic': Critics Are 'F**king Furious' With Dems For Caving To Trump On Shutdown - HuffPost | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQYk5HMk5SNkdqbzljU1ZkZ2tLejJwZGd1alVGRDZ4d0M2OXljWVMtSjRJbGlPUEdCZEYycWNMWVJ2dktQRHZZQnEyWm9tNWw2c0M2QkZySzJocFR4UDhiZ2ZPeV93NEo0cjZ6ZlF4eEVRb1ZfMXlVblJxX0IxNmZfZVRTeE9FWU5TVjhDZNIBkgFBVV95cUxPV3RJY0xkekZINk91NUFqTjJoR1RsLVVmUmZScGlLcnZDbEVGZkRFbEdJSThNMWM5cUc0V0h3RTRvX2JZeUxKQkJaQzNxZkdkeGM1SThZSTI0RjJVN3h3ckVJaDNaV1FqWWpkbkVmV25EcHRRT2h3am1WTEVtTVcxaVBBTTdQZHFkQVltQ244THRRUQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
