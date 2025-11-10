@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 22:50:02（北京时间）**
+🕒 更新时间：**2025年11月10日 22:57:30（北京时间）**
 
 ---
 
@@ -12,12 +12,12 @@
 | Second migrant sent to France returns to the UK | [阅读全文](https://www.bbc.com/news/articles/c5y4ez53x7do?at_medium=RSS&at_campaign=rss) |
 | Former French president Sarkozy granted release from prison after three weeks | [阅读全文](https://www.bbc.com/news/articles/cm2eppqd2nyo?at_medium=RSS&at_campaign=rss) |
 | Jailed hacking kingpin tells how his gang stole millions | [阅读全文](https://www.bbc.com/news/articles/cm2w0pvg4wko?at_medium=RSS&at_campaign=rss) |
-| Woman stabbed in neck in unprovoked attack at Birmingham bus stop dies | [阅读全文](https://www.bbc.com/news/articles/c3rj33dg22vo?at_medium=RSS&at_campaign=rss) |
 | Celebrity Traitors to return for a second series in 2026 | [阅读全文](https://www.bbc.com/news/articles/cwy12ln7rnlo?at_medium=RSS&at_campaign=rss) |
-| Sex schedules and curiosity: How I keep my relationship alive | [阅读全文](https://www.bbc.com/news/articles/cj97rd0zvejo?at_medium=RSS&at_campaign=rss) |
+| Woman stabbed in neck in unprovoked attack at Birmingham bus stop dies | [阅读全文](https://www.bbc.com/news/articles/c3rj33dg22vo?at_medium=RSS&at_campaign=rss) |
 | US Senate passes deal aimed at ending longest ever government shutdown | [阅读全文](https://www.bbc.com/news/articles/cpd2p2eddnzo?at_medium=RSS&at_campaign=rss) |
 | Post Office Horizon IT contract extended for another year | [阅读全文](https://www.bbc.com/news/articles/cz6n2v7ywgeo?at_medium=RSS&at_campaign=rss) |
 | BBC chairman's letter to the Culture, Media and Sport Committee in full | [阅读全文](https://www.bbc.com/news/articles/cx2p1v77gl2o?at_medium=RSS&at_campaign=rss) |
+| Katie Razzall: A seismic moment that shows rift at top of BBC | [阅读全文](https://www.bbc.com/news/articles/c07m2v1z4evo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -32,7 +32,7 @@
 | Ghislaine Maxwell's alleged prison perks spark Raskin probe into Trump administration - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNSHhIcDQ5emxpQWZNUnhhc0k3TzByQWF5ck9EclhlYmpUTkF3bzYybE9VWlpfRzFtWlczWkxhVzBhOVExWkVGOXcyelI0ZXZGd2JRU1djZzFaTU9VZndHTGsxUlBXaVkwR2V3MzU3TGUwc1RuUDZ4dDhwY2JIUERsVjVGQmlteDVSRmVNSTVDUTVEQWpPZUZta3YzeGJpdHc5LUdxTEpn0gGrAUFVX3lxTFA2NGp4T1l6OXFCWXR1RDB5eXhrbGI3LXJiLUFfVFprRzVZQUtxdDVLSE5lQTFYcHc4RUhVMEVDTDF0c2VWZU1HTTg2NGhNbEhQZlVXbVNVd25tYmM1RG9tc1dmTTlHTUU4c1Z5YnB0RU9BRm1MZ0FKU0hpS3FRTl8ycHNQTXFEUXI4R1g2dGlTckM1R21sMkpRTHNzbW84c09pS0dBU3VHQk9wNA?oc=5) |
 | Democrat’s Win May Upend a Conservative Push in Virginia Universities - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQRVFNMnQtbVV6NVlOazgzRzRkTHJmdU5wcGxFUy1yMHBjTUVYdlh1cGxocDFhbDQzQTBVWEZxQi13UEM0VVFSOUJBeFhvbkJHeHhoSmdya1hFNDlhNnNVd2Y5c1NIeC16T09SS3pfRTZEOEdld1FOa2dyRzFvYXozdkcyYkxoX1hoRGRZaVFvVGdCdmxyNUh4VTFncmZXdw?oc=5) |
 | Emboldened, Kennedy Allies Embrace a Label They Once Rejected: ‘Anti-Vax’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQamUtY2pDMGJNaTNsVmxoLUhfbjRhSU43MFJra0N2WldaLXRnN0JJMmluQjA0TmNhTlFtVzlnVUs0ZWdHa0g2YWd3blJDVmRMV0dkRG9WMEpaV25TMjR1Wnk0a2gzS0dGdkwtZ3dwQjRpSDlNMlkycVZadDB4bGl6UFBqazNCQQ?oc=5) |
-| Syria al-Shara al-Baghdadi Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPeE1aY2ZMWnUzSmhlVWp4UE9lRURrb2VHRXFDQnVJclIxNEVwRHFpZzlPRXlKMVhmaU9BVHdGdTBjbFVETW5RX3RWQUpfUDVTLThwaldzcTZHejB1NGVIYUN6dF9CSEF0eHREQ1Z3UnB5R0kxM05fdHgyRGEtSmZOUE9aZ3FpTV95YTRCcGNYNnF3ZFdSVmRFcTBxWW5mR0NIQUdwY3pNeXZNb3JfZFVz?oc=5) |
+| ‘Schumer is no longer effective’: Dems outraged over shutdown deal - Politico | [阅读全文](https://news.google.com/rss/articles/CBMiswFBVV95cUxPS2xYdzZHc055QWJzVXB5bFdISTdVNlBRWnAxaG53WW95YUluRWRiQVlDMkdhNTVHWDRsbXJKc2JZTldyTExwckJ4RjVSNGYyRXdXTXZDdFdnVkU1NXZUaUZfd0ZUYkt1NmZRNUxYX3YtMG5uVllELWtyVjBiRk1HVVREUlFwVmkwdkJ3QmRxU1BaRE1kazBnR1FMREV3OW45dkNZRHdwUk9lOHhvZ09oWDNXNA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
