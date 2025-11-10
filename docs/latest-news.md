@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 17:48:10（北京时间）**
+🕒 更新时间：**2025年11月10日 17:57:11（北京时间）**
 
 ---
 
@@ -31,7 +31,7 @@
 | Trump pardons Rudy Giuliani, other key figures allegedly involved in efforts to overturn the 2020 election - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNcWxkME50WER1emFJTjdGMlhjWkZHdk1BWkhuNTBOVlFTSlB5elhUNHdEYmVIaFo5ZkhtMlpfZnB2UDYtWkxtbjhlV0xOUkZKMVB6alRnVDBsMkdEdi1LTWVUVUZWMXJZZ3BqZ1JXS3FZQmFvUWRmTkIxT1p1d09xcG5zdnBnZXQ5eFRNUGZFTGthMHRCNC1lc2d0ZnNpN3Z3dklSQU5BemdUOGPSAbABQVVfeXFMTW1qR2k3RGVZczUtUzJMMXl1TEZzTHd3SEo2Q3BhcVVYUkFXaFhpU2I3ZGdrenJOOENGSEUwVms1RHBCTjB3b2NaZjlCZWpUcWJydGJRQkg5RG14eDJCWHZFTzVkWThUX3BUU2dodmZEaGoxTzZQbXBINHRxN3pMTTY5T25keEhiclJPbWtJTHpWaEdvTHFCYTQ4U3M5cjBjd1BybE1uNVQzSnVJQXZRejg?oc=5) |
 | Some UPS and FedEx planes are grounded. What does that mean for holiday shipping? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNSnFpVjVpNVcwMWJGZ3pvWnBCSWxFTVZramJHMmJRMEExNENNSVNhdWVfVVlDemZ3cTVBR3MtMFRvUWxIOXlkbDBrNFVhaTBZRVJfaFdCTFNLQk83MVlYMHltU0tKc2VKSTUwTjh2VkhhakpJZS04VkdsQW5ZanR2VktGTmlfaXlUWHNwTG5B?oc=5) |
 | Trump floats using tariff revenue to send $2,000 checks to Americans. Here's how that could hurt people in the long run. - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNa0ZEcVpaOEZaYks1QmF4VG5uaFlNSFlwckRSRlloLWNzT1Bjd1ZUS3I2a0J2bXdUUXdndnJaSFN6MmVuWmlIZEQwbUhDUVJLVEJOVEU1YkU2aTRvLXhET2VYbGtISU5DQ0NnYUpjZTZQdWQ2ZWNGajRTVlhoVGpseVJKRmp1WEI1a0RKUQ?oc=5) |
-| Abigail Spanberger says Democrats' election wins aren't a green light to extend shutdown - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPQW9QREJBckJUUFVhQmFPdm9xYVlKNjY2bUNkRG54YklJcnFkVG5Rd1BzN0xzUjdNZkpUaDFXZUJoTEtnSlV0OGx4Si1KS1hNX0NyRlY0ZHJESGVnN2pjT3NmTjVDTXFJSzdiWk1Rb3VicEJQVV9NSFNHTVcxbGxGVnZpR1hrWW01U0lJYjZYc2pUVEJRaUo3a3JZamJCWHpJanFkYmxyQThvQ3ZwWTNWVUpHbGxYOTk3OGpfVHVZOGVqZ9IBVkFVX3lxTE91OV9iVVMzNEFQVE10T1JoU1dTRzlEOGVMbS13bWU5UW1fcllGZnZWNVc5U3UtVGV1bHI3ZUhiWHI0a212VTctZ3FXdjVIdFpXRFNXckxn?oc=5) |
+| Gavin Newsom Slams ‘Pathetic’ Shutdown Deal as ‘Surrender’ - The Daily Beast | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxOSlBVdFhJM3laQzdyWjU2TmFJaGoya2F6NnFuam5tNThBcTJ6LUpuVGN3QUstbkJ0VG12LUQxajNtU04waUtvT05sZWFHWngzOFJGYWp5SzZCeGNIYUI0UHo2Z3RCSWdsaThQMnhsc1VsekNFSmJrQ1VFZy1XM2tJT3NDcnlxN1pmSzhKbGFR?oc=5) |
 | Coachella Valley Republicans fear alienation after Tuesday election - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxPa1pLN3ZNU3VmU0lvOWNoQno3X1BsLW13VGJGNVRMZzhLbEV6VFY1b2t0cHRXWi1qQ0c0SWZ4VXp1Vlo5dFpaZ2hGVHpFc2dXckdOaW54dmQ4SzZ1NHBKZ3RCV0FGa1NhOWMtZUVUejQtVXJnTXZvcElURldwYlpMX3hfNTRoT1RpUUxPQ2ZMUm41bWpWWEJuU243VHBMQWFiZDFvVE1R?oc=5) |
 
 ---
