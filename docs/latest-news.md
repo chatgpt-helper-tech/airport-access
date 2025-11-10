@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 16:57:59（北京时间）**
+🕒 更新时间：**2025年11月10日 17:00:48（北京时间）**
 
 ---
 
@@ -24,8 +24,8 @@
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Senators take first step to end US government shutdown - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1CRHFSVU1WLUw4TlhfQ1hIdzNBUEhXWmxJSGlwdFVDU09VSzYyLWtJQzA4NEo2UUt6NDdBLTNtNE9zVzN3aWtyUlJVam14V1hscV9tVWwtaF95dEc2THI5d2ZuTUt1c29sSFZVZWVMVm8?oc=5) |
+| Trump administration orders states to pause paying full SNAP benefits - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNWEdGVXhyR2lYRWw0dXo2RnQtOFpJZmJ4ZU5aS0ZRWHF0UXhMdzlkSlBsZndVaExzaG1CamJOTC0xRGUyTG41QjQ3YWo1MkV6SUJfWF9XMHg5cU1GX3pUWUtuMGxVRERYYTJ3WXltckxRLUpxUE84TW5lNTJuVzlUbUxpOGRrdncwSm1v?oc=5) |
 | BBC leaders quit after backlash over edit of Trump's Jan. 6 speech in documentary - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNeFRFQ1BGVUJKNzJHN1F0VVlaM0RNUW56cGo0eFFqTmNYdFUzcC1BV0N6dFloZnJnQktFYzN4dU1CR2U4NnJRMWFjcHFoSm5BcFVabnRZdWxJUXctRURjMWVuS0NoNFdJRXJ2bU82NWRycGpCRFZEQTlPeG9sd2FpZ1B3?oc=5) |
-| Appeals court rules Trump administration can be forced to pay full SNAP benefits - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNREZiVGZxSUozNFc4bDVyY3pzUk9CQUhsRldYaEpVRnBfNVZ0NV8teTZmRWxIUldxdHZKTjd2T291ZG0tY3hjekFUZUZwb2FyLVRQRGYxM3d4TlJ6eVR5ZXg0UUZUVElKRFBsZDFxNVltRmtlaVVDaU9aczFKVU53YWpyQ3FOMXplb2k5NQ?oc=5) |
 | Typhoon Fung-wong blows away from the Philippines, leaving 2 dead and 1.4 million displaced - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOR2RDd2hodlZmRDNmQl9lWVlENkdCd0szZXBsbmIxYWlxQlBxRGJudUpiLXNoV1ZpNVZmdUpRTUZyb1RoR2Vac1lKdFZHRW10SURuMFVzbXgyRFJFZW9aYVkySUZIMmVjaVB0Sm5IclVTTzNldHVPb2xwakNKeEhJcEE2cUk0ajBoM1g3V2pBcHU3akRPSGRqMTFPcmcyYmN1bWlGOXphQXVEX19wUEtFZVBST3dYWG8?oc=5) |
 | Trump Renews Attacks on Obamacare in New Push Over Government Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOTC0wQjAwWXhzYW9wbDNRMDZRajdJUkNaVkx4dFU3SmxreXVIQ2E2S294NTZndHo0cUtsdENtWlBTdmg1QlhOTlhjWmpXQ1ZGdTBRYmJ0Z2JxbDNPTG1nMTItTEx3Nng2RDlzdHBPR2g5dkdqblJ6N1IxaURzQXF5SFR3?oc=5) |
 | 'Ferocious' Winter Storm Could Drop 8 Inches Of Snow Overnight Sunday, Weather Service Says - Block Club Chicago | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxQRnk0aFVzQWtUWTZ2MnRaMXpYdDg0VkRKRUZPdlFlMGxxUE9JaGcxaWVidVhoemRhR3Qycm05SndRbHk1MVRFOXRIVkI3ZHpNdVpTZ1ZBbS11TXRNSWJfUFU4Y0VLZDc1X1F4RWg3S0JjTm16LW9KSUVCMHhwMzRITnctM3VpQUluTXY0NEtJOGlvMWNPZEk4MGlJNmxZN3N5ejhWNzAzMllBUE5EdkpRbThWd0lwOXE3dTMzakE0QmlSV3h6TXJtRy1rTUJXVHp3NmpqVGtvVQ?oc=5) |
