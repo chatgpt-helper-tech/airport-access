@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 18:25:01（北京时间）**
+🕒 更新时间：**2025年11月10日 18:33:51（北京时间）**
 
 ---
 
@@ -17,7 +17,7 @@
 | Hospital failings continued after death of woman in mental health unit, leaked documents show | [阅读全文](https://www.bbc.com/news/articles/c5ypq0y7997o?at_medium=RSS&at_campaign=rss) |
 | Surgeons from Scotland and US achieve world-first stroke surgery using robot | [阅读全文](https://www.bbc.com/news/articles/cjw983pvz6lo?at_medium=RSS&at_campaign=rss) |
 | Sex schedules and curiosity: How I keep my relationship alive | [阅读全文](https://www.bbc.com/news/articles/cj97rd0zvejo?at_medium=RSS&at_campaign=rss) |
-| Homelessness higher than official figures, research shows | [阅读全文](https://www.bbc.com/news/articles/c0ex5r4q82qo?at_medium=RSS&at_campaign=rss) |
+| Guinness maker appoints former Tesco boss to stem falling sales | [阅读全文](https://www.bbc.com/news/articles/cy4021v7wepo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -29,10 +29,10 @@
 | Typhoon Fung-wong blows away from the Philippines, leaving 4 dead and 1.4 million displaced - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOR2RDd2hodlZmRDNmQl9lWVlENkdCd0szZXBsbmIxYWlxQlBxRGJudUpiLXNoV1ZpNVZmdUpRTUZyb1RoR2Vac1lKdFZHRW10SURuMFVzbXgyRFJFZW9aYVkySUZIMmVjaVB0Sm5IclVTTzNldHVPb2xwakNKeEhJcEE2cUk0ajBoM1g3V2pBcHU3akRPSGRqMTFPcmcyYmN1bWlGOXphQXVEX19wUEtFZVBST3dYWG8?oc=5) |
 | Trump Renews Attacks on Obamacare in New Push Over Government Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOTC0wQjAwWXhzYW9wbDNRMDZRajdJUkNaVkx4dFU3SmxreXVIQ2E2S294NTZndHo0cUtsdENtWlBTdmg1QlhOTlhjWmpXQ1ZGdTBRYmJ0Z2JxbDNPTG1nMTItTEx3Nng2RDlzdHBPR2g5dkdqblJ6N1IxaURzQXF5SFR3?oc=5) |
 | Trump pardons Rudy Giuliani, other key figures allegedly involved in efforts to overturn the 2020 election - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNcWxkME50WER1emFJTjdGMlhjWkZHdk1BWkhuNTBOVlFTSlB5elhUNHdEYmVIaFo5ZkhtMlpfZnB2UDYtWkxtbjhlV0xOUkZKMVB6alRnVDBsMkdEdi1LTWVUVUZWMXJZZ3BqZ1JXS3FZQmFvUWRmTkIxT1p1d09xcG5zdnBnZXQ5eFRNUGZFTGthMHRCNC1lc2d0ZnNpN3Z3dklSQU5BemdUOGPSAbABQVVfeXFMTW1qR2k3RGVZczUtUzJMMXl1TEZzTHd3SEo2Q3BhcVVYUkFXaFhpU2I3ZGdrenJOOENGSEUwVms1RHBCTjB3b2NaZjlCZWpUcWJydGJRQkg5RG14eDJCWHZFTzVkWThUX3BUU2dodmZEaGoxTzZQbXBINHRxN3pMTTY5T25keEhiclJPbWtJTHpWaEdvTHFCYTQ4U3M5cjBjd1BybE1uNVQzSnVJQXZRejg?oc=5) |
+| Trump says he'll issue $2,000 tariff dividend to all except 'high-income people' - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNWHRCZjl6MGR4YVlicU5BNTQyTFdsYmdfcFpqcy13UmxKTVMtSzh6X28xeGhBNDNURUI3TXJKVU9SWVkzcDVfcmRUbU9DUUluajRWX2ZTWFZMdGtuRVUxWWJsMzk5ZERGOWl0T0pjb3dyemJJTzYzWU5DWlgzNlJQaVpKamhXOExodW9wNVZQdE56cTlNTHNpYXJ5WEJ6d3V5dUHSAacBQVVfeXFMT19UOF80RE1qa2RGZkVwMWVkT0Z1b205bS1IMVlOeU5fSS0wTVlsWC1FR0pOUDZHU0dWZzZxUFZYejVRQmpQVEk4OFlSRlBzYTBNTDJNSmN1WUszR2tOZmhlQ0h0RTBVclJpVVBMcXRSZTVTeTB2MXhON2FqRUwwVXUyZ0FOZXl5U0Y4aVNBVWtMZkpNa3pXLWhpYVR2NGRTZlpaZlhFTDg?oc=5) |
+| Ghislaine Maxwell reportedly ‘much happier’ after prison transfer by Trump officials - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxOSTZqNmJ6eWUwV1BCdlZqbGc4d0hncmlhT3Y3OGlZNXJLcHc2eGtpM010cmthVjA1RERLRDBGZW50ck5HSXpUNzJuNHpHQk1zSkU4TkVGSWswaGo3SFI5X2tSdGx4UUhaSEVPZFNkV1hCZENsRnFWcXVvT3RUekpCV0tWTVloU3pCenAwUHZBSk00RW9tRjNPeQ?oc=5) |
 | Arctic Blast Is Sweeping East, Bringing First Snow of the Season - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMif0FVX3lxTFBlVmEyb0pwNDZodlVHTmdkM29rcHlHM0k4TmNFdm9kVnluMmpiR2dLX2NiSkFCYmM4Y25YV09KSlJrbXV1ZGxHVDFnX2VBeElvX2M0NHdvTHd4b250ZkVRVGd4dzZUSmlGZ0xXckdGV2hOOVprWXgxQmx5U0pOSWs?oc=5) |
 | Some UPS and FedEx planes are grounded. What does that mean for holiday shipping? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNSnFpVjVpNVcwMWJGZ3pvWnBCSWxFTVZramJHMmJRMEExNENNSVNhdWVfVVlDemZ3cTVBR3MtMFRvUWxIOXlkbDBrNFVhaTBZRVJfaFdCTFNLQk83MVlYMHltU0tKc2VKSTUwTjh2VkhhakpJZS04VkdsQW5ZanR2VktGTmlfaXlUWHNwTG5B?oc=5) |
-| Trump floats using tariff revenue to send $2,000 checks to Americans. Here's how that could hurt people in the long run. - Business Insider | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNa0ZEcVpaOEZaYks1QmF4VG5uaFlNSFlwckRSRlloLWNzT1Bjd1ZUS3I2a0J2bXdUUXdndnJaSFN6MmVuWmlIZEQwbUhDUVJLVEJOVEU1YkU2aTRvLXhET2VYbGtISU5DQ0NnYUpjZTZQdWQ2ZWNGajRTVlhoVGpseVJKRmp1WEI1a0RKUQ?oc=5) |
-| Group of Senate Dems Joins With GOP to End Shutdown Without Extending Obamacare Funding - Talking Points Memo | [阅读全文](https://news.google.com/rss/articles/CBMizAFBVV95cUxPU2pGQVFsaXJub09uVGl5b3hsR3lsRjdZSmxXOTlnTHBQd1RFX25ucHFRMy1lR1dxeHNqa1pQOVh1eG00WFlob3NzeG9Rc1dJMWlXMXRsb0RRQXJkWU5DOWdfYUdrTDFGRXN2N0otUVl1amZkbGFTMXZsYUpkTWJzeE9yQll1V2lkQ1lYM2RMcU9tSEN2ZzRFN3V4UWFQRlFTSTBBY085ZFpzUDRWLWotSGh4Ry1HRWJLMGtGaWs2WG41ajZKU01XRWxUZzA?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
