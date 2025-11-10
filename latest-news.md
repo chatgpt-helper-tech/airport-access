@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 23:32:45（北京时间）**
+🕒 更新时间：**2025年11月10日 23:40:45（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | Appeals Court Blocks Trump’s Attempt to Withhold Full SNAP Funding - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPUGlJeFJHa1RBXzVSM2x5VUJjZlBHTTFEblc2YzVKeHZ3X2pZZFhPY1pnbjVXSGZUamZDZ2dXaV9xUlRwOU1WTmpFTWhHSllOLXRTb1NlZHlHam1ZbU9PQUhNVXN1ZC01YVJhbjZNTVFFSUF6N3YyM2ZsaE5YV1VMS1JUSVhybzdDTnM4YjNSX2xtbXlaWVNtcw?oc=5) |
 | Chicago snow accumulation: Winter Storm Warning issued, dangerous driving conditions prompts some CPS school closings Monday - ABC7 Chicago | [阅读全文](https://news.google.com/rss/articles/CBMi7AFBVV95cUxOUGZRWjNBSlJkbnZYVnZLTlQxaFRoVWQzZE1PaVIxXzRCVXdGMy1PaWYwYkdsSjNaQVdHRmswVW95bnZvQ3hTOFlvSkEtd0g1d0RiZ0lmRUN2c3ZfZ2w1VXpTQVJQVzV4T3dXeVo3VVQwYkFOeXJBRjZmWTVrT0hDZ0V2NFYybzBLdDVuUHY5MHc4MndhSjRsVUgtdXRoQmtiOUFpYk9IYnFwRXNJOVRwdHpUdlNzQjc4SFpXWFprSS0zUHhyV0hsVWZvU1pNU2VWMEktd0ZVS0swN0JDNDBYMlpya2wzbDM2Z09XM9IB8gFBVV95cUxNaFJqQ2lyejJrOFBpaVdHb3lsVTR0aU5XS3MzODR1LVE4VmdXTjA2a0hiWUgwbjUwaFZDeER1NWNVNDBHeFlKU1ZlTzN0amlQYnROZkdjOVliQ1A2VmxKTkJ0Ml9BWUtVbS1rMVo3SVNLRGc2OEJyNlhBWWJoQ2JrWk1KUUhoVVdJNWctOFNZenZKSVFhN0hwSzBNZDNYYnZBeWFtSmJTVDAwd0NvM2c1eWNEQXlySWtXTkpWMmtxMWRsRkRTRU41MWtWcmxpNVJ5em9OMUlLbDdSX3oxNWtpZ1pRdFJ5cEkxSjhrVm1ld1pDZw?oc=5) |
 | Jeffrey Epstein co-conspirator Ghislaine Maxwell plans to seek commutation from Trump, whistleblower says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQaVBYMEZRTjVCbFlDY1poZFhPRFVEWS0wM3VBbzQ1RDh6RlBaMEFUWXNOUGdfVmdQWTlHLVdkSVVXX2NVck5BYnRwT2RhMkNrYkQ1M0t0S1NEVWxzQWRMRHhXaGNJbVhXYnpFckkzNjZyRmtYX0szOGE3UEJMeW04MVlYMEhfMnlpanVhLVFMS0wwU2U4WGtLaHRrRkREQVZDSEdFb0FpODFpWXZoRnMxbDBCa29FR2ZaN0pj0gFWQVVfeXFMTUhuY0M5NmR1Wm1jTEpEZUZhaUhROEN4STgzbkJHYUx3dWpGT3V4TGpLbmp0X2c0dlhuc29EVVFNU3dGSGN0N2FiRHJxeER6eEU1U3hkaFE?oc=5) |
-| Supreme Court agrees to decide if mail-in ballots can arrive after Election Day - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNNnpuOXYtZk1DakFXNGJwVnd2SlN0X2RaXzRTQlpEN2NXWWpiQ2FTN3ZnLUpsT0o1bE9LSUtsWHhGbzV5RUt0REJubFI3Q3hxYkF3bXRDR3ktNWx4N0JISGFCYk9NN3FKWnRSRjFybDgwcGFKWGNvamRMQkk0a3ZXQXEzYUhpWloz?oc=5) |
-| Hegseth says six people killed in two new US attacks on alleged drug boats - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFBxMFB6ZGVGZ1VFWC1ick5WeWVvYW9XV09mUzhQWWdEdzlJUEJSM0tzLVdGakdsdjBRYkNOSThMMk9VeTRiNlhKbmFDYTlSMEpzeFp4a1VWSWR1LTVFUkhMOWFFajlZcGhXWk0xcnA3ZEpPWGI0RVJR?oc=5) |
+| US military strikes 2 boats, killing 6 in Eastern Pacific - CNN | [阅读全文](https://news.google.com/rss/articles/CBMia0FVX3lxTFA2TmJRYkdlYXhRME8xTkFHZlJVTzVFQjJ3cmxza2VZLVY5N0p3clAxWElFaGR4dDhSVW5fRUZ2cVpmSG5wS3RYUlo0eC14ZXlha1Y3Q2JUWHZUeFM3SDhGLUdyVnFCMFI2WWZv?oc=5) |
 | Democrat’s Win May Upend a Conservative Push in Virginia Universities - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQRVFNMnQtbVV6NVlOazgzRzRkTHJmdU5wcGxFUy1yMHBjTUVYdlh1cGxocDFhbDQzQTBVWEZxQi13UEM0VVFSOUJBeFhvbkJHeHhoSmdya1hFNDlhNnNVd2Y5c1NIeC16T09SS3pfRTZEOEdld1FOa2dyRzFvYXozdkcyYkxoX1hoRGRZaVFvVGdCdmxyNUh4VTFncmZXdw?oc=5) |
+| Syria al-Shara al-Baghdadi Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPeE1aY2ZMWnUzSmhlVWp4UE9lRURrb2VHRXFDQnVJclIxNEVwRHFpZzlPRXlKMVhmaU9BVHdGdTBjbFVETW5RX3RWQUpfUDVTLThwaldzcTZHejB1NGVIYUN6dF9CSEF0eHREQ1Z3UnB5R0kxM05fdHgyRGEtSmZOUE9aZ3FpTV95YTRCcGNYNnF3ZFdSVmRFcTBxWW5mR0NIQUdwY3pNeXZNb3JfZFVz?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
