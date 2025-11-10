@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 23:25:14（北京时间）**
+🕒 更新时间：**2025年11月10日 23:32:45（北京时间）**
 
 ---
 
@@ -8,16 +8,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| 'We should have acted earlier' - BBC Chair Samir Shah | [阅读全文](https://www.bbc.com/news/videos/c1m321yd4l1o?at_medium=RSS&at_campaign=rss) |
 | Second migrant sent to France returns to the UK | [阅读全文](https://www.bbc.com/news/articles/c5y4ez53x7do?at_medium=RSS&at_campaign=rss) |
 | Former French president Sarkozy released from prison after three weeks | [阅读全文](https://www.bbc.com/news/articles/cm2eppqd2nyo?at_medium=RSS&at_campaign=rss) |
 | Jailed hacking kingpin tells how his gang stole millions | [阅读全文](https://www.bbc.com/news/articles/cm2w0pvg4wko?at_medium=RSS&at_campaign=rss) |
 | Celebrity Traitors to return for a second series in 2026 | [阅读全文](https://www.bbc.com/news/articles/cwy12ln7rnlo?at_medium=RSS&at_campaign=rss) |
 | Woman stabbed in neck in unprovoked attack at Birmingham bus stop dies | [阅读全文](https://www.bbc.com/news/articles/c3rj33dg22vo?at_medium=RSS&at_campaign=rss) |
+| Trump pardons Giuliani and others accused of plot to overturn 2020 election | [阅读全文](https://www.bbc.com/news/articles/c1m321r73g4o?at_medium=RSS&at_campaign=rss) |
 | Post Office Horizon IT contract extended for another year | [阅读全文](https://www.bbc.com/news/articles/cz6n2v7ywgeo?at_medium=RSS&at_campaign=rss) |
+| 'We should have acted earlier' - BBC Chair Samir Shah | [阅读全文](https://www.bbc.com/news/videos/c1m321yd4l1o?at_medium=RSS&at_campaign=rss) |
 | BBC chairman's letter to the Culture, Media and Sport Committee in full | [阅读全文](https://www.bbc.com/news/articles/cx2p1v77gl2o?at_medium=RSS&at_campaign=rss) |
 | Katie Razzall: A seismic moment that shows rift at top of BBC | [阅读全文](https://www.bbc.com/news/articles/c07m2v1z4evo?at_medium=RSS&at_campaign=rss) |
-| Why have BBC bosses Tim Davie and Deborah Turness resigned? | [阅读全文](https://www.bbc.com/news/articles/c0mx28vlp4wo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
@@ -30,7 +30,7 @@
 | Appeals Court Blocks Trump’s Attempt to Withhold Full SNAP Funding - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxPUGlJeFJHa1RBXzVSM2x5VUJjZlBHTTFEblc2YzVKeHZ3X2pZZFhPY1pnbjVXSGZUamZDZ2dXaV9xUlRwOU1WTmpFTWhHSllOLXRTb1NlZHlHam1ZbU9PQUhNVXN1ZC01YVJhbjZNTVFFSUF6N3YyM2ZsaE5YV1VMS1JUSVhybzdDTnM4YjNSX2xtbXlaWVNtcw?oc=5) |
 | Chicago snow accumulation: Winter Storm Warning issued, dangerous driving conditions prompts some CPS school closings Monday - ABC7 Chicago | [阅读全文](https://news.google.com/rss/articles/CBMi7AFBVV95cUxOUGZRWjNBSlJkbnZYVnZLTlQxaFRoVWQzZE1PaVIxXzRCVXdGMy1PaWYwYkdsSjNaQVdHRmswVW95bnZvQ3hTOFlvSkEtd0g1d0RiZ0lmRUN2c3ZfZ2w1VXpTQVJQVzV4T3dXeVo3VVQwYkFOeXJBRjZmWTVrT0hDZ0V2NFYybzBLdDVuUHY5MHc4MndhSjRsVUgtdXRoQmtiOUFpYk9IYnFwRXNJOVRwdHpUdlNzQjc4SFpXWFprSS0zUHhyV0hsVWZvU1pNU2VWMEktd0ZVS0swN0JDNDBYMlpya2wzbDM2Z09XM9IB8gFBVV95cUxNaFJqQ2lyejJrOFBpaVdHb3lsVTR0aU5XS3MzODR1LVE4VmdXTjA2a0hiWUgwbjUwaFZDeER1NWNVNDBHeFlKU1ZlTzN0amlQYnROZkdjOVliQ1A2VmxKTkJ0Ml9BWUtVbS1rMVo3SVNLRGc2OEJyNlhBWWJoQ2JrWk1KUUhoVVdJNWctOFNZenZKSVFhN0hwSzBNZDNYYnZBeWFtSmJTVDAwd0NvM2c1eWNEQXlySWtXTkpWMmtxMWRsRkRTRU41MWtWcmxpNVJ5em9OMUlLbDdSX3oxNWtpZ1pRdFJ5cEkxSjhrVm1ld1pDZw?oc=5) |
 | Jeffrey Epstein co-conspirator Ghislaine Maxwell plans to seek commutation from Trump, whistleblower says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQaVBYMEZRTjVCbFlDY1poZFhPRFVEWS0wM3VBbzQ1RDh6RlBaMEFUWXNOUGdfVmdQWTlHLVdkSVVXX2NVck5BYnRwT2RhMkNrYkQ1M0t0S1NEVWxzQWRMRHhXaGNJbVhXYnpFckkzNjZyRmtYX0szOGE3UEJMeW04MVlYMEhfMnlpanVhLVFMS0wwU2U4WGtLaHRrRkREQVZDSEdFb0FpODFpWXZoRnMxbDBCa29FR2ZaN0pj0gFWQVVfeXFMTUhuY0M5NmR1Wm1jTEpEZUZhaUhROEN4STgzbkJHYUx3dWpGT3V4TGpLbmp0X2c0dlhuc29EVVFNU3dGSGN0N2FiRHJxeER6eEU1U3hkaFE?oc=5) |
-| Supreme Court to Hear Major Challenge to Mail-In Ballot Laws - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxQUy1kZjI4RnVRNUZIOTA0c1VLeDhWd19CV3p1YV9YYnNfcWlxRUJkd25qR2hoMURDS0lZd3VUM0IyRFBpNEVKOUU0QTA4cTNLR1RpSXpqdVd6cEVVNG1QWXJpcWxKOEZaT3NjdXVqaktrc3NYSzFJTW9hb3ZZbWdxU1pSQm1ZcE5KS3d0WjRoUzREYmlO?oc=5) |
+| Supreme Court agrees to decide if mail-in ballots can arrive after Election Day - CNN | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNNnpuOXYtZk1DakFXNGJwVnd2SlN0X2RaXzRTQlpEN2NXWWpiQ2FTN3ZnLUpsT0o1bE9LSUtsWHhGbzV5RUt0REJubFI3Q3hxYkF3bXRDR3ktNWx4N0JISGFCYk9NN3FKWnRSRjFybDgwcGFKWGNvamRMQkk0a3ZXQXEzYUhpWloz?oc=5) |
 | Hegseth says six people killed in two new US attacks on alleged drug boats - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFBxMFB6ZGVGZ1VFWC1ick5WeWVvYW9XV09mUzhQWWdEdzlJUEJSM0tzLVdGakdsdjBRYkNOSThMMk9VeTRiNlhKbmFDYTlSMEpzeFp4a1VWSWR1LTVFUkhMOWFFajlZcGhXWk0xcnA3ZEpPWGI0RVJR?oc=5) |
 | Democrat’s Win May Upend a Conservative Push in Virginia Universities - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQRVFNMnQtbVV6NVlOazgzRzRkTHJmdU5wcGxFUy1yMHBjTUVYdlh1cGxocDFhbDQzQTBVWEZxQi13UEM0VVFSOUJBeFhvbkJHeHhoSmdya1hFNDlhNnNVd2Y5c1NIeC16T09SS3pfRTZEOEdld1FOa2dyRzFvYXozdkcyYkxoX1hoRGRZaVFvVGdCdmxyNUh4VTFncmZXdw?oc=5) |
 
