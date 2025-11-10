@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 14:08:19（北京时间）**
+🕒 更新时间：**2025年11月10日 14:16:25（北京时间）**
 
 ---
 
@@ -10,29 +10,29 @@
 |--------|-------------|
 | Katie Razzall: A seismic moment that shows rift at top of BBC | [阅读全文](https://www.bbc.com/news/articles/c07m2v1z4evo?at_medium=RSS&at_campaign=rss) |
 | US Senate passes deal aimed at ending government shutdown | [阅读全文](https://www.bbc.com/news/articles/cpd2p2eddnzo?at_medium=RSS&at_campaign=rss) |
-| A hacking kingpin reveals all: Inside the gang that left a trail of destruction | [阅读全文](https://www.bbc.com/news/articles/cm2w0pvg4wko?at_medium=RSS&at_campaign=rss) |
-| China exempts chips used by carmakers from export curbs | [阅读全文](https://www.bbc.com/news/articles/c0rp2514g4qo?at_medium=RSS&at_campaign=rss) |
+| 'Killed because they are Alawites': Fear among Syria's minorities after the fall of Assad | [阅读全文](https://www.bbc.com/news/articles/crex1zp3213o?at_medium=RSS&at_campaign=rss) |
 | Do UN climate talks have a point any more? | [阅读全文](https://www.bbc.com/news/articles/c205jvyg3wjo?at_medium=RSS&at_campaign=rss) |
+| China exempts chips used by carmakers from export curbs | [阅读全文](https://www.bbc.com/news/articles/c0rp2514g4qo?at_medium=RSS&at_campaign=rss) |
+| A hacking kingpin reveals all: Inside the gang that left a trail of destruction | [阅读全文](https://www.bbc.com/news/articles/cm2w0pvg4wko?at_medium=RSS&at_campaign=rss) |
 | 'Chaos has gone' - quiet streets on Texas border after Trump crackdown | [阅读全文](https://www.bbc.com/news/articles/cwyn9jwqzy8o?at_medium=RSS&at_campaign=rss) |
 | Hospital failings continued after Alice Figueiredo death, leaked documents show | [阅读全文](https://www.bbc.com/news/articles/c5ypq0y7997o?at_medium=RSS&at_campaign=rss) |
-| A Kremlin target? Exiled Church man hits back at claims of spying | [阅读全文](https://www.bbc.com/news/articles/cj6n0k4x68no?at_medium=RSS&at_campaign=rss) |
+| Sex schedules and curiosity: How I keep my relationship alive | [阅读全文](https://www.bbc.com/news/articles/cj97rd0zvejo?at_medium=RSS&at_campaign=rss) |
 | Trial for suspect of deadly Magdeburg market attack begins | [阅读全文](https://www.bbc.com/news/articles/cx2l104k4vxo?at_medium=RSS&at_campaign=rss) |
-| HMRC to review suspending 23,500 child benefit payments | [阅读全文](https://www.bbc.com/news/articles/cjr0p4l2qryo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Senators take first step toward reopening the government after historic shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNbFc5UU51UF9oWW56S2hzOHo3eWpQTDNDaFc4VFotY1o5dm9JZ2d5WmxhOXZfd1ZJWnZJN1NYMUlLd2hXTHFNMF9KdXlxOFRNR25CM2xma05kQWZ0LWRWNGJwaFl0M0dvUVp5Y1NqaXdubEVMWGZ3c29mRUU5cUpkYmtqcmtldTBL?oc=5) |
-| Trump Officials Push States to ‘Undo’ Work to Send Full SNAP Benefits - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOdGJXYy14cjRCVnN5Q0RxeXdUNHAwU3EySVlORE4xUjdodjJrRi13YUpjQ0hXUndfQ1R5ZUw3OTYxbEh3UHU3amptc2JHOGhHZk45UFV1Qk5Ha1U0YzlNMzJSWEtFLTdVTjRfc3RwZ2o5NF9yZkZaMWx5aXRCSkwybm1fb1J3elNTSEo0UDVYX3dDNUd1aDdIN19wNE1VMGpNSEt3Z2tn?oc=5) |
+| US senators take first step to end government shutdown - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1CRHFSVU1WLUw4TlhfQ1hIdzNBUEhXWmxJSGlwdFVDU09VSzYyLWtJQzA4NEo2UUt6NDdBLTNtNE9zVzN3aWtyUlJVam14V1hscV9tVWwtaF95dEc2THI5d2ZuTUt1c29sSFZVZWVMVm8?oc=5) |
+| Trump administration orders states to pause paying full SNAP benefits - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNWEdGVXhyR2lYRWw0dXo2RnQtOFpJZmJ4ZU5aS0ZRWHF0UXhMdzlkSlBsZndVaExzaG1CamJOTC0xRGUyTG41QjQ3YWo1MkV6SUJfWF9XMHg5cU1GX3pUWUtuMGxVRERYYTJ3WXltckxRLUpxUE84TW5lNTJuVzlUbUxpOGRrdncwSm1v?oc=5) |
 | BBC leaders quit after backlash over edit of Trump's Jan. 6 speech in documentary - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNeFRFQ1BGVUJKNzJHN1F0VVlaM0RNUW56cGo0eFFqTmNYdFUzcC1BV0N6dFloZnJnQktFYzN4dU1CR2U4NnJRMWFjcHFoSm5BcFVabnRZdWxJUXctRURjMWVuS0NoNFdJRXJ2bU82NWRycGpCRFZEQTlPeG9sd2FpZ1B3?oc=5) |
 | Some UPS and FedEx planes are grounded. What does that mean for holiday shipping? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNSnFpVjVpNVcwMWJGZ3pvWnBCSWxFTVZramJHMmJRMEExNENNSVNhdWVfVVlDemZ3cTVBR3MtMFRvUWxIOXlkbDBrNFVhaTBZRVJfaFdCTFNLQk83MVlYMHltU0tKc2VKSTUwTjh2VkhhakpJZS04VkdsQW5ZanR2VktGTmlfaXlUWHNwTG5B?oc=5) |
-| Trump says he'll issue $2,000 tariff dividend to all except 'high-income people' - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNWHRCZjl6MGR4YVlicU5BNTQyTFdsYmdfcFpqcy13UmxKTVMtSzh6X28xeGhBNDNURUI3TXJKVU9SWVkzcDVfcmRUbU9DUUluajRWX2ZTWFZMdGtuRVUxWWJsMzk5ZERGOWl0T0pjb3dyemJJTzYzWU5DWlgzNlJQaVpKamhXOExodW9wNVZQdE56cTlNTHNpYXJ5WEJ6d3V5dUHSAacBQVVfeXFMT19UOF80RE1qa2RGZkVwMWVkT0Z1b205bS1IMVlOeU5fSS0wTVlsWC1FR0pOUDZHU0dWZzZxUFZYejVRQmpQVEk4OFlSRlBzYTBNTDJNSmN1WUszR2tOZmhlQ0h0RTBVclJpVVBMcXRSZTVTeTB2MXhON2FqRUwwVXUyZ0FOZXl5U0Y4aVNBVWtMZkpNa3pXLWhpYVR2NGRTZlpaZlhFTDg?oc=5) |
 | What is Trump’s proposal to pay Americans directly for health care costs? - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPcnA5Mk9HdnFobkVVZHBvcWlOR0d6QllHZjFUSG5KQzBiTmJrYVFZa01yVGNCUXh3VjhVTXRWUXZINXBtd1JUdDhELUxUc3FVc1lBc2F0VEo2V3hKQXZIeVhBUUxSeENKUUlHTFFGbWpYenZaMkV2XzhhQU9UcEcwVUpSdm9OZw?oc=5) |
+| One photo that captures tenderness amid chaos in the Philippines as Typhoon Fung-wong hits - AP News | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOcE1TQnBlQ0h4UHY4b2h5bmU0XzUwdmJZdE9iWHZKalpKZUlnR0pUVC1SdjlOYU9EQ01rV1pTZ2dTM09icHhsSzg0ai1WbXpPMGMzYWk2UGY2QXo0Z0w1bnhyZ2QyVEJBeGkyNTIyUGJabEx4U3N0TTJlMXloRFV4SWoxUE56SnVaS0txTnZXd0tjVEJXdUV2LTR2bDVTWTF5am45SWtB?oc=5) |
 | Flight Delays: More Than Half Of Flights Disrupted From EWR, LGA, DTW - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPSWRFUWh4aVdYckpuQk8xb2JMdl8xMGttMzJUYkM2Wi1Rc0NlclhZU0ZNU2hUSFJ3S3RDQkF1T0RDUUxYU2lYakpzU1d2RHFnVmJ6a1dPWVExZ1N4aHRlWXEzQ2hpaW90djdBcWdwNlp0TXVob3JVLUs2LVNrMlRNM1FwdmdGOU5ySTNXbnN2VUJ3NXg2N3dET1dqRWFxT1NrX1dMS2taOXJ0eWVPOVd2UVpKME9TdTgwUXc2WUJsSE1sVjdyeXJ4Sw?oc=5) |
+| Trump says he'll issue $2,000 tariff dividend to all except 'high-income people' - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMiogFBVV95cUxNWHRCZjl6MGR4YVlicU5BNTQyTFdsYmdfcFpqcy13UmxKTVMtSzh6X28xeGhBNDNURUI3TXJKVU9SWVkzcDVfcmRUbU9DUUluajRWX2ZTWFZMdGtuRVUxWWJsMzk5ZERGOWl0T0pjb3dyemJJTzYzWU5DWlgzNlJQaVpKamhXOExodW9wNVZQdE56cTlNTHNpYXJ5WEJ6d3V5dUHSAacBQVVfeXFMT19UOF80RE1qa2RGZkVwMWVkT0Z1b205bS1IMVlOeU5fSS0wTVlsWC1FR0pOUDZHU0dWZzZxUFZYejVRQmpQVEk4OFlSRlBzYTBNTDJNSmN1WUszR2tOZmhlQ0h0RTBVclJpVVBMcXRSZTVTeTB2MXhON2FqRUwwVXUyZ0FOZXl5U0Y4aVNBVWtMZkpNa3pXLWhpYVR2NGRTZlpaZlhFTDg?oc=5) |
 | 'Ferocious' Winter Storm Could Drop 8 Inches Of Snow Overnight Sunday, Weather Service Says - Block Club Chicago | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxQRnk0aFVzQWtUWTZ2MnRaMXpYdDg0VkRKRUZPdlFlMGxxUE9JaGcxaWVidVhoemRhR3Qycm05SndRbHk1MVRFOXRIVkI3ZHpNdVpTZ1ZBbS11TXRNSWJfUFU4Y0VLZDc1X1F4RWg3S0JjTm16LW9KSUVCMHhwMzRITnctM3VpQUluTXY0NEtJOGlvMWNPZEk4MGlJNmxZN3N5ejhWNzAzMllBUE5EdkpRbThWd0lwOXE3dTMzakE0QmlSV3h6TXJtRy1rTUJXVHp3NmpqVGtvVQ?oc=5) |
 | Abigail Spanberger says Democrats' election wins aren't a green light to extend shutdown - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPQW9QREJBckJUUFVhQmFPdm9xYVlKNjY2bUNkRG54YklJcnFkVG5Rd1BzN0xzUjdNZkpUaDFXZUJoTEtnSlV0OGx4Si1KS1hNX0NyRlY0ZHJESGVnN2pjT3NmTjVDTXFJSzdiWk1Rb3VicEJQVV9NSFNHTVcxbGxGVnZpR1hrWW01U0lJYjZYc2pUVEJRaUo3a3JZamJCWHpJanFkYmxyQThvQ3ZwWTNWVUpHbGxYOTk3OGpfVHVZOGVqZ9IBVkFVX3lxTE91OV9iVVMzNEFQVE10T1JoU1dTRzlEOGVMbS13bWU5UW1fcllGZnZWNVc5U3UtVGV1bHI3ZUhiWHI0a212VTctZ3FXdjVIdFpXRFNXckxn?oc=5) |
-| Ecuador prison riot leaves 4 inmates dead and dozens injured - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiZ0FVX3lxTE13Q29JQW9ia3NLNm0zXzFlbjBJd2xyYUNKanVoZE0wT0lGLW1yTDlQY3Jrb2tGekRPVVZEQnBFWV8xWHoyMFlkbEVicVJLNVhJRHNYVDdsZE1waENrQUFaNWZkdWNpRlHSAWxBVV95cUxPMi1xYnhVenBBd3hrSjhvWG5hbUl3XzdxdFBJRE1WdVg0RGJVQ0NRS3ptSjlQNTJTUkJoTXp4TkZNTEFsTTJEZ2dSRGQ1ckpmaU13WWZhN013QkxFc1hWSGg1emtRQVZ6d3d5XzU?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
