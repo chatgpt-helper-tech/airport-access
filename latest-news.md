@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月11日 00:01:40（北京时间）**
+🕒 更新时间：**2025年11月11日 00:09:01（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Chicago snow accumulation: Winter Storm Warning issued, dangerous driving conditions prompts some CPS school closings Monday - ABC7 Chicago | [阅读全文](https://news.google.com/rss/articles/CBMi7AFBVV95cUxOUGZRWjNBSlJkbnZYVnZLTlQxaFRoVWQzZE1PaVIxXzRCVXdGMy1PaWYwYkdsSjNaQVdHRmswVW95bnZvQ3hTOFlvSkEtd0g1d0RiZ0lmRUN2c3ZfZ2w1VXpTQVJQVzV4T3dXeVo3VVQwYkFOeXJBRjZmWTVrT0hDZ0V2NFYybzBLdDVuUHY5MHc4MndhSjRsVUgtdXRoQmtiOUFpYk9IYnFwRXNJOVRwdHpUdlNzQjc4SFpXWFprSS0zUHhyV0hsVWZvU1pNU2VWMEktd0ZVS0swN0JDNDBYMlpya2wzbDM2Z09XM9IB8gFBVV95cUxNaFJqQ2lyejJrOFBpaVdHb3lsVTR0aU5XS3MzODR1LVE4VmdXTjA2a0hiWUgwbjUwaFZDeER1NWNVNDBHeFlKU1ZlTzN0amlQYnROZkdjOVliQ1A2VmxKTkJ0Ml9BWUtVbS1rMVo3SVNLRGc2OEJyNlhBWWJoQ2JrWk1KUUhoVVdJNWctOFNZenZKSVFhN0hwSzBNZDNYYnZBeWFtSmJTVDAwd0NvM2c1eWNEQXlySWtXTkpWMmtxMWRsRkRTRU41MWtWcmxpNVJ5em9OMUlLbDdSX3oxNWtpZ1pRdFJ5cEkxSjhrVm1ld1pDZw?oc=5) |
 | Here’s how many flights have been canceled out of Southern California airports since Friday - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxPbFJnYm04R1gzTURBUzdiSk40LTQ3OUV1QlFDMVh4cVMzb0dDYzNWMmt5aFpHSTZkbXJLaFFkWXd0SFhrU2RKdmNMUVdaZHFab3BVTUI1OFF5Z0pJMGhsMHo2MVlkX3ZPRkVmaDNFeDBCcHFtWW94VzRhMmNPTklKbGR0bjFLV1JzR1RLekljVXhFc0NoSlB5NGRVc3FfR1M2ZWxMd29CTGJvMFNwdVR6REZmU1VMR1ZTMGg5WjhzUjZ4aDdqRVE?oc=5) |
 | Democrat’s Win May Upend a Conservative Push in Virginia Universities - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQRVFNMnQtbVV6NVlOazgzRzRkTHJmdU5wcGxFUy1yMHBjTUVYdlh1cGxocDFhbDQzQTBVWEZxQi13UEM0VVFSOUJBeFhvbkJHeHhoSmdya1hFNDlhNnNVd2Y5c1NIeC16T09SS3pfRTZEOEdld1FOa2dyRzFvYXozdkcyYkxoX1hoRGRZaVFvVGdCdmxyNUh4VTFncmZXdw?oc=5) |
-| Jeffrey Epstein co-conspirator Ghislaine Maxwell plans to seek commutation from Trump, whistleblower says - NBC News | [阅读全文](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQaVBYMEZRTjVCbFlDY1poZFhPRFVEWS0wM3VBbzQ1RDh6RlBaMEFUWXNOUGdfVmdQWTlHLVdkSVVXX2NVck5BYnRwT2RhMkNrYkQ1M0t0S1NEVWxzQWRMRHhXaGNJbVhXYnpFckkzNjZyRmtYX0szOGE3UEJMeW04MVlYMEhfMnlpanVhLVFMS0wwU2U4WGtLaHRrRkREQVZDSEdFb0FpODFpWXZoRnMxbDBCa29FR2ZaN0pj0gFWQVVfeXFMTUhuY0M5NmR1Wm1jTEpEZUZhaUhROEN4STgzbkJHYUx3dWpGT3V4TGpLbmp0X2c0dlhuc29EVVFNU3dGSGN0N2FiRHJxeER6eEU1U3hkaFE?oc=5) |
 | Arctic air hits much of the US, bringing snow to some areas and very chilly temperatures to Florida - AP News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxQVk5XbzRLeVhoMS1XUzRFLUJ2NEJTU3ptWmhpNWtUM1NwdXkxUjV0RlFuNllSTW1JZm1FUFFaMUp0bjgyQjQwODRldmZiZDhfSWhNSHhPYTRVRC15c1NjWDBLTDJJZ2NLVS0zRlJxWk5DaUdqakpadVNvdHBTc25PQXNuaE1vZS1lVnlORHJBUQ?oc=5) |
+| Hegseth says six people killed in two new US attacks on alleged drug boats - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMid0FVX3lxTFBxMFB6ZGVGZ1VFWC1ick5WeWVvYW9XV09mUzhQWWdEdzlJUEJSM0tzLVdGakdsdjBRYkNOSThMMk9VeTRiNlhKbmFDYTlSMEpzeFp4a1VWSWR1LTVFUkhMOWFFajlZcGhXWk0xcnA3ZEpPWGI0RVJR?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
