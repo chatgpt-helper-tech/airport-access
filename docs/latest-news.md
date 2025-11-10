@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 12:33:20（北京时间）**
+🕒 更新时间：**2025年11月10日 12:40:55（北京时间）**
 
 ---
 
@@ -30,8 +30,8 @@
 | Some UPS and FedEx planes are grounded. What does that mean for holiday shipping? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNSnFpVjVpNVcwMWJGZ3pvWnBCSWxFTVZramJHMmJRMEExNENNSVNhdWVfVVlDemZ3cTVBR3MtMFRvUWxIOXlkbDBrNFVhaTBZRVJfaFdCTFNLQk83MVlYMHltU0tKc2VKSTUwTjh2VkhhakpJZS04VkdsQW5ZanR2VktGTmlfaXlUWHNwTG5B?oc=5) |
 | 'Ferocious' Winter Storm Could Drop 8 Inches Of Snow Overnight Sunday, Weather Service Says - Block Club Chicago | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxQRnk0aFVzQWtUWTZ2MnRaMXpYdDg0VkRKRUZPdlFlMGxxUE9JaGcxaWVidVhoemRhR3Qycm05SndRbHk1MVRFOXRIVkI3ZHpNdVpTZ1ZBbS11TXRNSWJfUFU4Y0VLZDc1X1F4RWg3S0JjTm16LW9KSUVCMHhwMzRITnctM3VpQUluTXY0NEtJOGlvMWNPZEk4MGlJNmxZN3N5ejhWNzAzMllBUE5EdkpRbThWd0lwOXE3dTMzakE0QmlSV3h6TXJtRy1rTUJXVHp3NmpqVGtvVQ?oc=5) |
 | Flight Delays: More Than Half Of Flights Disrupted From EWR, LGA, DTW - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPSWRFUWh4aVdYckpuQk8xb2JMdl8xMGttMzJUYkM2Wi1Rc0NlclhZU0ZNU2hUSFJ3S3RDQkF1T0RDUUxYU2lYakpzU1d2RHFnVmJ6a1dPWVExZ1N4aHRlWXEzQ2hpaW90djdBcWdwNlp0TXVob3JVLUs2LVNrMlRNM1FwdmdGOU5ySTNXbnN2VUJ3NXg2N3dET1dqRWFxT1NrX1dMS2taOXJ0eWVPOVd2UVpKME9TdTgwUXc2WUJsSE1sVjdyeXJ4Sw?oc=5) |
-| What is Trump’s proposal to pay Americans directly for health care costs? - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPcnA5Mk9HdnFobkVVZHBvcWlOR0d6QllHZjFUSG5KQzBiTmJrYVFZa01yVGNCUXh3VjhVTXRWUXZINXBtd1JUdDhELUxUc3FVc1lBc2F0VEo2V3hKQXZIeVhBUUxSeENKUUlHTFFGbWpYenZaMkV2XzhhQU9UcEcwVUpSdm9OZw?oc=5) |
 | State legislators maneuver to preserve history of U.S. Capitol riot - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE9kQl9NMVVaX1I0dGhTLURQWlpwcjRWdndWSzE5SGZUWEdvREI0TkNad0hjOE15enZHQllMQzJ4V29JX203WFFKNlRLYkpPRE5XeW5vM1QwT2JPYXNlLXVkNmNHaFF4TDZNN3EtUDFOUXhWd9IBd0FVX3lxTFBFbDEzTUZzblNBbFRNQWh3OExlbVFSRGxVOEpZMXp6Z01PbmEwTm9HN29KT0RUQk16ZVZ0XzVnSVd5YnlfdkFJY2dsa2I3VWdsYkJrczBidXdKTzBZS1BKYk1BUTlzMTlYdUtadmJnZndlMkg1NmJr?oc=5) |
+| What is Trump’s proposal to pay Americans directly for health care costs? - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPcnA5Mk9HdnFobkVVZHBvcWlOR0d6QllHZjFUSG5KQzBiTmJrYVFZa01yVGNCUXh3VjhVTXRWUXZINXBtd1JUdDhELUxUc3FVc1lBc2F0VEo2V3hKQXZIeVhBUUxSeENKUUlHTFFGbWpYenZaMkV2XzhhQU9UcEcwVUpSdm9OZw?oc=5) |
 | Israel confirms receiving the remains of a soldier killed in Gaza in 2014 - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPdTlzZElwWDd0WGJBRTBMcjVKZ2FzYU0takVYR1NxTlVveXhkbFBzdjJidlhLYmZKQVlJUGVUMnVhRkV6NDRuMzduT1NGWHhuS3RvcGs3R2hRMl9HQzZCUDVsWi15OTM4aXF2eFhDcWRtemI1a292M2duaU5qclZIQ0R3UW1odVNZNTloTzZfcVhlTFlEVDlmRHBXVUttSHNQUmdtVE5HZGFtUQ?oc=5) |
 
 ---
