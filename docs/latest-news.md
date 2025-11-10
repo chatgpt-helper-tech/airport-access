@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 22:41:57（北京时间）**
+🕒 更新时间：**2025年11月10日 22:50:02（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Chicago snow accumulation: Winter Storm Warning issued, dangerous driving conditions prompts some CPS school closings Monday - ABC7 Chicago | [阅读全文](https://news.google.com/rss/articles/CBMi7AFBVV95cUxOUGZRWjNBSlJkbnZYVnZLTlQxaFRoVWQzZE1PaVIxXzRCVXdGMy1PaWYwYkdsSjNaQVdHRmswVW95bnZvQ3hTOFlvSkEtd0g1d0RiZ0lmRUN2c3ZfZ2w1VXpTQVJQVzV4T3dXeVo3VVQwYkFOeXJBRjZmWTVrT0hDZ0V2NFYybzBLdDVuUHY5MHc4MndhSjRsVUgtdXRoQmtiOUFpYk9IYnFwRXNJOVRwdHpUdlNzQjc4SFpXWFprSS0zUHhyV0hsVWZvU1pNU2VWMEktd0ZVS0swN0JDNDBYMlpya2wzbDM2Z09XM9IB8gFBVV95cUxNaFJqQ2lyejJrOFBpaVdHb3lsVTR0aU5XS3MzODR1LVE4VmdXTjA2a0hiWUgwbjUwaFZDeER1NWNVNDBHeFlKU1ZlTzN0amlQYnROZkdjOVliQ1A2VmxKTkJ0Ml9BWUtVbS1rMVo3SVNLRGc2OEJyNlhBWWJoQ2JrWk1KUUhoVVdJNWctOFNZenZKSVFhN0hwSzBNZDNYYnZBeWFtSmJTVDAwd0NvM2c1eWNEQXlySWtXTkpWMmtxMWRsRkRTRU41MWtWcmxpNVJ5em9OMUlLbDdSX3oxNWtpZ1pRdFJ5cEkxSjhrVm1ld1pDZw?oc=5) |
 | Ghislaine Maxwell's alleged prison perks spark Raskin probe into Trump administration - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxNSHhIcDQ5emxpQWZNUnhhc0k3TzByQWF5ck9EclhlYmpUTkF3bzYybE9VWlpfRzFtWlczWkxhVzBhOVExWkVGOXcyelI0ZXZGd2JRU1djZzFaTU9VZndHTGsxUlBXaVkwR2V3MzU3TGUwc1RuUDZ4dDhwY2JIUERsVjVGQmlteDVSRmVNSTVDUTVEQWpPZUZta3YzeGJpdHc5LUdxTEpn0gGrAUFVX3lxTFA2NGp4T1l6OXFCWXR1RDB5eXhrbGI3LXJiLUFfVFprRzVZQUtxdDVLSE5lQTFYcHc4RUhVMEVDTDF0c2VWZU1HTTg2NGhNbEhQZlVXbVNVd25tYmM1RG9tc1dmTTlHTUU4c1Z5YnB0RU9BRm1MZ0FKU0hpS3FRTl8ycHNQTXFEUXI4R1g2dGlTckM1R21sMkpRTHNzbW84c09pS0dBU3VHQk9wNA?oc=5) |
 | Democrat’s Win May Upend a Conservative Push in Virginia Universities - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQRVFNMnQtbVV6NVlOazgzRzRkTHJmdU5wcGxFUy1yMHBjTUVYdlh1cGxocDFhbDQzQTBVWEZxQi13UEM0VVFSOUJBeFhvbkJHeHhoSmdya1hFNDlhNnNVd2Y5c1NIeC16T09SS3pfRTZEOEdld1FOa2dyRzFvYXozdkcyYkxoX1hoRGRZaVFvVGdCdmxyNUh4VTFncmZXdw?oc=5) |
+| Emboldened, Kennedy Allies Embrace a Label They Once Rejected: ‘Anti-Vax’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQamUtY2pDMGJNaTNsVmxoLUhfbjRhSU43MFJra0N2WldaLXRnN0JJMmluQjA0TmNhTlFtVzlnVUs0ZWdHa0g2YWd3blJDVmRMV0dkRG9WMEpaV25TMjR1Wnk0a2gzS0dGdkwtZ3dwQjRpSDlNMlkycVZadDB4bGl6UFBqazNCQQ?oc=5) |
 | Syria al-Shara al-Baghdadi Trump - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxPeE1aY2ZMWnUzSmhlVWp4UE9lRURrb2VHRXFDQnVJclIxNEVwRHFpZzlPRXlKMVhmaU9BVHdGdTBjbFVETW5RX3RWQUpfUDVTLThwaldzcTZHejB1NGVIYUN6dF9CSEF0eHREQ1Z3UnB5R0kxM05fdHgyRGEtSmZOUE9aZ3FpTV95YTRCcGNYNnF3ZFdSVmRFcTBxWW5mR0NIQUdwY3pNeXZNb3JfZFVz?oc=5) |
-| John Oliver Blasts Andrew Cuomo After His Loss to Zohran Mamdani in New York’s Mayoral Race - The Hollywood Reporter | [阅读全文](https://news.google.com/rss/articles/CBMisAFBVV95cUxOcVIwWmhTSWxmZXZjNWNHVDV0cFl0aXdQWlRHWklGbERhUFFaVnZuTm5FbjI2Y011LU8tb19BN3kwS0NDSEQ2TEJhSmtkNEctbDJNaXlDQVd0aXVTenplWGNaVGF6NGNjb2NndXUwN2JqYmMyQ1JuWURmeTIyMU5ZUy1xTHAza1oxMUFmWWtvSm1IQ2FnbEs5YnNHRTZldlVlekZKempQSkNhNERWUFhMRQ?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
