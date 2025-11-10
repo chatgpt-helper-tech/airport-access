@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 16:49:37（北京时间）**
+🕒 更新时间：**2025年11月10日 16:57:59（北京时间）**
 
 ---
 
@@ -10,22 +10,22 @@
 |--------|-------------|
 | Katie Razzall: A seismic moment that shows rift at top of BBC | [阅读全文](https://www.bbc.com/news/articles/c07m2v1z4evo?at_medium=RSS&at_campaign=rss) |
 | US Senate passes deal aimed at ending government shutdown | [阅读全文](https://www.bbc.com/news/articles/cpd2p2eddnzo?at_medium=RSS&at_campaign=rss) |
-| A hacking kingpin reveals all: Inside the gang that left a trail of destruction | [阅读全文](https://www.bbc.com/news/articles/cm2w0pvg4wko?at_medium=RSS&at_campaign=rss) |
+| Jailed hacking kingpin tells how his gang stole millions | [阅读全文](https://www.bbc.com/news/articles/cm2w0pvg4wko?at_medium=RSS&at_campaign=rss) |
 | 'Killed because they are Alawites': Fear among Syria's minorities after the fall of Assad | [阅读全文](https://www.bbc.com/news/articles/crex1zp3213o?at_medium=RSS&at_campaign=rss) |
 | Trump and many leaders are skipping COP30 - so does the summit still have a point? | [阅读全文](https://www.bbc.com/news/articles/c205jvyg3wjo?at_medium=RSS&at_campaign=rss) |
 | Hospital failings continued after death of woman in mental health unit, leaked documents show | [阅读全文](https://www.bbc.com/news/articles/c5ypq0y7997o?at_medium=RSS&at_campaign=rss) |
 | China exempts chips used by carmakers from export curbs | [阅读全文](https://www.bbc.com/news/articles/c0rp2514g4qo?at_medium=RSS&at_campaign=rss) |
 | Sex schedules and curiosity: How I keep my relationship alive | [阅读全文](https://www.bbc.com/news/articles/cj97rd0zvejo?at_medium=RSS&at_campaign=rss) |
+| Dundee and US surgeons achieve world-first stroke surgery using robot | [阅读全文](https://www.bbc.com/news/articles/cjw983pvz6lo?at_medium=RSS&at_campaign=rss) |
 | Homelessness higher than official figures, research shows | [阅读全文](https://www.bbc.com/news/articles/c0ex5r4q82qo?at_medium=RSS&at_campaign=rss) |
-| 'Chaos has gone' - quiet streets on Texas border after Trump crackdown | [阅读全文](https://www.bbc.com/news/articles/cwyn9jwqzy8o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
 | Senators take first step to end US government shutdown - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1CRHFSVU1WLUw4TlhfQ1hIdzNBUEhXWmxJSGlwdFVDU09VSzYyLWtJQzA4NEo2UUt6NDdBLTNtNE9zVzN3aWtyUlJVam14V1hscV9tVWwtaF95dEc2THI5d2ZuTUt1c29sSFZVZWVMVm8?oc=5) |
-| Trump administration orders states to pause paying full SNAP benefits - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNWEdGVXhyR2lYRWw0dXo2RnQtOFpJZmJ4ZU5aS0ZRWHF0UXhMdzlkSlBsZndVaExzaG1CamJOTC0xRGUyTG41QjQ3YWo1MkV6SUJfWF9XMHg5cU1GX3pUWUtuMGxVRERYYTJ3WXltckxRLUpxUE84TW5lNTJuVzlUbUxpOGRrdncwSm1v?oc=5) |
 | BBC leaders quit after backlash over edit of Trump's Jan. 6 speech in documentary - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxNeFRFQ1BGVUJKNzJHN1F0VVlaM0RNUW56cGo0eFFqTmNYdFUzcC1BV0N6dFloZnJnQktFYzN4dU1CR2U4NnJRMWFjcHFoSm5BcFVabnRZdWxJUXctRURjMWVuS0NoNFdJRXJ2bU82NWRycGpCRFZEQTlPeG9sd2FpZ1B3?oc=5) |
+| Appeals court rules Trump administration can be forced to pay full SNAP benefits - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxNREZiVGZxSUozNFc4bDVyY3pzUk9CQUhsRldYaEpVRnBfNVZ0NV8teTZmRWxIUldxdHZKTjd2T291ZG0tY3hjekFUZUZwb2FyLVRQRGYxM3d4TlJ6eVR5ZXg0UUZUVElKRFBsZDFxNVltRmtlaVVDaU9aczFKVU53YWpyQ3FOMXplb2k5NQ?oc=5) |
 | Typhoon Fung-wong blows away from the Philippines, leaving 2 dead and 1.4 million displaced - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOR2RDd2hodlZmRDNmQl9lWVlENkdCd0szZXBsbmIxYWlxQlBxRGJudUpiLXNoV1ZpNVZmdUpRTUZyb1RoR2Vac1lKdFZHRW10SURuMFVzbXgyRFJFZW9aYVkySUZIMmVjaVB0Sm5IclVTTzNldHVPb2xwakNKeEhJcEE2cUk0ajBoM1g3V2pBcHU3akRPSGRqMTFPcmcyYmN1bWlGOXphQXVEX19wUEtFZVBST3dYWG8?oc=5) |
 | Trump Renews Attacks on Obamacare in New Push Over Government Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOTC0wQjAwWXhzYW9wbDNRMDZRajdJUkNaVkx4dFU3SmxreXVIQ2E2S294NTZndHo0cUtsdENtWlBTdmg1QlhOTlhjWmpXQ1ZGdTBRYmJ0Z2JxbDNPTG1nMTItTEx3Nng2RDlzdHBPR2g5dkdqblJ6N1IxaURzQXF5SFR3?oc=5) |
 | 'Ferocious' Winter Storm Could Drop 8 Inches Of Snow Overnight Sunday, Weather Service Says - Block Club Chicago | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxQRnk0aFVzQWtUWTZ2MnRaMXpYdDg0VkRKRUZPdlFlMGxxUE9JaGcxaWVidVhoemRhR3Qycm05SndRbHk1MVRFOXRIVkI3ZHpNdVpTZ1ZBbS11TXRNSWJfUFU4Y0VLZDc1X1F4RWg3S0JjTm16LW9KSUVCMHhwMzRITnctM3VpQUluTXY0NEtJOGlvMWNPZEk4MGlJNmxZN3N5ejhWNzAzMllBUE5EdkpRbThWd0lwOXE3dTMzakE0QmlSV3h6TXJtRy1rTUJXVHp3NmpqVGtvVQ?oc=5) |
