@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 09:33:53（北京时间）**
+🕒 更新时间：**2025年11月10日 09:41:06（北京时间）**
 
 ---
 
@@ -23,7 +23,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Deal to end government shutdown in reach - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOMVRFNU1OTXBvTk5MSThfNkdSRWtfSk9jc2pYZFpRYXBTS3ZNeEJ6cm1HMmhhdkRWNk1YU3VQNGdxZHd5Z0tUS1VkamJZVmdiSXNNWkFCLW1PVkduZ1RPTFB0SWtaZWI3NFh1NWhVbnZNc1BMdVBJRGRtMElHZUlYTVFkYnh6QmNuLUpZ?oc=5) |
+| Senate on track to pass funding deal that could end government shutdown - CNBC | [阅读全文](https://news.google.com/rss/articles/CBMifkFVX3lxTFB5RFNlVENaejRhZ3NMaWVkaTRaRGQ2ME5KOV9nOURqTnBRVTNjZUp0Um5EcDZDT1V4dmlVX3piRzNudTVudE9oMktlaWNNaDd1cVZyMksxMmtJWUJJLVFPZHdmQ19RNzRMR3g0Rnh1QUNwQmNPR0swYmFPZnNZZ9IBgwFBVV95cUxNbXlBeUM1bk5GZWQxZ2x0QmJtS1lJdDJvRWo5QUNhU3UzeVBxMmVzdmZ1cGUtVElHTGhkZmk0czhJX3MwX2wzd2ZUY1R3Q0VfaG16UjRiSHRUOXpsUlNmQkc1TE15NVZ1M1ZVSUV4N3hvWE5GdmJ0SnlOZno2Q1lhWkNSSQ?oc=5) |
 | BBC boss and head of news quit after criticism of Trump documentary edit - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxONXRQUTNWVXpscXh4c1MwMHVGUzAwNW0zRlRSNi14VVk2QXp1VWdLQjVpcDZGZWhTT0tCclZoYTBtZDBHWFk4amR6MnRFT3hNVmpXdklQZjlfMkxfTW4yZEZ1SWpHV1hKMHFYZ2tIdldzT01EQWpfd2c1ci1oUVZiZmJMRktSaEwwVnpPZzNWYk9MUDBGWF81UkkwZE1TZVhrWjJ2aURrTWstOWZ0YmhZajFuMFFaTzd1bTRvRTYzeGVNaWJwNnpuQ0VLSGM4X1Y3TjJJ?oc=5) |
 | Trump Officials Push States to ‘Undo’ Work to Send Full SNAP Benefits - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOdGJXYy14cjRCVnN5Q0RxeXdUNHAwU3EySVlORE4xUjdodjJrRi13YUpjQ0hXUndfQ1R5ZUw3OTYxbEh3UHU3amptc2JHOGhHZk45UFV1Qk5Ha1U0YzlNMzJSWEtFLTdVTjRfc3RwZ2o5NF9yZkZaMWx5aXRCSkwybm1fb1J3elNTSEo0UDVYX3dDNUd1aDdIN19wNE1VMGpNSEt3Z2tn?oc=5) |
 | Trump says tariffs to yield dividends 'of at least $2,000 a person' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQWDQwSlRjZDNJbVRvaTEyRWg2ZnNhQXZpYzNwQlJ6cWRTek9fNGRyQVpXNDhwc1hQVGlxWUFidW9JQm9lcWNIMGhLQk11bERtdmZxSGJtdkdTM05LRVFNZ2dKVjNEZ3RTYnJ5Qk4wMVZocVUzQkdwbkoxTzhzXzdFN1J4V2lfajQ?oc=5) |
