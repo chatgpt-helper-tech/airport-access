@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 15:25:53（北京时间）**
+🕒 更新时间：**2025年11月10日 15:33:40（北京时间）**
 
 ---
 
@@ -23,10 +23,10 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Senate Moves Toward Ending Shutdown After Democratic Defectors Relent - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNTVhIMWlxc1M4WFBUdVl1UVNWMXhOSFhvWm56cElwRUc0RFVHWjNrUzExWEQ4YzdhU3hBSVVET3IwUVRadmVZaWhZQ0U0OGV4bnhRcmJUY0JuVU5JeW96QlNUX3RCeS1xV0U0LXo2eHFSU1k3aG9RNENTVFN0MC0xaF9MUXhkbktGT3BR?oc=5) |
+| US senators take first step to end government shutdown - Financial Times | [阅读全文](https://news.google.com/rss/articles/CBMicEFVX3lxTE1CRHFSVU1WLUw4TlhfQ1hIdzNBUEhXWmxJSGlwdFVDU09VSzYyLWtJQzA4NEo2UUt6NDdBLTNtNE9zVzN3aWtyUlJVam14V1hscV9tVWwtaF95dEc2THI5d2ZuTUt1c29sSFZVZWVMVm8?oc=5) |
 | Top BBC bosses resign after criticism of the broadcaster’s editing of a Trump speech - AP News | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPQ3VhUkJZeHBHbXZDRXJtdzNYRmNtR1p5QTBHSnFBVzB6ZnJfelF2blQtdW12VWRSNndtdXBHV1FuTy11NERWWk1tQlVrbzFXcy1OampYS0ktckVyTmJLeHhGUlVUN2l2YVdhdHQ0XzhER2FoWXVqd1dUemNKMlU1VHdKWmRUcDI3QzdKR0dfUW1oOTVqT0RvaGdrQkdHaEtQLTJJ?oc=5) |
 | Trump administration orders states to pause paying full SNAP benefits - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNWEdGVXhyR2lYRWw0dXo2RnQtOFpJZmJ4ZU5aS0ZRWHF0UXhMdzlkSlBsZndVaExzaG1CamJOTC0xRGUyTG41QjQ3YWo1MkV6SUJfWF9XMHg5cU1GX3pUWUtuMGxVRERYYTJ3WXltckxRLUpxUE84TW5lNTJuVzlUbUxpOGRrdncwSm1v?oc=5) |
-| What is Trump’s proposal to pay Americans directly for health care costs? - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPcnA5Mk9HdnFobkVVZHBvcWlOR0d6QllHZjFUSG5KQzBiTmJrYVFZa01yVGNCUXh3VjhVTXRWUXZINXBtd1JUdDhELUxUc3FVc1lBc2F0VEo2V3hKQXZIeVhBUUxSeENKUUlHTFFGbWpYenZaMkV2XzhhQU9UcEcwVUpSdm9OZw?oc=5) |
+| Trump Renews Attacks on Obamacare in New Push Over Government Shutdown - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiggFBVV95cUxOTC0wQjAwWXhzYW9wbDNRMDZRajdJUkNaVkx4dFU3SmxreXVIQ2E2S294NTZndHo0cUtsdENtWlBTdmg1QlhOTlhjWmpXQ1ZGdTBRYmJ0Z2JxbDNPTG1nMTItTEx3Nng2RDlzdHBPR2g5dkdqblJ6N1IxaURzQXF5SFR3?oc=5) |
 | 'Ferocious' Winter Storm Could Drop 8 Inches Of Snow Overnight Sunday, Weather Service Says - Block Club Chicago | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxQRnk0aFVzQWtUWTZ2MnRaMXpYdDg0VkRKRUZPdlFlMGxxUE9JaGcxaWVidVhoemRhR3Qycm05SndRbHk1MVRFOXRIVkI3ZHpNdVpTZ1ZBbS11TXRNSWJfUFU4Y0VLZDc1X1F4RWg3S0JjTm16LW9KSUVCMHhwMzRITnctM3VpQUluTXY0NEtJOGlvMWNPZEk4MGlJNmxZN3N5ejhWNzAzMllBUE5EdkpRbThWd0lwOXE3dTMzakE0QmlSV3h6TXJtRy1rTUJXVHp3NmpqVGtvVQ?oc=5) |
 | Nearly a million people evacuate as Super Typhoon Fung-wong threatens the Philippines - NPR | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxOc0JqQTM0SWswdFpIOUhabnNhNUpGbUNaYmVkTnE0V3J3LThTTTNvOVZjMm5YYXFDbUlEaTlMYkgzclB3Tzl6dklUY2p4MmlaWTUxNmMtZ09MU01iMVQtZURMZjllZWVaNk5vQ0ZTU0xfNGdSZEVWdjNjelRwWHdSSC1SMkZZVTY0RUZVMlA4NVRoMXA4RWtUR1FTUUF5enhpd28zQ1NIc1Rqd3M1X1l5OTVlbi03NGpMY2VVTGo5U0tYeTUzcHc?oc=5) |
 | Flight Delays: More Than Half Of Flights Disrupted From EWR, LGA, DTW - Forbes | [阅读全文](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPSWRFUWh4aVdYckpuQk8xb2JMdl8xMGttMzJUYkM2Wi1Rc0NlclhZU0ZNU2hUSFJ3S3RDQkF1T0RDUUxYU2lYakpzU1d2RHFnVmJ6a1dPWVExZ1N4aHRlWXEzQ2hpaW90djdBcWdwNlp0TXVob3JVLUs2LVNrMlRNM1FwdmdGOU5ySTNXbnN2VUJ3NXg2N3dET1dqRWFxT1NrX1dMS2taOXJ0eWVPOVd2UVpKME9TdTgwUXc2WUJsSE1sVjdyeXJ4Sw?oc=5) |
