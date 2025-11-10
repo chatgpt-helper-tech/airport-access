@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 08:49:54（北京时间）**
+🕒 更新时间：**2025年11月10日 08:57:06（北京时间）**
 
 ---
 
@@ -17,15 +17,15 @@
 | A moment of stillness for Royal Family and veterans at poignant Remembrance | [阅读全文](https://www.bbc.com/news/articles/cdx4dpl0g97o?at_medium=RSS&at_campaign=rss) |
 | Do UN climate talks have a point any more? | [阅读全文](https://www.bbc.com/news/articles/c205jvyg3wjo?at_medium=RSS&at_campaign=rss) |
 | HMRC to review suspending 23,500 child benefit payments | [阅读全文](https://www.bbc.com/news/articles/cjr0p4l2qryo?at_medium=RSS&at_campaign=rss) |
-| Care workers charged following BBC Panorama probe | [阅读全文](https://www.bbc.com/news/articles/c14p2jkrvy7o?at_medium=RSS&at_campaign=rss) |
+| 'Chaos has gone' - quiet streets on Texas border after Trump crackdown | [阅读全文](https://www.bbc.com/news/articles/cwyn9jwqzy8o?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Thune Says Deal to Reopen Government Is ‘Coming Together’ - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNTVhIMWlxc1M4WFBUdVl1UVNWMXhOSFhvWm56cElwRUc0RFVHWjNrUzExWEQ4YzdhU3hBSVVET3IwUVRadmVZaWhZQ0U0OGV4bnhRcmJUY0JuVU5JeW96QlNUX3RCeS1xV0U0LXo2eHFSU1k3aG9RNENTVFN0MC0xaF9MUXhkbktGT3BR?oc=5) |
+| Government shutdown live updates as Thune plans Senate vote amid rare Sunday session - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQM3BScFNpZGtNb0cxQkw4NzV0dGprRWxfZWdvWEltVE9EbjYyUFBVQ3RsbUdITzRsY2VTQk80eEsxTDlURjR6OFk4NUFQZi0zZ1ZGX2xDT1liQXI2ZGViV2tmQ1VyekRHTlREQkFFTXdYa0xFNC00U1VRRmp4UlBHLUQwcWxrY202WGR2STd1WW7SAZYBQVVfeXFMTVpuMFY3NjdrX09zdlVUclkxVG1nb3JkRlpKbW0tam5lOWxHdFN5N192SUNzYXpnWEMyLTNPZndOa1lyZ2pqZ0VjdVF5alc2MGlZc1NWcEVYOVVySVNhdWJFZk1jTzIwNFdQWUJjeW1YTkxQQzJuNlk3cy12cW1hSnByS2phRHQxSnA1Xy1JNWMxSTI2YnJB?oc=5) |
 | BBC boss and head of news quit after criticism of Trump documentary edit - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMi0wFBVV95cUxONXRQUTNWVXpscXh4c1MwMHVGUzAwNW0zRlRSNi14VVk2QXp1VWdLQjVpcDZGZWhTT0tCclZoYTBtZDBHWFk4amR6MnRFT3hNVmpXdklQZjlfMkxfTW4yZEZ1SWpHV1hKMHFYZ2tIdldzT01EQWpfd2c1ci1oUVZiZmJMRktSaEwwVnpPZzNWYk9MUDBGWF81UkkwZE1TZVhrWjJ2aURrTWstOWZ0YmhZajFuMFFaTzd1bTRvRTYzeGVNaWJwNnpuQ0VLSGM4X1Y3TjJJ?oc=5) |
-| Trump administration orders states to pause paying full SNAP benefits - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNWEdGVXhyR2lYRWw0dXo2RnQtOFpJZmJ4ZU5aS0ZRWHF0UXhMdzlkSlBsZndVaExzaG1CamJOTC0xRGUyTG41QjQ3YWo1MkV6SUJfWF9XMHg5cU1GX3pUWUtuMGxVRERYYTJ3WXltckxRLUpxUE84TW5lNTJuVzlUbUxpOGRrdncwSm1v?oc=5) |
+| Trump Officials Push States to ‘Undo’ Work to Send Full SNAP Benefits - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMipgFBVV95cUxOdGJXYy14cjRCVnN5Q0RxeXdUNHAwU3EySVlORE4xUjdodjJrRi13YUpjQ0hXUndfQ1R5ZUw3OTYxbEh3UHU3amptc2JHOGhHZk45UFV1Qk5Ha1U0YzlNMzJSWEtFLTdVTjRfc3RwZ2o5NF9yZkZaMWx5aXRCSkwybm1fb1J3elNTSEo0UDVYX3dDNUd1aDdIN19wNE1VMGpNSEt3Z2tn?oc=5) |
 | Trump says tariffs to yield dividends 'of at least $2,000 a person' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQWDQwSlRjZDNJbVRvaTEyRWg2ZnNhQXZpYzNwQlJ6cWRTek9fNGRyQVpXNDhwc1hQVGlxWUFidW9JQm9lcWNIMGhLQk11bERtdmZxSGJtdkdTM05LRVFNZ2dKVjNEZ3RTYnJ5Qk4wMVZocVUzQkdwbkoxTzhzXzdFN1J4V2lfajQ?oc=5) |
 | Some UPS and FedEx planes are grounded. What does that mean for holiday shipping? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNSnFpVjVpNVcwMWJGZ3pvWnBCSWxFTVZramJHMmJRMEExNENNSVNhdWVfVVlDemZ3cTVBR3MtMFRvUWxIOXlkbDBrNFVhaTBZRVJfaFdCTFNLQk83MVlYMHltU0tKc2VKSTUwTjh2VkhhakpJZS04VkdsQW5ZanR2VktGTmlfaXlUWHNwTG5B?oc=5) |
 | What is Trump’s proposal to pay Americans directly for health care costs? - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPcnA5Mk9HdnFobkVVZHBvcWlOR0d6QllHZjFUSG5KQzBiTmJrYVFZa01yVGNCUXh3VjhVTXRWUXZINXBtd1JUdDhELUxUc3FVc1lBc2F0VEo2V3hKQXZIeVhBUUxSeENKUUlHTFFGbWpYenZaMkV2XzhhQU9UcEcwVUpSdm9OZw?oc=5) |
