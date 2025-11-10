@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 11:41:33（北京时间）**
+🕒 更新时间：**2025年11月10日 11:48:20（北京时间）**
 
 ---
 
@@ -30,9 +30,9 @@
 | FAA bars MD-11 flights after fiery UPS jet crash - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivwFBVV95cUxNVWhrOXF0YTlDSTZRQjRNN2FaZHRwLUxwOHJyX18yZFhnU1dQUXQyNFhLVzh4YUh2czY4b3BuT2FKazhtR2x5c1NmVlRlSXNZQ1hHNGlxSXNYNGp5ME53ZkZXUjFhLVMtQ1NOR0hOcUkyWk1YVzUxRmZfUGZIb2Ytc210VElDQWNQWFE4MmNxV3JUMWNSbmx0UXlrYTV5UGx5d0JFVnZkeWNCRzJKSG1nbnNKOGhFWGo4ZTJRbWZJVQ?oc=5) |
 | 'Ferocious' Winter Storm Could Drop 8 Inches Of Snow Overnight Sunday, Weather Service Says - Block Club Chicago | [阅读全文](https://news.google.com/rss/articles/CBMi1wFBVV95cUxQRnk0aFVzQWtUWTZ2MnRaMXpYdDg0VkRKRUZPdlFlMGxxUE9JaGcxaWVidVhoemRhR3Qycm05SndRbHk1MVRFOXRIVkI3ZHpNdVpTZ1ZBbS11TXRNSWJfUFU4Y0VLZDc1X1F4RWg3S0JjTm16LW9KSUVCMHhwMzRITnctM3VpQUluTXY0NEtJOGlvMWNPZEk4MGlJNmxZN3N5ejhWNzAzMllBUE5EdkpRbThWd0lwOXE3dTMzakE0QmlSV3h6TXJtRy1rTUJXVHp3NmpqVGtvVQ?oc=5) |
 | Here’s how many flights have been canceled out of Southern California airports since Friday - Los Angeles Times | [阅读全文](https://news.google.com/rss/articles/CBMixgFBVV95cUxPbFJnYm04R1gzTURBUzdiSk40LTQ3OUV1QlFDMVh4cVMzb0dDYzNWMmt5aFpHSTZkbXJLaFFkWXd0SFhrU2RKdmNMUVdaZHFab3BVTUI1OFF5Z0pJMGhsMHo2MVlkX3ZPRkVmaDNFeDBCcHFtWW94VzRhMmNPTklKbGR0bjFLV1JzR1RLekljVXhFc0NoSlB5NGRVc3FfR1M2ZWxMd29CTGJvMFNwdVR6REZmU1VMR1ZTMGg5WjhzUjZ4aDdqRVE?oc=5) |
-| State legislators maneuver to preserve history of U.S. Capitol riot - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE9kQl9NMVVaX1I0dGhTLURQWlpwcjRWdndWSzE5SGZUWEdvREI0TkNad0hjOE15enZHQllMQzJ4V29JX203WFFKNlRLYkpPRE5XeW5vM1QwT2JPYXNlLXVkNmNHaFF4TDZNN3EtUDFOUXhWd9IBd0FVX3lxTFBFbDEzTUZzblNBbFRNQWh3OExlbVFSRGxVOEpZMXp6Z01PbmEwTm9HN29KT0RUQk16ZVZ0XzVnSVd5YnlfdkFJY2dsa2I3VWdsYkJrczBidXdKTzBZS1BKYk1BUTlzMTlYdUtadmJnZndlMkg1NmJr?oc=5) |
 | What is Trump’s proposal to pay Americans directly for health care costs? - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPcnA5Mk9HdnFobkVVZHBvcWlOR0d6QllHZjFUSG5KQzBiTmJrYVFZa01yVGNCUXh3VjhVTXRWUXZINXBtd1JUdDhELUxUc3FVc1lBc2F0VEo2V3hKQXZIeVhBUUxSeENKUUlHTFFGbWpYenZaMkV2XzhhQU9UcEcwVUpSdm9OZw?oc=5) |
-| Hamas Hands Over Body of Hadar Goldin, Israeli Soldier Held Since 2014 - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxPUHBfZUVvUlI5clZQc3dFYmhSeG5fR0dwRUV3SDZ1SVZNTjJLX3lDVDg1Z3lWZzYwQ0dEQ2U0cVUtMGtfZkVhdDdYbUt3RVFvckxsVjhTbnE2RGp0UUhfcDU3NUZSV2M4dkVseWNSa0kxNThhbzZfbnI1bGxJU1Z6YmNBeUgybjJVakE?oc=5) |
+| Maryland Gov. Wes Moore says "we're not going to sit on our hands because Donald Trump tells us to" on redistricting - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxOamIxcGVoWTJRQ2o2RE13aXl0Mzc5d0hjcHlUSGNOUGthSGNjV3NZUHlZcDhKN0pWUEt6TW4yNFJXRW1JMFpuVGlGRzFVc3d4Ymg5Yi1BSjluaDl4YTZNUDJkODZBRVp5MWhKMnprbTAwNjFGM0VQNzFHZE8tTHZEUnRpZVbSAYoBQVVfeXFMUERpSUZvM2VJMGs0RVY3YmE5a21WeG8xaTBJOUtTXzAzQzljNE5SSmtJMjAtTTRaR2JrOEkzTXJMaEtEdXFzZUFTRnZ4Q1l5MGRNNXpfNHBxTDRMSEViZ2FwZWhwSkVxcUpEaEkyN0pNbmtHZDJTWHdIR3NCREI3VXVpbDRGMFBwd1l3?oc=5) |
+| State legislators maneuver to preserve history of U.S. Capitol riot - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMickFVX3lxTE9kQl9NMVVaX1I0dGhTLURQWlpwcjRWdndWSzE5SGZUWEdvREI0TkNad0hjOE15enZHQllMQzJ4V29JX203WFFKNlRLYkpPRE5XeW5vM1QwT2JPYXNlLXVkNmNHaFF4TDZNN3EtUDFOUXhWd9IBd0FVX3lxTFBFbDEzTUZzblNBbFRNQWh3OExlbVFSRGxVOEpZMXp6Z01PbmEwTm9HN29KT0RUQk16ZVZ0XzVnSVd5YnlfdkFJY2dsa2I3VWdsYkJrczBidXdKTzBZS1BKYk1BUTlzMTlYdUtadmJnZndlMkg1NmJr?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
