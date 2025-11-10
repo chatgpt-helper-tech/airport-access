@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月10日 08:24:54（北京时间）**
+🕒 更新时间：**2025年11月10日 08:33:26（北京时间）**
 
 ---
 
@@ -23,9 +23,9 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Deal to end government shutdown in reach - Axios | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOMVRFNU1OTXBvTk5MSThfNkdSRWtfSk9jc2pYZFpRYXBTS3ZNeEJ6cm1HMmhhdkRWNk1YU3VQNGdxZHd5Z0tUS1VkamJZVmdiSXNNWkFCLW1PVkduZ1RPTFB0SWtaZWI3NFh1NWhVbnZNc1BMdVBJRGRtMElHZUlYTVFkYnh6QmNuLUpZ?oc=5) |
+| Government shutdown live updates as Thune plans Senate vote amid rare Sunday session - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMikAFBVV95cUxQM3BScFNpZGtNb0cxQkw4NzV0dGprRWxfZWdvWEltVE9EbjYyUFBVQ3RsbUdITzRsY2VTQk80eEsxTDlURjR6OFk4NUFQZi0zZ1ZGX2xDT1liQXI2ZGViV2tmQ1VyekRHTlREQkFFTXdYa0xFNC00U1VRRmp4UlBHLUQwcWxrY202WGR2STd1WW7SAZYBQVVfeXFMTVpuMFY3NjdrX09zdlVUclkxVG1nb3JkRlpKbW0tam5lOWxHdFN5N192SUNzYXpnWEMyLTNPZndOa1lyZ2pqZ0VjdVF5alc2MGlZc1NWcEVYOVVySVNhdWJFZk1jTzIwNFdQWUJjeW1YTkxQQzJuNlk3cy12cW1hSnByS2phRHQxSnA1Xy1JNWMxSTI2YnJB?oc=5) |
 | BBC director general Tim Davie and News CEO Deborah Turness resign over Trump documentary edit - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE91ZzR6eGhvR1hMN2MxTHBvYlE2UVdtT0ZnSWc3ZUpyXzJnTDVHUnVLRW8weG1rZFlHdVQ1UUNLdjlNclUxUWtnX2JKblAxa3AySkxaRnVTbW9WZ9IBX0FVX3lxTE5oaF91Z3J0amhDTFRoNWxaTlUtOW5BWi1XNThSbnYxMW1faUNrTzFVdTEyVjg2eHU2MXQ3bDlfV1RnOElFdDVwU1pOZ2k5cGc0ai1WVEZuUUd4SEVvLUh3?oc=5) |
-| Trump administration orders states to pause paying full SNAP benefits - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNWEdGVXhyR2lYRWw0dXo2RnQtOFpJZmJ4ZU5aS0ZRWHF0UXhMdzlkSlBsZndVaExzaG1CamJOTC0xRGUyTG41QjQ3YWo1MkV6SUJfWF9XMHg5cU1GX3pUWUtuMGxVRERYYTJ3WXltckxRLUpxUE84TW5lNTJuVzlUbUxpOGRrdncwSm1v?oc=5) |
+| Trump administration orders states to "undo" full SNAP benefits - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE02YkFkV1VTOUVLM3hTTEtESlRpM1RWNFJUYVA0bmFoellqMnJwSkRIVXFyQnZoVlkzb090cUdpT01heUV6dXA5ZEVkTDNJX1ZkQ0l2cGtIN0hOY05hRll0N2tYMUdWazdjeUFzdnA2WDRiZjQ2Z3Rlcw?oc=5) |
 | Trump says tariffs to yield dividends 'of at least $2,000 a person' - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxQWDQwSlRjZDNJbVRvaTEyRWg2ZnNhQXZpYzNwQlJ6cWRTek9fNGRyQVpXNDhwc1hQVGlxWUFidW9JQm9lcWNIMGhLQk11bERtdmZxSGJtdkdTM05LRVFNZ2dKVjNEZ3RTYnJ5Qk4wMVZocVUzQkdwbkoxTzhzXzdFN1J4V2lfajQ?oc=5) |
 | What is Trump’s proposal to pay Americans directly for health care costs? - CNN | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPcnA5Mk9HdnFobkVVZHBvcWlOR0d6QllHZjFUSG5KQzBiTmJrYVFZa01yVGNCUXh3VjhVTXRWUXZINXBtd1JUdDhELUxUc3FVc1lBc2F0VEo2V3hKQXZIeVhBUUxSeENKUUlHTFFGbWpYenZaMkV2XzhhQU9UcEcwVUpSdm9OZw?oc=5) |
 | Some UPS and FedEx planes are grounded. What does that mean for holiday shipping? - NPR | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNSnFpVjVpNVcwMWJGZ3pvWnBCSWxFTVZramJHMmJRMEExNENNSVNhdWVfVVlDemZ3cTVBR3MtMFRvUWxIOXlkbDBrNFVhaTBZRVJfaFdCTFNLQk83MVlYMHltU0tKc2VKSTUwTjh2VkhhakpJZS04VkdsQW5ZanR2VktGTmlfaXlUWHNwTG5B?oc=5) |
