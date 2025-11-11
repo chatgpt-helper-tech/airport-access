@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月11日 12:09:11（北京时间）**
+🕒 更新时间：**2025年11月11日 12:16:30（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Senate advances funding package expected to end longest US government shutdown - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPWWU2UHptUVBJTmQzYmo4a2NhSnpocWZjaWczS3o0WjVQaGk3MDdrTUNvZnZXbGJCTDdPNzBFa0loMVNVeDJFU3pLVkJGbXBFU2tnTlh1SEpJVE11YTdvQVZvVDZpbGh3TFlJLVI3TU45TmR0VU40czMyNFNSZVNuaEVicXBud3NJRVdQQ2NubWxvM0hWUWl4VlNORklZeVUw?oc=5) |
-| Progressive group MoveOn calls on Schumer to step aside - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE14ZFVvQmxOODNvRHZ3bFNCUmU1TFJuMGkydHJCQnlKa2FaRUlHemotZmxERF82OFVPQUhScmpFcW9CbHBuNWx5ZWRqb2FkbkJFYU5BZFBQdk1GZURtcEtXQ0xJT0MyWXh5Vy1IRFdYU2w4ckF4bzZDOQ?oc=5) |
+| Government shutdown live updates as Senate approves funding package, sending it to House - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOaDBLM0NSWGcyamhyckRBdlVOczZuVV84Zi1renVDVHdndERJRmhuemdhWk84NmtQOG54ZG9tcHZfNHhsaFh0WnNKSTdONXUyc2xhemRiTEVqNF9VUUlxaWJnM2pHLTdSMDlmTm1oUGpBb1JqbnQ4NkJPNmJNNkc0d1BMWTJ1UlRXTllB0gGQAUFVX3lxTFBnaS1EQ05meVU1RnNCMXZBZjlMc1ZuSUlaUjAtbXNKUnBuLVhHUFBlWFBGR0NmR1UtNEoyM2piSjBQemJYNGkzMmthblBsZDl2VDh5YWdSZ19tOGhCVHFHVzYtbWR3WV9fWmVUS1BUUThnLXdxWHhCWk1PcUc5dEVzc3RHczBtelNMUVdKMC1EUA?oc=5) |
 | Former pardon attorney says Trump's latest pardons set an 'alarming precedent' - WBUR | [阅读全文](https://news.google.com/rss/articles/CBMib0FVX3lxTE5tcXo3ejQ4OXJ1Y29oSlVpZHhQVExsVi1wWEVmdWFhS1p5X1pHbGJ4VlNSZTAyODRxSlJ1MGJfUF8xUXQ4emNyZ0k5aUhpSzRlS1g1ei1IeXFSTXY5NURuRC1PdkZSYS12TEgyb1h4OA?oc=5) |
-| Local hemp producers stunned as deal to reopen government attacks hemp - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNQXlkWHVpY3RqVXFvSlRWQ0EzLVVUWFdXNkZpN3B2YXNkZi1Ia19wVTJMNHlEVDllTlF6bjRIT0lLWk9DS0FDaXRUZXdiZDFzSERBVnJCM2pNY09IS21RWlhCVGRGTDVYc1FUclR1VmlhdVV2ZlU4RmdMZExWZG1HazVoYmJ5REwtOWp3SU52SGt6WTdOb2c?oc=5) |
-| Trump administration asks Supreme Court to intervene in SNAP fight again - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPMVBzanJTNksxQzdMX0cyR1dKdmpyYVQ4dTZPVzdvVFRCNVZlTUo3NG9JdnNoeWZraE94emVBbGhXNGNKUW1IXzNkbkFxMW1QSVM4U2NhbzJOZ1ZyUWR6TmthUmFrTDBPNjdnZUNjMHJsX0ZxVTF3SndZWjN2SEl1UXBCQkI2S09CcHNhenM1elZyUHFORWM4dHhlTmhHM3d2aWdZ?oc=5) |
 | Trump Threatens to Sue the BBC for $1 Billion After Jan. 6 Documentary - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNMVk4T19mRnhxR1NTXzBGSm9hODVpV0UzVkJ3REhQQ0NZN0V2R18taUpDd0I3YU9ERGRvU1hDODdic084RmhIRzhVY2pQTEx1dGpyVEJwbHJnUGl4djlTUV9haW02YWxwZEtlVUZtUVJvRnd5bUlNejhGY1NhRGV5TEpCYTU4eWlWOXc?oc=5) |
+| Trump slams air traffic controllers who called out during the government shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOWTdHc00yQ09Fd3F6Z2ZtNnJFWVdlQmtfUlNqU2VValV2TTBDamdTc1R2R0prVmxfV1E1TEwtMTF0d3J4LVppTmFST20yeGtLQ2hPZUswUDZGQmE4V1E2NTBrdkYyaVhvdlVvX1pGalFEUlBHOFBrODVuM0JqVldKRVBnLU5Ia2YxTXg4M2UzbDdtZnRXUjY0Z3lUcmc?oc=5) |
+| Senate rejects Paul’s hemp pitch - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOczZnUmVrTUVOREFvLWdoOXotYXJMNXM1Q2k1LVdHcVZRdEF5MkhzbXlKeUkyTldiSVFPZnpSa1NUVjNVVkZfWHlsUjB3OHFGZHNTNTlUdDBJb3JOR0xrZ2tlbHRBdk9XeU9JUFFwSGJHQ1VnRndNWmhiQWgzMDVhRFJ4Nlo3N1FJcjBCMkxyVml0WVZzVWNyaW9naWg1dUxo?oc=5) |
+| Trump administration asks Supreme Court to intervene in SNAP fight again - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPMVBzanJTNksxQzdMX0cyR1dKdmpyYVQ4dTZPVzdvVFRCNVZlTUo3NG9JdnNoeWZraE94emVBbGhXNGNKUW1IXzNkbkFxMW1QSVM4U2NhbzJOZ1ZyUWR6TmthUmFrTDBPNjdnZUNjMHJsX0ZxVTF3SndZWjN2SEl1UXBCQkI2S09CcHNhenM1elZyUHFORWM4dHhlTmhHM3d2aWdZ?oc=5) |
 | Supreme Court won’t hear challenge to landmark gay marriage ruling - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNdUJoU2dhOXJHTUx1ZzNPclFzb2NHMFpnR1dKVFM1bmMtX29GOXBCTUViUE0zRWg2QkVxQ21Hd3RpelZpOWpFN3B5MGhzaUZIM1REQTFPZ0NVRWdNSWxkcmc4Rmt2VEVRRHFGLXBTb2pUWGRodlgwRzFrM3hPYXozM2FPLWlhT0tVYWhr?oc=5) |
 | Families of Camp Mystic campers, counselors who died in Texas flood file lawsuits - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOTk8tYnNnNkFqT3pTMHFLdkR4ZDd2ZHlCbWNGOEUydVdOMUNOOG81NlBHSlVld2ppQU04RWhuS3pNZ2FkNnVfeGViWU0xZlgxOHZjOW1nYXRUZWgtem1ZUmhyWnNzbFdDZERXbXhXb0F4S3daZTZ2a1c3MkJtNlo4ZHJ5NHhZMXFyQTNrelRjWW13eHB4NnJ6MUN1RHVtTFNSeTlv0gGoAUFVX3lxTE9aUDMxWFBRMHd2RjM2OWZZRjlaaFpaTXhMdkpfYXQ1OUt3RTZ5YmNNYUdTT1pTWDQ1WFAyaGVMY1NEa0lJOVBFNUFSLXJsbklmUEJyNEh6RTJNMkkzazJJR0VlRFpYVnYwM25sYktDcDhiRTYzOXY4eG5QRkd3d3VoQUM4Z2RIamdwT1IzZnVuS0lZYmNQaEpKRkIzS1V5MTdVa0h4Ul9TVA?oc=5) |
 | What to know about Trump's pitch for a $2,000 tariff dividend - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNQnR3b0JxZG5pTHkweU5hSU9VWEVMWUota0dyQ2ZzMUd2MjRNSVF2WTdpZjNLVlVJR3RXTmxhc1JkTW0wYzJTNVFMSmVfaVV2a2VtSHJURlhHeURBSU5UZ1Z6YnRuMEtzSmJwUEJVa2tVaTR4ZHNHcjd6ajJhbnVucQ?oc=5) |
-| Trump Warns Air Traffic Controllers to Work or Get ‘Docked’ - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOay1USGNrelZOMVJLYUQzS1Naam9JNGVtUzh6am9WRm5rUW83N1NLYUNhV2taQ0RhcXpjR1F3bEVvSHpaWUxlVG9waDJOZDN2N3dpMGVkTW1mUDcweFdpQWx0c2lINDlmeXNscVFUZWMxaWxQOXRxQlVfUDFMaFpTRFlPLUV3SlBNUmlqdmx1LUd2TFQtTEhuWnZySmJYcTZwOWg5N29nbWNyTXZZclRiNS1B?oc=5) |
+| Car blast near New Delhi’s historic Red Fort kills at least 8 people, India’s police say - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQdy1vQ3NUaGJrUXliZ1VjVk11Z2I1RUtfSHRQQk9OdVExbV9DRmlEQ1BTMl91eUtMNUFvN0EwckVoQW5POGE4VE1ucTNsUWdPeWs4NHJjMV9XRHFLSVhLZkUwLVJZc3FFbVFJclFSTjYzLWQ4TTRhTzc0MDFZZE4yWnJ1R05LMTg4blRHQmo2ZGlBRDh4NUpCUDhEbw?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
