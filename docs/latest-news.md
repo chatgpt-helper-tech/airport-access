@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月11日 08:41:29（北京时间）**
+🕒 更新时间：**2025年11月11日 08:48:34（北京时间）**
 
 ---
 
@@ -15,7 +15,7 @@
 | William on 'balancing act' of sharing Catherine's cancer diagnosis with his children | [阅读全文](https://www.bbc.com/news/articles/cx2n1wj7g8vo?at_medium=RSS&at_campaign=rss) |
 | Fight fake news and defeat climate deniers, Brazil's Lula says at opening of COP30 | [阅读全文](https://www.bbc.com/news/articles/cn51pn74l23o?at_medium=RSS&at_campaign=rss) |
 | Watch: Lava soars 1,100ft above Hawaii's Kilauea in latest eruption | [阅读全文](https://www.bbc.com/news/videos/cp8ep487257o?at_medium=RSS&at_campaign=rss) |
-| Woman stabbed in neck in unprovoked attack at Birmingham bus stop dies | [阅读全文](https://www.bbc.com/news/articles/c3rj33dg22vo?at_medium=RSS&at_campaign=rss) |
+| Cryptoqueen who fled China for London mansion to be sentenced over £5bn Bitcoin stash | [阅读全文](https://www.bbc.com/news/articles/cvg4w1g9ezko?at_medium=RSS&at_campaign=rss) |
 | Syria to join US-led coalition to defeat IS group after Trump meeting | [阅读全文](https://www.bbc.com/news/articles/cvgvz6316zwo?at_medium=RSS&at_campaign=rss) |
 | Ariana Grande: Going brunette is not about saying goodbye to Glinda | [阅读全文](https://www.bbc.com/news/articles/cx2p1zx4dkro?at_medium=RSS&at_campaign=rss) |
 
@@ -30,8 +30,8 @@
 | Hemp rule creates turbulence for Senate vote to end shutdown - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirwFBVV95cUxNWnlQem82VnlpdHY2SGZFVlhKbmlzbXF3cUlmWTJVMXpOWHB4RVBRM3ZDZzMtWTlyVmFFNkNKTnlEV1JROF9KMVdyUmp5bTlTWnhKV3JPTndVVDhWNU9nYWpDbHVIYVY1LVVUNnlKN2w5WUZ5XzlzTXVpRnFaRHdnNnhjUjdibjZXc1VXT2M4bFdEclVuUHY2aGdwZDZ0UG1mYTQtUy1PWFBZV00yNDd3?oc=5) |
 | Why the BBC Is Facing Its Gravest Crisis in Decades - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE0wTnJVaTBYaHlzNjNfc0tkZU53ckREZXRiX1Y4cmlpYVRCLVVVN21pclhFSE13Mjl3OE5GY2JMb0FrVDVHYXIyWU1zUnFDdEJIazRZdWFFQlpkbWVWT29Gek13NHdGaWhQbTlDY2JQeVNBS0FVeEE?oc=5) |
 | "People are f**king pissed": Democrats' shutdown civil war spills out in private call - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZjJxRm9pSGhEaWlYS0hROFBEYXpNdjdiSnNid1c3ZGU3SWE5dVZXenZRdGRfYnYwQVRiQ2U2UDl4WXFxU0JRZVNVSGNJUGszeXdGR0FiZXh4WllmZ3czSjZZOXdvd1cwMkVnc3JTdF9GRndoZVpoRzBuZlRJWHc4bjZkUQ?oc=5) |
-| Trump says MTG has ‘some sort of act going on’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQc0JGUXZDNEpJX3hFaVQ1eXNkVzFWdzJXR0h4bUozS0ZHRGZLR0gwZXlKMGZ5aE94ZUpaRlhwZ3FsVGtRT0xqTU1TbGRLVmhMWG10Sm1kbk5NWmxTOVlGT1Jaa1lVZWtybmVCM2oyeC1kUUFnZmpoT1ZNdlVEUG9LTzdoV1VFdw?oc=5) |
 | Democrat’s Win May Upend a Conservative Push in Virginia Universities - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQRVFNMnQtbVV6NVlOazgzRzRkTHJmdU5wcGxFUy1yMHBjTUVYdlh1cGxocDFhbDQzQTBVWEZxQi13UEM0VVFSOUJBeFhvbkJHeHhoSmdya1hFNDlhNnNVd2Y5c1NIeC16T09SS3pfRTZEOEdld1FOa2dyRzFvYXozdkcyYkxoX1hoRGRZaVFvVGdCdmxyNUh4VTFncmZXdw?oc=5) |
+| Trump says MTG has ‘some sort of act going on’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQc0JGUXZDNEpJX3hFaVQ1eXNkVzFWdzJXR0h4bUozS0ZHRGZLR0gwZXlKMGZ5aE94ZUpaRlhwZ3FsVGtRT0xqTU1TbGRLVmhMWG10Sm1kbk5NWmxTOVlGT1Jaa1lVZWtybmVCM2oyeC1kUUFnZmpoT1ZNdlVEUG9LTzdoV1VFdw?oc=5) |
 | What to know about Trump's pitch for a $2,000 tariff dividend - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNQnR3b0JxZG5pTHkweU5hSU9VWEVMWUota0dyQ2ZzMUd2MjRNSVF2WTdpZjNLVlVJR3RXTmxhc1JkTW0wYzJTNVFMSmVfaVV2a2VtSHJURlhHeURBSU5UZ1Z6YnRuMEtzSmJwUEJVa2tVaTR4ZHNHcjd6ajJhbnVucQ?oc=5) |
 
 ---
