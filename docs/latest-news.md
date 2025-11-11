@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月11日 21:16:44（北京时间）**
+🕒 更新时间：**2025年11月11日 21:25:14（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | BBC News says it received legal threat from Trump over speech edit - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxNWms1dWRmMWl0N1dsODhzclRURkZXUzJja3MtMnlPV096S3JHd21hSkFDRnFzNDhoc1JhMnVMbUZQNXFmZWx3X01IWmMtTnhiRUticFJZT3ZXUlNpZURfSzVKX2NCRWs4Q3JqU3owQ0FUaGRkcnZCVWhId2d0em4wbEg4X2xnZmFZLVdENG9ldGdUUXItdG9XREZYTFZWVjB1ZGFMLXEzX1VOU0xrOTFLQkJZS2V6Umc4YS1nWQ?oc=5) |
 | ‘A classic authoritarian tactic’: outrage over Trump’s pardons for friends and allies - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMihwFBVV95cUxOR1BiMHhXc25rcHBKMlRabWptaW5VSVNack1JdEdzMk44YlJhNTFULWQ3SHZMcTl4ZWJ5Zmc0amdGUTNrc05qdEt4c3pPN1dSMG4yeGZSVHQyOEVVMlhyZzg1NFJWTEgtcWVJb3g4dk1VS3NLQWxTUmF3dE1wQ1VudWJLaUZFbFE?oc=5) |
 | We asked a former federal agent to review videos showing use of force against protesters. Here's what he found. - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxPMHVwbC1QQ2ZSS09CX1gzVy1pXzlmbjZGZjN5ZEVDNXFaU09YUUFpYlBDWmlEQ1h0U3Q1bHVyeGc1MUpLbkpKVktiMER0UWZrX25HYkIxNmpFQk1od3dBeDRjZDNOUnc0dHRqVHFFUVF3SUp6RGZObHJXMHBhbGhyRzhTSERFMEZyQklxUGkxNNIBlAFBVV95cUxNcnJzMHZLZzB5WTBrVkE4TXZ4V0RFV29KVkVIWkcwaW9iQmdOcHU4RDNsX21yNnhHeGYtRnRUS1BKaVdaR1FZQWZad0ZEQms3Tm8tN1Z1UHp5QU40YjBVdkg5T3ZGNC1GM0txcWZITjg5Y3BzdEZ6dUJyYVk2d3hxTEpJT2FKLW80QjhOTHVxOEhyMUgz?oc=5) |
-| Utah judge denies GOP-passed congressional map - Politico | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxPNDVTcUR5VUNhYXR0ZmlldWFZb2ZWb0ZKdk5SWTFLaW0tV3VVb2YwTjJrNHNmM1NBS3VLQ0NrejQtUUtCdFRtNWFCYlhaMDNnTjI4b3BiNlFXSEFaQnp4RWFkcDR2T1FqMHNKOG9Wa1FpTWhLQTg1WjhsQXprWTg4NHptYmpRdW1VdW11eXoySWpRM0llM1hnNVVNS0E?oc=5) |
-| "People are f**king pissed": Democrats' shutdown civil war spills out in private call - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigwFBVV95cUxPZjJxRm9pSGhEaWlYS0hROFBEYXpNdjdiSnNid1c3ZGU3SWE5dVZXenZRdGRfYnYwQVRiQ2U2UDl4WXFxU0JRZVNVSGNJUGszeXdGR0FiZXh4WllmZ3czSjZZOXdvd1cwMkVnc3JTdF9GRndoZVpoRzBuZlRJWHc4bjZkUQ?oc=5) |
+| Judge picks a new congressional map in redistricting - FOX 13 News Utah | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNRFE4ZFc2RW1SMTlCbGRQZEJraDhHXzJZRG12YzZqQlZqc0s2dGRPQWtDYWhmQzUzeldSX2xQczBiZDJ0U3NfQ0lKLXN0VG9LRHkyREpOOUFYdk94MUpTNkJYY19JckJYcTNqMF9WT0tWS1EzRFN0dFRRT1FETVBXMmhTMDZ3bDMzcEZIVkxHTGlBRGZnWGc?oc=5) |
+| Trump’s affordability push is speaking louder than his words - Politico | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxQaXdGVmI3cDgxdktTVHBBcHdtdWEtSi1DNmZvSVJQWXBTdWgzdlM2cWFmeHAyc2VJTDFQQ0hZN1F5MlRZWlBnNWg2RlFGVHVhaFhJMG5mbGgxNURhWHI0cFBzcWh4d3gwa1NvcjhsRWdEWk03b1RibzFXdkFVc2hScHFqVnJ5N1ZTRk95UGJ0RV9oVC1NY3hqbENRQ0g3UFdVSXdOa2RBQ2dkSDNYNlE?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
