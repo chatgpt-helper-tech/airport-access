@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月11日 09:56:13（北京时间）**
+🕒 更新时间：**2025年11月11日 10:01:05（北京时间）**
 
 ---
 
@@ -29,10 +29,10 @@
 | Senate rejects Paul’s hemp pitch - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOczZnUmVrTUVOREFvLWdoOXotYXJMNXM1Q2k1LVdHcVZRdEF5MkhzbXlKeUkyTldiSVFPZnpSa1NUVjNVVkZfWHlsUjB3OHFGZHNTNTlUdDBJb3JOR0xrZ2tlbHRBdk9XeU9JUFFwSGJHQ1VnRndNWmhiQWgzMDVhRFJ4Nlo3N1FJcjBCMkxyVml0WVZzVWNyaW9naWg1dUxo?oc=5) |
 | Why the BBC Is Facing Its Gravest Crisis in Decades - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE0wTnJVaTBYaHlzNjNfc0tkZU53ckREZXRiX1Y4cmlpYVRCLVVVN21pclhFSE13Mjl3OE5GY2JMb0FrVDVHYXIyWU1zUnFDdEJIazRZdWFFQlpkbWVWT29Gek13NHdGaWhQbTlDY2JQeVNBS0FVeEE?oc=5) |
 | Judge blocks administration from acting to 'undo' issuance of full SNAP benefits - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOMWZTYnd6V3RPcUl3cDVoNExhNExDelRoZmFVRkpnTXV3eUJ1WVBWcDhiQklhTm9RX25pcVBleG9MOF9tTmVHOXlvbktOOWpMUlBtRWRXTndRZXAtU2VPNWtjYjRWN2NYdnJmWGlTNDJPTUE4dndRNHJkTlBfMEpYWE1zSFA3aE5pU2hnbzE0VE5sbkVFMTQwMlNGc9IBoAFBVV95cUxPNWo1bkhaUzZudUNFZk1BSUw5bVZDaEVtUDlISjFIY2xFN0p3SEowS3hsXzFaaldLckt6NFlXaVJpd3MxblJpb3EtV0VfaXI5OUM2YXVkV1NGcGVTVGZhLWthTjNwRGhaZVN3OWZZeTNQRk1LbFhZeXZlTGpnaUhSekk4NUlTTm5oRlRSSzJHUEdrVUcyLWk5MnFoSkE0THJY?oc=5) |
-| Families of Camp Mystic campers, counselors who died in Texas flood file lawsuit - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOTk8tYnNnNkFqT3pTMHFLdkR4ZDd2ZHlCbWNGOEUydVdOMUNOOG81NlBHSlVld2ppQU04RWhuS3pNZ2FkNnVfeGViWU0xZlgxOHZjOW1nYXRUZWgtem1ZUmhyWnNzbFdDZERXbXhXb0F4S3daZTZ2a1c3MkJtNlo4ZHJ5NHhZMXFyQTNrelRjWW13eHB4NnJ6MUN1RHVtTFNSeTlv0gGoAUFVX3lxTE9aUDMxWFBRMHd2RjM2OWZZRjlaaFpaTXhMdkpfYXQ1OUt3RTZ5YmNNYUdTT1pTWDQ1WFAyaGVMY1NEa0lJOVBFNUFSLXJsbklmUEJyNEh6RTJNMkkzazJJR0VlRFpYVnYwM25sYktDcDhiRTYzOXY4eG5QRkd3d3VoQUM4Z2RIamdwT1IzZnVuS0lZYmNQaEpKRkIzS1V5MTdVa0h4Ul9TVA?oc=5) |
+| Angry Democrats call on Schumer to resign after eight vote to end shutdown - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNdXJjblJZdVRvekplYnV6dnVudzdHZjdhOG1XUEg3U25lVDFsVVZXcmEtQnhQMHdKYnhFQURfdU5nQ0xqaHhaejBWYTVDOW9aOElLb3FINWVLa3gxa3pNVXlBbHBseHdnZGJkZFdvcFZJN0VodWhZbzhBSXBabGhpaFZ6X1ZjQkk4QTg4WVBxVjlrTXUyellKRUhzNDFIaDQ?oc=5) |
 | Trump says MTG has ‘some sort of act going on’ - Politico | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxQc0JGUXZDNEpJX3hFaVQ1eXNkVzFWdzJXR0h4bUozS0ZHRGZLR0gwZXlKMGZ5aE94ZUpaRlhwZ3FsVGtRT0xqTU1TbGRLVmhMWG10Sm1kbk5NWmxTOVlGT1Jaa1lVZWtybmVCM2oyeC1kUUFnZmpoT1ZNdlVEUG9LTzdoV1VFdw?oc=5) |
+| Families of Camp Mystic campers, counselors who died in Texas flood file lawsuit - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxOTk8tYnNnNkFqT3pTMHFLdkR4ZDd2ZHlCbWNGOEUydVdOMUNOOG81NlBHSlVld2ppQU04RWhuS3pNZ2FkNnVfeGViWU0xZlgxOHZjOW1nYXRUZWgtem1ZUmhyWnNzbFdDZERXbXhXb0F4S3daZTZ2a1c3MkJtNlo4ZHJ5NHhZMXFyQTNrelRjWW13eHB4NnJ6MUN1RHVtTFNSeTlv0gGoAUFVX3lxTE9aUDMxWFBRMHd2RjM2OWZZRjlaaFpaTXhMdkpfYXQ1OUt3RTZ5YmNNYUdTT1pTWDQ1WFAyaGVMY1NEa0lJOVBFNUFSLXJsbklmUEJyNEh6RTJNMkkzazJJR0VlRFpYVnYwM25sYktDcDhiRTYzOXY4eG5QRkd3d3VoQUM4Z2RIamdwT1IzZnVuS0lZYmNQaEpKRkIzS1V5MTdVa0h4Ul9TVA?oc=5) |
 | Democrat’s Win May Upend a Conservative Push in Virginia Universities - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMingFBVV95cUxQRVFNMnQtbVV6NVlOazgzRzRkTHJmdU5wcGxFUy1yMHBjTUVYdlh1cGxocDFhbDQzQTBVWEZxQi13UEM0VVFSOUJBeFhvbkJHeHhoSmdya1hFNDlhNnNVd2Y5c1NIeC16T09SS3pfRTZEOEdld1FOa2dyRzFvYXozdkcyYkxoX1hoRGRZaVFvVGdCdmxyNUh4VTFncmZXdw?oc=5) |
-| Supreme Court rejects call to overturn its decision legalizing same-sex marriage nationwide - AP News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxPSnQwQk9SbDlXaGdDQ2JlWk1sSEY4a0Rya3lHOFd6S3hvRUNSR2s4d1FSUnhNem1KQTFnTXJxWDkzNkJIQnpMM1R4bG1HNUwza050eGFKdWdyRVhwYXR6dk80VkFCNVpWeHlFLUZ6WjRQU2d2NXpmaXZWbmkxNEo1aGZHRlJiMjdVdG85X1d2M0VXc2tzLXc?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
