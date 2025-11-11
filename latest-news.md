@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月11日 13:09:49（北京时间）**
+🕒 更新时间：**2025年11月11日 13:16:13（北京时间）**
 
 ---
 
@@ -31,8 +31,8 @@
 | Local hemp producers stunned as deal to reopen government attacks hemp - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNQXlkWHVpY3RqVXFvSlRWQ0EzLVVUWFdXNkZpN3B2YXNkZi1Ia19wVTJMNHlEVDllTlF6bjRIT0lLWk9DS0FDaXRUZXdiZDFzSERBVnJCM2pNY09IS21RWlhCVGRGTDVYc1FUclR1VmlhdVV2ZlU4RmdMZExWZG1HazVoYmJ5REwtOWp3SU52SGt6WTdOb2c?oc=5) |
 | Supreme Court won’t hear challenge to landmark gay marriage ruling - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNdUJoU2dhOXJHTUx1ZzNPclFzb2NHMFpnR1dKVFM1bmMtX29GOXBCTUViUE0zRWg2QkVxQ21Hd3RpelZpOWpFN3B5MGhzaUZIM1REQTFPZ0NVRWdNSWxkcmc4Rmt2VEVRRHFGLXBTb2pUWGRodlgwRzFrM3hPYXozM2FPLWlhT0tVYWhr?oc=5) |
 | Families accuse Camp Mystic of ignoring risks in Texas lawsuit over flood deaths - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPRkxyR2tqbzU4YlhCcUdSME41ZmRFMk0tSW5tMTNWc2xvU3hwdGJKa2tTeTJJTkpBaFlRZzNNMnFObWx6QlpWWk1pWE5mUzJDYS0yQzNJYXhQSU4zbnZ1UG82eGI1aW0zSmdwQ2xpYzk1X3JSOW0wVUptN3pvdUlzcG1uQUJVZw?oc=5) |
-| New Delhi Explosion Kills Eight People, Leaves Several Hurt - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMirgFBVV95cUxOTFctRlVIUlBYazFScHJxakYwdlV4emljTTFCWUtfTXJTdXVETXZMQ3J4QlQwTXhwSmdFLTFzdEFLRlNOV2l3WkZocHozZ3NERlFFVEZtaVJOc25Ielc3YVlKRlBxbVdBYjNRQmxSU1RNdnp2NlRYajBVdG9iT1VLZDhtelFPYjJjMk04MFlVWV9tSEJ2c3VfSU1pUHczNGFfU1VtdjAxcVIyeGFTMHc?oc=5) |
-| Storm approaches Taiwan after causing 18 deaths and destruction in the Philippines - AP News | [阅读全文](https://news.google.com/rss/articles/CBMitwFBVV95cUxOR2RDd2hodlZmRDNmQl9lWVlENkdCd0szZXBsbmIxYWlxQlBxRGJudUpiLXNoV1ZpNVZmdUpRTUZyb1RoR2Vac1lKdFZHRW10SURuMFVzbXgyRFJFZW9aYVkySUZIMmVjaVB0Sm5IclVTTzNldHVPb2xwakNKeEhJcEE2cUk0ajBoM1g3V2pBcHU3akRPSGRqMTFPcmcyYmN1bWlGOXphQXVEX19wUEtFZVBST3dYWG8?oc=5) |
+| What to know about Trump's pitch for a $2,000 tariff dividend - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNQnR3b0JxZG5pTHkweU5hSU9VWEVMWUota0dyQ2ZzMUd2MjRNSVF2WTdpZjNLVlVJR3RXTmxhc1JkTW0wYzJTNVFMSmVfaVV2a2VtSHJURlhHeURBSU5UZ1Z6YnRuMEtzSmJwUEJVa2tVaTR4ZHNHcjd6ajJhbnVucQ?oc=5) |
+| House to return to laundry list of controversies after 7-week hiatus - Politico | [阅读全文](https://news.google.com/rss/articles/CBMijgFBVV95cUxNek9EeEJYTDUzcy01aHQ4NHEwbFJVZkNGLUdPR1JvcmxGYmJLeHAyei1sbFdGU0xTek5GZFJJNnBVZGJkd0U2NVlKd3M0TTN5RmdzNmtSXzZKMG5INlViZmtLeEtKVGdHY1lPUVpmemJwNFZtaUs4dm12SE92RHdxUG42N1RnRjlNTnVYNkl3?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
