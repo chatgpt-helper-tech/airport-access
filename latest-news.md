@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月11日 11:48:35（北京时间）**
+🕒 更新时间：**2025年11月11日 11:56:30（北京时间）**
 
 ---
 
@@ -10,11 +10,11 @@
 |--------|-------------|
 | Trump threatens $1bn legal action against BBC over 6 January speech edit | [阅读全文](https://www.bbc.com/news/articles/c4gw001kw97o?at_medium=RSS&at_campaign=rss) |
 | Second migrant sent to France returns to the UK | [阅读全文](https://www.bbc.com/news/articles/c5y4ez53x7do?at_medium=RSS&at_campaign=rss) |
-| Reeves suggests benefit limits on larger families to be lifted | [阅读全文](https://www.bbc.com/news/articles/c70j7dxjp5wo?at_medium=RSS&at_campaign=rss) |
 | Booker Prize won by 'extraordinary' Flesh by David Szalay | [阅读全文](https://www.bbc.com/news/articles/cr43pp456gyo?at_medium=RSS&at_campaign=rss) |
 | William on 'balancing act' of sharing Catherine's cancer diagnosis with his children | [阅读全文](https://www.bbc.com/news/articles/cx2n1wj7g8vo?at_medium=RSS&at_campaign=rss) |
 | Fight fake news and defeat climate deniers, Brazil's Lula says at opening of COP30 | [阅读全文](https://www.bbc.com/news/articles/cn51pn74l23o?at_medium=RSS&at_campaign=rss) |
-| Watch: Lava soars 1,100ft above Hawaii's Kilauea in latest eruption | [阅读全文](https://www.bbc.com/news/videos/cp8ep487257o?at_medium=RSS&at_campaign=rss) |
+| New 'Lucifer' bee with devil-like horns found in Australia | [阅读全文](https://www.bbc.com/news/articles/c051yjv90dmo?at_medium=RSS&at_campaign=rss) |
+| Sam Fender gives £25,000 Mercury Prize winnings to small venues | [阅读全文](https://www.bbc.com/news/articles/cn8xpw9n95qo?at_medium=RSS&at_campaign=rss) |
 | Cryptoqueen who fled China for London mansion to be sentenced over £5bn Bitcoin stash | [阅读全文](https://www.bbc.com/news/articles/cvg4w1g9ezko?at_medium=RSS&at_campaign=rss) |
 | Syria to join US-led coalition to defeat IS group after Trump meeting | [阅读全文](https://www.bbc.com/news/articles/cvgvz6316zwo?at_medium=RSS&at_campaign=rss) |
 | Ariana Grande: Going brunette is not about saying goodbye to Glinda | [阅读全文](https://www.bbc.com/news/articles/cx2p1zx4dkro?at_medium=RSS&at_campaign=rss) |
