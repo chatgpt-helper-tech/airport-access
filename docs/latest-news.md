@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月11日 19:08:03（北京时间）**
+🕒 更新时间：**2025年11月11日 19:17:59（北京时间）**
 
 ---
 
@@ -11,13 +11,13 @@
 | UK unemployment rate rises to 5% as jobs market weakens | [阅读全文](https://www.bbc.com/news/articles/cdxrp7znkdlo?at_medium=RSS&at_campaign=rss) |
 | Nearly all NHS England trusts failing to hit cancer target - find out how yours is ranked | [阅读全文](https://www.bbc.com/news/articles/cgjdpqvpj3lo?at_medium=RSS&at_campaign=rss) |
 | Queen and Kate join services to mark Armistice Day | [阅读全文](https://www.bbc.com/news/articles/cj41g5w0vgno?at_medium=RSS&at_campaign=rss) |
-| Katie Razzall: Robust leadership needed to steer BBC through crisis | [阅读全文](https://www.bbc.com/news/articles/c80390pe1vvo?at_medium=RSS&at_campaign=rss) |
 | Hundreds arrested in largest High Street crime crackdown | [阅读全文](https://www.bbc.com/news/articles/cx2l1253ndeo?at_medium=RSS&at_campaign=rss) |
 | Cryptoqueen who fled China for London mansion to be sentenced over £5bn Bitcoin stash | [阅读全文](https://www.bbc.com/news/articles/cvg4w1g9ezko?at_medium=RSS&at_campaign=rss) |
+| Scientists to stop using animals for some experiments by end of 2025 | [阅读全文](https://www.bbc.com/news/articles/cm2lpekjeg9o?at_medium=RSS&at_campaign=rss) |
 | Suicide bombing in Islamabad kills 12, says Pakistan's interior minister | [阅读全文](https://www.bbc.com/news/articles/cp3x6102p3ko?at_medium=RSS&at_campaign=rss) |
 | How the spirit of commemorating has changed since the last WW1 veterans died | [阅读全文](https://www.bbc.com/news/articles/c9d641vz93qo?at_medium=RSS&at_campaign=rss) |
 | Three easy ways to help you beat the winter blues | [阅读全文](https://www.bbc.com/news/articles/c051mdgd1ddo?at_medium=RSS&at_campaign=rss) |
-| Scientists to stop using animals for some experiments by end of 2025 | [阅读全文](https://www.bbc.com/news/articles/cm2lpekjeg9o?at_medium=RSS&at_campaign=rss) |
+| Squid Game star, 81, acquitted of sexual misconduct | [阅读全文](https://www.bbc.com/news/articles/c0qpy1y09qwo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
 
