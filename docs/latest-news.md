@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月11日 15:01:41（北京时间）**
+🕒 更新时间：**2025年11月11日 15:09:13（北京时间）**
 
 ---
 
@@ -15,8 +15,8 @@
 | Booker Prize won by 'extraordinary' Flesh by David Szalay | [阅读全文](https://www.bbc.com/news/articles/cr43pp456gyo?at_medium=RSS&at_campaign=rss) |
 | Three easy ways to help you beat the winter blues | [阅读全文](https://www.bbc.com/news/articles/c051mdgd1ddo?at_medium=RSS&at_campaign=rss) |
 | Reinventing Football - what do we do with handball, penalties and VAR? | [阅读全文](https://www.bbc.com/sport/football/articles/ckgk1vglkepo?at_medium=RSS&at_campaign=rss) |
-| Hundreds arrested in High Street crime crackdown | [阅读全文](https://www.bbc.com/news/articles/cx2l1253ndeo?at_medium=RSS&at_campaign=rss) |
 | Cryptoqueen who fled China for London mansion to be sentenced over £5bn Bitcoin stash | [阅读全文](https://www.bbc.com/news/articles/cvg4w1g9ezko?at_medium=RSS&at_campaign=rss) |
+| Hundreds arrested in High Street crime crackdown | [阅读全文](https://www.bbc.com/news/articles/cx2l1253ndeo?at_medium=RSS&at_campaign=rss) |
 | Sam Fender gives £25,000 Mercury Prize winnings to small venues | [阅读全文](https://www.bbc.com/news/articles/cn8xpw9n95qo?at_medium=RSS&at_campaign=rss) |
 
 ## 📰 Google News
