@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月11日 12:41:02（北京时间）**
+🕒 更新时间：**2025年11月11日 12:49:24（北京时间）**
 
 ---
 
@@ -27,12 +27,12 @@
 | Trump’s sweeping 2020 election pardon raises alarms ahead of the midterms - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNLWE4c09fTWQxQVU0U2h3dTU5blJ3Zm5XVGYzTVV0M0N1RUNybXlmdkk1VUdWNklDQ2p4V2dsNUZacUJKS0loOGVYQnh4SmdJODRnS2NSN2FDd2dfeWdEQ3E1RjlUU0pDTnRKSTRPX19zVmVpWUVKV0ZadS16dVNVUEUtUDNJcnQ1OEZCYV9aRG02WXlq?oc=5) |
 | Progressive group MoveOn calls on Schumer to step aside - Axios | [阅读全文](https://news.google.com/rss/articles/CBMieEFVX3lxTE14ZFVvQmxOODNvRHZ3bFNCUmU1TFJuMGkydHJCQnlKa2FaRUlHemotZmxERF82OFVPQUhScmpFcW9CbHBuNWx5ZWRqb2FkbkJFYU5BZFBQdk1GZURtcEtXQ0xJT0MyWXh5Vy1IRFdYU2w4ckF4bzZDOQ?oc=5) |
 | Trump Threatens to Sue the BBC for $1 Billion After Jan. 6 Documentary - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNMVk4T19mRnhxR1NTXzBGSm9hODVpV0UzVkJ3REhQQ0NZN0V2R18taUpDd0I3YU9ERGRvU1hDODdic084RmhIRzhVY2pQTEx1dGpyVEJwbHJnUGl4djlTUV9haW02YWxwZEtlVUZtUVJvRnd5bUlNejhGY1NhRGV5TEpCYTU4eWlWOXc?oc=5) |
-| Local hemp producers stunned as deal to reopen government attacks hemp - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNQXlkWHVpY3RqVXFvSlRWQ0EzLVVUWFdXNkZpN3B2YXNkZi1Ia19wVTJMNHlEVDllTlF6bjRIT0lLWk9DS0FDaXRUZXdiZDFzSERBVnJCM2pNY09IS21RWlhCVGRGTDVYc1FUclR1VmlhdVV2ZlU4RmdMZExWZG1HazVoYmJ5REwtOWp3SU52SGt6WTdOb2c?oc=5) |
+| US declares partial suspension of sanctions on Syria after historic meeting - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMivgFBVV95cUxOVkpHam5WNHAzVTBjMHdkNmVzelB2clFBRVlxNjBGN1JVVzZkRFg5OTQzZUcwb1h2blFGUzNBZWl1NmUxUEFsa1JRZDhoOXZtLXZndzNRajhhRm03eHQ5MFdXZkJvLTFHYnRqemxfbEphaExscUR3LWV0R2hTTnJ4TGtOV0xES01SZnViNEpYTUFnd3JXOGlmTWpibDlPSHk1UWptTnp6MkxBUGdFcVM1WENVdUVSUVRaSzR6bjB3?oc=5) |
 | Trump administration asks Supreme Court to intervene in SNAP fight again - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPMVBzanJTNksxQzdMX0cyR1dKdmpyYVQ4dTZPVzdvVFRCNVZlTUo3NG9JdnNoeWZraE94emVBbGhXNGNKUW1IXzNkbkFxMW1QSVM4U2NhbzJOZ1ZyUWR6TmthUmFrTDBPNjdnZUNjMHJsX0ZxVTF3SndZWjN2SEl1UXBCQkI2S09CcHNhenM1elZyUHFORWM4dHhlTmhHM3d2aWdZ?oc=5) |
 | Supreme Court won’t hear challenge to landmark gay marriage ruling - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNdUJoU2dhOXJHTUx1ZzNPclFzb2NHMFpnR1dKVFM1bmMtX29GOXBCTUViUE0zRWg2QkVxQ21Hd3RpelZpOWpFN3B5MGhzaUZIM1REQTFPZ0NVRWdNSWxkcmc4Rmt2VEVRRHFGLXBTb2pUWGRodlgwRzFrM3hPYXozM2FPLWlhT0tVYWhr?oc=5) |
-| Camp Mystic families file two $1 million-plus lawsuits against owners - Austin American-Statesman | [阅读全文](https://news.google.com/rss/articles/CBMipAFBVV95cUxPaElqT3FmRlY3UUJ0b0hvN1F1ZXFBeUs5SmFtUHJpYTVLblBaV0JVeGJVWldKcy1IU091WmxqTWFOV3FHbVRkaUo4eEZSTElfU2QyYzZTdGZoTWY0enRRUFh4MDlDaldZSmppbFNTSXdrQ290YmE5XzNldVV5Y240bkFzeFZ0SHdTMEVveV9ablptcGhSZk5DbGpqMXF6Wm1xTWN2Uw?oc=5) |
+| Families accuse Camp Mystic of ignoring risks in Texas lawsuit over flood deaths - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPRkxyR2tqbzU4YlhCcUdSME41ZmRFMk0tSW5tMTNWc2xvU3hwdGJKa2tTeTJJTkpBaFlRZzNNMnFObWx6QlpWWk1pWE5mUzJDYS0yQzNJYXhQSU4zbnZ1UG82eGI1aW0zSmdwQ2xpYzk1X3JSOW0wVUptN3pvdUlzcG1uQUJVZw?oc=5) |
 | What to know about Trump's pitch for a $2,000 tariff dividend - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNQnR3b0JxZG5pTHkweU5hSU9VWEVMWUota0dyQ2ZzMUd2MjRNSVF2WTdpZjNLVlVJR3RXTmxhc1JkTW0wYzJTNVFMSmVfaVV2a2VtSHJURlhHeURBSU5UZ1Z6YnRuMEtzSmJwUEJVa2tVaTR4ZHNHcjd6ajJhbnVucQ?oc=5) |
-| Car blast near New Delhi’s historic Red Fort kills at least 8 people, India’s police say - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxQdy1vQ3NUaGJrUXliZ1VjVk11Z2I1RUtfSHRQQk9OdVExbV9DRmlEQ1BTMl91eUtMNUFvN0EwckVoQW5POGE4VE1ucTNsUWdPeWs4NHJjMV9XRHFLSVhLZkUwLVJZc3FFbVFJclFSTjYzLWQ4TTRhTzc0MDFZZE4yWnJ1R05LMTg4blRHQmo2ZGlBRDh4NUpCUDhEbw?oc=5) |
+| Local hemp producers stunned as deal to reopen government attacks hemp - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNQXlkWHVpY3RqVXFvSlRWQ0EzLVVUWFdXNkZpN3B2YXNkZi1Ia19wVTJMNHlEVDllTlF6bjRIT0lLWk9DS0FDaXRUZXdiZDFzSERBVnJCM2pNY09IS21RWlhCVGRGTDVYc1FUclR1VmlhdVV2ZlU4RmdMZExWZG1HazVoYmJ5REwtOWp3SU52SGt6WTdOb2c?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
