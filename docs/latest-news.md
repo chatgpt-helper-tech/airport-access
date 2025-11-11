@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月11日 16:48:42（北京时间）**
+🕒 更新时间：**2025年11月11日 16:57:34（北京时间）**
 
 ---
 
@@ -29,9 +29,9 @@
 | The BBC’s fight with Trump couldn’t have come at a worse time - politico.eu | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxPc1oyYlYxVGZMU09tVUpKSE84SW1iUDJtU1JZUmpSOGtFbjJPUmdkRUpRUzRMRTAxQUlSQkMyYmV1WDdqNmdoOTRadUtISHI1cGN3YjNqYTlQdy1CVUVwRWFoYkVfZWU5RjN2alJaMldJaVYya1FSRkhtSXZnc2ZVTi1nZlRWVi1nQmpnME9oT1BCY2Vh?oc=5) |
 | 4 UC Berkeley students arrested on felony vandalism charges for anti-TPUSA art installation - dailycal.org | [阅读全文](https://news.google.com/rss/articles/CBMiigJBVV95cUxPVlZ4T1EyMUdrQVM2SmhWTVZsYVl3bktQRWlMTmNBODR3Rjh0SlluMzBfdGJDLWF0X1hnRlNJSTZsQ2dSVnRWSGhqSEJDNkxwOHc0dnpmWS0xSFNPblBwNElMZThtNjhwYTJrQnk0N1hMdnNEUVJnVjVOVmNoS2otN0EtNkZQNWVNSTEtclY4S2xCdVdLMzlxaDJSSnduczZSajVSekJrZmJ0ejJzVEtzRTVHaHJSU3VEUFk0Vk5FcTNoRmxGVHpmSTgyTU5DTEkzeC1KX1F3Rk9mQnhaX0xpdW10WmRSQmtZQjd2bG9PUVNRbWNrS2VOTmsyYW5fTHd6V3dQZ1djX1hLZw?oc=5) |
 | Trump slams air traffic controllers who called out during the government shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOWTdHc00yQ09Fd3F6Z2ZtNnJFWVdlQmtfUlNqU2VValV2TTBDamdTc1R2R0prVmxfV1E1TEwtMTF0d3J4LVppTmFST20yeGtLQ2hPZUswUDZGQmE4V1E2NTBrdkYyaVhvdlVvX1pGalFEUlBHOFBrODVuM0JqVldKRVBnLU5Ia2YxTXg4M2UzbDdtZnRXUjY0Z3lUcmc?oc=5) |
-| Marriage Ruling Relieves Gay Americans and Leaves Conservatives Pledging New Challenges - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQNjZLRVFERkQ5SGc5SS1oT1h0c2tNZkJ0SFVwWHNyY2FkeHlxNHg3NXZSMVNFcXB5QVl6c0RuVTNMUVY0YzlQR1RsVk5QREt1dnoxSzdqTmYwdER4YnhJOXBjWVAxWTdTSUFHMEdtX2VJY1ZEZkYxWldmRzk2ckd6ZjZfLUlwaXZ0eEt3ZQ?oc=5) |
 | Families accuse Camp Mystic of ignoring risks in Texas lawsuit over flood deaths - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPRkxyR2tqbzU4YlhCcUdSME41ZmRFMk0tSW5tMTNWc2xvU3hwdGJKa2tTeTJJTkpBaFlRZzNNMnFObWx6QlpWWk1pWE5mUzJDYS0yQzNJYXhQSU4zbnZ1UG82eGI1aW0zSmdwQ2xpYzk1X3JSOW0wVUptN3pvdUlzcG1uQUJVZw?oc=5) |
 | Army gynecologist accused in lawsuit of secretly taking videos of patients - Yahoo | [阅读全文](https://news.google.com/rss/articles/CBMimAFBVV95cUxONmY3blZHSElvOU9HMG9vWC1XNUprZjZIdmJTV0l2SnNNdEQ5Z0Fxd2c2bmd5eDR5bmdyZmtqU2hISHQ2eDI3bWc3am9idmd1WXR0UndxSFNmWXJlZHBTLXpMZjdyVC0tZHZMdHA1VmNkdzZJeE82TXlUeHJZWmllRkdyTHJjTkdPWjU3LUJiM05pa0tkVFZlOA?oc=5) |
+| Marriage Ruling Relieves Gay Americans and Leaves Conservatives Pledging New Challenges - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMijAFBVV95cUxQNjZLRVFERkQ5SGc5SS1oT1h0c2tNZkJ0SFVwWHNyY2FkeHlxNHg3NXZSMVNFcXB5QVl6c0RuVTNMUVY0YzlQR1RsVk5QREt1dnoxSzdqTmYwdER4YnhJOXBjWVAxWTdTSUFHMEdtX2VJY1ZEZkYxWldmRzk2ckd6ZjZfLUlwaXZ0eEt3ZQ?oc=5) |
 | Angry Democrats call on Schumer to resign after eight vote to end shutdown - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNdXJjblJZdVRvekplYnV6dnVudzdHZjdhOG1XUEg3U25lVDFsVVZXcmEtQnhQMHdKYnhFQURfdU5nQ0xqaHhaejBWYTVDOW9aOElLb3FINWVLa3gxa3pNVXlBbHBseHdnZGJkZFdvcFZJN0VodWhZbzhBSXBabGhpaFZ6X1ZjQkk4QTg4WVBxVjlrTXUyellKRUhzNDFIaDQ?oc=5) |
 
 ---
