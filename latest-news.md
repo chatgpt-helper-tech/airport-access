@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月11日 20:33:43（北京时间）**
+🕒 更新时间：**2025年11月11日 20:41:07（北京时间）**
 
 ---
 
@@ -8,7 +8,7 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Epping hotel can continue housing asylum seekers, High Court rules | [阅读全文](https://www.bbc.com/news/articles/c8x1wz8jz0yo?at_medium=RSS&at_campaign=rss) |
+| Asylum seekers can stay at Epping hotel after council loses legal battle | [阅读全文](https://www.bbc.com/news/articles/c8x1wz8jz0yo?at_medium=RSS&at_campaign=rss) |
 | Kate and Queen lay Armistice Day wreaths as nation pays tribute | [阅读全文](https://www.bbc.com/news/articles/cj41g5w0vgno?at_medium=RSS&at_campaign=rss) |
 | Nearly all NHS England trusts failing to hit cancer target - find out how yours is ranked | [阅读全文](https://www.bbc.com/news/articles/cgjdpqvpj3lo?at_medium=RSS&at_campaign=rss) |
 | UK unemployment rate rises to 5% as jobs market weakens | [阅读全文](https://www.bbc.com/news/articles/cdxrp7znkdlo?at_medium=RSS&at_campaign=rss) |
