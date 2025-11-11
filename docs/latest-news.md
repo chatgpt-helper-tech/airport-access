@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月11日 10:56:34（北京时间）**
+🕒 更新时间：**2025年11月11日 11:01:55（北京时间）**
 
 ---
 
@@ -23,11 +23,11 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Senate advances funding package expected to end longest US government shutdown - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxPWWU2UHptUVBJTmQzYmo4a2NhSnpocWZjaWczS3o0WjVQaGk3MDdrTUNvZnZXbGJCTDdPNzBFa0loMVNVeDJFU3pLVkJGbXBFU2tnTlh1SEpJVE11YTdvQVZvVDZpbGh3TFlJLVI3TU45TmR0VU40czMyNFNSZVNuaEVicXBud3NJRVdQQ2NubWxvM0hWUWl4VlNORklZeVUw?oc=5) |
+| Government shutdown updates: Senate passes government funding bill - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMijwFBVV95cUxOOFVUVzJtcUNQYVhEcWRWcG9odVRtQnFOTW5ncko5UUloTGlQSnlXRTR3NnJiZDNaMW8tYUU4d040UkRpYjdmT1Q0Tm91VTBNSTh2dVFvU2VYdGVwa1BFSndUMWs0YWFDaVk2d0I5VVJUR0JTaldjNnk4b1dnRmhsOE5GVUZvRXJLY1NSMWxiTQ?oc=5) |
 | A look at prominent people pardoned by Trump after they tried to overturn his 2020 election loss - AP News | [阅读全文](https://news.google.com/rss/articles/CBMimgFBVV95cUxPbF9PR0NwblZCU1p5U01zWUI0aTdUc3g1bS1WWUZhU3dSSUFDVmlSR21PVHZGQ2dfb0piODhuOUFHR1B2RTJYZk9BYTBQRVdhSlhtTW00ZzZ3eXV1cjNHSWU2Z0ZIVEgzb2o2encxNjJrRWdfREVNNzZUTnY0VFJnUlQzWHlUWVVNNmE1cG92SlhkZVhPQTdMek1R?oc=5) |
 | Trump slams air traffic controllers who called out during the government shutdown - NPR | [阅读全文](https://news.google.com/rss/articles/CBMinAFBVV95cUxOWTdHc00yQ09Fd3F6Z2ZtNnJFWVdlQmtfUlNqU2VValV2TTBDamdTc1R2R0prVmxfV1E1TEwtMTF0d3J4LVppTmFST20yeGtLQ2hPZUswUDZGQmE4V1E2NTBrdkYyaVhvdlVvX1pGalFEUlBHOFBrODVuM0JqVldKRVBnLU5Ia2YxTXg4M2UzbDdtZnRXUjY0Z3lUcmc?oc=5) |
 | Trump Threatens to Sue the BBC for $1 Billion After Jan. 6 Documentary - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMiigFBVV95cUxNMVk4T19mRnhxR1NTXzBGSm9hODVpV0UzVkJ3REhQQ0NZN0V2R18taUpDd0I3YU9ERGRvU1hDODdic084RmhIRzhVY2pQTEx1dGpyVEJwbHJnUGl4djlTUV9haW02YWxwZEtlVUZtUVJvRnd5bUlNejhGY1NhRGV5TEpCYTU4eWlWOXc?oc=5) |
-| Syria to join US-led coalition to defeat IS group after Trump meeting - BBC | [阅读全文](https://news.google.com/rss/articles/CBMiWkFVX3lxTE1JREhSWDUxbHRScnB2bFk3RTBKeWJhYlBISHlCZ1d2SXZTeGstSE5kSDltdGhCWjlnMllnRXJMR25UaFpEeDRFR3M0TXBqUVpBN0RtSDFCbTlfdw?oc=5) |
+| Angry Democrats call on Schumer to resign after eight vote to end shutdown - The Guardian | [阅读全文](https://news.google.com/rss/articles/CBMinwFBVV95cUxNdXJjblJZdVRvekplYnV6dnVudzdHZjdhOG1XUEg3U25lVDFsVVZXcmEtQnhQMHdKYnhFQURfdU5nQ0xqaHhaejBWYTVDOW9aOElLb3FINWVLa3gxa3pNVXlBbHBseHdnZGJkZFdvcFZJN0VodWhZbzhBSXBabGhpaFZ6X1ZjQkk4QTg4WVBxVjlrTXUyellKRUhzNDFIaDQ?oc=5) |
 | Judge blocks administration from acting to 'undo' issuance of full SNAP benefits - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOMWZTYnd6V3RPcUl3cDVoNExhNExDelRoZmFVRkpnTXV3eUJ1WVBWcDhiQklhTm9RX25pcVBleG9MOF9tTmVHOXlvbktOOWpMUlBtRWRXTndRZXAtU2VPNWtjYjRWN2NYdnJmWGlTNDJPTUE4dndRNHJkTlBfMEpYWE1zSFA3aE5pU2hnbzE0VE5sbkVFMTQwMlNGc9IBoAFBVV95cUxPNWo1bkhaUzZudUNFZk1BSUw5bVZDaEVtUDlISjFIY2xFN0p3SEowS3hsXzFaaldLckt6NFlXaVJpd3MxblJpb3EtV0VfaXI5OUM2YXVkV1NGcGVTVGZhLWthTjNwRGhaZVN3OWZZeTNQRk1LbFhZeXZlTGpnaUhSekk4NUlTTm5oRlRSSzJHUEdrVUcyLWk5MnFoSkE0THJY?oc=5) |
 | Supreme Court won’t hear challenge to landmark gay marriage ruling - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNdUJoU2dhOXJHTUx1ZzNPclFzb2NHMFpnR1dKVFM1bmMtX29GOXBCTUViUE0zRWg2QkVxQ21Hd3RpelZpOWpFN3B5MGhzaUZIM1REQTFPZ0NVRWdNSWxkcmc4Rmt2VEVRRHFGLXBTb2pUWGRodlgwRzFrM3hPYXozM2FPLWlhT0tVYWhr?oc=5) |
 | Senate rejects Paul’s hemp pitch - Politico | [阅读全文](https://news.google.com/rss/articles/CBMioAFBVV95cUxOczZnUmVrTUVOREFvLWdoOXotYXJMNXM1Q2k1LVdHcVZRdEF5MkhzbXlKeUkyTldiSVFPZnpSa1NUVjNVVkZfWHlsUjB3OHFGZHNTNTlUdDBJb3JOR0xrZ2tlbHRBdk9XeU9JUFFwSGJHQ1VnRndNWmhiQWgzMDVhRFJ4Nlo3N1FJcjBCMkxyVml0WVZzVWNyaW9naWg1dUxo?oc=5) |
