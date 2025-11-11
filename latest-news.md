@@ -1,6 +1,6 @@
 # 🧠 新闻自动更新
 
-🕒 更新时间：**2025年11月11日 14:17:54（北京时间）**
+🕒 更新时间：**2025年11月11日 14:24:46（北京时间）**
 
 ---
 
@@ -23,16 +23,16 @@
 
 | 🌐 标题 | 🔗 原文链接 |
 |--------|-------------|
-| Government shutdown end in sight as Senate approves funding package, sending it to House - CBS News | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxOaDBLM0NSWGcyamhyckRBdlVOczZuVV84Zi1renVDVHdndERJRmhuemdhWk84NmtQOG54ZG9tcHZfNHhsaFh0WnNKSTdONXUyc2xhemRiTEVqNF9VUUlxaWJnM2pHLTdSMDlmTm1oUGpBb1JqbnQ4NkJPNmJNNkc0d1BMWTJ1UlRXTllB0gGQAUFVX3lxTFBnaS1EQ05meVU1RnNCMXZBZjlMc1ZuSUlaUjAtbXNKUnBuLVhHUFBlWFBGR0NmR1UtNEoyM2piSjBQemJYNGkzMmthblBsZDl2VDh5YWdSZ19tOGhCVHFHVzYtbWR3WV9fWmVUS1BUUThnLXdxWHhCWk1PcUc5dEVzc3RHczBtelNMUVdKMC1EUA?oc=5) |
+| Deal to end government shutdown passes Senate, heads to House - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPZUx5b2ZlcDdVNFg2V0pKc0xOUjB5Z295SXlXM1ZNbDdqcElxTllxWktoZ2VrSVB3Vkhab1pPeFpWWHgyU3RsOTBXck0zeWZGdUlWZE1JSEJGUlZvTEFEc1RNYlJtbGlkNGNBMlRqWmc2RFQ3MWRtUW5ZZGc1SFRvN284X0Jfb1Fwcy1J?oc=5) |
 | Chuck Schumer faces mounting calls from Democrats to resign as Senate leader - Axios | [阅读全文](https://news.google.com/rss/articles/CBMihAFBVV95cUxPbFJGcmZ1ZFpaZ2ZEMF92dWZpZkJLeUJwYi04dzRwcFBPeE1IVmptMXhMQjZSeXU0bDBqVnhEdksxYTdVdWdaUEZiUUt3VVYyWGcyVFJBRnM3aV9vMndJclUyVGJfVDJVMVBCdl9BZUY0akhqeWd5WGt4SVVJQm9EaFBFWkE?oc=5) |
 | Trump’s sweeping 2020 election pardon raises alarms ahead of the midterms - Politico | [阅读全文](https://news.google.com/rss/articles/CBMilAFBVV95cUxNLWE4c09fTWQxQVU0U2h3dTU5blJ3Zm5XVGYzTVV0M0N1RUNybXlmdkk1VUdWNklDQ2p4V2dsNUZacUJKS0loOGVYQnh4SmdJODRnS2NSN2FDd2dfeWdEQ3E1RjlUU0pDTnRKSTRPX19zVmVpWUVKV0ZadS16dVNVUEUtUDNJcnQ1OEZCYV9aRG02WXlq?oc=5) |
 | Why the BBC Is Facing Its Gravest Crisis in Decades - The New York Times | [阅读全文](https://news.google.com/rss/articles/CBMidkFVX3lxTE0wTnJVaTBYaHlzNjNfc0tkZU53ckREZXRiX1Y4cmlpYVRCLVVVN21pclhFSE13Mjl3OE5GY2JMb0FrVDVHYXIyWU1zUnFDdEJIazRZdWFFQlpkbWVWT29Gek13NHdGaWhQbTlDY2JQeVNBS0FVeEE?oc=5) |
-| Trump administration asks Supreme Court to intervene in SNAP fight again - The Washington Post | [阅读全文](https://news.google.com/rss/articles/CBMiowFBVV95cUxPMVBzanJTNksxQzdMX0cyR1dKdmpyYVQ4dTZPVzdvVFRCNVZlTUo3NG9JdnNoeWZraE94emVBbGhXNGNKUW1IXzNkbkFxMW1QSVM4U2NhbzJOZ1ZyUWR6TmthUmFrTDBPNjdnZUNjMHJsX0ZxVTF3SndZWjN2SEl1UXBCQkI2S09CcHNhenM1elZyUHFORWM4dHhlTmhHM3d2aWdZ?oc=5) |
+| Judge blocks administration from acting to 'undo' issuance of full SNAP benefits - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMimwFBVV95cUxOMWZTYnd6V3RPcUl3cDVoNExhNExDelRoZmFVRkpnTXV3eUJ1WVBWcDhiQklhTm9RX25pcVBleG9MOF9tTmVHOXlvbktOOWpMUlBtRWRXTndRZXAtU2VPNWtjYjRWN2NYdnJmWGlTNDJPTUE4dndRNHJkTlBfMEpYWE1zSFA3aE5pU2hnbzE0VE5sbkVFMTQwMlNGc9IBoAFBVV95cUxPNWo1bkhaUzZudUNFZk1BSUw5bVZDaEVtUDlISjFIY2xFN0p3SEowS3hsXzFaaldLckt6NFlXaVJpd3MxblJpb3EtV0VfaXI5OUM2YXVkV1NGcGVTVGZhLWthTjNwRGhaZVN3OWZZeTNQRk1LbFhZeXZlTGpnaUhSekk4NUlTTm5oRlRSSzJHUEdrVUcyLWk5MnFoSkE0THJY?oc=5) |
+| Shopping for an Affordable Care Act health plan? NPR wants to hear your experience - NPR | [阅读全文](https://news.google.com/rss/articles/CBMibkFVX3lxTE5ybTJQTTAzMkFycWc1ZExyS3lRUE9sOEMzTmxTek9QcndGOUE3RjM3dDYtTllMWFpLYXpYTms2MGlFSWEtTm1EZ0JKUXNkaExabE5vV3NZRUhnOHpqQmNraXJpNVhMSHllWGV3dDRR?oc=5) |
 | Supreme Court denies Kim Davis' petition to revisit same-sex marriage ruling - abcnews.go.com | [阅读全文](https://news.google.com/rss/articles/CBMipwFBVV95cUxNZndDR0NvcU5rWEgwcFZTY19IemJHdllNY0gyZUVKZm40S0JfdDBJYm1BWWpUcTR4U3pCOHl6aG40UTM5dnd4azhhY3pCclVhQjN4Vi10ckExSUg0NTliSGlRRndSMU5mOGNrZTEtT3Y3S2gyOE5wenVhY1lQbXV2THhFVjlmY3NlUkZWb0p1Q0xwOWxoMUhjRllMOFJnU2hMN1lMSDZhUdIBrAFBVV95cUxORmFBZi1UXzVrME5tV25sZzMwdE85a0U2QUpyMHRFVEhHZDNoWldEc2tkZlAteFJfVThXejlGbjVaemdFQlBRQlBQUGo1M2NCU1drRUlWSmttdTgxRWhYY3poN3RiYUoxZ0dZT0JMYnN6SkVzNEVXcFhyNHpEcXBvVW1BZlJsQ3h1ak9Ga2d2OG5oeHR1ZUhWc3VsUHpDcjNIYjJwY0cxTGM0Znc2?oc=5) |
 | Families accuse Camp Mystic of ignoring risks in Texas lawsuit over flood deaths - NPR | [阅读全文](https://news.google.com/rss/articles/CBMihgFBVV95cUxPRkxyR2tqbzU4YlhCcUdSME41ZmRFMk0tSW5tMTNWc2xvU3hwdGJKa2tTeTJJTkpBaFlRZzNNMnFObWx6QlpWWk1pWE5mUzJDYS0yQzNJYXhQSU4zbnZ1UG82eGI1aW0zSmdwQ2xpYzk1X3JSOW0wVUptN3pvdUlzcG1uQUJVZw?oc=5) |
 | Local hemp producers stunned as deal to reopen government attacks hemp - MPR News | [阅读全文](https://news.google.com/rss/articles/CBMilgFBVV95cUxNQXlkWHVpY3RqVXFvSlRWQ0EzLVVUWFdXNkZpN3B2YXNkZi1Ia19wVTJMNHlEVDllTlF6bjRIT0lLWk9DS0FDaXRUZXdiZDFzSERBVnJCM2pNY09IS21RWlhCVGRGTDVYc1FUclR1VmlhdVV2ZlU4RmdMZExWZG1HazVoYmJ5REwtOWp3SU52SGt6WTdOb2c?oc=5) |
-| What to know about Trump's pitch for a $2,000 tariff dividend - Axios | [阅读全文](https://news.google.com/rss/articles/CBMigAFBVV95cUxNQnR3b0JxZG5pTHkweU5hSU9VWEVMWUota0dyQ2ZzMUd2MjRNSVF2WTdpZjNLVlVJR3RXTmxhc1JkTW0wYzJTNVFMSmVfaVV2a2VtSHJURlhHeURBSU5UZ1Z6YnRuMEtzSmJwUEJVa2tVaTR4ZHNHcjd6ajJhbnVucQ?oc=5) |
-| Delhi police says car blast being probed under anti-terrorism law - Reuters | [阅读全文](https://news.google.com/rss/articles/CBMivAFBVV95cUxPSE9WM2ZhV2lMRzB6bkdlcjBJLUJJRXdtTjZVMFRhSmFuLWhyMGZmQXdkclFDUzl6X3dUV3Z2QUxOdVJIM2kzZTVxendacVc1enVWa3JGTWhCYXJELVh0blZxd3dtX05MaWdGS1ZLMGgxT0o5Z1JTbTU3SmY1RHp3QmRKWnRsOFZHMWU3a2JSUkNnRmIxOTdjbGg2T0gtNDl2aHJlU0ktU2FqbnlzYjNzNlR3ZnFRX0ZTdkRBZA?oc=5) |
+| Trump Warns Air Traffic Controllers to Work or Get ‘Docked’ - Bloomberg.com | [阅读全文](https://news.google.com/rss/articles/CBMisgFBVV95cUxOay1USGNrelZOMVJLYUQzS1Naam9JNGVtUzh6am9WRm5rUW83N1NLYUNhV2taQ0RhcXpjR1F3bEVvSHpaWUxlVG9waDJOZDN2N3dpMGVkTW1mUDcweFdpQWx0c2lINDlmeXNscVFUZWMxaWxQOXRxQlVfUDFMaFpTRFlPLUV3SlBNUmlqdmx1LUd2TFQtTEhuWnZySmJYcTZwOWg5N29nbWNyTXZZclRiNS1B?oc=5) |
 
 ---
 > 本页面内容来自公开的 BBC 和 Google 新闻 RSS 源，每 10 分钟自动更新。
