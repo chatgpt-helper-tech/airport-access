@@ -361,13 +361,8 @@ WgetCloud 质量和客服都不错，但当前只支持年付，入门实付 ¥7
 
 ## 🌍 最新国外新闻速览（自动更新）
 
-> 📰 本模块用于定时更新最近 10 条国外新闻标题与原文链接，方便在连接恢复后快速了解海外动态。
-> 💡 这里只放标题和跳转链接，不做长摘要，不影响正文的机场推荐主线。
-
 <!-- daily-check start -->
 更新时间：2026年5月1日 00:29:55
-
-数据来源：BBC World / NYT World / NPR World（自动抓取 RSS，按发布时间排序，自动去重）
 
 1. [Venice Biennale jury resigns days before start of exhibition](https://www.bbc.com/news/articles/c78qdg4g80eo?at_medium=RSS&at_campaign=rss)
 2. [Violence in Australian town after arrest of man over girl's murder](https://www.bbc.com/news/articles/cddp4j7p8pzo?at_medium=RSS&at_campaign=rss)
