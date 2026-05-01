@@ -1,6 +1,6 @@
 # 2026 精品机场推荐｜稳定科学上网机场服务实测
 
-📅 **内容最后更新：2026年04月29日**
+📅 **内容最后更新：2026年05月01日**
 
 2026 年 4 月以来，机场行业波动明显加剧，不少机场出现被拔线、入口长时间不可用、客服失联、公告不透明等情况。对普通用户来说，当前阶段最重要的已经不是“找最便宜的机场”，而是选择一家具备线路质量、入口维护能力和客服响应能力的稳定机场服务。
 
@@ -357,4 +357,30 @@ WgetCloud 质量和客服都不错，但当前只支持年付，入门实付 ¥7
 
 ---
 
-内容最后更新：2026年04月29日
+<a id="daily-check"></a>
+
+## 🌍 最新国外新闻速览（自动更新）
+
+> 📰 本模块用于定时更新最近 10 条国外新闻标题与原文链接，方便在连接恢复后快速了解海外动态。
+> 💡 这里只放标题和跳转链接，不做长摘要，不影响正文的机场推荐主线。
+
+<!-- daily-check start -->
+更新时间：2026年5月1日 00:29:55
+
+数据来源：BBC World / NYT World / NPR World（自动抓取 RSS，按发布时间排序，自动去重）
+
+1. [Venice Biennale jury resigns days before start of exhibition](https://www.bbc.com/news/articles/c78qdg4g80eo?at_medium=RSS&at_campaign=rss)
+2. [Violence in Australian town after arrest of man over girl's murder](https://www.bbc.com/news/articles/cddp4j7p8pzo?at_medium=RSS&at_campaign=rss)
+3. [20,000 civilian sailors are stuck in the gulf that opens to the Strait of Hormuz](https://www.npr.org/2026/04/30/nx-s1-5802991/20-000-civilian-sailors-are-stuck-in-the-gulf-that-opens-to-the-strait-of-hormuz)
+4. [Britney Spears charged in California with driving under influence](https://www.bbc.com/news/articles/clyp6r9dzedo?at_medium=RSS&at_campaign=rss)
+5. [Deadly Israeli strikes on southern Lebanon despite ceasefire](https://www.bbc.com/news/articles/cq5pepj21g8o?at_medium=RSS&at_campaign=rss)
+6. [Belgium plans to nationalise nuclear power plants](https://www.bbc.com/news/articles/c4g05jg87wko?at_medium=RSS&at_campaign=rss)
+7. [Journalist Detained in Kuwait Says He Was Stripped of Citizenship](https://www.nytimes.com/2026/04/30/world/middleeast/ahmed-shihab-eldin-citizenship.html)
+8. [Iranians Live With Pain and Powerlessness, Beneath a Smooth Veneer](https://www.nytimes.com/2026/04/30/world/middleeast/iranian-mood-after-war.html)
+9. [What to Know About the Stabbing Attack Against 2 Jewish Men in London](https://www.nytimes.com/2026/04/30/world/europe/stabbing-attack-jewish-men-london.html)
+10. [Attacks on Jewish Targets in Europe Suggest Hybrid Warfare](https://www.nytimes.com/2026/04/30/world/europe/european-antisemitism-hybrid-warfare.html)
+<!-- daily-check end -->
+
+---
+
+内容最后更新：2026年05月01日
