@@ -362,18 +362,18 @@ WgetCloud 质量和客服都不错，但当前只支持年付，入门实付 ¥7
 ## 🌍 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年5月1日 03:38:53
+更新时间：2026年5月2日 03:37:19
 
-1. [Violence in Australian town after arrest of man over girl's murder](https://www.bbc.com/news/articles/cddp4j7p8pzo?at_medium=RSS&at_campaign=rss)
-2. [Iran’s Supreme Leader Signals Plan to Maintain Control Over Strait of Hormuz](https://www.nytimes.com/2026/04/30/world/middleeast/iran-war-supreme-leader-mojtaba-khamenei-strait-hormuz.html)
-3. [China scraps tariffs for all but one African nation](https://www.bbc.com/news/articles/cwy2v509217o?at_medium=RSS&at_campaign=rss)
-4. [Venice Biennale jury resigns days before start of exhibition](https://www.bbc.com/news/articles/c78qdg4g80eo?at_medium=RSS&at_campaign=rss)
-5. [20,000 civilian sailors are stuck in the gulf that opens to the Strait of Hormuz](https://www.npr.org/2026/04/30/nx-s1-5802991/20-000-civilian-sailors-are-stuck-in-the-gulf-that-opens-to-the-strait-of-hormuz)
-6. [Britney Spears charged in California with driving under influence](https://www.bbc.com/news/articles/clyp6r9dzedo?at_medium=RSS&at_campaign=rss)
-7. [Deadly Israeli strikes on southern Lebanon despite ceasefire](https://www.bbc.com/news/articles/cq5pepj21g8o?at_medium=RSS&at_campaign=rss)
-8. [Journalist Detained in Kuwait Says He Was Stripped of Citizenship](https://www.nytimes.com/2026/04/30/world/middleeast/ahmed-shihab-eldin-citizenship.html)
-9. [Iranians Live With Pain and Powerlessness, Beneath a Smooth Veneer](https://www.nytimes.com/2026/04/30/world/middleeast/iranian-mood-after-war.html)
-10. [What to Know About the Stabbing Attack Against 2 Jewish Men in London](https://www.nytimes.com/2026/04/30/world/europe/stabbing-attack-jewish-men-london.html)
+1. [US court limits mail-order access to abortion pill mifepristone](https://www.bbc.com/news/articles/c2k20z5yj3wo?at_medium=RSS&at_campaign=rss)
+2. [U.S. Indictment of Sinaloa’s Governor Is a Reckoning for Residents of the Mexican State](https://www.nytimes.com/2026/05/01/world/americas/us-indictment-sinaloa-governor-cartels-drugs.html)
+3. [Trump tells Congress ceasefire means he does not need their approval for Iran war](https://www.bbc.com/news/articles/c4g4xexy4w7o?at_medium=RSS&at_campaign=rss)
+4. [US to cut troop levels in Germany by 5,000 amid Trump spat with Merz](https://www.bbc.com/news/articles/c0729d374mxo?at_medium=RSS&at_campaign=rss)
+5. [Israel Said to Have Helped Defend Emirates in Iran War With Iron Dome](https://www.nytimes.com/2026/05/01/world/middleeast/israel-emirates-iron-dome.html)
+6. [Who shot a Secret Service officer at the Trump press dinner?](https://www.bbc.com/news/articles/cm2pmk0r3pjo?at_medium=RSS&at_campaign=rss)
+7. [Trump ‘Not Satisfied’ With Iran’s Proposal on Ending War](https://www.nytimes.com/2026/05/01/world/middleeast/iran-new-proposal-peace-talks.html)
+8. [After Canada loosens citizenship requirements, thousands of people apply](https://www.npr.org/2026/05/01/nx-s1-5804529/after-canada-loosens-citizenship-requirements-thousands-of-people-apply)
+9. [Suspect in UK Stabbing Attack on Jewish Men Faces Third Attempted Murder Charge](https://www.nytimes.com/2026/05/01/world/europe/uk-jewish-stabbings-attempted-murder-charges.html)
+10. [Australia wants to become the first country to eliminate a cancer - can it?](https://www.bbc.com/news/articles/cd6w15vgp7lo?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
 
 ---
