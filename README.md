@@ -453,18 +453,18 @@ WgetCloud 质量和客服都不错，整体质量也高于 u1s1，但当前只�
 ## 🌍 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年5月2日 03:37:19
+更新时间：2026年5月3日 03:30:37
 
-1. [US court limits mail-order access to abortion pill mifepristone](https://www.bbc.com/news/articles/c2k20z5yj3wo?at_medium=RSS&at_campaign=rss)
-2. [U.S. Indictment of Sinaloa’s Governor Is a Reckoning for Residents of the Mexican State](https://www.nytimes.com/2026/05/01/world/americas/us-indictment-sinaloa-governor-cartels-drugs.html)
-3. [Trump tells Congress ceasefire means he does not need their approval for Iran war](https://www.bbc.com/news/articles/c4g4xexy4w7o?at_medium=RSS&at_campaign=rss)
-4. [US to cut troop levels in Germany by 5,000 amid Trump spat with Merz](https://www.bbc.com/news/articles/c0729d374mxo?at_medium=RSS&at_campaign=rss)
-5. [Israel Said to Have Helped Defend Emirates in Iran War With Iron Dome](https://www.nytimes.com/2026/05/01/world/middleeast/israel-emirates-iron-dome.html)
-6. [Who shot a Secret Service officer at the Trump press dinner?](https://www.bbc.com/news/articles/cm2pmk0r3pjo?at_medium=RSS&at_campaign=rss)
-7. [Trump ‘Not Satisfied’ With Iran’s Proposal on Ending War](https://www.nytimes.com/2026/05/01/world/middleeast/iran-new-proposal-peace-talks.html)
-8. [After Canada loosens citizenship requirements, thousands of people apply](https://www.npr.org/2026/05/01/nx-s1-5804529/after-canada-loosens-citizenship-requirements-thousands-of-people-apply)
-9. [Suspect in UK Stabbing Attack on Jewish Men Faces Third Attempted Murder Charge](https://www.nytimes.com/2026/05/01/world/europe/uk-jewish-stabbings-attempted-murder-charges.html)
-10. [Australia wants to become the first country to eliminate a cancer - can it?](https://www.bbc.com/news/articles/cd6w15vgp7lo?at_medium=RSS&at_campaign=rss)
+1. [Germany says U.S. troop withdrawal 'anticipated', Spain and Italy could be next](https://www.npr.org/2026/05/02/nx-s1-5808891/europe-allies-germany-troop-withdrawal-us)
+2. [Iran submits 14-point response to U.S. proposal to end war](https://www.npr.org/2026/05/02/nx-s1-5808924/iran-response-trump-proposal)
+3. [How Germany May Have Misjudged Trump’s Anger on Iran](https://www.nytimes.com/2026/05/02/world/europe/germany-trump-merz-troops-withdrawal.html)
+4. [What to Know About the U.S.-Iran Peace Talks](https://www.nytimes.com/2026/04/26/world/middleeast/us-iran-peace-talks-pakistan.html)
+5. [The Iran war has strengthened Ukraine in surprising ways. Could a ceasefire with Russia be closer?](https://www.bbc.com/news/articles/cgjp7vpee03o?at_medium=RSS&at_campaign=rss)
+6. [The clandestine network smuggling Starlink tech into Iran to beat internet blackout](https://www.bbc.com/news/articles/cvgzk91leweo?at_medium=RSS&at_campaign=rss)
+7. [Germany says US troop withdrawal 'foreseeable' as Nato seeks clarification](https://www.bbc.com/news/articles/cd9pn541jjlo?at_medium=RSS&at_campaign=rss)
+8. [Is there a 'standard' Indian body?](https://www.npr.org/2026/05/02/nx-s1-5734003/is-there-a-standard-indian-body)
+9. [Collaboration helps NPR journalists get you the story of the Iran war up close](https://www.npr.org/2026/05/02/nx-s1-5802996/collaboration-helps-npr-journalists-get-you-the-story-of-the-iran-war-up-close)
+10. [ICRC President Mirjana Spoljaric warns of the war's impact on civilians](https://www.npr.org/2026/05/02/nx-s1-5807914/icrc-president-mirjana-spoljaric-warns-of-the-wars-impact-on-civilians)
 <!-- daily-check end -->
 
 ---
