@@ -453,18 +453,18 @@ WgetCloud 质量和客服都不错，整体质量也高于 u1s1，但当前只�
 ## 🌍 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年5月3日 03:30:37
+更新时间：2026年5月4日 03:39:30
 
-1. [Germany says U.S. troop withdrawal 'anticipated', Spain and Italy could be next](https://www.npr.org/2026/05/02/nx-s1-5808891/europe-allies-germany-troop-withdrawal-us)
-2. [Iran submits 14-point response to U.S. proposal to end war](https://www.npr.org/2026/05/02/nx-s1-5808924/iran-response-trump-proposal)
-3. [How Germany May Have Misjudged Trump’s Anger on Iran](https://www.nytimes.com/2026/05/02/world/europe/germany-trump-merz-troops-withdrawal.html)
-4. [What to Know About the U.S.-Iran Peace Talks](https://www.nytimes.com/2026/04/26/world/middleeast/us-iran-peace-talks-pakistan.html)
-5. [The Iran war has strengthened Ukraine in surprising ways. Could a ceasefire with Russia be closer?](https://www.bbc.com/news/articles/cgjp7vpee03o?at_medium=RSS&at_campaign=rss)
-6. [The clandestine network smuggling Starlink tech into Iran to beat internet blackout](https://www.bbc.com/news/articles/cvgzk91leweo?at_medium=RSS&at_campaign=rss)
-7. [Germany says US troop withdrawal 'foreseeable' as Nato seeks clarification](https://www.bbc.com/news/articles/cd9pn541jjlo?at_medium=RSS&at_campaign=rss)
-8. [Is there a 'standard' Indian body?](https://www.npr.org/2026/05/02/nx-s1-5734003/is-there-a-standard-indian-body)
-9. [Collaboration helps NPR journalists get you the story of the Iran war up close](https://www.npr.org/2026/05/02/nx-s1-5802996/collaboration-helps-npr-journalists-get-you-the-story-of-the-iran-war-up-close)
-10. [ICRC President Mirjana Spoljaric warns of the war's impact on civilians](https://www.npr.org/2026/05/02/nx-s1-5807914/icrc-president-mirjana-spoljaric-warns-of-the-wars-impact-on-civilians)
+1. [Crack Down? Close Ranks? U.S. Cartel Case Puts Mexican Leaders on the Spot.](https://www.nytimes.com/2026/05/03/world/americas/mexico-sinaloa-corruption.html)
+2. [Hantavirus outbreak kills 3 on cruise ship in the Atlantic Ocean, WHO says](https://www.npr.org/2026/05/03/nx-s1-5809495/hantavirus-outbreak-cruise-ship-atlantic-ocean)
+3. [Oil Tanker Hijacking Stokes Fear of Links Between Houthi Rebels and Somali Pirates](https://www.nytimes.com/2026/05/02/world/middleeast/hijacking-tanker-houthis-somalia-pirates.html)
+4. [Gas prices went up more than 30 cents a gallon last week. How high could they go?](https://www.npr.org/2026/05/03/nx-s1-5809433/gas-prices-rise-week-hormuz-iran-war)
+5. [Three dead in suspected virus outbreak on Atlantic cruise ship](https://www.bbc.com/news/articles/cy0294829ndo?at_medium=RSS&at_campaign=rss)
+6. [Iran says US has responded to its latest peace proposal](https://www.bbc.com/news/articles/cn0px2x53k2o?at_medium=RSS&at_campaign=rss)
+7. [Entrepreneurs fight pile-up of garbage in the West Bank](https://www.npr.org/2026/05/03/nx-s1-5787449/entrepreneurs-fight-pile-up-of-garbage-in-the-west-bank)
+8. [Blasting beats and neon lights: inside Nairobi's 'nganya' bus culture](https://www.npr.org/2026/05/03/nx-s1-5797891/blasting-beats-and-neon-lights-inside-nairobis-nganya-bus-culture)
+9. [Global Demand for Rare Earth Minerals Is Intensifying Criminal Threats in the Amazon Rainforest](https://www.nytimes.com/2026/05/03/world/americas/illegal-miners-amazon-rainforest-critical-minerals.html)
+10. [Modern economic chokepoints in war and the impact on geopolitics](https://www.npr.org/2026/05/03/nx-s1-5804691/modern-economic-chokepoints-in-war-and-the-impact-on-geopolitics)
 <!-- daily-check end -->
 
 ---
