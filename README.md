@@ -453,18 +453,18 @@ WgetCloud 质量和客服都不错，整体质量也高于 u1s1，但当前只�
 ## 🌍 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年5月4日 03:39:30
+更新时间：2026年5月5日 03:39:30
 
-1. [Crack Down? Close Ranks? U.S. Cartel Case Puts Mexican Leaders on the Spot.](https://www.nytimes.com/2026/05/03/world/americas/mexico-sinaloa-corruption.html)
-2. [Hantavirus outbreak kills 3 on cruise ship in the Atlantic Ocean, WHO says](https://www.npr.org/2026/05/03/nx-s1-5809495/hantavirus-outbreak-cruise-ship-atlantic-ocean)
-3. [Oil Tanker Hijacking Stokes Fear of Links Between Houthi Rebels and Somali Pirates](https://www.nytimes.com/2026/05/02/world/middleeast/hijacking-tanker-houthis-somalia-pirates.html)
-4. [Gas prices went up more than 30 cents a gallon last week. How high could they go?](https://www.npr.org/2026/05/03/nx-s1-5809433/gas-prices-rise-week-hormuz-iran-war)
-5. [Three dead in suspected virus outbreak on Atlantic cruise ship](https://www.bbc.com/news/articles/cy0294829ndo?at_medium=RSS&at_campaign=rss)
-6. [Iran says US has responded to its latest peace proposal](https://www.bbc.com/news/articles/cn0px2x53k2o?at_medium=RSS&at_campaign=rss)
-7. [Entrepreneurs fight pile-up of garbage in the West Bank](https://www.npr.org/2026/05/03/nx-s1-5787449/entrepreneurs-fight-pile-up-of-garbage-in-the-west-bank)
-8. [Blasting beats and neon lights: inside Nairobi's 'nganya' bus culture](https://www.npr.org/2026/05/03/nx-s1-5797891/blasting-beats-and-neon-lights-inside-nairobis-nganya-bus-culture)
-9. [Global Demand for Rare Earth Minerals Is Intensifying Criminal Threats in the Amazon Rainforest](https://www.nytimes.com/2026/05/03/world/americas/illegal-miners-amazon-rainforest-critical-minerals.html)
-10. [Modern economic chokepoints in war and the impact on geopolitics](https://www.npr.org/2026/05/03/nx-s1-5804691/modern-economic-chokepoints-in-war-and-the-impact-on-geopolitics)
+1. [Iran War Live Updates: Attacks in Gulf Threaten to Reignite Conflict](https://www.nytimes.com/live/2026/05/04/world/iran-hormuz-ships-navy)
+2. [US strikes Iranian fast boats as Iran attacks UAE oil facility](https://www.bbc.com/news/articles/cjwp432d0v5o?at_medium=RSS&at_campaign=rss)
+3. [Second hantavirus case confirmed after three die in suspected cruise ship outbreak](https://www.bbc.com/news/articles/cy0294829ndo?at_medium=RSS&at_campaign=rss)
+4. [Robots move in as waste firms struggle to find staff](https://www.bbc.com/news/articles/cvg0w84q1wyo?at_medium=RSS&at_campaign=rss)
+5. [Two killed and many injured after car driven into crowd in German city of Leipzig](https://www.bbc.com/news/articles/ckgpzgxgz58o?at_medium=RSS&at_campaign=rss)
+6. [Why U.S. troops are stationed in Germany, and what happens if some leave](https://www.npr.org/2026/05/04/nx-s1-5810195/why-u-s-troops-are-stationed-in-germany-and-what-happens-if-some-leave)
+7. [Modi's party takes control of India's West Bengal in key state election](https://www.npr.org/2026/05/04/g-s1-120053/modis-party-takes-control-of-indias-west-bengal-in-key-state-election)
+8. [Mark Carney Pulls Canada Closer to Europe as Both Struggle With Trump](https://www.nytimes.com/2026/05/04/world/canada/carney-europe-trump.html)
+9. [Ukrainian drone hits upmarket Moscow high-rise ahead of Victory Day celebrations](https://www.bbc.com/news/articles/cwy234llx3vo?at_medium=RSS&at_campaign=rss)
+10. [Drone Hits a Moscow High-Rise Days Before a Major Military Parade](https://www.nytimes.com/2026/05/04/world/europe/moscow-drone-attack.html)
 <!-- daily-check end -->
 
 ---
