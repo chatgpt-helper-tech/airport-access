@@ -453,18 +453,18 @@ WgetCloud 质量和客服都不错，整体质量也高于 u1s1，但当前只�
 ## 🌍 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年5月5日 03:39:30
+更新时间：2026年5月6日 03:33:44
 
-1. [Iran War Live Updates: Attacks in Gulf Threaten to Reignite Conflict](https://www.nytimes.com/live/2026/05/04/world/iran-hormuz-ships-navy)
-2. [US strikes Iranian fast boats as Iran attacks UAE oil facility](https://www.bbc.com/news/articles/cjwp432d0v5o?at_medium=RSS&at_campaign=rss)
-3. [Second hantavirus case confirmed after three die in suspected cruise ship outbreak](https://www.bbc.com/news/articles/cy0294829ndo?at_medium=RSS&at_campaign=rss)
-4. [Robots move in as waste firms struggle to find staff](https://www.bbc.com/news/articles/cvg0w84q1wyo?at_medium=RSS&at_campaign=rss)
-5. [Two killed and many injured after car driven into crowd in German city of Leipzig](https://www.bbc.com/news/articles/ckgpzgxgz58o?at_medium=RSS&at_campaign=rss)
-6. [Why U.S. troops are stationed in Germany, and what happens if some leave](https://www.npr.org/2026/05/04/nx-s1-5810195/why-u-s-troops-are-stationed-in-germany-and-what-happens-if-some-leave)
-7. [Modi's party takes control of India's West Bengal in key state election](https://www.npr.org/2026/05/04/g-s1-120053/modis-party-takes-control-of-indias-west-bengal-in-key-state-election)
-8. [Mark Carney Pulls Canada Closer to Europe as Both Struggle With Trump](https://www.nytimes.com/2026/05/04/world/canada/carney-europe-trump.html)
-9. [Ukrainian drone hits upmarket Moscow high-rise ahead of Victory Day celebrations](https://www.bbc.com/news/articles/cwy234llx3vo?at_medium=RSS&at_campaign=rss)
-10. [Drone Hits a Moscow High-Rise Days Before a Major Military Parade](https://www.nytimes.com/2026/05/04/world/europe/moscow-drone-attack.html)
+1. [Iran War Live Updates: Trump Again Shifts U.S. Focus on Strait, Pausing Day-Old Escort Mission](https://www.nytimes.com/live/2026/05/05/world/iran-war-trump-hormuz)
+2. [Oil prices ease as US pauses Project Freedom to seek deal with Iran](https://www.bbc.com/news/articles/c4g8zejyyr3o?at_medium=RSS&at_campaign=rss)
+3. [Trump says US to pause operation to guide vessels through Strait of Hormuz](https://www.bbc.com/news/articles/clypekl71gdo?at_medium=RSS&at_campaign=rss)
+4. [Vivek Ramaswamy wins Republican nomination for Ohio governor](https://www.bbc.com/news/articles/c4g0xe4qlzxo?at_medium=RSS&at_campaign=rss)
+5. [Trump Looks for a Silver Bullet to End the Iran War. There May Be None.](https://www.nytimes.com/2026/05/05/world/middleeast/trump-blockade-iran-war.html)
+6. [U.S. says it's made Hormuz safe for commercial shipping, but standoff hasn't changed](https://www.npr.org/2026/05/05/nx-s1-5812487/u-s-says-its-made-hormuz-safe-for-commercial-shipping-but-standoff-hasnt-changed)
+7. [In Venezuela, Trump Vowed to Show Accountability. But Secret Oil Deals Linger.](https://www.nytimes.com/2026/05/05/world/trump-venezuela-oil-deals.html)
+8. [Russian attacks kill more than 20 ahead of rival ceasefires proposed by Kyiv and Moscow](https://www.bbc.com/news/articles/c1e2zjz22p9o?at_medium=RSS&at_campaign=rss)
+9. [NPR went looking for Polymarket's Panama headquarters. It's elusive](https://www.npr.org/2026/05/05/nx-s1-5807918/polymarket-panama-prediction-market)
+10. [The Iran war sent jet fuel prices sky-high. Here's what air travelers should know](https://www.npr.org/2026/05/05/nx-s1-5811918/iran-war-jet-fuel-baggage-fees-travel-tips)
 <!-- daily-check end -->
 
 ---
