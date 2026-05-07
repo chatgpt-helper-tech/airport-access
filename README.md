@@ -453,18 +453,18 @@ WgetCloud 质量和客服都不错，整体质量也高于 u1s1，但当前只�
 ## 🌍 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年5月6日 03:33:44
+更新时间：2026年5月7日 03:33:28
 
-1. [Iran War Live Updates: Trump Again Shifts U.S. Focus on Strait, Pausing Day-Old Escort Mission](https://www.nytimes.com/live/2026/05/05/world/iran-war-trump-hormuz)
-2. [Oil prices ease as US pauses Project Freedom to seek deal with Iran](https://www.bbc.com/news/articles/c4g8zejyyr3o?at_medium=RSS&at_campaign=rss)
-3. [Trump says US to pause operation to guide vessels through Strait of Hormuz](https://www.bbc.com/news/articles/clypekl71gdo?at_medium=RSS&at_campaign=rss)
-4. [Vivek Ramaswamy wins Republican nomination for Ohio governor](https://www.bbc.com/news/articles/c4g0xe4qlzxo?at_medium=RSS&at_campaign=rss)
-5. [Trump Looks for a Silver Bullet to End the Iran War. There May Be None.](https://www.nytimes.com/2026/05/05/world/middleeast/trump-blockade-iran-war.html)
-6. [U.S. says it's made Hormuz safe for commercial shipping, but standoff hasn't changed](https://www.npr.org/2026/05/05/nx-s1-5812487/u-s-says-its-made-hormuz-safe-for-commercial-shipping-but-standoff-hasnt-changed)
-7. [In Venezuela, Trump Vowed to Show Accountability. But Secret Oil Deals Linger.](https://www.nytimes.com/2026/05/05/world/trump-venezuela-oil-deals.html)
-8. [Russian attacks kill more than 20 ahead of rival ceasefires proposed by Kyiv and Moscow](https://www.bbc.com/news/articles/c1e2zjz22p9o?at_medium=RSS&at_campaign=rss)
-9. [NPR went looking for Polymarket's Panama headquarters. It's elusive](https://www.npr.org/2026/05/05/nx-s1-5807918/polymarket-panama-prediction-market)
-10. [The Iran war sent jet fuel prices sky-high. Here's what air travelers should know](https://www.npr.org/2026/05/05/nx-s1-5811918/iran-war-jet-fuel-baggage-fees-travel-tips)
+1. [Ted Turner, media mogul who revolutionised TV news by launching CNN, dies at 87](https://www.bbc.com/news/articles/c1k2jnx8gmlo?at_medium=RSS&at_campaign=rss)
+2. [Iran War Updates: Tehran and U.S. Offer Conflicting Messages on State of Negotiations](https://www.nytimes.com/live/2026/05/06/world/iran-us-hormuz-oil)
+3. [A Hotel in Venezuela’s Capital Has Become the U.S. Embassy’s De Facto Headquarters](https://www.nytimes.com/2026/05/06/world/americas/venezuela-caracas-us-embassy-marriott-hotel.html)
+4. [German tourist wins payout after losing sun lounger race](https://www.bbc.com/news/articles/c5y72g09d7jo?at_medium=RSS&at_campaign=rss)
+5. [Hantavirus Patients Land in Amsterdam With More Cruise Ship Evacuations Planned](https://www.nytimes.com/2026/05/06/world/hantavirus-cruise-ship.html)
+6. [Hantavirus-hit cruise ship leaves Cape Verde after three evacuated](https://www.bbc.com/news/articles/c5y093d5n9ko?at_medium=RSS&at_campaign=rss)
+7. [Iran considering US proposal to end war, official says](https://www.bbc.com/news/articles/cj0pq2q8221o?at_medium=RSS&at_campaign=rss)
+8. [Antisemitism is a campaign issue in UK regional vote](https://www.npr.org/2026/05/06/nx-s1-5812457/antisemitism-is-a-campaign-issue-in-uk-regional-vote)
+9. [Israel strikes Beirut for first time since Hezbollah ceasefire](https://www.bbc.com/news/articles/crmpjjl02l2o?at_medium=RSS&at_campaign=rss)
+10. [World Cup Dynamic Ticket Pricing Drives Argentine Soccer Fans To Extremes](https://www.nytimes.com/2026/05/06/world/americas/2026-world-cup-ticket-prices-argentina.html)
 <!-- daily-check end -->
 
 ---
