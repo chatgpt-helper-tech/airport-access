@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年5月7日 03:33:28
+更新时间：2026年5月8日 03:39:43
 
-1. [Ted Turner, media mogul who revolutionised TV news by launching CNN, dies at 87](https://www.bbc.com/news/articles/c1k2jnx8gmlo?at_medium=RSS&at_campaign=rss)
-2. [Iran War Updates: Tehran and U.S. Offer Conflicting Messages on State of Negotiations](https://www.nytimes.com/live/2026/05/06/world/iran-us-hormuz-oil)
-3. [A Hotel in Venezuela’s Capital Has Become the U.S. Embassy’s De Facto Headquarters](https://www.nytimes.com/2026/05/06/world/americas/venezuela-caracas-us-embassy-marriott-hotel.html)
-4. [German tourist wins payout after losing sun lounger race](https://www.bbc.com/news/articles/c5y72g09d7jo?at_medium=RSS&at_campaign=rss)
-5. [Hantavirus Patients Land in Amsterdam With More Cruise Ship Evacuations Planned](https://www.nytimes.com/2026/05/06/world/hantavirus-cruise-ship.html)
-6. [Hantavirus-hit cruise ship leaves Cape Verde after three evacuated](https://www.bbc.com/news/articles/c5y093d5n9ko?at_medium=RSS&at_campaign=rss)
-7. [Iran considering US proposal to end war, official says](https://www.bbc.com/news/articles/cj0pq2q8221o?at_medium=RSS&at_campaign=rss)
-8. [Antisemitism is a campaign issue in UK regional vote](https://www.npr.org/2026/05/06/nx-s1-5812457/antisemitism-is-a-campaign-issue-in-uk-regional-vote)
-9. [Israel strikes Beirut for first time since Hezbollah ceasefire](https://www.bbc.com/news/articles/crmpjjl02l2o?at_medium=RSS&at_campaign=rss)
-10. [World Cup Dynamic Ticket Pricing Drives Argentine Soccer Fans To Extremes](https://www.nytimes.com/2026/05/06/world/americas/2026-world-cup-ticket-prices-argentina.html)
+1. [Iran War Live Updates: U.S. and Iran Exchange Fire Amid a Declared Truce](https://www.nytimes.com/live/2026/05/07/world/iran-trump-hormuz-peace-deal)
+2. [US to revoke passports of parents with child support debt](https://www.bbc.com/news/articles/c62r52l107po?at_medium=RSS&at_campaign=rss)
+3. [Trump says US-Iran ceasefire still in place after exchange of fire in Strait of Hormuz](https://www.bbc.com/news/articles/c626zyywxjno?at_medium=RSS&at_campaign=rss)
+4. [A Project in Europe Tested Whether Students Could Live Without Smartphones](https://www.nytimes.com/2026/05/07/world/europe/smartphones-austria-children-experiment.html)
+5. [Two Islamic-State linked Australian women charged with crimes against humanity](https://www.bbc.com/news/articles/cdrpx8pl36vo?at_medium=RSS&at_campaign=rss)
+6. [Trump gives EU ultimatum deadline to approve trade deal with US](https://www.bbc.com/news/articles/cp3pyk4nw3lo?at_medium=RSS&at_campaign=rss)
+7. [U.S. military says it intercepted Iranian attacks on 3 Navy ships in Strait of Hormuz](https://www.npr.org/2026/05/07/g-s1-120978/u-s-military-intercepted-iran-attacks-navy-ships-hormuz)
+8. [In Hungary, Voters Exposed the Limits of China’s Ties to Orban](https://www.nytimes.com/2026/05/07/world/europe/hungary-orban-china-fidesz-magyar.html)
+9. [Russia Ramps Up Threats Toward Ukraine Over Victory Day Parade](https://www.nytimes.com/2026/05/07/world/europe/ukraine-russia-victory-day.html)
+10. [Former U.S. analyst, once jailed for spying for Israel, to run for Israeli parliament](https://www.npr.org/2026/05/07/nx-s1-5812527-e1/former-u-s-analyst-once-jailed-for-spying-for-israel-to-run-for-israeli-parliament)
 <!-- daily-check end -->
