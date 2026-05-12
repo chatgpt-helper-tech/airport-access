@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年5月11日 03:33:11
+更新时间：2026年5月12日 03:31:35
 
-1. [French national shows symptoms on return from hantavirus-hit ship](https://www.bbc.com/news/articles/c3r2p70jdy7o?at_medium=RSS&at_campaign=rss)
-2. [Dua Lipa sues Samsung for $15m over use of her image on TV boxes](https://www.bbc.com/news/articles/ce9pvp210zdo?at_medium=RSS&at_campaign=rss)
-3. [Thailand's divisive ex-PM is out of jail, but is the Thaksin era over?](https://www.bbc.com/news/articles/c99l1590kr0o?at_medium=RSS&at_campaign=rss)
-4. [Trump calls Iran response to US proposal to end war 'totally unacceptable'](https://www.bbc.com/news/articles/clypgz9e5pmo?at_medium=RSS&at_campaign=rss)
-5. [U.S. cruise passengers head to Nebraska for hantavirus monitoring](https://www.npr.org/2026/05/10/nx-s1-5817578/hantavirus-cruise-ship-nebraska-us-passengers)
-6. [Oil prices jump after Trump dismisses Iran proposal to end war](https://www.bbc.com/news/articles/ckgp4ev4yg4o?at_medium=RSS&at_campaign=rss)
-7. [Trump Says Iran’s Response to Latest U.S. Proposal ‘Totally Unacceptable’](https://www.nytimes.com/2026/05/10/us/politics/iran-war-us-peace-proposal-response.html)
-8. [Ailing Iran Nobel laureate given bail and hospital transfer](https://www.bbc.com/news/articles/c1j257w87neo?at_medium=RSS&at_campaign=rss)
-9. [Israeli settlers force Palestinian family to exhume and rebury their father](https://www.npr.org/2026/05/10/nx-s1-5817496/israeli-settlers-palestinian-exhume-grave-west-bank-jenin)
-10. [Cruise Ship Linked to Hantavirus Outbreak Arrives in Spain’s Canary Islands for Disembarking](https://www.nytimes.com/2026/05/10/world/europe/hantavirus-cruise-ship-canary-islands.html)
+1. [Starmer Faces Mounting Calls From Own Party to Resign as British Prime Minister](https://www.nytimes.com/2026/05/11/world/europe/starmer-speech-uk-labour.html)
+2. [Iran War Updates: Long-Term Energy Crisis Looms as Trump Says Truce Is on ‘Life Support’](https://www.nytimes.com/live/2026/05/11/world/iran-war-trump-hormuz)
+3. [Trump says Iran ceasefire is on 'massive life support'](https://www.bbc.com/news/articles/cvgznxn18zgo?at_medium=RSS&at_campaign=rss)
+4. [US in closely-guarded talks to open new bases in Greenland](https://www.bbc.com/news/articles/cx21669452lo?at_medium=RSS&at_campaign=rss)
+5. [US passengers quarantining in Nebraska as officials say public hantavirus risk 'very low'](https://www.bbc.com/news/articles/cwy2e9e1g0wo?at_medium=RSS&at_campaign=rss)
+6. [How the Trump-Xi summit could set superpower relations for many years to come](https://www.bbc.com/news/articles/ceqprgen1nyo?at_medium=RSS&at_campaign=rss)
+7. [Putin Said the War ‘Is Coming to a Close,’ but That’s Not All He Said](https://www.nytimes.com/2026/05/11/world/europe/putin-russia-ukraine-war.html)
+8. [South African president says he will not step down after impeachment call](https://www.bbc.com/news/articles/c9369q3g7w7o?at_medium=RSS&at_campaign=rss)
+9. [Last passengers leave virus-hit cruise ship as three more test positive](https://www.bbc.com/news/articles/cjep78l5835o?at_medium=RSS&at_campaign=rss)
+10. [EU agrees sanctions on Israeli settlers over West Bank violence](https://www.bbc.com/news/articles/c202wp2rl09o?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
