@@ -10,12 +10,12 @@
 
 ## 一分钟快速选择：你该买哪家机场？
 
-| 你是哪类用户 | 优先选择 | 默认套餐建议 | 为什么这样选 | 快速入口 |
+| 你是哪类用户 | 优先选择 | 默认套餐建议 | 优惠码 / 优惠方式 | 快速入口 |
 | --- | --- | --- | --- | --- |
-| 第一次买主力机场，想少折腾 | **BoostNet** | 200G/月 | 综合均衡，自研客户端省心，适合 AI + 流媒体 + 远程办公 | [立即注册](https://boostqz.com?path=register&code=kKMFirlm) |
-| 更看重 IEPL 线路和晚高峰视频 | **悠兔** | 300G/月 | 高端 IEPL 长期主力，适合 YouTube / Netflix / ChatGPT 高频使用 | [立即注册](https://777.youtu6.shop/register?code=erkQTmbM) |
-| 预算敏感，想月付试用或多设备使用 | **u1s1** | 120GB/月 | 月付门槛低，套餐不限设备，适合轻量 AI、看剧和备用主力 | [立即注册](https://realvpntest.vipaff.cc/#/?code=N8zXLB0c) |
-| 团队办公、高预算、能接受年付 | **WgetCloud** | 优质专线年付 | 偏企业级稳定方案，更适合团队协作和长期办公刚需 | [立即注册](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh) |
+| 第一次买主力机场，想少折腾 | **BoostNet** | 200G/月 | `boost`，新用户一次性 8 折 | [立即注册](https://boostqz.com?path=register&code=kKMFirlm) |
+| 更看重 IEPL 线路和晚高峰视频 | **悠兔** | 300G/月 | `888`，新用户限用 1 次 8 折 | [立即注册](https://777.youtu6.shop/register?code=erkQTmbM) |
+| 预算敏感，想月付试用或多设备使用 | **u1s1** | 120GB/月 | `U1S1`，新人特惠 85 折，¥96 年包不适用 | [立即注册](https://realvpntest.vipaff.cc/#/?code=N8zXLB0c) |
+| 团队办公、高预算、能接受年付 | **WgetCloud** | 优质专线年付 | 注册后通常可获得 85 折券 | [立即注册](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh) |
 
 <a id="compare-table"></a>
 
@@ -27,17 +27,6 @@
 | **悠兔** | 高端 IEPL 长期主力 | 广东入口 / 高端 IEPL / 多入口中转 | ChatGPT / TikTok / 日美节点优先 | YouTube / Netflix / Disney+ | ¥39/月起 | [立即注册](https://777.youtu6.shop/register?code=erkQTmbM) |
 | **u1s1** | 高性价比月付 / 备用主力 | IPLC / IEPL / BGP 三网优化 / SS 协议 | ChatGPT / Claude / Midjourney / Cursor | Netflix / Disney+ / TikTok | ¥96/年起，¥20/月起 | [立即注册](https://realvpntest.vipaff.cc/#/?code=N8zXLB0c) |
 | **WgetCloud** | 团队办公 / 企业级稳定 | 广州 BGP / IEPL / Trojan + Shadowsocks | ChatGPT / Claude / Copilot / Cursor | 全球流媒体，优质档更合适 | 年付 ¥758 起 | [立即注册](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh) |
-
-<a id="coupon-summary"></a>
-
-## 优惠码和注册入口汇总
-
-| 机场 | 优惠码 / 优惠方式 | 适用说明 | 注册入口 |
-| --- | --- | --- | --- |
-| **BoostNet** | `boost` | 新用户一次性 8 折，部分福利款 / 特价包可能不参与 | [立即注册 BoostNet](https://boostqz.com?path=register&code=kKMFirlm) |
-| **悠兔** | `888` | 新用户限用 1 次 8 折，特殊套餐是否参与以结算页为准 | [立即注册悠兔](https://777.youtu6.shop/register?code=erkQTmbM) |
-| **u1s1** | `U1S1` | 新人特惠 85 折，¥96 年包不适用 | [立即注册 u1s1](https://realvpntest.vipaff.cc/#/?code=N8zXLB0c) |
-| **WgetCloud** | 注册后通常可获得 85 折券 | 当前以年付方案为主，是否显示和叠加以结算页为准 | [立即注册 WgetCloud](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh) |
 
 > ⚠️ **优惠提醒：** 机场套餐、入口、优惠码和可用周期会变化。本文价格、优惠、线路和解锁信息均以官网公告、结算页和实际订阅为准；优惠码能否叠加、福利款是否参与活动，也请在付款前最后确认。
 
@@ -55,7 +44,6 @@
 
 - [一分钟快速选择：你该买哪家机场？](#quick-choice)
 - [四家稳定机场核心对比](#compare-table)
-- [优惠码和注册入口汇总](#coupon-summary)
 - [机场选择三色图](#selection-map)
 - [按使用场景怎么选机场](#scene-guide)
 - [我们如何评估一家机场是否值得推荐](#evaluation-method)
