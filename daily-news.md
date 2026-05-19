@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年5月18日 03:34:02
+更新时间：2026年5月19日 03:39:47
 
-1. [W.H.O. Declares Ebola Outbreak a Global Health Emergency](https://www.nytimes.com/2026/05/17/world/africa/ebola-congo-uganda-who-public-health-emergency.html)
-2. [In Iraqi Desert, Two Israeli Outposts Were Kept Secret for Months](https://www.nytimes.com/2026/05/17/world/europe/israel-iraq-iran-bases.html)
-3. [WHO declares Ebola outbreak in DR Congo an international emergency](https://www.bbc.com/news/articles/c2l2p0wwzzdo?at_medium=RSS&at_campaign=rss)
-4. [Moment two fighter jets collide mid-air at US air show](https://www.bbc.com/news/videos/ce8pzkg7klgo?at_medium=RSS&at_campaign=rss)
-5. [Executions nearly doubled in the U.S. last year, and soared abroad](https://www.npr.org/2026/05/17/nx-s1-5824521/executions-amnesty-international-report)
-6. ['This may be the last time you hear my voice': Political executions surge in Iran since start of war](https://www.bbc.com/news/articles/cn8p392nl7yo?at_medium=RSS&at_campaign=rss)
-7. [Wave of Ukrainian Strikes Kills at Least 4, Russia Says](https://www.nytimes.com/2026/05/17/world/europe/russia-ukraine-strikes-moscow.html)
-8. [What motivated Chinese-born Uyghers to fight in Syria's civil war](https://www.npr.org/2026/05/17/nx-s1-5550919/what-motivated-chinese-born-uyghers-to-fight-in-syrias-civil-war)
-9. [UAE reports strike near Abu Dhabi nuclear power plant](https://www.bbc.com/news/articles/cwy27pkj1l1o?at_medium=RSS&at_campaign=rss)
-10. [Trump warns 'clock is ticking' for Iran as peace progress stalls](https://www.bbc.com/news/articles/cd0p4y9y48xo?at_medium=RSS&at_campaign=rss)
+1. [Teen suspects fatally shoot three in suspected hate crime at San Diego mosque](https://www.bbc.com/news/articles/c5y7q66gq56o?at_medium=RSS&at_campaign=rss)
+2. [Trump says he called off new Iran attack at request of Gulf states](https://www.bbc.com/news/articles/c7079e55zjro?at_medium=RSS&at_campaign=rss)
+3. [Trump v Massie: Could president's Republican nemesis survive $20m attack to oust him?](https://www.bbc.com/news/articles/cz924g45530o?at_medium=RSS&at_campaign=rss)
+4. [Selling children to survive: Afghan fathers forced to make impossible choices](https://www.bbc.com/news/articles/c0q25dwj807o?at_medium=RSS&at_campaign=rss)
+5. [Ebola Was Identified in Congo Weeks Before W.H.O. Declared an Emergency](https://www.nytimes.com/2026/05/18/world/africa/congo-ebola-testing.html)
+6. [Trump administration unveils $1.7bn fund to compensate his allies as he drops tax lawsuit](https://www.bbc.com/news/articles/cvgzr7vr203o?at_medium=RSS&at_campaign=rss)
+7. [At least 100 dead in Ebola outbreak in DR Congo, official says](https://www.bbc.com/news/articles/cq6pz60p996o?at_medium=RSS&at_campaign=rss)
+8. [Trump Warns Iran the ‘Clock Is Ticking’ as Tensions Surge Again in Middle East](https://www.nytimes.com/2026/05/18/world/middleeast/trump-iran-war-talks.html)
+9. [Millions Recovered in FIFA Corruption Scandal May Now Be Missing Again Before World Cup](https://www.nytimes.com/2026/05/18/world/americas/fifa-south-america-conmebol-dominguez.html)
+10. [Death toll from Israeli strikes on Lebanon passes 3,000, officials say](https://www.bbc.com/news/articles/cqjpglyjwjeo?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
