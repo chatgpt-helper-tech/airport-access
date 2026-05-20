@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年5月19日 03:39:47
+更新时间：2026年5月20日 03:31:47
 
-1. [Teen suspects fatally shoot three in suspected hate crime at San Diego mosque](https://www.bbc.com/news/articles/c5y7q66gq56o?at_medium=RSS&at_campaign=rss)
-2. [Trump says he called off new Iran attack at request of Gulf states](https://www.bbc.com/news/articles/c7079e55zjro?at_medium=RSS&at_campaign=rss)
-3. [Trump v Massie: Could president's Republican nemesis survive $20m attack to oust him?](https://www.bbc.com/news/articles/cz924g45530o?at_medium=RSS&at_campaign=rss)
-4. [Selling children to survive: Afghan fathers forced to make impossible choices](https://www.bbc.com/news/articles/c0q25dwj807o?at_medium=RSS&at_campaign=rss)
-5. [Ebola Was Identified in Congo Weeks Before W.H.O. Declared an Emergency](https://www.nytimes.com/2026/05/18/world/africa/congo-ebola-testing.html)
-6. [Trump administration unveils $1.7bn fund to compensate his allies as he drops tax lawsuit](https://www.bbc.com/news/articles/cvgzr7vr203o?at_medium=RSS&at_campaign=rss)
-7. [At least 100 dead in Ebola outbreak in DR Congo, official says](https://www.bbc.com/news/articles/cq6pz60p996o?at_medium=RSS&at_campaign=rss)
-8. [Trump Warns Iran the ‘Clock Is Ticking’ as Tensions Surge Again in Middle East](https://www.nytimes.com/2026/05/18/world/middleeast/trump-iran-war-talks.html)
-9. [Millions Recovered in FIFA Corruption Scandal May Now Be Missing Again Before World Cup](https://www.nytimes.com/2026/05/18/world/americas/fifa-south-america-conmebol-dominguez.html)
-10. [Death toll from Israeli strikes on Lebanon passes 3,000, officials say](https://www.bbc.com/news/articles/cqjpglyjwjeo?at_medium=RSS&at_campaign=rss)
+1. [Father-of-eight killed in San Diego mosque shooting hailed as hero](https://www.bbc.com/news/articles/clyp3gkrwg9o?at_medium=RSS&at_campaign=rss)
+2. [Trump’s Special Envoy to Greenland Receives a Cold Welcome From Locals](https://www.nytimes.com/2026/05/19/world/europe/us-envoy-greenland-visit.html)
+3. ['Taiwan Travelogue' wins the 2026 International Booker Prize](https://www.npr.org/2026/05/19/nx-s1-5823677/2026-booker-prize-winner-taiwan-travelogue)
+4. [Bolivia Has Been Paralyzed by Protests. Here’s Why.](https://www.nytimes.com/2026/05/19/world/americas/bolivia-protests-la-paz.html)
+5. [Ebola Outbreak in Central Africa Could Last Months, W.H.O. Says](https://www.nytimes.com/2026/05/19/world/africa/ebola-outbreak-deaths-congo-who.html)
+6. [Ebola outbreak may be spreading faster than first thought, WHO doctor warns](https://www.bbc.com/news/articles/ceqp11gn1l8o?at_medium=RSS&at_campaign=rss)
+7. [Estonia says Nato jet shot down drone over its territory](https://www.bbc.com/news/articles/c302jy8z4vro?at_medium=RSS&at_campaign=rss)
+8. ['Ebola has tortured us': Fear grips eastern DR Congo as deadly virus spreads](https://www.bbc.com/news/articles/cvgzj0pqpyyo?at_medium=RSS&at_campaign=rss)
+9. [As a Weakened Putin Follows Trump to Beijing, Iran War Offers an Opening](https://www.nytimes.com/2026/05/19/world/europe/putin-china-state-visit.html)
+10. [Israeli Minister Threatens to Evict Palestinians From West Bank Hamlet](https://www.nytimes.com/2026/05/19/world/middleeast/smotrich-icc-west-bank.html)
 <!-- daily-check end -->
