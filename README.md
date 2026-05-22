@@ -1,6 +1,6 @@
 # 机场推荐 2026：稳定科学上网机场，适合 ChatGPT、Clash 和流媒体
 
-📅 **内容最后更新：2026年05月19日**
+📅 **内容最后更新：2026年05月22日**
 
 > **快速结论：** 2026 年稳定机场推荐优先看 **BoostNet** 和 **悠兔**；预算敏感、想月付试用可以看 **u1s1**；团队办公、高预算稳定刚需再看 **WgetCloud**。本文更关注 ChatGPT / Claude / GitHub Copilot / Cursor 等 AI 工具、YouTube / Netflix / Disney+ / TikTok 等流媒体，以及远程办公和跨境业务的长期可用性，不做低价机场大全。
 
@@ -13,7 +13,7 @@
 | 你是哪类用户 | 优先选择 | 默认套餐建议 | 优惠码 / 优惠方式 | 快速入口 |
 | --- | --- | --- | --- | --- |
 | 第一次买主力机场，想少折腾 | **BoostNet** | 200G/月 | `boost`，新用户一次性 8 折 | [立即注册](https://888.boostqz.com/?path=register&code=kKMFirlm) |
-| 更看重 IEPL 线路和晚高峰视频 | **悠兔** | 300G/月 | `888`，新用户限用 1 次 8 折 | [立即注册](https://777.youtu6.shop/register?code=erkQTmbM) |
+| 更看重 IEPL 线路和晚高峰视频 | **悠兔** | 300G/月 | `888`，新用户限用 1 次 8 折 | [立即注册](https://youtunice.com/?path=register&code=erkQTmbM) |
 | 预算敏感，想月付试用或多设备使用 | **u1s1** | 120GB/月 | `U1S1`，新人特惠 85 折，¥96 年包不适用 | [立即注册](https://realvpntest.vipaff.cc/#/?code=N8zXLB0c) |
 | 团队办公、高预算、能接受年付 | **WgetCloud** | 优质专线年付 | 注册后通常可获得 85 折券 | [立即注册](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh) |
 
@@ -24,7 +24,7 @@
 | 机场 | 推荐定位 | 线路特点 | AI 工具 | 流媒体 | 起步价格 | 快速入口 |
 | --- | --- | --- | --- | --- | ---: | --- |
 | **BoostNet** | 第一次买主力 / 综合首选 | 三网直连 IEPL / Anytls / 自研客户端 | ChatGPT / Claude / Copilot 日常主力 | Netflix / Disney+ / YouTube | ¥49/月起 | [立即注册](https://888.boostqz.com/?path=register&code=kKMFirlm) |
-| **悠兔** | 高端 IEPL 长期主力 | 广东入口 / 高端 IEPL / 多入口中转 | ChatGPT / TikTok / 日美节点优先 | YouTube / Netflix / Disney+ | ¥39/月起 | [立即注册](https://777.youtu6.shop/register?code=erkQTmbM) |
+| **悠兔** | 高端 IEPL 长期主力 | 广东入口 / 高端 IEPL / 多入口中转 | ChatGPT / TikTok / 日美节点优先 | YouTube / Netflix / Disney+ | ¥39/月起 | [立即注册](https://youtunice.com/?path=register&code=erkQTmbM) |
 | **u1s1** | 高性价比月付 / 备用主力 | IPLC / IEPL / BGP 三网优化 / SS 协议 | ChatGPT / Claude / Midjourney / Cursor | Netflix / Disney+ / TikTok | ¥96/年起，¥20/月起 | [立即注册](https://realvpntest.vipaff.cc/#/?code=N8zXLB0c) |
 | **WgetCloud** | 团队办公 / 企业级稳定 | 广州 BGP / IEPL / Trojan + Shadowsocks | ChatGPT / Claude / Copilot / Cursor | 全球流媒体，优质档更合适 | 年付 ¥758 起 | [立即注册](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh) |
 
@@ -224,7 +224,7 @@ BoostNet 的优势不是单项参数最夸张，而是整体体验更均衡：�
 > - 优惠码：`888`
 > - 适合：更看重 IEPL 线路、晚高峰视频稳定和长期持有体验
 > - 注意：特殊套餐是否参与优惠以结算页为准，小白用户建议优先使用官方客户端
-> - 注册入口：[立即注册悠兔（新用户 8 折）](https://777.youtu6.shop/register?code=erkQTmbM)
+> - 注册入口：[立即注册悠兔（新用户 8 折）](https://youtunice.com/?path=register&code=erkQTmbM)
 
 如果你更在意晚高峰表现，悠兔的 **300G/月套餐（¥59）** 更适合作为长期主力；流媒体和多设备更重的用户可以看 500G/月套餐。
 
@@ -282,7 +282,7 @@ BoostNet 的优势不是单项参数最夸张，而是整体体验更均衡：�
 > - 📋 **优惠码：** `888`
 > - 💰 **优惠力度：** 新用户限用 1 次 8 折。
 > - ⚠️ **适用说明：** 特殊套餐是否参与优惠，以结算页最终显示为准。
-> - 🔗 **立即注册：** [悠兔（高端 IEPL 专线）](https://777.youtu6.shop/register?code=erkQTmbM)
+> - 🔗 **立即注册：** [悠兔（高端 IEPL 专线）](https://youtunice.com/?path=register&code=erkQTmbM)
 > - 📖 **完整测评：** [悠兔机场测评（2026-04-27 更新）](https://airport.gptvpnhelper.com/youtu/)
 
 ### 📷 实测图
@@ -549,7 +549,7 @@ IEPL 和 IPLC 通常属于成本更高的专线或类专线方案，更看重跨
 | 最终需求 | 推荐选择 | 购买建议 |
 | --- | --- | --- |
 | 只想选一家长期主力，不想反复比较 | [BoostNet](https://888.boostqz.com/?path=register&code=kKMFirlm) | 先看 200G/月，优惠码 `boost` |
-| 更看重 IEPL 线路质量和晚高峰视频体验 | [悠兔](https://777.youtu6.shop/register?code=erkQTmbM) | 先看 300G/月，优惠码 `888` |
+| 更看重 IEPL 线路质量和晚高峰视频体验 | [悠兔](https://youtunice.com/?path=register&code=erkQTmbM) | 先看 300G/月，优惠码 `888` |
 | 预算敏感、想先月付试用或多设备使用 | [u1s1](https://realvpntest.vipaff.cc/#/?code=N8zXLB0c) | 先看 120GB/月，优惠码 `U1S1` |
 | 团队办公、高预算、能接受年付门槛 | [WgetCloud](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh) | 优先看优质专线服务，折扣以结算页为准 |
 
@@ -565,4 +565,4 @@ IEPL 和 IPLC 通常属于成本更高的专线或类专线方案，更看重跨
 
 ---
 
-内容最后更新：2026年05月19日
+内容最后更新：2026年05月22日
