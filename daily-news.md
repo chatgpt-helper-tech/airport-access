@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年5月23日 03:35:26
+更新时间：2026年5月24日 03:34:27
 
-1. [SpaceX launches massive Starship V3 rocket on test flight](https://www.bbc.com/news/articles/c62d65y16nno?at_medium=RSS&at_campaign=rss)
-2. [Regional Mediators Rush to Save U.S.-Iran Cease-Fire](https://www.nytimes.com/2026/05/22/world/middleeast/iran-ceasefire-us-qatar-pakistan.html)
-3. [In West Bank, Latest Victim of Israeli Settler Violence Shocks in a New Way](https://www.nytimes.com/2026/05/22/world/middleeast/settler-attack-dog-west-bank.html)
-4. [Race for French presidency sees ex-PM Philippe as early favourite to beat populists](https://www.bbc.com/news/articles/c4g0410gnv5o?at_medium=RSS&at_campaign=rss)
-5. [Rubio visits India to sell energy as Iran oil shock persists](https://www.bbc.com/news/articles/c87qrwyyrn2o?at_medium=RSS&at_campaign=rss)
-6. [Hunger grows in Gaza as food aid is cut due to higher costs caused by war in Iran](https://www.npr.org/2026/05/22/nx-s1-5827011/hunger-grows-in-gaza-as-food-aid-is-cut-due-to-higher-costs-caused-by-war-in-iran)
-7. [Europeans Remain Wary After Trump Promises to Send Troops to Poland](https://www.nytimes.com/2026/05/22/world/europe/poland-troops-trump.html)
-8. [Gaza flotilla activists allege abuse by Israeli forces while detained](https://www.bbc.com/news/articles/cglp5z63k9no?at_medium=RSS&at_campaign=rss)
-9. [Tulsi Gabbard to resign as US director of national intelligence](https://www.bbc.com/news/articles/cvgj2gkv1x1o?at_medium=RSS&at_campaign=rss)
-10. [Russia's Putin vows retaliation after accusing Ukraine of hitting student dormitory](https://www.bbc.com/news/articles/c5y74lwx395o?at_medium=RSS&at_campaign=rss)
+1. [At least 82 killed in Chinese coal mine explosion](https://www.bbc.com/news/articles/c5y0ve18qlko?at_medium=RSS&at_campaign=rss)
+2. [Suspect killed after opening fire on Secret Service near White House](https://www.bbc.com/news/articles/cjwp82ye4y3o?at_medium=RSS&at_campaign=rss)
+3. [Iran War Live Updates: Trump Says Peace Deal Is Near](https://www.nytimes.com/live/2026/05/23/world/us-iran-war-trump)
+4. [Trump says Iran deal 'largely negotiated' including reopening Strait of Hormuz](https://www.bbc.com/news/articles/crmp121z3z8o?at_medium=RSS&at_campaign=rss)
+5. [Romanian director Cristian Mungiu's 'Fjord' wins top prize at Cannes](https://www.npr.org/2026/05/23/nx-s1-5832564/palme-dor-cannes-film-festival)
+6. [Rosenberg: Luhansk strike sparks Russian accusations and vow to retaliate](https://www.bbc.com/news/articles/cvgz05jyrrpo?at_medium=RSS&at_campaign=rss)
+7. [I survived a missile strike in the Strait of Hormuz, but my friend has not been found](https://www.bbc.com/news/articles/ce8pn63q771o?at_medium=RSS&at_campaign=rss)
+8. [Britain Preparing for Mission That Could Clear Strait of Hormuz](https://www.nytimes.com/2026/05/23/us/politics/britain-strait-of-hormuz-iran.html)
+9. [Trump says a deal with Iran and opening of Strait of Hormuz are 'largely negotiated'](https://www.npr.org/2026/05/23/g-s1-124145/trump-iran-deal-strait-of-hormuz)
+10. [A Lull in Fighting Gave Time to Bury Their Dead](https://www.nytimes.com/2026/05/23/world/europe/lebanon-war-burials.html)
 <!-- daily-check end -->
