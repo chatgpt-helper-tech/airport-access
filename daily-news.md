@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年5月27日 03:31:37
+更新时间：2026年5月28日 03:33:29
 
-1. [Paris School Worker Tried on Assault Charges in Widespread Child Abuse Inquiry](https://www.nytimes.com/2026/05/26/world/europe/child-abuse-trial-school-paris.html)
-2. [One killed and others missing after chemical explosion at US paper mill](https://www.bbc.com/news/articles/cj9ppm94xw9o?at_medium=RSS&at_campaign=rss)
-3. [Iceland, Rattled by Trump’s Greenland Threats, Weighs Joining the E.U.](https://www.nytimes.com/2026/05/26/world/europe/iceland-eu-membership-trump.html)
-4. [Hundreds of children die within months as measles cases soar in Bangladesh](https://www.bbc.com/news/articles/cwy2d5d7wn5o?at_medium=RSS&at_campaign=rss)
-5. [Dozens killed in Lebanon as Israel intensifies strikes](https://www.bbc.com/news/articles/cx211rgngp0o?at_medium=RSS&at_campaign=rss)
-6. [Iran War Updates: U.S. Saw Threats From Iran Before Renewing Strikes, Officials Said](https://www.nytimes.com/live/2026/05/26/world/iran-war-trump-deal)
-7. [Russia 'relentlessly targeting' critical infrastructure and democracy, GCHQ says](https://www.bbc.com/news/articles/c4g44gprnnvo?at_medium=RSS&at_campaign=rss)
-8. [Can EU find a Russia whisperer to mediate an end to war in Ukraine?](https://www.bbc.com/news/articles/cqxpp73wqero?at_medium=RSS&at_campaign=rss)
-9. [Three killed and dozens injured in Israeli strike on Gaza City, medics and witnesses say](https://www.bbc.com/news/articles/cjwppj1yn7go?at_medium=RSS&at_campaign=rss)
-10. [A Spring Heat Wave Is Breaking Records in the U.K., Spain and France](https://www.nytimes.com/2026/05/26/world/europe/europe-heatwave-uk-spain-france.html)
+1. [Iran War Live Updates: U.S. Conducts New Strikes on Southern Iran](https://www.nytimes.com/live/2026/05/27/world/iran-war-trump-deal)
+2. [US strikes Iran targets for second time in three days](https://www.bbc.com/news/articles/c98r2qy5809o?at_medium=RSS&at_campaign=rss)
+3. [Jill Biden says she thought husband was 'having a stroke' during 2024 debate](https://www.bbc.com/news/articles/c99l270vy3no?at_medium=RSS&at_campaign=rss)
+4. [Lebanese Resigned to a Long War, Even if U.S. and Iran Make a Deal](https://www.nytimes.com/2026/05/27/world/middleeast/lebaon-war-deal-iran-us.html)
+5. [After 88 Days of Censored News, TV and Chat, Iranians Are Coming Back Online](https://www.nytimes.com/2026/05/27/world/europe/iran-internet.html)
+6. [Israel issues evacuation order for swathes of southern Lebanon](https://www.bbc.com/news/articles/cj3pgrpmlklo?at_medium=RSS&at_campaign=rss)
+7. [Matthew Perry's assistant jailed for 41 months over actor's ketamine death](https://www.bbc.com/news/articles/cjepvx151gqo?at_medium=RSS&at_campaign=rss)
+8. [Ebola-hit DR Congo faces 'catastrophic collision' of disease and conflict, WHO warns](https://www.bbc.com/news/articles/cdxpdex062yo?at_medium=RSS&at_campaign=rss)
+9. [Rubio’s India Visit Yields No Major Deals to Repair U.S.-India Relations](https://www.nytimes.com/2026/05/27/world/asia/marco-rubio-visit-india-modi-trump.html)
+10. [Could Russia Hit Harder? It at Least Wants Ukraine to Think So.](https://www.nytimes.com/2026/05/27/world/europe/russia-ukraine-kyiv-attacks.html)
 <!-- daily-check end -->
