@@ -24,14 +24,14 @@
 
 <a id="compare-table"></a>
 
-## 四家稳定机场核心对比
+## 四家稳定机场核心能力对比
 
-| 机场 | 最适合 | 核心优势 | 起步 / 默认建议 | 快速入口 |
-| --- | --- | --- | --- | --- |
-| **BoostNet** | 第一次买主力 / 综合首选 | 三网直连 IEPL、Anytls、自研客户端 | ¥49/月起，优先 200G/月 | [立即注册](https://888.boostqz.com/?path=register&code=kKMFirlm) |
-| **悠兔** | 高端 IEPL / 晚高峰视频 | 广东入口、高端 IEPL、多入口中转 | ¥39/月起，优先 300G/月 | [立即注册](https://youtunice.com/?path=register&code=erkQTmbM) |
-| **u1s1** | 高性价比月付 / 备用主力 | IPLC / IEPL、BGP 三网优化、套餐不限设备 | ¥96/年起，月付优先 120GB/月 | [立即注册](https://realvpntest.vipaff.cc/#/?code=N8zXLB0c) |
-| **WgetCloud** | 团队办公 / 企业级稳定 | 广州 BGP、IEPL、Trojan + Shadowsocks | 年付 ¥758 起，优先优质专线 | [立即注册](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh) |
+| 机场 | 线路 / 协议 | AI 工具 | 流媒体 | 设备 / 使用限制 | 主要注意点 |
+| --- | --- | --- | --- | --- | --- |
+| **BoostNet** | 三网直连 IEPL / Anytls / 自研客户端 | ChatGPT / Claude / Copilot 日常主力 | Netflix / Disney+ / YouTube | 常规套餐 5 台同时使用 | 不提供退款；仅限中国大陆使用，新疆不可用 |
+| **悠兔** | 广东入口 / 高端 IEPL / Shadowsocks | ChatGPT 基本全解锁，日美节点优先 | YouTube / Netflix / Disney+ / TikTok | 默认 5 个设备 / IP | 特殊套餐可能不参与优惠；禁 BT / P2P / PT |
+| **u1s1** | IPLC / IEPL / BGP 三网优化 / SS | ChatGPT / Claude / Midjourney / Cursor | Netflix / Disney+ / HBO / DAZN / TikTok | 套餐不限设备，以官网风控规则为准 | 订阅重置规则需要注意；¥96 年包不适用优惠 |
+| **WgetCloud** | 广州 BGP / IEPL / Trojan + Shadowsocks | 优质 / 精品档更适合 ChatGPT、Claude、Copilot、Cursor | 全球流媒体，优质 / 精品档更合适 | 基础 / 优质 / 精品档分别 3 / 4 / 5 个在线 IP | 当前年付门槛较高，普通个人不建议一开始直接买 |
 
 > ⚠️ **优惠提醒：** 机场套餐、入口、优惠码和可用周期会变化。本文价格、优惠、线路和解锁信息均以官网公告、结算页和实际订阅为准；优惠码能否叠加、福利款是否参与活动，也请在付款前最后确认。
 
