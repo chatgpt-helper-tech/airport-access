@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年5月29日 03:31:37
+更新时间：2026年5月30日 03:30:04
 
-1. [Moment Blue Origin rocket explodes during test in Florida](https://www.bbc.com/news/videos/cvgz0pdg32mo?at_medium=RSS&at_campaign=rss)
-2. [Iran War Updates: U.S. Officials Say They Are Closing In on Arrangement to Reopen Strait of Hormuz](https://www.nytimes.com/live/2026/05/28/world/iran-war-us-trump-deal)
-3. [Italy restores lucky testicles on bull mosaic worn down by tourists](https://www.bbc.com/news/articles/c1m215npjp2o?at_medium=RSS&at_campaign=rss)
-4. [US and Iran 'very close' to deal but 'not there yet', Vance says](https://www.bbc.com/news/articles/c87qng40wz9o?at_medium=RSS&at_campaign=rss)
-5. [Carney Says That Canada’s Distancing is Good for U.S. in New York Speech](https://www.nytimes.com/2026/05/28/world/canada/carney-united-states-canada-trump.html)
-6. [Man jailed for 15 years over plot to attack Taylor Swift concert in Vienna](https://www.bbc.com/news/articles/cgrp7y05l9do?at_medium=RSS&at_campaign=rss)
-7. [U.S. and Iran trade strikes. How will this affect deal to end war?](https://www.npr.org/2026/05/28/nx-s1-5835313/u-s-and-iran-trade-strikes-how-will-this-affect-deal-to-end-war)
-8. [The possible return of Somali pirates poses a new problem for the shipping industry](https://www.npr.org/2026/05/28/nx-s1-5815335-e1/the-possible-return-of-somali-pirates-poses-a-new-problem-for-the-shipping-industry)
-9. [Guatemala Agrees to Joint Drug Gang Strikes With U.S., Expanding Trump’s Campaign](https://www.nytimes.com/2026/05/28/world/americas/guatemala-us-joint-strikes.html)
-10. [Are US and Iran close to peace or sliding back to war?](https://www.bbc.com/news/articles/cze29764067o?at_medium=RSS&at_campaign=rss)
+1. [Spain's Sánchez digs in after eight years as PM as wave of scandals threatens survival](https://www.bbc.com/news/articles/c1w21gn340xo?at_medium=RSS&at_campaign=rss)
+2. [Iran War Updates: Trump Puts Off ‘Final Determination’ on Iran Proposal](https://www.nytimes.com/live/2026/05/29/world/iran-war-us-trump-deal)
+3. [After Orban’s Defeat, Hungary Is Poised to Get Billions From E.U.](https://www.nytimes.com/2026/05/29/world/europe/eu-hungary-funds.html)
+4. [Trump’s Boat Strikes Have Failed to Curb Cocaine Flow to U.S., Experts Say](https://www.nytimes.com/2026/05/29/world/americas/us-boat-strikes-cocaine-trump-south-america.html)
+5. [Ghana parliament passes anti-LGBTQ+ bill](https://www.bbc.com/news/articles/c5yedendprko?at_medium=RSS&at_campaign=rss)
+6. [No deal announced after Trump meeting to make 'final determination' on Iran](https://www.bbc.com/news/articles/c0r2d40r91qo?at_medium=RSS&at_campaign=rss)
+7. [Russian Drone Hits Romanian Apartment Building, Officials Say](https://www.nytimes.com/2026/05/29/world/europe/romania-drone-russia-ukraine.html)
+8. ['Poison seller' who sold toxic chemicals online to people across world admits aiding suicides](https://www.bbc.com/news/articles/c70vg7glglyo?at_medium=RSS&at_campaign=rss)
+9. [Drones are changing the face of warfare, including battlefield medicine](https://www.npr.org/2026/05/29/nx-s1-5830382/drones-are-changing-the-face-of-warfare-including-battlefield-medicine)
+10. [Israel put on UN sexual violence in warzones blacklist for first time](https://www.bbc.com/news/articles/cx21le869n1o?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
