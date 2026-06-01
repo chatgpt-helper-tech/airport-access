@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年5月31日 03:33:43
+更新时间：2026年6月1日 03:30:31
 
-1. [Hundreds arrested in France after wild Champions League celebrations](https://www.bbc.com/news/articles/cg7pk5j7nyjo?at_medium=RSS&at_campaign=rss)
-2. [What to Know About the Ebola Outbreak](https://www.nytimes.com/2026/05/17/world/africa/what-to-know-ebola-africa.html)
-3. [PSG wins back-to-back Champions League titles after shootout victory against Arsenal](https://www.npr.org/2026/05/30/nx-s1-5841380/psg-champions-league-victory-against-arsenal)
-4. [Ebola spread in DR Congo 'deeply alarming', MSF warns](https://www.bbc.com/news/articles/c99ldxykz4zo?at_medium=RSS&at_campaign=rss)
-5. [Trump says a ceasefire extension deal with Iran is near, but core issues remain](https://www.npr.org/2026/05/30/nx-s1-5839359/trump-says-a-ceasefire-extension-deal-with-iran-is-near-but-core-issues-remain)
-6. [Over a thousand Palestinians from Gaza held in Israeli detention without charge](https://www.npr.org/2026/05/30/nx-s1-5831351/over-a-thousand-palestinians-from-gaza-held-in-israeli-detention-without-charge)
-7. [Ecuador accused of meddling in Colombian election with tariff vow](https://www.bbc.com/news/articles/czx2zndk7elo?at_medium=RSS&at_campaign=rss)
-8. [Iran’s Team Trains in Limbo for World Cup Overshadowed by War](https://www.nytimes.com/2026/05/30/world/middleeast/iran-mens-soccer-team-world-cup.html)
-9. [A Big Bang, a Fire and Panic as War Enters Romanian Homes](https://www.nytimes.com/2026/05/30/world/europe/romania-drone-russia-ukraine.html)
-10. [Oscar-winning Star Wars editor Marcia Lucas dies aged 80](https://www.bbc.com/news/articles/cvgzy64j9l1o?at_medium=RSS&at_campaign=rss)
+1. [Israel Captures Crusader Castle That Symbolized Its Long Lebanon Occupation](https://www.nytimes.com/2026/05/31/world/middleeast/israel-lebanon-beaufort-iran.html)
+2. [Colombia Presidential Election Heads to a Runoff](https://www.nytimes.com/2026/05/31/world/americas/colombia-election-president-candidates.html)
+3. [Colombia presidential runoff pits leftist senator against pro-Trump rival](https://www.bbc.com/news/articles/c1w2xvwq8g9o?at_medium=RSS&at_campaign=rss)
+4. [Trump seeking edits to US-Iran deal, US media report](https://www.bbc.com/news/articles/c1w2xve315do?at_medium=RSS&at_campaign=rss)
+5. [Israel seizes castle in Lebanon as it expands ground offensive](https://www.bbc.com/news/articles/cdep04kzz5wo?at_medium=RSS&at_campaign=rss)
+6. [How aid cuts are hampering the frontline response to the Ebola crisis](https://www.npr.org/2026/05/31/nx-s1-5839197/ebola-crisis-outbreak-misinformation-democratic-republic-congo-uganda)
+7. [The terrifying day the U.S.-Iran war reached a sleepy Sri Lankan town](https://www.npr.org/2026/05/31/nx-s1-5820634/the-terrifying-day-the-u-s-iran-war-reached-a-sleepy-sri-lankan-town)
+8. [Dead whale towed ashore in Denmark ahead of autopsy](https://www.bbc.com/news/articles/cpwpl9vn0yqo?at_medium=RSS&at_campaign=rss)
+9. [Hundreds arrested and dozens of police injured after Champions League riots in France](https://www.bbc.com/news/articles/c0r2ejg1w9xo?at_medium=RSS&at_campaign=rss)
+10. [South Africa made to look like fools over World Cup visa issues, says minister](https://www.bbc.com/news/articles/c86dxvql3qno?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
