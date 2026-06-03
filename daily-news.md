@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年6月2日 03:32:54
+更新时间：2026年6月3日 03:34:04
 
-1. [Iran War Live Updates: Israel and Iran Step Back From Threats After Day of Tension](https://www.nytimes.com/live/2026/06/01/world/iran-war-us-trump-israel-lebanon)
-2. [Massive overnight Russian strikes hit Ukraine killing at least five](https://www.bbc.com/news/articles/c5y8nq8ljqwo?at_medium=RSS&at_campaign=rss)
-3. [Denmark's Mette Frederiksen to form government after months of negotiations](https://www.bbc.com/news/articles/cn7p3e34x5no?at_medium=RSS&at_campaign=rss)
-4. [Lebanon says Hezbollah agrees reciprocal halt to attacks on Israel](https://www.bbc.com/news/articles/c202rxp1z15o?at_medium=RSS&at_campaign=rss)
-5. [Trump inserts himself into the centre of America's 250th birthday celebrations](https://www.bbc.com/news/articles/clypkj2e349o?at_medium=RSS&at_campaign=rss)
-6. [Bowen: Trump needs this war to end but Iran is not backing down](https://www.bbc.com/news/articles/cedp3lee059o?at_medium=RSS&at_campaign=rss)
-7. [Iran halts talks with U.S. over Israeli actions in Lebanon, Gaza](https://www.npr.org/2026/06/01/g-s1-125285/iran-israel-us-lebanon-gaza)
-8. [Syrian Officers Who Hid in Plain Sight Face War Crime Charges in Austria](https://www.nytimes.com/2026/06/01/world/middleeast/syria-war-crimes-trial-austria.html)
-9. [Alberta’s Movement to Separate from Canada Gets Its Moment](https://www.nytimes.com/2026/06/01/world/canada/canada-alberta-separation-referendum-vote.html)
-10. [OpenAI let ChatGPT aid and abet mass shooters, Florida lawsuit claims](https://www.bbc.com/news/articles/czx2j0v8d2xo?at_medium=RSS&at_campaign=rss)
+1. [Murder of Henry Nowak, Who Was Handcuffed by Police While Dying, Fuels Outrage in UK](https://www.nytimes.com/2026/06/02/world/europe/henry-nowak-murder-uk-stabbing.html)
+2. [Iran War Live Updates: Iran Targets Neighbors as U.S. Condemns ‘Aggressive’ Strikes](https://www.nytimes.com/live/2026/06/02/world/iran-war-trump-israel-lebanon)
+3. [Mysteriously missing congressman wins primary after Trump endorsement](https://www.bbc.com/news/articles/c5y7nnjlrd5o?at_medium=RSS&at_campaign=rss)
+4. [US and Iran launch new strikes as ceasefire negotiations stall](https://www.bbc.com/news/articles/c5yx135yg53o?at_medium=RSS&at_campaign=rss)
+5. [Putin remains uncompromising on Ukraine, but is public discourse on war changing in Russia?](https://www.bbc.com/news/articles/cy82339793go?at_medium=RSS&at_campaign=rss)
+6. [Protests Grow in Albania Over Kushner-Linked Project](https://www.nytimes.com/2026/06/02/world/europe/albania-kushner-protests-hotel.html)
+7. [Israel strikes southern Lebanon but partial truce with Hezbollah appears to hold](https://www.bbc.com/news/articles/c936zvne0l6o?at_medium=RSS&at_campaign=rss)
+8. [U.S. Ebola Unit Plans in Kenya, Subject of Protests, Suffers New Setback From Court Ruling](https://www.nytimes.com/2026/06/02/world/africa/kenya-ebola-us-quarantine-unit-court.html)
+9. [Scenes from the aftermath of Russia's latest massive attack on Kyiv](https://www.npr.org/sections/the-picture-show/2026/06/02/nx-s1-5844159/ukraine-kyiv-russia-drone-missile-strikes)
+10. [Mayor cancels DR Congo friendly with Chile in Spain over Ebola concern](https://www.bbc.com/sport/football/articles/cm2pd28jnyxo?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
