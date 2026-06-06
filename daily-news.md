@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年6月5日 03:30:35
+更新时间：2026年6月6日 03:33:44
 
-1. [Hezbollah rejects renewed ceasefire agreed by Israel and Lebanon](https://www.bbc.com/news/articles/c052343r812o?at_medium=RSS&at_campaign=rss)
-2. [US plans to fight flesh-eating screwworm outbreak with flies and dogs](https://www.bbc.com/news/articles/c7v9vz1gd76o?at_medium=RSS&at_campaign=rss)
-3. [Hezbollah Rejects Cease-Fire Deal Between Lebanon and Israel](https://www.nytimes.com/live/2026/06/04/world/iran-war-trump-israel-lebanon)
-4. [Ireland, Seen as a Weak Link in Europe’s Defense, Is Trying to Bulk Up](https://www.nytimes.com/2026/06/04/world/europe/ireland-defense.html)
-5. [How Trump's White House ballroom plan has doubled in size and cost over a year](https://www.bbc.com/news/articles/cnvpvd52j95o?at_medium=RSS&at_campaign=rss)
-6. [Zelensky proposes face-to-face talks in open letter to Putin](https://www.bbc.com/news/articles/cwy2ypyp4x4o?at_medium=RSS&at_campaign=rss)
-7. [Mangrove forests are healing after decades of human destruction](https://www.bbc.com/news/articles/cn4pk07npvvo?at_medium=RSS&at_campaign=rss)
-8. [Here's why election results in the second largest US city are so slow](https://www.bbc.com/news/articles/c2020jrpxz3o?at_medium=RSS&at_campaign=rss)
-9. [Fighting in Somalia’s Capital, Mogadishu: What’s Happening and Why It Matters](https://www.nytimes.com/2026/06/04/world/africa/somalia-mogadishu-fighting.html)
-10. [Ex-wife of Dubai ruler's nephew in custody, prosecutors say](https://www.bbc.com/news/articles/cx2124zylxno?at_medium=RSS&at_campaign=rss)
+1. [Astronauts return to ISS after sheltering during air leak repair attempt](https://www.bbc.com/news/articles/c5y7yryg01mo?at_medium=RSS&at_campaign=rss)
+2. [Putin promotes a new world economic order at St. Petersburg forum](https://www.npr.org/2026/06/05/nx-s1-5845119/putin-promotes-a-new-world-economic-order-at-st-petersburg-forum)
+3. [France Opens Investigation Into Israeli Treatment of Pro-Palestinian Flotilla Activists](https://www.nytimes.com/2026/06/05/world/europe/france-israel-flotilla-activists.html)
+4. [Putin says there is 'no point' meeting Zelensky over ending Ukraine war](https://www.bbc.com/news/articles/cpqpqx5qe40o?at_medium=RSS&at_campaign=rss)
+5. [A Question Swirling Around Putin’s Big Conference: Could the War End?](https://www.nytimes.com/2026/06/05/world/europe/putin-war-st-petersburg-economic-forum.html)
+6. [Norway's crown princess on lung transplant waiting list, palace says](https://www.bbc.com/news/articles/c9wewqxpq2eo?at_medium=RSS&at_campaign=rss)
+7. [Xi Jinping will travel to North Korea next week in first visit since 2019](https://www.npr.org/2026/06/05/g-s1-126481/xi-jinping-will-travel-to-north-korea-next-week-in-first-visit-since-2019)
+8. [Nearly 50 people die of thirst in Sahara desert after lorry breaks down](https://www.bbc.com/news/articles/c62r2ldyejro?at_medium=RSS&at_campaign=rss)
+9. [Three jailed over heist of ancient golden helmet from Dutch museum](https://www.bbc.com/news/articles/cy020317g1no?at_medium=RSS&at_campaign=rss)
+10. [Ukraine strikes cargo ships and admits Romania drone blast](https://www.bbc.com/news/articles/c707098wkzpo?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
