@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年6月8日 03:30:38
+更新时间：2026年6月9日 03:37:37
 
-1. [Peru’s Presidential Runoff in a Dead Heat](https://www.nytimes.com/2026/06/07/world/americas/peru-presidential-election.html)
-2. [Live Updates: Iran and Israel Exchange Strikes for First Time Since April Cease-Fire](https://www.nytimes.com/live/2026/06/07/world/iran-israel-missiles)
-3. [7.8 magnitude quake hits southern Philippines; tsunami risk for some coasts](https://www.npr.org/2026/06/07/g-s1-126830/7-8-magnitude-quake-hits-southern-philippines-tsunami-risk-for-some-coasts)
-4. [Oil prices edge higher after strikes on Israel test ceasefire](https://www.bbc.com/news/articles/c78yd5g9qx0o?at_medium=RSS&at_campaign=rss)
-5. ['A World Cup for them not us': Fans' anger at US travel bans and visa restrictions](https://www.bbc.com/news/articles/cx212p8r28eo?at_medium=RSS&at_campaign=rss)
-6. [Ukraine Turns to Europe as U.S. Steps Back as Mediator in Peace Talks](https://www.nytimes.com/2026/06/07/world/europe/ukraine-europe-russia-us-peace-talks.html)
-7. [Zelensky's close European allies set out five conditions for peace talks](https://www.bbc.com/news/articles/cr7xr1g3nvvo?at_medium=RSS&at_campaign=rss)
-8. [Iranians Sink Into Despair Facing War Deaths and Skyrocketing Inflation](https://www.nytimes.com/2026/06/07/world/middleeast/iranians-despair-war-economy-inflation.html)
-9. [Israel strikes Beirut suburb days after US-brokered truce](https://www.bbc.com/news/articles/c0qyevk8139o?at_medium=RSS&at_campaign=rss)
-10. [Trump is remaking U.S. policy in Latin America](https://www.npr.org/2026/06/07/nx-s1-5845137/trump-is-remaking-u-s-policy-in-latin-america)
+1. [Israel Halts Iran Strikes After Trump Claims Progress Toward Nuclear Talks, Officials Say](https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks)
+2. [Israel and Iran flare-up could strengthen Tehran's negotiating hand](https://www.bbc.com/news/articles/cp8lm75186lo?at_medium=RSS&at_campaign=rss)
+3. [SpaceX's stock market blast-off could be Musk's biggest gamble yet](https://www.bbc.com/news/articles/cy8d9e4lzv1o?at_medium=RSS&at_campaign=rss)
+4. [Iran and Israel say they will pause strikes but warn of retaliation if ceasefire breached again](https://www.bbc.com/news/articles/cj6ge150z5go?at_medium=RSS&at_campaign=rss)
+5. [Watch: Trump tells BBC Netanyahu did not defy him](https://www.bbc.com/news/videos/cd958e7j8q9o?at_medium=RSS&at_campaign=rss)
+6. [Stock market jitters remain amid tech fears and renewed Middle East attacks](https://www.bbc.com/news/articles/c78yd5g9qx0o?at_medium=RSS&at_campaign=rss)
+7. [The Strait of Hormuz's 3-month closure could set a dangerous precedent, experts worry](https://www.npr.org/2026/06/08/nx-s1-5848001/the-strait-of-hormuzs-3-month-closure-could-set-a-dangerous-precedent-experts-worry)
+8. ['City's gonna be crazy:' Knicks run electrifies NYC, as Trump's attendance locks down arena](https://www.bbc.com/news/articles/ceqd5jgded8o?at_medium=RSS&at_campaign=rss)
+9. [TikTok is driving American expats to Southeast Asia](https://www.npr.org/2026/06/08/nx-s1-5821568/tiktok-is-driving-american-expats-to-southeast-asia)
+10. [Vance Blames Migrant ‘Invasion’ for UK Stabbing](https://www.nytimes.com/2026/06/08/world/europe/vance-uk-stabbing-migrants.html)
 <!-- daily-check end -->
