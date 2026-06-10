@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年6月9日 03:37:37
+更新时间：2026年6月10日 03:31:26
 
-1. [Israel Halts Iran Strikes After Trump Claims Progress Toward Nuclear Talks, Officials Say](https://www.nytimes.com/live/2026/06/08/world/iran-israel-lebanon-attacks)
-2. [Israel and Iran flare-up could strengthen Tehran's negotiating hand](https://www.bbc.com/news/articles/cp8lm75186lo?at_medium=RSS&at_campaign=rss)
-3. [SpaceX's stock market blast-off could be Musk's biggest gamble yet](https://www.bbc.com/news/articles/cy8d9e4lzv1o?at_medium=RSS&at_campaign=rss)
-4. [Iran and Israel say they will pause strikes but warn of retaliation if ceasefire breached again](https://www.bbc.com/news/articles/cj6ge150z5go?at_medium=RSS&at_campaign=rss)
-5. [Watch: Trump tells BBC Netanyahu did not defy him](https://www.bbc.com/news/videos/cd958e7j8q9o?at_medium=RSS&at_campaign=rss)
-6. [Stock market jitters remain amid tech fears and renewed Middle East attacks](https://www.bbc.com/news/articles/c78yd5g9qx0o?at_medium=RSS&at_campaign=rss)
-7. [The Strait of Hormuz's 3-month closure could set a dangerous precedent, experts worry](https://www.npr.org/2026/06/08/nx-s1-5848001/the-strait-of-hormuzs-3-month-closure-could-set-a-dangerous-precedent-experts-worry)
-8. ['City's gonna be crazy:' Knicks run electrifies NYC, as Trump's attendance locks down arena](https://www.bbc.com/news/articles/ceqd5jgded8o?at_medium=RSS&at_campaign=rss)
-9. [TikTok is driving American expats to Southeast Asia](https://www.npr.org/2026/06/08/nx-s1-5821568/tiktok-is-driving-american-expats-to-southeast-asia)
-10. [Vance Blames Migrant ‘Invasion’ for UK Stabbing](https://www.nytimes.com/2026/06/08/world/europe/vance-uk-stabbing-migrants.html)
+1. [Iran War Live Updates: U.S. Launches Strikes on Iran; Tehran Claims Attacks on U.S. Fleet](https://www.nytimes.com/live/2026/06/09/world/iran-war-trump-israel-lebanon)
+2. [US-Iran strikes intensify after American patrol helicopter downed in Hormuz](https://www.bbc.com/news/articles/cze9359gglyo?at_medium=RSS&at_campaign=rss)
+3. [Somali Referee Says His World Cup Dream Is Dashed After U.S. Denies Entry](https://www.nytimes.com/2026/06/09/world/africa/somali-referee-world-cup-us-entry-omar-artan.html)
+4. [World's largest chipmaker does not rule out price rises as costs increase](https://www.bbc.com/news/articles/ce3ez4zzzlvo?at_medium=RSS&at_campaign=rss)
+5. [Inside Myanmar, rebels are losing ground as military forces men into army](https://www.bbc.com/news/articles/c20y6966xqzo?at_medium=RSS&at_campaign=rss)
+6. [UK and allies sanction 'networks' enabling settler violence in West Bank](https://www.bbc.com/news/articles/cddl4dl9m3po?at_medium=RSS&at_campaign=rss)
+7. [President Trump says U.S. 'must' respond to Iran attack that downed Army helicopter](https://www.npr.org/2026/06/09/nx-s1-5851862/president-trump-says-u-s-must-respond-to-iran-attack-that-downed-army-helicopter)
+8. [Israeli air strikes hit Lebanese city of Tyre despite Iranian warning to stop attacks](https://www.bbc.com/news/articles/c36y16nkr5no?at_medium=RSS&at_campaign=rss)
+9. [Nasa names next astronauts for Artemis Moon programme](https://www.bbc.com/news/articles/cdejn0gj12go?at_medium=RSS&at_campaign=rss)
+10. [Drones Stray Into Neighboring Countries as Russia and Ukraine Battle](https://www.nytimes.com/2026/06/09/world/europe/russia-ukraine-drones-nato-lithuania-romania.html)
 <!-- daily-check end -->
