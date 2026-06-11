@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年6月10日 03:31:26
+更新时间：2026年6月11日 03:30:37
 
-1. [Iran War Live Updates: U.S. Launches Strikes on Iran; Tehran Claims Attacks on U.S. Fleet](https://www.nytimes.com/live/2026/06/09/world/iran-war-trump-israel-lebanon)
-2. [US-Iran strikes intensify after American patrol helicopter downed in Hormuz](https://www.bbc.com/news/articles/cze9359gglyo?at_medium=RSS&at_campaign=rss)
-3. [Somali Referee Says His World Cup Dream Is Dashed After U.S. Denies Entry](https://www.nytimes.com/2026/06/09/world/africa/somali-referee-world-cup-us-entry-omar-artan.html)
-4. [World's largest chipmaker does not rule out price rises as costs increase](https://www.bbc.com/news/articles/ce3ez4zzzlvo?at_medium=RSS&at_campaign=rss)
-5. [Inside Myanmar, rebels are losing ground as military forces men into army](https://www.bbc.com/news/articles/c20y6966xqzo?at_medium=RSS&at_campaign=rss)
-6. [UK and allies sanction 'networks' enabling settler violence in West Bank](https://www.bbc.com/news/articles/cddl4dl9m3po?at_medium=RSS&at_campaign=rss)
-7. [President Trump says U.S. 'must' respond to Iran attack that downed Army helicopter](https://www.npr.org/2026/06/09/nx-s1-5851862/president-trump-says-u-s-must-respond-to-iran-attack-that-downed-army-helicopter)
-8. [Israeli air strikes hit Lebanese city of Tyre despite Iranian warning to stop attacks](https://www.bbc.com/news/articles/c36y16nkr5no?at_medium=RSS&at_campaign=rss)
-9. [Nasa names next astronauts for Artemis Moon programme](https://www.bbc.com/news/articles/cdejn0gj12go?at_medium=RSS&at_campaign=rss)
-10. [Drones Stray Into Neighboring Countries as Russia and Ukraine Battle](https://www.nytimes.com/2026/06/09/world/europe/russia-ukraine-drones-nato-lithuania-romania.html)
+1. [Iran War Live Updates: U.S. and Iran Trade Strikes for a Second Day](https://www.nytimes.com/live/2026/06/10/world/iran-war-trump-us)
+2. [Indonesian Military Court Sentences Four in Acid Attack on Rights Advocate](https://www.nytimes.com/2026/06/10/world/asia/indonesia-military-acid-attack-andrie.html)
+3. [Tehran targets US Gulf bases after American forces launch new strikes on Iran](https://www.bbc.com/news/articles/c4gyp9v0e93o?at_medium=RSS&at_campaign=rss)
+4. [Trump says he 'loves the inflation' as US prices rise at fastest rate in three years](https://www.bbc.com/news/articles/c0myzxjkw99o?at_medium=RSS&at_campaign=rss)
+5. [The furious dispute over what caused Air India flight 171 to crash](https://www.bbc.com/news/articles/cwyk9exxp2qo?at_medium=RSS&at_campaign=rss)
+6. [U.S. military says it's striking 'multiple targets' in Iran in 2nd day of renewed fire](https://www.npr.org/2026/06/10/nx-s1-5853882/us-strike-iran-second-day-renewed-fire)
+7. [An Everest guide's miraculous survival raises questions for tourism industry](https://www.bbc.com/news/articles/c1ly4p25jyvo?at_medium=RSS&at_campaign=rss)
+8. [Fireworks illuminate Barcelona's Sagrada Família during Pope visit](https://www.bbc.com/news/videos/ce95gmdlp98o?at_medium=RSS&at_campaign=rss)
+9. [Night of Violence Grips Belfast After Stabbing Attack](https://www.nytimes.com/2026/06/10/world/europe/belfast-attack-riots-northern-ireland.html)
+10. [Trump Says He’s ‘Not Looking to Renew’ Canada-Mexico Trade Deal](https://www.nytimes.com/2026/06/10/world/canada/trump-canada-mexico-trade-deal-usmca.html)
 <!-- daily-check end -->
