@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年6月16日 03:33:51
+更新时间：2026年6月17日 03:34:13
 
-1. [Iran War Live Updates: U.S. and Iran Sign Preliminary Deal, but Its Terms Remain Secret](https://www.nytimes.com/live/2026/06/15/world/iran-war-trump-us-deal)
-2. [Trump says deal to end war with Iran already signed and details to be released 'pretty soon'](https://www.bbc.com/news/articles/ce8mv6l6eezo?at_medium=RSS&at_campaign=rss)
-3. [Married at First Sight Australia allegations 'disturbing', says country's watchdog](https://www.bbc.com/news/articles/c4gyp099vl7o?at_medium=RSS&at_campaign=rss)
-4. [Trump arrives in France for G7 leaders summit, touting peace deal with Iran](https://www.npr.org/2026/06/15/nx-s1-5859257/trump-arrives-in-france-for-g7-leaders-summit-touting-peace-deal-with-iran)
-5. [UK Announces Social Media Ban for Children Under 16](https://www.nytimes.com/2026/06/15/world/europe/uk-social-media-children.html)
-6. [U.S. and Iran reach an agreement, but details remain scant](https://www.npr.org/2026/06/15/nx-s1-5858868/u-s-and-iran-reach-an-agreement-but-details-remain-scant)
-7. [Drone strikes one of Ukraine's key Christian and cultural sites](https://www.npr.org/2026/06/15/nx-s1-5858862/drone-strikes-one-of-ukraines-key-christian-and-cultural-sites)
-8. [Crude oil is cheaper as markets embrace news of a U.S.-Iran deal](https://www.npr.org/2026/06/15/nx-s1-5858100/crude-oil-is-cheaper-as-markets-embrace-news-of-a-u-s-iran-deal)
-9. [Lead negotiator on 2015 Iran nuclear deal weighs in on what's next for Trump's deal](https://www.npr.org/2026/06/15/nx-s1-5858933/lead-negotiator-on-2015-iran-nuclear-deal-weighs-in-on-whats-next-for-trumps-deal)
-10. [With Its Biggest E.U. Opponent Gone, Ukraine Is Advancing in Its Bid to Join](https://www.nytimes.com/2026/06/15/world/europe/ukraine-eu-membership.html)
+1. [Can a Trump-Modi Meeting Reset U.S.-India Relations?](https://www.nytimes.com/2026/06/16/world/asia/trump-modi-meeting-g7.html)
+2. [Iran War Live Updates: Trump Says He Hopes to Put War in ‘Rearview Mirror’](https://www.nytimes.com/live/2026/06/16/world/iran-war-trump-us-deal)
+3. [UK investigating reports Russian warship fired warning shots near yacht in English Channel](https://www.bbc.com/news/articles/c20yzm84r7lo?at_medium=RSS&at_campaign=rss)
+4. [Ebola Outbreak Could Become Worst on Record, Africa C.D.C. Chief Warns](https://www.nytimes.com/2026/06/16/world/africa/ebola-outbreak-congo.html)
+5. [After a Bitter Split, European Leaders Play Nice With Trump](https://www.nytimes.com/2026/06/16/world/europe/trump-g7-leaders-europe.html)
+6. [German broadcaster removes TV intro after Elon Musk takes legal action](https://www.bbc.com/news/articles/c0jyzp9z9deo?at_medium=RSS&at_campaign=rss)
+7. [Russian artist and Putin critic shot dead in Poland](https://www.bbc.com/news/articles/clyrzd5g6k2o?at_medium=RSS&at_campaign=rss)
+8. [France, Britain and Other Countries Say They’ll Send Ships to the Strait of Hormuz](https://www.nytimes.com/2026/06/16/world/europe/europe-strait-of-hormuz-iran-security.html)
+9. [Hundreds of cats stolen for food in Vietnam rescued by police, welfare group says](https://www.bbc.com/news/articles/c20yzm58vk3o?at_medium=RSS&at_campaign=rss)
+10. [In Albania, anger grows against the government for supporting a Kushner-linked luxury resort](https://www.npr.org/2026/06/16/g-s1-128162/albania-resort-protests-kushner-trump)
 <!-- daily-check end -->
