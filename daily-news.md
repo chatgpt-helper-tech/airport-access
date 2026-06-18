@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年6月17日 03:34:13
+更新时间：2026年6月18日 03:38:18
 
-1. [Can a Trump-Modi Meeting Reset U.S.-India Relations?](https://www.nytimes.com/2026/06/16/world/asia/trump-modi-meeting-g7.html)
-2. [Iran War Live Updates: Trump Says He Hopes to Put War in ‘Rearview Mirror’](https://www.nytimes.com/live/2026/06/16/world/iran-war-trump-us-deal)
-3. [UK investigating reports Russian warship fired warning shots near yacht in English Channel](https://www.bbc.com/news/articles/c20yzm84r7lo?at_medium=RSS&at_campaign=rss)
-4. [Ebola Outbreak Could Become Worst on Record, Africa C.D.C. Chief Warns](https://www.nytimes.com/2026/06/16/world/africa/ebola-outbreak-congo.html)
-5. [After a Bitter Split, European Leaders Play Nice With Trump](https://www.nytimes.com/2026/06/16/world/europe/trump-g7-leaders-europe.html)
-6. [German broadcaster removes TV intro after Elon Musk takes legal action](https://www.bbc.com/news/articles/c0jyzp9z9deo?at_medium=RSS&at_campaign=rss)
-7. [Russian artist and Putin critic shot dead in Poland](https://www.bbc.com/news/articles/clyrzd5g6k2o?at_medium=RSS&at_campaign=rss)
-8. [France, Britain and Other Countries Say They’ll Send Ships to the Strait of Hormuz](https://www.nytimes.com/2026/06/16/world/europe/europe-strait-of-hormuz-iran-security.html)
-9. [Hundreds of cats stolen for food in Vietnam rescued by police, welfare group says](https://www.bbc.com/news/articles/c20yzm58vk3o?at_medium=RSS&at_campaign=rss)
-10. [In Albania, anger grows against the government for supporting a Kushner-linked luxury resort](https://www.npr.org/2026/06/16/g-s1-128162/albania-resort-protests-kushner-trump)
+1. [U.S. Details Agreement With Iran as Trump Departs G7 Summit](https://www.nytimes.com/live/2026/06/17/world/g7-summit-trump-france)
+2. [What's in the US-Iran agreement?](https://www.bbc.com/news/articles/cvgmqzr6p9mo?at_medium=RSS&at_campaign=rss)
+3. [The Ring and Lilo & Stitch actress Daveigh Chase dies aged 35](https://www.bbc.com/news/articles/cd0m2mg949yo?at_medium=RSS&at_campaign=rss)
+4. [Japan ramping up defence is 'critical' to prevent war, Defence Minister Koizumi tells BBC](https://www.bbc.com/news/articles/cly8qd4595eo?at_medium=RSS&at_campaign=rss)
+5. [Trump Angrily Defends Iran Deal and Reveals, Again, His Obsession With Obama](https://www.nytimes.com/2026/06/17/us/politics/trump-iran-peace-deal-obama.html)
+6. [Here's how much the Iran war cost -- and how its effects will linger](https://www.npr.org/2026/06/17/nx-s1-5860739/iran-war-cost-oil-military-trade)
+7. [Uzbekistan's first World Cup appearance is a dream come true for players and fans](https://www.npr.org/2026/06/17/nx-s1-5856197/uzbekistans-first-world-cup-appearance-is-a-dream-come-true-for-players-and-fans)
+8. [Finland Lifts a Nuclear Weapons Ban, Eyeing an Uncertain World](https://www.nytimes.com/2026/06/17/world/europe/finland-nuclear-devices.html)
+9. [Ex-Nigeria oil minister cleared in UK bribery trial](https://www.bbc.com/news/articles/c872pwx4x2vo?at_medium=RSS&at_campaign=rss)
+10. [Stars of Israel’s TV Channel for Bibi Fans Turn on Trump](https://www.nytimes.com/2026/06/17/world/middleeast/israel-channel-14-trump-criticism.html)
 <!-- daily-check end -->
