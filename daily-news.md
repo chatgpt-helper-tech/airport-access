@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年6月19日 03:35:35
+更新时间：2026年6月20日 03:39:25
 
-1. [Vance Issues Blunt Warning to Israel as He Defends Trump’s Deal](https://www.nytimes.com/live/2026/06/18/world/iran-war-trump-us-deal)
-2. [US lifts naval blockade as Iran's supreme leader says Trump made deal 'out of desperation'](https://www.bbc.com/news/articles/c8r2eejdd35o?at_medium=RSS&at_campaign=rss)
-3. [Ukraine Strikes Moscow Refinery in Large-Scale Drone Attack](https://www.nytimes.com/2026/06/18/world/europe/moscow-ukraine-drone-attack-fire.html)
-4. [Critics of Russia Say This Critic Isn’t Critical Enough](https://www.nytimes.com/2026/06/18/world/europe/alexander-sokurov-russia-director.html)
-5. [Secretary of Defense Hegseth scolds NATO allies — again](https://www.npr.org/2026/06/18/nx-s1-5862847/secretary-of-defense-hegseth-scolds-nato-allies-again)
-6. [Thirty-five killed as gunmen attack Niger's biggest airport](https://www.bbc.com/news/articles/cdx7krkdqeno?at_medium=RSS&at_campaign=rss)
-7. [U.S. lifts blockade on Iranian ports as 60-day clock for a final deal starts ticking](https://www.npr.org/2026/06/18/nx-s1-5863517/trump-iran-deal-blockade-strait-hormuz)
-8. [Gunmen Attack a Major Airport in Niger](https://www.nytimes.com/2026/06/18/world/africa/niger-armed-attack-airport.html)
-9. [Hegseth renews Nato criticism and says US will review presence in Europe](https://www.bbc.com/news/articles/c3vy5l62622o?at_medium=RSS&at_campaign=rss)
-10. [What Iran and US get from deal and why both could struggle to keep it](https://www.bbc.com/news/articles/c932yqz8lggo?at_medium=RSS&at_campaign=rss)
+1. [Israel Commits to New Lebanon Cease-Fire, Ambassador Says, but Troops Will Remain](https://www.nytimes.com/live/2026/06/19/world/iran-trump-deal)
+2. [US to stop funding HIV programmes in South Africa](https://www.bbc.com/news/articles/cdr457lxr71o?at_medium=RSS&at_campaign=rss)
+3. [Zelensky stripped of highest Polish honour over WW2 name of army unit](https://www.bbc.com/news/articles/cr7xzg3dmj8o?at_medium=RSS&at_campaign=rss)
+4. [Italy's Meloni, once Trump's closest ally in Europe, says he made up a story about her](https://www.npr.org/2026/06/19/nx-s1-5864264/meloni-trump-fight-beg)
+5. [Italy's Meloni says Trump 'made up' story that she 'begged' him for photo at G7](https://www.bbc.com/news/articles/c20y1ygn707o?at_medium=RSS&at_campaign=rss)
+6. [Israel and Hezbollah agree ceasefire, US says, as more Lebanon strikes reported](https://www.bbc.com/news/articles/cwyk7kkygj5o?at_medium=RSS&at_campaign=rss)
+7. [U.S. to End AIDS Funding for South Africa](https://www.nytimes.com/2026/06/19/world/africa/southafrica-aids-pepfar.html)
+8. [Moscow Refinery Blast May Have Been Caused by Friendly Fire, Video Suggests](https://www.nytimes.com/2026/06/19/world/europe/russia-moscow-missile-refinery.html)
+9. [Catherine, Princess of Wales Questions Digital Screens’ Role in Children’s Lives](https://www.nytimes.com/2026/06/19/world/europe/princess-kate-uk-children-social-media-ban.html)
+10. [‘Game Changer’? Too Soon to Tell. But Ukraine Flexed in Striking Moscow.](https://www.nytimes.com/2026/06/19/world/europe/ukraine-drone-attack-moscow.html)
 <!-- daily-check end -->
