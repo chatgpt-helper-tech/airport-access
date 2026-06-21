@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年6月20日 03:39:25
+更新时间：2026年6月21日 03:32:30
 
-1. [Israel Commits to New Lebanon Cease-Fire, Ambassador Says, but Troops Will Remain](https://www.nytimes.com/live/2026/06/19/world/iran-trump-deal)
-2. [US to stop funding HIV programmes in South Africa](https://www.bbc.com/news/articles/cdr457lxr71o?at_medium=RSS&at_campaign=rss)
-3. [Zelensky stripped of highest Polish honour over WW2 name of army unit](https://www.bbc.com/news/articles/cr7xzg3dmj8o?at_medium=RSS&at_campaign=rss)
-4. [Italy's Meloni, once Trump's closest ally in Europe, says he made up a story about her](https://www.npr.org/2026/06/19/nx-s1-5864264/meloni-trump-fight-beg)
-5. [Italy's Meloni says Trump 'made up' story that she 'begged' him for photo at G7](https://www.bbc.com/news/articles/c20y1ygn707o?at_medium=RSS&at_campaign=rss)
-6. [Israel and Hezbollah agree ceasefire, US says, as more Lebanon strikes reported](https://www.bbc.com/news/articles/cwyk7kkygj5o?at_medium=RSS&at_campaign=rss)
-7. [U.S. to End AIDS Funding for South Africa](https://www.nytimes.com/2026/06/19/world/africa/southafrica-aids-pepfar.html)
-8. [Moscow Refinery Blast May Have Been Caused by Friendly Fire, Video Suggests](https://www.nytimes.com/2026/06/19/world/europe/russia-moscow-missile-refinery.html)
-9. [Catherine, Princess of Wales Questions Digital Screens’ Role in Children’s Lives](https://www.nytimes.com/2026/06/19/world/europe/princess-kate-uk-children-social-media-ban.html)
-10. [‘Game Changer’? Too Soon to Tell. But Ukraine Flexed in Striking Moscow.](https://www.nytimes.com/2026/06/19/world/europe/ukraine-drone-attack-moscow.html)
+1. [Mideast Live Updates: Vance Heads to Talks as Strait of Hormuz Re-emerges as Point of Tension](https://www.nytimes.com/live/2026/06/20/world/iran-trump-israel-lebanon)
+2. [US-Iran talks to begin in Switzerland as Tehran says it closed Strait of Hormuz](https://www.bbc.com/news/articles/cwyekkwm1mmo?at_medium=RSS&at_campaign=rss)
+3. [Cape Verde Will Count on Vozinha Against Uruguay at the World Cup](https://www.nytimes.com/2026/06/20/world/africa/cape-verde-world-cup-uruguay.html)
+4. [Israeli strikes kill six people in Gaza including Al Jazeera cameraman, officials say](https://www.bbc.com/news/articles/c4gy26p6pwzo?at_medium=RSS&at_campaign=rss)
+5. [Israel's growing fight over Palestinian symbols](https://www.npr.org/2026/06/20/nx-s1-5847843/israels-growing-fight-over-palestinian-symbols)
+6. [For Pakistan's Ismaili muslims, a visit from their spiritual leader brings a homecoming](https://www.npr.org/2026/06/20/nx-s1-5855391/for-pakistans-ismaili-muslims-a-visit-from-their-spiritual-leader-brings-a-homecoming)
+7. [Iran claims Hormuz closure, U.S. says ships still passing](https://www.npr.org/2026/06/20/nx-s1-5864209/iran-claims-hormuz-closure-u-s-says-ships-still-passing)
+8. [Lebanese turtle conservationist Mona Khalil killed by Israeli strike](https://www.bbc.com/news/articles/cwylx1vq18zo?at_medium=RSS&at_campaign=rss)
+9. [Tourist dies in Dominican Republic luxury resort fire](https://www.bbc.com/news/articles/c932k8010j1o?at_medium=RSS&at_campaign=rss)
+10. [Zelensky returns highest Polish honour after award stripped](https://www.bbc.com/news/articles/c2lye7xje9yo?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
