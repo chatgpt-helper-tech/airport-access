@@ -20,11 +20,11 @@
 
 | 你是哪类用户 | 建议先买 | 为什么 | 注意 | 快速入口 |
 | --- | --- | --- | --- | --- |
-| 第一次买主力机场，想少折腾 | **BoostNet 200G/月** | 综合体验均衡，自研客户端省心 | 官方客户端优先 | [立即注册](https://888.boostqz.com/?path=register&code=kKMFirlm) |
-| 更看重 IEPL 线路和晚高峰视频 | **悠兔 300G/月** | 高端 IEPL，晚高峰视频样本更突出 | 适合长期主力 | [立即注册](https://youtunice.com/?path=register&code=erkQTmbM) |
-| 预算敏感、设备多、看剧和日常 AI 都要 | **小蜜蜂工蜂极速版** | 深港 IEPL，不限设备，更偏流媒体性价比 | 直接使用官方客户端 | [立即注册](https://inva.xmfaff.cc/register?aff=oClLBb5A) |
-| 想月付试用或轻量备用 | **u1s1 120GB/月** | 月付门槛低，适合先试水 | 注意订阅重置规则 | [立即注册](https://realvpntest.vipaff.cc/#/?code=N8zXLB0c) |
-| 团队办公、高预算、能接受年付 | **WgetCloud 优质专线** | 更偏团队、办公和高稳定需求 | 当前以年付为主 | [立即注册](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh) |
+| 第一次买主力机场，想少折腾 | **BoostNet：¥49/月，200GB/月** | 综合体验均衡，自研客户端省心 | 官方客户端优先 | [立即注册](https://888.boostqz.com/?path=register&code=kKMFirlm) |
+| 更看重 IEPL 线路和晚高峰视频 | **悠兔：¥39/月，150GB/月** | 高端 IEPL，晚高峰视频样本更突出 | 适合长期主力 | [立即注册](https://youtunice.com/?path=register&code=erkQTmbM) |
+| 预算敏感、设备多、看剧和日常 AI 都要 | **小蜜蜂：¥20/月，120GB/月** | 深港 IEPL，不限设备，更偏流媒体性价比 | 直接使用官方客户端 | [立即注册](https://inva.xmfaff.cc/register?aff=oClLBb5A) |
+| 想月付试用或轻量备用 | **u1s1：¥20/月，120GB/月** | 月付门槛低，适合先试水 | 注意订阅重置规则 | [立即注册](https://realvpntest.vipaff.cc/#/?code=N8zXLB0c) |
+| 团队办公、高预算、能接受年付 | **WgetCloud：无月付，¥758/年起，280GB/30天** | 更偏团队、办公和高稳定需求 | 当前以年付为主 | [立即注册](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh) |
 
 <a id="compare-table"></a>
 
