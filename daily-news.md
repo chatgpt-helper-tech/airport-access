@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年6月22日 03:35:09
+更新时间：2026年6月23日 03:39:22
 
-1. [Abelardo De La Espriella, Trump-Backed Rightist, Headed for Win in Colombia](https://www.nytimes.com/2026/06/21/world/americas/colombia-election-de-la-espriella.html)
-2. [Mideast Live Updates: First Round of U.S.-Iran Talks Conclude, Mediators Say](https://www.nytimes.com/live/2026/06/21/world/iran-us-trump-lebanon)
-3. [First round of US-Iran talks end with 'encouraging progress', mediators say](https://www.bbc.com/news/articles/cwy0q41v1lzo?at_medium=RSS&at_campaign=rss)
-4. [Colombia Election: Right-wing Abelardo de la Espriella wins, initial count shows](https://www.npr.org/2026/06/21/nx-s1-5865676/delaespriella-colombia-election)
-5. [Leading Lebanese conservationist dies after Israeli airstrike on her home](https://www.npr.org/2026/06/21/nx-s1-5865705/lebanon-turtle-conservationist-killed-israeli-airstrike)
-6. [Colombia weighs peace talks against a tougher approach](https://www.npr.org/2026/06/21/nx-s1-5865677/colombia-weighs-peace-talks-against-a-tougher-approach)
-7. [Hormuz dispute clouds Iran peace talks](https://www.npr.org/2026/06/21/nx-s1-5865139/hormuz-dispute-clouds-iran-peace-talks)
-8. [Cambodian scam center humanitarian crisis](https://www.npr.org/2026/06/21/nx-s1-5861612/cambodian-scam-center-humanitarian-crisis)
-9. [Bitter Historical Feud Threatens Ukraine-Poland Alliance](https://www.nytimes.com/2026/06/21/world/europe/ukraine-poland-alliance-russia.html)
-10. [Trump threatens to 'hit Iran very hard again' while Vance is in Switzerland for talks](https://www.npr.org/2026/06/21/g-s1-129222/us-iran-deal-lebanon-israel-strait-hormuz-jd-vance)
+1. [Ransom note claims Nancy Guthrie died after abduction](https://www.bbc.com/news/articles/cvgm0mgzl33o?at_medium=RSS&at_campaign=rss)
+2. [U.S. Eases Sanctions on Iranian Oil, but Progress on Nuclear Issues Is Muddy](https://www.nytimes.com/live/2026/06/22/world/iran-us-trump-lebanon)
+3. [Suspect and a Civilian Are Among Three Killed in Montreal Shooting](https://www.nytimes.com/2026/06/22/world/canada/montreal-shooting-manhunt-police.html)
+4. [US eases oil sanctions as Iran denies Vance claim on nuclear inspectors](https://www.bbc.com/news/articles/c3vy3nr63gxo?at_medium=RSS&at_campaign=rss)
+5. [Keir Starmer Resigns as UK Prime Minister](https://www.nytimes.com/2026/06/22/world/europe/keir-starmer-andy-burnham-prime-minister-britain.html)
+6. [Pakistan Plans to Cut Tax on Menstrual Pads, but Many Say It’s Not Enough](https://www.nytimes.com/2026/06/22/world/asia/pakistan-menstrual-period-tax.html)
+7. [How Will Colombia’s New President Fuel Trump’s Drug War?](https://www.nytimes.com/2026/06/22/world/americas/colombia-president-de-la-espriella-trump-drug-war.html)
+8. [Red heat alerts issued in France, Italy and Spain as 40C temperatures forecast](https://www.bbc.com/news/articles/c0jy9g96086o?at_medium=RSS&at_campaign=rss)
+9. [Kenya minister found in contempt of court over US-backed Ebola centre](https://www.bbc.com/news/articles/c4gy6vk44pwo?at_medium=RSS&at_campaign=rss)
+10. [WhatsApp to be led by Indian start-up founder as Will Cathcart steps back](https://www.bbc.com/news/articles/c8e2195k5j2o?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
