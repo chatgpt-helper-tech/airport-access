@@ -176,7 +176,7 @@ BoostNet 的优势不是单项参数最夸张，而是整体体验更均衡：�
 ### 购买入口
 
 > - **立即注册：** [BoostNet（中高端 IEPL 专线）](https://888.boostqz.com/?path=register&code=kKMFirlm)
-> - **完整测评：** [BoostNet 机场测评（2026-03-03 实测）](https://petnooko.com/boostnet/)
+> - **完整测评：** [BoostNet 机场测评（2026-03-03 实测）](https://gptvpnhelper.com/boostnet/)
 
 ### 实测图
 
@@ -268,13 +268,13 @@ BoostNet 的优势不是单项参数最夸张，而是整体体验更均衡：�
 ### 购买入口
 
 > - **立即注册：** [悠兔（高端 IEPL 专线）](https://youtunice.com/?path=register&code=erkQTmbM)
-> - **完整测评：** [悠兔机场测评（2026-04-27 更新）](https://petnooko.com/youtu/)
+> - **完整测评：** [悠兔机场测评（2026-04-27 更新）](https://gptvpnhelper.com/youtu/)
 
 ### 实测图
 
 **节点测速与解锁｜悠兔（2025-06-12 样本）**
 
-<img src="https://petnooko.com/assets/youtu/YouTu-Test.webp" alt="悠兔机场测速与解锁测试图" loading="lazy" />
+<img src="https://gptvpnhelper.com/assets/youtu/YouTu-Test.webp" alt="悠兔机场测速与解锁测试图" loading="lazy" />
 
 **YouTube 晚高峰 8K HDR 实测｜悠兔（2026-04-27）**
 
@@ -346,7 +346,7 @@ BoostNet 的优势不是单项参数最夸张，而是整体体验更均衡：�
 ### 购买入口
 
 > - **立即注册：** [小蜜蜂（低价 IEPL 多设备方案）](https://inva.xmfaff.cc/register?aff=oClLBb5A)
-> - **完整测评：** [小蜜蜂机场详细测评](https://petnooko.com/xmf/)
+> - **完整测评：** [小蜜蜂机场详细测评](https://gptvpnhelper.com/xmf/)
 
 ### 实测图
 
@@ -418,7 +418,7 @@ u1s1 的核心优势是性价比和月付门槛：采用 BGP 三网智能优化 
 ### 购买入口
 
 > - **立即注册：** [u1s1（高性价比 IPLC / IEPL 专线机场）](https://realvpntest.vipaff.cc/#/?code=N8zXLB0c)
-> - **完整测评：** [u1s1 机场详细测评](https://petnooko.com/u1s1/)
+> - **完整测评：** [u1s1 机场详细测评](https://gptvpnhelper.com/u1s1/)
 > - **访问提示：** 如果进入网站较慢，可以多尝试几次或稍后重试。
 
 ### 晚高峰实测表现
@@ -507,7 +507,7 @@ WgetCloud（原名 GaCloud）成立于 2021 年，定位高端全球加速服务
 ### 购买入口
 
 > - **立即注册：** [WgetCloud（企业级稳定方案）](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh)
-> - **完整测评：** [WgetCloud 机场详细测评](https://petnooko.com/wgetcloud/)
+> - **完整测评：** [WgetCloud 机场详细测评](https://gptvpnhelper.com/wgetcloud/)
 
 ### 实测图
 
@@ -645,7 +645,7 @@ IEPL 和 IPLC 通常属于成本更高的专线或类专线方案，更看重跨
 
 ### 如果想看更多机场怎么办？
 
-本文只保留少量精品机场推荐。如果你想对比更多机场服务商，可以查看：[机场测评与更多机场信息](https://petnooko.com/)。
+本文只保留少量精品机场推荐。如果你想对比更多机场服务商，可以查看：[机场测评与更多机场信息](https://gptvpnhelper.com/)。
 
 ---
 
