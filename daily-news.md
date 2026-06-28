@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年6月27日 03:39:18
+更新时间：2026年6月28日 03:36:21
 
-1. [Venezuela Live Updates: Trump’s Vow to ‘Run’ Venezuela Is Tested After Quakes](https://www.nytimes.com/live/2026/06/26/world/venezuela-earthquake)
-2. [US conducts strikes on Iran after attack on cargo ship](https://www.bbc.co.uk/news/articles/ckg590wqxwpo?at_medium=RSS&at_campaign=rss)
-3. [U.S. Strikes Iran in Retaliation for Attack on Vessel in Strait of Hormuz](https://www.nytimes.com/2026/06/26/world/middleeast/strait-of-hormuz-iran-attack.html)
-4. [Religion row as Texas makes Bible stories required reading in schools](https://www.bbc.co.uk/news/articles/ckg8m2xkg84o?at_medium=RSS&at_campaign=rss)
-5. [Meloni and Trump: A very public fall-out that is proving very hard to fix](https://www.bbc.co.uk/news/articles/cze962pgk27o?at_medium=RSS&at_campaign=rss)
-6. [Israel and Lebanon sign framework agreement after US-brokered talks](https://www.bbc.co.uk/news/articles/cg5315n1v5go?at_medium=RSS&at_campaign=rss)
-7. [Venezuela earthquakes kill 920 people as families desperate for news](https://www.bbc.co.uk/news/articles/c39y79g7gzko?at_medium=RSS&at_campaign=rss)
-8. [U.S. pledges generous earthquake relief to Venezuela](https://www.npr.org/2026/06/26/nx-s1-5872204/u-s-pledges-generous-earthquake-relief-to-venezuela)
-9. [It's not just Cape Verde: African soccer is having a World Cup moment](https://www.npr.org/2026/06/26/nx-s1-5867404/2026-world-cup-fifa-africa-cape-verde-senegal-morocco-congo)
-10. [Small Plane Crashes Into Tallest Building in Beijing](https://www.nytimes.com/2026/06/26/world/asia/china-plane-crash-beijing.html)
+1. [US and Iran exchange strikes and accuse each other of violating ceasefire](https://www.bbc.co.uk/news/articles/cdxdwkgqgq0o?at_medium=RSS&at_campaign=rss)
+2. [Mideast Live Updates: U.S. and Iran Trade More Strikes, Testing Truce](https://www.nytimes.com/live/2026/06/27/world/us-iran-strikes-hormuz)
+3. [Venezuela Live Updates: Chaotic Rush to Help Victims Delays Some Rescues](https://www.nytimes.com/live/2026/06/27/world/venezuela-earthquake)
+4. [Why Kim Jong Un never talks about his mother - or her controversial bloodline](https://www.bbc.co.uk/news/articles/cpvp3xn489no?at_medium=RSS&at_campaign=rss)
+5. [Israel strikes southern Lebanon as Hezbollah condemns new deal](https://www.bbc.co.uk/news/articles/cx2kpn0eeweo?at_medium=RSS&at_campaign=rss)
+6. ['Every person saved is a miracle': Families call to trapped loved ones in region devastated by Venezuela quakes](https://www.bbc.co.uk/news/articles/cp8l451420zo?at_medium=RSS&at_campaign=rss)
+7. [Venezuela races to find survivors](https://www.npr.org/2026/06/27/nx-s1-5872799/venezuela-races-to-find-survivors)
+8. [New strikes test the Iran ceasefire](https://www.npr.org/2026/06/27/nx-s1-5869562/new-strikes-test-the-iran-ceasefire)
+9. [Reporter's Notebook: What its like to report from an Ebola outbreak](https://www.npr.org/2026/06/27/nx-s1-5866594/reporters-notebook-what-its-like-to-report-from-an-ebola-outbreak)
+10. [Heatwave breaks records in Germany, Denmark and Czech Republic](https://www.bbc.co.uk/news/articles/cx2vdydz31no?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
