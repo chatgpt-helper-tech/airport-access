@@ -180,13 +180,13 @@ BoostNet 的优势不是单项参数最夸张，而是整体体验更均衡：�
 
 ### 实测图
 
-**节点解锁｜BoostNet（2026-07-03 样本）**
-
-<img src="https://img.petnooko.com/2026/07/6720b911653a171fe3b7d57777ae6f6d.webp" alt="BoostNet 机场节点解锁图（2026-07-03）" loading="lazy" />
-
-**节点测速｜BoostNet（2026-07-03 样本）**
+**节点测速｜BoostNet（2026-07-03 实测）**
 
 <img src="https://img.petnooko.com/2026/07/fa2bf196c0881c0eca4d96518d1e4f33.webp" alt="BoostNet 机场节点测速图（2026-07-03）" loading="lazy" />
+
+**节点解锁｜BoostNet（2026-07-03 实测）**
+
+<img src="https://img.petnooko.com/2026/07/6720b911653a171fe3b7d57777ae6f6d.webp" alt="BoostNet 机场节点解锁图（2026-07-03）" loading="lazy" />
 
 ---
 
@@ -272,11 +272,11 @@ BoostNet 的优势不是单项参数最夸张，而是整体体验更均衡：�
 
 ### 实测图
 
-**节点测速｜悠兔（2026-07-03 样本）**
+**节点测速｜悠兔（2026-07-03 实测）**
 
 <img src="https://img.petnooko.com/2026/07/b78f6f7bad6cdb780b2c862f654f5be6.webp" alt="悠兔机场节点测速图（2026-07-03）" loading="lazy" />
 
-**节点解锁｜悠兔（2026-07-03 样本）**
+**节点解锁｜悠兔（2026-07-03 实测）**
 
 <img src="https://img.petnooko.com/2026/07/75d3ea2e7b8b399f069362706c978621.webp" alt="悠兔机场节点解锁图（2026-07-03）" loading="lazy" />
 
