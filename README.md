@@ -1,6 +1,6 @@
 # 机场推荐 2026：稳定科学上网Clash机场，适合 ChatGPT、流媒体
 
-**内容最后更新：2026年06月21日**
+**内容最后更新：2026年07月03日**
 
 > **快速结论：**
 >
@@ -180,13 +180,13 @@ BoostNet 的优势不是单项参数最夸张，而是整体体验更均衡：�
 
 ### 实测图
 
-**解锁测试｜BoostNet（2026-03-03 实测）**
+**节点解锁｜BoostNet（2026-07-03 样本）**
 
-<img src="https://img.petnooko.com/2026/03/dcddc3383978dcc713cf1497b779bdd5.webp" alt="BoostNet 解锁测试（2026-03-03）" loading="lazy" />
+<img src="https://img.petnooko.com/2026/07/6720b911653a171fe3b7d57777ae6f6d.webp" alt="BoostNet 机场节点解锁图（2026-07-03）" loading="lazy" />
 
-**Speedtest 测速｜BoostNet（2026-03-03 实测）**
+**节点测速｜BoostNet（2026-07-03 样本）**
 
-<img src="https://img.petnooko.com/2026/03/ee3c159529b5b34bb158d859bb1bc3c7.webp" alt="BoostNet 测速测试（2026-03-03）" loading="lazy" />
+<img src="https://img.petnooko.com/2026/07/fa2bf196c0881c0eca4d96518d1e4f33.webp" alt="BoostNet 机场节点测速图（2026-07-03）" loading="lazy" />
 
 ---
 
@@ -272,9 +272,13 @@ BoostNet 的优势不是单项参数最夸张，而是整体体验更均衡：�
 
 ### 实测图
 
-**节点测速与解锁｜悠兔（2025-06-12 样本）**
+**节点测速｜悠兔（2026-07-03 样本）**
 
-<img src="https://gptvpnhelper.com/assets/youtu/YouTu-Test.webp" alt="悠兔机场测速与解锁测试图" loading="lazy" />
+<img src="https://img.petnooko.com/2026/07/b78f6f7bad6cdb780b2c862f654f5be6.webp" alt="悠兔机场节点测速图（2026-07-03）" loading="lazy" />
+
+**节点解锁｜悠兔（2026-07-03 样本）**
+
+<img src="https://img.petnooko.com/2026/07/75d3ea2e7b8b399f069362706c978621.webp" alt="悠兔机场节点解锁图（2026-07-03）" loading="lazy" />
 
 **YouTube 晚高峰 8K HDR 实测｜悠兔（2026-04-27）**
 
@@ -673,4 +677,4 @@ IEPL 和 IPLC 通常属于成本更高的专线或类专线方案，更看重跨
 
 ---
 
-内容最后更新：2026年06月21日
+内容最后更新：2026年07月03日
