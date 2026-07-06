@@ -21,7 +21,7 @@
 | 你是哪类用户 | 建议先买 | 为什么 | 注意 | 快速入口 |
 | --- | --- | --- | --- | --- |
 | 第一次买主力机场，想少折腾 | **BoostNet：¥49/月，200GB/月** | 综合体验均衡，自研客户端省心 | 官方客户端优先 | [立即注册](https://888.boostqz.com/?path=register&code=kKMFirlm) |
-| 更看重 IEPL 线路和晚高峰视频 | **悠兔：¥39/月，150GB/月** | 高端 IEPL，晚高峰视频样本更突出 | 适合长期主力 | [立即注册](https://youtunice.com/?path=register&code=erkQTmbM) |
+| 更看重 IEPL 线路和晚高峰视频 | **悠兔：¥39/月，150GB/月** | 高端 IEPL，晚高峰视频样本更突出 | 适合长期主力 | [立即注册](https://999.youtu0.com/?path=register&code=erkQTmbM) |
 | 预算敏感、设备多、看剧和日常 AI 都要 | **小蜜蜂：¥20/月，120GB/月** | 深港 IEPL，不限设备，更偏流媒体性价比 | 直接使用官方客户端 | [立即注册](https://inva.xmfaff.cc/register?aff=oClLBb5A) |
 | 想月付试用或轻量备用 | **u1s1：¥20/月，120GB/月** | 月付门槛低，适合先试水 | 注意订阅重置规则 | [立即注册](https://realvpntest.vipaff.cc/#/?code=N8zXLB0c) |
 | 团队办公、高预算、能接受年付 | **WgetCloud：无月付，¥758/年起，280GB/30天** | 更偏团队、办公和高稳定需求 | 当前以年付为主 | [立即注册](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh) |
@@ -206,7 +206,7 @@ BoostNet 的优势不是单项参数最夸张，而是整体体验更均衡：�
 > - **默认套餐：** **300G/月（¥59）**，低门槛体验优先 150G/月（¥39），重度优先 500G/月（¥79）。
 > - **放心点：** 全节点 1x 倍率，可按需切到 2x 专线节点；支付宝 / 微信付款；客服响应快，节点 / 套餐问题通常能较快解决。
 > - **先确认：** 仅限中国内地使用；禁 BT / P2P / PT；小白用户优先官方客户端。
-> - **注册入口：** [立即注册悠兔](https://youtunice.com/?path=register&code=erkQTmbM)
+> - **注册入口：** [立即注册悠兔](https://999.youtu0.com/?path=register&code=erkQTmbM)
 
 如果你更在意晚高峰表现，悠兔的 **300G/月套餐（¥59）** 更适合作为长期主力；流媒体和多设备更重的用户可以看 500G/月套餐。
 
@@ -267,7 +267,7 @@ BoostNet 的优势不是单项参数最夸张，而是整体体验更均衡：�
 
 ### 购买入口
 
-> - **立即注册：** [悠兔（高端 IEPL 专线）](https://youtunice.com/?path=register&code=erkQTmbM)
+> - **立即注册：** [悠兔（高端 IEPL 专线）](https://999.youtu0.com/?path=register&code=erkQTmbM)
 > - **完整测评：** [悠兔机场测评（2026-04-27 更新）](https://gptvpnhelper.com/youtu/)
 
 ### 实测图
@@ -660,7 +660,7 @@ IEPL 和 IPLC 通常属于成本更高的专线或类专线方案，更看重跨
 | 最终需求 | 推荐选择 | 购买建议 |
 | --- | --- | --- |
 | 只想选一家长期主力，不想反复比较 | [BoostNet](https://888.boostqz.com/?path=register&code=kKMFirlm) | 先看 200G/月主力档 |
-| 更看重 IEPL 线路质量和晚高峰视频体验 | [悠兔](https://youtunice.com/?path=register&code=erkQTmbM) | 先看 300G/月主力档 |
+| 更看重 IEPL 线路质量和晚高峰视频体验 | [悠兔](https://999.youtu0.com/?path=register&code=erkQTmbM) | 先看 300G/月主力档 |
 | 预算敏感、设备多、想要低价 IEPL | [小蜜蜂](https://inva.xmfaff.cc/register?aff=oClLBb5A) | 轻度看年付小包，日常主力看 120GB/月或 240GB/月 |
 | 想先月付试用或轻量备用 | [u1s1](https://realvpntest.vipaff.cc/#/?code=N8zXLB0c) | 先看 120GB/月，确认可用后再续 |
 | 团队办公、高预算、能接受年付门槛 | [WgetCloud](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh) | 优先看优质专线服务 |
