@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年7月6日 12:39:37
+更新时间：2026年7月7日 07:35:25
 
-1. [China Test Fires Long-Range Ballistic Missile in the Pacific](https://www.nytimes.com/2026/07/06/world/asia/china-pacific-nuclear-missile-launch.html)
-2. [Ukraine Remade Air Defense, but Russia Has Changed Its Attacks](https://www.nytimes.com/2026/07/06/world/europe/ukraine-russia-patriot-air-defense.html)
-3. [Ukraine warns of interceptor missile shortage as 19 killed in Kyiv region](https://www.bbc.co.uk/news/articles/cewqqnd7zdwo?at_medium=RSS&at_campaign=rss)
-4. [Huge crowds fill Tehran streets for Khamenei's funeral procession](https://www.bbc.co.uk/news/articles/cdejj44kl70o?at_medium=RSS&at_campaign=rss)
-5. [Trump, Mamdani give contrasting July 4th speeches. And, U.S. faces Belgium in World Cup](https://www.npr.org/2026/07/06/g-s1-132097/up-first-newsletter-america-250-trump-democrats-iran-israel-world-cup-folarin-balogun)
-6. [Deadly Russian Strikes Rock Kyiv on Eve of NATO Summit](https://www.nytimes.com/2026/07/05/world/europe/kyiv-ukraine-russia-attack-nato.html)
-7. [NATO Leaders Are Meeting This Week. Here’s What to Know.](https://www.nytimes.com/2026/07/06/world/europe/nato-leaders-are-meeting-this-week-heres-what-to-know.html)
-8. [As Trump Cools on NATO, Turkey Hosts Summit Meeting](https://www.nytimes.com/2026/07/06/world/middleeast/nato-summit-turkey-erdogan-trump.html)
-9. [From Haiti to Venezuela, Earthquakes Reveal Shift in U.S. Relief Efforts](https://www.nytimes.com/2026/07/06/world/americas/earthquake-venezuela-haiti-us-aid.html)
-10. [Erdogan-Trump Friendship Can Help NATO, Turkey’s Foreign Minister Says](https://www.nytimes.com/2026/07/06/world/europe/nato-turkey-erdogan-trump-hakan-fidan.html)
+1. [India's landmark Ram temple overhauls board after alleged theft of donations](https://www.bbc.co.uk/news/articles/c872ngz405xo?at_medium=RSS&at_campaign=rss)
+2. [China test-launches a ballistic missile in the South Pacific and raises regional concerns](https://www.npr.org/2026/07/07/nx-s1-5884537/china-ballistic-missile-south-pacific)
+3. [Tanker set ablaze after being struck by projectile in the Strait of Hormuz](https://www.npr.org/2026/07/07/g-s1-132265/tanker-attack-strait-of-hormuz)
+4. [Trump’s Intervention in Balogun’s World Cup Suspension Adds to Conflict With Europe](https://www.nytimes.com/2026/07/06/world/europe/balogun-red-card-fifa-belgium.html)
+5. [Zelensky to press Nato for air defence systems after intense Russian strikes](https://www.bbc.co.uk/news/articles/c9d227e5zj6o?at_medium=RSS&at_campaign=rss)
+6. [Erika Kirk attends hearing for suspect charged with husband's murder](https://www.bbc.co.uk/news/articles/c1myyyyjvx5o?at_medium=RSS&at_campaign=rss)
+7. [Resistance and revenge - Iran wanted to send a message with its farewell to Khamenei](https://www.bbc.co.uk/news/articles/c07yy3j3nljo?at_medium=RSS&at_campaign=rss)
+8. [Jailers and officials at Russia's 'torture prisons' in Ukraine exposed by BBC](https://www.bbc.co.uk/news/articles/cx2kkrx8jeno?at_medium=RSS&at_campaign=rss)
+9. [Russia Strikes Kyiv, Ukraine’s Capital, on Eve of NATO Summit](https://www.nytimes.com/2026/07/05/world/europe/kyiv-ukraine-russia-attack-nato.html)
+10. [Russia-Ukraine war escalates before NATO summit](https://www.npr.org/2026/07/06/nx-s1-5883752/russia-ukraine-war-escalates-before-nato-summit)
 <!-- daily-check end -->
