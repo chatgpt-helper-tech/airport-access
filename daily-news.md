@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年7月8日 09:36:04
+更新时间：2026年7月8日 12:37:08
 
-1. [At NATO summit in Turkey, Trump says he believes ceasefire with Iran is 'over'](https://www.npr.org/2026/07/08/nx-s1-5883929/trump-nato-iran-strikes-press-conference)
-2. [Trump says ceasefire between the U.S. and Iran is over](https://www.npr.org/2026/07/08/nx-s1-5884779/trump-says-ceasefire-between-the-u-s-and-iran-is-over)
-3. [The state of the NATO alliance amid Trump's second term](https://www.npr.org/2026/07/08/nx-s1-5884818/the-state-of-the-nato-alliance-amid-trumps-second-term)
-4. [Trains and emergency calls affected after major outage at Australia's largest telecoms company](https://www.bbc.co.uk/news/articles/cgevw0d95pdo?at_medium=RSS&at_campaign=rss)
-5. [Le Pen says she'll run for French presidency next year despite court-ordered monitor](https://www.npr.org/2026/07/08/g-s1-132467/le-pen-court-ordered-monitor)
-6. [Australia dock workers call for 28-hour week in AI talks](https://www.bbc.co.uk/news/articles/cd95wendvdeo?at_medium=RSS&at_campaign=rss)
-7. [Nato allies announce £37bn for new missile project](https://www.bbc.co.uk/news/articles/ckg4e3lwzqzo?at_medium=RSS&at_campaign=rss)
-8. [Tehran targets Bahrain and Kuwait after U.S. strikes](https://www.npr.org/2026/07/08/g-s1-132460/us-iran-attacks)
-9. [Russian fuel shortages bite – but will Putin change tack in Ukraine war?](https://www.bbc.co.uk/news/articles/cr7xk8j0j2do?at_medium=RSS&at_campaign=rss)
-10. [Will Le Pen rise again? French nationalist leader defiant after court's ruling](https://www.bbc.co.uk/news/articles/cvgdlprp1r3o?at_medium=RSS&at_campaign=rss)
+1. [Iran Live Updates: Trump Casts Doubt on Future of Cease-Fire After Latest Strikes](https://www.nytimes.com/live/2026/07/08/world/iran-war-us-trump)
+2. [Live Updates: Trump Lashes Out at Europe at NATO Summit](https://www.nytimes.com/live/2026/07/08/world/nato-summit-turkey-trump-ukraine)
+3. [Nigeria's president demands to know how fake agency was allegedly set up in his office](https://www.bbc.co.uk/news/articles/c621xrrp6jeo?at_medium=RSS&at_campaign=rss)
+4. [Trump says ceasefire is 'over' after US and Iran trade strikes](https://www.bbc.co.uk/news/articles/clyw8w1g409o?at_medium=RSS&at_campaign=rss)
+5. [Trump says he believes the Iran ceasefire is 'over.' And, IOC lifts Russia's suspension](https://www.npr.org/2026/07/08/g-s1-132474/up-first-newsletter-trump-iran-ceasefire-nato-graham-platner-ioc-russia)
+6. [The Alluring Albanian Island Inspiring Ivanka’s Fantasy](https://www.nytimes.com/2026/07/08/world/europe/albania-sazan-island-kushner-ivanka.html)
+7. [Marine Le Pen’s Return Has Sidelined Her Protégé. Can They Join Forces?](https://www.nytimes.com/2026/07/08/world/france-marine-le-pen-jordan-bardella-national-rally.html)
+8. [At NATO summit in Turkey, Trump says he believes ceasefire with Iran is 'over'](https://www.npr.org/2026/07/08/nx-s1-5883929/trump-nato-iran-strikes-press-conference)
+9. [At Iran’s Funeral for Ayatollah Khamenei, Mourners Bid an Emotional Farewell](https://www.nytimes.com/2026/07/08/world/middleeast/iran-khamenei-funeral-photos.html)
+10. [Trump says ceasefire between the U.S. and Iran is over](https://www.npr.org/2026/07/08/nx-s1-5884779/trump-says-ceasefire-between-the-u-s-and-iran-is-over)
 <!-- daily-check end -->
