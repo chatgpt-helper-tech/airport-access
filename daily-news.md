@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年7月11日 13:37:39
+更新时间：2026年7月12日 06:34:12
 
-1. [Israel Struck an Iranian Steel Facility. Was It a Valid Military Target?](https://www.nytimes.com/2026/07/11/world/middleeast/iran-steel-plant-civilian-military.html)
-2. [Man Arrested in Killing of U.K. Ex-Lawmaker Is Released](https://www.nytimes.com/2026/07/11/world/europe/uk-ann-widdecombe-suspect-released.html)
-3. [US wants Iran to pledge to stop shooting at ships in Strait of Hormuz](https://www.bbc.co.uk/news/articles/crelyq79x71o?at_medium=RSS&at_campaign=rss)
-4. [US pays out $3m to victims of mystery Havana Syndrome condition reported by spies](https://www.bbc.co.uk/news/articles/cr7xyl78vnko?at_medium=RSS&at_campaign=rss)
-5. [Indian tourists among 15 killed as speedboat capsizes in Vietnam](https://www.bbc.co.uk/news/articles/cwyd7x22lp1o?at_medium=RSS&at_campaign=rss)
-6. [China braced for second typhoon in a week as Bavi approaches landfall](https://www.bbc.co.uk/news/articles/cdxd3wkp2rzo?at_medium=RSS&at_campaign=rss)
-7. [Most people who need glasses don't have them. Can the post office change that?](https://www.npr.org/2026/07/11/nx-s1-5887653/reading-glasses-post-office-india)
-8. [U.S. Citizen Tests Positive for Ebola in Democratic Republic of Congo](https://www.nytimes.com/2026/07/11/world/africa/dr-congo-ebola-american-us-citizen.html)
-9. [England and Norway, Old Friends, Resurrect a Rivalry for the World Cup](https://www.nytimes.com/2026/07/11/world/europe/england-norway-world-cup.html)
-10. [Spain battles to contain one of its deadliest wildfires as at least 12 killed](https://www.bbc.co.uk/news/articles/c1wyv383j2xo?at_medium=RSS&at_campaign=rss)
+1. [US launches fresh strikes as Iran closes Strait of Hormuz](https://www.bbc.co.uk/news/articles/cj9gkpp0dkeo?at_medium=RSS&at_campaign=rss)
+2. [Alvarez's 112th-minute goal helps lift Argentina past Switzerland 3-1 and into World Cup semifinals](https://www.npr.org/2026/07/12/nx-s1-5890774/argentina-switzerland-3-1-world-cup-semifinals)
+3. [At least two killed in Toronto street festival shooting](https://www.bbc.co.uk/news/articles/ce3e66e1x3go?at_medium=RSS&at_campaign=rss)
+4. [US attacks Iran over ship being hit in Strait of Hormuz; Tehran lashes out again at Gulf Arab states](https://www.npr.org/2026/07/11/g-s1-133212/us-iran-vessel-attack-strait-hormuz-gulf)
+5. [China's second typhoon in a week makes landfall](https://www.bbc.co.uk/news/articles/cdxd3wkp2rzo?at_medium=RSS&at_campaign=rss)
+6. [U.S. Strikes Iran After Iran Fires on Ship in Strait of Hormuz](https://www.nytimes.com/2026/07/11/world/middleeast/iran-araghchi-oman-iran-strait-of-hormuz.html)
+7. [England and Norway Resurrect a Rivalry for the World Cup](https://www.nytimes.com/2026/07/11/world/europe/england-norway-world-cup.html)
+8. [T. rex could become most expensive fossil ever - but it's a ​problem for scientists](https://www.bbc.co.uk/news/articles/c4gykgyn1r4o?at_medium=RSS&at_campaign=rss)
+9. [Polish PM pledges memorial to victims of WW2 'genocide by Ukrainian nationalists'](https://www.bbc.co.uk/news/articles/cze94x4361po?at_medium=RSS&at_campaign=rss)
+10. [Palestinian aid worker who organized World Cup screenings killed in Israeli strike](https://www.npr.org/2026/07/11/nx-s1-5890044/palestinian-aid-worker-who-organized-world-cup-screenings-killed-in-israeli-strike)
 <!-- daily-check end -->
